@@ -21,8 +21,7 @@ VA - The Seeds of Lounge, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:496EF94D5B102328E051DB8EF465706DADA2AD32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Ibiza Let' Chill, Vol. 1 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:4EE4D820C8DF06C0C267B90E5BB1F9D292931A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Chillhop Guitar - Lo-fi Beat & Smooth Guitar (2020) [AAC|~307 Kbps] <Chill Out, 
 ```bash
 magnet:?xt=urn:btih:C6C69D8F28175EABE42F93FC80544AAC89892C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Spiritual Spa, Vol. 1 (2021) [AAC|~314 Kbps] <Downtempo, Balearic, Chill Ou
 ```bash
 magnet:?xt=urn:btih:3E6C1645F6C5D0C046DA5C3D51DCCA354B0C89BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Los Angeles Beach Lounge, Vol. 2 (2018) [AAC|~335 Kbps] <Chill Out, Lounge,
 ```bash
 magnet:?xt=urn:btih:42E4D7A1BBAB450ADFEFCA1564B11657A09603E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Fireplace Chill, Vol. 5 (2020) [AAC|~322 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:AA4EB42F4B86108771ACF6788A48528D797E2215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ VA - Deep Sunday Bliss (Best Tunes For Deep-House Lovers), Vol. 1 (2021) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:232543AB8A16AEC80AEAF5A093E5CE7A76EC31AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Chillhop Guitar - Positive Moments (2021) [AAC|~316 Kbps] <Chill Out, Smooth Jaz
 ```bash
 magnet:?xt=urn:btih:91E9BCF8097CC0D5EBF6655A5C230A3FE0C6BEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Smooth Jazz n Chill 4 (2019) [AAC|~349 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:FFC0F1CB91DA89123CD2F7F3B84BE570212A03FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - The Forest Chill Lounge, Vol. 18 (2021) [AAC|~317 Kbps] <Lounge, Downtempo,
 ```bash
 magnet:?xt=urn:btih:AF500DF3CF5A931AE10A485CC44374BBFB8B35BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Lake of Tears - Ominous (2021) [AAC|~334 Kbps] <Doom Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:EF2B03170775263CFB8D586FCA0C7589B9D64E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Vanlife Chill, Vol. 5 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:6F588C8E4844134B53CAC11763413D7BD8D36BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ VA - Vanlife Chill, Vol. 1 (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:E114CEA3329BA6E19D69C14E623E9A21800EF569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ VA - Lounge & Cookies, Vol. 1 (2021) [AAC|~292 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:6F82C09415FB5D239AB18E0B044D168D9CDA3AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ VA - Beautiful Metamorphosis, Vol. 4 (2021) [AAC|~300 Kbps] <Downtempo, Lounge, 
 ```bash
 magnet:?xt=urn:btih:EED6FC9CD69061D42906A0742381B26F8B200196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 1 (2021) [AAC|~332 
 ```bash
 magnet:?xt=urn:btih:D94E21C302E7826BBB7CEFFA2E7DB28E4EB0A870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ VA - Electronic Clouds, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:8BD91B7FACD14CEB738F85C401B282915E38F8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ VA - Close to You (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:D2DE50A063549B86F6EC54AF6C1A07899F027834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ VA - Vanlife Chill, Vol. 3 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:16F7E00A063D1C34D9B89E5B8CCC30522E27FC69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ VA - Flora Lounge Tunes by Smooth Deluxe, Vol. 2 (2021) [AAC|~321 Kbps] <Chill O
 ```bash
 magnet:?xt=urn:btih:71B43D17313B7365746F6ECAADE24E0715AF341F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ VA - Secret Room: Chillout Your Mind (2021) [AAC|~313 Kbps] <Lounge, Chill Out, 
 ```bash
 magnet:?xt=urn:btih:FAB244E42D9BFEBFFBFCE784D9D4A2609476C3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ VA - Electronic Clouds, Vol. 3 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:9B7DF4BFC40E25DC4199A65DA52C2B4B0F33B28B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ VA - Lounge Remixes, Vol. 2 (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Deep Hous
 ```bash
 magnet:?xt=urn:btih:0C3527D9AB49898497E7C04C7465AA1B91508A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F73D16AF6F8B534B2C5381239E7E1E5E2283CE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ VA - Vanlife Chill, Vol. 7 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B93D76F1094648CB1029A230E1650C25B3084E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +721,7 @@ VA - The Best Lounge and Chillout Covers (2021) [AAC|~316 Kbps] <Lounge, Chillou
 ```bash
 magnet:?xt=urn:btih:1183C47DC9A899DBA4BCE62B428226B6E7993DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

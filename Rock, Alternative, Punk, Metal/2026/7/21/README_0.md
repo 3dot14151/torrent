@@ -22,8 +22,7 @@ A.D.A.M. Music Project - Knocked Down (2026) [FLAC 24/44.1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:E4E483FAC3F6747B925DC480972B23EDB24FAE5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Beck Zegans - Engraving of Armor (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alt
 ```bash
 magnet:?xt=urn:btih:DE2ADDB10CE660DADD831FFFA804C7EC740C87B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Daizy Pinehill Band - Rocking Wild (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:8AB91ED615963A806EB24193ECDCEEB8CF7E0026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

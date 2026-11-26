@@ -22,8 +22,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vin
 ```bash
 magnet:?xt=urn:btih:1FD99A40670FB185F5F35388448C365CC9DCA6CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

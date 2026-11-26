@@ -19,8 +19,7 @@ Endless Fables 3: Dark Moor / Сказки без конца 3: Мрачные �
 ```bash
 magnet:?xt=urn:btih:DD4F78E81131DC1BAE491D8E5F97E4E34CB3714F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reigns: Her Majesty — революционное продолжение усп
 ```bash
 magnet:?xt=urn:btih:48BC7FCD5E2A5FEAF7EEEB58680A862FA2C667ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Figment (2017) [Ru/Multi] (1.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:1E3BF1146E19B1C0BBFEE8FF6EDE3394C55695CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

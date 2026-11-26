@@ -30,8 +30,7 @@ A La Carte - немецкая диско-группа, образованная 
 ```bash
 magnet:?xt=urn:btih:0E2CA2898B8D959286E24BF1E440A25BFD0A6D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

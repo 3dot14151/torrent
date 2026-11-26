@@ -25,8 +25,7 @@ Deadpoets - Paper Crane (2014) [MP3|320 кб/с]<Atmospheric Post Hardcore, Scre
 ```bash
 magnet:?xt=urn:btih:A0AB7A865328FE0658CC9837E584198A8784C6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Rubicon Cross - Rubicon Cross (2014) Deluxe Edition [MP3|320 кб/с]<Hard & Hea
 ```bash
 magnet:?xt=urn:btih:F53AF1A00F39C62011DD7507FB671C5FCB19CED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Digital Daggers - Close Your Eyes (2013) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:D6006620206B53D9E188564378CBE5EF63B857A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Rocket to Memphis - 4 Альбома (2009-2013)[MP3|128-320 кб/с] <Rockabill
 ```bash
 magnet:?xt=urn:btih:CBE35B8E512C042E2014C825C26CBCA03BF588AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:75F08D82BDEA1272A785A60396AAA8C802A88866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

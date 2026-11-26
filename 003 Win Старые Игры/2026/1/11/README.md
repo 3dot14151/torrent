@@ -19,8 +19,7 @@ Dungeons and Dragons: Dragonshard / Кристалл всевластья (2005)
 ```bash
 magnet:?xt=urn:btih:059D9E07B6C9CA1505CA9FC81773990D85AE8BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

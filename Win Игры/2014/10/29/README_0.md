@@ -19,8 +19,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.0.0) SteamRip R.G. Игроманы [Di
 ```bash
 magnet:?xt=urn:btih:B68F672D0CDC866F56ECDEA54B0DD21B943400B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

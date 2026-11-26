@@ -20,8 +20,7 @@ Task Killer - Убийца процессов. Думаю всем, кто ра�
 ```bash
 magnet:?xt=urn:btih:72CCB333E502533CC063AB80E55750F637327745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Task Killer - Убийца процессов. Думаю всем, кто ра�
 ```bash
 magnet:?xt=urn:btih:BF629DCF189B73E72C89980C376ABDCA948B9762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

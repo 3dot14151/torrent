@@ -21,8 +21,7 @@ Macrium Reflect обладает интуитивно понятным поль�
 ```bash
 magnet:?xt=urn:btih:759A542B5267C3CACB1FCD39D280B9B205CEF897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AlterPDF Pro - программа может стать лёгким прогр�
 ```bash
 magnet:?xt=urn:btih:C427F94DE6284CF9E765FA99A67EAAB95494A3A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

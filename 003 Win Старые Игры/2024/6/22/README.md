@@ -19,8 +19,7 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:F8078DCE1DF72D0B9BAD6837179FEF6E26B2C47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

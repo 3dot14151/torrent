@@ -19,8 +19,7 @@ Trine – динамичная игра с реалистичной физиче
 ```bash
 magnet:?xt=urn:btih:4CC18B8B15EFBB3F100AFF91B0AD77FC34C6C6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

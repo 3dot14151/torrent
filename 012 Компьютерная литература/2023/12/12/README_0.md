@@ -19,8 +19,7 @@ Cеть Lightning (Lightning Network, LN) – это быстро развива
 ```bash
 magnet:?xt=urn:btih:BD65EB445F3B909F9BFC04AA81C1374D365C331D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

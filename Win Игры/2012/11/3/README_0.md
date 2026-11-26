@@ -19,8 +19,7 @@ Quantum Conundrum [En/Multi6] (Steam-Rip/1.0.8623.0/2 DLC) 2012 | R.G. Origins
 ```bash
 magnet:?xt=urn:btih:BBAF2FB00BC0F80AA0328550EE2100A071A789E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Judge Dee: The City God Case / Судья Ди. Проклятие бога го
 ```bash
 magnet:?xt=urn:btih:DE1C3FE8CCBA1B1255F6DA7DB86475F8D04B265B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7FF795CB8C70BD539CE61C00629C406155F536F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ King's Bounty: Принцесса в доспехах / King's Bounty: Armored P
 ```bash
 magnet:?xt=urn:btih:DFEDFE5DDFBDC1DE40D073034CDB1AB660F1E2E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

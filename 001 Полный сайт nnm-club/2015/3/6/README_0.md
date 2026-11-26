@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CCC0631955FAE3B9873B223A58EA7846660CD7DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Hopper Disassembler - бинарный дизасемблер и декомпи�
 ```bash
 magnet:?xt=urn:btih:C8729F3870298C2F4EB7D6047F04E531688C090F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ gunter10 UNITED Records - 2 альбома (2010) Touhou Instrumental /Doujin/ [
 ```bash
 magnet:?xt=urn:btih:796A62FE3230C4CF1D2ADDFA8178BA664E0023CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Fluid Stance - 2 альбомав (2008-2009) Touhou Instrumental /Doujin/ [FLAC
 ```bash
 magnet:?xt=urn:btih:DA64B61E9309F87A81B724983591B70A4C097F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B81C128F9942D49E9BC51ECD68384D9618504B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D79FA93226E8430D5192C1E3DF126E06150AA820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Level 42 - Something About You: The Collection (2015) [MP3|320 кб/с]<Funk, Po
 ```bash
 magnet:?xt=urn:btih:B57B845D5C15E572D00F19AD1A321616CA6A48B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Sons Of Texas - Baptized In The Rio Grande (2015) [MP3|320 кб/с]<Alternative/
 ```bash
 magnet:?xt=urn:btih:5280AA938576041D4BEAD45F1325899B204DF2D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Level 42 - Sirens (2013) [MP3|320 кб/с]<Pop/Funk>
 ```bash
 magnet:?xt=urn:btih:CFCEEA88B2B5B833E41E1B7B1225450203DB8BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Orphx - The Sonic Groove Releases Pt. 2 (2015) [FLAC|Lossless|WEB-DL]<Techno>
 ```bash
 magnet:?xt=urn:btih:35C5AA348D4E293D13CD9D3FEC830D0A40B4672C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD3DC39AB5E8D8A6667A0D6FFADBDBEBE4287FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Hulda - Huldasound (2015) [MP3|320 кб/с]<Electronic, Pop>
 ```bash
 magnet:?xt=urn:btih:FC107824E36139E40FE8ACD2EA64EE2A1B009777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5CC02E6DE7675E2A97F77A66C844F6175D7A6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E72E186D84166E2056A2A0DF40B09DC5A0A9068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Europe - Last Look at Eden (2009) Unofficial Release [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6542021D2F73094DC01E7488FF6E5FF74F44FD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Reutoff - No One's Lullabies (2014) [FLAC|Lossless|WEB-DL]<Experimental, Industr
 ```bash
 magnet:?xt=urn:btih:8B1FAD1E3882706F888B54991284E505D43D52CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Kate Boy - Kate Boy (2015) [MP3|320 кб/с]<Alternative, Indie Pop, ELectronic>
 ```bash
 magnet:?xt=urn:btih:76ECDF1A65E566B2C6763FBE03F1D9C2619CA6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEFC15DF6B3852FF732AF7B989AC4D94A508E6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3D6B2E9775D7656ACB8A784D62DE3E07CA4D029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:196BFBC99A44A76CA0781A4F8D3CE870DF1B064E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:687C885E6ACA9695C21E2480B03D4B3D79D85420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0ADB721CAE3961277CFEB187CC5ED253BAB5B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:738E06B6A0138B8F04FCC0F9B2098EE996C89CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A9331635922D8B46FB648B7BCAE2F86FC0E84B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:752A0509FCA427A8FE2BD027E7450724A151B3E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sable Maze 4: Twelve Fears / Темный лабиринт 4: Двенадцат
 ```bash
 magnet:?xt=urn:btih:68CD7DCD8F3E6F6694359D470782634AE44ECF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

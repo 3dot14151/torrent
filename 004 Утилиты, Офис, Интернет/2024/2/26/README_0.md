@@ -19,8 +19,7 @@ Google Earth Pro 7.3.6.9796 (x64) Portable by FC Portables [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FDB91051C2544B90898746C778AA551994A3FA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windows 10 Debloater – небольшая утилита для тонкой �
 ```bash
 magnet:?xt=urn:btih:DE99B54B63F9B4524410BDB05D8D9ED214A94C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ImageUSB - бесплатная портативная утилита, с пом
 ```bash
 magnet:?xt=urn:btih:FFFFA36DC6D55A7B62B52566BE1BC3FA65DAB282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hibernate Enable or Disable 1.4 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:469FB6D53AF3C1F9149E1109BE28C960F7EE3606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

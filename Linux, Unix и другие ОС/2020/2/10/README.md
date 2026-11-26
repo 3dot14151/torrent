@@ -19,8 +19,7 @@ Debian GNU/Linux 10.3.0 + nonfree Buster [i386] 4xDVD
 ```bash
 magnet:?xt=urn:btih:2C9E90724DCC580AD95753F4157CBAF24E8668C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debian GNU/Linux 10.3.0 + nonfree Buster [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:5F11F04E2D350B26E94085268EC9DE30889CFA54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

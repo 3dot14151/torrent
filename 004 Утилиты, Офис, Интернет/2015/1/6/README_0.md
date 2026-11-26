@@ -19,8 +19,7 @@ TreeDBNotes — это мощный и очень удобный в работе
 ```bash
 magnet:?xt=urn:btih:AE64F7321736461B995684F8F86620ED7AA096AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

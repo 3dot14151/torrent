@@ -19,8 +19,7 @@ Rune / Руна [Ru/En] (RePack/1.07) 2000 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:54AD20F9D4012E04B98E9B570F6BE2EE7E126947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

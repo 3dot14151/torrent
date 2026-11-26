@@ -18,8 +18,7 @@ VideoHive - Starlight Promo - 3854874 [AEP]
 ```bash
 magnet:?xt=urn:btih:202128027B23F1219C4D2C6CC6E3579892882337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:D81A0871674ED24793210827A52E4B62686222D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ TheTunes.Ru & Ozo Effy| Экстремальный продакшн (2013) [CamR
 ```bash
 magnet:?xt=urn:btih:EA71349B913962C0282F3B16A34F878EDAC9ACB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Agnitum Outpost Firewall - персональный брандмауэр, защ
 ```bash
 magnet:?xt=urn:btih:62D4E4725F8926ED22DB8258B906AAE144E4A829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Google Chrome – бесплатный браузер с открытым исх
 ```bash
 magnet:?xt=urn:btih:2D58767B4597C120120B076AADF12C4F1A7F59CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Bastion - это новая PRG в стиле Diablo, но отличающая�
 ```bash
 magnet:?xt=urn:btih:4FFC4A3B18BF291A765BD87E3568C983D30D7513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ VideoHive - Glow And Glitters - Slide Show - 2677979 [AEP]
 ```bash
 magnet:?xt=urn:btih:4F4A59C38AA41FBCDEBD8A99B99E6F6F0714A810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B22BAEBD6031DD178E41B8C01899235D24C6F5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Daemon Tools — эмулятор СD-ROM с поддержкой многих �
 ```bash
 magnet:?xt=urn:btih:B27F513889EA3575CB1CCF1BAE06EDA9C238B549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF95DF09E9B3F2DE6F525219488686C7BE316D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35E3BB0281A9B8A1007ECD4D2A87F6B52E4C8D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Toontrack с гордостью представляет новое дополн
 ```bash
 magnet:?xt=urn:btih:6EEA86419CC37619039DB59A8E145B102BD26B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ All My Books 3.6 Build 1212 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C6DF0B3599C1EF86BD77E90BD75E3D4267AA0E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:3AA03B3141647C475CD5BA93B894075B03EC999E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Agarest: Generations of War (2013) [En/Jap] (1.0/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:53122287739F60055A77F54E914A887D325CCE6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Knock-knock (2013) [Ru/Multi] (1.0) License WaLMaRT
 ```bash
 magnet:?xt=urn:btih:7840460B9A31152BA3BD8B8EC0B4EE01AE4A202C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Diablo III [PS3] [RUS] [Repack / 1.02 / 2 DLC] 2013 | R.G. Inferno
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D42C89441B0F8D776BD5AB3DFEEBCDDAE3EB8B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ Heavy Rain: Move Edition [PS3] [+MOVE] [ENG/RUS] [Repack / 2.00 / DLC] (2010) | 
 ```bash
 magnet:?xt=urn:btih:3B76EDAAA6F75E07E80F9318AAD00D1B32130D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ Microsoft Diagnostic and Recovery Toolset (MSDaRT) All in One (05.10.13) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1C22DC160D6F4A176609584A77F49E6B8368FC6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ PTC Mathcad Prime - мощная система автоматизированн
 ```bash
 magnet:?xt=urn:btih:1D01E88DFD815D37E4ADC8678B4DB903E41C0698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ Adobe Photoshop Elements 12.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:13586BF11CDDE959F669B6D796F2452D8A04370A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ Outlast (2013) [Ru/En] (1.0.11774.0 upd6) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:9C306486299928A78AA22D5331C0FD14C40C85D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

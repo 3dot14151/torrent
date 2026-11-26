@@ -26,8 +26,7 @@ JavaFX - это семейство продуктов для создания п
 ```bash
 magnet:?xt=urn:btih:97143C46C36C27F9EC8B66FF1F6918FFEBC279A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

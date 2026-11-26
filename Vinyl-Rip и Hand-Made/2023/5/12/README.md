@@ -22,8 +22,7 @@ B1 3 Ч. – Scherzo. Allegro(   Читать дальше...   )Жанр: Class
 ```bash
 magnet:?xt=urn:btih:5DE52C4596224ADEFDA85FDA277877F012F97E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

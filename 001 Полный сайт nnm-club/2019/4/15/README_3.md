@@ -18,8 +18,7 @@ BELOFF 2019.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:24841A3B32662EB90B99092C1C0DC463DBA9E86B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7E45FA9C8507DA7DB89281246BB604035B15F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ F-Secure Freedome VPN - надежное и эффективное решени�
 ```bash
 magnet:?xt=urn:btih:521CD46145BA4E50720E17F55A4D0E61C7527138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Adobe Premiere Pro CC — профессиональная программа д
 ```bash
 magnet:?xt=urn:btih:A62DE1CF961AF6F95845415EE7356E2875CF8B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Kakegurui XX | Безумный азарт XX [2019, TV, 12] HDTV 720p raw + rus
 ```bash
 magnet:?xt=urn:btih:E35501CEB6515899550BB274624FD5C14922C23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/Multi] (2.4.0.19728/dlc) Steam
 ```bash
 magnet:?xt=urn:btih:074C0D98A5E903CC229F6EB739347EFB27B3129D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1E15D440C390414FE4356A2449492D0CDDC4A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ VA - Дискотека 90-х Vol.1:Продолжительность: 02:16:42
 ```bash
 magnet:?xt=urn:btih:DF57C1210738FBB403066AA6A25D1A2A40D1E6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Shameless, основанный на одноименном британском
 ```bash
 magnet:?xt=urn:btih:CDE247A216E58D83F12EFA46179658CAFB868B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

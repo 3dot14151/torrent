@@ -22,8 +22,7 @@ Audioslave — супергруппа, состоявшая из бывших и
 ```bash
 magnet:?xt=urn:btih:81A4F82AD84BF0EB3C66DC0C808D4CC0E2CE0970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tarja (Nightwish) - Studio Albums (5 releases) (2007 - 2019) hand made [restored
 ```bash
 magnet:?xt=urn:btih:781609E457EF84EA151F424B69C932A1EB30BBE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

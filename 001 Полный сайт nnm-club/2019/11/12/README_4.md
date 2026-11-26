@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:9B3723E19F1917C62FC8A9E19B86382D078D53C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4031B1C48CD2B7AF695EE2410A913D10385BC294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Journey (2019) [Ru/Multi] (1.52) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8B959B898A8BCCDC23000D67FD191DB95C5D79FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Motion Array Stock Music Collection - этот обновляемый сборн
 ```bash
 magnet:?xt=urn:btih:05F95383B5C89874EAF426C4502CFA7B694CE7FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:48CAB42DAE64930E325EBD21A7CBBC7AB6FE1A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB3D7A08B4301EF53439F26DBB4F4F633986BB4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Wolfenstein® II: The New Colossus™ - долгожданное продолж�
 ```bash
 magnet:?xt=urn:btih:2C28EC9C004514315380565AFD43751782A54012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

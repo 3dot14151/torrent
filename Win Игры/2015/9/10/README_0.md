@@ -19,8 +19,7 @@ Mystery Tales 3: Alaskan Wild (2015) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:904BDA3395E640B85E21A5C74E6E09CC8AF8B757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rite of Passage 4: The Lost Tides / Обряд посвящения 4: Проп�
 ```bash
 magnet:?xt=urn:btih:04A174B006580037890DD94EF4867038B8171038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hamilton’s Great Adventure - качественная аркадная гол�
 ```bash
 magnet:?xt=urn:btih:8504002BC829BDBC5819A7EC165CED0DAF36B783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

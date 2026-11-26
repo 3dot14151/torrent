@@ -19,8 +19,7 @@ Leigh Neville | The SAS 1983–2014 (2016) [EPUB, PDF] [Elite #211] [EN]
 ```bash
 magnet:?xt=urn:btih:815B8C8EF8D6D9C5CDE024D3F60979609ED53ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A081EE1C617406859F0FB8FF73B864FD216519A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

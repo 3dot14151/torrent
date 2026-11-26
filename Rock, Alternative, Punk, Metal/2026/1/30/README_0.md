@@ -22,8 +22,7 @@ Francis Rossi (Status Quo) - The Accidental (2026) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:1D81EDDFD2CE9B3B8113AF2334B955A563AE66EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:C4059787DBB86931D74AA10C3CBC0FC235D009A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:17ECF9B26DF3935B4B30F2AAD223AE5C45842BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Every King Has A Clown - Every King Has A Clown (2026) [MP3|320 Kbps] <Melodic H
 ```bash
 magnet:?xt=urn:btih:F46979108696282BE2B94E724A5B7EA1882160CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nexion - Sundrung (2025) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:DBCBF61E180D7A7A978701E7C6E92076C55B5809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Haunted - Songs Of Last Resort (2025) Japanese Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:CF4A54AD4A7908A3EEDB8DC4881CED5BE71B88F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

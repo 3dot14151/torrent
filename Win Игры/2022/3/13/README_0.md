@@ -19,8 +19,7 @@ Redemption Cemetery 12: The Day of the Almost Dead / Кладбище искуп
 ```bash
 magnet:?xt=urn:btih:D928DA058C4EAD2A57F073C1F7B190C6567D45F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

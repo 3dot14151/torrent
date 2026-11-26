@@ -19,8 +19,7 @@ Myths of the World 3: Spirit Wolf (2014) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:AEEDE0ACD0A5490E24C4A6EAA06EB7D5A8175B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Farm to Fork (2014) [En] Unofficial [Collector's Edition / Коллекцион�
 ```bash
 magnet:?xt=urn:btih:795D60FED795406FC34A8CBCC9012C8A3C550B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Esoterica: Hollow Earth / Эзотерика. Полая Земля (2013) [Ru] 
 ```bash
 magnet:?xt=urn:btih:0691361876A8A78A857EBF9DC7458553D65E0912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

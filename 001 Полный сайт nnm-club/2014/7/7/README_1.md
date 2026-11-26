@@ -27,8 +27,7 @@ Karfagen - Magician's Theater (2014) [FLAC|Lossless]<Symphonic Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:E2D21222F5966B97D01598BF05E70BBADEC42DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Tesla Principle - Forbidden Knowledge (2014) [FLAC|Lossless|WEB-DL]<Psytrance>
 ```bash
 magnet:?xt=urn:btih:6EFFDE7E09F24240E4058092A586C1834C05730C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Wallpapers - Car Full HD [JPEG]
 ```bash
 magnet:?xt=urn:btih:1B0AD30D8538F1A053095EAE32C037CFFC9F82F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FDE588133C04ECB291D2358EECC838462081B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Trim Enabler Pro 3.2.4 [Multi]
 ```bash
 magnet:?xt=urn:btih:D9B008981BDD3978E022708CFD1063C56CAA82E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C286BA78D8753AADB7FF04A23377DC7BF54D54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:4C6F258D1B61F75B5B8E2281E9934ABEEA1A1584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ VA - Душевный шансон летним вечером (2014) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:6A313F8962A7EE352A34E14B1B5CA7F4DF7E7096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ Creol - Latin Guitar (2012) [MP3|320 кб/с]<Instrumental, Flamenco, Latin Jazz
 ```bash
 magnet:?xt=urn:btih:D9EB1073B2580A173B1E1F50EE74B8B43B65C94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ VA - Solarstone pres. Solaris International - Electronic Architecture (2009) [FL
 ```bash
 magnet:?xt=urn:btih:2C3523245C6B0E820A43562B226987144B7FACBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32ADE2363F71B69FB5B7020D8C81944121EB0760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ Fundy Designer - новое слово в дизайне фотоальбомо�
 ```bash
 magnet:?xt=urn:btih:63BB438E5FA5E9FC71C0D07FB6B44B0867366898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ FolderSizes - программа для проверки жестких диск
 ```bash
 magnet:?xt=urn:btih:DEB81468F13269D5F9113265BCCD1A15F541CFC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8C17A61C127C164135D3763EE6F3A9B2C1BAAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ Piano Sonata No.6 in F major, op.10 no.2(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:389BC46EAD96F8536398AD8D7CFECF4E35A9A804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +479,7 @@ Wallpapers - City Full HD [JPEG]
 ```bash
 magnet:?xt=urn:btih:70DE02B0068308EF25DC4C6D4FFFE2431B50314D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF256887CF0FCF35B05B35B27AC787F6C05D861F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +529,7 @@ Secrets of the Dark 4: The Flower of Shadow (2014) [En] Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:061DEE88C63A3D4D257F189070FCF61BD68C62A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +563,7 @@ Kid Cudi - SATELLITE FLIGHT: The Journey To Mother Moon (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:E3C72E55A8194F076FFF292E8E5F469DA435FC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ Christine McVie - In The Meantime (2004) [FLAC|Lossless]<Soft-rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E81488FBEF71DFBC4F91C2458E77F8B9AFCA779B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F51DED9C24B87BBC16B1734463AAD0055A7EB9C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +672,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:91CDDF9BAAE37428B813B141966520D823BFDF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83B6DC6BBD96BE953F2233B6A06046520E29D10F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09E7A16BC608B1762B153C4CB524CF10692DF8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

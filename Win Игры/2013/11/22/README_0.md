@@ -19,8 +19,7 @@ Punished Talents: Seven Muses Collector's Edition / Наказанные Тал�
 ```bash
 magnet:?xt=urn:btih:A55A2FDD18A34E7CC116912EDD9B47BC4796BC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Angry Birds Star Wars (2012) [En] (1.4.0) License
 ```bash
 magnet:?xt=urn:btih:155B3A42A44C180612693BD5781C2DAF1254F5F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Angry Birds Star Wars 2/II (2013) [En] (1.0.1) License
 ```bash
 magnet:?xt=urn:btih:9F981B5CA66BD0DAC271A29458C1D5002B8A5A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ F1 2013 предлагает вниманию поклонников вирту�
 ```bash
 magnet:?xt=urn:btih:0733E8E84C0E81166EDBA97605A5B06C2D015436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

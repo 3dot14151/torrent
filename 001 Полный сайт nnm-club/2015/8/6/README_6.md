@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5664C95FBBE95352CDD392D47E6F598A5C00BAD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Paragon Hard Disk Manager - многофункциональное и удобн
 ```bash
 magnet:?xt=urn:btih:B3F3DCCB0854C6DDBB4E3E82C24D291B07B681CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Novicorp Remove Windows 10 Spying 1.0.0000 Portable [En]
 ```bash
 magnet:?xt=urn:btih:312DDE269262002EF3BBB95958C3F3829CFFE934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:87B5A9103255783CCEE15379B1B62B0C63F11781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Lost: Via Domus / Lost. Остаться в живых [Ru/En] (RePack) 2008 | R
 ```bash
 magnet:?xt=urn:btih:BABAD13BD3CE2406CA4DE51FAB335FBDA15C0478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Army of Two: The 40th Day (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [
 ```bash
 magnet:?xt=urn:btih:1F59C9744F03D290A2F4A271F8DE29CB5EB7D16B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ LiteManager — позволяет управлять одним компьют�
 ```bash
 magnet:?xt=urn:btih:84E1365194768EDD4A97E453D6F10D10F644CC64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:C04252E7B18F95C44704E1E454848BB2D08F1411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B699E44EEB120549EFB3716BE40BAE87C54D0DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10C6E9D0F24012F13F6C98D04C72A28BA0C02526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59750864F37F75852E2AFB20DCF309A3D0FE44BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75F058BBCB610AF2C5B4587E2980C505BDA08287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEB33FCB18BC573ECDF5F4C8CD85FA915CD8C83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Windows 10-8.1-7SP1-XP Plus PE WPI StartSoft 45-2015 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:2109102B47C14CB66E6EDD01AC466CC2B6553943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Destroy Windows 10 Spying 1.4.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:36BFF37382A177ECBBF07E4D5E4444A2DAE59EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ Windows 10 уже занимает более 3% рынка операционн
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ Adobe Photoshop CC - это комплексное решение для про�
 ```bash
 magnet:?xt=urn:btih:F779545B903A28481F575882C273BE53041CD61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ Carmageddon: Reincarnation – снова позволит геймерам по
 ```bash
 magnet:?xt=urn:btih:4516474FF5F6BB25E941F849FF81603410C18C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ Destroy Windows 10 Spying 1.4.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B1D0F90BD0082963EE0D671557DB6742747721A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ Comodo Firewall предназначен для защиты пользоват�
 ```bash
 magnet:?xt=urn:btih:C4F6A427526C7BB83CF2FF2501BB36C65E61E294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ VA - Chill Acoustic Covers 2 (2015) [MP3|320 кб/с]<Acoustic, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:B1015334D454A5E139A21EE15A55ABCB886950E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ ABBYY FineReader 8.0 Professional Edition - профессиональная в�
 ```bash
 magnet:?xt=urn:btih:3715E3E1A803AAD76CEE6CA43A0AAD5FAF906849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ Geekbrains | Java. Уровень 1 Базовый курс (2015) PCRec [H.264/
 ```bash
 magnet:?xt=urn:btih:2C8ACFCA1B151AE051106212FB8A096EDC3128AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149E153D31B3C0BFF8621452546E69A62B60B1B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ LoftSchool | Комплексное обучение веб-разработке
 ```bash
 magnet:?xt=urn:btih:0DD0310289C7AD1DC5CA2526BC6FCBF36A7A5B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8010F34A8864B02226FBA950F73FCBFD0EFA9DA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

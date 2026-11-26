@@ -19,8 +19,7 @@ Ea - A Etilla (2014) [MP3|320 кб/с]<Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:0358549F762CA93490545965D766077382E0EE7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Nu-Nation - Wake up (2012) [FLAC|Lossless]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:6322674D6A0A9BBDD6BE8745F710EF83A4A1D602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Axel Rudi Pell - Into The Storm (2014) [MP3|320 кб/с]<Heavy / Power Metal>
 ```bash
 magnet:?xt=urn:btih:45455C2240AC127170D39943FF6C1A30FF46FF02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

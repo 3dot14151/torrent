@@ -20,8 +20,7 @@ Firelight Fantasy: Resistance – игра про зрелищные сраже�
 ```bash
 magnet:?xt=urn:btih:FA9E435165AB1D2C18C160D0C04792FED7B7DCCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Lona: Realm of Colors – это приключение в естественн�
 ```bash
 magnet:?xt=urn:btih:0E69B8FE485EEE5558116003DEEA3A86F96019E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Outer Colony - грандиозный научно-фантастический 
 ```bash
 magnet:?xt=urn:btih:384531AF8186E5AA971274E2A257AF3676F8169A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

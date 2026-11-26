@@ -19,8 +19,7 @@ Project Rescue Africa (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:FB378FB6F523D535C3E1C32C1896A9B0ABEE7D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Westward Kingdoms (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:5297513360C46DD07BCF62F21228E295B64A7A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

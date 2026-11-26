@@ -19,8 +19,7 @@ Pizza Tycoon - еще один вариант серии экономическ�
 ```bash
 magnet:?xt=urn:btih:344A0A913876BE0649485433BF135B71BC28F46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

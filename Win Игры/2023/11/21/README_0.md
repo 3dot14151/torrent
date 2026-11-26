@@ -19,8 +19,7 @@ My Train Arrives – это симулятор строительства жел
 ```bash
 magnet:?xt=urn:btih:BEACEDA5CD7D2757A641327FEE36FF0915CF1A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Barton Lynch Pro Surfing 2022 – спортивный симулятор, пр�
 ```bash
 magnet:?xt=urn:btih:3F0170E84FD7415B3C92D5B2C61017145FA71E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bzzzt - это захватывающий высокоточный платфо�
 ```bash
 magnet:?xt=urn:btih:9D248AD61ECF479A790305F3C89368491F1019A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ FIRSTDATE: LATE TO DATE — это романтически-комедийная
 ```bash
 magnet:?xt=urn:btih:A8DE198637B458215D945D0AF1B930F63079DBB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Terminal Velocity – это выполненный в научно-фантас
 ```bash
 magnet:?xt=urn:btih:D14594D5E330400A3D7C45103E5FC217C1441527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 ```bash
 magnet:?xt=urn:btih:CAC81A33C572860C07897D59BBC02423829E9EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

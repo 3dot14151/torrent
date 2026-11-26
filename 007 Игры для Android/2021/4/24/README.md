@@ -19,8 +19,7 @@ Titan Quest: Legendary Edition - самое полное издание Titan Qu
 ```bash
 magnet:?xt=urn:btih:1695D8BB4DD84129648EE89917A727AE3B623E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:33D6AF09A2A212F4F9B812A89BF1BE62633503BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Cities: Skylines предлагает по-новому взглянуть на 
 ```bash
 magnet:?xt=urn:btih:505448E813ED77560AD1CDF296B5BFFE6ECF7DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

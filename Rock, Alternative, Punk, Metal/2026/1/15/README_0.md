@@ -22,8 +22,7 @@ VA - Трибьют Пятая Бригада (2025) [MP3|320 Kbps] <Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:CB8A2303D43C9240A6F3E1231B7579464B533EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Soen - Reliance (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:BC53E0F2E7BA26D19FF0A5121B767BC012B112BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Soen - Reliance (2026) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:2BC081E3CBA267C3A2064BBC67A7CE7008742615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kreator - Krushers of the World (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thra
 ```bash
 magnet:?xt=urn:btih:D376CD8943BC439575807C6EF66B352B178B2C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Kreator - Krushers of the World (2026) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C1F14D95A66389530D748DEC363BF121B0FB3EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

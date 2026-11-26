@@ -19,8 +19,7 @@ TRON: Catalyst - новый изометрический приключенче�
 ```bash
 magnet:?xt=urn:btih:A477710FDC6CEE6A301383201EEC7AEAC8161270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E4134586327F5294AEAB77A54282FD3D3F5D9595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250616_210
 ```bash
 magnet:?xt=urn:btih:995D436E5886B536A62510E8960E257CDA9F2773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Suit for Hire - захватывающий экшн с видом сверху, 
 ```bash
 magnet:?xt=urn:btih:EDA696348CA66578F749883B49BA17389CD48676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Vivat Slovakia - это игра с открытым миром, действи�
 ```bash
 magnet:?xt=urn:btih:AC18DBA1AC038B977252A6384A36AA4FAD2D5247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1E79A6A09E6C76A23902F09E77207E0DBD7BF104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7B4FCBAAF3DF5F6E8F6F1B8E5354634A9F21FBF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Burnhouse Lane (2022) [Ru/Multi] (1.4.7) License GOG
 ```bash
 magnet:?xt=urn:btih:6A11A0776BF81023E7453C74453B926359C3FA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 ```bash
 magnet:?xt=urn:btih:E8A8CDE6733E6D05A6F8C7670D42CDE1650A7825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FBE18A68751A95510D547A58DF6B3144832BE15E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:44BDD9DF0EB0E6F851903717ACF7BAD5777CAB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

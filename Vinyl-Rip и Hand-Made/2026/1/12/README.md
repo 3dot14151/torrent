@@ -20,8 +20,7 @@ Destroy Them - немецкая трэш-метал группа из Эссен
 ```bash
 magnet:?xt=urn:btih:B8525FA8562B4493197A5F72A6E1C3E4CF9D88C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Velozza - трэш-метал группа из Рурмонда, Нидерла
 ```bash
 magnet:?xt=urn:btih:EB906D8C09EC15B1653A9D56ACBC5E5D194DD505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

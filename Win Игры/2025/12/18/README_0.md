@@ -19,8 +19,7 @@ Skate Story (2025) [Ru/Multi] (Build 21094509) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7721030591191DFA0CDE0F44DEF3673093175ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Skate Story (2025) [Ru/Multi] (Build 21094509) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B611F34A9310D9A019CA3C8A3150C0C8CBF18F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RuneQuest: Warlords - это пошаговая боевая стратегия,
 ```bash
 magnet:?xt=urn:btih:049C37CE0F9FA7A9C6512B4CFE3C8CC175F3DAA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RuneQuest: Warlords - это пошаговая боевая стратегия,
 ```bash
 magnet:?xt=urn:btih:042529DA49A81FD4EDF6B6578578E3D7D98F1B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Express No. 6 - короткий атмосферный хоррор от пер
 ```bash
 magnet:?xt=urn:btih:6043E5B1AE94B594F4CE2E0CF87A15F2BA16EEB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Just Cause 3 - это масштабный приключенческий экш
 ```bash
 magnet:?xt=urn:btih:DAA68747AEDEB70D51932EC7F5522775439591B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

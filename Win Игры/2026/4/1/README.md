@@ -19,8 +19,7 @@ EverSiege: Untold Ages - гибридный проект, органично с�
 ```bash
 magnet:?xt=urn:btih:397BD76E428B26AF1E5C84FC01768311D5A4AD25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Mortuary Assistant (2022) [Ru/Multi] (3.0.2) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:F7F28CB4255970C23BA887FD205C8F6B66DA2432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Easy Delivery Co. (2025) [Ru/Multi] (1.12c) License GOG
 ```bash
 magnet:?xt=urn:btih:012CA79FCD5751CAAA5F7EBAF65A02B4842FBB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ War Mongrels - это изометрическая тактическая игр
 ```bash
 magnet:?xt=urn:btih:B37AFE79E4A2F466AE577BD2C7A6B1E9FBF95E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Blossom: The Seed of Life - это масштабный процесс тран�
 ```bash
 magnet:?xt=urn:btih:8624E9063D2C3AC30277F909192DB62FC9F725ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ukrainian Warfare: Gostomel Heroes (2026) [Ru/Multi] (Build 22572514) Scene Teno
 ```bash
 magnet:?xt=urn:btih:AB8EF8A9529BB7A82825CFDF9F60D4BA4A36E6CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F213F0872E0B4595072F3DF61C9A0512376522D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ GRIME II (2026) [Ru/Multi] (1.0.17360c) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:DAC13ABF09727DADC4CDCC1C78BB20510402F923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

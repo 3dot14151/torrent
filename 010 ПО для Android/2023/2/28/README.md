@@ -19,8 +19,7 @@ RuStore отечественный магазин приложений от VK �
 ```bash
 magnet:?xt=urn:btih:2959B1154FC0647B0FDF1BA9A99BBFB157212B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

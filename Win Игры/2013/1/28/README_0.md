@@ -19,8 +19,7 @@ XVI век, Карибское море. Эскадры пиратских ко�
 ```bash
 magnet:?xt=urn:btih:8BDF775AEA0AE0FDE72241A0CF0AA84617E73FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

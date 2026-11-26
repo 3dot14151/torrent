@@ -28,8 +28,7 @@ FireForce - March On (2011) [MP3|320 kbps]<Power metal / Heavy metal>
 ```bash
 magnet:?xt=urn:btih:C85C722121621E8A66FB9E7E1F2CEB6BB1E2E20B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Slade - The Live Anthology 1972 - 1982, 2CD (2009) [MP3|320 kbps]<Glam Rock, Har
 ```bash
 magnet:?xt=urn:btih:1DB653C8EDA50603A1A46A442F939E2CFA66F5B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Slade - Singles Collection, 3CD (2003) [MP3|320 kbps]<Glam Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B612DB8ABDB1C4647C47A66543612D4A375D9B05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Dropkick Murphys - Going Out In Style (2011) [MP3|320 kbps]<Celtic Punk/Oi>
 ```bash
 magnet:?xt=urn:btih:696AA827DDAE2FEC477E349E9C6B6FA673E92E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

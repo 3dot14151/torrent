@@ -22,8 +22,7 @@ George Tsalikis - The Sacrifice (2016) [FLAC|Lossless|image + .cue] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:794A5EFA5EE8ECE38007B812EAD049EC6C46E781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hammerschmitt - Still On Fire (2016) [FLAC|Lossless|image + .cue] <Hard Rock, He
 ```bash
 magnet:?xt=urn:btih:142AFE29DB37652E412B38615C4034677400865A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ An Endless Sporadic - Magic Machine (2016) [FLAC|Lossless|tracks + .cue] <Progre
 ```bash
 magnet:?xt=urn:btih:0C6516C8859B0D0C8EA104C8757E1E6C22DC3104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ally Venable Band - Train Wreck Blues (2015) [FLAC|Lossless|image + .cue] <Blues
 ```bash
 magnet:?xt=urn:btih:D694BAC6301FF5ED476B9B2F1112D0B22BC536CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Alice Cooper - School's Out... Forever... (2015) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1BD28AAC2210A789515171DC6B87CE1730E7C9C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Green Day первоначально был, частью панк-рок сце
 ```bash
 magnet:?xt=urn:btih:19C258A52F9644F685BA9483AE2958306CA0BCAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

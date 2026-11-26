@@ -19,8 +19,7 @@ FileZilla Server представляет собой очень простой, 
 ```bash
 magnet:?xt=urn:btih:5AC0B6E291F22B3CD2AE30B0B1A53C911FAAC498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PdfSAM - бесплатная и простая в использовании у
 ```bash
 magnet:?xt=urn:btih:A0EB4C6BECDD0CA39E822834369C88BFD89BAF0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

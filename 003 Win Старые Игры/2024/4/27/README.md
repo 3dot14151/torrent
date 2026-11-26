@@ -19,8 +19,7 @@ Darklight conflict (1997) [Ru] (1.0) Repack Pilotus
 ```bash
 magnet:?xt=urn:btih:23FD3DBE9DA042158B8A820696E0EB8908C90FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

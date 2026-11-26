@@ -19,8 +19,7 @@ Iggy's Egg Adventure - приключенческий платформер о 4-
 ```bash
 magnet:?xt=urn:btih:66863E7D701C984DE5569A65206378B87D4962CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

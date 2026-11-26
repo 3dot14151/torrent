@@ -22,8 +22,7 @@ American Jetset - Cat's Got Your Tongue (2022) [FLAC|Lossless|WEB-DL|tracks] <Ha
 ```bash
 magnet:?xt=urn:btih:B0A6800A4F0A2DF06835BD68DDCDD42781D7509D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Agathodaimon - The Seven (2022) [FLAC|Lossless|image + .cue] <Melodic Black Meta
 ```bash
 magnet:?xt=urn:btih:D2665959595EBAE22FDAF3E4BC4D7EE818B4DA45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Woorms - Slake (2022) [FLAC|Lossless|image + .cue] <Sludge Metal, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:00D5858FB3D04133E12A39D3E6554DAE46AF2636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Simple Plan - Harder Than It Looks (2022) [MP3|320 Kbps] <Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:1606F44A78B15E9990632D136360CD3BEFDCF305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Secret Sphere - Liveblood - The Studio Session (Live) (2022) [FLAC 2.0|48/24|WEB
 ```bash
 magnet:?xt=urn:btih:4A633ED89571B670339670761D7C854EC7A35C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Conception - State of Deception (2020) Deluxe Edition, 2022, Conception Sound Fa
 ```bash
 magnet:?xt=urn:btih:6ED28187A6A6491B5258DDB5EA162C6B8EF71E28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Three Days Grace - Explosions (2022) [MP3|320 Kbps] <Post-Grunge, Alternative Ro
 ```bash
 magnet:?xt=urn:btih:45147C665E9B95054436837ED467569F12E9B8F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

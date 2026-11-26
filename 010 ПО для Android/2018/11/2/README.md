@@ -22,8 +22,7 @@ Agenda 2018 Pro v5.16 [Ru/Multi] - Простой ежедневник
 ```bash
 magnet:?xt=urn:btih:D84BBA35605259154467ECB8D0A58746957F5DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Greg Dulli - Amber Headlights (2005) [FLAC|Lossless|tracks + .cue] <Indie Rock, 
 ```bash
 magnet:?xt=urn:btih:7C8C63E1D320A507283CDD8DC1612343329622E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Greg Dulli - Random Desire (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 ```bash
 magnet:?xt=urn:btih:B3DB5BBD0FE02D9DA87746AE32923851547874EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Straight Line Stitch - The Fight Of Our Lives (2011) [FLAC|Lossless]<Metalcore /
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ PROMO Ундервуд - Бабл-Гам (2011) [MP3|128 kbps]<Русский Р
 ```bash
 magnet:?xt=urn:btih:894380877F5B9AB31E7F0179F93B2FD4610A9485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

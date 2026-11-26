@@ -19,8 +19,7 @@ ImageMeter предоставляет инструменты, которые п�
 ```bash
 magnet:?xt=urn:btih:57830580CD8A92396C22B38C8959F7BC0C5D088B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zaycev.fm - приложение онлайн радио, которое отк�
 ```bash
 magnet:?xt=urn:btih:9214D83652E2D1B46A4C5408CE7B9AC9BC408EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE9AF4A7D2442287CD8EC267B8B577C2B93A11CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31275C7D1B43549385FEB5996790FB824D4962E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ WiFi Analyzer v4.6 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:31B5DD2D028E9274FEBB4288BC97A92596EF3FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

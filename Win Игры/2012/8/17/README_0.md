@@ -19,8 +19,7 @@ Time Mysteries: Inheritance / Тайны времени: Наследие (P) [R
 ```bash
 magnet:?xt=urn:btih:A188E89FB61E52454AABBEEB3DDF556C51FDE491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Past: Realm of Ghosts Collectors Edition / Призраки прошло
 ```bash
 magnet:?xt=urn:btih:864981D04D59C5F6B505D2AAC131DFED519BC97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Experience 112 [Ru/En] (RePack/1.0) 2008 | Sash HD
 ```bash
 magnet:?xt=urn:btih:93B9CF9B25FC7CECFF6105054EED45A84581FB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

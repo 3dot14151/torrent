@@ -22,8 +22,7 @@ A4 Любовта, която остава(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:4BDA3403F6CAB1454C51DBB792713612209758C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Stop, Baby, Stop(   Читать дальше...   )Жанр: Synth-pop, Clas
 ```bash
 magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

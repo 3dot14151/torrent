@@ -19,8 +19,7 @@ Knights & Dragons - игра, созданная автором "Pierwolf" с и
 ```bash
 magnet:?xt=urn:btih:D2D88327D36DA1F16DA146444F0FAAAEE457C2D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ S.T.A.L.K.E.R. Call of Pripyat Mobile v0.06 [Ru]
 ```bash
 magnet:?xt=urn:btih:254394E3821538C350B7D867B075DDBB1A2369CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

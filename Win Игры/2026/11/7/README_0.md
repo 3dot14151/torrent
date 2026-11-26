@@ -19,8 +19,7 @@ Remothered: Red Nun's Legacy (2026) [Ru/Multi] (74e0052.5/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:85BA8D546320826B9DB4FA1802A8A317CA8B0A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

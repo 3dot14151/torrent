@@ -19,8 +19,7 @@ Wise Hotkey программа от известного разработчик�
 ```bash
 magnet:?xt=urn:btih:5C2EDDC12B5EEC3E61BC0CC30ED06DEDA9ADE7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

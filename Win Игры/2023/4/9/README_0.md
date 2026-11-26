@@ -19,8 +19,7 @@ Everspace 2 (2021) [Ru/Multi] (1.0.33479) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:5D997AD84F0FC92EBB482C319D69D1B576A2FE87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Beyond Contact – это симулятор выживания в открыт�
 ```bash
 magnet:?xt=urn:btih:51A8DD934416FD9ED6423000BE251B9D22146124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

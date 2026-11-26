@@ -19,8 +19,7 @@ Ominous Objects 4: Lumina Camera / Зловещие вещи 4: Камера 'Lu
 ```bash
 magnet:?xt=urn:btih:69D5C3B40BCD2631629069C59F556E62CE5D9968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ominous Objects 5: The Cursed Guards / Зловещие вещи 5: Прокля
 ```bash
 magnet:?xt=urn:btih:0D1D0DD19F3296E73BD655E17A8F089E0242A600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fairy Kingdom 2 / Сказочное Королевство 2 (2017) [Ru] (1.0) 
 ```bash
 magnet:?xt=urn:btih:A45E5EE1B0FA097A2A6ADF7B0441C3C78B8722F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sheltered (2016) [Ru/Multi] (1.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5640120E1186862887231A4C823BCEB9C1EEAEFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Castlevania: Lords of Shadow - Антология (2013-2014) [Ru/En] (1.0.2.9u2
 ```bash
 magnet:?xt=urn:btih:11E8F0A896748F5E209E68FC4E199BD92B49B7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Lara Croft GO предлагает довольно необычный взгл�
 ```bash
 magnet:?xt=urn:btih:DA3A25A2ABEAB6B1E05D325FB56C85A7979D1199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

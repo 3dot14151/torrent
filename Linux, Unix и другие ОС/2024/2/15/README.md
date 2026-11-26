@@ -21,8 +21,7 @@ FreeBSD - это современная операционная система 
 ```bash
 magnet:?xt=urn:btih:AABA82A154BC9DE64BDE692271FF6A587A823C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

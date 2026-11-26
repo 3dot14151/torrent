@@ -22,8 +22,7 @@ Feyza Erenmemis - I'm New (2000) Yonca Music [FLAC|Lossless|tracks + .cue] <Voca
 ```bash
 magnet:?xt=urn:btih:3908DB0930010C3071F15B65364ACD2CF19D30A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Nørbak (Norbak) - Macula (2017) Warok Music [FLAC|Lossless|WEB-DL|tracks] <Tech
 ```bash
 magnet:?xt=urn:btih:7906888634EEB74DF6C6057D2ADC315975DA94A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - Alter Ego Trance Vol. 22 (Compiled & Mixed By Jonas Hornblad) - (2018) [MP3
 ```bash
 magnet:?xt=urn:btih:4F0E6855E72A3197B4C66997716A2E152D967894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Весенний марафон на Europa Plus (3) (2018) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:8C37496AE2E11519BED99AD3E13E0958CD9632B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Весенний марафон на Europa Plus (2) (2018) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:787061CC05D37D06095F72BDF36139801BD2B966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Bradley Sean Alexander - Lowered Expectations (2018) Polar Sea Recordings [FLAC|
 ```bash
 magnet:?xt=urn:btih:19B184F55BD1DD2C64C8E7A05E37E6BBAE1A9B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95AF7C7484C86100FE6D0ED02914E474D74470B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Экспресс русских хитов на Hit FM (3) (2018) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:7727824BF74356AE2C9FCCBF011D46C88F2E7851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - Aly & Fila - Future Sound of Egypt 543 (2018) [MP3|320 Kbps] <Trance,Uplift
 ```bash
 magnet:?xt=urn:btih:136B17445E1E72DBF64B232AEB3462A595E5BDB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBE888650A097B5B37C994F423BEA1BB4CA35BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Erik K Skodvin & Rauelsson - A Score For Darling (2018) Sonic Pieces [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:D7AEEDDFF1F81E4B98F6789C95803F741708551E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ VA - Весенний марафон на Europa Plus (2018) [MP3|256 Kbps] <П�
 ```bash
 magnet:?xt=urn:btih:21C7C66E5282B5392A556F62C15A5D11CEE8144F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ VA - Экспресс русских хитов на Hit FM (2) (2018) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:6673273DED0EABF60DA1AB112261F0085C08BF6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ VA - River Of Love (2018) [MP3|320 Kbps] <Pop, Lyric, Romantic>
 ```bash
 magnet:?xt=urn:btih:786F54063D76B9CEEDD2B601221DF39DA4B4E40C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ VA - Весенний марафон на Europa Plus (4) (2018) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:0BB089B64D1E4F964525CAF8A032DE7D3BFDAC20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E99D182785FFF67EA84FC217E8BEF6A948163D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ VA - Экспресс русских хитов на Hit FM (4) (2018) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:C0ADA8082777214906C38D0A3E5417902785EFF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:DD020DC215A80A3B0E29AD8FC5E5715EE8CE214E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ VA - Экспресс русских хитов на Hit FM (2018) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:C020E4347FC4728DEC0C41C374EB680BE771CC4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F81D923CC61A59571C4BA2F0293C4C201C6F8DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ CocCoc Browser - браузер, который является продукт�
 ```bash
 magnet:?xt=urn:btih:C1ECEADE2F54FC76F5605A9E844ADCB46DB45D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:690C8C44C5BFEBAB2F726013DFCF8B08028E064F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ VA - Pineal Land (Compiled by Younion) (2018) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:65798BA40DFAB6B518A94C3F2035F8FD3A69D9C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ VA - For Your Disco Pleasure (2018) [MP3|320 Kbps] <Italo Disco, Pop, New Genera
 ```bash
 magnet:?xt=urn:btih:1590A0DE51C8D9CF71D46DF83164E0CBCC292A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ Saturn EA1 - Magic Fly (1977) LP [MP3|320 Kbps] <Electronic, Space-Disco>
 ```bash
 magnet:?xt=urn:btih:CF663DB186B87763D1F44CCE6D5D6C0AB249C131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5932CCAB99F326BA9A8F1295F4BCB964D9D4F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

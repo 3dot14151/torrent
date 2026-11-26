@@ -22,8 +22,7 @@ Pain - Coming Home (2016) [FLAC|Lossless|tracks] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:D6E1921C3CCA6E598151CD489F8D3DDFB9FC51DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

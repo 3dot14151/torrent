@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EA51C6BE22C1BC55B5027BA69255C89EB67A9E00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Windows XP Pro SP3 VL Ru x86 by Sharicov (v.19.06.2017) [Ru]
 ```bash
 magnet:?xt=urn:btih:1040547748DDB90BB282D7FBCA35BC057A511DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Windows 8 - Это операционная система Windows, переос
 ```bash
 magnet:?xt=urn:btih:A826FEDB37DC23783E7F9693886EAFCB54E22CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Windows 7 - Оригинальные образы от Microsoft MSDN [Russian]W
 ```bash
 magnet:?xt=urn:btih:AF4B46A9B9C7AC4A55193D50954AC2A385D14BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

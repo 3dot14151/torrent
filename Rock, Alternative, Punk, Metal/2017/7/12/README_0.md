@@ -22,8 +22,7 @@ Saeko - Above Heaven, Below Heaven (2004) [FLAC|Lossless|tracks + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:CF5C835319C551A7212CA6F31C117350486CF07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Streetmark - немецкая краут-рок группа, основанна
 ```bash
 magnet:?xt=urn:btih:391DD7396E44431D43AF71F3E857BCF4AFA3FFC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

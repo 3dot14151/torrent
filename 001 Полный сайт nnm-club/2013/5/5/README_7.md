@@ -21,8 +21,7 @@ Torchlight 2/II (2012) [Ru/Multi4] (1.25.5.2) RePack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:7B989AF847AB3C7CA354E5EB477BC7A087501DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Windows7 Ultimate x64 SP1 The DNA7 Project 1.7 [Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B9FC1AD067DB4A1D5D0F3E6C7BA47F01865B732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Microsoft Windows XP Professional x64 Edition SP2 VL RU SATA AHCI IV-XIII. Сб�
 ```bash
 magnet:?xt=urn:btih:9FABD9E113F18ED3B1051D46E957A2B9D19CF0F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Company of Heroes (2013) [Ru/En] (2.700.0) RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2F923EF1EEFEFF347EF471FF5D0767B6085E1799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

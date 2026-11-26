@@ -19,8 +19,7 @@ Necrosmith (2022) [Ru/Multi] (1.3.0.285) License GOG
 ```bash
 magnet:?xt=urn:btih:8308296F56F0B65C0A7B10758739C5BB6C7E3D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Total War Saga Thrones of Britannia – самостоятельная нез�
 ```bash
 magnet:?xt=urn:btih:5D0B2A850C3B219D8C0FB377B2F66E3427BAC4BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Adeptus Titanicus: Dominus – пошаговая тактическая стр�
 ```bash
 magnet:?xt=urn:btih:E5D38FF0FB7A6704C7575308B36443A705CC745A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

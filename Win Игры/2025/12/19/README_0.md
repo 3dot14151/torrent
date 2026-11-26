@@ -18,8 +18,7 @@ Netherworld Covenant - это тёмная фэнтези 3D изометрич�
 ```bash
 magnet:?xt=urn:btih:DC4F2F9A8A40781EEB81E318AAB4D4B6723C6A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

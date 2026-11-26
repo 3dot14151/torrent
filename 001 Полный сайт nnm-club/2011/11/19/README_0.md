@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5B7C019802E685ECBDE8C24E81AF0A13E50877A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7382B7C6F8129208F1349C0CED39E211C42573D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Roger Shah - Music for Balearic People 184 (18-11-2011) [MP3|256 kbps]<TRANCE>
 ```bash
 magnet:?xt=urn:btih:14559CE6C6EF7A2583BB7F0116F3177F9E5B05A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ BlueMonk - Enlightened Love (2011) [MP3|320 kbps]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:41A786FC124D3E0532491F5C549CF57AB928C103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Uncreation - Burning Blood (2011) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:9259C6419A6B3C372B9146A2A41913E399851A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ VA - XXXL Super максимальный Спецвыпуск русский (20
 ```bash
 magnet:?xt=urn:btih:41BF10AEAF3BC92A74A748A6115ADE0AEA244EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ VA - Fireworks Vol.7 (2011) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:1329A10B6C1A0FD51767D30A1AE90B38D686D87D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ What can I say? If you are a fan of ATV or MX then this series is a must have! G
 ```bash
 magnet:?xt=urn:btih:A4742D67426B666E159ACD40E2908612C1A59101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ Girls Wallpapers 21
 ```bash
 magnet:?xt=urn:btih:CD7FDFF49005BFF434D600AF9E69CE012D31788C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C190378172B0B05C84BC85894D5B9A112C0BD7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ Continuing the popular series from Fleshwound Films, this highlight video shows 
 ```bash
 magnet:?xt=urn:btih:D88E98E600B10DC93FC589AD8C51B7CC4ED5A1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ VA - Whisper of Consciousness Volume 6 (2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:9AF2AEA420A5A86CBA84275E6DD471B76CFB8666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00786A97213D8268C5404C67907EEDE5173CC88B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ Take a trip with Fleshwound Films and Crusty Demons of Dirt as they go off the m
 ```bash
 magnet:?xt=urn:btih:CE5F7D3990637B4FCEE4356F8D05C9A6EC486421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ Girls Wallpapers 22
 ```bash
 magnet:?xt=urn:btih:B4DD35649BBCC56C17E474C1F352934DADA0E0D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34397ED890E0484AEBD1A7E4130C1B11FE499108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A80A8E91993CDB75784EF798626FEAF8EF07FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ Craig Pruess & Ilyana Vilensky - Angel Of The Earth (2008)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +546,7 @@ Victory - Don't Talk Science (2011) [APE|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E889EBC41E5116EA495E34124CBC591EA99895B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ VA - Top Dirty Dutch House Music (2011) [MP3|320 kbps]<Dutch House>
 ```bash
 magnet:?xt=urn:btih:26078EAD591B0FF21C7346CE3B159441B38CF9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +639,7 @@ Kottak - Attack (2011) [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +671,7 @@ VA - Trance 2011: The Best Tunes In The Mix (2011)
 ```bash
 magnet:?xt=urn:btih:FD40E622B2BD38D229DA6E2D8CB7CB2E05DA7A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15D0CE4271D3E9B84467429B52CD8C2A2FC8B3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:557B6D3FB823810804DC80FB4FA0AAEF8678DC5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ Dj Tapolsky - Time2Bass 043 (16.11.2011) [MP3|224 kbps] <Moombahton, Drumstep, D
 ```bash
 magnet:?xt=urn:btih:9EA9E4F0F03146B36ABA66237AB9B904BD318A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

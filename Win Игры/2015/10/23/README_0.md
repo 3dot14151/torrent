@@ -19,8 +19,7 @@ The Hunt for Red Panda / Охота за Красной Пандой (2015) [Ru/
 ```bash
 magnet:?xt=urn:btih:E217AFDDE6A9383E29DDA139540A98800CDB0B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Coast Guard (2015) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:E577EDC2799BF4E2A8F9E98850DB92CA9AD10E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ HOMESTYLER - это онлайн-инструмент для дизайна ин
 ```bash
 magnet:?xt=urn:btih:0C38BCA543CE6F593076EABFE14CEAA4407266DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F06C1D2412819CF014F21DD6A396A2027CB3FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

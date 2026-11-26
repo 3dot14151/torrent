@@ -22,8 +22,7 @@ A4. Veins (3:57)(   Читать дальше...   )Жанр: Hard RockПрод�
 ```bash
 magnet:?xt=urn:btih:6F3CE59B9AFAE8E5F77E1AC279E587E1EC22CE97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

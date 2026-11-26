@@ -22,8 +22,7 @@ A3. You Kill Me With Silence
 ```bash
 magnet:?xt=urn:btih:18082DCA154E3E56020A22A9E8D08151F6A982C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Korean Girls 3:33(   Читать дальше...   )Жанр: Europop, Synth
 ```bash
 magnet:?xt=urn:btih:DE1F8ABE11E698A8EC725E9E8D7186EA9F99343C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ ABBA - The Visitors (1981) [FLAC |192/24|image + .cue|Vinyl-Rip |Lossless] <Euro
 ```bash
 magnet:?xt=urn:btih:2DCC71031D99D59963D0DC92C96B3C895D0D8313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4. Scum (3:16)(   Читать дальше...   )Жанр: SynthpopПродо�
 ```bash
 magnet:?xt=urn:btih:6800C77B2BEB33CD758A625001D679E935D41D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

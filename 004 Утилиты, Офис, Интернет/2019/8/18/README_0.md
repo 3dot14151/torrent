@@ -19,8 +19,7 @@ UltraDefrag это мощная программа для дефрагмента
 ```bash
 magnet:?xt=urn:btih:3E2D73A815D3C2255A2DD84987DD75A9C6EECE3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

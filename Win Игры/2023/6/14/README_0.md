@@ -19,8 +19,7 @@ Evil West (2022) [Ru/Multi] (0.48) License GOG
 ```bash
 magnet:?xt=urn:btih:8A87453AF87D830403AA73DB705D52FEEF232436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Project Lazarus (2023) [Ru/Multi] (7.0) Scene DARKSIDERS
 ```bash
 magnet:?xt=urn:btih:A4248A534DE3DB94FF80AB23F887DD4B6308C504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Contra Anniversary Collection (2019) [En] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:562C3A009E876CF8655B345D57EA321325B9E94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

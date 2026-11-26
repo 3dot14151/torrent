@@ -23,8 +23,7 @@ The Atomic Bitchwax - Gravitron (2015) [MP3|320 кб/с]<Alternative Stoner/ Hea
 ```bash
 magnet:?xt=urn:btih:2D80D8B2AB26A130FE79AAF5968D8BD6CCD358F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Orgy - Talk Sick (2015) EP [MP3|320 кб/с]<Alternative, Industrial Rock, Synth
 ```bash
 magnet:?xt=urn:btih:751B6FE7C1956D17E85406DAC7537ADEC676899D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

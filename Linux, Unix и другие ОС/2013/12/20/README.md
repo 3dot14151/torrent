@@ -23,8 +23,7 @@ RFRemix Live (Russian Fedora Remix) 20 Heisenbug [i686] 5xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:5791196212351B89E6A7A8FC0A10105A010C9AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Kubuntu 14.04 Alpha I [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:667E8F1C1CBD5174F0063875A8C5D2483356C1EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Xubuntu — это разрабатываемая Canonical, основанна�
 ```bash
 magnet:?xt=urn:btih:32171B1A1FA846D7457FCFC255004C81EEB78C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

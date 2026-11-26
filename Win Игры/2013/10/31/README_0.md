@@ -19,8 +19,7 @@ Queens Tales: The Beast and the Nightingale Collector's Edition (2013) [En] Unof
 ```bash
 magnet:?xt=urn:btih:5D945DCE9D0298B0C0ABAAB34B605F1EC6ECA5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Eleusis - это приключенческая игра от Nocturnal Works с
 ```bash
 magnet:?xt=urn:btih:383C835D9FE65C1BF09E28F83F13704751A787C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Battlezone (2017) [Ru/Multi] (1.08/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:5D8B1066D6599923B4DE5B4CA0774E669303C648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Wizard’s Pen (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:A8A21825960F1BBC14905E4520AC6147322B907E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Keepers of Dryandra / Хранители Дриандры (P) [En] 2011 | Fyrrio
 ```bash
 magnet:?xt=urn:btih:EF826225A730821B8C9631EC602316E5D1DE140A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Build-In-Time / Построй-ка века (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:FDC82CDBCFCE880A63E895EC5C898F40AF8D14D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ World Riddles: Secrets of the Ages / Мир загадок. Тайны врем�
 ```bash
 magnet:?xt=urn:btih:19C7F0874BAF9BBEFEDDA2667A504DE3417E52DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DeathSpank + Thongs of Virtue + The Baconing [Ru/En] (RePack) 2010-2011 | -Ultra
 ```bash
 magnet:?xt=urn:btih:E20BB7A11ADE0E57219316D1B7B3BFDEC938F4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

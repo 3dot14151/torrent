@@ -23,8 +23,7 @@ Whyzdom - Symphony For A Hopeless God (2015) Japanese Edition [FLAC|Lossless]<Sy
 ```bash
 magnet:?xt=urn:btih:DA7B75E6C8CC37DCF3E318301F5EE1D09A1259B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B966BBEC878CE1EBC66F800A7E377E8CD5C1CB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Cain's Offering - Stormcrow (2015) Japanese Edition [FLAC|Lossless]<Melodic Powe
 ```bash
 magnet:?xt=urn:btih:AAF008F3C16FB6CCD6283DF973357BB4D6CEC003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Arch Enemy - Stolen Life (2015) Japan Tour EP [FLAC|Lossless]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:54C5E5B7D1DE6EBF870620E753E71C52907A0E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Celldweller - The Imperial March (2015) Single [MP3|320 кб/с]<Industrial Meta
 ```bash
 magnet:?xt=urn:btih:D4C6ED58556C9F970FFCB6559F92326CD1FF8861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ The Offspring - Americana (1998) Happy 10 Bonus Year [FLAC|Lossless]<Punk, Rock>
 ```bash
 magnet:?xt=urn:btih:E412906B19A2F093C6F1F5EBF15E4E78C4B05DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

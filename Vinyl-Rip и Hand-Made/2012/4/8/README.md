@@ -19,8 +19,7 @@ Enigma - 8 альбомов (1990 - 2008) [LPCM 2.0 44.1/16 |DVD-Audio (CD-Audio
 ```bash
 magnet:?xt=urn:btih:AFC974C56474DAF1ED6C475EEEFA34D94CEE867E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

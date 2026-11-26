@@ -28,8 +28,7 @@ Brutal Hand - Brutal Hand (2004) [FLAC|Lossless]<Heavy/Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:DD925ECD923372930EF76CFBA71D0CBDCAD87E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ December People - DP3: Unauthorized Holiday Classics (2013) [MP3|320 кб/с]<Cl
 ```bash
 magnet:?xt=urn:btih:47F562423075FFB0E6095619BDBCF3AFE03C63F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Refraction - Fossils (2013) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:CE92FAF4553B2CFC6DB4D4A18D51150B75DF4CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA-DJ Sakin Presents: - Club Trance Future Edition Vol 1 (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:D20F37CB0F2EA646255BB4D7D9F17785C784C892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - Evening Tranсе (Compiled by Alex3107) (2014) [MP3|320 кб/с]<Tranсе>
 ```bash
 magnet:?xt=urn:btih:A34B1176393B82A35596FB19D8C3809A5F209FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ VA - Progressive House The Annual 2014 (2013) [MP3|320 кб/с]<Progressive Hous
 ```bash
 magnet:?xt=urn:btih:5FA0EE219A20CFCA148AB5928F9C04EA587192C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ VA - Macarize presents: The Yearbook 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:9862B02CD9A15D8BF2BCE7ADBCADBBCFFDC37D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Switchfoot - Fading West (EP) (2013) [MP3|320 кб/с]<Alternative Rock, Christi
 ```bash
 magnet:?xt=urn:btih:F8DB9EBE8C576756665F8CA0E222CBF9289D3994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Stratageme - Highway (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5050E2C18CB81BD7BC4B18DB605176707561E084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ VA - Ultra Worldwide - Ibiza (2013) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:654E96921C3875EC554C596DFC3C4CCC49BC0D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:404147EEA53684494A8ACA1B8A488F92E4B3E1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Mechanical Organic - This Global Hive Part One (2012) [FLAC|Lossless]<Progressiv
 ```bash
 magnet:?xt=urn:btih:65C6225D87EAF5E373200E7C8BF62C08E06F00A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +420,7 @@ Hawklords - Dream (2013) [FLAC|Lossless]<Psychedelic, Space Rock, Progressive Ro
 ```bash
 magnet:?xt=urn:btih:EAA8C361F6EC712BF490CE1F6128B52AE7032A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +454,7 @@ VA - House Music Pause Vol 2 (2014) [MP3|320 кб/с]<House, Deep House, Soulful
 ```bash
 magnet:?xt=urn:btih:C90408FFEA7E00ACE97A1B59B34FC29468892573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +488,7 @@ Synthetic Epiphany - Rebirth (2013) [FLAC|Lossless|WEB-DL]<Dubstep, Future Garag
 ```bash
 magnet:?xt=urn:btih:155DD354E877CA9EEE2CE02F4F812F863774895E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED6D43409E11BDBC85632C746E4C9C1B814C72B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8298AF7908E24170216B1A6EEA85D15EB7D8EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +573,7 @@ VA - Time Warp (Compiled By DJ Abhay) (2013) [MP3|320 кб/с]<Psytrance>
 ```bash
 magnet:?xt=urn:btih:0B7527BC4893D9E54760FADA09287C686C1DBA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5007711C0FCF29FAED86B9DC7D8623898092643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27CC796330A85F692335AB60EA1D646D35744D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +659,7 @@ Markus Schulz - Global DJ Broadcast - Classics Showcase (2014) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:0BCB5DC6C60D0CB073F3747329ACA59BA6D40BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +684,7 @@ Andrey Malinov - A Walk In The Sky(Mix) (2014) [MP3|320 кб/с]<Chillout, Ambie
 ```bash
 magnet:?xt=urn:btih:E4836E9168AC8F51032CF29ED732A03B9093C891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +714,7 @@ Stuff Smith and ... - 3 альбома (1995-2005) [FLAC|Lossless]<Swing, Bop, E
 ```bash
 magnet:?xt=urn:btih:7C4BEFFCEE70108F52F2B45DF61B16DAD6151C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +748,7 @@ Andy Sheppard, Michel Benita, Sebastian Rochford - Trio Libero (2012) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:0D7EF0FB354B4F1A27F1E0A2BD9350800618CC7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -797,8 +773,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D11FACA0455D6FC49C861FCD77641920A7000F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -823,8 +798,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA60A475B13B7DFA99E62015286AB8881F94C939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

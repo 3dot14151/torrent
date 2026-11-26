@@ -18,8 +18,7 @@ Cisdem DataRecovery может помочь вам восстановить це
 ```bash
 magnet:?xt=urn:btih:7951B6C1AD34B70EBAC1CE10D391F06B8D84200E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Joe Williams - Presenting Joe Williams And Thad Jones & Mel Lewis Jazz Orchestra
 ```bash
 magnet:?xt=urn:btih:ACB1AE8F25BD59AFACD3E03FD348B2EB049BAEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ AnyMP4 MP3 Converter может преобразовать почти все в�
 ```bash
 magnet:?xt=urn:btih:23F5222E7BB3BE3323EC730F758365EE5427FA74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

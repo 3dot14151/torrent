@@ -19,8 +19,7 @@ Viking Brothers 5 / Братья викинги 5 (2023) [Ru] (1.0) Unofficial [
 ```bash
 magnet:?xt=urn:btih:C4ADA969B5A63570868D3F3F1FDAB168ADDE1E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ River Tails: Stronger Together - это яркий и захватывающий
 ```bash
 magnet:?xt=urn:btih:1D1E8BE4AE0A26DA04DD823B5599A1C052EA2205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

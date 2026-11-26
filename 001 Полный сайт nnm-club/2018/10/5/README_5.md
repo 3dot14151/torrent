@@ -22,8 +22,7 @@ The Four Freshmen - Greatest Hits (1993) Curb Records [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:EC217A6CF2B5F20BBA59D907F181B11FE116EF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:C0AE77833D39B8308D602229F405837DF167EDEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Mortido - V (2018) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:C5A0EF220860AE92823F6249D6D44684579680A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ PullTube предлагает Вам (   Читать дальше...   )Тип
 ```bash
 magnet:?xt=urn:btih:D991B139167001335028A3A576BD5CB5B2C2AC70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ TaskPaper - простое приложение для создания и ве�
 ```bash
 magnet:?xt=urn:btih:2DA04A7CBCB5BA9245FE779D1383FD7C5DCD311C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ John Scofield - Bar Talk (1980) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:8A6E7D4C43CA27ECB80B636F6597CB5FF3F91F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Danny Oh Guestmix:
 ```bash
 magnet:?xt=urn:btih:3300978969575E255F1A4A15988D6AE5682313E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - The Electric Institute (2005) New Religion [FLAC|Lossless|tracks+.cue] <IDM
 ```bash
 magnet:?xt=urn:btih:58B42162353AABDF987798482A124E96E6BC936F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Story Untold - Waves (2018) [FLAC|Lossless|tracks + .cue] <Pop Punk>
 ```bash
 magnet:?xt=urn:btih:852C42183A0BB01A9B2EB923F6BC9FE24A1E685C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour Tokyo (2018) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:58EF21F8AC0ECCCA02622FCEBBD62A7D00C16556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8DFDBC03BAFC7944659360715B25EB3EAAA96C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E8FFB3AEC5A1AB79BA8537825A153E15EC1CE42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ PowerTunes – программа, позволяющая пользовател
 ```bash
 magnet:?xt=urn:btih:05A93F4C1288432DAF25608740EA8F1C340BBBD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F433E5364E094FCB83B2C19073B8F8296733B26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Euphoreon - Ends of the Earth (2018) Japan [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:85FE4CDAA9CBD2319F3AA3835AEB4BE4B5979F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ VA - Incepto Deep Hybrid (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill
 ```bash
 magnet:?xt=urn:btih:BC1DDF714E933996D90AC7F3ACAAC25DFC9F2A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ VA - Black Hole Recordings: Amsterdam Dance Event (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:DD5551F7AB715B04353DEBD263D03B3334EA5F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ Compiled by ZeByte01. Redders - Vintage (feat.MC DRS) [04:54]
 ```bash
 magnet:?xt=urn:btih:4F2FDC013596A02FD7381019149F58679993DE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ Carol Lloyd - Score (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:E6F576A66C4EED2946D1B59D48D832733CE477D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ Paris Match
 ```bash
 magnet:?xt=urn:btih:38CC534CF98BB5D7EF9ACBEEAC4F5C117176E018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Hostbuddy это самый простой способ для управлен�
 ```bash
 magnet:?xt=urn:btih:BFA21886613DDF9911A2DD20A7251B2F10152222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Redemption - Long Night's Journey Into Day (2018) Limited Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:952FCD318F51E14C850BBA4680DA4826AE59ACC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB8FE8DE3B9BD654D83E09391842FC99278514D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ Abdulrahman Zaibak - The Current (Instrumental) (2017) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:D1EA071513857301A07846CE4E47F0645E91B6CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:DE5ADB5D21F2D7270CF968214C42295C485EC6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BD719473405CBDE94943FC7183A81734FC537E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

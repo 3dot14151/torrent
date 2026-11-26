@@ -19,8 +19,7 @@ WinSnap позволяет делать скриншоты экрана мони
 ```bash
 magnet:?xt=urn:btih:D8C896FE012EF1CAEB7DDC4F524258909193169D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ R-Wipe & Clean - программа от разработчика популяр
 ```bash
 magnet:?xt=urn:btih:D6EB419B1A2E8053D83D1ACACB3BA030824EC320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Worry Blast - .44 (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:291E01D82F5C6312E14943EBB4B27421C9DFEBEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Label Society - Grimmest Hits (2018) [FLAC|Lossless|image + .cue] <Souther
 ```bash
 magnet:?xt=urn:btih:EFCCC89E27CF9E7D13A5F058E926CF331557C7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Somali Yacht Club - The Sea (2018) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, P
 ```bash
 magnet:?xt=urn:btih:0FC1063192C523E579AF162E99638A4F92AE1545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Maschine (Dieter Birr of Puhdys) - Neubeginner (2016) [MP3|320 Kbps] <Alternativ
 ```bash
 magnet:?xt=urn:btih:5A6CF1B803BBDEDA566F0C4FB00095E8F6838395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Animal In Me - Helping Won’t Help (2017) [MP3|320 Kbps] <Post-Hardcore, Fe
 ```bash
 magnet:?xt=urn:btih:7E907CC6F1A6F49254CAB26BDD5934F9C312219B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC97B7621B9D1E8B465A73047AAE033FA9CE5289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Motorhead - Under Cover (2017) Japanese Edition [FLAC|Lossless|image + .cue] <He
 ```bash
 magnet:?xt=urn:btih:2AAFFDC9E5CC88A8038C67776610A36FF70F9EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Machine Head - Catharsis (2018) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:0EDF6BA99B790E2A7E46D0F2AB5641C855376E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

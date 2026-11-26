@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D3445006AC3E152C812032A033383B32F4B84779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zaycev.net v8.3.0 Mod by Dymonyxx, Timozhai  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D029592E1C1263829C0C3FB0D789AE85AB74FF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

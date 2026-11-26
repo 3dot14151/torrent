@@ -19,8 +19,7 @@ Reignbreaker - динамичный roguelike, действие которого
 ```bash
 magnet:?xt=urn:btih:27EE9A85DF7C21C2AB6D2C38FA1C898C38821DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Echo Point Nova (2024) [Ru/Multi] (1.41) Repack Let'sРlay [Digital Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:D6A4BA24EC383729D72871365ECAF29AD9FFE4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.2.75454/dlc) Repack Decepticon [Deluxe
 ```bash
 magnet:?xt=urn:btih:857A05B1FD79B4A873266AA26BA874373288B967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Entropy Survivors — «роглайк» со стрельбой, где вы у
 ```bash
 magnet:?xt=urn:btih:9877FCD81AD6A97382384BD815D6AE2129B5E690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dying Light: The Following (2016) [Ru/En] (1.50.0/dlc) Repack Other s [Definitiv
 ```bash
 magnet:?xt=urn:btih:A9D77C79759615FBC93CD43F2B0AAAD8F325046B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Forever Skies – это нетипичное выживание, в мире п
 ```bash
 magnet:?xt=urn:btih:EFF221DEE372F00FA132CC6A32703408B614186E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

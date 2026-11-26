@@ -19,8 +19,7 @@ Dragon Ball FighterZ – эпичный, яркий, динамичный и н�
 ```bash
 magnet:?xt=urn:btih:1DBD804EE4BD69D124BC2F139DF1ECC4943EDE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TerraScape позволяет игрокам осуществить свою м�
 ```bash
 magnet:?xt=urn:btih:0811F1BDF6BB92E7492C6934FF531FCA96F5C251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Legends of Amberland III: The Crimson Tower - классическая роле�
 ```bash
 magnet:?xt=urn:btih:C0E04A63CE59653D28CC0E20DA75264419CD3E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nested Lands - это многопользовательская ролевая 
 ```bash
 magnet:?xt=urn:btih:F7707D0AE4F97B7E4A642CBE7933CD6083B11CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Succession of Changing Kings ставит вас во главе корол�
 ```bash
 magnet:?xt=urn:btih:2BDC4C25F791D73813565A55C033AA91F0551D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

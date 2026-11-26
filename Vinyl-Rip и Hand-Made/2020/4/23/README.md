@@ -22,8 +22,7 @@ A2 Nancy (With The Laughing Face)
 ```bash
 magnet:?xt=urn:btih:02336EA0A829CF4CFEE91C33486053D831570B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

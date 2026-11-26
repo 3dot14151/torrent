@@ -19,8 +19,7 @@ Viewfinder – отличное сочетание платформера и г�
 ```bash
 magnet:?xt=urn:btih:8BEC8F96250337E613AFCEEACB4BBA1E34D340CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Affogato - это ролевая игра с уникальной механик
 ```bash
 magnet:?xt=urn:btih:DD0AE6ED59E43E7B0ABA9A6BB43C981225D5A5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

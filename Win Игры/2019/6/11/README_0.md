@@ -19,8 +19,7 @@ RIDE 3 (2018) [Multi] (1.0upd10/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:6C7C7384854F49376EA5457270B042C3E54C8B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ZED расскажет пользователям интересную исто�
 ```bash
 magnet:?xt=urn:btih:68A8E5CFCD0664A9F3362289F10CD3B75DB73BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Day: 40 (2019) [Multi] (1.0/upd6) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B25FD8CF12078D671598013970EB43A0A5F076DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

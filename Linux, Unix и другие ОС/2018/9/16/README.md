@@ -19,8 +19,7 @@ Kubuntu 18.04.1 - новая версия бесплатной операцио�
 ```bash
 magnet:?xt=urn:btih:D03BE69BC3037C696F83AEA30D536A1ED68574A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KNOPPIX 8.2 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:D7E179D9D5B3886F8F3719DF04851000FDF2923B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

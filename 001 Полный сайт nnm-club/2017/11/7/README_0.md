@@ -18,8 +18,7 @@ Soft4Boost Document Converter 5.1.1.661 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:58DD444AAA14DFBC0B594E9D927F55872DA6E288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Fidel Wicked - Emotions (2016) [FLAC|Lossless|WEB-DL|tracks] <House>
 ```bash
 magnet:?xt=urn:btih:897C7E5CF59C7CFA4418756564C3FBC1FC237BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:08E96C0A950F29D350E1A0B2C41EDC21EFCBFBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Raydar - Evil Squad (2015) EP [MP3|320 Kbps] <Electro, Synthwave>
 ```bash
 magnet:?xt=urn:btih:7E91D711D2E0F179E48CA74244F8C255F10E1940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Ori Uplift & Dj Ruby - Uplifting Only 247 (2017) [MP3|320 Kbps] <Trance, Up
 ```bash
 magnet:?xt=urn:btih:A28E395E093C8FF6123493FA9E1FDD88B65FA38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - All Stars: Singles Chart Hot 150 (2017) [MP3|320 Kbps] <Pop, Dance, RnB>
 ```bash
 magnet:?xt=urn:btih:96A7D88F32837F27445DCE1F127D49E0AE169DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Carl Neal - Step into Paradise (2017) [MP3|320 Kbps] <Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:229179CB6709A51C207B8C9FD9B5830D500F4790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:059AF300304235156E420F731C6E7C3462FDB804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE0B48F649D0C0DC0D903454C7292C822BE4C84A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ M-Tracking - Огромный мир (2017) [MP3|320 Kbps] <Eurodance, Eurodisco
 ```bash
 magnet:?xt=urn:btih:DBD30928209160FDFFE62C6943B166E9E6942FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Enslaved - E (2017) [FLAC|Lossless|image + .cue] <Progressive Viking Metal>
 ```bash
 magnet:?xt=urn:btih:FBF2D6E3032459DBB20F8670AE6A3A533B8242F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4717A10A4F14161E7E3962F0B6B7921211BFD427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE8E4704B90193ABFFFD66CEC84547FFD677DCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ PeakHour идеально подходит для мониторинга ваш�
 ```bash
 magnet:?xt=urn:btih:30928F06404D702713E9F5642121DFFE5ED95807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:DBDD03761D5298F8E6231B6B4A26833E865B86FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12034026CF235E75075BA9C32A74F089DAFD2124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ VA - Tender Jazz with Sexappeal (2014) [MP3|320 Kbps] <Vocal Jazz, Lounge, Smoot
 ```bash
 magnet:?xt=urn:btih:88B7372B7891FA2B527C4FE52EC815954D7879F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:8C2EB930566F3BCA798C206D6CE14D047B741B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D16ED46C35F99EE8B62EAD8E99FD281AD636476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Azureus — свободный BitTorrent-клиент, созданный в 20
 ```bash
 magnet:?xt=urn:btih:E310D25696E76C6894EEA6261E4012E5FCA017A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D13AF3F01EAC592C6DBB60023FC248524229EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ Am Tierpark - Cherry Blossom (2016) EP [MP3|320 Kbps] <Synthpop, Electronic>
 ```bash
 magnet:?xt=urn:btih:13A6BC7888FF47C16BC723A0373735B2D62A979B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ VA - Estiva & Temple One - Enhanced Sessions Vol. 1 (2009) [MP3|320 Kbps] <Tranc
 ```bash
 magnet:?xt=urn:btih:442FA34889F66366C3BB54778D1511772103819A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:EBB4894D531AB3FB146455A346DF4222BD77E0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ Any Video Converter Professional - это многофункциональная
 ```bash
 magnet:?xt=urn:btih:166459A8E84B359CFA27C5202B40569971F67385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF85B39169DCB3F90C0EBB1F894E96E06262FC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

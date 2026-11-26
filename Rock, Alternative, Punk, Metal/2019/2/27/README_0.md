@@ -22,8 +22,7 @@ Thornbridge - Theatrical Masterpiece (2019) [FLAC|Lossless|WEB-DL|tracks] <Power
 ```bash
 magnet:?xt=urn:btih:7C71E220E7DC9766DF8AC9996E85DEB7C48BF33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Les 35 Ans De Radio Libertaire (2017) Compilation [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:91133AEB9F917822221113C48466AA33BF12755E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Weezer - Weezer (Black Album) (2019) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:C1385096B982FD4B774B6EC94226DD5650DBE77F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Creedence Clearwater Revival - The Very Best (unknown year) Unofficial Release [
 ```bash
 magnet:?xt=urn:btih:D2F15F8F199C5FC36998CEE7E95E7C281200D1E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Randy Pie - 6 Albums (1974-1986) Collection [MP3|320 Kbps] <Krautrock, Prog Rock
 ```bash
 magnet:?xt=urn:btih:C2C66D327324E2D9E9A162FF3BAAC06D229645A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Eric Clapton - The Best Of... (unknown year) Unofficial Release [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:E054AF6E0D10E2595641F91F6C92021860E20923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Scorpions - Gentle Power (Best Of The Ballads) (2018) Remastered, Unofficial [FL
 ```bash
 magnet:?xt=urn:btih:95B13F17AF60921BE7A59DEAF5DE848FE9B00BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

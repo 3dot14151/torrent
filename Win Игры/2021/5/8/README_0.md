@@ -19,8 +19,7 @@ SKYHILL: Black Mist (2020) [Ru/Multi] (1.2.009/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:55430BAB0C05E04E6813177BAD834A02B5CD67E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Uncertain: Light At The End (2020) [Ru/Multi] (1.6) License GOG
 ```bash
 magnet:?xt=urn:btih:B1D17B35F4C89753B66E0960AC9EE6F3D0215C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

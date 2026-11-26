@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:57AC71AB3E4D71C0A8756D549F378182BBCFDA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ DUCATI - 90th Anniversary (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:8F7BC301E356C9CA2DC4C2A300E536F0FEA9E2DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:ECE2F35472E8929749F35497DC36E9C50FBE1165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Resident Evil 3 (2000) [Ru] (1.1) Repack Kalash49
 ```bash
 magnet:?xt=urn:btih:D06753B2504734CF0A37537DA4C7F1659F909297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6F88D4FF77787F0FEED0D4CF1AA197D7FE43E9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E1DEEF26361C3B0FB0821615E2BB4B168E8D4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEBD1D447C53408AEB71B0162D147510CB895430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ ESET Endpoint Antivirus 6.4.2014.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:38BAA649E5D86EB90FD1528D1C5BC61C8570B74A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ VideoStudio Pro X9 создана для обработки видео и поз
 ```bash
 magnet:?xt=urn:btih:5406E220C90616AA7B5127B18F1064D14054A667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E58579990ED874FACCE1DE42AAC9B1736CD0727B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Navitel / Навител Навигатор 9.6.2526 Full [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A1BBD6A7ACF6A97998E7F59E600EF26FE51C18B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ James Last & Richard Clayderman - Traummelodien (1990) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:9E6A4A5C869A0BD0DD21F8332E0CE8EAAC336D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3987EA2C82AC90297601EDD0A07E95821494DE74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ MIUI-ify обеспечивает плавную, быструю и естест
 ```bash
 magnet:?xt=urn:btih:E67128E8A51D567425933ED724D17831FE944C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:465030E77F02B5144A1CAC83035E915ADDD98323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F89DA13989128504FFAE8ED296C7AF55878F194B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ OsmAnd+ Maps & Navigation v3.8.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6F02D9CB821FA16536D12C02C063D6CF822F5083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Kermania - Kehre Heim... (2014) [FLAC|Lossless]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:2EA5D6AEC1BBA32832BCB85EDF33A0B4F108E4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Jan Rohde and The Adventurers - Jan Rohde and The Adventurers Story (2001) [MP3|
 ```bash
 magnet:?xt=urn:btih:B76B64553599CA3252A8DC9463135B5CB099D167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ The Blue Stars - In Holland (1992) [MP3|320 кб/с]<60’s Guitar Instrumental,
 ```bash
 magnet:?xt=urn:btih:EEFD8BC9A746BDE8747B31F49C9B76D8BB76BC08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Uriah Heep - Innocent Victim (1977) Remaster /1997, Castle Comm./ [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:6410C5987F0963012837655A408E9194E61832EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Brutto - Underdog (2015) Переиздание [FLAC|Lossless]<Punk Rock, Alter
 ```bash
 magnet:?xt=urn:btih:E85F0C56C4EE59C25D4C4FD3B0099E45929ACB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ ZZ Top - The Heaviest (2015) [FLAC|Lossless]<Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0EBAD60F617E34C007C5E49CDFB5EBF425C3163E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

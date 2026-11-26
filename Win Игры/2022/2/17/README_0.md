@@ -19,8 +19,7 @@ Maze Of Realities: Flower Of Discord (2022) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:ACBC73342C2AD7EA564F86BB799C16E59A5C2F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KAPIA (2022) [Ru/Multi] (1.266) License GOG
 ```bash
 magnet:?xt=urn:btih:33A9687241152DC472192D3D94B490CC7C7517A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Scarf - это приключенческая игра, сочетающая г�
 ```bash
 magnet:?xt=urn:btih:A98EB4536C39D401C2FD12D95FD4456A97F8F088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

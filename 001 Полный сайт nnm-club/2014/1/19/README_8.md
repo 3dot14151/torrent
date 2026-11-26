@@ -20,8 +20,7 @@ Carrier Command: Gaea Mission (2013) [Ru/Multi] (1.6.0011) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:8CE13B378245DD2350DDFA75C80E1BE9F8E4B1B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B75C7739D581A3FC77AEC51D9ED8D4865B023DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Atlantis 3:The New World v1.0.3 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4D8CD7CBF012DE28B68B56963117BF674BD03EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B0BF4495A46430833CA1B53D6C93FC57571B2C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD30DBAA6B795FA317C4F82CD42FD63A2D8C69F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Tiffen Dfx - превосходный продукт для фотографа, 
 ```bash
 magnet:?xt=urn:btih:E751735571F1ABAE03FE8CD3B78901A8FCE5F17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Chesky Records - Jazz Sampler & Audiophile Test Volume 1 (1990) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:3E48E01885C4650EEDECFC36B3AB98F1A2A7DEDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Dead Island: Riptide [PS3] [Ru] [Repack / 1.01 / 2 DLC] (2013) | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:4302007D2C1C5C493C1F1BC68D213831E822A4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:642B1978C63BF39BB5AD31D88C7A7B7C08A84116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Classic Shell - эта программа предназначена для вк
 ```bash
 magnet:?xt=urn:btih:327557DA557B16914F1C9602B3B683C19A6CD6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A47E2A36A5C2A10CFA06B84583853C4772B896B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AC961588ADFC6624EDCA3032B5A4B687E55E697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Audiophile Reference - I Classical Music (2003) [FLAC|Lossless]<Audiofile, Test>
 ```bash
 magnet:?xt=urn:btih:EFE28EFCA70669407B915A3242536ADCC16B8653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Fuse - инопланетный источник энергии, похищен.
 ```bash
 magnet:?xt=urn:btih:C07442D01D6CCC2D89D41F3E69F134959555EC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ Carrier Command: Gaea Mission - это футуристический экшн �
 ```bash
 magnet:?xt=urn:btih:B75A86E001D59D7E0F21C36069A7DB1EAAAF4099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Movie Studio – видеоредактор, включающий в себя в
 ```bash
 magnet:?xt=urn:btih:5AEE9856457798ABC91513FC3ACDCC038AFE5B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Assassin's Creed Liberation HD [PS3] [PAL] [Ru] [Repack / 1.0 / DLC] (2014) | R.
 ```bash
 magnet:?xt=urn:btih:7F130EA625A80932D5E947593FB3928C70FADA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ Chesky Records Guide to Critical Listening - The Ultimate Demonstration Disc (19
 ```bash
 magnet:?xt=urn:btih:EAE0164E7F7C5AF2652693D002DACCEB8D2C855A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Rise of the Triad является римейком шутера от перво
 ```bash
 magnet:?xt=urn:btih:4FC6589AA30F2799B46C6BC2490E3D2AE41EA491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ Boot CD/USB Sergei Strelec 2014 v.4.9 (x86) (Windows 8 PE) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:49A36535759490FFBB96E8904916FB7014095CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Oblivion Lost Remake (2014) [Ru] (2.0) Mod
 ```bash
 magnet:?xt=urn:btih:704761EF6D3DD48D81DC7F5C5F279CA3C0127FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ Infamous 2: Festival of Blood [PS3] [PAL] [Ru] [Repack] (2011) | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:7C574CF17AC440BD302BFCA152D3F724B0899E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C4EE441CB74792FF2D12CCAC38E4C2B8379A1B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98F9C90DFD64BCA6940C9C5647EF7F272C97BC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

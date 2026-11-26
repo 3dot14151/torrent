@@ -19,8 +19,7 @@ Chronicle Keepers: The Dreaming Garden (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:7046B59B2320FEF53DA39C532E0A13F029DD9200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mysteries and Nightmares: Morgiana (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E47F106600B32C1D7A482B43C0867845EF1314F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hidden Expedition 7: The Crown of Solomon (2014) [En] Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:F8E31EEE38F9DF751964890D1A8000F81DCBCF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Metal Gear Rising: Revengeance – совместный проект леген�
 ```bash
 magnet:?xt=urn:btih:F50A94631B09F91576FE42695E823B8FAA04DBFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

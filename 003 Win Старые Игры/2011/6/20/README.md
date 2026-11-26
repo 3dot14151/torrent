@@ -19,8 +19,7 @@ Pacman — круглое жёлтое существо, состоящее из
 ```bash
 magnet:?xt=urn:btih:B1096B399F9D268347A2C68F6A5579F6CF8B0791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

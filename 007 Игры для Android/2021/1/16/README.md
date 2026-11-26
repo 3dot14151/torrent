@@ -19,8 +19,7 @@ Firefight – военная стратегия с видом сверху на 
 ```bash
 magnet:?xt=urn:btih:061BF63A9540999B9D9B0B7495E2520A46B714EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ace Squadron: WW II Air Conflicts - симулятор управления ис
 ```bash
 magnet:?xt=urn:btih:2E640186AC21F4E553FEDAC38E1613C5D6ECAF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13F8408E6DB821C040DF7ED3CFC09178467CA0F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

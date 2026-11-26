@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4590EE42D347D5C3C4D4AC4D5AEB15AA4553E37E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Quantum Break - это приключенческий экшен от треть
 ```bash
 magnet:?xt=urn:btih:622FA15A1D59A823E8DCA821BE065737584DB195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Quantum Break (2016) [Ru/Multi] (2.5.0.0) Repack Samael
 ```bash
 magnet:?xt=urn:btih:6C367C6845C09CD7687D8E260D9897587FE728AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

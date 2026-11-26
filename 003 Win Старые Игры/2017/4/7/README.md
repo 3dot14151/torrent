@@ -19,8 +19,7 @@ Pray for Death (1996) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4A56A90BC5E20A83B2BA8EDD18CD906B841E1E0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

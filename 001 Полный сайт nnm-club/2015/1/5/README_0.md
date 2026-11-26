@@ -27,8 +27,7 @@ dj Sasha Tyson - RELAX (cafe music) (2010) Авторская раздача [MP
 ```bash
 magnet:?xt=urn:btih:342B2DD16A61987CC98C2F0E44DBDB2D4E2D58C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Mechina - Acheron (2015) [MP3|320 кб/с]<Death/Industrial/Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:450F17BFA1AAE8C5294B57799CDD1F968694ED7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F170A5D02B85A4BD946A543CE93C533DB08F6607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ dj Sasha Tyson - Dancing electro asses 05 (2012) Авторская раздач
 ```bash
 magnet:?xt=urn:btih:E6CD427AED96E25D7BAF0C043947B6E8A2CD8DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ VA - AGRMusic Mix #6 (2015) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:2B289E4D9FCDAE903A44746690F64D21B8FDE629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ dj Sasha Tyson - Road to DEEP 02 (2012) Авторская раздача [MP3|3
 ```bash
 magnet:?xt=urn:btih:B49773CF990E88C9559BEAA721089BB862FFD098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C13E3ADDAA763A5F5B4F85FB13A0F534E4B60039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ dj Sasha Tyson - Dancing Electro Asses 01 (2010) Авторская раздач
 ```bash
 magnet:?xt=urn:btih:2F3EDF5A649EDD34DE28A988939E4D9315D92738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F58BE8C8B2C777CC1526B075471D3E98F57D82BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ dj Sasha Tyson - Road to DEEP 01 (2010) Авторская раздача [MP3|3
 ```bash
 magnet:?xt=urn:btih:07469DDC25779A654C5851DECA6A30B49DD5DC54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ BBC: Инструкция по созданию: Суперкар / How to build
 ```bash
 magnet:?xt=urn:btih:AC53ED75C164E08222DF7792F0B14CE981143B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ Dreamhub - Amulets of Tranquility (2014) [MP3|128 кб/с]<PsyChill, Psybient, S
 ```bash
 magnet:?xt=urn:btih:E4461E3CB672D522BB7D6008194298D13C4E87A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0863C4FF1E5EE0317B94F9A1F88F456AC22A4115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ Mechina - Acheron (2015) [FLAC|Lossless|WEB-DL]<Industrial | Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:259DE370F43783CF69F0775E43EC6574B8FDD248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ InfoCity – ежемесячный журнал о компьютерной т�
 ```bash
 magnet:?xt=urn:btih:AB8FB696EEA022EDEA3B23FF59956791C098BB22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C86998F0366E57609943A4567BC5FC807B89E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB47C5B4869F4724BF69DC5010157AB3BA2AEA8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ Dreamhub - Ambient Gardens (2009) [MP3|128 кб/с]<PsyChill, Psybient, Space ch
 ```bash
 magnet:?xt=urn:btih:34718623902A2122AF7FA8021AAB882956181CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:582DC27B2165F15F6BCB8F428B6DEFC7A2E4A45C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8730662088E1BB188D72D63AE1BFC7E9335E848C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADAECD7DD6EB66D7CCB4072A962EB99C32B2887D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ Stafford Bawler, Obfusc and Grigori - Monument Valley (2014) [AAC|WEB-DL|256 к�
 ```bash
 magnet:?xt=urn:btih:8BCEA733E0F1B87918BC28AE4FB86D0EC0DD54A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D8EDF4E5D3D169587D8BDC515B1B255B929BAB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F6294AE2926589F24EC29A8E495557EC042CF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7D193895D29D2AA111E18EB703CF9D4EC8FA2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

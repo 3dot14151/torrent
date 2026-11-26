@@ -22,8 +22,7 @@ A4 MPO Blues(   Читать дальше...   )Жанр: Blues RockПродол
 ```bash
 magnet:?xt=urn:btih:BF8086AA473E2A386A93B4DAA40853E5D2DBEAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

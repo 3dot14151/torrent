@@ -19,8 +19,7 @@ The Hive - новая стратегия в реальном времени с �
 ```bash
 magnet:?xt=urn:btih:E74AC484AD711E2FE2941B55779B34F4AAE685BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

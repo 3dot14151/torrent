@@ -19,8 +19,7 @@ Myths of the World 10: Bound by the Stone / Мифы народов мира 10:
 ```bash
 magnet:?xt=urn:btih:F6563561F806BD74F2A3FB14882FD7F69D924ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Labyrinths Of The World 5: Secrets Of Easter Island / Лабиринты Мир�
 ```bash
 magnet:?xt=urn:btih:9EEFC9BDCE150F443EA87B17F8BE50A8B4A7AB5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17495) Repack YelloSOFT
 ```bash
 magnet:?xt=urn:btih:D3D731287F2BB29B4A2228476E05FF33A0B02CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

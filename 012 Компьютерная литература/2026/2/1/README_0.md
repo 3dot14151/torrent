@@ -18,8 +18,7 @@ If you're looking to build production-ready AI applications that can reason and 
 ```bash
 magnet:?xt=urn:btih:EF1C6639DB1D0F55C541D1051EE9CD01398079E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ As containerized and cloud native applications become foundational to modern sof
 ```bash
 magnet:?xt=urn:btih:0060DB96E6722AFA9242537B84BC6C1D635C47F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ In this updated third edition, Bill Lubanovic acts as your personal guide to Pyt
 ```bash
 magnet:?xt=urn:btih:E4B891304A751A976EDD338A1768E0E4F36BF994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29BAE9D1AD3F7EB3267ED7FB824A4AA769929E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67A002012015C22EC7D8C80F4D83D738B5F16885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

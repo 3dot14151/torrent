@@ -19,8 +19,7 @@ Blackmart 2020.1.7 [Ru]
 ```bash
 magnet:?xt=urn:btih:D430A9E06447E1A40BAD34F064233153548D58D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

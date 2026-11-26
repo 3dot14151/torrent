@@ -19,8 +19,7 @@ I.G.I. 2: Covert Strike (2003) [Multi] (1.3.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:ED1458642ED4144E9FBD523FEEF40E86AF3B07B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

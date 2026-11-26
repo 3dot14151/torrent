@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D31E50DD86868AE0BD433AD1F6D1B5396606A833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Inside... you'll learn how to Engage in dialogues that illustrate practical conv
 ```bash
 magnet:?xt=urn:btih:169305A21791C4BDDC6BFCECB93B7CE5BF8563D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Legal English is a professional language. This book is designed for law students
 ```bash
 magnet:?xt=urn:btih:18755FDA78A431A8EC3EBCF7450AE1F988BD0387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:341DAEA731F66F655F6B14E673AFB74A2E064910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Demon Hunter 2: New Chapter / Охотник на демонов 2: Новая �
 ```bash
 magnet:?xt=urn:btih:B154B8AE150EC6E56768AC75B7E51245DDB38EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ D Series OFF ROAD Racing Simulation - это колдобины на дорог�
 ```bash
 magnet:?xt=urn:btih:310E867BB1C25BCC2368F509603F4E6DC41063DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Root Of Evil: The Tailor - история об одном случае прои�
 ```bash
 magnet:?xt=urn:btih:A15E5506C2B6BF8ABD6FA4E73A3788852BFB7E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wanted Corp — это экшн с видом сверху, в котором в
 ```bash
 magnet:?xt=urn:btih:4E4547317247D31E6B3FE71C9140F315B5AA3E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

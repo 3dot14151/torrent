@@ -20,8 +20,7 @@ Gumroad, YanSculpts | Скульптинг и текстурирование д�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ VA - Hard covers of fucking pops (2007-2010) 37CD [MP3|96-320 kbps] <Rock, Punk,
 ```bash
 magnet:?xt=urn:btih:EEA15099841266410AF530BDD9F2131C42883EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D796C969528559BC90535CC2FCD0EC444F97AD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Harry Potter and the Philosopher's Stone / Гарри Поттер и Филос
 ```bash
 magnet:?xt=urn:btih:35710A22D33D27DC3B29317AB476600A6EC9574D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:733433CFC59E91E336981F1A9715BFCDE366E160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ HighFleet (2021) [Ru/En] (1.01) Repack Other s
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05F2E59471B319B8A3D8F72D084055A8B18BFE89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 07.2021 by OVGorskiy 1DVD
 ```bash
 magnet:?xt=urn:btih:B42677070BA677BFEB95A4457C38A5F0E61C36B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ The Ascent — экшн-RPG в духе киберпанка с режимами
 ```bash
 magnet:?xt=urn:btih:CE8EF603843CE9C72B6BBC24C1D9041B2E32A656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ The Ascent (2021) [Ru/Multi] (Build 7106737) License CODEX
 ```bash
 magnet:?xt=urn:btih:3CA434AB40756941A354FC208A70A141D1EF7558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

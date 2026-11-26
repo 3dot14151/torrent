@@ -19,8 +19,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.02.06/dlc) S
 ```bash
 magnet:?xt=urn:btih:54854C51DCAFF0AF5FABC1BA4944DFE39AA629C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Mageseeker: A League of Legends Story - ролевое приключени�
 ```bash
 magnet:?xt=urn:btih:11D5C668BE679BF5E2124228913558F4F9502AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Tales 11: Dealer's Choices (2019) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:710CFA47C598D4D95DA7CC923DF4BD09CF77A2CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:619CBD8E08D902941CE72F7A164755B93B3E6B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B1CD6DB1D45E17DEE6B60709B895518C5D696EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E57040BF4D36AAED24B9EA4FE5551E30FC18868A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Generation Zero (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:EEDAE94114669C6D91FC2C4F50FA5E9184F6AA4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Star Vikings – это ролевая игра-головоломка для л
 ```bash
 magnet:?xt=urn:btih:200F9AE3FF1D699C46FAAEB59223FB63B7E8218E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

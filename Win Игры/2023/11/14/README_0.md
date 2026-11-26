@@ -19,8 +19,7 @@ Crime O'Clock - это игра, в которой вы выступаете в 
 ```bash
 magnet:?xt=urn:btih:4AAEDD26964F189BBEC042602FD51FBA6ADEC7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A5BC872892AFAC0A4429D69CF4BAD22538F58429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Salt and Sacrifice - хардкорный экшн-платформер, вдо�
 ```bash
 magnet:?xt=urn:btih:6E0EF1E095BC1373EE21D833E5FBF55A4A802B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ State of Survival (2023) [Ru/Multi] (1.20.20.644) License (обновляема�
 ```bash
 magnet:?xt=urn:btih:DF6E742E61AED99AB60D09C3FED00EE56A4365A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ BLACKTAIL (2022) [Ru/Multi] (1.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3F09E9089DD3EDC40F4AE0A7424537689574512A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Counter Strike Source выпущена в 2004 году. Это продолже
 ```bash
 magnet:?xt=urn:btih:50B8A345811AF83FC8BE41B103E4ADCE3A6A2B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Artery Eruption - Gouging Out Eyes of Mutilated Infants (2005) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:4D54F72B19B485EA5798DF6B1AA28FE2BDB26189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Belial - Wisdom of Darkness (1992) EP [APE|Lossless|image + .cue] <Black, Death 
 ```bash
 magnet:?xt=urn:btih:518E3F12E5E2AB29FDD541F04EC2DFB54F9CE4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Belial - Wisdom of Darkness (1992) Reissue 2010, Galgenstrang Productions [FLAC|
 ```bash
 magnet:?xt=urn:btih:AC4D2D72E8CF3E49DDA2CCF1B3A769B4DF48937B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Artery Eruption - Artery Eruption & Mangled Atrocity (2004) Split [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:1E15A58D8098967744917650D9F3B8473A5A1003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Seven Witches - Xiled To Infinity And One (2002) [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:CB973FC330BB80EC35CA6BDCE3F46BAD392245EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Seven Witches - Amped (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6127513F193497896666E4CBAB4476852B801105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Seven Witches - Passage To The Other Side (2003) [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:6479DDA416B402E7A3EC53DA9B59AA9DE5BB2100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Moonlight Agony - Echoes Of A Nightmare (2004) [FLAC|Lossless|image + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:F7D57DC5775353770143DB41D42D10AFAC10DC52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Seven Witches - Year Of The Witch (2004) [FLAC|Lossless|image + .cue] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:838A2FBA8300828BAC1A0CBD6F983B9458260A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Moonlight Agony - Silent Waters (2007) [FLAC|Lossless|image + .cue] <Progressive
 ```bash
 magnet:?xt=urn:btih:A960739BD3E262A881D50D2BF035667432202457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Fates Warning - Inside Out (1994) 2CD [FLAC|Lossless|image + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:EF45B88F9DE2431287D76F7A330539538B343F1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Monje - Culto al fin de los tiempos (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:762ECF391D5D27C1D5B0C4AA59393C609C50ECF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D493660F3E0440DF9BBB96194BA0DB43EAF7D175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Diviner - Avaton (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:267A2FA4447987A25E1A91C60BC3957827F3D34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Sophie Lloyd - Imposter Syndrome (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Ha
 ```bash
 magnet:?xt=urn:btih:487FE5EDADB0E4E07BC965F2DE7F077B06BFD46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Maneskin - Rush! (Are U Coming?) (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam-rock
 ```bash
 magnet:?xt=urn:btih:1EDB9E799DDCFA2DD68F84D62CA5E4FC910A24F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F8482E291E9D435CF5974F661A5114F53BEA055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Bayonetta - это настоящий боевик-мясорубка в сти�
 ```bash
 magnet:?xt=urn:btih:6323A0E2772F5085E22C2A73F7DC331291850ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Madonna: Rebel Heart Tour (2016) BDRemux [H.264/1080i] [EN]
 ```bash
 magnet:?xt=urn:btih:395AD3EF8EF41338BD2AD49C1B09AA3CFCCBCB22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Resident Evil HD Remaster (2015) [Ru] (1.0) Rip xatab
 ```bash
 magnet:?xt=urn:btih:53E43EAE566BDA0C29369B03F009D1F7A6078BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Acronis True Image — это интегрированный пакет прог
 ```bash
 magnet:?xt=urn:btih:2D8B246EA10C4285F1EF6726A729849671C19321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02E85517ABB558B2C649C8E1DC0B586129813E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F190C40D79143514843F19CEF37680BDABE88286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Ubuntu 17.10 Artful Aardvark [i386, amd64] DVD, CD
 ```bash
 magnet:?xt=urn:btih:B72F46A7F70A8AD253D7BF22D5C66F7B0696A877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Pro Evolution Soccer 2018 – триумфальное возвращение з
 ```bash
 magnet:?xt=urn:btih:53B11B9FBE005A8D5CCC14E7E7BF7688D6A99DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EB6A4F499DFBD41F9BD460978D7B837D7F573D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 ```bash
 magnet:?xt=urn:btih:014A8EE069EE089C08F51FEE6FE6F4D2AF62CBF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

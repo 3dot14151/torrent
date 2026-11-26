@@ -20,8 +20,7 @@ Shadow - Мелодик-дэт-метал группа из города Оса�
 ```bash
 magnet:?xt=urn:btih:18E033CE6ED97A9DB7BC7845ACCA5F67013B68F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:BD82791CB8BFA3F0804256C936372CA0772CCC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.2 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4F59D6BF797AC215DA852A19F9B347353B2DB48C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ App Manager обладает красивым пользовательским �
 ```bash
 magnet:?xt=urn:btih:95FDA371CA84D8D298E02F9F88B86E2F55C5C25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ MiXplorer Silver - ещё один файловый менеджер для вз
 ```bash
 magnet:?xt=urn:btih:DC1B90E0DCD010E3EF80F0DD1CFDBCA593BDECBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Jaded Heart - Guilty by Design (2016) [MP3|320 кб/с] <Hard Rock, Hard 'n' Hea
 ```bash
 magnet:?xt=urn:btih:361926DD599C0857B89B7B2E9E46F3A194195620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A0F96359617ABD949113E41C6F4E1E56D89B051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Phil Collins - Testify (2002) 2CD Deluxe Edition, 2016, Atlantic [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:8809ED7BCB50C85BB2700E1BDAF6A3B15071213B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Phil Collins - No Jacket Required (1985) 2CD Deluxe Edition, 2016, Atlantic [FLA
 ```bash
 magnet:?xt=urn:btih:63245F5D12E91502FB9D47C1404A35C62A797511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6440E36AA2839C023807C60D87F66023D19108E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Rainbow - The Singles Box Set 1975-1986 (2014) 19CD, Compilation, Limited Editio
 ```bash
 magnet:?xt=urn:btih:BD6825ECF6EAFAB4D5648165FEC75BF21D370993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Train Sim World 7 - это реалистичный железнодорожны
 ```bash
 magnet:?xt=urn:btih:2481003B8F7D01ABAA410C6DD0B8E0B376EA0431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Connected Hearts 6: Vanished Beauty / Связанные любовью 6: Ис�
 ```bash
 magnet:?xt=urn:btih:D815A519B6216E5856C8E525B9A0E1FB8172A04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clive Barker’s Hellraiser: Revival - это хоррор от первого �
 ```bash
 magnet:?xt=urn:btih:661671B339122D3772AA08DFF3F0DE8CE3A6F95C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Witchfire - это тёмный фэнтезийный ролевой шутер
 ```bash
 magnet:?xt=urn:btih:BA7BE3812A00E2F81A4874A5FF11A882228912C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Silver Pines - метроидвания в жанре хоррор-выжива�
 ```bash
 magnet:?xt=urn:btih:013ED86F597ADF826E6FB2829DE53D84CF4AB1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Forever Ago (2026) [Ru/Multi] (1642) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3C13A01FF615A9B4B446DB05E1F4BC7C448A03ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Forever Ago (2026) [Ru/Multi] (1642) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A00F1FEAF0A1A83AA98387A5F0BC2ACB6B499192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

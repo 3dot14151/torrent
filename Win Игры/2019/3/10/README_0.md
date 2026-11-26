@@ -19,8 +19,7 @@ Labyrinths of the World 9: Lost Island / Лабиринты Мира 9: Зате
 ```bash
 magnet:?xt=urn:btih:06564E15F8ABDC4090D867B84B64813F14E44354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

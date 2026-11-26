@@ -22,8 +22,7 @@ Lamb of God — американская грув-метал-группа, об�
 ```bash
 magnet:?xt=urn:btih:84DCB4B26807F062F94437F5BE11D25F6C86356E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:54C30C04769D5EDBCD976CC21A4D8E2E635D13FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Various Artists - Horenswert Vol. 10 (2016) [MP3|320 кб/с] <Tech House>
 ```bash
 magnet:?xt=urn:btih:89013E0056B8C4B46F6556C6057DF540EDAE6652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8B5A0D026A23BB2FE7647F901CE7B8B6332151F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Dr. Lonnie Smith - The Healer (2012) Pilgrimage Productions[FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:1DCE767F4407BCE748C1ECB22880BB2D0275BCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E75DD5AD5DA7768E3661D473617837E18BE6525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Kenny Barron Trio - Book Of Intuition (2016) Universal[FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:85484E5547AA3A3430D8BF90A034C0BA42635AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Caustic Roll Dave - Approaching Noise (2014) [FLAC|Lossless|tracks + .cue] <Indu
 ```bash
 magnet:?xt=urn:btih:87024816FA2F843D30A3BBD5357F3A32115DCC41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B064C2895CFE949D9116E31EF18BE18FF2CF48F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D3502C2A9A3545B982A706E01E120EEBB66B2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Abyssic - A Winter's Tale (2016) Limited Edition [FLAC|Lossless|image + .cue] <S
 ```bash
 magnet:?xt=urn:btih:78582F34610AA779DC4EFF47E8BBB154CD001C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Flash Cartel - Elevate (2012) [MP3|320 кб/с] <Progressive House, Drum & Bass,
 ```bash
 magnet:?xt=urn:btih:29DA6534A3453BAC43455A286C2D2E78615E565D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Openzone Bar - Limestone (2015) [FLAC|Lossless|tracks] <Chill Out>
 ```bash
 magnet:?xt=urn:btih:2009DC17078DBE68AA60E3D745F704F2BECC230F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04B2C2F7FE46C923BC3F547FAF0F1D75A8A0A3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ VA - Telrae Mixed By Salz Vol. 5 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techn
 ```bash
 magnet:?xt=urn:btih:2C6755C1EBA7F479549B17EEC3B5DBE72AEDF2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Aythar - Astronautica (2016) [MP3|320 кб/с] <Ambient, Space>
 ```bash
 magnet:?xt=urn:btih:1C90AA2B5DB88E40B5C02B634762CF8378A80512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:454AA3A0004717D8FE576A5826F232548B4F8677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80C3F266BD712337C2D7080091175C2174D349E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF9C86CE028F641F4EA8BC06A9EFADEF957D58F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ VA - We Love Deep Vol. 1 (2016) [MP3|320 кб/с] <Tech House, Indie Dance, Nu D
 ```bash
 magnet:?xt=urn:btih:39A80DA118C937C9420C2A9B83BB93CF1224D9A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ Vanir - Aldar Rok (2016) [FLAC|Lossless|image + .cue] <Viking, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:DAACC6954F099F02707F03289806CF1CA15E1251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A697E212E1F5434ACA489C780DB83FB8CE0A0978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ Ciro Visone - Fantasia (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:D74D417D9C4860FF362F52AB3A781D51AA547DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ Corciolli - Lightwalk (2010) [FLAC|Lossless|tracks] <Electronic, New Age>
 ```bash
 magnet:?xt=urn:btih:8CC74E4FEC728E0281A2992A79681BF6874EBB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Ancient Future - Asian Fusion (1993) [FLAC|Lossless|tracks] <Folk, World, New Ag
 ```bash
 magnet:?xt=urn:btih:A0AEA65D32FEF5A52CCD0F7A7A83C39E596B34C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ VA - Armada Captivating in Miami (2016) [MP3|320 кб/с] <Trance, Progressive H
 ```bash
 magnet:?xt=urn:btih:A4CC83A4BA8B7D2780452905CDA06ECE67C159C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

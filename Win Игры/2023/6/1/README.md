@@ -19,8 +19,7 @@ TUNIC (2022) [Ru/Multi] (1.0-t1513-b45) License GOG
 ```bash
 magnet:?xt=urn:btih:AF20BFD277730BAC8B881FB8E286154DC626ACD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ System Shock 2023 - ремейк легендарного иммерсив-си�
 ```bash
 magnet:?xt=urn:btih:95149C9423C2A2CB6840743593EBF7A4A2556280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DOOMBLADE (2023) [Ru/Multi] (0.9) License GOG
 ```bash
 magnet:?xt=urn:btih:824B5C418050A2C5D4B46565498F62C7CDBD69F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.0.51915/dlc) Scene Razor1911 [Digital De
 ```bash
 magnet:?xt=urn:btih:0DC6E554DAC2460633B97306F28A1BF4DFF80D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

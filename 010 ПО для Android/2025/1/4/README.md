@@ -19,8 +19,7 @@ Umagic AI / ИИ Рисует v1.7.2 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CEE7B8402C83DE84DCFDF2B58B5930C4ACF1462D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AIDA64 2.05 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E810C71A6CDB21C688F69ED8216F2B3724646AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balata
 ```bash
 magnet:?xt=urn:btih:0CAB79FDE3F1EBAB70A5335E957F632D4057B0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCE16713A8A2F98425D6128CB7318688DDB704A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Textra SMS v4.78 Pro Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:348542816225DD4883E1986908A0A1D9F531EC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

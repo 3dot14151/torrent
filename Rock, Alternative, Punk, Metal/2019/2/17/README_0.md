@@ -22,8 +22,7 @@ Broken Social Scene - Let's Try the After Vol. 1 (2019) EP [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:A40E6E78898BC25A5DF26D0CFA67313A29189536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ We Are The Catalyst - Ephemeral (2019) [MP3|320 Kbps] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:A5AFA24FEEF0492A2B2E0F6AF084D3B91645C94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Norvhar - Kauna (2019) [MP3|320 Kbps] <Folk Metal, Viking Metal, Melodic Death M
 ```bash
 magnet:?xt=urn:btih:08C51959198D403071A2B941F033AAEB344C6331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Herman Frank (ex-Accept) - Fight The Fear (2019) [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:332192E8DC3930D9CC45ADAA203865D20B7FB20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A845BE977AB7AA99EDA75875EA2F9B69B5127DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Classic Rock Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic rock>
 ```bash
 magnet:?xt=urn:btih:3901FEE3E8AC22291A884DCE0ED43807112479CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Animals - The House Of The Rising Sun: Best Of The Animals (2019) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:CE9FC27CE99387899A9889B5F64EB731BAD10B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C37B68AAB614C17454107E8C48528985C04F97E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DA15DAA3412D70778DA15888DE173DE907C8233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75D2F87F5B63B9A6BFE132A4D19A375DBB50FE7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B49965BAB19122A0A00AD652729CB83DFBA0D8C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1735FD1E37EA6BDF2A36A1F880B4E21C30268F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Call of Duty 4: Modern Warfare v1.5.549 (2008) [En/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:98F985133BEE37768D4E4998769019C1D39C3BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren`ai Zunousen | Госпожа К�
 ```bash
 magnet:?xt=urn:btih:0A1F55C2E16118EC969638248FF80296D2AD12EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:427E196F13ED73C0077711CD18D7E1C21B5F0E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C594A99559B3F6904AE692B6E3A87E04B1F0B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:321C40DEE973B862063EFE034B7017010DF814AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E8FC71D9A43B8780E9BFD436DA1081947DC7F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C68449AF6F71AAA89F2BDBD8F096B29A00C22F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 из 12]
 ```bash
 magnet:?xt=urn:btih:CB4580FC80748F72DB89BE6AE782AAA804200F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ HITMAN 2 - это захватывающий шпионский триллер. 
 ```bash
 magnet:?xt=urn:btih:2365BC8D36618E16B569D58808F03B82C94BC08F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren`ai Zunousen | Госпожа К�
 ```bash
 magnet:?xt=urn:btih:3B448C0E23C14A768437BA28E2F2ACA6778DCACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ Grim Dawn (2016) [Ru/En] (1.1.1.0/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:64738982D3B4AE817CAE65EFA8B83FFCFCE90713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ AutoCAD – это больше, чем проектирование. Прида
 ```bash
 magnet:?xt=urn:btih:E9036528579AE39C2F401B8AEFF94CAEDC3C6056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +470,7 @@ TEKKEN 7 (2017) [Ru/En] (2.21/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:9ADAE239879D165924D61C40D0F487B573AA0D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ VA - The Sound Of Hell - UltraTraxx Rare Remixes Vol.1-148 (Bootlegs) (2009-2012
 ```bash
 magnet:?xt=urn:btih:D29F8F2615E54C522E80824972B3B3906C51598C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6CF4101EF0D1817C22DF15BAA6714C2FD9940E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +548,7 @@ Acronis BootCD/DVD 2019 – это загрузочные образы, на б�
 ```bash
 magnet:?xt=urn:btih:C2F3A6D1AFC587BF4D977FF0C02508B52C43F03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +573,7 @@ VPN-сервисы отказались выполнять требования 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +598,7 @@ Autodesk 3ds Max – популярный программный пакет, п�
 ```bash
 magnet:?xt=urn:btih:417CF3B53F6EFC86DEEE6E7B8BC5ED22C7D1134F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

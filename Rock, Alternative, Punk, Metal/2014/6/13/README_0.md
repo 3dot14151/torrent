@@ -28,8 +28,7 @@ Klaxons - Love Frequency (2014) [MP3|320 кб/с]<Indie Rock, New Rave>
 ```bash
 magnet:?xt=urn:btih:F3935B3A5ADD562B9F9FBFAAE4D1A408B9F163B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Megadeth - Icon (2014) Compilation [MP3|320 кб/с]<Speed / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F4C31A76158A2AD9DA1EBF32919F899F0ED43661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3CD13E155E1DA7B1AE310FAD8F1138BB8E10C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Linkin Park - The Hunting Party (2014) [FLAC|Lossless]<Alternative>
 ```bash
 magnet:?xt=urn:btih:BC66B886CCA93825C4E8D7AC2842CDAD4C540378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

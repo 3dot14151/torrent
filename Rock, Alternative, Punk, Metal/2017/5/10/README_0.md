@@ -22,8 +22,7 @@ Merciless - The Treasures Within (1992) 2003 Remaster [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:610DCC274A86F7C5BAF240C0699C9DE080BEAB5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wildfire - Brute Force And Ignorance (1983) Reissue, 2002, Mausoleum Records [MP
 ```bash
 magnet:?xt=urn:btih:D40E923D36940EA825EC5AEBDE2FEAF7CEDCE98A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kingdom Of Giants - 3 альбома (2013-2017) [MP3|320 Kbps] <Metalcore, Post
 ```bash
 magnet:?xt=urn:btih:467A58DE38AAF5FB447A3150E9D2503F92B59F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Space Oddities (2009) CD, Vol. 2 [MP3|320 Kbps] <Electronic, Psychedelic Ro
 ```bash
 magnet:?xt=urn:btih:0ED2A4295148C5576EC071699F877E9A80209DCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Havukruunu - Kelle Surut Soi (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Metal,
 ```bash
 magnet:?xt=urn:btih:2663A3216E9B77A6D25786F5CC179548D27F313A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Michael Schenker - Guitar Master - The Kulick Sessions (2008) [MP3|320 Kbps] <Ha
 ```bash
 magnet:?xt=urn:btih:252CCE12E98E4C4B384FD331868A8ADBF7A3B349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Neutrino, Нейтрон - 7 релизов (2012-2017) [FLAC|tracks+.cue]<Melod
 ```bash
 magnet:?xt=urn:btih:78A8C49539434F7388FF3482C3DA967EC3A23610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16F20463C162591ECBAA69E9BBB1BE3D0A86564D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

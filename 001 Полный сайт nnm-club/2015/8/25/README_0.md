@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F0D8B7B0D8044062C5F50692CB44265713535F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97037545A156C6B6A52A323C4010D662FD96B665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Mitch Murder - Current Events (2011) [MP3|320 кб/с]<Electro, Synth-pop, 80's,
 ```bash
 magnet:?xt=urn:btih:C87201A8852EB6428837CCCA1167B472F844AC57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ VA - Tantric Sex and Lovemaking Music Background Music for a Night of Tenderness
 ```bash
 magnet:?xt=urn:btih:A3DC968392E5DBE43BF25CBD6167F3E86CB6EF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8437347FAFFCE63FD35A1D9E0A6B732836370FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Scattle - Timelapse (2015) [OGG| 436-607 кб/с]<80's Electronic Dance, Synthwa
 ```bash
 magnet:?xt=urn:btih:1D40FD5DACCA9AAE49AC5ED8C84B538905365CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Styx - Gold (2006) 2CD [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:545AEBFEB1572F4E10F61ACD7614EA56B1B12AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Bachelors Of Science - The Space Between (2015) [FLAC|tracks|WEB-DL] <Drum & Bas
 ```bash
 magnet:?xt=urn:btih:2E3B1184EB2A1516093166B29D90560C1C8B797F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ IconKit 4.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:FA90A02C17014D93EF1C758FCE0414F6D5FC1999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F6C3AA44E5839096E9A7E8AA9888469EB16515A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCEA940263B68F0C86463FAFA19F6343836D7E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ FontViewOK 4.06 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DBE535D55F79C952F870E4EF1086A3201CA11889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Scattle - Street Heat (2014) EP [OGG| 482-547 кб/с]<Electro, Darkwave>
 ```bash
 magnet:?xt=urn:btih:5289ABF6446AD8EA9EA6F4B688A25A46AEC9CCBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ Neuroticfish - A Sign Of Life (2015) [MP3|320 кб/с]<Synthpop, EBM>
 ```bash
 magnet:?xt=urn:btih:FAD2D6495A3699AEA193AE33BD33B67C8918A570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ Pop Evil - Up (2015) Deluxe Edition [OGG| 383-544 кб/с]<Alternative Rock, Har
 ```bash
 magnet:?xt=urn:btih:81E5ACF5DABA79863ED075097D4E60420C99A8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3B48AB1DFD8378274970FF67DBE13F3F9B4B9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97C5263FFA0C467B6C86B5B594987024A799DBFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99F4923005882B5286286837F2F1587D5FBACFE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ Koan - Retrospective Tapes: Elegy (2015) [FLAC|tracks|WEB-DL] <Ambient, Downtemp
 ```bash
 magnet:?xt=urn:btih:E91B41728A11718B023D52CE4EA562099DF92528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76B30A2436041AE1DA2FE3C1083CEDE548E4E81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ VA - Попсовая соточка MTV. Выпуск 2 (2015) [MP3|256-320 к�
 ```bash
 magnet:?xt=urn:btih:816628E56F234CEE4F494B4D0799C630DCBB1DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ WinScan2PDF 3.01 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0BFC3F8850BBA89E9164F00D1782207874C3AA76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64FBB458BCE0CC41627E8989C9FCB4F160166EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02B5F192E8017D274E69173A19399D3C52C5B055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ IsMyHdOK 1.17 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5775C1E0AD661A1FC36BC293C5E30831FF6032A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

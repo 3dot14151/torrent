@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DC5D9F2199464E954F39C33667D299531B2409A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C307555EE5C676C4805B52C7AB1E92727CB86A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ VA - Oasisphere (Compiled by Salvo Migliorini) (2020) [AAC|~315 Kbps] <Deep Hous
 ```bash
 magnet:?xt=urn:btih:64EBFB5197B027F8097FBEDF30BC5362967611AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ VA - Everlust (Compiled by Seel) (2021) [AAC|~323 Kbps] <Deep House, Organic Hou
 ```bash
 magnet:?xt=urn:btih:9165E0EEE33259F0BAFB561B1BABC273B53F6D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ VA - Chill Out Lovers, Vol. 2 (2022) [AAC|~324 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:94E49C38C3DFCF376B28F355C79165AF1038EE88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Boxy SVG 3  v3.78.2 [En]
 ```bash
 magnet:?xt=urn:btih:C89F11B49EF0C1EAA9A9238344B5956CB8200C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ VA - Ethno Sorcery, Vol. 2 (Compiled by Salvo Migliorini) (2020) [AAC|~328 Kbps]
 ```bash
 magnet:?xt=urn:btih:A38A356FA3429B47340C87FE8C06990A9264CBA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ VA - Viva 2021.2 (2022) [AAC|~331 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:EF81DDF5F0D99D6D8A9BB53C1B528D070BBC1306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ VA - Ethno Sorcery (2019) [AAC|~321 Kbps] <Deep House, Organic House>
 ```bash
 magnet:?xt=urn:btih:899A1335471B638CFE10507D01367CC2FC8642CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ VA - Lounge Atmosphere, Vol. 2 (2022) [AAC|~329 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:34C5FC2B81C60F2C54166FC3EA82C13117F6B783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ VA - Viva 2021.3 (2022) [AAC|~329 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:279B8C4A32F3B714ED291182531D034DEBCC7D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Marga Sol - I Am Everywhere (Pop Lounge Vibes) (2013) [AAC|~315 Kbps] <Lounge, C
 ```bash
 magnet:?xt=urn:btih:189E19F8EE46A61AE49470A3E5861E6DCC4A52D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ VA - Viva 2021.4 (2022) [AAC|~331 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:1ABAB768A666513785FCE83391189FFC672D9B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ VA - Chilling in the Bar: Urban Chillout Music (2022) [AAC|~314 Kbps] <Chill Out
 ```bash
 magnet:?xt=urn:btih:9C350C8E7C809134ADFF4B0B42EACC981FE38521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

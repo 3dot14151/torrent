@@ -27,8 +27,7 @@ Alannah Myles - Black Velvet (2007) [FLAC|Lossless]<Rock, Blues, Country Rock>
 ```bash
 magnet:?xt=urn:btih:DA38DC9B69515FA384675229CD7CBE3EE390D224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Garmin: City Navigator NT China 2014.20 + Venus Series Shift-Corrected (июнь
 ```bash
 magnet:?xt=urn:btih:0E7F76CADB75D5770BAA74BBC9874F75FF9AFDEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Photo Montage Guide - программа для отделения цельны�
 ```bash
 magnet:?xt=urn:btih:3788169CF827A7B44438B4C33A83AA5A11B0E9BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1252429CDD3BB53CC18DE77549BB4C172F8241AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1C2421B446FC92F8F675E3E0B98B27DBFA0194F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74EC1073F980A6780995267B94FDBBB6F98494D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C538698AF71D685B7D49164A8B05DB8636F9E5F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8D3D81FCF79A409D0EC6A5B78388FC7F596812A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Brightness Guide - выравнивает яркость фото, осветл�
 ```bash
 magnet:?xt=urn:btih:D825304ED1AAC5DC371C5A5D95C0620A7CBF0FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ Yung Lean - Unknown Death 2002 (2013) [MP3|320 кб/с]<Rap/Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:1A17EDE4935681D3B0EF6AE98CC4A9F36CA48776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ Pet Eye Fix Guide - программа для устранения эффект�
 ```bash
 magnet:?xt=urn:btih:B4F326181E9E5E07B80A92F73226BCA6D607680E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ Savage - MTV Music History (2001) [FLAC|Lossless]<Italo Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:F7FD93278011D7B7C81FBD00617BDC6EF53B4436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ GifCam бесплатное, легкое и забавное приложени
 ```bash
 magnet:?xt=urn:btih:DA2D208715EDA9EED3FFF737D5D9C65CA808F100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) HDRip [зв�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0489833C710C8B6E8F226456FBFE33FBD42CEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ Act Three:
 ```bash
 magnet:?xt=urn:btih:8915897061AD21600D83A125563F948013713A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +507,7 @@ Yung Lean - Sadboys2001 (2013) [MP3|128 кб/с]<Rap/Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:5F9DB5E68014A359414446A6B84E828BFD0E88D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B90DB5F190C8B1022EC67E69BA26BA07642FB18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32135ED44DF5590E8490B0F416AC0A5655F0047F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92D161255603F959864FAF42DBF1B86FAD8294D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +613,7 @@ Beauty Guide - программа для наложеня макияжа и ус
 ```bash
 magnet:?xt=urn:btih:77DF18595092FB7FB938E293E9FE671ED9128D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7018EAF74A5E552CE8D973A12C4B96BB7DA0156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +671,7 @@ Der fliegende Hollander (The Flying Dutchman), opera, WWV 63
 ```bash
 magnet:?xt=urn:btih:BACA037D9E180D96AB68B4958B7373EB271EF7BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +696,7 @@ Wallpapers - Mix Full HD [JPEG]
 ```bash
 magnet:?xt=urn:btih:38AC9961769C8924F3C44354DE574146AA71C0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D15F022ED54A4031F06487BBE0D1F81E1E35A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

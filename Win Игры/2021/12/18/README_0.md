@@ -19,8 +19,7 @@ White Shadows – это кинематографичный платформер
 ```bash
 magnet:?xt=urn:btih:E3CD39C6B2E1DC38B85A62AC710D80230093754D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Secret Government — игра в жанре глобальной стратег
 ```bash
 magnet:?xt=urn:btih:0FE749D7A03F655072E9EA1D61D7998D8F7995B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:D0BF07E1A49AFF27D07D5CD7BA11E4A4E917E96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

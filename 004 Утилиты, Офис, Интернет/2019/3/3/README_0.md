@@ -19,8 +19,7 @@ Charles - снифер, дебаггер и прокси-сервер в одн�
 ```bash
 magnet:?xt=urn:btih:3C348F42CDC3B9B69959009160CB704B884B5F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

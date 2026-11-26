@@ -22,8 +22,7 @@ Louis Michael - Living For The Music (1991) [FLAC|Lossless|image + .cue] <AOR>
 ```bash
 magnet:?xt=urn:btih:AF7EA8C2B031EF09E1B258A54346BF0F0783E6AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mastord - To Whom Bow Even the Trees (2021) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:68E4B76A1A77E5C8B3F4E74CD860FB11698A2F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ignea - The Realms of Fire and Death (2020) [FLAC|Lossless|image + .cue] <Progre
 ```bash
 magnet:?xt=urn:btih:B7A0E821AF734651E5EC74D5B0C852E88CADA447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Roxy Blue - Want Some? (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:7DDFA1175112B94C0A46126088AC5A554D01005D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Moonspell - Hermitage (2021) [MP3|V0 Kbps] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:BC86A687FB2801D50E3CC1C9EC4005717F0E6222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Lacrimas Profundere - Bleeding The Stars (2019) [FLAC|Lossless|image + .cue] <Go
 ```bash
 magnet:?xt=urn:btih:4CAD8585816A51972B47D88D69AB5F7D86E59C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Black Keys - Brothers (2010) Deluxe Edition, Remastered, 2020, Nonesuch [FLA
 ```bash
 magnet:?xt=urn:btih:164D0C86EFB8185352D27D639B814CDA868ECCFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Alice Cooper - Detroit Stories (2021) [FLAC|Lossless|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:14B2EDCEC2C80580BA6AE721A46FF7963CB607C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Alice Cooper - Detroit Stories (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6D6405A7D496479E3600EBFE83494920E508B26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Zombie Driver HD + DLC [En/Multi6] (Repack/v 1.4) 2012 | R.G. Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Chivalry: Medieval Warfare - экшен от Torn Banner Studios. Действи
 ```bash
 magnet:?xt=urn:btih:648B34070E884D85A8B9619702E87AA10DEF4977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

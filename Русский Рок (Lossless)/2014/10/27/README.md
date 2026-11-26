@@ -27,8 +27,7 @@ Deformity - When Tomorrow Comes (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1972D87DCA8E42DEACF5C430803C14016DC62F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

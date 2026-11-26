@@ -19,8 +19,7 @@ Windows Sidebar for XP 6.0.6003.20103 [RUS] by 5.09.2010
 ```bash
 magnet:?xt=urn:btih:6B537B3BC57509CF5712865EA362316617829301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

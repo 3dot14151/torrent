@@ -28,8 +28,7 @@ Michael Stribling - Love, Light, and Water (2008) [MP3|192 кб/с]<New Age, Neo
 ```bash
 magnet:?xt=urn:btih:8E47FAA2CD6E78D8BBA607F1C2D2E682AF4707F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39A7AE09CBBBBD8324B265C0E4863C72EDEED407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED1D947348DE7D77CEAF2EF2C8E3594C52AC18E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C45A0411F488BEA3862D584C4680650AB1F4E675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Tomb of Insomnia - Interesting Times (2008) [FLAC|Lossless|WEB-DL]<Rhythmic Nois
 ```bash
 magnet:?xt=urn:btih:7C831C2690D509E2FFCE7A91C94538E6099320F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4544F4C202CC8195FCA09C8E0C6C2CE61480F734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Tomb of Insomnia - Necrocosmos (2007) [FLAC|Lossless|WEB-DL]<Rhythmic Noise, IDM
 ```bash
 magnet:?xt=urn:btih:8A1C56D51B0D8225E350633783795200C8E9A0A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ VA - Vocal Passion Vol.56 (2013) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:03FBDD0728D72FF3B0B74E8358F0BE2D4E259A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C05AC74282EFFC663F958A0A66AE59B63AAE3790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ Evertale - Of Dragons And Elves (2013) [WavPack|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:2CC00A1CAD57747944EBB3259DE927189FE0344A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ Tomb of Insomnia - The Path Towards Inhumanity (2007) [FLAC|Lossless|WEB-DL]<Rhy
 ```bash
 magnet:?xt=urn:btih:8D06AC425333D5A32008576F93EE4BC1411766CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +343,7 @@ VA - Club Chart (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:CA1EB004A5B045A10ADFF673E5D44F9C1D3CDD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ Saint Vitus - Live (1990) [WavPack|Lossless]<Heavy Metal/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:FA3C9ED15C478E614F4393ACE276EB094D5A8A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ Bluetech - Spacehop Chronicles Vol. 1 (2014) [FLAC|Lossless|WEB-DL]<IDM, Downtem
 ```bash
 magnet:?xt=urn:btih:1997C052B7937D27A8CA1E270E66F7AA54A1B9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCFAD576B603066AEAD521D31AEC1A2C2B6A7F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ Cristian Viviano - From Darkness To Light (2014) [FLAC|Lossless]<Deep House>
 ```bash
 magnet:?xt=urn:btih:EF2B6F63A0EF508FB36305E0B7BAAE5CA509C7F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ DVJ Burzhuy - Epatage Radioshow #198(2014) [MP3|320 кб/с]<House,Progressive H
 ```bash
 magnet:?xt=urn:btih:537CB34CD2F90C285E06E3B954153D3A191410A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30B6DCD668FB7F47171ACA9F210D2A6F591F36B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ Hakkah - Petite Escapade (2014) [FLAC|Lossless|WEB-DL]<Full-On; Psy-Trance; Prog
 ```bash
 magnet:?xt=urn:btih:AF98B989D1A6D0397AD89FD844313AE5D2014729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ VA - Клубная тусовка. Музыкальное ассорти. (2014
 ```bash
 magnet:?xt=urn:btih:32D511DC7F9762608E47F41D9557A876DC26E458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +624,7 @@ VA - The Place Ibiza Vol 1 (2011) [FLAC|Lossless]<Funky/Club House>
 ```bash
 magnet:?xt=urn:btih:A334E12C45FEF5F45024D2315C5FD6BF3A8AC0E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51EB30CF2FE5F96A33939F8D563D0A73C20AA056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +683,7 @@ VA - Special Blend Vol.01 (2013) [FLAC|Lossless|WEB-DL]<Full-On; Psy-Trance; Pro
 ```bash
 magnet:?xt=urn:btih:575658FE9950CEE53EEE484030B4CB433510F628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A649BC4EB03E1F24020728957C4FD234A121708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +770,7 @@ Normalize - Step By Step (2013) [FLAC|Lossless|WEB-DL]<Full-On; Psy-Trance; Prog
 ```bash
 magnet:?xt=urn:btih:6E0DAD299D0ECEE4829DF96AB9AA7FB0726F304F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

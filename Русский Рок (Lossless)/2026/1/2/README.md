@@ -22,8 +22,7 @@ Rubicon - Mental Monsters (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Hea
 ```bash
 magnet:?xt=urn:btih:3B5C27C58C38E33E43993AEC7CD7D12C5523C14F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

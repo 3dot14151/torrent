@@ -19,8 +19,7 @@ Lego Indiana Jones 2: The Adventure Continues / LEGO Indiana Jones 2: Прикл
 ```bash
 magnet:?xt=urn:btih:615A6E99038440E59F1EC1418695C358A5BA32D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Insane 2 [Ru] (Lossless Repack/1.0.0.6) 2011 | R.G. Catalyst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97C2CE89D6D1E4B91D2198FE1C76BEE09D00BCD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Snark Busters: High Society / Охотники за Снарком. Высшее
 ```bash
 magnet:?xt=urn:btih:1DDE43BC4F3957E5397B2F234C0BC2B8BCA47B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fabled Legends: The Dark Piper Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:87466B4141EFA5ADD347CA73D4F9B9E0E7027F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Citadel Arcanes (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:356A0999C19761C6DAE97C942544BB02BD5275DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

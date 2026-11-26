@@ -26,8 +26,7 @@ The Hedons - Tomb Of Stars (2012) [MP3|320 кб/с]<Stoner Rock / Metal>
 ```bash
 magnet:?xt=urn:btih:5E8088709267195760F5BC8C461993AD9B89F6A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ MorningStarlett - MorningStarlett (2012) [MP3|320 кб/с]<Heavy Metal, Female V
 ```bash
 magnet:?xt=urn:btih:73428A9510C27A53D02AE9CA00C787F871E90348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Tystnaden - Anima (2012) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:64112077090F0F50195642064011825FF8404459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Destinity - Resolve In Crimson (2012) [MP3|320 кб/с]< Thrash/Black/Death Meta
 ```bash
 magnet:?xt=urn:btih:11A678811F28CAD876D214B27312AA43A9B6AEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Bob Katsionis - Rest in Keys (2012) [MP3|320 kbps]<Progressive, Neoclassical Met
 ```bash
 magnet:?xt=urn:btih:140B39C518E2E9BE581D7A9B61B7E872E4962916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Pride Of Lions - Immortal (2012) [MP3|320 кб/с]<Melodic Rock | AOR>
 ```bash
 magnet:?xt=urn:btih:083A02A423E832B3B6591BE8FF027D23255C48C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Slice The Cake - The Man With No Face (2012) [FLAC|Lossless]<Progressive Deathco
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Downplay - The Human Condition [EP] (2012) [MP3|320 кб/с]<Alt. Rock / Hard Ro
 ```bash
 magnet:?xt=urn:btih:208E90B1FF48564A25F660A6802514E85AE9FFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:26F258802FCABD1876E70CB04572ACDB92F53C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Destinity - Resolve In Crimson (2012) [FLAC|Lossless]<Melodic Death / Thrash Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ CD!:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +394,7 @@ Alt-J - An Awesome Wave (2012) [MP3|320 кб/с]<Indie-Pop, Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:8EA8661304052237DB8E52E24D39F95567CFF090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

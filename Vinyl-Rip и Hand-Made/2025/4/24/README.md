@@ -22,8 +22,7 @@ A4 Don't Let Me Be Misunderstood(   Читать дальше...   )Жанр: Ro
 ```bash
 magnet:?xt=urn:btih:3E97D38314C79AC42D79FDA1BB4A3E1DCEE9DE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Erebus(   Читать дальше...   )Жанр: Easy Listening, DiscoПр
 ```bash
 magnet:?xt=urn:btih:E3CC1B01DC27FBCC5FD0F191D1BA1F4C4BE8CBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Akrea - немецкая метал-группа из Эрдинга, Бавар
 ```bash
 magnet:?xt=urn:btih:D2BBA07F5A4AD0760273008CDCF46532150F29BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 - Into The Light(   Читать дальше...   )Жанр: Melodic Doom, D
 ```bash
 magnet:?xt=urn:btih:E46DCDC5F4236174B175A743E7D6AAEAADDB6D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy Met
 ```bash
 magnet:?xt=urn:btih:9F9B5AA898420277A2B4579211FEC26788455A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Trail of Tears — норвежская метал-группа. Сформир�
 ```bash
 magnet:?xt=urn:btih:60212CBAA7B09970029C76032C55A4B114CA5A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ B1 Soul Hacker(   Читать дальше...   )Жанр: Death Metal, Groove,
 ```bash
 magnet:?xt=urn:btih:6BD3AF15189B6011AC2F226597EA9F9FCF051BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ A4 Spaceball Ricochet(   Читать дальше...   )Жанр: Classic Rock,
 ```bash
 magnet:?xt=urn:btih:87504053DF098095672B8E3DCE58F715D5140216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ A4. Jumpdafuckup(   Читать дальше...   )Жанр: Thrash Metal, Nu M
 ```bash
 magnet:?xt=urn:btih:3CA8B0D0700FFB19EC69B448304603F53A3E0990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ A4 After The Sepulture(   Читать дальше...   )Жанр: Black Metal�
 ```bash
 magnet:?xt=urn:btih:ECCF188262971A46E1F542335356873E7D982DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ System Shock - группа из Норрчёпинга, Швеция. Осно�
 ```bash
 magnet:?xt=urn:btih:EC6080A6E0A9083B2BBB289CB07A8EE4AF827E72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Hilastherion - метал-группа из Ваасы, Финляндия, ос
 ```bash
 magnet:?xt=urn:btih:F29F081AB93076B68DF849FC02E47D19B6AEA357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Darkness By Oath - испанская метал-группа. Основана 
 ```bash
 magnet:?xt=urn:btih:3D9CC669AC4F7ED6ACA7CC188939FC64EB106332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Fractal Gates - французская метал-группа, образова
 ```bash
 magnet:?xt=urn:btih:BB10FA859A3C6C71F719489FD8DD642742800F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ Cradle of Filth — английская метал-группа, основан
 ```bash
 magnet:?xt=urn:btih:6D1816D9F39B4FFBF4B7C60D68773544DAABED03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ Machine Head — американская грув-метал-группа, об
 ```bash
 magnet:?xt=urn:btih:B0C40BFEAF2C79B77DD98732F7E83D1A8B3D2C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ Bleed from Within — шотландская металкор-группа из 
 ```bash
 magnet:?xt=urn:btih:6CA595DF7531FC36F0B9B16F8D7B9B0CFC471E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ Nachtblut - немецкая дарк-метал группа, основанн�
 ```bash
 magnet:?xt=urn:btih:7F777968699ED6F10B36BFFEBB3F57185143D602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

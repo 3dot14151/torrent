@@ -19,8 +19,7 @@ Dwarf Fortress - стратегия со сложной симуляцией о�
 ```bash
 magnet:?xt=urn:btih:F843673EB03FBCDEE0B5BB4D16430A9A748D252C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C85C694E544421420D8CF41B7401FE5AB19CC55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F03BAEC31C42E5051BDC29C2E41066AED665464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ LEGO Pirates of the Caribbean: The Video Game - это аркада от тре�
 ```bash
 magnet:?xt=urn:btih:E9B4509929576C3FFD9857D20FD28203A7AC0FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

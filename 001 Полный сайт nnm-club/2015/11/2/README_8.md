@@ -22,8 +22,7 @@ Walt Dickerson Quartet - Impressions of a Patch of Blue (1965) /1999, Verve Musi
 ```bash
 magnet:?xt=urn:btih:6BD97AC75C071B1EDFA0E44BF4BA3593E1D77815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6505A7C19B731C1E5EAF4B25CDF19AAEDA5E522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Dizzy Gillespie - One Night In Washington (1955) /2013, Warner/[FLAC|tracks+.cue
 ```bash
 magnet:?xt=urn:btih:E5A5B8BC33B0D8B7210AD1D5E1E3BCAA6B3C2E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38A185861218AB5B01143D94BEC74FCAC3B3AA1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4F2A65968447FD3AA3D219D1C8D1EC6D876F632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Harry Connick, Jr. - That Would Be Me (2015) /Columbia Records/[FLAC|image+.cue]
 ```bash
 magnet:?xt=urn:btih:F8A8E1DA51D080E88B241341B8C44C3C31FBA558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01E49A5F2D0D7288504718330C85DED32ED99214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD4C50C46558B6537CB1D797C241BDE0A583164B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ VA - Winter Xmas Deluxe Holiday Edition Smooth Lounge and selected Chillout Cafe
 ```bash
 magnet:?xt=urn:btih:F6417C809A7FF89A2165B89B1437CC11FC2910D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ VA - Deep Chill Vol 1 Finest In Ambient Chill Out and Lounge for Best Relaxation
 ```bash
 magnet:?xt=urn:btih:EB4647E808D333EEC5A856F7D2689AA71DAC13D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Rehab Allstars - Feel the Blues (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:91702C89BFD57B5B9DC6570DFE6F8F677AD393BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ VA - Autumn Hits Vol.2 (2015) [MP3|320 кб/с]<Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:CA898533C1BBBEF6B7B2AD9F6999F70100995F8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60FFE9F179CEC041F1D9BDA6F571B853E0691393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B1AA2C0307C74A1079C74042FC0EC0149A7A5DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ Pat Metheny - Selected Recordings ECM (2004) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:D1E8BF7A5A8EAF7BC0C6A3989FE93C1A2F496E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Dream Evil - Dragonslayer (2002) Japanese Edition / King Record /[FLAC|image +.c
 ```bash
 magnet:?xt=urn:btih:133E0829A87D42F8E736E6B07DF055B962A74D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB50D3CE6661DD49CA10EB6F02DC8190921324BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DD5DF564B4719D3A9A48D9D486506BD1D899B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ VA - The Future Sound of Jazz 3 (1998) [FLAC|tracks +.cue]<Future Jazz>
 ```bash
 magnet:?xt=urn:btih:5F05BC4CC9A5A227621BC9AB7389C4C0981BA079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9013AB9519CB00F1A4C873CC8520C02E315D9F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D239CB81C0DF1DD6631418A1172E9C67825E4BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ Privacy Eraser Free 4.5.0 Build 1627 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EE440E386EE0790F8BB3B01192073533B47F0D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C1206A44DDF31098B8CC81C4A960E56A7061FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ VA - Psychill Garden (2015) [MP3|320 кб/с]<Psychedelic, Ambient, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:5CDB5F7A4D0E84F12876FCD8D720E7113E835F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ VA - Love Christmas Relaxed Chill Lounge Winter Cuts (2015) [MP3|320 кб/с]<Do
 ```bash
 magnet:?xt=urn:btih:348EDDD0710C5EC7C5AB0BF34ECBE2A8494CADB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ Free Studio 6.5.9.1029 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:61ABED9463B36333515206E9E0292D5E4154C0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

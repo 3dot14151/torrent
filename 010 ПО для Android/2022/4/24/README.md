@@ -21,8 +21,7 @@ CamSam PLUS - Система предупреждения о скорости и
 ```bash
 magnet:?xt=urn:btih:BA15C4C07452774F622D0A24F3F16AA4DF550FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

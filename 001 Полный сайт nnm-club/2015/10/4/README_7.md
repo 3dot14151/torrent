@@ -19,8 +19,7 @@ Windows 7 Профессиональная SP1 x64 [OA CIS and GE] (Original) 6/
 ```bash
 magnet:?xt=urn:btih:2498AA0E8B88B709A832FB5577AC4F6FCB8D1064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ IPTV Pro v8.0.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:96F3CE498098C9ACCBC310AB5B87663F688E158E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36293334F513AC9B79F74F4B063E7FFD40C9F44D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:47581B3A36C55DA9A8602A100742EFB713DBFC8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:6F9547299FCB25151FF11ABDB7295581B6862B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

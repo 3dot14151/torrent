@@ -23,8 +23,7 @@ King's Bounty. Легенда о рыцаре - это приключенчес�
 ```bash
 magnet:?xt=urn:btih:CA7AC74EB716E24DA16CF6C3D09DB1AEA6F02DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

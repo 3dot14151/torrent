@@ -19,8 +19,7 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:8B4593921773EF9A573F5A169648B8D38986285B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Medativo - это таймер, специально созданный для �
 ```bash
 magnet:?xt=urn:btih:8B41C80184801BF370B8908BBBC4B4794D544608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

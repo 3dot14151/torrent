@@ -22,8 +22,7 @@ A Stranger In Town (Dance Mix)
 ```bash
 magnet:?xt=urn:btih:B50D1736179C1208ADABB4B60D83FBA6B8EEB0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Can't Stand It Any Longer(   Читать дальше...   )Жанр: Pop Ro
 ```bash
 magnet:?xt=urn:btih:1B7CD35271646095C8214DB499F06230FD7BE04D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Diana Krall - 10 альбомов (1996-2009) [FLAC/APE 2.0 24/96 | tracks (Viny
 ```bash
 magnet:?xt=urn:btih:7C390C9A8511FE61C78E55F93B4469D16DAA6F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

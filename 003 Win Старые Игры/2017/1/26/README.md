@@ -19,8 +19,7 @@ SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
 ```bash
 magnet:?xt=urn:btih:D8F4079377F3F8328FBEFF010A8ECDFC771600B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Max Payne 2: The Fall of Max Payne — жестокая любовная ист�
 ```bash
 magnet:?xt=urn:btih:AD4BA0067DA4F0B35A1F3A5290FB9A063259B0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

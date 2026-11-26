@@ -22,8 +22,7 @@ Sum 41 — канадская рок-группа из города Эйджак
 ```bash
 magnet:?xt=urn:btih:0BAC64F7915A47CE9989B7080A05AD955659E633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

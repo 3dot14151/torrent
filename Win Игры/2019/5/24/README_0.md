@@ -19,8 +19,7 @@ Observation - это научно-фантастический триллер, �
 ```bash
 magnet:?xt=urn:btih:353EA468E50AC3556F6BBA73A57CE0769F3AE36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 ```bash
 magnet:?xt=urn:btih:BC9789C6B6AA6E1A818CCF9FE8EC90500650DA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PLANET ALPHA - это прекрасный инопланетный мир, по
 ```bash
 magnet:?xt=urn:btih:482CD6F67F51079A49DED57F8CED117AB1136D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ War For The Overworld (2015) [Ru/Multi] (2.0.7/dlc) Repack R.G. Catalyst [Underl
 ```bash
 magnet:?xt=urn:btih:09371733EFA0049ABBEF378190DC488F8EFBDCAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dungeons 3 (2017) [Ru/En] (1.6.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3AD0620227B08A3EF72D2824A228BDF85C0624FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

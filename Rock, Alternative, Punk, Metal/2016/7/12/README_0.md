@@ -22,8 +22,7 @@ Lee Abraham - The Seasons Turn (2016) [FLAC|Lossless|image + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:20D535AF69DF7C0BC850A1AD0C20EFB03B470036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vinnie Moore - Aerial Visions (2015) [FLAC|Lossless|image + .cue] <Neoclassical,
 ```bash
 magnet:?xt=urn:btih:3D8B461836D6314D0C4CD411DB2A423260C750AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ David Gilmour - Paramount Theater, Oakland CA, April 16 2006 (2006) Bootleg, Liv
 ```bash
 magnet:?xt=urn:btih:6FC718D1E47A25FC4ACA531128FD73EB020E7138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

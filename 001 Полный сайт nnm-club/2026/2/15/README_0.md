@@ -18,8 +18,7 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:392329E86A34656124E681C00D00EBDF3D53D3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:01D940E237D45647AE18DE79598AD9E81BDF833B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86271FB621F4E9662D3A356334E8534F6EDCCA60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ LocalSend — это приложение с открытым исходным �
 ```bash
 magnet:?xt=urn:btih:A548C06DE35965A2AFFBEFF3CC7823C48D149D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7.404.504czj3/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:8AFCA002B73497858FD45A45178E70FD43E78677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:BE182B3402332B3B105AABA2B17104B6EE31CAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Other s [Collectors Ed
 ```bash
 magnet:?xt=urn:btih:BA50B82118703685F47DFCB2A9D7184AACF9DD65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack FitGirl [Collectors Ed
 ```bash
 magnet:?xt=urn:btih:7AB4810EB3F6B27F52FCD618FD46696B141D3F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack Other s [Anniversary Edition]
 ```bash
 magnet:?xt=urn:btih:FAD8613FF9A5A0F5A41B3CE42C9F84D340B27C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Death Howl (2025) [Ru/Multi] (1.0.0.5.4) License GOG
 ```bash
 magnet:?xt=urn:btih:F73E8C166B120105E3B67946826C3A48FD57077D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Solargene (2022) [Ru/Multi] (1.0.43) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9E7096072F39FA928E0A5AB65A34EAA41D179716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Solargene (2022) [Ru/Multi] (1.0.43) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:DE9B273302B390B6A9BFEFDC975D343D4FC780EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Days Gone рассказывает историю Дикона Сент-Джон
 ```bash
 magnet:?xt=urn:btih:521D73281DE1937A7D1566C5746FD8BBDBE6580F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A364C18F393E097148113B38F2D17F8E2A44C7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Anno 1800 – возглавьте промышленную революцию! 
 ```bash
 magnet:?xt=urn:btih:039502CA4AE718F3DE3E7E314044CBE8E32763A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack seleZen [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:2056999C1025F51D7272092A738C98028C4DEFE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ MIO: Memories in Orbit (2026) [Ru/Multi] (r21606) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F6F5F18166ED3F0402C89A49AF4740EB9DE8E50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +446,7 @@ The Strange Lights (2026) [Ru/Multi] (Build 21829961) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2A98CC58DDF223ABAF8D12E6043E18479AAF30C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +471,7 @@ The Strange Lights (2026) [Ru/Multi] (Build 21829961) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5A883CEF5CE7A34A925839C5D81E3B611AC49A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +496,7 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:BD6F4E9C9C17A2C2C95AD99CCC0F11C9A68DC311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ Remote Desktop Server. Microsoft OneDrive удалено.(   Читать дал
 ```bash
 magnet:?xt=urn:btih:B179CD98FF34CF5BFE3150D03E5179935484CA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66E6B84274D5F6017371902852C8F4B08C48CEC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +599,7 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:5216150F1EAA799A5575F2E3D7B0C543398A6A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +624,7 @@ Coolmuster Android Assistant — программа предназначенна
 ```bash
 magnet:?xt=urn:btih:DF0A4AF99FF53C4A4EE10F8894EC01453C680EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +649,7 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:5F6D2ABDEF21D39644C6470A5A24A312AC8B3329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

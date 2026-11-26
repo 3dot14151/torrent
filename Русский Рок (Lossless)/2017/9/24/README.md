@@ -22,8 +22,7 @@ VA - Клинское Продвижение (2002) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:841877F4C87F131057FCFFC01250BC88D90A33F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

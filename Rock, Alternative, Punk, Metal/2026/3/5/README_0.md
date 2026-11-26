@@ -22,8 +22,7 @@ Love Over Gravity - The WireWorld Tapes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:CE5C172098382CA4B8091BCF8615E2368D64DA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Maestro Mojjo - Homesick (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:85E2C161EECB308FEE54F2AA109FEA7B04527F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Marswunder - Zweisechs (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:9F83FE96A0AADB900AE77399E88AFC2AB1566EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dan Jeslis - Un-Load: "Get The Load Out" Sessions (2026) [FLAC 24/48|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:751655232C956886B9300CC41F35B28EEFD466A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ R.E.M. - Reckoning (1984) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative
 ```bash
 magnet:?xt=urn:btih:62456941796FD0DAA38C6353FB2886F3FDB36B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ JJAX - Reason To Hope (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AC5CAE06E1BB9A0F44F52003299DF88CFF4DF2D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Kotipelto — финская пауэр-метал группа, названн�
 ```bash
 magnet:?xt=urn:btih:4ADDEA7FB784E4F0505B73AFB89B7C1604FB88BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ An Abstract Illusion - The Sleeping City (2025) [FLAC|Lossless|WEB-DL|tracks] <A
 ```bash
 magnet:?xt=urn:btih:87C73811E3840D53396CEA1B02C6CEB4102EAC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

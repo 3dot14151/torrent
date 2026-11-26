@@ -19,8 +19,7 @@ Agharta: the Hollow Earth [Ru] (RePack) 2000 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A4003B333E44E2A8B3E9C7605C7C5290BD709F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

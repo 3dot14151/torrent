@@ -19,8 +19,7 @@ Surface 6: Game of Gods / За гранью: Игра богов (2014) [Ru] Uno
 ```bash
 magnet:?xt=urn:btih:1F2F569AEEDD5BFBB77D34C53E237F46AD010E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magnetic: Cage Closed: головоломка с видом от первого 
 ```bash
 magnet:?xt=urn:btih:8C14C8703F0A8609CA87CD5F13F6F9FEE9C9BD01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Dwarf Run - старомодный RPG с элементами point-n-click
 ```bash
 magnet:?xt=urn:btih:AB80BBB449C129FFD37A991D8B6E93F324587C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Legends of Dawn Reborn приглашает игроков в жестокий �
 ```bash
 magnet:?xt=urn:btih:66BB9113152084130EA7EC2EF7D0908EEA04D8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Alpha Polaris: A Horror Adventure Game (2015) [Ru/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:9C02DDE521B68D18CBDFA27987FABBD196F4AA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

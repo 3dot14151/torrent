@@ -19,8 +19,7 @@ Dolby ATMOS For Android (D4A) - Большой сборник
 ```bash
 magnet:?xt=urn:btih:E03D45C732115EF04596A7E6B6F5810C2218E208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MyRadar - симпатичное погодное приложение, что �
 ```bash
 magnet:?xt=urn:btih:2863004A0295827B7992EB9B5930C4089B8E3FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Casse-o-player 3.2.3 Jubilee Update Mod by alax1972 + Cassette Pack (Unpacked) [
 ```bash
 magnet:?xt=urn:btih:AC277160EC6DCB5682A18D80634F91AF46CF3EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kodi 20.2 (Nexus) for Android [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:65591393126F687496D1A2D0800C0883FA696ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Truecaller - представляет собой электронную теле
 ```bash
 magnet:?xt=urn:btih:E79EF863C29D9864C38154ED66608D1437DA437A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Truecaller - представляет собой электронную теле
 ```bash
 magnet:?xt=urn:btih:3C40A7A7CEDEAAED58D6CA1D65A73B4A3753F9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

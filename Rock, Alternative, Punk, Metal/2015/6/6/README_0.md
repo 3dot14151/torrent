@@ -22,8 +22,7 @@ Animal Soup - Lover's Leap (2015) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D2DC75A7AEBE6A5BC6D1D260372031462828AA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Steve Hughes - Tales From The Silent Ocean (2015) [MP3|320 кб/с]<Progressive 
 ```bash
 magnet:?xt=urn:btih:9312163011F07BCE43FDE0D0406B65E9DD57D75D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Embryo - Embryo (2015) [MP3|320 кб/с]<Melodic/Symphonic Death Metal>
 ```bash
 magnet:?xt=urn:btih:9A6142600ED3640AF03DDB6A53E1651E1F6A1B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Loaded Gun - Loaded Gun (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DB1B3336E78AB4D21949961A742A112C30DEB7F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ FAQ - Цирковые Псы (2007) [MP3|320 кб/с]<Rock,Punk,Alternative>
 ```bash
 magnet:?xt=urn:btih:D6163996307437E6B1404F7415ED8D2E56EE7DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ R-Genium - Wonderful Wonderful World (2015) [MP3|320 кб/с]<Symphonic Power Me
 ```bash
 magnet:?xt=urn:btih:FAB56AF78F4F0D7D8F46E0C221D50D2FCA628707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22F0350F9A913F5BA9B27888E2A36CD7D32FF743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Grobschnitt - 79:10 (2015) 17CD Deluxe Box Set [FLAC|image+.cue]<Progressive Roc
 ```bash
 magnet:?xt=urn:btih:7030345DD2BDB5059DD4F9F1540776A10E5CAEEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Jeff Beck - Live + (2015) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:875DCB942FB3F0166DC548CD5D9C30BBC8DF633E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ FFS (Franz Ferdinand and Sparks) - FFS (2015) Deluxe Edition [MP3|320 кб/с]<I
 ```bash
 magnet:?xt=urn:btih:07F598AC191F5F0D50F38052E74402B959EC2E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Rolling Stones - Sticky Fingers (2015) Super Deluxe Edition [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:343DA10B86D886E78C551AA29CA22668E0AAD2ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Muse - Drones (2015) [FLAC|Lossless]<Alternative rock>
 ```bash
 magnet:?xt=urn:btih:91540C2E59FC67CA409548956B5250EBC7819030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

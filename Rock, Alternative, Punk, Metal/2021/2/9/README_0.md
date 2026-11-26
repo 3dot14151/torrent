@@ -22,8 +22,7 @@ Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [MP3|320 Kbps] <Cros
 ```bash
 magnet:?xt=urn:btih:61FC73B05DE939A71F9919265BC324353EECDA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:6041EF2875EE34E4A18930BD7CB8B6E93955D58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ W.E.T. - 5 Studio Albums (2009-2021) 6xCD [FLAC|Lossless|image + .cue] <Melodic 
 ```bash
 magnet:?xt=urn:btih:1644E5D737BBCC354A253499EC243B2A2D5EED4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

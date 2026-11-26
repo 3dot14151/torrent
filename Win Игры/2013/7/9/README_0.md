@@ -20,8 +20,7 @@ Mars: War Logs (2013) [Ru/En] (0.01.1722) RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8FE6927E22A72E6323E40398A75E2750A6FA84E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

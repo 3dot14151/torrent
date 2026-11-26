@@ -19,8 +19,7 @@ A simple description of atomic diffusion mechanisms in semiconductors is given, 
 ```bash
 magnet:?xt=urn:btih:C9070DBE729776304CF1C683EE38ECAB0E181EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

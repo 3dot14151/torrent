@@ -24,8 +24,7 @@ VA - Metallica Tributes Collection (20 releases) (1994-2021) hand made [restored
 ```bash
 magnet:?xt=urn:btih:806683B9DE4FBA3C7A4B8A2AC9119D2370903A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

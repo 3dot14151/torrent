@@ -22,8 +22,7 @@ Ethereal Shroud - Trisagion (2021) [FLAC|Lossless|image + .cue] <Black Metal, Fu
 ```bash
 magnet:?xt=urn:btih:2206548B2C610FCB193DEE6BF89F4D30466960E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Magic City Hippies - Water Your Garden (2022) [FLAC|Lossless|WEB-DL|tracks] <Ind
 ```bash
 magnet:?xt=urn:btih:CB585A7D678046DF28F7E414DCECEA41206600E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crystal Ball - Crysteria (2022) [MP3|320 Kbps] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:D3E9F7A47C05FA47E22943C7DBCECE2A2691E614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F76E339F2AF8A257C5C1AB400C6078CB31A29258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rhapsody Of Fire - Glory For Salvation (2021) Japanese Edition [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:5BF3325ADC2AEC86F2972EFEC5AB716A0F6469C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

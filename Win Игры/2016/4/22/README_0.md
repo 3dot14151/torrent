@@ -19,8 +19,7 @@ Frederic: Resurrection of Music Director's Cut (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:BD15075E5CCD2CD18CDA96E06734123ACBD10AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bottle - это короткая игра, которую вы проходит�
 ```bash
 magnet:?xt=urn:btih:0CE85A51214642670B15B544B47C606B80FCE0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ One Way Flight (2016) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:E185E9D031E2E2FFB112335F24002394D248EC3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kill to Collect - рогалик в киберпанковом стиле для
 ```bash
 magnet:?xt=urn:btih:F323B23FADB70134C0CCAAD0F562759FCE22CF27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

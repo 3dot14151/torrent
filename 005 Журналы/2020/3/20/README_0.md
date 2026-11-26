@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:468A22DFF18AB0471D7F78150BB18258C0D3A916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Steam Days - это полный ностальгии и воспоминани�
 ```bash
 magnet:?xt=urn:btih:DB2CCCC22DA6CCD004CEF4A23899A76D38519074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

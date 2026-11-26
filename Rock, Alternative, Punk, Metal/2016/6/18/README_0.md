@@ -22,8 +22,7 @@ Bullfrog - Second Wind (1980) Reissue, 2012, Sireena Records [MP3|320 кб/с] <
 ```bash
 magnet:?xt=urn:btih:F7CD6BD68307D328040E201C01C04056B17FE16C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Severoth - Winterfall (2015) [FLAC|Lossless|image + .cue] <Ambient, Atmospheric 
 ```bash
 magnet:?xt=urn:btih:8A0312FA25DB60ADE1E8F7C1713AB2AE3F2D92B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Severoth - Solitude (2016) [FLAC|Lossless|image + .cue] <Ambient, Atmospheric Bl
 ```bash
 magnet:?xt=urn:btih:C45A9EFB0483061159AF53CF03A2656C22DEF0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Starflyer 59 - Slow (2016) [MP3|320 кб/с] <Alternative Rock, Indie Pop, Indie
 ```bash
 magnet:?xt=urn:btih:91D0F3D4D4E6CE57ACB00CCE04A66E20D1CA7F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nemesea - 5 альбомов (2004-2016) [MP3|320 кб/с]<Gothic, Symphonic, In
 ```bash
 magnet:?xt=urn:btih:B931BDF111D39B93DB72732AF1DC22F7E40E05D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ The Defiled - Daggers (2013) [MP3|320 кб/с]<Progressive Metal, Groove Metal, 
 ```bash
 magnet:?xt=urn:btih:2B01720802DFB588FA505756D4EEF8C2C503626C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Mojo Makers - Wait Till The Morning (2013) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:ED4A3C86B61A581953560DDF4576270E66A7F39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Mechina - Xenon (2014) [MP3|320 кб/с]<Death Metal, Industrial, Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:7F8981277EDBE518365FC2D32EAEAE6C7AFF5251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Aella - Ночные ведьмы (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:2B06632863833FB0163E0C3A02B3DB4B3613B097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ VA - Power Ballads - Gold 2CD (2005) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A0AF1FB5A1F5AD6B7D737D05ADB38F37AE497E6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB8153F78650B557270EF5707E8F5AEC6F49E986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ VA - The Ultimate Rock Ballads Collection  (2007) Box Set, 8CD [FLAC|Lossless]<R
 ```bash
 magnet:?xt=urn:btih:CFBE01FEDE7D62338E2E0C89D3F58DF0B8F8E5AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

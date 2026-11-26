@@ -23,8 +23,7 @@ Oniken - это двухмерный экшн-платформер, которы
 ```bash
 magnet:?xt=urn:btih:215AB6E1FEAD3EC16A45FCB7A27E98C486A98F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ ENPY Studio же занималась разработкой техническ�
 ```bash
 magnet:?xt=urn:btih:1AC7E576A554BAA970CDA738AFFF26EDB5DB22C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Pro Cycling Manager Season / Tour de France 2012 [En] (RePack/1.3.0.0) 2012 l Au
 ```bash
 magnet:?xt=urn:btih:3D0BD772455EA6D59619B5BD04C2FB1A6170ECF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

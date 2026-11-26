@@ -18,8 +18,7 @@ Sera De | Sera VIVO Аквариумистика в Южной Франции (2
 ```bash
 magnet:?xt=urn:btih:B8FC38F0957AA59ADCA5630174D0E637172E8F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9545E48015E0CCFAED0D328FD785ED5DD92F490F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Powerman 5000 - Builders Of The Future (2014) [MP3|320 кб/с]<Industrial Rock 
 ```bash
 magnet:?xt=urn:btih:B5AD8D0BBC65E00C9C7AC6D621CF9510F6AF8D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Sera De | Террариумы-биотопы для рептилий и зем�
 ```bash
 magnet:?xt=urn:btih:6AB45DB6077938A0527BF949B84439E35D543595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Sera De | Содержание золотых рыбок в соответств
 ```bash
 magnet:?xt=urn:btih:2F51772120DE136250076A79B9B0BAFF923FCB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - John Digweed Live In Miami (2014) [FLAC|Lossless|WEB-DL]<Tech House, Techno
 ```bash
 magnet:?xt=urn:btih:2A3FCE34F9A972678633A4C19028A49E179261C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FD74918A3CB5953F7F0280941CBCEBF31161167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAFD165F6AE81A8726779C9562D72AEFCF65460B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ GJ-bu 2 | GJ-bu@ | Good Job Club Special | Клуб добрых дел OVA [201
 ```bash
 magnet:?xt=urn:btih:9822E1AA296BB41AC646D32717AA775FE1C8D2A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Gnumeric - кроссплатформенное приложение для ра
 ```bash
 magnet:?xt=urn:btih:F40D4A2C0ADA8B4EB41DA8655D47C0D9D386C4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Sera De | Кои - Чудеса природы (2013) [PDF]
 ```bash
 magnet:?xt=urn:btih:95D0C64BA3170FE1F4F623637299C7C1264EE9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E10EA9DEE09302D6389C5BA42BB69B1CD8C78BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28A696B2CE589DCF89D8B7EFC0227C70432AD0B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ Silvard Kool - Heartfelt (1994) [MP3|320 кб/с]<Neoclassical, New Age, Contemp
 ```bash
 magnet:?xt=urn:btih:66B83895AF8AAA6DEC10D76A8BF39255DC612FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ Mondtraeume (Mondträume) - Empty (2014) 2CD Limited Edition [MP3|~245 кб/с (
 ```bash
 magnet:?xt=urn:btih:E35EB397BCC7BB05E96B49B879192E1586B2D2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ Windows IT Pro/RE - профессиональное издание, целик�
 ```bash
 magnet:?xt=urn:btih:F1732E13AA832098370B06FDDE703485A777595C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Sera De | Сказочный мир аквариумов с sera Biotop Cube (20
 ```bash
 magnet:?xt=urn:btih:8DE9EB2B7516E76C3BBA3EC625562D0FC87AC3D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Sera De | Мой пруд (2013) [PDF]
 ```bash
 magnet:?xt=urn:btih:759B8A6B1B837D66F0B9116EABB8D969FA098A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ Sera De | Креветки и раки (2013) [PDF]
 ```bash
 magnet:?xt=urn:btih:8D6C7496BEDD3C507EF4C6A7E46545A2F8E3156D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ KeyCue – удобная утилита, которая поможет поль
 ```bash
 magnet:?xt=urn:btih:20DE52E82130AB63E8559F26451624517DA3E01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89D933BC33E0936C91C6C4B3BF8542EFF258D331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFB1740BA0AE5594AB20B333F2ABDC423239B184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7ABDFE79D136180CA879054788D078D2C880ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:1BBBFC3994DA4CF04EA868B4E82CB54D1E70DAC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ And more
 ```bash
 magnet:?xt=urn:btih:DE32DE71B4E4B861B85F15B33840AB3D30A2D431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

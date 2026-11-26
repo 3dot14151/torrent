@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E86B3677B0D3E2782AE273D2D458F7DAD98F6B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Mflex Sounds - Flashback Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 ```bash
 magnet:?xt=urn:btih:289F69A993ED33A3D06BF4E11AB353E6730D00EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C39C2C7B0E91B8C55822E625916E912090C999D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Greatest Love Songs (2024) [MP3|320 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:E8CD607354B947056F2ED30CDC99755BB87AB34C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Новые хитовые песни 2024, Часть 12 (2024) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:4EDB37308FA756972CCF228664142A39CAC7227A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

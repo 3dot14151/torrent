@@ -19,8 +19,7 @@ Adam - Lost Memories (2020) [En] (2.0.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:DB0A2673E0DCC317B0248492FFBFAC21B4F04B56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.3.4-3618/dlc) Repack xatab (обнов
 ```bash
 magnet:?xt=urn:btih:63E21942EDF1836785687802DD5B1B3478961CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Little Town Hero (2020) [Multi] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:D88C4C5A4F853F6B6BAB0E7E3DC01053DA771D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

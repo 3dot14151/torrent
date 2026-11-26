@@ -19,8 +19,7 @@ In search of the Lost Temple / В поисках затерянного храм
 ```bash
 magnet:?xt=urn:btih:E080B0FCF68A8FBCE0296659C8D2E561D89928A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magic Orbz [Multi6/+] (P) 2012
 ```bash
 magnet:?xt=urn:btih:5771E72EC48B705C9899D5FECF77BDCC4B18ECD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Life Quest / Жизнь удалась [Ru] (P) 2010
 ```bash
 magnet:?xt=urn:btih:36462178214A7ABF7B5FDE04A27CCB93D3D361AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ FIFA 12 Editor - Утилита для настройки управления �
 ```bash
 magnet:?xt=urn:btih:E922404C484EFA53FF78DE7C8716AB1F458DF6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B68EA140ABC9C2E58A259F7E121B4542EE0D5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

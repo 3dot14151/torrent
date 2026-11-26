@@ -19,8 +19,7 @@ Holiday Island - великолепная, насыщенная радужным
 ```bash
 magnet:?xt=urn:btih:B194E62B3FF1D7A341D4ED05D11BB9C584382C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Scorpions - Collection (1972-1990) [Vinil Rip 24bit/96kHz FLAC]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

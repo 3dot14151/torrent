@@ -28,8 +28,7 @@ Morphine Suffering - Світло не згасне (2011) [MP3|256 kbps]<Metalc
 ```bash
 magnet:?xt=urn:btih:E285BF6E8D811961EF1C5FD200D823B067D0F0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Skyfire - Esoteric (2009) [MP3|320 kbps]<Melodic Death/Power Metal>
 ```bash
 magnet:?xt=urn:btih:3D87343B482E2AE7E3D407D65C78C97D3D2D4F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Leadlight Rose - Sweet Obsession (2012) [MP3|320 kbps]<Melodic Progressive Metal
 ```bash
 magnet:?xt=urn:btih:5614E828184B3F1441DB21D049674B9AF2735356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Disc I
 ```bash
 magnet:?xt=urn:btih:FC195A533E4629E30C01AD88143FD51AD63DE1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

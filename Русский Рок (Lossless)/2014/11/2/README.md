@@ -28,8 +28,7 @@ Fangorn - Where The Tales Live On (2012) [FLAC|Lossless]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:D4D2A00F1A601C4A8758FA6A9CC2085CD38CE2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1DC4C7CB899F2D9DE783060A3130A34F6423918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

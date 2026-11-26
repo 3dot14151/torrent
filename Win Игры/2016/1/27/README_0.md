@@ -19,8 +19,7 @@ Broken Age - приключенческая игра от Тимоти Шейф�
 ```bash
 magnet:?xt=urn:btih:F4EC95FC0B75ABCEA4C2F6CA1BC26A3A92525A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ BADLAND (2015) [Ru/Multi] (Build 27.01.2016) SteamRip Let'sРlay [Game of the Ye
 ```bash
 magnet:?xt=urn:btih:B8C3BF0CC9D211751EB7C483529790135E33FF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Midnight Calling 2: Jeronimo (2016) [En] (1.0) Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:1883728490CDA91ACC41548B328078C7CBE9EF49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Diamon Jones: Devils Contract / Даймон Джонс: Дьявольский 
 ```bash
 magnet:?xt=urn:btih:DFFF4C8404BAE8D882A5316F9F5AA6F450C05A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ House of the Dying Sun - это космический экшен с подде�
 ```bash
 magnet:?xt=urn:btih:4E37C74D9D9962FE667C2D3157258F5E6F2788E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Senran Kagura: Shinovi Versus (2016) [Jp/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:E6AA5C3958A75464E4B5862CD5EFD7DAED448AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Onechanbara Z2: Chaos (2016) [Jp/En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:75A437F02FAA50539B590DE27888C1E9D8455313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Driver: San Francisco (2011) [Ru/En] (1.0.04.1114) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:B71BFE86E736DB8AC9CF7ED7DFC8A6A3E5E4E9C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

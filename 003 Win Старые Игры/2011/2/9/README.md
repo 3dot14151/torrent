@@ -23,8 +23,7 @@ Gun [Ru] (Lossless Repack) 2005 | R.G. Catalyst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Fort Boyard: Le Jeu / Fort Boyard: Твоя игра [Ru] (P) 2007
 ```bash
 magnet:?xt=urn:btih:A2D4FE33E06E341D3108BAF00E4EF1AFCE91C88D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

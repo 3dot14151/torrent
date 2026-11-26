@@ -19,8 +19,7 @@ Pokemon GO — игра в жанре дополненной реальност�
 ```bash
 magnet:?xt=urn:btih:DB1C255538F5995E738505C4755842AB50CA3764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

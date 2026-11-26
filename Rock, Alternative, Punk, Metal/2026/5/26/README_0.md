@@ -19,8 +19,7 @@ Five Finger Death Punch - Eye Of The Storm (2026) [FLAC 24/48|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:0A1CF49262D2D555009E1126F38D7F700B1DFD47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

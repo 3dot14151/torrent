@@ -18,8 +18,7 @@ Thriving City: Song предлагает перенестись в прошло�
 ```bash
 magnet:?xt=urn:btih:F27BC690C7743B5B1D10571D39C8D17F51E18221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3AF72B20611B7890B60E34D7A28FB688A49CBEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

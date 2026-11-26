@@ -19,8 +19,7 @@ izekbis | Fiction Book Designer 3.2. Краткое руководство (2011
 ```bash
 magnet:?xt=urn:btih:4B0CB1D1A4C796E9CB6311F1D2D1944E53BD0C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B96D0DC55A16A59445EBE710FB19C0C3DDCBC4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ izekbis | Руководство по созданию книг в FictionBook E
 ```bash
 magnet:?xt=urn:btih:CB6AC06BF1B623E91952163D673A705922449234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Mageia 4 Beta II [i586, x86-64] 7xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:D779F11C345B1A7525A8886B008EF3E163D1C8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

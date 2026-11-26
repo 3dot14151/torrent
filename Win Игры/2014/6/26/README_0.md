@@ -19,8 +19,7 @@ Queen's Quest: Tower of Darkness (2014) [En] Unofficial [Platinum Edition / Пл
 ```bash
 magnet:?xt=urn:btih:9B1252AC9DB592449C376A2F439F3E1EEADEB583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Parables 7: Ballad of Rapunzel (2014) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:8292F1630FA55989F6EB195786D0A3F0F74454FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Chronicles of The Witches and Warlocks / Хроники ведьм и колду
 ```bash
 magnet:?xt=urn:btih:8A62DA3BCA3BC6E28FAE89161E4879D789841F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Myths of the World 4: Of Fiends and Faeries / Мифы народов мира 4
 ```bash
 magnet:?xt=urn:btih:66A61BBD65472A40407CB5DB0B8208CAB4F24972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Magicka — сатирическая приключенческая игра, д
 ```bash
 magnet:?xt=urn:btih:6C102B50249C57125C3A6944625D916AA0C613E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Yaiba является часть ответвлением основной ли
 ```bash
 magnet:?xt=urn:btih:24BD5B0275F62D1E31CBD9BED9E5B8365FECCD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Pro Evolution Soccer 2014 создан на движке Fox Engine от Kojima 
 ```bash
 magnet:?xt=urn:btih:419B3C0B09221C2C3293CE22248291CB6643A1A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Sophia - As We Make Our Way (Unknown Harbours) (2016) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:78D0C51B3479A0DD92AEE0E950260E043A2BA8F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Deep Purple - Live In Newcastle 2001 (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:EBB924E7F72A9CEA5B2B1A6E4ED72A7ABD5FD332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

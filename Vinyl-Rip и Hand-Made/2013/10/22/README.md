@@ -25,8 +25,7 @@ B4. Follow You, Follow Me :: 05:00Жанр: Pop Rock, Prog Rock, Classic RockФ�
 ```bash
 magnet:?xt=urn:btih:01838829EC8E6C07081DCAB1029C6CAFD616A843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ B4. The Brazilian :: 04:50Жанр: Prog Rock, Pop Rock, Soft RockФормат: 
 ```bash
 magnet:?xt=urn:btih:64B202A0C14CD65C16DE13126670B18A3E02D4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ D1. Way Of The World :: 05:39(   Читать дальше...   )Жанр: Prog 
 ```bash
 magnet:?xt=urn:btih:DF49A3E5F5185A302AA8CBBFFDC3674747376CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

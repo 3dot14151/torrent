@@ -19,8 +19,7 @@ Call of Duty: Strike Team – представитель знаменитой с
 ```bash
 magnet:?xt=urn:btih:B1764D9E48546A99CCF7DCA67654886C81CC0FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

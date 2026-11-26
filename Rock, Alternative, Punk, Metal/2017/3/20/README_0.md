@@ -22,8 +22,7 @@ Crow - Crow Music (1969) Remastered, 2010, Flawed Gems [MP3|320 Kbps] <Funk, Har
 ```bash
 magnet:?xt=urn:btih:824A0143A8C0FE95553FE337EED36D9F5CAD343B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Joker - Joker (1990) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:339AE44D1E841605F92DBB77803865F5F6BCF8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Zmey Gorynich - Malafya (2016) (EP) [MP3|320 Kbps] <Folkcore, Metalcore, Pagan M
 ```bash
 magnet:?xt=urn:btih:64B664E348E9C9F114A1454E761BBEE14B3573ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nocturnal Bloodlust - The Best '09-'17 (2017) 2CD [MP3|320 Kbps] <Metalcore, Dea
 ```bash
 magnet:?xt=urn:btih:273EAE3427990803EBD43D4B0DFEC4737839648A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ignea - The Sign of Faith (2017) [FLAC|lossless|tracks + .cue] <Progressive Meta
 ```bash
 magnet:?xt=urn:btih:19616C66694C8DB7DB97B95B25507A40A78A98BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Animal ДжаZ - Любовь к полётам (2017) EP [MP3|320 Kbps] <Rock, 
 ```bash
 magnet:?xt=urn:btih:DD3A93CC372E1966231BF8D03C3CDE989023090A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Ravager - Eradicate... Annihilate... Exterminate... (2017) [MP3|320 Kbps] <Thras
 ```bash
 magnet:?xt=urn:btih:877015032FB54E9BBFF93A0D75D72A938EE94B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Brothers Moving - Brothers Moving (2012) [FLAC|Lossless|WEB-DL|tracks + .cue] <G
 ```bash
 magnet:?xt=urn:btih:D15F8B7177B3D3181F1255308CFD1DDA8085C781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

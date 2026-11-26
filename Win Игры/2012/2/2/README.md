@@ -21,8 +21,7 @@ Mafia II Enhanced Edition / Mafia 2 Расширенное Издание [Ru] (
 ```bash
 magnet:?xt=urn:btih:C9BCB3391D294D581FFE24A2E25688A04BD9144F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3B77C098F88582844125A6DEA3B5CBFA9C3FC32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Fairy Godmother Tycoon (P) [En] 2007
 ```bash
 magnet:?xt=urn:btih:1F151083E50E0524FB335B321CE1FF03136A272A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Surface: Mystery of Another World Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:BE4D4E39FF4F39F3CA9C9EAD06172B9C56B51716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ The Cross Formula (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:4A89B64CA63843A0357C9BC82D10C6AED2776AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

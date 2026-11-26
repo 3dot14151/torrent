@@ -22,8 +22,7 @@ Orphans Of Doom - Strange Worlds / Fierce Gods (2018) [MP3|320 кб/с]<Sludge M
 ```bash
 magnet:?xt=urn:btih:C4DCAFD4FC899D110509114B747C6D5655A9446C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Margenta - Династия Посвящённых 4 - Окситания (2018)
 ```bash
 magnet:?xt=urn:btih:AE3D2C42CDB87D46B2BCD15514B079E31966686A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Saxon - Thunderbolt (2018) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C3A51A0651859DD41FC9731DEC075AF4B5ACF855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ AWOLNATION - Here Come the Runts (2018) [FLAC|Lossless|tracks] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:D0935FB88FBB9FA73FC60E0878A5008952BD620A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

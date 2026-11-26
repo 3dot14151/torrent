@@ -28,8 +28,7 @@ Daniel Kandi - Always Alive 098 (2013-07-10) (2013) [MP3|192 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:6B3A8B59533A8D8B978BAADBD3F47BCF725CB405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:602EB8EC8DC538D61029FF0616FE0639EDB4968E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:114330AFA0029E936E35E2529064BCB5438B2096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Redshift - Where The Grass Doesn't Grow (2013) [MP3|320 кб/с]<Contemporary Ja
 ```bash
 magnet:?xt=urn:btih:0969271030A24667ED279762BA0291DDEEBE8109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ VA - Ibiza Club Anthems 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5ED8F2DC8AB1C87D86C94DD17513B81965DF0437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ VA - I Love Trance 2013 Vol. 2 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:481A7B2D13CB4393CF700205DE5F8EB7E7A53346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25515ACA009921AE31106CAF85DA28F0F02E0B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ VA - Global Trance Sessions Vol.9 (2013) [MP3|320 кб/с]<Trance, Progressive T
 ```bash
 magnet:?xt=urn:btih:B7D2C85DC930643DB0432D66B2EB1618BD73AEC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D39273B8DE805CD8A296C11FE79B44F80C832D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26F78F988814C4A745A145EC1201548F311A27D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ Armin Van Buuren - A State Of Trance 621 (2013) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:CA46A935076F11C229AECF96DCFAD569CDA3DFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ VA - Ibiza Trance Hits - Summer (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A8BFBD12249F8365152F853E0B57F2A595DBEF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ Christian Wallumrod Trio - No Birch (1998) [FLAC|Lossless]<Neo-Classical, Contem
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A10FE1686DA6925FD4CE303951A67C4B071AE64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:337DEA2AF2DC4244825E840448C3C5B9E8EDC680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ VA - Улетная сотня летнего Trance vol.16 (2013) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:635AACC3C6E1423D5522C01F155A40D7D4AF75F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EFDF341E003BED1EB1224758B4CA183C3A7534A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ The Forty Nighters - One In Five Million (2012) [MP3|320 кб/с]<Electric Blues
 ```bash
 magnet:?xt=urn:btih:57DE3A5F9B5FC7DD6412C61B192D3E21C4A80819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ Somnus Inc. - Break Free EP (2013) [MP3|320 кб/с]<Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:C1FCD077AE77BC870D76CA6890BAC61F55A5375B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ Mflex - MegaMix II ( By SpaceCsoky ) (2013) [MP3|320 кб/с]<Electronic, Space,
 ```bash
 magnet:?xt=urn:btih:F0354F34CF7EA305F5645EDBD6E7E9FA9B7621BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADF5A02C72938F196F41DFD5F8309E41582601F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B229B35413C7EC1BE1EA34ADB7E69DC1C5AE4CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ Carlo Celuque - Cyber Love (2013) [MP3|320 кб/с]<Ambient, New Age, Spacesynth
 ```bash
 magnet:?xt=urn:btih:AFC30FF0BEF6B47A85B603B610AF37C8C53D79D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +704,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ Google Chrome - бесплатный новейший браузер, позво
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D3FB03358CC784BDE7928C1B25A99B9D323D0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

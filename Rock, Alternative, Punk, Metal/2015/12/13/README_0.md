@@ -22,8 +22,7 @@ Annalist - Artemis (1995) [FLAC|Lossless|image+.cue]<Neo-Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D682731F966C499BB602500130ADBAF1C66515C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hydra - Rock The World (1976) Reissue, 2010, Crossroad Productions [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:34D9C0E792A7AEC0DE4224C30C5AE1741651F89F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F373DAD1C284A3B1DB825263D3B948744730A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DF2B6B7FA99D062AAFFCD8DCF7F5C4CA1F61495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Made In Ural Vol.3 (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:3A7A38F1E52A3100288133D46DC1D2A9411CAE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Chris Rea - Auberge (1991) [FLAC|Lossless|image + .cue]<Soft Rock>
 ```bash
 magnet:?xt=urn:btih:8CA3C300451C39497EE26DB3D69AA025F1C2D8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Stone Sour - Straight Outta Burbank (2015) EP [MP3|320 кб/с] <Alt. Metal, Nu-
 ```bash
 magnet:?xt=urn:btih:40A36AB85574CC071B478DC18AA5C7010972DEE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

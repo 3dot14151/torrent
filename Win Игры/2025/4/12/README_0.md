@@ -19,8 +19,7 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:22CC3BA77B466BA85E012E66D627C5E89E40DB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D7B1A2FA4A451A478179B6CADA736DC382CC8CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:D05B1DB78FFD859F9535C8B790CF5A274E2DBF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:FB286CBE54663A906D7CC64D47325AD9F752D52C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SnowRunner (2020) [Ru/Multi] (35.0/dlc) Repack Other s [4-Year Anniversary Editi
 ```bash
 magnet:?xt=urn:btih:3E7338EB5E44D8B5003DB60E595E7AA1EE98F59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SNOW BROS. 2 SPECIAL - это ремейк Snow Bro. 2, выпущенной TOA
 ```bash
 magnet:?xt=urn:btih:678EC5E2639638D1B6E8C7A0927338800375221B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.7ea) Repack seleZen [Early Access]
 ```bash
 magnet:?xt=urn:btih:EBDF10374659846C39739C7CD931AC0185187822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SNOW BROS. 2 SPECIAL - это ремейк Snow Bro. 2, выпущенной TOA
 ```bash
 magnet:?xt=urn:btih:F8AA9A6CA5E3AA566BE06C42780641C0F8A47005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8E4073D1F66158D83F197F8407CB69C9ECDCACF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

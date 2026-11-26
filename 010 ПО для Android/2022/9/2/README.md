@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:476A9E3359398BD6F3AEAE242004333A9911ADDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Magnifier Plus with Flashlight 4.5.3 [En]
 ```bash
 magnet:?xt=urn:btih:878537276714A4C9D772A42D8D3A6E1DBDC0EE2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Night clock / Ночные часы v2.10.43 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1DFA5DBCB95C8A8EDDDB14843C3208B9E14D1A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Screen Mirroring - TV Miracast v4.0.0.73 Mod by vadj [En]
 ```bash
 magnet:?xt=urn:btih:D07092396BE64828B97410A644D80A40CCEE91FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WiFi Analyzer v6.0 (b98) Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3DA7BA0DE64E3A5E2470AB8DCB00ADE72AFBAE74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Device Info HW — это приложение для получения инф�
 ```bash
 magnet:?xt=urn:btih:107DE87203A80D6D0FEF847B3247618CDEB7A03F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

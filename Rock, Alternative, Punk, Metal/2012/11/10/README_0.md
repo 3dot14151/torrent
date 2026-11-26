@@ -28,8 +28,7 @@ Sin Deadly Sin - Fall From Heaven (2012) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:1BC55686B730FDAAAE0D1F86B14479B103AC8001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Kamelot - Ghost Opera (Limited Edition) (2007) [MP3|320 кб/с]<Power Metal / S
 ```bash
 magnet:?xt=urn:btih:DA59063B61E8AF7061E65B34EC237D6A84D9C9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Wings - Wings Greatest (1978) [MP3|256 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:62E2FBD407C54A2F3B091172DA44B4157F147423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Peter Gabriel - Greatest Hits (2008) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:998181C1F64EE32725BE9DABA8A49C335A2F66A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Iggy Pop - Nude & Rude: The Best of Iggy Pop (1996) [MP3|320 кб/с]<Alternativ
 ```bash
 magnet:?xt=urn:btih:5B7CD2EDB9AFB8F0B12D2F2EC54C755FF85AC588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

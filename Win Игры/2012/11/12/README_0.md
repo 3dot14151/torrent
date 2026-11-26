@@ -19,8 +19,7 @@ Time Relics: Gears of Light / Тайны Времени: Механизм Све
 ```bash
 magnet:?xt=urn:btih:235877ED378E56101BC088C1F832A32ACE50D33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ EPSXE представляет собой эмулятор Sony Playstation дл
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Supreme Commander [Ru/Multi9] (Steam-Rip/1.1.0 (1.1.3280)) 2010 | R.G. Origins
 ```bash
 magnet:?xt=urn:btih:BE47CABB663749CC36E8E40D64ECBF7033B60BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Nuclear Dawn - первая игра, в равной степени совме�
 ```bash
 magnet:?xt=urn:btih:63605E571414F0252F8E1A54EDC4A35A872B53B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Puddle (2012) [Multi] (0.2.1.45) License GOG
 ```bash
 magnet:?xt=urn:btih:5C1D4D8F00FE89D29A4FA70BEA4B531DAE1D408E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Mark of the Ninja [Ru] (RePack/1.0.7993) 2012 |  Fenixx
 ```bash
 magnet:?xt=urn:btih:21A9AF6693CD5F741851C5493065F125025E236F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Supreme Commander 2 [Ru/Multi7] (Steam-Rip/1.250) 2010 | R.G. Origins
 ```bash
 magnet:?xt=urn:btih:4718CF79F22779A85FC0501F47E48E2EEF64B0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Splinter Cell Conviction заставит адреналин бурлить в �
 ```bash
 magnet:?xt=urn:btih:6251749C40DB3EE67FCFAA6C7CE984B673845DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

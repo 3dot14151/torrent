@@ -18,8 +18,7 @@ Vivaldi - Flute Concerti, Op. 10 (2005) [MLP 5.1 48/24 |DVD-Audio]<Classical>
 ```bash
 magnet:?xt=urn:btih:4326582C7AF522858631E014508B6B98605F0029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Handyman - популярный журнал для мастеров на все
 ```bash
 magnet:?xt=urn:btih:8EDDBA2F099BE52B034263274DE3E687E3A071FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ OVERKILL’s The Walking Dead — энергичный кооперативны�
 ```bash
 magnet:?xt=urn:btih:E2C16433FFFD69BD0C0A3AE222FD37633675CBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ VA - Мировые инструментальные хиты. Тома 101 - 15
 ```bash
 magnet:?xt=urn:btih:2A6DE7D7F63A6C09080A388571E57C5A27169CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:8DD1BB3D056EF626D99C97D4E147713A5A7107F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Igor Stravinsky (1882-1971)
 ```bash
 magnet:?xt=urn:btih:00E15426440936CEEAD233B30DDB01027B3F5D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EC9F5B583111A0D5CC7A8A2D01A06BD3287FEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B6D14E2815149328A712E19CB842C56887D942F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:672B4A8108F07D5F49FA0B2A4C6FD34D06591795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61884024D892898FD70CE94814CFDBD356F8321F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Metallica - Black Album (2001) [MLP 5.1, 2.0|96/24|DVD-Audio] <metal>
 ```bash
 magnet:?xt=urn:btih:95E6E409489A7B0FB89239BBDB7AF24F0E721103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Windows 10 20in1 (x86/x64) + LTSC by Eagle123 19.11.2018 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:82C3985A94E728A7A4047116CB8D678E7449C17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ SQLServer 2012 — это значимый выпуск, который по-п�
 ```bash
 magnet:?xt=urn:btih:39BFB2BC1F2425C5772CB7B8B0F4E137A0F21415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Creative DVD-Audio Sampler Disc (2002) [MLP 5.1 96/24|DVD-Audio] <Compilation>
 ```bash
 magnet:?xt=urn:btih:6821BDEC96F4359929CE153F58111D4D5CDFD0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:789DE455705E8ED8C616DC673F24646EB477E986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D69A1EBA860530A3AA5749F6026D51C522448B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ Lexx: Спасаясь от гнева Божественной Тени, без
 ```bash
 magnet:?xt=urn:btih:E9C466A79C7B59CC810790F094AD1D2DC6363FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:614D57FF220A55AA8C0CA13E7789744D114D1009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Bunny Berigan And His Orchestra - 1937 (1994) Classics [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:353F05687886121B6D0C21A11154D885648137FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ George Cables - Looking For The Light (2003) MuseFX Records [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:C305598BB302C821994C79D1BEF3602A1F357134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ George Cables - Shared Secrets (2001) MuseFX Records [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:8B7AFAF382112FA002E647CE0F603ED44101CDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ Count Basie - Swinging The Blues (1937 - 1949) 2000, Disques Dreyfus [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:B60BCF1DAFCB13E3DE6BA407877F5DB6A19A7CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ Art Pepper - Neon Art: Volume Three (1981) 2015, Omnivore Recordings [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:D7FD68F794A7BFD80DEB54A889F4736848C7549E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

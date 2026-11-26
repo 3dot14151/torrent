@@ -19,8 +19,7 @@ Unholy Heights (2013) [En/Jp] (20171109) License GOG
 ```bash
 magnet:?xt=urn:btih:77161E33414F7BEDB47B6ADB3FAD82D82BB8E7D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bombshell – шутер, сделанный с применением техн�
 ```bash
 magnet:?xt=urn:btih:0E58CCE60EA5459D5CB4F527F4D6EDB66108F286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resident Evil® Revelations — популярная игра в жанре "у�
 ```bash
 magnet:?xt=urn:btih:1F8A276193173AE2049CF8D25025EA506EEB97BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

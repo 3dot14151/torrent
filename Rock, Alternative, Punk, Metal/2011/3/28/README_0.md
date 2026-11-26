@@ -19,8 +19,7 @@ Kiss - The Best Of Kiss: 20th Century Masters - The Millennium Collection (2006)
 ```bash
 magnet:?xt=urn:btih:684E66967C2272371220FF12D532125024E3A6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A112EBB78F9AEB4DBADA3CB96406B08568964D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

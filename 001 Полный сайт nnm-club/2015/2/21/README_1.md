@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:82825056670F0ED48187F67CFCCCF8E77AF7DC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Purity Ring - Another Eternity (2015) [MP3|320 кб/с]<Electronic, Indie Pop, S
 ```bash
 magnet:?xt=urn:btih:158FC308F7EEA6F0662BAE732FFC8EE649D0DE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E1F2A1C1ED4464F2C3B1B6E21E87D19FA4CBDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Sparks - Big Beat (1976) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Contemporary Pop/Ro
 ```bash
 magnet:?xt=urn:btih:63744BC8221D3EC1F4ECFD9511320695990E828A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ All RAW 1993 (Включая PPV) (1993) TVRip
 ```bash
 magnet:?xt=urn:btih:FFDDB15344117E02D299E7DA678E1B0DAF2314B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7149CEE825E2C74C87D0475E5A5AC6763DD38C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ UFO - A Conspiracy of Stars (2015) Limited Edition [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4F80F289F365080D25E53268CCCD37EF07747BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Steppenwolf - The Best Of Steppenwolf (1978) Remastered /1999, MCA Records/ [MP3
 ```bash
 magnet:?xt=urn:btih:B588EC341C32C68A14DDEE4DA1588D136FE95141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7859F95062EAEEA34F12107593B4A1E268CBA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:3D56114DA0E67C572CC284F4CA76CF70F4BD8B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16D5919DA475E30EC2264093BCA556FBEDE536D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Kurt Equiluz - tenor(   Читать дальше...   )Missa in C minor, K.427
 ```bash
 magnet:?xt=urn:btih:E652AEBA47F67FF6CBF69F586F6E1B9ECE8733D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
 ```bash
 magnet:?xt=urn:btih:C7F20192BCBA585BA14CC7BC206B7C44B27752AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ VA - Популярная молодежная танцплощадка (2015) [
 ```bash
 magnet:?xt=urn:btih:FA094C72913E814421C5B0CE1970941758DDE79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Neal Ford | Art of Java Web Development (2003) [PDF, FB2, DJVU, TXT, EPUB] [En]
 ```bash
 magnet:?xt=urn:btih:8D7EFB53EEAF1CD2F5814AF3244619689B8595CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ Deep Purple - Power House (1977) [WavPack|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FE5BDB7D038B1B6C0ADC35470410D91233E61A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F3909F74EF7DB9239F12B0D7A4708448B49AC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B94514EA78A004545CD289E4018F0FBE9282A74A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ Uriah Heep - Live At Koko (2015) 2CD, Deluxe Edition, Live [MP3|320 кб/с]<Har
 ```bash
 magnet:?xt=urn:btih:CE843C3D3CCB97A684FDDB192073E4F307331C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C03305B0BAA302000FB78A0CA9CDB3F0B4958C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:508DF43EF6C0B9E7E4074E011EF4BB0B183D8A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:904CFCF43B1DB8240818C900ADC1FD0E34350B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF95DB3A4F02C1C8C634155A36998651835D3BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D604D6F5CA5B25979E9ED05964AF23578E5E9EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ Riddles of the Past (2015) Unofficial
 ```bash
 magnet:?xt=urn:btih:7527C0310C65E4522E0B6E6454C72B0708A369B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86A049867557F5F987F95D63834DE154FDE66A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

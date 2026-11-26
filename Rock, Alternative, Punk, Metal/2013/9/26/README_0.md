@@ -28,8 +28,7 @@ Tiarra - Post Scriptum (2008) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:BB5EEFB596B2BC9C86D42FD2F063A0A874A90006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Wisdom - Marching For Liberty (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:536A158078A83D4BC87490CEB39FCEA2C08EAAD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Secrets - 2 Альбома (2012-2013) [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:61327D1280AEDCA8E1E55666A1CA9E032EE3C07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Witchfynde - Give 'Em Hell (1980) [FLAC|Lossless]<Heavy Metal / NWOBHM>
 ```bash
 magnet:?xt=urn:btih:EB284D803598E6890BC2D5B3047B1222AE77D165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Newman - Siren (2013) [FLAC|Lossless]<Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:9F869E7679CFE1C422D6A9773EF4B34527208B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Highway Ryders - Faith Pride & Justice (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2F8EE47BE62A6901DE85E7B6F912B0DFE9BE5EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Bonus tracks
 ```bash
 magnet:?xt=urn:btih:36F23D92AA4D19341E72BB23146C1C61376C7C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Sammy Hagar - Sammy Hagar & Friends (2013) [FLAC|Lossless]<Hard Rock / Classic R
 ```bash
 magnet:?xt=urn:btih:1A3341E05BD7AE05167ED362B43F544BC1E4DE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ ZZ Top - ZZ Top's First Album (1970) SHM-CD, 2013, Warner Music [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:CB1231E20429BB745AF0C32CB586F6BC4CEECB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ E.S.T. - Чёрная Гвардiя (2013) [MP3|~245 кб/с (V0)]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F7583D8A2B0A7898878679C91D3EB3DCAD94AEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ ZZ Top - Recycler (1990) SHM-CD /2013, Warner Music/ [FLAC|Lossless]<Blues Rock,
 ```bash
 magnet:?xt=urn:btih:7C89DE9AC4D7AF602F92B1E17770144D2B79004F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +396,7 @@ Blessthefall - 5 Альбомов (2006-2013) [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:57C6B7767FEE094B51D1A99F0D6B5ABC48E4FAFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +430,7 @@ AB/CD - The Rock'n'Roll Devil: We Salute The Originals AC/DC (1992) Japan [APE|L
 ```bash
 magnet:?xt=urn:btih:405E1854FC87A2483DFF27A06FEFBE020D7F914D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +464,7 @@ Guns N' Roses - Roses N'Guns (2013) Geffen Records / compilation [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:B0A576564A092DA949A410073A8C657BD03824A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +498,7 @@ Eyes Set To Kill - 5 Альбомов (2008-2013) [FLAC|Lossless]<Post-Hardcore 
 ```bash
 magnet:?xt=urn:btih:73B25B48E5CC4F3A3CC1720DBCDF694CDDA4B6E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

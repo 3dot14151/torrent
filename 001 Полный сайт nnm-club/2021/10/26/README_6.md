@@ -19,8 +19,7 @@ The Clock - The Best World Clock 4.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B55A7006FA97C3C78FBEE444298F01BCF7072A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MacCleanse 10 v10.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:CC2694334816007056596FDAD43911CDCFD4D05F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - The Essential Downtempo: Chillout Your Mind (2021) [AAC|~314 Kbps] <Downtem
 ```bash
 magnet:?xt=urn:btih:72615E7A9DABF6BDBE905A84D9A416CFD07F9083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ The Dear Hunter - The Indigo Child (2021) [FLAC|Lossless|WEB-DL|tracks] <Progres
 ```bash
 magnet:?xt=urn:btih:8DBE44A24D81A9924510597FB735337498DA73F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Tonight's Hero - Skeleton Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 ```bash
 magnet:?xt=urn:btih:06F1E3612D538E3453FCF56B01F9ED6787A1228C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Glacier - 2 Albums (2001-2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:4E01145ABA5886E4BE7427FE9E8EAB07426986E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ TinkerTool System - утилита для управления скрытыми 
 ```bash
 magnet:?xt=urn:btih:C3DE3B62158B3D8CD00511856020A63A9EF228D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47D2851C9FF8D41833EBE962E7696C321686BE94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Plaindrifter - Echo Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive St
 ```bash
 magnet:?xt=urn:btih:3D06009E5592714ABE8DE6DE5850E5595F073F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Fausto Papetti - Bonjour France (1998) [AAC|~336 Kbps] <Jazz, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:08E76E7B8BBE6F76DDAAD27F32170F241A2D64DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Kesem - Post-Terra (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space-Rock
 ```bash
 magnet:?xt=urn:btih:29D3E6FF8475815A97BB13D3ABEA5E45A10E80C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Sublime Merge - клиент системы контроля версий, ко�
 ```bash
 magnet:?xt=urn:btih:D8A8683A68596439152D0DBE247BD02315B34AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Shabnak - Fusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Tribal Metal, Industrual 
 ```bash
 magnet:?xt=urn:btih:03A78763FFEB866E810FB8598A2960F9EA3C0473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Ordeal & Plight - Her Bones In Whispers (2021) [FLAC|Lossless|image + .cue] <Pos
 ```bash
 magnet:?xt=urn:btih:925C839372BF309381E754D0351A6ACC827CB89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Fausto Danieli - Sax Pour Danser (1985) [AAC|~313 Kbps] <Jazz, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:8A2F737B11967EF5235FB1DB7D4D1FAC1C07C109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Display Maestro - простая утилита, которая дает вам 
 ```bash
 magnet:?xt=urn:btih:18D5B66CED401C5984AAD99B4D6F07CDC9F66A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ Opera IX - The Gospel (2018) [FLAC|Lossless|image + .cue] <Symphonic Black Metal
 ```bash
 magnet:?xt=urn:btih:7517C6692988E5BD6D680ABF8229B972A7D4BB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Real Loud - Real Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
 ```bash
 magnet:?xt=urn:btih:967A8B6B340B2089AE12D891189E53F9C55C7E3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Aspect Ratio X - калькулятор для расчёта соотношен
 ```bash
 magnet:?xt=urn:btih:48F6A1A1D19C475A748336BBC5C402E5223B4F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Deliver Express - это автоматическое решение для бы
 ```bash
 magnet:?xt=urn:btih:4E32ABED9E9AAE48D330340147904A3B809E1B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Eibon - Entering Darkness (2010) [FLAC|Lossless|image + .cue] <Sludge Metal, Doo
 ```bash
 magnet:?xt=urn:btih:CFBF2038CD0A0AADCB8F7A4861D98B7FC82F5C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:A45B09086BDCD8BF479394B3BA11C5CBE64CB826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ Tripulante - Lickan Antay (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 ```bash
 magnet:?xt=urn:btih:7F065E6E55A5E98F6CA65D154EE41D86F2C6242F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Theine 3.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8598DB9A661D55ABC567D9CA2B28EB711B387B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ Glacier - The Passing of Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 ```bash
 magnet:?xt=urn:btih:CF2682CCC04A508A5EEDD9262BFC8439554E1E6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ Dato поддерживает все языковые стандарты и яз
 ```bash
 magnet:?xt=urn:btih:0B50967CA22ABE252271081E9BCC089BE485041E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

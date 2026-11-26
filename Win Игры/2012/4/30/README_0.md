@@ -19,8 +19,7 @@ Toy Soldiers является тактической аркадной страт
 ```bash
 magnet:?xt=urn:btih:2A4A2A61F4BF0C38E912C99D3FCB17B0CC2656DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Insanely Twisted Shadow Planet (RePack) [Ru/En] 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:8C45FAA0930A684A9C1FC7A340E02E3A9C6571AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MUD: FIM Motocross World Championship [Multi5/-] (RePack) 2012 l R.G. UniGamers
 ```bash
 magnet:?xt=urn:btih:348F1AF3DA71865D3DD14A0ECE662434412CE02B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MUD: FIM Motocross World Championship (L) [Multi5/-] 2012
 ```bash
 magnet:?xt=urn:btih:BDD29E69472144708F29E5D145B3C2D35DAB8303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dark Dimensions 2: Wax Beauty Collector's Edition / Темные измерен�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

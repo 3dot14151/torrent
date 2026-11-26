@@ -19,8 +19,7 @@ Mike Halsey | Windows 8: Out of the Box [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:49D23126A0BC5D2D6433DFD5978940DBE335CEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48897B105FA1A02532B55C79B181EDE1B458B89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

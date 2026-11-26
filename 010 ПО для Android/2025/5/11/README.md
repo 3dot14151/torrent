@@ -19,8 +19,7 @@ Blaze - Виртуальный Камин 4K v1.8.0 Mod by SurvivalHorror [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:979D59AF02D4422EE5C241C5FCC60103C0EBE220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TickTick — это ваш личный мощный инструмент про
 ```bash
 magnet:?xt=urn:btih:2D28F1B5FA3D728891FEA32D089F5C12D94AB444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B288E8CFAC5E892192976DEF993124333E33288C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Squid - рукописные заметки v4.4.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2ED73128326FC1331ED310BC2DC56FECBA838A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

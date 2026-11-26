@@ -19,8 +19,7 @@ Aiseesoft Burnova – это профессиональный DVD-рекорде
 ```bash
 magnet:?xt=urn:btih:247A4EF3F0C4B7DC1DF43EA87A99F88469714C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windows Update MiniTool 22.04.2022 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:861BCB553D8654832D164E63E82B5785C567190A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Demolition - Kill Zone (2011) [MP3| ~256 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:998C59A9E4ECC9A5F0E4D35484F8C713B98656E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ U2 - U2:Duals (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:F61AB1022D24516E06BBDEB5D3B556A9778B0C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ John Lennon - Greatest Hits (2008) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:A4E31EF01D3AC235A116AC5E58F33597D795663A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Geordie — британская рок-группа, образовавшася
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Status Quo - The Best Of (2011) [MP3|320 kbps]<Рок, Поп-рок, ритм-�
 ```bash
 magnet:?xt=urn:btih:276BFCACDFE50F72FE01B22F66FD1A5CD9751AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

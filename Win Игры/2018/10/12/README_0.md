@@ -19,8 +19,7 @@ Lost Lands 6: Mistakes of the Past / Затерянные земли 6: Ошиб
 ```bash
 magnet:?xt=urn:btih:D45DCB95B5D24506974A2657111337EF744A22C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F4D7EF7A5FB8B70C55151453CC97944F79F3F1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Divinity: Original Sin 2 – является продолжением леге�
 ```bash
 magnet:?xt=urn:btih:4C722FAC11988C62C974BB1CDC58593F9918621F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

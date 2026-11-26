@@ -19,8 +19,7 @@ Myths of the World: Chinese Healer Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:3E693C01ABD657EE76093FE20215C0ED8E913D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HdO Adventure: Dr. Jekyll & Mr. Hyde: The Strange Case - Extended Edition / До
 ```bash
 magnet:?xt=urn:btih:9EAECAC4697F73FC0BF11C5E6C729663AC0B9DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dana Knightstone Novel #3: Death Upon an Austrian Sonata / Смерть под �
 ```bash
 magnet:?xt=urn:btih:FFCBC00D965485B2DCD2919E5019828BA7B7F643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Haunted Legends 4: The Curse of Vox Collector's Edition / Легенды о пр
 ```bash
 magnet:?xt=urn:btih:1CD2C3D13A478F8AE6125ADC16A96B53D5082FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Shiver 3: Moonlit Grove. Collector's Edition / Дрожь. Души леса. К
 ```bash
 magnet:?xt=urn:btih:5DEAFC89355DDFCD7F61578EDD26AEE289B4CECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ NASCAR The Game 2013 создана по лицензии NASCAR, что зна�
 ```bash
 magnet:?xt=urn:btih:90D2E7BE099D47FE93101D44EB5D6D5A9B406452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Crow это одобренная критиками, направленная н
 ```bash
 magnet:?xt=urn:btih:6BDAA00F7952706E49635FBC8050B2C2B300F05A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Jack Keane 2: The Fire Within (2013) [En] (1.0.3) RePack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:5251DD8986EE36991ABC663544FFCECA226C3002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Ride to Hell: Retribution - это экшен, который рассказыв
 ```bash
 magnet:?xt=urn:btih:635ED1F6C487FC0772E2B12FE291D85159BA3B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

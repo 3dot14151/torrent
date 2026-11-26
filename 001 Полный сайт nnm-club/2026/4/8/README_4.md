@@ -18,8 +18,7 @@ Niwatori Fighter | Rooster Fighter | Боевой петух [2026, TV, 1 из 1
 ```bash
 magnet:?xt=urn:btih:686B0BE17E0E49CA69BF2635F180334A312BC1CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5661EFC2F45B0D08497CFDABFE5E0880FD889686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5991FBD7B7A08561CD5A71C07089793F60F5B17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.49.0/dlc) Repack Hardware
 ```bash
 magnet:?xt=urn:btih:39B293CD94E7E229ABCA08E2079648839944B54D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Starsand Island (2026) [Ru/Multi] (1.0.0.7673.194862/dlc) Repack Let'sРlay [Ear
 ```bash
 magnet:?xt=urn:btih:9BCF7DD08E0F39B31D06772A829335950E9402EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A99562AD8604CF904A544B64C4012A6D8FCBAE6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3573D6713436E4E96157C702A67F57ED9A6D765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Docked (2026) [Ru/Multi] (1.0.8.1/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:5DC1B2DF8958CB4A876FD2F863126F67371346A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

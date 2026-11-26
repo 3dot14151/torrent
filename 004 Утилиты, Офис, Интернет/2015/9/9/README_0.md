@@ -19,8 +19,7 @@ AVS Document Converter - программа предназначена для п
 ```bash
 magnet:?xt=urn:btih:A36531FA8D8BD48A37A528E431FDE242146B8308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HaoZip - бесплатный архиватор китайского произ
 ```bash
 magnet:?xt=urn:btih:613CC3EA0372E60DE766AF0AD674BBB4A28805C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

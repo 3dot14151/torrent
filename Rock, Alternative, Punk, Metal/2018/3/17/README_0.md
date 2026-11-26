@@ -22,8 +22,7 @@ Self Deception - Self Deception (2018) [MP3|320 Kbps] <Alternative Rock, Modern 
 ```bash
 magnet:?xt=urn:btih:4E5094B139F9192D96B8D09F94792252E7E222C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE17376FB576C9FE6B0A43957D4E406001E045A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Operation Flashpoint: Cold War Crisis (OFP) — первая игра в сер�
 ```bash
 magnet:?xt=urn:btih:774F9DD1282DE449F47FBCA721E9C7526FF4C620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

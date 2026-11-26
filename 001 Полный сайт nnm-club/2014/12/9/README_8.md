@@ -28,8 +28,7 @@ Lay It On The Line - The First Two EPs (2014) [MP3|320 кб/с]<Melodic Hardcore
 ```bash
 magnet:?xt=urn:btih:3E77EA88ADAF5FBDFF053DCFA7796FA1027C924C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C29EF569FB06B8C829CDBC0F37AD9AA4FC1B4A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Funeral Chic - Funeral Chic (2014) [MP3|320 кб/с]<Blackened Crust, Blackened 
 ```bash
 magnet:?xt=urn:btih:A8A760F53DA2B4F5B234DFA626F6E9CD564CAFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Far From Over - The Ascent (2014) [MP3|320 кб/с]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:4EF7EAE7EA9E28A7A9101EE8FBD8310E2BCF8AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Albums, EP, Split:
 ```bash
 magnet:?xt=urn:btih:13737893AED2B134B4CB19EB66B2A5FE7BA2E303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Mlada Fronta - Night Run (2014) [FLAC|Lossless|WEB-DL]<Techno, Progressive House
 ```bash
 magnet:?xt=urn:btih:196C155E64E3E589619740E7D1A5C8E3EB8AE1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ VA - The Appaloosa All Stars (2003) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:FF779B6BF985B9454D530A9483501FBD31E7CA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ VA - Sense of Vocal Trance Volume 38 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:4F888E81564607DDFDBCDDD9DD625940026E00C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Handwriting! - Handwriting! (2014) [MP3|320 кб/с]<Screamo, Math Rock>
 ```bash
 magnet:?xt=urn:btih:8BC56EEDB38CD03AE1C8D73061CF7FFB3BA0F9C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ Disembarked - Nothing's Wrong Here (2014) [MP3|320 кб/с]<Post Hardcore, Screa
 ```bash
 magnet:?xt=urn:btih:8905545DCC8FDB915F21E9ECDB10195BF9F5F857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +344,7 @@ VA - Vocal Trance Volume One (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:245CBDF86DE35DFC5BBAC1C68217A1858A2EF398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ The Others - Empire EP (2014) [MP3|320 кб/с]<Dubstep, DeepDubstep>
 ```bash
 magnet:?xt=urn:btih:0805984A176BCF11F849915A7214C6A2C86AD669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B1E5DB4BC1B73857D17C90CD0B8E208B1A88C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ Dave Douglas Quintet - Be Still (2012) [FLAC|Lossless]<Jazz, Modern Creative, Av
 ```bash
 magnet:?xt=urn:btih:372AFDB31AD5FC25B26FBC58FC1CD37E5473886A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +464,7 @@ Folkearth - Balder's Lament (2014) [FLAC|Lossless]<Epic Folk/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:6F5EE781659571D42521E3B83F127186ECF93B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +498,7 @@ redCola Music - Dissonance (2014) [MP3|128 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:83008103D56B243A741D25A056F01BBA15C7CDAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +528,7 @@ Season of Ghosts - The Human Paradox (2014) [MP3|320 кб/с]<Modern Metal, Indu
 ```bash
 magnet:?xt=urn:btih:7995D97FE474C17A6A2108EEDEF89C5CB2339B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +562,7 @@ Hybrid Minds - Mountains Remixed (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1600C94CC56A5DE9B45562D800F4E043CEBCC886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +596,7 @@ Cavendish Trailers - Action Thriller 3 (2011) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:22575BE24138C17135C8E9DF83126A95F93B571A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +630,7 @@ Alvin Stardust - Alvin (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:C8C2002633CE72ED099AB93595F4722991D34918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCDE9900B8AC1B0C19A28E6153A446C6E5868CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +691,7 @@ Giant - Live and Acoustic - Official Bootleg (2003) [FLAC|Lossless]<AOR>
 ```bash
 magnet:?xt=urn:btih:3DA5C98172B7384DD24C409F9588BF7DC7D1755D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +723,7 @@ Giant - Don't Leave Me In Love (2001) [FLAC|Lossless]<AOR>
 ```bash
 magnet:?xt=urn:btih:5E6CA747145C9251FACB14AC85C9F06DB5E34D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +757,7 @@ Cadaveria - Silence (2014) [MP3|320 кб/с]<Dark Metal, Gothic Metal, Extreme M
 ```bash
 magnet:?xt=urn:btih:C95BCDBD09D549F9AFEF3A7E0CC084D3C99EC92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +785,7 @@ Bladerunner - Dub Dread 5 Artist Series Vol 1 (2014) [MP3|320 кб/с]<Drum'n'Ba
 ```bash
 magnet:?xt=urn:btih:2B6CCC68D9993C6F2991B6EF0B22B9CB911554A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -835,8 +810,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

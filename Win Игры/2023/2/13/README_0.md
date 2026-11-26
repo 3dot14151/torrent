@@ -19,8 +19,7 @@ Warehouse Simulator: Forklift Driver – это возможность сест�
 ```bash
 magnet:?xt=urn:btih:0C8771B949AB046C9982373285B0470379145345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Perseus: Titan Slayer - Free Trial - это возможность погруз�
 ```bash
 magnet:?xt=urn:btih:E809F71B2E8C5C5EF3CBB9DD4B7D86BD636CB1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Guild of Dungeoneering – минималистический и довольн�
 ```bash
 magnet:?xt=urn:btih:D3760ECF9ADD65245EE85C72B78EA75E7CA5A489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PERISH – это стильный шутер от первого лица на 
 ```bash
 magnet:?xt=urn:btih:701E9B2359EB1406980FC8DF31070EEAE5395611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

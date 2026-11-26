@@ -19,8 +19,7 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 ```bash
 magnet:?xt=urn:btih:FF4A447E70C18BBB95BDE61F0883D29A4EC31218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru] (08.12.2024) Unofficial SynthVo
 ```bash
 magnet:?xt=urn:btih:FA707678DCDD91E577D205E83A916DBD4BA21EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 ```bash
 magnet:?xt=urn:btih:9DCC5EE46411228067574CDAA99AFA1F0B70DC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

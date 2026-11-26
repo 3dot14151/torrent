@@ -19,8 +19,7 @@ Angry Birds Fight! 2.4.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:3081B23E64AC36622CEFFEC0A00485C41EC98630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

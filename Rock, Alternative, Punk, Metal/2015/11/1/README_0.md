@@ -22,8 +22,7 @@ Broken Glazz - Divine (1991) [FLAC|image +.cue]<Heavy Metal / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A14C134022E3B50EF481829A334ACB5A65C4754C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dream Evil - Evilized (2003) Japanese Edition / King Record /[FLAC|image +.cue]<
 ```bash
 magnet:?xt=urn:btih:A62D66C302C2963775D3A237334DC546E7B0AD4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Stranglers - All Live And All Of The Night (1987) [FLAC|image+.cue]<Punk, Po
 ```bash
 magnet:?xt=urn:btih:09D182F1D92D8705F74B54841BF242C2F85AF84E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bif Naked - Superbeautifulmonster (2005) [MP3|320 кб/с]<Rock, Pop, Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:E5AF6306EB71D19C713A133259B68AD5955D55A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Stranglers - Dreamtime (1986) [FLAC|image+.cue]<Punk, Post-punk>
 ```bash
 magnet:?xt=urn:btih:A177C158AC64EA6A528A29B8A71262939CC571A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Enemy - It's Automatic (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, Indie
 ```bash
 magnet:?xt=urn:btih:AD49FA861D81D8F5D46AA6D7AC54561EDA20917D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Spirit Of John Morgan - Spirit Of John Morgan (1971) /1993, Repertoire Records /
 ```bash
 magnet:?xt=urn:btih:A8919C8C5EBC69C5F61BBAF7D5D17155C15A4B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Darren Hayes Feat. Savage Garden - Music Box (2002) [APE|image+.cue]<Soft Rock, 
 ```bash
 magnet:?xt=urn:btih:28492D7BD60753544D973E3BE46FE492E2EB785D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Aerosmith - Rocks Donington 2014 (2015) 3CD Japanese edition, Live [FLAC|image +
 ```bash
 magnet:?xt=urn:btih:25BDF96A62CB241B0095FE7DCCD5D2D02C59445F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The BossHoss - Dos Bros (2015) [FLAC|Lossless|WEB-DL]<Alternative, Country Rock,
 ```bash
 magnet:?xt=urn:btih:75FA33341CA99E47C65D192C1DFD8B830A994049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A499FF2487410B9B3BB40D017A1B1A850C12C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ The Brian Setzer Orchestra - Rockin' Rudolph (2015) [FLAC|Lossless|WEB-DL]<Rocka
 ```bash
 magnet:?xt=urn:btih:CD142D8FAFA0ED54A43C550A75218A9CB238A98D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Brutto - Родны Край (2015) [FLAC|image+.cue]<Punk Rock, Alternative roc
 ```bash
 magnet:?xt=urn:btih:25E0B645E325CC7D28CE28DB00C16AD5C450020E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

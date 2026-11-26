@@ -20,8 +20,7 @@ IHF Handball Challenge 14 (2014) [Multi] (13.0.0.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:FD576DAE143BEDFD401BCD12865842E1C2ECA6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ MXGP - The Official Motocross Videogame – официальная игра ми
 ```bash
 magnet:?xt=urn:btih:9CBAC3584766DE846A373757AF28A1009CA5F165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ SteamWorld Dig - это стимпанк-вестерн, сочетающий в
 ```bash
 magnet:?xt=urn:btih:4C4ED052FB8AD6135EC7EDEEBAB417EB543E8713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

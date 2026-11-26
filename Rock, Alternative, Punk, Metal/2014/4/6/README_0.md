@@ -27,8 +27,7 @@ Endlich - Was Einst War (2011) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:F7F794CBAD72346A19C2651AF19134C2B5E29253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Dead Horse - Peaceful Death And Pretty Flowers (1991) [FLAC|Lossless]<Thrash Met
 ```bash
 magnet:?xt=urn:btih:271D13B66C87F2320CA1E153E59A2A20FE0D33F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Crystal Tears - Hellmade (2014) [FLAC|Lossless]<Speed/Power Metal>
 ```bash
 magnet:?xt=urn:btih:7AE4903B27A2CD426BD91A86C2A4F2BA850CF52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Caedes - Blood, War, Perversion (2005) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:B0A2320DD1873CAB93DB27E5080F7986677E63CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Barbarian - Faith Extinguisher (2014) [FLAC|Lossless]<Speed/Thrash/Black Metal>
 ```bash
 magnet:?xt=urn:btih:2EC20B7F9AD658320984E08C7A74D1752F1DB307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Crossfire - Aggression Treaty (2005) [FLAC|Lossless]<Thrash/Power Metal>
 ```bash
 magnet:?xt=urn:btih:CA41369148740C5EC7C6C22B77C5710E722EA4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Gun Barrel - Damage Dancer (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:10BDA51A25B67FDBA7FDDCD7C4E8490580D0FFE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Dead Horse - Horsecore: An Unrelated Story That's Time Consuming (1989) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:E6DAB2A3C39FD928B872D04FEDA74A5AFC6FA550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Human Collapse - Darkness To Fall (2014) [MP3|320 кб/с]<Melodic/Doom/Death Me
 ```bash
 magnet:?xt=urn:btih:652FEF2C9FC37F8EEFF95881FB31D0159123B8BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ Dynazty - Renatus (2014) [MP3|320 кб/с]<Hard Rock / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BB15B20141A477ED6E0853B34543637CA01CF485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ CD1 (00:42:11):
 ```bash
 magnet:?xt=urn:btih:26D60E1141FB694057687829739FF4E2639CF298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +384,7 @@ Eric Clapton - Clapton Chronicies The Best of Eric Clapton (2006) 2CD [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:5874503EB2D89C67B47679B5BD57F67B877A2EB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +412,7 @@ VA -The Very Best of While My Guitar Gently Weeps 2CD (2008) [FLAC|Lossless]<Roc
 ```bash
 magnet:?xt=urn:btih:1EED22032DAD02AB65C7AE4839752944DDC1419C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Prodeus — привычный шутер от первого лица, пере
 ```bash
 magnet:?xt=urn:btih:DAE0F0AC7FDBC28675AA569D4DAA07A6186D386A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

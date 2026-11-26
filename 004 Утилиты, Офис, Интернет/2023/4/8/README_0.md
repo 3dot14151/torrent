@@ -19,8 +19,7 @@ Aiseesoft PDF Converter Ultimate - мощная программа, котора
 ```bash
 magnet:?xt=urn:btih:791723ADE3DB51739DB0990DA12ABB0EC2E7EBEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PDF Eraser Pro - программа для редактирования файл
 ```bash
 magnet:?xt=urn:btih:1EA539411CABD0E62EAA1D647B6C19D621A567B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Supertramp - The Very Best Of (1992) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pr
 ```bash
 magnet:?xt=urn:btih:765744893737E078A9B71E1425439F59545B8026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - RETROспектива, часть VII: Эстрадные оркестры 
 ```bash
 magnet:?xt=urn:btih:AAC92B358757DC74DAA57697AF19AE67F1EC7578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

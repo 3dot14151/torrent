@@ -22,8 +22,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак Прошлого [Ru/
 ```bash
 magnet:?xt=urn:btih:C2D8CF0093238334B109EC563F8F06C036353CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ S.T.A.L.K.E.R. - Сердце зоны (Mod/Add-on) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:DF727B369B0156948ACCECA0108808CCF5ED52F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

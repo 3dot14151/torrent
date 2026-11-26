@@ -22,8 +22,7 @@ Pelican - Flickering Resonance (2025) Japan Edition [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:5B0FA44C0BC67737562C43EA39D467DF6C72B64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jorum - Vortex of Madness (2025) [MP3|320 Kbps] <Heavy, Doom Metal, Female Vocal
 ```bash
 magnet:?xt=urn:btih:95411BF2C80AFD16546417E13CEE67E14E327493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Disc One - Brothers In Arms:
 ```bash
 magnet:?xt=urn:btih:6150A2BB697896273E324C24B050ED77A54EB466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Celestial Wizard - Regenesis (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:04C4CF591CF7948A8B44E0ABAC4667AB637EA963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

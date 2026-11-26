@@ -19,8 +19,7 @@ Bulletstorm: Full Clip Edition - специальное издание нашу�
 ```bash
 magnet:?xt=urn:btih:5E80108AFEDB8511F40CF6D0F47E034E125C65AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Beat Slayer - гибрид из упрощенного рогалика и ри�
 ```bash
 magnet:?xt=urn:btih:A37DAFF3CC23F21EFE51BF685735986A266ADC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Farmer's Father: Save the Innocence - это настоящая история �
 ```bash
 magnet:?xt=urn:btih:1DD46E210664296E5D7B1D94B6E8FC1D59306BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SteamWorld Build является спин-оффом франшизы Стим�
 ```bash
 magnet:?xt=urn:btih:6A2C8B637C2AB8DFD3B0DADE234B629ED9B2A99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Go Fight Fantastic - приключенческий экшен с богатым
 ```bash
 magnet:?xt=urn:btih:C8D84B6EFDCF73A735DEEE4D8534200E1856B8D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Project Hunt - приближенный к реализму симулятор �
 ```bash
 magnet:?xt=urn:btih:BF8BA9EF34283A830AD553CCB4D327EFE599C532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Withering Rooms отличается от многих хорроров. Во-п
 ```bash
 magnet:?xt=urn:btih:86D9EE2A74D69F317AF75933725E7E40A5795E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Edge of Reality 9: The Legend Of Greenbush / Край реальности 9: Л
 ```bash
 magnet:?xt=urn:btih:70F2934965ABE2B268BDE836B5719AA92876F0A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

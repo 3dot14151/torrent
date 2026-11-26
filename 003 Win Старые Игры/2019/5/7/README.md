@@ -19,8 +19,7 @@ Command & Conquer 3: Kane’s Wrath / Ярость Кейна (2008) [Ru] (1.02)
 ```bash
 magnet:?xt=urn:btih:8C7A4B3B2703062FAD4A7D80DE5F80AA8F7C741A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

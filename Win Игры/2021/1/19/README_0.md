@@ -19,8 +19,7 @@ Living Legends 7: Fallen Sky / Живые легенды 7: Упавшее не�
 ```bash
 magnet:?xt=urn:btih:471E69AF8A5B6608BFF7425FA1579DFA360E8553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

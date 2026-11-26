@@ -19,8 +19,7 @@ The Butterfly Sign: Human Error - вторая глава детектива о�
 ```bash
 magnet:?xt=urn:btih:00C6D399E2110F1AC60496B27A881D8E21D99223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ War for the Overworld - это микс стратегии в реальном �
 ```bash
 magnet:?xt=urn:btih:6D698497D9DAF746DDA0CC75A17E6F59CFF0A797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Zero Escape: The Nonary Games (2017) [En/Ja] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C7640B45775C3C37F52C4AD67586526CAF66CCF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Crow's Eye (2017) [En/Sp] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5D61CCE0B0F17790D2F2E1327E0EA7CCE1E4F89F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cyberline Racing сочетает в себе взрывной экшн и пу�
 ```bash
 magnet:?xt=urn:btih:A77111A94AAA45AAA9C195CFC12808DFB2694CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SnipZ (2017) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:BF947EF87DBC8C40C517778875340D4306176FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

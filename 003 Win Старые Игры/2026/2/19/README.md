@@ -19,8 +19,7 @@ The Punisher / Каратель (2005) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:722FF01DEB06A7986C901FD392381A3B275CAEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

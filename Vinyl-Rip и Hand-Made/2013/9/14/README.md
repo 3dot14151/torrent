@@ -26,8 +26,7 @@
 ```bash
 magnet:?xt=urn:btih:22DDE1E40B6484C22AFB4AE071FE48E10136AF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ B5 Thought It Was GoodbyeЖанр: Synth-pop, PopПродолжительнос�
 ```bash
 magnet:?xt=urn:btih:FABD66B1B8551DCFD898FCFC9943026D1EF26B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

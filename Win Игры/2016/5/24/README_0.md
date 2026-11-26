@@ -19,8 +19,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License CODEX
 ```bash
 magnet:?xt=urn:btih:C5A86ED20B1B1DF09521CD8A1571DDC247B40980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Facility 47 (2015) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:CD565009AD64987E3EFDAD4C1F7C7CE77938DD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DDA33345B0290EB8C573271B6A9E70D31E1136A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Baldur's Gate II: Enhanced Edition (2013) [En/Multi] (2.2.66.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:32D43BE82F461D09557C9FB5261C1D9F37383907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

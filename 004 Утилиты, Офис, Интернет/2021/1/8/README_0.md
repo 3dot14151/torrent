@@ -19,8 +19,7 @@ Block auto-update 1.3 Portable [En]
 ```bash
 magnet:?xt=urn:btih:07AD389AFEB180961E29F284DC589F447FB13E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

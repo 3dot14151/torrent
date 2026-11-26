@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:882753E3B0B1D21C88DF2A2273DC18FB16987036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Check Engine  v1.5.8.01 [Ru] - на русском языке
 ```bash
 magnet:?xt=urn:btih:4D91A2084B23196CF7B5C654C1306A055DEDF7CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:976B31D80DC674F26656F238CA4B0036F2FFD583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

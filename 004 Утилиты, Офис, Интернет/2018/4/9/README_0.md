@@ -19,8 +19,7 @@ MInstAll Portable-Soft by Bombokot 08.04.2018 [Ru]
 ```bash
 magnet:?xt=urn:btih:0E6B8492F2C5CFCCD98C87DE3FD7AA1495780B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

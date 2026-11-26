@@ -22,8 +22,7 @@ Unanimated — шведская метал-группа, основанная в
 ```bash
 magnet:?xt=urn:btih:89A7B1317627F59747691AA209B220A1D1C53101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Countless Skies - рок-руппа из Хартфордшира, Велико�
 ```bash
 magnet:?xt=urn:btih:2D8DD6D5172F1520E1A3FA232DA68580627DA62E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Callenish Circle - метал-группа из Нидерландов, суще
 ```bash
 magnet:?xt=urn:btih:E204AD3D49AC80699CD216EAB7D77693C1DF9AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ A4 Love For Sale(   Читать дальше...   )Жанр: Pop, JazzПрод�
 ```bash
 magnet:?xt=urn:btih:6E590A54D79E5FA1EC404220F1D40D53B54912D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

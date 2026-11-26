@@ -22,8 +22,7 @@ Bloodbound — шведская метал-группа, сочетающая в
 ```bash
 magnet:?xt=urn:btih:DF9B50B56DEB4A690E67CDD03026A7F0B104D125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

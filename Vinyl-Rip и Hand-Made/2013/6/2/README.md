@@ -28,8 +28,7 @@ Finntroll — финская шведоязычная фолк-метал-гру
 ```bash
 magnet:?xt=urn:btih:E9F8936C4C4F9417AFA3496CE4BD6710AC51D39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Saxon — английская рок-группа, одна из ярких п�
 ```bash
 magnet:?xt=urn:btih:2CB798E7353228150E176EEF76F2994598A61E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D17C48478FBE2982789BCD16BE921A53BD36BEA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +131,7 @@ U.D.O. — сольный проект бывшего вокалиста Accept 
 ```bash
 magnet:?xt=urn:btih:3EE5F0F7BA07FFEC0471BDF9929BE6422F9A9165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

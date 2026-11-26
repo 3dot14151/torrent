@@ -20,8 +20,7 @@ CrossOver создаётся компанией CodeWeavers на основе и
 ```bash
 magnet:?xt=urn:btih:2BC958C93C1F0793FBDCF642472B9416BE4EE95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

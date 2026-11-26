@@ -21,8 +21,7 @@ Digital Combat Simulator: A-10C Warthog / Digital Combat Simulator: A-10C Бит
 ```bash
 magnet:?xt=urn:btih:86312DDEFA92B012C1D96F33F4B1B6D5E174F73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mass Effect 3 [Multi7/+] (L) 2012 | RELOADED
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:423D00C5B2DD594A13F093DE3909BFD13CC52230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BAB12E2B6264CD9BDFD2D462CC1A906D4095C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Really Big Sky {4.02} (L/Steam-Rip) [En] 2011 | R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:761A2AD7EF8B0EE53E1DA09748298EFC3505856C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC23B6F054DA515702CEA4988F325BC756472DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Rita James and the Race to Shangri La / Рита Джеймс и дорога к
 ```bash
 magnet:?xt=urn:btih:C3855679A744F8E4E6464C66558582A87C9E8E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

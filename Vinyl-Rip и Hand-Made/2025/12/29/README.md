@@ -22,8 +22,7 @@ Bloodbath — шведская дэт-метал-супергруппа, объ�
 ```bash
 magnet:?xt=urn:btih:EC42EC026855F347DBC2F135E9EBE88F213CA2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

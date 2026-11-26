@@ -19,8 +19,7 @@ HTC Camera 8.50.876780 [Ru]
 ```bash
 magnet:?xt=urn:btih:691F2A8295F48E3F09FF70A44F3ABD4D6ECE0CD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

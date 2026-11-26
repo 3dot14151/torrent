@@ -19,8 +19,7 @@ Glitchpunk - отдушина для всех любителей динамич�
 ```bash
 magnet:?xt=urn:btih:DB2C297048552B6D8B5272627D466E914E95BDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Police Simulator: Patrol Officers - симулятор полицейского,
 ```bash
 magnet:?xt=urn:btih:C583D23A7A402C687CAA0427F80E14172EEB6DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Welcome to Empyreum - видеоигра, в которую можно буде�
 ```bash
 magnet:?xt=urn:btih:E767FD7FB6B6410084B4FAA57DF27E437FB61D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

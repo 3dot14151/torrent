@@ -19,8 +19,7 @@ GlassWire для Android - приложение, которое позволяе
 ```bash
 magnet:?xt=urn:btih:64D65AD780FF3302FCD868201F72DB7B4EF568FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

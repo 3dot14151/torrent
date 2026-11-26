@@ -21,8 +21,7 @@ VA - Best-of-ka Шансона выпуск № 5 (2017) [MP3|256 Kbps] <Шан�
 ```bash
 magnet:?xt=urn:btih:B65C0CA1C366A6D751D6C57EB8FC1350A2A33F29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Jack Action - Atmosphera (2016) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:A03F0EBDE875E0311A0CEAF63AB6A9A8E35AFA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Just Motivated Vol.1 (Pure Sport & Fitness Music) (2017) [MP3|320 Kbps] <Ho
 ```bash
 magnet:?xt=urn:btih:1808F2F05DE60120D7B5AFFF26D65E306377E953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Русский шансон. На любимой волне выпуск �
 ```bash
 magnet:?xt=urn:btih:69F3D5E88575060652A5035519E6A1BD25E1B705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:260607E838D230259931CDA9DEA8D95728425BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Весенний хит-парад Шансона выпуск № 8 (2017)
 ```bash
 magnet:?xt=urn:btih:06CB08495913CAF26D3E30778BB98BBBD07ADF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Топовая весенняя сотня выпуск № 7 (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:C96EA000DD5B4DC9D2B00D3A96388108B1247FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ beaTunes анализирует музыкальные композиции, о�
 ```bash
 magnet:?xt=urn:btih:1C2175F42092234763C9FD61168EEE6EC5CB51CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Audio Hijack имеет блочный интерфейс, набор шабло
 ```bash
 magnet:?xt=urn:btih:0DBD4AEF372F958CBF95CC72C4FD4233FF85AE79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - Золотая вечеринка (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9ED74C742E51B26EC208A8DFDF99792E1C583356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C737E77958BD0E892C692E9229C53676C9ED230A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC3CB7FB9C93DDD910E22C7699DD85789CFA3FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31BB9EDE10618FAEBB2EC3BCD9E0227EE5681456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ VA - Зажигай вместе с Европа Плюс. Версия № 4 (2
 ```bash
 magnet:?xt=urn:btih:6428FF4EC7C744656F65BC5CE4E79BC7331B3619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F501055DA9752AA7820B0ED026ECE48C17759274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ VA - Acoustic Classics. Rock Anthems (2017) [MP3|320 Kbps] <Rock, Acoustic>
 ```bash
 magnet:?xt=urn:btih:11549ACD2132F4F3020FEBCC3609B63BB8A4C809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Sierra Cache Cleaner, предлагет пользователю широкий
 ```bash
 magnet:?xt=urn:btih:26F94942C5E803CD74C0B544E15D1348F7E02744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ VA - Deep Nu Disco House Sounds (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:7FEE9CB82F2FE3646CF6E7FB185C48C5488114BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB98E1718067ADAF3DC1C8EC573ED4223AA4DB82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D32C64F025DD33816A90A7DC426A3BCE356B296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ Wise Disk Cleaner 9.48.668 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4C712A7B4C21D0DBE0894370452B6B1359A9A5A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C9E30817C185C34BBEA8DD16D18DA17126EFF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ VA - Грешная любовь. ХХХL от радио Шансон (2017) [M
 ```bash
 magnet:?xt=urn:btih:19FF065C051F7891C2A2A5F28B82043ABA325596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2
 ```bash
 magnet:?xt=urn:btih:F73128EC7B329F41B6546267F2C23AC13AF34B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Ashampoo Snap 10.0.2 Final RePack (& Portable) by D!akov [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FD1483A68A732EBF7DB94A24C1BE7D0B6BAEE830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:4E0ECEA45CD7A8B75BCCFC00BFD15AF640FDCF3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

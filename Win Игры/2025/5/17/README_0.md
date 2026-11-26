@@ -19,8 +19,7 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:D63A6DBA21FF78D5D8FB1009E356C2404C304F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Manivore (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D4A79E2AD0C04CAF72B9C1D7EC31C1BA1E819051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2BCF51D9D1DD1D95CDEEBCD46B0F66F0C6FBF227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:087AA0F10AD2DAC78658EC7CCDCD98B263C380FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (Build 18402244) Repack
 ```bash
 magnet:?xt=urn:btih:8D7AC6BC4944C7EBC3387F6B3CF063D64077D0C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sun Haven – увлекательный проект, разработанны�
 ```bash
 magnet:?xt=urn:btih:8C668969E3175E1FDD7E47B22BE01AFED7E75D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Yes, Your Grace 2: Snowfall - кинематографичная игра про
 ```bash
 magnet:?xt=urn:btih:1A2360167C328B8FD997A5926FF79554022ABE12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Train Valley 2 - это железнодорожная экономическа�
 ```bash
 magnet:?xt=urn:btih:49D7C2E8F7872C9CBCD11D5FE1DB53BD413D061E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

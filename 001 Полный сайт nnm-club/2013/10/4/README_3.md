@@ -27,8 +27,7 @@ Nina Bradlin - Right Where You Are (2013) [MP3|320 кб/с]<Vocal Jazz, Blues>
 ```bash
 magnet:?xt=urn:btih:4A1D1D78FD30AC92023528200FCBB232FB3A740B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Multi Commander - бесплатный, удобный, мощный, функц
 ```bash
 magnet:?xt=urn:btih:BEE30B77A290B2D3AB6C6BD5221539A03F185744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Janis Siegel - Night Songs A Late Night Interlude (2013) [MP3|320 кб/с]<Vocal
 ```bash
 magnet:?xt=urn:btih:787CA4BAAF35658566DF039596E2E5EB9EB3EA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:7E5E39785CCC1460EE1AA7D43B12855C447D366E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA768E9CECB464917D8E8DA0E12452F39DE773DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Moby - Innocents (2CD Deluxe Edition) (2013) [FLAC|Lossless]<Ambient , Downtempo
 ```bash
 magnet:?xt=urn:btih:2010C419ACD0B2EF1DDE5677EED0361184C85230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7839855356A7A18365FC05F24A9B700879338101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DE4247711175D4FD8C5FE69F0F36FCAA2F10DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Sougen no Ko Tenguri / Tenguri, the Boy of the Plains / Степной маль�
 ```bash
 magnet:?xt=urn:btih:3BC2F271A4810892F3CBE72F428F76566855E946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:595A4F803C296F37B4131B5BA447FF20611D7174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ B5.  March 10, 1959 (Memories Of The Taste Of Freedom)  :: 04:13Жанр: Italo-
 ```bash
 magnet:?xt=urn:btih:C8804FD3C0806FE047CE77F8C3014E225C24BFBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6143416AFCC95B929D1C840089FDF032342C1F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BD0711A8A47693301D2E1959AF994FACBF67BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:791BABF994D5A57845CF6C57F0DE8662EDA6BFD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ Artensoft Photo Mosaic Wizard – компьютерная программа, �
 ```bash
 magnet:?xt=urn:btih:26DC794E7EB08147B670E2EC10426782881FFB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A0CF53A572EF0DF6378772B9BAF653620B3B683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1E91CD9324C8A7DE0AD9F2D971190B3B933DE5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Comedy Woman. Новый формат. Выпуск №113 (2013.10.04) SATRip
 ```bash
 magnet:?xt=urn:btih:87496E77F108E32F4CDF3A46A05591A87A5E627C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD1511D1EC38A98C348C25B6C6C3BE58CF97054F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Starперцы / Last Vegas (2013) HDTVRip [1080р] [Трейлер]
 ```bash
 magnet:?xt=urn:btih:29A688E48FBE6DF780736C8993C4296AB5E2CC46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ The Knack – My Sharona (1979) [APE 2.0 24/96|tracks (Vinyl-Rip)]<New Wave>
 ```bash
 magnet:?xt=urn:btih:D7DC408A8EB9F521C11C5A7629F4DCFA27BA83F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ VA - Monstercat 012 - Aftermath (2013) [FLAC|Lossless|WEB-DL]<Dubstep, Drumstep,
 ```bash
 magnet:?xt=urn:btih:73C4079F2CD941E354AEF8B10DB9D72C404DD224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:007DBF1FAB6AAAED5F2059EDC34203E931AB2045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDF64DCD0989F790D65AFA83A8FACC3A5F011040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B13C6D3EF4A77504923136DF1C1E532A9EF5F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ Panda Kopanda: Amefuri Circus no Maki / Panda! Go Panda!: Rainy Day Circus / Б�
 ```bash
 magnet:?xt=urn:btih:5476EF56BDC89BF7044BF1CC271E729D790D241C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

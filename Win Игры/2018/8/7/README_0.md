@@ -19,8 +19,7 @@ MachiaVillain (2018) [Ru/Multi] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:76261E75120841875835959842468B655C64E98A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Don't Play With Dolls (2018) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3E36EE21CCC8ED29C53E92656BBECC57DACC832B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Flipping Death (2018) [Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:D31E00B07320BD8748E41417CBF86FAC658C36C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Monster Energy Supercross - The Official Videogame - симулятор от Mil
 ```bash
 magnet:?xt=urn:btih:234511F4618C9D54628C88098626E1D5005ED1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dead Cells — это экшн-платформер в жанре Rogue-lite и 
 ```bash
 magnet:?xt=urn:btih:0BE0F4660F261E778BC7D7A949D63CE13CF19111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Ballads of Reemus: When the Bed Bites {1.0.4} (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:65C426E40D43B3DC5A5470CA103B2D3A4A4CB84A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Criminal Stories: Presumed Partners (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:5DDAD90F22DDF43C752140C825D511271850BD67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lara Gates: The Lost Talisman / Лара Гейтс и секретный тал
 ```bash
 magnet:?xt=urn:btih:585A76FF03D5314EA98B466E5802ED70D4A4FC20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tales of Lagoona - Orphans of the Ocean / Сказки лагуны. Сирот�
 ```bash
 magnet:?xt=urn:btih:FCA15BFA5A5C9EBC76F76962AB1FDDF74EA80918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ A Gnome's Home: The Great Crystal Crusade / Жилище гномов. Похо�
 ```bash
 magnet:?xt=urn:btih:69D69FB6159C6BE06622BF43445E460DEDE1FD41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

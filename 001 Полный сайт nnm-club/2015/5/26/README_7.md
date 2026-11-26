@@ -22,8 +22,7 @@ Azaghal - Madon Sanat (2015) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:4603126E6F2B23867F449A79EEEA86536DB0726C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Preach - Gasoline Veins (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:EDC419C9D6752BFEFB6AB1E4E987C4FEECB9C470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Dinner Club Elegant Lounge Tunes (2015) [MP3|320 кб/с]<Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:BEFF96CFA799F84751D6AB7C05531E07B678A23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mors Subita - Degeneration (2015) [MP3|320 кб/с]<Melodic Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4731A2640D627288992A8D5C2614F279AC85A2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4F2D3BF42E6FFA5D4042F504909490323B54FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Les Discrets - Live At Roadburn (2015) [MP3|320 кб/с]<Post-Rock, Shoegaze>
 ```bash
 magnet:?xt=urn:btih:89FCC14C8B223976E8259430E2D528126CEAE478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Blastar - Blastar (2015) [MP3|320 кб/с]<Progressive Rock, Psychedelic Rock, A
 ```bash
 magnet:?xt=urn:btih:771EB359A6D39BE5C169A7171650AB4E2D242032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Tock Hard - Tock Hard (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C21FACDFA55BD09046293D4FF8A9198947637AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:38250073DB44116BE5555051B029D83A945D569B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Artizan - The Furthest Reaches (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:4541B624EBD9273B92948FAF461D894E1E6C2629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Johnny Hodges & Wild Bill Davis - Jazz Tribune CD1 (2000) [FLAC|Lossless]<Jazz, 
 ```bash
 magnet:?xt=urn:btih:3D027A123DF907FED7E57EA66F4405A1E023F979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Feared - Synder (2015) [MP3|320 кб/с]<Melodic Death/Thrash Meta>
 ```bash
 magnet:?xt=urn:btih:58955B880E4E3875ADE6424AEF8EF814C2E0A027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Nightmare World - In the Fullness of Time (2015) [MP3|320 кб/с]<Progressive/P
 ```bash
 magnet:?xt=urn:btih:DAFC3F63CEF99AFB37931363C513C32D2E755550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ xKore - Wild to the Kore EP (2015) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:3FECC82BF03C107FB0D76E0FFBD78FD89A8D180F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98D701B8D4EC9F138740A454535D7F70D1DC8BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Lifehouse - Out of the Wasteland (2015) [OGG|479-569 кб/с]<Alternative, Pop R
 ```bash
 magnet:?xt=urn:btih:3EFBB7F73F17F8903D02326AF13C447AB6CFB5C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Worldview записали в студии две песни, которые п�
 ```bash
 magnet:?xt=urn:btih:F04271A7ADD9578E089F43BFEF7E6E4D6AFEF9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Black Coffee - Punto d'incontro (2015) [MP3|320 кб/с]<Jazz, Soul>
 ```bash
 magnet:?xt=urn:btih:D2056D30D44514DEF0DF3651B24F59A2241B2867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ Eilen Jewell - Sundown Over Ghost Town (2015) [MP3|320 кб/с]<Americana, Count
 ```bash
 magnet:?xt=urn:btih:D8FA3D2C9A50CA7E569DABD4C09BCA17BA56A51D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ The Lakazans - Homegrown (2015) [MP3|320 кб/с]<Country Blues, Folk Rock>
 ```bash
 magnet:?xt=urn:btih:C22DED839651BA00570B842709DC52D685CAC4F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Iron Savior - Live At The Final Frontier (2015) [MP3|320 кб/с]<Speed/Power Me
 ```bash
 magnet:?xt=urn:btih:4E0388F8B34FB682BDB2EC743421697DE41FA065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B00FE294FDF6768F8446904B5CDD097CBFB7EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1531D07875EEA26C6B1B9B973DEBDF97DB3C2CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D445E7F482431F92DB84A9788E51E19475C4066D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ Breakage - When The Night Comes (2015) [MP3|320 кб/с]<Electronica, Bass, Deep
 ```bash
 magnet:?xt=urn:btih:9D2B06DA0DBB3E5FA702DB7DC5AE92E61993E0C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E632634EB8778ABF35FCFC0FE7E5DD5EE55FD7E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

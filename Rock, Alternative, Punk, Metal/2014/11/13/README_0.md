@@ -24,8 +24,7 @@ Night Horse - The Dark Won't Hide You (2008) [MP3|320 кб/с]<Hard Rock, Blues 
 ```bash
 magnet:?xt=urn:btih:9F6F7E79D4F97B45F9C130BDEA48EBEDAA9FC7FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Devin Townsend Band - 2albums (2003-2006) [MP3|320kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E1D5FDD05132F32FA086803F6657269A5911FAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Otherwise - True Love Never Dies (2012) [MP3|320 кб/с]<Alternative/ Heavy Met
 ```bash
 magnet:?xt=urn:btih:7B50140B7F94DC17773BDD9169614C316F818345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Fifth Angel - Time Will Tell (1989) Reissue /2000, Collectables Records/ [MP3|32
 ```bash
 magnet:?xt=urn:btih:796FFE50BE2AB6A3D43938B8049FA5B1F06C7361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Otherwise - Peace at All Costs (2014) [MP3|320 кб/с]<Alternative/ Heavy Metal
 ```bash
 magnet:?xt=urn:btih:44F210343628D3C35479B551E4F42D6B99B0342B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Downfall of Gaia - 4 Альбома (2010-2014) [MP3|320 кб/с]<Screamo, Neocr
 ```bash
 magnet:?xt=urn:btih:B32C28A0CC8CB284656D8720611310D4D64631D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

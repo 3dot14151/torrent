@@ -26,8 +26,7 @@ Dismal Euphony - Autumn Leaves: The Rebellion Of Tides (1997) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:D0C7A994E7AB49C1BD7C159B7EB8E2BA6227F3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ The Used - Imaginary Enemy (2014) Limited Edition [MP3|320 кб/с]<Post Hardcor
 ```bash
 magnet:?xt=urn:btih:E2B36C7ED61D2174F9FC241CD3C17BD2B80BE90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Elbow - The Take Off And Landing Of Everything (2014) [FLAC|Lossless]<Alternativ
 ```bash
 magnet:?xt=urn:btih:1990DAC720E57DE325A880621B3334DBF9CD4863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:95C9CB3688FD660AD1D50B695C87A818E544F225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Black Label Society - Catacombs of the Black Vatican (2014) [MP3|320 кб/с]<He
 ```bash
 magnet:?xt=urn:btih:6949326D81C197D3D507F8442B6D8AB6D939300A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Michael Bolton - The Essential (2002) 2CD [FLAC|Lossless]<Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:BAE438D99B5D42E6D3781E9B3645E9E0286465F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBDB467EC77F73771E7F9F56BF84EE0B43A780F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:BB39A865FA9BF35D351C3B7123348B3231B757BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

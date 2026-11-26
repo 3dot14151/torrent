@@ -27,8 +27,7 @@ Lazarus A.D. - Black Rivers Flow (2011) [MP3|320 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:08F73CA041DE144FBB947D8DAC90791A8BDC65F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Overdrive - Angelmaker (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:63DECB05A5032B8B0C58304B622ED32428861794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:C97833EE7070E1151463F4046C4C797484497ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1126E6254A1E2DDEE4144031C64DAC5D1AE5FDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Pink Floyd - United (2011) (Bootleg) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:AC0081B937EDA8D551F70BE5F84DE40270D64046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Avril Lavigne - Goodbye Lullaby (Japanese Release) (2011) [MP3|320 kbps]<Pop Roc
 ```bash
 magnet:?xt=urn:btih:674E929A9511725D27177E9F3B5478329D8630D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Deep Purple - 30 The Very Best Of (1998) Special Edition 2CD [FLAC|Lossless]<Har
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

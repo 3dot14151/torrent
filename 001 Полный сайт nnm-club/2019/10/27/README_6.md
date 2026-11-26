@@ -18,8 +18,7 @@ Ranma 1/2 | Ranma Nibun no Ichi | Ранма 1/2 [1989, TV, 161 из 161] BDRip 
 ```bash
 magnet:?xt=urn:btih:D5713884D4657C463367611B5F032B906BA16835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Windows 10 (66in1) Sergei Strelec x86/x64 1909 (build 18363.449) [Ru]
 ```bash
 magnet:?xt=urn:btih:B19D903BF4F92EEB5DCB41A71C358BBD6204D742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BB9FE1D0F7F0A457AE2886FEBC7951181E47AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEE9BB9B6C5D70356328234C835C7174C70E7993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Windows 10 Enterprise v1909.449 x64 by molchel [Ru]
 ```bash
 magnet:?xt=urn:btih:F2CAC3CC43E733C3B4DFE7587F19693E2AF9E1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

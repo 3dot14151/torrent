@@ -22,8 +22,7 @@ Yohualli - Odio Bronce Live Ritual [live] (2014) [MP3|320 кб/с]<Atmospheric B
 ```bash
 magnet:?xt=urn:btih:F6A6F72E1C3B3BE0C44547804F9ACC40A77DB0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Goetz George - Zurueck zur Basis (2002) [MP3|192 кб/с]<Screamo>
 ```bash
 magnet:?xt=urn:btih:0ECBDD22A7DEB6D5413341DDFDDCB9E846D5A79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C085ABAD9773A44F66008CC4DB0DD773EF822A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Yosh - Metaphors (1996) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:46AB0D2947E39AD7C1703C8B8BB4FBF15CAB0F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Dysnomia - Dysnomia (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:166A5D0007328AF6A25001B6994E3E774FA3F502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9866FEF91E02DDF6EDD6C0803ECBE187133A1C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ Stormcast - Frame of Mind (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Melo
 ```bash
 magnet:?xt=urn:btih:F4BC33640E966300714C2ABD9FBAA64EA3825D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B0731993629FF6B6849CDF000F8DF8B71639ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ Boomer - Dim Side of Mars (2002) Reissue/2010, Reveal Media/ [MP3|320 кб/с]<R
 ```bash
 magnet:?xt=urn:btih:4957CF94752F97CF00C3D56AB53560C880BD5EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:F04F50373920F018A4D0FC633811920F940D7A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F24D065005328E9D28CB8AF0E44B033A6BB5D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ Clark - Edits (2014) EP [FLAC|WEB|Lossless]<Techno>
 ```bash
 magnet:?xt=urn:btih:47F5B386911B344B5D3C13DD142AC8D6839A4420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ VA - Fragments Vol. 1 (2014) [MP3|320 кб/с]<Breaks>
 ```bash
 magnet:?xt=urn:btih:9EE9F0381E7A132E9F8EADCE8719F6122FB44AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C63260EE7BBF26699B12E2AF749FF2B404B7608A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ Rainforest - Optics (2014) [MP3|320 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:E05C22E76C72A2D9BE448EFDB78AF622E284B414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ Params - Hydrogen Black (2012) [FLAC|Lossless|WEB-DL]<IDM, Glitch, Ambient>
 ```bash
 magnet:?xt=urn:btih:7D67185BC08BBE25872B56F708067AE38166980E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ Dave Douglas & Keystone - Spark of Being: Expand (2010) [FLAC|Lossless]<Jazz, Mo
 ```bash
 magnet:?xt=urn:btih:F6680FA7B016FED1D7E3625EE83B9613BB4357D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE1ABBFC0B7812A70763507FA70432DDD0B9B59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ Vi Som Alskade Varandra Sa Mycket - Den Sorgligaste Musiken I Varlden (2014) [MP
 ```bash
 magnet:?xt=urn:btih:131861C85F4B97E83A46DFCF3E63D85BE6C5C8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28D90E99A4C7C5734FDBD73E00EF8752A6EB50CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94A36D2E82EE375D50529BA0DEABD7575BCDE69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:393BC6562F2E751FB18813402DB70268CB23F3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ Waverly Lies North - A Soul In The Void (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FD0C70D261EB3707A2E602537B7EBA7D792CAE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ Nelver - Black & White (2014) [MP3|320 кб/с]< Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2DAFEA889D55CB3564745770120721FF2783216E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ Acnode - Cybernetic Misanthropy (2012) [FLAC|Lossless|WEB-DL]<IDM, Glitch, Ambie
 ```bash
 magnet:?xt=urn:btih:E84C82FA6D402D413828FB5D4925CF8C1DEA4CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ Seas of Years - Ocean Rift (2014) EP [MP3|320 кб/с]<Post Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:3BE2E2FBEDC2A72C05531273C21847D8ACF37500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ MarkMyWords предлагает простые функции форматир�
 ```bash
 magnet:?xt=urn:btih:D11CCEE2050FB1632E7B2C47D45E0A24393A3B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ EditReady 2.7 [En]
 ```bash
 magnet:?xt=urn:btih:9299C63692C89CA5E6F15BAD43CAF07FCF51BF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Text Scanner - это мощный инструмент сканирования
 ```bash
 magnet:?xt=urn:btih:1FE269DED1F042AAD1A904420542DE33839D425C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Data Extractor позволяет извлекать данные, содерж�
 ```bash
 magnet:?xt=urn:btih:FF70DD551467E4C4B3208133EC4045508E6E43D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:D47E335CF96AAC278017FE0344AA0E226924D61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Charles Davis - For The Love Of Lori (2014) Reade Street Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:FD2CB7E51A1DB94751914BC612A9C889676A1377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87D406BD914497886F72E324289B8C75E1F3CA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Soulver предназначен для «быстрой математики» 
 ```bash
 magnet:?xt=urn:btih:0BC7011007601F0E5A190B632B2B36FCE1EE12A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Screenium 3 v3.2.17 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4E8AFDB28472DD69258D4D958CF34DEE73E8D9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Mitti имеет понятный, интуитивно простой поль�
 ```bash
 magnet:?xt=urn:btih:B90450C5E2693A3EE311C22D47F68C5F09424F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ DateBook - это простое приложение для ведения еж
 ```bash
 magnet:?xt=urn:btih:C5A9665A4683AEDABCE5422C73863983CFC87F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Salon Software для Mac - это приложение, разработанн�
 ```bash
 magnet:?xt=urn:btih:C82FE968BE2C4D2322A708F0C8F3D525BF3CAB99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ Grafting The Vine - Beneath The Redwood (2020) [MP3|320 Kbps] <Instrumental Heav
 ```bash
 magnet:?xt=urn:btih:F29397374031C20BCF7B9612C6132B154681085D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ HellBones - Crossing Borders (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:0E019E9279C710BA942373486FC85FE8861EA093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Noizio - это приложение, которое заглушит уличн
 ```bash
 magnet:?xt=urn:btih:00CD2D33378B6070C789EAB00D39824B67991110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Grima - Will of the Primordial (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:DA0CA027576DF742EF67FD014247DD295D62764C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Zoommy поможет вам найти отличные бесплатные с
 ```bash
 magnet:?xt=urn:btih:F60CE67394C28DDF9392B444EACBACA18505D887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3DE89F5FCBA51C314F51CE927530A8D52B0738C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ Multitouch 1.24.4 [En]
 ```bash
 magnet:?xt=urn:btih:DC00B13CC9F4626BA8687BFA256E556F2D6A2ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ TaskPaper - простое приложение для создания и ве�
 ```bash
 magnet:?xt=urn:btih:6E0D4BCE068CBD5F43B4E0EABE4D78C0D17D94F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ SnapNDrag поддерживает PNG, JPEG и TIFF форматы, если н
 ```bash
 magnet:?xt=urn:btih:52941DD10ED69B19E6B25B934E256A24B0DED307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ NRG Player Full 2.0.3 [Ru] - Аудио плеер
 ```bash
 magnet:?xt=urn:btih:19FECE0DAC849EDB389452C4C8E9BE96E425679E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

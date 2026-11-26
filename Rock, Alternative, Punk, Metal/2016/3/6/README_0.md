@@ -22,8 +22,7 @@ Cyranoi - Exist (2016) EP [MP3|320 кб/с] <Modern Metal, Metalcore, Progressiv
 ```bash
 magnet:?xt=urn:btih:79D71BE10EFCC44F9D108C67C0D96FE3D2F15C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Singularity - [E]llusion (2016) [MP3|320 кб/с] <Progressive Deathcore, Djent>
 ```bash
 magnet:?xt=urn:btih:C39B6B171B7792AB9D6759258B0D8ECEDD5F518F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stranger - Stranger (1982) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:536D65083A59334C4FF46D44DBD34ABBF975DDD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hank Marvin - Heartbeat (1993) [MP3|320 кб/с] <Pop Rock, Classic Rock, Instru
 ```bash
 magnet:?xt=urn:btih:CFD041CCC13232C4C64213CC8C9756CECF1C01CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Theander Expression - Wonderful Anticipation (2016) [MP3|320 кб/с] <Melodic H
 ```bash
 magnet:?xt=urn:btih:99BBF199F4453790E6F22F5E4F7A3D34CC04F3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Brown Acid: The First Trip (2015) [MP3|320 кб/с] <Psychedelic Rock, Hard
 ```bash
 magnet:?xt=urn:btih:AC25495C23F49EBDE63FED51A95800C49747BC67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lethal Injektion - Sex Is Power (2016) EP [MP3|320 кб/с] <Rap Metal, Rapcore,
 ```bash
 magnet:?xt=urn:btih:E3BEA6B3AFBF4C1FB81435130E953022177BE416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Elvis Presley with the Royal Philharmonic Orchestra - If I Can Dream (2015) [FLA
 ```bash
 magnet:?xt=urn:btih:0EA5AB52D259BBEEF3BF2A59EC6F440EF503410D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Hacktivist - Outside The Box (2016) [MP3|320 кб/с] <Rap Metal, Progressive Me
 ```bash
 magnet:?xt=urn:btih:86DD0E6FDF528D513D925BEA5430AA07BD7125B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Friday Story - Cheerful (2016) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:DD85CD72D6477D4163B3DFF2F5A58F568F7DCA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Pain - Nothing Remains The Same (2002) [FLAC|Lossless|image + .cue] <Industrial 
 ```bash
 magnet:?xt=urn:btih:B2FD5EDFE8AA4796B5943331C5A8A4FC8A2A2133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

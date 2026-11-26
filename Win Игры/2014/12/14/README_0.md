@@ -22,8 +22,7 @@ Guacamelee! Gold Edition (2013) [Ru/Multi] (1.0 Upd3) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:DD7587E246F6715CFED028C537232909EDA68954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

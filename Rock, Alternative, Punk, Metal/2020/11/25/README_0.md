@@ -22,8 +22,7 @@ A Lily Gray - Sirens (2020) [MP3|320 Kbps] <Alternative Rock, Progressive Rock, 
 ```bash
 magnet:?xt=urn:btih:894F7B813D58EDA6E29A934965DF2F13F7EB9CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fates Warning - Long Day Good Night (2020) [FLAC|Lossless|image + .cue] <Progres
 ```bash
 magnet:?xt=urn:btih:D3A790EBECCFA09676332775E63296DA6C3A86D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1FDA6A70F9519639441795B5498D7C9811B927F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B708656FAB79E5484DD848BB77E486D086DFA5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Primal Scream - More Light (2013) Japanese Deluxe Edition [FLAC|Lossless]<Altern
 ```bash
 magnet:?xt=urn:btih:B30549D90C0B438F6F9EB8E244FB169A758E1403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

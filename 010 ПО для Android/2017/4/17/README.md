@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:17D27937483F75730E750F730FE6A46B9C074566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ myRouteMap 8.1.2 [En/Ru] - интерактивный планировщик м�
 ```bash
 magnet:?xt=urn:btih:837FEB79E949A8C3A197488E7FB26BF6B7BCBC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ All-In-One Toolbox Pro 7.2.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8823C1E5D0119EE5599D23282B985ABB639725CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

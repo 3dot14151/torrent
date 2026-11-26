@@ -21,8 +21,7 @@ Dusk Chapel - Astrophysics And Abnormal Activities (2022) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:213D10D6A058A82178063FF1BD53FE8011C48292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Illt - Mercy Of The World (2022) [FLAC|Lossless|image + .cue] <Thrash Black Meta
 ```bash
 magnet:?xt=urn:btih:2E1465C94757256396A2E0FD18B0CC878B48DDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Bob Brookmeyer New Art Orchestra - New Works: Celebration (1997) 1999, Challenge
 ```bash
 magnet:?xt=urn:btih:8902A5522CD997F440EF03A2285AF2ED859E4D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Charles Mingus - Blues & Roots (1959) 2007, Warner Music [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:7E8ED32C2C94BF90473DD41939B1957B76B90EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Gravegod - Promised Graveland (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:D0B05119AA6FF759B99E599329F8879F3E87D5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ A4 Night Of The Living Dead(   Читать дальше...   )Жанр: Thrash,
 ```bash
 magnet:?xt=urn:btih:4012276DE02FF8FE2771B1FBCE4542D673D0A223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Shamayna - Shamacaine (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Me
 ```bash
 magnet:?xt=urn:btih:E92D33EC5618FDC9730BF69C5734F7DA6A66E647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Monty Alexander - The River (1985) 1990, Concord Jazz [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:0C2CCD0B3CC9BFDF8EBC620B62A6B15DD3588FAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ UseEye - Stoned Mental (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal,
 ```bash
 magnet:?xt=urn:btih:02026E849E59F78EBE4B5B6B668E540C5AB8F117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

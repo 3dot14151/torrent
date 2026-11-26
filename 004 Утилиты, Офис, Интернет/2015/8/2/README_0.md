@@ -19,8 +19,7 @@ CloneBD 1.0.5.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F62193D6B397839BE0DC83077BA292C2D29431CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

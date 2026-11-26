@@ -19,8 +19,7 @@ One Read / Все Документы Читатель - Офис v1.2.4.48 Mod b
 ```bash
 magnet:?xt=urn:btih:49DBAAB2010FA8E23EFE65EF419A83B499CD3372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

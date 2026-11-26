@@ -19,8 +19,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) Repack Decepticon [
 ```bash
 magnet:?xt=urn:btih:7EEDF71A6D2834F9A9F115B71127F7AE582C4761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

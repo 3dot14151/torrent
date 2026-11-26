@@ -21,8 +21,7 @@ Simply Linux (Симпли Линукс) — бесплатная операци
 ```bash
 magnet:?xt=urn:btih:9E203A8BF55F93BD02B81CC175AAE9A8704B8092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

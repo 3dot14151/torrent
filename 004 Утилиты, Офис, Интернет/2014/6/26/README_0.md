@@ -19,8 +19,7 @@ Raise Data Recovery for FAT | NTFS - две программы предназн�
 ```bash
 magnet:?xt=urn:btih:7968ECB1D7891671FC682CE4D51900BE54C70CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ManyCam - позволяет использовать одну веб-камер
 ```bash
 magnet:?xt=urn:btih:EEB27ABD8039185D3B6A3278E718BE3112318351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

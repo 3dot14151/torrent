@@ -19,8 +19,7 @@ Mount & Blade: With Fire and Sword / Mount & Blade. Огнем и мечом - �
 ```bash
 magnet:?xt=urn:btih:00DC29D9325A94B5F7743FDA8696153179628A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

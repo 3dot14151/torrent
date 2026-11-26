@@ -19,8 +19,7 @@ Dark Reign: The Future of War [Ru] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:D7B9B32E587A6E0CF8ECB01315B668B8EA9BDD84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD4B1B5825620948A47AFDDBF7BCE589EC156F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Unrailed 2: Back on Track - это динамичный кооператив�
 ```bash
 magnet:?xt=urn:btih:303C61E00BF00E449A467CD4290E550D6D9624D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Legacy 2: Whispering Walls / Скрытое Наследие 2: Шепч�
 ```bash
 magnet:?xt=urn:btih:DDD5B2A69797F05E6444288366192123873A4D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bloons TD 5 - это стратегия, где игроку нужно за�
 ```bash
 magnet:?xt=urn:btih:107A86D2D6DDD9D35AB764731F9037FC3137A2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Last Horizon (2015) [En] (1.0.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5C48E12BBD2D33D875F2DE83E6197C30DA4F2744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Possible One: Lunar Industries (2026) [Ru/Multi] (0.7.05.0114) License GOG [Earl
 ```bash
 magnet:?xt=urn:btih:CE0D58B5751AA76E80791AB224400B97E93E59F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Flesh Made Fear - это хоррор на выживание, вдохнов�
 ```bash
 magnet:?xt=urn:btih:1FAE1ABBCC2F1B0CD9BF7555B4D43054107C105F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Seafarer: The Ship Sim (2025) [Ru/Multi] (0.5.0.2420 5) Repack Pioneer [Early Ac
 ```bash
 magnet:?xt=urn:btih:223BDBE061626F1091DB6E5CA9E2B96F7D57DB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Theropods (2026) [Ru/Multi] (0.99c) License GOG
 ```bash
 magnet:?xt=urn:btih:9A598066B3E7BA20AC5CE08E157AE100CA6E9B71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Fogpiercer (2026) [Ru/Multi] (1.0.15) License GOG
 ```bash
 magnet:?xt=urn:btih:20970A593CEF095EEDE2B3C0521DBC2295CBBE51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ STAR WARS Zero Company (2026) [Ru/Multi] (1.1 Build 25134257/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:77C976C861D0E594A67BBF00A669BC93466AA13F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CF747566B2C62885DE56A9D2F6364A25AC45E8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Silent Opera - Immortal Beauty (2011) [FLAC|Lossless]<Symphonic Metal, Gothic Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

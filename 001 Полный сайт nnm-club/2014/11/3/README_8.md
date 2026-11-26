@@ -28,8 +28,7 @@ Quimantu - Pilgrimage To The Andes (1998) [MP3|320 кб/с]<Folk, Pop, Latin>
 ```bash
 magnet:?xt=urn:btih:19A4957505B74C4A44C9FF71ADA0CA685B5A4E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Father Golem - I/O (2012) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:D2499B9B25C988CBBA918AFBB257FCCAD05537E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ VA - Deep & Dark Dubstep Vol.9 (2014) [MP3|175-320 кб/с]<Deep Dubstep, Dark D
 ```bash
 magnet:?xt=urn:btih:C5902E22317D92A74472608C2FFB8023D724661C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Lumicrea - Lumicrea (2009) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:370DDAC7D40D239A929F3881C078D813DB82425E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Los Apus - Huk Sunqulla Apukunamanta (2005) [MP3|192 кб/с]<Folk, Pop, Latin>
 ```bash
 magnet:?xt=urn:btih:CC2557A330C5DD9AD902F4EE6CD4E7053240E9E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Simon Cooper - 4 альбома (1993-2001) [MP3|192-320 кб/с]<New age, Relax
 ```bash
 magnet:?xt=urn:btih:DA90534D520381B18D555D1DA0591C6DC9520D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39CCDAEBA6B36BBAD1B4ADDBF1D56D90C2AED01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Robert J. Boyd - Healing Music (2008) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:BEE2FE52BC3F2F5FC90FB7C97EF1E1E2C8E4906C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Matt Herskowitz - Jerusalem Trilogy (2010) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:D9CBAD2FF9C3FF98F07CA03D36EA4511328ADBB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B668CEA78A8338DB8D367EE37255492C98A3DAC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ Matthew Garrison - Matthew Garrison (2002) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:B10CEC7363881FCA86A048C7BA50097F9118D38E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ Matthias Vogt Trio - Coming Up For Air (2009) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:89909769C25C51D68214DCF024447073E58B5CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AED676D3247AB74298A54D1A1BB894B0F829BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ Lange - We Are Lucky People (Remixed) (2014) [MP3|320 кб/с]<Trance, Progressi
 ```bash
 magnet:?xt=urn:btih:0F1DE1FAD840BD3876810CEFD51A06E4B5AED308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ Matthieu Bore - Live au Duc des Lombards (2011) [FLAC|Lossless|WEB-DL]<Vocal Jaz
 ```bash
 magnet:?xt=urn:btih:13902920C67ED9059542571C85170AC1BBE00DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88EB87F36B375941BE6E9E14445EE086B1B2D63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D7D944CA012A38C31EA97064265A71DEB813952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ VA - Paul Oakenfold - DJ Box - November (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:1DE347C1E3ADFEC3344E0FA33E6411EEFFB9DCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +576,7 @@ Displacer - Regenerate (2014) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Ambient, Il
 ```bash
 magnet:?xt=urn:btih:A7D8A4EEECD71B6A8C63C58F328DFC5929EF4C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA0D3790E3969C19D5377015D68C56A4F6293F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ Full Of Hell & Merzbow - Full Of Hell & Merzbow (2014) [MP3|320 кб/с]<Powervi
 ```bash
 magnet:?xt=urn:btih:BD59C5649299EDE4C5450303B5002C3AA68B2B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:511242C245A791C88E18DA25DC5C2D244E37C623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A91884D571D5E0636410503A5B71F9FABD018B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +727,7 @@ Bill Evans - Plays For Lovers (2006) [APE|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:190FEFAE507AF5B5069F199EE271A89F6A9B4CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +752,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B38000DDDBC0655ABB2A08E9BE319E725184030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +777,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49446B19042B0B40BDB8A46FA994200DE2754459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Seventh Wave - Things To Come (1974) Remastered /2005, Air Mail Archive/ [FLAC|i
 ```bash
 magnet:?xt=urn:btih:178B6808A9953502B515540E4A8812F4EAE7B3ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Seventh Wave - Psi-Fi (1975) Remastered /2005, Air Mail Archive/ [FLAC|image+.cu
 ```bash
 magnet:?xt=urn:btih:011A23326CD821DFA37111E81C632DC23E7AD223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Heavenside - A Long Way To The Stopline (2015) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:12A872699D8E8A7B729D09840D07CB4F1E2D0511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Asian Dub Foundation - More Signal More Noise (2015) [OGG| 456-528 кб/с]<Alte
 ```bash
 magnet:?xt=urn:btih:0162D9BF0ADE537B7197562FA03BCF438AB236F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

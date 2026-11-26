@@ -19,8 +19,7 @@ Transport Fever - это железнодорожная экономическа
 ```bash
 magnet:?xt=urn:btih:F1D7E3068BA4405527A97315DD3E506EFC3D91E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:DC15F342CF48B784081B6FCEE77CF17F3EBC9FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KURSK — первая документальная приключенческа
 ```bash
 magnet:?xt=urn:btih:7F1F74C729503EAE2BDDF48C5D04091B5B8A284C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

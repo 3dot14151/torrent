@@ -19,8 +19,7 @@ SpongeBob SquarePants: The Movie (2004) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:EA4A0B97C1035D1073865B192862219E93DDD596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

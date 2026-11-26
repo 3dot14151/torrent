@@ -19,8 +19,7 @@ Spirit of Revenge 4: Florrys Well / Месть духа 4: Колодец Фло
 ```bash
 magnet:?xt=urn:btih:AC89410A220C34E6AC653C2671A0B47E21D94FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RiME (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:07BE907C263B50489E0279F9542A5040A2BFB7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AereA – ролевой боевик на музыкальную тематик
 ```bash
 magnet:?xt=urn:btih:7F957ED66C21A50590C2E95EF6CBBDE3E724523C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

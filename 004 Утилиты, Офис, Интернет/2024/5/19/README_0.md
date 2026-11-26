@@ -19,8 +19,7 @@ TrustViewer - это комплексное решение для удаленн
 ```bash
 magnet:?xt=urn:btih:D3301699834CD725E77D4D74F78D55DBD80B1679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

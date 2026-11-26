@@ -19,8 +19,7 @@ Legacy of Kain Defiance Remastered (2026) [Ru/Multi] (2.0/dlc) Repack FitGirl [D
 ```bash
 magnet:?xt=urn:btih:FB42576B7E38AF1F64231BE31029184A5F1060D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GreedFall: The Dying World - приквел к оригинальной роле
 ```bash
 magnet:?xt=urn:btih:096D2C7B579B2642528A4C26C656FECEC4925B71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tales of Berseria Remastered (2026) [Ru/Multi] (1.0.2/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:CC1785DE276A62954CE0DBDB53DADD5D38F82CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alan Wake Remastered - в этом отмеченном наградами ки�
 ```bash
 magnet:?xt=urn:btih:14E4617D602FAC31A2914DF0D006594C93B33D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bloodgrounds сочетает тактические пошаговые бои �
 ```bash
 magnet:?xt=urn:btih:5BF1D8941236DABBDB16A4E48BFECE249DB45608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Under The Island - двухмерное ролевое приключение с
 ```bash
 magnet:?xt=urn:btih:6D32BFAC538096E02615A7B6907B12AC7703B960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Reus 2 выделяется своей уникальностью и увлек�
 ```bash
 magnet:?xt=urn:btih:6DC3B430E7F6A76E63E1F148BFECB53149238CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Skate Story (2025) [Ru/Multi] (20260124) Scene Rune
 ```bash
 magnet:?xt=urn:btih:E028973ADBE3EFD814992AD22E9A17751ED6622D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Elemental: Reforged (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1302061A359BC10F4317BAC6623758775894B458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Going Medieval (2021) [Ru/Multi] (1.0.43/dlc) Repack FitGirl [Fortified Edition]
 ```bash
 magnet:?xt=urn:btih:0907E7611F9EF0A026B7C42B2B5E8D9A33FC4966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Fall of an Empire (2026) [Ru/Multi] (1.240-7c39cc81d) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1BDB55084AF5E7CB7C34CF5A923621A4922B6C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Fall of an Empire (2026) [Ru/Multi] (1.240-7c39cc81d) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5572E38965DB9B284C89DF25C2965A6866082893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Mortal Kombat 11 – продолжение культовой серии фай
 ```bash
 magnet:?xt=urn:btih:1E879C3987B5A2EC656476375507E6F3DE148474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ FATAL FRAME II: Crimson Butterfly REMAKE (2026) [Ru/Multi] (1.02.01/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:D14AD4717333C71F5B86D3666C91D73566A41C79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

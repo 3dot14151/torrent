@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:229521871A0FCCEB3F4E99C6C117748C4C3466A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NGINX – это высокопроизводительный веб-серве�
 ```bash
 magnet:?xt=urn:btih:F209B674C7DFF8D50940D4E7209A47DF8F9E0BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

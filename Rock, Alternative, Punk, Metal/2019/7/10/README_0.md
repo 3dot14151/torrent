@@ -22,8 +22,7 @@ Stigmata - Калейдоскоп (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic
 ```bash
 magnet:?xt=urn:btih:E012CAF505DD6FF6A58B525F2246D14B16DE7C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

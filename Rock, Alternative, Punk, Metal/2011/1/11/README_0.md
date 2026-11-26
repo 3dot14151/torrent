@@ -28,8 +28,7 @@ Giant - Promise Land (2010) [MP3|192-320 kbps]<Rock, Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0D455369670B20AAAFE30C512CE03B4886DA047A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Red Hot Chili Peppers - дискография (1984 — 2007) [MP3|192—320 kb
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

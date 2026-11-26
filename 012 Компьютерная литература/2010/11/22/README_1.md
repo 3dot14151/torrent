@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DB41E2ADF722206DF8023A42913D9FD31DE03D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D39A608E586D805F2CFFD176EF1188913D178B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Chaos Group | VRay 1.5 SP1 Help (17 September 2007 RU) [2008] [exe]
 ```bash
 magnet:?xt=urn:btih:9E1C4498EE038B7E42371BCBD1C0F4DF165B3B43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44107231149924C0703696D6C1883C973A6ADFF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Microsoft | TechNet Technical Information Library November [2010] [ISO]
 ```bash
 magnet:?xt=urn:btih:A015167F83A8E4B9D690F0B12A0591DD50492B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

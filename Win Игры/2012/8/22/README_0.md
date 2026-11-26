@@ -19,8 +19,7 @@ Shop-N-Spree 3: Shopping Paradise [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:70BD629B9116DE1241837C31B6C303AEA0159BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legends of Atlantis: Exodus / Legends of Atlantis. Исход [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:E018CEC6F7F874BB2FB2AA5CFD9B77ED71D9D7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ VVVVVV 2.0 [En] (P) 2010 | THETA
 ```bash
 magnet:?xt=urn:btih:8455C9F6C18C0E15DF2318495E69C715E4FCCC54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Snowy: Treasure Hunter 3 / Снежок. Охотник за сокровища�
 ```bash
 magnet:?xt=urn:btih:6E22939088EC92E635BD474A022FC322E28080F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ The Amazing Spider-Man / Новый Человек-паук [Multi6\+] (L) 2012 
 ```bash
 magnet:?xt=urn:btih:9E9404975EDD5BFA52102FB6CA9C46384456D73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Galaxy on Fire 2 Full HD [Multi11/+] (L/1.0) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:6D4C5B3549979962262D1DBF2B2D746E454980D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Earth vs Mars (2025) [Ru/Multi] (001.000.4207100) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:87181E689595E50829953ED33FEBC11AA5C28A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:FF8813B846E4BECC24ED1263B79D383729B26EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Digital Deluxe E
 ```bash
 magnet:?xt=urn:btih:92085450D16543F469B457B231EE4EDB3830077A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Subnautica - это подводная приключенческая игра �
 ```bash
 magnet:?xt=urn:btih:FA5208EBB6AC6C430678F774A345B49E01768272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 ```bash
 magnet:?xt=urn:btih:85BCE8729A21B11DE40F5B7C385ED7D24CD463B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hoomanz! — это милое и забавное стелс-приключен
 ```bash
 magnet:?xt=urn:btih:C708DC3B7D49ACA661DCA5C8AF51770CB53BB1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 ```bash
 magnet:?xt=urn:btih:B767FC22BFECF067554DB3FDFA4C0B0ACB6069B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Orbyss - головоломка, построенная на логике и о�
 ```bash
 magnet:?xt=urn:btih:485AC8CF8F49BDA8E72213946F1ABC51490A1F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ BALL x PIT - динамичный фэнтезийный рогалик, где 
 ```bash
 magnet:?xt=urn:btih:A0AB72E493A3CFA9390F2C551DDFD5BB85B3F16F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Myths and Legends - торговая стратегия в реальном вр
 ```bash
 magnet:?xt=urn:btih:BB7F0D34090D7E4A42D12D13D984F34EFD5677EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:6F44F165E62CD9E8A535287AE1AC6C82FBBDC009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack FitGirl [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:511C42B1172B834DBAE7FE8705FF6C472785CA73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Decepticon [Ultimate 
 ```bash
 magnet:?xt=urn:btih:E8B1047DD5742147C9A3660F61D6EA8D1A22B62E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack seleZen [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:F1265A75BF25EE9F32EAA69C5E178DA2D6122DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack Decepticon [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:52FCC8892101DCF1540940D5EC2CEB7CF720EAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Other s [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:09E98B6CD85DC99E014D30FB6120449952B284D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ The Lonesome Guild - это одиночный ролевой боевик с в
 ```bash
 magnet:?xt=urn:btih:49421E085A9EF6E4475AC6C723FFF42C022EE4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Citizen Sleeper 2: Starward Vector - это научно-фантастичес�
 ```bash
 magnet:?xt=urn:btih:F2123525EB66D4F48B0B1BE6A86FDE97AC6F3633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ GRID - это уникальная гоночная игра. Неповтори
 ```bash
 magnet:?xt=urn:btih:8961575F9E624A66EB11ECFB8F948DD9D821875F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Undertale (2015) [Ru/En] (1.08) Repack Necros
 ```bash
 magnet:?xt=urn:btih:34F9776C25EFAEFEBADEB8579E5641E4EBCCE06F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

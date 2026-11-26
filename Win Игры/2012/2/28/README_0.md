@@ -19,8 +19,7 @@ Fantastic Creations: House of Brass Collectors Edition / Фантастичес�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Youda Fairy / Youda Лесные феи (P) [Ru] | Fyrrion
 ```bash
 magnet:?xt=urn:btih:0A529F80F217668910FD458C0BCEB9C8C1AAD2B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jigsaw Boom / Пазл Бум (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:1B40D846D404B9BDA75CDB921B6DD4D73155E61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

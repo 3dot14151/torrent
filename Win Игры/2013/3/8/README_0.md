@@ -19,8 +19,7 @@ Sacra Terra: Kiss of Death Collector's Edition / Сакра Терра. Поце
 ```bash
 magnet:?xt=urn:btih:442DE137A3CAD47DC5D86B208484703B5FC78E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dollar Dash [En/Multi5] (L) 2013 | FANiSO
 ```bash
 magnet:?xt=urn:btih:3E16DA7D8045C8C3711E7FA4DE54C017AC39C84B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Worms Revolution / Worms: Революция + 4 DLC [Ru/En/Multi7] (Steam-Rip/0
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

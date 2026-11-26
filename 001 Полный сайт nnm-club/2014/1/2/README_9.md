@@ -27,8 +27,7 @@ Sarke - Aruagint (2013) [MP3|192 кб/с]<Black/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:BBFB6B1DF6917F3A69EFF21BFC52F0C906D6536C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ VA - SuperBomb Club Music Pack 4 (2013) [MP3|320 кб/с]<Club, Electro House, P
 ```bash
 magnet:?xt=urn:btih:5A07200F2DB49605E9C79698EB679A57F018BB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ VA - SuperBomb Club Music Pack 5 (2013) [MP3|320 кб/с]<Club, Electro House, P
 ```bash
 magnet:?xt=urn:btih:E59470B78A6193B9C4A468B8561B680450C78512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - SuperBomb Club Music Pack 3 (2013) [MP3|320 кб/с]<Club, Electro House, P
 ```bash
 magnet:?xt=urn:btih:FA60CC251A35FFECE861FAA2089231F824987739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Zar - The Holy Rhythm Of Nature (1995) [MP3|320 кб/с]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:23C70F0EBD3149EAD3B61172FC7A4B43806F0D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ VA - SuperBomb Club Music Pack 2 (3013) [MP3|320 кб/с]<Club, Electro House, P
 ```bash
 magnet:?xt=urn:btih:162A6EC7E558A56BB6B8690F8FE9F018FA2033F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ VA - Latin ChillOut (2013) [MP3|320 кб/с]<ChillOut, Latin Music>
 ```bash
 magnet:?xt=urn:btih:21E25FFE4002B3EE414F3A60B98EC8CF813945E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72DC439B0806A3474B5491B76A8955CC5728F3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8236D6F3F059C5773E229A17E239FAFFD64A639E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ VA - SuperBomb Club Music Pack 1 (2013) [MP3|320 кб/с]<Club, Electro House, P
 ```bash
 magnet:?xt=urn:btih:281EBFF000E96906B3AF649A1349374F8681598E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ VA - Клубные Новинки Vol.359 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:5C1DB02D677375CF655DED94BA51ACDC1F7750A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE8843E28E0C6CA89772774910E6318D3A7B5DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ VA - Marbella Sunset Chillout (2013) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:ADE81D46605B7551DA43E5F2BC4FC0F67A37C2CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07CFA5EF836A417954C2A03821E349D18CEA7308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C35EAC7514CC4071180C613997B61E699ACDCAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F562ACC47A4C8EF2FB9770276ECCE9CDED8F081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ Super Ball Bot - необычный робот, предназначенный �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ VA - Клубные Новинки Vol.360 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:26E360ECF3387686088807B890412DE72FDA3A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C41B7B3017FF49845EB2D31B70A4C91AA69B394A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F8CFD77404491CBA6A7F04A4B71A94FEC4E772C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +624,7 @@ VA - Deep Lounge Deluxe Vol 1 (Lovely Deep-House Vibes) (2013) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:91B15A5AD99C4A8B11EE47F8BA053B8FB3C13E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4186E433FD23D2D4646E7853306B6F1FEFE65F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +683,7 @@ The Defiled - Daggers (2013) [MP3|320 кб/с]<Progressive Metal, Groove Metal, 
 ```bash
 magnet:?xt=urn:btih:2B01720802DFB588FA505756D4EEF8C2C503626C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF802D1C818811118CEBA3AA5FDAA74A2CE7CE59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +746,7 @@ VA - Новогодние Каникулы с MTV. Зарубежный (2013) [
 ```bash
 magnet:?xt=urn:btih:1806F03C912EF083242D603AF5DDDFECCE7FAADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +771,7 @@ Comedy Баттл. Без границ. Битва за кадром  / Коме
 ```bash
 magnet:?xt=urn:btih:2E38F619F24C40D077D5EC5C15AC334101C96227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

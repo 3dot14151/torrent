@@ -19,8 +19,7 @@ SmartSniff 2.25 Portable + Driver [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9271E65304B8F75C38D25962B175F48CDDA55673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NetworkTrafficView - удобный инструмент сетевого мон
 ```bash
 magnet:?xt=urn:btih:3384C05E5EFEDF6E5F51B86BBAF238FEFA8B5122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

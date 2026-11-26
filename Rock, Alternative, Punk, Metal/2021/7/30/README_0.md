@@ -22,8 +22,7 @@ Narkomfin - Всё складывается идеально (2021) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:F7F70E0E0E3EA73D9B522AE2127A5E55DD590373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Big Big Train - Common Ground (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 ```bash
 magnet:?xt=urn:btih:773600B60BA4F199F626C25666A5EB1A9E98C8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dee Snider - Leave A Scar (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DA6BBCD250B485077E4E284232291BC007F325BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Heaven & Earth - V (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:27CFDD21388A4C4C3BDB9826D0C63233215A6E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Geezer Butler - Manipulations of the Mind: The Complete Collection (2021) [MP3|3
 ```bash
 magnet:?xt=urn:btih:A157CCA9179AE33E4A335FCF777AFF43755ABB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mullmuzzler - Keep It To Yourself (1999) [WavPack|Lossless|image + .cue]<Progres
 ```bash
 magnet:?xt=urn:btih:572F39B99803813B4D23C87AB5DB221D6D309A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD - 1 - Main Album:
 ```bash
 magnet:?xt=urn:btih:A1E99B2E9AA5D89E4F98014AA493902C7E981637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Hellion - The Black Book (1990) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed
 ```bash
 magnet:?xt=urn:btih:5EBD6E26D43F41F27E1824B44D515F15BE25C4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Miscellen - 2 Albums (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Alternativ
 ```bash
 magnet:?xt=urn:btih:A2294AC867684BEB7DAB26839FA3CEC473F596FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ God Is an Astronaut - Live @ Opium Dublin (2021) [FLAC 2.0|96/24|tracks|WEB-DL] 
 ```bash
 magnet:?xt=urn:btih:8207469076E9051AE7C93677ACC3A9EA489B387A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Night Flight Orchestra - Aeromantic II (2021) [FLAC 2.0|44.1/24|tracks|WEB-D
 ```bash
 magnet:?xt=urn:btih:D38AA31076D3BEECDD7E8873CAE9D7BAE3B25E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Mark Knopfler - Cannibals (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:E436EC991A58AD075FF0F5BA15EC6FCF8DF4CDEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Ritchie Blackmore Rare Projects - 8 Albums (1971-1995) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:839FA03C69051D731B4982668DAE12A1BE45C9EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

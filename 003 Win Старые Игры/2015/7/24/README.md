@@ -21,8 +21,7 @@ Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + 
 ```bash
 magnet:?xt=urn:btih:943D98E267E15A23CD52DEAB68A3E5B54D7920B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

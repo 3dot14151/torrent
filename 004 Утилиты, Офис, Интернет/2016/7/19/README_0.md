@@ -19,8 +19,7 @@ UltraSurf 16.03 Final Portable [En]
 ```bash
 magnet:?xt=urn:btih:91EA934F222F68F4E9B06E82EAC5C24DFD10E1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

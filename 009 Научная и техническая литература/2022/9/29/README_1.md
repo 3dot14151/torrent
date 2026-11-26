@@ -19,8 +19,7 @@ Gordon L. Rottman | US Marine Corps 1941–45 (2012) [EPUB] [Elite #59] [EN]
 ```bash
 magnet:?xt=urn:btih:AF7C1E94F580945C4750FB51218551785EFF6858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F5E24EB252BAB340E1BEF1E19AB4714177A38F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1676CF0ABAEE2F37C76DF8CE8DDA3F1138122F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Nihilism - молодой depressive black-проект из южной Укра
 ```bash
 magnet:?xt=urn:btih:5E9ECCF4C7288D12D3A5BBEF2AA98D71A462C23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Giulio Garghentini - Believe (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:90DD612FF2A62DA06B0615583E50259A484FF40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Motorama - Calendar (2012) [MP3|320 кб/с]<Post-Punk>
 ```bash
 magnet:?xt=urn:btih:C5ACC1A04A7D6AB2D69C04C6EA8CFB8E1770627C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Slam Alley - Punk Polluted Zoo (2013) [MP3|320 кб/с]<Hard Rock, Glam Metal>
 ```bash
 magnet:?xt=urn:btih:CE3207BEBC251989810E7607F0F097DA62CFC090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Soularis & SoulArisE - 6 альбомов + 5 singles + 2 EP (2006-2013) [MP3|32
 ```bash
 magnet:?xt=urn:btih:58B1BD0FC4EF383247BC7FBB7013F6B83878B8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Santana - The Essential Ballads (2013) [FLAC|Lossless]<Latin Rock>
 ```bash
 magnet:?xt=urn:btih:CAAFAB48106BEA424B2BED1A70F7EEEE3B00DA90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Lumen - Нет Времени Для Любви (2013) [FLAC|Lossless]<Alternati
 ```bash
 magnet:?xt=urn:btih:5F374C181EE6EA6A2B14E7AC409111D509A564EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Tommy Bolin - Whirlwind (2013) (2CD)  [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DEA96A81A6EC1ABA5A11F5BD63259F937CB5B77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Status Quo — британская рок-группа, основанная б
 ```bash
 magnet:?xt=urn:btih:4A8D5DEF2DFD8F0C9FFA0768CE38AA3EFB2B7C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +314,7 @@ Linkin Park - Recharged (2013) [FLAC|Lossless]<Alternative, Remix, Electronic Ro
 ```bash
 magnet:?xt=urn:btih:7B7B05A95F834413844E5265B8BFC64B12C47199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

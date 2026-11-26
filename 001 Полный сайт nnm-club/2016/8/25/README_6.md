@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DCD68F3A9D132695BCDA7B43A8F6234DEAD0D36C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42A456246EC4F5BBCD951C51729B4DCD350BA543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ The Banner Saga 2 продолжает события предыдущей ча�
 ```bash
 magnet:?xt=urn:btih:552858410EAE57C9FE8D905A42EF8B0AA006A3BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Need for Speed: Underground уже дважды встряхнула миров�
 ```bash
 magnet:?xt=urn:btih:6A57BCD2A21AF5246D875889E30D9F644ADB6BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54451DAEB33A702BCE5CD6F05E1ED2B9771FB49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A2D4C56EFCE844FCFDD73B0EF906B8CD4C3AA36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack Dok2 [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:E459D7F91A99034FA302592D224846D3B9907098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ R-Studio for Linux 2.1.476 [x86, x86_64] (deb) (Multi)
 ```bash
 magnet:?xt=urn:btih:D2F754AAEA70C33A5E0D810E17B2D417622211CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Git – распределенная система управления вер�
 ```bash
 magnet:?xt=urn:btih:5AD584595369BC409BC642A0DE4D20F66204008F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.8.13592/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:344420DB5F8C8A57B55E4AB260C8145462BB4C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F2EDDBD6031A0507AE54E06282E0EC3B069EE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Gothic 3 (2006) (1.75.14/dlc) Repack/Mod Drakyla666
 ```bash
 magnet:?xt=urn:btih:D97A7B7C3FC3D017D7AD3D3126291ADEEFF4B31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

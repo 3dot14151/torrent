@@ -19,8 +19,7 @@ The 9th Gate (2018) [En/Ch] (1.1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:56B127AE03860E96538103708445F14F65ED9C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

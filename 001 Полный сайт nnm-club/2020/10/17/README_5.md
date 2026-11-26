@@ -18,8 +18,7 @@ Wolfenstein: The New Colossus — продолжение Wolfenstein: The New Or
 ```bash
 magnet:?xt=urn:btih:E889E39B156AA9E833DEDA640754F9C676BED60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B640820E45E80D75B0CB7033C657A36DE2396BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crusher Joe: Hyouketsu Kangoku no Wana | Крушила Джо OVA-1 [1989, OVA,
 ```bash
 magnet:?xt=urn:btih:E9E2BB5FA308D5F274EB686B2B5AA357C3552453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Crusher Joe: Saishuu Heiki Ash | Крушила Джо OVA-2 [1989, OVA, 1 эп.
 ```bash
 magnet:?xt=urn:btih:614048CAEC7869EF4899A8599AAA284E3079A4C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Gochuumon wa Usagi Desu ka? | Is the Order a Rabbit? | Кролика заказ
 ```bash
 magnet:?xt=urn:btih:9193095F24B73D327F851A92DB3A74096CE07F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:C58A55D2396E4ECF80D13C0B1B136CE806690663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:0D73707775F8A85F710590AAC959489015DAED17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Poser Bryce HQ HDRI Collection - Sky and Landscapes [HDR]
 ```bash
 magnet:?xt=urn:btih:C6E5827FB5D1C6D16FF2925967B72A278051F9EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Mortal Kombat 11 – продолжение культовой серии фай
 ```bash
 magnet:?xt=urn:btih:5D841A924B67664D15AA6453AE450A2203D02BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Death Stranding – один из самых ожидаемых релизов �
 ```bash
 magnet:?xt=urn:btih:318416536642CB0A1877F65DCFC439400B0C24A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C7A37BD21E9F3A5E313A53B219CC425835775CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7C2E7658687FA30E946B7ADBDAD633E09BBD613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Paint.NET — бесплатный растровый графический р�
 ```bash
 magnet:?xt=urn:btih:851818F998A9190ACAAF27706C4A35D97997FCA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

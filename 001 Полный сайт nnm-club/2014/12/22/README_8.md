@@ -22,8 +22,7 @@ Ashes And Iron - The Wind Takes A Side (2014) [MP3|320 кб/с]<Post Metal, Slud
 ```bash
 magnet:?xt=urn:btih:63F302367A96A27FE3D386B83080FB1DB9C2D72E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FF52346DFF334D1C1E6A794EAF0096628E823D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Magical Gravity - Go On / In The Air (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:AFF3DE0581CB08FCA6F46AC6A5441EBA7D430F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Tsima - Shatter (2014) [MP3|192 кб/с]<Post Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:42C3E01A2F60E8089BCB622B8BF46046DEADF88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Henry Jackman - Капитан Филлипс / Captain Phillips (Complete Motio
 ```bash
 magnet:?xt=urn:btih:86B7284AF4734B493CF7E3BA551D72BBDFC639DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Headband - A Song For Tooley (1973) Reissue/2006, Walhalla [MP3|320 кб/с]<Roc
 ```bash
 magnet:?xt=urn:btih:34DDAD74FB1945D2A74A801FBB7A80F0A31989EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ Alic - Sliders (2014) EP [FLAC|tracks|WEB-DL]<Progressive, Techno>
 ```bash
 magnet:?xt=urn:btih:6E8DBA24241D9E5F7B81414FA57995FDD4238FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ VA - Vectiva 200 A (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:35A451679DB399DA263C8F33CDFC338A4A81C64F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84B15D516B9E44436A26DA5E4C78070B5250DE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ PostHaste Music - Courage And Power (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:20448B0ADF156C7AFCBE12DA77AF643231D38D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ Galderia - The Universality / Rise, Legions of Free Men (2013) Japan [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:EEB00F99326A2C80B9B66002CACB63F0783E460C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45213339F792E42DAC284BBF84B7F224A23F3D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ Santiago Lara - 2 альбома (2007, 2012) [MP3|320 кб/с]<Folk, Flamenco>
 ```bash
 magnet:?xt=urn:btih:42D59CBEDD482238FA1B2143C127FBA917900832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ VA - Owsla presents Eggnogg Vol 1 (2014) [MP3|320 кб/с]<Dubstep, Trap, Electr
 ```bash
 magnet:?xt=urn:btih:82E46CCEC5A7B574365C918CCB3CCABB8EE93217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FC77F653C7713BF927F1DAC1DB37E709F9D1B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ Galathea - Аллерген (2014) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:EBB2314FE339F4FF0430496B08831A47F73DB4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ VA - Vocal Trance Temptation Volume 39 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:E577C47314161AD080A5EF4983DD7B7E2D6F946C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:BE998D05A8BDB4F90DF6D92BBAEA62A11423970D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:161E7C6ECA11235586175506E3DF773008AC2D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ Naseer Shamma - Viaje de las almas (Travelling souls) (2011) [MP3|320 кб/с]<F
 ```bash
 magnet:?xt=urn:btih:434B8BE7D0716345915D60F02EEFC95FFC4F93B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +629,7 @@ Lucifers Frend - Lucifers Frend (1970) /1990, Repertoire Records/ [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:CB5D113214EBB43BCFBF7361B069BC67DE82E83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:E68F1D6E8A81BB2462B5F8AC1423A0CA174B90B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A45022FACA2780764FC5C22B76D5A42E43371A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +713,7 @@ Cavendish Trailers - Action Thriller 6 (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:B6B39BAD0304167A5E6559A4C7840B67B13E2388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89BE5A19F87044572A31C9B49E5CC4300D897E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:A03669998168D20342EC89449E1A2EDF0AFFAE88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

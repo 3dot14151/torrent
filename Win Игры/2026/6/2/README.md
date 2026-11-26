@@ -19,8 +19,7 @@ Necrophosis приглашает вас погрузиться в мистиче
 ```bash
 magnet:?xt=urn:btih:71E3878745EE5D88AE700D34CAD3ACA48E595FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Winter Survivor Protocol (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A76B49A072E1FF71C11DF366506D6D8A6AA5AD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TerraTech Legion - это игра в жанре Bullet Heaven от команд
 ```bash
 magnet:?xt=urn:btih:4DDA5957074C73239CBEDF90C23126E99ECDA0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Phonopolis (2026) [Ru/Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:F95AE22D82A373F4D42745D51AB55CA21A6AFD48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

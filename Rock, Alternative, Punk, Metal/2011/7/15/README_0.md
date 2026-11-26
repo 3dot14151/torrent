@@ -28,8 +28,7 @@ Roger Glover - If Life Was Easy (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:51BF5808C046D69300DE6BE60FB60102D4263AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Europe - Rock The Night: The Very Best Of (2004) 2CD [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Chuck Berry - Chess Recordings Series (2007-2010) 3x4CD Set [MP3|311-320 kbps]<R
 ```bash
 magnet:?xt=urn:btih:713E44B062E556C5876B4E6D1C0062BEA4C87FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Nazareth - Greatest Hits (2006) 2CD [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +165,7 @@ CD1:Жанр: RockПродолжительность: 01:19:09
 ```bash
 magnet:?xt=urn:btih:EA26B70B58C2F1A2515685F30234C8425C2BA9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

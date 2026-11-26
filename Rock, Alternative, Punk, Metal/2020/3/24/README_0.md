@@ -22,8 +22,7 @@ DISQ - Collector (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative R
 ```bash
 magnet:?xt=urn:btih:EEEBC00EB0698665AF115C177E8C3B196599F419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Arctic Rain - Point of no return / Точка невозврата (2020) [MP3|3
 ```bash
 magnet:?xt=urn:btih:0669E82E8F32A8E301B15B173CF55F1294D8E7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Killswitch Engage - Killswitch Engage (2000) [FLAC|Lossless|tracks + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:B735395241BE305D072782A8FDCB895FB6635E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stephen Malkmus - Traditional Techniques (2020) [FLAC|Lossless|tracks + .cue] <I
 ```bash
 magnet:?xt=urn:btih:91D056E4B1493C3B42AECD57EA97506899ADC611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tom Morello - The Atlas Underground (2018) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:BE87C21C70548046FD52E49D9508C92872744352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Play: 70's Music (2020) [MP3|320 Kbps] <Classic Rock, Soft Rock, Other>
 ```bash
 magnet:?xt=urn:btih:453BD84AC38909B9B8898D8BF23B2807B73D25C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Deep Purple - Throw My Bones (2020) Single [MP3|320 Kbps] <Hard Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:53D3DEB85DD6FCF94825E63C4403B4153B43F3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

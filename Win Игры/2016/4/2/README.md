@@ -19,8 +19,7 @@ Whispered Secrets 5: Ever Burning Candle (2016) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:2106F7EC0C5B725BBF82B95F1799C1860FFCC85C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ New York Mysteries 3: The Lantern of Souls (2016) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:D37F79FF2E9A71F01363B1E5CD79C6E17553D5DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Heaven's Hope рассказывает историю ангела Талоре�
 ```bash
 magnet:?xt=urn:btih:593DE1CD83028A4FEFCFB4C65CFFE73D23F82C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Congo (2016) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:8F8757795D6A85B29B4FC8C9792ED4F40B186398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Adam’s Venture: Origins – новое прочтение серии игр о
 ```bash
 magnet:?xt=urn:btih:3DCE4DF52DF9FAD99CD678E6668796B07FB2272A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Radial-G: Racing Revolved (2016) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A1AD70D3BCFC34E9EB58F1727B73C88977C321D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Light of Darkness – клиентская онлайн-игра в жанре R
 ```bash
 magnet:?xt=urn:btih:4A42F64F9154E78060ACA748B69A8A483A3D6224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

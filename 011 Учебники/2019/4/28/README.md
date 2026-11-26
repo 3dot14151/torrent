@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9BF29BCC06BE7F270E9F7B3C02F29AECB2A9A77B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:981B71A059041608E964EA1ED48B067E2644F352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ C.А. Кудряков | Теоретические основы радиоте�
 ```bash
 magnet:?xt=urn:btih:1AC1F0737D479362E39EEFEE0CC5902246457D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

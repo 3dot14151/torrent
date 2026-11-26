@@ -19,8 +19,7 @@ Prince of Persia Дилогия [En] (RePack) 1989-1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:92C19894790508ED22CA550FA1EAE2EE94B08969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

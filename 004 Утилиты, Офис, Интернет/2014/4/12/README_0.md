@@ -20,8 +20,7 @@ LS · Банк от 31.03.2014 [Ru]
 ```bash
 magnet:?xt=urn:btih:34556B788ED2394A7C4E59D0A331D94FEE0B99C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

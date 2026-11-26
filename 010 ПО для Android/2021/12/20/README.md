@@ -20,8 +20,7 @@ NYMF – это авторское мобильное приложение Да�
 ```bash
 magnet:?xt=urn:btih:08FCE38EA885AA8696F9830A9FF1C1842694CF0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Lantern: Лучше, чем VPN v6.8.10 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:40BD2771DEB629A1DC2CA7958EB0B68A8FF93DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

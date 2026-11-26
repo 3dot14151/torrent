@@ -19,8 +19,7 @@ Christmas Tales: Fellina's Journey (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:A26FBA4A079F8CD5A04910EA9B14E31D2518A668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Clockwork Man / Заводной Человек (P) [Ru] 2009
 ```bash
 magnet:?xt=urn:btih:EB2A745277517BD964A346175A455BCCC21BFFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cradle Of Egypt Collectors Edition / Колыбель Египта. Коллек
 ```bash
 magnet:?xt=urn:btih:9B404F9ABF09284B77BA61A3D8B7D2A0A145B713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dreamkiller / Dreamkiller: Демоны подсознания [Ru] (RePack) 200
 ```bash
 magnet:?xt=urn:btih:A3C311BAD061428A05E83EDCAB345DE8DE9BACF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ ALT Linux p7 7.0 starterkits [i586, x86-64] 41xDVD
 ```bash
 magnet:?xt=urn:btih:699DE10D01C172C66058D94101FEB17A3413C04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

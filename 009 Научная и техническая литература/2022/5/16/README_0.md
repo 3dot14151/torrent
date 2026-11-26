@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8121DDCA14F387E2C521D99545BCA67B0EC719B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Trevor Linsley | Basic Electrical Installation Work 9th Edition (2018) [PDF] [EN
 ```bash
 magnet:?xt=urn:btih:01939B71D25592A7E51FF2002FBE9666D7A0D297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Terrell Croft и др. | American Electricians' Handbook, Sixteenth Edition (201
 ```bash
 magnet:?xt=urn:btih:2B9B3E67F6CE2D23EE5411BF3699CE74D261EB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Ugly's Electrical References, 2020 Edition - это золотой станда�
 ```bash
 magnet:?xt=urn:btih:2B6AB253FC9E091E6A3F257EC585ED19F62D4FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

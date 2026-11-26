@@ -22,8 +22,7 @@ Unison Theory - Arctos (2016) [MP3|320 Kbps] <Technical Death, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A8E67CD1BB97128C56BD6FC65F4123E3E4542C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ RavenHeart - Valley Of The Damned (2008) [APE|Lossless|image + .cue] <Melodic Po
 ```bash
 magnet:?xt=urn:btih:8B30DDE5C571B83569F9B363424ECFBC0C7C4A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Septagon - Deadhead Syndicate (2016) [FLAC|Lossless|image + .cue] <Speed Metal, 
 ```bash
 magnet:?xt=urn:btih:81DCAE17B6B2998DB4D8A69BFAF725F3A8152F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Asylum Pyre - Spirited Away (2015) [FLAC|Lossless|image + .cue] <Power Metal, Pr
 ```bash
 magnet:?xt=urn:btih:672E476063D6B916294B90BDEF0A7AC61D69B114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hollywood Monsters - Big Trouble (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:56450A6BAA1C0C60EE8ADD6511DF81D60486E125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Graham Bonnet Band - The Book (2016) Russian Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:707E1F71BDE16C556B92A3E00C5E82A5E623925D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mountain - Super Hits (1998) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A876CB5F4F7629E436BD1662384B0105B829AF34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Bahroma - Внутри (2014) [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:1737855D70176A961EDBEEB07150E0757B80311B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Dark Tranquillity - Atoma (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:4198DA43D55CD81A493603FA0F84F39D0DEF2BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Bad Suns - Language & Perspective (2014) [FLAC|Lossless|tracks] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:BA80620076B7A68AC935B5C19FE96043294BA9C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Bahroma - Плюс Минус Равно (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:877D26EB67262F7A5261519742224F899AC42343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2937EB569A7761933AA8189721C3EDCB4AB63570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65ECE1750E5401F11888F244F5FA9F786CF4AFA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ David Bowie - Legacy (2016) Compilation, Deluxe Edition [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:A54511DAE0306395767C6535CA660D803E7E53EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ R.E.M. - Out Of Time (25th Anniversary Edition) (2016) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:CDF812807892C989D7000050284EFC0BDC54E358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

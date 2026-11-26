@@ -21,8 +21,7 @@ Universal Media Server поддерживает все основные опер
 ```bash
 magnet:?xt=urn:btih:CBF44F2B46DB7AD3CCE2B39377447EEC1E025FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Tenorshare 4DDiG 10.5.8.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6822F8E90B74237D619FDA16C74F9414F3EFABA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Volume² — альтернативный регулятор громкости,
 ```bash
 magnet:?xt=urn:btih:6041D2254B6673BB555868A4F9778B427C8D2588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:F2712B033AF62A6FBB9A1BB57ACF350C6BE92C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ IsMyHdOK 4.44 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2BCE3D2B37CBABF3307FB4F4DC7891650B4A93C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ SimilarImagesFinder - программа для поиска и удаления
 ```bash
 magnet:?xt=urn:btih:694159D302232C3E0ACCE12491A2C99DC40C7647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:8340CB65791CF7D2216128ABCB889CE4E626D46A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Desktop Info подключается к вашему рабочему стол�
 ```bash
 magnet:?xt=urn:btih:52C581567A719E9E4F4144AEA67B67D3CDACB569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

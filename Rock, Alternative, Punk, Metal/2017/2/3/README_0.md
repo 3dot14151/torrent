@@ -22,8 +22,7 @@ Under Silence - Memories Lost In Time (2010) [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:993F083FAFECF6F7049FE6B87E7DF35C2199D4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Wicked Mercy - Sundown (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Ro
 ```bash
 magnet:?xt=urn:btih:16F99BDC495136A08D518AA377780853553C1669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CD6BC011BB320FFFC27D8348177F1340940157A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30A886F8F6E6053A35FF3DBDD6FCBBE8F38679F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

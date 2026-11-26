@@ -19,8 +19,7 @@ InnoExtractor - это мощное приложение, которое пом�
 ```bash
 magnet:?xt=urn:btih:17CF150134D0399AFE80983FA6DA486D28F1CFED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

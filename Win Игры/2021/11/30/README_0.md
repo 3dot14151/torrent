@@ -19,8 +19,7 @@ Tinytopia (2021) [Multi] (211111) License GOG
 ```bash
 magnet:?xt=urn:btih:EF0267BE4E60A6FB23B8EBE7EB50E3951CB9EFAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Renegades (2020) [Ru/Multi] (1.4.2) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F68C2B3A89D5A5C62240AA4B9AD8CB259B9B5FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Succubus (2021) [Ru/Multi] (1.0.14553 - 1.4.15357) License GOG [Patches]
 ```bash
 magnet:?xt=urn:btih:6C7620E313B3DCA82C70A7971788D41ED8F81AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Sin Collector: Repentless (2021) [Multi] (1.0.1441) License GOG
 ```bash
 magnet:?xt=urn:btih:1380214FF40EC97639DB0D2D69024A914FDDA25B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ European Ship Simulator является симулятором капитана
 ```bash
 magnet:?xt=urn:btih:26C34B4E858F713D158AB503FCC6B1961B64AE0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

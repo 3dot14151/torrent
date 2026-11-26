@@ -19,8 +19,7 @@ Revived Legends 2: Titan's Revenge / Возрождение легенды 2: М
 ```bash
 magnet:?xt=urn:btih:366F1DA3D6B88BE2CA6EC4211029247DBAE5E4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

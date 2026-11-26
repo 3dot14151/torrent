@@ -21,8 +21,7 @@ Secure-PDF - набор инструментов для защиты PDF-фай�
 ```bash
 magnet:?xt=urn:btih:2BA485236BAC9CC146E410E4269A3FC1D5F58634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ SkyChart — замечательный бесплатный атлас звёз
 ```bash
 magnet:?xt=urn:btih:49EA60F2BDA679EE5B71CA32788C69DA1BEA7F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Raxco PerfectDisk - программа для дефрагментации же�
 ```bash
 magnet:?xt=urn:btih:E5B80CF9419097538DEC1299C4337445A373E493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

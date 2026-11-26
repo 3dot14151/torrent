@@ -18,8 +18,7 @@ Voice Aloud Reader – весьма удобное приложение для �
 ```bash
 magnet:?xt=urn:btih:44B61EDAE52241B34C641CBDD7A0AEA750C3304F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA5F1FF8AD68223804B0BEE4D0EEBF1D4943DBC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - New Clear Radio Vol1 (2015) [MP3|~245 кб/с (V0)]<Pop , Rock>
 ```bash
 magnet:?xt=urn:btih:FCEDE298D50C5A73377DA02F9A51ECBD919661A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:070522D8E4C495E4C0F04CB3415E07E24C75C737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4DA5F4B04CB72AB320C56769E278BE62E411103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B248658F3FB11D31867CB0D02F875400BA8C3BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Cool Reader 3.1.2-69 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E025E53F59FE7F8F9A992A400E0B46DFA630D1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Navitel / Навител Навигатор v9.6.61 RePack [Ru/En] - тольк�
 ```bash
 magnet:?xt=urn:btih:09B3A4C2DE14428C232BDF86EA9470876E0A9A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Navitel / Навител Навигатор v9.6.61 Full и другие [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:861081584B63AC9F4A7438C7398F7AF767C84523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

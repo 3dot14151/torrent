@@ -19,8 +19,7 @@ MAX Desktop 26.23.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E069715A4AAD07092B4DB222EC09E3C6D7D5CF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OCCT 17.0.12 Portable [En]
 ```bash
 magnet:?xt=urn:btih:3E45AF9A1C0D172D5D0F68EE140B36F05D4E8FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ApowerREC - это программа которая может записыва
 ```bash
 magnet:?xt=urn:btih:B48481CCC404F61545D559D3D0D8C3EF38F452A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

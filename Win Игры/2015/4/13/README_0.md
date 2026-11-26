@@ -19,8 +19,7 @@ Death Skid Marks - брутальная инди-аркада с элемент�
 ```bash
 magnet:?xt=urn:btih:5843306CEC37A1368ED3EDCBD1E75AFA0D5F8EEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dark Souls II привносит традиционный для серии вы
 ```bash
 magnet:?xt=urn:btih:7B506DB46D4F31307C4913B0A11AF148E264CDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

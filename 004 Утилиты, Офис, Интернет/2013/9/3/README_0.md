@@ -21,8 +21,7 @@ Net Monitor for Employees Professional allows you to see screens of computers co
 ```bash
 magnet:?xt=urn:btih:0BCD40B36C140EF0EE4628F1AE6CE84265CE0C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AlReader — удобная программа для чтения электр�
 ```bash
 magnet:?xt=urn:btih:567E53149AE67E0269AFD8866F4DCC8B8A4F6C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

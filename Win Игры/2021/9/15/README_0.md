@@ -19,8 +19,7 @@ X4: Foundations - это космический симулятор, продол
 ```bash
 magnet:?xt=urn:btih:0C8A8C072D2E99B3D66A0216EBDDBAE798BBE410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ATOM RPG: Trudograd (2021) [Ru/En] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:02ACEA84B6837FD88B972ED4AC99975232BBC6D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

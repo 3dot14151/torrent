@@ -23,8 +23,7 @@ Blackstratblues - The Universe Has A Strange Sense Of Humour (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:106BD7BE6B6E668E87D993BC8E6DA4336B896B71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ EarlyRise - Colors (2015) [MP3|320 кб/с]<Alt. Rock, Alt. Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:535F93B9F175B17C14E8B3A8E1F6D0874E5C6B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Tidings - Death Leaves A Bright Trail (2015) [MP3|320 кб/с]<Post Metal, Post 
 ```bash
 magnet:?xt=urn:btih:BBDA2E35168D821869B407DE5D89947E073E402D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Erik Ekholm - Titanium Angel (2015) [MP3|320 кб/с]<Epic Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:80C634EA00C8AAA1D80D306666B0BBE7AE86BC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Wilderun - Sleep At The Edge Of The Earth (2015) [MP3|320 кб/с]<Symphonic Fol
 ```bash
 magnet:?xt=urn:btih:07FF8D32A168C38262952D6E3CB21B7A897A7084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Six Feet Under - Crypt Of The Devil (2015) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:7FAEA58B69A87EC39A9CEC1F2641E8B3AF8432AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Blur - The Magic Whip (2015) Japan Edition [MP3|320 кб/с]<Alternative, Britpo
 ```bash
 magnet:?xt=urn:btih:D9D7287058EB1ED6374C7B6DC4A039213AF0084D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19C29A821B0106C474D37982268906F27E0CC1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Theory of a Deadman - Angel (Acoustic) (2015) EP [MP3|320 кб/с]<Alt. Rock, Po
 ```bash
 magnet:?xt=urn:btih:2275D9A7B47CA199BD9BC4D8070782A35261D65F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62101DA28D98BB6129350C9BA7B6B67EC1E927B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ Kamelot - Haven (2015) 2CD, Deluxe Edition [MP3|320 кб/с]<Progressive / Melod
 ```bash
 magnet:?xt=urn:btih:5EB097DC180B4FF514CE2534D06E375B4A5E07AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ Kamelot - Haven (2015) 2CD [FLAC|Lossless]<Symphonic Power Metal/Progressive>
 ```bash
 magnet:?xt=urn:btih:31C3FA31395EBDF178E931403E441BF667D3A7D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5620C1B9DF6A80AC45841C33D78EF0FE10407222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

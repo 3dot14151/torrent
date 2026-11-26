@@ -20,8 +20,7 @@ King Arthur - Anthology / Король Артур - Антология (2009-201
 ```bash
 magnet:?xt=urn:btih:2CC8993DD92AFDB3956791E6EF4E1D290C92BC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Borderlands 2 (2012) [Ru] (1.8.0/dlc) Repack R.G. Catalyst [Game of the Year Edi
 ```bash
 magnet:?xt=urn:btih:81E8E5B164010BAD3B6D24B90080AF4213754461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

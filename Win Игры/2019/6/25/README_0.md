@@ -19,8 +19,7 @@ My Friend Pedro (2019) [Ru/Multi] Repack xatab
 ```bash
 magnet:?xt=urn:btih:46C2D0157F6DA03EB8122CD35110E70096DA40C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

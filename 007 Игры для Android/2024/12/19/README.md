@@ -21,8 +21,7 @@ White Day - это ремейк PC-версии, выпущенный в 2001 г
 ```bash
 magnet:?xt=urn:btih:4EDB7253A25501C8D85D741C7986691807D98819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Cozy Grove: Camp Spirit v3.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:58F79B4B8D1D466809EF3C4656420653E53E0B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Pocket Rogues - это динамичная Action-RPG старой школы �
 ```bash
 magnet:?xt=urn:btih:321FE5DA69A79D96C0E6E6A188ADEBD3CAD14448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Spiritfarer Netflix Edition v1.5.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:6DD3CDF001B3189259827B9A3C8FE474EA06A289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Party Hard Go v0.100034 [Ru]
 ```bash
 magnet:?xt=urn:btih:0DC8A4CF93168059825D680EA7A38B94CBC7BC31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

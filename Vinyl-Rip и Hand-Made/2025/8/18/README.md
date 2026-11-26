@@ -22,8 +22,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:38E4A437A507F39D765E67F2C0602DA03559499D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Book Of Revelations - группа основана мультиинстру
 ```bash
 magnet:?xt=urn:btih:17F8823F87482023CA37FADE8B35E7841CAC0173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Architects — металкор-группа, сформирована в 2004 �
 ```bash
 magnet:?xt=urn:btih:8A892276B5387AC3A070AE92593EC742A57CE13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Byzantine — американская метал-группа из Чарльс
 ```bash
 magnet:?xt=urn:btih:030FD15EB786615F6D0333359BC4EEC8000E4BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Thurisaz - бельгийская метал-группа из Вервика, �
 ```bash
 magnet:?xt=urn:btih:2B42B41AC13B2F390DE248327652A0150734D2B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

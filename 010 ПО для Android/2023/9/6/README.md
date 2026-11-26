@@ -19,8 +19,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:ACB2E03307ED2C8B8BF7260BE960A807A0841EB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Battery HD Pro - это идентификатор заряда батареи �
 ```bash
 magnet:?xt=urn:btih:1E99EC1F75F4EF7725602AB86D2653BE6FA44BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ibis Paint X - известное благодаря своим качества
 ```bash
 magnet:?xt=urn:btih:D7344E78BDE69F28351FE9AAD68089C50A8B977E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BSPlayer - один из тех мультимедийных плееров, ч�
 ```bash
 magnet:?xt=urn:btih:E03DD655FC96BAB4345093E4BEFCA809E3425BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

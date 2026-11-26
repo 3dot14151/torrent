@@ -19,8 +19,7 @@ ReactJS выделяется из массы прочих веб-фреймво�
 ```bash
 magnet:?xt=urn:btih:E320E334163BC7AA39A8461E19CF7833A9DE07F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

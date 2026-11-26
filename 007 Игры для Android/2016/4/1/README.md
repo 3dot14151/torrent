@@ -20,8 +20,7 @@ Ultimate Mortal Kombat™ 3 — это игра жанра файтинг из �
 ```bash
 magnet:?xt=urn:btih:BCFD3DC8D04DDDB183C8253EF12880706A0F6BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

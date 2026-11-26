@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6AB009A18CB1431A1C967EEE4AAEA882EC086949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:300E7823E62CD2F2CB837A026E6310015481033B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack xatab [Episodes 1-4]
 ```bash
 magnet:?xt=urn:btih:A88680DD5C114C68805A6E574ACB1969C864ABB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A2A218582ABF2292C115F85426F18CCBCD66B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DC4C1545BE94574F6BC7B39F915B247E7AA1D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ elementary OS — дистрибутив операционной системы
 ```bash
 magnet:?xt=urn:btih:6336C11F532BC49B52640A31705868CC72D1516B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Eltray.com | Зануление и заземление [2011] PCRec
 ```bash
 magnet:?xt=urn:btih:67EB48F4E6F00E8E9E7346DF60228DA726657B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Windows 10 будет спрашивать, для каких целей пол�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ iGO R3 TomTom Европа 2020.06 (Q2) (.fbl, .fda, .fpa, .fsp, .ftr, .hnr, .po
 ```bash
 magnet:?xt=urn:btih:59CA47CEC129436908D71EBF7F4EDE56AF65A7E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Acronis BootCD/DVD 2020 – загрузочные образы на базе Li
 ```bash
 magnet:?xt=urn:btih:6EEC958B5F28AC7798F14F243F13B400707B1CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4946934D3EAABCCA28C977407D7E006D30F95DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75915577BAE3FC3DCC94CC435EF727AC22D52D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E80F294A46C553A981D967C5D937DE2B7C17360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Resident Evil 6 (2013) [Ru/En] (1.1.0/dlc) Repack Other s [Complete Pack]
 ```bash
 magnet:?xt=urn:btih:B2C90D73718303C5036F08B6C82A2B32562F8D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ ISO образ для оффлайн установки Офиса 2016-2019 x86
 ```bash
 magnet:?xt=urn:btih:9D39CB0E49EAC93B420320E29546AB04CBA4A810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC2EB21C8B6D3BE389B56FD1071E2B1F3839C97F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

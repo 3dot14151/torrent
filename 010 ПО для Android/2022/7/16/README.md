@@ -19,8 +19,7 @@ Genius Scan Plus - PDF сканер - отличный вариант скане
 ```bash
 magnet:?xt=urn:btih:0A12BC3AE2C1A43D8A3D2A414CE5EAB5424FEB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Simple Gallery v6.23.13 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C69BDF62D0822A2BBA4DB8BC08821811B126EBF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ YouTube Pro - это неофициальная модификация, осно
 ```bash
 magnet:?xt=urn:btih:7C476CB8C5286B301C5B08EF8353D1011DE1C51B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

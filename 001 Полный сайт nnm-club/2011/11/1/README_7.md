@@ -28,8 +28,7 @@ VA - Colours of Deep House Vol.2 (2010) [MP3|320 kbps]<Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:FEE8332AA159053BC03A5117DC2B0CA26F314359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Aly and Fila - Future Sound of Egypt 209 (31-10-2011) [MP3|256 kbps]<TRANCE>
 ```bash
 magnet:?xt=urn:btih:9B18540499105FD246DA982452D0160D1BEB0FED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D6495697C9947CB78086C8F84F327070D0D8999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Любви Волна (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:42C3707917FDDAD9D38084D9F9F418B848266552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Ashton - Остров (2011) [MP3|320 kbps]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:4D7BD0B9272777F1004872339B6ABBA1E9451A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ VA - Club 696 (2011) [MP3|320 kbps]<Dance | Club>
 ```bash
 magnet:?xt=urn:btih:F867D8045D4760E26A4E3F6BAAB6AD73701FADFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A6256BA7B01F3704FFB2B9ADE20220789C20895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ VA - Осенний стильный шансон (2011) [MP3|128 kbps]<Шанс
 ```bash
 magnet:?xt=urn:btih:FDBE94DCD2BA26575D6C8CD2BD69A64E04B75192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10DFB91D8BCFB80F6DA5B24B0E8146E0D5145A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0892E9D9BF13B8AC27A3FD7DEF0E28591DCD9906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:059C3DEC3C51BA26F45081E1B9227381D70FBBE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ VA - XXXL Клеточка (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:9CB655E66E5F9B0C98466107E2F1B4A84E013B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ GoaHuman - Esoteric Journey (2011) [FLAC|Lossless] <Goa Trance, Downtempo>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D6E7A5FFE1E1F5E3C2761CAC891F0141827E924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1650BCA6B25D1EF1C1F8F6A63A9A0342B0B9C402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA5092CAC2D2D230A377FB720940AB0FAB3D01D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ VA - Русский Шторм 39 (2011) [MP3|320 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:24632B531D1DC2536FBA072D7458E2501FF8F7CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ VA - Daniel Wanrooy: The Beauty Of Sound (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:23C8F7B1BE19F2EEEFCA02B04FAB821EDD0D4D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +592,7 @@ VA - Русский хит представляет: Самые сливки 7 (
 ```bash
 magnet:?xt=urn:btih:ABEC46387D1675B86FD83C65BE288C719BAF5ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +626,7 @@ CD1 (01:09:38):
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +660,7 @@ VA - Лучшие Песни Русского Радио Часть 4 + Бону
 ```bash
 magnet:?xt=urn:btih:8A147E488EBBC7A65C2A16EE1F147FB1624AA8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AFC8141C38863B71FBE118B86A15AFEE10F8D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +719,7 @@ VA - Ультрамодные новинки осени (2011) [MP3|320 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:AF85BEF565E6F2F82969C7E0B7C7A3443F922E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +753,7 @@ VA - Siesta (2002) [FLAC|Lossless]<Downtempo, Ambient>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -812,8 +787,7 @@ VA - Легенды Осени Лирика Шансона (2011) [MP3|128 kbps]
 ```bash
 magnet:?xt=urn:btih:4A555A1FA26B9E953DCD1F34BADB388E5026BDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

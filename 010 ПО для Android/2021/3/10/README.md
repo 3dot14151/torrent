@@ -19,8 +19,7 @@ WOW Volume Manager v1.6 [En]
 ```bash
 magnet:?xt=urn:btih:5208FC20E48E6580659519DEF07035A4CE38E1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EB1913242BC4F8B7467D413ADA600C4CA6A487F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

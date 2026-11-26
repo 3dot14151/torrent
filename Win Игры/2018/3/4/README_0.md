@@ -19,8 +19,7 @@ Grim Tales 14: The Time Traveler / Страшные сказки 14: Путеш�
 ```bash
 magnet:?xt=urn:btih:2634A70BCDE6F5103655676723491C131A218BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Award Room of fear (2018) [Ru/En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:D06E360986F7CC9FAF08F14E5C6C762F65744F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rad Rodgers (2018) [Ru/Multi] (1.5.6511) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:807198DD8BA1BC214EF931A9054EED244FE0827B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

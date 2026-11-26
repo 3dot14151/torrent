@@ -20,8 +20,7 @@ Lost Viking 2 (1997) [Ru/Gr/Fr] Repack R.G. Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Conan / Конан (2004) [Ru] Repack Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ MechWarrior 2 Titanium Trilogy (1998) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:98BF43AD7CB2DC5D1FF7158B5618FB7F8E4DDBE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

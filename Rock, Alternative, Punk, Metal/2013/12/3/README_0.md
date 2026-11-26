@@ -27,8 +27,7 @@ Doxa - Delenda Est Carthago (2013) [MP3|320 кб/с]<Power Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:31C39E58845AFA51072D69FF27A7CD2AF7917C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Montany - Biogenetic (2013) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:B53A5F65FB1E9A4346BB7778E011FD60EF80351A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Zoltar Speaks - Save As I Save (2013) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6C55F64ED731CD816C7A4BF61CB550B2352522B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Roxster - Influence (2013) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:3E4F16C889509D1AE54C5277FECBFB5057A8AFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ PelleK - Christmas With PelleK (2013) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:42239FA7AC2137433BB47BD18EF582510D5BE099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Sergeant Steel - Men On A Mission (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D8AE970C67CC9DF971A58BADCA158DD491122235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Almah - Unfold (2013) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:6DE29B794A9E082768A3E63131C9F312893B3135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Rhapsody of Fire - Dark Wings of Steel (Extended Version) (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:62B8CE2C2CF40FB81FF2DFFF6E2F79555C8E447E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ The Beach Boys - The Very Best Of (2001) [FLAC|Lossless]<Surf Rock>
 ```bash
 magnet:?xt=urn:btih:76671A3E633E61758580EA50E5B5F682982FFB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ Within Temptation - Mother Earth (2000) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:52290B56DB8A5963607A97C55D78C81274B69A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0E794F842B23717E0E510F16A8B6B7ABFDEB0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +392,7 @@ Epica - Retrospect 10th Anniversary (2013) [MP3|320 кб/с]<Gothic Metal, Symph
 ```bash
 magnet:?xt=urn:btih:71CB30D2E6CA50A64CD59B982C5AC04FF50099F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +421,7 @@ Sounduk (S°unduk, Sunduk) - 4 Альбома (2011-2013) [MP3|320 kbps]<Frank-r
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +455,7 @@ Louna - Мы - это Louna (2013) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:983E8AF27B1FD232D9ED02993AFD8E6BD5871FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

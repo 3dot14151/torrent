@@ -22,8 +22,7 @@ Ewigheim - Nachruf (2013) [MP3|320 кб/с] <Industrial Metal, Gothic Metal, Dar
 ```bash
 magnet:?xt=urn:btih:BD0A9DE7F646CDA01FAE249921A0720C3DC2CFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gain Eleven - All In (2016) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5007145CBB4515473FDF6C733296E9813B907B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ecliptica - Ecliptified (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:4E0A5C3A625F682CA489977624CFA741D492BE4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mr. Ego - Se7en (2015) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:2AB28A7AA74E48B146F9D57800CB73269E5845EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pugwash - Play This Intimately: As If Among Friends (2015) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:0E88DC3DB40CE2C7571F4FF09742A2A02FA71481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tank - Valley of Tears (2015) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:578E654997349DF56D01A8A7EDA970502CBF1E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Rhapsody Of Fire - Into the Legend (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:27C740EFF9DE473BB16640C4C8E35A38F8C58BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Axel Rudi Pell - Game Of Sins (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CFD4D87EA81667150B8181624B921BE02550DE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Panic! At the Disco - Death of a Bachelor (2016) [MP3|320 кб/с] <Alternative 
 ```bash
 magnet:?xt=urn:btih:BCC4E81FB641C38A4DD434A7E71653F75B44FF31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ London Symphony Orchestra - Simply Orchestral Rock (2013) 4CD [FLAC|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:D312742665D668F67F4C3BB2888B0D0285FD2C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Девушка В Белом • A. Girl In White(   Читать дальш�
 ```bash
 magnet:?xt=urn:btih:0C4207DEC35430C0DBC66FD70EF84F7EE3AE3FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ B. Вариации 16 — 30. Ария 26:30Жанр: Electronic, Classical, Ne
 ```bash
 magnet:?xt=urn:btih:6EC2E6412BEE348F10DD94AE8C445F25A6BC3A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

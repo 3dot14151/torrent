@@ -19,8 +19,7 @@ Seven Years War (1998) [En] Licence
 ```bash
 magnet:?xt=urn:btih:FF9E52CFCA382E9FB86D9AD4CAE6BFF434575C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:7302F8F533A2A0B4BC8215FA5523ADC1E684A84C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:940013FFF06667ED464674BF452C1C415C31E30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8ED2DCC5B7FAAD86F6F44E25B5A6E36E810BF741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Brian Eno - The Drop (Expanded Edition) (2014) [FLAC|Lossless]<Ambient, Electro,
 ```bash
 magnet:?xt=urn:btih:582EA136B19A25B34B5DCF5DB02FB3FDF4CAB348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E117E18159830FE5E35B7A95336B7ACF1D524494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:422E629AF169FB887EE1961D08682BCDFC08954B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B20A6DC20524BE0F494FE9338DFF7798DFA9ECA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24E7A77C91DB52D15F44BADBAAD8F563D2731416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ PRhyme совместный проект рэпера Royce Da 5’9" и про�
 ```bash
 magnet:?xt=urn:btih:74E1B74E6BBC31E0CC01B39D20561BA5D7B792A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2012) HDTVRip (Се�
 ```bash
 magnet:?xt=urn:btih:07A25508033ED7FE18B77157EEE163ABDACF1819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2012) HDTVRip (Се�
 ```bash
 magnet:?xt=urn:btih:E6C2665ED382435B04837DA1C63EB21346D994FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2012) HDTVRip (Се�
 ```bash
 magnet:?xt=urn:btih:BEC5D2CF01CBD872825A548D9FC04A600A71CD27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:129F42FAC520919D8BB1FDBFF005C70C9879C70D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ VA - Savages Y Suefo Presents Nu Vintage Selecta (2014)/Electro Swing & More fro
 ```bash
 magnet:?xt=urn:btih:FC836464DFA3C5D38EA3D3DF63FF514C5FFAF372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2012) HDTVRip (Се�
 ```bash
 magnet:?xt=urn:btih:0EBFD88619B610130535F4E3B91C2A7591B25608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C0AD7BF6BA104DD973C6E631C6B9FE25617C113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ VA - Extra Lounge (episode 1) (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:23CB86CF448949E6BDDE1942F6E407A57FB13388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2012) HDTVRip (Се�
 ```bash
 magnet:?xt=urn:btih:7AE0BF093DC25DAE267CCE72FBBD8C0292B5AEAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2012) HDTVRip (Се�
 ```bash
 magnet:?xt=urn:btih:4E893AE7C54AE0B23D50D270B55A7CD03DC656D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ VA - Новинки шансона Зимний выпуск 25 (2014) [MP3|256-
 ```bash
 magnet:?xt=urn:btih:32F186829AAA7D701556D8DA9108390591CC9205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC3585DA9EA3E63F6A9AD763F5C62F6B3D335BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ VA - Lux music. Dance Hits (2015) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:F99B18D5312BE55BA84AD985A105E778D1DAEA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A75FF00CEC4F65A5E35CCD60F2296A19B1532D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ VA - Любимые зимние хиты (2015) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:5FD72C929EB2B4B0026B4336D2ED2220D513B36B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09C2F9FAC61C762A016E959AC8767BFDC1CA0B0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +710,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2012) HDTVRip (Се�
 ```bash
 magnet:?xt=urn:btih:0955C89F1F1B858F029AB6DD2EEA2AFA49A6B2E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

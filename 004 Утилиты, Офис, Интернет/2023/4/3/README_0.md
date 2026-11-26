@@ -20,8 +20,7 @@ HitPaw Screen Recorder — популярная программа, разраб
 ```bash
 magnet:?xt=urn:btih:405E1501DE5B7F82DA8F60C708BBD10C83DFB79B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ LogViewPlus значительно облегчает просмотр запи�
 ```bash
 magnet:?xt=urn:btih:5F13BA8C4E23641A596F82E7DB8CA72A0AC2AD94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Dual Monitor Auto Mouse Lock - это инструмент, который по�
 ```bash
 magnet:?xt=urn:btih:5BEE61F034E8C857F30FB44CA4A1CF8BE55AFD7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ HDDExpert дает вам кристально четкое представле
 ```bash
 magnet:?xt=urn:btih:DE2E0A784FC163B83DB1370FFD39ACE3883FAE1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

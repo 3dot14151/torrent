@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:89BE5C427D39E1F498ECD5E1E02771322BD13383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Denny Zeitlin & David Friesen - Live at the Jazz Bakery (1996) 1999, Intuition R
 ```bash
 magnet:?xt=urn:btih:8275C97EFBBE447A30A25A1031738627335C2F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76F370CEB8B14F5CD4CE2D84DA75629DC65D1BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40A036C2CED29E2D31D7863550953D7855CC646C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ CD1 - Hamp's Blues:
 ```bash
 magnet:?xt=urn:btih:340FB57A90D83041930EC9A377B872E182DF2D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Inspectrum Recordings Best Of (Mixed by DJ Chris) (2017) [MP3|320 Kbps] <Up
 ```bash
 magnet:?xt=urn:btih:BC87D3252BC7303FB1D637F8F85A70C735518AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ CD1 - Here Comes Earl 'Fatha' Hines:
 ```bash
 magnet:?xt=urn:btih:0C0A4CB3CEE65C02A086FDF7D68D0FFF4FBCFA41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Benjamin Herman featuring Daniel von Piekartz - Trouble (2014) Dox Records [FLAC
 ```bash
 magnet:?xt=urn:btih:1A2BFE2D534398C7FF9AD1140C9F389B32241817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ File Cabinet Pro  - менеджер документов из строки ме
 ```bash
 magnet:?xt=urn:btih:A376FC79A8CF0F6A378246321BACC60EA32D9D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Enhanced Progressive - Best of 2017 (Mixed by Marcus Santoro) (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:BCE3A7A908478B17F34A76DD189A2362E8F6D6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Junichi Akagawa - Consistency Test (2017) Hz-records [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:2206A930AB5EAA6736CE30CCB32C872B6D95517B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Art Farmer with Joe Henderson - Yama (1979) 2017, King Records [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:7943AE3F5C8593D1D4D8D1E77B8EB10812843C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ VA - Empire Records - Vanilla Sky (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:4ABC6A74B8B02F64D6EDF97E4D71A2722CA94070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ VA - Best of Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B3833623630A0F2039C7F2482993642C13A1B54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Vintage Reserve - Vintage Reserve (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:F6FAEDE49F6887AA3786ECAB69FBB3C474863A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Vexovoid - Call Of The Starforger (2017) [MP3|320 Kbps] <Progressive Thrash Meta
 ```bash
 magnet:?xt=urn:btih:BA83FB9773FF8167E1AF889EE98671FCC12CBD0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2282B1DFE110A45F3D505B88A3CF65E5F07BF595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ VA - Trance Nation: Cyber Party (2017) [MP3|320 Kbps] <Progressive, Uplifting, V
 ```bash
 magnet:?xt=urn:btih:315B66788A3CCA64969880700F1D0A7AAE1CAB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ My Vitriol - 2 Albums (2001-2016) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:FDCAB63582FFEF5CEC6239648E0D56BD16FDCD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ VA - Techno Disco (2017) [MP3|320 Kbps] <House, Electro, Techno>
 ```bash
 magnet:?xt=urn:btih:C3C17D2D78F2A6867799ECCB716DD8884ACAFB3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D52F0EE83B51B0E1CBBC1D68B05212CEF230A944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ Herbie Hancock - Dancin' Grooves (1999) SME Records [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:F1F443BE7A1135BD7279279D02F28EC9A8795E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F60D1588489B1870C0C8220DDF4BEC62BC70BC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ The Chi Factory - Red Lantern At The Kallikatsou (2017) Astral Industries [FLAC|
 ```bash
 magnet:?xt=urn:btih:101180212BC0D7DA68F3CB30E4AA5D56C3EFB903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ VA - Electro Rhythms Funky Disco House (2017) [MP3|320 Kbps] <Dance, Funky, Disc
 ```bash
 magnet:?xt=urn:btih:96916A3D1020FA8AF20EA8F6741C9735869BD8D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68C96D992AEA44D0D7DFAC0B65EA3D6060815C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

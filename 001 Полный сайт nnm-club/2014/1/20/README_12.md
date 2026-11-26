@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3A441E2B320F00A5C5FF0D6C2D1A79AC0C59DB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60CBF4C69ECC008A1B464E5728B60B63E178B1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D21D9264A23DF949B370F5AB4ED21A72C42D8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Josh Taerk - Josh (2013) [MP3|320 кб/с]<Melodic Rock, AOR,  Singer/Songwriter
 ```bash
 magnet:?xt=urn:btih:74346FD1E13CCD198427355ADB726D2A71F99EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ VA - Faces Nature - Freeze Miracle (2014) [MP3|320 кб/с]<Uplifting, Trance>
 ```bash
 magnet:?xt=urn:btih:CD430841863703D443498DB4BAEF03155E1228E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17847ADC0995564D96D51772EF5BB030A9D6478C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ The Angels - Talk the Talk (2014) [MP3|320 кб/с]<Hard Rock / Classic Rock>
 ```bash
 magnet:?xt=urn:btih:85D81AA576253AB6C7B6C991C2BD1F69B626448F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ Alaskan - Despair Erosion Loss (2014) [FLAC|Lossless]<Atmospheric Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:F735A56182A891DEEB599E37BACF2FD29830EE09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ Jim Tomlinson - Only Trust Your Heart (2000) [FLAC|Lossless]<Jazz, Sax>
 ```bash
 magnet:?xt=urn:btih:427247483150E45E6EFD4A2A16538F87C69F006E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F943C5B8847BA884C82751E098A43F46A4D580AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ VA - Best Of 2013 (2013) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:48F04873E656BF3AC7FD88603B221F31ABF2C147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:185A7181FD2C45BA90EF0FF7A46DB062D6EF3FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7740914B36BD262354EA6FE5AD567BCCC6A2471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50402AF0A231024E7148B63D13006BB5DDEAFEDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ Food - Quiet Inlet (2010) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:35EEB7D9BC78608F0696FD1B0B257DA22FD41ED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +466,7 @@ Bill Evans - Soul Insider (2000) [FLAC|Lossless]<Modern Jazz>
 ```bash
 magnet:?xt=urn:btih:A6DBE3FF0BA829EFAF3A9A0859C7174E8F47F01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ Idoru Brothers - Lounge Sans Dormir (2013) [MP3|320 кб/с]<Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:92175F29E0ECAD8C764E4620A89944F8D9AF4EEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ Charlie Musselwhite - Juke Joint Chapel (2013) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:D0BDCD5A790524AC65A7EEED4D352D20D1A5310F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:439F73F845552287B3E2C5D0DB1A2FA02DF8FC99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00B56C49AEABC6FA9D1C928A09CB5A6FC3E04E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:898DE77E6991446F1E1F1FD240062A9535B920B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ Tangier - Stranded (1991) Japan [WavPack|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:AC3F48ECB6BEA046E8BD481BA4F9A58FA0FCA844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69338CEC1F88D3A78791743978A2BE6810D929CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ VA - Tribal Winds. Music From Native American Flutes (1996) [MP3|320 кб/с]<Ne
 ```bash
 magnet:?xt=urn:btih:E9C84313B13859857B19B55FA95729226B6F658D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ Dino Saluzzi - El Encuentro (2010) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:B1F2C07C83E986B9C774BE6E54FC1DD7F7D473E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ Francois Couturier - Tarkovsky Quartet (2011) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:6F3ED658DC9BD5F5C2BD594E9B78F534482B485E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

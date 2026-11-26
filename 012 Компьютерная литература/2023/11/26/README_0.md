@@ -19,8 +19,7 @@ Bruce M. Van Horn II, Quan Nguyen | Hands-On Application Development with PyChar
 ```bash
 magnet:?xt=urn:btih:7A50D2C575D4A5FD029C26FE6B9E307A9FEF82DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

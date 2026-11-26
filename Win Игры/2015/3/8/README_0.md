@@ -21,8 +21,7 @@ Classroom Aquatic (2014) [En] (prerelease) Repack/Trial John2s
 ```bash
 magnet:?xt=urn:btih:1AEB40B7482C032B6B09ED5FFC7AD0506D6465DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Costume Quest — это приключение на тему Хеллоуина
 ```bash
 magnet:?xt=urn:btih:3A860E292779C527BCE07C6D1A2E342B374ABA57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Starbound (2013) [Ru] (beta 668) Repack Dia team
 ```bash
 magnet:?xt=urn:btih:75DAE02309C34F14434ED5BE0FA9B8DB48E72561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Pneuma: Breath of Life – игра для настоящих любителей
 ```bash
 magnet:?xt=urn:btih:431A698527FA7A9F7E87A95F012E672DFFE5F80C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Real World Racing - сумасшедшие аркадные гонки с нео
 ```bash
 magnet:?xt=urn:btih:118D8C11F352BAB4ED3CF558A7D35FBBE5B88D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

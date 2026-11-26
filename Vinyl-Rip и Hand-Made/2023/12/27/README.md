@@ -21,8 +21,7 @@ Dissection — шведская мелодик-блэк-дэт-метал-гру
 ```bash
 magnet:?xt=urn:btih:1893713EB2807D5E00F0CD097C709DE67DACF8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

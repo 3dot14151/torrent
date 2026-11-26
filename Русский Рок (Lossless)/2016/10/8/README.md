@@ -24,8 +24,7 @@ Lumen - Акустика (Концерт в центре им. Вс. Мейер�
 ```bash
 magnet:?xt=urn:btih:7564B93C016070908E28FC4790562BD5EA02A7DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

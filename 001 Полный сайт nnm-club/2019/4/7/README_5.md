@@ -22,8 +22,7 @@ VA - Synth Love Affair Vol. 2 (2017) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dreamwave
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Joey DeFrancesco - In The Key Of The Universe (2019) Mack Avenue [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:A898D11B6046138441D7D24636CEF85DFEA06331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Outrun The Sunlight - Terrapin (2014) [FLAC|Lossless|image + .cue] <Instrumental
 ```bash
 magnet:?xt=urn:btih:DF0C9976ED8D404A2463A4430AD5ECB265F7D181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:A6D59940C25A62ED812D3D29680C8D678DE6D0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Black Matter Device - Hostile Architecture (2019) EP [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:6A0A20DE0A76296664B9E7B44E9A9A8F9D941814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Matthew Shipp Trio and Nicole Mitchell - All Things Are (2019) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:26FDC452369842929E0740EDBBEC688DA7654559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Retayner - Calendar Man (2017) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:32E07B0F0FDE7A823CA0D16DF2CE57F8A1FBF395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Peggy Lee - A Portrait of Peggy Lee 1941-1942 (1986) Sony [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:A8FD3F75067B00AF78C358FFAE34CF6EE04842C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Outrun The Sunlight - Red Bird (2017) [FLAC|Lossless|image + .cue] <Instrumental
 ```bash
 magnet:?xt=urn:btih:D96352582E558D530001CD4662CA570B9159D08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Trisha Yearwood - Let's Be Frank (2018) [FLAC|Lossless|tracks + .cue] <Pop, Jazz
 ```bash
 magnet:?xt=urn:btih:2696E1FCBD8EED9175D1068487426E63EF15B4BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Angela Little - Chocolate Oyster (2018) OST [MP3|320 Kbps] <Easy Listening, Prog
 ```bash
 magnet:?xt=urn:btih:080D8D2C1246B71BE6E959269C5AF181AB5F817A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Solee - 10 Years Parquet Recordings (2016) Parquet Recordings [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:947726DE40A4C0D5606CB403365500A073228FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Reba McEntire - Stronger Than The Truth (2019) [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:3C8921E281E9A043AC767BB1D794F82D0B1A6699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Boy Howdy - Welcome to Howdywood (1992) [FLAC|Lossless|tracks + .cue] <Country>
 ```bash
 magnet:?xt=urn:btih:E3E1A7BF68028AB8FED47D2F3B85FFC76DBD3315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Sopor Aeternus & The Ensemble of Shadows - Death and Flamingos (2019) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:305FF890EADA9EEF1D7E55ACDC5C4AB84E4CB511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Thump'n Pig & Puff'n Billy - Downunda (1973) CD, Remastered, 2005, Aztec Music [
 ```bash
 magnet:?xt=urn:btih:4800413C9477A4E20B539DD0B2F599D399314768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Nat King Cole - Ultimate Nat King Cole (2019) [FLAC|Lossless|tracks + .cue] <Jaz
 ```bash
 magnet:?xt=urn:btih:861855759EC8A01F98524B622E60DE9F261FBAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ The Neal Morse Band - The Great Adventure (2019) 2CD [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:74CC32F87FB73BD1389F9B404F10498431F7FC9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Bauer Media Group — одна из самых успешных и передо�
 ```bash
 magnet:?xt=urn:btih:3B6FF4549FF867CE62C8BC2E98BEB9ABAA5D6D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27573E7CEA1894D28C24A5A48F4AE27FC3787476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ Jayda G - Significant Changes (2019) [FLAC|Lossless|tracks + .cue] <Electronic, 
 ```bash
 magnet:?xt=urn:btih:E93CD1FB8B545EA37E1A740F7DBAF716F05459E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ Shwamp - Inner Landscape (2019) Mindspring Music [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:88298577E29410762E78ED4C753421FF2F341B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A75DC70970CBB264C85E3D46328FBC4E9699769B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ Silver Bullet - Mooncult (2019) [MP3|320 Kbps] <Power Metal, Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:9E582FC9C7D283F4E180372257576F194C9FEB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ Nicki Parrott - From New York To Paris (2019) [FLAC|Lossless|WEB-DL|tracks] <Con
 ```bash
 magnet:?xt=urn:btih:CFA66A2B866D7103DAB908B13B91D212A2C74AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ VHS Dreams - Lost World (2018) [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
 ```bash
 magnet:?xt=urn:btih:64B579553080B5AACAAF741E0B1F777C4C578024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

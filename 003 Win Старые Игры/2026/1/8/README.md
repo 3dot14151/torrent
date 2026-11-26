@@ -19,8 +19,7 @@ Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
 ```bash
 magnet:?xt=urn:btih:37F747EE7C6DD7AA1E9D29AB699408643C086BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5FD45DCDB86869A51AE63F5A5941473B10FDFF35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:39F8BE0F277185873475164087392D52F37622B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

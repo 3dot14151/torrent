@@ -19,8 +19,7 @@ Logo Maker v43.05 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8A72C7D638752445BDD9FB2E17A238D380452931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Polarr v6.9.12 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EE4E530F064B97B8EC5DC31EBB5FEC203FA77D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:2B7C51A0BC36D5BBB72B05D19F27C6E62B8941FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Electrical Calculations Pro / Электрические расчеты v10.0.9 
 ```bash
 magnet:?xt=urn:btih:8B22E142B196C7B4A17ACD8DF5D2479CCF8BBC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Company of Heroes 3 (2023) [En] (1.4.2.21612/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:77E50A26DC4E0DDE07DFCE13617FE5B0BE76EC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:11CF7DD05E260B72788F6FF4560E9A6A327C8BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack dixe
 ```bash
 magnet:?xt=urn:btih:87458C73FC9F6155502385EA59FD5847E6390730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:E2DCA6ED24AE197D4686A9DD074726E4008A80FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Watch Dogs (2014) [Ru/En] (1.06.329/dlc) Repack dixen18 [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:29662E5A3142D0273E5D65293E1968BC2245FF6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Invincible представляет собой приключенческу�
 ```bash
 magnet:?xt=urn:btih:DBA9D8DA454A93DA4F6492B9316764AB3104EE79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ I dont Fall – Беллерофон хочет получить статус б
 ```bash
 magnet:?xt=urn:btih:17FE982594CDFB8ADF290163713DF8C0F7BAA1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ INDIKA - игра от третьего лица с историей о стра
 ```bash
 magnet:?xt=urn:btih:31773611A6EAEF61E65EA75FA8A6633926CB1412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Medium – психологический хоррор с видом от т
 ```bash
 magnet:?xt=urn:btih:67D3CC24026D34013F91BA06DCA2052113467E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Lumnis – что может быть лучше сочетаний жанра �
 ```bash
 magnet:?xt=urn:btih:7FF02D9781A2BDEA3C29D8510E2374FFA289D10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/Multi] (1.0) Repack
 ```bash
 magnet:?xt=urn:btih:435E3120AD7CD2D57EA68FA66C17AE4C72FF86A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Legend of Crystal Valley / Легенда хрустальной долин�
 ```bash
 magnet:?xt=urn:btih:B45BB8EEC62C056664F9C68D974508A0F528B7A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Airhead отличается от прочих метроидваний тем, 
 ```bash
 magnet:?xt=urn:btih:9D26F0EA476C2979C777AFF2DB1BA603BD096E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

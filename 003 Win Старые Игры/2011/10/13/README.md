@@ -20,8 +20,7 @@ John Saul's Blackstone Chronicles [Ru] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:B29A9716A4C573A9ACD0E55B51417F3D2851FAC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Driver: Parallel Lines [Ru/En] (RePack) 2007 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:143C8F33CD3283097B3AEC5A89C44EB676F21E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

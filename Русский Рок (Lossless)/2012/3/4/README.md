@@ -23,8 +23,7 @@ Drudkh - Eternal Turn Of The Wheel (2012) [FLAC|Lossless]<Atmospheric Black Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

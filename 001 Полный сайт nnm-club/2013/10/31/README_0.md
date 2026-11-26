@@ -27,8 +27,7 @@ VA - Pulsedriver presents Hands Up Bombs! Vol.4 (2013) [MP3|320 кб/с]<Trance 
 ```bash
 magnet:?xt=urn:btih:7BA05B833284C742B87728AF9A05392CDBC52068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E4A510AF6F2A5E607A6D322793835FE5084BB26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Dawn Of Tears - Act III: The Dying Eve (2013) [MP3|320 кб/с]<Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:1D6EA91DAFB6C73A3CEA66BA5B86B9B6095F4442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D29A24D69C6BB66DDF862931348CE595A8EB2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Synthetic Epiphany & CoMa - Beauty In Errors (2013) [FLAC|Lossless|WEB-DL]<Dubst
 ```bash
 magnet:?xt=urn:btih:3B020CCB470375BD69D2001179939D0150382780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Nightmare City - Retribution (2013) [MP3|320 кб/с]<Dark Electro, Industrial>
 ```bash
 magnet:?xt=urn:btih:83D8CB13DFA6BD511E3C09DC8CFC349F9615B4E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E6B0E8454D2C5058515BB54F3984749F7D4993C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ VA - Проза Жизни - 2 (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:BA107AF5558B45CF15FDF02A0A2C43533AB1A0D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62D9146BB8FC6218BEF05725DA23D30431C56603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ Melorman - Mokhov Remixes (2013) [FLAC|Lossless|WEB-DL|24 Bit]<Ambient, IDM, Dow
 ```bash
 magnet:?xt=urn:btih:21A7468D0E162F2C006ED5F677E7C84CDCB1C622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C3EBEB566ACF8D405EDC9AB8F7D625BB4B35E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ Bob Sinclar - Ibiza Mon Amour (2013) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:AD71B6F29A00B248010C90F3244A88AC1FDD2270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FC60ACF7742990CBCBCCA7AC816AB7938A7FFB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ Jamala - All Or Nothing (2013) [FLAC|Lossless]<Jazz, Soul, Pop>
 ```bash
 magnet:?xt=urn:btih:11CB6E5AE6128516E96D55AD83F3A2764D4DA334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ Ashampoo WinOptimizer -  пакет программ, позволяющий о�
 ```bash
 magnet:?xt=urn:btih:FEA773E76A82AE6B4DCC03554F98086396FD3712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A0148BD98DD3482FEA33EEA4D625BD750837304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ Queens Tales: The Beast and the Nightingale Collector's Edition (2013) [En] Unof
 ```bash
 magnet:?xt=urn:btih:5D945DCE9D0298B0C0ABAAB34B605F1EC6ECA5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ Dhamika - Digital Human (2013) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Ambie
 ```bash
 magnet:?xt=urn:btih:441DAD8932FF784AC370BC6D0FAC5743C1FB5AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C2483A71FF1F4539312FE49B318FF9EFC4B9C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +616,7 @@ VA - Dream Dance vol. 68 (2013) [FLAC|Lossless]<Trance , House>
 ```bash
 magnet:?xt=urn:btih:2E80A259E51EF8CB3A67A197975E99A09BA40E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2DACEF8F32DBD5BD762A7CD405E36C966E5D9B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24675765434E5645C13CB03EB0C49DBFDCFADA65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D6EA78031E94891EC7BBC2D0B6440B53EA9BD01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B063A48F4E4AEB6FE669991722789960E706DFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (31.10.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:6A15D6F027BE194CC842ED7862701018EE3B91D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

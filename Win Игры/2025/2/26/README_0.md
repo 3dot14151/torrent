@@ -19,8 +19,7 @@ Brutal Orchestra (2021) [Multi] (1.4.1f1) License GOG
 ```bash
 magnet:?xt=urn:btih:DBB76C7364AE6E6254918697C5ECEBA6BDC4149D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.31-CL364745/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:A560E7B909DEEA5D6332C8791D07A8B62352AB63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SKALD: Against the Black Priory может понравиться любител
 ```bash
 magnet:?xt=urn:btih:335ADF841CD93B4CF7C514C36477A6616A36E0B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:44073F75A66FEA7B5BDD206ED98F36E29461DEF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:257513BAB705AF78685311E22202AB1E91764AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.108/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CDCABBB8D2D496A3CB858ACB604463538711C7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:68EF4BE6C4C626F2992F5C41B3F9AA023A5F7D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:D7F03F87CDEE224B59E5BAE08AE081C84C675F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Small Saga (2023) [Ru/En] (Build 12840998) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E19147BC75F8D5F4F24458A664E81FBBF44FEC70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.14.29.106/dlc) Repack W
 ```bash
 magnet:?xt=urn:btih:C0F90569FE0AD2DD472DCFEBD06F3D42BD56F63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

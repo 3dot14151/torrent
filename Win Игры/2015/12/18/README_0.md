@@ -19,8 +19,7 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) SteamRip Let'sРla
 ```bash
 magnet:?xt=urn:btih:4147E6A65D6F6F6F65BBD887E068960E4F1BD5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Evoland 2 – ролевая RPG игра разработанная компа�
 ```bash
 magnet:?xt=urn:btih:DDA2BFF4E56B0C00490A575DD65E677F57AA18AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Project Pulsation (2015) [Ru/En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:955EBB7DC2791798AC9D329160BB4E96A905422E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Duplicate File Finder Pro 2500 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:088E0E65A36A39982BFE3E8A9CE91423D2A187FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

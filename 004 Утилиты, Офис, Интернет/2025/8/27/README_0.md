@@ -21,8 +21,7 @@ Element X — это приложение для обмена сообщения
 ```bash
 magnet:?xt=urn:btih:1F078993A4A94830E009E5DD557F785B557B9000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ YouTube Video Downloader Pro 6.16.2 [En]
 ```bash
 magnet:?xt=urn:btih:661C947A0ADEBA560D7EFEF423D42573F1FAD392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

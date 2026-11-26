@@ -19,8 +19,7 @@ Royal Romances 5: Cursed Hearts (2023) [Multi] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:B49A69979BA103E497B0E5F005168EBABA5F676C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Last Faith рассказывает о герое, который решил
 ```bash
 magnet:?xt=urn:btih:E7D081A5075055D5727FA0AD89C51F07493BDDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

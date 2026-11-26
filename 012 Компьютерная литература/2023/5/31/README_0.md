@@ -19,8 +19,7 @@ Dart – язык программирования для разработки �
 ```bash
 magnet:?xt=urn:btih:36B700ADED24EA1EFAE8DC3EE4D9554A7DB53212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Chris Minnick | JavaScript All-in-One For Dummies (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:BA4416B159ADB1C73567470FD6A7E72A7195E472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

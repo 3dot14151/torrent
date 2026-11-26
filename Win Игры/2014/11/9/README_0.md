@@ -21,8 +21,7 @@ Rocket Knight (2010) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4D8FBFBC5A4009C6CABE7572077E61B982465B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Legend of Grimrock 2 это классическая RPG с современны
 ```bash
 magnet:?xt=urn:btih:A4732697E1191F5026498EF21CA3547AE7CFDDD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

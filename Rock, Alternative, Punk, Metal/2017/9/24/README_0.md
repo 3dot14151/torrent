@@ -22,8 +22,7 @@ Pappo's Blues - Caso Cerrado (1995) Volumen 8 [MP3|320 Kbps] <Hard Rock, Blues R
 ```bash
 magnet:?xt=urn:btih:63AD52D725FE79B95A3D51EA152DFDC4E68D0D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Strypes - Little Victories (2015) [FLAC|Lossless|image + .cue] <Alternative 
 ```bash
 magnet:?xt=urn:btih:94C87C7FD30B3C038E4198DF8F23156973DC5648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hiss Golden Messenger - Hallelujah Anyhow (2017) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:6C4D13F2ACCD046A17E0BF24F500557C647CB50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Klaatu - Klaatu / Hope (1976-77) Reissue, 2000, BGO Records [MP3|320 Kbps] <Art,
 ```bash
 magnet:?xt=urn:btih:818FF94C56C7A775DEF4A1DA67586246A95F7E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Alan Parsons Project - Tales of Mystery and Imagination (1976) Japanese Edit
 ```bash
 magnet:?xt=urn:btih:5B840D30861DB814BF79E2D9D8328C70A0AFD072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Клинское Продвижение (2002) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:841877F4C87F131057FCFFC01250BC88D90A33F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Flash And The Pan - 6 Albums (1978-1992) CD Collection [MP3|320 Kbps] <Electroni
 ```bash
 magnet:?xt=urn:btih:3164E6D6F2F9B3FA71F4B99ADDE8752AD3AD7C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Doors - The Singles (2017) 2CD + Blu-ray, Blu-ray Audio, Deluxe Edition Box 
 ```bash
 magnet:?xt=urn:btih:40462D9B8D8A5E7CBB6DB17C337030E6C3290A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

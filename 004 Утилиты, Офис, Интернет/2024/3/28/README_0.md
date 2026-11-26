@@ -19,8 +19,7 @@ PC HelpSoft Driver Updater автоматически сканирует раз�
 ```bash
 magnet:?xt=urn:btih:24BF95E5490C491F195DE8A4CE171C631E48BE68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

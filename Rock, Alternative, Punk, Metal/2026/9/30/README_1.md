@@ -22,8 +22,7 @@ Born Again - New Metal Breed (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:096A646C9EB4293B13373382A12A2FE3522DEDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sojourner - Gateways (2026) [FLAC|Lossless|image + .cue] <Atmospheric Black Meta
 ```bash
 magnet:?xt=urn:btih:F8170EFD1E2E391AAD97195DF6CDC44E5A91625C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Nevrose - Sequitur Usque Ad Mortem / Demo MMXIV (2014) [MP3|320 кб/с]<Crust, 
 ```bash
 magnet:?xt=urn:btih:F64EDE52074DE68DC6DDED4614AB21903899ABFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Teodor Tuff - Soliloquy (2012) [FLAC|Lossless]<Progressive / Power Metal>
 ```bash
 magnet:?xt=urn:btih:C7C0DF2875DBA008147CAD18A115A0EE74967DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ MirrorMaze - Walkabout (2012) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:D0B33016040187DC9B761FD5191FDB0FF3A8AB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Deadlock - The Arsonist (2013) Japanese Edition [FLAC|Lossless]<Melodic Death/Gr
 ```bash
 magnet:?xt=urn:btih:676893958514184783F162FE0A3E0F9A966F0F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Nevermore - This Godless Endeavor (2005) Japan [FLAC|Lossless]<Power/Thrash/Prog
 ```bash
 magnet:?xt=urn:btih:5D65DBD2DE58C1CDC25155D1C71A02427AEC42BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ CD. 1:
 ```bash
 magnet:?xt=urn:btih:CD41EAFB4EFC6F21D6EF55F21800EF2834EFC898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Lonely Kamel - 4 альбома (2008-2014) Дискография [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:1AAAAA58403BB940A8ABF705C904E4A5E0C087FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Adrenaline Rush - Adrenaline Rush (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8573134912311C36A67A16449DA7FCC7B14F4344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ Motorhead - Aftershock: Tour Edition (2014) 2СD  [MP3|320 кб/с]<Hard Rock, H
 ```bash
 magnet:?xt=urn:btih:4A042C275C05F35EBFD79D686E1D7C5C71A5C224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:B7EB7F273D91E6D13544D1435F5AD1A3223A661F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ Piper Club, Rome, Italy, "First European International Pop Festival", 6th May 19
 ```bash
 magnet:?xt=urn:btih:FDC8571E2AF5A99EE72A7479B95CC83855EAB087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ Paradise Lost - Draconian Times (1995) Japan [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4E34711671F8FEC643E7B802F43607978B34841A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

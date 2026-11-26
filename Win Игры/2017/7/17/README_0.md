@@ -19,8 +19,7 @@ Mystery Trackers 13: Memories of Shadowfield / Охотники за тайна�
 ```bash
 magnet:?xt=urn:btih:A16FBE13C7CEE88E6F0EA4337F1AD489EF9B8879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Darkness and Flame 2: Missing Memories / Тьма и пламя 2: Утраче�
 ```bash
 magnet:?xt=urn:btih:7C9DAE445406AB4931040A12D0ECB80ED2CB8343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FIFA 17 привносит массу нововведений в популяр
 ```bash
 magnet:?xt=urn:btih:79023BF565DD8F46A4274F363326CE649347CF2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

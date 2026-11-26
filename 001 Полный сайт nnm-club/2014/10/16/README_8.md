@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FA26701B09B1F52D23C89B56746476CCB844CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pablo Huascar - Retrospectiva (2005) [MP3|160 кб/с]<New age, Electronic>
 ```bash
 magnet:?xt=urn:btih:A7B5FAF5135A4A754586F81AC418F457E5AC5B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Joel Andrews & Soren Hyldgaard - Journey Toward The Sun (1999) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:0122978BC45CC6BAC7D80132B09BEC9F7B467ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABE9D76F551BA8567E92BBDCEC2DE7D2BF315785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ CD2 - Captain Blued (00:55:53)
 ```bash
 magnet:?xt=urn:btih:6130BBA6CF0F8051DA88E4B40AFE9DE38B43172F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Ray Price - Beauty Is...The Final Sessions (2014) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:EFE7D8B378A4CB1726B86C04308EE09B154F33B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ VA - Spirit of the Wolf. Deluxe Edition (2013) [MP3|320 кб/с]<Meditative, Nat
 ```bash
 magnet:?xt=urn:btih:2DB830DDFD34B1ADD016707BC0B284F46BA99D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:E693FC2A145E415F58799CD8B38730855AC7B8A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ VA - Vocal Trance Temptation Volume 33 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:13AC9FB3FFB1B0183D2394EE5096559D32AFFC15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ VA - The Blues You Would Just Hate To Lose Vol. 2 (1999) [MP3|320 кб/с]<Chica
 ```bash
 magnet:?xt=urn:btih:C061B42442BFC7FA04F5BBF648BADC84A5A595DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ Laura Sullivan - Love’s River (2012) [MP3|192 кб/с]<New age, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:121BB48E9821ABE14264CC63B655973D35F4F0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +410,7 @@ VA - The Blues You Would Just Hate To Lose Vol. 1 (1996) [MP3|320 кб/с]<Chica
 ```bash
 magnet:?xt=urn:btih:6F90B1C211E79C23E8B57B93988A1E1C4E49266B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +442,7 @@ Ironbird - Black Mountain (2014) [MP3|320 кб/с]<Hard Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:6060A15FB296D3C6DDA66C32469CB5402664A39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +476,7 @@ Interactive Noise - Personal Picks (2014) [MP3|320 кб/с]<Psychedelic / Progre
 ```bash
 magnet:?xt=urn:btih:F798B40490547C21F90E6E8F374DE685561EF439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACE08D53F997E60DD4D128D29C54C99E8EEB3A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +535,7 @@ Durs - Personal Picks (2014) [MP3|320 кб/с]<Psy/Goa Trance>
 ```bash
 magnet:?xt=urn:btih:8D49487C06400243F1604B7DAD081F2487B1ED91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D610E05CB0EB3E3FDC85C8F00A209573655BEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +592,7 @@ Amederia - Unheard Prayer (2014) [MP3|320 кб/с]<Gothic Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:5CE2BD6F20ECDBE450EC4A2B9AEFF66BCB26D33F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:444815ACE460A00590D6CF7FB928E14C511D518F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +660,7 @@ Orange Goblin - Back From The Abyss (2014) Limited Edition [FLAC|Lossless]<Stone
 ```bash
 magnet:?xt=urn:btih:248293FE132BC4FA4ECE8FDA6412D68EF0A50977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94D89A8BEA837A0F33EB6028A5389646EE13846D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDF95B4B8F9A98EFFC6442C51401DC63B855A179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +744,7 @@ Vega - Stereo Messiah (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B68D389E23AB875073EE240FFCC5539F02F1BA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +778,7 @@ Diamat - Being... Remixed (2014) [MP3|320 кб/с]<IDM, Ambient, Trance, Post-Ro
 ```bash
 magnet:?xt=urn:btih:E5125DB36E36BF1222D3D5A9E9F7291A5AFAEE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -837,8 +812,7 @@ Krama - Personal Picks (2014) [MP3|320 кб/с]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:D0F22C338A6D67EB447B35054B3EEB1F63F1A325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

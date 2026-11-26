@@ -22,8 +22,7 @@ Running Wild - Rapid Foray (2016) Limited Edition [MP3|320 Kbps] <Heavy, Power, 
 ```bash
 magnet:?xt=urn:btih:F063237E7C68F27DF801D139DFF12C7C911D11BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

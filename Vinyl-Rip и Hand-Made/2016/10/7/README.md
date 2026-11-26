@@ -22,8 +22,7 @@ Richard Clayderman - 7 Albums (1978-1984) [FLAC 2.0|24/192|image + .cue|Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:4F00D51FEE3F07827505FF8324B11EA85C66953D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

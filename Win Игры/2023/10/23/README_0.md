@@ -19,8 +19,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:0652785604DEB443E76922299CFC8BA207F419F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Freaky Trip (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F402C355A6079005CF5482D760F8FDEA01B4153F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Gap - это душещипательная история человека,
 ```bash
 magnet:?xt=urn:btih:AF758B34602795A1DC38FFEA933FD21DE70C0CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hero Survival - это игра, в которой вы будете истре�
 ```bash
 magnet:?xt=urn:btih:00EBEFAECA8D9E0F424340E67192CC2F58A1F2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fears to Fathom: Ironbark Lookout (2023) [Ru/Multi] (1.3) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5111E608BF2F7DB1CE637FCF8292209008E06124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

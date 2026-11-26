@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0F29C5C2E0E1FE80BAE244A664A02DD1280E1F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso(   Читать дальше
 ```bash
 magnet:?xt=urn:btih:DA52CB5F7CDB37D47D27E72374F747B319CF292D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Stonehearth - это игра, в основе которой лежит стр�
 ```bash
 magnet:?xt=urn:btih:0D26B16FE6BE239052FC7D2290F1A8ACA9DB0BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

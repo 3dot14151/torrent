@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:DD10514960BA52D1927562C3B50035D96ED2A89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Best Coast - Always Tomorrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, A
 ```bash
 magnet:?xt=urn:btih:D560341909C9D2685526576246F1F65DA1EBB525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Doro - Doro (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4FE7933F83CA33A3FA0DCCDD4541A0D943F537C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Demons & Wizards - III (2020) [FLAC|Lossless|tracks + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:E1A849AA87CCC73FE13079428FC08CF84B0F7573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Rise Of The Northstar - Дискография  (2009 - 2018) 4 CD [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:8CA960C63DF04C393554DA99C6A195EF544BD50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5488E9296A63964570709AAEEB9B7E6BB67B71E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

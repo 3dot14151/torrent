@@ -25,8 +25,7 @@ B4 Earth Hymn Part 2 [4:17]Жанр: Hard Rock/Prog RockПродолжитель
 ```bash
 magnet:?xt=urn:btih:CAB0BE6F2269E620E980457D120157557773DA42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Manfred Mann's Earth Band - Watch (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop
 ```bash
 magnet:?xt=urn:btih:E3A8BA025D2A63F2177900377DFD8D9DD4A7912A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cadenza 2 : The Kiss of Death (2015) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:D4E6B15CC0EBBA3D5BBB35FCEFBE45202FA1EC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Reckoning 2: Brassfield Manor / Точный расчет 2. Поместь
 ```bash
 magnet:?xt=urn:btih:B3F63C9E6442AD9C10F959F5674A3FD6C0822356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ War for the Overworld [Patch] (2015) (1.0.0.7) Official CODEX
 ```bash
 magnet:?xt=urn:btih:FF1C6C0BB1B15A7081F8C8A59FC9A58FF778FB48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Redemption Cemetery 6: The Island of the Lost / Кладбище обречен�
 ```bash
 magnet:?xt=urn:btih:C09C024A55E639748033264102EB7FD0F4763CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Trials Evolution: Gold Edition - ответ на их ожидания.
 ```bash
 magnet:?xt=urn:btih:B783466008B0DFF57FE2F9423E8EE071E24FCDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Sacred Citadel – первый платформер в знаменитой с�
 ```bash
 magnet:?xt=urn:btih:23F25038C662DA59989D73FFD0DDB62A5BF4AE33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Out of the Park Baseball 16 - превращает фанатов в генер�
 ```bash
 magnet:?xt=urn:btih:FA256A726BBC9D127A4AE5C97ED5759CFA48C33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

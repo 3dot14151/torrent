@@ -19,8 +19,7 @@ Golden Gate / Золотые Ворота (2014) [Ru] (1.38) License GOG
 ```bash
 magnet:?xt=urn:btih:EC1EF575FFC5CD5C977490B35D0BE16589EAAA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

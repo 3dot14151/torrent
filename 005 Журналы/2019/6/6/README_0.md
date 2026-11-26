@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:136F4D43DF1C80E0E8A958247046C56720154E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC66BB0C5E44FA3DE07C537F118F5AC489B9E33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Fantasy Artist Genius Guide - журнал для тех, кто любит фэ
 ```bash
 magnet:?xt=urn:btih:0CF06B1FBD5BB950093002A9E35F638AF27189B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

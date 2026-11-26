@@ -19,8 +19,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:91CEA4130ADCFC23830BE36F2AD84720E708287F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23468/dlc) Repack dixen18 [Master Coll
 ```bash
 magnet:?xt=urn:btih:120CC6B50EF55668E22A29A40CA25FEFC2B2D2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.088) License GOG
 ```bash
 magnet:?xt=urn:btih:BDA25BCA37FFA566FD9C5672B4213F4334B9A00E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.325) Repack Let'sРlay [Premium E
 ```bash
 magnet:?xt=urn:btih:BD0CA8457A2285713BBABDD6BCBDEB2DFDBE11ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:8B6BA02F6B36086A69304D5455FEE7E8563248AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sable (2021) [Ru/Multi] (4.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7344213C3E20103CA7C6340ABB163FE31C8C1138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

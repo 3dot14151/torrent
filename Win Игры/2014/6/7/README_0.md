@@ -19,8 +19,7 @@ State of Decay (2013) [Ru/Multi] (14.6.5.3080/2dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:C58A2C5820017B33E1E97E0A1B8FB8731BD35733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

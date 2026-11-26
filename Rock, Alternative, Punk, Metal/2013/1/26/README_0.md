@@ -28,8 +28,7 @@ Dysentery - Internal Devastation (2011) [FLAC|Lossless]<Slamming Brutal Death Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ nuERA - Dialysis (2012) [FLAC|Lossless]<Nu Metal | Rapcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Envinya - Inner Silence (2013) [MP3|320 кб/с]<Melodic Heavy Metal, Female Fro
 ```bash
 magnet:?xt=urn:btih:A738A62035F27F0E20A04E9B3A42BC2691639C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Hatebreed - The Divinity Of Purpose (2013) Scene [MP3|276-296 кб/с]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:8AD1ABE4488A1A8778DD22D55477C22D8B634769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Stratovarius - Unbreakable (2013) EP [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:8A9D8E25B195D267A1E03E5F2C08837792B5541E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Unknown Mortal Orchestra - II (2013) [MP3|320 кб/с]<Psychedelic, Indie>
 ```bash
 magnet:?xt=urn:btih:6C2636B739F3214365C50A8B1A061894766D22CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Nirvana - With The Lights Out (3 × CD, Compilation) (2004) [FLAC|Lossless]<Grun
 ```bash
 magnet:?xt=urn:btih:0897975EEBBDA2B7E3805921ECA219447B8C545B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

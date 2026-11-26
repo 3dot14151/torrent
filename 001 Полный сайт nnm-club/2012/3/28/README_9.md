@@ -18,8 +18,7 @@ VSO Downloader - шустрый менеджер для многопоточно
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eivissa Salinas - Touch and Go (2012) [MP3|320 кб/с]<Chillout,  Lounge>
 ```bash
 magnet:?xt=urn:btih:3F70B9EBC2C1589D5C1DCC63D858FD2DD9F2F2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Trust X - Вспорхнуть в небеса(Официальный видео
 ```bash
 magnet:?xt=urn:btih:61DADC99046D5587F2E4EB7476AEC57DB9F0E311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Home Sheep Home 2 увлекательный логический платфор
 ```bash
 magnet:?xt=urn:btih:3214ED6D7DD8D958D25C1AE4313EE2665EFB2120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Trials Fusion (2014) [Ru/Multi] (1.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:74D0C5A200DECB855BA1C54CC2314BEF2135A797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Trials Fusion (2014) [Ru/Multi] (1.0) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:6115B3A40386B10D7D4680F32E2258DD7EDEB6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Blood Bowl — это жестокий и кровавый спорт, вдох�
 ```bash
 magnet:?xt=urn:btih:D3942EFE8EC898BDD91B50907757276424A1CF66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ DuckTales: Remastered - это красочный, нарисованный вр
 ```bash
 magnet:?xt=urn:btih:9218DF1E076EDE2084AB20C4394EAF34FF42544A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ R.U.S.E. (2010) [Ru/Multi] (1.0.0.1) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:CDB7224FD7492CDF73F727B50C7B633F7642B370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:B070F9B5C788373E8F560DF7A69F3378509008D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

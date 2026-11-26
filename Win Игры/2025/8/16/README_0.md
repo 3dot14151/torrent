@@ -19,8 +19,7 @@ Wizordum - это ретро-шутер от первого лица, дейст
 ```bash
 magnet:?xt=urn:btih:740A347639D948478A3DBF563CE147D5A99D15B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Figment 2: Creed Valley - насыщенное приключение, дейс�
 ```bash
 magnet:?xt=urn:btih:B9F4C981B6FA4D34FC426B167882088A35DB4137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Barony повествует об обретшем вечное существо�
 ```bash
 magnet:?xt=urn:btih:9F6D81344E4B13F3EE61A09F2EB79A640E53AC7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Monster Prom 2: Monster Camp - многопользовательский сим
 ```bash
 magnet:?xt=urn:btih:5EC2C079DF7BD3DF8EB18F66FA83A877E4BDA09A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Quasimorph, захватывающая мрачная пошаговая рол�
 ```bash
 magnet:?xt=urn:btih:F4270B9304CD956003641C9D2CA517778F97A9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Edge of Allegoria - это пошаговая ролевая адвенчу�
 ```bash
 magnet:?xt=urn:btih:67BE1CAE0631FF572A97E455B4B3C4D7F38067DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ GearCity – хардкорный экономический симулятор 
 ```bash
 magnet:?xt=urn:btih:6AA4B7EC245AE5A950CEA988E71210089EC111D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 ```bash
 magnet:?xt=urn:btih:74379C3E31E9386BD5762DCC21F7C6086B1E34E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Guards II – это тактическая пошаговая стратеги�
 ```bash
 magnet:?xt=urn:btih:453446BAA4153712D7EE4E11CD9BDA48D50B62C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ False Skies - это классическая ролевая игра с инт�
 ```bash
 magnet:?xt=urn:btih:6A4366990992FB0805153ECEA606355FB780A0AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.43.11/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:EEB98B2FD50DF2A703EA69F9BBFEFE0E2519C555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Everafter Falls (2024) [Multi] (2.1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:91FFE2197C3A7E4A38F4F962AA86AC1BA9F56AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Strategic Command WWII: War in the Pacific с головой окунает ва
 ```bash
 magnet:?xt=urn:btih:3105EC381E969296F50B7EFED21FF51B17FA16C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Odd Realm – это игра, объединяющая как стратеги�
 ```bash
 magnet:?xt=urn:btih:6BC7454B4E5FD7F346DDBC9B5338881820F41DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (2.3) License GOG [Director’s 
 ```bash
 magnet:?xt=urn:btih:BBC7276A993154CC66C0678C21B50301827C2ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Wolfenstein: The New Order - это возрождение серии, кото�
 ```bash
 magnet:?xt=urn:btih:E222DEB1BDFE045D57D9D32D4A5D37F01E9A2ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Into the Emberlands (2024) [Ru/Multi] (1.1.0f3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:07539FBC34427C392ABEC9D303E35BA002A688DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Labyrinth of the Demon King - это вызывающе сложный данж�
 ```bash
 magnet:?xt=urn:btih:268AB90BA949736E90595E843D648A2064125BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Black Forest (2016) [Multi] (2.4) License GOG
 ```bash
 magnet:?xt=urn:btih:0A6338448B1100F621C47712AB98507FC0ABD278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ The End of the Sun - это мистическая приключенческа�
 ```bash
 magnet:?xt=urn:btih:D6E2B9D56001692E16D547D3DC781EA989BA44AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Sticky Business (2023) [Multi] (2025.159a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:60F74BDE77B2A9C14D00808D461C2587056AF259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ Night Loops (2023) [Ru/Multi] (1.4.1) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3DDA1A7524931A8911F724206EA5FE4833B24FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +569,7 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:6960CB74FB8D0E06B9938A06E74421DEB47C53EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

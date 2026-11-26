@@ -19,8 +19,7 @@ Love Chronicles 6. Deaths Embrace / История любви 6. Объятие 
 ```bash
 magnet:?xt=urn:btih:C73C0B471358D62B6F87C3579BA4AD2DCCD32F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Amaranthine Voyage 6: Winter Neverending / Вечное путешествие 6
 ```bash
 magnet:?xt=urn:btih:645E9E6F413665A7550DBDC23953075EF4DA8E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Labyrinths of the World 4: Stonehenge Legend / Лабиринты Мира 4: Л
 ```bash
 magnet:?xt=urn:btih:856AD248BE63711BECB80277453CCB047D0EC979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

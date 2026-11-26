@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C8DD81EF5EFB97BF63CBBD3037E5BAACD094128B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ PDFelement Pro - профессиональный инструмент, кото
 ```bash
 magnet:?xt=urn:btih:F3A677D56ABA2751C3F8BF73E9E21A33FB4B39E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:77E437D29DFEC17567A8DC0483B6FD1F858BC1AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Mate Translate обладает невероятно полной базой д�
 ```bash
 magnet:?xt=urn:btih:157B7459F313B639EBD24F37C3A67BEA04EDC517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:5D302F2461713AE3924903E095A541489DBE56E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ SwitchResX для Mac OS X является аналогом утилит ATI и
 ```bash
 magnet:?xt=urn:btih:041952A3DD4EA93D17D2CCF63E833CCE73AEC82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Cigarettes After Sex - Cry (2019) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indi
 ```bash
 magnet:?xt=urn:btih:F481A578CADDE397028D9256EDBB014C0C7D642F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Anthony Baldino - Twelve Twenty Two (2019) MethLab Recordings [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:1EFBF915D8CFCD9EC915AAAEA15206281E987118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ PDF Shaper Professional 9.5 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8AE0F032192D67E62643A8EFA837D8D0C20D1831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Garden Gnome Pano2VR – великолепная программа для со
 ```bash
 magnet:?xt=urn:btih:225F9020E10266B0702B568B1356622A09C16314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ InstaBro это простой инструмент для Mac, с которы�
 ```bash
 magnet:?xt=urn:btih:426CCD29FDE82B29EE5DF7622B8C70593FC56E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:CA7E72F0A7D4FDDE70D9E992D635A0769E0D2BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Akage no Anne | Anne of Green Gables | Энн из Зеленых Мезонин
 ```bash
 magnet:?xt=urn:btih:BA4AC5FD3469A6B7A426D70E0CE0674E908F76A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Yesterday / Yesterday (2019) BDRip [H.265/720p] [10-bit] [PR]
 ```bash
 magnet:?xt=urn:btih:00DBECDA3D53B5F28538397AE13D6598A0CC81E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Unity — межплатформенная среда разработки ко�
 ```bash
 magnet:?xt=urn:btih:6C45AC31BA50663D82C3210F8DB8E355EA679D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:205C55FC54BF0FD8FDF65AC9AAE20231ACDBF3AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Yesterday / Yesterday (2019) BDRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:B2267659A9DDAAA42AD052E66CBC8146B86CD6D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ SynthMaster One - это простой в использовании волно
 ```bash
 magnet:?xt=urn:btih:0BC8BF3B3372C07B2F93C8B10EAFAE7DF3A7C592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Spitfire Audio - Spitfire Solo Violin [Kontakt, OGG]
 ```bash
 magnet:?xt=urn:btih:BDF71B21DD4F11021237E774E52592FEAD61126E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ Tipard DVD Ripper - мощная и простая в использовании
 ```bash
 magnet:?xt=urn:btih:E6071BF3676FC4DA73E0491DA33C23E52630FF1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ VA - Romantic Mood: Love And Lyrical Ballads (2019) [MP3|320 Kbps] <Popular, Lyr
 ```bash
 magnet:?xt=urn:btih:67FFA5C49A2C376F020F4E0DDD1B57EDBC968560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6276EF8FD17E1A8112E0EC7BC434A85F0E9850C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ Adobe Zii - это небольшая и замечательная утилит
 ```bash
 magnet:?xt=urn:btih:831DCFF56D5C079FFB58F491FC35186A5B88DE8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ Corel® AfterShot™ Pro 3 - это фоторедактор для обрабо
 ```bash
 magnet:?xt=urn:btih:5496D19AB7136C6C0A13F33FF92F85C26474F656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB38FA21DD687095FC3C2CD453B2A75F7AD6C220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ Movavi PDF Editor 2.4.1 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C4FA0FD7829D3CA84AC910333ED127C6D696215C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

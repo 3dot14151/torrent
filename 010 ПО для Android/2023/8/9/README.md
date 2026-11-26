@@ -19,8 +19,7 @@ MX Player Pro v1.68.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:18DCD0670647F0DE20495F96957689FF4E92C4C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

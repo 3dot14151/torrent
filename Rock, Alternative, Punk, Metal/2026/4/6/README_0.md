@@ -22,8 +22,7 @@ Agoraphobia - Kamikaze (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:93B7A7A0E028E532EB5DCC0C40DE7950FD7ACB6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bitter Honey - A Taste Of Bitter Honey (2026) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:E17630462074018EB1C36F562F8A9732CD4C7363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bodinrocker - Special Blend (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:13EA7828DD6585BA641645F3F01EEBA8CDE2A0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Death by Denim - Ladybug (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:3928A80A2E5E3B32A611211B0529BF97F396F1F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fatima - Primal (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7E33040CC80CB5F417A29ED030C763BA9EC644E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ IT'sALIE - Wild Games (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:F59B7C1C18CDE6A90065675E7A763853F699A2AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Jack Jarryd - Velvet Hour (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:C30F21D615FAB1118AD81750EE6ED3B05B3FDB9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

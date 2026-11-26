@@ -22,8 +22,7 @@ Peter Gabriel - So (1986) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 ```bash
 magnet:?xt=urn:btih:4E4A3DDACCF14D0DD34F765F28D8A825540FA04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

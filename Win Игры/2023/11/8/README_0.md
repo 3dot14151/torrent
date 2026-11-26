@@ -19,8 +19,7 @@ Company of Crime – это игра с пошаговыми тактическ�
 ```bash
 magnet:?xt=urn:btih:3DB4BE40BE290DEE9ECB41FEC274E396FAB84C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

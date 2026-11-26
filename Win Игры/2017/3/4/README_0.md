@@ -19,8 +19,7 @@ Orwell (2016) [En] (1.1.6254.19879) License GOG
 ```bash
 magnet:?xt=urn:btih:C3DDECAC1D2957DF897E617874669FA2A9F29F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack R.G. Механики [G
 ```bash
 magnet:?xt=urn:btih:83C693055094A65BE0EAE245BDD45B3D2B61D8FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

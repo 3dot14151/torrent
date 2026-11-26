@@ -19,8 +19,7 @@ Dead Reckoning 3: The Crescent Case (2015) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:11C011993005D2835BD9079E3F8C3E0B7E11359C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Fears / Тайные Страхи (2015) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:CE2A2BA2C27C2B5C8A13626437F4886F2237B6DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

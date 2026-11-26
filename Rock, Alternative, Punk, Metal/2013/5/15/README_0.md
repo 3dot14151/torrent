@@ -28,8 +28,7 @@ Neaera - Ours Is The Storm (2013) EMP Limited Edition [FLAC|Lossless]<Melodic De
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Boxer Rebellion - Promises (2013) [AAC|~ 265 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:36A5D713545D336328E327204703785DFBD46ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Mike Tramp (White Lion) - Cobblestone Street (2013) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Dreamtide (ex-Fair Warning) - 3 Альбома + 1 EP (2001-2008) Japanese Editi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Mojo Magazine потребовалось целых 6 лет, чтобы про�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +202,7 @@ Glenn Hughes - 21 альбом + 1 EP (1982-2008) 24CD Japanese Editions [FLAC|L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

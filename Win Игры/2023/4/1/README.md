@@ -19,8 +19,7 @@ Midnight Fight Express совмещает динамические схватк�
 ```bash
 magnet:?xt=urn:btih:CDCD4F30DA8DC4DE11CB57AFF34BFAAA6EDE1D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

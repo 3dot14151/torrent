@@ -21,8 +21,7 @@ Avaya one-X Communicator Suite 6.2.5.03 SP5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1BD9BCD14424E807B135860FC1C8BEF2D8A0B1BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ DAEMON Tools USB 2.0.0.0068 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D840993B16EF23AA767C546378CE55168E2410E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

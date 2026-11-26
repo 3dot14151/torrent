@@ -19,8 +19,7 @@ NAVER Whale Browser - быстрый кросплатформенный инте
 ```bash
 magnet:?xt=urn:btih:16CFEB35FCDC60F61ECDBC8A17F88AD58953683D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Kudu 1.43.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D14C3B8FF73DCF28C6B31EA2CEFD6D0F765DA314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:4CC559527A3DEA1B6D176F8B1B2585AF82384DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Readiris PDF 25.4.64.0 RePack [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CEF9E2E5C64F79A827F7F149237C767E5BC6D5DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ QontrolPanel — это расширенная аудиопанель для Win
 ```bash
 magnet:?xt=urn:btih:60313B73D7984DB2885EF2DB5DC9F2D85D789DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:5EFE5FD4842F2551C676D5703F5CC619D650FBAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:D51A891F088BBAF6A61ACF2626E43EAE1856D5DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

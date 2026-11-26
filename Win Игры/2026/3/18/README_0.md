@@ -19,8 +19,7 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.2.0-188591/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C9756461F0C79B37EE23AA5A13CE89B0DE7A08C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Peregrino (2026) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1C145F914B88CDBF31234AD6A73787B594D841E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Peregrino (2026) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CED636536621C72AA6D4F1C9814D68C45CE2EE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack FitGirl [Royal Ed
 ```bash
 magnet:?xt=urn:btih:DD5DE7276A7886EB784B080840E7CF05724976AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sherman Commander (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A1247120FD16AC7BBDFDE4FF4C89428250E0946B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Egypt Frontiers ставит перед геймером амбициозную 
 ```bash
 magnet:?xt=urn:btih:2777E7280F510DB738DEC38212EFAF8625798C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Egypt Frontiers ставит перед геймером амбициозную 
 ```bash
 magnet:?xt=urn:btih:53E758A861FEE4FF5C1647BE136A160AC6DABD8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Doctor Arcana and The Secret of Shadowspire (2024) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:25DA26FA3796ADB1CB7B97B932752F0B2E8D334E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Homura Hime - это 3D-экшн в стиле аниме, сочетающий 
 ```bash
 magnet:?xt=urn:btih:EE44B930F35DABC7E28058A5A8182D38F52277EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Elemental: Reforged (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2589690525ABE7CA8C788AF84AF6026FD6167689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Starship Troopers: Ultimate Bug War! (2026) [Ru/Multi] (1.1.1.0+464) Repack Let'
 ```bash
 magnet:?xt=urn:btih:9EDCB5461CB3AE8AA122CC88F297AC3173BF9D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

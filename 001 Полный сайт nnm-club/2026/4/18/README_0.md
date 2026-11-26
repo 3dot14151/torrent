@@ -21,8 +21,7 @@ VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [MP3|320 Kbps] <OST>
 ```bash
 magnet:?xt=urn:btih:A80540A21FAC7D38F34F1EE721D94E61F658BE3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [FLAC 24/48|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:5CF177FDC48AFB9EDC95F13B77AC234F379BA680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8464B0BD2EDF6E1034C12E8180CB22A6540016C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:EA6114DF16BD04FC2DBE1EE7820E3B1E8897A323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Mouse: P.I. For Hire / Частный детектив Маус (2026) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:CBCCE44B39BA8F45C2BBD8DD0296E378773E6E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Adobe Substance 3D Designer — это отраслевой стандарт д�
 ```bash
 magnet:?xt=urn:btih:4AA4B81F5076971093236006B034E41A8F481A83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ MOUSE: P.I. For Hire (2026) [Ru/Multi] (1.0.2.8140/dlc) Repack Let'sРlay [Digit
 ```bash
 magnet:?xt=urn:btih:90BC615689E1CD91FE8280D035CCCC1933AEDB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Monkey's Audio — данная утилита предназначена для
 ```bash
 magnet:?xt=urn:btih:1A9B3FE67F93BEC0AFC5309F247F149A67EC5A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Alter Bridge - Alter Bridge (2026) [FLAC|Lossless|image + .cue] <Alternative Met
 ```bash
 magnet:?xt=urn:btih:639D619F3E797C2973549D408C558A8243374CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

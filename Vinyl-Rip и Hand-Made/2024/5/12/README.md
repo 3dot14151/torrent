@@ -22,8 +22,7 @@ A4 - Avatar - Octave(   Читать дальше...   )Жанр: Heavy Metal, H
 ```bash
 magnet:?xt=urn:btih:03F06BC36E1AA4F30250E1BC51530B826585CFD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sinner — немецкая хэви-метал группа, образован
 ```bash
 magnet:?xt=urn:btih:E242B7904CABA9742E337938A69F64E56EDE9626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

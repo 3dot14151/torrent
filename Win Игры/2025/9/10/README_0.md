@@ -19,8 +19,7 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 ```bash
 magnet:?xt=urn:btih:4EAE8987B7D0C2FDB752EF86EE4BA6E1B1CFE8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Metal Eden – научно-фантастический адреналинов�
 ```bash
 magnet:?xt=urn:btih:7281EE50F1283253E03C668CAE5673A28113B3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tyrant's Realm (2025) [Ru/Multi] (Build 19545604) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:43A3D49B83472245FE6C9E7A57CAA1397B622055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Factorio - это игра о создании автоматизированн�
 ```bash
 magnet:?xt=urn:btih:8086D526174F84A2126A0B0DBE4EB7319B8D40C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-5/dlc) Repack Let'sРlay [Enhan
 ```bash
 magnet:?xt=urn:btih:02A1F0E86CB81E74286CD842A33064D4BE542668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Wanterlude [Relo
 ```bash
 magnet:?xt=urn:btih:B39D3C79BF0039CBDB8EE218EFDA7C55B50EF641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Shattered Pixel Dungeon - это классический пошаговый р�
 ```bash
 magnet:?xt=urn:btih:6F0A4615B1F13C114F5243039F8BB8DD8EEF5E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:44625DF213E09A54CD68F791CDB1CA4DA1A95346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mortal Sin - хаотичная и кровавая игра в жанре rogue
 ```bash
 magnet:?xt=urn:btih:170653429D97199E84ABC3A3150C3C42EE75F07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (2.4a) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:465CD4B226737F09140FA7C9AF8A7007665423DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Look Outside - это ролевая игра в жанре Survival Horror, д�
 ```bash
 magnet:?xt=urn:btih:71DC1B48EE8B3830D092AE73083B9767F10EB46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Sunkenland - это увлекательное приключение, пред�
 ```bash
 magnet:?xt=urn:btih:6D14E2D855B48AA8330909DE9F1947754A298062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.12R/dlc) Repack Let'sРlay [Complete Bu
 ```bash
 magnet:?xt=urn:btih:6AB863F87113643FA6F1C13DCF8BF4BEEA8554A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ ZERO PROTOCOL (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:769D14A8ADB29ACA4463BC970309E23827A73206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:0648A64174BC8E3D6681AFA5B344BC4A36DF4366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.70.1_m/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B312F8B844CC2C90BD5923EF5AB7328742ECD4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:A67B0C6C7DB1FB27A29F85C0573D8FEB40038C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Zombie Derby 2 (2016) [Ru/Multi] (1.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B65F7F8661E863FBDB39C250E648525547D74678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Remnants of Naezith (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:020D094EAE54C351FDE18225841C5F354E76B0BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Warparty (2019) [Ru/Multi] (1.0.9) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:013ADBAAD813CB087246CA73C9877D8E45D6F6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Might & Magic Heroes VI / Меч и Магия: Герои VI (2011) [Ru] (1.0 -
 ```bash
 magnet:?xt=urn:btih:145778CF094EC3F3EE8FBE6E2A05242A70F57D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Rip Other s
 ```bash
 magnet:?xt=urn:btih:39B5D17F2AF0188ECD301BF68591B7B43F530720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

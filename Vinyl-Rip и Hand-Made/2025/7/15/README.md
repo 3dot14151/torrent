@@ -20,8 +20,7 @@ Steel Rhino - рок-группа из Швеции, основана в 2021 г
 ```bash
 magnet:?xt=urn:btih:8A9E275C5729BECC5355594EF5EC8B69B5E845F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

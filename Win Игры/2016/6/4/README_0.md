@@ -19,8 +19,7 @@ Invasion 2: Doomed (2016) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:5CA98C4DB867E8B50BC91669C6B175DD7D46752B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

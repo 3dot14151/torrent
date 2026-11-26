@@ -28,8 +28,7 @@ Joy Division (1978-2008) - Discography (41 albums) [mp3|192-320 kbps] <Post-Punk
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

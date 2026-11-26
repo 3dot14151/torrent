@@ -28,8 +28,7 @@ Monday Suicide, Landverraad - Split (2014) [MP3|320 кб/с]<Punk Rock, Fastcore
 ```bash
 magnet:?xt=urn:btih:2811FE0087AE9EF2853B0310D1E067F30150B515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Entombed A.D. - Back To The Front (2014) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:40646F57BD1360E27FDB779F72B245660E9BB024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:5A9C345E58C663647C8B8F969811851F44923F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:38ED2E31FC6423DB062B4B841A7636E449D9293E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

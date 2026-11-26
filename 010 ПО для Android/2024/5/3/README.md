@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ACD3B0095303D2129E59C3889420DDA52B4FC9F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00E291BA786E8734C1F615E7423877DFC20FBA8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VPN Servers for OpenVPN 46 [Ru]
 ```bash
 magnet:?xt=urn:btih:1A0140672F3CCD41D113530F21F772251429AB26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Spotify 8.9.36.616 Mod by LITEAPKS [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A79F83B8E0872D003A5BEA633FCF0EA72D426B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ tvQuickActions позволяет назначить до 5 действий н�
 ```bash
 magnet:?xt=urn:btih:A9BD23B4F71FD1932B583B0F3AA06A04847C8D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

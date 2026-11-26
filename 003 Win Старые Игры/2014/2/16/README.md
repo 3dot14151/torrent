@@ -20,8 +20,7 @@ CrashDay - это своего рода "всё в одном" для любит
 ```bash
 magnet:?xt=urn:btih:2062C2BEB7E367B33BD55264CC87DCF80D506686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

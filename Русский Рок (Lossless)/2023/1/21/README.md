@@ -22,8 +22,7 @@ sanchezamoralez - Tromblerwobble (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal>
 ```bash
 magnet:?xt=urn:btih:A61EE2E94DC20B6F68A0A45BFCA730835F999A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Zuname - Vertigo (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk>
 ```bash
 magnet:?xt=urn:btih:9C7EB1DA00482A822E2DEBBBC17010E340CCB591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ h84u - Кали - Юга (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 ```bash
 magnet:?xt=urn:btih:191D876B3E2D8698B5B9FE9FB5CB4A6EE667F2B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Aella (Аэлла) - Жизнь Происходит Сейчас (2023) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:3B17813A08B1063432F71F51F6F1BB7649EDF0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

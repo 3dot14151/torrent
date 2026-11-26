@@ -19,8 +19,7 @@ TheAeroClock - портативная программа, благодаря к�
 ```bash
 magnet:?xt=urn:btih:0840B749A09A3FBAF5D1D303C4C573CAE252E4DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AutoHideDesktopIcons - небольшая и простая в использо�
 ```bash
 magnet:?xt=urn:btih:54F16AF2F579698140A36312148217E8D52580EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

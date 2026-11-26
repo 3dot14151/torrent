@@ -19,8 +19,7 @@ Eraser 6.2.0.2993 [En]
 ```bash
 magnet:?xt=urn:btih:B22D44065E10322B8A9F18CA5D1B568D28662DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

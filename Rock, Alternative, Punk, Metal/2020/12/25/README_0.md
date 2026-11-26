@@ -22,8 +22,7 @@ Dance Gavin Dance - Tree City Sessions 2 (2020) [MP3|320 Kbps] <Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:7518F9DC56A837F7D329C19C5A6C3A852E22D778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Last Trial - А Время Шло (2020) [MP3|320 Kbps] <Modern Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:62EF4513D6605EC74C84F5F99E7DF60206382719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Memories Of Old - The Zeramin Game (2020) [FLAC|Lossless|image + .cue] <Symphoni
 ```bash
 magnet:?xt=urn:btih:BAA02A3C64249EF724A3C88177C5A392D276D877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hate Forest - Hour of the Centaur (2020) [MP3|320 Kbps] <Black Metal, Death Meta
 ```bash
 magnet:?xt=urn:btih:49EC3118847443FD1122CF2B2B34C94F4184E724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Skrizhali - Взгляд изнутри (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5DEF1FCF106D4E95263990BE09025FA5EFBD408F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Kreator - Love Us Or Hate Us - The Very Best Of The Noise Years 1985-1992 Years 
 ```bash
 magnet:?xt=urn:btih:1032E001D460BE0F2BB4B780A6A6AC463DD9184F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Distemper - На троих (2020) [MP3|320 Kbps] <Ska Punk, Acoustic>
 ```bash
 magnet:?xt=urn:btih:F4B08D934CF61B1E61567257EA74BB76EE004F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Полигон Records. Всё самое лучшее 2020 [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:7F47F31D564213DFF946E6DB4CBBBBBBC4567ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

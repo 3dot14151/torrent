@@ -19,8 +19,7 @@ KeePassXC — программа для управления паролями. �
 ```bash
 magnet:?xt=urn:btih:1D7781E8F696A9F982EF827B4C6B34F060CDAC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 ```bash
 magnet:?xt=urn:btih:FDC1D74FB9C1910A3214FACCAFEACBE7C3EE4B56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

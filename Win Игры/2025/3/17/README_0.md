@@ -19,8 +19,7 @@ Ms. Holmes 7: The Death of Peter Blackheart / Мисс Холмс 7: Смерт�
 ```bash
 magnet:?xt=urn:btih:5CC914345F64A3E55F9617F4678B402E8DE05E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.25007) Repack Let'sРlay [Remaster
 ```bash
 magnet:?xt=urn:btih:BE2D8A2D098E0B10756975B8A9E940DAB6D08A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Learning Factory - симулятор, который призван созда�
 ```bash
 magnet:?xt=urn:btih:E096EFB8C90C2B813EFFADE9B06E38D42B1C895A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:9B756BCD120567BDF5A1E019B5864A97269E9C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9A683090BE86972F232D9C4CE6A1EDD1933FCCBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Last Flame (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:1A66574191B8D90C5FF65F535613FDF3AFB268BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Oasis Mission: Colony Sim - это стратегический симулято
 ```bash
 magnet:?xt=urn:btih:41DF2CBC8B74CFE976A8D829B908902CFDEC34A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ One Lonely Outpost (2023) [En] (0.9.11a022-c4afe) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6381F85ABDB83AE237A90E0D8757A1CFBB5745B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Ethereal Abyss - это однопользовательский шутер от
 ```bash
 magnet:?xt=urn:btih:BCB155A9FF53FBD2A9B50769FB85F13967192B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Eldrador Creatures Shadowfall (2025) [Multi] (20250131) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:25BD6498B510F0A7BFA8CE67B463A3A6CAE5C132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:BC075E8205AB9E6AE3C8518E8D03391A04D454C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Siberian Way – детективная триллер-новелла. Погр�
 ```bash
 magnet:?xt=urn:btih:D5B655CE95EBDA1639CC2DF389697BDE8DB93171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Other s [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:511A967066EB467A509FF6035E19EB93BB6471F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Potion Shop Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0C06EE5DD9EFC464587BADC738010581DF9246B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Castlevania Dominus Collection (2024) [Multi] (1.003.000) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A42E8E08414D8C61B44D3A2C220DFD69A15B93BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Out of the Park Baseball 26 (2025) [Multi] (26.1 Build 39) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0398808ACE93E42BC2C8D58249630ACCA9DB3FAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Dancing Pandas: Ranger's Path (2025) [En] (4.34H) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:952F0CCD97B3C24240A0EBC9FD395B7BD32AB4DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

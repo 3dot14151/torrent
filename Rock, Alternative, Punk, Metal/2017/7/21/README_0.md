@@ -22,8 +22,7 @@ Avernus - ...of the Fallen (1997) [FLAC|Lossless|image + .cue] <Doom Metal, Deat
 ```bash
 magnet:?xt=urn:btih:2059AE8346962E10381974CBFF7C1E08A76DE8DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Belef - Infection Purification (2005) [APE|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:AE5EA035E741BC3BD69175EF25B7B18C085FF810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ White Skull - Will of the Strong (2017) [FLAC|Lossless|image + .cue] <Power Meta
 ```bash
 magnet:?xt=urn:btih:48BFDCEB309A6B5FF206FE5305B282D10C317E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Edguy - Monuments (2017) 2CD [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:EC53DB7EAB515D4F5AE78719AB6594444C535C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Europe - The Final Countdown 30th Anniversary Show (2017) Live At The Roundhouse
 ```bash
 magnet:?xt=urn:btih:94E871CB60DDCDA29CC6B4A6CBA35D807477445A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

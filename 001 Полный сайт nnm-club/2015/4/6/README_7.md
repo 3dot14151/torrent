@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:26C76F110C6A316D1F136E25424D64DD4ED95225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Son of Nor - захватывающая приключенческая игра 
 ```bash
 magnet:?xt=urn:btih:494FE9D55A076D0916FC9B8FD749068BD910131B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C9208BCB9E030B8DC39653E70703AB1AB7396D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Darkest Dungeon – это не игра, где каждый герой нос�
 ```bash
 magnet:?xt=urn:btih:995F992E88F61CB5B7C2EC3B908D84F75D974DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ AVitva 1.3 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:DC26705963F5659B673FFB11DB11AB8355906D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57E56F8D55D686D668529F671830F2BD8E3AF1AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Recovery Fujitsu Siemens admilo pro V 3505 windows xp (x86) + Driver [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5B56058417076C73B32055D63909B619EDF8D762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ SEGA MEGA DRIVE - игровая приставка четвертого пок�
 ```bash
 magnet:?xt=urn:btih:0A8B15D413CE4B8862EE4CD293F37ACCFDC51228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E98A47198729B8DD20E89BD0A51B243229AB3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Spring MVC - это дополнение к стандартным возмож�
 ```bash
 magnet:?xt=urn:btih:434A1ADD58B0E34F3448849B15220E65AFBFF1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0996F359858B022A521970B58D3E7BF15E61D701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ DOOM Classic Complete (2012) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN]
 ```bash
 magnet:?xt=urn:btih:3F3BF01B41E0A4CFAAE4511320451D9966B33527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:971B98ED1487EBE37107F0F61983486A472B4430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Hardware Inspector 6.4.17 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:13A393A4D1C00E1D292563B37F145D5BC6DCFC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ PhotoScan способен обрабатывать любые фотограф�
 ```bash
 magnet:?xt=urn:btih:BFD14B985682AC0AD8EA2076FECDD650A57E0D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ PROMESSAGE является простым в использовании  пла
 ```bash
 magnet:?xt=urn:btih:E786BDA520F343B77D72222C40E54A39D45FC8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02C3A1CA2709AE0BE7939A55EE5E2340031C419F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB6C17890E2383DF9EB7C5DDD1B47792BFBF686F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ RusTV Player - программа для просмотра телевизион
 ```bash
 magnet:?xt=urn:btih:E407C1627FC650CD7B86F2DE918C29EA84E68688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ Essential Anatomy 3 — бестселлер среди 3D справочник�
 ```bash
 magnet:?xt=urn:btih:2C542EF7D2677D7878B290AF12A0CEB5499D8835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBCF19F08282AC43E950756A64DD9050A0C7920F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ Sanzoku no Musume Ronja | Ронья, дочь разбойника [2014, TV, 2
 ```bash
 magnet:?xt=urn:btih:83DB635927C0AFA2AE4F5D74F246A32F55F2D8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ Directory Opus — альтернативный файловый менедже�
 ```bash
 magnet:?xt=urn:btih:EE4A25FD331E175FD8A14280F7E900BC59CE3EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B7571A283DDF2DE8BA9B11EEA030E1B6B3FCD82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7257CE7297200ADC66AD245D2472A03710BD5B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

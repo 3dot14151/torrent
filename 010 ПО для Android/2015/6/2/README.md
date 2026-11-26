@@ -19,8 +19,7 @@ Root Browser подойдёт владельцам как рутованных, 
 ```bash
 magnet:?xt=urn:btih:CAF0B9294C768F2FA002651D3E915AC6D2AD0FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CAD Touch Pro – отличная расширенная версия прог�
 ```bash
 magnet:?xt=urn:btih:379D45A8392988A3D4A2A8673C63FC89B04B2C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

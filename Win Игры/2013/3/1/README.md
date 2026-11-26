@@ -19,8 +19,7 @@ Maestro 3: Music from the Void Collectors Edition / Байки Старого П
 ```bash
 magnet:?xt=urn:btih:6EC38DD833037F6CAC21185D4B72B9553E76AEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Costume Quest — это приключение на тему Хеллоуина
 ```bash
 magnet:?xt=urn:btih:C46A239E0523524C7C57DB2996050EA84436E6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

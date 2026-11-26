@@ -21,8 +21,7 @@ ScreenFloat — приложение для создания висящих на
 ```bash
 magnet:?xt=urn:btih:5414C121A9AC5406D39A25C87A25311AA4731D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Omnibox позволяет (   Читать дальше...   )Тип изда�
 ```bash
 magnet:?xt=urn:btih:6274330DF170D3B6BA6A4AD7E3E2FA5F87B460DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Timer RH PRO - утилита для управления собственным
 ```bash
 magnet:?xt=urn:btih:F9C6A55D1CEC984EF7506084DDA68D01DE4C681B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Diagrams - это редактор диаграмм для Mac, который �
 ```bash
 magnet:?xt=urn:btih:0D253DC02470B1372181DBDAE9FDBD19330BED4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Serpent Lord - Apocrypha (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DF26E057FE3172553840425C72DB654164657A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:C9E4D5DAD22C945F48126EEA77AF9EB1329E455B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Aephanemer - A Dream Of Wilderness (2021) [FLAC|Lossless|image + .cue] <Melodic 
 ```bash
 magnet:?xt=urn:btih:C9598868ABB1E737F73E814B46D9263DE9F4DC4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Belore - Artefacts (2021) [Flac|Lossless|image + .cue] <Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:03F3410D2D4491465451E1878ACFFF6E2EA6509B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Battery Indicator for Mac 2.11.1 [En]
 ```bash
 magnet:?xt=urn:btih:4115BAD323473865315735B3DE9F9CED51CD18AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8B1336C2C17C6262FECE42A8B192140FB0AF483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ AnyMP4 Mac Blu-ray Player 6.3.30 [En]
 ```bash
 magnet:?xt=urn:btih:670C5023A4FC13A345E310EB027B92A49002DF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D82775F59F402C5E0B45ABFEBEFE82FB53E122DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Disk Clean Pro - это приложение с высоким рейтинго�
 ```bash
 magnet:?xt=urn:btih:B764FE6E23AD022E2FDBE5B0B33F8188D5E76847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ MaxCommander - это все, что вам нужно для управлени
 ```bash
 magnet:?xt=urn:btih:3D3D60746A3FACC75F520D0B4876B02FAB33EA48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ VA - Morning Motivation Pop (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:0619CDC5C3390A54F430F139E635197843C4AEEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ VA - Lo-Fi to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ```bash
 magnet:?xt=urn:btih:9DD13CF232441B9FC3923DF2B4DA74A790ABFC57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Di
 ```bash
 magnet:?xt=urn:btih:0DBF1DE9B9DBFDAD0D53B201B5CFB654CA850180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, H
 ```bash
 magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ VA - A Wave Of Positivity: Pop Dance Project (2021) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C354E1E07B37CC30D6E348D951E546F8309C715A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A26E7C5EED27A4D90855739524FD3C14F03ED222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ VA - EDM Friday Party (2021) [MP3|320 Kbps] <EDM, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:BBA67104C4F87ACFDA91374CB5B8DE993C60A6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ VA - Friday Night: EDM Dance Party (2021) [MP3|320 Kbps] <Dance, Electro, Club, 
 ```bash
 magnet:?xt=urn:btih:B056BF5FBF7D2EAE39A8DCF937EFA3CA46CD207D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:914D1CCFBD22A21E4F0E17E5886AB33C642E2678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ VA - Deep House: Soft Session (2021) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:039515B23949C5C46E47F6D5D7D69A6869430D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC515F3BE7EB2ADC8CDF68A60DC1273080BFA56D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

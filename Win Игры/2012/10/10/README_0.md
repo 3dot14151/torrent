@@ -19,8 +19,7 @@ Dark Arcana: The Carnival [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:AF6747CCF9858C35D7856FED6929C93386BEA221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ I am Alive (Русификатор/1.1) [Ru] 2012 | Бaton
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Fifa 13 (Русификатор/1.0) [Ru] 2012 | Electronic Arts
 ```bash
 magnet:?xt=urn:btih:4034DF79188C503AC9C706FAC6415BF34A1D0EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Worms Revolution – продолжение знаменитой серии ар
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Saints Row: The Third отдает в ваши руки банду «Святы�
 ```bash
 magnet:?xt=urn:btih:0F29381DE0C503D88C069E6C16E23FB19B574129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Max Payne Трилогия [En/Ru] (RePack) 2001-2012 | Martin (Audioslave)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

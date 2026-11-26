@@ -21,8 +21,7 @@ Keep Of Kalessin - Introspection (2013) EP [MP3|320 кб/с]<Black Metal, Epic M
 ```bash
 magnet:?xt=urn:btih:E93F8337EF57F0BED47F6AF4898741DF47930A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Telergy - The Legend of Goody Cole (2013) [MP3|320 кб/с]<Epic Metal, Progress
 ```bash
 magnet:?xt=urn:btih:EF3E745F2D043AEDAEF91EC94061DF6D166B2791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Scarlet White - Scarlet White (2012) [FLAC|Lossless]<Alt.Metal | Modern Hard Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Pyrithion - The Burden Of Sorrow (EP) (2013) [MP3|320 кб/с]<Death Metal / Dea
 ```bash
 magnet:?xt=urn:btih:4F58343186ECDA1BA53F8882310D6CACF1062937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Cervello - Cervello (2011) [FLAC|Lossless]<Modern Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Tainted Nation - F.E.A.R. (2013) [FLAC|Lossless]<Melodic Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Litvintroll - Czornaja Panna (2013) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:528BCADD8BA284D97093FE2C138059A0D9977866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Santana - Lotus (1974) 3CD /Reissue, 2006/ [FLAC|Lossless]<Classic Rock,  Blues 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

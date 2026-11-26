@@ -19,8 +19,7 @@ Trillian - кросс-платформенный, мульти-протокол�
 ```bash
 magnet:?xt=urn:btih:F9B5FB75E27C77C1E549EC12D7B380D1AA110834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

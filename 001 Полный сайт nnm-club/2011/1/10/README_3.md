@@ -21,8 +21,7 @@ StarCraft II – продолжение эпической саги о трех 
 ```bash
 magnet:?xt=urn:btih:876ADA02128EC95B30EBFD0C3E029B2707930BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ActionBacks: Wedding Themes 2 - Набор свадебной анимации, 
 ```bash
 magnet:?xt=urn:btih:4EB27C20498B134F7529A0675F80D06A3E304851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5173369BD122FCBC391558F9B75C9E5B0B646C53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

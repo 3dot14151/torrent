@@ -19,8 +19,7 @@ SARDU Multiboot Creator - программа для создания загру�
 ```bash
 magnet:?xt=urn:btih:81C9166220CD96CAD042C97874E94D4081A3FE3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

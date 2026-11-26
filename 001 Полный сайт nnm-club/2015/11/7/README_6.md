@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EA0ABF20EA8482EE382A6B1BED4E3FF53F0B7472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Patrologia Latina (Латинская патрология) - отредакти
 ```bash
 magnet:?xt=urn:btih:4058A88A417E40E7C90A37F573D9F139E382088A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:675D5B4347833ECD5AC6CAC12565F336CAC6BD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:768DD44FE8E0B7FC73320672390BB23F484CE782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Firmin-Didot et Ciz (изд.) | Восточная патрология [Patrolo
 ```bash
 magnet:?xt=urn:btih:A6ECEC5F09562A53012ACFC711ECF0BCF975618F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Cовершенно не предназначен для просмотра де
 ```bash
 magnet:?xt=urn:btih:C8EDC1E019F65818BC7646BCAF3B548CB189E761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75E728BD2A6A3EC165FE21038E4EAF9A15101E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00465F11942507D6A8CD6ADB7BA9F020299DB3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ XXV век. Венера, космическая империя, блистат�
 ```bash
 magnet:?xt=urn:btih:28DF692A3BF08B31A974B847BF31B7CC406427AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 ```bash
 magnet:?xt=urn:btih:895372030853553925C952F80CD8E91D07A225C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE2700AA9599763971496CA9B3A52E9229560829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Google предупреждает: в продаже находятся адап
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9AB59753BEB631019EBFC70701F65E604D5D8BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Screen Translator 2.0.0 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9AD092C3CE0F02AB51AE81F31DF36F681B11E9C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECBD68B480C6A282394C55AF2DA191403DAAF6C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33610DCA3F6D9BFA40FF3D0E846FCEEBE4DB14BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ Image-Line FL Studio Producer Edition — это законченное реше
 ```bash
 magnet:?xt=urn:btih:B7A7EA218593243DD242E07ED5922EC06F4F21EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ Clandestine (2014) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:4BB39E4876056F4E35E40C58D7B598FD04CABD95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ ru_windows_7_professional_with_sp1_x64_dvd_u_677024.iso(   Читать даль
 ```bash
 magnet:?xt=urn:btih:7D6B05674CFA39709D5DF8BFB890F5343A6184D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDB2B59D9447D0ADF3B1DE0CE4735294E4B25AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ Darksiders 2 (2015) [Ru/Multi] (1.0/dlc) License GOG [Deathinitive Edition]
 ```bash
 magnet:?xt=urn:btih:F61CA2373CD6DFFB980DDD4BB688BB3647B95F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ NBA 2K16 (2015) [En/Multi] (1.0/upd2) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:698427FDF4594F8F7883DC8D4F1309897722BCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ Highlights School | Продвинутый курс Photoshop (2015) PCRec [H.26
 ```bash
 magnet:?xt=urn:btih:ED4BFE05E118C6226A4482432C2AE3CB0EAD2FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46B2E7BA7F6866E9607E0C3F02D2F346B157775F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ Call of Duty: Black Ops III (2015) [Ru / En] (1.0(upd1) License RELOADED
 ```bash
 magnet:?xt=urn:btih:7029ABE608EC299768A6BA00D1E0B93B36CCD5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +652,7 @@ Call of Duty: Black Ops III — это продолжение популярно
 ```bash
 magnet:?xt=urn:btih:F8F9791D40432808972996A3D4C0DAB1A89457D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

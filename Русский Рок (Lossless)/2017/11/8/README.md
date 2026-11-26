@@ -23,8 +23,7 @@ Project NT - Дневник Постороннего (Истории Темны�
 ```bash
 magnet:?xt=urn:btih:D6A4C94857613589B9FA5EBC721A95AD338FF0B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

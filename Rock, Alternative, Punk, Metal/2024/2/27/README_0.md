@@ -22,8 +22,7 @@ VA - 100% Rock - Rock Hits - From Classic Rock To Metal (2024) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:620BC7D5B54F8852E08F6472D311F3D6DB68ABD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Samurai Of Prog Featuring Marco Grieco - A Quiet Town (2024) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:B2CF7BF297C559801F49823AFF7F63157D393D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Accept - Humanoid (2024) Single [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BF6ABF1845C79155E269040A44549CE56FB3656D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Vircolac - Veneration (2024) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 ```bash
 magnet:?xt=urn:btih:D3BA8E5B6CA886C02C05C38562670CE3B41F5B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Theragon - Where The Stories Begin (2020) [FLAC|Lossless|image + .cue] <Power Me
 ```bash
 magnet:?xt=urn:btih:81C40927380CDFC55C9E458F45D7FA5A674DD4F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Terra Atlantica - Age Of Steam (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:E44CB6487700C4D02131DD1EB13B9CD584726961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Six Foot Six - The Six Foot Six Project (2018) [FLAC|Lossless|WEB-DL|tracks + .c
 ```bash
 magnet:?xt=urn:btih:3C8D07804F67AD43253BF14E4754004B8B88A71C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Terra Atlantica - A City Once Divine (2017) [FLAC|Lossless|image + .cue] <Power 
 ```bash
 magnet:?xt=urn:btih:FB9EB44F19C75A94AD223358DCF3319D61C07A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Social Disorder - Time To Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:823AC5E793408A5E2CB67FDF7462A14C4D806003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Super Mario World 64 1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:C3799FA5B4233579E158E9FC566F633DF637A400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

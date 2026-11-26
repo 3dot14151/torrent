@@ -19,8 +19,7 @@ NVIDIA Inspector - это небольшая утилита, предназна�
 ```bash
 magnet:?xt=urn:btih:0A749F3DEB0B279501EC632F6DA566D48512F11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Acronis True Image — это интегрированный пакет прог
 ```bash
 magnet:?xt=urn:btih:87E2370DAB6B84CA90ECB459688BFA46FF952598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

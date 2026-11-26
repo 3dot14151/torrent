@@ -19,8 +19,7 @@ George Chapline | Quantum Mechanics And Bayesian Machines (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:E2F9E4C2283F56217076C7B27D924DF7F6B7A963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pro Git (2-е изд.) – это полностью обновленное ру
 ```bash
 magnet:?xt=urn:btih:7E04B2C31013C0651812B67F09A5662F7712DCD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Michael Kaufmann, Andreas Meier | SQL and NoSQL Databases, 2nd Edition (2023) [P
 ```bash
 magnet:?xt=urn:btih:F63FA77DEF646F0F9B9C29377F5B41D9E33C9FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Brian Okken | Python Testing with pytest, 2nd Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:EE42FCC4F3E1BC21C25EB37AD553180D8F20F300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

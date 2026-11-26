@@ -22,8 +22,7 @@ Killswitch Engage - Killswitch Engage (2009) Special Edition [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:06A0B4191F033B1C3027DB3F22C78CD847415A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Killswitch Engage - Disarm The Descent (2013) Special Edition [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:07C978C927BB446FB57A39E439B031ED07161C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Killswitch Engage - The End Of Heartache (2004) Reissue, 2005, Roadrunner Record
 ```bash
 magnet:?xt=urn:btih:E05BBB4EE2ED31BA8B82A5CFB44A2FEE8324D9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Geisha - Youth Stand Tall (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy 
 ```bash
 magnet:?xt=urn:btih:1F9466E27909A82AEA8AF7C16C97C9D0EBB2E3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Harem Scarem - Change The World (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1CA88ECE6C62DAC8934E0493D5B19C0DAF9CDE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D1720D739E377C40BF1BF8289D3CB8ECB780594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Killswitch Engage - Incarnate (2016) Special Edition [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:A398F460AD33248179CA98D560D58BF0C6C07A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1274C6DF9D2B5ED6B3D2D683F2469F27EEF77A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

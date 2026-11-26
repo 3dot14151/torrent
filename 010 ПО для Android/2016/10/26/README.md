@@ -19,8 +19,7 @@ Doninn Audio Editor Pro 1.08 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A45781495FF81B5633FD83A9B0978565CB929EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

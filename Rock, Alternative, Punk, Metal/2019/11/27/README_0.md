@@ -22,8 +22,7 @@ Brazzaville - Welcome to Brazzaville 2 (2012) [FLAC|Lossless|tracks + .cue] <Cha
 ```bash
 magnet:?xt=urn:btih:22386971346F49897BDDCF1C37016B6E46C7DBE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Parlour Band ‎ - Is A Friend? (1972) [FLAC|Lossless|image + .cue] <Prog Ro
 ```bash
 magnet:?xt=urn:btih:273A75209A3CC36B13EA3912E1A71F366126B815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Intergalactic Touring Band (Межгалактическая Гастрольн�
 ```bash
 magnet:?xt=urn:btih:E8C44405A127AF1D5D574E08A7BACE17FFB4AE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Pillbugs - Happy Birthday (2004) [FLAC|Lossless|image + .cue] <Rock, Psyched
 ```bash
 magnet:?xt=urn:btih:283CC0888804C2A133965DCCC8E765BF5006B7FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Paul McCartney - Home Tonight / In A Hurry (2019) Single [FLAC|24/96|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:7A4705F4CD7E10E76518489CF3C905C875D06AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Deep Purple - Gold - Greatest Hits (2009) 3CD Set, Compilation, Deluxe Edition [
 ```bash
 magnet:?xt=urn:btih:4380BC871612E5D93C064AAFDE4051BBBA09D0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

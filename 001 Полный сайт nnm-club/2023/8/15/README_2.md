@@ -21,8 +21,7 @@ Voivod - Morgoth Tales (2023 )Japanese Edition [FLAC|Lossless|image + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:F2F1D7AE59AA50D80EBDE776023AA9198038B655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0610AAD2F49D02CB7FC0E2CA9C6C403D483A7522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ PCDJ DEX 3 - профессиональное программное обесп�
 ```bash
 magnet:?xt=urn:btih:78FA4FB5A5E8CD2346075E07FED7D88E05D141F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:F295DF095326DD980DB7940821C855A0F700FF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1E5CCBE8C2F9048F4EF73E06A4F152B32DA5FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ YouTube5 был расширением Safari, когда Flash был еще в
 ```bash
 magnet:?xt=urn:btih:9C1FD701769179A7C6BBA506E5CADD89A83D8241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E65B103BB6307E9BE0A5349FD0B48AF8A77DDBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Magnum - Chase The Dragon (1982) Japanese Edition, Reissue, Remastered, 2023, Be
 ```bash
 magnet:?xt=urn:btih:1DCD7A05FCEBA42A9CF3EDC8771C89C765BFA792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:AD96B9178C25C0C2B9BF5F317A139F6D3BCA06C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Magnum - Marauder (1980) Japanese Edition, Reissue, Remastered, 2023, Belle Anti
 ```bash
 magnet:?xt=urn:btih:AAE2D5ACFFAE5C0460EA33F0BC302B4D248D7588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ UninstallPKG может использоваться для очистки св�
 ```bash
 magnet:?xt=urn:btih:C869F12164769ED59292EC3BCA9056B75854DBD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Infiltration - Extinct (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:E2DACB2A9052FB6FD1532922D33FE942D234ED96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E710CC15AD2F79A7DD96476992A790EA615B962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ VA - Top 10 July 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:F51A044A4949947D3785DD1D66BF8F1136FA6B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD87470CCF6B1885F779EFA6BAEE2AC5535C7A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ NCH DreamPlan Plus 8.37 [En]
 ```bash
 magnet:?xt=urn:btih:DD527AFD78F0C77181BC3FA6AA519412AA15BB1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:430278818084F5E64FBB3392E17415FE39F920BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Grift - Budet (2020) [FLAC|Lossless|image + .cue] <Blackgaze>
 ```bash
 magnet:?xt=urn:btih:D981310458657FCC5EF6422480436E15ADB2FE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ Colibri поддерживает воспроизведение всех поп�
 ```bash
 magnet:?xt=urn:btih:E2129951B32E3066AAAA71D7F5133B36110559F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ Boxy SVG 4.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:1EA3983F5E978C05C97B93C75354C97072779F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A053DF9495C0DEF37037CA382AB2454589249E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ OmniReader - полифункциональное приложение для ч
 ```bash
 magnet:?xt=urn:btih:0F1F7CD1CE40554FDF833AB471FD7A2861194215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ Foaming at the Mouth - Writhing (2018) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 ```bash
 magnet:?xt=urn:btih:796EB12703A497C257C03F43AABE6DFF1D2672B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ Jackie McLean & John Jenkins - Alto Madness (1957) 1991, Original Jazz Classics 
 ```bash
 magnet:?xt=urn:btih:A1F8ECDA53E6ACD2465526B40AC2E6FFB735D2C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ Duolingo: изучай языки 5.114.4 Mod by RBMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:521D50E0B4BBD2396D0E656B1CA2B76EC67224B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ Hotaru no Haka | Grave of the Fireflies | Могила светлячков [198
 ```bash
 magnet:?xt=urn:btih:31AC9885F425ED9FCBD029DC433A3728F58AE27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

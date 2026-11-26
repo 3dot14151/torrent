@@ -19,8 +19,7 @@ KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by AppKaMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C251C3D42CD9C412604E5A4267707463DBCB2CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PrinterShare Mobile Print v12.14.10 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8F397CBC268A6A028F82A1A12F87054F750002B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aibi: AI Photo Enhancer-Luminate v1.52.1 Mod by srajawwal09 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9F3C7DF8A61E9609D27E033B092D5056552F7CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Thenx v5.50 [En] Mod by youarefinished
 ```bash
 magnet:?xt=urn:btih:FE8005C6059DB3D5B6E3A7DAD787A413E3A3C43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

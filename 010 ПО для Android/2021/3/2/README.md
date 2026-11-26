@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:DA03CE903E3201506B89B43119D5A0F74706ACB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ ElLi - Расчет проводки v1.3.33  Pro [Ru]
 ```bash
 magnet:?xt=urn:btih:2C9E682DD97D0A0E440DDE23A31C435360397A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9657D92AD658D31C129A74F1C70BE06038C6825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

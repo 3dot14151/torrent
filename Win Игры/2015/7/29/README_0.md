@@ -20,8 +20,7 @@ Legend of Kay Anniversary – переиздание экшена Legend of Kay,
 ```bash
 magnet:?xt=urn:btih:318EFEA05F773FC53EDD9E5BFDD1E72C2925888F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Kyn – ролевая игра, действия которой развора�
 ```bash
 magnet:?xt=urn:btih:FEE6A66A6D5A62B96F830DF1CDD60AD90997B37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

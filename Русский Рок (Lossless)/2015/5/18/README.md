@@ -22,8 +22,7 @@ Ragor - Миг рождения бури (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:AC2714BF95CA9A563C8E7E8C9FA9A753717FF4D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A119132E9012A87E705F00666C25B00903266FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

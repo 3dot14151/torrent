@@ -19,8 +19,7 @@ Dune 2000 (1998) [Ru/En] (1.6.7) Repack dixen18 [GruntMods Edition]
 ```bash
 magnet:?xt=urn:btih:5290F7A36F57DA9DEE96C3170166727213FAAE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

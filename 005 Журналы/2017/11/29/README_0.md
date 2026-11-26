@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6CD1BFAC4E2F2937829C1E72246BD6ECD263981E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24EF76A3A88AB49B10D765370C3DBD99D7BFC85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Elettronica In - популярный итальянский журнал по �
 ```bash
 magnet:?xt=urn:btih:6DE98AFCCA78C6D9CF814179E317010149E937EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electron
 ```bash
 magnet:?xt=urn:btih:DFD6879355900328F545240D5BB62A58F03502B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Katatonia — шведская группа, основанная в 1991 год
 ```bash
 magnet:?xt=urn:btih:E9012591C944A59D0CE949CB8FFD63505E05606A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tangle – предлагающее массу ресурсов и эффект�
 ```bash
 magnet:?xt=urn:btih:BE9D97F97B8542070DA4A91B39D7C20F5A157309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Voice v4.0.16 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3CE7EFD73BCB0AE07278F0F399E7E85DC20799AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Lingua GO: экранный переводчик, поддерживающий �
 ```bash
 magnet:?xt=urn:btih:7C354932016484A679A5221E23EEC51C9CA5DDA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Super Sound - очень мощный редактор для редактиро
 ```bash
 magnet:?xt=urn:btih:43CC125675668C0BD51B778CA736ECEEF62BD724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

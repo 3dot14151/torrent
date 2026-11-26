@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:091631D616DC6DD5845BA8D24883DD50983E7D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Restaurant Music, Calming Jazz Relax Academy - Jazz for Dinner and Wine (2024) [
 ```bash
 magnet:?xt=urn:btih:839326F8DE59AC8B5C336CAD07C987436520D918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

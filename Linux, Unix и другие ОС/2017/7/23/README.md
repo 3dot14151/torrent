@@ -19,8 +19,7 @@ Debian GNU/Linux 9.1.0 + nonfree Stretch [i386] 4xDVD
 ```bash
 magnet:?xt=urn:btih:9698C6B61AA027ABA42E4158B91486CE28F4B7F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tixati — это полноценный и бесплатный клиент с
 ```bash
 magnet:?xt=urn:btih:B94DB02C3F98800D3B19AE5082F12238B12552CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Xubuntu — дистрибутив Linux, основанный на проект
 ```bash
 magnet:?xt=urn:btih:3B505ADA54D6AEFE1CDA6949E9333E455A22A6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Debian GNU/Linux 9.1.0 + nonfree Stretch [x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:0DB3BC58D64B842AE09F45CFD3BE780F410192C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

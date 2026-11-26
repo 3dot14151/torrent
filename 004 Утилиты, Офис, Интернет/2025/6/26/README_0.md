@@ -19,8 +19,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:8E383B6101F3A06498A478DE5AB8127963613063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

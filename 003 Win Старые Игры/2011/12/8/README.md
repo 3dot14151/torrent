@@ -19,8 +19,7 @@ Diablo 2 + Lord of Destruction [Ru/En] (RePack/1.13d) 2000 | Sanctuary
 ```bash
 magnet:?xt=urn:btih:6891B95C4C8FBB1CD424F2E220DD1147F605E7CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

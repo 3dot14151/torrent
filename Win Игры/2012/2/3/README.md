@@ -21,8 +21,7 @@ Blazing Angels 2: Secret Missions of WWII / Ангелы смерти 2: Сек�
 ```bash
 magnet:?xt=urn:btih:AA411FEF2E3042B86F54CD06B9CCCAB3BC857A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ghost Whisperer / Говорящая с призраками (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:406A0C5742DC118D31961B630E69C0A537C36E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

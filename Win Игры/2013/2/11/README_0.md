@@ -19,8 +19,7 @@ Timeless 2: The Lost Castle [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:1A644A3220C64155E5D7911152379338C9CB9B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Timeless 2: The Lost Castle / Вне времени. Забытый замок [
 ```bash
 magnet:?xt=urn:btih:7CC7CB981D750D13F4CFD8E8867F5C14D1BD2C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Drakensang Dilogy / Дилогия Drakensang [Ru/En] (L) 2009-2010
 ```bash
 magnet:?xt=urn:btih:F986DA90FB489929364702FCB1D5F7184FC911B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Black Mirror Anthology / Антология. Чёрное зеркало [Ru/En]
 ```bash
 magnet:?xt=urn:btih:86209A5B34D3E34C28598BFCE4E6D54EE735B8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

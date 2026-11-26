@@ -22,8 +22,7 @@ The Handbook of Intelligence and Guerrilla Warfare
 ```bash
 magnet:?xt=urn:btih:C7A016FD6453080755F038C49A4A68962898B50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

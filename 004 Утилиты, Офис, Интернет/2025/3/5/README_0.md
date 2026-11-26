@@ -19,8 +19,7 @@ Koodo Reader 1.7.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:36E7ED9223DF60493D0763D01B7F8D71D17E107F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

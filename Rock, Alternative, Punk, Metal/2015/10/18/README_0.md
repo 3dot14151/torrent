@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:17D4C81290C3E7A8133D17583F574729137C53A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Karnataka - Secrets Of Angels (2015) [FLAC|tracks + .cue]<Progressive Rock, Symp
 ```bash
 magnet:?xt=urn:btih:68267FE317149951824DA48D79B89CABB4441372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7BCB4F960F04CBE3FE242780CB3601E1A9BE51F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Otto Dix - Анимус (2015) [MP3|320 кб/с]<Darkwave>
 ```bash
 magnet:?xt=urn:btih:D9AE905572122348EF5E5AC402AD8E6496AA13D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

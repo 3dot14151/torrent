@@ -19,8 +19,7 @@ Break the Curse: The Crimson Gems [En] (P/1.5) 2012
 ```bash
 magnet:?xt=urn:btih:D185765F62A0EB9E614D94DA712991F98C7F7EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fallen: The Flowers of Evil [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:77432714CCA07216BE2C88B7B913CC2AC5106D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spirits of Mystery 3: The Dark Minotaur Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:20A56524662884DF0D31B2AB3EFDC2A18D5604C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Home [En] (P/1.3.1) 2012 | Theta
 ```bash
 magnet:?xt=urn:btih:73B3E286A66B245EAB02686878E3E625BE616078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Ascension [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:B11588D0D690F0DF0F688D597C985A41E6128992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00ABD0B1F19536A95369274B399E76B3BD18EC68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Warhammer 40.000: Space Marine [Ru/En/Multi9] (Steam-Rip/1.0.156.0/13 DLC) 2011 
 ```bash
 magnet:?xt=urn:btih:10801C419FDA1B9D55FCBA1DF098C1CC5B1E7512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Shadow of the Game - интересные проект от студии DeRail 
 ```bash
 magnet:?xt=urn:btih:A1AA1EE5B2F250AE7B9B1DD67C719713FA900776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ F.E.A.R. 3 [Ru/En/Multi9] (Steam-Rip/16.0.20.1060) 2011 | R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:07C5712E2ADD80F49A6F993AE1E5D0A0FC5C1295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

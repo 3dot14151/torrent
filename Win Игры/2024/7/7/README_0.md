@@ -19,8 +19,7 @@ Young Hearts (2024) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F1FF5D8CB1D18BD0110301A193F43BC324C36B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:969240A97A710B5C1CB49A03E0A93983D63FA5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Digimon Survive - тактическая JRPG, разработанная по �
 ```bash
 magnet:?xt=urn:btih:CE83DAA3B6244FFC51A39E4409557AC472D40C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

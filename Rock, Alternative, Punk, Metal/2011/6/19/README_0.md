@@ -28,8 +28,7 @@ Highland Glory - Twist Of Faith (2011) [WavPack|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Wolf Hoffman - Classical (2000) [MP3|128 kbps]<Рок>
 ```bash
 magnet:?xt=urn:btih:E9E5EE0B490C1737DA6F26D461EBAFF4CB984444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Crimson Wind - The Wings of Salvation (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:48FD603A49D07620B3480AEF6817710AD5681DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE2FC182D36586822C214FF5F62A511C817B5211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ AutoDWG PDF to DWG Converter - конвертер для преобразова�
 ```bash
 magnet:?xt=urn:btih:3373A5B21670EB69C833EB4CC402695562D3C7F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

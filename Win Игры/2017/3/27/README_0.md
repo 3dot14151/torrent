@@ -19,8 +19,7 @@ Shadow Warrior 2, продолжение неординарного шутера
 ```bash
 magnet:?xt=urn:btih:50407754E337E4BC02E3C549C24AFB37847BC080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Anomaly: Warzone Earth - необычная смесь экшена и стра�
 ```bash
 magnet:?xt=urn:btih:E2312ECB88BD000D9DAB5575F95F243FBF1C6B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Anomaly Defenders - третья и последняя игра в серии An
 ```bash
 magnet:?xt=urn:btih:DEAFC89CDDDCABA0A5CAC99C2D2BDC850C52B8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Butterfly Sign: Human Error - вторая глава детектива о�
 ```bash
 magnet:?xt=urn:btih:026032DA8CADA28851C1D3CE69C2E9B4BAA3AA89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

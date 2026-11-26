@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7169D09D4BF96B9BCE82A083F476C02CD8E38186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Baltmotors | Руководство по техническому обслужи
 ```bash
 magnet:?xt=urn:btih:A82CEDBF92E44C2DBEBD47FE1261B58F9FF375F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3E73EE0D0BCAA26D55FD859FFC1EFB601E9B100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FC0A39BD2F48C542B302881C5FBB238F20F5736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Key features:
 ```bash
 magnet:?xt=urn:btih:0F9BB6431EC01B34D99EFCFC834181630A765C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Key features:
 ```bash
 magnet:?xt=urn:btih:CF470744FC9ADEAF8821849C47E90973213A00FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Key features:
 ```bash
 magnet:?xt=urn:btih:0D9BC2645DD3832E18D9AD5C7E6D144A29C5154B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

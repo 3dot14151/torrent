@@ -19,8 +19,7 @@ GARAGE: Bad Trip (2018) [Ru/Multi] (1.1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:25A07F1BB5A1B682624E0819376C1D95B289248E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fairy Godmother Stories: Cinderella / Истории Крёстной Феи: З
 ```bash
 magnet:?xt=urn:btih:2B14316C79E930CC1FEF04A36CC4D7DE99B88CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Braveland - это пошаговая игра, созданная по моти
 ```bash
 magnet:?xt=urn:btih:AA053824C5226B5094D8BE009B56BDEF4B52C3EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Braveland Wizard (2014) [Ru/Multi] (1.1.4.14) License GOG
 ```bash
 magnet:?xt=urn:btih:D31A73DEF0A4A3AE3474DB9676B0B9E0FFF6AA0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Braveland Pirate – третья, завершающая часть трило�
 ```bash
 magnet:?xt=urn:btih:89553112D179560B31C4F4FC411E441CF1E0EFF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst 
 ```bash
 magnet:?xt=urn:btih:548B379366EC013E9E1F8F9FD3550C94BD544DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mosaic (2019) [Ru/Multi] (1.1.9.122/dlc) License GOG [1% Edition]
 ```bash
 magnet:?xt=urn:btih:2B54ECC98E6863D41FBE4D9DE25EAEAA1DD3F1F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

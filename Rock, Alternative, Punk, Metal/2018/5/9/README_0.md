@@ -22,8 +22,7 @@ Follow The Cipher - Follow The Cipher (2018) [FLAC|Lossless|WEB-DL|tracks] <Mode
 ```bash
 magnet:?xt=urn:btih:3D07F1B3B45B7DE52788E946DCB2A3D6FA8B24E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rainbow (Ritchie Blackmore's Rainbow) - Memories In Rock II (2018) Live, 3CD Jap
 ```bash
 magnet:?xt=urn:btih:7333C7F7BE5133F37BA026FB22E3ACC2D9F39308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

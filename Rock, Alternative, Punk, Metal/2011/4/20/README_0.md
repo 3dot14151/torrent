@@ -28,8 +28,7 @@ Midnattsol - The Metamorphosis Melody (2011) [MP3|192-320 kbps]<Symphonic Folk M
 ```bash
 magnet:?xt=urn:btih:672C90764F03ADF32CA5502E992ECE778C0EFF76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Leave`s Eyes - Meredead (2011) [MP3|320 kbps]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:F9D27EB55C79653B9E0445BD7FE38116A0529268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Kane Roberts - Saints & Sinners (1991) [MP3|320 kbps]<Hard-Rock>
 ```bash
 magnet:?xt=urn:btih:5BFE37C0719A76D786C1CAE964BB4716531FD4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Leaves' Eyes - Meredead [Limited Edition] (2011) [FLAC|Lossless]<Symphonic Gothi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Deform - Светотень (2011) [MP3|320 kbps]<Alternative / Gothic / Acousti
 ```bash
 magnet:?xt=urn:btih:033FAC59CC8C3374DA4EFE82586F04996D4964E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Uriah Heep - Into The Wild (2011)[FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:74459639D9D8F721571616EC9506581ACDD12D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Poly Bridge 2 (2020) [Ru/Multi] (1.20) Repack xatab
 ```bash
 magnet:?xt=urn:btih:0C7EC5A69863597CE4A2BD8BE2B2640841BAE601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nancy Drew: Midnight in Salem / Нэнси Дрю: Полночь в Сейле�
 ```bash
 magnet:?xt=urn:btih:23FF215ADFF0C0E28ABB7581E04EFC2DA21FD748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

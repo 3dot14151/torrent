@@ -19,8 +19,7 @@ Derail Valley – это увлекательный VR-симулятор упр
 ```bash
 magnet:?xt=urn:btih:7C415F23C63ED5F98EAE3E292A8FDD0C226A0E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A815FDB59357477DC9972C77A11BA414B5BAD9F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Block Fortress 2 переносит игрока на поверхность в�
 ```bash
 magnet:?xt=urn:btih:074D55033DA685248D6D5864EC91DBE56C085D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Fool's Apprentice - это симулятор магической школ�
 ```bash
 magnet:?xt=urn:btih:8BF15AA56313D81AEEF45EDF6453E4F72DCC9689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Creepy Shift: House For Sale (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:399DBB052D54E53FE6E9C47F75F6EEB01F62E666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Fool's Apprentice - это симулятор магической школ�
 ```bash
 magnet:?xt=urn:btih:61BCA8F2E5824E79B9F5A15002D8D8CF049379AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

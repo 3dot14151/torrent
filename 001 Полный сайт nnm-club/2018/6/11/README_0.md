@@ -21,8 +21,7 @@ VA - Evangelion: Metall Collection (2018) [MP3|320 Kbps] <Metall>
 ```bash
 magnet:?xt=urn:btih:CED6667A45C26F00B0D99E59A9C45B72716F6B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:ABCC5CA330281FBEC68FEB5278E00748B5BEF4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AC6D172BDAE647AAF84BF80773BA618AC26F47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Lowfish - Hypersensitivity (2018) Suction Records [FLAC 2.0|44.1/24|tracks|WEB-D
 ```bash
 magnet:?xt=urn:btih:8A26DE6EA0D8BD4F9C511A6A59640C4D021DEE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Popular Superstar (2018) [MP3|320 Kbps] <Pop, Dance, RnB, Rap>
 ```bash
 magnet:?xt=urn:btih:D63F3969F97F1827D158112B7DB6A0ED939A34A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Oriental Blues Vol.02 (2018) [MP3|320 Kbps] <Blues, Rock Blues>
 ```bash
 magnet:?xt=urn:btih:BAB667955B04B0A734BD8F18B9CFFF18F7AEB127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ BrunuhVille - Timeless (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:93426F683099212BAB604BE1BAD5C0CCD2E33784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:338EEE6019E1AC80AD29F57641763C08CE8B96B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ BugLug - Shin Jinsei (2017) [MP3|320 Kbps] <J-Rock, Visual Kei>
 ```bash
 magnet:?xt=urn:btih:0599D4B1C56337D56C60A480B7B437D529181FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D23BEFC3408459ED445CF8800B99557B354BF5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [480p] iPod
 ```bash
 magnet:?xt=urn:btih:6C4541853AE58379A81883C77A4E0104E19EDDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1D8C696CFD352243CC7189ADE13FD608082639F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Zомбоящик  (2017) WEB-DLRip [576p] iPad
 ```bash
 magnet:?xt=urn:btih:53A4F689A807357D1A6FBC2C9E4ED32EBE8D2342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B0B241F958D62E9B5B16BEE1BF59B3A13F25B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [576p] iPad
 ```bash
 magnet:?xt=urn:btih:E142F265E9A85CBADE59DDD1EB9DAD57C9447E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A07A2EAA563E329F1E17CEB5BE212070827A180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [720p] ATV
 ```bash
 magnet:?xt=urn:btih:402565D02E82BB7FFE74F8169F5374666FE42F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ The Forgotten Fairytales 2: Canvases of Time / Забытые сказки 2: Х
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ Konomi Suzuki (鈴木このみ родилась 5 ноября 1996 года) �
 ```bash
 magnet:?xt=urn:btih:E8F5CCAF5EC11CDB365C70A6F1A400C3252BDC1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BE49E8BC7E53E57DC1A1A213013FF6B43196DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ Janis Joplin - Greatest Hits (2018) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4F690E55FAE28CB6BC6B172B9F97042F5D360A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ Bridge To Another World 5: Through The Looking Glass / Мост в другой 
 ```bash
 magnet:?xt=urn:btih:E3C6A9B5112A5F12F46306FAD714CDC29360C665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ Livin' Blues - Greatest Hits (2018) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ Subnautica – это научно-фантастический симулято
 ```bash
 magnet:?xt=urn:btih:2ECD32279BCF2C5EE708E876AFCEDF89516A116A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

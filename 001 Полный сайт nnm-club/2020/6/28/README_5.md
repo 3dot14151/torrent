@@ -19,8 +19,7 @@ Udemy | Сервис кэширования данных - JMemcached (2017) PCR
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.11261/dlc) Repack xatab
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Android TV v8.3 [Ru] (обновляемая)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Udemy | Web приложение - My Resume на базе фреймворка 
 ```bash
 magnet:?xt=urn:btih:F2149344A55DEDA00F88F2B8FCBF8472A420CA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Kore wa Zombie Desuka? Of the Dead | Уж не Зомби ли Это? Сред�
 ```bash
 magnet:?xt=urn:btih:2F44313D19F0299C5EE48312EE73E53B090D8C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Sora no Otoshimono Final: Eternal My Master | Утраченное Небеса�
 ```bash
 magnet:?xt=urn:btih:8CFC86BD5F8DEAB129AFCE21E6661E8B52231819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Sora no Otoshimono: Tokeijikake no Angeloid | Утраченное Небеса�
 ```bash
 magnet:?xt=urn:btih:50C1B3E8EC17A7EBB7B03FB6D8F9CAD103B3F470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Kore wa Zombie desuka? | Уж не Зомби ли Это? [TV-1] [2011, TV, 12 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Kore wa Zombie desuka? | Уж не Зомби ли Это? [2011-2012, OVA, 3 ep
 ```bash
 magnet:?xt=urn:btih:2BF1F2EC434E5C2BBA2FFF0AB36AC9A0777624A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Sora no Otoshimono: Forte | Утраченное Небесами: Сильне�
 ```bash
 magnet:?xt=urn:btih:2E6BF10895545F9ED95445CE26C788714C2FB56C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Sora no Otoshimono | Утраченное Небесами [TV-1] [2009, TV, 13 
 ```bash
 magnet:?xt=urn:btih:98E4BC70FF2D36F5467650626A3B444504E12D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:159242410858762E5FFCF2840304D3CA58AA1C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Beyond: Two Souls / За гранью: Две души (2019) [Ru/Multi] (511792
 ```bash
 magnet:?xt=urn:btih:B4528411572BB66E52B27808D3B2FA9CCB6108C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ SONG OF HORROR (2019) [Multi] (1.22/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:1BB5F5E926C6B46C8F3E99484D021CB3DD177003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Amazon запустила сервис Honeycode для создания при�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Plunderer | Грабитель [2020, TV, 24 эп.] WebRip 720p raw
 ```bash
 magnet:?xt=urn:btih:2731E0ED7E9B743592F7AF25937A0527C958A001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67E3F933F8BD8C3611747FA04DD19317F53387A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30023B27629EED1D5843301A0DEBD79831C2C726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D324EAA98E90B061CEC9A56BB6A52287A1D93057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ Dishonored 2 (2016) [Ru] (1.77.9) License GOG
 ```bash
 magnet:?xt=urn:btih:34CF03E490766893FA293EAD329CD64E55596A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:965DCEEAF75924CF92406A44EBBF035A15CC2DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31AC2701402D02D6BB0F6B2CC4DA30B6DDF31D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

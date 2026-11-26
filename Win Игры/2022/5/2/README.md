@@ -19,8 +19,7 @@ Cursed Fables: White as Snow / Проклятые предания: Сама н�
 ```bash
 magnet:?xt=urn:btih:84030E69B3C635CC7B4DC0D8D161036FB2571C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Beholder 3 (2022) [Ru/Multi] (1.0.9_99) License GOG
 ```bash
 magnet:?xt=urn:btih:98988B74E5E825848FB0AA63943CB39E0DBAE4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blast Brigade vs. The Evil Legion of Dr. Cread - двухмерная метро
 ```bash
 magnet:?xt=urn:btih:85A23ABE3E77C1195388788A2D0CF2CB82641F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Warpips - стратегия в реальном времени с элемен�
 ```bash
 magnet:?xt=urn:btih:23EBCF21EAFDCD637B09C40D43BB2F140CF1ECBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

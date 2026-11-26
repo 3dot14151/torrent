@@ -28,8 +28,7 @@ B4 Can't Get It Out of My Head (40th Anniversary) [04:33](   Читать дал
 ```bash
 magnet:?xt=urn:btih:83283AB518E7418B3476914B6829A24EE4E59FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Infected Maze (2020) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:B646EAD4D048A69388205D63EFFC720D7E2DCD16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ P.A.M.E.L.A. - это напряженный survival-horror, действие �
 ```bash
 magnet:?xt=urn:btih:15B0502D786B4C7C7EE6D3064CE22D8945218D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Railway Empire (2018) [Ru/En] (1.13.0.25864/dlc) Repack xatab (обновляе�
 ```bash
 magnet:?xt=urn:btih:3091B36B96FB6AF68761ED348E181294A1F936CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Space Engineers - это фантастическая песочница, где
 ```bash
 magnet:?xt=urn:btih:93A902A6D09FA2681C8B8273CBD28454C0D21CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

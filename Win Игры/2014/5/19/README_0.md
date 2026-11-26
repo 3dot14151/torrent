@@ -19,8 +19,7 @@ Whispered Legends: Tales of Middleport (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:411DED8C215B460E79A7336B76699459D4929D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Cadenza: Music, Betrayal and Death / Каденция: Музыка, Преда�
 ```bash
 magnet:?xt=urn:btih:F4D139B77635BBDF5A665AA6F4A3D7527913E4C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Grim Tales 6: The Vengeance / Grim Tales. Месть (2014) [Ru] Unofficial [Col
 ```bash
 magnet:?xt=urn:btih:45987489A1C96E95896A59A9CB6A020F7D802A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Viking Saga 3: Epic Adventure / Сага о викинге 3: Камень су�
 ```bash
 magnet:?xt=urn:btih:B54D4451CE69E467E31D7912F71D09C90C130C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Men of War: Assault Squad 2 / В тылу врага: Штурм 2 (2014) [Ru/En
 ```bash
 magnet:?xt=urn:btih:D71F3493E247872424A8B69BB247B720055432CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

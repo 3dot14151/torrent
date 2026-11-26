@@ -19,8 +19,7 @@ DisplayFusion - программа для управления обоями ра
 ```bash
 magnet:?xt=urn:btih:8A4A4C7B52C942E3899158CF3A5C5B358E51D4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:DB0817524978CFB6603378597ABF3A5C6BF54B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:6323964A4D448900D039EF2BF3F77A36E47F639E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 ```bash
 magnet:?xt=urn:btih:5FDE50F9088416183F23556BC952866818DC0AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Active@ Disk Editor - это бесплатный расширенный инс�
 ```bash
 magnet:?xt=urn:btih:9A347BB0236260BDE93E1D2843F13EEF6577C82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

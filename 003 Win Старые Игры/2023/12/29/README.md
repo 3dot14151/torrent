@@ -19,8 +19,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru/En] (1.
 ```bash
 magnet:?xt=urn:btih:F2411D32D09C8E5C57268F8A936BAC8AF0DB1946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

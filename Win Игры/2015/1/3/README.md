@@ -19,8 +19,7 @@ Midnight Mysteries 6: Ghostwriting (2014) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:FCA8DB80E89F96059A3DD7441F03E2B60D3E8898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DmC: Devil May Cry (2013) [Ru/Multi] (1.0.0.0 upd3/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:6B2B5F557EE64FCB00092DC349138DF75F2D1C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

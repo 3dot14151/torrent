@@ -19,8 +19,7 @@ Viscera Cleanup Detail - это симулятор... уборищика на к
 ```bash
 magnet:?xt=urn:btih:AC29AF6F3DA1A05B3CF5936ABD6D73B404C2D8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

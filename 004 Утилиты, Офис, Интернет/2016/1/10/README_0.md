@@ -19,8 +19,7 @@ Password Generator - программа, не требующая установ�
 ```bash
 magnet:?xt=urn:btih:2F957D3A33A2EC53042CD040C68A6F5C6A2942C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

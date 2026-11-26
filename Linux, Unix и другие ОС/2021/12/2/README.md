@@ -20,8 +20,7 @@ Ubuntu*Pack 20.04 GNOME (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:A50131200867256C8AA90AE5F1C0CD2B30C7DAE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu*Pack 20.04 Budgie (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:B332389DF6594B55A60A186785EB5BAE1D80745B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ubuntu*Pack 20.04 (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:7C9760F1290940654EF355E26FC2FEAAA9B57CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Ubuntu*Pack 20.04 Cinnamon (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:C787FDD5C2D0062267FD3B802B2AF8643CFC98C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Ubuntu*Pack 20.04 GNOME Classic (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:7D9BD727BDC9F136419099849B7113B62F6E83B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Ubuntu*Pack 20.04 DDE (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:BDDDB3520EC29B20DFC57DC4C75B105A669365E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Ubuntu*Pack 20.04 GNOME Flashback (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:B4202285DA4E91BF38961B44E6346BB0243A0737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:C8E51CC07AD756978B35C96076A8C908521D6E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Ubuntu*Pack 20.04 MATE (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:F2B50EA622FA42E28A3CEC03C26E289697922F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:019692B6B6C4E8477A050106E3BDA233CC4FF902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Ubuntu*Pack 20.04 Unity (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:8786AD6F3E0B2822530C466F906DA366FF91A0EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:443AC5340F4580BC6C40CAD59AB8742208C7609F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

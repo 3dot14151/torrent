@@ -20,8 +20,7 @@ Grandia 2 [Ru] (P) 2002
 ```bash
 magnet:?xt=urn:btih:ABD0B95A21BFE1898747F4D0FF553BD2E7E29F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

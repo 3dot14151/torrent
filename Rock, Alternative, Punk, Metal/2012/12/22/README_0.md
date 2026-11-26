@@ -26,8 +26,7 @@ Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive De
 ```bash
 magnet:?xt=urn:btih:E64DAB769470773AE18ADDCD4A30372B6C78EFF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F6E159EC50AF407B70DD8DF8DB4120D29367F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Los Lobos - By The Light Of The Moon (1987) Hybrid SACD /2012, Mobile Fidelity S
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

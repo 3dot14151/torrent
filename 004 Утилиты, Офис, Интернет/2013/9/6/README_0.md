@@ -19,8 +19,7 @@ Mars Notebook - очень удобная записная книжка с ра�
 ```bash
 magnet:?xt=urn:btih:3069799FFEB7B9A2E2C7CECF88DE0DC4AD364AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

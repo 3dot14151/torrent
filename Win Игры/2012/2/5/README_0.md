@@ -19,8 +19,7 @@ The Lost Chronicles of Zerzura [Gе] (L) 2012 | GENESIS
 ```bash
 magnet:?xt=urn:btih:8940E33342DA891851313D9BE3926F2389128251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Front Mission Evolved [Ru] (Lossless RePack) 2010 | RG Packers
 ```bash
 magnet:?xt=urn:btih:130F6F0D0479999F66430DB55D7E57A930EE8B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Seamless Entertainment возродила традиции таких культ
 ```bash
 magnet:?xt=urn:btih:5E6F070E8DE97803521946055BB91E15348A16B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Post Apocalyptic Mayhem [Ru] (RePack) 2011 | R.G. BoxPack
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Terrorhedron - стратегия в жанре Tower Defense. Отличает�
 ```bash
 magnet:?xt=urn:btih:16E00BE2E71876CA6E9C60834A8F45C59C59E8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Film Fatale: Lights, Camera, Madness (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F8A909A5F0C17C1E9AED3AFD4CD125493A334664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

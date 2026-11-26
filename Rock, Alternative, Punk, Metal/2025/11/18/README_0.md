@@ -22,8 +22,7 @@ CD1-3 1755(   Читать дальше...   )Жанр: Gothic MetalПродол
 ```bash
 magnet:?xt=urn:btih:D3AA6D9BB2E4D9671CB4D8B3BF14CF488FE85276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Various - Killed By Deaf - A Punk Tribute To Motörhead (2025) Compilation [FLAC
 ```bash
 magnet:?xt=urn:btih:C1109CB036ED854440DC4D47589C261938C1BB62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

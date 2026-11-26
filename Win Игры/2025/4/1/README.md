@@ -19,8 +19,7 @@ The Thing: Remastered (2024) [Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:BCB5683DBDE2D2DD118C910EA4C062C967B59599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (Bui
 ```bash
 magnet:?xt=urn:btih:D28E98B60ECC0E1C49D960F67882AD7C22F40593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tainted Grail: Conquest - мрачная ролевая игра с пошаго
 ```bash
 magnet:?xt=urn:btih:954F388AA6DB9FDC3293BA5F138EF86CC0173E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nature & Life - Drunk On Nectar - это глубокий симулятор п�
 ```bash
 magnet:?xt=urn:btih:1482DD9E25C8CF63A4F50654A38390061D1A3703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Which Way Up: Galaxy Games - это дружелюбная для всей се�
 ```bash
 magnet:?xt=urn:btih:082492F04BD44A8FF502C0C56C458A4908AA570E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Star of Providence - вертикальный скроллер, действия
 ```bash
 magnet:?xt=urn:btih:8D21FC5A2DE3C6F9B907FB898C66ED27F5148428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

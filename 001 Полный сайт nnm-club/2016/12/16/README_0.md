@@ -21,8 +21,7 @@ DJ Feel - TranceMission (12-12-2016) [MP3|320 Kbps] <Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:8F8A6734823F8177F35CADF9169EAB178DF078C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EFEED2BC186932C60C74CEF3832FD1B717082DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1D63E79D5D74C0501E161A2D669E2E16A64C79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ The Bigness - Time Traveler (2016) [MP3|320 Kbps] <Indie Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:8BF071B25E1E0AFAB130673DC767AEA6E0332A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3602DB9A2BA46F458B17A5E34E0BC677C4E6B1DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D70F42CC6513475BE13EBF4243FFB5AE37B5D225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Artificial Intelligence - Dreams of Freedom (2016) EP [MP3|320 Kbps] <Drum & Bas
 ```bash
 magnet:?xt=urn:btih:3E83EF9194B586230EE2717BD1D2D9343A264283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20735AA5683C20DC2231581608319D4AF45CEEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Музыкальный плен на Europa Plus 4 (2016) [MP3|256 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:827E9685DC3825BD3DEFF603FA720147043ABE42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Dante Fox - Breathless (2016) [MP3|320 Kbps] <Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:30FC3D62D47DE97D309431E020E22DE04DAF3F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Deep House
 ```bash
 magnet:?xt=urn:btih:C727619795415CFC5E6600A90A3AA7124D9A09C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Душевная музыка на Шансоне. Выпуск 3 (2016) [M
 ```bash
 magnet:?xt=urn:btih:9073C341B4374711FDA61E76BD31E56609AB0907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C857832FA58EB669D2CE451A0A1BCD196FFAB8AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Champagne Explosion - Champagne Explosion (1978) LP [MP3|320 Kbps] <Electronic, 
 ```bash
 magnet:?xt=urn:btih:BF52B544078B0ED4CD484B13115232F76681462B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5197A9A68BB8C049E46F34CA067008ABB9832D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Deep House
 ```bash
 magnet:?xt=urn:btih:82CCEFC982CE874198BD7BE752AA2D860E7939BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ Ellen Allien - BBC Radio 1 Essential Mix 10.12 (2016) [MP3+cue|192 Kbps] <Tech H
 ```bash
 magnet:?xt=urn:btih:68E451300E0D8F7EDD7D86D8E2889C10E2B341A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Ruby Dee And The Snakehandlers - Little Black Heart (2016) [MP3|320 Kbps] <Rocka
 ```bash
 magnet:?xt=urn:btih:627B9CA6B99A904838249510817A7E8595A6CA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Vipor Plus является лучшим приложением сочетающ
 ```bash
 magnet:?xt=urn:btih:9B9968D6B63D7798C4BE746C071212741B882FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Audirvana Plus - мощный аудиофильский плеер с широ�
 ```bash
 magnet:?xt=urn:btih:F4EF77B4BFFA0808D2E0C58F8D6156DA1B70400F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ Bionic Delay - Increasing Scale Factor (2016) [MP3|320 Kbps] <Psy, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:056D99C40683C3F9EEA15D332D9CC6D1ED570971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Enduser - Enter To Exit (2016) [MP3|320 Kbps] <Breakcore, Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:FF0957A7941BD6986E30309629C10C4A775A9FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ Tweetbot - клиент Twitter для Mac. Этот полнофункцион�
 ```bash
 magnet:?xt=urn:btih:ED906398CFDD24822D125FA70F4A6F8006CBB0CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9C6AEA49A3FC7EDB517580C91F0D2C19844F413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

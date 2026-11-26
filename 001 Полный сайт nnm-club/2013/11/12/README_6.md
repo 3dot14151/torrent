@@ -21,8 +21,7 @@ Anomaly: Korea (2013) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:8E19D5A6ACAF792AF789222FF466A3C4C3EC7F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33C25108387B4036D15A264604F050BFBE27AF9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F836F6B38B2E62D766F4AE3C1529D94E1D530954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ PixelJunk Shooter - это двухмерный скроллер про крох
 ```bash
 magnet:?xt=urn:btih:393FA43BF6E10F9EA3094EF5AE0F31BD68A49640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Matte Magic Series - Новая серия визуальных эффектов
 ```bash
 magnet:?xt=urn:btih:FC886AB207F9B9DF0B23E1BDF7E6D02C03AA6CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Football Manager 2014 (2013) [Ru/En] (14.1.3) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:0CF2647C87890FED8C31E3723DAB98A471F4F2EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ IObit Driver Booster Pro 1.1.0.551 Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5DA5B9AE76D83BFAEAD10670029E4A17E43B8765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Matte Magic Series - Новая серия визуальных эффектов
 ```bash
 magnet:?xt=urn:btih:023F59ED05C1462AA0FFE977EAEB7A32D5E275B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Matte Magic Series - Новая серия визуальных эффектов
 ```bash
 magnet:?xt=urn:btih:39ECCBB7338FADD3650CFDAE97FB5F542C05178F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ FB2ePub GUI converter 1.1.5.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:55B72CD6497D2888EB59065849D96A8D7CC419FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ avast! – это всем известный антивирус довольн�
 ```bash
 magnet:?xt=urn:btih:5CC89CB6422B2CE98D9EA75538256F90FC63F3F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACC0F8AA1F64C78B77679B44E2C686EACE73D0FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ Adblock Plus блокирует всю назойливую рекламу в и
 ```bash
 magnet:?xt=urn:btih:E7A1C804280598B1AC9BCAA5B154492960BFA53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Adblock Plus блокирует всю назойливую рекламу в и
 ```bash
 magnet:?xt=urn:btih:07BB92B6642B137AC1C6B58D5B3BAE864B888A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Flashback HD-переиздание классической приключен�
 ```bash
 magnet:?xt=urn:btih:338D8FC477C827E7E6295653F617F007E8784D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ XCOM: Enemy Within является обширным дополнением дл
 ```bash
 magnet:?xt=urn:btih:C1395EE055CD3D9C3A3A1A535F3429A06E4B5FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B93026A5205A06180B770EA5093E98A76A831B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59D04C169AB0C706D6BAF9FBE45D991F372A0904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ AMD Catalyst Software Suite 13.9 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1681F0BF2604FDDD7CE9DD4AAB5DBBA8DE92FB5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ Adblock Plus блокирует всю назойливую рекламу в и
 ```bash
 magnet:?xt=urn:btih:77565D5C826F7AE68347419EC1569FCE7CBB75EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:538213028D28BF8B883310E67CE3377F59C6E7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B53BDE5216110906A11C3A68903B5E3A75A82B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ Football Manager 2014 (2013) [Ru/En] (14.1.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A8194B92EC7E967C9034217BF99F1EA0FF046254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ Set for MS Office для Mac - приложение которое включа�
 ```bash
 magnet:?xt=urn:btih:E6B03677E7F6063EB415163A48934CF9576BFE85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7C25E1B1227BB42C55527F8FC3ACCCC50BBF8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

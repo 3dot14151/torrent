@@ -22,8 +22,7 @@ Monuments — британская прогрессив-метал группа,
 ```bash
 magnet:?xt=urn:btih:FBB747E27D91A3FB4C34FA71B539F3BF813BE552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

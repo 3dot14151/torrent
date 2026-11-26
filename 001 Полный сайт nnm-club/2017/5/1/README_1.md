@@ -22,8 +22,7 @@ Thurston Moore - Rock N Roll Consciousness (2017) [FLAC|Lossless|WEB-DL|tracks +
 ```bash
 magnet:?xt=urn:btih:D1E79F46AF9E190F8D759A299B737F5817EB9380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - New Legend Italo Disco (2017) [MP3|320 Kbps] <Disco, Pop, Dane>
 ```bash
 magnet:?xt=urn:btih:EE0AEF79F78DD686002FE859A69E035935395BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Membrane Pro представляет собой приложение, кото�
 ```bash
 magnet:?xt=urn:btih:19C6AA955553B26923EB765356DC6D24EBAADFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8CE74EBA0B8144C05191CA0C4C4779B28DE7412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Viola Valentino - Un Angelo Dal Cielo (1991) Compilation [APE|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:A8A7F16B33C32DB57B204A43BD3C01FD4D039DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C489A7AB00191A25C3046B08F31E861C48EB0674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Tipard All Music Converter - приложение для преобразова�
 ```bash
 magnet:?xt=urn:btih:6620A832C768B93A2ADDE032CB24AFED51A59DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Весенний хит-парад от радио Шансон выпус�
 ```bash
 magnet:?xt=urn:btih:18862BB4B4E2DDFA59CC868BEBDFF39BD36956CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:077EBECFBA6752E4F32F58E242C93BA6FF752914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Alison Krauss - I've Got That Old Feeling (1990) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:C1642EA2E7ABE0C09D67C904013864E7336CAEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Drop - Color Picker 1.02 [En]
 ```bash
 magnet:?xt=urn:btih:9732F72EBF7948760C8F54B44BEA4337A23ECAB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ VA - 100-ка блатных душевных песен (2017) [MP3|256 Kbps] <
 ```bash
 magnet:?xt=urn:btih:D2665E7FD718C73FD265511B7A058E52FBF9319E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ VA - German Top 50 Official Dance Charts 28.04.2017 (2017) [MP3|320 Kbps] <Dance
 ```bash
 magnet:?xt=urn:btih:A3E69F884870F3E3A04CC44B1844ED22F6CEB3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ VA - Planet Italo Disco Vol. 6 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:A4F549651ABDEEA508E2D26D860EE117BB5CF07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B216773DFA15EC1C4E09C043A47EEABFA150041F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33CD7E9B9F509FD5ECC5258E7CA5DC5CB022724D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5FA5FA61774F1B39CE3F2C89316406DEB9EC5B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFC3F0DAE6E26BE7F8C52AE9D7B61165BA5357D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ VA - Песни для души от радио Шансон Выпуск № 4 
 ```bash
 magnet:?xt=urn:btih:50E4B88F12CB227430A1A1416B98BCF86A765BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Any DVD Ripper - простой в использовании программн
 ```bash
 magnet:?xt=urn:btih:C8D79D75DA46AAA922249070A70BAE83D1DF73E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F20FB8E31FBF57E19CFBD7ABE5B01F70EF5B203B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Frecvens - A New Day (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 ```bash
 magnet:?xt=urn:btih:73F684E1CB0ED5672BD90F64796FFC85377CBDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08B230B3BA4A958D1F2B35425F4CF4F3FA3223B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:952C7DEA5B9DA1649B2F8E65B5EE38AC93891A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:743DCA1AF384634F7498DB4269AFCBA990624554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:519D27C1AE174526A68C54CB8BC799973EE928A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

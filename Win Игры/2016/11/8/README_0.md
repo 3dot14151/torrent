@@ -19,8 +19,7 @@ Jack Keane / Джек Кейн (2008) [En] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:CD6859E93C25722C10B0F53095C21015042B03F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

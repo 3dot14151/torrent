@@ -19,8 +19,7 @@ Kingdom Hearts [En] [RePack/Emul] 2002 | MoveXX
 ```bash
 magnet:?xt=urn:btih:9317AEF6E78E65A40888E5941446EA3174437FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:6698B2654DC09A308E48C9DDFC8B7B23828EAF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tropico 6 (2019) [Ru] (1.070/dlc) Repack Other s [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:099B7B223949F85B5A4B12178B155C61224BCC62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Valakas Story (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:114874EDF31E0B22CD890250D6070A83192A91B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

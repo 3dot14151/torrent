@@ -19,8 +19,7 @@ Facetune2 — это простой в использовании редакто
 ```bash
 magnet:?xt=urn:btih:6F6617D4C05B911DA74E567D8B25A0EA062B9189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

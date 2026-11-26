@@ -24,8 +24,7 @@ Jody Wisternoff - Trails We Blaze (2012)Год: 2012  |  Лейбл: Anjunadeep 
 ```bash
 magnet:?xt=urn:btih:9636D4DD5F9D6A03D4BFAA20B5240576315791BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ VA - Vocal Passion Vol.29 (30.05.2012) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:514FEDC56AD5ACB036788B353D4090ECB66E76A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Freemake Video Converter – это бесплатное универсальн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Chicane - Thousand Mile Stare (2012)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ The Itch - Spreading Like Wildfire (2012) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Deep Jimi And The Zep Creams - Funky Dinosaur (1992) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Secta Rouge - Seabasstard (2010) [MP3|320 кб/с]<Progressive Avant-garde, Math
 ```bash
 magnet:?xt=urn:btih:4E4F1F794615C9AEE97FA6E59180CC82183FDDEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ VA - Клубные Новинки Vol.83 from AGR (2012) [MP3|320 кб/с]<Club
 ```bash
 magnet:?xt=urn:btih:F4BD4BBCD9DA5117803EC98B271265C5A906E515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9939F8EF73C511FD32C5BB717BF8295BB041030A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Maribel - Reveries (2012) [MP3|256 кб/с]<Shoegaze Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:A47F733B058C16E248B7003494FD085F9960D45F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:490D7F14CDB50DEC0BF007D905C01F7857AD17F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +381,7 @@ VA - Клубные Новинки Vol.84 from AGR (2012) [MP3|320 кб/с]<Club
 ```bash
 magnet:?xt=urn:btih:1910E343D0CC5ED4F5A206C20693C48E4E9AB297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +407,7 @@ Phace & Misanthrop - Progression / System Mecanique (Neosignal NSGNL010, 2012) [
 ```bash
 magnet:?xt=urn:btih:6A28C60B80BEBE2283876C96345C9D7E76537F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +432,7 @@ VA - Takeover Ibiza 2012 (The Progressive Files) (2012) [MP3|320 кб/с]<House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +466,7 @@ DJ Kocmoc - Electro Sensation vol.28 (13.05.2012) [MP3|320 кб/с]<Electro Hous
 ```bash
 magnet:?xt=urn:btih:74CC0EEF2B7C5DBC64B9E1CF6F065603126386A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +498,7 @@ VA - Trance. Vocal Fascination 21 (30.05.2012)
 ```bash
 magnet:?xt=urn:btih:68FFC986A92ABAEA323F3FEBFBFE9E3F6BDB0CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +524,7 @@ Cosmic Spacehead [En] (RePack) 1993 | RG Games (Pilotus)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74D0A2BCABCBA4E06CA4CAD2142502DC1944B0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Eric the Unready [En] (RePack) 1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:0E8615721A6E423AA8A47D9DAEC6EC4361A818C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FireStarter [Ru] (RePack) 2003 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A99E7981DED0D700F9F09ED63BCF28E5DF345DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mythical Warriors: Battle for Eastland (RePack) [Ru/En] 2001 | Pilotus
 ```bash
 magnet:?xt=urn:btih:E0ECBDFF77F94A75D12FAB559D65D80C101AD4C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

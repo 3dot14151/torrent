@@ -19,8 +19,7 @@ Haunted Legends 10: The Black Hawk / Легенды о призраках 10: Ч
 ```bash
 magnet:?xt=urn:btih:187B43BAAA52BFE3E4FEB8EB918AD4C58C27F91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RiME (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:FCAC10C991580DB5F772146C448FAA06DF4761FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tokyo 42 — стилизованный изометрический шутер 
 ```bash
 magnet:?xt=urn:btih:9743565F6070C072B97C040BFA8DC84C214D6E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hover: Revolt of Gamers – динамичный паркур в трехмер�
 ```bash
 magnet:?xt=urn:btih:063399805DDB6A34991FCB95B73239F921AD84E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Perception – это сюжетный приключенческий хорро
 ```bash
 magnet:?xt=urn:btih:7EE212E3C9A6051FF11D729C8CEDBBE9BEFE9DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

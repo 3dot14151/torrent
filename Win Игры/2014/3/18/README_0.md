@@ -19,8 +19,7 @@ Mysterious Oasis (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:EBA3B238309D393E62CE2E4FD96341D06A748503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery of Unicorn Castle 2: The Beastmaster / Хроники Единорога
 ```bash
 magnet:?xt=urn:btih:467E2223A440DE3137150CCA2F90FDD6ECB8A4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

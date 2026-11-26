@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:40F344876A538D1B528F6D8274611799CC80E60D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:325441E6DC109A9A35021AE98A5111C6297A8321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Uchuu Kaizoku Captain Harlock / Space Pirate Captain Harlock /Космическ
 ```bash
 magnet:?xt=urn:btih:39FEBC93F5F91E7FB2794EF8F1A6C1A880599A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08304CE9D8C31DA5ACA94A5BEEE665CB70E5026F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ iGO R3 Here (NavTeq) Европа 2014.Q3 (fbl, fda, fpa, fsp, ftr, hnr, poi). �
 ```bash
 magnet:?xt=urn:btih:62F691B9F2F041219824B5B11BA37E7211DE1F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Lynda.com | Photoshop CC один-на-один: Продвинутый (2014) P
 ```bash
 magnet:?xt=urn:btih:4E052B1D45670B93BCCF8675A3C3EE1392D87367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F21FD59CC61E7380F38E5E7A7E098BDF519B914B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Shelter 2 (2015) [En] (1.0) License FairLight [GOG]
 ```bash
 magnet:?xt=urn:btih:5B296C95F9720376480018B11EDB641911FDD954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ S.T.A.L.K.E.R.: Lost Alpha v.1.3003 (2014) [Multi/Ru] [OS X WineSkin]
 ```bash
 magnet:?xt=urn:btih:2EFDBAF3E782A5BA2038D8EEE23E9A2C77588FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Tоксин / Toxin (2015) DVDRip [VO]
 ```bash
 magnet:?xt=urn:btih:48C32B45E410077EBA7680CECEEE59FC16986F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0C559CE53437577B8507F99A18FBD6A7A7CE2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C3AA165EA7F7A90C25D57DD0051C7BAE6AD4BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C36EC10FC5B3A5D900847EA2A6C32E02D208CC64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0F97836AA97940E5BA513ACC9A34AB697D6CF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Boot USB Sergei Strelec 2015 v.8.0 (x86/Native x86) [Ru]
 ```bash
 magnet:?xt=urn:btih:624E07FD72498CE9ECA333449E3F7E7482DFBC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:951A55A2D68451624A47949E524C3F0FCA2D07CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E550011E93BE3369055A45DE7585012E4A4A3B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5E0438DC05FA9365E8AF9A3485D913277D01B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ Microsoft Office 2016 for Mac (Preview) 15.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:18D404DF7B933616401F51559AC242504B4AD8AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ XVIII век, Северная Америка. Среди хаоса и наси
 ```bash
 magnet:?xt=urn:btih:62DF6A347042E29839A5CA0C01F3DA33FC039553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ Test Drive Unlimited 2 (2011) [Ru/En] (v.0.1.5.1/dlc) Repack R.G. Games [TDU2 DL
 ```bash
 magnet:?xt=urn:btih:35F4B10FE8B3F3AF7CED7E75DEE1D356E6D6CACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Tokyo Blade - Thousand Men Strong (2011) [MP3|224 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:7DADC2E87D6F4B6F5D7762743C29BB12F80716C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Nirvana - Singles (1995) [FLAC|Lossless]<Rock, Grunge>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

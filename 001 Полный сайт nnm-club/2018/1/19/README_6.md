@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:428537E44B8E58CBFA58CA5BDE627A226242780D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Club House - Selected Works Vol.01 (2008) [FLAC|Lossless|tracks] <House, El
 ```bash
 magnet:?xt=urn:btih:E0E00251411702A5EF92CA6682CF85D6A148B6BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Street King Presents Winter 2018 [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:280F2ECFA6C0F702EEA019457A2B90176FEAF78C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - The Best Of Progressive Trance (2018) [MP3|320 Kbps] <Progressive, Trance>
 ```bash
 magnet:?xt=urn:btih:2D5B7AB5902914687E8DE7BFF98A157074BA9460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - AVA Seasons Selected By Somna - Winter (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:3FF26A45173275BE0EA59CFEF109B2D3F865F6F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:376DF25C468DD19900C0DFF066E17E721DFF04E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Tech-Trance Essentials Vol. 1 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:0517EA8B1EEEB6A4678212B290CF0B839FAA03A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Exact Division - Be Fair If You Can (2017) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:90628EBA129CF7D151A04FB6E7FF4654884475E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ VA - Amsterdam Trance Sessions Vol.14 (2018) [MP3|320 Kbps] <Trance, Uplifting T
 ```bash
 magnet:?xt=urn:btih:8E975FE7A873E12DCEE4EA5804B65AF036076673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressi
 ```bash
 magnet:?xt=urn:btih:C339DE9736B483EF4BA03CD732F5B39CA79BAE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Emotions Music - Summer Vol 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:8503BE2544A2E34A2B5F57E2EDFF48AC7A81EB57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2018) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:1F9C4DECEAA850CBE5C2F7C707AE16A827A01402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ HyperSnap — инструмент для захвата изображения,
 ```bash
 magnet:?xt=urn:btih:71FEF43418720A4F5042ADE46F7BEED70A09D322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ VA - Ori Uplift & Miss Cortex - Uplifting Only 258 (2018) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:996C40801B8D1E092E7DFD0F10F59A153E4E42A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ VA - Vibrancy Of Deep House (2018) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:097B8E0035C956B7F85182201C6746083290AF8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ Dilemmachine - No Selfies (2017) [MP3|320 Kbps] <Nu Disco, Synthwave, Retrowave>
 ```bash
 magnet:?xt=urn:btih:E600F281CF54FC6DF099EBD5C1EF5F4543E5FD67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ para bellvm - Сердцебиение (2017) [MP3|320 Kbps] <Dark Rock, Gothic 
 ```bash
 magnet:?xt=urn:btih:38F4A83A0B33948A5740ECE8AD6B94BE2BB4110E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ VA - Tech House For Runing: House Garden Music (2018) [MP3|320 Kbps] <Club, Danc
 ```bash
 magnet:?xt=urn:btih:8893EDB01135ED26F31102727212C20DA2BE4E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ Yumi Zouma - Willowbank (2017) [FLAC|Lossless|tracks] <Alternative Pop, Dream Po
 ```bash
 magnet:?xt=urn:btih:E3F449DC556E25F2723B6D63317C04C53D20B46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Rameses B - Spacewalk (2018) [MP3|320 Kbps] <Chillout, Drum & Bass, Ambient>
 ```bash
 magnet:?xt=urn:btih:76EDD71881E2F82FD7E4977F0867F659B04414EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ VA - Deep House Hits (2018) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:555343FFEF90494834EAD8074A93531D5607EBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ Coolmuster iOS Assistant – это менеджер iPhone, способный 
 ```bash
 magnet:?xt=urn:btih:091839AC1954C4451DB424C11914EBB5C7C7CBFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2038688D7B22477E4BDA68971D96A547AD46BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ Navicat Premium совмещает в себе функции других пр�
 ```bash
 magnet:?xt=urn:btih:F6D62877AA8CCF295AB9EF3860E00233313EA337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ XMedia Recode - отличная утилита, цель которой - по�
 ```bash
 magnet:?xt=urn:btih:892D6EA9479BD75E51CDBEF54A9E141FB9DD6B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ VA - Sun:Sets 2018 (Selected by Chicane) (2018) [MP3|320 Kbps] <Deep House, Prog
 ```bash
 magnet:?xt=urn:btih:C44B59C3D40D268210357AA6E0D80CE07CBEAA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

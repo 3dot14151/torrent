@@ -19,8 +19,7 @@ BlackArch Linux 2020.06.01 [Хакинг, аудит, безопасность] 
 ```bash
 magnet:?xt=urn:btih:91BF53E677C7E06DA7E8C79CB50DFAD14D1B12C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

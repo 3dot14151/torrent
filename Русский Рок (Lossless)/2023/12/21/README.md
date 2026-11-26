@@ -22,8 +22,7 @@ VA - Митьковские песни. На море танки грохота�
 ```bash
 magnet:?xt=urn:btih:E4329C8AE40928113255D6548231B6E6D8D56196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

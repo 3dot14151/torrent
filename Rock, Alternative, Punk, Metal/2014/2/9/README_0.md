@@ -28,8 +28,7 @@ Evertale - Of Dragons And Elves (2013) [WavPack|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:2CC00A1CAD57747944EBB3259DE927189FE0344A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Saint Vitus - Live (1990) [WavPack|Lossless]<Heavy Metal/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:FA3C9ED15C478E614F4393ACE276EB094D5A8A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Project NT / NEVOD - DetSad (2014) [FLAC|Lossless]<experimental, dark ambient, e
 ```bash
 magnet:?xt=urn:btih:4DB4D15091FF605DD2A4678D38FDD37CFA52E9EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Red Dragon Cartel - Red Dragon Cartel (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6DDB73675BB585400BC4B09304299103A19B53C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Kid Rock - Born Free (2010) [FLAC|Lossless]<Rock, Country rock, Blues rock>
 ```bash
 magnet:?xt=urn:btih:95EEFE7D5DB21008D68876E58D2E48A99E85D496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Gary Moore - Corridors Of Power (1982) Remaster /2003, Virgin/ [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:C2BA796860E3F0D1DF540FDB7339B9D4F3C1C284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Gary Moore - Run For Cover (1985) Remaster /2002, Virgin/ [FLAC|Lossless]<Hard R
 ```bash
 magnet:?xt=urn:btih:EF722CB84D871916A0C1ECB8B53151DE35DFAE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Gary Moore - After The War (1989) Remaster /2003, Virgin/ [FLAC|Lossless]<Hard R
 ```bash
 magnet:?xt=urn:btih:26088F5A65953E5A7F0566A46F7947C7BDC5FEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Indica - Shine (2014) Limeted Digipack [FLAC|Lossless]<Symphonic Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:DA5E2D78EC8B4AA0D4BB69E8352EAF3E28A5F45F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Mazzy Star , Hope Sandoval & Warm Inventions - 11 Albums (1990 - 2013) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:5A1938D687D00CD7FE3BDBD1CCC22E31DBF43130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Burden Of Grief - Unchained (2014) Limited Edition [FLAC|Lossless]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:5F21B0065E11D1BDC3B6845509829138D9AB2ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Project NT - Имена (2015) EP [MP3|320 кб/с]<Experimental, Psychedelic, P
 ```bash
 magnet:?xt=urn:btih:CD541F6B509ABBB136E3391FB3D0F7FCE629C68F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ New Medicine - Breaking The Model (2014) [MP3|320 кб/с]<Alternative/ Modern H
 ```bash
 magnet:?xt=urn:btih:87C03CA2B9388E59D11B3C7D90D5552CCF840130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ VA - 80 From Australia (2014) 4CD [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:15184744C130A8B53B7005A75C0AC7AD65B1EFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Arida Vortex - The Illustrated Man (2015) [MP3|320 кб/с]<Heavy Metal, Power M
 ```bash
 magnet:?xt=urn:btih:D26DA86625148D022368D79D308284DCFE431FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BA71B25B8BCA60E10C3D7A6AFCF468971BAA81F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:41ECA822AF38719A874EFD45D5B726571B770CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

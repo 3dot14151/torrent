@@ -19,8 +19,7 @@ Mi Видео - бесплатный просмотр и загрузка вид
 ```bash
 magnet:?xt=urn:btih:8E139B5BB078E5C9575E5F0B939D2E3168684335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

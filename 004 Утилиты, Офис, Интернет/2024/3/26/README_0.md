@@ -19,8 +19,7 @@ Samsung SSD Magician Tool - многофункциональная програ�
 ```bash
 magnet:?xt=urn:btih:CCB7FC1FBE2354487085368576F05B031AF46A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ GetWindowText - маленькая и портативная программа,
 ```bash
 magnet:?xt=urn:btih:C0659FEAC4B030C10BF0569ABC01B12205054082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

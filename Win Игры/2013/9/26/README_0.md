@@ -19,8 +19,7 @@ Into The Haze (2013) [Ru/En] Unofficial
 ```bash
 magnet:?xt=urn:btih:141F1DE2FBDCF318453AF59D556404BA09471BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Electronic Super Joy - стильный хардкорный платформе�
 ```bash
 magnet:?xt=urn:btih:214BC776E1BE07908CC04A75DED9442AC67B9791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DogFighter - аркадный симулятор от Dark Water Studios. Игр
 ```bash
 magnet:?xt=urn:btih:0A0A725AC8C0D7941858897D84C152656DA05491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Angry Video Game Nerd Adventures (2013) [En] (1.0) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:5F05B8F3839BA43873AB46424C4706DA17FAED94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Strike Suit Zero – аркадная леталка-стрелялка, дей�
 ```bash
 magnet:?xt=urn:btih:C0668D4F59E6462557EE21D4F796484D4E90AC79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

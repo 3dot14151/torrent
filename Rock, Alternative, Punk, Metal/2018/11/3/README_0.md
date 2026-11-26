@@ -22,8 +22,7 @@ Powermad - Absolute Power (1989) [APE|Lossless|image + .cue] <Power Metal, Heavy
 ```bash
 magnet:?xt=urn:btih:41B27A98F5E0AA23197560359718982940817B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Walter Giardino - Temple (1998) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B6D7239E7C7FCE700DCAE8A507D5E9E4B2E8AEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Iain Matthews - Excerpts from Swine Lake (1998) 1999, Tangible Music [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:409F8C8BE40FF1AEC045E4CEFE82F6CB74BDE687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jeremy Irons & The Ratgang Malibus - Spirit Knife (2014) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:222D6531BBB8B4E5FFEB61DCF663123F0D138E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Beyond Creation - Algorythm (2018) (Deluxe Edition) [MP3|320 Kbps] <Technical De
 ```bash
 magnet:?xt=urn:btih:E343D733736B309CCFB9831E040B66750B257DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Hollywood Undead - PSALMS (2018) EP [MP3|320 Kbps] <Alternative Rock, Rapcore>
 ```bash
 magnet:?xt=urn:btih:ECC04D4C527C76C93E575E2F5A4407851D91D93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

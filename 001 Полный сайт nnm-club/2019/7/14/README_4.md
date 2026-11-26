@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:660C0708FC9E6F64A40987827E75A996678945D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Cборки на основе оригинальных русских образ
 ```bash
 magnet:?xt=urn:btih:D137CE713F98DCA0DE2BDDF8596170EFE830BD82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Total War: THREE KINGDOMS — эта игра из популярнейшей с
 ```bash
 magnet:?xt=urn:btih:9FC9BE59B658F21118A890B8F4875C5FDCE02B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Poweramp - это мощный аудиоплейер, один из лучши�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

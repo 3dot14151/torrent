@@ -19,8 +19,7 @@ Metal Fatigue - стратегия в реальном времени, кото�
 ```bash
 magnet:?xt=urn:btih:CA1ACB0AD636EC9704CCA81C8B2692CCCD73E546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

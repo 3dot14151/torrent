@@ -24,8 +24,7 @@ XVI век стал эпохой первооткрывателей и иска�
 ```bash
 magnet:?xt=urn:btih:414709CFB3EDF55016BC6B7C0A4B89FA831728D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chimeras: What Wishes May Come (2021) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:934282EC27E1F0B5993E998486FF7A2CC456C448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dodgeball Academia (2021) [Ru/Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:690D22469E246661B7FD6D348B38C50498570408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

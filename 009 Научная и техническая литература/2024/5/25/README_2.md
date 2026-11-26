@@ -20,8 +20,7 @@ Sandra N. Elbaum was an ESL Instructor at Truman College, one of the City Colleg
 ```bash
 magnet:?xt=urn:btih:B472457BE0A0326F54AE672900310E50AFBA1B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Updated to reflect questions found on the most recent ESL tests, this book (3rd 
 ```bash
 magnet:?xt=urn:btih:4B273F64343477922F28BBE357591CE3312FFFEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

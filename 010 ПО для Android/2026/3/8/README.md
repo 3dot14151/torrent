@@ -19,8 +19,7 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:378CCDBA60C93F944596278D5E175F13A120B434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rock Identifier - Stone ID v2.4.3 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8C370FC38444E1302FBCFBE6B35B4A6C6B2EAFC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PictureThis - Plant Identification v5.21.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EC0D0A812B992BE298E02A1B5C06C88B6678233E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ File Manager Plus / Файловый менеджер + v3.7.0 Mod by Balatan [R
 ```bash
 magnet:?xt=urn:btih:2F8A1C50E4EA77800B5E489954732D68B27C2C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:EBE3F50BD9CA5A404C763ED78C8F750820C13E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FB3D39C6752E5E0B2CB4863FD02CEEB738517DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F8510D78866B0D3425046B1A32D52E209BB3FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Utiful — это система организации фотографий, к
 ```bash
 magnet:?xt=urn:btih:03A84B6D80E87F7C291C109104150A228D611D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

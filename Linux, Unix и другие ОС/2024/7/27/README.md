@@ -20,8 +20,7 @@ Ubuntu*Pack 24.04 Budgie (июль 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:416E4B70BDD8DF4C401C691945C7493C0219905C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

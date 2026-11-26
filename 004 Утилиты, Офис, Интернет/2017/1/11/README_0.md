@@ -19,8 +19,7 @@ FonePaw IOS Transfer — файловый менеджер для iPhone для 
 ```bash
 magnet:?xt=urn:btih:74ABAFB244AE285ADC3F5CFF30653619812090A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

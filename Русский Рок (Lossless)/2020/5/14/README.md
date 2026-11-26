@@ -22,8 +22,7 @@ Modern Blues Band - Блюз опадающих листьев (2006) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:48FD2DC846DD8344DD1C9F66D66B0AA66D298E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Asylum Street Spankers - Mercurial (2003) [FLAC|Lossless]<Neo-Swing>
 ```bash
 magnet:?xt=urn:btih:CB188D7C877F0C386AC14F7A1BA6D37944F50FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ SQL Dynamite 1.7.0.20581 [En]
 ```bash
 magnet:?xt=urn:btih:B938D5F92F8D131CF2F7ED1B5C4667DF2221297D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C44FE4015CDA99AEA88B3FB02308324323352DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Giovanni Caccamo - Qui Per Te (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:4D405F6068D141622002C0FD3FC6A2C23921D2F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Tungsten - это браузер который разработан, чтобы
 ```bash
 magnet:?xt=urn:btih:710023B62EA54080D2885BC1E36A31101886D663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35E8C8F6A0F9280CE8F989F9A31F4FAACDFC39FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ CocCoc Browser - браузер, который является продукт�
 ```bash
 magnet:?xt=urn:btih:6E2186C1967F760E9238DC0C4B2036A1E0921827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1228C9E0BA8E4E3D4E008B95F6A43C47D4B2A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA728D4D0CD15DA922D818286A43C1C67AB1FCD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Bombay Bicycle Club - I Had The Blues But I Shook Them Loose (2009) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:EC133D6F824EE7319563FEB2CF6A55878551ED4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ The Laura Holland Band - Dare I Believe (2015) [MP3|320 кб/с]<Blues, Soul, Fu
 ```bash
 magnet:?xt=urn:btih:6EA69BDA577E113D3EE965A245B641DED6269A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - Tuning Hits Lounge (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:A4A3952E22E4159936F84E2466E2A03A1246634D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Rhiannon Giddens - Tomorrow Is My Turn (2015) [MP3|320 кб/с]<Soul, Blues, Gos
 ```bash
 magnet:?xt=urn:btih:01EA98C634D08ED8B23DD91279DB63D947895D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Harrison Kennedy - This Is From Here (2015) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:5F74C1C7B4D985F02C50A4C77095DB8BB362F170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Brandon Flowers - Flamingo (2010) [MP3|320 кб/с]<Indie-Rock, Alternative Rock
 ```bash
 magnet:?xt=urn:btih:0F7DE1AA803DC0CE9B8C07F94ED5F566A88FA3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Eliza Neals - Breaking And Entering (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:EBFBB7CCB2E416F4D909EF33398DF356F140C2F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFA31B96FBAD5F0506BDAEC604436B7896700C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35332232976CB4C802CCD548EDEBD6A1D93E0ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D14B382E0B2D79DA85DE86F0F25114AC7FD9EF37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13BD5C44E301A5588B59BFB5B2820A74256A6D2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BF933B8F381536388E67E82AAA0345EF60B65A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ MxNitro Browser - быстрый веб-браузер от разработчи
 ```bash
 magnet:?xt=urn:btih:3CDD670E1C6F09202E8F2358B748549A62212F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ Oonagh - Aeria (2015) [MP3|320 кб/с]<Pop, Ethno-Pop>
 ```bash
 magnet:?xt=urn:btih:F2887CEC1DF8FED96F7980D9CDC96A85994654F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ Sleipnir - кроссплатформенный веб-браузер, пред�
 ```bash
 magnet:?xt=urn:btih:20A559DD9FEFAB1F37493FC71A5D3078EB6BF987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDB99BACBF356BF1C63EE641A38EB1FD61E344BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ VA - Vocal Trance Collection Vol. 132 (2015) [MP3|320 кб/с]<Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:60014E0976DCB8C6C5C12D28C93C4008ED662343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

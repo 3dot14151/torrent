@@ -19,8 +19,7 @@ WM Recorder 16 является простым и мощным средство�
 ```bash
 magnet:?xt=urn:btih:C2A61B20134CBEA4DAC78B4E54209580E1B3A4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

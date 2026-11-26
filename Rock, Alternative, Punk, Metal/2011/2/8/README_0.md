@@ -19,8 +19,7 @@ VA - Guitar Heaven- Vol. 2 (2010) [MP3|320 kbps]<Metal, Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:A924057CA23BD68235779CB721263C02ED51E45D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VA - Guitar Heaven- Vol. 1 (2010) [MP3|320 kbps]<Metal, Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:712E5003CAC2F5C595C506E00C6CCDFD5A1B4C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A310B8AC83D554C49AF495C4CD2A208F2D110EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAD2AC24FAA39AE4A817CA6AFFAC42501B80A302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BE340284A593A4F5D6EF93F5BF0D745ECE65547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

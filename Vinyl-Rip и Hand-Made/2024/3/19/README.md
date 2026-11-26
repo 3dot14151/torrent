@@ -22,8 +22,7 @@ VA - Мелодии в танцевальных ритмах (1972) [FLAC 24/192
 ```bash
 magnet:?xt=urn:btih:6B39B57FA8CCA2C0FF097955D5144BD84C4A91B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Парад ансамблей (3) (1985) [FLAC 24/192|Lossless|tracks] <Pop
 ```bash
 magnet:?xt=urn:btih:362FEC8518B298EFCCBD0863A8736D22758C888E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Музыкальный телетайп 2 (1987) [FLAC 24/192|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:2BD7B0717C88D51D53C900667CA0D6A8730BF198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Les rois mages (L. Stott, G. Capuano, M. Capuano – C. Carrere, J. Schmitt) —
 ```bash
 magnet:?xt=urn:btih:A39791309F904E0D8D047E95DAFCD43EF6E69010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - От мелодии к мелодии (5 серия) - Концерт ит�
 ```bash
 magnet:?xt=urn:btih:FEACDB4145B524CA3CB294A092BD2825C47152FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75090211A0F7566C92B566FC3D3FB67DB392F90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F71F79F5739AE2FBB65E834F0709359F539181A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49E9EBCEB4D4A64833AD73429976DD3369389460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ A4-Life Can Be Some Better(   Читать дальше...   )Жанр: Pop, Ele
 ```bash
 magnet:?xt=urn:btih:00CF73F01D3BF8E68D8E947EF532B60781A05216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41C5A92C810EFB082E0C0779B98530F1E9DB149E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD602B5F184342A6225B180F9A1D1D34D8AE5EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Lead Vocals – Andy McCluskey(   Читать дальше...   )Жанр: Elec
 ```bash
 magnet:?xt=urn:btih:3AABAFE58EC8827D6C617A7E76DF01D18450D4CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal
 ```bash
 magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ B1 Hans Siste Vinter(   Читать дальше...   )Жанр: Black Metal, N
 ```bash
 magnet:?xt=urn:btih:5B0938C55A6F3719B733F2F9F8F41E6F6346CA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ A4 Ticket To The Moon 4:07(   Читать дальше...   )Жанр: Synth-po
 ```bash
 magnet:?xt=urn:btih:6B95B1511F533879E0DBEC3D5D6A86035D3C1E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

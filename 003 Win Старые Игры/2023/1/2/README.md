@@ -19,8 +19,7 @@ Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:AFE229AD67E24E7F38F0E00E512571AE555E8AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

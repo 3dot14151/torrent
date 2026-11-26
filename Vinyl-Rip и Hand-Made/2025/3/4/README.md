@@ -20,8 +20,7 @@ Asylum - метал-группа, образованная в Голд -Кост
 ```bash
 magnet:?xt=urn:btih:C3D626F2340CCD2A61EF8A4ED12B2CCA209BED8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Fatal Embrace - метал-группа из Варберга, Швеция. Б�
 ```bash
 magnet:?xt=urn:btih:B510205E1DEEE2394E91EC0CAA5FFDE43D65B4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Adversor - трэш-метал группа из Италии, сформиро�
 ```bash
 magnet:?xt=urn:btih:16E46757FB9190B28A20736500DEB64C388A4D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Thundermother - шведская рок-группа, основанная в 20
 ```bash
 magnet:?xt=urn:btih:1BFF1734C1724A3A9B23CC97F779C868C9E96790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ A4 Hace Un Año(   Читать дальше...   )Жанр: PopПродолжи
 ```bash
 magnet:?xt=urn:btih:467C4C58E99006E65E1B2302813029D7C1F50EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

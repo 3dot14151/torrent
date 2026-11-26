@@ -19,8 +19,7 @@ ParRot 2016.04.19 [Ru]
 ```bash
 magnet:?xt=urn:btih:BF9EDB036420CCE5248DE8E8F60EB0CD194BA41B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

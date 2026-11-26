@@ -19,8 +19,7 @@ Yuletide Legends: The Brothers Claus / Святочные истории: Бра
 ```bash
 magnet:?xt=urn:btih:9B35FAD3CFC8922FCB6F46EB48ECEED0C131913A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Dreamatorium of Dr. Magnus 2 (2015) [Ru/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:613F37FBF4C99E049A7679E578D5065B1C83755F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crossroad Mysteries: The Broken Deal / Тайны Перекрестка: Сор
 ```bash
 magnet:?xt=urn:btih:0663AB71994522A4C368446298DEED14A0536473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Spirits of Mystery 6: Family Lies / Тайны духов 6: Семейная л
 ```bash
 magnet:?xt=urn:btih:1FB3C9FCB913CA63E5A5F997CE93D0118C3B4297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Horror Hospital (2016) [En/Tr] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A584212CA063709F6BA34C6DEC826FEF60C4CBCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Blade & Bones (2016) [Ru/Multi] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:143AA3BD594C9F44F4F1B6E8CF70AFFF1DD8A797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

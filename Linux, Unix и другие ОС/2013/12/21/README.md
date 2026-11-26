@@ -20,8 +20,7 @@ Ubuntu Tweak — это приложение, облегчающее настр�
 ```bash
 magnet:?xt=urn:btih:14BE170869615AE0CD250108FF5D430759444A3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu Tweak — это приложение, облегчающее настр�
 ```bash
 magnet:?xt=urn:btih:29C8A00064C5A39F64390BAF47FC44CBBC881EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

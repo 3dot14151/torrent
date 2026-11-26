@@ -21,8 +21,7 @@ AIMP - это легковесный мобильный аудиоплеер п�
 ```bash
 magnet:?xt=urn:btih:46BFC93C1D65E3C5E00280582F93A5DA465BFC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Meditative Mind v2.96  [En]
 ```bash
 magnet:?xt=urn:btih:39A322842915F2D7700B54B590BF1F48AE02C4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Audio Books – новая платформа для прослушивания 
 ```bash
 magnet:?xt=urn:btih:4291A72B08540ACB1EF5FCE3189F5DFCBD05E756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

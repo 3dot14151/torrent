@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0420449DEA1BA6D62242A0B257FB9B79E8D97776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE8B43BE24C7D15296A7460B1028A15C933C4481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.06) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:15BE1085080FABF5603C5EEF995D4DFA16ED5F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B83951B5DF7615003C771CD613DADC2F8A40161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A52F0BE9B5F87EAC7DB4E166BA81514AACE62AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80101FAB504F719921B8A8242F46EA67D2DFB5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2C111E74F49A4E03ED6547EB0D0472F581873028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 12.20
 ```bash
 magnet:?xt=urn:btih:C71D5CD8B46331E0776D3E6EECBD25B9B619A8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Assetto Corsa Rally – бескомпромиссный симулятор ра
 ```bash
 magnet:?xt=urn:btih:1961F7317C66383FBF3604671A2ED44FD1AA311F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Peregrino (2026) [Ru/Multi] (1.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6F69E80C46195836EDAEEC9E45DC2002EE098837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Trash Goblin (2024) [Ru/Multi] (1.3.5.8836/dlc) Repack FitGirl [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:9649A770F3B8631703DBA9EA5A777A8E2B12D8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Children Of Morta (2019) [Ru/Multi] (1.3.376/dlc) Repack FitGirl [Complete Editi
 ```bash
 magnet:?xt=urn:btih:7FAE771548E801145DAB0E7CDD33AC82006FE7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bendy and the Ink Machine – это игра-головоломка от пер
 ```bash
 magnet:?xt=urn:btih:203BDD85FC6E5A9CCC4C1935C644A3C159D59F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ride 6 (2026) [Multi] (1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:EF36E3BD2CA8CFF0C689760AE73764AA1FD8F24A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ SOMA - научно-фантастический хоррор от Frictional Ga
 ```bash
 magnet:?xt=urn:btih:CCDAB59613B8FA5156336723D68CE9EDD7601B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Forgotlings - кинематографичное приключение с уп�
 ```bash
 magnet:?xt=urn:btih:6A45242F0FE4FBEE57705DF39AFED5FE0C259413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Last Express (2013) [Multi] (1.0) License GOG [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:2CDF6C1F34BFCF891668563A1A0ED0681C239D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Legacy of Kain Defiance Remastered (2026) [Ru/Multi] (2.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0CD862A105417F8E3D0D5390F7F509A69B1D70EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

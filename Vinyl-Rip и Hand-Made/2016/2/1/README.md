@@ -22,8 +22,7 @@ Deep Purple - Fireball (1971) [FLAC 2.0|96/24|image|Vinyl-Rip]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:36219E842A0EB29653998B21E08677746F611F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

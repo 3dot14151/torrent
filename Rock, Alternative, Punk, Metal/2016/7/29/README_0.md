@@ -22,8 +22,7 @@ Slinky Droids - The SlinkyDroids Project (2016) [FLAC|Lossless|WEB-DL|tracks] <A
 ```bash
 magnet:?xt=urn:btih:39B5F90F26A346E2B6A8E198B96F9FEB7101BF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alaska - The Pack (1985) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C30213C996ED372233B215AAF221DADDF1DD465B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fuse - Fuse (2010) [MP3|320 Kbps] <Rock, Electric Violin Rock>
 ```bash
 magnet:?xt=urn:btih:1EF9FAB33EDD6CB018182AF80DB81D8990156A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6539D6BD8496EBF50C613D1CC0661BA511C674B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Falls - Omaha (2015) [MP3|320 Kbps] <Rock, Alternative Folk>
 ```bash
 magnet:?xt=urn:btih:2B302E552FC426959DA5A00EB489131E242D7469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Gogol Bordello - Pura Vida Conspiracy (2013) [FLAC|Lossless|tracks + .cue] <Gyps
 ```bash
 magnet:?xt=urn:btih:8F1D2741D52C92026F43FAB7D538A186CF3CDFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Human Instinct - The Hustler (1974) Remastered, 2010, Zodiac Records L.t.d.[
 ```bash
 magnet:?xt=urn:btih:24E4C350863F4323F0B796B1FAC8E3A30DA665B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

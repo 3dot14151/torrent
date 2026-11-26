@@ -21,8 +21,7 @@ Profileschool | Adobe After Effects. Базовый уровень (2015) PCRec 
 ```bash
 magnet:?xt=urn:btih:4BEA4392B4F1E03B51AAFF5B8AF7ADD08DE94C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

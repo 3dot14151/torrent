@@ -20,8 +20,7 @@ Elcomsoft Proactive System Password Recovery 6.51.267.0 [Ru/En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Elcomsoft Proactive System Password Recovery 6.51.267.0 RePack by AlekseyPopovv 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

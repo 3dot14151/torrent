@@ -22,8 +22,7 @@ CD - 1 - When All The Heroes Are Dead:
 ```bash
 magnet:?xt=urn:btih:2CE4BB902EF255E8FA0DADFA9E963E32175EBE85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ XIV Dark Centuries - ...Den Ahnen Zum Grusse... (2003) [WavPack|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:F3FAA1F8A37108CA2FED957A786FBE64700E11F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Bronx Casket Co. - Hellectric (2005) [FLAC|Lossless|image + .cue] <Gothic Me
 ```bash
 magnet:?xt=urn:btih:7B609EC64E25BFB92A73E3D188A82C2653CE341B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lethvm - Winterreise (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Sludge, D
 ```bash
 magnet:?xt=urn:btih:4ADE3564D11CB9211B156C897BCDE49B4D2A0D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Center of the Earth - 4 Albums (2018-2023) [MP3|320 Kbps] <Psych, Stoner, Doom M
 ```bash
 magnet:?xt=urn:btih:E9772289BCB8FC2B4F9F74132C7D920F5657D602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Seven Witches - Rebirth (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 ```bash
 magnet:?xt=urn:btih:B811DE2AFDCFEE260CB8FC74BE672C0DD5F3B016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Solefald - Collection (1997 - 2015) 9 CD [FLAC|Lossless|image + .cue] <Avant-gar
 ```bash
 magnet:?xt=urn:btih:54931187C209DBE9FBD520C35795B4B8727D7AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Urantia - Innerverse (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
 ```bash
 magnet:?xt=urn:btih:4CA3A28651104262724C83DCC2C49B476A93CD30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Chris Angels - Gods (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progressive Rock
 ```bash
 magnet:?xt=urn:btih:25273F34FD6988E256B7B1912E2ED0F386EE800E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Angel Vivaldi - Away With Words, Part 1-2 (2014-2023) 2EP [MP3|320 Kbps] <Progre
 ```bash
 magnet:?xt=urn:btih:7E12E3222F52AC336F5A164699FED5E71C933C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Bronx Casket Co. - Sweet Home Transylvania (2001) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:B1D46836075221D8B6063A2CEF3C523E612C1122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Rock 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:2F459D98AABA468969E27D9BABF15A46505B3CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ DISC 3:Жанр: KrautrockПродолжительность: 3 CD, 03:39:45
 ```bash
 magnet:?xt=urn:btih:8B700738AFEAE0A0D81E3440A579441F3D74BF76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - 70s Lost & Found (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:0CAB818E955030F387DDE24D17529756BBC8D825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Ison - Stars & Embers (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Post-Roc
 ```bash
 magnet:?xt=urn:btih:35F8DAF6FAAEF3036DED385E37D68ADFBFB4E17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Golden Oldies 70's Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:2439999CFD2C4B7B80AF005CD47189688E34E7D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

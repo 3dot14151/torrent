@@ -22,8 +22,7 @@ Mass Of The Heretic - Flames Of Hatred (2016) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:D865756697E10D90DA3EC5B9DDAAD02066016E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ CD3Жанр: RockПродолжительность: 01:00:11
 ```bash
 magnet:?xt=urn:btih:520095384CBB6DAF8657493BA21817B12E638EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Demon Turf (2021) [En] (1.0) License DOGE
 ```bash
 magnet:?xt=urn:btih:F12C0AEBEBCEA89AB0E6C271563A4B0D224ABAC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Escape from the Village (2021) [Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:9FBC6730E5BF5B67171CF54B591D6B3C37292E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Flaklypa Grand Prix (2021) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:FD7841ED843D2EDDB1BCD9E7EA80417A2A24B4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Void Eclipse - пошаговая тактическая ролевая стра
 ```bash
 magnet:?xt=urn:btih:BD817074F87604115CDB7A286D3BEBAB8E363658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rustler - это игра в жанре экшен с открытым миро�
 ```bash
 magnet:?xt=urn:btih:95A03B4E66FB7F762C8A3438D3D8A6182C3B2D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Deep Rock Galactic - научно-фантастический шутер с в�
 ```bash
 magnet:?xt=urn:btih:479D1E14B6C5630E162C53C1284F3D9312232482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Prison Simulator (2021) [Ru/Multi] (1.0.1.1v04.11) License CODEX
 ```bash
 magnet:?xt=urn:btih:FFED73BDE8544682B64438CC36A60EF4F460B8DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Fast & Furious Spy Racers: Rise Of SH1FT3R - увлекательная гоно
 ```bash
 magnet:?xt=urn:btih:B5CE23865D13ED61E761EAACE51F5A4BCDA1A2EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Bloodshore - это интерактивный боевик о телевизи�
 ```bash
 magnet:?xt=urn:btih:8DF7F1C7124414AA3E9D1EF9DBFF97AEDD2A142D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

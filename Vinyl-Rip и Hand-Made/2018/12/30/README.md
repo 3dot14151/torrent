@@ -22,8 +22,7 @@ VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl
 ```bash
 magnet:?xt=urn:btih:EE3DE25AFA03C429A843CCE9D2E9A08D81E04FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

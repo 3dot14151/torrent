@@ -19,8 +19,7 @@ Secrets of the Dark 4: The Flower of Shadow (2014) [En] Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:061DEE88C63A3D4D257F189070FCF61BD68C62A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Surface 3: The Soaring City / За гранью: Парящий город (2013
 ```bash
 magnet:?xt=urn:btih:1A4615B6E56E60D2AD115FA9B5A2616DA5BE1581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ CHEats MAXimal Rus - наибольшая русскоязычная база с
 ```bash
 magnet:?xt=urn:btih:7425AEBD26352726CF677C08CBE5B2911B7131AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ James Cameron's Avatar: The Game (2009) [Ru] (1.0.2) License R.G. Игроман
 ```bash
 magnet:?xt=urn:btih:4F93CE614E5AA3A72E319A2E7FCBB60670DC3DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 ```bash
 magnet:?xt=urn:btih:7DBB80DE504519DBA6429A5FEAC3A0CE34BAB226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Star Wars: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:0814BB46374778835C06AF313A9816C53CCDA08A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:A5EDD85F9A987582D9DE70999ECC2A1DD81D201D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

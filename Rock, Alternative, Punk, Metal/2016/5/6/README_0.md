@@ -22,8 +22,7 @@ Marauder - Bullethead (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C7612E6D7E1CAAF207389A6DCA4709CD21F89AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Railway - Railway II (1985) Remastered, 1997, High Vaultage [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:2E7248A3AA97446D8B426E9852975C4F74258AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blackwater Park - Dirt Box (1971) Remastered, 2015, Long Hair [MP3|320 кб/с] 
 ```bash
 magnet:?xt=urn:btih:17DEFB3A0E5F04B1E76C7A3B1C4ECC8BA2FB7A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Foreshadowing - Seven Heads Ten Horns (2016) [MP3|320 кб/с] <Doom Metal, 
 ```bash
 magnet:?xt=urn:btih:A61C28276711E09B8B647656B48CE51FACF84275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rich Robinson - Paper (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Roc
 ```bash
 magnet:?xt=urn:btih:1BFC14C1D4C81DBDEC272C02DF2B212F935AE521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rich Robinson - Paper (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:93DBA33498DC336537B77C7D220F4BE7DC01F3F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

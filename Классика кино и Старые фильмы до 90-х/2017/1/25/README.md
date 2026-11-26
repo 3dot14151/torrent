@@ -19,8 +19,7 @@ Cтареющий ковбой родео возвращается в родно
 ```bash
 magnet:?xt=urn:btih:4B26516ACC5C37FCD87828A0AE5AA64FFE597115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8D72B7C4F56A48863CC44B3AD630EEC72F8759F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

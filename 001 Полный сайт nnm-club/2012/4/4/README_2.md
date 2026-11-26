@@ -21,8 +21,7 @@ FeyDer vs. HoT – Lions Battle EP EP (2012) [MP3|320 кб/с]<Jungle, Ragga>
 ```bash
 magnet:?xt=urn:btih:97EE732D721EE46B43D659A9BE6D4FDACEB22FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ War Master - Pyramid Of The Necropolis (2011) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:5D4B6CC517C9B0E4504E8769609F1148F4830FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ VA - Off Said (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 ```bash
 magnet:?xt=urn:btih:76834096879A3A8DA911CA704FB8976C95D04CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Ankhagram - Where Are You Now (2010) [MP3|320 кб/с]<Dark Funeral Doom / Death
 ```bash
 magnet:?xt=urn:btih:038C5D1A90EECED4A17B12BD817E214A9A873B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ VA - XXXL зарубежный (2012) [MP3|192-256 кб/с]<Pop ,Dance>
 ```bash
 magnet:?xt=urn:btih:C2A56A995D8EB3209137DFD87163C517C27818EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ VA - The Digital Age Vol. 8 (2012) [MP3|320 кб/с]<Tech House, Minimal>
 ```bash
 magnet:?xt=urn:btih:13F9CA9A2D5302588A013B9FF86914B83D48DC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ VA - Танцевальный клубный поп хит vol.4 (2012) [MP3|256
 ```bash
 magnet:?xt=urn:btih:BC710A27C492C98385F7ECCA02D3B79034476180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Dylath-Leen - Cabale (2011) [FLAC|Lossless]<Death Metal/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:2084EFDEC0F4AF8CA8B14CFCC2469A8D37E702D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:563B55B453E5EDB7EDB27B46D0ED5E50D63BBA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C64B81A887E4A90B05327043DD74993C4C3053C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DECC99E074758277BEF3E5EFC8318C5BAE9CC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ ChipaChip - Постоянство (2012) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:AA592F2771A11B2AF1B082ADC0D7C954E58DCDCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ Vena Valley - Playground (2009) [MP3|256 кб/с]<Gothic Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:A41F8B3D672D13A6AC0E4CED30AB9B9E38014568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +454,7 @@ VA - Re:Define 01 - The Future Sound of House (2012) [MP3|320 кб/с]<House, Te
 ```bash
 magnet:?xt=urn:btih:B00E2300FBD76424097F264A68B2B5778B3EFC31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +488,7 @@ Dj Gard - Best Of Volume 1 (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:0A7F934A86F61CED6E7986E701419837A3726C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +522,7 @@ VA - Муз-прорыв Record 50/50 (2012) [MP3|160-320 кб/с]<Club>
 ```bash
 magnet:?xt=urn:btih:2055BB29F673634A6ECF985EB5C554FA523E402E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C043F094B7820AF56CDA16F42DFDF7F39BF6097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +582,7 @@ Lonndom - Falen Fran Norr (2007) [MP3|192 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:8A675062C8B45827EF5121DDB8FE5DF22F42E8B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80D15090D1D8B394921B4561393C66B7F2874B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +641,7 @@ VA - ReOrder pres.  Silent Shore Selection Vol.2 (2012) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:489BABA50135FB59CD2814ACC6E1F3A42DE421BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:601C80AB966A97F09545F1C96B1A1AC666558389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +700,7 @@ Zinkl - Lovely Night Creatures (1995) [FLAC|Lossless]<Electronic, Instrumental>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87C14C1E7F9993E71B3A3D2DD7DF7138DC69A0CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +784,7 @@ Project X / Проект Х: Дорвались (2012) [MP3|320 кб/с]<Soundtr
 ```bash
 magnet:?xt=urn:btih:F7AFD30482DE30A6039259DE6066AB58C539C4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

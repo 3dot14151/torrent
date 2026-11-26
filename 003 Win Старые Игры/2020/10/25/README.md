@@ -19,8 +19,7 @@ Legacy of Kain: Soul Reaver 2 (2001) [Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:BAFA7D4D02B1579BC78DE61D09C53681E2348C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

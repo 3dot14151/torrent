@@ -19,8 +19,7 @@ The Last Dream: Developers Edition - point and click квест с казуал�
 ```bash
 magnet:?xt=urn:btih:07D33A86606CED1CB412F7040549C9AC573A7A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Turmoil предлагает игрокам стратегию, вдохновл
 ```bash
 magnet:?xt=urn:btih:2E8153640CC579C8A32DCFDE815A191A38BCBA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ UFO Online – пошаговая клиентская онлайн-игра, к
 ```bash
 magnet:?xt=urn:btih:25A4AFCCFA2BEB22BEB7C8F07D65C65FD2E82771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

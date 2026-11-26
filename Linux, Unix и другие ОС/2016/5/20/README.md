@@ -21,8 +21,7 @@ Calculate Linux 15.17 [i686] 1xCD, 6xDVD
 ```bash
 magnet:?xt=urn:btih:BC15E8E28A475D33245A6BBC23359A0ED864E6BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Opposer Divine - Discography 4 Releases (2012-1015) [MP3|320 кб/с]<IDM, A
 ```bash
 magnet:?xt=urn:btih:96242EE6647573D60EEFF51C0874F90A22206B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Italo Disco Hits Vol.5 (2015) [MP3|211 - 320 кб/с]<Italo Disco>
 ```bash
 magnet:?xt=urn:btih:40781BE1BDC23149CD5BC9A9DB2622B5FCD0D1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3FEA90A1671472C5EA0A451A5FC3C298DC44516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Foreigner - Foreigner (1977) Reissue /1984, Atlantic/ [FLAC|image+.cue]<Classic 
 ```bash
 magnet:?xt=urn:btih:70418512059466214F22075742356E0399241B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:473AC82DAB2969DC0019916A6FE8471C4703BB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F98D2AB326370FA9C73F9E73E22C6A4C9509E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ GifCam бесплатное приложение для захвата прои�
 ```bash
 magnet:?xt=urn:btih:52F1C3EB8446343DC08384A891E16CF770775DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Melody Gardot - Currency of Man (2015) The Artist's Cut [MP3|320 кб/с]<Vocal 
 ```bash
 magnet:?xt=urn:btih:067E76DF0D3F4DB89B1F3BBEF94E5C2C72D64995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ```bash
 magnet:?xt=urn:btih:A50A8688E054CBDC04E514A8FDDCA5F2FBCAB223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Graveworm - Ascending Hate (2015) [MP3|320 кб/с]<Melodic Black/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:AEEB95A9D9D6417AB2A417879C644D76082DBF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B027D358A4951007480EB171A9661D134C932BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Boozoo Bajou - Satta (2001) [FLAC|tracks +.cue]<Downtempo, Dub, Trip Hop>
 ```bash
 magnet:?xt=urn:btih:8C44C1E3966FC9F2B42C1F5F9D4BC2DF13735C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24C601DB6E23E339C9F06C89107CCF666B157022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Massive Attack - Дэнни Цепной пес / Unleashed / Danny the Dog (200
 ```bash
 magnet:?xt=urn:btih:87C53CF9E5EE0ABC50B3DD08351ABA9B3DA363A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Tales of Evening - Hajlektalan lelek (2012) [FLAC|Lossless]<Symphonic Power/Goth
 ```bash
 magnet:?xt=urn:btih:DDD38C3F15B1FF2BEC6DE84BC108B399D264BF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A56005C1CE60A57C759FA7E454104D11CC6D47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6546B504F3DC991F4C1363E4652CC9F2FA8246E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27FEF7CD86799E04676D7E20FB010E8B3A1F4EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:430A1AA5B6A5EA42B31521FB27C133B7556186D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ VA - Sexy Ibiza Chillout (Soulful Beach Summer Del Mar Feelings Lounge Cafe Musi
 ```bash
 magnet:?xt=urn:btih:7EFA38C0C86AE5D42DC54735C17DC0A3B805F0A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1995F50EDBE21AE35C8BB2975AAFD4520CD354BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ Anvide Таймер выключения 1.7 + Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:9F9F3717A7AB5F6E751907887A0C6E55E430C0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ Avidemux - для редактирования и обработки видео,
 ```bash
 magnet:?xt=urn:btih:66711E61272F11178E390FA65A742AE18B39A28B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8642A6E5C4C45CC554FE638319D87216B67845FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

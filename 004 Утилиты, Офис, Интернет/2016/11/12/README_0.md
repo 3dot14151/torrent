@@ -19,8 +19,7 @@ DjVuLibre DjView 4.10.4 RePack (& Portable) by Trovel [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:083DA9F4EADF7E005EA6BD2441736FB390175041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AM Privacy Protector for Windows 10 1.2.0.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:2BDE1201241E45E36059B24780A3891DBD5FBE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

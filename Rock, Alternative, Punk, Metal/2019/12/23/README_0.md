@@ -22,8 +22,7 @@ We Are Stardust - A Dance for the King (2017) EP [FLAC|Lossless|Web-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:E289E5ECF53DD50F87561F7ADB0DF240780940BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Rose - Fortune Favours The Brave (1993) [FLAC|Lossless|tracks + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:D8059C0322BCD4E99D5C226486A826DCED4186AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Black Rose - Fortune Favours The Brave (1993) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:226ED12BD11F3BD426E33AC852930953A6207711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Emigrate - музыкальный проект, основанный Рихар�
 ```bash
 magnet:?xt=urn:btih:A5DEB418752564789493603D7CD37F78F9411F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

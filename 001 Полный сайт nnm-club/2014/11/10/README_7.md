@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:FEB7FFFF03CD474F8831AF9ECF9836F7F3201EB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0566D97743DC8744A4288C25F6A78CAC9B6FBD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5324C306AA0A495276AF509834CADB594FF45DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Spyon - Sly Tactics (2011) [MP3|192 кб/с]<Melodic Power Metal | Female Vocal>
 ```bash
 magnet:?xt=urn:btih:759FD97E034437D5BC4571DF0A41A6BD23CF9FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Seventh Sin - When Reality Ends (2014) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:94505ADDA3CA325527EA6DE0AF656E48F5D02FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56A0A1D5451635C593571B973D6869B60362368C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ VA - Best Moments of Chillout and Lounge (2014) [MP3|320 кб/с]<Downtempo, Chi
 ```bash
 magnet:?xt=urn:btih:EC357FF2FB9AF6C62945A05125025465F4BFC2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ Jimmy Giuffre - Free Fall (2004) [FLAC|Lossless]<Jazz, Cool, Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:3D1E34679002F56C8C6A82CFFE5EB9162D0DBCC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Sloan - Commonwealth (2014) [MP3|320 кб/с]<Alternative/ Indie Rock/ Power Pop
 ```bash
 magnet:?xt=urn:btih:998B479D8484BD3092E49FADBC72CB4E05537AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ Jonny Lang - Long Time Coming (2003) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:AE39B130221B6765689F527B7B15A05BE02CBD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3922563F37136AA43D0F38C40FBC17847572676B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ The Drapers - We No Speak Americano (2010) [MP3|VBR V0 ~256 кб/с]<Nu Jazz, Nu
 ```bash
 magnet:?xt=urn:btih:8465BE20A69B9F52F29474A542E51AAA0330DB64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +392,7 @@ VA - Digital Society Recordings 100 (Mixed By Dan Stone) (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:B8C44A63846C94542FD8E30B10666C09800F52E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +426,7 @@ Outline In Color - Masks (2014) Japanese Edition [MP3|320 кб/с]<Post-Hardcore
 ```bash
 magnet:?xt=urn:btih:97159678BE1A13AA39BFACBF076CFDCB966A6176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D09DDDE94572CB5DF8905ACDF036519B604B389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B37630F1BA8712FEC31F166161D0C21BA2C9E21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ The Feeling - Boy Cried Wolf (2013) [MP3|320 кб/с]<Alternative/ Indie Rock/ B
 ```bash
 magnet:?xt=urn:btih:B1FE1AE72AFF5A0CB6D2D7D3CC8F0553024D9DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +544,7 @@ Joanne Shaw Taylor - Almost Always Never (2012) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B1E0BB055057BF89B2DAB51AA94B9709D75D02F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD7733A0974D735F30002E516A86870A5EC48B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +604,7 @@ VA - Vocal Trance Collection Vol.128 (2014) [MP3|320 кб/с]<Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:03B0B667AA27B73363AA8864A2E61011D031169B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BF616048C9732CA677A24BD48E4DD06F763AC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ VA - Pacha Acoustic Clubbin (2013) [MP3|320 кб/с]<Downtempo>
 ```bash
 magnet:?xt=urn:btih:9BE5313BEF00EBC53630CE833551A7DA3259970E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A184DA662FFA7C3806DF6B851C5B2C805EE550D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +755,7 @@ Public Enemy - Power To The People And The Beats (Public Enemy's Greatest Hits) 
 ```bash
 magnet:?xt=urn:btih:C919F181323183795A39EBCFF6A2363D096CA03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -814,8 +789,7 @@ Good Co - Electro Swing For The Masses (2012) [MP3|320 кб/с]<Nu Jazz, Electro
 ```bash
 magnet:?xt=urn:btih:0B45A9EADC834946F4E480AC967673E51441EAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

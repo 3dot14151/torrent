@@ -19,8 +19,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.1/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D01F913AD09FE46B8A4AB3617FD3F82D1EFB8C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Metal Tales: Fury of the Guitar Gods (2016) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:1344D72200271A93FC5960B4D3B4878D36284DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ICEY - это 2D платформер с динамическим процесс
 ```bash
 magnet:?xt=urn:btih:3AFC1346B3801E37F441463B740E2889B1520D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

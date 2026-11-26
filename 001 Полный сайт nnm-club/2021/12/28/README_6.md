@@ -22,8 +22,7 @@ VA - Best of Future Avenue 2021 (2021) [AAC|~329 Kbps] <Progressive House, Downt
 ```bash
 magnet:?xt=urn:btih:D95F698B5BEC86E72ED804E8307304C4E4DDE841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Requiem 2021 (2021) [AAC|~340 Kbps] <Deep House, Downtempo>
 ```bash
 magnet:?xt=urn:btih:74D0C15340C7416F64C994221B505059F56E4D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - 4 Years of Hoofbeats Music (2020) [AAC|~334 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:875FC793AA2889B55B28CC44E88466F8B00FBE2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ XoBrooklynne - My Crown: The Album (2021) [AAC|~308 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:35963D59113B5ADCDB83488595A17C82CD3F3332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - The Hoofbeats Music Family Album (2021) [AAC|~338 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D9A56EAB4937B1F76E5CD377E41610267DC30A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Sensual Winter Chill, Vol. 2 (2020) [AAC|~307 Kbps] <Lounge, Chill Out, Dow
 ```bash
 magnet:?xt=urn:btih:FF692AD1EAB91C5EE61FB8972594A7FC2006FE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Pi V/A (2021) [AAC|~328 Kbps] <Organic House>
 ```bash
 magnet:?xt=urn:btih:503F0C3EC4846B9E9576257A77B508DC3B0661DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - 5 Years of Hoofbeats Music (2021) [AAC|~335 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:DDE0F62C090E6657AB0B6AD040D6F39A1DD57537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Muffler - Glitch In The System (2021) [AAC|~309 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:7673123F365448457B0CC9F5DA335609344CA59D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Sensual Winter Chill, Vol. 1 (2019) [AAC|~335 Kbps] <Lounge, Chill Out, Dow
 ```bash
 magnet:?xt=urn:btih:0593144AA475770311D6E69F367925CAA2A9757D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Music Lovers Club #002 (2020) [AAC|~300 Kbps] <Deep House, Downtempo, Trip 
 ```bash
 magnet:?xt=urn:btih:A61712F5756D31FE4370AD4567C4A2F9D5CEA31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Artstudio Pro 3.2.20 [En]
 ```bash
 magnet:?xt=urn:btih:B79E4FB2B34103D4AB2C3D9BDA259E87E8EE05CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ VA - Silent Night Chill-Out (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:A46663EC3BCC9503116B44CD59FF4B2232A6D047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 ```bash
 magnet:?xt=urn:btih:BCF97920790CD2BFEFB0213FF867F1C6DC63E963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ VA - Music Lovers Club #001 (2019) [AAC|~295 Kbps] <Deep House, Downtempo, Trip 
 ```bash
 magnet:?xt=urn:btih:99B907B67EBE008F2A89F58D4F1E8013F3BD22DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ VA - Music Lovers Club #003 (2021) [AAC|~290 Kbps] <Deep House, Downtempo, Trip 
 ```bash
 magnet:?xt=urn:btih:B3BE841FA679CCA970D0A32BB699965BBAD445CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ VA - Martian's Gift, vol. 2 (2021) [AAC|~319 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:2C5FDC18EF07B6F0C979F97420AE649323E04FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ VA - Sensual Winter Chill, Vol. 3 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Dow
 ```bash
 magnet:?xt=urn:btih:BCB5EEF47D90BF4E2C1DEAEC26553E712F5DAB88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ VA - YANA 2021 (2021) [AAC|~333 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:464D3DE058A7D6B74214BF62BC4B9AA07E5FD8D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:73ADE24A3A9A9B9C3F26458D833E36367C02F1C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ VA - 2 Years of Hoofbeats Music (2019) [AAC|~335 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:42A97975B98A083B2B2FC9C42B9ECC0118F8621A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ VA - Something We All Adore (Compilation by Rialians on Earth) (2021) [AAC|~313 
 ```bash
 magnet:?xt=urn:btih:712EE60A8A27089E440049A5FCA4F5F0DA213D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ VA - Best of Ballroom Purple (2021) [AAC|~324 Kbps] <Deep House, Downtempo, Tech
 ```bash
 magnet:?xt=urn:btih:AC9EE7F61054F1C19A3D7431CFD9946F233DAABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ ScreenFloat — приложение для создания висящих на
 ```bash
 magnet:?xt=urn:btih:D88F2CF08B4FAA27B1899B5F0CDA96FDD88424B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ WonderPen - приложение для как для профессиональ
 ```bash
 magnet:?xt=urn:btih:5ACC1C9851C2994E22D0C6BA5FDDFA7E832DAA6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +710,7 @@ VA - Pulse (Compiled by Serge Kraplya) (2021) [AAC|~319 Kbps] <Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:9E1F9AF6C23B9B34DA1FAB9185901DA22FF2EB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

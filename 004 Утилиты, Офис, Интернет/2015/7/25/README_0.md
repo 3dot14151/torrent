@@ -19,8 +19,7 @@ Advanced System Optimizer - это обновлённая версия мног�
 ```bash
 magnet:?xt=urn:btih:F4F002C76E7834133878060E48D81305CE793E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

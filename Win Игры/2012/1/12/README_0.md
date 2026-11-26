@@ -19,8 +19,7 @@ Maestro: Notes of Life Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:A282A4EF7DEA567CA56A6A5475AD3F0B57161492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ THEM: The Summoning / Они. Глава 1. Зов (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:08A012282A19DDE25AFDEDAC8F466F62C7705BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8BAF919447131DAD604DF48BFF1D78780D559CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73452E7DFAE7B483930367806C3DAF8F6BFD6F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Costume Quest [En] (L) 2011 | -HI2U-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Insane / Безумие Дилогия [Ru] (RePack) 2000-2011 | R.G. BoxPack
 ```bash
 magnet:?xt=urn:btih:C533EAA85B085D7245B6D8034F1D6DA71EBA091A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Ocean - немецкая метал-группа, основанная в Б
 ```bash
 magnet:?xt=urn:btih:0E1491A1BDFA5D5117AD5D8395CDB3AE1B06899B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

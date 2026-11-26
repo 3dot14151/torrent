@@ -22,8 +22,7 @@ Betraying The Martyrs - Rapture (2019) [MP3|320 Kbps] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:937EA764989BE3A01D2CA67A74FD9F20FDA7447F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Last Train - The Big Picture (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, G
 ```bash
 magnet:?xt=urn:btih:E8B931C1FC8517856683C43795F313F87CF57B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ DragonForce - Extreme Power Metal (2019) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:D296B6808F771C843526E0028D9C9E67D50B8498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Being As An Ocean - 5 альбомов + 2 сингла (2012-2019) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:63F60005746F6622B10487EFE9B42289F043745B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dan McCafferty (Ex. Nazareth) - Last Testament (2019) [FLAC|Lossless|tracks] <Ro
 ```bash
 magnet:?xt=urn:btih:D37D287001F9BC69F1CD2BB8AD98541B61D83554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

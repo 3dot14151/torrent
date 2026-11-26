@@ -19,8 +19,7 @@ Incredible Dracula 10: Dark Carnival / Невероятный Дракула 10:
 ```bash
 magnet:?xt=urn:btih:67F47608DFCC536AB1824A7A24E8234DB650FD7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DreamWorks All-Star Kart Racing (2023) [Multi] (1.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EF807A4168E2DD042A8544B9B84162210CCE37D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

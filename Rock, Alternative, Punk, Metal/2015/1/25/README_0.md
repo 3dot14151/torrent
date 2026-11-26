@@ -28,8 +28,7 @@ Kaledon - Antillius: The King Of The Light (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:091F07DAB8E31D30102F360A509627C270B905C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Inspiria - Картина Жизни (2015) EP [MP3|320 кб/с]<Death Metal, Sy
 ```bash
 magnet:?xt=urn:btih:BA5CB0446E2B90291714DFE9436867A8F0AAD179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Air Raid - Point Of Impact (2014) Japanese Edition [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0294D7EDECF08BA78731169B28DA929F8A23AD3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Ease Of Disgust - 6 Releases (2009-2014) [MP3|320 кб/с]<Deathcore, Death Meta
 ```bash
 magnet:?xt=urn:btih:3D32497EC9F2E8A21C8BD7752BF4A5DD03383FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ CD1 - Tales of the Mad King
 ```bash
 magnet:?xt=urn:btih:E1A284D41E08CF0EBBA4E0BB4C1C74607C38718D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Serious Black - As Daylight Breaks (2015) Limited Edition [FLAC|Lossless]<Power 
 ```bash
 magnet:?xt=urn:btih:B851A2AA942D4C1A7E93F75B39F94C1AECF5DA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Neonfly - Strangers In Paradise (2014) [FLAC|Lossless]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:DDBDF485F04B8CE7E8AF72C4188F40F731C87CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6D6CF42C131B128EA75F2C9CE4D8B1B1F1FE18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Escapist - Hidden Memories (2014) Japanese Edition [FLAC|Lossless]<Symphonic Pow
 ```bash
 magnet:?xt=urn:btih:EAA19854F7C4A275C73809BBFD72D4623B2E6067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51F6B9B93FFC919D6AEC73407BA85E1E72C7CFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ Rumplestiltskin - Rumplestiltskin (1970) [MP3|320 кб/с]<Hard Rock, Blues Rock
 ```bash
 magnet:?xt=urn:btih:31DC7ECF2266F5DA95A9AE8D86CE8F8A6E345ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ Veonity - Gladiator's Tale (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:561F8F81A003F44FF77BCA44339E4CC6FFA7B841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +417,7 @@ Sweet & Lynch (Stryper, Dokken) - Only To Rise (2015) Japanese Edition [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:B10A78EA56D3A42B107BE2AAC238E6E46497623E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +451,7 @@ Accept - Playlist: The Very Best Of Accept (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:017E38202C7A5C28426A2A597AA6D8A60E174A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6E902A2AE1AFC427FD744CA2AA6C24575F5456E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

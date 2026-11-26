@@ -19,8 +19,7 @@ Resident Evil 2 1999 - продолжение культовой серии зо
 ```bash
 magnet:?xt=urn:btih:2AA8D289A37AEF3B0CBC451FFFB3A1192E664BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

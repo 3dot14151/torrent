@@ -21,8 +21,7 @@ GDS Project - Chess (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark-Electro, EBM, Ind
 ```bash
 magnet:?xt=urn:btih:CDAD702A38DCA1B3AB6F9685FCF915CEA9D5C520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F94083D6E4B4A89624E39C6471AD11413D99811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Billy's Band - В шляпе (2023) [WavPack|Lossless|image + .cue] <Rock, Jazz,
 ```bash
 magnet:?xt=urn:btih:24595D1AEC3B3DAE7BA5FD49853FAB499ACBAE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ VA - Forever Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:2E13FBEF82FCCFF54E232698850A14706714F537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Chicane - The Greatest Misses (2023) Extended Mixes [MP3|320 Kbps] <Trance, Prog
 ```bash
 magnet:?xt=urn:btih:2B3141CDAF30B3483A6A4D49D25969B060606FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Black Sabbath - Deep Black (The Massachusetts Broadcast 1983) (2023) Live [FLAC|
 ```bash
 magnet:?xt=urn:btih:655B0BD172741AF2FF5F9D924CE1FAA80C18D027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ The Alan Parsons Project - The Sicilian Defence (2014) Reissue, 2023, Arista - L
 ```bash
 magnet:?xt=urn:btih:5E64FB71DCCE58C2787E1797E8689B238E47E5DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 ```bash
 magnet:?xt=urn:btih:04735368EAF399C7AECFABDB85A3BA85DEA44E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ PhotoRoom v4.7.6 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C0055F78825E5DCC4B8E9BE2C0E3D229116BDC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 ```bash
 magnet:?xt=urn:btih:AFF6020F167EDF1FC8B949F074A6C6450317E4FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 ```bash
 magnet:?xt=urn:btih:5D188288F630DD225052AEACA4155E11C0334029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Fate - If Not For The Devil (2013) Remastered Version, 2023, Frontiers Records [
 ```bash
 magnet:?xt=urn:btih:A688D6F8C309C7281F9D181980EE8612D060F2A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:42BFCC4B3B3DD04B44142A7A8DBC781575260EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Fate - Ghosts From The Past (2011) remastered version, 2023, Frontiers Records [
 ```bash
 magnet:?xt=urn:btih:D63413FBB2E4E98EDE61C092C8678D2E8ADE394D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Blank & Jones - Chilltronica EP 6 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 ```bash
 magnet:?xt=urn:btih:2F9DFE203F4F8040417D75808BC6E51B8E942726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Polarr v6.8.13 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FD33523BBBF6D3AEB87F3CA00AAEE0F03037F66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:508AF222B29791E2F9ED3169E9E35D41535754BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Apeaksoft iPhone Eraser - это наиболее полезная утилит�
 ```bash
 magnet:?xt=urn:btih:611CCC8B00654D2F46799936A372971E4C283777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ VA - Covers the Rock Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:E3AF445D7D2ACE223EBC0F6E543DAA0D4EE2D11A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1465E2165BC2F3466D67C546D83A01D7E6394A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Ventusky: Прогноз погоды v30.0 (b3000) Mod by Alex.Strannik [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:84A6452A6E7176987B71C7AB0EE68DC37C78348C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F9B0EE5762328CC2407BB1387B1BBF66425E84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ The Alan Parsons Project - The Instrumental Works (1988) Reissue, 2023, Arista -
 ```bash
 magnet:?xt=urn:btih:96D876ACD90647D6F79B0C72691E9644C62C4438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D27508B5C0585C3F7EA99828F87B827EB6E3508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D77A60667F27629BC4C431290F7F20036E9B1D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58736DD89FE91BC0734D0C8EF6D23AD34742962F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

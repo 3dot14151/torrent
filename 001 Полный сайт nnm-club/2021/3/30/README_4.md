@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:94252D6AE699C0F2EFCAD522CD1505596DA0BE95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 ```bash
 magnet:?xt=urn:btih:A586F9EA8C8E64088B4DAD1D508229AECA3189CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43AEB7FBAD34973F36FA7AF7370475869BA6E609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sandy Marton - Modern Lover (1986) [FLAC|Lossless|image + .cue] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:1BFB730662A07C58CF9DD367A0589DE0286D6CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F0AFB792641EFAD1BD060F62D9C6F0ACAF21C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Foxford, Тимофей Хирьянов | Курс экспресс-подго�
 ```bash
 magnet:?xt=urn:btih:24BA6EB977945A4CAA0BD5FE34BD2653942D5E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Trinity Seven | Святая семёрка [2014, TV 12 эп. + 1 OVA + 2 Movie
 ```bash
 magnet:?xt=urn:btih:0DB133ECECB54C8CC670EB5662D6C28F5057C46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64F3A5AB9CB42626C5FFE7F658F11709EE0D9C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D585E195BC1BC7D1EC23C18285671A9D193B806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Disney/Pixar | Раскраска | Тачки 2 (2011) [PDF]
 ```bash
 magnet:?xt=urn:btih:2908E091D947620A8D7C433E07F3C442A99F1CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Azur Lane: Slow Ahead! | Azur Lane: Bisoku Zenshin! | Лазурный путь:
 ```bash
 magnet:?xt=urn:btih:A53585C5D9FD4A4864A24A35C44DA92BAB8D8BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCAF83F6A52B2CA45A66692CFAF53759407EA2DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05B3E28253BCF530953F8D5EC85C6E34357D32F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ VideoHive - Fantasia - проект 2012 года. Детский фото ал�
 ```bash
 magnet:?xt=urn:btih:9530AD847B082671D6EFE362D9BA8CF950CF9564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A75830ACE8AAB697A81DAE08B19ECC8E3187BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BF67505085AA419E3FFFDD72CAF264F6E9C88AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ Microsoft собирается превратить панель задач Wind
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDE21C14333CCCC4734AB9907204B7637F17CE23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BF88E2EEACCD7B3DBE9B15088CB51C1BA708C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 ```bash
 magnet:?xt=urn:btih:D67459801384F037AB3AD2D3B318F546ACF947AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ Ore dake Haireru Kakushi Dungeon / The Hidden Dungeon Only I Can Enter / Сил�
 ```bash
 magnet:?xt=urn:btih:4BA71ED740C39350D1B2E9A3D58FA9DA24C6CC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ Ellen Allien - Discography 72 Releases (2000-2021) BPitch Control [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:4B2E9672F573C762AB181F89D413BC1088F25C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ Adobe Acrobat Reader для PDF 21.3.0.17414 Mod by Saksham, koctik-2017, Alex.S
 ```bash
 magnet:?xt=urn:btih:E9D78CE99E92F35344D2C62E0621A72787FD588E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7CBB2E9B44380F969BEE4AC6C395E5305485B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECB50BF5C3D9D5ADDC560EB9DFDCC283343A2064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61CECE323F6FFFB2AF37B2EDA0D5F9BC983F09B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

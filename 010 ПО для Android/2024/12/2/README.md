@@ -19,8 +19,7 @@ Root Booster v4.0.9 Mod by Balatan [Ru]
 ```bash
 magnet:?xt=urn:btih:3B88C552674F358E8DD3AF463EF49B4B8FF134FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

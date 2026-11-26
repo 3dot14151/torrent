@@ -19,8 +19,7 @@ Blackwind - это фантастический экшен с видом све�
 ```bash
 magnet:?xt=urn:btih:42D9646900CCE7656C53F7663B213AE47C676606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Detectives United 5: Deadly Debt (2022) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:F4CB50D786DE0CBE21047B48F8D3208F387FBD21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

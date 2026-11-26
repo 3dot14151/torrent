@@ -19,8 +19,7 @@ Tohu (2021) [Ru/Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:3D5EBB96A97C91C6A080A470DCFCC52084E8FA7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Essays on Empathy – это кураторская подборка лучши�
 ```bash
 magnet:?xt=urn:btih:2589A95FE78266EAE87C33D7D904F5A9AB27EBDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ark of Artemis (2021) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:EAF71292FF55B87C01C8EECB0BAE666319D6D051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

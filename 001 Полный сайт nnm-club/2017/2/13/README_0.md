@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5F9C2062EBB6D7FEC0E370810F30C331022AAE35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Стопудовые зимние хиты. Версия № 8 (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:6FC1B4C6B945C7A30975673C747A5063D121F1A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Schickimicki (2017) [MP3|320 Kbps] <Tech House, Deep House, Electronic>
 ```bash
 magnet:?xt=urn:btih:78E0F174B756834856C7F27F24285374BA23AD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:292EBE213FDFDD7FD05EF71C279CFBC318B96FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Best of Lovy Metal (2007) [FLAC|Lossless|tracks + .cue] <Metal>
 ```bash
 magnet:?xt=urn:btih:A855B1EDFA2EB36FC6F6E19CA993FB03E8F5D3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Зимние лучшие блатные песни. Выпуск 7 (2017) 
 ```bash
 magnet:?xt=urn:btih:465BE8B963FEBFAFE09E716FB7FF568CBA1A614D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Vocal Trance Hits (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:3BCC3724828B66EDF34F6A116DB03D1BC67F2709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FE39633230171DBD063E131232F1AD9DDA659BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF31A95264A17D346A62B19E208EE850A4AE1EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Deep Dish - Junk Science (1998) [APE|Lossless|image + .cue] <Deep House>
 ```bash
 magnet:?xt=urn:btih:BE47D1C246381C1B2E73EF626A831219BA70C6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:302FBC252C4BC49A319E254EEFE12CE62890AD8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Newsflow 1.4.6 [En]
 ```bash
 magnet:?xt=urn:btih:18CAFE0A5D95997F9DF9BBA14476BD5DD7B8649D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Kaizer - малоизвестный хип-хоп исполнитель с ос
 ```bash
 magnet:?xt=urn:btih:F2D1C5F459B01BC92CA5240AF4879C07A620EE15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BCC86D88F1A81140D4619E275D4B6D437ABBF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBD4BFEC407760780851F87073246D375ADEF2CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:96759E465B14B082C95A218F6E08300C8FE5197F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ Cannonball Adderley - Soul Zodiac (1972) 2008, EMI Records [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:F185CD7115DC0BD7682FC418A247A3F95EFA032C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ VA - Хиты в тачку. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:80051F11DDB44E338E08853D8C598F6C933D8D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Hermes House Band - No.1 Gold Selection (Greatest Hits) (2006) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:D20BBF4B2DF2988DE7B6599671A05C54D1D1DAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35A17CF922BACE891B4CF018F9ADB2322F7C02EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:6359BF24828771F56F1315B54BC8E795E02269E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ John Garcia - The Coyote Who Spoke In Tongues (2017) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:96FA69B90D95AD718F1080DFFF893B929366921C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ VA - Двигай Попой 17 (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A16AE254C86864874BA89044CC55D60FCC66F249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ VA - Лучшие блатные хиты года от радио Шансон 
 ```bash
 magnet:?xt=urn:btih:01DA43D1387B60EF9E614828C4ACB3B2C8DF2675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ VA - Big Workout Hits 2017  [MP3|320 Kbps] <Dance, Club, Electro, Funky>
 ```bash
 magnet:?xt=urn:btih:3F2A1FB7C7101517494C800DFC8FF8FA67C2C544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCB8013EA41166FF3BD6DD0BE3D427C96EDEB671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

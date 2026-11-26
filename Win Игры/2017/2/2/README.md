@@ -19,8 +19,7 @@ Death to Spies: Moment of Truth / Смерть шпионам: Момент ис
 ```bash
 magnet:?xt=urn:btih:209958EA9E401DCB064E6BC2D1A0ADA7C3C665DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Sorceress (2017) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:6AF285C9CAC645E0C442FC2C760F4D3EED2BC8B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mainlining - захватывающая приключенческая игра 
 ```bash
 magnet:?xt=urn:btih:EDBC6C419D744225258CC6A4FF56B047C73D8313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Astro Lords: Oort Cloud - это совершенно новая игра, ко�
 ```bash
 magnet:?xt=urn:btih:924348974CC5C19DE2C04D9A66032F44B9DFD7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

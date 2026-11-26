@@ -19,8 +19,7 @@ Eldest Souls (2021) [Ru/Multi] (1.1.23f2-master) License GOG
 ```bash
 magnet:?xt=urn:btih:BB7BD5DFAFFC53AF0E29F9AE6B1273671E8BA7D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

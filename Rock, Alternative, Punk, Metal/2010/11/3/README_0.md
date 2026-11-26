@@ -28,8 +28,7 @@ R.E.M. - Fables Of The Reconstruction (2010) 2CD [MP3|256 kbps]<Indie rock>
 ```bash
 magnet:?xt=urn:btih:4037DBC205D9BE95EE28FAEFC828DDCF632BB2AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

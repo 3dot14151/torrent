@@ -19,8 +19,7 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:F2666CB588CB5DDCDA0E6DD7DE3C7EBB2CCE1A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Homeseek перенесет вас в мир, где ценности уже н�
 ```bash
 magnet:?xt=urn:btih:83E7563ACCBE06F2D9CC3BF61EDFBBDE63A21CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gord (2023) [Ru/Multi] (1.5.0.42146/dlc) Repack Other s [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:BBD9235A1D03B30FB36DA2A12E87105EBD8B69D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ qomp2 (2024) [Ru/Multi] (1.1.2257) License GOG
 ```bash
 magnet:?xt=urn:btih:93615AA79C48C1DE0E9D12DEEE61760707EA39CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Hero We Need - это стратегия в жанре tower defense, кот
 ```bash
 magnet:?xt=urn:btih:ABCA108A9059AABFAE343E46B94A70A5F0B597F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crossroads 4: Fatal Truths (2024) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:FF010DE7111C6DFEFE1A38B430E55CDB1F08EBE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

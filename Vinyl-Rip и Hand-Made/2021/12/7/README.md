@@ -22,8 +22,7 @@ ZZ Top — культовая американская блюз-рок-груп�
 ```bash
 magnet:?xt=urn:btih:840F1C5C9B785A41B4DDB0A71C45C16FDAC70195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

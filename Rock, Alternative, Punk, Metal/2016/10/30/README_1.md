@@ -22,8 +22,7 @@ Woslom - A Near Life Experience (2016) [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:A8CB5B11A251771FB0AE7A3B05CFD955C558CCF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Livores Mortis - Vivere Militare Est (1998) [FLAC|Lossless|image + .cue] <Atmosp
 ```bash
 magnet:?xt=urn:btih:C8350089C223AB3F85301C2AC0942C9CC1500369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sven Gali - Sven Gali (1993) Japan [APE|Lossless|image + .cue] <Hard Rock, Glam>
 ```bash
 magnet:?xt=urn:btih:0FE9DB125D49F40EE93B9E3CDDBE47DFA672AA19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stan Meissner - Dangerous Games (1984) [APE|Lossless|image + .cue] <AOR>
 ```bash
 magnet:?xt=urn:btih:2735BDA4CE56F67767817641BFD37C7AD595D6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Once Human - The Life I Remember (2015) [FLAC|Lossless|image + .cue] <Melodic De
 ```bash
 magnet:?xt=urn:btih:596C70994CB36A0D749E57D1F43E16103BAAF516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Black Sorrows - Faithful Satellite (2016) [FLAC|Lossless|tracks] <Roots Rock
 ```bash
 magnet:?xt=urn:btih:A9733A9CF3E5C63BD8591D02184FF3612EA4A319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Amaranthe - Maximalism (2016) Japanese Edition [FLAC|Lossless|image+.cue]<Modern
 ```bash
 magnet:?xt=urn:btih:AFD804312FC19339D4AEC02363EC586A9B8E73D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

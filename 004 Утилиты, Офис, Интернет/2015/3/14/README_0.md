@@ -19,8 +19,7 @@ RapidTyping Tutor - бесплатная программа-тренажер п�
 ```bash
 magnet:?xt=urn:btih:9CF27E7EA5931EB16A049D6D7BD287F92B916397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

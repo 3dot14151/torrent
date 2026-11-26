@@ -22,8 +22,7 @@ Nuclear — чилийская трэш-метал-группа, основан�
 ```bash
 magnet:?xt=urn:btih:170A4189CFD363D30263F9CA1F3DB650A5F484D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Where Do You Go?(   Читать дальше...   )Жанр: Pop RockПро�
 ```bash
 magnet:?xt=urn:btih:2EE706B5823E98F878BF8B6C1534663476060308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Tassi - Northland One (2021) [FLAC|Lossless|Web-DL|tracks] <Post Black Metal, Bl
 ```bash
 magnet:?xt=urn:btih:7AC8E297B47063CECE70083BBA15339310E1AEDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lemuria - The Hysterical Hunt (2019) [FLAC|Lossless|image + .cue] <Symphonic Bla
 ```bash
 magnet:?xt=urn:btih:0BC58331711FFF68F979340BAC050973B834D9F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tassi - Northland Two (2021) [FLAC|Lossless|Web-DL|tracks] <Post Black Metal, Bl
 ```bash
 magnet:?xt=urn:btih:9765C77921BC584DAF0D858F9DB30448F1B5838C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - American Rock Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:449A274E6BF603FCE264611A7B88D1590F598053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Heavy (Stereo Album Mix)
 ```bash
 magnet:?xt=urn:btih:C814D19435FF914EE1044AD2DF41D5E13E832487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Трибьют Сергей "Чиж" Чиграков (2021) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:0F4055244B433AD400DB7123088FE69664628F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Трибьют Сергей "Чиж" Чиграков (2021) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:A129A44F67E02FEE578BF26D2D643A5FF44FAA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C477106805260B89C499EBEB0AFAF3EC48B96B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB73B65837383B80EC28D5C51562D57396669031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Snowblind - Breaking Out (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C359CB378711B73E0D425ED628778CDE98A0CA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

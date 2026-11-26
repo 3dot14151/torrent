@@ -22,8 +22,7 @@ Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|9
 ```bash
 magnet:?xt=urn:btih:C4CC52CC861C73F32509F20ABB73900DBBBF8C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Megadeth — американская трэш-метал-группа из го
 ```bash
 magnet:?xt=urn:btih:84A6F9A9D23BA243BA5709BF7CC33F62DA0379A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

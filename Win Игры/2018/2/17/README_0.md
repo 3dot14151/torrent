@@ -19,8 +19,7 @@ Mотоциклы самых популярных мировых произво�
 ```bash
 magnet:?xt=urn:btih:4B7E777759C5A248A55961BA32E7BA58F7022EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Everlasting Summer / Бесконечное лето (2014) [Ru/Multi] (1.2/dlc)
 ```bash
 magnet:?xt=urn:btih:42E7AA7542E414A7296A81FD25A603CA03954AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Iconoclasts (2018) [Multi] (1.14) License GOG
 ```bash
 magnet:?xt=urn:btih:9477D194597909E1DB8449075600CAC037BD0FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D1D10AC1105AE56ABE643913A5864C8FA72768F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:AC739FDFBAA6323C90570DBEBEA9CE00EA415FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Astebreed — это аркадный экшен-шутер про гигант�
 ```bash
 magnet:?xt=urn:btih:6CFE2C5D8D8DC3713164270C4EA4013A0B5E0A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0AF215A884E53CE392104E3F203D34212825E8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Spider: Rite of Shrouded Moon - играем за паука, плетём се�
 ```bash
 magnet:?xt=urn:btih:3DAEF5BB65ABA4E9B023985172DA4FB098941F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

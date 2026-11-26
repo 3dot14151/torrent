@@ -28,8 +28,7 @@ VA - 25 All Time Trance Classics Vol. 6 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:EA5466FE53AB27BD9E3EEC3A15334C6B289258F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5529B61F5B4F19C51674020A3F8C09F65747BD09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Beautiful Sin - The Unexpected (Limited Edition) (2006) [FLAC|Lossless]<Heavy Me
 ```bash
 magnet:?xt=urn:btih:10FF107B6EBCE4CFD78EB5F574473C61FCFBA1F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF34E44F9AA910A4B4B548B3C24C9021B52444F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Dwell - журнал, представляющий готовые проекты
 ```bash
 magnet:?xt=urn:btih:5C3E3CC368F20FB5914026B1578156DC59F06E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ Kaskade - Atmosphere (2013) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:213E02C100B17CF790CD8F0AB703D3FEF1CCE01B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ VA - Ibiza Seasons (Summer Edition) (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:AA00F9407A8F1D0899A6139A4620A87E6372C189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF28BD77805D7B55AC1F9C4DDFDF3F06B5172313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ VA - Barcelona Chill Sunset Vol. 1 (2013) [MP3|320 кб/с]<Downtempo, Lounge, C
 ```bash
 magnet:?xt=urn:btih:37C71518704C9516AC4795E75E05155BF8FFADCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ VA - Dance New Summer Get (2013) [MP3|224 - 320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:7FBAF0F4A6F3C5D46140F2AEE71AD4F95639784E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A655085249C2EBBB3B38EEE3EFD179D049B71993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C23BBA75800D9109DEE2F9DDDA51BD579D81DF90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ ELLE Decor - самый красивый и полезный журнал о с�
 ```bash
 magnet:?xt=urn:btih:B2F99B7F8CAB32D39F24282F5942D4775A692537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA1E30E3CFF0ABECC615F06F7492BFDFEA588C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7C489CB398927110F49E687FA7E60C30536EDE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ VA - Andrew Rayel - Mystery Of Aether (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7E845B3928F9594B143D397E0579FBC056D0D68F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ VA - Music For Cocktails (Daydreams) (2013) [MP3|320 кб/с]<Downtempo, Lounge,
 ```bash
 magnet:?xt=urn:btih:96E58FD1C0C4A2A5061FDB2C9C4BD86C05DF55BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D12C00E7A15BA79551C625BD551976C86139B8AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7248C3D992AACF9CF4A0451E337A081AE55186A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5631F47A1C881FC8E3D828004117EC35E2E628C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ Hard Life - 8 Альбомов (2003-2010) Дискография [MP3|VBR & CBR
 ```bash
 magnet:?xt=urn:btih:0D0C14871BF9AF8456EFF773114401924DF0D376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ VA - Chillout Paradise (15 Smooth Deluxe Lounge Tracks) (2013) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:23D36FD363AB8563C8C939BF29820AD42BDB5979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6757A5CA6369ECBDDDF6DD7E2F42BBBAE32D3E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ VA - Cafe Dubai: Vol. 1-2 - A Trip Into Sunset Lounge (2012) [MP3|320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:C4DFF07AF27BEB9F1424173618BDF65B22EA71A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B68620F90E198FD4CC502A5368A79AF15546088C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

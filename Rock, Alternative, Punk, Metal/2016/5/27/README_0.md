@@ -22,8 +22,7 @@ Astralion - Outlaw (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:557237831AF813D7BCFB7EF509700DE83AE08936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ RebelHot - RebelHot (2016) [MP3|320 кб/с] <Southern Rock>
 ```bash
 magnet:?xt=urn:btih:626FF0F712A7183B226CC849E681F29246C77607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Deja Vu - Ejected (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:328CB0C49A8CAC38D2ECC29ED01FD6B700228D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Marty Balin - Balin (1981) [MP3|320 кб/с] <Soft Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:EAF729DF27E8D8740736A2F2497F564925D471F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Queen - A Night At The Opera (1975) GoldCD Reissue, 1992, MFSL UltraDisc II [FLA
 ```bash
 magnet:?xt=urn:btih:CE91B3D5B8698678DB6ECD54258FC1E3A8CC20E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

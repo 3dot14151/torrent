@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DF09634EDE200805A1DF0C70F49B437B54FCC9CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Chickens Go Mad - Don't Touch Me (1994/2015) [MP3|320 кб/с]<Blues Rock, Texas
 ```bash
 magnet:?xt=urn:btih:A9EC9738B35319B40F10C066A313768D45639595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Millencolin - True Brew (2015) [FLAC|Lossless]<Skate Punk / Pop Punk>
 ```bash
 magnet:?xt=urn:btih:2A00E20AA21139794372F8EF7A4E2F91AD950D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61C53A054F7F4FAECBB15EB6588DF895652CADC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Group Home - G.U.R.U. (Gifted Unlimited Rhymes Universal) (2010) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:25FDC160A8DD7E0650C91CCE3479BA34DE254425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Bukowski - On the Rocks (2015) [MP3|320 кб/с]<Hard Rock, Heavy Metal, Stoner 
 ```bash
 magnet:?xt=urn:btih:9DBFE8BBF0A9165D8B9104E9B27E37BD41C30728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Claire Gaudriot | Фея Лилика и приключения на лугу (2
 ```bash
 magnet:?xt=urn:btih:988A84FEEBC1D30717EC83D71A91B142F24C456F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01E2B75266227EC752740EB5732625C75A7C98D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Marc Benno - Minnows (1971) /1995, A&M Japan/ [FLAC|Lossless]<Rock, Pop Rock, Bl
 ```bash
 magnet:?xt=urn:btih:4D265B9918DC8E051AF90073567C7772DB2F556E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2367AF0D70F9D1E36C8C029A7A1540862306B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ I Know a Tale (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E86F330CE51561F82516C20ADC2D3BC409DE2A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA45B92E27C8841D0DE3382A916B8C6CD6D20834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A68420B92BBEE589E1A6D8B9194414F6E17EB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1E5159846D048064F1A02A30D944E958F220A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAB12024C6973DF9FFD6E94DE33C260A9C1A9A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ PROсвет - NAсвет! (2014) [MP3|320 кб/с]<Rapcore>
 ```bash
 magnet:?xt=urn:btih:FBF7939803FFEBD9A48AE94BC224263A1C0ECB95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Gretchen Peters - Blackbirds (2015) [MP3|320 кб/с]<Folk, Country>
 ```bash
 magnet:?xt=urn:btih:0A9022BB9BB8610C6D415B0A2AB80B13B8320089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:0F1900A83BA7D773AA8BFA94BA1068219B7506EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8900BD3FD83325B187E5E3E9D2B24C0982C7089A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB975555303AB749571A56BC2F46FCD3DBB3355D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ Wise System Monitor 1.3.1.27 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:21D80888BB424C7597C8B3C0CB5BAF59DB0120E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3B18F9CCBFAA7F65B7051342147B4EA8C099538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F157B33F097D8DC555AFA2BEAAD8E58265D3E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ Pyramid Bricks Breaker - Разгадайте секреты древней пи
 ```bash
 magnet:?xt=urn:btih:6BB801EBAEB1CFC48DCD5F8EF53540971FB548BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Five Dates (2020) [Ru/Multi] (public 10) Repack 3v01ut10n
 ```bash
 magnet:?xt=urn:btih:263A9550E2CC5D5B478BC84B512F008D9F73D54E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LEGO Indiana Jones 2: The Adventure Continues (2010) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8D91891CBE98523E2ED982A208F7C1FDAB00A63C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

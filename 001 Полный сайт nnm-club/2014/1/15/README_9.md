@@ -28,8 +28,7 @@ VA - Evening Tranсе 4 (Compiled by Alex3107) (2014) [MP3|320 кб/с]<Tranсе
 ```bash
 magnet:?xt=urn:btih:129358795082552AE85D930BEEDCAC40463C53B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Neten - Escapism (2014) [MP3|320 кб/с]<Ambient, Psybient>
 ```bash
 magnet:?xt=urn:btih:35EC2E9F09E5312BE482C7A11D95D9AFB6F6A73C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9D24BC45B3A87A57A850FE49A24E31DCBF96511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:006E07D42A0DF010BB82BC1BF6A58ACDCDEF792B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Underground Trance Sessions Vol. 9 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:FAEE69386E82FF41B502ED56CC59855001415325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Jim Gustin And Truth Jones - Can't Shed A Tear (2013) [FLAC|Lossless]<Blues Rock
 ```bash
 magnet:?xt=urn:btih:31F5B61D5A05F87C336D6DCF46E6044BC14F2164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Juan Del Villar - Motivos Personales (2014) [MP3|320 кб/с]<Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:7B2229094473A06983D446E2B872312F5514819B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ Nebula - The Best Of Nebula (2013) [MP3|320 кб/с]<Progressive Trance,Hard Tra
 ```bash
 magnet:?xt=urn:btih:4701580103B68A4723966EC813E73A81CC5BF8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43D0F16F9955DB071DC2713B02581114524BFE7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:370E0A479B91E8F31E37433551F79ECE5A7E7FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19A7C18BDF823BFCE231A0ED3108D7245AC4E5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ Stephan Braun Trio - The Raid (2008) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:0617C621C7991FD4F2F487F46F5389CB93170434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ Advanced Photographer - чрезвычайно нужный журнал для 
 ```bash
 magnet:?xt=urn:btih:2819143ADD7C633671D25A0BFD960A70A1FB2018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36F32F1471194492348A255BA3A59D79F5187A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ Jacky Danny - Jacky Danny (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DDBBCDF23AAA61BC2D33C426F9EA19A4FA4C9F8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA62DE4A4C9F5237D221FFBF632233643D2486A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ Pleasure Maker - Twisted Desire (2008) [FLAC|Lossless|WEB-DL]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D4A60746501AD653FC0E2C74894FA9FE30D69DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ Wolfert Brederode Quartet - Post Scriptum (2011) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:9AED2861A4749EB4D70FCF606D5D18FB3827B75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +592,7 @@ VA - Adrian & Raz - Best Of Vocal Trance (2014) [MP3|320 кб/с]<Тrance, Vocal
 ```bash
 magnet:?xt=urn:btih:FCF4F24B8DD54743756DE2B947FB502F80D63888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +625,7 @@ VA - Cosmik Chill Yellow (2012) [FLAC|Lossless]<Psychill, Ambient, Downtempo, Du
 ```bash
 magnet:?xt=urn:btih:E862EA80DF164A3563350409A0B6A87B7C1C1054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +650,7 @@ HyperSnap — программа для снятия скриншотов. Мо�
 ```bash
 magnet:?xt=urn:btih:39D6A4D74FEEFBF3A5727B82A03EED00F093F998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +682,7 @@ Alcest - Shelter (2014) [MP3|320 кб/с]<Post-Rock/Shoegaze>
 ```bash
 magnet:?xt=urn:btih:5196FFA6EC4640707B7020C0CBD9A85AFB24A16F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77D7958AD7F164FB0A0428AA8265A9A66AF2548C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E18BC11073B507CC75E3CAC4DD14BF56798CA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -782,8 +757,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1B9CA7711F33A1477FF45B52BD981E5B57FA8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

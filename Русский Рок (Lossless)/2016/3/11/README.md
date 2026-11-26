@@ -22,8 +22,7 @@ VA - Romantic Collection: Русский рок (1999) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:10E74FE953098FEF940B5365D75734FC5DD54FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

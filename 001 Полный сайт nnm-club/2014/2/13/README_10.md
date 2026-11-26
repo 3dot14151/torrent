@@ -26,8 +26,7 @@ Thundra - Blood of Your Soul (2000) [FLAC|Lossless]<Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:ED235B08C1A470E312E279C084D45B54F0000AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Recoverworld Trance Sessions 14.01 (2014) [MP3|320 кб/с]<Trance , Uplift
 ```bash
 magnet:?xt=urn:btih:E40843148BB367BA35DBA8EC86A69E68D92B5687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Astrophobos - Remnants Of Forgotten Horrors (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:AAAE365C0F78957981817A9748EECE90CA55EABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDB7D8C938FA9B042381708ED570AF94C4F8CAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ VA - Clubsolute 2014.02 (2014) [MP3|320 кб/с]<House, Progressive House, Elect
 ```bash
 magnet:?xt=urn:btih:38C93706AD604CD1E0D132C91EEB9F39AB5A1D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Iskald - Nedom Og Nord (2014) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:DFF3CD2E71FFD283E32F12D58830EFC6C73EAC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Valkyrja - The Antagonist's Fire (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:872DFB3E330C3FDF96B718DBDDD23D779E6744C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ To Separate The Flesh From The Bones - Utopia Sadistica (2004) [FLAC|Lossless]<G
 ```bash
 magnet:?xt=urn:btih:7F2E4C97EB6FB3D9EB471127ED3798A9FD52BC5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ VA - Kning Disk 2005-2012 Box Set (2013) [MP3|320 кб/с]<Downtempo, Electronic
 ```bash
 magnet:?xt=urn:btih:22F4CD233C1BD814AB95E82F9A393892FA4A87E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32160C5199DD40DA0FCC70808C0A3923590525CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF30B18A1529B13AF5A185B91CBD2518844A891A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:A2438F4F8D5DBDEF99D4301BB2B1E5145D954411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ VA - Message Mirage Requiem (2014) [MP3|320 кб/с]<Trance,Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:F3BF9C7505E37C0139BE637FA0949A461D142A83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +433,7 @@ We Are Smug - We Are Smug (Limited Edition) (2013) [FLAC|Lossless]<Electronic, P
 ```bash
 magnet:?xt=urn:btih:F6A745956B39341879A4954257E7A65835B55286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:305FB1E12499FA908ABE36DC21FE72DACB269C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +491,7 @@ Iguana - Iguana (1972) Reissue, Remastered 2012 [FLAC|Lossless]<Rock, Fusion, Pr
 ```bash
 magnet:?xt=urn:btih:860A584C18033E7F1E48D483BD22305F3DDD6A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +525,7 @@ Blind Passengers - Neosapiens (2001) [FLAC|Lossless]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:B3E0EF2A9AD2733AC7D993A8906F9CFE55A17F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E16E7C8325005FC67ED2464C8B0B089244870714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C877D56BDA12852656513F20391FAAD889E67D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26419A6833358A99FDE46ABD1DDD067AB928E24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +631,7 @@ Judy Dyble - Talking With Strangers (2009) [WavPack|Lossless]<Folk Rock, Psyched
 ```bash
 magnet:?xt=urn:btih:65777CA77A1DBC3C391330AA8463BD2A7393798C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ VA - Омут Зарубежных Новинок (2014) [MP3|256-320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:459E4325159AB1F4A86E4E03CB8E7A3C7611EDE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +690,7 @@ Defraggler - утилита, предназначенная для дефраг�
 ```bash
 magnet:?xt=urn:btih:5E32FE5702AA7F774AA82E8911CC0DDC5D985ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:441F8A7E62AE9F78D12D853D1083B0DF09460405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +747,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2478536D99B10C6E3B5958C9D276EA2A4571C6D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -797,8 +772,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA52C589857F1FC2BB5BAE4471336425944952BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

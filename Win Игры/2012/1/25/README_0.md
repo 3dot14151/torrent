@@ -19,8 +19,7 @@ HdO Adventure - Public Enemies: Bonnie and Clyde Extended Edition (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:23B5E7B9E3386061E0C2627155AFFDE42CF66D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Oil Rush [Ru/En] (L) 2012 | SKIDROW
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ MX vs. ATV Reflex продолжает и развивает игровую се
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

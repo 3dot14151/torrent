@@ -22,8 +22,7 @@ Madness - Divine Madness (1992) [FLAC|Lossless|image + .cue] <Rock, Ska Revival,
 ```bash
 magnet:?xt=urn:btih:E1716E2ED12FE413CBF3655F02F5CE70528D9AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Skunk Anansie - Anarchytecture (2016) [MP3|320 кб/с] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:1FB36B86B6A2759919559BFF2F614C3591F27E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ John Paul Jones - Scream For Help (1985) Unofficial Release, 1998,  Oldis [FLAC|
 ```bash
 magnet:?xt=urn:btih:400EF06CB6A146E0544FB7F18108B709E47A2476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Original Hits - Rock 'N' Roll (2009) [MP3|320 кб/с] <Rock & Roll, Doo Wo
 ```bash
 magnet:?xt=urn:btih:62D3E0DE54991B984AF500A05ACC2D1292E2D856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Союз. Rock 2 (2016) [MP3|320 кб/с] <Rock, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:5FE87383AB70721E3BE8A95049A7C109933C88B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

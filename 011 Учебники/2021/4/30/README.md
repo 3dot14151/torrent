@@ -20,8 +20,7 @@ NeoBook — это компьютерная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:319E9BFE584DFFC49CDC3C4D8D2CB6E0FAC23A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

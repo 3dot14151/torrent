@@ -19,8 +19,7 @@ Evoland 2 Русификатор (2015) [Ru] (1.0) Бaton & co
 ```bash
 magnet:?xt=urn:btih:32B161C11CE8FCC4A33F0B005AC73A4E167CC834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trapped Dead: Lockdown - это тактическая стратегия в р�
 ```bash
 magnet:?xt=urn:btih:6CAB0309A19EAA841CE8FDF3B35E6846F66719C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Assassin's Creed: Liberation HD (2014) [Ru/En] (1.0/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:2EDEAAF304D069F7B67F0EAA02947A42CFD97320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

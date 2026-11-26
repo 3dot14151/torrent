@@ -20,8 +20,7 @@ Abyss: The Wraiths of Eden (2012) [Ru/Multi] (1.0.6218.150963) License PROPHET [
 ```bash
 magnet:?xt=urn:btih:9FBC08148EC682F6570FF21A2C12D4D1C6700B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAD9A94A576600FCE1C9C263775343093F00C87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Forced - аркадный экшен/RPG с элементами головол�
 ```bash
 magnet:?xt=urn:btih:3C86AB74EF372DF218A73F6D7B2ED247CD9FC17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

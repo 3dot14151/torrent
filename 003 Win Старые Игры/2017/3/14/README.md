@@ -19,8 +19,7 @@ Lula: The Sexy Empire (1998) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:357F26480306AF2F4E4B16B951372D6D54826ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

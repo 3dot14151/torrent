@@ -19,8 +19,7 @@ Eastward (2021) [Multi] (1.0.5) License CODEX
 ```bash
 magnet:?xt=urn:btih:2B317810DC9854FDDB5800B7ACF76EEAADDB6CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Last Stand Legacy Collection (2021) [En] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:2A8645CD31655FDBD2E9F21CCAA04A5D7F4F174B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Flynn: Son of Crimson (2021) [Ru/Multi] (1.01b) License GOG
 ```bash
 magnet:?xt=urn:btih:D9AF5E0C13585F2DBA0D2AB32EFB8FD864E4C229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Little Nightmares II (2021) [Ru/Multi] (1160/dlc) License GOG [Echanced Edition]
 ```bash
 magnet:?xt=urn:btih:F81D9AEF2883ACAE98E5A83907CB611685E7DCBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

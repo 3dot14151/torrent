@@ -20,8 +20,7 @@ Mac Video Downloader является уникальным Web Video загру�
 ```bash
 magnet:?xt=urn:btih:BE98E3AB3915E8BAE4020DC8A360DCD2460AFD67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Blonker - 12 альбомов (1980 - 2006) [MP3|320 кб/с]<Instrumental, New 
 ```bash
 magnet:?xt=urn:btih:97A567DBB7FE7282B4D30776709DC7CBD9B4118E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Resistance 2 [PS3] [EUR] [En] [3.41/3.55/4.21+] [RePack] (2008)
 ```bash
 magnet:?xt=urn:btih:438FCE24F942E35F37767408C92C5532B0ABEBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3447AE6BDCF0FD8B8EFD1F0A9F87354C2C34496D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:631676694F05F76432F46BB8F7F2279F021BA049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Colin McRae Rally переносит захватывающую атмосфер
 ```bash
 magnet:?xt=urn:btih:BEF3DC9639091881552387A4EEF4BCDB53BBC884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3C002B51DE0B7275FF815B84DF513D5AA17B46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Adobe Audition CC 2014.0.1 7.0.1.5 RePack by D!akov [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4844BA9C70CDB2F64838687F08EAEBB9DB66BB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Dead Rising 2: Off The Record (2011) [Ru/En] (1.0 Upd1) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:33F832BD997B6C67AE3690C81067FCF353D27D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D25629C7172E396F8D0CD056A1ED2AEAC825E8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF11D98FEC255A4C57B51D05E940445B0B5FE48C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Octodad: Dadliest Catch — это игра о разрушении, хитро�
 ```bash
 magnet:?xt=urn:btih:ACBE2917E59FC6C2DF1CEE8F2AACC52C8489DF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3DB9BBEE4987E2E8567B16987AE9A60ED32AD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D926AAA1EAE4BDEEE28F8B4ACFE4365DC3A2CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Profileschool | Фотография. Базовый уровень (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:2870C95290B525F48FDC6DD715F176D93E559CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A76F52E4087301AB38A13C3B8FBA7C038899DD06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (1.0 Upd1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:284390955355F7D6ABBF9066B514E7D879E36A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ The Chronicles of Riddick: Assault on Dark Athena (2009) [Ru/En] (1.01) Repack R
 ```bash
 magnet:?xt=urn:btih:87A768D0958D8A8E26FFE8EC7B0B6F31EA70117E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A60DA7EF9867C901AB95DFA0AA75B2FEDB3AB442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ Postal 2 Complete (2003) [Ru/En] (1415 Hotfix 2/dlc) Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:E98FF39602866B10585034B7E96FEF0DD5E0FEA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:36AFBDF42A14F79F98F8F29F1492FE6F42F221C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CD53BB26BEAECF74BDDC55B6309E53B5CB4046B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EA12117248A6B96B02F0C706FE3F0095AAC2819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1764DE7036126062499D495947240D376896DF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A2F527FF3B7628B2D42D6623A779DB2B0B31249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

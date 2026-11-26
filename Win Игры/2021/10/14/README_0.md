@@ -19,8 +19,7 @@ Halloween Chronicles 4: Behind the Door (2021) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:56108DF1C80CB1A36DC6C354840F77775B14BCBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Riftbreaker (2021) [Ru/Multi] (7526729) License CODEX
 ```bash
 magnet:?xt=urn:btih:57E7DA4578227738F82CDE13E81E2F8D58A7980B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A Juggler's Tale (2021) [Ru/Multi] (1.16.0) License GOG
 ```bash
 magnet:?xt=urn:btih:04D331802BEA05C5A398266C24E6A9B7A1D33A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Paranormal Files 11: Sacrifice to Shadows (2024) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:00266B84F6D625FE544F5CA7B22EC11BE7A6547F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ System Shock 2023 - ремейк легендарного иммерсив-си�
 ```bash
 magnet:?xt=urn:btih:323A0A545CD2100BF627267B6CE2472A1418166A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 ```bash
 magnet:?xt=urn:btih:99402BA712EFE62C8E413F6C36F5FFBB8B308516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Crown Wars: The Black Prince - пошаговая стратегия, дейст
 ```bash
 magnet:?xt=urn:btih:00F2C63629CC36746398EBDC6930FD5A7A38AA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Vanishing of Ethan Carter Redux – это улучшенная версия
 ```bash
 magnet:?xt=urn:btih:E7721CED9042CC21F930E417BC40244980E618BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bloody Heaven 2 – в основе сюжета заложена популяр
 ```bash
 magnet:?xt=urn:btih:5D4EAB995EBBA071EB80CE7A443CC52C44A5CFFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ WARNO (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:728A40E5998C77C98095FDB40AD4BFD2F067A570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ ASTLIBRA Revision погружает пользователей в фэнтез�
 ```bash
 magnet:?xt=urn:btih:5EC40FE045D48FDA0607DE756BBF70E4D991362B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ CONSORTIUM – приключенческая игра в научно-фант�
 ```bash
 magnet:?xt=urn:btih:A770D02E143B950741AEF5430CFCA2505FC051A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Vanishing of Ethan Carter - бродилка от первого лица, �
 ```bash
 magnet:?xt=urn:btih:69926BF04D358515CE484334904629B28A77888C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

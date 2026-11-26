@@ -19,8 +19,7 @@ Randomizer+ Random Pick Generator - Decision Maker v4.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4304AD04F08CAA90D7ED74AB933B231D875F4892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fast Charge Pro v1.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:069F5D282C821B35923AA2AFC865B70DC53673EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fallout File Manager v1.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2BDDA35BF58B2D3AC8C197CA5EB6825978FD479E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ WiFi Overview 360 - универсальный информационный ин
 ```bash
 magnet:?xt=urn:btih:D88A6052860164A20F05F872DDA073CB77AE97AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

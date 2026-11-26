@@ -19,8 +19,7 @@ Sabre Team [En] (RePack) 1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:8B09F12FCA3802BF3498DAA13AD3E5244AF776C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ CyberMage: Darklight Awakening [En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:478E1C4393AB9B8B8CA6A2DBCE522190F074BEA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8F5820F044778C7B19EE158C1135F49207A0487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ SEAL Team [En] (RePack) 1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:075F78120F0A22540D420D9B4A5662A19F5935CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Evil Twin: Cyprien's Chronicles [Ru] (RePack/1.1) 2001 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:4524CC63E0158E7E5B91B2DBBE43A38A43ED9288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

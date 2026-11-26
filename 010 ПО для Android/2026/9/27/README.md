@@ -19,8 +19,7 @@ LexiMobile — официальное мобильное приложение п
 ```bash
 magnet:?xt=urn:btih:11B97E7133136321C7BBDC984FEA55C8B720E52C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

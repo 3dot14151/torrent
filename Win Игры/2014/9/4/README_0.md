@@ -19,8 +19,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.3.1/7dlc) SteamRip
 ```bash
 magnet:?xt=urn:btih:44A330D2BF1B5978F9E3D4E86F500289D03AA7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

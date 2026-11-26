@@ -19,8 +19,7 @@ Kerio Control — это комплексное решение в области
 ```bash
 magnet:?xt=urn:btih:FBB6F87A88C2488D8113259578E02AD1A0EC0E9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

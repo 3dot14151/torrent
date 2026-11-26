@@ -20,8 +20,7 @@ Sweet Home 3D – замечательная программа для созд�
 ```bash
 magnet:?xt=urn:btih:D0E765BED47BC354F0824313A36B992C0AD347C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Filschool, Софья Филиппова | Курс по веб-дизайну �
 ```bash
 magnet:?xt=urn:btih:58297FC66980437444E1C3CF88288C16ED51F15F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94CCEEF22D51469EE35648B55B25A8BB4FC46516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ The Quarry (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E4BCB4538936AF3471617EBDA78A8E9633A3D424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

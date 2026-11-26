@@ -18,8 +18,7 @@ Fallout 2: Restoration Project (2014) [Ru/En] (2.3.3) Mod killap
 ```bash
 magnet:?xt=urn:btih:6042A252C9A5E1B6BDE15F35F124B51E59693299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) UplayRip Let'sPlay [Apex Edition]
 ```bash
 magnet:?xt=urn:btih:7B91AA365F77BE567A671EA9DAA250A11268097B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94EDFC45754416A887D348E9E666453ED500093A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Realtek High Definition Audio Driver - звуковые драйверы Realtek
 ```bash
 magnet:?xt=urn:btih:A97E59388CD3F6AEC9DE098BEF01FEDF08B5D2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4485ED523DAD88B472F05309A20A94542689B9EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Microsoft Office for Mac 2016 v15.30.0 VL [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:333AC44DE3BBACAA19267EC584359F8A1058A2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Windows 10 (x86/x64) 12in1 + LTSB +/- Office 2016 by SmokieBlahBlah 12.01.17 [Ru
 ```bash
 magnet:?xt=urn:btih:769692B571F5C78874F935082F36C6831ED80538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ ProShow Producer – новая версия приложения для соз�
 ```bash
 magnet:?xt=urn:btih:C07D52FDF17D06C47A9022B199376A0765880891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886
 ```bash
 magnet:?xt=urn:btih:89595982E54E48806D748F2F23DC44E158418F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

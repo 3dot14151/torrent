@@ -28,8 +28,7 @@ Centvrion - Non Plus Ultra (2002) [APE|Lossless]<Heavy Metal / Power Metal / Thr
 ```bash
 magnet:?xt=urn:btih:00560702391607522FBA723525ABB8D22631BCD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Adam Eckersley Band - The First Album (2014) [MP3|320 кб/с]<Southern Rock>
 ```bash
 magnet:?xt=urn:btih:D71D3934944E6FC2EEC3861184B9510EDE1C0287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Zeugen Der Leere - Seelenwanderer (2014) [MP3|320 кб/с]<Atmospheric Black Met
 ```bash
 magnet:?xt=urn:btih:EA0ECF9A3A20AF006FF529D0F2F5F5487D7C2A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Imagika - My Bloodied Wings (2006) [FLAC|Lossless]<Thrash/Power Metal>
 ```bash
 magnet:?xt=urn:btih:2BC7833AF10DC22C2607480C15A49F4C17F0165B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Written-By – Bell, B. Niforos(   Читать дальше...   )Жанр: Roc
 ```bash
 magnet:?xt=urn:btih:0E458B942090D660DDB6DC3AF38246E48BF66ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Freehand - Reneways (2001) [FLAC|Lossless]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:0C5515904EA87A9FAE1236A9C5106BC975455890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Stream of Passion - A War Of Our Own (2014) [MP3|320 кб/с]<Gothic Metal, Prog
 ```bash
 magnet:?xt=urn:btih:2075F876B9D5C72A5039120EC02C46CC7DAD4989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Smokie - Smokie (2000) [WavPack|Lossless|.iso.wv]<Soft Rock>
 ```bash
 magnet:?xt=urn:btih:C95010E75C8F912BE8143B1873A36B3344295217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Rave The Reqviem - Rave The Reqviem (2014) [MP3|320 кб/с]<Industrial Metal , 
 ```bash
 magnet:?xt=urn:btih:91117C23D6D22979EFCB9DDD270F64DA1238198F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ Milk and Honey — студийный альбом Джона Леннона и 
 ```bash
 magnet:?xt=urn:btih:EAD02FC33EDD369B20BB038BF7FEEB8D8F169AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

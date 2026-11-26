@@ -19,8 +19,7 @@ Commandos 2: HD Remaster - это обновлённая версия культ
 ```bash
 magnet:?xt=urn:btih:A2831FD59C85E792CE1A92F8AF8950FD4849B389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

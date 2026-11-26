@@ -19,8 +19,7 @@ Haunted Hotel 5: Eclipse Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:B555AC5EE95F0AE5B4D322D78243EF91D93380C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Questerium: Sinister Trinity / Квестериум: Зловещая Троиц
 ```bash
 magnet:?xt=urn:btih:7F9882C2066E4CDC3FC3306B3F0E7C43CD2C9770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Teleglitch: Die More Edition — это захватывающий roguelike-ш�
 ```bash
 magnet:?xt=urn:btih:5B7C131C5421E4346F461B09EAC3E4CD35073B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Glare (2013) [En] (4.2.1.11687) RePack z10yded
 ```bash
 magnet:?xt=urn:btih:CBA9C0DCD9FB47397E5C8B0FCA2340EB3253A89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Into the Dark - смесь Action и RPG. Добро пожаловать в к�
 ```bash
 magnet:?xt=urn:btih:C8516AFA169338269B601C0404061BF7B898E04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Of Orcs and Men (2012) [Ru/Multi] (1.0.0.2) License PROPHET
 ```bash
 magnet:?xt=urn:btih:07FED97BC91038EA332D63BEDE9CDE9F9F4E6336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Glare (2013) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:85DD28B7767CCFDC041C6217E7DB455B34F2D213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Burnout Paradise: The Ultimate Box (2009) [Ru/Multi] (1.1.0.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:08581939952D086D56A4E4D721157FF6E04FB3B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Dungeon Siege III/3 (2011) [Ru/Multi] (1.0  upd1/5dlc) License PROPHET [Collecti
 ```bash
 magnet:?xt=urn:btih:87B44B346862C6C95D938CDF8C3593F890D6E295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

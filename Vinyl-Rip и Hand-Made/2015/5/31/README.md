@@ -22,8 +22,7 @@ A4. Когда Я Знал Тебя Совсем Другой (2:36)(   Чита
 ```bash
 magnet:?xt=urn:btih:725EDD029D27E6E94E374D7E78A1D94FA65E9932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

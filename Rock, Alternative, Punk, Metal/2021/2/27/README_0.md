@@ -22,8 +22,7 @@ Saga - Images at Twilight (1979) Reissue, 1984, Polydor [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:45F2E39E9F717BFBBC6528D7FFCC41CBA202ED93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sonus Umbra - A Sky Full Of Ghosts (2020) [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:7CC22C5499E85630486AD29CC53A6C76C79DDD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Journey - Trial by Fire (1996) Japan [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:5E3BF57EC16A5DE4F550FB1210A7A1F0E6A5A251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Steve Lukather (ex. Toto) - I Found The Sun Again (2021) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:2864FCC80F5C2320F7A6496BF52FBFBB437A239E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Grand Design- шведская мелодик-рок группа, ориент�
 ```bash
 magnet:?xt=urn:btih:8ABA0E50A8EA07FC19E5C7D14058BFBA0C79814E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ E.S.T. - Electro Shock Therapy (1989) Reissue, Remastered, Special Edition, 2021
 ```bash
 magnet:?xt=urn:btih:44BDB8748E89F37C1FFBC52202FA82707A8A7A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Chris Norman - Baby I Miss You (2021) Remastered, Compilation [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:69F5667BE33788C8162AE98B87CCFA985E7C2550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:14C08C1CB2B42A6A9C1D6E20DB34429E7693D9B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Rival Sons - Feral Roots (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Blues R
 ```bash
 magnet:?xt=urn:btih:634AC2C8F48CD56BAD3877CB81848F46EA9857C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Alkonost - Ведомые ветром (2021) [FLAC|Lossless|tracks + .cue] <Fol
 ```bash
 magnet:?xt=urn:btih:581274E1BE608DF79203D0A44751426A5C1E55BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Oliva - Raise the Curtain (2013) Limited Edition Digipak [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:4839E4FA26A53CC6C160A5A257430434C5D51BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Powerhouse - Powerhouse (1986) [FLAC|Lossless|image + .cue] <Hard Rock, Classic 
 ```bash
 magnet:?xt=urn:btih:F3AAB5B8F6F44F0998E901EB1943684D9A932B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Vas' - Быстрее послушать (2021) [MP3|320 Kbps] <Indie-Rock / Pop
 ```bash
 magnet:?xt=urn:btih:EFAC63003370DCC3DBC7B91B481C7AE1555946C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Michael Morales - Thump (1991) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:B7E526784329DE57CCB29D60CAED06657E8873CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Thergothon - Stream From The Heavens (1994) Reissue, 2009, Peaceville [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:E77BB49597D7592F087BA6E440F302F17D29635D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

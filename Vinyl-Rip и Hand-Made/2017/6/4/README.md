@@ -22,8 +22,7 @@ Opus - Live Is Life (1984) [WavPack 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Roc
 ```bash
 magnet:?xt=urn:btih:0720118287D941012CCD4F6C930099B66F4C1C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Aphex Twin - London 03.06.17 (2017) Warp Records [FLAC|48/24|Lossless|tracks] <I
 ```bash
 magnet:?xt=urn:btih:13CC4366AA3FAE3DEDC2495DB02AAB0255467659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

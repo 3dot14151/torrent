@@ -22,8 +22,7 @@ VA - The Great Singers Of The Jazz/Големите Вокалисти На Дж
 ```bash
 magnet:?xt=urn:btih:A1E98D6DAB0D5FE1BA5F019FD1F8D46D7635B033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

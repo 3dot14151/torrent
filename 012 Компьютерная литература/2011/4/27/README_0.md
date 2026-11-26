@@ -21,8 +21,7 @@ Microsoft Excel – одна из самых загадочных и интер�
 ```bash
 magnet:?xt=urn:btih:BD2D9B7B2750603944D5EDDB09852FC790DEDD25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

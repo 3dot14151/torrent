@@ -20,8 +20,7 @@ Driver 76 является первой игрой данной серии, на
 ```bash
 magnet:?xt=urn:btih:2FFAFC146CEC93E8731BB6D27810A493143CCDEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Call Of Juarez: The Cartel / Call Of Juarez: Картель [Ru/Multi9] (L) 2011
 ```bash
 magnet:?xt=urn:btih:51B64A868E1A5DB7A9E9A2C7F7970937A79B9DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE388488E84B6BF769630CC32452A8555629BD93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ VA - Maxi DJ Dance (New Dance Collection) Vol.0001-0100 (2007-2009) [MP3|~237 kb
 ```bash
 magnet:?xt=urn:btih:3447E38ED5F3CBE76C74050EBE8086111BF830E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Deus Ex: Human Revolution - третья часть популярного РП�
 ```bash
 magnet:?xt=urn:btih:CD8B396D613722C382386B8E8008B1BB6769D49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Moby - Дискография (1992-2011) [MP3|320 kbps]<Electronic/Downtempo/Te
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

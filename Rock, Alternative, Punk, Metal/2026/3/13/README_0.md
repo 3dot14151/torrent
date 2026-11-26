@@ -19,8 +19,7 @@ Sabaton - Yamato (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:F32756551A044ADA55DDFF701C3EE1D728D3A684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Wolverine - Anomalies (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 ```bash
 magnet:?xt=urn:btih:99B8B73FBF84A941AE1626CE4FBE5D49D7C5AAED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Subcutaneous Exsanguination - Eradication Fascination (2026) [FLAC 24/44.1|Lossl
 ```bash
 magnet:?xt=urn:btih:61B41BBD0C1604BD45D6EDE25CF355E0DAD29879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Babooshka - 7 Albums (2019-2025) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:B425B74C52FF6488A46CEA593AD2F80293B52BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:834E519BB8A216B6EEA797B11586BE127BDAC26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0307EC270993441428E25F539F2BA2BD1484CD63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Asia - Live In England (2026) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progre
 ```bash
 magnet:?xt=urn:btih:06C03B18F3653178620FF7ED377C7ACE6F50F6C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Unheilig - Liebe Glaube Monster (2026) [MP3|320 Kbps] <Industrial Gothic Metal, 
 ```bash
 magnet:?xt=urn:btih:16ACC04733DAD3145F86688370A7705CE1A5ECAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Unheilig - Liebe Glaube Monster (2026) [FLAC|Lossless|WEB-DL|tracks] <Industrial
 ```bash
 magnet:?xt=urn:btih:B085642353524C12EAA402156B5BAE1EF4963AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Zero People - Всё, что после (2026) [FLAC 24/48|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:6654FF78FA7510023476771E10717034F465239A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ The Gems - Year Of The Snake (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:8F179A581977017EFD1F15CEFFAD71603300C2CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

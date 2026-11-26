@@ -21,8 +21,7 @@ Marianas Rest - Marianas Rest (Demo) (2014) [FLAC|Lossless|WEB-DL|tracks] <Melod
 ```bash
 magnet:?xt=urn:btih:F2F9ADD864184E7CCD12BEF4C5B89FC11EFD79BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Thunderstick - Something Wicked This Way Comes (2017) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:613C003001977EEAFA2376EDB479C4CA160F80F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ KAUAN - Pirut Live (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmospheric 
 ```bash
 magnet:?xt=urn:btih:970C54112EC9217E49FE07EC0C1C488A04015180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Greg Puciato - Mirrorcell (2022) [MP3|320 Kbps] <Mathcore, Grunge, Sludge, Indus
 ```bash
 magnet:?xt=urn:btih:F3ADA1D4D28F0F44147B6EEAD7EB9E926B59F566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Storm Resistant - Storm Resistant (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:E6996AEBA848B757547A39BD8B8435E8E789840E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:9B3F5ED365CE2CAABB739DCA222B3815BEF925C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Eric Clapton - Nothing But the Blues (Live at the Fillmore, San Francisco, 1994)
 ```bash
 magnet:?xt=urn:btih:1985E8A3E14AC9A78066C367B3DB98A49FBB8667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Ozzy Osbourne - Patient Number 9 (2022) Single [FLAC 2.0|44/24|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:EF4364C214E581A3D4C92E6BDB1B12E833DFCBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sea of Lies 4: Tide of Treachery / Море лжи 4: Волны предате�
 ```bash
 magnet:?xt=urn:btih:0E507CFC9688A22973468D44849D0528C791E6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Christmas Stories 6: A Little Prince Collector's Edition / Рождествен�
 ```bash
 magnet:?xt=urn:btih:562054A090FD06A56CBB06D0864D2C45CFDFF335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Secret Government — игра в жанре глобальной стратег
 ```bash
 magnet:?xt=urn:btih:80C823C4A6610BD4A6AF16C014CB08B4700F812E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

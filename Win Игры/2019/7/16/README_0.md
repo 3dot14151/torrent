@@ -19,8 +19,7 @@ Where The Water Tastes Like Wine — приключенческая игра с 
 ```bash
 magnet:?xt=urn:btih:9D854D51880F47194089F7437B01EBF5A0A0BCB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

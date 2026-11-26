@@ -19,8 +19,7 @@ Node Video - один из самых мощных видеоредакторо�
 ```bash
 magnet:?xt=urn:btih:EB586C1E0A51CD616E0CC06CFE438F31C4E781B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PDF Extra - универсальное приложение, что обеспе
 ```bash
 magnet:?xt=urn:btih:28B3BED426F22EDFC2FA2F36A52C5155C335593B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dynamic Island - dynamicSpot - приложение, что предоставл
 ```bash
 magnet:?xt=urn:btih:54CB997E8012EF68DB9417027D166771B28DE08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PDF Extra - универсальное приложение, что обеспе
 ```bash
 magnet:?xt=urn:btih:F10C022AF4A1F3D0931486F983CDF6A182E827B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ CamScanner - Мощное приложение для сканирования. 
 ```bash
 magnet:?xt=urn:btih:95545514E93CDD5D941E801C38346EB82D94E2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ CCleaner Pro - один из самых известных и популярны
 ```bash
 magnet:?xt=urn:btih:5A45F02A0DBC06BF8DE341F5D5502A8FB5B69353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

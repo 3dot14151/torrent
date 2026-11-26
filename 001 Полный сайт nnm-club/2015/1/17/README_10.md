@@ -28,8 +28,7 @@ Dave Forestfield - Loyal Till the Bitter End (2015) [MP3|320 кб/с]<Country Ro
 ```bash
 magnet:?xt=urn:btih:86C55309CB3D87CE5CD0871FA531C8061B1423D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Medkit - Saddan (2015) [FLAC|Lossless|WEB-DL]<IDM>
 ```bash
 magnet:?xt=urn:btih:FF2104F4C2838C21300B4657B98C8ADAE4C627AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ John Lewis - Evolution (2014) [FLAC|Lossless]<Jazz, Bop, Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:905B17D6B383AD20D4785DAE9FC079CC27B22305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ An Army Of Squirrels - Pirates Vs. Temperature (2011) [MP3|320 кб/с]<Alternat
 ```bash
 magnet:?xt=urn:btih:53175A54279F4A965BFD1049962ADB13B6373688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D6BB923CB8059DE387A2AC7AD0C56257C86C87A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ La Menade - Disumanamente (2014) [MP3|320 кб/с]<Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:461BC332FFF958C37DCAB7E32149C3B74B2C9932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Nangilima - The Dark Matter (2014) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:E9F0AD7A3DBC6316E5DA62BD9673C68DC19E850A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ In Tenebriz - Autumn Constellation (2015) [MP3|320 кб/с]<Dark Metal>
 ```bash
 magnet:?xt=urn:btih:5DE3F4799FC2B880D8ED19F08E294C65D2F62FEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB3895A10EF113E4CECDC46028154A923114655D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFAF1636FBD9395AB987A2CAAC1BA2A4F86F062F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ Cynthia Felton - Come Sunday: The Music of Duke Ellington (2010) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:AF270EFF9DA0ED7C2BE6B8E4429FA6C5E4447B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ Elitania - Templos De Cristal (2015) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:9F988BCF033134768E70407911F8C99AAB7D801A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ Reuben Wilson - Boogaloo To The Beastie Boys (2004) [FLAC|Lossless]<Jazz, Jazz F
 ```bash
 magnet:?xt=urn:btih:AA428523C8917BECB62D413209B0F995C4FAD906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ Ich + Ich - The Best (2004 - 2009) [MP3|320 кб/с]<German Pop>
 ```bash
 magnet:?xt=urn:btih:B846735B666CCACF45297104DA276E21B599CE92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +464,7 @@ Thunderfuck And The Deadly Romantics - Sexploitation (2014) [MP3|320 кб/с]<Ha
 ```bash
 magnet:?xt=urn:btih:358E6915ACFE62AED17058BBA5AB8702D2F04883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DF482E36733E543D9BE31E507259323519199F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +523,7 @@ VA - Creative Music Box 24 (2015) [MP3|320 кб/с]<Dubstep, Glitch Hop, Trapste
 ```bash
 magnet:?xt=urn:btih:66E120C60BE0122202EBF4D0034E402FE9748B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +557,7 @@ Cody Jinks - Adobe Sessions (2015) [MP3|320 кб/с]<Country Rock, Americana>
 ```bash
 magnet:?xt=urn:btih:5C8FCA5AEBDC8B981EE78B516D912DDFD3E9A582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +591,7 @@ VA - Evening Relaxation Vol 1 (2015) [MP3|320 кб/с]<Lounge, Easy Listening, J
 ```bash
 magnet:?xt=urn:btih:0891CEFBBD07F2A07F876EF3096631332B0EBA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A539917025DF29392A7E5B1F2F608453D2A00340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBDE94FBD70C5F209481E361B2A35499FB63A17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D40852240AA8E7639BBCC765F7CC5E0AFE42A57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5AB355A704C7D021D0F1F4B320D6B707BE63536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F115E81A369975A3C4702C129E94C781979F327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5D33893F7693575EE126CA0BBAD037B5AADC43B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABF1E8B43ADE2856F74CFE94BFF858AAAF3770FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

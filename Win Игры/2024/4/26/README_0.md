@@ -19,8 +19,7 @@ Harmony: The Fall of Reverie - это увлекательная приключ�
 ```bash
 magnet:?xt=urn:btih:166DE722C29E64F813223D88AD5345054D90E69D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.35) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7B32D7C6AC7C77154D040BA8CDCAA9A86382B96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Remnant 2 - это атмосферная и брутальная комбина
 ```bash
 magnet:?xt=urn:btih:4CDBEE4D0213209DC4B5F97AB39C1F89230FB80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Yes, Your Grace (2020) [Ru/Multi] (1.0.20) License GOG
 ```bash
 magnet:?xt=urn:btih:BB25D3969CA5B76F56D521E8459C2C78BD31538B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sons of Valhalla - приключенческий сайд-скроллер с �
 ```bash
 magnet:?xt=urn:btih:E052A47EB3FC9EFE97ADC3B43E8CC7BE47EB64C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Pepper Grinder - это ураганная двухмерная адвенчур
 ```bash
 magnet:?xt=urn:btih:EDB333FD31E1C6FB20F21832524827C941810397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ This is a Ghost (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:331BA7B2B1C3662D5032C8E1889A9673575EF26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Royal Order - это вселенная, пропитанная интригам
 ```bash
 magnet:?xt=urn:btih:E404C31787568E0935C5FCD6549AE3E10D24E140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Gensokyo Odyssey (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F0273A3C6DF7EB017A667C0741B0E33C01CF491E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

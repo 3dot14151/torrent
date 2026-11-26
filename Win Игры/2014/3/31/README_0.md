@@ -20,8 +20,7 @@ Tales from Space: Mutant Blobs Attack (2012) [Multi] (1.0) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:00C40B4E1641FC76215C05F3D128901BEA918DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Mercenary Kings - убойный 2D экшен-платформер в стил�
 ```bash
 magnet:?xt=urn:btih:0D3EBFBBE0F00C3334CE5133144DE68B0CE1985C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Spore (2008) [Ru/Multi] (1.2.0.2818) SteamRip R.G. Origins [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:5BF99C6565B03C2950A4A6DA0AEBB63369F74E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

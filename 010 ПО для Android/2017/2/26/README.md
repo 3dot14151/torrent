@@ -19,8 +19,7 @@ Root Essentials Premium 2.4.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:7180B8DCDA7DC2A8E0066B3205C36569DF9A90A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

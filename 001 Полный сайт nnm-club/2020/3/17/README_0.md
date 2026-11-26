@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:912CBDF09E68DCFE25CF3B733F468F4DF693309D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ John Scofield - That's What I Say: John Scofield Plays the Music of Ray Charles 
 ```bash
 magnet:?xt=urn:btih:598BAD4F3F18FAC6195E05B9A75AEADAC7485B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Tropic Beach: Free Chill Mix (2020) [MP3|320 Kbps] <Chillout, Lounge, Downt
 ```bash
 magnet:?xt=urn:btih:72238DBD8A5D6BA6A564714238B29B6799C8520B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADC509C68527CCD307C8F89B509A14B4E545A62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Kiwi for Gmail единственное в своем роде приложен�
 ```bash
 magnet:?xt=urn:btih:95B7649DF4E587C05B698107382BBF1785DF1FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:8CA311AD9C1F4625866AE4A891C69F3794A33B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Progressive Downloader — теперь уже платный менеджер �
 ```bash
 magnet:?xt=urn:btih:85E4BF3B1C4CFC153811218C555673D273D7C1CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:3F42A065C1170A1CB822AD10B99423BD97BCAA65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Ethir Anduin - Pathway To Eternity. The Agony (2020) [MP3|320 Kbps] <Black, Doom
 ```bash
 magnet:?xt=urn:btih:EA44CD483C3A1B27424DA7AA900AC1A395ADF248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Kreator - London Apocalypticon - Live at the Roundhouse (2020) 3CD [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:8A0B7E3F22FB5421CE80ADDF847B362401014332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ The Hot Sardines - The Hot Sardines (2014) [FLAC|Lossless|tracks + .cue] <Modern
 ```bash
 magnet:?xt=urn:btih:AC52DF448736106393797D83C06F36D43FE99D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:C7B3C17C27E4CC35FEF48DB292BCC4198DEC3A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ InstaCal - это доступное и в то же время мощное п�
 ```bash
 magnet:?xt=urn:btih:9A906E1079139616BA359BB51251343EE463655F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFA89DDD3A91B37E824948113525C3FBE5BE349F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29907E441613CA0D0235917DC45FB9B76337FF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ iFlicks — это метаданные к сериалам и фильмам. �
 ```bash
 magnet:?xt=urn:btih:2C0919968D6E3F2A64C7F806361EC2C6DA8CFC67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ AudioTool - Изменяйте свою любимую музыку, или со
 ```bash
 magnet:?xt=urn:btih:22D9724043E3F0F8BB16754458ED2A508BBAEC9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:E22343EFD50640FA2FBA479C5D64780814ABA1EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ Affinity Publisher 1.8.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0A410E28F6280791CA7B149097898374ED59E564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Czarface - The Odd Czar Against Us (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop
 ```bash
 magnet:?xt=urn:btih:7235EB08FB8ABC3CBA3EF9AEA7CDCD58C418FFD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Kreator - London Apocalypticon - Live At The Roundhouse (2020) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:A4884F8A2707E9C275A9903084701F4C5177AD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ DJ Khaled - Father Of Asahd (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:636E448B5EB1D25A8E76E7D4E575794383206C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ VA - Reggae On The Roof: Miami Carnival (2020) [MP3|320 Kbps] <Reggae, Dancehall
 ```bash
 magnet:?xt=urn:btih:F099501B9262F5645B3CB0819EFE9953028CC0D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ Ultra Mood - Red Sea (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:4C1E17472412CAED174DB780DEC886F25B875664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Tropical Bleyage - 4 You (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ```bash
 magnet:?xt=urn:btih:BA93DB19D65B13999B02AB5B640F99FB7539736C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52D58BC7C34F25EE82E4322E00E75B131B618ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

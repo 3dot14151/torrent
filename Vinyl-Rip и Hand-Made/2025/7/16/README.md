@@ -22,8 +22,7 @@ A4 Crippling Velocity(   Читать дальше...   )Жанр: Thrash Metal,
 ```bash
 magnet:?xt=urn:btih:E097900CB91043353303081A85BAE03A83BE440E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Envenomed(   Читать дальше...   )Жанр: Thrash Metal, Groove M
 ```bash
 magnet:?xt=urn:btih:FA0608FF6CEAC3A72EB22CF08885A60A7D7F8CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

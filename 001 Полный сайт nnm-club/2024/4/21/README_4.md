@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B6218D56703F9BFA79DE337F3FFAA128F7E0FE11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBB2E077F07130C5852CA56CEA1ACF791A09BCE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 ```bash
 magnet:?xt=urn:btih:233B3A7654F30F35A5E65501BBD27524BB4640DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sex Pistols - The Filth & The Fury (Original Motion Picture Soundtrack) (2024) [
 ```bash
 magnet:?xt=urn:btih:EF1F727DD49BF37A7A9AE521301E368154076C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Duolingo: изучай языки 5.147.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5B2855613D9A4EFAF3FAE355C147FC216A03C4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 She's Gone(   Читать дальше...   )Жанр: Hard RockПродол
 ```bash
 magnet:?xt=urn:btih:C149B190D6B9D54DA288DE1BD2C35A3F3722E8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Last Knight, это бесконечное соревнование, прыжк�
 ```bash
 magnet:?xt=urn:btih:A81AB61BBCEEBE08510B2453CA5BB65433E02232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ DTM Experience (2013) [En] (Demo 1.0) License
 ```bash
 magnet:?xt=urn:btih:366651346C7620C0511471FB4FE6FD28E8B21E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ BioShock 2 Десять лет — изрядный период даже для
 ```bash
 magnet:?xt=urn:btih:89E13127142DCC9A54A57D984B28247F4A113486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

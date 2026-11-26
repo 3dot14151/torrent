@@ -22,8 +22,7 @@ Ufomammut - Fenice (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Sludge, Sto
 ```bash
 magnet:?xt=urn:btih:298EB6B9E466655752C9B113D3CFCB333E6E3FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Outlaw Saint - Persistence Pays Off (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 ```bash
 magnet:?xt=urn:btih:5EA561D3012A2DA2702C17640A94964C6857C770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Evergrey - A Heartless Portrait (The Orphean Testament) (2022) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:196949C0F63F1ED53501A10FE585415DC378CCDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Zero Hour - Agenda 21 (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:2EE1C07BB07AA27E5C9E608F17D28215E95A5E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ J.B.O. (James Blast Orchester) - Planet Pink (2022) [FLAC 2.0|44/24|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:FC8DB0F302B803C16F41AD7D1665EC81C4CDE652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Skills - Different Worlds (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1B1DAAB65EF7446600291883D63C3C9275845768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Visions Of Atlantis - Pirates (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Symphonic
 ```bash
 magnet:?xt=urn:btih:4F3E5322C0E9DCE60692ADC096EBD5CE0B2D11EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Evergrey - A Heartless Portrait (The Orphean Testament) (2022) [MP3|320 kbps] <P
 ```bash
 magnet:?xt=urn:btih:DB7E059811262C04EAC315EA69C840C6B78B8516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Poets of the Fall - 41 Release (2004-2022) [MP3|320 Kbps] <Alternative rock, Sof
 ```bash
 magnet:?xt=urn:btih:853A9378805400EE54ED6CFFA3A45EF0B6CABC60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

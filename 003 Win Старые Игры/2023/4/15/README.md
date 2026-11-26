@@ -19,8 +19,7 @@ Hard to Be a God – ролевое приключение в стиле нау�
 ```bash
 magnet:?xt=urn:btih:A91E3E5576ADAFDD0D2210462E0F325B0503A067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

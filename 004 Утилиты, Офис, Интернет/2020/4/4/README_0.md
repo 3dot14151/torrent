@@ -19,8 +19,7 @@ PDF Anti-Copy - программа для защиты содержимого PD
 ```bash
 magnet:?xt=urn:btih:4C0EFD4FEA92D9028DC75C4507BCE6214AF74FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wondershare AllMyTube - это быстрый и легкий загрузчик
 ```bash
 magnet:?xt=urn:btih:C1CB0D092FB2F123A9BD61601453490CE321E44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ oMega не просто поддерживает все стандартные �
 ```bash
 magnet:?xt=urn:btih:57019EB3F4C27D4A953573C5E559704E82D890ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

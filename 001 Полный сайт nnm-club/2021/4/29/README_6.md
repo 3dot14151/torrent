@@ -19,8 +19,7 @@ EagleFiler позволяет создавать, (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:793DDD291F8F0ECA76674C3EEBBF75DFA4909CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Dizzy Gillespie - The Symphony Sessions (1989) ProJazz [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:546A158B059C4E32EA3FA34D57A216FC27265FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F1E13AF626ABA917352F2C5CFF3218789865BBEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Reflect Studio - новый фото редактор от создателей 
 ```bash
 magnet:?xt=urn:btih:EE71FA94C5FF742A5202027CB8F853489D5419B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:9FC8DB6B4C339344AF644270B5486BDC4D3659DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Debookee - анализатор сетевого трафика, с возмож
 ```bash
 magnet:?xt=urn:btih:40E950502A94FB57E6CC48ECDB53519863F3D13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Dizzy Gillespie - The Champ (1952) 2003,  Savoy Jazz [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:764C9968F95B7E5B40DE625200FB322D32310838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Lankester Merrin - Upon the Forgotten (2021) [MP3|320 Kbps] <Heavy Metal, Female
 ```bash
 magnet:?xt=urn:btih:1481359C47479B4976214E7548F1A954220D147D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Exhibeo 2 - Создайте великолепные HTML5 презентаци
 ```bash
 magnet:?xt=urn:btih:35E1A736679E491FFA957E48E77DDEF1360ABC75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ LensFlare Studio - отличный инструмент для фотограф
 ```bash
 magnet:?xt=urn:btih:E92E75306F15B34ED708ED9FAA3237A137BEE205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ We Are Space Horses - Apologia (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych
 ```bash
 magnet:?xt=urn:btih:F09C24E0C388F4D8FAEEEB528A18334963D53565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Euphoriall - Dasos (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BB4720B53313F6E5ED68D23C1F0AD249B6ACE698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

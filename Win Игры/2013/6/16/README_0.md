@@ -19,8 +19,7 @@ Magrunner: Dark Pulse (2013) [Ru/Multi] (1.0.8767.0 b252768) Steam-Rip R.G. Game
 ```bash
 magnet:?xt=urn:btih:A5C711CDE86CF9FF336D0DFB87010DF1AE2E5996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Blades of Time / Клинки Времени (2012) [Ru/Multi] (1.6 / 3 DLC) Rep
 ```bash
 magnet:?xt=urn:btih:F26C2BE966E2481C3019D54F8BCE65AB8FB5DB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

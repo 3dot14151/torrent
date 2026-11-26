@@ -22,8 +22,7 @@ Reckless Manslaughter - Caverns Of Perdition (2019) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:E8CC3F932B50B69E2F25523D4068278CCDA486A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Reignstorm - Tomorrow's Past (2009) [FLAC|Lossless|image + .cue] <Progressive Me
 ```bash
 magnet:?xt=urn:btih:39B9852469026372C33AD0143C396344351C4BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Peshmerga - Murderous Acts of Cruelty (2010) [FLAC|Lossless|image + .cue] <Bruta
 ```bash
 magnet:?xt=urn:btih:5F830221B3631B20A3F3AEAB00BC7E0D2C1A12EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dragon - Horde of Gog + Horda Goga (1989+1990) Remastered, 2008 [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:D825EFF2F2A7D66C966011886507D1FA993C93A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Revenge - From Hell (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8C23916C2EE3490218FA601909C2DD7CBDA9EDE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ For All We Know - For All We Know (2011) [FLAC|Lossless|image + .cue] <Melodic P
 ```bash
 magnet:?xt=urn:btih:1376DEBAAA02B61D98809D0656E74BC5D163BD7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Hartmann - Home (2007) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:05EADAD96868A0269E9A6F04A687A129B995E17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ For All We Know - Take Me Home (2017) [FLAC|Lossless|image + .cue] <Melodic Prog
 ```bash
 magnet:?xt=urn:btih:18901ACDFAA8B104B0BB66AD7D9CD6F4F8259CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Searing Meadow - Corroding From Inside (2005) [WavPack|Lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:5C37002860EB3FF85F38CB51EB17715EFB244A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Stravaganzza - Su Historia (2009) 4CD [FLAC|Lossless|image + .cue] <Symphonic Me
 ```bash
 magnet:?xt=urn:btih:32FEAB1BA7367CE7EF12096F946077354757EF29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Dysrhythmia - Test of Submission (2012) [FLAC|Lossless|image + .cue] <Instrument
 ```bash
 magnet:?xt=urn:btih:A47C4EEDD11FEBCA23386C208F879E64CE1EFD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Moray Eel - Psycho:Delusion (2005) [WavPack|Lossless|image + .cue] <Death Metal,
 ```bash
 magnet:?xt=urn:btih:DBD91E867ED1661FD0AE7A366E022FF69DEDD43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Night Verses - Into The Vanishing Light (2016) [FLAC|Lossless|image + .cue] <Exp
 ```bash
 magnet:?xt=urn:btih:27B77FBF2447361E5546ADB5AB3C1E179FCDB8F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Peer Gunt - Years On The Road (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E8656CBB141E304540F6D247EAFF4399E3388D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Fit for an Autopsy - The Sea of Tragic Beasts (2019) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:5E823D20942C0A71655A07AF7D8140ED1EBC5AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Moray Eel - Priest Hunter (2006) [WavPack|Lossless|image + .cue] <Death Metal, T
 ```bash
 magnet:?xt=urn:btih:54642E51879B631216E2DEB7B4B4B3D42642B2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Vision Divine - When All the Heroes Are Dead (2019) [MP3|320 Kbps] <Melodic Powe
 ```bash
 magnet:?xt=urn:btih:74B43A956E4DEA0F48AE8BD3FC7994029CFD1104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Editors - Black Gold (2019) Compilation 2CD [FLAC|Lossless|tracks + .cue] <Indie
 ```bash
 magnet:?xt=urn:btih:C7C400A4B3C064FF05924D2E757652C55EA787EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Blacktop Mojo - Under the Sun (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E5C7DD2B847E055BACC1AC23DE386627CBDEE66C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Edenbridge - Dynamind (2019) [MP3|320 Kbps] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:0827B0C0EDF0AB65F4C17F83B7C8F094F4D183C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Art Nation - Transition (2019) [MP3|320 Kbps] <Melodic Modern Metal>
 ```bash
 magnet:?xt=urn:btih:1A47733748CB821D7C3486335BC73568A8034374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ Saint Asonia - Flawed Design (2019) [MP3|320 Kbps] <Alternative Metal, Modern Ro
 ```bash
 magnet:?xt=urn:btih:3918729C4727F4C60D87E1CAE739DB776A34E1E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:602115E4B7263D11FE6C20085D822599C1D30EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Signs Of Chilling Liberty (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:D61093D867189CDB8560A285250EA833860EC919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Svart Crown - Abreaction (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:2D821A1E24EC674C7BEEF600C7C292E73B997FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Alice Babs - There's Something About Me (1993) Bluebell [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:D5FF1D9078649B04CE5713458303B48186E0A3EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Sensual Beach Lounge Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:200C3706971B013B4B2ECA46140889932956D441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Weekend Uplifting (2017) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:A5C100196B1FC1DB8A585D30A2EA1301703D94D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Alice Babs - Joddlarflickan: 24 Originalinspelningar 1939-1951 (1994) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:0F1F631CD98C47EEE81F150D4BE2CC71949BA4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Resurgency - No Worlds... nor Gods Beyond (2017) [FLAC|Lossless|image + .cue] <O
 ```bash
 magnet:?xt=urn:btih:3D3A9EF8BDBDCC6D41E0698F106AF31443A9E992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Nothing But... Trance Anthems Vol.9 (2017) [MP3|320 Kbps] <Trance, Upliftin
 ```bash
 magnet:?xt=urn:btih:378EE81C5364A7F57B87008AB1311A5792C3667F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C3BCE33AAD95B5B9905B55FAF0901C039CF76E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Alice Babs - Early Recordings 1939-1949 (2005) Vax Records [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:E16C4FC52EC1465207B822802782F8F780A7A02E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Venenum - Trance of Death (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:FFA2F23B835613D9072FC249F572853B423E1DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Alice Babs - Far Away Star (1973 - 1976) Bluebell [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:27981A7CA625F63CE0E76E37AD8D5EC74F4DFFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Progressive Hits: May (2017) [MP3|320 Kbps] <Progressive House,House>
 ```bash
 magnet:?xt=urn:btih:9660A4F8EE143C94CB3BDD0BDB9402CEF59B9030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Trance Hits Top 20: 2017-05 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance
 ```bash
 magnet:?xt=urn:btih:DEC4B97FA42F2B98EEDC5E441DC6CABDD2119802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Deep-House Aloha Vol.1: 20 Summer Smoothies (2017) [MP3|320 Kbps] <Funky, C
 ```bash
 magnet:?xt=urn:btih:0AF4FEC7A106674072573F489D9C5C5798E7D8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Rude - Remnants... (2017) [FLAC|Lossless|image + .cue] <Ols School Death Metal>
 ```bash
 magnet:?xt=urn:btih:04F3591A2F1DA778A010D89E6B36CF00E79E27F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Azarath - In Extremis (2017) [FLAC|Lossless|image + .cue] <Death Metal, Black Me
 ```bash
 magnet:?xt=urn:btih:8C3F3A61C68BC0F030BB43407CC0FF7AA48EA71D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:E36410CD1B5493E9CD6BABAB3FE997773A14C551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Bassic - Biochrome (2017) [MP3|320 Kbps] <Ambient, Chillout, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:78BC386FCA0020A4A509C8A55D3D1C3BDD5CB2E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ VA - Ibiza Summer 2017: Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:283E597EAEE2131E8791085C595E562C3430FC32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ VA - Poolside Miami 2017 (Mixed by Tobtok) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:A9F46B7EC8AB55292AD1874FAA35A7B21CFB962C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13D7BB650F59A5A3094C1D0EBA5476B643D07F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ VA - Chill Luxury Del Mar - Beach Spa Resort Boutique Lounge Relaxation (2017) [
 ```bash
 magnet:?xt=urn:btih:D222EB708B55F99FAF7AF369C58FBEDE945D53E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ Iron Fate - Cast In Iron (2010) [FLAC|Lossless|image + .cue] <Power Metal, Thras
 ```bash
 magnet:?xt=urn:btih:3601E978053B944EB20E1E5F0DDD516BED9C009A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D6F71005B3D52EA19E1CA75D86C4199329AE6FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

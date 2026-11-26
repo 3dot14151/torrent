@@ -19,8 +19,7 @@ FIFA 20 - это спортивный симулятор футбола от Ele
 ```bash
 magnet:?xt=urn:btih:15D4C96F0F6D90C8F84F4229D93F322D3A11E059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SPARTA 2035 (2025) [Ru] (1.1.0(29)/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:1AB8419115AF4B5D2656A52DFB0C2B70BCF1B135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HYKE: Northern Light(s) (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:70F76BEE8BC96CD841B5054942C90542DD35E617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wreckfest (2018) [Ru/Multi] (Build 16986367/dlc) Repack Other s [Complete Editio
 ```bash
 magnet:?xt=urn:btih:47CB0DA7D6AE76F0BB87CAF42B32A1817307666B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Machinika Museum (2021) [Ru/Multi] (1.22051101) License GOG
 ```bash
 magnet:?xt=urn:btih:448167CACE4EFD7258CC0755AC9A25A7D79201CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dread Templar - динамичный шутер от первого лица, с
 ```bash
 magnet:?xt=urn:btih:43E15AD6B06E8721AB3BA1D43918DA20ED67C566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F86766D85D2A2A5BCFCBC2B0ED8DD95EC766C479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Homefront (2011) [Ru/Multi] (1.5.500001.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3D2ED90D7E2A8CDD4D26F278A0365BC3E9D289AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (rc2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:9141B31944885233CE72E278923E39C743B06681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Rise Eterna II (2) (2025) [Multi] (20251003) License GOG
 ```bash
 magnet:?xt=urn:btih:4233A59D34626AB330D26ED06D18765296B781F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Second Sun - путешествие по живописному миру, соз
 ```bash
 magnet:?xt=urn:btih:31CDCD64F7C0FFD8A6895FAF68BEC60C7B4AC983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ No Players Online (2025) [Ru/Multi] (6000.024f1) Repack Necros
 ```bash
 magnet:?xt=urn:btih:C1DAB4F39A6B276FBD70E0B7A6B16F7AD486D728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

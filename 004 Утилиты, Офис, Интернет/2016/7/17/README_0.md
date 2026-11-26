@@ -19,8 +19,7 @@ RidNacs - быстрое средство анализа использован�
 ```bash
 magnet:?xt=urn:btih:47E56504D94587A6B012EFA5C314030F09618877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

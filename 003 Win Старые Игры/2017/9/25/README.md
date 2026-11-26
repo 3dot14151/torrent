@@ -19,8 +19,7 @@ Simon the Sorcerer 3D (также известна как Simon 3D) - компь
 ```bash
 magnet:?xt=urn:btih:61361A9BA6D129FB106ED62D4358E2F5654D5DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 ```bash
 magnet:?xt=urn:btih:9A049C1345279EB689DA4134861E70E9B059CC9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

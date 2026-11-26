@@ -19,8 +19,7 @@ reaConverter Pro – инструмент для тех, кто имеет де�
 ```bash
 magnet:?xt=urn:btih:EE63AC7349A279BE6A28682FF10C81CA03E69115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C6A1E38DA611BBDE0AE4B577DDD47D06E41E7B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

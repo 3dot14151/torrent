@@ -22,8 +22,7 @@ A3 Help! (Help!)(   Читать дальше...   )Жанр: Beat, Pop RockПр
 ```bash
 magnet:?xt=urn:btih:C88A6C65591CF69EDDB3F37FD061C2C53813192B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

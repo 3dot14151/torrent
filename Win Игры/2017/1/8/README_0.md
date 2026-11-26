@@ -19,8 +19,7 @@ Crimes and Punishments — это детективный квест, посвя�
 ```bash
 magnet:?xt=urn:btih:091CFA861880414329CA10B2CEF871FF9291EB57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Layers of Fear – психоделический хоррор с запутан
 ```bash
 magnet:?xt=urn:btih:7C9E2B402ACC8A25A1ACCE1067409C12CD60C005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Inquisitor / Инквизитор (2012) [Ru/En] (1.10.17) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:C2BC83B9D436267F27871ED8BBD0D88D8BC567C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

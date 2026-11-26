@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9A283B0E02C50657DC10D63B5C8FEFDAC601D741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (151) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:0EFBE489A6854310FF59D96D15255E4F2172CC44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C1CB57820AB7292AEA57CB199FBFD4D3CB5227F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Legend of Mala Tokmachka - это 2D‑стратегия с элемент�
 ```bash
 magnet:?xt=urn:btih:B1B295D36A2C89FCB51FC4865A4A82366A260B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Scooter - Videocollection (2026)  Blu-Ray [H264/720p] [handmade]
 ```bash
 magnet:?xt=urn:btih:71AD27B34D7F89A7669E10E40E85A30C621C5215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2FADF9EADD1995ADBCDCF28BA581321A06C71BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 24040403) Scene Rune
 ```bash
 magnet:?xt=urn:btih:26FFD5DCB880AB9D9689A100063603D6DDFE2848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C10244B3E65F9820C41A662043B30C551454CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BC1FD93F2E08136D0C79BBEF4FE23C9681E1666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

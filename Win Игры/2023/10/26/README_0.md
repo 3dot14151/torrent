@@ -19,8 +19,7 @@ City of Stories: Stephan's Journey (2023) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:D4497C5EC70C198569DAA25C28861FBB411A07E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stray Souls (2023) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:58DC7C9D5250429461FCBFC9580323FD14B0E547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

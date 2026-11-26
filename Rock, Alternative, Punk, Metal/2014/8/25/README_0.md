@@ -27,8 +27,7 @@ HammerFall - (r)Evolution (2014) [MP3|320 кб/с]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:CE3668D19B57971CE3A581759832170F8FDF9A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Slipknot - The Devil In I (Single) (2014) [MP3|320 кб/с]<Nu Metal>
 ```bash
 magnet:?xt=urn:btih:C714C179A55CFB967C13BFB085353CB453A337EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ David Gilmour & Friends - In Floyd We Trust! (1992) [MP3|320 кб/с]<Rock, Prog
 ```bash
 magnet:?xt=urn:btih:18FAFB5F8E578AAF336B6B5662AA98A4876463C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Royal Blood - Royal Blood (2014) [MP3|320 кб/с]<Garage Rock, Blues Rock, Rock
 ```bash
 magnet:?xt=urn:btih:A06E5469B7C84C30AD2C50E81FE0BD5498DFA2A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

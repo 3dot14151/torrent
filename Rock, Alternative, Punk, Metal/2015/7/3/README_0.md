@@ -22,8 +22,7 @@ Sir Mashalot - Welcome To Mashville (2015) [MP3|320 кб/с]<Alternative Country
 ```bash
 magnet:?xt=urn:btih:6D45ADB9B6019A15A38B16E3A1941CAC4B676730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Paul Cowderoy - Wet Hessian Bag (2015) [MP3|320 кб/с]<Alternative Country Roc
 ```bash
 magnet:?xt=urn:btih:CD4ABC7F0C1E87FAF85E04FB4D2531929BB5D49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Spoon Fight - Spoon Fight (2015) [MP3|320 кб/с]<Alternative, Groove Rock, Blu
 ```bash
 magnet:?xt=urn:btih:46C2415BAC68BC2F8CFE96A590298B7249A20BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Fifty Dollar Band - One Hundred Years Of Grace (2015) [MP3|320 кб/с]<Alte
 ```bash
 magnet:?xt=urn:btih:C8AE92F9F7FAFCCC92849AAF6386B0BFA2741BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

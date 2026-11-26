@@ -22,8 +22,7 @@ BBVpn VPN — это молниеносное приложение, предос
 ```bash
 magnet:?xt=urn:btih:B3C80DA840CC0F7E42F4859712601DA794A334AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

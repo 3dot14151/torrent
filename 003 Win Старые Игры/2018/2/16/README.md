@@ -19,8 +19,7 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:473A8E9D82F1165102CB02B2BC8D7E20316D1FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

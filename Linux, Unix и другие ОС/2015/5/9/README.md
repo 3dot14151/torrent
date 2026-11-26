@@ -19,8 +19,7 @@ JonDo 0.9.79 [анонимный доступ в сети] [x86] DVD
 ```bash
 magnet:?xt=urn:btih:D6876920247E2206B9D82A6356D5BA2BC37DB95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

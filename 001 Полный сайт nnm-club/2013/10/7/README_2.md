@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:C1AE2E9E74494AA14E719C41F6E1AAAD47F4CE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Adam Fielding - And All Is As It Should Be (2013) [MP3|320 кб/с]<New Age, Amb
 ```bash
 magnet:?xt=urn:btih:939497B8D44203094C248135AE24189E36CFA343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AB1D09A49F9BF7C6DC532EEB7EE03C906361966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3D5613E1BC94BF870371052E33A4011E3345C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC53AD99298E0089219EB5F736482B9CDC8DD59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ L (iZReaL) - Вкратце (2013) [MP3|320 кб/с]<Hip-Hop|Rap>
 ```bash
 magnet:?xt=urn:btih:6C78F1FCDE969F70B34D393E0C2DA1DE328BC689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D7707662A52909762BC503401551B61B606D005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C1375C4B4C63A82ADAFFFD98851C0C5A1722599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ VA - John Digweed And Nick Muir Pres: Versus (2013) [FLAC|Lossless|WEB-DL|BEDVS 
 ```bash
 magnet:?xt=urn:btih:135EB8CF4736BF3034986A15C1E76EF53DF3E9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ VA - Высшая Лига. Осенний драйв (2013) [MP3|256 кб/с]<C
 ```bash
 magnet:?xt=urn:btih:4454BF2240AF9170983E833268D948650155E078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:747764B16A8792665C101ECF4029691E9BAE99DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1E19AEFE1E222C9500502A239D48E359A18AA7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ VA - Exotic Jazz (2006) Jazzclub [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:FBF3988DAE02B8DCD9E1BA707C4EBF5ED8586E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ VA - The Official UK Top 40 Singles Chart (06-10-2013) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:196FB30968D97DDFA06047456DF76ABD36C6C59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8B0045EFB63DACF88A346916A65DD7134336D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ NirLauncher Package - это пакет из 175 небольших утилит
 ```bash
 magnet:?xt=urn:btih:64EE2B255D2351B90BBA85F4C70F4C3C4F001469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +515,7 @@ Jason Derulo - Tattoos (Deluxe Edition) (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:D5E2A5C8442EF38531CCD8D310DB7DE8D2AB3F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +549,7 @@ VA - Funk Yourself! (2010) Jazzclub [FLAC|Lossless]<Jazz, Jazz-Funk, Funk>
 ```bash
 magnet:?xt=urn:btih:60490FF67A2337A78FF153057580F5E4F5263A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9935FBEAE9A08F404CB08F4760584FB63C420BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6B8B5EA4CC749F02B22BABDA052EFF4A67C2BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +642,7 @@ VA - Эйфория.vol2 (2013) [MP3|320 кб/с]<Chillout, Chillstep, Ambient, 
 ```bash
 magnet:?xt=urn:btih:0B4FEC15D3AD03B5DAA2EE487B060D7D50441178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +667,7 @@ PicPick - бесплатное приложение, объединяющее в
 ```bash
 magnet:?xt=urn:btih:DEF3B5991E59AA3641D3A47757F2DE8358E6806B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +701,7 @@ Roy Ayers - Soulful Vibes (2013) Jazzclub [FLAC|Lossless]<Jazz, Funk>
 ```bash
 magnet:?xt=urn:btih:B7C36070812FBD68A46C5AAA1A2FB6ECE3F7D672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0D28D12C7F843257AE8102DF0C0F64D0A842F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48442F3BFF2285F302E3708F383A960FB8F61AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +779,7 @@ Stranded Dreamscapes: The Prisoner Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:EB09B22F89106924C704709EA1B04A5E4CC65F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

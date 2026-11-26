@@ -21,8 +21,7 @@ OPNsense is an open source, easy-to-use and easy-to-build FreeBSD based firewall
 ```bash
 magnet:?xt=urn:btih:EAAE2F72B6BA81F0AC1A22FF0839E38DCA00C908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

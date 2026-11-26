@@ -22,8 +22,7 @@ Pathology - The Time Of Great Purification (2012) [WavPack|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:D42C1BE9F41F2258CC6570C31A4864B5EC2DBAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Striborg - This Suffocating Existence (2015) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:AD4F05005AF4BC2DF252F1B59CEC8C63F003240C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Branikald - Тингов Наслаждаясь Распрей (2013) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:56B0BBD858DF09423EE2362FCF3A28A51C5820D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Peawees - Moving Target (2018) [FLAC|Lossless|tracks + .cue] <Rock, Blues, R
 ```bash
 magnet:?xt=urn:btih:7509FB90E86FE67F71EECA001BA9395EDABCA709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Imperia - Flames of Eternity (2019) Limited Edition [FLAC|lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:C98C84873ADAD8C77BB73DAA0A48024994DB994F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Foals - Everything Not Saved Will Be Lost Part 1 (2019) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:5FAC58AC48792506D1861F74743BB437B4D197F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

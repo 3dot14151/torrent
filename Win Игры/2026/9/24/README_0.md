@@ -19,8 +19,7 @@ Brigador Killers (2026) [En] (0.6 1b501a55) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:5B91E49B203A5BCD41F645160BB41C1540B20AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Persona 3 Reload (2024) [Ru/Multi] (1.11/dlc) Repack FitGirl [Digital Premium Ed
 ```bash
 magnet:?xt=urn:btih:B4FFDF1F8EA23A9BB7418D0FA569C20B59595575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Island Market Simulator - это экономический симулятор
 ```bash
 magnet:?xt=urn:btih:178C2615F26DA7F690609D3C157DA4095A23828D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mortal Kombat 1 (2024) [Ru/Multi] (0.308/dlc) Repack seleZen [Khaos Reigns Kolle
 ```bash
 magnet:?xt=urn:btih:DC248B6F945C35FD08460FDE9DC881FE58EDAA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mortal Kombat 1: Khaos Reigns Kollection (2024) Repack FitGirl [Видеорол
 ```bash
 magnet:?xt=urn:btih:E2BF926AA3680CAA09A942C3336ADE91EDD2C48C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mortal Kombat 1 (2024) [Ru/Multi] (0.308/dlc) Repack FitGirl [Khaos Reigns Kolle
 ```bash
 magnet:?xt=urn:btih:DC8F86D357C75337F7ED87619AD3330F4F91DC88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Halloween: The Game - асимметричный хоррор от студи�
 ```bash
 magnet:?xt=urn:btih:050F03ADA9F78C3C2E30AFADC434B17884767A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Halloween: The Game - асимметричный хоррор от студи�
 ```bash
 magnet:?xt=urn:btih:7C22871C5A3F59AA762CA86633E91C7E381078F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

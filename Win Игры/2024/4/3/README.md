@@ -19,8 +19,7 @@ Gore Doctor - мрачный хоррор на выживание с давящ�
 ```bash
 magnet:?xt=urn:btih:45790AA9220DA0F2D3A003F00E987A8D2AA42435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bloody Ink - это психологическая хоррор-игра от п
 ```bash
 magnet:?xt=urn:btih:38820575289B1959F172669D06A18D4A1D50F4B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tempus Rail бросает вас с головой в кошмар Дикого
 ```bash
 magnet:?xt=urn:btih:D1E4925913A7EA55E5FB1822A75FB581EA32E3EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Geneforge 2 - Infestation - обновленная версия классиче
 ```bash
 magnet:?xt=urn:btih:6D44E59BC3E02C96C60053E4FB77D2AD8584C2EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Real Estate Simulator ставит вас на место начинающего
 ```bash
 magnet:?xt=urn:btih:01AB5B05882C4F5F4B3EF7A3CA9467197FEB1AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (0.2.0.5.202403281756/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:72971D257DDCD4505BB98D28067D9F46D2069E00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

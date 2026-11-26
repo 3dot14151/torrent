@@ -21,8 +21,7 @@ Packed with clear explanations, visualizations, and examples, the book covers al
 ```bash
 magnet:?xt=urn:btih:7652112F8FB0C6C25A7BD9098ECA0F3FAA04C5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

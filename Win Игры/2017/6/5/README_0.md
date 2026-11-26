@@ -19,8 +19,7 @@ Ominous Objects 5: The Cursed Guards / Зловещие вещи 5: Прокля
 ```bash
 magnet:?xt=urn:btih:FC6682741FB677B73AD7ED38B984D66DB2340797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cold Waters (2017) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:4C9FE39CEBE8B65156EE4948C4517B3F6B2DE88D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Brothers in Arms: Hell's Highway является третьей частью в
 ```bash
 magnet:?xt=urn:btih:77E159040DB4D8A9580AD6DBC603C616604E03B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

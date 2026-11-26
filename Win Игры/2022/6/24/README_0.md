@@ -19,8 +19,7 @@ City Legends 2: Trapped in Mirror (2022) [En] (1.0) Unofficial [Colleсtors's Ed
 ```bash
 magnet:?xt=urn:btih:379C9C45C3BEFE62C1EF301EC672F7D9030A4A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

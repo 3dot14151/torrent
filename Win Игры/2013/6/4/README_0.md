@@ -19,8 +19,7 @@ Rescue 2013 Everyday Heroes (2013) [En/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:765D8457DCD730CA4A07740829F429D08C0EE70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

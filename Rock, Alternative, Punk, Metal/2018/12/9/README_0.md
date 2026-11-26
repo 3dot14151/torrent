@@ -22,8 +22,7 @@ Stand Atlantic - Skinny Dipping (2018) [FLAC|Lossless|tracks + .cue] <Pop-Punk, 
 ```bash
 magnet:?xt=urn:btih:1759E0CBF4DF1F97819AEC059367D4B92B67BF1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Michael Schenker Group - The Unforgiven (1998) 1999, Unofficial Release [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:4FAF0FFBD771989E26D0EA7E0190F0109E91E261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88C67C37CA7BE6AF135F3C7FD0D6F2E3C3436BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Scorpions - Blackout (1982) 2018, Remastered, Reissue [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:5EFC4CF078FA6DA25E4C5E7C1370CE385E491E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ LP (Laura Pergolizzi) - Heart to Mouth (2018) [MP3|320 Kbps] <Indie Rock, Pop Ro
 ```bash
 magnet:?xt=urn:btih:CF0F34ED35934CA51692DC22B56F94E8B22617BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Chris Norman - Definitive Collection: Smokie And Solo Years (2018) 2CD, Compilat
 ```bash
 magnet:?xt=urn:btih:751042F65DE02AACF037303C4694E1AA4F189C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

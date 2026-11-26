@@ -21,8 +21,7 @@ Killitorous - 1 Album/2 Singles (2014-2020) [MP3|320 Kbps] <Technical Death Meta
 ```bash
 magnet:?xt=urn:btih:AABB9358AF56C6B8C87F900244E465EC6750D35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Litterbox Massacre - 2 Album/2 Singles (2019-2020) [MP3|320 Kbps] <Slamming Deat
 ```bash
 magnet:?xt=urn:btih:A77C388BCA8B6C7E5E2A507385F08B1999CC62CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Samaji - Гранж каньон (2020) ЕР [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:0E1BECA11182E78F6F9DBF43E2F43B1F8ED7825A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Barren Earth - Curse Of The Red River (2010) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:4F70757798FCED54655C29D9DBF68352C39D6BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Kruger - Nurnberg (2020) Single [MP3|320 Kbps] <Thrash Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A190A3D2EF4AC030F2BB482C0B8C48D7BDFD4D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ I Miss My Death - Mysto (2020) [MP3|320 Kbps] <Gothic Sympho Doom Metal>
 ```bash
 magnet:?xt=urn:btih:AFDB857CA92AF08ED85E301183AF6FEDD7697781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Oi!Beer!Alles! - Парни с городских окраин (2017) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:5D156108DDDC5C543F863F7EB7B77225252F30B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Axxis - Virus of a Modern Time (2020) (EP) [MP3|320 Kbps] <Melodic Heavy, Power 
 ```bash
 magnet:?xt=urn:btih:AB4BED02A751F2966A821E9DB6EB5F78A5FD78EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Metal Church - From the Vault (2020) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9435D0EF2D02BCF292FA7FF128C19C512D4EA495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Blackguard - Profugus Mortis (2009) [FLAC|Lossless]<Folk Black Metal>
 ```bash
 magnet:?xt=urn:btih:5DBA1C657CDBE4D5B8ADDE138DAADF137D360D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ The Strokes - The New Abnormal (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock,
 ```bash
 magnet:?xt=urn:btih:B90D12F8750713BADACD4A0D3067C829C6ED9AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Black Label Society - Hangover Music vol. VI (2004) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:83046DE0FD9ACE5FFD4A167A3081A7372D2EC6A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Kruger - XXX (2019) 3CD [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1907927C061897125ECFB7748141606D73C7A50C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Joe Satriani - Shapeshifting (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental 
 ```bash
 magnet:?xt=urn:btih:C013BA3E1782509F4C59B6ABB456B149564450E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Joe Satriani - Shapeshifting (2020) [MP3|320 Kbps] <Instrumental Rock>
 ```bash
 magnet:?xt=urn:btih:B5491C8C062F6B8329FAFF167303F8AB0FF396A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

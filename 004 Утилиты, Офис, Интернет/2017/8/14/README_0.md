@@ -19,8 +19,7 @@ Aiseesoft PDF to Excel Converter - с этой программой очень �
 ```bash
 magnet:?xt=urn:btih:0071348E39A46F3B02A6F7C2769D2902142599C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aiseesoft PDF to Word Converter - эта программа поможет Ва�
 ```bash
 magnet:?xt=urn:btih:2D008F15CBF7DC9FC034298514FC6B18D7908BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

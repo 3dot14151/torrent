@@ -28,8 +28,7 @@ Deep Purple - Hit Collection (2007) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Deep Purple - In Concert with the London Symphony Orchestra (1999)(2СD) [MP3|32
 ```bash
 magnet:?xt=urn:btih:B9448A7DF1829A23CFFACD10CD9D41115B69A518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ UFO - Best Ballads (1995) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:DB4499F4A5CB8C44D394FF2AB23BA4E9C72BEEA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ U2 - Greatest Hits (2CD) (2007) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:159828FFD9B082F79498B85A79C5D68C7ADEEE6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

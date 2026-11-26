@@ -20,8 +20,7 @@ Grand Alchemist - метал-группа из города Холмэстран
 ```bash
 magnet:?xt=urn:btih:611AC3F9BD47C43F5EC663AAAB2AF11C07824863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ A4 Szomoru Dal(   Читать дальше...   )Жанр: Hard RockПродо�
 ```bash
 magnet:?xt=urn:btih:832F053FF7AA0A1FD77AA61D8B7289042E12D0B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ A4 - Мертвый Марш(   Читать дальше...   )Жанр: Power,
 ```bash
 magnet:?xt=urn:btih:6054A0F427B01883500A2D9777DDE5F2496DFD71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

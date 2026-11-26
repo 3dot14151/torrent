@@ -22,8 +22,7 @@ Belzebubs - Pantheon of the Nightside Gods (2019) [MP3|320 Kbps] <Sympho Black M
 ```bash
 magnet:?xt=urn:btih:876E44F5AFABD778F3B40CA04E9C51D786BDC092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35854A3791D236BCCC94BF4A7E51F59A4479317C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Queen - Queen (1973) Japanese Edition, 2018 [FLAC|lossless| image + .cue] <Rock,
 ```bash
 magnet:?xt=urn:btih:81F71898B4F3A25F9C5622ADCDDB985DF4CE84C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

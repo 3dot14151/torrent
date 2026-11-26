@@ -19,8 +19,7 @@ Mystery Trackers 4: The Four Aces Collector's Edition / Охотники за т
 ```bash
 magnet:?xt=urn:btih:8E714AD7A3D20F0F5D2B4E949D8896662B1CC077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Web of Deceit: Black Widow Collector's Edition / Паутина Лжи. Чёрн
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Doom 3 BFG Edition [En] (RePack/1.0) 2012 | kuha
 ```bash
 magnet:?xt=urn:btih:46F1ACE84BE4282809F2466937277F393A41E818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Wanted: Weapons of Fate — это боевик от третьего лица �
 ```bash
 magnet:?xt=urn:btih:C23E68DFE8EC077F39A5CD1D9E2750FBA4FB7787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Doom 3 BFG Edition [Multi6\-] (L) 2012 | POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:BEE3A04B9639FB7F59970FCC59EA34B43A7840E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Serious Sam 3: BFE — это великолепное возвращение в
 ```bash
 magnet:?xt=urn:btih:46AC355EA8D4086B64C45577445C02F54F52820C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Luxor: The King's Collection 11-in-1 [Ru/En] (Р) 2005-2012
 ```bash
 magnet:?xt=urn:btih:D37FC11A4E023B4FC61E844AA3E978792C2F0262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

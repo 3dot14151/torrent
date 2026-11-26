@@ -28,8 +28,7 @@ Tipton, Entwistle & Powell - Edge Of The World (2006) [MP3|320 kbps]<Hard Rock /
 ```bash
 magnet:?xt=urn:btih:E4CAB600114C540B7AAC2AB36F5F046A32C69CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Black Label Society - Shot To Hell (2006) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Cozy Powell - 5 Albums+3 Singles+1 Live+1 Compilation (1973-1998) [MP3|320 kbps]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

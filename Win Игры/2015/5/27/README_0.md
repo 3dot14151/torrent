@@ -19,8 +19,7 @@ I Know a Tale (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E86F330CE51561F82516C20ADC2D3BC409DE2A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Behind the Reflection 2: Witch's Revenge / Ведьма в зеркале 2. М�
 ```bash
 magnet:?xt=urn:btih:60FBE5A23250D938AB317F6696A5D9B3AC79D3ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vampire Legends 2: The Untold Story Of Elizabeth Bathory / Легенды о в�
 ```bash
 magnet:?xt=urn:btih:B6AE40CFCFA60B7D545706046004086046017545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Reflections of Life 2: Equilibrium / Отражения жизни: Равнов
 ```bash
 magnet:?xt=urn:btih:DF7BDB433B8F781B98B1A63AC66048708276FA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Hetman RAID Recovery - это универсальное решение для �
 ```bash
 magnet:?xt=urn:btih:8728E6C80E2C5FC32BEA5FA0E8DF4F4820A5EC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AnyDVD HD - это программа для дешифрования CSS и с�
 ```bash
 magnet:?xt=urn:btih:81A0A6D8E64C5DA85D3F800759C0CA214FBCA61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

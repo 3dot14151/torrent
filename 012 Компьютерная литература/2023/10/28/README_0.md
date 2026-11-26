@@ -21,8 +21,7 @@ BK Sarthak Das, Virginia Chu | Security as Code (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:9F77290F9A44BEA206A68757D48E03CD34EEA930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Vaskaran Sarcar | Simple and Efficient Programming with C#, 2nd Edition (2022) [
 ```bash
 magnet:?xt=urn:btih:90F0F177F7BD675CA48B5DA99526EB020A5C294F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Juntao Qiu | Test-Driven Development with React and TypeScript, 2nd Edition (202
 ```bash
 magnet:?xt=urn:btih:2DBB955CF6F62306C14E1DD91B949FDC9365A6B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8376CEC3B7EA3D2BDDFB06101D72A5FDDC025589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:970953ABD0556B80A2E7A8A9EC58B8F31F184CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Pablo David Garaguso | Vue.js 3 Design Patterns and Best Practices (2023) [PDF][
 ```bash
 magnet:?xt=urn:btih:230E3B5F1F46D10524F7B2CE6A47CFF9F62FAD28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C11D8514D2057FDDD2CDF97169151DB6ECE9189E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC7CEF840E30E25ECF2ED05C0C5A979CD7C1DBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

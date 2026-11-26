@@ -19,8 +19,7 @@ PES 2016 - официальная видеоигра Лиги чемпионов
 ```bash
 magnet:?xt=urn:btih:661951DAD05F8C6C61B7999B2CD25B8E10E434FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:E4EBD8BDD8F49FDB077882601E1FBFF235DE4042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

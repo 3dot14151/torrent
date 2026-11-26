@@ -21,8 +21,7 @@ VA - Silk Music Pres. Talamanca 01 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:5B3A8F5761965524C1CF4F62652C564ED0E264E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:50606048222B7B9777AA669345AE59F156FB436A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Laura Branigan (Лора Брэниган) - Remember Me (2005) Dance Street, DS
 ```bash
 magnet:?xt=urn:btih:D72D3D00C2698C63F8D56EFCDEBA7822E814A75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Laura Branigan (Лора Брэниган) - Branigan 2 (1983) Atlantic, 78 0066
 ```bash
 magnet:?xt=urn:btih:23F59F323D36F758ED4FC31D9E40E463565F8013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Laura Branigan (Лора Брэниган) - Touch (1987) Atlantic, 81747-1, US 
 ```bash
 magnet:?xt=urn:btih:7A9CC91549D2F9FAC604D01910111A9837D0A290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ B)	Bist Main Welt = (You Are My World)Жанр: Folk, World, & CountryПродо
 ```bash
 magnet:?xt=urn:btih:C5453DBFF6D6AE7ED17F9793299E51D387A11ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CC2E8A687DE62C52132831EE4974629A4EF1037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25F98B45D1B59760CB0F47AF0D263509A4F2996B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - Best of Lounge 2018: Special Selection Vol.1 [MP3|320 Kbps] <Balearic, Down
 ```bash
 magnet:?xt=urn:btih:8E02DDF73FE874BC4DEBB48CFD47100CB86060EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Laura Branigan (Лора Брэниган) - Hold Me (1985) Atlantic, 7 81265-2,
 ```bash
 magnet:?xt=urn:btih:BC7B37B16D78EB65F768BBE24309C247BBCC39AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Orphans Of Doom - Strange Worlds / Fierce Gods (2018) [MP3|320 кб/с]<Sludge M
 ```bash
 magnet:?xt=urn:btih:C4DCAFD4FC899D110509114B747C6D5655A9446C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Structural Mind Engine - Forest (2018)2CD [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:CC7EDBEE452C8A7B9508FCD70C64FD1777D8F2BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Laura Branigan (Лора Брэниган) - Over My Heart (1993) Atlantic, 7567
 ```bash
 magnet:?xt=urn:btih:3368D24B8120D5BEFA2C5E5F1CC6684FC27FD63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ VA - Winter Sessions 2018 (Mixed by Milk & Sugar) (2018) [MP3|320 Kbps] <House, 
 ```bash
 magnet:?xt=urn:btih:6B4BE8CCCBD42A01D2E9FBC5F5F4FF72E941F902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ Dino Solera - Classicaly: Dino Solera (1977 /2015) Remastered, Unofficial [FLAC|
 ```bash
 magnet:?xt=urn:btih:1997A8E92B24344A531A8214A758644CE93AE972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ Last Life - Nootka EP (2017) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n
 ```bash
 magnet:?xt=urn:btih:1F5A5CD1E4736C468E93B69EF750ED328F7931EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ Mimetic Desire - Sacred Aim (2006) Ant-Zen [FLAC 2.0|48/24|tracks|DVD-Rip] <Trib
 ```bash
 magnet:?xt=urn:btih:4EB59F084D6191931EBB3D511F0E6F3E6CFEEC1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87FE272F8E59AC9A74A096CFA67F2A30D5DA43D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6B202EBDC92AD375CC29BAE977C474FEA31C180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ VA - Deep House | Odyssey, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 ```bash
 magnet:?xt=urn:btih:A1C3C736855A125587CAB4F62D45E51EA5DB55D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D801A37908ACC6E5C04DFE958E032D8DB7B54D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ Aelyn - Voice Of Suanda Vol. 5 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:234A16E83E38ABC99EE3CD08C14C7FC54E194598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB9938443E68E7CDABBB7B07F95ABC61056AF213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1C393EEA7DCE737DC455E7E628E0103D26A9F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ VA - Vanilla Kiss: Clubland Eurodance 90s (2018) [MP3|320 Kbps] <Club, Dance, Po
 ```bash
 magnet:?xt=urn:btih:661731EA4FCE92F91C9D85522D007E455B16863A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ Stephen Rhodes - Relax II: Your Essential Spa Music (2013) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:C89BF26A12FD4AB1C0D565FAFA0AD583705E0F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

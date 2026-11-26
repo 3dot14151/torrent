@@ -19,8 +19,7 @@ The Medium (2021) [Ru/Multi] (1.2) Repack SpaceX
 ```bash
 magnet:?xt=urn:btih:80CBA550FFEA94EFF2FE83B841C7B7AB14F3F9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

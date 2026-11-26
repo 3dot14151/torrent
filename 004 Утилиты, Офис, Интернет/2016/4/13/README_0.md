@@ -19,8 +19,7 @@ EVGA Precision X — утилита для разгона и тонкой нас
 ```bash
 magnet:?xt=urn:btih:2CECBA14E75290FA71C5C74B4EEE94D4FE8783E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

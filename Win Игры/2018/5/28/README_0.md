@@ -19,8 +19,7 @@ Fright Chasers 2: Soul Reaper / Ловцы Страхов 2: Капкан (2018)
 ```bash
 magnet:?xt=urn:btih:485B6DCB7804C87639860E43C559E22EA35BFB93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Football Club Simulator - FCS 18 - тактический симулятор м�
 ```bash
 magnet:?xt=urn:btih:F7A4463CF078F6AE1D93D83EA04B87799B71AEF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

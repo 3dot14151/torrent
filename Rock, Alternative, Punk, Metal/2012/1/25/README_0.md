@@ -28,8 +28,7 @@ Cream - The Very Best Of Cream (1995) [FLAC|Lossless]<Rock, Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Babylon Zoo - King Kong Groover (1998) [MP3|320 kbps]<Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:900E7CD74541BA637AE0E5FF006C49C1390BF930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Heavy Metal Love (1990) [FLAC|Lossless]<Hard Rock, Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Biohazard - Reborn In Defiance (2012) [MP3|320 kbps]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:C1706850AEDC9DCEB8F135DBDF7A26094B3A432A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Anneke Van Giersbergen - Everything Is Changingpic (2012) [MP3|320 kbps]<Alterna
 ```bash
 magnet:?xt=urn:btih:5E798FA3DF948118F5A9B41090103C48F7D58E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Tender Branson - Когда Медицина Бессильна (2011) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:550C710F99EDEBCA2E0C40BCFC2AE97EFC33962F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

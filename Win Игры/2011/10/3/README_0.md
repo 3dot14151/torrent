@@ -19,8 +19,7 @@ Echoes of the Past 3: The Citadels of Time Collectors Edition / Эхо Прош�
 ```bash
 magnet:?xt=urn:btih:7794D122EAA95B3C055D13F6284EB8174466B649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

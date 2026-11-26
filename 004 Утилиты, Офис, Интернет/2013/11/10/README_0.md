@@ -19,8 +19,7 @@ Aurora3D Barcode Generator 3.06.26 [En]
 ```bash
 magnet:?xt=urn:btih:34C16DCDDCCFBCC958D77C13067C08B76D2239A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

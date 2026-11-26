@@ -19,8 +19,7 @@ Dr. Nirali Dabhi, Dr. Dharmendra Patel, Dr. Atul Patel | Web Development Toolkit
 ```bash
 magnet:?xt=urn:btih:EF73760ECD1B5CC1446D43493229162B02DAEE1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ben Shaw, Saurabh Badhwar, Chris Guest и др. | Web Development with Django (2
 ```bash
 magnet:?xt=urn:btih:172F7EADD5E429F4446EEB4547BDC8AF1C391C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

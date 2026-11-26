@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:91EE81C678F75A15812BA99A93B54C6756F530E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AudioLab: Audio Editor Recorder – это самый продвинутый к�
 ```bash
 magnet:?xt=urn:btih:545D6E089AF6034A1350BDA5DE3314534F955A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

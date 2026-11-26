@@ -22,8 +22,7 @@ B1 The Kinslayer(   Читать дальше...   )Жанр: Symphonic Power Me
 ```bash
 magnet:?xt=urn:btih:08F8B6743C6C11C390A0036D9A4B4E5AA77B6414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Prepare To Meet The Doom(   Читать дальше...   )Жанр: Death, 
 ```bash
 magnet:?xt=urn:btih:E5D62BBC21F8779906E8073D69F5F59529969650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Hedensk Oppstandelse(   Читать дальше...   )Жанр: Viking Meta
 ```bash
 magnet:?xt=urn:btih:C5146F09E380BA7E8E9D48897416326D0FF9D7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Conquerer(   Читать дальше...   )Жанр: Viking MetalПродо
 ```bash
 magnet:?xt=urn:btih:2F98D0212B127008B126CE2107A0F5E388F9DB71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ W.E.T. - супергруппа мелодичного рока, созданн�
 ```bash
 magnet:?xt=urn:btih:BCFAF257650C5857C6100089E9DFD81AB49D79C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Magic Kingdom — бельгийская пауэр-метал-группа, о�
 ```bash
 magnet:?xt=urn:btih:E079493DE9AB9074D977482C4E2AF7AF0CC0E962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

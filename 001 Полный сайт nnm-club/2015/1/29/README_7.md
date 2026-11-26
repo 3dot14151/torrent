@@ -22,8 +22,7 @@ Album, Split, EP:
 ```bash
 magnet:?xt=urn:btih:ADCD0A35FAAC46942EE7717ECD9012CFBA61AAA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D39C59D72BF7497DDE60942909EDC65FFA3A1C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F11C4ED560D30BDE1DCF563EAA0C0B7129D2B38F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Demo, Splits, EPs, Compilation, Limited Edition:
 ```bash
 magnet:?xt=urn:btih:6B14AC692AB384B7041F1BA5DC6638EEE3D7C086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Charlie Shavers - Gershwin, Shavers & Strings (2014) [FLAC|Lossless]<Jazz, Big B
 ```bash
 magnet:?xt=urn:btih:8D29216724FA28C2C6D72DDC2217186E90FEF987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ Sir Charles Thompson & Coleman Hawkins - For The Ears (1999) [FLAC|Lossless]<Jaz
 ```bash
 magnet:?xt=urn:btih:893A4A2889D6709FFA2183C6533421F28476A786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Finsterforst - Mach Dich Frei (2015) Limited Edition [FLAC|Lossless]<Folk/Pagan 
 ```bash
 magnet:?xt=urn:btih:E1BE43113C49F5C5AC565277BC8074658DDFF457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ I Drive - I Drive (1972) [MP3|320 кб/с]<Hard Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:2B66B8D95CE1BEFC07302E0A3F122BFE78941145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Tas Cru - You Keep The Money (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:507FA8033F477EE991123BBEF713A02A8AA6C483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ Shadowquest - Armoured IV Pain (2015) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:C7AE83B121556328D66654BA351D053F6B033278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BAECF5AB7D75159A2E475A6A211E9EB95D35D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4367A84AF18B3F658905E1D572C57DAD75494ABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ Dhamika - Solitude (2015) EP [FLAC|Lossless|WEB-DL]<Downtempo, Psychill, Ambient
 ```bash
 magnet:?xt=urn:btih:7915D8D56366435C54F2B0F09066594C8E2963F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:991F09BE4BF1F59616544B6BEB44E2AE4C702300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40D59152E530E06A93EF007933214A3BACF95C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ CD-rip
 ```bash
 magnet:?xt=urn:btih:747F2DB48185329A15B0ABDF105447E901FECFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B52B83F99C53E0A60F65D35E161FB1716EEB056B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ HammerFall - Threshold (2006) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:790E26F37CB1081C732F6A73CA717FA38FDF597E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ Nina Simone - My Baby Just Cares For Me (1986) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:FBBFA4F658C03A9B34A826FC71D95AFCF6CFC530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:559D0DC39F0E55B28A6DA442617AC2F1C8B7EA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ Ishq - Autumn light (2015) [FLAC|Lossless|WEB-DL] <Ambient>
 ```bash
 magnet:?xt=urn:btih:098D5E9041083110B490B2C0623DDB0D928EC21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BBCD4FF6179CD070AEFFBF9E5A54A4CA3AD4ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7509B12E7379ED64DBE7EB1152D8DF7C599EF888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE7EC989C0B71848F1851289A2BEC5D61AB7C881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ Sea of Lies: Burning Coast (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:EA89B394D0D7EAAE0EE6298F9CAE99C7B41B26B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

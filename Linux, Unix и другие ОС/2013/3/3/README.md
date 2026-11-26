@@ -21,8 +21,7 @@ Red Hat Enterprise Linux (RHEL) 6.4, корректирующий релиз к�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Red Hat Enterprise Linux (RHEL) 6.4, корректирующий релиз к�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Fedora 21 Server + Cloud [i386, x86-64] 2xDVD, 4xCD
 ```bash
 magnet:?xt=urn:btih:D2842140169F5B039CFC365F2865E5DD39B349A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Fedora Live - нацелен на создание надёжного, друж�
 ```bash
 magnet:?xt=urn:btih:8DFA07EAE2677772C7FA58D2E72E526103F68353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Fedora Workstation - нацелен на создание надёжного, д
 ```bash
 magnet:?xt=urn:btih:D60A2E87DC02BE6AC5A7D5FD5A424EEFD94070EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

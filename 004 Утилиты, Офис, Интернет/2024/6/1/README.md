@@ -19,8 +19,7 @@ FanCtrl — это программное обеспечение, которое
 ```bash
 magnet:?xt=urn:btih:8422CF8039E57AC1C3E3B0DDCE274303E886F21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

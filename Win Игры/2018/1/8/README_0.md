@@ -19,8 +19,7 @@ Gorogoa – изящное развитие жанра головоломок, �
 ```bash
 magnet:?xt=urn:btih:D2720A6FB2CE9BB5D60BB70DBFA3ECEB7CA8F14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Surge (2017) [Ru/Multi] (Update 11/dlc) SteamRip R.G. Origins [Complete Edit
 ```bash
 magnet:?xt=urn:btih:E99DDF6067E02C220AAF76934DC484C793142B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Remember Me (2013) [Ru/Multi] (1.0.2/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:DD0D6CE7183EA1B4CFF1F25CBA2BC250000DDAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DmC - Devil May Cry (2013) [Ru/Multi] (1.0r3/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:7E8BC00EE94AAA1F058E8F39667D01DE19383CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Armik - Romantic Spanish Guitar Vol. 1 (2014) [MP3|320 кб/с]<New Age, Flamenc
 ```bash
 magnet:?xt=urn:btih:00F15ECE9F1A04F643791722C2CF739F04A4C221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E91E1903DA365B6FBC42D46C1B9DEC1C320162D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC5DE8FA98124F099BDCDFD14C146692C9988479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C127C9285A7A43E8D651014D69399EF93626981A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:ED37CDD88D9EB6DCE6B003E99FBCC82930ECD825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Calibre - программа для конвертации и хранения �
 ```bash
 magnet:?xt=urn:btih:7A02D99F6A5EE42AE24801BDC879B6081E6CEF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ Suite En Re
 ```bash
 magnet:?xt=urn:btih:3C5D93A67E3056640AF97C1D8340EEA147F86E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81452E64958C2FFA1443E931161846B4636149A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A0922488CFB26DBAFA3E503195B716ADDE62D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4048AC9AD446CF73608987C8D1CBA85D4DCE87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Registry Workshop - представляет собой альтернативн
 ```bash
 magnet:?xt=urn:btih:7FD3EAFA21149C97755FA49AB1E8BE92AE6EF054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ VA - Звёзды Дискотек! (21-24) (4CD) (2014) [MP3|192 - 320 кб/с]
 ```bash
 magnet:?xt=urn:btih:116FC290A4035FB47B47B76AEDC3C4A2A6569B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AFAB2067F2BDBD62F222ED49BDFA48502F1BA35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ Hans Zimmer - Пираты Карибского моря: На странных 
 ```bash
 magnet:?xt=urn:btih:027F5172C2B97ACAB7E960913F8167F52764D711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8AF1B0C6501C181FA01AF7C82250F39661746AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +449,7 @@ Slimjet - одна из альтернатив веб-браузера Google Ch
 ```bash
 magnet:?xt=urn:btih:FE121E0329AB8A3734F906E0CB9839411300E805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +477,7 @@ Apple всегда уделяла особое внимание подкаста
 ```bash
 magnet:?xt=urn:btih:10C7E6656E6FFD22B04E11399BE2190294135F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:697E1913A754004DB65D70ED6E538B668AAC5B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +529,7 @@ Visual Assist позволяет увеличить возможности ре�
 ```bash
 magnet:?xt=urn:btih:296C9A447EDB9879273F73F324D8EE7795CB72CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +563,7 @@ Trent Reznor & Atticus Ross - Исчезнувшая / Gone Girl (Soundtrack Fro
 ```bash
 magnet:?xt=urn:btih:5BDA6247B21BFDCFC26ECE8BB974B177764A21EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +591,7 @@ Nile Rodgers & VA - Путешествие в Америку / Coming to America
 ```bash
 magnet:?xt=urn:btih:A9C7273C99214364A3C022DF70826F2A92EF5828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ Lab's Cloud - Imminent Awakening (2014) [FLAC|Lossless|WEB-DL]<Psybient, Ambient
 ```bash
 magnet:?xt=urn:btih:F135505C578D3A213D3EA1FAB7EDD08BB774FA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +657,7 @@ VA - Dream Dance Vol. 73 (2014) [MP3|320 кб/с]<Trance , Progressive House>
 ```bash
 magnet:?xt=urn:btih:1477EC0A9F560C544048CDE64F0E23B14FCD3FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:367C0F3FD606FA25476BFEDB5E4873597C08275E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0C872FF9DB970F9451B6A28A4313A107F872CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +746,7 @@ Hans Zimmer - Пираты Карибского моря: Сундук мерт�
 ```bash
 magnet:?xt=urn:btih:83E2A7DB27DA59DAD0685E99557FD054B84182CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

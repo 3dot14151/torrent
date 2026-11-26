@@ -18,8 +18,7 @@ BioShock Infinite (2013) [Ru/En] (1.1.25.5165/8dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:B98E81C31A2B061841C74547CB08AF8D9FD2AB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ JPEG Recovery Pro — отличная программа для ручного 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ AutoCAD 2015 позволяет решать самые сложные прое�
 ```bash
 magnet:?xt=urn:btih:36A58A6E1289EAC90F3F43170B82F9867DB75180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:830ED3BFF76203E84D25DB42C9CACDF3FA4BE2EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Wargame: Red Dragon – первый выпуск популярной сери�
 ```bash
 magnet:?xt=urn:btih:550AD506D0A30823C24791C7EE4F52351882B628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

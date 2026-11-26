@@ -22,8 +22,7 @@ Seven - Shattered (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5D7FA5FA3E424EF369BAC4D666EEE57A2E49339A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ravenia - Beyond The Walls Of Death (2016) [FLAC|Lossless|image + .cue] <Symphon
 ```bash
 magnet:?xt=urn:btih:E90D1EF15435A52DD09B5EDE2215554A8EE6300A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nar Mattaru - Ancient Atomic Warfare (2015) [FLAC|Lossless|image + .cue] <Death 
 ```bash
 magnet:?xt=urn:btih:798C1F712E59EC443EE1E73B57AF8EEB58B7148C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

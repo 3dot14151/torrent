@@ -19,8 +19,7 @@ CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
 ```bash
 magnet:?xt=urn:btih:79E910DD5DDF4F4C020D5BDFCCB53B793B8F5AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

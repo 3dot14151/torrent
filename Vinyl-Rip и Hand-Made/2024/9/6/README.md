@@ -21,8 +21,7 @@ These Are They - американская дэт-метал группа, сос
 ```bash
 magnet:?xt=urn:btih:8578DD76EFCCFA26004BF8F7BABC13736034BED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ A3 Л. Утесов – Московские Окна(   Читать дальш
 ```bash
 magnet:?xt=urn:btih:77AB372A6A44E0C752A935ADD592B244EA89D09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Linkin Park - The Emptiness Machine (2024) hand made [restored, declipped] [FLAC
 ```bash
 magnet:?xt=urn:btih:FBA5FA3F4E1D0CA4038B22A343D7E9D74A12B01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9922D294B85DADD7333D6715A91032D21A6B4E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

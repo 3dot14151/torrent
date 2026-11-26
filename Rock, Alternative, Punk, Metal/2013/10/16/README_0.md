@@ -28,8 +28,7 @@ Warbringer - Waking Into Nightmares (2009) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8CBC2AE0193E96747CA023D9FA862E3FBAD1B974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Solsticio - Lost Souls (2012) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:5BC1F0AE66D2425C4AEDC9621453CEC837389739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Morbid Saint - Spectrum of Death (1988) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C2430CD6030329F0CC78AFE4F5A5051673CED33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Protest The Hero - Volition (2013) [MP3|320 кб/с]<Progressive Metal, Metalcor
 ```bash
 magnet:?xt=urn:btih:A7868578695363871A680607DCB4CD47CCA250EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Metal Church - Generation Nothing (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:383EF35E47D33EB2442D2300E6F8C9FA17D74E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Circle of Illusion - Jeremias (2013) [MP3|320 кб/с]<Symphonic Progressive Roc
 ```bash
 magnet:?xt=urn:btih:8039944D10B48E4D10840D089EBB6F10BF39EF06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Phase I: Singularity[23:29]
 ```bash
 magnet:?xt=urn:btih:60EA4096CB7BE81E0BF4F7E79362BCDE9A08C060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Deform - Deformократия EP (2012) [MP3|320 kbps]<Gothic, Industrial Rock>
 ```bash
 magnet:?xt=urn:btih:157EB959B54A4665F9A3EFDA2E5C341806467774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Death - Spiritual Healing (1990) 2008 Remastered [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:39B1340B9A2F707788BFA53F7F3D728BB4B3DE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Thin Lizzy - Renegade (1981)Remastered Edition/2013,Mercury Records [APE|Lossles
 ```bash
 magnet:?xt=urn:btih:FE6697E3A4E1FA27837FF24D9FDC62024C524AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Paul McCartney - New (2013) US Deluxe Edition [FLAC|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:C965BC3BFAD6D3AFF1975B55AD6704D93B1231B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ Rod Stewart - The Ballad Album (2013) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:BDFDA1F8A81610E3865FB0A494B9AF22E1588DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E94294D0D46BC9153DDDD86BD3ACE5B5796B1F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +463,7 @@ Motorhead - Aftershock (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:84CC18580E6644E39FE3A9DB05C99A4E29DA90B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:371B9C5880D78FE8766C940B0404A3D988DDBE35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:022EB1EE57005EA245E5C91C2C5A2B892D828209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

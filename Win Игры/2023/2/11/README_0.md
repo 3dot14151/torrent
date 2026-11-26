@@ -19,8 +19,7 @@ Factorio — это игра про добычу ресурсов, постро�
 ```bash
 magnet:?xt=urn:btih:D41F0A08D242051B8EAE34B748DC2CB161E4D79D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ringborn - это сюжетная RPG, действие которой разв
 ```bash
 magnet:?xt=urn:btih:036EB1FF73CB4A1BD9BAD450467AEF5FA9130ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Yooka-Laylee and the Impossible Lair - это совершенно новый п
 ```bash
 magnet:?xt=urn:btih:83552E84038832E71B2F896C4C887C519B48C5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Anima: Gate of Memories (2016) [Multi] (20171122) License GOG
 ```bash
 magnet:?xt=urn:btih:EDED40F42611EC922A34B48E2024F1B64261D8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Duskers - захватывающий гибрид стратегии и роле
 ```bash
 magnet:?xt=urn:btih:76213ED51A7D58391D6C26BFEC926A58A66FA67A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Split (2022) [Ru/Multi] (0.9.20) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:CF5241622F35A4D57542086D68721DD323777B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sylphy and the Sleepless Island повествует о приключениях
 ```bash
 magnet:?xt=urn:btih:28083C0D28A822EC37FC187425FF54F74F5E90C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dwarven Skykeep - стратегическая игра, в которой по�
 ```bash
 magnet:?xt=urn:btih:E96912F35239A9D1E0A6135B991214684E3CDF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tahira: Echoes of the Astral Empire – это эпизодическая стр
 ```bash
 magnet:?xt=urn:btih:6BDF44D431351D2B5E31309387342C1BD5BA4429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

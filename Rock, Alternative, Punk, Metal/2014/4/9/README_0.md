@@ -28,8 +28,7 @@ RPWL - Wanted (2014) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:72925858AA05FA2DD4F544D40D8C5179919D9048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Paolo Nutini - Caustic Love (2014) [MP3|320 кб/с]<Indie Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:728726BA327D6B47B6C30A69A5A41F2444B051E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Eagles - Hotel California (1976) 24 Karat Gold Disc, Steve Hoffman Remastered /1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

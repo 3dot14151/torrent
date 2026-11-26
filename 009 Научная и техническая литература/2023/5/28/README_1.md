@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:21C9B18F9F46676A0F0B629FE37FEE7FDE4FB1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:732B0423AF32194E3A3AC2114E1E43D8F27C54FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Marcos Mateu-Mestre | Серия книг по рисованию Framed: Drawin
 ```bash
 magnet:?xt=urn:btih:B824747B1CF3330601286E04DE935D9B7EC5E0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

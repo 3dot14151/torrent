@@ -20,8 +20,7 @@ Ubuntu ServerPack - полный комплект серверного ПО, к�
 ```bash
 magnet:?xt=urn:btih:41283C5E8C0CC0885C2E6CDED74680026A636B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

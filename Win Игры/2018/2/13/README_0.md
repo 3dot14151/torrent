@@ -19,8 +19,7 @@ Redeemer (2017) [Ru/Multi] (1.5) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:8D4C991ED8A09D6E6764513AD92BBF887F0E53F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

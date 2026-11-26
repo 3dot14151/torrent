@@ -22,8 +22,7 @@ Julien-K - DRK|MODE (2025) [MP3|320 Kbps] <electronic rock>
 ```bash
 magnet:?xt=urn:btih:682561FCF22FD0D2864994B168FE07CCA485F59C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Queen - B-Sides (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:216FF8480A7BE5729E15C689BDDE481A1A75A40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

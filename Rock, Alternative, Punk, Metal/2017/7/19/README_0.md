@@ -22,8 +22,7 @@ Asylum - Psalms of Paralysis (2017) [FLAC|Lossless|tracks + .cue] <Technical Dea
 ```bash
 magnet:?xt=urn:btih:ACCD7DCDA3FADF052B78D62D2E91B592AF28FC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Loudness — одна из первых японских метал-групп, 
 ```bash
 magnet:?xt=urn:btih:7D0CB4AAF514B77749F06F01F6F81C02FFCB043D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Audio's Audiophile Vol.17 - In Concert (2001) Compilation, Live [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:5F6979E4765A5A9F9EE9BC3EC704806FE4067FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Wintersun - The Forest Seasons (2017) [MP3|320 Kbps] <Epic Metal, Melodic Death 
 ```bash
 magnet:?xt=urn:btih:F6E1BD94B399E408244E0C89AA36677B465EEB54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

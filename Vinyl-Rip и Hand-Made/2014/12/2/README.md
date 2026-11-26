@@ -22,8 +22,7 @@ Pink Floyd - The Endless River (2014) [LPCM 2.0, Dolby Digital 5.1, DTS 5.1 | Au
 ```bash
 magnet:?xt=urn:btih:43109B07FEB7B803519454C1F8AB036FBF335061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

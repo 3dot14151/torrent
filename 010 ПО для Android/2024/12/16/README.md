@@ -20,8 +20,7 @@ Metrolist 10.7.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CF500AE6F9D6997752C97C83DD613A6855F70243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:82CDFD64A339C74C4E610223E6BD52A74CFF6EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sufyan bin Uzayr | Mastering Python for Web (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:4661FE4FE085664EDFD48C822B34D9755C88F182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ John P. Doran | Unity 2022 Mobile Game Development, 3rd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:233A9C63AD440FBDDB21B3E76C655B43231F9F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C949850BB68614F199E82CEB58214D689DE3CCE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

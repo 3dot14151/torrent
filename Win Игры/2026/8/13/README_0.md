@@ -19,8 +19,7 @@ Frozen Ship - это сюжетное приключение от первог
 ```bash
 magnet:?xt=urn:btih:C84F7C02FA1247CB77D2044EE34340C2D6DFBAEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

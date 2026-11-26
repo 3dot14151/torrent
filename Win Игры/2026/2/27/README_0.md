@@ -19,8 +19,7 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:B2A7D09771479371FAC787AADB8C4D315CFC6BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.8.0-118300/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:F33F37F28D90FDFB3A7BCAB7BE5559BCFB7E83BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Towerborne - это захватывающий ролевой экшен-бро�
 ```bash
 magnet:?xt=urn:btih:A741CB0658D2A1CE92C2D0B97FDDF2C962170A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Brotato (2022) [Ru/Multi] (1.1.14.3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:08068EE044A1875B2DE086895D6502F4E94396E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Far Cry (2004) [Ru] (1.4) License
 ```bash
 magnet:?xt=urn:btih:099792C28DF392C23DF7EA588780C314A7278974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack dixen18 [Royal Ed
 ```bash
 magnet:?xt=urn:btih:49F38631C58882A51D6CEA68C128401032748637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ L.A. Noire – мрачный и жестокий триллер. В игре и
 ```bash
 magnet:?xt=urn:btih:B3DD78357B013C563C29C03BB61409E0FEF7EC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tales of Berseria Remastered (2026) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [De
 ```bash
 magnet:?xt=urn:btih:647654E5AE4BBCEC13E9953CC735A5CCDB98B186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

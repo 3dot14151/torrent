@@ -22,8 +22,7 @@ Walking Dead: The Game. Episode 1-5 / Ходячие Мертвецы. Эпиз�
 ```bash
 magnet:?xt=urn:btih:B31A45CC541B6A57EE541F2BE80236D4A9A3E5B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Animated Wipes & Transitions Collection 1: Striking Changes является п�
 ```bash
 magnet:?xt=urn:btih:8C6CDF56C10DC1A301E572957D1EBB7E3CB8C63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Citadels – историческая стратегия в реальном в�
 ```bash
 magnet:?xt=urn:btih:99EEE6E9BCD7F261A988780CE0CEDE08C344FB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04E2020FB2FA7C46BD02BB81E4D8DA651988675D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2D94BD40E69CB6E2951F56F17869FBD86A913C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Realms of Arkania: Blade of Destiny HD (2013) [De] (1.0) License GENESIS [Die Sc
 ```bash
 magnet:?xt=urn:btih:51C7943E73B5B7E070FFB1EB4E2DE2605E108480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Magrunner: Dark Pulse (2013) [Ru/En] (1.0u1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:AD125BD5E41AD9314E8E9E5B99423B12BCFF3724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBC3056D83D6E9EC6E6301F0252BCD77B45ED0E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB5AD4FCF7421B9787F2996DA6663AC1CDFFEF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Symantec Endpoint Protection предоставляет не только пер
 ```bash
 magnet:?xt=urn:btih:BCEF49B42D1E723AEE0F9DC0DD019DE4C9203D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Super Meat Boy — это крутой, как яйцо, платформер, �
 ```bash
 magnet:?xt=urn:btih:1B6B72F1B719E1ACBEF501582A456812B7586C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ The Walking Dead: Episode 1-6 (2012) [Ru/En] (1.0.0.23) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:B58AD4A101036EADAB987FF186EAC5A8D0240A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ FAQ по библиотеке: http://traumlibrary.net/faq.html
 ```bash
 magnet:?xt=urn:btih:F495B6B5A040A7CF28606B57619A693C63A0277F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Citadels – историческая стратегия в реальном в�
 ```bash
 magnet:?xt=urn:btih:9BE1ED190310A42640880F0DB9EBB4AE413E0A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E734318D4D2C5EEC1DA5977B84FA0464E57BA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B977DED9F15B54A80B81A1385E5BDA5BD2ED35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAA85B43038136ED9E4A5C68E6421E471E1673CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Corel Painter X3 13.0.0.704, созданная художниками для х
 ```bash
 magnet:?xt=urn:btih:CE4DA6F4ED6D59B195752791440DD99640B26F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ Garmin: Дороги России. РФ. Версия 5.30 (FID 1868 + FID 4941)
 ```bash
 magnet:?xt=urn:btih:032FA3DC96604B97E1477623D5D45A5A95148DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ The Elder Scrolls V: Skyrim повествует о будущем Тамриэ�
 ```bash
 magnet:?xt=urn:btih:F5ABA7CE80E712D46204C3FE3EA6C68E1A2F8D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

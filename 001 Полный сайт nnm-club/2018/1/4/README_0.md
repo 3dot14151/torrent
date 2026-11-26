@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6050FAE9CCFE75C424A1ABF99F787D0D07662BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6C102D492F5B99CC793F0CB59FCEF50B5A326C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00C9E4ABD600F1CD23DD5EDF8BFCA811B51E4603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dead Link: Pages Torn / Цепи смерти: Обрывки страниц (20
 ```bash
 magnet:?xt=urn:btih:8682602AE2407F2224F18D157B2626DF90348759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF4E26CFDA1E6835E9AF5C2F3D9AD7F5A1849152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBAAFA1A8595F6E176A6673D109C94D019193199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Garmin: NaviGuide Hungary 2017.10 NT Final (+ v2018.10 NT Beta test) [Hu]
 ```bash
 magnet:?xt=urn:btih:058B474D44DCF82D28980754B502FF5A0D82FCE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90637640C0324B3478A8EAAC05F82EDEC8DD6888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ VA - Ретро Шлягер "Зимний" (2006) [APE|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:7F26DA7E10B8B94AA56527642A0695FF129F4241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Patrick Fiori - Choisir (2014) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
 ```bash
 magnet:?xt=urn:btih:B0B8BE593C1B1BE7DF44ED646DFA90A2BD9589E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Ummy Video Downloader - отличный инструмент для скачи�
 ```bash
 magnet:?xt=urn:btih:AB555E927CF35C37B4D576E0D42DDCE4EF86655C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:946936009C42138CF3ED45DDA0C2EE6B86227A4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ EditReady 2.1.4 [En]
 ```bash
 magnet:?xt=urn:btih:8136809CFA71CDC0AF338F10A36732A8B73AA55E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ David Lanz - French Impressions (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Cla
 ```bash
 magnet:?xt=urn:btih:65FC2691B9F041DB25F913B401C7599139542814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:500761C4AF5CDAFE356F2E3BF518C6E60DC72A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9005BD1344445E98E6A479526921D2109C2BEA81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ New London Chorale - Young Christmas (2001) [MP3|320 Kbps] <Crossover Classical,
 ```bash
 magnet:?xt=urn:btih:1EF8476FAB6F2B5FA8F7BA8331B30B641BB01867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ David Coverdale & Whitesnake - Best Ballads (2018) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:D52C294A49973A212DCB972DC723A3ED5603A035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE621A1DF6693205396EDA4379F4F2A47788374D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ Garmin: City Navigator South America NT 2018.20 [En]
 ```bash
 magnet:?xt=urn:btih:6B44199BCF9AC1D1FF1E3FA6F9AF7C68E2E13457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ New London Chorale - The Classic Christmas Collection (1998) [MP3|320 Kbps] <Сr
 ```bash
 magnet:?xt=urn:btih:1FE8BB8DBE8E017327D03BDE6F8E065ECE4B6D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D7C0653C11178299E492E4D5646813D503DDA30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:214123D30B9A0635F587E9437FE171A1A92B1AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72853A57339FDBAB4922999B5AECAA1819C73FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E0755AC9C02C58E76F8A63006A99CD086D9C528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ Garmin: City Navigator Australia & New Zealand HERE NT 2018.30 [En]
 ```bash
 magnet:?xt=urn:btih:9B709651C99C1EEE7C12812667D594F9B74C4142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Vaporum — однопользовательская ролевая игра о�
 ```bash
 magnet:?xt=urn:btih:A6672A8722F57839CEE9F7B004DC64FBB57FB23D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 ```bash
 magnet:?xt=urn:btih:1FD9BEDF92963419A1AE81CFBA41009230F7B3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vaporum — однопользовательская ролевая игра о�
 ```bash
 magnet:?xt=urn:btih:47A682E1A85121328CBCEBC19DFD79B246A61A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Gorky Zero: Beyond Honor / Горький Зеро: Фабрика рабов [R
 ```bash
 magnet:?xt=urn:btih:BE6136A82B96BD308485F25E12FFF87C1212DCF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shanghai Dragon [En] (RePack) 2003 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

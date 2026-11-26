@@ -22,8 +22,7 @@ The Joe Newman Quintet - Jive At Five (1960) 1989, Original Jazz Classics [FLAC|
 ```bash
 magnet:?xt=urn:btih:2AB6784720B2FB42DE8197CDD50C909FE9286D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - We Are Trance Vol.4 - Autumn (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:55AE8028A37486C28CA2A88F95CDB582D2322CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Phil Woods - Freedom Jazz Dance (1969) 1990, Moon Records [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:DA68FAFCA523BC428A514FD025178A9552572298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D53480735D85CB2E3E08978440AE2FE28FB24D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Silk Music Showcase 06 (Mixed by Jacob Henry & Tom Fall) (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:3CC5402511949152902B41BB6AB55F9E860ACEFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ ChronoSync представляет собой приложение для Mac, 
 ```bash
 magnet:?xt=urn:btih:3C637E669EACB54BC8668282A5C18255C8205B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ VA - Sunrise Blend - 2017 (Compilation) [MP3|320 Kbps] <House, Deep House, Big R
 ```bash
 magnet:?xt=urn:btih:CAC3C5A6923D4BFA4B3448D9BB69F3BDD1801E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Recoverworld Radio 015 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:DF7D90BF44D732E10F2D722149ABD1F24ECF9B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ CD1 - My Melancholy Baby:
 ```bash
 magnet:?xt=urn:btih:D6FAF8A5D4CE8807BF301A51417EA0EF9D15FFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Julesanger - Julestemning Pa Piano (2017) [MP3|320 Kbps] <Instrumental, Piano, E
 ```bash
 magnet:?xt=urn:btih:F8751F84253EFA6702AE7C0D82C7586349C04BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Invisible является простым в использовании и оч�
 ```bash
 magnet:?xt=urn:btih:0E96D3D522E247C8240C33CABC972F44DBDF41C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ VA - Trance Dreamcatcher Crystal (2017) [MP3|320 Kbps] <Uplifting, Melodic, Prog
 ```bash
 magnet:?xt=urn:btih:905F66E78D46B929DF788EAE1BA757D2A75B0CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Slimjet 16.0.2.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4E7CC39BC148EF540FAC5BBE66A564379D3F0AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D2736A8D42B5796210AE97C284C8DC4C6B16C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E36EC0B773A3920DD8D98E5677E2C355725A1CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ VA - Zouk Monster Vol 1. (2017) [MP3|320 Kbps] <Pop, Latin>
 ```bash
 magnet:?xt=urn:btih:0BEF46D4F0FC4DFE1C5C3B89C7B2326AFEDDC97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ VA - Off The Beaten Paths 2 (2017) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:9E1DC789A0CC62C6B76AD2F10847A84A65B41297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ VA - Markus Schulz - Global DJ Broadcast - (Amsterdam) (2017) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:2C62315024112167B68698BAD820102C09296F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90B6B7C1C4AEEABA64698A670CF71B32CEBFCE25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ VA - Dance Charts - Dance 50 (Dazu Tanzt Ganz Deutschland) 05.11.2017 [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:C19244CEE233A7294D42367F5A971FE3B9E4B07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ Arturius - Arturius (2017) [FLAC|Lossless|image + .cue] <Symphonic Progressive M
 ```bash
 magnet:?xt=urn:btih:12FB110891FDDA8E57345D80E028A0C2FEEFD08B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:19469DA2797FD9AF42F73951F83EB182459F67D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ Savage Messiah - Hands of Fate (2017) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:BDBC8E190EB247C6E3A89C5FC2F965C1A7684114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63399F497EAC52420B11963EF905EED300A834D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:401C5B18330CBCA0ECE4D40A84EB82550E76B8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

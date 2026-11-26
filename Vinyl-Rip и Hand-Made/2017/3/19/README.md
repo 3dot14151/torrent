@@ -22,8 +22,7 @@ A3 Living For The City(   Читать дальше...   )Жанр: Pop Rock, So
 ```bash
 magnet:?xt=urn:btih:2906884ADBF37668CA2AD34CEE6069019342E8EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

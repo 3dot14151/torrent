@@ -19,8 +19,7 @@ Dorfromantik - это расслабляющая строительная стр
 ```bash
 magnet:?xt=urn:btih:53B1AE7F004D8B759F8CF41527BD20705036ECE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

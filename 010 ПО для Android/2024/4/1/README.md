@@ -19,8 +19,7 @@ DailyRoads Voyager v8.1.1 (54) Mod by Eco19 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EE31C17C0EEFB04F8C97264CE19E6160DDB93110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D77BFBCA64FA764FF60B661B4C6702FCE808D5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ DailyRoads Voyager v8.1.1 (54) Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B936278FF7A38C6C5BB9BEDB4A182AEA9EEF54E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

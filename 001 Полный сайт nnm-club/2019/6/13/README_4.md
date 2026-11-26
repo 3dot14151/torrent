@@ -18,8 +18,7 @@ TNOD User & Password Finder – крайне полезная утилита д�
 ```bash
 magnet:?xt=urn:btih:CDC66572E6BAF1653160362D97D33E97711EF889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

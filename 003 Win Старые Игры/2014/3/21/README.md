@@ -22,8 +22,7 @@ The Witcher: Enhanced Edition Director's Cut (2010) [Ru/En] (1.5.0.1304) Repack 
 ```bash
 magnet:?xt=urn:btih:40C9610D855DC5F739DB5F2138C00B023113B58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

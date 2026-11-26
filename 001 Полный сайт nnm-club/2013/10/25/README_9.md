@@ -28,8 +28,7 @@ VA - Trance Pro V.38 от AGR (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:558D85C833E2BC27A9E60709922F8255F7138430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Big Family: Trance Afterglow (2013) [MP3|320 кб/с]<Trance, Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:E35B47147E1B263F2B834D94F96BF59420445C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Trance Pro V.37 от AGR (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:C897EDD2389CA8CD22583655635509888235DC6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Trance Pro V.39 от AGR (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:970C9F3EC15D6283E36A3A61FEFF9E81AE3065B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - 50 Ibiza Anthems 2013 (2013) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:C0D94BF2E0DED5CC1E4B6A71125999B8CD67A8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149F7323D8B6D9E411C17ADD4AAC07658349596F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Crionics - Neuthrone (2007) [FLAC|Lossless]<Blackened Death Metal>
 ```bash
 magnet:?xt=urn:btih:D83E5664F542766E089E54A6DA44DA0533ACF5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Fisherman & Hawkins - Night Shift Radio 001 (18-10-2013) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:0CF0B70E10976EEEF8B2BD815D993DC1CDB6D14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 ```bash
 magnet:?xt=urn:btih:514DD39AEE3694198C75005E5942471A19AC459F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ Hucster - Hucster (2013) [MP3|320 кб/с]<Blues Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:21DA834C24C6F22964E4D416A444817EBBD1EE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ S1gns Of L1fe - Branches In The Sky (2013) [FLAC|Lossless|WEB-DL]<Psybient, Down
 ```bash
 magnet:?xt=urn:btih:1592C9E67A1209C0E140BA9B32365A4CEA437697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:06EBA17212BD32A75405A79C8C2014C1180A7E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F3F9C60523B3B65B2EA65B662C884DBD6C703E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:650A803A24755F73683E03C12A9BDC8E6A11293D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ VA - 15 Top Trance Hits 2013.10 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5E1E61CD03E068CB0CF9356F5C04C39865EDB670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +516,7 @@ VA - Клубные Новинки Vol.322 от AGR (2013) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:C68A7AB066D6A81026192EF4F322856583FB45DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD008999976CFFA1CC7583818A553EFC555434F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CDE9EA4F7FC7ACF8F45CA3F05021F42F1F6A06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C49BA6E11F8E7364A3F66C34D016921A1D6AB6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:637D13F6FB5FFB47D0FF701420A78E2F7BB8A47C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ VA - Дискотека 16 + Home Party Autumn (2013) [MP3|256 кб/с]<Pop,Danc
 ```bash
 magnet:?xt=urn:btih:9C01BADF883E409B28273FDBB2AE6FF2E521B153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B4664138CF035B2E5E2088AB8BA166C1A33C650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB9EC212DD7A086A802B0396B4A4E5155C94E291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B6A7ECDA7EC1D30845DCD444F8BCD993A1614C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

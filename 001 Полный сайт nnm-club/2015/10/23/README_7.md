@@ -18,8 +18,7 @@ Ubuntu 15.10 ("Wily Werewolf") — является очередным дист�
 ```bash
 magnet:?xt=urn:btih:51E0676B4DF763AAB7AC2663B249FD4E389D2D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Foxford | Программирование Java и Android, 9-11 классы (2
 ```bash
 magnet:?xt=urn:btih:38FD756D1BD9AD6905D1EF3EA6A44921A9D1AAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EFD6BB2D4BB86934A2AFB59EE755D38A94CF045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2230FF0AF0CA7FCBEB290189A72C0F31706B63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Foxford | Язык Python для начинающих,6–8 классы (2015) 
 ```bash
 magnet:?xt=urn:btih:979ADD441FC2E2D33EF0200F0AC6D47756E4A317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grand Theft Auto: San Andreas Много денег v1.08 [Ru]
 ```bash
 magnet:?xt=urn:btih:23CFCCA4200F2D68F4FC5FE3BFC0585838CFD434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Infected Mushroom - Friends On Mushrooms (Deluxe Edition) (2015) [FLAC|tracks+.c
 ```bash
 magnet:?xt=urn:btih:A5D0465326B700722ACB13E78EB9FF1301F4A811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Windows 10-8.1-7-XP x86 x64 Plus PE Office 2016 StartSoft 77-2015 [Ru]
 ```bash
 magnet:?xt=urn:btih:4EC9B3D65ECD4CCB450490F8CC57DA527B47D7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC51DCCA058E5FC701B1B8AF42C0A3CCEAC15C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Assassin’s Creed: Brotherhood (2011) [Ru] (1.03/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:9E5EF30E0E9DC8675CCDFEC451371D8192D6C3FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Infected Mushroom - Converting Vegetarians II (2015) [FLAC|tracks+.cue]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:49090F4B45D9141A42EF116183FE4BE76C1CA40C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Assassin's Creed: Revelations (2011) [Ru] (1.03/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:07EB0DB39466F10118D247206F8173D5D24CCA00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B70348831F649B60178270BF4DA22233A24B87C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B70E80753B63DF36306F381E91CFCEAEA5B2AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Navitel / Навител Навигатор GPS 9.6.1327 Full [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E66A44FC7A8005BC31C05FC6EF597CA3F75419D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

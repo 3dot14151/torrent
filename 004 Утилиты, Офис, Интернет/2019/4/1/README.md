@@ -19,8 +19,7 @@ Advanced Uninstaller PRO 12 - быстро и полностью деинста�
 ```bash
 magnet:?xt=urn:btih:6789CC53F4E53A08B8A5EC186C928ABB0B512656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

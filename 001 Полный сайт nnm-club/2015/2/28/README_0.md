@@ -22,8 +22,7 @@ Neil Finn - Dizzy Heights (2014) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:E9D681242189C2F68B50BED9994237CAE86E4FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Georgie Auld And His Orchestra - In The Middle (1988) [FLAC|Lossless]<Jazz, Big 
 ```bash
 magnet:?xt=urn:btih:3E8E42A9D455C70BA5F85F87605513E76923FA43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Carnal Agony - Preludes & Nocturnes (2014) [MP3|320 кб/с]<Power / Thrash Meta
 ```bash
 magnet:?xt=urn:btih:F0B1F761C7A40ECC53BD4D014450FF784F4D734C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Nicola Conte - Love & Revolution (2011) [FLAC|Lossless]<Bossa Nova, Acid Jazz, F
 ```bash
 magnet:?xt=urn:btih:44AD6C7F60AA2F4150039928BDFFBB5C2C19B75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Soul Position - 8 Million Stories (2003) [FLAC|Lossless] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:746700857DB26C39EBF8DCE7AF146F29A8E4B50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Enslaved / Shining - Shining On The Enslaved (2015) Split [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:3DE000714427142CDE9D3D1A080F9268CD0720B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Marcus Malone - Stand Or Fall (2014) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:1E782BD48C76F32EA5AE6ED5E9B1BDD39BDFF4E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Mirratal - Rising Sun (2015) [MP3|320 кб/с] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:408C51EF562306E9B16397843E710B650F459663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ Carach Angren - This Is No Fairytale (2015) (Limited Edition) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:77480F53C0C5819B6A1C9B1651D63766740BF6D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ Cannibal Ox - The Cold Vein (2001) [FLAC|Lossless] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:98924C071F1D4F69DE0FDB6C12114625105763EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ DeadStar Assembly - Blame It on the Devil (2015) [MP3|320 кб/с] <Industrial M
 ```bash
 magnet:?xt=urn:btih:171F7103BA40FEEA03F69A8503F7B416CA575E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDDE312873213FDAD806B8FDF481373EED0B86A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ Friends Will Be Friends - Welcome To The Backstage (2015) [MP3|320 кб/с]<Post
 ```bash
 magnet:?xt=urn:btih:1A4389ED4523E753C358EBF546A3A7B785637449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B02D6FB9888E095A897DDDA107194763D0B3C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ Kelly Clarkson - Piece By Piece (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Pop
 ```bash
 magnet:?xt=urn:btih:5C563283FA6A7DF6AA46CC8B6969B23FC8F99E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48099B1621A347073722996D455221A1CF86F155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +475,7 @@ Leah - Kings & Queens (2015) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:B408E111C42C70D018C8B6A64115B1A3C1B262F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E141F059491356D1BF72B986E778D0F849FC8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ Fast Eddy's Blue Band - Blues & Songs: Best Of 25 Years (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:A7F0377DB3268144A147230684855AE0FC7332DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +583,7 @@ Smooth Jazz Cafe - Smooth Jazz Cafe (2014) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:4CBEFDD559731704A40755291A219D5ED3FABA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87C53006435D05D76AFA4EBD6E01A647CF603ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ Pink Floyd - Live at Fillmore (1970) [WavPack|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:324D2163348A627A898A4E6FBA1FF3F22DDAFB33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A100EA8F676B24E00F0920A9AD4B78350DEAD6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ Lorn - The Maze To Nowhere / Part 3 (2015) [FLAC|Lossless|WEB-DL]<IDM, Bass Musi
 ```bash
 magnet:?xt=urn:btih:0E0EF530FFA7F28CB02BC3C598F72BB4B0E0A39A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C42E2CB97252F658929304A964F6545C9695B0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

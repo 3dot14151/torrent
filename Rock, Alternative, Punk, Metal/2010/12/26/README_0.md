@@ -28,8 +28,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Def Leppard - The Ballad Album (2006) Remastered & Expanded, 2009[Compilation] [
 ```bash
 magnet:?xt=urn:btih:37BB94C418E3219B452E005A9F4963EE81A008C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

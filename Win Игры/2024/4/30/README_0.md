@@ -19,8 +19,7 @@ Cavern of Dreams (2023) [En] (7.5) License GOG
 ```bash
 magnet:?xt=urn:btih:0A5CC1599D1633F51B0A4FD9FBE387CB48807C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4C0FADA96D92BC053EF9E26F3B239D9B6CD7918F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Remnant: From the Ashes - шутер на выживание от третьег
 ```bash
 magnet:?xt=urn:btih:B4597ADE67270947AEA3D9E90AEC9EF98578F115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Three Kingdoms Story: Conussia - это история о Герое, оказа
 ```bash
 magnet:?xt=urn:btih:7B3BD35D04F251F168554EB162DD680836C01891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ War Hospital (2024) [Multi] (1.10/dlc) License GOG [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:3838224D6EE570B6B79CD0106B7A6467CDCEE523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dawn of Man - уникальная историческая стратегия �
 ```bash
 magnet:?xt=urn:btih:C569D56EDCD7B7AFDD8AB29FC897CFA69BC3C88D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Project MIKHAIL: A Muv-Luv War Story (2024) [Multi] (1.0000.5178) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:41E6D912B8C5003894B264A32443634685FF630E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:F2F752D29CA8BE6B48E47D5FC91645B8DF78D265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Unholy Village – Иосиф вместе со своими друзьями о
 ```bash
 magnet:?xt=urn:btih:15E3268CB0EA3236C96C100D2F41B397FC2F0E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Solium Infernum - увлекательная пошаговая стратеги
 ```bash
 magnet:?xt=urn:btih:8DCB71C990020DDF23585D6918C0077D07DCEDB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Tad the Lost Explorer - это увлекательный трехмерный �
 ```bash
 magnet:?xt=urn:btih:64B2E437FD984FC2A2E00287A80AE2F678B96037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Oriental Valley - симулятор жизни, где вы создадите 
 ```bash
 magnet:?xt=urn:btih:6A5321D82F8514BC61CE4323BE95F997122E7508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Bootleg Steamer – перед вами традиционный рогалай�
 ```bash
 magnet:?xt=urn:btih:933B17FC61FC077CE3CE2694E7BB533CA0CC6DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Five Nights at Freddy's: Security Breach - хоррор-выживастик, г
 ```bash
 magnet:?xt=urn:btih:C9A9002DFDDE0F34D4C96C09864FDA95360DB4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

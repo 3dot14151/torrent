@@ -22,8 +22,7 @@ A4 Believer (Верящий)(   Читать дальше...   )Жанр: Heavy 
 ```bash
 magnet:?xt=urn:btih:1093B42A25CC5F36E0B57C13CFDA653138B1FFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

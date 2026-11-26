@@ -22,8 +22,7 @@ Artificum Nex - Desert of Sins (2013) EP [MP3|320 кб/с] <Black Metal, Melodic
 ```bash
 magnet:?xt=urn:btih:125A45A75A13587D90B4659BBC6C269E2FA434D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Johnny Lima - Unplug 'n Play (2015) [MP3|320 кб/с] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F6CE9077AD2C328A182989481B8B0A518DC17ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Baroness - Purple (2015) [MP3|320 кб/с] <Sludge Metal, Alternative Metal, Pro
 ```bash
 magnet:?xt=urn:btih:FF4183177C35BC1223DC2F03D4FAB52FC795D627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Genesis - ...And Then There Were Three... (1978) SACD, Remastered, 2007 Virgin [
 ```bash
 magnet:?xt=urn:btih:FB34CFAA79CD67550F459FF384082E1A28B04033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Avril Lavigne - The Best Damn Thing (2007) [FLAC|Lossless|image + .cue] <Pop-Roc
 ```bash
 magnet:?xt=urn:btih:C920904509A8CB38128333464FA59565B0E07F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Lemmy & Motorhead - Leaving Here - Second Hand Songs (2016) Bootleg [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:903981AC6797F9E59A68C0C81C27D139A3280444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

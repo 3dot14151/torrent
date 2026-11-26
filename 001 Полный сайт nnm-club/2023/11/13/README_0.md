@@ -18,8 +18,7 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:B578BF97140F50D887B2A96E67BC9C6A6624126F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Hit News Vol. 13 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 ```bash
 magnet:?xt=urn:btih:4D177C9EB9FF0C3A9FA91DE66726438B4ECF6F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:68728767C48C9E96FC64CC35F9D17C861D91C174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:BD90468936D821A0399CA726252FEFBB312D2A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Hit News Vol. 12 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 ```bash
 magnet:?xt=urn:btih:1613056984F4769758FEC947455698A338D27548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Vivaldi 6.4.3160.42 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7ABF342C179162C461BC2DA51E30EDE3A6584646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Jef Bek - Distant Starlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 ```bash
 magnet:?xt=urn:btih:560ACD35333D88EC22AF832A0E4FF68E18E73095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:FD061E2900B25912E0DDE00DD84B32B1169850B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (1111) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:9272313D47FD7CD30E1DAF9E29819CDD47913968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ VA - Hit News Vol. 11 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 ```bash
 magnet:?xt=urn:btih:61D0FCA0625367605CD0ED2C3C6CE96ADAB629E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Monkey's Audio — данная утилита предназначена для
 ```bash
 magnet:?xt=urn:btih:AE80A43BB22FB489811C68E95DC31BF3293C006F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1111) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:1E2FC35DEA1FA63D3EA623737E842438176D8859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ AllDup - бесплатный инструмент для поиска и уда
 ```bash
 magnet:?xt=urn:btih:3952CBE873CA01A4F5BC70F893D1252AC862CBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:6DFE3FF3F3C251ED98417E402C31AA8C833B16EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1111) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:1C29071AEA0C5B5915328D259763AC1A9CF08A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:C6C0F42D3B04616B866A4788110060D64F8F74C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:946C399A31C4039829A36B6B77AA346DABA75FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ VA - Hit News Vol. 2/95 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 ```bash
 magnet:?xt=urn:btih:4D952D40B42B2B5FE500170ED6C1B208BE498DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5651D7B5E0F559EA92B717167A16933ECAF56A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 ```bash
 magnet:?xt=urn:btih:4B7CB4AB776E264BAABB4023ED700AF72D1494BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ HomeBank можно настраивать полностью под себя, �
 ```bash
 magnet:?xt=urn:btih:B2ADDED0DD4BBF0B553EC049B598E753DE27BC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:A862A40581F7164C0DC39BB0E86F6E7E17D931A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56AC25F45AC8E1E9ABDEE09E4AF68553E378EAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ SILKYPIX RAW Converter — это программное обеспечение,
 ```bash
 magnet:?xt=urn:btih:27834081194559F4F18F88F776F72D3F2CB30603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E96266C0BE46BA20805D3E7E7EE5DC7CFDA015BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F30424AD5BA0A350803CFE8F0D7AD8A4C1B66473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

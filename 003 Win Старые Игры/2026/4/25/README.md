@@ -19,8 +19,7 @@ Demolition Racer (1999) [Multi] (1.0) License
 ```bash
 magnet:?xt=urn:btih:E2C811343BC64EE3A7BD9C34390431CABE8BCA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeon Scroll - это игра на правописание на тему п�
 ```bash
 magnet:?xt=urn:btih:3EE6757577D679601EB868348CDF33B6358CA8ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Insane / Безумие (2000) [Ru] (2.01) License
 ```bash
 magnet:?xt=urn:btih:29EA56EB14F25248AFF1566443A9247E33E8EA13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gangland: Trouble in Paradise (2004) [Ru] (1.4) License
 ```bash
 magnet:?xt=urn:btih:11EB510CAB7C992BBA83F236A9140D99CF4156BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Vampire: The Masquerade Redemption (2000) [Ru/En] (1.1) Repack R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:0D769DC66655F4C021F4B2718D82D1434209711B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ TrayButton for WhatsApp 1.0.83 [Ru/En] [Авторская раздача]
 ```bash
 magnet:?xt=urn:btih:F7A0FBF3F95C1938BA912167F2F11C9D1839E3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

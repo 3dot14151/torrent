@@ -19,8 +19,7 @@ Grim Facade: The Artist and The Pretender / За гранью жестокост
 ```bash
 magnet:?xt=urn:btih:CACB34894FED1A45AA76384538EC721330419C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eets Munchies (2014) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:88A6907C18A772CE79B6988A874ADD1BF79B2687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dream - игра-исследование, действие которой пр�
 ```bash
 magnet:?xt=urn:btih:A716CA2226FBCB7F5B000E61813FCB40FB505DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Thief (2014) [Ru/Multi] (1.7.4158.21/upd8/dlc) License PROPHET [Complete Edition
 ```bash
 magnet:?xt=urn:btih:EA1040627B00419C40FB00D3096F377736177273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

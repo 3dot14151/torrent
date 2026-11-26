@@ -22,8 +22,7 @@ One True Pairing - One True Pairing (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 ```bash
 magnet:?xt=urn:btih:BEA07A5C01CFDC9593E3B9667D264EC05FC0CCEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hatchie - Keepsake (2019) [FLAC|Lossless|tracks + .cue] <Dream Pop, Shoegaze, In
 ```bash
 magnet:?xt=urn:btih:A3A128EC408F7E16C30DBBAAB9263D33BFE55B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chastity Belt - Chastity Belt (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 ```bash
 magnet:?xt=urn:btih:21F3C81F6B4A5313DEE1CE6D88DB6D668F0E846F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Grant Green - Slick! Live At Oil Can Harry's (1975) 2018, Resonance Records [FLA
 ```bash
 magnet:?xt=urn:btih:98CAC5A24F062AC3A2E84C1FE6CEB2E049A595B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Monster Rally - Adventures on the Floating Island (2019) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:A21A6CD766E8056B96D6C0B42DA933F2C1FC2161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:528830C0E25AAD1E5329271A01696659E23E1D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Jimi Anderson Group - I Belong (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:74E533EC5E389F84614A5BF8EB02B5EB5BBAD6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Psychoz - Garlands (2019) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Psychill, Do
 ```bash
 magnet:?xt=urn:btih:D804D65114022AF344B330FB54028665D8990C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Take a Trip, Pt. 4 (2018) [FLAC|Lossless|Web-DL|tracks] <Trip-Hop, Electron
 ```bash
 magnet:?xt=urn:btih:36DABFA4F13063B3062904BBE8F7ED0DE2948DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C0D27E9D7C0726159D4F362F6B44668EA30B61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Telefon Tel Aviv - Dreams Are Not Enough (2019) Scene [FLAC|Lossless|tracks] <ID
 ```bash
 magnet:?xt=urn:btih:AE25C9C3A94B761DAC4430B61836F2BCB235F2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Chime - Disco (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:13F5B60D81361D832D8A52A942F36BB7B962B7F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ SuryaDemaH - Ashirvaad (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo
 ```bash
 magnet:?xt=urn:btih:CDB413431FF7A8985CEB04BA1510F4CBCEC6B170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Roadrunner United - The All-Star Sessions (2005) [WavPack|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:0633958E80560AFD167587F3B9510DBCDF33D45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ The Green Kingdom - Expanses Remixes (2019) Dronarivm [FLAC|Lossless|tracks+.cue
 ```bash
 magnet:?xt=urn:btih:8663B8FD98CBACFE06C99CB5EC0AEC727AD9E07B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ Ahmed Romel - RUYA (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:EC9BF3DCF46876ED8D347043F9B5921FC50AEC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ Cosmic Gate - Materia: Chapter One & Two (2017) 2CD [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:943F72550B173AA2DD6E4D36F58B9040D2F0CD09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F5BE4E4B42D56A8F8B00B5A19D07032B048C363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ Emy Care - Dreams Of Fantasy (2019) [MP3|320 Kbps] <Italo Disco, Euro Disco, Syn
 ```bash
 magnet:?xt=urn:btih:58212C735BECCB1D0222E5F1655D389095B2B76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ VA - Metempsychosis (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Chillgressiv
 ```bash
 magnet:?xt=urn:btih:9ECBDD50042DC5B297D7586D503558F1A43FA907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8D8B4A167609190DEA3C88C0E4C9C95C16EC908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ VA - Chillout King Ibiza: Sunset Hours (2019) [FLAC|Lossless|WEB-DL|tracks] <Dow
 ```bash
 magnet:?xt=urn:btih:DC6BFC887EC44AAE893F35FA59CF1427E682D42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ VA - ZNA Gathering Retro - Futuristic Compilation II (2019) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:9504EF6AE48BBE4BD737BFB8DBF6602A73F82AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ VA - Astronauts in The Solar System (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Tr
 ```bash
 magnet:?xt=urn:btih:864FEFA836B38BBD717524D8E560CFF6E06C4181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ Christine - Echoes from Dawn (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, S
 ```bash
 magnet:?xt=urn:btih:99F8B4ADAD41B9CF6308527C117006E652BD575D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ Lydia - Timeless (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downt
 ```bash
 magnet:?xt=urn:btih:0E133F09B5AE643705B75C8D1662CFD679596ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

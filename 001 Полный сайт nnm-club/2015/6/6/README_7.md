@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:501FDCBAC46A5EA4D2D2824C50F4CA2384BEBE71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Resident Advisor Top 50 Charted Tracks For May (2015) [MP3|320 кб/с]<Hou
 ```bash
 magnet:?xt=urn:btih:EE2360A37FA409EA208E8AC8A9921A8094FDC9C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Animal Soup - Lover's Leap (2015) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D2DC75A7AEBE6A5BC6D1D260372031462828AA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Chill Acoustic Playlist 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Pia
 ```bash
 magnet:?xt=urn:btih:43FE25623B3C565D5A372A94D644AD76F207A3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Techno Top Spring (2015) [MP3|320 кб/с]<Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:C05F3BD2561164C8022E5F1D968A4FDF4B8C04BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B5C18799D947FD094DC2E04DA7D606F97856437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76400A16704FFEA93826D35EA667C206C1028F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Steve Hughes - Tales From The Silent Ocean (2015) [MP3|320 кб/с]<Progressive 
 ```bash
 magnet:?xt=urn:btih:9312163011F07BCE43FDE0D0406B65E9DD57D75D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85A2E7F6A1023C3A24A80E69A062A96DBCB5116A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Embryo - Embryo (2015) [MP3|320 кб/с]<Melodic/Symphonic Death Metal>
 ```bash
 magnet:?xt=urn:btih:9A6142600ED3640AF03DDB6A53E1651E1F6A1B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9196C365149D156376FC650C4ABF102A3C3EFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Loaded Gun - Loaded Gun (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DB1B3336E78AB4D21949961A742A112C30DEB7F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ The Story So Far - The Story So Far (2015) [FLAC|tracks+.cue]<Pop Punk | Punk Ro
 ```bash
 magnet:?xt=urn:btih:BE2080336EACD0883C2C7C9456112CDD63144C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C15FDBBE89A6DA9E713A85A038C03E4D753F693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ J-Live - All Of The Above (2002) [FLAC|tracks + .cue] <Hip Hop, Conscious>
 ```bash
 magnet:?xt=urn:btih:231C26380EB1E98FF303AF72BDC0F0E6314ED236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97DDF8B06F9A0D648B298B4248AB185BADDACA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A56E0ADDE2322F7FC265A6F37BB0265E8B4909D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ FAQ - Цирковые Псы (2007) [MP3|320 кб/с]<Rock,Punk,Alternative>
 ```bash
 magnet:?xt=urn:btih:D6163996307437E6B1404F7415ED8D2E56EE7DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ VA - Lounge Cocktails (2013) [MP3|320 кб/с]<Lounge, Jazz>
 ```bash
 magnet:?xt=urn:btih:4367CD86DA1A30CC08133332D32C7C909A1D5CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ VA - Club of fans Dance. Vol.3 (2015) [MP3|320 кб/с]<Сlub, Dance>
 ```bash
 magnet:?xt=urn:btih:00906C5F37AF1D7D5FCF924AB2F329795E567C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ VA - Tresor - Lounge Chillout (2015) [MP3|320 кб/с]<Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:2D85343EA80CE97223814EA42F0AF19E5A9176D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F7A575758EA2EBD6FA942546D44B13B32CF92A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5719C8E696E6948B9373E462EE3488F6D9F00928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ VA - Summer Chill (2015) [MP3|320 кб/с]<Chillout, Lounge, Deep>
 ```bash
 magnet:?xt=urn:btih:D98A14B4352932BF1AD7BE04909F02103E90112B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32F5605BAE46A3D7DCCAF0C697EDC337AD9B681F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ Aesop Rock - Labor Days (2001) [FLAC|tracks + .cue] <Hip Hop, Conscious>
 ```bash
 magnet:?xt=urn:btih:D164A32A5CB70D043285D7538A6F23B19E874B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

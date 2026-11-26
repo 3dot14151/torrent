@@ -21,8 +21,7 @@ Mark Knopfler - Duets & Collaborations (2024) [MP3|320 Kbps] <Rock, Country, Blu
 ```bash
 magnet:?xt=urn:btih:C2BBB20CF3EA3894E1FC6959AABBB1DB011F1A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Glary Utilities - комплексный набор инструментов д�
 ```bash
 magnet:?xt=urn:btih:E1565DF9EDE4328CD709827557C363C512238B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - The Essentials: Classical Crossover (2024) [FLAC|Lossless|WEB-DL|tracks] <C
 ```bash
 magnet:?xt=urn:btih:17765DFA5EFED270B60973D57F46512548917916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93A8D47C898BC7A0160DF1A647A5005D4DCB0C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:BC2D6F12803EE0C34774744A5A5FE90059F18D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5075EFE9BC67AC72C9A3E505E1210D2146D2794E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:2079CB37541EC0C57A8C87293C5D11A07ECEA071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7DA873BCB324721B29ADBACCC571E78F17FE26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:551FB45840F91ACC3FAB28595B781FC29058141B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Dont Sleep - утилита, которая временно может откл
 ```bash
 magnet:?xt=urn:btih:D57ACD1CC6CB2CE090516E3CC1AB674FD752E80E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Malware Hunter - отмеченный наградами продукт, кот�
 ```bash
 magnet:?xt=urn:btih:00D5E5B496C6439A2B91BE2BA48C830754A22A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF933B13F31EF68E4968FF24BAAC71C829904FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Absolute Uninstaller – это программа похожая на стан�
 ```bash
 magnet:?xt=urn:btih:983165C698D0B54DCFD6D8AD82FF4193DB13C168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Quick Search 6.0.1.9 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7EE4943A782DFE2EF6D6DECFC9FEC8779AD9FBAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ VA - Disco Club Hits & Secret Tracks Of The 80's And 90's (2021) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:25ED7CFE54CA1BE7D92631995A297275EDA91913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Freeplane – создание ментальных карт в настояще
 ```bash
 magnet:?xt=urn:btih:8946C4FE16E926AE3F509FDC1C223AC6BB21B5E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ Change MAC Address – программа, с помощью которой мо
 ```bash
 magnet:?xt=urn:btih:C96E3B186B9A1CA31A47B11C8D726F2E7A3D4BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ DesktopDigitalClock - простые и красивые цифровые час
 ```bash
 magnet:?xt=urn:btih:27B16A21CD857FB8C3E3A27770BB52283B684554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

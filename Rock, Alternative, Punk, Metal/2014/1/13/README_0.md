@@ -28,8 +28,7 @@ Dominium - Psycho Path Fever (2002) [WavPack|Lossless|.iso.wv repack]<Progressiv
 ```bash
 magnet:?xt=urn:btih:24EE5BB1158011F34585AF889B3F5DF9726DB854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Dying Tears - Amnesia (2000) [WavPack|Lossless|iso.wv repack]<Symphonic Gothic /
 ```bash
 magnet:?xt=urn:btih:3AE8E02BEF7523A92D27BED96A3D409CA8F1BA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Skydancer - Land Of The Grim (2013) [MP3|320 кб/с]<Melodic Death Metal \ Thra
 ```bash
 magnet:?xt=urn:btih:87044D26A32B1EFDD12CBAFA3C5ACC53C1563695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Vicious Rumors - Vicious Rumors (1990) Japan [FLAC|Lossless]<Heavy Metal / Power
 ```bash
 magnet:?xt=urn:btih:81B1BCF7E70DE4910F40EA20348807D0953B5AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Dorn - Schatten Der Vergangenheit (2002) [WavPack|Lossless|.iso.wv repack]<Black
 ```bash
 magnet:?xt=urn:btih:5E0F2C84032C987601ED96B9553E81A1F26E90C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Evergreen Terrace - Dead Horses (2013) [FLAC|Lossless]<Metalcore/Hardcore>
 ```bash
 magnet:?xt=urn:btih:EA05F12EBF71A61DDD0EA559E7C1B71F497AB9E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Fiend - The Blooming Tremble (2009) [WavPack|Lossless|.iso.wv]<Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:E4B5EA0FE79DA35CD210B3E5E23ADD3FE6F47D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Cremation - Rise Of The Phoenix (2012) [MP3|320 кб/с]<Death metal>
 ```bash
 magnet:?xt=urn:btih:71E7CE69B328A39FBF144E633237370D6239D18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Metalism RecordsЖанр: Symphonic Gothic Metal |Продолжительнос
 ```bash
 magnet:?xt=urn:btih:5938D92C289D00DC7EEE0143DFAC1CEF49507981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ Walk On Medley:
 ```bash
 magnet:?xt=urn:btih:4A7151BA872082567A608E711BE09472F4C01BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +358,7 @@ Andrew Stockdale (ex-Wolfmother) - Keep Moving (2013) [FLAC|Lossless]<Hard Rock,
 ```bash
 magnet:?xt=urn:btih:BD8A9EEFA2A0BD6017CD1B80105565CC2DB8F1A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Gundacker Project - Plug Me In (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B3A91073475EA9A463CE999584A630FF53AF8C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +420,7 @@ Musicians:
 ```bash
 magnet:?xt=urn:btih:3C5D2757B964C6CC5670E7CD4821CE5BA1E74BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DB8E4D0DC44E4B7332FE7C42BCD2C486B4C55F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +483,7 @@ Sweet - Desolation Boulevard (1975)  Japan, 1st Press /1986, Toshiba EMI/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:561384DD452460BE49AF5EE7CE08906BC3F66ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +517,7 @@ The Jezabels - The Brink (2014) [MP3|320 кб/с]<Indie Pop, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:DFDC0B2650A3F3B8E188E25BE709985117F4E5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFAFE581FD32470777D20970EEE95FB02B9492C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +585,7 @@ The Mamas and The Papas - 6 Albums Collection (1966-1971) Remastered /2013, Univ
 ```bash
 magnet:?xt=urn:btih:E993B55BC1C64BF43B3639DA36C65F3DA9A363C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Shakra — швейцарская рок-группа, основанная в �
 ```bash
 magnet:?xt=urn:btih:817EAB28176C895D92D157F58724122BEE6215DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

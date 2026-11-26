@@ -19,8 +19,7 @@ Maxlim New Year 2020 - подборка из 4-х программ от Maxlim �
 ```bash
 magnet:?xt=urn:btih:30C5382528BD621CCF8CBFFDA188AD8989C72606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ashampoo WinOptimizer 18.00.18 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:44C1F2392E386216696F48C4A504242145B698AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

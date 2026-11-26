@@ -20,8 +20,7 @@ Learn English - Listening and Speaking v6.3.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7B6FFF70F66C747301AEA127CB28939AACFF6989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ FaceLab редактор лица - лучшее приложение для с�
 ```bash
 magnet:?xt=urn:btih:2C379DE3B0C2996B874826E9F2CB549F4E4DD391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

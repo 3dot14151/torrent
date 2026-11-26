@@ -19,8 +19,7 @@ Free Hex Editor Neo - бесплатный Редактор Шестнадцат
 ```bash
 magnet:?xt=urn:btih:BD82908F8EBEC0075387601A4893AC09AF42B46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

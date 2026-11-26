@@ -19,8 +19,7 @@ The Lord of the Rings: The Battle for Middle-earth (2004) [Ru/En] (1.03) Repack 
 ```bash
 magnet:?xt=urn:btih:7C62A68528E95BC189702F5D8DDA36EAE05C0902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Timeless: The Forgotten Town Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:600611C689E056ADCD40F0978EB5F0C2C6A16124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:475956B67D1EDC485B2C045B4D5BB172FF55C304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

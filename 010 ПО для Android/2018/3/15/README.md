@@ -19,8 +19,7 @@ SPB TV Россия – онлайн ТВ, фильмы и сериалы, ВС�
 ```bash
 magnet:?xt=urn:btih:BBCC7810B68DB24C7081E09B3886FBD4B23DCBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

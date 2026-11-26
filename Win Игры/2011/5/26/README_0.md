@@ -19,8 +19,7 @@ Midnight Mysteries: Devil on the Mississippi - Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:A279B04CA3292E16C9B4E87386BDF3C585960A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Secret Legacy: A Kate Brooks Adventure, The / Кейт Брукс: Таинст�
 ```bash
 magnet:?xt=urn:btih:CABB02489AFC66562AC2C5F14E60226D0D3233F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Snark Busters: All Revved Up! / Охотники за Снарком. На вс�
 ```bash
 magnet:?xt=urn:btih:BBD0F8C55E2B8A0E7058C0324CCA4A713F8F3A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Deep Black [Ge] (L) 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

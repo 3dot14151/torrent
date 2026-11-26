@@ -21,8 +21,7 @@ Debian GNU/Linux 7.2.0 [i386] 3xDVD+update DVD
 ```bash
 magnet:?xt=urn:btih:1E5FED5237C14C876E96C8DAEF2BC76B9FA8172A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Debian GNU/Linux 7.2.0 [amd64] 3xDVD+update DVD
 ```bash
 magnet:?xt=urn:btih:919C432321182D9090BF42297BBE7D65F0A7C5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

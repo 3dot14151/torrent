@@ -19,8 +19,7 @@ Elasto Mania Remastered представляет собой обновленну
 ```bash
 magnet:?xt=urn:btih:ACE59C410569F38084FC06BB7B888A5AD16F91AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

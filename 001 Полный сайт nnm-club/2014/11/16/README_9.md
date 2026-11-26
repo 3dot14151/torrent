@@ -28,8 +28,7 @@ V.A. The Death Of A Modernist - Ritual Vol. 1 (2014) [MP3|320 кб/с]<Atmospher
 ```bash
 magnet:?xt=urn:btih:6713F97248E27B4A5F71522E403116F8722E84E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Zykes Cross - Altered States (1996) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:909213F136D43E0E0B8BFE052A6E7FF548B0317D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Trance Pro V.65 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:CE8147D20BCB332E66A1C941984B64D0E4C48ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Winter Sampler (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:155CDF2C90A66D4D614A0C16B1F274E98F56EF84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ The Great Old Ones - 2 Альбома, 1 Single (2012-2014) [MP3|320 кб/с]<At
 ```bash
 magnet:?xt=urn:btih:A520FFCF35B343AF8B2C79FAE46A84DA64613F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ VA - Trance Autumn Weekend Vol.7 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:42FF0CD4EF5321A490CF4303348A662F8F2E43FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Jimmy McGriff - The Big Band  A Tribute To Basie (2006) [APE|Lossless]<Big Band,
 ```bash
 magnet:?xt=urn:btih:3B0FCD794FAC24C41113DDCE60453452C744D6B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ VA - Deep House V.33 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:2284BC78DD32E5A3718B40ACDEFB18DED8495A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ VA - Dutch House, House #16 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:924E4CCD993F70528FF4549D56F00E0D44C4CE93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ VA - Progressive House V.35 (2014) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:0587B8E144D04531C4BFD9454326D8756179CA40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ VA - Electro House Pro V.75 (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:AEA5E9A0213284644B0A2ADF37E35146EF2FD8AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +394,7 @@ VA - Progressive House V.34 (2014) MP3, 320 kbps
 ```bash
 magnet:?xt=urn:btih:48B09934B5E3E7DC389C2A492A4DE8491CAF4E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +428,7 @@ VA - Trance Pro V.66 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7077B968EF78301D2AC943ECFBAC954B5B10D29B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +462,7 @@ VA - Melody Tools Slowmotion (2014) [MP3|320 кб/с]<Trance, Uplifting Trance, 
 ```bash
 magnet:?xt=urn:btih:BC16CAA4391C75609DF260E1E2F5BA87E66EF230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +496,7 @@ VA - Deep House V.34 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:5585E059A4B363E2FF59F6262B632D2C945B06B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +525,7 @@ Lantlos - 4 Альбома (2008-2014) [MP3|320 кб/с]<Depressive Black Metal,
 ```bash
 magnet:?xt=urn:btih:BCFE1FE4C11A68C9FC78795624208E62649A501B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38010CDFF2502C8FA3A983A0ACBA691E4299B589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +586,7 @@ Lizzi Neal Band - So Long Heartache (2013) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B71F51CDDFB67064327F59F7A85C493D6D3E49E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +618,7 @@ VA - Warm Time EP (2014) [MP3|320 кб/с]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:20E68DBFE64F5A4D001AC05167C625E5721478F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FB15BBEC2EFBA1AA42B37E8804D19BCEEDE71C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +677,7 @@ Cardio Kazan - The Baralax (2014) [MP3|320 кб/с]<Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:59EA6DCA322CCA1BAAB47940F97C734F558FBD94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +711,7 @@ Jurgen Novotny - Fly! (1997) [MP3|320 кб/с]<New age, Instrumental>
 ```bash
 magnet:?xt=urn:btih:E7A3A625346D9AFFC6EBE35FC5419ED5A56F9446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +745,7 @@ Born To Suffer - The Rambler (2012) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:1EAE4380BC166CAC6D11F8BCB81E47BBFC7E50BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +779,7 @@ VA - Festival Soundtrack - Best of House & Electro, Vol. 2 (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:08F258D2DB3F13E215638CE1A736B17AE20D9D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -831,8 +807,7 @@ Gallows - 3 Альбома (2007-2012) [MP3|320 кб/с]<Post Hardcore, Hardcore
 ```bash
 magnet:?xt=urn:btih:BD35EB04998068320CE40FE72A6FA9148C0080F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -866,8 +841,7 @@ Todd Wolfe & Under The Radar - Borrowed Time (2007) Reissue / 2009, Hypertension
 ```bash
 magnet:?xt=urn:btih:2FA482B0DF9A7ABE07E4B205228133807B2BEC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

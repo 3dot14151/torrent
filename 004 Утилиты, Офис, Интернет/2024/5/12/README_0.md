@@ -19,8 +19,7 @@ DVDInfo - программа для быстрого получения инфо
 ```bash
 magnet:?xt=urn:btih:2D30CB99B87F10DC4538F93EC75A6F17F699940D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

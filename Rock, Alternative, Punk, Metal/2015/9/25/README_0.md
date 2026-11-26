@@ -22,8 +22,7 @@ Skepticism - Ordeal (2015) [MP3|320 кб/с]<Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:4CFF6D673566BC8FB86A05CB5390E74BF559F900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B177D7D906475214D3CA4DE8DB45A6825BC28FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Rock Classics Top 100 (2007) 6CD [FLAC|image + .cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:BDE550D13DFF1E3E78119026AEB6B243A27FA33B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

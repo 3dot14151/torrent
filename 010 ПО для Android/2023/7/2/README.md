@@ -19,8 +19,7 @@ GIF Maker - GIF Editor - видеоредактор, что создан для 
 ```bash
 magnet:?xt=urn:btih:F67287C55C8FFE718C877D255E77178E8B4209EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Music Editor / Музыкальный редактор - весьма и вес�
 ```bash
 magnet:?xt=urn:btih:F3350B9DD871227AAD19FC53CD8DB54DB5D88A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SnapEdit - фоторедактор предназначенный для быс
 ```bash
 magnet:?xt=urn:btih:9B724613679A5E2B62695B2F38F3D881FFA8295A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

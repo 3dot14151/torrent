@@ -19,8 +19,7 @@ Fabien Potencier | Symfony 5. The Fast Track / Фабьен Потенсье | S
 ```bash
 magnet:?xt=urn:btih:61C5BB1A65AF18A91E926C134E86414D0D5EBD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F007DD2D08CCF505372D4E130EED032DB4626FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

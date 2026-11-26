@@ -22,8 +22,7 @@ MegaDriver - Gaming Hell (2016) [MP3|256 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6E54448B59438B9C3993CA8833D8D17E89725856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ F. Roses - The Prologue Of Mythology (2012) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:AF58B909B83150BADAED9958CCC28D2CAA1AB8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Letzte Instаnz - Morgenlаnd (2018) [FLAC|Lossless|image + .cue] <Folk Metal, N
 ```bash
 magnet:?xt=urn:btih:C2118138B5E707511E35E4503DC1B17CBF38F964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - I Love The 50s & 60s (Classic Mixes) (Volume 3) (2016) [MP3|320 Kbps] <Rock
 ```bash
 magnet:?xt=urn:btih:68B02EB7E3B012BA68FE1D4452A7ACAD25105435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Judas Priest - Firepower (2018) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A9399A30B45030293AA592C47B486C43207961B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Three Days Grace - Outsider (2018) [MP3|320 Kbps] <Post-Grunge, Alternative Rock
 ```bash
 magnet:?xt=urn:btih:97D4578A45CD5D07C61D81C0FE3BF83221D8D18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

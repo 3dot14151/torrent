@@ -22,8 +22,7 @@ Kerosin - Через тернии к монстрам (2025) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:3A96256C03DB6AB9D7DB30E6A179B4813805DF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

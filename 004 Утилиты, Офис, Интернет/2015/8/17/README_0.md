@@ -19,8 +19,7 @@ MiniTool Partition Wizard - это программа для работы с р�
 ```bash
 magnet:?xt=urn:btih:3856A57F0389F4EE0CB67F17AA57582C4AE8D8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wondershare MobileGo - это популярный инструмент, ста�
 ```bash
 magnet:?xt=urn:btih:1D6BE612DC568C049CE5B2658BA19FD68EABEC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

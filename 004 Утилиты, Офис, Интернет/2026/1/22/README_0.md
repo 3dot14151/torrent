@@ -19,8 +19,7 @@ Opera One 126.0.5750.59 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4C34C47FF5DBA1062C8CF2749E937294699D6967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ R-Studio Network 9.5 Build 191683 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8533E3A9FA09D7D45BDBCCAE90BE6F04B85FE164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:ED5BA6466E24C60294734F232C7DFDC2AC76387B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:B8AE106AA80A8C70E66D37EE66F7A2DB79A5DF30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ AnyDesk 9.6.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F9A3EE890BE78E70350B8CFFC52BF47BD170F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

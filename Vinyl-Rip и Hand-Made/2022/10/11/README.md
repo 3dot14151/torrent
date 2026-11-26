@@ -22,8 +22,7 @@ A4 Undercover Agent For The Blues(   Читать дальше...   )Жанр: P
 ```bash
 magnet:?xt=urn:btih:B244ED4421BC554ABD789BA06C28E9C9F1672AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Andrew Lloyd Webber & Tim Rice, Various – Jesus Christ Superstar (A Rock Opera
 ```bash
 magnet:?xt=urn:btih:BEC0ABFDD80805AA4B4CA376CBCBD5DBCEBE1006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

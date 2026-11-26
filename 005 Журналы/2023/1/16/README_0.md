@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EBBEB606B05F2C9FB4701F2AB43D832B8998FED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wood Мастер (мастер по дереву) - журнал, ориент�
 ```bash
 magnet:?xt=urn:btih:79C38FD244EFA4101E47964437F870223AEFC8F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB3FC2238C6BCF7BCD8E68941DCA54A3A692775E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

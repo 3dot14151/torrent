@@ -19,8 +19,7 @@ Orion Burger [Ru] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:6166D76433FE9C2ABE385F057C77202F1F933DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

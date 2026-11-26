@@ -19,8 +19,7 @@ PowerDVD Mobile является инновационным все в одном
 ```bash
 magnet:?xt=urn:btih:257684E1AB23F6A5CBE9CBF47B8F60A07EFE2CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

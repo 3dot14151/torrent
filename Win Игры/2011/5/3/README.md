@@ -19,8 +19,7 @@ RUSH (P) [En] (2010) | THETA
 ```bash
 magnet:?xt=urn:btih:41DEE07136A242C59C809E7FA19AE634CB24780F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Apple Pie / Яблочный пирог (L) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:69148D57C4FB367BFB07C747B2F7B1C5344705D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ In Silence - игра ужасов. Один игрок берет на себя
 ```bash
 magnet:?xt=urn:btih:293A463F20235E307E74372B4B0811534E308574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Descenders - современный экстремальный фрирайд-д
 ```bash
 magnet:?xt=urn:btih:DCC82EE3A32091C1592B644DCE2EC6D5726E4993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gazmatera 2 America's Least Wanted (2021) [Ru/En] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:CDFC54ECE740CEB33E9CE9BBC2EA09B950BFF558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Escape Simulator – это головоломка с видом от перво
 ```bash
 magnet:?xt=urn:btih:CB9E7D2442B641265E1B38C59DCB8C9E986F7D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Too Many Humans - это тактическая игра в реальном в�
 ```bash
 magnet:?xt=urn:btih:877FEF4165E0D1489535AD549BF13F0CB97FBEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Distorted World – компьютерный инди шутер от перво
 ```bash
 magnet:?xt=urn:btih:36FCE9BB37763AF83CAF482D4F6AC12E3485CAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Alan Wake Remastered — в этом отмеченном наградами к�
 ```bash
 magnet:?xt=urn:btih:3C89EB99B63D223CA936224FB3E9FB354C38CCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Injustice 2 - снарядите легендарных героев и злод
 ```bash
 magnet:?xt=urn:btih:5A3F7EB883AFAC59989257C8A05D440D51400A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

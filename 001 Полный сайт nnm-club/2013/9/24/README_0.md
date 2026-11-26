@@ -27,8 +27,7 @@ VA - Chill House Goa - The Beach Sessions (2013) [MP3|320 кб/с]<House, Chill 
 ```bash
 magnet:?xt=urn:btih:242C63BA12652978738FEF433DB68504A5C095B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Connie Hawkins and the BluesWreckers - Wired Up and Fired Up (2013) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:008E8CA903D405B8CD652B93761C5DCEF5E07321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Trance Tattoe #36 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:8737570FF66D9CA78D3416AF5264EB6AAEA6B1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Smoke - Selfish Trash (2013) [MP3|320 кб/с]<Acoustic Grunge, Jam>
 ```bash
 magnet:?xt=urn:btih:FE2F0EBD604C1E45287BB54B0666CF23882321C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Gemini Syndrome - Lux (2013) [FLAC|Lossless]<Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:E8015B5585E6E7F2EC0DB5EC7B2404CF7E996606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACBC7BFE19F89A3F0EAF27F5045890838EB470DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Brainpain - Discography (2 Albums, 46 EP's) (2008-2013) [MP3, 128-320 kbps] <Dru
 ```bash
 magnet:?xt=urn:btih:C2898B63FE91D32AACB3DC5705F854FAF0180409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ ColdSpell - Infinite Stargaze (2009) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C02E7679BA06A9DC5DD8E8D680557CDA52996065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E008C7DADECDC6E8B8DA72F5AEAFD69CEDC6FD3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A6D3F45125AE94318E5BCE232470E8117BFCC88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C48BF5D4C31FB1CEE83E24A4A806B571E19B2409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ New side project forЖанр: Alternative MetalПродолжительност�
 ```bash
 magnet:?xt=urn:btih:AD20E0445441CBEF3810D54224A72449853765C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ Datsik - Let It Burn (2013) LP [MP3|320 Kbps] <Dubstep>
 ```bash
 magnet:?xt=urn:btih:B073A4A40AB6CBA8838CD99C8704D7E3CD2A8453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E8E5D2DBFE0AA05EB168BD85F2AEFED3087D6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCA8E3C318A5FDD61EDBA4F628FEC9FEEF7E7577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8F39BADFE828C0B8CE36FB85E0F8C6D57C2B69C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E037DAC7B0D5AF0BC7596B21960C62D1E7C17B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AF6B336651B4997AF4068A908BF8F75F18A4FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +569,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:67A2FAD18C66394C8D2B9EBB60FEC43C4089E042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +603,7 @@ ColdSpell - Frozen Paradise (2013) [MP3|320 кб/с]<Melodic Hard Rock, Heavy Me
 ```bash
 magnet:?xt=urn:btih:CBE65B3A6AAD8C72BA368D38DB15AE27529A5522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ ZZ Top - El Loco (1981) SHM-CD /2013, Warner Music/ [FLAC|Lossless]<Blues Rock, 
 ```bash
 magnet:?xt=urn:btih:294FF0C572C666C664B7E5BCD4B310AD4D8B74EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +671,7 @@ Psykkle - Mother Monoxide (2013) [MP3|320 kbps] <Electro-Industrial>
 ```bash
 magnet:?xt=urn:btih:4F2CC8A6C6F94FC799A8D144CCA776C6EFC2BA49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52E271C9E20F6B94EC63D7CE0FF0FDF7DE8B64F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:BF189B9CB7C66ECE98C5DAFC04B8FA1BA4E1D47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ VA - Vocal Bass Music Vol. 1 (2013) [MP3|320 Kbps] <Dirty, Heavy Dubstep, Grime>
 ```bash
 magnet:?xt=urn:btih:689772BD757C1137E1300DC61DB760E97CC9A658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Cella'Door - Dammerung (2015) [MP3|320 кб/с]<Symphonic / Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:CF536E51AA6DCDC9B5B05C5173DEE6930303E7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Year Of The Rabbit - Year Of The Rabbit (2003) [MP3|320 кб/с]<Alternative/ In
 ```bash
 magnet:?xt=urn:btih:D66496CA11C50440BD70F460FBA16F24A6B8E01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Callejon - Wir Sind Angst (Limited Deluxe Edition) (2015) [FLAC|Lossless]<Melodi
 ```bash
 magnet:?xt=urn:btih:E0A1C307F714097641805DAC101F29CA35BE554C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Neolix - Наследие (2015) [MP3|320 кб/с]<Epic Metal, Industrial, Melod
 ```bash
 magnet:?xt=urn:btih:7000E070D6CDB74A1E110915011233F928CC76E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ The Righteous Brothers - The Very Best of The Righteous Brothers-Unchained Melod
 ```bash
 magnet:?xt=urn:btih:01D4535B6E10882ABA3DF16A962E3020512CBA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Bon Jovi - Live USA (1987) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:38D4C7EABFE6F486142C17554BB3F9AAD36E9691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50B3A8885DC6EA4637083C95D979440BC892BDBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Dick Heckstall-Smith - 3 Albums (1972-2001) Reissue, Remastered /1995-2006/ [FLA
 ```bash
 magnet:?xt=urn:btih:0B2FDF55C07B0A5F902F78FB941F281DB5C33A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ Aerosmith - Just Push Play (2001) [FLAC|Lossless]<Southern Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F35A8A71D47F89AB1BB9512F7562255384B5FDCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ AC/DC - The Very Best (1991) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9EE64265F56B02E19329368C124F8E94D92E2276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ Nightwish - Elan (2015) /CDS/ [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:8CBF0FAEAA15354B2508FBDBD6B37E99E8EB5B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ Metallica - Master Of Puppets (1986) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:428DC2AF0103A044687C3DDF32B20A0975C9A791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

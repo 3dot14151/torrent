@@ -19,8 +19,7 @@ Christmas Stories: Nutcracker Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:B5459F84D0D60E09908E740EC2397F5B79C7052F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Christmas Stories: Nutcracker Collector's Edition / Рождественские
 ```bash
 magnet:?xt=urn:btih:0278FF20117261AD45BF26DF9D55D15C4CC5F145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mission Kursk идеально подходит для зануд, ленящи�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Far Cry 3 (Русификатор/1.0) [Ru] 2012 | Бука
 ```bash
 magnet:?xt=urn:btih:7051309CB68CEF2BC1FBC7321BD759D4E33A4ED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

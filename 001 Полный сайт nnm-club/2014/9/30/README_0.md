@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:282B25063A22534AB6A80932F659583204621DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9401F8CACE4B6D2B012905EE007E3CBEB39A3890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ tyDi - Redefined (2014) [MP3|320 кб/с]<Progressive Trance , Progressive House
 ```bash
 magnet:?xt=urn:btih:65E959770A45057B0B240E78D5DA342D95B52420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Krystian Shek - War (2008) [FLAC|Lossless|WEB-DL] <House, IDM, Downtempo, Ambien
 ```bash
 magnet:?xt=urn:btih:A57A2C3D3352D1255EA046EBF4EA1EB51AD80241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Jan Laurenz - 2 альбома (2011-2013) [MP3|320 кб/с]<Instrumental, New A
 ```bash
 magnet:?xt=urn:btih:0E9B61820FE0CEB77D3C144418B8432416E9EE0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ CD1: Original Songs
 ```bash
 magnet:?xt=urn:btih:E786481A4152335543BAA96B739A9F4ECAC36FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ VA - Toolroom Live 01 (2014) [MP3|320 кб/с] <House, Tech House>
 ```bash
 magnet:?xt=urn:btih:E6D1F4AB84C9C0FB27FDD69DAB447ADFC1893504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EA5357EEA74ABB080411D825812A3FCFEDC4950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43AD6FD72ED762BB688266FF60A1207968B66EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:489F117BB88AFC0A48722071FDCCE8F460CB9776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ Barbara Morrison - I Love You, Yes I Do (2014) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:438F3F154F2D94E9A28C47495F63F5221EEEE1B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ Blake Neely - Стрела / Arrow (Original Television Soundtrack) (Season 1) (
 ```bash
 magnet:?xt=urn:btih:9233C8708E945B4676015379720B1E55176F2F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5021911C629ABE060B0EB9BC643BDFBF6E9D66DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ David Allan Coe - 4 альбома (1977-2014) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:AB4679576C4EA6038D5BAAA381DFB888C813F741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ David Arkenstone - Citizen of Time (1990) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:F5C2FBFB1F56EE5FB89FA85EDB231C2A6416992F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +477,7 @@ VA - Best Chillstep Collection [August 2014] (2014) [MP3|320 кб/с]<Chillstep 
 ```bash
 magnet:?xt=urn:btih:DF6E0A9A07DF59C3694C82C714A2C4BADC91D752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A881490673339F70522B08AE062D7684FB1DEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:891D39316E1AA449C3E835A6AFA9F3393ECB9003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ Terratomorf - Я - легенда (2014) EP [MP3|320 кб/с]<Heavy / Power Meta
 ```bash
 magnet:?xt=urn:btih:B595143DCFF22EF062DB7A0570783C50A05E9DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E242C744C233260A52EC80414372A0B2F53A674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ Krystian Shek - Street Bangerz Volume 4 (2011) [MP3|320 кб/с] <IDM, Downtempo
 ```bash
 magnet:?xt=urn:btih:AEC629B580256EFC14B5C6C551480FE3DB45343A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ Paul Haslinger & VA - Адреналин / Crank (Original Score + Original Soun
 ```bash
 magnet:?xt=urn:btih:A3F8BB1FDB1DE37C5B6A97BB576E3A968C2EEF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7884B7BA6F9F9AF814518C5DC511AA3C64D025A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ The Nolans - The Best Of The Nolan (1978) [APE|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:53895607097BCAC481723D5303F3A915F557A2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +739,7 @@ Remount признает общие сетевые ресурсы: Windows©- и
 ```bash
 magnet:?xt=urn:btih:7169EE8224593100640A0F81B51AB1EDE630EAEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ Angelica S & Science Deal - Nocturne (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F7029D98BDCAED4265871C53C93AD3C7240CE507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

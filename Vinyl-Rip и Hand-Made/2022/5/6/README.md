@@ -22,8 +22,7 @@ A4 Let's Put Out The Lights (And Go To Sleep)(   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:D554410E59E11D75E351C627B965CC74770AC44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Ангелочек (Angie Baby)(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:1655F0090854A45F02B4616BF73161E16B5AC5B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

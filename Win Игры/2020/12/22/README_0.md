@@ -19,8 +19,7 @@ Christmas Wonderland 11 / Рождество. Страна Чудес 11 (2020) 
 ```bash
 magnet:?xt=urn:btih:74BA1FCCEEE8EF1C5C1B87B23858FC03989208F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

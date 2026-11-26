@@ -20,8 +20,7 @@ Fez — инди-игра разработанная независимой ст
 ```bash
 magnet:?xt=urn:btih:2C91C43FB393E42B4B60A50BDAAA353E33478FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

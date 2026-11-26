@@ -19,8 +19,7 @@ Volgarr the Viking - классика, и это очень атмосферна
 ```bash
 magnet:?xt=urn:btih:ACFCE694B402464B47BFCA72A53DF2BFD9BD258B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Hoyle 2013 Card Puzzle and Board Games (2013) [En] (1.0.1) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:505935D7FC8F302CB9A2861CB4BA0E0EDC5E0DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Hotline Miami — это адреналиновый боевик, полный �
 ```bash
 magnet:?xt=urn:btih:6E0FEDD3D874DBF9339C373D648B35E918AD81B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Plant Firefighter Simulator 2014 (2013) [Multi] (1.2) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:AF6093D2B9237DA2940E3466F551BC01F59FCE8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

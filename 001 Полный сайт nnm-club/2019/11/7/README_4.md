@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BB964C1E68F9EAE9DF46C6F51F4C08764291A76A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ KitBash3D - Brutalist [MAX, MA, OBJ, FBX]
 ```bash
 magnet:?xt=urn:btih:D43AF12FB897FFD600AFBD9661146A3A81F21634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3217AF20625ED933B7E30747326447156F052DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB28C011551F4372A0BB253015A074180E36F02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Live - это быстрое и гибкое программное обеспе
 ```bash
 magnet:?xt=urn:btih:5734467DF8C9B75D21252AFD6BC11EA510D511FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Blender - это бесплатная графическая программа 
 ```bash
 magnet:?xt=urn:btih:AFDA6790BC0D2FE38C34EF163DB39C46BB77DDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98684FA67951A7B59E7E2590DEF8AA239D9A2CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB260DC9E51675D6C85E836C70D9346E3D09EEF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27335C53D3965889F5F0B274409FC56F6C9A5F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ VideoHive - FUI HUD Design Elements - 25009748 [AEP]
 ```bash
 magnet:?xt=urn:btih:B4C8182603DA710E04E36CFCAB4A1BF5671DC3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Udemy | Изучаем React.js 16.7 & Redux (2019) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:6AFB0C77532A3F8E93EEEEEA7E33CCD0F647D892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:AAACF3A2597B41D6BDBCCFF3A8AEFC148EC7E8E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B02AC8A60D47C8DC949DF50DF8F3FD09F4FABB7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Resident Evil 5 (2019) [Switch] [USA] 8.1.0 [NSZ] [Unofficial / DLC / 1.0.1] [Ru
 ```bash
 magnet:?xt=urn:btih:8366A28DB6452D9F243D54555E074A14323B3DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ VideoHive - Fairy Tale World - 24973260 [AEP]
 ```bash
 magnet:?xt=urn:btih:FA88B64F66368C24BF30A193476871BB51AF0601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05C4EA6330B3612AA18AAAF6522243CDB3FD3B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C03BAC7FEFA1B0019C0D654EC2A9E2B99A8E0430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ Control (2019) [Ru/En] (1.04.02/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8DEEE2B1BA7D39C017F0A1AA4E82D3FB2EAA7DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ KitBash3D - Props: Cyber Streets [MAX, OBJ, FBX]
 ```bash
 magnet:?xt=urn:btih:CE0473573A2BECFD15D6CEBA6139AFE2862BBADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE7C712A393BBB8D4F2A2595C372601E2E5DE00D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ jsexpert | Понятный JavaScript [Middle] (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:25360AB443EF70D31CDB16F440F6E98E17BD491F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32DD6CB0ADB7D91C29CF74D70F7D6F931750FCE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ jsexpert | Понятный JavaScript [Beginner] (2017) PCRec [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:982E9E720121B9D0B4B8CEA164F88F1602CDAA0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6298A4CDAB11C29641E7D414AA5E5511CEF4D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58C345393216DCD5210B521B98D653A46AEB9D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Slaughter: The Lost Outpost v1.42 [Ru]
 ```bash
 magnet:?xt=urn:btih:D5D2D899F018C1DA8C32DB790E23565D007D9511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Niffelheim v1.6.15 [Ru]
 ```bash
 magnet:?xt=urn:btih:A5E9B61512B06EF36DE54C5907EC03DD058CB6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ugly — мрачный сказочный платформер, в которо
 ```bash
 magnet:?xt=urn:btih:F43787B2D0C8FD37704989AF9D26FC11FD64E773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ DRAGON QUEST BUILDERS v1.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:446DAEBB2EB07923BA10E63766FDE1603D90C485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

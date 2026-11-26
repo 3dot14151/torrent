@@ -19,8 +19,7 @@ Biped 2 (2025) [Ru/Multi] (2.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6231F513CC6498042FA48A748B9D08371F2A0F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Xenonauts 2 - это стратегия, в которой вам предсто
 ```bash
 magnet:?xt=urn:btih:E67D493F40FFB566AD9C547A8C3B4589ADE1CACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Darwin's Paradox! (2026) [Ru/Multi] (1.0.1.24747/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9F3824037BF8DB5CE8324D0CBE6F3740CA975A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Weeping Swan: Ten Days of the City's Fall (2026) [Ru/Multi] (1.3) Repack Oth
 ```bash
 magnet:?xt=urn:btih:8898D7055C2D70EADF248B8A2DA4962734BB0511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Clue/Cluedo (2023) [Ru/Multi] (738449/dlc) Repack Let'sРlay [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:AEDE0FD5E1A78E612360A2CD06253EDF6FB54B5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crown of Greed (2026) [Ru/Multi] (1.0.4f1/dlc) Repack Let'sРlay [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:0A30B0D22997A6B512AC4DB1A8944786E132C446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hozy (2026) [Ru/Multi] (Build 22569174) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:01F9E9926864E0BC6A46AA37C8508D6D08EA80DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ All Will Fall - постапокалиптический градостроит�
 ```bash
 magnet:?xt=urn:btih:CDC4B63527A84D809F804CE7F1A45C2B21CF5348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Dragonkin: The Banished - это мрачный экшн-RPG (hack 'n' slash) с
 ```bash
 magnet:?xt=urn:btih:F27C47E024CF43FAF047856D029C186C14C30BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:0A85329A0195DA161D96A4C7D9F9A8591FC8857C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Sleipnir - кроссплатформенный веб-браузер, пред�
 ```bash
 magnet:?xt=urn:btih:7ABD173206D8665FD86438C4D25C86145CA3623C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - 100 Хитов Любимой Музыки (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:700CA6F401D12D34B64B9CE619F4A68B7A65201D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:062FB1CD7ECD9476E69827C1B4399A7B052ED68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Avira Scout - веб-браузер, разработанный Avira, для б
 ```bash
 magnet:?xt=urn:btih:DFAE2C2540C2BA9B2461DDCDF219FCB3645ADA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ VA - Блатной хит Best (2016) [MP3|256 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:6EF9373A831419B6C82B21EDE27376B2A52BF1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Pooh - 1981-1984 (2011) [FLAC|Lossless|image + .cue] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:1DEAF11CCDCACB5730BF9114DDDF36584493A901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Moti
 ```bash
 magnet:?xt=urn:btih:7BC25BB8D15609D2BE62169B7038C40CD18A1B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C80708DCD9B1F0006BE74C371EE89FBC30C0AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ PhotoSweeper — отличный способ поиска дубликатов
 ```bash
 magnet:?xt=urn:btih:8875390DCA7B7663E8AEA78774C047F095C8F57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Peter Jacques Band - итало-американская диско-группа
 ```bash
 magnet:?xt=urn:btih:DA7C7E84904FF7D9DC2D20D3853F55BED360C772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - One Day Meditation (2016) [MP3|320 Kbps] <Interlude, Acoustic, Ambient, Lou
 ```bash
 magnet:?xt=urn:btih:E25013C11E31CBCBE600AA5EE76522460551BDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ VA - The Ultimate Celebration Compilation 800th Pt.1 (2016) [MP3|320 Kbps] <Hard
 ```bash
 magnet:?xt=urn:btih:2D26D8EB511315B25326CB9AB2CEF38CDBCDF261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Germind - Stargate (2016) Plexus Music [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance
 ```bash
 magnet:?xt=urn:btih:BD01E200BF2F6F3BA324D142E67805F1ADA53450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Comodo IceDragon 48.0.0.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:909420687E0CF3D2CAE27B9EB0B7F6988BA446F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ VA - The Greatest 80's Collection (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1DA02B53CCA462D69AD2CE5146138DEAC3C08E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ VA - Romantic Collection Chillout, lounge and Easy Listen (2016) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:F4AFF733C0FFA3EDE04DFB109EB6E83DC726666A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Ally Venable Band - No Glass Shoe (2016) [FLAC|Lossless|image + .cue] <Blues-Roc
 ```bash
 magnet:?xt=urn:btih:415DF2424A175B2710BFB50350D638736EBE1B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ VA - Now Thats What I Call The 80s Hits (2016) [MP3|320 Kbps] <Pop, Disco, R&B, 
 ```bash
 magnet:?xt=urn:btih:149F5F5CF1E26B01CF3F831FE765E32AE4435459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65CC7082880CEF7258FA6D069097133D62C2159F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Dissipation - экшен для Вашего творчества.Формат: 
 ```bash
 magnet:?xt=urn:btih:3514D6AB688281FD6496080DAF53A24B58281EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D958C71CF864CAD4CDF555AF9564D21DFB40CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ Torch Browser - браузер на платформе Chromium с расшир�
 ```bash
 magnet:?xt=urn:btih:A1A2FB462B597D560A9C4DDAE5F2283A7E83DCC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCCDC596B364E98866ABDA14CA1A47C37E359316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3489022F7B90C83FCD0C993F9552ABA006C7CE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

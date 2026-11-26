@@ -18,8 +18,7 @@ Mr Shifty – хардкорный изометрический стелс-эк�
 ```bash
 magnet:?xt=urn:btih:73344E8C60EAF8745B07DF94A2A5351A5785CEAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8411266598CD28ED4040459F902D1DA2A63CF45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Haydee (2016) [Ru/Multi] (1.09.1) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:1BA5EFAE8E88F4CB1490D16FB2044C31A74BAF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3BCA799F861D270B18344B8B5CB2DE6F638F52C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:652379C94868DFD4B7EFE22DB7364246FDFAF2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ History Eraser Pro 6.2.0 [Ru] - Стиратель истории
 ```bash
 magnet:?xt=urn:btih:51CAA43EE35CC417B02BCD8B34872393F1D1C19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03AF3C10B2D437EB29012942DE16AB18A235290A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:927D1AE5E60543565039F9D9DCA6A5E100BC3403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38F3636BC1A40F85F635C4E1156E96707288479E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Moonfall это side-scrolling 2D action RPG в жанре Beat ’em up, офо
 ```bash
 magnet:?xt=urn:btih:6DE2903997458F979AED9DDA5ADE7E3B4CAD647B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99FB3E6C9F31DB95FBA6618F55C15D63CAA748ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD38FE2A02D7A019FDE42856F2CCA9EE22421368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A97C10A5775AE6CE4BEE9848701A324712CE8C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Guitar Pro - популярнейший табулатурный редакто�
 ```bash
 magnet:?xt=urn:btih:7F9C790B1AF4D827FC5FDF528A1158CE3193FDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ All-In-One Toolbox Pro 7.2.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8823C1E5D0119EE5599D23282B985ABB639725CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ proDAD Mercalli V4 Plugins - лучший видео стабилизатор, �
 ```bash
 magnet:?xt=urn:btih:C60A4A7F30C78439F5215362219DF9A47A286496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ Wolfenstein®: The New OrderTM - это возрождение серии, ко�
 ```bash
 magnet:?xt=urn:btih:E565C82C35CBC5962986E55694F7BA9525BD0DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06771F9EE91AB6718518CFCFE116AA5BC05277F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ Metro: Last Light Redux (2014) [Ru/Multi] (1.0.0.3) Repack Other s [Bundle Editi
 ```bash
 magnet:?xt=urn:btih:DE4BFEFA9429A81E6717F318453EF711B7930A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.0.0.3) Repack Other s [Bundle Edition]
 ```bash
 magnet:?xt=urn:btih:759F1518442C7FE7EC657416880894046A49DC9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEB3C11C898B1D6CB604442C5047ED1AA6E62D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

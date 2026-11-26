@@ -19,8 +19,7 @@ Kate - это кроссплатформенный текстовый редак
 ```bash
 magnet:?xt=urn:btih:C09C1926F3892A1FB65FD78062F2B6C2A8DA6846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magic Uneraser от East Imperial Soft предлагает восстановл
 ```bash
 magnet:?xt=urn:btih:F2F9A659B1463F2522C3682AC6F38991F60F4E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Magic Recovery Software 2023.08 Portable by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:21EE6FCFFA79E0F018F587D9472C90E4C7D4D584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Magic Partition Recovery от East Imperial Soft предназначен для
 ```bash
 magnet:?xt=urn:btih:143B279AA41526C51094F5FB6B4F9A86AFEE272F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

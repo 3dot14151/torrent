@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:31C54B97C693D3BDF336D3E90A6ACA27556D1FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Klangstabil - Shadowboy (2013) [Ant-Zen] [MP3|~250 кб/с (V0)]<IDM, Electro, E
 ```bash
 magnet:?xt=urn:btih:503B1B8EDB87D9D2ADF31142FE2BCBEA29B8F7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B23F8DBDBD425748F0C21E3DE4C84F9EF7465F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Deform - Deformократия EP (2012) [MP3|320 kbps]<Gothic, Industrial Rock>
 ```bash
 magnet:?xt=urn:btih:157EB959B54A4665F9A3EFDA2E5C341806467774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE8F39D8E3C83B76B2B3A531EC3F94155F682401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:974024458F917A715EFDE4E58D938F78691CF73A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Death - Spiritual Healing (1990) 2008 Remastered [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:39B1340B9A2F707788BFA53F7F3D728BB4B3DE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ Ella Fitzgerald - The Diamond Collection (2013) [MP3|320 кб/с]<Jazz, Vocal Ja
 ```bash
 magnet:?xt=urn:btih:0FC725988280B47038958891C9AA6001C63D3356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5585D9CC96E8E456190C7A7884F53E15523FD379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5B6B061D02A037495B36A9EAE7DBDE5A9EE0C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ Ruslan Tagirov - Standing On A Bridge (2011) [Limited Edition] [FLAC|Lossless]<E
 ```bash
 magnet:?xt=urn:btih:AD53C7127BE8210D357BE2C4357AD874E412362A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ DxO FilmPack позволяет с лёгкостью придать любом�
 ```bash
 magnet:?xt=urn:btih:B4174ED5F1FCED6BA74F7E6517C6C2ED73EAA164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ Inno Setup - программа для создания инсталляцион
 ```bash
 magnet:?xt=urn:btih:CE0E25EF940DB73DB036463DFC3451A3B59D3B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ Thin Lizzy - Renegade (1981)Remastered Edition/2013,Mercury Records [APE|Lossles
 ```bash
 magnet:?xt=urn:btih:FE6697E3A4E1FA27837FF24D9FDC62024C524AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76F05C6750FC98623E59841E24872D0708A8B354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C560F5F7A50778F745E99B3130B16E3F3E9EF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F429C6ED9532781094E2D69EF015B28F0928E17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32AE14F0D1107713095A5F2DFBD209E9F0013157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ PhotoLine — простая в обращении программа, пред�
 ```bash
 magnet:?xt=urn:btih:B3FE026B7DC77129A9EF0087BBFA30ACCB13EB99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EBCFCA880BE182C6077C463D7C5B586D4F65B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +613,7 @@ VA - NRJ 200% Hits 2013 Vol.2 (2013) (2CD) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:2CA6936205DEDF78016321D1A8E7DB66754AD1B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +647,7 @@ Hot Since 82 - Little Black Book (2013) [FLAC|Lossless]<Tech House, Progressive>
 ```bash
 magnet:?xt=urn:btih:9847FBFF78140C0AAFABD8A7932913481810EE66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +676,7 @@ PhotoMagic Pro 1.7 [En]
 ```bash
 magnet:?xt=urn:btih:14F80C445E233E6F841281B0C6866B9BFB3CD533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77307A9B6BFA9B48E4FEFD671A37F3D38A7C077D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:405D537B9E888679C7E4C71613955CC6518420C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

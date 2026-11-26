@@ -19,8 +19,7 @@ Grim Legends: The Forsaken Bride (2014) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:1B7F4117BDCE249ECCAA011A80933120DC5611BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Thief Русификатор (2014) [Ru] (1.0/audio) Official
 ```bash
 magnet:?xt=urn:btih:2951D2426EB4E674FA3F4B6533BCED43D3A35695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Pac-Man Museum представляет собой сборник разнооб
 ```bash
 magnet:?xt=urn:btih:7BB19F83E9E006E58585C1311B5DA43C57A11763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

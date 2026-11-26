@@ -19,8 +19,7 @@ Haunted Legends 13: Twisted Fate / Легенды о призраках 13: Ск
 ```bash
 magnet:?xt=urn:btih:7DD33EA48A562B9A953CBFA2501E1F991DA692E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Speedrunners from Hell – единственный в мире состязат
 ```bash
 magnet:?xt=urn:btih:6ED42F1F075B632694A69BBB2493F9B4FC9CCD7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Panzer Strategy - варгейм в сеттинге Второй Мировой
 ```bash
 magnet:?xt=urn:btih:56A4A476CBB537292B9DE046517CFDB74D2C2D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ God's Basement — это хоррор-игра, рассчитанная на �
 ```bash
 magnet:?xt=urn:btih:A726B6910361287514D1EF7690C744876C2038E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Yoku's Island Express (2018) [Ru/Multi] (1.2) License CODEX
 ```bash
 magnet:?xt=urn:btih:568FCA2D7999775AED6AFF1370B7A0C52E42899B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A857E2E918C38A6F74A2FC8EF8D778F4B1F94659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ RESONANCE OF FATE / END OF ETERNITY (2018) [Multi] (1.0) License CODEX [4K / HD 
 ```bash
 magnet:?xt=urn:btih:9C86D2BE58D5109F4F54F209EAB0FE506A1F64CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

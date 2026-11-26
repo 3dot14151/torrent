@@ -19,8 +19,7 @@ Watch_Dogs - компьютерная игра в жанре action с откр�
 ```bash
 magnet:?xt=urn:btih:D46B58EA4F894039127D0A31F2E938D1419EBF63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon’s Dogma: Dark Arisen (2016) [Ru/En] (1.0/upd7/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:9C511B3FD09D00E3C47BE54D5A72C68876BCCAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

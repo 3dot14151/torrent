@@ -21,8 +21,7 @@ Warbiff - Pig's Parliament (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8BD926BFD5E3944ECC8D7FEEE3C2194D84B34708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Trayce - Miragem (2017) [MP3|320 Kbps] <Nu Metal, Groove Metal>
 ```bash
 magnet:?xt=urn:btih:219CFBDA3F549BD5B441E649535500FDB19B19D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - St. Moritz: Make Me Disco (2017) [MP3|320 Kbps] <Dance, nu-disco, deep-hous
 ```bash
 magnet:?xt=urn:btih:3DD6004FD9DBF6C6C124B6122EA4FC1B4916C99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:7234C012BBF0B026FBB397D5515BD482060EE710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Bye Bye Winter! (20 Crazy House Tunes) (2017) [MP3|320 Kbps] <Funky, Club H
 ```bash
 magnet:?xt=urn:btih:080899BAFF939987A63EB9C907DEC3552CFAB533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Ресторан Кураж весенний. Выпуск №6 (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:7EACBA2E7652EAAF29E5343FC47DCE46E48D19C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - John O'Callaghan: Spring Trance Selection (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:55C6C363CB9C60B5845027176D9F19733DFEFE5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A8B17A88B4614CA899A914ADD04040E9EDB6FA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Bye Bye Winter! (20 Groovy Deep-House Tunes) (2017) [MP3|320 Kbps] <Funky, 
 ```bash
 magnet:?xt=urn:btih:473B8145F6E93C171426C208558BDDE62D225C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7151D3606C6BEE17F7951B5215C0906B4199F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Our Hollow, Our Home - Hartsick (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
 ```bash
 magnet:?xt=urn:btih:ADE568514CC7F09ED79A71BC6EDF282EB0F3E7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Wo
 ```bash
 magnet:?xt=urn:btih:118E70CA854E68EAC6622A71D2B5D164B16CBA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ VA - Танцевальная вечеринка от Хит FM выпуск №
 ```bash
 magnet:?xt=urn:btih:868AA560A2A69165D743A31539AFF0B3C9CAAD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Tradi
 ```bash
 magnet:?xt=urn:btih:E0D1E302B6819583F358C4112E7D21C8765479CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F696F223CDE536F942A5D3C52AB08D5AA0BD273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ GoldWave — звуковой редактор который легко про�
 ```bash
 magnet:?xt=urn:btih:1DCEE602B8C8DC103E509C9D6B36562D5E7C4E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ VA - Лучшие блатные хиты года на Шансоне. Выпу
 ```bash
 magnet:?xt=urn:btih:161CC1C0B27E05EBC544E6AF6E4BF53F0F01C839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
 ```bash
 magnet:?xt=urn:btih:4E32CF03B52B4EFEA4713790CEE06A7F8BD339EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Gary Moore - Live At The Marquee (1983) Japanese Edition, 1990, Victor [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:8797E9F3421EA13E37682D2CA86F5F24CBD0B185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ VA - Popular Pikachu Chart (2017) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:EE72C695F5B64381C3E75221E6CDFEAB8F2F575C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6EBD2C06BEA9289630FB4504848FFB573228BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:D0A5671286FBA914FBF5B76F99F0BBC6158035C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ Lyn поддерживает все популярные графические 
 ```bash
 magnet:?xt=urn:btih:41DFC161B6DB4B284AF87D5BBD1F8FD14FB0647B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ Katri - Shamanic Dream (2017) EP [MP3|320 Kbps] <Psytrance>
 ```bash
 magnet:?xt=urn:btih:30EADB59B39312C70A4C9A04F61CE765B8901B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ VA - Goa Trance Vol.34 (Compiled by DJ TULLA) (2017) [MP3|320 Kbps] <Trance, Psy
 ```bash
 magnet:?xt=urn:btih:9D9767138967D96A44C4321DD8E8B69DB449EFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

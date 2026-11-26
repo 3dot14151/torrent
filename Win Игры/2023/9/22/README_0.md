@@ -19,8 +19,7 @@ Myth or Reality 2: Mystery of the Lake / Мифы или реальность 2:
 ```bash
 magnet:?xt=urn:btih:819F2681D9993D30CDA4C25171FFC8948CDAD4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Knight Cats: Leaves on the Road / Коты-рыцари: Листья на до�
 ```bash
 magnet:?xt=urn:btih:D4A570AC83117C33A530E2DD99D68A2427984F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (4607) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:D9EE4531BB9623BA104BE41919270FB3A0D6AC80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hello Engineer: Scrap Machines Constructor (2023) [Ru/Multi] (1.3.13u802) Scene 
 ```bash
 magnet:?xt=urn:btih:0C69ADEE09C1E3B5288201FE581B36F9366872C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

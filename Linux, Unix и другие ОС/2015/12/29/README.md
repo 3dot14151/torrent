@@ -20,8 +20,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.2 [x86-64]
 ```bash
 magnet:?xt=urn:btih:C6961D166A4E7BF024FD63B1342897AE8A7BDD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

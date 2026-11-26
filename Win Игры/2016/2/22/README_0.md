@@ -19,8 +19,7 @@ Spellcrafter (2015) [Ru/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:868A35871BFA51ED32C450A865EDABEBB1E27BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

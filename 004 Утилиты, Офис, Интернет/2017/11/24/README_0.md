@@ -19,8 +19,7 @@ Razer Cortex (PC Game Booster) - решение "все-в-одном" с наб
 ```bash
 magnet:?xt=urn:btih:1AACF5B2485975600D1536E7E31BA3F404025DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

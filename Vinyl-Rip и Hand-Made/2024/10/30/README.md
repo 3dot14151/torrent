@@ -22,8 +22,7 @@ The Vision Bleak — немецкая готик-метал-группа, сфо
 ```bash
 magnet:?xt=urn:btih:0ECC95B18EEA06BB98A3D29DB14020C9E5E45C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

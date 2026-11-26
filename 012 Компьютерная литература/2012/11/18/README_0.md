@@ -22,8 +22,7 @@ Steven Levy/Стивен Левай | Хакеры : Герои Компьюте
 ```bash
 magnet:?xt=urn:btih:C0DA3E6134E11E984A2A99545522993F3EE867D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:118089B081350C314F49E76389AAFB4606ECF198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ M.Russinovich, D.Solomon | Windows Internals Part 1 & Part2 (6th edition) [2012]
 ```bash
 magnet:?xt=urn:btih:47C4632A39AD37A53DF7510C2CDF451C4AFE839D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Canvas. Создание фигур, изображений, текста и а�
 ```bash
 magnet:?xt=urn:btih:32BE7F56674C00DED250DAE0ECFED97F364A5284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9700E4A235156D586D47B2B21840D8DF10E9F0BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

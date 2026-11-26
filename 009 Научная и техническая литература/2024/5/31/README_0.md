@@ -22,8 +22,7 @@ A review of required academic skills, including note taking, (   Читать �
 ```bash
 magnet:?xt=urn:btih:6A4CE4EDBC9A53D701FBDC365BA105A32D95818E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Rod Ellis is the Distinguished Professor of Applied Language Studies in the (  
 ```bash
 magnet:?xt=urn:btih:28494274DC632D6D0D9CFE4B3CF32AB197E0EE74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ English Vocabulary for Beginning ESL Learners helps you develop your vocabulary 
 ```bash
 magnet:?xt=urn:btih:3E3BE40541807CF9D0FBAA1ACD0A5E25B54278B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D09001B7BB109DA4077DF1788CFA3DB0B40792B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DCD59CB7F7F4FC7AC9514F173963BF0E81C64DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E429FF19492FED40CB660152050EAF184F7BCBEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

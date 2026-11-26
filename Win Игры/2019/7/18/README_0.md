@@ -19,8 +19,7 @@ European Truck Racing Championship — одно из самых увлекате
 ```bash
 magnet:?xt=urn:btih:E3837D0E71A785C97CF0C6AE747CA46FBB6154A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

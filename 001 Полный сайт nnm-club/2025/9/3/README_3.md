@@ -20,8 +20,7 @@ ZT Otez — изысканный шрифт с засечками, создан�
 ```bash
 magnet:?xt=urn:btih:C08B9251638B24EA1A6AE1B4D9778472EF63BE83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:913A2170BAC39D0D770A060984CB27C9B7552D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - 25 Years Of Anjuna Mixed By CRi (2025) [MP3|320 Kbps] <Deep House, Melodic 
 ```bash
 magnet:?xt=urn:btih:C89639531E806208E08FC26B8F803C1595A18DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

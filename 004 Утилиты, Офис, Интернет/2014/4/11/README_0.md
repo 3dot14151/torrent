@@ -19,8 +19,7 @@ Lingobit Localizer Enterprise 8.0.8064 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:12E0E60DA8A2A662456820DEF09B120B34982285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

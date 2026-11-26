@@ -19,8 +19,7 @@ R. Alirezaei и др. | Professional SharePoint 2013 Development / Профес�
 ```bash
 magnet:?xt=urn:btih:40C0AB14AB476E3A7D5DC1AE122E5227FDFB4829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ S. Fox и др. | Beginning SharePoint 2013 Development / Разработка �
 ```bash
 magnet:?xt=urn:btih:67164D162352C864DE059E1FAE833F5E5C825EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

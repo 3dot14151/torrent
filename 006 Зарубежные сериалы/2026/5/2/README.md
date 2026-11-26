@@ -19,8 +19,7 @@ One Piece. Большой куш / One Piece (2026) WEBRip [H.265/2160p] [4K, SD
 ```bash
 magnet:?xt=urn:btih:BD6206CF059845895EC32C698E9E15FEAD3D144B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6FC1CA49B88FEC205E930AB489B3A3D0A9E05F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ One Piece. Большой куш / One Piece (2026) WEB-DL [H.264/1080p] (сез
 ```bash
 magnet:?xt=urn:btih:6FEA24E4F12F0509C3DD0AAF7520DF58E6A00DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ One Piece. Большой куш / One Piece (2026) WEB-DL [H.265/2160p] [4K, HD
 ```bash
 magnet:?xt=urn:btih:0E430549516E37B9B30B3C7321C363E7ABA06B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E50FDDC9CB343592809DB802DAC2FDC1A5AB0C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69AE4A7AE145EC7B2E405D0BD85B84CAC9B9DB78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

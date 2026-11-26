@@ -22,8 +22,7 @@ Kadaverficker - Exploitation Nekronation (2012) [FLAC|Lossless|image + .cue] <De
 ```bash
 magnet:?xt=urn:btih:B93929B009CD01728F7FCED05AF7C3D5DE86B481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1 - Remaster 2024:
 ```bash
 magnet:?xt=urn:btih:863F6C815AB131E35F5BD727D2B8DB14994AFD34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Alice Cooper - The Revenge Of Alice Cooper (2025) Japanese Edition [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:26543129A93BE039547A0F8B06948A0C9BEEB1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

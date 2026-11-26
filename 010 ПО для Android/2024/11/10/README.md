@@ -20,8 +20,7 @@ Sleep Monitor помогает отслеживать и записывать д
 ```bash
 magnet:?xt=urn:btih:354F57BA7BE4C28845D460D65030526A9984F50C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Obtainium позволяет вам устанавливать и обновля
 ```bash
 magnet:?xt=urn:btih:893E26AC2B7F6B3FCC6F900E2C4B972F993518D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Cozy Magnifier & Microscope Plus v6.4.1 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9DA7336C728E53E860079E221CA5F9FBA7684268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:6B3CDA37404FE0A0EE7C3138B26362E81391003B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ CSee - это программное обеспечение для монито�
 ```bash
 magnet:?xt=urn:btih:A8109AA865328781A95DD0008F4E08269C402082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

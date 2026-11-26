@@ -22,8 +22,7 @@ Juicy Lucy - Do That And You'll Lose It (2006) [MP3|320 кб/с]<Rock, Hard Rock
 ```bash
 magnet:?xt=urn:btih:F6A120EF63A18855E31D9911A1C316C05E29B91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bill Nelson - Northern Dream (1971) Reissue, Remastered, 2011, Esoteric [FLAC|tr
 ```bash
 magnet:?xt=urn:btih:207299A0E9B637D3A846F18D09163E241C1447CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jet - Get Born (2003) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:767C95A9D1C7F9E7E9A549E7F0E10D69B80C50F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rush - R40 Live (2015) 3CD [FLAC|image + .cue]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:26407144E032D97686E2D60F531276C19C7FD72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Asia - Classic Asia - The Universal Masters Collection (2001) [FLAC|tracks+.cue]
 ```bash
 magnet:?xt=urn:btih:595A4D523325EBA0DB9F0F0F3EC5BF40E8CEEC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Guns N’ Roses - Appetite for Destruction (1987) [FLAC|tracks+.cue]<Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:D68500CB5158916C8878DD9B8318A781AECC5DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Manowar - Fighting The World (1987) [FLAC|tracks+.cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:28F7A9D7EE4D18BF47B4EDD6CB0C5059112C5E20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Jeff Lynne’s ELO (Electric Light Orchestra) - Alone In The Universe (2015) Jap
 ```bash
 magnet:?xt=urn:btih:52CBA28AD17220EFC9A436D555AAF3462A48E312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Nazareth - Greatest Hits (1996) [FLAC|tracks+.cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:375A9DC5190BE2E59A3A3A66C46835A99ECE0534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Iron Maiden - Somewhere Back In Time - The Best Of: 1980-1989 (2008) [FLAC|track
 ```bash
 magnet:?xt=urn:btih:68080C6A1D5E608D1AA7580EAF49CAF2CF84486E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

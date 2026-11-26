@@ -20,8 +20,7 @@ Swift — быстрый, современный, безопасный и удо
 ```bash
 magnet:?xt=urn:btih:A2B5965EB9B90201480517E995B1F72951E882A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

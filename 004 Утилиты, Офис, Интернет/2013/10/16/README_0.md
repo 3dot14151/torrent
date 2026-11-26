@@ -19,8 +19,7 @@ Driver Fusion (от создателей Driver Sweeper) - это небольш
 ```bash
 magnet:?xt=urn:btih:15216754378527FB8F4E541A0851C4AEE805F92C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

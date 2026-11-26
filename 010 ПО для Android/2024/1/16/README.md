@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8E7E5B8E6E2F818827A56147F8811823E123C6C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ HeadUp Display (HUD) – это возможность использовать 
 ```bash
 magnet:?xt=urn:btih:B5B72DF2DB222F516E5DC6A2325A501CE2ED6CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ GPS АнтиРадар v41.1 Mod by viktorovich31 [Ru]
 ```bash
 magnet:?xt=urn:btih:C37DFC09B56B4475F4C202466AFBCD1BD5C82262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Coloring / Раскраска v2.0.94 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:43B5179FB8B4C93003F79B4E93A1074CB8943F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6215D577CAC4E09C5718C968302304C0273431F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

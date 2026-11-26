@@ -22,8 +22,7 @@ Wings of Destiny - Time (2015) [MP3|320 кб/с]<Melodic Progressive, Heavy, Pow
 ```bash
 magnet:?xt=urn:btih:E37BC48710FC59492264A682AA47B0347A7E9C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stratovarius - Collector's Package (2015) 3 CD [FLAC|image+.cue]<Melodic Power M
 ```bash
 magnet:?xt=urn:btih:3DA656A5F92494A3248FA976632D4ABA8FC91645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Xandria - Fire & Ashes (2015) EP [FLAC|image+.cue]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:970EAE86D29042AEDE5AD2B5664E85E63DD62726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Xandria - Fire & Ashes (2015) EP [MP3|320 кб/с]<Symphonic Metal, Power Metal,
 ```bash
 magnet:?xt=urn:btih:30E5C0DD0CAC2597A9BFBDD6DBFDE0F8DD16BE15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Joe Satriani - Shockwave Supernova (2015) [FLAC|image +.cue]<Instrumental Rock, 
 ```bash
 magnet:?xt=urn:btih:2894FE5FA362226EA22A08CBCBB76CF2BC772F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

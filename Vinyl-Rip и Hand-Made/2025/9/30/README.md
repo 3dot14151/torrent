@@ -22,8 +22,7 @@ A4 Pisces(   Читать дальше...   )Жанр: Blues Rock, Hard RockПр
 ```bash
 magnet:?xt=urn:btih:8C00C372180E6E3E917A5629FBEF4DFACD0D3B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

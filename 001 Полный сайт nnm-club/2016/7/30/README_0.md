@@ -21,8 +21,7 @@ Kasso - 2 Albums (1982, 1984) [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:E70271813E41CC330826057E349C35F476C89EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Brule - We The People (1996) [MP3|320 Kbps] <Native American, North American Tra
 ```bash
 magnet:?xt=urn:btih:BF6B4298BC6BA20EC47EF2DE2BFD44F9C342FDFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Para bellvm - Лесной царь (2016) [MP3|320 Kbps] <Dark Rock, Gothic Roc
 ```bash
 magnet:?xt=urn:btih:D1132A6B3843B0B079A16B46C383A1354C12A5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9615088F4412499935C3862C53F82EAB3F2F33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Country Legends - Men & Women - Country Legends - Men & Women (2013) [MP3|3
 ```bash
 magnet:?xt=urn:btih:6DF57AC550DD458D0DF192A93ED63EB8FD6869FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Angi Schiliro - White Lady (1992) Japan 1-st Press 1993 [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:4A2B30A09E01998141F9F156A1DAF8852E537EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83053926A9D04B33AF4A16BB80D5599116C4DA3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8BFC37F404B5DC9723918D7B3539DB8CDF7577B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7DE924DEFDF7D2DCF523E0D15C89251B7752B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D4E0A5115C9EA2F7FC735913C6557F1A2163E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ VLNY - Откровения (2014) [MP3|320 Kbps] <Indie Pop, Dream Pop, Acousti
 ```bash
 magnet:?xt=urn:btih:00EEDCC1A3A2253D26B7644A7BFF02462AD68F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Bee Gees - Living Eyes (1981) 1983, RSO [FLAC|Lossless|image + .cue] <Pop, Pop R
 ```bash
 magnet:?xt=urn:btih:6A70D1E26095DD2B572906F5FB0B3AD3F6E972E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Richard Clayderman - Plays the Songs of Love (2003) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:11C9CF0F7C5CA3B7B773C04DE3C21494239E5E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ iStat Menus 5 — лучшее приложение для контроля ра
 ```bash
 magnet:?xt=urn:btih:879D617A8F518998ED144EA6A8776A998C55DC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Brule - Star People (2001) [MP3|198~257 Kbps (V1)] <Native American, North Ameri
 ```bash
 magnet:?xt=urn:btih:68F3C4E5E1BAB5E1EE54A0FB200D27F19A0CDB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Powerwolf - The Metal Mass (2016) Live [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:8212C96E1A578DC612EC4F0CBEB982D6CCDE172E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Strength - экшен для Вашего творчества.Формат: ATN
 ```bash
 magnet:?xt=urn:btih:C6C56F2A61C4ADAB3A9F5028333F7C74B8E1CFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Money Pro - это единая программа для ведения бюд�
 ```bash
 magnet:?xt=urn:btih:46AC9FEE54D71D79AD2A917B273DF2236AB74D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Fire - экшен для Вашего творчества. Многие оце�
 ```bash
 magnet:?xt=urn:btih:B89753F93F2D9FE40F715300ADB264E8E7D43434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D23E157F00186F9F2F9758FE2A64E9D0409DBFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ CameraBag Cinema 1.0.600 [En]
 ```bash
 magnet:?xt=urn:btih:88EFE8B3D4C3449859FD1C1A66F4934FC5EB0840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05C1D135E2649D5CEF1408C119D91E203D1F2E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ Replay Media Catcher - программа, позволяющая захваты
 ```bash
 magnet:?xt=urn:btih:153DCCEEEA9E7041FB3ED62502A7078F2ABC12AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ VLNY - Помни (2015) [MP3|320 Kbps] <Indie Pop, Synth Pop, Dream Pop>
 ```bash
 magnet:?xt=urn:btih:A69A5714269E901CADF5FCE84ED2E48E32819B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:103E107D729B865C68D874A788F7D25F27877BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

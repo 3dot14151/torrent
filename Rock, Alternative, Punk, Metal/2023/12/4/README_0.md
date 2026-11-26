@@ -22,8 +22,7 @@ Skeletal Remains - Beyond the Flesh (2012) [FLAC|Lossless|image + .cue] <Death M
 ```bash
 magnet:?xt=urn:btih:449231980CDE694C41A4BFE1229A2A52BAC8A957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Starer - Wind, Breeze, or Breath (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 ```bash
 magnet:?xt=urn:btih:266917CEF42228E1F376781327C405516A7F766C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Night In Gales - Towards the Twilight (1997) [APE|Lossless|image + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:0BF1361580A109506251F6850B98852A09F07AD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Night In Gales - Necrodynamic (2001) [FLAC|Lossless|image + .cue] <Melodic Death
 ```bash
 magnet:?xt=urn:btih:8BCF535AFE67EC0CA72A48925963E05199E4989B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Night In Gales - Nailwork (2000) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:F532B666C722D799B5030B4F9A0BC504F4D5E530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Skeletal Remains - Condemned to Misery (2015) [FLAC|Lossless|image + .cue] <Deat
 ```bash
 magnet:?xt=urn:btih:1E515A709FA42FE32DECCAF89D52157F07CB861E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Autopsy - Ashes, Organs, Blood And Crypts (2023) [FLAC|Lossless|image + .cue] <D
 ```bash
 magnet:?xt=urn:btih:5BF1949EADC461E3903D96E81CB5208F4479FA74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Night In Gales - Thunderbeast (1998) [APE|Lossless|image + .cue] <Melodic Death 
 ```bash
 magnet:?xt=urn:btih:2C50D63AB189679C6FF4BC61F0448BBFF49982BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Serenity - Nemesis AD (2023) [FLAC|Lossless|image + .cue] <Power Metal, Symphoni
 ```bash
 magnet:?xt=urn:btih:CFE9E5F40DCAE7286CD2F37CC448EFEBC2FD9625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ SideQuest - The Story of No One, Pt. 1-2 (2022-2023) [MP3|320kbps] <Symphonic Po
 ```bash
 magnet:?xt=urn:btih:A10152970C7C56D4761BED6841396F347CDA7B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Angra - Cycles Of Pain (2023) [FLAC|Lossless|image + .cue] <Progressive Power Me
 ```bash
 magnet:?xt=urn:btih:F8E5405C57356EE3F599B61D1F6BED3FC6C70091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:A631CF628DCCB5EE7DE7FAD8FFD7BF36FE233743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Till Lindemann - Zunge (2023) [FLAC|Lossless|image + .cue] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:383513FBF0A147ED90C79024A1EC69C3EAD0FFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:923C76A84CEC8F1B08CB61D3C9B33FBC3AE33220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|image + .cue] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:E89A6BB21601FF9993CA8D1FE23330C24933862A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Benevolence - God (2011) [MP3|192 kbps]<Operatic Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:D39F5CF16BEE37441AEE763D004EC3766FF88687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Iron Mask - Black As Death (2011) Limited Edition [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:5C7973C79393E474B08D1723A3EE5DA17A5781BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Michael Bormann - 4 альбома (2002-2010) [MP3|320 kbps]<Hard Rock/Melodic 
 ```bash
 magnet:?xt=urn:btih:91753AE456F8685101F177CB7BAD8FD0194F0230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Paramore - Singles Club [EP] (2011) [MP3|128-192 kbps]<Alt. Rock, Pop-Punk, Fema
 ```bash
 magnet:?xt=urn:btih:82035F5E4D92B828D1854B495606F4B3E405F83E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Paul McCartney - Privet Chuvaki! (Live In Moscow 2011.12.14) bootleg (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:AE6B2F67547A424E71487B6C72C17E7783AE58BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A14CAF7D5B2EEA9566604C1B552AC42763420D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

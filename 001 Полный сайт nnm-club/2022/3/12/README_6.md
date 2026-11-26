@@ -19,8 +19,7 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 ```bash
 magnet:?xt=urn:btih:A324C5095B350860D34FD604BC5E49946ABA6196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smooze одушевляет ваш скролл и добавляет функц
 ```bash
 magnet:?xt=urn:btih:77796E8356CDFC45A803EAF3D5067138C6DEAD69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - White Sands (Chill-Out And Electronic Collection), Vol. 3 (2022) [AAC|~332 
 ```bash
 magnet:?xt=urn:btih:CA259D9128F7CFBC7B476F5DF3A2EE233236FF59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VA - Chill Today, vol. 5 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:771D5EB1FEDF215632823208EDBF489C85A83DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Debookee - анализатор сетевого трафика, с возмож
 ```bash
 magnet:?xt=urn:btih:CBD21BAEA5736E332F9BE3D67F80CD2B15E3ADE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Papik - Papik Presents Cocktail Mina, Vol. 2 (2022) [AAC|~319 Kbps] <Nu Jazz, So
 ```bash
 magnet:?xt=urn:btih:D9B95089B707CA4A1160B27450EB2E223184354B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Nicky Romero & Tim van Werd & Timmo Hendriks - Protocol Radio 500 (2022-03-10) [
 ```bash
 magnet:?xt=urn:btih:F984734EAF19BD414570F1FA2BFBF471879B6CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Iridient Developer - мощное приложение для обработки
 ```bash
 magnet:?xt=urn:btih:A6B35E3B57E0C54F67E179ABC9EFF40FBE04E13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Papik - Papik Presents Cocktail Mina (2015) [AAC|~330 Kbps] <Nu Jazz, Soul, Loun
 ```bash
 magnet:?xt=urn:btih:F2882C6AB247BFAE0DA1BB5AD22B5700A97F12E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Hibria - Me7amorphosis (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Speed 
 ```bash
 magnet:?xt=urn:btih:521634D3196D81165144DF42897CAC81C6E1B605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Wolves at the Gate - Eulogies (2022) [FLAC 2.0|44.1/24|tracks|WEB-DL] <PostHardC
 ```bash
 magnet:?xt=urn:btih:3075615A269D335FD957BB21164D780DFD5DC2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Ancient Mastery - The Chosen One (2021) EP [FLAC|Lossless|image + .cue] <Epic Bl
 ```bash
 magnet:?xt=urn:btih:52546AFCA4DB9E63DBE03F36B7C32E9742F4D65F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

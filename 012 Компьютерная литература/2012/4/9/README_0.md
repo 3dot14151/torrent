@@ -19,8 +19,7 @@ Steinberg | Руководство пользователя HALion 3 (русск
 ```bash
 magnet:?xt=urn:btih:AEFE0FD833121622BDE03F0938C52B4309537CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

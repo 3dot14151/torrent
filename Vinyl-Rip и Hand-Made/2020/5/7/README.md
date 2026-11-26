@@ -22,8 +22,7 @@ A4 Let It Be Me(   Читать дальше...   )Жанр: Jazz, Easy Listenin
 ```bash
 magnet:?xt=urn:btih:65BBDA74124C619F8598F4FDA3F70CE3B441445B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

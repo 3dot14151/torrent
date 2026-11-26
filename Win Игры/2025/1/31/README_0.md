@@ -19,8 +19,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.03.20053/dlc) License GOG [Digital Delux
 ```bash
 magnet:?xt=urn:btih:3D8EC297AFE9E726E12CCAAA8BF172EF298AC98D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Manor Lords - стратегическая игра в эпоху среднев
 ```bash
 magnet:?xt=urn:btih:9F057EC5C13E3953EF9E80329D49F46EBBC9DAB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battle Realms: Zen Edition (2019) [Ru/Multi] (1.59.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:580EEE79C3EC7FEFA1FE10094D1F805B66A343BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) Repack seleZen [Early Access]
 ```bash
 magnet:?xt=urn:btih:68339003B3F55E4D31A714BA3E8D1F0848EFAB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The End of the Sun - это мистическая приключенческа�
 ```bash
 magnet:?xt=urn:btih:16EC48F5410601AD05BCD9820ED27D25BD0226EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ ReSetna (2025) [Ru/Multi] (build 17191225) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:8EA6FA757F4E02AF9A99653439849AB5C9EEF49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ JOY OF PROGRAMMING - Software Engineering Simulator (2024) [Ru/Multi] (1.0.0) Re
 ```bash
 magnet:?xt=urn:btih:01E1DF6A8D44E7538D5C3C876CA39633AA074EA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Learning Factory - симулятор, который призван созда�
 ```bash
 magnet:?xt=urn:btih:D8BCA8F806F1471950ABEF020F504902365D4184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

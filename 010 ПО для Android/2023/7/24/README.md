@@ -19,8 +19,7 @@ Moviebase является самым мощным приложением для
 ```bash
 magnet:?xt=urn:btih:A2A400201180A1CBC73A04337ED8CC9BBF3BAA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XFolder File Manager - отличный представитель катего�
 ```bash
 magnet:?xt=urn:btih:40DF12073102B5703F8D51357A1AAB556991D954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ X-plore File Manager - продвинутый файловый менеджер 
 ```bash
 magnet:?xt=urn:btih:2D26941ED6FBE8B7F8F56656CA6AF508F843400B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ CapCut - видеоредактор, что понравится поклонн�
 ```bash
 magnet:?xt=urn:btih:B84F05870AA871C869050E94940A97258FFE812A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ViMu Media Player - это гибкий и удобный медиаплеер �
 ```bash
 magnet:?xt=urn:btih:8B0A17DEC1DB830876BBF7795AD801FEDF033185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

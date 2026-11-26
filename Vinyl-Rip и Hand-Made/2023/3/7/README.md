@@ -22,8 +22,7 @@ Insomnium — финская англоязычная группа из горо
 ```bash
 magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Так Лучше · C'est Mieux Comme Ca(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:0BCFFDA9286168ECDA880FD6ABE74EA3A11A2871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ An English Haunting (2024) [Ru/Multi] (3.6.0.54) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:494D0253099772E39D883471B8C47DC5D7B72D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Dark Rites of Arkham (2026) [Ru/Multi] (3.6.1.34) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EC6C2D974908E06F75814167EE3431D31883B71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nightmare Frames (2022) [Ru/Multi] (3.5.1.19) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C3EF5CDE547E91C1A5C5183E386057FEDCB2DDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Awakener Battle Tendency - это экшен-RPG, объединяющая �
 ```bash
 magnet:?xt=urn:btih:833BA28369C8E0CD2A3F5E896DFB4BB3258408E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Outworld Station (2025) [Ru/Multi] (1.0.0.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EA2AD3DB0467F194DD4ED0C794DFCC9149C83796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ MOTORSLICE - это динамичный экшен-платформер, вдо
 ```bash
 magnet:?xt=urn:btih:3E0E2A636ADC45ECEF94C162B7125BA3E24E3E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Metro Gravity - это трехмерная игра-головоломка от
 ```bash
 magnet:?xt=urn:btih:78248EC93B7D58552A29B4AF54FA381850466085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

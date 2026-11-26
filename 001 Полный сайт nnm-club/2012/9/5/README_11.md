@@ -18,8 +18,7 @@ NIIED | Начальный курс корейского языка; Корей�
 ```bash
 magnet:?xt=urn:btih:FD0F707D5A981148BFBC0FE6F2AB60F107F1C886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legends of Pegasus [Ru] (Repack/1.0.0.4115) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:F3A1CBD3496F7C51F882624001D6553876D7B73A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15B589AB851D21C02DB42F799BC5854702027D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Adobe Acrobat 9 Professional v.9.5.2 DVD [RUS / ENG]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Deus Ex: Human Revolution: The Missing Link / Deus Ex: Human Revolution Augmente
 ```bash
 magnet:?xt=urn:btih:FACB7BF5ED1F9F35102C0EE1538A885B3AA4071D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Queen - 40th Anniversary Royal Orb Limited Edition USB Gift Box (24Bit) (2011) [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Dark Souls: Prepare To Die Edition [En/Ru/Multi9] (Repack/1.0.0.1+FIX 0.8) 2012 
 ```bash
 magnet:?xt=urn:btih:A9B5C697D8A7652CAA43280072ED3B11BF71D339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Pinnacle Studio 16 Ultimate 16.0.0.75 + Content [MULTi / Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 ```bash
 magnet:?xt=urn:btih:4A15E71138E0C1955800CA904BC0E503A84697A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Torque Pro - Диагностика автомобиля через интерф
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MintAI - Photo Enhancer Remini v1.2.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:870893DDF5CBC7F797590BDBF2259F01C81654DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

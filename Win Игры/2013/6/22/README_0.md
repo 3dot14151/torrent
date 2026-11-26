@@ -19,8 +19,7 @@ Calavera: The Day of the Dead Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:0B7B1E10B6A317EC39FD15DBA526FF1D21FFFCAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Living Legends 2: Frozen Beauty Collector's Edition / Живые Легенды:
 ```bash
 magnet:?xt=urn:btih:B5C6D9D4938A816C2B7374E051C5443816EFBF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MotoGP 13 – новый симулятор мотогонок с серьезн
 ```bash
 magnet:?xt=urn:btih:BD2785E4C50D9B9A320386E50A19E93D587EACCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

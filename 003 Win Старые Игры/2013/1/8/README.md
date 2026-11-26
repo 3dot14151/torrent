@@ -20,8 +20,7 @@ Perfect Weapon [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:D1978D4E8EB90B86FBCB4EA46A1DAE40DBB7511A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Sinistar Unleashed [En] (L) 1999
 ```bash
 magnet:?xt=urn:btih:5AA3A8608E662B2F66EE56F388770CDDE0E37B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Men in Black: The Game [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:B395F154FD279A08341EF5543C61906D04989384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ The Fireman - Electric Arguments (2008) [FLAC|Lossless]<Ambient electronica, roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Fueled By Fire - Trapped In Perdition (2013) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8266EFB71564E0450F2E4411176986A566188F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Granicus - Granicus (1973) Remaster 2009 [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AF0739D7D52B1D8ED87FC5AC7E1FBC024B731B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Gary Moore - Victims Of The Future (1984) Japan Edition  [FLAC|Lossless]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:263746735CBFE9B9C1582156598573CB5C53C535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Sister Sin - Dance of the Wicked (2003) 2013 Reissue [FLAC|Lossless]<Heavy Metal
 ```bash
 magnet:?xt=urn:btih:676C43E1CC9F5A4CCC17BBC279B60075272EEDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Billy Joel - The Ultimate Collection (2000) [FLAC|Lossless]<Rock, pop, adult con
 ```bash
 magnet:?xt=urn:btih:597027715CB57D81E55130704153602BF8430256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ The Reign of Kindo - 3 альбома, 1 EP (2007 - 2013) [FLAC|Lossless]<Indie,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Sick Puppies - 5 Альбомов (2001-2013) [FLAC|Lossless]<Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:77B8BF3B784CB945ECB029500B238259E7F3425D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Accept - Balls To The Wall & Staying A Life  (1983-1990) 2CD /2013, Hear No Evil
 ```bash
 magnet:?xt=urn:btih:EA82853D44D1F310621EB39BAE88547F36B8106C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

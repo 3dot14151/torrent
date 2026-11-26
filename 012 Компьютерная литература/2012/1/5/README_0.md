@@ -19,8 +19,7 @@ MAXON | CINEMA 4D release 8. Учебное руководство. [2004] [PDF]
 ```bash
 magnet:?xt=urn:btih:E77AD02060499DBA725BEB4E17365BE23A88C732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

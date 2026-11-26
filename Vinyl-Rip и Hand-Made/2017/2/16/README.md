@@ -22,8 +22,7 @@ B1. Get Your Rocks Off (2:51)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:9BD7F480458F1482862DE7FE14CA7DB2AE2E64B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Celestian Tales: Old North (2015) [En] (1.1.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B36FCA7579A161766EF759C0866BE4223E7E4F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Lumo (2016) [Ru/Multi] (1.06.27) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8EF0C4A32D08D10091E97ABCFAC8DBF729264618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7F3301EE3BB806B1C7A2F3B006401435A37B0FB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mike McGinnis - Recurring Dream (2017) Sunnyside Communications [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:610BF80441FA6C0C557EAD2B88EC20687F2DA47F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Peter Weniger - Point of Departure (2014) 2016, Skip Records [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:34F023448844D7FE513217E514CFFAFA1ACEEB07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Fluxion - Upsides & Sideways EP (2018) Echocord [FLAC|Lossless|WEB-DL|tracks] <D
 ```bash
 magnet:?xt=urn:btih:3FF26E7B83FE4FCF4FE30742926FB898543EB008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Max Leonidas - Hotel Martinez v.3 Luxury Life house electro club (2007) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:EDB4ACED75C85ACFA558D9CFEBD8DE1552C12437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42D6F351749E5CBB2EC2A2AE81F8B46E9F8115DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Robert Rich - Live At The Gatherings 2015 (2017) Industry8 [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:D656A81A29E9DDE0CF2F38D6FFFFF57C792D6F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Hordak - Padre (2016) digipak [FLAC|Lossless|image + .cue] <Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:BE25003D18C29DFD9E52839A2805419C7900B969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Smooth Summer Lounge And Chill House (2018) [MP3|320 Kbps] <Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:A0C7691F5AEBEC398482FF12EF796CA8D93C4A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Inspiring Sunrise World (2018) [MP3|320 Kbps] <Melodic, Euphoric, Blissful>
 ```bash
 magnet:?xt=urn:btih:4442A6BBAFA032808F6B8C81A754E059CF761F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Tatir - Cave Of Ephyras... To The Infernal Fields (2012) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:2692894A08AE449862B2CF45F1E154ADBD6576B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F4E2C74FDC64BE6DCF926CA2B9D442376534AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ VA - Balearic Lounge: Fresh Nu Lounge Music Selection (2018) [MP3|320 Kbps] <Dow
 ```bash
 magnet:?xt=urn:btih:3E4B177412B0E377CFE9333422B19D4B92F490E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ VA - Damaged Presents Charged (Mixed by Jordan Suckley & Coming Soon!!!) (2018) 
 ```bash
 magnet:?xt=urn:btih:C332CAA2B32165FDE53CCE89462DD563D39050B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ VA - Ori Uplift & Marc Tatossian - Uplifting Only 259 (2018) [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:5581E99893E81E646AF438A95CFE0A0B247D7D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ VA - Chill House Session vol.2 (2018) [MP3|320 Kbps] <Downtempo, Ambient, House>
 ```bash
 magnet:?xt=urn:btih:8CACCB81C4BFCD6DCF15BEAB0312623AEE170150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ VA - RLX 16 - The Chill Out Collection (2018) [MP3|320 Kbps] <Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:3BCD3E7932F093F0D197370590A36B273CDC3284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ Mimicking Birds - Layers of Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Acou
 ```bash
 magnet:?xt=urn:btih:E0BA047164931231145071068670F8463C028364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ VA - The Ultimate Lounge Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:E766F14F235CD168C4BB19FA3B3EF8AC76C4E6FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ VA - Record Super Chart #521 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:E310B63A9AF87AC84B52441E5ADE127D5A848C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ Stranger - The Bell (1985) Hot Blood Records [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:73ADBA9164E7DDD2C6B197A31B3916D6D7468455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ Macgo Mac Blu-ray Player - это один из лучших (если не ск
 ```bash
 magnet:?xt=urn:btih:9A3DAB4C8B72163D79757738C29502DEDB0E6677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45DC81A35BF023D2593CF8D0D5A54534A4C61049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ VA - Workout Mix vol.11 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Elect
 ```bash
 magnet:?xt=urn:btih:989DB6E3A5655DA5559989BFD90B8F2946B21239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ VA - The Story Of Bossa Nova (2000) [FLAC|Lossless|tracks + .cue] <Самба, �
 ```bash
 magnet:?xt=urn:btih:5867374473C11AE564C56409D4EE8BAB74CCB910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F79C2D7A6AC6FFA7DF36AF99779EA2052ECA865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

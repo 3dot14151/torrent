@@ -19,8 +19,7 @@ Beyond the Invisible 2: Darkness Came (2017) [En] (1.0) Unofficial [Platinum Edi
 ```bash
 magnet:?xt=urn:btih:CFE118740176B2D42F25FD92694E4902FA9057F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark City: London (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:01D341955DFFED8A4447DB346551348873324D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Train 3: Clashing Worlds / Поезд привидений 3: Столк
 ```bash
 magnet:?xt=urn:btih:4A1CA812F7112F17E0A2F2C1C4B9CC3A0D330199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Haunted Hotel 17: Beyond the Page / Проклятый отель 17: По ту 
 ```bash
 magnet:?xt=urn:btih:381ADE51C3F433F4FE5890577DBA40D8C03FC75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ EMERGENCY 20 (2017) [Multi] (4.2.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:16F9987DA429AFF483F6A9FC6B26CABC1B887F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

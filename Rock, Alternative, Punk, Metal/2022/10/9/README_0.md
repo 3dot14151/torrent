@@ -18,8 +18,7 @@ Lacrimosa - Abendlied (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche
 ```bash
 magnet:?xt=urn:btih:71A2E8390A761C906FD2145D8F92D020C71ABE53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40D1CD3BF2AB7F0ED15885BF240400849EA6F0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Iron Maiden - Live …New York 1982 (2022) Japanese Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:9FD63B5C004CF21AECF699B499B60F7E5C1C0A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Statement - Dreams From The Darkest Side (2022) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:EFD6F8C6A3C47D02B50D3CBC15D012CA89D44ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Eclesios - Halls of Salvation (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black
 ```bash
 magnet:?xt=urn:btih:EB7CE6D499B5271E54BD40E6210205DC172743F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ The Tangent - Songs from the hard shoulder (2022) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:74298DBDE756E7564DD6555E08A741EF8FDBAA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ ESSE - Рок-опера «Дорога без возврата» (2011) [MP3|32
 ```bash
 magnet:?xt=urn:btih:ACD5CE0B0AFD90C55C42A799AC272A7C6C07E852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Magistarium - Дискография (2009 - 2022) [MP3|320 Kbps] <Symphonic Pow
 ```bash
 magnet:?xt=urn:btih:7C22E16F586EC3E0FAE91DA63D0B3DE3B64CA408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ BOREALIS - канадская melodic power metal группа, сформиро
 ```bash
 magnet:?xt=urn:btih:550F30DA93F0CBB4B176BE61747AE3530A184498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Sailing To Nowhere - Lost in Time (2017) [MP3|320 Kbps] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:DC8FC5893E52108660D2E45424FBBFCEDF4185D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trance - The Loser Strikes Back (2017) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:80E66A2D9B037E31A000B488EE3F1866B9DAB1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6D198893903D17212E5103FB6EB24599EBAB3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sheryl Crow - Be Myself (2017) Target Exclusive Version [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:12A5597F6EC5AFAC5A714C6A77EF6FE370957840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fleetwood Mac - Tango In The Night (1987) Remaster 2017 (3CD) [FLAC|Lossless] <R
 ```bash
 magnet:?xt=urn:btih:B2EF8D102FCD7626B684F516336ACA5B884450F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Procol Harum - Novum (2017) [FLAC|Lossless|image + .cue] <Progressive Rock, Art 
 ```bash
 magnet:?xt=urn:btih:57B64C2B8D22278C5AFBA1315BA5A284AD97F2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Fleetwood Mac - Tango In The Night (1987) Remaster 2017 (3CD) [MP3|320 kbps] <Ro
 ```bash
 magnet:?xt=urn:btih:59AD0BCF10FC79DB22F44DC72927B7A3639CD5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

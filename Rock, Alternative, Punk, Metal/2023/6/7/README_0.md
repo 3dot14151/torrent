@@ -22,8 +22,7 @@ Coffinborn - Cadaveric Retribution (2023) [MP3|320 Kbps] <Death Metal, Oldschool
 ```bash
 magnet:?xt=urn:btih:C82A3A203E0D35B070616792F28A5DC5BE56BA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ DevilDriver - Dealing With Demons, Volume II (2023) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:75E82D6843AE520BEF1022878F7E4FD464F0A249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Akilla - The Gods Have Spoken (2023) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:6479660E4098E27C8BFB2AE5329E781FCA1DBC08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Drama Noir - Nightfall upon the Asylum (2023) [FLAC|Lossless|WEB-DL|tracks] <Atm
 ```bash
 magnet:?xt=urn:btih:2DE015DC6801934CC7C82340CCA40A6510530A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ June 1974 - Please Destroy Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 ```bash
 magnet:?xt=urn:btih:B08710277BAFFC805F6D13E67FBEEF0C4BD71CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Abbath - Dread Reaver (2022) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:8D4CCDA5F40D586E1D59AE4335B982511298F0E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Drama Noir - A Necromancy Lore (2020) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric
 ```bash
 magnet:?xt=urn:btih:6293DD823B71AFB6D0D694E8F33D6DFDC1CE77D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Ekrom - Uten N​adigst Formildelse (2023) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:C474F0D00E094D76F1CC36EEEA9F8B05F7007BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Noel Gallagher's High Flying Birds - Council Skies (Deluxe) (2023) [FLAC 24/44.1
 ```bash
 magnet:?xt=urn:btih:DD3F4896283F92AC092EABA3AC65E17209258296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Dieth - To Hell and Back (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:BC5F175E585047347123704E2C131AD6DD1440BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Jelly Roll - Whitsitt Chapel (2023) [FLAC|Lossless|WEB-DL|tracks] <Country Rock,
 ```bash
 magnet:?xt=urn:btih:1AE76751E595C2C5B69612779E4ED0F0CB9D990F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Elegant Weapons - Horns for a Halo (2023) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B03740E19C0DA029DC3FD75D45277C16ED6928A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

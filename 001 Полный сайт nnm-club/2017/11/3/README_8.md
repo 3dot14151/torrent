@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:F455BADBFF506F4C0F589CF959378CD378145881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6079BC04F6FB694F51A728415856997DD3EE67B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2C6123C6B525EC238EBC777DDB81FC134E779A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Zone - Metade (2011) Dneeyedfish [FLAC|Lossless|image + .cue] <World Fusion, Eth
 ```bash
 magnet:?xt=urn:btih:34B8B6307E6DA85C5E72E9DEFB65C99A2B53F0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Nothing But... The Future Of Trance Vol. 04 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:EDF2737EF7D201864312E219BE9FA03C57C6A237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Forever Dance (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:0897C8D363B9342D4E31E394225247D2572B845D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ghost And Tape - Vár (2017) Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 ```bash
 magnet:?xt=urn:btih:4721A9421EB76EE0E1090FDC6BCB95C7DAE74D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Charles Lloyd New Quartet - Passin' Thru (2017) Blue Note [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:DCE9004C162F5A6A0C0AB2A6A803575E1BB56C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Club Hits Vol. 4 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:06006F68A810983587FEC647FB32E8193DBDDAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Semiomime - Close Ones (2017) Mindtrick Records [FLAC|Lossless|WEB-DL|tracks] <I
 ```bash
 magnet:?xt=urn:btih:288EC9B312C17A7A8F01B18DB687ECC76921CD5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F5E4134C21E5EEEAE4534D7F7C544FF65DE7D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - New Grooves, Vol. 1 (25 Funky Lounge & Electronica) (2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:56A1AE55652A0C78F2FD8858BE90D4012C59A2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Sinemotion 150 Extended Ambient Mix (2017) [MP3|320 Kbps] <Ambient, Downtrm
 ```bash
 magnet:?xt=urn:btih:E932D62583D6B2B2007F238244811564847EDAD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Wonderful Chillout Lounge Music, Vol. 1 (2017) [MP3|320 Kbps] <Balearic, Do
 ```bash
 magnet:?xt=urn:btih:1D10374053ED1C3A2E1F6224288A760879732739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ raison d'être & Troum - XIBIPIIO. In And Out Of Experience (2017) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:B395DB849C226878840DEE586DB36C164C2961CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Best Trance Music Vol. 1 (Mixed By Gerti Prenjasi) (2017) [MP3|320 Kbps] <T
 ```bash
 magnet:?xt=urn:btih:20313851C3CF719A712009B7A49451DAD9C2515F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61F2071215C7B02743649E4D08BEE483631C8E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Willie May - Haunted House (2017) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:078670A92F1193A82BC7E0CF0738273115928B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Canary работает с Gmail, iCloud, Outlook, Yahoo! и другими сл
 ```bash
 magnet:?xt=urn:btih:4ABB7BDBA3D302376A095B374A2172D6578ED014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF32FE35C3CEAF5A95349F3271D9F4B3EABB0BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ VA - Chillout Music 2017, Vol. 1 (Mixed By Gerti Prenjasi) [MP3|320 Kbps] <Balea
 ```bash
 magnet:?xt=urn:btih:2E0CBC72EC398BCF8C4AA528185F9AC503E98C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21BE2DB777B47E14A94865305C04E0E52CBA5A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BF456CB70BEFE33F7583D60C7D4D2CD8D8D74FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ iExplorer - утилита для (   Читать дальше...   )Тип и
 ```bash
 magnet:?xt=urn:btih:A5F6B73C2E51DC60C91C27FDE279EAEB5D7D7A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E64E04D5C19911076795E88AC9E0013FF978E5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +706,7 @@ hologram_ - Discography 6 Releases (2014-2017) Ant-Zen, Audiotrauma [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:B2CABC29FED531837D0071E2E01D864C8802EF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

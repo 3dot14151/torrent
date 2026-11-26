@@ -19,8 +19,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9v) License GOG
 ```bash
 magnet:?xt=urn:btih:4D87D002FF66E0204E15896EBFC59A23076D0CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ I'm counting to 6... (2024) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F7A1D428AD3A26DEC8129A79E62D60D344C6896A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

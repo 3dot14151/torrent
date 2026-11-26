@@ -22,8 +22,7 @@ FunEasyLearn это лёгкий и весёлый новый способ вы�
 ```bash
 magnet:?xt=urn:btih:AED4ABE5D94130604A5A74EAD31D60583CD547DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

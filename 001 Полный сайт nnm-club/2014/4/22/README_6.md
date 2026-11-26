@@ -20,8 +20,7 @@ Dilogy Borderlands 1-2 [PS3] [USA/EUR] [Multi5] [3.50, 4.21] [Ultimate Edition /
 ```bash
 magnet:?xt=urn:btih:726A7AC8CCB5BDC752F78DF80F952D8E65DF82AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D702DD48A464BC96370683884BED764DD1A4FDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Rain / Lost in the Rain [PS3] [PSN] [EUR] [Ru] [3.55] [Cobra ODE / E3 ODE PRO IS
 ```bash
 magnet:?xt=urn:btih:C670267592796C32255FF3643B983E764D043F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Micrоsoft Windows XP Professional with Sеrvice Pack 3 VL Russian.
 ```bash
 magnet:?xt=urn:btih:96C4F28420E765DF40CDEE14CF2A24D6E43554FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Wargame: Red Dragon – первый выпуск популярной сери�
 ```bash
 magnet:?xt=urn:btih:6F8B776C9195B489BA94F77E631FCE427AF80CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ KMSAuto Net - автоматический KMS-активатор для опе�
 ```bash
 magnet:?xt=urn:btih:F35C903D85A80AD319FF75BDE4ED08DEFB51A00F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6599B073EF6E93CB7D88F2B0F1058BBDF60A9D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ TRIALS FUSION [Русский] (2014) [XBOX 360][ Freeboot][16537]
 ```bash
 magnet:?xt=urn:btih:DCFB3C851CC6CCA75A06AEDE953D075105288645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Opera - один из самых быстрых и гибких в настро�
 ```bash
 magnet:?xt=urn:btih:7150DD7106A51676BFE124F25EE57EB235707EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B52DAE7FF9EE0F352627BDB0163C7E648C5F5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBD00F664EE17EDAEA2117AF63901330F628244C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Windows XP SP3 Seven DVD 2014.4 by OniS c обновлениями по 14.04.20
 ```bash
 magnet:?xt=urn:btih:981B8E9096B2390931A06FF22860DFEF456DC626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Dilogy Borderlands 1-2 [PS3] [USA/EUR] [Ru] [3.50, 4.21] [Ultimate Edition / 1.0
 ```bash
 magnet:?xt=urn:btih:C84B38116B8C2C203566A569ABACB56358582168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Windows 7 Ultimate SP1 x86 x64 Plus PE StartSoft 17 [Ru]
 ```bash
 magnet:?xt=urn:btih:8D150BECECDEDF417A952EF6359E9BA37C156B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FD1B340F132007F6DC54CD191A4F83F0630C3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E751CE3583C1ABFFEB961EA089A81997BDE22A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ HTML и CSS — основные языки разметки и стилей, с
 ```bash
 magnet:?xt=urn:btih:D3443DB3C9C76497771599E245E85220DBC03D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

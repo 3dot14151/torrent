@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:333169FB9DBED9D1ABC1ADA6C5EAF7DDAF40F3B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Adobe Dreamweaver CS5 - программа для разработки и под
 ```bash
 magnet:?xt=urn:btih:A464991A76E1CCD24BFC6FBC70C9EAA5D48D36F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

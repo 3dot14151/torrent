@@ -19,8 +19,7 @@ Beat Hazard Ultra + DLC {v.1.48s} (P) [Multi5/-] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:5C301A900C52228F13D795A487D79476BBD10258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACDAD5395EBAA1213CF5168386176C93B1C8214B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

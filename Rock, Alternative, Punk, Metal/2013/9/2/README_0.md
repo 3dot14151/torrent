@@ -27,8 +27,7 @@ Masterstroke - Apocalypse (2006) [FLAC|Lossless]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:34C471341BD4704802EB742C0AAE50DFB4A3D349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Deathstorm - As Death Awakes (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F70BABE46AB358943A58AE09F04B9CA103B9EE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ DevilDriver - Winter Kills (2013) [FLAC|Lossless]<Death/Groove Metal>
 ```bash
 magnet:?xt=urn:btih:E2A00CE6B03B8F746F239F2A814D317B08A16ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ The Devil's Blood - III: Tabula Rasa Or Death And The Seven Pillars (2013) [FLAC
 ```bash
 magnet:?xt=urn:btih:D523BB191C897BC9403F04C321EB2566691C6658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Mr. Big - The Best Of Mr. Big (1996) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5EA9AE9F066C5D417BBEF100B534F16E53BB2557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Ozzy Osbourne - The Ozzman Cometh (1997) 2CD Japan [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4A0B9F98DACC0888BF7637F4C535CD3EC5AD2160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ CD.1.
 ```bash
 magnet:?xt=urn:btih:E46A3B635ECB85237819299B942EBEF47E8F6047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Richard Marx - Flesh And Bone (1997) [FLAC|Lossless]<Rock, Melodic rock>
 ```bash
 magnet:?xt=urn:btih:612E204534F609905E32F6F2C781F0D0FDDBC408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D974CC4C2FC5091B513218EAAF7D6B2894A5D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Lyfthrasyr - The Final Resurrection (2005) [FLAC|Lossless]<Symphonic Black Metal
 ```bash
 magnet:?xt=urn:btih:EE5EE995DE97880445D1F17D3B980A9323CBF742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

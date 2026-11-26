@@ -22,8 +22,7 @@ Rotten Tongue - Sacrificial Ideation (2022) [FLAC|Lossless|WEB-DL|tracks] <Black
 ```bash
 magnet:?xt=urn:btih:FB49AC1D36C31DF5A4849C47410120D292EA2A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fear Disease - Floodgates (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:30929C20CE9860E9CFA83F50DC4D7F4888B7A777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ginger Wildheart & The Sinners - Ginger Wildheart & The Sinners (2022) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:12A763526B4A78B353AB03D7AB26EF345D6673EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ John Bongiovi - The Power Station Sessions 1980-1983 (2001) Reissue [OGG Vorbis|
 ```bash
 magnet:?xt=urn:btih:1082A9B3277BAA91ADAE0AA79C6E3A1E37B0C3B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jon Bon Jovi - Blaze Of Glory (1990) Reissue, 2013, Mercury [OGG Vorbis|480 Kbps
 ```bash
 magnet:?xt=urn:btih:88C1C43703CF5040D0749A7921200341B33FF47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD - 1 - The Original Mono Album:
 ```bash
 magnet:?xt=urn:btih:50DEF2A233A11B9CF7D898E995A3F96145ED8573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

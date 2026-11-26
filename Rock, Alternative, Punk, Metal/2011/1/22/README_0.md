@@ -28,8 +28,7 @@ Demons & Wizards - Дискография (2000-2005) [MP3|320 kbps]<Heavy Metal
 ```bash
 magnet:?xt=urn:btih:AB43A076DB861F53B13C270314478AE3AA30645C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Shocking Blue - Discography (22 CD) (1968-2008) [FLAC|Lossless]<Rock, Nederbeat>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

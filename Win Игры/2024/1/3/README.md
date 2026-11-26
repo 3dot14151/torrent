@@ -19,8 +19,7 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 ```bash
 magnet:?xt=urn:btih:90B3878379F93E6FCF1020A223A7FF36B5D40201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Darkwood - это игра о выживании, исследовании и с
 ```bash
 magnet:?xt=urn:btih:CB987DCB3C402E5352D41C8430CA3FDCCB7F06CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gone Rogue можно назвать иммерсивным симуляторо
 ```bash
 magnet:?xt=urn:btih:9B1742661E1EDE82EE6BA11A4A94F396ED6963AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Six Ages 2: Lights Going Out (2023) [En] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:53DBA14881C16D56877450DF278B537D30C6BC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Perfect Tides (2022) [En] (2.0.11) License GOG
 ```bash
 magnet:?xt=urn:btih:AF586A743B515EDF4F044AA521D1E00D26EC86E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

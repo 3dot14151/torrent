@@ -26,8 +26,7 @@ Spyon - Sly Tactics (2011) [MP3|192 кб/с]<Melodic Power Metal | Female Vocal>
 ```bash
 magnet:?xt=urn:btih:759FD97E034437D5BC4571DF0A41A6BD23CF9FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Seventh Sin - When Reality Ends (2014) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:94505ADDA3CA325527EA6DE0AF656E48F5D02FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Sloan - Commonwealth (2014) [MP3|320 кб/с]<Alternative/ Indie Rock/ Power Pop
 ```bash
 magnet:?xt=urn:btih:998B479D8484BD3092E49FADBC72CB4E05537AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Jonny Lang - Long Time Coming (2003) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:AE39B130221B6765689F527B7B15A05BE02CBD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Outline In Color - Masks (2014) Japanese Edition [MP3|320 кб/с]<Post-Hardcore
 ```bash
 magnet:?xt=urn:btih:97159678BE1A13AA39BFACBF076CFDCB966A6176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ The Feeling - Boy Cried Wolf (2013) [MP3|320 кб/с]<Alternative/ Indie Rock/ B
 ```bash
 magnet:?xt=urn:btih:B1FE1AE72AFF5A0CB6D2D7D3CC8F0553024D9DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ VA - A Tribute To Led Zeppelin (2006) [APE|Lossless]<Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:49A25B47325E86A24E7E42FF9532309357FBDA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Wake Me Up - 1 Альбом, 1 EP (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:E29DD7CC19699618B9BBCAF96B3134D8F01E5043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Chicago & Foreigner - The Very Best Of Chicago & Foreigner, 2CD (2010) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:5B06B9021A2B974BE08572EA20E214E393899296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ Accept - Best Ballads (2000) [FLAC|Lossless]<Metal>
 ```bash
 magnet:?xt=urn:btih:D64544C1BA6FC4DAEB29461D13D8EC7BF1F5FE35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ VA - Трибьют Александру Башлачёву - "Серебро и
 ```bash
 magnet:?xt=urn:btih:05BC461C039D2403992294B16623C452BC9FA5F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

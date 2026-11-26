@@ -19,8 +19,7 @@ Borderlands: The Pre-Sequel [Patch/DLC] (2015) (1.0.5) Official RELOADED
 ```bash
 magnet:?xt=urn:btih:C135C32F3C4D192D2C79B4BEDE0648DEBB782680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Defense Grid 2 — это новое слово среди игр в стиле 
 ```bash
 magnet:?xt=urn:btih:4969C6D2288AE65DDE2930735F81EF6F1764644E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Borderlands 2 (2012) [Ru] (1.8.0/dlc) SteamRip R.G. Origins [Game of the Year Ed
 ```bash
 magnet:?xt=urn:btih:2661C3EDB64BB5397363FD293F6579230941F55C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Distillator - Summoning The Malicious (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:52C9A3748E3081ABE2FC5ABBDECCEC0868D00E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) Live [MP3|320 Kbps] <Rock, Progressive
 ```bash
 magnet:?xt=urn:btih:A5FA5A017BECF417383259F5A9A08E72DC691D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tarja - From Spirits and Ghosts (Score for a Dark Christmas) (2017) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:569EA5A7AA61144A4262E525AE86A692B01D8C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stereophonics - Scream Above The Sounds (2017) [FLAC|Lossless|tracks + .cue] <Al
 ```bash
 magnet:?xt=urn:btih:520E0F125122B73EBE73DBF310C57B216420D7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Matrixx - Здравствуй (2017) [MP3|320 Kbps] <Neo-Post-Gothic, Alter
 ```bash
 magnet:?xt=urn:btih:96686AE7DA76CC2016F9E645954B1145A3F39B71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Deep Purple - The Infinite Live Recordings, Vol. 1 (2017) [MP3|320 Kbps] <Hard R
 ```bash
 magnet:?xt=urn:btih:9B3B211C2745D5C8134CD1C0F0351D2D20A0ADB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Queensryche - Empire  (1990) Remastered, 2000, DCC Compact Classics ‎[FLAC|Los
 ```bash
 magnet:?xt=urn:btih:BA25AA6EA1FB85D86AA04198621374EE630BB150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

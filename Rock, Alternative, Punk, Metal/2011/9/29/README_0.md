@@ -24,8 +24,7 @@ VA - The Godfather Of Heavy Metal. Tribute To Lemmy (2011) [MP3|192 kbps]<Heavy 
 ```bash
 magnet:?xt=urn:btih:E4C245934E418D57FC1717E88395F290EFB2CD81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

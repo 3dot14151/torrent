@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FA00AF1AF344CD17C762FCD87110BFD05215185B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ One Piece Burning Blood (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License / DLC] [Ru
 ```bash
 magnet:?xt=urn:btih:0DD9B8860FD0FAF7969513FC54997979D36AE925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E05763426944EFB7DBB0353CE5B708CC7AABF758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Gold Rush: The Game – это симулятор золотодобытчика
 ```bash
 magnet:?xt=urn:btih:E47FC990BE70D06FEC4FCF2577D0C726EB2BA771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Itproger | Полное изучение языка Python (2018) PCRec [H.264/1
 ```bash
 magnet:?xt=urn:btih:BE4513147704A14DC5D17305E1A87D866F886349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Kingdom Under Fire II — компьютерная мультиплеерная 
 ```bash
 magnet:?xt=urn:btih:509CF40B5081EFC2D99EEE03D6570B02096375FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A019C63C44BF2D3B954A7E76522C6A80D114456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB3F0D4777FE2122C25AB088472AA4BBC02DBF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Sword Art Online / Искусство Меча Онлайн  (2009-2018, онг�
 ```bash
 magnet:?xt=urn:btih:1493D7231D77AC1A0B9DDAD786BABDB8BF7D2936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

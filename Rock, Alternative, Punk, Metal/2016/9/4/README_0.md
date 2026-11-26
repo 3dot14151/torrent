@@ -22,8 +22,7 @@ Emptiness Soul - Without You (2009) [FLAC|Lossless|image + .cue] <Depressive Bla
 ```bash
 magnet:?xt=urn:btih:2595B786371AA93F9D1DC65E5CA59BF1002CCB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Deviator - Mighty Black Inner Flame (2009) [FLAC|Lossless|image + .cue] <Black M
 ```bash
 magnet:?xt=urn:btih:CF2C9C2DA064453D5FC8C29D4676CBDA51D9CA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mattsson - Another Dimension (2000) [FLAC|Lossless|image + .cue] <Progressive Me
 ```bash
 magnet:?xt=urn:btih:DF99857DECD5ED2220ADE1BB5DAC0C08F6513073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hospice - Land Of Eternal Night (2006) [FLAC|Lossless|image + .cue] <Symphonic B
 ```bash
 magnet:?xt=urn:btih:8BED2F4349A946D7E9F69ACD436E0A79062B894B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Far From Mind - Breakpoint' 33 (2009) [FLAC|Lossless|image + .cue] <Black Metal,
 ```bash
 magnet:?xt=urn:btih:F9A850C83FA14E73A0724BD0902235E818BD08C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:493467FD16A074BFBD69B6BEC882870DE87B4A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ghosthill - Embrace of a Chasm (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:FE292599ED682ABD12AEA40ABB311E51716EAAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Mencea - Pyrophoric (2012) [FLAC|Lossless|image + .cue] <Progressive Death Metal
 ```bash
 magnet:?xt=urn:btih:74D2D9CA4C5F4A333D47370FBBDF54F6E83DA1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ F.R.A.M. - Двери апреля (2010) [FLAC|Lossless|image + .cue] <Folk Met
 ```bash
 magnet:?xt=urn:btih:E86300B0A78F45D6003EBFA3230FB026AECD44AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Pain Confessor - Turmoil (2004) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:51D43A1CD0CC0D18644A3314D1BE7C43AAB0EECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Crystal of Carpat - Тьма и свет (2012) [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:6CD50F226AFC523A80766967B1E99196210FFD21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Grobut Neerg - Схрон (2012) [FLAC|Lossless|image + .cue] <Folk Metal, Death
 ```bash
 magnet:?xt=urn:btih:A6FD734E82609660E3F1A00A3C6D3F41BB85A6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ The Don Harrison Band - The Don Harrison Band (1976) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:D8BBE68A2B9F69B64B39CB1640B4408570C170B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ De Staat - O (2016) [FLAC|Lossless|tracks] <Alternative Rock, Electronic Rock, E
 ```bash
 magnet:?xt=urn:btih:654D514C2209750A420F9AE7FDEF0643717D8B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Satarial - Blessed Brigit (2016) [MP3|320 Kbps] <Folk Metal, Black Metal>
 ```bash
 magnet:?xt=urn:btih:4CC17CACDA6B5C3358EAF4A2E8F40F921A2D4F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Miss Behaviour - Ghost Play (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:31CCC5242B57F52EBF72AA907F4B07022DC66623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Scum of the Earth - The Devil Made Me Do It (2012) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:DC843284832395A1AE42E5BD2F6BF3AE06749346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Smokie - Burnin' Ambition (1993) [FLAC|Lossless|image + .cue] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:30FF5E0C09A26F61D380FBFD04A5D960FE1C0487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:615D07255FD71FA23A8F89B94DE5A36A0D3A050A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ New Model Army - Winter (2016) [MP3|320 Kbps] <Alternative Rock, Folk Rock>
 ```bash
 magnet:?xt=urn:btih:29D535D54A34E2607E381E8F582532050FEA3530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28286C5A4DCBC3196CA4E877E6F4E148B030D0DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

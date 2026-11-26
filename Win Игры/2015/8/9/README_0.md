@@ -19,8 +19,7 @@ Punished Talents: Seven Muses / Наказанные талантом: Семь 
 ```bash
 magnet:?xt=urn:btih:FF666A77057F8D5EC08E8043F3E554D97196A3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Story About My Uncle - это приключенческий платформ�
 ```bash
 magnet:?xt=urn:btih:BE0558EEE4650C149FBA01812D1CA633AC54CF04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lara Croft and the Temple of Osiris - продолжение одобренно�
 ```bash
 magnet:?xt=urn:btih:8F17304610D40FCDD7DCE4133ED9CD5F70ED1725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Star Wars: The Clone Wars - Republic Heroes (2009) [Ru/En] Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:224894837A8A46321FCF29440CDA5AE315D820BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

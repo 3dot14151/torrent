@@ -19,8 +19,7 @@ Crossbow Warrior — легенда о Вильгельме Телле. Перс
 ```bash
 magnet:?xt=urn:btih:3846BE5F5302B02E2D9F6DAC12986D706E9C835E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Emily Wants To Play (2015) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:ED7E41F2EDA43994EE9AD083F057367DE0DC73E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

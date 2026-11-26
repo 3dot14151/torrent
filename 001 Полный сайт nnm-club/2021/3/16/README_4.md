@@ -22,8 +22,7 @@ Daemonlord - Hellfire Centuries (2006) [FLAC|Lossless|image + .cue] <Black Metal
 ```bash
 magnet:?xt=urn:btih:700722FFB623F3160E4246025F7D7B08B1AB5A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:99FF79B1B44B8D6408F285A38C926B27067E114A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crystal Eyes - Confessions Of The Maker (2005) [FLAC|Lossless|image + .cue] <Pow
 ```bash
 magnet:?xt=urn:btih:CDAE3ABEE6D5F31F2DC0822B9DB451577FAA9877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Crystal Eyes - Vengeance Descending (2003) [FLAC|Lossless|image + .cue] <Power M
 ```bash
 magnet:?xt=urn:btih:F5A350C185121EEFF88FC8841B236F9BD08FF44D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Crystal Eyes - World Of Black And Silver (1999) [FLAC|Lossless|image + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:F76419B5B7BA02B7C8B1820B5AA7D0FF8F1D601F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Crystal Eyes - Dead City Dreaming (2006) [FLAC|Lossless|image + .cue] <Power Met
 ```bash
 magnet:?xt=urn:btih:EB1330F768CA5A46B1E403836A59F69108C35BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Multiplex - Discography 10 Releases (1997-2006) Toytronic, U-Cover [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:DF5E26D5937A3990C07DA4D4903A8393EBC9B1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Michael Romeo - The Dark Chapter (1998) [APE|Lossless|image + .cue] <Progressive
 ```bash
 magnet:?xt=urn:btih:A90086F65B9E53E77ED6B35406118B4B4699AD34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E780CE5074140C158CCE1A549E08EBC76E7FB62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F023DBB3DB90B40E1CA97DCA54ED9FEFA28DDC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Black Diamonds - Once Upon A Time (2017) [FLAC|Lossless|image + .cue] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:FE20AC24BB889539B31DA513B552D57A4F82CEA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Crystal Eyes - Starbourne Traveler (2019) [FLAC|Lossless|WEB-DL|tracks] <Power M
 ```bash
 magnet:?xt=urn:btih:7DC2607AB50E9BF66F17B3169812205F30879768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D89CE5A612CE10EBA09482E2342C2FDE26C88EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84F06110AAAE035EB2589FACC0E73A9461231765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED9E6EE69AC52F10AB2FD5DEB74D62CEBAC9AA84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ Synth Elements - View from Outer Galaxy (2016) [FLAC|Lossless|WEB-DL|tracks] <Sp
 ```bash
 magnet:?xt=urn:btih:C266677AF3FA28B74C39A8C8A3E6A7DB8E697C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Synth Elements - The Illusion of Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Spac
 ```bash
 magnet:?xt=urn:btih:41E4B1A950760860862154AABDBFFDC20A6A08A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ VA - Table Of Elements Volume 5​.​0 (2021) M-Tronic [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:FDBC490F084B835526EEB2D83C3B3B3335A05B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Bram Stoker & Pete Ballam - 5 albums, 6 CD (1972-2019) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:4890610A27A8FE78991D05C9160CD8992A873D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F4B2DCE9EF1075D32DB14157E91DA966358F5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ Synth Elements - The Illusion of Time (Remixes) (2016) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:F3ED5093820F270376CC6F6A3E0A349A22F7B876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ Bob Baldwin - Newurbanjazz 3 - an Urbansmooth Suite (2021) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:4E3BE26338F2E4C615FA67E540328C458D9C951F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4261BE870FFF3F57783E13352B47BF0167BDCFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFE97A6CB147ACF23631ED53D12CF902EE53B3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ Synth Elements - Fifth Element (2017) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth,
 ```bash
 magnet:?xt=urn:btih:A81862E18E2D7A006CA7AF6EA08C42674123FAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CE58AAB6109A8B6FC0FAD74FA72B17F29115733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Operative: No One Lives Forever / Никто не живет вечно [Ru] (Re
 ```bash
 magnet:?xt=urn:btih:A01E667FD8D038CF938AAAF6F3A71E47F605229B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Contract J.A.C.K. / Агент Д.Ж.Е.К. [Ru] (RePack) 2003 | death7lord
 ```bash
 magnet:?xt=urn:btih:806B40B5E62EF1E610A4F5463D5C4AF4ED396161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 ```bash
 magnet:?xt=urn:btih:C0320C4603DE6CD5B60B1B3B76E9D3ED23AF3D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Real Monster Fishing 2020 v0.1.178 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:55A5B720C836255F212C107729CF24A605AD7C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

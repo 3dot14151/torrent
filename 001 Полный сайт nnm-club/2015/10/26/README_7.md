@@ -22,8 +22,7 @@ Omer Avital Quintet - Live at Smalls (2010) [FLAC|tracks+.cue]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:99988415D10EFDFC8AA8537A9365A38C8750DE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAF411D49AC773C0F2D36C9935AC13AECE1F7264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Dave Douglas - Moving Portrait (1998) /DIW/[APE|image+.cue]<Modern Creative, Ava
 ```bash
 magnet:?xt=urn:btih:C54C1627082C6A69A7E3DEDEE4DA713543EB452E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Ondrej Pivec - Never Enough (2007) [FLAC|image+.cue]<Neo-Bop, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:68997C86C91AADEC7BDC39E5842835A9B4604000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Omer Klein - Heart Beats (2008) [APE|image+.cue]<Post-Bop, Etho-Jazz>
 ```bash
 magnet:?xt=urn:btih:60C66CB443F8375729F032D27A2B0E860CBF42F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ One For All - Blueslike (2004) [FLAC|tracks+.cue]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:420AC07B7CD0BA1BCAE481ADA66AF7133544C725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Omer Klein - Rockets on the Balcony (2010) [APE|tracks+.cue]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:085CC7D6A42AC0A164BE93B3C2B201676B902118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Erik Tagg - Rendez-Vous (1977) /1998, Celeste/[APE|image+.cue]<Vocal Jazz, Jazz-
 ```bash
 magnet:?xt=urn:btih:2A1ED2DFA70F2B0DAC6BB0926D39E0E1EC25290F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Manuel Le Saux - Trance Pioneers 009 (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4B2219BA2A058ADF728909CB03F365A6C314C880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF46D844EF88BFEBD2F26A13A04DEA04CB939E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Genuine Houserockin' Music V (1993) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:BA98C9A426B3ABCA8D4A8BF9A871F8CDF4368B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:FC3D7EBD89B7D2656616E0EC209C21321A380647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Shemekia Copeland - Outskirts Of Love (2015) [MP3|320 кб/с]<Contemporary Blue
 ```bash
 magnet:?xt=urn:btih:20F0F6FD5C5AA21EB60F823BBF1F315D927B8B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ Toshiko Akiyoshi - Lew Tebackin Big Band (2009) /Mosaic Select 33, LE, 3CD/ [FLA
 ```bash
 magnet:?xt=urn:btih:D7409C1632307C849AE8BA45B755699DA458A988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ VA - Suanda True (Mixed by Ahmed Romel) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:EF12CAD0DA8C01CDBD5EF1680067C206217D801F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Pat Metheny and Ornette Coleman - Song X (1985) [FLAC|tracks+.cue]<Jazz, Free Ja
 ```bash
 magnet:?xt=urn:btih:DA1893BA35F4D1D306AD5478E7DD531CA575F973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ One For All - No Problem (2003) /Venus Records/[FLAC|tracks+.cue]<Post-Bop, Stra
 ```bash
 magnet:?xt=urn:btih:925E7BE532ECDBBAB4F410679D40D1E0CAF0C8AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5256950A88C2A7D9281DCC647C2FF8D16DCC2C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ VA - Absolute Busloops Tech Construction (2015) [MP3|320 кб/с]<Club, Progress
 ```bash
 magnet:?xt=urn:btih:0DCF17453DFB2AA58482581BCAE80FED830DD33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62B6C3A191BD302393D2512D359FCE9DB530FFA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ VA - Vocal Trance Seduction Vol 6 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:99EBAC321C441FB5F6693B4F1BB6CDDFF05F4D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4844810D48E3E1920F6743C0370E98B21E022D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ Julliet - Julliet (1990) [MP3|320 кб/с]<Hard Rock, Glam>
 ```bash
 magnet:?xt=urn:btih:3F7AA24850952FC91CE7A8826D1B778B3F8FAE1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ Disc 1 (01:01:20):
 ```bash
 magnet:?xt=urn:btih:44D2A733D08DFB01998C1ED57721320313378243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70AA21A1B4DDF624B5D80F46489628A0C03C565A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ Dave Brubeck - Brubeck A La Mode (1985) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Conte
 ```bash
 magnet:?xt=urn:btih:05D6642D7F21E12CA98080B0228C46308E83562C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Dominus - The First 9 (1996) [WavPack|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Le Arestantz Crew - Часть Первая (2012) [MP3|320 кб/с]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:8C5B85768FA0E5A12F536A4DF31A798E2E4F21D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Madnely - Sueno Eterno (2012) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4C6752AADFF7318B2812851750ECC0554220B5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC772E7CD703E98ACB4F5163317A8C6DA4686093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Aeternitas - La Dance Macabre (2004) [APE|Lossless]<Sympho Gothic Metal >
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Above The Earth - Above The Earth [EP] (2012) [MP3|128 кб/с]<Progressive Meta
 ```bash
 magnet:?xt=urn:btih:BF682B4518B5AAA21051BE75AB2397A8656C21D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Your Tomorrow Alone - Ordinary Lives (2012) [MP3|320 кб/с]<Doom / Gothic Meta
 ```bash
 magnet:?xt=urn:btih:1888F747E53EFC00C618CE73FED6119BD1E089F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ VA - Top 20 Зарубежный. 8 Часть (2012) [MP3|320 кб/с]<Pop, Dan
 ```bash
 magnet:?xt=urn:btih:5F86E85ADBFD7ED3CBD5235E116891657F55A649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C319F2AA40A1E91FA4D5777C2673CE84DC487C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ Castles - You, The Organ Grinder (2012) [MP3|~245 кб/с (V0)]<Mathcore/Stoner/
 ```bash
 magnet:?xt=urn:btih:B29B37EB7E8F135B6B88A33677000C6616B1AF1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +344,7 @@ Tad Morose - Undead (2000) [WavPack|Lossless]<Power / Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +378,7 @@ Star Monarchy - Volume 1 (2012) [MP3|~190 кб/с (V2)]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:0004C256A8FE02193F8AF7504BC2B7809E3B322C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +407,7 @@ Ultrageist - 2 (2012) [MP3|320 кб/с]<Experimental Mathcore>
 ```bash
 magnet:?xt=urn:btih:CA5739F51DA26DDB73B903435675967A601C3EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +441,7 @@ VA - Tropiques Dancefloor 2013 (2012) [MP3|320 кб/с]<Dance, Pop,Club>
 ```bash
 magnet:?xt=urn:btih:C04C5274007D51EBE1528FBF5674F89862615945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EA438040C5666B0C40D3A329B78DD9985ADBF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5929F1A98BDD6F79CD9262D791F96CE27616ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE7CBB8C9A67273FA3EB56F53B36CB7A3139F39E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1808BA567E40C85CA8A33CC75A4D2BD83B7DBADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9720C4484913549D638B541CF3FFEC238AD4F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:153CF152C0C51DF814EEE16C5AC344507CE9FEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +644,7 @@ Roger Shah - Magic Island Music for Balearic People 242 (04-01-2013) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:D6D4763E97C5C6DA8695803FC64C7CD9759CB3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +674,7 @@ T.R.A.M. - Lingua Franca (2012) [MP3|320 кб/с]<Progressive Metal, Fusion, Exp
 ```bash
 magnet:?xt=urn:btih:955AF48407324F11BE68FDF9D312CA2B13BAA9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8194265AEC03E1F231FF8A56C4D8CA99403AF9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +742,7 @@ Ending Tyranny - Perpetual Greed (2013) [MP3|320 кб/с]<Brutal Deathcore>
 ```bash
 magnet:?xt=urn:btih:EDD75242DD23852323A9237533C8577BC00FE06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -799,8 +775,7 @@ Grief Of Emerald - It All Turns To Ashes (2012) [MP3|320 kbps] <Symphonic Death 
 ```bash
 magnet:?xt=urn:btih:D923BA04810B15E6C8E007A059F83A308B59CCC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -825,8 +800,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AFDD8B6C0D3724E17E5D7CFA71EE623B6D0FB8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

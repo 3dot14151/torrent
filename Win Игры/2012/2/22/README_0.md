@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:16713989F700B4291FA4E14CF68F883A192390DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ American Pickers: The Road Less Traveled (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:55E6159CC05C341744F95629E7EB1A6A59F81C59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

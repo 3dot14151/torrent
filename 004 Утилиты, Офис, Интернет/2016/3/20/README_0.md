@@ -20,8 +20,7 @@ ooVoo 3.7.1.13 Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E02816089A1FC6488ABDA1346C3A827923E6C04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Linux Live USB Creator 2.9.4 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A0353D2A9884B0C09945CC5B2EC544094790E397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

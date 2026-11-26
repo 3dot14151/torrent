@@ -19,8 +19,7 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:BCA8D94878C8CADBF47EF19DF8CB97031043B62C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ IXION (2022) [Ru/Multi] (1.0.7.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1E994F2F057EB03B703686F04E3FFE0695FAAD98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Winkeltje - игра о строительстве, украшении и упр
 ```bash
 magnet:?xt=urn:btih:3A0DAD4B90CBDA6C5183B1E1BBAB9C8AF6731E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ KUNAI - динамичная смесь экшн-платформера и ме�
 ```bash
 magnet:?xt=urn:btih:EC780C2BA7F4555230E100F3062778B53EE1760A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Good Company — это симулятор менеджера в жанре «т
 ```bash
 magnet:?xt=urn:btih:DFE80D5428BB5766CA3D554E4D24C16F6D605195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Flashback 2 отправляет геймеров в умопомрачител�
 ```bash
 magnet:?xt=urn:btih:630159C543696A2713C6B1B62359D70349755579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ SlavicPunk: Oldtimer - изометрический шутер, основанн
 ```bash
 magnet:?xt=urn:btih:04A0C67D0BB1D7A6FA10E05ECDEBB02C101FEFB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:3FAD629E883B104FD4C3A6746E7E55A55854FEC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mountains of Madness (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:96A9582525B45644D9AD385F68DE38A3EBCFFA43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75EFF579A48C1D05AFE61828D71DAAC9656A12B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ CRUELTY – что может быть лучше ужаса от японски
 ```bash
 magnet:?xt=urn:btih:9CDC89DED1CEC56C43457AFEA80F1609E5996CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Monster Bash HD - приключенческий экшн, главным гер
 ```bash
 magnet:?xt=urn:btih:B94E0F96F00030604306C728EAE1ADE00B2E1B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Cookie Cutter (2023) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1A10221E5989D042B8DE8E08F28F8D1E482516EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Fish Game (2023) [En] (00.02.79) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E2E9A228328341C7E5862ED8C78FF3F5EF540644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

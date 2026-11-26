@@ -27,8 +27,7 @@ SAGA - 2 альбома  [MP3|320 кб/с]<Rock, Progressive Rock, Symphonic Roc
 ```bash
 magnet:?xt=urn:btih:670F8018B41E51BE522A2CBD79B85D1DFBDAD320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

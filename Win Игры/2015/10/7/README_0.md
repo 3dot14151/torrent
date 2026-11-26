@@ -19,8 +19,7 @@ Deadlings - оригинальная вариация на тему мегахи
 ```bash
 magnet:?xt=urn:btih:B359AA31A593CB99847FB05E811F75B183A3F8EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Prison Architect - это инди-игра и в то же время стра�
 ```bash
 magnet:?xt=urn:btih:5C14181619E96D03E6F36B88E38679A3936F20E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Frozen Synapse: Prime - трехмерный наследник популярн
 ```bash
 magnet:?xt=urn:btih:7CF08E3BFF2932C81E0746DE20FDCB039181E77A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blockscape - очень красивая песочница с возможно�
 ```bash
 magnet:?xt=urn:btih:B5B64EEBB2186ED79132E656BD60A4FE8046896E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

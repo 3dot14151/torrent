@@ -19,8 +19,7 @@ Aztecs: The Last Sun (2025) [Ru/Multi] (0.6.0/dlc) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:C55F4A8069C5EE6DEF6A32CC106EC44C762DEF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nioh 3 - это с нетерпением ожидаемая новая част
 ```bash
 magnet:?xt=urn:btih:C99A032597EABFF08DFA92995266B9E19E63BE17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crosak (2025) [Ru/Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:03D14872969007FD53F686943317B88DCFE601F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Carmageddon: Rogue Shift - это жестокое состязание, где 
 ```bash
 magnet:?xt=urn:btih:9FC8492D954135240874DE12D06F95681BD4F685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack HardwareMining [Go
 ```bash
 magnet:?xt=urn:btih:6C149D3BBD758B5496BB0C31EA277627930C3AB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Nioh 3 - это с нетерпением ожидаемая новая част
 ```bash
 magnet:?xt=urn:btih:A7192904E95A7D133821C6F74643AEA90A46D5D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Resident Evil Village продолжает приключения Итана и�
 ```bash
 magnet:?xt=urn:btih:985D4E1784953EAF8C7D328390E7C5E9FF26CB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Cozy Caravan (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:759672C93488E3B5E9AEB1275E905FE6459D6F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Flowstone Saga (2024) [Multi] ((163f) License GOG
 ```bash
 magnet:?xt=urn:btih:FD35F55AA7696A27FA158FF0C31BF8CD1A5835D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Cosplayer’s Quest (2026) [Multi] (1.0.1/dlc) License GOG [16+]
 ```bash
 magnet:?xt=urn:btih:AE7AB58C0DB912029C1814F98075FFA00C672165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Ephemeral / 蜉蝣之国的囚徒 (2026) [Multi] (Build 21423814) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AD6772324D33AB83547A96311DD136C9B566C946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Midnight Girl (2023) [En] (1.6.1) License GOG
 ```bash
 magnet:?xt=urn:btih:0E445931CEA8C07E7F9C30C3035B1C2C57E8D9C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Illuminaria сочетает в себе несколько жанров. Это
 ```bash
 magnet:?xt=urn:btih:2AA8AD798BF69A138CA8DEB8E89963F9C8AC66C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

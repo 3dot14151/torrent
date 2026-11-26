@@ -26,8 +26,7 @@
 ```bash
 magnet:?xt=urn:btih:2A15E1D0F70F92289DE98A7D3F8D41AF54AD5848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Kazakhstan - Musique d'Almati (1996) [MP3|320 kbps] <kazakh ethnic>
 ```bash
 magnet:?xt=urn:btih:C2AE924F824A139B49D606262969C3102CBD337F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ VA - Любимые Мелодии Кавказа (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:189D91C48EC901B8C86EF173F2C927FD8D02C536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B33ADF7BB7EE1A92FEFD3A7B4501EC48B37FDA41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Medina - For Altid (2011) [MP3|192-320 kbps]<pop>
 ```bash
 magnet:?xt=urn:btih:3CA6CF88C7051F918DAD32CB1B71E454CFCC480C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F2D10628A5B6FE1835E4AD6B88AC3B8F590853D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ VA - Chicago Blues: Hard Times (1947-1948) (1999) [MP3|320 kbps]<Electric Chicag
 ```bash
 magnet:?xt=urn:btih:C45ABECC53801B33F6686F8AEA555B6991917883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ VA - Осенний вальс (2011) [MP3|256 kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:8E7143DDAAE059D0D91299A65E6C1590411B6303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ Maxim — международный мужской (с элементами э�
 ```bash
 magnet:?xt=urn:btih:9B6E7D9CE90D4C133C2A608CF6ABC8B044CBC3EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ dj Gold Sky - Megapolis FM 2011 Part. 2 5CD (17/05/2011) [MP3|320 kbps]<house, e
 ```bash
 magnet:?xt=urn:btih:61BD0D2F0815C0E35B12F4AEBBBB1AB164D512EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4272D9706CCE7AA6B3F2CC444F3B120029E16E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E0DA8C19A6CD17F58B6072E76AB710DEC7BC6EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A34A464AE1B4F120B21052D718527B4B8AA720CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ Fantasy HD Wallpapers
 ```bash
 magnet:?xt=urn:btih:B61C152381CDD7417FF0B3865DE87E6E64AE937C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C26625E15F05672752D679A6D59EF5EFDC41073F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +488,7 @@ VA - Antology of American Music - 5 дисков - Vinyl-Rip (1992) [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5CA5B348FB1F0F8BD17ABCA52C2777F86FB88A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +546,7 @@ Space HD Wallpapers
 ```bash
 magnet:?xt=urn:btih:769F5AC1F11AFEEDD7E0B4D281BF335A88205565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +580,7 @@ VA - Рэп, осень, любовь (2011) [MP3|256 kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:A462C92F988DB38C1877A9BA411E76C167353F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +612,7 @@ Lenny White, Buster Williams, George Colligan, Steve Wilson - Hancock Island: Th
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +646,7 @@ VA-Dubstep Compilation - Unclassified (2011) [MP3|256 kbps]<Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:7A711C15BA0D943B85D0A5273374694458371EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:581E686291C41B192E5B5A1EA3A7F13F7A6D0584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE4F4C19121547FB5E3FDE005CC44C9FECBB983E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +731,7 @@ Arida VorteX - Invisible Tension (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:A30F87E0F482CD4130C79621C1249FE97B93D8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +765,7 @@ Warhammer 4000
 ```bash
 magnet:?xt=urn:btih:ABE14EA71B9B10E50165AA28330C3A84AB715988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

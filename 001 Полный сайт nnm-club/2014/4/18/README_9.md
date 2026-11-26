@@ -18,8 +18,7 @@ Magi: The Kingdom of Magic / Magi 2 / Маги 2 [2013, TV, 25 эп.] HDTV 720p 
 ```bash
 magnet:?xt=urn:btih:4867F91D435A89CFE15A599328973A8C7BE2D3FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.0) RePack Audioslave [Game of the Year Edition
 ```bash
 magnet:?xt=urn:btih:51C2E7022FE53799B41AD7F8CEB7A1986600698A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Autodesk Revit 2015 Build 20140322-1515 (x64) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BC6DA68A8B34E81C2408919505C6A353A18F2E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FFCC77F4F8F9BD80EBC92ECD56D40DAFF2A3959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B28E9B844678E86AA0327B27094D125EE39165DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 04.2014 2 DVD [R
 ```bash
 magnet:?xt=urn:btih:A1D099C88B1F2983329D0B3DB8EDE14C76EEB0A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

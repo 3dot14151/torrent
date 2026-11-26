@@ -19,8 +19,7 @@ Graven: The Purple Moon Prophecy / Грейвен: Пророчество баг
 ```bash
 magnet:?xt=urn:btih:CB7216C942BB9C8FD91044AF66624A33DD78FD58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ La-Mulana (2013) [Multi] (1.5.5.2) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:D76EF8CA00B59734AFEDDE4196CD4F2D768FD695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Haunted Hotel 7: Death Sentence / Проклятый отель 7: Смертн�
 ```bash
 magnet:?xt=urn:btih:F4B0F1FFAA8065CCDEF841B30B8352D0C59F7154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

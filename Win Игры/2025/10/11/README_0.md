@@ -19,8 +19,7 @@ WARNO (2024) [Ru/Multi] (169014/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:3A4ABEC777A1395030D0188FE995E8E9C7A76AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (1.003/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:ECEC71C52B69813FD2AC8C2ABABA74AC82B3E196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1AE926192FA395AE686490212E6A232B639CED70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Yooka-Replaylee - это усовершенствованная версия и�
 ```bash
 magnet:?xt=urn:btih:CC7682F6152F9D6E5D18F7E95516378CA8F93275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack Other s [Enhance
 ```bash
 magnet:?xt=urn:btih:642BAED8AB4B7633EA14F68C3D596898315E8089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack seleZen [Enhance
 ```bash
 magnet:?xt=urn:btih:4460506B637B0ED50DF88E3BC4C59A1A51FC39CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack FitGirl [Enhance
 ```bash
 magnet:?xt=urn:btih:D1C25B1FA0711AC3D56A126A6F485720BD3F46CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:B297B8C0C1DEE3FD5F829BDCB2D59DAB43FBE8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Scene Rune
 ```bash
 magnet:?xt=urn:btih:91CD082FF552A1B59C7A3F44580F68D1DD5081AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

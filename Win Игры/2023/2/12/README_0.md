@@ -19,8 +19,7 @@ Garbage Truck Simulator позволяет геймерам почувствов
 ```bash
 magnet:?xt=urn:btih:1DE38F0EBB75F18D40B5F22D1316B18C05DBA75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GRUNND - это уникальная приключенческая игра с 
 ```bash
 magnet:?xt=urn:btih:7BD4120D8682033781CE54EBFA3B27BCCECCFDA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Brigador (2017) [Ru/Multi] (1.65b/dlc) License GOG [Up-Armored Edition]
 ```bash
 magnet:?xt=urn:btih:54B541700029ACD1854AFC4780BF6ADA85117D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dealer's Life 2 - симулятор дилера, показывающий бу
 ```bash
 magnet:?xt=urn:btih:FDE077513AF228373ADBC16342FBC27C035E1FAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fox Girls Never Play Dirty – это японская ролевая игра �
 ```bash
 magnet:?xt=urn:btih:80823A2CBC4FD65813593D6369F953FD7696D859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

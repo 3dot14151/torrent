@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:14BB620FF52D39839CA41A433A8B7C41B3EA1C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Addams Family: Mansion Mayhem / Семейка Аддамс: Переполох 
 ```bash
 magnet:?xt=urn:btih:B2C2C005CF83F20FD90131F6FE56DAE52C7130CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Accident (2021) [Ru/Multi] (1.63) License DOGE
 ```bash
 magnet:?xt=urn:btih:3ABEEA68C721995918B88E0B906FCFD371A8720D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grand Tactician: The Civil War (1861-1865) - это стратегия в реа
 ```bash
 magnet:?xt=urn:btih:20052FA8CCE741F8EC86C025FCC1306D4667D298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

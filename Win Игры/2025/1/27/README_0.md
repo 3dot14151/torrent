@@ -19,8 +19,7 @@ Helskate (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BED520938F3E23A644ACBD9B3CC4D08D54B4F0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DEEP IN THE DREAD (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:34A57863239847485BFD40056213DCB55F42CBAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Project Wingman — это экшен с боевыми полетами, в к�
 ```bash
 magnet:?xt=urn:btih:C811A0EA6E22534FA38D413AC8EA5D7E9D82E050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Teslagrad 2 (2023) [Ru/Multi] (Build 12140719) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4D8ADB4C0BC5A557ACE9A0719FF698B35BFE23DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ TrickShot Simulator (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7A55FD6C5FE09A8C6CE558B8B494DF96A7E99250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Adore (2023) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:65211AD9E817534F29EC639CED25B3F76C9FF240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

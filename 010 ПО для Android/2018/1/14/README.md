@@ -19,8 +19,7 @@ HM Песенник v4.8 Ad-Free [Ru] - гитарный песенник для
 ```bash
 magnet:?xt=urn:btih:13A23797ED7DD78F84D900F8C91636B9CE4EDD5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

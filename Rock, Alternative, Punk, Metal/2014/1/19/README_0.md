@@ -28,8 +28,7 @@ Ratos De Porao - Anarkophobia (1991) [WavPack|Lossless]<Thrash Metal / Crossover
 ```bash
 magnet:?xt=urn:btih:9B98D515DEFF58B03C27250E83234FDAD26A114E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ God Forsaken - The Tide Has Turned (1995) [WavPack|Lossless]<Doom / Death Metal>
 ```bash
 magnet:?xt=urn:btih:C883DE30B61FDB3B4DFFAC4CB0B30C87C5BB47EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Friendship Time - Friendship Time (1975-1976) Remastered /2007, Mellotronen Swed
 ```bash
 magnet:?xt=urn:btih:2D0992517AC90E06ACEEA21B95CBB8F66156B439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Ice Nine Kills - The Predator Becomes the Prey (2014) [MP3|320 кб/с]<Post-Har
 ```bash
 magnet:?xt=urn:btih:1AD2387F5BBAD590C587CFA04DABD70D3419B376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Warpaint - Warpaint (2014) [FLAC|Lossless]<Shoegaze, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:A74129D51E046BB3A83D21D9E7E026EE27632AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AA73E8719E7B348600F1E72432AF07511774997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

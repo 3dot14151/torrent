@@ -21,8 +21,7 @@ Xubuntu — это разрабатываемая Canonical, основанна�
 ```bash
 magnet:?xt=urn:btih:B937A223BC2ACCE7792C7A762D113A3D48505131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Kubuntu 13.10 Saucy Beta II [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:3A6805112FB80A180370A5361ADC253FD0987D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:F3EC99828EB44E02114AE9C6EC501CECF852D887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

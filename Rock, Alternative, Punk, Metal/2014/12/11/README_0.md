@@ -28,8 +28,7 @@ Storm O - Sospesi Nel Vuoto Bruceremo In Un Attimo E Il Cerchio Sara Chiuso (201
 ```bash
 magnet:?xt=urn:btih:00CCC6B4369EFCC2CD1729EBE7A08260FCF3EBA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Titanium - Titanium (2014) Japanese Edition [FLAC|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:9093F2ED2E91E7D9C1B401D1A1C1F558FF669660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C77F9CD8602F2F22319CF82B08CD8B8604D33E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ U.D.O. - Best Of U.D.O. (1999) Japanese Remastered 2008 [APE|Lossless]<Heavy Met
 ```bash
 magnet:?xt=urn:btih:4810AF84C9F84A19077327CA398C43FE336E246B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F3DF418B9331C20EBF5D8DEB01E3E29EA2B9638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

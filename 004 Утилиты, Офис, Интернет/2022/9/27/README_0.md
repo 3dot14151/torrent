@@ -20,8 +20,7 @@ Aiseesoft Data Recovery (   Читать дальше...   )Язык интер
 ```bash
 magnet:?xt=urn:btih:1FCAC3BF3EA2E5BB9952C8349FE9F77EF93853E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Doxillion Document Converter - программное решение для па
 ```bash
 magnet:?xt=urn:btih:77F9812576CA09D742B7134FA4E181FDFB428650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Universal Maps Downloader - программное решение для ска�
 ```bash
 magnet:?xt=urn:btih:999C2EB520AB33BC6B5D1836A05096F402A36712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

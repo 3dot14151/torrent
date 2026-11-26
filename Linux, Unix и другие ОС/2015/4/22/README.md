@@ -21,8 +21,7 @@ Calculate Linux 14.16 [i686] 2xCD, 4xDVD
 ```bash
 magnet:?xt=urn:btih:931FEBB825F4BC7C6B43283D4619CEFB3BFD91DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Calculate Linux 14.16 [x86-64] 2xCD, 4xDVD
 ```bash
 magnet:?xt=urn:btih:62661A5979EA73704A7E7C1FEE01F9BE93CCE4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ BlackArch Live поставляется в виде (   Читать дальш
 ```bash
 magnet:?xt=urn:btih:4E049C7C5636911AB7DAA8C6DDC6596C74B83A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ ArchBang Linux 2015.03.28 (Легкий дистрибутив) [i686, x86-64] 2
 ```bash
 magnet:?xt=urn:btih:718F423454E925595A6CA14F1F2199AC2E354927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

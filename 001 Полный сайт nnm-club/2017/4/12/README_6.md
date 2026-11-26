@@ -18,8 +18,7 @@ Shock Tactics (2017) [Ru/Multi] (1.0.6158) License CODEX
 ```bash
 magnet:?xt=urn:btih:388210CA5D365A83F7260EFAD2382062AFF61843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Chaos;Child / Хаос; Дитя [2017, TV, 12] HDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:48DA0EB7CF810D24BEB18AC85F878ABD1317F95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Discovery: Забытая инженерия / Abandoned Engineering (2016) HDTV
 ```bash
 magnet:?xt=urn:btih:CEED41D45F13EBCD00EB555F12817B8BCDD15F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ History Channel. Вселенная / The Universe (2007-2012) BDRip [H.264/720p
 ```bash
 magnet:?xt=urn:btih:167E57C6FF29D09A1A61A7729ED548D2B0E967D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDA6DA2B87D2B0F333A0B1508E79E76B06A036C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Bayonetta (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:29682209CF7E5AA5940E0525A5422DD14B005BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:7AD63C25328D1BFE22F5C348B8611BEB4996094E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Assassin's Creed 3 (2012) [Ru/En] (1.06/dlc) Repack =nemos= [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:7F4BC7E82F917F0AC9996D5EC5AC0FE437FE12CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BB3127943FEF032FB8A34DFB0F41E305A246078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADB58B0E8B2C1D21D4CDB8A8D7A1D50F3D2EB1DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ Active@ Boot Disk - включает в себя набор мощных инс�
 ```bash
 magnet:?xt=urn:btih:E6EFA586F544B96B004AFC495A5E584BEB72F7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18E0DBE4C08CD492AD29CA1A70A9F6AB2B853694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ Autodesk 3ds Max – популярный программный пакет, п�
 ```bash
 magnet:?xt=urn:btih:B32EA6FCF41DDBBCF8C9F85CBE4F500778F05229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

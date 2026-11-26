@@ -19,8 +19,7 @@ Grey Goo [Patch] (2015) (1.0.15.522362) Official CODEX [Update 1]
 ```bash
 magnet:?xt=urn:btih:8B1B9F5F8279C2FF63672F52BD5D6AD6CC1400CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

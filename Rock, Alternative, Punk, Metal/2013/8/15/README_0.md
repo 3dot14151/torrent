@@ -28,8 +28,7 @@ Folkodia - The Fall Of The Magog (2013) [FLAC|Lossless]<Folk Metal/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:2FC5E32ED263520673E6AE2CB0C697C81076C8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Skid Row - 40 Seasons. The Best Of (1998) [APE|Lossless]<glam rock/heavy metal>
 ```bash
 magnet:?xt=urn:btih:5EB60F7ED3BFBF888B27AC20F28BABB6D9490ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Robin Beck - Underneath (2013) [MP3|320 кб/с]<Melodic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:35FA4BAAA8CEE531D18D08627119ECB8E9794322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Bruce Dickinson - The Chemical Wedding (1998) Digital Remastered, Japan 1st Pres
 ```bash
 magnet:?xt=urn:btih:57815ED5D68494392528CCB49E0FA3215B50E8C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Black Pyramid - группа родом из Нортхэмптона, штат 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:644DCD32E0E3550C1F838A4EC58C947DC70E978D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

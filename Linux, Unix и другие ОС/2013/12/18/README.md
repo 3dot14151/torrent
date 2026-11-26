@@ -21,8 +21,7 @@ Fedora 20 Heisenbug [i386, x86-64] 2xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:9EE9149CDC069A9714ECB5EDC178B3B1405B88FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Fedora 20 Heisenbug Live [x86-64] 3xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:B7C5DE3646FB41D81A8EFD2C5415517801538FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

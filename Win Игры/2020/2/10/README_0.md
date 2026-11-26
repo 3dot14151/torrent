@@ -19,8 +19,7 @@ Kona - атмосферный приключенческий хоррор с г�
 ```bash
 magnet:?xt=urn:btih:4EF819BB92E1FF19E9F541AC3267519FEC4B956F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

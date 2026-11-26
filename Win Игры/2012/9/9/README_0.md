@@ -19,8 +19,7 @@ Wonder World / Другой мир [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:811EAFA58EADFDDA745547B46F9A44C60C2425E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Expedition: Everest / Секретная экспедиция. Эвере
 ```bash
 magnet:?xt=urn:btih:7398D8DA0DC2B4B8C98DC3BF82A513976D2F6132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lost Head / Без головы [Multi7/+] (P) 2012
 ```bash
 magnet:?xt=urn:btih:A03E1E969CDCCF60E55D8C3F9A9A944CF727D76B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Closure – логический платформер, использующий 
 ```bash
 magnet:?xt=urn:btih:6FE906B54EB912A3D99E176654EFE33DBF6D2F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

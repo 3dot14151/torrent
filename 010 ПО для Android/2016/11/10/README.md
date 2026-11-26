@@ -19,8 +19,7 @@ Microsoft Word 16.0.7426.1015 [Ru]
 ```bash
 magnet:?xt=urn:btih:F3710E9FCDAE0FC2E4E23B5F5A53F26E9D6AFB20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

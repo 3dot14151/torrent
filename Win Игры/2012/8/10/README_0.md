@@ -19,8 +19,7 @@ Mystery Heritage: Sign of the Spirit. Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:293BF2E815DFDA658AF2DAAC877CD7617F698352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zooloretto / Зоолоретто (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:79445602F77F6A05F0730D52455939452ACECF1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

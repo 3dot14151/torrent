@@ -19,8 +19,7 @@ Detective Quest: The Crystal Slipper Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:F4B5B89C34136ACFE299F45C83FA3D846B348477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Garden Rescue Christmas Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:BF8871F87F89DB5148CDD861F64F5C25B4979B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Maldita Castilla [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:06808115EE6F9A3A1A3FEE8C7CA6083EAADF2762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Barn Yarn Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:AFE416E4B0469C2FFF26F1C377C670B3E4FFB350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Mystery Case Files 9: Shadow Lake Collector's Edition / За семью печа
 ```bash
 magnet:?xt=urn:btih:E9ED6F26D69DB7762EA74845071D8CAE47248F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Mass Effect 3 будет реагировать на каждое принято
 ```bash
 magnet:?xt=urn:btih:1847FC9C37436AFA53D3D0DB63069A263398BDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

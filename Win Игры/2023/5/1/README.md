@@ -19,8 +19,7 @@ I Know This Place..? (chapter I) приглашает игроков в мист
 ```bash
 magnet:?xt=urn:btih:F7476B4699D140DFC697A11B6EE1B6B076E113C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

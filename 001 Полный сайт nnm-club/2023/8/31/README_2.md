@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9CFD59110F9AE500E097559FFEFBD96998C3D304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Deserta - Don’t Dare Stop (2023) [Mp3|320kbps] <hard rock>
 ```bash
 magnet:?xt=urn:btih:F0094A295E65EB6968F12B4521CB39DA8EAA01DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Royal Blood - Back To The Water Below (2023) [FLAC 24/44.1|WEB-DL|tracks] <Alter
 ```bash
 magnet:?xt=urn:btih:ADA9A4E6AAD8B9F2EC9DDC13CFB20AAB6BFF8491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Duplicate File Finder - утилита, которая находит дубли
 ```bash
 magnet:?xt=urn:btih:0B47559F1B74BA3E90787709BA6E84B0409DDEB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ DRmare Audio Converter — это универсальное решение дл
 ```bash
 magnet:?xt=urn:btih:821F9C3EF71D508F7C1A116E478EC76DC6AE929E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ RapidWeaver отлично подойдет тем, кто ищет ПО для 
 ```bash
 magnet:?xt=urn:btih:A8E1B1D26A902C551CC9E3B516FC75E6CCE041E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ DirPrintOK 6.89 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:17FACA36EAB795E328FD8BC4C036CD6C2436D44C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Devo - Live In New York 1980 (2023) [MP3|320kbps] <Post Punk, New Wave>
 ```bash
 magnet:?xt=urn:btih:69DA4AC9AD1C7191FED8972C2EAAAC1119BC0465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2F019FCDF35AF07085C5446ECC8E25203CDB1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Eclipse - Megalomanium (2023) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:57766032EABECDCF0D45512FD28E00FB72C87415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ FontLab - профессиональный редактор шрифтов. Пр
 ```bash
 magnet:?xt=urn:btih:E17E95904EA5ED5A44BE71AEE20A81204B98B303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Vivaldi 6.2.3105.45 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EBF8A6A005C56A43EE0A9660CBEC209758A32A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ B1 Ikarus II(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock�
 ```bash
 magnet:?xt=urn:btih:AE1CF28EF9E05935C863CA97D823895B01242E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:078D1566333249036F3D15EF30D76EFBE87FD9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Soen - Memorial (2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 ```bash
 magnet:?xt=urn:btih:B8AAF25100960A93271A31F193AE8B1FC29385CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B7610D77161B3372B297B324F765502BCCAAE72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ Van Halen - Montevideo 1983 (Live) (2023) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7A845BC8CEB9F8264CAE7BD36BF1D30982B89E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Mal Waldron - Left Alone (1959) 2000, Avenue Jazz [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:0D680D8DA9666A3D55D92D301E98F1956C54DE4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4365D14CC29FB4915917D9A17382E9CFC3C6D4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AA5B29FA91F35922F1A62C297E7B3D4075FD65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ QLPro Studio инструмент управления базами данных
 ```bash
 magnet:?xt=urn:btih:DBB52DEFA54F03F77196C8CCD43EA049981BCFFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ Phil Campbell and the Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:02B688D6474B635BFB45F413BDDD2476528AF676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:969F454F1E88ACCB95AAD8B91767CC27AE760363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ```bash
 magnet:?xt=urn:btih:CFEEE42A81118CFD9322DDE71C3682996FF967F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ VA - Nothing But... Trancetopia, Vol. 07 (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:80CB16E930AC7784C6FFB61117B20E6C9FB91EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ Pulsar - Дотла (2023) [MP3|320 Kbps] <Alternative Metal, Metalcore, Female,
 ```bash
 magnet:?xt=urn:btih:DA8A4A92956C0DEE619C47B1E315EB38D61C42F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

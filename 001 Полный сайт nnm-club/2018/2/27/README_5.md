@@ -22,8 +22,7 @@ VA - FG Top 10 February 2018 [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:9119FB94A7CC6DD74B26F1E9125864CCE0E342F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Faces Of House Vol.4 (2018) [MP3|320 Kbps] <House, Funky House, Groove Hous
 ```bash
 magnet:?xt=urn:btih:283259879DE7CADA732874A305746EAB673677F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Chilling Sounds, Vol. 6 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F2246112814FBACFFD6F424DAE6BB5B033DE609C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Hed Kandi Anthems & Artwork (2010) [FLAC|Lossless|tracks] <House, Electro, 
 ```bash
 magnet:?xt=urn:btih:EDA07D00BEA66E49A891A6D3C5FB94A0093F9F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F46B293226B239CCEFDB58DB137DFE010D556A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Secret Rule - The Key to the World (2017) [MP3|320 Kbps] <Symphonic melodic meta
 ```bash
 magnet:?xt=urn:btih:D4E8DCC21EC9AE0E6011DEC2EA3F8CD56FAB9215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Sexy Lounge Music Songs Selection for Dj (2018) [MP3|320 Kbps] <Chillout, L
 ```bash
 magnet:?xt=urn:btih:47B515D5FA014FB0819B5BF18A2F89D2D8A299EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ ActRaiser & Tremah - Tipping Point (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum
 ```bash
 magnet:?xt=urn:btih:242B1774BC2C952BF0A186B50E44E00FCDC86E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ KeyKey — учимся слепому набору
 ```bash
 magnet:?xt=urn:btih:7D555107E88C5E1754DAE5867E28F2F38FFC27EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Phil Tangent - Drawing You (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:6BB5C9517D6E56E077C6DE4DCCD743928C6A96F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - Deep House Collection Vol.158 (2018) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:7A01E7B6B99CE7AF3CF2766A8EE2179B4A873446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ AwakeFM - Interceptor (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:04A6F5D3DDE05FC6559257B83FC9F6FD15964144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Neveryon - The Blind Side (2018) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:E99C23F9FDC84C42CA03457E305EAFDF9A716E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ Mathieu Age - Feminin Sacre (2018) [MP3|320 Kbps] <New age, Relax>
 ```bash
 magnet:?xt=urn:btih:8B9185269FDF90E6AF6E64CF4AB5C7409472888C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ The Creatures - 6 Albums, 1 Compilations (1982-1999) [MP3|320 Kbps] <Electronic,
 ```bash
 magnet:?xt=urn:btih:DE7276293F3FCE8A1D51A64370F227229B1ACB07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0089105FD70B52264AB8B2F38299CB5B28EDF72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:069BD8624304E25AC35EEF3B9AFB15C4EE6D5822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Aperio - Nostalgia / Seasons Changing (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep
 ```bash
 magnet:?xt=urn:btih:6B989EA951A81A649B256A2E1A110ACBAB6321F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8688F34C2D53184A2D8A980F53650999C7BB6CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ HumaNature, Skeletone, Silence Groove - There's Delight (2016) EP [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:1964F883D7B866A33200280123E517640DED2FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ Andrew Kinsella - Cosmic Dawn (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:8B72532E34CBB01FD270CE18478C4A4FC5C06825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ Vivaldi 1.14.1077.55 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1BA1077E0DB83C824D1C7565BD69FEFE5EFAB2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ VA - Polychrome Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:27C9FD317444A1B01E4400F445467E9C6CD29AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D9F8E79B84DD589E9CFEDABF9E4356CE47DFD10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ VA - Club Dance Ambience Vol.136 (2018) [MP3|320 Kbps] <Club House, Vocal House,
 ```bash
 magnet:?xt=urn:btih:AEF6C500CCB214154742A791783503C4B1163E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6011AC369698F6A3F0E06BD3BF7737D36AFFD512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

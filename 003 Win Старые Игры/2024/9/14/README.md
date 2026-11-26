@@ -19,8 +19,7 @@ Spyro 2: Ripto’s Rage! (1999) [Ru] (2.0) Repack Ma2012ks
 ```bash
 magnet:?xt=urn:btih:174404233873119B1AD6D6F5B87F8C03C5365696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Far Cry (2004) [Ru/En] (1.04) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:BF796303EAAD005AA788A8CE5E33C81C59D83A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bully (2008) [Ru/En] (1.2) Repack R.G. Catalyst [Scholarship Edition]
 ```bash
 magnet:?xt=urn:btih:AE8BC16065EFBDADD77098E3D124F1C165FD58C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

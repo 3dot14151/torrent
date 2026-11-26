@@ -22,8 +22,7 @@ Unwritten Rulz - Filter Thru the Static (2012) [MP3|256 Kbps] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:C0171DEFC35A61DA66DDEB59D2B1B950BD5DB8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shotgun - Dallasian Rock (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Classic
 ```bash
 magnet:?xt=urn:btih:F98660F9A4E99E7D4346390A287B501A47491131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Unwritten Rulz - Burn It Down (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock
 ```bash
 magnet:?xt=urn:btih:99CFCA99E3D3D0D2C2C7A7DCAD8426932E9C3A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Unwritten Rulz - Life of the Party (2014) [MP3|256 Kbps] <Alternative Rock, Hard
 ```bash
 magnet:?xt=urn:btih:51836071CEAD4E83E2FEB76E31633A736F04881B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Anthony Green - Pixie Queen (2016) [MP3|320 Kbps] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:A620DF63E24CB5EC5FD61D2F72217B33CFAC2392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Blues Pills - Golden Treasures (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:51626D3980D07B57CAE7834A8558F5D9366FFBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mark Wood - Voodoo Violince (1991) [MP3|320 Kbps] <Melodic Rock, Instrumental Ro
 ```bash
 magnet:?xt=urn:btih:E10A246B85ECAAEF8FF7895AAEBF7A8ADB8BC61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Smokie - From The Heart (2006) [FLAC|Lossless|image + .cue] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:984A9406C9C5A993ADF9175C261235D2A3F95635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Puscifer (Maynard James Keenan of Tool & A Perfect Circle) - Money $hot (Shot) (
 ```bash
 magnet:?xt=urn:btih:E043CD53127AA22946468F2F2C947D8D0D36DBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Florence + The Machine - Wish That You Were Here (From "Miss Peregrine’s Home 
 ```bash
 magnet:?xt=urn:btih:AE708C0C2E0A2D11358A3E22CAA61DE11230A86B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ A Day To Remember - Bad Vibrations (2016) Deluxe Edition [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C2772F7926968D53EAFB19A70225504C72C64CC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:969CA8CF7E26C86161F99AC22CD13E3030A0F358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE29CC695BC07FCE534E0C0ADD5AD928656B250F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

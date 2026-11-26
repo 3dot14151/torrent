@@ -28,8 +28,7 @@ Linux UsefulPack 12.04 (L) [Русский] (2012)[x86 + amd64]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

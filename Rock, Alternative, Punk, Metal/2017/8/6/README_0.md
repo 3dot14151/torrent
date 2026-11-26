@@ -22,8 +22,7 @@ Dying Fetus - The Wrong One To Fuck With (2017) [MP3|320 Kbps] <Brutal Death Met
 ```bash
 magnet:?xt=urn:btih:488A380180C75C6C8231E4CA66E2B4287AE83905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Arcade Fire - Everything Now (2017) [MP3|320 Kbps] <Indie Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:20DB5DA4FEBFE0B58DC7802F14EF98CA4E81333F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

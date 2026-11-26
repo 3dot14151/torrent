@@ -19,8 +19,7 @@ Secret City 4: Chalk of Fate (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:5781722331720D3E4A5FC491A1CDC8D96E8968EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Paradise Lost - Tragic Idol (2012) [FLAC 2.0 16/44.1 | image (Vinyl-Rip)]<Gothic
 ```bash
 magnet:?xt=urn:btih:2A532EDE5779F9E8818EC02DAEA767BE087FB9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Dead Can Dance - In Concert (2013) [FLAC 2.0 16/44.1|Tracks (Web-DL)]<Rock / Dar
 ```bash
 magnet:?xt=urn:btih:81BB7570030DC04447DF5925D8A4125BDE24ADE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Marilyn Monroe - Incomparable (2012) 2LP Set [FLAC 2.0 24/192|image (Vinyl-Rip)]
 ```bash
 magnet:?xt=urn:btih:77F3FE04BE42CE41ED991216A78C49FD67691D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ A1. Forever Today [8:42]
 ```bash
 magnet:?xt=urn:btih:C1119AB13570A2664A65843622A4EE94921DE5A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Ennio Morricone - The Good, The Bad And The Ugly (Original Motion Picture Soundt
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

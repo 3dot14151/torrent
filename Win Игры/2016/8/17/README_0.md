@@ -19,8 +19,7 @@ Mind Dead — это аркадный шутер-хоррор. Вы играет
 ```bash
 magnet:?xt=urn:btih:F21CF361BFEAC85D5CDC849AFCE7FC38E86BA3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Painkiller: NecroGenesys (2004/2016) [Ru/En] (17.08.2016/1.3.2) Repack/Mod Diavo
 ```bash
 magnet:?xt=urn:btih:A87DB511EF1C3061B4E8FC024CC872A4890ED1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Satellite Reign - это стратегия в реальном времени. 
 ```bash
 magnet:?xt=urn:btih:DE4F3EE77753A84B6CC8B6D6F3FC937347A697F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.96.0/dlc) Repack Let'sРlay [Ear
 ```bash
 magnet:?xt=urn:btih:29C77A969F3AE133617A2EAB86A267A44134C562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ True Fear: Forsaken Souls Part 3 завершает популярную три�
 ```bash
 magnet:?xt=urn:btih:0B493DDE02724561BAC601CFECC807C726947744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:D3AB9DB258251D0D3B23BFED64B987577FA93BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Avorion (Аворион) - игра-песочница, где ты будешь
 ```bash
 magnet:?xt=urn:btih:9F3A01863859E7E815444BBADBEB4B827B3B2CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ In Nightmare - это повествовательная приключенче�
 ```bash
 magnet:?xt=urn:btih:AF6DC6D240E95CEEDF68838D0B7B0AC141ECCE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Medieval Blacksmith (2024) [Ru/Multi] (1.6.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E180E7A924A046CF403AB09CC05EB351EA5DCCD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Another Crab's Treasure - это увлекательное подводное �
 ```bash
 magnet:?xt=urn:btih:459A47DDCD3106173D5F7C58E6C2C041E0C8F1B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Necesse - это приключенческая игра-песочница с �
 ```bash
 magnet:?xt=urn:btih:9D781E493C4722D3D295E0186C24A4F2BA27EA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Dark City 10: Barcelona / Мрачный город 10: Барселона (2025
 ```bash
 magnet:?xt=urn:btih:43D2DE85E5B6686E3A7D78F5DF9AF5BC0D3455B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ SpellRogue (2024) [Ru/Multi] (1.0.0b70/dlc) Repack FitGirl [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:36AA48EC8B031B0351636A98CA45F1F77FAC62D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

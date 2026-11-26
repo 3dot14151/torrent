@@ -19,8 +19,7 @@ Legacy of Kain: Defiance – атмосферный слэшер, выполне
 ```bash
 magnet:?xt=urn:btih:02B7B3A1E1485DA9312E1430814890B51E40A5D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

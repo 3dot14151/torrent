@@ -21,8 +21,7 @@ Rawbots — это песочница, в которой вы можете со�
 ```bash
 magnet:?xt=urn:btih:2D1FD84012B9A1A38FCE9F1F0706C93999DDA753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Door Kickers (2013) [En] (alpha 0.0.42) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:4E66A2CBA54F4C2C442C8CC0835173DA7CED817B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

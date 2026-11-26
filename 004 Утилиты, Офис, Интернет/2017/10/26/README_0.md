@@ -19,8 +19,7 @@ iBeesoft Data Recovery – программа для восстановлени�
 ```bash
 magnet:?xt=urn:btih:92CB714777985202F3F4E72E413011AF2F169611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

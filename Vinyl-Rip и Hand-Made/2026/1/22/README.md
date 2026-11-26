@@ -22,8 +22,7 @@ Orpheus Omega - австралийская метал-группа из Мель
 ```bash
 magnet:?xt=urn:btih:7816492845F92D3F8C883996EACF737A75AAFD0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

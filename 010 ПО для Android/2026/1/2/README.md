@@ -19,8 +19,7 @@ Eatr・Здоровые рецепты v2.11.0 Mod by vadj [Ru]
 ```bash
 magnet:?xt=urn:btih:52EEE7F7241B3CA965BD6EFFCE8DA00883388DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Solid Explorer - это приложение для управления фай�
 ```bash
 magnet:?xt=urn:btih:291F6F2699E4BDAC2C887B6A7B4D2E88992F1854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Nerd AI - Решатель Математики v4.0.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:061AF2A8BD63565CD1F70F29338548D01FEA130D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Genius Art: Image AI Generator v1.5.4 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8E6BEB1B12222A9027727FF2207CCDEB75C773B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Elder Scrolls IV: Oblivion Remastered представляет собой п
 ```bash
 magnet:?xt=urn:btih:F8ACBA3F9827DA4F7A442187753BF6C1F54A8AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1101 Data:732/dlc) Repack Let'sРlay [Com
 ```bash
 magnet:?xt=urn:btih:DDFCD1F99F1161025B54B71A56BBF0A263BF42E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KeeperRL - симулятор с элементами рогалика, в ко�
 ```bash
 magnet:?xt=urn:btih:C3F264BB42D8711756786CD560D95D9BB3522194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gas Station Simulator - это все о ремонте, развитии и э�
 ```bash
 magnet:?xt=urn:btih:10010A13E09C354123DF7E5047DB6E96586F5214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:89D03F89230429B80D9B32CB97C6431AD235F246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:9352D58F4E490E315107A16F6494E7BE1717768E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0a) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:85DD219F011B1F7D3BFD090D6D4F98364BA1F0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ RoadCraft (2025) [Ru/Multi] (4.1.PATCH.529928/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:2CFD923488F6225DA620CA997116AE416893283B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tokyo Underground Killer (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DFD3A054CBD21580C06449FCBF2E696CE5461D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Lost Eidolons – пошаговая тактическая ролевая иг�
 ```bash
 magnet:?xt=urn:btih:57B701F7644FE0A402B92DDAF9FC207798E43EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Myth Finders / Искатели мифов (2025) [Ru] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:80091B469DA6E05EF8D054CE4A26582E44F00362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Missing Hearts: Crimson Cruise (2025) [Multi] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:3D52ADAAA7B3073800B15965FD21E52D3AB64606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

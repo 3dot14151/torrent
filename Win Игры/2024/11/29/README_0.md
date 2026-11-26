@@ -19,8 +19,7 @@ ASKA - это ролевой экшен от 3-го лица, в котором 
 ```bash
 magnet:?xt=urn:btih:9938C4367ECCBA2FC4B9D99F4E5C9B56E7BB58CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hive Jump 2: Survivors - научно-фантастическая ролева�
 ```bash
 magnet:?xt=urn:btih:66E0752EF3B134A1D19C812084C4FC4E1721E05E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deep Inside (2024) [En] (Build 16288203) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3BD508A983E260EED1353CB6B01CCFA9AA892209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Rogue Prince of Persia – экшен-платформер в жанре rog
 ```bash
 magnet:?xt=urn:btih:81E95FB4745665444D034E9E1C65A4FA25DF95AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sniper Ghost Warrior Contracts 2 - самая сложная игра в про�
 ```bash
 magnet:?xt=urn:btih:E703FB7C53396B20C5196FD2416B2EE3CF7D2F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Neckbreak (2019) [Ru/Multi] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:40C2ECF3B7DB22A1532D5474487E35A532D30525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.11) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:965627A24EE2973840BDC697CBCEFBD1740235E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Luma Island (2024) [Ru/Multi] (1.19219) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2CFD6829D0A124385CB0A41859853A7BA4E9841D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ igaBash - приключенческая игра про огромных мон
 ```bash
 magnet:?xt=urn:btih:F257CCD6901B00140A4E6751993616054E5B72DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.1
 ```bash
 magnet:?xt=urn:btih:A13205782986D20A980BDCB852978CD7F678C350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Satisfactory - это игра от первого лица в открытом 
 ```bash
 magnet:?xt=urn:btih:9441642DCDADFD8D386C69CBB346D9D07C7D61D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:51747F36FD4F5CFA9BF57C8C08B494F4479F0036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

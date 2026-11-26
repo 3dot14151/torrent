@@ -22,8 +22,7 @@ Killswitch Engage - американская металкор-группа из 
 ```bash
 magnet:?xt=urn:btih:17A5B8651102B65C38EB8D4B251FD663898FA4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

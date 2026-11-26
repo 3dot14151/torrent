@@ -19,8 +19,7 @@ HashMyFiles 2.44 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8C7096EC058FC82B472D3E0F1F1A1DB3FB5D954D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PureSync — программа для синхронизации данных �
 ```bash
 magnet:?xt=urn:btih:AD16AF3C7942B72E4240DD2F1FF7B4E698FC04FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

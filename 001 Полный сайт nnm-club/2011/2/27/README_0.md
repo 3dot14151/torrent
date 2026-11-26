@@ -26,8 +26,7 @@ VA - Big Air (2011)
 ```bash
 magnet:?xt=urn:btih:4C30AF650CE0EB9A35C506FAE2F430DACC460F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Sychodelicious - Sex Intentions (2009)
 ```bash
 magnet:?xt=urn:btih:AD51939B2904CBB5B635D2E4C2C70A5A7DA2DC12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ My Empire - Heirlooms (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:EFDFFDC8C1C868AC61E7A1679C6EE6DCC5E71F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Deviant Syndrome - Inflicted Deviations (2011) [MP3|320 kbps]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:055A8D9C4AE236ACBDE1144B850312A1C4403898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ VA - Romantic Melodies: Electronic Spring (2007) [MP3|320 kbps]<Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:822EFB584B9E62C9B52F00EB65F927C0FA24B516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1DD288B42CBF5D3F529CC9F975A8F7BFE6D1A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D9E6DC850C9119AC07748494E0995373F9E6C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ Kurt Elling - The Gate (2011) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ VA - Лучшие Клубные Хиты 2011 by Najim Hassas part 1 ( Top 50 )
 ```bash
 magnet:?xt=urn:btih:9EE24AD192B87DA3E66C0EBE8BF766F7AA763F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ VA - Simply Mind and Spirit: 4CD Box (2010) [MP3|~178 kbps/VBR]<Relax, Meditativ
 ```bash
 magnet:?xt=urn:btih:1D6BF3119EE65187FEF359BD6163CBE00E9DB018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ VA - Record Super Chart №179 (2011) [MP3|320 kbps]<House, Electro House, Tranc
 ```bash
 magnet:?xt=urn:btih:943FE7E38E365720219A0AF79DCBFC2C1A9BAF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ Ringo Starr - Ringo Rama (2003) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:6E258677893F8C493FD72D10A529E1626E13E671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ Thermal Blues Express - My Friends And I (2011) [FLAC|Lossless]<Blues, Blues-Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AF0144FE8D16612BDA43A9535283099254F71DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B966F86DF37723E7E74B3571183C693465FEBE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ Julian Lennon - Photograph Smile (1999) [MP3|320 kbps]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:A278F5201DEF72B4167C89D570F6161F20ED55A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:1B15017CD9E4693AA82521EB721554A5B66E4466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2866CA63ADC69A8AFA65FB87AF2544F086D7712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +591,7 @@ Shotty 2.0.2 [ML]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ WinZip System Utilities Suite включает в себя набор прост
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ Sami Mansor - Sadness (2006) 3CD [MP3|192-320 kbps]<Instrumental, Middle East, A
 ```bash
 magnet:?xt=urn:btih:80F008CDA7735C5C62389FE060F388ED5A0C8E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ Walkin This Road By Myself (1962)Жанр: Texas Blues / Country BluesПродо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E6FC1FA480387491B21EFF20F60489FFD81C61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ Jimi Hendrix - BBC Sessions (Remastered) (2010) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:C489E94681861561152BC05FFEF8D16E942D1C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +754,7 @@ BBC: Борьба за выживание (Испытания Жизни). Жи�
 ```bash
 magnet:?xt=urn:btih:8129475E7C1D3F4CAE360B6C176B341DEB24E3A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

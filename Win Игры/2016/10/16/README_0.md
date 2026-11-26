@@ -19,8 +19,7 @@ BioShock 2 Remastered (2016) [Ru/Multi] (1.0.121755) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:75F3CDC57E43403D4B7280A81CCAE79D3FBA6721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

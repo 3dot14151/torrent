@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:76E967B380673288938DE1EB98458EF8313C5F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ CelestiA - Сверхновая звезда (2011) [MP3|320 кб/с]<Modern Met
 ```bash
 magnet:?xt=urn:btih:F8E8669A6B96702C8224A0825CFE8160EEA20F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Alphayn - Heimkehr (2014) [MP3|320 кб/с]<Melodic Death Metal, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:851D3620BE9EE591BD7C725FAACA7323445D9152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5D2D6121EC2BC2CC3E12D2218D2770CC3775B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Fairytale Abuse - Perversions of Angel VI (2008) [FLAC|Lossless]<Symphonic Melod
 ```bash
 magnet:?xt=urn:btih:6CF5EC1CA8D370DFE9A11843F67E41231B0087F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ The Matt Catingub Big Band - I'm Getting Cement All Over Ewe (1991) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:5D710A2CF0AFF1F44B94156B22C3C403011B6FED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96F56A390C14E0E41E1E2C2BDE99894BE25E1B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Faith and Fire - Accelerator (2006) Japan [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3D23E97D0C273DBDAD38F726FB2155D5D5A42C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ Fatima Hill - The Snow Tower (2009) [APE|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:6B5F738F5F44E005B9F5B6DE553C9EACBBEC1130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C765F75F8B584D517DCC818C91CE3EEEF7D3F797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Fatal Force - Unholy Rites (2012) Japan [FLAC|Lossless]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:16AE0E1E28F7BE418D37D8B5474EF2363E208079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ Rage Of Romance - Rage Of Romance (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:DD8D5869D8899D7D75674DE551BE32E5FA0A8358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ Gandalf's Fist - A Forest Of Fey (2014) [MP3|320 кб/с]<Neo Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:DD99F98A53BFBFC0BEA166B9126DD2E3BAF1F568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ Farscape - For Those Who Love to Kill (2008) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:DB1D2FC4513AA2508C19C8275C2D4E426E1930C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +464,7 @@ Scarlet Valse - Genesis (2014) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:34F9469FDB7DCF8229F319DABE70A5DB843B7E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +490,7 @@ VA - Best House and Deep (Best Tracks) (2014) [MP3|320 кб/с]<House, Deep Hous
 ```bash
 magnet:?xt=urn:btih:9D780341B2BDB52EBFF212862E269A8102B733A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +549,7 @@ Lanie Lane - Night Shade (2014) [MP3|320 кб/с]<Indie Pop>
 ```bash
 magnet:?xt=urn:btih:0852ED17726B8A14E51BE7892AA7CE2B758D04AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +575,7 @@ Travel Channel: Чудеса планеты / Earth Wonders (2010) HDTVRip (Се
 ```bash
 magnet:?xt=urn:btih:8E022C7F616213A4E8E59EB0C3E0948BC800FD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +603,7 @@ Divine My Way - Demo (2011) [MP3|320 кб/с]<Alternative Rock | Female vocal>
 ```bash
 magnet:?xt=urn:btih:A8192D9A9827E274DFD09D5E8783BC828DFFAC55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +637,7 @@ Red Raven - Chapter One: The Principles (2014) [MP3|320 кб/с]<Hard-n-Heavy>
 ```bash
 magnet:?xt=urn:btih:4D082C0F720FA612528B28691A0CC0A06A3DFB86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ Rokash - Пад Знакам Крумкача (2014) EP [MP3|320 кб/с]<Folk R
 ```bash
 magnet:?xt=urn:btih:AA305BFB28A2D5BFE0F33B08787F2D45E2EE84E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +697,7 @@ Kenny Wheeler - Other People (2008) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:8FC2293BE46DFBAFE68A1EA63EC598EA672EBD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +731,7 @@ Primus - Primus & The Chocolate Factory With The Fungi Ensemble (2014) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:07EFF385412D3E8842C7F02B7F9462DB5C46C42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +765,7 @@ Fangorn - Where The Tales Live On (2012) [FLAC|Lossless]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:D4D2A00F1A601C4A8758FA6A9CC2085CD38CE2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -824,8 +799,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:977E753CBAD0BED1E27D77C46794D165A9328C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

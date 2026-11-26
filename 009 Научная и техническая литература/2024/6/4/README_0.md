@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A8783A9B2127CE97F820BFC437245238CB4264FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:341DF780E866E961AF64C7A516DDDE6213369894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ An easy-to-understand visual guide to the facts of food and nutrition. Through a
 ```bash
 magnet:?xt=urn:btih:2DBA8246128E63E1F294BD21D9B6F93CBDF4029A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

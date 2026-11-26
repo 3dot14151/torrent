@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:090B7B88616DF549D6D4004C5071D2BB8EF0B15C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B44B8DE7D98C887C9334B551DF5B86F867B9730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67D5EC322554400EEB41D341237CBBF8C730CFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRemux 3D [
 ```bash
 magnet:?xt=urn:btih:A03885A595C08D1DC16A613E4F34E4B5B6E99AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) Blu-ray 3D [
 ```bash
 magnet:?xt=urn:btih:6846197D3744CAB5392CC0FEC8404089D98ACE5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CD986354CE49C8D3FD6081DBE27873B22610F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [1080p
 ```bash
 magnet:?xt=urn:btih:FAAED447129E03E04EAAECB7439C4D8BA18CD755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

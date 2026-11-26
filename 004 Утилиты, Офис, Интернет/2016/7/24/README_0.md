@@ -19,8 +19,7 @@ PDF Decrypter Pro 4.2.0 RePack (& Portable) by TryRooM [En]
 ```bash
 magnet:?xt=urn:btih:BA17ACBFBE8799C6C5F6FFF7DB07544CD7E2B060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

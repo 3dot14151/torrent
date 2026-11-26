@@ -19,8 +19,7 @@ Microsoft Windows 10.0.19045.2006, Version 22H2 - Оригинальные об�
 ```bash
 magnet:?xt=urn:btih:5B27A52A0B3B8B738889A4BFD5769006C6CBAC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3744E8EF36CE2E9DC98C5D52FB05C77296402015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E51E53FF48FB453B2A2FEE59E9E07DE88F044E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Windows 10 Pro 22H2 19045.2130 x64 by SanLex [Universal] [Ru/En] (2022.11.04)
 ```bash
 magnet:?xt=urn:btih:8151AD31D203162887322347EF8C5E6FAD05FFE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

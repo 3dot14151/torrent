@@ -19,8 +19,7 @@ Manual Camera Pro : DSLR Camera HD Professional v2.9D [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F7045A50184B048BF8536FDD718E216451B15521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

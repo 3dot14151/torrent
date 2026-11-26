@@ -19,8 +19,7 @@ Turnip Boy Robs a Bank - это забавный двухмерный прикл
 ```bash
 magnet:?xt=urn:btih:7DCEEF253D64E1687D2ECB74BAE0A6E63CE2E1D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ INSPIRE - стильный RPG-шутер с видом сверху, событ
 ```bash
 magnet:?xt=urn:btih:3FC7687F8C2C5A082934ED0ECC1DB91515900EC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Harold Halibut - созданная вручную нарративная игр
 ```bash
 magnet:?xt=urn:btih:DDF0892DF3AD34E7AD90570F84242CB1FE3852CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shanghai Summer отправляет игроков в путешествие п
 ```bash
 magnet:?xt=urn:btih:C1D97E225CD0B836C6217E135F94E62F3C905276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Five Nights at Freddy's: Security Breach - хоррор-выживастик, г
 ```bash
 magnet:?xt=urn:btih:1D620FC440409E13CCE7C0132ED00E9D9644E9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sheba: A New Dawn повествует о мире, что переносит в
 ```bash
 magnet:?xt=urn:btih:8F05A048DEC954FE7ED5A8B2A293F83614D68E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Knight Cats 3: Whisper of the Universe / Коты-рыцари 3: Шепот В�
 ```bash
 magnet:?xt=urn:btih:3BCE45F09BA42DCD09800D3EC7B13E03D8D9171F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

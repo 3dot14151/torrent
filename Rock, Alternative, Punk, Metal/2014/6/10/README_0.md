@@ -19,8 +19,7 @@ Godsmack - 1000hp (2014) (Single)  [MP3|320 кб/с]<Alternative Metal, Post Gru
 ```bash
 magnet:?xt=urn:btih:E02123AE9379B9CC9459948579DAE361372FC49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Clouds - Doliu (2014) [MP3|320 кб/с]<Ambient, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:2E4CDD6C4069A275F213C4E309A38BBC82257BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Count's 77 - Count's 77 (2014) [FLAC|Lossless] <Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:18069880900E330453366FF352F945F63F4269EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ In Flames - Rusted Nail (2014) (Single)  [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C1A7A3621CA3BC10C2BCA0F9014F94E5120ED9C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Jesus Culture, Chris Quilala & Kim Walker-Smith - Unstoppable Love (2014) [MP3|3
 ```bash
 magnet:?xt=urn:btih:85B2C8F1DAC3D9509DBAE46A21DE4AA1377F222B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ CD 1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

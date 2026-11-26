@@ -19,8 +19,7 @@ Warcraft: Orcs and Humans (1994) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:936818D5777D971920181F8F8823DD7BC1C33BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

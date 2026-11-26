@@ -22,8 +22,7 @@ Sting - Mercury Falling (1996) 2026 Expanded Edition [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:F54CC82F7F219EDD06FCB49A8B7ED5007697E0EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F758F938B2A9562EBC562E158A3628D34C9AEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4803C0D876E07243FAB69A2669A301955CE6E250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Proportions - Stories Untold (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 ```bash
 magnet:?xt=urn:btih:D33135E010B4FB4C43D504BC0237CEDBD7C17A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ From Ashes Reborn - Chasing Utopia (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <M
 ```bash
 magnet:?xt=urn:btih:D8B3D40E411F98CFBA3D888657050EDD02E26DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

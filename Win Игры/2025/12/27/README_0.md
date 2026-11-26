@@ -19,8 +19,7 @@ Heading Out - A Narrative Road Movie Racing Game представляет соб
 ```bash
 magnet:?xt=urn:btih:D45C75A546A26D218A5B445027AE9900AB549B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pure Badminton переносит скорость, точность и энер
 ```bash
 magnet:?xt=urn:btih:365DD5BE4973622B19246F169783F5F87E3DDC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Escape from Lavender Island (2023) [En] (1.2c) License GOG
 ```bash
 magnet:?xt=urn:btih:4CE827B655A7AC79321A49C8B81C215023753076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pawn Planet (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B4F3E334BD76CC18DB9BED2AC0CF5619F130EFE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Total War: Three Kingdoms - эта игра из популярнейшей ст
 ```bash
 magnet:?xt=urn:btih:DC0A9F650DE906F948B780088FD48FCD21B85C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ranch Farm and Store Simulator (2025) [Ru/Multi] (1.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:F87F9BD3CE7711353E3D35827D06FCA4C003CC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Zombie Diner Simulator (2025) [Ru/Multi] (0.65) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AEB0A735E56B1796904BE97226B29F7A145218A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

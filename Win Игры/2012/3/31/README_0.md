@@ -19,8 +19,7 @@ Roller Rush (P) [En] 2005
 ```bash
 magnet:?xt=urn:btih:A55C0D92323E65B611E0340AF689AA5C4488C32F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Criminal Minds / Мыслить как преступник (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:02EC1949F35ECD71F030C05DEE30E1F17BA2B61D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The City of Fools / Город дураков (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:E9B2281016F6BD374C0A250B81794F7FA1D3FCA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gemini Rue - приключенческая инди-игра, разработ�
 ```bash
 magnet:?xt=urn:btih:5BD9371CFD84479BD375C454BF16DE4ECDD3E3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

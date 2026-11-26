@@ -20,8 +20,7 @@ Wifislax 4.12 [Аудит безопасности, хакинг] [x86, х64] 4.
 ```bash
 magnet:?xt=urn:btih:47472873677894C46C075F59FBBA03D04A8AA943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

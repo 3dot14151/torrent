@@ -18,8 +18,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 эп.] BDrip
 ```bash
 magnet:?xt=urn:btih:310A3097464978384A835A6849730698593DE8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00A0463253E9B542727748B3C46F91527D164D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29FC92464587B4BE6862C86576D20E4A55647E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11711E23ECDDC25A56A09FF3675D16EEA5D55004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VA - Sick Music 2019 [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2CB0CC5ADB32CE0E623D5EEC99507012D92E5BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:9EB84199E1F84803C76E06F358A02C69C4252386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ VA - Chill Pacific In Deep House (2019) [MP3|320 Kbps] <Chill, Deep House, Relax
 ```bash
 magnet:?xt=urn:btih:EE306FC3A59C0BFFC827DBDD9C7A6FDC2393CF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3CA7143FAB2F82A4DC4501EC2365FBD3F0AC0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D21EF3B1E863349FAF313142F9E34B90D11456B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB952373CA3B717F0CE784C286CDE16632BC9A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9ACC376C731F7F2F65E0F55C668345F80938E7E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89C87153E51158E8A61D1BB30888285676762F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Pepakura Designer 4.1.3 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8C7898F1CBE51FADAAB9C26368194C86A1A4DB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ VA - Back South: Chillout Compilation (2019) [MP3|320 Kbps] <Chillout, Lounge, D
 ```bash
 magnet:?xt=urn:btih:011C8FCDBED673200773DD4EDC6D38B629265486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Ilyin - EP001. Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
 ```bash
 magnet:?xt=urn:btih:43A0B792EC106152C07F0ACE475D26C00BD4C6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63833393C8DE5B1DBB7167F0BC43DC4F0E318E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ NG: Китайская мегагробница. Секреты терракот
 ```bash
 magnet:?xt=urn:btih:7EEF0234FCC8F68C71F01D235B1F7A844899CD56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60ED74C27F46A7D89F451C8F23DFDFE22C0759BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ Karl Jenkins - Karl Jenkins: The Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:3BA6CF5A16D12623A0CE723D34675A53B7FE639A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D1D9A3C805DAF2E6B749AE68B85398B42B57711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F73C9FB943F0EADB6713A85FAF45A563EC7AB741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ Yuki Murata - Films (2009) Ricco Label, RE. [FLAC|Lossless|tracks + .cue] <Moder
 ```bash
 magnet:?xt=urn:btih:98340C0925E1C68E2E1DCAC46A3FF8958A091436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ Axios: Все имеет значение / Axios (2018) WEB-DL [H.264/720p-LQ] 
 ```bash
 magnet:?xt=urn:btih:88A7EA9FFF02A22E607DE3C460246A52CCF4713F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ WizTree 3.28 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0F721C9DE371FDF6C1A6853F08F31CB572383FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ Happy Sugar Life | Сладкая жизнь [2018, TV, 12 эп.] BDrip 1080p ra
 ```bash
 magnet:?xt=urn:btih:8EB3C86CD597398CDDE95600EFEE96AD051F1F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:9359C4DB855BF4D32CF2CA299453FFA96F5E9691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

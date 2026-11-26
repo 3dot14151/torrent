@@ -22,8 +22,7 @@ Netra - Sørbyen (2011) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, P
 ```bash
 magnet:?xt=urn:btih:292C495F11F604748D4D9986D03C5966A0CF5B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Netra - Mélancolie Urbaine (2010) [FLAC|Lossless|tracks + .cue] <Depressive Bla
 ```bash
 magnet:?xt=urn:btih:781AFC7D233C7CDBBFA8B7CB256C8061E3851145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Netra - Ingrats (2017) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Po
 ```bash
 magnet:?xt=urn:btih:2012BF5C2199B34EF8A097FC046A775393E0C8D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Leprous - Pitfalls (2019) [FLAC|Lossless|image + .cue] <Progressive Rock, Progre
 ```bash
 magnet:?xt=urn:btih:A91687E3389D6CD2B771CB6AC36B793497965BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Justin Hayward - 7 Studio Albums (1975-2013) CD Collection [MP3|320 Kbps] <Class
 ```bash
 magnet:?xt=urn:btih:184D8B81D9BBD1B5734982257AE3C562DA105573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

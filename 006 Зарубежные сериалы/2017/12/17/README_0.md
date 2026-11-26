@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B7C3DED6ED188A5C8B69B84D9998EBADD25DA2D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ C.S.I. Место преступления: Лас-Вегас / CSI: Crime Scene
 ```bash
 magnet:?xt=urn:btih:FA977B3B7ABEDED799FEE66A27D0BA5F18AA4387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

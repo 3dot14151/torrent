@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:F0FC5A44C898EAEC3844425A5F22481251658F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ VA - Lounge Galore (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:59A2DE60B074F9E86A280B8DFF2D033F0EB050BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Martin Taylor - Nitelife (2001) [FLAC|Lossless]<Fusion, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:905E11ABA618588959E00B9985474C959146ED9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Nachtblut - Chimonas (2014) [MP3|320 кб/с]<Dark Metal, Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:64B752711A28953EF4AF085A8F27BC23048C6F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91CB38E140E780DC7B841918A9D1CE5B5A7C9153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ John Hicks - Live At Maybeck Recital Hall, Volume Seven (1991) [FLAC|Lossless]<P
 ```bash
 magnet:?xt=urn:btih:0ACAE5CB18376BA4F862E8FC646D685C891BBFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A88C289BB855DB5EBBCF28DB6037DB69C1423CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Quantec - Cauldron Subsidence (2009) [FLAC|Lossless] <Techno, Dub Techno>
 ```bash
 magnet:?xt=urn:btih:DBF9EE05AF4C906D349ED2752E26182FC0EE8962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ VA - Absolute Dance Autumn Edition (2014) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:FE5437A015F7A22BE7FB763F22CC2D89A10B22DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14F42DCFF9F544D0F71909FAA96F73328C983837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ The Strypes - 4 Track Mind (2014) EP [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:F6B449BD05D501E1416423D6618D50EF6F5237DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C020A968A4324D157FE51C163FB1106E1088E059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B8676E2D02F09E0292B31695FEBBA1E4842235C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD3B704A107538ED4EC7DE7D7A0794A9E4C9A665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ Steve Kuhn Trio - Baubles, Bangles And Beads (2008) [FLAC|Lossless]<Jazz, Post-B
 ```bash
 magnet:?xt=urn:btih:F12FD00049FD1C6710CB600A7B2F0C3D5A1856C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AE5AA81FB1DAF65B835501388E9402F5EA85592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ VA - Electronic Sound - Top 100 Speakers October (2014) [MP3|320 кб/с]<Progre
 ```bash
 magnet:?xt=urn:btih:87760B3F6CF1F0084782C43D3FFB8745737E6DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ Coralie Clement - La Belle Affaire (2014) [MP3|320 кб/с]<French Pop>
 ```bash
 magnet:?xt=urn:btih:5629CA5DAC903AE9EDAE9245E99AA4D092C86AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:303F9AD7C52B7CB1CE7A0C875BE003DE85DA14D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:522DA1304FCA973AE8AED6CDBF170AD423526809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D61FABEC2CB73B2EFE2A132CCC6514F9C289105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +639,7 @@ The Pixel Door - Discography 4 Releases - 2013-2014 [MP3|320 кб/с]<IDM, Glitc
 ```bash
 magnet:?xt=urn:btih:0871F91EDF8EB056A1E0BB50EA0EAA01DE12533D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ Gene Harris - The Three Sounds (2012) [FLAC|Lossless]<Jazz, Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:AA84A8E0FA1A6B68AF8115B7B97EBA6324667EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ Discovery: Джейми и Адам. Испытано! / Jamie & Adam Tested (20
 ```bash
 magnet:?xt=urn:btih:0901BBE8675F5A83F3998B42BE7DDC0CF1A58508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5F06D5DC47AA6573A84FCA46F1FE9F470881C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ Gary Moore - Live At Bush Hall 2007 (2014) [MP3|320 кб/с]<Rock, Blues Rock, H
 ```bash
 magnet:?xt=urn:btih:E1A9B0C402E2A5AE83F0E12991D3DFC3E1A90084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

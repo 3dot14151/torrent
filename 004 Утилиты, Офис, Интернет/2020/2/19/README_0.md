@@ -20,8 +20,7 @@ Duplicate Photo Finder Plus - быстро находит дубликаты и�
 ```bash
 magnet:?xt=urn:btih:CB5E989B32A0C2B60A2F158F402723E674D4E6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

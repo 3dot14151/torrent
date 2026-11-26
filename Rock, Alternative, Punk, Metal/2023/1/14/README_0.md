@@ -22,8 +22,7 @@ Art of Silence - The Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash
 ```bash
 magnet:?xt=urn:btih:DFCEF62C98AC3C52D049846849982E5E288C7342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD - 1 - Of Truth:
 ```bash
 magnet:?xt=urn:btih:3CF24E5D570575BED0B14AAEB36D5D096A6352A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hath - All That Was Promised (2022) [FLAC|Lossless|tracks + .cue] <Death Metal, 
 ```bash
 magnet:?xt=urn:btih:B400C2262FA29D67D82BDD82C8C9C405936DE00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wulfgar - With Gods And Legends Unite (2007) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:168A648E005E785A1FA007CD655B7C84A74D9230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Elvis Presley - Forever In Love (1997) 2CD, Compilation [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:1139D062F53B040A6BDC1A496995D756B18CCDAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

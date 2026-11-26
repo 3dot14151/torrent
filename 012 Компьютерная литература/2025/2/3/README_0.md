@@ -19,8 +19,7 @@ Load tests help identify the maximum number of requests a software system can ha
 ```bash
 magnet:?xt=urn:btih:91C87DD27D37D539EB6501A76EBF0A4E5B51FD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

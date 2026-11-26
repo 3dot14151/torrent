@@ -22,8 +22,7 @@ Eternal Lies - Spiritual Deception (2002) [FLAC|Lossless|image + .cue] <Melodic 
 ```bash
 magnet:?xt=urn:btih:A610718C8BC66A62DEC2BE6F76CB4324C545A66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fearwell - Well of Fear (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Pow
 ```bash
 magnet:?xt=urn:btih:E751F4A392A5054A2DF9451F8480594AC5B927B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ WarCry - Daimon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:C57E2FC2A67891901EBEA5042826AD01A24D4450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|tracks + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:8AAA5D80D47FEEC53340FE1BC2ECEA7222C998A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC44D04794DF19F59520F7E5A84ADBC90BFCF538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA0226F0F816D0E4702887D5C714186B9E6B8EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Kane Roberts - Kane Roberts (1987) ex-guitar Alice Cooper [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:3A25F9CCB94F635A5373DAE947825D82C5B76468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Polyphia - Remember That You Will Die (2022) Neurotica Version [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:9A4A26FA29254319ECB93EBE276E52A84AD20B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ The Offering - Seeing The Elephant (2022)  [FLAC 2.0|96/24|tracks|WEB-DL] <Heavy
 ```bash
 magnet:?xt=urn:btih:95E9F74A43525BF9BF40003C0B696788A71B987A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Tony Martin (Forcefield, Giuntini Project, Empire, Rondinelli, Silver Horses) - 
 ```bash
 magnet:?xt=urn:btih:71C4EB10855AB604941F7904C2CCB422EA4D22C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Still There (2019) [Ru/Multi] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:8A045EBB3C9AB2D39974E352DC955D0CDFB7A074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tower Hunter: Erza's Trial (2019) [Ru/Multi] (2019.1.12) License GOG
 ```bash
 magnet:?xt=urn:btih:B30F9EB7BAF90CFC9CFE1630A59160600DB702BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

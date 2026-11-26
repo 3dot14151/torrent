@@ -21,8 +21,7 @@ The Monty Alexander Trio - Full Steam Ahead (1985) 2000, ООО "Галакти�
 ```bash
 magnet:?xt=urn:btih:52DF05AED776702091AF06252BB8A6DA7E373ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Brain Plugged: Big Room House Music (2017) [MP3|320 Kbps] <Electro House, C
 ```bash
 magnet:?xt=urn:btih:26C0CD9403C1CB11C2997ACBDC07AF2EDB31F040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Magnus Berg - Cut Me Loose (2014) [FLAC|Lossless|tracks + .cue] <Blues>
 ```bash
 magnet:?xt=urn:btih:EFD9DF2F3F40AE364084FC40D9DF4FD96A28FA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Notability – мощное средство для ведение замето�
 ```bash
 magnet:?xt=urn:btih:E3312F1E1857056FE6F2A69E6C85A14B947F5D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - La Fete Au Jardin Selection Lounge Vol.5 (2017) [MP3|320 Kbps] <Downtempo, 
 ```bash
 magnet:?xt=urn:btih:EE91443326758886B2BE3E5C3284C809DD1E454B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:FF90289E6E341653CF6A236D2B5C1C10C7A338EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Pacific Trance 100 Art Of Trance (2017) [MP3|320 Kbps] <Trance, Progressive
 ```bash
 magnet:?xt=urn:btih:89951C774526294C175C4F53E3D12DDD6C77966F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EC32A241130FBA09C6F48261FA2549D47186119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A183C14824987984BC046B2F02B14ADC223FD26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEF4DCB52F714425F75F27190D018184C04261E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:50D313A5CF6E5DD5E61368C7C186470E4BD94364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Montana Rose - Wild Oats (2017) [FLAC|Lossless|tracks + .cue] <Country, American
 ```bash
 magnet:?xt=urn:btih:CAEAB41A714F5DF9BDF2A8662A0AD34CFFF212D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:4DBE5BC6E384115BCA3822990AAEFB179710F8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Sailing To Nowhere - Lost in Time (2017) [MP3|320 Kbps] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:DC8FC5893E52108660D2E45424FBBFCEDF4185D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84FBEE8FEFA2AE2AF152CF71B6906A4824F15660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ AudioFinder — программа для управления вашей фон
 ```bash
 magnet:?xt=urn:btih:F134E459CF509B19617DEBCACD39CEC36A21352F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Warp позволяет конвертировать и анализироват
 ```bash
 magnet:?xt=urn:btih:4C5B2AAF6E803A510A9FB0A7A0194C38AE98C394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ VA - Springtime Feelings: Jazz for Lovers (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:7DD867FC9B841907AB9017264DFF313690FA082E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3DDBEECE778304D44B941E18B9B23B9D3C0F946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ Trance - The Loser Strikes Back (2017) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:80E66A2D9B037E31A000B488EE3F1866B9DAB1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ VA - 50 New Age Deep Meditation Tracks (2017) [MP3|320 Kbps] <New Age, Downtempo
 ```bash
 magnet:?xt=urn:btih:47A9165245911C081C82BD71C552B21D6E4E59CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Flux является передовым программным обеспече
 ```bash
 magnet:?xt=urn:btih:5126105354C00BB2C249CE9D23181FB4F249EF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ SAVI - уникальная матричная камера, не нуждающ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ VA - Jazz Covers Playlist (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:1C6CFF4E71630269E6833BD69062792DF1FE3A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Corporate Templates - Business Stationery 3.1.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:14436DE4CBFE227DC44856FF273E211A36697A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24C1EACD8271117E57215F5D5942453108D33478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Clash of Robots - настоящие роботизированные глади
 ```bash
 magnet:?xt=urn:btih:083932371F481DEC4784FAC0C979391FB13E4884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

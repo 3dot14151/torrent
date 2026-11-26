@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7016888503CCA827972DE38A1582F856CF85B4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD7E732491AAB917557C958623C76458F9D63254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A93BAA26F237424AC64706FE48C39D2AB612B17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Vantage Point - The Dance (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 ```bash
 magnet:?xt=urn:btih:186578C783791013930A8A6A159145BBF5F719A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Blanket The World - это масштабная компиляция хитов 
 ```bash
 magnet:?xt=urn:btih:E4039565A0A272DF53633ACD92D3BF07BBE3539F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Motörhead - No Sleep 'til Hammersmith (1981) Japanese Edition, Reissue, 1989, M
 ```bash
 magnet:?xt=urn:btih:8AA9692ECFEEA80C20A183943F76C2B3923035D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

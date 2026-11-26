@@ -28,8 +28,7 @@ VA - Subculture Selection 2012-01 (07.01.2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:AF80202EF9C0FCE1E07153CF41D78B5C2349A5B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Subculture Selection 2012-03 (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F8F813D8BD54D64712362163D0875E33A56E7B66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Subculture Selection 2012-04 (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:1E151E61AF9E3140A8E3CB0D69743F8532568DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ R3hab - I Need R3hab 001 (01.07.2012) [MP3|~205 кб/с]<Electro House, House>
 ```bash
 magnet:?xt=urn:btih:F7ED559D58A2EA8AEC2F2D7AFE22C7FD88682228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:334506273998A9FF9F18A7306C10D711CEA0634E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Kuffdam - Network (2009)
 ```bash
 magnet:?xt=urn:btih:17F0682F7B6B0A96FC45C5C7190299A5FF67704A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Josh Turner - Punching Bag. Deluxe Edition (2012) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:36C085D6FF14215D45D7D913BDC5627459EC0775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Senzar - Before The Morning Sun (2010) [MP3|320 кб/с]<PsyChill, Ambient, Down
 ```bash
 magnet:?xt=urn:btih:989A5CA4DB09D328B1F2DD0B5D5965059461A593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21F05CB45B193E1A3953D84C994CE495CB512E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +315,7 @@ VA - Dancing People in The World - Top Dance (2012) [MP3|256 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:1F32523CCD8CE335F67B0B8A82075BF22BB41EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ Holy Knights - Between Daylight and Pain (2012) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:592C1F7BC571BBAF005387F32C464B8346CABA01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +382,7 @@ Oliver/Dawson Saxon - Motorbiker (2012) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9E8007F7AA9EBD62909B6AD08C046911C796AD87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +416,7 @@ VA - Dance Club Party Vol.5 (2012) [MP3|256 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:95AB753E0C46FA7DEA43B12DEC2341280B4E2EB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +450,7 @@ Black Messiah - The Final Journey (2012) [MP3|320 кб/с]<Symphonic Black/Power
 ```bash
 magnet:?xt=urn:btih:E584D7F1DC6740DCC5E53A8410E75AF7C16B5D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:887079B2A45621062AA92BAD4F76EEB4876440F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +507,7 @@ The Gil Correia Band - Tattoos & Blues (2011) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:E4B4D6E78B873AF114FE2035961265034C61FD12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2E070405B68567AFF91D65654BBC436E0845581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93EEEFA3E45B69D940D0D4DC849A7F1B4B401C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:301EED92CA9DE700E8B013B0005D357274A1CBBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +650,7 @@ VA - NeРусский Шторм - 66 (2012) [MP3|320 кб/с]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:6C5BD7DB9878A539B105ECAAAD58210CD253E472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +684,7 @@ VA - Esthetics Lounge Vol. 3 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillou
 ```bash
 magnet:?xt=urn:btih:B680EE1957758E2744EF89F97E47A0A26D5AEC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +710,7 @@ On My Way - Апатия (2012) [MP3|320 кб/с]<Alternative Rapcore>
 ```bash
 magnet:?xt=urn:btih:50DC3FD2EDF8CF17C7A44EF1719AB341A03E9F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CF51F962A7134184B56477697F748CFFB570EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +769,7 @@ VA - Airport Lounge: Chill Out & Lounge Tunes For Easy Travelling (2010) [MP3|32
 ```bash
 magnet:?xt=urn:btih:CCF94135EF86E4D57EA54E8346A502B172CC6716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -828,8 +803,7 @@ Sonata for guitar in C major ("Grande Sonate"), Op. 22 - Fernando Sor [19:11]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Phantom Trigger - это аркадный слэшер с элементами R
 ```bash
 magnet:?xt=urn:btih:411059337840EDD556971903FFFC1C4C17523687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Fear of Clowns (2017) [En] (1.01) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2EA86D8C7D5ACC0B13265285FEBF2E114E910DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Vertical Strike Endless Challenge - аркадный симулятор, в ко
 ```bash
 magnet:?xt=urn:btih:266529A995A1AA93300CAF35E3D7A206340E56D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Hot Guns - безумный кооперативный экшен-платфор
 ```bash
 magnet:?xt=urn:btih:0B5E606689649B746E7802F8E66AF6636439DA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

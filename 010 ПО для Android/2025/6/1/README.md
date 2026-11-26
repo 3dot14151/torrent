@@ -19,8 +19,7 @@ CalcKit это простая и мощная коллекция калькул�
 ```bash
 magnet:?xt=urn:btih:80F275D06BB90E27C011CD8ACB9BDDC7D4C6C7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ProShot v8.31.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:75CC6C0A28B9E9D8C5034E9AA4A3FA616B515D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:841CB59E0B50037996D43ABF9BC9DD5943362700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

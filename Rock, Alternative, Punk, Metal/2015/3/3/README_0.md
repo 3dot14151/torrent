@@ -23,8 +23,7 @@ Nadiwrath - Nihilistic Stench (2011) [MP3|320 кб/с]<Black Metal, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:96967CAC8B1B985FC3362FFFC732E2826C962267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Anguished - Cold (2010) [MP3|320 кб/с]<Raw Black Metal>
 ```bash
 magnet:?xt=urn:btih:5A869BC114274B698CF4888F357CEF56B3D673AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Arcane - Known/Learned (2015) 2CD [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:758F1D17836B160D2CD32CE56B7555919DA22D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dew-Scented - Incinerate (2007) [FLAC|Lossless]<Thrash Metal/Death Metal>
 ```bash
 magnet:?xt=urn:btih:9FE7CB84314BEA7E319CD5373C8D838413B7D302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Little River Band - I Dream Alone (1997) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:198B2929AC87042A250AD0F4055D234021AD210A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Arcane - Known/Learned (2015) 2CD [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:ABC3E695E32CCC503AC8E2616BCCD79DCEDEFDDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Bonjour Tristesse - Par Un Sourire (2011) [FLAC|Lossless] <Depressive Black, Pos
 ```bash
 magnet:?xt=urn:btih:2399FDA5837BD425BB72D0C2FDFD34B0B07BE225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Mahalia Barnes & The Soul Mates feat. Joe Bonamassa - Ooh Yea "The Betty Davis S
 ```bash
 magnet:?xt=urn:btih:AFBFAC20B12396283C20747DFB78D3B039AF8749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Europe - War Of Kings [Deluxe Version] (2015) [FLAC|Lossless|WEB-DL]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C7E6962F814C2A1A58CC83CD6C2D47C19F27BC64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ Cinderella (Золушка) — американская рок-группа, о
 ```bash
 magnet:?xt=urn:btih:6CD8BFF0DD1FA190F827E77CD53F0AD37AE6F17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA399191BE5C11FE1E07CBD73747AB3FB3071FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

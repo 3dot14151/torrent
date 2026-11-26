@@ -19,8 +19,7 @@ Language Translator v1.5 AdFree [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7DAD96E207995A930D85BC9E84BE5A34F33C31F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCA0804DEC0BED5B0BA4D15D8F56E2A9B23BD5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

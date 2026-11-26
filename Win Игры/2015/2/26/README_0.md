@@ -19,8 +19,7 @@ Nightfall Mysteries 4: Haunted by the Past (2015) [En] Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:0F9A4FCC2CF0A8B88C538935249BA1AB619CFF75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery of Neuschwanstein (2015) [En/De] Unofficial
 ```bash
 magnet:?xt=urn:btih:1E68822F5E20FF57ADBBE2EF5BB931F43BB26369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Moebius: Empire Rising (2014) [Ru/Multi] (unity4engine) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:5F22F63F45869412393C2DE5740AFA0AEC4D27C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

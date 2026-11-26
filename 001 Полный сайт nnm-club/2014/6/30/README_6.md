@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9CA4700DDCA49009218E57A3C19875C04B40FB29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Chip XP 2014 Final DVD [Ru]
 ```bash
 magnet:?xt=urn:btih:89C6F5D35D4E38A20C32B3F6B14A18B0AD092908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

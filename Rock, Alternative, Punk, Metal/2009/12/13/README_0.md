@@ -28,8 +28,7 @@ Autovein - Souvenirs (2009) [MP3|256 kbps]<Alternative Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ A Tale Through Audio - Sets Sail (2009) [MP3|320 kbps]<Alternative Rock, Christi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

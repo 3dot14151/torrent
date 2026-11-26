@@ -22,8 +22,7 @@ The Kooks - Down (2014) EP [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:37F3D4C19AF5AEFE7E6A0840FCD33065F77AC771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:073FD79FCA40486DD440E60753B40D3FCAC1358C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

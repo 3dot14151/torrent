@@ -21,8 +21,7 @@ Wyken Seagrave | B4A: Быстрая разработка приложений �
 ```bash
 magnet:?xt=urn:btih:73807804B7E0B1B6929BE541D5F4E7B44B8513FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

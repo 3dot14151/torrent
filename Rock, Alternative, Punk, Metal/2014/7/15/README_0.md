@@ -28,8 +28,7 @@ VA - The Death Of A Modernist - The Dissonant Choir Vol. 1 (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:DA85A62C709740EDC0FB73D8816888BD25C55CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A981AF608E151AA7B86F9BE41F60443AA27C7B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Czeslaw Niemen - Enigmatic 1969(1996) [MP3|320 кб/с]<Progressive & Art-Rock>
 ```bash
 magnet:?xt=urn:btih:B191A77625FF1F2E41EC19846F55831FD36EF850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Volumes - No Sleep (2014) [MP3|320 кб/с]<Progressive Metalcore / Djent>
 ```bash
 magnet:?xt=urn:btih:9AB95777094A82AF8455BD5496B3B880D2369587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Gillan - Magic (1982) Remaster /1988, Virgin Records/ [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CF73B08FCC7FF7620282A0B9CDD5A5415F5E0542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Overkill - White Devil Armory (2014) [MP3|320 кб/с]<Thrash Metal, Groove Meta
 ```bash
 magnet:?xt=urn:btih:48564798EFCC3DA11C39419489436CC764069754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ScreenMaster 2.11 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3831063D1FC915FB6487F28CC49A5F5843B55B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:63AE80C3A36D640783D18FCBA3122B4529584316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Total Doc Converter — профессиональное решение для �
 ```bash
 magnet:?xt=urn:btih:073EBDF50A315755936190CD687459B088E8C9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ UPDF — это современный PDF-редактор с поддержк�
 ```bash
 magnet:?xt=urn:btih:0C9F36F47A66DF5F995E73BD089A3C0369A60686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:36276FA27BEB0BA9B4B19D90BC7FAF64209D4257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:729AF17EB4D4DC70E71C49C30370E5C757362162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

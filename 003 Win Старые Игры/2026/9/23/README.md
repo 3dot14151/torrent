@@ -19,8 +19,7 @@ Cocoto Funfair / Cocoto Magic Circus / Кокото: Хвост пистолет
 ```bash
 magnet:?xt=urn:btih:DDEA002176D24C29F0AF557B4E75732A73899D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

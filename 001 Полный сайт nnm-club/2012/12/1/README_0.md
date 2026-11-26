@@ -27,8 +27,7 @@ Susheela Raman - Vel (2011) [MP3|320 кб/с]<Neofolk, Fusion, Ethnic, World mus
 ```bash
 magnet:?xt=urn:btih:86C65AF5F08A9AB3CB6B2F2FECFE75161BE47B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Chill Musik On The Beach (2012) [MP3|320 кб/с]<Chillout, Ambient, Longe>
 ```bash
 magnet:?xt=urn:btih:587A360F77A7BE38854544E459D8C8CF2633121E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Integral (2008) [MP3|320 кб/с]<Downtempo, IDM, Ambient, Minimal, Techno>
 ```bash
 magnet:?xt=urn:btih:A9A6A9E181BB69A43446EE9F0DBC01C198396A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFBBA550FCD23E47C6C88A7307E57057895B5D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C18741DCD883A7A41DB5B3A64A9C2991E28A8573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - Клубные Новинки Vol.192 (2012) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:317D50F092B7371BB9F2455E9C2DB944FFF962BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ HQ Wallpapers Perfect Women (01.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:6CA07D4B495A2AF0D8B0A94E5F5B082533C9F1AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ Lord Vicar - 2 альбома (2008 / 2011) [FLAC|Lossless]<Traditional Doom Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C35E34EC21FE2188812771A15966AC2B8FD0026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Pagan's Mind - Enigmatic:Calling (2005) [WavPack|Lossless]<Prog Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ ART выпуск: Максим Финогеев, Влада Полтавская
 ```bash
 magnet:?xt=urn:btih:EA37545CC30AB450E25D5AFC18980785E908BEE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11FD3E49ACA074BB7334E995358B3FB3D12E3CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63F761F73296498C3B54B6A92AA217C1A4CD807C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ Simon Cooper - Celtic Heart The Story Of Tristan And Iseult (1996) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:28A2C903EBA9539D528796AE20E223095F3EC20E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ Sexy Women Wallpapers (30.11.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:615634168D8B42BEF4B7E96F0FE88B816905F13B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ Steve Aoki - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:EF11405E069264D490572D1E7D46F37456E63DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53DD7551176F98E2EF819D9A57F64978382FBFC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ MELOTRONICS guestmix:
 ```bash
 magnet:?xt=urn:btih:B7B6CE49F1CD9FCB3A2180FEBAF4E37D3757A914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F91F957A7761C8C9352673E6242D6F5455CD15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +577,7 @@ VA - Armada Top 15 December 2012 (2012)
 ```bash
 magnet:?xt=urn:btih:A435A262037ED644791EF42070C6597D46AC6A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ Matisse & Sadko - November 2012 Promo Mix (2012) (2012) [MP3|320 кб/с]<progre
 ```bash
 magnet:?xt=urn:btih:8CC5B84B006E6A904B1B02CE52AE2262D37AB1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:004E3AF2530BF62F9979AD34BFB0B8BF5396E2C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E5686FB3393842D9DA58C0857049A2C18197311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +690,7 @@ VA - Trance Pro V.1-6 (2012) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:5CE354735B868CDBEBDD5F677387DD65800D9703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ Counting Clouds - Perfect Harmony (2012) [MP3|320 кб/с]<Chillout, Lounge, Dow
 ```bash
 magnet:?xt=urn:btih:15BA81B685D7A5D405B3BDB9AB710D984BC49CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E5A4E0075BD9875BE52AA41AEC798CF049C5B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

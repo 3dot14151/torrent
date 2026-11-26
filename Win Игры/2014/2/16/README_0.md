@@ -19,8 +19,7 @@ Hidden Runaway является представителем некогда по
 ```bash
 magnet:?xt=urn:btih:09A7DC4102547033622AB87340EE04ABD6201064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Parables 6: Jack and the Sky Kingdom / Темные Притчи 6: Дже�
 ```bash
 magnet:?xt=urn:btih:E341AEB9F662DB5C3F9F20D676166273F752DF8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ God Mode (2013) [Ru/Multi] (1.3) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:934959480BCB02D20E988F93232C61400D1FED12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ LocoCycle (2014) [Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:14B5847A2ADF9D93B4E2DB15C0D97CD30DA1900E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

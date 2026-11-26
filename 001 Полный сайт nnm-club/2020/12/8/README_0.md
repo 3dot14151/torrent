@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:8793F3B503A1BACADE10846516ED83D6EC9FDE3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E473B02AEC888287D3817F693E310A8EADD85688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Whisk - это легкий редактор HTML и PHP с предварите
 ```bash
 magnet:?xt=urn:btih:9A7E9F3E2770C5AC2DEA8EA2F2B55065BD8EECE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Vidmore Player - универсальный медиаплеер, который
 ```bash
 magnet:?xt=urn:btih:C452E6AC8F9E6F27D25BCB1691B35AE0D87B81C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B789D0E10225D0369C9A2C0692BDAB38EBC7A542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Snap Art 4 - этот плагин предназначен для превра�
 ```bash
 magnet:?xt=urn:btih:F2DC66B7B5DAC334266FFA461F366919A8D31022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17925230F2F71C89275C95E9CE37474044DF46B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Vidmore Video Converter 2.0.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:263CDCF2097201F889563383996F11B7DFA85526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5259049883D13CB201151C2ECEA8A849D7B779F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ VA - Beatport Tech House: Electro Sound Pack #205 (2020) [MP3|320 Kbps] <Edm, Te
 ```bash
 magnet:?xt=urn:btih:A050D7B4D7A439A172C2664F89E8A70EF3E98D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ VA - Best of Smooth Lounge, Vol. 1 (A Finest Selection of Chill & Modern Bar Tra
 ```bash
 magnet:?xt=urn:btih:2C2C527E6F49AF7F05EA37FA639368F598A1E0C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D53EEF06D8CE00B8AE338E975C0CEC6E07190504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EDDB796ABFBFE986CB97891D637354238C662FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ VA - The R&B and SOUL Room (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B
 ```bash
 magnet:?xt=urn:btih:6798AA6820FB732E4236A211B723F8D03FB60576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ AYVY 1.7.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:D3160F13F8324CECDD6A008A94CE444423BBCEC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Oceans Of Slumber - Oceans Of Slumber (2020) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:90CF194E5ADEB025F9922DA23DE94A5562992204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Rain - Singularity (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:89F7FF38D573C863227D6604677E9DD276EAAD75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Dark Reader for Safari Это расширение для ухода за гла
 ```bash
 magnet:?xt=urn:btih:58C2BBB813E5699121DE08858AEB370B89709A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ VA - Beatport Deep House: Electro Sound Pack #206 (2020) [MP3|320 Kbps] <Deep Ho
 ```bash
 magnet:?xt=urn:btih:4E05529CF01B33D7666488F97014639EBEF29BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ VA - Sound Times: Advanced Club House (2020) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:EA8A3243A8206050F4B6470BF103C533F06F65B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Jinjer - Cloud Factory (2014) Reissue, 2018, Napalm Records [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:9C76AAC17EB3B2582877C9C21E3529F456E5BC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ VA - The Real West (2020) [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:9F77E219ACAE44671A78B008E1AD06E6D5A827FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ WRC: ACI Rally Monza, 03-06.12.2020 [A21 Network Russian Motorsport Television]
 ```bash
 magnet:?xt=urn:btih:C73DC28405C57F7936B27C141349920C956E7058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Adobe InCopy  входит в состав Creative Cloud. Поэтому (   �
 ```bash
 magnet:?xt=urn:btih:810C8F3408B267078B946042D2211C00940C715A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CDBA4FA157FCAD3C6449F4BAD6E11E1314B853F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ VA - The Forest Chill Lounge, Vol. 16 (Deep Moods Music with Smooth Ambient & Ch
 ```bash
 magnet:?xt=urn:btih:08A273EA1B0EF40DF02AAFAD0EFC8110872BFEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

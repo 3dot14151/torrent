@@ -19,8 +19,7 @@ Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:FB967306260C4786D0C5C83F90FA7E11F4F29684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

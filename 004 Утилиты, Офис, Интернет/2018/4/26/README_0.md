@@ -19,8 +19,7 @@ iCare Data Recovery Pro - программа для восстановления
 ```bash
 magnet:?xt=urn:btih:BCEF1EC5C333EE92BFFE9D9FA0313440DC2EB316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

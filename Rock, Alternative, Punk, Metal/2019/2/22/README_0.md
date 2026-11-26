@@ -22,8 +22,7 @@ Avril Lavigne - Head Above Water (2019) Japan Edition [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:0CE49CA856F0C7A228A75F255332B0DB2BAD990C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Slash - Conspiracy Series Volume 1 (2019) Compilation [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C0EA7F500C1F149E97C4685991E38863D776A256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

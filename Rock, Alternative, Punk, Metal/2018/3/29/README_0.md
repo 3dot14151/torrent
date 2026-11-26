@@ -22,8 +22,7 @@ Mallet - немецкая рок-группа, созданная в 1979 год
 ```bash
 magnet:?xt=urn:btih:84FC855B1A6FC31B09543ECDFAA899F61FCF5320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Dead Daisies - Burn It Down (2018) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:89E01609835EF3C2202C934A8814C46D325E130B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Animal ДжаZ - Счастье (2018) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:33C9B18CD8B6ECFB226FD4FC3F674C51DD8A9C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

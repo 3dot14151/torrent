@@ -22,8 +22,7 @@ Uriah Heep - Firefly (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A18598CB474D2996289B3A154775FAF9A1859A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

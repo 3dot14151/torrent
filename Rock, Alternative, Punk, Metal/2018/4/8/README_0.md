@@ -22,8 +22,7 @@ Bloodhammer - Post-Apocalypse Trilogy (2006) [APE|Lossless|image + .cue] <Black 
 ```bash
 magnet:?xt=urn:btih:FCE0B4E57B104956B91445E813F28A72B3A68FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4D004FC056783F51B24E27EA9F6DD0E7AC9E981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Disc: 1
 ```bash
 magnet:?xt=urn:btih:14F46917F7A8F874C586350A168B8D08C960E855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

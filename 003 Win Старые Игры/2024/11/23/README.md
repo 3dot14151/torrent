@@ -19,8 +19,7 @@ Dungeon Keeper 2 (1999) [En] (1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:D9AE3BA2D5175726BC1915A5C8EB9B25B7C25DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeon Keeper (1997) [Multi] (1.01fix/dlc) License GOG [Gold]
 ```bash
 magnet:?xt=urn:btih:9151B949051B2C0ABC4189C0D181148140155F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

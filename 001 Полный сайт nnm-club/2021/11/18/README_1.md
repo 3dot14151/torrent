@@ -18,8 +18,7 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:18028307A041ACCACD9389179259D6B3880B44ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A93D8772E8C301FBD0A58EEB178BB2CDFF751841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:259591736E85EE8B2D7A214FB7173707192F357C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Aquarius Theatre, Hollywood.Производство: blue noteЖанр: Jaz
 ```bash
 magnet:?xt=urn:btih:F27502E0FFFEC0576A7E375B8F3557CC7578BFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D745F504C8F032B3D9E13D80FD95B431A3C98253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Robert Plant & Alison Krauss - Raise The Roof (2021) Deluxe Edition [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:D0E6E08F58EFAD793E2E5086ED9FDDE65C37DF2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Christmas Stories 10: Yulemen (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:E75A0B9BF4FDC71477C787B0D67618EC65D28EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Junko Jagami - 2CD Best 1978-1983 (2005) Yamaha [FLAC|Lossless|image + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:B8AD0E06BAB4A37950FE258126FE2C0F1F79C78E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Destiny's Child - Survivor (2001) [AAC|~336 Kbps] <R&B, Funk / Soul, Pop>
 ```bash
 magnet:?xt=urn:btih:4B0ADD23006560FEA27413D4B09D733CF48049E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ ISO Workshop – небольшая программа для работы с о
 ```bash
 magnet:?xt=urn:btih:D68B0D8410ACE8B8622FCC15F2F51A594C931406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Adele - 30 (2021) [FLAC|Lossless|tracks + .cue] <Pop-Jazz, Soul>
 ```bash
 magnet:?xt=urn:btih:82179E9EF67C455113BB3122FAC8A47826226C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ VA - New Horizons: Young Stars of South African Jazz (2020) [AAC|~338 Kbps] <Jaz
 ```bash
 magnet:?xt=urn:btih:BC2D402397B1F04315B0843C6F422494137B3206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:5DDA5D848C90346C57BCB71EFE734328EC79F5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70DB5E1FED529752E2540234D72A56E19E658CD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ Total Bundle - это набор всех плагинов FabFilter. С эти�
 ```bash
 magnet:?xt=urn:btih:01F4E35CBBD1A1D6867191C01FA05F5F8677F2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ VA - New Horizons: Young Stars of South African Jazz, Vol. 2 (2021) [AAC|~338 Kb
 ```bash
 magnet:?xt=urn:btih:E1855A5BE2AB01FA869A2ECD54EC91616EA86F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ Swinging Bach. Bobby McFerrin and Guests (Live in Leipzig) (2000) DVDRip [H.264]
 ```bash
 magnet:?xt=urn:btih:5528EDD2A928E8D364C2F20AFA6BD3377C523896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ Adele - 30 (2021) [AAC|~290 Kbps] <Pop, Soul, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:280F1BB9615FA48DBBEE9C4B1A44ADCA51FB559C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63AE49A43CB100C863D261F170F9BBD40D0685DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ Opera 81.0.4196.54 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6935D0139C22C2ED6F11E49A06A04034D46BBB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E66FA0FE748E9D3D6F273C2ED8A045EA71D869D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE792AB6796F82554D094DEF13AD9DACAACEE106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA1A551F605EAD77E45B497159B1E0706A98C53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BFBBD51C277BE8A000F0BB63E4C3C6EEB85B591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ Spotify 1.1.72.439 Portable by JolyAnderson [En/Ru]
 ```bash
 magnet:?xt=urn:btih:54E371EC544D7434B0C58B29082399BAEF21FFB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ Bandizip — программа для работы с архивами. Дан�
 ```bash
 magnet:?xt=urn:btih:74C072E8F0575F16EBD414646D98FB96F3F3FA5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

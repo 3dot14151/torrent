@@ -19,8 +19,7 @@ Dark Romance 11: The Ethereal Gardens / Роман тьмы 11: Небесные
 ```bash
 magnet:?xt=urn:btih:EF3C74B524DD7882EC159D909000C0E0909EAB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BEAUTIFUL DESOLATION («КРАСИВОЕ ОПУСТОШЕНИЕ») — это 2-
 ```bash
 magnet:?xt=urn:btih:CB345223DB705FB0670E9C5434EF469359F1DD39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Opening Scenery - Mystic Alchemy (2011) [MP3|224-300 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:6D70FB01F3C21A49572894C30A0024E4E16F884D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Fortress Under Siege - The Mortal Flesh Of Love (2011) [MP3|320 kbps]<Power Meta
 ```bash
 magnet:?xt=urn:btih:F272CE1EEE114E75E34CEB8978F0716B352F2477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Hatetrend - Violated (2011) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:857A1EFFF6E82FBD76551D66EED5EFF8A5CC023C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Nadja — дуэт Aidan Baker (гитара/вокал/синтезатор/д�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Discogs | Official Site | Last.fm
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

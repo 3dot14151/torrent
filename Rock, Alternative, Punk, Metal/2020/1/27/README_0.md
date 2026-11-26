@@ -22,8 +22,7 @@ White Ward - Futility Report (2017) [FLAC|Lossless|tracks + .cue] <Atmospheric B
 ```bash
 magnet:?xt=urn:btih:759DC13DAFE0D3DCCD6B422D6AB59BD275A9F4F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ White Ward - Origins (2016) Сompilation [FLAC|Lossless|Web-DL|tracks] <Black Me
 ```bash
 magnet:?xt=urn:btih:F975A86F6B4E839B4BD96A0CE13D478260373783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fear My Thoughts - Vulcanus (2007) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:083CAD32E30E1A80CEC7AE6D954FE75C9BCC7937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

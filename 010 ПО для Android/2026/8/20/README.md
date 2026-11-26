@@ -19,8 +19,7 @@ TG WS Proxy Android — это локальный MTProto-прокси для Te
 ```bash
 magnet:?xt=urn:btih:AF8BA6DAB388749AB9887A37CA9F46FA43A4CF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

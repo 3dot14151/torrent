@@ -19,8 +19,7 @@ Legend of Grimrock – подземная бродилка с классичес
 ```bash
 magnet:?xt=urn:btih:02EAC962D6A2CA3B895FA197F7A424DB7FFD14FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
 ```bash
 magnet:?xt=urn:btih:37EDFC7C8DD5E537532BB19329DE9C18456BF6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ King of Retail (2022) [Ru/Multi] (1.0.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:9D277D003E0124F271C728229C1201C1C3DFE60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Viking Heroes 3 / Герои викинги 3 (2022) [Ru] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:E5E3EC70BD2CB19D1F5D1556D6D29F591EAC58CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.20.9500/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:47A47F8B304F5395578DB07B861951617DA43C19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Debra Lyn - A Cold Wind Blows (2014) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:4E1DDB9B5E4533ADAD5C391162A2ACAE1ED41282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6840E021A6F449BA9E9A20A83C4D1B7A431B5249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Black Hole Radio March (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4C7289FB1103D9E86F79AA0A7C31C5E363262906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - The Original Cool Vibes Lounge (2014) [MP3|320 кб/с]<Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:321D471D1F79C652DDE3A40E09AA83EDC0A27F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Lounge in London (2014) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:57E15811B2381D668D13B76CDDE0E5574A6D2FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Comedy Баттл. Суперсезон. Выпуск №1  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:3D44332CB9220FEE3A4C2CE0C3D88662A93C4F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Ashampoo Snap - утилита для создания скриншотов (с�
 ```bash
 magnet:?xt=urn:btih:C56F5863D324242E84374B58E2EC6DA0390C28EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82903E50D9A68C4B36C75493D69150993E1BBF97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ VA - Bobina presents Russia Goes Clubbing Radio Top 10 March (2014) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:03B2C36C441550E4267A37E698CEE0A392246B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ VA - The Best Of Ambient 2014 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chillo
 ```bash
 magnet:?xt=urn:btih:B6FAC068EC08DBBD628D8A4D6559D65CB65D0DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27E120F26F831D3EE6488A458A9CD9E13C83D5DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEFEC7237361CF3F0C9AC078321097A1DD4BD59C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ Chico Freeman y Guataca - Oh, By the Way... (2002) [FLAC|Lossless]<Afro-Cuban Ja
 ```bash
 magnet:?xt=urn:btih:F918EDE35E81CC28E11C1BD41C7A4CD55658B50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:693E189066729D7ADAEA7C0F847DC20A8531053A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ Ben Webster - At The Renaissance (1999) [FLAC|Lossless]<Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:41749249C5D2F8D9FFD118A5469A67C3655A7AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CD9C5D5E46F4065BE1805B443E682FCC50DAE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58D08722F2FF83C457EDBB682853A0DB7B72044C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ VA - Champagne Music (2014) [MP3|320 кб/с]<Lounge, Chillout, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:EE2827011C13FCD75A9DCC937EF20668DDB13399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +569,7 @@ Kelly Georgia - Winter Classics. Harp Music for Christmas (2004) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:A2A17BB0DCF2E8D7F3B853221177000020478321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +603,7 @@ VA - One Love Dance (2014) [MP3|256 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:12AA2EF99BC6AC1155BBB44057264D8DBCE02CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CC9E83D79A60A616C4A5921E774E98B15D1D69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F83E86CC6A3862279D004B4963C735FE3C4E901F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ VA - Mashed Mellow Grooves Vol. 1-5 (1999-2003) [MP3|192/256/320 кб/с]<Downte
 ```bash
 magnet:?xt=urn:btih:9506166F6DFB85707D3E6B4332D052949C822894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC9F2CB1FE16E8EAC227DA513A96283B298DFAA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +738,7 @@ Ashampoo Snap - это идеальное решение для быстрого
 ```bash
 magnet:?xt=urn:btih:4E691ED03D076D45C3398AA7D9A55B30F4F08447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:526E352964BAECC26982FDC10E12E3DE30404B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

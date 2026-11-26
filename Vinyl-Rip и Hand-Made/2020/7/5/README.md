@@ -22,8 +22,7 @@ A4 You(   Читать дальше...   )Жанр: RockПродолжитель
 ```bash
 magnet:?xt=urn:btih:1529B5A8CAACC68161392192D59F1F0D85678103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B Ribbons Of Blue
 ```bash
 magnet:?xt=urn:btih:17032F2F3921B09E6FE8487BD89DEF10377ABBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

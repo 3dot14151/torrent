@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F7F6F5F99F2F12DF159E519DF817F3721BA67956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5F23CFBC8CE1C2BA21A4B3DE8168D2C865D4F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:113602C6CB0EFD92485890BE229CEA60521C5FDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Generation Jungle (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:06140F8418DA33EE46DA4EDB092E2E6CC176CF2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C5C7A1D7CEC078304DD1507CE2D25C649B08D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Trance Desire Volume 48 (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:D68228AB7F0BC33F4AB485ABE269DAB451774532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Melvin Rhyne - The Legend (1992) [FLAC|Lossless]<Hard Bop>
 ```bash
 magnet:?xt=urn:btih:AE08DA7E20E6BF7E89F6D2F2C1F6BEAA93286571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ VA - Trance Pro V.68 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7EE735B38FDE11971780E4372AAB36A5CBC57018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ VA - Клубные Новинки Vol.554 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:624E10D3917E212ED9E7DF5B4E1803D04121A3D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ Steve Lury & Andres Roots - Live In Lerwick (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:3F087972370667B836D72D14A2FE77C441B03A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ Black Clouds - Dreamcation (2014) [MP3|320 кб/с]<Post Rock, Post Metal, Ambie
 ```bash
 magnet:?xt=urn:btih:ECF0535B8686B45593D0FF3ED7C64B2A83471254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ Scapes - One: Unseen: One (2014) [MP3|320 кб/с]<Melodic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:534AFDFB50BEAFEE114687D384AA2BC97F80033C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +392,7 @@ Joey DeFrancesco - Live At The Five Spot (1998) [FLAC|Lossless]<Jazz, Hard Bop, 
 ```bash
 magnet:?xt=urn:btih:C60C4D6387B26CB4C033A6FF9353D09BDCAE2FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ VA - Клубные Новинки Vol.555 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:710E648147F9B505A2AA4CD50B0301AE284193AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAEF7EF82D581FAE7FCC3702329936C272C9199A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ Triosphere - The Heart Of The Matter (2014) [MP3|320 кб/с]<Power/Progressive 
 ```bash
 magnet:?xt=urn:btih:B20787DBDF083367AE59F44A6FC658753853A766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +517,7 @@ The Beauty Of Gemina - Iscariot Blues (2012) [MP3|320 кб/с]<Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:E0D00890CA30490E6A6D3868BEA929FA2663FBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E11D7D3938A4E238EA2DD756160F30A410DE3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +574,7 @@ Melvin Rhyne - Boss Organ (1994) [FLAC|Lossless]<Hard Bop>
 ```bash
 magnet:?xt=urn:btih:19D8EBD99168D0C052D6E61D1F58E1163B039959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ Meschiya Lake and Tom McDermott - Live At Chickie Wah Wah (2012) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:E2F78F6F9B30DA8D1F54A59821F5DBABF0D2B15F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12C51D8FFE761EF59627012B26018016F0464039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +663,7 @@ Wes Smith - Hot Mess (2013) [MP3|320 кб/с]<Breaks>
 ```bash
 magnet:?xt=urn:btih:0AFAA7E3DE5BE7A399BF8C9A9C064EEDD2AADF69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +696,7 @@ Nexus Opera - Tales From WWII (2014) [MP3|320 кб/с]<Power Metal, Progressive 
 ```bash
 magnet:?xt=urn:btih:71A5999CDF790E14E11B01800F9C9918EB6FC91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E898121218090D26F8341930AA8773B8FE99D468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +756,7 @@ Melissa Aldana - Second Cycle (2012) [FLAC|Lossless]<Post-Bop, Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:7228A28863070DE3906EC382E156242A0E965DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -806,8 +781,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C5D801AD724E1143768A2A21C262177622F9E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

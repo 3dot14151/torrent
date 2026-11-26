@@ -19,8 +19,7 @@ Fotoo — Digital Photo Frame — красивая цифровая фотора
 ```bash
 magnet:?xt=urn:btih:AB3DFAA789833A2F7B2278F40705546C175EE738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

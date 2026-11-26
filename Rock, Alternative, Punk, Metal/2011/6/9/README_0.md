@@ -27,8 +27,7 @@ Desert - Star of Delusive Hopes (2011) [FLAC|Lossless]<Melodic Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ MaYaN - Quarterpast (2011) [MP3|192-320 kbps]<Progressive Symphonic Metal,>
 ```bash
 magnet:?xt=urn:btih:582EC2B7F3A13A1D6B2CB3C7271AF17D9F1EBA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Fluxious - Why So Serious (2011) [MP3|320 kbps]<Jazz Metal>
 ```bash
 magnet:?xt=urn:btih:E3F63CA1C89194A8D43A6A7400B0D5F90DD13B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ The Yardbirds - (4 studio albums) (1966-2003) [MP3|192-320 kbps]<blues rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ Farcry - Opitmism (2011) [MP3|320 kbps]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:DABDAD9808610B17B1A85246268F04D3BE299692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ Emphatic - Damage (2011) [MP3|320 kbps]<Alternative Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AAB532F37093B95BCB9EA12340753245DD4A75E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ CD 1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

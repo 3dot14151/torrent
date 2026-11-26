@@ -19,8 +19,7 @@ Nearwood Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:7C6621A28C478914C79C078C08122F287C7018F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nearwood Collector's Edition / Прилесье. Коллекционное из
 ```bash
 magnet:?xt=urn:btih:C27EB766EAB4B65B254A9EDFEF0D948512FFA91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Toki Tori 2+ – сиквел удостоенной многими наград
 ```bash
 magnet:?xt=urn:btih:D345D23FC1BB7F3A2CA70DF988F46F5030A35C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

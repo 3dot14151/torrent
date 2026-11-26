@@ -19,8 +19,7 @@ Hedgehogs / Ёжики (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:21D2611D871A84C2A148726FA5C5036B6837C7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Jewel Adventure / Тайна заколдованной страны (P) 
 ```bash
 magnet:?xt=urn:btih:E8901CCB8282F47C2CC4193C2A4A25233C287CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Downtown Secrets / Таинственное кольцо: детективная
 ```bash
 magnet:?xt=urn:btih:83FFAF92109EA1F4E16D0BE915775E94CA3AB62E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Phantasmat / Фантазмат (L) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:FE13BB12DCE46022CE8BF4F1149BB626229CC94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

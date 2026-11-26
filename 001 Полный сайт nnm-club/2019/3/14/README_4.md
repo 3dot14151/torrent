@@ -22,8 +22,7 @@ Fredrik Kronkvist 3 - In The Raw (2006) Connective Records [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:AD19557A529F846A7797E9221E4C6F8EBCD51B2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Allister - Best Of... 20 Years & Counting (2019) Japan Edition [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:A13B746FB587C3A3239BE35FD1FC1322B54FDB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Vectoraster - программа для создания векторной гр
 ```bash
 magnet:?xt=urn:btih:BD779864DF4DD67BB427AF8D7230E213240A772A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Music Collector позволяет автоматически каталогиз
 ```bash
 magnet:?xt=urn:btih:64B34393DF87958F6309239CD81BE77CF85AC564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Buduemy Dom ("Строим дом") - польский строительный 
 ```bash
 magnet:?xt=urn:btih:638A4499F7456E71DF0E4AAE3008E24E33D0120B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Linda Kvam - Between a Rock and a Hard Place (2019) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:D0304E777C8D68AA414EB642D8A2796CDD3AB0D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Wondershare AllMyTube - полнофункциональное приложен�
 ```bash
 magnet:?xt=urn:btih:4954EAD1ADE963E2327EA4C7D971F10991BCE971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Tony Holiday - Porch Sessions (2019) [FLAC|Lossless|tracks + .cue] <Blues>
 ```bash
 magnet:?xt=urn:btih:8B7EDBA78356CF230BEEEA8B95A3D89DAD2B2357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Kasey Chambers & The Fireside Disciples - Campfire (2018) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:3BD2F50B90654B317110B0C473ACB6B24B6E3E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Dark Romance 8: Winter Lily (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:66AFAC37B698A4FB73BDC19DB6D89704F8A43BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Koch Marshall Trio - Toby Arrives (2018) [FLAC|Lossless|tracks + .cue] <Blues, S
 ```bash
 magnet:?xt=urn:btih:FC1E5535401BECD0E28424004CD4D9475191DCB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:9D44B260D374B6687E1F177D78398B8D107C9D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Labyrinths of the World 7: A Dangerous Game (2018) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:AEA04E5A2C90082DD3840FD301B675AAAC8F4E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Headpins - 3 Albums (1982-1985) [MP3|320 Kbps] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:918E1F376AF734CC865D4FB3EC3265492BF8CCF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ VA - Minos 2019 - 18 Super Hits (2018) [FLAC|Lossless|tracks + .cue] <Pop, Folk,
 ```bash
 magnet:?xt=urn:btih:A7139C89AFCCCCF0036A3A02D481FF3700CE98AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ VA - Ultra Dance 20 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:307AE57F0E589A4CC4F8AB07E7659659410EC394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ oneSafe 2.2.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C7F610515E64A183F86E92DACD939E2FE977CAB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ Chris De Burgh - This Way Up (1994) Unofficial Release [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:6C392958A5622164001F2A629AAC8060D525CAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Vivaldi 2.3.1440.61 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EA3B23EA4D4C8ABD70D25058F861429859DCEB32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:411D8CF574B3A0889AD49D18127E90D075271286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Catherine Britt - Catherine Britt & The Cold, Cold Hearts (2018) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:FEBD3B018A92761C354F1CC52C6E9BD87EA6EC8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ Calendar 366 II v2.6.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:44F424FD877B7AEF3B8A788CFDAE7695155A48EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ LeAnn Rimes - Unchained Melody: The Early Years (1997) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:E2D0C8B896F71EF3B6BD1F0178A8917D488EF2A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Denise McCann - Single & Album (1978, 1979) [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:190C362697A64E67DEEC233AA362E6243AD2A60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Ashley McBryde - Girl Going Nowhere (2018) [FLAC|Lossless|tracks + .cue] <Folk, 
 ```bash
 magnet:?xt=urn:btih:52655093183FD8E5219EBDA3021F7B53BDBD9984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ VA - Magic Moment: Original European Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:210C9FDADFD43BF98E3E578F8E8EF9AB7BA3A317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

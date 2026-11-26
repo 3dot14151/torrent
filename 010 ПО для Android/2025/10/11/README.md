@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:FA3CDC5621B82F05557959C9D2DF726249E56661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fraction Calculator by Mathlab / Калькулятор Дробей v2025.09.55
 ```bash
 magnet:?xt=urn:btih:D7D2A15E11ADEC8A7CE94EA50C375C2E53D8DDAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ventusky: Прогноз погоды v48.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5E0F1D95F8A2BD14329A4AED5B806FC905EA095D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29206918A67DCC119CD14C5A301D05A2BA8D2725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Genius Art: Image AI Generator v1.5.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A9991B0B14C67C5BD0C7D63674734190D2CDB56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ PhotoDirector v20.6.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E42037D6D2AC685169DDC351EB41BC8E9F65D3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ PicWish — фоторедактор с искусственным (   Чита
 ```bash
 magnet:?xt=urn:btih:61B493DD8119A0F1739121EF2DB4BB395AB6ABE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Photomath v8.46.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:68727B9CF21AE3CB8B3EEA67749101D13EAF8719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Smart AudioBook Player Pro v11.5.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B4E73096502C2E4C0F07919636FE047CAC20C681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Smart AudioBook Player Pro v11.5.4 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CBD020C2B40CBC561A75F681CFE2D3464B97DB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Lighting calculations / Расчеты освещения v6.1.9 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:0D2AAAA41B175A39EBEB94F2944095D7E5E90D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Mi Home - это приложение для управления умным д�
 ```bash
 magnet:?xt=urn:btih:C571EEF12C12E6CD76572798EE221768967BABEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58A5A83A3278E30EDA956D9AA90484A59A0A7BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Crysis: Remastered (2021) [Ru/Multi] (3.0.0) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:242F5A5E1610B3AF84F36C6358A0727B83E821A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crysis 3 Remastered (2022) [Ru/En] (Build 9460220) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:6568E3C928DCA1E4A340DB05C0C0740AAA3C323B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Quake - это первый по-настоящему трехмерный шу�
 ```bash
 magnet:?xt=urn:btih:0A2BCFC0C9987740BA8CAA65091916FB84B028CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Crysis 2 Remastered (2022) [Ru/En] (Build 9461303) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:3682A9EAFEB793AE224282B673B7C34797626BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Crysis: Warhead - продолжение приключенческого шут
 ```bash
 magnet:?xt=urn:btih:5CB5374964F46B39086ABA513D3FE18454955183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.19.0/dlc) Repack FitGirl [Ultimat
 ```bash
 magnet:?xt=urn:btih:81D6D5A4CF3891D5B4502B0AA11641875774F125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EE6CC631B53A20B7A27F55494EAFBA5B367A590F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SOS OPS! – отправьтесь навстречу забавной кооп
 ```bash
 magnet:?xt=urn:btih:89CA4C5E6D6C386866FF12A7E16FF49E9728DB66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.0.1/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5050AD0683DEF1E59275A44F56466CB399436AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB1271941610889862DCB5E1F66171885C85E82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NaissanceE - это приключенческая головоломка от �
 ```bash
 magnet:?xt=urn:btih:31A2AE5E013B99F0D00BC5CC320A56CB6626360A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Windows XP SP3 Seven DVD 2014.2 by OniS c обновлениями по 14.02.20
 ```bash
 magnet:?xt=urn:btih:CD1DD4C1613A873241EF57340B6600EF7EE3C39B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Outpost Security Suite PRO позволяет полностью обезопа�
 ```bash
 magnet:?xt=urn:btih:3D1F7240C58AF83E12FF975ED69DEB41E3CD562E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ NaissanceE - это приключенческая головоломка от �
 ```bash
 magnet:?xt=urn:btih:048DA6058BF032D04DA318DADA11C6CAB2508A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:863D005579722A113BEF882B7F2FD3A7464E7780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Microsoft Visual Studio — линейка продуктов компании �
 ```bash
 magnet:?xt=urn:btih:29C2679EBD7A7C6973D5B6336B90720BA5D89667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Thief (2014) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:7D268BE6DF4DBE0021B81E51F4AAB7B509424587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Advanced Training | Курс M20410C - Основы Windows Server 2012 R2 (2013
 ```bash
 magnet:?xt=urn:btih:C5E4D48AA2F69E9DE7C47877085E53160B4542D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74EFBD034B7FCFF470B9B8D076074FE9C3F3874F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru/En] (1.03) Repack R.G. Меха
 ```bash
 magnet:?xt=urn:btih:79DDD5F139B157155C029A31CE8BC6461F841AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:43D70151E140D745C32607AFEBF62C0227E180AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

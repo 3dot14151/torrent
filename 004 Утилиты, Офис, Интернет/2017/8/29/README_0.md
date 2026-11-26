@@ -19,8 +19,7 @@ Free Studio Manager - это единый пакет бесплатных про
 ```bash
 magnet:?xt=urn:btih:5383CE5E1D1EE7DB40129D936EFE22E8AC6AA320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

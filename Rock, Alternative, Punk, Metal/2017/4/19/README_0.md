@@ -22,8 +22,7 @@ Kill The Romance - Logical Killing Project (2005) EP [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:C4483AC016EA5AFC9661A5CF973B0A1C787E2046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Carmine Appice - Carmine Appice's Guitar Heroes (2010) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:868812B1A3DFA0B8AE93B5119097DDA4425C5DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Evocatus - Mortem in Deos (2017) [MP3|320 Kbps] <MDM, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:BE3484E1294BE7561531F2D7CEB7E7A8E681B7A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Vektor - Terminal Redux (2016) [MP3|320 Kbps] <Thrash, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:AE984E0BB792078CBF2D69512AEED5183B088B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Kelly Simonz's Blind Faith - Overture Of Destruction (2017) Japanese edition [FL
 ```bash
 magnet:?xt=urn:btih:CD4017C64127BB147312E68FE5CCE91E4E768F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dio - Strange Highways (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:54D0A2CCC129292FC040FCA4A4CF1401D44E74BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Iron Fire - Among the Dead (2016) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:FEF55CD58CF61CA8111892FF19F7D8675F37C2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

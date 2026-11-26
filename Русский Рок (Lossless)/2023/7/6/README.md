@@ -22,8 +22,7 @@ Saphath - Ascension Of The Dark Prophet (2022) [FLAC|Lossless|image + .cue] <Dea
 ```bash
 magnet:?xt=urn:btih:70317F9F21FBD47878ADC4A5224BED3ACF58C948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

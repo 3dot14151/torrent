@@ -28,8 +28,7 @@ Anger At Dusk - Anger At Dusk (2014) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:DA4A596459F7F968B20306EB74B848789EB1B433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Renegade - Thunder Knows No Mercy (2014) [MP3|320 кб/с]<Heavy Metal / Power M
 ```bash
 magnet:?xt=urn:btih:C5A2440FB8217EE59A0EC35C3A8EB639B7B41A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ VA - Daily Mail Legends (2003) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:CD4E87AB30153D4FAFF28043D7E1795964025BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Times Of Grace - The Hymn Of A Broken Man (2011) Digipack Edition [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:C3CE9F228870A0C79EF979101C07E8827C2739F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Angra - Secret Garden (2015) [MP3|320 кб/с]<Power / Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:AC91514589DD2DBD2C4215542996A2C56D356795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ VA - Listen To Me - Tribute to Buddy Holly (2011) [FLAC|Lossless]<Rock'n'Roll, B
 ```bash
 magnet:?xt=urn:btih:547710787695BCCA42790E721DADDA95BB36C2DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60C6D7056443796DF8CB908DA375E521EBF49424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Pink Floyd Voice & Guitar David Gilmour - Live In Gdansk (2008) 2 CD  [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:CE438EADDFFD445FBE1DB7F354DDBB0DE67C905F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ Metallica - Lords Of Summer (2014) Limited Edition [MP3|320 кб/с]<Thrash Meta
 ```bash
 magnet:?xt=urn:btih:7CB6C27FA4AC5E062895F3BD1ADA7FD86B77036E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

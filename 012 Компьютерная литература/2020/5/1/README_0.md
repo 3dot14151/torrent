@@ -21,8 +21,7 @@ Gus Cicala | The Project Managers Guide to Microsoft Project 2019 / Руково
 ```bash
 magnet:?xt=urn:btih:41367A4468709340DE9E65A3E51BF98637E36094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D319A38195B3AA34C5B1624559A1ED8318F41C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Orin Thomas | Windows Server 2019 Inside Out / Windows Server 2019 изнутр�
 ```bash
 magnet:?xt=urn:btih:2E24A488796D287E0EB6AB84D2294F1288593281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8953DE63B9AAC6466F4B0524EFE5BD21D99FB280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

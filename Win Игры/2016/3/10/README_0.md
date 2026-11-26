@@ -19,8 +19,7 @@ Midnight Calling: Anabel / Полуночный зов: Анабель (2015) [R
 ```bash
 magnet:?xt=urn:btih:0F535A4C08213759C8FF2242098213BF13E45DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Feelings Adrift (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C49EF73DD5268D9FAF6CA52C8298CCD4DB5487D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhammer 40,000: Armageddon (2014) [Ru/Multi] (1.10/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:F9B6E0C41914062822FBD1B5FB9A98B3BE7FD9EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

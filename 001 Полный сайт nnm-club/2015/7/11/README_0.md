@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7A2600C4CD4D9FF614E458A19B4694FF3DBFA2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6147662D64120E79E7902D6D43F41A1640EAD318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ The Hicksville Bombers - Voodoo Doll (2015) [MP3|320 кб/с]<Rockabilly, Rock'n
 ```bash
 magnet:?xt=urn:btih:98311ED22979C2C1D508E2B3A1405586BB04928C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Thunderbird — это бесплатная почтовая программа,
 ```bash
 magnet:?xt=urn:btih:B4EF0ACA2826AF94E6F1EAC7ADEB7050AAD47AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Aghiatrias - Ethos (2006) [FLAC|Lossless]<Dark Ambient, Industrial>
 ```bash
 magnet:?xt=urn:btih:A83B001F7E5755C633A80539CB436BF835634FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ VA - Summer Rhythm Ibiza Club Life (2015) [MP3|320 кб/с]<House, Progressive H
 ```bash
 magnet:?xt=urn:btih:18F022E3E87A1541F6F7D1B83408D1575490227D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Dj Feel - TOP 30 OF June (2015) [MP3|320 kbps]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:FA42ACABC49DF31F0247024E422014243C6E3DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05A09A9B80F798AB0F93340A40AFF1C2FAEE4F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ John Lee Hooker - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:2E617BAADA76EE893BBF3C8478BE3D51F2FDCBD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:350719A3F499DD8768E7048081EAC2B006B0BCCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:8B18F58DAB4EDE37AE8CB9B623051B3FC8A9817F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ CocCoc Browser  - браузер от вьетнамской компании C�
 ```bash
 magnet:?xt=urn:btih:198969D773976BB2A7DF36D8E0FDB254A595EC03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-L
 ```bash
 magnet:?xt=urn:btih:14AA2CECFA94FB8725DC0737A497C60B241F094D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5F3BA1E1728CEC5B42B54735D6CB168692DFEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1870A49FEC8D29FCA70EE63607C4A854DEB2819D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ VA - A State Of Trance Radio Top 20 - July (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:0250E6E8FC1CB9DA49D634F2D4C0E18F512A0B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ Dara Sedaka - I'm Your Girl Friend (1982)/2005/ [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:BABE4B41DDBF5B94526B479577D0099D30135DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ Thunderbird — это бесплатная почтовая программа,
 ```bash
 magnet:?xt=urn:btih:D4AAB7BC36DB2AA0B34991EA80A27195DB1ADCD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ VA - The Dark Room Lounge (Sexy and Smooth Easy Listening Deluxe Moments) (2015)
 ```bash
 magnet:?xt=urn:btih:B180AF6D8C03A4D0C286FB6997D12385039B8DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ VA - Burlesque (48 Best Of Tease & Drama) (2015) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:7A258DBCD869E8759CBF698CA0BC8D6049A9370C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F02DA5DDA875D2103AE1010975EEF64B4D1FB025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:6AB3FB23304920347412B6889D9C60F063A234B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ Beethoven - Symphony No.5 in C minor
 ```bash
 magnet:?xt=urn:btih:C26E36AA51813B5BFD22B5C7C876D81C03E43FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86E52F3CC03CEC02D4A351A4A4F85CA75F3B028C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ Charenee Wade - Offering: The Music of Gil Scott-Heron & Brian Jackson (2015) [F
 ```bash
 magnet:?xt=urn:btih:E4E9AC9271022442DE08C2B6536B07ADF0E92AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

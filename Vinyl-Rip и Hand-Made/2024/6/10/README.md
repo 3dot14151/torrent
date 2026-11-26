@@ -22,8 +22,7 @@ A4 Throw Them In The Van(   Читать дальше...   )Жанр: Technical 
 ```bash
 magnet:?xt=urn:btih:5E23309185F361126F43CB3DA8C859B4B990F7D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 From Womb To Waste(   Читать дальше...   )Жанр: Brutal Death 
 ```bash
 magnet:?xt=urn:btih:5A05C117D3C3086A4E3F4E531719CFF8481F4461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

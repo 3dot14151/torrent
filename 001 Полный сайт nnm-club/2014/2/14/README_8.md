@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Black Hole Radio: January 2014 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:00E3D15CFECB019D76E53EDD53F49AB92C909DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Willem B - Forte EP (2013) [MP3|320 кб/с]<Dark, Industrial, Techno, Electroni
 ```bash
 magnet:?xt=urn:btih:2E8F94DD13E6C234A7060B50FAA07C0491FB4085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ VA - Global Trance Volume Eight (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:FB0483D94BDD6C5FACF63BC35CBF3D53BE61D80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ VA - Private Lounge Club 5 (2013) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:3F8EAF74EAD301ADC5AECFE3FB969F325D7F581E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ John Heckle - Desolate Figures (2013) [FLAC|Lossless]<Techno>
 ```bash
 magnet:?xt=urn:btih:9D96043871DB5CA179299BA93B5D73149B17887F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ VA - Gnosis EP (2013) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:264D3AA04D54F30691DBFE61B21333EB73AABB45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ VA - Future Trance Volume Eight (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:E945F2EFBA36099BAE62C6089BF2997A52D95B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75B77AF19810FCB675DE4D14DEADDB757282D42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Mono.xID - Urban Warfare EP (2014) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:3320C53A2C97D044C0D68AE94D0A48E0A5C30EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +343,7 @@ Desansis - Slow Feed (2004) Edition /2005, Soyuz Music/ [FLAC|Lossless]<House, D
 ```bash
 magnet:?xt=urn:btih:844CCBB4A024DC7CD21AA16F9D6A61B0CBA1CFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ Anandmurti Gurumaa - Nataraja (2013) [FLAC|Lossless]<Folk, Ethnic, Meditative, M
 ```bash
 magnet:?xt=urn:btih:E9B42BB287331B414BBC3373CFFED86594E7B8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ XXII Зимние Олимпийские игры. Лыжное двоеборь
 ```bash
 magnet:?xt=urn:btih:362825CFD4A07DA086A4559063DFA59FF99B51E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8B3A19B8408621CA0E4AAF297D303ABA7F3441F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35B2892F2BA2881243FA672BCCA72B077D370167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87E7E200EFE0F23D3DCD3A1B2660AFD815A4DB9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0EF3A8C03E76514BFE92B81592FA40C5B9BFFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ Firefox отличается стабильностью и безопаснос�
 ```bash
 magnet:?xt=urn:btih:48FE5BF1229EFB857D9A3A61613A13A42C4A2AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA2515558D4F0B54B4880F728021A2BD1D19E0CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:25BFA87B540E89A0BC178268CA6D8BEE52E61836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C10ED67B9FCB76BB81EB824E1A77EA030EFF7562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:323B5343F178C99DEA7567CA7C80A3D8A46346A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DAA2637D487836F02DE07144DD326D39B04FFAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ Jacintha - Jacintha is Her Name (2003) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:4093397FA11D151C060AA7D33BC85C4248011ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ Daley - Days & Nights (2014) [AAC|256 кб/с|WEB-DL]<R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:D4E8C062BAB97D6A5BFD16A1B3FFA32197788BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ Orange Sector - Vorwarts Nach Weit (2013) [FLAC|Lossless]<Industrial, EBM>
 ```bash
 magnet:?xt=urn:btih:F55C0A1F37426A13B9F9C561C03563E77DE08246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

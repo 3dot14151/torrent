@@ -18,8 +18,7 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:F21136189E908E3A16252F75490A6DC309B25BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Viber, вне зависимости от того каким устройств
 ```bash
 magnet:?xt=urn:btih:909F6B038BDA58461B766A70A477F9A98AAA7B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A7253B702B80367598848C9A7DACAE9894628A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ FastCopy - инструмент для быстрого копирования/�
 ```bash
 magnet:?xt=urn:btih:3FEA29488DCF2E85C3BE158B8F8B6F4105B116A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ VideoSolo Video Converter Ultimate позволяет конвертироват
 ```bash
 magnet:?xt=urn:btih:131AA029B15B53BB9D7437095F35A00630169092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3017F2924EFF5377739E5F03CE8C9EE2C979371F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Black & White (2001) [Ru] [macOS WineSkin]
 ```bash
 magnet:?xt=urn:btih:3A04D25DA793EB7694D453B451D5F1E137E1C6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBBFA98652C72EF84DD1ED6D5FE8ABB0C1E41064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ DxO PhotoLab Elite 5.5.0 build 4770 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:23A47D251827B777E1DCE2B0CFEE39EC5BCDC9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:251E6BB3C9FB01166C583A4B350340E66D822EE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Aura (Аура леса) 2.8.10k.216 RePack (& Portable) by elchupacabra + MP3 �
 ```bash
 magnet:?xt=urn:btih:455CFFEA9C465158886B6ABB2B3E5E3AB2998200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ AR GPS Compass Map 3D Pro - 3D-компас дополненной реальн�
 ```bash
 magnet:?xt=urn:btih:67F9C68C84320CCEACC607F74F9F7311C19DFDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ HolyJS 2022 Spring — большая конференция для JS-разр�
 ```bash
 magnet:?xt=urn:btih:65DBB5B279A9E1192699D0BA22DE64B6DC9DD387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EBD942371484B58ECC762C04C908D8E632389B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53AF3AD86191E0FF974CD605705D0FB2CA5F6485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2258A8C991ADBFF573382F32672E87BA97980F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ DxO PureRAW 2.2.0 build 1 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:2FFFD33687866B29C9AED568C2360A35BBC5E94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ Cartoon Art Batch - очередная программа, которая поз
 ```bash
 magnet:?xt=urn:btih:5746AB8CEA242BCFCE232A47C4FDC88D3B56FF51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ In Nightmare (2022) [PS4] [USA] 5.05 [HEN] [License / 1.05] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FC230C6735C14DF7D5F5AD8A68E8B4B8E55C47E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:948E86D29B7CC51136C83DCC5C8D81C55735C1B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59E3CE8DA6FFEB0EC7FF973D207941845C956006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E62C90299468F4E6DBE61845AB3E0D16BC84740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ JPoint 2022 — международная Java-конференция. Спик
 ```bash
 magnet:?xt=urn:btih:33D086436B4F2086D410CAE2242D616CFBA81411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD64F01D28CEAB10D74E1DE2EDFDBAB56F855C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ Waves Complete V14 2022.09.12 VST, VST3, AAX, STANDALONE (x64) RePack by R2R [En
 ```bash
 magnet:?xt=urn:btih:F74960B51BBB18C3CDF5CA6FBB143F0C566E21EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +663,7 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 ```bash
 magnet:?xt=urn:btih:9BD70AB861CBD75FF45AD3188CDFAD3DE17E69F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

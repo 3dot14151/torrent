@@ -22,8 +22,7 @@ Sylosis — британская метал-группа из Рединга. Г
 ```bash
 magnet:?xt=urn:btih:DCF3A624E8061F1237F9377BCDE3841CA01A4789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

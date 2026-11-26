@@ -22,8 +22,7 @@ The Crown - Crown Of Thorns (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:F7418F62C7804444D27EB9D815E5B44EB3A31996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stage of Reality - Digital God (2024) [MP3|320 Kbps] <Melodic Progressive Metal,
 ```bash
 magnet:?xt=urn:btih:A046D4D5E058DF47B17C941DDB418E0AC59CC735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

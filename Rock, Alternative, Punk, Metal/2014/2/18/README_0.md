@@ -28,8 +28,7 @@ Javelin - Fragments Of The Inner Shadow (2013) [MP3|320 кб/с]<Progressive Pow
 ```bash
 magnet:?xt=urn:btih:CF5A9293D1B08FE23EBE3322BE7CC98947C64D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Woland - Hyperion (2014) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:C2764901BED03434460B30120E3167FBE9578AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Pandemonium - Whispers (2008) [FLAC|Lossless]<Melodic Death, Progressive Death>
 ```bash
 magnet:?xt=urn:btih:0B9EA7177E55E661E709D0190DF5B628243EABF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Flotsam and Jetsam - No Place For Disgrace (2014) Rerecorded Version [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:E58D95D151297147B2D8C9F8FB6F87FAAB840F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Esthetic Education - Face Reading (2004) /2006, Ukranian Records/ [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:A4365FF3D50D9275015678E5A42B927C3642F3F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Snakeskyn Whiskey - Against The World (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BED2302C7D7429068B467FBD1C73DA47067CCA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Issues - Issues (2014) [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:888B96A80E0BF687051562749AC3639712E8C1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ Eldest 11 - Under a Black Flag (2014) [FLAC|Lossless|WEB-DL]<Alt. Metal | Modern
 ```bash
 magnet:?xt=urn:btih:08A83A613154513DF0078F15AD956046A3E62ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Anathema - Judgement (1999) /2006, Music For Nations/ [FLAC|Lossless]<Progressiv
 ```bash
 magnet:?xt=urn:btih:AB7D89C2313B750C1BB50F24B9A69C52F0862CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Blackthorne - Afterlife (1993) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3EE6B1AF517BAFFD88EDB4BFAB6655F9F6ACA5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ Andrea Schroeder - Where The Wild Oceans End (2014) [FLAC|Lossless]<Alternative 
 ```bash
 magnet:?xt=urn:btih:277C4CD05F9157B1CD73A520A9D4C48D52DFC8B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +381,7 @@ David Lee Roth - Eat 'Em And Smile (1986) Japan Edition [FLAC|Lossless]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:4453096CF4E95102FBAE76DB21B3C90BD7038800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +415,7 @@ VA - Бег in the USSR (Песни Владимира Сапунова) (2014) 
 ```bash
 magnet:?xt=urn:btih:E0532B7A892694C897338A2B0A2B3675455DB6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +449,7 @@ The Police - Synchronicity (1983) Platinum SHM-CD /2013, Universal Music/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:A1E3F69537A26A8F03D8ADAD05B1AF64817A4D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2012195C6FD9AD9DA9243C9F5F86DF894FF0DB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

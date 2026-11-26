@@ -19,8 +19,7 @@ NeuroNation - brain training - игра с помощью которой вы с
 ```bash
 magnet:?xt=urn:btih:90F7435B978661FAA2FDC5B0FCE997A180B55C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

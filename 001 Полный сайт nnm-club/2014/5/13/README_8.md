@@ -26,8 +26,7 @@ Divine Spark - Anima Mundi (2011) [MP3|160 кб/с]<Crust, Punk>
 ```bash
 magnet:?xt=urn:btih:F7634050D5C088C96C313620B82906BC01604B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Golliwog - More Than Meets D.I.Y. (2006) [MP3|320 кб/с]<Melodic Hardcore, Pun
 ```bash
 magnet:?xt=urn:btih:FEEE7C640D808189F3137BACA0C502FD1B0337BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Mask The Wretch - Age Of Deception (2013) [MP3|320 кб/с]<Metalcore, Hardcore>
 ```bash
 magnet:?xt=urn:btih:96AE29E4AAC23D9C8BD3EFA51AD65093EF0B045E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B710247EDD2EE361AF3E468CDB0793513852F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Reflections - Exi(s)t (2013) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:64B82D4EFC60A14A9EBFF7682D168C58B9C9474E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Threefold - Troubadour (2011) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:7AC137322D0DC9D3C91C82C76DEDF587FFB55D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86C6DBA5A05EFD5EA627E4E2980A8283D81B9EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Erra - Augment (2013) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:D4323D8708642C3B79B88EB066FB939AE9BE0750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D347D2E5D90F0BDCC061014E42DBE668980147B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ Normandie - Normandie (2014) EP [MP3|320 кб/с]<Metalcore, Post-Hardcore, Elec
 ```bash
 magnet:?xt=urn:btih:9B0D74520DFF19E192AF7E64FDCF68542BA04C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Goodbye Titan - Real Life Awaits Us (2012) [MP3|320 кб/с]<Post Rock, Instrume
 ```bash
 magnet:?xt=urn:btih:F366CBAB0A03DB25E718E6027BD89B3815B8DED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:207FFEB1074427C8F851329992D10689EF0F5A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30F20C246C47736BF5D8A1BB313B42D3CD39372C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ Fit For A King - Descendants (2013) Re-Recorded [MP3|320 кб/с]<Post-Hardcore,
 ```bash
 magnet:?xt=urn:btih:0DFE5ECB6637D4E5F638710CCFC9106C3B94A8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ I Killed the Prom Queen - Beloved (Deluxe Edition) (2014) [MP3|320 кб/с]<Meta
 ```bash
 magnet:?xt=urn:btih:7167071ECB2BDA5BBCFF01CCC7E11FF9AEBC4E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ Bigasoft Audio Converter - простая в использовании прог
 ```bash
 magnet:?xt=urn:btih:6B3D4D4E76F477D5DFC5DAA284FCEF3A13E34999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ Hour Of Penance - Regicide (2014) Deluxe Edition [MP3|320 кб/с]<Technical Dea
 ```bash
 magnet:?xt=urn:btih:ECC3878A5DD829E9999A6A3CA0484A0F5730AE6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ If I Were You - End Of An Era (2013) [MP3|320 кб/с]<Metalcore, Post-Hardcore,
 ```bash
 magnet:?xt=urn:btih:24E9B57C278C0696A32C5D0A453614B5513D669E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ Bigasoft Total Video Converter - мощный видеоконвертер, по
 ```bash
 magnet:?xt=urn:btih:C84BB5544DCC7A031B148A19F88AE98693139210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ VA - Ibiza Calling Chill & Beach House 2014 (2014) [MP3|320 кб/с]<Electronic,
 ```bash
 magnet:?xt=urn:btih:9DF866436CF5F9AA7BAC1C836795CBD0D153B154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ Decembre Noir - A Discouraged Believer (2014) [MP3|320 кб/с]<Melodic/Doom/Dea
 ```bash
 magnet:?xt=urn:btih:2416D94B5876B75650BDA0287B97BC57CFBF491A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F169E71EBE0D938BB27A5AAE3BD67F9094C806D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +718,7 @@ Upon A Burning Body - Red. White. Green. (2012) [MP3|320 кб/с]<Metalcore, Dea
 ```bash
 magnet:?xt=urn:btih:1B8BF5FF404BA027935D1E324F36D57C00EE1F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +752,7 @@ VA - Buddis Lounge Bar (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:5D301A7AA17DE0E42447B644826939AA11701B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +777,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:537E81E2A987F41CF89F1AA831D829E3535918E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

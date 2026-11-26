@@ -19,8 +19,7 @@ Classic Guide to the Java Programming Language--Fully Updated through Java 25. C
 ```bash
 magnet:?xt=urn:btih:9241441B0922C5983B070C368AA68DD2A0D8A417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC529646D2E8DEDB43E122704D54EE9CC8830B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

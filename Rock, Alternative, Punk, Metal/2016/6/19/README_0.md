@@ -22,8 +22,7 @@ Michael Lee Firkins - Cactus Cruz (1996) [FLAC|Lossless|tracks] <Instrumental Ro
 ```bash
 magnet:?xt=urn:btih:806B1859B7C574908DC0614FD047B9D99C7E7791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eric Johnson - Europe Live (2014) Live [FLAC|Lossless|tracks] <Rock, Blues, Inst
 ```bash
 magnet:?xt=urn:btih:ABE8FAB37FC8792CB93D966ADD63E2A80DA6F026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF80F97A30AD8D7A3D15D883A050FF10591CA182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Yodelice - Like a million dreams (2014) [FLAC|Lossless|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:3ACA10B3700923B038F44D31191AB4FCB9D76A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Electric Light Orchestra - Balance of Power (1986) Remastered, 2007, Epic / Lega
 ```bash
 magnet:?xt=urn:btih:73972334FBB479A204AAEA77A966465993A4D909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Girls Girls Girls! 75 Songs About Girls Girls Girls! (2015) 3CD [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:DB9349F55606921BD2769219A5DF87A7A9C6EA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B91D78FD8B88CBED67E193BE8FF8CDA7713E5208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

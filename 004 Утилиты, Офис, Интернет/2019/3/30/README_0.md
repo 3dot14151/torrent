@@ -19,8 +19,7 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:D0E69A149A496605D0C65AA0B8340637182B6AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Advanced System Font Changer 1.2.0.36 Portable [En]
 ```bash
 magnet:?xt=urn:btih:2D733F89A1978E768406BACA0E5A717FAB485DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

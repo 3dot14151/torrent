@@ -19,8 +19,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:AE38B79CF0E2AA204E6BC35ABB5A726799109BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bus Flipper: Renovator Simulator ставит игрока на место ре�
 ```bash
 magnet:?xt=urn:btih:C325FF1C4CF20D0A2B943304FC6592D0DEB1D560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2463D61164F019290422A416B205D6F2CA15366C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hellcard выполнен в той же стилистике, что и ори�
 ```bash
 magnet:?xt=urn:btih:2A04DE7E1A5081EBA17AC0BC2D740827108291DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5C115240DB5CCD853554E0F16BFCBAAC46EFB20A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:15CA5C1CBD5B5DA8E2FA619E4F9C9E1E9E0976D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8E0DFF8557B8A68F1F3CF6FDF37907066DC5FF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

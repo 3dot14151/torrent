@@ -18,8 +18,7 @@ WPI - простая к пользованию программа для авт�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Playlist Generator - автоматический (   Читать дальше
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Adobe Dreamweaver CS6 - новая версия программы для соз
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Half-Life 2 / FakeFactory Cinematic Mod Ultimate Full [Ru] (RePack/Mod/11.37) 20
 ```bash
 magnet:?xt=urn:btih:4B3AB8E6673684052804C67E7BC912FE4737062A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

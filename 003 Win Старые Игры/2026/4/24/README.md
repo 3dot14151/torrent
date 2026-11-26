@@ -19,8 +19,7 @@ Postal 2 (2003) [Ru] (1337) License
 ```bash
 magnet:?xt=urn:btih:071D78FDF4D3A7663703708DCC7A6EE93DC0BAD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

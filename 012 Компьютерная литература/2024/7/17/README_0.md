@@ -20,8 +20,7 @@ Beginning with the basics, this book provides an outline of the steps necessary 
 ```bash
 magnet:?xt=urn:btih:2EE054CAC89C4B16AF6D69A87BCCDF65D9A40ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

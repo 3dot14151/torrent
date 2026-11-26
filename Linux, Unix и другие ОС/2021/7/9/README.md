@@ -19,8 +19,7 @@ Linux Mint 20.2 Uma (XFCE, Mate, Cinnamon) [64bit] 4xDVD
 ```bash
 magnet:?xt=urn:btih:D7EACEE02232A9F2E3C5A7FAC3CFB99254FD0839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Trasamire Campaigns - это напоминающая настольную �
 ```bash
 magnet:?xt=urn:btih:E19C2F44E2C4CBD6526949CBBD28E53144882B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse (2023) [Multi] (Build 1054
 ```bash
 magnet:?xt=urn:btih:7FAFEF75F8DE42785FCFB24E1B4D1275170C28B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ House Flipper – увлекательный и интересный в своё
 ```bash
 magnet:?xt=urn:btih:A999EA1CA864A3C52F095301A844294E3342AC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

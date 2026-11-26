@@ -20,8 +20,7 @@ EnhanceMySe7en (   Читать дальше...   )Язык интерфейс�
 ```bash
 magnet:?xt=urn:btih:E85306087D225AC46F05B4FFE19E0E1108636A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MonitorInfoView 1.22 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E524F99254C9284AC924626C687CD5C197D1FDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Removable Access Tool - легкая программа для управлен�
 ```bash
 magnet:?xt=urn:btih:E301536BF7A4CB9D1736B50E8B1446E8CA69D0B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

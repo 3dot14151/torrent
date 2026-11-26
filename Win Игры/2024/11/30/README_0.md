@@ -19,8 +19,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0 696260/dlc) Repack Let'sРlay [De
 ```bash
 magnet:?xt=urn:btih:CEEA9FED7274E408DCE515A0E4A026C069A84304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 ```bash
 magnet:?xt=urn:btih:AB0DA4268B6FB1C0C5A552E4E7840C955CE1262A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.3-CL364034/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:651AE0FB2F6E8B008D9095B1B7809FCEEB613E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4d/dlc) Repack Let'
 ```bash
 magnet:?xt=urn:btih:34E9C5433E4DD4276607894BD8EF5D6DDB6D665A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sky Oceans: Wings for Hire переосмысливает классическу
 ```bash
 magnet:?xt=urn:btih:CE140D0F70E7612B6639D451DCD59F411B62CE00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ A pet shop after dark скрещивает два жанра. Это гибри�
 ```bash
 magnet:?xt=urn:btih:CC414B1BE4BA7DF6FCB915F15D7679AAFC2B8540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Wayfinder (2023) [Multi] (1.0/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2B6FD7B04EE1E5E20DC85FA73C777CC78D97BE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Cюрреалистическая бизнес-интерактивная вид
 ```bash
 magnet:?xt=urn:btih:7557047143A2AD785C79044B0D599C5D7929AEA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:08FC845AF7E430ED636C64798C803FE04B52453C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED2AB3B67DB79B37DA1DC0244D951FF386FE6B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Long Drive – приключенческий гоночный симуля�
 ```bash
 magnet:?xt=urn:btih:ECF052264A682EBFC0D3F3ED2F4BA9702D663EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ igaBash - приключенческая игра про огромных мон
 ```bash
 magnet:?xt=urn:btih:C261EB788EB8325566CFB2B6B073EF99C5ECCD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Puppet House - это приключенческая хоррор-игра с э
 ```bash
 magnet:?xt=urn:btih:11F4020E261A78E8F6CDA5DF8B8968F05B58E043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Puppet House - это приключенческая хоррор-игра с э
 ```bash
 magnet:?xt=urn:btih:3DFBA8A0DED907964918AB32B12E18DAEC9B5E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Orange Season (2017) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B956BA64D3734D4E3696AC188565F461D8AA62DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

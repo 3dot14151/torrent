@@ -22,8 +22,7 @@ Antipeewee - Under The Banner Of The Old Gods (2026) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4B843A5DD6E17BC9D0FD9984F26C166ABF4E6372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hollywood Vampires - At Montreux Jazz Festival (2026) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B21B558568AB634FE9F02A52CB3DD38F2DC8A7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Duane Hoover - Sharade Parade (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:E369960A93E86626363080DCA73498C9AA82AE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ford John - Between A Rock And A Hard Place (2026) [FLAC 24/44.1|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:78AE3BF5DEDCBD78AC3042B7CA7D609454AAC055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

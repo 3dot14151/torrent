@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5B42223412DC3B121F461FD29E0A8AEBF1ACF7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Let Me Go (3:52)(   Читать дальше...   )Производство
 ```bash
 magnet:?xt=urn:btih:3750246EDB63CFBE915CF22E4B28727E61A0E093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

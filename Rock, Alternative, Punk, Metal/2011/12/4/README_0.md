@@ -28,8 +28,7 @@ Device - 22B3 (1986) [MP3|320 kbps]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:BBF5EA345AF86B973DC51AB18E30C163D66A2451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Ancient Bards - Soulless Child (2011) [FLAC|Lossless]<Symphonic Power Metal, Fem
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

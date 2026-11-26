@@ -28,8 +28,7 @@ B5. Doubleback [3:57]Жанр: Blues Rock, Boogie RockФормат: Vinyl, LP, A
 ```bash
 magnet:?xt=urn:btih:26858EA025C427D5325248F236BAB1210ED5EB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B4. Let Me Kiss You [5:03](   Читать дальше...   )Жанр: Pop Rock
 ```bash
 magnet:?xt=urn:btih:B6E3CDA4ABE85CE9DC28513FC539326A5A5087A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

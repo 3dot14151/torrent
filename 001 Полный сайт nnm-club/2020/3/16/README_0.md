@@ -18,8 +18,7 @@ AnyMP4 Screen Recorder for Mac - приложение создано, прежд
 ```bash
 magnet:?xt=urn:btih:E48E37CA2FEDE197B6F51F85B66E19EB55BBD3BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B036DB2A6290C0518A8567E3A5584EBE6136948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Michael Afanasyev - Балканский рубеж (Оригинальный с
 ```bash
 magnet:?xt=urn:btih:CA263DEFE40A10B02424BE584213CDD35E06BE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA62A2EEF9A99CE1043C3ECA172C2A62562048DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Mugen no Ryvius | Infinite Ryvius | Бесконечное путешестви�
 ```bash
 magnet:?xt=urn:btih:A740EE59358608B39C54D49CE5831B8F62F78475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Eilera - Face Your Demons / Waves (2016-2020) [MP3|320 Kbps] <Folk & Viking Meta
 ```bash
 magnet:?xt=urn:btih:B0A032200360F22F9B7305734B66B5012DAC2B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ eM Client - отличный почтовый клиент с возможнос
 ```bash
 magnet:?xt=urn:btih:3321BFC94237C32CAA2B402436950AD26237C481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ SimpleRockets 2 – трехмерный космический симулято
 ```bash
 magnet:?xt=urn:btih:F54B9AB4FED2852743F15BF3CFBC59984423F605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ DraStic DS Emulator – быстрый эмулятор на андроид, с 
 ```bash
 magnet:?xt=urn:btih:578C0168A46E140B4238F6775FC52D23F62F54D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Michael Afanasyev - Балканский рубеж (Оригинальный с
 ```bash
 magnet:?xt=urn:btih:E64E1585F33A1CB8C9CD00A6C918881569EF3423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ aCurrency Pro (exchange rate) - Уникальный конвертер валю
 ```bash
 magnet:?xt=urn:btih:8905F3ADF74D4FD6E59BFF968FA4DC73F5C4CD80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ Tom Jones - Hide & Seek (The Lost Collection) (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C05B0BE9180ACAF6C71789EA6CF53941417529A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Pyogenesis - 8 Music Videos (2015-2020) WEB-DL [VP9/H.264/2160p/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:DF36A663A954373350E47F563AD51FCA6F4EF29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EA8B67B10CF7A7EBA07548F15BA70904788AC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8D90535C8CC05E85F2634F932BC8212292BE8FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ INKredible PRO - Весьма забавное приложение которо
 ```bash
 magnet:?xt=urn:btih:1449E050D084DA5022A7CC0E3B259A80A3F8060A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9A52933195A2AC3C2BAC0B5B95921ED02F58371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B59062F184B8D64705EEE766EB2AB2D668FE54D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ Substance Alchemist выводит искусство создания 3D-мат
 ```bash
 magnet:?xt=urn:btih:BC7FD3D3514EC03E89FC4298789CF1104E51D351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ VA - I Love Rock Ballads (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:92425B97E6A7C2FA7C36CF8418B5BCBEA177396B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FAD35B5435E1495647EF67D425C8528F8341479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ PhotoScape X Pro – это простой и быстрый инструмен�
 ```bash
 magnet:?xt=urn:btih:1CF5BB9806DE4705C2A225EBBEF64806B6D9C67B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30C0F87BC5E557A78321BA8512AF115D18155EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8560B15696A6B9491A3B4F52CC4689A6EE7388D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ RAM (Грязный Рамирес) - Traumatix (2019) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:6BC6368AFC3819C61C9C284158C8DD4A34BAF561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ RAM (Грязный Рамирес) - Traumatix Ultimate (2019) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:BCF0262D06D53FB8F894A1D201EE648829AEA2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

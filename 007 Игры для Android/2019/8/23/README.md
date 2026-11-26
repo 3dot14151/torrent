@@ -19,8 +19,7 @@ Magic Book: Match 3 Story v1.1.13 Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6571ACF4FA72F03B0AE14D60B19C36221610D625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

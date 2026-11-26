@@ -20,8 +20,7 @@ Astralborne - американская дэт-метал группа, осно�
 ```bash
 magnet:?xt=urn:btih:FF0222821BD53CC5CB1AA867F2A2602515C0FD67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

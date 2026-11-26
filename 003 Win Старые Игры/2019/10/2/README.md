@@ -19,8 +19,7 @@ eXoDOS Collection (2019) [En] (4.0) Repack eXo
 ```bash
 magnet:?xt=urn:btih:6B901594EF61DA8E2D498F88B05D5ACEDD16E881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Far Cry - Ёкарный Бабай (2019) [Ru/En] (1.0) Mod Bert-Masters-Studio
 ```bash
 magnet:?xt=urn:btih:43A88919E408FE92E986661E9394D361BF1B88CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

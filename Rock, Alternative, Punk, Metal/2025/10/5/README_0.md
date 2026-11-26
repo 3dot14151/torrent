@@ -22,8 +22,7 @@ Bad Cop Bad Cop - Lighten Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:768E3AC806684AF34A7DE71FB8B4C80E13308FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Coheed And Cambria - The Father of Make Believe (2025) New Entities Edition, Vir
 ```bash
 magnet:?xt=urn:btih:D6533136995172D27DF8223722EB88195F7E82F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gutalax - The Shitpendables (2021) [APE|Lossless|image + .cue] <Goregrind>
 ```bash
 magnet:?xt=urn:btih:75427544473877A1242F807D6C422E470BEC368C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8620F816DC10110CCDC037953EA84CD6C4B6EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Warhorse - Live At Woods (2025) 2xCD, Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:19A2DE95ACBA1B0E44141EAE983C95A1AA84C969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

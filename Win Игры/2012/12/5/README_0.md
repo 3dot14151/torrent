@@ -21,8 +21,7 @@ Revenge of the Titans + 2DLC [En] (RePack/1.80.19) 2011 | NSIS
 ```bash
 magnet:?xt=urn:btih:CD6C80771C0418AE8756C90EACD61758392FA530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

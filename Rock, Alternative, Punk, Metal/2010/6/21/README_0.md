@@ -19,8 +19,7 @@ Rashamba - Дискография (2004 - 2010) [MP3|128 -320 kbps]<Alternative,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

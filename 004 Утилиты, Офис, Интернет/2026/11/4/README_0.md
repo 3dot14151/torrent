@@ -19,8 +19,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:248B328BF6397A23440BBAF17207725E87909657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Input Fixer живёт в фоне, пока не понадобится. Ни �
 ```bash
 magnet:?xt=urn:btih:D4FA1B9ADD5EA03B81FD3495DF6426B1D5B0ACDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ TweakHub создан для работы на USB-накопителе. Рас�
 ```bash
 magnet:?xt=urn:btih:E690015C721C713EADEDF478D2E8D135BD88331E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Camtasia Studio - мультимедийная программа для зап�
 ```bash
 magnet:?xt=urn:btih:103A36273EDD7284F7C4FD1E55310D88BCC82FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:914630F9DE0C10466DC9F7397F12849C3B46374E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Fan Control – свободно распространяемый продукт
 ```bash
 magnet:?xt=urn:btih:3FBEE9ADA83717C5CC267B8A1A5CA8F01396F7A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:050DD1C8D0C05C46FFF2D57A3F1FD62A1429E667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Snoq вычисляет ваш ключ шифрования на основе �
 ```bash
 magnet:?xt=urn:btih:B19281C04D0C24F3EBE7C1A5FF1110AFC70A9DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ KeySwitch исправляет слова, набранные в неверно�
 ```bash
 magnet:?xt=urn:btih:DFBBB4D00248FF3D946C0AAB8919115613618B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Daily Bread - Iterum (2012) [MP3|320 кб/с] <Indie Rock, Electronic, Dance>
 ```bash
 magnet:?xt=urn:btih:4949CC521BD0EB1BBCF233056FCFC15D8D665E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

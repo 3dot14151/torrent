@@ -19,8 +19,7 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:B0B5897490DC7B57BF4A7B2447E845DED2A8DCCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

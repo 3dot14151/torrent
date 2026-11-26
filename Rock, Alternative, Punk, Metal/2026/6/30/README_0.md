@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C1D6302688FA57B225BCA34EE2F93216D959D3EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Voïvod - Symphonique (2026) [FLAC|Lossless|image + .cue] <Thrash, Progressive M
 ```bash
 magnet:?xt=urn:btih:6A9B0FD34DCFDFEE6B4CF1BE7B841D41DBDE71C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Pretty Reckless - Dear God (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:436A0870999357B3B1B1BB7B16771D790FC5588F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dire Straits - Money For Nothing (1988)[Remastered]
 ```bash
 magnet:?xt=urn:btih:2CF068E5895611AE0A61141D34D78D3A944067FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Opprobrium (incl. Incubus) - 7 Albums (1987-2019) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:2C567F5CD58F536E82DBA2F4F908283351C88C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Deep Purple - Splat! (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AF225350E0528D337C4EB83ECE640C5F6BA54A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Deep Purple - Splat! (2026) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EF94787643EC9647B72E0287B337F4E87D267078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Deep Purple - Splat! (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3C35ABA371BC86CF59CE625AF8467B416C8A41A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

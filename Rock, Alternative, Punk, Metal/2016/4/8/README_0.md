@@ -22,8 +22,7 @@ I Am Revenge - Red Gold (2014) [MP3|320 кб/с] <Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:C072F32680984E36EE6F5D402E201AB42F176A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Devour The Day - S.O.A.R. (2016) [FLAC|Lossless|tracks + .cue] <Hard-rock, Alter
 ```bash
 magnet:?xt=urn:btih:299B0F6D64B4A50B268D420F6B005BC8D0EA5063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Novembre - URSA (2016) [FLAC|Lossless|tracks + .cue] <Progressive-metal, Doom-me
 ```bash
 magnet:?xt=urn:btih:339ED7BFAF96EEB3A5A6D19F9CD5B3AC8DB160FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ BlackRain - Released (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:D1997A7E4A30872F4F73B9869FA8AFF4F2AEE80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bullet Train Blast - Shake Rattle Racing (2015) [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:44059CF037E7EBD0B5284E85DEEF64488343F0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AAF603DA1A60DDC6C412D0EE7548337F072B652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Uriah Heep - Three Years With Lawton (2011) [MP3|320 кб/с] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0B8510FF79B89A83CBA5A79AD4A094B964C3CA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

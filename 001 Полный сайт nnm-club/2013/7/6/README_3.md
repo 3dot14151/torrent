@@ -19,8 +19,7 @@ MediaInfo 0.7.64 Final [Ru/Multi]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55DA5C121311392A3F8FA8489A206CC429530C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB4B5C5616B8478FE190A6EDDF196A0C161FFFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Fancy - Flames of Love (His Greatest Hits)(2CD)(2013) [MP3|216 - 288 кб/с]<Di
 ```bash
 magnet:?xt=urn:btih:09F0CAE60EA552593C0AE6B96D6774C46BAAB88E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Josh Groban - All That Echoes /Target Edition (2013)[MP3|320]<Vocal /Pop>
 ```bash
 magnet:?xt=urn:btih:B3DFDC4F1ABBCBE67C3AA7A3EEBB73C1FED1DA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ B4 Questions [3:58]Жанр: Pop Rock/Prog RockПродолжительност�
 ```bash
 magnet:?xt=urn:btih:03F356E0798857C31927D47895F27C2EFDFA708D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ XfrogPlants это реалистичные, очень подробные, по
 ```bash
 magnet:?xt=urn:btih:26E02F4D3806471AB02A7F229B900AEF16107AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ XfrogPlants это реалистичные, очень подробные, по
 ```bash
 magnet:?xt=urn:btih:4FEBDE2337722495AD69FFC3838E121E39855D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Battle Programmer SHIRASE / Боевой программер СИРАСЭ [2003
 ```bash
 magnet:?xt=urn:btih:19D742D3046B8F5CEB2217F41DD76C3D2FD3B6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ VA - СЕРИЯ "Блатные баллады и лирика" (11 CD) (2000-20
 ```bash
 magnet:?xt=urn:btih:8790D69ED640C224E716EFEA0FD28AF29B98A72E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ XfrogPlants это реалистичные, очень подробные, по
 ```bash
 magnet:?xt=urn:btih:AF446AECE4E8C5DFC40C0B2227D680C6D2A1D4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ WYSIWYG Web Builder 9.0.3 [En + Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ ProcessKO - крошечная утилита способна быть дост
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFCBD6C8A0A5ECE009B7A7143D22D620D2E3664E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Lee Aaron - 11 альбомов (1982-2004) Дискография [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35A267FABC60E2F43625D6CAB95E024CA9860FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ VA - 20 лет Авто Радио. Лучшее - 100 хитов (2013) [MP3|25
 ```bash
 magnet:?xt=urn:btih:70C39BA6B93D867B73619640082648356AB43E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ B4 As Above So Below (Recorded Live) [4:15]Жанр: Hard Rock/Prog RockПрод
 ```bash
 magnet:?xt=urn:btih:9B3857FF1AFE59C06347562AD27022B44DBEFCBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +561,7 @@ XfrogPlants это реалистичные, очень подробные, по
 ```bash
 magnet:?xt=urn:btih:DBAF9152B7BF616813AD6D72897A4DD94F0C0638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:416EFC8F93977AC5FB5DDBAA2308033433CAB332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ Manfred Mann's Earth Band - Watch (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop
 ```bash
 magnet:?xt=urn:btih:E3A8BA025D2A63F2177900377DFD8D9DD4A7912A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5F911A4E596B4650EBA86D03B65F7DE8D61D41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D35A7B74B55F48452117B6AA0221478D373DC60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +703,7 @@ B4 Resurrection [2:43]Жанр: Pop Rock/Classic RockПродолжительн�
 ```bash
 magnet:?xt=urn:btih:0DB67D4C1F70FDB36F91782866596BB86E314561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE876CDAA398805FD02F609179282236673B127E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

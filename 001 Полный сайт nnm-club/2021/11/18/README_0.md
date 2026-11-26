@@ -21,8 +21,7 @@ Peter Ellis - The Best Of Lounge: New York Lounge (2001) [MP3|320 Kbps] <Instrum
 ```bash
 magnet:?xt=urn:btih:C6B01ECB090292C76B9D3E53E008B256B521C810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Gary Ryan - The Best Of Lounge: L.A. Lounge (2001) [MP3|320 Kbps] <Instrumental,
 ```bash
 magnet:?xt=urn:btih:63FA79FFFE9C5A22FA4BE92E0A51663B5C81E5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ ON1 HDR создает безупречные, естественные фото
 ```bash
 magnet:?xt=urn:btih:8D837B32F5661F427804CAAEDA5513E5B0B86A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Vangarde & Louis Sandoro - The Best Of Lounge: Jazz Lounge (2001) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:C2EBA22FAF96F2089C46AF13024036BF0392EF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Best of Green Hill Music: The Orchestral Collection (2021) [AAC|~337 Kbps] 
 ```bash
 magnet:?xt=urn:btih:B3B307AB77AA13FDA6CB12E029A4418B7EF53F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ ON1 Effects 2022 v16.0.1.11481 [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:15795BAEBAB83771DF78369424BCC1C2B7DE25FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ PDF-редактор теперь PDFChef. Сделать работу с PDF п
 ```bash
 magnet:?xt=urn:btih:CBF0D3D73EC043150D91D3F1E1FFD5CBD7115247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ The Three Tremors - The Three Tremors (2019) [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:E72AC493288455FD20D095A8C75E9B01EE9719DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ ON1 NoNoise AI 2022 v16.0.1.11481 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9ED9F0C02EABFD0D47B84592B20F34391AA4ED7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Logoist 4 v4.2.1 fix [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:29E5FC1A5CDFB281BBFB35DCA6D24567ECA91A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Variations & Gary Ryan - Romantic Guitar (2006) [MP3|320 Kbps] <Instrumental, Gu
 ```bash
 magnet:?xt=urn:btih:6D9DE01F390AB7489B384010C95E56AFF5CED88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D072426978007C1101ABF164DEA68C68342FDFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Little Mix - Between Us (Deluxe Version) (2021) [AAC|~317 Kbps] <Pop, R&B>
 ```bash
 magnet:?xt=urn:btih:2949B8BB64162E6478D361828F2130C27BC5D8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:909E6AFF2828E501C79FECEBF9C36A536B6E6C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ Vangarde feat. XXL - The Best Of Lounge: Buddha Lounge (2001) [MP3|320 Kbps] <Ch
 ```bash
 magnet:?xt=urn:btih:BE741F8E06916A15B79E7775E5E650693081D9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Hookshot - позволяет привязывать окна с помощью 
 ```bash
 magnet:?xt=urn:btih:8465DE579DD9A13985F484A73C1CB717414763D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6627DC70E72242B9C30DAD95CD55E6A3C7454833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DD8494E839C8BA549AD618AA908F802EC8033D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBA8C7C090E3D45862C90C5D3EFA4681AA299A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ DropDMG 3.6.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:39A535A77544188497E342D71137F0BB6E6836AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ ON1 Portrait AI – новый инструмент обработки порт�
 ```bash
 magnet:?xt=urn:btih:0FB0E2FC2325C753CBE7AE707DAA16C74E21B069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Cheeps - Аппликация (2021) Bootleg [MP3|192 Kbps] <IndiRock>
 ```bash
 magnet:?xt=urn:btih:A6891D5BDC0CB756F0F56342F3624E368B2C6FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ Robert "Bobby" McFerrin, Jr - мастер импровизации и коро�
 ```bash
 magnet:?xt=urn:btih:BBF4D11A58FE9A091E44FCF7C46A9373CA435415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9192E2683182A7D3250E82BC3F66EC0865309FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B2C2B2E2667518618060C5C13866CEBA176331D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C38B77D25420134233F3C07E0BC8598076D7643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Birthright: The Gorgon's Alliance [Ru] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:475C547D74FB51FCF871AD101BB5725289EB00A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 ```bash
 magnet:?xt=urn:btih:9F576D61D45A3A8FD1CAACECCC0C9809FB047121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

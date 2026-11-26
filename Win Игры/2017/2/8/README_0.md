@@ -19,8 +19,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.07/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:7D8E0C4EA19B65543492A2FD1B9C1C137BA08845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

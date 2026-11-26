@@ -21,8 +21,7 @@ Laserdance - Trans Space Express (2018) [MP3|320 Kbps] <Spacesynth>
 ```bash
 magnet:?xt=urn:btih:E4850BCDA7869390565D10C8E8EB78D007826AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:353970EAADDA2DB729CA82B784ACC646E2E77988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Galaxy of Pen and Paper (2017) [En/Br] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:48F39BC2EF5630FD8E1FDB07441174A07CF011DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3D80DD057B55E404DDAF524A18A29D321EDDC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.05/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:BBDBD6063D0E79339D8F15F94E71299E71CFA7ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30F9C0FB436D5CA5568F95951699B2D2D01DB4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru] (1.0.6
 ```bash
 magnet:?xt=urn:btih:0590FB315BBBC731840075511FE239F38340FA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ TNOD User & Password Finder – крайне полезная утилита д�
 ```bash
 magnet:?xt=urn:btih:85E19E6B7B497ED16F1333A1F0C214A7EB97B5E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Flow - Ру.трекер клиент v1.2.3 Premium [Ru/En]
 ```bash
 magnet:?xt=urn:btih:197568CD095C5A576296EFCDEC9E770E9EE538B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ My Summer Сar  - это увлекательная игра-симулятор 
 ```bash
 magnet:?xt=urn:btih:84A39D9E9D648ADC11795E00DF4C507E7521DCFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

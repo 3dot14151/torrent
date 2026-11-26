@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B2960264AD8471865FCA122EA715D46E93BEB8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38D00C8BAAB7F4327CED8E6AC9B95CEFD58091CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ken Xiao | Talk English - The Secret To Speak English Like A Native In 6 Months 
 ```bash
 magnet:?xt=urn:btih:D0D4948A9432507D19F7FEA2DCABDACA2F86A173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E4F8314766CFAB5AF6ABD51790F3B6644F5A55C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warlords 2 Deluxe (RePack) [Ru] 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:CA0FAED77786B04A1B39D7C4AFDDB040F43F0897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61D9DDB4637D3678BBEC9EF4BE59BE371D862C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

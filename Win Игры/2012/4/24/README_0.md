@@ -19,8 +19,7 @@ Victoria 2 / Виктория 2 + DLC [Ru] (RePack/1.2) 2012 l R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:1410E31EFE8F9CF2985440AFEE37F6DEDA6233CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bedtime Stories: The Lost Dreams / Сказки на ночь. Утраченн�
 ```bash
 magnet:?xt=urn:btih:1201BC88B9A634E87A5582983BCDCDE475028AAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

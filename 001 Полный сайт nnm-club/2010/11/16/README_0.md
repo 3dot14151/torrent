@@ -18,8 +18,7 @@ VA - Чудо Парад Динамит FM Зимы 50/50 (2010) [MP3|256 kbps]<
 ```bash
 magnet:?xt=urn:btih:37FC6295D82BC39209D05688026B8749627211B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Hughes de Courson, Pierre Akendengue - Lambarena. Bach to Africa (1994) [MP3|320
 ```bash
 magnet:?xt=urn:btih:AB05F6F0EE2A8AFA1ABF974752B9F856EA57D46F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B0FFD34ED5C8762A790C5F4E2A43D48B451B3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Various Artists - Nu Life Extra Easy Grooves 2 (2006) [FLAC|Lossless]<Chillout, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Terry Lee Brown Junior - Labyrinth (2010) [MP3|320 kbps]<Tech House, Deep House>
 ```bash
 magnet:?xt=urn:btih:B83AE180D87D959E655D95B497821459B55862FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ InterSys - Recharge (2009) [MP3|~207 kbps] <Full On>
 ```bash
 magnet:?xt=urn:btih:E9A82A9DAEF3594199F4BB521E49B8343CAC0D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ DSound - My Today (2006) [FLAC|Lossless]<Jazz, Funk, Pop, Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ Joe Gransden - Close to My Heart (2009) [MP3|320 kbps]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:1BC05ED05B96567BFE41C160176F12512641E9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ VA - The Departure Lounge - Lounge (2007) [MP3|256 kbps]<Lounge>
 ```bash
 magnet:?xt=urn:btih:19D8ACF33161756544645998397AE3468A3116D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DBCE0570594B130693BA4FE7E23A01702C7FCD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ Mina Agossi - Just Like a Lady (2010) [MP3|320 kbps]<Jazz, Vocal Jazz, Nu Jazz>
 ```bash
 magnet:?xt=urn:btih:7E417431A6E4FE289C7BF15FEC9F73A768DF1DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B33F5CEC26A0E2E186D8728CD4E3A1CF616D40C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Willie ''Jazzanova''Davis - Saxual Therapy (2010) [MP3|320 kbps]<Jazz / Smooth J
 ```bash
 magnet:?xt=urn:btih:CDA13E2AE98516095CFAF0FAFE2D33B7E51006EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ VA - TOP 80 Зайцев нет+ (November) (2010) [MP3|128-320 kbps]<Pop, Dance
 ```bash
 magnet:?xt=urn:btih:02C65CDD13C231B02C450DE005A01DB8898FC240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ Eivind Aarset & The Sonic Codex Orchestra - Live Extracts (2010) [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ Acoustic Ladyland - Skinny Grin (2010) [FLAC|Lossless]<Punk Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ Stanley Jordan - Flying Home (1988) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ VA - Global Underground (Mixed By Tom Novy) - 2010 [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:E448F0B2B5C4EECBF8831AEFF03D3412865E356A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ Gary Husband - Dirty & Beautiful Volume 1 (2010) [FLAC|Lossless]<Jazz-Rock, Fusi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ Gerry Mulligan Quartet - Dragonfly (1995) [APE|Lossless]<jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +683,7 @@ Steven Seagal & Thunderbox - Mojo Priest (2006) [MP3|192 kbps]<Blues, Guitar>
 ```bash
 magnet:?xt=urn:btih:A2EB73B43812C8FDF2863AE340408EF3275AB196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +717,7 @@ VA - Rose (women vocal) (2010) [MP3|320 kbps]<Lounge, Easy Listening, Chillout>
 ```bash
 magnet:?xt=urn:btih:CD81B9775599982448B838BC7F605571FDA9A72E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ DJ Baby Anne - Babylicious (2010) [MP3|320 kbps]<Miami Bass/Breaks>
 ```bash
 magnet:?xt=urn:btih:292F1D7188DC60B8B94B38EA41457BB84E7B3C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ VA - A Jazz & Blues Christmas (2008) [FLAC|Lossless]<Jazz, Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

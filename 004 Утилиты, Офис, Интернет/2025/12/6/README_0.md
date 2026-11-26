@@ -19,8 +19,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:03DF56C56EE0B04798F7F362C37AD9EFFD78A935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:A535A0B9589F6C0B32BD550E630677DC694238CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ iTubeGo YouTube Downloader 10.10.0 RePack (& Portable) by elchupacabra [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:06846D1C6AC6E80E36AA795A04BFF3B1153B0258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ AnyDesk 9.6.6 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EEBB49B8CFE1A67356E1B8DA97F540B062944F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ ChrisPC Win Experience Index - бесплатная утилита, с помо�
 ```bash
 magnet:?xt=urn:btih:E71C787B1B85B124555A0918652932DBC2BE10CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:CF49DCC801A0628D9B0DA9D8FCD623EC41C10E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

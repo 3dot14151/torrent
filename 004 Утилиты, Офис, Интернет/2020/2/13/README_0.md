@@ -19,8 +19,7 @@ Wise YouTube Downloader 2.84.114 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3343FDFB511AD8EFB6CCABE77090C62DFD4586F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Deep Rock Galactic – научно-фантастический шутер пр
 ```bash
 magnet:?xt=urn:btih:DDBBDF7B6915623D1345B56EAD5C9745A3735666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paranormal Torment - это психологический хоррор, кот�
 ```bash
 magnet:?xt=urn:btih:E25172C352E5A09001C36B821EAA448EB23DDC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ship of Fools — это кооперативное морское приклю�
 ```bash
 magnet:?xt=urn:btih:CBE9A76E52538D82173CE0C58FF11C8236A55024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ I Know This Place..? / Я знаю это место..? (2023-2025) [Ru/En] (Bui
 ```bash
 magnet:?xt=urn:btih:6C29ED287DE383A30CDD734C6DA6CC5266696249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Assault On Proxima (2023) [En] (1.02) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D37C8FA595880874AFEAEDF4D4CC21D477C58A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Clink (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D79730577DE44C036FB30823517EB6C7B100A094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Yu-Gi-Oh! EARLY DAYS COLLECTION объединяет коллекцию клас
 ```bash
 magnet:?xt=urn:btih:7DC17B18CA37882280D5C7F1112205C2E7F7D9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ City Enigma (2025) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:FA49D9AA8F60D5140E405B2362CA9B731E82E27B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ VIDA 2014D — это последняя (именно НЕ крайняя) фа
 ```bash
 magnet:?xt=urn:btih:1B2995AC6B8926893E3DEA41C01CE92208B19C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

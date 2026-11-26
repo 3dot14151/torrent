@@ -20,8 +20,7 @@ Duckman: The Legend of the Fall [Ru] (RePack) 1997 | RG Games/Pilotus, KirillGam
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Nine: The Last Resort / 9: The Last Resort [Ru] (RePack) 1996 | Kirill Games
 ```bash
 magnet:?xt=urn:btih:9D572303F50093B9167995CC1276008C9A0C3D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Kingdom Under Fire: A War of Heroes [Ru/En] (P) 2001
 ```bash
 magnet:?xt=urn:btih:A29D90F6AA897DBEE23D40D36BE920E4E6290773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

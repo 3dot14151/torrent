@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:30E3B9688C574AA1320F32BD9F69A6E577DC4F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E08A49E487A782B9491743A458C93414F6E8108A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - Золотая Коллекция: СОЮЗ Gold - Лучшие Песни 
 ```bash
 magnet:?xt=urn:btih:D211EF7C860F899AE651C67E07043B0FBF6DFA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05C092AB898967F85779914CD50161DFEEB5E7CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Twisted Lands: Shadow Town / Гиблые земли. Город теней 4.8 
 ```bash
 magnet:?xt=urn:btih:2EB7A587F575F70E993C778B86074DEBCCE6254A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFF8925FA0D0108C344483F63A2ED9E1268E6760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ WinToFlash — это приложение, позволяющее полнос�
 ```bash
 magnet:?xt=urn:btih:2C27928B98EA7E75ECA50F127F9F9A5638D26078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Maelstrom 37.0.2.1 (5920655) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:055A9E7FD8A3B8058F91805C01F4688D680149B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ ABBYY PDF Transformer+ - программа, объединяющая полез
 ```bash
 magnet:?xt=urn:btih:0F36523955731201A6E5263E7CC9F5705E914E2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Solid Converter PDF - одна из замечательных программ 
 ```bash
 magnet:?xt=urn:btih:4EE3F86FD442BDEE65AAE1E93EE6B3B1D8657CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Unmechanical: Extended Edition (2015) [PS3] [USA] 4.21+ [PSN] [En]
 ```bash
 magnet:?xt=urn:btih:3B069F9CCC4721FD115DAF08F34B1383F15C626A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Artik & Asti - Здесь и сейчас (2015) [FLAC|Lossless]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:0F42D224A585F6991245124DE65480C59A0CBF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Solid PDF Tools предлагает надежное преобразовани
 ```bash
 magnet:?xt=urn:btih:244ADE92CDB007B7801C037E0FEFC7B6EDCE4D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ VLC Media Player - Представляет собой мощный медиац
 ```bash
 magnet:?xt=urn:btih:C340442292DC19B1DB50777274A94328D8DD877B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Solid Scan to Word - преобразует бумажные документы 
 ```bash
 magnet:?xt=urn:btih:3749CE64FAD024E51E6F4A7F319CD3217404E500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88008A4469CDA4A5633FC69F521B9A3C1D5E7515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ Junketsu no Maria / Maria the Virgin Witch / Непорочная Мария [20
 ```bash
 magnet:?xt=urn:btih:B38130CDDCBEA12AB31C8CE346D19E62309D2E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5839411B6EB473FAAE1ECDB97DFEF02ABAD10E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ Dexpot 1.6.14 Build 2439 Stable + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6DA93C8B34864875D57073A451C677308E3FB975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A52023227AD8EAA15EFA1B7DAAB42ABC2643CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43C86419BF58530E2DF85AD77C6207392A667488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9A371B5162DE381EE13A78CD32A81360C57FBD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ Solid PDF to Word 9.1.5565.761 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3C2FC6E5ED608C77C65D61708AA32CE07A9015E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ EyePet: Move Edition - Маленький и забавный зверек пы�
 ```bash
 magnet:?xt=urn:btih:D11FCB2633E1ED6A1D5D8922E10218D135CCB3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:157298CF27914A4E5BDCCE06530ED6A85FCBE452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

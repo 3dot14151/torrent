@@ -19,8 +19,7 @@ Memtest86+ 7.20 [En]
 ```bash
 magnet:?xt=urn:btih:ACC4FDB177BFCB394F4C92CD88A7CA6E87E7ECB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MemTest86 - бесплатная программа, позволяющая пр
 ```bash
 magnet:?xt=urn:btih:BFB7DAD00DA36C9CD48F816618E59820BCB5FEF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ IM-Magic Partition Resizer - надежное программное обесп�
 ```bash
 magnet:?xt=urn:btih:322D06ED5B8296516D0FA18C2471DF2922DCD478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

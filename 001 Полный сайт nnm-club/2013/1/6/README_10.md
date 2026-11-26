@@ -28,8 +28,7 @@ M.PRAVDA - Live in Motion 102 (23.06.2012) [MP3|320 кб/с]<Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:1C1816B648870D4875509C183165C9B384E2A471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ M.PRAVDA - Live in Motion 103 (30.06.2012) Best of June [MP3|320 кб/с]<Progre
 ```bash
 magnet:?xt=urn:btih:3CB51D13B43B2AC93862115EA17DBA5ECCC07C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ M.PRAVDA - Live in Motion 101 (16.07.2012) [MP3|320 кб/с]<Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:97563897FCE19DEB6D1289594D5F46DDB34E00EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ M.PRAVDA - Live in Motion 095 (05.05.2012) [MP3|320 кб/с]<Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:58776CB98DE71CD58D33EC430CB84CF11806DC35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ M.PRAVDA - Live in Motion 094 (28.04.2012) Best of April  [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:2499A230723BC7064FEB4DCDB934B7FD4D7E4C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Agressor - Medieval Rites (1999) [WavPack|Lossless]<Death / Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D2A228672A509398B4956E0158F905E4E37D456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ Axehammer - Lord of the Realm (1987) /Sentinel Steel Reissue, 1998/[WavPack|Loss
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Blaze Of Sorrow - Echi (2012) [WavPack|Lossless]<Atmospheric Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ M.PRAVDA - Live in Motion 100 Юбилейный Выпуск (09.06.2012) Natio
 ```bash
 magnet:?xt=urn:btih:6E3C60DE22C72F3FADFB340EE606F9603815CDD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +381,7 @@ Attacker - The second coming (1988) [MP3|320 kbps]<Trash Metal>
 ```bash
 magnet:?xt=urn:btih:7B1FAE95356CA31E0B767D7C63C55E15BEF05834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +415,7 @@ Avian - Ashes and Madness (2009) [WavPack|Lossless]<Power / Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +449,7 @@ VA - Force Carriers (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:8711C2DCB167E8ABC7EB38D19F21613D1F55ACF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +482,7 @@ All I Could Bleed - Burying the Past (2011) [WavPack|Lossless]<Modern Melodic De
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B5102DF1C66819305D163AB79D7DF18196E3A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +532,7 @@ Nature Wallpapers (03.01.13) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:50D5D229F4BD9E08DC93AB1EE0B5886DB08D3C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3A6A8FEBB25165B408A8E766B7385ABD341C3F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C51AC39822BD89B5A5666D56DACD00F1CC44621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17CF5B3AABB7FBAD23B564318DB3A099F48C9FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45F960BC08BCEC41158E8FCFA0D7AB90B9D04950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +670,7 @@ Khepri - Inner Division (2013) [MP3|320 kbps]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:33A4F1AC896BF8DE7F0991337BCCF17B41ACE617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8401C0C31A764A3A109DA4314A7B6B3243CB389C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +729,7 @@ Butterfly - Favorite Colors Episode 065 (05.01.2013) [MP3|320 кб/с]<Progressi
 ```bash
 magnet:?xt=urn:btih:F01225E4806FE5C64A8CD65F7C46BE60D7ECF042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85A470669EB19D86A475178D588175088FF8B62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +779,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6FC226A1547F54364A72094A9D7BB24A2B9334E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

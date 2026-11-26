@@ -22,8 +22,7 @@ Cynic - Traced in Air (2008) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, 
 ```bash
 magnet:?xt=urn:btih:55BF23EB3021C8679F65DB84E96ABDD24B9F1548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cynic - Focus (1993) Reissue, 2013, Roadrunner Records [FLAC|24/96|image + .cue|
 ```bash
 magnet:?xt=urn:btih:8FFF36659263DD0B4D0434187BE7721CB0DE67DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Headhunter — немецкая трэш-метал группа, образов
 ```bash
 magnet:?xt=urn:btih:2364FAFC97CE75CAEDDFFB54781869A17344C562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

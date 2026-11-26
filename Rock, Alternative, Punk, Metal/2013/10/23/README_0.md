@@ -26,8 +26,7 @@ Cameron - Cameron (1975) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:9BDCBA8EC8DA81796EC8E31EB670C10A9026C95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -67,8 +66,7 @@ HellLight - Funeral Doom (Remastered) (2 CD) (2012) [MP3|320 кб/с]<Doom Metal
 ```bash
 magnet:?xt=urn:btih:0A23DF4B4E4BF674A7BCD09546488DC2AD0E752E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ So Hideous (ex - So Hideous, My Love...) - Last Poem/First Light (2013) [MP3|320
 ```bash
 magnet:?xt=urn:btih:E7D4A1F6D641CFF3C872E38A485E3E8C00F7D21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Gallowbraid - Ashen Eidolon (2010) EP [FLAC|Lossless]<Atmospheric Black/Folk Met
 ```bash
 magnet:?xt=urn:btih:1B9C6F3B282D99EC51E7DDC48156152A73319286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Shah - 4 альбома (1989 - 1994) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E4CC42BC6476129F12211E3CDB0FF1E4F47F574A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Kiev - Falling Bough Wisdom Teeth (2013) [MP3|320 кб/с]<Indie Rock, Alternati
 ```bash
 magnet:?xt=urn:btih:4B6F9C825D1ED01A920A81547CA6F5393811EEC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Paul McCartney - New (2013) [FLAC|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:663B4AB34DA1B24180DABB46EFED7D140DF95611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Def Leppard - Viva Hysteria (Live) (2013) [MP3|320 кб/с]<Hard Rock, Heavy Met
 ```bash
 magnet:?xt=urn:btih:E7AE9EC0F2A6C9AA8E4EEF5E0DDD94B515E882B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Grand Funk Railroad - Greatest Hits (2006) [FLAC|Lossless]<Hard Rock,  Blues Roc
 ```bash
 magnet:?xt=urn:btih:678D660291719E2F0F8AE3B31607BF4EECB05EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Def Leppard - Viva Hysteria (2013) 2CD, Live [FLAC|Lossless]<Hard Rock / Glam Me
 ```bash
 magnet:?xt=urn:btih:777DA3783B9C4C2E71896F211895D1CEA3FBAA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +358,7 @@ Fall Out Boy - Pax Am Days EP (2013) [MP3|320 кб/с]<Rock/Alternative>
 ```bash
 magnet:?xt=urn:btih:58D43B4F8F56FE51313151FD6118C5DA7897B584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

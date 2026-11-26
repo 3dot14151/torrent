@@ -21,8 +21,7 @@ RS Partition Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B6992A043CF17D859E76C0050E9D41DE98A39907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

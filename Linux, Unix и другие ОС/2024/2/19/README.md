@@ -19,8 +19,7 @@ elementary OS – дистрибутив Linux с открытым исходн�
 ```bash
 magnet:?xt=urn:btih:19A84292A64E1A9935E7CA7B7C40D22F3E1CFFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ED599DD0448002B3F6721DE5B587DE4E2685518F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ ru_windows_10_multiple_editions_version_1511_x64_dvd_7223785.iso
 ```bash
 magnet:?xt=urn:btih:129ECF70C425AB8490B3F6D78E20F73C32AD1F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

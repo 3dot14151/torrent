@@ -21,8 +21,7 @@ EverWeb 3 v3.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:204842B18AD78FABF72D4787EEA7559D23E4C63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ MarsEdit 4 v4.3.5 [En]
 ```bash
 magnet:?xt=urn:btih:ED5F16641E49FD8CF1BC88A621BE180691C431B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Unite позволяет быстро и легко превратить веб-
 ```bash
 magnet:?xt=urn:btih:8F4B487C48979C33A0B67A92805CEC151E85FF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:D0AF4EA2CE38C0D94EC0E7BDEBD3BA294EFA1A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Pastebot - менеджер истории буфера обмена
 ```bash
 magnet:?xt=urn:btih:781A01BA276274FB63AD8760E789BA8EC7A4F863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ MovieSherlock позволяет загружать любое видео с You
 ```bash
 magnet:?xt=urn:btih:2F15C0426EF235E8AEE9CE5A71AF15C565DF0D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ TextBar позволяет вам использовать скрипты, чт�
 ```bash
 magnet:?xt=urn:btih:3CCF60F94D65DE24C080B7CFA07F9C480E14577E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ TotalSpaces - удобное приложение для управления р
 ```bash
 magnet:?xt=urn:btih:D1093D5EF7F91A4DC43FD9413A07F7BCAC2EBD30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ GlueMotion был создан, чтобы сэкономить время и п
 ```bash
 magnet:?xt=urn:btih:5B491C298262FF004F327442AF77A81491C22D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Grids for Instagram - простая и удобная программа име
 ```bash
 magnet:?xt=urn:btih:D37321CDDACB60EFADAF74BC2DDD167DAAA57771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Mellel предлагает специальные инструменты для
 ```bash
 magnet:?xt=urn:btih:97823EB4E2887DCD3652570B1D11B160BBBE2905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Place Vendome - проект в который входят бывший вок�
 ```bash
 magnet:?xt=urn:btih:A15142409C3B2AB3E3E9A4F0CEAEA31926797B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ The Black Keys - Let's Rock (2019) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:AFA1EB22211C568B02DF03FF626973E1AFF84B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ iClock - это отличная замена часов в строке мен�
 ```bash
 magnet:?xt=urn:btih:DF2FD8546BBABEA54B317D6B35127AE5429A2E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ VideoProc включает 4 модуля: Видео-конвертер, DVD Р
 ```bash
 magnet:?xt=urn:btih:0345BE41C5FC65DAAD0069D1F694A9F8E8916C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:405072D57C89708F4EDC4AEC413DDC1839B279FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04264631B78C072137DCB23A666AEA3601942629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Ultra Mood - Mood Change (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:4EA9C258AC5955333758E1F6072F718825C87A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1531E3EB66598462B8827F39F42FA71F66D32D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6B4D7B8344E072371579A05C9C6FC50C910F6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ VA - Русский шансон часть 6 (1999) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:ACC56C8ED1415CB7B3EB39CC72336198D0AA3BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:98263655044EEF8C3E3B8CB27FF89921AB1D8CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ VA - не Громкие новинки недели 36 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:189C6454C03BD75309B1FFE14746458944999B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C764CAD8EF417D119844544C6CAA73995B6B07A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:891812A6F6C5F8CBBE9992D1024165AD92AC3668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:091B62582EDD0376610CF92E5E2878276F24DA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

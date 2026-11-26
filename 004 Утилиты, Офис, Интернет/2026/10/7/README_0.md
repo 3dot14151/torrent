@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3D5D6CF6AD38726833A9CCA5609653DAEF6E6F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Revo Uninstaller Free 2.7.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:171E7CF40EAF86853C282DA2FB6BAF328381A3CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ OCCT 17.1.7 Portable [En]
 ```bash
 magnet:?xt=urn:btih:BAAC79BD9FA5395CC28DE469FEB958B16B215D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AnyDesk 9.8.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CA494305B347E169CFEF944A575619E451756B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:363BCBBA1AA3382B0000A466745230AD90865224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:48955D35CE154CCBF3F45F74BA0585B247B75729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

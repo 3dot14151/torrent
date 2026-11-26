@@ -19,8 +19,7 @@ Gilrs Wallpaper (24.10.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:407E983689C6E1ED133B33CDFD2BFD0F8C549FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gilrs Wallpaper Collection (24.10.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:75D59E936F59A95B1A98EB663B5ED7C0C82AD658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25FD27B1BEADDABF308C7E015F0639A203A7F514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B0076A0BDF546DEA2226EF5904922B1BCB57BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wallpapers Sexy Girls Pack (24.10.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:30C5472095AE69A5131CFC3FE538D7EA986A6CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sexy Girls Pack Wallpapers (24.10.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:1E90380EC4552C1E74B8F00A7E80B1B3326CA645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ VA - Harmony Angel (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5B0D0786591FA18992B47DD4E823CAC65717E839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Nature Wallpapers (19.10.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:7E65661C1B04A65281F846549A686816B2CC6DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CE67BA2542F5F19690D9BD4C7622584F4DE6531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Gilrs Wallpaper Collection (25.10.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:E67BF515B391C12B0F7023822DA940AC2385BB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Wallpapers Sexy Girls (24.10.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:65B0ED62276E5C25579EB0A27F82F918CCDAD216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DFEC6EDB62E5C096DFEE5E912445F56CE7C719F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F71310546D97D715F387D3DA86BCBB8524E6273C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51D931F32604DD84A147D0458E4470F5A776507A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Sexy Girls Pack Wallpapers (25.10.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:922A98E0C4DA82C8BA2F6245AB93C5E68220F37E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ VA - Парад Осени (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:43135BD2C3613E8B9CA996E80E7B50A1396605E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2971D4C21D5E0E37BA80A1D624E0719C66D21267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45D93B004C00288BB87D5C49530E7088201D00B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ VA - Русский Хитовый Бум (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:7FD981B274E170DFF3C73082E4FEAE41ACEA66AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2757057EB5A232B8FAFC475A8EF6912029D380A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Nature Wallpapers (24.10.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:DB8295D9DC9279418C5848B3D2E922E291160592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ VA - Top 50 Club Hits October (2012) [MP3|320 кб/с]<Club>
 ```bash
 magnet:?xt=urn:btih:C4FBE99820ABCE0F0E2BA278E7E0CD4BC5924CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ Desktop Wallpapers (25.10.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D9F513C0B1013465B8616F6D1ED6F401FAF5C7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:680439C157BF415D5516D3748F7AFB87B7C52591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73E2FB4B052AC3ACC77690DC30D17C2B3D65AE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Nature Wallpapers (26.10.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:107E7BF73A549939F0F151490A757BA7F105338A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

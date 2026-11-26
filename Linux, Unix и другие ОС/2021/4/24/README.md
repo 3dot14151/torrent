@@ -21,8 +21,7 @@ Ctlos Linux — базируется на Arch Linux, iso образ собра�
 ```bash
 magnet:?xt=urn:btih:99272C37A4F9672A059F1FFB1E7C2F19199CF120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

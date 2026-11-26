@@ -19,8 +19,7 @@ FIM Speedway Grand Prix 15 (2015) [En] (1.0.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:26EC9986EF08EA81853CECF13E36971EB17CF21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

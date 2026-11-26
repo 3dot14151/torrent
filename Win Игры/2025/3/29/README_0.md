@@ -19,8 +19,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.7.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:907F2AA78F84959EF7FE4430F83EB16DBC319F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 ```bash
 magnet:?xt=urn:btih:D76B7A19ED32294CB1CA64769794C31251DA1347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wildermyth — процедурно генерируемая тактическ�
 ```bash
 magnet:?xt=urn:btih:357E344B4875DB3AFC72118B816DD9E72BD0BA20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Ai Limit (2025) [Ru/Multi] (Build 17884331/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2F26A1D293AB29229C80B323CD01D8402632D08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack FitGirl [Digital
 ```bash
 magnet:?xt=urn:btih:B22987C5F7522CB677E43AED5E50A55D5ECD66E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Easy Red 2 - шутер от первого лица с элементами с�
 ```bash
 magnet:?xt=urn:btih:2991A2E009CE16E5C8E77980DB3857AE4575FCAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:34B8D3B65E03A709406BDEFFF18DE0D5CE880040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Crash Time - Undercover – отправьтесь навстречу безос
 ```bash
 magnet:?xt=urn:btih:880BD4297C4779E307C2C8A2BB87C896FE1C1980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Poop Killer: Flush or Die (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9B9F238CAFCDD18D026389707B329A4EA8779702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ The Full Package Remastered - благодаря улучшенной графи
 ```bash
 magnet:?xt=urn:btih:406BFEA92A19DE62D16059C4900EF258E7C7C852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ The Matchless KungFu - это ролевая игра с открытым мир
 ```bash
 magnet:?xt=urn:btih:9179A033C8BA88F602FB68173816531876B9356F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Songs of Conquest - пошаговая стратегия, вдохновлен�
 ```bash
 magnet:?xt=urn:btih:BD787EBF5AE5DCB44BB160317852E5486BC6950F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Wartales - ролевое приключение в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:F0DE308ECB8B0010ECD22F4B3E5054554A7E832A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.3.1.1/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:9AFDA7D931CD524D132E36C84B568005A2DECCB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

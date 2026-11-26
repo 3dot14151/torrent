@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CCDAAB868A51E8E07EBFAE497ECD1E80F97F8C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Flatout (2005) [Ru/Multi] (1.01) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7629B250FB2ECC401CC02586CED2C120973E4F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

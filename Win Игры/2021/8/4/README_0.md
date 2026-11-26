@@ -19,8 +19,7 @@ A Bird Story (2014) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:09DF0B582972BE21FB89DBC4449ED48C9051D7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Iron Marines (2019) [Ru/Multi] (1.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:2ABA99B8426DD1AF774C0D4DB513B7C3A2F7D7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:B7BB3DA43B5C0DE1A621D9532267C393EF6ECE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kingdom Rush Vengeance (2018) [Ru/Multi] (1.9.9.20) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C39073B42576801BE55CFE3C4405FADD14E4AAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

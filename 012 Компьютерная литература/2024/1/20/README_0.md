@@ -22,8 +22,7 @@ For a wide readership.
 ```bash
 magnet:?xt=urn:btih:98F4EF41CCC6EE792BC3D610B9AA41ABB23E463D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

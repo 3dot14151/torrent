@@ -19,8 +19,7 @@ Removable Access tool является очень простым в исполь
 ```bash
 magnet:?xt=urn:btih:2FBC322ECC483E021AA5D89E9A1CBADC04F39709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TheGreenBow IPSec VPN Client программное обеспечение дл�
 ```bash
 magnet:?xt=urn:btih:6AC3D2E0F6B4A135699C5B5DC9C053A505C54171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

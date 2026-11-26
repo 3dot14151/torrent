@@ -22,8 +22,7 @@ Phil Woods - Sugan & Round Trip (1957, 1969) 2000, Universal [APE|Lossless|image
 ```bash
 magnet:?xt=urn:btih:20F747AD856551E5372106C1F7F5FBE7D6819044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stephane Grappelli - Nuages (1978, 1981) 1991, Jazz Archives [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:C3563429BCB36D167897FDF6629FADD25B56CDB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Best Of Cause Org 2021 (2022) [AAC|~313 Kbps] <Deep House, Downtempo>
 ```bash
 magnet:?xt=urn:btih:4797A7AF9A1F9172C4800D00C98A451A0E3BD10B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Feel the Rhythm & Chill, Vol. 2 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, 
 ```bash
 magnet:?xt=urn:btih:BB988FC8291CEDE931953F7C9A0FB4C820140E5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 4 (2019) [AAC
 ```bash
 magnet:?xt=urn:btih:D47C796ABCD4706AF8570640E8CDA9159071EE0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 2 (2018) [AAC
 ```bash
 magnet:?xt=urn:btih:C24FF2DF9E1D0F9A41BB661C9F97626055959592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ bcalm, Banks - Feelings (2021) [AAC|~286 Kbps] <Lounge, Chill Out, Lo Fi>
 ```bash
 magnet:?xt=urn:btih:59A435D9ACD5347950F0FB31B3764E9A35D6DC78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 1 (2018) [AAC
 ```bash
 magnet:?xt=urn:btih:34CAFE0B2B1AFC0DFBADAA79702AE206D6F6E534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ bcalm, Banks - Feelings Pt.2 (2021) [AAC|~283 Kbps] <Lounge, Chill Out, Lo Fi>
 ```bash
 magnet:?xt=urn:btih:C2EF433EBD4A864B793FEE96F4F05428E1B599A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Time to Chill, Vol. 2 (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F95D4D5809602727C85AF7C47FCC7E7B9A05A8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Psychill Blossom, Vol. 2 (2021) [AAC|~327 Kbps] <Psychill, Psybient, Chill 
 ```bash
 magnet:?xt=urn:btih:8919E2FDEE26A01E5E92AB0BDFF02CEAD4D1C096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 3 (2019) [AAC
 ```bash
 magnet:?xt=urn:btih:67818CAA0C1D11328D22478B6546AD411AD97A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Psychill Blossom, Vol. 1 (2020) [AAC|~323 Kbps] <Psychill, Psybient, Chill 
 ```bash
 magnet:?xt=urn:btih:9CFCD544D95DA05A81C33D5B235EDD6B7CFD9D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Time to Chill (2012) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B0E6CC14651004CD6E2CC60976B5F1EEED5C35C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 5 (2020) [AAC
 ```bash
 magnet:?xt=urn:btih:E603426F7F7F2E252701236530BB37134FC93A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 6 (2021) [AAC
 ```bash
 magnet:?xt=urn:btih:97444085FFD650912B7A3559C0CBED1E02671572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Amenra - De Doorn (2021) Japan Edition [FLAC|Lossless|tracks + .cue] <Doom Metal
 ```bash
 magnet:?xt=urn:btih:FF01DEDF157210E73C48EF9530F9C5DD8EA4A7AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B597C4776B19142B51D66A2E412F3D83C6CA658D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB918AF72ACE5D7F82E0BE43DB768EF58B416B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ The Austrian Blues Combo - Fading Away (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:666856DF6BE28541BD788D12C5CD3CF80CA257E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ Honey Suckle Vine - Painted Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:1783D38078F95C9FE8D80145C554D19BA09B9DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ The Eclectic Beast Band - Off the Grid (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:7DB3ABF0640E9391E40B1AB14629DA62FA1A9056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:160C8AE030AE99761373C023F0723E0B83392A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E16FCB39387BD5B0191AC950AA75C3860F83492A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ Vince Staples - Vince Staples (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:221AE3BD1D0BE2763CB24E6AEA0C123D0F0351EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F7D0293934BBC12D8AB138FBEB13753A58B105B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

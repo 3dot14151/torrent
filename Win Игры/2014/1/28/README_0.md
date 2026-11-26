@@ -19,8 +19,7 @@ Myths of the World 3: Spirit Wolf / Мифы Народов Мира 3: Дух �
 ```bash
 magnet:?xt=urn:btih:EC8F191069EB6C90D5028BAA0CBB5B6CA49A5035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dota 2 Mega Sets Pack (2014) [Multi] (1.6) Unofficial Art_khb
 ```bash
 magnet:?xt=urn:btih:03F55B37C7FF1E720755E8E62DF6EA8388104D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Linux-дистрибутив Rockstor 3.9, предназначенный для
 ```bash
 magnet:?xt=urn:btih:52701005C8AB5EBB4BCB7B269805B77824AAE87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ FreeNAS 11.1-U4 [x64] 1xCD
 ```bash
 magnet:?xt=urn:btih:EF9EF065DE4E4CF3565AC225B1A50851F8CB68F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

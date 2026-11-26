@@ -19,8 +19,7 @@ Human: Fall Flat – приключенческая головоломка с п
 ```bash
 magnet:?xt=urn:btih:9D61BAE030026D4169C86A7B76F99C5184BCCFBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064/dlc) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:77C930476F4C92D68EF43583E500DC20ACB2EA90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hellcard выполнен в той же стилистике, что и ори�
 ```bash
 magnet:?xt=urn:btih:1979287BDF3EFFD489B2F0725E440FCAE64F79FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3b) License GOG
 ```bash
 magnet:?xt=urn:btih:05AA619521E12988627D57ECD3C10BA3AEE91CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Crypt of the NecroDancer – популярная и хардкорная рит
 ```bash
 magnet:?xt=urn:btih:1BA9103FF536C2EAB73E38E6384ED2451A11922F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Harvest Island - приключенческий экшен с элементам
 ```bash
 magnet:?xt=urn:btih:251D765E8209BBD98D6BEDB2EDF5BA27EA95B597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Yohane the Parhelion - NUMAZU in the MIRAGE - (2024) [Multi] (1.0.14/dlc) Scene 
 ```bash
 magnet:?xt=urn:btih:41A7EB231CB28B45D1C1AA11BC12A64986762AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Elemental Exiles / Странники стихий (2024) [Ru/Multi] (1.0) Scene
 ```bash
 magnet:?xt=urn:btih:2C909E1D268766182FE99D04EEF9F749082A8A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:02F50CC7DBD98308D12FE70A891BAFF84C544023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B451DE18D35136675ADEE2142F52319D5A9FD9A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Rise Eterna War (2024) [Multi] (20240813 2) License GOG
 ```bash
 magnet:?xt=urn:btih:5779841EE1404F51ECF57DE116CB500F9B002840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Cavalry Girls - захватывающий шутер с видом сверху
 ```bash
 magnet:?xt=urn:btih:E0188C966C560D93BB691A96CCB35C6A0143DB07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Can't revert - это психологическая игра ужасов от 
 ```bash
 magnet:?xt=urn:btih:AD8C5445DCC3B28106665F709987F8621C40CDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ LightRay - это логическая игра-головоломка с вид
 ```bash
 magnet:?xt=urn:btih:C5C4321F1A47DEBDB59D34182B5F63E3AADDB693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Finding Mosey (2024) [Multi] (2.81) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:670717CD42B4480C51284225E93972839127496D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Office Fight (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7B8F1F596AB16A395D1E69BF7E64AAF8CDFB04D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Heroes of Eternal Quest – окунитесь с головой в настоя
 ```bash
 magnet:?xt=urn:btih:082EA33DCC5C57E6D100065FFA8082FA9102442F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Phantom Spark - это бешеная скоростная гонка, прох�
 ```bash
 magnet:?xt=urn:btih:8C6843861FDBA7CB748815C842F16981AAF7D90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

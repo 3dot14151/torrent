@@ -20,8 +20,7 @@ Darksiders II (Update 1) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:04ED75C9A57933DB126D4EA664D83B925612B64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Hero Academy - асинхронная пошаговая стратегия от
 ```bash
 magnet:?xt=urn:btih:5E30B0DC6C90FEAD6D4376C61BE19C712D9AEDEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Lunar Flight [En] (Steam-Rip) 2012 | R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:56077040118A116B31A3B506C3F6DB5946C2B4E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Kane Lynch 2: Dog Days [Ru/En] (RePack) 2010 | R.G. Shift
 ```bash
 magnet:?xt=urn:btih:BFF2A61952C50525CDFC0D3BF8DDBF6A5A72CB70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Shadow Harvest: Phantom Ops / Операции Shadow Harvest: Phantom Ops [Ru] 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

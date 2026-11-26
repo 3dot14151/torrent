@@ -22,8 +22,7 @@ Lumbee - Overdose (1970) Unofficial Release, Special Limited Edition [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:1F364585A0A4A5574780F7A3F23ECBEFE892D303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD66F3000A22C3EC0BC75D411A44D20A81ED0ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

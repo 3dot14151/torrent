@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C52661C164F1B1141E0416607DDF397375A23761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windows 10 сочетает в себе все лучшее, что было в 
 ```bash
 magnet:?xt=urn:btih:44FDA7E5ACB719B0B13B2B183BDFDE8F43B48E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

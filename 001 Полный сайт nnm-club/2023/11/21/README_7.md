@@ -18,8 +18,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 ```bash
 magnet:?xt=urn:btih:CAC81A33C572860C07897D59BBC02423829E9EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B37CBD196E5FABCE1E51A78EA45C3617B883BFAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

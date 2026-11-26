@@ -19,8 +19,7 @@ Reflections of Life 7: Slipping Hope (2018) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:33EC43AD7007E503D740CAA2404C45AA8446C9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Persian Nights 2: The Moonlight Veil (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:1E251B8BEFAC0834F9C8647DDEA0E3B272DFD8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ COLINA: Legacy – ужастик с элементами головоломки
 ```bash
 magnet:?xt=urn:btih:4B5175BF7738AA1C2360C8142CA3B7C2E2611651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9DA5F31E4CB71D96E0512C8621A6CC002485C542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:440F5A8CF3806071479E40FB19E443A19A3D8FD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ The Kinks - Misfits (1978) [FLAC 2.0 16/44 | tracks (VinylRip)]<Classic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

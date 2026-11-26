@@ -21,8 +21,7 @@ Unicodia — это энциклопедия символов Unicode с отк�
 ```bash
 magnet:?xt=urn:btih:B345D26430620E5C57A1F89242C42B32E80D9ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Rainmeter — это программное обеспечение с откры
 ```bash
 magnet:?xt=urn:btih:7589239D81ACA8A7F9C4A9B8B295A21C7C61F159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:1DD1F7414C343552DD27927537665B27D5BBB195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:8717D89064FA8714FD9921C58FE22CAB25060B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ PrivaZer – полезная утилита, которая поможет ва
 ```bash
 magnet:?xt=urn:btih:649D7C8945E5217EF1BFE563F913A60050E2AC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:BA058E18CADFD1F265FF222F247CB7076C425365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ AppControl — приложение, представляющее собой д�
 ```bash
 magnet:?xt=urn:btih:26269E458509B8626286323D01F3929F2652D7B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:CFA80953AF65FDF50AC19448F894B36ABF7FEC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ PDF Candy Desktop — универсальный инструмент, кото�
 ```bash
 magnet:?xt=urn:btih:D92D04E6EBDA516E3258B1560F315B733E20E373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Syncovery Premium 11.15.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9FB536C04DB4A7EA67F8D9BCE0F890D9B2F39D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ WinScript — это мощный, простой в использовании 
 ```bash
 magnet:?xt=urn:btih:C98D7407007BF559C2F1B5DA5F0486AFA9824299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Memtest86+ — это автономная программа для тести�
 ```bash
 magnet:?xt=urn:btih:6CF01E14801A916CEFD9B2FFB41CA452ADD7A5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:5644BF670ABCF0ACDECFF266C97E12CADB78CF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Total Commander PowerPack by SamLab — это расширенная сборк
 ```bash
 magnet:?xt=urn:btih:E71A003ED996A6649FA87283927A81C31D0A450C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Microsoft Office 2016-2024 хорошо демонстрирует, как се�
 ```bash
 magnet:?xt=urn:btih:AD426D583B620282105BADFD5C49C5C75EFFE34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Open-Shell Menu - замена утилиты Classic Shell, разработк�
 ```bash
 magnet:?xt=urn:btih:C2405384C643ABD1D9983925FCC4DE70449EFFE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ Executor — это настольное приложение для управ�
 ```bash
 magnet:?xt=urn:btih:066C03CA0B5ABA7578B88F3C9FC02B00B19CB834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

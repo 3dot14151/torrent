@@ -19,8 +19,7 @@ Lost Chronicles 2: Fall of Caesar / Забытые Хроники: Падени�
 ```bash
 magnet:?xt=urn:btih:461EDB995E6BCFFDFCF1C08DDDE84891241BA247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ironclads: High Seas / Броненосцы Главный калибр [Ru] (Re
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tales of Monkey Island - это пятая часть знаменитой са�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ironclads: High Seas / Броненосцы: Главный калибр [Ru] (L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

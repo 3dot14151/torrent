@@ -28,8 +28,7 @@ B5.  The Broadcast  :: 06:38Жанр: Pop Rock, Synth-popФормат: Vinyl, LP
 ```bash
 magnet:?xt=urn:btih:B06E2B07DFEFE98F0E4E3FAB4642A951FBD8E64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Black Sabbath - Klipsch Music Center, Noblesville, Indiana Aug 13, 2013 (2013) [
 ```bash
 magnet:?xt=urn:btih:148B8B2FD2195B7B9B7BC1C8992154CEDBA73218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ B2.  Hot Girls - Bad Boys  :: 04:10Жанр: Synth-pop, EurodanceФормат: V
 ```bash
 magnet:?xt=urn:btih:22EED0D71D4B25EC4073F3E5B1F4414756A5FDBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ B2.  Come Back And Stay (Studio Version - Instrumental Mix)  :: 05:51Жанр: S
 ```bash
 magnet:?xt=urn:btih:9FEB6B09E4FD66A833BFBDE8848C183FC696F8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

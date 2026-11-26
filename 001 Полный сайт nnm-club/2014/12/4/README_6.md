@@ -23,8 +23,7 @@ Selva - Life Habitual (2014) [MP3|320 кб/с]<Screamo, Post Black Metal, Post R
 ```bash
 magnet:?xt=urn:btih:717299BCBAED915CC52EED13EB9B9E28DA6150F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:124B46131F76EF90852236E3A97525DA8C81FF1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:841CF44611E02D41EB59C46605B7B53C81FCB801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4567136084B9CD719A7FC4BFA73D1D3EEB0F3A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Nodutgang:Sjalvmord - All Colours Of Rainbow (2014) [MP3|320 кб/с]<Depressive
 ```bash
 magnet:?xt=urn:btih:1E49FE7FB49746AECB52FB5D1973BA87FE489EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ The Godz - The Godz (2010) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C1989E64AC55C629B6492FADC115FCBC6AE16829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ The Paul Desmond Quartet - Live (1999) [FLAC|Lossless]<Jazz, Cool>
 ```bash
 magnet:?xt=urn:btih:2827CD82195A2D2BFAC9A773500A56E8E5AFAB88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ Phil Manzanera - Guitarissimo (1986) [MP3|320 кб/с]<Art Rock, Prog Rock, Expe
 ```bash
 magnet:?xt=urn:btih:69F269266AAF8203F07229164C5A42FC782BC6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ Primordial - Where Greater Men Have Fallen (2014) [FLAC|Lossless]<Celtic Folk/Bl
 ```bash
 magnet:?xt=urn:btih:D53EA2242DEE3EB3F7D7A4CA66FA74253B93E11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4F9B76744C5DCCE259C736E5C0355DDEF1B21E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B83CE0DF62EB37DA13519D7C7BF786ED7D655E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ Yumi - Epicureans (2014) [MP3|320 кб/с]<Screamo, Emoviolence, Hardcore>
 ```bash
 magnet:?xt=urn:btih:57FBD129FECB49CEE8730ED352BD5A5EDD8A2DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ The Hamburg Blues Band - Friends For A LIVEtime (2013) Vol.1 - A Compilation of 
 ```bash
 magnet:?xt=urn:btih:FBD9CBBDCFA26887CD3581E8030DE2241105AA02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ Connie Evingson and the John Jorgenson Quintet - All the Cats Join In (2014) [FL
 ```bash
 magnet:?xt=urn:btih:23304052438543F3A9F2D2F264052FD577E2CA6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CE1B68DC39E1A6FA1067A55E8BF3628E87F6BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C1C60483D7D107828932A2BBB76D54A0633A920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ VA - Merry Christmas Baby (1988) [MP3|320 кб/с]<Blues, Pop, Christmas>
 ```bash
 magnet:?xt=urn:btih:94FCC53E692575FEC08956D0D0A4BBBA8B5773E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:610E3998C3725B123CDDF3FBA8D85F84A2CF088A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ Candy Snow - Xmas Hits Remixed (2014) [MP3|320 кб/с]<Pop, Dance, Disco>
 ```bash
 magnet:?xt=urn:btih:372EBAE5B9F62C4AA37F4301B402FF559F163D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92F25E62D0BD11D6CEFFB992BAB5C1D6C00102CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44A868B4B799E0BE7B4499370D99FE8DCB897067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22CD86C5060E45D049C7129CAFA2F968CA8F7A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DAC839F0A48736B6E5CAD7866FE5FE81D10CEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +746,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1088A4220255BA12AF0743D6E95B073871CCCAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

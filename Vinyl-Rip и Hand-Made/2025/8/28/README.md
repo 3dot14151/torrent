@@ -22,8 +22,7 @@ A4 Звезден Път • Star Way(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:393D7668E3DA47E62A80F040BF2DF9D929E9EDA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Люби Меня • Innamorati(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:CD18AB015953071D46F25E3695D4443CE68F306E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

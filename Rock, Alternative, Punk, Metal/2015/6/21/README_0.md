@@ -22,8 +22,7 @@ Ignition - A New Conspiracy (2015) [MP3|320 кб/с]<Heavy / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A90DF0F1A7328D76DF768076189A19BE97C3795F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anuryzm - All Is Not For All (2015) [MP3|320 кб/с]<Power / Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:734351DBCD14429902691300B2FCEC735F51E966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Absolva - Flames Of Justice (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EF5F5D1D84F3DE0FD5B89C4D05F74D9E378DEC26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Negacy - Flames Of Black Fire (2015) [MP3|320 кб/с]<Heavy / Power Metal>
 ```bash
 magnet:?xt=urn:btih:AAD49FFD9FD18DE87961B80912929B0B3C5BF8DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Spearfish - In The Meantime... (2015) [MP3|320 кб/с]<Hard / Classic Rock>
 ```bash
 magnet:?xt=urn:btih:CFF3840134F86528E913357357B8094FD7C53F8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Twist Of Fate - Of Love And Lunacy (2015) [MP3|320 кб/с]<Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:15A2C8341CFE9024FDB4380D584F2EB95EDFD8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mount - Mount (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C23A71508FF94CA3B390F75C70B618DAABADEE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Heavens Gate - Best for Sale! (2015) Remastered [MP3|320 кб/с]<Heavy / Power 
 ```bash
 magnet:?xt=urn:btih:ED0FE20D6EE08B390DBB2D659B5F2E0C252F0366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Negative Self - Negative Self (2015) [MP3|320 кб/с]<Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:44F1589138D73FAE6D50B12AC670B4FB7628779F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Count Markus Cross - Possessed (2015) [MP3|320 кб/с]<Progressive, Hard & Heav
 ```bash
 magnet:?xt=urn:btih:76C504E9062D7E5EDA63A03A7F5D6F26315BED45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ DeLaurentis - DeLaurentis (2015) EP [MP3|320 кб/с]<Alternative, Indie Pop, EL
 ```bash
 magnet:?xt=urn:btih:DCE0DA64C49FF7DB01D8BA429AE873CC6D554E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Crystal Ball - Liferider (2015) Limited Edition [FLAC|image+.cue]<Melodic Power 
 ```bash
 magnet:?xt=urn:btih:5E994D09D91EFCEFD5C731222965CEA4C91956F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ The Agony - Dirty And Dangerous (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8036C02CAE0C44C7B8AC895734D02A00DFB673B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Art of Anarchy - Art of Anarchy (2015) [OGG|486-544 кб/с]<Alternative, Hard R
 ```bash
 magnet:?xt=urn:btih:34721C0A6DBC601B294F8F38D0816EE827A34998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Heart Rock vol.1 (1989) 2CD[FLAC|tracks + .cue]<Soft Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:E8368B7946299C2E5411C4D91834FBD2BF2977D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Brian Johnson & Geordie - Keep On Rocking! (1989) [FLAC|image +.cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F3486E5966C65AD1F709C129A809B0D578CEB652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ God Is An Astronaut - Helios | Erebus (2015) [MP3|320 кб/с]<Post-Rock>
 ```bash
 magnet:?xt=urn:btih:09A7D0085C41068753EBADF81DB5AED51DED4159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

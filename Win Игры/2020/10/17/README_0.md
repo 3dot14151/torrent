@@ -19,8 +19,7 @@ Fatal Evidence 3: Art of Murder / Роковые улики 3: Искусств�
 ```bash
 magnet:?xt=urn:btih:5968ADD44E30EECD58C6A45420C1D5E70651BE6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

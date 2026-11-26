@@ -19,8 +19,7 @@ Change MAC Address – программа, с помощью которой мо
 ```bash
 magnet:?xt=urn:btih:A923C249856AA845291130690E04D066E98FAB9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

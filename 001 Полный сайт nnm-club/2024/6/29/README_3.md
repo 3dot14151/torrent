@@ -18,8 +18,7 @@ Kasbo - The Learning of Urgency (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Te
 ```bash
 magnet:?xt=urn:btih:4EF430FD912DC47E553B0126B4DADF6968CE2D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ MotoGP. Этап 08 из 20. Гран-при Нидерландов. Квали�
 ```bash
 magnet:?xt=urn:btih:ADCBA879DFE965F39EB93CA2EFAD26368A65D466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Through Fire - Devil's Got You Dreamin' (2023) [MP3|320 Kbps] <Alternative Metal
 ```bash
 magnet:?xt=urn:btih:6982A3989D7AFA7B4D5409A778A8CBE5FA61D347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48F6F1FD9162215DCE22157DA92240AD6DE7E3E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF64659A88E46956DBA9BF0841577302E49934A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Anastacia - Our Songs (2023) Gold Deluxe Edition, 2024, Stars by Edel [FLAC 24/4
 ```bash
 magnet:?xt=urn:btih:2A9703933CAC42081948D436919C408403098422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ B1 The Long Run(   Читать дальше...   )Жанр: RockПродолж�
 ```bash
 magnet:?xt=urn:btih:FFDFCB3500B775B96DEBCA2DC7834BA606444094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2306692FF6C9229DCE5665487314116B7877DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - Stellar Transmissions (Compiled by Fabio Leal) - 2024 [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:3D734B32755A8A5475C735146FCFB5413F0D1D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

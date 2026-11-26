@@ -19,8 +19,7 @@ OneSafe PC Cleaner Pro 7.0.5.77 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4EE99D9C94407E72A5E0DD1CB15243223CD41A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

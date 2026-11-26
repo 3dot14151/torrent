@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:72AA8196C7D4C0C9BE9C880018E43BDAFE3DC53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ CDex 1.70 beta 4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:987D044E3A8CE7377B5FEB95BE0EFD799F999325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA9E0C2FCDB7424461A2CAC09F6ADD77BADF66FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF71AD88229765CB2DE895461B950EDC027301DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ The Bonnevilles - Good suits & fightin' boots (2008) [MP3|192 кб/с]<Garage Pu
 ```bash
 magnet:?xt=urn:btih:FE972A473FADF46CBDE4741AF04284F426C8C7D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Joe Cocker - Fire It Up (Bonus DVD) (2012) DVDRip
 ```bash
 magnet:?xt=urn:btih:D6F3D29B98D8FAEC3C7B21562200551DDD77E86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ VA - Vocal Trance Sessions vol.1 (2013) WEBRip [1080p, 720p]
 ```bash
 magnet:?xt=urn:btih:AFAE2DE162E3FD49F514B557EDD47A3D5A4D1038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ Kiss - Carnival Of Souls: The Final Sessions (1997) SHM-CD, Remaster /2013, Univ
 ```bash
 magnet:?xt=urn:btih:C13597CC8BC4CA14D9B064BEB52237DDA7007929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ Subby 1.18 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4E31A9A973EBC1F56B89DCEBF2B17C6AF7F6936F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ The Legend of Lotus Spring (2000) [Ru] (1.0) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:804738E3F49EA2063E277F4F99B7A9E427CCD463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ VA - Зажигательная Зарубежная Соточка (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:62CB951AE6DA9B5AC055F76EF9548B31616FD37A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ RonyaSoft CD DVD Label Maker - представляет собой програ�
 ```bash
 magnet:?xt=urn:btih:C4A5C8DCE39655CDDF443BEC36DC908336F64112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95EFE7ECA6D35827F746DDB8B06E0B4B1BB7B8C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81CF5B2377C33C44EBF852089C19917D94FA4DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F0202BEDC8282443F9C6D025C20D69A16AA9071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ Adobe Flash Player - межплатформенная среда выполне�
 ```bash
 magnet:?xt=urn:btih:F1D66EB3F312151A99C09EC5B1FD6078EC6D3DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +475,7 @@ Laurent Dury - Nature Atmosphere: Stream Purity (2010) [MP3|320 кб/с]<Relax, 
 ```bash
 magnet:?xt=urn:btih:5756F51802EE99B185D78F0F1C1E000F2664E254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +509,7 @@ Kiss - Destroyer (Resurrected) (1976) SHM-CD, Remaster /2012, Universal Music/ [
 ```bash
 magnet:?xt=urn:btih:D2A26EA6DA9EF3FED18E6494263A903ACD9CC28F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:166843DE15D4F6D0615A6BA283321974E67E4F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40037518CD19B3DF0678D977BDEA0B0592A333F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2ADF57AA98C613E9865D6A847FD0A6D9AFC2B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ VA - ItalianAfro Vol. 2 (2013) Dos [MP3|320 кб/с]<Club, Euro, Dance, Disco>
 ```bash
 magnet:?xt=urn:btih:16EA26FF9F4A0AF4602DEA7A3013450D10764265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +652,7 @@ VA - Alan Brando Project: The First Strike (2013) [MP3|~245 кб/с (V0)]<Italo 
 ```bash
 magnet:?xt=urn:btih:E01CE06FBA445744542469309B5C2E87FB82B6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +678,7 @@ Murator - самый популярный журнал, посвященный �
 ```bash
 magnet:?xt=urn:btih:6D718B2741E9F63C70BF0C6E17BB85366C277BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +703,7 @@ Speccy - бесплатная утилита, которая предостав�
 ```bash
 magnet:?xt=urn:btih:6EB27BC665DEAFD73C115BBF7225DA9F336C2F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +737,7 @@ Richard Marx - Repeat Offender (1989) [FLAC|Lossless]<Rock, Melodic rock>
 ```bash
 magnet:?xt=urn:btih:5E936B7F1E9AC2F1C6374988A028F0F9D83AABFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

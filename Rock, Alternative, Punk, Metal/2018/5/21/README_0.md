@@ -22,8 +22,7 @@ Deceptionist - Initializing Irreversible Procces (2016) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:28D8DA2E71325A919C280C37DF77ED331DB32087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Engel - Abandon All Hope (2018) Japan [FLAC|Lossless|image + .cue] <Modern Melod
 ```bash
 magnet:?xt=urn:btih:66EB49AAF0FEF5E64C407D28B1CB224F860F3331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lee Aaron - Diamond Baby Blues (2018) [FLAC|Lossless|image + .cue] <Hard Rock, B
 ```bash
 magnet:?xt=urn:btih:D0E3B9B2F78630CD42DB36FC9B928FC9726CFB20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Michael Schinkel's Eternal Flame - Smoke on the Mountain (2018) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:9A694D28BBD7FD0A67E764CAF60180BAFA92A869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Five Finger Death Punch - And Justice For None (2018) Limited Deluxe Edition [FL
 ```bash
 magnet:?xt=urn:btih:8A6F348D515720BFCCBF6D948965DF861DF97828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Hatecraft - Lost Consolation (2005) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:F02E7AFAADA6CB46EA1C6E471D4233729A2D6F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

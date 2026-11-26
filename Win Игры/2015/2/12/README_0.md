@@ -19,8 +19,7 @@ Mystery Castle: The Mirror's Secret (2014) [En] Unofficial [Platinum Edition / �
 ```bash
 magnet:?xt=urn:btih:2C9BA542265073E0A77DED660F6436A7D29C06AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Dimensions 5: Homecoming (2015) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:689DFA17620AABE38A8F138F97AA2B440373474F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mysteries and Nightmares: Morgiana / Тайны и кошмары. Моргиа�
 ```bash
 magnet:?xt=urn:btih:374A70D039E0A8B58BA4D6FEECE4EBA1338EC6F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wooden Sen'SeY – красочный экшен-платформер, выпо�
 ```bash
 magnet:?xt=urn:btih:0895F192EFB47785306B9E7BB8912DB825495296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Binding of Isaac: Rebirth - изометрическая аркада с р�
 ```bash
 magnet:?xt=urn:btih:E37C80EE72BAB07E53366E02FB2177FB0A2706EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

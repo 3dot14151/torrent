@@ -19,8 +19,7 @@ Flower of Immortality / Цветок бессмертия [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:A9A3DFF0E4B9AC7A92BD7A9AD2F483D62EFA045C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CF4618D20F769C784B972775DB5A42793D0D34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

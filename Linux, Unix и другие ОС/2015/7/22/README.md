@@ -19,8 +19,7 @@ Calculate Linux 14.16.2 (MATE) [i686,amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:94698E3F8F20796B41C99067822479E2CB2AEA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Chromixium 1.5 [i386] 1xDVD
 ```bash
 magnet:?xt=urn:btih:2B6650829A1F83F0CAAAA0F401FB2A7B6350827A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

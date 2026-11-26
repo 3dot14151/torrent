@@ -24,8 +24,7 @@ Solefald Vs. Sturmgeist & The Fall Of Rome
 ```bash
 magnet:?xt=urn:btih:96CDD3E31AB016D812C3F37D985F2B2BD6F253E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ M.G. - К Чорту Гарэлку (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:CDB729DA5EE7B31BD14F3C0211BA61B5831F9B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Sleeping Giant - Finished People (2014) [MP3|320 кб/с]<Metalcore/Hardcore>
 ```bash
 magnet:?xt=urn:btih:E6F16ADF09F1D2B52FC165B72FB5739DAFDED02E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Hammercult - Steelcrusher (2014) Japanise edition [FLAC|Lossless]<Death/Thrash M
 ```bash
 magnet:?xt=urn:btih:C4490FDE9053CD775818AF22EB2DEF5F19A22A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Peripetia - Illumination (2012) [MP3|~299 кб/с]<Instrumental Power Metal>
 ```bash
 magnet:?xt=urn:btih:42E4C5CBEA6AC511FE62EB1C86BA1717260076CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Immigrant Union - Anyway (2014) [MP3|320 кб/с]<Folk Rock>
 ```bash
 magnet:?xt=urn:btih:F76E5E6DAE738C866D85486F8F78753E7C339C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Kopek - Rise (2014) [MP3|320 кб/с]<Alternative/ Modern Hard Rock>
 ```bash
 magnet:?xt=urn:btih:10A91604AB5711F14A2F0B183E3BFD1233598678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Satanic Warmaster - Fimbulwinter (2014) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:C5598065094056B7BD379A5E31077D05116C25CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ Broken Oath - A Different Way (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F43B2AE5E81F01DE418E25F4FDBE758AEA371434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ Excite My Ox - Made in France, 1859 (2010) [MP3|320 кб/с]<Alternative | Male 
 ```bash
 magnet:?xt=urn:btih:7B535805B61E366ABE2BE419B95B967CD57C8036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ Emigrate - Silent So Long (2014) [FLAC|Lossless]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:7B76D4F9930624478ED1B5168DF8AABAE00A7317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +384,7 @@ Kongos - Lunatic (2012) re-release /2014/ [MP3|320 кб/с]<Alternative/ Indie R
 ```bash
 magnet:?xt=urn:btih:A65095F92230EAC54472E3EFFAFC8EACCBC5364C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +412,7 @@ Nu, Pogodi! - 3 Альбома (2012-2014) [MP3|320 кб/с]<Hardcore Punk, Crus
 ```bash
 magnet:?xt=urn:btih:489D5F9F718E2585BEE54EF36684A55C918AC16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +440,7 @@ Nickelback - No Fixed Address (2014) [FLAC|Lossless|WEB-DL]<Rock, Alternative Ro
 ```bash
 magnet:?xt=urn:btih:19F23A9C11FC83DB66BF3674C72513552B37F4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Eucharist — шведская метал-группа, основанная в 
 ```bash
 magnet:?xt=urn:btih:B58C92B655A0974235EF4E4CA06AA1FAD14BC230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Noumena — мелодик-дэт-метал группа из Эхтяри, Ф�
 ```bash
 magnet:?xt=urn:btih:02B8130AB524ACE1B3C6914CD77226239A1A1653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3EE7A2312B8522ADCE2EFF8C00475B892F02A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

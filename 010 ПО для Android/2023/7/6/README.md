@@ -19,8 +19,7 @@ Energy Ring - ещё один проект по персонализации, ч
 ```bash
 magnet:?xt=urn:btih:20B28A1F80B8C594D1C96FF3E6643B7B6C7E8231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AOA: Always on Display - проект по персонализации, что 
 ```bash
 magnet:?xt=urn:btih:D8EFD82209EC6A7EBBD9147CE6FA3105D6D4AB95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

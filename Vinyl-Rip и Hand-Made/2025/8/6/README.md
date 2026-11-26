@@ -22,8 +22,7 @@ Slaughter to Prevail — российская дэткор-группа, осн�
 ```bash
 magnet:?xt=urn:btih:318497F6114A7D202D9D796F776F4AD04A8F687E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

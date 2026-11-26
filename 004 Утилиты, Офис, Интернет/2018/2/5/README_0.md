@@ -19,8 +19,7 @@ PDFMate PDF Converter Professional - является очень действе�
 ```bash
 magnet:?xt=urn:btih:4A32576386412E35ADF197EC8BD1DB974B700A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

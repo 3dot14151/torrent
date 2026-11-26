@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:023250140EE7BEA1F395D3CEA13B8907C2684F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Sims в Средневековье. Игроков ждет захватыв
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

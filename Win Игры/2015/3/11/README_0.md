@@ -19,8 +19,7 @@ Beyond the Invisible: Evening (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F268623597799BE889F6C3C774681DE7BFDB9534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mushroom Men: Truffle Trouble (2015) [Multi] (1.0) Unofficial FairLight
 ```bash
 magnet:?xt=urn:btih:4D93D0FA4EAFD3164E2A044B2F2FFFF78759E824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

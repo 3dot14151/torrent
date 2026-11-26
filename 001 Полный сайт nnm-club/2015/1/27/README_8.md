@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ADAAD26C14687FC050EE7253A1AAF1F88DC771A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Seventh Circle - Not Worth Saving (2015) EP [MP3|320 кб/с]<Blackened Hardcore
 ```bash
 magnet:?xt=urn:btih:7873F4EFC6DB4E4F96641B64CBDABE60A2B48140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ EPs, Demo:
 ```bash
 magnet:?xt=urn:btih:01304811DD372602D2814289C391987C5886DA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AE709008F06E21E7F15D81A78034F003DA51A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Winds Of Genocide - Usurping The Throne Of Disease (2015) [MP3|320 кб/с]<Deat
 ```bash
 magnet:?xt=urn:btih:0BE3CA9E812B117B0F8DA2624F631D83E6724A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Organ Donor - Stupid Tourist (2015) EP [MP3|320 кб/с]<Hardcore Punk, Crossove
 ```bash
 magnet:?xt=urn:btih:52022C8436D4F157EEE6395DADACCC306D462085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ EPs:
 ```bash
 magnet:?xt=urn:btih:6CE06ADDBD4FD04768D427F47DADBBFA6BEA0D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6E6E660740BE1DCCABEA5FA5D5BD1253A9AF444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E9D4A5AE822A81BE10A71BD83F8B33787B7B392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Beirah - Cuatro Vientos (2015) [MP3|320 кб/с]<Progressive Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:50180FD5B200BC156A474A882459EE02D5807EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ Larry Young - Contrasts (2014) [FLAC|Lossless]<Jazz, Hard Bop, Soul, Jazz Funk>
 ```bash
 magnet:?xt=urn:btih:15D5EA5A9E5F6BFF7C44903FCB13D89A6E7DA046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A473B39DB59A13B4815A50B0B8BEF8F9280CFF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20CD7187DA85D3C711B8AAF5679AC61C5909524E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F224735D8A0A185B2966E47CFD2DC2DDC1783A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Their Dogs Were Astronauts - Earthkeeper (2015) [MP3|320 кб/с]<Progressive Me
 ```bash
 magnet:?xt=urn:btih:B183A2A1AB9AB16740147627130D049ECA10DDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB5C28BA20AB6E9CFCADCF94CE77F6C6722747ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ Revenge - Harder Than Steel (2014) [MP3|320 кб/с]<Speed / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A48C1D8F1F20B2238868ABD61AD17ABA38E2F323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Discovery: Эффект Карбонаро / The Carbonaro effect (2014) HDTVRip
 ```bash
 magnet:?xt=urn:btih:366F35FFF6E392BC819807CBEB2FF62A3783E67C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ Paul Desmond - Pure Desmond (1987) [FLAC|Lossless]<Jazz, Cool>
 ```bash
 magnet:?xt=urn:btih:198A86A7B357D5B8F31DEF349C6363476E6FEE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6BA2677A3B00B623A3A0E6E3EC7E74F20588C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ Gerald Albright - Just Between Us (1987) [FLAC|Lossless]<Jazz, Smooth Jazz, Pop-
 ```bash
 magnet:?xt=urn:btih:69C1283121BFC6A4EEBA8749501A7C4043383102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ Ella Fitzgerald - So Danco Samba (1998) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:B9063727AB7D47CBF3406C9C3E39AAEDD88487A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +653,7 @@ Exgenesis - Aphotic Veil (2015) EP [MP3|320 кб/с]<Melodic Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:6133BA0AE3246ED0613A764F96CADD54293E5BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7217E3F7517180E0E04D5E57BAF6B2C6CDAF85BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0561D967A20D4EB8283BCAE50300F56882D1DDE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +738,7 @@ PUTS (People Under The Stairs) - 12 Step Program (2014) [FLAC|Lossless] <Hip Hop
 ```bash
 magnet:?xt=urn:btih:66350769CE7342AE482542125EDD1BBCB5E2F899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cake Mania / Тортомания. Рецепт успеха (P) [Ru] 2006
 ```bash
 magnet:?xt=urn:btih:8F0205B2B62C6BA3093B0114261FBAC50037DE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cake Mania 2 / Тортомания 2. Магазинчик сладостей (
 ```bash
 magnet:?xt=urn:btih:8D1445B924376C47D7BB8961750AA542E1898A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Trapped Dead — тактическая стратегия в реальном �
 ```bash
 magnet:?xt=urn:btih:BF45908E8B7F05C5317BF8F69C49AFAB2BBF89AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ AeroFly FS позволяет войти в мир полётов, которы�
 ```bash
 magnet:?xt=urn:btih:7F1BDE887DEFCD295177F9FA00CF902D9A4FF6A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

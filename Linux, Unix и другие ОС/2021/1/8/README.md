@@ -19,8 +19,7 @@ Debian – операционная система Linux, состоящая и�
 ```bash
 magnet:?xt=urn:btih:E9F4DD25A5512ABA350681172C5D5DAA92A06D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

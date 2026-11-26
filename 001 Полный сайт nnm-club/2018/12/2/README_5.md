@@ -18,8 +18,7 @@ Spybot Anti-Beacon for Windows 10 1.6 [En]
 ```bash
 magnet:?xt=urn:btih:FB29E6EE193DCD440AFAEDD6B3D5B8FCF73C3F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A739E948DA0483BC145C85AFE10E7050F9E913B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ mini10PE 18.12.2 [Ru] [x86/x64] (авторская раздача)
 ```bash
 magnet:?xt=urn:btih:C35D1CD31CD6BB751E5D3FC7213FE825DA8D9810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BBC. Horizon: Чернобыль. Внутри саркофага / Inside Chern
 ```bash
 magnet:?xt=urn:btih:5FEF3960C48FDEE03E843DFD30FF894AA1239816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D69CD45E57E45C534B4221961B417D34A3EABB0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Windows 10 x64 Release by StartSoft 39-2018 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4E4447B144CA75A83D8D46B91FF54959D0BA8059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77AD34A5F9F74526721B94D1ECA56836108AD44B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B2BC265A60B70D3FBE67C4A079650F6DD3AD69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Windows Login Unlocker 1.0 (тестирование) [En]
 ```bash
 magnet:?xt=urn:btih:9777430B5104084BFD6315EB464DB6D8B4B1BBFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Di Young - Listen To Your Heart (2018) [MP3|320 Kbps] <Trap>
 ```bash
 magnet:?xt=urn:btih:70B64D4946113C439790E19938C0C2D318365D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ VA - Radio DFM: Top 30 D-Chart 23.11 (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:0E866B36933A9B810DA7071D58FEECEE7334D664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ VA - Hit Music от Мяу: Зима (2018) [MP3|260-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:4F89D47319FF72B26CF74CC64EE643C56B84E81A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Domina — симулятор (с элементами стратегии), ко
 ```bash
 magnet:?xt=urn:btih:77EF5202676125B3F7D07D5E442BF1AA65F630B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ BELOFF 2018.12 [Ru]
 ```bash
 magnet:?xt=urn:btih:FC2F5B07BC60A4CF98DC75AFC985E48C81691E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Avito: россияне избавляются от майнинговых фе�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:38A91CA42AF0875959E3A57D427FCAA1BCDD698B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ The Legend of Zelda: Breath of the Wild (2017) [Switch] [Region Free] 4.1.0 [XCI
 ```bash
 magnet:?xt=urn:btih:F22075875E018222FD590988B2E1FB0FB5189751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ London 2038 не является переизданием вышедшим в 2
 ```bash
 magnet:?xt=urn:btih:54FEF2F302039232B4C29194DCC06C286CA44CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ The Legend of Zelda: Breath of the Wild (2017) [Switch] [Region Free] 4.1.0 [NSP
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ AIDA64 - данная программа является многофункци
 ```bash
 magnet:?xt=urn:btih:70BB3B9A265B6F6581433E88A07789C4E831C018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DF330489637A2D7C0B6B722FA9FFBF5DB330A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +602,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 11.2018
 ```bash
 magnet:?xt=urn:btih:3C1B4946423F5BF8F758A387C4E5E788CAA34E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19D1879CCE3F795C568FD0C800F8C0C57F596ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

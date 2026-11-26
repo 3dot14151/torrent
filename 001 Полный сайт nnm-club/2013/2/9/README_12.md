@@ -20,8 +20,7 @@ Wolfram Mathematica 9.0.1 [English]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Star Wars Collection [Ru/En] (Repack) 1987-2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:0C9882150F1D3C4EC0BEC99631133307A683D7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/8dlc) Repack R.G. Games [Limited Edition]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D7DF2AF704C68BC3DC3E8F0AEA7CFB924369AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

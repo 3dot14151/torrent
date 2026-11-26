@@ -22,8 +22,7 @@ UNBLOCKERS - Бытие (2020) EP [FLAC|Lossless|WEB-DL|tracks] <HardCore-Punk, 
 ```bash
 magnet:?xt=urn:btih:7F068AFA12244D5DCF4D6278109A4D929E3600F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

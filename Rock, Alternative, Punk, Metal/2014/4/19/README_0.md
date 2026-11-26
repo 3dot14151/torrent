@@ -24,8 +24,7 @@ Shattered Hope - Waters Of Lethe (2014) [MP3|320 кб/с]<Atmospheric Doom/Death
 ```bash
 magnet:?xt=urn:btih:4CA84572EBCCE6496368600D440B254884510BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Hammercult - Steelcrusher (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B84393CE1DB42039E3B4B6EA52CDD9A675842644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Archspire - The Lucid Collective (2014) [MP3|320 кб/с]<Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:6396B27123EB87843DD3E77207821C5641834298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ One Machine - The Distortion of Lies and the Overdriven Truth (2014) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:FE09B7BE697FA09D8FEC24F7D4CD5FC9A0F9FD69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Kirk - Masquerade (2014) [FLAC|Lossless]<Melodic Progressive/Power Metal>
 ```bash
 magnet:?xt=urn:btih:447B43D20A460F56EE617B6807F8674FF26740BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:836274B43F4A6B72A49D83850B2DE6D8A00DC916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ The Pack A.D. - Do Not Engage (2014) [MP3|320 кб/с]<Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:63C991180873FF72EDCCEE74D82441E7C6B2B865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Sinbreed - Shadows (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:2FD944AE0A27F035693FD7336F2680C25D6298F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ The Oath - The Oath (2014) [FLAC|Lossless]<Heavy/Doom Metal/Rock>
 ```bash
 magnet:?xt=urn:btih:B12AFBA7EDDFC2BFB6F8B86AC2B69295D7DEA980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ Heisskalt - Vom Stehen Und Fallen (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:6BF9A762386CE19F934209C75EE34A5C41438E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ W.E.B. - For Bidens (2014) [MP3|320 кб/с]<Dark Metal>
 ```bash
 magnet:?xt=urn:btih:C016FAF4CD933D247F4C2B9938834BE41E2D7386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ Original: Vertigo / 6360 025 / 1971'(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:52C3590C3E5F5FA838D5335C321D98009028A8BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5C37BC2D565AAE506CBB62DF034B7213103D9D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +449,7 @@ Triptykon - Melana Chasmata (2014) [FLAC|Lossless]<Gothic/Doom/Death/Black Metal
 ```bash
 magnet:?xt=urn:btih:47E874CABA0383E8436AEFA910CEFAF5358E6504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

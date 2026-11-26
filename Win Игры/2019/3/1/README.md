@@ -19,8 +19,7 @@ Mystery of the Ancients 8: No Escape / Тайны древних 8: Тупики
 ```bash
 magnet:?xt=urn:btih:3E84ABC37EC5B5F6F12EEB05E21A095A52CA0B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) License PLAZA [Episode 1-3
 ```bash
 magnet:?xt=urn:btih:B351BF2EA7C8DCDB44B18CEA75A273537D3651A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D2B855B49DB572A849719D989CFFDAF6C955032F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.21/1.0.8) Repack R.G. 
 ```bash
 magnet:?xt=urn:btih:022512AFA6874A3E29EB4B38C8B4323AD49E5EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) Repack Other s [Episode 1-
 ```bash
 magnet:?xt=urn:btih:5709E7F5BDF2D825758B1F85B5E2C127B8451A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

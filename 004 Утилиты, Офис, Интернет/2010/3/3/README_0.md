@@ -19,8 +19,7 @@ Moleskinsof Directory Size v 2.4 [En/Ru и др.]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

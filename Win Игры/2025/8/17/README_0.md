@@ -19,8 +19,7 @@ Stellar Monarch 2 - это глобальная стратегия в научн
 ```bash
 magnet:?xt=urn:btih:BADEA987AAC59189172E2E904309AA9E774E752F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E9ACFE6045174638627BA022AA836FB9E785C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Disaster Report 4: Summer Memories (2020) [Multi] (1.05(a)/dlc) License GOG [Dig
 ```bash
 magnet:?xt=urn:btih:5F1D7D9A526DF707662E28DC36C85042B4E9DAB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Intravenous 2 погружает вас в мир жестоких интриг 
 ```bash
 magnet:?xt=urn:btih:8FBE319A63AEA37133B7D26858419CA3B6D8ADC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Boxville 2 от Triomatica Games - это следующая часть прик
 ```bash
 magnet:?xt=urn:btih:AABF980F65B9A0AF6BC8F1B63D1384734619ED6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Echoes of the End - кинематографичный приключенчес�
 ```bash
 magnet:?xt=urn:btih:9013AD79F43835888685C7D298D187F62406D31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Arctic Motel Simulator (2025) [Ru/Multi] (3.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0F9848E731B92B582A3B3FB594E134A641F9B6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
 ```bash
 magnet:?xt=urn:btih:F73D47797C23E4AFA04241757C03E5FF29F84E0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:F4A6072E1B14013BF7475F776E68B46D37F476B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 ```bash
 magnet:?xt=urn:btih:159ECD04D01A025F12293C7B028B2F59A79A8C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ ORDER 13 (2025) [Ru/Multi] (1.12) License GOG
 ```bash
 magnet:?xt=urn:btih:2AF16D49B30995494644552F2DD7DA9A25E1372F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Deadzone: Rogue - это roguelite-шутер от первого лица, де
 ```bash
 magnet:?xt=urn:btih:21EBB2C680F5F7A9BA8BE3D3C50F81BD14BFB807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Tales & Tactics – перед вами классический автобат�
 ```bash
 magnet:?xt=urn:btih:D3AD8CC4CC2E17AC12EEF0EEDFB67A7DD153E225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:4CB4C0ABE65D3EC7BE10B0D924F7EADAC084D103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (build 19595286) Repack seleZen 
 ```bash
 magnet:?xt=urn:btih:C4B354785912E69FE417F3E71F2FA5D3536721CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ DREADZONE (2025) [Ru/Multi] (1.4.5.2) Repack AIexandro [Early Access]
 ```bash
 magnet:?xt=urn:btih:B757399BEAFD7659400CCFDDF7A2691C0A907E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 ```bash
 magnet:?xt=urn:btih:E058AF6C1239F9EB8D274F59265B48B459F5A4F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Somerville (2022) [Ru/Multi] (Patch 4 Build 11993672) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C9CF747852D3042D6673275A2ABE27955D675758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 ```bash
 magnet:?xt=urn:btih:DA12F107E42090495C1191C17B2CCB59B4430D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.0.889.0) Repack FitGirl [Defi
 ```bash
 magnet:?xt=urn:btih:F372C4A629979DADDBAF090C13E9CB047316B313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

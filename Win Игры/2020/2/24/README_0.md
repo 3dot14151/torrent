@@ -19,8 +19,7 @@ DreadOut (2014) [Ru/Multi] (2.2.18) License GOG
 ```bash
 magnet:?xt=urn:btih:B19646E586D5B46250775AAEB0A87A2F2161071A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wolfenstein®: The New OrderTM - это возрождение серии, ко�
 ```bash
 magnet:?xt=urn:btih:0F5AC48398C6356AD2592D7F2AD2852F6C5D9DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Caesar - компьютерная игра в жанре стратегия, р�
 ```bash
 magnet:?xt=urn:btih:5459C7BB053A17A0E77D9F3640B51E6E2FB97699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Caesar II - это прежде всего отличнейший продума
 ```bash
 magnet:?xt=urn:btih:4ADB7B42F91DF8A5E15880A19F2636CCC43713EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Emperor: Rise of the Middle Kingdom (2002) [En] (1.0.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5ABC8CCED250898E2D3BE023237FF7E118B705B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wing Commander™ 4: The Price of Freedom (1995) [En] (3.0.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6F60B1C62D1C71FA0B684CFF9140F5FCD11BBDE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

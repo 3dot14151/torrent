@@ -28,8 +28,7 @@ Angeli Di Pietra - Anthems of Conquest (2011) [FLAC|Lossless]<Folk Metal, Power 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Guy Clark - Old No.1 (1975) [MP3|320 kbps]<Rock, Country>
 ```bash
 magnet:?xt=urn:btih:11F03B3CAF03A17AEFEFA1E9B3AB506A192E7CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Kill The Romance - For The Rome And The Throne (2011) [FLAC|Lossless]<Melodic De
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

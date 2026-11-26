@@ -28,8 +28,7 @@ Bonus Tracks(   Читать дальше...   )Жанр: Progressive RockПро
 ```bash
 magnet:?xt=urn:btih:A4A29049EE88D10670630C05EBB7BE4BF2B20F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Eric Clapton Featuring Keith Richards - Hear My Guitar Weeping (2003) Bootleg [F
 ```bash
 magnet:?xt=urn:btih:3DCB2195AB8AA7E420D63B7D87E5BBEE1EFA8FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Muse - Live At Rome Olympic Stadium (2013) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:C8BF2117929C3BDD13C397BC979B0F4DC6A33F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Kingdom Come - Kingdom Come (1988) SHM-CD /2013, Universal Music/ [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:687576F0C2DE31C8E375ABB51B5FF869DB71E9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ The Who - Who's Next (1971) Platinum SHM-CD /2013, Universal Music/ [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:AF22B638CFF7958236EA45B0ADE42DEDA5015162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ The Beatles - The U.S. Albums (2014) (13 CD Box Set) [FLAC|Lossless]<Classic Roc
 ```bash
 magnet:?xt=urn:btih:C0873245EA28B4261974AF68F1C5398903D04C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

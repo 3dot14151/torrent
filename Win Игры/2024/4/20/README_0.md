@@ -19,8 +19,7 @@ It Happened Here 3: A Storm is Brewing (2024) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:A96D68C035A972162AD7C5AB22A7364BB6A2BA2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lil' Guardsman - это восхитительная и увлекательна
 ```bash
 magnet:?xt=urn:btih:ADF5C1ED7BE50081A9B5EA56898A8909A78295C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9495A2BF833623D9A3D0F5589B5B7B44761F5CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.9501/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:6FF85EC917740573C2AC03E56A3C21008B1D67AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rise of the Triad: Ludicrous Edition – эпическая реинкарнац
 ```bash
 magnet:?xt=urn:btih:B6F13E2210A62F468AC864C64B2AF853B2E7C898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0upd14/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:126250A18EBF678C01CB7112635FBE13958D29E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Turbo Kid представляет собой метроидванию с дву
 ```bash
 magnet:?xt=urn:btih:E14360B3C84A4C051434977082DA12017C4C61CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Goons: Legends & Mayhem - это увлекательная смесь хокк�
 ```bash
 magnet:?xt=urn:btih:2BED6B67714414D690B2680FC2AC8ACD9094C6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Our Adventurer Guild - ролевая игра, где вы переместит
 ```bash
 magnet:?xt=urn:btih:D6DCB80BCA149D85D13C02B5E1F2C3C62FFA6BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

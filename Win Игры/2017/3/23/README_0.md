@@ -19,8 +19,7 @@ MewnBase (2017) [Ru/En] (0.34.1) Repack VseTop
 ```bash
 magnet:?xt=urn:btih:FB53207CE0FDBB4F36E3F602BFF5723CB4CC126C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

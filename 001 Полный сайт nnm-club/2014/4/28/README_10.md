@@ -19,8 +19,7 @@ Microsoft представила версию Bing, свободную от ре
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Elegant Lounge (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:333C8E7F1B0A1E93D3E504B05B7E7D3856217B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Lenny Marcus - Distant Dream (2012) [FLAC|Lossless]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:26C2FC7C1F56EA8F32EC4B91F713FC222CA33B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Leni Stern - When Evening Falls (2005) [FLAC|Lossless]<Smooth-Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:48A9184E17232B53872158966F936571096748C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Lee Press-On and the Nails - Jump Swing from Hell:Live at the Hi-Ball Lounge (19
 ```bash
 magnet:?xt=urn:btih:9D33AE43CB24BE42F822BCF6E5D38D9A4EA5F21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Leila Martial - Dance Floor (2012) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:D0BC220F71BFE0264D9E7B9A23295FB7DB16524C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ VA - Q-Dance Hardstyle Top 40 April (2014) [MP3|320 кб/с]<Hardstyle>
 ```bash
 magnet:?xt=urn:btih:78010395D33AADEC1ED1DD1B83B407191082102C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Ascendant - New Land (2014) [FLAC|Lossless|WEB-DL]<Ambient>
 ```bash
 magnet:?xt=urn:btih:3BC3AD2D80253F6B98F8A0EDB5B656AC96FB8546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B968A14B129FE3F7385DD58CE9D922C8AF24C674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Lee Press-On and the Nails - Playing Dirty (2000) [FLAC|Lossless|WEB-DL]<Swing>
 ```bash
 magnet:?xt=urn:btih:AC6F1CBE9A18F30277BCAD12F684201BB53DE1E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ Porter Robinson - Sea of Voices (2014) [MP3|320 кб/с]<Electronic, Chillout, A
 ```bash
 magnet:?xt=urn:btih:8C234896B93665D5F364FBB7791A6ED4F5D63ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ Axit - Documents (2013) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Glitch>
 ```bash
 magnet:?xt=urn:btih:E230B3318BA44971A1070E039899157E459B33F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ Lenny White - Anomaly (2010) [FLAC|Lossless]<Fusion>
 ```bash
 magnet:?xt=urn:btih:81E7CFBE858658C902F81D881D028294394689EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +426,7 @@ Chords - High Groove / Summit (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:FC0981F4BE5F343443059B92C8E0F01863E83CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ Marta Hugon - Tender Trap (2006) [FLAC|Lossless]<Jazz Vocal>
 ```bash
 magnet:?xt=urn:btih:31AFB77C5D4B29F529334407C520977D5F84EE3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +494,7 @@ VA - Top Club Music World Hits 15414 (2014) [MP3|320 кб/с]<Club, House, Progr
 ```bash
 magnet:?xt=urn:btih:C33A531CA8F4460FD75301AABC085F989376496B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +528,7 @@ Toots Thielemans - Live (1987) [FLAC|Lossless]<Contemporary Jazz, Standards, Str
 ```bash
 magnet:?xt=urn:btih:A65FD83C2A8979845BE1A26040AD8A513087297F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:649EEB6686223C3554AA85379E038817004FD2E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +588,7 @@ Lee Press-On And The Nails - El Bando En Fueco (2002) [APE|Lossless]<Neo-Swing>
 ```bash
 magnet:?xt=urn:btih:478FA98D3048D5A6660F368AE97F28DCC946BF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +616,7 @@ Late - 4 EP (2008-2010) [MP3|320 кб/с]<Dubstep, Bass, 2-Step, UK Garage>
 ```bash
 magnet:?xt=urn:btih:F2C4BB4465871C77B3A2C1FC3E3CFF95B7AB82E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F854527A82A24F42DD89230A219456013E980B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +669,7 @@ Frankee - Gully / Away (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:AC6CE02A2382D5A6EAEFB7EF9394B262438E6458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +702,7 @@ Jacintha - Jacintha Goes to Hollywood (2007) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:8AE992A38C71E3733BED8DCACE18DF120673346C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +727,7 @@ Wallpapers - Graffiti [JPEG]
 ```bash
 magnet:?xt=urn:btih:D35F21BEAB37BAD9D9FFB8E05192972F8B3274B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +761,7 @@ Lenny Mac Dowell - Flute Power (1995) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:32C3750CAE97C59155B2B696A81FE2CCD9ADDC8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -820,8 +795,7 @@ Innovation Reality (Zentriert ins Antlitz) - Tearswitcher (2013) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:3E27970D295396123CC110D6755E703885B95252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

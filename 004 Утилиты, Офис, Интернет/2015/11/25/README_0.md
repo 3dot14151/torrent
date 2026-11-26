@@ -19,8 +19,7 @@ Linux Live USB Creator 2.9.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:458EB3F2795C8927B4664EC3797A4C663F0EF610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

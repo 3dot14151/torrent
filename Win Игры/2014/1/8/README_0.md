@@ -19,8 +19,7 @@ Tales of Lagoona 2: Peril at Poseidon Park / Сказки лагуны 2. Спа
 ```bash
 magnet:?xt=urn:btih:C9B07B746E88EBE2AB02127517FCD8314D25B872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Trials Evolution: Gold Edition (2013) [Ru/En] (1.0.5) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:4256D67E0E4DAAFAFBFDC8E77655CB5760E78F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

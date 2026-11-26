@@ -22,8 +22,7 @@ Ashes Cricket 2013 - это реалистичный симулятор крик
 ```bash
 magnet:?xt=urn:btih:D98DF78A8C1E63FF004235F5DE14981F4D2CF279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Acronis True Image 2014 — это интегрированный пакет п�
 ```bash
 magnet:?xt=urn:btih:8ABAC41D75931EF06F9330B663390FE42199B4CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ LockHunter - бесплатная утилита для удаления фай�
 ```bash
 magnet:?xt=urn:btih:98FD2723687D24F9932E783FD00566DA0B6B022E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4BA1A2BC5D8A48E3ACF5E7219279965E5EFF64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:4136BDCF5EC999CB48C970D2298BA3A0DABE452F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Ad Muncher - предлагает вам новое быстрое и качес
 ```bash
 magnet:?xt=urn:btih:17147240309D6DD9A9842AFE67A5D4F2A6D93037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ The Mysterious Cities of Gold: Secret Paths (2013) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:F017DBFB3A84471676E02C91A5567063CC8C2D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Kon-Boot - это прикладная программа, которая изм
 ```bash
 magnet:?xt=urn:btih:B88C1DCDE709C04FF1C6B6928B4E75BC8265D346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8A3309C6A43F961EE453BD716958CE44F9AB62F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Acronis True Image 2014 — это интегрированный пакет п�
 ```bash
 magnet:?xt=urn:btih:2BD606C9F932EF5B63E540867ED77658B09A2F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04EC59EAC4F08860769DBFCE485FE16D7F80B6A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ The Bureau: XCOM Declassified (2013) [Ru] (1.0u1) Repack Audioslave
 ```bash
 magnet:?xt=urn:btih:278F00BB1D8BD96679E0A7E5BDAA2E4282F9A350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Windows 8.1 — это еще большие возможности персон
 ```bash
 magnet:?xt=urn:btih:7DF1E8B6150A8F4130D17436DBA790B9D38D2D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

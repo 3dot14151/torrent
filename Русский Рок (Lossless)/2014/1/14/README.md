@@ -21,8 +21,7 @@ Ishimura - Transition: vol.1 (2013) [FLAC|Lossless] <Post-metal \ Post-hardcore 
 ```bash
 magnet:?xt=urn:btih:8F309D21219B6B78227C44C1B1A3686E3930E0F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Death - 2 демо (1984 - 1985) [MP3|128 кб/с]<Death metal>
 ```bash
 magnet:?xt=urn:btih:CAD054F5538F768DC1D898386029815D98026494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Chrome Hoof - Chrome Black Gold (2013) [FLAC|Lossless]<Prog Rock>
 ```bash
 magnet:?xt=urn:btih:8DF5557851FB2BBA4F712F3008FA30DF7D57B361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Death - Scream Bloody Gore (1987) [FLAC|Lossless]<Death metal>
 ```bash
 magnet:?xt=urn:btih:5B4780940B1F82F1B543E6B6CD93ACB1481C51B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Place Vendome - Thunder In The Distance (Japanese Edition) (2013) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:824E1B32829CB7FEBD9D80B1A8D49DFB37D661F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Jefferson Airplane - Takes Off (1966) Remastered /2013, Culture Factory/ [FLAC|L
 ```bash
 magnet:?xt=urn:btih:A9B95AC37447923AAF065C2EB1260D1C374C75DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Cerebral Bore - Maniacal Miscreation (2010) [FLAC|Lossless]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:5EE6165DA547C60A4E28059623AD41722AA03F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Jefferson Airplane - After Bathing At Baxter's (1967) Remastered /2013, Culture 
 ```bash
 magnet:?xt=urn:btih:0CE64A53D53FA71BCB64C3C9A84D37B5B724D7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Jefferson Airplane - Surrealistic Pillow (1967) Remastered /2013, Culture Factor
 ```bash
 magnet:?xt=urn:btih:4A263A2EAD87D71F6AE6544F4486C2C3D65F3F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

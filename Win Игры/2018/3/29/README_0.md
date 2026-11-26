@@ -19,8 +19,7 @@ Myths of the World 14: Love Beyond / Мифы народов мира 14: За �
 ```bash
 magnet:?xt=urn:btih:FA2762CCC2E0CAA08F66C515041667A2D24C9DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.16.0/dlc) License SKIDROW [Enhan
 ```bash
 magnet:?xt=urn:btih:F1C952D1D1411A1E65F406B89C319F1D8D74B42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TT Isle of Man (2018) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3C159208C61E163C2324457075503A905F8F63AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

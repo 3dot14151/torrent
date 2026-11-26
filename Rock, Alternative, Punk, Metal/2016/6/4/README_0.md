@@ -22,8 +22,7 @@ Ourlives - Den Of Lions (2014) [MP3|320 кб/с] <Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:6304B2AD36EADB17F5A27E473634D5D1DF17118D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hillbilly Hellcats - Rev it up with Taz (2000) [MP3|320 кб/с] <Rockabilly, Ro
 ```bash
 magnet:?xt=urn:btih:0696B8742D3BB5B717E949D67F8054700373711E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rohand - Everything Is Gone (2016) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0361F45BB58788FD769A7265ED70104AD741E9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Owenstone - Owenstone (2014) [MP3|192 кб/с] <Alternative, Indie>
 ```bash
 magnet:?xt=urn:btih:CC29B5E8C850B1F078F97DAB791E18E65F963608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Beth Lee and the Breakups - Keep Your Mouth Shut (2016) [MP3|320 кб/с] <Rocka
 ```bash
 magnet:?xt=urn:btih:C54160A7B4834BF05E7E277855C73A0463A02D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Rolling Stones - Totally Stripped (2016) Live [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:A1C88B16FF340835FA1DA268BCF96C3B8EE0D4EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Rolling Stones - Totally Stripped (2016) Live [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:A9D14D4D7A0F5B69ED66B6DBF3C1478EB12ABFB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

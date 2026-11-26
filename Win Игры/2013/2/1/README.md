@@ -19,8 +19,7 @@ Dreamscapes: The Sandman Premium Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:80E63A948904080F1D754E0B60AD8CE660856080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sonic и команда All-Stars снова замерли на стартов�
 ```bash
 magnet:?xt=urn:btih:FBF613EC8D519A5A69CE279C6789DCB7B6FEA838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

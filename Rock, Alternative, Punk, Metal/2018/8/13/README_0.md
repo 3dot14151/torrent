@@ -22,8 +22,7 @@ Sinsaenum - Repulsion for Humanity (2018) [FLAC|Lossless|image + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:3F7328EBC90176A1B4EA962EE65A30E103A92600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blue Blud - The Big Noise (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7389D39C0CBDE7EEF53332B8553330572DE73A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lethal Injektion - Remember Chester Bennington (2018) [MP3|320 Kbps] <Nu Metal>
 ```bash
 magnet:?xt=urn:btih:5BEF7D0FD4004E7034F079495979781EAAFD492C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

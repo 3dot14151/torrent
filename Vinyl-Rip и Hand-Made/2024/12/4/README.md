@@ -24,8 +24,7 @@ Clannad (Кла́ннад) — ирландская музыкальная гр�
 ```bash
 magnet:?xt=urn:btih:B227BB4338E6CF9319159AECEF5262600484B444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ClockSync 1.2.5 [Ru] - Синхронизация времени телефон�
 ```bash
 magnet:?xt=urn:btih:25731C8E591618C26B2838258B669F3221107BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

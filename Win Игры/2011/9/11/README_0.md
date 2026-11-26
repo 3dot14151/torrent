@@ -19,8 +19,7 @@ HdO Adventure: The Three Musketeers: D'Artagnan and the 12 Jewels / Три му�
 ```bash
 magnet:?xt=urn:btih:6D3696C418D29759D7A311346269B80BCE0A58FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XVI век, Карибское море. Эскадры пиратских ко�
 ```bash
 magnet:?xt=urn:btih:953789C24822825D87D0435AE9F6D92EC8A7570C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

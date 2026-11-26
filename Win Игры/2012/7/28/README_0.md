@@ -23,8 +23,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 ```bash
 magnet:?xt=urn:btih:952FEC1EBA1D74C5D69402FE945EC44CDF4ED7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 ```bash
 magnet:?xt=urn:btih:FDD4D715ECAFC5308764B99AA2422A91A5563C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Ice Age 4: Continental Drift - Arctic Games [Ru] (RePack/1.0) 2012 l R.G. Elemen
 ```bash
 magnet:?xt=urn:btih:52E18FC8D120D797CA59D07BBCAF47F2805A5F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D17C9B79C9DDAACAA308649C865671134CBFABD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Prototype 2  [Ru] (v.1.0) 2012 | Новый Диск
 ```bash
 magnet:?xt=urn:btih:0FBC85222A5448033952849E1D1793FA6F3F211A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

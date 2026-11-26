@@ -19,8 +19,7 @@ Alien Shooter: Последняя надежда - на мир обрушила�
 ```bash
 magnet:?xt=urn:btih:DD32A86E114E6DCC0B31F26A8CD44158FB6FF0D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

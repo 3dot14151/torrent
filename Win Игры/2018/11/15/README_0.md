@@ -19,8 +19,7 @@ Surviving Mars — это научно-фантастический симуля
 ```bash
 magnet:?xt=urn:btih:BBEDA0F61D1B35BEC64AA2C85C8737C683B769AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tales of Zestiria — японская РПГ, разрабатываемая с
 ```bash
 magnet:?xt=urn:btih:0861EBB6B3DC428E8AA3FD7168809E54CEA09107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Room Three (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3DA3D9E4CDF3B048A0EA948BABB541D6975FF17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Absolver - одиночные и сетевые многопользовател
 ```bash
 magnet:?xt=urn:btih:842859CF68CB47348983A30B1D24C67212B51960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

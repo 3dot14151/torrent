@@ -27,8 +27,7 @@ Gloryful - Ocean Blade (2014) [FLAC|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:1249AB6C71065EB2AA50C257867E74E2E90FD60F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:684129152894FA062E897ECF801BC05DB8DB213F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:873C7A2C0A0CABB92096CE0552C11F6C007E0950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - World Cup Chill Tunes (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:750B728E580F2E76DD4E9A89A7AC409491BB22E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D2F83241186CAC2B96BB761362E9DCB1E48DDAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ VA - Клубные Новинки Vol.418 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:41A3AA1C3E6011B6589E9BFA05B8B352BDEA4A23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ Matt Garrison - Patchwork (2014) [FLAC|Lossless]<Swing, Female Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:E14584269D12F61CACC9B2036F132D58590647B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Bjorn Berge - Bag Of Nails (2000) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:E8740B47727EA477D927E672653FF7388BC485CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ The Black League - Ichor (2000) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:9E470B9AD3967A359D2E8FB160B9FF47EBD81D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:A902F91892979E9E548DDCBE0E96BC105F4C05B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D98114690D752FCCAD61DF3C007B9F05AAC579BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE2A1D7A25FA9B87E75CEC77D07CB97ED8F83E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ Stephen Kummer - Nice & Easy (2009) [FLAC|Lossless]<Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:A9B901CB26413C3D81C5A06810B37112ED9FF272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ SadDolls - Grave Party (2014) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:16D1229301EE83C6D7C392D8103C5AD4EE73739E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ Goliath - Hot Rock And Thunder (1972) [MP3|320 кб/с]<Hard Rock, Progressive R
 ```bash
 magnet:?xt=urn:btih:8DEACB3C3426804618D8D8B57921E346E2FF38E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ Bandizip - это быстрый и мощный архиватор, подде�
 ```bash
 magnet:?xt=urn:btih:DF3B2DD9E5F9A7C37E1A36BE26AFFDE7F893096A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ Arkan - Sofia (2014) [FLAC|Lossless]<Folk Metal/Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:7C013A6A0078C79C9A11AA7DF2C43C0500F6CF63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ Bill Laurance - Flint (2014) [FLAC|Lossless|WEB-DL]<Fusion, Funk, Crossover>
 ```bash
 magnet:?xt=urn:btih:6C4EF558A8BE589CD440922E59F18E807F3B1867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +567,7 @@ Saor - Aura (2014) [MP3|320 кб/с]<Atmospheric Black, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:8514EE49E25CEBCB4984BCD92F251AEB8FBCF191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05334E4CA57FC1EF93D8A7DE4238936EDA1B5640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ Tag&Rename 3.8 RC2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B35D6E699039DE8FBE961D01E24D776BC5A24C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ VA - В Бразилию! (2014) [MP3|320 кб/с]<Club House, Deep House, Elect
 ```bash
 magnet:?xt=urn:btih:69DA878A3A5F9DD484025323B36240BFA0DC8996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ The Luna Sequence - Fearful Shepherds Hunt Their Sheep (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:F8F9C7750855C4E4C751193A568A5949438D5669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ Rise Against - I Don't Want To Be Here Anymore (2014) Single [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:9A2802E87A92EAA3AB4AAEFBBFF4D17D98C2477B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

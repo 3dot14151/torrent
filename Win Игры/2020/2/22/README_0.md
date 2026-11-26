@@ -19,8 +19,7 @@ Curse of Anabelle — новый взгляд на приключения в ж�
 ```bash
 magnet:?xt=urn:btih:28E2198E113674454EB6165702E53E6E037CB9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

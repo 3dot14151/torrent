@@ -19,8 +19,7 @@ The Perfect Pencil - это сюрреалистичный экшен-платф
 ```bash
 magnet:?xt=urn:btih:24162745C94D84A5B277F571559A1DAD3C4D6EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bud Spencer & Terence Hill - Slaps And Beans (2017) [Ru/Multi] (1.02) Repack Let
 ```bash
 magnet:?xt=urn:btih:3C9F14C1ACE595AEE282AD87B6198958B14C123F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bridge to Another World 13: Fate of the Seasons / Мост в другой ми�
 ```bash
 magnet:?xt=urn:btih:AB5CF79074B5C9916788070983F5A5EB07F61BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Welcome to Doll Town (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A1018255D6EFB39E72B8BE532336F0B6E553586B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

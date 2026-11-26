@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D478321C7E5A104EC5115E1C0BD3F2DE39C99018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:157D64D8EB8AA2821ECFFE168D38E9E91C8E7D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:133C1D98FBAA547D1BA1AB95B3DA65EF5969AC79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ The Ericksons - Bring Me Home (2014) [FLAC|Lossless] <Indie Pop, Folk Pop>
 ```bash
 magnet:?xt=urn:btih:6403E1E5EA04214FEB0311429705854BB99438E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D942FC6DD3D1221B165A43F5156EAE10E181F36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Comedy Woman  (2014.11.14) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:CA28AF42BCF6AFBDFE094BF12884B4EA68D9A728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Mike Post and Pete Carpenter - Команда «А» / The A-Team (1999) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:B6A15CABE5E73B3A6E2D1592799D5E9780A9F1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Opera beta 26.0.1656.17 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:23535460E7CC7E192F1760D8E18934FCCCA44BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Comedy Баттл. Суперсезон. Выпуск №32  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:69D20988136697A3D692227D059A0A13C7A11F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47EE647B32F8D469AD63DE26DB49540FF466EF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Comedy Баттл. Суперсезон. Выпуск №32  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:E5EDA9BA038C3E20CB599257D229CB1C70F96548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1C791BCA4E26E005178BEE35C72AF65F1F7B694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Devin Townsend - 9albums + 1EP + 2live (1996-2014) [MP3|320kbps] <Progressive Me
 ```bash
 magnet:?xt=urn:btih:19C5BC1DD544DC2D7DABC5BB199FA31E3D0FDA6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Discovery: Разрушители легенд. Агрессия на дорог
 ```bash
 magnet:?xt=urn:btih:E50E79D9DE9FCD8260D8A6450202177E1AB9EBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Perplex - 10 (2009) [MP3|320 kbps]<Psytrance, Interview>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFB56F1CFD541536229C870C1623739CA6DFD170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ Comedy Woman  (2014.11.14) SATRip
 ```bash
 magnet:?xt=urn:btih:BE3E76BB2DE81325299D433C1607D8FBCFDED38C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ A4. Gypsy (5:10)(   Читать дальше...   )Жанр: Hard RockПрод�
 ```bash
 magnet:?xt=urn:btih:E4BEA7B15F939916D64438753372157FB9114BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:359735AF3960330207B7AB3E9460B7C3C5250C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B92B93A034B032CC308D59B7D943451E6492F9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80848532E0BBCB5A00C97CF78CB8FD827E6843E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ Roger Taylor (Ex. Queen) - Best (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:7512A6443A44AB9D6D1E0CEF3B8ED29B0AA4203B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ The Echelon Effect - 5 Альбомов, 1 EP (2009-2014) [MP3|320 кб/с]<Post
 ```bash
 magnet:?xt=urn:btih:C9E6BC695C4D98273EB9FDC2902B4AB536639A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ Mindwave - Escape From Reality (2009) [MP3|320 kbps]<Psytrance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A45ABC0B201FAF7EEFBDD573071445F7BE1D23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

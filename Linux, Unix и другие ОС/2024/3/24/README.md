@@ -20,8 +20,7 @@ KDE Neon - дистрибутив Linux, который создан коман�
 ```bash
 magnet:?xt=urn:btih:7F30CFF968BE65C6A0C071CA4B829330EB190BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

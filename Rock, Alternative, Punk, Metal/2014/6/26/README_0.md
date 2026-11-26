@@ -27,8 +27,7 @@ Enthroned - Sovereigns (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:6EE1ED3EDBCF80055F098EB7075761C706EE95C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Edward Bear - Bearings (1969) [MP3|320 кб/с]<Psych-Prog Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7B8D7B5C04B2AA36787CDD829B2477C49F4B8BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ ACxDC - Antichrist Demoncore (2014) [MP3|320 кб/с]<Hardcore, Powerviolence>
 ```bash
 magnet:?xt=urn:btih:29D495E6A95CAD294D7E3C4CB8023D77B36FEE74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ d) Basking In The White Of The Midnight Sun (Reprise)Жанр: Hard Progressive 
 ```bash
 magnet:?xt=urn:btih:2894D4BE14D40495D507B04216D0E5EEE1FD9EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD4DD793835EE44002CB9AE02F43BE7D6280D8CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79D2F71FD8F6818722F0BA38BA59D38A426AD3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:924D357AC0DCC67A492A42B04F04FB17CC548DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

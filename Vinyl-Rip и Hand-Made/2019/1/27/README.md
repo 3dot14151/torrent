@@ -22,8 +22,7 @@ A4 Gudbue Gudbue(   Читать дальше...   )Жанр: Glam RockПрод�
 ```bash
 magnet:?xt=urn:btih:B25FFBD682E9A89D16461FC92806138C4DF1C1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

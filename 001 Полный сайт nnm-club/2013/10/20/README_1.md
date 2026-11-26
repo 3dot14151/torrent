@@ -27,8 +27,7 @@ John Scofield - 4 альбома (2003-2013) [FLAC|Lossless]<Contemporary Jazz, 
 ```bash
 magnet:?xt=urn:btih:F64EE29671ECD3882DD9FE6363EB02AFA6A05F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4908CABA1313FA306FD034A702D9A6DD016F59A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B65D00702984971AB0E672BD508E08C1524FCDEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFD95B2D8DD47CF5ECB7B0F444067841819555B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C00A46C30CAAA46C2B199D916F4C15FB209D4FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Wallpapers - Грибы [JPEG]
 ```bash
 magnet:?xt=urn:btih:05E8538F749786EC8C150A594F8083EEE42A5E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ VA - Best of World of Dance (2013) [MP3|320 кб/с]<Pop, Dance, Сlub>
 ```bash
 magnet:?xt=urn:btih:271A1B6170BDC44B2F7E08713EAED74B7A08314F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94F3E16B581AC0553E0B368C523E504946011356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ VA - Топ 100 Море музыки (2013) [MP3|256 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:8E959EE61A8D8C3CA21486D0CBE03ED363C83615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ Keith Jarrett - Restoration Ruin (2013) [FLAC|Lossless]<Contemporary Jazz, Folk,
 ```bash
 magnet:?xt=urn:btih:26350CEF3D119911246665C0CDDBD64D4E538863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ VA - Get Lost VI (Mixed by Totally Enormous Extinct Dinosaurs) - 2013 [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:E24CA9DD2B5D77BDF2B99F0CB27B9F31AF3688BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Lionel Richie - Back To Front (1992) [APE|Lossless]<Funk, Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:A6D56CF21BE84691F68986828FA4C6ADD3E97ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65A54A3D1AB8EDA27C3A395DC1F8093BD590BC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E2F79EF16352C4A026023CD59E9E9FB6BFF44ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:291566652AAEE7754C0129867B5AF7015F51448B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2D3766F7C7C8619AA1088DBDFD4630D1D7E8858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ Varios - Колокольные звоны - The Chimes (1980) [FLAC 2.0 24/96|t
 ```bash
 magnet:?xt=urn:btih:7EA1367B21226442B9F0C0E7224A1B260E72BDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +513,7 @@ Stand Up. Выпуск №5 (2013.10.20) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:446EAE8BBFA4C2459A4C23F5A70B4181E1A23043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:945F8814BE2F82E2C0B0CD3B98650AD27272DEB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ Dr.Web CureIt! 8.2.0 (20.10.2013) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5404F2D6DD061A377A727CC32AA470104428D257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA72662DF866C34635514ECEE3A2642B0DF15AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ B5. The Lady Lies :: 06:07(   Читать дальше...   )Жанр: Pop Rock
 ```bash
 magnet:?xt=urn:btih:01F08833D64C7C26FE16F1AADB5AB660754E04FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +657,7 @@ B5. Ты и я :: 04:32Жанр: PopФормат: Vinyl, LP, AlbumПродолж
 ```bash
 magnet:?xt=urn:btih:B828619FEE0D47D3B0E1C3312C49312F9B10111E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7E85F729523D64E06D09B06C59AD3646DEF73C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ Wallpapers - Обои для рабочего стола - разное (20.10.2
 ```bash
 magnet:?xt=urn:btih:819E82C6D17CBB2B3FE6708F6401D6DB3FBB7B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F90ACB0708C6CF3230EABD5FAD941C1C724E9FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

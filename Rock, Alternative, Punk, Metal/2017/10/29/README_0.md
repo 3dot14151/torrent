@@ -22,8 +22,7 @@ Hanging Garden - I Am Become (2017) [MP3|320 Kbps] <Doom-Death Metal, Post-Metal
 ```bash
 magnet:?xt=urn:btih:46009425DCD1678247098807E326F21403703D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Winds of Plague - Blood of My Enemy (2017) [MP3|320 Kbps] <Symphonic Metalcore, 
 ```bash
 magnet:?xt=urn:btih:3C6F684B2DC7EA98F8F7A2F2816DAD5D7C37603C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Marcus Hook Roll Band - Tales Of Old Grand-Daddy (1973) Reissue, 1994, Albert Pr
 ```bash
 magnet:?xt=urn:btih:09E5E34EBC634D6061CA5561AF6506C8B251B88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:462227BB9E5139D32CAEECF3604D08C61454ADEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Airbourne - Diamond Cuts The B-Sides (2017) [FLAC|Lossless|image + .cue] <Hard R
 ```bash
 magnet:?xt=urn:btih:261BEBA490BF301B4E1E425063A8587A66EBB53A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Weezer - Pacific Daydream (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:11D550FC31E4048E498270887C5232734047ACDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

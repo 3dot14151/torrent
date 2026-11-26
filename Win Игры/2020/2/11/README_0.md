@@ -19,8 +19,7 @@ Atelier Dusk Trilogy (2020) [Multi] (1.0) License CODEX [Deluxe Pack]
 ```bash
 magnet:?xt=urn:btih:191BC058906EBF9FABA9638C9EA8903B62C434FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

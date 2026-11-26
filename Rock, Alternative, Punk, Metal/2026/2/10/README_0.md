@@ -22,8 +22,7 @@ Ben Folds Five - Whatever and Ever Amen (1997) [FLAC|Lossless|tracks + .cue] <So
 ```bash
 magnet:?xt=urn:btih:03F1FF602753EE587FCA1DC7232305813A35D406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

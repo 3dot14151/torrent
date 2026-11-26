@@ -19,8 +19,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2F8A6B878F69429636337F2E0E8AEE426F34302A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6FC74749184F4880764923C8C3F311F1D5AF6C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E59170ED96FECB6A53C886D86D23425FD83BAB41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Exo Player - Видеоплеер и IPTV v3.0.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5FDA4B13F4D495F1DB225FE959C239F8B54BA9C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HiPER Calc Pro v11.3.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B531D10A096C85FD4F5205022EDDFA8E444FD95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ AdGuard — уникальный блокировщик рекламы без п
 ```bash
 magnet:?xt=urn:btih:0775E3BDEBDDEC6D5B832AE45B5984DC3B8DB4BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ AdGuard — уникальный блокировщик рекламы без п
 ```bash
 magnet:?xt=urn:btih:D4AD4B57CE39463DAA893A132C1BA38ABB621315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:B64D8EE5B4986BEA9BE113FAC4EC67000F063291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Words of Wonders: Игра в слова v5.5.4 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:908C5276D8082B83680048134B0985E22B1F2206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ HDRezka TV — это неофициальный клиент для просм�
 ```bash
 magnet:?xt=urn:btih:89D5632DE9B985731F353BD28F525C92AF6F8704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Signal — это простой и безопасный мессенджер д
 ```bash
 magnet:?xt=urn:btih:B90F38C495A66048B63C35BEA3D9CD6AE2AA85C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1E7430770C05FD95D8350BBAB6A8AB354ACB8D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Remini / Улучшение Фото v3.7.1277.202519515 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:4FDBF71E8CDAC6BF797B694F6E21E6138BA389F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCABB80A6BBE73237597D18224E4CB90BFF5865E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Win 11 Launcher v9.45 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7D285F3FEF20522092FB7CE335BFE79A4B8A395E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

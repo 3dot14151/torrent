@@ -19,8 +19,7 @@ Bridge to Another World 3: Alice in Shadowland / Мост в иной мир 3: 
 ```bash
 magnet:?xt=urn:btih:5643EC36E596EA46FCB59A4B9967F7FAF1A055C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grimshade — это история компании героев, волею с
 ```bash
 magnet:?xt=urn:btih:56B49C877C50A743CFE82C871AB73772B02E5A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ For The King — это стратегическая RPG, которая соч�
 ```bash
 magnet:?xt=urn:btih:ADFC7C978AC5774366E039FB497C0F73CC72ACCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Prince of Persia / Принц Персии (2008) [Ru/En] (1.0v2) License GOG
 ```bash
 magnet:?xt=urn:btih:7702192FDCF54B42125C3FC28797E1F9E01E2C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Northgard (2018) [Ru/Multi] (1.7.12920/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:12C24E26D9DF5FB87B70172842DD70D84A041BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

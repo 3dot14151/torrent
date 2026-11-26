@@ -22,8 +22,7 @@ A4 Harvest(   Читать дальше...   )Жанр: Atmospheric Black Metal,
 ```bash
 magnet:?xt=urn:btih:286D147BF5175D13BBB35059C4C2EEA5C0C1B24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Передай По Кругу • Pass It Around(   Читать дальш�
 ```bash
 magnet:?xt=urn:btih:E0718BE65DF1F601E27263ED05CC94FAF316A20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

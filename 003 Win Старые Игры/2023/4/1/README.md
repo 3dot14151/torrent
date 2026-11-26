@@ -19,8 +19,7 @@ Stronghold Crusader HD (2002) [Ru/Multi] (1.41a) License GOG [Extreme Edition]
 ```bash
 magnet:?xt=urn:btih:C8612CFA319947006963EEB4D33422B57DC18E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DeathKeep (1995) [En] (3.3) License GOG
 ```bash
 magnet:?xt=urn:btih:C16751F277FB86D6EA77B1B147966DD25B23AB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5AEFFEB117C65913D8FFC6EB339C87826DCFD891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

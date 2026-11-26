@@ -19,8 +19,7 @@ Dead Island Definitive Edition – переиздание, состоящее и
 ```bash
 magnet:?xt=urn:btih:27EED3002156A4B2BC730896B619775DBBDA77FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Meridian: New World - это стратегия в реальном времен
 ```bash
 magnet:?xt=urn:btih:3E1C84E7711BA6969896475CA2149B70119C8F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Elite vs. Freedom (2016) [Eng] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:77D7C332185E4923387E57A6AE293F3FB24711BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

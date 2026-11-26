@@ -19,8 +19,7 @@ Display Tester v5.35.1 Mod by Balatan, AnBo39  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5E0E5214868B62A3EF4F87BA98A2AC8DDCCA306A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E69D194F6E578E8898E7415EBC59B7917EAA1B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mr. Pillster / Напоминания о приеме таблеток v3.1.2 Mo
 ```bash
 magnet:?xt=urn:btih:EE3999D3FED3B234649A2B3A1E9DFB5CC6471A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

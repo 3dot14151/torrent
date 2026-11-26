@@ -19,8 +19,7 @@ Whispered Secrets 4: Golden Silence (2015) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:BBC4A31BCAB8AC2162FC406E506D9D7F129DE1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Flights Of Fancy: Two Doves / Полёты фантазии: Два голубя
 ```bash
 magnet:?xt=urn:btih:1DB09674FC32DE1FEC9AE4AF502A5A585A8251A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F081E71606EE24073E6754415AE21E016880C6BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

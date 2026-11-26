@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:695F052343BB32175C2C5458027673F49D73B20E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7783C7026C0B36BFEDEF0281CD43D346CA956100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Muscle & Fitness — самый авторитетный путеводител�
 ```bash
 magnet:?xt=urn:btih:BB1D83B5887FDFA6205E064ED702DFB1FC8A5F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

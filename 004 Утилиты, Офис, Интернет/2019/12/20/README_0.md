@@ -19,8 +19,7 @@ Elcomsoft Phone Breaker - Инструмент для криминалистов
 ```bash
 magnet:?xt=urn:btih:F48C6F125BDB84CF2485AEAB1B44170E8BB85A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

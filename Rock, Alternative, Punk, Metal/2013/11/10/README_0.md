@@ -26,8 +26,7 @@ Desdemona - Lady of the Lore (2001) [WavPack|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:62885FA0AED7FAB744776A756B95B6383EA9E044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ MyGrain - Planetary Breathing (2013) [FLAC|Lossless]<Modern Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0FE3FD1F2396444FEC596FA7ACD178CA153109B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Edwyn Collins - Understated (2013) [FLAC|Lossless]<Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:FEE9C5AB7D9CE639FBA70E84271E147B521BADE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Dawn Of Tears - Act III: The Dying Eve (2013) [FLAC|Lossless]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:45D04A3D533A43568A13276D1B5804E7BF38AF94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Edwyn Collins - Gorgeous George (1994) [FLAC|Lossless]<Rock, Brit Pop>
 ```bash
 magnet:?xt=urn:btih:59D8EF9EA16E3A936CB77E532250927327A3EDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Kataklysm - Waiting For The End To Come (2013) Limited Edition [FLAC|Lossless]<D
 ```bash
 magnet:?xt=urn:btih:4438CD61DCFD9AF40AEB55A5058005CB4B874ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

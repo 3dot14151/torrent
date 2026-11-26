@@ -21,8 +21,7 @@ Risssing - The Four Seasons (2014) [MP3|320 кб/с] <Drum & Bass, Trancestep, B
 ```bash
 magnet:?xt=urn:btih:A0EB5BAEA1846EF52C7EEE93707B7014BB86ABA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Scang - Сам себе враг (2000) [MP3|192 кб/с] <Альтернати�
 ```bash
 magnet:?xt=urn:btih:B36BAC8DADE6EBFFCDFF132F4EFCEE66E104FB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Postico - рациональный (   Читать дальше...   )Тип �
 ```bash
 magnet:?xt=urn:btih:B2E1F3D855854182557983D255BFA81371BD4DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Traces Of Serenity: Longe Episode (2016) [MP3|320 кб/с] <Longe, Downtemp
 ```bash
 magnet:?xt=urn:btih:BA1E5B1B00685CA93AA0441082070F727C488DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Потанцуем ? (2000) S&V #03/2000 [FLAC|Lossless|tracks + .cue] <Eur
 ```bash
 magnet:?xt=urn:btih:76AD2485023A80A894C9043B6C20E923F6FF6F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:452A4E7AA68AEF5A9B2473AAC8999F01A4346570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Water Oblivion: Chillout Deep Session (2016) [MP3|320 кб/с] <Chillout, L
 ```bash
 magnet:?xt=urn:btih:952EE0E4493B8388E3BA652207D2C7779A48BEFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - The Blues In... Asia (2005) [MP3|320 кб/с] <Blues>
 ```bash
 magnet:?xt=urn:btih:036A498624FEA3EDD975F10E8BEF5794D8877E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDD38E05E4C9D7938A57CA04147F5047B6EBBFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63CFD06F4B34E402622BCA60FED5E5FE9C5D0A42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Hank Marvin - Marvin At The Movies (2000) [MP3|320 кб/с] <Rock, Pop Rock, Ins
 ```bash
 magnet:?xt=urn:btih:73E9FDBC2CB15E47828F4705D4CFFA65DCBE4A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Драйвовый клубный музон (2016) [MP3|320 кб/с] <Club
 ```bash
 magnet:?xt=urn:btih:E63B8FF679C6D26D0E6498225A6019F0D1F9DC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - German Dance Hits №7 (2016) [MP3|256-320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:63FBA3FE29EC520469E619D42E19F25991DB24C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:7E096669FE0BF006963C46B7D400859D51966095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ VA - Radio Eurodance: Big Format Club House Mix (2016) [MP3|128-320 кб/с] <Cl
 ```bash
 magnet:?xt=urn:btih:6B485372189F7679F4E4F052E773AF28143DDB04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ VA - Made In Britain (2001) S&V #04/2001 [FLAC|Lossless|tracks + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:9590E07532FA44B51840258B6952193D6ACE2B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C619A3F697C4EB7444D77BCD8FB9EAC0EDF3ADB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CD61BF8DC4B398D4DBF808CB95E4D6F7BE75FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ iA Writer — фон, шрифт и курсор
 ```bash
 magnet:?xt=urn:btih:37B0591AF41F1C78E3379BE1C0A4A23CB8585D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Q-Dir - бесплатный, отличный файловый менеджер
 ```bash
 magnet:?xt=urn:btih:5B47A7FC9A756EFA9A46BDFA979F4FD678AFCBFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ Navicat Premium совмещает в себе функции других пр�
 ```bash
 magnet:?xt=urn:btih:3E80F78FBF28D984D27A10334B2B581C54AF67C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ VA - Fitness Mania Vol. 4 (2016) [MP3|320 кб/с] <Club, Dance, House, Euro>
 ```bash
 magnet:?xt=urn:btih:86779031B0BCE3B211E474D0BD6C008762B9C8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAD44F233A2DE20C230471C4C0D5951081BAEBFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ VA - Bluesed Up Rock Classics (2016) [MP3|320 кб/с] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:67E99568D8C63DB67900E9DEBCC08FC1C4F5DDA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ VA - Serenity Sexy Lounge & Chill out Pearls Vol 3 (2016) [MP3|320 кб/с] <Dow
 ```bash
 magnet:?xt=urn:btih:FF3E9E5BDC8D0511F435E7C48D0CC85E298249C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Sketch от Bohemian Coding — один из лучших векторных р
 ```bash
 magnet:?xt=urn:btih:FEFFB79348A27D8A99B0D92285BAA8B4EF8C0609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

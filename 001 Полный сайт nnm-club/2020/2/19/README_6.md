@@ -18,8 +18,7 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:D51A24A84D02E44A541089E0B441276C7477F580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Unblock Me – это простая и увлекательная игра-го
 ```bash
 magnet:?xt=urn:btih:8E0C56EDE49BB9650F0073B3438E22B036B85ACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2020.02.19 [Ru]
 ```bash
 magnet:?xt=urn:btih:D7E089825326F300142E31A6344DD26EE9AED514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

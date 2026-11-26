@@ -19,8 +19,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (1.0.2) License FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:246A3CA44591B99E248E034CEEF2BC00C174F0F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

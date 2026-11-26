@@ -18,8 +18,7 @@ Age of Empires II (2013) [Ru/En] (5.8.911/dlc) Repack Other s [HD Edition Bundle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ LazyMedia Deluxe - это приложение, которое можно зап
 ```bash
 magnet:?xt=urn:btih:233926D4DED689EB431226E4CA01154BD683F7C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AllWinUSB Constructor by SmokieBlahBlah 20.08.19 [Ru/En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

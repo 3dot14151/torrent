@@ -19,8 +19,7 @@ Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Мех
 ```bash
 magnet:?xt=urn:btih:BBFBB86AD5ACDCAFF456FF9739A4EA63EFE5890D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

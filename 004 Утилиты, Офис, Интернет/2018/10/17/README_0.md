@@ -20,8 +20,7 @@ Icaros Shell Extensions расширяет возможности стандар
 ```bash
 magnet:?xt=urn:btih:3518F74BED943043CAB9CA16A73953B6464B7907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

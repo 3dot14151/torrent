@@ -22,8 +22,7 @@ Art Nation - Revolution (2015) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:7F026C7EC9D33026A7A03D863C628C287AFB02A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ADBC672C84767DB7C3C04569714DF8E019FFA89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Palace - Master Of The Universe (2016) [FLAC|Lossless|image + .cue] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:600D807F367975B887935EAC1981329E293C6783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Stranges - Madhouse (2016) [MP3|320 Kbps] <Alternative Rock, Alternative Met
 ```bash
 magnet:?xt=urn:btih:553F7230BCB15DDAC955E3E4E08EBB1FA17530A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Freddie Mercury - Messenger Of The Gods - The Singles (2016) 2CD Box Set [FLAC|L
 ```bash
 magnet:?xt=urn:btih:A3EB28632DDCF0D36DBC6FAAE05A4A6A8364C1FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ David Gilmour - L.A. 3rd Night (2016) 2CD Bootleg, Live [MP3|320 Kbps] <Progress
 ```bash
 magnet:?xt=urn:btih:40F7732EEF8EF55AA95EAD103E1225FFA19FC9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Freddie Mercury - Messenger Of The Gods: The Singles Collection (2016) 2CD [MP3|
 ```bash
 magnet:?xt=urn:btih:8EB12B55541102BD683683561DA936F70D3BCF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

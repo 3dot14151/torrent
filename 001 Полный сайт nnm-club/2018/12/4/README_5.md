@@ -22,8 +22,7 @@ Prequel - Without You (2018) Distant Hawaii [FLAC|Lossless|WEB-DL|tracks] <Detro
 ```bash
 magnet:?xt=urn:btih:AA7132CE56BC8C6468F3924D104D4263074F5942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ au Voyage - Craosa (2018) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 ```bash
 magnet:?xt=urn:btih:F576839AAC01F21548C49C792E523927E1E14A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:FA5B469699DCD4F4E1131F83C2285421E658438F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Karizma Duo - Acoustic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:7ECABDFB9202A43A7B27779A51FB923254332245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Visceral 069 (Mixed by James Warren) (2018) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Anonymous Various Artists - Covert 3 (2018) Touched Music [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:1E3928C97B3A019B812BA54C7B1FAC6FE396B28A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Futurecop! - The Lost Tapes (2016) [MP3|320 Kbps] <Synthwave>
 ```bash
 magnet:?xt=urn:btih:11E8643758E1975EC5E5D9BEACAA680F34E7A437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Futurecop! - Return To Alvograth (2017) [MP3|320 Kbps] <Synthwave>
 ```bash
 magnet:?xt=urn:btih:CE42A284CD445F856D16EB23605BA2F44E123D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Balearic Sundown Lounge-Beach Chill Out Summer Moods (2018) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:15F8BF6BEADEC272E1DF9348D3228B8ED7A4B129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Kalax - Singles (2016) [MP3|320 Kbps] <Synthpop, New Wave>
 ```bash
 magnet:?xt=urn:btih:DB0EB16C558F1FC79701B7AA769A527258F4F727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70772410106D178F9B1DC276FFBAD4C96514DCCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Del Shannon-The Complete UK Singles More 1961-1966 (2013) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:296424A06F680EB4712E65908CA1F55933949229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Futurecop! - Edge Of The Universe (feat. Parallels) (2018) [MP3|320 Kbps] <Synth
 ```bash
 magnet:?xt=urn:btih:8549DB88721CA7754FBA1AADF1661768E8C8FB9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D02FE8C08699761AC8F9D81717582C895DED8BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ Wolfheart - проект небезызвестного в музыкальны�
 ```bash
 magnet:?xt=urn:btih:E71912C12071BC4E7E357FB19EFB600E2D32C634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ VA - A State of Trance: Future Favorite - Best of 2018 (Extended Versions) (2018
 ```bash
 magnet:?xt=urn:btih:4588A59930F6AA8EE68505F855434B86B7D8D6E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ Twinkstar - китайский браузер на базе Chromium. В Twinkst
 ```bash
 magnet:?xt=urn:btih:994EDC5A72FC547191B67565B747C065D7583654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ VA - Dance Hits 2019 (2018) [MP3|320 Kbps] <Club, Vocal, Groove, Indie Dance>
 ```bash
 magnet:?xt=urn:btih:BB5A3D6E85B23920B1D5BD789CB03E420DB27752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Apowersoft ApowerRec - программа для захвата и записи 
 ```bash
 magnet:?xt=urn:btih:C9400534C04120CB3F76F00C112AD450774225AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ W O L F C L U B - W O L F C L U B (2017) [MP3|320 Kbps] <Synthpop, New Wave>
 ```bash
 magnet:?xt=urn:btih:C54EBC42FF54422A499BE0E08F624A68FF87C09F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ WISIWYG-редактор - “что видишь, то и получишь”. 
 ```bash
 magnet:?xt=urn:btih:7E3E8FE15E72856FA8F3E2E0D18639E889A6C380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ W O L F C L U B - Chasing The Storm (2018) [MP3|320 Kbps] <Synthpop, New Wave>
 ```bash
 magnet:?xt=urn:btih:B59A60E426303E9A01BF177FA4D3FE7B6A730A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB610233CE99093ACA5BDA5ECE1738B0B6E06AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:DC3B8946091673DFF3D1A7B79297C9C88F87D2A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ W O L F C L U B - Infinity (2018) [MP3|320 Kbps] <Synthpop, New Wave>
 ```bash
 magnet:?xt=urn:btih:CC0DCA5696C4EDD6D8B50E49FBF344717B554F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E8C8CD20E18DC375A116B79B4369EEF498411C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

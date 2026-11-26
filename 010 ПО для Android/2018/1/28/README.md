@@ -19,8 +19,7 @@ MyTreeNotes - Записная книжка v6.6 [Ru/Multi] - функциона
 ```bash
 magnet:?xt=urn:btih:2FEACA91600C9C796876A4D201D2980B8A44794A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

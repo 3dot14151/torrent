@@ -19,8 +19,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.06/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B36FC454659F09D4EF290EE408F422B8A49C2985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

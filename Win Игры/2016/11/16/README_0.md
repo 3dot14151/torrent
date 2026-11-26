@@ -19,8 +19,7 @@ Lantern (2016) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:D2C7DD3AF19B51EB484512E4C74821665BF24C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tales (2016) [Ru/Multi] (1.0.1) License HI2U
 ```bash
 magnet:?xt=urn:btih:FD6F214A69E4B0B0D9A020306C7826CEF6EF13C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lantern (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B0F637F5F4559B71C3FD9C2C801998D6247E9F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Neptune Flux (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:708E4BA1AA248B9B490DB957EA69D78D927C9C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u4) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:44D2941DD3E030FF9F6D477D3FC2AE92EE1BB4B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

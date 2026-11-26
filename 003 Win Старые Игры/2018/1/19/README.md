@@ -19,8 +19,7 @@ Carmageddon TDR2000 - продолжение игры Carmageddon и Carmageddon
 ```bash
 magnet:?xt=urn:btih:E41D4EB4D75BB16E4CD6FE78911F79FB9BAFD6C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

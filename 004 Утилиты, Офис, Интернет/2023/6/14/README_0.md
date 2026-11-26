@@ -19,8 +19,7 @@ GoldMemory - программное обеспечение, работающее
 ```bash
 magnet:?xt=urn:btih:56CBC7A32C5A189DA3A9496C85DE2FDDAD16B821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

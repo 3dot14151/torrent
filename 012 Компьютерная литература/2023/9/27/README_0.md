@@ -19,8 +19,7 @@ Holden Karau, Mika Kimmins | Scaling Python with Dask (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:86F317C3528E997D81BF61A6EFE26A68005693A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Magnus Larsson | Microservices with Spring Boot 3 and Spring Cloud, 3rd Edition 
 ```bash
 magnet:?xt=urn:btih:0ACF5EEC9E8C0D21E9088F7BEFB6841DE14759A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2E1CFCDFFD856874C0D0B6FA303ADB2E6ADBB62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

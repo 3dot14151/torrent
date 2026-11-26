@@ -19,8 +19,7 @@ Parrot Security OS - это операционная система, ориен�
 ```bash
 magnet:?xt=urn:btih:1D3DF7C6E90CF699904B6CE879531A1E5A349745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

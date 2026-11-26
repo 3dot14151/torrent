@@ -19,8 +19,7 @@ C древнейших времен клан Хранителей оберега
 ```bash
 magnet:?xt=urn:btih:55158A1CE1127D9F3D2D3B551DD75D53A16CBFE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

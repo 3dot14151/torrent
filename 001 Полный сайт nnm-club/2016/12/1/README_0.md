@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F962A284D6F0064521FDBD27E3FAC1C4EB6779C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D2A4981124B1095CF269A030F2A57D9E16A7FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Violet District - Terminal Breath (1992) + Bonus 2CD, Remastered, 2000,Tempus Fu
 ```bash
 magnet:?xt=urn:btih:174AAF0253E476848E269B223BAF6772691B7386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Q-Dir - бесплатный, отличный файловый менеджер
 ```bash
 magnet:?xt=urn:btih:E43ECCE54630458F4D588BB63853B7EA0571E95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Tony Anderson's Muskat Ramblers - Most Wanted Dixieland (2005) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:9CBCCE90C4B614F94465DC49EB2C69CC12AC4847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C217A6513868A7052A0E755CC8994FFF5994A596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Tri-BACKUP (Резервное копирование)
 ```bash
 magnet:?xt=urn:btih:6AEAC3B9AAF90CA20191219E4842D278C5A359AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - Perfect Strangers: Deep Chilled House (2016) [MP3|320 Kbps] <Deep House, Ch
 ```bash
 magnet:?xt=urn:btih:00FD7F6989BF44736DA36C2A7C5D482C3C7629AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Jeff Palmer, John Abercrombie, David Liebman, Adam Nussbaum - Abracadabra (1990)
 ```bash
 magnet:?xt=urn:btih:54797A0966D82AF4694B3B26141FF6F2A46ADBE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C80958C04BCDBD527DA9BD3C0A8ADDF200D06C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD13C6227DD6FDF2FCB3B08B6890D270A5F81A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEC8B21986F0C32E61902509C377204A1EC2F5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Ellen McIlwaine - Women In (E)motion (1998) Live [MP3|320 Kbps] <Blues Rock, Reg
 ```bash
 magnet:?xt=urn:btih:778F375EB1694D4B4EC4610296D394BB9B4F8DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB06BA8CB1537C03D97A73C1372E8384BB53B530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Nighthawks - Citizen Wayne (1998) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Acid J
 ```bash
 magnet:?xt=urn:btih:F9C0E1EA60345B24F8830C25E86BA8F11C7399EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Cyberfox 50.0.2 for AMD + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:96EE562165F2A4676E829FEF78C11FD10DFC4DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5444036D38227184BB6DB85A403D58CFE51A476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ Malcolm McLaren - Paris (1994) [FLAC|Lossless|image + .cue] <Future Jazz, Downte
 ```bash
 magnet:?xt=urn:btih:59B9C98E7C4F081A9A149DC0CA6512C036DA5CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Grainne Duffy - Grainne Duffy Live (2015) Live[MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:C9C3650A8657125AC1DA7877FD8CBF8CA6485BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:F58E776992CD0035738BE03E8FD3F57AB77EA029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ VA - Mark Sixma presents M6 - Elements (2016) [FLAC|Lossless|WEB-DL|tracks] <Tra
 ```bash
 magnet:?xt=urn:btih:23AB9E981F1C10F0D662F22884C901424E2949C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:550CEB7CB3AC73656787575951C672052C90BC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ VA - November Planet Pop (2016) [MP3|192~320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:E39B8960573BA1CBBA2E6858997C5CA70D922D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ StereOMantra - One-Off Tracks (2016) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Do
 ```bash
 magnet:?xt=urn:btih:9D43F7D005E05A3A9219F8791C4D1057BC1F3BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ Albert Collins, Robert Cray, Johnny Copeland - Showdown! (1985) Remastered, 2011
 ```bash
 magnet:?xt=urn:btih:A5572951BA9E2CFDBFA73BC3F4195E8A6B179B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ MyBrushes (   Читать дальше...   )Тип издания: macOS Soft
 ```bash
 magnet:?xt=urn:btih:66143A36D70B7B5CE69F74CA5FC81466E00FF900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

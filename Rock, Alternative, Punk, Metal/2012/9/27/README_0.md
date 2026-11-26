@@ -28,8 +28,7 @@ Kerion - CloudRiders Part 1: Road To Skycity (2012) [MP3|320 кб/с]<Symphonic 
 ```bash
 magnet:?xt=urn:btih:C7B8509D819BEB15ABB6CDB72A54FFC305867F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Steve Stevens - Atomic Playboys (1989) [WavPack|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The 69 Eyes - X (2012) [MP3|320 кб/с]<Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:FEBC0D5D08A0EB3CEF95ABEE182D913D9F0CA819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:C17BC184099A052A2CDADFFBCBCB2ED4873FAB27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:00481BD3CB74A562F380325D14C3234AD8441867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SYNTHETIK - это беспощадный шутер-рогалик в мире,
 ```bash
 magnet:?xt=urn:btih:EDD3215DAB2194CEE8A7B5321A27625C642CD2EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

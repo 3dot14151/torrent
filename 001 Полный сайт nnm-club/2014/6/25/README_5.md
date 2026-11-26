@@ -18,8 +18,7 @@ Poster Printer - программа для создания и печати бо
 ```bash
 magnet:?xt=urn:btih:D367D78FF774C1AF32F6E60A307EA3ACF2290FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60EA947DC88C114C165F918CB6BA04C4C93120EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Microsoft и Google приняли решение, которое, как над
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ BBC: Джереми Кларксон: Хороший, плохой, злой / B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2673034EBBBC4FB71796DD7255FF7B984C97A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ PC-BSD 10.0.2 Joule [x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:B229367254F499AF062259E0493A773BCF934AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Castle Clash v1.1.99 [Ru]
 ```bash
 magnet:?xt=urn:btih:51ACCBB3592B641D38782DDC8EFD86F363494D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ AE проект для создания анимационного логоти�
 ```bash
 magnet:?xt=urn:btih:F20D1B1A72C324FF2A41D9A1D94A01A22D7D5E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5608C26C81AFE62A260D741BB27245C201B7EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ AMD Catalyst Display Drivers — пакет драйверов Catalyst для �
 ```bash
 magnet:?xt=urn:btih:EB1EC1DC3EFBAD46F0259AD905C0E6878AC96E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ State of Decay (2013) [Ru/Multi] (14.6.23.5340/2dlc) SteamRip R.G. Игрома�
 ```bash
 magnet:?xt=urn:btih:D455E30CBC4EE405BB19030972027C31852E6527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CDA0C567928D2F60285AA35387575172E0C4AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Anomaly Defenders - это очередная часть серии Anomaly, в 
 ```bash
 magnet:?xt=urn:btih:BC4841A01B8A09CB86576ADD80262EAC9EBD3A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Aion: The Tower of Eternity / Айон: Башня вечности (2008) [Ru] 
 ```bash
 magnet:?xt=urn:btih:00D366483D655970E26286130ADDA6C8D2D3249A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C703AD1C628EADF0F1877502CB43AECAC3DB72DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Emsisoft Anti-Malware обнаруживает и безопасно обезв�
 ```bash
 magnet:?xt=urn:btih:E5F0F218EEB5C7F785594F69CA1E373D5E9FCC9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ Age of Warring Empire 2.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:0E25139947BDAC41FC5F278BC86C10864AD6CB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:8A22B64C9250D13735402ACB0205223C857A39FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ SAW: The Video Game (2009) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:CEB297B7995A587D305AE595D71FF40AAE7F3554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ Metal Gear Rising: Revengeance – совместный проект леген�
 ```bash
 magnet:?xt=urn:btih:DCC7BD6BD49BE4370BFCB052217714BE21D41AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ Coma: Mortuary - вступительная часть трилогии о со�
 ```bash
 magnet:?xt=urn:btih:8F04D39D0C8CB5A4557C42996403A3DB54985B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.99.2995/dlc) Repack Let'sPlay
 ```bash
 magnet:?xt=urn:btih:7F888CF6CC561E44ED16F89EB6C0AEBE8DBF951C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ GRID 2 (2013) [Ru] (1.0.85.8679/10dlc) Repack R.G. Cyber-Gamers
 ```bash
 magnet:?xt=urn:btih:C06108C4B866FFDD5710EBDE0E392A3A744F1A3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ Yaiba является часть ответвлением основной ли
 ```bash
 magnet:?xt=urn:btih:B650C951ECA1618B6152F5E0F1990B0CA4B91FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ Transformers: Rise of the Dark Spark / Трансформеры: Битва за
 ```bash
 magnet:?xt=urn:btih:716208DE2CD9FDCBDEC01F868BB7D004E03208A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7F21394BA6C55CB4AA46E7B7B80186F131D75C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Cathedral - The Last Spire (2013) Japanese Edition [FLAC|Lossless]<Doom/Stoner M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ EarlyRise - What If (2011) [FLAC|Lossless]<Alt.Metal | Alt.Rock |Female Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ The Dillinger Escape Plan - One Of Us Is The Killer (2013) [MP3|320 кб/с]<Mat
 ```bash
 magnet:?xt=urn:btih:7B4AA91F0D52396BC787744BADB34CCA987155BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Waltari — финская рок-группа, известная своим р
 ```bash
 magnet:?xt=urn:btih:7E1074A2582C80EE6AD529767F8D6A741F826808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Gabrielle Aplin - Please Don’t Say You Love Me (2013) [MP3|320 кб/с]<Indiep
 ```bash
 magnet:?xt=urn:btih:10203F4333CA59C84C7EED8065C81A6BDCDD0EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ My Dying Bride - The Manuscript (2013) EP [FLAC|Lossless]<Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ The Dillinger Escape Plan - One Of Us Is The Killer (2013) [FLAC|Lossless]<Mathc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Pin-Up Went Down - 2Albums + 1ЕР (2008-2012) [MP3|320 kbps]<Alternative / Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

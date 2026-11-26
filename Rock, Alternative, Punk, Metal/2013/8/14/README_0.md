@@ -27,8 +27,7 @@ Dragonsclaw - Judgement Day (2013) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:C195998B908B24996B8462439BD7CE269200D96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Fleurs Du Mal - And I Can Suffer Crying Blood (2013) [MP3|320 кб/с]<Depressiv
 ```bash
 magnet:?xt=urn:btih:F9A0C58ACD3725326A6034C89123A167F4F99FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Fleshgod Apocalypse - Labyrinth (2013) [MP3|320 кб/с]<Symphonic Metal, Techni
 ```bash
 magnet:?xt=urn:btih:28C3ED3964340719B3768D5EC2E95048C3DD6736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Ray Manzarek & Roy Rogers - Twisted Tales (2013) [FLAC|Lossless]<Blues-Rock, Cla
 ```bash
 magnet:?xt=urn:btih:E4E26DAB3C98136D61446D4A56F07015719AFF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ King Kobra - Legends Never Die (2011) 2CD [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:801C4C115C010D8EA4AAE9CEA1B0AF345FFD881A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Cheetah - Rock & Roll Women (1982) remastered /2013, Bad Reputation / [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:A8BBE233A7900D30DE365EE90266F0A747349F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Mick Jagger - The Very Best Of Mick Jagger (2007) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:74647AABDC83CA669C61256E189857CB58C5E9EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ The Cardigans - Best Of (2008) [APE|Lossless]<Rock, PopMusic>
 ```bash
 magnet:?xt=urn:btih:92146863D0610B63ECBB67020D662CE36BE8A251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Smokie & Chris Norman - The Best Of 20 Years (1995) [APE|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:16EAA2E4DA814950769DC711A5425EA3BAFE575F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Disc: 1
 ```bash
 magnet:?xt=urn:btih:F631054388D9B7190E3F1B709DA6DBB0EBEB3C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ The XX - XX (2009) [FLAC|Lossless]<Indie>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +391,7 @@ Rage Against The Machine - 6 альбомов (1992-2003) [APE|Lossless]<Heavy M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

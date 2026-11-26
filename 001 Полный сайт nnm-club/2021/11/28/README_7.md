@@ -21,8 +21,7 @@ Clipboard Manager 2.3.1 [En]
 ```bash
 magnet:?xt=urn:btih:EA1C5739F68ED844279F5A43868EEB40431345E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Dark Melodies, Vol. 5 (2021) [AAC|~323 Kbps] <Progressive House, Techno>
 ```bash
 magnet:?xt=urn:btih:FDC6009564346CFC21D2341D4FE22BC2270026A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ GlueMotion был создан, чтобы сэкономить время и п
 ```bash
 magnet:?xt=urn:btih:C88F3769C5A56AEBA47BA810E69808A1B8826698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:38C41E4CE7480E6B0B237E8DF31D4D7B433C76D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - Polyptych Limited: Year One (2021) [AAC|~314 Kbps] <Progressive House, Melo
 ```bash
 magnet:?xt=urn:btih:3AC3722BB862FA58BF696559BCE9DB5FF98F64A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ eMail Address Extractor - ищем и извлекаем email адреса. eMa
 ```bash
 magnet:?xt=urn:btih:CF64237C3F8DC953FA2974CC13012695F83DB62F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Summer Collection 2021 (2021) [AAC|~339 Kbps] <Progressive House, Deep Hous
 ```bash
 magnet:?xt=urn:btih:D72E283400BF30BD7C128C51DF8D69E205F09B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - Dark Melodies, Vol. 6 (2021) [AAC|~323 Kbps] <Progressive House, Techno>
 ```bash
 magnet:?xt=urn:btih:2A525FD162D9F780AFEA46C9EC636E3C020EAAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ GarageSale 8 v8.4 [Multi]
 ```bash
 magnet:?xt=urn:btih:3CF6411346C06B6F724F5417E9DE804163880D94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ DoubleTake - приложение предназначено тем пользо
 ```bash
 magnet:?xt=urn:btih:70D9E6581B462B1D7B9B14C96A9BAD6FF0C0A668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Iridient Developer - мощное приложение для обработки
 ```bash
 magnet:?xt=urn:btih:829C009FE3BAD98407242B4EA0E91CECF33D8D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ ShowKeyPro 1.0.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:B8648E93B809B0BDDE52002EBE394FA5DCE2F871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Eliminator - Last Horizon (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:AA4156E1B395F5B037D5C1CB3D6702F4D7B26EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Timemator 2 v2.8.5 [En]
 ```bash
 magnet:?xt=urn:btih:DBEEEFF81CDFD1CDA77D9A433F9FEEDC12613C7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ PhotosRevive автоматически раскрашивает ваши ста
 ```bash
 magnet:?xt=urn:btih:FB366F00AC2A76DC1A74065C768A87B14F0BC86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ VA - We Are 3000Grad (Katzengold DJ Mix 004) (2021) [AAC|~307 Kbps] <Deep House,
 ```bash
 magnet:?xt=urn:btih:68DDA004593F5C87306ED830FD7B70D9C16B8F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ VA - Prognoesis, Vol. 02 (2021) [AAC|~337 Kbps] <Organic House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:7BACBC42F388AA1B10EF63354AC2133CD72DA3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Project Office Pro 9.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1050C0514EBE9D34528FE961EA5B205D2D3FB1E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ VA - Morttagua - 5 Years, Vol. 1 (2021) [AAC|~306 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:405A6C9A4F9E9403A46F62F04BC6D06F12D2F330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ Tipard Blu-ray Converter for Mac 10.0.10 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:822B69F2896817DFC2907A8DC365184CCB3947BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ VA - Dark Melodies, Vol. 3 (2020) [AAC|~325 Kbps] <Progressive House, Techno>
 ```bash
 magnet:?xt=urn:btih:335250F709F8FE0E09DED34657D9F9F9314B885D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ VA - Dark Melodies, Vol. 2 (2020) [AAC|~327 Kbps] <Progressive House, Techno>
 ```bash
 magnet:?xt=urn:btih:6227CC91B66B9BC8A14EC7B9F704C4698F6CBBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ BookMacster - приложение синхронизирует закладки
 ```bash
 magnet:?xt=urn:btih:07F2CFCCBD24516774F71124556EB5A63E3CE278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ VA - Morttagua - 5 Years, Vol. 2 (2021) [AAC|~314 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:B912B8D8460D867DC9C453AE76635BBFAB909548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ VA - Prognoesis, Vol. 01 (2021) [AAC|~329 Kbps] <Organic House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:1DDF39B130C84DBB0787581DC31443A09F649345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ VA - World Of Psychill (2021) [AAC|~307 Kbps] <PsyChill, Psybient>
 ```bash
 magnet:?xt=urn:btih:CD75DEE950A75DB736D333E44A080CE0E1819E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

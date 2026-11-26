@@ -27,8 +27,7 @@ Crescent Lament - Behind the Lethal Deceit (2011) [MP3|320 kbps]<Melodic Black M
 ```bash
 magnet:?xt=urn:btih:2888563377AC73B87E363BCC2971406304788A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ First Band From Outer Space - 3 Albums (2005-2009) [MP3|320 kbps]<Progressive Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Rip by2011Жанр: Black MetalПродолжительность: 00:44:58
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Can - Tago Mago (1971) [MP3|256 kbps]<Краут-рок>
 ```bash
 magnet:?xt=urn:btih:E7688AC7923C0DF791364B2A9B493C987EC07A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

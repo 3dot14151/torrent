@@ -28,8 +28,7 @@ Zaxas - Zaxas (1995) [FLAC|Lossless]<Heavy Metal / Power Metal>
 ```bash
 magnet:?xt=urn:btih:1FABA15EAE9E5D8719B1454960E253B809C63C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Gabriel - Unforgiven (2014) [MP3|320 кб/с]<Gothic Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:96AC3D816C5B54B48AE0DCDB95841AC87BC5AADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17CCA4499C672BE9AE76C8C0C94F9894D220AC55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Creedence Clearwater Revival - Chronicle: The 20 Greatest Hits (1976) Reissue/19
 ```bash
 magnet:?xt=urn:btih:8FB633D526CE83F4E6612F0B00AA32D04816ADCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

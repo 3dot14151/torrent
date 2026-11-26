@@ -19,8 +19,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.1.1/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:C32F7849396343403872DDACCF657C3F36149ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

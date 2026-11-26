@@ -19,8 +19,7 @@ Core Temp - программа для контроля температуры п
 ```bash
 magnet:?xt=urn:btih:9F5B9A02CB553D4BA3ADEAFD2A7D4EA4498DA94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

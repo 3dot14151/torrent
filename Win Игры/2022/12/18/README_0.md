@@ -19,8 +19,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (20.1060) License GOG
 ```bash
 magnet:?xt=urn:btih:2F5BA81292C7D8BEAE5AFF2A17433892B2EC86B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Salix OS 14.1 Openbox [x32, x64] 2xCD
 ```bash
 magnet:?xt=urn:btih:361D3859138950B1E66387E998C095120B18ED75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ KNOPPIX 7.4.0 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:55768F72CD854D7D92AA53EDD1CD04E0A3F15847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ DEFT 8.2 (Инструментарий расследования компьют
 ```bash
 magnet:?xt=urn:btih:5A4F76D29059BDB91117D9BF923C08EE63DADB56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ CAELinux - это дистрибутив Linux с открытым исходн�
 ```bash
 magnet:?xt=urn:btih:72F6DB926E97BDEB5E660DD05A17893C2F599A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

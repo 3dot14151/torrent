@@ -19,8 +19,7 @@ Bounty Train (2017) [Ru/Multi] (1.0.13832/dlc) License GOG [Trainium Edition]
 ```bash
 magnet:?xt=urn:btih:CD41490AEB6FAACBA567E4D786FA66E2ADD343C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Undertale (2015) [Ru/En] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:D0BD0F06AE2058FD6817EA202D7939B014E058D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

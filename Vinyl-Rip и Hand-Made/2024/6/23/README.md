@@ -20,8 +20,7 @@ S.O.D. (Stormtroopers of Death) — музыкальная кроссовер-т
 ```bash
 magnet:?xt=urn:btih:A833621B679ADD999E5879420C289AA8C7C8FFE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

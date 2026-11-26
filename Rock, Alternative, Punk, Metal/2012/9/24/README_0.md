@@ -28,8 +28,7 @@ Vexillum - The Bivouac (2012) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:06E0937790C0B59ED71BBE58F98292E51B111F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Spitfire - 5 (2012) [MP3|320 кб/с]<Ska-Punk>
 ```bash
 magnet:?xt=urn:btih:4089E82D6281851578416371EAEF2E4DFE7E766D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Three Days Grace - 10 релизов (2003-2011) [MP3|128-320 кб/с]<Rock/Alte
 ```bash
 magnet:?xt=urn:btih:CE1D23ED9C3B427E4984FE203083A2DBB1657D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

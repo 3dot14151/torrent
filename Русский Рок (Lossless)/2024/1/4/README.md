@@ -22,8 +22,7 @@ LOUNA - Обратная сторона. Часть 2 (2023) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:5553F26624E7CDB76FC9689EB26C5BEB9DA8654E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

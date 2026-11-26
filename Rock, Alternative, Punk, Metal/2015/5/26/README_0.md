@@ -22,8 +22,7 @@ Azaghal - Madon Sanat (2015) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:4603126E6F2B23867F449A79EEEA86536DB0726C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Preach - Gasoline Veins (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:EDC419C9D6752BFEFB6AB1E4E987C4FEECB9C470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mors Subita - Degeneration (2015) [MP3|320 кб/с]<Melodic Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4731A2640D627288992A8D5C2614F279AC85A2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Les Discrets - Live At Roadburn (2015) [MP3|320 кб/с]<Post-Rock, Shoegaze>
 ```bash
 magnet:?xt=urn:btih:89FCC14C8B223976E8259430E2D528126CEAE478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Blastar - Blastar (2015) [MP3|320 кб/с]<Progressive Rock, Psychedelic Rock, A
 ```bash
 magnet:?xt=urn:btih:771EB359A6D39BE5C169A7171650AB4E2D242032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tock Hard - Tock Hard (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C21FACDFA55BD09046293D4FF8A9198947637AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Artizan - The Furthest Reaches (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:4541B624EBD9273B92948FAF461D894E1E6C2629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Feared - Synder (2015) [MP3|320 кб/с]<Melodic Death/Thrash Meta>
 ```bash
 magnet:?xt=urn:btih:58955B880E4E3875ADE6424AEF8EF814C2E0A027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Nightmare World - In the Fullness of Time (2015) [MP3|320 кб/с]<Progressive/P
 ```bash
 magnet:?xt=urn:btih:DAFC3F63CEF99AFB37931363C513C32D2E755550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Lifehouse - Out of the Wasteland (2015) [OGG|479-569 кб/с]<Alternative, Pop R
 ```bash
 magnet:?xt=urn:btih:3EFBB7F73F17F8903D02326AF13C447AB6CFB5C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Worldview записали в студии две песни, которые п�
 ```bash
 magnet:?xt=urn:btih:F04271A7ADD9578E089F43BFEF7E6E4D6AFEF9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Iron Savior - Live At The Final Frontier (2015) [MP3|320 кб/с]<Speed/Power Me
 ```bash
 magnet:?xt=urn:btih:4E0388F8B34FB682BDB2EC743421697DE41FA065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Ten - Isla De Muerta (2015) Japanese Edition [MP3|320 кб/с]<Melodic Hard Rock
 ```bash
 magnet:?xt=urn:btih:1A3212B348A2D9E26B055BB6E0EAEC3D68B77E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A13369EA5B353123C590931066B55F5B8122B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61A5CF9266D10D10F51B8D6AF758EE85E53BD5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

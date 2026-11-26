@@ -22,8 +22,7 @@ Rascal Flatts - Greatest Hits Volume 1 (2008) [FLAC|Lossless|tracks + .cue] <Cou
 ```bash
 magnet:?xt=urn:btih:8C1F718BE90C94B1C48C67C56C589EE6888D9B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Hair - The Original Broadway Cast Recording (1968) 1988, RCA Victor, BMG Cl
 ```bash
 magnet:?xt=urn:btih:D47A5DE4ED6FA088392421F82FBF86CFCE25656C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Beatles / The Beatles with Tony Sheridan / Tony Sheridan And The Beat Brothe
 ```bash
 magnet:?xt=urn:btih:113F10EECBB94E7ABA1F76EAE5A2F90DBDC35875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC2629DCE5B900C4156CBDD3B3F94033AB771E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ U2 - U218 Singles (2006) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:BCB0B2731E3ABCCB5AB9A82872B51C5DAB1DDBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9B0F0A983CFA2CC46360214E9688680A3D3E3BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

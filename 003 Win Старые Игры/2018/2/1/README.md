@@ -19,8 +19,7 @@ Carmageddon 2: Carpocalypse Now (1998) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:44A369AE36F3A829364466A9E652CFF84C96B2DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 ```bash
 magnet:?xt=urn:btih:6A6DE2CE1DF6C690EDB28B08191DB3C320C5F38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

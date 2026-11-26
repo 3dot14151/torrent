@@ -19,8 +19,7 @@ Mists of Aiden — это сюжетный хоррор от первого ли
 ```bash
 magnet:?xt=urn:btih:B6135A93756DA8CE8547F041C5BEE886FDEE2A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

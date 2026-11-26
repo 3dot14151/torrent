@@ -19,8 +19,7 @@ Dustforce DX (2012) [En] (1.0) License DEFA
 ```bash
 magnet:?xt=urn:btih:3F5B42E4DB2783CB8C1F4E8DBBEAAE646D178022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Not The Robots - это аркада про маленького робота, �
 ```bash
 magnet:?xt=urn:btih:15280CF93AA6371CD472E10EF623B95165170A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Farming World - это симулятор фермера, в котором иг
 ```bash
 magnet:?xt=urn:btih:A4A7AAC3875E9497256FDA5ED62A3063C408B416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7755307E67FF7CF6FB1AC3FFAD0A0D81C1E089F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

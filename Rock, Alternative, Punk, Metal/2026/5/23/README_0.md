@@ -22,8 +22,7 @@ Opera IX - Veneficium (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Meta
 ```bash
 magnet:?xt=urn:btih:C3BAE8503B419B11FA651DA8D07DCA2A102A7492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

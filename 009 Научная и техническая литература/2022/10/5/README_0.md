@@ -20,8 +20,7 @@ John Farndon | Inventions: A Visual Encyclopedia (2018) [PDF]
 ```bash
 magnet:?xt=urn:btih:979236FDE2CA5F60944AA25FDAC8DDAB3C8DAD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Tom Jackson | The Periodic Table Book - A Visual Encyclopedia (2017) [PDF]
 ```bash
 magnet:?xt=urn:btih:A24BCBF0BBB84F94CC7A83251EA65A8AC9DC585C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

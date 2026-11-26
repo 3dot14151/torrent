@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:4BF361FB652F9C245F62F139A17253D87092FAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B6FDBC6513911A2802E4EF755AF009BAB5482FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:098C9103E55D34CFB344FF376B0D778D2045624C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Adobe Press | Adobe Dreamweaver CS6 Classroom in a Book [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:88D4D0029EED76F408AA27907F070183C1C831C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Adobe Press | Adobe After Effects CS6 Classroom in a Book [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:253801B14A9F7892D49FFFA4CD91553FA5D868D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

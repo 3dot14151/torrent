@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:62929D6370C1480EA159BE5F432A3DF685E233E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Instant Translate On Screen — это мощное приложение для 
 ```bash
 magnet:?xt=urn:btih:077CF8BED130A29C35C2B43B3DFDDFD27FECB12C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3C0E33DBBFC2BFD001013FFFA17AB223E78A9D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

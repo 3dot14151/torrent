@@ -19,8 +19,7 @@ Display Tester v5.35.5 Mod by Balatan [En]
 ```bash
 magnet:?xt=urn:btih:100C223F93CE8E7F997EAF9B1332C4F84A6651C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9ABDB8A5E354E95B7CF0DD08F8997A8B433F6C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Muviz Edge — первое в своем роде приложение, кот�
 ```bash
 magnet:?xt=urn:btih:12F201CEB1575EA2B3E6512880EED22CE7E3500E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ VaporCam (90s) / 90-е - Глюк VHS Видеоэффекты v1.7.7 Mod by Ale
 ```bash
 magnet:?xt=urn:btih:58C54BCD8DDB661FC44EF82EC4FC8AF3FA0F2238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

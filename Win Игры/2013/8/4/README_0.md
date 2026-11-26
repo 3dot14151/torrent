@@ -19,8 +19,7 @@ Forest Legends: The Call Of Love Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:875F5A611A01458539C49146D7C10AD10F30EC54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Night Mysteries: The Amphora Prisoner / Тайны ночи. Пленники А
 ```bash
 magnet:?xt=urn:btih:D0DF2DFF622AC24EFD0697C382BD8AA7CCE78D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Heritage: Guardians of Hope Collector's Edition / Темное наслед
 ```bash
 magnet:?xt=urn:btih:67380A7B78DFCB3758A013DC4B0499AE37E75816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

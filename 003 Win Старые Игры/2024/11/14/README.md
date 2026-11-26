@@ -19,8 +19,7 @@ Dragonsphere (1994) [En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:74EAA125E5D6DD0D4D7EEAFD83BDF88A63C0442F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

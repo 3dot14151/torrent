@@ -19,8 +19,7 @@ Listen Audiobook Player v5.2.2 (979) Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A9D1C6F75DA294A0F952E6B97D3512874DC9D788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

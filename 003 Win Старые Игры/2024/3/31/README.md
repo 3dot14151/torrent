@@ -19,8 +19,7 @@ Sword Art Online: Alicization Lycoris – новейшая игра по мот�
 ```bash
 magnet:?xt=urn:btih:FC89AFC447C5431E34AE95D5D104FE6FEEE278C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

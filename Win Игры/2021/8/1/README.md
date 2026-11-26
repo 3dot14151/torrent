@@ -19,8 +19,7 @@ Haunted Hotel 20: A Past Redeemed / Проклятый отель 20: Искуп
 ```bash
 magnet:?xt=urn:btih:1AE9B610CA9F5A6A540F54F0E0E4C2B405F5F6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Night Delivery|例外 配 達 (Ночная доставка) — психоло
 ```bash
 magnet:?xt=urn:btih:613D128381A5A82260A69F2E02F61BD551556CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Signs of the Sojourner (2020) [En] (4) License GOG
 ```bash
 magnet:?xt=urn:btih:B3438D62723236D662A1AAAE747C37A88434AE62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

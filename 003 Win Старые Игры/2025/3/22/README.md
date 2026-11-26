@@ -19,8 +19,7 @@ Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1B672DE64497531BEF3D97E0F6A247CAE1F513C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ N.I.C.E. 2 / BreakNeck (2000) [Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3E4F97D1B65F2AEFF72E4FFB972ECB46EB1339F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Have a N.I.C.E day! (1997) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:D2E0B50DEEA354E02AFDE212709B660C810A6C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Europe - One on One (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4AD50ADA9C1ADDB17AF1AC5EDD9FA0AFB3FDF3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Gabriels - Fist of the Seven Stars Act 5 The Final Conflict (2026) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:ADB68DAF3333EB367C29079F336A1BE9899FA76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

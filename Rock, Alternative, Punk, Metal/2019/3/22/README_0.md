@@ -22,8 +22,7 @@ Living Hour - Softer Faces (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, Psyc
 ```bash
 magnet:?xt=urn:btih:D2669C64454BE35BBA5986BFD78FABC66BED35A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C27AFA53F971473A96DEBF6F51B2EB91398F47A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Whitesnake - Slide It In (1984) The Ultimate Special Edition 6CD, Remastered, 20
 ```bash
 magnet:?xt=urn:btih:E12FDF4254F8C6431A304307235C38DCB8CEC70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lacrimosa - Zeitreise (2019) 2CD [MP3|320 Kbps] <Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:E06255E7E4BA51D523347B08654A0FA029BAE008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

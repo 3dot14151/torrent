@@ -22,8 +22,7 @@ Thyrant - What We Left Behind... (2017) [MP3|320 кб/с]<Groove Metal, Thrash M
 ```bash
 magnet:?xt=urn:btih:A117090FBB58B0029C0EF9DF48980136E096D316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Samsara Blues Experiment - One with the Universe (2017) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:431F6E05801048DD92D62C9E068F382D4E34F699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBDC1ED75C8F635D49A97E15594AC232727A093D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Paramore - After Laughter (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Altern
 ```bash
 magnet:?xt=urn:btih:C25A015366BE0E4584C4F0A3A0567B09A370F5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2090039E5854485C48B5A346A2F7831DDDE8B120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

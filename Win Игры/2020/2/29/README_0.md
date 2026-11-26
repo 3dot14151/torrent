@@ -19,8 +19,7 @@ MX Nitro: Unleashed – динамичная платформенная гонк
 ```bash
 magnet:?xt=urn:btih:AF2FE455574084E77140A46C5CECFD4193BDC5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Iris and the Giant — это коллекционная карточная иг
 ```bash
 magnet:?xt=urn:btih:BDF6C87E7FE39304C74BDF3358653623BD10329F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

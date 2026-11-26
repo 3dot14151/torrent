@@ -22,8 +22,7 @@ Void Vator - Great Fear Rising (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:14A616D554B10798FB94DC98DD9E5C5216FACC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bloody Heels - Rotten Romance (2022) [FLAC|Lossless|image + .cue] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:5B8BE59FE15ED23813F3DC0A704718CA060DB716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Magic Dance - Remnants (2020) [FLAC|Lossless|image + .cue] <Melodic  Rock>
 ```bash
 magnet:?xt=urn:btih:9D2384D118ECAC7745EC4C50E09D31D0E72488D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deaf Havana - The Present Is a Foreign Land (2022) [MP3|320 kbps] <Alternative R
 ```bash
 magnet:?xt=urn:btih:230106973865BA716ED665D70DB138E2D044EA08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bill Champlin - Livin' For Love (2021) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:423F745E4C8A9B96658A3268A5DE9B263D3E90F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Amon Amarth - The Great Heathen Army (2022) [MP3|320 kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C54321CF126C95DFF898E072E248F75142934133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ H.E.A.T - Force Majeure (2022) Japanese Edition [MP3|320 kbps] <Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:44B8886C57E651158A4256338CA13B4067DF323F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Generation Radio - Generation Radio (2022) Japanese Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:FE84A477F6F4E54B1E54C8D6A10CA37FD1E18AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Liam Gallagher - C'mon You Know (2022) Deluxe CD [MP3|320 kbps] <Indie Rock, Bri
 ```bash
 magnet:?xt=urn:btih:31847B758545F5DE8E4629A89B1650A0EE6AE7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Arch Enemy - Deceivers (2022) [MP3|320 kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2997F2101E3A00F2B75BD44B0C41376950549152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Deep Purple - Bombay Calling (Live in 95) (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:A29DADFCC8D2507A2875D6E0FF00FCD901443F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFAA7BCEDBEAE2B23DA5FE1FDBA045FCD7C81B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ Sinner («Грешник») — немецкая хеви-метал-групп�
 ```bash
 magnet:?xt=urn:btih:E3E700C78CD498FFBDFC09291E22D6E964C31411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED0351A352E7D79CEBF3908379A65D3269E087E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:680179CB2F35E4DC6543398967924D4687FF0FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

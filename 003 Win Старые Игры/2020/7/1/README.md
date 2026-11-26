@@ -19,8 +19,7 @@ Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition
 ```bash
 magnet:?xt=urn:btih:5A4F0602B99F5598338759161ACBC25B26F08617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2AE5418AF5E987A295A01A7B350DB8F0CCD5C298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ File Manager Plus / Файловый менеджер + v3.5.9 Mod by Balatan [R
 ```bash
 magnet:?xt=urn:btih:F25E6A200929E0EE61C301EB06281011336418A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Gmail, Yahoo, Hotmail, FastMail, Apple, GMX, Outlook, AOL или Exchange - Aqua
 ```bash
 magnet:?xt=urn:btih:242ADBAD86ACF5C9E839DE8B8C8B7F26C0A9DDDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

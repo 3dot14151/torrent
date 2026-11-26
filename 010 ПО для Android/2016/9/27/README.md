@@ -19,8 +19,7 @@ Monetal - новый менеджер финансов для Android. Пред�
 ```bash
 magnet:?xt=urn:btih:C64777154E29E1AD8CC5F74081D3E4BB85B79478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

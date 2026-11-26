@@ -19,8 +19,7 @@ Mystery Tales 13: Til Death / Загадочные истории 13: До са�
 ```bash
 magnet:?xt=urn:btih:48A7139A9267B2C0FE1954E84AB2A3AD40BBE6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

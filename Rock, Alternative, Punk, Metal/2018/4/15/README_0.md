@@ -22,8 +22,7 @@ Tamarisk - Breaking the Chains (2018) [FLAC|Lossless|tracks + .cue] <Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:E4872992B6FA3E85D975E085032B834CD991220D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mike Score (of A Flock of Seagulls) - Zeebratta (2014) [MP3|320 Kbps] <Alternati
 ```bash
 magnet:?xt=urn:btih:9C0180BEEC3D58F62FF1B3DCAC22B3B69345114E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Enigmatis 3: The Shadow of Karkhala (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C993CA02A9FEE93F0C12B0E74E3B750531A136D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cursed House 5 / Проклятый дом 5 (2018) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:6C58C967DF10C80B93F542FCAF38854A41FA0AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:667305B362F1F1214BEB4CDAEFC3A7F09B15F3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Battlezone: Combat Commander (2018) [En/Ge/Fr] (2.0.180) License GOG
 ```bash
 magnet:?xt=urn:btih:3EC3345B2EE7DE67CE9632CAB028B0960F2F1644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

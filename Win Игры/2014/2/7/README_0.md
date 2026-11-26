@@ -19,8 +19,7 @@ Car Mechanic Simulator 2014 (2014) [En/Multi] License
 ```bash
 magnet:?xt=urn:btih:103754047905D5ED653FA23B51D45A8F680FC85E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Echo Prime (2013) [Ru/Multi] (1.02) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DA5DCFDEEE4F7A643FD45E2BB4A46FE13E457314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ The Darkness II/2 (2012) [Ru/En] (1.1/dlc) Repack Fenixx [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:0B44EA03862388995D0EBC0132CBE18B94258E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ WRC Powerslide (2014) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:4256EE8288211A12DB704F1B7B4083B4976458CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

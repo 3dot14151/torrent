@@ -19,8 +19,7 @@ Lost Legends: The Weeping Woman / Забытые легенды. Плачуща�
 ```bash
 magnet:?xt=urn:btih:0D2A3E0A65894B2C317307FF8B18B83BD72B5D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Chess 2: The Sequel представляет собой старые добры�
 ```bash
 magnet:?xt=urn:btih:D1D0D470802061ECFD0214A5124C4175602EF64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Rooster Teeth vs. Zombiens (2014) [En] (1.0) Unofficial FANiSO
 ```bash
 magnet:?xt=urn:btih:3F12DED049E74C7A5A71BA926186198DBCE0B94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Movie Studio Boss: The Sequel — это бизнес инди-симулято�
 ```bash
 magnet:?xt=urn:btih:4DD94B6E24F6EC3B26A6C4236803B1B846F8BF62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

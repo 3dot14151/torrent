@@ -18,8 +18,7 @@ KMSAuto Net — автоматический KMS-активатор для оп�
 ```bash
 magnet:?xt=urn:btih:515FB9ED46216D67C4080C298A267D578C39E159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

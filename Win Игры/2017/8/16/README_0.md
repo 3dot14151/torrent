@@ -19,8 +19,7 @@ Fragmented (2017) [Ru/Multi] (17.8.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:0B70FB27A8AA1BDD19A2EC320F32088D7A6F5122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

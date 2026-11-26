@@ -19,8 +19,7 @@ Atlantis Sky Patrol [En] (P) 2006
 ```bash
 magnet:?xt=urn:btih:410D45C02095265EA96B5C3FB16C50F0CC1CC758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Scania Truck Driving Simulator - The Game [En/Ru/Multi33] (L) 2012
 ```bash
 magnet:?xt=urn:btih:04CB714DD0E059B827C25D63443AA73DB96922ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Edna and Harvey. Harvey's New Eyes /Эдна и Харви: Новые глаз�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Need for Speed: Most Wanted – безумные гонки по огромно�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Need for Speed: Most Wanted – безумные гонки по огромно�
 ```bash
 magnet:?xt=urn:btih:72F57DB19E7DEE35DC2097CEC16DB171E8DC3B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Need for Speed Most Wanted: Limited Edition [Ru/En] 2012 | POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:ED2D4BBE780B4ACFEAEE646146CDE3E82752F4F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

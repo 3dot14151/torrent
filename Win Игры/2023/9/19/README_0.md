@@ -19,8 +19,7 @@ Alder Forge (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E881CF20C552A31E2C0714BD6DDC02057A0EB07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Horizon Chase 2 - классическая динамичная и проста�
 ```bash
 magnet:?xt=urn:btih:DE656409E867CAB6CAEE3C062EBA8FCDFA780579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Strike Force 3 (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6C7FA6AFF0EC945AB0A1E2218E64A59E006A334A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ CD1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Driver Magician - программа для создания резервных 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Stand Up (2016.11.13) SATRip (сезон 5, выпуск 6)
 ```bash
 magnet:?xt=urn:btih:21EA45E7B422985AF75D10A9C130741CDC53AD85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ VideoPad  предлагает  средства для быстрого и лё
 ```bash
 magnet:?xt=urn:btih:DF6B6E49DD0C3432D699ACDA538B0B445CDB46FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E3BC27822FA65FD4053D6897EEE3020DDCAE889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Naked Science (в пер с англ. «С точки зрения науки»)
 ```bash
 magnet:?xt=urn:btih:632FCD7ED057836B2B65CDF0215D5380D5553C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D31F576A7A4C875AFE70A5F0B9BE160EDE9F46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Billy Blanks | Tae Bo Bootcamp Shred (2016) WEBRip [H.264/1080p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:40A7CE2263CFE90BD754CD5613396A877E4D0D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Gregorian представляет последнюю главу своего п
 ```bash
 magnet:?xt=urn:btih:0E87DF3E1A9C63E956EE9DBB4AAD184C5C315042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Beachbody | Insanity Live ! (2016) HDTVRip [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:4049279057006C3210F4DB5BB816E66BEB610397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Fire Epic Titles - является кинематографическим ша�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtra
 ```bash
 magnet:?xt=urn:btih:9D0409D2382028CBF24D22EB7A319F64D1314AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Folding Photos Intro -  стильный и динамичный шаблон с
 ```bash
 magnet:?xt=urn:btih:67299285B3EECF51932265CF6E800F1BF83C0988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.
 ```bash
 magnet:?xt=urn:btih:73221EECE9F65B5A59718BBB8D366303FF9153C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Enigma - The Fall Of A Rebel Angel (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B3A3F963EC9E15E4E1FCC9EC2071289BF1CA6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ Daily Burn | 7 эффективных тренировок от различны
 ```bash
 magnet:?xt=urn:btih:CF437BB79C7E992C449744E622DDFE518C115A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFC33C0782A474D84BC06DCBACE5BE28C0EFF8A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E40084C1EE685EC773612BF3BD10D7952447D4F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Billy Blanks | Tae Bo Max Intensity (2016) WEBRip [H.264/1080p-LQ] [EN]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF00D767B1FE5F7EBCA8679CD5D1E27274DFD112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ Beachbody | P90X Live ! (2016) HDTVRip [H.264/1080p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:3AC1C4AAF7F5B1E4F5EEBAF6A124E5A631316EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ Z-exit - 3д в кино (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:15B31DDF7FF35B59F4F04C74443212347DE1F7C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ Zero Assumption Recovery — программа для восстановлен�
 ```bash
 magnet:?xt=urn:btih:A925302FA5165D9DE13FC119B05C2ABE73E22036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

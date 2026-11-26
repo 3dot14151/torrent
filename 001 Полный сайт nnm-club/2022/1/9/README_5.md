@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:50C025930F082899C315B0DFB16921F00237316F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ CEE - Central (   Читать дальше...   )Жанр: фантастик�
 ```bash
 magnet:?xt=urn:btih:4B9499FF2194C30092C9EB3AE5769227AC59ED3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dead Cells — это экшн-платформер в жанре Rogue-lite и 
 ```bash
 magnet:?xt=urn:btih:F852B75E8F0434FE8FEF9E6547A4E1789D556819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.01.04 [Ru]
 ```bash
 magnet:?xt=urn:btih:2B5918008B76F22B2EB0D67F98AA6A81BC70841B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 3 (2015) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:E759F78A3A9E7F5C4E17444D15FAB2FFC58A7625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:0E9F3604FE4C25DED6A0050A692231CE984C467C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ```bash
 magnet:?xt=urn:btih:5D8EC71B116651A2AE6E063ED3F9399BCE06FD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 5 (2015) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:EB577A43025D370D5F0754F5C9696EB18FD4338D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Xliff Editor- предоставляет простой способ редак�
 ```bash
 magnet:?xt=urn:btih:5A0F8E0746F9C68ABE44F516F4EB632C3A5BC410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 4 (2015) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:E50AD95441E00B973065CC502302C174318E4087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ ColorWell обеспечивает мгновенный доступ к стан
 ```bash
 magnet:?xt=urn:btih:A0C8282EEA50E78FAA543F8997A10632F6BD5B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 1 (2014) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:814A3EF455D94D87044E9F27CE32BF245FB444D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 2 (2014) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:E9FCE06136E25F48F9174142D22A9CF9BABCC309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Iridient Developer - мощное приложение для обработки
 ```bash
 magnet:?xt=urn:btih:A042D83D85B9ADB60C2737AAE85C233F2698BFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ SyncBird Pro - это файловый менеджер iPhone, который �
 ```bash
 magnet:?xt=urn:btih:CDE26D3FD6D59F7E256FE3AB12DD5A113AEABAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ VA - The Electro Swing Revolution (2011) [AAC|~305 Kbps] <Electro Swing, Nu Jazz
 ```bash
 magnet:?xt=urn:btih:AC0DC442191F9BB25273A7789343D09C03D21BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Invisible является простым в использовании и оч�
 ```bash
 magnet:?xt=urn:btih:072BEA22B4A91CE608A57A04D4A5C43D30D235FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ```bash
 magnet:?xt=urn:btih:A84059A02124ADDBCD893C484F2FCD5330BA5509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ Hides 5.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:1A33FDB572741F82924727F29B0352C9DC9F1C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ A 5-level series with clear explanations and communicative activities to help yo
 ```bash
 magnet:?xt=urn:btih:8CC4C2D3965F1402124DBD89A8CAF9836906514D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

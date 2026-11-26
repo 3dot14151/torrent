@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:453B88B18B09E9A06AD9E8721EF590540FC9D719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Oli Brown - 3 Альбома (2010-2013) [MP3|320 кб/с]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:2260450F16570B39F84A8C1D436CB9BA0F0667C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Muse - Panic Station (2013) [1080i] HDTV
 ```bash
 magnet:?xt=urn:btih:5AE86B4E3CB32C6044AEBD86A32E11FB37C90DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C86793CEC6459E1A105C7B0B8FA1E7603658CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Joan As Police Woman - The Deep Field (2011) [FLAC|Lossless]<Rock, Indie, Altern
 ```bash
 magnet:?xt=urn:btih:5F238634A3DAFBBC7A983ED012EB6049AF1341BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Cher - I Hope You Find It / Woman's World (2013) CDS [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:6F9E74C88F30F26344CA8B9BAFF2EADDFEBDC70C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ VA - Music XXL Special Edition (2013) [MP3|320 кб/с]<Pop, Dance, Сlub>
 ```bash
 magnet:?xt=urn:btih:3B8D0D06071D005B57C2B7A670BE5C182C07E6F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ NG: Винни Джонс: Реально о России / Vinnie Jones: Russia
 ```bash
 magnet:?xt=urn:btih:0841314D9C4B37F871A6E281C63B996A7CCF3A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ Stacey Kent - Candid Moments (2013) [MP3|320 кб/с]<Vocal Jazz, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:1F45D0EDE76B5AD18C870AFFC1994D111A6835B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ Schoolboy, James Egbert - The Silver Lining EP (2013) [FLAC|Lossless|WEB-DL]<Dub
 ```bash
 magnet:?xt=urn:btih:B80AA0B1A4BD7314961BE1DDBE069362704E3419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ Bee Gees - Idea (1968) Reissue /1989, Polydor/ [FLAC|Lossless]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:52C8A424F6B92AC399D824BE0E17E9B65DF66A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ Muse - Follow Me (2013) [1080i] HDTV
 ```bash
 magnet:?xt=urn:btih:31FED8550618B912B381A818D12210AEDF98F9EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FA7AEB5D5B694554CBD9AA9A0AC26A166C3FAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ Bee Gees - Horizontal (1968) Reissue /1990, Polydor/ [FLAC|Lossless]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:A4E9E7BAB0B5C21DCD5F5B393EB54343D675BDDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:DEEFA0B158FFD9DEECAA02E5A54B395DA9A1C179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFE2B35E8F46DB47B3FCE0769EA0FAE80BE98DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9205F8FA1B359A543FE5F3BB840533796C6E29B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ VA - Ministry of Sound - Addicted To Bass Winter (2013) [MP3|320 кб/с]<House,
 ```bash
 magnet:?xt=urn:btih:28EB097E01CCCA9631A3AB96CB7C76B75701CC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ Miley Cyrus - We Can't Stop (2013) CDS [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:6474DF97E68F605D609EB2729666AB878F021701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ VA - Punk Goes Christmas (2013) [MP3|320 кб/с]<Pop-Punk, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:26E325EAB255B4EE7EC581A564642474433D99F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +627,7 @@ Billy Idol - Cyberpunk (1993) [FLAC|Lossless]<Electronic, Rock, Pop Rock, Punk, 
 ```bash
 magnet:?xt=urn:btih:C34D67ADAF5C1C4D9A04706ECA9C03034F2E53C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F30EA1D355CCFF95AD857640EF10A7BB152E1D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +677,7 @@ Linux Format (UK) легендарный, британский, ежемесяч
 ```bash
 magnet:?xt=urn:btih:6944BDD2BDC4B5DE418CFBBACA8E3714B39DAB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +711,7 @@ VA - Давай Поговорим 2 (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:B4A8737B8A9FAFBEC6F48D2D4AC649193E6FC907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ VA - MNM Urbanice 2013.2 (2013)2CD [FLAC|Lossless]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:D7018B03D1FF95D6140A57499C5085DB7946B4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

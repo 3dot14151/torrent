@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:66F9B58CF55BF381463C7559B490971FE246862B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9C6DF2EE52929AFA0FE7633FFE7590F07F3BE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76A9F8EE59C6905410FF06F62C8E1DFAA81CD0E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Best Of Chillout Vol.07 (2017) [MP3|320 Kbps] <Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:E3981F46061DE53F1CA6055C42BA16803C9C5322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Fingers In The Noise - Black (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Glit
 ```bash
 magnet:?xt=urn:btih:BCBE122E57A470919AFFC44F9B0CC0592EA85573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - FG Top 10: November (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7FE68060357796372B9013475E56AD2DB9821F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Aziola Cry - Ellipsis (2005) [FLAC|Lossless|image + .cue] <Instrumental Progress
 ```bash
 magnet:?xt=urn:btih:08110DB730D236B82331FB6D56125D8236B7692D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Trancer 100 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:A5A39EF40C6E4DDAD3B45D296160191AE52A70E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Tropical Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:66911F66AEF630FC3E2BACB33C9A36E93D4328EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Possibilities Of Circumstance (2013) Projekt [FLAC|Lossless|tracks+.cue] <A
 ```bash
 magnet:?xt=urn:btih:4A6F1F9AE64CFCEB1E9D45C183901070DF4061AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Andrea Bertolini - Ultimate (2017) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:8AD8AE4D09B5DFC3A7E6437EB040511F6078C79A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB753B2BB6AB13884E3521419C67FD141A72B1F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ VA - Winter Lounge - Cool Electronic Downbeat Chillout Moods (2017) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:51416EF98DC0BC32FFD63B69F27E752DD9FAFD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Future World Orchestra - Turning Point (1983) LP [MP3|320 Kbps] <Electronic, Syn
 ```bash
 magnet:?xt=urn:btih:28E048316038778AA84D22D0BFB24E0466979EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ VA - Top 50 Brazil (2017) [MP3|~203-283 Kbps] <Latino>
 ```bash
 magnet:?xt=urn:btih:1FCFDC030F86F691E5268BB99F07CAA4641D7030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Loudness - Re-Masterpieces (2001) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:632DBC948832D541454D016E453892AE7E493C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ VA - Reggaeton: Latin Direct Radio Show (2017) [MP3|320 Kbps] <Latin, Reggaeton,
 ```bash
 magnet:?xt=urn:btih:116EBEF8AE469DD54A275AE1F1AD5A23B650A0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CAF8AB15DCC193E56C9412369125FFAD55C7BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ VA - Best Club Dance Music - Edm Mix By Club Zone (2017) [MP3|320 Kbps] <Progres
 ```bash
 magnet:?xt=urn:btih:ECDA7D0181BE12665DB6A4F73E9DE1F78B74978E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ VA - Cyberatonica: Ultimate Synthwave and Syntpop (2017) [MP3|192-320 Kbps] <Syn
 ```bash
 magnet:?xt=urn:btih:B46D4314B3B158B16B286081A34D5739530190AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22EF0A7C693B6057817495C7FE44896E1042DF2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DCC3E01EFF6476B798108E01593F1F7B97C930F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ VA - Anjunadeep the Yearbook (2017) [MP3|320 Kbps] <House, Progressive House,Dee
 ```bash
 magnet:?xt=urn:btih:D1EA197D548DCC2520B4C8BACC6718111528D511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
 ```bash
 magnet:?xt=urn:btih:AF677BD76ED160C61B9F3315FFB63A8D0E253FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ UninstallPKG может использоваться для очистки св�
 ```bash
 magnet:?xt=urn:btih:4556578089A4908899FB3A75B9E2126E123C3978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ Adelitas Way - Notorious (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:224374EE33E4D8C61A0A005BE965D8E7760792E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

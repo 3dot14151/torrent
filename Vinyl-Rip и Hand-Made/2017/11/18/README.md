@@ -22,8 +22,7 @@ A4. Abyss (4:12)(   Читать дальше...   )Производство: Na
 ```bash
 magnet:?xt=urn:btih:9903D45A5208E33F5B8C22305E89BC991DAC716F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Billy Idol - Billy Idol (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Roc
 ```bash
 magnet:?xt=urn:btih:2373B79495A8DFDB0787C1B738E0AAE38721545B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

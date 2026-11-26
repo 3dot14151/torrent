@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6BB130B6CFAF949E6AFBCFCBA07B6A19775D8927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ DLL-files Fixer - программа для чистки и оптимизаци
 ```bash
 magnet:?xt=urn:btih:CC32F3FDEABA9C371540F55C79EB71502526F84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Hand of Fate - самая живая карточная игра! Каждый �
 ```bash
 magnet:?xt=urn:btih:020B358035E68AC55EE502F18A19CA0505F7701B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38FB78A7840E30EC20503B57FCBD524775522A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ European Ship Simulator — это игра в жанре симулятора, 
 ```bash
 magnet:?xt=urn:btih:B9CBE2F13C48FEED51158303FF5CE822910F3FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Afterfall: Reconquest - эпизодический экшен с элемент�
 ```bash
 magnet:?xt=urn:btih:3B25D962B3A18B82ED50003E17AAD9D2D604CDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:112648783B827E843CA2CA98961FD7AD771118B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Highlights School | Цветокоррекция и тонирование в Ph
 ```bash
 magnet:?xt=urn:btih:597F77BF082B481DC7CA2E01F62326131D6C0119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Highlights School | Секреты творческой фотографии (20
 ```bash
 magnet:?xt=urn:btih:5C88374A54CA763D95B4784B1098353F2BA6E72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64F831E0834D4EAF9F10D9FE056801C5A9B95B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ VA - Top Dance Remixes 2015 (2015) [MP3|320 кб/с]<Euro Dance, Pop Dance>
 ```bash
 magnet:?xt=urn:btih:6CF0829BA3E459CA42DEEFB9659104CD0D863389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Bleach / Блич (2004, TV, 366 + 2 OVA + 4 Movies) DVDRip/HDTVRip/BDRip 480/72
 ```bash
 magnet:?xt=urn:btih:31D7B251AF062F2409907C8B894F7DAB1A96D9BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Valkyria Chronicles (2014) [Ru/En] (1.0.0.1 upd3/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:9EBEAB757FC35F1831D49CC1534E707EBB6CD0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Grey Goo (2015) [Ru/En] (upd2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:7B975D46559F067B2EB6211EDFEF089812A88B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B26AEB697A63AD54895622DA8793EF210FCAE404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

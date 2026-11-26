@@ -19,8 +19,7 @@ Crysis 3 (2013) [Ru/En] (1.3) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:B5802AF5D5538C9A8750E9599A602F6D7587B931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Subnautica – это своеобразная и удивительная ко�
 ```bash
 magnet:?xt=urn:btih:B667279723F520ED36A99128B1D85D758B4F5278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15667197/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:218C611D659DEB7530DFC0E4ABB033B47F43C719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ExoCross – спортивный гоночный симулятор с про�
 ```bash
 magnet:?xt=urn:btih:3F70DE8B22D7B48F53AFFDA541B115BEE09853AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B77F53787FB23F75BCF67EF475608F0125149470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Toy Tactics - основанная на законах физики страте
 ```bash
 magnet:?xt=urn:btih:5D7780085C060376B79932611B8B1E9081464045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

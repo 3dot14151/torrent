@@ -22,8 +22,7 @@ Summoning - Lugburz (1995) [FLAC|Lossless|tracks + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:817C339B603567802D2A2987D620664D81B54BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Summoning - Dol Guldur (1997) [FLAC|Lossless|tracks + .cue] <Atmospheric Black M
 ```bash
 magnet:?xt=urn:btih:A4F7AD9309D760020D65B911ACFDDEE50C403917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Summoning - Let Mortal Heroes Sing Your Fame (2001) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:189C6023B00E5281DA89B3396621FA1BC4BAA063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Summoning - Minas Morgul (1995) Reissue, 2002, IROND [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:66F041B93646E9820E87C093891E754055D78390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Summoning - Stronghold (1999) [FLAC|Lossless|tracks + .cue] <Black Metal, Sympho
 ```bash
 magnet:?xt=urn:btih:DD1CF6F8F36E6648398C49F77385367A2D8B57F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Halloween Hits 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:92C2AFCCFEFB848DF3196C895851568EEA872710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Summoning - Oath Bound (2006) [FLAC|Lossless|tracks + .cue] <Atmospheric Black M
 ```bash
 magnet:?xt=urn:btih:82A3D44764215A15FD3D68071AC6FF0229DFF045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Irish Coffee - 5 albums (1971-2020) [FLAC|Lossless|image + .cue | tracks+.cue] <
 ```bash
 magnet:?xt=urn:btih:4B5061D7861EDE2E32CB0ED51070A8FDD4B48F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

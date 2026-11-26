@@ -28,8 +28,7 @@ Imperia - Queen Of Passion [Compilation] (2013) [MP3|320 кб/с]<Symphonic Goth
 ```bash
 magnet:?xt=urn:btih:9D3918680B5C577189517E8ABA2974E3A5B82DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ The Jan Holberg Project - At Your Service (2013) [FLAC|Lossless]<Melodic Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Gotthard - Domino Effect (2007) [WavPack|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Metal Ballads - The Best (2013) [MP3|320 кб/с]<Rock,Hard Rock,Metal,Power Met
 ```bash
 magnet:?xt=urn:btih:8FF771E432745D8F5AFD448CB744351D39F0B914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Matchbox Twenty - 6 альбомов (1996 - 2012) Дискография [FLAC|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

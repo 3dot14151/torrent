@@ -23,8 +23,7 @@ After Forever — голландская группа, игравшая музы
 ```bash
 magnet:?xt=urn:btih:5F086759B5C23C58F13296B292A6A40677B029CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Mayfield Four (aka MF4) - рок-группа, образованная в Сп�
 ```bash
 magnet:?xt=urn:btih:5395A9C980C1032B5665DBB2F937C8A958646F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

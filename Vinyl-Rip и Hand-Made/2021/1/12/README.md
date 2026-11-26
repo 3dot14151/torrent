@@ -22,8 +22,7 @@ A4 Лабиринт - Из Композиции «Сакартвело»(   Чи
 ```bash
 magnet:?xt=urn:btih:106756CF4651A459CFE50AFD256ECA59293C0D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

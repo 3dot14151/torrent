@@ -19,8 +19,7 @@ Behind These Eyes – приключенческий ужастик, где вы
 ```bash
 magnet:?xt=urn:btih:99979C5A8F00FD369A035AA75CAA43443D8C21E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gas Guzzlers Extreme – это динамичный, яростный, агре
 ```bash
 magnet:?xt=urn:btih:E264C24AC05D88BF8FAD7A46628DFB1D1A9C4289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blue Angels Aerobatic Flight Simulator (2017) [Multi] (1.0.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:566B5E92C64D472402B79E3D809CF74A1BE212CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6430.37816/dlc) L
 ```bash
 magnet:?xt=urn:btih:416A2C2BC225C607387D4B900F9FADDE2D7ECB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Blue Horizon (2017) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:B24F811544F25123A0E3DB1DC757CBCF941064B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

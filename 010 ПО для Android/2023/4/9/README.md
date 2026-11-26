@@ -19,8 +19,7 @@ Smart Book / Параллельный перевод книг v3.2 Mod by Dymony
 ```bash
 magnet:?xt=urn:btih:66937DA2F2B3C0A8D6A8E03021DB0CA814E28A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E120494E5DD8D36AD2712AD500CF2C39A4451A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PhotoRoom v2025.08.05 Mod by Maximoff⁠ [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2C470C596348E7668CA04B6987CCABC9DE82AA42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Beat Find / Распознавание музыки v1.6.55 Mod by NURIK [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:F9228C2D962FB415F7A43AA18047E4C4AF8A62C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ CamScanner - Мощное приложение для сканирования. 
 ```bash
 magnet:?xt=urn:btih:1329B58CB0216FE1E2ED57E6C9D073C2E050B0C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

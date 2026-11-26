@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1CCA8081F42BCC25155416B2B3763E1C5E61E425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06E7BB22BFA3F1F13744838660444893EAEE8424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 ```bash
 magnet:?xt=urn:btih:E9D37564DF0FD86970A609702331A66498A805BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

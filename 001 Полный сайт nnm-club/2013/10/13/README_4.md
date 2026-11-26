@@ -26,8 +26,7 @@
 ```bash
 magnet:?xt=urn:btih:4A3A7A2DBD3A63D77173AAB6E4E00CFAB28234CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Stand Up. Выпуск №4 (2013.10.13) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:A89F8FF9616F25B9D06185D81EFE3B3B3E57503F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F030188C1F1DD10FD8C1A7164A5F6CAC3294D14F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:574BC4CFC26C5841F96258767E5713595BDBC0E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Kanon: Honto no Omoi wa Egao no Mukōgawa ni / Kanon: The Real Feelings of the O
 ```bash
 magnet:?xt=urn:btih:28C57BFE1DE9360FCE990A319CAC047CB636E899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ VA - Italo Disco Hits Vol. 85 (2013) [MP3|202 - 320 кб/с]<Italodisco, Eurodis
 ```bash
 magnet:?xt=urn:btih:50AEC7C85C49FBF94DE671817992DB73A788B6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ DropDMG — это очень простая, но функциональная 
 ```bash
 magnet:?xt=urn:btih:0F2CCE7BD96EB885EBBE21476AB2A16CBC2C0F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6164DA4DD4E947C8C602288786D69EB76B693C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ B5. One More Word :: 03:45Жанр: Rock, Blues-rockФормат: Vinyl, LP, Alb
 ```bash
 magnet:?xt=urn:btih:A3C428AC0AD0636219B0CC70675AF2E8A00A58E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ Anjunadeep Presents: Matt Lange 01 (2013) [MP3|320 кб/с]<Deep House, Progress
 ```bash
 magnet:?xt=urn:btih:C8F5948EB6DF912E7E356C711EF2F2C381B021EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ VA - Have a Nice Trip to KAZANTiP Z21 (Mixed by Alexander Popov & Ruben de Ronde
 ```bash
 magnet:?xt=urn:btih:F6A00EC609AE364FCFF0D915F1DC107CDAD33F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Format Factory - многофункциональный конвертер ра�
 ```bash
 magnet:?xt=urn:btih:A6548C351D04109B8F7BA529FE5DD9D784890895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ Wallpapers - HD Wallpapers Mix part.2 (2013) | FedExe [JPEG]
 ```bash
 magnet:?xt=urn:btih:DC5E2F7AD5A1690E7CDE6858CBA3D053F3A7B00E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ Sonata No. 2 in C minor, BWV 526
 ```bash
 magnet:?xt=urn:btih:463229609782DA4AA79DBAF4F7B0674466E3A99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +434,7 @@ Visage - Dreamer I Know (EP) (2013) [MP3|320 кб/с]<Electronic, Synthpop, New 
 ```bash
 magnet:?xt=urn:btih:C9B89438916FFC5ECD9B6B41293795E585FE87DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EB97018BDC64C1F540CE34AFD21EDD76019B481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDD5C43E11C13134EFE8D9429DE4A509F93C8CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ Gang Colours - Invisible In Your City (2013) [FLAC|Lossless]<Electronic, Downtem
 ```bash
 magnet:?xt=urn:btih:7EF46FACBDDFE21E61DCF4FDC1AFDAEE92F6D756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:540CF127D39A001160A510AEC3E884F00ACB7FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C75804B2CABEFD6120D64FBBB7156A09099E0A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C98A901C0971C447616CD4C42D2087BEBAC2D81E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ B2. Voices (Instrumental Version) :: 04:01Жанр: Synth-PopФормат: Vinyl
 ```bash
 magnet:?xt=urn:btih:AE59D5991DA6FE15BD274777797BCEAEEE563B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ Concerto in G minor “La notte” RV439
 ```bash
 magnet:?xt=urn:btih:9DD6B8103B647D37D5AEF7E16DC41ED68F3A7E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E381C4113DC4330DEED401682F998FF3326BAAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C664C9E372662C36DFF9C1CD1A40E412BBF31B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +747,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C14852DF7737526FB99A14DDA3162B737487AFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

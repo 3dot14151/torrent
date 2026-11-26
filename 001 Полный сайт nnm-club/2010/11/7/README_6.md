@@ -19,8 +19,7 @@ Pinacle Studio 14 v14.0.0.7255 [Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ God of War: Ghost of Sparta – очередной шедевр от извес�
 ```bash
 magnet:?xt=urn:btih:037FCF3F6A9793A5FDE531AC96F750EB6FB5B537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Call of Duty: Black Ops (2010) [Ru] (1.0) License R.G. Игроманы
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

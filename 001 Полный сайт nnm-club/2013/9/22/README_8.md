@@ -20,8 +20,7 @@ CorelDRAW Graphics Suite X6 - новый графический пакет, по
 ```bash
 magnet:?xt=urn:btih:55F659A4DEE85C570E11A0CBE3A86BED51A0435D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

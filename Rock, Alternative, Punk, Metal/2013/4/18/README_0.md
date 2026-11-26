@@ -23,8 +23,7 @@ Janus - Gravedigger (1972) Reissue 1992 [APE|Lossless]<Progressive Rock, Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Quinti Best Friend - Kids At Heart (2013) [MP3|320 кб/с]<Pop Punk>
 ```bash
 magnet:?xt=urn:btih:3CEE4C12E314EDAEDED0C8305880E72D83DC8FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Spiritual Beggars - Earth Blues (2013) [MP3|320 кб/с]<Hard Rock, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:DC5302A1670C891D378417E7678F0E307D5DF6B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Jimi Hendrix & John McLaughlin - Record Plant New York (1969) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:0D8BAFE3B1A857D5CEC819A4D6ED401864B5DA0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Dynasty Of Darkness - Empire Of Pain (2013) [MP3|128 кб/с]<Extreme Metal, Sym
 ```bash
 magnet:?xt=urn:btih:5C48D129CBEE22893392CBD939E6CBF52B32DC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Traveling Wilburys - The Singles (2007) 7CD BoxSet, Mini EP [FLAC|Lossless]<Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

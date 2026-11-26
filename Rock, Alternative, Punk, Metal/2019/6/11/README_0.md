@@ -22,8 +22,7 @@ Inter Arma - Sulphur English (2019) [FLAC|Lossless|tracks + .cue] <Sludge Metal,
 ```bash
 magnet:?xt=urn:btih:0FCB932A1D1F52D812E834BE738EF6A49B907589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hollerado - Retaliation Vacation (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 ```bash
 magnet:?xt=urn:btih:1A4201A7E41660C9698482DB0557AE7D5AEC6FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hardbone - Tailor-Made (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4E9A8764CF43F9811701DCA9C324F0A6A13B49B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hardbone - Bone Hard (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D729975BCB334BF607E1E2DB0867589281EC7D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ St. Prostitute - Here Come The Prostitutes (2012) [MP3|320 Kbps] <Hard Rock, Sle
 ```bash
 magnet:?xt=urn:btih:25415B906BE688C793CF86F6FD419D103612DC08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ St. Prostitute - Glorified (2015) [MP3|320 Kbps] <Hard Rock, Rock-n-Roll>
 ```bash
 magnet:?xt=urn:btih:6E255F97480D54FF1808675402EB6B20B74E666E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Tanzwut - Seemannsgarn (2019) [MP3|320 Kbps] <Folk Metal, NDH>
 ```bash
 magnet:?xt=urn:btih:1DA32D5BEBA18579A94C316E0D765E00581B1BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

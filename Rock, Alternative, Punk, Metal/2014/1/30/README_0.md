@@ -24,8 +24,7 @@ Official WebsiteЖанр: Heavy Metal |Продолжительность: 00:27
 ```bash
 magnet:?xt=urn:btih:1680E3CE9050C3A47F27DC5AA6B23DE5B5C686DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Manuel Seoane Burning Kingdom - Livin' Now (2009) [WavPack|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:24F1FCDC4D1530CF7931D55490D616D24F4E87A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Black Messiah - Of Myths And Legends (2006) [MP3|320 кб/с]<Black / Epic / Fol
 ```bash
 magnet:?xt=urn:btih:8D833D46BD2CDAE9C7CFCD0FB20E2FC8A2FD2E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Krokodil - Krokodil (1969) Reissue /1999, Second Battle Germany/ [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:6978A96766AE2871D1A0DE4AD12D3610B4FDDC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ SuperCharger - Broken Hearts And Fallaparts (2014) [MP3|320 кб/с]<Hard Rock/H
 ```bash
 magnet:?xt=urn:btih:A5B845085DDA3AE36677300B4349F5C2963D02D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Melidian - Lost In The Wild (1989) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:21010622332211E05AFC0F686EFD868131B5014E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Written-By – Jim Pembroke, Pekka Poyry(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:510E1B1DFEF3FEF430FE888511F321227710505F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Bad Company - Dangerous Age (1988)  [FLAC|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:CC55AE8BCC12E1AEE81993B1EAA1C60482C3F95C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Indica - Shine (2014) [MP3|320 кб/с]<Symphonic Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:B12BD579E555971CC75A5A1DE9B3B76D38A09740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

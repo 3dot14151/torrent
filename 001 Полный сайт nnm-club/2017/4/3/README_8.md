@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:541F8BA038B6F84556CB22A04FA17A42FB149002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A017E6EEFB4DBE0F3D58BF992EB916486F33A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFA2F4CFCC433A2906A90373822D3E0BBB38EA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Stephane Grappelli - Le Toit de Paris (1969) 2002, RCA Victor [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:D0223119657B00EFD9CD5238F6A6E2117BA3072D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ The Buddy DeFranco (De Franco) Quartet - Jazz Tones (1954) Remaster, 2012, Unive
 ```bash
 magnet:?xt=urn:btih:97C30F5F598118DAA203F53BC01BFDE6818211AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Art Pepper & Ted Brown - The Complete Free Wheeling Sessions (1956) 2006, Lone H
 ```bash
 magnet:?xt=urn:btih:2C9175CADB4718623E4D60CE8691D7DFF3DDA5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Sutratma - Sutratma (2012) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal
 ```bash
 magnet:?xt=urn:btih:C8B14979E35E7BE6305FFC5D492804A909E19FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ VA - The Gulf Of Pleasure (2017) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:C495E38F34E5478199A355C4C6C6329788D20223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ DirtyHands - Dirtyhands (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:5F9F7DA0A3611E9257E9755B42A08F34D595BE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Mary Lou Williams - Plays In London (1953, 1954) 2016, Sony Music [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:9572D3492DD13F623449ED68336C96F26563C6B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Fred Astaire - Fred Astaire's Finest Hour (1940-e - 1950-e) 2003, Universal [FLA
 ```bash
 magnet:?xt=urn:btih:ABD25651B64B2C5AEB1E69B42FF867AF81377E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Second To Sun - Gal Agnostiske Drommer (2011) [FLAC|Lossless|WEB-DL|tracks] <Pos
 ```bash
 magnet:?xt=urn:btih:156B7B480DA865FF54D85E718F1064D8DE70BC0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ VA - Through The Clouds: April Trance Mix (2017) [MP3|320 Kbps] <Trance, Progres
 ```bash
 magnet:?xt=urn:btih:E01377A2A124CB87C6A053DE05B6369AF3A28BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ VA - Beatport Trance  Pack (03.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Upli
 ```bash
 magnet:?xt=urn:btih:76AC48583812CC2E6D8439FF27E128144B6B01DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ VA - Vinyl Lounge Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:DECDDAC778C19A1B7639473C6AB74BF49E95D236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ Vince Vallicelli Band (feat. James Thompson) - Toot Loh Doon Faruye (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:E2BB7DCB0024553F290E1AF386E10EFB573ED607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ Second To Sun - Blackbound (2016) [FLAC|Lossless|WEB-DL|tracks] <Post Black Meta
 ```bash
 magnet:?xt=urn:btih:13A074407EEED433259A9CC1F0352401E5244EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ VA - Soft Chill House Beach Lounge Vol.2 (2017) [MP3|320 Kbps] <Chillhouse, Loun
 ```bash
 magnet:?xt=urn:btih:CDED694E11B1269093C3EDDF9D580084F186AFD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ What The Blood Revealed - EP 1 (2007) [MP3|320 Kbps] <post-rock, post-metal, ins
 ```bash
 magnet:?xt=urn:btih:118CDDA976B18572E141660A34BAFA96D18F6B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ Sid Rumpo - First Offense (1974) Remastered, 1993, Mushroom [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:5AAA69BC7FDF03E933BA9777E1C50A321DD5DDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ DJ Feel - TranceMission (27-03-2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:0C01CE8F6EAE7811E84C87AC0FE1DAC1A120FA37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ What The Blood Revealed - EP 2 (2009) [MP3|320 Kbps] <post-rock, post-metal, ins
 ```bash
 magnet:?xt=urn:btih:8376C62097F9FB9C023D04CA3B9AA76736BC4C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ VA - Paul Oakenfold: DJ Box March (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:19197F375EB22F9C75D2E61B4B2D48F6D7CCC8B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ VA - Dark Room Erotica Jazz Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:B38802A479822154FF2D9E6AC5D6969017AB0F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ Alaska - The Bronze Years (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4B746A36254B5598E3491FC0F4D84539AF456504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

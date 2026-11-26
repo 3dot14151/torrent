@@ -19,8 +19,7 @@ Opti Drive Control — утилита для тестирования произ
 ```bash
 magnet:?xt=urn:btih:6642D169A61C1BE2DDC0419F37B1F24B69B72982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

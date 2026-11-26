@@ -21,8 +21,7 @@ ROSA Desktop Fresh R2 — плановый апдейт-релиз платфо�
 ```bash
 magnet:?xt=urn:btih:A838E08DC6F22FFECC958AA8F7E053A4EEDB9CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ ROSA Desktop Fresh R2 — плановый апдейт-релиз платфо�
 ```bash
 magnet:?xt=urn:btih:A4AF728C3AB3F9796475BD42B1975DBA344EFB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:D1D39D81CF01B1D350563636C9E98D462E1003D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Eizo Sakamoto - Metal icchokusen (2000) [WavPack|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:791BCFB1B6E80BA951D2518EA1CEF4012F5A7291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Eizo Sakamoto - Another Face (1998) [WavPack|Lossless|image + .cue] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:9AFB97863B26374C82DF3E2AB3C9006919B10EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Moon Dancer - Moon Dancer (1979) Reissued 1997 [WavPack|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:9F40F2DB46A115A2F8710B86503B23F2D79B5025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ EIZO Japan - EIZO Japan 2 (2009) [WavPack|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CE3A1EF9A3A7A0471E3E8AA1813BDA91BDEB6BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:788A121BCC581C1053E504E5B4A5B1CADC23B7A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD61F37F108B22244F09027C0742E5951D4C92EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F536BC15E0FDD593DC88A6A5B3B4CABDEBA6547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ EIZO Japan - EIZO Japan 3 (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:485DC9325E6554B901CF4D5DD412564280FB35AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ VA - Anjunadeep The Remixes 2022 (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Mel
 ```bash
 magnet:?xt=urn:btih:44A831B79CA90A4C871AB96C99F7CA98D16B6681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ADA584611CABD1562A92C693BD0313F6F367D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Alter Ego Records - Best of 2022 [FLAC|Lossless|WEB-DL|tracks] <Uplifting T
 ```bash
 magnet:?xt=urn:btih:6E0FF9D7D912D918B1F3D911B6926A1BFB4BF77A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ EIZO Japan - Super anime song - Legend of the 1990's (2010) [WavPack|Lossless|im
 ```bash
 magnet:?xt=urn:btih:D24CCE1EDF2BAE94C21504C4E4C6AD8F1E718F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EE924436825DB91E5110E7584DB361E32F433B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE31E71FB373057C7729C124FEBE1D9CF57E0B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1747F5B5C8DD2756FCB28B3782B53A527380A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ Opera 93.0.4585.70 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9D781A3D3C8A536D6A202541B790F3137ED4B70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Black Eyed Peas - Elevation (2022) [MP3|320 Kbps] <Rap, Reggae, Dance>
 ```bash
 magnet:?xt=urn:btih:FC7E90867053E8AF8AED8642FC6D311D42B7DA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CA754B67EFF52387D407955C83EB6BAC51FB5DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD555C9AF43FEB4F45FEEA6811CA8F7190DD4F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDE40A1C6F80C9C1C0D3E948246E590E56B89161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ VA - Music News vol.231 (2022) [MP3|320 Kbps] <Pop, Dance, Soul>
 ```bash
 magnet:?xt=urn:btih:E5395C060C75A4B175088001C010798A5DC183B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD4B41CC59883B49917F8316EB1DE3E5B3FB5B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:01303192B7F28912E5F825F6B5E2A5A674D340BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Marge Litch - The Ring of Truth (1992) [WavPack|Lossless|image + .cue] <Power Me
 ```bash
 magnet:?xt=urn:btih:0FEB6946EE88B652829E1B2B7462D31C6C0E1BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C49E8769F0B8AEC9C5D497468B9B5E417F9B0702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

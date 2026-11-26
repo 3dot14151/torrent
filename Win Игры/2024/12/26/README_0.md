@@ -19,8 +19,7 @@ Hollowbody бросает вас с головой в мрачный мир те
 ```bash
 magnet:?xt=urn:btih:F34963A582E0A7B3A31A52E60B6AC67485B5A00D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Glorious Companions (2019) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E56285594EF266F7671312ACC8AD21E495A5ABB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Low Magic Age - стратегия в средневековом сеттинг�
 ```bash
 magnet:?xt=urn:btih:A3D057855DE03569AF337D43A3DC0C4D6C79A306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hellbreach: Vegas - шутер с волнами врагов-демонов. И
 ```bash
 magnet:?xt=urn:btih:BEDCED931526CB87B1A9176649F2EC8D100A0A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mouthwashing - хоррор от первого лица об умирающем
 ```bash
 magnet:?xt=urn:btih:088B2311F3461551DDA4D7DB2AA257D31A71E182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.14/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3A48375DDF2499FE3E72CB07DB681073561D4E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Exographer (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7AAF69EEFBBECD21E10A05676E0355DF294A4ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Critter Café (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:73E86D4532018A2E044F3999413ACE3028613D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mystery of Myths: Heart of Athens (2024) [Multi] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:2B1E1C563F8F4C3CCC61CD36E78C2719D3831B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Christmas Fables 3: The Wishing Store / Рождественские небыл�
 ```bash
 magnet:?xt=urn:btih:035199AAE9DA17633D351C59C802A37A63224ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Christmas Stories 13: Clara and the Guiding Star / Рождественские 
 ```bash
 magnet:?xt=urn:btih:F9718D92763D32393B622F37195030261A2A4CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Scotch - Evolution (1985) [FLAC 2.0 24/192|image+cue (Vinyl-Rip)]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:B5E1F2B72AD63D40FAC6DD17A0DC5451D09C1D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

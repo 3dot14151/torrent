@@ -19,8 +19,7 @@ Aiseesoft Screen Recorder 2.7.18 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DAD7D69B4A800790873B459B118556C323A0F29F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

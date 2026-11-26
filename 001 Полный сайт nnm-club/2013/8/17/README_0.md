@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:575F91A85227FBDA0F9E0EF8A3D4096C8DD52BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ DVDVideoSoft является независимым разработчиком 
 ```bash
 magnet:?xt=urn:btih:158EE48C6ECA26CC33D1760C231C10277619ACFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:2B3173D36A53D4A18CFCF50F212A391BC3416AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1DCB896040920B52301BCAFD770022D79CA071A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Deep House - Berlin Calling (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:C9AFBB0598D3C84306D76513DF203F55BCC55340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ VA - Последний свежак 200 хитов (2013) [MP3|128 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:A919293B002723A23F13CFC0C843CBC5ECDC5F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ Celtic Thunder - It's Entertainment! (2010) DVD5
 ```bash
 magnet:?xt=urn:btih:D2F29636352FA134886E89184651E65A3673EAF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Celtic Thunder / Take Me Home (2009) DVD5
 ```bash
 magnet:?xt=urn:btih:4D6EBB786244288CA59FD0C56C59E5BBD680942B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ Recuva - программа для восстановления удаленны
 ```bash
 magnet:?xt=urn:btih:71B4E6764C4AA2B897813974A01C7811A0980D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ VA - Энергичная 200-ка хитовый взрыв (2013) [MP3|128 к�
 ```bash
 magnet:?xt=urn:btih:55270B98F02D22DF62A594B44B333C6AD40EA56D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ Black Diamond - Last Man Standing (2013) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:809A4ACD64E8649C583C92EEB830CC1B01060103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ Equilibrium - Waldschrein (2013) EP [MP3|320 кб/с]<Epic Folk / Viking Metal>
 ```bash
 magnet:?xt=urn:btih:60A8CEF2398D655FC77BF09C6E141F00B6B507DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ VA - Супер дискотека на ХитFM 2 (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:F399A192E854EE722A624E704098D5EA50CE6D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ Aqua - Chillout & Bar Grooves (2013) [MP3|320 кб/с]<Chillout, Lounge, Downtem
 ```bash
 magnet:?xt=urn:btih:22A3D3042BDB0925A49A5CA847F9E9676C2B0595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ VA - Dance Bass Holding (2013) [MP3|224-320 кб/с]<Dance, Euro, Club>
 ```bash
 magnet:?xt=urn:btih:9D924FFB9BABC0E093FC3B5BF217B9CC738C8E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:524F7DBD7F3C43AB9BA22EF5976E3709449C930E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04104980DBD6F04D4AE580586BB3F2206E95B0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:FC0F152C6C9EA34F5981163D36EDB50A39B5A531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ Bigasoft Total Video Converter - мощный видеоконвертер, по
 ```bash
 magnet:?xt=urn:btih:0AD70C7EF1AE9B4405C377B9F4147066945B24C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DB7B6C9EE8833451886CD3E45BABFD8D291A2D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F16BA8A0F90E9D0DAAF33BE40E33FC7FAEB5EC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:4CB84FB1C6D4EAC2867BB48F878DC600FF3D10EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ VA - Рюмка Водки На Столе Часть 2 (2013) [MP3|128 кб/с]
 ```bash
 magnet:?xt=urn:btih:E733840535CEF9FF631610C7C73F94FB1753A9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ James Christian (Ex. House Of Lords) - Lay It All On Me (2013) [FLAC|Lossless]<M
 ```bash
 magnet:?xt=urn:btih:4D1A143FDE538C1D7BA8013A8C9728299FBD9C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12294FB06BCD555458BF0D8009273A926E144392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

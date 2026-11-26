@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5EF265324029D994CB7FAE49DA03949F8897CB08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ DAILY NOTE v4.2.2 Premium [Ru/Multi] - Ежедневные заметки, дн
 ```bash
 magnet:?xt=urn:btih:134A0D9A987F7D8AA2C6269B714EFB308D944DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ChimbaBench v2.5 (3.5.2.0) [En]
 ```bash
 magnet:?xt=urn:btih:C12C40657BF75511CB9476F076CA95F16416446A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

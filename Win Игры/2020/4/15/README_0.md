@@ -19,8 +19,7 @@ Railway Empire (2018) [Ru/Multi] (1.12.0.25598/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:587DEF5DE076511E3E849820E215336FBD4DE85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sky Cannoneer - современное переосмысление культо
 ```bash
 magnet:?xt=urn:btih:B52B6448491461DDEA818A263B9FCAF202588F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

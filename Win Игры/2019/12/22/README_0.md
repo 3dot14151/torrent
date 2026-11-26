@@ -19,8 +19,7 @@ League of Light 7: Growing Threat (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:3F1325210B16C520F9EC1B0B95D44EE4E14A6441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2
 ```bash
 magnet:?xt=urn:btih:C4A3713AE0E3F5A7C669FDAF611E69A15A1A7C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

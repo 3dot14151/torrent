@@ -19,8 +19,7 @@ One More Night – перед вами довольно насыщенная Р�
 ```bash
 magnet:?xt=urn:btih:E82538DB0C2893C5CD4C51E31FD22C9F9AB07FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bo: Path of the Teal Lotus - яркий платформер, предлагаю
 ```bash
 magnet:?xt=urn:btih:AAF3589FA8351D880DCDDBEB1604EA041ECCC136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Bathhouse Restored Edition – перед вами невероятный я
 ```bash
 magnet:?xt=urn:btih:0F93B0F4770E337FBDD290D0DC8562CF519308B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dungeons & Degenerate Gamblers (2024) [Ru/Multi] (1.0a) Scene TinyISO
 ```bash
 magnet:?xt=urn:btih:9F0ED155DB31298B69892BAD37795CAA2C9E4732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pawn Simulator (2024) [Multi] (1.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C0C1293D1368EB59BBE13453CC5AEF8CB29D0A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mr. Prepper - строительный симулятор, где вам пре�
 ```bash
 magnet:?xt=urn:btih:11B363EC112C491FB1F0B00850EB968D6ACF5234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

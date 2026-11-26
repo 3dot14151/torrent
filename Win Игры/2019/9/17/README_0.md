@@ -19,8 +19,7 @@ Mystery Trackers 15: Darkwater Bay / Охотники за тайнами 15. Б
 ```bash
 magnet:?xt=urn:btih:1259A4152092968DBBDB3634D9CA36E47ABECDFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nantucket (2018) [En] (1.4c/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CD722D2E6BCF6EECCC7B7BAE78E0CBB2DAF1957C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DAYMARE: 1998 – это хоррор-игра на выживание от тр
 ```bash
 magnet:?xt=urn:btih:FA86F222EBFC282B8D81C73298E8BB56BB42D293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DAYMARE: 1998 – это хоррор-игра на выживание от тр
 ```bash
 magnet:?xt=urn:btih:25FAF43F647BE30324806F17EE419E8A0274A3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dead Cells — это экшн-платформер в жанре Rogue-lite и 
 ```bash
 magnet:?xt=urn:btih:5AAC739EAA10A3EA0283B27B627C74F5288EB340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.0.8) License CODEX
 ```bash
 magnet:?xt=urn:btih:1D09B6EDD017155F27F7A172D81DE12705CF4E72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

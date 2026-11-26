@@ -22,8 +22,7 @@ H.E.R.O. - Ghost Of You (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:D451698F4F3C3E5DC4EB299964F52263BBDF5E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Judas Priest - Rocka Rolla (1974) Japanese Edition, 50th Anniversary, Remixed, R
 ```bash
 magnet:?xt=urn:btih:1FA41F471B331851E0EFFB73289332781DF00C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Cruel Intentions - No Sign of Relief (2018) [MP3|320 Kbps] <Glam Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1C0963CCC7EF78155984F920F3BD20BFF8F866CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Warmblood - Putrefaction Emphasis (2017) [FLAC|Lossless|image + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:CA6B276908199407ECF88B98EC653736A0EF8893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Krokus — ветераны швейцарского хард-рока, доби
 ```bash
 magnet:?xt=urn:btih:36191156D31ECFBE2EB0B798960BC13D2419022B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Disc One:
 ```bash
 magnet:?xt=urn:btih:E459FFF919A9656E775FC2732667D5A1B3041CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ U.D.O. - Steelfactory (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:1FCBE0F8D01EF09D3475C5E3E6113F77D188EDE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ U.D.O. - Stееlfасtоrу (2018) Limited Editiоn [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:F70E866860E6A9DF6FC3D87C3864008D84BF7A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mike + The Mechanics - Silent Running: The Masters Collection (2018) 2CD [FLAC|L
 ```bash
 magnet:?xt=urn:btih:31E2390D4B545A1293CEDD739CD6B91846AC87EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

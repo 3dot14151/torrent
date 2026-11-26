@@ -19,8 +19,7 @@ TROUBLESHOOTER: Abandoned Children — это первый сезон пошаг
 ```bash
 magnet:?xt=urn:btih:58144E7313C0E9B178A172E4F3E4D7C54701CC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Undead Wilderness: выживите в неумолимых джунглях, р
 ```bash
 magnet:?xt=urn:btih:485D47CF911CD452DDFD1907C2A9E95D4B0F7022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clover Day's Plus (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3FCFA0042E5ED5BE2E515677FE9CC2E438E8A87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

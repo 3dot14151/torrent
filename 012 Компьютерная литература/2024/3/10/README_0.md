@@ -19,8 +19,7 @@ Jonathon Simpson | How JavaScript Works (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:0DC8E1A06E649A6E0623565B5326F10A36670EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

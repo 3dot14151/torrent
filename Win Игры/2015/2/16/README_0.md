@@ -20,8 +20,7 @@ Tengami [Patch] (2015) (1.0.3) Official CPY
 ```bash
 magnet:?xt=urn:btih:94EC32739967B0C2616ECD22F09465E0F0633162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Tengami — атмосферная игра-приключение, в кото�
 ```bash
 magnet:?xt=urn:btih:77C3A6B2B06B539273FFFF5F4CEE2B7BCFD17DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ DreadOut (2014) [En] (2.0.0/dlc) License CODEX [Act 0 Prologue, 1, 2]
 ```bash
 magnet:?xt=urn:btih:2C4D0613D1EFE28034AC9F05CF98EF75FA2DF7AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

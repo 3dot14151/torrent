@@ -19,8 +19,7 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:18334F411FDB886925E4CF3B8A9F03DC401ECADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

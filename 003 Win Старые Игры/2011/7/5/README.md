@@ -21,8 +21,7 @@ Campus [Ru] (RePack) 2007 | CCG
 ```bash
 magnet:?xt=urn:btih:84CDF05221B43E746D0AEE94C202314104CEB89B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

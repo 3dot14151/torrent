@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AE51DB85C2DB6DC8423AFE597B17964736703212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Microsoft Visual C++ 2015-2019 Redistributable 14.28.29914.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:A0F2566B8E8A416305FF5BEDE97A01D43F0EC608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Adobe Bridge предоставит вам централизованный до
 ```bash
 magnet:?xt=urn:btih:9EC3F675B2F6ACFDB9EC67D9F28EE7E6A35921AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Fеntоn Rоbinsоn - History Of The World Blues (2021) [MP3|320 Kbps] <Blues, L
 ```bash
 magnet:?xt=urn:btih:FF8D1614A6AE43B707BD85CC279E21749676E045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ ACDSee Photo Studio 7 v7.1.2020 [En]
 ```bash
 magnet:?xt=urn:btih:15D414491232ED60611A063E9CC4CA364D9F3835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ VA - Шансон 2021 года (Музыкальный хит-парад) (2021
 ```bash
 magnet:?xt=urn:btih:0B421D639360C2F981C13520FF1D2EB75DCB57CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B4B00D439D7CA77D762E8021C90C2072DFDC01B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ CG Cookie, Jonathan Lampel | Основы текстурирования в Blen
 ```bash
 magnet:?xt=urn:btih:989DE2628B436CE9966419CE10B513E6D932B879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Jeff Minakata | OSINT for hackers and penetration testers (2020) PCRec [En / En,
 ```bash
 magnet:?xt=urn:btih:46217961D7CF10ADB1D87E88A60AE333D1828071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Rotator Advanced-это новый фирменный шаблон After Effects
 ```bash
 magnet:?xt=urn:btih:94983EC0CA8C7716DD28BA41A796E0754D6BBD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Angular 1 и NodeJS вместе с ExpressJS (NodeJS Framework) и MongoDB сф
 ```bash
 magnet:?xt=urn:btih:43E85CE9EE7F3961FFAE1BA39BC27406FCA23B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2624A771D80CB39D7540BEFF82A2E664DE85CDCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Udemy, Marcus Ng | Flutter Firebase Bloc Instagram Clone | iOS and Android 2021 
 ```bash
 magnet:?xt=urn:btih:D0D0DCE7D8DF3845CDE9E4A6F47C80F714181BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AF8AE5A4DDF9510337DCF55145134515A4779AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FE1ABAB543A5F898D5CBAB38D6D884819233122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ Adobe Media Encoder 2020 - это программа кодирования, к�
 ```bash
 magnet:?xt=urn:btih:B882FA6FB93671C99771633EF1DA6B763AD0841C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ Adobe Audition 2021 14.1.0.43 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DD2FD127D7092F61389527106E78BE068BB24E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ CG Cookie | Кузница шейдеров - Создание материал�
 ```bash
 magnet:?xt=urn:btih:4108EAF15E1748FE89BAEB522741FFC6FCCBE922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ Udemy, Tim Buchalka | Java SE 11 Developer 1Z0-819 OCP Course - Part 1 & 2 (2021
 ```bash
 magnet:?xt=urn:btih:C97273DAE8603C5C1D839A40F9ADEAE3932EF4EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ Udemy, Nana Janashia и др. | Complete Terraform Course - Beginner to Advanced
 ```bash
 magnet:?xt=urn:btih:E58664C8B6E47923656F9E3A2822C879847E6654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +563,7 @@ VA - Сегодня на радио хиты FM Vol.11 (2021) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:470270D6A0FD64A9ADE70C5DAB6B3DF4944DC725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ Erotic Sex Audio XXX - Hot and Sexy Ringtones (2010) 2CD [MP3|320 Kbps] <Rington
 ```bash
 magnet:?xt=urn:btih:A4A71A29777F620914EF9836D7BCCBCC032DB134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Udemy, Vasyl Velmyk | Webpack, Babel - Детальное Руководство
 ```bash
 magnet:?xt=urn:btih:56E8B459CF83F92E43E1B2DA15A0821C2B1FFA39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D51BB26506413C9318B828D1D9A7AB63F2FAA9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ Phase One Capture One PRO - один из лучших профессионал�
 ```bash
 magnet:?xt=urn:btih:DB762C3FFD5E463F22991AB57B2B0B18309BC740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Jackie DeShannon - The Sherry Lee Show (2023) [MP3|320 Kbps] <Country, Soft>
 ```bash
 magnet:?xt=urn:btih:CF0862DE5926632BFE3BE28D4CFBBC9B29988502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Impellitteri - War Machine (2024) [FLAC|Lossless|tracks + .cue] <Heavy, Power, P
 ```bash
 magnet:?xt=urn:btih:8D909568F2B2846852E9B343861FDA6AFC186AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Carnal Savagery - Into The Abysmal Void (2024) [FLAC|Lossless|WEB-DL|tracks] <De
 ```bash
 magnet:?xt=urn:btih:69BC1C0DF2738702F16C31383D8982DAB601484A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sandy Hall - Full Circle (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Har
 ```bash
 magnet:?xt=urn:btih:B35B0E7089700C88FCFC81E3692791EB4D69C36D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Carnal Savagery - Graveworms, Cadavers, Coffins And Bones (2024) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F0EC115607FB18D99EA5962D47B376327EE689F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

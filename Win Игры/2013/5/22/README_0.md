@@ -19,8 +19,7 @@ Chronicles of Vida: The Story of the Missing Princess (2013) [En] RePack Dizzery
 ```bash
 magnet:?xt=urn:btih:59B5F44CB9F7DB98D91306150760417A8E4EBE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chronicles of Vida: The Story of the Missing Princess. Final (2013) [En] RePack 
 ```bash
 magnet:?xt=urn:btih:504456DC4C9D198FEFA49F093651E54CC1127A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jump Birdy Jump / Птички (2012) [Ru] Repack
 ```bash
 magnet:?xt=urn:btih:9F613B66B395EF2D7D03DDDF141E944959683970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ghost Towns: The Cats Of Ulthar Collector's Edition / Забытые город�
 ```bash
 magnet:?xt=urn:btih:B028133C67A0909137DC42CC4A9A8FC34985922B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ New Yankee 2: In King Arthur's Court / Янки при дворе короля �
 ```bash
 magnet:?xt=urn:btih:303E943CB0098630C96064B51EF1470B3215D207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Surface: The Noise She Couldn't Make Collectors Edition / За гранью. К�
 ```bash
 magnet:?xt=urn:btih:C19C73BB970D5CCF9A08E80AC7BDF3083759F120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

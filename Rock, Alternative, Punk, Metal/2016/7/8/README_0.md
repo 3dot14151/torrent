@@ -22,8 +22,7 @@ Vargton Projekt - Progxprimetal (2011) [FLAC|Lossless|image + .cue] <Prog Rock, 
 ```bash
 magnet:?xt=urn:btih:851860EE717AD5EC7C56638BF7CDB7244EA7232B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trick Or Treat - Rabbits' Hill Pt. 2 (2016) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:0A4E6F884E38B5F1BADFAB12572A977801782E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Down and Outlaws - Above Snakes (2016) [MP3|320 Kbps] <Alternative, Garage Rock>
 ```bash
 magnet:?xt=urn:btih:790E2C5B9B8CC8BBCB6FEA7755B469576BC2AFD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Q5 - New World Order (2016) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:07178EECBBE62763EEB7D14414D5DA5C32A71DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jani Lane - Catch A Falling Star (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:72C42CA430FA951A38539C4B6922C0A4534D9A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Hole - Celebrity Skin (1998) [WavPack|Lossless|image + .cue] <Grunge, Alternativ
 ```bash
 magnet:?xt=urn:btih:ED0227AE1719DE954D0CE7F442F92464A68985C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Los Venturas - Miles High (2016) [MP3|320 Kbps] <60's Guitar's Instrumental Surf
 ```bash
 magnet:?xt=urn:btih:6BE358DF454F5DA1CD2473A346AE8552B40E0F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ HER - Revolution (2016) Special Edition [MP3|320 Kbps] <Alternative Pop, Alterna
 ```bash
 magnet:?xt=urn:btih:02D34DBF15ACEC5353509D2686660475FB8BF20E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Tanzwut - Schreib Es Mit Blut (2016) [MP3|320 кб/с]<Folk Metal, Neue Deutsche
 ```bash
 magnet:?xt=urn:btih:69897F2817A9DB99B5F8C01BABF602D1D3B4D261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Chevelle - The North Corridor (2016) [MP3|320 Kbps] <Alt.Metal>
 ```bash
 magnet:?xt=urn:btih:0E2A1E687A46256B3B93F2AA316B176AD7A16E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Scorpion Child - Acid Roulette (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:361CBB0DB09B04D62D5DA96C064DB7695567E45A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

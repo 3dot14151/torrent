@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:206DD559255125B629A97B939829118DC7666CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE0D58BA46BDA0432EED513BD0A085BD6273B703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Novarm Ltd | DipTrace. Руководство пользователя [2012] [P
 ```bash
 magnet:?xt=urn:btih:582AF3420639C6A0AD97925FA2B3DD7A736FF192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

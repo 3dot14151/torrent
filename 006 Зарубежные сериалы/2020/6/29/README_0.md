@@ -19,8 +19,7 @@ Creeped Out - это чарующие, чарующие и интригующи�
 ```bash
 magnet:?xt=urn:btih:A73A69BC2D663D52C2DB5100B4CA6F457C1E2190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BAC3A904E2DBDAC21A659603AB78536B60B9D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

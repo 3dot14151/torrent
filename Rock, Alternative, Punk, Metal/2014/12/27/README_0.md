@@ -20,8 +20,7 @@ Black Autumn - Rauhnacht (2014) EP [MP3|320 кб/с]<Atmospheric Black Metal, Do
 ```bash
 magnet:?xt=urn:btih:096EEF011F350147C66210832527322FAD5A09E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Skeptor - United We Stand...Together We Fall (2014) [FLAC|Lossless]<Progressive 
 ```bash
 magnet:?xt=urn:btih:D3639FD8182040B2A8D6E7DBA0CCBDC6936FEB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Astral Odyssey - Into The Eternal Realm Of Night (2014) Demo [MP3|320 кб/с]<A
 ```bash
 magnet:?xt=urn:btih:AFA65515E5DA63DF5828BBE40D48CA0B0B9397D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2CC2E04A5429C29C15D10B070925D941DE6A828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAF81469F5B47F0AAD5AFBA0724EE79ECB55ADB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C4FF7A07AE58B60F43A8054D813D6A85C74F3EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E8F248EBE64D2674F9DBA9C985575420BDF450A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA921F6392A1AF135B96DA8F0F254E24E14772B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Beatles - The Beatles (1968) 2CD Reissue [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:55C92067D13C4764A8C51855BC82E34E69DE627B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DC27FBF2F1143FE77A88414E069C3C929ECF51F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ Freddie Mercury - Original Version - Single Version - Rarities (2012) 2 CD [FLAC
 ```bash
 magnet:?xt=urn:btih:4DF59E13F780DC9D3B615E720DE7E2AD23EF8744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64F9693E2337F2DB7884F26AE6F3274308BCFED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

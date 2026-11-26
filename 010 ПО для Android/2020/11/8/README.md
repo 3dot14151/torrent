@@ -20,8 +20,7 @@ SignalCheck Pro - Приложение расписывает всё в мель
 ```bash
 magnet:?xt=urn:btih:41162B4D46E4B679BED3A860EF5F7F32A307D0A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Speak And Translate v3.1.0.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7E2D920EC78E8B9B284905C2788DFC619CA93A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ utomatic Call Recorder — программа для записи входящи
 ```bash
 magnet:?xt=urn:btih:B719143594BD11B8E55AF71004CE4F66E5286E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

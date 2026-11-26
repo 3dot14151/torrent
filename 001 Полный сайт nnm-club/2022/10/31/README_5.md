@@ -18,8 +18,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.05b) License GOG
 ```bash
 magnet:?xt=urn:btih:1B2EFC3686987474F4004A08150DA3AE8ACF9DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

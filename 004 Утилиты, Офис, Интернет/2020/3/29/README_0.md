@@ -19,8 +19,7 @@ AlterPDF Pro - программа может стать лёгким прогр�
 ```bash
 magnet:?xt=urn:btih:F8DEE957B5FF3DBE0E955A6D92B31AE698CF7A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

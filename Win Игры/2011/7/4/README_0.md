@@ -19,8 +19,7 @@ Time Machine: Rogue Pilot (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:33CFC31FD32AB511B0FDDB9995D4639318E22901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55D3D33CF6083A6D9259634849D92B0396BACC0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

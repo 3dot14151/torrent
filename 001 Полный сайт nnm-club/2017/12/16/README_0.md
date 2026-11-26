@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6DBEED1BD45BBCC7C5A26B4482A0AE7593EE29A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2333B97AE2840ECCBD9344B7C8AA43C1E556082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70D79C8E20B7F66C60762837E26A519BEE5E9AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - Winter Chillout Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:3271C3034F808FF7EE0CF96D9DEE7C9EC9A1FC10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Romanysoft Speed Test -  проверить скорость интернет. �
 ```bash
 magnet:?xt=urn:btih:5E4AE9E121BCF14094248D200F91C76D27647C6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12B877012EB2B487517B6F3E64D07CA294058C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.10 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:CB8CA1132983A184D267B48BCB807CA7375A3EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.9 (Compiled by Викто�
 ```bash
 magnet:?xt=urn:btih:7F63EBFE0324797E9E6C035BA2D5085E0B9DE2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.8 (Compiled by Викто�
 ```bash
 magnet:?xt=urn:btih:6968402D26981E32A864B847E08D29F5AF7D5796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:F5A05949D510FCEE55E607F4D86CCC95A2F1EB08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Taproban - Per Aspera Ad Astra (2017) [FLAC|Lossless|image + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:B0C1A1ACFB710957E71AA0759A0A31713F2680F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.12 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:D3BFCA24DDA1335523B79833554124BE318324A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.11 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:4AABB4C9FD1E8616F402BCFB8D276D7C5A0442E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B270F5DD36370A51137A9065DC1F85BC10222AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Mate Translate обладает невероятно полной (   Чита�
 ```bash
 magnet:?xt=urn:btih:7DB8BDA4C74EDE94774BF9ED12AC986A2508AF19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD673F8FFC4FB9D4ACA589FFA496F2F99833D408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Alexandroid - Discography 5 Releases (2001-2004) [FLAC|Lossless|tracks+.cue, tra
 ```bash
 magnet:?xt=urn:btih:29A888511EA072EC448F3F2F9D509E0A02F2614E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ George Benson - Pacific Fire (1983) Japan, 2017 [FLAC|Lossless|tracks + .cue] <J
 ```bash
 magnet:?xt=urn:btih:D59546D2895ECB63331596F9EBEB0F41DAFD5194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AE608C0C90C86651D5C913CDC88385EEBC2AC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Lisa Stanley - Heart and Soul (2017) [FLAC|Lossless|WEB-DL|tracks] <Country>
 ```bash
 magnet:?xt=urn:btih:1C6713A967C239FD6E899C96E9993DD7943DECD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBE35F4EB6007DDBAF31271985E7AED4352AC59D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Privacy Eraser Free 4.31.5 Build 2426 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3E9C53B6CB14A09DCBB7852116EA40287D7E425B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1217F22D2F7C94D746C70C0DB6A839360A27A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3201C490F0E470C6B05635249DE52EB053B38C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1272A3C5E501C8CB0DA0D4BF2B48F8B5E8BF6F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:306BEB6A3ABC046FDF3F03D61F5834A8BBA6321E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

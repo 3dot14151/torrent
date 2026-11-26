@@ -19,8 +19,7 @@ GameKeyboard – это простое и надежное приложение 
 ```bash
 magnet:?xt=urn:btih:72E2762724DF09106A4C6FD18DDE0255D5E879B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Groovepad – это простое приложение для создания
 ```bash
 magnet:?xt=urn:btih:61BDF18C26A9243686527BB6C4AAB27CA618682A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Oreny - Icon Pack v1.6.2.4.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:61F3743434F5944865DAE85C5DE0E749D2C26FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Life Quotes and Sayings - Очень часто мы в своих реплик�
 ```bash
 magnet:?xt=urn:btih:86C2D70ECBD93FDAB263E05FC3535FC55606B205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Gym Pro - Домашние тренировки v112.5 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DF9655F286685AE2B8B846509B2E182B30F4DB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Mod Master For Minecraft v3.9.5 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4E8B91DEA3BBB568E1775D6F042B0F70F9F37914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

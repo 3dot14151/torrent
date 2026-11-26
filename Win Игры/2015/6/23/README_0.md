@@ -19,8 +19,7 @@ Christmas Stories: Hans Christian Andersen's Tin Soldier / Рождествен�
 ```bash
 magnet:?xt=urn:btih:9788DD2071A3E19916EB9DE5A0EDEBF4C410CE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RESCUE 2: Everyday Heroes (2015) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:4A3B5ECE3C51FB0E412070CD848E81BF2CCC728A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

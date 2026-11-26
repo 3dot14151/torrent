@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B747AB285949A6F299A25EB7691A963FE949204B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:969AA229B7518616D8E53F9108D26087AE2547CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8FA0185C3251A813CF8C29F0CDF9A39B9D6CB6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Iannis Xenakis - GRM Works 1957-1962 (2013) [FLAC|Lossless|Vinyl]<Musique Concr�
 ```bash
 magnet:?xt=urn:btih:D6385EF2C7BFAEF816C3DF55832C88DBC5421F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Purple Fog Side - Reality Awaits (2013) [MP3|256 кб/с]<Synthgoth, Synthpop, D
 ```bash
 magnet:?xt=urn:btih:D4A045EA48341D38A70914E52102EFB2310F4D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Vorna - Ajastaika (2013) [MP3|~232 кб/с]<Black Metall, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:1BF7EC92DC34534B056186755ED9ED81ABD07421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E3C307B825576067C2089A142BC127BC74B0691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF79D1271307EAEF24247D2024532A577CA98AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ VA - Все будет хорошо! Отдыхаем с лучшими хита
 ```bash
 magnet:?xt=urn:btih:983AEDAB049273048D8E112ACD890E50DE931287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ Revocation - Revocation (2013) [FLAC|Lossless]<Technical Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F52F80CAD0D84E936BEBA9DFAFFC438C14CA1FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:566171D037C5E137B2ED36F548D99EC5EE33548F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ Freemake Video Converter - бесплатная программа для быс
 ```bash
 magnet:?xt=urn:btih:0AF91AFF2DF6D9B5BBE59D81F19A5B762DDF6E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:4415D378BFE2B5AF3ED3F02F666114430597D242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Wise Care 365 Pro 2.72.212 Portable by KGS [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:06A9B6F3D58FB73D02A43725E0B1FFBA2A06E5AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ Guitar del Mar - Guitar Lounge (2013) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:8F2F675DE4B67C883BAEB8A08998117A036A7ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ Parasite Inc. - Time Tears Down (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:531A4855F25FBD11F540A40B9A3AD37DFE965960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F78DDDA15B33958446EED31AA9E0845C2C821E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3237AE33FC3671BC2D78EA571177DF940007D330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ Mail.RU Agent - бесплатная программа для быстрого 
 ```bash
 magnet:?xt=urn:btih:54368A5F74038C4DFC0107F574B2E2937AA41BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ Ashampoo Photo Commander позволяет с комфортом просмат
 ```bash
 magnet:?xt=urn:btih:DDF08A5DE528B92269116C4E317287599BC0B51D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:D64293DC71FECEC948F58FE32175583481F9DCC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ Ashampoo Movie Studio - cоздание и редактирование дома
 ```bash
 magnet:?xt=urn:btih:4A564423C4523C8EE40BF3838E570CA66E8E8A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E795C6F375FD079B7E7445CEF5E1A03F0501249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6A003D336023FADD5EEDB0E73D8D27460206E3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ Kolor Autopano Video Pro 1.0 Final [En]
 ```bash
 magnet:?xt=urn:btih:1C9F56E6BC6C27235DC77524C70D49B058C9328B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +723,7 @@ Zebrahead - Call Your Friends (Japanese Edition) (2013) [FLAC|Lossless]<Punk Roc
 ```bash
 magnet:?xt=urn:btih:CDD7BC91F3E7C4BD1BAE2A9A23B66A01F3DB434C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

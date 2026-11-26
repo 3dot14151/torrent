@@ -19,8 +19,7 @@ Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:64207D220183CA4D5DC5EA30A9168271307EDC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Atlantis 3: The New World / Атлантида 3 (2001) [Multi] (1.0) License GO
 ```bash
 magnet:?xt=urn:btih:2DEDB76EBFC7C6F3DAE00EC1B28C1ADF2084413C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

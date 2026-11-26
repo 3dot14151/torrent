@@ -19,8 +19,7 @@ A Golden Wake может заинтересовать любителей ста�
 ```bash
 magnet:?xt=urn:btih:1142055515C93C35768CF3D62B1865E132EEEB57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

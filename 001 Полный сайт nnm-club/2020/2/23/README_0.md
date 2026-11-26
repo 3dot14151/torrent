@@ -21,8 +21,7 @@ Navid Hejazi - Mah (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:3360352637F04533FEF4BE1C7332ED1CE4EC6916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ H.e.a.t - H.e.a.t II (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0EA8E09A840E0B0EB4F7F187376DAB1BF4D8F5EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundt
 ```bash
 magnet:?xt=urn:btih:518A2784B6F9997ABCE67ADE2C4AE1C0C745C134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - German Top 100 Single Charts 21.02.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D881E8990375D1C92136D772BD29C9A199D33C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundt
 ```bash
 magnet:?xt=urn:btih:EF3D033A850C529FAA465694DD7BD3A03E0462D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Capto (was Voila) - профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:D6CF6B8C05C1C1787F4C328B8A17A7A0F439FEEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ a noend of mine - The Serenity's Eve (2016) [FLAC|Lossless|Web-DL|tracks] <Depre
 ```bash
 magnet:?xt=urn:btih:146CD1A9F9F943728C0D7F0C7E7D6A2055C16FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Justin Bieber - Changes (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop
 ```bash
 magnet:?xt=urn:btih:B70CD9690111269209668D630902EB17CFD5CF55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - The Official UK Top 40 Singles Chart 21.02.2020 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:70ED23DA591FB14D0E479D52EA814F1BE9E8CE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Aiseesoft Mac Video Enhancer - новый продукт от компании A
 ```bash
 magnet:?xt=urn:btih:38699D3916ED401093456C34C80E17900E6A01B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Virgin Australia Supercars Championship: Superloop Adelaide 500, Гонка 1 (2
 ```bash
 magnet:?xt=urn:btih:1F580659907A0E614AB9B97A077A03AB3C8FCEA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Selena Gomez - Rare (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:E57480E3AA00F3E83B72CF47CAD11CB8A8C74581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Allavsoft Video Downloader Converter - профессиональный инст
 ```bash
 magnet:?xt=urn:btih:3425509F4AC7A94B3C6A795F0390BE06A7B34C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1B20B5780F316C971412571A8562355CC7261DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ The Amity Affliction - Everyone Loves You… Once You Leave Them (2020) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:6A1FFA0CC9449E41BE731411E0D91745A0C2210F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EE48A95C11CCE36E21059F97BCAB1BCF56A141A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [MP3|320 кб/с]<Soun
 ```bash
 magnet:?xt=urn:btih:F04830CAE3EDC15EA4A6D0F2107A86AAE34E456E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Poppy - I Disagree (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Hardcore>
 ```bash
 magnet:?xt=urn:btih:4F8F8B0138A398D010B1E192459A6DAD578B77F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:402FF40FC09CE84F6C7E0E99301FF4FCB55BCB3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ Dazz Band - Greatest Hits (1986) [FLAC|Lossless|tracks + .cue] <Soul, Funk, Disc
 ```bash
 magnet:?xt=urn:btih:C2D12C7D39D932182D7DFDD3BD400BA471C6CF39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ VA - Прикуп некозырной масти 2 (2002) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:4C745CE99963B4AEC00E120159A2D608F6465AD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63BAF32655ACCDC9B20C58C8D07D989EC7EDFAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8676377AABF82ABD0D443A0725D62CC5600C4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ John Powell - The Call of the Wild / Зов предков (Original Motion Pict
 ```bash
 magnet:?xt=urn:btih:D28C13B6B90E2B479CABEE820CAF563EB93E5376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ Tame Impala - The Slow Rush (2020) [FLAC|Lossless|tracks + .cue] <Psychedelic Ro
 ```bash
 magnet:?xt=urn:btih:41C4C2B1DF03BF9AD23767D23B9140A7DF09076C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ New Project - Discography 8 Releases (2001-2018) [MP3|320 Kbps] <Industrial Meta
 ```bash
 magnet:?xt=urn:btih:D1E6A77B02573A9E4CC5F7C8C2276A41444B651D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

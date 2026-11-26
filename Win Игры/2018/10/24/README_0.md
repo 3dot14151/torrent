@@ -19,8 +19,7 @@ Beyond 3: The Fading Signal / Извне 3: Исчезнувший сигнал 
 ```bash
 magnet:?xt=urn:btih:4B702301AEC9DDF16A350A8ED5F54EAD3731ADB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gauntlet (2014) [Ru/En] (2.2/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:FC1B20AFE68AEA90CF1873ACA6962E7CC467BD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Veil of Crows – крутая стратегия по совместитель�
 ```bash
 magnet:?xt=urn:btih:E4C938FCC1748B046E37C540265EE7B7548E22D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

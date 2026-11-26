@@ -22,8 +22,7 @@ A3 Loved And Lost(   Читать дальше...   )Жанр: Hard RockПрод
 ```bash
 magnet:?xt=urn:btih:D9F81EC0669DBE5755D0180B914CE4DEC0635275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:D28430F2D8F5ED3164B693EDD253156BA3E3A793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E9261EB90914060E2FDB8C28D961F5D75E256158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hybrid Minds - Halcyon / New Orleans (2013) [MP3|320 кб/с]<Drum & Bass/Liquid
 ```bash
 magnet:?xt=urn:btih:D2454A735AB44DFE87B5F2338B75E0B07A359273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C7ED5C7F472211865DD5A928112BE1057D5FC8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Manian - Hands Up Forever (The Album) (2013) [MP3|320 кб/с]<Dance, House, Clu
 ```bash
 magnet:?xt=urn:btih:AF5DFC3F5028368B9DCEC5A1D707075E78910054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1451C0E877489DCCF770DE5B718379BC0151F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Carved Souls - Dismantle (2013) [MP3|160-320 кб/с]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:23D4CFF499FB9D747335372B9ACA2088DE4A9790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:055525676B8A2245DC559BE50D97EAE97ECAAFEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Cryogenic  Echelon - Anthology (2013) [MP3|320 кб/с]<EBM, Dark Electro, Futur
 ```bash
 magnet:?xt=urn:btih:07F48C4B50F673F33C4EEA9B9885BC46199518C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ VA - Ibiza Dancefloor Crazy Party (2013) [MP3|128 кб/с]<House, Club, Dance, P
 ```bash
 magnet:?xt=urn:btih:4A01FF0C252204516B60ECA5C74968818D9E26DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B61B8D417529A4A6BD01722C8E2BE3306B4D4D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCA05FF2764D953CD66B8C4859DBF1CB3CB46F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C31113FDF9660AD46C0D76AE9EA32359D7C16C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ NG: Оружейные бароны. Серия №2 / Lords of war (2013) SATRi
 ```bash
 magnet:?xt=urn:btih:A29395AF793E3307811EB14224535CAB6A8FD621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ VA - Mixmag: The Greatest Dance Tracks of All Time (2013) [MP3|320 кб/с]<Hous
 ```bash
 magnet:?xt=urn:btih:79582C4ADAB4E447E7550CFBAF5EFC6C6703CC51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +479,7 @@ Solo Sax - Jazz Saxophone (2011) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:DB4E2382080B1E0BC268BC51AC49C212EA219572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ NG: Оружейные бароны. Серия №1 / Lords of war (2013) SATRi
 ```bash
 magnet:?xt=urn:btih:3B79AC26B394FDDADF063EBE82D8DB216A6E0F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ VA - Arte Summer Of Soul (2013) [MP3|320 кб/с]<Jazz, Soul>
 ```bash
 magnet:?xt=urn:btih:80FF3E51D3E0BA6E5D0BFBBB8E74CFB3A5F51E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ VA - Balance Pres: Guy J (2013) [FLAC|Lossless|WEB-DL|BAL009D]<Tech House, Progr
 ```bash
 magnet:?xt=urn:btih:C68D8DD351D9C4C08B9FF6C51474F626EBE97262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ VA - Все звезды шансона-4 (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:2A968CA96E1BA4AAC090DD69DADDCE1EF5D89C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ CD1Жанр: Dance, ClubПродолжительность: 01:14:26
 ```bash
 magnet:?xt=urn:btih:16BDF9FFF6FBEAFF0B4C0188754443400904C162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22D77B0D59B8007703D262576B6627D391E7B514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ Mercenary - Through Our Darkest Days (2013) [MP3|320 кб/с]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:DE650BD6A479D163A480F07E363EAE23CE5A7146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ HyperSnap v7.25.01 - инструмент для захвата изображе
 ```bash
 magnet:?xt=urn:btih:6D86006B716E8FF565FB26F47B346E56FE2C0571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ SystemTools Hyena 10.0b [En]
 ```bash
 magnet:?xt=urn:btih:B99A320C6DB56693481EA8A1B0B8813FB6313B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

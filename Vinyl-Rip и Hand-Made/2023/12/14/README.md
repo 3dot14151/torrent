@@ -19,8 +19,7 @@ Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, 
 ```bash
 magnet:?xt=urn:btih:E02EC2818F0C326084AFCCFEA0EFE39D87FA3D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Semblant - готик/экстремальный симфонический ме
 ```bash
 magnet:?xt=urn:btih:A3FD30F9F739E0D75E1F1AC74A4E2CABB7262092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ A-c - Patterns(   Читать дальше...   )Жанр: Progressive Metal, R
 ```bash
 magnet:?xt=urn:btih:992D7A28717DCB9723207EC0D9AEBE42858DE70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Anubis Gate - датская пауэр/прог-метал группа, обр
 ```bash
 magnet:?xt=urn:btih:87D186EB2DC9A10893E8AE7E60C77204867E4890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ A4 Hypnotize(   Читать дальше...   )Жанр: Alternative Metal, Nu 
 ```bash
 magnet:?xt=urn:btih:1AEE197496430259FD16FE6ACF11D960F15C7B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

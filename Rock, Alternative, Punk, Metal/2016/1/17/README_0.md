@@ -22,8 +22,7 @@ Odin's Court - Turtles All the Way Down (2015) [FLAC|Lossless|image + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:16A2A946387BC0AAE4BF82E485F3580417A2D207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Katrina Barclay - Element (2016) [FLAC|Lossless|tracks] <Indie Pop, Blues Rock, 
 ```bash
 magnet:?xt=urn:btih:35230540EDFF82CE686083B24129CEDD091F0194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Resistance Organ Trio - Does Zeppelin (2012) [MP3|320 кб/с] <Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:31B55B91CE94F798E9C215DF7A44A91BA0848A3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rhapsody Of Fire - Into The Legend (2016) Limited Edition [FLAC|Lossless|image+.
 ```bash
 magnet:?xt=urn:btih:DDB5B1B8F83CB8FA2A7773BB3DD1C6F137CAE600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

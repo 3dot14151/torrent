@@ -19,8 +19,7 @@ New Tales from the Borderlands (2022) [Multi] (10415597/dlc) Repack DjDI [Deluxe
 ```bash
 magnet:?xt=urn:btih:1A18C38E6FE5300924EA4439B15E31B570E82F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil Village продолжает приключения Итана и�
 ```bash
 magnet:?xt=urn:btih:EEE940491AE35F31F086BF14DEF6F21344A1423A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Minecraft Legends (2023) [Ru/Multi] (11023230) Repack DjDI [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6F17A09CF118A03B10B57334ACEFCCACB1F8BBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Switchball HD - Puzzle Platformer – платформер с элементам
 ```bash
 magnet:?xt=urn:btih:6EDA6BE24C7A1B360FA2EDD4059FA145288366AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

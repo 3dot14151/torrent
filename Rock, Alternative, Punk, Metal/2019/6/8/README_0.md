@@ -22,8 +22,7 @@ Witchfinder General - Buried Amongst The Ruins (2007) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:29FCCDA16CC19981F2133BEA3B059AEA5873A135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Witchfinder General - Resurrected (2008) [FLAC|Lossless|image + .cue] <Doom Meta
 ```bash
 magnet:?xt=urn:btih:8E7BD6E91A4D35221EDF13A413DA4041D14D32C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sopor Aeternus & The Ensemble Of Shadows - Sanatorium Altrosa (Musical Therapy F
 ```bash
 magnet:?xt=urn:btih:79D7F9B2A9D0554EE190D2BA80F65C3E4582CFEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

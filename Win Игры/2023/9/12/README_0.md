@@ -19,8 +19,7 @@ New York Mysteries 5: Power of Art / Загадки Нью-Йорка 5: Сил�
 ```bash
 magnet:?xt=urn:btih:012D336A0CB47A711F32536A6B4761EB4F942740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ABRISS - это атмосферная игра с механикой на ос�
 ```bash
 magnet:?xt=urn:btih:3AC75BC148EF751C05FC906247036087A13FEA1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lempo (2023) [Multi] (0.111) License GOG
 ```bash
 magnet:?xt=urn:btih:76E849AF471E49A320B967622821E190ADC29B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Quake 3 Droid - порт Quake 3 Arena - лучший порт Quake 3 для А
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

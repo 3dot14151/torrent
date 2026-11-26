@@ -28,8 +28,7 @@ Soul River Dogs - Soul River Dogs (2011) [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Various Artists - Covering 20 Years Of Extremes (2CD) (2008) [FLAC|Lossless]<Bru
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Primal Fear - Unbreakable (2012) [MP3|256 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:00272F1B2CF177F265A31E073E92ED7D401FC719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

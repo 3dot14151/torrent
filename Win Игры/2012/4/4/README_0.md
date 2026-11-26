@@ -23,8 +23,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru/En] (RePack) 2012 | R.G
 ```bash
 magnet:?xt=urn:btih:C0EFDEA25DBAE35AC689D2EEBE36E9EC3CA50F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lone Survivor [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:89BB6F83E08D7F342066444A098615EFE9301AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ The City of Fools / Город дураков (L) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:0B2EC40747D280C565D31D863FCDC9F92049BAA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Back to the Future: The Game Episode 3: Citizen Brown / Назад в будущ
 ```bash
 magnet:?xt=urn:btih:23BFD3A484FE0259BF6473163191B2DBEEAB7D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Back to the Future: The Game Episode 1: It’s About Time / Назад в буд
 ```bash
 magnet:?xt=urn:btih:1A2978FB442DAAC4FF3FBAFD9962B16F141FE213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Back To The Future: The Game Episode 2: Get Tannen! / Назад в будуще
 ```bash
 magnet:?xt=urn:btih:B335DE772FF13709F77FBCD49768EDEB41FEBF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Party Planner (P) [En] 2009
 ```bash
 magnet:?xt=urn:btih:0601F50D0F7707DF2C11C502453BD127F5B3B6B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

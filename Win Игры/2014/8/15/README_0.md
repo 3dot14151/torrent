@@ -19,8 +19,7 @@ Ghosts of the Past: Bones of Meadows Town (2014) [En] Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:B9F61083ED015B8112E8FED9F9939B3468A4958D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Off the Record 2: The Italian Affair / Не для печати: Итальян�
 ```bash
 magnet:?xt=urn:btih:8781EA9DB33090210C5762B2F36D96CB3D2CF8A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Inquisitor / Инквизитор (2012) [Multi] (1.10.17) License PROPHET [Delu
 ```bash
 magnet:?xt=urn:btih:E4D6595CC8875CEEB6442F12BAD5AC20228EBAFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Deus Ex: The Fall (2014) [Multi] (1.0.1) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D7A1C65A9BFBE3CC3712722C9E042E0B4C21A279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

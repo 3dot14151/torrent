@@ -27,8 +27,7 @@ Elephant Opinions - Awakening Will Be A Journey (2014) [MP3|320 кб/с]<Screamo
 ```bash
 magnet:?xt=urn:btih:CF922D7782243AD042556B132C61C948C0BDBEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ At the gates - At War With Reality (2014) [MP3|320 кб/с]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:6358C1B5E11FB183169CC4C637BF16DC569B5317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BD4DFD3DB072DDC52A8C8D9461E976E9D613E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ American Mafia - Rock N' Roll Hit Machine (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:520A9AE39EC1481938728A4793D77EC1815D7505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ The Jimi Hendrix Experience - 4 Releases (1967-1968) Japanese and USA Remasters 
 ```bash
 magnet:?xt=urn:btih:CD1F8A9432A744CF13CFB747B5F4792735AEB1DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Slade - Live Bootleg (1976-1982) Bootleg 3CD[MP3|128-192 кб/с]<Classic Rock, 
 ```bash
 magnet:?xt=urn:btih:406109B56BF3ACF55A359972476B62159CD15AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Led Zeppelin - Houses of the Holy (Deluxe Box Set Edition) (1973/2014) 2CD[FLAC|
 ```bash
 magnet:?xt=urn:btih:025FDF79A12647202FD06767C570CDBAEC68497E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:563648A3F668E4C67120A908B2A9179B90E44DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

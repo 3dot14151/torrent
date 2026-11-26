@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:142BFCEEE6FC10168FECA19F3D0F9EA0EA4C36D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0B9DB8916E0E58E68864C20EDDE82BB59D1F0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E57C3EA3B6E99D0AC2CDC7ECD71E47FF0D27FBE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Benoit Lugue - Cycles (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary 
 ```bash
 magnet:?xt=urn:btih:20457E9ACF0DC1C7BC6C16ABCCAEA166F51B8D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ V.A - Shadows Of Tragedy (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:C2892BFB4BDEDE150A4FF56062BE28C2FC3AB667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3836385F88E29F318E7172D3356830F8A36E55B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - The Best Of Silver Waves Recordings 2016 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:022E379F191986D742433255C80F43FECB24D0F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19DA9A68F4D3254914323CDFBE8287D8E148A305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Mel Torme - Sunday In New York & Other Songs About New York (1963) Remaster, 201
 ```bash
 magnet:?xt=urn:btih:754DF7419EC5E80B4A750C589D6449495C7ED785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Johnnie Bassett & The Blues Insurgents - I Gave My Life To The Blues (1996) [FLA
 ```bash
 magnet:?xt=urn:btih:707C90F5EDCFE90D261A0DB75A60CE245538C1C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ My Darkest Hate - Anger Temple (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:45F88271FC3330DC1A4E8D60D6EED1457320C8E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ VA - Dance 2017  [MP3|320 Kbps] <Electronic, Deep House>
 ```bash
 magnet:?xt=urn:btih:5BA4BCE468C19138B7800885EFF2C79BFAB9C3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Bathsheba - Servus (2017) [MP3|320 Kbps] <Occult Doom Metal>
 ```bash
 magnet:?xt=urn:btih:AE3B1D74295780E70A5A52252B1D097F78AAF5AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Chrome Molly - Hoodoo Voodoo (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:72F8B29531F4ED2FB728403C7A0F0D2AE7FDBFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Mastercastle - The Phoenix (2009) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:EC617DD432188D1E26C635B6EDBDC45EF784DF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ VA - Снегопад новинок. Часть № 9 (2017) [MP3|256 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:42ED724DB9CDC717AD7B161F983D67A481B2806A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ Al Atkins - Reloaded (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:40C608D68094BA11A3AFC4E6A757E7C977612223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ VA - Музыкальное потрясение зимы от Русского 
 ```bash
 magnet:?xt=urn:btih:022E3F0FC85E2C0CD64A5BF9F6E7BEA45BF65D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ VA - Зимняя русская радиоволна (2017) [MP3|256 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:279EF977EC8DCF075E8C064833DCF558AA8AE49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ VA - Музыкальное зимнее настроение. Русский с
 ```bash
 magnet:?xt=urn:btih:C1A148B84D2EE3B7944DD346ED30971F08631D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ Johnnie Bassett & The Blues Insurgents - Cadillac Blues (1998) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:50B49074996E8F8EC35D4B944F7E824A7A9B8CBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ TunesKit Apple Music Converter - программное обеспечение �
 ```bash
 magnet:?xt=urn:btih:64BEE9FCDD69A3A23A7321C7A48AE617AF3DB0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ TunesKit iBook Copy 2.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:12CC74829B403A8578CC3483928A8B96EDA57D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEB0B6B460DAE7C6EE5A6EC84B2E6E54A6699BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ VA - TranceMission 2017 (Mixed by Feel & Roman Messer) (2017) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:7E946B4097797BCDDB2F822386047CF955316C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

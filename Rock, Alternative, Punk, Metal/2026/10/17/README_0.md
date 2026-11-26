@@ -22,8 +22,7 @@ Temperance - Arcani (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power M
 ```bash
 magnet:?xt=urn:btih:8F627889963E6D27A4482ECFD4CEA6ABC6395DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

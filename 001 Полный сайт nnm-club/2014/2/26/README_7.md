@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9C333321B493B26B41DE94BBBE3A1984B9967CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06212FF2F1CDD25517903CCD7B794596D8B7162E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Windows Product Key Finder Ultimate — утилита, которая помо�
 ```bash
 magnet:?xt=urn:btih:44B2993671BE41FF6747D1F2C91F8B269F85CEB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D3291F2C5920ACDC0C5B166495D6B671556171C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Lost Planet 3 (2013) [En/Ru] (1.0/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:1AFEF1F01ED878E317E085289F0EBA1BD4AED0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Thief (2014) [Ru/Multi] (1.0 build 4107.3/dlc) Repack Let'sРlay [Master Thief E
 ```bash
 magnet:?xt=urn:btih:6982C6E118A77F0AA9C9BA71F943903EA565296D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Microsoft Visual Studio — линейка продуктов компании �
 ```bash
 magnet:?xt=urn:btih:CB480155741EA0F8730C1ADD3BB47703E98A647A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

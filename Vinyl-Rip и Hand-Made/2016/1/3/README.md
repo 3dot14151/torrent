@@ -23,8 +23,7 @@ VA - Кубинская эстрадная оркестровая музыка 6
 ```bash
 magnet:?xt=urn:btih:80A1C7680908B3B23444F48E7FC6B6274AC089F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

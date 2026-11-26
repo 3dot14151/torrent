@@ -19,8 +19,7 @@ Awakening 5: The Sunhook Spire Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:272DCEDF80869011D1090B7E7C4884BED7C3E572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vampire Legends: The True Story of Kisilova Collectors Edition / Легенды 
 ```bash
 magnet:?xt=urn:btih:4EBA8EE1C1B6280C69C08747961E13956D6A9A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cursed Fates: The Headless Horseman Collector's Edition / Сонная лощи�
 ```bash
 magnet:?xt=urn:btih:E684FA96730BAB433AD5FD67C26BBDD6F0DBE0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Elder Scrolls V: Skyrim (2011) [Ru/En] (1.9.32.0.8 / DLC) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:C87AD81F6257786525FC1FE3170183F3E8C4B96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

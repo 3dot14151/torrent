@@ -19,8 +19,7 @@ Stubbs the Zombie in Rebel Without a Pulse (2005) [Ru/Multi] (1.3.0.6351) Repack
 ```bash
 magnet:?xt=urn:btih:3F4BBA6FED9F459F199467020BB1EC76506FD73D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

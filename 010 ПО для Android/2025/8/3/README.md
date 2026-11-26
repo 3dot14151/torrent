@@ -20,8 +20,7 @@ Face Swap - AI Photo Editor v1.4.7 Mod by Balatan [Multi]
 ```bash
 magnet:?xt=urn:btih:ACAF6C3176AD7F6F8DD10459C897BD4E5E8E1420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Heart Rate Plus: Pulse Monitor v2.9.5 Mod by FeralFox [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A13DC8FE4654EB59B1D11173EA3303BC0A7C7663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

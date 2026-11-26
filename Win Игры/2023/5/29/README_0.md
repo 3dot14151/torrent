@@ -19,8 +19,7 @@ Grim Tales 23: Dual Disposition / Страшные сказки 23: Двойст
 ```bash
 magnet:?xt=urn:btih:9CC04DE017D1F59A114A8717212F699D65556AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

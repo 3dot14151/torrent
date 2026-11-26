@@ -22,8 +22,7 @@ Profundis Tenebrarum - Extreme Violent Art (2004) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:81E4188A941C599F6D94BB37D6B5697EC6FB9D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shane & Shane - The Worship Initiative (2015) [MP3|320 кб/с]<Christian / Pop 
 ```bash
 magnet:?xt=urn:btih:EFA3D6F507D15CEB11FBCFB9A481A5791F9FA564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Negrita - 9 (2015) [MP3|320 кб/с]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:7A254DDE949BAA54DFA4FB473250E139AFC91869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Paul Weller - Saturns Pattern (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:6675DD3B4BD09FD36F1C39DF08A44B9A59C2532F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Anna F. - King In The Mirror (2014) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:3DCE874BC729CF82F12239D6F78201676B330CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ironsword - None But The Brave (2015) [MP3|320 кб/с]<Epic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3CD367CBE61AB580A64F71E6F147A394AB12606B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5FAA3E4CCC9253DA1B1DF1DFE882C192FBC6CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Tribulation - The Children of the Night (2015) [FLAC|Lossless]<Heavy Metal/Progr
 ```bash
 magnet:?xt=urn:btih:A98500B35863377114CC05FF5C41980E63CB4517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Silverstein - I Am Alive In Everything I Touch (2015) [MP3|320 кб/с]<Post-Har
 ```bash
 magnet:?xt=urn:btih:44DBCB12BB697CAB5CBFBB6D2CF1A830EC76379F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Ionic Bond - Amavashya Lore (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:BC154396A8312DF1FC6F977CA9D33BE01D75279E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ GjeldRune - В Парусах Цвета Зари (2015) EP [MP3|320 кб/с]<Fo
 ```bash
 magnet:?xt=urn:btih:F8DAEE1C766B12719EE626FAF91E1D1045B58A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Green Day - Kiss My Green Ass (1995) [MP3|192 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:BEBC6B0691B90C79F052CC69295C9FCAFDA8430E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Brandon Flowers - The Desired Effect (2015) [MP3|320 кб/с]<Pop Rock / Indie R
 ```bash
 magnet:?xt=urn:btih:B0B50285676A032F8FA8A765DAEBAD34128DF8CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3554A5BBDA1C67E6F851FB20E4198CF281154F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Whitesnake - The Purple Album (2015) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:459B3A9E5B3CF5439A07DB84B415127F7BA99FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

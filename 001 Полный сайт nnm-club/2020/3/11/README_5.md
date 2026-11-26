@@ -18,8 +18,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A43682AD299DAECCFA225D4688CED9E33616855C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ WRC 8 FIA World Rally Championship (2019) [Ru/En] (1.5.1/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:A3AF979BE78E297558C37F13E21172F1141ABA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D29EF1DD369277FF4B752E1EFA977A28C84A4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Gakuen Mokushiroku: High School of the Dead | High School of the Dead | Школ
 ```bash
 magnet:?xt=urn:btih:8ED717C32F268C14A7AD79C21802CCE63AC94765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ OTUS | Разработчик C++ (2020) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:A668AF8BE5D92DAC248B8AAEBA31AFA26737E019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Windows 10 2in1 VL (x64) (v.1909 Build 18363.657) Elgujakviso Edition (v.07.03.2
 ```bash
 magnet:?xt=urn:btih:3B8A772D56DEB5C5A8A97F83602523154F47B5FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Tehnofonika Records - Label-Pack 73 Releases (2014-2020) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:20CE569F2ACC102957B301062D792A77CFEB7879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ WiFi Overview 360 - универсальный информационный ин
 ```bash
 magnet:?xt=urn:btih:D88A6052860164A20F05F872DDA073CB77AE97AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Titan Quest - Anniversary Edition, мифический набор, из кот�
 ```bash
 magnet:?xt=urn:btih:F0FAD7F7F7C9B4CAF0AC82E884420A2DFEF36943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ ABBYY FineReader 15.0.112.2130 Corporate Full/Lite RePack by KpoJIuK (11.03.2020
 ```bash
 magnet:?xt=urn:btih:6284463AABAC4E2F61C31543D7D60B63D98AD97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74EAFBB3CE4DE3DBB5D655D3BB13ACCE590CDC8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Thief Simulator (2018) [Ru/Multi] (1.42) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B212E17BB5EAA36BECC2D54BEBBA9E74C3707D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

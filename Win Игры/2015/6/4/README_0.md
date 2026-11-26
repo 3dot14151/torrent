@@ -19,8 +19,7 @@ Off the Record 4: Liberty Stone (2015) [En] Unofficial [Collector’s Edition / 
 ```bash
 magnet:?xt=urn:btih:0247586340B3D333ABBC6EB7887FB349549268F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Contract with the Devil (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E3E3286785E52845427DEEB1581E3FBFA6862498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Halls: Nightmare Dwellers / Дом с привидениями: Обит
 ```bash
 magnet:?xt=urn:btih:8F218EC25BB0CA7DCCB4520617EB01D0BBF03A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ I Know a Tale / Я знаю интересную историю (2015) [Ru] Unof
 ```bash
 magnet:?xt=urn:btih:6A0977E9A4033E97F270BEE99EAA3E3D59D1F7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

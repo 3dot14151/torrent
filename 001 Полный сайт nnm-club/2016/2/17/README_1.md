@@ -20,8 +20,7 @@ Metadatics предоставляет возможности поиска мет
 ```bash
 magnet:?xt=urn:btih:86911553F1FCDDC29DE85CA5E7C312CAEFC9067F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ VA - House Nation Volume 2 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
 ```bash
 magnet:?xt=urn:btih:8B631097C776AF391B7765487CB943BEF9C63D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26E4B801C66EF22A5EB8C17EEE332F5D129DFC27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Layla Zoe - Hoochie Coochie Woman (2007) [MP3|320 кб/с] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:C10445C0F0CB2304A17141F76D64401C2567A8E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Holon - Augmented Reality (2015) [FLAC|Lossless|WEB-DL|tracks] <IDM, Breaks, Psy
 ```bash
 magnet:?xt=urn:btih:27358EDE22C5B77308C2F52F679A7400BD9C6E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBE81B023CE4F00BB8EB4CBE8A7CF2E803AFE6AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Andy Timmons Band - Resolution (2006) Digipak [FLAC|Lossless|tracks] <Rock, Hard
 ```bash
 magnet:?xt=urn:btih:C4F25A81E0FA494FEA48B5007DBE19A2868A2683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E1C59B87B26F836DB121E403E327F70DDD37B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ VA - Jazz and '80s: The Coolest and Sexiest Songbook of the Eighties (2005) [MP3
 ```bash
 magnet:?xt=urn:btih:135368901B618F3C9097F84AC2A1A5980B440C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Liquid Mind - Liquid Mind XI. Deep Sleep (2016) [MP3|320 кб/с] <New Age, Ambi
 ```bash
 magnet:?xt=urn:btih:FF9A50CDC8DEF696383F017EB34BCB581FDA1C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Cуть и смысл жизни, этого краткого и несконч�
 ```bash
 magnet:?xt=urn:btih:1334330423F61DE5D51F37F82792A0C1755C203E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78A6CBC428B3D3AAD3100C769F49D37D616B05DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Lucidstatic - Space Between (2015) [FLAC|Lossless|WEB-DL|tracks] <Breakcore, Exp
 ```bash
 magnet:?xt=urn:btih:4E3E2928990E54640ED1318817260E4B666F097C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:550DF882966D5FF893CDD413F9B568E93B7DCDF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ VA - A Tribute To Rancid: Hooligans United (2015) 2CD [MP3|320 кб/с]<Punk, Ha
 ```bash
 magnet:?xt=urn:btih:F4A64E2C8321B757502F8D4D203D7060E082C3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2555D1C5C86D31130E260DC1A38F452C1D21D070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Black Tiger Sex Machine - Welcome To Our Church (2016) [MP3|320 кб/с] <Electr
 ```bash
 magnet:?xt=urn:btih:B1F5605C29DE22159D580B3575CFEECA2551B7F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ PDFpen Pro - Программа для создания и редактиров�
 ```bash
 magnet:?xt=urn:btih:6A6EE56A6CE71A4D0244DC8E7A5059EFB95ACC29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F71BA7E895980C901D397503428C666312C2A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ Acorn (   Читать дальше...   )Тип издания: OS X Software�
 ```bash
 magnet:?xt=urn:btih:E57B53E74C29C6AEA2DAB178287F9BC8AAC5E74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ Cat Sisters' Swing - Rendez-Vous (2015) [MP3|320 кб/с] <Electro Swing>
 ```bash
 magnet:?xt=urn:btih:97A660490810743F4EE646985C5136A74514FA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:D8A6FD2C8DB4839432C7BFA87E5557E93A08447C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26175BD5AD5F3DF87DA5DB265D594111C8D89DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5F904CB8C0E72F1A8BE2EDE666B3982681E9A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ Viscosity может подключаться к любому серверу VPN
 ```bash
 magnet:?xt=urn:btih:B6FB15D31DB11F8F43FEFBA354EBE301E3BF3F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

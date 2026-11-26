@@ -19,8 +19,7 @@ Cubonoid - это интересная и увлекательная игра ж
 ```bash
 magnet:?xt=urn:btih:91F4BA3E6B1FCCE20EB52E1337C561767E8F88A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E245187C1A365218D449EC4E02CBB5F9D62A17AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gardenscapes: Mansion Makeover. Collector's Edition / Дивный сад 2. А�
 ```bash
 magnet:?xt=urn:btih:204F102C7966347EE761EB0E2C8721051C04CFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3F8A05F8A909D616FABBCB96CBD0C72045DE5FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

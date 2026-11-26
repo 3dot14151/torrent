@@ -18,8 +18,7 @@ Fashion Glitters - блестящее, много-целевое вступле�
 ```bash
 magnet:?xt=urn:btih:3B2C162E608F02A7AF5CB77CD33F3FBA756C717E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Retro Vintage Vocal Jazz (2016) [MP3|320 кб/с] <Vocal, Smooth Jazz, Blue
 ```bash
 magnet:?xt=urn:btih:42F66FE721E64352DD3CABAC6D40A51327CC8CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57AAAEEDEFA713FAF1F18C75CAB2C205CB62F403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:270F5A2BAB03B3812AFC81AC972E414B02EA28C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ FNT Broadcast Package - Современный, стильный и профес
 ```bash
 magnet:?xt=urn:btih:429E1AFCCC3F8E136C3F7A2B36AD9501C310A977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A40C722A3A1A9891F68AA0999311FEE27031D712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37EF6B3358168C7FCABE5FA35EE5FECF442D2EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ The Form - Hi-tech Impact Logo Transformation - раскрытие вашего 
 ```bash
 magnet:?xt=urn:btih:092EC41B96FCC0DECA9AF306354FB65E1EE8D4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Drawing for Kids & Toddler / Рисовалка для детей  v1.0.1.7 Full
 ```bash
 magnet:?xt=urn:btih:B13CB154ADF4C4AE9A803D3144D1B57329E97A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E0B814D5AB283E1F0975668C23DE9C574208649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:70C1377257AF853B98AB04911A870308CAEC60EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ DFX Audio Enhancer — звуковой плагин для улучшения �
 ```bash
 magnet:?xt=urn:btih:F603C409431780D6148D31B901110DC6DC645369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C0CA816B9D3E8ED04312F5C413A8F71E9818338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Blender — многоплатформенный графический 3D па�
 ```bash
 magnet:?xt=urn:btih:1E9B81AFA8AD4D9F877210620F2E294541488AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Wedding Titles - шаблон эффектных свадебных назван
 ```bash
 magnet:?xt=urn:btih:D0E8B605AC195B958797F6957DAD336F92E508A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ DeFocus Glitch Logo Intro - демонстрация вашего логотип
 ```bash
 magnet:?xt=urn:btih:A2F717969355F6592395C92D176A88B209A3013F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Xilisoft Video Converter Ultimate 7.8.17 Build 20160613 RePack (& Portable) by e
 ```bash
 magnet:?xt=urn:btih:A36C2DE55D79718E0390B284CAE6F565325BB2C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:572978E7F65686F3A95E35A562D39466410D2DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B820AA7F420AE0F878B75A67C23D3F6CDE89D6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ Faery: Legends of Avalon перенесет нас в сказочный мир 
 ```bash
 magnet:?xt=urn:btih:0C1965B8840E5A5960C81B001F67DA29DA906B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ Parallax History - Уникальный, современный, кинемат�
 ```bash
 magnet:?xt=urn:btih:B3EC4F598581D42C94918DDACEAB962EC245E258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ Coffin Dodgers (2015) [Ru/Multi] (1.2.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FD0A72A69F86C7BE10345B8F35A66536E21C3228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B81D2FEB12A3DDF030238E23A7F519855ED7B1D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ Cinema Awards Promo - профессиональная презентация в
 ```bash
 magnet:?xt=urn:btih:2ACAAF186D0CC8C93C77241A429C5E4DDE021FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ Minimal Ink&fire Logo/Title Reveals Package - красивые текстовы�
 ```bash
 magnet:?xt=urn:btih:1DD7EB5661524DB51C272E58B0A45AD235C222C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

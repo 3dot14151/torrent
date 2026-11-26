@@ -25,8 +25,7 @@ CivCity: Rome от создателей серий Stronghold и Civilization...
 ```bash
 magnet:?xt=urn:btih:64FA5E0F338921CB36D6613202E3D5F1EB0C6ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Avalon / Авалон (L) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:F1E0E200E4AD800EFE7776FB758C26512920CB47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Warhammer 40 000: Space Marine + 13 DLC [Multi10/En/Ru] (RePack/1.0.156.0) 2011 
 ```bash
 magnet:?xt=urn:btih:C81844C8A43A21BC511539489F7485D32AA7B468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

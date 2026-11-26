@@ -19,8 +19,7 @@ Matthijs Hollemans / Мэттис Холлеманс| The iOS Apprentice (5th ed
 ```bash
 magnet:?xt=urn:btih:42663028C35763C4264E33591E0697347647B85E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EBA3D914E5F2150B5B5EF50ACB35C36C6F9A91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

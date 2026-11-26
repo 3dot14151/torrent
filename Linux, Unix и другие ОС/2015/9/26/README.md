@@ -21,8 +21,7 @@ ArchBang Linux 2015.09.16 (Легкий дистрибутив) [i686, x86-64] 2
 ```bash
 magnet:?xt=urn:btih:ED1942407101AED4570F626CE8A45285029DFB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

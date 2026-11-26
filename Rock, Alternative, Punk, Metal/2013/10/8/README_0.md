@@ -25,8 +25,7 @@ Vein of hate - St. atricity (2013) [MP3|320 кб/с]<Death metal>
 ```bash
 magnet:?xt=urn:btih:A0514C0FD879020551E8E3D5093F3E89CCFF251E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Degradead - The Monster Within (2013) [FLAC|Lossless]<Modern Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:D3ABB37EADED7FB769ED93684F0B79A569C7BF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Dark Age - A Matter Of Trust (2013) [FLAC|Lossless]<Modern Metal | Power Metal>
 ```bash
 magnet:?xt=urn:btih:3C4A02261F97CA227A5BEA87794F229F6E6C6347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ The Elves - And Before Elf There Were Elves (2011) [MP3|320 кб/с]<Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:8135CE7ECD9340D3B7A7D23C42E73C07E0B9B41F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ U.D.O. - The Wrong Side Of Midnight (2007) EP [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:70AD7699456DC8E28FFBE3E3A2EC950144CEB966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED2F5A82214ED9BE0B99D5BD2B1F4980B30DF8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Shocking Blue - Attila (1972) /2009, Recordsmen Communications/ [APE|Lossless]<R
 ```bash
 magnet:?xt=urn:btih:190F63D3B73C50CFFF63AE81D3D1DF7B353C573A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Pearl Jam - Lightning Bolt (2013) [MP3|320 кб/с]<Grunge>
 ```bash
 magnet:?xt=urn:btih:D00697DB23C59CAECDFE0FE1EA9B28C6C263F2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ A Day To Remember - Common Courtesy (2013) [MP3|320 kbps]<Melodic Hardcore, Pop-
 ```bash
 magnet:?xt=urn:btih:4533A3C50ADAE12E859757C25A7096AAC6978760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75C62DBE647B91D59FADC534286A49EB63D1DEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ Uriah Heep - The Very Best Of (1993) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:C38386F9043DA9452B0E0682CAD5CE5B04A6A0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +384,7 @@ Bee Gees - The Essential (2013) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:D617BC416C05E14842E26B55B766CD9D87BB2D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +412,7 @@ Nazareth - Close Enough For Rock'n'Roll (1976) remastered /2002, Eagle Records/ 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

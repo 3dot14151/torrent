@@ -19,8 +19,7 @@ Between the Worlds III [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:97731D96A5D4C495AB00BD8C819BD95352969B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E810A54B07045CC45932E9EB95F304C3715DB88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ LIMBO - мультиплатформенная компьютерная игра
 ```bash
 magnet:?xt=urn:btih:5CBEB37C53C63CA3BC9FE7B871BD48C107FF9502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

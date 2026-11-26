@@ -19,8 +19,7 @@ Microsoft Office 2010 (кодовое имя Office 14) — рабочее на�
 ```bash
 magnet:?xt=urn:btih:AE8E00F5C7F8D2FDDA4BB1C12FBA1A412A002B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Victor G Brusca | Advanced Unity Game Development (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:CDE5B3FD00DD0E8B3613112497CA0691A5DCEADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Next.js - это масштабируемый и высокопроизводи�
 ```bash
 magnet:?xt=urn:btih:70E28714DED0DA3A3BEF26C1846C41B2857CA87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

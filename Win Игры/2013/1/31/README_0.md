@@ -19,8 +19,7 @@ Warriors Orochi [Ru] (RePack) 2008 | R.G. REVOLUTiON
 ```bash
 magnet:?xt=urn:btih:2163055A6BA05C74C87B3CA4C04E8DBB9323BD88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

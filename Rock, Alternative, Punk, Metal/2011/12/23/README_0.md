@@ -28,8 +28,7 @@ David Gray - Greatest Hits (2007) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:F99A1A10C0D070864143E6463C4A404F376987B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Lavrentis Machairitsas - Discography (26 albums, 1982-2011) [MP3|128-320 kbps]<r
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Top Gear February 1969
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Linkin Park - LP Underground 11 (2011) [MP3|320 kbps]<Alternative>
 ```bash
 magnet:?xt=urn:btih:1465C277F650E5F1FFAE6B484AB1D67234D705C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Yeah Yeah Yeahs — американская инди-рок группа. Уч�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

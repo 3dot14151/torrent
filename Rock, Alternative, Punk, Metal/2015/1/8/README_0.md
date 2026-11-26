@@ -23,8 +23,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:89EDD83E51A2D08C6A2B5951B8BD623E02FCC4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ The White Death - 5 Tracks (2014) [MP3|320 кб/с]<Progressive Metal, Post-Meta
 ```bash
 magnet:?xt=urn:btih:B86074B5CF08EAEE97CB694ED2BF6F4BCB85DFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Magenta Harvest - Volatile Waters (2014) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:25ED06D54C86B23E7EFC15F05690835A11C2D4EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ The Crown - Death Is Not Dead (2015) [MP3|320 кб/с]<Melodic Death Metal, Thra
 ```bash
 magnet:?xt=urn:btih:1B6D6A2CFCE0C3A7257FDA12A5EAE6DE0CD70198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Secret Avenue - Sirens (2014) EP [MP3|320 кб/с] <Indie Rock, Post-Rock, Synth
 ```bash
 magnet:?xt=urn:btih:B0A4E23463DF135C7D3FC08F6666A9EEBA4CDEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ SycAmour - Indulgence: A Saga of Lights (2014) [FLAC|Lossless]<Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:7411262A997BDAB0A610C948D28714815A2197CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Little Free Rock - Little Free Rock (1969) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:27A5818ED9FAD87687E01336F039DC5FEEF7C3D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Sophie Villy - 2 Альбома (2012 - 2014) [MP3|320 кб/с] <Indie Rock, Blu
 ```bash
 magnet:?xt=urn:btih:42D2B547F046FAF4EA35D268B80A4A12C8323750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB1D737356676D85445B2ED0AF9115AC104FEB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ Disc One:
 ```bash
 magnet:?xt=urn:btih:66A779DB9C2259E951F69B5900BDF6925C9A4B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAA44C170FCDFB5B39281114E687C24E7D8E0983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F741489596DFDA316092271F8EA4139E066C94A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +416,7 @@ Marillion - Script For A Jester's Tear (1983) 1-st press /1985, EMI Records/ [FL
 ```bash
 magnet:?xt=urn:btih:13BC5F039402F74AA25B3BDAE0CE7B51C5B1460A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +445,7 @@ In Extremo - 10 Альбомов (1997 - 2013) [MP3|320 кб/с] <Folk Metal, He
 ```bash
 magnet:?xt=urn:btih:98B4E0F94A98CBCDDCD9EC3342F70BBA910511A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

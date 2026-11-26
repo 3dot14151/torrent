@@ -28,8 +28,7 @@ Music Duplicate Remover 6.0 Build 33 [мульти]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

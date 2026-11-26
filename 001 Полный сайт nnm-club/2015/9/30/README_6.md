@@ -19,8 +19,7 @@ Hitsugi no Chaika: Avenging Battle / Чайка - принцесса с гроб
 ```bash
 magnet:?xt=urn:btih:290999122D4EF5DEB55B46AF03822497FC1A8000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nevermind (2015) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A2BDB2BD3F3E79C4B15D66A1C1353FC0AA59E088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ITVDN | Алгоритмы и структуры данных (2015) PCRec [H.26
 ```bash
 magnet:?xt=urn:btih:11CA89F030E6FF938D5DB728C32A6B47B01188DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:374E980AFC73E6AE56B41D27CAC47E9E20965BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Debut Video Capture Pro 3.07 Portable by punsh [Ru]
 ```bash
 magnet:?xt=urn:btih:4272B2852CBC6B5442512A7A3E983B66EBD995AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

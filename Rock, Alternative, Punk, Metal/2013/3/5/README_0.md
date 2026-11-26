@@ -24,8 +24,7 @@ Emissary - Emissary (EP) (2013) [MP3|320 кб/с]<Progressive Metalcore, Deathco
 ```bash
 magnet:?xt=urn:btih:6A678C5DB3FFA9BF738D466268E05749E90CAC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Reformers - For King And Kingdom (2013) [MP3|320 кб/с]<Progressive Metalcore,
 ```bash
 magnet:?xt=urn:btih:D1F96028734A2D27F38936579A6C7669BFB01349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Tracklist:
 ```bash
 magnet:?xt=urn:btih:C0E7708CF948D778E9284A8E8A2841BB004AB910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Chelsea Light Moving - Chelsea Light Moving (2013) [MP3|320 кб/с]<Indie Rock,
 ```bash
 magnet:?xt=urn:btih:9193267506563A1E0021D9CB7735087BA74F3F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Shout Out Louds - Optica (2013) [MP3|320 кб/с]<Indie Rock, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:B3E1278870F80FE9EABABAC5A3093070C49CC1EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5EDF1135FF3361B56D43A7C6C3FF6CB3251943B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Six Feet Under - Unborn (2013) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:77F31A78D1D0ABEA8C04FF1E9FB5C3B932FCB4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Elvis Presley - Elvis 75 - Good Rockin' Tonight (4CD) (2009) [MP3|320 кб/с]<R
 ```bash
 magnet:?xt=urn:btih:8E2777A8D5C5448280AEC55E0154EDE0F0EDB926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

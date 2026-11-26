@@ -22,8 +22,7 @@ Terror Universal - Make Them Bleed (2018) hand made [restored, declipped] [FLAC 
 ```bash
 magnet:?xt=urn:btih:6A4FE99F1112FFEE0A43EEEAA77D20869BC78967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Canary In A Coalmine(   Читать дальше...   )Жанр: New Wave, P
 ```bash
 magnet:?xt=urn:btih:C9DB0F5B870D7837767EBF598662E29FA2A7E7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Hungry For You (J'Aurais Toujours Faim De Toi)(   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:F7A5903F929D891E628816CC7600C2B8BA038A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

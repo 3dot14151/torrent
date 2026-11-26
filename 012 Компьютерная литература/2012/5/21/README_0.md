@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5C19CD3E3F3D4D3575CCB5B977E5C14C00F44F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AutoCAD 2012. Руководство по адаптации [2012] [PDF]
 ```bash
 magnet:?xt=urn:btih:FA01E0BFE916C0F00D05D4197DDE58FB0E40C0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F955BD7D0F3CCF0B6DB0349A5737A71191E02856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

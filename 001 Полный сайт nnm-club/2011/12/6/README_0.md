@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E93B582342B163B1AF65C9D1AF33CE13466A798A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA- Расслабон под шансон 2 (2011) [MP3|320 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:CF03FC2D2E7EEECF9A41A825119BB4ABC73A9363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:215A4428EC789258D5AD14B9D2EE7F605977B81A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ VA - Cap'tain 2012 (2011) [MP3|320 kbps]<Hardstyle>
 ```bash
 magnet:?xt=urn:btih:7CB4D80FE09FDE31F4147DC472E31D8979154A29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Jaimee Paul - At Last (2009) [FLAC|Lossless]<Jazz, Vocal jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A13A252E743C1F0FA939EAD6FF77FBAA9D81C739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ Cheezia - Помогите мышам на сырзаводе в доставк�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:304F63971CF5F5EC586D0FC62D4D89DF66885285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:045EAC668ED622CED703810D3EEB4428046096F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:C7607C4B42B690EB44072F7CBE502ADEFF7E2321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ Rename - Evolution (2011) [MP3|320 kbps]<Electropop, Synthpop>
 ```bash
 magnet:?xt=urn:btih:DD43C43E92AD1BDEFBC9071F9F202D2E3226DF2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92643156FB6B7702CF9209865679EB5AC78ED09D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4120719BCC82FC342F865FE6F453EE8D073D8D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ VA - Всё Самое Хитовое Зимнего Сезона 50/50 (2011) [
 ```bash
 magnet:?xt=urn:btih:84DCF5CEE77DBF59B8E2B9DC244BAE99F5E830B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A176F495803D88CD0C6C68E56F4AAF2782CE8550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97C0EEF217975FDCCFC9F290493028655B945057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ DJ LEV - ELECTRO ЖARA DESTRUCTION (WINTER 2011) (2011) [MP3|320 kbps]<Electro H
 ```bash
 magnet:?xt=urn:btih:42386AB28EE7E187AEB9ED9AF30ED8C9419AE155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ Bill Evans, Warne Marsh, Lee Konitz, Paul Motian - Live At The Half Note (2008) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ VA - Brain Killer 50 Firestorm (2011) [MP3|320 kbps]<Electro/Electro House>
 ```bash
 magnet:?xt=urn:btih:A9BCF74C13F00A7B43BC46471B563E09F064915D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +631,7 @@ VA - Winter music mix (2011) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:B77F712DDFEC0E56AD98D72B7D08D0B5A16D10DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAC6E6EC955749F1FE7274FA4D0EFA7ED59B3253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +682,7 @@ CloudTune работает под платформой .NET Framework 4 на Win
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +716,7 @@ VA - Дискотека 777 vol. 4 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:64E8403270D83D77288FC40FF5D921DDBB25EBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ Quattroruote (Кватроруте) — это великолепно издан
 ```bash
 magnet:?xt=urn:btih:6C055317BEB9CD6736194D281048FFEE06A7BD84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -800,8 +775,7 @@ Mississippi Fever - Mississippi Fever (2010) [MP3|320 kbps]<Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:49724A9300513250BB69A5AD123CCE2C80558977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark Fall: The Journal (2002) [Ru/En] (6.00) License GOG
 ```bash
 magnet:?xt=urn:btih:BCE13FA2DF01CAFDD44150BED026BDA6C5B067AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

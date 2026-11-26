@@ -21,8 +21,7 @@ XYZ School, Артем Гансиор | Movie Man (2021) WEB-DL [AD]
 ```bash
 magnet:?xt=urn:btih:EB64B1D2B961EDF372F1D265F530866E490D36D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:562A88AADEE5ECEA09809D1EC0E279804A0D104D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ F.E.A.R. 2: Project Origin — продолжает популярную сер�
 ```bash
 magnet:?xt=urn:btih:EBF7B755D24E5A7BC986D2D6EA857F6B39D277C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Avira Phantom VPN — является новым эффективным при�
 ```bash
 magnet:?xt=urn:btih:26EACFCE872905CB1B6363675A49F9C1B4C66CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ VA - Chillout Winter Paradise (2021) [AAC|~289 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:F43BE9F228CEE0D3288BB90E6DAA9E8A73908FED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Nina Stark - Organic (2021) [AAC|~308 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:16D01EA9735E91BE61110A1C37C3B66F5598AB74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 4 (2021) [AAC|~31
 ```bash
 magnet:?xt=urn:btih:4EE5E9582ACD0B0603ACE624606629BB10986999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Elena Maque - Feel Again (2021) [AAC|~344 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:CE5589A0F6B3EE9102963FA3A3112CE955528396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ VA - Piano Moods Collection, Vol. 2 (2020) [AAC|~264 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:2B52045DBD52DE23C9AD7B8B31E0819BDFA6E5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ AText ускоряет вашу запись, заменяя сокращени�
 ```bash
 magnet:?xt=urn:btih:D7F4091D38DB16308F3E5B0593015AA549656AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - Aimée Sol presents Lounge Attitudes, Vol. 1 (2021) [AAC|~321 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:F26CFC9CCA8702EF90309F88D68ED240A9846602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

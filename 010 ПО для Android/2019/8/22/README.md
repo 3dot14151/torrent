@@ -19,8 +19,7 @@ RAR для Android компании RARLAB способен создавать R
 ```bash
 magnet:?xt=urn:btih:4390935C048EB391A7289DA533218FC50484D6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

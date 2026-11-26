@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F37996993F34C154442BA869E2D6FA6F8327E19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mike Silva, Blayke Rose, Ник Принсип, Nick NavarroПеревод: Мн
 ```bash
 magnet:?xt=urn:btih:A6CBE655EC97ADD1611639296E0BAB3E4F2008A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

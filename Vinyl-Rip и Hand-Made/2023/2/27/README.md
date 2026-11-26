@@ -22,8 +22,7 @@ Mist Of Misery - шведская симфоник-блэк-метал груп�
 ```bash
 magnet:?xt=urn:btih:B71D38FAF446F5C82C1CA9DCCF90A8F7B38A8E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

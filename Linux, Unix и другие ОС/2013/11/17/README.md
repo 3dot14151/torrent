@@ -21,8 +21,7 @@ OpenMandriva 2013.0 RC2 [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:D02BA7D81CF3164EDA64864725B0CCF383F3401E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kwheezy 1.4 (Debian + KDE) [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:58330CE7A2B45AD9687974E38D13CBC5AC58233F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

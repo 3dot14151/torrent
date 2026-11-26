@@ -22,8 +22,7 @@ Bluetruth - Too Much (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BF54F064963FC90CB33162015C4EB0F410C133A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cryonic Temple - Blood, Guts & Glory (2003) [FLAC|Lossless|image + .cue] <Power 
 ```bash
 magnet:?xt=urn:btih:0C44DFA9B9C8BF5B8035C8051EC49568D8CE21A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Rock Morning Mixtape 2022 Explicit [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:14FA0143DEDD35070246F8F5950B3E351ABA28EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

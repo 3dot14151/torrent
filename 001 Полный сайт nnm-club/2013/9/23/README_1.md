@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:82919271E9854752919AB334265E98941089DC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Ablaze My Sorrow - Anger, Hate and Fury (2002) [ALAC|Lossless]<Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:0DCBF5DBCD68076416999B82ADE0C619C5E47FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Laszlo - Mr Sunshine (2010) [MP3|320 кб/с]<Experimental, Electronic>
 ```bash
 magnet:?xt=urn:btih:3F61E9BC81C86F0E6F2929F96E8E9213FB7A9A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ ZZ Top - Tejas (1976) SHM-CD /2013, Warner Music/ [FLAC|Lossless]<Blues Rock, Ha
 ```bash
 magnet:?xt=urn:btih:F9983EAB343EF899079E5B0988651186460888CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Ablaze My Sorrow - If Emotions Still Burn (1996) [ALAC|Lossless]<Melodic Death M
 ```bash
 magnet:?xt=urn:btih:ED3352EF34141C82D3822BE7B1C9FD43D01B8325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Arch Enemy - Black Earth (1996) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:D96BFBB446662B2F3BEFD7687DAEF2A3B1D9BA43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61CC2ACCCA323318F3CE6E7D9152AB307944B28F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Jethro Tull - A Little Light Music (1992) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Art
 ```bash
 magnet:?xt=urn:btih:632D1C171A52494FB43AF040D13C9AC3BFFFC059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3D924F6CB18FA3AD28D126EAD4110428AEAB3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CB61BCA12A05D5458403D8F5DE72F801161F06C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4520EF09E40DE02538E0E577BD78901885430B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6547D2294B1270E85E2D24728E14D19418428554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ B5.Nuit De Folie :: 04:16Жанр: Europop, Synth-pop, DiscoФормат: Vinyl,
 ```bash
 magnet:?xt=urn:btih:78229C7F67D6DBE00A331C39A523F5E652FC4432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ UFO - Lights Out (1977) /1989, TOSHIBA-EMI/ [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4C56BC98AEE205B80987AC5EBA994B360CA45D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4672612055DE89E43C57F05EF61C989CC3D4DAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:815C3B2B46D496B415CA44F306FB8BF2546E7789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ VA - 100 Dance Club Compilation Edition (2013) [MP3|197-320 кб/с]<Vocal, Hand
 ```bash
 magnet:?xt=urn:btih:1E6F927B4F1E91BEBDE4A31AAB0D1CC81AC6CD0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ Arch Enemy - Stigmata (1998) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:1314041738AC04CF5B83D2289FB1E66F65155A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:828D90442121AE415006DE29053FF9A295CF3E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ SUMo просканирует вашу систему и выведет полн
 ```bash
 magnet:?xt=urn:btih:807AE2C5827BEDC51CC6D90C51F3B6F73EB28EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (22.09.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:5D0E351F126754DCDBC660B054F559F8699F9605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ B5.C Sample Mix :: 04:05Жанр: New BeatФормат: Vinyl, LP, AlbumПрод
 ```bash
 magnet:?xt=urn:btih:9B2973242749F45F8B199E84E7DDEAB667BEA99A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ Windows, по умолчанию, позволяет программам пол
 ```bash
 magnet:?xt=urn:btih:301E480C78AB5502B04E2FD6BD9DB34DC28AAAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ VA - ЕвроХит Топ 40 (21.09.13) [MP3|~245 кб/с (V0)]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:ABE03CB4341D583A422E6FD08C014BF2BF236C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ In Flames - Whoracle (1997) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:53CFCA95BC8D22E6BCDBD7E42CEE54B93A9A75F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ At the Gates - Slaughter of the Soul (1995) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2CD01FFEE3DBE5D5D79465B201F10044399E347A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

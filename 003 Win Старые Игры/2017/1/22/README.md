@@ -19,8 +19,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:764C7D0886DFF76443568F433E1C36EF90CCA4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

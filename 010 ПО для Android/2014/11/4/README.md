@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B0C5D9A17D8A3CA2461CF160E33336E0C5CFAD92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Radioactivity Counter - приложение измеряющее уровень
 ```bash
 magnet:?xt=urn:btih:0EF8FFF15ABF1BB60ED79FBB24201DFC3258D2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

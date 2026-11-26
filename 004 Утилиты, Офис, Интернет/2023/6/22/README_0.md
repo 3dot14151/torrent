@@ -19,8 +19,7 @@ Epubor Ultimate 3.0.15.425 [En]
 ```bash
 magnet:?xt=urn:btih:1E26EB5DFBD658A94AAC98507738DDE542D2DC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

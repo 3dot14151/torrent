@@ -27,8 +27,7 @@ Ferry Corsten - Once Upon A Night Vol. 4 (2013) [MP3|256 кб/с]<Trance, Progre
 ```bash
 magnet:?xt=urn:btih:48C6829A93B1D7F93C25EDA66602938E17CC8E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - The House Phenomena Vol.1-3 (50 Sexy Tracks) (2013) [MP3|320 кб/с]<Deep 
 ```bash
 magnet:?xt=urn:btih:6473792B1C90AEA57CA14C573886BE9050F449FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - 100 Клубных Хитов 13 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:985E6EC23C2729E320B658577B3A77D59DAFFBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ RoboJase - робот-комик, который добивается успех
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35F8996C2F227635F066F93160E4F82D49915765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A711633A16EDC61A2954E9D8AADE1F98A146544A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ VA - Русские Новинки Vol.132 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:01C35B0840B282651423E1444A1A0BB0D64AF004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F87E3483D7931034F55832F62FF812AE51E1EB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BBA3A42F169D686C05901F95EED9CD098EDD574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44036CD3EC05A0862DEA4A88BA93380654585457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ VA - Популярный Русский Музыкайф (2013) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:416A44605A3E0C6A7AC0CC9BC00D3D659A43CF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Eguana - Paraequilibrium (2013) [MP3|320 кб/с]<Ambient>
 ```bash
 magnet:?xt=urn:btih:FD5C58E9CAC7467699AF8A0D267ECDB0440AB351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ VA - Жаркая драйвовая туса года (2013) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:126120F230F814EBD50FFC0983E2109A35B7FB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ VA - Balance 024 (Mixed by Danny Howells) (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:8228FFD032C6DB85E0AA6D93ECAE5DBD8F37441B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ VA - Our World (Chill Acoustic & Vocal Mix) (2013) [MP3|320 кб/с]<Chillout, L
 ```bash
 magnet:?xt=urn:btih:381FD0C7A6FA10BDD8C3B6EF04D0A59FC86F1CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BEDD17D165392150FD54693AFBEEE1B6EFF84E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:49A93E96DC478C798ABEA6E059B7EEC809094BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39E0EDF6CCF1356DAB4B3711CBDBB35E4C7A31BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ VA - Trance World Vol 17 (Mixed By Heatbeat) (2013) [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:063FE0C99A2F92EC20D797A160C7BE89CB700492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EF1B007665ED9FBD930C9B70B4CB97E70B57311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ VA - Rare Country Blues: Vol. 01-04 (1993-1999) [MP3|320 кб/с]<Blues, Country
 ```bash
 magnet:?xt=urn:btih:D4DD831344776E761D1BC03AA6954A287F454BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ VA - Disco Radio: Compilation 4.0 (2013) [MP3|~245 кб/с (V0)]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:70E253B75E5BC6EFB58822AFD5895B2EF80E6E0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ ForkLift это простой и в тоже время функциональ�
 ```bash
 magnet:?xt=urn:btih:AA0D35EFD4C3E9DC5C707D75F82C8A33E29DF053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ VA - The Music Is You - A Tribute To John Denver (2013) [FLAC|Lossless]<Country,
 ```bash
 magnet:?xt=urn:btih:D2DD25C1C94791918FA0E92AE196FAAA3475B1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD1D4BFF3A8FED831492337FCDDD9F066C3722FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ VA - 100ка жарких хитов #7 (2013) [MP3|256 кб/с]<Pop, dance>
 ```bash
 magnet:?xt=urn:btih:05714DC706820CDED66EEBD9B0581322C36CD066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Arma III (3) (2013) [Ru/Multi] (2.22.153995/dlc) Repack FitGirl [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:3D3F7130270AD8D627D586E555E298AF1BCEF117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resonance: A Plague Tale Legacy (2026) [Ru/Multi] (1.2.0.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB011466D7D2755D39C9F0D71DC88AC7C12A2411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Palm Sugar: A Village Story (2026) [Ru/Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:A78F1A5682AEEF0C4B609A520029597805AC655A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ STAR WARS Zero Company (2026) [Ru/Multi] (Build 24874058/dlc) Repack seleZen [De
 ```bash
 magnet:?xt=urn:btih:C77523F8D07B1DD4A31C20AB2BDDC731B9241813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Resonance: A Plague Tale Legacy (2026) [Ru/Multi] (1.2.0.0/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:8E605E0E5655F90E05EAFA0B958CFA7504E66386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Enter the Chronosphere - это рогалик-шутер, сочетающий 
 ```bash
 magnet:?xt=urn:btih:2CAA89A9ECC102CBEC7F54148C2DAA3512778715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ STAR WARS Zero Company (2026) [Ru/Multi] (Build 24874058/dlc) Repack FitGirl [De
 ```bash
 magnet:?xt=urn:btih:335A7C28327033623E3CCAEFCCFA66CA7CDE41CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Wild Story: Primal Secrets (2026) [Multi] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:34E613A16B8D54032E1EBECA8063FE0646ACECF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Counter-Strike: Source v34 (2004) [Ru/En] (1.0.0.34/4044) Repack VALVE MONITOR
 ```bash
 magnet:?xt=urn:btih:F6449AAF35979DE063D6BA9CEE1A74BA42A41FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Bonereader (2026) [Ru/Muti] (0.0.9.5) License GOG
 ```bash
 magnet:?xt=urn:btih:711879C7FC6F0A8801E002CA08AC82AB20469CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

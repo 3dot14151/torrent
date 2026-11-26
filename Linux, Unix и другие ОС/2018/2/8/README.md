@@ -19,8 +19,7 @@ Parrot Security OS предназначен для пентестинга (те�
 ```bash
 magnet:?xt=urn:btih:49FF4F5B2053C85D0422FD9B2D874D432060DC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

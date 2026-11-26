@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E14B3B7B74619535AAEC3E3DC8CEACD3877670D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Billy Thorpe & The Aztecs - The Very Best Of Billy Thorpe & The Aztecs (1994) [F
 ```bash
 magnet:?xt=urn:btih:EC0C734DC103E4E2F894F91879193DD57B9068E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

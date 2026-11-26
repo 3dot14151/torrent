@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:44C147F39FCF74478D46E0F27C7E2659924BCF11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Shaman's Harvest - Smokin' Hearts & Broken Guns (2014) [MP3|320 кб/с]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:513DB7F54A743D346FB2EFC777EE51B607FF766D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Deepshader & Nazca - Ashes From The Sky (2014) [FLAC|Lossless|WEB-DL]<Ambient, D
 ```bash
 magnet:?xt=urn:btih:5523F51FC523B1AAC61AA84B786AD7E6D9DD578D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Whispered Secrets 3: Into the Wind (2014) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:EB1B6E850A500419054C5D5D6C2B22ECFA361947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Weezer - Everything Will Be Alright In the End (2014) [FLAC|Lossless]<Rock, Alte
 ```bash
 magnet:?xt=urn:btih:52C006C7BF57EBFF1EC2B6F53E1AD7C014E30791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6759089D0BA60F8E4FA4955C75DDFD2C06A54AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1CB1EF771DEC96FCE1A4412C5E4B2841601B504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Tony Bennett - All Time Greatest Hits (2011) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:1D6BCC5F7C2504580DFE51765160A8883F8178E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ Firefox отличается стабильностью и безопаснос�
 ```bash
 magnet:?xt=urn:btih:2E1F902C39DF6395E9D57A4C139DDB89CC715719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Display Driver Uninstaller - утилита для полного удалени
 ```bash
 magnet:?xt=urn:btih:D44A294F8186E5AAAA5592A92F0B7ED44E54A48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ Siddhartha Barnhoorn - Antichamber (2013) [FLAC|Lossless]<orchestral>
 ```bash
 magnet:?xt=urn:btih:19865A9A03A1A6AD084F34EDBB5CC3989E45CAA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88ED7BE8AAFF7DA4688F30CEF3305A481B4697B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA0A755C17AA76F0BC3287A9C8EA8B69C1B7DB2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ Bryan Adams - Tracks Of My Years (2014) Deluxe Edition [FLAC|Lossless|WEB-DL]<Ro
 ```bash
 magnet:?xt=urn:btih:6ED53A7F2DAF092DF2A3E9EA86FE01ADDE92E019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:043D2979AC2D405CE1E9E36116C98B9B2DFA39F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:442015B3A66E10727C3CBAF748B43C1C1589922E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ Prince - Art Official Age (2014) [MP3|320 кб/с]<Funk>
 ```bash
 magnet:?xt=urn:btih:458EB704363E1599162D0DF5B387C1E7C68294CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ Dark Realm: Queen of Flames (2014) [En] Unofficial [Collector's Edition / Кол
 ```bash
 magnet:?xt=urn:btih:5CC0D04CE0CDDB189AB3BC647F4F9A244C2D3828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +542,7 @@ Yellowcard - Lift A Sail (2014) [MP3|320 кб/с]<Pop Punk / Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:B6C7D5B075C92E0D789510B339627E3F376B2DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:146C0CBB58937A08DB1605C62F9E8ED1DD7908F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:469E75304415F83EBFD54AEF0C1CB7D3F4312204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1E85916CFD727AE9262976EF46F7A7DCB90409F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C17D9D3D2F4A219AE6A38F5A5233056E32E22F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDADB9AA346B5D4AE836281A286329511C67519A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E948BDD1381476DE617832678B324A72C5BBB03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +727,7 @@ Mark Mothersbaugh & VA - Мачо и ботан / 21 Jump Street (Original Score
 ```bash
 magnet:?xt=urn:btih:A00A6F81D640894ED7A138C1E97BFBAC99F53200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

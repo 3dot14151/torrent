@@ -19,8 +19,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:D4DA08291001B9F654A7F3701A0C76BEE205C28C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ What the Fog (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EF95F68F53DD62F9B1C43A061FC48D34DA1C76CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Land Beneath Us - рогалик с пошаговой системой бо
 ```bash
 magnet:?xt=urn:btih:3EA3A602054911DE1C44A3F5CB24FF197C26FB66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Desolate Hope - это приключенческий квест, котор
 ```bash
 magnet:?xt=urn:btih:8E0016C00C4A77217B074A577702F462F5906B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Cursed Tape - инди-хоррор от первого лица с эффе
 ```bash
 magnet:?xt=urn:btih:D9590DC1EFE05B45C54C8C87A9A4072D9BAF5082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crow Country (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0146B3CC8E97E76EBF3051238DB1AC7C6FB86FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ eTide HDF: приложение приливов и виджет с график
 ```bash
 magnet:?xt=urn:btih:FC253653F748869578CF5B9388194C7BFA1E75D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28BC89F50C6B4909E37D0EBA0F86E4CAC293A66B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Compass Level & GPS 2.4.13 [Ru]
 ```bash
 magnet:?xt=urn:btih:6DA6DAA51B82239074A5ED690B5BB9B5CEA8F45C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Jimmy Barnes - My Criminal Records (2019) [FLAC|Lossless|image + .cue] <Classic 
 ```bash
 magnet:?xt=urn:btih:9DB81BC4493AF4A7BE11CF6D34DA6A1DF9606710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

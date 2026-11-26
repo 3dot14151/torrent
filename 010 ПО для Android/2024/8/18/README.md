@@ -19,8 +19,7 @@ PowerDirector – Video Editor v14.3.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:00FA5A17A8AF2A389F9E9249E4D83719F48072BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PDF Extra PDF Editor & Scanner v10.16.2608 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ECF72150C3D45B7B5AA8514F04AEE017619A8096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ADV Screen Recorder v4.13.1 Mod by Balatan [Multi]
 ```bash
 magnet:?xt=urn:btih:03837A864DD5F2F17FC306C8CCE6E67588E3C460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PictureThis - Plant Identification v4.3.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E03C69F205DB98E54CE964597BF1F24E43261BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:98E61AA2D4E7B089920FE0D23E36122E16C3C64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

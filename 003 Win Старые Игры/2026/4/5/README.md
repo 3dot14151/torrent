@@ -19,8 +19,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 ```bash
 magnet:?xt=urn:btih:9974758567EF7B09C031A4C2177BC085A13CE9FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 ```bash
 magnet:?xt=urn:btih:A2F650354FFDB0064F965F20702CEA421EDE53AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

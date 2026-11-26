@@ -22,8 +22,7 @@ Sunrise - Absolute Clarity (X Anniversary Edition) (2026) [MP3|320 Kbps] <Melodi
 ```bash
 magnet:?xt=urn:btih:75B52F21BE36D654E7B0B15F9BB26EAD5670D465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blitz Union - Evolution (2026) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:E91DFFE9E87612C044CBBE7A501D7717AF5206F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Murdered - The Brutal Gore Grotesque (2025) [FLAC|Lossless|image + .cue] <Brutal
 ```bash
 magnet:?xt=urn:btih:3C17734B2C788A0B19A2116522AF34AD6526ABAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89F52DA0170F815E2D94299F709365A45B53CED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Megadeth - Megadeth (2026) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:824D8D38C806E0D7BBDE888154063CD3AB24E0C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Beyond The Black - Break The Silence (ltd. Digipak + Bonustracks) (2026) [MP3|32
 ```bash
 magnet:?xt=urn:btih:425BC6FB37914833E9D7CBBFB0F7D6BBC9F2D779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

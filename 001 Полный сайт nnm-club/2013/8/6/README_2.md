@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8C90E945D6A07FAD7C2FD1C468114099C0A89DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Pop & Wave Presents 3 from 1 Wave (2012) [FLAC|Lossless|WEB-DL]<Pop, Synth 
 ```bash
 magnet:?xt=urn:btih:3C17261BD630E76FF26DB77AB9F70718634E5DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Attila - Break Shit (Uncensored) (2013) WEBRip [H.264/720р]
 ```bash
 magnet:?xt=urn:btih:E748E604234D17C35DE509DAAFDD39FBC372CC12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - Pop & Wave Presents 3 from 1 Pop Ladies (2012) [FLAC|Lossless|WEB-DL]<Pop, 
 ```bash
 magnet:?xt=urn:btih:B02B887722AD091FEE83E60A75C1D5B0EB7001F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:7442272383DAE981517CC42CB042DB48E146E46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6352AB3AAC61C179D9D2E98C3EC24AB75A323051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ VA - Pop & Wave Presents 3 from 1 Pop Heroes (2012) [FLAC|Lossless|WEB-DL]<Pop, 
 ```bash
 magnet:?xt=urn:btih:E145CBA9470EF430F454ACB0EA34CEA3E94EEECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ Evil Masquerade - 5 альбомов (2004-2012) [MP3|320 кб/с]<Theatrical Me
 ```bash
 magnet:?xt=urn:btih:4F775F40C6378E85803D43492CAB9B7FECB119A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ Blank & Jones Relax - A Decade 2003-2013 Remixed & Mixed (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:C25FB574ECEDB3C80D94169729BD33778AF78A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ VA - Турбомодный Русский Хит (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:F4A3EF069FB9A0E1DC7520FCA9B28A65FB33684E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ Ashampoo Movie Studio - cоздание и редактирование дома
 ```bash
 magnet:?xt=urn:btih:E58EBA1EF0BB5DD1B00B5935257B6E0A1EFC8BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ Summer Heart - Come With Me (Uncensored) (2013) WEBRip [H.264/720р]
 ```bash
 magnet:?xt=urn:btih:EB0ECFD3225DD8A2D1BC4765685FA791DBE1BB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89D0700168C8F037BA360DA0FE9DC402EB949B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CE793348226D62EC39CF57FCA33E8E00CA7269E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ SystemTools Hyena 10.0c [En]
 ```bash
 magnet:?xt=urn:btih:C8EE084A9C8C5F58DE98437A6478F35676745A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ Victim Of Ritual (5:54)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EA21DA103BEF258DF497AC2839774D2E25B0C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66C59F237ECC741F386EFE3595F019C7FDC1D219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB7E68A8C5FA5C858BE82315AEE810BB45E111EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +603,7 @@ BBM (Jack Bruce, Ginger Baker, Gary Moore) - Around The Next Dream (1994) [FLAC|
 ```bash
 magnet:?xt=urn:btih:8543B1F645AC6A697129F4AC965F3D458F27E491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D7190C380DCEBD0EE989D48DEC7CC08231D6EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ Lingua Mortis Orchestra feat. Rage - LMO (2013) [MP3|320 кб/с]<Orchestral Met
 ```bash
 magnet:?xt=urn:btih:6A07F10CC7558E9517A1A057412641617BF58462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ VA - Танцы до Упаду! от DFM (2013) [MP3|256 кб/с]<Pop, Dance, �
 ```bash
 magnet:?xt=urn:btih:595F1B081C5ED61838F431374D5EAD0F9434ACE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA73D41EE669007D7B985C01C3B0B141E6211BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ B5. Let Me Take You Home Tonight [4:38]Жанр: Hard RockПродолжител
 ```bash
 magnet:?xt=urn:btih:132EB0FDD8BF2F4EA2B7E462222BD73A4F60E202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

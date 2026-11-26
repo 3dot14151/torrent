@@ -19,8 +19,7 @@ Shadow of Death: Dark Knight - Stickman Fighting - стильный слэшер
 ```bash
 magnet:?xt=urn:btih:688017625F72B09A42C45F6B2DD082565D40234F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Robot Warfare — увлекательный многопользователь�
 ```bash
 magnet:?xt=urn:btih:B9B9030FB515CD510AF67E1D1064E2D9F5588C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAECFA50D6FA954C65281FCFAB3ED1ED93BED86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14FF86D958603267A220F9BBEB3679710712DC07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Machinarium - интересный квест на андроид, которы�
 ```bash
 magnet:?xt=urn:btih:BA7B0FCC65A7ED309383A21C32A3CE801162B5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

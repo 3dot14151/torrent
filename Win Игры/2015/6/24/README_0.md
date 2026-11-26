@@ -19,8 +19,7 @@ Hyperdimension Neptunia Re;Birth1 (2015) [En/Ru] (4.3.0b10.18.10) Repack R.G. Ga
 ```bash
 magnet:?xt=urn:btih:369301C3F6600A392882B3F3E5457A4585E7AC8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

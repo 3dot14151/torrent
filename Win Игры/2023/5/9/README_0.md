@@ -19,8 +19,7 @@ Arto - это яркий приключенческий экшен с элеме
 ```bash
 magnet:?xt=urn:btih:CBFDB4F468D3B92FFB479E17095884600C62ACA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Joyride - это увлекательная гоночная аркада с у�
 ```bash
 magnet:?xt=urn:btih:3259F24EDBB849FEE9FEF92CB2C0C04B3C69E126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ City of Beats (2023) [Multi] (20230427) License GOG
 ```bash
 magnet:?xt=urn:btih:FBCD1D38A0C9F7DED9D82B821746E069BBFB46E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Curse of the Dead Gods (2021) [Ru/Multi] (1.24.4.6b) License GOG
 ```bash
 magnet:?xt=urn:btih:E9209032A009F88E56622747771BA8E51AAEF96F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 ```bash
 magnet:?xt=urn:btih:3B984D8A43824CC8B4B896921155E762DE07889E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

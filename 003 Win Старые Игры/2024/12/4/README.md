@@ -19,8 +19,7 @@ The Hell 3 - это тотальная модификация Diablo: HellFire, 
 ```bash
 magnet:?xt=urn:btih:3414D2B1B38DA72B80ED0C13D2A9A8C4207CBF5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

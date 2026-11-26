@@ -22,8 +22,7 @@ Electric Light Orchestra - Time (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<
 ```bash
 magnet:?xt=urn:btih:1E9F84897677346A07E5D1305DA4DE691DA79362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Arizmenda - Despairs Depths Descended (2016) [FLAC|Lossless|tracks + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:BB18BD3883CC986F83F5290048837701A6D8A918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ SAOR - Guardians (2016) [FLAC|Lossless|image + .cue] <Atmospheric Folk, Black Me
 ```bash
 magnet:?xt=urn:btih:C1D775209EF455A1E2709D22B1C93F69067D2B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Resistor - Underground (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Crossover Pr
 ```bash
 magnet:?xt=urn:btih:2187183363EDCCD1DC22DEA1E963F6200EDFA246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Platonick Dive - Overflow (2015) [MP3|320 Kbps] <Post Rock>
 ```bash
 magnet:?xt=urn:btih:495D0C8F645DD13F3D20EB981BE1DEC49BEBCF9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Concerto Moon - Rise From Ashes (2008) Japanese Ed. [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:EA28DA27B76E9C8294A63A5F817BEF60F6989E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ocean Of Sin - Escape From Heaven/Return To Hell (2016) [MP3|320 Kbps] <Melodic 
 ```bash
 magnet:?xt=urn:btih:0AF4A097AF3A19F4CC5F111716D447F7673B3036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Breed 77 - Acoustic Rarities (2015) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1489A828F32313E5D5B22F8305CF6A7EE5A4DF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:614650A22EE34C361990DFB007EF3153EBBCC777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36CF48B248EBD3C5429B7981CFBA4F824ABD18BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Powerwolf - Blessed & Possessed (2017) 2CD, Tour Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:0140E2072F812EA5173EC10151D7F5FF28089F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

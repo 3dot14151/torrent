@@ -19,8 +19,7 @@ Jessica's BowWow Bistro (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:85689F160D1DC391C7596B22571ADAEB62E70B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Village Mage: Spellbinder / Алхимия. Уроки зельеварен�
 ```bash
 magnet:?xt=urn:btih:DBDB938A1F7B811FAAF553D3F6249BAF62B85A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AirStrike 2: Gulf Thunder / Авианалет 3 (P) [Ru] 2009
 ```bash
 magnet:?xt=urn:btih:0AF20E38FE7DC8F4E27A65E0DD8728D0E4ED2EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

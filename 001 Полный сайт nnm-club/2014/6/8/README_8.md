@@ -27,8 +27,7 @@ VA - Liquidmotions Vol. 1-5 (2012-2013) [MP3|320 кб/с]<Liquid Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:AB64FC3CEA5B6D2DAFBAE60C578848216310B8DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Летние Клубные новинки (2014) [MP3|320 кб/с]<Dance, 
 ```bash
 magnet:?xt=urn:btih:61B1918A986B90BFE98571B1BD2A3D467A5DAA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - 50 Summer Hits 2014 (2014) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F6A34F4D9ADC1C0E53B1A9FE358B57D1F9366899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Dance & Club Summer Edition 2014 (2014) [MP3|256 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:3ECCE8D34F04CC002D9D1F6C649D556786E6AB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ VA  - 100 Хитов на выходной (2014) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:0550B4D7D6892366A478567C25795E146B5A836D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ VA - Жажда скорости. Танцевальный летний ритм
 ```bash
 magnet:?xt=urn:btih:FDB597702F1457FADA7644F8664AD4ADECFBE59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0CF2005FA60B7711CE3DC1206B566AA6290709A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ VA - Жажда Скорости От Radio Record (2014) [MP3|320 кб/с]<Danc
 ```bash
 magnet:?xt=urn:btih:CFD17F1AF468F8BF63EFF02381AD3C267A17C28B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ VA - My Favourite Hits of 1983 (10CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth
 ```bash
 magnet:?xt=urn:btih:8F5304B882C48F6222346A99C5E93AA444C11567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ VA - Авто Звук. Музыка для медленной езды (2014) [
 ```bash
 magnet:?xt=urn:btih:5C4BE9B612A57E974BAB7CD1E05E5F665CBB86C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ Paragon Hard Disk Manager - многофункциональное и удобн
 ```bash
 magnet:?xt=urn:btih:652EBE4B2FEE1D7DE511566997755C09F799F264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ VA - Resident Advisor - Top 50 for May (2014) [MP3|320 кб/с]<Deep House, Tech
 ```bash
 magnet:?xt=urn:btih:CC56DA8E1D4AE9C5955844573F66D92FBFAB3FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +410,7 @@ VA - Navigation In The Day Off (2014) [MP3|259-320 кб/с]<House, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:215C57F4BE3C35167DCEDED556580BBAEE77CB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +441,7 @@ Fennesz - Becs (Bécs) (2014) [FLAC|Lossless]<Ambient, Experimental>
 ```bash
 magnet:?xt=urn:btih:BAAB2C27A2530FCEB9AAA7514CD3E47FA1654149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +469,7 @@ Acronis Disk Director 12 — это новая версия самого фун�
 ```bash
 magnet:?xt=urn:btih:0D257D8E28DD973B083E9713F7A6545E442D1800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +503,7 @@ New Age Style - Enigmatic 15 (2014) [MP3|320 кб/с]<New Age, Instrumental, Eni
 ```bash
 magnet:?xt=urn:btih:7CD03737D3367BB7CFFACE840CCA97C6F5BA52F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91BFE43D46DAB1F88ABB53A380DF6B6E89DC829D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

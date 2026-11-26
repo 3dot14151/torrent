@@ -27,8 +27,7 @@ Sid Meier's Civilization V
 ```bash
 magnet:?xt=urn:btih:920ED2FA2E44EDF03A897BD37BD7E0C6519C9188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

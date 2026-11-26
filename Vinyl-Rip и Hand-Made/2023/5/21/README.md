@@ -22,8 +22,7 @@ B2 III. Allegro Vivance(   Читать дальше...   )Жанр: Classical, 
 ```bash
 magnet:?xt=urn:btih:859C363F4EC2DFB100ACF6E5157A4D94890FAA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

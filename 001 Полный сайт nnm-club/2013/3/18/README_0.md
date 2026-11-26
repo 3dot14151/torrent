@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EA39B25A24F74DE6E791EEA6CB42D7F814021C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Doug Macleod - There's A Time (2013) [MP3|320 кб/с]<Acoustic Blues>
 ```bash
 magnet:?xt=urn:btih:D5594CE1B876BD1A2655BC68B22A0DE2241602D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ StylePix работает с основными форматами файлов:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B37373E8A68CCD1E6BAF7CDC86A61FD11462A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ VA - XXXL На100ящие Хиты. Зарубежный (2013) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:0FCD37A359D3530B9128A00E4507D568C7BCCC07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Charles Alexander, Matthew Saidku | Fundamentals of Electric Circuits, 3rd Editi
 ```bash
 magnet:?xt=urn:btih:AC9D8CF728077DD4621601D99FE213D0A6D71BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04DC8162DBAABF6C44EE217AEC113AA58F3FD844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ The Smooth Orhcestra - I Love Brasil (2012) [MP3|320 кб/с]<Instrumental, Lati
 ```bash
 magnet:?xt=urn:btih:59BB439B1C231AFC700EBF37CE4DDFEBB0D07CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ Sena Ehrhardt - All In (2013) [MP3|320 kbps]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:E3D6E201BE816B3B023BD3E70213041C7E9B8918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ Immigrantes - Скрытый Мотив (2013) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:5FC0E5156BC3DBA94184C957E0A7F102BE60279E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ Charles Alexander, Matthew Saidku | Fundamentals of Electric Circuits, 3rd Editi
 ```bash
 magnet:?xt=urn:btih:4248F6B0A8A42001500932782768DD14D686FBC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Gordon Giltrap and Oliver Wakeman - Ravens & Lullabies (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:67CE041A0D6513E217730EB01454D5A8C78B6A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:401549B61B57B5A16E3DA7C643630C8CCAF7654D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ VA - Erotik Wellness Lounge (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo
 ```bash
 magnet:?xt=urn:btih:016F851F0623A6ACF862B7C0DDC808A2D365DAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ VA - Свежий клубный хит Record. Зарубежная верси�
 ```bash
 magnet:?xt=urn:btih:C03A9476B9D3C0E9553FA358EF343B696AAAA9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A274B810DF7CD6FE1C52122D5D42A3C3CF128510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ Process Lasso Pro - небольшая утилита, позволяющая в
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:388CABF65E20F32AAA70541D8CEE944B0FB34D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB201DF35273F1AA5304B671E0BE53EA4CED7EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +636,7 @@ Antonio Carlos Jobim - 20th Century Masters - The Best of Antonio Carlos Jobim (
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ Big Bill Morganfield - Blues With A Mood (2013) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:582F235BED28D388B43C605D61CB511C3BAB3F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E59A568B61DB71767FA2589AFEB89DBCCAE95D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B230A4949CC70C7D243FB6758B0C35FC51305C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ King Misfit - Under Ancient Ground (2011) [FLAC|Lossless]<Prog/Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

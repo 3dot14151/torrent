@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:202D9CD0976055F111F6C96BC81A7BACA5D5CF36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Data Science (исследование данных) - одна из самых 
 ```bash
 magnet:?xt=urn:btih:D2880C26F72626E475BD3A9974771AA92607FEA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

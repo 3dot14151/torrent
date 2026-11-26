@@ -19,8 +19,7 @@ Midnight Castle (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:10341704B7A0F90E31C94BC7BA8CCD9E25B54CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enigmatis 2: The Mists of Ravenwood - продолжение увлекател�
 ```bash
 magnet:?xt=urn:btih:716FE0E01B3B3D92DB079D8974C47046D9430F1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cursery: The Crooked Man and the Crooked Cat / Проклятые: Скрюче�
 ```bash
 magnet:?xt=urn:btih:0B0532F5365AD11CA2E57C32957AD9A563B9AB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Dog Sled Saga - довольно необычная игра, которую с�
 ```bash
 magnet:?xt=urn:btih:64989721F2D756825C5286276C5270E87AE489C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ LEGO Star Wars Dilogy (2009-2011) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F2B3C88756F017BB71CB530CE7F819E82469044D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ DuckTales: Remastered - это красочный, нарисованный вр
 ```bash
 magnet:?xt=urn:btih:769CC6036F53182754DF447C59A0CB19DF4E97B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hello! Fashion Monthly (HFM) - ежемесячный журнал о моде �
 ```bash
 magnet:?xt=urn:btih:98667D38738165846315740C8626ACB5F73ECEE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

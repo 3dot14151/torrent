@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3FD37CA4BF76659FB6353C65C7022D51F7E61025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF355ABFAA997725278409C7DE4D656E0A459234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Filmic Pro - функциональное приложения для веден
 ```bash
 magnet:?xt=urn:btih:AABD04097695BD1CAF55A5CB926F7C9BF9FA9EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Reface v3.40.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:795E59316363C262384A88F6EA7132CF8CD0D3DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

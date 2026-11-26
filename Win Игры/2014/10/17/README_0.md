@@ -20,8 +20,7 @@ F1 2014 (2014) [Multi] (1.0.932792) License PROPHET
 ```bash
 magnet:?xt=urn:btih:1E1EF5B591D4E488C4CC918D644DF6D6DB304F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ F1 2014 (2014) [Multi] (1.0.0.0) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:55ED18816555C5457695E241B12F1E5B8175932B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (1.0) License [20th Anniversa
 ```bash
 magnet:?xt=urn:btih:1628536022EFCDEF3F2771F4F198C2662BF0C157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Legend of Grimrock 2 это классическая RPG с современны
 ```bash
 magnet:?xt=urn:btih:DA91AF0B0E1DD63C956A649B40B2ED7D7BED936C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Mark of the Ninja (2012) [Ru/Multi] (1.0) Repack R.G. Механики [Special 
 ```bash
 magnet:?xt=urn:btih:F6346EE4396C2B8A435D438661F3E0B3E102050B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

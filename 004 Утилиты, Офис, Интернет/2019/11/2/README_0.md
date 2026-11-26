@@ -19,8 +19,7 @@ Actual Multiple Monitors - полнофункциональное решение
 ```bash
 magnet:?xt=urn:btih:019FB39E645CD1C922E9D31A35B7CC585D273958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

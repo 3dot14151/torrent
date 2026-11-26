@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:76AF0634A07784F1EC7947AA2A1C73E603736FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nita Strauss - Controlled Chaos (2018) [MP3|320 Kbps] <Instrumental Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:ECD1B8F4151E088F68677CB966C15F9B670A3B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

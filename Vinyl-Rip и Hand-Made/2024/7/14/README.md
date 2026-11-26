@@ -19,8 +19,7 @@ Bay City Rollers - 2 Albums (1974, 1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:F94BA56AEF5B4162000C2EC96B2C4C926F984449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

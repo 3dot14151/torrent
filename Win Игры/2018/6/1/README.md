@@ -19,8 +19,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.2.0/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F7C7A36ECC6B0169C3A4A020AF2BDB5A17E23976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

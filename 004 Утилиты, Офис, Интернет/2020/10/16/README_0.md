@@ -20,8 +20,7 @@ FoneLab Screen Recorder - это программа, с помощью кото�
 ```bash
 magnet:?xt=urn:btih:350D57AB56095DF539ED7DE0A716442E52CD98C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Tipard Video Downloader - это профессиональный загрузч
 ```bash
 magnet:?xt=urn:btih:7D296E4AE83004403018523E72320157F29A9811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

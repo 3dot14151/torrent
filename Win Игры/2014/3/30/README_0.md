@@ -19,8 +19,7 @@ Dark Tales: Edgar Allan Poe's The Fall of the House of Usher / Темные Ис
 ```bash
 magnet:?xt=urn:btih:06B57F33489FF0116A6B8CA8239535DFC8ADDA56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Who ya gonna call?
 ```bash
 magnet:?xt=urn:btih:9EF61BA6572D6AA0196142B019C002DE531FB5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Warlock 2 — это пошаговая военная стратегия в ж�
 ```bash
 magnet:?xt=urn:btih:604E86D3307190022AA66D3E4AADCBA6BD1F8F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Sniper Elite Nazi Zombie Army 2 - сиквел спин-оффа в серии S
 ```bash
 magnet:?xt=urn:btih:97F906539CFB502090B44BDAA96B90A5E6C68AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Minecraft (от англ. Minecraft — букв. «Шахтёрское рем�
 ```bash
 magnet:?xt=urn:btih:269FFB46C997C8F1022B5E6ECAE70F039EB12732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/En] (upd1/4dlc) Repack R.G. Механ
 ```bash
 magnet:?xt=urn:btih:07CF3109F253DA6B3EB7FD3BFF3A3988E7E2E26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

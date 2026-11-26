@@ -19,8 +19,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) License
 ```bash
 magnet:?xt=urn:btih:D7804549CA4D0DE84E8861FE93B20E9839E57094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Love n Life: Lucky Teacher погружает вас в жизнь бывшег�
 ```bash
 magnet:?xt=urn:btih:1F277E9B4B6975B1AB1062BF32D2DFEEECA0C48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tavern Master - симулятор, в котором предстоит ста�
 ```bash
 magnet:?xt=urn:btih:91351AE19A3BCADEB2F582C471C30600BDC5BECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tin Can: Escape Pod Simulator (2022) [Ru/Multi] (1.0.0.7d) License GOG
 ```bash
 magnet:?xt=urn:btih:611CA3C1908233E83E8FEE88C2F44DE6C53D7C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Willie's Nightfall (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:ACFB47624BA9BBCA11D537F81C6C9B396CCDA65F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Janosik 2 – продолжение истории, начатой в перв�
 ```bash
 magnet:?xt=urn:btih:655CBF489656BE81EB879F7B1F35AF3FF2344EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Saints & Sinners - игра, не похожая ни на одну другую
 ```bash
 magnet:?xt=urn:btih:49CED4969626B4AFD4DC51E0098154352D6D94F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Detective Club: Missing in the Fog (2025) [Multi] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:DE48C6F8305B85A6A351C3DFAF8AF93A207E6500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

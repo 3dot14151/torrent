@@ -19,8 +19,7 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 ```bash
 magnet:?xt=urn:btih:1A58113549D98D6E31FB922A357EAA75348346EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Abandoned: Chestnut Lodge Asylum (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:A6B8F2A1C0E873280DF796495544E67A5BB2BF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Case Files 13: Ravenhearst Unlocked (2015) [En] Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:6795F2F106986DE612E3C501DB8E0BE2B45BAA4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Tales 8: Edgar Allen Poe's The Tell-tale Heart (2015) [En] Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:FF1B44FB690CFC4AAE32A8130F62658DD5CE1768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ashley Clark 2: The Secrets of the Ancient Temple / Эшли Кларк. Сек�
 ```bash
 magnet:?xt=urn:btih:DB20601BC5B575E62D402DCA63D1567CAC740B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark Asylum: Mystery Adventure / Загадки разума. Грани доз�
 ```bash
 magnet:?xt=urn:btih:1F348DF0897549B507A5796EB636785FE88BBA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rampage Knights - хардкорный 2D-экшен с великолепной
 ```bash
 magnet:?xt=urn:btih:91F3EA175C3A963F265E024C51023271C97C08CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Book of Unwritten Tales 2 - фэнтезийная история-игра, 
 ```bash
 magnet:?xt=urn:btih:73BA8F35E7A43D2FBF25BA4AFECF1E1C24F341BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

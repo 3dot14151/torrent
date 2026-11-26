@@ -19,8 +19,7 @@ The Solus Project , захватывающая история выживания
 ```bash
 magnet:?xt=urn:btih:F6A7541A8CF412D57DB48F00DD1876FDF84B779F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadwen, нервная игра о ремесле средневекового 
 ```bash
 magnet:?xt=urn:btih:EBC1829D37E1234C0D082B5BB75F3B289A198E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

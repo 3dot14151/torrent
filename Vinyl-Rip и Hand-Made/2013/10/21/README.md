@@ -27,8 +27,7 @@ B5. Another Record :: 04:27Жанр: Pop Rock, Prog RockФормат: Vinyl, LP,
 ```bash
 magnet:?xt=urn:btih:762EB880B9C8AF0BBFC1645F0586C5EFDF9774A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ B5. Мастер :: 04:01Жанр: Metal, Heavy MetalФормат: Vinyl, LP, Al
 ```bash
 magnet:?xt=urn:btih:AAA1AB1BBA823C79DD6B88672E0F7DCB1BB90678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ A8. Happiness Is A Warm Gun :: 02:42Жанр: Pop Rock, Psychedelic Rock, Rock &
 ```bash
 magnet:?xt=urn:btih:0422D5598FBD60CD08A6C16A57C19516D88AF4B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

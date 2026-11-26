@@ -19,8 +19,7 @@ Conqueror A.D. 1086 (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:91D0693EF8502909F11B19D791732507903DA2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ NecroBouncer (2022) [Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:0E1113D74068382CDF6E25A649D112A331A25182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Togges (2022) [Ru/Multi] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:396E6B86924A53DC524B3DCA6E20657752CC9581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ IXION (2022) [Ru/Multi] (1.0.0.3) Repack DjDI [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:CED4A6C5E0278275E3796EDDD410FAB1CDD5F4A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

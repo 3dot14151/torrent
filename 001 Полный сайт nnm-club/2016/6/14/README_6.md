@@ -18,8 +18,7 @@ Autodesk СПДС модуль – новое дополнение к проду
 ```bash
 magnet:?xt=urn:btih:954AD9F4D2FC53E11CE0624BDF6B26D7A046A313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D675DFF374A805029BFCB99367AA9F9685F4054B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F79965FB0EC5DAC1F7469E31CBEB0B5234B2FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DF5D4814F43B1E396292D08CE67467B1287037D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ macOS Sierra (версия 10.12) - тринадцатое по счету кр�
 ```bash
 magnet:?xt=urn:btih:F9FCBF6146F8E20C56E55E5A699647F383D5F7A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD443E564EE01DE623775966AE3A253FD9C9CD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4A314D37DDDEDDA5C3081EB918C6FD2A6731324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7A5F350F5A5884833BF5183BEB38585E21168BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Angry Birds в кино / Angry Birds (2016) TC [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:7BFC11DCA8C6547935BEF7265EC11915C4D3530E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ The Chronicles of Riddick - научно-фантастический шутер
 ```bash
 magnet:?xt=urn:btih:7E7B828951371EF3421F318FEEB0F105CA456A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Ori and the Blind Forest: Definitive Edition (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:96C17054306ACF5D8B17D721DC6D418C298504D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Homeworld Remastered Collection, переиздание классической
 ```bash
 magnet:?xt=urn:btih:E0EDA965AAADA49F488B460F9D232DE0DCC98CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Metro: Last Light Redux – самая лучшая и полная версия
 ```bash
 magnet:?xt=urn:btih:686E23F06D4B35EDA027B9EED5FE291F7E4B8B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Metro 2033 Redux – самая полная и лучшая версия кул
 ```bash
 magnet:?xt=urn:btih:5B0235A0274CE991D098088E31681EE728C4652F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

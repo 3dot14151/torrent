@@ -28,8 +28,7 @@ Demon`s Eye - The Stranger Within (2011) [MP3|320 kbps]<Нard rock>
 ```bash
 magnet:?xt=urn:btih:357C2CBBE0C08BEFD52B16F3576C15AE7506D801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Scar Symmetry - 5 альбомов (2005 - 2011) [MP3|320 kbps]<Melodic Death Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Compact Disc Club - Rock Ballads Forever 4CD Box Set (1998) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:F1D9655A49D00680D72AEC9E88BA1C5D2C63AA93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ CD1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Milla Jovovich - The Divine Comedy (1994) [MP3|320 kbps]<Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:8326A58A97C3FA06E5740AA9D30872369ABA4BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ David Bowie - Toy (2011) [MP3|256 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:3FD3230E723353AEF0C2291262604FBBC0892A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Haunted Manor 3: Painted Beauties (2014) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:A867ABE1374F754BB549749E4C506270583127C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dream Hills: Captured Magic / Дивногорье: Захваченная ма�
 ```bash
 magnet:?xt=urn:btih:7EF5308E790C68F638F0389D6140C092C6F57A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Watch Dogs Русификатор (2014) [ui/sub] (1.0) License
 ```bash
 magnet:?xt=urn:btih:943B6E8065756E03223CEC6EECFD23BE98DF2D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Watch Dogs Русификатор (2014) [ui/sub/dub] (1.0) License
 ```bash
 magnet:?xt=urn:btih:492933CA6040E3C0703794A68F90862088A58F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Ibb and Obb / ibb & obb (2014) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:8B7C6BBCA154E26E7224F8D3D928422E77634539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

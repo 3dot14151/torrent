@@ -19,8 +19,7 @@ Car Detailing Simulator (2022) [Ru/Multi] (1.000.27/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:BF4E9CCABDC7028A183670DD047F40C5B636CFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

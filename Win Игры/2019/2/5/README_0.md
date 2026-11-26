@@ -19,8 +19,7 @@ Dark Romance 7: The Monster Within (2017) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:C4C8C3BB706E730C4E3C4CFA67669BA364043598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Witchcraft: Pandora's Box (2017) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:62EAFB6096ADFA0EE82BB0C43CAA90515324972C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stormhill Mystery: Family Shadows / Тайна Штормхилла: Призр�
 ```bash
 magnet:?xt=urn:btih:108510FFD7A15FE28062599BEA275792BBCB4E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lineage 2 - корейская легенда, проверенная време
 ```bash
 magnet:?xt=urn:btih:945A163D651837D8AFA7BCF69875598C75258B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

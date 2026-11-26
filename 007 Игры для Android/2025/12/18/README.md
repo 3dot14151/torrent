@@ -19,8 +19,7 @@ Words of Wonders: Игра в слова v5.3.10 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3A63127538411B6CB4642AF421809B2458D919CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

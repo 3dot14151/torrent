@@ -19,8 +19,7 @@ Tavern Manager Simulator - это увлекательный процесс во
 ```bash
 magnet:?xt=urn:btih:010EC76BF9EFA2DA1812D656BABB384E69877E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Bard's Tale IV (4): Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Licen
 ```bash
 magnet:?xt=urn:btih:3C7803CA446A4B0E0908352E450DB694EAFB4F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack FitGirl [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:70AFC7D4119B5109EA8A1B3BDA8CC184496EC4BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Goat Simulator 3 - очередная абсолютно бестолковая 
 ```bash
 magnet:?xt=urn:btih:6040C4A27841CB5633DC70C5AA2FB4FD78CDC308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack seleZen [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:D96E45D4ABE5197FD6A2862CF58D9B4BE8075C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12.0/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:DE1E57B58F3027647E3F2080369F428C38C83864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Call of Duty: WWII достоверно покажет Вторую мирову
 ```bash
 magnet:?xt=urn:btih:93842C43DB202BB7772CF6AD224A10F823A9C85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4115A65A8AC640D69276C142AE497CF0C70A31F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Five Nights at Freddy's Anthology (2014-2016) [Ru/En] (1.132/1.033/1.032/1.1/1.1
 ```bash
 magnet:?xt=urn:btih:75B99D49FD1ACBE4220ABBEF1A565A9CE2B2CCF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:09FC9848018BD0F5898BBCB3CEE3512D4F2672A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.11.7) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:02435E0258F9B201F840393ACDB996B77989AACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

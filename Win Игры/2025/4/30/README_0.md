@@ -19,8 +19,7 @@ Post Trauma (2025) [Ru/Multi] (1.05.02) Repack Let'sРlay [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:7EB5535570F71F94FD3805A6E8E29167675F8DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ V Rising (2024) [Ru/Multi] (1.1.0.1-r91217-b18/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EE69B10E11EA7D830A62B115CAB889BF4CFEF331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F9FC5E886BFBA8F2B012F1F4D26121BD4F7B62FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2002C2B22792F7863EFCA32DD5EFAC10AEBC30FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ True Fear: Forsaken Souls Part 2 – продолжение атмосферно
 ```bash
 magnet:?xt=urn:btih:99550B93F8AA7B557C7D9C470641D97F21CDF259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608) Repack Let'sРlay [Part
 ```bash
 magnet:?xt=urn:btih:7F0690438E22D48196FFCE1EEE7F526470255998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

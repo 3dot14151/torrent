@@ -21,8 +21,7 @@ Jade Vandal - You Don’t Understand Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:41404E716F84457EFB7AF5B1287F627A2C2E83A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Inbar Fridman feat. Katia Toobool, Lior Ozeri & Yogev Gabay - Mercy (2025) [FLAC
 ```bash
 magnet:?xt=urn:btih:CE930ED941E2D19523C13787C95C8DF7558E41AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Гонка (17.08.2
 ```bash
 magnet:?xt=urn:btih:1EBB5601321C5F39B85BE123DE2734DC1F431AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

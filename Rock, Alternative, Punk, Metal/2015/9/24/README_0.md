@@ -22,8 +22,7 @@ Miasthenia - Supremacia Ancestral (2008) [FLAC|image +.cue]<Pagan Melodic Black 
 ```bash
 magnet:?xt=urn:btih:DF9BE7DE1244427643F33741E2E5A9EB1D72284E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Midwinter - Between Wisdom And Lunacy (2006) [FLAC|image +.cue]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:9710D2AB686D898C8018F4A720726FF34AF19CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bifrost - The Wildest Fire (1996) [APE|image +.cue]<Pagan / Thrash / Black Metal
 ```bash
 magnet:?xt=urn:btih:946CFD081E87A0A6BF84D015A120CB6DEC3CE027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Love Lies Bleeding - Clinamen (2006) [FLAC|image +.cue]<Atmospheric Black Metal 
 ```bash
 magnet:?xt=urn:btih:C44E2D9B3BCEF2E710A5283C2942896A4C613B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Love Lies Bleeding - S.I.N. (2001) [FLAC|image +.cue]<Atmospheric Black Metal / 
 ```bash
 magnet:?xt=urn:btih:76A07504570E053DAF7AF1E9DBE1E77B1D051EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Love Lies Bleeding - Behold My Vain Sacrifice (2000) [FLAC|image +.cue]<Atmosphe
 ```bash
 magnet:?xt=urn:btih:B3685AE62907B1CBF94B0986C982156637A9F124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Arcane Grail - Arya Marga (Ninefold Path to the Innocence) (2009) [FLAC|image+cu
 ```bash
 magnet:?xt=urn:btih:564705FE98B83A77987F1B3965E39F01E7B5948F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Peter Hammill - Nadir's Big Chance (1975) Remastered, Reissue /2006, Virgin, Cha
 ```bash
 magnet:?xt=urn:btih:F6AA14E75B003EF81A4DF3D0467D2A46C63EE36A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Exilia - Purity (2015) [MP3|320 кб/с]<Nu Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:55E3CD7F3AB7F560E1ABA36D69AE48258F50BFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Gloryhammer - Space 1992: Rise of the Chaos Wizards (2015) 2CD [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:35DB5BCBDB0F6352DF4F1736007B22A3D63D37CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Antimatter - 6 альбомов + компиляция (2001 - 2015) Discography
 ```bash
 magnet:?xt=urn:btih:54361D9B39AD230E514890E95F77ED7ADA00B730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - 100 Greatest Guitar Solos (2007) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:0F1DD2696D0E41E9D9F938910D4881C39AB660A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

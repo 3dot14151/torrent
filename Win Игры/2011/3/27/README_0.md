@@ -19,8 +19,7 @@ Youda Survivor 2 (P) [Multi6\+] 2011
 ```bash
 magnet:?xt=urn:btih:1FE16030062E84286FD2943192AEEBB826837A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Medal of Honor Коллекция [Ru/En] (RePack) 2002-2010 | R.G. Механи
 ```bash
 magnet:?xt=urn:btih:945E76BBC0DB0AA8E7944BBF528B4EA89712C4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

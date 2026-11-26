@@ -19,8 +19,7 @@ Dark Cases: The Blood Ruby Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:4EC31A6344D12767E1EEAF36C09D4C645D7AC0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Snow / Снежная история (2013) [Ru/En] (1.0) Unofficial Lelitz
 ```bash
 magnet:?xt=urn:btih:592E49268B19485C7F62B57DFD90649205035E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

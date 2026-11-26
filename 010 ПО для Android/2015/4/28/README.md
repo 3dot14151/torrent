@@ -21,8 +21,7 @@ PocketBook Reader 1.17.9671 [Ru]
 ```bash
 magnet:?xt=urn:btih:8FAB00BA45E9513A71E0956151F2B9807547B842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wings of War / Крылья Первой мировой (2004) [En] (1.2) Licens
 ```bash
 magnet:?xt=urn:btih:95CC36D82CF199C6655C0FD5D0BBAB9F9A8ABC9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wings of War / Крылья Первой мировой (2004) [Ru/En] (1.2) Rep
 ```bash
 magnet:?xt=urn:btih:7705CBC8A3E9FF38D74BCB2570E580BBF3D7FB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

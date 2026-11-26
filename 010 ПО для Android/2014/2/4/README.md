@@ -19,8 +19,7 @@ ID3Fixer поможет вам исправить искаженные ID3. Хо
 ```bash
 magnet:?xt=urn:btih:D5C6FDD0B7AAEC1E83DDD124FAAE86C26DBA3158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

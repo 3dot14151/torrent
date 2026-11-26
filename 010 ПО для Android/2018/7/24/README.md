@@ -19,8 +19,7 @@ Cloud Radio Pro - это онлайн радио для устройств по�
 ```bash
 magnet:?xt=urn:btih:A69ABE694F4E88E80631307247D3B59C62BD51CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A03617318740200B0DEF0321B7CF24152523A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

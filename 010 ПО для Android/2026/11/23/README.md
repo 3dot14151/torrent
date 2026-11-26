@@ -19,8 +19,7 @@ WhatsApp, это БЕСПЛАТНОЕ приложение для обмена �
 ```bash
 magnet:?xt=urn:btih:74A79504161DB579249ACC56C1138BF9E776B092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

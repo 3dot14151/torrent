@@ -27,8 +27,7 @@ Koko Taylor - Wang Dang Doddle (Remastered) (1994) [FLAC|Lossless]<Chicago Blues
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAE32529D2B908A5C4C36FE3B30F7F794DD6C248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ CD1:(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:B6DFFBF1691601472FB97B81792B02DDD593E9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ VA - Vocal Trance Sessions – Best Of 2011 (2011)
 ```bash
 magnet:?xt=urn:btih:4892F6F685311FD6FC109AC66E57E270F41DBA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Nelsen Adelard - Take Me Back (2004) [MP3|320 kbps]<Blues rock, Harmonica blues>
 ```bash
 magnet:?xt=urn:btih:0B656960A7F42743D4095085D5DB504ED51527C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Comodo BackUp - программа для создания бэкапов, с п
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ VA - Metal Dub Promo Mix - Mixed By Rezonanz (2011) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:373949162C294EBAA0EA34B77A93524A18462515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Ava Inferi - Blood Of Bacchus (2009) [FLAC|Lossless]<Gothic metal,Doom metal,Fem
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ VA - Радио Шансон: Хиты, то что надо!!! 3 (2011) [MP3|25
 ```bash
 magnet:?xt=urn:btih:8C7C4C2023120E510D5023D8AABC5D8DAE55783E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88CA556C5DF30C833F03AE0DA0836B3A95254F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ Digital-Tutors | Pipeline integration with Mudbox 2012 and Maya 2012 - Проц�
 ```bash
 magnet:?xt=urn:btih:E1B037DDE45F92B1DB3A9AEBD4353762AB7E6709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ Dee Dee Bridgewater - Midnight Sun (2011) [MP3|~220 kbps]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:9E792BBB1EB0CF2B308DEB4890F2D15D13EE1D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ VA - Progressive Unlima artMkiss 2011 (12.09.2011) [MP3|320 kbps]<Progressive Ho
 ```bash
 magnet:?xt=urn:btih:48503DACDBB4E408EA51C79BC935EE3ED125B06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CFD5A379C25D2243FED11FD5BC5E1F57AEBF3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ WinUtilities - Мощнейший системный набор для наст�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23FE141D1712F92D12D965808E9D241C46CE72C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ Richard Elliot - In The Zone (2011) [MP3|192 kbps]<Jazz, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:5EBF1D4E2BE66324C3C80A42FFBB8B8BCB9AB8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDE6A105C7CFB004F2A04E940E50FF8F5875A790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +578,7 @@ VA - Музыкальные Новинки Интернета Русский (20
 ```bash
 magnet:?xt=urn:btih:43EE151E40BE2B4F96FCDAF9A4A5999B5CB5D683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:372122D8F886BAAC6D0FA01C5A3A27D921F95359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +637,7 @@ Playboy — легендарный журнал для мужчин, основ�
 ```bash
 magnet:?xt=urn:btih:F3AB307EB9E13D12C6502504A3EEA9BC6E44C050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +662,7 @@ Club des Belugas - Live (2010) [FLAC|Lossless]<Nu Jazz, Downtempo, Lounge>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E5DFDB754930B67158611AE783058BBE5C89B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35D1CE6595FCC161AA1DA189C22C012CFCF9E1A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9284BE166B098031CE7D46AAC8C06DFA0D8A98C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

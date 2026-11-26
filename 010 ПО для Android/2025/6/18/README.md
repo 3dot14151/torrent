@@ -19,8 +19,7 @@ Human Anatomy Atlas v2026.00.019 [En]
 ```bash
 magnet:?xt=urn:btih:AA2ED7CE790C4CAF12CAE8186BF390214A0D840C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sipnetic – это бесплатный программный IP-телефо�
 ```bash
 magnet:?xt=urn:btih:A4B04528654C994447DD9206EDD69FA33F7E96EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2CC94F3525A9BAB9D41C7E04DEB969ACD706BD72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E40B2F3DD2588A478A357E39998CA98B0D7F6219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Adobe® Acrobat® XI Pro — это не просто популярный ко�
 ```bash
 magnet:?xt=urn:btih:104836A9E00F404074E6F0A05814AB6559FB5C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Army of Two: The Devil's Cartel [PS3] [PSN] [USA] [En] [3.40] [Cobra ODE / E3 OD
 ```bash
 magnet:?xt=urn:btih:457888D4D000D7B797F7B37B95A41CFFDCDBC988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:415D99B4389138748D46E12DA1796F06B8A3F275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Sanuel Family - это одна из наиболее удобных и разв
 ```bash
 magnet:?xt=urn:btih:3F4082CEF7D932E6E4108DAB5A8DE54EAECB008D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F32601A0E770B9E12AEC7FCEC27DB37172DB8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D83F888A906248E3E6D17361A86D55A761AACCD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Saints Row 4/IV (2013) [Ru/En] (1.0 Upd9/24dlc) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:4C22BB1D096E5C4F0972C563AE45270EA88C7CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ multiMAN 4.46.01 BASE (for BD-R and ODE) [Ru/Multi] [Cobra ODE / E3 ODE PRO] (20
 ```bash
 magnet:?xt=urn:btih:F33363D604F5ACB1774C7894A79F1A42A917C63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. / OreGairu / Как и ожи�
 ```bash
 magnet:?xt=urn:btih:4C0E49003E9F6EFFD2500658444D4A5B9D10EDE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ AllData 10.53 поможет в ремонте не только америка�
 ```bash
 magnet:?xt=urn:btih:399E4B4E32EB07C9705C7486ED66D52FE5378FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94355A8731424484C4659BF6A3B3886F3D3A0031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ The Banner Saga – эпическая ролевая игра, вдохновл
 ```bash
 magnet:?xt=urn:btih:A7B3CBD3EDFEC100C7C78615B2D0F1142AC70751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Need For Speed: Rivals (2013) [Ru] (1.3.0.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:374C84995BAA76BE9CAC5B9CFB8FEF94E77D4FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 ```bash
 magnet:?xt=urn:btih:180D3145C36A3DC17CB28549A6BAFAE41FCAD3E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ ArcheAge (2013) [Kr] (20140115) License Sky Adamants [Корея, Live-клие�
 ```bash
 magnet:?xt=urn:btih:E118F7B3D06678169760AC4D9C76DCEB3920C207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CC7AAC81EC8066BA3EC97A4E8B3FB59F13AF8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

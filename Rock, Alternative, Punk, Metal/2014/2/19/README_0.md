@@ -28,8 +28,7 @@ Adrenaline Mob - Men of Honor (2014) [MP3|320 кб/с]<Hard Rock/Groove Metal>
 ```bash
 magnet:?xt=urn:btih:D50AE44B019CF04456735CE0A677431C2668B3CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ The Black Keys - Brothers  (Deluxe Edition) (2010) [FLAC|Lossless]<Rock, Blues-R
 ```bash
 magnet:?xt=urn:btih:F80822A7020CAFBFD9D6DCE78B4390F1F1B25E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ CD1 - Spankox ReVersions
 ```bash
 magnet:?xt=urn:btih:2CB503EA71B48472EAF85354F2AC7FAF8BE112D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

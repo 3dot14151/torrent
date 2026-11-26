@@ -19,8 +19,7 @@ Vampire: The Masquerade - Reckoning of New York приглашает гейме�
 ```bash
 magnet:?xt=urn:btih:7089EF150267C51A089589CE7262F1C3E749B6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Satisfactory - это игра от первого лица в открытом 
 ```bash
 magnet:?xt=urn:btih:D70638380B6642F1D17AB96972D3AFCAAFB18DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KeepUp Survival – реалистичный симулятор выживани
 ```bash
 magnet:?xt=urn:btih:150EB96C9BCAF1AA4B5AA836AF5C37D98A0A64DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cat Quest III - продолжение популярной ролевой се�
 ```bash
 magnet:?xt=urn:btih:B28233B4D59E340088441A52D8007E72DFDEDDE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Diluvian Ultra - шутер от первого лица, выполненный
 ```bash
 magnet:?xt=urn:btih:EC7271E0096C94D4ECC50EC2ADB307BD44EE0F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sweet Transit – это градостроение, где все во мног
 ```bash
 magnet:?xt=urn:btih:52505B1CD670B6B8C42520A51538F4736F78247A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Terrorformer TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F261A228CCF21700369B7D73500E285F77B7B29C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Spiritfall - экшн-платформер с элементами рогали�
 ```bash
 magnet:?xt=urn:btih:DA0CC1CE9CD5D8BB6714FDE269FB8DC5A2F76CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Plank Builders (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:373AB47D1110CA8A72DE092A0CEB932DF94E7BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Nickelodeon All-Star Brawl 2 - продолжение оригинальной �
 ```bash
 magnet:?xt=urn:btih:F0C14939CCB3116C588E2692B7EFD9DEC5716462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Grocery Store Simulator ставит вас на место управляюще
 ```bash
 magnet:?xt=urn:btih:8007DE89EF375F18D3A8F136DDD08FF3A36F9CAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

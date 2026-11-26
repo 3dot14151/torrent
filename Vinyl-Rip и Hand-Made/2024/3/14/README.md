@@ -22,8 +22,7 @@ VA - С Новым годом! (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 ```bash
 magnet:?xt=urn:btih:F4C15F270DE47441CE6B5AD50BD71AE2EDF356D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Музыкальный телетайп 3 (1988) [FLAC 24/192|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:612496321138E34F83DE0AE2697AE70E6D990E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B11C51DAD9F45DE3786709B13545783C2345EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Перекати-поле. Песни на стихи Лидии Козло
 ```bash
 magnet:?xt=urn:btih:0084FDC69A0D983069AB6C45967536D1B1CFA753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A4 Unholy Black Metal(   Читать дальше...   )Жанр: Death Metal, 
 ```bash
 magnet:?xt=urn:btih:AE8043BDA0ABD65552E7AB1DB668F9A3830EA30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ I сторона
 ```bash
 magnet:?xt=urn:btih:3FB6A01139B3F3A95C8EEA49DB337232782F839C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

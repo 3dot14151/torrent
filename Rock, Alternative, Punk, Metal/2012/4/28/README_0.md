@@ -28,8 +28,7 @@ Winter In Eden - Echoes Of Betrayal (2012) [MP3|256 кб/с]<Symphonic/Gothic Me
 ```bash
 magnet:?xt=urn:btih:4E776C4CE8F58B975186A1A880304C266096B05D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Jack White (ex The White Stripes) - Blunderbuss (2012) [MP3|320kbps] <Alt. Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Europe - Bag Of Bones (2012) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ CD 1 - Alpha Noir:2012Жанр: Dark Metal,Gothic MetalПродолжитель�
 ```bash
 magnet:?xt=urn:btih:0AE8CFFAE2E60C104913C11F806ED314063A5EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Kerrang ! Kompilation Vol.1 - 20 Rock Monsters (2012) [MP3|320 кб/с]<Har
 ```bash
 magnet:?xt=urn:btih:0CFFDBCFBEE9BBCAAB009517B024A48A4AF74489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

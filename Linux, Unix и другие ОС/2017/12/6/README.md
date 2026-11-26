@@ -20,8 +20,7 @@ Sublime Text не является свободным или открытым п
 ```bash
 magnet:?xt=urn:btih:680640077438F66E9C8F838938E8BAF49D3C02DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

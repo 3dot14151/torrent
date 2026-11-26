@@ -28,8 +28,7 @@ Scars Of Life - What We Reflect (2005) [FLAC|Lossless]<Alternative Metal | Nu Me
 ```bash
 magnet:?xt=urn:btih:7C310267D6B74B52CE3D75A1F5E55DD781808573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Fight or Flight - A Life By Design? (Deluxe Edition) (2013) [FLAC|Lossless]<Alt.
 ```bash
 magnet:?xt=urn:btih:84E1B2FD885F027517466DC72D95684033027363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Witherscape - The Inheritance (2013) [FLAC|Lossless]<Progressive Metal/Melodic D
 ```bash
 magnet:?xt=urn:btih:D11101A595CF32E0D13104C552345D68756A0D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Sturm und Drang - Graduation Day (2012) Reissue 2013 Japanese Edition [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:FA9B1B05FD83FC88383B6EEF7E3472E687D4CF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Tony Carey's Planet P Project - Steeltown (2013) [FLAC|Lossless]<Progressive Roc
 ```bash
 magnet:?xt=urn:btih:AA89100F2B3490E46599EF6F7A782D8839C9CAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A5C93D0F36D7BDEBE73E2106AC724895A9A0906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Oomph! - Des Wahnsinns Fette Beute (Deluxe Edition) (2012) [FLAC|Lossless]<Indus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +274,7 @@ Paul Whaley - drumsЖанр: Hard Rock/Blues Rock/Acid Rock/Progressive RockПр
 ```bash
 magnet:?xt=urn:btih:8F329141711A9852B4F10A360162D15445A4D603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE17974C3BFA9BE38442D923A119838D2B7E038D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +342,7 @@ Rise Against - Endgame (Australia/New Zealand Edition) (2011) [FLAC|Lossless]<Pu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

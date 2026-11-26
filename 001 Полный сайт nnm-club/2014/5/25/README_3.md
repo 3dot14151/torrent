@@ -27,8 +27,7 @@ Symphony No. 1
 ```bash
 magnet:?xt=urn:btih:69BE4A2AB74967B815C2DDB342D7BDE803B56E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Wallpapers - Tilt-Shift (25.05.2014) [JPEG,PNG]
 ```bash
 magnet:?xt=urn:btih:7BAA34FC1A675B539952FCF402E2442515715BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16BA7E068FCBB577607AEE38089B6F5A51C2CD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Sera De | Уход за аквариумом в соответствии с пр
 ```bash
 magnet:?xt=urn:btih:12A0EA2E5E21CD0F3F099763180E0DC0CF599E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB1051A5B48D7B5BEC1E35B357BCAAE043FBB4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Foxes - Glorious (2014) Deluxe Version [FLAC|Lossless]<Pop, Electronic, DancePop
 ```bash
 magnet:?xt=urn:btih:4EA4D352ECA93EA27DEA73B324D6A74529006551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Ludwig van Beethoven: Concerto for Violin and Orchestra in D Major, Op. 61
 ```bash
 magnet:?xt=urn:btih:C4253429889AEF5C0FBE2A1515D4E3C2A5E207C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Cosmopolitan Психология - это глянцевое издание о 
 ```bash
 magnet:?xt=urn:btih:F5C4E356D6A0E0F1E636CDE6B8B13B7AE1565022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (25.05.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:73CDCFB6A3744304A2080675890C0F85CE0F207E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ Magnum - Escape From the Shadow Garden (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:169DF21427AB898C0C8AFF525CF21CD5B2AE78B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:598D3D968AD170F78CA59D96E81FB443C9005E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA573230DA3DD39F7574D37A2E0069C14F468719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0BDAD2198B1A5B82F236AB5F0330D0588E2C6B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Sera De | Великолепные растения Вашего аквариу�
 ```bash
 magnet:?xt=urn:btih:B10D07387311A7FCDD202507BE7C41FC4BAA453F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80A0EBA27716E6B8860A1D85D00681675FD7E23D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ Black Magic - Wizard’s Spell (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5B5E85EE10274E28D3648B6CB127DFAB59822B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +481,7 @@ Oasis - Definitely Maybe (2014) 20th Anniversary Special Edition / 3 CD [MP3|320
 ```bash
 magnet:?xt=urn:btih:ECD68EB9AD2808C5C8E8E77C000A2F8B9F49421B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ VA - Top 300 Kiss FM (2013) [MP3|320 кб/с] <Dance, Trance, Electro, Techno, H
 ```bash
 magnet:?xt=urn:btih:8386AEBC725EDDFAAE6268A8BB09627D0151962A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ Any Video Converter Free позволяет конвертировать фай�
 ```bash
 magnet:?xt=urn:btih:87F4B5281C61701C8B5F42DA9C6B9C0DD4506348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CCD7379CA6C51E930F61C926756706F4CE604FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B817AD3A25483D76964D7194C1A0AF5E2D87971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A5A79BEB6A074932A8CD49FB93AE5335912752F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +675,7 @@ Karneval (2013) / Карнавал [2013, TV, 13] BDrip 1080p Hi10p raw
 ```bash
 magnet:?xt=urn:btih:C1CBFE2BF21829D734208605F6A06AA41BCF5592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA76B6E955BA77D483CAD490229BAF367AD20BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ Michael Bolton - Ain't No Mountain High Enough (2014) [FLAC|Lossless]<Pop, R&B/S
 ```bash
 magnet:?xt=urn:btih:F74C6591B46653043CF4E9FF79A489F7B7E1EB45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

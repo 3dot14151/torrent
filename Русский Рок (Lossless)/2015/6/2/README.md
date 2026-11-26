@@ -22,8 +22,7 @@ BrainStorm - 7 Steps Of Fresh Air (2015) [FLAC|Lossless]<Brit-pop, pop-rock>
 ```bash
 magnet:?xt=urn:btih:8966A1C7036482BF51AB5F314E0ACAB4E2C62140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:561B0FBCE78B87D68A131E4BBC0693B2A7934AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

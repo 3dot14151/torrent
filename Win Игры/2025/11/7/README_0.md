@@ -19,8 +19,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:164128E204CEFE4B2C8839B0A8746858A948C2D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Second Sun (2025) [En] (1.0.5b) Repack Necros
 ```bash
 magnet:?xt=urn:btih:C99A68CB5D35018C1C29A15E930BF82E141972A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Secrets of Salem 2: The Phantom Cab / Секреты Салема 2: Призр�
 ```bash
 magnet:?xt=urn:btih:419AB5D7F59E5A8C9937543587DBBEF51A3604F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deltarune - это пошаговая ролевая игра от Тоби Фо
 ```bash
 magnet:?xt=urn:btih:DDE74123D282FE23182721E6A2489B688F32658B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Biped 2 – это продолжение увлекательной игры о
 ```bash
 magnet:?xt=urn:btih:19C8FFEA2530CB2F829829BD2E8141C22AE933B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.10) License GOG [Part 1]
 ```bash
 magnet:?xt=urn:btih:FC69C3F0FD4DC12F3BDAE0AD5DDB4D86857DAAB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Living Legends 13: Haunting Melody (2025) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:033E75EDFBE81296D9DB84E9B75050F61AF039FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Microtopia - это игра-автоматизация, в которой вы 
 ```bash
 magnet:?xt=urn:btih:AB714DB33DE84FECBB54C3315AF08F6526973DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

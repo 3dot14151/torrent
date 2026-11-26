@@ -19,8 +19,7 @@ Stranded Dreamscapes: The Prisoner Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:EB09B22F89106924C704709EA1B04A5E4CC65F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Otherworld: Omens of Summer Collector's Edition / Другой мир: Вест�
 ```bash
 magnet:?xt=urn:btih:E5F03E1781C00EFB3B52F5CA652000116D4C7B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hidden Mysteries 10: Return to Titanic / Скрытые тайны: Возвра
 ```bash
 magnet:?xt=urn:btih:6601C0C1DF44001F06CBAE73634E61F8EC5A514B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sengoku — глубокая стратегическая игра о Япони
 ```bash
 magnet:?xt=urn:btih:7D12BB506057D09153582ACE4E7F7F15013BC6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Red Faction®: Armageddon™ расширяет одобренную крити�
 ```bash
 magnet:?xt=urn:btih:E8C4FB4F329582247C90EA658DDB2D4C8A734C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

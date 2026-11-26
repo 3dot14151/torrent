@@ -19,8 +19,7 @@ Listary – небольшая и очень полезная утилита, д
 ```bash
 magnet:?xt=urn:btih:C8ACA29A5393239B547C38F67E25DD34EC55EB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cubers: Arena (2020) [Ru/Multi] (9043596) License PLAZA
 ```bash
 magnet:?xt=urn:btih:5CDEAEBD8A73F4C1E892BF45F2A134A0312C758E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Monster Hunter: World новейший выпуск популярной сер�
 ```bash
 magnet:?xt=urn:btih:B2B5A7BF48F1A207DF605E2B239753E7B2874916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

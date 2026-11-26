@@ -22,8 +22,7 @@ Garage: Bad Dream Adventure v1.1.263 [En]
 ```bash
 magnet:?xt=urn:btih:B747AF3ACC372E575C6C6248118F43204DEEAA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

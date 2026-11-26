@@ -19,8 +19,7 @@ Magic: The Gathering - Duels of the Planeswalkers 2014 – новая часть
 ```bash
 magnet:?xt=urn:btih:FBB82FC6C9426DBCD4992FD10AEB219BF4B83259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Murdered: Soul Suspect – увлекательное путешествие, г
 ```bash
 magnet:?xt=urn:btih:24BB88A0DAB17BAA667C6834EC374AE9FAE7955F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Tales of Maj'Eyal (2012) [En] (1.2.1) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CF130AF84E10CF33FF19E52860F43A03C01D61C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Murdered: Soul Suspect – увлекательное путешествие, г
 ```bash
 magnet:?xt=urn:btih:CC716E3E468AC154A857CE02F51FD11434C4E31B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Chronology – это умопомрачительная смесь голово
 ```bash
 magnet:?xt=urn:btih:0DF2CDC7629ED96DFFD590372B5207C3A13C4056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Murdered: Soul Suspect – увлекательное путешествие, г
 ```bash
 magnet:?xt=urn:btih:7C1B76FA6D763D548A0A4942498FE86CD7C98482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ BattleBlock Theater - платформер от разработчиков ор�
 ```bash
 magnet:?xt=urn:btih:95793A74568A1409761B6BFBA0304931CB064AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Magic: The Gathering - Duels of the Planeswalkers 2014 – новая часть
 ```bash
 magnet:?xt=urn:btih:E469C2983E30F6A069F19351CA6C553B540C7F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Transistor — научно-фантастическая игра в жанре 
 ```bash
 magnet:?xt=urn:btih:C93364BC4242BA78218598B62500BD85C3C9CB54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 ```bash
 magnet:?xt=urn:btih:694ABCF2BA9A18CF7FF975E6CF05FD50F80E5B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Painkiller: Hell & Damnation (2012) [Ru/Multi] (build 20140415_3933/11dlc) Repac
 ```bash
 magnet:?xt=urn:btih:CA7C2896D8C719CA5A0C54BF4F5B1CF5B9B7D203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Legends of Aethereus (2013) [Ru/Multi] (1.61.803.3999 upd6) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EF7E52EC80DDED92A41CBD4581690450E844930B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

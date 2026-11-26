@@ -19,8 +19,7 @@ Starsky and Hutch / Starsky & Hutch: Полицейская легенда [Ru] 
 ```bash
 magnet:?xt=urn:btih:FD3D318C055B0645562F08E71DDBBAB066009062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Radiance of Souls (2026) [Ru/Multi] (Build 21957122) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CC0D13D45D082C05DCE5DF9D2C893194F2A98C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forgotton Anne (2018) [Ru/Multi] (Build 20250418/dlc) Repack Let'sРlay [Collect
 ```bash
 magnet:?xt=urn:btih:C04954CAEA484163A29A9083D3995B8055D4C45D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

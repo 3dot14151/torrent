@@ -19,8 +19,7 @@ English Trainer 6600.1 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:3B43D805A5697A58E0C79F3557C247CFFFB13442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ K-Meleon — браузер для операционной системы Windo
 ```bash
 magnet:?xt=urn:btih:CDA77965E2BE9642E3ECE4C0E32229EFB2991C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ BB FlashBack Pro - программа для записи экрана для с
 ```bash
 magnet:?xt=urn:btih:BE25B6CAB89DC9740D01239979FFF75075174668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

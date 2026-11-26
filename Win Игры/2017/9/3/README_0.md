@@ -19,8 +19,7 @@ Tiny Echo - симпатичная приключенческая игра, гд
 ```bash
 magnet:?xt=urn:btih:F80C81CD834E5AA51831A05AB816C66DCA2D17BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

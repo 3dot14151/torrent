@@ -21,8 +21,7 @@ Darko US - Oni (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:A4233C7C5D7D8B0AFDF743C4AA53A52DD4923207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Carceri - From Source to End (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Dea
 ```bash
 magnet:?xt=urn:btih:D3E1C946E532C2C88E4576C65A9FBF047FFFBB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

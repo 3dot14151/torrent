@@ -19,8 +19,7 @@ Twilight Phenomena 3: The Incredible Show (2015) [En] Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:D3904992D716A7658A7A545B6BF09CC5D0DBC797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Parables 8: The Little Mermaid And The Purple Tide / Темные прит�
 ```bash
 magnet:?xt=urn:btih:439C85129E2E76DA01DFDB6F12B5E9ADF4E038F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Lara Croft and the Temple of Osiris - продолжение одобренно�
 ```bash
 magnet:?xt=urn:btih:1CC3C7A50E85C42B51C26E77A283DDDDA5C649BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

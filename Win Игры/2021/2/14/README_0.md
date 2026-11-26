@@ -19,8 +19,7 @@ Her Story – новая видеоигра от Сэма Барлоу, созд
 ```bash
 magnet:?xt=urn:btih:3251ACDBC7BF0615B95E0037B540B8D165AA18C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assetto Corsa Competizione — новая видеоигра, выпущенна
 ```bash
 magnet:?xt=urn:btih:A78DB68C9BDCCF00C2C51C54D423D13FA728D53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

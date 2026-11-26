@@ -19,8 +19,7 @@ The Blood of Dawnwalker (2026) [Ru/Multi] (1.0.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:72DBD51E68204A16E9DE1ED4857B24916CA1B6A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Blood of Dawnwalker (2026) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Eclipse Ed
 ```bash
 magnet:?xt=urn:btih:266C7D4C5267CC81ADB207844FCEA96F5675ED6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Meltopia - это минималистичная игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:0EE57A908E8EC2EE38FA9A53F02A46C3CA1E6B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fallout 4: Anniversary Edition - это максимально полное из
 ```bash
 magnet:?xt=urn:btih:C96D06D5969D58B0E7B899FB70ED7345F1A62DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

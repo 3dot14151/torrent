@@ -22,8 +22,7 @@ Section A  - Wall Of Silence (2016) [MP3|320 кб/с] <Melodic Progressive Metal
 ```bash
 magnet:?xt=urn:btih:7C17C96933CA1D57493827A286D952788ABBDC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hollow Illusion - Hollow Illusion (2016) [MP3|320 кб/с] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:CF00C20F37B4E0BBB6F8C7BE66FD730E34F232A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bloodbound - One Night Of Blood - Live At Masters Of Rock MMXV (2016) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:1731FE033BB6A78834BDA282B61E1E75946FF2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ U.D.O. - Timebomb (1991) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D6D9705D991A2CE0CB8A29C371E740DF3596B55F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Myrath - Legacy (2016) [MP3|320 кб/с] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:5F7639FE14A983A79434FE9C318FA93EC5CDD55C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dead Can Dance - Aion (1990) remaster 2008, Vinyl Replica, 4AD, Japan for UK, Eu
 ```bash
 magnet:?xt=urn:btih:B5FD4B07F1D82F44539AC4DCC8F7A00CA3281B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Black Sabbath - The End (2016) EP [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DC5FE549075A97096E97A336872057807AAB704A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Deep Purple - The Audio Fidelity Collection (2013) 4CD Box Set, 24K Gold, Audio 
 ```bash
 magnet:?xt=urn:btih:9828E6767E73FDD085CB8EBF0C7D79F3F8CE0C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Resurgency - 04. Atmosphere In Chaos(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:BE4545FF32144725F2A427337C33A702C8F9F9A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Deathsiege - Throne of Heresy (2022) [FLAC|Lossless|image + .cue] <Black, Death 
 ```bash
 magnet:?xt=urn:btih:5E20490ADD58A112E892479393D21F4C3B0041C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [MP3|320 Kbps] <Deat
 ```bash
 magnet:?xt=urn:btih:55BEE85711CA9AE56BC4890097AE8C01A96FABB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dawnlight - Eternity (2017) EP [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:03E0589BCB7F897813E7893E30D605E672D33B4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Critical Defiance - No Life Forms (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:0E7C1BD750913BD91D19FE13BCA346223EFCC2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Crossing Eternity - The Rising World (2018) [FLAC|Lossless|image + .cue] <Heavy,
 ```bash
 magnet:?xt=urn:btih:682FE96AC40AB91E902E46A9776779DB37DF86FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Decimator - Carnage City State Mosh Patrol (1989) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:AFF282D89AD6E938CF055F89A1477FB36EF1E3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Damnatory - The Complete Disgoregraphy 1991-2003 (2018) Compilation [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:BED6873AB2AB702D592C978EDFC780AA0CBE7131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Necrofier - Visions In Fire (2018) EP [MP3|320 Kbps] <Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:DE54212FB4C8EB367E27847AE559E1958501A706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Crossing Eternity - The Rising World (2018) [MP3|320 Kbps] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:C8F0F7C9534B997BF411D72111129B80C6530B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Dawnlight - Until the Dark Sun Rises (2019) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:DE0A792DA9279C62C292C9A5B8A033F29FA21F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Jag Panzer - The Hallowed (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Meta
 ```bash
 magnet:?xt=urn:btih:FE0C13D075D3E88DCD3E9764B8C6CE977D95A69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Necrofier - Prophecies of Eternal Darkness (2021) [MP3|320 Kbps] <Melodic Black 
 ```bash
 magnet:?xt=urn:btih:380C452EB7B1A7AA025D7E3EE3F912ADC6C68C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Decimator - Dirty, Hot & Hungry (1993) [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:2D08F76F6EAA6D874080E836BBF5DA29E7739E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Necrofier - Burning Shadows in the Southern Night (2023) [MP3|320 Kbps] <Melodic
 ```bash
 magnet:?xt=urn:btih:9A710E39E2F60EFC7F5ECBD8511E73A4ACF1DF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Johnny Booth - Moments Elsewhere (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 ```bash
 magnet:?xt=urn:btih:E7DEC76BDA55A68B2CE7EF2372149B8615E21609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Ravenchild - Caves Of Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' He
 ```bash
 magnet:?xt=urn:btih:45F91FE55BDBCEABBE9FD2CAAD2B7858096D9FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Mystfall - Celestial Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:CE4259073F62C7DF9350FAF03B5C0F1BB2EEF482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Nocturna - Daughters Of The Night (2022) Japanese Edition [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:8EDC23DCC2088DB042B4412C5642174966365D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Matteo Mancuso - The Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 ```bash
 magnet:?xt=urn:btih:170A077333DBC94FBF708E8A531D510552E3564C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ VA - Meddle Reimagined - A Tribute To Pink Floyd (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:19B9489B9AC8B4E819D80CA8EB4B76034FD44DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ CD-03 - ELVIS PRESLEY INTEGRAL 1954 - 1962(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:3B4E9925C3B7FD965EB59A4AF675F3FB14083975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

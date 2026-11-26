@@ -19,8 +19,7 @@ Witches Legacy 4: The Ties That Bind (2014) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:5548B4256D03A4F94ACC4F9E734B854F7B905281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mayan Prophecies 3: Blood Moon (2014) [En] Unofficial [Collector's Edition / К�
 ```bash
 magnet:?xt=urn:btih:2849084AD113157170AB513C750F3874FC653C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Echoes of the Past 5. The Kingdom of Despair / Эхо прошлого. Коро
 ```bash
 magnet:?xt=urn:btih:131F29ED6DEBB94F13BA768B21463DB9240E78DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beyond the Unknown: A Matter of Time / За гранью неведомого: �
 ```bash
 magnet:?xt=urn:btih:88C0DB838C396519627F1E55864AA518EEEE6A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Poker Night 2 - это игра-симулятор покера, являетс�
 ```bash
 magnet:?xt=urn:btih:0B61AD208E68666F3267666495D1DCBEEF0A16A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Halfway представляет из себя смесь ролевой игр�
 ```bash
 magnet:?xt=urn:btih:F766F0EE7AE42A5A641807D214C7644A85ED4D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Desperados Anthology / Антология Desperados (2001-2009) [Ru/En] Repack 
 ```bash
 magnet:?xt=urn:btih:A431DF06877E078C6270DB7EE3B8B123923DD537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Nancy Drew: The Shattered Medallion (2014) [Ru] (1.0) Unofficial НДLocalisatio
 ```bash
 magnet:?xt=urn:btih:0072C04872298660028D45A49416450768B7C97F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:012D25A9CF0B4187059345757DE9CEDB9A71F2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ SpyHunter использует специально разработанные �
 ```bash
 magnet:?xt=urn:btih:35117EE07418A3530F7F1D20D88EA64E732657EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Batman: Arkham City / Batman: Аркхем Сити (2011) [Ru/Multi] (1.1/dlc) 
 ```bash
 magnet:?xt=urn:btih:83F874C49774E07F438935D591C58C60F840468D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89DFA3A5E95890861867582A7237B30A1EC8B3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ ESET NOD32 7 гарантирует вашему компьютеру высок
 ```bash
 magnet:?xt=urn:btih:4FABDCAD815F427004F7641BCF223831B7C27DEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Daemon Tools - маленький по размеру, но мощный по в
 ```bash
 magnet:?xt=urn:btih:9D608C402BDF9C8EA2BC46B8DB1521F2D07F6D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Deadly Premonition (2013) (1.0) [Multi] License FLT [The Director's Cut]
 ```bash
 magnet:?xt=urn:btih:5B3798D837BF64E655E2F70941767E8F91CBF185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ ESET NOD32 Smart Security- новая версия комплексного ан
 ```bash
 magnet:?xt=urn:btih:85558D78DD18A00E66187788F5B2580FE471303D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Battlefield 4™ – это определяющий для жанра, полн
 ```bash
 magnet:?xt=urn:btih:0B954A5C37170FF72E518A61998C58AB37934204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Call of Duty Modern Warfare 3 (2011) [En] (Multiplayer Only/All DLC] Rip Straick
 ```bash
 magnet:?xt=urn:btih:D7697BDAD0B6AE52DF4E2B762A3BF63714C5CE11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ X-Particles v2 For Cinema 4D R13-R14 — это Pro версия X-частиц 
 ```bash
 magnet:?xt=urn:btih:D1278ADA71364D6998EF71DC2293C6EEC930DB9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Beyond: Two Souls / За Гранью: Две Души [PS3] [Ru/En] [4.21/4.41]
 ```bash
 magnet:?xt=urn:btih:770952E8D3CE73155ECC53017981777C86061196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Windows XP Professional SP3 VL build 2600 [Ru] UPD 18.10.2013 [Clear Чиста�
 ```bash
 magnet:?xt=urn:btih:99368C435414733786C5EEBCE68A2542B4235E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

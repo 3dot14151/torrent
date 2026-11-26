@@ -21,8 +21,7 @@ Doubtingthomas - The Changes (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House
 ```bash
 magnet:?xt=urn:btih:D62753DD31F64325CD4BAABCA6F0ED20935848D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Pamela Rose & The Nate Ginsberg Trio - On the Jazzy Side of Blue (1993) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:14B06CFE15D926C2F7F5027DBEA4F78EEAC0F62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Музыкальный Заряд 4 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B6513971C1A62A519D3D38E5A7EC20E969B69070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ CD1 - All that Jazz-Live at Princeton:
 ```bash
 magnet:?xt=urn:btih:75D47379BD80DDD460904F1963C9977D8669C0FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Nancy Wilson - From Broadway With Love & Tender Loving Care (1966) 1993, EMI[FLA
 ```bash
 magnet:?xt=urn:btih:BB4358EF30840450966586D771BE4EA23205E021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Dance Floor Autumn Edition (2016) [MP3|320 Kbps] <Dance, Nu Disco, Future B
 ```bash
 magnet:?xt=urn:btih:48BCE8148C0262081C96D712B6BD399A708FEBE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Nancy Wilson - The Sound Of Nancy Wilson & Nancy (1968, 1969) 2013, SoulMusic Re
 ```bash
 magnet:?xt=urn:btih:B2963E20157435CF98B06A6F10E8C477FDA8C1CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Top Baile Make It Work (2016) [MP3|270-320 Kbps] <R&B, Trap, Hip Hop>
 ```bash
 magnet:?xt=urn:btih:749ABECD1BADFD75F8E0792CC59F5ECDE3D8CD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92BF8D463139BFEC5B16D3198A25033AAA47C519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ VA - Source Of Inspiration Festival Trance (2016) [MP3|320 Kbps] <Trance, Melodi
 ```bash
 magnet:?xt=urn:btih:C0FEC593CA9715D0B0E29EDF859090B9F52D3DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Dance Project Club Hits (2016) [MP3|169~320 Kbps] <Eurodance, Nu Disco, Com
 ```bash
 magnet:?xt=urn:btih:E1919578AEBBC2175AFB81C548493F04E8FB82D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ VA - Горячий хитовый драйв. Выпуск 6 (2016) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:E6933907B7F8D1347FCBEC3BA04B69EF69FFF29F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ VA - Trance Top Summer 2016 (2016) [MP3|320 Kbps] <Trance, Energy, Melodic>
 ```bash
 magnet:?xt=urn:btih:11E34D697242EB3BC6FC20B45C77483A1D81101D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ VA - Осенний динамит. Русский выпуск (2016) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:2CDF26739F43395999ED46795E7833178F25DE23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

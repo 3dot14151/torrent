@@ -19,8 +19,7 @@ PianoMeter – Piano Tuner v3.4.2 Mod by Alex.Strannik [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FCEE020242E67AB9C632A9AEECF73B4E76B98F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Karing - Утилита прокси с простым и мощным инте�
 ```bash
 magnet:?xt=urn:btih:18F79A2D6EF4C768C0FC41A379312D9BAF044F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ TapScanner — сканер документов, это простой скан
 ```bash
 magnet:?xt=urn:btih:8247C8084EB6394EA09D80C1EBDA60B24593E5D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

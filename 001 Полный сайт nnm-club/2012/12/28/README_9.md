@@ -20,8 +20,7 @@ Recovery Partition for Lenovo G480 / Windows 7 Home Basic (х64) SP1 [русск
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ SoftMod Nintendo Wii 4.3 Инсталяция Homebrew Channel через Letter
 ```bash
 magnet:?xt=urn:btih:E27EAA5DA0FD6C02CA483F33C986C36BF2239ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Muv-Luv Alternative: Total Eclipse / Полное затмение [2012, TV, 24
 ```bash
 magnet:?xt=urn:btih:55FFDBA03E6C1974BEFB4A0DBAC12E2378F1D2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Google SketchUp – программа для разработки трехме�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Far Cry 3 Deluxe Edition [Ru] (RePack/1.04) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:DED3ACFB35E6891F34354DAD3FF4ACB9FA932E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ c400's Windows 7 XE v.4.0.3 x86/x64 KIT [Rus/Eng] (Перепаковано sega
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

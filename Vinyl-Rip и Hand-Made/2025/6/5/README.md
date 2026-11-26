@@ -22,8 +22,7 @@ A4	Safe In My Garden(   Читать дальше...   )Жанр: Folk Rock, Pop
 ```bash
 magnet:?xt=urn:btih:6AC979B6F720A3C9B6DC25962AB31B6B97BD77F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Umpfel — прогрессивный рок/метал-проект из Нор
 ```bash
 magnet:?xt=urn:btih:805FE40EBBF06B349778B2C36566026E039EA26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

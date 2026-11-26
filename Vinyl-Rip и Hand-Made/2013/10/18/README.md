@@ -28,8 +28,7 @@ B5.  Tug Of Peace  :: 02:53(   Читать дальше...   )Жанр: Soft Ro
 ```bash
 magnet:?xt=urn:btih:CB26A48FE70CA4FFE54C1B3599AA16FA5591BB8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Monochroma (2014) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:9333A7FDB84B44CA6B7735F7D3ED6F12A8C9EC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Monochroma - платформенная аркада от студии Nowhere S
 ```bash
 magnet:?xt=urn:btih:7A34BA0B3DAC29F7DB545BE9BAD2537E3642EB66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Antisquad (2014) [Ru/En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:1A8C37F958E48D7A1F67CFDD4B78162E8A7C93FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Warhammer 40000: Kill Team – аркадный экшен, распростра
 ```bash
 magnet:?xt=urn:btih:0CD902542C855A7915D272D1176E776AEF7EFEAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Tank ON - Modern Defender — увлекательная и затягивающ
 ```bash
 magnet:?xt=urn:btih:B9B02DAEC32370064ADF581DBC59C1F65D1EF1A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

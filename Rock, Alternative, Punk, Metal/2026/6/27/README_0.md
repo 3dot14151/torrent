@@ -22,8 +22,7 @@ George Lynch - The Lost Anthology (2005) 2 x CD, Compilation [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:7D0E3D62C62D4ABFE5B6A5A39CAF532F0FE8A40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Doro - Raise Your Fist (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:84F15A3BB51C37919B6C1A74E5B8642712001C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:031CAA3C150BEE04C797F4CFFBF2B41FB0806F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Speedslut - Cimbrian Rites (2026) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
 ```bash
 magnet:?xt=urn:btih:9D7C4FAF83A613D2019E858EC2F8EB63D245541C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Deafheaven - Sunbather (2013) Japanese Edition [FLAC|Lossless|image + .cue] <Bla
 ```bash
 magnet:?xt=urn:btih:935BC40F26D45BB7991BD81CD49F17571FC152E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

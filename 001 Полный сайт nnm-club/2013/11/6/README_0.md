@@ -27,8 +27,7 @@ Red Fang - Whales And Leeches (2013) [MP3|320 кб/с]<Metal>
 ```bash
 magnet:?xt=urn:btih:3232CE688092F6E4EB74B5C6254233767EB615E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Dark Sessions V (Complied and mixed by Peter Plaznik) (2012) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:66E822458AE6CD1ACBD5CEBDD97E5AE96F47AE03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Rudhira  -  Ein  (2012) [MP3|320 kbps] <Metal>
 ```bash
 magnet:?xt=urn:btih:BB14286DE6D8D8A8157455703E588B753A2CDC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ VA - Sabbath Cadabra: A Greek Tribute To Black Sabbath (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:A4AC3045B40CD58F1EA2BC18D904EADA238F4AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E04C35C2A049A77640CDBFD2A15F72078B8E57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Vita Nova - Vita Nova (2013) [MP3|320 кб/с]<Gothic Rock, Female vocal>
 ```bash
 magnet:?xt=urn:btih:1914402BCC678B2018A0958DDC34EBD062DFD18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6389C6C3F9ED1D0760DD5C0281D51A86D5AA03BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77BE8604F8CE873F9ECEEB99E6F945AF112F47E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB4A93588208CF4F9558EE460C1D043457DA975A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ADFBA67D67E9BA21397CA6AA3A4EF92F9CD4C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:C9D81A59679FFD35EF43B038EBC13C5034A23FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ Notepad++ - это бесплатный редактор текстовых фа
 ```bash
 magnet:?xt=urn:btih:C3F4FE4EFEB574C3BE89F8918F7302D30908D82F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ The Dismemberment Plan - A Life of Possibilities [04:34]
 ```bash
 magnet:?xt=urn:btih:E67CEE3CB4D68D36E3033EDAB84718126AB4577A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ Godgory - Shadow's Dance (1996) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:1C81274283CAC5D7C951AD78C1E9F23A9F0785BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ GoodSync предоставляет высочайшую надежность в
 ```bash
 magnet:?xt=urn:btih:A7ED022511DA8050D9C2EC3FA8DCB955E5475292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9D7EAA3CACA0C2717B7A1CA562592A2CAF784E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:E179910D094CD37109FF358B0926DF9499CA8DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +538,7 @@ VA - Now That's What I Call Music! USA (2013) 3CD [Box set] [MP3|320 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:BD35A809A2293E8862E12A761859FFCC428DA4E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +572,7 @@ VA - Milchbar Seaside Season 5 (2013) [FLAC|Lossless]<Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:B81246BE76903F1241A7660AD81A1566DA69A030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28DBF8AB9292F34CDF891BF9A7DF44093961568E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:30FE86F91E18C84CA077710DA98DE43F6FD4EC00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +658,7 @@ VA - Opera Metal Vol. 8 (2013) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:7B79820C30DB2FABFD853D502F55E4923E3A3F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ Katia Guerreiro - 2 альбома (2001 & 2003) [APE|Lossless]<Fado>
 ```bash
 magnet:?xt=urn:btih:5F83DE4849DAEE15A695FA8EC7FC62EF3784F418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +726,7 @@ Godgory - Sea of Dreams (1996) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:61622591BB887143517C626CCD831A9D2397049A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ Cryogenic Echelon - Taste Of Failure (2013) [MP3|320 kbps] <Electro, Industrial,
 ```bash
 magnet:?xt=urn:btih:37E26692C61B860BF482BFFE9C586977D6F00C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

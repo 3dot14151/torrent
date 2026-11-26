@@ -19,8 +19,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.3.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B919D02CBACE258AB34E5DDCFD54D63A4A447A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

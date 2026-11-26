@@ -21,8 +21,7 @@ VA - Best Of Disco Balls Records 2018, Pt. 1 (2019) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:8142A0022992B57B413C3368B098D58DAC8E4805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Best Of Disco Balls Records 2018, Pt. 2 (2019) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:0038C3E5A7F661B53A9A7DFF3765CD574CA843B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Best Of 5 Years Of Disco Balls Records, Pt. 3 (2019) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:E4EB6C9695D9A503D981D0A6F5AAC2B8F2155B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ GoodNotes 5.4.14 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0004AAC696C7E431906ED31F889D404509D4070A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2845B1F19A3861C5EA9CD5DAE2F26A0A4BEEDACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EFDADBE2BECDF91C1C1C1777FFB056F957BC7BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2B94DE8DC2317E0825F2A946509F1E3EB56151A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75B61B4A3852BD51C9F5B9FB8657807D96FFBB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3C0F0F5638D949B0FDCF88550FBE899007BE54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:843E4E9FBF66D323FBA4452D1D183569DA87AE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F6A53ACB2860B2863F2DBE13ACBBB617E125F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ Front 242 - Backcatalogue (1987) Compilation, RE. RM., 1992, Epic [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:C7461DB219EC0441FCD3DF99BC1BBAE443C897C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Tim Dash - Afterlight 001 (2020) unmixed [MP3|320 Kbps] <Deep Techno, Progressiv
 ```bash
 magnet:?xt=urn:btih:C98D38DCE1D8E16B3E4A9E11722E35E93B02CBB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Dark Reader for Safari Это расширение для ухода за гла
 ```bash
 magnet:?xt=urn:btih:7ADE1BF4D47DAEE6D6625D96C9655B2BABDA0451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:682A17A91DB4D0DAECF76F96072A4727E2626BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C98C1F1063F31A98EF1C848361E8724162432149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C7E24666679AE8A4554F823048E1A86DB0CD5D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Sex Pistols - God Save The Queen (2002) Single [FLAC|Lossless|image + .cue] <Pun
 ```bash
 magnet:?xt=urn:btih:A72E52DC52EF97C8E04EDC64CD16FF8D852AF626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ Ignea (ex-Parallax) - The Realms of Fire and Death (2020) [FLAC|Lossless|tracks]
 ```bash
 magnet:?xt=urn:btih:074B3CD5BDB2AABF76F422718527D12991C860B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DD1961351B04E5761E29350CDB586D402F8870B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ RAM (Грязный Рамирес) - SADEASTWOOD (2020) [MP3|320 Kbps] <Rap, Hi
 ```bash
 magnet:?xt=urn:btih:E84D5D97543E38C5FBE5DEFEC4777C0FA3B08DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ R.A. The Rugged Man - All My Heroes Are Dead (2020) [FLAC|Lossless|Web-DL|tracks
 ```bash
 magnet:?xt=urn:btih:384A7678FA9080AAB0B729D5C47608E757D1BDBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AB897686650483DFA1D61C1266AAE8E1962A2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ VA - Psychedelic Selections Vol 005 (Compiled by Khromata) (2020) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:D9329F88D39DFC30C6A268E11292259CF717A1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5518F7688513286B0AE678916FA7C32DA5FAD0AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ Freedom Fighters - Era (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ```bash
 magnet:?xt=urn:btih:076E0379C6AC524ABFC88006CAFCB3290829E61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

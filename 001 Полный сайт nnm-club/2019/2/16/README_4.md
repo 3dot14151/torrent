@@ -22,8 +22,7 @@ Trombone Shorty - Trombone Shorty Meets Lionel Ferbos (2002) 2005, Wise and Bark
 ```bash
 magnet:?xt=urn:btih:DCA898C98318AF1755268A6539BC8A5D0F27B2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mina Agossi - Carrousel (2004) Cristal Records [FLAC|Lossless|tracks + .cue] <Vo
 ```bash
 magnet:?xt=urn:btih:547EAAC6320801227E7F4E477856467F3B9118EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Deep Sundays, Vol.1 (2019) [MP3|320 Kbps] <House, DeepHouse>
 ```bash
 magnet:?xt=urn:btih:3C89A9F29156C72CF7E3355387ABEA96C1F26838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rhys Thomas b2b Jonny Griffiths - Live @ Wax Format vs. Journey(Portland House C
 ```bash
 magnet:?xt=urn:btih:3395D9DD6603DF61E4175DCEAC8768F5665FC71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7C6E36CF2C584EB852B049F889CAB489D1D6D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dave Lambert - Yearmix 2018 (Deep House Edition) 2019-02-15[MP3|320 Kbps] <Deep 
 ```bash
 magnet:?xt=urn:btih:B12F30D1BCABA022636B0F74320487BB06C9B25B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Suanda Music Radio Top 20 (January/February) (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F9E7932B1BCC44A10F847714104BE6EDDD810750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Clearview - приложение для удобного чтения элект
 ```bash
 magnet:?xt=urn:btih:CCFA6D58EB61C49BC658F29EA039750BF06C7BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Bahkauv - Et Bahkouv kütt (1990) [FLAC|Lossless|tracks + .cue] <Electronic, Dun
 ```bash
 magnet:?xt=urn:btih:4DA903A2FDF36A75EAC8EE22D10BF259AD56A75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F004899FF097010F3077BE9E39E8E9D362E304F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDD0145411751D9B64B55D8B9454DD2E99B08D94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Lissom - Lissom (2018) Whales Records [FLAC|Lossless|WEB-DL|tracks] <Dark Ambien
 ```bash
 magnet:?xt=urn:btih:5636FC79D8BDD34FD5E7CBEA0358C6F15FF4B9E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Mono Peninsula - Metro/Pol (2018) Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <A
 ```bash
 magnet:?xt=urn:btih:AA3A4AE56781781CEC4E4B5449A26DE342F37D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ VA - Black Hole Trance Music 02-19 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:E2246C61B6DCDA1885F06B9A1D37930A47F58884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ VA - The Official UK Top 40 Singles Chart 15.02.2019 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:4D88A6892215B9199362DF9DC709F9BFE07AF127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Millencolin - SOS (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
 ```bash
 magnet:?xt=urn:btih:A1D4078F596D0C7C529A71984BCF0F1CD3D7F818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D2D2A05174608D3B1F147AB6F25A93AA79FD375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F45370C5CFFCECCAE4CE45FEFD7605BD9232DBBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Shivaree - Full Studio Discography (1999-2007) [FLAC|Lossless|tracks + .cue] <Co
 ```bash
 magnet:?xt=urn:btih:1643B44017ADB73FE7CD4D19895C8D472DF9DFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C0B588F82FAFE65917A247B3024C558614B7220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD2F7724BB92CB6B27FC1A30E0FACFAB5AA3BBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ Fisky - Frisky (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:8605A72109C7738BB355E09E68087970BBCD6ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42BEBB9F2C124E9ABB4A1BA863E9103E96655D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ SnippetsLab — это простой в использовании менедж
 ```bash
 magnet:?xt=urn:btih:FBB06B235B72D3AB04CCA44367E840EA2B945FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A53F01A194F90162A678F8D1301A0648A3DBDFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CD21DF951D5D12F9AC7CA66F9FC7EBFC3807FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

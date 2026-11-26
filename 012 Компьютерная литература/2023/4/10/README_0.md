@@ -19,8 +19,7 @@ Ashwin Pajankar | Python Unit Test Automation, 2nd Edition (2021) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:188A29F2BC8A5BC37883E7E0A037EB0C3643FE72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stephen Chin и др. | DevOps Tools for Java Developers (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:D576D958A0E4D52F725A0B03306FE13F6D99FB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Maximilian Schwarzmuller | React Key Concepts: Consolidate your knowledge of Rea
 ```bash
 magnet:?xt=urn:btih:BDD740ABE6BB1F932B2DDE90AA28D071315F70F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

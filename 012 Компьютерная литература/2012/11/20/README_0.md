@@ -19,8 +19,7 @@ David Griffiths, Dawn Griffiths | Head First C | Первое знакомств
 ```bash
 magnet:?xt=urn:btih:8FF5839BAA1A885A5635E55E65CF10DDD92504A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Python – первоклассный инструмент, и в первую �
 ```bash
 magnet:?xt=urn:btih:0EB298928B9F73883DDF56154FF35A0D53EE0255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E115C2B8F47165B3B347FE192E41EA1AB834B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 ```bash
 magnet:?xt=urn:btih:B1E78513FE93BF7459A1DE58CD0B17052C5633AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Seal of Evil (2006) [En] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:8511C3156E84C1AF545C5729CA4D6E39AD36634F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

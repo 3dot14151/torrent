@@ -21,8 +21,7 @@ Kamelot - Dark Asylum (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Po
 ```bash
 magnet:?xt=urn:btih:08E14E2559E042B1839BC03B664AAFB8C6B189D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dh Milate — это элегантное семейство шрифтов с �
 ```bash
 magnet:?xt=urn:btih:00CCC5B3E7C181B6E13D7C824ECD3D2E5948BBB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Triosphere - Oceans Above, Stars Below (2026) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:87B0FE5EAA8D0D916FBE792BE1727F3A811203A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Flotsam And Jetsam - Rats in the Temple (2026) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:D6ACC6FD03D63F247A07DE58CB3D38C08A1DF90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Russian Circles - Nine (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post Rock, Po
 ```bash
 magnet:?xt=urn:btih:A3A7EDD5A2D5E962A3A157197A55046A4F1C0851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Mastodon - Marrow Deep (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive M
 ```bash
 magnet:?xt=urn:btih:3135BD8FE7C78A66A0401541D467A7B239FF227F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA533B7CD3D138000DE3FD4D08342DCCB6C432CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:EDF73739EB830F4CC3F4BC7364E4C23046EBE8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Gorod - The Ember Gone (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, 
 ```bash
 magnet:?xt=urn:btih:BF6D1A748076A36A399BFB318591ACFFF4920603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C70F1723EE0F170E5F301AD2F1507AB9003A9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Exumer - Death Mask Messiah (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:0DEA6C1125981FA6938A6F132A3FDB6BABAE9D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCEF4ADBA063C354BE15A4137D8E7740A52BCDFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ WEB-прокси Telegram: трафик, который едет внутри о
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1D6DCADF6A57D7D63ABEB5BB0B3D64BD459EE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

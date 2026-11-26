@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:EA2230E5DEC8D84FD88DAF520A2E4E6392305844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ DJ Feel - TranceMission (Best Russian Tracks 2012) (20-12-2012) - INTRO
 ```bash
 magnet:?xt=urn:btih:69EDE11A5D14836E0E2D2BECF67F2028A55055C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ VA - Metagalaxy 15 (2012) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:0A36B18F30CF51E176A125A06F480E81F6805EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C69DBB2C2DD299FEDEAD3E75EFF7AD5A3022A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ VA - Bed Time Christmas Stories (Sensualism compiled by DJ MNX) (2012) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:04D119DF4A6D4297C1CC0BC76267DE81FB985E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F6C9EBF1A8F2B197A55EE59BF274C3B89026E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ VA - Essential Clubhouse The Winter Collection 2012/13 (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:E9AD49A8304A7B054C3B11FECEDD9A0E02DAEFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ VA - Winter Party зарубежка (2012) [MP3|256кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:EFC4F3675B7A68F009BEAB6ED52040415937178E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74138201B437A7162171FE28A0577435CB410C93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCB740968A574B9A6ED7088F63A3CCD0E1B97FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ Angela - Selections (2009) [FLAC|Lossless]<Jazz Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive De
 ```bash
 magnet:?xt=urn:btih:E64DAB769470773AE18ADDCD4A30372B6C78EFF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81119726965EEBE70EA328B5E3871C7200E44133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +442,7 @@ VA - Light Music Bass 19 (2012) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:8D4E9167F94CC54A9035A68C78AA4D047904E40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ The Missing 2: Island of Lost Ships [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:6C8BB9B6E4D3B2FCCA80D5C630F5947EC7558978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ VA - Xmas Night Party (2012) [MP3|320 кб/с]<Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:CBC2AA399A3A1C7D7FB9DCD6B68F52E3B3BA0662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ Various Artists - Essential Delta Blues (2009) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +561,7 @@ Armin van Buuren - A State Of Trance Episode 591 SBD (2012) [MP3|320 kbps]<Tranc
 ```bash
 magnet:?xt=urn:btih:689C28CADB16D901936E3925FC3E71CAFB103755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ VA - SEX Sells More: The Ultimate House Edition Vol.2 (2012) [MP3|320 кб/с]<H
 ```bash
 magnet:?xt=urn:btih:C4641ACAE78F93D4502F78A30F7D72D6EB1C2C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE4E051C7E23A661F16DD8C6F78564FD8D4DF9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +675,7 @@ E. C. Scott - 4 Альбома (1995 - 2003) [MP3|320 кб/с]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ VA - Progressive House Vol.2 (2012) [MP3|320 кб/с]<Progressive House, Club Ho
 ```bash
 magnet:?xt=urn:btih:39BB26A6E9C1EC26976FAEB5B914053DDA7C138E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6393E624E7AE68A59FA232FD974FE7F5BC058A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99D781DF268E378205A0DA6BEFB33C01AD376A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

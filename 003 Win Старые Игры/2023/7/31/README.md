@@ -19,8 +19,7 @@ SimCity Enhanced выполнена в двумерной графике, обз
 ```bash
 magnet:?xt=urn:btih:37F8D9C8E9CEC0E5D6D3B160E8E2CDE8B14D59C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
 ```bash
 magnet:?xt=urn:btih:20597FF951750A46B07A8BBDE85C8CF1C1DEC9A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:3F3A2297475B0F1392DACC25E077E0D51FDDF909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

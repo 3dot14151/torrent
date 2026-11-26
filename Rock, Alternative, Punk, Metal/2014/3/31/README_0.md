@@ -28,8 +28,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2968EFCBB3C5169F42DFBE3B9C8A591E7907BCF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ For The Fallen Dreams - Heavy Hearts (2014) [MP3|320 кб/с]<Melodic Hardcore, 
 ```bash
 magnet:?xt=urn:btih:987855D3F51CF85E850591F5CD65851E7C4D676D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Jack Bruce - Silver Rails (2014) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:E2B42417576A41423B480E99CAB07516BBDB89AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Dark Tranquillity - A Memory Construct (2014) EP [MP3|320 кб/с]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:3DA46D52F11BF492FBBCB5955960BEC4C6C3310D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Heldmaschine (ex-Volkerball) - Propaganda (2014) [MP3|320 кб/с]<Industrial me
 ```bash
 magnet:?xt=urn:btih:32FE9EB0B28BE8B0F5D7A4EA8B702CC569D0FC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Pink Floyd - Dark Side of the Sky (1990) [MP3|320 кб/с]<Rock, Progressive Roc
 ```bash
 magnet:?xt=urn:btih:7C9DB34CBCB9F5E984155528222F8AE42FFB4828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Pink Floyd - The Great Gig In The Sky-An Alternate Take Of The Dark Side Of The 
 ```bash
 magnet:?xt=urn:btih:4674D03074B58D3881FA56C1ACEB23E9FFAF718A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

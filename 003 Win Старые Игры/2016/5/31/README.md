@@ -19,8 +19,7 @@ Apocalypse: Party's Over - безбашенный и отвратительны�
 ```bash
 magnet:?xt=urn:btih:937EA1CCC6A39857CF55D9C582222CAE8B54EB6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

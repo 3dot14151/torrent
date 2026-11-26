@@ -22,8 +22,7 @@ Yskelgroth - Bleeding of the Hideous (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 ```bash
 magnet:?xt=urn:btih:BE57D84848349812E2A811F84B04D8FC25B277F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Words of Farewell - A Quiet World (2016) [FLAC|Lossless|image + .cue] <Progressi
 ```bash
 magnet:?xt=urn:btih:CA6680C943C39324C8A239FD7059068A2F2CAF92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ World End Man - Use My Knife (2018) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 ```bash
 magnet:?xt=urn:btih:7C485A46121E8A3B99C6EED4F49AC41665642587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Yskelgroth - Unholy Primitive Nihilism (2010) [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:E9E55B36AE1961B270622DC83515434837E75412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Whythre - Impregnate My Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 ```bash
 magnet:?xt=urn:btih:82CA53A55A9A5F2889F9EDB70F0528AD30600BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Witchmaster - Witchmaster (2004) [FLAC|Lossless|image + .cue] <Black, Thrash Met
 ```bash
 magnet:?xt=urn:btih:752AB6C38D5195945EBFD67EF7A6E9368798FC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ World End Man - Suffer Leader (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal,
 ```bash
 magnet:?xt=urn:btih:6B21840B8EEB0756851006DE6FE1076EDBEAB783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC3829DC85CD83E83AD8BAE560CA12D14D1FCBF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ James and the Cold Gun - James and the Cold Gun (2023) [MP3|320 Kbps] <Grunge>
 ```bash
 magnet:?xt=urn:btih:B95B1D1687405609D8DE4679A55023B13E68283E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44DB6129AAF579C5946986375D0B9FBD32B40520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Wanted - Late Attraction (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3ED8E973656217F637EA4D1E1A4EBC504E35BF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Graywolf - Graywolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5539B6D7E08900F64F2FF6F2339A3975BA0BB39D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Oxbow - Love's Holiday (2023) [MP3|320 Kbps] <Art-Rock, Post-Rock, Noise Rock>
 ```bash
 magnet:?xt=urn:btih:E8A933E4DABCE2D7787B6601D50A776C7E56DB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Disc 3: instrumentalЖанр: Gothic, Black, Death MetalПродолжитель
 ```bash
 magnet:?xt=urn:btih:4E359156C3AE58046CAC1C68B1FE0C991AB9169C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Tool - Lollapalooza In Texas (2020) [MP3|320 Kbps] <Alternative & Indie>
 ```bash
 magnet:?xt=urn:btih:2A71012EFE62D3944FFF55F61474F486647A12B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ CD1 - (Незнайка. Студия, 2013-2020):
 ```bash
 magnet:?xt=urn:btih:6E95697D32F7399DFE0E0F27F6C7A355B850D8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6AA4B6DF9762412556A0E4F9A1C2109F65049AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Paul Oakenfold DJ Box: October (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F573FB1D49CE73B02C56E0B43C4160B01A8E8F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Wallpapers - Обои разное 11. [JPEG]
 ```bash
 magnet:?xt=urn:btih:C2C11EA3A9CF166DA2CD1CFD405A0FE23A519786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ VA - Best Of Trance (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4283C8828F29201D1F6A7F865F9FC9949B86343C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B952BB1DF9A37012E999A4CB9AF440FC125062F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Andrew Belle - Black Bear (2013) [MP3|320 кб/с]<Indie Rock / Pop>
 ```bash
 magnet:?xt=urn:btih:E08367AEA4B0ABD87148ECDB2F6DD8DAF36A9D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ MGMT - MGMT (2013) [MP3|320 кб/с]<Indie Rock / Electronic / Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:54EAFBCB1F98FDCAF6F3237A4FD164D08B2489F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ Stanley Clarke - Let Me Know You (1982) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Soul,
 ```bash
 magnet:?xt=urn:btih:AD8C05FA09D65BDFF379CE54A17C44E0F5051DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:746995FCCB0D6BBA16FE95D0A71C45E289711F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +349,7 @@ Texas Gypsies - Retro Deco Baby (2013) [MP3|320 кб/с]<Retro Swing, Gypsy Jazz
 ```bash
 magnet:?xt=urn:btih:DB93437A75A03EF05741E8780B8A8BB428903802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ Gianni Morandi - Bisogna Vivere (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:3FBBC1BC3BD8DC5EA65D62642FFD6DD9F29D8DCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02CD74D6EF4690155BCCC22E286457B74BFB44BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Maria - My Car 2Формат: JPEGРазрешение файлов: 544х725-51
 ```bash
 magnet:?xt=urn:btih:E41AA84A46F2E0B0A0F45A7BF9D6CC3FA1362AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC51ACF41845B167D44A32EBDC5D2167982E4E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ VA - Club Music Vol. 19 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:4F7483007FCA265676FF21C7C3289C19A13A4341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D04DC9C3F94B856E02738828E68E0DD927FA5977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E08C92437DE896DD56AB5F6E27CA4CD1089B5F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +604,7 @@ Side2
 ```bash
 magnet:?xt=urn:btih:E6FBCBE89D3C915E783A56B1529ED5F65A53DE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ VA - Get Sexy: Back to Disco (2013) [MP3|320 кб/с]<Pop, Disco, Funk>
 ```bash
 magnet:?xt=urn:btih:CE9245AB6FDD0066E87A46A80C79DF985A9DD42D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ Windows IT Pro/RE - профессиональное издание, целик�
 ```bash
 magnet:?xt=urn:btih:3611A8B3BFB5E1F53BE76D1A76B7C981828141AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41539D443790E7A951AB66A09FB9972EC19E232E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +723,7 @@ Shelter in your heart(   Читать дальше...   )Жанр: New Age, Ambi
 ```bash
 magnet:?xt=urn:btih:80E21F06019AF6092022480995EF7F7220CAA2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4527947378BB8C8BC1AC507E29A2893DDFE163E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

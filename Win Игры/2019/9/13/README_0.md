@@ -19,8 +19,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2797) License GOG
 ```bash
 magnet:?xt=urn:btih:3783478A4373753E610BA7BB93FAAE46E0C9DEB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jotun – нарисованный вручную экшен про исслед
 ```bash
 magnet:?xt=urn:btih:B20A8BFF37C0B9719569645E787ADCB985A8EB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

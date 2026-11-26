@@ -18,8 +18,7 @@ Cisdem DocumentReader позволяет читать, печатать, сох�
 ```bash
 magnet:?xt=urn:btih:FCF2C85BCE1A87480A6765E79AC55C2F27EE6447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Beatport Drum And Bass: Electro Sound Pack #27 (2020) [MP3|320 Kbps] <Drum 
 ```bash
 magnet:?xt=urn:btih:A38340B16BD62F3E03A33F07663576ECAF3CAE55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Beatport Electro House: Pack #19 (2020) [MP3|320 Kbps] <Electro House, Club
 ```bash
 magnet:?xt=urn:btih:DFB762F6ED4372BDE1253B233760194A1C81AFC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Djrum - Portrait with Firewood (2018) R & S Records [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:673B37505648A96A0C63BF7E089ABC6B82C78BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Vanessa Daou - Welcome to My Blues: An Anthology (1994-2017) (2017) Compilation 
 ```bash
 magnet:?xt=urn:btih:F7E258FD9CB1011852470F7CAAC3EEA732F43415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Pantha du Prince - Conference of Trees (2020) Modern Recordings [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:6B43E794ABD5E6C5656513BC4FD3ED9707C68C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ GoodTask — это элегантная и мощная напоминалка,
 ```bash
 magnet:?xt=urn:btih:92958024D6685D667229D15A11EE625D8A36FDBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:2E8CE995D4076A2CA12F01CC0D04A631AB17CFF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Houston - 4 альбома (2010-2014) [FLAC|Lossless|image + .cue] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:8DD5EEEA11B5E1F80D1CA000A65CB08F465E53F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Pride Of Lions - 6 альбомов Discography 7CD (2003-2017) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:6426328E12D4B3E040702A7A7C65448DD3CD8F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Vivaldi 2.11.1811.47 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B02136852DFF38768E88DCAD1EC0129B01EB719E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ iMazing: отличная альтернатива iTunes
 ```bash
 magnet:?xt=urn:btih:6E8151DC9ECCC46B8F6C4DC0B5FF7BFB3BD3912B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Martina Edoff - We Will Align (2017) [FLAC|Lossless|image + .cue] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:D105A3BBD7B719F30CBFE6370294B0F1D5812AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Prizmo 4 - это современное приложение для скани�
 ```bash
 magnet:?xt=urn:btih:4BBDF79E34F8D65FDFC6C77F7842E929A8065F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ Houston - 4 альбома Discography (2010-2014) [MP3|320 Kbps] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:A865CF9947D4CC4111173F59E77F2B8B44035352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Total Movie Converter - многофункциональная программ�
 ```bash
 magnet:?xt=urn:btih:3C847D1AF360364934DBC01264A3A7D8269EBE09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Lionville - 3 альбома Discography (2011-2017) [MP3|320 Kbps] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:A1A75B3CE6C71B6C4C6EC6E6A73EE63EBC9177FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:424213220D5E93F5DE1D38D349A5B91A5BED0D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ VA - Beatport Deep House: Electro Sound Pack #27 (2020) [MP3|320 Kbps] <Deep Hou
 ```bash
 magnet:?xt=urn:btih:5ED91ABEDE8FCD62130F981C783569D71AEE9CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:EA5FEBC4F049F8ED56AFFFFB15D8BF15955D75EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ SSDReporter 1.5.5 [En]
 ```bash
 magnet:?xt=urn:btih:E3CACFA168C7DACA55ED3327E2EFB9B6167C1749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ My Dying Bride - The Ghost of Orion (2020) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:B235D39839F91EB1BE61460BF8254C2F65A6E380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ Catharsis - Зеркало Судьбы (2019) [FLAC|Lossless|image + .cue] <Pow
 ```bash
 magnet:?xt=urn:btih:6B32C9A8C82196C9F7E89204BB1D21D5FBBFC390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:E2BC2A69277BEDAD5516FC72A8C79B16F121A135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Emsisoft Emergency Kit 2020.3.1.10032 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8509BA7B037B4E02004B6560800F2B3FABA86B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ Dark Fortress - Spectres from the Old World (2020) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:F7352C8A7923B53E70179471BA35107A704F6E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

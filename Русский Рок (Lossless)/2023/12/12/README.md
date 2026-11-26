@@ -22,8 +22,7 @@ Grimorium Verum - Reall (2022) [FLAC|Lossless|image + .cue] <Black Metal, Sympho
 ```bash
 magnet:?xt=urn:btih:734623A5E2DD65F4B86A6438F339D429508FD7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cavandish - Лицемерие (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:AB63934B9794F5FFAAAF3E38F70BBB51E96F4D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dramaturg - Darkness (2022) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:E71028617A063400F52D560E755677C65BD714AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ammanas - Solitude (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:B8E6FD1FFC95FB134F670476A57AA48D36BAE42D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

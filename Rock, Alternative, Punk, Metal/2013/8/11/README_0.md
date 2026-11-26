@@ -28,8 +28,7 @@ Picture Me Broken  - 1 Альбом + EP (2009-2010) [FLAC|Lossless]<Post-Hardco
 ```bash
 magnet:?xt=urn:btih:99C8C0707B91A57104F8F64D058FA72724310F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Chris de Burgh - Spanish Train And Other Storiess (1975) Reissue /1985, A&M Reco
 ```bash
 magnet:?xt=urn:btih:11BC359BA1C1C32F8FB34477A9B57B6EF709F6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Greg Lake - Songs Of A Lifetime (2013) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:A8E3D130F6E59E85BFA45242F87E9B7743056FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Cold Sight - A/H1N1 (2013) [MP3|320 кб/с]<Melodic Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:765F288A03DF76FEE6DD2C4487AE89F13C499D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ ZZ Top - The Best Of ZZ Top (1977) [WavPack|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:CA0D829AA990964D20DF04D18BA2FDD0D2B548CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Chicago - The Chicago Story - The Complete Greatest Hits (2002) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:84E0A2BF7D6E23E175529DFBF3F41D6B1F3AFE70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Marilyn Manson - The Golden Age Of Grotesque (2003) remastered /2006, Universal 
 ```bash
 magnet:?xt=urn:btih:3CC327F10B06E1EDDD645E9C8B206039C1582127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

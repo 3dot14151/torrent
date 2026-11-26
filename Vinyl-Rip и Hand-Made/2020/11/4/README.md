@@ -22,8 +22,7 @@ A4 Promises(   Читать дальше...   )Жанр: Easy Listening, Pop Roc
 ```bash
 magnet:?xt=urn:btih:F5E1C8A769C7A41F33C5BDDB8287514EE9743C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Nachtmystium - The World We Left Behind (2014) [MP3|320 кб/с]<Avant-garde Met
 ```bash
 magnet:?xt=urn:btih:07B8232A130C7DB5639661CE3AAA6E383FD6DD65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:931FA6A44F13D2EE55886B1B6F2E78873A43C71A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Pallbearer - Foundations Of Burden (2014) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:835EAE699D78AE62EFE99A02393F957F9C5BFAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Brian Setzer - Rockabilly Riot! All Original (2014) [FLAC|Lossless|WEB-DL]<Rock,
 ```bash
 magnet:?xt=urn:btih:D87082FC623F9A9E8E1E7F764F3FF24532BB6210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Bon Jovi - New Jersey 1988 / 2014, 2 SHM-CD Super Deluxe Box Set Universal Music
 ```bash
 magnet:?xt=urn:btih:ED0ADC67658EA87BA586356DAC6C0720E00B8DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

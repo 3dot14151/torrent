@@ -19,8 +19,7 @@ Mysteries of Magic Island / Тайны Магического острова (P)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Committed: Mystery at Shady Pines Premium Edition / Байки Старого П
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DEFCON — это симулятор мировой термоядерной в�
 ```bash
 magnet:?xt=urn:btih:13FBA98C20EFB8BF93B6942CEC53851A0558504C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ XBOX 360 Controller Emulator 2.0.2.156 (XInput 3.3.1.444) [Английский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

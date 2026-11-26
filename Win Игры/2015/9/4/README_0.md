@@ -19,8 +19,7 @@ Hidden Expedition 9: Dawn of Prosperity (2015) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:18BF6FF78D7A407BCA619F5B4B1BF7A33116DE12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Valdis Story: Abyssal City (2013) [Ru/En] (1.0.0.25) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:33BD666938974200D12E8CCC1AB1D88C818D4AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tinertia (2015) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:7811780F33A2857A2611F8D121C2ECBD28BC562F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

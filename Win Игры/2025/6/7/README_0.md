@@ -19,8 +19,7 @@ Symphony of War: The Nephilim Saga повествует о событиях, к�
 ```bash
 magnet:?xt=urn:btih:5923444DA56DAC8B5FE681B0E53BFB26DE890A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kingdom Rush Vengeance – это стратегия в реальном вре�
 ```bash
 magnet:?xt=urn:btih:D9E5A40053FF01F7D86A0487D81D2F83347E1734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unexplored 2 создаёт для вас огромный, богатый фэ�
 ```bash
 magnet:?xt=urn:btih:A4DB2815A7F96AECE50C134EC70EA947873AAB97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shardpunk: Verminfall - изометрическая игра, геймплей 
 ```bash
 magnet:?xt=urn:btih:357F21369E8671885063C7889F0A5931E1B9479B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Moroi находится в Cosmic Engine, персонализированно�
 ```bash
 magnet:?xt=urn:btih:6F7A13A8D132F7AC2A6ACF95B705DC4DF177E0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Other s
 ```bash
 magnet:?xt=urn:btih:71A2266EB304B944111204F54AD6409F7B29B17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dying Light 2: Stay Human (2022) [En] (1.22.4/dlc) Scene Tenoke [Reloaded Editio
 ```bash
 magnet:?xt=urn:btih:DA9D19ABA9406D17CA962AABE2F34A4B96C5DB8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Yog-Sothoth's Yard - это ролевой симулятор строитель
 ```bash
 magnet:?xt=urn:btih:A7152A8520D54A466085A6592610E1015E2F4469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:E8F9A0C89480813D577B1A4061397A2B86507FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:0EED785EEF35C7A80D0AF0061E8BF02CC20E19F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

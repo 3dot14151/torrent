@@ -19,8 +19,7 @@ NOBUNAGA'S AMBITION: Awakening (2022) [Multi] (1.1.6/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1946453A6C6695ECFDDC9D92FF2CA9DDEF6C379A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DuckTales: Remastered - это красочный, нарисованный вр
 ```bash
 magnet:?xt=urn:btih:39B77F153E275E4FA4857E505B209FA9675CAFC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Roboquest - это динамичный рогалик от первого ли�
 ```bash
 magnet:?xt=urn:btih:D677B53BE779F84AB63BB10D06CA2D2FEE8049C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Moroi предлагает геймплей, включающий сражени
 ```bash
 magnet:?xt=urn:btih:45449E45445431911E4E488303DD7D0945CBD110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Archons - это Roguelite, Survivor-игра, в которой вы управ
 ```bash
 magnet:?xt=urn:btih:D0BAA443D6BB82A5156A3A33633D165BEC32A0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Roboquest - динамичный Шутер от Первого Лица с эл
 ```bash
 magnet:?xt=urn:btih:1A8D656557FDF53133CE93EE5DB5D653EE4736DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

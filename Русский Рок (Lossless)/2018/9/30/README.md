@@ -22,8 +22,7 @@ BY CRY - BY CRY (2015) [FLAC|Lossless|tracks + .cue] <Folk, Rock>
 ```bash
 magnet:?xt=urn:btih:F9CF1C6B2D56943B339A787FF6DD035E0A35D129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

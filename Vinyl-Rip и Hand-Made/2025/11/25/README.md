@@ -22,8 +22,7 @@ A4 Freddie & The Dreamers - I'm Telling You Now(   Читать дальше... 
 ```bash
 magnet:?xt=urn:btih:462C044F630419F28029E0955596572EFFA70FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

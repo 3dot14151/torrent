@@ -22,8 +22,7 @@ King Crimson - Islands (2026 David Singleton Elemental Mixes) (1971) 2026, Disci
 ```bash
 magnet:?xt=urn:btih:3F363BF8C7CB959DEAE8F68FBB073929D659BC04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Enslaved - Mið (2026) [FLAC|Lossless|image + .cue] <Black Metal, Progressive Me
 ```bash
 magnet:?xt=urn:btih:D3D083944B7F2242573C44E1CE89B3140B07385A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Paradise Lost - Ascension (2025) Reissue, 2026, Nuclear Blast Records, Deluxe  D
 ```bash
 magnet:?xt=urn:btih:177F2C2C5F82E6059C287F26F77BDC5ACDE1A991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

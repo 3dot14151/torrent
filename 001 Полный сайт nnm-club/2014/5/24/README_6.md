@@ -18,8 +18,7 @@ Kaspersky Offline Update 14.0.0.4651 (g) (24.05.2014) [Ru]
 ```bash
 magnet:?xt=urn:btih:E19564A5B8230DCF284D4DB44D9A21A4FB537F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Watch Dogs (2014) [Multi] (1.0.1) License Steam006 [PreInstalled]
 ```bash
 magnet:?xt=urn:btih:37898EB6937F063BFE0725FDF688EB06D8F254FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

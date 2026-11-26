@@ -19,8 +19,7 @@ Ebook Converter v1.13.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1DC5C341B3FE07E1E56A46006EB4929CC6F9D3FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

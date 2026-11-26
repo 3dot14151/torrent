@@ -28,8 +28,7 @@ Vitja - Echoes (2013) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:5A354C065A6B99400C096733996F73E6A0CAD28D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Speedbreaker - Built For Speed (2014) [MP3|320 кб/с]<Heavy/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:53BE8BC532F1FD5E4C1ACEBA79365F2B2DE0EA93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Wovenwar - Wovenwar (2014) [MP3|320 кб/с]<Alt. Metal / Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:A88713A653DC1EB47D65430C16F25AA21E4A663B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:8E21E012AADC657AF3869D07841B01A3313E85DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Unisonic - Light Of Dawn (2014) Limited Edition Digipak [FLAC|Lossless]<Melodic 
 ```bash
 magnet:?xt=urn:btih:63A5D72EC1B4A5947EF8330A2951F5FE00698147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Terminus (2000) [En] License
 ```bash
 magnet:?xt=urn:btih:951841530D4D00881A28B00E0FE43D2456671B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ghost Master / Повелитель Ужаса (2003) [Ru] Repack Sandy Ann
 ```bash
 magnet:?xt=urn:btih:91BA7D08954B65615297CA53824406763AAABA6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

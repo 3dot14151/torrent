@@ -19,8 +19,7 @@ Rent A Car Simulator 24 (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2592A19BAAC1562F2B1A097EE9A51D25BBCE0EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GreedFall: The Dying World - приквел к оригинальной роле
 ```bash
 magnet:?xt=urn:btih:C4B03CBDABB8966510B3692147E07713E01956FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Escape from Ever After - это приключенческая ролевая и
 ```bash
 magnet:?xt=urn:btih:6FB5BDE72FD7609789C3172018ACF4EC5CD7E138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Legends of Savvarah: Flowers and Scorpions (2026) [Ru/En] (Build 21632093) Repac
 ```bash
 magnet:?xt=urn:btih:C44BCC17F1C6E68BCC474B7B63CED0C92EA15928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (3.0
 ```bash
 magnet:?xt=urn:btih:1451AAB65341CA728CDFBE1322BE437365A480F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Timberborn (2021) [Ru/Multi] (1.0.12.3) Scene Rune
 ```bash
 magnet:?xt=urn:btih:32AA85AE36D18C8AFEFE5906F8EBBB57B72B7217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Out of Sight - атмосферный хоррор, сочетающий пер�
 ```bash
 magnet:?xt=urn:btih:BEC0EA483E3812812491131DED0F5C7D302FB216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Green Light (2026) [Ru/Multi] (0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:70CCFFAAD15EFDCCA713AF92E4ECD15EAB5D2128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Green Light (2026) [Ru/Multi] (0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:4C86C51DD434E9FFD849978455F4FF7E34CA7F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Legitimate Space Corp Simulator LLC (2026) [Ru/Multi] (1.02.87) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C20409BC51D0324BCA7DA399A83DD39AA622B6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Mystic Diary 4: Wizard's Legacy (2026) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:6B7619F5E94CE9E29B2A6900BA1A2E6E9BA91587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Sandwich Simulator предлагает веселую, динамичную с�
 ```bash
 magnet:?xt=urn:btih:0CB5F5C5BAB077B4CD8B3AC3B40AB21BE23AD389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

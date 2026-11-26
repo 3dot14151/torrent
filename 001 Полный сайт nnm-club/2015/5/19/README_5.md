@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:80F7310A260A0B305C1616394ED97E2FEA396101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ DameWare Remote Support & DameWare Mini Remote Control 11.2.0.84 [En]
 ```bash
 magnet:?xt=urn:btih:996AB2AAE61FBC0947009A35AD82F9BDB5E66F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Oddworld: Stranger's Wrath 1.0.13[Ru]
 ```bash
 magnet:?xt=urn:btih:2BBFD074DBBCCFBC57893FF8BDD82444B8F79329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A82A06A6B836A85751E021C4EB36002F2608E616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Kaspersky Endpoint Security 10 для Windows (для рабочих станц�
 ```bash
 magnet:?xt=urn:btih:E0A45B06B42F87F5B343D3AFAE78BB4D2B5C96C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6753965D5C7988F0CF0BB7D41E4B84087AC599AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

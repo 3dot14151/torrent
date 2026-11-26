@@ -22,8 +22,7 @@ Wolves Den - Deus Vult (2015) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:C2E84E0C3328B377E0E80A5096D7E3F52362CEC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eagles - Greatest Hits (2011)2CD Compilation/2011,Warner Music Group[FLAC|image 
 ```bash
 magnet:?xt=urn:btih:D424EF00CA6420AB23FC554AFE1726EE843D69B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Manowar - Greatest Hits (2012) 2CD [FLAC|image+.cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:36122BE319D2F259C8EBF33317519DD6CDA10AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Manowar - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:13FA36CD4A9CC52A801D42D1566D9004E8704C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

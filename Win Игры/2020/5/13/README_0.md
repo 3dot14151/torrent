@@ -19,8 +19,7 @@ Castle. Never Judge a Book by Its Cover / Касл. Не судите книгу
 ```bash
 magnet:?xt=urn:btih:C4EB7656E60954E0E45B76373B8230C8AC982BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blitzkrieg 2 Anthology / Антология Блицкриг 2 (2008) [Ru] (1.6.
 ```bash
 magnet:?xt=urn:btih:5DF83CADCE243A181323768017DBAFB2BFB6E95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

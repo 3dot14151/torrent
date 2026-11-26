@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Pioneer Studio 33,5 - Last in 2013 (2013) [MP3|320 кб/с]<Disco, Dance, M
 ```bash
 magnet:?xt=urn:btih:65C27FC9AB5344D8363D34D9A0FF90D5784CBB96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3343E384F5F89479F88E9D0DD80E3B814E4A9505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Pioneer Studio 33,5 - For You The Sun is Shining (2013) [MP3|320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:A90FFB753AB98D3DD1351B7459479ECEF6B253DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D99EFCD7922247536AB16B31EA21E8F7F37370D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FC0336550E8989345D78DA79A557C7265ED768D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ VA - Pioneer Studio 33,5 - I'll Fly With You (2013) [MP3|320 кб/с]<Disco, Dan
 ```bash
 magnet:?xt=urn:btih:AC0B7F2E423A4042FB6FB33ED8461139892902DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CDC1D30C1B7350A6F85CAB516A0B4B6023544F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ VA - Pioneer Studio 33,5 - Back In My Life (2013) [MP3|256 кб/с]<Disco, Dance
 ```bash
 magnet:?xt=urn:btih:92D0CBF23A6F7DD2AF592A6803AAC00AF473D147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:838A840DEBB8B829372AC4330128F8CE3FC3B93D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F863912FC5F7130BE9270990FEF2FA56430C964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77FEA8F4EAFF4F1137383544708A16B3890E9F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ Hair Of The Dog - Rise (2000) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:701DE9CAB5F72595F418C77A41CD77FEFF6CB54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ VA - Pure Vocal Trance (2014) [MP3|320 кб/с] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:73CDCB1702D0C54EAB581D0F56A221282B4B040A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ ScreenFlow 4.5.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:4E00CA1660FE9C321E7DF43671A4562A26652986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ VA - Pioneer Studio 33,5 - And It's Hot the End - The 50th Edition (2013) [MP3|2
 ```bash
 magnet:?xt=urn:btih:8C3CD8318664D0C167D128F6EC5BB167166009B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ Agalloch - The Serpent & the Sphere (2014) [FLAC|Lossless]<Atmospheric Black Met
 ```bash
 magnet:?xt=urn:btih:1B50947FBC261A71A30BC03A5893AD774CA4059B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ Bobby Rush with Blind Dog Smokin' - Decisions (2014) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:D1CEFA53F1847F30D4AAE8B98B73550ECC25A162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ Vader - Tibi Et Igni (2014) Bonus Track Version [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:42B17A26096E323226D3336CCF650A6664AF9301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ VA - Summer Club (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:B33390B3F1022E7BFB89DB83AB89C3E4BFADFC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64F462B40391582B301BE83EA2EDBA5CE3F5CF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:591AC257D5E44C97996EE201D6B7F319E8F40E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ VA - In Trance We Trust 020 (Mixed by Menno de Jong, Mike Saint-Jules & Sneijder
 ```bash
 magnet:?xt=urn:btih:C51D3A5D43BFB85650AB4348BA0DFBD98400FDFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +718,7 @@ VA - Pioneer Studio 33,5 - Boom Boom Boom (2014) [MP3|320 кб/с]<Disco, Dance,
 ```bash
 magnet:?xt=urn:btih:C59401B6DCBE4DA5129F470D0DC5D32704029715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +746,7 @@ Final Cut Library Manager запоминает библиотеки, котор�
 ```bash
 magnet:?xt=urn:btih:9EEAA0371167AF92EDA57862AE27DCF185226FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +780,7 @@ VA - Pioneer Studio 33,5 - Dancing in the Clouds (2014) [MP3|320 кб/с]<Disco,
 ```bash
 magnet:?xt=urn:btih:2A23BE3621EC80FD4EA8C1267CDACE7029F6C014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

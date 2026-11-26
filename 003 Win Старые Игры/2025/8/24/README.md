@@ -19,8 +19,7 @@ The Blackwell Deception (2011) [En] (3.5) License GOG
 ```bash
 magnet:?xt=urn:btih:9879DF79EE44E130A257B2BE5010A64BDE2FAB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Blackwell Legacy – приключенческий квест о молод
 ```bash
 magnet:?xt=urn:btih:DE2B1B1FCBBBA0DEB4BACECF619B3115745A07F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Shadowgate (2014) [En] (1.1.5413) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4B796B20D2426F545ED75A875A4DC52EEBBC585D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Shadowgate (2014) [En] (1.1.5413) Repack Fairlight
 ```bash
 magnet:?xt=urn:btih:4F71D817CF77AADD82E1B28BDCC44ABD0A6E569F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

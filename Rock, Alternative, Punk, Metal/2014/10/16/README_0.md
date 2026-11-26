@@ -26,8 +26,7 @@ Ironbird - Black Mountain (2014) [MP3|320 кб/с]<Hard Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:6060A15FB296D3C6DDA66C32469CB5402664A39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Amederia - Unheard Prayer (2014) [MP3|320 кб/с]<Gothic Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:5CE2BD6F20ECDBE450EC4A2B9AEFF66BCB26D33F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Orange Goblin - Back From The Abyss (2014) Limited Edition [FLAC|Lossless]<Stone
 ```bash
 magnet:?xt=urn:btih:248293FE132BC4FA4ECE8FDA6412D68EF0A50977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Vega - Stereo Messiah (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B68D389E23AB875073EE240FFCC5539F02F1BA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Russel Allen And Jorn Lande - The Great Divide (2014) [MP3|320 кб/с]<Melodic 
 ```bash
 magnet:?xt=urn:btih:5883B4B4F48FBC3E8AD90CC5CE04E947FC0859A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEF764282DC66E0288A6A2039C1BF278E13B5E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ The Doors - Dance On Fire (2014) 2CD [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5C2DB40E81ECC4ED3222035CDE859478499DB0DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:A75C1908FE840D468B8FE40565F9AB68254CDEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Solid State Doctor - позволяет в простой и удобной фо
 ```bash
 magnet:?xt=urn:btih:57012F6AE59AE024DB96A897D93D2D3FA2E5A871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Escape from Darkmoor Manor / Побег От Наследства (2014) [Ru] Un
 ```bash
 magnet:?xt=urn:btih:9F6DD53C20E43A2DA68C058F43976A4A4D512535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Va-банк / Runner Runner (2013) BDRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:E18B5CCB54C0126217E99065AC37C1226E2F2B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6375E834B60D5C7A43C86021EC9E986860D8A751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5432BBB7D13F986FC5769F77952B1842DF6BC64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ The Ratchet & Clank Trilogy HD [PS3] [En] [3.41] [Cobra ODE / E3 ODE PRO ISO] (2
 ```bash
 magnet:?xt=urn:btih:7ED915018606D599C5BA5A37EA03BED2A0249900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Pages - новое слово в работе с текстами! Ощутит�
 ```bash
 magnet:?xt=urn:btih:A739CEF071CE34C6C0107F7519B68CA156BEDB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40567F3DCF860744D3F8EEC04420325BB5533854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A1072600290FFF59DBE41EABFDF3A5728A2E456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ VA - Best Relax. Музыка Для Релакса (2014) [MP3|320 кб/с]<Rel
 ```bash
 magnet:?xt=urn:btih:8849DCAE817F21D656DDF33F75C9E115B072EF23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E4E6033A6CB167ED26BBF32992DF9A0C58520B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Va-банк / Runner Runner (2013) BDRemux [1080p]
 ```bash
 magnet:?xt=urn:btih:3727B1233EF89C37E1F27C2CA75D8DAE28F3DEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8E69887CA4C5E1261BFD11F40407115734E9ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ ATB - Contact (3 CD Original Release) (2014) [MP3|320 кб/с]<Trance , Chillout
 ```bash
 magnet:?xt=urn:btih:5D2F37F1D12C74AA060DC8BE58448DA6E196694C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:668A65F001C23CCA42440CD74EBDFD87C7D96F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Va-банк / Runner Runner (2013) BDRip [720p]
 ```bash
 magnet:?xt=urn:btih:3E0C92118672281D6502102B5EA0E15CD029D066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18C05307E0E458BEFA73E6AC5CA563F97F64FD9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ Photomizer - это программа автоматизированная фо
 ```bash
 magnet:?xt=urn:btih:40B906A6A146C107F02FA99E10D7A6954770F1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ Va-банк / Runner Runner (2013) HDRip [H.264]
 ```bash
 magnet:?xt=urn:btih:4E80FA79BB385A40A87EFEA75E831AA7227925DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8DC3144B14D8375059AF6CBF5AB4FD2A6F6BA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ Va-банк / Runner Runner (2013) BDRip [H.264]
 ```bash
 magnet:?xt=urn:btih:18A95CD4A41A86B1AFF4E168D3AFA2F833902DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51CAF171B6F6066E06B90789C7FB99397B98FE21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Va-банк / Runner Runner (2013) Blu-Ray [1080p]
 ```bash
 magnet:?xt=urn:btih:DCA0920326ECED24F640050ABF52DDB911A5A076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ Actual Window Manager - программный пакет из более чем
 ```bash
 magnet:?xt=urn:btih:3663B658DE7D14A6DA39BE5A7CEAB08D9985F5D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5E17664904AE4151060D746CCDE9726585A2F42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

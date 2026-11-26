@@ -19,8 +19,7 @@ Raiden IV продолжает серию аркадных леталок-стр
 ```bash
 magnet:?xt=urn:btih:C07B84031F9D3C27BEFFC993F898002B9FE2DF13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hack_me – это игра про жизнь обычного хакера. Г�
 ```bash
 magnet:?xt=urn:btih:9898BDB1FE2B320E0F1E823B05BB732DBAD486C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Fahrenheit: Indigo Prophecy Remastered является переизданием
 ```bash
 magnet:?xt=urn:btih:6B21E53391B816B5B42BA38043DC9A10ED298F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

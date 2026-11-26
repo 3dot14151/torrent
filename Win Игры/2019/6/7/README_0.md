@@ -19,8 +19,7 @@ Hidden Fears: Moonlight Edition/Тайные страхи: Moonlight Edition (20
 ```bash
 magnet:?xt=urn:btih:58307CE5F9D68AFC392EC07F673656405160CEE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Distance — атмосферный гоночный платформер. Об�
 ```bash
 magnet:?xt=urn:btih:ED62CDE49660DD42F22B580A48CCD5884A7AE385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RDS - The Official Drift Videogame — это официальная лицен�
 ```bash
 magnet:?xt=urn:btih:C0A09B056367D339727FC93F77D7F9695F55D8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blame him — это приключенческий хоррор от перво
 ```bash
 magnet:?xt=urn:btih:78DCF493013939185B66C8DB08067DBF90EF69DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

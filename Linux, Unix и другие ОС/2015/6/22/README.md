@@ -19,8 +19,7 @@ OpenVMS (англ. Open Virtual Memory System, или просто VMS) — пр
 ```bash
 magnet:?xt=urn:btih:72B174624A4DBD417631436B36559F8311B8CCBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ DriverStore Explorer — это легкий инструмент, которы�
 ```bash
 magnet:?xt=urn:btih:0B9B7E0FFD3235AE8E5C1101283017E390AE0320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD616CB2C6159BCFC1EE40B53AC6DCBE49079A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

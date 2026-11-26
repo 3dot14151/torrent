@@ -19,8 +19,7 @@ Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:CBF237B9EBFB96BA21D3825E9E5CEE78994F7C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reflections of Life 7: Slipping Hope / Отражения жизни 7: Уско
 ```bash
 magnet:?xt=urn:btih:E1BD329046075253A29CCF4BDBC2D47061021EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Labyrinths of the World 9: Lost Island (2019) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:1101EB101F303486F1D8CD9CB5B7C54B25B78DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dave (2018) [Ru/En] (1.0.2) License
 ```bash
 magnet:?xt=urn:btih:2AE94AF373DC8EA7B87D8A687934FDAB7B7C5859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DECA (2018) [En] (0.1) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:47045EE4693DDF1D074A77913B6102B3E563FA0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Halfway – пошаговая стратегическая ролевая иг�
 ```bash
 magnet:?xt=urn:btih:99460AF1813ECB1FE70EA8CC975BB798345EC4AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ When They Arrived (2019) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:4078A94425B88524207608DF17946F28FEB2D96A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

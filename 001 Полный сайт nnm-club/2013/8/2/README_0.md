@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B017091B052872E39D7F35141F4D155E7EAA3FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62CEF1C4926F04B4B6473C3F46EDA7BBD41C7A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Michael Zanabili - Lava (1997) [MP3|320 кб/с]<New Flamenco>
 ```bash
 magnet:?xt=urn:btih:6B40F935F137E1591885DFB5720761FF02B77374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAA8F6FD1B0CCF8C4C9A596B711FC5E0C301A69C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:59CE0E59F1C101C61C4CB021EE215AF9EED653EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Scars Of Life - What We Reflect (2005) [FLAC|Lossless]<Alternative Metal | Nu Me
 ```bash
 magnet:?xt=urn:btih:7C310267D6B74B52CE3D75A1F5E55DD781808573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CC4E128FC8DE80B9A4C45722C4A639EFDD7059B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ SynWrite Editor - мощный текстовый редактор для про
 ```bash
 magnet:?xt=urn:btih:EB90BE88CC15ADB4DF7EC579A42A0C6426B6DE8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B47AB3C9F5DA1E9E2D3B448265FB34AE2E282BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:136771C31C39482B33C9FE5506BC4C10215167E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ DJ Vlad Kardash - Dubstep для Влюбленных (2012) [MP3|192 кб/с]<C
 ```bash
 magnet:?xt=urn:btih:0B31523BC902D66C843293C751DFAB07536AA409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ Fight or Flight - A Life By Design? (Deluxe Edition) (2013) [FLAC|Lossless]<Alt.
 ```bash
 magnet:?xt=urn:btih:84E1B2FD885F027517466DC72D95684033027363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ InfoCity – ежемесячный журнал о компьютерной т�
 ```bash
 magnet:?xt=urn:btih:293CAF4C40B6B73044C1A2AEA3915B635837EB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA85F3ACA83EC9F5BFF93E254A369BA1BD6957A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Wise Disk Cleaner 7.87 Build 557 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:739FDB3C04672B2892AEBB2F27ED961834D9B54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A0F1DB61F173C005643912CF9CD3EB4C53DB247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:223B69F373169414E975793238A2FBF2AA25F0BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:895585D33E15A41AB1A12037D3DBF40B21198973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ Pen Perry - Lost In Deep (2013) [FLAC|Lossless|WEB-DL|100600 12]<NeoTrance>
 ```bash
 magnet:?xt=urn:btih:F283583F5F7D45CB80073A43212155ED09FDE01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Mojosoft BusinessCards MX 4.87 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FD87C8F1F2F819CC9372714B5A49299899E6142F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:B60BF016743E2F427A87316A8A2000D86C6AF978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ Maxthon для Windows использует уникальный двухдви�
 ```bash
 magnet:?xt=urn:btih:8786E2792095C81498B80B803677C7CFF5122BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ Photo Frame Studio предназначена для редактировани�
 ```bash
 magnet:?xt=urn:btih:345C12296DBF03E4B54A5321C731AAB28F1179C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +661,7 @@ VA -Cafe Del Luna - Ibiza Chillout & Lounge (2013) [MP3|320 кб/с]<Chillout, L
 ```bash
 magnet:?xt=urn:btih:1D850EB6955D00D6159CCF76808DC7B31FD4CFA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +695,7 @@ Witherscape - The Inheritance (2013) [FLAC|Lossless]<Progressive Metal/Melodic D
 ```bash
 magnet:?xt=urn:btih:D11101A595CF32E0D13104C552345D68756A0D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +729,7 @@ VA - Lounge & Jazz Erotic Selection The 40 Best Songs To Make Love (2013)[MP3|32
 ```bash
 magnet:?xt=urn:btih:FB1226420EDEC59C205E4A050A00F4A1844DF2EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E277B80511C6B6EAEC76606D553C4DD42C824623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Rone - Bye Bye Macadam (Remixes) (2013) [FLAC|Lossless|WEB-DL]<Techno>
 ```bash
 magnet:?xt=urn:btih:704FF8740AE6EA8CBD5CB39F54B563711D0E25F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:523B3FB6A0CED26E723D17EAA4F2FC8BD1B2CF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Terrorfakt - Cold Steel World (2004) [FLAC|Lossless]<Rhythmic Noise, Industrial,
 ```bash
 magnet:?xt=urn:btih:263FA01DF5A12496742F4CF6B12244C37ECE65F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Forbes пишет об историях успеха и поражений пр�
 ```bash
 magnet:?xt=urn:btih:D0F26C7EDFDF4B65C272AC62E1DA5977F001C112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4A60FE52E0D5A9F7AB1A594B6FCCDD932B21123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Skitch дает вам все инструменты, необходимые д�
 ```bash
 magnet:?xt=urn:btih:CE232AE1496E461FDF9A9C2336B684EF3B2ECC1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Thomas P Heckmann - Dark Matters [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:1AFD7E75B86F6FA8038BE6617B6F1C155DFA77C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ VA - Unearthed 100 (2013) [FLAC|Lossless]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:80CE02ADB168A8E86972BE1E6956204D1F9009FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD405FFFED2363B96B01AC81291662DF71EA385E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ VA - Amsterdam Enhanced (mixed by Ferry Tayle & LTN) (2012) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:34511D436DF600A5D0BCF1FD5CE43CA4691BC05D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ we.own.the.sky - The Glass/Nails EP (2013) Web-Dl [FLAC|Lossless]<Post-Rock, Exp
 ```bash
 magnet:?xt=urn:btih:D6D494746060D9582476FF7AA5A82782915F1474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ Deap Vally - Sistrionix (2013) [FLAC|Lossless]<Indie Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:A5673555AB0385D86B6920A468E53DFE00383CDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ B5 Two Of Us [3:24]Жанр: Art Rock/Pop RockПродолжительность
 ```bash
 magnet:?xt=urn:btih:C6457AA0A86D27C856C8817A7B551A9A2F97A9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ VA - Energy Of Sound Vol.1 (2013) [MP3|320 кб/с]<DubStep, Breaks, Trap>
 ```bash
 magnet:?xt=urn:btih:17CF39E2C2FBA9444871C5C6EE489409051ABE74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ VA - Sunset Lounge (Selected Deep House Chill- Out & Lounge Tracks) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:77D55280B0C34F42F5C676D6B047FA3BE85C84E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6705371B4B12A720D67F4568FE784163BE9D1207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ DJ Hi-Shock - 2EP (2011,2013) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:5D951FF5E215C161E0CE41119D5BE48CAD1E0866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ Divine - Maid In England [Deluxe Remastered Edition] (2013) [MP3|320 кб/с]<Hi
 ```bash
 magnet:?xt=urn:btih:61808D21ABC3FEE97247B7EA3237CD1EDB4B4311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ Blu-ray Player – это лучший, всемирно известный пл
 ```bash
 magnet:?xt=urn:btih:E0753EE0929CCD902BA4170E7329E6D48763CB96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ VA - India meets Dubai - India Cafe Oriental Luxury Sunset Chillout Lounge (2013
 ```bash
 magnet:?xt=urn:btih:4C2354E316B4AEB275463CC7487FDA1920D9AF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ B3 Fool's Overture [10:47]Жанр: Art Rock/Pop Rock/ProgПродолжител
 ```bash
 magnet:?xt=urn:btih:7E1DC7F2533FA448D06E7E9F7595D70804E36F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ Th.e n.d - Annodam 94 (2013) [MP3|320 кб/с]<Downtempo, Breaks, IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:8C7FF1A1CBA41EACC951BEC672A8995ADD768C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ RonyaSoft Poster Designer - легкая в использовании прог�
 ```bash
 magnet:?xt=urn:btih:C298E6131BB841758C7DEB6A470D30FAAAAF10D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D246BC422B560C4759666602790780A37841142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ DVDVideoSoft является независимым разработчиком 
 ```bash
 magnet:?xt=urn:btih:9F02190AC9D883101C001680C480A0B64572F317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

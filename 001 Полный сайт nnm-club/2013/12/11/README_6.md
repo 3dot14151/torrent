@@ -19,8 +19,7 @@ Gomo (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F9CE7386D8B89E86999E91B2997DA5B68C4474F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Zombie Tycoon 2: Brainhov's Revenge (2013) [Ru/Multi] (1.0) SteamRip R.G. GameWo
 ```bash
 magnet:?xt=urn:btih:BFBA9FE8D9A63FDC702D72BA308521FE213F05F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ On Display позволит использовать ваши любимые и�
 ```bash
 magnet:?xt=urn:btih:71AFB71717030D41BECE956D623FEF02D469DB90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D62B4251425706D4F2C7369CA0BC6C57AEA03A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D7FB5D430FA3646DFF0EDB84AF8215E6CC39BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Lupin Sansei: Princess of the Breeze - Kakusareta Kuuchuu Toshi / Люпен Т�
 ```bash
 magnet:?xt=urn:btih:D6233615ACDF006767DA3A7CDAEAFAA6ABB9C6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:134772DCD9B4A5A70162A233433AEEE90779B822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:582FFA4626301DA8CA9DB006588DA6FB456FED11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Хит за хитом. Зимний выпуск (2013) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:0EC01F51053A3A7A252111B6E32C4DBC8EF6C4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB0627B99BAC3ADADC1E2AF34969454C50FCB5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Saints Row 4/IV (2013) [Ru/Multi] (1.0.6.1.1122369/24dlc) SteamRip R.G. Origins 
 ```bash
 magnet:?xt=urn:btih:F2C9F903778014948125F08B04BA8488B0A2CDFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Back To The Future: The Game Episodes 1-5 (2010) [Ru/En] (1.0) Repack R.G. Ме�
 ```bash
 magnet:?xt=urn:btih:BA66AC4C6388D6332D65FA2AB75FA31381694BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:742E9AE39922B0E8ACF896E9AF821F0B4BC32DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ ABBYY Lingvo Dictionary для Mac 1.8 (1.8.1) [En/Ru]
 ```bash
 magnet:?xt=urn:btih:2DDB21AE05893DEC0CE22A88E0E91E63FC7FDC49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48A5A47381C64D92424D39D92665C8DC7A41EA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ ru_windows_8_1_pro_vl_x64_dvd_2972044.isoЯзык интерфейса: русс
 ```bash
 magnet:?xt=urn:btih:B5E641D945C1722D800D17C6E929DA129E76908D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Silent Hill (яп. ‰сайрэнто хиру) — игровая серия �
 ```bash
 magnet:?xt=urn:btih:02B26DA51921FEAEA93B6A7FF59C50E5B1BE3C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mystery Case Files: Dire Grove / За семью печатями. Дайр Гр
 ```bash
 magnet:?xt=urn:btih:899CE80CF7C04EE9FDC3B01B23E56BC8CABC9A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Caribbean Pirate Quest (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:D5C4EBF953D3F388825E3F95F9579A54711591E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Haunting Mysteries: Island of Lost Souls Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:D2CC1C86B43F791241889ECC83B600D8E037E04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Top Secret Finders (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:726BB8B502D5F12A83A3D6E2F815F5F30B6AE445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

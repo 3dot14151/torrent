@@ -20,8 +20,7 @@ B1 - The MessageЖанр: Death Metal, Ambient, Progressive MetalПродолж�
 ```bash
 magnet:?xt=urn:btih:CAEF53C8D9392704DEDE2EC2EDD598E3C36B976D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

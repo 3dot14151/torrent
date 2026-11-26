@@ -18,8 +18,7 @@ Cyberfox 38.0.1 for AMD + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8E74D465C6D99081FA1581C86BB85D830ABF9128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Piano Concerto No.2 in G major, op.44
 ```bash
 magnet:?xt=urn:btih:3E41320424A29E61BC330BF8E66C0C202FA55CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:7EACD0D32E7A26964A10C9DBE51938A2D2C4A188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ xrecode II – уникальный конвертер аудио , снабже
 ```bash
 magnet:?xt=urn:btih:4111F5123F3356EE1036149B7C85771095F0A163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Avicii - Ultra Music Festival (2015) + Full Continuous Mix [MP3|320 кб/с]<Dan
 ```bash
 magnet:?xt=urn:btih:56158BDF906E1088C4CD47E1616C9E6800313013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Trickfinger (John Frusciante) - Trickfinger (2015) [FLAC|Lossless|Web-DL] <Elect
 ```bash
 magnet:?xt=urn:btih:8C02E2DF990587C01206C0B366632E7E3DFA8125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ WebCamMax - продвинутая утилита для работы с веб-
 ```bash
 magnet:?xt=urn:btih:5C3A9EC22AE5B6E5E7EA8D18CBA63325F8A24C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50E9A867FC81A9712D17DBD179AC2CE020DB83D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7B9DFD2DE6B7A87B40A4DC3AB9B4A60270B0A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Noiseless Pro вдыхает новую жизнь в каждую фотогр�
 ```bash
 magnet:?xt=urn:btih:565E8E47310B6D885586CABCD10FB9ADF03BEAEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Registry Winner - утилита для очистки реестра, кото�
 ```bash
 magnet:?xt=urn:btih:E868D36EDD61CC658EB17877041BC6369836C451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ EximiousSoft GIF Creator - мощная, надежная и простая в �
 ```bash
 magnet:?xt=urn:btih:B7983C3D019FD86ACEEB28FA8DE5D3325F9BB8FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:67C4B3E8B5D632CE8C39136FC17FC9E9A59CA756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 ```bash
 magnet:?xt=urn:btih:0015B3895BE2526A0CBF5C5FCDF78D20F9B17BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B663FF0C6AF90E421310CAB7977C28B10E3A340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Folder Organizer 3.6.7.3+3.6.7.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:758F4C3A4B39EF4E5815F981E69D734A9F014CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Savage Garden - Super Hits Collection (2014) [MP3|320 кб/с]<Pop , Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:2E7389BF1E704EDA041B3C2E09EF1CB7AA543CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A3F356F474EAE4639F0465882129161AD68DD66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:007EDDFC0E2C1DFF8794F575112493F26321137D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ X-Mouse Button Control (XMBC) позволяет создавать профил
 ```bash
 magnet:?xt=urn:btih:30C30A8C304974C8599D96DB18CED887F650FB98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ VA - Beautiful Ballads (2003) [FLAC|Lossless]<Pop, Rock, Ballads>
 ```bash
 magnet:?xt=urn:btih:733E01ABD7F02574EB69BAA34EE79F49F590D9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:358A737E0F90CFD6E43AB12E27938A19937814C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +585,7 @@ Auto Memory Cleaner – после покупки телефона всё раб
 ```bash
 magnet:?xt=urn:btih:DC60273B7CB98274B0EE220E1ABAAA361F56DF50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ Cyberfox 38.0.1 for Intel + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:61F11B2F0BCC27267D3145C3A111C15E0EA21D94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +635,7 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:4CE4E8678365939F6CEAD0947813826247F95A3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54A4483AC282429E1E902712FF53291498C11503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

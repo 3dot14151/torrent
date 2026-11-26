@@ -19,8 +19,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 ```bash
 magnet:?xt=urn:btih:F46E4FFE4102B2767BB47AE4757575CF6E01F250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.4) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5D1F745BA50F6F568E1FEB5621287E0B205F4A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stronghold Crusader (2025) [Ru/Multi] (1.00) Repack FitGirl [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:A133EC46E14CEBABB911D048101071A6E6DEF2BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:171B382B4A9C6A9A231AD520F1821F78D38AA8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ready or Not (2023) [Ru/Multi] (Build 19222255/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:442C479AE4506BFD145485E3E6DDE419C0AF684C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ready or Not (2023) [Ru/Multi] (88602/dlc) Repack FitGirl [LSPD Bundle - Censore
 ```bash
 magnet:?xt=urn:btih:3096EC520AE6EEE2314874ABFCF808D02A1697BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

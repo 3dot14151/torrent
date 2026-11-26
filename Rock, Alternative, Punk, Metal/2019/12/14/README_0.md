@@ -22,8 +22,7 @@ Act Of God - The Place Of Worship (2005) [FLAC|Lossless|image + .cue] <Black Met
 ```bash
 magnet:?xt=urn:btih:F585B6459E2FC30E521DBF92AD3EA2E45AF34C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Prism - Канадская рок-группа, образованная в Ва
 ```bash
 magnet:?xt=urn:btih:00913F089C7EB3CE6A2E7E00E591294AED7BF128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD4 - Live Recordings 1987 & 1994 / Unreleased Studio Material(   Читать �
 ```bash
 magnet:?xt=urn:btih:7FB9920BB83B8DE7BD045728BCB8422B2F71CA7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (6.00.114/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DF7EE8731C0377F8BE789C2ACF7962605936867B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7304B2EFFC6B12E12DF10029874EE0A6FE9E8F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Katanaut - это экшн-рогалик, в котором главный ге
 ```bash
 magnet:?xt=urn:btih:E6279083454B028AE446FAEF90C68A12DF7574FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C135356846F01A13CCEA24D9BCE21DADC5B45183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kingdom Rush 5: Alliance TD бросает вас в мир, где враги �
 ```bash
 magnet:?xt=urn:btih:D70BBBD490A65BB14B69175D4DB71CF6961E1EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Monolith (2023) [Ru/Multi] (1.1.7.001) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1F9A6ADB647489D973B1587CDC802E1BEECE3423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ One Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 ```bash
 magnet:?xt=urn:btih:3228CF829D66A60B99DAD2A862515147CB799411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Soundt
 ```bash
 magnet:?xt=urn:btih:40E5FBD0ACFE1799A7FFC292F700F08E8BEF7ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Greedland - это игра, предоставляющая поклонника
 ```bash
 magnet:?xt=urn:btih:ABDA790DDDC5B4E879CD8CAC1CD59915D5710573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Hades II (2024) [Ru/Multi] (1.131346) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:35D863CA2364F103478223D4A13F3853AA448BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11564 HF2)/dlc) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:0E870A851AB1CD52B3AC6144ED5635DA511C2648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Circus of Pain (2025) [Ru/Multi] (1.02) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:48A0F81D511507A1433CB16E6D8AF4E2ACD949A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Platypus Reclayed (2025) [Ru/Multi] (1.1.7) Repack Let'sPlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F96FDCC82E745FA622214CD7252A750B5A4AB3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ SOMA - научно-фантастический хоррор от Frictional Ga
 ```bash
 magnet:?xt=urn:btih:785FFBE1D772E6931C8092855053138E4888335F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:5B232C45F5B20079F051C7CB25574D21FD765435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:4188C95DAA0B0BFBEF92612C609DA33B8BE34883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:424D8C126DAA3E2C02E74432A4DE17952BAD4456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Icebound Secrets 2: Soul Hunter (2025) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:0A6E14C7CD469435CFCD5F6744385350DC22F9A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

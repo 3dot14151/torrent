@@ -28,8 +28,7 @@ WitchcrafT - 3 Albums (2008-2013) [FLAC|Lossless]<Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4955A3CE100C437219A90ED901D77A5482BD93D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

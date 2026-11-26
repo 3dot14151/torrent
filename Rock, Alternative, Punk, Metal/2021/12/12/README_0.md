@@ -22,8 +22,7 @@ Mygrain - Orbit Dance (2006) [APE|Lossless|image + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2E1E021E3EB6A19E332368E7113C66E698565F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Baltak - Kral Na Dva Svetoj (King Of Two Worlds) (2000) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:24E54A6DC1D735F93B89D5D999F98C4622911362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mygrain - Signs Of Existence (2008) [APE|Lossless|image + .cue] <Melodic Death M
 ```bash
 magnet:?xt=urn:btih:3C4278A5023FE425728949B80E2E757014766D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ MyGrain - MyGrain (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:142B9881989DC73688E9906E3439995209DA171E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Doctor Smoke - Dreamers and the Dead (2021) [FLAC|Lossless|image + .cue] <Doom M
 ```bash
 magnet:?xt=urn:btih:74C149762DF4A638808FC4C973152FA3BCE6A45E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ex Deo - The Thirteen Years Of Nero (2021) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:A30525BB640703B4F4EC2517B0D4C70C4320A636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AF60428F6F1924395967DC9DC2FBDFD35690E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Neil Young With Crazy Horse - Barn (2021) [FLAC|Lossless|track+.cue] <Country Ro
 ```bash
 magnet:?xt=urn:btih:27CF0A93CCA9270153E66C7B80D0A1530E30B904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Omega - Testamentum (Búcsúztató) (2021) Maxi Single [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:3F5C93F7DCD807F98A1A33B05106D31CFB26A560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Lacuna Coil - Live From The Apocalypse (2021) [FLAC|Lossless|image + .cue] <Goth
 ```bash
 magnet:?xt=urn:btih:5A0DCA39610C4CF39F1C4B11CBFDF2C7745A1D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Coronatus - немецкая симфо-готик-метал-группа, сф
 ```bash
 magnet:?xt=urn:btih:6E4951358D7E77FAD18C7DAD4C0E66810B721577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Lee Aaron - Almost Christmas (2020) Reissue, 2021, Big Sister Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:63DDB41DF5F86A72F58DC319EC3D30B37421A16B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ CD - 1 - Servant Of The Mind:
 ```bash
 magnet:?xt=urn:btih:8C2881F1CD14FEE51FC4EB5F91A449A7767E5F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ The Tea Party - Blood Moon Rising (2021) Compilation [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:7EE551291CF395A092DE730DE8C1E3BFB00A911E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

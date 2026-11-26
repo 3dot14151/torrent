@@ -19,8 +19,7 @@ Zoonomaly - оригинальный хоррор от первого лица, 
 ```bash
 magnet:?xt=urn:btih:E6E3D571FB82DBD046294EB67CEB972A16ADE491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ YOKO (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BE94EB460429AA8E57B40EE2E651ECE4D97B63FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ House Flipper 2 (2023) [Ru/Multi] (13653866/dlc) Repack Other s [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:75900349694C5786EAAE64150059B07B06230021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

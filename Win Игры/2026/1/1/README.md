@@ -19,8 +19,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.3725.0/1.72) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8D003359419C09B9E7202044D7F8738A9CE496E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FIFA 22 - спортивный симулятор, фундаментальны�
 ```bash
 magnet:?xt=urn:btih:DD1E1A18E176671FF40C0FD00FEEAB0469A12BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FIFA 22 - спортивный симулятор, фундаментальны�
 ```bash
 magnet:?xt=urn:btih:32E54AFDA93254166EA1754DA9B23B97BC82E2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

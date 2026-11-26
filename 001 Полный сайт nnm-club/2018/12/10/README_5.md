@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FA933EE6D990CDAA158487DB34CE2CFBC9AEF62D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Dying Light - экшн-игра на выживание от первого ли
 ```bash
 magnet:?xt=urn:btih:9DD872178A1138D182ABB906D99A3F0D68688AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Stand Up (2018) HDTV [H.264/1080p-LQ] (сезон 6, выпуск 1-15 из ?) (
 ```bash
 magnet:?xt=urn:btih:551EA944F5A07E5F149876339E9888D39A75B923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Shadow of the Tomb Raider — финал трилогии о становлен�
 ```bash
 magnet:?xt=urn:btih:A45685F5FA8945596FB3DDD06FAB9DDC187B4BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3232B40AE3D21E79ED45B039D255E75A0C6009E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35F6FBB51F676B307494BF87DE97676AC473C179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

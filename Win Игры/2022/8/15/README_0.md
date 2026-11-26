@@ -19,8 +19,7 @@ Best Forklift Operator — уникальная игра про управлен
 ```bash
 magnet:?xt=urn:btih:043FEE171342CA6C676DCA8A6BBF337ABEE687E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

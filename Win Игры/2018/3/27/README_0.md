@@ -19,8 +19,7 @@ Immortal Love 4: Black Lotus / Бессмертная любовь 4: Черны
 ```bash
 magnet:?xt=urn:btih:6CD714BC35D810948D036D00A0AB8AA0772E48BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Licen
 ```bash
 magnet:?xt=urn:btih:B7A3BC90E88A4F180C6743B2CA19761D7689FCD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

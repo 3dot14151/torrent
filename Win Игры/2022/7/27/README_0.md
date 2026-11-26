@@ -19,8 +19,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9V) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1B8D7E209D773B6AD0FA2D09CD7B4C6E502873DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

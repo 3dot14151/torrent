@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2977ACAC8547EC0F0B71C35B24BC18E34B9CB274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Nero 2014 предлагает целый набор полезных и про�
 ```bash
 magnet:?xt=urn:btih:C81487C42FF34622B42C153754B236AC266E2DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53A4475791FD5AE775CBB05FDC16C063234AB3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Brutal Legend — это нестандартный, совершенно без
 ```bash
 magnet:?xt=urn:btih:C7CC81C96D5BCFDC3F35D0363426310743F506BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:618705561B466DD95A4153701335271657CE3445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35D34581A91317DF41CE2921B7FED04BC0EF9BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Ru и En отдельными ISO файлами.Формат: FB2
 ```bash
 magnet:?xt=urn:btih:321FAE1D6F7D24ADD7999BC570195F4E387A3555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Shin Angyo(u) Onshi | Blade of the Phantom Master | Повелитель при�
 ```bash
 magnet:?xt=urn:btih:6C29C992E7A29BA4DBBA0A252D9D38D7B864632B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

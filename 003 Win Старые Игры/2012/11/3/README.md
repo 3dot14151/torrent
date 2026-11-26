@@ -20,8 +20,7 @@ Reah: Face the Unknown [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:30504B613426FA57C876A71FBD2FDD952A71C9A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Twisted Metal 2 [Ru] (P) 1996
 ```bash
 magnet:?xt=urn:btih:F2E809C7C0428D4D40267EB8AA1BBACF61CC03C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

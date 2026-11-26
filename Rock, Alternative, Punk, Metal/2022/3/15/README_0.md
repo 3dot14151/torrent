@@ -22,8 +22,7 @@ Ork Bastards - Warmongers Of The Gloomy Lands (2019) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:9A0B85E6F284403A356DD637A77704920AB32902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ King Gizzard & The Lizard Wizard - The Dripping Tap (2022) [FLAC 2.0|48/24|WEB-D
 ```bash
 magnet:?xt=urn:btih:A2F9A5F53F2DC366BF3A3B62FCEE485C1F1145F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Konvent - Call Down the Sun (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Death Doom 
 ```bash
 magnet:?xt=urn:btih:3CD37A70841818ED5ABEA4C1A7CBED1B627A1398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Cloven Hoof - Time Assassin (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:89D0A425FBCAC2B17483705226FA2156C5037BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Wolves At The Gate - Eulogies (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:D84B62EAD4F311AD5AF7433E6F4F67D580910BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Within Temptation - The Heart Of Everything (2007) 4CD, 2022, Special Edition [M
 ```bash
 magnet:?xt=urn:btih:559BD303AB144CDE5B7372EE5EE54469EBAD7994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Rock Reel (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:0476332C60810C0DC76FD9342F0FDABD8F75F9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Moon Halo - Together Again (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Progressive 
 ```bash
 magnet:?xt=urn:btih:7B03FA7D81AE8018D01FDCBEED6A1B008EA05208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

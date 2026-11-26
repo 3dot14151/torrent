@@ -19,8 +19,7 @@ Vivisector: Beast Within / Вивисектор: Зверь внутри [Ru] (R
 ```bash
 magnet:?xt=urn:btih:B6B4F51945973C951593AE320E532FD2629DBA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

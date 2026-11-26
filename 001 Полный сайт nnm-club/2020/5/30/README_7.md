@@ -21,8 +21,7 @@ Jotunspor - Gleipnirs Smeder (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:D31DDB687FBC49580D9F8BA60E93348279DEFF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Aurica - Pride Of Immortals (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:F1E32FBECF76BA880EFB636ABBEB761592E4D702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 ```bash
 magnet:?xt=urn:btih:F456C55F50DADB3B628E9611113B87CA8D030AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ The Beau Brummels - Triangle (1967) Reissue, 1993, Warner Bros. [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:CF7BD8098B1531D7CC7531ED96311E321F786BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Cleo Laine - Portrait Of A Song Stylist (1989) The Harmony Collection [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:A44876506BD0592156CC24CE4E6F3EEDDA4950EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

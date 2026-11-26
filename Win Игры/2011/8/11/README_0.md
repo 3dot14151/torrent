@@ -19,8 +19,7 @@ Azada / Azada: Книга тайн (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:163BFE71BA075887EDDC702347CF1942DAB035F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Farm Frenzy: Viking  / Веселая ферма. Викинги (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:DEB0F6B7E50F6F81BA9990CE6746C73FF5DE9C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

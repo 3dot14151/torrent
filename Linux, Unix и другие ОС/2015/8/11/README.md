@@ -19,8 +19,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:E1C7FA152CD4F666D49464B99B9105BFF1D960BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ NAS4Free основана на ОС FreeBSD, поддерживает обмен
 ```bash
 magnet:?xt=urn:btih:FE0EBDFEF4A294077D3404ADBE02F173B03E1866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Bio-Linux 8 является полнофункциональным, мощны�
 ```bash
 magnet:?xt=urn:btih:10D3D5B6225A84170F8569E1DF92FD5F7F77FB7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

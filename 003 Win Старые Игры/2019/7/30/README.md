@@ -19,8 +19,7 @@ Theme Park (1994) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:07E04C595FF2C62AB7A140419A7DD7F1E94DF02E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D9B72AD42AE9BE52989546ADE2723ECD4065376A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Genius Art: Image AI Generator v1.2.5 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A5EBB2BE594FBBB9931C6A6C6B93242A6E2404FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

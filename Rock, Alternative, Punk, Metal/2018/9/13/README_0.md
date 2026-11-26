@@ -22,8 +22,7 @@ Carnation - Chapel Of Abhorrence (2018) [FLAC|Lossless|image + .cue] <Death Meta
 ```bash
 magnet:?xt=urn:btih:75BBBB79568405AC3CF88CF7CE22468CBF3939B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ CD3 - 00:53:33
 ```bash
 magnet:?xt=urn:btih:9F3AF831B1A79E2682726C791C28508C00ECCA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ CD3 - 00:37:55
 ```bash
 magnet:?xt=urn:btih:12207EE6CDD8D7DD1F31F0E88568FEAC01898338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Dream Theater - Images And Words (1992) [FLAC|Lossless|tracks + .cue] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:05095DC68E54FBAAA4C1F975A8AC952B9A802077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Rammstein - Verbrannte Erde (Der Arena, Berlin-Treptow - 27.09.1996) Live Bootle
 ```bash
 magnet:?xt=urn:btih:E193D92CFBB18181FC5509645D17CB4F99640F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Metallica - Live In Lisbon - Altice Arena - Portugal - February 1st (2018) [FLAC
 ```bash
 magnet:?xt=urn:btih:37A2BCF19BDC8B596173E5BC3DC3185D9CDB11B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ The Heavy's - проект швейцарских музыкантов. В 1989 
 ```bash
 magnet:?xt=urn:btih:63D541713112179ED4722AC2B576DD526A3532E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:D3E67601407FCDDBC2C35759DC535381DAAF33CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Top of the Pops 2 - 70`s rock (2001) 2CD[FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Stone Sour - House Of Gold & Bones, Part 1 (2012) [MP3|320kbps] <Alternative Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

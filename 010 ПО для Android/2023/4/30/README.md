@@ -19,8 +19,7 @@ Colorfy - это раскраска, призванная помочь вам у
 ```bash
 magnet:?xt=urn:btih:60322C50781BB3BDF33112E187982A04564BA181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dual Space — Multiple Accounts & App Cloner — невероятно поле�
 ```bash
 magnet:?xt=urn:btih:F2DE80FCE26B2BB1D66343DF5C0752AFAED2EE19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Telegram — это облачный мессенджер для мобильн�
 ```bash
 magnet:?xt=urn:btih:4013E0DBFB925924C943116613B8945F09EBDB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Text Scanner [OCR] v9.9.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1EC39894A56E20994A721752C9C1C46288E76BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rock Identifier - Stone ID v2.3.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8E0A0F89BE0A722BD95C11A21ACA2CCD9FB4940F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bikemap: велотрекер и маршруты v19.1.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2B47BCCF113A5F4B15DF8B696A5CFF5F922687BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

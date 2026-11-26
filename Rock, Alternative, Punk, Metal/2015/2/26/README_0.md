@@ -23,8 +23,7 @@ Blackberry Smoke - Holding All The Roses (2015) [FLAC|Lossless]<Southern Rock>
 ```bash
 magnet:?xt=urn:btih:C699CCA575E3BE07717D71E82B3F32339CF42807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Like A Storm - Awaken The Fire (2015) [MP3|320 кб/с] <Alt. Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:AF7EB81F1D6A47D5F7AE61F8B8C84E307E88B3C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ The Storyteller - Sacred Fire (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:61381B51C51C95D8779FD6E71D55CF8212CFC830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:DD88C2996007526FFD7B3F88E0D6FFE6C3D76077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Pink Floyd - Psychedelic Folk Songs (2014) Bootleg [MP3|320 кб/с]<Progressive
 ```bash
 magnet:?xt=urn:btih:46980304FE2BD3094B783B9D189E0FBF54442C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Black Star Riders - The Killer Instinct (2015) 2CD, Limited Edition [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:A0A2372CFEB3190000051E28D8679FE84239390E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ All That Remains - The Order Of Things (2015) [MP3|~277 кб/с (VBR V0)]<Melodi
 ```bash
 magnet:?xt=urn:btih:D7EECCB4F4D2AB1627C619C92BE2793A77978637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

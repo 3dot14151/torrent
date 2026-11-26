@@ -19,8 +19,7 @@ J.U.L.I.A. - Among The Stars (2014) [En/Ge] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:567DDB801D98C5172ECD1C11C29061614E0710BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Constructor (2017) [Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B6B7B07B09AB2DF230A522C1785A3F171CBDF446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bunker 58 (2017) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:28B97852F5AF98F1E7BD8E0BBD275D0ADF3C34C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

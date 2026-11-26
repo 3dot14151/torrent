@@ -19,8 +19,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/Multi] (1.9.446/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2E0551957FB4E5C451F9DF54D234EC5D691B7AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

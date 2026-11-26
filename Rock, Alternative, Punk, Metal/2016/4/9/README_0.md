@@ -22,8 +22,7 @@ Accuser - The Forlorn Divide (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:025600522DD3517AF3176D81D77D19253CE6C93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Artillery - Penalty By Perception (2016) Limited Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:CE875F713A71E455B0F4F4A1650E031250976B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ HMR - Ад Уже Здесь (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:49C01F0282032A49AD3EAB3860EBE552A9F6A95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:5A4251B207D25172169F83E03E7809628E1E5791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Nuggets II - Original Artyfacts From The British Empire And Beyond 1964-196
 ```bash
 magnet:?xt=urn:btih:ABA8981467801323C89B8A672A0686CC02F225D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Robert Palmer - Rhythm & Blues (1999) [FLAC|Lossless|image + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:290DC6C113DD6FC47AFCE5541197584EE9E0A276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Zakk Wylde - Book of Shadows II (2016) [MP3|320 кб/с] <Southern Rock>
 ```bash
 magnet:?xt=urn:btih:1F435E0A97DF024F01B26936C41B00978BA4247D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Cheap Trick - Bang, Zoom, Crazy... Hello (2016) [FLAC|Lossless|tracks + .cue] <R
 ```bash
 magnet:?xt=urn:btih:6BF2D031BAF48716D0E345857BD0BE813392C3EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Striker - Stand In The Fire (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Sp
 ```bash
 magnet:?xt=urn:btih:4590E6949F1FEB99937847252BF10682D036ABED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Guitar Legends - The Original Guitar Pioneers (2015) [MP3|320 кб/с] <Roc
 ```bash
 magnet:?xt=urn:btih:2561CD98BC24534B402EBC6345009A58970FC2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ X4: Foundations - долгожданное продолжение успешно
 ```bash
 magnet:?xt=urn:btih:17296E4C66ECAFDAAF46F94B3C829FA12125AA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ```bash
 magnet:?xt=urn:btih:75B4A6D93ED95F1AE0F484BCD4C08B795DA8CAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Master of Orion предлагает игрокам исследовать бе�
 ```bash
 magnet:?xt=urn:btih:13B03ABD285E911CF5BBED0F1A12EC5F150A806A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B09F9FD0EA720DC8F58898AD771F14B6AB931424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9C66BBDD44AA116D29652D29981DA771BC7BF9AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:6A1FED149976931274B27F409B177E4F3D6A4FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Crisis Core Final Fantasy VII Reunion (2022) [Ru/Multi] (1.03) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:2C429A77596A453249EB0EA6C8511C658F19BDA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Shumi Come Home - это очаровательная приключенческ
 ```bash
 magnet:?xt=urn:btih:CA7286260169FE27423F46E782153A2830AF54C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Fallout 3 - это сочетание шутера от первого лица,
 ```bash
 magnet:?xt=urn:btih:98EB4334E0DABBC7E97266DE55B57BDFF55FCA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A1E94C2357853B967936092E0B2D3C582000FB5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:3703E87AE71130C85C5E743A739C0FB71D84EFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.4
 ```bash
 magnet:?xt=urn:btih:23CE7282B8B928D2921186119DC632F2E80B9457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B0B59AFBC087F1730662EC0F55432082A90F1D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Ru/Multi] (Build 12545762/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:2D35C3FD24D88F4D4E929405B16D5865F957905D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Riders Republic (2021) [Ru/Multi] (1.26.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E72F6E0B405755F086E9E2B6627CD89FAF597B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9D3D89FB875C9B8997CCDF92FDA2B774D3E991D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Flash Doll / Светящаяся кукла (2025) [Ru/Multi] (1.0) Repack FitG
 ```bash
 magnet:?xt=urn:btih:669D0ABCD6845CE51E12D5B027987E2473CDD363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Piczle Cross: Rune Factory (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C6C6C273B8D550405A7E532623E36973FE550F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Aground (2020) [Ru/Multi] (2.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:331CC75A3F2858146AEAA5161D39A43FF4EE48E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Cabernet - ролевая 2D-игра в антураже Восточной Е�
 ```bash
 magnet:?xt=urn:btih:D30E6E6293CAB11631720E9DE49B8FF9610B1920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

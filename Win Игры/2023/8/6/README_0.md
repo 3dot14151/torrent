@@ -19,8 +19,7 @@ Age of Wonders III (3) (2014) [Ru/Multi] (1.802fix/dlc) License GOG [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:672327902A329B12E96F93716BCA443B076C70CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Full Moon Rush - это энергичный скролл-шутер, в кот�
 ```bash
 magnet:?xt=urn:btih:03D88E54FB93F037C668C912076E372E26CB06C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Probo Rush захватывающая и насыщенная действиям
 ```bash
 magnet:?xt=urn:btih:9808944124E7B8331DEC0CDC3C4B6AF53C69FF16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mystical Riddles 3: Ship From Beyond / Мистические загадки 3: 
 ```bash
 magnet:?xt=urn:btih:2FC08C72BB1A68C5C0B205BC0715FE3D0CF8A982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ WWE 2K23 – это симулятор профессионального рес
 ```bash
 magnet:?xt=urn:btih:D1786D8FE224F2A011D26C7C0848B21D41049682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 ```bash
 magnet:?xt=urn:btih:8540F5D5778D28C1A9E4576BF2EF50350822A742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ DROS - игра, повествующая о маловероятном сотр
 ```bash
 magnet:?xt=urn:btih:B78AEA1FD2BF43F98C4A0DD62E277FCD6B03984B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Stillborn Slayer (2023) [Ru/En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:DD258E09D9F862D45FB433654553B46935B0D931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D400C09EC2912398A3C1E409C8F9D3E48CC0FBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:F2E05E250CF306B75168FEE04B106B60E8368526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

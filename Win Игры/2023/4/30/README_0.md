@@ -19,8 +19,7 @@ Organs Please – стратегическая видеоигра с элеме�
 ```bash
 magnet:?xt=urn:btih:33FE5E27CE695519889E08577BD0FDB2F7C2CF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

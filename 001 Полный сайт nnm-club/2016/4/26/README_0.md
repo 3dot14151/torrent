@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:69D0F8C9ED8698113018E9100AE4406324229FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dave Weckl Band - Transition (2000) [APE|Lossless|image + .cue] <Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:636F1A7F759B025BCA12F255639DABD0676915C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Trancemission Miami (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:D127061D1C19FCF493381DEE45E66060228A3C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Top Sexy House Electro (2016) [MP3|320 кб/с] <House, Electro House>
 ```bash
 magnet:?xt=urn:btih:CB11C879F0AA78A7370F2A1F85C9039502ECD9CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B884E6FBD6BFB29FD18F8B8031848496A1271CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4406C2E0FAC2E7582C54A59DE7979C426CD9E0A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:076394DB6D9F977081DC9A05A3BF9D58F733DC5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Billy Cobham's Culturemix - Colours (2004) [APE|Lossless|image + .cue] <Jazz, Fu
 ```bash
 magnet:?xt=urn:btih:10B847B7623B0A9D73AF32B17E38929E5C501B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E34FB9E4B355F11A407B4CCF47CDACA02EB756A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ SlimBrowser 7.00 Build 143 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:90B3C11A2BF2420B87ED231ADCAAA08DFCB9C3D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ VA - Urban Gloss Top 100 DJ (2016) [MP3|320 кб/с] <Dance, Club House, Electro
 ```bash
 magnet:?xt=urn:btih:2365881AFD5607F71AADDF8CF5959CC5FB91E8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:FC5F10A703004CC22A666F84A69C16F5E3136C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ VA - Trance Top 1000 Selection 039 (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:EF77BE54BBC1A5C933EDDD0FAAA214BB2BE0597A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ The Bluesbones - Live at the Bosuil (2013) [FLAC|Lossless|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:18D6FF272D765085020D63341D529FB6057AFFBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9364AB697A33AC4CF81AB3453F7FF22BBC691157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ Fileloupe - cамый быстрый способ, чтобы просмотре
 ```bash
 magnet:?xt=urn:btih:E4B2DD24D2FBF61D1A3BC60F5249FD9D9C630E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBDA038185E0122B6BCB85B7D66313E56CE4AD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Kris Barras Band - Lucky 13 (2016) [MP3|320 кб/с] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7761846648A39DD5F2020194E90616F963A987D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ VA - Music For Everyone - Trance Vol.4 (2016) [MP3|320 кб/с] <Trance, Uplifti
 ```bash
 magnet:?xt=urn:btih:213BBEF806AC837B4AFA2036C579D45D9256464E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A53E614A75F0237177305E2ECCD5ED6CF5DBD965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:425B9812E856A94BBCA4759C29C4ED6A9D2642CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B1A8FD7D685BC433E00072BF34828EBA08278D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55DF61949E789D25E9B2FE6CA885D033F01BE604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F1469768CCA47748556DA89475B5ECA9BBC2DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ Dino Solera - Classically Dino Solera (1977) [MP3|320 кб/с] <Disco, Funk, Sou
 ```bash
 magnet:?xt=urn:btih:54FC005E97547255D6C6C2E4DA22BBCEB9591665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ Total Video Converter Pro = Аудио/видео-конвертер + Прог�
 ```bash
 magnet:?xt=urn:btih:112CC0880DEC11316D13B9BA288DF0AB83472769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

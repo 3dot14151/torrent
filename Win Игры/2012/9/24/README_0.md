@@ -19,8 +19,7 @@ Dark Parables 4: The Red Riding Hood Sisters. Collector's Edition / Темные
 ```bash
 magnet:?xt=urn:btih:C2DD5DFA0401A81D46FF5692A76D71F1380348F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Parables 4: The Red Riding Hood Sisters. Collector's Edition / Темные
 ```bash
 magnet:?xt=urn:btih:41C53D5DE409664A5B2DECE6E1193EEADDB96A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Air Conflicts: Pacific Carriers – это совершенно новый ти�
 ```bash
 magnet:?xt=urn:btih:267DEB7301865803594F6CAC3CC873BC7704783F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Rage: Anarchy Edition [Multi3/+] (Steam-Rip/1.0.29.712) 2011 | R.G. Игрома
 ```bash
 magnet:?xt=urn:btih:3A5E5727D94CCE22CE79390DFCD5B9D28EEBF193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Nancy Drew: The Deadly Device [En] (L) 2012 | HI2U
 ```bash
 magnet:?xt=urn:btih:F8AC3335954107CEB46441AD2E0FCCEAA1A647B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

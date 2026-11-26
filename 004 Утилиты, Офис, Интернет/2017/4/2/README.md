@@ -20,8 +20,7 @@ Becky! Internet Mail - это почтовая программа японско
 ```bash
 magnet:?xt=urn:btih:8F594A3103E1EF0D2095C25913B5DC783A4DE38F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

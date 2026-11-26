@@ -22,8 +22,7 @@ A4 Frances Farmer Will Have Her Revenge On Seattle(   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:433A63E1A14CD5E775E84F316C7F90EB5D3348DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

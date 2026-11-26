@@ -19,8 +19,7 @@ Outer Heaven - название хорошо вооружённой страны
 ```bash
 magnet:?xt=urn:btih:C2F3B099B3ED95B814632BA694E26A8C64F71998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Batman: Arkham Asylum (2009) [Multi] (1.1) License GOG [Game of the Year Edition
 ```bash
 magnet:?xt=urn:btih:ADA9A92D01DA64264055DB89B27658A622C0A1D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:06DCBB967A332C211355C13BE45DB437C7D6FD3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Batman: Arkham City (2012) [Ru/Multi] (1.1/dlc) License GOG [Game of the Year Ed
 ```bash
 magnet:?xt=urn:btih:4FCF06CE66E5A42D79E7D9BD8CB2F21450CB3F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

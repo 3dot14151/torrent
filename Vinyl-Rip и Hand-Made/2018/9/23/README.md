@@ -22,8 +22,7 @@ A4 Белые Крылья(   Читать дальше...   )Жанр: PopПр�
 ```bash
 magnet:?xt=urn:btih:A0B005C39F9CA7D9D58D742A9593ABB00646151C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

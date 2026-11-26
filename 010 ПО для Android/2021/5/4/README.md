@@ -19,8 +19,7 @@ Classic Notes - это намного больше, чем стандартны�
 ```bash
 magnet:?xt=urn:btih:98CCD773A11F185DC0C8B40CFC0E1B70D128B12E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Voicella — это лучший инструмент для перевода р
 ```bash
 magnet:?xt=urn:btih:D6423F9DE7A6CBDB35A5B162F71C041116F20472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VIP electronics - это незаменимый инструмент каждо�
 ```bash
 magnet:?xt=urn:btih:5827FC5F9784F7E5704BED7604DDF76D1848F03D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0231C37223C519D012152D2B9062DF864822680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Music Buddy – Запоминает ключевые знаки, ноты и и
 ```bash
 magnet:?xt=urn:btih:AA94456CD3FC06C38D0F79076119B552271CBBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ USB Driver для телефонов Android, кроме того, содерж�
 ```bash
 magnet:?xt=urn:btih:AA469A242A32454D2504DA23C31F62772FE6625D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Sport TV 7 v1.11  [EN] - просмотр спортивных телекана�
 ```bash
 magnet:?xt=urn:btih:EF8B036CF927CEECAE622EB85FAB835D1A67D0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

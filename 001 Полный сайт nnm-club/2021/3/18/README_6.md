@@ -19,8 +19,7 @@ PatterNodes - хорошо продуманный и настраиваемый 
 ```bash
 magnet:?xt=urn:btih:65825226C07B1F51330EE5961E78D0D5028117CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Network & Battery 12.2.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:1A847D42EB59D3DB93B02BE1C6B6D75B902F6758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ PDF Search - это утилита, которая имеет революцио
 ```bash
 magnet:?xt=urn:btih:860B5F3E996311EF154FFF9564980594BF820AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Mirror for Roku TV 2.8.1 [En]
 ```bash
 magnet:?xt=urn:btih:F7897F86BFDF9C0EE43B72C1FCB379B3856682E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Clipboard mini - это полнофункциональное приложен�
 ```bash
 magnet:?xt=urn:btih:83084A98B764B8CB56F1D4C900EB12B1F195D5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

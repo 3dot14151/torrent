@@ -22,8 +22,7 @@ Capitollium - Engraved Fear (2005) [FLAC|Lossless]<Sympho Black Metal>
 ```bash
 magnet:?xt=urn:btih:BCB3D3E677380194F620E5F65BE8E28E5954913B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ In Extremo - Kompass zur Sonne (2020) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:FAA6665CD5E46E693D8FADFFA5B5FA52F74C693C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E98E67773672BC48DC660138EE4A601C68835296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

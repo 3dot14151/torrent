@@ -22,8 +22,7 @@ Starified - Fat Hits (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Sto
 ```bash
 magnet:?xt=urn:btih:74E2FB3C5E84A63711EC242578B85D5BA6D2A47D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

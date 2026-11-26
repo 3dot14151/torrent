@@ -22,8 +22,7 @@ Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft ro
 ```bash
 magnet:?xt=urn:btih:82900E2275BEF4CFCCC364933E049698093EE7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

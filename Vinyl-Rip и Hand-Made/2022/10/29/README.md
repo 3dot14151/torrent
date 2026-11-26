@@ -22,8 +22,7 @@ A4 Goin' Out Of My Head • Я Схожу С Ума(   Читать дальше
 ```bash
 magnet:?xt=urn:btih:9BCC3AD9183F07B42C3A2D754456B4F7D1CFB450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl
 ```bash
 magnet:?xt=urn:btih:858BFC12A76C6E60593D994E5AA0078D63576A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tiamat — шведская группа. Существует с 1989 года,
 ```bash
 magnet:?xt=urn:btih:25F942100F8234A7305D9FEF80789D38C2726AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip
 ```bash
 magnet:?xt=urn:btih:0C7274A0D8310CC1689F5E60331B3A2A35F21212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A3 It'll Be Me(   Читать дальше...   )Жанр: Rock, Rock & RollП�
 ```bash
 magnet:?xt=urn:btih:8EBE27A6A2DED1915CCF33A93F067E2CA235F426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ A-ha  -  норвежская музыкальная группа, создан�
 ```bash
 magnet:?xt=urn:btih:1C6E87A8C13DF60FD4F9A6F402FE1684CDF4C819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

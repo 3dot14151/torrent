@@ -19,8 +19,7 @@ Ratio - это не просто лаунчер. Мы переосмыслили
 ```bash
 magnet:?xt=urn:btih:DE9F10028DD8FF305DBBA9B0C7EA9721987C6F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wide Launcher - лаунчер с уникальной концепцией, к�
 ```bash
 magnet:?xt=urn:btih:2004058E9DC3565DF11D71EB0F4C7CE2F7AE7960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Leanback on Fire 1.48 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:812DB8B04199FCB257D00A0787CE2542059FDFE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ My Android Tools. Приложение от разработчика небез�
 ```bash
 magnet:?xt=urn:btih:C447C24DBCDC7CFBC59BBC6835C87B1C6A543AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

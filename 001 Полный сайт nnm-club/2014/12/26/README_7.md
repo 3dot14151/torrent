@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9ECAF12E89C209F10DFEABEE3EAD4BA065F1DB57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Morkhimmel - Ostri Cerne Kosy Zni (2014) [MP3|320 кб/с]<Black Metal, Crust>
 ```bash
 magnet:?xt=urn:btih:5D29501C4A1FFF752E1003E52EE450B393B0ED29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Aspergers - Песни (2014) [MP3|320 кб/с]<Screamo, Emoviolence>
 ```bash
 magnet:?xt=urn:btih:225C5CEB0BAB006CFD4A418EE8D992EB47B285B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Joyce Manor - Of All Things I Will Soon Grow Tired (2012) [MP3|320 кб/с]<Alte
 ```bash
 magnet:?xt=urn:btih:09355ECEAE3E07B98B45737AAAF77C6CDB6B6551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA63BE9FD12163EABD4DF25723BFE4D6C595C327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Joyce Manor - Never Hungover Again (2014) [MP3|320 кб/с]<Alternative/ Indie/ 
 ```bash
 magnet:?xt=urn:btih:D90058E2EFDFE2A02F410F2F157269D0381CF97E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Joyce Manor - Joyce Manor (2011) [MP3|320 кб/с]<Alternative/ Indie/ Punk Rock
 ```bash
 magnet:?xt=urn:btih:3E740D8C31A02999138144CD40196831B474E98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Mason Casey - Reefer Smokin' Man (2000) [MP3|320 кб/с]<Blues Rock, Harmonica>
 ```bash
 magnet:?xt=urn:btih:AF2FF6EBD91BAEFFEDEE7AADB976CCBFF3B87753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Anglo Jackson - Anglo Jackson (2008) [MP3|320 кб/с]<Hard Rock, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:E35594ABE79103951BCC7A760C08BC5D2AE4D533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3D1C86E95D0BC168B33F999CE6C2DBA01B79925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ CD2 (01:12:14)
 ```bash
 magnet:?xt=urn:btih:8094237324F797CB15EA8C01D654573411647588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C377A5BB6B97B882D1E6DC71E875B19F527B38A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5C2372E1CE86D3F0B17024CB3C31D5ACB20F319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +426,7 @@ Soundcritters - Morrow Forge (2013) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:65B854448D0D7A9F07EE3A1399E9F348B8683E9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63E06792C5E355F8F44C7FB65C1734CDD1A6123C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D8EC297880493F6EEBB64364DE16CC38578B0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:736104C2BF640CE7A9C231C7028C4AEC15AE0471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ Renegade - Thunder Knows No Mercy (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CE9F6AFD3FEC8D7EED193737CB3CFBA05C2955F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ Omut - Дзесяць Шляхоу Праз Дрыгву (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:2F040EC0A4B8E3F9544CEBDD04200FA087986F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ CD2 (00:51:13)
 ```bash
 magnet:?xt=urn:btih:18781A2A7F9AA8655B4E7395C0A336DEAF8D9ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ Colaars - Native EP (2014) [MP3|320 Kbps]<Indie Rock, Math Rock, Electronic>
 ```bash
 magnet:?xt=urn:btih:EE57024FC069C507AB8C1E10D17D235B99D16215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:185BE56A7985304BC808036E9BEC35F72B00BE8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14042653F17AEFC0EEE1D68EDA8B3B62D2B5F35B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:044B0EF36DD9D32EC227734B9727FB9DD4672247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ DigitalPuffy - AlienEarth EP (2014) [MP3|320 кб/с]<Drum&Bass>
 ```bash
 magnet:?xt=urn:btih:29C63BD1A43BCD507AA91790237233EFED570612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

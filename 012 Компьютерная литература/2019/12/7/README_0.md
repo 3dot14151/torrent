@@ -19,8 +19,7 @@ iPad Fundamentals - идеальный компаньон для вашего н
 ```bash
 magnet:?xt=urn:btih:622B5DB5A9149DDE43501F5FDB958E5E09E54220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

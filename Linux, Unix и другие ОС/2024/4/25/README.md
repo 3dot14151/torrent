@@ -20,8 +20,7 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 ```bash
 magnet:?xt=urn:btih:78A7100DD44ACDE0163A95AF91B61117E1FDA750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

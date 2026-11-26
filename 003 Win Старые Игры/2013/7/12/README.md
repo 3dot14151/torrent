@@ -19,8 +19,7 @@ US Racer / Трасса 66 (2002) [Ru] License
 ```bash
 magnet:?xt=urn:btih:88B8F44F7910918FC8545482054E9A61EC301055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

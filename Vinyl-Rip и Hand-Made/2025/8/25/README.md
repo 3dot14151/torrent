@@ -23,8 +23,7 @@ Incite — американская метал-группа из Финикса,
 ```bash
 magnet:?xt=urn:btih:175E249D13BC8F5201ADCE86A959921A24581ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pillars of Garendall (2001) [En] (1.0.2/dlc) License
 ```bash
 magnet:?xt=urn:btih:5ABD2CE839D8BC9D26A8865A840C235F14F625AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

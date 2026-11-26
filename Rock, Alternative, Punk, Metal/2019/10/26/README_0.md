@@ -22,8 +22,7 @@ Visceral Disgorge - Slithering Evisceration (2019) [WavPack|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:75FE97738BA85B594D9A0C789FF69682F46B4115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Soilwork - Feverish (2019) Single [FLAC|Lossless|Web-DL|tracks] <Melodic Death M
 ```bash
 magnet:?xt=urn:btih:DA564E5C1BA3D8768C499BE69782AFBF0BE109C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Scratching Soil - War Experience (2003) [FLAC|Lossless|image + .cue] <Black Meta
 ```bash
 magnet:?xt=urn:btih:81D81CD2171B90AF5BD987E1C4FA3C22E42B3ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Ghost Ship Octavius - Delirium (2018) [FLAC|Lossless|image + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:F5DC1A61294EAD1DB84A5DE8976B7E34CE1E9584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Syrinx - Meteora (1980) LP [MP3|320 Kbps] <Electronic, Krautrock>
 ```bash
 magnet:?xt=urn:btih:0961EBEBE6FC5638EA6ED754DE7B412A4306FB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Lynn Stokes & The Sol Surfers - Terra Nocturne (2008) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:BE69F1E828EB7D5908E15D69188F9DA9FE4F4531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Space Avenue - Voices From The Other Worlds (2006) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:EAFAD99619889EEABC4BF06E8603DA726C27A8ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Fit For An Autopsy - The Sea of Tragic Beasts (2019) [MP3|320 Kbps] <Deathcore>
 ```bash
 magnet:?xt=urn:btih:9C8BED67D9B11905A96162DAA4AA6C35AD6B48DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Road To Ruin - Road To Ruin (2007) [FLAC|Lossless|image + .cue] <Hard Rock, Melo
 ```bash
 magnet:?xt=urn:btih:33897002548AF517A1406FDC720E5F9A55A92273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ IQ - Resistance (Digipak) (2019) [FLAC|Lossless|image + .cue] <Neo-progressive R
 ```bash
 magnet:?xt=urn:btih:A3BA494A18638DCDE241DDB90A479FE35D8CADF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Ringo Starr - What's My Name (2019) [FLAC|24/96|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:963ED711FAAAAA5540F391F2E9946754012A7BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Alcest - Spiritual Instinct (2019) [FLAC|Lossless|Web-DL|tracks] <Post-Metal, Bl
 ```bash
 magnet:?xt=urn:btih:F864037B4FD0E7344B343C23BAF2AE394A008C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Jeremy - The 2nd Advent (2005) 2CD [FLAC|Lossless|image + .cue] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:7D3601D7EDAB6C9F8BEFFE390F1B30B74783BB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Jeremy - Trivial Life (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:450FEE3919E16917F5ED6894F9F61AADA6383F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Fearer - Backfire (2005) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:6AE216BAB5A0DF55318F2A5489384D3A894240A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ Somniae Status - Cassandra (2003) [FLAC|Lossless|image + .cue] <Progressive Meta
 ```bash
 magnet:?xt=urn:btih:61E5F6577CB78E581140555906C1B31EEDBEF5BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ Somniae Status - Echoes (2007) [FLAC|Lossless|image + .cue] <Progressive Metal, 
 ```bash
 magnet:?xt=urn:btih:E30AADA1C2B9F55F582E4864482BFBEB2891810D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ Organectomy - Existential Disconnect (2019) [WavPack|Lossless|image + .cue] <Bru
 ```bash
 magnet:?xt=urn:btih:9599FBF001D9E4B9FD7E9058CFD4CF8F17789042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ Dimension Zero - Silent Night Fever (2002) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:6596130B0EC9E656D3ACCE725A568650CC926305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ Jeremy - Quo Vadis, Domine? (2008) [FLAC|Lossless|image + .cue] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:4AD239DD29EA10C3212F364BEB78A138418B9CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9B5EFACB10F13D47834296145B06EC8295EEC93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Alex M.O.R.P.H. - Prime Mover (Extended Versions) (2012)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30E2B43A761385F35492FFD11F134D3F77AD81C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Delete - Predatory Things Of A Minute (2012) [MP3|128 кб/с]<electronic, dubst
 ```bash
 magnet:?xt=urn:btih:3B184D3E6E2BE1EE5B5882DDD46083897AF691FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ VA - Germany's Next Topmodel: Best Catwalk Hits 2012 (2012) [MP3|320 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:39C14AE1675F56B29A762C7AB9F4E0C315FDE125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD8851ECB8D8611C82857EB1E8A3059CA8C44E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F71FE022230A8CDB81AA228F2EBAFAEE0DAB3500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Cold Steel Wallpapers (25.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:B47D84AAEC88C2121262EB71730B186816D58CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D17AAFAEA256748CA18484ECD963A59613B97C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEC9497A2D50B0E52706C463E649D286514ED332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Bio-bot - биологический механизм из живых клето
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Disk: 1 | 01:09:00 | 192 - 320 kbps VBR(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:C2BDE7A6623CC62D0B03AA8D8C2921B1CD5AB79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44BA5CBC948F3D4BDB67C520593C986D9A6EE359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FBFE1638EF327BCDF064FA5DD86CBB1FCB407D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ VA - Total Science Presents Tuned In 2 (2012) [MP3|320 кб/с]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:2FC94FCD0518866A827135BD7D333EE0741D2EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ Best HD Wallpapers Pack (25.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:F0DA9B887B2B8EF0FD4A41D2D869A6DFF53F4624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Elle Decoration является источником вдохновения д�
 ```bash
 magnet:?xt=urn:btih:3DDFBB368610DB3103995E6D7FDEB4ECCC9C12D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ VA - Осенняя бомба года: Взрывные хиты 7 50/50 (2012
 ```bash
 magnet:?xt=urn:btih:1A16DBEC957727841E300D132180B8815DC8338E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ La Caina - Head In The Clouds (2007) [FLAC|Lossless]<Acid Jazz, Downtempo, Futur
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:342802047E4BF53E7221036B45DC0F7E667B1BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9E26724E29B4AB2EA6685C5F79B4DAA78C22009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ Stereo Palma Feat. Craig David - Our Love (2012) [H.264/720p] WEBRip
 ```bash
 magnet:?xt=urn:btih:605E328C2AC14F1ECA3D853B78E33D32FBB7FC01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +643,7 @@ VA - Sophisticated Lounge Vol.1: A Selection Of Lounge & Chill Out Music (2012) 
 ```bash
 magnet:?xt=urn:btih:7C484B9A1E87EB188EFA853734309D6440B197F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ Majestic castles of the world Wallpapers (25.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:4EED7EF5E655EA47D68FCE6D049B4D23B69B5FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +702,7 @@ VA - Лучшая 200ка: Взорви танцпол с Русским рад�
 ```bash
 magnet:?xt=urn:btih:27DB013EBBC94AE71CB2F3033F1087670E35F6BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD134B66F970B4B8A622AE70DB395B73A6D3DE96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

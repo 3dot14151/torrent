@@ -21,8 +21,7 @@ VA - Sublime Trance Vol. 05 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:269E70296E9EA2297E51F3F5F413FD450B464A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:322FD3B07076EA61053B4CDA22C5006CDC0E803B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Windows 10 32in1 (x86/x64) + LTSC +/- Office 2019 by SmokieBlahBlah 14.09.19 [Ru
 ```bash
 magnet:?xt=urn:btih:5DDE919528DECDE8CF8C64D66B67E5CE6B5F3D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

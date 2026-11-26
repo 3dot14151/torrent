@@ -22,8 +22,7 @@ The Traveling Wilburys - The Traveling Wilburys Collection (2007) 3LP Vinyl Boxs
 ```bash
 magnet:?xt=urn:btih:D59E7FC728411C25A96B48DACBD0DD5759D573FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 ```bash
 magnet:?xt=urn:btih:7B2EC3EA1552B50F7040E67FAA32B619846642D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

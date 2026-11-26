@@ -22,8 +22,7 @@ White Mare - Isle of Bliss (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, D
 ```bash
 magnet:?xt=urn:btih:9EA385571D59886275B5A710919DFB9C9391A81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hellium - One Way To Dead End (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Deat
 ```bash
 magnet:?xt=urn:btih:7DA0A06210AF2F5C5B75755F9A8EEE673CBBD0D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Silent Hope - Silent Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Got
 ```bash
 magnet:?xt=urn:btih:EBB92BD9F6B662C4B57518D18DA67DBF21CAFBFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Messial - 2020 - Ellipses I- Anthroplanetary Expansion(   Читать даль�
 ```bash
 magnet:?xt=urn:btih:6BEB5C1EFBA3BA6CC709417C89BD777158CE6768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Silt - The Hazmat Game (2022) [MP3|320 Kbps] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:7ED02AEDD2B1598386EC45F509C338C960D40543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ facebook
 ```bash
 magnet:?xt=urn:btih:87882F9C772BC413EE67FEAAB95803C7320E6240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Warg - The Endless Travel (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy, M
 ```bash
 magnet:?xt=urn:btih:4DF979B421BF2C36D225D9D5249D8861C606E8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Silent Hope - Silent Hope (2023) [MP3|320 Kbps] <Gothic Rock, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:D9E646C61268CC06BDC53652C00980CFD5D13A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Moltano - Поэма столкновений (2023) [MP3|320 Kbps] <Alternative
 ```bash
 magnet:?xt=urn:btih:5C79C3257E369304BD6269C1E3CD600346B9CB80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Almach - Don't Look Back (2023) [MP3|320 Kbps] <Atmospheric Black, Oriental Meta
 ```bash
 magnet:?xt=urn:btih:0A07EB5820F107871322F54DF28C08A13576396A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Lauds - Imitation Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Shoegaz
 ```bash
 magnet:?xt=urn:btih:169439929ABBA62C09C3A9E6D0243E74D0D44114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ One Man Army and the Undead Quartet - Collection (2005 - 2011) 6 CD [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:1BDAC2DC4141C79167033484B97509F6671D55B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ Impress - 2023 - Враг Не Дремлет (The Enemy Is Not Asleep)Жанр:
 ```bash
 magnet:?xt=urn:btih:0C2E4D5A84E0DA8BE24C99488D23DADA177C8975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ vk
 ```bash
 magnet:?xt=urn:btih:65E146EB8D570B5739635998A1B88E2CDCD95157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:744822AB1A590501CA897795B8AFF836DB97910E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ Skrizhali - В холодном свете (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:4D917E7437579BA808A50DD4991C2672C727C5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ Sinner - Santa Muerte (2019) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:6BCD6023FE883F3D1DE862C66FE9BE5262570160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +500,7 @@ Uriah Heep - Chaos & Colour (2023) [MP3|320 Kbps] <Classic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:979C300166FB9E1DF8822D948405DFBE30271EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

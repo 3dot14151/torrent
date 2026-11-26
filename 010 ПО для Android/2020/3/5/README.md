@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:620465318F528D1B791DFCAAEDB500BC1A8F97D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Cписок покупок v2.1.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5CB62057A97F83268D2DB9FD4A05036F4141A243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Stepik (Стэпик) — это платформа с бесплатными о
 ```bash
 magnet:?xt=urn:btih:B47CB67F3D89955D2C1A9BC6BC1A2A9FCBE50E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

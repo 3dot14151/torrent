@@ -19,8 +19,7 @@ Gotham Knights (2022) [Ru/Multi] (6.0.21.0/dlc) Repack Let'sРlay [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:EC58E7B843341BC4AF6DD752DDBEA0E79D9E4501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stationeers – это космический конструктор с хоро
 ```bash
 magnet:?xt=urn:btih:9274F6365579BBDA4A4F57033FD79A16C32B1647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mon Bazou (2021) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:365BCFC6BEDB77B232B98E5701D40C89D46EFFF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bo: Path of the Teal Lotus - яркий платформер, предлагаю
 ```bash
 magnet:?xt=urn:btih:5A898AEBF96B33FFE183CC43285E174B3A3AF656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Isopod A Webbed Spin off - повествование о противостоя�
 ```bash
 magnet:?xt=urn:btih:C7C3EC29BC44056E3E38AB767E09DD666A401B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ghost of Tsushima / Призрак Цусимы (2024) [Ru/Multi] (1053.8.1212.1
 ```bash
 magnet:?xt=urn:btih:5E0ECCC64A4FFC0E854309EBA2F64EB75CC06F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Drakensang: The Dark Eye (2008) [En] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:4567D9B453FF8C82CBE1F6BFAF4F4EBFD53D5109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Blood: Refreshed Supply (2025) [Multi] (2.0.3116) License GOG
 ```bash
 magnet:?xt=urn:btih:E8289C0241D9F569EE4B338E3134D3591D5BD394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

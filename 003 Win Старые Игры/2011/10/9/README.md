@@ -19,8 +19,7 @@ Wizardry Коллекция 7 in 1 [En] (RePack) 1981-1992 | Pilotus
 ```bash
 magnet:?xt=urn:btih:E9AF747627DBEEEAD3B53FC4AB5EB6FC089935D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

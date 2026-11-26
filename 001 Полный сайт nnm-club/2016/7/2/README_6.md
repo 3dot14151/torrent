@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:F75D76494074DB16F05FCBCC7F50736F1634ADA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Loungers 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:AD8D5E64C01B0C7DC92FDFDDFB856FE7CE57A70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Glaciation - Sur Les Falaises De Marbre (2015) [FLAC|Lossless|image + .cue] <Dep
 ```bash
 magnet:?xt=urn:btih:D1F5409BA81BE3DD2807AF59796639FF6D063C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Delta Generators - Hipshakers And Heartbreakers (2016) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:75656254CD6E2BF2333E24C15A509CD283806920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Cecilia Engelbrecht Heick - Spring Is A Promise Of Fall (2016) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:E049B01F47C3511BBF6E266F4A241255BF26FA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Uplifting Only Top 15 June (2016) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:821AC994F35FE292B17F6F5ED94B7A2D66DBD57A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Rockin Daddies - Rev It (2016) [FLAC|Lossless|tracks] <Blues, Electric Blues
 ```bash
 magnet:?xt=urn:btih:A6780F6E5685772F4362659294F07451E22C1AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Ben Poole - Let’s Go Upstairs (2012) [FLAC|Lossless|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9DFBEAF3D878A67441A0DF618A53A1CDDAECCAEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Chill out Summer Sounds (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:180FAE8609498683B704E64AC4B5C2C6A7F6420C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Зарубежная Дискотека ХХ Века - 42 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:34B49A5AF397EF0ABD4EF7F92D1C813FDB490C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35CEB4D4E2ABCCC19A3FDD1FA3F632C3A23C37D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Зарубежная Дискотека ХХ Века - 37 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:404BF378BD630BBF8292A97B77C45153B03229F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ One Hundred Thousand - The Forms In Which They Appear (2016) [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:4B01B53C75DFA23FAB9A6D6C74795EA145100A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Зарубежная Дискотека ХХ Века - 43 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:1FDCE6519AC68B34783C6F740B72AD7A951909E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Зарубежная Дискотека ХХ Века - 40 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:07B9BDC76AB34B98C9C4224543C9264645056E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Зарубежная Дискотека ХХ Века - 41 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:688DB21829BC5DF32AB5C8AA91A0AC9AF6F407CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ VA - Зарубежная Дискотека ХХ Века - 38 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:158A7D3977C3C7536FFD86C351E8EAAD73193541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ VA - Зарубежная Дискотека ХХ Века - 36 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:0072A76591191CB15CF8FF9AD75610D3F62B1813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Tom Euler - Fool Me Once (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:8138926115F805082BCC44F4975E7475111A4BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72C955203D928898BA39C603DB462B35D6F5C931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ VA - Summer Emotions (Mixed By Aurosonic) (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7E14FD6A0401128E9D3B6B60FA867887E0BE38D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ VA - Русская Дискотека ХХ Века - 18 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:327EA327C3FD25325271A1F016611A6A39020A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ VA - Русская Дискотека ХХ Века - 17 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:D5A2A168DDA180E7CA1C6058378D07339A971C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ VA - Зарубежная Дискотека ХХ Века - 44 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:33DFF32C57A80204C4389094226FAAF22150CA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:E5F75CE4318E47131379924528E2B5F3C3149B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E931D956BDA6ACAA50D0025C8FD41572D9392FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

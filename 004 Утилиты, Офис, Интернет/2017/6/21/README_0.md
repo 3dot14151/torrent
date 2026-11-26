@@ -19,8 +19,7 @@ Atomic Time Synchronizer 10.1.0.1010 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6EC44BED30F7573F86A4455EBA429B2AB7461774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

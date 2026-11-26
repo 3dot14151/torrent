@@ -19,8 +19,7 @@ Radardroid Pro v3.73 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:212D16E96110081D407630031C4204B726C2D891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cinema HD TV v2.3.6.1 Mod [En]
 ```bash
 magnet:?xt=urn:btih:03BDAD99DA131C7C6C770EF7A7AEFA501173BBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BackCountry Navigator TOPO GPS - Отличный навигатор, с кот�
 ```bash
 magnet:?xt=urn:btih:AC54D98252AFCAA0FD1C836DB3B35A80DBF3BE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

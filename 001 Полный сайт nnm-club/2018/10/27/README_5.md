@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3F6B591B8199EEF8569526633ECC325143145A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ SE Labs: Лучшие антивирусы для Windows 10. 3 квартал 2
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AA0D0F0A85D643C71CD3A735F359A9F251EFF88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Resident Evil 6 (2013) [Ru/En] (1.1.0/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:619157CF7030E927FCB2C77D88197D6D460293D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

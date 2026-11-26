@@ -18,8 +18,7 @@ Deadlight: Director's Cut (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:16EDC607D926DA91E68073EB3D038F45876C6619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DA9B1D579B949662AFEDBBEEF52E3CD5FD92C93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Adobe Photoshop CC — программа для обработки растро
 ```bash
 magnet:?xt=urn:btih:8A1C0905475DC6E752EE077AD4EE2EC342B44958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Mordheim: City of the Damned – это первая видеоигра, сде�
 ```bash
 magnet:?xt=urn:btih:3513FE6C4F193B6AC0BBF3A19403B2FD94322EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Windows 7 Максимальная Ru x86-x64 Orig w. BootMenu by OVGorskiy® 06
 ```bash
 magnet:?xt=urn:btih:8230426C6D34A242A0C00456079F32B2429B1E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ The Elder Scrolls IV: Oblivion - Association: Era of Change (2016) [Ru] (1.2.041
 ```bash
 magnet:?xt=urn:btih:D116FA954BECC72FEADA811AB8748730704284E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

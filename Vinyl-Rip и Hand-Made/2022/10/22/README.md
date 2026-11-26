@@ -22,8 +22,7 @@ Great White (Грейт Уайт, с англ. — «Большая бела
 ```bash
 magnet:?xt=urn:btih:9756C2E3DDC6AE75B2359503FA693EAAF81635BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Step Child - The Prayer (1995) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3F2BED291C839513B896FA85A1E89045EF443781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Carnivore - Retaliation (1987) Reissue, Remastered, 2018, Listenable [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:AAABA314C3678FA13AD563D7FBA1466BC0BFC60D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Spirit Adrift - Еnlightеnеd In Еtеrnitу (2020) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:86F320043CE16143D7A78BBE25CD8A16D71ED295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Theo - Figurеhеаds (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5FEF835C85FE895255CB5EB2A7F9A3B441643D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lazarus - Down N' Dirty (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Roc
 ```bash
 magnet:?xt=urn:btih:04A4F32C17779556BB324C016B4990E3A6F70642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Stonehand - Дорожный Альбом (2020) [MP3|320 Kbps] <Heavy Metal, Ha
 ```bash
 magnet:?xt=urn:btih:70B8EC67AFEC685B9913254BDF75682F5542F7A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

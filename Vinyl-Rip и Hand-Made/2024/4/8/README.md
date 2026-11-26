@@ -22,8 +22,7 @@ A4 I Need A Girlfriend(   Читать дальше...   )Жанр: Country, Cou
 ```bash
 magnet:?xt=urn:btih:B167C450BBC6E684F1A75FDE03105DF41B7A2740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Guano Apes — альтернативный рок-квартет из Гётт�
 ```bash
 magnet:?xt=urn:btih:4460A371B31DC2FF4D462F7C943A889DEDF07AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Debian GNU/Linux 9.9.0 + nonfree 9.9 [amd64] 2xDLBD
 ```bash
 magnet:?xt=urn:btih:816D822A0CBD9E7A56C97FAEE774CB6758F2D8CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

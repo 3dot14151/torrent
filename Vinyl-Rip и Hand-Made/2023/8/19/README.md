@@ -22,8 +22,7 @@ Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy M
 ```bash
 magnet:?xt=urn:btih:6AC90F74B74782CCCA087D4670E926F780CEF65D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

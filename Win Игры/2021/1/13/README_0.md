@@ -19,8 +19,7 @@ Secret City 5: Mysterious Collection / Тайный город 5: Таинств
 ```bash
 magnet:?xt=urn:btih:889E97D429C611C367CC84102AB57BED0311CECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

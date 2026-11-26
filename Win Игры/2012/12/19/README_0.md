@@ -19,8 +19,7 @@ Dark Arcana: The Carnival / Игры Дьявола. Карнавал [Ru] (P) 2
 ```bash
 magnet:?xt=urn:btih:0DD475CF7C68CA12421FCA0E2C6374F5BEA2D56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NiGHTS into Dreams - это классика 1996 года, пришедшая �
 ```bash
 magnet:?xt=urn:btih:C7280A00DF5DBB0B233A9F6B90FF98CCAB20BAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Woodcutter Simulator 2013 позволяет игроку контролиров
 ```bash
 magnet:?xt=urn:btih:419C8F9464C73804772A93781F3A50B6B7A1FC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

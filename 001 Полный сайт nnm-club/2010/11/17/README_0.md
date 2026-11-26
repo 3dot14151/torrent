@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2C32EE24F5BEDD25C71C4AC59448C00D3906681E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Various Artists - Cool Ladies of Jazz and Blues (2004) [MP3|320 kbps]<Jazz>
 ```bash
 magnet:?xt=urn:btih:B05AC59308696A9EF692A26A303FD3C33A25A793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Marooned 2: Secrets of the Akoni (P) [En] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - Trance Love Parade (2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:0091F1AABBA8D583A53CFBF8B8E060A6A565EBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Davol - 6 albums (1989 - 2010) [MP3|96-320 kbps]<New Age, Ambient, Electronic>
 ```bash
 magnet:?xt=urn:btih:416351ECE578705D195D92753164D0922E912BC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ VA - Best Of Reset Records 2010 [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:5CD12DEB513FFEB7FD0DB4827E68571CC5FFE2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ VA - Dark Sessions III (Mixed By Chris & Matt Kidd) - 2010 [MP3|320 kbps]<Trance
 ```bash
 magnet:?xt=urn:btih:20F8A3E43ABE15DCD78988C2E94BA8FFE1121E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ The Biggest Sin - Wicked Jazz Sounds Band (2010) [FLAC|Lossless]<Nu Jazz, Funk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ Louis Armstrong - Louis Armstrong And King Oliver (1924) [MP3|320 kbps]<Jazz>
 ```bash
 magnet:?xt=urn:btih:7C29D454AD40B4820EA04498E7223785ED215D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ The Al Di Meola Project - Kiss My Axe (1991) [APE|Lossless]<Jazz, Fusion>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ Abomination - Incognito (2010) [FLAC|Lossless]<Psy-Trance , Full On>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ Aaron Goldberg - Home (2010) [MP3|320 kbps]<Jazz>
 ```bash
 magnet:?xt=urn:btih:F8DA8C25EAF7BBE9E2CCA76A98AD9E47DACF0AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ VA - Blue Jazz Moods (1997) [FLAC|Lossless]<Jazz/Vocal Jazz/Nu Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ Von Thadden - Tonight (2009) [MP3|320 kbps]<Cool Jazz/Chillout>
 ```bash
 magnet:?xt=urn:btih:D7D74AFD6BF37D7E599184CB61A856103156FEF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ Season Match: Curse of the Witch Crow (P) [En] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ Paul Taylor - Steppin' Out (2003) [FLAC|Lossless]<Contemporary Jazz, Smooth Jazz
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ Indigo Jam Unit - Pirates (2008) [MP3|192 kbps]<Jazz/Latin/Swing>
 ```bash
 magnet:?xt=urn:btih:7AF2E17FFC2EC58D860427A407D93A54113FE89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +576,7 @@ Dj Baby Anne - Ground & Pound (2008) [MP3|320 kbps]<Miami Bass/Breaks>
 ```bash
 magnet:?xt=urn:btih:8DB69F8BA6F3C6D0897DA84FF4F52B25D07EA126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ Bill Bruford's Earthworks - Dig? (1989) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +642,7 @@ Nancy LaMott - Come Rain Or Come Shine: The Songs of Johnny Mercer (1992) [FLAC|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +667,7 @@ VA - Recovery House Rec. Pres: Best Of 2010 House Collection [MP3|320 kbps]<Tech
 ```bash
 magnet:?xt=urn:btih:832100A293F62F0422BAEA67D6F8AFE39A6B6FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +701,7 @@ Chet Baker - Verve Jazz Masters #32 (1994) [FLAC|Lossless]<Cool Jazz, West Coast
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +735,7 @@ Steve Guyger - Radio Blues (2008) [APE|Lossless]<Blues , Harmonica>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +760,7 @@ ConvertXtoDVD - программа, предназначенная для пре
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -819,8 +794,7 @@ BluesMotel - Built for Comfort (2010) [FLAC|Lossless]<Chicago Electric Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0-r92199-b5/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:C19D0D93400F9457E6D75F04CA1A46A60D0EC3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SeaOrama: World of Shipping - это игра, в которой вы окаже
 ```bash
 magnet:?xt=urn:btih:F5D6F40D021A5F12B9EBB5817670A4F023991069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mind Echoes 2: Remnants of the Past / Эхо разума 2: Отголоски 
 ```bash
 magnet:?xt=urn:btih:8C61D6CFFD70B539B0E1B00E8D59C927CD802D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

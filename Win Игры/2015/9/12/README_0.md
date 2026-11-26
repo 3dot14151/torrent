@@ -19,8 +19,7 @@ SolSuite 2015 – крупнейшая, постоянно дополняема�
 ```bash
 magnet:?xt=urn:btih:626A7183B8EB8A868F4ACB3B906DA7A90185CB6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

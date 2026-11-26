@@ -19,8 +19,7 @@ BimmerCode for BMW and MINI - приложение, что пригодится 
 ```bash
 magnet:?xt=urn:btih:75E5075BCA017D74BDA1C097CB5591178A5A4C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BimmerLink for BMW and MINI - приложение, что пригодится 
 ```bash
 magnet:?xt=urn:btih:2E187693F235D0D852A548639F719936B8468427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dynamic Island (iOS 16 Notch) - ещё один проект предлагаю�
 ```bash
 magnet:?xt=urn:btih:5FD3AB9D295CB197F78613BD71F48CC808D8A7B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Retouch - весьма и весьма впечатляющая своими о�
 ```bash
 magnet:?xt=urn:btih:B4290400D722A82C85BB0477C0E79AAC34D79AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

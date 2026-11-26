@@ -22,8 +22,7 @@ Devlsy - A Parade Of States (2013) [FLAC|Lossless|image + .cue] <Post-Black Meta
 ```bash
 magnet:?xt=urn:btih:C230173E6422EB8163062AC39D419CB66CC5CC01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Steve Kipner - Knock the Walls Down (1979) [FLAC|Lossless|tracks + .cue] <Pop Ro
 ```bash
 magnet:?xt=urn:btih:FAC8F014E6DD37F879128E65EE0E41CAA4ED1F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Paice Ashton Lord - Malice In Wonderland (1976) Remastered, 2001, Purple Records
 ```bash
 magnet:?xt=urn:btih:AE53B58898FFE5E5840E37E699AEF847687C14F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Obey The Brave - Mad Season (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
 ```bash
 magnet:?xt=urn:btih:1D88A5F025B50C32BBA5C64EE1E463AA693AE294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CD71A52F83CAC7285E08CB5DE1818D70419F264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ U2 - The Joshua Tree (30th Anniversary Edition) (2017) 4CD, Remastered [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:9E8000BB33E0836983B7E285C6008D332CE51941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

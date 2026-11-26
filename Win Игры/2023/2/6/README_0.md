@@ -19,8 +19,7 @@ The Book of Bondmaids (2021) [Ru/Multi] (1.84/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:10E73CCB5EB2ADF5945A5E8E25A33796E1AA8DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

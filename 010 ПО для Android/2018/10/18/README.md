@@ -19,8 +19,7 @@ ElLi (free) - Расчет проводки v1.3.35 AdFree [Ru]
 ```bash
 magnet:?xt=urn:btih:8BF4F78B00A24916C961B5A6676BAD19C3866CD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

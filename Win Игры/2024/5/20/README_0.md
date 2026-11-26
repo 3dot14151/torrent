@@ -19,8 +19,7 @@ Morbid: The Lords of Ire - продолжение игры Morbid: The Seven Aco
 ```bash
 magnet:?xt=urn:btih:BE63815A0E79C93A7B24404BA979ABAF1CC525F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Athenian Rhapsody - это свежая комедийная ролевая иг
 ```bash
 magnet:?xt=urn:btih:6464AD705D77BAC3718B1413238F2B18D258D9A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ It Happened Here 3: A Storm is Brewing / Это случилось здесь 3:
 ```bash
 magnet:?xt=urn:btih:F56425F5748D193DBD0CC5E57DF475813304AE91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

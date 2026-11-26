@@ -22,8 +22,7 @@ R & B Chartstars|R n B Allstars - Fresh R & B Hits (2015) [MP3|320 кб/с]<RnB,
 ```bash
 magnet:?xt=urn:btih:E91A31A5147BDFFF20A594E1A9D77CBAE67331D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ RSS Menu 2.3.1  [En]
 ```bash
 magnet:?xt=urn:btih:75D0D2A2CB47444E39A7FE7959DE5A41A3A2C310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cookie  - Программа для полного удаления cookie-фа�
 ```bash
 magnet:?xt=urn:btih:42097574712CAF6984D1E95780D4EC97E7C7F393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E48A3C2F7E36328B8D8DD242B3426E2CE5351D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A29D2CD79700EC4834B4FCF647DE04B83C02C0CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Wise Registry Cleaner - это программный инструмент, пр
 ```bash
 magnet:?xt=urn:btih:F3AC92D12D7178B0052A77E11421EB17788614FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Free Studio 6.5.1.505 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EE6FC214DBC3AE9150AA4A10114058B2C69E0DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Earn to Die 1.0.19 [En]
 ```bash
 magnet:?xt=urn:btih:F5916C1885197321A9E4DDC20657F6C7085C667A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC786B7768CE89CC7EA49E84E1E3459098E8CAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ jv16 PowerTools - программа, представляющей собой н
 ```bash
 magnet:?xt=urn:btih:12D8CD8BB3E5F16D9BC68FEC2F883894B2CDD7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ A5. One More Night (4:46)(   Читать дальше...   )Производс�
 ```bash
 magnet:?xt=urn:btih:268041191172D81C1B6E05329F2537264066D3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8B5A6FE4FC7CF471A1FF65FB6F0E9FBAD7630DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Amon Tobin - Dark Jovian (2015) [MP3|320 кб/с|Vinyl]<Abstract, Ambient>
 ```bash
 magnet:?xt=urn:btih:B1F611695D7B68C9C5255BAA229D1E51EB445818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A4449E128FD9E72C8B72A63B17F31848B87A50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1F8381DD7440B64BB2811DC1A3EEF57A347DF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Civil War - Gods and Generals (2015) Limited Edition [MP3|320 кб/с]<Heavy / P
 ```bash
 magnet:?xt=urn:btih:111E17847E3D59433145ACAB909F8522DEA6DF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C79218E63C9AB846FABAB0B340CC799ECBCE3B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Sirenia - The Seventh Life Path (2015) Limited Edition [MP3|320 кб/с]<Symphon
 ```bash
 magnet:?xt=urn:btih:09ECF8A6FEE59D16ED74EFFF9627261D760D77AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ Uriah Heep - Fallen Angel (1978) Remaster /2001, Castle Comm./ [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:D61A5CB1B458D8D4D0BEF37CEA424AFC94A012A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E60DCCC60C8F0EDABCFA189654C6A1B2CEE507E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ VA - A State of Trance Radio Top 20 - April / May (2015) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:AA475E7C8DE368284DF4065692ED4BC0006463D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46DDB2D50603C6AF07D4F3CAFCEE448C7F3D7C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:9536954A52851AC655CEACE96F03CDDD16658CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ VA - Шансон 2000 - х (2015) [MP3|320 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:5AA08082105ECB44EE4F2A7450F9F0B3EF5FF626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9A84F326A28096DCC2C3B68FBF4B98BDF0306E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

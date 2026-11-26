@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:601583D65836455FAFEB06BE7F3447233D9D3F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ClipboardFusion - утилита для настройки и удобной р�
 ```bash
 magnet:?xt=urn:btih:675B6DA473600F91072BF6EB4BC53169CEDE917E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

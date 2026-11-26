@@ -19,8 +19,7 @@ The Last of Us Part I – игра для ПК от 3-го лица, предс�
 ```bash
 magnet:?xt=urn:btih:98B1C37B8C3C84EC22570F042502DAA8AEBB8CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Plucky Squire рассказывает о волшебных приключ�
 ```bash
 magnet:?xt=urn:btih:7240577BF30595343280B862EBA45CFA589830C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Scene Rune
 ```bash
 magnet:?xt=urn:btih:33F59356309CF80A3B8F0A2757A56F07853170A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A1A3285F738943C14C12E88A250B84B5BF4ACE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

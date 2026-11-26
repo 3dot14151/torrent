@@ -19,8 +19,7 @@ Actraiser Renaissance (2021) [Multi] (7413691) License CODEX
 ```bash
 magnet:?xt=urn:btih:F4D7DB4803569049EE229D5B54CA06DDD1331F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death's Door (2021) [Ru/Multi] (1.1.5) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4456A4CDD4B9053748C673817E5F99EC17F75B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

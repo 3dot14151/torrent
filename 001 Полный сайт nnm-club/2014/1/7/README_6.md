@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A24CECD5D7A26BDC55A2E5107AAA299C73553111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:518FD265EF6C5BAF4DE269266EB4130AC5998AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49BC35BA32335A29C333CC3698C5D32F14A50894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Ninja Gaiden Sigma 2 [PS3] [USA] [Multi6] [2.80] [Cobra ODE / E3 ODE PRO ISO] (2
 ```bash
 magnet:?xt=urn:btih:97BFB98FD40A1F52D33EA931B54827B7EAFD1E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Brothers: A Tale of Two Sons – это эмоциональное, очень �
 ```bash
 magnet:?xt=urn:btih:539847F9FBE332B861DBFD5B38A4930E7A3396BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CC1ECA9EF8F5FA21D7509136567872B7A3324C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F84E286C5360AC9A36848E414ED17DEF4205B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Siren: New Translation (в Европе известна, как Siren: Blood Cu
 ```bash
 magnet:?xt=urn:btih:48D3DC0EC5018D2DC885E1E7A2357A3D14326E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Rogue Legacy Русификатор (2013) [Ru] (1.2.0b) Unofficial Бaton & Co
 ```bash
 magnet:?xt=urn:btih:C443A894C3898EAF73B585E546FCBCE9E2A0FCB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ RailClone - это плагин для программы 3ds Max для пар�
 ```bash
 magnet:?xt=urn:btih:45CAB4D09AD54DCE9753C0ECF928501268F8B07B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Batman: Arkham Origins - Initiation (2013) [Ru/Multi] (1.0upd8) DLC RELOADED [+p
 ```bash
 magnet:?xt=urn:btih:122BD43B00517B287462FC09CD26404FB5B68229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Enslaved: Odyssey to the West (2013) [Ru/En] (Upd1) Repack R.G. Catalyst [Premiu
 ```bash
 magnet:?xt=urn:btih:1F618430D2517435DB0A6FCBE88522BBE0BE308A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9CDEE6C683C75D3BC9973650D0A479687FC2B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F20A50AA9D48DF0C8E9BFAE219E57FEB038F77E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.826.5 RePack by D!akov [Mu
 ```bash
 magnet:?xt=urn:btih:2C4D4554C4ED351E42935043683A35624D97DD67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6394574314284335C8608AEE19475F7D15E4F75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Grimm (2014) [En] (1.0) License FANiSO
 ```bash
 magnet:?xt=urn:btih:DA069915094D5DB7204C312195A3B10031E5BBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Brothers: A Tale of Two Sons (2013) [Ru/Multi] (1.0 Upd1) Repack R.G. Механ
 ```bash
 magnet:?xt=urn:btih:75BD52C085A1EA1C9F5E63DA0A25F3F876A538F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BEEBC90A879EBCDFE6C15C7ABFB5A1DC44D4CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ Unearthed: Trail of Ibn Battuta это экшен приключение от т
 ```bash
 magnet:?xt=urn:btih:825BBC5ED65F4198718FF661961B6B084847FC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ KMSAuto Net - автоматический KMS-активатор для опе�
 ```bash
 magnet:?xt=urn:btih:06BE50089460E61805E4507C5ED766F16CD61CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B454FDDEA8AFBBEC568F4B409FAE10316DE1437C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

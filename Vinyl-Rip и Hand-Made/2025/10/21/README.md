@@ -21,8 +21,7 @@ Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [res
 ```bash
 magnet:?xt=urn:btih:3859703AFDF4F32DD867C90A54641393996B9248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Wolfheart - метал-группа из Лахти, Финляндия, осн�
 ```bash
 magnet:?xt=urn:btih:98483922B70E817E9F7AE204A2AA39AC55E0ED7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

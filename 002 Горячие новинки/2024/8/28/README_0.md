@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A3B34F3FB93CC1DA3F82673C31BB8A1E6A58B037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A24248DFED1F4CBFDAF0A071E5359D82D6BA2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Forsaken World ― идейный наследник популярной во �
 ```bash
 magnet:?xt=urn:btih:8A40A2AA18403568122C7145EB85889EA10ECCD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reigns (2016) [Ru/Multi] (1.25) License GOG [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:945DE5150E0BA3557FF2D5E5029AB277BD7D1EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alice: Madness Returns (2000-2011) [Ru/Multi] (1.0.0.0/dlc) SteamRip Let'sPlay [
 ```bash
 magnet:?xt=urn:btih:E1994DFEE600E59CFEBFB51255BBC9688617A968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

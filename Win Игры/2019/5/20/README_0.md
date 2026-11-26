@@ -19,8 +19,7 @@ Despotism 3k (2018) [Ru/En] (1.2.6) Repack Fenias2011
 ```bash
 magnet:?xt=urn:btih:02D0E702FB0ACCA2191D461092E44A0ECCE27D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Future: Blood Red States - это безумная аркадная гон�
 ```bash
 magnet:?xt=urn:btih:719017AD3B8570123E5C6CECD2B5F1D0ECE69812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:52CFBE15FDFEC1E7EF8E48CBB904F17B480469E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ GRIP - это крутой высокооктановый боевой гоно�
 ```bash
 magnet:?xt=urn:btih:7ADEA75F433C3C4CD0CCE70FEFE5EF7A1FCD183F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

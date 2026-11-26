@@ -22,8 +22,7 @@ Wolverine - Cold Light Of Monday (2003) [APE|Lossless|image + .cue] <Progressive
 ```bash
 magnet:?xt=urn:btih:9FC085F75A033BB6DC4EF3221BBE444BF60864B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Clouds - Destin (2017) EP [MP3|320 Kbps] <Ambient, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:DBD480ED635A512FE5878CEED61543BBAA677403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ian Gillan - The best of (1992) [FLAC|Lossless|image + .cue] <Hard rock, Classic
 ```bash
 magnet:?xt=urn:btih:642A7BD378FE4F58B7C2036E7E0F4C4E7628A2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Federal Charm - Federal Charm (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock, B
 ```bash
 magnet:?xt=urn:btih:7C6511611B37F0F8F75B92F00FBED2B8E8E05023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ritchie Blackmore's Rainbow - Stranger In Us All (1995) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:FB2B113EA09757B7CDE492D526F1CC939F4DAA99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

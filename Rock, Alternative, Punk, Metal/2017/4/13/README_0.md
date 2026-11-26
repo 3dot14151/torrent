@@ -22,8 +22,7 @@ Oni - Ironshore (2016) [FLAC|Lossless|image + .cue] <Progressive Death Metal, Dj
 ```bash
 magnet:?xt=urn:btih:4A10E80258AE3BE59D4F6BB33ED2DE199099D95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Paleons - Hyperborean (2017) [FLAC|Lossless|tracks + .cue] <indierock, noise, kr
 ```bash
 magnet:?xt=urn:btih:EB9F3481AEFFAFD192BC62E343C2853B2096815F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77B00922CAD37AC13A28AE47411D2373175F341E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ American Dog - Poison Smile (2012) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:29C5916074E48D3BB3DA6B42FC12D867D1737E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C78A4D73D7752431F6A3C87EED8025DD2827390B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC654AF4DD8388AB088AF3FD4037B5ABFA22C929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

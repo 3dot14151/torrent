@@ -19,8 +19,7 @@ Mageia 7  [i586] 2xDVD
 ```bash
 magnet:?xt=urn:btih:621C391A63F49C4DBED9658E56BF7A1D82EFAD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

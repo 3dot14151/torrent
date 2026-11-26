@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:320E7AAFFB254EC73D03E9CE0E55D64190588E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A46F8CD56F681DDB2470C3FE20D5CD6CDBD6EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Ferry Corsten Presents: Corsten's Countdown October (2015) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:CED20CA075414E1D0EACD605404B0B4215A8328C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8D1AA5F3907F19B449EC803FAF3360600232DBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Bif Naked - Superbeautifulmonster (2005) [MP3|320 кб/с]<Rock, Pop, Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:E5AF6306EB71D19C713A133259B68AD5955D55A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2405D07FC6B24C0F3E9193CFB3819EBB842AB7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ The Stranglers - Dreamtime (1986) [FLAC|image+.cue]<Punk, Post-punk>
 ```bash
 magnet:?xt=urn:btih:A177C158AC64EA6A528A29B8A71262939CC571A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Lotus Space - Music for Chillout & Dreaming (2015) [MP3|320 кб/с]<Downtempo, 
 ```bash
 magnet:?xt=urn:btih:C9240D7BD1B15088870324EFBDD05C98E7616BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC94AD2C1757B781052324A1AE446B9B1B48D3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ The Enemy - It's Automatic (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, Indie
 ```bash
 magnet:?xt=urn:btih:AD49FA861D81D8F5D46AA6D7AC54561EDA20917D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Spirit Of John Morgan - Spirit Of John Morgan (1971) /1993, Repertoire Records /
 ```bash
 magnet:?xt=urn:btih:A8919C8C5EBC69C5F61BBAF7D5D17155C15A4B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Naibu - Case Study (2015) [MP3|320 Kbps] <Drum & Bass, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B5F84DFDC2DFE59802026C131FC85951F7F32429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ACB34D513004E55CE39FF0A17427451A1CF9380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B003D1361D098270435B65DF5BF3E8057F1063A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Darren Hayes Feat. Savage Garden - Music Box (2002) [APE|image+.cue]<Soft Rock, 
 ```bash
 magnet:?xt=urn:btih:28492D7BD60753544D973E3BE46FE492E2EB785D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ The Stranglers - La Folie (1981) /2001, EMI/ [FLAC|image + .cue]<Punk, Post-punk
 ```bash
 magnet:?xt=urn:btih:ED8CA7119C822B6BDBA07A2125D785B7C5685896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ VA - Acoustic Covers of Love Songs (2015) [MP3|320 кб/с]<Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:E21F02DE5AF0502954C82E389351D4D96059E547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1E2A18C8E51F2D2244829F8091C95F3AB7EA578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5213D53AED146864AF1A5C0CDB10D5814E97554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29CC412C39A2C184F14AE29B297753AA34DF906F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D677818F57D5FD1E5B6AD57A584347375B9A0F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ VA - The Best Of Raggastep (Ragga Dubstep) (Compiled by Zebyte) (2015) [MP3|256-
 ```bash
 magnet:?xt=urn:btih:B7C996945CB07D5EB21E200EB955AA7564DEBFC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ VA - Beatport Top 100 30.10.2015 (2015) [MP3|320 кб/с]<House, Electro, Progre
 ```bash
 magnet:?xt=urn:btih:C617E2268F15610F70CECD2EC5F189A216D0B3D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CFE2D5D0F1ED5B463F1942F95C186D56BE58271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ Sip - код оттенков на экране
 ```bash
 magnet:?xt=urn:btih:1920E993762378F903ACF3DB7430CF9B0D804C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ GoodTask — это элегантная и мощная напоминалка,
 ```bash
 magnet:?xt=urn:btih:8F099E91756E73770D3461E92A48BEFBD36CE597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Folk Rock, Fusion, Prog Rock
 ```bash
 magnet:?xt=urn:btih:B5C7520B7CCACE8E20A0157F0CF3050D05366FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

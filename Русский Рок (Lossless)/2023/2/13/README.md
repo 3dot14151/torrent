@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:43B6FF94DEC406264937AFBBA1D4311BC39F2ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEE4B04C190D325DA0D0D69ABE2181E15DC31B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Shiningstar - Songs of the Northern Lands - Chapter One (2023) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:97FA640C405792EB7A459BF708237DF19B18B10F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

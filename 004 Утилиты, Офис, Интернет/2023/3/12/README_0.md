@@ -19,8 +19,7 @@ Hardentools 2.5 Portable [En]
 ```bash
 magnet:?xt=urn:btih:315FE5760D053005A53A07B1830C0975AE0D72DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

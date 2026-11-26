@@ -19,8 +19,7 @@ Domini Games с гордостью представляют еще одно ве
 ```bash
 magnet:?xt=urn:btih:7FDCB86FCA23F375BD82E5314CA9D3601B2084F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6A931A9C3F2BFE203A5902488C648E8A722E363B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The KiCad Team | Мануал для ПО "KiCad" [10 книг] (10.2021) [PDF, 
 ```bash
 magnet:?xt=urn:btih:0BE9C2FFB229879129DF19543F3EA66F98B1D5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

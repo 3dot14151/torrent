@@ -19,8 +19,7 @@ Harvest Moon: The Winds of Anthos приглашает отправиться в
 ```bash
 magnet:?xt=urn:btih:CAA6FAAB41ECD491C7B4A3E8E5D7ABD2957C30CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.38.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:47DAF1BE14FE37F278DE6268FED0D4DEA0B965AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Song Of The Prairie (2023) [Ru/Multi] (1.1.88) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:86F0A35B0CB1F3554A8CC54538FD8F899FDB5841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Lost Village - это оригинальная смесь из иммерс�
 ```bash
 magnet:?xt=urn:btih:3415819639F7C660BE37BBE818C5F89CA9C120A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Sims 4 (2014) [Ru/Multi] (1.110.294.1020/dlc) Repack FitGirl [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:B066595A792D5FA1A2C67A344FEE55CC2DBAAC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Political Machine 2024 - это не обычные политические
 ```bash
 magnet:?xt=urn:btih:68ECBC43E338173BD33D65DEC106D18564B2737F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ L.A. Noire – мрачный и жестокий триллер. В игре и
 ```bash
 magnet:?xt=urn:btih:764974257938719A2D95CA2F3A6C03ED66793F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Farm Manager 2021 – игровой проект, который вновь г�
 ```bash
 magnet:?xt=urn:btih:A1B089D87EC835C2446AC91448680A2CD44BC78D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ No Man's Sky (2016) [Ru/Multi] (5.12/dlc) Repack seleZen [VR]
 ```bash
 magnet:?xt=urn:btih:C1E205F64283CE859DA454C1E531C2C18A2C7F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dreamless (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6DE5A35A3A7FDC786C04C757EBC7ABEC9D4F1CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Night is Grey наполнена мрачной атмосферой тем�
 ```bash
 magnet:?xt=urn:btih:CEA6BD2B66F7440CBDE240CDF553D6D5178F1B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Repella Fella (2023) [En] (1.0.2c) License GOG
 ```bash
 magnet:?xt=urn:btih:6289FBFCD22ABDAD230BDF4F9EBE1CFB41624425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

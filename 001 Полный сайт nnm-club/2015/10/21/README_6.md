@@ -18,8 +18,7 @@ Format Factory - многофункциональный конвертер ра�
 ```bash
 magnet:?xt=urn:btih:4C6DE9337D1318A5AD60E0597E8BD2A32319F572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE1C7A61D2B2AF3E7199E4FDFFACC7198DC8868A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ AB Radio Tuner v.1.4 + Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:42C7C96028EB792B0A8417618E74903933E446D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8D41932F7EE038130870E38EA3CFEEDA14E9532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru] 
 ```bash
 magnet:?xt=urn:btih:B98DB467EF3D4E8F11572E982470A8188FF8B7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Legends of Dawn Reborn приглашает игроков в жестокий �
 ```bash
 magnet:?xt=urn:btih:FB88C17BBF5F9C28E085BB1BFCF89E5032134F62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Violence Jack: Jigoku Gai / Violence Jack: Evil Town / Жестокий Джек
 ```bash
 magnet:?xt=urn:btih:C0888FDC2C764125922CD8D5B5406F4E15A9D5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Violence Jack: Hell's Wind Hen / Violence Jack: Hell's Wind Chapter / Жесто
 ```bash
 magnet:?xt=urn:btih:7335E4D88DE958D6176C3277C7CDF6C5EFD453C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Windows 7 Ultimate SP1 x86 x64 The Beatles Design StartSoft 76-2015 [Ru]
 ```bash
 magnet:?xt=urn:btih:0C9EC8B655B250E65F6351C467C26426035A4E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Violence Jack: Harem Bomber Hen / Violence Jack: Slum King / Жестокий Д
 ```bash
 magnet:?xt=urn:btih:512465B374A855A0ED7F40C78F764721CB8EBDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Life is Strange – эпизодическое приключение, собы�
 ```bash
 magnet:?xt=urn:btih:3CB9A966FC6846304204DEEE5502C6293BA1212A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:606B95266D2A2E2D7E04271DAA5DDDDA5EE114FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EC67340E2B11AE0F3FEAA2BB0C4D870A6C6D963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ BELOFF 2015.X [minstall vs wpi] [Ru]
 ```bash
 magnet:?xt=urn:btih:7E320CA8D870014D352E423D47A064A2D9167DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE4010DCBF49C4CF3030A424713C9D723AF427A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Navitel / Навител: Все официальные карты релиза 
 ```bash
 magnet:?xt=urn:btih:00DC49A3DFD6237F88E4EEFE32E5BB5786F00645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

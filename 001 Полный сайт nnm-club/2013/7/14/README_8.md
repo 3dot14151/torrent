@@ -20,8 +20,7 @@ Sid Meier's Civilization V: Brave New World / Sid Meier's Civilization V: Див
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

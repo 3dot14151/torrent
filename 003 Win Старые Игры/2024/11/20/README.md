@@ -19,8 +19,7 @@ Bicycle Board Games - это лицензированный сборник на�
 ```bash
 magnet:?xt=urn:btih:268B7428BC3D1D3A13CB7039C44A256C0BB9890A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

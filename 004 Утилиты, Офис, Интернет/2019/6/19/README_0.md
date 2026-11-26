@@ -19,8 +19,7 @@ Comodo IceDragon 65.0.2.15 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8926A5E103A413774F70D952A33B2F438F0229E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

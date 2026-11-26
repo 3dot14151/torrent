@@ -18,8 +18,7 @@ Mosaic Photos Adventure (V2) включает в себя 10 уникальны�
 ```bash
 magnet:?xt=urn:btih:5A5167BBE57256D74FF44460A37458F70E5A05F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ XMind – это лучшее программное обеспечение дл
 ```bash
 magnet:?xt=urn:btih:BCDC77AC72EB96F855DD45C753825C2A742F365D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Assignment начнёт повествование истории Джули
 ```bash
 magnet:?xt=urn:btih:C399D55D1B42B43D03C23B99EBF6204F7C6F3D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ VirtualBox - специальная программа для создания �
 ```bash
 magnet:?xt=urn:btih:3EE03EB7FA26DD63AD20E7F088905B96F0DE62F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F773ABF2A74D66D70B2C69F8DFBE5D1A40BADE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Stay Alight! – аркада с потрясающей графикой, ори
 ```bash
 magnet:?xt=urn:btih:EBBD2E33B21E1FA310710A30C98930366DC861C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Rollback Rx Professional - программа предназначена для 
 ```bash
 magnet:?xt=urn:btih:8D8811DD3A9A2CA269BD42F5E72A23751519B3BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Call of Duty 2 (2005) [Xbox360] [PAL/NTSC-J/NTSC-U] iXtreme (1-я волна) [L
 ```bash
 magnet:?xt=urn:btih:9BE82C463F3849C67F8FE30794514BD2C7FACF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ PluralSight | Cisco CCNA Security - AAA and IP Security (2014) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:25E25A27929A2889FBC5608893C6004756506325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Resident Evil: Revelations 2 (2015) [PS3] [USA] 4.66 [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D0255BDF035311C70E0D07EF6A93ECCEC5CA43E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Lucius II: The Prophecy является продолжением приключ
 ```bash
 magnet:?xt=urn:btih:60257AA585AE9344B1D19276CF5AE796991D5821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC69B2A39E78E508603156D56BC83583EA7DCB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4147E26B03C134224C2678729CAE7668A62B042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ MSActBackUp - программа для сохранения и восстано
 ```bash
 magnet:?xt=urn:btih:1AC8C039FE81474E87276EA20307308B554BC7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB2D9E49898BF258F6F57C492245E8422E359912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4964A8E75F928C48717634D4BE4C4E801C4B9D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Free Video Editor - бесплатная программа для просто�
 ```bash
 magnet:?xt=urn:btih:2FF32DB6C97D1723DAA6F142328676A94F9FF1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Foobar2000 — аудиоплеер, разработанный Питером �
 ```bash
 magnet:?xt=urn:btih:DBABE7A2C4F7D1C7120D7118EB23AAEFEEE6CB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ Movavi Video Converter - программа для конвертации вид
 ```bash
 magnet:?xt=urn:btih:25EE4C7E1DFC2288BBE8DB04AA7767AB82BBAEA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Lynda.com | Управление командой на проекте/Managing P
 ```bash
 magnet:?xt=urn:btih:8DC3480175B7641B540889BD8D8FCBF1DF76590D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ LA Cops - аркадный изометрический шутер с элеме
 ```bash
 magnet:?xt=urn:btih:D9619ADE8813ED468750EB0A9CB985567061CE01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B03CB2EBC04F6085FDF9F1E269FC36C1BE22928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ Castlevania: Lords Of Shadow 2 + DLC Revelations (2014) [PS3] [EUR] 4.21 [Repack
 ```bash
 magnet:?xt=urn:btih:0DC560AE2687B270C0B7FA3AE408C0F5FA7CA893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ SVFX ISOCONVERTER W10B10036 WZT
 ```bash
 magnet:?xt=urn:btih:5C2B727691976B7079805A78DAE5C5BA697944B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:421D791EE417B7EDA1557C4C4850FCAF448B2B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ Dragon Ball Xenoverse (2015) [Ru/Multi] (1.0.1.23438) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:CD37A28383BF7E30619ECA22A124A47CC3692124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

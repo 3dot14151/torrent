@@ -22,8 +22,7 @@ Entombed — шведская дэт-метал-группа, сформиров
 ```bash
 magnet:?xt=urn:btih:202CA229E76592ACD22373D03DC113A984759380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

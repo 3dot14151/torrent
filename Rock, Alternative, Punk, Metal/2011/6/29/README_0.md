@@ -26,8 +26,7 @@ Byfrost - Of Death (2011) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C5804A920D2F844B5AA9CB98A0EF6A11F30500A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Warlock - True As Steel (1986) ремастер /2011, Metal Mind/ [APE|Lossless
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ VA - Greatest Ever Rock ‘N’ Roll Legends [3CD Box set] (2008) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:91753017B0AEEA8AD39D99D4F45B7FAB23B89529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

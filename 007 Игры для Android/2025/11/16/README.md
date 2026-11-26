@@ -20,8 +20,7 @@ Ocean Match / Рыбки: Три в ряд v3.3.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0C2293F0B7C42C96220A0CB85887BB3474298B56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) Repack FitGirl [Delu
 ```bash
 magnet:?xt=urn:btih:D1FFD8CF28AB0CEF5A21E359DA623F18B3408230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Freedom Planet (2015) [En] (1.21.5) License GOG
 ```bash
 magnet:?xt=urn:btih:404933E945E69C97D1FBF2CFEB32819CDCB2D46C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Talos Principle 2 предлагает увлекательный и зас�
 ```bash
 magnet:?xt=urn:btih:986D48B3EB26ADFBFD0EA56EA4E74162335967EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bloomtown: A Different Story - это сюжетная JRPG про Америк�
 ```bash
 magnet:?xt=urn:btih:F78EEBCCA752871F8F8716D754CAE95612D6FCB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ EARTH DEFENSE FORCE: WORLD BROTHERS 2 (2024) [Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:36217E8777CCA80C165DB9F3F6FB47722F779124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:423361B80EBA0035A50C28A67B1B193A49A07FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Kvark - это шутер от первого лица события котор
 ```bash
 magnet:?xt=urn:btih:49FCC59EE34B753BACCE73BB4BAD146F1EFFFCDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Will of Arthur Flabbington – игра в жанре головоломок
 ```bash
 magnet:?xt=urn:btih:C97507A1D3CB1C77345F15A439AEB3BC8AA5E506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Bloomtown: A Different Story - это сюжетная JRPG про Америк�
 ```bash
 magnet:?xt=urn:btih:307C5AE26CE634BF0DBFEB748093486305C072D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ DATE A LIVE: Ren Dystopia (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:94471CB41F586849DFD598F0E5180C125CFFE11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Garage Flipper (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4CD979196918FB9044FBCA84DA9F68AA1CE9F1EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Duck Paradox (2022) [Ru/Multi] (1.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:D21D621E6521FBE774E1CD7516282C16E722C317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Pool Cleaning Simulator предлагает в увлекательной и н
 ```bash
 magnet:?xt=urn:btih:BB94C0C70DF80BD1C2AF27FBBB1F2B517036323F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ eckbreak - динамичный шутер, где стиль и безумие 
 ```bash
 magnet:?xt=urn:btih:8024D6E580661D941BC4E1EA44C941E737A38C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Wooden Sen'SeY (2013) [Multi] (4.2.2.12621) Scene PROPHET
 ```bash
 magnet:?xt=urn:btih:EBA97EAE0C99E14C041D1A3376D4089948F3BBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Retail Company Simulator помещает вас в гущу розничног�
 ```bash
 magnet:?xt=urn:btih:9BF4303BC8F8A5DFA1587359C80D18D8D7C8BA1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

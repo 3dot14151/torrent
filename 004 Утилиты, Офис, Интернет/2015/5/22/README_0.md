@@ -19,8 +19,7 @@ ScanPapyrus - Сканируйте печатные документы, книг
 ```bash
 magnet:?xt=urn:btih:92115CBDF20F9D4D11CAD04E4F2EF1479FA4263D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Restorer2000 Pro 3.3 Build 123302 [En]
 ```bash
 magnet:?xt=urn:btih:84EA0C1EA40982498E3DCB920BB8E5BE8B7CEB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

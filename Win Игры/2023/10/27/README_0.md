@@ -19,8 +19,7 @@ Airport CEO - это экономический симулятор, разраб
 ```bash
 magnet:?xt=urn:btih:7817CD18391C94B2909EFF6D8BAAE9ACF5EB553C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ X-Force Under Attack возвращает все очарование стрел
 ```bash
 magnet:?xt=urn:btih:48DBB3A051F3BCC96BAA4BB08E7850741EBF3FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scen
 ```bash
 magnet:?xt=urn:btih:D7778504A9FEC33691B3651CD9717A29C41F1C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

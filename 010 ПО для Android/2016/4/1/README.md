@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E6BFA312FB3BC92A24B1B1F868FDDD558CC60209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ROEHSOFT PARTITION TOOL SD-USB 1.37 [Ru]
 ```bash
 magnet:?xt=urn:btih:7F424515F8596B1E8B0D9470594623224ACF3EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Pose Tool 3D 6.8.79 [En] - Инструмент постановки поз дл
 ```bash
 magnet:?xt=urn:btih:66E3D5D06E336D5E5C2ED3F29CAFDF72E599EB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

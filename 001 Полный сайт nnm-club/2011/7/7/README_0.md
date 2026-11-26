@@ -25,8 +25,7 @@ VA - In Da Club Vol.53 (07.07.2011)
 ```bash
 magnet:?xt=urn:btih:56B1A0270E0A240A75321B9D2DE439D2BE4A1E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Продвинутый Europa Plus (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:9056C0AA599DFD347A32FE1A03ACFFF1FBC4DABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ VA - Magik: One First Flight (Mixed by DJ Tiesto) (27.06.2011)
 ```bash
 magnet:?xt=urn:btih:C1FF78C1E616C16F2D19475A18FBA47E1F9FF292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Felipecha - Les Lignes de Fuite (2011) [MP3|320 kbps]<French Pop, French Chanson
 ```bash
 magnet:?xt=urn:btih:FDCA11220F0412BFD0C2964A01766D99B172DF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ VA - Русский хит представляет: Самые сливки д�
 ```bash
 magnet:?xt=urn:btih:9731A465C0219428F6C6E5D4DB9158701E6A804B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ VA - XXXL Радио Шансон №5 (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:ABAE8487B57CAC86E343DD1E1F09DC566F24F044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFFB80A183B6822962FD26BB7FC6476C6B449019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Maroon 5 - Runaway (2011) HDRip
 ```bash
 magnet:?xt=urn:btih:E175EBDE3D8D8A29B3085C7689A83CA08A1EDFC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ VA - Знойный Хит от Dfm (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:798FB7D8F41A41FEF1CDA8DABAF6B07C96AEB6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ VA - Танцевальный Рай Зарубежный № 29 Лето (2011)
 ```bash
 magnet:?xt=urn:btih:6FA42FD7A6D30F7363BF07C3D2A86ADB9C8300BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ VA - Летний прикид! Русский (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:06E67895D727207C155239C47484C794427F1E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC17941CC7B011AEB9BAEF8B8E1DF4A67635364F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - Звезда Вконтакте (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:AD4BF9847024E7C1E91FBE70D19E6409BB429C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ VA - Русское Радио: Прямой эфир (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:779D8B918407A55E0D06A069D59948356DE1633C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ VA - Песня Года Vol.2 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:5311714253693D748CCD62F8ABDB75E91B24952D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Cosmopolitan – женский глянцевый журнал №1 в мире
 ```bash
 magnet:?xt=urn:btih:3D53224FCDC861F91335A1C08CD4F455543B4BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ VA - Europa Plus: Самые сливки 4 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:F27A8B2C38B2452D60A997BAAEE766EC0E2D69B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ VA - Шансон: избранное (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:8762AADE3BCAE774A2E3C672E2A91A1B944E8ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ VA - Шансон Года 2 (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:BB5D837818FC93130A087327DAC97671E45334AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ Rena - Number One (2011) [MP3|320 kbps]<Rap/Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:7D3BBF52FF63D65EAD53D1AF290D7A777E26C747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE9A6437B2DA6513CB2AEEBF65E53793CCE97603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFB123A426AAD7364298F01D004BBD8628DFEBC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ VA - New Blood 011 (2011) [FLAC|tracks+.cue|Lossless]<IDM/Drum'n'Bass/Experiment
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

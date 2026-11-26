@@ -21,8 +21,7 @@ VA - Top list. Hot sound №4 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:298FB68D18F718968B0D9E9D5E8ADDD63662DDCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Русский хит на все 100 №4 Летний (2016) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:330015100B71FD49A44A5D3123F8AC9F64AD4762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B022C6681F20DF348731D8814AF20923CD30A6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:575448C15C21E966785F4CE3EE69E2988CA11AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ VA - TOP летние хиты на Русском радио 7 (2016) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:EFFD253408062F3AF675118B5242A8D2D06B0ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C622C7931A33D9DC012EC39673990FE7602DF30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Blue Horizon & Shyprince - Lithium (2013) [FLAC|Lossless|tracks] <Trance, Acoust
 ```bash
 magnet:?xt=urn:btih:AF1EB2E4C0BA421A30B780312CC4FF477DBB3A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1098A269FC96CB07DE91BE8056204ABBB4B0EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62358E42758EB365B75B958B6BAEBA80168FFF62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ VA - Жаркие танцы. Сборник 4 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3CAE0B74F1168A8C7DDC184FFEF991F2EAE357D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Kambrium - The Elders' Realm (2016) [MP3|320 Kbps] <Symphonic Power, Melodic Dea
 ```bash
 magnet:?xt=urn:btih:4E3788D1704D7C2D04327B809B3D28F886EF0A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A7DA0F7299909D01CF0EC1327987468209D7300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Uncle Dog - Old Hat (1972) Remastered, 2005, Air Mail Archive [MP3|320 Kbps] <Ro
 ```bash
 magnet:?xt=urn:btih:1C499B6F8660A105E677D4BC683434DC39CFB0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ VA - Bomba Hits. Летний Chart №2 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:ABF8EC04C8362D6F1EECB99166FCF800C3571B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ VA - Easy Morning, Relaxing New Age for a Soft Awakening (2016) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:048216654A391FCB1E0A6997B8751F91C5274D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:512ACF962BC7EB1DDF3871C0286DDDDD8ADC2B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ VA - 100 Ecstasy Dance Story Hits (2016) [MP3|320 Kbps] <Tropical, Indie Dance, 
 ```bash
 magnet:?xt=urn:btih:747864BF6BB4FE91BD5DF828D12D565E4928F293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ VA - German Top 100 Single Charts 15.08.2016 (2016) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:FBE4529C3BE04B0465B11B3B9C911FB457884A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ VA - Santorini Smooth Jazz Selection (2016) [MP3|320 Kbps] <Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:FF5DBBD1C3BC886DD01F65089D6B1990BB0EE191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB73906FA4657D11727D3109B0460E09C99A880C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Synalyze It! Pro – это инновационное приложение, к�
 ```bash
 magnet:?xt=urn:btih:8A57FF136041E8A3B84A8DF9834E0E08B27428BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ VA - Самые Популярные Новинки Года. Русский В�
 ```bash
 magnet:?xt=urn:btih:327263301F423A1F896759F2FC70584FFEC95AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ VA - Летняя бомба года №5 (2016) [MP3|160-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:96847949A1A5FFC27AB805CB383DE7D6593B62BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:807E0E80351ACB31E4C8402B7CD56F62E846CCCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ VA - Awesome 80s Super Hits (2016) [MP3|320 Kbps] <Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:A01B46342F53B9C960CA1C2FE5757D6E26170B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ VA - Relaxing Lounge Music For Your Sleeping Moments (2016) [MP3|320 Kbps] <Down
 ```bash
 magnet:?xt=urn:btih:46A1BCA2A8C1DE2C6444E898FF594F097772BBF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Suzi Quatro - Два альбома (1973, 1974) [LPCM 2.0 96/24 | Audio-DVD (Vi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

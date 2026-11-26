@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:72F1910AB305A13C015914DFC089B3092A12622F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tides From Nebula - 3 альбома (2009-2013) [MP3|320 кб/с]<Post Rock, Po
 ```bash
 magnet:?xt=urn:btih:45F65758B466DBB005F6434FCC170C3EE768D629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A587BDCBD7826E8D6FF021E2A9BDD2EF62F1637B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Dead End Heroes - Roadkill (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6E26F9262D5F1C2EDD5F0F3477B12642F12024A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Mindplotter - Depths (2014) [MP3|320 кб/с]<Progressive Metal / Electronic>
 ```bash
 magnet:?xt=urn:btih:80396551E4CFBF9B23BC3070143C81C87C2DD3CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Troika (David Arkenstone) - Dream Palace (1997) /1999 Reissue/ [FLAC|Lossless]<N
 ```bash
 magnet:?xt=urn:btih:8F7BF92DE3F68937A7DFCAB86462D9AE178D7B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Artboard – инструмент создания векторных иллюс
 ```bash
 magnet:?xt=urn:btih:352281D4748489016A44D9206A58A0D8B772E0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ HyperSnap — программа для снятия скриншотов. Мо�
 ```bash
 magnet:?xt=urn:btih:A4100C521B56B7E1D849B473F143494FE7813BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C09B442FFA1D0FEA97D458ACFF6F8091DCC8028F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3375C3CADD444288EE8E1E14ADF4F53BA070FE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Ice Cube - Sic Them Youngins On 'Em (2014) Single [FLAC|Lossless|WEB-DL]<Rap, Hi
 ```bash
 magnet:?xt=urn:btih:50C84BF74D0138B6E86E01EB2B226D167FF8C9BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Echo Grid - Eventide (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:EE81FF0A5F851BB33D9EBDF9802FC45A5278161F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Arroway - 3 Альбома (2013) [MP3|320 кб/с]<Atmospheric, Post Rock, Inst
 ```bash
 magnet:?xt=urn:btih:7C717AA967A5778D0C0195132C4AFB5F6CCCDC97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95BE9B7B35C09722E9C3E10D63F678986DDC8054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:0B356978B411EA5D74B196924581A0F51D982B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FCAEFF874BAECBA6CF79D3929DD4CFFAAFB035A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCDCE446FB00A00FDD23D5CA6EFF97145FC0AAD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F1CB9450B39185739325D97D6ED330C69C76969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ Joe Goldmark - Steelin' The Beatles (1997) [MP3|192 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:FE66BD44A9DA4640E9B4151C54EB8467E0D35EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ VA - Rockabilly Summer (2014) [MP3|320 кб/с]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:3D84602D1AD8945B0F5F57D39681C091BF13AB3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Sleep Dealer - Imminence (2013) [MP3|320 кб/с]<Post Rock, Instrumental, Exper
 ```bash
 magnet:?xt=urn:btih:2389E952C428D000E782905AFC98BA5DA22CA699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:AB068A46043F4F98B6BFE10C11AFA47D170D960C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ BurnAware Professional - обновлённая версия универсал�
 ```bash
 magnet:?xt=urn:btih:C1A8A1A6B89880825352F589DB48921786712272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:EA6575C7325B1D8868ECA9D7AFDF736C86AFF3BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ Kristian Leontiou - 7 альбомов (2004 - 2005) [MP3|320 кб/с]<Pop, Rock
 ```bash
 magnet:?xt=urn:btih:28BDA883C95219B6E4A0F461E842855D9AC30EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

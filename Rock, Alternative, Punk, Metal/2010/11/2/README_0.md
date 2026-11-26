@@ -28,8 +28,7 @@ Soundgarden - Telephantasm (2010) [MP3|320 kbps] <Grunge>
 ```bash
 magnet:?xt=urn:btih:106E6F6F8642A5D086D2C265B9D8AB96F1E37CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

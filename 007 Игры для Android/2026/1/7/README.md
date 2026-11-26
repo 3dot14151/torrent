@@ -19,8 +19,7 @@ Tricky Words / Хитрое слово: слова из букв v10.2.0 Mod by 
 ```bash
 magnet:?xt=urn:btih:19AACEBE29F2CC0C8F4F2F8CBF6D6CC5656B5459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

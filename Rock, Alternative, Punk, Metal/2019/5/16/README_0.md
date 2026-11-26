@@ -22,8 +22,7 @@ Barbe-Q-Barbies - Borrowed Time (2019) [MP3|320 kbps] <Hard Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:846D56BF202C8617CFC8FA112434715F0F833C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

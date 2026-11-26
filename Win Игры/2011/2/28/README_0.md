@@ -19,8 +19,7 @@ Immortal Lovers / Сумерки любви (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:D34E80200F0D0019F31E55BF57BC57626A6AC3D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A48CE6DFE35208D6D724A0FCBBE4423A567A5B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Emergency 2012 - это стратегия в реальном времени, �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ MotoGP 08 [Ru] (RePack) 2008 | Spieler
 ```bash
 magnet:?xt=urn:btih:61D8426228D8412479A5E31D3E271CDC42AF6696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Painkiller: Redemption / Painkiller: Искупление [Ru] (L) 2011 | R.G. O
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

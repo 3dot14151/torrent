@@ -19,8 +19,7 @@ Colorize Images - отличное приложение для всех кто �
 ```bash
 magnet:?xt=urn:btih:55C179F33E7149187AEAD8C6D1B4450E34229F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

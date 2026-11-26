@@ -19,8 +19,7 @@ Slyders (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E02AAE3B76B3DB0E8EF3D273FE9C2CCB8E374C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Project Motor Racing - это не просто симулятор гоночн�
 ```bash
 magnet:?xt=urn:btih:10960189ABEB53F4F95EEFF34667946ADBB03E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bloodface - ролевой экшен, события которого разв�
 ```bash
 magnet:?xt=urn:btih:91F6FCEBBE25B7D147C54A5B167B892C10CB167F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Christmas Stories 14: By Candlelight (2025) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:7E58EA9F23B3382B685FE1A46E4ED99A64476DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Christmas Across America / Рождество по всей Америке (2025
 ```bash
 magnet:?xt=urn:btih:332751033C828B305975EF94DB4CC4F4B825795A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (Build 20965378/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:289C7F7A046752B52CCC0F75C8D85C33E606DD71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Total Chaos (2025) [Ru/Multi] (1.035) Repack Other s
 ```bash
 magnet:?xt=urn:btih:105DA40F043B2A24E8A9B6ABE962FE4C953C6CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8C1C4D3EF85EA8CF5B61B08DBEE6A640BC4A6DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Barotrauma - сайд-скроллер, позволяющий играть по
 ```bash
 magnet:?xt=urn:btih:57AFBF4B084C950FCD55C6F73352FEFC0AA9E841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

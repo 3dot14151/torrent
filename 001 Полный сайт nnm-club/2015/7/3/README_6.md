@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Prince of Persia Classic 2.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:C84CADC1B81CCF793D87B4D486417DB544C9AD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ LEGO® Marvel Super Heroes / Герои Marvel в мире LEGO 1.11.14 [Ru]
 ```bash
 magnet:?xt=urn:btih:DFD29776741DEB45DC5F33A9BE7B41C75E97D7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DC72E3FDB47232B66E2B13E889924F0493224FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B6E24A2B9E51C473435093344C3FFD08AF66401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D276C30F605E432119F5E6489916DB82F5DDBD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Microsoft Windows 10 Insider Preview 10.0.10162 (esd) [Ru]
 ```bash
 magnet:?xt=urn:btih:BD6C4AE016B62CB85E8FDCB2A03C8D0C182465C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65892AEA22BAF01407DA49B9B049C6DAF4ED29C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Trapcode Suite 12 состоит из 10 плагинов для After Effects, 
 ```bash
 magnet:?xt=urn:btih:1CB75A562614A1051BDC3A7C7B52E5CAD1EA464C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ antiX - это быстрый, облегченный и легко (   Чит�
 ```bash
 magnet:?xt=urn:btih:814EE36AD0B6EC8313E4679CCF25C5A7F1AD29EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ DriverPack Solution - это самая популярная программа 
 ```bash
 magnet:?xt=urn:btih:6165547016E38F5E96D5007588F280B8D2FA9B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97B385D1F6A3267228F79BBEE77B8ED299812250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ EhLib 8.0 содержит компоненты и классы для Borland D
 ```bash
 magnet:?xt=urn:btih:11253AF026340A7E11755D2E27A5E156AC01C18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ BELOFF 2015.7 [minstall vs wpi] [Папками] [Ru]
 ```bash
 magnet:?xt=urn:btih:E75D0EBFCBF88A0568E5CDAA61C0C588DC1B4BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Vector Thrust - полный действия стремительный сим�
 ```bash
 magnet:?xt=urn:btih:3EA69C9DED11C47FBB4958CD4F7885631D923945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Microsoft Windows 10 Pro Insider Preview 10.0.10162 (x64) (esd) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:246FF43B9D6BD4D687CF05E57932A9425E059491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Kingo ROOT - Удобная программа, которая позволит 
 ```bash
 magnet:?xt=urn:btih:5766DB19BB9101AC5A5B3AA7901C75AB2C3F136D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ Marvel Heroes 2015 - динамичная массовая сетевая игр
 ```bash
 magnet:?xt=urn:btih:A10CC1A2C39D93CC1E7752BDDA1896ABF2506FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F9AAED5839BF33BFE62A9298805D802457EBB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Navitel / Навител: Официальные карты "Содружест�
 ```bash
 magnet:?xt=urn:btih:862246E533C3F55C0F39554D0EA61EC1D449D83E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A1AD4E038EF4197461865CB4BE7EBC7E4F8E405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D50C1922CA5852212C7327D339C2B5AE1381086C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

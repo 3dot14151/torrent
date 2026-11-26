@@ -19,8 +19,7 @@ Startopia (2001) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:3E157027D03177351E5CF4CE2C51426CB19F1050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Descent (1996) [En] (1.4a) License GOG
 ```bash
 magnet:?xt=urn:btih:09D41047AE9831AA7BCF50A88A0D0580DA8F51F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nox (2000) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:A49CC6742991C426339CF3C0F005AEF6A4C968DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

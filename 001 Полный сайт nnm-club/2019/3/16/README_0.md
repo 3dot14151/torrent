@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:89FF551E70A0C8A4FC0E0FB04C09803277006683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Elvis Presley - In Memory Volume 3 (1993) [FLAC|Lossless|image + .cue] <Rock & R
 ```bash
 magnet:?xt=urn:btih:16BA802B30804D5ECD60B3E0269881CF12F299E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ King Diamond - Songs for the Dead - Live (2019) 2CD [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:A8EA094DD1A05A743BA204523F274A7E7B2F5569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Rotting Christ - The Heretics (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:366631453C1561D50893D8F7A0281DBAC0BF26BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0E5A651F1E8C68518590651BA8A591CFBCF4815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:009509C70D6A003193454380CDE7DAA76907FC0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Daddy Cool Kids  - School's Out (2008) Single [FLAC|Lossless|image + .cue] <Disc
 ```bash
 magnet:?xt=urn:btih:01475AEF170243A38D416C6E235E55FD1347E955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Printao 8 - это легкая профессиональная печать. P
 ```bash
 magnet:?xt=urn:btih:7C1F7839CFA64391A5430339A4EEE273AA7C5951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:9CE10FA71B2FD3C64681B025547881515BD2531F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Elvis Presley - In Memory Volume 4 (1993) [FLAC|Lossless|image + .cue] <Rock & R
 ```bash
 magnet:?xt=urn:btih:2957CC2FC6E869496F467FB5BEDB3B624949D431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BE77F883F70D93A6330368AC78524A29A8EDCD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Sophie Ellis Bextor - The Song Diaries (2019) Cooking Vinyl Ltd. [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:550667AB7B066CC6CF1B1D2F726A6D3E71EEBE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:31A72142843CFD029653773E743E02C4A076F258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Rondo Di Milano - Pop Opera (1998) [FLAC|Lossless|image + .cue] <Pop, Classical 
 ```bash
 magnet:?xt=urn:btih:987524CFDDB7AD0092519B660C61F3E83242EF67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ VA - I Wanna Sex You Up - R'n'B For Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:474B7463C73957373F7BF237A0581548A1EBA0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBA47A95B45966B35568C0C4E400115B13FA7898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ VA - The Best Of Trap & Trapstep II [Compiled by ZeByte] (2018-2019) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:AA1A3D4BD522A96FD762B163984FE9249B043A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3F01D13DF8ED98D6D8C94640F8663FFB3D0B779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <I
 ```bash
 magnet:?xt=urn:btih:2D6B40AB761E450F541AC3E363C7F8CD6574474A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic & Rock - Die Neue Dimension 
 ```bash
 magnet:?xt=urn:btih:268056C2E40119C7AFEE78C1B14EFE2EC9D48181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EDD0D38370265334959D77A56ED27D00E5597AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A46592B812185BF069B7BEC37E199D4B0DD0833E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ Hackneyed - Burn After Reaping (2009) [MP3|320 kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:911DD5E286C0B39794350DBE6182BA55EA3A5584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ VA - ЕвроХит Топ 40 Europa Plus 15.03.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:56C89C6757BEDBCD317142E166747FEBB040EAE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10A0F5559D1ECB9C6C70F73F604B16F9B6022839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

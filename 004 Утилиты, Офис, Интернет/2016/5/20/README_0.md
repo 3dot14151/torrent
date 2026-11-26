@@ -19,8 +19,7 @@ PDF Converter Elite – это мощная программа конверти�
 ```bash
 magnet:?xt=urn:btih:D57417E7A289E151E94243A32771E23828E87F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RusTV Player - программа для просмотра телевизион
 ```bash
 magnet:?xt=urn:btih:E0D2FC6EF9D4EDCD27638C36D4F2C9C5C8F741DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

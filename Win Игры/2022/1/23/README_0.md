@@ -19,8 +19,7 @@ Re;Lord 1 ~The witch of Herfort and stuffed animals~ (2018) [En] (1.00/dlc) Lice
 ```bash
 magnet:?xt=urn:btih:270406D76A354FD78C8227B524F231B6A1311245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Seventh Sign -Mr.Sister- (2019) [Multi] (1.2.03/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:D98E6C2089E155B1C231C4B11A3399BADC98E1FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LEGO Harry Potter: Years 5-7 (2012) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4BA30F1A58412AF0B3491EA5EB4B618FF33F0122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ LEGO Harry Potter: Years 1-4 (2010) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7E09C5AD117C7038002FFD269BFC7BE126C4B60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

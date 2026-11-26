@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0E49C21CC616CC398BD62FF5F212054AFD975464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69B9A45CD0072ECC3CCF937BCC677894B1A14033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 ```bash
 magnet:?xt=urn:btih:17288FB1BE93ECD84F2252DC381D7CB67BE7B64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Microtopia - это игра-автоматизация, в которой вы 
 ```bash
 magnet:?xt=urn:btih:AB714DB33DE84FECBB54C3315AF08F6526973DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

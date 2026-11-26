@@ -22,8 +22,7 @@ A4 FG-4(   Читать дальше...   )Жанр: Pop RocПродолжите
 ```bash
 magnet:?xt=urn:btih:64ACA1696805481EE1B2777631F7653EDB5CF05B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:00A6426E2ED13CC6CE32693036B0025D19AFCCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total Mail Converter Pro простая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:9BFA72E817BE214434063B2BC8796EF3913CAD02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

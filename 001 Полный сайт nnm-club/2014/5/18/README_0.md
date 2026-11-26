@@ -27,8 +27,7 @@ VA - Двигай Попой 50х50 (2014) [MP3|256 - 320 кб/с]<Pop, Dance, C
 ```bash
 magnet:?xt=urn:btih:69823301A8556832968738CA4133EC547BB4CFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34EE4E0CC73BBFDF235F798A9949905ADD55150E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Laurence Jones - Temptation (2014) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:5072FA5EE376770BAA444F7061E7B8C84E42ADAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0F0CF961D48DF734240CA146B5E12DB45B724C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ Sonny Terry & Brownie McGhee - Going It Alone (2001) [FLAC|Lossless]<Blues, Folk
 ```bash
 magnet:?xt=urn:btih:8C31A6D66CB633F0ABF1152BE45D7471246925EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ VA - Dark Dubstep Vol.3 (2014) [MP3|320 кб/с]<Dark Dubstep>
 ```bash
 magnet:?xt=urn:btih:E0FB479EFB8F7421CA88A14128D079F2636B09BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91A0E3DD182D3008BC2C71B0B4C8B9E6A6EB6E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ VA - Dance Hits. Spring 2014 (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:03F9BF180D8BC2DFF42601AE83015C0CFE748627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2489EF0B553B52D5D03B8AA1FE6029D8485FDA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE31C65D89522127392AEDDDDDBC4D0D4E95AB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7691B40420E31B237C934855AC09F29F822916DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21254876044C61A007C96A1AB69326B7D1B6F5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7733DC806836A73AF7B58834A69F7B73F1063FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ VA - Milan Chill House Night (2014) [MP3|320 кб/с]<Deep House, Chill House>
 ```bash
 magnet:?xt=urn:btih:7A7C77B094131DE89E9857764A75A85DAE787321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86019A40E9CA09D8F9414E8916CB59D587996D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ VA - House De Brazil - Beachhouse Rio De Janeiro (2014) [MP3|320 кб/с]<Funky,
 ```bash
 magnet:?xt=urn:btih:76B9E57045E48A5D09F91AD7311241370A12740E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ Chilled Poolside Masters - Chilled Ibiza Classics (The Very Best Timeless Chillo
 ```bash
 magnet:?xt=urn:btih:5F973AB6D7458DAE1A3F33C601DA2D738FEB8F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ VA - Bossa Nova Guitar (2009) [FLAC|Lossless]<Jazz, Bossa Nova>
 ```bash
 magnet:?xt=urn:btih:659F51A89B1947208F11278FD575950A5315BE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ VA - Mystic Chill Chapter 1 (2014) [FLAC|Lossless|WEB-DL]<Psychill, Downtempo, A
 ```bash
 magnet:?xt=urn:btih:BAD2C2A4D7B5576B4C5A2C522A6096959064FD9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ Mike Golden & Friends - Utopia (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:80EF0B52DE0BC49EF920780BC98EA0FED463CBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ VA - A.L.P.H.A. (2005) [FLAC|Lossless]<Experimental, Industrial, Noise, Ambient>
 ```bash
 magnet:?xt=urn:btih:F280C7488B44FAC0CB7B8B76AB9474BD52E4584A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EE4BAF7D5D6D64B8512E24808DAF7116CF7ADF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +716,7 @@ Hardfloor - The Art Of Acid (2014) [MP3|320 кб/с]<Techno, Acid House, Electro
 ```bash
 magnet:?xt=urn:btih:B08678DB135D4EE8A50453CE5195133C72831CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:3933FF14AF68A0E958B1A3348E14772A3E289D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -808,8 +783,7 @@ Holly Cole (Холли Коул) родилась 25 ноября 1963 года 
 ```bash
 magnet:?xt=urn:btih:55B2EC19C2468114C892ECBAB5DDFAAADD24028D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

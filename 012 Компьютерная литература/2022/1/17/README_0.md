@@ -19,8 +19,7 @@ Clojure? Это где скобочки и нет типов? На произв�
 ```bash
 magnet:?xt=urn:btih:4A176E5712608A10799FAC233DC6F78EE7AF3F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

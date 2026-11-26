@@ -19,8 +19,7 @@ XX век начинается. На просторы американских �
 ```bash
 magnet:?xt=urn:btih:66FB4D4D0EBAF861CB718C9BAF4CF084F1B95E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ LEGO Harry Potter Dilogy (2010-2011) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:E18E88DA3FA7417FB46080CBC9451B73C7CEF7AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7E712A13D568D6C6D4537F6D843A6347C386927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ TurbulenceFD v1.0 1160 For Cinema 4D [En]
 ```bash
 magnet:?xt=urn:btih:D2242E5B89A58D2A4673B05998765EFF5C29B978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2027B3E881C6806922B3435F828A77695AFD2601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A15CB073F9CA733926F645596E4653C4610C57B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ English Windows XP Professional x86 SP3 VL with updates on 30.12.2013
 ```bash
 magnet:?xt=urn:btih:4375E413A41DEFB945B4DE47ED88C7C95725EEEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Zend Framework 2 – библиотека классов с открытым и�
 ```bash
 magnet:?xt=urn:btih:C1557D4142DD8F9B13E252B1E7A3A4F6D1800683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ LP-BM | Экстремальное создание Landing Page от А до Я
 ```bash
 magnet:?xt=urn:btih:24CE11CB962765E6EB3C08E76310A16CFB2ECA13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCED3AF220D42B515BC451BC71F148EE448D8D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72388B3580723127CCEA1A6C24103203C5666B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Chip XP 2013.12 DVD
 ```bash
 magnet:?xt=urn:btih:74A8C9538CFA092A8155B12EE2100B9DC20D0A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Microsoft Windows 7 SP1 IE11+ RUS-ENG x86-x64 -8in1- KMS-activation (AIO)
 ```bash
 magnet:?xt=urn:btih:F026B96B625BC69FDDCA92AEB76A10BB136EB2DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

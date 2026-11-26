@@ -19,8 +19,7 @@ RICO (2019) [Multi] (1.0.5/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3CE6F9DA9AD27C657D2930A3D3A9EF6C5E259369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

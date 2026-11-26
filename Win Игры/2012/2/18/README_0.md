@@ -19,8 +19,7 @@ Amulet of Time: Shadow of La Rochelle / Амулет времени. Тень Л
 ```bash
 magnet:?xt=urn:btih:EF1D9510E87916277CA350A2CBEA30B68E0A52DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

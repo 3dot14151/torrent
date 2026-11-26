@@ -19,8 +19,7 @@ Detectives United 3: Timeless Voyage (2020) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:6665BDEBCCC6C235AFFC908E15306F78691DD7E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Utawarerumono: Mask of Deception (2020) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A3667714395372A822CAEB72182222DE256DC0A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Utawarerumono: Mask of Truth (2020) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:8370F6E59161A184D49B8202FE001B230CD7217B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Wild Age — это стратегия в стиле Tower Defense. Разр
 ```bash
 magnet:?xt=urn:btih:01EC6C2E27ED9F2E313414C6A8211058794D0580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

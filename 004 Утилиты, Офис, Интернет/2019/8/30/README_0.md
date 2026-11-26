@@ -19,8 +19,7 @@ VideoSolo Screen Recorder - программа, с помощью которой
 ```bash
 magnet:?xt=urn:btih:08258C869B4F81006432692C887A36226B1E5642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

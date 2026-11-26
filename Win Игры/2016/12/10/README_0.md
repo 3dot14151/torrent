@@ -19,8 +19,7 @@ Signal Ops (2013) [En] (1.0.5361) License GOG
 ```bash
 magnet:?xt=urn:btih:065C3BD3DF78E298BAF07AA2496552424E373C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Thick Air (2016) [Ru/En] (0.1/Early Access) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DACFCE5F74BDF27E2964D0A35DE80E83715C855E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Incredible Adventures of Van Helsing II / Van Helsing 2: Смерти воп
 ```bash
 magnet:?xt=urn:btih:12F79468324673B43209C32C86E724DADB1A98E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ball of Light — это атмосферное приключение, в ко�
 ```bash
 magnet:?xt=urn:btih:9DEE9D1E852EA53EC8B83A4BE62A1B7285653D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ BATMAN: Рыцарь Аркхема торжественно завершает 
 ```bash
 magnet:?xt=urn:btih:75DD6E8C4BFEC918E9124ADBF4A5DEFA1E143786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

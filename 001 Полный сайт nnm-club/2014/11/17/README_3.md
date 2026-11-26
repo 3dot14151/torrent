@@ -27,8 +27,7 @@ Cliff Martinez - Far Cry 4 (Original Game Soundtrack) (2014) [MP3|320 кб/с]<S
 ```bash
 magnet:?xt=urn:btih:2F3B84D3C8F85B96FC6DADCA64E1F1D045EEE2A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72BD3B80A4C49A2D42E97ACD9FB49E591CE228F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C35D27018AA1E14E2AED0826A077031821A9AB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Discovery: Динамо. Невероятный иллюзионист  / Dynamo
 ```bash
 magnet:?xt=urn:btih:51E043EF5191EEDECE83DD4CCBDC8D42C1AE1C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12DC9774EC3BA6A2640DD88220D66CE762720F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Maxim является абсолютно уникальным журналом 
 ```bash
 magnet:?xt=urn:btih:1732C17079BE81964539AE812E9CDD8AB4D29575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ InternetOff - бесплатная утилита, которая позволи
 ```bash
 magnet:?xt=urn:btih:776353E4A1941D1AC22A4F1590B2D6E97B482D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ VA - The Art Of McCartney (2014) 2CD [FLAC|Lossless]<Rock, Album Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:0B3A075B6B6860C558F654AC752455EAA08459AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:796E5EF490416E4F60221D32F7FEE0C0B449E32C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Steve Orchard - 7 альбомов (2009-2014) [MP3|192-320 кб/с]<New Age, Re
 ```bash
 magnet:?xt=urn:btih:98D98A25596FDAEF8BB60F6E829B734FF1A8C7CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Ministry Of Sound: The Annual 2015 (2014) 3CD [FLAC|Lossless|WEB-DL]<House>
 ```bash
 magnet:?xt=urn:btih:9FDB88CD9B2DA2A712DE2ED9C5E9414344C94135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Actual Multiple Monitors - полнофункциональное решение
 ```bash
 magnet:?xt=urn:btih:9D8156CD7D8599C0B23E83B451E8F85B50A17950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VideoHive - Optical Opener - 131916 [AEP]
 ```bash
 magnet:?xt=urn:btih:AAC01512B14D52F2FD47FBBC9475F40B97F0C1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED62E9CCF8059A407FC4CCE98BF6FEA3CB80B509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Queen - The Platinum Collection (2001) [AAC|WEB-DL|256 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:BC0D1E607EF46DF3DE3652935F260A8C3B92B6BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:192CE7F5055584B777487B8495579AB4935FA250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ OEM Info Updater 2.1 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C12FF055C9ECF5355EE1247BE554AD840092235C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ The Piano Guys - Wonders (2014) Deluxe Edition [FLAC (tracks+.cue)|Lossless]<Cla
 ```bash
 magnet:?xt=urn:btih:20FE19029835B4DF0E431BA9B0D26BD5CCAB75B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07BA2C109D98DDB68B42D6E43153CCABE8DCED37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:029B57817C07CCEB782EA6CB2DB32915F23684AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ VideoHive - Business Gallery - 131811 [AEP]
 ```bash
 magnet:?xt=urn:btih:969B13758FD3CE26197F1C2F7C1D44FC2A959A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98450300DD0F1D5B43BFEE8CF0DA023161A6A372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ LiveCD ESET NOD32 - спасательный загрузочный диск о�
 ```bash
 magnet:?xt=urn:btih:ADF62656B1B9ED0C86B4BC2A95D443BF03B42C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AF55FDA0C89223235FD0C94D21322C8C162D880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA7912242B4413313CA6D95AEA77C6D7F60718EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

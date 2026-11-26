@@ -19,8 +19,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Repack Other s
 ```bash
 magnet:?xt=urn:btih:880222474DE57AD3E208F0E557EBCF4D33D5C6EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Immortal Love 10: Polar Lights (2023) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:8FC07E388F367442CF00070C061E8A2EFA07B8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

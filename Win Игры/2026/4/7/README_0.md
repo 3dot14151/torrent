@@ -19,8 +19,7 @@ I Am Jesus Christ - это повествовательный опыт от пе
 ```bash
 magnet:?xt=urn:btih:93773FE4199C187C63E2DA9F0F3CBBE975F12C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.2.1.0_476053/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2C2DF82357E58C2CF82B488554EBDF8A8654042D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Super Meat Boy 3D - это суровый, как само существова�
 ```bash
 magnet:?xt=urn:btih:63026C828D1005F71D09052A0328BB62E4B077CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ All Will Fall - постапокалиптический градостроит�
 ```bash
 magnet:?xt=urn:btih:65DF8C0EC81C5671EDE7B40853F81718A3380327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ GRIME II (2026) [Ru/Multi] (1.0.17551e) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BC3C67ED3913B1FDD8AFD24D983D505A45E6B3F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Modulus: Factory Automation - творческий симулятор автом
 ```bash
 magnet:?xt=urn:btih:8C29562969CDE51FA36FED811EF152B358CEA0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Xenonauts 2 - это стратегия, в которой вам предсто
 ```bash
 magnet:?xt=urn:btih:976791F0FAAF76B94697CF1E85FDEBD21238364B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Stellar Tactics - это ностальгическое возвращение �
 ```bash
 magnet:?xt=urn:btih:B0D3035E76015709504EFC3EEA9730F6E52A267B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Origament A Paper Adventure (2026) [Ru/Multi] (1.8.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:22A91FC79236E3BED6B48D76F40AE00B5D8FB30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Mask of Soul - это двухмерная метроидвания-экшен-�
 ```bash
 magnet:?xt=urn:btih:C4DDEF43C61D334322FA64A3D48D4A47FFB4223A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Screamer (2026) [Multi] (1.0/dlc) Repack Let'sРlay [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:106A4F13868D78DDD825F198F48C6B0B0DECBF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Going Medieval (2021) [Ru/Multi] (1.0.52/dlc) Repack Let'sРlay [Fortified Editi
 ```bash
 magnet:?xt=urn:btih:54B1C38284646903A7D84728D715F35B38F90761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

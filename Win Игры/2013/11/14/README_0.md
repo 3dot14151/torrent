@@ -20,8 +20,7 @@ Blood Knights рассказывает историю Джереми, охотн
 ```bash
 magnet:?xt=urn:btih:8D2EADFFD400AC320BA86F2283CE83DE245CF71D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Rain Blood Chronicles: Mirage можно назвать "Уся" 武俠 , что
 ```bash
 magnet:?xt=urn:btih:138B3FF291AE1B658FD9A520D9C7C261D9744422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ F1 2013 предлагает вниманию поклонников вирту�
 ```bash
 magnet:?xt=urn:btih:C30D17D36ACFCE9A07BC619C95540FB21E2CC2BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

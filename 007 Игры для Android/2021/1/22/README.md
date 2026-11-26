@@ -19,8 +19,7 @@ Another World - это квест-головоломка, которую оче�
 ```bash
 magnet:?xt=urn:btih:91C73BADD87CC2DB584F2FFA0CB849F2348ADF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crimsonland HD – быстро развивающийся шутер на ан�
 ```bash
 magnet:?xt=urn:btih:7C6A41C910F8C19F39CC13DEDE48435325B5E85D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

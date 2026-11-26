@@ -19,8 +19,7 @@ Occultic;Nine / Оккультная девятка [2016, TV, 12 ep] WEB-DL 720
 ```bash
 magnet:?xt=urn:btih:0041384E45F6D41FC7200F0E9F1C13EB07EC42B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E944F9710271ACEA3589325B96CFB29AEF4F27BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DB0D1613748A645807961D68A6ED6ABAD334585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Call of Duty: Black Ops (2010) [Ru/En] (0.305-05.125430.1) Repack =nemos= [Colle
 ```bash
 magnet:?xt=urn:btih:686C320AD5096E64AC5F1C1A903FD37420AAB9AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F69BDBC96C614AB9FB1DB75A9015263C3A054C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Ken Dean/ Кен Дин | A Visual Documentary By Ken Dean/Куин - Визуа
 ```bash
 magnet:?xt=urn:btih:DB631E0B64C427A504BDCD59409CF1849B22DEDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

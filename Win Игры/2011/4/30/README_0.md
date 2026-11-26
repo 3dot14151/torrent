@@ -19,8 +19,7 @@ Curse of the Pharaoh: Tears of Sekhmet (P) [En] 2009
 ```bash
 magnet:?xt=urn:btih:FD7C338E61715E269EFA187AC1518BAB13E68E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Curse of the Pharaoh: Napoleon's Secret ™ (P) [En] 2009
 ```bash
 magnet:?xt=urn:btih:B80F699CDABFCB79F11F7A86747C42D630A7F7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Curse of the Pharaoh: The Quest for Nefertiti (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:5D901E6940DD690E252DB738A374E9ED08F31E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Allora and The Broken Portal (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:000BE6A13A069CA588D0D1497B204A3D5BD53382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Hidden Expedition: Devil`s Triangle/ Тайны Бермудского треу�
 ```bash
 magnet:?xt=urn:btih:D6EBF36417D353CAB5D3DC149533F19A9926151C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Hotel Mogul / Магнат отелей (P) [Ru] 2009
 ```bash
 magnet:?xt=urn:btih:9DA1CE8E86ED9ECC6321233C6D12BD6ECB2D8CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Hotel Mogul: Las Vegas / Магнат отелей. Лас-Вегас (P) [Ru] 2
 ```bash
 magnet:?xt=urn:btih:9794EEE577E14399E3523402FC30D7CAC74635E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

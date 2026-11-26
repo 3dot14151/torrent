@@ -20,8 +20,7 @@ BatchOutput PDF упрощает вашу жизнь, автоматически
 ```bash
 magnet:?xt=urn:btih:5AD73DD689B97C9AA022B579B6E20EDECC30CAEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mic Drop позволяет пользователям отключать и в�
 ```bash
 magnet:?xt=urn:btih:4ACA3F0334CD87048263B6B4FE2242E94AE50BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Posterino – программа, ориентированная на созда
 ```bash
 magnet:?xt=urn:btih:7AC4B053507A1AB47C882D749AA8E08EE155249C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ GoodNotes 5 v5.7.58 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5C5A25036E5D29F465CFECE6BD9B079944C93439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Author 8.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:4A5C0D16714BE70407E5E1AE248F31398DF1F959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:04A2BF53FFFABF6ADDB5AF252015E82D904254A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ VA - Milano Orange (Urban Music for Urban People) (2018) [AAC|~305 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:B2753D2BF690C703898934B56516D63929B25524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ WonderPen - приложение для как для профессиональ
 ```bash
 magnet:?xt=urn:btih:32184A9D0F6B5C032DB6847CCBC2D3E3329C2AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - New York Orange (Urban Music for Urban People) (2018) [AAC|~320 Kbps] <Loun
 ```bash
 magnet:?xt=urn:btih:676B36F070820FE66033D1ADFB13DAAECAF799BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ VA - Singapore Orange (Urban Music for Urban People) (2019) [AAC|~336 Kbps] <Lou
 ```bash
 magnet:?xt=urn:btih:19792682404EB9ED1026F2B87AA1148EDAEE2D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ RAW Power 3.4.2 [En]
 ```bash
 magnet:?xt=urn:btih:CAA4FD32310DE1D6A3B0BB93FAFCA26B8EAA4A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:78A5828FA06C837BF422E4A905F4AC6E5709AE50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ VA - Monaco Orange (Urban Music for Urban People) (2018) [AAC|~305 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:F3AB04C0246202DA388A3B93CAD1F2299E4FDB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ VA - Bali Orange (Music to Chillout & Relax) (2019) [AAC|~323 Kbps] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:2D98BFAAB11C86D6CFB61B55FB7750EEDA618962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Mirror for Sharp TV 3.6.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1A79ED00B32AB49E4CB4C43211B2ACC6C97BBC9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ VA - The Electro Swing Revolution, Vol. 5 (2014) [AAC|~325 Kbps] <Electro Swing,
 ```bash
 magnet:?xt=urn:btih:C0D8816B0C2B8B9FBD723C2CF916AAD08CC13C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:E0E0C280B659D2811EBD26BE908F822F266ADF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:1B9658F251F1217770BF4D3505A68232FDAD057F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Alfred 4 Powerpack 4.6.2 [En]
 ```bash
 magnet:?xt=urn:btih:B9FE548AD6ADC1E7C4E65F3B887636BA21B05D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ HighTop - самый удобный способ работы с любимым�
 ```bash
 magnet:?xt=urn:btih:FA1C2E305AECC1BF148E4CF339E17D57419082D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:B4BFB437722EF40211C5166F16F6A3CF89CAB68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ SnippetsLab — это простой в использовании менедж
 ```bash
 magnet:?xt=urn:btih:44CCA0867286B8887E6E63171F6415071BBA97DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ Project Office Pro 9.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:44CFB6E34AD88CC3E9B5EC8984014214B8AF2472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ Ravager - The Third Attack (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:219D7904AABB8339A5A7F4D79974B42F6D94DF30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:57C109D73F5DB6BF803C4AA7218DC691A9F009F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ VA - Paris Orange (Romantic French Vibes of the City) (2018) [AAC|~331 Kbps] <Lo
 ```bash
 magnet:?xt=urn:btih:DD0068C22A3F450E3D0C2F7B789BDBCC891F0FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

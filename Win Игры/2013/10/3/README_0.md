@@ -19,8 +19,7 @@ Mayan Prophecies 2: Cursed Island Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F2A41C1034D4B2133CAFDD6B731DC8265B629530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Inner World (2013) [Multi] (1.0.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:4CC1523159CFB2F3E52A4EBBB6B8F0105BDC74E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Rise of Venice (2013) [Ru/En] (1.0.2.4382/dlc) SteamRip _PALADIN_
 ```bash
 magnet:?xt=urn:btih:D38260EA866358B81F5FA7D58EBB7E60EBD5AA5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Air Conflicts: Vietnam (2013) [Ru/En] (1.0.96.397) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:BFF3ADBFAD17CF6E36B83376E072B837AD20820A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Air Conflicts: Vietnam (2013) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:987BA1C594B75E0C07E168729DC6A1166AE14632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ TimeLines: Assault On America - это стратегия в реальном в
 ```bash
 magnet:?xt=urn:btih:A1871C1EC571139DEEF4CAE2B9E152E2751476DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ NBA 2K14 (2013) [Multi] (1.0.1.1) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:83F0D264FED3A560F307C35A17BCD1EC1EC5211A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

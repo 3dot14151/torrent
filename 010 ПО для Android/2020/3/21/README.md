@@ -19,8 +19,7 @@ SD Card Test Pro 1.8.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:FF57E52090F54278040099DE819CD789F0DBAFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

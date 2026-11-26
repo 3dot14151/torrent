@@ -19,8 +19,7 @@ Ski Tracker - отслеживание на лыжах, это приложен�
 ```bash
 magnet:?xt=urn:btih:470E7DB9B2C10710532F8292FA09EE7935516793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Adobe Master Collection For Android - Сборник всех программ �
 ```bash
 magnet:?xt=urn:btih:93461482F0A148F825434E0C9CFD646A68AD1047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

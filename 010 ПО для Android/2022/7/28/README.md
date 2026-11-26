@@ -19,8 +19,7 @@ Strava: бег и велоспорт - ценное приложение для 
 ```bash
 magnet:?xt=urn:btih:88395113C363B0F8FB7283EDD528DED3210DF439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

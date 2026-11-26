@@ -19,8 +19,7 @@ Evil Defenders – это забавная и невероятно увлека�
 ```bash
 magnet:?xt=urn:btih:AB35719FC6145C179AD99C80F15F0DD563B46B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Buried In Verona - Notorious (2012) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:71BF745496FEE4A377534B0984361A307A33478F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Ekkaia - Sombras Del Progreso (2006) [MP3|320 кб/с]<Hardcore, Screamo, Crust>
 ```bash
 magnet:?xt=urn:btih:F40086B3C314C58C2D4603C02B69881D115EDEC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ What's Left Of Nowhere - With Clean Hands (2014) [MP3|320 кб/с]<Metalcore, Ma
 ```bash
 magnet:?xt=urn:btih:D8EDD33DCDE934D50034B304043A080F55421E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Beyond The Shore - GhostWatcher (2013) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:B773A31B3F34840077186C33E45C799F52F17788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Issues - Issues (2014) [MP3|320 кб/с]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:0035EDF9EB9A40929A36EA0A1A046EB242221D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Her Enchantment - Darkest (2005) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C8F4A432E4E313C565DC17A958B75E5C48AAE52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ VA - Lounge At The Seashore 12 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:D825498F41C71C3176A4F120E2B52D0B65B29698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ The Healing - Transcendence (EP) (2011) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:E09BA2423CEC58DE73E09F60025FEC8CAD1E33FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Collin Raye - 2 альбома (1997-2000) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:5F0E01E176F8A081DA7955F90C2AC30897047AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ VA - Lounge Music - The Tokyo Sessions (2014) [MP3|320 кб/с]<Lounge, Chill Ou
 ```bash
 magnet:?xt=urn:btih:8FE9F102FB70F3C0FCA6C9B08D15AD34B50F781B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ lynch. - Gallows (2014) [MP3|320 кб/с]<JRock, Metal>
 ```bash
 magnet:?xt=urn:btih:75AFB1B7167506F12422335DC4ECE337790D6725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +391,7 @@ Beyond All Recognition - Drop = Dead (2012) [MP3|320 кб/с]<Metalcore, Dubstep
 ```bash
 magnet:?xt=urn:btih:05AE4DA90F9439B9D5B376069D93F99F2BC78308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +416,7 @@ Don't Sleep 3.34 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:56E355158FC0E2F065ED0EF2805DFCB3367B8E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +450,7 @@ VA - Miami Trance Essentials 2014 [MP3|320 кб/с]<Uplifting Trance, Trance>
 ```bash
 magnet:?xt=urn:btih:66727931602B926571BCFCB4318AD53CFE71C49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +481,7 @@ Storm Inside - Мир, В Котором Правды Нет (2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:78042C49E6959DE2F2E26D8CE5021DEFACF6C70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +515,7 @@ Battleroar - Blood Of Legends (2014) [FLAC|Lossless]<Epic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7686F1BE84F5A667A7E704BB5BC01F64D7BF7578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +549,7 @@ Savage Messiah - The Fateful Dark (2014) [FLAC|Lossless]<Thrash/Heavy/Power>
 ```bash
 magnet:?xt=urn:btih:5049F952D826688EF01D76EC923DC4E745FBC746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0C22D83C7A71CE5258A4B847A4631C51C103341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +599,7 @@ The Flashbulb - Solar One (2014) [FLAC|Lossless|WEB-DL]<Ambient>
 ```bash
 magnet:?xt=urn:btih:E3AFD12AD8A8F411FC9DD34DC56E216DFD135E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3307CC6E34BC5AEB2723E04C8EF04BEE3DD4178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:544212635117D1035D6A9FEB16517E06532CB14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DAC3127C010020730617DD7B0B04B7200707EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +709,7 @@ Tasters - Reckless Till the End (2011) [MP3|192 кб/с]<Metalcore, Electronic>
 ```bash
 magnet:?xt=urn:btih:3FB24B58415DB69647743FFA2FAF0047E8AE09F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFAE51E63A0DA444ADB6C694CEEC0224809423D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D086C7D2E218E65D335CBCC12AC95CC932A25EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +784,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C12F773140BE217CAEA98EA52B8FBD1125A4D52A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

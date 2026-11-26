@@ -19,8 +19,7 @@ ScreenHunter Pro – программа для получения снимков
 ```bash
 magnet:?xt=urn:btih:7826424463AAC1156C23003212E5743DBC1BA938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Nekonverter — это конвертер величин для Windows, поз�
 ```bash
 magnet:?xt=urn:btih:C850FCD212B50A0B3E5C01BB0B29C438A9173AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Scrivener — мощный текстовый редактор для тех, к
 ```bash
 magnet:?xt=urn:btih:81D7EFDA6451062D155379CAEC8D0A1AE299A704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Screen Translator - экранный переводчик который поз�
 ```bash
 magnet:?xt=urn:btih:81CC58CE601658F9A742E3CF2925DF97F7FCF405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

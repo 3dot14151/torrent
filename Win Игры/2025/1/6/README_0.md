@@ -19,8 +19,7 @@ Grand Theft Auto IV (2020) [Ru/Multi] (1.2.0.59/dlc) Repack dixen18 [The Complet
 ```bash
 magnet:?xt=urn:btih:12EE8326FDBC0DB6CD7E09164A7FD928EDF4B3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 ```bash
 magnet:?xt=urn:btih:F41B0DDE3B05EB5210B7A719D498807F70573086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Heads Will Roll: Reforged позволит игроку примерить на 
 ```bash
 magnet:?xt=urn:btih:A80AA153F8F8164B72C2988B90638CE69725E49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Adventure Allies - это казуальная игра в жанре action-adv
 ```bash
 magnet:?xt=urn:btih:93A737325C88CC854084FDB235D3C1B824136A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ From the Depths - это аркадный экшен, в котором игро
 ```bash
 magnet:?xt=urn:btih:B4A21C886B49727277F36A22FCF964D175F7E428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Beach Invasion 1945-Pacific - это шутер от первого лица в�
 ```bash
 magnet:?xt=urn:btih:6F38F20A3D745F97691A5A5B2197EB2AD44D170D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Satellite odyssey: Рrologue - открывающая часть серии иг
 ```bash
 magnet:?xt=urn:btih:339890C04B7ADD981ED192F0BB82489D447F884F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ This War of Mine - первая игра, которая позволяет ув
 ```bash
 magnet:?xt=urn:btih:C23BE1CA4AF420A3762A9DA24AB0B2F901B13568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Everybody's Gone to the Rapture (2016) [Ru/Multi] (1.01 Build 1197371) Repack Le
 ```bash
 magnet:?xt=urn:btih:C2C595D88A4438E415DB584A31C7C273048F180E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.5.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9E1C1558DDB47DB92F188FFD0129B867B9C2DBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Janosik – экшн-платформер с элементами метроид
 ```bash
 magnet:?xt=urn:btih:9A4AA37E155485485E59C9792946E02405EBBE4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Coromon – ролевое инди-приключение про прируче
 ```bash
 magnet:?xt=urn:btih:6CE877AA706CBFEFBCFC1C4DD5B97B9E3D3CCA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ DREAMERS позволит тебе погрузиться в увлекател�
 ```bash
 magnet:?xt=urn:btih:468DDC91D00E89DE573171320E46910FA85C6236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

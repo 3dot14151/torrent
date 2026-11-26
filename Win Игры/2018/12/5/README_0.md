@@ -19,8 +19,7 @@ The Unseen Fears 3: Last Dance (2018) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:CB231EF5805AC2E42763484B4C0C974D27194276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark City 2: Munich / Мрачный город 2: Мюнхен (2018) [Ru] (1.0
 ```bash
 magnet:?xt=urn:btih:0129B994A9DD139694C20287C02113724E6AF92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Umfend (2018) [Ru/Multi] (1.0F) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0F59E9B7E3D8ECA30E1E41C16D5DD1E69DEB530E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:69EBDD3475F27670633B430F7EB0DA301F2160B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Council — ни на что не похожая эпизодическая 
 ```bash
 magnet:?xt=urn:btih:D43B35232C6003E9F07F80A7583DF116DCC6E64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ OVERKILL’s The Walking Dead — энергичный кооперативны�
 ```bash
 magnet:?xt=urn:btih:E2C16433FFFD69BD0C0A3AE222FD37633675CBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Rebel Cops — спин-офф This Is the Police, целиком посвяще
 ```bash
 magnet:?xt=urn:btih:E6ACF1A7BF9CC298CA774E7F38C04A875BA9BA40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Production line - это новый экономический симулято�
 ```bash
 magnet:?xt=urn:btih:162C412ED03902D73E5483C74B421C6FC980594D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

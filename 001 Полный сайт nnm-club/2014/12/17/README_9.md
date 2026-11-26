@@ -26,8 +26,7 @@
 ```bash
 magnet:?xt=urn:btih:42AFB7237310BF4D34126BBA070997FC45AE2C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Chronovore - Truth Is The Daughter Of Time (2014) [MP3|320 кб/с]<Atmospheric 
 ```bash
 magnet:?xt=urn:btih:838B73DB14CE7AC31EEB3A5D6CF8705DE5A931A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Eskmo - Aspen (W Extra Field Recordings) (2014) [FLAC|Lossless|WEB-DL]<Ambient, 
 ```bash
 magnet:?xt=urn:btih:2A432879DFCAFD113323A38657CF51C1ACBD70BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ As Animals Eat My Insides - Devoured (2014) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:799358314EBACF09E67F80C8610F5C9572B5BD8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Eskmo - B Sides Unreleased Vol. 1 (2008 - 2012) (2014) [FLAC|Lossless|WEB-DL]<Ab
 ```bash
 magnet:?xt=urn:btih:FEB2E982AA712EE68708323D4069692A8F8BE4BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ SineRider - Lifecycles (2014) EP[FLAC|Lossless|WEB-DL]<Ambient, Downtempo, IDM>
 ```bash
 magnet:?xt=urn:btih:C77C4AE3A24DA0B44CB352DAEB3CB8903777EF76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:360A6FAB2F48280BB2B7DF98309D84603FD39019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Soulburn - The Suffocating Darkness (2014) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:3945126A2BC39D27F02D3D5989DD5A5123851558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ Consecration - Ephemerality (2014) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:839FAA88FA065A75B3C3876A6E660244536087F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6BA00266087F13E030B7751B60633B5DBCAB2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Switch. - Emergence (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:B3996052B431747B3A4BB798CFEB163DE7DDA157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FFDA2C7859F07715665677C489D1B66A96A0737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B58E14E4654D17CBA35C113C784AFC33938FBA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AF18B6FCAE686A214342F2257671E721BD3D7FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ VA - Maison De La Lounge: Best Of Chillout (2014) [MP3|320 кб/с]<Downtempo, C
 ```bash
 magnet:?xt=urn:btih:3C6C8DC39BE1D79DB543F73FA6BA6D0C686B09ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ Rishloo - Living As Ghosts With Buildings As Teeth (2014) [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:21ED178BAB68C78A29ACEA76B23FD021531E15E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D25E66B25BFD2E4022D6152375421CF32DBDEAE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B173D304AD29537EE5B8C7E26709A0088B2DFD99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +564,7 @@ Code-Thunder	5:32(   Читать дальше...   )Жанр: Electronic, Berli
 ```bash
 magnet:?xt=urn:btih:C707C01D3734DECEF5EAB2E3545D593553212D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +598,7 @@ Tiktak - Sinkut: 99-07 (2007) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:0F3FF983D88148D5593A8480B625BCF3DE82E7EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ John Handy - Hard Work & Carnival (2011) [FLAC|Lossless]<Jazz,  Jazz Fusion, Sou
 ```bash
 magnet:?xt=urn:btih:AF7974F6A185B686F1753F7B329CEB147BA75774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ Nucanchi Nan - Wandiay (2002) [MP3|256 кб/с]<Folk, Latin, Native American, In
 ```bash
 magnet:?xt=urn:btih:E3EF1598ED368315034A4B362B9E757A0B44A8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +700,7 @@ VA - Media Blackout Nights, Vol. 1 (2014) [MP3|320 кб/с]<Deep House, Disco, N
 ```bash
 magnet:?xt=urn:btih:025169491DACC6A435D4EC70EB57FCAC0FBC88C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +734,7 @@ Winger - Demo Anthology (2007) 2CD [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0DA24AE81A75FDE6DDD9293A031F7242EABF96B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +768,7 @@ Software - Electronic Universe Part II (1991) [FLAC|Lossless]<Electronic, Berlin
 ```bash
 magnet:?xt=urn:btih:CC320436CAAD4797B60DE97F82145B3A6E037C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -825,8 +800,7 @@ Software - The-Third-Dimension-Live-In-Concert (1989) [FLAC|Lossless]<Electronic
 ```bash
 magnet:?xt=urn:btih:E6927B33CDE751D5EA1DC19EE32430D31A917321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Burden (2018) [Ru/En] (1.0/upd14) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:093545BA6B232DF26DA4EF40C5D66F779AE612F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gravel – динамичная гоночная игра, где пользов
 ```bash
 magnet:?xt=urn:btih:63C4360D42970EC7E5AFCDDB92773193AFF1C107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B061BEA577DB33C639703CA60FE0257F1B4A900A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

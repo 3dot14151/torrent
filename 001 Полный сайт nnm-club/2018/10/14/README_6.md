@@ -18,8 +18,7 @@ Two Point Hospital - симулятор работы медицинского у
 ```bash
 magnet:?xt=urn:btih:50D0802786AEEB6AF7CBECD6F1E9FA6DC758370F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ RUINER (2017) [Ru/Multi] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:BEA40D8AFF2FA73F2410F403C799AF791ACB0BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ EveryCircuit v2.19 [En/Rus] - Проектирование и моделиров
 ```bash
 magnet:?xt=urn:btih:511FAFD6DBB5A517461244DAFDAE0F62FA64D822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:202EEB22AADCD1E953A8CCB0EE9E7B5BD0659A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

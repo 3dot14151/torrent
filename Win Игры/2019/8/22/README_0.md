@@ -19,8 +19,7 @@ Mystery Case Files 19: Moths to a Flame (2019) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:472ADECF79E2BC2E4F9B15E7453C710F4D995718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Silent Hill: Alchemilla — это самостоятельная модифик
 ```bash
 magnet:?xt=urn:btih:352982F4376EF5FEC49FEE2B791B75EA26856357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Worms W.M.D (2016) [Ru/Multi] (1637.583366/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:95507F0E72D899D5C975AF56046B817F20FFEB82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Silent Hill: Alchemilla (2015) [Ru/En] (1.02) Repack R.G. Freedom
 ```bash
 magnet:?xt=urn:btih:F432BF2542E09590EF18CD759A5EA608F9FA77CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (78.8186/dlc) License CODEX 
 ```bash
 magnet:?xt=urn:btih:FC042C3D81EE8B3038538F388D84F39BC6A14116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dark Deception (2018) [Ru/Multi] (1.6.0/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:E9DFE529CBD0C010AD9B6172B78F59CB7750D923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Age of Empires - легендарная стратегия в реальном �
 ```bash
 magnet:?xt=urn:btih:FCCB32FD69952A07EE773E1900EC691CA2D1AB89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

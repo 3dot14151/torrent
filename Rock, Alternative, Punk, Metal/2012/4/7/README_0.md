@@ -28,8 +28,7 @@ Dark Moor - Best Ballads (2012) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:831E7D12207BE75B61062AF1E2DB93864ECA2466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Prospect Hill - 4 альбома (2005-2011)  [MP3|225-320 кб/с] <Alt. Rock |
 ```bash
 magnet:?xt=urn:btih:043E432B87F1572D05D4199E20019C6A2C1BCABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ ALTERNATIVE 4, новое детище Дункана Паттерсона (ANAT
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Ministry - Relapse (2012) [FLAC|Lossless]<Industrial Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Two Witches - The Vampire's Kiss (1993) [FLAC|Lossless]<Gothic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ FireScent - Passengers (2012) [MP3|320 кб/с]<Dark Progressive Metal, Power Me
 ```bash
 magnet:?xt=urn:btih:99F522AB2CAAA536881BD3EAC8644E70018C662D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Burning Shadows - Gather, Darkness! (2012) [MP3|320 кб/с]<Heavy Metal, Power 
 ```bash
 magnet:?xt=urn:btih:4B97233CC84C0DB0F7A9D7A09C2A65E25E6844A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Distance Call - Distance Call (2011) [FLAC|Lossless]<Melodic Metal, Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Pr-Mex - 2012 (2012) [MP3|320 кб/с]<Rock, пародия>
 ```bash
 magnet:?xt=urn:btih:E67203773E08059F56B822A0D25FCF46354F8D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Eklipse - A Night in Strings (2012) [MP3|320 кб/с]<Instrumental Symphonic Roc
 ```bash
 magnet:?xt=urn:btih:5694F1706A98A93A3CF0F3399A4BCA6DEA39F17B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

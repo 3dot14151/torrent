@@ -19,8 +19,7 @@ Hamachi – это сетевая технология, которая позв�
 ```bash
 magnet:?xt=urn:btih:92564F05C3E72DED00FCEFBBCF2A8D65E5F1A096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

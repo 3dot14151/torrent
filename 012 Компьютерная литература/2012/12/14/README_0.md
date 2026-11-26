@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:E10B59DFF2089CF81628934D234F50EFE84CF65B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ MongoDB - это документо-ориентированная база да
 ```bash
 magnet:?xt=urn:btih:1DC72BC4814ECE182304AA66628FF6F06058DA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ B4. Alive [04:54](   Читать дальше...   )Жанр: Rock, Heavy Metal
 ```bash
 magnet:?xt=urn:btih:F38DFD1F80C422A7348C4BA05E17948BE0E20998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

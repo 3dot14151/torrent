@@ -22,8 +22,7 @@ Burzum - Filosofem (1996) Misanthropy Records [FLAC|Lossless|tracks+.cue] <Black
 ```bash
 magnet:?xt=urn:btih:A582D8027B99CC4C8348E4A20D4D398E7801462D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Phantasmat 11: Déjà Vu / Фантазмат 11: Дежавю (2018) [Ru] (1.0)
 ```bash
 magnet:?xt=urn:btih:1F8DB9933AFF97CC36F5B1ECCB100B5A132CE604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unravel Two продолжает тему оригинальной игры, н�
 ```bash
 magnet:?xt=urn:btih:24649FEC1D51B9BF189BDC49298968C15D0C5D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unravel Two (2018) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:16D388A125324DB350BB45AD5C997465B1C103D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Darksiders 2 (2015) [Ru/Multi] (2.1.0.4/dlc) Repack xatab [Deathinitive Edition]
 ```bash
 magnet:?xt=urn:btih:153DDF918A0BE80364D57762145EC6990368C889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

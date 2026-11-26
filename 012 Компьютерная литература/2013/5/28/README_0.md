@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B0492D337604363C58A78168BEEF4B5AFE2C28D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Adobe Press | Adobe Illustrator CS6. Официальный учебный ку�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

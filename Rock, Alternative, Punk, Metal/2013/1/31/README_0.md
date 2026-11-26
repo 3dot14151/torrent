@@ -28,8 +28,7 @@ Silverstein - This Is How the Wind Shifts (2013) [MP3|~245 кб/с (V0)]<Post-Ha
 ```bash
 magnet:?xt=urn:btih:73A15EEA49D8DCBC60330562366E4C493F851249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ As Likely As Not - Stand Up and Nerve (2011) [WavPack|Lossless]<Melodic Death Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

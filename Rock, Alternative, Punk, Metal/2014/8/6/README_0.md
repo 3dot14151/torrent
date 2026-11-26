@@ -28,8 +28,7 @@ Pour Habit - 2 альбома (2009-2011) [MP3|320 кб/с]<Melodic Hardcore, Sk
 ```bash
 magnet:?xt=urn:btih:8D2A7F9CC3BB5B21AB91A12B6A8FA52D7140FAF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Ear Danger - Warrior Soul (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:189BEFA11D14FF5C376D42264E6246B4B902E817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Chronosphere - Embracing Oblivion (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A5AE1E25552E194C3C8805CEC278304E8B7C6D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Counterpunch - Bruises (2014) [MP3|320 кб/с]<Melodic Hardcore, Skate Punk>
 ```bash
 magnet:?xt=urn:btih:09AAC2AC635FCAC47452206C15823BB72064A63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Dagor Dagorath - Dissident (2014) [FLAC|Lossless]<Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:BFA90F045E19F6F40F3D954781370F2D652E9333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ SilverCast - Старая мелодия для флейты (2014) Compilation 
 ```bash
 magnet:?xt=urn:btih:9A680DD5B096B801BFB9F80D7941D0E616AD7077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BB4348FB7F5C14DD52CC04BC9075748007EF802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

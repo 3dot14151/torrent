@@ -21,8 +21,7 @@ Edubuntu — дистрибутив операционной системы Linu
 ```bash
 magnet:?xt=urn:btih:C42A3650E3FCBD94C0A2C38258D1A4D7A468F1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

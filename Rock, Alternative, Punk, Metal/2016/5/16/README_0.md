@@ -22,8 +22,7 @@ Bear Hands - You'll Pay For This (2016) [FLAC|Lossless|tracks] <Experimental Roc
 ```bash
 magnet:?xt=urn:btih:62AACB4E48CC8D17F804B2E2E7511AE0E8C493E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hotei - Strangers (2015) [FLAC|Lossless|image + .cue] <Rock, Alternative Rock, H
 ```bash
 magnet:?xt=urn:btih:1635F300385450C92594AFA6288987C34F788AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02C79E08E6B38256A6F4ABEA7282802341F61A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Danger Zone - Closer To Heaven (2016) [FLAC|Lossless|image + .cue] <Melodic Hard
 ```bash
 magnet:?xt=urn:btih:9311A62C0274674806D3243351BD7DEB4D40C7E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Joe Cocker - Heart & Soul (2004) US Version [FLAC|Lossless|image + .cue] <Rock, 
 ```bash
 magnet:?xt=urn:btih:D61907322AEDFC884CF7433A868D3B1CDF959CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Shexna - Вы Завийте, Витерочики... (2016) [MP3|320 кб/с] <
 ```bash
 magnet:?xt=urn:btih:581E2B0AE87414CF0878AD58035EA236722E4852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

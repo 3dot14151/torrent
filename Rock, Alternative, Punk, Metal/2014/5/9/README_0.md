@@ -28,8 +28,7 @@ Silent Edge - The Eyes Of The Shadow (2003) [APE|Lossless]<Power Metal / Progres
 ```bash
 magnet:?xt=urn:btih:18C6B0AD53FC9DFC5EB19EA6B1CE0555B0FF7D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Amenra - Mass V (2012) [MP3|320 кб/с]<Post Metal,Post Hardcore, Sludge>
 ```bash
 magnet:?xt=urn:btih:0BA1F42E29DFBE069D20BB0C412892894FE4ADC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Gjenferdsel - I (2006) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:0994326D8425026799304BA032AA91E5F2A724CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Dave Mason - Future’s Past (2014) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9F8E84B05AFA8AB2F368AE1F2FD35419110AA3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Bonus Tracks:
 ```bash
 magnet:?xt=urn:btih:5744E4F857DC2206B60AFA5EF0936F039FD80BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Arida Vortex - Hail To Rock (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:FA72B1C3C0A8F4BAFAF27CB77905903EFA6EAF2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Dark Lunacy - The Day Of Victory (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:D313DC6F1F9F089BAAF6F876C966314194F0001F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:CFE9128D98C4CB4120E646B96328F12D8B341CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Some Of My Favorites-
 ```bash
 magnet:?xt=urn:btih:D6ACED34850A026A14A06F57DDAD23A02EE9D945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

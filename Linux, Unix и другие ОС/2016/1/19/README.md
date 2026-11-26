@@ -19,8 +19,7 @@ KaOS Linux 2016.01 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:D3A51925CD9CC30F97A75C0151E14B7405B97DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

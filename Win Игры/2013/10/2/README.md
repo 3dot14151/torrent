@@ -19,8 +19,7 @@ Questerium: Sinister Trinity (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:AE10298C6D908999C17A54C7486ABFC4E8B32FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Surface 4: The Pantheon Collector's Edition / Над водой 4: Пантео�
 ```bash
 magnet:?xt=urn:btih:D51D0968DAB831D4EC78BD9AAACF9A1B2E23D6A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Pid (2012) [Ru/Multi6] (1.2) RePack NSIS
 ```bash
 magnet:?xt=urn:btih:C0389256D2AC8E86835E771AE0372A9F424D7135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ R.I.P.D. The Game (2013) [Ru/En] (1.0) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:06D641BE0BA0F0BC4A325E04206617CCD3EB36A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Mark of the Ninja (2012) [Ru/Multi] (1.0) Repack R.G. Catalyst [Special Edition]
 ```bash
 magnet:?xt=urn:btih:60D9205DDEF08F85F6FCCB3EC2675A657A7A04AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

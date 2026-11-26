@@ -19,8 +19,7 @@ Ms. Holmes 2: Five Orange Pips / Мисс Холмс 2: Пять апельси�
 ```bash
 magnet:?xt=urn:btih:E6AE95AA516E9248F9A4C9B6FE93C13D0D351640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Protocol (2018) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:3CE4CCA6FC1FCD7D380612246A5865C501CA559F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

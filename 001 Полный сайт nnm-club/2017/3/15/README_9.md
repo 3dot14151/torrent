@@ -21,8 +21,7 @@ Mindsphere - Mental Triplex - Mindream (2017) [MP3|320 Kbps] <Psybient>
 ```bash
 magnet:?xt=urn:btih:E4A3F7CD56A2872F021EF3D9BCEBC7CD78BACDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Villa del Mar Vol.2: Deluxe Luxury and Spa Resort Chill Out (2017) [MP3|320
 ```bash
 magnet:?xt=urn:btih:B34238CCF77D66D238940ED57681EFCDEE7F4D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

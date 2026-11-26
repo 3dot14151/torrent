@@ -22,8 +22,7 @@ Rockets -Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electro, Synth
 ```bash
 magnet:?xt=urn:btih:72FA5930D05C0F7141A0157059789542E01A67DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A1 Telephone Mama
 ```bash
 magnet:?xt=urn:btih:69DB1CC47D89527F6FC9E55DA8369313AB908B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:E0F8F90DECF1492457B62EC2EE220B38D3593419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Italo Maxi-Hits (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]  <Electroni
 ```bash
 magnet:?xt=urn:btih:00B36E88A2E913F1E7AE0DE3617645967B22D7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ B1 C'est Pas Moi(   Читать дальше...   )Жанр: Electronic, PopП�
 ```bash
 magnet:?xt=urn:btih:CC3DCBB1AB97828E87A35B508BE264AA4FB5BD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

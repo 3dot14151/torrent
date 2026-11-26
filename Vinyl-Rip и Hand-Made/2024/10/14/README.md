@@ -22,8 +22,7 @@ Death Angel — филиппино-американская трэш-метал-
 ```bash
 magnet:?xt=urn:btih:7D1738461AB73FF03163965EB876B1CA5658BE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cruachan — ирландская группа, играющая в стиле �
 ```bash
 magnet:?xt=urn:btih:173BDC202A5DE1D15C1786156ED818C689174950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

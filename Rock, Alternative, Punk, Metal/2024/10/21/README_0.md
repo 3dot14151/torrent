@@ -22,8 +22,7 @@ Hazael - Thor (1993) Reissue, 2014, Dark Descent Records [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:82328D427BF39C66D7E83A0483789D260AAEF24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Die Gesellschaft der Grauen Herren - Imagines Itineris (2014) [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:6A7A854A3D56B879E65DD1DD55E0C483FED702C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Crown - Crown Of Thorns (2024) [FLAC|Lossless|image + .cue] <Melodic Death, 
 ```bash
 magnet:?xt=urn:btih:58328C4E05D0B3522968443EBA16947E6EC924C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wind Rose - Trollslayer (2024) [FLAC|Lossless|image + .cue] <Power Metal, Folk>
 ```bash
 magnet:?xt=urn:btih:578D3D7D31751252D6C8ACF4CAB176EFF86C233A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Heartwind - Higher And Higher (2018) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:5B639589097792CD5F9594FDE1B786E56F8BAE83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Nasty Savage - Jeopardy Room (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:812FD3A6D3F669DC6DAD0DE6D613DFCEB74888DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Europica - Part Two (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Folk Rock>
 ```bash
 magnet:?xt=urn:btih:4B7E22296F5982A59DF894D85FD08161739ECF06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Showaddywaddy - 20 Greatest Hits (1992) [FLAC|Lossless|image + .cue] <Rock, Pop,
 ```bash
 magnet:?xt=urn:btih:ADA4EB17F53DB2F706E8DA09856F179A31452FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Bobbie Dazzle - Fandabidozi (2024) [FLAC|Lossless|image + .cue] <Progressive, Ps
 ```bash
 magnet:?xt=urn:btih:15C5603B472152DA9EFF06008ACC10813B3BAB7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

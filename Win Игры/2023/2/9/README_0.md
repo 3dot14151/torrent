@@ -19,8 +19,7 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0/dlc) License Razor1911
 ```bash
 magnet:?xt=urn:btih:7F9F51BAAC6AD4A6A715E41B55B4CB9F412660B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

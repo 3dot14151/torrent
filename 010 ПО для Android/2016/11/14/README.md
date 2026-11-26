@@ -19,8 +19,7 @@ ProgTV - простое, но удобное и универсальное пр�
 ```bash
 magnet:?xt=urn:btih:69A8228814458C8CF048D2EAED94B3659E804254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Forge of Empires (2012) [Ru] (1.82) License
 ```bash
 magnet:?xt=urn:btih:6FD9E6FC3710C28E6B32EB7754B8478B9CFFE0B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Windows 10 Ver.1607 + LTSB (x86/x64) +/- Office 2016 24in1 by SmokieBlahBlah 16.
 ```bash
 magnet:?xt=urn:btih:48E49F1D82EC9C59D09A18AA7FE9CF464A351D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

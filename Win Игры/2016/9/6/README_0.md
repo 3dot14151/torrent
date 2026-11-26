@@ -19,8 +19,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/En] (1.2/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:C434E208D7992A7F418C751F49334EF2392CA08C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chronology - это головокружительное сочетание го
 ```bash
 magnet:?xt=urn:btih:EBA9A59CCBF6688DF37460E93FA9DAC42BE8CB9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Citadel - это кооперативная инди игра на выжива�
 ```bash
 magnet:?xt=urn:btih:C99F00FD07C332196D00B70D7DE953421E282A3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

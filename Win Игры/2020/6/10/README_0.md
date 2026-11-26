@@ -19,8 +19,7 @@ Team Sonic Racing совмещает лучшие элементы аркады 
 ```bash
 magnet:?xt=urn:btih:E2109B9B1259FFD9AABCBFEE6DEBF587508AB455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

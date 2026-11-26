@@ -19,8 +19,7 @@ FOTOHITS - популярный немецкий журнал о фотогра�
 ```bash
 magnet:?xt=urn:btih:3EB0FE365AE47F7E30C16EF84D2F18A479F1A188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FOTOHITS - популярный немецкий журнал о фотогра�
 ```bash
 magnet:?xt=urn:btih:07DE7413C4C2CB1DAB083AFAD3C9E371A73E6BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Woodsmith — журнал по столярному делу представл
 ```bash
 magnet:?xt=urn:btih:D3FB3660C091F79F2AB8E08A8D162C0DFE1DCA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ FOTOHITS - популярный немецкий журнал о фотогра�
 ```bash
 magnet:?xt=urn:btih:8849233F07336D4E4226D6B1433C2250B69DEA84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E024F2ED86366A9F656E3D1FB80AD3901649269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07AC5ED40317B9C216AA2845482580E854EC4F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC0C2DBCB65A70CC4AE24C592213F603BE6CD174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ FOTOHITS - популярный немецкий журнал о фотогра�
 ```bash
 magnet:?xt=urn:btih:ABD4AEBE83F9AF8F3AE277C1D922FC9D97D56587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

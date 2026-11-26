@@ -23,8 +23,7 @@ Cassandra Wilson - Thunderbird (2015) [FLAC 2.0 24/44.1|tracks (DC-CD)]<Blues>
 ```bash
 magnet:?xt=urn:btih:888145D567E8DD6379000512BE3EC9BB4EA401EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

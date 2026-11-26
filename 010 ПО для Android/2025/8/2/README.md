@@ -19,8 +19,7 @@ TeraBox - это инновационное облачное хранилище 
 ```bash
 magnet:?xt=urn:btih:1F376589317433D2EDA42E8A0B3F41E121C86CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:204F9ABC2B5614C8400356AC5874BB1C7F12A4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ AI Photo Editor Pro - Polish v1.662.224 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:197EB5E599222134604A969F424EE32A81381B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

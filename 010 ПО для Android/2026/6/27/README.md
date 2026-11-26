@@ -19,8 +19,7 @@ Lift v0.2.42 Free [Ru]
 ```bash
 magnet:?xt=urn:btih:248A429B64223963B1361A06BB2D97C5B6802407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

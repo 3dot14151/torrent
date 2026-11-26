@@ -22,8 +22,7 @@ EP4. 2017 - FactЖанр: Alternative Rock, Electronic Rock, Darkwave, Dark Ambi
 ```bash
 magnet:?xt=urn:btih:C35D607539A6EFE2A0A1CB535627F7904E1951E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Electric Light Orchestra - A New World Record (1976) Remastered, 2006, 30th Anni
 ```bash
 magnet:?xt=urn:btih:E72BEC6FAB791E56B6B2801E480637C009F82F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ The Cars - американская рок-группа «новой волны�
 ```bash
 magnet:?xt=urn:btih:17D9B479BCFB2DE831740AF3ED270C4758E4F62E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

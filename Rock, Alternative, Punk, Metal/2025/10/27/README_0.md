@@ -22,8 +22,7 @@ cLOUDs - Once Upon A Time... The Collection (2025) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6CE5BA7A76BDFB30965E1B480D2114A146FB0FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Swanslaughter - Make A Wish (2025) [MP3|320 Kbps] <Hardcore, Metalcore, Deathcor
 ```bash
 magnet:?xt=urn:btih:D3854C0298E0ED20A13AAE508FD0088A91A9757D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1 - Dissonance Theory (Album 2025):
 ```bash
 magnet:?xt=urn:btih:847A7E4D0D504D0A591301F9F8C9A29C935C2634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

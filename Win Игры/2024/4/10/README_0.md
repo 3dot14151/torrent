@@ -19,8 +19,7 @@ Felvidek – события этой JRPG-игры разворачиваютс�
 ```bash
 magnet:?xt=urn:btih:602774D9956E87D8A24E0E40D878ACE0DB0B66E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ranch Simulator - Build, Farm, Hunt – симулятор жизни на ра�
 ```bash
 magnet:?xt=urn:btih:0488D2310ACA8CC99AA0F4A70380A6C74DA25D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:62E9D19ED9F506634E9A1B99F41C72F079C5A5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shadow Strikers: Arena of Rivals - захватывающий файтинг, п
 ```bash
 magnet:?xt=urn:btih:CB0B08759973C72CD5DB835816BD32692B366090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Magical Mixture Mill - это увлекательный симулятор,
 ```bash
 magnet:?xt=urn:btih:4FFA69F530BEE4227E4D3F384257FDCF6D0D8FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Inkbound - это тактическая РПГ, в которой вы смож
 ```bash
 magnet:?xt=urn:btih:F50A2729B4FD156913117ED95023F4C287310656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Paradise Marsh (2022) [Multi] (1.0) Scene Tenoke [Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:A99D44C2466F635E269293ADDE419E1D18A85C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

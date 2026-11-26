@@ -21,8 +21,7 @@ PC Wizard предоставляет обширную информацию об�
 ```bash
 magnet:?xt=urn:btih:EAA0B4C7CA6DDD7B7F7A8A4C1113D0151DC5C72D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

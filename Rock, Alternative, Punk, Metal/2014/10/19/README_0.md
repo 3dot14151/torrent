@@ -25,8 +25,7 @@ Moonshade - Dream | Oblivion (2014) EP [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C1114A297B131AF4F9317333674E911BC35BD579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Reaper's Revenge - Wall Of Fear And Darkness (2014) [MP3|320 кб/с]<Heavy Meta
 ```bash
 magnet:?xt=urn:btih:5062A68E5D87199B16E05A0492379180D417659C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Style Trip - Flying With Pain (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A2C36CF90FCFFE007D329FC0F3289762A7E46315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Haeredium - Aurora (2014) [MP3|320 кб/с]<Folk/Power Metal>
 ```bash
 magnet:?xt=urn:btih:236505C63A38C2C33CA4C1E301E894FF29C60CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Epolets - Epolets (2013) [MP3|320 кб/с] <Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:26D78FCC574B0E96B8DBEDBCAAB1FF49B8522845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Equinox - The Cry Of Gaia (2014) [MP3|320 кб/с]<Symphonic Metal, Progressive 
 ```bash
 magnet:?xt=urn:btih:0ADBCFEB9EE6937522BB86176011A98B8224F670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ John Lennon And The Plastic Ono Band (With The Flux Fiddlers) - Imagine (2014) [
 ```bash
 magnet:?xt=urn:btih:618FEDFE603BA75CA8FB2B252EDB076C45005294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Chubby Checker - Twistin' The Hits (1996) [FLAC|Lossless]<Rock'N'Roll, Twist>
 ```bash
 magnet:?xt=urn:btih:E786B873D6B36E9B06E790E9D272867212E34829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Billy Idol - Kings & Queens Of The Underground (2014) [FLAC|Lossless|WEB-DL]<Roc
 ```bash
 magnet:?xt=urn:btih:ADA368A918A2C32F196943A9C6916762023F811D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +332,7 @@ CD2:(   Читать дальше...   )Жанр: RockПродолжительн
 ```bash
 magnet:?xt=urn:btih:50D0F0B21A37C33C225E1279AC3B42A57A6F55CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +366,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:F3F5B60D6041D6561B54CC32CD084ECD8156254C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

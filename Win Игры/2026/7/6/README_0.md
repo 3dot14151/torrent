@@ -19,8 +19,7 @@ Far Cry 6 - компьютерная игра в жанре шутера от п
 ```bash
 magnet:?xt=urn:btih:AFC53B70F84B797B9E50F82141310B48AE557405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Prototype 2 (2012) [Ru/En] (Build 19788008/dlc) Repack dixen18 [Radnet Edition]
 ```bash
 magnet:?xt=urn:btih:111AEA6E70CC19AD0C53F4AA1FC25146A1132236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Automobilista 2 – вторая часть гоночного симулято�
 ```bash
 magnet:?xt=urn:btih:660CC40E06A82F195037745DED68F9B67C9F72F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Awakener: Forgotten Oath - это динамичный экшен, где и
 ```bash
 magnet:?xt=urn:btih:91005BC51EB414643C9FD2EB66C06FE8C1472B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Atomic Heart переносит в альтернативную версию С�
 ```bash
 magnet:?xt=urn:btih:1B04D1571F86C32F66DB0D8739D0A60E17B5A9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

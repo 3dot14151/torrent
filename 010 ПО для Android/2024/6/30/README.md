@@ -19,8 +19,7 @@ DailyArt - Daily Dose of Art v3.2.7 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C0C50494BA14B3BD695BBCF402F0A7044708C446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49EAC8391AD25C780F485B8259E20812228E1800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Video Compressor v1.2.62 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:33E8E216408C01047778954B56F0124327209BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Battery One - приложение направленное на то, чтоб�
 ```bash
 magnet:?xt=urn:btih:4D12A31900750B3D9E8C3493EFEF189D7D132FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Battery One - приложение направленное на то, чтоб�
 ```bash
 magnet:?xt=urn:btih:2820CC20609E8E987D042B62956B044AFBEAB344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

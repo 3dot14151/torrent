@@ -19,8 +19,7 @@ Deer & Boy - повествовательное кинематографичес
 ```bash
 magnet:?xt=urn:btih:CE129FDA04426784DC0B71C83AEBF90B79C323AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

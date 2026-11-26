@@ -21,8 +21,7 @@ Turok: Evolution [Ru/En] (P) 2003
 ```bash
 magnet:?xt=urn:btih:B3524FB9F48073F060DCD0FFEA47827C797C79A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

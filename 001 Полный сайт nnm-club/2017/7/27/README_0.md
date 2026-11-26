@@ -21,8 +21,7 @@ Stoney Curtis Band - 2 Альбома (2005, 2010) [APE|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:72C54853E9A0C2C761325BBECE4DA629E9D7F361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:448200A2113439E8F78D6CEC3F50BD557A54A476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Will Downing - Come Together As One (1989) [FLAC|Lossless|image + .cue] <Swingbe
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ GraphicConverter - полнофункциональный графический
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A18D93CFC6572D12F7D8B368268CF0942843EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Rumpus - простой в использовании, высокопроизв�
 ```bash
 magnet:?xt=urn:btih:AC42F64D14C8FE584A3D658168437472A174FAD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - 50 Buddha Chill Lounge Selection (Compiled by Shadesgrey DJ) (2017) [MP3|32
 ```bash
 magnet:?xt=urn:btih:E08AF2E03010068B7D7C8D1C3A27D069F7215C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Kenny G - Breathless (1992) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:1F47A2AC0BFF59A9558428257F935AD3BE9177F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ A4. Red Is The Colour Of My Love(   Читать дальше...   )Жанр: El
 ```bash
 magnet:?xt=urn:btih:1710051B6E6B56AE5EA0E5620341ED4E52E652A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Macho Gang - The Best Of (2002) Strictly Limited Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:3F1EC48D29E8886E3BFD72CEF7F6D174447B1476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD977FC27B227A356CE08EFA8DCE453A768625E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0972B94A86A21F50A768B7335CB5E47D8749A836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:7A8FBC17BFF5FA1820803C79582FE61CC6BC8755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Solee - What Remains Are the Memories (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech
 ```bash
 magnet:?xt=urn:btih:13AEA28E0652080D3839E9F7D43B847461CF1F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Troels Hammer - The/Human/Tree (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, D
 ```bash
 magnet:?xt=urn:btih:DD21CE3E42844FC797DD41C619E3FD2D60196798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Masterplan - PumpKings (2017) [MP3|320 Kbps] <Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Luca D'Alberto - Endless (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balea
 ```bash
 magnet:?xt=urn:btih:2459D9E9D912FC4B370ABAE529201C462A76661A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:7DC6F24F6C0DD2A96F52B0B915774AFCF6A4FA8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ VA - Monster Jinx Beat Camp #01 (2017) [FLAC|Lossless|Web-DL|tracks] <Future Bea
 ```bash
 magnet:?xt=urn:btih:FB8507EDA53DEFFE0AD8FF4B6D741E32462BEC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35AA6C869A4A25FCE51EC8ED845C6C1AFEEEE7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Soft Organizer 6.10 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0033A284D96C1D68416FE09CA343E4378D578CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ Free Download Manager - бесплатная программа, сочетаю�
 ```bash
 magnet:?xt=urn:btih:4FC28E3ED2B47D14526C04BCE9C4E6E4C484F475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ Discovery: Гений авто-дизайна / Kindig Customs (2015) SATRip [H.
 ```bash
 magnet:?xt=urn:btih:8404490B78370356F7A5E30EADF0E0E3E5D3049A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ VA - Summer Beach Party Vol.3 (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:498422C4F1AAD981B9FE85695CAF7BD8FC78FEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

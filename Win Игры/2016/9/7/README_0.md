@@ -19,8 +19,7 @@ Dream - это игра об исследовании миров, целиком
 ```bash
 magnet:?xt=urn:btih:6EF5444ADB4E095435CB2676965CE0C0A9258024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ One Piece Burning Blood - яркий и динамичный файтинг о �
 ```bash
 magnet:?xt=urn:btih:72665B2A74548F6532173816D92FA9A7BDA41648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

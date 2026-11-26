@@ -19,8 +19,7 @@ Savant - Ascent REMIX предлагает отправиться в захва�
 ```bash
 magnet:?xt=urn:btih:8851D3E8DFDE54F67A2EB2EAC78AE7E80FF50837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mists of Noyah (2022) [Multi] (1.0.2) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:C6E08C87B0BAFBF185163BCB0DB6411FA4539F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

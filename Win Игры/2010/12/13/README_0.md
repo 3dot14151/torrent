@@ -19,8 +19,7 @@ DeathSpank: Thongs of Virtue [Ru] (P) 2010
 ```bash
 magnet:?xt=urn:btih:5197CDC54DE9C3CCFCD65B31FC059C77A9993471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

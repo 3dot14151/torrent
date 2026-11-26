@@ -22,8 +22,7 @@ Alpha To Omega - A Life (1976) Reissue CD, 1997, Black Rills Records [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:1192BFF30ADF43BD9D869432A429A3B4EFE6F96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Diabulus In Musica - Euphonic Entropy (2020) [MP3|320 kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:02FA8983D4205B5A06FD5578568993FA4B1CA48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D99816E8B374A9105613DE519D1B5E473581657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Black Swan - Shake the World (2020) [MP3|320 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EC70689999DB6239752F38374124E07BB10483DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ H.e.a.t - H.e.a.t II (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1ECE661C4F1E373F9B5D18C0B7CD3145CB5ABDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Russ Ballard - It's Good to Be Here (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:2C1B1B42F161F3FF4C7CC33B3018D15DB537B9D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Agnes Obel - Myopia (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:F1FBB986E668F184947DEAACBBAA4B7E08F4FB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

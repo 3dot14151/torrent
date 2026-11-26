@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:A8F356D9FD609D09D6AC240B700B5246C194980C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Summoning - With Doom We Come (2018) [MP3|320 Kbps] <Atmospheric Black Metal, Ep
 ```bash
 magnet:?xt=urn:btih:449AEDE43F62CA41CC66BAFC9F93643A0C3898B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ In Flames - Down, Wicked & No Good (2017) EP [MP3|320 Kbps] <Modern Metal, Alt.M
 ```bash
 magnet:?xt=urn:btih:BA11B6B9084A13538760A53092D16833C1FD08F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA1381F8B9611FF7FDE897D33695ACACA26AC59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Queen - News Of The World (1977) 40th Anniversary Edition (2017) 3CD [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:DBF3D9374DD3830F51793A1BB1A581817B153422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

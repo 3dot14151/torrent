@@ -22,8 +22,7 @@ Noise Box - Here's That Bliss You Left Behind (2019) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:467C33F7DDB70C8E13BDEAA1645909AB27562C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Isobel Campbell - There Is No Other… (2020) [FLAC|Lossless|tracks + .cue] <Ind
 ```bash
 magnet:?xt=urn:btih:6D32C91BBDF6AF9D52D276EF7B581F108FDD4DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lionville - 3 альбома Discography (2011-2017) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:768A93C769B16D0ADAE9D670E07D692EAB31A07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cornershop - England is a Garden (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Br
 ```bash
 magnet:?xt=urn:btih:C6EA4C17D3541D290100C211773EF3EDC4A7F220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Houston - 4 альбома (2010-2014) [FLAC|Lossless|image + .cue] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:8DD5EEEA11B5E1F80D1CA000A65CB08F465E53F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Pride Of Lions - 6 альбомов Discography 7CD (2003-2017) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:6426328E12D4B3E040702A7A7C65448DD3CD8F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Martina Edoff - We Will Align (2017) [FLAC|Lossless|image + .cue] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:D105A3BBD7B719F30CBFE6370294B0F1D5812AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Houston - 4 альбома Discography (2010-2014) [MP3|320 Kbps] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:A865CF9947D4CC4111173F59E77F2B8B44035352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Lionville - 3 альбома Discography (2011-2017) [MP3|320 Kbps] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:A1A75B3CE6C71B6C4C6EC6E6A73EE63EBC9177FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ My Dying Bride - The Ghost of Orion (2020) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:B235D39839F91EB1BE61460BF8254C2F65A6E380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Catharsis - Зеркало Судьбы (2019) [FLAC|Lossless|image + .cue] <Pow
 ```bash
 magnet:?xt=urn:btih:6B32C9A8C82196C9F7E89204BB1D21D5FBBFC390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Dark Fortress - Spectres from the Old World (2020) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:F7352C8A7923B53E70179471BA35107A704F6E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Crematory - Unbroken (2020) [MP3|320 Kbps] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:5D61C5FB970C675C183BEB794513F7D9B2E32571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Noise Box - Every Picture of You Is When You Were Younger (2016) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:D9185ECBBE75C44A0A53475BB5178B7F667F4CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Robert Plant - Digging Deep (2020) Singles Collection [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:419B26D469790CEACC019D69B2DF4C99126D285D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

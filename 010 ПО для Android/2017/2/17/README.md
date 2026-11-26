@@ -19,8 +19,7 @@ Youtube AdAway 3.5.0 [Ru] - Блокировка рекламы с YouTube
 ```bash
 magnet:?xt=urn:btih:3BAD9A1319D30426D013D0B976816AF2E41B42E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

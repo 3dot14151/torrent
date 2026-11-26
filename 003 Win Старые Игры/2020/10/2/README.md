@@ -19,8 +19,7 @@ Pendragon (2020) [En] (1.2.13) License GOG
 ```bash
 magnet:?xt=urn:btih:BA339AC5CB21D254D996B9E4BF300549106AB50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Cегодня Big Data – это большой бизнес.
 ```bash
 magnet:?xt=urn:btih:3FD730E9904E9260581B6A0C0EF531E6EFD67066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

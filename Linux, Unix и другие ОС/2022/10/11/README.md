@@ -19,8 +19,7 @@ Parrot Security OS 5.1 [Хакинг, аудит, безопасность] 1xDV
 ```bash
 magnet:?xt=urn:btih:7DEE3B886CB010C4DA20E7D039EAD9466BFEAABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

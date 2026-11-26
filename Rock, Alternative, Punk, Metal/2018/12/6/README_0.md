@@ -22,8 +22,7 @@ Iron Hunter - Mankind Resistance (2018) [FLAC|Lossless|tracks + .cue] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:50FD1BB9EC3900FCDD8C97D236DCD5C50F18E5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Soulfly - Ritual (2018) [WavPack|Lossless|image + .cue] <Groove Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:0BBF7C53EFF913809EBC75638B0DCC4351AC9DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Coldplay - Live In Buenos Aires (2018) [MP3|320 Kbps] <Alternative Rock, Indie R
 ```bash
 magnet:?xt=urn:btih:E66C451DB3F4C81A4D9A6734D73923137D1F68B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Metal Church - Damned If You Do (2018) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:384A7903680B26E28083F40E97341AA3A0066642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Apocalyptica - Plays Metallica by Four Cellos - A Live Performance (2018) [MP3|3
 ```bash
 magnet:?xt=urn:btih:E2739CEF8641106AFAF88C0B822297B1CC47190B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Serj Tankian - Imperfect Harmonies (2010) [FLAC|Lossless]<Avantgarde, Alternativ
 ```bash
 magnet:?xt=urn:btih:9F087F1EFAEBCAD319296695686D699FC59BE58D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

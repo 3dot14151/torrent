@@ -19,8 +19,7 @@ A.M.C, Six Blade - Strangers / Punks (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:21D9098EE7C2A274C6B525550F801134C3790B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Digital Rain - My Dreams of You (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:6A67804D41C1436CEA6C60651403B2DCD7EC9B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DE85CF3665B4453545D84330F0B09C0E6C105EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31BCC5958D231CC60A15FCAA1B380B1FF05D602F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:029BC8EE8C38435E41768AA72F2FDC5E901FAC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Easy - Chill Out Selection Vol. 3 (2014) [MP3|320 кб/с]<Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:16DCA874F2572D00C3C52ACADCA09796EFA49D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Sequent Industry - Storm EP (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:632E9C19664680A56496C3582AAD3BBA830CE6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ Grover Washington, Jr. - All My Tomorrows (1994) [FLAC|Lossless]<Jazz, Smooth Ja
 ```bash
 magnet:?xt=urn:btih:C8CBA88D2D9F71933C1F98E7BCE140545434EF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Every Time I Die - From Parts Unknown (2014) [MP3|320 кб/с]<Screamo, Hardcore
 ```bash
 magnet:?xt=urn:btih:DD932E71E17FEED8A404BAB58543917CAA313730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ Various Artists - 15 Years Of Fokuz - Episode 1 (2014) [FLAC|Lossless|WEB-DL]<Dr
 ```bash
 magnet:?xt=urn:btih:FA1F44BB2484E2F65BF924A9F6EF4DF1530F5809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ Marathon - Tea Lounge - Smooth Lounge Music (2014) [MP3|320 кб/с]<Chillout, L
 ```bash
 magnet:?xt=urn:btih:549CD2A6997C32479CFAF7A8D7450DBE79626DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ VA - Balkan Connection Tech Summer 2014 [MP3|320 кб/с] <Deep House, Tech Hous
 ```bash
 magnet:?xt=urn:btih:61D218BD90AB9C3DAE931A598B899CA1F68E078C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECEDE7A8F293CD1BE4477D8AB8D02C4EC851A5A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ Avizura -Lucky Star EP  (2013) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D5CA9057B0A8846CDF1E970081132C2602DF0FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ Neonlight - Sidus (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D77B7D69EBA16CBF740A02D2B908856FE462E5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ VA - Balkan Connection Summer 2014 [MP3|320 кб/с] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:B2228867BEAA84731F6CDC5CA72E7F5B697E320E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:E0864354ABA6BEB550F43DCCA57A15BCC8656ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ Ashampoo Snap - утилита для создания скриншотов (с�
 ```bash
 magnet:?xt=urn:btih:3BD8A17A1A4161B5FE2E38BE3607B42C647F8FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ Armin van Buuren - A State Of Trance 669 (2014) [MP3|320 кб/с]<Trance, Progre
 ```bash
 magnet:?xt=urn:btih:0B94E73BAE74FF15086839FC23B10588417FB1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ Audio - Heads Up / Stampede (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B24F406AD7F7767F4B2EF93276ECE4F9F2A56CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +616,7 @@ Amberian Dawn - Magic Forest (2014) Limited Edition [MP3|320 кб/с]<Neoclassic
 ```bash
 magnet:?xt=urn:btih:906D8949F074A934E8B2643C9E1C854834487632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ Shimon, Mediks - Mandroid (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:DD2BE21400426F5987E8715B55AF7E47C5D6308E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ Saveurs («Савёр», «Вкус») — глянцевый журнал об 
 ```bash
 magnet:?xt=urn:btih:02CE3AA7F8F804056E79160988C3AFA1792E7329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ VA - Le Beat Technique, Vol. 4 & 5 (2013) [MP3|320 кб/с] <Minimal, Tech House
 ```bash
 magnet:?xt=urn:btih:39756589123771F60895EFCEB6749D3929310175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:881CC7C31C155E90039F0E04D5864F4EF881238D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

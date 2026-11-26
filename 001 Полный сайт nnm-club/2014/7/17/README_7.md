@@ -28,8 +28,7 @@ Lapdog - The Perpetual Race (2014) [MP3|320 кб/с]<Punk Rock, Skate Punk>
 ```bash
 magnet:?xt=urn:btih:E968B31DE224468DAD5B31C094DB8D02D11A615C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Evening - Forgotten Ghosts (2013) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:926F713BCCDC65A4CC9C99D0DAD656B3718B9785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Duskky - Baphomet (2014) EP [MP3|320 кб/с]<GlitchHop, Neurohop>
 ```bash
 magnet:?xt=urn:btih:B5B71C9E176477723E1C1441252ADD42183A4AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Des McMahon - Below Zero / Collapsed / Scattered (2014) [MP3|320 кб/с]<Dubste
 ```bash
 magnet:?xt=urn:btih:B7AF9790B0B837F1837DCF4F0ED5B437D85B03D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ Truth - How Strange (2014) EP [MP3|320 кб/с]<Dubstep, DeepDubstep>
 ```bash
 magnet:?xt=urn:btih:59DFA2DB0617D263644F01EE3DFC2763158CED83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ Hybris - Timeloop / Mid Grind (2014) [MP3|320 кб/с]<Drum'n'Bass, Neurofunk, D
 ```bash
 magnet:?xt=urn:btih:D109B00580B0E91BB9B150A5B4A37D73832FB145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35DA939C726E90ABDDC30EB752963F120F40B990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ Lost - Body Bag (2014) EP [MP3|320 кб/с]<Dubstep, DeepDubstep>
 ```bash
 magnet:?xt=urn:btih:0B1BB69322DDC41EB876638DD03BD851B28A7C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ VA - Frontline Worked Funktastic Future (2014) [MP3|255-320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:B5B2447383BFF2D6FAED74D5D876A91DA0B0EEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ Fall Of Fame - All In My Head (2014) EP [MP3|128 кб/с]<Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:B4725703AF1D7D0CDD7E5C23D96F132FAB6F1546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ VA - Underground Trance Decades (2014) [MP3|320 кб/с]<Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:DE64089BE7AFBE7D99FF7270B8B986606B8AE85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74E08A566778580C4658A975C05CA076B0DB7AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ Blue Coupe - Tornado On The Tracks (2010) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:2F9BCBD04691CA4913E5260C519847350AF9E63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ VA - Uber den Dachern Chillout (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:7DDE947239CF666414553CFB06C84577D28C632B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ Paul Brandenberg - Best Of Paul Brandenberg (2011) [MP3|320 кб/с]<New age, In
 ```bash
 magnet:?xt=urn:btih:981D77632CEC29A16FE2F473A9C96F704D50D0FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ Nu Elementz - Formula (2014) EP [MP3|320 кб/с]<Drum'n'Bass, JumpUp>
 ```bash
 magnet:?xt=urn:btih:1713D5C56F10818CE02C20BDA1EBC8FB5EF1C0FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ VA - Fine Moments of Life (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:829DFA7D4B1378C5513B428A621DB193FE47AA0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ Netsky - Running Low (2014) [MP3|320 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:D72F37B2ECA344B202BD65F08528DB436F302EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ Kove - Way We Are (2014) EP [MP3|320 кб/с]<BassHouse, Drum'n'Bass, TechStep>
 ```bash
 magnet:?xt=urn:btih:4B1EF5699A56FD8B6D5FA3CBE31BF9517E0724C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ Channah - Syrup & Rain (2014) [MP3|320 кб/с]<Indie Pop>
 ```bash
 magnet:?xt=urn:btih:91D34876D73A8CF7574F4B973DB82423E5B8294F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ Cedar Walton - Underground Memoirs (2005) [FLAC|Lossless]<Jazz, Post-Bop, Piano 
 ```bash
 magnet:?xt=urn:btih:8FF56BE9A32468CAA8E6170E317FD491866154AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ CoolUtils Total Image Converter - преобразует изображения 
 ```bash
 magnet:?xt=urn:btih:676E3DFBA6D01602DD06BA059A404AE07615AE39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ VA - Dream Sensation - Chillout, Lounge & Trance (2014) [MP3|320 кб/с]<Chillo
 ```bash
 magnet:?xt=urn:btih:A99F5B907E338B21F668C7438CC99FF2584302DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

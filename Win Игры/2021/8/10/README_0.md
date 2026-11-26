@@ -19,8 +19,7 @@ Lone Survivor: The Director's Cut (2012) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C3F52990426EDB708BB7F031B9884C94ECB664B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rebuild 3: Gangs of Deadsville – стратегический симулято
 ```bash
 magnet:?xt=urn:btih:55FFC0BB7039A48C2544CD8234AACB06B508D162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wizard of Legend - динамичный экшен с видом сверху в
 ```bash
 magnet:?xt=urn:btih:81DBAD309CECC393F0E8E53E5C7DFC9A8177E6AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

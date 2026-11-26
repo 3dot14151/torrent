@@ -19,8 +19,7 @@ KNOPPIX 8.6 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:0241448348FF73902813500331C38DBEAC726950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

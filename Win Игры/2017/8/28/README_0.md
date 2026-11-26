@@ -19,8 +19,7 @@ Midnight Calling 4: The Wise Dragon / Полуночный Зов 4: Мудры�
 ```bash
 magnet:?xt=urn:btih:E9B86B813B2D0E57F3214F9CA6CEA37AA3106A5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Legends 11: The Cursed Gift / Легенды о призраках 11: �
 ```bash
 magnet:?xt=urn:btih:6D287CC76A6D5B7AC0FEDA29ACE68D149374EDEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85F6CB48AD00AF179703BD22B73E14064354752F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

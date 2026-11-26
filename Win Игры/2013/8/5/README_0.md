@@ -19,8 +19,7 @@ Final Cut: Death on the Silver Screen Collector's Edition / Последний �
 ```bash
 magnet:?xt=urn:btih:AD8C6D9D40620AD85E36517813DF6C9B2EBAC46C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Toxic Bunny HD (2012) [En] (1.1.0.2) License DEFA
 ```bash
 magnet:?xt=urn:btih:F9D0D9D36134AEA06BA05FA3E03D61726A97148C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Cognition - это "эпизодический криминальный трил
 ```bash
 magnet:?xt=urn:btih:F2B1169D29642D09471CFFF3114757E84E80DABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

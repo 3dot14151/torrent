@@ -22,8 +22,7 @@ Dragony — пауэр-метал группа из Вены, Австрия, о
 ```bash
 magnet:?xt=urn:btih:EA94AFC95CEB0E71499F4CDA79861CB1AA975439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ DragonForce — британская пауэр-метал-группа из Л�
 ```bash
 magnet:?xt=urn:btih:D572DBFA481300F2FE41402915B0312E65DD530D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Gordon L. Rottman | US Army Special Forces 1952–84 (2012) [EPUB] [Elite #4] [E
 ```bash
 magnet:?xt=urn:btih:FAAB3AFE5B5B55EF42FE86CDA7068D9234990205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Martin Windrow, Wayne Braby | French Foreign Legion Paratroops (2013) [EPUB] [El
 ```bash
 magnet:?xt=urn:btih:C483A66BC5B8041CCADBA8BB4FBDD613FC34D370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

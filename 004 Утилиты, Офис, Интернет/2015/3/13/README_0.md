@@ -19,8 +19,7 @@ Universal Watermark Disabler 1.0.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:DD603851B9F3023D633B320963876553BFE921E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pathfinder: Wrath of the Righteous – непрямое продолжение �
 ```bash
 magnet:?xt=urn:btih:9E6AFC764A7DAF2724D3AA3D057B2F8289EF564B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Light - сай-фай платформер с элементами метр
 ```bash
 magnet:?xt=urn:btih:4609414708BC02A273534D1505E7FF1D167D2217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Deathraiser - Violent Aggression (2011) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:93B2EFAC8E288C3286F5AE5B99DBC215200C1D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Witching Hour - Past Midnight (2011) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:48AEA5BCEF4952CBAB68FC5FA6A8BBF653FF500C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Spider Kickers - Alcoholic (2011) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:3664D748F0D48CAE5842278589553BC2A3E75710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Waterland - Virtual Time (2011) [MP3|192-320 kbps]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:C5E82B7EBF816F47D4574F0BF1585FE284CC8F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Chaos Beyond - Confessions of a Twisted Mind (2011) [MP3|320 kbps]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:DCD93E48D77D2A45D8F3AC38EBCC27E6C1D6A637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Communic - The Bottom Deep (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:FC57899F10254E44599E823BD3145ECF2620A343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Thin Lizzy - Waiting For An Alibi: The Collection (2011) [MP3|320 kbps]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:8408631766C4CD9D1B04A02503E5D15134DD616F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

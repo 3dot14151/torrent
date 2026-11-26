@@ -19,8 +19,7 @@ Sally's Salon - Beauty Secrets / Спа-салон Салли. Секреты к
 ```bash
 magnet:?xt=urn:btih:4F18561F0C6BA7F3EA64859D0FC9A305B1792188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ INFRA - это приключенческая игра, в которой игр
 ```bash
 magnet:?xt=urn:btih:23162E45E10F9A053DDF7344375C4CB24DE23C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Legends of Aethereus (2013) [Ru/Multi] (1.61) RePack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:4C99069AC3118AFFBA05A7C3FEDCE3C64735D4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Men of War — это великолепная стратегия в реаль�
 ```bash
 magnet:?xt=urn:btih:102BE70E4913E15645303DE067909D5BA0D6E079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Bonded - немецкая метал-группа из Дортмунда, Се�
 ```bash
 magnet:?xt=urn:btih:73773B32AB16A077DC84A707CF3750363C1C2149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Wolfskull - хард-рок-группа из Северного Рейна-Ве
 ```bash
 magnet:?xt=urn:btih:7DD04781FE46BD68CA7DEC272EDFF82485174D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ A3 Skin And Skin(   Читать дальше...   )Жанр: Electronic, Modern
 ```bash
 magnet:?xt=urn:btih:022CEA5D698CE1AB9AAF68EB1E312349BB0DC206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Evanescence («исчезание», «мимолётность») — амер�
 ```bash
 magnet:?xt=urn:btih:83F98183A290A7421AFFC6F6F64DC463CAE7B4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Presto Ballet — прогрессив-рок-группа, основанная
 ```bash
 magnet:?xt=urn:btih:CA23955C9229958F8F94D6C8E3BB1722BC335FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

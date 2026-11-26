@@ -19,8 +19,7 @@ Possessor(s) - это стремительный сайд-скроллер с б
 ```bash
 magnet:?xt=urn:btih:2557B9CF4CDA900DFCA44B3EC3B661B4C47EA64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sengoku Dynasty - захватывающее многожанровое соче
 ```bash
 magnet:?xt=urn:btih:A56E771C01C771B97309116F52823BA0C2674897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Scene voic
 ```bash
 magnet:?xt=urn:btih:9FC5C2C326F3F106460574A52A7A4F78FB015F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Forestrike - игра про боевые искусства в жанре rogue
 ```bash
 magnet:?xt=urn:btih:418108743C9C848B9414AACE81786051B9429F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Beneath - это шутер на выживание от первого лиц
 ```bash
 magnet:?xt=urn:btih:FB5A882537FC4253A7FFECDD22D55ADB4E518ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Geneforge 1 - Mutagen - изометрическая ролевая игра в 
 ```bash
 magnet:?xt=urn:btih:F6E235050FB936D84B72F168E1192A5A6F9FDC49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Wan
 ```bash
 magnet:?xt=urn:btih:F84A2799887D0D5788E872B90E05CCF2E4A41C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Surviving Mars Relaunched (2025) [Ru/Multi] (1.0.0.382125/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BBA3F5F560F932769646C4D4DD682302B7218F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Bridge Constructor Stunts (2016) [Ru/Multi] (1.1-fix) License GOG
 ```bash
 magnet:?xt=urn:btih:76E5147958D79AA0DA7D7BA0C6897B6BF1E7AEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A981F5C121118ACCC0E8ACF41BE3DFFE26C13AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

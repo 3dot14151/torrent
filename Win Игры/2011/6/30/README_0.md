@@ -19,8 +19,7 @@ Nightmare Realm Collector's Edition / Сфера Кошмара. Коллекц�
 ```bash
 magnet:?xt=urn:btih:DD150E032EF30E3913AC77FB7042D25CDC9914CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crazy Machines 2 Complete / Заработало 2 Выполнено (L) [En] 2
 ```bash
 magnet:?xt=urn:btih:1A4BB24A871B011FD7CD351D69265DEB4AA1806E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Demolish & Build 2018 (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1540BDE93687B69EFEF3A1D8EEE731023CBA7F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Job Simulator (2016) [En] (1.0) Repack Other s [VR]
 ```bash
 magnet:?xt=urn:btih:B3BCEE5DAEC7FE5422716627D20AE4FAAB5B9FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bomber Crew (2017) [Ru/Multi] (1.0/upd2) License PLAZA
 ```bash
 magnet:?xt=urn:btih:12F5930F0F729E723CE131F855B544467515060D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ TT Isle of Man (2018) [Ru/Multi] (1.01/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:B7DEB081EE0F44DA62974B6FBD74F9DC80E65D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Infernium — нелинейный хоррор-выживание с видом
 ```bash
 magnet:?xt=urn:btih:AFB4FE103A3A08C5C22C19014CCF084B7D112F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.21863/dlc) Repack xatab [Master Collec
 ```bash
 magnet:?xt=urn:btih:7736C0893D33FF7532D2C3462244D4C8B6ECE425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mafia III / Мафия 3 (2016) [Ru/Multi] (1.090.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:252A8BA942E9DCAA8D001EB2EB0B6C0BA224690D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Impact Winter (2017) [Ru/Multi] (2.0.10) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:503E50C10B062637C766FEE449A76801C3E2A895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

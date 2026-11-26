@@ -18,8 +18,7 @@ SnapTube VIP 5.24.1 Вета Mod  [Ru/Multi] - просмотр и скачив�
 ```bash
 magnet:?xt=urn:btih:F8549FE0CE5DA80A93A7010A56D77A18675A02F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B4CD13356291D2874FFB284DE51FCD4E8291001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

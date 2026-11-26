@@ -20,8 +20,7 @@ Microsoft Azure — это постоянно расширяющийся наб�
 ```bash
 magnet:?xt=urn:btih:2063A4F04E69137E45F518172F314B34F476FE93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Spark — высокопроизводительная универсальна�
 ```bash
 magnet:?xt=urn:btih:37164ED2B97ED9C417DD8A4DAA21E1C22F832AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

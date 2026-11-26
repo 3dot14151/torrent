@@ -19,8 +19,7 @@ Disciples: Liberation - это история в жанре «тёмное фэ�
 ```bash
 magnet:?xt=urn:btih:EEE3D9059C183380423B61EE8DDF5C7AAF02CD22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Foretales (2022) [Multi] (1.1.4127) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:DA75E33208F53BC67B139A81F3260E0C357D58D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

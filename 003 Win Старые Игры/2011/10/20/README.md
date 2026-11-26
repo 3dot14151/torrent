@@ -19,8 +19,7 @@ Big Red Adventure [En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:D670EFA3F221B5E6B9276F2630873459DBA2B945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wages of War: The Business of Battle [Ru] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:979DC47BEAE1A88D3EEFBF14FE86238A8FB27EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Massive Assault Дилогия [Ru] (RePack) 2003-2005 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:247939B9886469D8D10D1E1A335B6F67E5115525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Stranglehold — высокотехнологичный компьютерный
 ```bash
 magnet:?xt=urn:btih:56F1D3AB0CBC6386E74155DB687AF8ACE514EC0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

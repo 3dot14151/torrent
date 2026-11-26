@@ -19,8 +19,7 @@ Nights of Azure 2: Bride of the New Moon (2017) [En/Ja/Ch] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:2D17DE01062DD554308ED2B463D7C93224FECEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Karos – это новая бесплатная онлйн игра в жанр
 ```bash
 magnet:?xt=urn:btih:8337C9F13AE05C94E3F8D224397290E7C783F798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Hardballs - Белый шум (2021) [FLAC|lossless|tracks] <Rock, Alternative M
 ```bash
 magnet:?xt=urn:btih:3CBB14FCBDD0BA1EB1A05394B48D2F80FCD0CE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

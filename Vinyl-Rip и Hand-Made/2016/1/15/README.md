@@ -22,8 +22,7 @@ A4. 22.Acacia Avenue (6:36)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:672DDC282EB12BDF71CEBA73C1D3783DF4BC4E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

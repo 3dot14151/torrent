@@ -19,8 +19,7 @@ Love Chronicles 5: Beyond the Shadows / История любви 5: По ту �
 ```bash
 magnet:?xt=urn:btih:334B3B6CC64CD0A6BD60E78195BB1F88F14A1DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadows on the Vatican Act I: Greed (2014) [Ru/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:16B7139FFF81B2BAC0A5DA9195CCB5BAA6B1A73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Raptors: Be A Dinosaur (2014) [En] (Beta) Repack John2s
 ```bash
 magnet:?xt=urn:btih:DED881DF8C4AF338BE0F64D32DE28589C826F731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Excubitor (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:355D1CC9D26A12E168B50CB920A74AA88D9C7D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ghrian (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:FC103B35DEDE02FC7E2F8E04CDE8E424F28F8D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Shadows on the Vatican Act II: Wrath (2015) [Ru/Multi] (1.0 u2) License PROPHET
 ```bash
 magnet:?xt=urn:btih:FBC9918578DBA7ADC3F631930A597DC55F132C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Table Top Racing: World Tour (2016) [Ru/Multi] (1.0/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:DD8F0B423ACBB257919C16A05C3BCF832A93F805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Crowntakers – Undead Undertakings уводит вас в мир живых м�
 ```bash
 magnet:?xt=urn:btih:81EFCCABB5F9BA2C4F5EA6D775946DB307B43FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [En/Multi] (1.0/upd1) 
 ```bash
 magnet:?xt=urn:btih:FC309B7046B9EEE22E661E1D2BFC4F88D8CB077E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

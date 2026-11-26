@@ -28,8 +28,7 @@ Souldrainer - Architect (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:B64BEED8DB69D97027054EDDB6D0703A23D9F44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Dynazty - Renatus (2014) [FLAC|Lossless]<Power Metal/Progressive/Heavy>
 ```bash
 magnet:?xt=urn:btih:2BD68B95B76F4E06D177599F1D53246C9D5BD742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Rage - The Soundchaser Archives (2014) 2CD, Compilation / 30th Anniversary [MP3|
 ```bash
 magnet:?xt=urn:btih:54946FAD931722B5E28D4EB1B80C87B3979CCBB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:4A623DC6F990214CD60609762E703E12E1BC7BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

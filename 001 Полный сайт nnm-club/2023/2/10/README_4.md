@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4D2E95443C3B599A9705CA34C0A4777688813390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.7.2) Repack ElAmigos
 ```bash
 magnet:?xt=urn:btih:BB497EF36AD2F953B522BAE4A348B044D97EF10D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6937AA0F8DD10A4EA150741D3D3205909711247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:44D0AACB43EBBCDE7475561F04B3AE841804DCB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

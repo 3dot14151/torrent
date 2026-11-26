@@ -22,8 +22,7 @@ Crematory - Inglorious Darkness (2022) [MP3|320 Kbps] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:1473CF290589582BAE5D5D86AB4145F62D91590B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ ANTARCTIC - Культура. Часть 2 (2024) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8BF5BA64E6FE199857D7E1F3863DCCD924DFE01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mr.Big - Ten (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:8136085AB2F15E192D711DEB636D973D102DEF39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Ghost Inside - Searching for Solace (2024) [FLAC|Lossless|tracks + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:9E8CC3405F54271BE907023C543447234B3076DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

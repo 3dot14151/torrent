@@ -19,8 +19,7 @@ Pro Basketball Manager 2017 – спортивный симулятор баск
 ```bash
 magnet:?xt=urn:btih:0D5A45B88A2AC93A1794539B4CDDA13CDB91CB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Lion’s Song — эпизодическая игра, чье действи
 ```bash
 magnet:?xt=urn:btih:0335009A83CB8F236AD4E8E2E43F91C9454C6D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ZiL Truck RallyCross (2017) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:062E5902F1975B15DFD5832FBED29229F4961B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

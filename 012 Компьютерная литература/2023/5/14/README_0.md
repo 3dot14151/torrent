@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8AE03E36522385AF9E92FFB08FA08121373704D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95001E17347523590C5EE9B48FEAA47402E6DCEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:762C2AD7B9EE0C8E27299F5E228A411A196465AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Apache - самый широко используемый веб-сервер в
 ```bash
 magnet:?xt=urn:btih:A1139BABD5727848AEC9E6D86820A05FFC9271A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Qaifi Khan | ReactJS for Jobseekers: The Only Guide You Need to Learn React and 
 ```bash
 magnet:?xt=urn:btih:A3634F509F99B686630FC1EBC946E92425330E55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

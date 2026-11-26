@@ -19,8 +19,7 @@ Space Hulk: Tactics – новый взгляд на старую добрую �
 ```bash
 magnet:?xt=urn:btih:CC802DBF3099CDF386B15CC7827515FFC0A7148C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Achtung! Cthulhu Tactics (2018) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:E0CABBFB91755B27F28CADB20C7AD132F3B822AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wolfenstein (2009) [Ru] (1.2) Rip xatab
 ```bash
 magnet:?xt=urn:btih:687E6412681511D65CBC74FFD1B3B71C4E554E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

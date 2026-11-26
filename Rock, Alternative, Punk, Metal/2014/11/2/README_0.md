@@ -27,8 +27,7 @@ Fallout - Bone as Dust Shall Be (2009) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:07CF91A87CEFF381C26F719C335A71FCA02BDFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Soen - Tellurian (2014) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:F55A3C6ED67005C62F964380338307618C74157D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Fahrenheit - Uncharted Dreams (2005) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:EADB5D74AC95B75764D455EC1FCF8D54F1A5158B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Beyond Creation - Earthborn Evolution (2014) [FLAC|Lossless]<Technical Death/Pro
 ```bash
 magnet:?xt=urn:btih:B7A65C403CE6D4002C03FA061B68CB5FBA6289DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Warrant - Metal Bridge (2014) [MP3|320 кб/с]<Speed Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:C60796807007B407F8489F325C33D2DEAB018A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ CD1: Sky Blue
 ```bash
 magnet:?xt=urn:btih:2AEA0731A87075E136D1469B6AC1A559C7D80B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Antti Martikainen - Eternal Saga (2014) [MP3|320 кб/с]<Epic Metal, Neo-Classi
 ```bash
 magnet:?xt=urn:btih:C6995E08BCC4FCA5A4066912E7ACF156EEC6351D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1DC4C7CB899F2D9DE783060A3130A34F6423918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

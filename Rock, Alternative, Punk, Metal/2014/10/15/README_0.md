@@ -28,8 +28,7 @@ Ancient VVisdom - Sacrificial (2014) [MP3|320 кб/с]<Heavy Metal, Occult Rock>
 ```bash
 magnet:?xt=urn:btih:86D3253231B773817B3939D337529D18A68BBE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Nightside Glance - Gray Haven (2014) [MP3|320 кб/с]<Sympho Black Metal>
 ```bash
 magnet:?xt=urn:btih:F032C2E7516D7E085A4961E5052DF8527EE99316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F214F9E8697D961B058B8BBC0A0BE64CD55557DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Rings Of Saturn - 3 Albums (2010 - 2014) [MP3|320 кб/с]<Technical Deathcore>
 ```bash
 magnet:?xt=urn:btih:F78732BC792B78A454E4DCCA6153ED39AA4D9177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Tango Down - Charming Devil (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B1FAACC0068BDCDCA7E85D8B8EC87C469662C0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Tango Down - Charming Devil (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1D23EF66930E684983273CA46FD303E809D739C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

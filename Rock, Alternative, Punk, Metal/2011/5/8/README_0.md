@@ -28,8 +28,7 @@ Fractal Gates - Altered State Of Consciousness (2009) [MP3|320 kbps]<Melodic Dea
 ```bash
 magnet:?xt=urn:btih:3390BF1107B65FC380F73321A477FA26B17C8BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Rev Theory - Justice (2011) [APE|Lossless]<Hard Rock/Alternative/Post-Grunge>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

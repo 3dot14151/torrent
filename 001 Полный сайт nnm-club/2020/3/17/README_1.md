@@ -18,8 +18,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:449399AA80C4071DFABB6DCECE20D44A38A8BED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Cross DJ Pro - Одна из самых лучших и удобным DJ при
 ```bash
 magnet:?xt=urn:btih:BFB4C986CCF9FC37420E35A253BF0F2D1045CA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1456846D918B7AF1116466F442BE74768D233484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Alexander Ryabtsev (Александр Рябцев) - Europe: Fantasy Vol. 13 (
 ```bash
 magnet:?xt=urn:btih:0356C33D89873FE4A28FB82A62AC2715082F058F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Rock Party (1993) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Ol
 ```bash
 magnet:?xt=urn:btih:FE1823E7795DDCE3B8776387ED5524F1C430042D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Elle — французскийЖанр: Женский журналФормат
 ```bash
 magnet:?xt=urn:btih:5534C82A323255C8FE667BE2F2A7C17661661A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Prince - N.E.W.S (2003) [FLAC|Lossless|image + .cue] <Jazz fusion, funk, instrum
 ```bash
 magnet:?xt=urn:btih:D4A2F786EC3D66C0A570690DB94D0F1C702A7EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - не Громкие новинки недели 59 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:ADEE12FE9A6FE2C9A94ADC6CEAF2C0BD7214ACC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:A9DDF3BB7AAE0D30D62E97AC4AA26699022A53A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Dark Mode for Safari 2.6.0 [En]
 ```bash
 magnet:?xt=urn:btih:08EEA4711A9F08EC6F7B2BB4211615F75FAC5FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Svartálfar (Svartalfar) - Niflheljar Til (2020) [MP3|320 Kbps] <Folk Viking Met
 ```bash
 magnet:?xt=urn:btih:CCC52CAAFD10B28195B7A7F58958166513CC364A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ VA - Robins Elegant Set (2020) [MP3|320 Kbps] <EDM, Dance, House>
 ```bash
 magnet:?xt=urn:btih:57D1D0EC3BA509C3C5ECF78B6E1F90732D0914F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Al Di Meola - Across The Universe (2020) [FLAC|Lossless|tracks + .cue] <Jazz, Fu
 ```bash
 magnet:?xt=urn:btih:917A61EA419C070DDBDBC6D35A466A02F7F09F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ FinePrint - это многофункциональный драйвер для 
 ```bash
 magnet:?xt=urn:btih:871F0626EED69A6E706C3600C17506F303942243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BD4F708691F0F0DF0247E7A1047653D111B7655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ VA - Deep Uplifting Vibes (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:1D05F49767A8478817ABF09A194C21093E8680EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC7A0CE7A942B8320B7B04E8A61550C2E6A12D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ VA - Beatport Vocal House: Electro Sound Pack #25 (2020) [MP3|320 Kbps] <Vocal H
 ```bash
 magnet:?xt=urn:btih:EB1FA1F7965BCE9D34FA7D5FC19E20EB4316140C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ VA - NME Exclusive Megamixes Vocal Trance (2020) [MP3|320 Kbps] <Vocal Trance, E
 ```bash
 magnet:?xt=urn:btih:98DC0452AE8348C3C7F59AF14030894CA81C959C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ VA - I Love Power Ballads (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:05D45AE18962C48DAC343B500CB8F317272EFDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ ReTouch v1.1 [En]
 ```bash
 magnet:?xt=urn:btih:EAC01FED80794895C862996415049D1960A30960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Affinity Photo переопределяет границы профессион�
 ```bash
 magnet:?xt=urn:btih:AA7ED08E8A5D72575790D2542C64823F0505CF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ VA - The Man from U.N.C.L.E. (Deluxe Version) (2015) [MP3|320 Kbps] <Soundtrack,
 ```bash
 magnet:?xt=urn:btih:23143FB811E23018290E3FD2740026C54F2598B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ Noel Gallagher's High Flying Birds - Blue Moon Rising (2020) EP [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:5E087E702156B5718497970215CB568DFD8195F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A262BE78A442EDB142BF27DCBE871180896CB110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F920B8A2844C1DA6702137EDB40A2BE0730D3404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

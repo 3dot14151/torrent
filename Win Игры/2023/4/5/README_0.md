@@ -19,8 +19,7 @@ Road 96: Mile  (приквел к Road 96) — это сюжетная игра 
 ```bash
 magnet:?xt=urn:btih:ED80CA3831A59F5063847AA2552400501A4C9375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

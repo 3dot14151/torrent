@@ -19,8 +19,7 @@ The 11th Hour [Ru] (RePack) 1995 | Kirill Games
 ```bash
 magnet:?xt=urn:btih:2E0AECC74B52502D980F01569C9208B33A5013BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warlords III: Darklords Rising (L) [En] 1998
 ```bash
 magnet:?xt=urn:btih:DBC3367E8CC9E1AD751302FBF6EBE4D9DE301561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warlords III: Reign of Heroes (P) [Ru/En] 1997
 ```bash
 magnet:?xt=urn:btih:358B8B7EED0BAF5D8A995C9E282BFD71001C347D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Heimdall Антология [En] (RePack) 1992-1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:8CD22B52421E57C0B0A77BBC8805040ADC933979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

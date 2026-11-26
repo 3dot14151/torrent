@@ -19,8 +19,7 @@ Files v1.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:407AB97BBAFDEB8EBB0C9C6CBA06874013E7E9C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Time Calculator Cardamon v1.0.9 [En]
 ```bash
 magnet:?xt=urn:btih:834401410EF993FB9DC27802DA02F1630725FA34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NotifyBuddy - AMOLED Notification Light v1.50 [En]
 ```bash
 magnet:?xt=urn:btih:F678B571A005197AE97EDEA95A22C673D48A8B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Five hundred english words - Уникальное приложение, для �
 ```bash
 magnet:?xt=urn:btih:109370CE8F4E7461B1FA08231C5B6D2D2F5441AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Backup Apk - Extract Apk v1.2.9 [En]
 ```bash
 magnet:?xt=urn:btih:97C7BDA3E19EC363611A14B656680AF51DED7803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Equalizer Music Player Pro - На вашем устройстве недоста
 ```bash
 magnet:?xt=urn:btih:C574146025D065AD7AB925E8EEA129B35D7D6A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ AiScan: All QR Code Scanner & Barcode Reader v1.0.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:40BA2876842FA59DC7C514DDF3B6B561EC2357AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ File Manager Pro - премиум версия многофункциональ�
 ```bash
 magnet:?xt=urn:btih:8E78194239457690CCA586123A825D40F8A86568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Speed Test & WiFi Analyzer v9.0.27615 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D20C407DBADACFC8A8ED752581C65677DE0929DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DFBD79FBA981A1B024CF6A620501845571D5F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F36700F335C660CAFBB99A2E016A087970BBB908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

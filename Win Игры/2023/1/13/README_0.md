@@ -19,8 +19,7 @@ My Grandparents' Christmas Mystery (2022) [En] (Build 10272844) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9BF6F6D76BFFC4711767A4B280709E050DCCF27F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unforeseen Incidents — интерактивная детективная иг�
 ```bash
 magnet:?xt=urn:btih:1AF94693D525A61E945D5501C4AEA7CF7677A48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Corrie Haffly | Photoshop CS6: Советы, трюки и приемы рабо
 ```bash
 magnet:?xt=urn:btih:C70CAB0CAC4B0AE28899DA8C1002A114F6C13F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73F45703BA9559A224CA8C610093B6913D835860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

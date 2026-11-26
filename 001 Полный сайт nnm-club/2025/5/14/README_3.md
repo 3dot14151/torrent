@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FA858D0B71231749B1D01C3F90FBE918FBA6BD55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Daily Yoga - это платформа, обеспечивающая мента�
 ```bash
 magnet:?xt=urn:btih:EF118A6EA8BFD96071A2E1194BB4FBD69013AD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C7468150C63023D4899EEED0D2FE3502FCE7A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:9D15231B57B747DCAF73BED96070FDF23AD24F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AB7BD47836989DA1FEF16E28D947C08BA217DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ VA - Best Outdoor Chillout Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Downtempo
 ```bash
 magnet:?xt=urn:btih:A59E55A561174F581E53245814B22B734AEA99EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:EC6384C2765E3605F9EA129C6D6ED580A076E0E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:A1B396758F4F77A5FACB28291CA7240D4DC1E3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ OCCT 14.0.11 Portable [En]
 ```bash
 magnet:?xt=urn:btih:5D9B48B07BE1F4ADD894991433C0C8E8D97D05C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Brenda K.B. Anderson | Вязаные носки (2023) WEBRip [EN, RU]
 ```bash
 magnet:?xt=urn:btih:316C5CDAC489D8B24A01C57A4F1E5ED71069B574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

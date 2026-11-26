@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:250F1DDAB7D9028D9773C07885FF673481B972C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ NHV BOOT 2023 Набор инструментов для восстановле�
 ```bash
 magnet:?xt=urn:btih:C893FB6DE725AF6562C93D41878C839BE51279EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45FF580AD5FC315F9CB4568115BEF20ED709D789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

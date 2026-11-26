@@ -19,8 +19,7 @@ Easy Drive Data Recovery 3.0 Portable by Gredsaz [Multi/Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

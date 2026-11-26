@@ -22,8 +22,7 @@ Jenn Mishra | Art Styles: Create Unique AI Image Prompts with ChatGPT or Claude 
 ```bash
 magnet:?xt=urn:btih:C0A364BAB94ED34B8CBDC50688859912CD94770D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Jenn Mishra | 100+ Art Styles for Midjourney (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:3294C9FCD05DD4EC651457296D47379E6C2EB42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B05FFEF91D531328B1271F4CDAE50042F45A0F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Jenn Mishra | 100+ Best Prompts for Midjourney (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:AB6D4B0CF7C187DD8EBBDE3228A81C4405CD5D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CFD248375310190BF7A6F34007D16644B5BCEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

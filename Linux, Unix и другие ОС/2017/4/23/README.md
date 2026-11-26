@@ -19,8 +19,7 @@ ROSA Desktop Fresh R9 KDE 4 [i586, x86_64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:C03365DC4F9A2CFE1744DA3BDDFA2728751C058D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

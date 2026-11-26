@@ -19,8 +19,7 @@ Spirits Chronicles 2: Flower of Hope (2022) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:B11D9B6E0EC3AC431C09C386C1A6DACCC8E80238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

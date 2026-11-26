@@ -19,8 +19,7 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:8561923D740995F2D3994909BC8F442AAFCC070A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

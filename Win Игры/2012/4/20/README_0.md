@@ -22,8 +22,7 @@ Pole Position 2012 [Multi5-] (L) 2012 | FairLight
 ```bash
 magnet:?xt=urn:btih:63EF4C67BB5E404A27485992A1BFAD8332E3BFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Superbrothers: Sword & Sworcery EP - это атмосферное экшен-п
 ```bash
 magnet:?xt=urn:btih:17EF81EBE3C11246169BF2C151BC5BF7F6B89A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Pearl Harbor: Fire on the Water / Морской бой. Перл-Харбор (
 ```bash
 magnet:?xt=urn:btih:F828AFA6B43020566944EF1B381038905CEBF84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ F1 Challenge 99-02 JG 1989 [Ru] (P/Mod) 2003
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Magic Petals (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:FF9F66BD2DB80C3E04105310E3331202AD172607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Vampire Romance Extended Edition / Роман с вампиром. Расшир�
 ```bash
 magnet:?xt=urn:btih:ECBB493F24CDF008C88EF7B1E51E5D985A91651A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

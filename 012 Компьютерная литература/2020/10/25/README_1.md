@@ -20,8 +20,7 @@ Blender для чайников - это быстрое и простое рук
 ```bash
 magnet:?xt=urn:btih:CA27EC7679D4535540876BD7C8523A0B539BD204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

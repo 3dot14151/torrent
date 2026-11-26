@@ -22,8 +22,7 @@ In-Defilade - Rulers Of Famine (2015) [MP3|320 кб/с]<Blackened Death Metal>
 ```bash
 magnet:?xt=urn:btih:4B297AA9A7923D4F0DBD77401505B7E71703666A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bitterness - Resurrexodus (2015) [MP3|320 кб/с]<Melodic Death, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7A53C06775EBB659D47FA4AB582B1BAECBC61ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Robin George - Dangerous Music II (1986) [FLAC|Lossless]<Soft Rock>
 ```bash
 magnet:?xt=urn:btih:8EC33891B61486922AB5DD5FA3875276E18716D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Ted Nugent - Shutup & Jam! (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BE641550CD4908CDC513FF33849E49152DA4D884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ EVO - Невесомость (2015) [MP3|320 кб/с]<Trancecore, Nintendocore, 
 ```bash
 magnet:?xt=urn:btih:4947BEE6A99CC0B3474D0A4A88728C2C0FEF7ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Judas Priest - Angel Of Retribution (2005) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:887EAA43BC1DBF62523D6BAA6CAD7512A95F39D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Incubus - Trust Fall (Side A) (2015) EP [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:F3343A079995044B3B23E97864B9EAFBF4115FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Nick Cave - Live At The Royal Albert Hall (2015) 2CD, Live [MP3|320 кб/с]<Alt
 ```bash
 magnet:?xt=urn:btih:108F88FDC0D2B3F7F5D8F471143B8559CEF353B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ Faith No More - Sol Invictus (2015) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:088F9BFA15213FDB052E9934F40A51FBB31A1E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Faith No More - Sol Invictus (2015) [MP3|320 кб/с]<Alternative Metal, Avant-G
 ```bash
 magnet:?xt=urn:btih:DBE74AFAAACF93F1FD2488C71A96E95B281BE778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Aura - От героев былых времён... (2015) [MP3|320 кб/с]<Sym
 ```bash
 magnet:?xt=urn:btih:2A6C6BC44F8F45BB35427ED44D93B6A1644D376E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FEC6A7172DA9E7A3125FE926A3A6DB74187CA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

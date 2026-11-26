@@ -19,8 +19,7 @@ AnVir Task Manager предоставляет подробную информа�
 ```bash
 magnet:?xt=urn:btih:BA6812158AFC856F97531D979D40816C79DEB286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aloha Browser - это быстрый веб-браузер, основная н
 ```bash
 magnet:?xt=urn:btih:F8C35E6410CA42ECB01472B72D59690CA5B746AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

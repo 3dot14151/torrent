@@ -28,8 +28,7 @@ Imelda May - Mayhem (2010) [MP3|320 kbps]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:14AA80166EC02B74EBE22D11A2E8F91DB2092DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Various Artists - 100 Essential Tracks: Rock Hits (2010) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:68BC2605A850A732CA641E7CF834978F7F4F5C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Good Charlotte - Cardiology [Best Buy Edition] (2010) [MP3|320 kbps]<Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:8CC783C23719278AE55306B3BE4584DD806E5337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Symphony X - Дискография (1994-2007) [FLAC|Lossless] <Progressive met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:955BB2AF02242751D75E9B400D378F5DC4F9ADEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

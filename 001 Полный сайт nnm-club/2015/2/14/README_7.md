@@ -23,8 +23,7 @@ Next Order - Live-Refined (2009) [FLAC|Lossless]<Fusion>
 ```bash
 magnet:?xt=urn:btih:B414B06452603BDF4BA6700849573346858FC43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The New York Hardbop Quintet - A Mere Bag Of Shells (2001) [FLAC|Lossless]<Hard 
 ```bash
 magnet:?xt=urn:btih:66CFAE1D660D5F70490E9121A956D3E297F116FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ N-Groove - It's Who We Are (2007) [WavPack|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:65EBFCF56C3FF7223909D0617652062551101572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1406F2A17F2E7EEB2D984A3FF39A9CD752B42514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Nicholas Payton - Payton's Place (1998) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:0A86FCE6C379BF5E1657171117E7247DAB279CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Nicholas Payton - Gumbo Nouveau (1996) [FLAC|Lossless]<Neo-Bop, New Orleans Jazz
 ```bash
 magnet:?xt=urn:btih:6B7F85E03C278B18C3110B18A06E44896B2A42F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Cella'Door - Dammerung (2015) [MP3|320 кб/с]<Symphonic / Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:CF536E51AA6DCDC9B5B05C5173DEE6930303E7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Next Collective - Cover Art (2013) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:FE1AAB4FC28C8B1FC894A018BE7DC44C474C5CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Year Of The Rabbit - Year Of The Rabbit (2003) [MP3|320 кб/с]<Alternative/ In
 ```bash
 magnet:?xt=urn:btih:D66496CA11C50440BD70F460FBA16F24A6B8E01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ Nicholas Payton - Sketches of Spain (2013) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:EA0E4A60ADB7DAF89BD8FDB3E7A1F982CF440D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ VA - Duo Art: Creating Magic (2014) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:AFC62EBD4D2B8C82C9AA339F07F472422DB3C6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ Funkware - Located On Sunset (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:5E4AFADAFFBBCD063D12B10AAB7C4A4965E254D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ Discovery: Эффект Карбонаро / The Carbonaro effect (2014) HDTVRip
 ```bash
 magnet:?xt=urn:btih:81B43131E4BE2BAEE6131986E217ADEF50C5996B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ Nguyen Le - Celebrating The Dark Side Of The Moon (2014) [FLAC|Lossless|WEB-DL]<
 ```bash
 magnet:?xt=urn:btih:EAD0B8B7CC697EE0ABBC97E017D760F44D3134EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB9539DFB05C0C1301E071B8C03E9F2CE38A6F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Nicholas Payton, Lew Soloff, Tom Harrell, Eddie Henderson - Trumpet Legacy (1998
 ```bash
 magnet:?xt=urn:btih:9913924CE640B09C4D97D5F7E80146B2DF7E9986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FFD864D5047EE23FC84E1B99C25461EAEEC1FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFAFDB66E56E5D4C91F8D8EF34A55CF91EBB6530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ New York Trio - Essential Best (2009) [FLAC|Lossless]<Bop, Hard Bop, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:66851150760FBBFBAAB5964F2924EABF74B1974F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:789DAF32B4D6711CA16E3BBA7645A7AF0139BB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:286EC32D08BF88B89242D6A3AEE69D3D4CFADB24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ Callejon - Wir Sind Angst (Limited Deluxe Edition) (2015) [FLAC|Lossless]<Melodi
 ```bash
 magnet:?xt=urn:btih:E0A1C307F714097641805DAC101F29CA35BE554C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ Niacin - Krush (2013) [FLAC|Lossless]<Fusion, Jazz-Rock>
 ```bash
 magnet:?xt=urn:btih:A6F3C67A84DACBFE28CD546F00333E0B6943229E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ New York Trio & Ken Peplowski - Stardust (2009) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:F20525B70C811AD5818E7113E657D3E4E6EDE09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ Neolix - Наследие (2015) [MP3|320 кб/с]<Epic Metal, Industrial, Melod
 ```bash
 magnet:?xt=urn:btih:7000E070D6CDB74A1E110915011233F928CC76E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

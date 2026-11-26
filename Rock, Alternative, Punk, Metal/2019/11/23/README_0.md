@@ -23,8 +23,7 @@ Theocracy начал свою жизнь как проект одного муз
 ```bash
 magnet:?xt=urn:btih:28A0FD68572BB67856DE9D889B41328AC7069657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Platitude - Discography  3 альбома (2003-2005) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:78E74A9EED6295BA31FBEB86F60E61DD740EEA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Plotnik82 - Смерть глотает блесну (2019) [MP3|320 Kbps] <Elec
 ```bash
 magnet:?xt=urn:btih:95C2FA9213484799A726E4983C1F0DC45D4C5C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Marc Bolan - Electronic Musik (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:73C5383CFA94C3425C338AA3E777B0FF62F0C268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:010565DCF9FB5E3CED864CF5C6453BF0873C6215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:104E668961F44F5DE88C1495B4CFA9D9BFE4F963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Pretty Maids - Undress Your Madness (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 ```bash
 magnet:?xt=urn:btih:CF41086EE97FC95E506E35A3F4CD4428967AC7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Poços & Nuvens - Província Universo (2001) [FLAC|Lossless|image + .cue] <Symph
 ```bash
 magnet:?xt=urn:btih:532806A57596240941659A922AE7C482DF69CD95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

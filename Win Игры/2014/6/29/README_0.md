@@ -19,8 +19,7 @@ Fright (2014) [En] Unofficial [Collector's Edition / Коллекционное 
 ```bash
 magnet:?xt=urn:btih:08723DE01989A2EF0ABB9F60DB5C2E503F33D316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vampire Legends: The True Story of Kisilova / Легенды о вампирах
 ```bash
 magnet:?xt=urn:btih:B1F5CAE018BF292B3123751608A73A4E7BC5D9D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rite of Passage 3: Hide and Seek / Обряд посвящения 3: Игра �
 ```bash
 magnet:?xt=urn:btih:DD0DF3F3AD08D6D50DF89534D6D2BAB70915249D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Other Side: Tower of Souls / По ту сторону. Башня духов
 ```bash
 magnet:?xt=urn:btih:10E5DC565E825B1F88FC749003DA5E43E97B4DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

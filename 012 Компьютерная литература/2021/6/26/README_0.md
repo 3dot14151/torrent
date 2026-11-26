@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5B0C0200F745B0961D7013D488874C9D45C2267A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PowerShell® — это одновременно язык сценариев и 
 ```bash
 magnet:?xt=urn:btih:BE5CD3F45521A5728ACCC6E919A4313C372710DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

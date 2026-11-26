@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:1D3FC460317A0CC78AE576EA4178275CB6F29E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Last Wail - The Tale of Endless Night (2011) [FLAC|Lossless]<Battle Metal/Melodi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ VA - Soft ROCK Collection (2011) [MP3|192-320 kbps]<Soft Rock>
 ```bash
 magnet:?xt=urn:btih:F6E5A05EB430DC876E7210FD0BC20359BF154E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

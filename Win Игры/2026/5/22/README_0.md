@@ -19,8 +19,7 @@ Subnautica 2 (2026) [Ru/Multi] (0.10.1-113933) Repack Other s [Early Access]
 ```bash
 magnet:?xt=urn:btih:439A8AEDD70108DDFDB4AD4E49DADE019FA8E8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer 40000 Mechanicus II (2) (2026) [Ru/Multi] (1.0.0.16) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:0FD4A1951F5D93DC39177458C675757495D0F19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhammer 40000 Mechanicus II (2) (2026) [Ru/Multi] (1.0.0.16/dlc) Repack Let's�
 ```bash
 magnet:?xt=urn:btih:CCB2CD39CFF2A293E09075EB32ACDAADEAAC81E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dread X Collection 4: The Hunt (2021) [En] (1.0 gog unity fix) License GOG
 ```bash
 magnet:?xt=urn:btih:8AD38906A18062C687A3FB28A9ADB9A9DAB5DFC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dread X Collection 3 (2020) [En] (1.0 gog unity fix) License GOG
 ```bash
 magnet:?xt=urn:btih:688797F37A236956888ABFD9D5052D27F9EBD4E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Luna Abyss (2026) [Ru/Multi] (1295) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:B9158662CE780F2E88AE6160C8C3B5BF6765CE11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dark City 11: Florence (2026) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:8EF2DF903F44F0C52D272EB61D64D5B9548514DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Argonauts Agency 14: Reflections from the Moon / Агентство Аргона
 ```bash
 magnet:?xt=urn:btih:19CAEB65A5FAD5AB7DCDC258639DE2CA7DB9C7C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Zero Parades: For Dead Spies (2026) [Ru/Multi] (1.0.36599.K01) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9FCCEE93AB9142755412C01CD663BC86955B13F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Across the Grooves (2020) [Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:57FB24514C4F57D36494351959287DE0007AF40F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ It Reaches - это хоррор от первого лица, снятый че
 ```bash
 magnet:?xt=urn:btih:B15A2BDA147049E5D12CC438CDDE6F108B44F123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Gravelord - это динамичный шутер старой школы с к
 ```bash
 magnet:?xt=urn:btih:2DB47334B6C04998BF68DC85B0C37AC1D134F846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Phonopolis (2026) [Ru/Multi] (Build 23364123) Repack Let'sРlay [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:1F51C25477925B5AEA06F8921361FB62BF09AF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.20.1.0/dlc) Repack HardwareMining
 ```bash
 magnet:?xt=urn:btih:8DAB7F08F17845F91404F62526AB5A581178802F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ MaSzyna - это симулятор, который позволит вам ст
 ```bash
 magnet:?xt=urn:btih:02E55AEF232B484DE750A340372498B380A05154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

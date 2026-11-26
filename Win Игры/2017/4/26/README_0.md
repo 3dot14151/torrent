@@ -19,8 +19,7 @@ Crawl – совместная игра по локальной сети, где
 ```bash
 magnet:?xt=urn:btih:D18C184FE938A52B9EC14FE5962D78CF2CDD411E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VA-11 HALL-A: Cyberpunk Bartender Action – безжалостное бухал
 ```bash
 magnet:?xt=urn:btih:4E6C249FC72C58556F780D02B943E0D10261CEA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

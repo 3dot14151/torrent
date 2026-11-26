@@ -19,8 +19,7 @@ Kosmokrats – это приключенческая игра-головолом
 ```bash
 magnet:?xt=urn:btih:C52C0D6AF9D7D9B37C3CC32D0E82E397BAAFB0E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Loop Hero (2021) [Ru/Multi] (1.012) Repack SpaceX
 ```bash
 magnet:?xt=urn:btih:1DF215900834D43E659021F5430CE9891F240FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ X4: FOUNDATIONS — долгожданное продолжение успешн
 ```bash
 magnet:?xt=urn:btih:B78248DD0889845F37E1D3A217A70F3513E4F8D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Riverside - Love, Fear and the Time Machine (2015) [MP3|320 кб/с]<Progressive
 ```bash
 magnet:?xt=urn:btih:E57C693E96B3F39F8E5D291FEAEF5442AF5910C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Iron Maiden - The Book of Souls (2015) 2CD [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B3A7B48EB06A4FA315D0CC14DF95300138184722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Five Finger Death Punch - Got Your Six (2015) Deluxe Edition [FLAC|tracks+.cue]<
 ```bash
 magnet:?xt=urn:btih:7A52437D2ECE5C1D0087CC81F1A4078A692C4352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Iron Maiden - The Book of Souls (2015) 2CD [FLAC|tracks+.cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A02D5D91A269C3C50EB981FC790865D4F750FEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

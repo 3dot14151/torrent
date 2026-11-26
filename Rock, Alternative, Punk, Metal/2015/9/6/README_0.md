@@ -22,8 +22,7 @@ The Searchers - Les Genies du Rock - Sweets For My Sweet (1995) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:165317B905A7351A0F300F3550B448D4E68B4B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E5E09F61506DDA269DFF696C2ADE4424F4A481D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ King Crimson - 7 Albums (1969-1974) Remastering 40th Anniversary Series /2009-20
 ```bash
 magnet:?xt=urn:btih:06FC42EE843697FD02B13EA6367E8874885B4AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:327AFE485F3A3FD8DDA39452EDD00B25AFD00C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

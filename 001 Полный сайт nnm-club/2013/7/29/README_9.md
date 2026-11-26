@@ -28,8 +28,7 @@ VA - An Introduction To ... New World Music. Volume 1-2 (1998, 2000) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:B261930277621799E523A10BDC7D1819B83F24C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Michele Mele - Dream (2013) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:3B22AC264B4351163B74319CB0F414C0019424FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0B791697F202B4C671D83EF39A8F3C63A5642FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:F8A9273DAA81E2BBABD5E182F14B3533A14E72EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Timotha Lanae - Red (2013) [MP3|320 кб/с]<R&B, Soul, Jazz>
 ```bash
 magnet:?xt=urn:btih:35737295D0F862CD4F25F3870EDE47FFCED31341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Soren Hyldgaard - Flying Dreams (1988) [MP3|320 кб/с]<New age, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:8D5691C62D701237FDF84B5DA6095401BBD3BCF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB30DD4BD8980EF91156449887A5D41EC2D60AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Freeway Philharmonic - Sonic Detour (1995) [FLAC|Lossless]<Contemporary Jazz, Ad
 ```bash
 magnet:?xt=urn:btih:4E89E03B17953A55DD1516C50E863087EBF0060E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ Donald Fagen - The Nightfly (1982) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:C7E7CC559408531F989EF00DAD1109ED3552F75D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82E2AC93BFC576DB8FAC765609AA7AF8126A6506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ VA - Музыкальные летние хиты (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:8007AFFCD3F386C78E5DA99EFFB38F55D768C96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ VA - Летний хитовый Record (2013) [MP3|256 кб/с]<Pop, Dance, Clu
 ```bash
 magnet:?xt=urn:btih:7A1697BE2498E6855DBA34C50C4DF479F3F09648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ VA - Customs Orient (2007) [MP3|320 кб/с]<Instrumental, New age>
 ```bash
 magnet:?xt=urn:btih:DA548DF8AAAB41FDCA73436B60F96C401F12AA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +432,7 @@ VA - Любимые хиты. Летний танцпол (2013) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:8EA65FBCBC3F1C1C8C7CBC3E2CD68DC2903622A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ Spirit Nation - Winter Moons (2001) [MP3|256 кб/с]<New age, World Music, A Ca
 ```bash
 magnet:?xt=urn:btih:1C4E44EF5DE0AF21061CD1B9283D20AAFD3E3294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +494,7 @@ Kara Grainger - Shiver & Sigh (2013) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7B7146C1F8790DFE2363B0B39E0571CE52A295D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +528,7 @@ VA - Клубная хитовая волна. Летний выпуск (2013) 
 ```bash
 magnet:?xt=urn:btih:D1553A77CD1CC7F66EDB7F174A3FE8AC6A420E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +554,7 @@ VA - The Kings Of Jazz (2006) 2CD [FLAC|Lossless]<Bop, Soul-Jazz, Future Jazz>
 ```bash
 magnet:?xt=urn:btih:BC75D67770B0AF9F5B7D5B11569613434DD2A929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +582,7 @@ Hayley Westenra - 2 альбома (2008-2009) [MP3|320 кб/с]<Folk, Neoclassi
 ```bash
 magnet:?xt=urn:btih:6783E51D7BD2AA1FB0613BA0F008E01691426168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A0B25B7C6EF7182CC0AAE0F1ABCCA944B3AAC56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:30AFFEB3DA960CFE58EE7FD46E190FC45BEAC6A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ Sofia - I Believe (2009) [FLAC|Lossless]<Bossa Nova, Cool Jazz>
 ```bash
 magnet:?xt=urn:btih:B00EC4F2A36BA0D7ACBD62FF83D49DE5446FC079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BDC731713045774C9C445237EC18E8F83C4FC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +751,7 @@ VA - Топовая сотка. Летнее наслаждение (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:90BC91C3C42D701DE9BCCB1EF4C965FA8E7E2A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E02779B8E95E2C8FB34D67DC2344A464E31D80B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

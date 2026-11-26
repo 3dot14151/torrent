@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F592EDCF3009FE48A92F25D6E15F2C298126EC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CB54CA9DFE0FDA7413E5AC9534FE3CA20B1F5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ The Witcher 3: Wild Hunt - Complete Edition (2019) [Switch] [EUR] 16.0.0 [NSZ] [
 ```bash
 magnet:?xt=urn:btih:380FDF9BBF5D5C67C808B760D04F0CA7EE3F4680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6606E9DC2769F41ED3BAF0CF0CF95E2E7AE0FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B28E1E0707EE92AA0F6F35DDD0DDA1B6477074E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C8A5EC5824DAB6BBD27C7000B67CB25B6FD7329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:051C7F5C9B904F5D994D80D667DD0A57415A3AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ RESIDENT EVIL™ 3 – полностью обновленный ремейк х
 ```bash
 magnet:?xt=urn:btih:7A6313947F31640C4DFFF1814D574FC23749211E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Windows 11 16in1 +/-Office 2019 x86 by SmokieBlahBlah 2023.09.21 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:37C0BF64D595B887CF0E6FC428C53F5B212E98A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Windows 10 Pro 22H2 19045.3448 x64 by SanLex [Lightweight] [Ru/En] (2023.09.28)
 ```bash
 magnet:?xt=urn:btih:C6C35E807F75A29F8280B2604482B3C4DAABB4D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

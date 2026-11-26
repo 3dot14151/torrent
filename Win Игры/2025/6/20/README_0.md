@@ -19,8 +19,7 @@ Dustwind: Resistance - это тактическая одиночная игра
 ```bash
 magnet:?xt=urn:btih:A5E9BC7B9DC8EB1D72270D8590A59FF9028BABE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:8FDA2474B249F690B8920D85B7F43E33D2BD5CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mortal Kombat XL - игровой сборник популярного арка
 ```bash
 magnet:?xt=urn:btih:7974D2C9CA359F6CD83D56C15F1492CB0BC15FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Oirbo (2023) [En] (1.5.3) License GOG
 ```bash
 magnet:?xt=urn:btih:B8DE495A01C9AFF31F74130E553E0D723110B213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Devil May Cry HD Collection - переиздание слэшера, включ�
 ```bash
 magnet:?xt=urn:btih:388EC9361A9A7DE2B0390535CE8B39961941AC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Executive - Movie Industry Tycoon - это бизнес-симулятор, 
 ```bash
 magnet:?xt=urn:btih:CCEA34146A21F87C7D9FB8ED478C4E60693ED5B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Viscerafest (2021) [Ru/Multi] (1.25) License GOG
 ```bash
 magnet:?xt=urn:btih:791A92CF299313C701749E71BDCF062BF5352264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Devil May Cry 4 (2015) [Multi] (1.0/dlc) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:6DCED5EA851BC3E7E89D665401417D2E913D56CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

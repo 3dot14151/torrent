@@ -19,8 +19,7 @@ Song of Horror (2019) [Multi] (1.25/dlc) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:45C204C573B5AE0E51B2A5C9897097E1B10DC480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pathway — это стратегическая RPG в атмосфере 1930-�
 ```bash
 magnet:?xt=urn:btih:39F913D468A68C73E76DA9C6A7E6A0F853CC3933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

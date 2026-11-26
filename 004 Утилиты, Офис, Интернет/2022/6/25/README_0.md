@@ -19,8 +19,7 @@ Zentimo xStorage Manager предлагает новый способ управ
 ```bash
 magnet:?xt=urn:btih:C6F77253D259D57BCF1107346722BAAFC836385B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

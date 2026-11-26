@@ -19,8 +19,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 ```bash
 magnet:?xt=urn:btih:8B1E7125AB68216ECC83E6E09D830B88352D38FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

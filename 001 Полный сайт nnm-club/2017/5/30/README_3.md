@@ -18,8 +18,7 @@ TimeShift (2007) [Ru/Multi] (1.02) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:CEC58B0098A4A0495783CDA24063376F06D7F321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E31FC4B7DE95EE061EF7933FA5087D6927C95346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AB1C60C1D545115A353CF25CE29E4F33E1DA861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ ESET NOD32 Antivirus 10.1.210.2 [Ukr]
 ```bash
 magnet:?xt=urn:btih:B5C3350BC18EB8284BEF1B564D65D4E27111A62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ MXGP3 - The Official Motocross Videogame (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:7EF70CD7F864B2B0575C7D41EDA9FC0F16FA209F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Perception – это сюжетный приключенческий хорро
 ```bash
 magnet:?xt=urn:btih:4BACFEB66D18849DE7E2CBD8A44B36EE286B6A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ The Long Journey Home (2017) [Ru/Multi] (1.17.14643) License RELOADED
 ```bash
 magnet:?xt=urn:btih:3C243BFD1C8431C125CB7DEA51BFEBD04FE405B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2A57706CAB14C68B0A4C7D7B842C630EB370862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Putrefaction 2: Void Walker это сиквел к шутеру Putrefaction, в
 ```bash
 magnet:?xt=urn:btih:AAEBC4A770B5CF353487494CC72F1661F7C96D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ ZVVOnlineRadio - программа для удобного, быстрого п
 ```bash
 magnet:?xt=urn:btih:DB888E4D2E1DB3336B6F184B5727900BECC42DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ Alawar Universal Crack / Активатор игр Alawar (2017) (1.81) Crack Co
 ```bash
 magnet:?xt=urn:btih:CA3B8ED22DFC89B0CEDB6BF78B2ED0AA606B468E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECD439BB64AC2E04E45148F0B0914A0D64291AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Legend of Kyrandia – трилогия в жанре квеста, кото
 ```bash
 magnet:?xt=urn:btih:022C2680FB9E13AE5E16D166F8F3D272DA18E381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

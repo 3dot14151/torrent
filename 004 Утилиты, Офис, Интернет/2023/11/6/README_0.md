@@ -21,8 +21,7 @@ BleachBit – это мощное приложение, предназначен
 ```bash
 magnet:?xt=urn:btih:F6619DB2E8B1D0B79123F7F5798702CB31F8C4E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ USBoNET новый продукт предоставляющий аналоги�
 ```bash
 magnet:?xt=urn:btih:BB158D10ABB69420C7AF962D48B276B04A5FE0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Room 404 (2016) [En/Pt] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B7B08ED39EE7EBBFE7E236227B10BBE66210FCCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Breached — это история человека в руинах будуще
 ```bash
 magnet:?xt=urn:btih:96CD6B90B260399781694A6B3023D8382E3497FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

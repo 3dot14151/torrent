@@ -19,8 +19,7 @@ Assassin's Creed Murderous Edition [Ru] (RePack) 2008-2011 | R.G. BoxPack
 ```bash
 magnet:?xt=urn:btih:3A5C47849A2E14EDEDA780130BE0BD24712470AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HdO Adventure: The Princess Case - A Royal Scoop (P) [Multi5/-] 2012
 ```bash
 magnet:?xt=urn:btih:A73A9D70AB98FE3A42EF983B678F9032CA608EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

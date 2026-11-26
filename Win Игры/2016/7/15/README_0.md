@@ -19,8 +19,7 @@ GAIN – стелс-шутер от первого лица с перманен�
 ```bash
 magnet:?xt=urn:btih:3C127E2B1C3DDBE2ABCAB15D98C3304887A75472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ghost 1.0 (2016) [Ru/Multi] (1.0.24) Repack Let's Play
 ```bash
 magnet:?xt=urn:btih:B1F89C308B7B5CC311E2E87A82C9C1A380860538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Infinium Strike — это космическая стратегия-экшен,
 ```bash
 magnet:?xt=urn:btih:0C4B8ACB6C4100746735D2C87AC78F2AF6881108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Tales of Destruction — шутер-выживание от первого ли�
 ```bash
 magnet:?xt=urn:btih:17A5DA38886B76E2FE57CF7B230BB342E1AAA36C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Cheat Engine – мощная программа для взлома игр, н�
 ```bash
 magnet:?xt=urn:btih:30B177345F1262470600C791B2BB53AA50D5CC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

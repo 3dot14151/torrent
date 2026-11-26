@@ -19,8 +19,7 @@ Mgosoft PDF To Image Converter - быстрая программа, котора
 ```bash
 magnet:?xt=urn:btih:6064A74D6F7D9CC07EED909530606EED116F2212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ PhonerLite - полезнейшая утилита для общения чер�
 ```bash
 magnet:?xt=urn:btih:C3C86A6242899153552AE9FC049DEDECF296AAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

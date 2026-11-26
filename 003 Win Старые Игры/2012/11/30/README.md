@@ -19,8 +19,7 @@ Kult: Heretic Kingdoms / Культ: Королевства Ереси (2004) [R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kult: Heretic Kingdoms / Культ: Королевства Ереси (2004) [R
 ```bash
 magnet:?xt=urn:btih:1DFC01F7105DA7FA05D42389F93C3F3458303395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

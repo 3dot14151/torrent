@@ -20,8 +20,7 @@ NokoPrint - Мобильная печать v5.26.12 Mod by NURIK kz [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:843CC85EBFB5571F13B8F43C946BEBE5ECF45D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ CYBERPORTAL // X 1.0.5 Mod by STR_BYPASS [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4BA9285632DFEB5AF51CBB53C8B9172CFE695FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

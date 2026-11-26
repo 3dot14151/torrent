@@ -19,8 +19,7 @@ WE ARE FOOTBALL (2021) [Ru/Multi] (1.0h) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E5D552213C07A9179EE6224614EF423F41F73F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

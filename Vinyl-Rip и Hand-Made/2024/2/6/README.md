@@ -22,8 +22,7 @@ Orchestra – Эстрадный Оркестр П/у Ю. Силантьева( 
 ```bash
 magnet:?xt=urn:btih:877AEA31E1E1748B138278241DAB73BDFB4C02B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Crown(   Читать дальше...   )Жанр: Atmospheric Black Metal, F
 ```bash
 magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Brutus - норвежская хард-рок-группа из Осло, Нор
 ```bash
 magnet:?xt=urn:btih:222B5D0E09D75613B3C530324777BEF7B6A97287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ A4 Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Bla
 ```bash
 magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ A4 Byssan Lull(   Читать дальше...   )Жанр: Atmospheric Black Me
 ```bash
 magnet:?xt=urn:btih:6DF39500BFC0B3C0B038E5EE2892A261311FD103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ A4 Ramund(   Читать дальше...   )Жанр: Atmospheric Black Metal, 
 ```bash
 magnet:?xt=urn:btih:5ED376654036B0920377373ACCEAAC855CCD647C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

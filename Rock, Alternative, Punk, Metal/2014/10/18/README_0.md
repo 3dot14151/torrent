@@ -21,8 +21,7 @@ Vaer - For So Many Reasons (2014) [MP3|320 кб/с]<Post Black Metal, Depressive
 ```bash
 magnet:?xt=urn:btih:05AAEF6EBE80955579B452DBE5AA3B470A9B2D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Flares - 3 Альбома (2008-2014) [MP3|320 кб/с]<Progressive Rock, Post R
 ```bash
 magnet:?xt=urn:btih:E87A03360865ECAF2E1B25641E3C3FD44D00857D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Moanaa - Descent (2014) [MP3|320 кб/с]<Post Metal, Post Rock, Sludge>
 ```bash
 magnet:?xt=urn:btih:E16AA9EAFB5593E1093AA5D5F0ED861F7C26E3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ White Lung - Deep Fantasy (2014) [MP3|320 кб/с]<Punk Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:FCD5D0C8C82274064F77080C0D43C642D40934DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Nachtblut - Chimonas (2014) [MP3|320 кб/с]<Dark Metal, Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:64B752711A28953EF4AF085A8F27BC23048C6F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ The Strypes - 4 Track Mind (2014) EP [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:F6B449BD05D501E1416423D6618D50EF6F5237DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Allen - Lande - The Great Divide (2014) Japanese Edition [FLAC|Lossless]<Melodic
 ```bash
 magnet:?xt=urn:btih:424FE51CF3132A38C6E003DB11728E31BA4D827E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Billy Idol - Kings & Queens Of The Underground (2014) Deluxe Edition [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:94D8E7CB756F6AC62A4459ADFBEA2E93F2249DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48AD89230AFB4C5A787B2A0AB4FC72FD3FE4951A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

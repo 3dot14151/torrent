@@ -19,8 +19,7 @@ Infinite Air with Mark McMorris (2016) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:32987BCCB64B77D30C2CCC4607B69271B7BDCC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:08A61A4CA3896F1B5642C47588829FF9D4B6CB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ War For The Overworld (2015) [Ru/Multi] (1.5.0f3/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:2C8FD9390FEE25859A0197E8E9A889C03DB45DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Drift Into Eternity (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:6808D7943EF2A2ABAE47B9AED2C2F27D40EF0FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SPACE RIFT — захватывающее космическое приключ�
 ```bash
 magnet:?xt=urn:btih:089A85BB3D27E1FACC8E9429167673DAED8726D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

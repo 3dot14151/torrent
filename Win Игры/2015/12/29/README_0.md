@@ -19,8 +19,7 @@ NotGTAV это самая настоящая покадровая змейка. 
 ```bash
 magnet:?xt=urn:btih:611548D639A38B0A161DDE7B97FA1530238C4570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

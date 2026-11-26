@@ -22,8 +22,7 @@ Paul Cotton - When The Coast Is Clear (2004) [FLAC|Lossless|image + .cue] <Class
 ```bash
 magnet:?xt=urn:btih:D7557E6A1E87BB6F28872FEF131091A9C487647D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Firewind - Firewind (2020) [FLAC|Lossless|image + .cue] <Heavy Metal,  Power Met
 ```bash
 magnet:?xt=urn:btih:B7C8BF0379308D246545A2A2BD8000C2A0F906FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

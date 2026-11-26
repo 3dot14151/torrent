@@ -19,8 +19,7 @@ Chronus Home & Lock Widget - отличное приложение, что яв�
 ```bash
 magnet:?xt=urn:btih:19C575F589B673514A3204A2214CF4F51C0BEBA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

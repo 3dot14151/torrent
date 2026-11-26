@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C156D45BC842E23055F5D20B787116DF1CFFC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Adobe Photoshop CC - программа для обработки растров
 ```bash
 magnet:?xt=urn:btih:9EF337F287C2B70BD0FF185BECEF418436A69CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92EE101D7D720D0FC29ABA87482296EBF5AD138F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Windows 8.1 with update Pro x64 Optim-Full (noAppx) [English]
 ```bash
 magnet:?xt=urn:btih:1A78F54122CB92C4C920F1B6F40F87CE6A0A393C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Adobe Illustrator – это принятое в качестве отрасле
 ```bash
 magnet:?xt=urn:btih:BB27A447AE8D821EE50509933F0A53658F4FB369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Transformers: Rise Of The Dark Spark связывает вселенные Cyber
 ```bash
 magnet:?xt=urn:btih:F619250372A64DDFE8CE6CC79FB47D89ABFD9692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Wolfenstein: The New Order (2014) [Ru/Multi] (1.0.0.2) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BB9E5F06CE0C1D0F0C09BD74E4C31CEF43014FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BACC8A5DE3808BDC9F2CC40B99943FDB5B27F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ The Elder Scrolls IV: Oblivion (2007) [Ru] (1.2.0416) RePack/Mod Аронд [З�
 ```bash
 magnet:?xt=urn:btih:3ED452C3797434BF21941DBF4675C358EFD5A584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso
 ```bash
 magnet:?xt=urn:btih:CDFFBC81E27C6A045ECBDE989309BE7514694DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Recast - сборка модов, направленная на улучшени
 ```bash
 magnet:?xt=urn:btih:13331BFBF6AC50C7D171AD9E212F08C0BF571133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

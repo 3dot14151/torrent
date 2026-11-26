@@ -19,8 +19,7 @@ WirelessNetView - бесплатная утилита, способная про
 ```bash
 magnet:?xt=urn:btih:FBA543F5704621E52B94722CA15B828303CCC3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Keyboard Test Utility - надежная и простая в использов
 ```bash
 magnet:?xt=urn:btih:5F7B8DD8F750226CFAC111E9880FC57BFBDA9287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

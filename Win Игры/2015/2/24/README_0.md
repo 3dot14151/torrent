@@ -19,8 +19,7 @@ Aaru's Awakening — это аркада с примесью платформе�
 ```bash
 magnet:?xt=urn:btih:963D40630052E689A1E0EE8BF6BBB72E5C98EE59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

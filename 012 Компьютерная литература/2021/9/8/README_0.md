@@ -21,8 +21,7 @@ Consider Beginning Programming with Java For Dummies your indispensable guide to
 ```bash
 magnet:?xt=urn:btih:40863C8743A09C7358824E87EAE868389B488D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

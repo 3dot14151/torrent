@@ -22,8 +22,7 @@ A4 Es Jott A Dokto • And The Doctor Came(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:2632D83DD71A5EC607A8CBCDDADC8E2DB2C3C62D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Стучись В Любую Дверь(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:A9D67C4A9E97236D4B232BA33B1624E130E1A45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

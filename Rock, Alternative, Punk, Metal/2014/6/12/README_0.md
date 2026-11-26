@@ -28,8 +28,7 @@ Gudars Skymning - Hoj Era Glas (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E19029EF74B0D0532D87ABDAFC3E101DAAF92BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Hillow Hammet - Hammer (1969) [MP3|320 кб/с]<Hard Blues, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:C0D0D30199C0906663838261DDC1F4912C3FD3B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Tokyo Blade - Pumphouse (1998) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CAC442B36FD2E382B70626EFE6E8F0B91D7C6926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Four Star Combo - Wait A Minute, Baby! (2014) [MP3|320 кб/с]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:69DBB31ABDFFB2F87CB912423B86ECC231F926A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Wanted One Armed Bandits - 2 Альбома (2010-2014) [MP3|320 кб/с]<Ska Pu
 ```bash
 magnet:?xt=urn:btih:D85845AAEE131704525F8C64F11537E0766F1F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Girl - Sheer Greed (1980) [MP3|320 кб/с]<Hard Rock, Glam>
 ```bash
 magnet:?xt=urn:btih:7A9153D38C14E4D5B81878AF939D3BAE95563912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Jimi Barbiani Band - Blue Slide (2014) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:FBE5B8617456366E0555AF522E7E83C7C725941F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ The Road Hammers - Wheels (2014) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:F5708D6CE31E1D4452299D05BFF5365C49C4AE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Molotov - Agua Maldita (2014) [MP3|320 кб/с]<Alternative / Rapcore>
 ```bash
 magnet:?xt=urn:btih:47E0D293BD7B86159C6882C248B8C3A8D4E732B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ The 69 Eyes - Back In Blood (2009) [FLAC|Lossless]<Gothic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ Brendan Perry - Eye of the Hunter (1999) [APE|Lossless]<Folk Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +388,7 @@ Jeff Beck - Jeff Beck's Guitar Shop (1989) [FLAC|Lossless]<Rock, Blues Rock, Ins
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +422,7 @@ Mark Knopfler & The Notting Hillbillies - Missing...Presumed Having a Good Time 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

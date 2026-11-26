@@ -19,8 +19,7 @@ Battleplan (2026) [Ru/Multi] (1.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E44BE3D64402C04D1C6D330372E964921B55007C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Thea 2: The Shattering - это стратегическая игра с эл
 ```bash
 magnet:?xt=urn:btih:8E8DD8591BF776B80674B9EDAE6B2FC449BA6A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Case Files 28: House That Love Built / За семью печатями 
 ```bash
 magnet:?xt=urn:btih:90E1B8445C225276A627E3743EDDDF5574597361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wing Commander II: Vengeance of the Kilrathi (2026) [En] (1.0) Scene Razor1911 [
 ```bash
 magnet:?xt=urn:btih:89CC2D6F1CA7CA85570B5608DE6F9F36224A5046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wing Commander III: Heart of the Tiger (2026) [Multi] (1.0) Scene Razor1911 [30t
 ```bash
 magnet:?xt=urn:btih:C7245C6E3F3251081D8EF1B57256D51E44CD693F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Wing Commander: Prophecy - это динамичная комбинация од
 ```bash
 magnet:?xt=urn:btih:26DB0F1B05478DF50CB4B2CB0B86F538F1D9A8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Privateer 2: The Darkening - это яркий пример самовыраже
 ```bash
 magnet:?xt=urn:btih:4DFFE599A6767489704B5FF3D18700C6DCC2E1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Arma Reforger - военно-тактический симулятор на дв
 ```bash
 magnet:?xt=urn:btih:4994DF2907F85A5E7D26B8E8710974600972DA42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Heavy Cargo - The Truck Simulator - симулятор перевозки тяж
 ```bash
 magnet:?xt=urn:btih:C18B37F71752B78C47E85F5B4116671C80FF5C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:99E0E2E0E2F48982A38AA04F8DED10691981D2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Easy Text Scanner - это приложение для распознавани�
 ```bash
 magnet:?xt=urn:btih:1124CA51CAF1DB3E0E7110B8444BA9A6D7455287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ ToonApp - карикатура фоторедактор лучшее прило�
 ```bash
 magnet:?xt=urn:btih:1353EFBBC03B316108145A9F40D90AEAAFE0ADF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ C AVG Cleaner ваше устройство Android будет работать 
 ```bash
 magnet:?xt=urn:btih:FAF92B504562B4C8FFF91C8ACBFECF7121307CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Avast Cleanup v5.5.0 Premium [Ru] - очистка, ускорение и опт
 ```bash
 magnet:?xt=urn:btih:6D9047971DDB0B2721C33A8E379893AF15BD5A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

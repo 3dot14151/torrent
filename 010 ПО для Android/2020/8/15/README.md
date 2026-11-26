@@ -19,8 +19,7 @@ BitVPN является одним из лучших неограниченны�
 ```bash
 magnet:?xt=urn:btih:4DF3980C6A590366D0B729894D02A75E53BBBC7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

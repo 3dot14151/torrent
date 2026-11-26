@@ -21,8 +21,7 @@ Mrs. Miniver / Миссис Минивер (1942) DVDRip
 ```bash
 magnet:?xt=urn:btih:0203F73F08DA273372236DA3B9A66D2E52BC1922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04D877BD4CADBA0CED95DF1A5003E29207C647A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

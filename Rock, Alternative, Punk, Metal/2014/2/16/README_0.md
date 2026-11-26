@@ -28,8 +28,7 @@ Exquisite Pus - Dead [Forgotten] (2009) [FLAC|Lossless]<Brutal Death, Death Meta
 ```bash
 magnet:?xt=urn:btih:7054AEC1E303BD3922044F330940F41B4F9BBE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Nasheim - Solens Vemod (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:D9EFE4F8FEC41ABAAD3F6B9A5BAE7A6440646144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Dirty Looks - Turn Of The Screw (1989) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0BD4C5C755E99F5EB167EAD23F2CB6A499CC74C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Sweet Cheater - Eatin' Ain't Cheatin' (2006) [APE|Lossless]<Glam Rock>
 ```bash
 magnet:?xt=urn:btih:374CA55631B10A880E7F8B3306749279E14C7D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ SuperCharger - Broken Hearts And Fallaparts (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DAB17E2A690AACAB12051A89A1A128E8F32A8D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Lou Reed - Milestones (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:6100950EFB87E54029B91CC5231BE92B8EA0DB3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89D3C978A4EB5F6E4C9AA3B424BE3D40A5E64814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Whispered - Shogunate Macabre (2014) [FLAC|Lossless]<Melodic Death Metal/Symphon
 ```bash
 magnet:?xt=urn:btih:26BC447175935D518BD53580C6CB8D14B9AF8252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Drudkh - Eastern Frontier in Flames (2014) [FLAC|Lossless]<Atmospheric Black Met
 ```bash
 magnet:?xt=urn:btih:A2C47BB4FEF57C1D95A6F623F2CE0034058F7221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ Therion - Vovin (1998) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:889EDC08521AAAD9E5649FCDC1FF87D2E2FA042C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ Jethro Tull - Stormwatch (1979) ремастер /2004, Chrysalis, EMI/ [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:0E04BD4996B3CA53867C543E0824C761DC13C6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ The Police - Regatta De Blanc (1979) Platinum SHM-CD /2013, Universal Music/ [FL
 ```bash
 magnet:?xt=urn:btih:C98AE26129C6B3171862C73E6FFFB2F305CC457A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ VA - Nostalgia. Rock 'n' Roll Hits (2000) [FLAC|Lossless]<Rock 'n' Roll>
 ```bash
 magnet:?xt=urn:btih:8E45EF6CF8615E3E746F9F68BC9E399AFEC0B133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +447,7 @@ Christopher Lee - 3 Альбома (2006 - 2013) [MP3|320 кб/с]<Symphonic Hea
 ```bash
 magnet:?xt=urn:btih:4EDC6A5E22D97B427FE911B13917CBA540736E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0808A489D7E98852113BCA4072ABA7F6673A9E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

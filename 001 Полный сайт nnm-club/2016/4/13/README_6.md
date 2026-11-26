@@ -18,8 +18,7 @@ Kingdom (2015) [En/Multi] (1.2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:2B4362F89B0C66B433D3B0B03BD25E24D5FF12A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77D75EA6D22142DC8CFE1670D7ECC461E1E74365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

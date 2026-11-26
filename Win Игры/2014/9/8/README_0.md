@@ -19,8 +19,7 @@ Lichdom: Battlemage Patch (2014) (upd3) Official 3DM
 ```bash
 magnet:?xt=urn:btih:8E1625692A215EBBC9A37647C94032DF83F69D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

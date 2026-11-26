@@ -19,8 +19,7 @@ Graven: The Purple Moon Prophecy (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:5273B18F91CDF0B844FFB7FB10B5BC8B8F6084CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dreamscapes 2: Nightmare's Heir (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:3D1B5D4550D3ADC41B27742CD8DBD6F46D17CEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ LA Cops наполнена кат-сценами, которые выполне�
 ```bash
 magnet:?xt=urn:btih:D3FE61124066CD34ED5CCE1B70110A4AECFEA2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ The Inner World (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C6DAC1908FAA94FB3B693F4D677F34D40298ACD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Hegemony Rome: The Rise of Caesar - стратегия в реальном вр�
 ```bash
 magnet:?xt=urn:btih:5A2881F18DA89D0E820D4698A4A6DB2D0BEE9A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 ```bash
 magnet:?xt=urn:btih:61017256AE79ACADD8EF78842E58B45AA9BA549C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

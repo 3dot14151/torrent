@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4AA4E4A5982775932553AFBEC507471EF1A88217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF10B0423186E5ECC525025BDFBDE6E68C76D014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ DevOps-инженер умеет программировать (   Читат�
 ```bash
 magnet:?xt=urn:btih:5E710372D5E9CB1FF6315627410BEC87B8BAAEB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E1F581FAAEEB56FA5FD67345A91A56E608687FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ DUSK возвращает вас в мир, где, если вы хотите �
 ```bash
 magnet:?xt=urn:btih:DA634C0BFF118273DE84B79B6066B8ED1B83F2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ RedShift – невероятно быстрое и функциональное
 ```bash
 magnet:?xt=urn:btih:4FF32EC66CF8E7C287984D36377DE123BCE7491A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F5FA46EE8C86EA411B2C95CBD50902BFB758C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

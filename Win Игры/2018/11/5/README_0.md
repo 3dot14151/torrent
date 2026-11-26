@@ -19,8 +19,7 @@ The Banner Saga 2 – продолжение захватывающей The Bann
 ```bash
 magnet:?xt=urn:btih:311E1558F5FD698D14E68A3523BF1726D4434C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WORLD OF FINAL FANTASY (2017) [Multi] (1.0.0.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:3A00CCC663E099A13104477405C29CED1DFD1591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

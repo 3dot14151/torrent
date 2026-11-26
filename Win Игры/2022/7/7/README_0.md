@@ -19,8 +19,7 @@ Game of Thrones: A Telltale Games Series - это игра состоящая и
 ```bash
 magnet:?xt=urn:btih:0F69F43AA9BFC863787CE85D0CA2006A01CD65C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

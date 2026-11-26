@@ -22,8 +22,7 @@ U2 - Easter Lily (2026) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:55CBB9E26C6B59F273DBD03083A06B2C2CB0CCB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cactus - Temple Of Blues II - All-Stars (2026) [FLAC|Lossless|WEB-DL|tracks] <Ha
 ```bash
 magnet:?xt=urn:btih:943C21983E0CF60D6CB48993DCE0278BC0B23EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

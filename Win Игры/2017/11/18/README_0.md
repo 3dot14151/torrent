@@ -19,8 +19,7 @@ Fright Chasers: Dark Exposure / Ловцы страхов: Темная сущн
 ```bash
 magnet:?xt=urn:btih:ED7A47DA7E2AE74EF2B684C90348F6EB68ECDCB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.7.0.1280/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:FE2468F9E9928CE6B715A82252CE4F1B581B2721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Injustice: Gods Among Us Самое полное издание от компа�
 ```bash
 magnet:?xt=urn:btih:5CD94189615F31D1A10042B69E11F0D05CECC842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hollow (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:879826A00DD2695472BAD59FAD2429CA8498553F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:F5328429D546B8067384FA95BF1C333CB96E54E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.7/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:08BB5C138356B2E497868505C4A525570C7C219C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

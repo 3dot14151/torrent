@@ -22,8 +22,7 @@ A4 Good Rockin' Tonight(   Читать дальше...   )Жанр: Rock & Roll
 ```bash
 magnet:?xt=urn:btih:06D96FA5D25F62C8B3C9AEC976E2B649BE935301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|ima
 ```bash
 magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eleine - шведская метал-группа, образованная в 2
 ```bash
 magnet:?xt=urn:btih:6E5CAD9E055657ADBC21805EB2D811DF9AF0DEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4702DBA6FEF8CFC85A9CF4F0B95C5943E0D26A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

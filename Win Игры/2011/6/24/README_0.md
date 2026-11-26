@@ -19,8 +19,7 @@ Robin's Island Adventure (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:35B2DBF0304D440AB1E15F4E84960ADFA37FD663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Val'Gor: The Beginning (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:A31CF1A1E3CB67154DA4AFAB9AB41C64DB06F13F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Midnight Mysteries: Devil on the Mississippi Collector's Edition / Полуно�
 ```bash
 magnet:?xt=urn:btih:B73BC69CCE40DE2CADAEE23C8F0F45A71C87FBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Action Ball 2 / Техношар 2 (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:B679A333D61265C7E537D839073A7FC32ED5B4D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Back to the Future: The Game Episode 5. OUTATIME является пятым и 
 ```bash
 magnet:?xt=urn:btih:6AF9D031FB5B5A66176B43B7823DF2093A3D5918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Virtual Farm 2 / Чудо ферма 2 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:BD97B340C58CDDB1F19C8B113C8D7A383E58673F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Stand O'Food 3 / Мастер бургер 3 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:8BA4351F12FEEDBFA5CC77DDA280FC833E8F6A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Gray Matter / Gray Matter: Призраки подсознания [Ru/En] (L) 2
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Tomb Raider Трилогия [Ru] (RePack) 2006-2008 | Donald Dark
 ```bash
 magnet:?xt=urn:btih:CD2530F925F88CC3C71E77D9393A3C633B00F6FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Power Rangers: Super Legends / Всемогущие рейнджеры: Битв
 ```bash
 magnet:?xt=urn:btih:303F35EF3A9177E1AC0EB5D5139A8C6FF6BC80F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Dark Dimensions: City of Fog - Collector's Edition / Темные измерен
 ```bash
 magnet:?xt=urn:btih:9A9A19FD0C8C857103DBBEDBBEB1890EFCA69D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

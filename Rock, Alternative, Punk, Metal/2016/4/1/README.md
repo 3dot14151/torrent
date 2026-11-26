@@ -22,8 +22,7 @@ Last In Line - Heavy Crown (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DEF315699E8FA3D45C3B24DD64222F15898DB7E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ America - Hearts (1975) remaster, 2016, Audio Fidelity [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:07968E13A9C56CBB679676EEED189024F3E8E612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rick Springfield - Rocket Science (2016) [FLAC|Lossless|image + .cue] <Rock, Mel
 ```bash
 magnet:?xt=urn:btih:9928EE23100FAD8F3ACBF027C47765093EA0AAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Birdy - Beautiful Lies (2016) Deluxe Edition [MP3|320 кб/с] <Pop, Indie, Folk
 ```bash
 magnet:?xt=urn:btih:96FD8755C142A3B71372032E0B3C7AC526F8234D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D10B8D05579C2D8641183FC486FF115A9A6FFF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Billion Dollar Babies - Chemical God (2016) [FLAC|Lossless|image + .cue] <Hard R
 ```bash
 magnet:?xt=urn:btih:97A031241AE1F0D9357C5A581D72D4A150E148CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

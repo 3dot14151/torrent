@@ -27,8 +27,7 @@ Steve Kuhn Trio - Wisteria (2012) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:434A640F87BACC1F7EBD55BAE6D23586E170EE25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA900569E2FADFA92A21DC535ADE8A5F5D758436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C2DF1A48B6F2D4BD6FD43EDD6EFF1A6F659D103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B6EDCC97C0A82739417FA58CCB1BB5D9FC16006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ VA - Schwarze Welle: Dark Season (2013) [MP3|320 кб/с]< Alternative Rock, Got
 ```bash
 magnet:?xt=urn:btih:F94755DF8803E868F7004ADED1ACC59EC432DFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EB6845A5A0F88016D239A56F3EBA1D2C98AB925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B18EE372EA75344A8120920531B5082B1B24A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55B7F62EC5D3C1CF5FA4556EC13BC9513691BFBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ VA - Paul Oakenfold DJ Box: Best Of 2013 (2013) [MP3|320 кб/с]<Trance, Progre
 ```bash
 magnet:?xt=urn:btih:C5F0791702A2D2FEC48DD606F8CC9601CF09CD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ Kevin Kern - In the Enchanted Garden (1996) [FLAC|Lossless]<New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:441CFCBD86809890552A02FA65503E79FE9DD62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ VA - Lounge At The Seashore 2 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:759B39A456D818536A947CAB641C08F94AB96C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ Ashampoo Snap предоставляет Вам всё, что нужно для
 ```bash
 magnet:?xt=urn:btih:8DDAFA761CAB34541C990E054DA8C540BFB54221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA5A75F5E1F99A55D3FFBACF5289E5BE87B1A7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ Vergeltung - Exploration Of Space (2012) [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:86B5E27A50A71F298626AF77FC85FCBFBCDA8BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47CFE661DA4B09CDD114B8A126EAE09AEDCC325B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ VA - Techno 2014 (2013) 2CD[MP3 (image+.cue)|~245 кб/с (V0)]<Techno>
 ```bash
 magnet:?xt=urn:btih:ECA133F992F50A31F669DB0E60C6FFA7A6D26873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB521A27D1DA8C8B5A35A463CB32050559B5FF02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F1248E42E3BEE8A59D8F278A9E7A46E0F4D2870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +569,7 @@ Amadeus Pro обладает рядом полезных функций, так�
 ```bash
 magnet:?xt=urn:btih:33E4833826E855B44F2B6CCC003A736E0CE01C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +603,7 @@ VA - Top 20 Jazz Ballads (2004) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:18CD244A48B413D3BE740AEDC7BEBBA84DBD1033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73479573C2C3D6C8DA87B044F74871D9E22B626F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ VA - Sexy House Tunes (Deep Funky & Delicious) Vol.1 (2014) [MP3|320 кб/с]<De
 ```bash
 magnet:?xt=urn:btih:68B80C069A61D91A3FE4674C568854EB7730B33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +698,7 @@ Aretha Franklin - Aretha's Best (2001) [APE|Lossless]<R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:2A60326188184017C2AD750005204C90CBF47357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03F24C0490FC4D688413A033F929827DEB6EA91D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F78AFC69DBFAFC3AD08A57A59BDAFF43B78FE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

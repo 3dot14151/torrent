@@ -19,8 +19,7 @@ Rainbow Web 3 (L) [En] 2011
 ```bash
 magnet:?xt=urn:btih:E36A213EEE6EEE708C05B2ACB6DC6839A5FFB9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zeal / Блеск (P) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:94BD97355C5B8EF180F6BDFB0BFC405BAD000F73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Feelers / Букашечная схватка (P) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:96DB7D964E5F2CD7050558E068EDF69EF6E0378A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AxySnake / Большой змей (P) [Ru] 2002
 ```bash
 magnet:?xt=urn:btih:A3EDDD57CFBD6136FF373BBB9F26F2E87D01DA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Deep Blue Sea 2 / Глубокое синее море 2 (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:4F2AD4062E38F9480E6035C1C60B611AA651AD82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Joy of Farming / Тридевятая ферма (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:7FF3879FEE94B624400931938ECE701749F8DA6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bengal / Бенгал (P) [Ru] 2006
 ```bash
 magnet:?xt=urn:btih:9783056E9A59A698E840FFD2BFC7B84E406B0463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF22AB64FCBD1BD45A424FCF4B1DC1397B2AC4C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Duke Nukem Антология [Ru/En] (RePack) 1991-2011 | LEXYS
 ```bash
 magnet:?xt=urn:btih:9590AF15796F1B7B7E4E26EBF02DF847EF6E9B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

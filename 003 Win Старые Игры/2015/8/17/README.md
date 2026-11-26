@@ -19,8 +19,7 @@ NASCAR Racing 3 - гоночный симулятор, посвященый че
 ```bash
 magnet:?xt=urn:btih:BB25DA423530B474E7510A58B41B0ECA5A91160D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

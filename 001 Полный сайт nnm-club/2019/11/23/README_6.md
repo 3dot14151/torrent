@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6BD487DBCADB268E5C777B59E3E0EA616F4A4482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9136E14611CD027D38AACCB7CC95A0929B2B0938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:631F3B01AB0A5F98AA62210768F05324CEB55421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EDF8BAEA6DCA29D9819E32E72524ECCBEC206F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEFACE64A026846833604A45D737A062F59B1D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Windows 10 (v1809) x64 LTSC by KulHunter v21.7 (esd) [Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:892B89ED090612ABA24E34FA4890CF8F76194B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ VA - Synthwave Dreams, Vol. 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 ```bash
 magnet:?xt=urn:btih:D9ED60AF8B850D07DB693610D6132C09ED885440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ VA - Synthwave Dreams, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 ```bash
 magnet:?xt=urn:btih:65C445769ED3EA4DE1B8AD5A6C7183456E748B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ VA - Synthwave Dreams, Vol. 4 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 ```bash
 magnet:?xt=urn:btih:36C4AFDA27DB38EE7694291A11E9CE278903F9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04938FAFA7C06E6C81A23F69688BB3513CF48EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ VA - Synthwave Dreams, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 ```bash
 magnet:?xt=urn:btih:1623AE49E4DCAAB1CF8F4B4C7229BC49F989FCCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ GoodbyeDPI.0.1.6.+ Launcher-3.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:3DF03655BF9254A929411913C89FF72BC17E6DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82020DB5458E62D17830EF518FF0B76476AD361A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ ATOM RPG - это постапокалиптическая инди-игра, в
 ```bash
 magnet:?xt=urn:btih:3F187001D8823FBF49695222C021BC8188D59CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 1909 19H2 RU by OVGorskiy® 11.
 ```bash
 magnet:?xt=urn:btih:1246AFF7613D8EC7B383454EA67CF9A5779804AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Star Wars Jedi: Fallen Order (2019) [Ru/Multi] (1.0) Repack xatab [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:B2EA010FD28CF0BD8C8FC7443E555DA046C31A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ One For All - Optimism (1998) Sharp Nine Records [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:716F5FF3D05A561FBF775FC617721CB1AC5D50BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Poços & Nuvens - Província Universo (2001) [FLAC|Lossless|image + .cue] <Symph
 ```bash
 magnet:?xt=urn:btih:532806A57596240941659A922AE7C482DF69CD95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ AweEraser - это безопасный «ластик» данных Mac. Он 
 ```bash
 magnet:?xt=urn:btih:60A2C7E9FBB0CEB07DCFA174C710EEF74F1F0001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:DC59AA4932E33090A4F418CC17DCCB95482A1C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ Soulver 3 - это умный блокнот со встроенным каль�
 ```bash
 magnet:?xt=urn:btih:EC398AEF24C0071CF099DAF529C344F1AF526CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ Art Files идеально подходит для иллюстраторов и
 ```bash
 magnet:?xt=urn:btih:E1D130C5C9307CD82F3A4904584B5F42A180F42E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ Cirez D(Eric Prydz) - Live @ Seismic Dance Event, United States (Beats 1 Eric Pr
 ```bash
 magnet:?xt=urn:btih:04E5623FEF469B3FC2E039E04AE5A4D45915A851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:8969C04D73F6498C82CCC236F325841CF50A158B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

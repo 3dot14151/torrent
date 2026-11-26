@@ -19,8 +19,7 @@ Sacred Fire - психологическая ролевая игра. Вы бе�
 ```bash
 magnet:?xt=urn:btih:EBF2855AD4FA507C98BCE277EBBEA8BB6F128342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FRONT MISSION 2: Remake (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:49D26C80E2F75E3772B92EC773CABF564A47E164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Astrea - игра c уникальными особенностями: здес�
 ```bash
 magnet:?xt=urn:btih:DF63198E3494FDE76647983BC4ED91F80E7C6636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Front Mission 2: Remake - обновленная версия классичес
 ```bash
 magnet:?xt=urn:btih:A16BCF82D9CF7CC0A2DEC542CE88568EE4C1455E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bleak Faith: Forsaken - ролевой экшн в духе соулс-сери�
 ```bash
 magnet:?xt=urn:btih:194AEC673F7A9DE9559961AC2EAD0EEC0F8B6E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:1A2CE47B52A350B672538BDD235D2713A705C2AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (
 ```bash
 magnet:?xt=urn:btih:76B4601062233F9A2C237D20A9F5D20238CE63C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 ```bash
 magnet:?xt=urn:btih:8A5041FC6ABC3A2B129958C9BB90747E70837F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Knock on the Coffin Lid - ролевая игра с элементами стр
 ```bash
 magnet:?xt=urn:btih:5E1ACEE511B41606223F8CBB499F8AF651423F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Driftmoon (2013) [En] (2.0.2) License GOG [Enhanced Edition]
 ```bash
 magnet:?xt=urn:btih:9A9909CA94281F11F9B01D5C4BA462D49A7262EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Field of Glory 2: Medieval - пошаговая стратегия, перено
 ```bash
 magnet:?xt=urn:btih:5B71A45A229AC32C547F53A48FF8A11E404EA299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Wigmund - изометрическое приключение, выполнен�
 ```bash
 magnet:?xt=urn:btih:44EF8A15CD35AECD11ED45E46345831B6EDFDD14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Rogue Loops представляет собой экшен, посвященны
 ```bash
 magnet:?xt=urn:btih:F45F6422F16F4915EB0D9835A7AC0D467FA0E6C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ LEGO City Undercover (2017) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CB95982D6A28E2B85EC27DE3F62CBE7869B8AE17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Fate: Reawakened - это сборник из четырёх экшен-РПГ, 
 ```bash
 magnet:?xt=urn:btih:4603B9E589CD3E3ED09A21DBF9E7BBD6F65F48AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ PROGRESS ORDERS (2025) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F751596FA2970DDAB64649F1DCD3BF30619097C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack seleZen [Anniversa
 ```bash
 magnet:?xt=urn:btih:713508954C3F3187B6787A00F8D5C2D7CAD8515E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ Sandwalkers – это пошаговый «рогалик», где главн�
 ```bash
 magnet:?xt=urn:btih:342B6B4E5FFAA85EAC841A2B40A079EC82479BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +470,7 @@ Into the Necrovale (2024) [En] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:D0AD3F3539189CC05D74718E3ABCC276B94DB20E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

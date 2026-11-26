@@ -22,8 +22,7 @@ Maklak - The Age of Anxiety (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:F2EDD756F7A6C8B9AD85B0ACD3EC0FD3F0F55509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Faye Webster - Atlanta Millionaires Club (2019) [FLAC|Lossless|tracks + .cue] <I
 ```bash
 magnet:?xt=urn:btih:DCE2121D4DF38DB43F59435519F958C8EA531CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Joe Jackson - Fool (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:9664D95BBAD1A44C719A88C039D4A24C5F82B786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Paul Gilbert - Behold Electric Guitar (2019) [FLAC|Lossless|WEB-DL|tracks] <Inst
 ```bash
 magnet:?xt=urn:btih:D86125D97532882F0845C087A642E437749571B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Louna - X (The Best Of) (2019) [MP3|320 Kbps] <Nu Metal>
 ```bash
 magnet:?xt=urn:btih:54DBE20242798436684784F03BBD9AA1FD540875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Konami Collector's Series: Castlevania & Contra (2002) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:592978909D7CE473B97A71A0EEC153999F8CA242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Waylon Speed - Kin (2014) [MP3|320 кб/с]<Country-Rock>
 ```bash
 magnet:?xt=urn:btih:E249F3C3F4D3FF67DD1474950906DDB49841626B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - False Metal Eternal (2014) Digital Compilation [MP3|320 кб/с]<Сrust, Ha
 ```bash
 magnet:?xt=urn:btih:248D6E040AE0B2C73E7DD272D3B58CC60EE8E3C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Apache - ST (2014) EP [MP3|320 кб/с]<Hardcore Punk, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:3B4E423719CBDB30C78D33017E05FC1507DC95D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Fiend - The Story Of Another World (2014) EP [FLAC|Lossless]<Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:8C27D5BC36AF21961C5F8FD88D4D4071CBA099E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Unisonic - Light Of Dawn (2014) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:308F034D9EBE6FE76B010DE0B5A15CE9A844A350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Disc 1 - Sunset on the Golden Age
 ```bash
 magnet:?xt=urn:btih:2887EC3F626FE345A22DBF7AC5BD957F25CC619B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ VA - Спасём мир (Tribute to Виктор Цой) (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:A59DB74E557F419E1B78816E2B0B1E30E4D5DE72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D420C194EECDD9B32FD3051CBD481C3D97D27FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

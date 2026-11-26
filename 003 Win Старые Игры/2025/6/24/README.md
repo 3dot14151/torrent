@@ -19,8 +19,7 @@ BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:AD60B18C768A46C929DFA483861456CCDACC467C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer 40.000: Dawn of War – Dark Crusade (2006) [Ru] (1.20) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:7F1AADB44E34DB594075920C7F0CE744FC38BC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

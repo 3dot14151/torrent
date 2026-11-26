@@ -19,8 +19,7 @@ True Crime: New York City (2006) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:B430B837D40A45687AB35C561A1ED6DC98F4579A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ True Crime: Dilogy (2004-2006) [En] (1.0/1.0) License
 ```bash
 magnet:?xt=urn:btih:96A991D0BF7F54E4BB4FA46B58F86A25885AB121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

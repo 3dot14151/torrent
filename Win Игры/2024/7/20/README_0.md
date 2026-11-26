@@ -19,8 +19,7 @@ Asterix & Obelix: Slap them All! представляет знаковых пе�
 ```bash
 magnet:?xt=urn:btih:22D07D1353DEA3DB367B3B28455D5BE397B8C6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ I Was a Teenage Exocolonist (2022) [En] (1) License GOG
 ```bash
 magnet:?xt=urn:btih:44D888E9843FAC8F7BB2783F41DE10A3D8DB2B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ City of Stories 2: The Professor's Secret (2024) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:2345B083D20049D646CD04DF95DAF08FF8C26BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lifecraft представляет собой симулятор управле�
 ```bash
 magnet:?xt=urn:btih:145F03B27FA5B98E11328BF23B9611E897A18D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:F69CA39B82D4AC9D8282254E225A3C4F2B4932C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 ```bash
 magnet:?xt=urn:btih:E01CCCA1B733BE851976B7F264B0ABAEAEDE6B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Suzerain (2020) [En] (3.0.9/dlc) Scene Tenoke [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:72278E4797E7BF50B444369DFFFAAF1976DC0943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Asterix & Obelix Slap Them All! 2, захватывающее приключен
 ```bash
 magnet:?xt=urn:btih:1D359FA91A7CA142AAC9DC808C5712577F2B8BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Spirit of the Island (2022) [Ru/Multi] (3.0.5.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3E9724334C6670B64399B9A4CCAA7DEC5CDDCF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Flintlock: The Siege of Dawn с головой окунает вас в огро
 ```bash
 magnet:?xt=urn:btih:EDB2919DF41F3C5B83729DB58EC49B78821C17BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Classified: France ‘44 - это пошаговая стратегическа�
 ```bash
 magnet:?xt=urn:btih:430E4B17CEE02C079E232A241E37DBDE4A958A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Call of Juarez The Cartel - игра-вестерн от первого лица
 ```bash
 magnet:?xt=urn:btih:F5384F20094FAAA66C79339D2715F144D2A89931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:792C4429EC23C73BC50E25AA594EEAECDCA7E08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Pro Cycling Manager 2024 (2024) [Multi] (1.4.1.141/dlc) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:59C90D18895A9EE733B9D96447B775069EB80B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Burnout Paradise – Remastered - аркадная гонка, главные о
 ```bash
 magnet:?xt=urn:btih:070BEAACEB642310F96BA584FDF4F158EF6B5491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Secrets of the Heartbeat (2024) [Multi] (20240712) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5F835DB71C5C50DB870BF724F04C79869ECB6C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 ```bash
 magnet:?xt=urn:btih:5C03C5A0EBEB6938BFB6A4EB6CD32ED7EAD652BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Dragon Chronicles: Black Tears - это стратегическая ролев�
 ```bash
 magnet:?xt=urn:btih:64F747058441F305BEABA5AA9766FFEF8D3257DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Under the Waves – это повествовательная приключен
 ```bash
 magnet:?xt=urn:btih:016936C9B28DC0733EE066578917C03D3CF7AED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Burnout Paradise – Remastered - аркадная гонка, главные о
 ```bash
 magnet:?xt=urn:btih:070697564728E4E289CF38AF5D8B74CCABE1C84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Only Up! (2023) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:7234B4D4C9A2004D09CD35D1147238983C501136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ Oxygen Not Included (2019) [Ru/Multi] (20240718/dlc) Scene TinyIso
 ```bash
 magnet:?xt=urn:btih:C1CE686103F52C5E1E70C0430F4E3CACB94CD882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +569,7 @@ Braid (2024) [Ru/Multi] (20240603) Repack dixen18 [Anniversary Edition]
 ```bash
 magnet:?xt=urn:btih:489A07978F5D3DDC3F421B993C18B8E211306F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +594,7 @@ Burnout Paradise – Remastered - аркадная гонка, главные о
 ```bash
 magnet:?xt=urn:btih:383A517A2376AAB11986C16982A7C80AC1790777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +619,7 @@ Apollo Justice: Ace Attorney Trilogy представляет новичка-а�
 ```bash
 magnet:?xt=urn:btih:3C875633CAECB8BEA00D66504CB3766BD54CFCBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

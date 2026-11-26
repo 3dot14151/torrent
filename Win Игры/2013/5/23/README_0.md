@@ -19,8 +19,7 @@ Dark Parables 5: The Final Cinderella Collector's Edition (2013) [En] RePack Diz
 ```bash
 magnet:?xt=urn:btih:C8D0F04457225DA821BCCB8EFDA585FF285FECCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mahjong Secrets / Тайны Маджонга некоего Королевст�
 ```bash
 magnet:?xt=urn:btih:906D1C63B89B74FF815D7045493305ADBA3F2EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deep Black: Reloaded [Ru/En/Multi] (1.6) RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:043B16BFCF7EBDEF357F2DBB2CFC951684F755F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Ninja Blade (2009) [Ru/En] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:7B91532BA028759102A4E07B2F277DB678F66925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

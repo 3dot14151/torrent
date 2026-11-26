@@ -22,8 +22,7 @@ A4 Night Of The Living Dead(   Читать дальше...   )Жанр: Thrash,
 ```bash
 magnet:?xt=urn:btih:4012276DE02FF8FE2771B1FBCE4542D673D0A223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

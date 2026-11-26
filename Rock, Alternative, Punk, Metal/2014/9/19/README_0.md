@@ -28,8 +28,7 @@ Axxis - Back to the Kingdom (2000) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:42BD70469684EC6BCEB241FBC6C0848CAB0AF1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

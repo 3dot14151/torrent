@@ -20,8 +20,7 @@ Firkin - 2 альбома (2009, 2010) [MP3|320 kbps]<Celtic Punk, Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:AD343C63E5CFCC8F80BB43A22A03B34C72F5CDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Auld Corn Brigade - A Fighter's Lullabies (2010) [MP3|320 kbps]<Celtic Punk, Fol
 ```bash
 magnet:?xt=urn:btih:D34D0A8C0A7AF41BF3EF363F07C79F0F35E6CB11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Anvil - Juggernaut Of Justice (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:C2E56BDDD154E53475839717F969274A2FEC1936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ The Cars - Два Альбома (1985, 2011) [WavPack, FLAC|Lossless]<Pop-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

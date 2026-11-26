@@ -20,8 +20,7 @@ USB Redirector Client может только получать (   Читать
 ```bash
 magnet:?xt=urn:btih:D6A00A713F1E96CDD8DB272DFC4B7D753C9E74CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

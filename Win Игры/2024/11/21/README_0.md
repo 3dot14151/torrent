@@ -19,8 +19,7 @@ Depersonalization (2022) [Multi] (2.0.30) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3EC9C8E99D8C7920C15A4775FB0BA1ADB4E3E818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tortuga - A Pirate's Tale (2023) [Multi] (1.2.0.62400) License GOG
 ```bash
 magnet:?xt=urn:btih:3EC9B3DC1C1A229E4281C6391CAD83442289B7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ```bash
 magnet:?xt=urn:btih:2A7568014F65E906719BF9BEB508BFB2292BD904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fall (2024) [Ru/Multi] (0.1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CE27F9DDB8E131E9AEC91ADF82763F05A9CCA163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Devil Within: Satgat предлагает погрузиться в атмо
 ```bash
 magnet:?xt=urn:btih:8EE79E7745E029B6C7989DB5C45371A1435CA5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Disney Dreamlight Valley – это симулятор жизни с элеме�
 ```bash
 magnet:?xt=urn:btih:B0A870EE4CE919B07AC61F817DE97A0949989B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bullet Runner (2024) [En] (1.2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:23742E7A2288C466CC8478AE0D0436B582D378FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:36BEFEFD76DEE459A97B06556DE9A8A6A97CE011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

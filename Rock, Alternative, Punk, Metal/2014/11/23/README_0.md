@@ -28,8 +28,7 @@ Teri Tims - Made In USA (2005) [MP3|320 кб/с]<AOR>
 ```bash
 magnet:?xt=urn:btih:35E1730BE7A190596626FEAEF804C8E15D3042BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Pesante - Overplayed (2012) [MP3|320 кб/с]<Symphonic Gothic Metal | Male & Fe
 ```bash
 magnet:?xt=urn:btih:2BA0B419EADC6463314DD5B20F300AC7279E2EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Beto Vazquez Infinity - Beyond Space Without Limits (2012) [FLAC|Lossless]<Power
 ```bash
 magnet:?xt=urn:btih:9203822E92A6E9EE6DFDDEB76BB0E2FA4A052640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Granny's Intentions - Honest Injun (1970) [MP3|256 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:A01B835588C65A65B2A8F83DC91CF10D16335F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Jesse James Dupree & Dixie Inc. - Rev It Up And Go-Go (2008) [MP3|320 кб/с]<S
 ```bash
 magnet:?xt=urn:btih:0BD5CDFE061A7AEBC566AEE2971A32574364B45F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Ty Tabor - Nobody Wins When Nobody Plays (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:2C5A5DF37A755360096C86BB46E87C7EC302D077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Bonus tracks (CD only)
 ```bash
 magnet:?xt=urn:btih:FFB02BDBFD51C22F7BF793F92668C1D24AE0569F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Rise Of The Northstar - Welcame (2014) Japanese Limited Edition [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:B03703392A4095B22DCBD8101B03D73600CBDBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ VA - The Art Of McCartney (2014) 2CD [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:C063BB35F7794CD44A44FB47D4A643946E5C591A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

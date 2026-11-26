@@ -19,8 +19,7 @@ Log Away (2025) [Ru/Multi] (1.5.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:37E51536A9A474F2ED807A7ECCA95F7AE520A8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

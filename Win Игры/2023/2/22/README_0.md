@@ -19,8 +19,7 @@ Notch - The Innocent LunA: Eclipsed SinnerS выделяется на фоне �
 ```bash
 magnet:?xt=urn:btih:9A498A0A5F6FA75177B82C4D1D2DECB2B465F830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

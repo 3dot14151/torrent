@@ -19,8 +19,7 @@ Cериал рассказывает о серии напряжённых доп
 ```bash
 magnet:?xt=urn:btih:4B001258D34599503A5EBC237FB74DB4784F5AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cериал рассказывает о серии напряжённых доп
 ```bash
 magnet:?xt=urn:btih:702F1E7601AAA760148E4D7FDA0AECB11F8DCC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cериал рассказывает о серии напряжённых доп
 ```bash
 magnet:?xt=urn:btih:B4CC8057BE0D459BE46D21F3707797A0A773C3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

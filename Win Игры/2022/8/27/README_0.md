@@ -19,8 +19,7 @@ Midnight Fight Express (2022) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2FB8C4D2D913CE15BDAD896C2BBA41A13A30B994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

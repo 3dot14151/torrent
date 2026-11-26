@@ -19,8 +19,7 @@ Dark Romance 8: Winter Lily (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:66AFAC37B698A4FB73BDC19DB6D89704F8A43BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Labyrinths of the World 7: A Dangerous Game (2018) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:AEA04E5A2C90082DD3840FD301B675AAAC8F4E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Whispered Secrets 9: Cursed Wealth (2019) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:FFB20871A3D47A1AC7B1224D98B43EC572CB7B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grim Tales 14: The Time Traveler (2018) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:2976B9188F6E369B6C55A3AF54BEF8D83ADD5515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dark Tales 12: Edgar Allan Poe's Morella (2017) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:5732545F35364E3F1A1434481B17B77D7164108A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Caligula Effect: Overdose (2019) [En/Ja] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5D22CDAE6C0F3F8B80D3D515711D9BF28ADD839A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Overkill’s The Walking Dead — энергичный кооперативны�
 ```bash
 magnet:?xt=urn:btih:C4C5D1271439511B4964DFED77697A46E3EA8C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

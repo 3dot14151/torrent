@@ -19,8 +19,7 @@ Sector Unknown - это захватывающая изометрическая 
 ```bash
 magnet:?xt=urn:btih:D36A5BB420891AA7EB40EDFA72411EB16F990CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Road Redemption - игра в пост-апокалиптическом мире
 ```bash
 magnet:?xt=urn:btih:E7B94F079C5D44B81DEAC339F5B6A17DBCA430A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cohen 1939 - это жестокий и динамичный динамичны�
 ```bash
 magnet:?xt=urn:btih:390935AEBCAC709D97BAB31053A80B53D0A8C892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cyberpunk 2077 - ролевая игра с открытым миром, дей�
 ```bash
 magnet:?xt=urn:btih:459BC76EEC5C17D47842CB0E2644C4EDB281D416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DEMONS' NIGHT FEVER - необычная тактическая ролевая �
 ```bash
 magnet:?xt=urn:btih:20251E57F8E73E6430A8AD15AE536ADDDBEE3116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dementium II (2026) [Еn] (Build 26123896) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8546C9772FBCF0386816BDE6F05931899F57AFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Every Day We Fight (2026) [Ru/Multi] (Build 26109244) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3A0717E37E61D8B52BF9BDD5C0E758B055BB4344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ METRO Last Light Redux (2014) [Ru/Multi] (1.0.0.4) Scene Rune [Next-Gen]
 ```bash
 magnet:?xt=urn:btih:A5C78F56AD42FC0D00DA88A9E270F15CC5795619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ METRO 2033 Redux (2014) [Ru/Multi] (1.0.0.4) Scene Rune [Next-Gen]
 ```bash
 magnet:?xt=urn:btih:BA69531F0781D6F9ACCA216EF8995410E9C90B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Halls of Torment - ролевая игра на выживание среди о
 ```bash
 magnet:?xt=urn:btih:483066B500F79D1A5A58668F82FE2470FFB68943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Plan B: Terraform (2025) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:07E329B27AE0CA04153CF936C6F3C81F085D81E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Borderlands 4 - это захватывающий экшен, безбашенн
 ```bash
 magnet:?xt=urn:btih:919ECAA10D403EFD81F4D957ED24FFB23985F725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

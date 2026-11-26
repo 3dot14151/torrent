@@ -22,8 +22,7 @@ Sylvie Pommier, Yves Berthaud | Mécanique Générale (2010) [PDF] [FR]
 ```bash
 magnet:?xt=urn:btih:62DADF3D302C94404A62172659E5FFC61AE1015D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ André CHEVALIER | Guide du dessinateur industriel (2004) [PDF] [FR]
 ```bash
 magnet:?xt=urn:btih:C72B457BD97A300A4DF0C1ED64EEF02E9CE9DF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

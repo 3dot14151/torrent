@@ -19,8 +19,7 @@ Mayan Prophecies: Ship of Spirits. Collector's edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:9A9D6E8552E44FB8E12CE2C9CDB6079A2E6D3753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ F1 2012 (Русификатор) [Ru] 2012 | Бука
 ```bash
 magnet:?xt=urn:btih:B5EB43346DD973A336E6BFA53EAA6688494F794C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Haunted Halls 3: Revenge of Doctor Blackmore. Collector's Edition / Месть �
 ```bash
 magnet:?xt=urn:btih:1F1DAF4ACAACED596F841F779657B32424F58EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Rochard [Ru/Multi12] (RePack/1.31) 2011 l Fenixx
 ```bash
 magnet:?xt=urn:btih:71676FF740AAACF4526E4146F23C7D4522D0511D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

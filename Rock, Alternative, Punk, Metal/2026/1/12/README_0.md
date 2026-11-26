@@ -22,8 +22,7 @@ Daymoon - Wednesday (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Ro
 ```bash
 magnet:?xt=urn:btih:9D136C4BB4B2FBD96FCEE0D3F34E95A989ABF908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ends With A Bullet - For All My Sins (2026) [FLAC|Lossless|WEB-DL|tracks] <Moder
 ```bash
 magnet:?xt=urn:btih:A64CE020F58F415F74031CC38B4D4B0CF27BB313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blackbraid - Blackbraid I (2022) [FLAC|Lossless|image + .cue] <Black Metal, Atmo
 ```bash
 magnet:?xt=urn:btih:29A321077A1E70F7F4A4CF917FDE94BF26403770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Revenge - Trust In Metal (2020) Limited Edition, Reissue, 2021, Thrashingfist Pr
 ```bash
 magnet:?xt=urn:btih:5A3079F3603A5F21D0181A8FCE5590072C8B38D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

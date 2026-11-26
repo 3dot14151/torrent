@@ -20,8 +20,7 @@ Serial Cleaner — это стелс-экшен, действие которог
 ```bash
 magnet:?xt=urn:btih:083C3BC8BBDDECA771E3EDB447073DB837F7177D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Grand Mountain Adventure 2 v1.010 [En]
 ```bash
 magnet:?xt=urn:btih:A03C613981BDAEB6A7BB9F28C5FF29FC1F03F450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

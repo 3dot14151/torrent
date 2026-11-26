@@ -22,8 +22,7 @@ Twilight - The Edge (1992) Reissue, 1999 [FLAC|Lossless|tracks] <Heavy Metal, Po
 ```bash
 magnet:?xt=urn:btih:C44CB7E57CA8AB52FBDE7A3FF70CE1E72ADD0D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Denner - Shermann - Masters Of Evil (2016) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:0E3DE48356E41F2263B4CA56091D91C8EB1C7CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Beyond Twilight - For The Love Of Art And The Making (2006) [APE|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:42A47D50892794E1AD91B528D8021B2DA6058B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - 1995 Grammy Nominees (1995) Series Grammy Nominees [APE|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:954AAB94CE9228B054299EBF8B4C6D8AC1D1F495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Stonerider - Hologram (2016) [MP3|320 Kbps] <Classic Rock, Psychedelic Rock, Tim
 ```bash
 magnet:?xt=urn:btih:F769438B73CDD6876394FA139A77F839A8E09CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Dead Daisies - Revolucion (2015) [FLAC|Lossless|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:82063826E6C7D42C372416006575BC97484AB80B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D294302517BAA93C3CA5479E11EE7D8617A40EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Screaming Eagles - Stand Up And Be Counted (2015) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:70237A81E780826846CB31DB0A06EDB8D92B0C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Yngwie Malmsteen - World On Fire (2016) [FLAC|Lossless|image + .cue] <Neoclassic
 ```bash
 magnet:?xt=urn:btih:15FC2117D941072F0344076E61DB8DC558859C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

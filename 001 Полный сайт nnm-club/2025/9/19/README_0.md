@@ -18,8 +18,7 @@ Firefighting Simulator Ignite (2025) [Ru/Multi] (1.0005.28457.87919/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:9ACABC378E91049B41E4AF8D0FF37DC59F50869B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B5BD533244167D103C274ED6C0C50248E1BB3BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:68274B244807BF8C76402717191D87A722DB9386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Rutube объяснил: пиратский контент на хостинг �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ House Builder (2021) [Ru/Multi] (Build 15-09-2025/dlc) Repack FitGirl [Pack and 
 ```bash
 magnet:?xt=urn:btih:95D2CF6654D0BC446E3663F22701B1C950369CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:A3E36CCE6918D65544C6F64BE30AEEF67132176A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C11339DDD496051DF926547B63F7DFE760DF3F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:0D17A19B3E4248630C23B2BCE5758F92D0AA89A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Sakamoto Days (2025) | Дни Сакамото [Часть 2] [2025, TV, 11 эп
 ```bash
 magnet:?xt=urn:btih:0F994DCAEB9CD30DA1F55417C8F85EB28535B65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6A8874F099D581B9CD14533AE82017C523BCD6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:611DD7C1AB498BFEB50647B85E7857AFA5783BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.0/dlc) Repack Decepticon [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:69A2B769C277E9BC3DA9620B07AC7E45A8AC63C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5911FCA0C2016DEE17C5875C4F17C08E357C899F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Клеватесс: К�
 ```bash
 magnet:?xt=urn:btih:760468B0D0B7C3BE3A3B026267063E26EEF2322D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ MiniTool Partition Wizard Technician - мощный менеджер для ра
 ```bash
 magnet:?xt=urn:btih:F46728E8A9D1204020F688B21B070D630F2CB004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:0A94E7E1736B50E949FD55BD6AF65618E4FD513C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22FA004A25CD8B0588D8B9C18DB1740CB5B8F8B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ CULTIC (2022) [En] (Build 20024050/dlc) Repack Let'sРlay [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:E6C4274E304A30215A7C38C7D21C7E6A946F721B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:32432F0C3FA4D746A2330AADF5DF30105CF3B692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E46EF80814B23DB070B9DE5D75B4E38BBE1D3AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5F5763128AB1392996268175574E48146F6C1E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +548,7 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 ```bash
 magnet:?xt=urn:btih:3DE6E0CE0E954BDFEBB961DAC5DA4B3631C214F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D4E150031612FBB885888A49C20BEB6F1618DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +598,7 @@ Lost Skies (2025) [Ru/Multi] (1.0.79-50871/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1995395CA736AF599DC9D44071F5A270FA99D224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +623,7 @@ Zappicon — это продуманная и современная библи�
 ```bash
 magnet:?xt=urn:btih:1782B5F636F9039AAEEEFFD0ECF0D1B6F5D5838C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1ABBD89BFE033DFCA608E3F5DB5FC1EC1D5DD8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

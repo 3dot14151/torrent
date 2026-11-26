@@ -21,8 +21,7 @@ kemchuk | Удаление предустановленной Windows 8 (2014) [
 ```bash
 magnet:?xt=urn:btih:764916FE3E6082E39C23B7E7DF39E04E4E790A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Grammatisch 2.4.6 [En]
 ```bash
 magnet:?xt=urn:btih:0E3C6734182E0458AB3E57B39EA005FA462D1E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

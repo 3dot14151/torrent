@@ -19,8 +19,7 @@ PuppetShow 6: Lightning Strikes / Шоу Марионеток 6: Магия мо
 ```bash
 magnet:?xt=urn:btih:4E13700AB11F0356EDD850E4E69F089A2664E486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

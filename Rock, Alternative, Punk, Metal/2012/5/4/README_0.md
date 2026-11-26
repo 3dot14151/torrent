@@ -28,8 +28,7 @@ Grateful Dead - The Very Best Of The Grateful Dead (2003) [MP3|320 кб/с]<Rock
 ```bash
 magnet:?xt=urn:btih:658E207E53E120DDC098396D58DBD7BA2EE62AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D0DF299E8360E7D0E32C47F2A6C7A2B025DE4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Hateful Abandon - группа, играющая уникальную смесь
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Gun Barrel - Brace For Impact (2012) /2012, Massacre Records/ [FLAC|Lossless]<He
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Godgory - 4 альбома (1996-2001) [FLAC|Lossless]<Doom Metal, Melodic Death
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Bud Spencer - People Are Curious But From The Outside (2012) [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:4B6CF191088C50841C2951B04EB3240DFFB96799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Acheode - Anxiety (2012) [MP3|320 кб/с]<Technical Death / Mathcore>
 ```bash
 magnet:?xt=urn:btih:AF741D5DE80E534FEEA40A1A474AC494779F0367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

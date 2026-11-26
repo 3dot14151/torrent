@@ -22,8 +22,7 @@ Castle of Illusion Starring Mickey Mouse (2013) [Ru/En] (1.0) Repack R.G. Cataly
 ```bash
 magnet:?xt=urn:btih:982A1D9A530F6771A741455DA8F87FA9DD477AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Patrician IV – это экономическая стратегия, дейс�
 ```bash
 magnet:?xt=urn:btih:4854C7DA567A0E14EAEF0237DAF3679799E64296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ League of Legends - динамичная соревновательная сет
 ```bash
 magnet:?xt=urn:btih:981BCA69F0DFDCFD6D11D96D278548C4C821444B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

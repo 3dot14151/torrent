@@ -21,8 +21,7 @@ ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886
 ```bash
 magnet:?xt=urn:btih:9DE6F85FA9D810FFF3A843FAE0337852608A53B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8F85A01CAC901093A9364469A0418015E0E6857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ XaKeR_CD USB Edition Full 13.0/Lite 3.0 (19.12.2018)
 ```bash
 magnet:?xt=urn:btih:89B8ECEA3323F804C633FF29391CE6B0BE327443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 18.12.15 [Ru]
 ```bash
 magnet:?xt=urn:btih:1C5EBB1F37EF0CE5434C287B9FB40EF68A44C1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:672CD6D8BA3AD49879DA87B090CFD565692AEDF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2018) SATRe
 ```bash
 magnet:?xt=urn:btih:B54843F0AE983B51EAB079870D8980C79BFE4532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F57A0EFC114AEE1A162710E4654C1D6F7AD5FBAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BDEFCFC403431A22CA49261CA03E283BBB08E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ PayDay 2 (2013) [Ru/En] (1.92.776/dlc) Repack Mizantrop1337 [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:5F8FAF81E502DBBBF35DF61009C7464C062717AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Resident Evil 5 / Biohazard 5 (2009) [Ru/En] (1.1.0/dlc) Repack West4it [Gold Ed
 ```bash
 magnet:?xt=urn:btih:905BE7D06A30153DF127DDD7CD9B4422AAE08CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ The Elder Scrolls V: Skyrim Special Edition - это улучшенное и р�
 ```bash
 magnet:?xt=urn:btih:98F54DF0979AD52F7953201E1EEB465E145B0045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

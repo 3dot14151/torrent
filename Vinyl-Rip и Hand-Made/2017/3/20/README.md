@@ -22,8 +22,7 @@ A1. Going Backwards (5:43)
 ```bash
 magnet:?xt=urn:btih:09CEC420DC3E5414FF59DA2B5823983FE25E3B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

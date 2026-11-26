@@ -19,8 +19,7 @@ Flowx: Weather Map Forecast - это приложение для всех пок
 ```bash
 magnet:?xt=urn:btih:D029D22FEE074503A4C4570BAA1203E8EA72D59B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MyMovie - это видеоредактор от известного разра
 ```bash
 magnet:?xt=urn:btih:DF7DEA1DC030B562B3EDC17F47BB68461DA0DFAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Photomath - настоящий подарок для всех, кто регул
 ```bash
 magnet:?xt=urn:btih:DA16530A2F0A5D2A1D5133FC70769A9893C4375C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PixelLab - отличный фоторедактор, в котором все �
 ```bash
 magnet:?xt=urn:btih:D45A10B59284395852E14E48016F6916EF9EF345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ jetAudio HD Music Player Plus - мощный и стильный аудиопл�
 ```bash
 magnet:?xt=urn:btih:96E28A3212B145697B75F22CE58CB4C99AFB8E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

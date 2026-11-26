@@ -19,8 +19,7 @@ CentOS 7.0-1406 [x86-64] 4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:C4A167BFE243C6441EBF6205D7FDD89267713D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OpenServer 6 обеспечивает надежную работу сетевы
 ```bash
 magnet:?xt=urn:btih:B63AF83B98A70E073600FF2E4372520729D57A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

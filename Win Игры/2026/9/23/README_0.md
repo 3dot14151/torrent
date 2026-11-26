@@ -19,8 +19,7 @@ Graveyard Keeper 2 (2026) [Ru/Multi] (1.004.2) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6F3A96902DF504FC0F6F4BE321A65682DBEE51F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Creature Kitchen - это инди‑игра от студии The Rat Zone, 
 ```bash
 magnet:?xt=urn:btih:46E8B021F03B63936874CFECD2D2BCE872D45AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Golden Lap - это захватывающий симулятор управле
 ```bash
 magnet:?xt=urn:btih:32C33877C723CA79312FF7BC0C529A20D395EFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Timespinner (2018) [Ru/Multi] (1.042) License GOG
 ```bash
 magnet:?xt=urn:btih:2E93F40A88A246222F52E0F350BB55AA7FB46037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Honeycomb: The World Beyond (2026) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CCF624E2DCF035C6CB483CAB2A1728942F281425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Crimson Maid (2026) [Multi] (1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:7D93B5632D88AB73E4B3025264E7CCA59AEAF894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Silent Hill: Townfall - это психологический хоррор о�
 ```bash
 magnet:?xt=urn:btih:ABA21AB3FA01E44C158F6A83DD837A2DB001A6AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Silent Hill: Townfall - это психологический хоррор о�
 ```bash
 magnet:?xt=urn:btih:91B3ACB3C36C25CEB8AD3D10E000CD4F7E95CFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

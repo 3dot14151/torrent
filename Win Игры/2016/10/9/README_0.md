@@ -19,8 +19,7 @@ Lords of Xulima увлекательная фэнтези ролевая игр�
 ```bash
 magnet:?xt=urn:btih:5B4AD6D7120115FC48A6FA9FF20B6AD936F32398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Syndrome является научно-фантастической игрой �
 ```bash
 magnet:?xt=urn:btih:21F5EED2A24152306C0DBE72EBBEA89BA5F27D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

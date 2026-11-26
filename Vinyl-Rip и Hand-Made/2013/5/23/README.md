@@ -27,8 +27,7 @@ Ottawan - 2 Альбома (1980,1981) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Disc
 ```bash
 magnet:?xt=urn:btih:CEE959D17896554ED0C19D7DB015943AFBC49EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Akshan - The Rise Of Atlantis (2013) [FLAC|24 Bit|Lossless]<Psybient, Ambient, D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Udemy | React + Redux - Профессиональная Разработка (2
 ```bash
 magnet:?xt=urn:btih:E960512878EB43E561D9E55A81041E424DA61542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C49BF6FA49D9248401097F7C150670C0965E1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

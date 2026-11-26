@@ -19,8 +19,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.9/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:17EFF178B176F3C8FC7BC9F008032B845ECA17B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

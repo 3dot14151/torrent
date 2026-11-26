@@ -19,8 +19,7 @@ Lithium: Inmate 39 (2016) [Ru/Multi] (1.3.1) License PLAZA
 ```bash
 magnet:?xt=urn:btih:7AABB1F1E9F2BAC4D04E1EEF0D1FF2E65F4989E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Little King's Story (2016) [En/Multi] (1.0/09.02.2017) License GOG
 ```bash
 magnet:?xt=urn:btih:F9C8C7D14D4F65A1DB4D713CD4506DC1C112E5A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

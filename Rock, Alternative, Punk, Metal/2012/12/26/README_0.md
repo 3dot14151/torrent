@@ -28,8 +28,7 @@ Hinder - 3 альбома (2003, 2008, 2010) [MP3|320 кб/с]<Hard-rock, Altern
 ```bash
 magnet:?xt=urn:btih:25688080B2A7AEA444C40A934E766196527D742F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Walk Off the Earth - 2Albums+10Singles+EP (2008-2012) [MP3|320 кб/с]<Experime
 ```bash
 magnet:?xt=urn:btih:02EF83230088116432C204BF030902851751C6A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

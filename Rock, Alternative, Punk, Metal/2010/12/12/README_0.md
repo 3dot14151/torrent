@@ -28,8 +28,7 @@ Bonfire - The Best Of 1986-2009 (2010) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:08DB039C5A08A08271618C5140D373A121D0117A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Bauhaus + side projects (Peter Murphy, Daniel Ash, Love & Rockets) - 52 albums (
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

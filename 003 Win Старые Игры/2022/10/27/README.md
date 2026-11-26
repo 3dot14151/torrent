@@ -19,8 +19,7 @@ Deer Avenger / Олень-мститель (1.0/2.0/3.0/4.0) (1998—2001) [En] 
 ```bash
 magnet:?xt=urn:btih:6AF0F026FB4E370F50EE8E0964D903B3BDB06098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.0
 ```bash
 magnet:?xt=urn:btih:F09F9BD5F75396AE9DBB220C1410B6DE252696E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ El Matador (2006) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E56F1C56B251BE9D20ED89538612461BB3333028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

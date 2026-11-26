@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4E0BFFB6D91118A02851AF5B87FFD01825B1034A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ GTA / Grand Theft Auto: Криминальная Россия RP (2019) [Ru] (0.
 ```bash
 magnet:?xt=urn:btih:6DFEFDB6A85DEEA190275525ACCD3643749CF79B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Adobe Photoshop — лучшее в мире ПО для графическог�
 ```bash
 magnet:?xt=urn:btih:5B6213269620BF31299523AADBBFAC0E16C27E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:945715935AA9CEFB7167B775C2290F0F90C4C7FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94BF735C6047B96C5CB35479F7F7EE4088FD81C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

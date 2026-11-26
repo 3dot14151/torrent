@@ -21,8 +21,7 @@ Alien Weaponry — новозеландская метал-группа из В�
 ```bash
 magnet:?xt=urn:btih:ADEB6617791BB0EDDE730568EE155EF4BFEEA738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

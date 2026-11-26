@@ -19,8 +19,7 @@ WireGuard – современный и не требовательный к р�
 ```bash
 magnet:?xt=urn:btih:76F3B137F0B8FB77949F8D4C9DC4EB35B6E67599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Food.ru — это пошаговые рецепты и мобильное пр�
 ```bash
 magnet:?xt=urn:btih:296301B55E5F01DC58D480B6AE46C8AA8DB24B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

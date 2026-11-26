@@ -19,8 +19,7 @@ Royal Detective 3: Legend of the Golem / Королевский детектив
 ```bash
 magnet:?xt=urn:btih:AC66A7DEDEDC7B701015B89AF5D8807B61F76825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Planet Coaster представляет собой реалистичный си
 ```bash
 magnet:?xt=urn:btih:41E894F468CE04A534D1FFF82953CBB67D89AE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Death Point – это классический стэлс-экшн, котор�
 ```bash
 magnet:?xt=urn:btih:5F939F3CA4EA7BC6FA8439A12C661AB423BFE17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

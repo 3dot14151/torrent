@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:975E1117E02E0BF8CA68AB309A1CE2C38231E07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Elise Melinand (Elise Mélinand) - Gray Hoodie (2014) [FLAC|Lossless|WEB-DL]<Amb
 ```bash
 magnet:?xt=urn:btih:C766B13254DBEFF30AF591AEF56D6EFC52BB1CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ VA - Vadim Exler's Mashups [Trance] (2014) [MP3|320 кб/с]<Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:BD328A3E326D34C4DC96EB98174801A192499CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Personal collection, original rip & scan work: antonyart
 ```bash
 magnet:?xt=urn:btih:83AF6E1D0A98798413B93DE891DECBD3B1572194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ Ace Translator – это отличный и мощный интернет-пе
 ```bash
 magnet:?xt=urn:btih:DE6C09FE387CE0040AFEC9AD00CD4BD803EEC88D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Kove - Way We Are (174 Mix) / Liberator (2014) [FLAC|Lossless|WEB-DL]<Drum & Bas
 ```bash
 magnet:?xt=urn:btih:F46FB36B6870973E7D4C781D10150B23E1B27D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ L 33 -  Helvetica / Detuned (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:04F112C1CA46796DBFEA30BBDFFD59E634262492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ VA - Deepalma Eivissa (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:27589770D8EB45FCC2960C99FE7FDBBF4FB494CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FB982CE8C9B611F86ED942D3829A2E4354B306A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ Symphonix - Get Rhythm (2014) [FLAC|Lossless|WEB-DL]<Psy-Trance; Progressive Tra
 ```bash
 magnet:?xt=urn:btih:BB64CEF0A9018C461C8D3F40E17A9EFF25E687FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ VA - Club Sensation (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:9EE9A8A4F45E76E20D99F18C18F897A3F00E2B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:CFB8D7A8FA95A9BF157B5F906B525F3DFE46406C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ Empire - популярнейший ежемесячный журнал о ки�
 ```bash
 magnet:?xt=urn:btih:5B329D62C21794FD8DC29ABCD817DE76E373603E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEE26B47AB05AC0C7C4F1CFAFD5E3976DC50C851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ Plaid - Reachy Prints (2014) [FLAC|Lossless]<IDM>
 ```bash
 magnet:?xt=urn:btih:2EA15ADDFB8689D0FD6178EFCE02AD6C4343B864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ Lightsphere - The Bright Side (2014) [FLAC|Lossless|WEB-DL]<Psy-Trance; Progress
 ```bash
 magnet:?xt=urn:btih:2845851A144D168BE8D02D9C6E536B225441EA63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C803F5854920942EACB58F4F1EDE75057944138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D683339BA62336A7AEB9CB27E5B9274BE99DEF66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CF858285CA37C354CEE8A383AE7081AC8FE4180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +596,7 @@ James Brown - The Soul Brother's Jazz (2010) [FLAC|Lossless]<Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:0E5C2FDAFBA14EBF44BFEC6E5E15820033CBC591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C2B4397C1D7AB1AD3501A90D5878DC2786174A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ Haruka Naru Toki no Naka de: Ajisai Yumegatari | In a Distant Time | В дале
 ```bash
 magnet:?xt=urn:btih:A10535DD1D8F5CBEF11413A632E41BB71842DD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2AB5B771C437BCDA932E45DB4A7EF56953375DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:7057D1AA75C50AC451FFACB87B46F7A4BC06BD5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +732,7 @@ Grim Tales 6: The Vengeance (2014) [En] Unofficial [Collector's Edition / Кол
 ```bash
 magnet:?xt=urn:btih:899E8D6A76F9DC631B86A772664E413F7DA102A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

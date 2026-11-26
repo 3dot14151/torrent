@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:D64838ABF4123969733646DAD4811113AD32FA0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dover Publications | Мотивы североамериканских инде�
 ```bash
 magnet:?xt=urn:btih:1F55B0E49D021356EF40A4122A4F735C78B81F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

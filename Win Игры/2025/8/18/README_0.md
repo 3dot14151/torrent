@@ -19,8 +19,7 @@ World War Z VR – это иммерсивный однопользовател�
 ```bash
 magnet:?xt=urn:btih:CFC7B653449E80DFD79984C3C2079D331EAE13BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:A3A31F8D3DA34083E829FEC15750CC0CC61AD213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unfinished Business - это новое самостоятельное прик�
 ```bash
 magnet:?xt=urn:btih:63C593A3878DDB0C1B3EAC073CD69608341351FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:9358CFA95349D06F52FC726548B7EB9F55AF880A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ A Fistful Of Yankees (2025) [Ru/Multi] (1.42) Repack AIexandro
 ```bash
 magnet:?xt=urn:btih:8F0CD666EC8FE87882B129FCEC382795A30AC03E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Empyrion - Galactic Survival – это приключение с выживан
 ```bash
 magnet:?xt=urn:btih:3C483885B0D341FF8BA3388FF56F19ACAE5CFDEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Inkshade (2025) [En] (1.0.004) Repack AIexandro
 ```bash
 magnet:?xt=urn:btih:C142AF1A5AF0644C867D798F0D23EBF6643E0A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

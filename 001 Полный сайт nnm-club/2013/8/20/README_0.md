@@ -27,8 +27,7 @@ VA - Cafe Buddah Lounge 2013, Pt. 1 (2013) [MP3|320 кб/с]<Downtempo>
 ```bash
 magnet:?xt=urn:btih:E20F349F176E61FAF0FB381EC6333CEF9FB61BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Keemiyo - Imagination (2013) [MP3|320 кб/с]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:CFDAC187F746FDAFD4FB152CCE989B2B6FEDED2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82A91F0EC7A76BD61E3B4EDACB8562C923602752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ VA - USA Top 40 Singles Chart (17-08-2013) [MP3|~245 кб/с (V0)]<Pop, Dance, C
 ```bash
 magnet:?xt=urn:btih:66AC07B93D9C12BB0C1F19E6C365B7B022A18F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67546ABE79CF5D9ED218035D83B165D416B91511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34AC549309F2ED10CC56BE47D75B1C688BC8AFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EF1DD664E3C5E6019EC74A70840E860B2CC1762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ VA - Жаркий знойный хит (2013) [MP3|224-320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:16A394719D73575EFCD3BDC585D359AFF11BCBBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96064E418608D06924E413DB0FD1ADA520E97765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F125F0B5F97B92AB58C2C4AA368310E2DB8D985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3C61577F78C385E7CC01C3E1C9ACDD6DA6EEF73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B7DE6B411185BED0B815A4EC413EA358B25D6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ Trouble - The Distortion Field (2013) [MP3|320 кб/с]<Stoner/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F362611D70B53968F926C68CC8443A8879FCC962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ VA - UK Top 40 Singles Chart 18.08.2013 (2013) [MP3|320 кб/с]<Pop, Dance, Clu
 ```bash
 magnet:?xt=urn:btih:81D6A64D87EA33A12FD3382608AEFFF235E4F7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52B6A8CFF7631D3E9F1E98189C4B4A2F3C86498A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ Aldo Romano &  Henri Texier,  Geraldine Laurent,  Mauro Negri - Just Jazz (2008)
 ```bash
 magnet:?xt=urn:btih:E7D872076A22553BB177FBECFA055E5C47DFF973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ VA - Live the Sunrise - 100 Selected Chill Out Tracks (2013) [MP3|320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:CD4F7D56A880FE10290E39B61430EAF882C910C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +564,7 @@ VA - Sexy Lounge XL (30 Perfect Chillout Tracks For Your Sexy Moments) (2013) [M
 ```bash
 magnet:?xt=urn:btih:05C764AD76D27331A85F651E6BA09FEC8DE1DE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:461131BD2F8798E1FC11007A6681775FCD9CC81E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ VA - Популярная радиодвадцатка 10 (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:34F3F00C48E484F71C02F74B3211F83559899607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +655,7 @@ Down - 4 альбома (1995-2012) Дискография [MP3|320kbps]<Heavy M
 ```bash
 magnet:?xt=urn:btih:C5D2E5DB3D5F1A37476518A1CD82F533D2E7D162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +689,7 @@ VA - 50 Shades of Seductive Lounge (2013) [MP3|320 кб/с]<Lounge, Jazz, Bossa>
 ```bash
 magnet:?xt=urn:btih:CAC286E08E10740B797E79513532C89B8AAB26D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +721,7 @@ Dr.Web 8.0 Security Space Offline Update 18.08.2013 [Ru]
 ```bash
 magnet:?xt=urn:btih:54458091DDF099240B0F84582ED2FF1B797E760A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EE5A1DAD9D4CBC3AB5567110355B1D9465A5BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -800,8 +775,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F6CDDC15566F5E4087785B58D6D75204ED2F200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

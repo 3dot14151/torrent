@@ -21,8 +21,7 @@ Young Gun Silver Fox - West End Coast (2015) Japanese Edition [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:6726912ED3731D3A14B35E40EB5C50160A8460ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:B87E73F333EC68243683F7FCE5EA1E79CE2E5CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Streetlight Circus - Super Fine Sugar (2022) [FLAC|Lossless|image + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:F83E7E02D86EF74C52E0A8094AF501D3BD2ABE64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Orianthi - Rock Candy (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Roc
 ```bash
 magnet:?xt=urn:btih:04F007231BEB09653383664452F3BC995D90C0E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Faith in Jane - Axe to Oak (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psy
 ```bash
 magnet:?xt=urn:btih:D3AE5AAF087D4CC21E9DCC07AD79B9F90370BDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Simple Minds - Direction Of The Heart (2022) Deluxe Edition [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:F1E54A1E7C4509F2613668751EAEF79DBCD04DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Pearls and Flames - Reliance (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 ```bash
 magnet:?xt=urn:btih:5F9913670450F78BAA802AA49201E2C6D0FAF1D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

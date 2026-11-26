@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Enervant - Palescent Tints (2013) [MP3|320 кб/с]<ambient, ambient techno, chi
 ```bash
 magnet:?xt=urn:btih:8C70D96E47E6F18252BBC14702473E56E5F81BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ VA - Deep Magic Waters Vol. 5 (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:763020F19239F10499D8F1CE16A8C8E708CC9950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:111652C24FB092C2F1F2E43A92B33A9FBC40FE94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Deep Magic Waters Vol. 4 (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:E6C0C7C050F5BBA860D876B6FAB5027A4543DDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ The Manhattan Transfer - The Symphony Sessions (2006) [APE|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:E267FA5CF98286C5FA74F101FA1C6DA0EFF02642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ VA - CLR: Best Of 2013 (2013) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:E72F819195AEB2537E5E0B6EF5DA4B022DA9AD56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A27D6AA4F03992D6C4A16482160FF94E785AE76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ VA - Trance Global 2014 (2014) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting
 ```bash
 magnet:?xt=urn:btih:AFE0326E7A6DE5BCACAA7C64759FF78089BE7369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ Auto Bild – авторитетный журнал об автомобилях.
 ```bash
 magnet:?xt=urn:btih:E6FA9FF2AEEDFFFC07C88A97B1C559AC45E1B11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ VA - Kitties Go Deep Vol.2 (2014) [MP3|320 кб/с]<Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:60E2A087823404C0E6C8117AD7473991C51996BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ VA - Night At The Bay (Mixed by Audiometric Djivo) - 2013 [FLAC|Lossless|WEB-DL]
 ```bash
 magnet:?xt=urn:btih:ED96E09DDC116FFA38B07DBD07BAEFB74C9C7E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +400,7 @@ VA - Nachtwandler Vol. 6 - Deep Electronic House (2014) [MP3|320 кб/с]<Deep H
 ```bash
 magnet:?xt=urn:btih:9707F69EE7F3F1958FEC2E3D054957910A28DAA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +428,7 @@ Blutspan - The Answer Is Floating Between Dead Stars (2013) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:51878F75EBD53C26940E2EC49D7A027F8972F6A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91857E1D6A7A193AFBC9169E60037F8F989110B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54CE14E0827A843F4A2879C50935309DD8B22BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82E1F0FDA00F855C6DB490222A2FD97C9C0D179F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D40DB07D1EAC6A009B19FB4946380B19AB6F377F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +565,7 @@ Blutspan - Homestar (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Glitch>
 ```bash
 magnet:?xt=urn:btih:1A5D065C9A9BB397FAFB86CEF646E19CFB5C273D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +599,7 @@ VA - #50 Weapons RMX 01-09 (2014) [FLAC|Lossless|2xCD]<Techno>
 ```bash
 magnet:?xt=urn:btih:AFE161D600F48058563C0164EB73C39F139FD568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +627,7 @@ The Pixel Door - Opus of unrequited love (2014) [FLAC|Lossless|WEB-DL]<IDM, Glit
 ```bash
 magnet:?xt=urn:btih:F7BC55BD8F43136AA462306D828FA6B0AB365773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +660,7 @@ The Bar-Kays - Light of Life (1978) [FLAC|Lossless]<Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:5A9624C5C020F31872F39005BBAE217237DB48A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +685,7 @@ Discovery: Что было дальше? Серия №6 / What happened next? (
 ```bash
 magnet:?xt=urn:btih:D3874B85B087AE234F6A7F00DBA1849F72435CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +718,7 @@ Herbstlaub - Streets Aren't For Dreaming Youth (2012) [FLAC|Lossless]<IDM, Ambie
 ```bash
 magnet:?xt=urn:btih:68D820E7257C03C0E549424BBA2464B24B5138A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +743,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C672A639590C6D51D632F3593B1BD736E32D0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +768,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B276A8CB6ECBDF8A238D0D22BEFCCC3A21055A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

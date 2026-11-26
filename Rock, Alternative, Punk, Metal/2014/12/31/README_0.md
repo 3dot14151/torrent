@@ -27,8 +27,7 @@ Skelator - King of Fear (2014) [WavPack|Lossless]<Epic Heavy/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:CC668BC89D5F238DA48F0A5870CDDD8BBF4FD630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Rocka Rollas - The Road To Destruction (2014) [MP3|320 кб/с]<Speed Metal, Hea
 ```bash
 magnet:?xt=urn:btih:A940AA9D1875BB3F10595EDDB823E2D02A218467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17C3071DFD938DDEA0D19FD26EE2D48FDC16855C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A3. Беда (С. Романов) 3:10(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:AAA2EA8063865892E3AA860E5878E7F7A98F8F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

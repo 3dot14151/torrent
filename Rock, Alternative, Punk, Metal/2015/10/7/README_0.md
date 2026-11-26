@@ -22,8 +22,7 @@ Ego On The Rocks - Acid In Wounderland (1979) Special Limited Expanded Edition /
 ```bash
 magnet:?xt=urn:btih:5714724833C31DED966A9DBC7613267CF704140D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Raventale - Dark Substance Of Dharma (2015) [MP3|320 кб/с]<Atmospheric Black 
 ```bash
 magnet:?xt=urn:btih:09574A55717AB38D6BDC08881F6C5D2C2FE2418F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:8C352D482F73901B5FFF776BE4832F38E26A2FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cold Chisel - The Perfect Crime (2015) Deluxe Edition [OGG| 456-523 кб/с]<Cla
 ```bash
 magnet:?xt=urn:btih:52975D163C2DBA70C176B8320A524254D651EF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:432CB46AB083DFE46E80AA987B6A6886E7577E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Hollywood Vampires - Hollywood Vampires (2015) [FLAC|image+.cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:73268C7D60B4B8499ED8AF237D0BA8D107108C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Stigmata - Legion EP (2015) [MP3|~245 кб/с (V0)]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:10742E3BD60868724B4CC39179CEA23AD88CE7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4D0385B57A19BB8ABE31E967804764E2143A76C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Astrea Six-Sided Oracles (2023) [Ru/Multi] (1.2.313) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0E2347AD339587FA407BEE4A87D229C2C146F63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack Other s [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:E7728B4200BA1C37E8984D536C6D4879F4C6D0E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PEPPERED — это экзистенциальный платформер, гд�
 ```bash
 magnet:?xt=urn:btih:151F5AA6238E75370CB0DDC31642D0E03292DB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Factory Outlet Simulator погружает игрока в жестокий м�
 ```bash
 magnet:?xt=urn:btih:2C8129B133B8895638192928D7B691B39C51B2DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

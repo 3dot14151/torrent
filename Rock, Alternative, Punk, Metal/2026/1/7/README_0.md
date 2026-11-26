@@ -22,8 +22,7 @@ Unleashed - Fire Upon Your Lands (2025) [FLAC|Lossless|image + .cue] <Death Meta
 ```bash
 magnet:?xt=urn:btih:6C8A3038269101BA9CB917E6AC47BD6E93FD9908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

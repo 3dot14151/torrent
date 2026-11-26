@@ -19,8 +19,7 @@ Blades of Fire - приключение в жанре тёмного фэнт�
 ```bash
 magnet:?xt=urn:btih:99E030541160967901DDD269ECAAACECE3772C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shape of Dreams - это кооперативный roguelite-экшен, в к�
 ```bash
 magnet:?xt=urn:btih:3AA4BE11F3AAEFEF6BB23178F5CDBEF99DDE779F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aphelion (2026) [Ru/Multi] (1.03.1628077/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:212A6A393FE9BEFE5B01C4F11013A6AAF224F053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Samsara - это экшен-RPG в стиле souls-like, основанная �
 ```bash
 magnet:?xt=urn:btih:CEB537C010ACB670825E064098B829EC29DDD817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Werewolf: The Inner Beast - это 3D-хоррор от третьего лиц�
 ```bash
 magnet:?xt=urn:btih:469F627DF05E99854E4B52B70E55DB2C928EFE5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dead Rising (2016) [Ru/Multi] (1.0.1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C6066672346A7818B7B17FDFA7179F2C8DDC7919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

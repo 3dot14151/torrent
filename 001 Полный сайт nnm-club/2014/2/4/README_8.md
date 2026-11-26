@@ -18,8 +18,7 @@ Parallels Desktop for Mac 9.0.24172 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:19B20297008392A783D91D0E54B0B63A175CAF00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Guise Of The Wolf (2014) [Ru/Multi] (1.0) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:2731DAE908CB26287DC8DF5DB84679591ECEF12E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ SamLab давно являясь членом команды Bashrat имеет 
 ```bash
 magnet:?xt=urn:btih:EFC8A0D00AC77F81FF5C726B037C82FE0032669A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Strike Vector – воздушный инди-шутер с возможност
 ```bash
 magnet:?xt=urn:btih:EC42B554E1EC94D067C11F2EC5F773E2E08A41A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80C7898FEDF47DE3219B426CB57BB75C0C41D55D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Norton Internet Security 2014 - комплексный антивирус с д�
 ```bash
 magnet:?xt=urn:btih:037C53163844F68F94EF01418CBA5CFDBB1EA8AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Splinter Cell: Conviction начинается с того, что Сэм Фиш
 ```bash
 magnet:?xt=urn:btih:39EA29771F0C622EC9F15FF3A4F0534304FC6FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8186BC999322FE0AA13DAB76545DCC05BB2E311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD14D2B1FE45073CDEEAC9E2DE8C474B78DF4EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Native Instruments Massive - обновился настоящий музыка�
 ```bash
 magnet:?xt=urn:btih:4D4301E311D01219F10F83B4411FD5DA9ECC8D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2F5A614BA915CE6B93A91D2FB9993977B15048C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B54659233CBFB3B29D75F61B7AF6F8D69FEE8074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ SHA-1: 746b5a8fcda3dfc5e48ef1faaa2f8f2b56b611d4Язык интерфейса: En
 ```bash
 magnet:?xt=urn:btih:DA1CEDE6580E42FA72B468BC114C241343717322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ S.T.A.L.K.E.R. Trilogy / S.T.A.L.K.E.R. Трилогия (2007-2009) [Ru/Multi] 
 ```bash
 magnet:?xt=urn:btih:047743893FD6DED0650A6273A1705C4B7AFCA7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Endless Space – космическая 4X стратегия в смешанн
 ```bash
 magnet:?xt=urn:btih:076DFFE8D3A46F3A2BB3C4B5E974A2450F15677F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:688448AD699BEBC00FEEF4A7482C5CF03AE2DA57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ Check Internet Browser Component 1.0.1.56 [Ru]
 ```bash
 magnet:?xt=urn:btih:4C03493500171C9CCC728CF043DA497393AB57DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DFD3AE8A8F0AAD93826728F972475B46BCF3EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB56FAF8E5E06C7C74505DFFBEEBC080B74BF982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1F9D482D8DED4490B189A0698075E9A99D4180B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

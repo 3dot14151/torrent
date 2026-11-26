@@ -18,8 +18,7 @@ KMSAuto Net — автоматический KMS-активатор для оп�
 ```bash
 magnet:?xt=urn:btih:96582DE8E9689ADA332C4F40228E58D8B8C1ABF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Shingeki no Kyojin Season 3 | Attack on Titan [TV-3] | Атака титанов
 ```bash
 magnet:?xt=urn:btih:395EB3BB388EE5D00A8A24321624DE7BCB5ADC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 18.10.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:1E997CAF99211BE89CE453698BF4DC1D47CC1EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

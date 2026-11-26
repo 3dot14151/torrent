@@ -22,8 +22,7 @@ Marlena - My Heart to Yours (2015) [FLAC|Lossless]<Vocal Jazz, Pop>
 ```bash
 magnet:?xt=urn:btih:7516C9E8F37DA41A4A5B88437A42867467D6A05B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7138888E0A3E71D5A3E854A473D79E3EBE4E7AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ The John Young Trio - A Touch Of Pepper (1962) /2013, Universal/ [FLAC|tracks+.c
 ```bash
 magnet:?xt=urn:btih:986628BA41BCFAFCD8C0AC6E29B862CBBA049F01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Kaempfert Plays Kaempfert - The Original (2011) [FLAC|tracks|WEB-DL]<Jazz-Pop, E
 ```bash
 magnet:?xt=urn:btih:1F1CEA5398BB92FC460C4A8E85BB955B93C83282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - World Chillout - Bestsellers (2015) [MP3|320 кб/с]<Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:3EBC0CBA648B9DC4F185D5BC015EDBB9FEA9173C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Amber Rock Association - Amber Rock (2015) [FLAC|Lossless|WEB-DL]<Jazz, Easy Lis
 ```bash
 magnet:?xt=urn:btih:2B2B84CB6D584C10E76E934369EE799AF7B5B21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3EFF045860B064A5C69CA45F1E43840118B46FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:E11A5F782EFB80106630871D30DAF7C3652E1C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Dizzy Gillespie - Have Trumpet, Will Excite! (1959) /2015, Poll Winners Records/
 ```bash
 magnet:?xt=urn:btih:3F3728B0675B8B8DB1245F001B41D16CEFC2098C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - World Chillout - Bestsellers second edition (2015) [MP3|320 кб/с]<Downte
 ```bash
 magnet:?xt=urn:btih:45117479177E5106B6218411E836DD33A9CDAF8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ John Coltrane - Stellar Regions (1967) /2015, Universal/ [FLAC|tracks+.cue]<Avan
 ```bash
 magnet:?xt=urn:btih:EB7425409F57016ADDDCF41A880C049CEDB0490A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ VA - Enhanced Music: September (2015) [MP3|320 кб/с]<Trance, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:CF84F69D0B6320C53E89857D72CC7B5F3BB9DA54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Karrin Allyson - Many A New Day Karrin Allyson Sings Rodgers & Hammerstein (2015
 ```bash
 magnet:?xt=urn:btih:926FFF6AB3AC42D26DEC02BA0E6EEEC03AEEBAAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4BC960E134242A87FF5C88FC05AE788E95A717E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ VA - Alter Ego Trance, Vol. 21 (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:0AA8A640998A36A9374DC820B00959F7AA61C551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D05F23EB98DD52351B61DEC97E8CCE78C51E888E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D765547BA4AACF4B9FED86E2F4D3D4D89996527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ Diaboli - Wiking Division (2015) [FLAC|image+.cue]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:8E54D086D1601BA8BB30CC4336D5E8722B864147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ VA - Goodtime Party Dance (2015) [MP3|320 кб/с]<Club, House, Euro>
 ```bash
 magnet:?xt=urn:btih:C4327133BA3D1E1069717224A9B72D861C5341CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ VA - Autumn Relaxation Moments Best of Chillout and Lounge for the Fall and Late
 ```bash
 magnet:?xt=urn:btih:699893D4D594627044375FC8355399BE8437C777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ Rose Room - The High Life (2015) [FLAC|tracks|WEB-DL]<Jazz, Swing, Gypsy>
 ```bash
 magnet:?xt=urn:btih:808A4BB26CAE79E1AE1CB22A97131ACF74BD0D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F006CCCB7DA625D6C11BD7332D7001DFF4B5109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ VA - Deep House Excitation Two - 15 Finest Deep-and Chillhouse Tunes (2015) [MP3
 ```bash
 magnet:?xt=urn:btih:9A7A94ADC2175147AECD850B9ABD0C80E6A7D4F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ VA - Atom 19.0 (Compiled and mixed by Deeper82) (2015) [MP3|320 кб/с]<Atmosph
 ```bash
 magnet:?xt=urn:btih:18EE71291340161D82AC1826302A38A4F286ABEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAB9439D78A01ED9600394CED206EF6930016172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ VA - Acoustic Hour - We Are Independent (2015) [MP3|320 кб/с]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:493E8741E2D040A58F003BC390DED34642AA5325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

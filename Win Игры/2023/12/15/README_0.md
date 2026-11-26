@@ -19,8 +19,7 @@ Need for Speed: Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack Decepticon [Limi
 ```bash
 magnet:?xt=urn:btih:F2B2D05CDFA71FD501013431971ED7175D63E3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:AECC77ED7D48CCD44F01423F92B5E7A7F53CEE9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cookie Cutter - жестокая постапокалиптическая 2D-М�
 ```bash
 magnet:?xt=urn:btih:FB92A107323DF0677FD58468DC09F09B950B6E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Christmas Fables 2: The Magic Snowflake (2023) [Multi] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:56C20ADB441DF58516B48A4244CBE479A31AEEDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Church - Lacuna (2026) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Neo-Psyche
 ```bash
 magnet:?xt=urn:btih:FFA6301B38861172FCB05C5315DD96A23DFF1FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Insomnium - Netherworlds (2026) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:5804040493B1FC3245C7B0057C85BC36F7783DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Meshuggah - Catch Thirtythree (2005) 20th Anniversary Edition, Remaster, 2026, R
 ```bash
 magnet:?xt=urn:btih:C88D7A67A8FD5E712EAF8B353B51DD0B757EDAED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

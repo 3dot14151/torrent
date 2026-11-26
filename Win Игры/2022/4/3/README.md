@@ -19,8 +19,7 @@ Onde (2022) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:7FC170ABB90B8FF8A99D47DB0A2EF1CCD8723168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

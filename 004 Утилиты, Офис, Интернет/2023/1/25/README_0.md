@@ -19,8 +19,7 @@ AeroAdmin программа удаленного доступа, работаю
 ```bash
 magnet:?xt=urn:btih:2E401B688D55FDFF4DCFA4A6A2325B225DBAA797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

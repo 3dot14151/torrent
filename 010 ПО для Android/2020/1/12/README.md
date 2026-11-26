@@ -19,8 +19,7 @@ Fake GPS Location v3.5 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:E0B6A9DC97122F44C20E62317D39CE4D9A1E8A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Seven – 7 минутные тренировки. Упражнения для �
 ```bash
 magnet:?xt=urn:btih:266DF3844751538A7DE459FFFEA71B25DD33FF1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

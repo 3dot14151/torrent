@@ -19,8 +19,7 @@ art of rally - раллийная игра от создателя игры Abso
 ```bash
 magnet:?xt=urn:btih:FC50B704D47D1B2787618D189795CC00DC6C77E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) Li
 ```bash
 magnet:?xt=urn:btih:DC9F705D3D220A070836525881803C89BD237332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Straya (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4CA0051378FF5B3516AFE1A7FA09A9CCF83D0264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E051594FBA2E6798EE043A222E83ADB7D894F100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Computer Launcher (Windows X Launcher) – это лаунчер Android, кот
 ```bash
 magnet:?xt=urn:btih:D584B38E30E514784E721F97AFA3EBB2F5AF3E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

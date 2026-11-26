@@ -19,8 +19,7 @@ Ingate | 3 шага в ТОП: оптимизация без ошибок (2014)
 ```bash
 magnet:?xt=urn:btih:8703405A622D27053F2ABFB4C605DEFD3C6F6D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

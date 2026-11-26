@@ -19,8 +19,7 @@ AlmaLinux 9.5 (Gnome, Xfce, KDE, Mate) [x86_64] 8xDVD
 ```bash
 magnet:?xt=urn:btih:D051FE33EE5CC573C823D4A9FC186A01CABEE35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

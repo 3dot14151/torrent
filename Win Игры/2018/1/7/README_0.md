@@ -19,8 +19,7 @@ Darkheart: Flight of the Harpies / Темное Сердце: Полет гар�
 ```bash
 magnet:?xt=urn:btih:4E865230B4A124A56E06B34AF67340709AE15564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Myths of the World 13: Behind the Veil / Мифы народов мира 13: З
 ```bash
 magnet:?xt=urn:btih:69EE7C35BE8B5E320E462A58365B7FCC299A14FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dungeon Defenders (2011) [Multi] (8.3/dlc) License PLAZA [Collection Edition]
 ```bash
 magnet:?xt=urn:btih:6337B80B82459736F9E9A681D6AAF2C148288257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Oriental Empires (2017) [Ru/Multi] (1.0.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:EAF7E78E58FA3A8CB0FD160099A52B810D6C0499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Masquerada: Songs and Shadows (2016) [Ru/Multi] (1.22) License GOG
 ```bash
 magnet:?xt=urn:btih:7718185DB1E71D08AC0E50F4C46A83027081A6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fallen Legion — это напряженная ролевая игра, в ко
 ```bash
 magnet:?xt=urn:btih:0D38749BCB6C6157841EAD12D6742B3640E7BC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

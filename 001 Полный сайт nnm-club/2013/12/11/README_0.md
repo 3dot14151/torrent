@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:60186384CA4AFCAF17F5F3FED4DE1A424EFAE61D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Thai Chill Lounge Vol 2 (2013) [MP3|320 кб/с]<Downtempo, Lounge, Chill O
 ```bash
 magnet:?xt=urn:btih:0C9EFAD2EFA19FC43BF32903A1C4EBD66996C770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Русские Новинки Vol.135 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:4E00A28FD43738D73302DABDE1A9C1A7150FEACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Auslogics Disk Defrag - бесплатная программа, призван�
 ```bash
 magnet:?xt=urn:btih:B44DEEB8AAC07354A1317989A9864E08ECF5248D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1730B8E476144B7A3FF842D7418DB96B87EDC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ VA - Омут Русских Новинок (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:7D3DD1E9B8021A21ED635AC17267B671F5FF3E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA81F5B47338D0D64A63664A74976B4112ED449A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ Gabriels - Prophecy (2013) [MP3|320 кб/с]<Rock Opera, Heavy Metal, Progressiv
 ```bash
 magnet:?xt=urn:btih:24509EEAEAAB68623FBDBBB0F8015E085B47C21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:310330FA4BB20D89B6073E69DA3927DB9C4DA1AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ Popular Photography - ведущий американский журнал о ф
 ```bash
 magnet:?xt=urn:btih:81CA618161C35B210B200285938A2775BB85089D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0C26BF10DFA2D0326C2991B253BD0377DB345BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ VA - Клубные Новинки Vol.337 от AGR (2013) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:D61A09266320CAEDD2A8C3F1FF918140548B8599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ Stars In Stereo - Stars in Stereo (2013) [FLAC|Lossless]<Alternative Rock | Fema
 ```bash
 magnet:?xt=urn:btih:E2F9CCBE1C9CD29173A27F7F9263788DEFBC4738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46475E3DBD89BB2198FA4F66BB90217C98A2357E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7936697079F16A1C0954C6A0DC498FBF5FD42A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6CD522A553B3E6E7639F46A9E28EB046F118755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ VA - Клубные Новинки Vol.338 от AGR (2013) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:E77AB8B0B77C5362CF0ED5557F606C1F875F358B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5761168C67635FFC67513274323FDE9CDCAF1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ Innes Sibun - Lost In The Wilderness (2013) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:285F7C88145521D7D878D16B9EF68E0FEA28295C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +576,7 @@ Cosmic Riders - Owl United As One EP (2013) [FLAC|Lossless|WEB-DL]<Psy-Trance; P
 ```bash
 magnet:?xt=urn:btih:FBEFA2D9D970BD372FA73663C0253C5488D0D976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ VA - Backbeats In The Pocket (70s Jazz Funk) (2013) [MP3|320 кб/с]<Funk, Soul
 ```bash
 magnet:?xt=urn:btih:0D7D0E0A498435E517738E9C5764D70E31AF42BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A45ED46B4DF7859D4898DCC5F3BC1A659C830D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +660,7 @@ tsMuxeR – утилита для создания TS, M2TS файлов и об
 ```bash
 magnet:?xt=urn:btih:CDEE40E5821F042C6DC34FF1FF3EC107A59FBB20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +694,7 @@ VA - Клубные Новинки Vol.339 от AGR (2013) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:FC1CA202D632011D16A83A1B8682102572ECEA0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +728,7 @@ Eyes Wide Open - Aftermath (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:77F26A4AD45DA1A27BE33A8019424CB6CEDBD7AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +762,7 @@ Houston Person - Nice 'n' Easy (2013) [FLAC|Lossless]<Hard Bop, Soul Jazz>
 ```bash
 magnet:?xt=urn:btih:8B591C049F6726AB2613108246DD1BF9DE08C8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

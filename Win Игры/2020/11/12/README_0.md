@@ -19,8 +19,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.2) License CODEX
 ```bash
 magnet:?xt=urn:btih:017CBC4E95667854CCD087F032BAA44775D3C326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Genesis Alpha One (2020) [Ru/Multi] (147.8763/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F4867FEED2B4EF94E897231A783655C56657005B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

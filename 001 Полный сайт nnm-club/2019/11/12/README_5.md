@@ -22,8 +22,7 @@ D.E.W. East - Introducing D.E.W. East (1999) [FLAC|Lossless|tracks + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:C37442FA0C9690774036F355E56A92896D8DE608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:40288BFBF02A3453C2CE04C7E3AA6B684B667724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Steve Grossman - Katonah (1989) [FLAC|Lossless|tracks + .cue] <Hard Bop>
 ```bash
 magnet:?xt=urn:btih:2320FE2EC576CB8ACDA9E0F4A27D555CC996DC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Omnibox позволяет (   Читать дальше...   )Тип изда�
 ```bash
 magnet:?xt=urn:btih:C2D38C492F5C8C062695BB4EDBF9728852DB2193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ iClip позволяет быстро заносить и хранить неб�
 ```bash
 magnet:?xt=urn:btih:285E406D82443A754F89D6ED7175A661C967DFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Wondershare AllMyMusic для Mac позволяет записывать про
 ```bash
 magnet:?xt=urn:btih:AEA8B4B37A8EC447B628E727664572E53C0AE586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Panphage - Jord (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:C341813AA96ED3C47688412A286CFC28E11DD06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ ScreenFlow - создаем свои скринкасты
 ```bash
 magnet:?xt=urn:btih:6480595BC51E69948957D5C4515FF6452C3D3D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Unite позволяет быстро и легко превратить веб-
 ```bash
 magnet:?xt=urn:btih:A743D471055167A16946B81B2764327FB6FB5A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Charlie Watts Meets The Danish Radio Big Band (2017) Impulse! [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:17D86E0C045C2170BC40B3D30E6409A179806390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ The Hot Club of San Francisco - John Paul George & Django (2016) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F59058BFF9F0CFB46219CD2AC77B0567CB77CE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ RAW Power 2.1.3 [En]
 ```bash
 magnet:?xt=urn:btih:E975F2CB9AD8EFC3341DD0345C319EADA5A1BB8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Nina Simone - A Very Rare Evening (2013) [FLAC|Lossless|tracks + .cue] <Vocal Ja
 ```bash
 magnet:?xt=urn:btih:79DCCFE7A5C37482D7A4AFA0A28660E0E04A7212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ GoldWave — звуковой редактор который легко про�
 ```bash
 magnet:?xt=urn:btih:D7E8F32AA091CE9F58DC5B33B880317A58E42A09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E87C19099B0194D27BAFF2BC8C46E765BB74442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Exposure X5 v5.0.2.95 [En]
 ```bash
 magnet:?xt=urn:btih:B1E7A732B3C6C611009B4C50C1493B30352CDB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Ice_Eyes - Discography 7 Releases (2015-2019) Seagrave, Genot Centre, Nutty Womb
 ```bash
 magnet:?xt=urn:btih:8BB041420F35F789BE4A166178724E87442B8A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD9E382CF9CA6E7F441BD215713AC46E77A41F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ Mosaic представляет собой мощный оконный мене�
 ```bash
 magnet:?xt=urn:btih:C93E11FB921C65E9D44C93662B950F9DD7D27A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ Ledo - Frozen / Under the Skin (2019) [MP3|320 Kbps] <Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:33A5686539C750E3BD6B0532A3B3CC8AEA7B4E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F21B32FE1941FF48D3F6F02893D2F2194C9D48E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Ledo - Frozen / Under the Skin (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:0368D7CA8749E1B64F354D5FD19BA0F1F73911E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0F700273A50D8FCF235EEF1C50CA221E6DC9158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACC709899B6010367FB4C98FE86A071A3C72E2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ VA - Autumn is Coming: Soft Music Moments (2019) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:666EFF82BFFFA4958906C03A377F3E1A0A7310D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E31ADEFAA56D4A786E8F8E6088B97E4AEE8F8A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

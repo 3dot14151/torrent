@@ -18,8 +18,7 @@ Shadow Complex Remastered - это переиздание игры Shadow Comple
 ```bash
 magnet:?xt=urn:btih:199D0FC846A1CC8977A9A0C5F6DDA84C11342589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ SEO-Коучинг – профессиональный курс по обуче
 ```bash
 magnet:?xt=urn:btih:5B0C7BC53B49176CB3A42E387779890E59180BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Linux Deepin 15.1.1 [x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:68878DF52853367ADEA18FEE9CDE4521A221A910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ RimWorld - научно-фантастический симулятор коло
 ```bash
 magnet:?xt=urn:btih:4C0C98C62F7C3D96520B4734B631E73310FD9778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ ITVDN | HTML & CSS (renewed) (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:4CF9F4D22C6DCE74D13061DBC8B2FD8135E3A031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ American Truck Simulator – продолжает серию автосимул�
 ```bash
 magnet:?xt=urn:btih:1D63B6FA65144833514914F16009C4BCB8EF474A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B43D07220B64C84A7CEC8C8338A6BCAC5A071FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E65C44951975F7BFF5F83A19691B77593C59A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ HTML5 Web Components - это видео курс, который будет п�
 ```bash
 magnet:?xt=urn:btih:A1FCC4A4A6131C12C41796EC81A78CC03DE6791C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Ethical Hacking and Penetration Testing
 ```bash
 magnet:?xt=urn:btih:D408F228427F0707F91EE737B538E6BF59F460F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ C# Essential Express – курс второго уровня формата п�
 ```bash
 magnet:?xt=urn:btih:E1180257C7335068B9F5897DF81FE73D93B075AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ ITVDN | Создание адаптивного сайта с Bootstrap 3 (2015)
 ```bash
 magnet:?xt=urn:btih:115F12371C7A4C02488641557E775545F034CCB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Parallels Desktop для Mac - Самое быстрое, простое и мо
 ```bash
 magnet:?xt=urn:btih:387DFABEDD4AFF3141C79D2FFB0F6E5F8674565D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ The Forest (2014) [Ru/En] (Alpha 0.37) SteamRip MarkusEVO (R.G. Games)
 ```bash
 magnet:?xt=urn:btih:6C1BBB3688A81D022B3B674513315CF7935D49D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2960854006C0CD1FD5E347A5344D0CB80CD182F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ ARK: Survival Evolved (2015) [Ru/En] (239.2) Repack MAXAGENT
 ```bash
 magnet:?xt=urn:btih:F1D16D7C33BA1ABF1E1917AD936669A586FAC802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Tomb Raider — это современное приключение, где с�
 ```bash
 magnet:?xt=urn:btih:27C017EAA5E9AFA22CE5AFC49A81230E1D9C2F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ EDIUS Pro 8 поддерживает большое количество фор�
 ```bash
 magnet:?xt=urn:btih:F7C2063DF86EC3101F1852A849D72905FCC6B94E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00FCCF93934CBB9AB04106439D40A48125E7EDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

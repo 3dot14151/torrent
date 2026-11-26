@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D285F26A6C958869EF61627F3EAF67A2D822305D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) Repack Other s
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

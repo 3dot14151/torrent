@@ -22,8 +22,7 @@ Refuge - Solitary Men (2018) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C6AA3FD808511D3D6EAEAB597751A02F6914EEFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trillium - Tectonic (2018) [MP3|320 Kbps] <Symphonic Metal, Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:2C378E402547B8F938BE6B1194D52BCB8CDBD6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - 90s Rock Party (2018) [MP3|320 Kbps] <Classic Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:D2A12B6DEA4B6ECF68E7F0CAB24FBD7770CB6989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

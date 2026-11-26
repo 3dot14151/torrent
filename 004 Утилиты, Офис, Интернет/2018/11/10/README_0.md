@@ -19,8 +19,7 @@ CD/DVD shot 3.5.0.1 (x86-x64) [Ru]
 ```bash
 magnet:?xt=urn:btih:33A9C644FF4E3A098D5393370129BA8690E58CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

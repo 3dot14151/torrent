@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:FEA8D2A14151DCE3F81C3BDAE081E59736F9F63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Bravery — американская рок-группа из Нью-Йор�
 ```bash
 magnet:?xt=urn:btih:BD05AD42A0C4186167B8C21AA8E32A632276429F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

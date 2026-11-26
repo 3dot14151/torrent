@@ -19,8 +19,7 @@ Oxygen Not Included (2019) [Ru/Multi] (700386/dlc) Repack Necros [Complete Bundl
 ```bash
 magnet:?xt=urn:btih:85C7B17CBABB28CA0E8D615473C1A7DB1C00080A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Quake II - знаменитый шутер 1997 года с видом от пе
 ```bash
 magnet:?xt=urn:btih:AD8EBD2D1DEDC1D4CE419A7FA910EA6DCEFB4876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reflections of Life 15: A Shattered Heart (2025) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:0AE36B55C390CF974A513C5DF19789A7ACAB9D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Winds of Arcana: Ruination (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EF6E30FDFBBA85800A8C254AFBBA71977285C041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kriophobia (2025) [Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:D943D108CC953D37B2572587AEFFA69A17DB0AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Haunted Hotel 6: Ancient Bane / Проклятый отель 6: Древнее 
 ```bash
 magnet:?xt=urn:btih:0988CEF566CF914459399D302AA2853CAA084F00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Outward – приключенческая РПГ, события которой
 ```bash
 magnet:?xt=urn:btih:F488F2A82B3DF1C4E76A66062EA8E7598FA349BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

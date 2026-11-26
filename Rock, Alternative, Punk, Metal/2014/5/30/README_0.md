@@ -25,8 +25,7 @@ Venenum - Venenum (2011) EP [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:3AAD53C0D1A205D3E3CCF03103E333A5D85CBA6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Anguish Sublime - Unveiling The Origin (2014) EP [MP3|320 кб/с]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:AB8AB3DFFD0D656A3617D7FCF89926E789D4D9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Dust Bolt - Awake The Riot (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:692A0F227CF65585C3433AD796E6BDF607EEE3E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Valkyre - Our Glorious Demise (2014) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:DFE69B892C6C18E82AE92594FD5B0D57CA660D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ YoutubeЖанр: Symphonic Heavy Metal |Продолжительность: 00:2
 ```bash
 magnet:?xt=urn:btih:59E36C87F78E6D5CDC43C8CD7DE61157B68BCF88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Kiss - 40 Years - Decades Of Decibels (2014) 2CD Box Set [MP3|320 кб/с]<Rock 
 ```bash
 magnet:?xt=urn:btih:3CE9D533D682F15CF19BBBCBA921B9893B263CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB0962CBDD5193B4200387517A18FD557CD969BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

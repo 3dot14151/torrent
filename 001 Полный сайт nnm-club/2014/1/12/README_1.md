@@ -18,8 +18,7 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:792A81831988C85B83C276CC2E6B992D90753AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Cruel Collections: The Any Wish Hotel (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F169BD65A3583BC7C9F07B51D02A862CB9BB6D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Зарубежный Megamix Hits (2013) [MP3|256 кб/с]<Club, Dance, Pop
 ```bash
 magnet:?xt=urn:btih:CAF004FE4C81300D2F8890314B9AE3E41BFDD757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Lou Pallo of Les Paul's Trio - Thank You, Les. A Tribute to Les Paul (2012) /Rel
 ```bash
 magnet:?xt=urn:btih:8C3BC909402E2543E9CBEBFCD6FB6042259F01FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Bobby Caldwell - House Of Cards (2012) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:7F4F1AC7CECCDC70D60686A8BC9ABB18E279EB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21311DC15D1814BA9BE80A2C9DA53EED0FE937D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ David Arkenstone - Healing Waters (2006) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:B66A0434245A166BA580B86028632A28826978BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ Comic Life - великолепное приложение, с помощью к
 ```bash
 magnet:?xt=urn:btih:E0F6C68802C68594E4D71BFEB7BA4F64318577FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E627723EA9F2C6DC744A9C14DD77372F558D145F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6601A15EAE6B3D50ACA0374683B9EE8E34CDE301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19755289AC6A3FCBC8DBABFC5B3FE803D9774640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ EximiousSoft Banner Maker – программа для создания рек�
 ```bash
 magnet:?xt=urn:btih:E450687A0DFA8D546898DFD2C34FDE0760197C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ Discovery: Человек на Земле с Тони Робинсоном / Man
 ```bash
 magnet:?xt=urn:btih:24412B6FC3BC2F20F2BC012014F403E00CF8AF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ CES 2014: InAiR - система дополненного телевидения
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3BFB2068953CDCCB736A9E1C5D67EAF743E61A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ VA - Rave Music 2014 (30 Top Best Of Hits Hard Dance ) (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:3DF019804356D09AB38865443A20557A3C94E82F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BE072CFACC7C3AC7EA92D900C79C16F68C44927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CF3A2FC6C26B623237D67EA801471A95CF7B998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ VA - NYE 2014: Winter Warm Up (Pt. 1) (2013) [MP3|320 кб/с]<Pop, r&b, dance>
 ```bash
 magnet:?xt=urn:btih:275E432ABF279CB12F0F11C62F22A0211847C466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32989ADC10EFD4B67DFC9A1D1EF2D2EA9D3DC5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ Little Busters! Refrain / Маленькие проказники [ТВ-2] [2013
 ```bash
 magnet:?xt=urn:btih:D6B3B2301FB1ED7D20CB7246B5518367AED1421F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D19F386543D6F4CD48850507774F814D42A913AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +649,7 @@ Zdravko Colic - 39 Hitova (2008) [FLAC|Lossless]<Pop, Pop-Rock, Pop-Folk, Balkan
 ```bash
 magnet:?xt=urn:btih:167F5DF3F9078960BAEED61DAD4287B525B85B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +675,7 @@ An A-student's life is turned upside-down when inappropriate status updates and 
 ```bash
 magnet:?xt=urn:btih:37CCB9202E208957750DEEA735DFF1B323D513B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAB153ABFC522559D22A3C22301530715EC9BDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ VA - Мой самый Главный человек (2014) [MP3|128 кб/с]<П
 ```bash
 magnet:?xt=urn:btih:E96B5F0614A33387C66B590BFAE85ACCE24A2AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

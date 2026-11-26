@@ -19,8 +19,7 @@ Windstorm / Ostwind - Ari's Arrival (2019) [Multi] (1.1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:352DE537545C5848831609C05B8ABB7B39253AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warparty — это стратегия в реальном времени, де�
 ```bash
 magnet:?xt=urn:btih:557C4CDB7027DAEE8808EED28B3C845B34B1567A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Andersen Accounts 2: The Price of a Life / Досье Андерсена 2: 
 ```bash
 magnet:?xt=urn:btih:8A99BF60367EBE152442A4173E3736BC697E8B87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

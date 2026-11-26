@@ -20,8 +20,7 @@ Construction Machines Simulator 2016 (2015) [Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:26036DD1FB58E12641176B033AE72BA4414B22B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AudioSurf 2 - продолжение лучшей музыкальной арк�
 ```bash
 magnet:?xt=urn:btih:ABE2DE0D8CC41FB736876AD4FC6DFDE00458791F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

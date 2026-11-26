@@ -19,8 +19,7 @@ Nightmares from the Deep 3: Davy Jones (2014) [En] Unofficial [Collector’s Edi
 ```bash
 magnet:?xt=urn:btih:597620CA3519689DEA0F7A7888E6493BFEF7A794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Living Legends 2: Frozen Beauty / Живые Легенды: Ледяная Кр
 ```bash
 magnet:?xt=urn:btih:ECF8B8ED9F111980A711FBC0360DA799B676C358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Sniper Elite: Nazi Zombie Army — это новая часть серии, за
 ```bash
 magnet:?xt=urn:btih:89C6A45F963E5E230616E193AD9C7A9744051941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.2.73c/7dlc) Repack
 ```bash
 magnet:?xt=urn:btih:962CDC53D3EBEA0AF5B130584963EFA38BBC2D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

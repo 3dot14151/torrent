@@ -20,8 +20,7 @@ Dato поддерживает все языковые стандарты и яз
 ```bash
 magnet:?xt=urn:btih:CC3C7A382E7D58FB272D9CFD0A81D15E79AA8649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mirror for Hitachi TV 1.2.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:95523A873E12F84CC34570DEAC1245EE5D9CF763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ LaunchControl — это полнофункциональный графичес
 ```bash
 magnet:?xt=urn:btih:EB89E492C1DDA41A636F0EEA26BAF68701253B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:B6085782CF5FA9725ED73075E8B029DFCBA95B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ VA - Balearic Sunset (The Buddha Ambient Edition), Vol. 1 (2022) [AAC|~279 Kbps]
 ```bash
 magnet:?xt=urn:btih:FB85391B315E76B85FECFF64B9C6DE3707A64558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Sam Martin - Alpha Omega (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:9C6A2964FBFAD084C0B20BEBDE826A2D64AA5E5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Lounge & Beauty, vol. 1 (2022) [AAC|~314 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:94C63771370BE3AD50BFC2A78823656C58CD5D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ VA - Summer in Electro & Swing Jazz (Light Music Selection Night Session) (2018)
 ```bash
 magnet:?xt=urn:btih:BE139D20612F6E9EF37794B555DBAA4D85D067B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ AnyMP4 iOS Toolkit for Mac 9.0.66 [Multi]
 ```bash
 magnet:?xt=urn:btih:27BD5F0771CC8E387D8DBED1CD57C49F68348606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ iCompta - простое, но мощное приложение для упра
 ```bash
 magnet:?xt=urn:btih:1B8B71E3B759021EE9F9CF18A0AF17D0B7E6DA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Cisdem Video Converter является решением все в одном д
 ```bash
 magnet:?xt=urn:btih:05A6941751140892603C3FCD445B3920B2134311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ EdgeView 3 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:7808EB39F91A61A1CB77AD47995BB26BA60AB471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ VA - Hamburg Orange (Urban Music for Urban People) (2017) [AAC|~317 Kbps] <Loung
 ```bash
 magnet:?xt=urn:btih:20297BFD690959D26B73889599071B6009FE893C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Cats in Boots - Kicked & Klawed (1990) [APE|Lossless|image + .cue] <Sleaze Rock>
 ```bash
 magnet:?xt=urn:btih:105DABAA60620E953AA4B48FD260E32D692E0D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ VA - Beautiful Vocal Trance, ch. 3 (2019) [AAC|~332 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:50DE6CD05DE0DCE0293E3059872D1B723D929755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Mirror for Hisense TV 3.8.3 [En]
 ```bash
 magnet:?xt=urn:btih:71C365880A00B630EA737E363DF50736120E4308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ VA - Beautiful Vocal Trance, ch. 4 (2019) [AAC|~338 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:8E4B361C950FC70A6C4D59DB859CEA6C824F0783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ VA - Summer in Electro & Swing Jazz (Light Music Selection) (2018) [AAC|~317 Kbp
 ```bash
 magnet:?xt=urn:btih:2E54DD9158EF5AECC57128ABBDC44797B42D81D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Charlie Ventura Quartet & Quintet - Complete Verve Studio Sessions (1951 - 1952)
 ```bash
 magnet:?xt=urn:btih:6F5270650604EDD65C4C34A060B741B6F412014D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ VA - Beautiful Vocal Trance, Progressive (2020) [AAC|~336 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:C1C8DCB84376F83233FA5A2AC65202F42E2AAF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ VA - Beautiful Vocal Trance, ch. 2 (2018) [AAC|~340 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:AB12342767B81CAFA1A3665836FD206F366F1228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ VA - Beautiful Vocal Trance, ch. 5 (2020) [AAC|~337 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:6FB6141C542FADC2703237CF7CFE5E59D29C924B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ VA - London Orange (Urban Music for Urban People) (2016) [AAC|~313 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:81B648B5ED05FA0782AAA8410F1B1E158186830F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Baynk - ADOLESCENCE (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
 ```bash
 magnet:?xt=urn:btih:3D87CE67873927F60C18D41282117058BFC32AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ Screenshot Editor (Редактор скриншотов) поможет вам 
 ```bash
 magnet:?xt=urn:btih:5471F0C6A796B31456C31D33195B93955AFDB3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ VA - Barcelona Orange (Urban Music for Urban People) (2017) [AAC|~339 Kbps] <Lou
 ```bash
 magnet:?xt=urn:btih:E62CAA0F9102FA36E0CA94CC427481088443209F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Royal Revolt Survivors (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8A629C9BB6257B55D3981C4AE7CE340DF195114B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Overthrown (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:08BA7095928554203AA95BA4B5AE99439322C187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Project Castaway - это игра в жанре выживания и краф�
 ```bash
 magnet:?xt=urn:btih:2953D6913221046811B3539BE8EE2E82DDBC2EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Project Castaway - это игра в жанре выживания и краф�
 ```bash
 magnet:?xt=urn:btih:A24C36D8D5D63234B8609844FCF69938B1A62A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Everybody's Golf Hot Shots (2025) [Multi] (1.0.8) Scene Rune
 ```bash
 magnet:?xt=urn:btih:FFD939A3B484D20C9887E2475B4D9CFF4C831D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Headquarters: Cold War - это динамическая пошаговая ст
 ```bash
 magnet:?xt=urn:btih:81B69128C7C56243C1F606689382DE89E77894E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Whispers of the Eyeless (2025) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Supporter
 ```bash
 magnet:?xt=urn:btih:A90CB13FEEEE4E047053A4FEE8D8AA3F891FB439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

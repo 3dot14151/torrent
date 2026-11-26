@@ -22,8 +22,7 @@ The Fixx - Every Five Seconds (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Modern Rock
 ```bash
 magnet:?xt=urn:btih:F269A6CDFEDCF86D2A06D33B6BE43ACECE9B96A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Avril Lavigne - Let Go (2002) 20th Anniversary Edition, 2022, Arista - Legacy [F
 ```bash
 magnet:?xt=urn:btih:14F4A7F305A805C366B5CE36E4CABF5CA4A3221F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

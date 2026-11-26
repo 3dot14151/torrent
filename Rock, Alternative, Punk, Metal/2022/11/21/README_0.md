@@ -21,8 +21,7 @@ Skeletoon - They Never Say Die (2019) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:9AB65210D96061907E8EF0D6B96A4D43A2DC1768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ ANTIKLAN - Under Wetiko (Hymns from Beneath the Veil) (2022) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:E39D8F6569CE699352BEC1EB6A364958424764A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Slipknot - The End, So Far (2022) [FLAC|Lossless|image + .cue] <Alternative Meta
 ```bash
 magnet:?xt=urn:btih:EC349BA66DDE43DDD24D26101154CC1764C3867B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:C06491D926FB94BE54C5EBC512FF666AF9D218B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Orion's Reign - Scores Of War (2018) Japanese Edition, 2019, Radtone Music [FLAC
 ```bash
 magnet:?xt=urn:btih:1313D524D7E3C53077FF1DEFD33F1458A272EDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

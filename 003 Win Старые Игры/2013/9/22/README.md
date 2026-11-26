@@ -21,8 +21,7 @@ Alien Shooter: Начало вторжения- Бесконечная темн�
 ```bash
 magnet:?xt=urn:btih:672209C9C1A05367955E7712F154F6B3F561ED6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Need for Speed: Carbon (2006) [Ru/En] (1.2/1.4) License [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:B5AB5F750EF6C27D6B12D79391C3C6835F2F3AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

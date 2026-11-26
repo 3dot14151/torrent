@@ -22,8 +22,7 @@ Stan Meissner - Undertow (1992) Japanese Edition, 1-st press [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:EFAAF52C4072E536CEFA2FC0B842601074C1353F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sadus - Out for Blood (2006) Enhanced CD Edition [FLAC|Lossless|image + .cue] <T
 ```bash
 magnet:?xt=urn:btih:22C0B5D2AB0B38ECEA9814656DBE6DA7A3D40A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

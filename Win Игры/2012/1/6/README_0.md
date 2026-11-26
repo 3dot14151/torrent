@@ -19,8 +19,7 @@ White Haven Mysteries Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:4EED9C2C3537B2CB14296975C28AF4B88FAB9967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fear for Sale 2: Sunnyvale Story Collectors Edition / Страх на прода
 ```bash
 magnet:?xt=urn:btih:257B685CC061D00150450334B6FFFE3B68E5A23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enlightenus II: The Timeless Tower / Эстетика. Загадка часов
 ```bash
 magnet:?xt=urn:btih:CA6D799F1CEAFD0016323A5AF856055E66CEA8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Haunted Legends: The Queen of Spades. Collector's Edition / Байки Стар�
 ```bash
 magnet:?xt=urn:btih:442A86D1487116C42D7C98EB445C945AEBE7215A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Nancy Drew: Alibi In Ashes / Нэнси Дрю: Сгоревшее алиби [R
 ```bash
 magnet:?xt=urn:btih:5FAD58B8635869062441B81F8894E4771058FF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Legend: Hand of God / Legend: Легенда о Таргоне [Ru] (RePack/1.2)
 ```bash
 magnet:?xt=urn:btih:95FFF9281FF2A41DE868A660BB35A7C4CC56FFE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

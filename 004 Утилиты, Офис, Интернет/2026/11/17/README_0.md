@@ -19,8 +19,7 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:95A5C1AA94CF0A02355394DF70E0260CEDD6FCF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Xtreme Download Manager ускоряет загрузки, восстанавл�
 ```bash
 magnet:?xt=urn:btih:47B9505FF156715A6FBBDB3E86538AB7E2AB49FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Multron Win Cleaner — это комплексный пакет для обсл
 ```bash
 magnet:?xt=urn:btih:B4666DC72FEEE3DF51E22239C7F0D204DFDC1CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:3FC9B4EE9379E4D3964A0097F633B43CAB347876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:9C3A7F2E9FE6E01A8F7CB1B0CBD97D1884F5E7A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ PrintMyFonts - бесплатная программа для печати и э
 ```bash
 magnet:?xt=urn:btih:DD9B32B06B35A867BD36A5042572DB5E2420572A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:C9E75553BFB2C082AB248A682BE8977CD70ABC6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ OCCT 17.1.12 Portable [En]
 ```bash
 magnet:?xt=urn:btih:543EFD04F7AC8C8E4436C83128F1A2632DE4F068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:13206699BD68D85EDBCA5DC99BE2FC9D521F1B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:9FE07C6C6F6ADDB601444DA0F728DF90F6D68B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ r3dfox — это форк веб-браузера с открытым исхо�
 ```bash
 magnet:?xt=urn:btih:4BCF3727B07B6586A946DF29EBBF87FA93E7D5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ WinScript — это лёгкий и простой в использовани�
 ```bash
 magnet:?xt=urn:btih:B42F83F29E6A570B179F53309A8213039AD43416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ OnionHop V3 — это современное кроссплатформенно
 ```bash
 magnet:?xt=urn:btih:9499D380B5F69B224508A3218FD54A77EC1D0061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:2784D0402AFCAC89260F40B64DB3A0FCEE9AC334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:DCD07A9B4D52AA175C0684B85A183FA2D4173F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Kalmuri не имеет встроенного редактора изображ
 ```bash
 magnet:?xt=urn:btih:2C5832882B387124AB2EA63DB5B83B6827C64BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Comfort Keys улучшает общее удобство Windows и помог�
 ```bash
 magnet:?xt=urn:btih:0B698735516628456EC319C6356A2E2ED6A42320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ OpenNetMeter поможет вам точно понять, как исполь�
 ```bash
 magnet:?xt=urn:btih:BB54B22F252C3717EAB563875932FB8171876A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ Fan Control – свободно распространяемый продукт
 ```bash
 magnet:?xt=urn:btih:987AF81F35352F431C7669BF15A710685F121AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ FileZilla Pro управляет всеми вашими передачами, �
 ```bash
 magnet:?xt=urn:btih:79410EDF74997FE9D8FFCDEDD2B9F1D0AB9DCF5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:93A4577019404F4322AD1F24C682CC26C6B3DFC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:79F326EA314B233174859F3F0367645B9FB8AB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12EE00F8B09597A6FD0463670748A0585A7F3C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +607,7 @@ Microsoft Activation Scripts (MAS) 3.14 portable [En]
 ```bash
 magnet:?xt=urn:btih:91507DA7721F0134B942D31AE36614B6E5E8BAB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

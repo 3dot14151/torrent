@@ -19,8 +19,7 @@ Unreal Tournament [En] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:6C1724901F2B6D24D6F9511034F796CA2C1255CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shogun: Total War — компьютерная игра, положившая н
 ```bash
 magnet:?xt=urn:btih:FEEB401D6B98E2C76A3681690AAC43536452343E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Atrox - стратегия в реальном времени. Поразите�
 ```bash
 magnet:?xt=urn:btih:6DA2BE8A11B0B77483866E1FEF153B15C9B4BC09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Leviathan - At Long Last, Progress Stopped To Follow (2011) [MP3|320 kbps]<Power
 ```bash
 magnet:?xt=urn:btih:8BB8314B76361196F9FD6A207A3361F3E37A30D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Trendkill Method - Affective Arousal (2011) [FLAC|Lossless]<Melodic Death/Groove
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Amberian Dawn - The Best Of (2011) [MP3|320 kbps]<Symphonic Operatic Power Metal
 ```bash
 magnet:?xt=urn:btih:CF974B43F5A33B0642DA566430142D2B6FF784FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Heavens Edge - Heavens Edge (1990) Remastered /2010, Rock Candy Records/[FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Three Dog Night - Joy to the World: Their Greatest Hits (1975) [MP3|320 kbps]<Ro
 ```bash
 magnet:?xt=urn:btih:71CFF481C80684205A7396674D4E9EFD09A36EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Richard Wright - 3 Альбома (1978-1996) [MP3|320 kbps]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ CD- 1
 ```bash
 magnet:?xt=urn:btih:14AE1D60743FCB60473FF6557A81BF974DE92977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

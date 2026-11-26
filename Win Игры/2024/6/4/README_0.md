@@ -19,8 +19,7 @@ Night of the Dead - выживастик от третьего лица в от�
 ```bash
 magnet:?xt=urn:btih:D0C6EA15841931B4F378C29E0988209F7D9495A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Titanfall 2 - соревновательный экшен с видом от п�
 ```bash
 magnet:?xt=urn:btih:821256A5B3CFCBFA92E13BCF25867897F28FA47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crysis Remastered - Вы суперсолдат Пророк, облаченны
 ```bash
 magnet:?xt=urn:btih:5BFA43CCACA4C1B448CA9DA021144136A41EEE8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wizardry: Proving Grounds of the Mad Overlord - это полный 3D-риме�
 ```bash
 magnet:?xt=urn:btih:E3C8D55B98E84308CC18320190176811427CF61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Vendir: Plague of Lies погружает игроков в мир, наполн
 ```bash
 magnet:?xt=urn:btih:8B14207994812E19AE9054CC6F2256A12EB29F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Morbid: The Lords of Ire - продолжение игры Morbid: The Seven Aco
 ```bash
 magnet:?xt=urn:btih:4823C8D5AAB49DF5D8C05331664808ACBDC136B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Violet погружает вас в замок с привидениями, ат
 ```bash
 magnet:?xt=urn:btih:AED4027227063548234CAE5DE3EAF72A781A5F42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Die by the Blade является специфическим гибридом э
 ```bash
 magnet:?xt=urn:btih:80DD295C51FDECDF63F9C50E6383F9BE4FFB989C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Quake - легендарный научно-фантастический шут�
 ```bash
 magnet:?xt=urn:btih:A51251EA7B8849E01D36FEA70C9C448406F81761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ INDUSTRIA – шутер от первого лица, который перен
 ```bash
 magnet:?xt=urn:btih:66F7DF9E069A66F2EB398D809622CF3343B46B99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Rainbow Cotton возвращается! Легендарная ведьма К�
 ```bash
 magnet:?xt=urn:btih:A909F4DA3D7639B58318F752425636B01FC3CBC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D6A551CBE90AABA73EFFC06EBAD8F2DB60C69259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

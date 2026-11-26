@@ -19,8 +19,7 @@ Far West / Дальний Запад [Ru] (L/1.01) 2002
 ```bash
 magnet:?xt=urn:btih:D9DF73647136FD579FA28F4A05BF8073585A98D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Jane's Combat Simulations: USAF [Ru] (P) 1999
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

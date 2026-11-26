@@ -19,8 +19,7 @@ SiN - футуристический шутер о борьбе бравого �
 ```bash
 magnet:?xt=urn:btih:DB69094D409C714A4B90BA3E645D791059DD3FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ UNDETECTED (2022) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:12495A9E547A2EF4478F5A688A3D4310699A3DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jack Move (2022) [Ru/Multi] (1.0.5-118) License GOG
 ```bash
 magnet:?xt=urn:btih:FA869B66EF91C724596675470E716C8980EEB6EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Left to Survive бесплатный многопользовательский 
 ```bash
 magnet:?xt=urn:btih:6235E90B2944C0784C57A50C9388FAA0B70628AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SURI: The Seventh Note - ритмический платформер о дево
 ```bash
 magnet:?xt=urn:btih:A841C480DFBC214BBCD451F0F69CD8FE193BA2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Queen's Domain - ролевая игра с боями в реальном вр�
 ```bash
 magnet:?xt=urn:btih:8E89A356101ADA681977B874A7E5532FC7E90918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Wolf Among Us Remastered - это обновлённая версия ку
 ```bash
 magnet:?xt=urn:btih:F003565AE5CA5CB29D16DBAD6D7CFABE7D6C6887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Stygian: Outer Gods (2025) [Ru/Multi] (05b68d5f) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9D137D0BFBCD7856B45E4FE159F347472D7D5C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ DREAMOUT (2025) [Ru/Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:B5BB2E3BD75F94AD8690C65217062A916585A4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Megabonk (2025) [Ru/Multi] (1.0.19) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5248FAC116FFBCDF32811CA064B0FDB4E80763F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PixelJunk Eden 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:71A14BFBFA19AD728D92BD7DF598CF84687C7197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Angeline Era - это трехмерное приключение, в котор
 ```bash
 magnet:?xt=urn:btih:889471139F9DD0ED481B697B0583181B041DB170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Other s [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:CA6C7964A7054F8C8BC7A93A08B761C5E904B779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Terra Invicta (2022) [Ru/Multi] (1.0.25) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9776F118535C0AB874D4D66A103CB47F1B2C5DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Terra Invicta (2022) [Ru/Multi] (1.0.25) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:CB5EAC9866415D69B8C9D5129F602D0A347B942C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Gruniożerca Trilogy - это переизданная компиляция тр
 ```bash
 magnet:?xt=urn:btih:796A4BD5714DA33996EC6A15EB6AE19A51489258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ qomp - это игра, в которой вы играете роль пикс�
 ```bash
 magnet:?xt=urn:btih:D1B9DD7E7C2BF64D6AC58DF0A0F8EA1DFED0A6FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

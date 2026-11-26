@@ -22,8 +22,7 @@ Gabriel and The Apocalypse - Alpha Bionic (2019) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:2672FD1B74CF9FCFE8958EF4F5E75E91788EA6F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brymir - Wings of Fire (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:10688B0104B358864CF4B1037B82669173B64C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C643410EEEBE54E69F2EBB23C635F1ABAB956B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rammstein - Live Aus Berlin (1999) Reissue, 2014, ООО «Юниверсал М
 ```bash
 magnet:?xt=urn:btih:07108BC6D8CD6F39B8F0889A2973F7B53C46166E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

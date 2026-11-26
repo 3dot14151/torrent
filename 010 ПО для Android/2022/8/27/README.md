@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:67FCC7FEFCD8478B3BC14ACCD3003152D0E5E59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Endel создаёт адаптивные звуковые фоны, помог�
 ```bash
 magnet:?xt=urn:btih:27D178E1A284B11E3AC183F1C32A099E50B78491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Ear Scout: Super Hearing 1.4.7 [Ru]
 ```bash
 magnet:?xt=urn:btih:66B4A2A8264892F50C578E6897235288A14B1262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Call Log Analytics 2.1.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:EE6E92E91F32F8DADCA419A0E7DBF1978F09AE5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Electronics Database v2.36 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E155539727F2FF479D2651AC93511F23E63B7009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Learn English - 6000 Essential Words 4.1.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:2042236FA0A9B200FC97B9F4CD86F9A255DDCCB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ AntiBAG Тахограф 2.0.108 [Ru]
 ```bash
 magnet:?xt=urn:btih:D841DC156CAE2B20CDAB042C59D4B585ECA18F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

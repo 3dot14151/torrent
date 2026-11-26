@@ -27,8 +27,7 @@ Bob James & Hilary James - Christmas Eyes (2008) [FLAC|Lossless]<Vocal Jazz, Smo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Downplay - The Human Condition [EP] (2012) [MP3|320 кб/с]<Alt. Rock / Hard Ro
 ```bash
 magnet:?xt=urn:btih:208E90B1FF48564A25F660A6802514E85AE9FFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ VA - Новогодний Расколбас Радио Rеcord (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:F09B4C4BF911D5793D0E9BC571BFB06A891E5FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50B3DC037866E3A122774122689519E5AFA314EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ New year wallpapers 2013 (23.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:C463148CB18B75A53513851325DD55103B40C1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ VA-New Age Style - Christmas Chill (2011) [MP3|320 кб/с]<New age, Chillout, I
 ```bash
 magnet:?xt=urn:btih:25FD509D450D49B8D49110AFA9A4E363EB10422F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ VA - Песни для души (2012) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:5C66601CE98C90AC3F9FF02DE50D6517FFEC7888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ VA - USA Billboard Top 100 (2012) [MP3|256 кб/с]<Club, Pop, Dance, R&B>
 ```bash
 magnet:?xt=urn:btih:65C3A6BC02D54AAAD2D5E34811B9B82177B9F746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ NG: Ирод. По ту сторону мифа / Herod. Behind the Myth (2005) 
 ```bash
 magnet:?xt=urn:btih:C4B9CE71D006B535617BC8FE9FFFDC808DBBB735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F676AFC27C63E1AE65C04BF2E7EEDBF1910FEE6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ New year wallpapers 2013 (24.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E3038658F43C34100955DA353B9842BB136F8352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36197E169A0D0B009AE0906B8358F676D3A47CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ Space Wallpapers (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:65C2538C05F3721B310BDBAB8CA5E0094FF25346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Winter Wallpapers (24.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6B70E9D05ABD20E94713FD0AEEC94D6FF88858D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ VA - Rare Groove Moods: Chillout Lounge Bootleg Classics Vol.1 (2012) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:016726E05C3FBBCE33E37CED0CCB04C33241B8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ Deitra Farr - 2 Альбома (1997, 2005) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:27C638445EF08A0A7FDA009E34EA872B95260198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ VA - Новогодний подарок от Взрослого Радио (201
 ```bash
 magnet:?xt=urn:btih:483762723C0C59A00BF8810765AA23AEDACE9EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4833818A037F5CBD04A0AD6C46EA135B0C67C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ VA - Хитовый Запах Нового года (2012) [MP3|256 кб/с]<Р
 ```bash
 magnet:?xt=urn:btih:0373D2C85DBF31F2BFFEC97966BC600A834D7088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C125D2811B1E5CF33C495319C47C643E96567458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ James Newton Howard - Blood Diamond / Кровавый Алмаз (2006) [MP3|12
 ```bash
 magnet:?xt=urn:btih:929F27E0604721EFDDF5F2CC34069608329AC024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +660,7 @@ VA - So Fresh: Songs For Christmas 2012 (2 CD) (2012) [MP3|320 кб/с]<Holiday,
 ```bash
 magnet:?xt=urn:btih:9A5208771003BD6F1446E5BD2FDAC4AB689208D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E97DEA3CC1F51A41F16A969FF63CE299D07F5794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:26F258802FCABD1876E70CB04572ACDB92F53C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ VA - Новогодняя дискотека. Версия 50/50 (2012)[MP3|256�
 ```bash
 magnet:?xt=urn:btih:CEDD43699DB42105C7FA50EF2624CBFC8D64BB9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D5FF58F2D471F45A47971BD2FDFFD12877BBBD47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wolfchant - Echoes of a Time Once Past (2026) [FLAC|Lossless|WEB-DL|tracks] <Pag
 ```bash
 magnet:?xt=urn:btih:260FF9FAC92F9488566C97A3B6C0C0F1C70F4196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Unchosen Ones - Divine Power Flowing (2026) [FLAC|Lossless|WEB-DL|tracks] <Melod
 ```bash
 magnet:?xt=urn:btih:C7D4D3D1008F85889BBE410F832EBF6047A2F966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D96079A4A29260572730BD0BDB200558DC655D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Every King Has A Clown - Every King Has A Clown (2026) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:248F6662FC52F78DA2B60B639BC0BBFE5906A955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

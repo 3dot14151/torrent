@@ -28,8 +28,7 @@ Stormhunter - Crime and Punishment (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:81EBE49F35ABE2FB7DCD9A155D03CB8E15CFA744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Carlos Santana - Ultimate Santana (2007) [APE|Lossless]<Rock, Blues Rock, Latin 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Suzi Quatro - In The Spotlight (2011) [MP3|192-320 kbps]<Рок>
 ```bash
 magnet:?xt=urn:btih:94F9D1D18EF49785C8CD0661D81E93A8D54B2ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Megadeth - Greatest Hits: Back To The Start (2005) [FLAC|Lossless|tracks + .cue]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

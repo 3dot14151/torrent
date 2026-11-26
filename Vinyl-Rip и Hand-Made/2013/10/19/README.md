@@ -27,8 +27,7 @@ B5. Afterglow :: 04:08Жанр: Art Rock, Prog RockФормат: Vinyl, LP, Albu
 ```bash
 magnet:?xt=urn:btih:1DC983DDF5F8A143C8507D8B39C444B2E3A555B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ B4. Los Endos :: 05:50Жанр: Art Rock, Prog RockФормат: Vinyl, LP, Albu
 ```bash
 magnet:?xt=urn:btih:5EADB3E62B2291586F21630C6AA4F8A108A49BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ B2. The Knife :: 09:46Жанр: Art Rock, Prog RockФормат: Vinyl, LP, Albu
 ```bash
 magnet:?xt=urn:btih:7A0C9E8E258C7904596C14EE0AF86811F62DCA18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ B3. The Cinema Show/Aisle Of Plenty :: 12:48Жанр: Art Rock, Prog RockФор�
 ```bash
 magnet:?xt=urn:btih:7EAB6DEFB385441C2A9D031093FD054DFC6F533A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ B2-3		 Ikhnaton And Itsacon And Their Band Of Merry-Men(   Читать даль
 ```bash
 magnet:?xt=urn:btih:53378E7BEBE6DA6F4DFA091D82C24DFB529FD578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

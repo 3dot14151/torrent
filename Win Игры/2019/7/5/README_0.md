@@ -19,8 +19,7 @@ Dusk вновь вводит вас в мир, в котором нужно ов
 ```bash
 magnet:?xt=urn:btih:1943D5F092CEA1B4B2E0AB1157A3596974945395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

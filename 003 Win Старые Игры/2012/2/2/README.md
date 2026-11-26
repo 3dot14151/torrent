@@ -19,8 +19,7 @@ Warcraft III: The Frozen Throne (от англ. warcraft — военное ре
 ```bash
 magnet:?xt=urn:btih:E9D04E7023689A746AB4BB54A71C3CCEA4B7E878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pariah / Pariah: Изгой [Ru] (RePack/1.078) 2005
 ```bash
 magnet:?xt=urn:btih:4D98E8C5D0D46F561E8E4F7D63AABE8EE6EE42A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resident Evil 4 [Multi5\+] (RePack) 2007 | R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:2ABD28ADDADBD9C1156337F5C5FBEB023585A493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Pariah / Pariah: Изгой [Ru/En] (Repack) 2005 | Sash HD
 ```bash
 magnet:?xt=urn:btih:73893B9862E3E34E1A962AAB7023350F6599F03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

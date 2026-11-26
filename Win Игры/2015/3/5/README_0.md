@@ -19,8 +19,7 @@ Redemption Cemetery 6: The Island of the Lost (2015) [En] Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:C2B409BC11FB4CF0FF0708F9E7616CB6782C9093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blue Tear / Голубая Cлеза (2014) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:497384D0B9E445B3C926ABE626DDFCC0C9CCC797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Otherworld 3: Shades of Fall / Другой мир: Оттенки осени (2
 ```bash
 magnet:?xt=urn:btih:06282A410D24BE8026CC141D38C24A96F8BD80C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Prototype (2009) [Ru/En] (1.0.0.1) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:FD26596B02E0A0F8A73CA4AE2604C5BC7627E44B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Prototype 2 (2012) [Ru/En] (1.0.0/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:DA90E740291F616DF6837A4F7650161A30D6ED9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

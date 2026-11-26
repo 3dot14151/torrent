@@ -22,8 +22,7 @@ Monolithe - французская дум-метал группа из Пари�
 ```bash
 magnet:?xt=urn:btih:F77303944793AC3C4728A474A9E388BF62BB8A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

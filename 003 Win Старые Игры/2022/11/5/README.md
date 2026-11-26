@@ -19,8 +19,7 @@ The Hell 2 - это тотальная модификация Diablo: HellFire, 
 ```bash
 magnet:?xt=urn:btih:7FA41C7236BC55ECD4188533823B484B32E5D0EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

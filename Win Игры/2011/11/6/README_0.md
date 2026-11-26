@@ -19,8 +19,7 @@ Mahjong: Legacy of Toltecs (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:38479BB01FE1D243F0B6A3E43F03D3C75E7239DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Campfire Legends: The Last Act Premium Edition / Страшилки у кост�
 ```bash
 magnet:?xt=urn:btih:98A7735A4F52B6A058E48DA065A8A43795CE7443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sonderfahrzeug-Simulator 2012 (P) [Ge] 2011
 ```bash
 magnet:?xt=urn:btih:F4FF22A068BDAE073788E51745C532CCC733A34F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4519EFDF1B307EE0FA16451457158DF5915E8EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Call of Duty: Modern Warfare 2 [Ru] (Rip) 2009 | z10yded
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

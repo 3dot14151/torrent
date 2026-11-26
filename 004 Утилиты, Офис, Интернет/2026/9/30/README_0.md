@@ -21,8 +21,7 @@ PE-DESIGN — мощное программное решение для созд
 ```bash
 magnet:?xt=urn:btih:9387B533561207B33662138C2D129004BECAD4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Vivaldi — это многофункциональный интернет-бр�
 ```bash
 magnet:?xt=urn:btih:AEBB45E2E14CEF5ACF6D1C517A988F49EE7E26C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ MAX Desktop 26.34.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:530E204D7330EE5825133BC413A63D676325EC4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D4830B2C331D059E5C32EA6DFC00C7AC9E0F6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ HWiNFO – информационный инструмент, который с�
 ```bash
 magnet:?xt=urn:btih:732E26AE5AFF5D9A1351F166337CA0183C0F67BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Wise Disk Cleaner 11.4.0.860 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B28C182DBCC6B961BCE55596092FA9F9BA2667C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ WinSnap - отличный многофункциональный инструм
 ```bash
 magnet:?xt=urn:btih:C627995B0FFBF3A4041D7D35D35454314BD4C027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Revo Uninstaller Pro 5.5.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6DF0B3CF5AF4E85E7DB67A8BC5EFBB21E57E20EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Antique Shop: Book of Souls Platinum Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E108C35DB8E33F65CCB8AB1BFF3A5DEA2C0E4D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enigmatis: The Mists of Ravenwood Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:747E00071D811E830149C1AED88B9F22B6A465E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ FEZ (2013) [Multi] (1.10) License THETA
 ```bash
 magnet:?xt=urn:btih:E46553256A3DF9F3FAD67C8123BAAC06CAC7B1C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Legends of the East: The Cobra's Eye Collector's Edition / Легенды вос
 ```bash
 magnet:?xt=urn:btih:D232E42AA64DE696F337874656E0E6702BB44FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Nihilumbra – классический инди-платформер, в кот
 ```bash
 magnet:?xt=urn:btih:848C46886570DF3F38A5A12F4BF45EC8FB90EC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Valdis Story: Abyssal City (2013) [En] (1.0) License WaLMaRT
 ```bash
 magnet:?xt=urn:btih:BF4726EAE9D8D78E81194515195E9CAC60DAB9A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Rise of Venice (2013) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:856700DCCFDF117E2D974D12850168AD0EB80EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ The Elder Scrolls V: Skyrim (2011) [Ru/En] (1.9.32.0.8 / 3 DLC) Repack a1chem1st
 ```bash
 magnet:?xt=urn:btih:DEA8F6F238688220DDD56AE6CFFCA41FF2B7A526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Covered Call - Impact (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7C3CF4F8E1FD3AA7EC4EAC9FE7412E8D8680FB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31AC957F145F6F948CC177C6B27699DA3C4F9B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Tales From The Mental Asylum Chapter 1: Mixed By Indecent Noise (2013) [MP3
 ```bash
 magnet:?xt=urn:btih:752A95867685C70D1F060067EF249BB92DC055D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Rush - Fly By Night (1975) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:75E90BA3448676ED78D8EA8353966826C7B1FF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Hour 1
 ```bash
 magnet:?xt=urn:btih:112B915ED70D2376D6F9BD950663B17F4E5125D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:B5572CAB2A22AB75AD2136B6A78870DF71A14D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:64742DA13730780DBAFF4DE810C98826ACB1659C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F55129459A03F9C1C7C3912CFE451DDD03A1C052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ VA - Extraordinary Chill Lounge Vol. 1-4 (2010-2013) [MP3|320 кб/с]<Lounge, D
 ```bash
 magnet:?xt=urn:btih:6B378EF5146E0DDA48CC8242E92D2FDA74000DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ VA - Ibiza Summer 2013 Anthems: Hard Dance (2013) [MP3|320 кб/с]<House, Hard 
 ```bash
 magnet:?xt=urn:btih:2BE5F91E037B8A04B5F91244303B996B57822630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ VA - Above In The Sky (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:0AD3154DF9A556770E03C042FEDF339392DD0A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:FB0AEF503FC00530FB40F77F480E2028A3E3A1EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ VA - Digitally Enhanced Volume Six (Mixed by Will Holland) (2013) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:38009FFFA0D7E864747184D9C0C54ADB1890AD22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ VA - JES - Unleash The Beat Vol. 2 (2013) [MP3|320 кб/с]<Trance ,  Progressiv
 ```bash
 magnet:?xt=urn:btih:BDA85B3C7181A959B60EAF1DFD0F58E3FDE777F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ VA - Chill Out Azure (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:BB6A99DB79FF3C4FB6F9DEE4BCF8D00926A5367A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ AndrewS - Waiting For Sun (2013) [MP3|256 кб/с]<Melodic Techno>
 ```bash
 magnet:?xt=urn:btih:175314EC042B26819F1D70755764A7FDECDEF981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:330A8DBA62086766A183FDF751CA052BF47233B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30FAF717B4A4B2663AD5768ABB582A9D1BA7E47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7D113733DA21B3D69CC0CBC0240C3C75A32DB93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ VA - Armada Trance, Vol. 6 (2009) [FLAC|Lossless]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:437E214AED85030E1AF87F43869379E25650A81A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +627,7 @@ Total Tattoo - английский журнал о татуировках. Вы
 ```bash
 magnet:?xt=urn:btih:458817770B7CF28184CC72F5AA8CB8847777962A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ Glary Utilities Pro - функциональный набор системных
 ```bash
 magnet:?xt=urn:btih:DAFDC1EE4F40372939BB1651B2698058E1CB4ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ VA - Drum & Bass Arena Summer Selection 2013 (2013) [MP3|320 кб/с]<Drum & Bas
 ```bash
 magnet:?xt=urn:btih:959F7EAFFA64DE9D6309C0009E2320E84DE8238A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ Spective – Skipping Stones EP (2013) [FLAC|Lossless]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1B585D3B46A63ED75AD4B433ACB6C234E3EA765C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0602B07FFE99BA05B6E48603D13FF6C615EBB11A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +770,7 @@ Wise Disk Cleaner 7.88 build 558 Portable by Baltagy [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8714CE5D5246271396EF1906A74AC95DBBAB66F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

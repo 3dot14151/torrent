@@ -19,8 +19,7 @@ Photo Editor by Aviary Premium 4.5.5 [Rus] - Фоторедактор
 ```bash
 magnet:?xt=urn:btih:B91B2A46D7703865C13ED6A4268083F164D9E2FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

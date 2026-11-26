@@ -26,8 +26,7 @@ Arakain - Legendy (1995) [FLAC|Lossless]<Thrash/Power Metal>
 ```bash
 magnet:?xt=urn:btih:F6C48D5A68F5D27AAF3FAFFB92ABDEBD240A0AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Taproban - Strigma (2013) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:DD409300EA0F62FE672D0C7585D219B9C24B60BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Arakain - S.O.S (1996) [FLAC|Lossless]<Thrash/Power Metal>
 ```bash
 magnet:?xt=urn:btih:01310286894B3BE69E0254455B82078C11C59166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Guitar, Flute, Alto Saxophone, Lead Vocals – Dieter Roesberg(   Читать �
 ```bash
 magnet:?xt=urn:btih:6426BD548688A40D24BDEAD3E18E345495913BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Animal Alpha - Pheromones (2005) [MP3|192 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:ED3B6E5B29AFB158AEC9DD1382545B0373390EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Anthem of the Sun - I Came to Rock (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9996807430F7102175BA10C20EB137F668E9D53B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ N.Tesla - Lux Manifesto (2014) [MP3|320 кб/с]<Post-Hardcore, Experimental>
 ```bash
 magnet:?xt=urn:btih:C600243FEFB89BB4AA0041D89DC97D30DB3C063D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Amoral - Fallen Leaves & Dead Sparrows (2014) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:D7777B91BE92F760A17508903F3C9A1A34888C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +285,7 @@ Sea Level - 5 Альбомов (1977-1980) Released /1997-2008/ [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:32DBA0F018395D7B5936FFE8E9731722E083554C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +319,7 @@ Green Day - Demolicious (2014) [FLAC|Lossless]<Alt. Rock, Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:9DD8F4C484B968005FB77B8BFC0C8D6D2D8093A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

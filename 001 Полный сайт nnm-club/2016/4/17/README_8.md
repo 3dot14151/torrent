@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3ECD2A3037B5BF8C74DD5E7AE133BE9CFE25BC6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7300A8866A2CCA83EA34EA0EDAF063E40FC18805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AD72870141D9C6421D58FB0E596C98CBA525E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65C435C49D98501A1BD3D8A2EB991A5AD00E3F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Game Tycoon 2 является сиквелом к первой игре в се
 ```bash
 magnet:?xt=urn:btih:4BA22C499E3ACDD057F6B1289C39DECDD884610F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1821FEC2981D2AFF0CC6F261D4560DDF50AD1FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ V-Ray — мощный инструмент визуализации, подде
 ```bash
 magnet:?xt=urn:btih:5513392A0BC31046F0D6A00892C0D39494CDC368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ PG-13Производство: Haoliners Animation League, КитайЖанр: �
 ```bash
 magnet:?xt=urn:btih:69F1FF71A9D6C9BCAAF3B3CC7F138D49A1837E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ VA - Digital Aerobic Music (2016) [MP3|320 кб/с] <Dance, Electro, House>
 ```bash
 magnet:?xt=urn:btih:8CAF49BEB869F8DE3B342E9806333C80F6D26CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29B4544B658BE83890E97C4D3EE228FE3CDB90C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.768.7023) License HI2U
 ```bash
 magnet:?xt=urn:btih:6C3488EEC1B992E0C5CED81BF9B944EAC6ED7CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02F028DA4E31E1C2D4F310D00404DF652569422D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EB4307C77FAB3B5C7F3B54D582BB397EC1BAFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Windows 10 Enterprise LTSB с обновлениями по апрель 2016 + 
 ```bash
 magnet:?xt=urn:btih:028A0B8CEC8152DA0A1DEF7F406B3462E6CD5C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ m0nkrus FAN v4.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:AA2705620F3D7D1D19928A74757E749EA2E7AAE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Undertale - эксклюзивная RPG для PC обошла по оценк�
 ```bash
 magnet:?xt=urn:btih:AA379258F2ABF8F2CC27B2BBD47BA1926E4EF3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Prey (2006) [Ru] (1.4) Repack/Mod seleZen
 ```bash
 magnet:?xt=urn:btih:94C97738AFAAD46C06BFE75034AD80A4305ED397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

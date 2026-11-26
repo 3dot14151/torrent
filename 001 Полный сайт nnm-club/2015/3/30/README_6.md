@@ -21,8 +21,7 @@ Geekbrains | Системное администрирование. Введен
 ```bash
 magnet:?xt=urn:btih:A79DCCC2750B7345FF710B50CE2AE097057CDF0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8550D60807E4B8BE9DB77BC35607FD754550D164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3DF0289C3B586044F46756BDB8F0BE376D16471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Shogun 2: Total War (2011) [Ru/En] (1.1.0/15dlc) Repack R.G. Catalyst [Gold Edit
 ```bash
 magnet:?xt=urn:btih:1426D16E121E19AE059327C064FD362312FB5CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40B5086892CD163762EA42ED387B6DCE4AEC899D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Spin Tires - симулятор внедорожного вождения тяж
 ```bash
 magnet:?xt=urn:btih:6CED9005BEE5A8902B6A40C33716426277E50079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

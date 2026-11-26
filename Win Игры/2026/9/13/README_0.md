@@ -19,8 +19,7 @@ Elemental: War of Magic - пошаговая стратегия с ролевы�
 ```bash
 magnet:?xt=urn:btih:0BE6BE8C53DC07070B49B211D7703649B55247F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Hand of Glory (2020-2026) [Multi] (2.3/6.0) License GOG [Антология]
 ```bash
 magnet:?xt=urn:btih:58AB48F3C3FCB90AA4F6033080919D7A625832E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Volkolak: The Will of Gods / Волколак: Воля Богов (2025) [Ru/En
 ```bash
 magnet:?xt=urn:btih:6E5CA6747BA66DE85ACE6C369CB5E7ED56A7F09F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Model Kit Shop Simulator - это игра о управлении магази�
 ```bash
 magnet:?xt=urn:btih:C07327FA0184CC916811AE3CF8AD734DC5A7FEBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

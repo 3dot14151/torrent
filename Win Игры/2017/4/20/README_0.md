@@ -19,8 +19,7 @@ Late Shift – криминальный FMV-триллер, рассказыва
 ```bash
 magnet:?xt=urn:btih:C50B30A3BA33451360B3D7F04683A767527756BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shiness The Lightning Kingdom (2017) [Multi] (1.0.8767.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:FE3D7B6AD67E642A65B5147B3F5C11DDDCE99F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

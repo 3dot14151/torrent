@@ -19,8 +19,7 @@ Staxel - творческая игра о фермерстве и жизни в 
 ```bash
 magnet:?xt=urn:btih:9664301124FF8412C2B37520E5464968086A5C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon Quest XI: Echoes of an Elusive Age (2018) [Ru/Multi] (1.0/dlc) Repack xat
 ```bash
 magnet:?xt=urn:btih:0F4CB91620C7911B29EF062773B2116DEA6BC304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Phoenix Point (2020) [Ru/Multi] (1.9.3/dlc) Repack xatab [Year One Edition]
 ```bash
 magnet:?xt=urn:btih:7AFCDCED633D5AEF1BE22C2DDC8012E705E7EA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9287D10D2DBDBC8F717B76F3645C73D681B9F55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Project Wingman — это экшен с боевыми полетами, в к�
 ```bash
 magnet:?xt=urn:btih:F28E0C99316A06A9204261B61771E50BA4454E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

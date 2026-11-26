@@ -22,8 +22,7 @@ Nocturnus AD - Paradox (2019) [FLAC|Lossless|image + .cue] <Atmospheric, Death M
 ```bash
 magnet:?xt=urn:btih:CEA22602083463AD506B1C64EDBD2A58CC0BF66C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Parsifal - Mountain King (2020) [MP3|320 Kbps] <Epic Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:A099682935090383581CFBD716A7058C84934053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Estigma - Control Mental (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:6C6A9D61DC659AB3A9AE6D19C7316F2360757507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nothing But Thieves - Moral Panic (2020) [MP3|320 Kbps] <Alternative Rock, Indie
 ```bash
 magnet:?xt=urn:btih:557E7A0F2D71D2EE70A2A774D824A2BB32CFCC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Leaves' Eyes - The Last Viking (2020) 2CD [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:4FA570E718D12CE76E04C94F7A00CD54C8E9032F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Eisbrecher - Schicksalsmelodien (2020) [MP3|320 Kbps] <NDH, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:C434AAA64C29BE72AB7E001BB58C49DC09AD5ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:37A4300FCDA83C3C1D35758A3D56EDE452CADCAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84051F5D8323B625987B65D8201030C3C73F9184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Gorillaz - Song Machine, Season One: Strange Timez (2020) Japan Deluxe Edition [
 ```bash
 magnet:?xt=urn:btih:621EDF9D1D2DCA835F80279852FDAEA119503042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

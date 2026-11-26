@@ -19,8 +19,7 @@ n7player Music Player - представляет из себя музыкаль�
 ```bash
 magnet:?xt=urn:btih:35297136D3B8087B71F55C43ABA415D3720826C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

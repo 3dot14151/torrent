@@ -19,8 +19,7 @@ Pumpkin Jack — это дикая, но симпатичная 3D-игра, в 
 ```bash
 magnet:?xt=urn:btih:7980CE0580D11F350BE143313F402A136517DCC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:309858E113B14AB1F602338DDD3154A98C793F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

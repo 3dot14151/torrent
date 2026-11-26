@@ -22,8 +22,7 @@ Written-By – D. Gerard, H.R. Barnes, R. BernetЖанр: Pop/ChansonПродо�
 ```bash
 magnet:?xt=urn:btih:0AEE0E8208925C43244D34F399E72D0F17804CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. A Boat Lies Waiting (4:34)(   Читать дальше...   )Произво
 ```bash
 magnet:?xt=urn:btih:D2BDE3AB596AA4C8412E5D38A8415926E557351D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

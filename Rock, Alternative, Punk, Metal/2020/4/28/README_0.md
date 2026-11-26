@@ -22,8 +22,7 @@ Witherscape - The Northern Sanctuary (2016) [FLAC|Lossless|image + .cue] <Progre
 ```bash
 magnet:?xt=urn:btih:CD61C5B764D91D8573D5739BDEFEEB30BA7C9CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - NOW Acoustic Classics (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:9601CB1E7ADCAABFD63C7B889A59B614F28FAE4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Axel Rudi Pell - Sign Of The Times (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 ```bash
 magnet:?xt=urn:btih:D612A1E08AFB0BA41738F4A131598C25BB012752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Led Zeppelin ‎ - Mothership (2007) 2015, Warner Music [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:EAD895483C5B83EF4985302B425C3356D1BDBE06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

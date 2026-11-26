@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:783CF4043B6D52BB89D31FF3F80CB2F19ED95A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bigasoft Total Video Converter - мощный видеоконвертер, по
 ```bash
 magnet:?xt=urn:btih:B4E6793632BBB5B655DAD3579DB8F7E0536A5C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Summer Top Dance & Club (2013) [MP3|320 кб/с]<Club, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:A6812053FAB6852C2389C5FAD469CD86704AFA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B72D23C59A02E4C95A972EAC30B15C4A8467700E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ STAR - крошечный робот, напечатанный на 3D-прин�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ RonyaSoft CD DVD Label Maker - представляет собой програ�
 ```bash
 magnet:?xt=urn:btih:DBD7DD3B2F441FAF386E51E24BD858238B4D06A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:061087631AEB5EAC2B3365EF0E313BF7C9F66EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Marek Hemmann - Bittersweet (2013) [FLAC|Lossless|WEB-DL|FATCD09]<Tech House, El
 ```bash
 magnet:?xt=urn:btih:D2DAC5036C9901C0E30016E8E8651EA177AE5AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Clannad - Christ Church Cathedral (2013) [MP3|320 кб/с]<Folk, Celtic>
 ```bash
 magnet:?xt=urn:btih:96784EB39E96F5A2D19269D1F533CCD18101EAF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Beatz & Bobz Volume 3 (Mixed by Tayo) (2004) [FLAC|Lossless]<Breakbeat, Bre
 ```bash
 magnet:?xt=urn:btih:625BCB6C3C77861A9B40132C39E8C7EEC9CEEA4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ BT And Aqualung - Surrounded Remixes (2013) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:E8B31E8F55AA3E98B0FB87C99C000E8D0DBE9237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93185C928E681358971122DA1CB4912BAE0DC099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75E2307410327D7CE59F8DC07ABB9FA6C0ACB697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +393,7 @@ VA - Mixmag Pres: Never Say Never (Mixed By Sasha) - 2013 [FLAC|Lossless]<Tech H
 ```bash
 magnet:?xt=urn:btih:1F36ED2BD51F8002F2317DCEB9320A0F9AC9BFCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ Wise Disk Cleaner 7.91 Build 561 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B28E11DF2CD623595F1DBABDB38740FA002B6807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A007BE38D5E653219909E2FCCFDD155365F8FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:6A222C25A6EA64C5BEB484B34FD3DB4221B59865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +506,7 @@ ST - Пуленепробиваемый (2013) [FLAC|Lossless]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:F267406021E3B91A193D236051826332D036F0FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ ConvertXtoDVD - программа, предназначенная для пре
 ```bash
 magnet:?xt=urn:btih:E8FD7D45A17827CF83539B015A5F9F2584C9794C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BB9CE9AB23153AA8AA2531E7C29F99DC5AB17CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +583,7 @@ Lingobit Localizer - профессиональный инструмент дл�
 ```bash
 magnet:?xt=urn:btih:845F016705F7765BCE8DD26AE84E1DA0CB54E8EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +617,7 @@ VA - Country Planet. The Best of Country Music Vol.1-2 (1998, 1999) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:D7E38B7F0BB5A54E6C328E2ADFC6B3AAF27601D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D79A68C44CE38AE39541ECB35C0B9B334232881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DB827B2F1DB5DF5C730779D3EC6DE63DB52953E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +705,7 @@ Crown Orchestra - Golden Best Hits 14 (1968) [MP3|256 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:BA6345DC33260A4A1E748BB361BF744224BBCCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ Brian Auger - один из лучших представителей англи
 ```bash
 magnet:?xt=urn:btih:8F3161129701CE10EC96B2A6695AF55FDDBE55AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

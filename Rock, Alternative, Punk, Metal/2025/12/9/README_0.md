@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2BFD9DFA679169EBAA54F8BC513755C0E5A9A420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Imperial Mustard - Turn the Stone (2025) [MP3|320 Kbps] <Psychedelic, Krautr
 ```bash
 magnet:?xt=urn:btih:17F477C3BA29E6E7938B1D7C8EBBB23A9A9CA08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

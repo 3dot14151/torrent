@@ -20,8 +20,7 @@ Operation Flashpoint 2: Dragon Rising [Ru] (RePack) 2009 | UltraISO
 ```bash
 magnet:?xt=urn:btih:87265EEB88CA62FDD17DE8EEBAD2F7EB44662BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

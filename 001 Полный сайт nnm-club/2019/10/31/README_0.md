@@ -21,8 +21,7 @@ VA - Rock the Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
 ```bash
 magnet:?xt=urn:btih:F1B285E35FF03D65626B9FF64E5D0A298B9350E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Opera 64.0.3417.83 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B63B866BD1D9E837C3335EE60F851D7D82FFEA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Schnitt - Die Nacht der langen Messer (2011) [MP3|320 Kbps] <German Hip-Hop, Rap
 ```bash
 magnet:?xt=urn:btih:C272CBFC263BE13D172F7CC5D5C37EC86BA31BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B4EC78604FAF5C66567BC4696EFA34014936684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5B4326674039CA1B59FFD8E16C7F96B20C97D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Somnesia - Celestial Horizons (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 ```bash
 magnet:?xt=urn:btih:421AFB2ECEB7936E247BDB2EAE3C484D26B1B1EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Julio Iglesias - Fidele & 1100 Bel Air Place (1995) 1981 и 1984, Star Ltd. [FLA
 ```bash
 magnet:?xt=urn:btih:81AEFF323574BD998EEB9B78EA24D25E9B712DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Norma Jordan - Feel Me (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:E1BCECD1627F68B14690646699CCE9F57C3459EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Vivaldi 2.9.1705.31 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:34215AE1C3A0D970A2EB6E15CFBEAF1BE3306D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A715DDD68F5EB1E2840E15CF4A0C4779D12D5189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:996C705D9CD1783EDCC0B304A2B392BB358BB55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ MediaInfo — программа для получения подробной т
 ```bash
 magnet:?xt=urn:btih:2ED674138E5CCA96C2EF740B8ACC0EB555AE6474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3551B67B2ECF2A41DF717603D769C70A9F38EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Screenflick  - Приложение для захвата и записи вид
 ```bash
 magnet:?xt=urn:btih:2B6837CA4BB9F900A69592B23E3DAB85A585D9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Or
 ```bash
 magnet:?xt=urn:btih:AE720EF135870865045E946B281F6BE7E749532F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Solarstone - . . . - - (2019) [FLAC|Lossless|WEB|tracks] <Trance, Progressive Tr
 ```bash
 magnet:?xt=urn:btih:FACFACB353DDE7DC783D3C45B5D4236BAED6C06C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:8FE4F776C22CE670D07D29A66446FBB8AF0F5527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Grids for Instagram - простая и удобная программа име
 ```bash
 magnet:?xt=urn:btih:C1336BBAF0A848DFB6CEE14A568AFE739B540F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Ultra Mood - Mystical Drop (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:00224E5FA7A16CA5671A76EAA0C13393AFE5E83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ PJ Harvey - All About Eve (2019) (Original Music) Soundtrack [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:43B6A3C91705974CBC043CB56172075C734E19DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C324A8BAE3B276288B232DC8E79B49389C9D286A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3243CDFE2A25DE6D4DCEC71EE34DF2E41383A732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ BlutEngel - Damokles (2019) [MP3|320 Kbps] <Darkwave, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:BDFE2BDECB5053C6E9530A64B37B09560693D73C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ Creepy Hollow - интересный и эффектный шаблон, с по
 ```bash
 magnet:?xt=urn:btih:EA9D4F63985050FADB32A6706C2BBA6E0EB9DDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D9ECB3BB76B30508B1B77C1BD4A61D383DB06E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F976B423CBBEDBFD671D755B94EE094E185CB338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

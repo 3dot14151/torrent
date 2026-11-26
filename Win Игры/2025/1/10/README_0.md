@@ -19,8 +19,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold 
 ```bash
 magnet:?xt=urn:btih:015BEC26E9344F8F8D0BEBA05C3059C7283B599F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CA970240B46A36FAF7AB663D29F2DCC03E7DAA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ My Summer Car – симулятор жизни финского, 19-тилет�
 ```bash
 magnet:?xt=urn:btih:5D517A3257135EDBDB44E9E7C0ABD28D96A79CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Per Aspera (2020) [Ru/Multi] (1.8.3.63441/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A1227E3F43599F08B9AFBF9EE505ADC65F8A226E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1074A1CF90483651A9301F340C7E69B0587C41FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Gestalt: Steam & Cinder - это метроидвания, вдохновлен�
 ```bash
 magnet:?xt=urn:btih:D54EF0871E72BF5DE88BD150B6E9EB75CB12C304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Farm Manager 2021 – игровой проект, который вновь г�
 ```bash
 magnet:?xt=urn:btih:3C28ACA114E204C9D633834846C9A25D0C1C8215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Duke Grabowski, Mighty Swashbuckler - это рисованный приключ
 ```bash
 magnet:?xt=urn:btih:698E668921D94D8FE35421D7B4E7CA232A14F9EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8B99221E5AE4ED3191C1FE91EA697D51847BB21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

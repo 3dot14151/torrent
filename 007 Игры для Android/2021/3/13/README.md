@@ -19,8 +19,7 @@ FIRST STRIKE – Первый удар - это захватывающий ст�
 ```bash
 magnet:?xt=urn:btih:13C4673E33B577E5F44F4AAE091C3725E76BFCB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

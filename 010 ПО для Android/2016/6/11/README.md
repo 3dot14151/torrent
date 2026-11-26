@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:45859DDF095C7F73A3E953976129D175C47ACC9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A560AADF72CE99504D91FCC67F9BCEF2E4981B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MyTV v2.0.0-beta+1244 [Ru] - приложение для просмотра ТВ
 ```bash
 magnet:?xt=urn:btih:BE068327C07D3C4B4032777C75B396E8B33969C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Paper Camera — интересная камера, которая делает 
 ```bash
 magnet:?xt=urn:btih:B9D975CD29FA1CC226A23B87FBD0E1F52BFE2B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

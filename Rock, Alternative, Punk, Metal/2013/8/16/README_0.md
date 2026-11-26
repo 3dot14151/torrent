@@ -27,8 +27,7 @@ Impalers - Power Behind The Throne (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B3A81B025F4E6D4EBFBCFC81B63CE070150B4D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Timeless Rage - Forecast (2013) EP [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:193591536E2220B136922EE20E75901442693B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ The Monolith Deathcult - Tetragrammaton (2013) [FLAC|Lossless]<Atmospheric Death
 ```bash
 magnet:?xt=urn:btih:186C20B94633EDB777CC36ECD742F02E5319E5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ End of Green - The Painstream (2013) Limited Edition [MP3|320 кб/с]<Doom Meta
 ```bash
 magnet:?xt=urn:btih:C90C61F5876F966BFDED45CECE9835F64846B215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Quaterna Requiem - 2 альбома (1994-2012) [FLAC|Lossless]<Prog Rock, Symph
 ```bash
 magnet:?xt=urn:btih:9C35AA789B70A2A1B3B260E4904E1C89ECB7C9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Anciients - Heart Of Oak (2013) [FLAC|Lossless]<Progressive Metal/Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:FC13938A5CC3E7ABFA3DAA128FE5CBA5E3626A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Caravan - Here Am I (2005) [FLAC|Lossless]<Prog Rock, Art Rock>
 ```bash
 magnet:?xt=urn:btih:A43346B12D1E16789B76E25D93CD248D4CC462B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ VA - Greatest Ever Punk & New Wave (2013) [MP3|320 кб/с]<Rock, New Wave, Punk
 ```bash
 magnet:?xt=urn:btih:A018D64F1A3F94B89CEC1260D23E43930F60166D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ Jeff Lynne & Friends - Every Little Thing (2010) [MP3|320 кб/с]<Rock, Pop-Roc
 ```bash
 magnet:?xt=urn:btih:225840AB1DBD3551C1A27E3C45483900122F7141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +320,7 @@ Jeff Lynne - Armchair Theatre (1990) Remastered, Japanese SHM CD /2013/ [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:F2D6AE78AC8616FC29425FB0A1A45FA7B978EEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ Fleshgod Apocalypse - Labyrinth (2013) [FLAC|Lossless]<Symphonic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C4F872B1573304568D13A531C10718A4BD1B55C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

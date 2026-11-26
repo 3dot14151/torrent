@@ -19,8 +19,7 @@ Dark Envoy объединяет классическую механику RPG с
 ```bash
 magnet:?xt=urn:btih:FFD60074843F59D0E53B28719BC1332A5E5EEA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Intravenous 2 погружает вас в мир жестоких интриг 
 ```bash
 magnet:?xt=urn:btih:8A10C0DB3CEE5D70F3C25971BFF56E8F8218F0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:07CBC10F95BB43D854C4F147CA4082BA4634F284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:EA2AF3B4D2DAE4F4DCDE7E53763D5B5451E96D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Echoes of Yi : Samsara - это мрачная игра в жанре боевы
 ```bash
 magnet:?xt=urn:btih:26C396029E4A6575D16A023F9F29135157469A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dying Light (2016) [Ru/En] (1.53.0/dlc) Repack Wanterlude [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:ABE59D47BB02192274EA762EC3B4CAC6B6850D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Witch Way ставит игрока во главе поселения, стол
 ```bash
 magnet:?xt=urn:btih:38A664301844A5781689C2F6AE395503C855C6D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Skully наделён силой волшебной глины и должен �
 ```bash
 magnet:?xt=urn:btih:E82B1E26B1688ABDA2CC51CB113C64910C9FBE79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Forgotten but Unbroken (2024) [Multi] (1.2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:6B0ECE16022429E1CD6C64C7433582DDBA4DAA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (0.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:01AEDA88302384F2B03574EBEC5A5EEC00F2BDD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl (2025) [Ru/Multi] (1.2) Repack dixen18 [Enha
 ```bash
 magnet:?xt=urn:btih:7FC95E02E7177D31CE79BA61FF2110813DB75851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Garden Path (2024) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:D2C6E6E5BEC9CC703CAB4CF714441C39DD66B9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Herdling - это новое приключение от Okomotive, создав
 ```bash
 magnet:?xt=urn:btih:76B4E433B48429B4C35BECDBDB3EECEAF37CA8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

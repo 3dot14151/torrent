@@ -19,8 +19,7 @@ Dracula: Love Kills. Collector's Edition / Дракула. Любовь убив
 ```bash
 magnet:?xt=urn:btih:1E6F83DFADF0CFF02B57AF3433F7ECBEAAA5DA3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Dead Money
 ```bash
 magnet:?xt=urn:btih:13ECE78EE9F0FA6EE492466C9509EB95DD5953A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

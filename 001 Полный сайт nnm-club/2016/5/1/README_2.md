@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:502BDA71CA92F86BC77BFE0958F3D9752E2E027C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ladies Of Soul - Live At The Ziggo Dome (2016)  [FLAC|Lossless|image + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:0ADF310D0C9D1889C609CAD2100DE12C28A7B027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA610A5C8AF3064209A604F548C57C7D116F2CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:5FE61308F5A1C11E930D4F3C09D13DB669EFB4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E9D968AC15890BCD26A76DA9A7305B110CB94C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEE43117022AF5F650DE30C96FF9A775A88E2077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Henry Jackman - Первый мститель Противостояние / Cap
 ```bash
 magnet:?xt=urn:btih:2312EABBB59485A65EDEC90C57AB4B258FB3824F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8E3EACF710079167E0A754742311EF574FD8FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C78B368C4B07622ED231CAB129CCF04525100279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ VA - Вспомним 90-2000 от Виталия 72 - 5 (2016) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:EC52D75F43AECA892E71FEEDA64DC185F11A372C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:202BA6B9A74DD1B65E292C8EB90B5BB1ED07A57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA0496F69F2C39330585018441851F9B33DC248D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Gateways - 2D-платформер, в котором снова обыгрыв�
 ```bash
 magnet:?xt=urn:btih:98CEFE7B5E9C62D1C1D47CA3B006A59FFD0254FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ABB961901B57F94A160C2464E5B5ECEAC686720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Connected / Подключенные (2015) WEBRip [H.264/720p-LQ] [Трейле
 ```bash
 magnet:?xt=urn:btih:1F31AAF54BB5E2C2A0CF7C958B5508E276CE0788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A120944821E4ADEF8268691E42A44F73A2B9D719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Henry Jackman - Первый Мститель Противостояние / Cap
 ```bash
 magnet:?xt=urn:btih:5E4F8E3D13120F8533C7823726593BA90E28B149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ SRWare Iron 50.0.2650.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:459C0480DCC9A8FE2A0CFF9E2BD9357E575DD783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ VA - Ministry of Sound: I Love RnB (2016) [MP3|320 кб/с] <R&B>
 ```bash
 magnet:?xt=urn:btih:0381569343B6B7E90AD1E512C0A2E6D6E5C1A02C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ Chaos Control: GTD organizer | To-Do List 1.0.2 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:0B3BFB57869004D0C638F810F9E6C8FBF0D87263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F31281C5AE8CC9BB5178C8B5770434EE5832843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4F7167674EEEFD3A74D249D9724508F0C58298E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ On My Own 2.1 [En]
 ```bash
 magnet:?xt=urn:btih:F03696E32C93CF71F9A8C59EC302A761BD99E671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Picture in Picture (PiP, картинка в картинке) - удобная 
 ```bash
 magnet:?xt=urn:btih:2A14497EF3013D5CA981F35C7A6130EAB44543B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ Gilisoft Video Editor 7.4.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1C6F428FB6FBF4989AAC02C2D6F6773ACCC155E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ VA - Вспомним 90-2000 включая XXI - от Виталия 72 - 6 (2
 ```bash
 magnet:?xt=urn:btih:2426DD3682D281C754777E9091F27A09F0B2BE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

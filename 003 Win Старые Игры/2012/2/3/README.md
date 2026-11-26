@@ -19,8 +19,7 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 ```bash
 magnet:?xt=urn:btih:1C1C32652E5837799A2B6733197ACC143DEA572B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35E244F5CA4AF1C470637C30CC06B012FED2737C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Innocent Until Caught и Innocent Until Caught: Guilty [En] (RePack) 1993-1995 |
 ```bash
 magnet:?xt=urn:btih:26064A5E2918B8F2299B3FBA45DC66B2EA70738B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

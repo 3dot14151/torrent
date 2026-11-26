@@ -22,8 +22,7 @@ VA - Beatport Trance Pack (05.12.) (2016) [MP3|320 Kbps] <Trance, Harmonic, Ener
 ```bash
 magnet:?xt=urn:btih:FE9767D1CF426423FD061B7667180FAA1F199095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Luxury Chillout Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:25B94B978959E94C884CF6478C8F2E669F977D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Slechtvalk - Falconry (2000) [APE|Lossless|image + .cue] <Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:A43E8A8B242ED20ADEF0494711A22DA51A850A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Sound of Now Vol.1: Relaxing Chill Out Sounds (2016) [MP3|320 Kbps] <Downte
 ```bash
 magnet:?xt=urn:btih:7B7E07D02D83F5E4B3EFD5D3C425335FFA15D5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Buck Clayton & Buddy Tate - Buck & Buddy (1960) 1992, Original Jazz Classics[FLA
 ```bash
 magnet:?xt=urn:btih:F36E33F7486E979144860F29C39788E8FCD52D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Electronic Downbeat Affairs Vol.1: Melancholic Moods for Smooth Chill Out (
 ```bash
 magnet:?xt=urn:btih:F155D557918377AEB56927FE99EFB772FA5C7939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Corporate Templates - Business Stationery 3.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AC34B36CA9DF95B3544987CD65D0FFE387B79592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Хит-Парад. Взрывной 50/50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:4EDCAE1CD0DB57F63A7B55FCF85EE5D673F34D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Slechtvalk - The War That Plagues The Lands (2002) [APE|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:473B373E89921C17FFCEEE613FD8BB59824D9ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Хит FM. Попсовая Соточка. Выпуск №7 (2016) [MP3|2
 ```bash
 magnet:?xt=urn:btih:AC8771E065E18CF7B140455A5334120C6A9579D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ VA - Горячий хитовый драйв - 9 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9C90FE9CF574616FB986ECD8ADB371BC98C62996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:647F5621BDE59C2EFA7018E9BF42790F1A5E93E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ VA - Сливки хит-парадов №3 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D899058DFAF4E8504D280A0160BA1E856158E61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ VA - Сотка модных хитов. Часть 7 (2016) [MP3|256 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:DABEB347760FDAB8F726D913C635D6EEDBCAEB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ VA - Хитовый драйв. Музыкальный заряд. Часть 7 
 ```bash
 magnet:?xt=urn:btih:52B181F3DB3B30CC96C804AA2376EC706C8277A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Morgart - Die Türme (2007) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:1600A71EA66ADE969FE64C425E71B1D3A2150F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AD8796D0F877962130DA42784E18CF0C208C113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3563FAB61A486ADB6AD3DD1CD30E140D1556EAF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ VA - Cinematic Chillout Collection (2016) [MP3|320 Kbps] <Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:4D64B440AF975E3A35AEF8185CC0DF02DD798E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ Carnal Grief - Out of Crippled Seeds (2004) [WavPack|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:11E6FE64681B4EFBFEAF509B210E45FF1E6BF01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ VA - На Радио Шансон. Убойные Хиты Версия №3 (20
 ```bash
 magnet:?xt=urn:btih:FF78A1ADEB5369384E4578E39979CBF72FFF4E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ VA - Аппетитные новинки зимних супер хитов (201
 ```bash
 magnet:?xt=urn:btih:AC167622286D493603EFA5780A7F3BAD2CAFC25C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ VA - 5 Years Of Drugstore Records (2016) [MP3|320 Kbps] <Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:074BF7F03527700F6695CFE1D6457FC771263A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ Slechtvalk - Thunder Of War (2005) [APE|Lossless|image + .cue] <Pagan Black Meta
 ```bash
 magnet:?xt=urn:btih:0218E10D7B635731B3CD3E48C133EF7397F17806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ VA - Создай движение. Заводная попса. Зарубеж�
 ```bash
 magnet:?xt=urn:btih:84DB049FA2E1EB911DF2AC41D8453731353B647B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ VA - Timeless Desires: Finest Chillout Music (2016) [MP3|320 Kbps] <Downtempo, C
 ```bash
 magnet:?xt=urn:btih:569CFDA507CF2C213D116833CEAF0D1555DC9B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

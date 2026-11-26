@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:16133C55CBEDFBE9F5D61DDC9B19BA10C995E493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Colaars - Wood Arsenal (EP) (2012) [MP3|320 кб/с]<Math Dance Indie Rock>
 ```bash
 magnet:?xt=urn:btih:B3311940A4586C40F5AF47DBC5990DBD82713B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Debauchery - Rockers & War (Limited Edition) (2009) [MP3|320 кб/с]<Melodic De
 ```bash
 magnet:?xt=urn:btih:CDB3C23D39DE024C2756775576B3A8A823F08F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Low-Pass - Trimurti (2012) [MP3|192 кб/с]<Instrumental Math Rock / Post-Rock>
 ```bash
 magnet:?xt=urn:btih:F48D64BD5DE772DBEC01B3CCE727A867B1243A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Shadowicon - Empire In Ruins (2011) [MP3|320 кб/с]<Symphonic Power Metal, Fem
 ```bash
 magnet:?xt=urn:btih:B55BB3B172E4BF0AD35E9A1CE670D183A7E7823F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Moonspell — португальская метал-группа, основан
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

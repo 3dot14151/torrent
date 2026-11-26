@@ -19,8 +19,7 @@ Auto Reply: автоответчик v6.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BD877CABE4700C4F4C4CE625932A06FC9EC82CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by Viktor24
 ```bash
 magnet:?xt=urn:btih:4B43DB2A0C8062507DD15127F84A805E2B4D28AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

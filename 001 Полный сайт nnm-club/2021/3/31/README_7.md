@@ -21,8 +21,7 @@ W.E.B - Jesus Heist (2008) [FLAC|Lossless|image + .cue] <Black Metal, Death Meta
 ```bash
 magnet:?xt=urn:btih:9C2E03B6ED92C4DE27752FA0FC6B6D67F9986AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ WinX DVD Copy Pro 3.9.2 Repack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FB54CDFB2D4ABF1A3E11CA3E012954A7AA4F341B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

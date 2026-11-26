@@ -19,8 +19,7 @@ Photoleap: Photo Editor / AI Art v1.63.2 Mod by 0x7d [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F676161606485DAD6B8087653237DACBF5F77842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AirBrush: ИИ Фоторедактор v7.4.505 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:24B6A69EDCCC599460701228B926ED79F291C205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

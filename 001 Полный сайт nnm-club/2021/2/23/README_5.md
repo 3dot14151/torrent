@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C01560FD2498335FF715376269B46FF2E01B2745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Medium (2021) [Ru/Multi] (1.0.182) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D1518A13EB0F23C507D48232A1A0E38595098D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

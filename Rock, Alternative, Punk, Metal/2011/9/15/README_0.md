@@ -28,8 +28,7 @@ Wolfpakk - Wolfpakk (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:8E9E14E2BFCE0ED50857B06D3B847077BCF4C35C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ J.R. Blackmore Group - Still Holding On (1990) [MP3|320 kbps]<Hard Rock/Heavy Me
 ```bash
 magnet:?xt=urn:btih:A695E7E422FD6510B1D20F1EA3F67EB7B0E4BB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Poison - Best Of Ballads & Blues (2003) [MP3|320 kbps]<Hard/Glam/Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B808A6398FFAB9EE2B61C8506D6DD5A226F6368F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ J.R. Blackmore - Between Darkness And Light (2006) [MP3|320 kbps]<Hard Rock/Heav
 ```bash
 magnet:?xt=urn:btih:57D14ACF6C13A64AC350FC26C33D339197B42AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Manowar - The Kingdom of Steel - The Very Best of (1999) [MP3|320 kbps]<Heavy Me
 ```bash
 magnet:?xt=urn:btih:EA5BEFB28342AD69E9B112AF06ECC761E98EA98A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ CD-1 Rock
 ```bash
 magnet:?xt=urn:btih:08EDF193397385266994477793D1AA64D1A4884F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:1BC22A826EBD00CA8D5739474E91BF299A3D7E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Country Joe and the Fish — американская рок-группа, об�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Twisted Sister - The Best Of Twisted Sister 1982-1990 (2005) [MP3|320 kbps]<Hard
 ```bash
 magnet:?xt=urn:btih:7190CC6E2D23D326F11D15847FBABFB872B5CD4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:B1333AB96A88D3E7F407100C4C6783CD665FD59C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +368,7 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:53096D1C7C9AF0C00AA1A2934702A0AAEC05DC1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +402,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:BB75C66E491E1A80569CD35517E18111D68612FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

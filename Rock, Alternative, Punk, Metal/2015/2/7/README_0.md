@@ -22,8 +22,7 @@ Into Orbit - Caverns (2014) [MP3|320 кб/с]<Atmospheric Post Metal, Post Rock,
 ```bash
 magnet:?xt=urn:btih:8514BA11AA57C45B768A62086FE4C422B601C531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Ohio Sky - The Big Distraction (2015) [MP3|320 кб/с]<Progressive, Space Rock>
 ```bash
 magnet:?xt=urn:btih:E3B2FF6857DF85326DC9ADD65FDC996322101356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ King of Asgard - 4 альбома (2010-2014) [FLAC|Lossless]<Melodic Death / Vi
 ```bash
 magnet:?xt=urn:btih:026977DE94DD210C0AA4F6BEF0CD1B0331FB8153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Jimi Hendrix - The Cry Of Love (1971) Remastered 2014 [MP3|320 кб/с]<Psychede
 ```bash
 magnet:?xt=urn:btih:38D5F44ECCF3B1B1C746BF4BF1225F445558A694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Winterage - The Harmonic Passage (2015) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:DA7ADE74BBF672597EABB3E1ED815950130C68C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Jimi Hendrix - Rainbow Bridge (1971) Remastered 2014 [MP3|320 кб/с]<Blues Roc
 ```bash
 magnet:?xt=urn:btih:17C239EDE02D5542DDA05BF548634D9B266A01D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Napalm Death - Apex Predator - Easy Meat (2015) Japanese Edition [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:1A4328E6993242B7F8694CD4476BF96F20AE6D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

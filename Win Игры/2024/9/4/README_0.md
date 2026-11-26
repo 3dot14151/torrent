@@ -19,8 +19,7 @@ Date Z - это визуальный роман, который сочетает
 ```bash
 magnet:?xt=urn:btih:A91CC3480D5F93A7DFFF1DDAB51988AA545D4227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wizardry: Proving Grounds of the Mad Overlord - это полный 3D-риме�
 ```bash
 magnet:?xt=urn:btih:45F7CD02ED2E86713DB3277A58CF7DF0D8CC052E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Scene FairLigh
 ```bash
 magnet:?xt=urn:btih:993FBC8963FD4ABCD0F6A93E1813BB22745B2788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:B69018E7C2E231BB320C7AE93164528DB67FF5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Monster Jam Showdown - гоночная игра, которая покажет 
 ```bash
 magnet:?xt=urn:btih:89191AB7917D740C8BFBF57ED8F4F61C8B05DBC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Akimbot (2024)[Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:473A994914DDED786D2F1AFBBBA54B35FD54D1CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sumerian Six - это не типичная военная история. Ко�
 ```bash
 magnet:?xt=urn:btih:88057B7A241F2EEBE59ABC094E35FA4366CFA2B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Blocky Farm (2024) [Ru/Multi] (20240830-5) License GOG
 ```bash
 magnet:?xt=urn:btih:98B54DAE495A0F4680E1B8526C24CABEE8DAB65B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Sunset Hills - это нарисованная от руки игра-голов
 ```bash
 magnet:?xt=urn:btih:06CA37C83119A9FBB094106846A395EAA4048A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Akimbot (2024)[Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB70C8C4BC132C96BAF76D9847D4C3357F214580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Sunset Hills - это нарисованная от руки игра-голов
 ```bash
 magnet:?xt=urn:btih:692F754DC5A9BE3D4BFA51EB846625A2EA19FF5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Foreigner - Inside Information (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 ```bash
 magnet:?xt=urn:btih:822ECB3340E14E6102E47DF3AA1A5400E5F4E39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ XWidget - платформа для персонализации и оптими
 ```bash
 magnet:?xt=urn:btih:27C3A0D4A5B44DF6DD930C41CDB8E41804C5942F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

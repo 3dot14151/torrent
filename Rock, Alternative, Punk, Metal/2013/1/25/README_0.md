@@ -28,8 +28,7 @@ Sons Of Aeon - Sons Of Aeon (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:DF7B67299A9E352B57AC198B728B5E0D5F8CC9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Pride Of Lions - The Destiny Stone (2004) Japanese Ed. [MP3|320 кб/с]<Melodic
 ```bash
 magnet:?xt=urn:btih:8D001FA5DEEBE32444CB8C50B232CA3329C11CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ A Loathing Requiem - Psalms of Misanthropy (2010) [WavPack|Lossless]<Technical D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Forgotten Tales - All The Sinners (Japan Edition) (2004) [WavPack|Lossless]<Powe
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Pink Cream 69 - Ceremonial (2013) [MP3|320 кб/с]<Hard Rock/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A8C6FFD8DB7183976C40F97D93A077CEE2841A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Love And Death - Between Here & Lost (2013) [FLAC|Lossless]<Nu Metal | Alt. Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Infant Annihilator - The Palpable Leprosy of Pollution (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:C1DA7862BC9026B72665E75B6B00133DE14A671B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

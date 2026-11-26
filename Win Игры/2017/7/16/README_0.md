@@ -19,8 +19,7 @@ Serial Cleaner (2017) [Ru/Multi] (1.0.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:300978DAD220269585F45F0F8669AC30D848FECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

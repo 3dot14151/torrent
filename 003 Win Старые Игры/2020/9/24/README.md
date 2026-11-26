@@ -19,8 +19,7 @@ Icewind Dale / Долина Ледяного Ветра (2001) [Ru/En] (1.42/dlc
 ```bash
 magnet:?xt=urn:btih:920BDF608B5273A8CC08A136335DB630B5861282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

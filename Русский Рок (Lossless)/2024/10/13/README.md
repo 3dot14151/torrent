@@ -22,8 +22,7 @@ Infornal FuckЪ - Музыка категории бэ (2024) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:EC393508DF651E28CC3522BEC47BA9502BFFBD7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

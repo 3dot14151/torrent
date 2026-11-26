@@ -19,8 +19,7 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 ```bash
 magnet:?xt=urn:btih:BF377F4CC96C6A149B9A20CA2FB4733A6108737C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

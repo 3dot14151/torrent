@@ -19,8 +19,7 @@ Dark City 7: International Intrigue (2022) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:8BE0B6811501DCDBFAFD511CC3CCB8BD046FFEC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HuniePop 2: Double Date (2021) [En] (1.1.0a) License GOG
 ```bash
 magnet:?xt=urn:btih:EB7C4D4D65DF296CBAB7887CA726BD903E1A11F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wolfstride – это ролевая игра, повествующая о по�
 ```bash
 magnet:?xt=urn:btih:41F379E548D4A7AC4A421000E1C5DAC56055AAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ They Always Run (2021) [Ru/Multi] (1.0.15.920) License GOG
 ```bash
 magnet:?xt=urn:btih:AEF97F51D23F5D08B83715663681FB78DA7AEAD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ LIMBO (2011) [Ru/Multi] (3.0.0.1a) License GOG
 ```bash
 magnet:?xt=urn:btih:1EF151CB551ABBE5A89A70254088707A854F39DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tangledeep – это RPG выполненная в стиле 16-битной �
 ```bash
 magnet:?xt=urn:btih:BA790ECDA5D7BD344364BECA4C17ED8279DABBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Autobahn Police Simulator 3 позволяет вам играть за офиц
 ```bash
 magnet:?xt=urn:btih:F1E549EDBA1D12CD84A5876B9C6B24F9611649F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.45) License GOG
 ```bash
 magnet:?xt=urn:btih:2CB1858A46D9BF850EBDD773D40B8CA7C81DD872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

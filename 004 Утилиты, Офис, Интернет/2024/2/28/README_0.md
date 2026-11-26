@@ -21,8 +21,7 @@ Ivideon Server 1.3.2 / Client 3.4.1 [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:2D26DC9DF83C5CA33F7678390166F30C7EAFC23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Cinebench 2024 - бенчмарк, позволяющий при помощи н
 ```bash
 magnet:?xt=urn:btih:972D378388D16E0007D2315B5B5C5BC88A680FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ MathType - это мощный интерактивный инструмент, 
 ```bash
 magnet:?xt=urn:btih:36BE3B4F68F9C58705AEE53B6D5A6FE8B194CB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

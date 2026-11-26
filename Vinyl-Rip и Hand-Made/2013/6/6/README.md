@@ -28,8 +28,7 @@ Sodom - 4 альбома (1987-2013) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Thras
 ```bash
 magnet:?xt=urn:btih:BD9039BB638D30BBFF5D4ECF4C76A43FB047AC79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Fortepiano – Раймондс Паулс(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:21718B481D4D88D8FE899D6754B3749DFA8077BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

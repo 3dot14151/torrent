@@ -26,8 +26,7 @@ Adagio - Archangels In Black (2009) [MP3|320 kbps]<Neoclassic Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:336C59E0A782B61E93EFA42C89AB205FAC3F2C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Medina - Gutter (2011) HDRip
 ```bash
 magnet:?xt=urn:btih:C20BA99600439C35450FC89C3730B6F49920FE9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ NG: Трагедия крокодилов парка Крюгера / The traged
 ```bash
 magnet:?xt=urn:btih:18E8D9DF903529246C7B52170B776F1B8B47ABC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Robin Guthrie - Emeralds (2011) [MP3|320 kbps]<Electronic,Ambient>
 ```bash
 magnet:?xt=urn:btih:4659F98E040C5024705D5EE8315C891A02C4E4C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ VA - Summer dance party (top 50 selected tracks) (2011) [MP3|320 kbps]<Pop,Dance
 ```bash
 magnet:?xt=urn:btih:D61FCE31EA6D5E8A1494DDDF71B726E0A0EB7325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - Популярная летняя соточка (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:B43C233F6C266048710315343ACF40CE422A8D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21D1C04B4F62AE66E6F5714EBA9ED242289097B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:249BE36189DA9B35969940F99AED8AFB00C0BD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Sirak - Ancient Armenian Duduk (2009) [MP3|320 kbps]<Instrumental, Duduk>
 ```bash
 magnet:?xt=urn:btih:DCEF744C96E403DC6B299017D20F4BA685711B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Дальнобой 9 (2011) [MP3|320 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:02BC80080560EFAD9BAA91BB680D19DFE3336169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61A73581172B78A25E4057C94C4BE5705AD6D408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ VA - Хит-парад 200 50/50 (2011) [MP3|128 kbps]<Поп>
 ```bash
 magnet:?xt=urn:btih:10CA76E83C598B5C8F5C0BC8E668C8E45BA7858E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ VA - Bar Lounge Classics: Late Night Edition (2009)
 ```bash
 magnet:?xt=urn:btih:3D8076EE1B8121CDDA174310BBF7F99D8707DE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C47D274E83D046FE481453C7C434DE1FED43F7B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E835D3FD0F21EEA956312B166CF6D6E6B937EB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ BBC: Мир природы. Во имя королевы / Natural World. For Qu
 ```bash
 magnet:?xt=urn:btih:68DE81E62B17DA64349086071496572DF3987050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F0EDCFBF3EBDF5A28F1E43CEA860BCA40E237F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Timeless: The Forgotten Town Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:600611C689E056ADCD40F0978EB5F0C2C6A16124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83C7BEC8FEA1FC6D8BEC131E8F837F2834726442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Tower Of Power - Tower Of Power 40th Anniversary (2011) [MP3|320 kbps]<Funk, Jaz
 ```bash
 magnet:?xt=urn:btih:C0B5E6AB4D8D03148883FA0445FA562E142370F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48996FEA3AAD816D89E6B2428D8349EC86114C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ save2pc - программа для загрузки и конвертирова
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDFFA440FCF7B2A53AAEA86A760A1F6A695F508D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7865DD0695D5E6C974001E5F252BE90400EF4821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ VA-Trance In Motion  vol.92 (2011) [MP3|320 kbps]<Trance, Vocal Trance, Progress
 ```bash
 magnet:?xt=urn:btih:4792BEA68EC248D7F22D1D80C2CADB2153721FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

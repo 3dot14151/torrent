@@ -19,8 +19,7 @@ Dead Reckoning 2: Brassfield Manor (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:61949BE6B5E48BAE3D667BBB5EE29B35AC574DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rise of the Triad - думаете проходной какой-нибудь ш
 ```bash
 magnet:?xt=urn:btih:D2AEE100CBE0D2D4C9D0B37EAA254148968399CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

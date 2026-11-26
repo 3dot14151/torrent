@@ -21,8 +21,7 @@ C++ AMP — разработанная корпорацией Microsoft техн
 ```bash
 magnet:?xt=urn:btih:146D4447E1FDCDFCE2BFBC69852C2C82A4E7C54D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

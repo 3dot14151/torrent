@@ -23,8 +23,7 @@ ZABAVA — это качественное телевидение и лучше�
 ```bash
 magnet:?xt=urn:btih:984713F4F2FA41524C02C726A24AD6A7ABD1FBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

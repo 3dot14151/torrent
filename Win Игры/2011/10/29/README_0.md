@@ -19,8 +19,7 @@ Secrets of the Past: Mothers Diary / Тайны прошлого: В поиск�
 ```bash
 magnet:?xt=urn:btih:356C26FECA05E6CF9E168DEFF29CDCC09C64CAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Marriage Fiction / Брачное Чтиво (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:00A77163B3EAA4B3C73CB1819BFE67D1D5BBDFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Twisted Lands: Shadow Town Collector's Edition / Гиблые земли. Гор
 ```bash
 magnet:?xt=urn:btih:C047967E6A97239459CBDBAF25FB78DDD4FFA9CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Back To The Future.The Game.Episode 5.OUTATIME является пятым и з
 ```bash
 magnet:?xt=urn:btih:CEE7FDE0489FD7F598B6E16042C59673E4F1B64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Drawn: Dark Flight / Нарисованный мир 2. Побег из тьмы
 ```bash
 magnet:?xt=urn:btih:4668D316B3BEA5C4000AFE9B95913E1237565EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D45A42783A61983DF2C3ECD2CEA02AD64DE06885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

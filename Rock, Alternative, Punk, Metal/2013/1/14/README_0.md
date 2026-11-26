@@ -22,8 +22,7 @@ Beach Fossils - Clash the Truth (2013) [MP3|320 Kbps] <Indie, Lo-Fi>
 ```bash
 magnet:?xt=urn:btih:7652AD9B18610FEA3E429E770C3B4823A8B00198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Kiss - Monster (2012) SHM-CD, Japanese Edition [MP3|320 кб/с]<Hard Rock, Glam
 ```bash
 magnet:?xt=urn:btih:955EF0FAA14548DFA17223226A64FA8845BE2028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Kiss - Monster (2012) SHM-CD, Japanese Edition [FLAC|Lossless]<Hard Rock, Glam R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Sting - 5 Альбомов (1997-2012) [MP3|192-320 kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:7F44F5C213B4442077D5F36AF793EEB757177E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Sex Pistols - 47 albums (1976-2008) Discography [MP3|112-320 kbps] <Punk>
 ```bash
 magnet:?xt=urn:btih:56E23F4BE2A7D38A9DB02DF00010B875D77785E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0AD90FDDC1352895DB6D64EC44BB358AA6D0A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Supertramp - 12 альбомов (1970-2002) неремастеры [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

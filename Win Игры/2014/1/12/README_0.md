@@ -19,8 +19,7 @@ Cruel Collections: The Any Wish Hotel (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F169BD65A3583BC7C9F07B51D02A862CB9BB6D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Giana Sisters: Twisted Dreams — это увлекательный и дина�
 ```bash
 magnet:?xt=urn:btih:A42230D2134B55710DE0236FAAC4E57D09E4F347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Freedom Fall (2014) [En] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:962A904210A156D625D957443B6636019A0D03BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

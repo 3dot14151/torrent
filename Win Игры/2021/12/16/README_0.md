@@ -19,8 +19,7 @@ Bridge to Another World 9: Christmas Flight (2021) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:D28A6435BF99A84FB17E4A9BF16FDDF232D33033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Firegirl: Hack 'n Splash Rescue (2021) [Ru/Multi] (1.017) License GOG
 ```bash
 magnet:?xt=urn:btih:883A164ABD163C77F20AB0A618B5F1308152847E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

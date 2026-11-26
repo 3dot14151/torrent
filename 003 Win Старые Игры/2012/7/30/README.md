@@ -19,8 +19,7 @@ BSE Bomber / Бешеные Бурёнки [Ru] (L) 2001
 ```bash
 magnet:?xt=urn:btih:DCA1A4476ED1AFC7A9500E3135FA4E9668B9430E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Dark Messiah of Might and Magic — ролевая игра нового пок�
 ```bash
 magnet:?xt=urn:btih:305A90CE9E3848973EB3FF5E4752EBFD692814B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

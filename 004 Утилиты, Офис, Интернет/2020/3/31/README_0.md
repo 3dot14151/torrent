@@ -19,8 +19,7 @@ Movavi PDF Editor - поможет если не знаете, чем откры
 ```bash
 magnet:?xt=urn:btih:94B644C2DD78F9C369779C9C61D234FC1611493D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Winzip Driver Updater - программное решение, предназн�
 ```bash
 magnet:?xt=urn:btih:E9AB214C95C0E70C28D22CF7E851A45D9BA09FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

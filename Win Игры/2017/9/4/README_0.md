@@ -19,8 +19,7 @@ Witches Legacy 5: Slumbering Darkness / Наследие ведьм 5: Дрем�
 ```bash
 magnet:?xt=urn:btih:642FA03B73ACEA69D65829EBFC029252D6E52B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Witches Legacy 6: The Dark Throne / Наследие ведьм 6: Темный 
 ```bash
 magnet:?xt=urn:btih:EBD49B8A0992558E7313570BBDB5F8DA34B8CBD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beholder (2016) [Ru/Multi] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:7CF0298FA04CC5018E239ED7ECBA76A272D95A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Evil Park - атмосферная игра ужасов, основанная �
 ```bash
 magnet:?xt=urn:btih:25ECE62B87C1D9CD131BD5E2936AD32748B2EA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ WARRIORS ALL-STARS (2017) [En/Ja/Ko] (1.0.0.1/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:63B40819270604FA62C0054E91E395AC9AC67445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

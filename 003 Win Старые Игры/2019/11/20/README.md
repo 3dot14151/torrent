@@ -19,8 +19,7 @@ The Temple of Elemental Evil (2003) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:434B09EEE841988EF0698CAFC43DB80FEC732ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

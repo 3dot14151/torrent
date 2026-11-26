@@ -27,8 +27,7 @@ Wicked Sensation - Adrenaline Rush (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5A99CFBEE4CE6D499709905791E28EB0FE7D0857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Сплетение (2014) [MP3|320 кб/с]<Dark Folk, Neofolk, Atmospheric
 ```bash
 magnet:?xt=urn:btih:D971BCF890AEEE4ED347266B1B788DD48BAEECAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Anathema - Judgement (1999) [FLAC|Lossless]<Atmospheric Rock>
 ```bash
 magnet:?xt=urn:btih:45B63C5C3DD8C96E1444FEF3934EE328EF86D898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Kiss - 40 Years - Decades Of Decibels (2014) Japan [FLAC|Lossless]<Glam Rock>
 ```bash
 magnet:?xt=urn:btih:21DE5A95AD30E5C89ADD9FA58BF4DB5BEEF1F710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Led Zeppelin - How The West Was Won (2003) 3CD Japan [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3F57209032E6796905DEFF486D1116E95F5EB676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ The Ленинград - 2 Альбома (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:86758B42AC70EE12450EB0291719420468CCABF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

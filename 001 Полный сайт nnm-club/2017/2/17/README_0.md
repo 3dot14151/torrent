@@ -21,8 +21,7 @@ Hevidence - Nobody's Fault (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:AE9148AED73B13104A2D23A55967B7DD2EA30032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - На волне позитива выпуск № 2 (2017) [MP3|256 Kbps] <
 ```bash
 magnet:?xt=urn:btih:8B410372A8B325DCB31624B020DFD6EAC691985A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Anthony Gomes - Sweet Stringing' Soul (2000) [FLAC|Lossless|image + .cue] <Blues
 ```bash
 magnet:?xt=urn:btih:8E964855F8A2CCD007B927C016A88B8A13EC58C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Молодежный бум хитовый. Версия № 3 (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:0A775849A9F68866E331B14F5656CDFE2151F096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Planet Alliance - Planet Alliance (2006) Japanese Edition, 2007 [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:42964A0775DE62556687A823B1714E62087747FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A986C778CECE06C500B95E217BC5896422CD8EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Alexis Korner - Blues (1999) Compilation [FLAC|Lossless|image + .cue] <Blues, Rh
 ```bash
 magnet:?xt=urn:btih:4C19103E02774E26BF1A1F9B62DE164F1389F6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Отдыхаем душой на радио Шансон выпуск № 3
 ```bash
 magnet:?xt=urn:btih:CE03C72971769BFE990BEAC5EDE139DF77FACAA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Fred Chapellier - Electric Fingers (2012) [FLAC|Lossless|tracks + .cue] <Electri
 ```bash
 magnet:?xt=urn:btih:A60C75F486E99289BA244EF3D10FFBBF66A5C35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Kryptos - Burn Up The Night (2016) [FLAC|Lossless|image + .cue] <Trash Metal, He
 ```bash
 magnet:?xt=urn:btih:95C2182A400AC68FC7D08D79B5BA9B891E54E141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A2BB15F01639F511E001B7788296051A8FB9520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Oleta Adams - Third Set (2017) [FLAC|Lossless|tracks + .cue] <Soul, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:EB55B3EFCAEF4AE43999ECAEAD2821D358744B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ CloudTV  - Международное TV на рабочем столе
 ```bash
 magnet:?xt=urn:btih:E9A71B69CF71EBF931B80C8DE097CD27A2BF9C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:0FA8C5B3CFE5D5D00EFA72F1BD82E54FE768C335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43F247A818526A3C05C74AD0A0017064FFA5C006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E9A5CC9C5618DB406ABB340BE796550163D7640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3171F36522CE981EC8C191FBB26A081F26FE41F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0012C3FC305D7B9DCBDF65B1424282608A1C8112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ VA - Vocal Trance Classics 004 (2017) [FLAC|Lossless|tracks] <Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:6EB234ABC3F9D3154BC6BEC1BAA28B67DF301F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:751B760703A16200598EC33EB72130F819301F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ VA - Acoustic Classical Jazz Playlist (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:EFA4648653629532BE40F927662764A27E10F1C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ VA - Ready Styles Final Songs (2017) [MP3|320 Kbps] <Synthpop, Bigroom, UK Garag
 ```bash
 magnet:?xt=urn:btih:8C2DBD3E04B2C81863B89BBDCA9A958CF38067EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68DBA3526D8C699161FAEBAAFED893F82577C142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E34ABC2BBFAD608730F1E8534BA647A40A8499F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ Paul Sills - Electric Storm (2017) [MP3|320 Kbps] <New Age, Relax>
 ```bash
 magnet:?xt=urn:btih:98A44756C24E527C207095F575DD0FC323331AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EF1CB030D6D52593F12865081363FFD5F9CAA60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

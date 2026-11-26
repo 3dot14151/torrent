@@ -21,8 +21,7 @@ Beginning Android Web Apps Development показывает, как создав
 ```bash
 magnet:?xt=urn:btih:D319FD02C35B7E22640533682A75A45785DB3C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Beginning Android 3D Game Development является уникальной пр
 ```bash
 magnet:?xt=urn:btih:DD92829B99DA5AD2A73F7E0C0A84E427AD4B2CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D89C0EC1A01E02B2060F1A5D281563B7A330914B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31112790A231550B2A244EAD9AC06E94CB6FB57F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

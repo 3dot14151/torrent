@@ -22,8 +22,7 @@ Discreation - Iron Times (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:E4EAC766CE10A001A17EEB15364D22E40DD83318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Austere - Corrosion of Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] <Depressive B
 ```bash
 magnet:?xt=urn:btih:019AA6D88719A231CE47374754045B343AECC61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Flash Gordon — девятый студийный альбом рок-груп�
 ```bash
 magnet:?xt=urn:btih:F80690CF5BCED5E7822083C16D04EE33DA4E5926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

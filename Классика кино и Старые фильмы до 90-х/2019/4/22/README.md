@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:53EDCFC362BA8D76F1AFBF1173D45E1A66FEADBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XVII век. Гражданская война в Англии. Король К�
 ```bash
 magnet:?xt=urn:btih:F5F05345D177DD080F5C903E6BE71153317F7828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

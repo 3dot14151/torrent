@@ -20,8 +20,7 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:EB7493B8548246B2CFF1F5699B9CCB882A8DB00D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AyuGram — кроссплатформенный кастомный клиент
 ```bash
 magnet:?xt=urn:btih:3BB8AA03BD12CFCE197374C8C64A422CC968F13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

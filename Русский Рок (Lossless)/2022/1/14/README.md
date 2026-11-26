@@ -22,8 +22,7 @@ CD - 1 - "Орден Сатаны" (Demo • 1988):
 ```bash
 magnet:?xt=urn:btih:278A641B0B20A2ABB0E563306362B0E439C3840F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD - 1 - Каннибал:
 ```bash
 magnet:?xt=urn:btih:8D575761A407A07B3ACF57EFA56E5D7B4154996C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

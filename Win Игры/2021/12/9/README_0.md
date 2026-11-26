@@ -19,8 +19,7 @@ The Christmas Spirit 5: Golden Ticket (2021) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:6E0BB41245898FC4CEC9DCE2373611CC1FDD88EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rogue Lords (2021) [Ru/Multi] (1.1.00/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F33D52129A4C51FF9656D6AC02F5A52E2335FACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

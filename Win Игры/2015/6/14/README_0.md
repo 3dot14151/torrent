@@ -19,8 +19,7 @@ Labyrinths of the World 2: Forbidden Muse (2015) [En] Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:E10858DC643ACFB994E042A20425225F03C0A12B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

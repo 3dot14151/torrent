@@ -22,8 +22,7 @@ Lionel Hampton & Friends (1990) Groove Merchant [FLAC|Lossless|tracks + .cue] <S
 ```bash
 magnet:?xt=urn:btih:EF99ABF7A84ABAA9AF0E2F164F4AF0A387781E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chris Potter - Pure (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
 ```bash
 magnet:?xt=urn:btih:65AF49D6CBBDE30AB080B6BF312B32B43F39A55D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ George Otsuka Trio - Page 2 (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:F4065EE6A70C40DDA682C982B037FC8EC9E12561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Trance Elegance On This Year 015 (2017) [MP3|320 Kbps] <Trance, Uplifting T
 ```bash
 magnet:?xt=urn:btih:141DDF98B4E8C6D317D061D2A0AD664119EE9931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Chris Potter - Moving In (1996) Concord Records [FLAC|Lossless|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:FB69E14AAACBB486F10EF77789C745A945704DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Uplifting Only Top 15: December (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:31974953626B3171E1CD24E25C1463C1039AED50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Surr - Discography 3 Releases (2008-2017) Eternell [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:721006CEE047BE026C9A3193405B95FE0188B24E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B346B31897F4F97686C70F15C0B1211C9837A9C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Wes Montgomery - Dangerous (1961 - 1963) 1999, Milestone Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:C07F6972EEFDA6E9F700F83146B27A8B6114218A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ George Otsuka Trio - Last Summer: Page 3 (1969) 2014, Nippon Columbia [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:C48BE61BF076168D0621CB6B447E835C76A3EDDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Sam KDC - Late Night Innominate, Volume One (2015) Auxiliary [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:D27C442282B8394B6667C58C573A748C6823C32F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Euphoric Format: Vocal Trance Set (2017) [MP3|256-320 Kbps] <Vocal Trance, 
 ```bash
 magnet:?xt=urn:btih:17F708F9808E20FE169CB7A05424FBB9830D6CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:514AF6565B4029756E02216951340582316A6345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:929142D5AFD8B25282D2DB7E9C26F352D8D9B171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ VA - EDM: Electro House Movement (2017) [MP3|320 Kbps] <Electro House, Dance, Cl
 ```bash
 magnet:?xt=urn:btih:CA3607AAB2373F095D08B6C5CAA4CB50E1DAB350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ VA - German Top 100 Single Charts 15.12.2017 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:771041E04B53927AC6775CAC5E450BF53F562E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0E20E3A175F7B1B1AF5863CBF29BAC69CF70C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.3 (Compiled by Викто�
 ```bash
 magnet:?xt=urn:btih:0BBEF639E002289C0E2DAD29A2B8A7AB003A4E72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8BBA5E1F2B4CBE6D3DB17ABD5167F06619B0F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.4 (Compiled by Викто�
 ```bash
 magnet:?xt=urn:btih:5E8D702DFAA8D1622A50BCC8A064A5EED50C6DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1951050C5FB098B16C72B00FB632944C4DB183A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A20B6A82E096021C55F8876C892FDA2EC038BA36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:379C933AE415FCE670E61ECD3EA2B9BF94A7E784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6FE43549B2898899E36B4F4E74CCEC97B0BC20D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ ExpanDrive - удаленный сервер, как локальный диск
 ```bash
 magnet:?xt=urn:btih:D0865A34841106E9252170AAD2180664BD2ED537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ VA - Vocal Trance Collection Vol.6 (2017) [MP3|320 Kbps] <Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:A8F32D7A87CD27E00ECBAFD46DBA0F5F450AC6FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

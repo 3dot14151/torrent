@@ -21,8 +21,7 @@ Kotipelto - Reasons (2004) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Powe
 ```bash
 magnet:?xt=urn:btih:5BFAD7D7BA6E210B7E824DE89808BC4BE81E134B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55F1C1A06E82A998F5F3E7A30BDD02B596920551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Stratovarius - The Chosen Ones (1999) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:FA6B0FE60AA820E74E24E4E208CB95EEE768BB37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Stratovarius - Under Flaming Winter Skies (2012) 2 CD [OGG Vorbis|480 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:BF051FA4B53DCC794D15BE64B3D7710BA292F5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Akraia - Mistress (2022) EP [MP3|320 Kbps] <Sludge Doom, Occult>
 ```bash
 magnet:?xt=urn:btih:FD6157E34C24DCB1E69AE3AD97D236027E33D3BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Stratovarius - Visions Of Europe (1998) 2 CD [OGG Vorbis|480 Kbps] <Rock, Heavy 
 ```bash
 magnet:?xt=urn:btih:17B51B3AC77ED4F8A5A24E03EB19FB3E19A948ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Eternal Solitude - The Gates of the Beyond (2022) [MP3|320 Kbps] <Death, Doom Me
 ```bash
 magnet:?xt=urn:btih:342AD7DEC7495F129B74D3DEA79EDF95A080E8A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Forever & Always - AURA (2022) [MP3|320 Kbps] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:9419E34436E22DA481E8873E4C68428679FDDD0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Oak - The Quiet Rebellion Of Compromise (2022) [MP3|320 Kbps] <Progressive Rock,
 ```bash
 magnet:?xt=urn:btih:B0D9C6FA0EFAB6D4C162A5A88A04142329456CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Amplified! - 2 Albums (2021-2022) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:1113D3E4352C6537BD9DF72317BC4DAB8E184869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Arida Vortex - Riders Of Steel (2020) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:0CB605C1AECB1E3E5FF46BCEF8B289E7496FABFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Ring of Fire - Gravity (2022) [MP3|320 Kbps] <Progressive, Power Metal>
 ```bash
 magnet:?xt=urn:btih:292E3F7CC9B0F84D20493FCF6942A9191AB00738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Warkings - 4 Albums (2018-2022) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:28FFE986576A075C31B1B560362F0E352BE80FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Galderia - Endless Horizon (2022) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:A037E7C9057F1B83F955CBE4E3AC0489D298FB1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Epica - The Alchemy Project (2022) EP [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:13B2EE5C1BF75084AD4A7CD6C02FAAD999525746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Black Spell - Season of the Damned (2022) [MP3|320 Kbps] <Doom, Psych, Stoner>
 ```bash
 magnet:?xt=urn:btih:D45333105895C62FF478E179E30BA4FD55BAF35C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Epica - The Alchemy Project (2022) EP [FLAC 2.0|48/24|WEB-DL|tracks] <Symphonic 
 ```bash
 magnet:?xt=urn:btih:7B5472A8AFAF9840F2862F7134E8C275442CC993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Saint Ali - From The Seashore of Barus to The Firmament of Debata (2022) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:ECC0C6352D7C007BE798CA275B1574BB8B944E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:055E8BCF84C1F61F94096BE3A592DF6A9FEEA46A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Roads of Rome 3: New Generation / Дороги Рима 3: Новое покол
 ```bash
 magnet:?xt=urn:btih:78F17458380252AF4AEB3258F9DC2C9E820B66CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vestaria Saga - это серия стратегических ролевых и
 ```bash
 magnet:?xt=urn:btih:9F1CFF410D1F4D9B1215A0F5F73FB669F625AC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:6AFFE75CDBF14597BC8502879555B484D25F9297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Big Earth - платформер со сложными головоломкам�
 ```bash
 magnet:?xt=urn:btih:B6E4E558CE383AC3362E96C9A0A5B173EA914E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack R.G. Меха
 ```bash
 magnet:?xt=urn:btih:B294577C84DC94E54EBC66965961BB288AF9FA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (Build 8905722) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EC5975A14525A96844C4D211AE55E3E98A6E8366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Tarnishing of Juxtia сочетает мрачные фэнтезийные 
 ```bash
 magnet:?xt=urn:btih:7D82C4CC81EF45A11F1BC8420B9DD1E112EA1CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Rabbit Hole (2022) [Ru/Multi] (Build 9481229) Repack Other s
 ```bash
 magnet:?xt=urn:btih:17D43B48A9D1B04FCEFE68EB0A6B5F331B1D134E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Shattering (2020) [Ru/Multi] (1.1.9/dlc) License GOG (обновляемая
 ```bash
 magnet:?xt=urn:btih:78DE382F74943BB2064173BB50774177A098ABF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

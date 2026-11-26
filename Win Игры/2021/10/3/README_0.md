@@ -19,8 +19,7 @@ Immortal Love 8: Sparkle of Talent / Бессмертная любовь 8: Ис
 ```bash
 magnet:?xt=urn:btih:8160C0A273744CC95BD190011DDED93696D6B2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dap (2021) [En] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CF92EC03BA420CFEA083A7D92B3811781541C3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Meridian 157 — это тетралогия, сфокусированная н�
 ```bash
 magnet:?xt=urn:btih:4B893D8CF05B9D4EA253F50B7419249A04BC967F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Samudra - это двухмерная приключенческая голов�
 ```bash
 magnet:?xt=urn:btih:8BC92F034AF5548584D624326D974E0707260BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rustler — это игра в жанре экшен с открытым мир�
 ```bash
 magnet:?xt=urn:btih:05327EE611A5455B18D19A21E59F1F9DDAB03ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

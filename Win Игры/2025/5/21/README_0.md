@@ -19,8 +19,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.6-74935/dlc) Repack Let's�
 ```bash
 magnet:?xt=urn:btih:22C0C08BBB95BBE55E0DC6BE9D42D2EA358EBEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.4.1) License GOG [Patc
 ```bash
 magnet:?xt=urn:btih:ADEEC46B1725337CE81BDB13451EEA709D1B4450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4305859395531E91A0CECBAA7B71B9C6CED6430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Zoria: Age of Shattering (2024) [Ru/Multi] (1.1.8/dlc) Repack Let'sРlay [Deluxe
 ```bash
 magnet:?xt=urn:btih:528C4582D97165D570896D6A8BCF1FF978997037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:16ED5F90F5C09DEFA09C8AEE6611EDC88A1BC524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tales & Tactics – перед вами классический автобат�
 ```bash
 magnet:?xt=urn:btih:B0871D60435E24B839519C118156A3303FA799E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:017BC23877FDE36ACBF45255A2D63503E114861E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:78B0E6E0333B63DBBC01C4AD2F9E2E1B7122F958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 ```bash
 magnet:?xt=urn:btih:A69DCEDD4EA98312CB53D8C9410688B89C9C3C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8 build 18474892/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D1ED429E81CE794B6688325C0BEB3A446051801D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

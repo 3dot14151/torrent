@@ -19,8 +19,7 @@ SD Maid поможет держать Ваше устройство в чист�
 ```bash
 magnet:?xt=urn:btih:EE4BAA44F5BCBD2186624A8BF215ADDA43912EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

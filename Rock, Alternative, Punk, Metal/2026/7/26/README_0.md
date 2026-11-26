@@ -22,8 +22,7 @@ Bee Gees - Still Waters (1997) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock
 ```bash
 magnet:?xt=urn:btih:A8119AE6132F6F8A32D9C1C21226C10F6B63270B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

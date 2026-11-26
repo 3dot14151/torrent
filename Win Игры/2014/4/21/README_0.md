@@ -21,8 +21,7 @@ Borderlands 2 (2012) [En] (1.8.2/46dlc) SteamRip R.G. Игроманы [Game of 
 ```bash
 magnet:?xt=urn:btih:F68544FD64BA2EBD37F83E0BCCF280AE08803005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Agarest: Generations of War Zero (2014) [Ja/En] (1.0/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:190DD9E08ACEB1EF92AC2C3C1A5245BECE70C1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Borderlands 2 (2012) [Multi] (1.8.2/46dlc) SteamRip R.G. Origins [Game of the Ye
 ```bash
 magnet:?xt=urn:btih:900D95D32A84A24FD8113D1D6070A5A9EF6BAE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ iCare Format Recovery Pro 6.1.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:AA912CC5B95DC25153C45A72EB18AB23328E8062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

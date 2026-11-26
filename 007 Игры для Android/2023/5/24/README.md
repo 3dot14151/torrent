@@ -19,8 +19,7 @@ Word Surf ‒ это новая оригинальная игра-головол
 ```bash
 magnet:?xt=urn:btih:FB5E1FB30232F96CD6F3D7BE3337705339D7F1ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

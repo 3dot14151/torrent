@@ -28,8 +28,7 @@ Absolva - Anthems To The Dead (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8E0CE802928F8BDD913AD682CD0274F888E18FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Reactory - High Of Radiation (2014) [WavPack|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:03080C6C05409713AC800FDC99FEABE2680CD0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Kodiak Jack - Alhambra (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:95D8E208E5404E898F15555C7B01EE83664449BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Little Feat - Live In Holland 1976 (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:58EC52C2B1D960E73CE8340436D70CC40E019E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ PAWS - Youth Culture Forever (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:6EF6D527EC629D4CA61D0BF18DDFC84B606823E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Elephant Gun - Castle Boots (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:72CD00B1B4C6C4866A6B4DEC00ADA1887A107269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Sigiriya - Darkness Died Today (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:A95D765214321F2C87A3B1E17897D56AA598A4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Sanctuary - Она исчезает последней... (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:4CC35DB822A9F819C109D613CAB34F638470845E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Brother Firetribe - Diamond In The Firepit (2014) [MP3|320 кб/с]<Melodic Hard
 ```bash
 magnet:?xt=urn:btih:51BDE3BB6D09290E260B46631EB0D6128FD75788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ Broilers - Noir (2014) [MP3|320 кб/с]<Deutschrock, Melodic Punk Rock>
 ```bash
 magnet:?xt=urn:btih:7A87CB33A4A526CC90D35B1CCAFB27E3258F5068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ Ought - More Than Any Other Day (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:92A31617B41A8637BAF216DC632A3F356E18A6D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ Heidi Happy - Golden Heart (2014) [MP3|320 кб/с]<Pop Rock, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:8FE84B06A1ECF4E1AB3F041954C8B43D84B85D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +416,7 @@ George Harrison - Any Road (2003) CDS [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:4B05E0AB4DBFDE77952225BE195D3BD3CE1FE963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +449,7 @@ Stackridge - 4 Albums Collection (1971-1976) Japan Mini-LP Reissue /2001-2008/ [
 ```bash
 magnet:?xt=urn:btih:DDC314E984A82C9AE1E8CE838F2C3A8FAC297CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +478,7 @@ Out Of Focus - 6 Альбомов (1970-1974) Reissue, Remastered /2000-2010/ [F
 ```bash
 magnet:?xt=urn:btih:A801FF3C0C633092BBB883E5AA6034333B1BAC0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +512,7 @@ Xandria - Sacrificium (2014) Limited Edition [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:7D57306241EEEA21DA1F8D2986E19DFE172887B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +546,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F6873E90F48C0EAF5AF2069C5A2C3B3167E72060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +579,7 @@ Doro - Powerful Passionate Favorites (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7BBC7AD24C2471B12E962DF651D5B59EAE593AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +613,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:3EE921C30A32017B2629A08AFABEA65FCBF3B05D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +647,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:C1E4151E42B1E77B43CCDAF31423247AE283EF65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +681,7 @@ Epica - The Quantum Enigma (2014) [MP3|320 кб/с]<Symphonic Power Metal, Gothi
 ```bash
 magnet:?xt=urn:btih:C3B8B40114EF82D1CFAB3B58F43187E7C19CF295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +715,7 @@ Epica - The Quantum Enigma (2014) Digipak [MP3|320 кб/с]<Symphonic/Power Meta
 ```bash
 magnet:?xt=urn:btih:E98C699641B111C09C55A2D5AE652FB6B061B00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

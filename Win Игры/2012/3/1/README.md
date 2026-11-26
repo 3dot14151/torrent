@@ -21,8 +21,7 @@ Crash Time 2 {1.3.3} [Ru] (RePack) 2009 | Fenixx
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Rayman Origins - это классический платформер не то�
 ```bash
 magnet:?xt=urn:btih:6FF7F9CF3526CCE22338802A26B3D7A8BCF21F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ New Yankee in King Arthurs Court / Новый янки при дворе кор�
 ```bash
 magnet:?xt=urn:btih:6CF7A8826BEB5FA4D2BB006EECB8C43AF3A93D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Mystery Trackers 3: Black Isle Collectors Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:DD5C89AA23BB9D4AC3F344237DA17DB63724F51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

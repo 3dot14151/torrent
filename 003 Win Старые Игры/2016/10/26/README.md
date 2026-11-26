@@ -19,8 +19,7 @@ Big Buck Hunter Arcade (2016) [En] (5.3.6) License PLAZA
 ```bash
 magnet:?xt=urn:btih:686E1863F9729F11B12A73E19641CD7F0FACB1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

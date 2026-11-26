@@ -22,8 +22,7 @@ Arctic Monkeys - AM (2013) [FLAC|tracks + .cue]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:9BD61A03AE18CDF7B5E32F7690AD09EB80710D2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Soziedad Alkoholika - Confrontación (2024) [FLAC|Lossless|image + .cue] <Metalc
 ```bash
 magnet:?xt=urn:btih:E550A3496627D90CC49D8C3CEC3DDABFEEF0A907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cruel Bomb - Cruel Bomb (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Cros
 ```bash
 magnet:?xt=urn:btih:3586081F3FD36C0A5F08428FEC9ACC95C52B0352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Siege Of Power - Warning Blast (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:5176F447C1BA6DF3765A21EF0A391F2EF6F7B233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

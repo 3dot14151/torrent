@@ -20,8 +20,7 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 ```bash
 magnet:?xt=urn:btih:468353D1F2D6BD61E5DE49BB19BB6AC38C408E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ B5. Отлюбил (3:26)Жанр: Рок / АвангардПродолжите
 ```bash
 magnet:?xt=urn:btih:A853DD707E8A06F8FEC03C6576F50A485DC533DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - Greatest Ever! Bubblegum Pop: The Definitive Collection (2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:1DA518AF271B64637FDC2F653309179BA50A6EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ VA - Absolute Music 72 [2CD] (Eva Records) (2013) [FLAC|Lossless]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:574DC7D796BE65637E915EA620E8DC41340C80E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ MotoGP. Гран При Испания Херес. Этап 3/18. Гонка (20
 ```bash
 magnet:?xt=urn:btih:7378ADA72D1AD0A8A12634F1D896935D040BF32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Sabaton - Swedish Empire Live (2013) live [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:381DEE913A9C8B156DFB277031D992E6FB644A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ MotoGP. Гран При Франция Ле-Ман. Этап 4/18. Гонка (2
 ```bash
 magnet:?xt=urn:btih:72CE448C9879E6B9DB6E14B3A31DFB333FF63519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4B6550308BCA1BC78C484822EF0D68BF4C639D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88D9ACCC62DCD271E82F6E6F4A390BE6AB1FEF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Inpaint - программа, которая позволяет умно уда�
 ```bash
 magnet:?xt=urn:btih:1FB5A1912A6E79E661566F2FFB8F1876221E301C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ MotoGP. Гран При Нидерланды Ассен. Этап 7/18. Гонк
 ```bash
 magnet:?xt=urn:btih:A7C2524536400FA2C364B684EEBF7CEAA81175CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ VA - Хитовый осенний марафон Hit FM (2013) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:845ED602E71406A8B8D86E686CC5E3F1051E753B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ Sabaton - Swedish Empire Live (2013) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:576B1A0FC612F72774FD119AF16D1DC3829B8734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ Dio - The Collection (2003) [FLAC|Lossless]<Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0C57105422AA135AAE0A6BD716D3E118A5B25D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +452,7 @@ Discovery: История мира. Серия №7 / History of the World (2012
 ```bash
 magnet:?xt=urn:btih:44BF2AD204F7FA81D4D0C465E580095B4940D649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ Discovery: Северная Америка. Серия №5 / North America (201
 ```bash
 magnet:?xt=urn:btih:101994EDFC70974C318C4AFB2D04928705C97946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ iResizer - программа предназначена для масштаби
 ```bash
 magnet:?xt=urn:btih:A1FDB49BE708C642A053A9670A8D19BBA3BD26F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4ADC74CF8B1D14E0F44537E5A5A92F7F9A77C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:459368A6092CE25F61845C76DF66B57514A143F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:E9315511B19CD282008940EA70122635E867D9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C38FA1001097C560F24CE633EC5EA8B49E834816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +630,7 @@ Mountain Lion Cache Cleaner позволяет выполнить настрой
 ```bash
 magnet:?xt=urn:btih:8E50B9D30014C74AFF8008D2DE69A3161BAD8A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:452FD8A4AC5AF53376CDB3740D8457B0BAF2DCCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:013FCC286C61FAE594BD6DBEBCBDAA8E658E6390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ Julio Iglesias - Grandes Exitos (Edicion Mexico) (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:89A1ADD7C1AEC8AF4EEA3BA81218ADFF1DD21737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Trick or Treat - Ghosted (2025) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:2CFC716B6EEB4F8EAF394FD5C4C2F3578F1D71AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Passengers In Panic - Amnesia (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, 
 ```bash
 magnet:?xt=urn:btih:60A67197BECBE2C92E29BDB79AE4ABF843121F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Doro - Fear No Evil (2009) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:66675D6D9A279D350B7B7F91394AB8DB737795E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Exmortus - Necrophony (2023) [FLAC|Lossless|image + .cue] <Neoclassical, Technic
 ```bash
 magnet:?xt=urn:btih:E42A2BD392FAA5911CB5210D3BD2B567C0DD2170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Avkrvst - The Approbation (2023) [FLAC|Lossless|image + .cue] <Prog Rock, Progre
 ```bash
 magnet:?xt=urn:btih:EC11A69BEFD63B944ABA8EA3CF91381472BF61A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

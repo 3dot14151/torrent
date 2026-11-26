@@ -19,8 +19,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:C6D5DD5E09AC7E5D5C201C328E9D216C490B72A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KillerPDF — это бесплатный редактор PDF-файлов с �
 ```bash
 magnet:?xt=urn:btih:7EEF8E2FFD48842FE0E584F6125ED192B0B727F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ GadgetPack 43.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2B12005A84C4EABBB5AA58871CAF0AA4BE09E61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:4EB416A81ED1DE4187E620F75549EB6DAD06CEFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ R-Studio Network 9.5 Build 191861 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CA8027FCD024BC656943875DA035C86058E1A98E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ IceCream Ebook Reader Pro 6.57 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6CEDDB6215F25F081F6E0080EEB45BD8F809C2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Crafting Apps - PDFCraft 0.14.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C75DB49AFAFDA3758F3FFDC2D21A2D237569E2F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

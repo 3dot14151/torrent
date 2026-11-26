@@ -19,8 +19,7 @@ Ace Lightning [Ru] (RePack) 2002 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A2F117AE9DD007F8E09AC1279D0E6BABDE569F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alien Incident [En] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A3ABA16BEBB2B1452BEEA54494B13D5FE4C2FCA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

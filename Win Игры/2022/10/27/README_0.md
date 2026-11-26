@@ -19,8 +19,7 @@ LEMURIA (2022) [Ru/Multi] (1.2.5/dlc) License DOGE
 ```bash
 magnet:?xt=urn:btih:F76FB664748BE0E2FA3AA6E9649DDEB1D2AB0DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Automachef (2019) [Multi] (33) License GOG
 ```bash
 magnet:?xt=urn:btih:DEE4E48C2DD2F066F85D931C5187FF818977A8C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

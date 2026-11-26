@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5E834885F906377FA7AFCD9192FFC2FD459245F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Coffee Rush 3 - продолжение супер увлекательной и�
 ```bash
 magnet:?xt=urn:btih:13C457E1F2B1CCCC4370802C16E4FA85AF0F9680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Dark Parables: Rise of the Snow Queen Collectors Edition / Темные прит
 ```bash
 magnet:?xt=urn:btih:A258831FEB360ACB0A2BC35FBA81018C829D24A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Dark Parables: Rise of the Snow Queen. Collectors Edition / Темные при�
 ```bash
 magnet:?xt=urn:btih:14D69BD0E629F5000CC7EB304ED7B4FC019A6ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Disney: Universe / Disney: Мир героев  [Ru] (RePack) 2011 | R.G. Origam
 ```bash
 magnet:?xt=urn:btih:4199C4A280B3FDB5448D3893187C834AEBD17495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Disney: Universe / Disney: Мир героев [Ru] (RePack) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:ED332960BCCC5F61353BB1FE8F5864B77D016CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ AR-K. Episode 1: Sex, lies and class work [En] (L) 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Way of the Samurai 4 (2015) [En] (1.06.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0218CE985D5F9DA3B3134D3DFB5BC7875BA567C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Elvenar - таинственный мир в стиле фэнтези. В эт�
 ```bash
 magnet:?xt=urn:btih:05D024ACDD54F51767D89093106056C833A8AB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Teslagrad - 2D платформер с элементами стимпанка. 
 ```bash
 magnet:?xt=urn:btih:4B0214AC8AED62A0FE4562203C01FCAC0533482F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Mirror Mysteries / Зеркало Тайн (P) [Ru] 2009
 ```bash
 magnet:?xt=urn:btih:6E313D8C0DD4227BF194300C396BF26DF51B2F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KinderGarten / Youda детский сад (P) [Ru] 2009
 ```bash
 magnet:?xt=urn:btih:9C145B8AE18D869373FCEED0626E8963A3B32213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Royal Detective: The Lord of Statues Collector's Edition / Королевски�
 ```bash
 magnet:?xt=urn:btih:EE739D74F57CCA063EAAD72B88DC03B1077ED83D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ War in a Box: Paper Tanks / Война в коробке. Бумажные та�
 ```bash
 magnet:?xt=urn:btih:0043569B5B3683AACB1461768F96CD1D4BFDA486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Jagged Alliance: Back in Action / Jagged Alliance: Снова в Деле + 6 DL
 ```bash
 magnet:?xt=urn:btih:59EDEB52330AD3DA1FDB7B04674DFF213DE4DF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

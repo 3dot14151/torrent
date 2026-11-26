@@ -19,8 +19,7 @@ Royal Detective 6: The Last Charm / Королевский детектив 6: �
 ```bash
 magnet:?xt=urn:btih:D7176A2FF7EB3C853BAD8D76583E5F62AD71E474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -25,8 +25,7 @@ Ys: The Oath in Felghana [En] (RePack) 2012 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:2BAE89EF294DB69D3E9A6D806F92386D0A50CF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:29E617CB559A1A86FF1E8286F79E08889C1968C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Liong. Утраченные амулеты - уникальная игра, ко
 ```bash
 magnet:?xt=urn:btih:25150E0F6ECDC7C2CED7963AE6DA4CF54ABE360F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Archipelagoes / Ух-ты, бухты! (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:EF64A80ECE415F4B44E5A473B91FE76A7826EB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6204CDFB6650211DDF3D7DCF429C84846FCDE038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

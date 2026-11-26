@@ -19,8 +19,7 @@ Dordogne (2023) [Ru/Multi] (1.12.15) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6AAFE541675F6780916E037B4A0BECDE6C036060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

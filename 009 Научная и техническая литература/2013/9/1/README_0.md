@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:B9A4355945939938BB29A1280BC009B93D60956F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ P.Граф, B.Шиитс | Энциклопедия электронных сх�
 ```bash
 magnet:?xt=urn:btih:495C989F26D810B29B68B3E11BF6B734CB2A62C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Michael Nielsen, Isaac Chuang | Quantum Computation and Quantum InformationL : 1
 ```bash
 magnet:?xt=urn:btih:75AF0EAB5C09BECA3EDB57715274E768DCF5C4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

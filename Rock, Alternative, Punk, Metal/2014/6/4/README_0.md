@@ -26,8 +26,7 @@ Errata - L'autre Hemisphere (2013) [MP3|320 кб/с]<Post Hardcore, Screamo>
 ```bash
 magnet:?xt=urn:btih:AD7844F63C97659A8342AFE16A76D48E41DC6CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Good Rats - From Rats To Riches (1978) [MP3|320 кб/с]<Glam Rock, Hard Rock, A
 ```bash
 magnet:?xt=urn:btih:2E051F18186ACA4C00DFC4B752195878E26DC943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Goddo - An Act of Goddo (1979) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:23320CEA4013906F4AA278B53022528B6E4C1EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Nme Within - Science Krucifikktion (1997) [APE|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FFC5602E8E564CD8332F8809F6A2A0B77209AE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Elias Hulk - Unchained (1970) [MP3|320 кб/с]<Hard Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:DB584E5EC5C72B754B65D723FCF235EBFDEBAD5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ The Easybeats - The Best Of ... (1995) [MP3|320 кб/с]<Beat, Classic Rock, Roc
 ```bash
 magnet:?xt=urn:btih:E4D420CFF59F51A6E9206829260AAF6C35CDA965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ String Driven Thing - The Machine That Cried (1973) [MP3|320 кб/с]<Progressiv
 ```bash
 magnet:?xt=urn:btih:4A75518C61024A72A78792636689254F722500C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ The Sacred Mushroom - The Sacred Mushroom (1969) [MP3|320 кб/с]<Psychedelic R
 ```bash
 magnet:?xt=urn:btih:335A6E64C82BB226293ACA2A9BBC33F607B3D035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Unisonic - For The Kingdom (2014) EP [FLAC|Lossless]<Melodic Heavy / Power Metal
 ```bash
 magnet:?xt=urn:btih:E886015E7018AB59EFDAD0ADF4B7B64BF7DEC4E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +319,7 @@ Screamin' Rebel Angels - Pounce Like A Tiger (2011) EP [FLAC|Lossless]<Rock, Roc
 ```bash
 magnet:?xt=urn:btih:0CA4B4F2DD192730243F3548C32734B8992C13D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ Zzebra - 4 Альбома (1974-1975) Reissue, Remastered /1999-2001, Disconform
 ```bash
 magnet:?xt=urn:btih:C64129D3602F2C2482CCFC4B0530D2912E541A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ Screamin' Rebel Angels - Hitch Hike (2013) [FLAC|Lossless]<Rock, Rock'n'Roll, Ro
 ```bash
 magnet:?xt=urn:btih:007436A5440A16B0680CCB66237E791C480D3003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ Pebbleman - Call of Fate (2014) [FLAC|Lossless]<Heavy Blues-Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3E96ECF673CAEA71F433B9952BA6EAECD948CAC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +450,7 @@ Head Machine - Orgasm (1970) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B89BD34BCF0479CB1220689F45A0AE66BE4902C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +480,7 @@ Aleph - Surface Tension (1977) Reissue, Papersleeve /2002, M2U Records, Korea/ [
 ```bash
 magnet:?xt=urn:btih:42669EF3D3E543EC38906E2BEB72878EC173D128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +506,7 @@ Courtney Love - You Know My Name / Wedding Day (Single) (2014) [FLAC|Lossless]<R
 ```bash
 magnet:?xt=urn:btih:7E83901282CE5AB8613387E3B481CCE5A745AE92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +540,7 @@ Vader - Tibi Et Igni (2014) Digipak Edition [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:8EE9CC6B6A003C60C9B573D0766DB0A843106EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +574,7 @@ Powerwolf - The History Of Heresy I 2004-2008 (2014) 2CD [MP3|320 кб/с]<Power
 ```bash
 magnet:?xt=urn:btih:516AFC56396AA1B8639628AAF250D13D9C3E415E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +602,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:2BC51ED7934E405CA644781A840E9A56B10566CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6468600A6D37905D9594C56EFEB49BB3FF9C19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +665,7 @@ Arch Enemy - War Eternal (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:76E4E1EE9DED3F615B2C79F4664F87E5908D1D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +699,7 @@ Arch Enemy - War Eternal (2014) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:891F45E8C53DEED27F32928AC806B031F7627575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

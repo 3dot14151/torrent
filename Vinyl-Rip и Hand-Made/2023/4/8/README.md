@@ -22,8 +22,7 @@ A4 High Time(   Читать дальше...   )Жанр: Pop RockПродолж
 ```bash
 magnet:?xt=urn:btih:0AD76E048CE74CB7EB0D235AFE84112F604B6A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4		You And I	6:44(   Читать дальше...   )Жанр: PopПродол�
 ```bash
 magnet:?xt=urn:btih:F1658B77489D61A9EB9B53A0D0B3571339125FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

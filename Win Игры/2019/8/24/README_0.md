@@ -19,8 +19,7 @@ Vermillion Watch 6: Parisian Pursuit / Алый Дозор 6: Погоня по 
 ```bash
 magnet:?xt=urn:btih:626BC426EAC5A898887F8686B71538E5757EA529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Seven Chambers / Семь Залов (2018) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:AE7B7ECA47962D4A88EBF52ABD17E078D0FB7CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

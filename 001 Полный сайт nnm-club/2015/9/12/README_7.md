@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:F709E0F90EC336F6B2B7293A8C799BE9E2A613D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EF9424CD56D5891EB0BB28C31141E05E7D2DBF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [Ru/Multi] (1.0.0.5) SteamRip R.G. Ð
 ```bash
 magnet:?xt=urn:btih:C9F5A0F8501EF6C08BAE1BA4AE7F0885205DDB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

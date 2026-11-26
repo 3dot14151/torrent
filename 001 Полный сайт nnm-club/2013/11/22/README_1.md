@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A472F2F8CB1E132905692D5836164911EC41569E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Inspiration Set представляет собой коллекцию из 250 
 ```bash
 magnet:?xt=urn:btih:38F3BAD6AB3C004BF8E67E2EFCB9A97F08A60586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ VA - Full On Fluoro Vol. 1 (Mixed By Simon Patterson) (2013) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:761D67CA5BAE7EF712AE1DE9C05818AB354DA766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Comedy Баттл. Без границ. Выпуск №27  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:A0AE464303C2662B2B980FBF46C52A05C070AFF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ VA - Масть крестовая. Песни для души (2013) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:92D64BD1D25E2CD62522CEE8C672C7D4F1534EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ HyperSnap - инструмент для захвата изображения, �
 ```bash
 magnet:?xt=urn:btih:C37E57F89DC69358EA90836F93B4B924811FB913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01CE604B57BA14488582A7D9ACA05CA083C1F123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FA8671A7CE0688D34EBF2F28E455D890B90027D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4463E367C4953BEF1CB19302980BB2917E98AFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1FC9BB34BB2534BD8694BD61EE58FB20BD7EDA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76406FD7F5222A2873C3B1C3A13804BB19727169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ Ulrich Schnauss & Mark Peters - Tomorrow Is Another Day (2013) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:F22B9C9EE2B662D38DB673D5C77F100171079CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ Dhafer Youssef - Birds Requiem (2013) [MP3|320 кб/с]<Ethnic Jazz>
 ```bash
 magnet:?xt=urn:btih:AE51912D083CF9E554F0FF497FE9ED857A895005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ Helpling • Jenkins - Found (2013) [FLAC|Lossless|WEB-DL]<Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B72D8D03C8E81DB5B3F7E8F9B189020AAE7A4856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Offline обновления для Microsoft Security Essentials (22.11.2013) [
 ```bash
 magnet:?xt=urn:btih:B09EB9D825CE82C22757E9FB0FC3D9DFD789B6A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ Billie Joe Armstrong & Norah Jones - Foreverly (2013) [MP3|~245 кб/с (V0)]<Ro
 ```bash
 magnet:?xt=urn:btih:71056CA0ADC3A9FE0976E11D6F4C62E3A81E85EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +492,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:E49EAF284E0FBAE6CFF8DBC249229F9AC2F8EF73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +517,7 @@ MediaInfo 0.7.65 Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E1741703AA93FB49EBCAE4FBCFE48E14C99E1B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F43BAA527D9EFAB7933B7FF84B45C1C8F417B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +577,7 @@ VA - Романтика шансона 100 хитов (2013) [MP3|256 кб/с]<�
 ```bash
 magnet:?xt=urn:btih:3FF14D6A43942E665B18B02A17C252A60DE0FD94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:014A8070333BB661F8FA520FEB1E6681E497C90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62CB9B5DBD251C62257849CC46BB6C3887A342FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +655,7 @@ Maxthon для Windows использует уникальный двухдви�
 ```bash
 magnet:?xt=urn:btih:890D46EB145774B16075AF10C49B91E508DF41FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFF6A0B3385DD76681AC7FE443E00CB63D547BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ Recorded: American Legion Hall, Hollywood, California, 1959
 ```bash
 magnet:?xt=urn:btih:9815D3F01EBE8B77230B8099124A69A3B3D548EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:486259E0AFF158CA5B0FD6E75172CECB067D4875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

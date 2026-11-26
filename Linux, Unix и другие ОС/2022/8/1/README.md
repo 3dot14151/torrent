@@ -20,8 +20,7 @@ Linux Mint 21 Custom Xfce с доп. пакетами [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:99B3D72E2CD85700AE28A23D3536F995D0A03C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

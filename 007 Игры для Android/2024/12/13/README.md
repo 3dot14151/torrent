@@ -22,8 +22,7 @@ Little Nightmares 124 [Ru]
 ```bash
 magnet:?xt=urn:btih:9EEE66ECE1919B7D3B8D69C7F85D83EB08866C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Age of History 3 1.035 [Ru]
 ```bash
 magnet:?xt=urn:btih:D1065F4E011FDFD6BE7FA6FC6AD66CF5D268065E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Very Little Nightmares 1.2.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:F8664B54FC31E13E1ADB98F5DBA0B1AFD4F6CB82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Pine – это короткая интерактивная зарисовка �
 ```bash
 magnet:?xt=urn:btih:D34C0A18EC6A0A3963B9F4B8D2E2E184C1288D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Meadowfell v1 [En]
 ```bash
 magnet:?xt=urn:btih:DFC24C860840DC5B9AA9C1447404C729C134BD77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ The Abandoned Planet v1.2.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:3EFB613970A6A6E8E0E168972D6133785772C630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ The Rise of the Golden Idol v1.2 [En]
 ```bash
 magnet:?xt=urn:btih:6EB8CC057790FDFCF331C8AE5549A31946E2D743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Death’s Door v1.2.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:17D3F2DC0262F45ACDDFD5CF18DBD871E7FADDB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

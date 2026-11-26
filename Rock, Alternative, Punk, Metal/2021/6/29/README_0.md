@@ -22,8 +22,7 @@ False Memories - The Last Night Of Fall (2021) [FLAC|Lossless|image + .cue] <Got
 ```bash
 magnet:?xt=urn:btih:8FCA5419A23A2B4B045B56676C14D7676F99B83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Motley Crue - Theatre of Pain (1985) 40th Anniversary Remastered,  2021, Motley 
 ```bash
 magnet:?xt=urn:btih:8152B21AEC544CA0897277622E6D3EA637FEB99A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:407AAF22B5D67A045DC36F85DF3DEF3A2D52F3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ John Lennon/ Plastic Ono Band - John Lennon/ Plastic Ono Band (2021) 2CD, The Ul
 ```bash
 magnet:?xt=urn:btih:913935D6AAB188C85DE1DF6796CE995C76AAFE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

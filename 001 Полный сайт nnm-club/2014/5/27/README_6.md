@@ -18,8 +18,7 @@ Watch Dogs - Новейшая компьютерная система в Чик�
 ```bash
 magnet:?xt=urn:btih:C29BA47E1F5BE342F057BDD7DE7D304B6BF0FDBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Watch Dogs [XBOX 360] [PAL] [RUSSOUND] [LT 2.0] (XGD3/16537) (2014) R.G. X360Clu
 ```bash
 magnet:?xt=urn:btih:7C47C5ACB69A19760D1F3067A1FBC3E9E5920712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0ACED459E63AAB9DDE287E41C1B69087597BA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ The Bureau: XCOM Declassified - тактический шутер от трет�
 ```bash
 magnet:?xt=urn:btih:49645570ED6E31A43DAD49614A1DEEDBDEDB964F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B121FE48B1AAA3AB031657EA22B88330527F444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FBE29191101B2AEA6D14D3BA6F22A8538256356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ proDAD Heroglyph 4.0.225.2 - Программа для создания высо
 ```bash
 magnet:?xt=urn:btih:EC0EFB502B363D58536950E004BB424CCAC3E6A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Pinnacle Studio 17 Ultimate 17.5.0.327 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:90D9188B3102F4C285F4B58E45BE8D18BF038313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1006CB3FB7D47678E89380FB69096DD40E14C44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B3D7B66599404BE5FE06F64DDEB0B4AA46425B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Watch Dogs - Новейшая компьютерная система в Чик�
 ```bash
 magnet:?xt=urn:btih:0DC81484AB3832D5F7C75626CCD46CC350829679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30152338C5BFA9B7E191C6EE18C3FBF4A848A6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Watch Dogs: Установочные файлы с первого диска [XB
 ```bash
 magnet:?xt=urn:btih:64DBAAABE9004FB2BA9F79023C404E26D733C711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Microsoft Windows 8.1 with Update x86-x64 AIO (20in1) English - CtrlSoft [Анг
 ```bash
 magnet:?xt=urn:btih:219DAADDD9431EEE4485A300C30EE7DC276CDB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B097A51BB0B058D65EDBEF70EC06E81386BDB904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38EEF3F3E81AED8B1D253D81ED73CBEE8C13DE5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01593A9BEEEFDE2207EED9C5446AD1C21799ADAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ ZverDvD Final 2014.5 + Alkid SE [Ru] (Официальная раздача)
 ```bash
 magnet:?xt=urn:btih:3EA2F13A5FE55726B5974B4E302C6ED7959BBBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

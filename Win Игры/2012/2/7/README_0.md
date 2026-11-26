@@ -19,8 +19,7 @@ Dead Island + 3 DLC [Ru] (RePack/1.3) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:4BCA222863485851BBF791BFB4F8E131240A69E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Farm Craft 2: Global Vegetable Crisis / Farm Craft 2 - Глобальный ов
 ```bash
 magnet:?xt=urn:btih:63B93D580B348A9AD4F0ED51487FC768C6ACD0DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Surface: Mystery of Another World Collector's Edition / Над водой: та�
 ```bash
 magnet:?xt=urn:btih:44E7FDE0FE887B3116F9DCE4D1F0EA0AF7BFC321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mystery Murders: Jack the Ripper / Мистические убийства. Дж
 ```bash
 magnet:?xt=urn:btih:0B2C8E676AFEA47D20BE7D6A18B1D58353A371FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

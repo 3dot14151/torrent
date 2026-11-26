@@ -19,8 +19,7 @@ King's Quest 7: The Princeless Bride [Ru] (RePack) 1994 | RG Games (Pilotus)
 ```bash
 magnet:?xt=urn:btih:AA3642C08B7D2D1F8BFED741CFB3553561CBD603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Medicopter 117 / Альпийский патруль [Ru] (L) 2004
 ```bash
 magnet:?xt=urn:btih:CC6F69D2D0BD6D2AFA8C5B318DE1A6D26EC2F4F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ F-16 Multirole Fighter [En] (L) 1998
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ MiG-29 Fulcrum [Ru] (RePack) 1998 | RG Games (Pilotus)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы [Ru/En] (R
 ```bash
 magnet:?xt=urn:btih:4E9FF964AB6C84D79787F1623CDB9979FD8B4598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

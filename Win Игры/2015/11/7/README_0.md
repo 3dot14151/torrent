@@ -19,8 +19,7 @@ Infinifactory - великолепная пазл-песочница с видо
 ```bash
 magnet:?xt=urn:btih:4E3E7B945EB6F4BE38A0FF89C5360289EF111246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

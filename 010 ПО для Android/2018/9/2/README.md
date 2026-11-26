@@ -19,8 +19,7 @@ VPN Max by Aeronliru v100.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:EF55CB20746FE06B154532F3864D4350048B7A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

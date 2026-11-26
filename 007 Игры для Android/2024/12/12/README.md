@@ -19,8 +19,7 @@ Machinarium 3.1.8 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6AC53199E342FACB8CCC0CD7D7878F982045C0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kovoclak 1.12 [En]
 ```bash
 magnet:?xt=urn:btih:2F02FE521AB14188E7C16C5CC1A1848E503CFBC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

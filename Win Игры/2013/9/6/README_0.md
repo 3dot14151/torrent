@@ -23,8 +23,7 @@ Aeon Command - космическая реалтаймовая стратеги�
 ```bash
 magnet:?xt=urn:btih:01657BD93ED78C269573EEFDBDA985ECD13268A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disney Planes (2013) [Ru/Multi] (1.0) License RELOADED
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

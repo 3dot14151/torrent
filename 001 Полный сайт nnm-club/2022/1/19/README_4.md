@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:598B484B987D813D2FB65F21C6662DC687ABA078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B35EFFD1E5A520D30184A88C69D1AD19C3F5E0D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ SnippetsLab — это простой в использовании менедж
 ```bash
 magnet:?xt=urn:btih:F270D46637263458064C1C1FDDEE9B4173BA3F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ PhoneRescue - полезное приложение для восстановл�
 ```bash
 magnet:?xt=urn:btih:95F27C2A837C981CD21D350A8BEF7DCBE97B139A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Byword — минималистичный текстовый редактор о
 ```bash
 magnet:?xt=urn:btih:AE322FAAE22E4F9F3D6B976497C660417AF78BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Birds ov Paradise - Memorial (2022) [AAC|~343 Kbps] <Atmospheric Techno, Deep Te
 ```bash
 magnet:?xt=urn:btih:E406DE4C794B435D94453FE080571AECD2270C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ PerfectTUNES for Mac 3.1 [En]
 ```bash
 magnet:?xt=urn:btih:D56A6228578C0D2474866D4F3173EACDE3AE2930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ VA - Guitar Chillout Lounge 1 (2007) [AAC|~323 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:2F69CF96A9051BFF834D4261BE002A10ADBE8E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFB5576F0F8D15E2F11D67B824856209729D33A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1A80904C708A507238187DB416B76C59EE3EAEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ AText ускоряет вашу запись, заменяя сокращени�
 ```bash
 magnet:?xt=urn:btih:F21F10FBE86A1300A7873A3187A428D0C6FDC1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Keep It 1.11.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:C600C81753400FC486EE94488BB1BDFF420F618B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:CE0078C9C1B1F8862629B8D04B78884FCB346B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ MarkMyWords предлагает простые функции форматир�
 ```bash
 magnet:?xt=urn:btih:FE1CD0F6B74D0DA8439015F92B696F7E04F37E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Scherlokk является утилитой для быстрого поиска
 ```bash
 magnet:?xt=urn:btih:D8FA80EC18AD2C3D2F23D8DEDC88C34A2FF15596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ One Switch - это крошечное приложение, разработа�
 ```bash
 magnet:?xt=urn:btih:2AB55DAAA4646CDCC57B7FCF67BC98B95607CF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Smooze одушевляет ваш скролл и добавляет функц
 ```bash
 magnet:?xt=urn:btih:1B180825CA065B413FCDF45D2F615293424E4AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Artstudio Pro 4.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:F8219111BBA925F7597354F42AF98A358D026FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ Alfred 4 Powerpack 4.6.2 [En]
 ```bash
 magnet:?xt=urn:btih:D4670C04815EF74FBB00917C0BF6DBCEBD1F961E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ Fusion Bass - Seasons (2021) [AAC|~345 Kbps] <Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:4B9EE5D04C005A66DD8F97E9BFC724FBF6DA8324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ Action 1.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:767991E9B65A51DD5AAC7A6DE20C5347EE0BA89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +557,7 @@ AYVY 1.18.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:C9DF93CE520E7FB3740CBC1F329607A451F01860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +582,7 @@ Boxy SVG 3  v3.75.0 [En]
 ```bash
 magnet:?xt=urn:btih:DB1598230E1337C5D8638E20A16B38864B934BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ VA - C Recordings 2021 (2022) [AAC|~309 Kbps] <Drum & Bass, Liquid Funk, Deep Du
 ```bash
 magnet:?xt=urn:btih:C799D65227610383052689E1D101C952D5923D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +638,7 @@ VA - The Best of Transensations (2018 - 2020) (2021) [AAC|~338 Kbps] <Progressiv
 ```bash
 magnet:?xt=urn:btih:961A9474E55BB0A76588EE43FBB5C4255D48BBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

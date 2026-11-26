@@ -19,8 +19,7 @@ Right Click Enhancer – дает возможность настроить ко
 ```bash
 magnet:?xt=urn:btih:F8D8B310BC9D83551D67984ACACE94AD7F784F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

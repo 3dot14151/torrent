@@ -19,8 +19,7 @@ It Happened Here: Streaming Lives / Это случилось здесь: Пря
 ```bash
 magnet:?xt=urn:btih:DF44C3649F5CE4F7E043B2D045B15E7BB45BA161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magic City Detective 3: Rage Under Moon / Волшебный город 3: Яр�
 ```bash
 magnet:?xt=urn:btih:753D6FB551507F53036900E1D7BAFD161C447961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

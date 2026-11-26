@@ -19,8 +19,7 @@ Acronis Universal Restore обеспечивает гибкое аварийно
 ```bash
 magnet:?xt=urn:btih:1EFBBA1D5869EFD3BFF09250DDB807F7E5EFDFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

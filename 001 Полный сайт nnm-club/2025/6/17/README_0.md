@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:808B7EF882581A51029F8B24474991171AF658A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Hero of the Kingdom: The Lost Tales 3 / Герой Королевства: Ут�
 ```bash
 magnet:?xt=urn:btih:B11ACFA0426540894DB3D05E4428266B0CF7AAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31D737463906E15EDE305A000F1DDCCEE73D4C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ CorelDRAW Graphics Suite 2025 26.1.0.143 (x64) RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C5E47D3AFA715F6BDEB85A902F8E44992E318581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ The Long Dark (2017) [Ru/Multi] (Build 2.44 157357 S/dlc) Repack Let'sРlay [Qui
 ```bash
 magnet:?xt=urn:btih:2AD9E1E8FDC4DA6D187793CFBECFA1E19EE1C931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F154DE1C75F3DDC078F59CDE3D237BC9DBECAD4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Windows 11 24H2 (26100.4351) x64 by Bruxer [Ru]
 ```bash
 magnet:?xt=urn:btih:A7050411756F6D053F25C3728A1AA68B8E213584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:AD4E7598C231D1EB94D97135EEBAE300390BEFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EFBB3C7AD3C9E2D1893803E7FA7FABCC4597323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Microsoft® Windows® 10 Enterprise x64 LTSC 2021 21H2 RU by OVGorskiy 06.2025
 ```bash
 magnet:?xt=urn:btih:8FF178F08BB9D81607F06AC0FD99D5CC550CF571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Let'sРlay [Premium Ed
 ```bash
 magnet:?xt=urn:btih:FE7B8B4533CF64043695CBA68DA78AA50389C63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Lynda.com | CSS с LESS и SASS (2012) PCRec
 ```bash
 magnet:?xt=urn:btih:521BB25B401B29A1159E3EEC8694DC2C970B6934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Diablo 2 Resurrected - это переиздание Diablo 2 для совре�
 ```bash
 magnet:?xt=urn:btih:2213CFB1A862810D94AE8A6F69F9682ABDFA679E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Opera One 119.0.5497.110 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D9597C703D87C645B09C774DD22D1567610BC2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0B5E6FA747DBE07BDC64C61F9AE37DF95134483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:E1404089AA433E972577DCA1AFFFB91FF4C21BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Microsoft Windows Server 2025 поможет вам справиться с вы
 ```bash
 magnet:?xt=urn:btih:C80287ECFF656AEA23E436141A991C26BE31D00F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B47065C41ABFE2122B8E99C6F1C30CABC961D111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +470,7 @@ STONKS-9800: Stock Market Simulator (2023) [Multi] (0.6.2.19) License GOG [Early
 ```bash
 magnet:?xt=urn:btih:D6DDD369302BE97FAF91CC9285E131B018D293C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +495,7 @@ Hero of the Kingdom / Герой Королевства (2012) [Ru/Multi] (1.6.1
 ```bash
 magnet:?xt=urn:btih:C8DC9CC1D4315EB011BBA3F741E3786743DB34B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ GroTTesque - Коллекция (+Bonus) (2014-2024) [MP3|320 Kbps] <Heavy, Indu
 ```bash
 magnet:?xt=urn:btih:34D560586632BF83413399AC0173DCFC9DCFA0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22402C7E753DD87CD3807DC7EAA7E6690F8CE375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +624,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Scene Rune [Elite Edition]
 ```bash
 magnet:?xt=urn:btih:69FE0A0486CF0BA65F9647B461A3684014BA788D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +649,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.524/dlc) Repack FitGirl [The Galactic Te
 ```bash
 magnet:?xt=urn:btih:16CA7B90C4AC483F796DDD049D05BED1B2631345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

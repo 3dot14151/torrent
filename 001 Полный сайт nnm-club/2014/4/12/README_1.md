@@ -18,8 +18,7 @@ FileSearchy это быстрая и удобная программа для п
 ```bash
 magnet:?xt=urn:btih:F735A8FF7D6B1D8C3770632BDBEE532FC902C20E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Ayman-Hisham-Mars Lasar - Mystic Hits: Best Dreams, Vol. 19 (2001) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:AEFB718A828D13A5FEB562E223ACDEB80599C6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:5C0CC5B8F5CCFFEDF9F04E2FE4CB36BEB89D6F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BD643088E554DC43DF7961483D6F43AB5A3708C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:C193483BA936EA459B202431E7D53B5E4710EAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51CF42E9251045E51FCF8D19C3895E186116B876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D543E4551866F4C604E1ADC59D7D77A058E9048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - Think about the Eternal... (2014) [MP3|128-320 кб/с VBR/CBR]<New age, En
 ```bash
 magnet:?xt=urn:btih:BD0A3D7DE777219BC83623D83E2AD528B6464FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:139FD62D161A242297F6EA959C96026049056454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ VA - Drum & Bass Arena 2014 (2014) [AAC|WEB-DL|256 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:BCA0B36E6CE976B6F6AE718F3F477922ACFF335F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ EaseUS Partition Master — удобная программа для разби�
 ```bash
 magnet:?xt=urn:btih:E4D10715B1B04EB5220E6C9FFA3B1CF38B2518F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Comedy Woman  (2014.04.11) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:D60A424EE85CC0B356D5C8A68DD16BADE40E08B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5395C916D0B1CE316CAE3C3B9A661E6DC5CEF561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Lars Danielsson - Liberetto (2012) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:0FF4091E80DCC4CDC011EDB1F116A1F014EFAFF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ S. Carey - Range Of Light (2014) [MP3|320 кб/с]<Dream Pop / Indie / Folk>
 ```bash
 magnet:?xt=urn:btih:2BD411CFC54458C55CC48FBD862C78EEA036F0A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2F0F520E252AF6649F4D6BB4FA4804CC0070F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:EBCCCE76AFC13131B18BAC55E2D0623A49D5FBE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Cadenza: Music, Betrayal and Death (2014) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:7DA72E0B07D25FDEB014DB53BCF16750173594E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +528,7 @@ VA - Хит-парад. Top 100-ка весны (2014) [MP3|256 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:97AF85DE296BAD19E24823FBADA94BF6A8A48664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +561,7 @@ Maggie Reilly - Heaven Sent (2013) [FLAC|Lossless]<Pop, Folk, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:C6AFA30C759A6D1FE1D53EF7ADA5CEE24BCC53EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +586,7 @@ GifCam бесплатное, легкое и забавное приложени
 ```bash
 magnet:?xt=urn:btih:C21438B8F3FF41C0DE7516C05446889F45231548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +611,7 @@ Garmin: Brazil Autoguia 3.30 & Brazil TrackSource 14.02 (03.2014) <Pr>
 ```bash
 magnet:?xt=urn:btih:9EAC05AE9E95FB07E64D6B978818BB36EF169C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:FCA9A9A04C797A43E7A9DC18242B25A60FAA2E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:E558DCBFBB8830E7ACAEEEF075E2C51D6AB6BFAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:F226F5E5EDDE5708B2ED8E62E176443DAC3A791F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07615DD031AD857150D5DE5A09D055A1259B0402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

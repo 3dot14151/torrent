@@ -19,8 +19,7 @@ Not A Hero - пиксельный 2D шутер от независимого р
 ```bash
 magnet:?xt=urn:btih:0586841B3D0401ED7100F5BAE3387970FD1F435B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gravi - интересный платформер, с элементами го�
 ```bash
 magnet:?xt=urn:btih:331D09E2E5AF27A6F90092F5EAA315EFD82240CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Fifth Expedition (2016) [En/Pl] (0.7.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7779021B6B0D79FA5750A83ED0E6919CBDD04C6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 ```bash
 magnet:?xt=urn:btih:D15852C8DF2EC14411B3FD52CAEBDD5E44F6D996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 ```bash
 magnet:?xt=urn:btih:74DD9BD56A5536F9FEB8D95D1AEE530F51F68E3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Darksiders: Wrath of War (2010) [Ru] (1.1/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:799673D0489C75DF0F4876FC2F50677CFDFC4C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

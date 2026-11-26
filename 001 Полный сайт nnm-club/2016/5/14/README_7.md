@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8630B39BDB6030B43219FB002CE0E1A0753BE305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ ITVDN | Unity 3D Advanced (2016) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:C55C8C748DC3953F9294FEBFC9789C3E1BD39BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EED05A05BC626CD9FCE830B4708E14C3B507DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:582F1251548DC9C5EC150C89B3F52A0025D02831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39FE977FD4CCC7C5BE67AC2F46A1E99175EC3252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Project CARS - это потрясающее гоночное путешеств
 ```bash
 magnet:?xt=urn:btih:599D236D868428DB2BDE922EE7C96304270A8D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A85E7A658649644762FACCEF7C99BF9496A695B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D46548D0859AC2EA31387DC5A9517FD5171C874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ ABBYY FineReader 12 Corporate – программа для распознава
 ```bash
 magnet:?xt=urn:btih:9221049C4057F7CC383F1B40335159BA63F80E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ VA - Melodic Metal Anthems vol.01-34 (2014-2016) [MP3|128-320 кб/с]<Melodic M
 ```bash
 magnet:?xt=urn:btih:B522F5D125BA98DC87236B184288DE5C01B08CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ CorelDRAW Graphics Suite X8 18.0.0.450 HF1 Special Edition RePack by -{A.L.E.X.}
 ```bash
 magnet:?xt=urn:btih:2297B21C0846F9EDB0038DF67C8A06D552BA0AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Windows 10 Enterprise LTSB с обновлениями по май 2016 + на �
 ```bash
 magnet:?xt=urn:btih:082D730C55374EEDB933AB2395264EEBF721C365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

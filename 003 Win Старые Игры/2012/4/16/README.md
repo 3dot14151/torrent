@@ -19,8 +19,7 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 ```bash
 magnet:?xt=urn:btih:DC36E45418C59209C834A68FD5CF0B4269A71B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 ```bash
 magnet:?xt=urn:btih:E1BB2C40757D52BFE0B700D845327315B717B2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lemmings Коллекция [En] (Rip/RePack) 1991-2000 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

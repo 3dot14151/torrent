@@ -19,8 +19,7 @@ IconPackager это полезная программа для тех кто л�
 ```bash
 magnet:?xt=urn:btih:ACF0AB4A176C31F3923F3D35DC9BD4DF6F115E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

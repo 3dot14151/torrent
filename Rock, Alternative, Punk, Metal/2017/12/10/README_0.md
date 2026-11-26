@@ -22,8 +22,7 @@ Nothing More - The Stories We Tell Ourselves (2017) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:3DA77C4957005A9138D980D958C6F63C93ED8582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84F32F78A35CEC55A064B70797A355110FF54F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ U2 - Songs of Experience (2017) Japan Release [FLAC|Lossless|tracks + .cue] <Pop
 ```bash
 magnet:?xt=urn:btih:C45821BD7962C29D2B9F881349B00BDCDB115360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cavalera Conspiracy - 4 Альбома (2008-2017) [MP3|320 кб/с]<Groove Meta
 ```bash
 magnet:?xt=urn:btih:9CA44E3E2C7B7036E6F466496A502D32F8723B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

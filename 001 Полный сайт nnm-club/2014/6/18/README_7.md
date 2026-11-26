@@ -28,8 +28,7 @@ Impurfekt - Repurfekt II (2014) [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:57341BA5EFCCE9CC42640CA0482DDE61505F74A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43BA9D4BC6BCEC567248B752808FE3113B2ECF8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Obsidian Gate - Whom The Fire Obeys (2014) [MP3|320 кб/с]<Sympho Black Metal>
 ```bash
 magnet:?xt=urn:btih:E8972473E9C8ED06A2F3F516F4ACC3DD1E6E650A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79BA5EA8FBE2D82A4B58A0508FE46ABA08F2DA6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Ibiza Trance 2014 (2014) [MP3|320 кб/с] <Trance, Uplifting>
 ```bash
 magnet:?xt=urn:btih:2F3C15C4636D1030007CC36CB572DB5BAF71CEBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Veni Domine - Light (2014) [FLAC|Lossless]<Progressive Doom Metal>
 ```bash
 magnet:?xt=urn:btih:31038D3D4980D6B89A45A459B95634A5C95B6BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ A Better Finder Rename умеет извлекать EXIF-данные о вре
 ```bash
 magnet:?xt=urn:btih:4F32F8323D6707CB5412B5CEAE028B9DA9ED3BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DFAB4ABD3120918591827D5723B779364D702DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27827C0D95DA595D02A3D98D33BA3184DD07E8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ VA - Soul Sessions (2014) [MP3|320 кб/с]<House, Deep House, Soulful House>
 ```bash
 magnet:?xt=urn:btih:8EE1867941604540C88DCEE073400B1507BDDA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ VA - Glovel Records Presents Ibiza (2014) [MP3|320 кб/с]<House, Progressive H
 ```bash
 magnet:?xt=urn:btih:0B153ECAA85FCE8D4E7254838A4D7BA9DC2848BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ Auto Bild - авторитетный европейский журнал об а
 ```bash
 magnet:?xt=urn:btih:7895CDAC8517D3FFAEAC19B89519593A76232B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ Heidra - Awaiting Dawn (2014) [MP3|320 кб/с]<Folk Metal, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:938EF2E0936B6778FF4ED7EA241C13E7A225F7EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B95843733E2416CFC74317709FDC55652294060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ VA - Black Hole presents: Brazil 2014 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:770363A1109B9EECFA9FCE3FF834B5544DE8602D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ Falconer - Black Moon Rising (2014) [FLAC|Lossless]<Power/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:2A65C13CC5BF3D4BF8FCCD0D45F9288518624933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:959F2E6FB31AF13F7B653D0343C75ADA17D934E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E5BA46EF7E8548BFB2B7D61D4DC0DB2914DCEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ Lethian Dreams - Red Silence Lodge (2014) [MP3|320 кб/с]<Atmospheric Doom Met
 ```bash
 magnet:?xt=urn:btih:B15133FD070FAB92EBE4A967CC21A53D8085CA9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E06ADBB146638B3712F9EA4AE1961E47658436C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ Twilight Force - Tales Of Ancient Prophecies (2014) [FLAC|Lossless]<Epic Symphon
 ```bash
 magnet:?xt=urn:btih:4683DDB6FC0479EF71793B3B3CF808ABC642D572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ VA - Costa Del Mar Chillout Lounge (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:036C9B44EE1956FBAAD3B0EC610C16F4ADA8DDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E31DAF0690AF8FE94D1D2408CA28954AF52BC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10F184C167B8CDE550CA5F903D43B0425DFAD616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

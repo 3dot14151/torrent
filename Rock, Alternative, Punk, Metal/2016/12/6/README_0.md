@@ -22,8 +22,7 @@ Eternal Idol - The Unrevealed Secret (2016) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:8D66262C0214A3FED2339E8F73FE2F4E9C1E45C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Killers - Don't Waste Your Wishes (2016) Compilation [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:6AF3A2F2345FBEBA294B55F5C7C0251AC9F35F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Creedence Clearwater Revival - Ultimate Creedence Clearwater Revival: Greatest H
 ```bash
 magnet:?xt=urn:btih:7C81895E542DEC6E5E5B15E081F4921C0A8B66D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

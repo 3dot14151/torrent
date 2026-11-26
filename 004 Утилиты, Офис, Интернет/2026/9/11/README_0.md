@@ -19,8 +19,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:C5BD007247EB48A06B7E822D13C97135AC0108DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ InnoExtractor - это приложение, которое поможет ва�
 ```bash
 magnet:?xt=urn:btih:87A0E56F72954FFDB928E9199689D8F0E5596B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ OCCT 17.1.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:1CBE8E1EA99409C0BC5B0CC3065723DE4AABF2A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ MAX Desktop 26.31.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D71F669B521927792A25D021B2B0F604BD46E0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:9AF7C1EF0EDDBDF3C828B4AA5F140D719C9ECF39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ MAX Desktop Portable 2.5.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:0C26F1C3772156EBE320D8CB1FA03160B3120014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ DameWare Remote Support & DameWare Mini Remote Control 2026.3.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:0787C369716A04202DBBAE4DAFE5E51DAD0DD54C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The World's Legends: Kashchey the Immortal / Кощей Бессмертный (
 ```bash
 magnet:?xt=urn:btih:9D233713111E816978DA99731A031793016BC594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fade to Silence (2019) [Ru/Multi] (1.0 hotfix 3b) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:CA0DC34FF9D1DC2D6446111236A3A0DF176D2AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Subject (2018) [En] (2.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9E05167E1B9350887B5F60FEF9612409D162A1F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Far Kingdoms: Hidden Magic / Дальние королевства: Тайн
 ```bash
 magnet:?xt=urn:btih:59BB768FA0CC13C6F407876E86430A2DEB67976D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lorelai (2019) [En] (1.0.4/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:BFF2D92C6B84284275F8CB8093D17E8C5600C6B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Swords of Ditto — небольшой ролевой боевик, герои �
 ```bash
 magnet:?xt=urn:btih:1C6784842E25B37233A1ACF78F0721C13268D5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.2.73/dlc) Repack R.G. Catalys
 ```bash
 magnet:?xt=urn:btih:711C49AE99A5B2DE7FB8D471958E601D0A317944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

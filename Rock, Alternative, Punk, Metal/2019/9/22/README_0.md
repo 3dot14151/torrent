@@ -22,8 +22,7 @@ Apocalypse Orchestra - The End Is Nigh (2017) [FLAC|Lossless|image + .cue] <Doom
 ```bash
 magnet:?xt=urn:btih:3A35C0E6CC09311571FDAE6E62316DE1C8F6F9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ IQ - The Road Of Bones (2014) 2CD, Special Japanese Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:C90D23ECAA01D330EB4968B216E64E8DF6250D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Metronomy - Metronomy Forever (2019) [FLAC|Lossless|tracks + .cue] <Alternative,
 ```bash
 magnet:?xt=urn:btih:7E87B519D00946C610F08946EAFF0DB30072AA5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sum 41 ‎ - Order In Decline (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:A2C22195DEB6984D2BEE349B6CBD50DF2E31CBC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ INXS - The Remixes (2004) Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, N
 ```bash
 magnet:?xt=urn:btih:7CFAB6323A7FE13C7285EBF9D05548E371422732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ A4. Let Me Go(   Читать дальше...   )Жанр: Pop Rock, Power Pop, 
 ```bash
 magnet:?xt=urn:btih:3145DB3A8A9B7798AB260619706781D88517C6BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Transatlantic - супергруппа, играющая в стиле прог�
 ```bash
 magnet:?xt=urn:btih:4D5224C3FF4411577335C60112ED5DD1370A32CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Status Quo - Backbone (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Class
 ```bash
 magnet:?xt=urn:btih:36E43EAF75B5BF4F925124F1F896137B54FB0348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Paul McCartney - Amoeba Gig (2019) [FLAC|Lossless|tracks + .cue] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:388DD174D601F4F5298B45F482C74434D3DABA78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The 69 Eyes - West End (2019) [FLAC|Lossless|image + .cue] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:561A1424261F277022E470295CBBE5EC5102243C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Grab Photos From Videos / Фото из видео v11.2.0 Mod by Mixroot [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:7A26652038BC5FF74D0BFE2C61C961E197A43296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ YouCut - один из самых удобных и оптимальных по 
 ```bash
 magnet:?xt=urn:btih:FE2BBBF855BEF15283AAD7FAD0F9647C9B22B047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

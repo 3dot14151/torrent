@@ -21,8 +21,7 @@ LG karaoke 200 ver.8.0 - 200 суперхитов (2009) DVD-9 <ПОП>
 ```bash
 magnet:?xt=urn:btih:E41F3BE558ED846C55A28F083CF905E28C29D187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63D983539C799CA7B6AA6BABCF15139982168CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

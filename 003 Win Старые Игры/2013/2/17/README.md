@@ -20,8 +20,7 @@ Blue Shift возвращает нас в исследовательский к�
 ```bash
 magnet:?xt=urn:btih:5F52A452DC4C0CB2C20CEBE21BDE33DD55173C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Blue Shift возвращает нас в исследовательский к�
 ```bash
 magnet:?xt=urn:btih:5F12C872A3BBAE4CCDFB5C599D589403F381BDEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Half-Life Opposing Force - самое первое дополнение к Half-
 ```bash
 magnet:?xt=urn:btih:6B65F111D2F6749B407EBF41BF00BE26C8D0F076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

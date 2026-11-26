@@ -19,8 +19,7 @@ UberSoldier / Восточный фронт: Неизвестная война (
 ```bash
 magnet:?xt=urn:btih:30882F1BACDB006632F05A1B47279C45834B96FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

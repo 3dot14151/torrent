@@ -19,8 +19,7 @@ Omerta - City of Gangsters – симулятор гангстера, дейст
 ```bash
 magnet:?xt=urn:btih:2136357E1EA725CF292FD4CA57839FCD668C8DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fran Bow - очень жесткая хоррор-адвенчура о мале
 ```bash
 magnet:?xt=urn:btih:B5D238940B56349917DB64A1C8D684CC613E6AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

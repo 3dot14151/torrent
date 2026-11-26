@@ -19,8 +19,7 @@ Universal Copy — это самый быстрый способ копиров�
 ```bash
 magnet:?xt=urn:btih:DEF2F8312E78679EB7E6D5E30E77A879AD27A853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

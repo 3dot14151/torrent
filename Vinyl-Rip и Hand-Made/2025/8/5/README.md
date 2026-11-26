@@ -22,8 +22,7 @@ Pink Floyd — одна из самых великих групп в истор�
 ```bash
 magnet:?xt=urn:btih:0D6315DB1502077BAA5A1EC716C15CE0D8591D6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ LP4, Close To You, MFSL 1-132, (mono)Жанр: Vocal, Ballad, SwingПродол�
 ```bash
 magnet:?xt=urn:btih:C0EFF431D62180F064DFD29AFE03DE9621067AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

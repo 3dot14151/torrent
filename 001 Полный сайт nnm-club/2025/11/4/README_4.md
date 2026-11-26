@@ -18,8 +18,7 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:C49C86871E3EAA1B604C854B22C7003ED50DEB99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ The Scouring - это стратегия в реальном времени, в 
 ```bash
 magnet:?xt=urn:btih:4F207C9EF6CC028697227AE95901D0B7AEA70E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Plus Ultra: Legado - это 2D-метроидвания, основанная н
 ```bash
 magnet:?xt=urn:btih:8E94AC97F24104BB1E5AB8F13B0638B24DB5C5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:25B7A235C0D2DD618AB1AB913B10D981CCD1CCB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ PowerWash Simulator возвращается! Красота в чистоте! 
 ```bash
 magnet:?xt=urn:btih:2159983C66D1512551C14AD043B28EB7CBB21743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Thief's Shelter - это игра, где мир отражает разруша
 ```bash
 magnet:?xt=urn:btih:A4ADFB0E095048AB6814F7F6493E8DD3DA1C2C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:BCB465E6C97AE8ADA6E7B1C6A911592A88C66566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Those Who Rule (2025) [En] (1.4.2) License GOG
 ```bash
 magnet:?xt=urn:btih:B5E9941ADC84A27E6BCD8D13EE5CF87E0022E8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Roman Triumph объединяет самые лучшие черты градо
 ```bash
 magnet:?xt=urn:btih:F9D2FCAEE63CE537632DB3B3E2D4AAE6D0C26B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Trailer Park Tycoon: Raccoon Ranch (2025) [Ru/En ] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1D5A921F0A77734C6101B271DFD054318E4BD487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ Knightica - сочетает в себе жанры стратегии и сим
 ```bash
 magnet:?xt=urn:btih:4B9CD71B895BBA2444B1A68F040B9DC683B6CD66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ Super Mario Bros. Remastered (2025) [Ru/Multi] (1.0.1) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:6450F61335414FA1B2EE364793A6AA37C3015CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Winxvideo AI  - это набор инструментов для масштаб
 ```bash
 magnet:?xt=urn:btih:14175678EAEA8DF0C48269259A856E43C4F370CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE79E8EC6B77E2B9E08BB36AAF4D06C3FE1DCB26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ WhatsApp вслед за Telegram стал предлагать россияна
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

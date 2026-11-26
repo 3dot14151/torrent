@@ -19,8 +19,7 @@ Infix PDF Editor Pro 7.7.0 RePack by KpoJIuK [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3A566F6FA4E586AA3E1F43DA22564B1BD8C79F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

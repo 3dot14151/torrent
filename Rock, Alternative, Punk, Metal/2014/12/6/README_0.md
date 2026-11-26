@@ -22,8 +22,7 @@ Quercus - Postvorta (2007) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:A4162E071C9E2D2804F5A200820746948D52F38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Coronatus - Cantus Lucidus (2014) [FLAC|Lossless]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:221D9DC534D4028BCF7185601ADFC7CB6F54FBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Obscurity - Vintar (2014) [FLAC|Lossless]<Melodic Death/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:08231A6ED833E4C484119D00E4FBFC0EA947E3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Panzer - Send Them All To Hell (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CBF24EC861759B603182ECB8F88411DB7FDFDB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Pellek - Cloud Dancers (2014) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:F2F412F3A4D539B81FCF5299CE08D48C0DCA581E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Sepultura & Les Tambours Du Bronx - Metal Veins: Alive At Rock In Rio (2014) Liv
 ```bash
 magnet:?xt=urn:btih:97ACFDF2F9B4B97047D1272E00FC8307D2AD0768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Blind Guardian - Twilight Of The Gods (2014) EP [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:F9C756F27ABBCC8598389620D0C19187EBE9E0C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Guy Pearce - Broken Bones (2014) [FLAC|Lossless]<Rock, Alternative, Pop Rock, Fo
 ```bash
 magnet:?xt=urn:btih:938D02FC78B286D7EE1ABD2F12C2A07AB47F615C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ Amy Lee - Aftermath (2014) [MP3|320 кб/с]<Alternative, Instrumental, Female V
 ```bash
 magnet:?xt=urn:btih:39E69C7FC11F2C9A4D5281E2C3627AA0D05083CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ V.A. - Classic Rock Presents: The Best Of 2014 (2014) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:70EF551A8E16A995611227F0879A2BF9D48B29BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

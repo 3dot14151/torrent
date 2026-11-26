@@ -19,8 +19,7 @@ Tekken 8 - продолжение культового файтинга, нап�
 ```bash
 magnet:?xt=urn:btih:19E0381EF70D89C17129A04D1E6291D125C71FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (1.5.3.0/dlc) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:3B1F93036E7A687E5F73CF4328B51B128D18B82F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Double Dragon Gaiden: Rise Of The Dragons отправляет в захваты
 ```bash
 magnet:?xt=urn:btih:B683D0468B0C23282F6B1A20FD70C16324849A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Succubus позволит игроку стать сексуальным и оп
 ```bash
 magnet:?xt=urn:btih:A4E336690C2D72553BF01829244C559F6D87E05B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

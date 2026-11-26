@@ -27,8 +27,7 @@ Klootzak - Bloodlust (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:6B8F76574BB3A8931F8314A8B59865CF2599AC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Conflicted - Never Be Tamed (2011) [MP3|256 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:5561B6E9247C0084324528E8C23259FA94F9D02C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Divinefire - Eye Of The Storm (2011) [MP3|320 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:D19B96036355F21939AF079EFDDEED6A23796A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Silver Lake - Silver Lake (2011) [MP3|320 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:DFAFBED52595B43A9C414C8C2A7EF393996052E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Roger Glover - Mask (1984) [WavPack|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Freddie Mercury - The Freddie Mercury Album (1992) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

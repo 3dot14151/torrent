@@ -19,8 +19,7 @@ Army Men RTS / Вояки: RTS (2002) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EACB3681518624F02C869398FF0C0670662CBE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

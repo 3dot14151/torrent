@@ -22,8 +22,7 @@ Shadow of Destiny/Memories (2002) [Ru] (1.0) Unofficial Фаргус [Тень �
 ```bash
 magnet:?xt=urn:btih:70AE1B062261DC6B878F34E5FCEADE0C217B48B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Bruce Springsteen - The Live Series: Songs Of Celebration (2024) Live (Compilati
 ```bash
 magnet:?xt=urn:btih:61C8B60F459C9E88C21282BE1940A01999068BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Almo - Reconciliation (2024) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:FFE3F747DCFD21835527488E2785216E485FEC91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Algebra - Feed The Ego (2014) [FLAC|Lossless|tracks + .cue] <Thrash Metal, Metal
 ```bash
 magnet:?xt=urn:btih:F096B82A1AEB7C279262D5F492B090BC25EC2C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Gorky Park - Stare (1996) Reissue, 2023,  Moroz Records [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:64F49E2FC2923BC50B77457FDAD50E808BE7081C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

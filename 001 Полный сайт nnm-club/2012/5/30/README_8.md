@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:99C8363521A7FE9BF545591F5A8AFC0C154821F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5A178C5B0607EF9FC2D7BCB613350ED5552585C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Komputer - Synthetik (2007) [MP3|320 кб/с]<Electronic,  Electropop>
 ```bash
 magnet:?xt=urn:btih:9F49D5E892905AEA780A7417872EC647D45CD37C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Synaxaria - 3 альбома (2010 - 2012) [MP3|320 кб/с]<Industrial>
 ```bash
 magnet:?xt=urn:btih:1F69EDF15050472B4487798DA08002D873BD9E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Alice DeeJay - Better Off Alone (Laidback Luke Remixes) (WEB) (2011) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:8CEDE66AB739E25BFAC22FEEC4F61EC9F97BBE8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Fresh & Lipps - Be My Lover 2012 (WEB) (2012) [MP3|320 кб/с]<Electronic, Danc
 ```bash
 magnet:?xt=urn:btih:F510353675C804F06E777E6D14AB8A4F92790CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Floor Action - Mr. Vain (CDM) 2012 [MP3|320 кб/с]<Electronic, Dance>
 ```bash
 magnet:?xt=urn:btih:5ABD84C94694D66FA96BA49A9EB6204B89E08999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5145F0BA91AE1211CF88E92CE7FA4DBD3DE2E9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

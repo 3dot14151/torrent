@@ -19,8 +19,7 @@ Clive 'N' Wrench повествует о приключениях зайца К�
 ```bash
 magnet:?xt=urn:btih:084BFCAFAFDAC75904E5136B136FE1996094A5E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Legend of Heroes: Trails of Cold Steel 4 – продолжение леге
 ```bash
 magnet:?xt=urn:btih:60C3C8E81761D503E4EF1BAA3EE4EE4EA7763B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Captain Goose (2023) [Ru/En] (1.0) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:D599B825FD5AE1426CBD02817C76C0C09BEB8803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

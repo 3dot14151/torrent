@@ -19,8 +19,7 @@ Vaporum: Lockdown — это приквел знаменитой игры с п�
 ```bash
 magnet:?xt=urn:btih:3EBBE17BCD7B8AA83C77CDA19E4ED90810FA2FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vaporum: Lockdown — это приквел знаменитой игры с п�
 ```bash
 magnet:?xt=urn:btih:533AEE7211B40AE187556638C1031728E236D685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Othercide (2020) [Ru/En] (6.23/upd8) Repack xatab
 ```bash
 magnet:?xt=urn:btih:74F13DFBCA69F9332D4BC1CDE20A87AAA41EAE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

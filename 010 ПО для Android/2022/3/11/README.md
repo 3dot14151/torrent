@@ -19,8 +19,7 @@ TIDAL Music v2.56.0 [En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:0AC03C16E1FEF13E3CD70F07F3C83EC2A9E3A69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deezer v6.2.48.37 [Ru] - музыка, плейлисты и подкасты (�
 ```bash
 magnet:?xt=urn:btih:D44A68A7D1D1C5046735A49FE72D9D51047D7427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

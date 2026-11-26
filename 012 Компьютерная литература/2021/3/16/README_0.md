@@ -20,8 +20,7 @@ Terraform является настоящей звездой в мире DevOps.
 ```bash
 magnet:?xt=urn:btih:1ED9CA4AD69142112E45FFB7D9A5A959E0423486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

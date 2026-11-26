@@ -19,8 +19,7 @@ Prelude To Darkness - игра, разработанная независимо�
 ```bash
 magnet:?xt=urn:btih:2FB77345DAD01F1031375A28FCBE77D5CA2BFE7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

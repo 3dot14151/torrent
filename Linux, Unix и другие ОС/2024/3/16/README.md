@@ -21,8 +21,7 @@ Linux Kodachi - дистрибутив операционной системы L
 ```bash
 magnet:?xt=urn:btih:439B1A185D120E786197A816B477A4E5D2D06FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

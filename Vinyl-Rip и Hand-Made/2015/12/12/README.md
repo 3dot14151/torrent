@@ -22,8 +22,7 @@ Jeff Lynne's ELO - Alone In The Universe (2015) [FLAC 2.0 24/96|image (Vinyl-Rip
 ```bash
 magnet:?xt=urn:btih:E180AAD96C0AF6372D39F23596412C68FFF1ED0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ TransRoad: USA (2017) [Ru/Multi] (1.2.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7261A7ED76314A7A92B5C281520762051E6B86FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Steel Division: Normandy 44 — это тактическая стратегия
 ```bash
 magnet:?xt=urn:btih:F346D6CC08E27BE3445C2CE0BC0F8D9B773D3F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

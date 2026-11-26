@@ -19,8 +19,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Other s [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:3AC38367BC6F9C4FB350F02DA775F475AC9E1607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack seleZen [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:CEBF2FAAEA7EF6E44ED735A152E1AB78800B951F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Snow Ash - это карточная торгово-приключенческа
 ```bash
 magnet:?xt=urn:btih:16228BBC31F960A241D2EFB1B04FF4F42C660D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B3024D24C0BC60999316034DA1B6893615464C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

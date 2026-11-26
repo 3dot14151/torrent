@@ -19,8 +19,7 @@ Far Cry: Escape From Krieger Corp (2026) [Ru/En] (1.2) Repack/Mod Bert-Masters-S
 ```bash
 magnet:?xt=urn:btih:1A0A8C23F67E1BA93CBE95826D0DEFDD93315EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Nostradameus — шведская пауэр-метал группа из Гет
 ```bash
 magnet:?xt=urn:btih:3857F0FB702B7EE045CD2655C1A02A88C3EB6188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sybreed — швейцарская индастриал/грув-метал гр
 ```bash
 magnet:?xt=urn:btih:9CC405A35871419CE8B65196B73EC4FA6D09ABAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A3 Got To Have You Back • L. Smets, C. Pilditch(   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:00E10FF7D94D161227BF607A6EE8B7AF6B4B7D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

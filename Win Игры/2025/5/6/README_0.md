@@ -19,8 +19,7 @@ Revita (2022) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:29420C88C2063A107FF96A8449780E4A85BA6E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ```bash
 magnet:?xt=urn:btih:9FF1FCDEAD0568775637CA3745E37998378E1EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4FE5AC4870BD34214532BB6B709FBC1F06D3176D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CA9B2E1A7D0CC2842D0545EB9879B3EEE4194666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SubwaySim 2 (2025) [Multi] (2153) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1F11E75C47ECDC21731044562083EB0FCAC80855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Redemption Reapers (2023) [Ru/Multi] (1.4.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:904106423C197133E9E8217AF345AB24BB3A2727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cybernetic Fault – сатирическая приключенческая и�
 ```bash
 magnet:?xt=urn:btih:6606F27D8941EAD88358505EE981F3065B007B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Bridge to Another World Remastered: Burnt Dreams / Мост в другой ми
 ```bash
 magnet:?xt=urn:btih:F56D365B2681972ED8FCF0DCEA396D5505336E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

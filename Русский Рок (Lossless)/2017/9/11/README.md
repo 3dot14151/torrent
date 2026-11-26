@@ -22,8 +22,7 @@ NRKTK - Black (2009) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Rock>
 ```bash
 magnet:?xt=urn:btih:C17FD6B212EE36E3B9B8F3AC8FC42E305FBF89F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

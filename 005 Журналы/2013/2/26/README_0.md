@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:704F049F60FF3E94A1F29BF46B431F8264D81FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE4142276BBADD1E15B04CC7E511F8496C1E7D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Burda — самый популярный журнал мод в мире. В с
 ```bash
 magnet:?xt=urn:btih:8FCE8DC6458271D08254D0A808F31CB1F0685EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Computer Bild вышел на российский рынок компьютер
 ```bash
 magnet:?xt=urn:btih:856A657153C19E7EC5BE4FA980547AA59A9CD08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

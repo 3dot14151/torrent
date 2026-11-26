@@ -22,8 +22,7 @@ VA - Classic Rock 1968: Blowin' Your Mind (1991) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:2603D8C0210C0E3A8584B632C852F103CF70E0A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Asagraum - Potestas Magicum Diaboli (2017) [FLAC|Lossless|image + .cue] <Black M
 ```bash
 magnet:?xt=urn:btih:ACC73E00DF8176C5890BDB20624D9EA3D8336E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Abraham, Baker, Lyndon - Where Do We Go From Here (2026) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:0349F6BC353BD21113EC361CDB3599C87A7F9486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Faceless Mirror - Journey 'Back' Home (2026) [FLAC 24/44.1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:9EC93BBCBBD216D0782B766BC4A02446732A2556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hallas - Panorama (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:327C7E2D52466C8C170023948208AC7350A8C645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Lily Lowe - Beautiful Disaster (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mel
 ```bash
 magnet:?xt=urn:btih:9D723D536F8EC35D26FB9139F2DDE7D9FB58CF5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mynd Reader - Mynd Reader (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:C3E6C4FB24C81DE5499A98D67ED6F7F8106BBCD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Silversun Pickups - Tenterhooks (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alte
 ```bash
 magnet:?xt=urn:btih:DFAFA460CCFF80AF62E0CAF0209076C5890B574C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Summer of Hate - Blood and Honey (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:24CA2CC36B367B1DC8F67AC1C9FCF1400FAA022B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Sunday Night Low - Loneliness & Sadness (2026) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:B949B99D9B4EC0DE6CF6EE07ABA0F1CAF13A27FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Sweatmaster - More! (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:EE1DA75793BF5E5633E00751B1F51DB9AB89E959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ The Blue Van - Recording Club of 1996 (2026) [FLAC 24/88.2|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:3453F21442C81B6F57E2EDA77CB60FA0F63C5DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tag Team Карате Борьба Игры: PRO Kung Fu Master - качеств
 ```bash
 magnet:?xt=urn:btih:5FFA3868C50FBB7DA1C1EC226A22FEE47A469E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sonic Dash – раннер от SEGA про знаменитого ежа на 
 ```bash
 magnet:?xt=urn:btih:26D4E1F25D7DD8F686153667CE9A167264171C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Awesome Tanks – захватывающий экшен на андроид, г�
 ```bash
 magnet:?xt=urn:btih:362C4557EF6630BDDD16B257CC71F22F0B169223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ X-Plane Flight Simulator v11.4.6 [En]
 ```bash
 magnet:?xt=urn:btih:0B5BD9D864A1CE68F9CA9F18FB00CB922A75DD97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BC3ADD077039423795E4D0213DB2A71CCA7FED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

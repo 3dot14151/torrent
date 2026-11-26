@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D99AC2AFEECC5C9D8FA9E1F8A5E4BCE8C3659DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Marten Deinum, и др. | Spring 6 Recipes: A Problem-Solution Approach to Sprin
 ```bash
 magnet:?xt=urn:btih:9EE4C63524B9BAD144E307373EBEA1637513077D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06AD4A8AE3A9906459DCC8E53A1A498D97E1F291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Federico Kereki | Mastering JavaScript Functional Programming, 3rd Edition (2023
 ```bash
 magnet:?xt=urn:btih:1D60C7615AF2E2BE4B9020B609FE4A897AB40D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E24EBDDF53FC650B98B12101C735DA71C21992E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:16E89A55FC201EEB7E2B2E4F010CF84981E15F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:15C01A611C7C278D591590862FD7F61F140FD031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C790ABE7B13B0EE7345A96D3296D3EB34496540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ FITLAB, А.В. Михалевский | Бои без правил для диа
 ```bash
 magnet:?xt=urn:btih:486905934EA196CBEFB6311EC4FD4CE9B2CC2D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:F3F43494C4DB26ADEDA8E8CFA6BB8B8FD54838D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC6CC6CFBA44BE938D9B17C51831B0A28BC54DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Scanner позволяет быстро удалить (   Читать дал�
 ```bash
 magnet:?xt=urn:btih:C8B2BF6C36C72B4DBBE953072AAECF7F937459C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:009A58EAB6DFC852A9F366F24EA50F7F10E354C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDF86B3745A2C042B25FBCAB0129BD44E0C2D35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DA06A56721D91E93C7E8EDCDC3085BD5CB4C004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72A2B7A7259C95F85BD64B9D3D1D884FAF77630B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Scorn - атмосферный приключенческий хоррор от 
 ```bash
 magnet:?xt=urn:btih:B01766286EA7DD5039F4A3E28A711A643BB8429A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AA41E4E952C7857D8BB434F907A2343C00084FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ Windows 10 Pro 22H2 19045.2965 x64 by SanLex [Lightweight] [Ru/En] (2023.05.29)
 ```bash
 magnet:?xt=urn:btih:0A8CC5F7BBF413580FC0D40719B9022E55F7197A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ Dan Croll - Fools (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:59245B2F3B142E1F7D1CFDDA4D892FF5861C9A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Teodor Wolgers - Dialogues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Film So
 ```bash
 magnet:?xt=urn:btih:72C09B453C00DAF1B43B3BB42E52AE528F34DCEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ Khanate - To Be Cruel (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
 ```bash
 magnet:?xt=urn:btih:A0FB1032C6766CBE7848A1EC76E707D63A531406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ Hypocrisy - The Fourth Dimension (1994) Remaster, 2023, Nuclear Blast Records [F
 ```bash
 magnet:?xt=urn:btih:C0687F449255C80708D134B2969B1683E9B00DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ Eleni Drake - Surf The Sun (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 ```bash
 magnet:?xt=urn:btih:E8CDA25353CD14035D62AF2883D399B9A05725A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Rampage - Asgard (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:DEA11628F74CA3D65123AC28CC754D8EF2D7761F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

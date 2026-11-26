@@ -27,8 +27,7 @@ B04. На улице жмуром несут АбрамаЖанр: ChansonПро
 ```bash
 magnet:?xt=urn:btih:45C42CF8A976CF29480F2B77EF457918596CD504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

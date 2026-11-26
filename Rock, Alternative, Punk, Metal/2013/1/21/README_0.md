@@ -28,8 +28,7 @@ Letzte Instanz - Ewig (2012) Limited Edition [MP3|320 кб/с]<Folk Metal, Gothi
 ```bash
 magnet:?xt=urn:btih:8C90BB82CCFB2C31DAA8FAB58AB250F89A634C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Sin Fang - Flowers (2013) [MP3|320 кб/с]<Indie-Rock, Dreampop, Electronic>
 ```bash
 magnet:?xt=urn:btih:6771571BD3BE427A0F5B4A4F6838B45D8F814CDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Catharsis - Острова во сне (2013) Maxi single [MP3|320 кб/с]<Powe
 ```bash
 magnet:?xt=urn:btih:60EDD3D537729F0C80245848E353A98D9B189756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A34F2DDF18E9F8C6AD13B411F88B23C7BBF6410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

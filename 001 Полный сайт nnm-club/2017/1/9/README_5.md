@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:942C70C9DD19222BC78764A3342BBFD1C4B059CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Mount & Blade: With Fire and Sword / Mount & Blade. Огнем и мечом - �
 ```bash
 magnet:?xt=urn:btih:00DC29D9325A94B5F7743FDA8696153179628A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B109720E4E18E85AE33E60635203E25F80C63DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Hexlet | Полная версия курса "Бэкенд JS-программ�
 ```bash
 magnet:?xt=urn:btih:8DEDE892053D110968A13565D637638E3F278F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Movavi Video Editor - мощный и между тем достаточно п�
 ```bash
 magnet:?xt=urn:btih:DA15E3E556AB2D34F99F0F6A0656EDE0CE42A047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03166084954BC51041DDE0EBB7FA33A19623F4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack R.G. Механики [Apex 
 ```bash
 magnet:?xt=urn:btih:E5AB9B965A1BB22E052AFAFB555756B9CF0F368A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

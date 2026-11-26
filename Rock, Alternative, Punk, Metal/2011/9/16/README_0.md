@@ -28,8 +28,7 @@ Silver - 5 Albums (2001-2005) [MP3|320 kbps]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Ingested - 2 альбома (2009-2011) [FLAC|Lossless]<Brutal Death/Deathcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Whitesnake - 20th Century Masters - The Millennium Collection (2000) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:E7735763AE38F88CC58D313C3F7045143E90B546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Led Zeppelin - Golden Ballads (1996) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:6095CE8872095C099EFBB4EB5AB6DD6377EB3520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Roger Waters - The Album Collection (2011) 7CD Box Set [FLAC|Lossless]<Prog Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

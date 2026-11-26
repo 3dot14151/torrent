@@ -20,8 +20,7 @@ In Acing the System Design Interview you will master a structured (   Чита�
 ```bash
 magnet:?xt=urn:btih:658C46CF86A0584F983949CA7CB1940E8892DE6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

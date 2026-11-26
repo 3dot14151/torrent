@@ -20,8 +20,7 @@ Ghosts Of Atlantis - symphonic / groove / melodic death metal группа из 
 ```bash
 magnet:?xt=urn:btih:8200375B0A531425238C298EC4A5F1B0B32B0CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Mezzrow - трэш-метал группа из Нючёпинга, Швеция
 ```bash
 magnet:?xt=urn:btih:E67D073C407B71598286A1F7516C25B4DAF8EFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

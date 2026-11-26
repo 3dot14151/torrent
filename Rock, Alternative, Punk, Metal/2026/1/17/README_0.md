@@ -22,8 +22,7 @@ Sylosis — британская метал-группа из Рединга (Б
 ```bash
 magnet:?xt=urn:btih:FBB01E40738CBFB6D72DE65725DB96054400E7F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crematory - Illusions (1995) Remastered, 2000, Nuclear Blast [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:D96BA968F1A40F9DBB80790B934589FC39702F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60D5C844ACFE5F551CE6D70E08AF0C25599CCD88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

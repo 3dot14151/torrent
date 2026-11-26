@@ -25,8 +25,7 @@ Waldgefluster - Meine Fesseln (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:5281786FA96AE7411EF4BD2DAA2C635CDCBBD525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Free Spirit - All The Shades Of Darkened Light (2014) [MP3|320 кб/с]<Melodic 
 ```bash
 magnet:?xt=urn:btih:FADA654AB5F64FF471A31F7B62B97AAF11108A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Vol. 1
 ```bash
 magnet:?xt=urn:btih:E8324A1EF43D2A6F9025E1F6680DDC94BD5E7A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Apocalyptica — финская группа, исполняющая метал 
 ```bash
 magnet:?xt=urn:btih:80EBAECD102E52E1B2B72AAB95422EB5F454B0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

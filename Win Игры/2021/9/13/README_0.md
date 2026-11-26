@@ -19,8 +19,7 @@ RPG о выживании в городе. Человечество порази
 ```bash
 magnet:?xt=urn:btih:7AA101640C53BED50F14E16D24A7A2327338BAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

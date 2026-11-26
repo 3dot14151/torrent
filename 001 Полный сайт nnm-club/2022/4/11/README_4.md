@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B36B3EC96A655BA400C9B41E8948E9EB269F55CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 ```bash
 magnet:?xt=urn:btih:119EEE06B95985C767E80F71DD41A5A6AD38E86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BB2932554256E2A95A79E84F319251327173CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

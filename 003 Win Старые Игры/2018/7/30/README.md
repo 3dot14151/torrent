@@ -19,8 +19,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 ```bash
 magnet:?xt=urn:btih:05275B76EC9C0948F0EBD050EBA2FB430D82DC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

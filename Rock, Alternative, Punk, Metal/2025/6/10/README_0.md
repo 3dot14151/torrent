@@ -22,8 +22,7 @@ Mesmur - S (2017) [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
 ```bash
 magnet:?xt=urn:btih:E533F4B9DF5F3295778D5744A392D773B9D4202C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Räum (Raum) - Emperor of the Sun (2025) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:407FEF99DAC85B9595FF1C8D606B387CB65A729D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Caught In Action - Out Of The Cold (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 ```bash
 magnet:?xt=urn:btih:FFA0EC88F83A968F7D564C2F176CF04837BAD839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Animalyze - Powerhouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Roc
 ```bash
 magnet:?xt=urn:btih:16CC1240269F95F6590280E34550191A0877F154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jimi Hendrix - BBC Sessions 1967 (2025) Remastered, Live On Broadcasting [MP3|32
 ```bash
 magnet:?xt=urn:btih:9AAB90877564DF154E055347EFD2E969F486F7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD1 - Bon Jovi:
 ```bash
 magnet:?xt=urn:btih:0F6F5E5A301376803A97393E76011B8E15944638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Skyliner - Condition Black (2016) [MP3|320 Kbps] <Heavy, Progressive, Power Meta
 ```bash
 magnet:?xt=urn:btih:39A822E829699F39FECFB6C66BB5AC5231FEE969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Skagarack - Skagarack (1986) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:16DDC74FBF383BA88D0085C5DA0D0C6E33D5EE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Feeder - The Singles (2006) Remastered [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:F201D8D0F035D5C6A78C54023803717FD8F18312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hell Boulevard - Inferno (2016) [MP3|320 Kbps] <Industrial Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:B3C604741CADD256C711092D2818A2AD2B513525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Guess Who - The Best Of The Guess Who (1971) remaster, 2014, Audio Fidelity 
 ```bash
 magnet:?xt=urn:btih:DF1A01EC914CDEB63C2779550C2F9FAA588EAB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE422597242EC0E0C4A4FACDE956C0BEF0F026B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Pretty Reckless - Who You Selling For (2016) [MP3|320 Kbps] <Alt.Rock, Post-
 ```bash
 magnet:?xt=urn:btih:384E94AC75F3F5CBCDD7A8492F1241BC24A8B085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Phil Collins - The Singles (2016) 3CD Deluxe Edition [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:4C72C712CC1F995A4B1A4CCA4C66999498CF7F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Korn - The Serenity Of Suffering (Deluxe Edition) (2016) [FLAC|lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:F24E531C011B0225091CD3AD589D36C1378667ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

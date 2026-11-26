@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:6C1138CA7EE4349A720245FBE5DF7EBB7C971CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:302390D868FC98FF6C337F82B3E1F579922E0187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jennifer Smith | Photoshop CC Digital Classroom (2013) [PDF] [ENG]
 ```bash
 magnet:?xt=urn:btih:98FE0F14EDBB152AAFF902798685D2D9394209B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B6D5E435764E7BB2D10F8CA838D3EE63C3D8B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Illustrator CC Digital Classroom is like having your own personal tutor to help 
 ```bash
 magnet:?xt=urn:btih:1E155CC2D571CCAF3FD672A3ED901F7A22D2CAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

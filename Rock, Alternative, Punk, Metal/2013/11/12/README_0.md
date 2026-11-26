@@ -28,8 +28,7 @@ Mother Black Cap - Energy (2013) [FLAC|Lossless]<Symphonic Prog / Progressive Ro
 ```bash
 magnet:?xt=urn:btih:2B43B4929EF77F8EFFA46DE4DB9D4ECEEAFC0899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Exhumer - 2 альбома (2008 - 2013) [FLAC|Lossless]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:448B2ECA5B23945A150F230922F0F643710CCEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ The Theander Expression - Strange Nostalgia (2013) [FLAC|Lossless]<Melodic Rock,
 ```bash
 magnet:?xt=urn:btih:65101632104DAE76673013009AD451F15F4F1A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Roger Taylor - Fun On Earth (2013) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:BCAEF57F6B676CD78F5229BB67BFFD3C40C6D6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Trivium - Vengeance Falls (2013) Japan Edition [FLAC|Lossless]<NWOAHM / Melodic 
 ```bash
 magnet:?xt=urn:btih:7FC75A79F5D18F9DCF60CDF8872BBFE0E5B6C478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

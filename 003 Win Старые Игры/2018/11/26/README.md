@@ -19,8 +19,7 @@ Outlaws (1997) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:BB01038EF184C8D11840BFA4BA3F87AE17E8E3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F30A0D9671110DA0619BEA1B3E9074F450E9903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

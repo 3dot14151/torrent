@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:46C835079AEAE8132DF2FA19E88AF1A1400946F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Barren Earth - On Lonely Towers (2015) [FLAC|Lossless]<Melodic Death/Progressive
 ```bash
 magnet:?xt=urn:btih:60FBC4B55B3E69578AEDDA7777C69DE541BEDEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Damnation Angels - The Valiant Fire (2015) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:A3A2F29E078862783E2D99363FFBA34BC6386E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ The Open Mind - The Open Mind (1969) Reissue /2006, Sunbeam Rec., UK/ [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:D8901D1B1140F2FD6C85A99F3BF98CF41EA1147E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E49219130BDE04B850E89CAD01847B9B2C632DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A6702964BC3833CA0874BC1DAD8A7BA1210AF4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - 40 Dance (2015) [MP3|320 кб/с]<Dance, Club, Electro>
 ```bash
 magnet:?xt=urn:btih:1A9DEB1CA675FF96835CD1C25E9AD377C082B829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - Bossa Nova Beach Breezy Brazilian Sambas and Bossa Gems (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:1116C59A1A5D11CA9B5FC1569970701DFEDC83A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5672BDB76F32B725641D68C4F23DFC5E6B9DFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A89DF424DD7986AE1C48504D261E5BC597A33F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Headphone Killazz - Нулевой Вектор (2015) [MP3|320 кб/с]<Cyber M
 ```bash
 magnet:?xt=urn:btih:E572E5FAB445297D4C88F6404ED33DBF8ADC663D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Icecream Image Resizer - бесплатная программа для удоб
 ```bash
 magnet:?xt=urn:btih:CB62812EF36A57F728FB8CAEAD047FA11815BD89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8ED6FD22EB4D9BB577CD2E217F42809597EF5873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Prize Claw – игра-аналог автоматов, расположенн�
 ```bash
 magnet:?xt=urn:btih:7D0ADF75E3A2FC72E5707E6DF2685254A9F6821D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C6AEA067865F21A575874B891243F969AF6D0B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E14306CFC17C631C8C1C517DC9FD80EB4FD912D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ vladios13 - Music Mix #9 (2015) [MP3|CBR|320 кб/с] <House, Drum & Bass> (Ав
 ```bash
 magnet:?xt=urn:btih:078E6B370581B13FD6C02A62E517492A89CD58DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Comedy Баттл. Последний сезон. Выпуск №2  / Коме�
 ```bash
 magnet:?xt=urn:btih:1CBD9D5851001E7E21886A999C7571279D73B20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ Cadenza 2 : The Kiss of Death (2015) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:D4E6B15CC0EBBA3D5BBB35FCEFBE45202FA1EC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5103A60B2ED04B2785802E1D680C1826980B4F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46EF7C374228638BD989F675E501C1E745B4C213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Garmin: NaviGuide Hungary v2015.02 NT Final [Hu]
 ```bash
 magnet:?xt=urn:btih:6D3C18DAA34646A3F3254C1A258F8B10AB0EE1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2E200B92D8B8F9258BD76CB564E50F5A2229163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31DF52FDDA1055CEFCB1D0735C74CDAA10F4C839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ RoboGames, самые крупные соревнования роботов, в
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:632A69249FD76C4DFA9DF83FA0C95D23CA0B3C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

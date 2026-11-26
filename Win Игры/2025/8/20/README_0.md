@@ -19,8 +19,7 @@ Streets of Rogue – это облегченный роглайк о выбор�
 ```bash
 magnet:?xt=urn:btih:6A1E849C06E711475C10EC10DE8A3EB9C51A5299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PPEAK - это совместная игра о восхождении, где �
 ```bash
 magnet:?xt=urn:btih:DD9EFC73E2818AC17E3DC742D72BB00E963E1028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1 Build 19586234/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:F9F47E59BD3BF08859AEA8B536D0157D61D5E4F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Oxide Room 208 (2025) [Ru/Multi] (1.05) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:659BDDB3F33E70269CA44BEDC707E50F3820EAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The End of the Sun - это мистическая приключенческа�
 ```bash
 magnet:?xt=urn:btih:B12B74FA8127A69C9B5481CE166C48BC9EDC4457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.28/dlc) Repack FitGirl [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:6105221F156C11A189FD47AE690A4E8902A35B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

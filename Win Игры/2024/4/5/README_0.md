@@ -19,8 +19,7 @@ mmortal Mantis: Revenge - хоррор с нелинейным повество�
 ```bash
 magnet:?xt=urn:btih:A5C5D4C59CC926E051BD18908D64BB49C73EFCDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Immortal Mantis (2022) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5AE4AFCA93958B0FB76D3A213F803F689AB16AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wilde Investigations 2: Animal Sanctuary Shuffle (2024) [En] (1.0) Unofficial [C
 ```bash
 magnet:?xt=urn:btih:1683A34356C2101CD123F2864AA6B472D7226C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ No Plan B – это тактическая стратегия и по совм�
 ```bash
 magnet:?xt=urn:btih:F2AD09E22D7E6171DFC3D98F5F80DF563F710D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Assetto Corsa Competizione - продолжение реалистичного �
 ```bash
 magnet:?xt=urn:btih:FB7CA3F9B0EB733C6E2C7C3B1FF53F9AC2978B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Assetto Corsa Competizione - продолжение реалистичного �
 ```bash
 magnet:?xt=urn:btih:0E152536E6363B447C4A60924F47B2AA894E1EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ancient Cities - это занимательный градостроитель�
 ```bash
 magnet:?xt=urn:btih:FE26963FB212406CA2CA6BDE75308F7D7E91C450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Flashing Lights: Police, Firefighting, Emergency Services Simulator – это �
 ```bash
 magnet:?xt=urn:btih:69527898F5CC96A853CD1156F7A0AB9E09ACC95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Aquarist - иммерсивный симулятор, позволяющий п�
 ```bash
 magnet:?xt=urn:btih:966BD9ACA097AE60BCE2E2CC3FDB4E56318C1C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Into The Flames – симулятор профессии пожарного, к
 ```bash
 magnet:?xt=urn:btih:5E9B0470F75CB5256C91032DC90051F1A826660B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

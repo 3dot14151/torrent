@@ -19,8 +19,7 @@ National Geographic Traveler - это журнал о путешествиях �
 ```bash
 magnet:?xt=urn:btih:3A91EDBEF98080E595E4F87B634127575D73841B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gilas magazine — первый кулинарный онлайн журнал �
 ```bash
 magnet:?xt=urn:btih:C7A93D7C2F2FC58F878C53414CF448AF55F803E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

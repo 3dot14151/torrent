@@ -19,8 +19,7 @@ Advent Rising предлагает вам насладиться идеальн�
 ```bash
 magnet:?xt=urn:btih:E353C541826A7557EE553FEDF033A67FA0B520F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Indiana Jones and the Infernal Machine / Индиана Джонс и Адска
 ```bash
 magnet:?xt=urn:btih:53AE77AC91DDC0A99C4455770D0B8403AB8688BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

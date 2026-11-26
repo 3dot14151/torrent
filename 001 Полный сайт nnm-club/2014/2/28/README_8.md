@@ -19,8 +19,7 @@ Deadfall Adventures - это зубодробительный шутер от п
 ```bash
 magnet:?xt=urn:btih:BBAE39F46F225F6C79F9DD1BD0BD2712356A4067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Nero 2014 предлагает целый набор полезных и про�
 ```bash
 magnet:?xt=urn:btih:DA6A2D98A19F9B8F2D232AB0387D97E0B348B48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A0DEC40C77A791A9930094A7A3C3865699DEB64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Multi] (1.0) SteamRip R.G. Игроман�
 ```bash
 magnet:?xt=urn:btih:B022D00D102FBD4BFDBC8829C6DB55E8E13D9844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A4B26894B4875E94A2EDED9A174EF84E57E887E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:360246359CB86518A38090CBB5AB06FAC13A071A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

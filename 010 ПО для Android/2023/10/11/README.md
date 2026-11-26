@@ -19,8 +19,7 @@ PictureThis - Plant Identification v3.66 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1E1BAD2F69DF33E7DC30A1F7696C0C6BB99B330C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D53F55273BEBF4DFFC7D16ED6352BD0EDB2B6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Amorphis - Halo (2022) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:94F4046411B6F05431EA3F6C4AFC42B1911BCFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

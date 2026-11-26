@@ -28,8 +28,7 @@ Hadron Collyder - Pitch Black Attitude (2012) [MP3|320 кб/с]<Death-n-Roll, MD
 ```bash
 magnet:?xt=urn:btih:ED711AC7B99E56D7C73B5A390F9CD03A7DF826BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Wintersun - Time I (2012) [MP3|320 кб/с]<Power Metal, MDM>
 ```bash
 magnet:?xt=urn:btih:8573B5C94EA2A76402CB9F43F78DFEADAA5F1D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

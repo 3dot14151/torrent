@@ -19,8 +19,7 @@ Knights of Honor (2004) [En] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:05B16CC7252FC49B387B6AAB2EA96C0326545D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

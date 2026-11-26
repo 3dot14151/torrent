@@ -19,8 +19,7 @@ Blanc - это атмосферная и трогательная адвенчу
 ```bash
 magnet:?xt=urn:btih:2498982078F6FD89366A1C8271E3CE2CC83B5D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3012942D184CC5E2FF5A743A487C6F9BA5B9FCB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Three Minutes To Eight - это интригующая двухмерная ад
 ```bash
 magnet:?xt=urn:btih:D57B508E4043AAF8F81F7D3C147C1201E28EC1D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tetris Effect: Connected - классический тетрис, вводящи
 ```bash
 magnet:?xt=urn:btih:5E1C27368D9CF8631226E03AD507533D9CE6C56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:AF971F110877E6E47F5734E36CA43FA1EA3C3B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Stranded Deep - это квест с видом от первого лица с 
 ```bash
 magnet:?xt=urn:btih:76D248D211882E33B45CD9B3675DDF97147B15AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Company of Heroes - настоящая революция в мире страт
 ```bash
 magnet:?xt=urn:btih:32F1CB38DF7822532D71089D16A1265EF28F0EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

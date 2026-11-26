@@ -19,8 +19,7 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:6190E636963F6BF84B2FCED3EA0DCE9D22A9BF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Inquisitor - это сюжетная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:D6DA53340FA35ED66AE796C46E68F0DB081AD5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ereban: Shadow Legacy в быстро развивающемся стелс-пл
 ```bash
 magnet:?xt=urn:btih:B63837B5594C6CF30DAA819D563B0119990543EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Headquarters: World War 2, увлекательная пошаговая стр�
 ```bash
 magnet:?xt=urn:btih:79B8F72092651554F6EE153EC457C41400F918B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Cursed Legacy - это сверхъестественное расследо
 ```bash
 magnet:?xt=urn:btih:5731180FC31E51E9B504A865E514C8145871FB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ereban: Shadow Legacy в быстро развивающемся стелс-пл
 ```bash
 magnet:?xt=urn:btih:97D4272434600BBDDBB328FE7559E2145BC49E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:AE7C6F76D176303C9AB7FAD527CA0D99271494F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Yet Another Fantasy Title (YAFT) - это изометрический роле�
 ```bash
 magnet:?xt=urn:btih:A25A87391E7628283DDFF241CB08700DA775B104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Frogmonster (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E78B39EAC229F92910B5CDA804453FD84C1E7BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Children of the Sun бросает вас с головой в жестокую 
 ```bash
 magnet:?xt=urn:btih:AC592AFE0E50BAE512D2194BAE20FED5FB031B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Harmony Chronicles: Chaos Realms (2024) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:2AF5EBF962B2B5730404CF07AA053E43B56879B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

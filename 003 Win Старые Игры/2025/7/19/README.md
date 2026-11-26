@@ -19,8 +19,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.67.0/dlc) Repack Let'sРlay [Deluxe Bundle]
 ```bash
 magnet:?xt=urn:btih:BF1A3B0FAFAB1A7B5B5040816EB996AEFCEA5392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

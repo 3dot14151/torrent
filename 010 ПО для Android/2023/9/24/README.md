@@ -19,8 +19,7 @@ Photo Sherlock v1.107 Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A27752F7CE0051946A8E1B845C7A768508930F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ YouCut - лучшее приложение для редактирования �
 ```bash
 magnet:?xt=urn:btih:61E675B93556EE99C9D1C175D5CB8E3303623229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

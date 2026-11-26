@@ -19,8 +19,7 @@ Crying is not Enough (“Крик не поможет”) - это игра на
 ```bash
 magnet:?xt=urn:btih:8D32F3CF40EAE6B08FA43F91435C2C688DB6E7A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

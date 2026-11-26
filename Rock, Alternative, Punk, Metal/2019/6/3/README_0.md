@@ -22,8 +22,7 @@ Chrome - Addictions (2019) [MP3|320 kbps] <Progressive Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:8C69CE0F70EC882FF3D0FEC72A0190948D71168F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Dead Deads - The Dead Shall Dance: Live (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:395E7385024425A06800CCB915D431522937AC4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tiger Lou - Trouble And Desire And B-Sides (2019) [MP3|320 Kbps] <Indie Rock, Al
 ```bash
 magnet:?xt=urn:btih:A884BB9EBCB0DAFDD82C7C9473BEE8012F1746D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ LAMPOCHKA & Abazur - Вкл/Выкл (2019) [MP3|320 kbps] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:817930B840521C5AB73055C0F7EA5D2F62EEF8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

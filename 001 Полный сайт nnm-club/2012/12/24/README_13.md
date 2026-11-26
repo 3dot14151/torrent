@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:00CD00A378FB659511F5CBBC48FD1CE39684C2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ S.T.A.L.K.E.R.: Тень Чернобыля - «Боевая подготовк�
 ```bash
 magnet:?xt=urn:btih:1890E17CC49B4256A3139E3647F76862EC5E08CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ ProActive AI гарантирует реалистичность происхо�
 ```bash
 magnet:?xt=urn:btih:001854516D46FA434729432CA592D7F4F47736F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Need for Speed ProStreet [Ru/En] (Repack/1.1)  2007 l R.G. Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E5B4ACB968ACD6A4119AA57DBA21822BE791289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

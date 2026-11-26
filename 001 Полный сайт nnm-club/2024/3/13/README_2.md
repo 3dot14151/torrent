@@ -21,8 +21,7 @@ The Red Holloway / Clark Terry Sextet - Locksmith Blues (1989) Concord Jazz [FLA
 ```bash
 magnet:?xt=urn:btih:DBC83AC408E078B60ABFFB6C7E2EC495C34E7940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ PullTube 1.8.5.28 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0BF0940BF5ED744A8456C584F4B23D00D0352B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Sonny Stitt - No Greater Love (1981) 2001, TKO Magnum Music [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:8792120C77A41B998AF36070C120F0BAA562B8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Gene Harris Quartet - Another Night In London (1996) 2010, Resonance Records [FL
 ```bash
 magnet:?xt=urn:btih:B8C515C50A50851CFF122EC0EC85C116340947D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:135F9F42141FC9DF3021D9290DC8009DD936F7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ BetterMouse — это утилита для macOS, улучшающая про�
 ```bash
 magnet:?xt=urn:btih:DA3C6C8F97FB97331223D093F38350C9AFEF4B66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E446879E7ECB6C51BF815BA8DB0AB88B679031F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Andy Lindquist - Unravel the Gravel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 ```bash
 magnet:?xt=urn:btih:BD3B7F541A3C76808E1741D89C3E5EB2C38E5083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9707CE4A38A67D0061185D9C64EF46679ACE8F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34A9B21FA79C7DB4460B8644127E451BF3E0164A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:A1514058A5D68AF892C38B020D6F46C8B2E9EBBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Zorin OS - дистрибутив на базе Ubuntu, разработанны
 ```bash
 magnet:?xt=urn:btih:0C2CA39652C5710D8E979D4C7E4B3988FF5786AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
 ```bash
 magnet:?xt=urn:btih:1505C8AEB6EFBEFCA786D6DFA6D01D208170EAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9721DB6DE4D4195BAB500AB0DE185F8416915E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.3296]
 ```bash
 magnet:?xt=urn:btih:30FD483B6BD8ABEF580F94AFB30A72A173146ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E2512AD7AA7E3CC1FFF4066BFB7F71E9CE405A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10C94BA1A8A5753D599165126CBEB8DB13137480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:820F5608CABE63FBD9EE92626B5650E731B20B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4170]
 ```bash
 magnet:?xt=urn:btih:E19A3F2BEA7E79C63F37F796FDAEAA4E9989D633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B58BC1A006A52A6F9DAD52E620A23BE5A330BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ Creative Shrimp, Gleb Alexandrov | Cinematic Lighting in Blender (2022) PCRec [E
 ```bash
 magnet:?xt=urn:btih:C86E8B47DAB54A79BF4412A4EB999E3C0196FC92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ Slurm (Слёрм), Павел Калашников | Linux для разраб�
 ```bash
 magnet:?xt=urn:btih:149A3733BF8B51660A00FF67D37FE4D228312E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ Northgard — стратегия, вдохновленная скандинав�
 ```bash
 magnet:?xt=urn:btih:187EA0D890255E401BF1D61EB37421A065E0B680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ XCOM 2: Long War of the Chosen (2021) [Ru/Multi] (1.1.0 HF3) Repack/Mod firstlas
 ```bash
 magnet:?xt=urn:btih:78C4AEA3E80F816161182524007D689737BE499F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D84B68B63E489E2E300B8EED711D6A7477B3702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

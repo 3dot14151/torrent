@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F1CE1DFBAAABFA32337A9D7576D2F28674D89643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Танцевальный Рай - The Best 90s (2018) [MP3|320 Kbps] <Dance
 ```bash
 magnet:?xt=urn:btih:D5753F6424787FA9C694283BF2B516CF57C4FB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Adobe Media Encoder CC 2018 - это программа кодирования, 
 ```bash
 magnet:?xt=urn:btih:F1C67A939BFC62EE56DA8437B5BA59A6BD14B1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ P.s.
 ```bash
 magnet:?xt=urn:btih:6770D93AA3633316A1E8A10E02B750D944EF480C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95AABCB7CA04713E6DDA43AAF44226BAA19B7CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ VA - Enigma Alive Vol.4 (2018) [MP3|320 Kbps] <New Age, Enigmatic>
 ```bash
 magnet:?xt=urn:btih:B97CA436C9E8C469FE65F2DAA367D04D34BCE1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Moto Racing 3D — увлекательная игра для всех люби�
 ```bash
 magnet:?xt=urn:btih:848916E5F236DDADB2E26FEA5CE1700242C29501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Koi wa Ameagari no You ni | After the Rain | Любовь похожа на пр
 ```bash
 magnet:?xt=urn:btih:CC791D4D5DD859AF916B309B88BB0B10BE451C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Sangatsu no Lion (2017) | March Comes In Like a Lion (2017) | Мартовски
 ```bash
 magnet:?xt=urn:btih:2024C7ED9E3889E16C66DDA16B1F39DC392170CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A39CBB30F3F9052744FB80A5C3124BE4CEFDB01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C426581109C78E433C9CA9A63DDC65A4795ED776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:996BDF71746D4AD3EDD2DFE28D48E29132BBE205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Avast Premier совершенствует сканирование сети, в
 ```bash
 magnet:?xt=urn:btih:A65FC0E51B2697F510C2D3A62D08F5E82E902A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Adobe Audition CC 2018 11.1.0.184 RePack by KpoJIuK  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F4A4EE19A888633A8B92B99C464237D4070ECB50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Godzilla: Kaijuu Wakusei | Godzilla: Planet of the Monsters | Годзилла: 
 ```bash
 magnet:?xt=urn:btih:49A686366B0EEBE8253F19CBE5785BE79A275B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Apple планирует отказаться от процессоров Intel
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Avira Phantom VPN — является новым эффективным при�
 ```bash
 magnet:?xt=urn:btih:AFBD372171322611A51A9B478CA71A08E8C2B53C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ Dagashi Kashi 2 | Магазинчик сладостей [ТВ-2] [2018, TV, 12
 ```bash
 magnet:?xt=urn:btih:F93EFA741709CD5630DA3DDACB7E3A78A43206B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ Miira no Kaikata | How to Keep a Mummy | Как ухаживать за муми
 ```bash
 magnet:?xt=urn:btih:4E45954D854ED7D36C4A320BF2A6EE72149B91F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ Fate/EXTRA Last Encore | Судьба: Дополнение - Последний
 ```bash
 magnet:?xt=urn:btih:40C41B30BFF3A02461C7FFAFD9428E4658952484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ Drift Tuner 2019 – гонки, созданные для любителей д
 ```bash
 magnet:?xt=urn:btih:0DAF0C4BE55DDF2205E0B51A11F1697335CFC6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ Business Chart - Logo Intro - футуристический, современн
 ```bash
 magnet:?xt=urn:btih:3049F97BD2231849064DE67ED876E1DBC4A6170A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26C9CDA763D4F665A349525999DC0DF884DB838F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDCD9F22BF63A2B9D0F1E5F8F77B4384D6374771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +638,7 @@ Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь Святых Добр�
 ```bash
 magnet:?xt=urn:btih:5D4D80FBCE0D4AF3ED16BE884A24D3B978AB9745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

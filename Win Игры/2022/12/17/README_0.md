@@ -19,8 +19,7 @@ Saint Kotar - это психологический хоррор-квест в �
 ```bash
 magnet:?xt=urn:btih:0FCD5773C5F9733E88B33AB0528F704782FE78AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

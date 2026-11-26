@@ -19,8 +19,7 @@ Actual Installer – это профессиональный инсталлят�
 ```bash
 magnet:?xt=urn:btih:52598C8A4CA234E2DBDFF0E8AD74F6059461D6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

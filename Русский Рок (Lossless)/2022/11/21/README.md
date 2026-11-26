@@ -22,8 +22,7 @@ PALLEA - Парусник Маака (2022) [FLAC|Lossless|WEB-DL|tracks] <Screa
 ```bash
 magnet:?xt=urn:btih:31D1431CFBF2BA95AAFB62471175943C86368309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF72D9CA741220D994BFECE26E369C705D157FAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

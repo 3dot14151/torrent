@@ -19,8 +19,7 @@ Marvel vs Capcom: Infinite – плод совместной работы ком
 ```bash
 magnet:?xt=urn:btih:632F1CFAE7A1ABABA084957E2FF86AF4CD3EB4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ EXAELLA (2018) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F0F06B46710B0773DF81810F1FAD5574DDEEE429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

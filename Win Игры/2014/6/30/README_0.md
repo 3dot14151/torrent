@@ -20,8 +20,7 @@ MotoGP 14 – официальная игра по MotoGP World Championship. Д
 ```bash
 magnet:?xt=urn:btih:753451FB1F7F03B0165437CEE44A06BDC4164510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

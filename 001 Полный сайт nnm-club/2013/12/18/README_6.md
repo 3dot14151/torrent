@@ -18,8 +18,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou / Touhou: A Summer Day's Dream / 
 ```bash
 magnet:?xt=urn:btih:E1155E995F5FF9A08DDDF7B1D91FAFA644E954B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C1DCCB49851B89A6666A7DA43CD2B5972D50A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Trine 2 (2011) [Ru/Multi] (1.0.0.4) License GOG [Complete Story]
 ```bash
 magnet:?xt=urn:btih:2F280EFDEF4918F5B1DC63820458B456E3785C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:215A93D7E503B390A91B73ACC56C9D740A847D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Volgarr the Viking (2013) [En] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:899C7BD421E7C121EB171E20219196B964E842A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Vangelis - The City (1990) [FLAC|Lossless]<Ambient, Modern Classical>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46868FE5CEE5A55620606BA502E816D8D0932CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AC80A1AAEB2F126A3BFE6E44C0FEE4B5722F094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ The Island: Castaway 1.0  / Остров: Затерянные в океане 1
 ```bash
 magnet:?xt=urn:btih:8A01680F90FAE2028DF307F9E124044B3C562237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Scorpions - MTV Unplugged In Athens (2013) Blu-ray  [1080i]
 ```bash
 magnet:?xt=urn:btih:9325AA272B55C6082720BFE53E510F492DDF88D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ The Walking Dead: Season Two продолжает историю Клемент�
 ```bash
 magnet:?xt=urn:btih:527FC6B21014249A9F95F17B8DB49D2EC43A6F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ CrossOver Linux 12.5.1 [x86-x64] (deb, rpm, bin)
 ```bash
 magnet:?xt=urn:btih:FC62790E6FBC441828FB7E7F6DCE34D6F2490EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E94F58A0600F017EE2E06FC78E8FECA3368063D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAB38AA5FB3A977E054C57BB8B2104E4C7D746C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Don't Starve 1.10.0.37 (2013) [En] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:600010EA503D29DE967523E875AD74E87C157AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ Rogue Legacy - Это игра, в которой каждый сможет ст
 ```bash
 magnet:?xt=urn:btih:F64138B6B6EE7374121E6EA0223D944042EEE67B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5E4EF1C5C59915BAB6D5A775AEEF3D34ED5424A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ Worms: The Revolution Collection [PS3] [En] [4.50] (2013)
 ```bash
 magnet:?xt=urn:btih:8CBC9E42770FDA3871D5A504D5EE2DCC6888B2DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Ghost Master / Повелитель Ужаса (2003) [Ru] Repack Sandy Ann
 ```bash
 magnet:?xt=urn:btih:91BA7D08954B65615297CA53824406763AAABA6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ The Walking Dead: Season Two. Episode 1 (2013) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:F1A23C0A6D930DA2BF20C7D92EBEEEE2537FFFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Fontexpert - полнофункциональная программа для п
 ```bash
 magnet:?xt=urn:btih:625803DD58776AB998CA35D56A3D68E1694CEE9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Super Hide IP 3.3.7.6 [Английский+Русский]
 ```bash
 magnet:?xt=urn:btih:5A5A62A10F0ADCDAB98C83EEF2862EB69671B584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50F80BEA8B043085CC01885B7929D5B459E3B7C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

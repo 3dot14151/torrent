@@ -19,8 +19,7 @@ Brigador - это изометрический экшен, в котором и�
 ```bash
 magnet:?xt=urn:btih:F82AC799F32FD05C593C430C22E389B83C4E5E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spider: Rite of Shrouded Moon - играем за паука, плетём се�
 ```bash
 magnet:?xt=urn:btih:FFF2E12FDAA46ABB4EC596D3FF437E1936D5A50B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Copoka это игра про птицу, свободно летающую в �
 ```bash
 magnet:?xt=urn:btih:50CDE5D58A4CE3163F7231D8E524CA238B0157A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

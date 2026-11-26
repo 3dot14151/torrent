@@ -22,8 +22,7 @@ Houston - IV (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:7F0DC3690C0514413F7C68A4F8D93A5EEF2133B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Peter Goalby - Easy With The Heartaches (2021) [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:4D1F93B828AFC9D50117D90C12079A474A561829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mad Head - По Лезвию Правды (2022) [MP3|320 Kbps] <Hard Rock, Heav
 ```bash
 magnet:?xt=urn:btih:64F2E41534E09A776A3C1F8E4845C01E7CA88916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cate le Bon - Pompeii (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Psychedelic Rock, F
 ```bash
 magnet:?xt=urn:btih:FC43719D6B2FD458FFE263DB625642E79F1E0A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Трибьют Сергею "Чиж" Чигракову, Vol. 2 (2022) [FLA
 ```bash
 magnet:?xt=urn:btih:7175D2974D377F64964BC3B29DAA679BB3F70870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Трибьют Сергею "Чиж" Чигракову, Vol. 2 (2022) [MP3
 ```bash
 magnet:?xt=urn:btih:2E4FEB0BAB49E37E1FF7F5328515E94937210992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

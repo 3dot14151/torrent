@@ -19,8 +19,7 @@ Anne McCaffrey's Freedom: First Resistance [Ru/En] (RePack) 2000 | Pilotus
 ```bash
 magnet:?xt=urn:btih:6C99487CFF6B6ACDB8EE614644068EC9112DCA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Infestation [Ru] (RePack) 2000 | Pilotus
 ```bash
 magnet:?xt=urn:btih:16319690EC85707E4CBF39926B3F73C9B3BBDF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

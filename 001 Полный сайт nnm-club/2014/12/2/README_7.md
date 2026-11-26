@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CC7DF6955F39E1DAC929D26C170B013B0DA7AAC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Zwartketterij - Cult of the Necro-Thrasher (2007) [APE|Lossless]<Black/Thrash Me
 ```bash
 magnet:?xt=urn:btih:B178C12CD64FE561221A85994A6373728BFBFEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Need - Orvam: A Song For Home (2014) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:5BE5E6B44C12BA4671DB09F0DA1FCC92C20058B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Mapmaker - Automation (2014) [MP3|320 кб/с]<Progressive Metal/Deathcore>
 ```bash
 magnet:?xt=urn:btih:140DDF4CB4B3757F4145DC40D9BAEFBE1F264274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09F2BDCF07D27A753EBCED29FF50E074AB3B061F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ VA - Manuel Rocca Presents: White Clouds Vol. 3 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:26B3DC960E5B3BB3C4CB2BFFAC45E8905A61AA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F04A70475E9B84CA317C97FFA79D9A46B23585B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ Soulslide - Amaurotic (2014) [MP3|320 кб/с]<Gothic/Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:7F1E39E6B37105EEB383C0654AF5DA66ED86D6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ In Loving Memory - Redemption (2014) EP [MP3|320 кб/с]<Melodic Doom/Death Met
 ```bash
 magnet:?xt=urn:btih:8CD261962F07BE79CDC371C7061612E4505766B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ Random Forest - 2 Albums (2014) [MP3|320 кб/с]<Post Rock, Ambient, Instrument
 ```bash
 magnet:?xt=urn:btih:C820E33D9236511BF4FA8324F21888610F4D5B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90002451338FA480C4ACAA0284E672F7B0D8DAA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Tony Desare - Radio Show (2009) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:1BD1880B525F5ECAD582976FCFB4333220D415BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ Chris Thomas King - Rise (2006) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:53A91317B9B619311CB2B699E212A89F105E59DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED0AB9252A665D4271BCA48D34FE2FEE139F48A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B746E0EB7230D24FA96EF08851D58826754D188F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ Dirk Geiger - Connected Worlds (2014) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Amb
 ```bash
 magnet:?xt=urn:btih:C7C87BB102C755EDD83D924482AF328C28468B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ Angels Or Kings - Kings Of Nowhere (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:91F64F785DBD4C1909B40C1A8ECAAFBFE6AC2007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ StoneWire - When The Crow Flies (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:37B679006DA820DFD148FB100831E8ED8607C26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C11919B41D6A00BD0281D51A702B248684E4C16B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FBE83878F856A96F751F90C81F123CBFBC566C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8B68B95F835DE666DB574FDD0CCBED146FAD693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ FolderSizes - программа для проверки жестких диск
 ```bash
 magnet:?xt=urn:btih:6EE80A20DA1CA7D94EA1E60267201E5EFC4154E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +661,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:970EEFCE3C652B184738F900B844A5737A32C04D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ VA - History of FuLL ON part I from Simvit Project (2014) [MP3|320 кб/с]<Full
 ```bash
 magnet:?xt=urn:btih:CAF47F53997C6DEF40BEB9A6DE2227895EB6EEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA2E1BEA730ABC344A4DC4A07C6CED6D2588217A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1CC9C9FF8A0632EE4A5C09E4B64FEA67CDCC537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Urban Strife - постапокалиптическая стратегия‑R
 ```bash
 magnet:?xt=urn:btih:C715D5D2505C868B7A70DAD9961BFCF698F080A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Urban Strife - постапокалиптическая стратегия‑R
 ```bash
 magnet:?xt=urn:btih:DB7550A965DE9C65B0B98F91D2A05821949E20CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Icebound Secrets 3: Endless Night (2026) [Multi] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:55149550EA4686242C46FD17324C68C51A12906E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Unsolved Case 7: Whispers Of Elderwick (2026) [Multi] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:8528DDEE93164C81EBC5911FAEDD816FDD65EF25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (1.2.12b) License GOG
 ```bash
 magnet:?xt=urn:btih:AD8A510713BDD6539BEB306A7D138D0C81C9E9BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Solo Leveling: Arise Overdrive - экшен‑RPG по мотивам попул
 ```bash
 magnet:?xt=urn:btih:12CA472E2F1A5C09C2B525312E36B7A2E2683FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ White Silence - атмосферный психологический хорро
 ```bash
 magnet:?xt=urn:btih:8CDA2BD8415B0D2454B1CA6EB89BF7AEEBA65640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

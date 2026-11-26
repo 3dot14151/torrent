@@ -19,8 +19,7 @@ Beneath a Steel Sky [En] (RePack) 1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:63A5F13A8035608F03B34189D236E766CB1AB704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alien Virus [En] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:13E4D6A47253E5BAFCB9744C18A43780D6117A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A4962F69A0E8DFBAC927DFBAEBE383AC5FF3369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sim Farm - симулятор управления небольшой фермо
 ```bash
 magnet:?xt=urn:btih:3634B7F5F601091CE465B7AFAE41F4A5DCA07345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Colonization — компьютерная игра в жанре пошагов�
 ```bash
 magnet:?xt=urn:btih:C22717482D85C4A22C45374F271E20E1952A47D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C97481A018400B19CC678D7736FE0F8F2B13B3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Big Mutha Truckers 2: Truck Me Harder! / Мазатракеры 2: Свобод�
 ```bash
 magnet:?xt=urn:btih:EAC83AA27C0C107ED4EAD6754EC195B38E12EADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Marvel Ultimate Alliance [Ru] (RePack) 2006 | RG Packers
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

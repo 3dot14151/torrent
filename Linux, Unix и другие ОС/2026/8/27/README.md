@@ -21,8 +21,7 @@ Garuda Linux - это самые современные и передовые т
 ```bash
 magnet:?xt=urn:btih:93F108A8857F78AE325A94ABAB7F4CEAF0697F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

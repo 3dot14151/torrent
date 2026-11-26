@@ -18,8 +18,7 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:CBA8528BD1BD5F98986FB48CE681E4DD9D184491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:120BDA6CB3441DC06E80DA181E56860E09178E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ HyperSnap 9 - это самый быстрый и простой способ д
 ```bash
 magnet:?xt=urn:btih:070BDF15227A551F37B059CDEC06F6E0B2130154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECA2631335C7ED1C156140317C1E4D21745ECF00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Don't Stare - это сюжетный стелс-платформер, в кот
 ```bash
 magnet:?xt=urn:btih:23AB8664CCCB5D347C56604204A80F2707663E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:4F4B887C2C5266F4B874C19E1E94BDAA7156388F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Colors Pro 3.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D47B5A841E68AFF2A4AA2B5965E7366054BD2B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ David Gilmour - Luck and Strange (2024) [MP3|320 Kbps] <Progresiv Rock>
 ```bash
 magnet:?xt=urn:btih:069142622531001C971B9975D6557A1997C1BACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ David Gilmour - Luck and Strange (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Roc
 ```bash
 magnet:?xt=urn:btih:A4E20562FC005D08A741771231217EDF32AB8837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDAA60A259D7A7E4AC4385EEF4932045AAFFA45D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (0609) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:A1EAFA6FE8E49E3D91761E3A7460A740F7A0AC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:450C147D0B39BF643DA65A9D2D20AB94BDE90245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Cynthia Bleskachek | Начало работы с обивкой мебели (2
 ```bash
 magnet:?xt=urn:btih:134BB93F604DF16ACDCEB2A89CDE93CE400B60B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

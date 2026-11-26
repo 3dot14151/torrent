@@ -19,8 +19,7 @@ Witch Hunters 2: Full Moon Ceremony (2014) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:9D6ACD91C1A615E4E931C43FE8D51FD832F42253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spirit of Revenge: Cursed Castle (2014) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:CAABA866E3DE708E72BCE0668ECE92FF9FE5AC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Legend of Heroes: Trails in the Sky (2014) [En] (Update 5-10) Patch CPY
 ```bash
 magnet:?xt=urn:btih:8E8DA2D1A4A72C8799D3BE2617617B2BB3971D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lichdom: Battlemage Pacth (2014) [En] (upd.17-18) Patch 3DM
 ```bash
 magnet:?xt=urn:btih:90DAA1802C3BF965F9CD5588435A5A61AE037543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Vertical Drop Heroes - процедурный платформер с элеме
 ```bash
 magnet:?xt=urn:btih:E467099F8B4D542DA63B7492E1ACC2EF04255FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ The Room (2014) [En] (1.0.0) Repack Salat-Production
 ```bash
 magnet:?xt=urn:btih:9B3FE947AC8BDB3E5D59FCB9B81E810497AE0361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Legend of Heroes: Trails in the Sky — это ролевая игра с вид
 ```bash
 magnet:?xt=urn:btih:0BCBCA38AEC33C120F6F672C134C3CDDCF7004A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

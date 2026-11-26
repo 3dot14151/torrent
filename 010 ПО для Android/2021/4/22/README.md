@@ -19,8 +19,7 @@ Lingvist v2.65.8 + Lite Mod [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C5655525CF4A75204222F63E99F000C43D66CB59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

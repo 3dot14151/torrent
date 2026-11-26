@@ -18,8 +18,7 @@ Styx: Shards of Darkness предлагает заняться любимым д
 ```bash
 magnet:?xt=urn:btih:8B471DDF63B22257770C5E1B12DE07DDB5B9AFC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Navitel / Навител Навигатор v9.8.3 Full для карт рели
 ```bash
 magnet:?xt=urn:btih:68119D983506B962139965A98BE82706F71A5371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Kaspersky Endpoint Security 10 для Windows (для рабочих станц�
 ```bash
 magnet:?xt=urn:btih:F3EEB80CB24080312D28BD70AC6F62029D11AF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1087D1DD6D7167DAE260C9BF889DCDE0E03CADAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C793B53C770450887FEFFF8D9186039A70C122E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ VA - Trancebargitha (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7489F75AD4FE45662072278DA4E3789F639C20EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

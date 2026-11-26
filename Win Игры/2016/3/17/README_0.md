@@ -19,8 +19,7 @@ White Night перенесет игроков в Бостон образца 30-
 ```bash
 magnet:?xt=urn:btih:BF24793AD98675523ACAF767EC1DAE0D44AEAF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World of Tanks: Шкурки с зонами пробития (2016) [Ru] (0.9.1
 ```bash
 magnet:?xt=urn:btih:508AD57D188D9A4D76B552208866BD91614E7294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shelter 2: Mountains – DLC, в котором вам предстоит пер
 ```bash
 magnet:?xt=urn:btih:E85CD0BC2A44D0C4DA7C21514E4936981B13EA73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Paint the Town Red (2016) [En] (0.4.2) Repack VseTop
 ```bash
 magnet:?xt=urn:btih:FD9F09EE907933BA776D186AC93C655ACE9D5F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

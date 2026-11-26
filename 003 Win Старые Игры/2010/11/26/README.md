@@ -19,8 +19,7 @@ Fallout 2 – культовая ролевая игра, справедливо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

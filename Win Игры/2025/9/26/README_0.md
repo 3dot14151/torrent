@@ -19,8 +19,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.38/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6F5AA91DADE71EEFC15D4D6D237AADC3835D66D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:8C5A46070376DE0514002309B996957EE8BB3F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:6BFBA59C25706FD704306CFFC8329C9E1A78D370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ NINJA GAIDEN: Ragebound — творение команды, создавшей 
 ```bash
 magnet:?xt=urn:btih:EF76EEE8402F29532B3580E8423E0F4883C547AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.15) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CCA47D96A1914E0F2968CD96C22C73D054EA8828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6) License GOG [Patche
 ```bash
 magnet:?xt=urn:btih:28347D830745D79E3EC0CE793FC2AFBC6BA9F57E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Northgard (2018) [Ru/Multi] (3.7.56.42549/dlc) Repack Let'sРlay [The Viking Age
 ```bash
 magnet:?xt=urn:btih:A2330DC8A708F1A43ABB2261F485B2810EFC120B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B047F0E8A79FE2A4DF891A815B62DF7BADF7CA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:807F26909559CFD247EFCD5EC95944F330149696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ DOOM Eternal от id Software – прямое продолжение хита D
 ```bash
 magnet:?xt=urn:btih:A971580136666036DE264BE2086238A00D274F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7A88CB3C66BD8E94E15AD8F2B9297C2AA50DA03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:C74D4B92C7A559C1402278E6007E919F7BB7FA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:341357EEEE914E2773009B6A9B8B36D25A0AE111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Other s [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:F0B2BA803DE5A0E90C4312CAECD1C7B577CF855C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:CCE01B52DFDA79C3B8C1956392096A9570C712F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.8.0-71665-194/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:84A5E04F57EC40A326A7BD8C1CF15EBF1E4D96B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7FF90903D9D4FB1AA818D716024CBF730F93883F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:56E4C66AF7EA28D37F76912D196AEE4FD5051AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Chimeras 14: The Lost Film (2025) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:A11B1ACBD61759A26E8B076E2289BF2F7F2F2220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License
 ```bash
 magnet:?xt=urn:btih:05EDE49559BCAC186F6D35072F3C518A20974326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Soldiers: Heroes of World War II / В тылу врага (2004) [Ru/En] (1.28.3
 ```bash
 magnet:?xt=urn:btih:D6F23819D1E17525F65D4E18F410B2981687BB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

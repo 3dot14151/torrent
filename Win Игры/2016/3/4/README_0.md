@@ -19,8 +19,7 @@ Living Legends 4: Bound by Wishes (2016) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:F7D68CBB460999EC704FA50AC5BE336EBA43745E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadow Wolf Mysteries 6: Curse of Wolfhill (2016) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:63A91B8CBBFBB2E1174F711A96A8D6558B724E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Tales 3: Alaskan Wild / Загадочные истории 3: Дика�
 ```bash
 magnet:?xt=urn:btih:84578FE1DC118BE195ABC2C18B9D4E36C9099E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mysteries of the Mind: Coma / Тайны сознания. Кома (2012) [Ru] 
 ```bash
 magnet:?xt=urn:btih:0DB4AACE7E402E30EA4B17DD2B9C42BD5D0A4CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Interactive Adventures of Dog Mendonça & Pizzaboy (2016) [Ru/Multi] (1.0.3)
 ```bash
 magnet:?xt=urn:btih:2ACB62D18773E36603A24125F529DD65E963AEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Chasing Dead - это научно-фантастический шутер от 
 ```bash
 magnet:?xt=urn:btih:C82AA74C3D1893D55C7DA5799C65695BC6F586B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

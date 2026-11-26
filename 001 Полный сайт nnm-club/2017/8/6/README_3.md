@@ -18,8 +18,7 @@ Microsoft Windows 10 Professional VL x86-x64 1703 RS2 RU by OVGorskiy 08.2017 2D
 ```bash
 magnet:?xt=urn:btih:83F5130C9EF8C0ACD428928F8F30F4D434F3EB38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Shameless, основанный на одноимённом британском
 ```bash
 magnet:?xt=urn:btih:C935D3020F2F6057C4AAFFA08568C9D0FD2384B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ E.S.T. - Electro Shock Therapy (1989) Reissue, Remastered, Special Edition, 2021
 ```bash
 magnet:?xt=urn:btih:44BDB8748E89F37C1FFBC52202FA82707A8A7A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alkonost - Ведомые ветром (2021) [FLAC|Lossless|tracks + .cue] <Fol
 ```bash
 magnet:?xt=urn:btih:581274E1BE608DF79203D0A44751426A5C1E55BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

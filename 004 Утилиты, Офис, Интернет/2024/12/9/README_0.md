@@ -19,8 +19,7 @@ Revo Uninstaller Pro 5.3.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:043DEE8B60952B7673032A86CC6252123D08DC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

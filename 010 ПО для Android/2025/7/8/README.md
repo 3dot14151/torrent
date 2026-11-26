@@ -19,8 +19,7 @@ Earth 3D v9.4.1 Mod by ApplicazioniCR [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1DBC5B43E7D9F38C9402B9EEAEDE7116C7E2C41E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

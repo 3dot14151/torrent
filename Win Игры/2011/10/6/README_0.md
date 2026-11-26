@@ -19,8 +19,7 @@ The Chronicles of Shakespeare: Romeo & Juliet (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:BB98E4343374E2DDA10235234C5A017FBBBFFE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Virtual City 2: Paradise Resort (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:120C2450BCB1B3388D66E305BD24FDC81211CF39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E9F6F7959A67995A5CCC6630552A9FB20ECD88D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Zachtronics Industries возвращаются и представляют но
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Weird Park: Broken Tune. Collectors Edition / Таинственный парк:
 ```bash
 magnet:?xt=urn:btih:5963F081A2EB06A3DEE2346FD9971D8605F24176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tom Clancy's Rainbow Six: Vegas Дилогия [Ru/En] (RePack) 2006-2008 | R.G.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Cabela's Big Game Hunter Pro Hunts – очередная часть в сери
 ```bash
 magnet:?xt=urn:btih:818F35EC085F49E787346238CFBFB1FF98DC875C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ iGO R3 Here (NavTeq) Европа 2013.Q3 (fbl, fda, fpa, fsp, ftr, hnr, poi, 3d
 ```bash
 magnet:?xt=urn:btih:5DEA8A81817ECDCBBFA1927EC343B7FC2986438D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/11dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:AB5AAA269A9A9392EA7BBE2AC7422DBBE38EF778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86C5C99CAA289ECF5E9346602F9266D1BD89BA01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Total War: ROME II/2 (2013) [Ru/En] (1.11.0.10383/8dlc) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:10F69A12277690827F9414E936DE73FEE993F28A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ WinSetupFromUSB - это утилита для создания загрузоч
 ```bash
 magnet:?xt=urn:btih:8F68B4BA438F78E4325B7530F9619CD516E113CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Acronis True Image 2014 — это интегрированный пакет п�
 ```bash
 magnet:?xt=urn:btih:3307E7FAD8E2F30BABCD353DCD5D351B49A1963C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Colin McRae DiRT 3: Complete Edition (2012) [Ru/En] (1.2/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:9CCAD1CF5D89C86E9056427811C1B3876556D009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ BBC: Чудеса Вселенной (1-4 серии из 4) / Wonders of the Un
 ```bash
 magnet:?xt=urn:btih:9AD08D119772D02BFD6F6C1D4220439ADD6E952C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ CorelDRAW Graphics Suite X7 - новый графический пакет, по
 ```bash
 magnet:?xt=urn:btih:F8B553A1702FAB00E4C694461A41A6F25461BC80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

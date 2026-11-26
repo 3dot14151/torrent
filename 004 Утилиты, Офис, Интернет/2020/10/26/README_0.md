@@ -20,8 +20,7 @@ AweClone - простая в использовании программа дл�
 ```bash
 magnet:?xt=urn:btih:272FC7ADFCE0254CEB5DD5829DAC0D17764A1D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

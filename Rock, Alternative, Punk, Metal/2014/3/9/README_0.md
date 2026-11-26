@@ -28,8 +28,7 @@ Ignis Fatuu - Unendlich Viele Wege (2014) [MP3|320 кб/с]<Folk Metal, Medieval
 ```bash
 magnet:?xt=urn:btih:76C205BBC1027C393DD59463D0920E611EC141C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Bluesmen - Wild In The Country (2007) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B02C4ADCC2CB64F25481BFD0D974A54AAF16D1CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Metal Inquisitor - Ultima Ratio Regis (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8CBB82184AA60678182C7304301118DAAB036C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Shy - Excess All Areas (1987) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C663C46EE9346C662553198B29AA9C3F36D8BF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Brandon Lane - That Kind Of Love (2013) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:EFFE8F5BDC7D8301FB63F758E40144DFAB146E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Jenix - Circles (2014) [MP3|320 кб/с]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:9463FB20FDDFE44B257FB4170DE3A97687BDF414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Red Heat - 1st (1993) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:03D62401F94A009C2B9DBE903CD2332487F45194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Axxis — метал-группа из Германии, исполняющая 
 ```bash
 magnet:?xt=urn:btih:9201B7017F999A5A82D433F49D1F92EE33B858D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Part I
 ```bash
 magnet:?xt=urn:btih:A8AB40A00540E72CF33778092DFECE4FD9493348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Paul McCartney and Wings - Venus and Mars (1975) 24 Karat Gold CD, Steve Hoffman
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

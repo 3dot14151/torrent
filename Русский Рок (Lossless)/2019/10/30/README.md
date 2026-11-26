@@ -22,8 +22,7 @@ Animal ДжаZ - Время любить (2019) [FLAC|Lossless|WEB-DL|tracks] <A
 ```bash
 magnet:?xt=urn:btih:18592DFF7EBDBD138CDC53A17D8F5170682288FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

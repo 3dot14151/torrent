@@ -22,8 +22,7 @@ Dire Straits - Brothers In Arms (1985) Japanese Edition, SHM-CD, Reissue, Remast
 ```bash
 magnet:?xt=urn:btih:8339C54266B54BD482D04DE2697793AE17B38F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

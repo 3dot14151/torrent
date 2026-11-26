@@ -18,8 +18,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.005.36738/dlc) License CODEX [Pr
 ```bash
 magnet:?xt=urn:btih:711FAF2D8DD960FA9AEAE587FCBA4D93D478B4B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Windows 7 SP1 (x86/x64) 52in1 +/- Office 2016 by SmokieBlahBlah 18.08.19 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F0F64EDAF0A5A24E577DCE20AD386312083969C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru] (1.2.208/dlc/mp) Rip CoD - MW2
 ```bash
 magnet:?xt=urn:btih:61CB5ECA12832D0301CEFA9B9FA474BFA6FEC320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

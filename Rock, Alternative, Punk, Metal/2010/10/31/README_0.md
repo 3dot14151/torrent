@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:BFCC85A80FD2B63B6054432C67DBF61C1F17A5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:620ADB9A40AEEDC4A6185472DB8DF7819B0F2FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Russian Metal Ballads - vol.1-3 - сборник (1994-1997) [MP3|320 kbps]<Meta
 ```bash
 magnet:?xt=urn:btih:D30780DD824F9DD6E43F7984274E68B6D3061D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

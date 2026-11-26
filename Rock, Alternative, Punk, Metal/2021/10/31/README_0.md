@@ -22,8 +22,7 @@ Painters of Ether - Painters of Ether (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 ```bash
 magnet:?xt=urn:btih:F323D7A2E3B2E77A44E23DA35048BB67D1290FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Skyclad - Vintage Whine (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E3505CD872104653DE306BD3B6717F21F42CE137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Selfaware - Entropy (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A720F374710CF2DD29262078DA4D28793823AE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Falconer - From A Dying Ember (2020) [FLAC|Lossless|image + .cue] <Power Metal, 
 ```bash
 magnet:?xt=urn:btih:E548D6ECDBD2EE2FB6DF68EAC3662210B17CE0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sammy Berell - Beyond the Veil (2021) [FLAC|Lossless|WEB-DL|tracks] <Neoclassica
 ```bash
 magnet:?xt=urn:btih:207D281D29236E5CC7672D072C13ACC15ADC5D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Grandmaster - Skywards (2021) [FLAC|Lossless|image + .cue] <Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:CABBEB8D3A1AD80C4289B06B7290F1A9406B20D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Death SS - Ten (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Dark Metal>
 ```bash
 magnet:?xt=urn:btih:828696F6C976F591138F851E69126632D505D2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Johnny Van Zant Band - No More Dirty Deals (1980) Reissue, 2006, Rock Candy 
 ```bash
 magnet:?xt=urn:btih:DDAD48E12D3A73EB4099B8AE7CFE53A8A1448163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:899126E3BDCCF361B8542493DD1C522E1075A9BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ BrainStorm - Год без календаря (2021) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:1506ACB62DE20A53DAF422401FFA34D36DA8F087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ U.D.O. - Game Over (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:9DBB661CBBD164801E73F83987DA8DBC683DD465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ The Immediate Family - The Immediate Family (2021) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:3034FFC38B4A51AB21E66E6F24B51CDFBE7736E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ Disc - 1:
 ```bash
 magnet:?xt=urn:btih:3C076CC3974AD92C751A9A21BB0A0D842BE73D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ Limp Bizkit - Still Sucks (2021) [MP3|320 Kbps] <Nu Metal>
 ```bash
 magnet:?xt=urn:btih:CA22859AC0A674FFF60DE4E1AF0ACE8945869272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ Creedence Clearwater Revival (CCR) — американская рок-груп�
 ```bash
 magnet:?xt=urn:btih:6FB3DF420E7EEAD45F5AADD778671C8D93E6A900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

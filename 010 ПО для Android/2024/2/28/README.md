@@ -19,8 +19,7 @@ AI Beauty / ИИ Красота v1.52 Mod by CVXUSER [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C15870034AC95591FD83CD90709C1355535741CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:23060B343357C1469E5ACE4F4698BDAC24F38BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Kwheezy 1.2 (Debian + KDE) [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:82FCF2E6845027BE8C5B8ABC888C2B264AB1A469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Manjaro Linux 0.8.7.1 (Arch + XFCE, LXDE, openbox, net: легкий дистр�
 ```bash
 magnet:?xt=urn:btih:A49B1BBA76005F018CE431A25036345246CCEC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VirtualBox - система виртуализации предназначен�
 ```bash
 magnet:?xt=urn:btih:EFCCAAAACA4666849D6134C6334E495A0EAC513A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

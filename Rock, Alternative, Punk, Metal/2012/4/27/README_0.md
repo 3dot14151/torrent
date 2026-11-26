@@ -28,8 +28,7 @@ Ahola - Stoneface (2012) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E15D7133F8AD7F322B3BD625431C5460F6935C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Galeon - 2 альбома (2009-2011) [MP3|224 - 320 kbps]<Instrumental Melodic 
 ```bash
 magnet:?xt=urn:btih:87A1DD1AE78F0BEB19F03B569370E28F22272F1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Hideous Divinity - Obeisance Rising (2012) [MP3|320 кб/с]<Brutal Technical De
 ```bash
 magnet:?xt=urn:btih:3C704DF67F6746BAEDA5FCAE10C4F9B506453414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Before the Dawn - Rise of the Phoenix (2012) [FLAC|Lossless]<Melodic Death/Gothi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Gamedec – изометрическая RPG в жанре киберпанк д
 ```bash
 magnet:?xt=urn:btih:C9BB4FE8F6BB3323481A883B16BA103AD01403E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

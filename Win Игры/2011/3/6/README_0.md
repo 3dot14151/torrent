@@ -19,8 +19,7 @@ Insider Tales: The Stolen Venus 2 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D7CA23151FDA445D959FC1804993F1D74FB1C2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Letters from Nowhere 2 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:854E7B0A9FBEFF9785A1A4B321108E411CE423DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cake Shop 3 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:3FC859020CF5E7ED7FF4C5FA162BB55D1525CA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96836106E9CBBD666D2CEE7229B1322C1E14A3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Magical Mystery Game / Тайна магической игры (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:876DE4CAC29F7057911D54131615EA813E2DC40F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Maestro: Music of Death Collector's Edition / Маэстро: Музыка см�
 ```bash
 magnet:?xt=urn:btih:EA7B6DAE91424D56EA722256FD4EE1BB55A9C55D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Blazing Angels 2: Secret Missions оf WW2 — еще один аркадный �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

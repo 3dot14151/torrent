@@ -22,8 +22,7 @@ Strongbow - Strongbow (1975)  [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:343D6EFA583344A68169C1680460FD6D8D03C7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ WinaSchnitzel - In The Light (2020) [MP3|320 Kbps] <Prog Folk Rock>
 ```bash
 magnet:?xt=urn:btih:6D39A81CAB2B27DD3A7E12F0315E09C4525ADDED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Elder - Omens (2020) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Stoner Roc
 ```bash
 magnet:?xt=urn:btih:AC915CC8083402E6CB9C29CC1F7D2A16319C6E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Artnat - The Mirror Effect (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Pr
 ```bash
 magnet:?xt=urn:btih:37058EDEF9B50509B6B8FCB4123F6847AB4D8163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Artnat - The Mirror Effect (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:CC72F47133ACE9C90378622F01BD15409A9FCD69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Storm Seeker - Beneath in the Cold (2019) [FLAC|Lossless|image + .cue] <Folk Met
 ```bash
 magnet:?xt=urn:btih:9F61D25A87EC3D83D03FB258478AE1923303C86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Pretty Reckless - Death By Rock And Roll (2021) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0CFB764EA10ADD514EE888B501C34C6FDDE10C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

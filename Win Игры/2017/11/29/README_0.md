@@ -19,8 +19,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:F16A15444D82C456D12F4BA92D4D391E223EA742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Black Mirror (2017) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:699FD374FCC4C7A4356FF1181F657E3E90E51842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

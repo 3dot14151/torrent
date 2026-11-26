@@ -21,8 +21,7 @@ Canonical выпустила Ubuntu 26.04.1 LTS – первый точечны�
 ```bash
 magnet:?xt=urn:btih:7B3EF32CD684FA3A85F114AA83E6CF50F2B5BE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:AF48D3E3418F8389866C1F77C5A431ACCA8AFDB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDDA1886800B752368AD4006B514671B93CF6D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E03533E2AD08E0BA050DAA5EC28C811CABE2D4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ BitPerfect - простой, легкий в использовании, муз�
 ```bash
 magnet:?xt=urn:btih:74608AA23D91D50C459F163D27959478DDCBE472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Jonny Lang - Wander This World (1998) [FLAC|Lossless|image + .cue]<Blues, Blues 
 ```bash
 magnet:?xt=urn:btih:16B309B92CAB4770E6EA5A5717981A7C92FDC717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ iThoughtsX  – программа, позволяющая визуализир�
 ```bash
 magnet:?xt=urn:btih:5FFF4CCE7A4344FAFA67ED23CF829B18E264912C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F5B39494A871DC776F6EE9E6DC80D32ABB1A214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C4238773706114A866579860B3F79DF3F27D09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Sip - код оттенков на экране
 ```bash
 magnet:?xt=urn:btih:2A2172655585CE720793A30B80BBD7AE262D9901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ ColorSnapper - инструмент "селектор цвета" для раз�
 ```bash
 magnet:?xt=urn:btih:3AC7F01CD459CDD70ECCD850996D705C6DB62949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Bad Company - Desolation Angels (1979)  [FLAC 2.0 24/192] image + .cue (Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:6FA6DEB670C26156F5F14DC19B51ABC14ECCCFFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Temps предоставляет вам погоду для вашего тек�
 ```bash
 magnet:?xt=urn:btih:D4B66C0FBEEB42228D9468F4EF043ADA9B0EF408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4324A664D0319DE79654B5AE7A5CAC26391A1C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ VA - Amnezia Best Of 2015 (2015) [MP3|320 кб/с] <Dance>
 ```bash
 magnet:?xt=urn:btih:654EB7048D3C1AF4C338C1CEB8DCD28C9296F5D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ SUMo (Software Update Monitor) — последняя версия данной 
 ```bash
 magnet:?xt=urn:btih:119B3BC09CA0F911C6ACC99B0A0499CFBD167117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4C0E1610434693DA6EA95FA8F22DC4C15084CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Joutro Mundo - Lost in Rio (2015) [MP3|320 кб/с] <Nu Disco, Funk, Electronic>
 ```bash
 magnet:?xt=urn:btih:B7A35E91638E6A8E8AD8FFC2C2E87BF48F0EDD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2031634AA48D91BA2226FD2DE68835F115DEBB43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ VA - Top Club Music World Hits 10116 (2016) [MP3|320 кб/с] <Bigroom, Tropical
 ```bash
 magnet:?xt=urn:btih:F6ED5364BF5FAFE3F7972CBFE1CC571C0DE8E382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01BF77BCE6718D23225016A18C830F4964B7737C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DC3D96E9D29B87E9A2AC50E0C2248839F1EFC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CADC21A00EF673AF33549E67A8E0D1D6BF7B0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ Icon Slate 4.4.4 [En]
 ```bash
 magnet:?xt=urn:btih:5CA62E5523C0FB640A5EE5332F0DA00031C8442D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ Tupelo Honey - Brave New World (2014) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:87816A910055FAE1C6E4AF6EA1612BC6C79D109A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Readiris выполняет всю утомительную для вас раб
 ```bash
 magnet:?xt=urn:btih:F1A6DAEC429420B6660894BD457237ADDFC2871A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:237C76A36AFA1E2F6A7768CE42E7128FAE927A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

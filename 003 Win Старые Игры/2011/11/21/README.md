@@ -19,8 +19,7 @@ Evolution GT - новый представитель славного семей
 ```bash
 magnet:?xt=urn:btih:4D106F87BD81264DB2460723587E3716EEF68F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Black & White: Creature Isle - дополнение к игре, получив�
 ```bash
 magnet:?xt=urn:btih:445F96EB141FEA33DC8FE31D20996230B185548B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Enclave + Addition mod [Ru] (RePack/1.0.0.1/1.1) 2003 | x-7
 ```bash
 magnet:?xt=urn:btih:1F3B44A3988E60E36D6FA35F3697EC85BDDE4C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spellcross [Ru] (RePack) 1998 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

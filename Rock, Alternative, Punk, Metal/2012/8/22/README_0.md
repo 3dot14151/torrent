@@ -28,8 +28,7 @@ Protos - The Noble Pauper's Grave (2007) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:6DEBEEC36EB39FB1568E6B9C11A176A2455B175A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Bono - Lonely Planet (2003) [MP3|320 кб/с]<Pop-Rock, Soft-Rock, Pop-Jazz>
 ```bash
 magnet:?xt=urn:btih:FB483D988DF33BA53F308495785064AF3381BA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

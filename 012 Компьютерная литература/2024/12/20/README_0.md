@@ -19,8 +19,7 @@ Daria Orlova, Esra Kadah, Jaime Blasco | Flutter Design Patterns and Best Practi
 ```bash
 magnet:?xt=urn:btih:7958D49BF8B550DB6FA6F8539ADA6E1D68E6791F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

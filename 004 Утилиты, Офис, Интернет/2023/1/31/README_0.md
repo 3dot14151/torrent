@@ -19,8 +19,7 @@ Privacy Eraser - программа, которая произведет пол�
 ```bash
 magnet:?xt=urn:btih:BE936179D34E969CD949E5A7D4C188C1DA1F9010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:4A2E373152D8D28837DBB84A446D158A5C10ADAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

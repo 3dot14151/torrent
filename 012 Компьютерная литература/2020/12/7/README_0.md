@@ -19,8 +19,7 @@ Milo Yip | A Study Path for Game Programmer / Путь разработчика 
 ```bash
 magnet:?xt=urn:btih:AEDADD2339562E0CF1C2C8FFF918B5B0EF626A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

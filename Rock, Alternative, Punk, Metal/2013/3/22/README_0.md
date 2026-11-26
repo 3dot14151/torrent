@@ -26,8 +26,7 @@ Atra Vetosus - Voices From The Eternal Night (2013) [MP3|320 кб/с]<Melodic Bl
 ```bash
 magnet:?xt=urn:btih:1EED46CF00DDF9A84F1A7E01F76EEA60609EBF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:03FA4C1C0B3664A1DB624C6FC440438293090E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Lovelorn Dolls - The House Of Wonders (2013) [MP3|320 кб/с]<Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:5323520D8323F150CD57F596C3C018341B70C019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Pretty Maids - Motherland (2013) [MP3|320 кб/с]<Heavy Metal / Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5F008D973BDF91141F3CCBDA3479683C9E4538A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Clutch - Earth Rocker (2013) [FLAC|Lossless]<Southern Rock /Hard Rock /Stoner>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Hypocrisy — шведская дэт-метал группа, сформиро�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Adrenaline Mob - 1 Album + 1 EP (2012 - 2013) [APE/FLAC|Lossless]<Heavy Metal / 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

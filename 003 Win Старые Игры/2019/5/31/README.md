@@ -20,8 +20,7 @@ True Crime Dilogy (2004-2006) [Ru/En] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A0B673E4A6904B37F16AAF9AEC335AF913DE7831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

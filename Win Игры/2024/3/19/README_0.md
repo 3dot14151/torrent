@@ -19,8 +19,7 @@ The Quarry - кинематографичный хоррор, в котором 
 ```bash
 magnet:?xt=urn:btih:B4AB794951BD77DC297276D08210B5232A542C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 ```bash
 magnet:?xt=urn:btih:1E69B136F3984C264DA690E08CCEA2236A765B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Death Trick: Double Blind - приключенческая игра в форм�
 ```bash
 magnet:?xt=urn:btih:2C10B5916FF5931347EFCB8A308653F479FFECDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Left Behind (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:62DBAE4226489125EBD92D94E9526F52E75F9171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Worms 3 v.2.04 + mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E768375F30FC64C22A0BBD819361C5EF32FB39B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

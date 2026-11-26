@@ -19,8 +19,7 @@ Alien Rage Unlimited (2013) [Ru/Multi] (1.0.9084.0) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D712EEED5779408B85F152A16E6C7B12B19C5BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Vendel - Out In The Fields (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Epic, Doo
 ```bash
 magnet:?xt=urn:btih:D655B94FAB692439B314E88698FBE7AF90A621F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

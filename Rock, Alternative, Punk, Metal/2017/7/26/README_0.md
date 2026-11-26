@@ -22,8 +22,7 @@ Chemical Breath - Values (1994) [FLAC|Lossless|image + .cue] <Death-Thrash Metal
 ```bash
 magnet:?xt=urn:btih:6A5D0D443C0A2310E9459E05791293E05E23757B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Rock 'N' Roll Britannia (2016) Box Set, 3CD [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:2D84A9A8FAB8173F1FDDA3E036CE00535052C39D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Alice Cooper - Paranormal (2017) Deluxe Edition [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C77D6E66734BA77D0CA443E0CFA035D6628AFA2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Immortal Love 7: Stone Beauty (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:BB24EF0AD8B14B9D3694B0703528A7D172E0F5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sword Legacy Omen (2018) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:474F07A64224E3E17445B40E9EAFF33E67C2A11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Train Sim World® 2020 — захватывающий симулятор, пре
 ```bash
 magnet:?xt=urn:btih:9B51B6DDD3F69B5058D68B9DC9BAC4CFB14B5948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

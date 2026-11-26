@@ -21,8 +21,7 @@ The Fall: Mutant City - это продолжение вышедшей и зав
 ```bash
 magnet:?xt=urn:btih:D901C869D04D50DEF87CF7F79F9F459D8AB17C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Cursed Mountain / Проклятая гора [Ru/En] (RePack) 2010 | R.G. Ме�
 ```bash
 magnet:?xt=urn:btih:9D17EC8E465ED641B091A2229F647F2DACFD1F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Assassin's Creed 3 (Patch/1.01) 2012
 ```bash
 magnet:?xt=urn:btih:D0397C9842ED1B73D109AA18431947ADB3297445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Little Inferno [En] (P/1.0) 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:220C716E9EBEA1C5BE39DA2A880A803A291815D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

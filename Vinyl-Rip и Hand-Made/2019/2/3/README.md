@@ -22,8 +22,7 @@ Rush - 2112 (2012) 1976 [FLAC 5.1|96/24|tracks|Lossless|DVD-Audio] <Hard Rock, P
 ```bash
 magnet:?xt=urn:btih:587279EA375FC12967CCED75CC7B983A7B8D065B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

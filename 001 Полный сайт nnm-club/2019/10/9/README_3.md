@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ACB6FC87E4B54541E70973917DE00BAD67D2D5E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ WebForMySelf | Веб-дизайн + верстка (2019) [unpacked]
 ```bash
 magnet:?xt=urn:btih:462707FD52B5C9562E6AE97C8B076EF576CFA33B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Babymetal - Metal Galaxy (2019) Japanese Edition [MP3|320 Kbps] <Heavy Metal, J-
 ```bash
 magnet:?xt=urn:btih:AE120A16AF0109AD6D7AE15C49BC72A153742455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Gears of War 5 – компьютерный игровой проект в жа�
 ```bash
 magnet:?xt=urn:btih:E0F99C82DBD9CAD803BB239C0CCCB4EE364CFC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

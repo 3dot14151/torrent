@@ -22,8 +22,7 @@ Patrick Rondat - On The Edge (1999) [APE|Lossless|image + .cue] <Neoclassical Sh
 ```bash
 magnet:?xt=urn:btih:768F573F64FEB7F70CAC613E0C3E9B2ADD591F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Monochrome Set - Maisieworld (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop
 ```bash
 magnet:?xt=urn:btih:F973516D9D09F668D9275071D93420E875525571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

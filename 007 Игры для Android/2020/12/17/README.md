@@ -19,8 +19,7 @@ ARK: Survival Evolved v2.0.21 [Ru]
 ```bash
 magnet:?xt=urn:btih:2DB25D2295BA920FED438F201BEAEBC33FACEE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dendy Games (645 in 1) v3.11 [En]
 ```bash
 magnet:?xt=urn:btih:A906A51E2B372FA9E99112EFEB687D9F67038FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

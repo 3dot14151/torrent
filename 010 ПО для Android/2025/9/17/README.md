@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A09FFD1B23E37C6BB603B4A6D1CD690E45839848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:49000C89DA00067995C5D3D2E2CB2F17EF6B4CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Genius Art: Image AI Generator v1.4.9 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:93AF18D993343280CA6665673ECDFA3179B1436B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82A419E856C135D900D54094C9E2057094EF9A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68D6FD9C32B1163FAF93C6240F9B9D3A93E783F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ HiPER Calc Pro v11.2.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:122496E41F917733759934BEF4D519587F39D250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ SoundHound — ваше лучшее музыкальное приложение
 ```bash
 magnet:?xt=urn:btih:562A1026567FC27A0C5ED75CD542B2C1F7EC5D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:61EE6CBB5A4E399D3469933FA914488C6A03A667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE86C1F1D6AD44B6D46906C32FA56813638CA461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Bria Mobile: VoIP Softphone v6.21.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A67BD456EBB30248F042928B7DF4CBE2AB42E983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

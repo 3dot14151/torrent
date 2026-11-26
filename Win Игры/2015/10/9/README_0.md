@@ -19,8 +19,7 @@ Scars of Destiny (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:DC217D677545255893E509E9C250C12DAB830C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Crusaders - Resurgence of the Templars (2015) [En] Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:6F676A335E50783B876918B5B335B0024583C38F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Twilight Phenomena 3: The Incredible Show / Сумрачное явление: �
 ```bash
 magnet:?xt=urn:btih:BB238D1367B0BA16B9771A5A39C78CF5365A4847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Haunted Hotel 9: Phoenix / Проклятый отель 9: Феникс (2015) 
 ```bash
 magnet:?xt=urn:btih:CC1B2D158930614C01AA127479E24AF78DAE888D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Warlock Dilogy (2012-2014) [Ru/En] (1.4.1.56/2.2.202.24549) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D83B2E91B5A58BFE18ADB4E701D1FE50F22C41EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

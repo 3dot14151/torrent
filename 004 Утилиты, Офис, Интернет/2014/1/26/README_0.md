@@ -19,8 +19,7 @@ Hot Virtual Keyboard - это виртуальная клавиатура, со�
 ```bash
 magnet:?xt=urn:btih:EE818BC672EF77CDB9C75860A538A972A1E15A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

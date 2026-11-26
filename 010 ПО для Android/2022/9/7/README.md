@@ -22,8 +22,7 @@ Volume Styles позволит вам полностью настроить па
 ```bash
 magnet:?xt=urn:btih:AC3F7DD96732F57032E25010F6323784886C6C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ No Smoking 2.1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:FD20366425FBCA6F34917A1195DFA1FC099C9F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:630A4CF73971F9D3D0E2842F6C69C86CBAC06DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Radio Alarm Clock + 5.4.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:EAD828CD644593D75D512A3E58BFA49AF5D045BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Car Radio Reloaded 1.45.0 [En]
 ```bash
 magnet:?xt=urn:btih:0927BA233E70D21904754E4FCCF91276103C19DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VPN service - VPN Beaver Proxy 2.31 [Ru]
 ```bash
 magnet:?xt=urn:btih:197CBFD61654AE67D395BCFAE91EE9310FEBB0E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ VPN RedCat – лучшее приложение для Андроид
 ```bash
 magnet:?xt=urn:btih:18F003B4AB56FC99A423FC84EF40B3E656FAB87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

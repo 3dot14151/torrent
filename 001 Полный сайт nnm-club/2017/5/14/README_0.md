@@ -21,8 +21,7 @@ Brian BecVar - Once In A Life (1994) [FLAC|Lossless|image + .cue] <New Age, Neo-
 ```bash
 magnet:?xt=urn:btih:5A134EE39D3514E388E87515306E9EFA3E179BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89C8D6D3C72462B4A31AA40556C7F86527B47B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ B-Side - Ghetto Funk Presents: B-Side (2015) [MP3|320 Kbps] <Ghetto Funk, Glitch
 ```bash
 magnet:?xt=urn:btih:CFAFA3060B74D9C0475D09286BF6D733B806E99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1328F8AD6B4AC076508C3A704FB13E7CF9220A23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Agency Artist Disclosure (2015) [MP3|320 Kbps] <Glitch hop, Future Bass, Ps
 ```bash
 magnet:?xt=urn:btih:274FA814A2A2F681752630988AA650B970821C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Tonic - Ghetto Funk Presents: Tonic (2015) [MP3|320 Kbps] <Ghetto Funk, Glitch h
 ```bash
 magnet:?xt=urn:btih:4DE87760A5320AF2E3746AAF51DD50422E312D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Mykonos Deep House Session (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:9A25D6ECBDB97B2A4720528566015E6816FD9F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ SteerMouse — продвинутый драйвер для USB и Bluetooth м�
 ```bash
 magnet:?xt=urn:btih:6C24781CB8AEB8E7C919B74714A18D1A199340EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Русский отрыв на Русском радио. Версия № 
 ```bash
 magnet:?xt=urn:btih:EC03E0BA3DFEA9FBE5C9456F327CAFC7015C1963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:26B34FCAD48C5A640525E4FE8A64FEEE0BED9DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ VA - Deep & Dark Dubstep Vol.17 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dubs
 ```bash
 magnet:?xt=urn:btih:CC6D925ACF3CE0A1F21E516D3756808700A3CA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Весенняя 100-ка популярных треков. Версия �
 ```bash
 magnet:?xt=urn:btih:E1742D793624ACDDE5881268EEED29CB230E88DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4D9F81B90597B816A8F6BF3EB3AE4EFC221AE5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F4A520A6C3D3F843E6659CE45BD2CD3AD3FC751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Lack Jemmon - Ghetto Funk Presents: Lack Jemmon (2015) [MP3|320 Kbps] <Ghetto Fu
 ```bash
 magnet:?xt=urn:btih:D5BE2F1F8BF5FEC4C78F4451089F0F32E083F5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ The Nice Guys - Ghetto Funk Presents: The Nice Guys (2015) [MP3|320 Kbps] <Ghett
 ```bash
 magnet:?xt=urn:btih:72D5E7ADC4B9954F2E2557512015011E19660A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Andrew Lockington, VA - The Space Between Us / Космос между нами 
 ```bash
 magnet:?xt=urn:btih:B546D1534C8424AB2286B48A577E96036D950C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ VA - Драйвовый молодежный весенний музон вып�
 ```bash
 magnet:?xt=urn:btih:E338313440750823D12F82E5B36EC21F92E04287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ Olsson - Millions (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3322A41A03DE35E64583A220857AF53528915CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ Bobby C Sound TV - Ghetto Funk Presents: Bobby C Sound TV (2015) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:19631D6093022F8A2A2686AE443FD62E3941667F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6D0B85A169A132AC6B13CBC5D98043A892C312E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:132E570A7E78A4F8F83B526D00EB55BEB4F40D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ VA - Disco Forgotten (2017) [MP3|320 Kbps] <Disco, Pop, Italo Disco>
 ```bash
 magnet:?xt=urn:btih:BD813C1E4270ED6C1454D024B504725E8FE8C98D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BBCDF84C6B5140E8D6179B9A8D5FB7FF169FCD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01319D67FAD68AF85E4DE748CD666FDB70C92321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ The Winter Tree (Magus) - Mr. Sun (2017) [MP3|320 Kbps] <Neo Progressive Rock, A
 ```bash
 magnet:?xt=urn:btih:882E9DA9055D9256F97338F805FBE9565A114E69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

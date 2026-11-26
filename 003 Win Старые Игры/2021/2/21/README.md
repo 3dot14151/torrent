@@ -19,8 +19,7 @@ Total Immersion Racing / Жажда Скорости (2002) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:4F75C6D4D00CA6DC56B19B77221538E5E20A6670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

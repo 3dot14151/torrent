@@ -19,8 +19,7 @@ Sam and Max: The Devil's Playhouse - ремастированное приклю
 ```bash
 magnet:?xt=urn:btih:CCD818412EDA0C7CBD3B60364574F68DF8522615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tekken 8 - продолжение культового файтинга, нап�
 ```bash
 magnet:?xt=urn:btih:0499B81AD5AE6F0A309969DB06618D741CC2BDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.23) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:74F6EB108E76C83DE94C55D12206C1148B85405C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (Build 6381373) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0EFE39ADDBF2C165B9693EED635EED7EBC038C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The House of Da Vinci (2017) [Ru/Multi] (Build 5703690) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:639AD88E5BCA31E16900B1B21649FDC0A6000FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (Build 10591427) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:28950A3CEF5F867CDA0C931C9DC2334159958231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

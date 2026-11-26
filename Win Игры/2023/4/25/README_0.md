@@ -19,8 +19,7 @@ Shieldwall (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0B9B42006DCAB7E1977FF7FF8D80A1453F0B33A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assetto Corsa Competizione — новая видеоигра, выпущенна
 ```bash
 magnet:?xt=urn:btih:100E21B5E5B9FDB1A3EC9874E16BB95478BD4A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wytchwood – приключенческая игра, основанная на
 ```bash
 magnet:?xt=urn:btih:E7D014A092C982B5259D736B5A55B1C5F92A7799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

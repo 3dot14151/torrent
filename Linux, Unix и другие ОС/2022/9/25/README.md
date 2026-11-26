@@ -21,8 +21,7 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 ```bash
 magnet:?xt=urn:btih:73FE7E9CCC8D38D35FFF551BD7137B726438B53F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:7089BC8A14413D7434EACE7CAA8B18B5CBE490B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 ```bash
 magnet:?xt=urn:btih:F8B5AFD5E5D75404649F461CF51B1D185B8FF494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

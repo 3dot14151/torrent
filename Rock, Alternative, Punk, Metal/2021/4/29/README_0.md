@@ -22,8 +22,7 @@ Organic Reaction - Mysteries Of The Lost World (2021) [MP3|320 Kbps] <Progressiv
 ```bash
 magnet:?xt=urn:btih:1120BB11C211F32369C32A9FE8F0A497838BD3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Faithful Grace - A New Era (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 ```bash
 magnet:?xt=urn:btih:0C5593865ACE5FF94A839B0A2A6A2D557509A295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Acoustic Throwback Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:0D93D725D0AD5CEA72DBB2FC1EF2025B5500B522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Autumn Bride - Undying (2021) [MP3|320 Kbps] <Sympho Metal>
 ```bash
 magnet:?xt=urn:btih:3A60090C070E381343524D97EBB351414A2B8973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Evermore - Court of the Tyrant King (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 ```bash
 magnet:?xt=urn:btih:741553AB44C2455740A672AFDB0E55E5AADB1EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD-1:
 ```bash
 magnet:?xt=urn:btih:CE69EB6B28558945CB9EF5508A399B5944091925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Gojira - Fortitude (2021) [MP3|320 Kbps] <Progressive Metal, Groove Metal>
 ```bash
 magnet:?xt=urn:btih:AF959BE4A491B7D7829DF60929F72DFC68DF72D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Lankester Merrin - Upon the Forgotten (2021) [MP3|320 Kbps] <Heavy Metal, Female
 ```bash
 magnet:?xt=urn:btih:1481359C47479B4976214E7548F1A954220D147D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

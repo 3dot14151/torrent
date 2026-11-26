@@ -20,8 +20,7 @@ ESET Smart Security 7.0.302.8 RePack by SmokieBlahBlah (x86/x64) [Русский
 ```bash
 magnet:?xt=urn:btih:3FE1F2904C8A1601AA4CD97209297FB87B3B3A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7032040E547A3008EB56F905CE481D91320C68F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ LiveTcpUdpWatch — это инструмент для Windows, который �
 ```bash
 magnet:?xt=urn:btih:1EB9D21D25DB570D8B67141982469ECAF24E4823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

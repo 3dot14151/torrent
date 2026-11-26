@@ -22,8 +22,7 @@ A3 Capri Saarel · на Острове Капри(   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:02F5D0F7B7117B04632B4ED205341E3E6F0EB6D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

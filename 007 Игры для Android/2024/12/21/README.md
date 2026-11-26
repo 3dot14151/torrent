@@ -19,8 +19,7 @@ DREDGE v1.5.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:4552412D99A45192468FFA7C1BC167D4B08E03D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7F218303C13023547BE825AC84C456D82A48CF2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

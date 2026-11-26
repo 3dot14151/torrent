@@ -22,8 +22,7 @@ A4 Moving In The Midnight 5:50(   Читать дальше...   )Жанр: Synt
 ```bash
 magnet:?xt=urn:btih:100367999221F87BB153636235C47021470FC9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Maybe I'm Dreaming 4:23(   Читать дальше...   )Жанр: Synth-po
 ```bash
 magnet:?xt=urn:btih:7D8A61895B0FC82BA45E281A48A90FCF017F2724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8D6C88DFA0E4DCAB57A1E6C1FC05032FF93280DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The Sweet And Slade - Rock Concert 1973 (1990) [MP3|160 кб/с]<Glam Rock>
 ```bash
 magnet:?xt=urn:btih:34EBC8B9B1C305363631EC466838E4343C503840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A3614C765EC7D26067F7DD0E6609C4DDE99AA99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Wallpapers - Nature Full HD [JPEG]
 ```bash
 magnet:?xt=urn:btih:48F22496EB3A6FCC06837FEB0AE5A5848D13E9BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9961747092B074C1F87A21A9D09B03DE869BAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ CRYSTAL VIBE - Change Is the Only Constant (2014) [FLAC|24/44,1|WEB-DL|Tracks]<A
 ```bash
 magnet:?xt=urn:btih:9705FC1BCDDB0E9B74A5486F434B0B976991B01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48430315E7139C46DEED8F2D8D680E45A23855A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE50F6DC13FF7DBC7D94036175760CD8DB6A3980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C9158DC0E1B9E53DD60C9DE59074DF351E7B8EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ No Smoking 1.2.1 (02.01.15) <Ru>
 ```bash
 magnet:?xt=urn:btih:E088C8D3CA9420EEFA01EB768E79729F7F8D6952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Midnight Mysteries 6: Ghostwriting (2014) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:FCA8DB80E89F96059A3DD7441F03E2B60D3E8898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Cоздание высокого качества записи с экрана �
 ```bash
 magnet:?xt=urn:btih:5648C62E030107872709BF24C2E81912DA4F2C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:618E035C5DD512426EAEE34F8896D560214D4406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFE5410F9674C18597EDEE0E01D7B305DF940D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ KISS - New Best Ballads (2000) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:59BACA341AED1E4B9C0CFCC5703FCB6ECE7BFF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Wallpapers - Blonde [JPEG]
 ```bash
 magnet:?xt=urn:btih:29322B0B12E958F0581233CC954D75DD6BD4E12F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ BBC: Топ Гир: Спецвыпуск в Патагонии. Часть 1-2 /
 ```bash
 magnet:?xt=urn:btih:D29806B386E0CB88B0F2315D274BDB9F16752E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Wallpapers - 300 чудесных фотообоев с кисками и соб
 ```bash
 magnet:?xt=urn:btih:2BD95FD80C32D26D031EB667D62F75B6ABEA447D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E957202D674524AB49E607BC9B7E5AFD65DA461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ Easy Context menu позволяет вам добавить разнообра�
 ```bash
 magnet:?xt=urn:btih:D69A506B0AB2557E0FC22B4E56C56BA5EF327626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA4BE3CED030EB0B237EED193658C01223374D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF6457A0AA8364E0086B1853F61EDC7892CDDD14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9E837D1D8609544420C6538178CE7807C1339BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC6C4018BD939093E8B31A5562454496B3BF28F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ Leviathan: The Last Day of the Decade (2014) [Multi/Ru] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:8907CABA30F4D9A709E13453D05C8382A825BDFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D7E03E26DDBECA5FDF00F04BDD86B0691F67125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

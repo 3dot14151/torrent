@@ -22,8 +22,7 @@ VA - Антология советского киношлягера - Любим
 ```bash
 magnet:?xt=urn:btih:6A80D841D90B62676494D323C24E9D01F0E180ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Various Artists - Любимые песни из фильмов  /Movie Songs (1
 ```bash
 magnet:?xt=urn:btih:4ECD299A21D9D284D6A4D25CAE019DE1A40EE08F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

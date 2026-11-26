@@ -19,8 +19,7 @@ Spirit Legends 5: The Aeon Heart (2021) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:59BD9ED5BB399A7E8AC82AE9DE46C781D5CA66C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

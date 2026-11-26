@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:92868B2833754635AD7FADB83D47F8BD70A6E05D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ethical Hacking and Penetration Testing
 ```bash
 magnet:?xt=urn:btih:CD959ED3DA17572C7B3B1B03EA8ECE3D9EA8781C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

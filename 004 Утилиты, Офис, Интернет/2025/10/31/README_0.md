@@ -19,8 +19,7 @@ DISMTools — это интерфейс для DISM, позволяющий уп
 ```bash
 magnet:?xt=urn:btih:F15A47BFE31D9DDD977A88CF6616F716DCE44282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 ```bash
 magnet:?xt=urn:btih:FA9E65A0E4A4E3CF016654322A367DB011B8AE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:336AFDD4A3C9DB5510E510727E053F53238DD54B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Ashampoo WinOptimizer 28.00.20 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:33657C658EB13F10084017EAB7D87086682A754D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ DBF Viewer 2000® - приложение для просмотра и редак
 ```bash
 magnet:?xt=urn:btih:BCA890979206289FA89E2C00DC45A381E127C074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ SupRemo 4.11.6.2928 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:29CC8E02B84382659C4A0649CB8A227F4402DB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ DBF Converter — узкоспециализированный программ�
 ```bash
 magnet:?xt=urn:btih:6EAB85C306C397A42CCB83ECD14F228D1D4BEC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:F6DFF053CE9834CDB8A9D201BECA313CE1AC4294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ O&O Defrag Professional – инструмент дефрагментации д
 ```bash
 magnet:?xt=urn:btih:133407827C0E642AF6CB6C1F3C3CD7F56B776C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ PDF Password Remover 2.2.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:5EE9E752C018823AF59C139E9196A437BCDFA1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ PDF Compressor 2.2.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:D32195B17F619C65F4072017E858C56753B6108D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Tenorshare 4DDiG 10.6.3.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:578BC4E4FBD04B40E3F0D122979B6503241E3BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Cisdem Duplicate Finder помогает находить дубликаты ф�
 ```bash
 magnet:?xt=urn:btih:C6D5975385183E977A0E0A9AE70E4F29CC937AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ SmartGit одинаково хорошо подходит как новичка�
 ```bash
 magnet:?xt=urn:btih:1275D1D2DF19C66BA3E5EDF2967735DCDEDF0D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ MAX Desktop 25.15.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:C8F6059795BA151486038F49431FB379985A165D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ Ashampoo UnInstaller 16.00.02 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:66594D977542000C6140272D025B47FC40EDF8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ MediaHuman YouTube Downloader 3.9.17 (3010) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:55126C19BAE4A32B815521763A38C47BC014EDDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

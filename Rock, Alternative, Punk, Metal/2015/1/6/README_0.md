@@ -28,8 +28,7 @@ Cry Excess - Ambition Is The Shit (2015) [MP3|320 кб/с]<Post-Hardcore/Metalco
 ```bash
 magnet:?xt=urn:btih:38F5A0E323296F59BAB00A4A24476BE61B2A5444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Even If It Kills Me - Hope On the Horizon (2015) [MP3|320 кб/с]<Post-Hardcore
 ```bash
 magnet:?xt=urn:btih:C3076231708B0C171C365B5265E2D81889B1FEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Dionis - 3 Альбома (2006-2014) [MP3|320 кб/с]<Heavy Metal, Power Metal
 ```bash
 magnet:?xt=urn:btih:3929AF2523ACA6B2E0D6597230F6BAD84C9A0EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Belle and Sebastian - Girls in Peacetime Want to Dance (2015) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:B49A8075118DC9C6D4FDEF836ECA959947B197FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ABCCAD15729D9F447298C83245003CEE2B902F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Witcher / Ведьмак (2008) [Ru/Multi] (1.5.0.1304 / 8 DLC) License PROP
 ```bash
 magnet:?xt=urn:btih:F0A2570BD41EEE5B7118A5AAF681E9A818E36E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Farm Frenzy 4 / Веселая ферма 4 (2013) [Ru] RePack adguard
 ```bash
 magnet:?xt=urn:btih:99D260F9F6E5A20C481AC054DC27AC88D0FBC8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Call of Duty: Black Ops 2/II (2012) [Ru/En] (1.0.0.1 upd3) Rip R.G. Revenants [D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 ```bash
 magnet:?xt=urn:btih:B5BCA58CB047952C7850CA2F6EB78E4A14899FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

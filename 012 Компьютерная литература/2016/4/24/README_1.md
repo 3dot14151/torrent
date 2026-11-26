@@ -19,8 +19,7 @@ Google Inc. | Android 5.0 Lollipop: Краткое руководство (2014)
 ```bash
 magnet:?xt=urn:btih:28A2A4ACCAB337AB59A6177C892B369F9A87DF64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

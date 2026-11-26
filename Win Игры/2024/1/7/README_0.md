@@ -19,8 +19,7 @@ The Night is Grey наполнена мрачной атмосферой тем�
 ```bash
 magnet:?xt=urn:btih:9C0076B214E7BCF98507465782CFB5169DE9B287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hedon – это приключенческий шутер старой школ
 ```bash
 magnet:?xt=urn:btih:C79E9D7C71C4D687026D4B7A52932F084D8A575B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Amatsutsumi - визуальная новелла в аниме-стилисти
 ```bash
 magnet:?xt=urn:btih:5A8E8AEBE4DC2EFB864913F8714CF35B34EC7C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Witch's Rhythm Puzzle (2023) [Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:3984A6107B896A30D17E90C518747CC5CF19406A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fates of Ort - изометрическая ролевая игра с элем�
 ```bash
 magnet:?xt=urn:btih:34A53E4F812D75ACC13FFC7E6BF4FCD8466677E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Unsolved Case 5: Killer Popularity (2024) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:CDFAFB072F4ECCA1E2D4898F048CB6C868E82E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

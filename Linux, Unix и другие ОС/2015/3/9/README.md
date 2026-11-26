@@ -20,8 +20,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.1 [x86-64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:C8B104F611FB1A24BFF4A6C1B226932777960651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

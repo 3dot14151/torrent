@@ -28,8 +28,7 @@ Essence - Last Night Of Solace (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7E1D015AE45BAE6BF5E94541499B37C9EAB19746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Voilа! - Odessa (2009) [MP3|320 кб/с]<Post-rock>
 ```bash
 magnet:?xt=urn:btih:CE0361F924632CACE7A07B51EC6745E8253933D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Loverboy - Greatest Hits. The Real Thing (2009) [MP3|~245 кб/с (V0)]<Rock>
 ```bash
 magnet:?xt=urn:btih:DBE12C7A8B78D8A8D55B7BE3C289A0CB09596CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Queensryche - Frequency Unknown (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:798B5901ED8038D9F49CDED14E3F955394CAAD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Stahlmann - Adamant (2013) [MP3|320 kbps] <Industrial Metal / Neue Deutsche Hart
 ```bash
 magnet:?xt=urn:btih:EF4D147EC86247171C8AEB73588F6C66B5D775C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Delain - Interlude (2013) Compilation [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:D4B1F0B642F16001C8B739C39582DEA04EBB502A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Device - Device (2013) [MP3|320kbps] <Industrial Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ VA - The Official UK Top 40 Singles Chart (04-05-2014) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:3E5E3708822A33C895B5C34B62F9FF786AD5F339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ VA - Lounge Cats (Ultra Cool Blues Lounge Music) (2014) [MP3|320 кб/с]<Electr
 ```bash
 magnet:?xt=urn:btih:0A4B40A40E499E3F92D21945F26B0606D7AFB33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 magnet:?xt=urn:btih:D4E655CDCF61231B5441ECCF06B9EAA4F1C24D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Clap Your Hands Say Yeah - Only Run (2014) [FLAC|Lossless]<Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:02B84671BEAE232DBE94738392CAEE0C3F682287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECD46BA0C0CAD803A9B000AED5B078D0EAC32ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Wise Reminder - достаточно удобная программа для н
 ```bash
 magnet:?xt=urn:btih:D481700F10A4962F8700C88F533951F4AA1AF391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Free Audio Converter 5.0.39.430 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5A26BB87DD035AD9FE264BA68CAC9115018C6628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4B7D7306E99951F2EB0805375F70781D3212BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ Nightmare - The Aftermath (2014) [MP3|320 кб/с]<Heavy / Power Metal>
 ```bash
 magnet:?xt=urn:btih:8596909B77501227C3C3E850ADCD31AD90429EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2ACD057475729E375C71059B16E5A71B8F1B8AA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01489E128725B2C2F8F0EA0744E19C21058E10F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ Gruff Rhys - American Interior (2014) [FLAC|Lossless]<Rock, Folk-Rock, Indie-Roc
 ```bash
 magnet:?xt=urn:btih:390C89EFDD6F21730A31180D19D3737C09C2F0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ Drake Bell - Ready Steady Go! (2014) [FLAC|Lossless]<Pop-Rock, Rockabilly Reviva
 ```bash
 magnet:?xt=urn:btih:EA885F653C2AE3F850839641DE0F639341D21D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC1454A0E077FDA681DB7E5DAF3A6007230208FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ Cerevisia - Trails Of A Walker (2014) [MP3|320 кб/с]<Melodic Death/Pagan Meta
 ```bash
 magnet:?xt=urn:btih:BD25C8829805043A071B204740E6C2302CB47A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ Aiseesoft Blu-ray Player - универсальный в работе "все в
 ```bash
 magnet:?xt=urn:btih:43493C03E00513B47B1167E8B04EA4839C3D01FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ G minor / sol mineur / g-Moll La noue
 ```bash
 magnet:?xt=urn:btih:23E8E2588F79837F867D7D416D5A70ECA7A92DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +513,7 @@ Wallpapers - Buildings (06.05.2014) [JPEG]
 ```bash
 magnet:?xt=urn:btih:43C940F940E1BA117D8A626FD9B885ACDD9F89EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +538,7 @@ Wise Data Recovery - бесплатная утилита, которая поз�
 ```bash
 magnet:?xt=urn:btih:CF7F22BBBBEF3010D3FC8279BC8F1FFF3A0E57C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C84CD8EEB94329FC20862C100F43C4052DCA110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ Screenpresso - легкий в использовании инструмент �
 ```bash
 magnet:?xt=urn:btih:8DF25D32EF4CA7979F7554D0009424A7A7DDC375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB22BF5FEE69CC89A1B6034319D91E15BD161E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A933EB8D6F616458EEB63BCF1ADB83937249ED44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:978DA9939A8DB787ADDF27D9F733DE2DB5C5D3BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ Wallpapers - Mixed HD Wallpapers Pack (05.05.2014) [JPEG]
 ```bash
 magnet:?xt=urn:btih:8C552A2EBAFE81D98EF8F0F90394EA78AB2AF9E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +720,7 @@ Wise Plugin Manager 1.01.49 Beta [Multi]
 ```bash
 magnet:?xt=urn:btih:6C1F84E45DFFECEC7968E2F2BC116C193C86A5A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

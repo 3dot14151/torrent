@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:38554596893CBD37B51C98F42A984AF9A6F215C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Corona Renderer - это популярный визуализатор для р
 ```bash
 magnet:?xt=urn:btih:C0BA172BA2DA8BD54505495F3F44311685A3C40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13126BCC79CFD9270892AA529516D46E48861EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ AIDA64 - данная программа является многофункци
 ```bash
 magnet:?xt=urn:btih:30C7206D3AE888ED252A623E748EFBF3A71C5A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

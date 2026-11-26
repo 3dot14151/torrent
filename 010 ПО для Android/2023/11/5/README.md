@@ -19,8 +19,7 @@ Camera FV-5 v5.3.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3EA9D6C095A04EA01872613DCCAAA014AFE97BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:234848E30CCDAF5A46D4BBDE85E64570487D64F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

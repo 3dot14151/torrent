@@ -22,8 +22,7 @@ King's Bounty: Принцесса в доспехах* - Новая приклю
 ```bash
 magnet:?xt=urn:btih:44E800506239DCDADC094F7709E793AE59B5D3A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ King's Bounty: The Legend* - это рыцарская сага, предста�
 ```bash
 magnet:?xt=urn:btih:A67F2811BEAC6F1CE8C6916D1A472834028A1F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

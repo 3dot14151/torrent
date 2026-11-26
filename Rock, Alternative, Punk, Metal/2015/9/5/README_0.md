@@ -22,8 +22,7 @@ The Sword - High Country (2015) [OGG| 435-535 кб/с]<70's Stoner Rock, Hard Ro
 ```bash
 magnet:?xt=urn:btih:8A5A7F41EEC0525ABC4018A8464E05D8D529CAA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Majesty - Cross Of Thorns (2015) [MP3|320 кб/с]<Heavy Metal, Power Meta
 ```bash
 magnet:?xt=urn:btih:6DFDED5BAFF2FFC60F43CDF384565019851F1C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ CD2 - 00:27:11Треклист CD1:
 ```bash
 magnet:?xt=urn:btih:29C9212F3432E403132F782F70AC4C143BE22DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Civil 3D – это решение для проектирования объе�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (1.0.0-1.3.3) License GOG [Patches]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Rammstein - Rammstein (2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A94CB7FB15BE11D695FBC98175B7CA261605A56C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Server 2008, 2008 R2, 2012 R2, Office 2010/2013/2016/2019Язык интерфе
 ```bash
 magnet:?xt=urn:btih:3FE1C48C96AC968F89FCC0165667267F3E9F4A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, Movie] BD
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Psycho-pass | Психопаспорт (два сезона) [2012-2014, TV, 22 
 ```bash
 magnet:?xt=urn:btih:AF86581417E580C44E2BDF893504CA1BF6CDB91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Pandora Hearts / Сердца Пандоры [2009, TV, 25] DVDrip raw+rus
 ```bash
 magnet:?xt=urn:btih:DB04CF404A2315224350E756D0FF61EB96503180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ ru_windows_10_business_edition_version_1809_updated_sept_2018_x64_dvd_b115f344
 ```bash
 magnet:?xt=urn:btih:C9C75667F73CC47150BD28B581DF86C81E339841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ VA - Легендарные песни - Коллекция (гр. Форум 20
 ```bash
 magnet:?xt=urn:btih:7DC366A1C9996E91D6CD6309C1E6DF04B1FC21C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

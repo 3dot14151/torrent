@@ -22,8 +22,7 @@ Ian Parry's Consortium Project - VI - Legacy Of Empires (2026) [FLAC 24/44.1|Los
 ```bash
 magnet:?xt=urn:btih:5ACD056A8A05510F99F2FED049BF3A5FC89F4CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hollywood Vampires - At Montreux Jazz Festival (2026) Live [FLAC 24/96|Lossless|
 ```bash
 magnet:?xt=urn:btih:937B5EC8164794CBB5F0EA017B7215156E2ABD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:890A7B5FFA8CD3854AC71FBD56D7CAEF2DC8A87A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Show n Tell - Eyes Of Evil (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F35F8F7D980E19ACC7CD77A4EAF7D80407149871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ominous - The Spectral Manifest (2000) [FLAC|Lossless|tracks + .cue] <Death Meta
 ```bash
 magnet:?xt=urn:btih:B3ECA30CCFD52077AAFEDE3DAEC6184A7AA9D55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9F7773A0403C6BE6661B2C1EA13037EE9B3CE8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

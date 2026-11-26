@@ -18,8 +18,7 @@ DAEMON Tools Ultra - новый продукт линейки DAEMON Tools, уд
 ```bash
 magnet:?xt=urn:btih:1DBA1DCAAAD28606428659DA4E9CC382B3A47654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Sakurasou no Pet na Kanojo / The Pet Girl of Sakurasou / Кошечка из С�
 ```bash
 magnet:?xt=urn:btih:B9E2A1249F0B98012F723FE18D445529AB57EA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013 Redistributable Package Hybrid x86
 ```bash
 magnet:?xt=urn:btih:2E97072EAF7CF27AF1441720556D7AB9E9679512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Arata-naru Sekai: World's End / Новый мир: Конец (2012, OVA, 1) BDR
 ```bash
 magnet:?xt=urn:btih:C24A09BC309160C54A533882BE79602F114194AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Sacred / Князь тьмы (2005) [Ru/Multi] (2.28) Repack R.G. Revenants [Gol
 ```bash
 magnet:?xt=urn:btih:2E2469DE5A4FD70E44EC3BBD1E29363A01219E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94E72F01AA61B1923C71A4E50BCF0B913C59F466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Wargame: Red Dragon – первый выпуск популярной сери�
 ```bash
 magnet:?xt=urn:btih:F010CED2B7BD27EE40B5E86B4D4A0B7D6A2DD877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ House of Cards - это политическая драма о безнравс�
 ```bash
 magnet:?xt=urn:btih:5DCD1D06B8D7914485ED6772D71022B21FE7E445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 ```bash
 magnet:?xt=urn:btih:9F9147078B1E94413C312ACF7913574D6AEBD0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Legend of Grimrock 2 это классическая RPG с современны
 ```bash
 magnet:?xt=urn:btih:FEF9A4678F83CA302DFFD11FF036111C46EB2D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Sacred 2 (2010) [Ru/Multi] (2.65.2) Repack R.G. Revenants [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:2033F63E0D798406B06351D6C27E47B17C2529A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 ```bash
 magnet:?xt=urn:btih:3E760EFD23E007C79A9BD96E5581DA397383AD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Heroes of Might & Magic III (2015) [Ru/En] (1.15) SteamRip DWORD [HD Edition]
 ```bash
 magnet:?xt=urn:btih:4290026B7156C436FA230E559E539E29AE14817A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

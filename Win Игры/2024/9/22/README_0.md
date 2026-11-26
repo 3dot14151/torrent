@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:00BC863288DD5F7F08181008909E4D143B031447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Who's That Flying?! (2011) [En] (1.0) Scene PROPHET
 ```bash
 magnet:?xt=urn:btih:A37E6388BCEA720018243B49E38B32D2636F00BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Assassin's Creed II (2010) [Ru/Multi] (1.01/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:36787944EE23A5A08DAC0782F8D552C730BA68B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Anger Foot - это молниеносная хардбасс-игра, где �
 ```bash
 magnet:?xt=urn:btih:C865D7247F107B09FDC6632172361B6818C5086B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Life is Strange 2 (2018) [Ru/Multi] (build 4874667/dlc) Repack dixen18 [Complete
 ```bash
 magnet:?xt=urn:btih:55E0BB7AAEF76B3F8E0B5E47834D4113523D9991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Portal Reloaded - модификация оригинальной Portal 2. Ра
 ```bash
 magnet:?xt=urn:btih:E4E1AB008B885D645898ED963A0EC92105C02558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Elon and the Divine Proof - это однопользовательская пр
 ```bash
 magnet:?xt=urn:btih:71313433B97B1D73753A7D5F5D869AB5FD95C678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/En] (1.0.165/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0952B5123882A836A6FC6F32140A06A6AFFCFBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Castle of Lord Velimir отправляет игроков в опасное п�
 ```bash
 magnet:?xt=urn:btih:501261B467FE409FB05E258542882ABE30BE1D5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Garlant: My Story - это игра, в которой вы отправляет
 ```bash
 magnet:?xt=urn:btih:9F15DB9F4BA3748D6DB9D0DD80E4F853C9639817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Gym Nights (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F849F863D7002FFB78EEA6CF25A0D9042AE980D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Starcom: Nexus (2018) [Ru/Multi] (1.0.13c) License GOG
 ```bash
 magnet:?xt=urn:btih:567456CB084B69551FCD9593013B04CA3E084651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Planetbase – стратегия, в которой вы руководите �
 ```bash
 magnet:?xt=urn:btih:A13FB9DBB85321F1EC71D3A6136DF69290DB9FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D35A99E94C938665EB189291097B9945D04E715D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Gimmick! 2 - это платформер, рассказывающий о при
 ```bash
 magnet:?xt=urn:btih:47E01A68D9C3FA632CDF85A93E8751F99CD2DF8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Footgun: Underground (2024) [Ru/Multi] (1.0.1.0e) License GOG
 ```bash
 magnet:?xt=urn:btih:FA2676646518CFD1A89CC9214CE68AEB8D90F2DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

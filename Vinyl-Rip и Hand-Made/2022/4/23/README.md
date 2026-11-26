@@ -22,8 +22,7 @@ A4	Shine Through My Dreams(   Читать дальше...   )Жанр: Pop/Easy
 ```bash
 magnet:?xt=urn:btih:DD39C66E482673A37C083EF65F671EC48BD8C106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4	Marvin Gaye & Tammi Terrell -	Ain't No Mountain High Enough(   Читать �
 ```bash
 magnet:?xt=urn:btih:DA7E8F2BECD8B6C041C5B1A5BEF52A5267F73396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Written-By – Englemann, GlazerЖанр: PopПродолжительность:
 ```bash
 magnet:?xt=urn:btih:07B0A4F335979C66628A17454F13F21D74BD4B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Rock Линия (2004) [FLAC 2.0 16/44,1|image+.cue (MC Rip)]<Rock>
 ```bash
 magnet:?xt=urn:btih:A2CA95F9EB30DDD9BDF6D73F28E9E700EDFF1BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ B2 Будь со мной - Группа "Братья Дуби"Жанр: Pop Ro
 ```bash
 magnet:?xt=urn:btih:F8701F53B77DB1CE65C35EE19C6B025B7A60C681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ A4	Нет, Мой Милый(   Читать дальше...   )Жанр: PopП�
 ```bash
 magnet:?xt=urn:btih:D957A9BE4899BF3A7B1CD7B2A584E084D6AC463C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47321DCFF92100F0C1DCB192C08E1FA48E574E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6061A21F70283F17B60FCDFB48696300F2ED176D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Written-By – Meacham, J. Gray(   Читать дальше...   )Жанр: Jaz
 ```bash
 magnet:?xt=urn:btih:8150C1AF10A4FE3A53FF560DA9DB217CA0F3E2B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

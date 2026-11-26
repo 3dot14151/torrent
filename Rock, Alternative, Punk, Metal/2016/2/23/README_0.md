@@ -22,8 +22,7 @@ Anvil - Anvil Is Anvil (2016) Limited Edition [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:199FC4B93FE9FD54E73A11B0A9C6465A053C0605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Last Leaf Down - Fake Lights (2014) [FLAC|Lossless|image + .cue] <Shoegaze, Post
 ```bash
 magnet:?xt=urn:btih:FEF64476E398F6681B06038C8C971553BC9AF68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ ME - Another Story High (2012) [MP3|320 кб/с] <Alternative, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:3152A0D1F66EF4C53AADB339DEE5EDBFDB912AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Marty Friedman - Tokyo Jukebox 2 (2011) [FLAC|Lossless|tracks] <Rock, Heavy Meta
 ```bash
 magnet:?xt=urn:btih:9E4991BC71CB3A8A2617B47C06B50DA6021F05B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ ME - Even The Odd Ones Out (2013) [FLAC|Lossless|tracks + .cue] <Alternative, Pr
 ```bash
 magnet:?xt=urn:btih:021093EA4A62E74212BFAFA3EB0B12B7D9203822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Fleshgod Apocalypse - King (2016) [FLAC|Lossless|image + .cue] <Death, Symphonic
 ```bash
 magnet:?xt=urn:btih:4DF7686B9C7C79FB48315C217D5E0BA3B663C411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Timo Tolkki - Hymn to Life (2002) [FLAC|Lossless|image + .cue]<Symphonic, Melodi
 ```bash
 magnet:?xt=urn:btih:0DC3CD13ED20D31A42AD071D2A002E48725AC5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Tori Amos - Diamond Collection (1998) Unofficial Release [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:39EC98E82D3339D605D4923B3F83B21584FD0858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE8ABD8CA5D4C9EB4C2422DEE05616F7437F0ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - The 70's Collection (2000) S&V #04/2000 [FLAC|Lossless|tracks + .cue] <Rock
 ```bash
 magnet:?xt=urn:btih:4986BAC0F1389F46323BA6FA79EEAA458D46A976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Gary Moore - Wild Frontier (1987) Remastered, Japanese Edition, 2016 [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:F89F1B2D742F95467FB215DA5461A7F5AB8E4CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFAF351EC2556294C8A9C1B1F840D80A177B74A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B06F6E83897E6B90250512791799073D4E66306A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2581DD8543F9D3DD499DA53E4C84021A7A60C578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Весна. Звезды зажигают (2011) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:9B9DE259932BF15BFEC7FCAE7347CE4722E3BD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Dave Brubeck & Gerry Mulligan Quartet - Jazz Jamboree '70 (1999) [APE|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ NG: Эти хищные муравьи / Ants From Hell (1994) SATRip
 ```bash
 magnet:?xt=urn:btih:91E9440D2F12C73EC58A8CECCB43BE9CE8FBD20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Хит-парад шансона #4 (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:2436098283EC23AC5825D1DB5D2B12B61FF84429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Label: Armada Music
 ```bash
 magnet:?xt=urn:btih:EA7992409DDFC161E356356CA22FB74B89200727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F96258CC9A952F8966B4E678885DF5C16654A6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA0FE1C560FDCCD4C54DB8AB5332D2BC7DC19ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ VA - MTV По-Русски (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:71AF9FB8E65AE5B9C0D7BF25BCFAA766561AD45C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Лучшая клубная сотня-15 (2011) [MP3|320 kbps]<Dance, Hous
 ```bash
 magnet:?xt=urn:btih:994D8CFA32E0FA0A7FB907CEBE495585DBF475E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - DFM - Свежак Конца Марта (2011) [MP3|320 kbps]<Pop, Evrodan
 ```bash
 magnet:?xt=urn:btih:46FD7A3F3747A8220E59E94223ECC10AFD9CC654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Blues'Ball - Blues'Ball (2005) [APE|Lossless]<Gutar Driven Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D6B0412C8B03D8BC25A2FBF0929D569A1945546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ Playboy – глянцевый мужской журнал охватывает 
 ```bash
 magnet:?xt=urn:btih:4B0894118CD46FBFABF710E34D735729819CEBEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F58C5C2B05B4CFCB17AD9FCC4C86648A816F5D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ TweakNow PowerPack - мощный по функционалу и простой 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Sothink SWF Decompiler - программа для конвертировани�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EB237B98FBA5DD5304DD7BB7A13D66D3DABF5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ Armin van Buuren - A State of Trance 508 (12.05.2011)
 ```bash
 magnet:?xt=urn:btih:B7C42B5369AEAE3E0732CEC1143A1F0CE05AC776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ Jie Bing Chen - Spirit on Two Strings (Erh-Hu) (1995) [FLAC|Lossless]<Ethno, Chi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22C9AF09B1547E7E1C06A6A57074FBB669A5D9A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:63E45D37C828F10DF0B284E4568B467E4F45B7BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +667,7 @@ Jon Lord (DEEP PURPLE) - Keyboards
 ```bash
 magnet:?xt=urn:btih:ACB935CA5D3C6A0D28C7F2133AA2DEEC73907B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F21C5896B85AC3E068233CC8DB18B00B50F4EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +718,7 @@ VA - MEGA Cборник Клубный Сlub Mix And Remix Vol.10 (2011) [MP3|32
 ```bash
 magnet:?xt=urn:btih:71A58A0D55E0EBFC3E7CAE6E006843A3A5F801E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

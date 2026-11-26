@@ -19,8 +19,7 @@ Ominous Tales. The Forsaken Isle / Зловещие истории. Покину
 ```bash
 magnet:?xt=urn:btih:FCAE41DFF0AD90B1754925D4BBC915DCB050B5AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Light Fall (2018) [Ru/Multi] (1.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:29CB51A8CE75C528A7C7C7644821CCC34E33E69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Inked (2018) [Multi] (20180425-1) License CODEX
 ```bash
 magnet:?xt=urn:btih:D0E4C279F83D4137A43C34E1CA9C2D16744F839F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C136AC230F6F5F24441CF25A25BAE5738A1FBDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bullet Witch (2018) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:DAE07DDD2D2951F8C0CEDA067E7C084EDA594E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

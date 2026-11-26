@@ -28,8 +28,7 @@ B4 Weight Of The End(   Читать дальше...   )Жанр: Melodic Death 
 ```bash
 magnet:?xt=urn:btih:FE5707FA398A1C1EDFDE17D65AAEAABDC1A77EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B4 Sing Shout (Knock Yourself Out) [3:11](   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:88105E627AE8FE59C140CC8865EB342C9F502B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

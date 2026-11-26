@@ -22,8 +22,7 @@ Decembre Noir - Forsaken Earth (2016) [MP3|320 Kbps] <Melodic Metal, Doom-Death 
 ```bash
 magnet:?xt=urn:btih:414374B41FFA3D3C5F9DA8FF46CACD07192CC6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Soft Machine Legacy - 6 альбомов (2005-2013) [WavPack|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:C1A70A4A0B9B64E8F6954A8B2432B736F59E6C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ John McLaughlin And The Mahavishnu Orchestra - The Collection (1991) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:ECC9296CEFB7751F3AE72B4170D966E4DF02E199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Running Wild - Rapid Foray (2016) Limited Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:86102A5C9A4FEEB6419B0806FF090DC42DE751B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

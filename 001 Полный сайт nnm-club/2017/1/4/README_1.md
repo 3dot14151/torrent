@@ -21,8 +21,7 @@ VA - Взрывной хит-парад. Сборник № 6 (2017) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:7D63681432646226650C5B53A6E5C7AC1819A0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ JohnnyM5 - Fantasy Of Love (2008) [FLAC|Lossless|image + .cue] <Italo-Disco, Syn
 ```bash
 magnet:?xt=urn:btih:273CCBB9F481533E4A6B515496C70678C923159B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Relaxing Music for Massage: Relax Chill Out Music for Relaxation Massage (2
 ```bash
 magnet:?xt=urn:btih:6405919F8465EFB740E7B9661B149D110C7F4358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Crossing Mind - Beyond Duality (2016) [FLAC|Lossless|tracks + .cue] <Goa Trance>
 ```bash
 magnet:?xt=urn:btih:287F2252529C4050E9F87DBAC38C01312C421D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAB5B606597CAFA65022C13AE1BDE7ED65061CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Foretaste - Space Echoes (2016) CD [MP3|320 Kbps] <Electronic, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:205713EE6386DB9EC0BB3FF590D7BE38E10AF4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ LTJ Bukem feat. MC Conrad & DRS - Progression Sessions 3 (1999) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:B08BC1F9A4CE77B324C0DF4465E0C928B249C8B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:B74BA1385DE02B67C8D7CBD4324D181C2CF6E3C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ TeTuna - Alien Existence (2016) [FLAC|Lossless|tracks + .cue] <Psytrance, Psyche
 ```bash
 magnet:?xt=urn:btih:C66C85680B2BA46D4B2F2A277BFD4C7C43501546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ VA - Orbital - Best275z (1992 - 2016) [MP3|320 Kbps] <Electronic, Techno, Downte
 ```bash
 magnet:?xt=urn:btih:76D09C92831A7BA8DAFACA89F8B3592E897DBFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Blues Cousins - KGB Blues (2011) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:68A4C34D14472520D130FF8B60A2706BC7FC4C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CA87296F758DDA48B450BEF932DF57AEF2101B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - Psychofluid​:​ Evolution (2016) [FLAC|Lossless|tracks + .cue] <Psy-Tran
 ```bash
 magnet:?xt=urn:btih:34F2092EE02CCD3F36B3A9B707D00DB0AD6BBF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1ED02BAA99FC8E7D8ED569EEDEFB2068F90B92E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF9E1FEAF489339763F96B56D6A0FC30BAD5C70C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4CC55F1B7795CA8C7EB8C597D598E60F05685D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ VA - Acoustic Pop Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental
 ```bash
 magnet:?xt=urn:btih:159324C00D3F4B9314990FEF25BF0515EDF14F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ VA - Хитовый бум на Europa Plus. Зарубежный выпуск (
 ```bash
 magnet:?xt=urn:btih:7B62B8F65ACE4BF6BA8762877CFEE22A09F2C64E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CCD9E44ED8F92E92EE10C76ADF49C97BC852122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEE403E13C2C5130ADA105AAE5EE7C37D327E60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:613180F5BF880EB5B9E04EDE1973050ADF44E1D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Sheewton - Distant Thoughts (2016) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Tr
 ```bash
 magnet:?xt=urn:btih:EF57AA9E56E54C335FFFD9AC6FD94DFC1E2D9B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:C362C2179FAD57D950D0C0DD26193322295E51AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ The Salsoul Orchestra - 8 Albums (1975-1982) Reissue [MP3|320 Kbps] <Funk-Soul, 
 ```bash
 magnet:?xt=urn:btih:B7144F4BEB9ED30687C2209307BAC1965F3EBA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Delain - Moonbathers (2016) Limited Edition 2CD [FLAC|Lossless|image + .cue] <Sy
 ```bash
 magnet:?xt=urn:btih:4211DBCEFB24A179BE7D3B6FA8C4038F48B45558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ Stellarium это бесплатный планетарий для вашего 
 ```bash
 magnet:?xt=urn:btih:F1C385597780666396B5024BAB6F3EB57F4DF5A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

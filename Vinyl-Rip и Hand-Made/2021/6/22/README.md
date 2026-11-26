@@ -22,8 +22,7 @@ B1 Oxygene (Part 17)(   Читать дальше...   )Жанр: ElectronicПр
 ```bash
 magnet:?xt=urn:btih:465CCBC0CF458A6A011CEA5FC3FB0CCA22D1F5A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

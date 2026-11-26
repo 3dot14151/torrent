@@ -22,8 +22,7 @@ Warby - Mystic Powers (2026) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A2C1BFAB8E6AFBF51207FE06B65758B606AD42C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Exitium Sui - Unravelling (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Meta
 ```bash
 magnet:?xt=urn:btih:804DE54671AE061A8BA1FDFA54D59C7D27CB69FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Marco Garau's Magic Opera - The Final Flight (2026) Japanese Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:E4F40C4758BA660F20387F493744417ABE49D518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 ```bash
 magnet:?xt=urn:btih:CEB5E3781B168ECD84650E62CEED6D31519A73F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

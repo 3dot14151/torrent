@@ -19,8 +19,7 @@ Domini Games с гордостью представляют еще одно ве
 ```bash
 magnet:?xt=urn:btih:730ACF9244598EB24D2064C0600F101AC6D51F5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ StarCrawlers — это сплав из классического Dungeon Crawl
 ```bash
 magnet:?xt=urn:btih:E6792362C5027D127C17838335D830436FEA14B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Infliction – сюжетный психологический хоррор от
 ```bash
 magnet:?xt=urn:btih:2B2B8F78A5A11FEA60D86FFD06AE6F1A199498B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

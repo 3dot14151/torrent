@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:AE8A6217F9D7FBBF56D3E1DCA6936B78D9E88B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Acid Reign - Daze Of The Week (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:1360982C247A481623C7067D82DDE3351462150B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:032144264EBAAE262A5044981AE8B91CFCECFCE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Green Carnation - A Dark Poem Part II: Sanguis (2026) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:B20368CA6BA7464481612FAA0DE97AEF748FB473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Barenaked Ladies - Disc One: All Their Greatest Hits (1991-2001) (2001) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:47E5AA4EC071078900F56D5CC5A6A1102436DDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

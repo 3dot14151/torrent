@@ -19,8 +19,7 @@ Warcraft Trilogy (1994-2002) [Ru/En] (1.2/2.02/1.26a/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:F1758A42BFF845B69E0FF64E440D4DC5CE1E7EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
 ```bash
 magnet:?xt=urn:btih:66EEAA45608A90AAA5F118D66E1E52DF327BC2EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crysis - первая игра в популярной трилогии, дух�
 ```bash
 magnet:?xt=urn:btih:8569ADE2EEEABD58030C4DDC5621EF991B1B14E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

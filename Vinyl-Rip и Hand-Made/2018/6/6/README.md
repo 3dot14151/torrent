@@ -19,8 +19,7 @@ The Beatles/Битлз - Российский/Советский Лицензи�
 ```bash
 magnet:?xt=urn:btih:BC7ED6C8ADC89311332E1B354BB15D915C533CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

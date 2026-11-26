@@ -22,8 +22,7 @@ Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal
 ```bash
 magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

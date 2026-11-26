@@ -19,8 +19,7 @@ Riddles Of Fate: Wild Hunt Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:4720B1C484CA5EF7673F669636C828B089D841A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

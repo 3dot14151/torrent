@@ -19,8 +19,7 @@ Google Play Маркет – это приложение является объ
 ```bash
 magnet:?xt=urn:btih:003C97ADC391243B4049BFC3F467DC7847325FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

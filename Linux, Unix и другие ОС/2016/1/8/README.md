@@ -21,8 +21,7 @@ Eric Hameleers 24.12.2015 в своём блоге Alien Pastures сообщил
 ```bash
 magnet:?xt=urn:btih:370AC74004A23EA32467E4B92D41CB01BC78C7B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

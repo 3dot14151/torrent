@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5ED999AF52D3BA52CFACF1BEA0BC36424F157B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GSM Spy Finder 16.01 (AdFree) [Ru-Multi]
 ```bash
 magnet:?xt=urn:btih:EDC2127DA87F761BA445D34587E90E4C15EF8365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

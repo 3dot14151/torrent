@@ -19,8 +19,7 @@ J.R. Waldram | The Theory of Thermodynamics (1987) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:4FC180A22052FB9DDCBD1C79C9F2E4BFCBB1912C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8D8F874847BAD7C8563C99049026524C2905C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

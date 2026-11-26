@@ -22,8 +22,7 @@ Billy's Band - Песни Дедов Морозов (2016) 2017, Self-released [
 ```bash
 magnet:?xt=urn:btih:2D56B33020B72991E5DEB4AE0FCD476B49EDBA0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

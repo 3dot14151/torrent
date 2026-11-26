@@ -19,8 +19,7 @@ Seagate DiscWizard - бесплатная версия программы Acroni
 ```bash
 magnet:?xt=urn:btih:0EFC726BFB3FC3B9588DE3D9361086CEA35DA25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

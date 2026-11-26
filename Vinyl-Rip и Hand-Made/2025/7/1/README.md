@@ -22,8 +22,7 @@ A4 - Cruel Perception(   Читать дальше...   )Жанр: Melodic Death
 ```bash
 magnet:?xt=urn:btih:7FD292E51446BC457B6406BE58E909B68EBD66DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ S. Pentak, D.A. Lauer | Design Basics 9th edition (2015) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:5596BD921C2B3F4A7C123886884E75289BD66D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

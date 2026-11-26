@@ -19,8 +19,7 @@ Clockwork Tales: Of Glass and Ink Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:FEAF967878D7ABCA2F841D684DA6C41CC7178DBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

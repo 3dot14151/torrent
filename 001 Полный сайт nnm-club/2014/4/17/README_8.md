@@ -27,8 +27,7 @@ VA - Colores: Nublados (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:FB0FA9E021B58F767D570D82DEFCCA0E49BBAED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Ambient Easy Listening Vol 6 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Ch
 ```bash
 magnet:?xt=urn:btih:ECB754CAE5156EDEEE17DAC89E9E7F83F2B0A7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ BigDix - Joanna & The Devil (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3EF6D4572BEBC050B0FD99839F0E09243024FE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ VA - Into This Wired Abyss (2013) [MP3|320 кб/с]<Glitch, Experimental, Downte
 ```bash
 magnet:?xt=urn:btih:D10041C6158650DF0F30E1504217AD3CFCA2EDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ VA - The 10th Planet 2 (2010) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:07B152423B49E614DCBD05E89C025EF852FA7D73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Trilingo & Cosimo - Higher EP (2014) [MP3|320 кб/с]<Techno, Progressive House
 ```bash
 magnet:?xt=urn:btih:B9427171C8A5654A56C5F5F62BF03BDF32C1E407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:6A526664EC0459F25FE0102F37DBEDAE4C1F737F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ VA - The 10th Planet (2010) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:D2C7D7651807DD8928B4568E5CBD0579F4A31DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Dapayk & Padberg - Smoke (Family Remixes) (2014) [MP3|320 кб/с]<Minimal, Tech
 ```bash
 magnet:?xt=urn:btih:907CFD3F589CDAD8BD531CBB0F1FF91391B9FA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ Sean Chambers - Humble Spirits (2004) [MP3|320 кб/с]<Blues, Classic Rock, Blu
 ```bash
 magnet:?xt=urn:btih:CCEDF93E689B72AA467511F757415E9D661E7568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:F4E300CE9B77C4F0C828C4B10200607C8CE65FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ Tantrum Desire - Adventure Through Space / Nightmare (2014) [MP3|320 кб/с]<Dr
 ```bash
 magnet:?xt=urn:btih:AF65648C71153C6572EF77E7B86DD9CA2F7E8A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ VA - The 10th Planet 3 (2011) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:A313CB56971CA7A783C34AF147C44F279E84783E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +436,7 @@ Marc Ford - The Neptune Blues Club (2008) [MP3|320 кб/с]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F59111B021E4223D9545DD5EC0A28F92A3987344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +470,7 @@ Albatros 67 - Armin (2014) [MP3|320 кб/с]<Trance, Electro House>
 ```bash
 magnet:?xt=urn:btih:92D08FAB858C15C76ED23BC6BBEAC1BE57E4BEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +504,7 @@ VA - Lounge & Chillout Appetizer Vol. 1-2 (2014) [MP3|320 кб/с]<Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:9B7E20E25F2BD012835307AD079738B38F476D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB3EBDE67B40E9B15DEF61F5BC5A023A4B42F309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +563,7 @@ VA - Coffee House Vol. 1 (Delicious Deep House Tunes) (2014) [MP3|320 кб/с]<C
 ```bash
 magnet:?xt=urn:btih:AA06329E6285A4B4644EA6AA5CE7418CFD0966F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +597,7 @@ VA - The Best songs Of American Indians. Mestizaje and Civilizacion Vol. VI (200
 ```bash
 magnet:?xt=urn:btih:746FCC5895657CA6B27DA59D7287F24CAB4A68EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A165209228285619B485A34394D44167AC1C959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +664,7 @@ Giles Corey - Stoned Soul (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7F3CBD93CD6C0A82C27A2A79B7581EB0462BD7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +698,7 @@ VA - Gynoid Audio 100 Vol.2 (2014) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:DE586788E7ECBC63F0380C97DBD35CFAD6307323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F1EB370BC11677F88D4FC2F79A56677E5B8B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +757,7 @@ Ryan McGarvey - Redefined (2012) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:6237152B1DC3FAEC9613FD6887F565612F760221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +791,7 @@ VA - Into This Wired Abyss Vol. 2 (2013) [MP3|320 кб/с]<Downtempo, IDM, Psy D
 ```bash
 magnet:?xt=urn:btih:81330F4C2E003ABF21F523336C45AE20DB5DF9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -845,8 +820,7 @@ Yestegan chaY - Shikoon (2014) [MP3|320 кб/с]<Psy Chill, Psy Dub>
 ```bash
 magnet:?xt=urn:btih:AAB3AD1A4C3DB3DB7E807462F12C9B34D111B115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

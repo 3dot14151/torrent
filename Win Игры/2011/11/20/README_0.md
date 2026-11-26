@@ -19,8 +19,7 @@ Harvest: Massive Encounter является награжденной аркад�
 ```bash
 magnet:?xt=urn:btih:7C2218E7E70C634535F283D8164B6ECCFE107B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden in Time: Mirror Mirror / Скрытое во времени. Загадк
 ```bash
 magnet:?xt=urn:btih:684D989346268C6A1961C61B573F18BBE1DCCE6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Combat Mission: Battle for Normandy чрезвычайно достоверно 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Trackers 8: Nightsville Horror / Охотники за тайнами 8:
 ```bash
 magnet:?xt=urn:btih:DC29952D1025DCDD23B9DC01FD1EC2D3DCA69808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ether One – сюрреалистическое приключение от п�
 ```bash
 magnet:?xt=urn:btih:6F85CED640DFE37D9151B6A328EA6AD5928E9D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hidden Motives: The Diamond Rush / Скрытые мотивы: Алмазная
 ```bash
 magnet:?xt=urn:btih:F8A5D654746276F5A4C10584D6A69678BB51FD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Juggler's Tale (2021) [Ru/Multi] (1.13) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CB99787ECFF8838E97D1572D7043A72A515B5E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vagrus - The Riven Realms (2021) [En] (1.0.00.1004H) License CODEX
 ```bash
 magnet:?xt=urn:btih:BD1820E80435C144B7C1D45C8E10B2A1BC04E678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

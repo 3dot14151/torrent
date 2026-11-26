@@ -19,8 +19,7 @@ Anachronox (2001) [En] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:14934E84843336DBB315A278B8B14ABCBEDC1183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:204B0CDF5299B509F0A17D0007ABEC7ADB2C6909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Psiphon Pro дает вам беспрецедентный доступ к ва�
 ```bash
 magnet:?xt=urn:btih:3D62E0B469E32B9026CB8564BF099036B732EF05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34F9E2A0517EDF7359684818ADC37CB6CB3F5FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ VPN Inf - быстрый, безопасный и безлимитный VPN
 ```bash
 magnet:?xt=urn:btih:F562DCEEEA3A989FCA255A6E236A9BED821F3E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ AR Plan 3D – инновационное приложение, использу
 ```bash
 magnet:?xt=urn:btih:AF9CBB268599D40D2ACAA186296008C2D8D5FD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:196828EA7BB82A2B01FB87A8C427A37647B3FEEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ OBDeleven VAG car diagnostics v0.76 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:90F02386C694E65DFCC90CF22DCE45B031B715F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Planner 5D - дизайн интерьера v2.8.8 Mod by App_modz [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D5A318C9DB91710EAF19D7503EA9A5B31761D9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ZD Soft Screen Recorder - программа для записи видео с �
 ```bash
 magnet:?xt=urn:btih:1F3BAD704817D51917EB53F14C240509D8CAF4E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ZD Soft Screen Recorder - программа для записи видео с �
 ```bash
 magnet:?xt=urn:btih:D057D12529FD6641ADA12CA5ACAAC58BD5B0C2A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

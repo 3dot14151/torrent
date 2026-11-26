@@ -23,8 +23,7 @@ Darius - Grain (2015) [MP3|320 кб/с]<Post Rock, Post Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:180020C6AE89846D1321B84F841DCBC6B9FA7B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Blodsband - Rungalder (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:94E04A951CBE7D30D163EE11C2E6F213A8392B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Shogun - Shogun (2004) [FLAC|Lossless]<NWOBHM>
 ```bash
 magnet:?xt=urn:btih:44CAA6ABB06DA07C11375F21EED1149281A7CC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ El Altar Del Holocausto - - S H ∃ - (2015) [MP3|320 кб/с]<Post Rock, Post M
 ```bash
 magnet:?xt=urn:btih:753CC4A9CD5C0D6910998A4F35DDD8D215543F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Bolt Thrower - 8 Альбомов (1988-2005) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:3155DD4894BC8F39B37F5B134C69550DC1889FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ David Palmer And The Royal Philharmonic Orchestra - Music Of Pink Floyd - Orches
 ```bash
 magnet:?xt=urn:btih:EB1387D6CC7D7B8034A3B19753130C828DE0125A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

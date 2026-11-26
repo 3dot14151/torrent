@@ -19,8 +19,7 @@ Cursed Memories: The Secret of Agony Creek Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:F8D990FEAB5E24FF633004790E6944BEE7C11D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Legends: The Bronze Horseman - Collector's Edition / Легенды о �
 ```bash
 magnet:?xt=urn:btih:4A6637C00E75E962B6E246421BEF1A741152E170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

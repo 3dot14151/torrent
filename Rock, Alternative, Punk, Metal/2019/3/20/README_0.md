@@ -22,8 +22,7 @@ Martha - Love Keeps Kicking (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pu
 ```bash
 magnet:?xt=urn:btih:8768ED44116BF6361A8813A72B69D4750E619979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Maps & Atlases - Lightlessness Is Nothing New (2018) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:15B7B2416FFD8EEA183C6239B14E893E515FA856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jonathan Coulton - Some Guys (2019) [FLAC|Lossless|tracks + .cue] <Rock, Soft Ro
 ```bash
 magnet:?xt=urn:btih:90050BAB5073424765FC031DA9D0B9AAB352F32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pallbearer - Heartless (2017) [FLAC|Lossless|tracks + .cue] <Doom Metal, Progres
 ```bash
 magnet:?xt=urn:btih:75495FFCFCCAA1A8E62796C6C65D700ACC391DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ American Football - American Football (LP3) (2019) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:29ADC4C4847F8CE4B780E93859286BCCA1211EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Last In Line - II (2019) Japanese Edition [FLAC|lossless|image + .cue] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:01BA3F827230198190278882C38D17D91C8CF5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ U137 - Chapter Two (2019) [FLAC|Lossless|WEB-DL|tracks] <Cinematic Post Rock, Ep
 ```bash
 magnet:?xt=urn:btih:62D15C38837877CCDF0999670A7B9E609D5C34BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Night Game - The Night Game (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:C307A0CF92FD7F3AEEC2ECD245BEB746B095B605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:9E43B5A99FCC5556083C7DE9A3EC4F16025C44F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

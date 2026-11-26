@@ -19,8 +19,7 @@ CyberStorm 2: Corporate Wars [Ru] (Rip) 1998 | RG Games (Pilotus)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CyberStorm 2: Corporate Wars [En] (RePack) 1997 | RG Games (Pilotus)
 ```bash
 magnet:?xt=urn:btih:82D867CD449A33C7A45A8E97014A46BC71AFA4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fallen Haven [Ru] (P) 1997
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MechWarrior 2 Трилогия / MechWarrior 2: 31st Century Combat + MechWarrio
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

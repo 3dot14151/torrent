@@ -19,8 +19,7 @@ Runic One (2005) [En] (1.04) Unofficial
 ```bash
 magnet:?xt=urn:btih:58BA3464B3F8796BA9EAC43E65B8EB8A487A9EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vampyr (2018) [Ru/Multi] (1.0/upd1) License CODEX [patch]
 ```bash
 magnet:?xt=urn:btih:467D74380CB5CDD74B5B5A6BE4F3DFC0F6D19290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Eador: Genesis / Эадор. Сотворение (2009) [Ru/Multi] (1.05.2 Lang
 ```bash
 magnet:?xt=urn:btih:CF0AA4993D5AE943B0524F2F6C0D5BC9EC9CB03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

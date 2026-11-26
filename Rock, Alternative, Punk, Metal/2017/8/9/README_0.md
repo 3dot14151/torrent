@@ -22,8 +22,7 @@ VA - Zlote przeboje radia Pogoda (1997) [MP3|320 Kbps] <Pop-rock, Polish-rock, S
 ```bash
 magnet:?xt=urn:btih:5F615F903004CB8E78FB0A4FEBC46519B8594537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

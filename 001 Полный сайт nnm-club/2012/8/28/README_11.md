@@ -18,8 +18,7 @@ Dark Souls – новая ролевая игра от компании FromSoft
 ```bash
 magnet:?xt=urn:btih:60E3BE68C4BD9408F58DD808912C3A79A47EB3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ BioShock Дилогия [Ru] (RePack/Rip) 2007 - 2010 | UltraISO
 ```bash
 magnet:?xt=urn:btih:1820A01B541960A09398ECBB8D76E22E6D9C7CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Hitman: Sniper Challenge [Ru] (Repack) 2012 | R.G. World Games
 ```bash
 magnet:?xt=urn:btih:AFFCBCE7D541EFE42DFD7162DD8AABB354EDC3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ The Elder Scrolls V: Skyrim (RePack/1.7.7.0.6/2 DLC) [Ru/En] 2011 l R.G. Origami
 ```bash
 magnet:?xt=urn:btih:884D43B908C37F78F62B33D722E1F8C931DD23CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Fallout: New Vegas Ultimate Edition + 9 DLC [Ru] (Repack/1.4.0.525/) 2011 | Feni
 ```bash
 magnet:?xt=urn:btih:A25A7CDC3B4FEB53FCB61ADB8FFEBE2CA11122CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Armed Assault 2 / ArmA 2: Тактика современной войны + Ope
 ```bash
 magnet:?xt=urn:btih:86C59D0376DA75087AA3740C38E6311F90D93984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BFDEC54798C59ECB6287F44583ED8355D26DA45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

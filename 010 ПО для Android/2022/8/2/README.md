@@ -19,8 +19,7 @@ Your Calendar Widget - легко настраиваемый виджет пол
 ```bash
 magnet:?xt=urn:btih:D91A27690EAA89B2BE849B3563FD931D195819B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Oxford Learner's Bookshelf - представляет из огромную, к�
 ```bash
 magnet:?xt=urn:btih:92C79657250836C9CC04ABC83B95F061B5A711CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Flightradar24 v8.18.7 Gold [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:294A3D74B124165593F15FECCCD8A4D18506F425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Xmind: Mind Map & Brainstorm - отличный вариант как для о�
 ```bash
 magnet:?xt=urn:btih:ED2B10C298F77C3A8EDFA6EEEF7F5EA9292A4D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VPNhub - Безлимитный и безопасный - очень попул�
 ```bash
 magnet:?xt=urn:btih:483AEFCAD37BE929BCCE23E828375C5B8F0D3E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Turbo VPN - безопасный ВПН - ещё один проект, что �
 ```bash
 magnet:?xt=urn:btih:424B23C5BA82AD54E34F4CF11A1D577B5431DAC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

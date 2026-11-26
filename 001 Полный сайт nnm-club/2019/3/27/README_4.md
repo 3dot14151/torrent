@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:FFCDD32EAC72033DEF52E5D81AE4B804FCA9D7B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1EF1CAA279FFFBB14FED36B6446DECF78BF6E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Accel World / Ускоренный Мир (2009) [23 тома + 5 побочны
 ```bash
 magnet:?xt=urn:btih:A44D0C4E742DD956319967B374A02B53D78905FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Mafia II / Мафия 2 (2011) [Ru/En] (1.0.0.1/upd5/dlc) Repack R.G. Origami [D
 ```bash
 magnet:?xt=urn:btih:403DEEBD0F73F943752317C5B4EBB5D615104C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Killing Floor 2 (2016) [Ru/Multi] (1078) Repack =nemos= [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:EA7614AF39521326E312B6BADD29A73B2E19C754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:433DAEB1E95848C18CEDAB76CD9A6BF59C1CE15F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

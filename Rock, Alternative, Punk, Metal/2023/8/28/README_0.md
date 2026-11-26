@@ -22,8 +22,7 @@ Disc 3: Orchestral ShowЖанр: Rock, BluesПродолжительность: 
 ```bash
 magnet:?xt=urn:btih:2DE48AEC7BF570ADEC38538905A2D0933AD802B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Analog Sunshine - The Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 ```bash
 magnet:?xt=urn:btih:763E0F71BAEE3AEBABC51B31B5A723614E9423EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Walrus - Black Cat (2023) EP [FLAC|24/48|tracks|WEB-DL] <Stoner Doom Metal>
 ```bash
 magnet:?xt=urn:btih:0302607713325C7B0B422C505D2A00298F91DB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Lutalo - Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 ```bash
 magnet:?xt=urn:btih:0588FA72DE72143DA6D84FFECB8E151A590FC5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Aether - 2 Releases (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Sl
 ```bash
 magnet:?xt=urn:btih:B47B58429289071916F14819D57DE45F4418D0A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Hephaistos - Medusa (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock>
 ```bash
 magnet:?xt=urn:btih:A63EFA8139E6ED56852804BD9E6CF0A1898DD032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Moon Coven - Sun King (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Doom 
 ```bash
 magnet:?xt=urn:btih:B6A34B425DB92C2E1893F155DA02831E9A54A4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Sons of Ragnar - Echoes over Valsgarde (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 ```bash
 magnet:?xt=urn:btih:D6E7F6E0575122A595A9126237483EFF4D114990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ CD-02: Bonus DiscЖанр: Alternative Rock, Art Rock, Synth-popПродолжи
 ```bash
 magnet:?xt=urn:btih:2239E389297FDAD189D5C08681D99ABD484B7B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Borracho - Blurring the Lines of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 ```bash
 magnet:?xt=urn:btih:5B49780045016B91031FD1BC3C57F509D5BECC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Coma Doof - Miasma (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:493E02651F93091EDC31A9F9BC5F5A12E2E4E011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ The Death Wheelers - Chaos And The Art Of Motorcycle Madness (2023) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:2989CA3CE8B820536255A6BFE8800F3325F7056B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Soulsad - Doomed to Funerals (2022) Compilation, Black Hearts Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:A8F27922E2AD1CBE2A96607445803563ECDFD180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

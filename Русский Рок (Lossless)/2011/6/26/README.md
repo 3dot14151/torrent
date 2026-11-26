@@ -28,8 +28,7 @@ VA -Машинопись - Машина Времени 1969-2009 Трибьют 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

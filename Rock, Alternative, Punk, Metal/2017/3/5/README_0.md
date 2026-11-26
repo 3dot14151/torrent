@@ -22,8 +22,7 @@ Magnum - The Valley Of Tears: The Ballads (2017) Compilation [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:AE931A842C9BFB8E6C9319C6D898471DDC4F1718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D9D34B5EECB612EB791855E7CC28298ABBA66DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F7EBEF824D19575C6DEB68A29720D59FFD1CE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

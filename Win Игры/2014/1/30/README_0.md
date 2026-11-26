@@ -19,8 +19,7 @@ Mystery of the Ancients 3: Three Guardians (2014) [En] Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:2694C882BDDFE13E521514E1D4B64DD5513FB5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ashley Clark: Secret of the Ruby / Эшли Кларк. Тайна рубино�
 ```bash
 magnet:?xt=urn:btih:A4BED72328EB86CD4D669F6FA2E5A337F4000CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Happy Hereafter / Подземный мир (2013) [Ru] (2.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:81F7894D4F63B98AF84366D195767DEDE9EA1694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Flashback HD-переиздание классической приключен�
 ```bash
 magnet:?xt=urn:btih:EA296484E4DE7CF81872B071B275D15A15DDFAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

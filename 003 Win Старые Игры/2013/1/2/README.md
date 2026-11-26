@@ -19,8 +19,7 @@ Boat Fury [Ru/En] (P) 2002
 ```bash
 magnet:?xt=urn:btih:6A8F2B379A25F80236FDDF3A1DDB2ABECCE14A3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Traitor's Gate [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:B72FDA0B74405AC7CC736F769BDC008ED14C6309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Rome: Caesar's Will [Ru] (P) 2000
 ```bash
 magnet:?xt=urn:btih:D915E4B59B46CD81D8EB66302DDA68A91F179EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Starsiege / Earthsiege 3: StarSiege [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:B9A53348A4F90088DC585AA5D193ABEA372CF950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Shivers 2: Harvest of Souls [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:3463B8D2A67299CB456A559A34239B0F05A21704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Road Wage [Ru] (P) 2001
 ```bash
 magnet:?xt=urn:btih:D8F7B1BE3D146EFEABDFF44EE607DD8F4905313E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Shadow Watch [Ru] (P) 2000
 ```bash
 magnet:?xt=urn:btih:C3E9BD886909CAD22C58143144DB972DFD139CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Third Rome / Третий Рим: Борьба за престол [Ru] (L) 1997
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ The Creed [Ru/En] (P) 1998
 ```bash
 magnet:?xt=urn:btih:55A9BB59113BA46D3508B1A6256F883792C3D0A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Icarus: Sanctuary of the Gods [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:D69661238B3266A9D8E8F3914202DFD13EE0BC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Treasure Planet: Battle at Procyon / Планета сокровищ: Битва
 ```bash
 magnet:?xt=urn:btih:AC3FB1998F2DDA69E638840A10A7AF3C98B4ED06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Rayman 2: The Great Escape [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:DF8D9FBD6E67607F179BD1D9B4089A446BD8822B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

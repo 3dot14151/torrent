@@ -19,8 +19,7 @@ Sleep as Android: отличный сон v20250620 Mod by Alex.Strannik [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:FF9E4AC1311C67880F1DCBBD0E7A25036A6FC61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

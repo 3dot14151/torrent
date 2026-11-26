@@ -27,8 +27,7 @@ VA - Vocal Trance Collection Vol.107 (2013) [MP3|320 кб/с]<Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:5C85FEE93E1B8E4F3E449AB861559E50471934E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Grover Washington, Jr. - 2 альбома (1980 - 1992) [WavPack|Lossless|iso.wv
 ```bash
 magnet:?xt=urn:btih:B8ECF825D7717848860209520CB72266F534CF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Katie Noonan - Blackbird: The Music Of Lennon & McCartney (2008) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:B0F674BBC1699D3EF7D6137266CBF7E69D6AE139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Florent Pagny - Vieillir Avec Toi (2013) [MP3|320 кб/с]<French Pop, Chanson>
 ```bash
 magnet:?xt=urn:btih:06F719BA6FCAC5880CD5AA0A21AA5A10A1D691E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Rigmor Gustafsson - 4 альбома (2003-2007) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:B3267C9E547476F6CD6245B28D1054C4CF6237B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC48DDCAA153F50680A3F97D2C7379ECF049EA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Soler Music - Voice (2013) [MP3|320 кб/с]<Chillstep, Dubstep>
 ```bash
 magnet:?xt=urn:btih:ED1DB88D1441217A1BD744E5475B506AE344CE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCB41643AF72D9B88348365E05F0081E50CD6C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ Rentip - Daily Routines (2013) [FLAC|Lossless|WEB-DL]<IDM, Industrial>
 ```bash
 magnet:?xt=urn:btih:F07AD77DD069E5B3781370FB2DE274CC9D64791B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1BA94B37657E75E372371C86216A0BFF88FCE52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:599B3B8B766B54D284AAA590CB1B38164102E13F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ Bula Quo! / Bula Quo! (2013) BDRip  [720p] [EN]
 ```bash
 magnet:?xt=urn:btih:820955180805ABA47FDF58B6849F019DFEF4549C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4799369B733575238A8F7CF0951607DD6891CE35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ Manu Shrine - Annutara Ash (2013) [MP3|128 kbps]<Future Garage, Ambient, Bass, D
 ```bash
 magnet:?xt=urn:btih:25B9FDC26EB8AF4BF01FF544AFEAC1889A6BE3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C5BD115F1E8494EBC053DD41320E98012798C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1313DCF04F4D915464C8FB04FFBAB9C9179A76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:398F5266D86A0F08B9FFBA47B3EADF4017CC698B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +551,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:2D338B26C3EAAF1E7170C90F89303BA03966CC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A5732F365D29CEA3D1866C4F546D932845F0A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6970BB2C6123671C0C2537CA8A84AF73E8274ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ SASH! - Life Changes (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Euro House>
 ```bash
 magnet:?xt=urn:btih:DEE6C4F32560B75DC17BF7BCA02C01E96FBE11D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ Bula Quo! / Bula Quo! (2013) BDRip  [1080p] [EN]
 ```bash
 magnet:?xt=urn:btih:48FCF357658FF169D89800E2BF98454550589CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ VA - Piano Wishes (2009) [FLAC|Lossless]<Crossover Jazz, Fusion, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:ABE53713A099461DC67CBE4364BA0C4226FB7489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DB72E355D6BB26C7F003707E8111899C51DE229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ AdrianGale - Sucker Punch! (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E9CD5C294EB9583C058816A7CFA6612EDC605D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

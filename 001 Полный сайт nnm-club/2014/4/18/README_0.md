@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E423BA74DB5914FAF93A7E566FA888DDA68AFE1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Starchild - Starchild (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:A0EA89D1BED15FC0FA8F3B94C443BF701DA6C3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Sovereign - Sovereign (2014) [MP3|320 кб/с]<Cyber Metal / Instrumental>
 ```bash
 magnet:?xt=urn:btih:D440E5FD973089C0A62A4FE1289D4BECFF78FE52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Underground Deep & Tech House (2014) [MP3|320 кб/с]<Deep House, Tech Hou
 ```bash
 magnet:?xt=urn:btih:88D9FC98DC4EA6EEAF13DE44508D7659D492F239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Ambient Tales (2014) [MP3|320 кб/с]<Downtempo, Ambient, Chillout>
 ```bash
 magnet:?xt=urn:btih:4A7743EE2352ABD4A36B3BA92B698D5DEE0AB1C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - Miami Balearic Trance Essentials (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5CBB337A3DD2B88F5D76ADCF575436AA4F760791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10EB33DFBA4B2449D90EE552495EC0DE08F9652E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17E7FDBDE6E5AF11CC4B2A527FAE437DC7C9708D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ One Year Later - Life Between The Lies (2014) [FLAC|Lossless]<Metalcore | Post-H
 ```bash
 magnet:?xt=urn:btih:4015318BD088EA62C6F333AD639452324C7E6745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4843F9069F0CC506B3D9C162F0D97C1020A783ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D38B5DCC6B78CF3D4D16D3EF3DD68F4DD37EBDA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ VA - Emotional Dives (compiled by Green Beats) (2014) [FLAC|Lossless|WEB-DL]<Psy
 ```bash
 magnet:?xt=urn:btih:6A15B8B49985FB62458FDB0D01658CDF9071EBDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04EE6E683E06D61193CE0E2F4EB1430813ED2F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ VA - Hostile Decade LP (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:BC4FA671483ACD90EFC77B7F4ABF6E61E948DE86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +434,7 @@ VA - Ibiza Magica (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill House>
 ```bash
 magnet:?xt=urn:btih:AD1ACF6C47EBE2C5DF3A424B903ABA4C3871F753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +459,7 @@ Auto Bild – авторитетный журнал об автомобилях.
 ```bash
 magnet:?xt=urn:btih:E37D842586DE16F1A24C0BB929EF18DFBCF264B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ Ronski Speed & Shannon Hurley - Summer Always Ends (2014) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:78455B7F2FEE267AEE844F4B2B12D3087DB255FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59A581A65FA68B19F2590FB4412B0874A40FA42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53C5C03C6E6C7F970FE73B8FD950198F8B519ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42D164FF38C6D5B83E49A6C7C879AB4BFD4D09C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ Rene Ablaze & Axelpolo - Contact (2014) [MP3|320 кб/с]<Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:133E18E602C752DF83BCAE12AC97C3B8DA69168E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ VA - 100% Mega Dance (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:67173D054174013A28B169172534BF2E86EDCBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ Luke Bond feat. Roxanne Emery - On Fire (Aly & Fila Remix) (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:C8883E4E5E3869A7F444219043BE1CFEE2428C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8EC2B874C19E6C4EFDCAE71465CB972FDCF4165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +704,7 @@ Feel, Vadim Spark & Chris Jones - So Lonely (2014) [MP3|320 кб/с]<Trance, Pro
 ```bash
 magnet:?xt=urn:btih:4B00ED919D1F8FD9BCFE86EB7D762322840F1CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ Macaw позволяет очень быстро собирать дизайн, 
 ```bash
 magnet:?xt=urn:btih:D6A03F32602BBF3F78B4F321E127C6AAD2CE317C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

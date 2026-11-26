@@ -19,8 +19,7 @@ Mystery Expedition: Prisoners of Ice (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:3DF5A4E638041BF2CB64D4641EAA8819D7DCAD81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SteamWorld Dig — это платформенная игра-копалка с 
 ```bash
 magnet:?xt=urn:btih:914D1BE27DF1E5C6332D513A9804842FA5341537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Deponia (2012) [Ru/En] (2.0.4.1281) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:94365452DD03C5F4E09568F1AB1B3F6B37BF4622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Dusty Revenge: Co-Op Edition - это расширенное издание ар
 ```bash
 magnet:?xt=urn:btih:AD79819C388960707110338788CFE6E47B3630D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

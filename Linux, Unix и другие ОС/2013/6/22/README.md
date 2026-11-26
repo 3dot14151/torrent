@@ -21,8 +21,7 @@ AntiX 13.1 Luddite (Легкий дистрибутив - 64Mb ОП) [i386, x86-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

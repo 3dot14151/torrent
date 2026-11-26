@@ -19,8 +19,7 @@ Car Eats Car 3 v2.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0C143ABC1E2573C101F7941D6AA60A48BEFB988A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

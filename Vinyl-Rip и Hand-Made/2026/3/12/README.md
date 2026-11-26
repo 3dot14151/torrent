@@ -21,8 +21,7 @@ Ebony Tears - метал-группа из Стокгольма, Швеция, �
 ```bash
 magnet:?xt=urn:btih:7828DAA925EBD8B3430B70EDF8D717B8C13D91D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ A4 The World's Most Broken Heart(   Читать дальше...   )Жанр: Fo
 ```bash
 magnet:?xt=urn:btih:EB1488AA33E33859AEC48B9B2F9F1C62AE5F8E0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

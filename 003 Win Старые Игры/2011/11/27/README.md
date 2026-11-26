@@ -21,8 +21,7 @@ Tomb Raider [En] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A3E45EBC9BFB8CC91FF7F8C4004223AF2C16D15C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Seven Kingdoms это довольно оригинальная игра. С о�
 ```bash
 magnet:?xt=urn:btih:E00AD8A5DF7872BF0DDD579E8336AC622AB9137E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

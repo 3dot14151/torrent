@@ -28,8 +28,7 @@ Arminstel - Trance Evolution vol.69 (30.10.2011) (2011) [MP3|320 kbps]<Uplifting
 ```bash
 magnet:?xt=urn:btih:BA1B3EE7A658BB66321C63E597E30BB4669DD456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Club Cocktail Part 24 (2011) [MP3|320 kbps]<Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:03B2CDD2D5669BA9B4BC50344289C0AB8318C37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Amsterdam All Stars (2011) [MP3|320 kbps]<Deep House>
 ```bash
 magnet:?xt=urn:btih:D717CB9C84F7DC3E0819735C672225BF0492EAF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Vocal Trance Volume 15 (2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:7F3A7F805A251815C8DAC97DF018D8C015781939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - Club Cocktail part 28 (2011) [MP3|320 kbps]<Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:C05FEF4F8AC12DFD5859159F7275F820FD3F7CB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ VA - Club Cocktail part 29 (2011) [MP3|320 kbps]<Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:02152BA570B9F9033F873578130201EA7C0F146F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD4EF6C23062D359F06AA411D654D92A9EFDCA27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ VA - Осенний Dance Отрыв. Лучшее (2011) [MP3|320 kbps]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:595E0186CDD9486F7D296F53A59C704049D43825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ VA - Club Cocktail part 25 (2011) [MP3|320 kbps]<Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:FD7104735A987E787E86032B6E4528083DB34B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54FA5F053D0C360C4CB887136779D996E45DEAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Dublee - Pseudo Harmonia (2006) [MP3|320 kbps]<Dub Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:9E4D9CD590D41AA1082B3C7406FE111F8BA5799B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EFA66F982A1FC29EE7AB47B5AA7156ADBEA36F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +411,7 @@ Vallenfyre - A Fragile King (2011) [MP3|320 kbps]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:6F94140E9A36FAFD27E6FAF996EEED14C732DBA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +436,7 @@ Notepad++ - это бесплатный редактор текстовых фа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +470,7 @@ VA - Club Cocktail part 26 (2011) [MP3|320 kbps]<Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:9EC880A541724F766FA21E040C778B7D370606FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +504,7 @@ VA - Dance Бум 50/50 (2011) [MP3|192 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:238BAF5E9182452F65DDFE8B94F49CDB634E2418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +563,7 @@ VA - World Top 40 Singles Charts (29.10.2011) [MP3|128 - 320 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:68E0F9ECBF0424978EE317D0CCE38B70CD51C813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B075F30D42465B9879AA5AB6E4ACEA6E0AB18E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +638,7 @@ DARPA предлагает приз в 50 тысяч долларов за но�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AC6191F9257185F89B54603D83E8C615B5224FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +722,7 @@ VA - Sensation Innerspace at Denmark, Copenhagen - 29.10.2011[MP3|256 kbps]<Hous
 ```bash
 magnet:?xt=urn:btih:AD614CDE99A5A40C055F3BA5BF29562D348C61EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +756,7 @@ VA - Plastic City: Radio Show Season Three (2010) [MP3|320 kbps]<Deep House, Tec
 ```bash
 magnet:?xt=urn:btih:4DFDCB4FB462C44B7D2409A6D64AFB3DF0015ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ Charred Walls Of The Damned - Cold Winds On Timeless Days (2011) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:57883B595437F041090F24296B2F81007BCCB2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Geekbrains | Blockchain (2017) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:3D43DAB9CF3EEEAE67AE32B5F855EDC10F9737CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:852D0C6EF2305242702EADE4413AB651A8B000CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ uTorrent 3.5.1 build 44332 Pro Portable by Коля3Д79 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E689D1816B0ACDF19CD9A33A25294D4ACEB98523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ VODKA (2017) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:71773AD97A742366D72C6CAAEBB199485B5B7B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B69766CFF4D43F0CCABB0BB51DC22D08C8455EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:341E43D93853E66D2E36B304A264EC3768FCB50C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Error Lookup это каталог информации об ошибках в W
 ```bash
 magnet:?xt=urn:btih:AB1FD9F311C708E90220E1166B61F24C25002B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ ru_windows_10_enterprise_2016_ltsb_x86_dvd_9058173.iso
 ```bash
 magnet:?xt=urn:btih:409A3CC5DA515A692112B764A2951C23148F2357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB2700CF082FEE507A99B5E151791E35C957BBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

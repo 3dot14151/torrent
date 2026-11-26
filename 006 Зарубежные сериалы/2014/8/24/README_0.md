@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EA3E633B8DF10C1C88ED0782460B8A5ED344D89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ LostFilmЯзык субтитров: Русский, английскийФор�
 ```bash
 magnet:?xt=urn:btih:0857A61C01D1350B93F0A4F5DCEB5CA1D9208F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

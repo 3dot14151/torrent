@@ -28,8 +28,7 @@ Colin James - Rooftops and Satellites (2009) [MP3|320 kbps]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:0ED8CAFFB80CD99A1FC4033A9F883DE7C89F02AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22C2469501FA2AB8A2A50F131CB7CFB4CDC29D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

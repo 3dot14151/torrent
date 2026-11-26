@@ -19,8 +19,7 @@ Super Meat Boy Forever (2020) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:F6A94271CF641C4E0BD7065ECE8324AB4197A8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

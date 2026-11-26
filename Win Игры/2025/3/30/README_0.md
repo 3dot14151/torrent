@@ -19,8 +19,7 @@ Endzone 2 бросает вас в самую гущу постапокалип�
 ```bash
 magnet:?xt=urn:btih:36B58BCB34C700B3ABBFC2A66D16FBFC47BBEF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 ```bash
 magnet:?xt=urn:btih:6EF230FE32DBF7C54F3996B9D832866C75ACD214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1h) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:467885AE5DB77FCDE7481FBD4519982343E0ED4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:95BB4187EB459042AEDC9009C6D1D2F67C7FA00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Orcs Must Die! Deathtrap - это безумные бои от третьего 
 ```bash
 magnet:?xt=urn:btih:69670B1B22089114F015279D2A02EF0A1B6D2A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1033 Data:640/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:8D1E81AE8C02598BDACA9A7472809362DFD38BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 ```bash
 magnet:?xt=urn:btih:487A840AF796CFB4A532AC89CB58B413679FEFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:CA4EF6F034476CC59E5EB97DA406C196493AF30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.04.160.1/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:FB61390A0701E5A6E2BEA5FF6EF2877263145604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Gas Station Simulator - это все о ремонте, развитии и э�
 ```bash
 magnet:?xt=urn:btih:9261DC0C628D452F1DDF98AC8B97906E2C3536AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 ```bash
 magnet:?xt=urn:btih:4AD0283B8A2494CE81C09C928B1F2D98149693D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.0.2-a156) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:7CD994862C89818A7EBC47CB8EC6ADE18FEC9334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

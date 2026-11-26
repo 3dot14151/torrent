@@ -19,8 +19,7 @@ Exorcist III: Inception of Darkness [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:07349AC85C6FF8E904A2D9F84FE3CADC6FEC0979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Campgrounds / Тургородки [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:8C76A38FC4A855F348FAE8071F2ACBA622D662B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Minecraft — это строительная игра жанра «песочн
 ```bash
 magnet:?xt=urn:btih:103DB0B1627455409F40FAA913BDD7971FACA770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Binary Domain [Ru/En] (RePack/u2) 2012 l R.G. Механики
 ```bash
 magnet:?xt=urn:btih:6F95EBDB1A3F77E2B288F7B3FCD05FAEF0C80C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

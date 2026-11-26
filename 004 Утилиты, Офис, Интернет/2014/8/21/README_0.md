@@ -21,8 +21,7 @@ ABBYY Scan Station применяют как для потокового ска�
 ```bash
 magnet:?xt=urn:btih:0BCEC6AF34D17C7F3CD5F4C6B106B5787D35D375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

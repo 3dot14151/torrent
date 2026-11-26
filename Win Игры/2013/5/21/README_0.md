@@ -20,8 +20,7 @@ Dead Island: Riptide (2013) [Ru/En] (1.4.1) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:D73E50C370ADE32C12A5DEC89357AD87CA87BECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Hydrophobia: Prophecy (2011) [Ru/En] (1.0/r20) RePack R.G. Механики
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Mini Ninjas (2009) [Ru/En] RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A866B2F393FE04D8EA63E322F54C86F8D6E9068C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Impire – стратегия, в которой вы выступаете пр�
 ```bash
 magnet:?xt=urn:btih:1CCEDF10B4541C95E99DAE0F1433C6084080C3A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

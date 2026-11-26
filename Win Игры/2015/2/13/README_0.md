@@ -23,8 +23,7 @@ Heroes of Might & Magic III (2015) [Ru/En] (1.13) Repack R.G. Механики [
 ```bash
 magnet:?xt=urn:btih:571D20C977B6967B1B25B32489DC427C69DCC2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ F1 2014 (2014) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:97192DE20FADEAE661C47B109FED85DF215C5695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

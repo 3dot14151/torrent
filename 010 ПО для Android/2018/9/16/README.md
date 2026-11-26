@@ -19,8 +19,7 @@ Squid: Take Notes, Markup PDFs v3.4.4.6-GP  [Ru/Multi] - удобные заме
 ```bash
 magnet:?xt=urn:btih:F5358916393068CAE6DA3A9194108E006CC248B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

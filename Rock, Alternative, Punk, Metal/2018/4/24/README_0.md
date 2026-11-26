@@ -22,8 +22,7 @@ James Murphy - Feeding the Machine (1999) [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:AA25D0021AE1566B291C833005EE875985FC36E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dave Edmunds - The Collection (1997) Compilation [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:A6A1585F15C101B0DB44A1C07A45D3F415916994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1C0FAF9BAA12BE2939938A65E83EAEAA036EF56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ VA - Soft Rock Forever (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:393400AC218F9084DC3B7B93E096B495B88ED8B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

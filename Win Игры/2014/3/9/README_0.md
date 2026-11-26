@@ -19,8 +19,7 @@ Mystery Expedition: Prisoners of Ice / Роковая экспедиция: Пл
 ```bash
 magnet:?xt=urn:btih:8294D84D54A89F0E5A8A9BFC2586F985CCC44B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Car Mechanic Simulator 2014 — это, как не трудно догадат�
 ```bash
 magnet:?xt=urn:btih:6D104A58303B02306457044C40CEC41ECF7DD868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Mount & Blade Collection - это прекрасная возможность с
 ```bash
 magnet:?xt=urn:btih:DE92A66F0F2C264E997DE66DD44C701EFC4C7311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

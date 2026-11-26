@@ -19,8 +19,7 @@ Son of Nor - захватывающая приключенческая игра 
 ```bash
 magnet:?xt=urn:btih:494FE9D55A076D0916FC9B8FD749068BD910131B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Running with Rifles - Тактический шутер с видом сверх
 ```bash
 magnet:?xt=urn:btih:A7F5AD1EC9A29929524BC4D1568FBE56AF750F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

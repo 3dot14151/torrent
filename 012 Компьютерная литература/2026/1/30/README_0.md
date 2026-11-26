@@ -19,8 +19,7 @@ Whether they're building a startup or scaling an established org, engineering le
 ```bash
 magnet:?xt=urn:btih:E0F9442939925FA2DF30549DA2207B9C18C45B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Robotic vision represents the cutting edge of modern computing, combining artifi
 ```bash
 magnet:?xt=urn:btih:01BB486B77591E1B7158C68F04FA769FF44DE0FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

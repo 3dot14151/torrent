@@ -20,8 +20,7 @@ Secret City 3: The Human Threat / Тайный город 3: Неотврати�
 ```bash
 magnet:?xt=urn:btih:D20F1B09B96717EA4A3F5F22844A2DD3FD397275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Closers - это эпизодическая ролевая игра в стил�
 ```bash
 magnet:?xt=urn:btih:809516BAF974DF4CE7FABA84188EAC5EAF1473A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Discolored (2019) [Ru/Multi] (1.0) Repack Butter_
 ```bash
 magnet:?xt=urn:btih:639482EE246858FCDC686B4F9BDED432C51EA805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ CODE VEIN (2019) [Ru/Multi] (1.01.86038) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:9362E2A9B77649558C97DBA368A2AAE37FFBA2B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

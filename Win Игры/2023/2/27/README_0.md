@@ -19,8 +19,7 @@ Nebuchadnezzar – градостроительный симулятор-пес�
 ```bash
 magnet:?xt=urn:btih:0A36976A389727A4F67E6EA0D1A5DCA5FFBDEF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Punk Wars (2021) [Ru/Multi] (1.2.11/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0D8A430E89B2BEF1008CE4FE0AAEE5CF9EFA5730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

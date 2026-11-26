@@ -22,8 +22,7 @@ VA - Панк-о-мания (2000) [FLAC|lossless|image + .cue] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:DE5F9AD76FF03A0C4E5DDF557F40997C6A3B66C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Spirit of Revenge 2: Elizabeth's Secret (2015) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:ABC7EBA4801EF0BB4480CF7C7CFBB43BD580F537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mayan Prophecies: Cursed Island / Пророчества Майя. Прокля�
 ```bash
 magnet:?xt=urn:btih:2407D6D94617FEA8214BCD39F5CDA327EACB9AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Witches, Heroes and Magic - стратегия наподобие Heroes of Migh
 ```bash
 magnet:?xt=urn:btih:033E45A49BF0471FCC6BC1A593E200AC9AD36218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

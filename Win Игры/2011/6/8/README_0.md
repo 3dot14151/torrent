@@ -19,8 +19,7 @@ Farm Tribe / Фермеры. Тайна семи тотемов (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:3E2202E0A5098E424AC0A9FCED5A74EC12807676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Airport Mania: First Flight / Аэропорт мания (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:756F1364767E0D739C686C3C1F81D4657E242F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

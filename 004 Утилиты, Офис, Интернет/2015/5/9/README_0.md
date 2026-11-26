@@ -19,8 +19,7 @@ WinDjView — лёгкая, но функциональная программа
 ```bash
 magnet:?xt=urn:btih:796F8DC839CF9B28291E349AD4531EC13F14FEF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

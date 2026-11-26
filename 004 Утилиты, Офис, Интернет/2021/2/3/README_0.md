@@ -20,8 +20,7 @@ Zotero — программа позволяющая собирать цитат
 ```bash
 magnet:?xt=urn:btih:42E421CB3F4BD9ED7F927EE1B46228AFCF00A01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

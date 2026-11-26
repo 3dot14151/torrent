@@ -19,8 +19,7 @@ Malwarebytes FileASSASSIN - утилита, которая позволяет у
 ```bash
 magnet:?xt=urn:btih:FBD6541D6937A9BF8778FF1A175B2F858C6B1553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

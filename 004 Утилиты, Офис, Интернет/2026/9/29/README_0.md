@@ -19,8 +19,7 @@ iTubeGo позволяет загружать видео с более чем 10
 ```bash
 magnet:?xt=urn:btih:8D2F7B8A79C3BD1B4D4F81D09201A0AAFA57238E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Sniffnet — это приложение для мониторинга сети,
 ```bash
 magnet:?xt=urn:btih:94B8F81B04E27B1CCF7D6223CB7AB48A2A833671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ WinSnap - отличный многофункциональный инструм
 ```bash
 magnet:?xt=urn:btih:21BE3307EAE73655A4029228A979407371FFFC4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:95FB89A66A2A10C18F98323174488280327B4276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:6CA20DA7EFA205752C345B40D29511817DED54CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:E3A859807FC12F8E583BC8B0948A8FC8E0211C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ MediaHuman YouTube Downloader 3.9.23 (1409) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:42D3ACB95C8A11CD52C0293CC45854FEE687C92B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ SplitCam - бесплатная программа способная сущес
 ```bash
 magnet:?xt=urn:btih:A871D6311FF7E1EEEB91EAA39988C2FD7FDCB8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Wireshark — это мощный анализатор сетевых прото
 ```bash
 magnet:?xt=urn:btih:79A7678C4CCBAF181364DB334A5CBB1C218D5CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

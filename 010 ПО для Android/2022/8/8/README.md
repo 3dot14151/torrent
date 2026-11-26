@@ -19,8 +19,7 @@ Free Ringtone Maker - предназначенный для быстрого и 
 ```bash
 magnet:?xt=urn:btih:22EF0C22E74206B072F22297D280081671BADD98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A72B30A74671698E1B90590D1C5194521B7D7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wombo: Make your selfies sing - развлекательное приложен�
 ```bash
 magnet:?xt=urn:btih:804E7838BF5DB3E4C0390A05A1D48E97539045B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Anews - это быстрый и удобный способ читать нов
 ```bash
 magnet:?xt=urn:btih:561C8E33B43A0AB9287C1355BCECCA3D297CA933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cool Q Launcher - современный, стильный и самое гла�
 ```bash
 magnet:?xt=urn:btih:500F49FF41AB5ABE0B2A9AD0FD80CE45693852EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ PrintHand - это решение для печати "в один шаг" с м
 ```bash
 magnet:?xt=urn:btih:B147037B9AD944AE8B660E1A61679A00C51CD11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

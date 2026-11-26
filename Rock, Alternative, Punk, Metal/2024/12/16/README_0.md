@@ -22,8 +22,7 @@ Krud - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 ```bash
 magnet:?xt=urn:btih:E3BE788ACDA57B2969F9A6D59FEB953218918343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nazareth - Rampant (1974) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, B
 ```bash
 magnet:?xt=urn:btih:920D44C4C35BB4422F31E0488A99006E202728E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E27AF41202533FF7FA664D8FD5BAB2CDE93E961A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Splav - Сверхновая (2011) [FLAC|Lossless|tracks] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:D2101FD5B8B201B92B10475AC2C697C8CF3827A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

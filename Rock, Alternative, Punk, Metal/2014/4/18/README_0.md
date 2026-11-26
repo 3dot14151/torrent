@@ -26,8 +26,7 @@ Amoral - Fallen Leaves & Dead Sparrows (2014) [MP3|320 кб/с]<Progressive Meta
 ```bash
 magnet:?xt=urn:btih:512954D53DF2BCD24C543D6D9810FA4CEF504893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Starchild - Starchild (2014) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:A0EA89D1BED15FC0FA8F3B94C443BF701DA6C3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Sebastian Bach - Give 'Em Hell (Japanese Edition) (2014) [MP3|320 кб/с]<Hard-
 ```bash
 magnet:?xt=urn:btih:895255EDFC855A89FA2633CAD9572A75EE13F37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:C77339D1E4279973D352AEEC71C56B577212CADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

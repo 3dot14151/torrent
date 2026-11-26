@@ -19,8 +19,7 @@ Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пе
 ```bash
 magnet:?xt=urn:btih:1DC6DB7FC7EF23CABC54A6CA9635E77BFE7002FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

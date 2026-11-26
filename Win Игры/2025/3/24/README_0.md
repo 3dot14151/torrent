@@ -19,8 +19,7 @@ Lumencraft (2022) [Ru/Multi] (9257) License GOG
 ```bash
 magnet:?xt=urn:btih:8BCEDDA9A54A0F59520A978B2794259182543DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wanderstop – уютное повествование о переменах и 
 ```bash
 magnet:?xt=urn:btih:0EE9145933EB5B2783C0E3955686662E89A280C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack dixen18 [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:EFFC6C5411AAEEB8772FBB9AFF31CECBC671E110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Easy Red 2 - шутер от первого лица с элементами с�
 ```bash
 magnet:?xt=urn:btih:76C565DDCE3189687C29D419A30D79ED376ECF05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Them and Us - классический хоррор на выживание с �
 ```bash
 magnet:?xt=urn:btih:949C251ABE6A59E5D82E3E9BAAF513DC90491851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Invincible представляет собой приключенческу�
 ```bash
 magnet:?xt=urn:btih:68D528ABEA3C5D95E6A61D0704A7594483FDF8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:8D14B012700C5F8904FF4CF0BA8C96D6BC1071E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Curse of the Sea Rats - двумерная метроидвания, расск�
 ```bash
 magnet:?xt=urn:btih:E303280BA1F27E9F4288FC511B407C9BE188E5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Human: Fall Flat – приключенческая головоломка с п
 ```bash
 magnet:?xt=urn:btih:433A20CE473E4E0760728BA8A0E2E8680FA6D9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ House Builder (2021) [Ru/Multi] (Build 20-03-2025/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:41EB52C5C73D3C11339B8C5B6BA70AE967F28A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

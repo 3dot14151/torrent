@@ -19,8 +19,7 @@ Enchanted Kingdom 5: Descent of the Elders / Зачарованное Корол
 ```bash
 magnet:?xt=urn:btih:9ED4C19D02FF3BF9B68AFA1072836711EC2EDEDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ House of Evil 2 — survival horror с видом от первого лица, 
 ```bash
 magnet:?xt=urn:btih:1C74F6E74E47A237081CB5AA953F5D0429D4FD27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

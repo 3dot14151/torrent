@@ -28,8 +28,7 @@ Cruachan - Blood on the Black Robe (2011) [MP3|320 kbps]<Celtic Black Metal>
 ```bash
 magnet:?xt=urn:btih:E809B2840641A2C46FCE72980D7FEDB0D97CF8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Led Zeppelin - Magical Sound Boogie (Live) [3CD] (Bootleg) (2010) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:609DE2739BB86A85EEC48D4F3DDF298C00BC0FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Cage The Elephant - Thank You Happy Birthday (2011) [MP3|224 kbps]<Blues-rock>
 ```bash
 magnet:?xt=urn:btih:D8029CDC0290E68E3D1801FA4CD78EEFC9981051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B8F50C28B70BE44684FBDC33DA3BED696FB1D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

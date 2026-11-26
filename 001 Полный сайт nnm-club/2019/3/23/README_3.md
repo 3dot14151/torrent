@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:385580910CA85B5158DEE305CA545F34C968C522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ iSpring Suite 9 является дополнением к PowerPoint, поэт�
 ```bash
 magnet:?xt=urn:btih:A64A413D212B12F353E032DD928911777D866302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DF77487165952213E383CA61C6F8021FCEE92EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2353A5A47C523B313BC69BB7FC079970DDA8A6E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:263064F157517C63D9616D131F7EF3E5D0A431A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC7429A05D93F14EEB69FBD3265BD666542B3310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Red Giant Trapcode Suite - это мощный набор из 11 плагино
 ```bash
 magnet:?xt=urn:btih:EA320D91EE0E3E6AD6A0CE590314EE682FFEE455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Europa Universalis 4 - стратегия, разрабатываемая сту
 ```bash
 magnet:?xt=urn:btih:408FDFF04BA5401D7B683605D3A5316439C35D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Windows 7 Professional VL SP1 (x86-x64) [2in1] by ivandubskoj (22.03.2019) [Ru]
 ```bash
 magnet:?xt=urn:btih:B3ABA3F6754FBED0537F165236DF6DEBDAD0A1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD3D5E7B8D963F0E5292BF10862BF4512B98C0E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ MONSTER HUNTER: WORLD (2018) [Ru/Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:FD1A26EF63D917C8F5E8E7BF450D48DF6768BD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Windows 10 April 2019 Update на подходе. Что делать, если 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.03.17 [Ru]
 ```bash
 magnet:?xt=urn:btih:985D337E68D67F4E18144B04317E5BC4E13FD757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 03.2019 2 DVD
 ```bash
 magnet:?xt=urn:btih:01B916AED29913FB9F6CC1C63DA42752DE6BEA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AB9FE4B8DF34C459B8F5C4BBF1872653498166E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ Metro Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.0) Repack R.G. Ca
 ```bash
 magnet:?xt=urn:btih:65BFD6E9EC4CE856874B64ECE97633D04F7B79BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CBE6859C9B3D9AB99C2D3AF594D01E08A640CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

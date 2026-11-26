@@ -19,8 +19,7 @@ Russian Soul Simulator - это приключение, позволяющее �
 ```bash
 magnet:?xt=urn:btih:30D831FA9696D4D6702F9921FC931DDFEA5B2437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crimzon Clover: World Ignition (2014) [Multi] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:4FEF85F4E178D1FF0345F2DAB17E37A9D8B29B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lucky Season: King of Fools (2024) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:4A8AE64755B8A519C5D745C39F0871E943FD60F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

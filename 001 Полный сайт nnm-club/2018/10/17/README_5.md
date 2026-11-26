@@ -21,8 +21,7 @@ WonderPen - простой в использовании текстовый ре
 ```bash
 magnet:?xt=urn:btih:2927723DDE20FE9F11AE45F7030BADFCB80800D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Secrets - Secrets (2018) [FLAC|Lossless|tracks + .cue] <Punk>
 ```bash
 magnet:?xt=urn:btih:F3ACE87EEA48F30D74CC8242846CA7D88E521BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ MarsEdit 4 v4.2.2 [En]
 ```bash
 magnet:?xt=urn:btih:1B2F2579324E0875F595303C8E0509B368597B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31038589735847B4BE12D5C2CDA7E7C9EDED2459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Great Lake Swimmers - New Wild Everywhere (2012) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:5C45ED128093EC5A3A1AD4C31BB54BD434174963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Basement - Beside Myself (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:C8F30DFA8A1B688517A02FF9F71F11F419E415DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E3FF2529268EC058640832432DE0DB9110391C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DF26CC0EE2A43B6C3955584225E25A199759788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:E368A4CD1559D3117E671CF807781B6E8F7C72A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Boris - Secrets (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Doom Metal
 ```bash
 magnet:?xt=urn:btih:4C6FA39FBE325421079A7B734ED977B70409B60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Mark Mandeville - Mark Mandeville & Old Constitution (2011) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:27E99D61AF9626D0AD273545B1277BD76DD3D6C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Collective Soul - Collective Soul (2009) [FLAC|Lossless|tracks + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:C838790A491DB628387D92F02B5AB54EF6B9037D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBF53C33A91235444EEE3FB6ACD573288B0E063C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Minus the Bear - Fair Enough (2018) EP [FLAC|Lossless|tracks + .cue] <Alternativ
 ```bash
 magnet:?xt=urn:btih:20EF5A87DF0A6EA731EB5F19DB7CA59ABC398FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB694A9F5D2585C1D74079F50640F981CB8A1434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Therion - Sirius B (2004) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0388E04A1D34A8DF6BEEA07B51E2BF4807147C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADC24AD82B5B50F8ED457278F15C59CACB76C786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ Vivaldi 2.0.1309.42 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1EFA55AFD0E8E33C403E2810F84588B3BDACF93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27244E781EDD1E70F3242DCF772606AE12848E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:745100DD534996DE3E5485DBE95B7E821CCB7740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Howard Shore - Edge of Darkness (2010) [FLAC|Lossless|tracks + .cue] <Score, Mod
 ```bash
 magnet:?xt=urn:btih:18CDD4CBBEC8DF0493C4048E3BB2E8A05B892E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Outline для Маc идеален для студентов, преподав�
 ```bash
 magnet:?xt=urn:btih:F0635E311AE3ADC15E48E9C7D26D75FB081B7398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ ClearDisk - простая и эффективная утилита, котор�
 ```bash
 magnet:?xt=urn:btih:A173F9249739362845990E0014D681EED91F8477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ Rie Sinclair - Collection (2006-2013) (2018) [MP3|256 Kbps] <Indie, Pop Rock Bal
 ```bash
 magnet:?xt=urn:btih:C9E2B1785B0E67234F9A66C835376B5BC4EE44D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
 ```bash
 magnet:?xt=urn:btih:8ADEF5E69A8BA163B7E38D410770AC51389486A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B06C284D65F15520347B9E4E2DBEEE67165B76AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

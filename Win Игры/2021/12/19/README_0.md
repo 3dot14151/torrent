@@ -19,8 +19,7 @@ Royal Legends: Marshes Curse (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:8747E3312BAEFBCE62F5A835A5199F83F9255BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cave Story's Secret Santa (2021) [En] (1.0.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:23890AA3ECF1B54B9118974E4BECB09B97963671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Webbed (2021) [Ru/Multi] (1.04b) License GOG
 ```bash
 magnet:?xt=urn:btih:0234D9722DD513555336A57032EEA531CAD8043B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Looking for Aliens — игра про поиск предметов, в кот�
 ```bash
 magnet:?xt=urn:btih:362B75E4D6BFD245211EFF46C9CBCBEE3129F41E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Clid the Snail (2021) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B83A1E2BE4A984DF25D8B8BE3B5B0267A2B2397A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

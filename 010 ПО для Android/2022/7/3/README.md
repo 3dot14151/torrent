@@ -19,8 +19,7 @@ PickU - AI обрезка фотографий и удаления фона, к�
 ```bash
 magnet:?xt=urn:btih:E0C2A5622A93C14849C84B11E3855A9C13A6F4AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Momo Music Player 1.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:947947D5DC963CF5443DDC02DF9F691B8BED74C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Supershift – это календарь, созданный для работа
 ```bash
 magnet:?xt=urn:btih:C1DCA551D713242952980ED1EFA856139C008444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D386F04E5C6FECC84535EABBC99A030F31018D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2824E90BABF4144B6D1058D9E14996BFE78894D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

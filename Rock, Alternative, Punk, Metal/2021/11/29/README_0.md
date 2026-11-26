@@ -24,8 +24,7 @@ Steelover - hard rock/heavy metal группа из Льежа, Бельгия, 
 ```bash
 magnet:?xt=urn:btih:9E68990ACA5C82EA82556B3A537E9FFE8493AB43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E515B416A46C976B3D36C2824BD1E68FD357B229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Queen - A Night At The Opera (1975) remastered 2011, reissue 2021 [FLAC 2.0|96/2
 ```bash
 magnet:?xt=urn:btih:4D38F729D1102D0E4DE45B3B872BA4AA883033ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Moto Racer 2 (1998) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CB593E2C20E7FFE3656B9C3CA38AAF89A9EEDA78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

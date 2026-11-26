@@ -28,8 +28,7 @@ Ajattara - Murhat (2011) [FLAC|Lossless]<Black / Dark Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Saturate - The Point of No Return (2010) [MP3|320 kbps]<Alt. Metal/Post Grunge>
 ```bash
 magnet:?xt=urn:btih:B8BD483532A8C28D61B76EEA3A8A5AAB6D8C96D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEFC5B1E5BE4E5F98A1AF64095DAEA3B4D7D29C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Deep Purple - 9 альбомов (1970-1976) SHM-CD, Japanese Press /2008/ [FLAC
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

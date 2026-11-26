@@ -22,8 +22,7 @@ A4 When I Grow Too Old To Dream(   Читать дальше...   )Жанр: Pop
 ```bash
 magnet:?xt=urn:btih:6C3D46A68F1CEC0FA021051B3AD18F8B03EE33CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 (I Love You) For Sentimental Reasons(   Читать дальше...   )Жа�
 ```bash
 magnet:?xt=urn:btih:4405EF5B78A090311FCF763E340ABC434F1A609E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 I'll Always Love You(   Читать дальше...   )Жанр: PopПрод
 ```bash
 magnet:?xt=urn:btih:48551AB59536865BD300664F8B5BE3EB0F5B4D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

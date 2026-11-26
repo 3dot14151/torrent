@@ -19,8 +19,7 @@ The Stanley Parable: Ultra Deluxe — это игра-исследование �
 ```bash
 magnet:?xt=urn:btih:E88C68834C8AC56E266350BF47045AD775A259F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

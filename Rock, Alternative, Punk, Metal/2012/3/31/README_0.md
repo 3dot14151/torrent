@@ -28,8 +28,7 @@ VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:70FA0C3E9AD2DAC0B9E7871A8F26A5BA8BDA3CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Exilia - Decode (2012) [MP3|~245 кб/с (V0)]<Alt. Metal, Nu-Metal, Female Voca
 ```bash
 magnet:?xt=urn:btih:EDA385955D3A8805476E819468E48F467735BE86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Torchbearer - Death Meditations (2011) [WavPack|Lossless]<Melodic Death Metal/Bl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +139,7 @@ CD 1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +167,7 @@ Christina Sturmer - [24 альбома] Дискография (2003-2010) [MP3|
 ```bash
 magnet:?xt=urn:btih:4AEB35E739FD6FCD6D2D4CC0DB7538CC7823EB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +201,7 @@ Uriah Heep - Logical Revelations (2012) [MP3|320 кб/с]<Hard rock, Progressive
 ```bash
 magnet:?xt=urn:btih:563740F81F61ADBEB3F70FF2ED44A03A39AD2766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Unisonic - album + EP (2012) [MP3|320 kbps]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BD2E653969F9B0CB3B5B53A315543EC272BDCF38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

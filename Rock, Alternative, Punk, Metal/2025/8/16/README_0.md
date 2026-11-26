@@ -22,8 +22,7 @@ Bruce Dickinson - More Balls To Picasso (1994) Tri-fold Digisleeve, Remasterd, 2
 ```bash
 magnet:?xt=urn:btih:E88935D0748E42A8B55240224162DA88FEDEF853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ellefson-Soto - Unbreakable (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hea
 ```bash
 magnet:?xt=urn:btih:2A13892E9177629B038C22FFAA1420B3C85F9827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Incite - Savage New Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove M
 ```bash
 magnet:?xt=urn:btih:2073366B408F8F47415F325E7BCC24284D0621BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Arckanum - Fenris Kindir (2013) Limited Edition, Reissue, 2020, Black Metal Stor
 ```bash
 magnet:?xt=urn:btih:E16850DD2AFE7FDE53F7DF782445919A70A04794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

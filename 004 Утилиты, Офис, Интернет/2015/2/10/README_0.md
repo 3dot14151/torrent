@@ -19,8 +19,7 @@ ABBYY PDF Transformer+ – программа, объединяющая поле
 ```bash
 magnet:?xt=urn:btih:ABBF05607D0C73FFE618AF82A4B41CEBDADB6178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

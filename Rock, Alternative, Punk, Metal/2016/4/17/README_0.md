@@ -22,8 +22,7 @@ Trancemission - Paranoia (2015) [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:080EADCFFD16C341480C4C6210CB6D9F7154EFF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Graham Nash - This Path Tonight (2016) [MP3|320 кб/с] <Classic Rock, Folk Roc
 ```bash
 magnet:?xt=urn:btih:26FAF82F4F6F21654DFE1E2063DCEB9CFB68BACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Free As A Bird: Southern Fried Rock, Blues & Boogie (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:DB6DE2F2E0FC7F6915E2E5125564ECB95C30EE00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ihsahn - Arktis. (2016) Deluxe Editition [FLAC|Lossless|tracks + .cue] <Extreme 
 ```bash
 magnet:?xt=urn:btih:5B3D9B5715742DDE147B92DC331868D5F2E480A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Treat - Ghost Of Graceland (2016) [MP3|320 кб/с] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:016B355FE251CD863E887A99839D8CBD94E59570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dark Oath - When Fire Engulfs The Earth (2016) [MP3|320 кб/с] <Melodic Death 
 ```bash
 magnet:?xt=urn:btih:5E669F8B500D5A12C6ABBF514E3B3FF744A9A55D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ace Frehley - Origins Vol. 1 (2016) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:40D1125872FBF24EA5D69DD24DADF6945A4AE371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Larkin Poe - Kin (2014) [MP3|320 кб/с] <Indie Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:FF82B5A0D59793790B7CBC8919A5BCEFAE4C6B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E7EF5DB296E80D851D12CD226272AAB4BADB22E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Caladan Brood - Echoes Of Battle (2013) [FLAC|Lossless|image+.cue]<Epic Black Me
 ```bash
 magnet:?xt=urn:btih:97CDF4021739972104C68BE16AADE17E49FC156D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Metallica - Kill'em All (1983) Remastered 2016 [FLAC|Lossless|image + .cue] <Thr
 ```bash
 magnet:?xt=urn:btih:E8E13618B9FF76D7A5538AC5821754A4DF832495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Metallica - Ride The Lightning (1984) Remastered 2016 [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:7D07AA62500C01BCA1EA61B70862ED7A89097865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

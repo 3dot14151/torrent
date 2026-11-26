@@ -19,8 +19,7 @@ Project 2016 поможет вам планировать проекты и со
 ```bash
 magnet:?xt=urn:btih:8E51F2B1CB68839D570407F948FC925EA38AEBBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Visio 2016 включает в себя набор новых функций, к
 ```bash
 magnet:?xt=urn:btih:8DF8C2AC801315176CEF00020F64C8716E866C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:15B5E810D44F5211FC7DD62845CE8E923F2F467F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:D0E78BCFD5A96BDAF75A73E1E746AFB27BDEF1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Project 2016 поможет вам планировать проекты и со
 ```bash
 magnet:?xt=urn:btih:CD51C16962E74B61AA2B1859D2F0D217A1D01999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Visio 2016 включает в себя набор новых функций, к
 ```bash
 magnet:?xt=urn:btih:2BD617C8738A5BE6F5395D2812633A2CAB54A582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:591D808D627E970888A9B449C37EB51D8EAE05AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

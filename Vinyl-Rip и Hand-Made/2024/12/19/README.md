@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8FA50DA32A028335598A6B2D14258F6EE92C9CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Therion — шведская симфоник-метал-группа, осно�
 ```bash
 magnet:?xt=urn:btih:4036E2AE2E0E3B98E06AF53962FFE203A24EAD79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A3 Звезды На Небе(   Читать дальше...   )Жанр: Pop, 
 ```bash
 magnet:?xt=urn:btih:4A0DC527851F49B7ED651B9EDFD06869C124DEC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

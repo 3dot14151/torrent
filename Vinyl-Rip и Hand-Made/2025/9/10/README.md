@@ -22,8 +22,7 @@ In Mourning - шведская метал-группа, образованная
 ```bash
 magnet:?xt=urn:btih:C8256A23E63A238143D3D651E642F989C30AB0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ad Tzuri, Tzuri(   Читать дальше...   )Жанр: Jazz-Funk, Soul, Di
 ```bash
 magnet:?xt=urn:btih:4BD390D04CFE8A254AE87D3CE107E50B0042370C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

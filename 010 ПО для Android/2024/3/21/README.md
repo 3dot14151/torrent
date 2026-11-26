@@ -19,8 +19,7 @@ Blur Photo v6.2 Mod by Dymonyxx [En]
 ```bash
 magnet:?xt=urn:btih:B115ED57166B403D58984BB0AD4D62CDDE749354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GIF Maker - GIF Editor - видеоредактор, что создан для 
 ```bash
 magnet:?xt=urn:btih:8F9E39C56B4C667F3158D6932CBD9DCE0FA86BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

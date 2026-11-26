@@ -20,8 +20,7 @@ Beholder (2016) [Ru/Multi] (20171002/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F3729AF8265A99D9ED5768BF8543E57855613C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Hob (2017) [Ru/Multi] (1.12.2.0) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:3963555D57D2BFE3F53A8327582FB4FF454B3F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Road Redemption - игра в пост-апокалиптическом мире
 ```bash
 magnet:?xt=urn:btih:9B4EE8DAD1513D48099C9B4ACB050C31A3D5D1AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

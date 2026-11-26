@@ -18,8 +18,7 @@ GlanceCal 1.6 [En]
 ```bash
 magnet:?xt=urn:btih:FACF718AFE7899906ABAA40F28095E76A7CD412A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ ImageRanger - программа позволит найти все нужные
 ```bash
 magnet:?xt=urn:btih:3ACDFA0799ED682EA57350DB97B553A237D25A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Recordia 1.5.1 [En]
 ```bash
 magnet:?xt=urn:btih:1137D0154EC08253C09D7E4A49B5440F1BC59D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Shirley Scott - Queen Of The Organ (1964) 1993, GRP [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:B630F3EC84D4F41C375E09D04385063D0FEECAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Data Guardian 6 v.6.0.9 [En]
 ```bash
 magnet:?xt=urn:btih:60DA7AE0F98D7D13EE1C7B91FB9EE25706B55F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Milt Hinton, Wendell Marshall, Wyatt Ruther - Basses Loaded! (1955) 2021, Fresh 
 ```bash
 magnet:?xt=urn:btih:956118DBDD10851B40C9F3FEBE187B521D33D78E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AA749E24121D11645C099EB9AAC283D0EEABE39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ VA - Favorite Techno (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 ```bash
 magnet:?xt=urn:btih:FC9447F671ABE80FDBE264A7210CFA2AB33FF680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

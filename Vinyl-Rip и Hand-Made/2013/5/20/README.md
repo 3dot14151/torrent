@@ -28,8 +28,7 @@ Tarja - Act I (2012) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:0C2E304556E88D9654DEEFA32B3F38FD824261B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Gazebo - 2 Альбома (1983,1984) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, I
 ```bash
 magnet:?xt=urn:btih:2C07B04CC9EF8AD7FEC167C7BB78962676F7ACE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

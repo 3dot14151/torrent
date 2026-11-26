@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:31A7A0EA4F926572928A6A0AE1C9F36FF1ACD2EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ RusLive 26/10/2012 [WIM_Micro edition] by NIKZZZZ Mod (Микросборка2.1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F80B305749B0F2B5CAEC43D1A39E11BB003CF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Partita No.1 in B minor, BWV 1002
 ```bash
 magnet:?xt=urn:btih:61C7B542221EEDFEDDEC65016B0F49429B39FE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 ```bash
 magnet:?xt=urn:btih:635339881DF2DCCE09BB7FDFF1AC0EC11A1495F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Gregor Piatigorsky, cello/ RCA Victor SO/Alfred Wallenstein
 ```bash
 magnet:?xt=urn:btih:3B44B4A94F66E3B277FD219AA0557475F7C6BFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Brandenburg Concertos 1-3 (Disc 1)
 ```bash
 magnet:?xt=urn:btih:39984B6DD2C98C22860072B5B5B0F83ABC021827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ CIAPC, антипиратская группа, которой в своё вр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Meat Loaf - Bat Out Of Hell (1977) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:5F9882744F3AC91240F8CAA9762B6D16AEE5DF1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50794772F9953DB7F1FA978CAC1B0AB099AA91AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ VA - Лучшие Хиты Наше Радио Часть 10 (2012) [MP3|128 к�
 ```bash
 magnet:?xt=urn:btih:AFE5A0A8288F52C07833B13F1D80AB7DB841EF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Sonata In G BWV 1021 (Maria Lindal, Violin)
 ```bash
 magnet:?xt=urn:btih:3F9E86B81259C46D6DBF1E102124D77EF4652B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAA08C749986CB4ACC2DBD8BF0197C4937556C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:040DA955BA5F093E55BFDBEC42DE4AC3EDDE3103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8AC5B595D8BE92D3EDD0D6EF7FE5053EDBB731C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C971F956C385D17C16F3B85FCA74BEBCD72449AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFF18A3304AE3AE58B0397D5F92A62F3284EF41E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Discovery: В поисках суперлюдей (серии 1-5 из ?) / Disc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF8015E6CF16B2AA533927224A5544C8756CE648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ VA - Созвездие хитов. Шансон 1-12 (2002-2012) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:87F9D098631B58C41197727CDD4BF3DB345C8F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ Los Angeles Guitar Quartet - Spin (2006) [DSD 2.0 / DST 5.1|1bit/2822,4kHz|SACD-
 ```bash
 magnet:?xt=urn:btih:E48B53F6E901AA76112535629AA05EC8E27217C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ Concerto In G Minor After BWV 1056
 ```bash
 magnet:?xt=urn:btih:02B6BEA72D0DE5DD61826292459678E7FC3CBB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ Transcripted [En/Multi5] (P) 2012 l THETA
 ```bash
 magnet:?xt=urn:btih:555DA2B40BDABE3BCE4499C4CF0C6628725B4EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DA22511FF8BFB365D0E1FD9CE4F9DA3783A0C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +746,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68C94A24D0AFCA800E1BA3866C69806EB60735AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

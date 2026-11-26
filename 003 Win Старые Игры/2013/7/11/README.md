@@ -21,8 +21,7 @@ Mortal Kombat (1993-1996) [En] Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:283DEECBF5465F23C421FD859280128376EBD2E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

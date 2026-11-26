@@ -21,8 +21,7 @@ Under the Ocean - это продолжение инди-игры Under the Gard
 ```bash
 magnet:?xt=urn:btih:C5500BEC36524A5B48781C0D696E92616C5561B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ FX Eleven - это футбольный менеджер с разносторо
 ```bash
 magnet:?xt=urn:btih:C5FA980FDDBF9695B6CD2DC8C42CCE8805CB119B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Might and Magic: Clash of Heroes / Меч и магия: Битвы героев
 ```bash
 magnet:?xt=urn:btih:DC6DA7E03EE508E14CCF66E9FAF44E391767E7F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

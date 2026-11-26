@@ -19,8 +19,7 @@ The Magical Mixture Mill - это увлекательный симулятор,
 ```bash
 magnet:?xt=urn:btih:AB5641F0F435A6EDA3E0F3C941C389048B26242B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10402.1014/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E06924835DCACE820B1E57582CE3BD85F6B01CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.153/dlc) Repack dixen18 [Legacy Collection]
 ```bash
 magnet:?xt=urn:btih:E7977ED7CE62852DDCC0D26787C2BFC51FDD377E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Werewolf: The Apocalypse - Purgatory – откройте для себя уди
 ```bash
 magnet:?xt=urn:btih:92C93E1E4A1FCDA4EED6FA16387D11FD8B05B1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tropico 6 (2019) [Multi] (1290/dlc) License GOG [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:97BF315958E3ADA37A3E8D2FEEF2D442863B878F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ IZON. (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:15EEAC2EBF5547F66B70972E00ABCC490353D078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack FitGirl [Premium Editi
 ```bash
 magnet:?xt=urn:btih:21F3912CF0F54250EE4873B056B074CA8FEC778B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (1.01 patch 2) Licen
 ```bash
 magnet:?xt=urn:btih:4B63A980534E0026C802BCBAE0C7F6E952838BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ I Am Your Beast - это FPS в обертке триллера о мести, �
 ```bash
 magnet:?xt=urn:btih:6E9C47F65F550F5C6BD83C6A3A19211AF534AC78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Spirited Thief переносит игроков в мир темного фэн
 ```bash
 magnet:?xt=urn:btih:672ABE519470ABA0F8D82EDB31E1384E674C92D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Fluffy Sailors (2025) [Multi] (1.1308) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0C6106E1A0C2713355982BD22A486F4FE6931E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Wild Explorer (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:617C37E75880D53FCD2363BD187485C80A8B823F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Yasuke Simulator (2025) [En] (1.0/dlc) Repack FitGirl [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:D057307350E3ECDB0C126D7F23E4767D1E989108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Pull Stay смешивает вместе механики, взятые из ж
 ```bash
 magnet:?xt=urn:btih:12A48D5EADD4802993F6C75EC53C7C897F197F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Kun'tewiktuk: A Mi'kmaw Adventure - приключенческая игра в �
 ```bash
 magnet:?xt=urn:btih:7EDE6FDD12C226A673BC6DBACB5805015CB41544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

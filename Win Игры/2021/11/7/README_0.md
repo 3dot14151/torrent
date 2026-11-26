@@ -19,8 +19,7 @@ Farming Life (2021) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A7A571E7655EE3DAB8E8913AFE1D016C5B3BA1EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Soulsland (2021) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:68E0D741EC81B603B48C331E9D48F650F4A63F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Airplane Racer 2021 (2021) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:B787E6C4C68A31811ECB997F698AAF5024EB8E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Vampire: The Masquerade - Shadows of New York (2020) [En] (1.0.1) License GOG [D
 ```bash
 magnet:?xt=urn:btih:795EB5F31667E9F1232D2538C2C8D6F8010416D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Miner's Mettle (2021) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:BD58203A546049E68D9ADF0AB4F7CC570B2A5B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Death Slayer V (2021) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:81238C854CD82B652AA39938739E21697290AF63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

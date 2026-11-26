@@ -22,8 +22,7 @@ Face 1:
 ```bash
 magnet:?xt=urn:btih:6B51C36E44B5715D78F1B08940C57CDFB31E257B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

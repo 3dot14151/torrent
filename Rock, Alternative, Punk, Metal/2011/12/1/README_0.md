@@ -28,8 +28,7 @@ Der Galgen - 2 альбома + Demo (2007-2009) [MP3|192-320 kbps]<Medieval/Fol
 ```bash
 magnet:?xt=urn:btih:833A7070BAC0318FF2E7B33315848E5CBD19FE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Descending - New Death Celebrity (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Michael Learns To Rock - Michael Learns To Rock (1991) [APE|Lossless]<Alternativ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:EA6382FD289526C1D4AE852DA82D9C52760A4F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Steel Reign - Change To Insane (1995) [MP3|320 kbps]<Heavy Metal/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:3F38A56E64A57B38FDBEA59A4321F0F3D407FA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A4DB4880CAF999843886D6E3CD54ABC2BAB019A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Mad Heads XL - 8 Альбомов (1996-2011) [MP3|320 kbps]<Rockabilly, Psychob
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Slayer - 37 альбомов - Дискография (1983-2010) [MP3|192-320 k
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ CD 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

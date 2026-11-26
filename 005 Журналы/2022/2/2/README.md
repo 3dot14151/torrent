@@ -19,8 +19,7 @@ Elektronika Praktyczna (Практическая электроника) - жу�
 ```bash
 magnet:?xt=urn:btih:A7FFFE492B6DBFFB1179257DD901F32C3CD4252C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

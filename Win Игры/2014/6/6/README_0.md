@@ -19,8 +19,7 @@ Shadow Wolf Mysteries 4: Under the Crimson Moon (2014) [En] Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:DE7E9399AA88BCE94C353D18D9F1CC775511C3B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Facade 4: A Wealth of Betrayal / За гранью жестокости: Б
 ```bash
 magnet:?xt=urn:btih:6FE83AD47831128A5C338E7B8D15849053DF865A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Panopticon: Path of Reflections / Паноптикум: Путь отражен�
 ```bash
 magnet:?xt=urn:btih:C9AED894A55541102DF79FE7C2E4E6E71D1F7DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tales of Terror 2: House on the Hill / Трепетные истории 2: До
 ```bash
 magnet:?xt=urn:btih:BA1A794D054D1C15594D117839E03DAFBEF1A13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

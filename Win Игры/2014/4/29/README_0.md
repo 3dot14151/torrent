@@ -21,8 +21,7 @@ Teslagrad будет полагаться исключительно на виз
 ```bash
 magnet:?xt=urn:btih:0E54D3646C96888C921DF9891A38BD55E44DF25A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Castlevania: Lords of Shadow - Mirror of Fate HD (2014) [Ru/En] (1.0.684575.0 up
 ```bash
 magnet:?xt=urn:btih:4C21746E7FF6B566E3037D9D49935CD2B5D8FD12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Rogue's Tale - это "рогалик", в котором уровни гене�
 ```bash
 magnet:?xt=urn:btih:B51ECE61AB2D11D01DA7F2358DF1A077ECC53EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

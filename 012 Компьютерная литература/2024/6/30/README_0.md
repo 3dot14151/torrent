@@ -19,8 +19,7 @@ PyCharm – лучшая профессиональная среда разра�
 ```bash
 magnet:?xt=urn:btih:FEA1A209B3F7D6051CD0842B8B9B1FA6F7FF0C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

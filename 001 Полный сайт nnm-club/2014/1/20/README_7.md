@@ -20,8 +20,7 @@ WPI DVD 20.01.2014 By Andreyonohov & Leha342 [Ru] (Авторская разда
 ```bash
 magnet:?xt=urn:btih:D816AC90A329726082650FD3410909D91D6308A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Valkyria Chronicles [PS3] [EUR] [Ru] [2.42] [Cobra ODE / E3 ODE PRO ISO] (2008)
 ```bash
 magnet:?xt=urn:btih:F4355383B78433D3E77447DD6F5E553478934595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ C помощью технологии CSS3 (каскадные таблицы с
 ```bash
 magnet:?xt=urn:btih:AB65766D5EDED319502722E6854AB00ACD7D226A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:637FFB21DB2EB195D5BBADD42AD67A9B24240108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - I Love ZYX Italo Disco Collection vol.1-16 (2002-2013) [FLAC|Lossless]<Hi N
 ```bash
 magnet:?xt=urn:btih:38E30896268D41B0B569602A3415EE50CE277846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A66A78F86409A076ED2E0340D0490505AEF12A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Journey: Collector's Edition / Путешествие: Коллекционно�
 ```bash
 magnet:?xt=urn:btih:23A0011FA13E5C2159977C3C7CEA736AE0265966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Crysis [PS3] [USA] [RUSSOUND] [3.50] [Cobra ODE / E3 ODE PRO ISO] [2011]
 ```bash
 magnet:?xt=urn:btih:6E44CB0E25C4F70BD819E1A726A97B8DC3E7CAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AEB553A6F6763119DEE967490051409F42809EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ iDeer Blu-ray Player - простой в использовании, но мощ
 ```bash
 magnet:?xt=urn:btih:EA723379974C2F92842233F3DC07C21C57543999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAA95A9A6FCCB5603DF5940C0730759A46DDD5D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ PayDay 2 – кооперативный шутер на четырех игро�
 ```bash
 magnet:?xt=urn:btih:DD878B60E421FCC533CEE7BDCBE2759DE1B2EB1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Adobe Photoshop CC - программа для обработки растров
 ```bash
 magnet:?xt=urn:btih:FCD5F670AAC7FA076D5651EF4BF701494637A407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 ```bash
 magnet:?xt=urn:btih:7FB01480CDAB763A9808993824F76E0D02B21A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Microsoft Windows 7 SP1 RUS-ENG x86-x64 -18in1- Activated v2 (AIO)
 ```bash
 magnet:?xt=urn:btih:54F6FDBBE7A8D6411C281BCF90D59766C5DAAC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:26FF9E24B152CA3DE198DB1E27EDB9C32C48158F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ SASH! - Life Changes (2013) [FLAC|Lossless]<Electronic, Pop, Trance, Vocal Tranc
 ```bash
 magnet:?xt=urn:btih:D3689BF528529ED81F88091E704ABE7A5D81AB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF744764D1D28B6A6ACA0814344EDDF6BDB03680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Wallpapers - Обои разное 39. [JPEG]
 ```bash
 magnet:?xt=urn:btih:8E05D8DE94BA316510DAF323FF4A8F1C15633D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dark Angels: Masquerade Of Shadows (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:0C0AC6FB024A44F1BB3757F1CF1F6FAA5E089FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:F02E2D3CBFED9A756FAED979DD737A9C83D3775D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ SASH! - Life Is A Beach (2012) [FLAC|Lossless]<Electronic, Pop, Trance, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:4EC4F9217B8F29171DAF7C5CD5D206318072DDDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Lamb - Best Kept Secrets: - The best of Lamb 1996-2004 (2004) [WavPack|Lossless]
 ```bash
 magnet:?xt=urn:btih:9C51FF5CE60E5F081976B9C682DCC8DAC76464B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AB0726189CD15EF711E69DAB26976102B4B10E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ Perry Como - Love Songs (2003) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:E936F539B49C41751DE8C0D81A18CF30AD579DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ Digital Art (19.11.13)Разрешение файлов: 421х557-6000х2700Фо
 ```bash
 magnet:?xt=urn:btih:2B5AA394AFA50E14A8B861F0B832A1E99257D36A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Miss Construction - 2 albums (2008-2013) [MP3|320 кб/с]<EBM, Dark Electro, In
 ```bash
 magnet:?xt=urn:btih:AC0130BE2B64DF24D45CBEDCBF3E1FD01BA7061C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ Rizelmine / Rizerumain / Моя Ризельмина [2002; TV; 24] DVDRip 544p 
 ```bash
 magnet:?xt=urn:btih:A6FF31DAD90F892A63CF9C7F9DCE148E4DA53BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:953EAEEB5083FE747D0B82E35DD0F62E0CCA28EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ Musica Nuda - Banda Larga (2013) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:58E33FFD0FD082AC6310DF5E032C7A16B2867D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +466,7 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:238ED43F36B088CC03F13D82A0E96723531E8631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD582C42FF17E1C807247C90F1F11B835CDE5651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ Wallpapers - HD Wallpapers Mix part.8 (2013) | FedExe [JPEG]
 ```bash
 magnet:?xt=urn:btih:F02B60A5075A517EA964A3742F1BFE448ACFA948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D01DFC6EAAEC51AFB12089FB82934564D75ACA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:896FC94F603AEF4E677DF49AE9CD0B66AC7CF941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ AIDA64 - утилита является мощным средством для 
 ```bash
 magnet:?xt=urn:btih:AAD706D98A7F8EA1C83B801618190E26CBA7841D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ Recuva - небольшая бесплатная утилита, которая 
 ```bash
 magnet:?xt=urn:btih:CB7DA59CED3ADF16C5CB6844FAE0C94ACA2B7B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1EA95929B83AFDCB7318F60C292EE40D58C0A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:825B67EF02D95DBA8C2ADC60C335A452B7FC52CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81FF5DA05EEFFFCCA8F5D7500DA7AA4DDCBD885C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17A01772AC76152BDA95473B23F445A69654B17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

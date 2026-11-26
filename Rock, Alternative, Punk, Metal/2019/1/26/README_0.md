@@ -22,8 +22,7 @@ Bob Mould - Sunshine Rock (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:77B1C54C6365406392BF3A6D4454B89C62C42A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jo Jo Gunne - So...Where's The Show? (1974) Unofficial, 2010, Dogtoire [MP3|320 
 ```bash
 magnet:?xt=urn:btih:6B2DBA6FD9E84A67465265406F118248BDDBF363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sunflower Bean - King of the Dudes (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Indi
 ```bash
 magnet:?xt=urn:btih:2D673BCD9BDE055551FF6DB4A945D7F1478653AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Alcest - Kodama (2016) Luxus Edition [FLAC|Lossless|tracks + .cue] <Blackgaze, P
 ```bash
 magnet:?xt=urn:btih:75B16A347425679E659A9975AB3294CD1E1B7276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ ROME - Le Ceneri di Heliodoro (2019) [FLAC|Lossless|tracks + .cue] <Neofolk, Dar
 ```bash
 magnet:?xt=urn:btih:9576FA86B7D331260CAEDF057C2E3CAFA558DF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Cure - 4:13 Dream (2008) Geffen Records [FLAC|Lossless|tracks + .cue] <Alter
 ```bash
 magnet:?xt=urn:btih:B3D21E4000BB102F441FBA85258451C7D06A7F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Swallow The Sun - When A Shadow Is Forced Into The Light (2019) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:EEAD1510B56F849CECFB32890A76303FDB59FB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Steve Gunn - The Unseen in Between (2019) [FLAC|Lossless|tracks + .cue] <Indie R
 ```bash
 magnet:?xt=urn:btih:D67F2FFCFCF3A0FBA48E01D540DA3927D20E331D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E241E5F6872BA2E2550F3D37DDBDF1AF8A2303FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Alkonost - Октаграмма (2018) [FLAC|Lossless|tracks + .cue] <Folk, Meta
 ```bash
 magnet:?xt=urn:btih:36C7EFC57B5058A63BF6024FFF20AC38FE7FEB3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Alkonost - Песни белой лилии (2016) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:889DF248EC200074DDF7AD73CE5251429AE0DB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Digimortal - Создатель (2019) [MP3|320 Kbps] <Industrial Metal, Modern 
 ```bash
 magnet:?xt=urn:btih:4379B7708B795A994A4173B25186B592AF515650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

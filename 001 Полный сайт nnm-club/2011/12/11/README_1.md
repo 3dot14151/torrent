@@ -27,8 +27,7 @@ VA - Зимний Подарок Для Любимой (2011) [MP3|256 kbps]<Pop
 ```bash
 magnet:?xt=urn:btih:53BB3A913F2792B913EE493A0EDD406B37A0D340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Non Stop House Music (2011) [MP3|320 kbps]<House, Electro House, Progressiv
 ```bash
 magnet:?xt=urn:btih:7C0B41BACF9508BE3B00AA2716B614BA625BC55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Hardcore Superstar - Bad Sneakers and a Pina Colada (2000) [FLAC|Lossless]<Hard 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ N/A2011Жанр: Nu Rave,Electro, ElectroclashПродолжительность
 ```bash
 magnet:?xt=urn:btih:7E61A0C0B50F2E89AEE337236F7B1561EB166F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ Herbie - Fingers (1995) [MP3|256 kbps]<Eurodance>
 ```bash
 magnet:?xt=urn:btih:A9EE954F82974A810391186566C4DF00D3E30A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ VA - Artificial Intelligence (2011) [MP3|192 kbps]<Spacesynth>
 ```bash
 magnet:?xt=urn:btih:ED3899054902A46E7C0F0E4B38DD023AC63A6A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ VA -  Последние новинки в мире музыки 50/50 vol.5 (20
 ```bash
 magnet:?xt=urn:btih:6D3674E27C5FC1D4D9540A7C70EC95B8F8BD5661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F89174F34174C80E6CB3FD36521953BAEE5B6FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ VA - The Annual Housesession Collection (2011) [MP3|320 kbps]<House, Electro Hou
 ```bash
 magnet:?xt=urn:btih:066533DDD2B8D5B0D4557F22E6AECD0D21A910D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2843520E555440C8612D62FC6C8CD43B173A503E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ VA - Доля шоферская Часть 1. 200 песен (2011) [MP3|128 kb
 ```bash
 magnet:?xt=urn:btih:3A8C97E6342A4DB8AB7BD69C9002C0772C29761B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81424C9D9FC037251B06F88A375127043CAB7D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ VA - Ээхх, Разгуляй! Праздничный Выпуск (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:BA57E26656547E27EBC70006E25B5F4E7D0FEC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4F000598CAF27BDE96ACF1BF1D270135663E059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F03EF29D8A349B0EF99D8E8918E5BA4BF3B51B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ C.D. Band - HooDoo VooDoo (1979) [MP3|220-240 kbps]<Disco>
 ```bash
 magnet:?xt=urn:btih:92AF3D41868C40B3A9A7FF784D1B1BB6B203B2A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ Kenny Barron Super Trio - Super Standard (2004) [APE|Lossless]<Jazz, Bop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +662,7 @@ Seth MacFarlane - Music Is Better Than Words (2011) [FLAC|Lossless]<Vocal Jazz, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +696,7 @@ Cage - Supremacy Of Steel (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:58C1E47F77D8DC3F28AE2B931A72668DE7C20787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +722,7 @@ Beauty Guide - позволяет нанести макияж и устрани�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -807,8 +782,7 @@ Underworld - The Anthology 1992-2012 (2012) [MP3|320 kbps]<Techno, Electronic>
 ```bash
 magnet:?xt=urn:btih:A23C044D74B18DAC38B28DC93FF415145A0FB206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

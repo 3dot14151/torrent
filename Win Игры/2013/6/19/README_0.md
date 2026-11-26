@@ -19,8 +19,7 @@ Witch Hunters: Stolen Beauty. Collectors Edition / Охота на ведьм. �
 ```bash
 magnet:?xt=urn:btih:79ED241FB3A4903580C5DC9C180716ABADF961FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

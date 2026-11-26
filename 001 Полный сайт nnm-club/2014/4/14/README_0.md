@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F0CEB62E325A964BE30433CCFC4C7499D5F3B3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Best Of Lounge Music 2014 (Compiled By DJ Silent Panda) (2014) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:E3D0268F5A83D5E62C528F027026F39CF9B46D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BDDC49371BBF112B487918FDD7B49626401B6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ CoolUtils Total Image Converter - преобразует изображения 
 ```bash
 magnet:?xt=urn:btih:EF5872577B16B16E35E83F3FC197998E56E9761B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:521B00C19272CE14E391AC447EA778E1F9D99481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B097EC6E1A8A3DD13517FB4BF29ACEA23A093A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Miles Davis - We Want Miles (1981) 2CD [FLAC|Lossless] <Fusion, Funk>
 ```bash
 magnet:?xt=urn:btih:CFBA33553F35E2C0AE62A366B8E56EEE57664DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Wallpapers - Глаза [JPEG]
 ```bash
 magnet:?xt=urn:btih:73007092EE6DE4A32144E18F3C6F0B0AC279432C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Hiatus & Shura - Fortune's Fool (2011) [FLAC|Lossless|WEB-DL]<Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:2D4C651C6D6A70ADD457077B8D91E64DF3A33878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CBBF59710565DB30E84A753667747D5C705D4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Alexandre Desplat - Охотники за сокровищами / The Monuments
 ```bash
 magnet:?xt=urn:btih:CD26681343FA71EB24A564B1DB19182EAA6DC8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ BeatleJazz - With A Little Help From Our Friends (2005) [FLAC|Lossless]<Crossove
 ```bash
 magnet:?xt=urn:btih:7B2154B13B32EB28CFB5A9D68C544971288B84B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ SynWrite Editor - мощный текстовый редактор для про
 ```bash
 magnet:?xt=urn:btih:EB17F184A75B6BD26372F98C862640985E0BD03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ VA - The Official UK Top 40 Singles Chart (13-04-2014) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:B7BF6326E6326176F0724C8F84ECAC0F3606B548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ Mind.Divided - Fragments (2013) [MP3|320 кб/с]<IDM, Industrial, Rhythmic Nois
 ```bash
 magnet:?xt=urn:btih:38D24F914456ECBFACB5E88FC5C4A8DA645767D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +451,7 @@ Art Farmer - The Many Faces Of Art Farmer (1964) /2006 Gambit Rec./ [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:1FDA0E53B13F79F38C3F5C8809B025EDD3FB9E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CF42A0633A28AED396D3AA95AE4967231DD71B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B98305FBBAEB1C9935EF1DDD73432CAC2DA1B9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +528,7 @@ Photo Text Pro 1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:5895CE9704CB0AC191CC8F22CB85B643B4856443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87C97C356519876C0B975D33D5A4A85211C415D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ FileLocator Pro — интеллектуально развитое и мощн�
 ```bash
 magnet:?xt=urn:btih:A9E709746C25CA2B10DF700F5585451857678841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D177ABCA8059C256E808A66108133341C2A70CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ Little Feat - американская рок-группа, образовавш
 ```bash
 magnet:?xt=urn:btih:A9DA6D68C54C3BBDD354A640368F9AAA88B2F3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ Downliners Sekt - 8 Releases (2005-2014) [MP3|320 kbps]<Abstract, Dubstep, Minim
 ```bash
 magnet:?xt=urn:btih:839EFE47FB2849661A01445651C7392D95C40AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D8C091E481BE818DB466B6FA8A2565F535E0E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +717,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F847C0B8A08357FEEC10369C71FFE8EE21229F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

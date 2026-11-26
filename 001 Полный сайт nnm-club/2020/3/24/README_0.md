@@ -21,8 +21,7 @@ Tom Morello - The Atlas Underground (2018) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:BE87C21C70548046FD52E49D9508C92872744352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Nothing But... Soulful House Vibes, Vol. 07 (2020) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:F60221F1B00DA25F48BFCADF6BAF045422EFD0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Bullet for My Valentine - Hand Of Blood (2005) Ep [FLAC|Lossless|tracks] <Altern
 ```bash
 magnet:?xt=urn:btih:507D337A76C511109CF9B00C5081E8CE060A8AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Bossa Nova Flavors (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtemp
 ```bash
 magnet:?xt=urn:btih:EA9D0E8BCDB5C7A8756D9D4C76C12D2633B61DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:61230E1A62A421D2D154E358297EC69A298F656B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Total Audio Converter - мощный конвертор всех музыкал�
 ```bash
 magnet:?xt=urn:btih:C8C124010E6F1750A910FACAF5C18D7DB3643B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Tatarka - 7 Music Videos (2016-2019) WEBRip [H.264/1080p/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:1F8FA8DCE405E786D32C53C6FAE97CCF59C723C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ VA - Different Shades Of World Song (2020) [MP3|320 Kbps] <Pop Folk, Shancon, Wo
 ```bash
 magnet:?xt=urn:btih:B6A12A297D4EC7382C3132D93856787581F42CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Paradise Lost - Fall from Grace (2020) WEBRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:4CB4A53E3B447A827BB67ECEF27512C7C87E3D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Pale Moon - веб-браузер, созданный на базе популя
 ```bash
 magnet:?xt=urn:btih:7F022AA41CA131604881FF023C7647989632A0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Kim & Buran (Ким и Буран) - Best Melodies (2020) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:B15037093327A4801EAA7F5606B425CB9665856F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D7FE15A3AC9C5927AE9197DAD08F0616E248E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:45310653DC924D23979D6E52D5C90E8AC55C4D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:3C8BCA1F937045FD06DE8E968230F4669EB55CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Folx- бесплатный менеджер загрузок с удобным �
 ```bash
 magnet:?xt=urn:btih:900B2FDC45A7074D186CCF62AE380E5359EA2178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ VA - Warm Lounge Sounds (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Rela
 ```bash
 magnet:?xt=urn:btih:B994913A15B0DEC5E7B878AAF708CF2EDDD8A6EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ VA - Play: 70's Music (2020) [MP3|320 Kbps] <Classic Rock, Soft Rock, Other>
 ```bash
 magnet:?xt=urn:btih:453BD84AC38909B9B8898D8BF23B2807B73D25C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:0C0FB8C997CB4EC7059BF058B7FA35A464EC2DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ MacClean 3 содержит целый ряд новых функций для �
 ```bash
 magnet:?xt=urn:btih:2AC9F7EEFD6A2413812CB340660F78C99F0C70EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ Loopback 2.1.4 [En]
 ```bash
 magnet:?xt=urn:btih:EAC139DEA6B72BAA7FF8ED228387F84155926D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F49557594FFC462389DDD1FD86FC1B989BFC325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Enolsoft PDF Compressor 3.4.0 [En]
 ```bash
 magnet:?xt=urn:btih:36EFA9E13F395CFFFE542D34B9E2CDE59F655A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EF1B6B86D1CD975F12651984CAF90085A2B8764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ Swish 1.4 добавит отсутствующий набор жестов дл
 ```bash
 magnet:?xt=urn:btih:C7BFC1254E3C665107DA67CA68EE1FB4A5042A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33FCFDB478A256F949310BE00E63972728B0610B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECE9ABC677CECA3B32D40A847B9B0CB3960516B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

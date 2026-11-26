@@ -22,8 +22,7 @@ Paul McCartney - Paul Is Live (1993) SHM-CD, Japanese Edition, Reissue, Remaster
 ```bash
 magnet:?xt=urn:btih:6B539CD3ECC1CC3A06ECD8E2E3C895DEE432E9C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Metallica - ...And Justice for All (1988) [APE|Lossless|image + .cue] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:A657931DA125E310E51326F87F714D6E1CFEFF8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Heavens Gate - Menergy (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:C6E561AEB00061A00034C63224FC4C8179D312EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bengal Tigers - Cry Havoc (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CB8F72FE4A3CF8E88234F8C4B227B9384DA54580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Queen - Slightly Mad (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Roc
 ```bash
 magnet:?xt=urn:btih:A5F041A21A0A0A84F1D58736EE5998F655FC9A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Queen - Greatest Hits II (1991) 1st UK Press [APE|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:A41A8EE242D8C44593D382E14EC60D69F995BCA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

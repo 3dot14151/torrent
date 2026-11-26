@@ -19,8 +19,7 @@ MyTetra — это несложная кроссплатформенная пр�
 ```bash
 magnet:?xt=urn:btih:8367D550CFCD321E19BBB9C871350CC0E602BEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

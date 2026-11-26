@@ -23,8 +23,7 @@ Brock Van Wey – White Clouds Drift On And On (2009) /2CD/ [FLAC|Lossless]<Dub 
 ```bash
 magnet:?xt=urn:btih:C0AD5F5547A28025034DAE4F4D4863D5E5B0A9BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61F6CB4EA3C353956B035CC4F8790FF726F1C5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ The Legend - The Legend (1969) [FLAC|Lossless]<Progressive rock>
 ```bash
 magnet:?xt=urn:btih:2EEDEBCAB2A2113FFFF6A939F662F800263C523F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ VA - Gardens Of Lounge Sans Souci Edition (2014) [MP3|320 кб/с]<Downtempo, Lo
 ```bash
 magnet:?xt=urn:btih:49F7B0E209DD492EFC4D140BE82486FC6BFAE647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50F532745779C4E08A8C9C1A8E3FAD1EBACF7E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ RPWL - Wanted (2014) [MP3|256 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:685595B39CB90E306E828F48CFC4C3F6AD66E956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Blue Sky Black Death - Third Party (2010) [FLAC|Lossless|tracks + .cue]<Electron
 ```bash
 magnet:?xt=urn:btih:7815D0DFB77D9B205EB7C9A441D1545B2F7B44AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ Sidney Samson & Eva Simons - Celebrate The Rain (2014) [MP3|320 кб/с]<Progres
 ```bash
 magnet:?xt=urn:btih:944AE3DB49E4B8F04D29E95417AD6302B2C5A2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Marco V & Christian Burns - Frozen Heart (Big Room Mix) (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:1215E07E87315B27C27A3FD198016E735017312F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ Gino and The Lone Gunmen - Idle Hands (2013) [MP3|320 кб/с]<Rock & Roll, Rock
 ```bash
 magnet:?xt=urn:btih:3564CAF44134C174604B07A145FCC7506D53252A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48A6A7D062ADD599C9710D292ACE20DD63692C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Impaled Nazarene - Vigorous And Liberating Death (2014) [FLAC|Lossless]<Black Me
 ```bash
 magnet:?xt=urn:btih:5E7B63DE2798C7523FF83E83A80F0E2BAF93EE42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ Ascendant - Source Transmission (2014) [FLAC|Lossless|WEB-DL]<Ambient, Downtempo
 ```bash
 magnet:?xt=urn:btih:85B33BCAAD86E924F2C6BC1F9F95369D95ABD689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06FB5E485FB8FA9EBF24241FF94D8BC11FA6ADB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2815D547634A3F338FC76D006DF741706B8704F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C0A3951DFACD566115C08ADC435D1D99A668746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DD557509EC7A1146FED91DB98A331C9CF308D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +536,7 @@ Agulo feat. David Berkeley - Fire Sign (Suncatcher Remix) (2011) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:BD6BA2B1914FD481D4A3BB711C1AA34E0292734D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ Eddie 'Cleanhead' Vinson - Kidney Stew Is Fine (2005) [FLAC|Lossless]<Jump Blues
 ```bash
 magnet:?xt=urn:btih:AB5612A081E67C95257CAFCD82318B8F4A0F6799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ Dimitri Vangelis & Wyman X Steve Angello - Payback (2014) [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:627CF0ADB20273974AD4A213A44B73722A56481D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE817C851273EEC65FCEAB15F6B9AF451253D36F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +645,7 @@ Matisse & Sadko - Sigure (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:110EFCAD778D6B61EB93F238FEBBD759EE5C1B71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +670,7 @@ Fady & Mina vs Geert Huinink - I'm Not Gonna Fall Behind - I'm Not Gonna Fall Be
 ```bash
 magnet:?xt=urn:btih:DD99E71EC02D781EF277C0AE581D174121BCC121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +703,7 @@ Hans Gustafsson - 3 альбома (1998-2002) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:B187C518052C337BBB8CA037BF1E2CA26BD09561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +729,7 @@ Xgenic - Ignition (2014) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:AB705B3D28AF56240D987D59927F64FB967FEB40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

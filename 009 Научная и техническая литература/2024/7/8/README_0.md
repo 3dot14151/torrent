@@ -19,8 +19,7 @@ Featuring outstanding full-color photographs of actual cadaver dissections with 
 ```bash
 magnet:?xt=urn:btih:88420B462F1436CF8E2EBC1DB8C1C721FAC3C4E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF11F90482A23514761B5E9357382F0A16D40E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

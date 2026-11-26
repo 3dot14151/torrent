@@ -19,8 +19,7 @@ Paranormal Files 7: Ghost Chapter / Паранормальные явления 
 ```bash
 magnet:?xt=urn:btih:D1E0ECCD0FBA9EBDEE8D3D50E2EC8665AE4DC6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Else Heart.Break() / elseHeartBreak (2015) [Multi] (1.0.9) License GOG
 ```bash
 magnet:?xt=urn:btih:954ACBBE7389699362174198F127179B2A7DA35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Seed of Life – это приключенческая игра-головоло
 ```bash
 magnet:?xt=urn:btih:F4CF8361388E18F3CFA5266DEB009FC42B9598B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

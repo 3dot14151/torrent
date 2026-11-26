@@ -28,8 +28,7 @@ BulletBoys - BulletBoys (1988) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8FA3FFB11170A0BDD0A6E2EEE183C30965E29041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Fate - V (2006) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:065654591C0E2DB6CBBEB8EF9E89FAF88BCC527C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Blue Murder - Blue Murder (1989) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2B0C9741DECBBF6133920A7188E520B481BF4D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Ron Keel - Metal Cowboy (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F47E9DC86EA694F6781A861B1F039E72AC029803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Cynic - Kindly Bent to Free Us (2014) [FLAC|Lossless]<Progressive Death / Fusion
 ```bash
 magnet:?xt=urn:btih:2F329F1DA64A10D5287AFBE715B01BF76FE98A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ War Babies - War Babies (1992) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B858DA3B9CC862166ACABCE615CD251E5413617A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Winterstorm - Cathyron (2014) [FLAC|Lossless]<Power Metal/Folk/Epic>
 ```bash
 magnet:?xt=urn:btih:27C4FBEF36F71BE19285D6D12EBA06215D79E52F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Johnossi - 4 альбома (2006-2013) Discography [FLAC|Lossless]<Alternative>
 ```bash
 magnet:?xt=urn:btih:4A8191862D5906EEE58DFE2B587CC2951B653AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ Justin Hayward - Moving Mountains (1985) [FLAC|Lossless]<Progressive Rock / Art 
 ```bash
 magnet:?xt=urn:btih:82362F56EBD4753D825E46F3088ED8289FCE0832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ Heart - 2 CD (1977-1978) [APE|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F0655202A0AE40498E353B7D830D101452625D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +363,7 @@ Jon Anderson - Olias Of Sunhillow (1976) Remaster, Hybrid SACD/2014, Audio Fidel
 ```bash
 magnet:?xt=urn:btih:C7021E206743E58FAB42BF5AD441A052E73FD87A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ The Aquarius - Эра Рассвета (2010) [MP3|320 kbps]<Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:02B373DD9EC5A2AC275AEEE73E1AF40B53B7BB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ VA - Hi-Fi Rock'n'Roll Party (1986) [FLAC|Lossless]<Rock'n'Roll, Rhythm & Blues>
 ```bash
 magnet:?xt=urn:btih:76D7342E2C2697F547B98B9568B9FE08D90E6586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +463,7 @@ Vol. 1Продолжительность: 01:19:01
 ```bash
 magnet:?xt=urn:btih:0E1132F98C1A81043495696D765951080F973C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

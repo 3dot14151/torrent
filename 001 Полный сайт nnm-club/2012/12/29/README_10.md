@@ -20,8 +20,7 @@ Demigod / Demigod. Битвы богов [Ru/En] (RePack/1.30.154) 2009 | R.G. �
 ```bash
 magnet:?xt=urn:btih:06A844F104E7EA73058D13D35435A0B828640D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The War Z – клиентская MMOG во враждебном мире зо�
 ```bash
 magnet:?xt=urn:btih:51DD61EEA63AC39495AE8D9D94000FA36FB331B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Braid [Ru/En] (RePack/1.0.1.5) 2008 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F359E3D87B6E0F4EB02902C4B8A5301C6686748E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BD6102CD2D37FE63E43762F1CC73D364BE5E2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2214F6AD771EC103E4DCF20DAB49FC8DFFF44D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Marilyn Manson - 8 Albums + 18 Singles + 3 EPs (1994-2012) [FLAC|Lossless]<Indus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ LEGO The Lord Of The Rings / LEGO Властелин колец [Ru/En] (RePack)
 ```bash
 magnet:?xt=urn:btih:409F0A7DB6B2CA1252BF039034273B44DEB2E3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51C6D0B231D8A6016175050007FBA2AC887B4591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Microsoft Visual C++ 2005-2008-2010-2012 Redistributable Package Hybrid x86 & x6
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA 90's Hits - Euro Dance Remix Classics Vol 1 (2012) [MP3|320 кб/с]<Club, Ho
 ```bash
 magnet:?xt=urn:btih:06B03610A283AC1E265CF860198FC49A0889EA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ VA - 90's Hits Euro Dance Remix Classics Vol 2 (2012) [MP3|320 кб/с]<Funky, C
 ```bash
 magnet:?xt=urn:btih:90A6EAC825897E38C6EA8F5586C8DBD1C281CF2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Mass Effect: Ushinawareta Paragon / Mass Effect: Paragon Lost / Mass Effect: У�
 ```bash
 magnet:?xt=urn:btih:D8FEC75A6FBD83ED2B76D7E99417BC59570E53C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ FIFA Manager 13 [Ru/En] (RePack/1.02) 2012 l R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:BA63240C004431D664DB3A0C1BAFC2489366A024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Dj Tapolsky - Time2Bass 001-051 (2012) [MP3|224-320 kbps] <Dubstep, Drum and Bas
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ FIFA 13 [En/Ru] (RePack/1.6) 2012 l R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:0347F827F5F78E72DDE6E99D4810C4BBB91A8F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Windows Loader 2.2 by Daz [Английский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

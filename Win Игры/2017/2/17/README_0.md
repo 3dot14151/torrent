@@ -19,8 +19,7 @@ The Wardrobe - весьма занятный квест от студии C.I.N.
 ```bash
 magnet:?xt=urn:btih:9199B363061C13F5BEA437086328284EBD340447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

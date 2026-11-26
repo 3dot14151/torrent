@@ -19,8 +19,7 @@ WPS Office — это офисный пакет с набором самых н�
 ```bash
 magnet:?xt=urn:btih:A42642970080FCA186F2E2FD7B42188E7EB8A1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Legacy: Witch Island 4 Last Bastion (2022) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:11721DDB4B45F506237190DCFAED6DE0A117D45D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Book Travelers: A Victorian Story / Книжные Странники: Викт�
 ```bash
 magnet:?xt=urn:btih:76BECA7FEF45B19056E30CBD795BA567B8B4E3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gamedec – изометрическая RPG в жанре киберпанк д
 ```bash
 magnet:?xt=urn:btih:04B328485534B59648222997FE0F410641E20FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

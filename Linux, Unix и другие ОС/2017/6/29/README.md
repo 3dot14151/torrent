@@ -21,8 +21,7 @@ Solus — независимый Linux дистрибутив, использу�
 ```bash
 magnet:?xt=urn:btih:683995380AC57A54F3960247FAAFB3CF7E851358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

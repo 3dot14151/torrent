@@ -19,8 +19,7 @@ DESYNC (2017) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:2038B61E8127B4E3BBC9990308E3C2229C34A243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

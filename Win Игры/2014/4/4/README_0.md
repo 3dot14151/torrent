@@ -19,8 +19,7 @@ The Fog / Ф.О.Г. (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:94251955A77AA3495883FE145C18A2E9E71499D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

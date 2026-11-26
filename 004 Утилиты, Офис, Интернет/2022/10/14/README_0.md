@@ -19,8 +19,7 @@ EaseUS DriverHandy - это инструмент для сканирования
 ```bash
 magnet:?xt=urn:btih:2552A066F7C042390E70E18D85C5B87EE664C606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Advanced SystemCare Pro - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:E8B0065211451C6ECFBCFA989E63AFCE84B97A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

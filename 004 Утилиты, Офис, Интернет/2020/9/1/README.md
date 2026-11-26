@@ -19,8 +19,7 @@ Soft4Boost Any Uninstaller 8.9.7.631 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B0F31312F978E56CFDA5BA95EFF5C77523A7C0F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:671604F19624A37DC0F4D9AE3A48735E8D7CE293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:E5B6B5D69BF73432C3363EED73EF6E7F093C5465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

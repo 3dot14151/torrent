@@ -22,8 +22,7 @@ Obscura - A Valediction (2021) [FLAC|Lossless|image + .cue] <Technical Death Met
 ```bash
 magnet:?xt=urn:btih:616046319578FB49BA4C7F92ACB8BC20BB0B2112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Steel Rhino - Steel Rhino (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy 
 ```bash
 magnet:?xt=urn:btih:6438165F8CD2E45880559FF156622E3F4C51415B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 1 - Иди ко мне:
 ```bash
 magnet:?xt=urn:btih:942950FF5B39411B5415C0CF417D7B808DCFDB47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:FC3EE4EA4B3B6211BCD0BF92D6BA375BBC591BCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

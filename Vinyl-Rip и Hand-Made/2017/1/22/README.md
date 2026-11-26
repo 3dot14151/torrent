@@ -22,8 +22,7 @@ B1 One Against All(   Читать дальше...   )Жанр: Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:811D3A75EA3E04041C998E0890522424D4E80BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

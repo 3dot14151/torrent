@@ -19,8 +19,7 @@ Patricia's Quest for Sun (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:26488B9F5CD8901614132C2A4B8A9F2CDC734C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Game of Thrones: Genesis / Игра престолов: Начало [Ru] (RePac
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

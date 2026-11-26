@@ -20,8 +20,7 @@ Destroyer command / Эскадра смерти [Ru] (L) 2002
 ```bash
 magnet:?xt=urn:btih:0E7F91768222AF27C49FC736C1A68B32FD7A4C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

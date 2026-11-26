@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:26C600D3591F78BCABB1E6021E15572334D76BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Space Marshals – веселая и интересная  игра в жанр�
 ```bash
 magnet:?xt=urn:btih:E2C7DA726978B01F73B7EFCFA9D565CDCD4D6B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ghosts of War: WW2 Shooting games v0.2.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:F58C3C22B6F6E2C1E09F352FF7D0223919C19008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

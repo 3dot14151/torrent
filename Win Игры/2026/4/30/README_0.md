@@ -19,8 +19,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.6.72.0) Repack Let'sРlay [
 ```bash
 magnet:?xt=urn:btih:DB1E8FED318F975EA028F4FF9AB370B0C97DDC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ INDUSTRIA 2 (2026) [Ru/Multi] (1.0.8) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A51D6A11AC905FF7650424D922F76EBFA0C38F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Black Myth: Wukong - ролевой боевик по мотивам китай�
 ```bash
 magnet:?xt=urn:btih:03FD8B81DCE66944F87EE67BD780317DC02D61D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Victoria 3: The Great Wave (2026) [Ru/Multi] (1.13.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:DF97371308FB15257105610D023E6B96E97451A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

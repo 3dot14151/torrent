@@ -22,8 +22,7 @@ V I C I M - Convenience (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Ambien
 ```bash
 magnet:?xt=urn:btih:1D8207FD0F79130E0400C74B914D3087E1B561CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kristin Hersh - Possible Dust Clouds (2018) [FLAC|Lossless|tracks + .cue] <Alter
 ```bash
 magnet:?xt=urn:btih:5870F7DA0C610B29EEE057C68EE0AFE885F91512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kristin Berardi - Where Or When (2015) ABC Jazz [FLAC|Lossless|tracks + .cue] <V
 ```bash
 magnet:?xt=urn:btih:088B98558D92FCBD1568921BA51FA9B78F4FE2F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lucy's Drive - Pair Of Sounds (Red) (2019) [FLAC|Lossless|tracks + .cue] <Indie 
 ```bash
 magnet:?xt=urn:btih:FB9EB24705DCBBAF524BE03F6D8914C08A1E76BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Modern Jazz Quartet - A La Plaza de Toros (1971) 1992, Oscar Records [FLAC|L
 ```bash
 magnet:?xt=urn:btih:EE79A8C4BB84EFEF6B6288859057E0A2AED62D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Stan Getz - Live In Paris 1959 (2018) Fremeaux & Associes [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:E188ECD5289FCDDFF9C14DD3CCAA7E064AB22D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lucy's Drive - Pair Of Sounds (Blue) (2019) [FLAC|Lossless|tracks + .cue] <Indie
 ```bash
 magnet:?xt=urn:btih:931FBA00886C5DAD2A75022A682E49D839A5D133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Swans - What Is This? (2019) Demo [FLAC|Lossless|tracks + .cue] <Industrial, Pun
 ```bash
 magnet:?xt=urn:btih:146D66CEE81A5572E73471708E699E31239DD1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C5CE7CC2C9F9C8436982C88435E5C728FBF336B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58F3ACA7AE85EB190F616607517222F740C879F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04A128034D8F8B3591BBE46ABFC2CA6790C364D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Melted Space - Darkening Light (2018) [FLAC|lossless|image + .cue] <Symphonic Me
 ```bash
 magnet:?xt=urn:btih:91970B429D70B0317166F5028656BC5C9D92E69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Evidence - Weather Or Not (2018) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:F75E74BAE760F87A4FF1859DC13C9B93CD156AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ The Brian Jonestown Massacre - The Brian Jonestown Massacre (2019) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:DE72363A10956DB4371B2EDB0B7FF93AFBE5311E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ Embellish - Black Tears And Deep Songs For Lost Lovers (2005) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:EF480045F48FDBC12C419B1BD22D30E39DA271D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Torn Relics - The Poisoned Chalice (2019) Sacred Court [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:DDD100384721B82B53B071F7AEC20B3884DE6563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Soilwork - Verkligheten (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:47845B90DB710856C1880ECCC0B522662B22F7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Nilufer Yanya - Miss Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 ```bash
 magnet:?xt=urn:btih:A6C14D39C87E02C2175E37B6BF274AE9413964D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ The Epic Beard Men - Season 1 (2018) [FLAC|Lossless|tracks + .cue] <Hip Hop, Con
 ```bash
 magnet:?xt=urn:btih:CE5A930B71D8E78B786CE92803C4EB6F7ABF7818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3281EB3004989E27CE16609F7745D4BFA2AF323E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ VA - 100 Greatest Breakfast Songs (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:BB09DBFEEFCB2A8BF1D162527F5D19BA2D1A722E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ Cole Swindell - All of It (2018) [FLAC|Lossless|tracks + .cue] <Country>
 ```bash
 magnet:?xt=urn:btih:F75253406316A1EDB5CF5723E467D8E803B75BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ Tora Tora - Bastards of Beale (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:AFD12A151AEB55A2C6B73EECA5E9B2091FE3A961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ Jessica Williams - Queen Of Fools (1979) Harem Records, Reissue CD, 1994 [MP3|32
 ```bash
 magnet:?xt=urn:btih:02505D73D257CF2E4AD886F688052BD106584C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ Philharmonic 2000 - Disconcerto (1976) LP [MP3|320 Kbps] <Modern Classical, Disc
 ```bash
 magnet:?xt=urn:btih:B856C73D17BFDEBAF5559AE57EA824A1797A757D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AEF71A734FBD054A58BBA1243C98C42DB8BA8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

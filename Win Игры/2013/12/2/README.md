@@ -19,8 +19,7 @@ Haunted Halls 4: Nightmare Dwellers Collector's Edition / Дома с приви
 ```bash
 magnet:?xt=urn:btih:D4C3DCA53152D64E5B6BB1121638C94DD3D71816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Poker Night 2 является прямым сиквелом Poker Night at the 
 ```bash
 magnet:?xt=urn:btih:22111E64133D394D414B40D4EFE12C111033F1EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ ORION: Dino Horde — инди sci-fi шутер от студии Spiral Game S
 ```bash
 magnet:?xt=urn:btih:787B2C99749C90A282D941EEE93576AFA227C29E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

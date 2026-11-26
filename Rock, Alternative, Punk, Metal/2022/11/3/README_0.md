@@ -22,8 +22,7 @@ Blodhemn - Mot ein evig ruin (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:5795324D24625F43C30D5382535E0138499C51C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ White Skull - Metal Never Rusts (2022) [FLAC|Lossless|image + .cue] <Heavy, Powe
 ```bash
 magnet:?xt=urn:btih:9150F17937997B07351B6A43DBA8C54552DED25D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Equilibrium - Renegades (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:340B83E79CA98ACB61FF0FF834FB46F09911D882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jon Bon Jovi - Destination Anywhere (1997) Reissue, 2013, Mercury [OGG Vorbis|48
 ```bash
 magnet:?xt=urn:btih:A4F970A15B229FD54A0F8E9F61A25B1F8F12680D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ White Skies - Black Tide (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:6E70366F3B2AAFEAFACD13532E8288793E6641BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ PG Roxette - Pop-Up Dynamo! (2022) [FLAC|Lossless|image + .cue] <Pop Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:7FDA35DF4F96DB5B637A6D7A80194C57FA35E932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

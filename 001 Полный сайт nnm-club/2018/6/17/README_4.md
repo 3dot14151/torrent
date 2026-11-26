@@ -21,8 +21,7 @@ Windows 10 Enterprise LTSB (x86/x64) Elgujakviso Edition (v.16.06.18) [Ru]
 ```bash
 magnet:?xt=urn:btih:8F58760F16D96E7417B792C51DF215A4844BBD22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:9462DA45BD2AB60E3013362E22FED2B265D504A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 06.2018 1 DVD
 ```bash
 magnet:?xt=urn:btih:A77DA1381139D5756344283EC9BFC708893A8DF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Grand Theft Auto V (2015) [Ru/En] (1.0.1180.1/1.41) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:B73A735D8FE7DB9103288F134371586FDDFAB6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

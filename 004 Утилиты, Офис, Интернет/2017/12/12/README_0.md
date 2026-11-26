@@ -20,8 +20,7 @@ Makesoft DuplicateFinder - приложение, которое будет ос�
 ```bash
 magnet:?xt=urn:btih:DE1C6877EFF8145A9DCC310F8C512508DC2B89D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Redmist Destruction - Nobility In Death (2012) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Velvet Viper - 2 Albums (1991-1992) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:42E3797D274ABE4DA3AD06769EFD8DA23908CA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Uriah Heep — британская рок-группа, образовавша�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Meshuggah - 15 студийных альбома, 5 концертных зап�
 ```bash
 magnet:?xt=urn:btih:D751646CCC9E4F20578DA409ED75B237444D368F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

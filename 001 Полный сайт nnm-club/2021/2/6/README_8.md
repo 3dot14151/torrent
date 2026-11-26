@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3828BAF36D3BB040F19B292C4738A8C703F1ECF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADF7CB5B543EFA7F2EEF07C19EBF378DF7214A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ OCCT 7.3.1 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:25C8742D2A948B8B9DF804356B6F5B5B5C4A94A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ AnyDroid  (AnyTrans for Android) - предназначен для быстро�
 ```bash
 magnet:?xt=urn:btih:8746BB78426510C0E6F4664D6B7190757A674E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BC0F5481031338AA125377D33A59DC53643A237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Geekbench 5 предлагает обновленный интерфейс и р
 ```bash
 magnet:?xt=urn:btih:BFAFBEF301F96492D05FF961A03553F43433A735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ TextMate для Mac OS - Отличный редактор программно�
 ```bash
 magnet:?xt=urn:btih:A4D980B6E55984C805F1076B2669ABCBF32A5440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Hot Lips Page - After Hours In Harlem (1940 - 1941) 1998, HighNote [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:A874B30A5FB5F2F45C6AC3E1C3AB1371D36EB94E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ DirEqual - это инструмент сравнения папок, котор
 ```bash
 magnet:?xt=urn:btih:90597AB493BA46E02CDD91F6546FCE082CB1A26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ QuickLens 2.7 [En]
 ```bash
 magnet:?xt=urn:btih:A9D4524CB42D85A77CA961D36F1A07F78A2D8EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

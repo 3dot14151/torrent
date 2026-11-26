@@ -18,8 +18,7 @@ DuplicateViewer Pro 4.0 [En]
 ```bash
 magnet:?xt=urn:btih:23420FDE379456F39B4B1607F6ECA03423166519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Critical Defiance - No Life Forms (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:0E7C1BD750913BD91D19FE13BCA346223EFCC2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Crossing Eternity - The Rising World (2018) [FLAC|Lossless|image + .cue] <Heavy,
 ```bash
 magnet:?xt=urn:btih:682FE96AC40AB91E902E46A9776779DB37DF86FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Decimator - Carnage City State Mosh Patrol (1989) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:AFF282D89AD6E938CF055F89A1477FB36EF1E3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ AI Transcription 1.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:3C74E672A9E180B492A9782E8C6DECE8AFC648F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Cardhop 2.2.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:6E03E13EE2AEDCACB7CB130CCEECC7E5EFBBE076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Damnatory - The Complete Disgoregraphy 1991-2003 (2018) Compilation [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:BED6873AB2AB702D592C978EDFC780AA0CBE7131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Color Wheel 7.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:492AA0728B5312B076B2EB1A3E130D878A41193C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Necrofier - Visions In Fire (2018) EP [MP3|320 Kbps] <Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:DE54212FB4C8EB367E27847AE559E1958501A706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Lungo предотвращает засыпание Mac и затемнение 
 ```bash
 magnet:?xt=urn:btih:AF5356F55AEAAE86B7BB2A22556F663C15632182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Crossing Eternity - The Rising World (2018) [MP3|320 Kbps] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:C8F0F7C9534B997BF411D72111129B80C6530B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ System Dashboard Pro — это современная интерпретаци�
 ```bash
 magnet:?xt=urn:btih:CD9FB12455E05F345250C1264942EBB5EE4F58B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ OmniZip - Universal Extractor Pro for Mac 2.1.5 [En]
 ```bash
 magnet:?xt=urn:btih:F304B994ACA0850B12BF3EF674C00D0F5BFD0279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Dawnlight - Until the Dark Sun Rises (2019) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:DE0A792DA9279C62C292C9A5B8A033F29FA21F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Jag Panzer - The Hallowed (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Meta
 ```bash
 magnet:?xt=urn:btih:FE0C13D075D3E88DCD3E9764B8C6CE977D95A69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Necrofier - Prophecies of Eternal Darkness (2021) [MP3|320 Kbps] <Melodic Black 
 ```bash
 magnet:?xt=urn:btih:380C452EB7B1A7AA025D7E3EE3F912ADC6C68C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Decimator - Dirty, Hot & Hungry (1993) [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:2D08F76F6EAA6D874080E836BBF5DA29E7739E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Necrofier - Burning Shadows in the Southern Night (2023) [MP3|320 Kbps] <Melodic
 ```bash
 magnet:?xt=urn:btih:9A710E39E2F60EFC7F5ECBD8511E73A4ACF1DF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Johnny Booth - Moments Elsewhere (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 ```bash
 magnet:?xt=urn:btih:E7DEC76BDA55A68B2CE7EF2372149B8615E21609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Boxy SVG 4.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:0DD9CD5B1DE78ADB40A8538612B870954096AF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ Ravenchild - Caves Of Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' He
 ```bash
 magnet:?xt=urn:btih:45F91FE55BDBCEABBE9FD2CAAD2B7858096D9FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Sloth — это нативное приложение для Mac, которо�
 ```bash
 magnet:?xt=urn:btih:C44EF145F346A3FD91D70FA63271910F94937213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Mystfall - Celestial Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:CE4259073F62C7DF9350FAF03B5C0F1BB2EEF482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ UninstallPKG может использоваться для очистки св�
 ```bash
 magnet:?xt=urn:btih:3B64ACCC8AF2E8818DFFA85AA7C450ABDFD85F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Nocturna - Daughters Of The Night (2022) Japanese Edition [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:8EDC23DCC2088DB042B4412C5642174966365D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Matteo Mancuso - The Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 ```bash
 magnet:?xt=urn:btih:170A077333DBC94FBF708E8A531D510552E3564C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E53BF34064A0E41F2AAF1628D496E13EA89C5F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20EEA481BD2CE8E54569DCFC6CF57DAF7304E006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Будет Жарко С Хитами DFm (2011) [MP3|256 kbps]<Pop | Dance
 ```bash
 magnet:?xt=urn:btih:7405DF857B19F49742519C6D7DFEB61794ECDEEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - Молодёжная Дискотека - Танцы До Упаду!!! (20
 ```bash
 magnet:?xt=urn:btih:D9C77D0D9171DDB4C728C64B264CB9B456292303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Максимальный Драйв 2 (2011) [MP3|128 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:A5EFF26A32FAFD28618C27D91847DCBC1A4684CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Miro - медиаплеер, основное предназначение ко�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Margot Reisinger - Reiki Healing Light (2006) [MP3|320 kbps]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:97CE344EAA16D811C6F583275F6B4789AB247F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Armin van Buuren - A State of Trance 521 (11.08.2011)
 ```bash
 magnet:?xt=urn:btih:E3DF2A72AEC01033008D5748D034B90179FC6385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ Francis Bernier - Prince d'Azur (2007) [MP3|128 kbps]<Детские песен�
 ```bash
 magnet:?xt=urn:btih:FBD208397C327B280C04B16DFFE059477F26C65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ VA - Deep Down in Berlin2 (2011) [MP3|320 kbps]<House, Deep House, Tech House, M
 ```bash
 magnet:?xt=urn:btih:2918DD261171023C3F67DF1BE114C7260EB36F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ VA - Хит Вояж (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:5DC043A2C30650C25EF6FAD213BCCF4787202BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ Photographer — журнал о фотоискусстве, обозреваю�
 ```bash
 magnet:?xt=urn:btih:11C253E20F8EF6F961592DD8FB172DD6A6C1F526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67E77C6F05A99F009323D1A976093756B4351BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ BBC. Мир природы. Смертельная ловушка / Natural Worl
 ```bash
 magnet:?xt=urn:btih:2D2E2304B78712912C0658F9A03D6CEBEDC32207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +442,7 @@ VA - Самые шикарные летние хиты на Love радио 2 (2
 ```bash
 magnet:?xt=urn:btih:09F16E7C6BC75F4377A4092CDD4CE989BED0DF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ Encoder: LAME 3.98r HQ(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:C24500ED7CEFFF86441BBEBEB9EFFA00D5F16C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F400247B5AB895BB40916FDDF4C884873CA39B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ VA - Heavy Artillery Drumstep (2011) [MP3|320 kbps]<Drum & Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:22C9BEADC4F1219D883AF760D21DB385C655EE96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4116669A2A748E31D9037C8E73A5184892130EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5185E726E91C0A3207C95353AA109943DA54FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ Disc 1 - Poetry for the Poisoned2011Жанр: Symphonic Progressive Power Metal�
 ```bash
 magnet:?xt=urn:btih:8A81133D819FB9BE3A8952A4CAEAA256493D60A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ Chick Corea And Gary Burton - Interaction (2005) DVD9
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ DJ Feel - TranceMission (Best Of The 1st Half Of 2011) (11.08.2011) [MP3|320 kbp
 ```bash
 magnet:?xt=urn:btih:6E212DDF823988121EF505BF79114ED49AD84CE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ Bess - Начало (2011) [MP3|320 kbps]<Rap/Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:D4534009B791CC12475DD4AAE8F577FEAB3FA465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:490786A3E123B482441BF61A91F469866CC6D845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

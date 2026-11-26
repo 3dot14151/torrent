@@ -19,8 +19,7 @@ E.Hatcher, S.Loughran | Java Development with Ant / Java-Разработки с
 ```bash
 magnet:?xt=urn:btih:3171C200FE990D7A4C36FE5D0332D85A1AE2F8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ R.M.Menon, T.Davis (Ed) | Expert Oracle JDBC Programming: High Performance Appli
 ```bash
 magnet:?xt=urn:btih:2DF584001F46586CD2D7A42E0ABEA127D2277E2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ J.Walnes, A.Abrahamian, M.Cannon-Brookes | Java Open Source Programming: with XD
 ```bash
 magnet:?xt=urn:btih:036496F48425FA6CA7249404200A6806D815CEE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC6F4BF8B10F242583784F61704FBBE7789A18CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

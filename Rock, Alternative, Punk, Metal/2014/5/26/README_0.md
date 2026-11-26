@@ -28,8 +28,7 @@ NZM - Eternal Fire (2014) [MP3|320 кб/с]<Heavy \ Power Metal>
 ```bash
 magnet:?xt=urn:btih:18CEAC2DCA5410F9FDD82FB14925240191968922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Hurriganes - Roadrunner (1974) [MP3|320 кб/с]<Classic Rock, Rock-n-Roll>
 ```bash
 magnet:?xt=urn:btih:6B492139C490A5A2996E6D8F2EADB97719BB5D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Syndemic - For Those In Desperation (2014) [MP3|320 кб/с]<Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:E4E5263AB8F3525118148F505E5EE1950D3AFD87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Patrizia - Rock the Throne (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:7F6DCCA6A73BBD7CC98B3A934D5F3A7F439B25CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Clark Hutchinson - Retribution (1970) [MP3|320 кб/с]<Hard Psychedelic, Blues 
 ```bash
 magnet:?xt=urn:btih:5611C1B30EAEF0365B3BD732144ABB5A5CC95FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Se Delan - The Fall (2014) [FLAC|Lossless]<Progressive Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:FD969A73455DE389BB442766A1FC3E3B7E9298B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Raven - Back To Ohio Blues (1975) [MP3|320 кб/с]<Hard Psychedelic Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4F6DA8EAD64B5F8A99738F2892C1C974BA90DF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Ram Jam - The Very Best Of (1990) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:63B8F71C13B79BF149B0E2C3B3CECDA48DE5D266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Martin Barre - Away With Words (2013) [MP3|320 кб/с]<Progressive Rock, Instru
 ```bash
 magnet:?xt=urn:btih:99D590BA5CA3A689D6FF216B4A0049D0BF8C9DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Marty Friedman (ex-Megadeth) - Inferno (2014) [MP3|320 кб/с]<Speed Metal/Heav
 ```bash
 magnet:?xt=urn:btih:D04EAF7F4C9CDA8D1E3342797F87CDA36635A802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A6355588642FCB0D355DE7761FDCD45176E6993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Amorphous Androgynous - The Cartel Remixe (2014) [FLAC|Lossless|WEB-DL]<Psychede
 ```bash
 magnet:?xt=urn:btih:F395D0578CA43913903EE4CAA9DCA72194B37E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +420,7 @@ H.E.A.T - Tearing Down The Walls (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:078077B91A6A9EE9A07061E3E1B10FB401795D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +449,7 @@ The Rockets - Rocket Roll (1982) [MP3|320 кб/с]<Hard Rock, Rock-n-Roll>
 ```bash
 magnet:?xt=urn:btih:31D20D28E44C21C0FCEA3B7A27545553C9F505AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +482,7 @@ Blue Cheer - Outside Inside (1968) [MP3|320 кб/с]<Hard Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:EABFF757F2F525D8DF20AE603ED98E6FF6354F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Queen - Hot Space (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:AD7841371A88F4E0F2E1E81CD4B2F373FF0B96D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

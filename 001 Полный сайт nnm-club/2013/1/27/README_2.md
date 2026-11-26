@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:82873282D1600421BE374F58D362DA28032EE573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Nostalgie Cafe Vol 2 (2013) [MP3|320 кб/с]<Instrumental, Lounge, Chillou
 ```bash
 magnet:?xt=urn:btih:5876B26DBAAF407795F3F94ACCEE9374C21A846E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Google Chrome - бесплатный браузер с открытым исхо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Wallpapers - Aviation Wallpapers (27.01.13) [JPG]
 ```bash
 magnet:?xt=urn:btih:76CF9E10BD0C312649F8CE99B4985B1D43A3FF8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ VA - Хиты Под Водочку (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:A689A864FD5E1B3DF77F59C83198E7AD5B87BEC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Amaranthine Voyage: The Tree of Life Collectors Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:B9D9775FA4B01F43DACFBCC23A0785873D198B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Wallpapers - Art Wallpapers vol.1 (27.01.13) [JPG]
 ```bash
 magnet:?xt=urn:btih:519EAEFFCFA1EB1A1221636C59CECC0E79E4E2EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A132B1A97D86114E67C2DF8CE0390122F249B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AF32AD5DF7C5F2D38D779845983DF4595E0E63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA88AA95A0183136DF9F80D5A1472393235E394F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ VA - Options Remake of Tracks Jan.01-Jan.09 (2013) [MP3|256-320 кб/с]<Club, F
 ```bash
 magnet:?xt=urn:btih:421C920A136EF8111A69363EBCA5282837FC6310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97C8B81478936942962A9D73D2DAA830C547D426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ SeaMonkey — имя нового проекта, основанного на д
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Wallpapers - Wallpapers Fantasy №31(Pavel)
 ```bash
 magnet:?xt=urn:btih:A36B7EEF01ED7D6EBFA20459F13BF8C43F50E309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Various Artists - Basstorius - Music Inspired by the Genius of Jaco Pastorius (1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Wallpapers - Небес прекрасные видения [JPG]
 ```bash
 magnet:?xt=urn:btih:E93E5C7A763B7388D52A9139D8F637870D43AA8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ VA - Зарубежный чарт TOP 100 German (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:0F662AC6A44139081DD02D747DCAD2A6397F3D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ VA - Новинки сезона от русского шансона (Vol.2) (2
 ```bash
 magnet:?xt=urn:btih:BF134F65B378CAE754FAF66138F093BBB3E784F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ VA-New Age Style - To Chill Out 14 (2013) [MP3|320 кб/с]<Chillout, Relax, Dow
 ```bash
 magnet:?xt=urn:btih:BC7EB0231B426C683F6E5168E1747E6291C6A775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ Echomen - Substance (2002) [FLAC|Lossless]<Progressive House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ VA - S2S  Extravaganza "The Best Of" (2010) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:7EC5EA008F1E96614C6E97D2D8C17EB26C3101B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ Wallpapers - Wallpapers Fantasy №33(Pavel)
 ```bash
 magnet:?xt=urn:btih:D3DF3FF3CF7C6AE86DB810385049D59BED050F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D0D8499885061F0DA7B39753447CF34A9212E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

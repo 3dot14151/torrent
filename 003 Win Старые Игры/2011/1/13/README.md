@@ -21,8 +21,7 @@ Onimusha 3: Demon Siege / Онимуша 3: Осада Демонов [En/Ru] (R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Marvel: Ultimate Alliance [Ru/En] (RePack) 2006 | R.G. Games
 ```bash
 magnet:?xt=urn:btih:D22FF3E0863C1DC4517696E4F6EB4D5698AC6FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

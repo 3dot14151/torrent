@@ -22,8 +22,7 @@ VA - NYE Midnight Toast Collection 2021 (2021) [AAC|~296 Kbps] <Lounge, Chill Ou
 ```bash
 magnet:?xt=urn:btih:48C74FF681B5266D586079709A4F8DB5FD060EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Final Step - Disconnections (2021) [AAC|~278 Kbps] <Jazz-Rock, Fusion>
 ```bash
 magnet:?xt=urn:btih:7378D03401DE2DFA1C639B671720151D56C430F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Soul Lounge 2022 (2021) [AAC|~318 Kbps] <Soul>
 ```bash
 magnet:?xt=urn:btih:6AA66E7CFDCCF6AEF4EF6823DCABEC629D8BCE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ ANGWA - Finally Free (2021) [AAC|~337 Kbps] <Afro Jazz>
 ```bash
 magnet:?xt=urn:btih:B2D1D439474E8DFBB523BC479202021DCC4DE66B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Kalavera Orquesta - Incertidumbre (2021) [AAC|~341 Kbps] <Latin Jazz>
 ```bash
 magnet:?xt=urn:btih:0E7BDC376AE5CCABE9A5BEBCFEE8C34BD487C484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Armada Music Year Mix 2021, Vol. 2 (2021) [AAC|~330 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:5A1CCC06B1AA836947787FDBBD31D6F5BF32C434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Armada Music Year Mix 2021, Vol. 1 (2021) [AAC|~331 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:965F61E59B3C08E5470550DA870921BC0EAC152D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:4440CDF6BF3008F765FC7DCA6572DB41F9681F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Lenni-Kalle Taipale Trio - Nothing To Hide (1999) [AAC|~349 Kbps] <Jazz Rock, Co
 ```bash
 magnet:?xt=urn:btih:0AAF96C05E109116F06996617A5C023DEDCACF4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15BCD4F1C45E8DF61EAB4779453A391C3E786B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Johan Tronestam - Luther (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Sp
 ```bash
 magnet:?xt=urn:btih:108B2C11D80B8E30314263848A4BA64C13D319C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Laibach - Laibach Revisited (2020) [AAC|~327 Kbps] <Industrial>
 ```bash
 magnet:?xt=urn:btih:75EF587AD95D2AA9CF395819ABBCB8DB963ADBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26E4F22A8BD35D8F96E1EDC3254EC9E20F2E1840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Sex Magick Wizards - Your Bliss My Joy (2021) [AAC|~353 Kbps] <Instrumental Jazz
 ```bash
 magnet:?xt=urn:btih:139F57E80BF073558303F3F776CF88813F239CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00C4E1E1D5E10DB706B2DF43B1F79A2F3D320251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Riccicomoto - Huge Distances (2021) LP [FLAC|Lossless|WEB-DL|tracks] <Deep House
 ```bash
 magnet:?xt=urn:btih:A0DD204DBE217A90BB5540B99A44222187E0E826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C159428816BAD5AAC28914F277691AAB2FB801F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Moodreads использует сложный алгоритм, чтобы по�
 ```bash
 magnet:?xt=urn:btih:D97D7B098830A2F5135959C98EFE06D09E5B75C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA5F2AF30EDD7D248CBF3A5C3452715EA109B46C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B078654D652736EC07116D838DEB6A812F44681A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E57E53CCE31EE0D8B00FEB8FE83DD2013C29FB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Johan Tronestam - Cosmic Steps (2021) [FLAC|Lossless|WEB-DL|tracks] <Berlin-Scho
 ```bash
 magnet:?xt=urn:btih:D55AD726F597E83A04EB3B5C6074B03418D3E7B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ Beverley Craven - Compilation (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:185FDF93A1DC6088CC630B81D0F519F7681CC0D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C7F4DEB127FDAC8CB6018957CB6E03F0019EF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ VA - Scoping in Twenty Twenty-One (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Dow
 ```bash
 magnet:?xt=urn:btih:28A1297B2D15B41AAF84880EBB7B75AEFF8817C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE6E3BDA13CEB7A40C74E9FFB13CD0581E0DAD23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

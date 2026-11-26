@@ -27,8 +27,7 @@ Master Crow - Die For Humanity (2014) [MP3|320 кб/с]<Technical / Progressive 
 ```bash
 magnet:?xt=urn:btih:C30EDA8C281769891934322F5B7FB0D09D600469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Abinchova - Wegweiser (2014) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:6C4BE81534177B5A84E786CB16347E12A622AE0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Shades Before Dawn - Blinded By The Inability To See Beyond (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:7125BA05F2CFF879389BB10619A628653ACE7B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Sirens Over Sumeria - Sirens Over Sumeria (2014) [MP3|320 кб/с]<Progressive M
 ```bash
 magnet:?xt=urn:btih:8610C8F1B5BDA5E26E6567BC92C3D712DF57D750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Starkill - Virus Of The Mind (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C9C7DE77B192E026525F0C3EEABFF6412CDF286D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Stormcast - Frame Of Mind (2014) [FLAC|Lossless]<Atmospheric/Melodic Black Metal
 ```bash
 magnet:?xt=urn:btih:3C719BE632A735EC8F8AD71106D05E944606C447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Beitthemeans - Head Held High (2011) [MP3|320 кб/с]<Southern Rock/ Hard Blues
 ```bash
 magnet:?xt=urn:btih:8BEEE41766CD01FC110225CE3CA2774CE42F9AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Zed Yago - Pilgrimage (1989) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8B8CC87AAF6395423C1EC6E3FE64EFA60DD8E075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ Stallion - Rise and Ride (2014) [MP3|320 кб/с]<Heavy Metal/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:60E392A25D6C5DE8ACC46CAB46D9FC3BF5B200ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ Atlas Losing Grip - Currents (2015) [MP3|320 кб/с]<Melodic Punk Rock>
 ```bash
 magnet:?xt=urn:btih:BA707645A22994767C8B7028BA83A7262F0BC244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ Alltheniko - Fast And Glorious (2014) [WavPack|Lossless]<Power/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:BD97FFB160E6E00C0094946ABDA7C9CADF95AEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +398,7 @@ Stonehouse - Stonehouse Creek (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:205C69345B4151B00D84C72D13C37BA760FEB985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +432,7 @@ Beitthemeans - Marble City Secrets Are Off In The Black (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:63D820BD5B4EA5378713C7FBFE928D4D6169B3EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +466,7 @@ Beto Vazquez Infinity - Beto Vazquez Infinity (2001) [FLAC|Lossless]<Power Symph
 ```bash
 magnet:?xt=urn:btih:9BAF0EC13638DCF0A0A43D44C89B47361C2C3888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +495,7 @@ Bloodbound - Book of the Dead (2007) Japan [FLAC|Lossless]<Heavy Metal / Power M
 ```bash
 magnet:?xt=urn:btih:E9DAB802DED81FF83178A4D7FE8418FB08D94A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +525,7 @@ Sleep Dealer - 3 альбома, 2 сингла (2009-2013) [MP3|192-320 кб/с
 ```bash
 magnet:?xt=urn:btih:9426D1CC89ABDBE02698E1FFAA29BD0412F484DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +559,7 @@ Anathema - Alternative 4 (1998) [FLAC|Lossless]<Atmospheric Metal>
 ```bash
 magnet:?xt=urn:btih:28D61A164A4DF0984640AF2361ADB81F1A7E76DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +588,7 @@ Elvellon - Spellbound (2015) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:D3A6297214CC4122C1317BEA98ACB60A85FA6938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35EA4A0C2F9ECB8448552BB18E510BA4BCC134FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +643,7 @@ Europe - 4 альбома (1983 - 2009) Remastered /2013, BSCD2 Sony Music/ [MP3
 ```bash
 magnet:?xt=urn:btih:C519D8A3E4EE008082CC9C2FA9CF082CFE0BA8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +677,7 @@ Sugar Animal - All The Hits: Greatest Tribute To Def Leppard (2014) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:559256D6872BEBDDAE9796DAA955B5F03865C806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

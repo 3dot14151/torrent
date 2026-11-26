@@ -22,8 +22,7 @@ B1 The Chosen Few(   Читать дальше...   )Жанр: Thrash MetalПр�
 ```bash
 magnet:?xt=urn:btih:06469C1096A26FC42BB87F979892593406538DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Wishing(   Читать дальше...   )Жанр: Prog Rock, Symphonic Roc
 ```bash
 magnet:?xt=urn:btih:B3874243E70F4E3A7B443B1D14C4566ED417DBF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B1 No Escape From Now(   Читать дальше...   )Жанр: Heavy MetalП
 ```bash
 magnet:?xt=urn:btih:AC930CB49178CE821FAA5917B03CB286D01ABE26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

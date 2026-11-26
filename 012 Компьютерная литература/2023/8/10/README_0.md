@@ -21,8 +21,7 @@ Primoz Gabrijelcic | Delphi High Performance, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:83E661A89BEEFDC68DE82533E1169B477E7D0D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Natale Vinto, Alex Soto Bueno | GitOps Cookbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:C4CBD984F099FE208D62F1A78AEB3C962093DF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA72CB34345D9AA965B85DAB3FE14C45B4A59900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

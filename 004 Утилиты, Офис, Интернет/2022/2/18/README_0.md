@@ -19,8 +19,7 @@ Clipdiary 5.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EE42D4AA70DA7FC0F1AAFF97370E905FD9833D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

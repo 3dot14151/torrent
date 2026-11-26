@@ -22,8 +22,7 @@ B2 My Kisses Need A Cavalier(   Читать дальше...   )Жанр: Disco�
 ```bash
 magnet:?xt=urn:btih:98E778A5339349C3EC972F34B2B44832166FBC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

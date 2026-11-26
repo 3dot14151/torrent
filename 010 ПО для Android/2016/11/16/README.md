@@ -21,8 +21,7 @@ Boat Browser – это первый браузер который поддер�
 ```bash
 magnet:?xt=urn:btih:57A208EC8C424500AC08D53D62674D8F030FC8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

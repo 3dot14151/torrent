@@ -21,8 +21,7 @@ NPR - Non-Photorealistic Rendering (нефотореалистичный рен�
 ```bash
 magnet:?xt=urn:btih:D1A0FD79FDD61CD3BB976A4DEF6F74BE27B3D396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

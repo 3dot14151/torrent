@@ -19,8 +19,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.1.5) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AE467D1A1E77839781E6317B1D96D4A68F513738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Songs of Silence погружает игроков в фантастически
 ```bash
 magnet:?xt=urn:btih:0807D6281E6C54D78CBEBDB989531A49A662DF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spinch (2020) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:8BB60A44965393A85F6F398DD322695AD83D4D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

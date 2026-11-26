@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:81EB8C698F7803A906A7FC2B221F22340D78B4E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8739E00590186690683255B142580832433A283D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:326EECAB978E6CB89E18A285880796A8D1E2B613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ We Happy Few - история шайки не слишком приятных, �
 ```bash
 magnet:?xt=urn:btih:C507FF8655B10F27194346D9C36C6CCB94F6B1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:7D756C67B3DC1FA12AEDF3BC0A8FEFD3C18BB410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Adobe Audition 2023 23.0.0.54 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5584103E727081B6474AFC05DF275E353576374D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Adobe Illustrator 2023 27.0.0.602 RePack by PooShock [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2F7FCEC7E7ED8C775B8990E1B1DFCEEB9B81E1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0794F123ECAD29398CCA333B3740DF1E9CC07ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Adobe InDesign — профессиональный продукт для про
 ```bash
 magnet:?xt=urn:btih:61BA606004F7F2388CAEA811DBBD65EC79125919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ MAGIX Vegas PRO — профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:9FE89819A23AC9589B05E2F58613EFD425B5BF91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:8D6337986388268EBCED9C26F02760E1C15810A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

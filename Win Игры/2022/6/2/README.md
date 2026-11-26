@@ -19,8 +19,7 @@ Sephonie (2022) [En] (1.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:1E1CDF002687771DA1692338A08D0688D02470E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

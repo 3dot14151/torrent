@@ -24,8 +24,7 @@ Jack's Family - One Big Disguise (2009) [FLAC|Lossless]<Progressive Power / Goth
 ```bash
 magnet:?xt=urn:btih:215F820F31FC41015CB0480211B4B6DC20F478F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Pan Ram - Rats (1996) (1997 Japan) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:80E88C4591B5F9F18419153E04D86B21009C68C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Dirty Woman - Demon Lover (2009) [FLAC|Lossless]<Heavy / Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:FDCC8B663CA7A4A11644905948EACA2F021CDAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Manic Depression - Impending Collapse (2010) [APE|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8811AC71311327BAFE168FBC8000C45B0C49A2B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Divine Souls - Embodiment (2001) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:17823232968F799E332FC31BFCDDADF2AF15C194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Bane of Winterstorm - The Last Sons of Perylin (2013) [WavPack|Lossless]<Symphon
 ```bash
 magnet:?xt=urn:btih:8E1445FD1360062A614F9A730EC5F2AFCD33B553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ StormWarrior - Thunder & Steele (2014) [FLAC|Lossless]<Power Metal/Speed/Heavy>
 ```bash
 magnet:?xt=urn:btih:677DD8EA925E29E36A8FA6E8A135FE93CCE0DCF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Additional Tracks By The Action
 ```bash
 magnet:?xt=urn:btih:E10A4FE3B89A6A214F886BE16C43CCDCAC6D4424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ David Grissom - How It Feels To Fly (2014) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:A13797C61F19D933908B5BBBF698E6E4BF3F809E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ Age of Days - 2 Альбома (2007-2013) [FLAC|Lossless]<Alt. Rock | Modern Ro
 ```bash
 magnet:?xt=urn:btih:D8110091248181B4960D0ADA9F3F4BA4C0AFD735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ Groundhogs - Scratching The Surface (1968) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:A9A135587E570B79FAFBEA424CA2F90A3647E603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +391,7 @@ Behemoth - The Satanist (2014) [MP3|320 кб/с]<Blackened Death Metal>
 ```bash
 magnet:?xt=urn:btih:4824606E6333D1ED9EF59EBF041A5A983A0852FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +424,7 @@ Survivor - 2 Albums (1982-1984) Blu-spec CD 2 / 2013, Sony Music Japan / [FLAC|L
 ```bash
 magnet:?xt=urn:btih:868A3D531D3C1F74E745389133166BF26A5FC38C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

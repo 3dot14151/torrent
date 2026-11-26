@@ -28,8 +28,7 @@ Pamela Moore - Resurrect Me (2013) [MP3|320 кб/с]<Heavy Metal / Gothic>
 ```bash
 magnet:?xt=urn:btih:BFD678891888E8A823CB2735D8C7229C3F687734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Danger Angel - Revolutia (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EB089AC6CC5E24945180638A06975379FED21B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Mutiny Within - Synchronicity (2013) /WEB/ [FLAC|Lossless]<Melodic Death, Progre
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Gift - Blue Apple (1974) [FLAC|Lossless]<Hard Rock, Kraut Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Vega - What The Hell! (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ V8 Wankers - Hell On Wheels (2007) [WavPack|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ The London Quireboys - A Bit of What You Fancy (1990) [WavPack|Lossless]<Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Enshine - Origin (2013) /WEB/ [FLAC|Lossless]<Atmospheric/Melodic Doom/Death Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ Six Organs of Admittance - Ascent (2012) [FLAC|Lossless]<Rock, Psychedelic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ Audrey Horne - Youngblood (2013) [FLAC|Tracks+.cue]<Hard Rock/ Post-grunge>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +398,7 @@ VA - The Esential BluesRock (2013) [FLAC|Lossless]<Blues, Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +432,7 @@ Queens Of The Stone Age - Like Clockwork (2013) [MP3|~245 кб/с]<Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:2E0BECFB1A04A8DF0BABC05949813D30FE0AA811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +466,7 @@ Bonus tracks (20 лет спустя):
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +503,7 @@ Eric Carmen - 2 альбома (1980-1996) [FLAC|Lossless]<Pop Rock, Soft Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +537,7 @@ Pop Evil - 4 Альбома (2004-2013) Дискография [FLAC|Lossless]<A
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +571,7 @@ Joe Cocker - Greatest Hits (2CD) (2008) [MP3|320 кб/с]<Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:A365E6DAD21291F3E8D0BC38A2245AB0D6B6AA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +605,7 @@ Rammstein - Greatest Hits (2012) 2CD [FLAC|Lossless]<Industrial Metal, Electroni
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

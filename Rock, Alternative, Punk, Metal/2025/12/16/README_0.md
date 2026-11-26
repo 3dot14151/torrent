@@ -22,8 +22,7 @@ Dangerous Toys - рок-группа из Austin, Texas, известная св
 ```bash
 magnet:?xt=urn:btih:1559614DFC34FE3B79E78EC0D05BF577F91481C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jack The Joker - The Devil To Pay In The Backlands (2025) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:EE3587052F17A2CF02053C339DE585BDB7B5B6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1-3 Illuminate 4:24(   Читать дальше...   )Жанр: Progressive M
 ```bash
 magnet:?xt=urn:btih:DE9D385D9852A34626F78C2CC03B5EB17AA818CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

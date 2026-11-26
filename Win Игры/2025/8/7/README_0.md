@@ -19,8 +19,7 @@ Headquarters: World War II - это динамическая пошаговая 
 ```bash
 magnet:?xt=urn:btih:74C11DEF80EA9438CAD6439827E0318AB3B05918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Necrophosis - это хоррор-приключение от первого л�
 ```bash
 magnet:?xt=urn:btih:C1539A23A3C5D5422056DE7993F3495674F0C65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RIPOUT — это хоррор-шутер с режимом совместной
 ```bash
 magnet:?xt=urn:btih:42B82CC86A5C1A75B46A3FE5966A98A33560486C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blood West (2023) [Ru/Multi] (4.5.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:06DC9010E07C46C92C0F8CDD74F927203A3FCE50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.1.1) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:B6C0BB7340ECECE86DD2D39ABAE6DC4CD1AADE8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Future War Tactics: SOF vs Alien Invasion – Turn-Based Strategy (2025) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:388E6CB9CEFF31557DF4BB74B70D4C9A8194DD76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Invincible (2023) [Ru/Multi] (Build:45.002 CL_57352) Repack Let'sРlay [Delu
 ```bash
 magnet:?xt=urn:btih:EB2BEC3D81B6AAEC65DF0F7E38CA9AD84ABB7A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5F4214C0895396C6926D28440C27E47C5CF65B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Luto - это психологический хоррор от первого л
 ```bash
 magnet:?xt=urn:btih:415509969717423EB684F6BEC55524FC9C833B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71AD579366B650D83D38A96BEA991B48161025C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Castle Crashers (2012) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:9043A90D91D4ABB1A4810BFE2D2F347D3E0885B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Invasion - ...And So It Begins (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C1EA64D0BED99DC67D3146FEC71E178659E34518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Samsas Traum - Leben bedeutet kampfen (2013) 2CD, Compilation [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:1F1A6E0844275593DF4860F84457F6F38BFC4780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Brendan James - The Day Is Brave (2008) [FLAC|Lossless]<Soft Rock, Pop Rock, Fol
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ VA - Classic Rock Presents: Bag of Bones (2013) [MP3|320 кб/с]<Blues Rock, Cl
 ```bash
 magnet:?xt=urn:btih:FC77DACB9E2FC8DC05B3F8B022198137C1119F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Amberian Dawn - Re-Evolution (2013) [MP3|320 кб/с]<Neoclassical Power Metal, 
 ```bash
 magnet:?xt=urn:btih:C1DABA1B3788E681F7E33B0926F18929275663C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:2CDF54C14513A46C9D573CD1DF0276640401A8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ HIM - Tears On Tape (2013) /Japanese 20 tracks Version/ [FLAC (tracks+.cue)|Loss
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Bonnie Raitt - Original Album Series (2011) 5CD Box Set /Warner Bros. UK/ [FLAC|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ DIO - Finding The Sacred Heart. Live In Philly (1986) 2CD /2013/ [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Louna - Behind A Mask (2013) [FLAC|image + .cue]<Alternative Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

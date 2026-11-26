@@ -20,8 +20,7 @@ Awajima Hyakkei | Scenes from Awajima | Сто видов Авадзимы [2026
 ```bash
 magnet:?xt=urn:btih:8C470B08FD3A5FF6D935BC79F89570688334E969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2072981152FCDD3A4761975BAA6D59F7C2F16D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

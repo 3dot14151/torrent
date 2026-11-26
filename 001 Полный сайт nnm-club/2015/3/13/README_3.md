@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:66B1FCDD8E4DC31AE7E75411CB34C49EDC899F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Wondershare Dr.Fone for Android является профессиональны�
 ```bash
 magnet:?xt=urn:btih:D5E5368F8E6F793B310C8C40B4C3BD607CFE4CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE47724482DA37243C265AAB1531FDE5A9F55EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:226A2214C9D60E0311F657DC3802611016B64B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Shiver 4: The Lily's Requiem / Дрожь 4. Цветок забвения (2015
 ```bash
 magnet:?xt=urn:btih:D961D291A8E97B7C88B429F381346EB76F835D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Mark Knopfler - Tracker (2015) Limitierte Deluxe Edition [FLAC|Lossless|Scene]<R
 ```bash
 magnet:?xt=urn:btih:B17D6E879BCD88227E47AB7A8173CA403C098F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8939F6CF26B8370F48DEE28F5C367B349926C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Demon Hunter: Chronicles from Beyond The Untold Story / Охотник на Де
 ```bash
 magnet:?xt=urn:btih:206684D403FADB8BD7534A332F0C367692B80550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A551BBD5B5D5832529213299C966C9DC9A198C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:650EB47F4DE6EB12C37AD20673D029D8A0F04239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D94167122182CBF738ABDA2DAE0419D030D89126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:879D13E6DA558FFE4A05DF61A6DBED8591BEA08F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ VA - The Best Sound N 10 (2015) HDRip [1080p]
 ```bash
 magnet:?xt=urn:btih:5AE6774D80F699426AF2295577423E2AF7C16503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DCB4562A1CE49E4200B460C5442A4C7C29D9CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ VA - Blues and Rock Ballads Vol.7 (2015) [MP3|320 кб/с]<Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:6BF0070F16EF9FDA18AFD1BE5843AE805DEEBA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A71C70189C5B68AAE6D45C2A043F6468F16CBBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05FA438C6164190CEB374B9C3E11B95F110D559C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Shiver: Vanishing Hitchhiker / Дрожь: Призрачный попутчик
 ```bash
 magnet:?xt=urn:btih:57C2588D8D298E40DE57299FFF1A670D7E5C052F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Lily Cat | Lily C.A.T. | К.О.Т. Лили [1987, OVA] LDrip 480p raw + eng
 ```bash
 magnet:?xt=urn:btih:FBF537D3A21BF75AA6C049BB238CFF08AFB1973F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ VA - An All Star Tribute To Pink Floyd: The Everlasting Songs (2015) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:8471FFCD76650595DC8A422E3F6A581635925472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ Hotline Miami 2: Wrong Number(2015) [PSN] [USA] 4.21 [Cobra ODE / E3 ODE PRO] [U
 ```bash
 magnet:?xt=urn:btih:B036C9C184644D9D2BFF370D1820252AACDAA5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ Adobe Flash Player — плагин, предназначенный для вс�
 ```bash
 magnet:?xt=urn:btih:AD90C7CF74C6F923D659D9000F53D1ACB76E85D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ C курсом для домашнего обучения вы методичн�
 ```bash
 magnet:?xt=urn:btih:9F096BD973EEC88EC33304B52DDB2B92CF38A8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE98BE8AE2FE610909B8661B8DAE101617AA4EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3B6164DF4480A94603071CD826B88392576F5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ Maxthon Cloud Browser 4.4.4.3000 Final + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:72A9FEAC59FE94446B17E382E801813D40632107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

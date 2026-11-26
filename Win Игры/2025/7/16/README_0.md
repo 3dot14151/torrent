@@ -19,8 +19,7 @@ Ale and Tale Tavern - это кооперативный фэнтезийный �
 ```bash
 magnet:?xt=urn:btih:23138750ED8C78F7D8C8FBF60DE232D2941AFF9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Murky Divers с головой окунается в кооперативную 
 ```bash
 magnet:?xt=urn:btih:5163C6B990A9F43111474CB86BF59454005EFD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:16C11A21732D3C5C440DC9620F9F0068B62F18D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 ```bash
 magnet:?xt=urn:btih:4AAF0F404720C698334728868B3243C424C99DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition возвращает �
 ```bash
 magnet:?xt=urn:btih:614B554D705DA854084C44AC43163C7DFDCF0E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Automate It: Factory Puzzle (2025) [Ru/Multi] (1.0.0.6) Repack FitGirl [Supporte
 ```bash
 magnet:?xt=urn:btih:60BBDCAF775B19517F90EE9877D806B8CC1CE903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

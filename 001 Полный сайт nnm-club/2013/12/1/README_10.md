@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A62EF612C52916F6840955B28B8D0E57B79E5CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ iZotope - NECTAR 2.00.516 by CHAOS [En]
 ```bash
 magnet:?xt=urn:btih:B3EF88842B0DC44B1275C48217DABA5AA94DF40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ iZotope RX3 Advanced наиболее полное программное реш
 ```bash
 magnet:?xt=urn:btih:3BFF2EDABC55C1F5A90E7648C2D4ABBC8C25F627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Demon's Souls - Black Phantom Edition [PS3] [EUR] [Ru] [3.55] [Cobra ODE / E3 OD
 ```bash
 magnet:?xt=urn:btih:480CEDCCECCEE5E507CFD29BA9041AF9C03B7B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Adobe Muse – визуальный конструктор сайтов, фун�
 ```bash
 magnet:?xt=urn:btih:226671A205EE30F3F3FD17854D1F1E0AEAF9F86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ ZverDVD 2013.11 + Alkid SE (Официальная раздача)
 ```bash
 magnet:?xt=urn:btih:0769674CBFCBB84EE8CD9D6A2354925167B5C969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Call of Duty: Ghosts – новая часть в серии Call of Duty. На�
 ```bash
 magnet:?xt=urn:btih:F1AC36023895BB5B288E21912EEBDF530EA8E147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ MegaMod's Edition Pack - сборка модов, направленная на 
 ```bash
 magnet:?xt=urn:btih:F024333AD4BFDF2F4AFCFECBEE2A0389511CCE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

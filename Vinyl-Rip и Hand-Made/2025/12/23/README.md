@@ -22,8 +22,7 @@ A3 Tropical Loveland(   Читать дальше...   )Жанр: EuropopПро�
 ```bash
 magnet:?xt=urn:btih:F81C9135311B9E0D07673FAB4B2608C002284F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Orange Goblin — британская хэви-метал/стоунер-рок
 ```bash
 magnet:?xt=urn:btih:1B9C4A014E18603E0FC395CB55632C999C6E724E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

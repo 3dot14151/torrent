@@ -19,8 +19,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 ```bash
 magnet:?xt=urn:btih:119EEE06B95985C767E80F71DD41A5A6AD38E86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

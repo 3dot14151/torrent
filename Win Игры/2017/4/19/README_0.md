@@ -19,8 +19,7 @@ Trackmania Turbo (2016) [Ru/Multi] (2016-03-23_18_29) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:284EE3FA6F2D13095D0D8FA0C881CB594FE15E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3A5F3CBFF49F5C31D815DB9065733D3B994E157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

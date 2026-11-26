@@ -19,8 +19,7 @@ Daemon X Machina: Titanic Scion (2025) [Ru/Multi] (1.0.3/dlc) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:1CCDE71A5DBDB7BBC7B49C32EF7BACF95AB55D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Update 12/dlc) Repack Let'sРla
 ```bash
 magnet:?xt=urn:btih:AD5F67362FB6A76179317C30C27C08D7F4E5FFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SnowRunner (2021) [Ru/Multi] (38/dlc) Repack Let'sРlay [4-Year Anniversary Edit
 ```bash
 magnet:?xt=urn:btih:1AF8ADA31E36BC2EF430A6FA0469005159B70A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Terraforming Mars – официальная адаптация популярн
 ```bash
 magnet:?xt=urn:btih:3DD4BE8454DCCE0C74A304A7BC40E2BACDA41619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.0.0.1/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:9CB29F2B0313BE6044532F4943ABBC29F701A2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Three Kingdoms Mushouden переносит геймеров в 182 год на�
 ```bash
 magnet:?xt=urn:btih:47719A7ED8B53BD0CC6810982E0642CA09BA3AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9F4E0D3BFDBE983FA39BC3C5656C5475867B1899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Chaos on Wheels предлагает автомобильные бои, где �
 ```bash
 magnet:?xt=urn:btih:46A5170F952211E41664ED7EBB8B62A1E7D4B6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:9A4CDCA0577A413E87476DA22AB0A9196249DE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) Repack Yaroslav98
 ```bash
 magnet:?xt=urn:btih:538FD7E33BE7ABC0A64ECB7FBD4B366125F95E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ STAY (2018) [Ru/Multi] (1.0.3.9) Repack Other s
 ```bash
 magnet:?xt=urn:btih:649006425821C4E9BFC2C71F77B793FD741B332E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Dead Take начинается с поисков пропавшего друга
 ```bash
 magnet:?xt=urn:btih:27EE798543B37EFEA80C5020B395809A186C2EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Vending Machine Business Simulator приглашает геймеров в ми
 ```bash
 magnet:?xt=urn:btih:8F2E6D38BDDEBC2A2FEB2B23F5CE936EFF924AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:730A7C9C296A0736F3B2D4A57F1EC2009FF2C79B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3B01CEB15C6F399E1E7D055109778291D964E94D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:62D860C0074E492DFCE1132C2176F954C4B1A25D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

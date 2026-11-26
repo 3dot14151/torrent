@@ -19,8 +19,7 @@ Football Manager Touch 2017 (2016) [Ru/Multi] (17.3.1/dlc) License STEAMPUNKS
 ```bash
 magnet:?xt=urn:btih:83C13030538CB674F9FAE0C5CC972588B2282C59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Football Manager 2017 (2016) [Ru/Multi] (17.3.1/dlc) License STEAMPUNKS
 ```bash
 magnet:?xt=urn:btih:E298652C1BCE9388D13B2BAC047A90F7C5B70955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Football Manager Touch 2017 (2016) [Ru/Multi] (17.3.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:99D413E3F730C5D7DAB63E26529AAC0E65D4A546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

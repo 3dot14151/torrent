@@ -22,8 +22,7 @@ Atomic Rooster — британская рок-группа, образовав�
 ```bash
 magnet:?xt=urn:btih:B140319C0344511F5C0929E5FF121EB42512ED74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

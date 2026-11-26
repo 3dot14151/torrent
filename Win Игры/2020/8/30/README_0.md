@@ -19,8 +19,7 @@ Haunted Hotel 18: Room 18 / Проклятый отель 18: Комната 18 
 ```bash
 magnet:?xt=urn:btih:EBA92A13492DDEA924252ED6C262FA53480D5A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

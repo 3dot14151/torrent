@@ -19,8 +19,7 @@ Microsoft Office Professional Plus 2013 with SP1 – лучший пакет п�
 ```bash
 magnet:?xt=urn:btih:109C1357EB6E13AAE2F35A144BB333CD16F0C97F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Microsoft Office Professional Plus 2013 with SP1 – лучший пакет п�
 ```bash
 magnet:?xt=urn:btih:75C9C94F1F9EAD3D111557F919EE214813078D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Microsoft Office Professional Plus 2013 with SP1 – лучший пакет п�
 ```bash
 magnet:?xt=urn:btih:B152A6078B3EC760BB5DD1D0C9C1CB134FA269FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

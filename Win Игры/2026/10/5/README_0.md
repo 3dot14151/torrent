@@ -19,8 +19,7 @@ Dwarf Delve (2026) [En] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:98B739ED4E6BD0C5C2EC98C029D4F91FDF005E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ R-Type Tactics I • II Cosmos (2026) [Multi] (1.0.6.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:1425F720BEB75483FDBF2E69368F681939B5CF2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Zero Parades: For Dead Spies (2026) [Ru/Multi] (1.1.40707.40707_874) Repack Othe
 ```bash
 magnet:?xt=urn:btih:E3E74B7282437D59350C31A5DF91F0B8ED46ACC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Minecraft Dungeons II - это масштабное продолжение ку�
 ```bash
 magnet:?xt=urn:btih:1F813CFEE781E9A1EB92B47A097918543DEC1F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Keep Driving (2025) [Ru/Multi] (1.4.3.13) License GOG
 ```bash
 magnet:?xt=urn:btih:EBFB1D5F9A9D0DCC8B6FF27A5F3B6AB21D502F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ex Machina: Меридиан 113 - это продолжение Ex Machina, д�
 ```bash
 magnet:?xt=urn:btih:F764EA9E6CDA2B3DAB187E4EB57656FF5EB6C4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Homicide Desk В Homicide Desk вы расследуете убийство та
 ```bash
 magnet:?xt=urn:btih:174417F59E825879D3E58D3B11B7B6433DDE2215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

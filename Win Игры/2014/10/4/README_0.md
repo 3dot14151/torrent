@@ -19,8 +19,7 @@ Whispered Secrets 3: Into the Wind (2014) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:EB1B6E850A500419054C5D5D6C2B22ECFA361947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Realm: Queen of Flames (2014) [En] Unofficial [Collector's Edition / Кол
 ```bash
 magnet:?xt=urn:btih:5CC0D04CE0CDDB189AB3BC647F4F9A244C2D3828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Excursions of Evil / Экскурсии зла (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:7922B4C1CC078CB123AE66719D2E4102B01000E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Metal Slug X (2014) [Multi] (1.0) Unofficial 3DM
 ```bash
 magnet:?xt=urn:btih:F966721E13D4AB709A915ECA414BE09EC42F2564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ DieselStormers — это зубодробительный экшен с реж�
 ```bash
 magnet:?xt=urn:btih:798D9929695050E9F812032DA08B035A62659C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Magicite - это красочный пиксельный RPG-Platform  с 8bit 
 ```bash
 magnet:?xt=urn:btih:DBDDD2DDC3ED972E7DFCB6CC8FBEF0F607426137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Ken Simon Trio - The Twilight Of Time (1997) [APE|Lossless]<Jazz, Avant-Garde Ja
 ```bash
 magnet:?xt=urn:btih:42EFF6BB8D104A278217825657502161441571A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Nueva Manteca - Afro Cuban Sanctus (1997) [FLAC|Lossless]<Jazz, Latin Jazz>
 ```bash
 magnet:?xt=urn:btih:3D384974CE0B0A4EEF92AC66848201FEAF90841F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ VA - Dark Sessions Radio 003 (Mixed by Oberon) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:2F4672C1A5B2C9B48E6097E1BD9FD8B4BBC86AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Clifford Adams - The Master Power (1998) [FLAC|Lossless]<Jazz, Post-Bop, Mainstr
 ```bash
 magnet:?xt=urn:btih:401938CCA037B478D921B46872EF642BF8FA9361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Serena Brancale - Galleggiare (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:1FC4EDC3A97307ED830141E535DEA159F934B96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ ISH - Conspiracy Level (2012) [FLAC|Lossless|WEB-DL]<IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:C09D48C5D91532918F4343DE9C6D2D321D59D91F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFF5F8FD686C8E3765F715D92E4D4345A5BE4BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FB4773C4DF429DD34342025AB88BBC67BDB77D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Stan Getz - Award Winner (1998) [FLAC|Lossless]<Jazz, Cool, Bop>
 ```bash
 magnet:?xt=urn:btih:6C1F99FF7FB9FDA6910BC818D2F70CD8FE45C4A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF7C951486FC3FB9C2B6ED079852DF1852C746FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ ISH - Inward Grip (2014|RM 2009) [FLAC|Lossless|WEB-DL]<IDM, Abstract, Electro, 
 ```bash
 magnet:?xt=urn:btih:DDA2171AA3B218267413538941FE7A09781E8A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Chet Baker - The Art Of The Ballad (1998) [FLAC|Lossless]<Jazz, Cool>
 ```bash
 magnet:?xt=urn:btih:E7BC3665421EFB58ADC87B60FDF9CB8E0D4619BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:427E4E706B10DF33CC004B262F0C9A402B5484B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F23974A8A2836EEE11724E81F76EA5BEE3E5A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ VA - Living the Blues: Vocal Blues Classics (1997) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:F8078EF6E2CA3ACF707DB79652BEEFD4DF68A6BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F809E69C4BBE800DEF4F85C7C042F5AD482709DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52CDB7DF6264747F9E082FAB7E777902AC1A0FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ Badbadnotgood - III (2014) [FLAC|Lossless]<Jazz,Fusion,Electronic>
 ```bash
 magnet:?xt=urn:btih:906485E41BDF9BE0A05F65F542C363EC85D069E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ VA - Living The Blues: The 70s Blues Classics (1997) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:03B72787DBE53C60ADAFEF611DCEC8D71739BB1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ VA - Living the Blues: The 80s Blues Classics (1998) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:C74FD4027AE438389AE494738D815EF27E501498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ CD1 - Misty:
 ```bash
 magnet:?xt=urn:btih:5EC1458BF3881F2173FA33200BECFF8D6EFF84D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46EFB892C16B79C8371C97DACA253C5B17D1FFAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9A2040290A0540CA1872CFDCD55F9F6ABB8D6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ Cracker Blues - Prata Do Carrasco (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9A0D735EB914288DA4FA1E0A0003D83A826C8139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C9C19510B879915EA51FE4D722CC09FC5BA4824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ Marc Almond - The Velvet Trail (2015) [MP3|320 кб/с]<Pop, New Wave>
 ```bash
 magnet:?xt=urn:btih:007C1E8A4CA73ECDAE5205496D9F25A29BD3C124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

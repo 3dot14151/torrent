@@ -19,8 +19,7 @@ dot11Expert - это программное обеспечение для уст
 ```bash
 magnet:?xt=urn:btih:019C1F7415E8D4F3832D8B9A46698A0D8CF92DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Starus Recovery Collection 19.02.13 [8in1] RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8C77FC3CB8F651E2E580ED924B0D64DF0A7E6E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

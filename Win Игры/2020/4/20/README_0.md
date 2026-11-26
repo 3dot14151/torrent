@@ -19,8 +19,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.7) License GOG (обнов
 ```bash
 magnet:?xt=urn:btih:A30C3B904031B8A09F1775B0960F07BB56F46C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Vortica - это рогалик в сеттинге солнечной сист�
 ```bash
 magnet:?xt=urn:btih:8CC1334B65A945EFF43D2EE4820D387743AFCAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sail the Seas (2024) [En] (0.0079) Repack AIexandro
 ```bash
 magnet:?xt=urn:btih:9DAF62663CBB769A7EEA285F1DB1B19705F500D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vultures: Scavengers of Death (2026) [Ru/Multi] (1.0.0/dlc) Repack FitGirl [Supp
 ```bash
 magnet:?xt=urn:btih:D445A5F30DF2A6A8600C2356DF4D0A73A972BBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hunter's Journey 2: Nightmare Hunting / Путь охотника 2: Охота 
 ```bash
 magnet:?xt=urn:btih:B95FDEC07AB12D5D6EDEF1845FECB13992E273C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.3.1 (1)) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9DFB6C678713D1A863FB97F7940295D805FCEE0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.12.0.0/dlc) Repack SE7EN
 ```bash
 magnet:?xt=urn:btih:35D1564905BFC256AC5FE06DD0598738335EED27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

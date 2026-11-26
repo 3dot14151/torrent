@@ -21,8 +21,7 @@ Iced Earth - I Walk Among You (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Thras
 ```bash
 magnet:?xt=urn:btih:C0A63AE564F185AE17031BBC02409D68A2E6BC1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Loggins & Messina - Long Island 1976 (live) (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:DB157D4B77F177D36F2E5D6026B2B619937C7B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms And Lav
 ```bash
 magnet:?xt=urn:btih:3AC8AC77B9F7E9779F7773CD98BF5562151932AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Total Stranger - Mean Season (1986-1990) Remastered, 2023, MelodicRock Classics 
 ```bash
 magnet:?xt=urn:btih:BE8EAA85BE6571BBE5DC86BCC931AD25E6320253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ George Lynch - Guitars at the End of the World (2023) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:6E4A0A7B650715B878F743B144493BFC8C29D13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Street Fighter - Second Hand Hero (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 ```bash
 magnet:?xt=urn:btih:5027173AC9279C3B78EFDCC4043022955BB3E97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Sarayasign - The Lion's Road (2023) [FLAC|Lossless|image + .cue] <Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:C56090D72C60747CEAA0AE63D2337F2439011F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ The Staehely Brothers - Sta-Hay-Lee (1973) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:D9E72142F26243D1521F63B4CFC9C7E7C4A799F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ King Gizzard & The Lizard Wizard - Live in Chicago '23 (2023) [MP3|320 Kbps] <Ps
 ```bash
 magnet:?xt=urn:btih:DC00D770695654316765C147052B911BA621E9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Metal Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 ```bash
 magnet:?xt=urn:btih:A4DEE7C12072D0574E2458D6FC4B12841E69E0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Stream Of Passion - Beautiful Warrior (2023) EP [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:532ED7902DD5F65F17FE69CB1DAD94E8D51B00D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Steely Dan - Memphis 1974 (Live) (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8D7955E64DFF74DE1DC79731EE4E7442C6B547FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Fire Rose - Blood On Your Hands (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' H
 ```bash
 magnet:?xt=urn:btih:6A6DE1FD2558DC626DBB4008D233212DECC6E146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Thunder Volt - 4 Releases (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Sto
 ```bash
 magnet:?xt=urn:btih:E33B31E661FA93A404F3B12929A7A2F33833094A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ The Flower Kings - Look At You Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 ```bash
 magnet:?xt=urn:btih:8D9EDC7155BF57770F18E025515DFDFD21878FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Butchamana And The Big Bang Brothers Band - Indian Dream (1981) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:85501CF302FD46A17D1B194A00BE2D9BE3260023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Dark Divine - Deadly Fun (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Altern
 ```bash
 magnet:?xt=urn:btih:05D41357F33FDFC4FBC54AC8FE8C369FBA423576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ The March Violets - 2 Albums (2023) [MP3|320 Kbps] <Alternative, Post-Punk, Goth
 ```bash
 magnet:?xt=urn:btih:A7E479DB407836601F6F160E92B940ECA9EA4500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ Eternal Voyager - Darkened Times (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:7EE4403DB67CF5DF086CA508EACA759EF7BFA0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Mud - Let's Have A Party - The Best Of Mud (1990) 2023, Parlophone UK [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:ED726EDD99370AC6EFA2827586B2FEC2E78653ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ Blackwell - Blackwell (1970) [MP3|320 Kbps] <Psychedelic Blues Rock>
 ```bash
 magnet:?xt=urn:btih:436E0D065158696D71C886C61A02B24D52F96138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ Sylosis - A Sign of Things to Come (2023) [MP3|320 Kbps] <Melodic Death Metal, T
 ```bash
 magnet:?xt=urn:btih:0D66D4B58CDF3586F9FB01A48D079D4048B25D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ Frank Zappa - Live... New York 1984 (2023) [MP3|320 Kbps] <Rock, Pop Rock, Garag
 ```bash
 magnet:?xt=urn:btih:2F37B68444836146DADF8B5139116D99BF397324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Frederic Slama's AOR - Bewitched In L.A. (2023) [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:F1B9BFF65A61BAEFE1E83619EBE63D91652442EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ Spirit Adrift - Ghost at the Gallows (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:3274BC8AB597695C618273AF1579C43EEE56F393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +721,7 @@ Saliva - Revelation (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge
 ```bash
 magnet:?xt=urn:btih:F325246D4AD537270622E86396CF2EEE89D74445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

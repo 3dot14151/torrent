@@ -19,8 +19,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы (2004) [Ru/En] (1.506
 ```bash
 magnet:?xt=urn:btih:590B4803CD511D42F8580E656214F6393A575730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 ```bash
 magnet:?xt=urn:btih:3C15DCAB2EB7D3A4E2731F42DF83F1BB0E9B03D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

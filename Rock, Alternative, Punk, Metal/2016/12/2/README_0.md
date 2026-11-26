@@ -22,8 +22,7 @@ _ash Aria_ - _ash Aria_ (2016) [MP3|320 Kbps] <Alternative Metal, Industrial Roc
 ```bash
 magnet:?xt=urn:btih:59BF61BD10B4742E09B1001818AE95619B73CD06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Laments Of Silence - System Failure (2016) [MP3|320 Kbps] <Gothic, Melodic Death
 ```bash
 magnet:?xt=urn:btih:2369C80FCF2C8C15A98EF872245C0AB8EE6019DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gno (Gnô) - Sick Princess (2016) [MP3|320 Kbps] <Alternative Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B3C67E2686FE254577F769E46B03B3E15C22D353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Amorphis - His Story - Best Of (2016) [MP3|320 Kbps] <Progressive, Doom, Folk, M
 ```bash
 magnet:?xt=urn:btih:9CF057E84821597F21CCFFD49B25313EEB4D59D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

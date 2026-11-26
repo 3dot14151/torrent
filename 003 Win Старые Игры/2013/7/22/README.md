@@ -25,8 +25,7 @@ Redneck Rampage Rides Again
 ```bash
 magnet:?xt=urn:btih:A3030D723B31518FB0EBF0E28CF952C75C169075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

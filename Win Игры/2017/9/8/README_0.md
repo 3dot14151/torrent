@@ -19,8 +19,7 @@ Spirit of Revenge 2: Elizabeth's Secret / Месть духа 2: Королев�
 ```bash
 magnet:?xt=urn:btih:8A72211BBDF6C7DAAA0D89DA9AD5E9E4E45B8F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zombie Army Trilogy - это шутер от третьего лица, объе
 ```bash
 magnet:?xt=urn:btih:B610413C27A3164EC3862CE81A4025925AE456E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

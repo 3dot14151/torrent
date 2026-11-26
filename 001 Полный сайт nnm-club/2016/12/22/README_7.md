@@ -22,8 +22,7 @@ Doc Cheatham - The Eighty-Seven Years Of Doc Cheatham (1993) Columbia[APE|Lossle
 ```bash
 magnet:?xt=urn:btih:23F613FE6C233006DB83B231FE5C59DE6A9CD316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The J.J. Johnson Quintet - J Is For Jazz (1956) Remaster, 2015, Sony Music[FLAC|
 ```bash
 magnet:?xt=urn:btih:C870F23EF87AA9622F9CAFA07D8D065ECF6C8154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Permute: Универсальный конвертер видео, аудио и
 ```bash
 magnet:?xt=urn:btih:6B9BC4736A56DB8934BB3EBA4FF59C83572D1F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ LogTail - приложение для просмотра и мониторинг
 ```bash
 magnet:?xt=urn:btih:644E563E21F36869A6CBD1E26AD2132469380CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ The Chico Hamilton Quintet - With Strings Attached (1959) 2007, Collectables[FLA
 ```bash
 magnet:?xt=urn:btih:062CCAA9DBA07ACA77313717D50CA70854275EB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Dalindeo - Kallio (2013) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Rockabilly>
 ```bash
 magnet:?xt=urn:btih:37BA425ADE780475B4E28320E0CC01D955F6DA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Uplifting Only Top 15 December (2016) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:2F69007827C1CAB4F7EE582F439C722177A18565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Hank Crawford & Jimmy McGriff - Crunch Time (1998), Fantasy[FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:763D0F6061F1A1B6B315D92B6403036133164338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Pastebot - менеджер истории буфера обмена
 ```bash
 magnet:?xt=urn:btih:6540F53D74667A261A6E32B144ACBCCBAA005E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Casiopea - Dramatic (1993) Village[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 ```bash
 magnet:?xt=urn:btih:2E8A93C15412916CED0DC2C829BB8C366699F143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ SALTO - самый "прыгучий" робот на сегодняшний д�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Later позволяет планировать напоминания есте�
 ```bash
 magnet:?xt=urn:btih:CC70CD2205454F494443641DCF7CCD8810B69D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Sidify Apple Music Converter может удалить DRM от Apple Music и �
 ```bash
 magnet:?xt=urn:btih:ECFD8EBBFF28E1F8CC5B7EF34CC445AC30562DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Max Freegrant - The Yearbook (2016) [MP3|320 Kbps] <Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:6DC31626B5680EB9AD49E15ECF32E1222AC8D94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Mother Turtle - II (2016) [FLAC|Lossless|tracks] <Eclectic Prog>
 ```bash
 magnet:?xt=urn:btih:3F8AF33A9E67FB3150C18519A13BB6AB6FF5566D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ The Living End - Modern Artillery (2003) [FLAC|Lossless|image + .cue] <Punk>
 ```bash
 magnet:?xt=urn:btih:DDD726D4D31E59ABD68DDF1E5BEF054FA30053D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2DF91319CE4E58274849FD84820F0672A57C8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF02ECC2E16AFD59A15D4BD772641929A7FE6536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D5CEA9658AD8598606F34E71E48F1301956B03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ VA - Deep and Loud (2016) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:A2F7DD32FC1F25F06B0C96AE56DC412C973CB673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:81637D4110BAA6FF4FE099E337D27DEAB4EBCD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ Desk поддерживает большинство популярных пла
 ```bash
 magnet:?xt=urn:btih:45B958ADCF31D765E361B23B0CBF985667F088FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Kiwi for Gmail 2.0 - клиент для Gmail, объединяющий в се
 ```bash
 magnet:?xt=urn:btih:46334589C5FF9B9CD48B968403BC277AE82EF449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Corporate Templates - Business Stationery 3.1.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:49E1BFE22FA5DFBF566753B1B42C7A71FEE0BDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ Corynne Charby - Reference 80 (2011) Compilation [MP3|320 Kbps] <New Wave, Chans
 ```bash
 magnet:?xt=urn:btih:DA62931009E03362314DCE4921BD177DA211CCC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ VA - Ocean Waves & Sea Sound Relax (2016) [MP3|320 Kbps] <Downtempo, Chillout, I
 ```bash
 magnet:?xt=urn:btih:C45AB66E50824B8CCB0365AD48DE85FF78D0A8DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

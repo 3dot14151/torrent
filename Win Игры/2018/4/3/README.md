@@ -19,8 +19,7 @@ Medium Detective: Fright from the Past / Детектив Медиум: Ужас
 ```bash
 magnet:?xt=urn:btih:E17F96A2BF1AB04B9EB2C89CFC4D733678C0D7E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bear With Me – это эпизодическая приключенческа�
 ```bash
 magnet:?xt=urn:btih:A0695009BF92C644CEBD5D33848F0BA17898253E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Getting Over It with Bennett Foddy - это карательная игра в �
 ```bash
 magnet:?xt=urn:btih:D8DC669A7F642D77302BF1042AB9B561A14207AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Assassin’s Creed (2008) [Ru/En] (1.02) Repack xatab
 ```bash
 magnet:?xt=urn:btih:56DACE26DDFCC1A3F4B6C3505DB09D3A719E0EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Blast | Справочник по сообщениям синего экрана
 ```bash
 magnet:?xt=urn:btih:F3CD6381CD190DD951CED6F28D7C6F743418D35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

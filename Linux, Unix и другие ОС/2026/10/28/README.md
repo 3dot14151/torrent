@@ -19,8 +19,7 @@ Chromium-Gost 156.0.8078.48 сборка autosettings.win [arm64] (deb, rpm)
 ```bash
 magnet:?xt=urn:btih:791C1CE2D25A4B157E3CD4C8376A6971CA9921B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chromium-Gost 156.0.8078.48 сборка autosettings.win [amd64] (deb, rpm)
 ```bash
 magnet:?xt=urn:btih:7CD52BE2B581D3142E443223DB26473A1C47934F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:A1585DEF8E537E14C54717B7C1D5E21F27336F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ joomlaua.com | Руководство по созданию шаблонов д�
 ```bash
 magnet:?xt=urn:btih:43763DAAA05626F01345C4875E6E79C477791290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D72C1AE4255A3BF1E1AEAA9F40B69A386CEFD449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

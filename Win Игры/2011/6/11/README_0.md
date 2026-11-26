@@ -19,8 +19,7 @@ Ghost Whisperer: A Brush With Death (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:6315A7608B30EE28E763D5CC78E74B3582343250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Skools Out / Достань директора! (L) [Ru] 2004
 ```bash
 magnet:?xt=urn:btih:9FF4241A19E0C646B851C649B53E85726452E93D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBE1239B2A4A41F4CCC7A1C2A3BEEB25A76DEC70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

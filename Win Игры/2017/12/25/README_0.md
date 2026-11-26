@@ -19,8 +19,7 @@ Sword of the Stars: The Pit (2013) [En] (1.6.2/dlc) License GOG [Osmium Edition]
 ```bash
 magnet:?xt=urn:btih:85929EEEF2F3CB7B10F7776B9EA06B3F3E1E0FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ EMERGENCY 20 (2017) [Ru] (4.1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:2B5B9A0B3D7A0535B4B9D91DAEF29538C4152F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Life is Strange – эпизодическое приключение, собы�
 ```bash
 magnet:?xt=urn:btih:2BFF732190C911F4DE9432E6D866ABAE6DD86F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A2 Spanish Harlem
 ```bash
 magnet:?xt=urn:btih:5E59A8B7739AFA6FE44B74958BA9A31E33F60376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Arcane Order - датская метал-группа из Колдинга.
 ```bash
 magnet:?xt=urn:btih:7404F672808400922D24EFE8BCFD5B94FD99B84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

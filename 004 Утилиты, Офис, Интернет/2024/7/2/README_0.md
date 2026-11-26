@@ -19,8 +19,7 @@ PC Cleaner - поможет исправить ошибки Windows на ваш�
 ```bash
 magnet:?xt=urn:btih:12F3FE89A2F66A3DF1CA90FFF7C8A6887703EF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:07CF746FD2911BBE607D152216900DB2CBA25826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:32BA14834001BA116F91439167B9C8F9991214DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Windows Update Viewer 0.6.1.0 + Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:98A454CA33919005661FF7DFD90AD2F96B7311AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

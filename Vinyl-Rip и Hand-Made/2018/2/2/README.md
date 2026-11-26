@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7A26CF19BBEDECF335AAAE346FE0B578BE3BA8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4	До Диез Минор. Соч.10. Presto(   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:B23FD37C08CEF21647A635AA3CA2B25FCC79F30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ FlylinkDC++ r503 build 19684 Stable Portable (x64/x86) + Хаблист [Multi/R
 ```bash
 magnet:?xt=urn:btih:096C5B5B05674264E5DA7EA99FB560C4DE100555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ System Explorer - бесплатная программа для монитор�
 ```bash
 magnet:?xt=urn:btih:8B38A1CA97E61B2ECBD48B4DDEF760D73B080F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

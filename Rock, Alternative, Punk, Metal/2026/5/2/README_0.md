@@ -22,8 +22,7 @@ Slyther - Chronicles Of Despair (2025) [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:F539564D4E16B240B032250B3B7014FDF40F61ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Venom - Into Oblivion (2026) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Heavy M
 ```bash
 magnet:?xt=urn:btih:928164DDD7EEF3679295C8490DA9C58D92C27A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Atronos - Gram (2026) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:64D9B13B6DC991C0036D038C9822AD61B844E7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDD12A63D4E529C2A42D05676A13F8AB349352E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Linda Ronstadt - Heart Like A Wheel (1974) Reissue, 1985, Capitol Records [FLAC|
 ```bash
 magnet:?xt=urn:btih:C435CFF5B66DC2FDD71DC6436A8590D4FA404E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Spell - Wretched Heart (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard 'n' He
 ```bash
 magnet:?xt=urn:btih:30B5888A33FED1EFB0F8227DC2B2A8F54E12A6E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

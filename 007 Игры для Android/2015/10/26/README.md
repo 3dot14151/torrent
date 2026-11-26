@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E91FDE364D528A9E675903F41F9BD721FFE72B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dracula 2: The Last Sanctuary - Приключенческая головоло�
 ```bash
 magnet:?xt=urn:btih:14D79BA9ABC7A2F27E6090EA466DE864E59F9714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dracula 4: The Shadow of the Dragon - квестовая приключенче�
 ```bash
 magnet:?xt=urn:btih:4B73A3255887D41421A6C5A5DEFF3F06BBE72737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B341F5A58F37C51B787A00E29451AB8A6B16DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Room Two - Продолжение замечательной андроид 
 ```bash
 magnet:?xt=urn:btih:292F4D225CFDD6F8EA92516CBE3A613C5F5710ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

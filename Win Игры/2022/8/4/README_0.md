@@ -19,8 +19,7 @@ City of Gangsters (2021) [Ru/Multi] (1.4.4/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:87995D7CD2CD6080F7F956C746F168D4B7757FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tormented Souls (2021) [Ru/Multi] (1.10) License GOG
 ```bash
 magnet:?xt=urn:btih:8AC27A4AD0940295F33F7BAD036D705686B5FCA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Golden Rails 4: Worlds Fair / Золотые рельсы 4: Всемирная 
 ```bash
 magnet:?xt=urn:btih:CE9C3BB63F4E7AA5764FACEB9F0F2B7461492915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Drunken Fist 2: Zombie Hangover (2022) [Ru/Multi] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:8BC5278F060EA35AFC689D38E8A94086CB7D2603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Hotel — психологический хоррор-триллер, в к�
 ```bash
 magnet:?xt=urn:btih:C4E6C4211ECE2B6C790C4F697F85730F5D6DE708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ South of the Circle — эмоциональная игра с глубоким 
 ```bash
 magnet:?xt=urn:btih:4D50DE574219A198DA0A03D4B28B9088EF4127A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

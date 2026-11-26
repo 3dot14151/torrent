@@ -18,8 +18,7 @@ Free YouTube Download - бесплатная и простая в использ
 ```bash
 magnet:?xt=urn:btih:651FF631A1BB3141E94ECF6BE4B83D7B073EDAD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Avernum 2: Crystal Souls является эпическим приключен�
 ```bash
 magnet:?xt=urn:btih:324ADE652598C028174809E9C92FCD60D91478C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Rugby 15 предельно реалистичный спортивный сим
 ```bash
 magnet:?xt=urn:btih:FC31BADC0A7E79937E3D00E7AC751F4B638EEB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33636D5D1E3B49E7FEA3160E6AEBB4F8232DAD6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0605FFD3E6C02F17832520E3AE0635A22E082FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7DD03DD05F24D9910DB49B14E3D9FAD6FF5D64E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Mangaka-san to Assistant-san to The Animation / The Comic Artist and His Assista
 ```bash
 magnet:?xt=urn:btih:5FFD24B25FF0363ECB29085E5D9941F0104ABB6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ TeachPro | MS Office 365 (2011-2012) PCRec
 ```bash
 magnet:?xt=urn:btih:C18AACAE3D10E1F9001F27C79F74C5052DBF7431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ MInstAll v.22.02.2015 By Andreyonohov & Leha342 [Ru] (Авторская раз�
 ```bash
 magnet:?xt=urn:btih:24D76F7986B0611D888A31251DBEFB913E6DFC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D692014EDDB3155C4A71EDE437F15F6AF3A33D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ VA - Best of In Da Club Vol.1 - 23 (2009 - 2015) (обновляемая) [MP3|3
 ```bash
 magnet:?xt=urn:btih:F4EC476613BE884731A21660C3B6D9A3FCBE56F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ WDI Дмитрий Чернов | Веб-дизайн интенсив (2014) PC
 ```bash
 magnet:?xt=urn:btih:6E60A6AFA306C316C18985C5E891BA813D3B8025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Call of Duty World at War (2008) [Ru/En] (1.7.1263) SteamRip Let'sРlay (only 64
 ```bash
 magnet:?xt=urn:btih:D2CE6BA1609CEA2264ED415E61E9B876D2B05A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D19AE1116813FB5B0E275C584E31FE17ABD36DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ Thief (2014) [Ru/En] (1.7 u8/dlc) Repack R.G. Games [Master Thief Edition]
 ```bash
 magnet:?xt=urn:btih:1242D232E82BA79116A54C869CE4830141CA2D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

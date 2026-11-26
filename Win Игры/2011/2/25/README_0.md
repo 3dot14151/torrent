@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6DBEB1B830E643C58B4D662DD0C9C3B7DFE1AAB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03242E09C14A1AFF154426B0B7727241240442B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Assassin's Creed
 ```bash
 magnet:?xt=urn:btih:AE1C028EB84BF5CE5D3C423FBC8C853712BD218E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

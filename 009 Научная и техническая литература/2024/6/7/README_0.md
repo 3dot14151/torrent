@@ -19,8 +19,7 @@ This book provides an up-to-date and comprehensive overview of research methods 
 ```bash
 magnet:?xt=urn:btih:D808CCCB3B9D44057E97A02FBEB2A78076C06AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D32B12EA7A74ACE3407204C2AF885B4ECDDFF55D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Practice Makes Perfect Premium: Basic English is a bestselling workbook that pro
 ```bash
 magnet:?xt=urn:btih:FD129A3EA0BF6DAB655C5DF78694327089A57F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Custom regional and global maps present the history of the world in action, char
 ```bash
 magnet:?xt=urn:btih:3E5435D9E32997276614DA58A6FAD1C54427BF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4D1034A6320D8B953BB51E2904FFF38573F6324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:773947F95AE7ECEC56EDCC289E54298A1C94F0EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D6C2032AD46DC8B47848B4582E8030393716803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ an introduction (   Читать дальше...   )Жанр: учебное п
 ```bash
 magnet:?xt=urn:btih:0788BF05A4131492B25CDBC90BB178E80655E88A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ This book provides theoretical and pedagogical perspectives on teaching speaking
 ```bash
 magnet:?xt=urn:btih:3DEA239124294D738EFB83FEFE42AF614F6ADF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Shocking Blue - The Best Of (1986) /Japan/ [FLAC 2.0 24/192|image (Vinyl-Rip)]<R
 ```bash
 magnet:?xt=urn:btih:D6B479BD20CA0A3C9227983611CAD8A65C154534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

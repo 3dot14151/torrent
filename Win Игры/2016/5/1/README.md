@@ -19,8 +19,7 @@ The Bridge - удивительный платформер в котором в�
 ```bash
 magnet:?xt=urn:btih:A6A9743E49124026ED6E5C502952875C61D3C584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cities in Motion Dilogy (2011-2013) [Ru/Multi] (1.0.0/1.6.3) Repack R.G. Мех�
 ```bash
 magnet:?xt=urn:btih:0AF6C7A06E0C7B2087A03EDB1FEF8B0FC3AE3D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Prison Architect - симулятор тюремного магната, с по
 ```bash
 magnet:?xt=urn:btih:F7EF7A1E79E8957930D5ABE6C75F3B1BDE97046B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

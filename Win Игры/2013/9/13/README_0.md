@@ -19,8 +19,7 @@ Teenage Mutant Ninja Turtles: Out of the Shadows переносит вас в т
 ```bash
 magnet:?xt=urn:btih:28679D2AC17C6E1686949984FA343FA77F18666A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The King of Fighters XIII - очередная игра серии KOF, сюже
 ```bash
 magnet:?xt=urn:btih:0C48C32EFBB54E69A9C98724CF9300A0E9380393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Iron Soul - это экшен от третьего лица с роботами
 ```bash
 magnet:?xt=urn:btih:F10F93A5C3CE2B1420649C9B69EFAF420F098452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

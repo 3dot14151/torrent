@@ -19,8 +19,7 @@ Earthworm Jim Pack (1995-1999) [En] License I KnoW
 ```bash
 magnet:?xt=urn:btih:290DE1C5C6167EF8489D68FEABB96B63DFE8CF83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

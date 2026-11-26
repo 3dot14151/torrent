@@ -22,8 +22,7 @@ B2 Vomit RitualЖанр: Death MetalПродолжительность: 00:10:08
 ```bash
 magnet:?xt=urn:btih:6255D79591533C7D345A5B0BFB637F0DE3CD073C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

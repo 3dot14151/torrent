@@ -19,8 +19,7 @@ Diablo III: Ultimate Evil Edition — это напряженная и азар�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C64FB6A2C54F301E122A1125E505722BFC74BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ITVDN | Node.js (2017) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:5E1A7B5887560C6CE4136ABB16A2467A47583F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ TV Control v2.1.2 Full [Ru] - Программа телепередач на And
 ```bash
 magnet:?xt=urn:btih:64668A2A41F0F2F13555D2DC1045C4CF09DEE3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A9936DE9ED95B1AE6079A2D402819C805577F5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3CF3238CD2D1E2AC6057DB44D53BB74CACF8F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Windows 10 Enterprise VL (x86/x64) Elgujakviso Edition (v.02.12.17) [Ru]
 ```bash
 magnet:?xt=urn:btih:01EB404CB7E658E317503DE3DCC28D2DFE8914E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ VA - Дискотека 2017 Eurodance Club - Назад в 90-е (1990-2000) Re
 ```bash
 magnet:?xt=urn:btih:C7803C9B216A208844C4854CABD4210591F1845E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Navitel / Навител Навигатор v9.8.19 Full для карт рел�
 ```bash
 magnet:?xt=urn:btih:CC11C296E85366472E8D604DC16A3B7079111CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Google SketchUP Pro - является профессиональной верс
 ```bash
 magnet:?xt=urn:btih:8C2BC627ED9933A62C2FCE749D3A469E7946A5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

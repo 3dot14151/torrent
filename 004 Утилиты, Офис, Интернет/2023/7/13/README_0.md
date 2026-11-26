@@ -19,8 +19,7 @@ Auslogics File Recovery - легкая и эффективная в исполь
 ```bash
 magnet:?xt=urn:btih:9CF577F84D2B2956132D09C8BA8C9D5DED052E89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

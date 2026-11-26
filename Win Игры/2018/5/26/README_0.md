@@ -19,8 +19,7 @@ FRAMED Collection (2018) [Multi] (1.0.16#452) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B31D1BF0264EE3EF601D46AFFE418E4FA1337D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reus (2013) [Ru/Multi] (1.6.5) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:61288E15BDE9EFA3068B37792E47A260DA3EE3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Friday the 13th: The Game / Пятница 13 (2017) [Ru/En] (B11030/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:FFC28FD89703E4BB33419FC3168D935ABB652CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

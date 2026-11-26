@@ -28,8 +28,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:1CC567D0FF28EDC3D6CBE8D69D10748555F0449B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B2. From Shark To Haggis (06:38)
 ```bash
 magnet:?xt=urn:btih:EA718E3A6B9CB2E98DA59A9251B85725E7297F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

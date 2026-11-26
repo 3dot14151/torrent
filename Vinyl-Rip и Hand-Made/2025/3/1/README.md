@@ -22,8 +22,7 @@ Untimely Demise - канадская метал-группа из Саскату
 ```bash
 magnet:?xt=urn:btih:2CEF3EEEC755143695A0687DFE87B2F8B96A4D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

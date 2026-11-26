@@ -19,8 +19,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack Hardwa
 ```bash
 magnet:?xt=urn:btih:B76FA27707FC2CF276EBCD9A0368C8A95F79E357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (1.0.5/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5814DD55C00BE8AC7E11AD2D6B4FBE5C30BB7845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

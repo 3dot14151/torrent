@@ -22,8 +22,7 @@ Asmegin - Arv (2008) [FLAC|Lossless|image + .cue] <Viking Metal>
 ```bash
 magnet:?xt=urn:btih:4D361DDDE991BB2357F8EA5BBD970BD09AF42508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Clepsydra - Hologram (1991) [FLAC|Lossless|image + .cue]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:0745284E37C438D3C9B623D33554EB7D388A60BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Circle of Silence - The Crimson Throne (2018) [FLAC|Lossless|image + .cue] <Powe
 ```bash
 magnet:?xt=urn:btih:E1B39F4564CA607B890FF08667E7888D24D2DCDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Yes - Fly From Here - Return Trip (2018) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:2151315C8FC7457717C4959C2569EEC1250D675D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

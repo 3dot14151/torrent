@@ -28,8 +28,7 @@ Kiuas - The New Dark Age (2008) [WavPack|Lossless]<Power / Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:535B5CB4805598DC49B4E2AFCE135BC2B255B4A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Lordi - To Beast Or Not To Beast (2013) WEB [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Spock's Beard - Brief Nocturnes and Dreamless Sleep (2CD) (2013) [MP3|320 kbps] 
 ```bash
 magnet:?xt=urn:btih:A68E540230A2CCDED3F102284421E1C826A49596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Hardcore Superstar - C’mon Take On Me (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1FDA4FC4214F64A236F2EF893CC04492047F7637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96939DCB6BAC9220DC57D23F8E75309B2F7E74BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Jimi Hendrix - People, Hell And Angels (2013) [MP3|320 kbps] <Psychedelic Rock /
 ```bash
 magnet:?xt=urn:btih:4C7DA667B1767C164860D17EA0E6729BF320290A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Bullet For My Valentine - Temper Temper [Japanese Deluxe Edition] (2013) [FLAC|L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ David Bowie - The Next Day (2013) [MP3|320 kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5066D7A1106E8B8E5911871247C8FDDBA6C61142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ Jimi Hendrix - People, Hell and Angels (2013) [FLAC|Lossless]<Psychedelic Rock/ 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +365,7 @@ Metallica - Soundwave Festival (2013) /Brisbane, AUS, 23.02.13/ [FLAC 2.0 24/44.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

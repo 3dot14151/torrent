@@ -19,8 +19,7 @@ uTorrent Pro 3.6.0 Build 47124 Stable Portable by FC Portables [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C66590F1E7F16A2C85DD1C02E58D7DB92A499BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:EF8F75B59799A761DA38A340C4E5C4DEC9F5B785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4046B971995C967A69211A3D9E4900547AED377F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ WinScan2PDF - позволяет сканировать документы и с
 ```bash
 magnet:?xt=urn:btih:8E48CF849B3FD7F09AB02063875313CC4CD16915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

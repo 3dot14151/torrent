@@ -19,8 +19,7 @@ Agricultural Simulator: Historical Farming (RePack) [Multi3/-] 2012 | Sash HD
 ```bash
 magnet:?xt=urn:btih:E59B3CDBC0949777AAF12F26C492A1FB06ACADB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Agricultural Simulator: Historical Farming [En/Multi3] (L/1.0.0.1) 2012 | TiNYiS
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Burger Bustle: Ellies Organics (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:93E18BF66C533132BBF96A0ADB31090EC1B9EB19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

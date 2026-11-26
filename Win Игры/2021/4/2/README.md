@@ -19,8 +19,7 @@ Cyberpunk 2077 – приключенческая ролевая игра, де�
 ```bash
 magnet:?xt=urn:btih:C3C18363E02E39AE229450E00F15C7722DE6FA73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

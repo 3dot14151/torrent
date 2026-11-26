@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ VA - Electro Swing Festival Summer (2014) [MP3|320 кб/с]<Club House, Electro 
 ```bash
 magnet:?xt=urn:btih:637D80D4750C5C1BF91A6E2DA9E6D503CC63D2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Timo Tolkki's Avalon - Angels Of The Apocalypse (2014) [FLAC|Lossless]<Symphonic
 ```bash
 magnet:?xt=urn:btih:14AE5A5AF9925EED9BD0E093F802E9B8C29DC70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ VA - Vocal Atmospheric Deep Dubstep (Vol.3) (2014) [MP3|320 кб/с]<Atmospheric
 ```bash
 magnet:?xt=urn:btih:0ECD10CDDF55B54172C7240550022E53AA98DC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A69DA448B21101AB6AEF499426056285F1AFA73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ VA -   Drum & Bass Arena 2014 [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:279FE368985A336A254C4217FF4069F78381385F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26B26174E6DCF2E11C1B95D343F4F656608ECA02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6442BBE5D7A8F4B3435C2BD899682A8242ECAC34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ VA - Italo Disco Dance Sensation 2014 (2014) [MP3|320 кб/с]<Italo-Disco,Euro-
 ```bash
 magnet:?xt=urn:btih:A12E02BF774B4CA3AABB16E219B5EC8FF9070BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A4EF6E2B7486EB34FB88917CC927FFD4B1ABDF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ Condensspur - Several Miles Wide (2014) [MP3|320 кб/с]<Chillout, Psibient, Am
 ```bash
 magnet:?xt=urn:btih:15C061C4D1C12CAC13F3DF53DF7DDF8387C00902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ London Grammar - If You Wait Remixes (2014) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:416D649190A2F186F26308EA64E573624FC702C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ Focus - Golden Oldies (2014) [FLAC|Lossless]<Progressive rock, Jazz fusion>
 ```bash
 magnet:?xt=urn:btih:775627A901B99747E3B42AA928A880DFA27CC0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE300FAE7E1E9D27F4593C71C0E1290FBA881E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +442,7 @@ California Breed - California Breed (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4F8FCA3A2EFE0306504C8538162AAA6C6B3D114B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ Tag&Rename 3.8 RC1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BFD2B607F534CCCBCFE9651A018E166C86B2A6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ Balabolka 2.10.0.568 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:83FA93640462B267A61602996290A1F7887AABDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:1E0BE0283280310C41201158F44A2B0E2B9B8D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29438CB87E9FCD8371398EA39245D10C12610798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ VA - Billboard Hot 100 Singles Chart May Hits (2014) [MP3|~256 кб/с]<Pop, Eur
 ```bash
 magnet:?xt=urn:btih:7AC5ED81116C0C079C7F8D5761EDB305D5E68D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:549D71DF8E06B7A19F47ECE510820E9EA376FE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ Ted Nugent - Full Bluntal Nugity Live (2003) 2xDVD9
 ```bash
 magnet:?xt=urn:btih:639F3A92E550848624F7AE2BA24D98134B45D136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +671,7 @@ Chopin - Mazurkas, Waltzes, Nocturnes (Vladimir Horowitz) (2003) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:4BBDA92C62C88000787A6C675C460F589F5113FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ Restore Point Creator - полезный инструмент для созда�
 ```bash
 magnet:?xt=urn:btih:38AC680097145F473A2A39C153F2BF69A2892F36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ John Mayall - A Special Life (2014) [FLAC|Lossless]<Blues, Modern Electric Blues
 ```bash
 magnet:?xt=urn:btih:86D11E649FD531CE4A5DB9F8A65A30D4EDC42383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ Lils Mackintosh - In The Wee Small Hours Of The Morning (2002) [FLAC|Lossless]<V
 ```bash
 magnet:?xt=urn:btih:88993E5500F61631BA09474D89E12238A227E2F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

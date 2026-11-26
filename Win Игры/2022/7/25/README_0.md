@@ -19,8 +19,7 @@ Raji: An Ancient Epic (2020) [Ru/Multi] (1.6.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:41533C7EF6F46FCDE798BEB69560EF1C62751EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

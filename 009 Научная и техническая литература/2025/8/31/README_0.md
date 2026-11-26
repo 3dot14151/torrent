@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3996D990F4DD664B820EFB5962A7A2C679453A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:618E79E53C71D70754D57D001ECAB9DF73819DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B035C827E93EDB999A2479E054EBFC522C9E6463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ J. Heyrovsky, J. Kuta | Zaklady Polarografie (1962) [PDF] [Cz]
 ```bash
 magnet:?xt=urn:btih:3FDA1012C2E52A0AF9387BD9FB6BEA5947337E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

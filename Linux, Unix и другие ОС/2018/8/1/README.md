@@ -19,8 +19,7 @@ ArchLabs - это дистрибутив, основанный на Arch Linux �
 ```bash
 magnet:?xt=urn:btih:5857E0F6143F891D3B69936B5E127FAE607D2645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

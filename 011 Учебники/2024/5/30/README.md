@@ -19,8 +19,7 @@ This guide is based on a study of over 1000 manuscripts and reviewers' reports r
 ```bash
 magnet:?xt=urn:btih:38D7B86910C6CCE2396F920DBAACE94422A0EB86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Learn concepts together: The problem with many English pronunciation books is th
 ```bash
 magnet:?xt=urn:btih:E4F42F92C41F824B89407FAB99A4974AD478DDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD49AF74E291C6041034035C37A81D511103B770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4408982B13A4A536643E91F882A30A2824512C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

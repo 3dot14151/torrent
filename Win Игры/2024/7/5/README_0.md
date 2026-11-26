@@ -19,8 +19,7 @@ The Black Pool (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D695F4F1AC396273946A3C766F677A3C32ECBA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crystal Caves HD – переиздание классического плат�
 ```bash
 magnet:?xt=urn:btih:5AFE7C726768324B228281196494FBD463FE98AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Astor: Blade of the Monolith вставьте себя на место Асто�
 ```bash
 magnet:?xt=urn:btih:1CE04665C7A07BACC713BA91521F20FD30649EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Forge Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F46FA9B9A7F4C174E2E8AD508529B48BBBB22F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Baggage Inspector (2024) [Multi] (1.0) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:64A0AB559B8C94DBD4D8873E88035582CF537D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Flame Keeper (2023) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A657393AF99A2F95DE1B08DA59D997168F230910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Psychopath Massacre (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FD7C2F197481A991D96D164F748681D2C15E5D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ My Horse: Bonded Spirits ставит вас на место маловероя�
 ```bash
 magnet:?xt=urn:btih:9FAC8D1583F0EED384990200413920A6EAE57EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

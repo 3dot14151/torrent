@@ -19,8 +19,7 @@ Terra Genesis Mod v5.13 [Ru]
 ```bash
 magnet:?xt=urn:btih:5DA4381430B78053D0FEBF5AFB2C990B1B510EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Hungry Shark Evolution v8.0.6 [Ru]
 ```bash
 magnet:?xt=urn:btih:08A713AB6EE4DBBB247AB7BD3F2D1B15E4E12DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pocket - это программа для сохранения интересу�
 ```bash
 magnet:?xt=urn:btih:C5E32D6B50534729C44AF464D09AD6C021FF5BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FADA3FC685478C519C0278564DFD38724B36267B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clipboard Pro или Буфер обмена Pro - это приложение, 
 ```bash
 magnet:?xt=urn:btih:6E41EE5DF6210633751CE007586790DE1C1086B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:413C740CDADE7668EF3F28BC112E937055E45F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

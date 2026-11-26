@@ -19,8 +19,7 @@ Tiny Troopers (2012) [Multi] (3.5.7.45015) License PROPHET
 ```bash
 magnet:?xt=urn:btih:1DB5F180A4BAD2757542F99C8FF36B83408BCE2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Age of Conan: Hyborian Adventures – MMORPG, действие которой р
 ```bash
 magnet:?xt=urn:btih:9ACF8A3AE521A99007D80718E1DD4153E0097170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Burden Of Grief - Death End Road (2007) [APE|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:B57B11A7E71D45211A4C79712691A7F2F0C1E7C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Steve Conte - The Steve Conte NYC Album (2013) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:4CFA1EC323498284196790429D20FEE384468932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Hannibal - Hannibal (1970) Released 1994 [FLAC|Lossless]<Jazz Rock/Progressive r
 ```bash
 magnet:?xt=urn:btih:01BDAFB1966F1CAE143D28164A6FBD2D34A53854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Under Sanitys' Bane - A Cosmic Tragedy  (2014) [MP3|320 кб/с]<Symphonic Power
 ```bash
 magnet:?xt=urn:btih:2271A274F16618ECAD227EB0D030DCFABEB1F205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Gandalf - Gandalf (1969) Released 1991 [FLAC|Lossless]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:3AE0C4106D57FE724637B2D12F6F42347A98AAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Factory Of Dreams - Some Kind Of Poetic Destruction (2013) [FLAC|Lossless]<Progr
 ```bash
 magnet:?xt=urn:btih:CD1494D044A32E3733B3583ADAC1F61161F1A260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ October Falls - 7 альбомов (2005-2013) Дискография [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:C40B21BF2F62D297290CC92D0FEDBACB3423E3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Anberlin - Best Of Anberlin (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:D681DFC4D3B1F644706075E91FF5F2F1F20D4C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Electric Light Orchestra - No Answer (1971) Remastered /1990, Epic, Jet Records/
 ```bash
 magnet:?xt=urn:btih:73FC49DFD32A6D0FAF285514B168DBFDD46AC8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +320,7 @@ Pink Floyd - Wish You Were Here (Ceci nest pas) (1975 / 2012) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:032938FA9D749E1B8EC813EBEE4E677F35760ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ Ronnie James Dio - Rares In The Dark (2013) Bootleg 2CD [FLAC|Lossless]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:5E4BC8EE51D67759B92DC0E58E7595B7F6AE3152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +388,7 @@ Electric Light Orchestra - Time (1981) Remastered /2001, Epic, Legacy/ [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:47A1AD9E680377C983AFF88C07EAD142A484859C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

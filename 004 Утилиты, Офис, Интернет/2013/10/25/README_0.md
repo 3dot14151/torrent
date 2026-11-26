@@ -19,8 +19,7 @@ Comfy Photo Recovery восстановит цифровые изображен�
 ```bash
 magnet:?xt=urn:btih:75A7A3F1EE3DB21CE9ABC5164E98F9F8C5FF1148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

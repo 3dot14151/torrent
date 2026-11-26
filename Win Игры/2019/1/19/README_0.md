@@ -19,8 +19,7 @@ Macabre Ring 2: Mysterious Puppeteer (2019) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:5EC989351DD1D6365E2BBE45491A9CC13B596161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mosaic Game of Gods III / Мозаика. Игры богов III (2019) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:1A6DFFE7556E2B8269ED4CE7EF34AEAFA6098FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fishing Sim World (2018) [Ru] (1.0/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:E5281D2B92FEBE74EB195909BC605EBE8D3CE7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

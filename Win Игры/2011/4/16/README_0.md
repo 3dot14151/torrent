@@ -19,8 +19,7 @@ Mystery Novel (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:04B2FD4D2843E4A6B7114A3CAE4024D246D95B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Agency of Anomalies: Mystic Hospital Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:1FF1EF99E50F95EA94EA2446BEA921379E4E80EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

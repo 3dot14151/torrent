@@ -22,8 +22,7 @@ A4 Прелюдия Из Сюиты №1 Для Виолончели(   Чита
 ```bash
 magnet:?xt=urn:btih:21480DE1E677ECB37545423534545BAA5F3B1E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A3 Танец Анитры / Anitras's Dance(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:13A67462BC9BE8EFDE94623495A684805E25CF81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

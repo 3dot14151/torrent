@@ -22,8 +22,7 @@ VA - Formentera Solaire Chill (2019) [AAC|~324 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:7E3F0BB4357212FF902419B61E9F9C3C4C90E759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Electrixx - Frequenzstörung (2013) [AAC|~252 Kbps] <House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Morocco Solaire Chill (2020) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Audioholic (Groovy Deep-House Tunes), Vol. 2 (2022) [AAC|~323 Kbps] <House,
 ```bash
 magnet:?xt=urn:btih:C5FF328E06495FD0AE5A7B8DA5F8B915EF1B84FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Santorini Solaire Chill (2018) [AAC|~318 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:D9750F43DE1225B8D998B739A454D09D11CBA905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Lounge Atmosphere, Vol. 1 (2022) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ VA - Notes from the Depth, Vol. 2 (2019) [AAC|~331 Kbps] <House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Notes from the Depth, Vol. 3 (2019) [AAC|~332 Kbps] <House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Notes from the Depth, Vol. 1 (2019) [AAC|~330 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:CE718AB76F6CC9A9D3A2856934816314C019AB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Deep-House Fashion Grooves Milano (2022) [AAC|~319 Kbps] <House, Deep House
 ```bash
 magnet:?xt=urn:btih:21899169AD304CD5275CAB14E424243310ED5C02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ VA - Chill & Flowers: Chillout Your Mind (2022) [AAC|~315 Kbps] <Lounge, Chill O
 ```bash
 magnet:?xt=urn:btih:EAF05FD9FE233844C2B0911494566C21A7E61413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Талисман (Песни композитора Дмитрия Прян
 ```bash
 magnet:?xt=urn:btih:93C21FAD72BD8446F501652EB081E9F248356A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ DrawPad - это программа графического дизайна, к�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ VA - Lounge Jazz In Rome (2022) [AAC|~326 Kbps] <Jazz, Nu Jazz, Lounge, Easy Lis
 ```bash
 magnet:?xt=urn:btih:ECAA4E00F5F1F383BAD75C6F4D71BB5172850223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ VA - Lounge Jazz In Madrid (2022) [AAC|~329 Kbps] <Jazz, Nu Jazz, Lounge, Easy L
 ```bash
 magnet:?xt=urn:btih:EF4F027C3401318B86F1C0D1B208DB0F5579FEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ VA - Lounge Jazz In Amsterdam (2022) [AAC|~324 Kbps] <Jazz, Nu Jazz, Lounge, Eas
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Coming soon 3 v3.14 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C2CC9BC16BD44D539EE0D249B72444040C80FCD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ Obscura - A Valediction (2021) [FLAC|Lossless|image + .cue] <Technical Death Met
 ```bash
 magnet:?xt=urn:btih:616046319578FB49BA4C7F92ACB8BC20BB0B2112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ Lucifer - Lucifer IV (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Doom Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Steel Rhino - Steel Rhino (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy 
 ```bash
 magnet:?xt=urn:btih:6438165F8CD2E45880559FF156622E3F4C51415B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A204E51F96FF1DE766B42E18DACE5B44A5F5464D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:88F0ED2E6E56D8DBF2113CA56F0536088DEFF8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ TinkerTool System - утилита для управления скрытыми 
 ```bash
 magnet:?xt=urn:btih:6E40506E9CA78963D312859312960030F6B2878C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ Airtool 2 v2.3.6 [En]
 ```bash
 magnet:?xt=urn:btih:5E9171B8CFCEFC2966633A37BAE8D60FD08AC769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ HitPaw Watermark Remover 1.2.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3A7106677CCE1BA68E69C4E7256990139EA0E397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ CD - 1 - Иди ко мне:
 ```bash
 magnet:?xt=urn:btih:942950FF5B39411B5415C0CF417D7B808DCFDB47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

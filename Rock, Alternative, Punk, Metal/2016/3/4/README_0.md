@@ -22,8 +22,7 @@ Mortal Terror - Creating Destruction (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D3B111FDB57CCA4DBEF2E89F4B6E2750E677695D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Animal ДжаZ - Не Твоя Смерть (2016) Single [MP3|320 кб/с] <Roc
 ```bash
 magnet:?xt=urn:btih:805DF8B3402838C34C4C222090FD7A2AAA0978CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Slade - Gospel According To Noddy (2006) [MP3|320 кб/с] <Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:B6CB10485C8020F64B7C60BA72D32DB0652BD9C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28D798410A002E232D31507BDCD83D179E2136D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

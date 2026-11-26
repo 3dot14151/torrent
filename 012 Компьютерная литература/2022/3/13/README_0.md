@@ -19,8 +19,7 @@ Steve Santello, Alan R. Stagner | Building an RPG with Unreal / Построен
 ```bash
 magnet:?xt=urn:btih:62A7DC6E13EDB876F0C5FCBF1B24AC857444C048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

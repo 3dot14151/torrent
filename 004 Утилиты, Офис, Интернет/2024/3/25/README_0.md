@@ -19,8 +19,7 @@ Edge Blocker – бесплатная портативная утилита дл
 ```bash
 magnet:?xt=urn:btih:240E2E4C234865EC87EEAAACE941BCCE7D8EB62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

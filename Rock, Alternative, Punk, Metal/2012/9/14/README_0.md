@@ -28,8 +28,7 @@ The Walkabouts - Satisfied Mind (1993) [MP3|160-320 кб/с]<Indie rock, Alterna
 ```bash
 magnet:?xt=urn:btih:3464A507A907668EF85AB76F2D3B2D45E291DEA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Beautiful Beast - California Suntan (2012) [APE|Lossless]<Hard Rock, AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ The Karma Party - Dark Matters [Ep] (2012) [MP3|320 кб/с]<Punk Rock / Rapcore
 ```bash
 magnet:?xt=urn:btih:70C271EC2A7075A67DDB4952B31F8D696DAA618F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Bullet - Full Pull (2012) [MP3|320 кб/с]<Hard N' Heavy>
 ```bash
 magnet:?xt=urn:btih:42BAED4636AF2FBA1385918FD995E40E01B419D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Hess - Living In Yesterday (2012) [APE|Lossless]<Hard Rock, AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Dj Make Illusional a.k.a Project Oxid - 13 релизов (2004-2012) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:8EE799BAFA079A354B3398F287AC989091554F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Hoobastank образовались в Лос Анджелесе в 1994 год�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Cinderella - Still Climbing (1994) /2002, Monsters Of Rock Records/ [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Deep Purple - Machine Head (1972) Remastered /2011, KronStudioLab Int'l/ [FLAC|L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

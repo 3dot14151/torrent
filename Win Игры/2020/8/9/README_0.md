@@ -19,8 +19,7 @@ PuppetShow 16: Fatal Mistake / Шоу марионеток 16: Роковая о
 ```bash
 magnet:?xt=urn:btih:670FFF130398940C7371D977197DA5060863A725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cila, полицейский ветеран с кислыми лицом и пр
 ```bash
 magnet:?xt=urn:btih:EAECA9B427C30E64A8F853AD4200A3DFFF216B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

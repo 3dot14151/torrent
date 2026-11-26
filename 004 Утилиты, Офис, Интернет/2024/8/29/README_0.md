@@ -19,8 +19,7 @@ Anthemion Jutoh - программа для создания электронн�
 ```bash
 magnet:?xt=urn:btih:4A6EDDC25B2A1EE8308CAF96E269E6843503AEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

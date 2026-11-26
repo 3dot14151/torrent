@@ -28,8 +28,7 @@ C4 Enter Tragedy 3:59(   Читать дальше...)2011Жанр: Modern Melod
 ```bash
 magnet:?xt=urn:btih:C86D3E59222B4B561AEDE83FE59CFE2249C7A5D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ The Beatles "The Collection" MFSL Box Set (1982) [FLAC 2.0 24/96|tracks (Vinyl-R
 ```bash
 magnet:?xt=urn:btih:5E21EFBF4FD2943EBA157AC30485A9FE0795BD4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

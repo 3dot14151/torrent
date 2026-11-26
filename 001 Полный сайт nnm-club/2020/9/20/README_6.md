@@ -18,8 +18,7 @@ Shiny Summer (Блестящее Лето) — это увлекательная
 ```bash
 magnet:?xt=urn:btih:D8A90CA3B532F62367CED419EF2F36C1871475A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C163F1BF861EE775ADC57F59652236A4A8A2A8B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DF15C38A9F3AA9D51AA5F609321E323FA76B6D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Bob Seger - 23 Albums (1969 - 2018) 36 CD [FLAC|Lossless|image + .cue|tracks + .
 ```bash
 magnet:?xt=urn:btih:1D207B89BC2CCB39DBB5264BE53350EEBA5F0B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B69B98C5C2361B8CF15A80B5E89B1DE0810CE1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ _x64_dvd_6d82e352
 ```bash
 magnet:?xt=urn:btih:6977C5DFF92C075931E5569701958F174F616705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Hot Lava (2020) [Ru/Multi] (1.0.431329) SteamRip Goldberg
 ```bash
 magnet:?xt=urn:btih:5A6BCC87959218D24D0F97512550F2EB14456535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Multi] (1.0 373 34341) Re
 ```bash
 magnet:?xt=urn:btih:9062B2663A90B2024B97EBC5CFF9A98130275116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6BCB13D7D0691F2F1564DF972D0305940785641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E05CEF32C2AFB02E638FF8AB351C439634D6E6BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ FastStone Image Viewer - вьювер, редактор и конвертор г
 ```bash
 magnet:?xt=urn:btih:7DAC39CC3A7E6BE766E30D490560BE86910CE751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ ABBA - Дискография (1970-2007) 65CD [MP3|320] <PoP, Rock>
 ```bash
 magnet:?xt=urn:btih:57AA7421DC40855AA070D63DC20FD3DA5087F7EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 09.2020 2DVD
 ```bash
 magnet:?xt=urn:btih:26A7D94D703B6D9D0CF316118CF4ECA636F7F7A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Sword Art Online: Alicization 2 / Sword Art Online: Alicization - War of Underwo
 ```bash
 magnet:?xt=urn:btih:2CE1D44B68C29EF142666B8CD561202ABDA5D493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5845387E18618352E2F1864B974AB7EC0EB3E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22D57BE45D6CCBAC61D84B4A11A6209D159B42FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Icarus — бесплатная многопользовательская ро�
 ```bash
 magnet:?xt=urn:btih:83D0CB54DE614C5F974181343FD1A26785CD0EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4842A147D00E7281AFAD5FD6CF765E3FB17952BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +481,7 @@ Chris Biesterfeldt - Phineas (2014) Self-Released [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:3A86E7C8A50E5DB7A613FFB982B9F04FEC467B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ Sidney Bechet & Martial Solal - When a Soprano Meets a Piano (1957) 2009, Inner 
 ```bash
 magnet:?xt=urn:btih:95BD5F1D9568E0666FCAA107461F41A9334DE90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ Sarah Davachi - Cantus, Descant (2020) [AAC|~229 Kbps]<Electronic, Ambient, Mode
 ```bash
 magnet:?xt=urn:btih:F58AC4C09E4C0FC20586F169F3AA4A694D56BEBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ Ariah - The Spire (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Djent
 ```bash
 magnet:?xt=urn:btih:ED236042CFA6022DDA27A2DBE42595FB968D5827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

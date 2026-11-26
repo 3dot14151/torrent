@@ -18,8 +18,7 @@ Gothic / Готика (2011) [Ru/En/Ge] (1.08k/1.1e/dlc) Lossless Repack R.G. Or
 ```bash
 magnet:?xt=urn:btih:7AA163F30C80E6372DAE94E35323DD646D713CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Gothic 3 / Готика 3 (2006-2008) [Ru/En/Ge] (1.75.20108.14/2.1.17414.8/dlc)
 ```bash
 magnet:?xt=urn:btih:952BBDBBAD8E579675FD4E49FD7B290B78AD6287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:416C5EEE6868297AE6ED67B7B68EB72776124A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Windows 7 Профессиональная SP1 x86 (OA CIS and GE) 6.1.7601.1751
 ```bash
 magnet:?xt=urn:btih:E307DE3D80B2F393719AA8F88727A2722911760F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

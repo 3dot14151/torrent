@@ -19,8 +19,7 @@ Aka Manto предлагает пользователю увидеть инте�
 ```bash
 magnet:?xt=urn:btih:3A8A9836593F705341BD035CEB0C1E990E439C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stigmatized property - игра, вдохновленная японскими �
 ```bash
 magnet:?xt=urn:btih:7C141CDE7D686A36D8913B5D11620E3BF1E276C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Garden In! (2023) [Multi] (1.0.8) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CE0812FE09D6A7ADB3603394F5E82739ED287D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Inunaki Tunnel (2019) [Multi] (1.0) Scene DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:C625002E3379893960EFAC33F3DCD6F778744D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Yuki Onna (2020) [Multi] (1.0) Scene DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:D80145C8AECB9C07951ED9862A843214B0C41537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ocean Pressure - это однопользовательская игра, в к
 ```bash
 magnet:?xt=urn:btih:B5869E86C634A7938A061A63C28412FF91F3CD4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Valor & Victory - это быстрая, легкая в изучении игр
 ```bash
 magnet:?xt=urn:btih:EC09B030CF5EECA99DB95361E4F72B4574123109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

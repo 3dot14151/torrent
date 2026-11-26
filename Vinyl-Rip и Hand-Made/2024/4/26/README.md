@@ -22,8 +22,7 @@ Lords of Black — испанская хэви-метал группа, осно
 ```bash
 magnet:?xt=urn:btih:213090019EF8466C5CBDDA023E97FD4FCFF9A511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Dance(   Читать дальше...   )Жанр: Hard Rock, Arena RockПр�
 ```bash
 magnet:?xt=urn:btih:77F674647C58623CB1816A4780308B3CD99FEC2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Aggressor - Procreate the Petrifactions (1993) Released, 2012, Roundsound [FLAC|
 ```bash
 magnet:?xt=urn:btih:07B6856692434CD8262EFA6E9E9F3B7089D8E247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

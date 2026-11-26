@@ -22,8 +22,7 @@ RACE Injection [Ru/Multi10] (RePack/1.2.1.1) 2011 | SxSxL
 ```bash
 magnet:?xt=urn:btih:3B66D00DD0FAFFCEA7B01561BE99BAF63F856EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Death Track: Resurrection / Death Track: Возрождение [Ru] (RePack/1.2
 ```bash
 magnet:?xt=urn:btih:EBD76EDD2B634BBF3B9AB49824DAD1A5E2E40EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ There and Back - это платформер-головоломка. Главн�
 ```bash
 magnet:?xt=urn:btih:19A0EAD5795751A5364D560987333FBB2625E15A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ MahJong Suite 2012 {v9.0} [En] (P) 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:8452FE0337B2775FB8A5852E4363407E8E1DAE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Solitaire Mystery: Stolen Power / Магия пасьянса (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:04388AB1625A0575A0EC066E504D54843B72782B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

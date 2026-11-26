@@ -19,8 +19,7 @@ Blue Madonna: A Carol Reed Mystery (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:0607AE724CDC6153777C19127693B9CA406B370C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8ACA46BF4FF77DE4F514ADDAA9086B2C532147E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

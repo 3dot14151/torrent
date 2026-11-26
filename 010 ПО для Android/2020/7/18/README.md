@@ -19,8 +19,7 @@ Track24.ru 1.95 (Lite Mod) [Ru/Eng]
 ```bash
 magnet:?xt=urn:btih:A2B1EC4A2D2CE1563622FEFC78562D9C2BECEC18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

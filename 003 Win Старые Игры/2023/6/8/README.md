@@ -19,8 +19,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A36368CF453A5C4FADF10A436547AB14C9494F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

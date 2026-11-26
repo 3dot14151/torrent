@@ -22,8 +22,7 @@ Cardinal Sin - Spiteful Intents (1996) [WavPack|Lossless|image + .cue] <DeathMet
 ```bash
 magnet:?xt=urn:btih:3658E34E1AD9FAAE1040379B08556690A0AD47EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rob Balducci - Balance (1995) [FLAC|Lossless|image + .cue]<Instrumental, Guitar 
 ```bash
 magnet:?xt=urn:btih:651631FBF3AF04FCFB4602BAA1E2BE8CBF365C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

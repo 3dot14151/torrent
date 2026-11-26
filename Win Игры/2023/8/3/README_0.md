@@ -19,8 +19,7 @@ Knights of Braveland (2023) [Ru/Multi] (1.1.4.50/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:DC492B914B6912AB13FAD2AC2F141D774FA1D11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

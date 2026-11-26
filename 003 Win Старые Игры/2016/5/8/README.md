@@ -19,8 +19,7 @@ I and Me (2016) [En/Zh] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:66C89DBA47F57975D437A34AE89885CE18F867A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

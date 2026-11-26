@@ -22,8 +22,7 @@ For The Fallen Dreams - Six (2018) Rise Records [FLAC|Lossless|tracks + .cue] <A
 ```bash
 magnet:?xt=urn:btih:E9DFD2352771657E5620CB9F31DA17789AD7D664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Suotana - Land Of The Ending Time (2018) [MP3|320 Kbps] <Melodic Black Metal, Me
 ```bash
 magnet:?xt=urn:btih:632AB7B330D4EF0D0C211E4DC43FC9A9CF3057AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Broken Teeth - Blood On The Radio (2004) [FLAC|Lossless|tracks + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:0ECAE7720DE98919F4972878C41D157690C087C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The White Stripes - Icky Thump (2007) [FLAC|Lossless|tracks + .cue] <Blues Rock,
 ```bash
 magnet:?xt=urn:btih:8E4176810F10A77CFB894CAFC3D5B75B8C97F1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The White Stripes - Elephant (2003) [FLAC|Lossless|tracks + .cue] <Rock & Roll, 
 ```bash
 magnet:?xt=urn:btih:55EEA8E64F9106118A27D013672C981FBEF03B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

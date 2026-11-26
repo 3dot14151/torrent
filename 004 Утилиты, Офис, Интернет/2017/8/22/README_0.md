@@ -19,8 +19,7 @@ AnyReader - копирует данные с поцарапанных диско
 ```bash
 magnet:?xt=urn:btih:C6C458092CB39CBE8FE50FBF33156D752BC79E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

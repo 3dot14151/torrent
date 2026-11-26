@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6C56EB01C13D874791862EBA08412D8A53ACDFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:774653BD668775B831C50C68A421B3EBD40B3874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ED532FD0C2CEE00DC4CC7D1D5E650D3E93C8927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Tango Fusion - Electro Deluxe (2013) [MP3|320 кб/с]<Electronic, Tango>
 ```bash
 magnet:?xt=urn:btih:82F4C877F0EC36F06440059FF8928A1853D1018E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Legion - State Of Decay (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:DD36AD5288BE8D69F255B55C2F2C2CC30FD4F0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D45353B62F7D93DEFDD2E7F8E672E1721FBE3A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A262D96C03A8B5B4D860AF6A483E4BAAD35AAEB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Manowar - The Lord of Steel Live [EP] (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1AAB40A275CBDC3B69FD2F3CED4B54DDBEDAAA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D14E1B16A702D418D7D787932982485EC2E46F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:238946F0B922333D252CFCE7D857BE6BF275CCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ Turisas - Turisas2013 (2013) Limited Edition [FLAC|Lossless]<Folk / Symphonic Me
 ```bash
 magnet:?xt=urn:btih:F3A8166D608D7D25E5261E79604B02DBC398014C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ VA - Pure... Rock (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:A3DB7BEFD818E4711F2C49AF98BF25AA0D14B440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ VA - Удачный Хит На Радио Дача (2013) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:BAFF39F72644A2FC1E8536C7AE0EF58048912599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B085717E4CB9619B29C848220E2EA22DA2A98C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ Earth, Wind & Fire - Greatest Hits Live (1996) [FLAC|Lossless]<Funk / Disco>
 ```bash
 magnet:?xt=urn:btih:E226339184DCEFCB99C56A0B2DE0A82DD1E27633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:159C8606BEF59ED0C9AAA85D0C8296DFC6E1E0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ VA - Супер Дискотека От Ванюши - 2 (2013) [MP3|128 кб/с
 ```bash
 magnet:?xt=urn:btih:A2EC507D77A6D58D74607AAB668D44727021F054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ Italover - Silent Sadness & Girl In Love (2013) [MP3|320 кб/с]<Italo Disco>
 ```bash
 magnet:?xt=urn:btih:325E8CBE40A595825535D207F2C39382E16E2777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ Ore no Kanojo to Osananajimi ga Shuraba Sugiru / OreShura / Моя девушк�
 ```bash
 magnet:?xt=urn:btih:F531920DD44AF32CD516DCF9E4BF820F1F0177B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +601,7 @@ Peter Frampton - Best Of FCA! 35 Tour: An Evening With Peter Frampton (2012) 3 C
 ```bash
 magnet:?xt=urn:btih:4A7085647461D23C3B453AF049A47B6DD96F5C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6129CAFA9295D5AC41848B8B3D77F3B9D4B56D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +660,7 @@ VA - Вспомним былое на Авторадио (2013) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:2B01777DADD5623B26BDF2A9153BC2A98292102A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ Gakuen Tokusou Hikaruon / Campus Special Investigator Hikaruon / Хикаруо�
 ```bash
 magnet:?xt=urn:btih:48629CC61913A488F43ED8F47174D8B6521DAFC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB1E54ECBD579BD6E9FAA1854EDBCBCE8A9758D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +744,7 @@ VA - Золотые Дворовые Хиты (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:486411786FF15668359E2AD950C2954379CE14BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

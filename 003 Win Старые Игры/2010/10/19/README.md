@@ -19,8 +19,7 @@ Syberia / Сибирь Антология [Ru/En] (RePack) 2002-2004 | R.G. Cata
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

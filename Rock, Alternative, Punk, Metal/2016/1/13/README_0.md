@@ -22,8 +22,7 @@ Sniff 'n' the Tears - Underground (2000) Remastered, 2013, Chapel Productions [F
 ```bash
 magnet:?xt=urn:btih:68336AC3FF0E6ED0A42A12A1459A988447790E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Paul Roberts (ex.Sniff'n'the Tears) - Kettle Drum Blues (1987) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:F1153053C5B8FC87DD42753E349C3E1BCD278750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ My Dear Addiction - Kill the Silence (2016) [MP3|320 кб/с] <Modern Metal>
 ```bash
 magnet:?xt=urn:btih:783CB8199EC04D186ADB7551AEB0F7AD17A00D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

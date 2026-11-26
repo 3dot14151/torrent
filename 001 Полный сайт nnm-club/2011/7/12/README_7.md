@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E5C581C0784DCDCEFF9A6D829352951E5CB5490A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Bioshock [Ru] (RePack) 2007 | Fenixx
 ```bash
 magnet:?xt=urn:btih:6F552E8B15AD6BF1D758709A95E716E50C29EBD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hellgate: London [Ru] (RePack) 2007 | cdman
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Perimeter 2: New Earth / Периметр 2: Новая Земля [Ru] (L/1.0.1
 ```bash
 magnet:?xt=urn:btih:FE5B2F1C968C83C74805F74CD260BCCA7FA324D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Borland Delphi 6.0 ENG/RUS
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ The Prodigy - Best Hits (2011)
 ```bash
 magnet:?xt=urn:btih:FAEAB7DA630830C28532918CB3964B428F907C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Harry Potter and the Deathly Hallows Part II / Гарри Поттер и Дар
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Microsoft Windows 7 Максимальная SP1 IE9 x64 WPI 6.1 7601.17514 [Р�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ AntiWinLocker - это защита от блокировщиков Windows, о�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Harry Potter and the Deathly Hallows: Part I and Part II / Гарри Потте
 ```bash
 magnet:?xt=urn:btih:32A6E38A879F9B53D72E6273CB95978A38ED091F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Mac OS X 10.7 Lion Golden Master
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Coral - Move Through the Dawn (2018) [FLAC|Lossless|tracks + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:41FFB708D719758CBB803661A3E623AEB08CD24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sworn Enemy - Gamechanger (2019) [MP3|320 kbps] <Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:915A7C6A4FCB06AEFF7CF6CA15547635A39459DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Band Of Light - Total Union (1973) CD, Reissue, Remastered, 2006, Aztec Music [M
 ```bash
 magnet:?xt=urn:btih:5991178B3B8492F363102ED29EC1C56C9C5222E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ MONOЛИЗА - Ни черта (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1A695C00D35510A08B82DA67937A3EAC8EDF67F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

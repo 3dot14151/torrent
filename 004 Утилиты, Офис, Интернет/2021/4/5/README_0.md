@@ -19,8 +19,7 @@ Ultimate Calendar – это простой в использовании, бо�
 ```bash
 magnet:?xt=urn:btih:3B48C626DCAD04A908D4A7B15F2A59EA66CF3024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

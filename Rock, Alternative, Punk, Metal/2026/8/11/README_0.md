@@ -22,8 +22,7 @@ Iommi - Iommi (2000) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9238053F0ECE29B697D7009CF136F031E4265285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

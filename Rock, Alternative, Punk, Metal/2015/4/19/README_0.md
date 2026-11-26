@@ -23,8 +23,7 @@ Europe - Original Album Classics 1983-1991 (2015) 5CD [FLAC|Lossless]<Hard Rock,
 ```bash
 magnet:?xt=urn:btih:9799418705CFD002B698925371B927FD6BDD130E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

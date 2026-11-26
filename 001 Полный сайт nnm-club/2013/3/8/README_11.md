@@ -26,8 +26,7 @@ Photophobia - The Seven States Of Mourning (2012) [MP3|320 кб/с]<Depressive B
 ```bash
 magnet:?xt=urn:btih:9AD1334C9ADAE9E4F03988341425B2F375867053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4CD8053AE5AFAA3377B2536A879CAB0394194C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ OZ - Зима на проводе [EP] (2013) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:251DBC1F8CDD14DCA0DB764D396485AE3D2EBB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50FC4BA123B97A509A6EB8B6D0548BDB3DE4D32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73364077BD3C3CFC21BCE6B1F75D06CDE00A0B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Dalai Lama - The Sixth Turtle (2008) [FLAC|lossless] <Alternative Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Dana Dragomir - The Best (2000) [MP3|~190 кб/с (V2)]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:36AD7E254DE031B917DAA287662CAFD09E5EA4B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5539D6CB826895A1F7BF57D69F6FE326658143B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Max Graham & Protoculture - Cycles 100 Live @ Space Sharm (04.03.2013) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:359C97F40C51C5BB5651FEF1B5C47C7659CAED60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ Embellish - Blindead (2012) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:F0E742832F3F47B240558A11B727D1FF3418B5DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ Process Lasso Pro - небольшая утилита, позволяющая в
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ VA - Весенняя Энергия Страсти. Зарубежный (2013)
 ```bash
 magnet:?xt=urn:btih:EA6F1AA9779DB69ACC3CC2B85EC8998C6CD2319D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +394,7 @@ Bourgeois Tagg - Yoyo (1987) [MP3|192 кб/с]<Pop Rock, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:03FC07CF8609BCA0F94C12496691CFE0EB747516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAFF651C29549EF6D936B667FAE6C5C6AEE816C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +453,7 @@ Dmitrij_frei, Kirill black - Последнее танго в Париже (2013
 ```bash
 magnet:?xt=urn:btih:DC6F3E16A6E29F1F128F72981FBF3440782478AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AC986CE507F4B56DB3C5E6CD07248C351A05BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:032035D7AF98E60CF9F541E93E94BD67E626804B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +550,7 @@ Jared Evan & Statik Selektah - Boom Bap & Blues (2013) [MP3|320 кб/с]<Hip-Hop
 ```bash
 magnet:?xt=urn:btih:34D5E04484ABE08F357C084B99D8DE4BE8326CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +579,7 @@ DotsBand - The Living Truth [EP] (2013) [MP3|320 кб/с]<Rap|Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:BDCBFF0470E8A3FDB7C48CBA03696EABA2CF7781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +610,7 @@ Herb Ellis & Joe Pass - Seven, Come Eleven (2003) [FLAC|Lossless]<Bop, Guitar Ja
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1058529F53EF4FA0992ADE762C1C69BE1D690007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +673,7 @@ VA - Модный топ-хит. Выпуск 50/50 (2013) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:C3776CF1A6E5F67C0E24881125A6F4DC7A2A76E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBB7124A078F65DA7E106B84EBF57B9D094B499A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +724,7 @@ InfoCity – ежемесячный журнал о компьютерной т�
 ```bash
 magnet:?xt=urn:btih:E773B7B346DD99CA25DB3649696CBD310AAF4903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -782,8 +758,7 @@ M.Family - Вопросы Времени (2013) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:BD74A1A1FF2D2613B48FCC9BEB8289713586692E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -808,8 +783,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4932ED5E1D3AB23BD5949E41685351164BAE350D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

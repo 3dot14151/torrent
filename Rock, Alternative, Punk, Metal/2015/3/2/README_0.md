@@ -23,8 +23,7 @@ Sarin - Burial Dream (2015) [MP3|320 кб/с]<Post Metal, Post Rock, Sludge, Exp
 ```bash
 magnet:?xt=urn:btih:C0D1968ADAB2EED1F052AEA9E97EBA5D63C44D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Drawn Awake - The New Era (2014) EP [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:06FACD27C8EBBEB9200B470B1B9DA62861B1B09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Evolvent - Whatever Happens (2015) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:1B1D79188DD53FD8C4EE133CAA498CC78A001345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Winter Calling - As Darkness Falls (2015) [MP3|320 кб/с]<Hard-n-Heavy>
 ```bash
 magnet:?xt=urn:btih:F3866613F6F232292A5CE90F2BC0CA6E644C00E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ The Agonist - Eye of Providence (2015) [FLAC|Lossless]<Melodic Death Metal, Meta
 ```bash
 magnet:?xt=urn:btih:C1B780B579078C020A7D6C3D042E4D1823B68B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ The Lion's Daughter & Indian Blanket - A Black Sea (2013) [MP3|~245 кб/с (V0)
 ```bash
 magnet:?xt=urn:btih:E309741B502835A5935D1E175623B249273AFA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6345AC0F6FDC3AE4C0A8EEEF99CEAF70375EE69C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ Epica - The Quantum Enigma (2014) 3CD Earbook Edition [FLAC|Lossless]<Symphonic 
 ```bash
 magnet:?xt=urn:btih:464C1B15DADFE0274906C5789C3D5C64E27FE6A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA46849DA3E685D4591C733AB9F33C350DFE9658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D784952FDFE9C608ADF322F7E41629DD8F414566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6CC864C8F9799E545E659B1FB41226DD3A2D925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ Europe - War of Kings (2015) Deluxe Edition [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3D643A94A749D800C56D7C98498D69A7797A7C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

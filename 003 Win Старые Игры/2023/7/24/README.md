@@ -19,8 +19,7 @@ Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:0C9483337D8D1F21471BD123A0D2EBC7AB55958C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

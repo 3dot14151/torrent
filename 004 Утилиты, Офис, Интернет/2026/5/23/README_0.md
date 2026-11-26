@@ -19,8 +19,7 @@ VX Search — это автоматизированное решение для 
 ```bash
 magnet:?xt=urn:btih:7934652F0EA056BE152EF6F0F956CC6764BC39C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SoundSwitch — легко переключаемся между звуковы�
 ```bash
 magnet:?xt=urn:btih:1708E7E7908B6889FDA205BE725CFCEB8D136ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

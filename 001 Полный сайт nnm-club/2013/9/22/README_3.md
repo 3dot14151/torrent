@@ -27,8 +27,7 @@ Unanimated - In the Light of Darkness (2009) [ALAC|Lossless]<Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:B0499A0B7BB1A67480ABC7CF4BC6FF91208E0381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:206B689ED865C32FF7F935CFA2223736D057CB93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Earth, Wind & Fire - 3 альбома (1998-2003) [FLAC|Lossless]<Soul, Jazz Fun
 ```bash
 magnet:?xt=urn:btih:9EDF7BC5B1FDE95636D308AEBBCC4A0FE6B54189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Al Marconi - 4 albums (2000-2011) [MP3|320 кб/с]<Instrumental, New Flamenco, 
 ```bash
 magnet:?xt=urn:btih:DA56A2468A64DB0A2DB0279696F6A8A93E8B42CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Josefine Cronholm & Ibis - Wild Garden (2002) [FLAC|Lossless]<Jazz, Vocal>
 ```bash
 magnet:?xt=urn:btih:9F67688A16CA375A337097A624A1A5172FC5F58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Whitney Houston - Whitney (1987) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:CDC7CDBC43E9D6E84739F70C6443DCBD85BB98B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ Dr.Web CureIt! 8.2.0 (22.09.2013) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3083E4FC552D579D11E3573E4A94C8773E29CD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ In Flames - The Jester Race (1996) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:A8EF3C8D408D01D71A88A62815547693ED058BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EC6262F4CD47099094FFB2C73A5798B7D9E9E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ Angry Birds Star Wars 1.4.0 (2013) [En] [App Store]
 ```bash
 magnet:?xt=urn:btih:6DB5449E713B17FBFD607DEA0C3040EF28558C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ Jackson Garrett - Speechless (2010) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:14D711308D5841CA938995607EE593DCF33302E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ Kwheezy 1.2 (Debian + KDE) [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:82FCF2E6845027BE8C5B8ABC888C2B264AB1A469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ Behind the Scenery - Nocturnal Beauty of a Dying Land (1997) [ALAC|Lossless]<Mel
 ```bash
 magnet:?xt=urn:btih:AAB6AE826D0803EB676FA5984F18FF7C60E17AC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ Selena Gomez - Stars Dance (2013) /Universal Music Russia/ [FLAC|Lossless]<Pop M
 ```bash
 magnet:?xt=urn:btih:0F0B4D6B614741E70E3FE46F23C414C1A3320F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +464,7 @@ Nirvana - In Utero (1993) 20th Anniversary Edition /2013/[AAC|WEB-DL|256 кб/с
 ```bash
 magnet:?xt=urn:btih:ABADC4F02E221F06598CB096C7D29CF20D4866F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ B5.The Sketch :: 01:43(   Читать дальше...   )Жанр: Synth-popФ�
 ```bash
 magnet:?xt=urn:btih:115C178CA2B24E572861C725E773EB3FBFEA0A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +532,7 @@ Personnel:Жанр: Crossover Jazz, Hard BopПродолжительность: 
 ```bash
 magnet:?xt=urn:btih:8CF4E113FB98F7CE366F1EAEC02CA01C1342BEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +557,7 @@ Stand Up. Выпуск №1 (22.09.2013) DVB [H.264]
 ```bash
 magnet:?xt=urn:btih:B1646146614891BD8917FAA5C1143857C744D8E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +591,7 @@ Karla Bonoff - All My Life: The Best Of Karla Bonoff (1999) /2005, Sony Music/ [
 ```bash
 magnet:?xt=urn:btih:4C77E94B8EAF94FD04E97732513F713D179D5A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +616,7 @@ Stand Up. Выпуск №1 (2013.09.22) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:937FBC43890C8DBD6B867B17F0B93F3BBF1CFF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +649,7 @@ VA - Footloose OST (1984) 15th Anniversary Collectors Edition /1999/ [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:311890F2C066A62972A3594DB40AD2CCE76B4E1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBB1E1217A816E85B8D7DC3CD33241E50AC6E03E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E1867EC5F24875952C54B9800943C9690029253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +739,7 @@ Krewella - Get Wet (2013) [FLAC|Lossless]<Dubstep|Electro House|Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:3A3DB5FF6EC301A6C849A9AF087767C4EFB62E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +766,7 @@ Windows 7 Manager - утилита позволяет пользователю �
 ```bash
 magnet:?xt=urn:btih:9A10ECF862C7CEADFEB247911DBE4891BFDC00D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -823,8 +798,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:767D923DAF5699C092CA5627CE8B00A0846392E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

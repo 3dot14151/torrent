@@ -19,8 +19,7 @@ Mars Horizon (2020) [Ru/Multi] (1.4.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:561CDB327DB10F7A19B575E0FF3D8E4E0BDB0CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ THYMESIA — это жестокий и динамичный ролевой эк
 ```bash
 magnet:?xt=urn:btih:19DB77F454D8AD6FFA70EB735BE2C9336EEE7DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cursed to Golf (2022) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:62DC30646A1E4BF112783789F25246DF3F626C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

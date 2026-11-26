@@ -19,8 +19,7 @@ Ashampoo Office 2012 - позволяет набивать и форматиро
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

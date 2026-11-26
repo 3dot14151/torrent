@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F02AEEDD70728EED4A31C4A32A84D1B2B48621DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Enormous Deep (Sexy Deep House Tunes) Vol.1 (2016) [MP3|320 Kbps] <Deep Hou
 ```bash
 magnet:?xt=urn:btih:FFAF1C86A2732977104B3A4D3B58646650498F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Молодежный бум хитовый. Сборник № 2 (2017) [MP
 ```bash
 magnet:?xt=urn:btih:8446BCB8B272031126BF4D0CA9E6DEA7865C8669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8833C343EDFFB8F66023A4E7A1996AFD216686A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Cat Stevens - Morning Has Broken (2001) [FLAC|Lossless|image + .cue] <Rock, Folk
 ```bash
 magnet:?xt=urn:btih:A01C7A31F828573F700E5164C8229D64412E77A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D2C2271A283D12506404618A7BFD349CF843DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ VA - Enormous Deep (Sexy Deep House Tunes), Vol. 2 (2017) [MP3|320 Kbps] <Deep H
 ```bash
 magnet:?xt=urn:btih:C46B2CA8D08163F1D78AD973235DF16D8FECD694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7026A1272076C4CB5810642E44AD563215DE08F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Last Autumn's Dream - In Disguise (2016) Japanese Edition [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:3DAA5DA6922853EFCB5F9257AD04C51609CEA976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ VA - Я слушаю шансон. Зимние хиты. Версия № 5 (20
 ```bash
 magnet:?xt=urn:btih:9F38B10E4994CEA80952C2CA98A56DD75490DE56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Elements for iWork — это премиум набор изображений �
 ```bash
 magnet:?xt=urn:btih:605376DF5AC696A7B0C00C3B36139E55FC96BDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ CloudTV  - Международное TV на рабочем столе
 ```bash
 magnet:?xt=urn:btih:6A52583FCE5AC60A9A222D84BAA9F755E877CACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Horisont - About Time (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Ro
 ```bash
 magnet:?xt=urn:btih:FDEAEC688D31BF19633E4CC06C915D06F5E38ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C2D9D33860435A558F8E3CEAD811E0DEEAB1A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Krusseldorf - Laidback (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Te
 ```bash
 magnet:?xt=urn:btih:0A451FB8B25D67B405D4D057CD08F20CAAB8C566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Ballbreaker - 3 альбома (2000-2009) [MP3|128-320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B95E89A5B1E159E913C54390F1F7E8BD2AF82B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97981BAF8CD0ACFD4F0FCE9A9ED15E084AE0B7BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4595FED5CD5A4D6BDE340335E3373F28FEA2F1FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ R.E.M. - Reckoning (The I.R.S. Years) (1984) Reissue, 1992 [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:70581604C8D2DA9DB882279B3C357D67A373C60F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ VA - Indie & Nu Disco 2017  [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:5ED23634BD67320097471D17CE8CA4891819D009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Aeternam - Ruins Of Empires (2017) [MP3|320 Kbps] <Melodic Death Metal, Symphoni
 ```bash
 magnet:?xt=urn:btih:F842C4E8DF3E9010F63103A0011AD4682F578353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ VA - Asana Yoga Session Vol.1 Music for Body and Mind (2017) [MP3|320 Kbps] <Dow
 ```bash
 magnet:?xt=urn:btih:C03C0E27A0C100798D3A47F4EC40B577A07866E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5FC6A7622E4B24FD8AE22F735FACAB8FF918689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ Tomy Iommi - Iommi (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6D821FCB9EF107E27E7FA2FE855FA76200CD031C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Cranial - Dark Towers / Bright Lights (2017) [MP3|320 кб/с]<Atmospheric Sludg
 ```bash
 magnet:?xt=urn:btih:23286F462C02C68A40DB86CE51E9DA0A3A7F0388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF89E3BDC8874CBF3A4D171D55811FC65E091E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

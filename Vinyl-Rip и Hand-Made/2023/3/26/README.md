@@ -22,8 +22,7 @@ Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipp
 ```bash
 magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

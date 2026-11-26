@@ -19,8 +19,7 @@ PhotoMap Pro Gallery 9.4.9 (Paid) [Ru]
 ```bash
 magnet:?xt=urn:btih:9A17EA18CE7DB3D54D322837937A56F59CF452FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

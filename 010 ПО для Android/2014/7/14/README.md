@@ -20,8 +20,7 @@ Classic Notes Pro 1.0.23 - Блокнот (14.07.2013) <Ru>
 ```bash
 magnet:?xt=urn:btih:37F441509889091D25509B53D55BAE8AE194412B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

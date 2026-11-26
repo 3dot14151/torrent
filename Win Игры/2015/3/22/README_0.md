@@ -19,8 +19,7 @@ The Secret Order 4 : Beyond Time (2015) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:5A8925D63ECA84BE626A840B09CB44AABC516568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forbidden Experiments - вторая часть серии увлекатель�
 ```bash
 magnet:?xt=urn:btih:481ED4B6A0695965C4F0A4C048ECCA13FEF00777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

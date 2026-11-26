@@ -19,8 +19,7 @@ Torrent Pro - Torrent Download - приятное в использовании 
 ```bash
 magnet:?xt=urn:btih:BB953D8AE2A1E9E8F9775D028E97C592419D44A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark Strokes: The Legends of the Snow Kingdom (2014) [En] Unofficial [Collector�
 ```bash
 magnet:?xt=urn:btih:9F7FBCEDAA2A1341F5BA6A44C6E97B940445A315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Secret Trails: Frozen Heart / Секретные тропы: Ледяное се
 ```bash
 magnet:?xt=urn:btih:883C4FE820DE967AAE4042FDBCBED5DAC0C36C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Spate - это аркадный 2.5-D-мерный платформер в мр�
 ```bash
 magnet:?xt=urn:btih:2BCFFC9A7A2B0578B10488512EB0518F5FDA1AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Halo: Spartan Assault это вертикальный шутер, события
 ```bash
 magnet:?xt=urn:btih:57FC2BB50AEB7BB9B37D1E9DC7EC24E2B91287F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

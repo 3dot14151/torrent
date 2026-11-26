@@ -28,8 +28,7 @@ VA - Trance Traveling 12 (mixed by VNP) (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:074142B42F54FBA18728FD38F7FF5C5D0C482170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Roger Shah - Music for Balearic People 178 (07-10-2011) [MP3|256 kbps]<TRANCE>
 ```bash
 magnet:?xt=urn:btih:A0C1FB40D33C35D2BA60126CD8F9D2D1FC193375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Saille - Irreversible Decay (2011) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Vito Di Modugno - Organ Grooves (2003) [APE|Lossless]<Mainstream Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ VA - Звезды эфира 200 Осенний выпуск 50/50 (2011) [MP3|1
 ```bash
 magnet:?xt=urn:btih:6B997A1CD3E053E08E07A3874C6872E5D2402AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ DJ BOBINA - Russia Goes Clubbing 161 (05.10.2011) [MP3|256 kbps]<Progressive Tra
 ```bash
 magnet:?xt=urn:btih:62614673AFFECC758420993E68EBF30F572783C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Markus Schulz - Global DJ Broadcast: World Tour - Las Vegas (06.10.2011) [MP3|25
 ```bash
 magnet:?xt=urn:btih:72814F95005211472804980C9409DD04DBE6D65D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ DC4 - Electric Ministry (2011) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ VA - Русское Радио: Осенний Best 26 (2011) [MP3|256 kbps]<Pop
 ```bash
 magnet:?xt=urn:btih:B6484E35C040950E4B1450EA92019231FD6D5EE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ VA - Best music of Autumn 2011 from DjmcBiT (September) (03.10.2011) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:0518A7ACF73BC1E6E5041362D3EFC054875E45E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33AA3D0FF5BF3D4C9642A0F6DE3C651827F7D9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AADF85E6D9F1BA27F8183D80AC90AB16CEB11E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +440,7 @@ Patrick Sweany - That Old Southern Drag (2011) [MP3|128-320 kbps]<Rock, Blues-ro
 ```bash
 magnet:?xt=urn:btih:654F21ADF6041B83D24AEB056FF8272142C4608F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +472,7 @@ VA - Armada’s Amsterdam Dance Event Tunes 2011 (06.10.2011)
 ```bash
 magnet:?xt=urn:btih:115A0EFC2BDA170CD9F2FE6F8751333425B12300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DC914C834F70EE9BCCA49CF0AB098D19B605364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +537,7 @@ VA - Осенний Разгуляй На Радио Шансон (2011) [MP3|25
 ```bash
 magnet:?xt=urn:btih:4C16FA81B8777B547B6019532DD3012A369F1E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE7C1C401E4329E9E2848362F23376CC13B16C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +597,7 @@ VA - Золотая сотка осени: Горячие новинки 4 (2011
 ```bash
 magnet:?xt=urn:btih:58C8A7529545A5A31D13E74705F2117155036A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +647,7 @@ ALMA, самый большой в мире радиотелескоп, дела
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +681,7 @@ VA - Лучшие Хиты Радио Шансон Часть 7 (2011) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:612C32251F6E11A7E3F6D06DB20F5181FAB4668D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +715,7 @@ Soulstice - In The Light (2011) [FLAC|Lossless]<Soul, Downtempo, Trip-Hop, Nu Ja
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47BE387AED9B2F1172E41EFDE48EAD8B27D26073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -807,8 +783,7 @@ VA - Drum & Bass Collection 25 No Noise Edition (September) (2011) [MP3|320 kbps
 ```bash
 magnet:?xt=urn:btih:D26ABBA61A5FDE12F6D7C39B5D4F3297A4BD72E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -842,8 +817,7 @@ Nate Harasim - Rush (2011) [FLAC|Lossless]<Jazz-Pop, Smooth Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

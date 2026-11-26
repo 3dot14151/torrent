@@ -19,8 +19,7 @@ Go – превосходный системный язык. Созданный 
 ```bash
 magnet:?xt=urn:btih:32C3C089DF2A447C2E0E7903830E07C9EFEFD3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Python — один из наиболее популярных современ�
 ```bash
 magnet:?xt=urn:btih:B2703D2BB8A77AD9E1E16F33772F9FE2DA260436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23166/dlc) Repack =nemos= [Master Coll
 ```bash
 magnet:?xt=urn:btih:072CEBA68370B2864E1012B737B25702975A62A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47FA0931AABD3968AE765C73A0FAD0182F5630FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Everspace – однопользовательский космический ш
 ```bash
 magnet:?xt=urn:btih:F00A26E87C5A5B36B03844F2378DF925DA078072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

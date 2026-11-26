@@ -19,8 +19,7 @@ Outpost: Infinity Siege - это увлекательный научно-фан�
 ```bash
 magnet:?xt=urn:btih:698F49DE06F6980EA1FA148B3207B3429441046D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maniac - криминальный экшен в стиле rogue-lite, брос�
 ```bash
 magnet:?xt=urn:btih:9AA8E9647D381E7CCF06F55A8373F587DCAF226D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Svarog's Dream выделяется как увлекательная РПГ, п
 ```bash
 magnet:?xt=urn:btih:C794DB68F68B13F043D6609EAB5EB8DA0C2BB17B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ A Divine Guide To Puzzle Solving - это повествовательное п�
 ```bash
 magnet:?xt=urn:btih:0E9CA05EFD72226B54680BF25939400EA7AA10CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Stardew Valley (2016) [Ru/Multi] (1.6.3) Repack Other s [AD]
 ```bash
 magnet:?xt=urn:btih:B15A7288313609DEF723F0CDF403DC614E0D9094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

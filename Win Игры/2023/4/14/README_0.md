@@ -19,8 +19,7 @@ Natus Vincere, без сомнения, являются самой популя
 ```bash
 magnet:?xt=urn:btih:E9E033507AD193A98226E30C939F820D38BD0B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

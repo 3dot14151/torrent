@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Lauren Hooker - Right Where I Belong (2006) [APE|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:2E209058CE8C8D287936E1567E4C47B125E3E055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sunnery James & Ryan Marciano feat. Miri Ben-Ari - One Life (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:275F82101B9E46D985E9639721A68B5870E88EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Shermanology & GRX - Can't You See (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:243AFD901D6D59BFD472E14329D1CA0B65F659E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Archive Expert - это профессиональный, полнофункци
 ```bash
 magnet:?xt=urn:btih:2D6540E5983B993EBE0F4F94DE17D551A58DB5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ VA - The Night Side Of New York (2014) [MP3|320 кб/с]<Chillout, Lounge, Lo-Fi
 ```bash
 magnet:?xt=urn:btih:88E82375F7745CBAD0570322522EFF91FE4D4D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F931FE4CA81D8693FD43BECE8C5BA5D2C2996CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D4B731F1A0828768EDB52593B6E4D1F2E81C7B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Mel Torme - Fujitsu-Concord Jazz Festival in Japan '90 (1991) [FLAC|Lossless]<Vo
 ```bash
 magnet:?xt=urn:btih:A61B462770D3887E22B3A55E38C93D9FBE305958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ VA - Closed Night Spot Vol 3 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:1A18D792FF79743BAA34049E2D08B755DA66930D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00B5BE2CE9CDD43896A35436541D45316FEF598C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ Lee Osborne - End Of The Line (2014) [MP3|320 кб/с]<Trance, Progressive Tranc
 ```bash
 magnet:?xt=urn:btih:3B75BBB0EAB3D88FC43E265E95941AE3110EDEFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Craig Connelly - Decibels (2014) [MP3|320 кб/с]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:A76B8DC209141075D15E903FF34363037AA132A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ John Dahlback & Benny Benassi - Blink Again (2014) [MP3|320 кб/с]<Electro Hou
 ```bash
 magnet:?xt=urn:btih:203D897895779C612FB3FD6FCA38B0994D16EBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Olivier Girardot - OG - 9 Albums (2009-2013) [MP3|~192 кб/с]<Electro , Drum'n
 ```bash
 magnet:?xt=urn:btih:5348F4BA5918D24580C592C949E729A2B3D58D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEF9319CB623B2966A9C424AA9B7080902592D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ KSHMR - Megalodon (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:C1B92C67FE94CD4BFA28E68165E613829E393E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Gladenfold - From Dusk to Eternity (2014) [MP3|320 кб/с]<Symphonic Power/Melo
 ```bash
 magnet:?xt=urn:btih:27FFB51EA6CC052DD1748E79FB95CD8686B9BAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ LiveJournal («Живой журнал», ЖЖ) изменил свою поли
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A47D61AB050D0F9A059EEFCBB3EB8A48A60899F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +608,7 @@ Laura Fedele - Monna Lizard (2008) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:C7C643EDE50C5FCF361AE57B29F814FAB5771CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:893BA3315EDDB119061B6177BBE30D9650EE141B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +661,7 @@ Fuel for Pages - это удивительное дополнение для п�
 ```bash
 magnet:?xt=urn:btih:B37B6CF97EBD1BF96C69B6F6271ED40305C23312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ Kaimo K and Ellie Lawson - Never Dared To Start Again (2014) [MP3|320 кб/с]<T
 ```bash
 magnet:?xt=urn:btih:CC96C2C380A37B85BBCB6873CB0F38830E7F4B1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +722,7 @@ Denis Solee with The Beegie Adair Trio - Trav'lin' Light (2007) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:387DCB9DA526E22B4FA470E2AF9D4339934C3DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

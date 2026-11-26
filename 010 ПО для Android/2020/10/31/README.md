@@ -21,8 +21,7 @@ AR Plan 3D - инновационное приложение для измере
 ```bash
 magnet:?xt=urn:btih:10076252EE79178087E585227CC941F28A4FD72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

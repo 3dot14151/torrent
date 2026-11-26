@@ -23,8 +23,7 @@ Slaughter (Сло́тер) — американская хард-рок груп
 ```bash
 magnet:?xt=urn:btih:5551D4F2EC9F35AD93C7175935EC410E81E47434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

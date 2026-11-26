@@ -20,8 +20,7 @@ Wondershare MobileGo for Android - это популярный инструме�
 ```bash
 magnet:?xt=urn:btih:50B02E4AC3CD5A8671928A7EBA8D2E22E90BC8F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92948696AB013F286BBAF0C4035BAD9EAA0F0805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76C810E7F82502FB35B86C2E7154484233F575D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C4D4D1244806AD31C03E9BDD7A971A799330F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Blood Bowl — это жестокий и кровавый спорт, вдох�
 ```bash
 magnet:?xt=urn:btih:A3EF52F68DF51B5497CF8437D328F3BB9AA30756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Alien Rage Unlimited (2013) [Ru/Multi] (1.0.9084.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:58EA0943B15652FA46B95DBD64534336A48DCDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Sleeping Dogs (2012) [Ru/En] (2.1.437044) RePack Audioslave [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:B59240B40106559C5218FB51EFFEC58D88F1DFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B96F84DD3663EBEDD99336D098ABB158599CFCCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Windows 7 Manager - утилита позволяет пользователю �
 ```bash
 magnet:?xt=urn:btih:393E3479DA4C69F26F022886518B4D66ACB9BCD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Gmail и Skype грозит запрещение в России
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:840AF5B8DAA1ACB6966613E7B40D649D4B7224F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Broken Sword 5: The Serpent's Curse Adventure – point'n'click приключе
 ```bash
 magnet:?xt=urn:btih:B63C89985CD78698AD265A062F7483884C08943E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Tropico 4 также обеспечивает новый уровень соци
 ```bash
 magnet:?xt=urn:btih:8E39CDB61C26F6EA290AF3F3D7D1AAE6F3FF2860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Life Goes On – это платформер-головоломка от нез�
 ```bash
 magnet:?xt=urn:btih:85A6F1EB80111BEC86107CAF1EFF27ECBC7F00EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB99BE4AB7BAE1FEC7E5A3718ABB5A85E606758F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Kingdoms of Amalur: Reckoning - это динамичные сражения о�
 ```bash
 magnet:?xt=urn:btih:63DA738E65D49C984AEFFF7C247F6A8874626364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D00F4799426DB86922A463DD8F31EF3C1122AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ Windows Xp professional City SP3 v14 [Ru]
 ```bash
 magnet:?xt=urn:btih:7157456BB3ABEF68BFCE5D106D174594D74C4FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ Tajima DG/ML by Pulse - Maestro x2 Maestro x2 [Английский]
 ```bash
 magnet:?xt=urn:btih:C23A03D4A3A056C9C9474D9D454823199A502990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ Multiboot USB Сonstructor NeleGal Edition UEFI v4.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:E0A8E2F75B0B2B7C4F341F4F329BFBA06433455C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

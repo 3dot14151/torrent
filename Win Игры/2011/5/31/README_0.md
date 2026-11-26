@@ -19,8 +19,7 @@ Soap Opera Dash / Мыльная опера. Переполох за кулис�
 ```bash
 magnet:?xt=urn:btih:8017F2C54DA1E34237DD680692A07AA132114B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Chicken Invaders 2 (L / 2.40) [En] 2003
 ```bash
 magnet:?xt=urn:btih:14CB4280B8F38D9BADB2C34235F7F874D7359304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Echoes of the Past – The Castle of Shadows Collectors Edition / Эхо Про�
 ```bash
 magnet:?xt=urn:btih:13C68BBC89057149C6CBE37692DC43C5EB89004C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Hearts Medicine – Season One / Доктор Харт. Первый сезон 
 ```bash
 magnet:?xt=urn:btih:B87E51BA037BF599905D6CAF1EAECFC8FF50CD71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Billiard Deluxe - один из самых замечательных и наи�
 ```bash
 magnet:?xt=urn:btih:A78547708E58B21840B21675FF96A8D7967AB33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

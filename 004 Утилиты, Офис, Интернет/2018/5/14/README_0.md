@@ -19,8 +19,7 @@ Total CSV Converter - прекрасный конвертер CSV файлов �
 ```bash
 magnet:?xt=urn:btih:11BD7FBCE655CCCF97A8C800DFC99590475B9688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

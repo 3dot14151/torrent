@@ -22,8 +22,7 @@ Embraced - Within (2001) Japan [FLAC|Lossless|image + .cue] <Melodic Black Metal
 ```bash
 magnet:?xt=urn:btih:68AF4CC5B85B93F1C96F758E8C61BC46D35F5204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hangar - Stronger Than Ever (2016) Japanese Edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:0D170F25EBF0958025BB7BDBB3D1D03A05BC222E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CiG (Chad I Ginsburg) - Rock N Roll Alibis (2015) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:B6C238BBE30FCC0BFACB407F1CD09B6B2F73C5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Evan - Blue Lightning (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Powe
 ```bash
 magnet:?xt=urn:btih:4E2BD82FF7D7B65A687AE1DB3E519C695BAF357F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mystic Braves - Mystic Braves (2013) [MP3|320 Kbps] <60's Psychedelic Rock, Gara
 ```bash
 magnet:?xt=urn:btih:066E951A7CC94B9D210928AAA067507EA34BD89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Foals - Holy Fire (2013) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:97BF8CCB38F86CFDD60491D5851F0434389C884D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Vivaldi Metal Project - The Four Seasons (2016) Japanese Edition [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:A894A6B34A49E584AC8C4910393AD170249895D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Stars Of Rockabilly (2016) 3CD [FLAC|Lossless|image + .cue] <Rockabilly>
 ```bash
 magnet:?xt=urn:btih:F4A95A810D198AD67DF281EFAE4A055513403122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Catfish and the Bottlemen - The Ride (2016) [FLAC|Lossless|tracks] <Alternative 
 ```bash
 magnet:?xt=urn:btih:190FB889D670A2164EB55C3845BC9A76274F4EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

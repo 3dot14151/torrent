@@ -19,8 +19,7 @@ Phoenix Customizer 1.1.16.0 [En]
 ```bash
 magnet:?xt=urn:btih:DD8CF02120DBD15ABC8D64F784FEFAC0BC7D195E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RadioMaximus 2.33.15 + Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:B09A043037CABC46B73A0EAE80C00899C224A6CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:2AAE82EC5DC6F9B0FA3BABE36BA069C15990B522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ WinCam – это программа для захвата видео с экр�
 ```bash
 magnet:?xt=urn:btih:7156C9925561652E8CA8A636BD848F5DF3575C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:CB879DC2A388FD6AB00E0E5AB7767F736E4D5B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

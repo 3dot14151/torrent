@@ -19,8 +19,7 @@ Tony Hawk's Pro Skater HD [En] (L) 2012 l SKiDROW
 ```bash
 magnet:?xt=urn:btih:033F1F2DAE958EBE0421E8110B980B9414A07FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ F1 2012 — это новая часть всемирно известной с�
 ```bash
 magnet:?xt=urn:btih:F65F7DF270EFE376CDB1E1CED4442A1DE0AED82B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Tony Hawk's Pro Skater HD [En/Multi5] (Repack/1.0) 2012 l RG Games
 ```bash
 magnet:?xt=urn:btih:DDDE61B48A2CE319D079F22F46A8482DC6E1EF48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Tryst - это стратегия в реальном времени, дейст
 ```bash
 magnet:?xt=urn:btih:C6EB949DEEA56A8FE4EAD8E751D68F8731C13D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Inversion [Ru/En] (Repack/1.0.u1) 2012 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:91FF81BB46D80AEFF437774E234F079C3AC4E525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

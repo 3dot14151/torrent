@@ -22,8 +22,7 @@ Thunder - The Dopamine Sessions (2026) EP [MP3|320 Kbps] <Hard Rock, Blues Rock,
 ```bash
 magnet:?xt=urn:btih:925486A286710ED34B944848A76B0EA408A9F05E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wizard Master - V.I.T.R.I.O.L. (2026) [MP3|320 Kbps] <Stoner, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:0AD2BF6830131B45CF936EE02350FECD7910C034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rusted Soul - Unbroken (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:72C09840E16CAD6FFA241A95F698C6EF6869A7F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ After 1994's American Recordings revitalized Johnny Cash's career, he and produc
 ```bash
 magnet:?xt=urn:btih:B6845A229458A2C6D8272B1E1007DBCA6A57A026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Electric light Orchestra   Golden Collection 2000
 ```bash
 magnet:?xt=urn:btih:CBD9C2364E5DEB2C0FA6FDC6BA5652A8CC6865CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ George Thorogood & The Destroyers - The Baddest Show On Earth: Greatest Hits Liv
 ```bash
 magnet:?xt=urn:btih:5F777B894AA5E71896E789B4C11E13A623F4EC50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

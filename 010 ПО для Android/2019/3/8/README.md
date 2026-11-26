@@ -19,8 +19,7 @@ PowerTube - является мобильным клиентом консоль�
 ```bash
 magnet:?xt=urn:btih:2CCAAE86047B2B1300B8E5E2289973572D89C556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

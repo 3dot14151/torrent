@@ -19,8 +19,7 @@ Bucket Knight - динамичный инди-платформер, расска
 ```bash
 magnet:?xt=urn:btih:DCD79EF80334075B5E5759DD9170C59C8879D105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OXENFREE 2: Lost Signals продолжает историю о мрачных �
 ```bash
 magnet:?xt=urn:btih:53B7D7C9A5FE08AD0E4DD87E52A358CC5B0AD278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

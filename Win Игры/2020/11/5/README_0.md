@@ -19,8 +19,7 @@ Whispered Secrets: Morbid Obsession / Нашептанные секреты 11: 
 ```bash
 magnet:?xt=urn:btih:D01919B3B3A2F26377D6D7936D44D63C342D1913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Escape The Museum / Побег из Музея (2008) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:2BFE2703BD0B50BF242F650FE2B6EEAA8195A630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Carto - это милое рукотворное приключение в ми�
 ```bash
 magnet:?xt=urn:btih:D5A45F1A76617016B1F62B1D2FD80BF24B2B8F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PositronX — это футуристичный роуглайт-шутер со
 ```bash
 magnet:?xt=urn:btih:9D6527E2F2602069934508D30F0D085C0BD28901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

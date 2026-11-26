@@ -19,8 +19,7 @@ Mysteries of Neverville. Runestone of Light / Тайны Невервилля. �
 ```bash
 magnet:?xt=urn:btih:57EB156ACB7F3969B37803F448D3AF6221A040D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Last Light (2021) [Multi] (7245562) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CAECDFE420303A6CE29E59D3D2B77C34FA673D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Welcome to PINEHILLS (2021) [Ru/En] (Jule20) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C9F2162222E8D7478D810DD30BBDDE6F99D06B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kane and Lynch: Dead Men / Kane & Lynch: Смертники (2007) [Ru/En] (1.0)
 ```bash
 magnet:?xt=urn:btih:F28DE612909B64D2609A153EC58C7CAB3850F80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

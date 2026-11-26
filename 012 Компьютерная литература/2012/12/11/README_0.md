@@ -28,8 +28,7 @@ Stuart McClure и др. | Hacking Exposed 6: Network Security Secrets & Solution
 ```bash
 magnet:?xt=urn:btih:1168F2C2B0C4243506E67758247190A2D0D1306D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

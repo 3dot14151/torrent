@@ -21,8 +21,7 @@ SoulCalibur III [Ru/En] (RePack/Emul) 2005 (2012) | MarkusEVO
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Teenage Mutant Ninja Turtles Трилогия [En] (RePack) 1989-1993 | Pilotus 
 ```bash
 magnet:?xt=urn:btih:5E586D60A4BE659E3C89B4F0F1E7003581BEFA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Atlantis. The Lost Tales от Cryo ничем иным кроме как "бро
 ```bash
 magnet:?xt=urn:btih:3A1681A8A14CB6C110AA8D87C1D32DF0AEDE2ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Dominions 2: The Ascension Wars [Ru/En] (RePack) 2003 | Pilotus
 ```bash
 magnet:?xt=urn:btih:5A681413FE44DFD6BFEB882A8C5B117F364D0B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Tomb Raider 3: The Adventures of Lara Croft [En] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:189284CC9AE17615676F6FCFC8707A337DB6CAF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

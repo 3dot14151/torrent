@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Mortal Shell — это беспощадный и проработанный р�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Navitel / Навител Навигатор 9.13.51 Full для карт рел�
 ```bash
 magnet:?xt=urn:btih:4BDF88043B4D0063A262315ACE88459B9ED8609A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригин�
 ```bash
 magnet:?xt=urn:btih:970AD7C20A4E0BE1510D79CC2AE1F8FB14D50A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Frostpunk – это новейшая игра от создателей This Wa
 ```bash
 magnet:?xt=urn:btih:606890BD9554B801C4EB27EFB5854671EB857FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ American Fugitive — классический экшн с открытым ми
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:071AD56FA55C6438366610A2055396C6E74C87D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Windows 10 32in1 (2004 + LTSC 1809) x86/x64 +/- Office 2019 x86 by SmokieBlahBla
 ```bash
 magnet:?xt=urn:btih:90A1D6CD61F24E3C9D3E16A2B46CC35A7CBA38AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

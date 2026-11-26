@@ -25,8 +25,7 @@ Grey Daturas - 11 albums (2002-2008) [mp3|192-320 kbps] <Noise Rock, Stoner Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Silverdollar - Morte (2011) [MP3|320 kbps]<Heavy Metal,>
 ```bash
 magnet:?xt=urn:btih:5C2D700271E9B935F188B051BC98356EEAB22D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Coronatus - 3 альбома (2007-2009) [APE|Lossless]<Gothic Metal,Symphonic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Tears Of Magdalena - Myths and Legends (2008) [APE|Lossless]<Gothic Metal, Symph
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Elysion - Silent Scr3am (2009) [APE|Lossless]<Gothic Metal, Symphonic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

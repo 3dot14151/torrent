@@ -21,8 +21,7 @@ ABBYY Screenshot Reader – простая и удобная программа 
 ```bash
 magnet:?xt=urn:btih:97BF58322FE744B7C8A2DCEF340DC8DAC061F6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

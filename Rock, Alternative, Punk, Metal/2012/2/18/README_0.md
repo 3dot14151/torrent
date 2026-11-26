@@ -28,8 +28,7 @@ Svartby - Elemental Tales (2012) [MP3|320 kbps]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:9F88CCD1554871FB49390D9D93F6D9AF4F6DE48A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:9F134D907A1174935C076088112F4AC3A9EF2FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Rolling Stones - Platinum Vol. 2 (The Very Best Of 1975-1994) (2008) [MP3|19
 ```bash
 magnet:?xt=urn:btih:5A40684B0CF4586236FC0F5F86835D37E7A4C2DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Smashing Pumpkins - 8 альбомов ,28 Синглов(1991-2008) [MP3|320 kb
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Sinead O'Connor - How About I Be Me (And You Be You)? (2012) [MP3|320 kbps]<Indi
 ```bash
 magnet:?xt=urn:btih:D837D2F3D744A74661368DA208538436C2BA8566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:8F5BDCC059CA02C002F73A17B93F549D833922AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

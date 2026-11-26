@@ -22,8 +22,7 @@ Lindi Ortega (Линди Ортега) - The Taste Of Forbidden Fruit (2001) Las
 ```bash
 magnet:?xt=urn:btih:CDE2C0A7976CF3EA8D9F81736337FA544FD27624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lindi Ortega (Линди Ортега) - Fall From Grace (2007) Last Gang Record
 ```bash
 magnet:?xt=urn:btih:3C0EE9CF47215D66DDA5FE799B496EC11CF0E0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ RSO - Rise (2017) EP, Orianthi feat. Richie Sambora [MP3|320 Kbps] <Pop Rock, Gu
 ```bash
 magnet:?xt=urn:btih:224CEF9C9A46B13FA089C3A56AA036AD3407E3C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:917A0B1E4D1AA4BF4397140AB71A51F979772CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

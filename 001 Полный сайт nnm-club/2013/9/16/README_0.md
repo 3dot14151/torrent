@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Thick as a brick 2
 ```bash
 magnet:?xt=urn:btih:18335FF72267FA5880B333E2F7FBAB4C9E4999A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Angger Dimas - Angger Management (2013) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:93B59E4061FCCD8ADE63EFF7DBC76BBD1E649DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:422A2D866155C7508055E54438B427FBED8F8D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEA363ED063ACEC7EC3D4E58E38EDB27AA6CF0E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:827CDF5FEEB024D6D9E6B0F29AA01A5E16AF62FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ VA - Chill House Erotic Dreams Vol 2 (2013) [MP3|320 кб/с]<Deep House, Chill 
 ```bash
 magnet:?xt=urn:btih:0BB726C5A1D6D17D7CA1A5110891F0C68A8B8DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E1FA368E87787D58C5221DF5DA1E17383454664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ NirLauncher Package - это пакет из 173 небольших утилит
 ```bash
 magnet:?xt=urn:btih:56ECB8CB18729E051E218FDB8302C7E60915AAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:6055996A9A9889289BA427A54B19BBDB70C05BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Isao Suzuki Sextet - Ako's Dream (1976) [FLAC|Lossless]<Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:34598B9CEB2808834B3990E24DD35431755618F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Soul & Soul - Thrilling Music (2013) [MP3|320 кб/с]<Soul, Pop-Jazz>
 ```bash
 magnet:?xt=urn:btih:C20E1F0537719ACD6AD1FD1CFFC1B37C04E95CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ WonderFox DVD Video Converter — это удобный конвертер вс�
 ```bash
 magnet:?xt=urn:btih:2773A18C98AE543FFC5DE93B9755D772176C385B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Wallpapers - Обои для рабочего стола - разное (16.09.2
 ```bash
 magnet:?xt=urn:btih:191CEFE52CC6C2C7159BB3A5063E9009645EA582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8605BF0C4E207F7CCBB9AA041F93D714C3627660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Chieli Minucci & Special EFX - Genesis (2013) [FLAC|Lossless]<Smooth Jazz, Fusio
 ```bash
 magnet:?xt=urn:btih:86110AD38B7ACDA4A5EF760DCE9DF0D5BB1C1846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E0E86907E09780A047AA67D0A2CB3996FA994B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ McRip SystemFiles - представляет собой инсталлятор, 
 ```bash
 magnet:?xt=urn:btih:DE26305146C04D7BE7C237E77D8753079C21AE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:21E84E8755F427A7C91A1205526AC72189ABA655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA0094E658FD5C0E8CA48241D5B5EE83739FD47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ Elvin Bishop - 6 Albums (1974-1978) Mini LP SHM-CD /2013, Universal Japan/ [FLAC
 ```bash
 magnet:?xt=urn:btih:C246C687F75241DB65BC00EFF9DC316C7D02055F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73A5F38F777DFFC48B6A30C6C7860882CEE38B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ Soft Organizer 3.20 RePack by AlekseyPopovv [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7CEFFEE8833468CCBA0B44B01921B40F4A3D6EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ Lou Bega - A Little Bit Of 80s (2013) [MP3|320 кб/с]<Pop, Mambo, Latin>
 ```bash
 magnet:?xt=urn:btih:C87141C2F17F662B11F2D2E291BC40B4D8B75469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C82F724672D81E2260446A4FEF1EEFF9917FD468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

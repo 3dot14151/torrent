@@ -22,8 +22,7 @@ Emigrate — сайд-проект, основанный Рихардом Кру
 ```bash
 magnet:?xt=urn:btih:B7D8805CFB71D7A56BF46607287FCFBCAE293341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

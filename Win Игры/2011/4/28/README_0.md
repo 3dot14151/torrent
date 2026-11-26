@@ -19,8 +19,7 @@ The Tiny Bang Story — это история одной Крошечной Пл
 ```bash
 magnet:?xt=urn:btih:C460BD8EC7178A9C92EB5869C032D83778421059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Incredible Hulk [Ru] (RePack) 2008 | R.G.Repacker`s
 ```bash
 magnet:?xt=urn:btih:05BC1960F735DFDCB4CBC4D8D79855209E640DEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Warcraft III: Reforged - это потрясающая переработанн�
 ```bash
 magnet:?xt=urn:btih:5D115B9A8C2A0D259AA6EAECD8BAAF47C5C11A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.34) License GOG
 ```bash
 magnet:?xt=urn:btih:D62CFA43B67FC98C6573FC87F070E9A1C9C7DCFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:98CE04F8AE85759817E35A720AABF9C439908008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hired 2 Die (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9B807559616909D8870EABE5B9EED5CF2A10D525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Assault Squad 2: Men of War Origins – новая часть знаменито
 ```bash
 magnet:?xt=urn:btih:35B36D883D68C82163D01D4DF69CCFB0C93F6836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Immortals of Aveum - одиночный магический шутер от п�
 ```bash
 magnet:?xt=urn:btih:ECF4733127EE6A3994CB9FA0E749FB447C590531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Sims Legacy Collection (2025) [Multi] (17149764/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B4DB96F63B4C3B58E504CE8A29A59E8A9DC923B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ IN THE FACADE WE TRUST (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9FC7E42A70E61CA3194CA2B141746A29DF54C13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

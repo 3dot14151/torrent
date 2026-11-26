@@ -19,8 +19,7 @@ Rite of Passage 8: Hackamore Bluff / Обряд посвящения 8: Хака
 ```bash
 magnet:?xt=urn:btih:F2BDECBFBE95E86EF2431A074FC10340BB290CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

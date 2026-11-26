@@ -19,8 +19,7 @@ Legends of the East: The Cobra's Eye Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:15D0BFE1C55CAFA81F3CFE9AC80512D2C36BF5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Small Town Terrors 2: Pilgrim's Hook. Collector's Edition / Террор в го
 ```bash
 magnet:?xt=urn:btih:ED630B9EF755C81783DC8F510196352D86BE431D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Time Mysteries 3: The Final Enigma Collector's Edition / Тайны времен
 ```bash
 magnet:?xt=urn:btih:0BC68081FDF995B379EB1BA41044549A0C500276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Finders / Следопыты (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:4D71CB0980B269A99F3A48704D96557DDB27F5F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Of Orcs And Men (2012) [En] (1.0.1) License SKiDROW
 ```bash
 magnet:?xt=urn:btih:0B0F12DBF80EC716236A11D1DCC50730A18441E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

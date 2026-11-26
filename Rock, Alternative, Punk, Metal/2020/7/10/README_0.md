@@ -22,8 +22,7 @@ Hammerhedd - Grand Currents (2020) [MP3|320 Kbps] <Progressive Metal, Thrash Met
 ```bash
 magnet:?xt=urn:btih:08A8005368F4DDC1D9061439955767F6DC50FCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nocona - Los Dos (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A59B0122951B05C0D6896FF95F6A568E2D07729F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Myridian - Light in the Abyss (2020) [MP3|320 Kbps] <Melodic Death Metal, Doom M
 ```bash
 magnet:?xt=urn:btih:22FA5E86934151B9B9FF3D31FB700B8C7FD617EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F21F3CC005A7D77A4D061682514E978EECF64783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Seventh Sign From Heaven - The Woman And The Dragon (2020) [MP3|320 Kbps] <Heavy
 ```bash
 magnet:?xt=urn:btih:9A1075EE085B97422FDCDCED3CDA1273C6B11064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9591DE6E51D522283794F715B55FBEB7210FD018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Kiko Loureiro - Open Source (2020) [MP3|320 Kbps] <Progressive Metal, Instrument
 ```bash
 magnet:?xt=urn:btih:172536B30B481225B46186C6CB01AB69B9AA9737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ PVRIS - Use Me (2020) [MP3|320 Kbps] <Alt.Rock, Pop-Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:54239B7EC0B000A8B166E94DCB1D8AD9787F79A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

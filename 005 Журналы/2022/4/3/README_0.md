@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:74E3FF44B85D1DAE3A753486E2C5524430FD7043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Maxim является абсолютно уникальным журналом 
 ```bash
 magnet:?xt=urn:btih:DF710C7B0F41AB1921EA2C2830988F111DD17105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wallace Wang | My New iPad. A User's Guide [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:6AAF86A1D443775F906554983BB800E83F1F9F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71444058C3BFB026D60D6AD0EA3599AA69915646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

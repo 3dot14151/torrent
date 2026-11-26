@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E093F08BDD84EC899610852355BFCA20E7050F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ LASCALA - El Dorado (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
 ```bash
 magnet:?xt=urn:btih:C0148F0EC91955CF751B1C2376622CA4E8C0F5AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ LaScala - Forte (2013) [FLAC|image + .cue|Lossless] <Alternative Rock, Female Vo
 ```bash
 magnet:?xt=urn:btih:3995F42D4286E63C7A63E8E623F8C1D126AB6DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

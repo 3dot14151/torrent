@@ -19,8 +19,7 @@ Nokia Suite (ранее Nokia Ovi Suite) — бесплатное програм
 ```bash
 magnet:?xt=urn:btih:8EC3BA37793FD86BA6E17CD9368BFEDE34D47012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

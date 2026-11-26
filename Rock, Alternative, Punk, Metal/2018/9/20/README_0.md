@@ -22,8 +22,7 @@ Manticora - The Black Circus Part 2 - Disclosure (2007) [APE|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:34A92FC5BA4F42BBFBFC03D8C247703F491A7C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Manticora - The Black Circus Part 1 - Letters (2006) [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:704348F165CA4F488110389DEF3ED0088B4A58A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Manticora - Safe (2010) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:4D8FDFE390A2DE7E219608E9ECF8AD69444C438D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Almendra - En vivo en el Teatro del Globo (2004) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:6DD542DB2788E554558D51EBADBEDB032237CB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Billy F Gibbons (Zz Top) - The Big Bad Blues (2018) [MP3|320 Kbps] <Blues Rock, 
 ```bash
 magnet:?xt=urn:btih:8F3501E5FF6A1E1B5216F4DDA303E2E02236EC14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

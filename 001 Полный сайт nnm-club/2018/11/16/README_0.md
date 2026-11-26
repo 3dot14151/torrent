@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C9218AC080B9E39DCFF44B88BE8B59DC08EC7DBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Sensual Spa Lounge Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:26FA70517F9867C348AFAFB8FE4823CB34C8C918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Vallum это маленький инструмент , который помо�
 ```bash
 magnet:?xt=urn:btih:25704A49A1911B9CA41025EBCFCFFB9BBF491DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Digilio Lounge Music - Erotik Lounge & Luxury Chillout (2018) [MP3|320 Kbps] <Ba
 ```bash
 magnet:?xt=urn:btih:A08E3385D55ED97A781163A0245AAFC850D8B943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ PhotoSweeper Х 3.3.1 [En]
 ```bash
 magnet:?xt=urn:btih:C8833A3D3975CB38A199A7D50E715332434FDF37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Pale Moon - веб-браузер, созданный на базе популя
 ```bash
 magnet:?xt=urn:btih:33F243685648F85E1F62B458405BFBC2DE631C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Chilly Gonzales - Solo Piano (2004) [FLAC|Lossless|image + .cue] <Instrumental, 
 ```bash
 magnet:?xt=urn:btih:DC7B70470F00236D6C4124EB7919D53655D8C147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Chilly Gonzales - Solo Piano II (2012) [FLAC|Lossless|image + .cue] <Instrumenta
 ```bash
 magnet:?xt=urn:btih:2CB709481DBAAF57D625777542B0DC26AA95FEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Nice Todo 2 v2.0.5d [En]
 ```bash
 magnet:?xt=urn:btih:E37BA4003B41AC5E3AA130C4804CF2EB87173CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:783A64F07EED0939E1CC1F325CE204FCA831AB64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Roxio Toast Titanium 17 v17.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:13A66E105DB337B032B4FEC57AF2C207F024DCD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Glen Campbell - Sings For The King (2018) [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:0D2CE294F0ACF3814D391BDEFD40A52913E4BB1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0ED5D6B113638B721ACBE313F2039F4A699D6DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ VA - Disco Dancing: November Party (2018) [MP3|320 Kbps] <Dance, Disco>
 ```bash
 magnet:?xt=urn:btih:BBE44E262431829A334751E884A5AEEB26A5CCC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BF91C962309BD16F0046D0B5899B4E1A64D133F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:169B9A4FCDCEE0E30C78024A9E5E860855BEE1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDE46B463CAEF0881CBCFC071F282E14A7B54123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Vanessa Paradis - Les sources (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson
 ```bash
 magnet:?xt=urn:btih:437E29528CAF6376B3F42D51884C6FCD6146380F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ```bash
 magnet:?xt=urn:btih:55301FABF0DD5290CF8BDDD1EA9899AC944EB148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ```bash
 magnet:?xt=urn:btih:C2D6D6E1A2FA25238A6B5C8C176BA85A5871A2E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Byron Metcalf - Inner Rhythm Meditations Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:8D7ED51CDE409ABDDABA7B1F0B7D4043A1932DEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Movavi Screen Capture Pro 10 v10.0.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4D652A9CBE523A9E6D1902BE5A416479704E5012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ NG. Взгляд изнутри: Вторая мировая война: вой�
 ```bash
 magnet:?xt=urn:btih:B5B139E89DFF885A564E215FCEBE0364D52BA1F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EAF37EF629D7FA643D234E2E692B2C7074BF321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFB6590C572A0BCBA9F8B456EA2125406F2CA23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ O&O SafeErase Pro - полностью исключает возможность
 ```bash
 magnet:?xt=urn:btih:663236F8C0F9EF3199A12135253D2E3F251698D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

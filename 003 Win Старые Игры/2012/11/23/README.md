@@ -19,8 +19,7 @@ Uprising 2: Lead and Destroy [En] (L) 1998
 ```bash
 magnet:?xt=urn:btih:7B0CD89B168C0806F4DC8FDFBAB30014F0A2B684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dreams to Reality / Мечты: Во сне и наяву [Ru] (RePack) 1997 | R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

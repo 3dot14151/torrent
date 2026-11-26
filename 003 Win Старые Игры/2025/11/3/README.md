@@ -19,8 +19,7 @@ Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
 ```bash
 magnet:?xt=urn:btih:D6431622859913977485BF5CB1C63598C14A3156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C285383C620FA0AC446D0C7FDAE169FC2272C38C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

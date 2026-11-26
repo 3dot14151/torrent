@@ -22,8 +22,7 @@ VA - 2000s Rock HIts (2025) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:BE003EE806D4A93C63B817E2880A6095B30223EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Warkings - Armageddon (2025) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:066F9FB0E0239D22118394E1DE6ECF9C25283CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

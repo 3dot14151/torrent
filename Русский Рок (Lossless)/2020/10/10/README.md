@@ -22,8 +22,7 @@ Ensemble of Christ the Saviour and Crude Mother Earth - Third World War: Police 
 ```bash
 magnet:?xt=urn:btih:6545F7B31A6D8A9057480267EA9BC9E2CB0AF073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

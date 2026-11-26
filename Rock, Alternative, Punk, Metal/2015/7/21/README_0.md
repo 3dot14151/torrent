@@ -22,8 +22,7 @@ DarkTribe - The Modern Age (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:1DEB3FFF2346AB4141CE6F66803F1AEB77DE6E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Atkins May Project (Ex-Judas Priest) - Anthology (2015) [MP3|320 кб/с]<Heavy 
 ```bash
 magnet:?xt=urn:btih:C168C987637C64C0914D5E593937AE6CC4EA54CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Unleash the Archers - Time Stands Still (2015) [FLAC|image+.cue]<Power/Melodic D
 ```bash
 magnet:?xt=urn:btih:CF148C4A662414B39BD4D22A9AAD91CAC4073F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:B66601EFB6A47608198EAD2A3CB2A799F7677824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Black Sabbath & Ozzy Osbourne - The Very Best Of (2015) [MP3|320 кб/с]<Hard R
 ```bash
 magnet:?xt=urn:btih:937EF3B1739B8C11CBF26D1023547CD09CDCE29E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

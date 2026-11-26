@@ -19,8 +19,7 @@ Universal Extractor 1.6.1.2017 RePack by koros [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E3383EB7A82B079E2BD683B58A5C848B89E12D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

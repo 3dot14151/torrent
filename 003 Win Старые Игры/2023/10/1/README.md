@@ -19,8 +19,7 @@ realMyst: Masterpiece Edition – это красивая обновлённая
 ```bash
 magnet:?xt=urn:btih:554C599D9F16F07B7CAEEA9D310CCAD57B95D8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:BEEB79CDCA5E27129F8574EC441A477D509F09D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Uru: Complete Chronicles (2004) [Multi] (1.0hf3) License GOG
 ```bash
 magnet:?xt=urn:btih:426EBCB1B2D4A45D6A64D69654E05CE0A764F6C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

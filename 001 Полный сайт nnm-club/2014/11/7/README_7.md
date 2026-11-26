@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C48C95019134E55B9075AFC40F651FD2E5F72D73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ubuntu BusinessPack 14.04 (ноябрь 2014) [i386 + amd64] (2xDVD)
 ```bash
 magnet:?xt=urn:btih:542D66FD431A262EBCF71955C999E6FE54242E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Tom Clancy's Splinter Cell Blacklist (2013) [Ru/Multi] (1.03/dlc) SteamRip Let's
 ```bash
 magnet:?xt=urn:btih:FD1EBA29129464E252568A28D45674C901BADEF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Call of Duty: Advanced Warfare — шутер от первого лица, ра
 ```bash
 magnet:?xt=urn:btih:9D616487ADF77592F9CA654A3EA54A07D1819EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F162AD02CB071AEEA01CBB7395D2223771962888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:863B2820DA4B0FD481BF42740138E26E300D6EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD20EE27EFFBE33D39EA69BD71DEFCC87AE967ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

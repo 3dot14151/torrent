@@ -28,8 +28,7 @@ AdrianGale - Crunch (2004) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:89250C54A2A00B118E8FE4ECB317A5F230F91256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Midwinter - Astral Mirrors (2003) [FLAC|Lossless]<Sympho Black/Epic Metal>
 ```bash
 magnet:?xt=urn:btih:FEC322EFAE56F6D0F59EF761C65021F6B400DC0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ We Butter The Bread With Butter - Goldkinder (Deluxe Edition) (2013) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:3383C3FE804CB1080B94CFDE033276DF46131E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Subsignal - Paraiso (2013) Deluxe Edition - 2CD [FLAC|Lossless]<Progressive Meta
 ```bash
 magnet:?xt=urn:btih:32CB5E81786FB3416FD9479FD45109FFAAF29007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Fates Warning - Darkness in a Different Light (2013) Limited Edition - 2CD  [FLA
 ```bash
 magnet:?xt=urn:btih:08F6B26FB055495853DAE1AD9CAAA2CC47683EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Mike Oldfield - Crises (Remastering) (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:22E52E370733D116F869081B4F18E3945728F1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ The 1975 - The 1975 (2013) [MP3|320 kbps]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:39185060CFD8E84454E029BE9DD7C20FDEE3BF6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

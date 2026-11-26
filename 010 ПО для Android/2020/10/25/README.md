@@ -19,8 +19,7 @@ SkySafari 6 Pro революционизирует ваши астрономич
 ```bash
 magnet:?xt=urn:btih:26197BD3D5DB396B7B1A20D8468746C8D64223F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TikTok – это социальная сеть, в которой вы може
 ```bash
 magnet:?xt=urn:btih:03401AE904A5D0ACBA8BC3BA4A41017621BC3B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

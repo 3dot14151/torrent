@@ -19,8 +19,7 @@ The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4402D7B2FF39E8E9075F50795973D23D4FABC9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eximius представляет собой гибрид шутера от пе�
 ```bash
 magnet:?xt=urn:btih:4052D8FC8922CF84F1EA01AC58AC8BC294F6F500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A22B383BA91C723CE8CE6396176B8D7B99A95A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wild Woods - экшн-игра про лесных существ и взаим�
 ```bash
 magnet:?xt=urn:btih:C8300B59AFB32771AD2D1D160A08B2E38D0F08ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Perennial Order черпает вдохновение в таких играх, 
 ```bash
 magnet:?xt=urn:btih:99D2C2BB32EE7894BB2A34D7B47E98278CADD588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Uncle Chop's Rocket Shop (2024) [Ru/Multi] (1.4.0:5875/dlc) Repack FitGirl [Delu
 ```bash
 magnet:?xt=urn:btih:23D847AAECE35F19B80B13DC36EE81C24CAFDD39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

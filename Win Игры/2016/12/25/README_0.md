@@ -19,8 +19,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) License GOG
 ```bash
 magnet:?xt=urn:btih:7D2323082EBCC0E25222B909DAC602591291D279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Worms Revolution – это самая последняя игра в серии
 ```bash
 magnet:?xt=urn:btih:D7E3750F373465ED6461DC35B41CBFD94AB56A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Tales 10: Edgar Allan Poe's The Raven (2016) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:8150E12D7BBF642BF4AA6DBC191358EE0836A325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Batman: Arkham Knight – завершение знаковой серии от 
 ```bash
 magnet:?xt=urn:btih:FF6692F67305A16EBB7BF36646FDA019B3B54BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

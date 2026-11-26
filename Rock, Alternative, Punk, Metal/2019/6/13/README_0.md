@@ -22,8 +22,7 @@ Gardsghastr - Slit Throat Requiem (2019) [FLAC|Lossless|tracks + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:A884AD56E24DA600E2BF408F3A0934F3D2C9D6EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Tokyo Highlights (Seibu Stadium, 03.11.1982)Жанр: Rock, Classic Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:784B7E129A050DC60F89C489F64E844D60963351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

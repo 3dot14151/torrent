@@ -19,8 +19,7 @@ Cameron Files 2: The Pharaoh's Curse / Amenophis: Resurrection / Проклят�
 ```bash
 magnet:?xt=urn:btih:889C27E31389A2187B8EBC75C5DD7FB6270ADDD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Keepsake / Keepsake: Тайна Долины Драконов [Ru] (Repack/1.6) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wallace & Gromit in Project Zoo / Уоллес и Громит: Ужасная �
 ```bash
 magnet:?xt=urn:btih:87F8AB93E2B380D71F1E04D416BB466469D7D393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

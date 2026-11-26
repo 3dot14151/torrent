@@ -19,8 +19,7 @@ Written Legends: Nightmare At Sea (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D5699ACAB88995DDC8DDCDF09D821B4C6E2D33E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Triazzle Island (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:713A0F65CB9FAE1BB8217AFD37026C02BC1A3D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sphera: The Inner Journey (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:37AEFA2FBD384F58E129FAC5F0D88CDA767E3108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Casino Chaos (P) [En] 2011 | Fyrrion
 ```bash
 magnet:?xt=urn:btih:A8629E25CA865775132D6522D085BA71EA43D8AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD87AF195E5C59859BB4E8D152632AAD8915F527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Neverball (1.5.4) [En] (L) 2010
 ```bash
 magnet:?xt=urn:btih:3DFA0B6A348CD443050FA7398A61C523CD63746E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Update для Duke Nukem Forever
 ```bash
 magnet:?xt=urn:btih:1D4DA7994A768547B9AB3EC8967414C024F4FD94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Super Mario Bros. X 1.2.1 [En] (RePack) 2010 | R.G. NoLimits-Team GameS
 ```bash
 magnet:?xt=urn:btih:9C7E35643D804436DFA3AECF0A15AC2B71EAB6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

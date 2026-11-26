@@ -25,8 +25,7 @@ Stanislav aka bred | Все рабочие секреты Вконтакте (В
 ```bash
 magnet:?xt=urn:btih:EAE007E64286E05AC4577DBF671603C7052F67AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

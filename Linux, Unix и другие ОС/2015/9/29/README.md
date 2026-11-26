@@ -19,8 +19,7 @@ Manjaro Linux 15.09 (KDE, Xfce, LXDE, LXQt + netinstall) [i686] 2xDVD + 3xCD
 ```bash
 magnet:?xt=urn:btih:59D066845CA778F661809F3B652848B42C2599BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

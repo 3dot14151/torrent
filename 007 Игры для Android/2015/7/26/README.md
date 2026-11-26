@@ -19,8 +19,7 @@ Asphalt 8: Airborne v2.0.0j МегаМод [Ru]
 ```bash
 magnet:?xt=urn:btih:BB7F7C13E30EA9D8F1D18269FD75ECC7D19647EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

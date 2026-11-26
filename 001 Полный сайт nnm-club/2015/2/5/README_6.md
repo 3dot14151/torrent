@@ -20,8 +20,7 @@ Deathtrap — это игра в жанре «защита башни», объ�
 ```bash
 magnet:?xt=urn:btih:087030F561022B45621050A702EBDE8CD5C185AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC87BAB9FAF1EA94E5DE2110E94C91B223B1135F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Light Alloy – мультимедийный плеер для ОС Windows. П�
 ```bash
 magnet:?xt=urn:btih:51BC67E6B58F55DDD0C5CB3B2B245B442ED9AD05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Tales of Phantasia - The Animation | Сказания Фантазии [2004, OV
 ```bash
 magnet:?xt=urn:btih:535D4518655B6B9F3CF15DE6048075CDA3327FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ WXIII Kidou Keisatsu Patlabor | WXIII: Patlabor the Movie 3 | Полиция Б�
 ```bash
 magnet:?xt=urn:btih:F5BE827C6043FC00494360DB18998AF275667BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Kidou Keisatsu Patlabor 2 the Movie | Mobile Police Patlabor 2: The Movie | По
 ```bash
 magnet:?xt=urn:btih:BDF44BF74A5D205C29031FED94735DE33EC231D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Kidou Keisatsu Patlabor | Mobile Police Patlabor: The Movie | Полиция Б�
 ```bash
 magnet:?xt=urn:btih:E9B2EF184DD419274ECF09C33086E9CCA4F26116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEAB51BB38AC49DCD6310EC3A42D1CAA65B3C6F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC9BD1693C4AE4B001869F7A188BA5B46A25850D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Black Lagoon | Пираты «Черной лагуны» | Чёрная лаг�
 ```bash
 magnet:?xt=urn:btih:C08A9ACD5F8F68FE578F843285C0BE4547202C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:798E2EDDB2A584DFB54452478D5401691B332868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEEB2DFB3E2E86FC53F9FB58F5A5C31954046C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ ru_windows_7_professional_with_sp1_x64_dvd_u_677024.iso.
 ```bash
 magnet:?xt=urn:btih:1D4CBF13BCBBA1B9E65DF5BF406C9E745E54F22E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0A7B88D905EB6135454AC8778E36EA04C634AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EB7480C20810443AA4A125F79977B45F6E131A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso.
 ```bash
 magnet:?xt=urn:btih:CCC5D67351F6152BE9C356D8DAC90297FA4F4167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

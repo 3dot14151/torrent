@@ -19,8 +19,7 @@ Blender 3.0 – один из лучших на сегодняшний день 
 ```bash
 magnet:?xt=urn:btih:C80E3BB8F455F7B7CDCDD3B1096D518E8D5EE5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

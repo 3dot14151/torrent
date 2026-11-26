@@ -19,8 +19,7 @@ PixelLab - отличный фоторедактор, в котором все �
 ```bash
 magnet:?xt=urn:btih:B50E6F0563617CE926B77412B2EA4BB2035F36A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AmiHear - Hearing Aid App 2.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:8E37CF9D17B38DF70B0E6011D060CBA63655D49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A95838A6D8926E5669B7E3515F1454222AD22B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BetterSleep: Сон и Медитация - программа для тех, к
 ```bash
 magnet:?xt=urn:btih:2AD6FB010E68704AB9D4C9D495F11A8898854F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mi Band 7 Циферблаты - проект преимущественно о�
 ```bash
 magnet:?xt=urn:btih:720CFD5C7B7F6F245EAAB9CBFE6467786FFB2D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E77EDF3DCCE2639210F97910D6271305CE310B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

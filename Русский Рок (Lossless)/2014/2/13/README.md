@@ -27,8 +27,7 @@ Aura - Вдохновение (2013) [FLAC|image+.cue]<Symphonic Gothic/Power Me
 ```bash
 magnet:?xt=urn:btih:66EB3A287497111597FE975427B8354875B658D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

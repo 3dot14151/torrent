@@ -23,8 +23,7 @@ HIM — одна из самых успешных групп Финляндии,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Infected Rain - Asylum (2011) [MP3|192-320 kbps]<Nu-Metal, Alternative Metal, Fe
 ```bash
 magnet:?xt=urn:btih:7A5B31515BB19E03C907CE09867357750B2A0BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Jimmy Page - Playin' Up A Storm (2011) [MP3|320 kbps]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:70606426076AD5FC6D68A4FCD2B21568372CDD4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Jimmy Page - Playin' Up A Storm (2011) [FLAC|Lossless]<Blues-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

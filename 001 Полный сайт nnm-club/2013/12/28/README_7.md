@@ -20,8 +20,7 @@ Windows 8 Manager - программа-оптимизатор все в одно
 ```bash
 magnet:?xt=urn:btih:C475720D17C84903D2E42B5280E02F7115A53304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ The Walking Dead: Season Two. Episode 1 (2013) [Ru/En] (1.0) SteamRip R.G. Иг�
 ```bash
 magnet:?xt=urn:btih:EB6D382C2A99A9A5F47355E4CD68E3BB715DCB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3354CD4906AB759D4DA3552CCF5BCD70432CF8B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ mLogo представляет собой набор из 90 высококач�
 ```bash
 magnet:?xt=urn:btih:76890E743FF800D06688871A4CD0A10F62FF154E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Space Engineers - это фантастическая песочница, где
 ```bash
 magnet:?xt=urn:btih:2D6BAD8363DA127690DE8FEC9C74A86946302F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:982B115CC6037EAAB40F116A49A1D1406656D4E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ MAGIX Music Maker MX содержит более 1500 новейших звук�
 ```bash
 magnet:?xt=urn:btih:A81ECC092E13A9AEAA7994BFA8F0040013D5B3A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Motor Rock (2013) [Ru/Multi] (1.0 Upd5) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:CD32A93A629C9195A3804BC15EF401E5CD8416C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ StarDrive – космическая 4X стратегия, в которой в
 ```bash
 magnet:?xt=urn:btih:02000C297B3BD5B2C8F63D637975F9B992D25BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1095) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:C1724C59A8606C15FA8B680F49803C3350A4A9C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5839B38E5EA9BEB918BEB308B672609ABA681013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B9BC5B79EBD74D9C3A0BFC6061D6764B029AE85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Need for Speed The Run — гоночные состязания, ставка �
 ```bash
 magnet:?xt=urn:btih:81AC40E3AF4B715CF143D6F8BA4E3E98F3940A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ ZverDVD 2014 + Alkid SE (Официальная раздача)
 ```bash
 magnet:?xt=urn:btih:86A4FB2A191FC46FF5ADD2B24BB0EC27DF1B1FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

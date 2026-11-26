@@ -19,8 +19,7 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 ```bash
 magnet:?xt=urn:btih:FEE93D9CFEEFB036918EF0E899A28F4ECB884D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 ```bash
 magnet:?xt=urn:btih:F1228321F0CCCACC8AE53E9F48A029A723E3B5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 ```bash
 magnet:?xt=urn:btih:39F5E1651610B56EBBF817E8A31806AD84951C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deadlight (2016) [Multi] (1.0) License GOG [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:372CFC49215430A76E5ABB9FBB2F4EEB174EB8CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Call of Duty: Black Ops - долгожданная седьмая часть Cal
 ```bash
 magnet:?xt=urn:btih:53639E842B58FD02773E3A544E893CF493238404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 ```bash
 magnet:?xt=urn:btih:6CE4FA6A23CE9F049789347D6EE6C63FE472B7B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05) Repack xatab [Collection Edition]
 ```bash
 magnet:?xt=urn:btih:B43D656D5C9FA7909E8052776A42A34C858E2CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

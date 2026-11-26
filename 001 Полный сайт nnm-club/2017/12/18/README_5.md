@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E4CAC8315117EDF029413B681BA635B29722A466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Wonder Boy: The Dragon's Trap - это неожиданное возвращен
 ```bash
 magnet:?xt=urn:btih:EF2BC52762B93578D801F635457743D183CA4D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TV-1 (AniDub), (Anilibria), (Animedia), (DeadLine Studio), (SHIZA-Project) - в�
 ```bash
 magnet:?xt=urn:btih:0B917DF3D75BEB9E8850F0CFB2296E77A69BA54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Part 1 (Discoteka):
 ```bash
 magnet:?xt=urn:btih:B9A382485C39E90DF5A2E29D12947B53130EBE39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68DA194E95ECD444D12159E6C71B331C92552B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken / My Girlfriend is Shobitch / М
 ```bash
 magnet:?xt=urn:btih:B23B6B4D43B27FDBF50158F9C2CBAF80734AB57E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA88ADD54BCB8570CABAE973FC42A51EC9084F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E97F2DF4FAE4EE660C672C2336D7F5D99DFAC7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10.0/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:B1DF4365CFD763D1FCCF6C815606B683387258F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

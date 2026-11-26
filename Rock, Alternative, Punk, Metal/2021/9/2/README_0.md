@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:4E57D74734A9ED64AEA27B4CFEF555BA71A9EED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Infiltration - Point Blank Termination (2020) [FLAC|Lossless|image + .cue] <Deat
 ```bash
 magnet:?xt=urn:btih:AA6732D4E0F0A73F4032EAB5D621A0D684BD7938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD -1:
 ```bash
 magnet:?xt=urn:btih:BCA822DA1C720FE2DC20ED38732C7C4266DC9E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Green Grey - Спичка (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:297616CDE71F597F3A69B395EA4A8E5340D7832A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Thyrane - Travesty Of Heavenly Essence (2005) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:E801B01658F552C683D5AABEA6707D51699705B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Suicider - Death Surround (2010) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:B0DEA374EE575568DDB085F8DE3251710DDA6A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Iron Maiden - Senjutsu (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3CB4EE9FF6FC04796CFC84EB4411C56CF8B9DC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Iron Maiden - Senjutsu (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9095C880B9B8422D6469FE6AC471C158766DD3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A9F922B242DBB2612D8D88047DA31E9EC725B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Heart Through Sacrifice - Heart Through Sacrifice (2021) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:99BA317D2CFCE1CAD1B161C0A6D868012374071F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

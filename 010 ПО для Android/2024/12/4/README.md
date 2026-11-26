@@ -19,8 +19,7 @@ Sleep as Android: отличный сон v20241122 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7E33C3063FAC00E1A64C6CDC5FC1113F502D37E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

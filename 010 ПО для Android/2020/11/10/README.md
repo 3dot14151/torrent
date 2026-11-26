@@ -22,8 +22,7 @@ Vinci v2.2 (74) [Ru/Multi] - Обработка фотографий при по
 ```bash
 magnet:?xt=urn:btih:CDEB6148D0E7D77F2AAD3689BC43A51A1E3CA226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Camera Auto Timestamp v2.48 Pro [En/Ru] - добавление различны�
 ```bash
 magnet:?xt=urn:btih:A4FD5CB74849B410B8439B014227777282EE0A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

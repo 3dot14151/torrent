@@ -19,8 +19,7 @@ Biped — это динамичная приключенческая 3D-игра
 ```bash
 magnet:?xt=urn:btih:104E83CBC569D251953A47CF7DD549E21ABA5A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

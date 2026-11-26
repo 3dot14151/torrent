@@ -19,8 +19,7 @@ Blaine Bateman | The Pandas Workshop (2022) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:AA8B27250F6082F7C3566F92D9B12A13308ABF13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

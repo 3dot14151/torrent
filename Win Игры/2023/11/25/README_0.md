@@ -19,8 +19,7 @@ Cramped Room of Death - это увлекательная головоломка
 ```bash
 magnet:?xt=urn:btih:23D02EF1BE30C0BEB76A688FCAE309C211D3CC0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vaccine Rebirth погружает в леденящее и непредсказ
 ```bash
 magnet:?xt=urn:btih:C77C7F6F6E6BCB41DB713C4363CC3D926C32DFFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523) Repack dixen18 [Ep
 ```bash
 magnet:?xt=urn:btih:938738DF08DE53B02AE41B68C1BEA6531418BCBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 ```bash
 magnet:?xt=urn:btih:0B42E1F8EE8C6E9CACB6A72D582208571AF8A13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

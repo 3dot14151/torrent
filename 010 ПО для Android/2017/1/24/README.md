@@ -19,8 +19,7 @@ Analog Electronic Toolbox v3.77 [En] - набор инструментов дл�
 ```bash
 magnet:?xt=urn:btih:526FFD66A27887C8F5605EA09F4B778F3AE514B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GT Recovery - Undelete,Restore 2.6.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:E453CCB78B851724D1B9C61A0E47C1FB52D7A9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

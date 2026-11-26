@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A2CC68885D269E1623370B666A5408169A560DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:790A0A789F23C60544684C554169D05767E5833E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Bananastreet: Deep House & EDM v4.1.63 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4077A7CF0F1BB27312F1071407B5E81FE6E665B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ NokoPrint v5.24.8 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5F663D3A24DE6B7D5BB7AB3F704003B57F7E0146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:2FCC0C1EED43433C3551CD81E613C5822848D00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ VK Музыка: песни и подкасты v8.6 Mod by VK Equals [Ru/En]
 ```bash
 magnet:?xt=urn:btih:93BA48A7EC4130995018740746827C45133D432A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ VRadio - Online Radio App v2.8.10 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C15A5624A449D5F9E00330F6BEF80CFF49F2D09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ FotoTweak - AI Image Generator v1.0.48 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:937E15772BBA6CFBB7314C7040FFF9B3A4AEB8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ AI Music Maker & Cover Songs v1.13 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C50B02767E42F2E0BA71500A210A718548C25A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:702B0F85CFE68C414DDFEF033C3C279EA8D3BB44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71A932C7B780A2AB4A2B59BFA2FCD9C9DEE2ABC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:50153858B3FDE52CD851A7E73812C3FB5E4C2197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:7A65932DFDA010A4DC9BF50FFD53BFDB6B5B2701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D665489710540B0F89FEA9FAC3E408DE5EC3A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:4F41CFDF9AD39EB940CF69645A0164E4347AD947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

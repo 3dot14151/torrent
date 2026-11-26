@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:FED5A6818B1FE76648ED5F2764E06AC971922847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB3F097D12D8C5D8FFE32A2B4ACED8424A7840A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ XXIV век. Минуло десять лет после войны Земли �
 ```bash
 magnet:?xt=urn:btih:830B6102CD2C7BA51D7849EA8942A6CA036AC1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

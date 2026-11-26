@@ -22,8 +22,7 @@ Drowning - Into Nothingness (2010) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:C2E4811C179E36CAC188F7C7E4DF05BFD6BCF7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Last Avenue - Integration Protocol (2015) [FLAC|Lossless|WEB-DL]<Industrial Meta
 ```bash
 magnet:?xt=urn:btih:5FB994D9C883209B13A3C26747E856E70CB42A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ The Hirsch Effekt - Holon : Agnosie (2015) [MP3|320 кб/с]<Post Rock, Mathcore
 ```bash
 magnet:?xt=urn:btih:508CA67AF59822AEF39B95ECEBAA96E907B4079B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7111ED36A84952F89C27946D9C554967EE362D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

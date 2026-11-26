@@ -23,8 +23,7 @@ Blackthorn Suffering - Терновые Страдания (2014) EP [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:3854655ADEF59FE042B645066E60341252218A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Zephyra - Mental Absolution (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:74117067773B4F6537ADC6AFE9409F7D08AE8C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Victorius - Dreamchaser (2014) Japan Edition [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:B96A0C96D73D5FC4EFC2E187AF669C3F5505D424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ The Doobie Brothers - Minute By Minute (1978/2005) [FLAC|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:97A53F4C4A925D9B0F091D3E181F84CE7818A8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ VA - Super Cover Hits (2014) 2CD [MP3|320 кб/с]<Pop-Rock, Classic Rock, Latin
 ```bash
 magnet:?xt=urn:btih:0DBB0DA9CEB1C31C61DC99E55F001302C1905C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ VA - Rock classics (Best of classic rock) (2013) 2CD [FLAC|Lossless]<Rock, Hard 
 ```bash
 magnet:?xt=urn:btih:8725860D569A9A17D53864D9A66546C7D3135579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Black Veil Brides - 4 Альбомa (2010-2014) Дискография [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:1F1EA7D0FF3697F437A97981380DA980AD1EBEA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

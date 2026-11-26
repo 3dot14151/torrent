@@ -22,8 +22,7 @@ Bis·nte (Bisonte) - Ancestral Punishment (2020) [MP3|320 Kbps] <Doom Stoner Met
 ```bash
 magnet:?xt=urn:btih:776741F338CB002E01AC0198494479E4E7D6A5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ashley Moshe - 3 Albums (2014 - 2020) [MP3|320 Kbps] <Alternative Metal, Nu-Meta
 ```bash
 magnet:?xt=urn:btih:1EA8F6791A2051EDF620722D3B630563E8BED47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Boz Scaggs - But Beautiful (2003) [FLAC|Lossless|tracks + .cue] <Vocal Pop, Torc
 ```bash
 magnet:?xt=urn:btih:C951E091EC4D0215B0BAC606395F8E2DC1F78DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dreams of Demise - Decipula (2020) [MP3|320 Kbps] <Metalcore, Deathcore>
 ```bash
 magnet:?xt=urn:btih:0EE184206C6B396E9C078CA003392EA3C8526FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pine Ridge - Can't Deny (2020) [MP3|320 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:62BC5D274BD2702C904047C20886742C312F5A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Here Lies Man - Ritual Divination (2021) [MP3|320 Kbps] <Psychedelic Rock, Stone
 ```bash
 magnet:?xt=urn:btih:0E8FEC02A7AC41DFFF4DC6DA89DD01C36373B085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Old Sea and Mother Serpent - 2 Albums (2012-2021) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:63A2ECA16DD240B50ADFFE4985B196F616E03056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60A4C0C1C08F1E9E51E0187FCA048299EE1D9134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

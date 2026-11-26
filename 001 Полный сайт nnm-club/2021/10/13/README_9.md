@@ -21,8 +21,7 @@ VA - Fifty Shades of Jazz (2017) [AAC|~330 Kbps] <Downtempo, Lounge, Balearic>
 ```bash
 magnet:?xt=urn:btih:69A2E4BFEF4B4F1933ED7DBBF2E898F3256B20BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Flora Lounge Tunes by Smooth Deluxe, Vol. 1 (2021) [AAC|~318 Kbps] <Chill O
 ```bash
 magnet:?xt=urn:btih:7600FA7E20D7BD3DD6D41E7E28549D36A29CC8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EB1D96203297EB7B30862B56D22B9D62AF941FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - The World Series of Lounge, Vol. 2 (2021) [AAC|~319 Kbps] <Balearic, Downte
 ```bash
 magnet:?xt=urn:btih:915E511E1CD596B9D09314DBC1519FD220C6FA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ TextBar позволяет вам использовать скрипты, чт�
 ```bash
 magnet:?xt=urn:btih:426C02F07CD9609FD7F8269E633693A5C66A98DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - The Lounge Chill Out Chapter, Vol. 2 (2021) [AAC|~329 Kbps] <Chill Out, Lou
 ```bash
 magnet:?xt=urn:btih:CECC42A52CDAB6C7239363CE53D04107D71707E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Lounge Remixes (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Deep House>
 ```bash
 magnet:?xt=urn:btih:1E4E4DD397CAA6E542B71DF53FF0895CE2C0BEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Beautyness of Butterfly, the Chill Out Worx, Vol. 1 (2021) [AAC|~328 Kbps] 
 ```bash
 magnet:?xt=urn:btih:AD2805079096CA96B202621FB0D26E1FEFABAF67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Chillhop Guitar - Lazy Mood (2021) [AAC|~308 Kbps] <Chill Out, Smooth Jazz, Down
 ```bash
 magnet:?xt=urn:btih:C4BDEFE43E138D3E21C5F0142FF81E00FB44F905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Chillhop Guitar - Soothing Routine (2021) [AAC|~324 Kbps] <Chill Out, Smooth Jaz
 ```bash
 magnet:?xt=urn:btih:82642497337D9D1D94F1339A7C604FFC1695E54D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Magic Island of Chill Out, Vol. 3 (2021) [AAC|~326 Kbps] <Lo-Fi, Lounge, Ch
 ```bash
 magnet:?xt=urn:btih:D453F0373859D0273F299AFB9FE7F44D9D8004B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ VA - Prophet Collection, Vol. 8 by Manuel Defil (2021) [AAC|~323 Kbps] <Organic 
 ```bash
 magnet:?xt=urn:btih:10A2918EC52F6310A0CC320C8CD01B5D48E40D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ VA - Chillout Delis (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:FCF0FC968A7403BD1C05CEBF2B8DE49C8BE49906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ Jean Mare - Another Atmospheric Chill Lounge (2021) [AAC|~297 Kbps] <Chillhouse,
 ```bash
 magnet:?xt=urn:btih:B931C7FB315D2E7868B5D11552A38204DB50CA9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Röyksopp - Röyksopp’s Night Out Live EP (2006) [AAC|~360 Kbps] <Electronic, 
 ```bash
 magnet:?xt=urn:btih:11D80A530AE8D12EC1C7A6CEE1816BC73252EDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ VA - Chilling On Purple Clouds, Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:D94F1753F28EF6EEEF1FA3CC0ED8646E5F2F7C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ Chillhop Guitar - Guitar Resort (2021) [AAC|~319 Kbps] <Chill Out, Smooth Jazz, 
 ```bash
 magnet:?xt=urn:btih:EE908E0293787838B5AC1A54D7242622CB73C363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ VA - Vanilla Kiss (Beautiful Lounge Collection), Vol. 1 (2021) [AAC|~324 Kbps] <
 ```bash
 magnet:?xt=urn:btih:EDF48468B7C23EA6E99DD777FEA05255238B2C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ VA - Fashionable Music Barcelona (Sophisticated Lounge Tunes from the Fashion Sh
 ```bash
 magnet:?xt=urn:btih:42C83FCF304962F40F79E5F8EAAEDB910DF68192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ VA - Sketches of Lounge (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:7EAE0B88E228317EFEAF7C599998B66BCF838A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ VA - Ibiza Chill Vibes, Vol. 1 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:4C0B8E5A31B7CCB1ACFD7CD95BA8C6CC91C211DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ VA - Lounge Hotel, Vol. 1 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:FBAD90649FC9B969BB263133402F1F98BB5EA0A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ VA - The Seeds of Lounge, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:71E31EE312BE226429DC25301321E779BEDFD3E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ VA - Buddhatronic - the Compilation, Vol. 1 (2015) [AAC|~318 Kbps] <Downtempo, L
 ```bash
 magnet:?xt=urn:btih:0A93F93A67DE877E774F0DD664D446800086C107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ VA - Chilling On Purple Clouds, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:78442ED5BD869E79662D8DBF9229EED89837E533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +718,7 @@ Chillhop Guitar - Mellow Afternoon (2020) [AAC|~293 Kbps] <Chill Out, Smooth Jaz
 ```bash
 magnet:?xt=urn:btih:BB1C6CB7DD5FAA34E50104CC507EBC985F71FE4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

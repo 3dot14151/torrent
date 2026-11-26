@@ -21,8 +21,7 @@ USB флешек после любых действий, которые прив
 ```bash
 magnet:?xt=urn:btih:DBBF60F081A8C7EC3AFAEF8898016952BDD872DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

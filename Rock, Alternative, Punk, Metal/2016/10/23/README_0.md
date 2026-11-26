@@ -22,8 +22,7 @@ Subscaria - Afterwrath (2016) [MP3|320 Kbps] <MDM>
 ```bash
 magnet:?xt=urn:btih:49AB55BC78E3622BC47F482285C97295933F377E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Amaranthe - Maximalism (2016) [FLAC|tracks|WEB-DL]<Modern Melodic Metal, Male an
 ```bash
 magnet:?xt=urn:btih:AC59894076F6AD49E00CBB64B152AD909BCED806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pantera - The Great Southern Trendkill (1996) 2CD, Remastered, 2016, Rhino Recor
 ```bash
 magnet:?xt=urn:btih:7B671E68621E47C39DE888F632B3633A780CFC88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ July Reign - Here Comes The Flood (2016) [FLAC|Lossless|tracks + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:2777063B70F21762F964177BC8C8286B29226A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ WICCA - Bloodrush (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:34BCC706092F1C22AFAC5F71D1EB81F6964B82BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:20D005BAF2AC4FE9E40373212C4D98419D786D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Strapping Young Lad - 5albums + 3EPs + 1live (1995-2008) [MP3|320kbps] <Extreme 
 ```bash
 magnet:?xt=urn:btih:E4F9E9B41B4B1455A7D814ECDE77B7D76D14BF48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F2D0E9C25A9DABC274A12F9B6608FE56B89DF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ In Divinia - Unthawed (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:608E7E6C19DCC3695EBA538D3A970A89B21ABFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA21584F57D84BB838F28B61A70996C369D46062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Karise Eden - Things I've Done (2014) [MP3|320 кб/с]<Blues, Soul>
 ```bash
 magnet:?xt=urn:btih:F78E4883DD18F2AEE997A69E50D5D54D324E9401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Discovery: Сверхчеловеческая наука / Super Human Science (
 ```bash
 magnet:?xt=urn:btih:7BDA99A18D85BDAF4F947A7DE526839B735FB4AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ VA - Progressive & Psy Trance Pieces Vol. 9 (2014) [MP3|320 кб/с]<Psychedelic
 ```bash
 magnet:?xt=urn:btih:E22E0E085E074E3D5CAD9885BAF56829AC289275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ Virtual Riot - We're Not Alone (The Remixes) (2014) [MP3|320 кб/с]<Drum & Bas
 ```bash
 magnet:?xt=urn:btih:EBC5FEA326C1F1836356BCE2A168370C6A40D777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Ultimate Mancini Orchestra - Ultimate Mancini (2004) [MP3|320 кб/с]<Jazz, Eas
 ```bash
 magnet:?xt=urn:btih:E7583E3B8B63DD93D534A85B8B49337664109F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2CB430EED0FE7E1F77CD208BFD33AFE4C7BEA1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE6D19FC1D307EE0C9D066E694D3B506AD1F552F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ Ashampoo Photo Card 2 превращает Ваши фотографии в эл
 ```bash
 magnet:?xt=urn:btih:578749AD8A3C0523320CD9145E4AAF09BA5B09CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8214D5DFB19F7E3955E0AB0259D320D6D562DF74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAA25100EAC7ED12870D73410C624327790CE6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5040455CCEAC9386F40484413AE0BBBBB630EC91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C43C96DE09E66CB01011E95BA4CB19C48258E323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ VA - Зарубежные Новинки Vol.172 (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:B1BA80614AA8F7637C5C8C4D76902E20ABA99CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56C19795FEDE6FA2E059507DD573B3574C260C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ VA - Русские Новинки Vol.157 (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:372BB1E8E5958F55261B26268C0FAAD27C32895D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +597,7 @@ VA - Goa Energy (2014) 2CD [MP3|~245 кб/с (V0)]<Psychedelic, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:63AE92218B05AC335944B7B7343AE3F18393C3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF538746B037D7F3B1A2BAC180724EF19A914D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDA8F3F3CB50AAA3C87A184044F2992003192AA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8ECD9DB5F62EF0AD2F14A4AA19514F5274F6864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +711,7 @@ VA - The Official UK Top 40 Singles Chart (16-11-2014) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:1250E9E5B41CE4F72F3D56469DC939823FAC9B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ Ashampoo Photo Commander 12.0.6 RePack by FanIT [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B6A3230E50B3EB71E22CD240DF94DBE492B0C01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

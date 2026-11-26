@@ -22,8 +22,7 @@ Corrosion of Conformity (или C.O.C.) — американская метал-
 ```bash
 magnet:?xt=urn:btih:D993523E017ABF69F667CC124B6530AF48AE24D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

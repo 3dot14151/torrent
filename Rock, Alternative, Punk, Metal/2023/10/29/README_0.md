@@ -21,8 +21,7 @@ Bonafide - Are You Listening? (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, B
 ```bash
 magnet:?xt=urn:btih:3D0D365259313646F3F10F1F2E603F8E3BC54611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Skylark - Divine Gates Part II Gate Of Heaven (2000) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:BD4FCA7DD910A2916CE424B37830CEAC7102705C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Magnus Karlsson's Free Fall - Hunt The Flame (2023) Japanese Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:72AF55356FD50251437B47B81F16987A8D3E7054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Sky Empire - The Shifting Tectonic Plates Of Power - Part One (2023) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:AF4393071BAC0A410671B3A201A46FDB4542434B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ CD 03 - Eye of the Hurricane, Impellitteri(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:235F321D22B8F334E3657ACD01A8E57C193C9449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Fields Of The Nephilim - From Gehenna To Here (2001) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:044B2B2B77D3B637993CE610EA07D5AF8B4556FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Camel - Mirage (1974) 3CD Remastered & Expanded Edition, 2023, [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:38BD9E774F889BFDCE14F011567346BD1BF0D5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Venom - Live From The Hammersmith Odeon Theatre (2017) Reissue, 2023, Dissonance
 ```bash
 magnet:?xt=urn:btih:259CF2A737154B22CE2F2949E84EC093C77581A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Deep Purple - In Rock (1970) Remaster, 2018, Parlophone UK [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:04B381F0ABDD279C78E774A6F685C9F09CEBCF46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

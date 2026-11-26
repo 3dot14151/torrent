@@ -19,8 +19,7 @@ The Temple of Elemental Evil: A Classic Greyhawk Adventure [Ru/En] (RePack/1.1) 
 ```bash
 magnet:?xt=urn:btih:0F11FF0C5BA2217555352A3BFC120706021BBF62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

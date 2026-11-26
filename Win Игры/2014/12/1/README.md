@@ -19,8 +19,7 @@ Surface 6: Game of Gods / Над водой 6: Игра богов (2014) [Ru] U
 ```bash
 magnet:?xt=urn:btih:527F2FAF050176A90DCEF5DF51FC95D545102CBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Reckoning: Silvermoon Isle / Точный расчет: Остров Сил
 ```bash
 magnet:?xt=urn:btih:2EBCE4D8DA17AF8665B028E81495432D37F77A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sneaky Sneaky  (2014) [En] (1.0.293) Repack  Let'sPlay
 ```bash
 magnet:?xt=urn:btih:3C3986ECEC404F9E86C633005AD4201DCB06C9C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ One Day For Ched (2012) [En] (1.0.5/dlc) Repack Let'sPlay
 ```bash
 magnet:?xt=urn:btih:DBA32390DE3967FE3F7AA625EA5EB5B1C2FAB8D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mining Industry Simulator (2014) [Multi] License
 ```bash
 magnet:?xt=urn:btih:52FFEF25BEB12153743A2640FA34FB519F7861EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Fireworks Simulator (2014) [Multi] (1.0.0) Repack ALiAS
 ```bash
 magnet:?xt=urn:btih:CE24932992D794A7B4A122355027E5866B854E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

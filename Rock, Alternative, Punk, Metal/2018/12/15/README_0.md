@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:A6EA4475EF3517965EF8801C30AF09613E60D148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Beacon Street Union - The Eyes Of The Beacon Street Union (1968) Reissue, 2010, 
 ```bash
 magnet:?xt=urn:btih:099C2E36A7845E6A75D221616F2D5F95807AF911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Outlaw Blood - Outlaw Blood (1991) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A4B8CC5A38D259E50E750BCFB55F07713DFB7B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2A2CB95DBDD34A869532E957C9F1AC7568C2580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Papa Roach - Who Do You Trust? (2019) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:03687336E74D33620A3900EE97E011349A6ACC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

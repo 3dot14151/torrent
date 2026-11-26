@@ -22,8 +22,7 @@ Mind Odyssey - Time To Change It (2009) Japan 1st Press, 2009, Avalon [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:15ECB9AE0D4A74FF6BC2EA2F1A7FF8651991BAC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wolverine - Machina Viva (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:FE59F1472E2D7ADD24DE944B6EB419D298C48D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mind Odyssey - Nailed To The Shade (1998) Japan 1st Press, 1999, Victor [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:7CFBABF94C2F6D83288BE7933C387E8704CD2C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mind Odyssey - Signs (1999) Japan 1st Press [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:9992D95FFB712D6A3658E0734FE2AAE6E20E9D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Darkwater - Calling The Earth To Witness (2007) [APE|Lossless|image + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:A874329D163657851B11DF067F9CD424946660DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mind Odyssey - Schizophenia (1995) Japan 1st Press, 1995, Victor [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F4D6FEE895AD51319E9994ED66155257A32C9AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mind Odyssey - Best Of - 15 Years (2008) Compilation [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:3D9DFE82A3EBD57401999A2253C221BB5FB48FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Darkwater - Where Stories End (2010) [FLAC|Lossless|image + .cue] <Progressive M
 ```bash
 magnet:?xt=urn:btih:205B3FA95E2511CD2B60439B23169D070D2178B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Mind Odyssey - Keep It All Turning (1993) Japan 1st Press, 1994,  Noise Internat
 ```bash
 magnet:?xt=urn:btih:F0B6B46CDAA2C2AF86CC7F0DC44670C6F0871BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Der Bote - Morgenwelt (2013) [FLAC|Lossless|tracks + .cue] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:6B50EFD4A89B08D8C0B20D0B936829356615540D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Wolverine - The Windows Purpose (2001) Remaster, 2006, Earache Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:13A7DCFEBB83D415F6FBA4FAB364641643E4FC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Glenn Frey (Ex. Eagles) - No Fun Aloud (1982) [MP3|320 Kbps] <Pop-Rock, Classic 
 ```bash
 magnet:?xt=urn:btih:5CC5D84768DDDB0F9763310176F7845FA9D1FDC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Rings Of Saturn - Ultu Ulla (2017) [MP3|320 Kbps] <Technical Deathcore>
 ```bash
 magnet:?xt=urn:btih:D05D5A6A426505473191BA30A80C084BE41B508A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Phil Collins - ...But Seriously (1989) [FLAC|Lossless|image + .cue] <Soft Rock, 
 ```bash
 magnet:?xt=urn:btih:AB1D889293E335B3B2DDE8E5000B268F9128A5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Phil Collins - No Jacket Required (1985) Reissue, 1999, WEA [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:A429CEECED45FAE81E7AB514F61ECC35A10525F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42219FF7616EB34987854400A3CC12861CBE3672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

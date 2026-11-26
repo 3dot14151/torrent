@@ -22,8 +22,7 @@ Solution .45 - Nightmares In The Waking State Pt.II (2016) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:573F8004C53DDDACCBE6F165188C6D34CDE697F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Smokey Fingers - Promised Land (2016) [MP3|320 Kbps] <Southern Rock>
 ```bash
 magnet:?xt=urn:btih:1A54894356532467DD93A167CC614C64656D4094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tennessee Iron - Better Late Than Never (2016) [MP3|320 Kbps] <Tennessee Boogie 
 ```bash
 magnet:?xt=urn:btih:0E3AD2C0A7C94579A75BB641A87EBC8120B5B655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Michael Sweet - One Sided War (2016) [FLAC|Lossless|image + .cue] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:9D71C530A164C400F535186F4577B38C34094618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Humble Pie - Smokin' (1972) Reisue, 1990, A&M Records [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:A6DBBEE886363A2319ABC350BC8C9C76987A63F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Smokie - The World And Elsewhere (1995) [APE|Lossless|image + .cue] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:EC0B7F48D5BF7110F107E905ABC1EF659D1B1B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Jimi Hendrix - Live At Monterey Pop Festival (1992) [WavPack|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:8E488A2D84FD8B8A62414F77F7BA4C72A6CC6CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Twilight Force - Heroes Of Mighty Magic (2016) [FLAC|Lossless|image + .cue] <Sym
 ```bash
 magnet:?xt=urn:btih:8B3D171A0E65B86D77BF917A6AF37A27F2E4E594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3EAD5559B72CB520042CEAE60D113ACE82F1BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Charm City Devils - Let's Rock'N'Roll / Sin (2009, 2012) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:600907A46151532BFBB8547D7B8DDC595B0A5370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ The Beatles - Live At The Hollywood Bowl (1977) Remastered, 2016, Universal [MP3
 ```bash
 magnet:?xt=urn:btih:1B117FA31C97CB4D464B7E3EC56208F78C7B2502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ ZZ Top - Live: Greatest Hits From Around The World (2016) Live [MP3|320 Kbps] <H
 ```bash
 magnet:?xt=urn:btih:61545BCD2C76B534D80BF858B9773F4122A1B7F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7CBB1CEFBD43410C6CA82B93D61FF59ABEE5E28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Pain - Coming Home (2016) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:5AA5F48136C2954F176F8590F60920D4E6AEC99C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

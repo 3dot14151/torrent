@@ -22,8 +22,7 @@ A4 Photo Finish(   Читать дальше...   )Жанр: Disco, Electronic, 
 ```bash
 magnet:?xt=urn:btih:C0C3BDCABD7492FDE3F209F0B61AB2A16D06B6CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

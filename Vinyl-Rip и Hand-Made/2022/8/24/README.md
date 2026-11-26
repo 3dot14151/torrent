@@ -22,8 +22,7 @@ A4 Shadow On My Wall(   Читать дальше...   )Жанр: Blues Rock, Po
 ```bash
 magnet:?xt=urn:btih:1BD1BE2956AA503135084D0027CAC3006092CDE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Tempest поставили перед собой задачу донести с�
 ```bash
 magnet:?xt=urn:btih:6E947E88F3B70B38407E60B17E797932E3A969BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

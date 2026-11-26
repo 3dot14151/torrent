@@ -19,8 +19,7 @@ Stonefly (2021) [Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:0307C31D3317CBB3E6E98624D594FBCC88860C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

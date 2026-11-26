@@ -19,8 +19,7 @@ Dracula's Legacy / Наследие Дракулы (2015) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:727A6575B87544AC18B0BDAFA01BA120F489B89F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

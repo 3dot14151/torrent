@@ -19,8 +19,7 @@ Spirit Legends 3: Time for Change / Легенды Духов 3: Время пе
 ```bash
 magnet:?xt=urn:btih:06BD8F7C481A1D1B3BA392C3600A2D332B6848B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Outer Wilds — приключения в открытом мире, попыт�
 ```bash
 magnet:?xt=urn:btih:CC90C2AF61BED688D5492C263CD68BF53BCE9ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

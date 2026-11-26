@@ -19,8 +19,7 @@ Electronics Calculator Pro представляет собой приложен�
 ```bash
 magnet:?xt=urn:btih:E589B4F46591A90A116448B174E9AEFD010334A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

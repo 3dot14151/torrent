@@ -27,8 +27,7 @@ Last Kingdom - Chronicles Of The North (2012) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:D32E7E956B4AB034C0E91C96A6518A93B9399134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Children Of Nova - Impossible Landscape (2012) [MP3|320 кб/с]<Progressive Roc
 ```bash
 magnet:?xt=urn:btih:DD981D51582693A6DB708ED52B7C81188B3B9FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ AltЭra - Анахата (2012) [MP3|320 кб/с]<Альтернативный �
 ```bash
 magnet:?xt=urn:btih:8812C604AB0D958135FEEDC7BE490A5D74E76EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Jeremy Horn - Sound of the Broken (2012) [MP3|320 кб/с]<Rock,Pop Rock>
 ```bash
 magnet:?xt=urn:btih:5EA8951A2FE20E8A46B55B89BEC165B6F4E229AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ nobody.one - 5альбомов (2004-2012) [MP3|128-320 kbps]<Indie, Post-rock, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Poets Of The Fall - Temple of Thought (2012) [MP3|~225 кб/с (V1)]<Alternative
 ```bash
 magnet:?xt=urn:btih:D93BF245BFBE6C20059DA26D334DBA862DDD00FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Lykke Li - Wounded Rhymes (Japan Edition) (2011) [MP3|320 кб/с]<Indie, Dream 
 ```bash
 magnet:?xt=urn:btih:C8E7C8C3CE086EAF4519BF9933FE179A3196A57A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Blue October - Any Man In America (2011) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:6D553BA33585B1F0950D14F6C4687D1E21184915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Meat Loaf - Hell in a Handbasket (2012) [MP3|320 кб/с]<Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:677848AA121D8A31D8662861CFDF49DFC8D6CAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

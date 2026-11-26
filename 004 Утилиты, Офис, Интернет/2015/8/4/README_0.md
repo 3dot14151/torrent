@@ -19,8 +19,7 @@ mIRC - это IRC клиент. IRC - это Internet Relay Chat, некая с�
 ```bash
 magnet:?xt=urn:btih:1DC4C8B32AAB582D65C65D8AFE1516191C4F03E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HandyCache - прокси-сервер для раздачи интернета 
 ```bash
 magnet:?xt=urn:btih:D762BC7DEBFFDC220C8A195709437DCB8DA0B224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ mIRC - это IRC клиент. IRC - это Internet Relay Chat, некая с�
 ```bash
 magnet:?xt=urn:btih:8D454A32548E479167E030CADC6C363F279DDBED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

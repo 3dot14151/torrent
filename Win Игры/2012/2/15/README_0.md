@@ -19,8 +19,7 @@ Amulet of Time: Shadow of La Rochelle (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:DC259ADBF2D927B47CF130C7AA1BB458B3661401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mega World Smash / Крушители (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:D13C01EE8CD5ABC57454F8E753D676F09BCAC47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:526351E1A4C53170094BBEAEF096C9988CDA1771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Amulet of Time: Shadow of La Rochelle (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:2413D554E5BD6FF084F0A4188E94CAC403273255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

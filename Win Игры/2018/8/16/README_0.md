@@ -19,8 +19,7 @@ State of Mind — это футуристический триллер в дух
 ```bash
 magnet:?xt=urn:btih:09E4222CFA263C5F711B5F42626225936E557BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Pussy Riot - CYKA (2026) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Pop Punk>
 ```bash
 magnet:?xt=urn:btih:99903B8B871E15EB257B3F3983B6452AFD10E530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Silver Horses - Weird Tales (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0937CC8939F0ADC9EF571A82E3E95244502291E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Beth Hart - You Still Got Me (2026) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Blues 
 ```bash
 magnet:?xt=urn:btih:5BD55F881BF31EFB8F7255201723DDF930881D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Alias - Alias (1990) Remastered 2022 [FLAC|Lossless|tracks] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:69B9422E4F5CD2C8B976B602449D38AE54E39561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Champion - Champion Featuring Alex Machin (1984) Long Island Records 1994 [FLAC|
 ```bash
 magnet:?xt=urn:btih:DA55E8D146A7F4D2897A1686C46B6FB6E8F6B85E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Speed Queen - Haute Tension (1982) 2025 Remastered [FLAC|Lossless|tracks] <Hard 
 ```bash
 magnet:?xt=urn:btih:CC97E4AD3FBECABDDAEA8447E8A86989513D53DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Soulless - The Supreme Resurgence (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:654CF7603096012595FBDAC64F6241ED14830808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Judas Priest - The Best Of Judas Priest (2026) [FLAC|Lossless|WEB-DL|tracks] <He
 ```bash
 magnet:?xt=urn:btih:B19603237AF70E3C350A3134748E6D02B08D201A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

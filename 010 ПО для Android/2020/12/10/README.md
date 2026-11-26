@@ -19,8 +19,7 @@ Call Notes Pro поможет понять кто звонит, поддержи
 ```bash
 magnet:?xt=urn:btih:01609FF384AC818A5E7FEF8ACF37BBB24FCCA490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

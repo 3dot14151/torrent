@@ -22,8 +22,7 @@ East Temple Avenue - Both Sides Of Midnight (2020) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:0A84986D085614459960EDF606BC5D23BAF2CBBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Arc - Maquette (1980) Reissue, Remastered, 2020, Paisley Press [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:30DFF6B6EB050C0C0DA8455902FA7820FBD80A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kim Mitchell - Itch (1994) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:5C0EE585CB1403512044296CB7F656FC05F74855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2319D51F0E953AC269E30DC6D9B978D5B62C5C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Empire - Empire (1994) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D798282AFB9548423CC54E5F726E66009ED6C719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Loot The Body - The Barrier Peaks Songbook (2020) [MP3|320 Kbps] <Psychedelic, P
 ```bash
 magnet:?xt=urn:btih:865DB29F1EA005F7F0C40D37755DCEC4067048E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Joel Hoekstra's 13 - Running Games (2021) Japanese Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:1EE983955B501F71CE9F63A3A8E5891A0B6E3A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Jive Bunny And The Mastermixers - Rock'n'Roll Great Hits (2021) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:870BAD53BCEBDFBE752420A96E5CA1C6A497F44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Laos - We Want It (1990) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8361337B6C82D3361DD99EBE095172392471AF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Fun Mode - Я Буду Здесь (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:276EED99C1341D19CFAFB79873AA617CF05FD0AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Acoustic Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:EE18B895006433EF0CA5CE4ECA5D318F72CCF76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

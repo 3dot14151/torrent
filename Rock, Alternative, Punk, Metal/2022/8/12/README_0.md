@@ -22,8 +22,7 @@ Shiraz Lane - Forgotten Shades Of Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 ```bash
 magnet:?xt=urn:btih:5BBFFB1212992686BE24F3CD2C351D4172F7518A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Eye - Black Eye (2022) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:A1200D15A9185B4E7A62F12F3D036E160B95070F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Norma Jean - Deathrattle Sing For Me (2022) [FLAC|Lossless|WEB-DL|tracks] <Chaot
 ```bash
 magnet:?xt=urn:btih:A8B62FFFDBD6AA5B0B2AD91F7BCBA38891F6572C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ At the Gates - Slaughter Of The Soul (1995) Full Dynamic Range Remaster, 2018 [F
 ```bash
 magnet:?xt=urn:btih:8353824F808D9BBC80A7F1FD88D943C3005B6AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ O.R.k. - Inflamed Rides (2015) Remastered, Deluxe Edition, 2022, Kscope [FLAC 2.
 ```bash
 magnet:?xt=urn:btih:55A870921836F9FA0AA5E8DCA6A0A422903312D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Knight Area - D-Day II - The Final Chapter (2022) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:BBAA04B7270C967525F4D1AE76282D1E3D8C32EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Belphegor - The Devils (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:41BD59BA1ABC91564F86362AE3346A327CD48940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Norma Jean - Deathrattle Sing for Me (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Chao
 ```bash
 magnet:?xt=urn:btih:135CCD0D143E527690BBBD9CA6DC6DE5916A6A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Сильное Непонимание - EATTHEREACH (2022) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:6FB8E2A6E2565A443627C2969893DCF51E25E3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Nordic Union - Animalistic (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B9F923676F2F789364CEDA493914FA32D32CC2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Aurora - 2 Albums (2016-2022) [MP3|320 Kbps] <Hard Blues Rock>
 ```bash
 magnet:?xt=urn:btih:68854A87D7CAC479B4FA78083CC9AC6E0CCE6E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Kasabian - The Alchemist's Euphoria (2022) [MP3|320 Kbps] <Indie Rock, Neo-Psych
 ```bash
 magnet:?xt=urn:btih:E1E976001209495E2032AE8C33BDCD849E687314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ The Halo Effect - Days Of The Lost (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 ```bash
 magnet:?xt=urn:btih:7F81398F531BCFE59166B0EF13BA2F07020828EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

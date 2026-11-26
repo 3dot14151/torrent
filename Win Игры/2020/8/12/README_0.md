@@ -19,8 +19,7 @@ Enchanted Kingdom 7: The Secret of the Golden Lamp / Зачарованное к
 ```bash
 magnet:?xt=urn:btih:4861DC014E8DD35AAF86212F6C362D7BFBB5387E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

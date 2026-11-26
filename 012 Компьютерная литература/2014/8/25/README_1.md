@@ -23,8 +23,7 @@ C++ - один из наиболее распространенных языко
 ```bash
 magnet:?xt=urn:btih:DAA1B6CED2E8D586519C847660119759123C6C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E58FB29A5D2DF025D8B19D8BC715B442C215537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCBE6BC2E41D1262DBFCF3C53CC7415E9D493C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Bjarne Stroustrup | Programming principles and practice using C++, 2ed (2014) [P
 ```bash
 magnet:?xt=urn:btih:A918F8E855A83989E7CF18CF14D6480EFB104A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

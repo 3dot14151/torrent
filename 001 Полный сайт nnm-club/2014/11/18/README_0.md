@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:08FBEA6B1DA2FD4B5DD3B829614FEE927BB66899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CF516C1DCD2DB96A1D7C4CE4CA94F163B055D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C0D2213D57F1258E98EBED1EE31B5926612D40D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Mimicat - For You (2014) [MP3|320 кб/с]<Soul-Blues>
 ```bash
 magnet:?xt=urn:btih:F1A579683BCF868F19C06B4FDBF822534DAAE138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Germind - Antimatter Vol. 2 (2014) [FLAC|Lossless|WEB-DL] <Ambient, Downtempo, P
 ```bash
 magnet:?xt=urn:btih:D95B2BA0FF9364142876CB76B7E7674137600BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Discovery Science: Сканируя небо: телескоп Discovery Channel
 ```bash
 magnet:?xt=urn:btih:975BC65E9B3C18F85B4A41134B7FB13C4BB07B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A177DDB0A1FEBD38869E57E4BA8C8B0854BFAD1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Einherjar Records - 2 альбома (2009) Touhou Instrumental /Doujin/ [FLAC|L
 ```bash
 magnet:?xt=urn:btih:CD2E1859A51427075BD6805EC0EA8A1BBE53E19B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ klyxn - 2 Releases + Unreleased - 2008-2009, MP3, 320 kbps (2008-2009) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:D6E8B8FF90922B6762C15DA18B42C8925F6C980F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ Gaiser - False Light (2014) [FLAC|Lossless|WEB-DL]<Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:B833D2DB7ADFEE081BF95C1E1C741EC9E0D962EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:640CE51B7773F2099AACDF90C980B91782791CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Sarah Vaughan - XX век. Ретропанорама (2007) [FLAC|Lossless]<Jaz
 ```bash
 magnet:?xt=urn:btih:153DA97145E39C0CF003AF36FFE7E4A337DB2E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ Joanna Dean - Misbehavin' (1988) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EF9B54FFAF917A602649BF872E158863EFC9401A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ Chris Duarte Group - Texas Sugar / Strat Magik (1994) [MP3|320 кб/с]<Blues Ro
 ```bash
 magnet:?xt=urn:btih:D77491EC6257230BD98D6FD46557D5331CACF175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ David Gallegos - Mi Rosa Blanca (2009) [MP3|320 кб/с]<New Age, New Flamenco, 
 ```bash
 magnet:?xt=urn:btih:019663F57347A4A37BD8099DE9B9345F276348D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D2B910A421DDE894278D985920B748C0CEA511A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ Smash - Star Tracks (2014) [MP3|320 кб/с]<Pop, Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:0C2D335B75463F94512289B7039B73A335D231B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ VA - Top 40 Vocal Trance Hits (2014) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 ```bash
 magnet:?xt=urn:btih:AB788D28EC6A3E5C276A7328D5D4994916CD0568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77C9AAD351D956CF38D0C9EB0CFF7E8FA5EC432A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56C3A6F4CC5C5A89F002E5062A5834B0C93FBDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ Louis Armstrong - The Silver Collection (1984) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:FB88CD6628ACA7C0E9AEB96380792DFEEF49187D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ N11k - субмарина-робот следующего поколения, к
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +671,7 @@ Fugenn & The White Elephants - Discography 5 Releases (2010-2013) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:10DA7FBF2E0BCA25B836590FC35C68202BCD9239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04CFE098B242BD7F7B7C15AC7D3D0632187DAF74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4C64916EB892B40CB2D78876453E181C2BD7F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA24499A11233047D47A93767CCAD7623E8F85E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

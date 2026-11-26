@@ -19,8 +19,7 @@ Wolfenstein 3D (1992-2020) [En] (2.01.2020) Repack/Mod 1nomok [Beyond the Grave:
 ```bash
 magnet:?xt=urn:btih:C71B4BE39AF85B1135F6F6D4A2809929016D0A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alpha Prime (2007) [Ru/En] (1.3) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:E38979316B5A5EF4A6657341D481513C68DFDB29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

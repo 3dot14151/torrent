@@ -19,8 +19,7 @@ Pahelika 2: Revelations / Пахелика 2: Откровения (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:7D0BD49403845A269BFB767F0A73FE32FD9C215A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Royal Envoy II. Collector's Edition / Именем Короля 2. Коллек�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Numen: Contest of Heroes / Numen: Время героев [Ru] (RePack/1.15) 200
 ```bash
 magnet:?xt=urn:btih:D1E3EB1ECD672A0D78FBB1A50994191298B9848C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

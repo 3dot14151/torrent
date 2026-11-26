@@ -19,8 +19,7 @@ Where is my Brain!? (2017) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:435C51E8E29B8BFCD1C3AF0AD8D8B712383393F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadowrun: Dragonfall (2014) [Ru/En] (2.1.1.8) License GOG [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:004DB6A928B98A34D216D80A9960A3A197EA93FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

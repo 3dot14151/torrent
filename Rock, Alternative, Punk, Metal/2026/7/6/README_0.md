@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:CD379C4A258C746C272877F6468BF088E9990D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Halocene - When Love Dies (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternativ
 ```bash
 magnet:?xt=urn:btih:BAA2F642C5A711C62763AABDC0325082DA917598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Marchello - 3 Albums (1989-1992) [FLAC, APE|Lossless|tracks + .cue, image + .cue
 ```bash
 magnet:?xt=urn:btih:D99719B480A4086F76B21FF374C92994642541D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Silence Lies Fear - 3 Albums (2012-2018) [FLAC|Lossless|image + .cue, tracks] <M
 ```bash
 magnet:?xt=urn:btih:B4BBE8331AAD8A2F18629F9B296F689A9A566D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Green Lung - 4 Albums (2018-2023) [FLAC|Lossless|image + .cue] <Doom Metal / Psy
 ```bash
 magnet:?xt=urn:btih:B35764CA0D7E5F75419682F6A31983BF8989DDE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Darkwater — Шведская прогрессив-метал-группа, о�
 ```bash
 magnet:?xt=urn:btih:D940F7B67A3C13872EE71C7F593C14D94E237062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mortem - Morketid (2026) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:378B08ACFDAC771427638341231129B255325616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Dominum - 3 Albums (2023-2026) 5CD [FLAC|Lossless|image + .cue] <Power / Heavy M
 ```bash
 magnet:?xt=urn:btih:820BD5784B12C7FEAE09EE21E4E086C9BB15B7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ GilT - I Saw Myself In The Black Screen (2026) [FLAC|Lossless|WEB-DL|tracks] <Al
 ```bash
 magnet:?xt=urn:btih:2005545FFF0EB38EAF15F83D40DCFF94024B6747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Uriah Heep - Fallen Angel (1978) Japanese Edition, SHM-CD, Reissue, Remastered, 
 ```bash
 magnet:?xt=urn:btih:40EE5CECB0600660BFE6CD0FADE9850A72C1EA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Paul McCartney - Memory Almost Full (2007) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:AB78CA60E764C019CF86BC3ECEC514A08D03938A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Deep Purple - Splat! (2026) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:16D43854A7C6F667CF552091652926CC84FD9213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Overpass - Elsewhere, Always (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 ```bash
 magnet:?xt=urn:btih:7A472234656D24A2B75D82AC43C6AD8DB0ED3816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Deftones - EROS (2009) Leaked Sessions, Jan 2009 [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:F852A92FC5F03800EFDEB44EBBE3B4833285EE50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Led Zeppelin - Greatest Hits 1969-1971 (1993) Compilation, Unofficial [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:FFE3F471B52F5CC559D8F1DD343096181113F931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Deep Purple - Splat! (2026) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8E210284036B7C58758742738553ED2D29811D7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Junius - Sotera (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Atmospheric Post-Met
 ```bash
 magnet:?xt=urn:btih:C7E36AF06643407013A49BBEDB4402B64057FE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Numen - Erre (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:BDC4EE2419E24F2713F9CBB3885AB8346BD87FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Dominum - Night is Calling (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, 
 ```bash
 magnet:?xt=urn:btih:A04641FDFE3F8D1F207E06B7B907D097DCA579A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Bloody Falls - IV (2026) [FLAC|Lossless|WEB-DL|tracks] <Groove/Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:F32E12ECEA2CA0C1BBBD5C81DD95F05BEFF4AF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ New Dawn Fades - Lores (2026) [FLAC|Lossless|WEB-DL|tracks] <doom metal, grunge,
 ```bash
 magnet:?xt=urn:btih:4F111BBD9E6E15119F9540F1BE6747FFEA0DFD4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

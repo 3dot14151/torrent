@@ -19,8 +19,7 @@ LockHunter - бесплатная утилита для удаления фай�
 ```bash
 magnet:?xt=urn:btih:ABB4779345F7B354493FA0DD355AE075671083DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

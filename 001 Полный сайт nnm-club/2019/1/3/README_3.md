@@ -22,8 +22,7 @@ Mal Waldron & Steve Lacy - The Super Quartet Live at Sweet Basil (1987) Bellapho
 ```bash
 magnet:?xt=urn:btih:80B3418DA087890D2A966CE099FBBA6363D1C82B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Goodbye 2018 - The Selection Of The Year (2018) [MP3|320 Kbps] <Deep House,
 ```bash
 magnet:?xt=urn:btih:A634A81E467A902E0DAE137444151AFA35696BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Donna the Buffalo - Dance in the Street (2018) [FLAC|Lossless|tracks + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:029E3300211B7866E2E5533DC4D5F05800D2BAE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - EDM Rave Dance 2019 (2019) [MP3|320 Kbps] <Pop, Dance, House>
 ```bash
 magnet:?xt=urn:btih:1106DFB5B8EBDE7B16F4ED0E74D8CAC2D2728F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Infinite Moment (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:99C46FEC0F7B3CBFF178EBED3C86F47D2A57C4AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sonic - Seasons (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
 ```bash
 magnet:?xt=urn:btih:5E702E44567141C1C54460F03F05F14824F38C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Cholosus - Way Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
 ```bash
 magnet:?xt=urn:btih:CFBA6840B586DDA5EF6094ACD5C4AFA9C47D283C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ dBridge - A Love I Can't Explain (2018) Exit Records [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:49995D51A2B5CB18D003D4FD58C35892DE9F4218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Vol. 1 - Barrow Wake:
 ```bash
 magnet:?xt=urn:btih:14BE9CB1D27A85E45DE4E8E01297EF3EF0BD8DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Bandizip — это быстрая и надежная программа, ко�
 ```bash
 magnet:?xt=urn:btih:A500B7742CC4E79DAE68ED100363CB1780E6486C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ BestReminder v2019.01.03.15 Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:61027D8FCE5ACCF7FE866D7DFD63CB49F4AFDAD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - The Best Of Suanda Base 2018: Mixed by Michael Milov (2018) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:E14001A00FC07032093EC944E56F2B0CACC9FABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF0A5C637AFF0B05EF4633CD0D56965AEF8A7DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Daddy Cool Kids - School's Out (2009) [MP3|320 Kbps] <Electronic, Disco, Europop
 ```bash
 magnet:?xt=urn:btih:6D1BF925E91F9F3035E4D785B95EC566E886390D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ VA - Confessin' The Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues>
 ```bash
 magnet:?xt=urn:btih:071CD8CFE4E8D6A589E07E147FFF59D53CB47CDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ CJ Rise - Lost Empire (2019) [MP3|320 Kbps] <Spacesynth, Synthwave>
 ```bash
 magnet:?xt=urn:btih:266C30A6701FA080B82AF2DBDB6149841587EE11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ VA - Отдохни от праздников (2019) [MP3|320 Kbps] <Soul, Pop, 
 ```bash
 magnet:?xt=urn:btih:A63AC5AEA97CC18075F9A2B6EFC1015A2ED9A047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Coldplay - Live in Buenos Aires (2018) Live album [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:B7D1CFEE597581E365A018C5746925106CA00FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ VA - Tech House: Euro Mastermix (2018) [MP3|320 Kbps] <Tech House>
 ```bash
 magnet:?xt=urn:btih:53190A269F61E222477027049218101A0B2B6B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <Ne
 ```bash
 magnet:?xt=urn:btih:03A22C00EF998AA85A4A7FF4EF996D7490D275D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Ph
 ```bash
 magnet:?xt=urn:btih:FB16732E57C2A9ACE838FBC15748997A22B2021A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:2E824BE52A943351233A691CFDE7C4797B8FB2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAE94E1709A00962C3451FA17453ED7B41A21888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ Blues Meets Girl - Blues Meets Girl (2018) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:457429D7D2515FC8971B92748806A8077E682D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2349185CB081870B6BB47C10BD1CAEECC15BC6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ VA - New Year's Eve Party Hits 2019 (2018) [MP3|320 Kbps] <Dance, Electronic, Po
 ```bash
 magnet:?xt=urn:btih:65DC3F07F727CDD0FECF6073A82130B27C6749D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

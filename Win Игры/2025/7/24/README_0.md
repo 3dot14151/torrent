@@ -19,8 +19,7 @@ Dust Raiders - это стратегия в декорациях суровой 
 ```bash
 magnet:?xt=urn:btih:072C486318BBA0BFA4AC9EAE04FBFE272CE3E429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4528/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2C355C2A317E5DC3F0C647BFC888CF7D5BACC488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Who's at the door? (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7CB6150D6637EE6CC26F939B344E5E72A337DFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ to a T - это сюжетная приключенческая игра о не
 ```bash
 magnet:?xt=urn:btih:DFAAA6F13F791F40C72EAFF993A8E20728FDCBBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

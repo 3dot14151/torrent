@@ -19,8 +19,7 @@ Trifox (2022) [Multi] (1.0.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:126649EDE02E908F9332012CFD77CBEF339EB963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Project CARS 2 – это вторая часть успешного гоноч�
 ```bash
 magnet:?xt=urn:btih:7D5755BBD0EC24BCE1F5CA5E3F21AC7E4617171D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Maneater (2021) [Ru/Multi] (7837297/dlc) Repack DjDI [Apex Edition]
 ```bash
 magnet:?xt=urn:btih:3FDD1E0C57424654CA5E3F79D2D75ECF413A478C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Eidolons (2022) [Ru/Multi] (1.00.06.R293.8b7ed397/dlc) Repack DjDI [Digital
 ```bash
 magnet:?xt=urn:btih:E78D041C8304283AAB508D759561BB8628ADBCBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

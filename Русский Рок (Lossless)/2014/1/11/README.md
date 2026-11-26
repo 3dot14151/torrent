@@ -27,8 +27,7 @@ Out Of Yesteryear - 3 альбома (2007-2013) Дискография [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:C29A491EC8BAF92684DB3EB5F976DA0A5A5D5D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Louna - Мы - Это Louna (2013) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:6E140CCC60BEEDA1D8739C935AD2666BE5233CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

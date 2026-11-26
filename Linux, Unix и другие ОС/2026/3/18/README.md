@@ -21,8 +21,7 @@ DeaDBeeF проигрывает множество аудио форматов, 
 ```bash
 magnet:?xt=urn:btih:3008FC1AB3827E9E01616F24445F71B1466F8A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

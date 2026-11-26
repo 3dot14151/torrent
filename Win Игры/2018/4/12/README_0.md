@@ -19,8 +19,7 @@ FARHOME – приключенческая, научно-фантастичес�
 ```bash
 magnet:?xt=urn:btih:073739851B17B086591E7E2A2C8BB2C81204F5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TRTH (Дорога к хадесам) – приключенческая игр�
 ```bash
 magnet:?xt=urn:btih:4BFD4617FCD609C1B87E553354606E42BAF6CD27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) Repack xatab [Delux
 ```bash
 magnet:?xt=urn:btih:F702BDFEC1B1C45C9311D2953A29382DFBF231A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

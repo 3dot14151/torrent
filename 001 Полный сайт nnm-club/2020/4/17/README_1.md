@@ -21,8 +21,7 @@ VA - Body Building Music Hits 2020 Fitness Session (2020) [MP3|320 Kbps] <Progre
 ```bash
 magnet:?xt=urn:btih:D1E16A72ABFFD379297139AF0624B254D33568C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:9929AD6B0FAEE9AD2A5F1384EB84C4226FEA0572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Beatport Vocal House: Sound Pack #66 (2020) [MP3|320 Kbps] <Vocal House, Cl
 ```bash
 magnet:?xt=urn:btih:1370EAB3BBE1ABDBABE3BCB2B654857A469EE6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54BAAD90880315CB778717F43933792194B7CC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB3619B52CA5C37579641CDF3EF3CC4929E49E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ David Bowie - ChangesNowBowie (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A9FC9D26A66DCB195AE3B013C7F5D11E78F09006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Спидола 2 (2005) [FLAC|Lossless|tracks + .cue] <Rock'n'Roll, Blues, 
 ```bash
 magnet:?xt=urn:btih:4222192C224A479C5A9A2092E48F6989055D09E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Leeched - 6 Music Videos (2017-2020) WEBRip [H.264/1080p-LQ] <Sludge Metal, Meta
 ```bash
 magnet:?xt=urn:btih:907CA4F68A95315E73CEA16B6BC4166BAF4C2BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ SUMo (Software Update Monitor-монитор обновлений програм
 ```bash
 magnet:?xt=urn:btih:DB3C6451060B4E2CFA96B999EA5C6F424B17B8F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ The Penitent Man - The Penitent Man (2020) [MP3|320 Kbps] <Heavy Blues Rock>
 ```bash
 magnet:?xt=urn:btih:848C309F445484207D82B6BE403963A16646B1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ VA - Black Hole Trance Music 04-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:54D12D6A8316147E3E4BBACED88A478F90E949F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Silver Pozzoli - Greatest Hits & Remixes (2020) 2CD, Compilation [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:A58FF3A700F302D35C0013FCF5F7BEB42E4274A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Shabazz Palaces - The Don Of Diamond Dreams (2020) [MP3|320 Kbps] <Abstract Hip-
 ```bash
 magnet:?xt=urn:btih:148D420983509EF30206EE9A535F334261A74751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:4970D2ABE9816CBB28FF19FEE02995D16DBFDC12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ VA - Beatport Electro House: Sound Pack #63 (2020) [MP3|320 Kbps] <House, Dance,
 ```bash
 magnet:?xt=urn:btih:E5CED01F06F528745CDA710098A2707A48D2E1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Igorrr - 7 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ] <IDM, Breakcore>
 ```bash
 magnet:?xt=urn:btih:18E0BE76DD2726499EC756CEA71294D73F86BF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F329FBDC931FB4C66B4D5A4B60B41FAF19B3A16C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Jah Khalib - 911 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:950E235FF2AE848F1C846C1B570C1D26FBA5CC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ David Bowie - ChangesNowBowie (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:DEEE1E09C29F39BC4B17C3604BA49256C978654F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ RJD2 - The Fun Ones (2020) [MP3|320 Kbps] <Abstract Hip-Hop, Experimental>
 ```bash
 magnet:?xt=urn:btih:BD124B5AAC35D942C80F4AFBC1C973F669E63D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB6721B9ED062320DF0BF92FFD35B8600AD9D8C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ CDA: Ауткаст (2020) Один из нас (Single)Производство
 ```bash
 magnet:?xt=urn:btih:2B92D79E71486F7F734BE2785910502BEE55B6E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ R.A. The Rugged Man - All My Heroes Are Dead (2020) [MP3|320 Kbps] <Hip-Hop, Rap
 ```bash
 magnet:?xt=urn:btih:541CC2CF32AA2523AA50F603B8E152724A3FA697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDB4475DCCAB8F4FAA5262583AEAEFDDF4BA3ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:45975F6F4F4BDDFDA58C13DBACF069370137F577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FF362CE84BA4D9F22CFC4087E0D5B34CE4B9BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

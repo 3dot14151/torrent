@@ -19,8 +19,7 @@ Outlast 2 представляет вашему вниманию Sullivan Knoth 
 ```bash
 magnet:?xt=urn:btih:8916575CC34F2485169474A75A2BA7170B1BFBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

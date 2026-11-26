@@ -19,8 +19,7 @@ Korora Linux (ex. Kororaa, Linux для начинающих) 22 Live [i386] 5xD
 ```bash
 magnet:?xt=urn:btih:7F3D4D033D1F679D02B0641F543ACF34DA3C6F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Korora Linux (ex. Kororaa, Linux для начинающих) 22 Live [x86-64] 5
 ```bash
 magnet:?xt=urn:btih:11DF162AC3718B8E3711815B8BE6D19B3E658097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ABBYY FineReader 8.0 Professional Edition - профессиональная в�
 ```bash
 magnet:?xt=urn:btih:3715E3E1A803AAD76CEE6CA43A0AAD5FAF906849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

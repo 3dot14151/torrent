@@ -22,8 +22,7 @@ Hibria - Hibria (2015) Japanese Edition [FLAC|image+.cue]<Power/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:10E10027488D879D58C8B4DCE1CE183CBAB52637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hibria - Hibria (2015) Japanese Edition [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:72E872E650276523E349F231770ED1971FB9E25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tow Truck Tom And The Roadside Wrecks - Sophomore Slump (2001) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:940E7C076F99FCA7F944F8464B39645025D656F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Gus G. - Brand New Revolution (2015) Japanese Edition [FLAC|image+.cue]<Heavy Me
 ```bash
 magnet:?xt=urn:btih:A9A73BB5184834612E03426096E7D9252C09CFFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Cattle Decapitation - The Anthropocene Extinction (2015) [MP3|~281 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:093AF90B00864F2F10F65B0714FDA68B5EFB7E28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7939FABFF684D972A0CE552A24A641875E7A8019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7B5514E034DBD9812F3E10B5ADC101AE364545E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ REKKR: Sunken Land – это представитель игр, созданн�
 ```bash
 magnet:?xt=urn:btih:5F82B460CA42CBF7E468A3606D7BA3746C5C31B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dying Light (2021) [Ru/En] (1.49.0hf10/dlc) Repack dixen18 [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:F146F745F334D1180DE383815E012F624CCF257A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Noita - магический боевик с элементами «roguelike» 
 ```bash
 magnet:?xt=urn:btih:4A8618AC33675DAEED009173CF565FCDD808A0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hidden Deep – научно-фантастическая игра, разраб
 ```bash
 magnet:?xt=urn:btih:8BE145F02122A9C0334148B7100C09E8D23C4ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ VED — это сюжетное RPG, сочетающее вручную нар�
 ```bash
 magnet:?xt=urn:btih:C9B69F037546983707DB8D39549EF0038F01F909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:EEAEDF681CD1449CF002E1A465BC7A30670EDD41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007) Scene Rune
 ```bash
 magnet:?xt=urn:btih:4ACF22400544052BD16CF3743EEFF25948050653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (build 17020908) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3EE37E4532E213CBFB37BF52940D997A8EC5D117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Brothers: A Tale of Two Sons Remake (2024) [Ru/Multi] (Build 15058792) Repack Le
 ```bash
 magnet:?xt=urn:btih:7379B63D726EB467BDA1ED642BF1A771071CF451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Somber Echoes (2025) [Multi] (21558) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8036B573437052A1BE479996B74DDB9E853F2B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ WonderLang Spanish (2025) [En] (0.9) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:45524D711C14283BE8304545A87BAE203C9C6215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Rocket Boots Mania (2018) [Ru/Multi] (1.0.3012) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:00269F73BC62167C8218C20D88BC987309BEAAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

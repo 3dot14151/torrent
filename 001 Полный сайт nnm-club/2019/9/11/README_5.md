@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8B242BDD9CE8F851A53D659FFB5937B3651D4A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11D45767839C83FAB4B83AB190F67A3D32BAAD70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23361F5393BEEB5EFE9AD275865C285E23BD362E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Futuremark 3DMark 2.10.6771 Developer Edition RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CEDE35D01BBC80ADEC87455F710E370A0377F718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ancestors: The Humankind Odyssey — симулятор выживания с в
 ```bash
 magnet:?xt=urn:btih:94838F40DB80BCFB8AE16074053C4D881FCAB246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ BATTLETECH (2018) [Ru/Multi] (1.7.0/dlc) License PLAZA [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:24B2FC2698D7AEC8D636181838B1228E8A1B2A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C78E4CC4A781CF4FBE5212679AEF83027CE8F24A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Wreckfest (2018) [Ru/Multi] (1.25.0834/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:2FC943FFDC8AA27740828FB6B8114E222D425408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ RAD — это трехмерный боевик с элементами rogueli
 ```bash
 magnet:?xt=urn:btih:37580E6C4AAC36F9A0AD86B4383727117911EFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Thorium - Thorium (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:845FEB014D48E22D75FC7417B8A0BBBA912FEA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Beyond The Border - Voyces (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:E4C046F866E85660039126114DFC56C0F494513B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Arc Angel - Arc Angel (1983) Reissue, 1990, Portrait [MP3|320 Kbps] <AOR, Melodi
 ```bash
 magnet:?xt=urn:btih:E39E46C2A742DDA58D58CE4D3DBD32C3527DC3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Timeless Haunt - Dark For Life (2021) [MP3|320 Kbps] <Heavy Metal, Progressive M
 ```bash
 magnet:?xt=urn:btih:10C7C22D9D400AEDC548DEAD6061D090661F50CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tane Cain - Tane Cain (1982) Reissue, 2015, Rock Candy [MP3|320 Kbps] <AOR, Melo
 ```bash
 magnet:?xt=urn:btih:2169063D1C9B8690B09FBD2DE087A4190DADA6EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45C860E5AB50974DFAF5A963A9BCD233C3B8E14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Circus Maximus — норвежская прогрессив-метал-груп
 ```bash
 magnet:?xt=urn:btih:887820A724C3DE8E96DAA2150C946DEB28520A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Fortune - Fortune (1985) Remastered, 2004, Gypsy Rock [MP3|320 Kbps] <AOR, Melod
 ```bash
 magnet:?xt=urn:btih:00D9B96A1A2D270762D0CD2BD9AC4714F9E0B368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3701E67AFBF865C5F83E2EB912C65016223D3D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7E6060BBF2EB66B4968C62E79A041532E81CB25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Gordon Lightfoot - - Summer Side Of Life (1971) 1990, Reprise [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:DEAB1D17B5E6E078008FD36EA8B00E6A9DA2CE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EAEE4DA300BB3C1B6AF4197A4BF030BD6A4FB99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

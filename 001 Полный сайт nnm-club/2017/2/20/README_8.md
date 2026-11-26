@@ -22,8 +22,7 @@ Slide Hampton - Mellow-Dy (1968) 1992, LRC Records [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:F3118EAC5B9EE48520047E8857C0EB80E6B91227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Slide Hampton Octet - Somethin' Sanctified (1960) Remaster, 2013, Warner [FL
 ```bash
 magnet:?xt=urn:btih:7660C865C1C49C74F17B6C28C68B6E2C6C9D6228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Midnight Lounge Vol.27 (Eternity Lounge) (2017) [MP3|320 Kbps] <Downtempo, 
 ```bash
 magnet:?xt=urn:btih:909FF63FC9984D604FB14067E4B541D6B5460B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Chris Belleau - 2 Album (2012, 2016) [FLAC|Lossless|image + .cue] <Blues>
 ```bash
 magnet:?xt=urn:btih:0727F40703EDF664AC2BB86BEB7D97C0ADF92424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:743FDB23E43D9E9C6EB67DF9B2CC436B0420FF80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Holycide - Toxic Mutation (2015) EP [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C1591A9D99BA7DEA56748753FC8ED458827E5E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Музыкальное зимнее настроение выпуск № 2
 ```bash
 magnet:?xt=urn:btih:B2D20042F914BA317596F607B01538EFBEEF433B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Michael Linghton - Heat (2008) [MP3|192 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:1911C592136DC3477A32D480AA2D461F314211A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90508FCF9C748D360E1647E970D1D5436AC8DA56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - Trance Elegance On This Year 010 (2017) [MP3|320 Kbps] <Trance, Uplifting T
 ```bash
 magnet:?xt=urn:btih:D76DA258570F3A282A008A95EADA29F11D300002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B53CAEB33F549083BF1EF989B6BA1204911BD2ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Elmor James Jr. - Old School Lover (2012) [FLAC|Lossless|image + .cue] <Electric
 ```bash
 magnet:?xt=urn:btih:B734514184E13CFC86A6D657D5CA823B2ECDCC05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ VA - Chillout Pool Lovers (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:22251F00C6E3F552C6C97EE96DC9E0EF053448BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Michael Linghton - Stay With Me (2004) [MP3|192 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:28BED6B0588B4ECAD959ADCFADBD0EA9D10FCBD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ SubMurres - беспилотная летающая субмарина
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ VA - City Yoga Moments: Best of Buddha Chant. Relaxation Lounge Moments (2017) [
 ```bash
 magnet:?xt=urn:btih:36D7E0156888B30901E5025D5A3F693375C47D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Michael Linghton - Soul Appeal (2014) [MP3|192 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:9D9A9B33779E81A4F16B76889A38C2B602BBF679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Matt McCourt's Psychedelic Metal Blues Experience - The Sun Always Shines for Me
 ```bash
 magnet:?xt=urn:btih:9CAFC1C8176A1342B056AF5489F224264F122A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ Angie Wells & Raphael Lemonnier - Love And Mischief (2017) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:FE713D80C7F28F6C918DE758776512447673E380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ Joyce Cooling - Playing It Cool (1997) Heads Up [FLAC|Lossless|tracks + .cue] <S
 ```bash
 magnet:?xt=urn:btih:6416BE46CDEDD3A4101E6494D6872489E3539CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ Spock's Beard - Live at High Voltage Festival (2011) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:5209316F920556F66BAC3454C8E020C5DEF308B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ VA - Chill Out Nation Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:1A3FD46F0865ACEC5646C90A62E7C65DDEA49BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:783298A0B17F2549E71A5FBF6445A46661DECB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ Soulver предназначен для «быстрой математики» 
 ```bash
 magnet:?xt=urn:btih:BA6D1DC99EEA8B867046790206AC9B91F39CC8A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ VA - Cozy Winter Jazz Vol.1 (2017) [MP3|320 Kbps] <Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:ED3D552F8DF148D3A5449FCFA422EF48AD6D4C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ VA - Cozy Winter Jazz Vol.2 (2017) [MP3|320 Kbps] <Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:2EEB52E25CA156CBF76245C021EBB831E25F9EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

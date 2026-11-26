@@ -20,8 +20,7 @@ Volturian — итальянская симфо-метал группа. Про�
 ```bash
 magnet:?xt=urn:btih:0618A117C4D24FF14ABF0CAAF17F7138CADB65B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ The Drowning - группа из Уэльса, Великобритания. О�
 ```bash
 magnet:?xt=urn:btih:9DEDA3B6CC9F506BA68A6A11F134267D17A85B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

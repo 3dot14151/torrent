@@ -19,8 +19,7 @@ Beatbuddy: Tale of the Guardians (2013) [Ru/Multi] (1.2.9) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B06EA4DFAAC96D7DFD40F01BA0FDF97D995ED934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wind Peaks — это поисковая игра, вручную нарисов
 ```bash
 magnet:?xt=urn:btih:A073BDE7B5F7CB1E0E1C114ECEB0897361B24E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nevaeh — головоломка, использующая свет и тень
 ```bash
 magnet:?xt=urn:btih:BC8394E18AFD3DD1A5A1FF86230EE8DCAD9640EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

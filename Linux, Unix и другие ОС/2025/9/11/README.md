@@ -20,8 +20,7 @@ Ubuntu Game*Pack 24.04 (сентябрь 2025) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:FB3E518132E636B798C4AE4B346B60578665E09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

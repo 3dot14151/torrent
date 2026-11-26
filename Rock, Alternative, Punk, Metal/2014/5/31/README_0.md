@@ -28,8 +28,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:19F4C31A06DE30A83ACABB943C61230313C19A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ GjeldRune - Схоронили Мы Свой Край (2014) [MP3|320 кб/с]<F
 ```bash
 magnet:?xt=urn:btih:59AA25ACEAA0C01F3BC830179032714B1C2BE7D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Die Apokalyptischen Reiter - 20 Альбомов (1996-2014) Discography [MP3|19
 ```bash
 magnet:?xt=urn:btih:796CB6F3F6DE757258FE470D55A186754ACD7B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Disc 2: Unreleased & Rare Tracks:Жанр: Prog-Rock/Art-RockПродолжит�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Bad Company - Run With The Pack (1976) /1990, Swan Song/ [FLAC|Lossless]<Classic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ The Alan Parsons Project - I Robot (1977) Remastered /2007, Sony BMG (Arista)/ [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

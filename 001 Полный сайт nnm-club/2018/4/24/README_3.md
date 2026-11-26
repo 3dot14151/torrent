@@ -18,8 +18,7 @@ Takunomi / Выпиваем дома [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:BB10E49069684AE83FDE17D5ED8B3CFCD0F88CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC4A8D3C9613E554590DFF6F1F4296EB3A074BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:BA8E0947555DD0E905FA924A33CA30F990D07276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Pop Team Epic / Эпичная попса [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:CC181ED2A4D5F5DE2A4CDAADA11241D6E0503BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Sora Yori mo Tooi Basho / A Place Further Than the Universe / Место, что
 ```bash
 magnet:?xt=urn:btih:C65C8D9C595D4496BC492062A924FABB58D227C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, TV, 13 ep] WEB-
 ```bash
 magnet:?xt=urn:btih:3EB9D084C8A9175043D8CF5D759847FA9FA66A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Corona Renderer - это популярный визуализатор для р
 ```bash
 magnet:?xt=urn:btih:27F2C6803476618BD63ECDA07E9D42846A13B015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ ESET Smart Security Premium - максимальная защита, предл�
 ```bash
 magnet:?xt=urn:btih:5AE04E3A46D77FC8FD706AB858AA225D35472717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ AutoCAD – это больше, чем проектирование. Прида
 ```bash
 magnet:?xt=urn:btih:C01FAD0DFA4EBD67E300F1BED099A9AE80E99EB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Overlord II / Повелитель 2 [2018, TV, 13 ep] WEB-DL 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:A3F5AC855C285A5E733DD220EBCC9BCEAF23478E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

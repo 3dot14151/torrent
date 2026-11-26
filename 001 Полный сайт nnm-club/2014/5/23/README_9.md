@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Ibiza Chillout Collection - Cala Jondal Session (2014) [MP3|320 кб/с]<Ch
 ```bash
 magnet:?xt=urn:btih:FB679E3B8B772ABE60B66131635028E1B99924D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Say Hi - 7 альбомов (2002-2011) [FLAC|Lossless|tracks + .cue]<Indie Rock
 ```bash
 magnet:?xt=urn:btih:C928162CF4B7AF2C58FAA6B64DBE280EB936E3E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Known Rebel - Ocelo EP (2014) [MP3|320 кб/с]<UK Garage, Dubstep>
 ```bash
 magnet:?xt=urn:btih:CD51D16FFF9111A26E5EB27461B3A98ED7BE3304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ As God Is My Witness - The Renascense (2013) EP [MP3|320 кб/с]<Symphonic Deat
 ```bash
 magnet:?xt=urn:btih:1F2A4768EF1EA6194444ABF34C9DB1CADF738CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Jahawi - Kenya (2009) [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:D381A829B6C2AC8923E6249D2A8697D91567EBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Restore Point Creator - полезный инструмент для созда�
 ```bash
 magnet:?xt=urn:btih:4B0B858DBF46E4F4E7BFA3348E31091946A47B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ No Use For A Name - 9 альбомов (1990-2008) [MP3|320 кб/с]<Punk Rock, 
 ```bash
 magnet:?xt=urn:btih:250C85C104FE679A7A89F92F30B3B8E6E3389E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFBB6C37A6A7976B21711C3B7BC5AF81463D2349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ VA - Ethnic Lounge Limited Selection (2014) [MP3|320 кб/с]<Lounge, Chill Out,
 ```bash
 magnet:?xt=urn:btih:4E4A18AA738512A42E7AC01C1E8BF13380061C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18CDA15B27C0478A6979CB39D5C51ED3DFA22D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ RF:Sound - Disabled Reality (2011) [MP3|320 кб/с]<Techno, Dark, Industrial>
 ```bash
 magnet:?xt=urn:btih:DBD70B8EEC3DEB72E255FBCD242D4F5D50D1B4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ VA - Lounge At The Seashore 13 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downt
 ```bash
 magnet:?xt=urn:btih:F052D8291FFB0CDD87FD4FEB95E2F738195F6B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ Bluenote автоматически шифрует, сохраняет и син
 ```bash
 magnet:?xt=urn:btih:DC945E61FACDF0FA399E809A6C228F641C5EBC20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA80FAC782F35EEB360731217A1FA7275EED3455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +459,7 @@ The Echo Friendly - Love Panic (2014) [MP3|320 кб/с]<Rock, Indie rock>
 ```bash
 magnet:?xt=urn:btih:112422F706C8F53D1DA91953DEDA7A72F996E31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB71FAA662FC891A724CDE589FD08760DF5C24A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ Fail Emotions - Speed of Light (2013) Japanese Edition [MP3|320 кб/с]<Post-Ha
 ```bash
 magnet:?xt=urn:btih:D2A275DEAB358492D982E235C41EAF60B3069956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ Kaspersky TDSSKiller - это утилита для обнаружения и у
 ```bash
 magnet:?xt=urn:btih:583F29F965291E3FEF395BD8D988F045AB85B3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ Vapor Hiemis - Пламя Зимы (2014) [MP3|320 кб/с]<Black Industrial Met
 ```bash
 magnet:?xt=urn:btih:E59D427BEA0AC7AD3D9A1E3B4BC6EF552ADE7238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4190A525F1387FC4DF32987E1A482611358044F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BDF157F5AA26993238602A54E3236984057DB28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48560D4239A45A54D072DA973E212A005A4DEF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE43D24D2C89FA895DE3659192A7434533CC6A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ Restless Blues Band - Just In Time (2013) [MP3|320 кб/с]<Modern Electric Blue
 ```bash
 magnet:?xt=urn:btih:94647EF52FCB620DF46B97508F2C374F580756CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ As I Lay Dying - Awakened (2012) Deluxe Edition [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:00F95608CDE6C41F3F668113C125F0FD5A1A3E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

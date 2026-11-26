@@ -19,8 +19,7 @@ Lightmatter (2020) [Ru/Multi] (1.02) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:B4D5EC9A3CBB94CD8C848D868F662261B7FB9AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Last in Orbit (2020) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:90FA048CE080BA390711166F7870BEEAD8BC2FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

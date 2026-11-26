@@ -21,8 +21,7 @@ Disney Epic Mickey 2: The Power of Two / Disney Epic Mickey 2: Две Леген
 ```bash
 magnet:?xt=urn:btih:3C8210EDBA241DD1B57BDDC9329FE151B6C7625B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

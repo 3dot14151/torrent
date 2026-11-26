@@ -19,8 +19,7 @@ Windows Azure — это открытая и гибкая облачная пл�
 ```bash
 magnet:?xt=urn:btih:B3E68E351C0B693D222E3129AD60857A454CDAC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

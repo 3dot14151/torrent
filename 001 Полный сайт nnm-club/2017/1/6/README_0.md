@@ -21,8 +21,7 @@ VA - Midnight Lounge Vol.24 The Piano (2017) [MP3|320 Kbps] <Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:4AC61BAAA36B64A8237B596BAFF3A389076F15B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60C63BD75F879FA6D3FC44FDEE9777D05DB13261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Музыкальное потрясение зимы на Русском р
 ```bash
 magnet:?xt=urn:btih:0244057D6082D2A1AF73883B447DEA668C386F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Essential Happy Hour Ibiza Lounge & Chillout Vol.3 (2017) [MP3|320 Kbps] <D
 ```bash
 magnet:?xt=urn:btih:5A874EA093CBA187BAE2E486A976DCDE69827530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Re-Fresh The 90s: Club Classics (2017) [MP3|320 Kbps] <House, Euro House>
 ```bash
 magnet:?xt=urn:btih:B27C2C0CA350B1586E49D5FD852A7ADE10EFEE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:3BB73A636F7A2A960EFE79299216B7063037624D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF587E1B89529FB3842E6583C8CB81540CCE2D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1C707FDECEF20B359E20D9830B5612FCAD4066A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ McCoy Tyner Trio - Infinity (1995) 2004, Impulse![FLAC|tracks+.cue] <Post-Bop>
 ```bash
 magnet:?xt=urn:btih:BB39F383A8B7D5A797D108748F733C9475BD332E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ GraphicConverter - полнофункциональный графический
 ```bash
 magnet:?xt=urn:btih:EFAF03F5EE6F29C56B416ED775B4F98CF3225FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Jordan Officer - I'm Free (2014) [FLAC|Lossless|tracks + .cue] <Blues, Blues Roc
 ```bash
 magnet:?xt=urn:btih:9183398C9E95FFD163B5844103FA027CF8C8B392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ JohnnyM5 - The Best Song Collection (bootleg) (2009) [MP3|256 Kbps] <Italo-Disco
 ```bash
 magnet:?xt=urn:btih:183FBE50F352C3EE84DA5A7560A9B6810D4F9A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Markus Schulz - Global DJ Broadcast New Year's Rehab (2017) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:A86678E96C6269CB415935806DF353E118A055F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC90E4E2E1F25095843622E431008A29B68A675B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC7AC2F234F1D41B59C382BE049629D50E5527A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ James LaBrie - Elements Of Persuasion (2005) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:10A04981BE153606B65F3FD564FCBC52016E422B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Squeezer дружище веб-разработчика. Он может ком�
 ```bash
 magnet:?xt=urn:btih:F5DBDB5A14E79333321E38C6C0B37B6CBB089F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Tuneskit конвертирует MP4 видео файлы ,поможет лю
 ```bash
 magnet:?xt=urn:btih:3494C5E591E414269E50AF82EFBEBD97EC3946BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ OmniFocus 2: когда время — важнейший ресурс
 ```bash
 magnet:?xt=urn:btih:1CFE56E021D65ED33F2AFF36DD43606E3E56F294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DAAC409A115DB2749B667998E8B24CD64479F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:847F46853A48DCA4A7BD8BFBD127B55E26C8CD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ VA - Greatest Dance Rainbow Hits (2017) [MP3|251-320 Kbps] <Funky, Electronica, 
 ```bash
 magnet:?xt=urn:btih:B9F68466152E16A4AA66FF78BDE102BEF3806EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ VA - Deep House + Kizomba (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:07D5F9AEBBE0D6BC9931E9C7974878A61C0CB458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ VA - Milano Fashion Week (Deep House Selection) (2017) [MP3|320 Kbps] <Deep Hous
 ```bash
 magnet:?xt=urn:btih:4EDEC58571CB0EE20E47FADDA6D499213C946E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:0615B328DC0FE778B4171032DF61CB43B583CEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ D. Batistatos - 4 Albums  (2006-2016) [FLAC|Lossless|WEB-DL|tracks] <Dub, Downte
 ```bash
 magnet:?xt=urn:btih:07A1EB2EB1AA73C0F2AFE8310CB71D9F4B52B417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

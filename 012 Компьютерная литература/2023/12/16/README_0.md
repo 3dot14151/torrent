@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:09979BA139E2B4FF85505771D24C5E1F93531679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Deven Joshi | Building Cross-Platform Apps with Flutter and Dart (2023) [PDF][EN
 ```bash
 magnet:?xt=urn:btih:8408305603D8C0988554C4F57E84D76630FE5A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Harsh Bhasin PhD | Python Programming Using Problem Solving (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:4C901088288F70BA6919A6F8B9CA98D0EA09CA2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

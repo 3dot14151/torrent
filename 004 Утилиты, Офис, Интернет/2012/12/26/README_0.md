@@ -19,8 +19,7 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Portable by SoftLab-Por
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

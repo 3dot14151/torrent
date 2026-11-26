@@ -19,8 +19,7 @@ Spirits of Mystery 12: Whisper of the Past / Тайны духов 12: Шёпо�
 ```bash
 magnet:?xt=urn:btih:03A307B22FFA0C65F854C1181773D5EAC9AFC057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wanderlust 3: Shadow of the Monolith / Жажда странствий 3: Тен
 ```bash
 magnet:?xt=urn:btih:6B2A5229EA3AF02DE09CA1B9B1839E3E4289B073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Heaven Dust (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:382487742E347FFCB77902E6A4174A379A2D734F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

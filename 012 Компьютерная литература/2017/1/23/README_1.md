@@ -21,8 +21,7 @@ MESS - эмулятор игр для игровых консолейЖанр: �
 ```bash
 magnet:?xt=urn:btih:B40D6833F29F3999B064FE921CBAEB073F35EEF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2F0A0018503014958FC42E8BF5D98FF219395EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

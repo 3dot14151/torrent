@@ -19,8 +19,7 @@ Arizona Derby (2019) [En] (2.0.5 C/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3A39AB175B8C0B8B8DEA44CB90CE2342F6B9AE55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stronghold: Warlords - первая игра, воссоздающая хозя�
 ```bash
 magnet:?xt=urn:btih:94203F1CA95BA6D3B02F5B2B7368938067D2C80D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

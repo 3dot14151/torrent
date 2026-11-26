@@ -19,8 +19,7 @@ Shadow Fight 2 – файтинг от компании Nekki - Action and Fight
 ```bash
 magnet:?xt=urn:btih:8A2C2141C67871E1999CE71F85AEC448E76A7224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

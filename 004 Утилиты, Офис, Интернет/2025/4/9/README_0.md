@@ -19,8 +19,7 @@ XtraTools — это универсальный инструмент для оп
 ```bash
 magnet:?xt=urn:btih:725F5AB71B47D99BAA0E3D838B87904AD4A09465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

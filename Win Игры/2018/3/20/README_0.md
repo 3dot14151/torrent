@@ -19,8 +19,7 @@ Greed 3: Old Enemies Returning / Жадность 3: Старые враги в�
 ```bash
 magnet:?xt=urn:btih:A43C9585665D260158326B9F05B1ECDD7F6A3C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Attack on Titan 2 - A.O.T.2 (2018) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:D71C83D73EDE6A8040F2E3305ADC8DF7D5E5BAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

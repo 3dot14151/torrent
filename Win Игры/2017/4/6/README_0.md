@@ -19,8 +19,7 @@ Dark Romance 6: Romeo And Juliet / Мрачная история 6: Ромео �
 ```bash
 magnet:?xt=urn:btih:E7534DFE23EFBC53D1B63F084E418AF9B4769498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paradigm - это сюрреалистический квест, действи�
 ```bash
 magnet:?xt=urn:btih:0C8F6AA4F43B031870C52A0A1960DF9FF7AFC035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Mylene Farmer - Studio Albums (19 releases) (1986-2024) hand made [restored, dec
 ```bash
 magnet:?xt=urn:btih:AD270D99E137BE6EF9BE745E37B5BA8A350F1808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F04C0C9B805E13C53449FD475EA39ABB7EBEC5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

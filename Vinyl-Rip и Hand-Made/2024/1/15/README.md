@@ -22,8 +22,7 @@ A4 Ты Была Слишком Красива(   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:EACA7A2AEED035ABA02D31DF17005395826B6CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

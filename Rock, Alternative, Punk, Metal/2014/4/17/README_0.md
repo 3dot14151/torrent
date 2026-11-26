@@ -27,8 +27,7 @@ Jackson Heights - 4 Альбома (1970-1973) Reissue, Remastered /1993-2010/ [
 ```bash
 magnet:?xt=urn:btih:EE7E7DAAFEAB38E3DE3978C73988C28BDFF80D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Wolf Rahm - Фольклорище (2014) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:C552AD35FE288C9F18FF49AC8DB56DC224890A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ The Beach Boys - 20 Golden Greats (1987) [FLAC|Lossless]<Folk Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:C0AA8320FDE29F6E7B389B7E31EA49965455A68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Breathe Carolina - Savages (2014) [FLAC|Lossless]<Post-Hardcore, Powerpop, Elect
 ```bash
 magnet:?xt=urn:btih:B0A45193868404FDAC2BE98898CFCED0489B5819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Part One: Chronicles
 ```bash
 magnet:?xt=urn:btih:694599AC1478E2CA517B1B0F52CC17CA612B25A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Breathe Carolina - Savages (2014) [MP3|320 кб/с]<Post-Hardcore, Powerpop, Ele
 ```bash
 magnet:?xt=urn:btih:65AB3108EBCE466F30604DCF7DE757ABA0499247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

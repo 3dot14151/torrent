@@ -19,8 +19,7 @@ Riot of Willy (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6F826FF93F6E6B66BEE147F389BFBF4D55F67315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Planet of Lana – это грандиозный квест-головоломк
 ```bash
 magnet:?xt=urn:btih:B6B206EEED043CB271A9AE0B1410F46CBFB49B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.1.3-65316/dlc) Repack DjDI [Deluxe 
 ```bash
 magnet:?xt=urn:btih:D9B6AAE9F6CE074AAC8AD82D3576F41DB7EB4FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

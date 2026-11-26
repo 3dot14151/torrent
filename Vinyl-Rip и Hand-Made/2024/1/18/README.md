@@ -22,8 +22,7 @@ Darzamat — польский музыкальный коллектив из г�
 ```bash
 magnet:?xt=urn:btih:58F1B9555315F8792152DEF43C8CEAD49471B070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

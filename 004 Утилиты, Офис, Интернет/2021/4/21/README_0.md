@@ -19,8 +19,7 @@ Extended GodMode - это утилита, которая обеспечивае�
 ```bash
 magnet:?xt=urn:btih:3703B7C7BCA6646E3DD7503E7FECFA2947E6D56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

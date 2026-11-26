@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:BDCF89619D6027158CD29F51742987D9DEEF5D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ DDT - Рожденный В СССР (1997) 2011 [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:F65E51EF28CAE94D33BF47045EA0C2F1CAA4EE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

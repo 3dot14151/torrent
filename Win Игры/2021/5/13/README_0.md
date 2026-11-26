@@ -19,8 +19,7 @@ Iselin Saga (2021) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:F76A3AC820F69AE5A89831053D1D1611B6434677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.00) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1303001150AE226EB72C9EBAADCA535E9118F0D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

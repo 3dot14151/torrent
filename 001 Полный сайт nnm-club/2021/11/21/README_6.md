@@ -21,8 +21,7 @@ Florian Pellissier Quintet - Rio (2021) Hot Casa Records [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:E528B763AD7DA549FCA7A1177DFEC2D19EA80A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Graphic Inspector предоставляет исчерпывающую инфо
 ```bash
 magnet:?xt=urn:btih:323C229B0D8A6E4C9459EC1AD090F1B22CBB2861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Dato поддерживает все языковые стандарты и яз
 ```bash
 magnet:?xt=urn:btih:142C5E43F62C372742715FEEE393A1D5BE5FC9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Supernova Plasmajets - Now Or Never (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:AAACE2376C9A56C0A1EBA4F5CDB4D8D1E25A3AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Blow Up работает с Photoshop, Elements, (   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:C84FAF1F6878DA624A3C789A1BBB4BD83F54942E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Loud & Clear - Disc-Connected (2002) [FLAC|Lossless|image + .cue] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:416FE369F67B38A5B1EF644B9956978E881BFA63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Bootstrap Studio обладает (   Читать дальше...   )Тип и
 ```bash
 magnet:?xt=urn:btih:C412DC11929A2453E3BF07DE3A0BC5C2CAB96357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Force Of Progress - Redesign (2021) [FLAC|Lossless|image + .cue] <Instrumental P
 ```bash
 magnet:?xt=urn:btih:5330B7BB5AAEC1E9DA8B3B2A7474A41AB3DD9B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Color Wheel 6.7 [Multi]
 ```bash
 magnet:?xt=urn:btih:168E301C465823E8A79C89584F8132A0C5D01CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Eddie Higgins Trio - Secret Love (2007) Venus Records [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:573E26140C7211DED80C388620EDAE353B8FA300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Eddie Higgins Trio - Portraits Of Love (2009) Venus Records [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:B1F0230C7C76E06D30CC26273B7A25E963AD1513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ The Lurking Fear - Death, Madness, Horror, Decay (2021) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:C3E9D5DD791DC1AE2B0547ED6DAAA939026E3699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Kumano - Kumano (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:372DB944D556369AB015C09BA57EFD72E7911B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Snap Art 4 - этот плагин предназначен для превра�
 ```bash
 magnet:?xt=urn:btih:5F389D4139819F07D47D5E343E7C5DC0E5508A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8F61C1ABC73628125AFA1538DCE4FD3A5C4C713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ AnyGo 5.2.5 [En]
 ```bash
 magnet:?xt=urn:btih:5A9F586D3D5507F178372626142C33E63BCCDC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 ```bash
 magnet:?xt=urn:btih:8B2E276FD8E96B59F8073918EBA5E12EA4F57C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:966FF38A552B9788D659C872D8A31C476241719D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:9BD18C81C020687F0FA16E8B7B227FF4A6523CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ File List Export (бывший File list to Excel) - простое в испо�
 ```bash
 magnet:?xt=urn:btih:7F9A7F6F67D0695AB2DE43BBA72E135308B68622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ ProFind 1.9.3 [En]
 ```bash
 magnet:?xt=urn:btih:BB8E12AB1B13BC13945329769D74B7D9A573C08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ ToothFairy поможет вам перейти от одного выбранн
 ```bash
 magnet:?xt=urn:btih:B47D7DFCBC8E058E1291FE6B5ED21DD79E025E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ PullTube 1.7.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4D14B12A67A1E90CC470FD18132C48675B988880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ WonderPen - приложение для как для профессиональ
 ```bash
 magnet:?xt=urn:btih:127D7AAE36FE1CF3778C57A45817071B4A0D312C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:5D409B1F66A2665691579AE009EE765EE53A96D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ Cardhop 2.0.7 fix [Multi]
 ```bash
 magnet:?xt=urn:btih:514A28A4EA8F773DDB324238CB3E1E53383902E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

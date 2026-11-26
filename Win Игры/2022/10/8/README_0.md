@@ -19,8 +19,7 @@ Cyber Hook - динамичный 3D-платформер, в котором т�
 ```bash
 magnet:?xt=urn:btih:0CFD0FEB47418962F663E11F3D0AF759B2FA27C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nitro Racers (2022) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:46BFF8A8146F0223EE91DFCB35506CFE6909EF98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

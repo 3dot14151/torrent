@@ -22,8 +22,7 @@ Wraith - Riot (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, M
 ```bash
 magnet:?xt=urn:btih:C770E8B177E0A79FE002319F003E5DCFC5A981FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Invertigo - Veritas (2012) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive R
 ```bash
 magnet:?xt=urn:btih:2B1A9F1D7E34DE6F9AB7D8C853B1898F5E5A0A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Existance - Wolf Attack (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C236591A903271E1149046DFD3C5D9993F4F44A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Memoria Avenue - Memoria Avenue (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ro
 ```bash
 magnet:?xt=urn:btih:138700E917FC504FC32295231B52B976042F181D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Dark Horde - The Calling (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:08094090B2DDAF8176F75AF50EDA484ED8360A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Wraith - Danger Calling (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:D1E5A23731E90F75DC46C3AE937F816FB37E3146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Procol Harum - Conquistador (1991) [FLAC|Lossless|image + .cue]<Progressive Rock
 ```bash
 magnet:?xt=urn:btih:D1C2D39F92CEB8A42F006AE045C5F9DB137B6C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Gorky Park - Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AB15A3795B9BC38222F87C3BD3E0AD65C8C9C8F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Gorky Park - The Best (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:07B7BB4F5E9FA9BA753497C23F876B6F2ADB0F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ CD - 1 - Lightning To The Nations (The White Album):
 ```bash
 magnet:?xt=urn:btih:D913EEBF5766D8182C3D1B8D3CF46CDDBEC1694B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Gorky Park - The Best (2021) Remastering 2021 [FLAC 2.0|96/24|tracks|WEB-DL] <Ha
 ```bash
 magnet:?xt=urn:btih:5874F7C0AA4125525372B43CA58D3F3F56B60B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

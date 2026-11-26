@@ -19,8 +19,7 @@ Jonesville – это симулятор реальной жизни с обра
 ```bash
 magnet:?xt=urn:btih:F8CB3731FED50F8EF92E3CD60BD6F0471FDDC25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack FitGirl [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:2E348610FC941A2FFFABC29DA0004C090B2DCB14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D91B2861806073B5C28D10FB464412FED2C44459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pepper Grinder - это ураганная двухмерная адвенчур
 ```bash
 magnet:?xt=urn:btih:74DDCFDB94ECAEB9547CB9370CE38A23D18D0229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ otus Lantern: Rescue Mother - это игра-рогалик с видом св�
 ```bash
 magnet:?xt=urn:btih:0F7AD13DEA619E6D0A27C53CE0AB0C5B24CF5112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

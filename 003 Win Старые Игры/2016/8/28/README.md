@@ -19,8 +19,7 @@ Ghost Master / Повелитель ужаса (2003) [Ru/En] (1.0/upd1) License
 ```bash
 magnet:?xt=urn:btih:62D0E0BCDC95E3A4F49A668CCC5444C6A004E62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MTX Mototrax (2004) [Ru/En] (1.0) Rip NeoGame
 ```bash
 magnet:?xt=urn:btih:489052EE7FB27435E727E5C2992AAAFEBA60F8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

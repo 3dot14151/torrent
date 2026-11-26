@@ -19,8 +19,7 @@ The Talos Principle 2 предлагает увлекательный и зас�
 ```bash
 magnet:?xt=urn:btih:26C3148B4B039FE65E6DA8E760B352EEE1D9CB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Epstein 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2318F439C94D5039699FCA59E07E011B95B8C97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ereban: Shadow Legacy в быстро развивающемся стелс-пл
 ```bash
 magnet:?xt=urn:btih:C09E14C583134F13B5E0749C1017B1FB315B36FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Bria Mobile: VoIP Softphone v6.18.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EC6018ADE3B2C8586D7D22773A55311D4F3E39B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

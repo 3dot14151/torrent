@@ -19,8 +19,7 @@ Pulsar - Музыкальный плеер / Pulsar - Music Player v1.8.10 [Ru/E
 ```bash
 magnet:?xt=urn:btih:AF649ACB2E91D00B09F0702EF3CA72E2B15CF397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Kingsoft Office — офисный пакет, созданный китайск
 ```bash
 magnet:?xt=urn:btih:46ED73771BD2F60B7631B89CB593D439E66ABB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Terry Reid - Bang, Bang You're Terry Reid (1968) 2000, Repertoire Records [MP3|3
 ```bash
 magnet:?xt=urn:btih:7C60D30AE99D943DAD114B4D0FBD812D30B8E650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Greg Howe - Greg Howe (1988) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, C
 ```bash
 magnet:?xt=urn:btih:622D9976CAA34C3F05E0D0F6CC6ED4101E272C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Deftones - Gore (2016) [FLAC|Lossless|image + .cue] <Alternative>
 ```bash
 magnet:?xt=urn:btih:8D06499FE42A2BBE3BC5DF3D78908C495E9C669A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

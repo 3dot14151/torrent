@@ -28,8 +28,7 @@ Savn - Savn (2014) [FLAC|Lossless]<Folk / Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:09DFEDD63212FCD1229839326344421F04288949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

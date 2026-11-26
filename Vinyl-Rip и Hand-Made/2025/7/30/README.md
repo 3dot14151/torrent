@@ -22,8 +22,7 @@ Chris Rea - Collection (1979-2017) [DSD 128|tracks|Vinyl-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:50009BAFDBF26E5F2C1116A906A253F5F502315C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

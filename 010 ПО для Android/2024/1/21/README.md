@@ -19,8 +19,7 @@ VK X 6.8.2 (29200) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BD0777FF58681E5E016B8B2A8E452037BF93EACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pro Pilkki 2 / Зимняя рыбалка v1.9.3 Mod by Bubalex88 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A1641056DF8EF16449B0514B7ECE26EA8B9FB26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Documents To Go – это полноценный офисный пакет, в�
 ```bash
 magnet:?xt=urn:btih:97DB2F2ECA8E503BEAF33939D85FC857BB2007C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:FD2A9056D67A8AD71CE62056041CAC0D243A7CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

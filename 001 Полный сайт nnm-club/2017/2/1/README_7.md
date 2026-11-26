@@ -22,8 +22,7 @@ The Ned Irving Quintet - Round & Round (1996) Rafsky Records[FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:A8B6024F981B0F068A1A648F3CDC436C99B287BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ramchat - Atrana (2016) [FLAC|Lossless|image + .cue] <Black, Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:1EBC1A1FD4D471868BF2579796E827656661A881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Танцевальная зима. Снежная сотка. Версия 
 ```bash
 magnet:?xt=urn:btih:D54A33826F6FEE82B4D98A827385C16F0D7DE986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Finding Around Blessing (Energy Tech Trance) 001 (2017) [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:265C5E092DB4A884E106099793E470318BA4FC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Полный отрыв. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:EA34C75592B45C28AE89D356E6460157D505B757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Русский зимний музобоз выпуск № 5 (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:6DAA87F4ED03977F718A61D71742CA66CA7CBC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E2694DB52308BB74E498357167F56B3F30150C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Weslia Whitfield - Teach Me Tonight (1997) HighNote[FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:067C74EB1E3ACA4ED1955D57337ECAD782AE6756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAB02DCD02DFB02A13CFCF0843E4538D128289D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Thelonious Monk - Straight, No Chaser (1967) 2002, Sony[FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:25DED53FCDCBDD212903E5BF7D3A2AEE6DDAB0A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Cool as Chill: Best Of Deluxe Lounge & Chillout Tunes (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:9B253B1AAFD337D4D1C13F28B3529D4A7239A1E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ VA - Tea Time Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:F2D862D7384508CF7F364FB4FDD2B66AF2625628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ BetterZip – удобная работа с архивами
 ```bash
 magnet:?xt=urn:btih:41B706B72D8B807258D8AFB6B89E5BF6C8790794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ VA - Melodic Journeys - Japan Vol. 2 (mixed and compiled  by Dave Pineda) (2017)
 ```bash
 magnet:?xt=urn:btih:48777F6D97049511CA4AED31659081B768C7A8ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Theo - Heart Of Soul (2016) [FLAC|Lossless|image + .cue] <Classick Rock, Blues R
 ```bash
 magnet:?xt=urn:btih:0D6713ECB072EA02A091E802DF5A58E0C695972F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E02B1DB7448998359EB6FA8547658544220A2A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ VA - 1EDM: Funky Club House (2017) [MP3|320 Kbps] <Funky, Club, Electro, House>
 ```bash
 magnet:?xt=urn:btih:C3C4C13F72DBB574C9563A860A37A6F9F4EC4046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ Andy Taylor Group - Loose Cannon (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:DEC7144C4A7C21F2AE444519D9EB1102A63AAF41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ VA - Молодежный бум хитовый (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:13BC96A1EB4D372C48F48520D3A9AD0B66A6A13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ Camera Soul - Connections (2017) [FLAC|Lossless|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:6D99102CC0CB36FEFE389B714A265F5A654A42F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ VA - Я слушаю шансон. Зимний выпуск. Версия №4 
 ```bash
 magnet:?xt=urn:btih:A9D79C770C3F7ED38BD2A742F7CB55FA9E17E6DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ VA - Отдыхаем душой на стильном радио Шансон (
 ```bash
 magnet:?xt=urn:btih:57AD80D0032857F8D02454DFEE50B6BBB4CC96FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ VA - Ресторан Кураж от радио Шансон. Версия № 
 ```bash
 magnet:?xt=urn:btih:2EACE588399BD32342B6156930447D54855F124F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +661,7 @@ Black Anvil - blackened thrash metal группа из Нью Йорка. Деб
 ```bash
 magnet:?xt=urn:btih:D20D98BD4763B9276BFE34CA1DF58E4AEE537DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E94C423B96506C1A24DE5897D4E64AACE8B90BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7F22727781C624342023E76268CF6FF9E89483C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

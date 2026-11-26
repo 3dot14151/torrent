@@ -22,8 +22,7 @@ Marianas Rest - The Bereaved (2026) [FLAC|Lossless|image + .cue] <Melodic Death 
 ```bash
 magnet:?xt=urn:btih:A910891D2C18FD2779A161A58C52B678BD9B89B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Emmylou Harris - Elite Hotel (1975) Reissue, Remastered, 2014, Reprise Records [
 ```bash
 magnet:?xt=urn:btih:9C68BBD0B214C04F1A590228D8286FFADE6D15FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Textures - Genotype (2026) [FLAC|Lossless|image + .cue] <Progressive Metal, Math
 ```bash
 magnet:?xt=urn:btih:18F23A24F25A493585C1C877670E97BEF9F3132D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cryptic Shift - Overspace & Supertime (2026) [FLAC|Lossless|image + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:FA3088BCBBD8AA1B5961863B7C85E5ED9A674A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

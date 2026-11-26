@@ -20,8 +20,7 @@ Smultron - простой и удобный редактор. Smultron - про�
 ```bash
 magnet:?xt=urn:btih:FB167B11FC4A0AB069BE886263BB3933A6596461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:F90431864C826B76766B90D8FBF1EB4F21D56A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Midnight Hours: Urban Chillout Vibes (2021) [AAC|~301 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:485DFEE52EE7E52C6E4B84958D01B1212847EE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Urban City Vibes, vol. 7 (Urban Funk, Soul and Lounge Music) (2021) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:70F94F5D910EC579E2EECAB00A04983A37D2B624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:9F6E238A9283457991394309B0A79C5D0847FD7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ VA - Havana Highway: Urban Chillout Vibes (2021) [AAC|~319 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:2D84C5A22A07198866838D6EDDBF73DF089D3434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ GoodNotes 5 v5.7.43 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:71F6E12CCE089EBB97E61FEAC25B0BB4E63E43F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Blut Aus Nord - Hallucinogen (2019) [FLAC|Lossless|image + .cue] <Atmospheric Bl
 ```bash
 magnet:?xt=urn:btih:F451CBD5F8A1021F649524A900D75C271155A870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - Urban City Vibes, vol. 8 (Urban Funk, Soul and Lounge Music) (2021) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:4F5842056570F3666D1585C70A7BC7745D8C429D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Menuwhere 2.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:B86BBD7C3AA0EB2AB424151EE066A79C426FB17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Aenimus - Dreamcatcher (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:906B99F6DF1DEB7CDA706266456D81B1924C725A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:9965909D9FFBCB6F8F2033F21DA39736174003D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Magic Battery 6.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:5AE19817FC2D1BAC02CAAC0DE2CFE8B777E1B978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Voice Memo позволяет записать сообщение, которо�
 ```bash
 magnet:?xt=urn:btih:2EF6023ECDB6BFB3AF83F028EC88DC99CA1856DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Jeremy Olander - Vivrant Radio 023 (Quantum New York City, United States) (2021-
 ```bash
 magnet:?xt=urn:btih:BC5D46992C2F017AAE7D0B5614E0CE1E0AFAB9FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ One Switch - это крошечное приложение, разработа�
 ```bash
 magnet:?xt=urn:btih:DF14B04818CA55A843A4F594192793BBCA3157D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Resolutionator 2.2 [En]
 ```bash
 magnet:?xt=urn:btih:D356B00E4CE0168AB89899F2D9BC0628222DABDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Amadine - это программное обеспечение для векто
 ```bash
 magnet:?xt=urn:btih:E5A15D3CF6BAD5400DA94941669F380BADC730DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Postico - рациональный (   Читать дальше...   )Тип �
 ```bash
 magnet:?xt=urn:btih:262AEC886C4DA6F71827BBC0FBE337B98A5212B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ Joe Henderson - Mode For Joe (1966) 1988, Blue Note Records [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:46FC4F1D04F41353DF0B456F322DC9F5FBA5FBA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Archspire - Bleed the Future (2021) [WavPack|Lossless|image + .cue] <Technical D
 ```bash
 magnet:?xt=urn:btih:98027B16BEFBBB6AF411AB096DBCBF5F0F44B3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ Maverick - Natural Born Steel (2012) Japan [WavPack|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:59E06C87CAB0CDDD104C0478481B9C82703710A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ Djs From Mars - Swiss Virtual Nights, Summer Festival 2021, Switzerland (2021-08
 ```bash
 magnet:?xt=urn:btih:67B49E8146E0F1386DEAAAB3F7BC1BAF5F425C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Murasaki - это приложение для чтения книг в форм�
 ```bash
 magnet:?xt=urn:btih:ECA858A7FA2898EDC0E4D712FDB377C526EA5DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Maverick - Maverick (2005) Japan [WavPack|Lossless|image + .cue] <Heavy Metal, P
 ```bash
 magnet:?xt=urn:btih:A48AB457441926A87D845E018521FCFC6269D895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ Decapitated - Nihility (2002) German Special Edition [WavPack|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:1EA0BB8DCBFCE813CBAC22E0F99C79B346FE3D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

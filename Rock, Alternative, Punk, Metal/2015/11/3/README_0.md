@@ -22,8 +22,7 @@ Shadow Of Sadness - SOS (2015) [MP3|320 кб/с]<MDM>
 ```bash
 magnet:?xt=urn:btih:9F754F33A7E2E6F4512F718595C61EBBBDADBBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fear Itself - Fear Itself (1968) / 2006, World In Sound / [MP3|320 кб/с]<Psyc
 ```bash
 magnet:?xt=urn:btih:F34AEC2EC9F3D05B63DA7ABF846730F474091322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sniff 'n' The Tears - No Damage Done (1992) [FLAC|image+.cue]<Pop Rock & Soft Ro
 ```bash
 magnet:?xt=urn:btih:4B665A28B91D5C41A7541B5D43003CB030E774F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Josh Ward - Holding Me Together (2015) [MP3|320 кб/с]<Country, Country Rock>
 ```bash
 magnet:?xt=urn:btih:B48B607138F171B7D011F479FF5A2E64EDB60CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Juicy Lucy - Juicy Lucy (1969) / 2006, Air Mail Archive / [MP3|320 кб/с]<Blue
 ```bash
 magnet:?xt=urn:btih:A5B2B65BDBAE8F5A0668DE070992EF464FBE88DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sniff 'n' the Tears - A Best Of (1991) [FLAC|image+.cue]<Pop Rock & Soft Rock>
 ```bash
 magnet:?xt=urn:btih:41EC32A88060890BF9B6B1CA66B70ECB3CD37EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

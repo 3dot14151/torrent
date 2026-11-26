@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:6498946894D5570F8DE5F8447E4A2FA466F0126C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E88C216492BFAB1A772F1A522DE59E0466FE687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Preston Gralla | Windows 8 Hacks / Win 8. Советы и утилиты по о
 ```bash
 magnet:?xt=urn:btih:AB718F1F3B0AAE82F4103876F52053DAAAD0644D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

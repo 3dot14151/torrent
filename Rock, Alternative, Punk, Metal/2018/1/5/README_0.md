@@ -22,8 +22,7 @@ Shining - X - Varg Utan Flock (2018) [MP3|320 Kbps] <Progressive Black Metal, De
 ```bash
 magnet:?xt=urn:btih:CFE7626209A53D66CC1359C2648BE03E1FCC779B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Octopus Project - Memory Mirror (2017) [FLAC|Lossless|tracks + .cue] <Electr
 ```bash
 magnet:?xt=urn:btih:21AF1585838E934CA6995B9516F5A33491881941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Doc Holliday - Doc Holliday Rides Again... (1981) Remastered, 2005, Rock Candy [
 ```bash
 magnet:?xt=urn:btih:414C92C032B753B9CB7E606CE105AB1D2E75BDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hard Action - Hot Wired Beat (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:95B5EF3440F64519053305C2714D2AE9852BE6EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FABC3CCEC06F42C5A444FCE6E5DB3C9408D4F09D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

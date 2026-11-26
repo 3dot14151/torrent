@@ -22,8 +22,7 @@ B. Awakening From the Dream of Existence to the Multidimensional Nature of Our R
 ```bash
 magnet:?xt=urn:btih:578DEB1B5AED7D68A0E1936AE309196A684FF734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy Me
 ```bash
 magnet:?xt=urn:btih:9662F3413D5DC4B92BEDD0CADF65ABB745B5A4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 I'm Not A Fool(   Читать дальше...   )Жанр: Electronic, PopП
 ```bash
 magnet:?xt=urn:btih:70A59D053FAB6746FE440B9652A4A35295289007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Sleep Token — британская рок-группа из Лондона, А
 ```bash
 magnet:?xt=urn:btih:3DA69DB4173949E951FB5676D6A919143CD95926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Nemesea — голландская симфо-метал-группа.
 ```bash
 magnet:?xt=urn:btih:2E76DC99622A81536F818C8E1EA7B33AF356C9FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

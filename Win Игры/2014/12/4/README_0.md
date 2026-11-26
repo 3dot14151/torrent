@@ -19,8 +19,7 @@ How to Survive (2013) [Ru/En] (1.0/6dlc) Repack R.G. Механики [Storm War
 ```bash
 magnet:?xt=urn:btih:7E0F5E2223E41CDEE70F611C51562E507DE3730B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

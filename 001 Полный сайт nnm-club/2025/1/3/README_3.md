@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A5311B35A9DA8F235B809CAC7C495DBC89ABBFF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Slay the Princess — это психологический хоррор с вы
 ```bash
 magnet:?xt=urn:btih:F256B0986AFBE86B7644C414F2DAEBE250D98B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - The Best Of Italo Disco Vol. 11 (1988) [OGG Vorbis|480 Kbps] <Electronic, I
 ```bash
 magnet:?xt=urn:btih:7AF97FCE48186473ACE073E5B32447209447DDCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A2BC02C25C8F19402E2254C0B6E399336E1B490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - This Is Bass 2024 (2024) [MP3|320 Kbps] <Breaks, Breakbeat>
 ```bash
 magnet:?xt=urn:btih:860963A2A700C19A9CED00FD3AB09E09367CAC29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E26A41CD8B6AE3EC4BC8122E2F640839BE3E7896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Nelly Cootalot: Spoonbeaks Ahoy! HD – переиздание оригинал�
 ```bash
 magnet:?xt=urn:btih:92B1C8242A7EFCE000FC089AF95FB8AFD4461AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B4722CD6F6AD8BA62BA1AD016279B69F6125714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ FolderSync обеспечивает простую синхронизацию ф
 ```bash
 magnet:?xt=urn:btih:B322ABCA2FEC395441B38FD89BAF72F8BA5523A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Spectacular Sparky (2021) [Ru/Multi] (1.0.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:538CD4ACFB0E73116F0E57671C8BAE16951D0363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82DA7A9DF302221128541A109EC3035CE7A15DEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ VA - Compilation part 137 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:BF3E812221387897177E57E74E534262827B6C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7D254CC10A00BD9F1A788653FA63720EE681740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D797026DD7FAFC6F4CAD8ADBB7C6398F2537CC5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ Time and Memo / Время и Памятка v0.8.95 Mod by Alex.Strannik [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:B3A0010576C965FE10EE646E95EAA9470275482B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC29C2650DBB74899ED2917398F8F6EACE35C1B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ VA - Trance Selected, Vol 2 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:6E8E3359BC0C6BCC54A4BEEE7722E7FD8366DCC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

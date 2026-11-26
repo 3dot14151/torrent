@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5E59F62B1E0C82F27E6EEA01B5C2384D0F72C2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/Multi] (1.0.8767.0) License CPY
 ```bash
 magnet:?xt=urn:btih:AD9F9964C3C1178539AFE7494769BDAF4E1C85C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) License CPY
 ```bash
 magnet:?xt=urn:btih:328A4A11E8214EF84C3C7D7E6DCE4F9C8910731D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Just Cause 3 (2015) [Ru/Multi] (1.05/dlc) License CPY
 ```bash
 magnet:?xt=urn:btih:848FE9D6A3B06BCAED2B8DE3F645A69AB99215AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E51DBACCCDB02B55A45E4CB02C23A7701C67B21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Torment: Tides of Numenera (2017) [Ru/Multi] (1.0.1) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:EED57036547E0DE4A3829199462EDE717A9B5B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Daemon Tools — эмулятор СD-ROM с поддержкой многих �
 ```bash
 magnet:?xt=urn:btih:B19D9060A7A44C85F11EA3BD8A4358E5DC40CE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA4F700BFDA4FFBEFD290359E4022034F7C951FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE18273BCF089B7F6EDC47D37E756747E78CF112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C851FED8EFF9D171D495D10AC6CAD8D9AD29493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A658A2CF22BD7469459FCA160FA3ECD737032B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B811F3CC077A320B8EB1BDDAF43923244F5C958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ Dead Space 3 (2013) [Ru] (1.0.0.1/dlc/tr) Repack =nemos= [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:A5E87678120BD98B569D59E667F35177CAF7AE79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

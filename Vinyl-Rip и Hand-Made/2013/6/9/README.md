@@ -28,8 +28,7 @@ Stratovarius — финская англоязычная пауэр-метал-�
 ```bash
 magnet:?xt=urn:btih:787FE14252104BF52D9B4D02FE379EC0751D2D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Red Wave - 4 Underground Bands From The USSR (1986) 2LP [FLAC 2.0 24/96 | i
 ```bash
 magnet:?xt=urn:btih:9D258B93B68CDDE11AC870264B3455F73AFD0778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

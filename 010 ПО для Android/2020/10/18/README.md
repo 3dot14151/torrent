@@ -19,8 +19,7 @@ Stellarium Mobile PLUS - Star Map – отличное приложение на
 ```bash
 magnet:?xt=urn:btih:B636516112FE72477C98F733090EDB9EFA9F6F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GPS Up v1.7.1 [En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:8DBA881E9C535E6B57860FB3406F49E48EABA75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ActionDirector Video Editor v6.0.1 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:EDDE321F7AA9F49CD929B1AB7FEBB27C90C29A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

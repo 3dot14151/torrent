@@ -19,8 +19,7 @@ Hitman: Contracts (2004) [En] (1.74) License GOG
 ```bash
 magnet:?xt=urn:btih:EA713C7DB3D3F6B0C719672541C3AD1684AB858C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rome: Total War (2004) [Ru/Multi] (1.5/dlc) Repack kosak4 [Launcher Edition]
 ```bash
 magnet:?xt=urn:btih:F6E9EEFA157723338F428CA4CB8363A858EFD402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

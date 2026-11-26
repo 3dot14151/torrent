@@ -19,8 +19,7 @@ Snow Globe: Farm World / Хрустальный шар. Планета ферм�
 ```bash
 magnet:?xt=urn:btih:786CFE8B9D3A35BF23DE509E09EEC2080B7C1F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

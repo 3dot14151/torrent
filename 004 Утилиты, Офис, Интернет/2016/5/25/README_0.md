@@ -21,8 +21,7 @@ DLNA медиа-сервер, позволяющий передавать мул
 ```bash
 magnet:?xt=urn:btih:C44C6B9A5A67B11E15A259DF8C20651657E908F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Lost Coast - Lost Coast (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Ambient
 ```bash
 magnet:?xt=urn:btih:8BEB136B3019DDD4627D27BC6706461917BA1B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - NOW Roadtrip Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:A1AFE54992B0E14BC74090FBF708E06A97FAFF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - NOW Acoustic Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Rock>
 ```bash
 magnet:?xt=urn:btih:F50FB56657BCB6141C68898A1A02D4C6AD271545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - NOW Alternative Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Altern
 ```bash
 magnet:?xt=urn:btih:081200767872C5CEFE27339496FB811D03BACFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - 70s Rock Originals (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:31485ED32D2CC92E45FC45AE7881ADCC5B765811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Rock Classics Rock Anthems Rock Hit Rock Legends (2020) [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:3E4ACD9A80051332E604D35ECD82C21E9840897A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Deep Purple - Man Alive (2020) Single [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:D19A1EA375A6FCE7CB7AC18FA725EBCCB55FCA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ OTT Navigator IPTV v1.6.3.8 Mod [Ru]
 ```bash
 magnet:?xt=urn:btih:0C5095EAE8DB4347A754B8061BBDF06DBA0B5944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

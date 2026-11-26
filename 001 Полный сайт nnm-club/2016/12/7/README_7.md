@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BC190094FF055F822E1924E7F38743EA65976FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Battles for Glory 2 - это огромный мир, который разде�
 ```bash
 magnet:?xt=urn:btih:0BDFFCAEC7061754D42A7BACBD90660F87DF47FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ ITVDN | Серия уроков HowTo (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:410E5B4436D5CF689554F8DCA9DE2AA4AAFDA984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Omnisphere - первый продукт компании Spectrasonics, осн�
 ```bash
 magnet:?xt=urn:btih:1F6F5A53035D8293A00BD5C094930EF4CFA3897B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Nero Burning ROM 2017 — настоящий «стандарт» для про�
 ```bash
 magnet:?xt=urn:btih:3D06868991032E0F227BF89B7F4C0B4D0EDBB3CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ MSActBackUp - программа для сохранения и восстано
 ```bash
 magnet:?xt=urn:btih:69E1CAF74A52EF5B9F241D3E5EDBC51EC0BFF3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23D09DE235D29535ADFF8A4D6448330F7E1F6110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56CF986C3FDD5611F2211FBDD625B1DFB4452871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8856C2614E2492BA2D1E724BB9F0855D46295F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ KMSAuto Lite - KMS-активатор для операционных систе
 ```bash
 magnet:?xt=urn:btih:43A8E1A2126BE872553CDB9A90C83353C935249C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:902E21532F2E85D92B4B58F679B30832BA849AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ FaceRig - программа, позволяющая управлять эмоц
 ```bash
 magnet:?xt=urn:btih:0EE61E892B7BF577C594E799D5DBAB98636ECE47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

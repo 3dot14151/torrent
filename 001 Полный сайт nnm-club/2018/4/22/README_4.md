@@ -18,8 +18,7 @@ Hakata Tonkotsu Ramens / Тонкоцу-рамен из Хакаты [2018, TV, 
 ```bash
 magnet:?xt=urn:btih:28DE049D02864A0C926D3A5049072371B8BECCC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku / Death March to the Parallel Worl
 ```bash
 magnet:?xt=urn:btih:0039EC073EBD16698D7543A85D264C15640145D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Citrus / Цитрус [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:E388F8B7AA646453C489C8A3D4C36F3CCBB3C218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FBFD4D6356E6BB4542395FA302666FAAAE36D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Garo: Vanishing Line / Гаро: Линия Схода [2017, TV, 24 ep] WEB-DL 
 ```bash
 magnet:?xt=urn:btih:DB9F8713B4622B1FA3F0ECEF86747A4BBC7E8F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 04.2018 [Ru]
 ```bash
 magnet:?xt=urn:btih:B802E30C22C6504804D7E8FD4EEAD26FA0E6A460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ FBReader – свободная, быстрая, легко настраивае
 ```bash
 magnet:?xt=urn:btih:32443B520AE448AA938A6988DA22ED4CEAC344F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Bloody 5 2014.1230 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1DE0FFA80D631B87E675BED591F67C0BA645A374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

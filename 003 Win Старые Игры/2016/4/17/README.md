@@ -19,8 +19,7 @@ Metal Slug PC Collection (6 in 1) (1996-2003) [En] (1.0) Repack Super-Coctail
 ```bash
 magnet:?xt=urn:btih:62812F8BF4FAB4AF3E266EA185E241EDE1483680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Off the Record 2: The Italian Affair (2014) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:A99C31F64270E4AE41DB9754C96CDCF032DBF5F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4B1EC75B268080F80512252842E5A0709288F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Jpcsp является самым передовым эмулятором PlaySt
 ```bash
 magnet:?xt=urn:btih:15AB68329607010D7295A682D3E1625200A48F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Lords of Football — это совершенно новый спортивны�
 ```bash
 magnet:?xt=urn:btih:2A33F1D3C8E6D6D3738DC23DF9D70F5F4F2D0950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Dolphin является открытым исходным кодом Nintendo G
 ```bash
 magnet:?xt=urn:btih:7421A00AF85B7A521826DC27A415660D5E80E727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Lords of Football – это настоящая жизнь со всеми её 
 ```bash
 magnet:?xt=urn:btih:46A325373670E38E0125510E2DFCD7CCD2293697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Strike Suit Zero (2014) [Ru/En] (1.0.26281) Repack Fenixx [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:4201F363C5F51415C2A87E7A53D278B263AE248D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Sanctum 2 (2013) [Ru/En] (1.1.25536) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:95383B84FCA08A7F5E16C091E2248A1A7BAC76E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Halo: Spartan Assault это вертикальный шутер, события
 ```bash
 magnet:?xt=urn:btih:6BD8EC9E4AF93AE1FA01CDA48F859FB17A4D0A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ No Sleep for sole - это сюрреалистическая игра в жан
 ```bash
 magnet:?xt=urn:btih:75F95509F182BD980F0B6838F3F8A26D71236FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Wild at Heart рассказывает про двух детей, кото�
 ```bash
 magnet:?xt=urn:btih:394DCDCF7909E5CA205139A71FFBBE8536BF3336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ I Am Alive – экшен-приключение с элементами выж�
 ```bash
 magnet:?xt=urn:btih:8841A04025EDB91851DFFC7ABCCDB35081889703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tomb Raider 1-3 Remastered Starring Lara Croft - ностальгический 
 ```bash
 magnet:?xt=urn:btih:F062C0296DE3A10DB10B7DEBF2D896A30031CBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Scholar's Mate бросает вас в огонь. Стратегия и соо
 ```bash
 magnet:?xt=urn:btih:41F2F33689C57F7D3C246CE2650A8ADB12A2419B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cuisineer - восхитительная игра, сочетающая в се�
 ```bash
 magnet:?xt=urn:btih:3124B0219A2ACE4069A220BD12077F3165CAE0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Corpse Keeper – это сложная боевая стратегия, в ко
 ```bash
 magnet:?xt=urn:btih:6C29AA8162EEE5F5EB5A8FE1E5B9B886DBD56523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Potty Knight Saga бросает вас с головой в сложное пр
 ```bash
 magnet:?xt=urn:btih:416885CAD9FE19425D851E535572DF5A6D1A1273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tour de France 2024 (2024) [Multi] (01.04.03.846/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:63452ADF7AD6DB7A14284119C37A4BC8EC45F077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ An English Haunting - атмосферная приключенческая иг
 ```bash
 magnet:?xt=urn:btih:4E87C43C2DFE822BF915CF40F7788FD5B1457D79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Autopsy Simulator – симулятор с элементами хоррора,
 ```bash
 magnet:?xt=urn:btih:55512C2EC861774051A630575F3592B44F69B90A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Chornobyl Liquidators - симулятор ликвидатора Чернобы
 ```bash
 magnet:?xt=urn:btih:6A1C04779D4946073873C4D21944927775F43B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Whispers in the Moss - это полномасштабная ретро JRPG, к
 ```bash
 magnet:?xt=urn:btih:33A12F5FD54200111CC78064DBFF40ABEC175249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Scholar's Mate бросает вас в огонь. Стратегия и соо
 ```bash
 magnet:?xt=urn:btih:319D4640B4FC5D4ED96EDA0D9675D90466FACCD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Sinderfury бросает перчатку игрокам, жаждущим гл
 ```bash
 magnet:?xt=urn:btih:25A643BA6CF7CE67313F9DFE2D81E7E0E52C1446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Thriving City: Song предлагает перенестись в прошло�
 ```bash
 magnet:?xt=urn:btih:B449E7DC8AC92A08866BEC9956EE13D4F3A4F390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Small Town Terrors: Livingston (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:1639BCBAC1D301480529F003C4381D4094D3D6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Marine Tower Defence / Ух-ты, бухты! (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:85B00E79796EF58D806218DE55E7A11B3C017A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-l
 ```bash
 magnet:?xt=urn:btih:375C45176D1A705D79A91BFD47F112414A9F39BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Awakening: The Dreamless Castle / Пробуждение. Заколдованн
 ```bash
 magnet:?xt=urn:btih:D5E9ED8C0A5ACB7B857A853B52A3B52813E2BCA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Agency of Anomalies 2: Cinderstone Orphanage. Collector's Edition / Аген
 ```bash
 magnet:?xt=urn:btih:84947326E00999E9A5BF3AD761B79841C231B52C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Columnof the Maya / Тайна сокровищ майя (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:3CE01DD1115AC9F422DC1557EA37D73F8964A742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Mobiloid - это уникальная головоломка с оригина�
 ```bash
 magnet:?xt=urn:btih:44A7E842BE1638199EEBCAA68433856CA8AC81CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tunes Jungle Adventure / Нотки: Приключения в джунглях 
 ```bash
 magnet:?xt=urn:btih:06F6ECE76222D44BC97277D497CB6CE3CFB440FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Mystery Chronicles: Murder Among Friends / Загадочное происшес
 ```bash
 magnet:?xt=urn:btih:CD9C2C3FAC7E24793CBEFE3271B89B8031677641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

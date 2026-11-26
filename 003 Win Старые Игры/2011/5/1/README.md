@@ -20,8 +20,7 @@ Desert Rats vs. Africa Corps / Пустынные крысы против кор
 ```bash
 magnet:?xt=urn:btih:8D5D0D1983736362C0C2BFE6DFCE5CD5EC24151D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

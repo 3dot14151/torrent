@@ -22,8 +22,7 @@ Quicksilver Messenger Service - Happy Trails (1969) Remastered, 1992, BGO Record
 ```bash
 magnet:?xt=urn:btih:1BA0EF7BE8440966E68E307C7DC22B3331700121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ David Bowie - Hunky Dory (1971) Remastered, 1990, EMI [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:112AC54ED5053597DA7662E50EC6473D88A1233C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Janis Joplin - Janis (1962-1970) 3CD Boxset, 1993, Compilation [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:0DEDE1024EBD388221D1435F5E487A2F9BF622AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A163B5C6E699DD9F67A305D9C456D21D05C13F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

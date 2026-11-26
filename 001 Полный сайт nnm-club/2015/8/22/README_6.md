@@ -18,8 +18,7 @@ Homefront – сюжетно-ориентированный кинематогр
 ```bash
 magnet:?xt=urn:btih:A5A94FD0B135ED5D5FBD46C6942A98E886A14A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FECBC047986DFF0EF656D954B923441B9FA504AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Final Fantasy Type-0 HD (2015) [En/Multi] (1.0/upd1) License CODEX
 ```bash
 magnet:?xt=urn:btih:4E714519F8F7B1A1FFE7CF3FC11A363917E984FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Proteus Professional — пакет программ для автоматизи
 ```bash
 magnet:?xt=urn:btih:E64062A9C0A5D90055D28DC7B2E11EC6DE063C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Zombie Army Trilogy - это шутер от третьего лица, объе
 ```bash
 magnet:?xt=urn:btih:72F208F703446CC0064A4A3AEA9DC6E482AC856A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Risen 3 Titan Lords (2014) [Ru/Multi] (1.?0/dlc) SteamRip Let'sPlay [Enhanced Ed
 ```bash
 magnet:?xt=urn:btih:7288A3FF8C17E8939DD864F0FA1783D9AA4A00BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4ED37D02544BDDDC17E166DD40777B34F3B0AC07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Microsoft Windows 10 Ent x86-x64 RU-en-de-uk by OVGorskiy 08.2015 2DVD
 ```bash
 magnet:?xt=urn:btih:C57F308D98CFCBD1C26065ED580110F7612CBC5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:9BF55784F9A37E72784074F806C311A183926B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

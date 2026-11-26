@@ -22,8 +22,7 @@ Vayper - Песни на стихи Branikald (Часть 02) (2026) AI-generate
 ```bash
 magnet:?xt=urn:btih:79800E2DEEB31B4ADCE6FCD1E73989B319CD8E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fallbrawl - Finsternis (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore/De
 ```bash
 magnet:?xt=urn:btih:4AB5D1944E120C25CE26EE4D55EE8ABC4A3EC12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Where's My Bible - Kave (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death/Groo
 ```bash
 magnet:?xt=urn:btih:3B0DC1FB0E507512401A4F0B9E07E40480E0599C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sylvatica - Ashes And Snow (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death/F
 ```bash
 magnet:?xt=urn:btih:DA8B03AD05EBA404185681161B7110396ECC2F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fallbrawl - Darkness (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardcore/Death Metal>
 ```bash
 magnet:?xt=urn:btih:468C04988962CC57816242A1638D0DCB69C38063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Hansen & Friends - Thank You Wacken Live (2017) [FLAC|Lossless|image + .cue] <He
 ```bash
 magnet:?xt=urn:btih:B8A1EEC019A9B2899FB6B3F869CCC94E82592E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ne Obliviscaris - Urn (2017) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:92F0075A3A9CCF926FB2B337F8ECB6FD10BD60F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A59FDDE4F75F814BA449AAA00775846AA312B35C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A85CCC196EF2B1F661C150FE7617DCC87301D7A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ XETRANSLATOR 3.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6AA161B01D39DD768F064C96ECFE7252F65C8427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6765D04ABA5702A167B0A7D113A68A49C7EB47D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ BBC: Лондон - современный Вавилон / London - The Modern 
 ```bash
 magnet:?xt=urn:btih:C531081BD4091341E40C755834D89DA5A8C8914B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A8C4AEC0E5E7B195790A4F7B0133A510C0536A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ ClockSync 1.2.5 [Ru] - Синхронизация времени телефон�
 ```bash
 magnet:?xt=urn:btih:25731C8E591618C26B2838258B669F3221107BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:924BC37409F3ACA04D8AF141EA2CE3C55941B512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C53C68030C68202BF1E6BBD5F0F4D12A368E452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:898D64C8A2F2766994E6B528DB6EB9199FD3CF32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C4A1472C530AA13119FF8025336D42467CA78DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Process Hacker представляет собой достаточно мощн
 ```bash
 magnet:?xt=urn:btih:63B716E7D31C557F5BC376DD10604F9C2F52BB22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ IsMyHdOK 1.14 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2295063F7C76CDEA8C6DEFCE35DE15EA5390E9B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Marvel Studios: Объединяя вселенную / Marvel Studios: Assembli
 ```bash
 magnet:?xt=urn:btih:DC52A7D0C04E8FB3E091AB3E392CBC20AF88AA7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Any Video Converter Ultimate 5.8.0 Portable by PortableAppZ [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FFC71E31989FA5510A95C2D4F0CFE6156A0A5C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Stive Morgan - Space Breath (2013) [MP3|320 кб/с]<New Age, Electronic, Ambien
 ```bash
 magnet:?xt=urn:btih:536C2DFEB79BF386802E9F6D44FEC6215931B2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ VA - Дискотека забытых хитов (зарубежная) - 10 (2
 ```bash
 magnet:?xt=urn:btih:7D356A07532B1617D8838A8758C9B3A05C29A2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ Lunascape - браузер от японского производителя. �
 ```bash
 magnet:?xt=urn:btih:412C1E5C40AF661480917C3BDB60AB7BFBA08CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ Stive Morgan - The Crossroads Of Time (2015) [MP3|320 кб/с]<New Age, Electron
 ```bash
 magnet:?xt=urn:btih:17F22F14A6A1D25CE66193D43D62EDBE8F677621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ VA - Зайцев нет. Апрельский Топ 100 (2015) [MP3|227 - 320 
 ```bash
 magnet:?xt=urn:btih:82B5EEEFBFFEF15839929B143874566BF8C9EAD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ Amulet of Dreams / Амулет снов (2015) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:C96BA66052B667B93B2CE0495A81CB89512FFE68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:877F5F346C0D891D3467212DCC57667A500C5F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ Marvel: Создание Вселенной / Marvel Studios: Assembling a Unive
 ```bash
 magnet:?xt=urn:btih:6F04A9B2FC99E13EEF90EEECA268D3086AAF1E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA3840D82D123089661BCFA6750C1A8876539584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2492BE0A3C71221E1795C4BD6870F20377977768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

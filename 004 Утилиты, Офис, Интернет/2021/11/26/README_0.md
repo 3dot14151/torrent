@@ -19,8 +19,7 @@ R-Studio Technician 8.17 Build 180955  RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:414537C3CE844311F23C200E575BA88F120937DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MindManager - Самая мощная программа для построен
 ```bash
 magnet:?xt=urn:btih:C0E47D41ACD18C53FE36E53555FD8A6640D53015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Compare Plugin - плагин для популярного редактора N
 ```bash
 magnet:?xt=urn:btih:1CBFBBE8C227462D87712DA545308BAAC6B2C76D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ MindManager - это инструмент который повышает ваш
 ```bash
 magnet:?xt=urn:btih:54A2B0F830C2D2593921EF997B38DFAC829AC9FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

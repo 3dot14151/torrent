@@ -19,8 +19,7 @@ Ace Combat: Assault Horizon (2013) [Ru/Multi] (1.0.143.72) RePack =nemos= [Enhan
 ```bash
 magnet:?xt=urn:btih:D05AA0EFEF38AB366DCA61EDE416972F10F4A80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

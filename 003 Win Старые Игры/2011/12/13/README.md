@@ -19,8 +19,7 @@ Realms of the Haunting [En] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:100767FD24451F01EB1140270A6F7D556AD0F90C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warlords 4: Heroes of Etheria / Варлорды 4: Герои Этерии (P) 
 ```bash
 magnet:?xt=urn:btih:327F17A652ED00982032C0A5315CDE2D5E5630C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ MAY-A - Goodbye (If You Call That Gone) (2026) [FLAC 24/48|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:2E0733AAFE62473B5D8613403713FB1793E94FA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Secret Rule - X (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Me
 ```bash
 magnet:?xt=urn:btih:7EF814BAA9F67C0FFA8ED87810BD45A407C76FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ New Found Glory - Listen Up! (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Pun
 ```bash
 magnet:?xt=urn:btih:0E1FF2EF8800B31756384716BE1A998EF842739F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38824098D317FF7D589B399A42463F68B31431C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Altin Gün (Altin Gun) - Garip (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Anato
 ```bash
 magnet:?xt=urn:btih:66FB05832B570CB23BF91FB912ADEDDE267761D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

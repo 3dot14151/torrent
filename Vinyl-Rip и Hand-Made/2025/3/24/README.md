@@ -22,8 +22,7 @@ Nightwish - Angels Fall First (1997) Released, 2015, Spinefarm Records [FLAC|24/
 ```bash
 magnet:?xt=urn:btih:B5D26DF54B0BA7C3C1A8F23BE7B711772124C960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nightwish - Oceanborn (1998) Released, 2015, Spinefarm Records [FLAC|24/192|imag
 ```bash
 magnet:?xt=urn:btih:603D8567EE8CB3760963FC09ED549EDBB1046FC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B1 Fiend Of The Overlord(   Читать дальше...   )Жанр: Melodic Do
 ```bash
 magnet:?xt=urn:btih:795A4B875858E5610DFED8F83C16911320450554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

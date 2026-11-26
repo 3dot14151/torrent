@@ -20,8 +20,7 @@ Rocketbirds Hardboiled Chicken (2012) [Multi] (1.0) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:F0F9657931AFCDC251136773F0C8C0E9F33C3CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ A Bird Story - это непрямой приквел To The Moon (действ�
 ```bash
 magnet:?xt=urn:btih:6E04E64119ADE2338D9FBA76B45D0BB189B36193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

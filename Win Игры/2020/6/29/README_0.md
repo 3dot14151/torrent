@@ -19,8 +19,7 @@ Black Mirror (2017) [Ru/En] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B341660C92984B91FECB288124B48EBD6E63F175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Someday You'll Return (2020) [Multi] (1.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:965978A85C5008F4473CE1247C1CC5B304FB871F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

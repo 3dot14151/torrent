@@ -22,8 +22,7 @@ Blade of Surtr - Baptized in Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Me
 ```bash
 magnet:?xt=urn:btih:574CAC5D9829E76645BDD17CA41B938ED2BB5772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Grapeshot - All About to End (2017) [FLAC|Lossless|image + .cue] <Thrash, Groove
 ```bash
 magnet:?xt=urn:btih:C76EA9146793877390614D6DC16961ED223C98DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Brakas - La Batalla (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:ED6E865E8E0E8A2188ABD38D20A9B309FE7186BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mistralth - But a Walking Shadow (2019) Limited edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:32A38C9688A291F65DEBB727312CAE4178AB0958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Adarsh Arjun - Aches And Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 ```bash
 magnet:?xt=urn:btih:22A730B55573C22F3A7D10BE7AA786D000C2EA1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Times Up - Snow Queen (2012) [FLAC|Lossless|tracks + .cue]<Crossover Prog>
 ```bash
 magnet:?xt=urn:btih:68384633AA4E8701974C69450F1CD08F36CA21AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Steel Cage - Syndrome (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:1429F5B295486A2A82FAA1E136DB41760E6EA007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Deep Purple, The Royal Philharmonic Orchestra Conducted By Malcolm Arnold - Conc
 ```bash
 magnet:?xt=urn:btih:DEA20F3980527C40D0D3C93D55D6890796842C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Butcher Of Sodom - The Annihilation Of A Butchered Heart (2023) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:2697E57E6F7E8BB08B089EDB8EF93A847E9F7121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

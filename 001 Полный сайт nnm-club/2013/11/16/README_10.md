@@ -23,8 +23,7 @@ Opium - Demo (2008) [MP3|213-238kbps]<Metal>
 ```bash
 magnet:?xt=urn:btih:6510F081811B6270B460D73802E1407AF5F46675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Majeure - Trancer (2012) [MP3|320 кб/с]<Electronic, Ambient>
 ```bash
 magnet:?xt=urn:btih:86A3BE16BD53704C208F9080F56A1B5048236616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Blindead - Absence (2013) [MP3|320 кб/с]<Progressive/Sludge/Doom>
 ```bash
 magnet:?xt=urn:btih:2DD54A8587469D96D504062FA955530854C61F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Overthrow - Wasted Existence (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:230B00EE0419224E672BD9FE99FC3408C413E88D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ POLY.тех (выпуск 4) (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:4F8A15A7EA45A729F158CF0C98039E9982843F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Pivot Gang - Jimmy (2013) [MP3|320 кб/с]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:FCFC5663D68AA9A4C4954BAD9CF91E8BA27B76FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ Jules Broussard - With Strings Attached (2007) [FLAC|Lossless]<Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:B996879E8691191A034EEB5E3543CC09654C2E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Sinner - Mask Of Sanity (2007) [WavPack|Lossless|.iso.wv]<Heavy Metal / Hard'n'H
 ```bash
 magnet:?xt=urn:btih:9EB839B62ACE43EAA339E0F811B8EFB962D95918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ Cream - Royal Albert Hall. London May 2-3-5-6 2005 (2005) 2CD [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:61EEF0A038972C380A7FA82E7268975C34BF080F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Ulcerate - Vermis (2013) [MP3|320 кб/с]<Technical Death/Atmospheric Sludge>
 ```bash
 magnet:?xt=urn:btih:3D5F6E16D9330C86667FF4AA487C76381F3F0C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +343,7 @@ Kayo Dot - Hubardo (2013) [MP3|320 кб/с]<Avant-Garde Metal/Experimental>
 ```bash
 magnet:?xt=urn:btih:BCE030DD2258613C7A794B10D71ED1213BBDD5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A79B6FE575012C2295603D959B03279B8A50460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D154CE54901A6137D6775FAD94C149FB71F6850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +440,7 @@ VA - Deep Touch Vol. 1 (Mixed by Karol XVII & MB Valence and Jackspeare) (2013) 
 ```bash
 magnet:?xt=urn:btih:71AA2ABACA31DB5D38F8E8C2C7A1AD21D13A643F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +474,7 @@ Hibria - Blinded By Tokyo Live In Japan (2012) [APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:8A014D5D796F05A5592FB144214DBD4370A52CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +508,7 @@ Inquisition - Obscure Verses For The Multiverse (2013) [MP3|320 кб/с]<Black M
 ```bash
 magnet:?xt=urn:btih:346AB8FC12954DFFC526151BBFD96F1365D6251C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +542,7 @@ VA - Nueva Presents Progress Report: Verano (2013) [MP3|320 кб/с]<Trance, Pro
 ```bash
 magnet:?xt=urn:btih:DCF2C05C6A7133AF3A6B91BD028C7BEC6AAFDA9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +571,7 @@ POLY.тех (выпуск 3) (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:E8865FDA714CE0C62D7C2C1935CE6296A9A36DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1974BF3210201E59BBDBE55F33E8E05D4AE1B5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +630,7 @@ Haken - The Mountain (2013) [MP3|320 кб/с]<Progressive Metal/Rock>
 ```bash
 magnet:?xt=urn:btih:348508B102FFE51FA06B30A89BB8D09673530FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +657,7 @@ Hanging Garden - I Was A Soldier (2013) EP [MP3|320 кб/с]<Post-Metal, Doom/De
 ```bash
 magnet:?xt=urn:btih:F03D2AFD277C5A77ABF96F143D180ACF9552BECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +691,7 @@ The Ozark Mountain Daredevils - The Ozark Mountain Daredevils (1973) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:F51CE32DBA5C3709A1A0287A4C24885531A9DBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +725,7 @@ Hail of Bullets - III The Rommel Chronicles (2013) [MP3|320 кб/с]<Death Metal
 ```bash
 magnet:?xt=urn:btih:4119110C75A567B1C563CAC98EF8C1D59967658B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5A7243B96758CA3026DB9BC5562F72DF59CE6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +781,7 @@ Blackslash - Separate But Equal (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:886F1B620190C273054DE4D3BE7F9288F6FA751B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -839,8 +814,7 @@ Side Liner - Missing Pieces Of A Puzzle 4 (2013) [MP3|320 кб/с]<Ambient, Down
 ```bash
 magnet:?xt=urn:btih:C251293A10574B775CD9B4401116130341D96A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

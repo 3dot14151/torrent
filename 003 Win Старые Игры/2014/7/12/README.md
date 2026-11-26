@@ -24,8 +24,7 @@ Praetorians – потрясающая воображение игра от зн
 ```bash
 magnet:?xt=urn:btih:84CC7CAD9EA1F2EB259FB36E98EB05B4BB68ED57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

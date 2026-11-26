@@ -19,8 +19,7 @@ StarCraft 2: Legacy of the Void - это третья, и заключитель
 ```bash
 magnet:?xt=urn:btih:63E2F0592176358D3F2A45F78C1CE6A881BEA739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BioShock 2 (2010) [Multi] (1.5.0.019) License GOG
 ```bash
 magnet:?xt=urn:btih:82F53B5AFFCF5816924DA54CA6394202B736DDB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.0/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:AA64FA6A84A72A75705B0359C66A60F122208B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Starstruck Vagabond начинается с рассказа о том, как �
 ```bash
 magnet:?xt=urn:btih:DED1F5C293D6E91C376F0CD0991E1429BB6EE339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Creeper World 4 (2020) [En] (2.5.1) License GOG
 ```bash
 magnet:?xt=urn:btih:32238F47206211C9DA974BD69601B15387FDE7F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

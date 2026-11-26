@@ -19,8 +19,7 @@ Monument Builders: Eiffel Tower (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:E5F2972E918860778EEC03C0C1BE69745A9B9989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shaolin Mystery 2: Revenge of the Terracotta Warriors / Тайны Шаолин�
 ```bash
 magnet:?xt=urn:btih:2B56E2A57E33E5C836E768B3596FC1CDDFE21E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81B555C15D9182FA031D51C35C6498B840049A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F2C87A238009BE077708A19F60EC01643C5C627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

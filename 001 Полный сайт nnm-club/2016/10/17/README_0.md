@@ -21,8 +21,7 @@ Cookie  - Программа для полного удаления cookie-фа�
 ```bash
 magnet:?xt=urn:btih:481B4C50C955EFC919178DFFD9042B1CF7D7275A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EBE71D48B1096EC438D2EF068FDDA38DB2EF6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Patriarch - Rage Of Gods (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:AF95B90F8C5645C898662A350BB2054B124C1E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Осенний позитив №2 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:756AC6E1661F2B7F7C0E45D5BE02AE56545B0C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ The Quireboys - Twisted Love (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A7E2B087499609271969E442D1356E7B4873E394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ doseone - Enter the Gungeon (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|t
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Beatport Deep House September (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Butler – менеджер, который дает доступ к прило�
 ```bash
 magnet:?xt=urn:btih:D8459FFADECBA1622ADF5BFE95854073BFCDA7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F962A94C60AB838FFE93DCF063D18E7A2F0A2329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ doseone - Enter the Gungeon (Original Soundtrack) (2016) [MP3|320 кб/с]<Sound
 ```bash
 magnet:?xt=urn:btih:CA8A267476A99633EE7B9D8C93641683E206D6AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Sahg - Memento Mori (2016) [FLAC|Lossless|image + .cue] <Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Tango Down - Damage Control (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D062DFC5CC25497234347F4D3F63450A07FAFCDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Austin Wintory - ABZÛ (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack
 ```bash
 magnet:?xt=urn:btih:C9CB6C34E485F20809A2A8FF34484FB9C6E308B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Soosh - Discography 5 Releases (2011-2014) [FLAC|Lossless|WEB-DL|tracks] <Downte
 ```bash
 magnet:?xt=urn:btih:DC4708E9EA3302685B3234ADCC33146D2B09FCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Petri Alanko - Quantum Break (Original Game Soundtrack) (2016) [MP3|320 кб/с]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ VA - Electronic Ocean (25 Summer Anthems) Vol. 4 (2016) [FLAC|Lossless|WEB-DL|tr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ VA - Хитовый Бум 9 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Joanna Connor - Big Girl Blues (1996) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:87FCC0C32F5CDE6B6D45DD7FEF6F9087760A370D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ VA - Отдыхаем Душой На Радио Шансон 2 (2016) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:A60F4EF58672BCFC5266650A377FD6C71C5817A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ Colin James - Blue Highways (2016) [FLAC|Lossless|image + .cue] <Blues Rock, Blu
 ```bash
 magnet:?xt=urn:btih:3D16275C2E154D7BD96B6112FF03E23870B33A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:213A9612CCFCC5EC79B78C5CC03E8AB6C4BFF798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ BrowserFreedom 1.4.1 [En]
 ```bash
 magnet:?xt=urn:btih:0781D78D51B34B2EADB640B4BD8D95A6E7A136BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ Black Hole Raven - Black Hole Raven (2016) [FLAC|Lossless|image + .cue] <Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ Anamanaguchi - Scott Pilgrim vs. the World: The Game (Original Videogame Soundtr
 ```bash
 magnet:?xt=urn:btih:CF6E67DE4F79EAFDB637FFD252C42BB9D60AF819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ Johnny Jewel - Lost River / Как поймать монстра (Original Motio
 ```bash
 magnet:?xt=urn:btih:917FB72FF8C7320AA3D3BD081BEBBB1FC26B64FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ VA - James Warren Presents: Visceral 041 (2016) [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:62C95DBD2A01E87C32910833A3F24D986CA1B32C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

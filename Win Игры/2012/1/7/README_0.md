@@ -19,8 +19,7 @@ Bedtime Stories: The Lost Dreams (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B410ED10AAD1B3F9D032440ECDB30CD357F24DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales 2: The Legacy Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:222ABB03F4A28A5597609D2C6F4EFD89727939FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DragonStone (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:15A565BE085720E6E92A7FDDB9155E6750899558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grim Tales 2: The Legacy Collector's Edition / Страшные сказки: Н
 ```bash
 magnet:?xt=urn:btih:0143E68BF8F5A97FA0AA8EF69E00BB9B9B804BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Raven Squad: Operation Hidden Dagger / Отряд "Ворон" [Ru] (RePack) 200
 ```bash
 magnet:?xt=urn:btih:2EC36C9649756508B1D6B8F625FD67E915BBA981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Battlefield Heroes - бесплатная сетевая компьютерна�
 ```bash
 magnet:?xt=urn:btih:25DD5EC756760E988AF48A77899966C17C4AD842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Tom Clancy's: Ghost Recon: Advanced Warfighter [Ru] (RePack/1.3.5.001) 2006 | MO
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

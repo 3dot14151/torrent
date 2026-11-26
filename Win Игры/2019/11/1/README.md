@@ -19,8 +19,7 @@ Haunted Hotel 18: Room 18 (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:7F046A1D2470524F41891475F50FC94927C21E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cursed / Проклятая (2016) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:2AAA6B8410A03B6FC339071645AA18D359D9FD35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Darksiders III — долгожданная третья глава популя
 ```bash
 magnet:?xt=urn:btih:36FFE3CB67ACA7FCEC47ACE681EC3DD1053793B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

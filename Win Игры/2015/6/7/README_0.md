@@ -19,8 +19,7 @@ Mystery Trackers: Blackrow's Secret / Охотники за тайнами. За
 ```bash
 magnet:?xt=urn:btih:B83126BD379EE6834A2AFE448F390A6FE73072A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Harold – смесь платформера, гонки и головоломк
 ```bash
 magnet:?xt=urn:btih:08F792A683AB87BA08BE3A6FE75A5FA772BF8B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ruud Cooty - Aftermath (2002) [MP3|320 Kbps] <Hard Rock, Heavy Blues>
 ```bash
 magnet:?xt=urn:btih:0C51F3C6E533E675E25142CB6394B15433C3A27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Epica - Consign To Oblivion (2005) 2CD, Expanded Edition, 2015, Transmission Rec
 ```bash
 magnet:?xt=urn:btih:1ED582AA625C8B0559D3404D05F95F140572BB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ No To Co i Piotr Janczerski - 4 альбома (1968-2006) 4CD, Collection [WavP
 ```bash
 magnet:?xt=urn:btih:046C164A05C46EBD3577D79C2E049908988B9F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

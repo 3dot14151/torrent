@@ -19,8 +19,7 @@ BZ Напоминания и Дни Рождения v3.1.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3434FD4E2501F0DD25D1BDDCABBF9EEF02994BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

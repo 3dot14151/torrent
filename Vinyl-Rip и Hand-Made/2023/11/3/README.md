@@ -22,8 +22,7 @@ A4 - Reality Dream(   Читать дальше...   )Жанр: Progressive Rock
 ```bash
 magnet:?xt=urn:btih:CC86F13BDF95ABAEA3E89E7F2A4644B0592ABF43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 - Post-Truth(   Читать дальше...   )Жанр: Progressive Rock, M
 ```bash
 magnet:?xt=urn:btih:246AEE83850E959DFF7A93C94D0DC7BF6B17688D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A2 Веселые Ребята – Если Б Не Суббота
 ```bash
 magnet:?xt=urn:btih:F4330F517B6E40B67F899FFE7EAC635D59CD9A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

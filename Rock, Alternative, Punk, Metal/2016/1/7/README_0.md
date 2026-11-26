@@ -22,8 +22,7 @@ Raven - ExtermiNation (2015) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:2E85EB4A764969B1F935EB5E2B00616C60D1E06C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Exmortus - Ride Forth (2016) [MP3|320 кб/с] <MDM, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:35B6FD7A4F2A8B763140C4B1A14C48A30A4F607F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hinds - Leave Me Alone (2016) [MP3|256 кб/с] <Alternative Rock, Indie Rock, G
 ```bash
 magnet:?xt=urn:btih:D0111693442E5210166B927CB4E3FC4E442A814A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Brunettes Shoot Blondes - Bittersweet (2015) [MP3|320 кб/с] <Alternative, Ind
 ```bash
 magnet:?xt=urn:btih:7EAC552A89BA26A9682E2B95EB0BF080907FD732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Uriah Heep - It Was 40 Years Ago (2016) Compilation [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:658180C20C20A3EA1ADD634A3336342745CBE6C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Uriah Heep - It Was 40 Years Ago (2016) Compilation [MP3|320 кб/с] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:60087012877C52B7D1B34A111D92859B0C4B60CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

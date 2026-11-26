@@ -19,8 +19,7 @@ Enchantia: Wrath of the Phoenix Queen Collector's Edition / Энчантия: Г
 ```bash
 magnet:?xt=urn:btih:D43853E74A3ABB7DC2B9F598F30DFC36B747A8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Alan Wake's American Nightmare - экшен с элементами хоррор
 ```bash
 magnet:?xt=urn:btih:580B9DABA71061D57873CF305F8591B432DAB1F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ys I & II Chronicles [En] (L) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:D39CC14936426951C6DB14B9D7C0E10AAD6E9638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Assassin's Creed 3 (Patch/Crack/1.03) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:E23C74F51CF7616375862511537622BB2AD6E168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Nuclear Dawn - первая игра, в равной степени совме�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

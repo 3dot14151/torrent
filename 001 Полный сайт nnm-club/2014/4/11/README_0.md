@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9024980B2B2F1F7CD43C85B78100573FEE6CA4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73F6897A5A03F74F3777DCB7707273C75AEB4A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0660B4086688B917FD6BED0D3A501466740744D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Into This Wired Abyss Vol. 3 (2014) [MP3|320 кб/с]<Psy Dub, Downtempo, G
 ```bash
 magnet:?xt=urn:btih:1CB29C659B8ACDF7D6775DA53BB1515A0439CF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Panther God - Golden Changes (2014) [FLAC|Lossless]<Synth Hop>
 ```bash
 magnet:?xt=urn:btih:631E35243F3B8F0572CEEECD8D7C9A0401E1C46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Simon Le Grec -  Distinctive (Lounge & Chillout Album Selection) (2013) [MP3|320
 ```bash
 magnet:?xt=urn:btih:22E8F779402D3C517E3B3964D9D0DC7CCBB911DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ N/AЖанр: Electro HouseПродолжительность: 00:56:10
 ```bash
 magnet:?xt=urn:btih:B9633EA2FFAEE10BEAD528F988564CD5EA6BD040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Al Caiola - Solid Gold Guitar Goes Hawaiian (1965) [MP3|320 кб/с]<Instrumenta
 ```bash
 magnet:?xt=urn:btih:08C17E6578DEDC7452E3F07EBDBFA084F389A2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ VA - Renaissance Worldwide: Singapore (2014) [MP3|320 кб/с]<Dance, Trance, Ho
 ```bash
 magnet:?xt=urn:btih:2D504A136CAECDBE94BCD86CA3884792C5CCED4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ Chilled Legends: Chill Out - The Classics (2014) [MP3|320 кб/с]<Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:82CE0C73350FBCBF75A25D9BB83ED4835B6B1890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ Daniele Ronda - La Rivoluzione (2014) [MP3|320 кб/с]<Pop, Italian Pop>
 ```bash
 magnet:?xt=urn:btih:BC9B495E2FE6133BD5BDE1682ED54CC9EC649FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ PsiloCybian - Brain Dissolver (2014) [MP3|320 кб/с]<Full On, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:64D4349C9C3F0FFD5A43D6EA60C180FB9C7E35EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40CC562CA19B95E7FE414183449E3DDED3261F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +425,7 @@ Simon Le Grec - Sensual Lounge (A Fabulous Lounge Chill Out and Downbeat Selecti
 ```bash
 magnet:?xt=urn:btih:23A2C40F0DEAAD097B701498E24F4B3BE9DCF7EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +459,7 @@ Beegie Adair - Sentimental Journey (2006) [FLAC|Lossless]<Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:56E223D6764E59C69CC7542668814507B96629F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE003288A7C4F331F8F890F94346868D19A3BDB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +518,7 @@ Nick Miller - My Memories (2013) [MP3|320 кб/с]<Classic rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:0FDEC57BC1597EBFE54FD9D5364065A0AA65E232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ BonAView 1.9 - Программа, предоставляющая пользов
 ```bash
 magnet:?xt=urn:btih:CA393A75206AFCA2EAD3F3D470C0A85E71316230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ PowerArchiver - универсальный архиватор с поддерж�
 ```bash
 magnet:?xt=urn:btih:EBC6C50F56A2DDC44605310AC9A505746B70D583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:172FDAF8719BFC033860ABF81772513311390778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7784C0651F52D24EEE3156E13C727B7C3DDC1D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DED6B0D48C63EED4D7277D2B511514BE63FDA7C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ VA - Студенческая Вечеринка - Танцы До Утра! 50/
 ```bash
 magnet:?xt=urn:btih:10A19357A791DDCF20D97DF3ADB75D02BE46DBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +713,7 @@ The Gary Moore Band - Grinding Stone (1973) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:8647E6822D248A275F41EB1C4240BB04E50AF445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +738,7 @@ Solar Impulse 2 - первый "солнечный самолет", которы
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4613332DC433645D54DEA0BE844E61DFBEC11A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

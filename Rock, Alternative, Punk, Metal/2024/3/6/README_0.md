@@ -22,8 +22,7 @@ CD1 - Doomed Forever:
 ```bash
 magnet:?xt=urn:btih:86172170E3DEB7FA4F6527DB0602C43C3150DAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Empty Frame - Underdogs (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indi
 ```bash
 magnet:?xt=urn:btih:6C7DDE4770DFCDF3537743517FD1DF668759EB36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blue Dawn - Reflections From An Unseen World (2023) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:304D5D2919DF20894A557B6E841F3CB4E5AFA80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Opera Magna - Heroica (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 ```bash
 magnet:?xt=urn:btih:B1EE9AFF6B18CD0961B5F6C911D3747D6C887CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Magoria - Hollingsworth Mansion (2017) 2024, Butler Records [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:44B3DE1317A44F31F9D51E192D486061CDCC79FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

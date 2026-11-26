@@ -21,8 +21,7 @@ Voyager 13.10 (легкий дистрибутив) [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:7835E4CB30A882FE94D38DCF98C8264BA98C6548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

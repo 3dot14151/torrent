@@ -19,8 +19,7 @@ Avee music player – это новейший музыкальный плеер,
 ```bash
 magnet:?xt=urn:btih:D4CA0947F3556D6A55F31AE7178798742737F222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

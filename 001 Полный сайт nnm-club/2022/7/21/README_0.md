@@ -21,8 +21,7 @@ Blackslash - No Steel No Future (2022) [FLAC|Lossless|image + .cue] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:485254EB58EA661399253050633C71E9F7FEF866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Postico - рациональный (   Читать дальше...   )Тип �
 ```bash
 magnet:?xt=urn:btih:14E92A105051D19263AC6209D87E56A51380C3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Threar - You Live With What You Create (2022) [MP3|320 Kbps] <Melodic Hardcore, 
 ```bash
 magnet:?xt=urn:btih:082605B6189C61B5F392B3CE355721A1A0FAF5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ October Burns Black - Two Worlds Collide (2022) [MP3|320 Kbps] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:B16D25D2F13698EE66607C97860C53CFC2E9F5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Oceans of Slumber - Starlight and Ash (2022) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:1C0F2D8C792CD45C3BFE97AFEA5F7D0E361A43B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Java SE Development Kit - программное обеспечение необ
 ```bash
 magnet:?xt=urn:btih:7D3C10D6ADFC6D5352CC8C586910346AF33E3D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Highway Sentinels - The Waiting Fire (2022) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6960D33F7CCF53D2F75BC6E9F0149931F10A9564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ SSH Config Editor Pro 2.5 [En]
 ```bash
 magnet:?xt=urn:btih:1594D2AE6DF9047F0FDDB60280B276EC11941961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ DjVu Reader Pro предельно простое в использовании 
 ```bash
 magnet:?xt=urn:btih:7DC5EADCCEB0C71A7CDC783AA4B57EE48FE091B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ MP3 Gain для Mac - это простой инструмент, разрабо
 ```bash
 magnet:?xt=urn:btih:AB02776483A43974B71ADA54E702B3A0D66FF1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ USBclean 3.6.5.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:B957CDDD3976CBFE221AE419401C21332E3A7F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Miss Crazy - Clones (2022) [MP3|320 Kbps] <Hard Glam Rock>
 ```bash
 magnet:?xt=urn:btih:01A49D7D7045D75F0A5330BFE01ED1EBA2F01D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ eMail Address Extractor - ищем и извлекаем email адреса. eMa
 ```bash
 magnet:?xt=urn:btih:3B8540FED1A6C3D26FF57E8623B497EDC46631A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73404BA6331E9498554F8EECAD99B87CEADDFB1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ White Palms - Хейтспич (2022) [MP3|320 Kbps] <Post Punk, Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:ED5A92EBF4A9620FC472BF652C722E3D6B926495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Lessmann/Voss - Rock Is Our Religion (2022) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F2E67AA1CFAF3A1E8655B006E0B039B905D3B1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:937EFCA04FE4F7497B5A8679101539995DD3818B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DEB51C4CBC3282996D0F2D66E81FFEDC768D35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Java SE Development Kit - программное обеспечение необ
 ```bash
 magnet:?xt=urn:btih:5E424AED5EFF1F49DC893C95DCC924BA08A4557E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E75D79F20F74C29013611D401906433E68953C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ PDFelement Pro - профессиональный инструмент, кото
 ```bash
 magnet:?xt=urn:btih:8703148E077ED841AACDF5A8AC9CC848636582F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ Java SE Development Kit - программное обеспечение необ
 ```bash
 magnet:?xt=urn:btih:9B55DD0DFD4E3D0E0B0059BEBDACFED2B6C03F6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ Sick N' Beautiful - Starstruck (2022) [MP3|320 Kbps] <Industrial, Alt.Metal, Fem
 ```bash
 magnet:?xt=urn:btih:CE6FCB36F2941250AAEAAEB4D91A12E2BF04AB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ XVI век. В Японии идет гражданская война. Бедн
 ```bash
 magnet:?xt=urn:btih:30E6B739CB961690084E8B46AD166A3ACF0E9C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:47CC3E834B1967DA48FFC1ACE9A1EE508E868365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F3637FB6770E8BCC39E602DBB00AA5F4C6F7C664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

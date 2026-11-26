@@ -20,8 +20,7 @@ KCNcrew Pack  -  это огромнейший сборник серийнико
 ```bash
 magnet:?xt=urn:btih:FF95FA374BF72A7BD16E4F63D09F91D7C2D009B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ VA - Visual Image: Extended Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressiv
 ```bash
 magnet:?xt=urn:btih:B1FEA5762FE3BFA061E561D00BB9B67A5797B50C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F2CADDA1299CE58ACC2BB44D78FB7D1CF71D11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Dense - Tide Forger (2017) [MP3|320 Kbps] <Ambient, Downtempo, Psychill>
 ```bash
 magnet:?xt=urn:btih:31988527F9C94E7845F5B90F51A532264AA158B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33CAA18E9D86966032C6759EF558608D73553A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - Paul Oakenfold: DJ Box April (2017) [MP3|320 Kbps] <Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:F9AD95EB2A2BE0F0DC06C4DF7F9B8CF36D37E326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ She Must Burn - 1 альбом + 1 EP (2015-2017) [MP3|320 Kbps] <Symphonic Deat
 ```bash
 magnet:?xt=urn:btih:643038EBECFC500C0D10FE75871AFC4E29057228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Deliver - это комплексное решение для отправки �
 ```bash
 magnet:?xt=urn:btih:7DECE364B19AD1EC9E858C74B3FD42451FB97EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Candye Kane - Coming Out Swingin' (2013) [FLAC|Lossless|image + .cue] <Blues, Ch
 ```bash
 magnet:?xt=urn:btih:1BE85D66EB4F16C6A0B12E8F28F600B477ED3692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ VA - Special Sport Songs 7 (2017) [MP3|320 Kbps] <House, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:FC00DBE832F2856ACADBBBEF728B7142EB320362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - Spectra Of Trance Vol.2 (Mixed by Guest  DJ Daniel Kandi) (2017) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:FCD5DE1116042E2B86CE4AF0A58205F197313EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ VA - Spring Lounge 2017: Chill Sounds Like Sunshine (Mixed by DJ Maretimo) (2017
 ```bash
 magnet:?xt=urn:btih:E64B42F97C98288DFD99B22B37E3A464E0A2C486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCD9EEB8C45ED4020F1A8700AC12B87399D363C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Little Hurricane - Same Sun Same Moon (2017) [FLAC|Lossless|WEB-DL|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:F2B6A3ACEDC8AF35D482CD7F8E5864AC2C45C074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Afterlife - Reimagine (2017) [MP3|320 Kbps] <Electronic, Ambient, Chillout>
 ```bash
 magnet:?xt=urn:btih:0B3D0F3F4C9A1AD730CB9BE4E587F62FC84F2019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ VA - DJ Feel: TOP 30 Of March (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:871B3A9F5A73E1834596A314E3F69BD2C320F6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ CloudTV позволяет вам смотреть более 600 прямых �
 ```bash
 magnet:?xt=urn:btih:E52575B88F565B8E76C4241FE86F4B86E40827A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Bacon Fat - Band Of Brothers (2016) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:A8EEB89FB03814D551B3A8EF2704FFAA3EF7D8A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E329D43F4B83925425FBC2DD1A3C5C98ED2C4E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E47618A74BA2169C4480F429102BE42BDCE23FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06450138D2CB104C9BC9601BD77BD8F751A26312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:734EFE51B0A8FD28091D8F3B46C84B283F09A1ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ Richie Kotzen - Salting Earth (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:C3804165237D069984493D9E651AA2D8513E7C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Cold War Kids - La Divine (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:0A654FE0220636B661E00D537DDC613485595D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ VA - Germanys Next Topmodel: Best Catwalk Hits 2017  [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D459610DD9AA573A588728833C87D4CE7089F2CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

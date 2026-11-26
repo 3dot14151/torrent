@@ -22,8 +22,7 @@ SIDE A:
 ```bash
 magnet:?xt=urn:btih:E58541A7E2D4D0F2D85853BEEE52620ADED271CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Венета Рангелова - Районное Кино(   Читать �
 ```bash
 magnet:?xt=urn:btih:06B745228240B1FD15CBA02AA1F6E5892C892A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:658CAD7E87650F7E95CAC1B9C182925FBC699230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, 
 ```bash
 magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ B2 Calea Roților De Foc(   Читать дальше...   )Жанр: Atmospheri
 ```bash
 magnet:?xt=urn:btih:626709864ED2E064B0F7A13053F129C6FDBDDD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks
 ```bash
 magnet:?xt=urn:btih:D096B08FC05D3CBF574BEBF6C6693AA225CEAF88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Almanac — неоклассическая метал-группа из Герм
 ```bash
 magnet:?xt=urn:btih:9549FC32DFE49AE358E1C6E05C1C2D68031BB00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A889E1EFE95B4890D5CB31FF2B550A7EE1133F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Наутилус Помпилиус / Бригада С (1988) [FLAC 24/192
 ```bash
 magnet:?xt=urn:btih:C62A8EED23D096428E6EE369398C2FCF4B6AE4F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

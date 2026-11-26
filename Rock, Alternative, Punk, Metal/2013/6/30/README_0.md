@@ -27,8 +27,7 @@ Agathodaimon - In Darkness (2013) [MP3|320 кб/с]<Symphonic Black Metal, Gothi
 ```bash
 magnet:?xt=urn:btih:8D7C7527CE41F236598254B77D03A7FA5AFC169B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Orphaned Land - All Is One (2013) [MP3|320 кб/с]<Folk Metal, Progressive Meta
 ```bash
 magnet:?xt=urn:btih:CC69C2DBEA72B4D54003BF9EC6802EAEB2AD8FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73E1FFC76D673A3BA4F16D854C95E14D3C51C55D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Powerwolf - The Rockhard Sacrament [EP] (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:F1206FF3EC6DD6CDBC3C85B76E8F8DE17B7D3C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Gretchen Wilson - Under The Covers (2013) [MP3|256 кб/с]<Rock, Country>
 ```bash
 magnet:?xt=urn:btih:33DEF0F9BFD4946804B19D9F8AE959B2B443BF1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Willie Nile - American Ride (2013) [APE|Lossless]<Rock/ Folk Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Manegarm - Legions Of The North (2013) Limited Edition [FLAC|Lossless]<Viking/Fo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Orphaned Land - All Is One (2013) [FLAC|Lossless]<Folk Metal, Doom/Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Ark - 2 альбома (1999-2001) Дискография [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:8CC295475CDD61568B77D3FE9EF90E38481F334B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ Cream - Disraeli Gears (1967) Originally released /1986, Polydor/[FLAC|image + .
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ Cream - Fresh Cream (1966) Originally released /1986, Polydor/[FLAC|Lossless]<Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +391,7 @@ Judas Priest - 16 Albums (1974-1993) Japan 1-st Press [FLAC|Lossless]<Heavy Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59C9E12F4381D95F2BE909A76C0309FC277FA85C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

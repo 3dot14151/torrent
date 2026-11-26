@@ -19,8 +19,7 @@ Myths of the World 6: The Heart of Desolation (2015) [En] Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:BA2F3EB2D05D1712FD3877286E29BCDDDCC1DAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Fractured Insanity - Mass Awakeless (2010) [FLAC|Lossless]<Brutal / Technical De
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - XXXL Клубный сезон Vol.5 50/50 (2011) [MP3|256 kbps]<Pop | Club
 ```bash
 magnet:?xt=urn:btih:93A53024A645BCAF8AE00B258E46D71315615DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Butterfly Temple - Велес (1999) [FLAC|Lossless]<Pagan metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC7A41639B1FCC19939B6BCA41114D2992598E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ VA - Armin van Buuren @ Record Club # 528 (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:9EB8A1D5CAF25A1C558278A9E11E5A491AC393AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ VA - TranceTop (01.10.2011) (2011) [MP3|320 kbps]<Progressive Trance, House>
 ```bash
 magnet:?xt=urn:btih:29A96EA4AE069A3F1CDE8916CDFAFFFE027489D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Motion Drive - Recycled (2011) [MP3|VBRv0 kbps] <Psytrance, Progressive>
 ```bash
 magnet:?xt=urn:btih:02BE8151E1F820DE566C7D7FC0C1D4F03A79A913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ VA - The Rough Guide to Flamenco (2007) [FLAC|Lossless] <flamenco>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ In Search of the Lost Temple (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:B7B6FA134E9E9514E8EF4E0FE78BE6A7B4E5E1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0BA613871381BDAFCF3AF3F99727FFB5E1C9D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ Silent Horror - Seance (2011) [MP3|VBRv0 kbps] <Dark Psytrance>
 ```bash
 magnet:?xt=urn:btih:62FEFA555D97573FF58E2BDDBC1A001B863FF161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ VA - NeРусский Шторм - Сотка (2011) [MP3|320 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:36032A11416177B95120B30AC7B942EE1ADA3D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +404,7 @@ Armin van Buuren - Live From Space Ibiza (30.09.2011)
 ```bash
 magnet:?xt=urn:btih:414B2DCFABD51ED904336F0CD6D6F258AC08CC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33285671E48FBDFF67B9365ABB55EF6F1C62EB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +463,7 @@ Various Artists - Colours of Techno Vol.1 (2011) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:3E40FC93192C5884FD0393A49DA49D794427A5EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88F9258DC7BE2E695FFC1A0B76BDFB18D25761EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +518,7 @@ Solar Deity - The Way (2011) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:F6B811FC195F9498137D348516463B44C7F8FA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ N/A2011Жанр: Electro-House, Vocal-HouseПродолжительность: 0
 ```bash
 magnet:?xt=urn:btih:15D3FA5965706BB2E82027E4592EBEF6E18107AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +577,7 @@ VA - Парад Золотой Граммофон Осень (2011) [MP3|256 kbp
 ```bash
 magnet:?xt=urn:btih:47831D74FB9CA17EDBE88AEAEDC5DA168DBE4710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:408A3F56A0B8D4861327A861D9A2FC0984FE31C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC8E0112B8181C74F4BD1D2D432517FB1BB04CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +669,7 @@ Linnzi Zaorski - Naughty Sweetie (2011) [FLAC|Lossless]<Vocal Jazz, New Orleans 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +703,7 @@ VA - The Old Grey Whistle Test: 40th Aniversery Album [3 CD] (2011) [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D455CC6121EF3C9D35F44D40A74DF4FEFA963381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +761,7 @@ Magneto - Scope (2011) [MP3|VBRv0 kbps] <Night Full On, Psytrance>
 ```bash
 magnet:?xt=urn:btih:9F4BE996D367C27302C508051254217A3D92BF4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -811,8 +786,7 @@ Love Story: The Beach Cottage (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:C72D743C88F21E0686AC824551F7DD88B67C1217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

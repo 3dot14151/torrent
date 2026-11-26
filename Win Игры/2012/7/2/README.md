@@ -19,8 +19,7 @@ Unsolved Mystery Club: Amelia Earhart / Клуб Нераскрытых тайн
 ```bash
 magnet:?xt=urn:btih:681CB7790F39741B781A12967DB873B0604BA9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Clairvoyant - The Magician Mystery / Ясновидение. Тайны маги
 ```bash
 magnet:?xt=urn:btih:B355A07B12C8ADE38424AC609114645C61A8D824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Breaking the tower бесплатная и веселая стратегия, г
 ```bash
 magnet:?xt=urn:btih:9893DB78C15840A2E3E73D19D6D63290A99FCA09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Spec Ops: The Line [Ru] (v.1.0) 2012 | 1C-СофтКлаб
 ```bash
 magnet:?xt=urn:btih:4273A306A2D05F9DCD4C98FC7F744D0D719C9B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Syder Arcade - шикарный 3D-скороллер с современной 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru] (v.1.0) 2012 | Новый Диск
 ```bash
 magnet:?xt=urn:btih:03D988209CA4889A5413C5BCEFDD2F064CFFC995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Extended Cut DLC - расширяет события в концовке Mass Ef
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

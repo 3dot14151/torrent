@@ -22,8 +22,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:06778A84240CDE236FE896F085BC5002BD6AC882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ DvärG (DvarG) - Скала (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive He
 ```bash
 magnet:?xt=urn:btih:CB4DE0BDDF0E68711779D9577DBB4562998D9E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Devil Wears Prada - (сокращенно TDWP) группа, играюща
 ```bash
 magnet:?xt=urn:btih:48EC789DD8CCCC95C8F85C3E1E26E147F2528D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Heavyone - Heavyone (2011) [MP3|224 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EDD659A36A375727D2EC92FB825F1A7BF75DDAD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Crisol: Theater of Idols - напряжённое приключение от п
 ```bash
 magnet:?xt=urn:btih:6C36A0C4ACE9DEC6ADB5C51ABFBC7E263E4211BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Souper Game - это причудливый и необычный кликер, 
 ```bash
 magnet:?xt=urn:btih:296D2D4998C03D51CFEB7D60132DE9BFF73CA640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MIO: Memories in Orbit (2026) [Ru/Multi] (r21606) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:06B07032839C6A7672A9228BCAFB38FF9D348B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

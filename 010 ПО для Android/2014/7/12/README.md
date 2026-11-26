@@ -19,8 +19,7 @@ SKEEPER Heart Rate – это приложение для измерения ч�
 ```bash
 magnet:?xt=urn:btih:7B20B257704A5298816C97FFAF11E9A496A442A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

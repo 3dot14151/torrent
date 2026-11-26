@@ -19,8 +19,7 @@ Surface 10: Virtual Detective  / Внешние пределы 10: Виртуа�
 ```bash
 magnet:?xt=urn:btih:017342D8D24E2424CA4A36D44E4372E0EF06506A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sniper Elite III (2014) [Ru/Multi] (1.15a/dlc) License PLAZA [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:FBCFCE33D353B68B3283FC48FAF9F8FF9017271D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ UFO: Afterlight / UFO: Прозрение (2007) [Ru/En] (1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:7BC271DEC07DCB6494F335B7E32E8616F35243E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Filthy Lucre — это изометрический стелс-экшен, со
 ```bash
 magnet:?xt=urn:btih:B61784200344999A86B12537765BC42B210A216E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

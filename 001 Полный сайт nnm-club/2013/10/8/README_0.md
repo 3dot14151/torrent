@@ -27,8 +27,7 @@ Cesar Cui: 'Kaleidoscope'
 ```bash
 magnet:?xt=urn:btih:344784ED538D0F405091C67B6438061558D7E690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ VA - Pedro Del Mar - Mellomania 23 (2013) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:2F0644B795967560F2B745498F85D08E25B3A0A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Linux User & Developer - ежемесячный британский журна�
 ```bash
 magnet:?xt=urn:btih:98E88D242146D38B6C90747407D81369259D9A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Armageddon - Crossing the Rubicon (1997) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:257C163B24B8A5696599794F01EF5BFD39146630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ The Elves - And Before Elf There Were Elves (2011) [MP3|320 кб/с]<Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:8135CE7ECD9340D3B7A7D23C42E73C07E0B9B41F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Armageddon - Three (2002) [ALAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:66BCD2509EBD4E5A504EED8CE64AD73D1921F84B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Dissection - Where Dead Angels Lie (1996) [ALAC|Lossless]<Melodic Death Metal, M
 ```bash
 magnet:?xt=urn:btih:6A93F3D24DB969014EA85BDBB2B94BF04833BB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ U.D.O. - The Wrong Side Of Midnight (2007) EP [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:70AD7699456DC8E28FFBE3E3A2EC950144CEB966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ Ringo Starr - Choose Love (2005) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:23A1DBCA1CFBA2A3F5F3EC7F5D586E7DF0597258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1C9E8659F59EF97729070871B870A068698C9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:903132DCA807ECB854D1902ACAC099721FC41EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22253A484F2DF05FDE8B57F8B0E2F97A9C478093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E0632373390211B12A5BACE065523994B97954E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78E4D7ABD8CAD028E6AF5AE47B80A80559825252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ Ministry of Sound - The Annual Summer 2012 (2012) [MP3|320 кб/с]<Bigroom Hous
 ```bash
 magnet:?xt=urn:btih:716C47CC7D12B8E15E2A1142E0A4B0AEA38B56F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED2F5A82214ED9BE0B99D5BD2B1F4980B30DF8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0D3057EA25FD0D2DAD8AABE765AF02320DE0DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8FC42A885B4B0C76F390C922EC768EBE9A4BEC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ Dissection - The Somberlain (1993) [ALAC|Lossless]<Melodic Death Metal, Melodic 
 ```bash
 magnet:?xt=urn:btih:35F7504B487D5969115B941AD322EA6E33DC2531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ Shocking Blue - Attila (1972) /2009, Recordsmen Communications/ [APE|Lossless]<R
 ```bash
 magnet:?xt=urn:btih:190F63D3B73C50CFFF63AE81D3D1DF7B353C573A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ Chris Young - 4 albums (2006-2013) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:6235D2C3825E0A12FCAC290015F5BEFB57697EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +714,7 @@ Dissection - Reinkaos (2006) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:BE6D863AD65A604A5F40BCEBC7989D4A3BEC6EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +748,7 @@ iii. Lucid Dream
 ```bash
 magnet:?xt=urn:btih:3202870112B14FA59E2C41D76DD7C26CBC9F0D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -798,8 +773,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1EBD72875BF6DABD9029531879C61C55981D1CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

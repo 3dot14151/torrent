@@ -19,8 +19,7 @@ Hidden Expedition 18: Neptunes Gift (2019) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:2D7C21B02F0A7A88BDA8CD9C0013B7667EA54C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The One-Eyed Show - Brothers, Cousins And Fools (2014) [MP3|320 кб/с]<70's Ro
 ```bash
 magnet:?xt=urn:btih:2B939A41F766877190F20594D5817E1215AE15D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ego Likeness - When The Wolves Return (2015) [OGG|453-540 кб/с]<Alternative, 
 ```bash
 magnet:?xt=urn:btih:06C59232C5C929F99F01F185C7D59B98CEFCD161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jimi Hendrix - It’s Going To Be A Bit Loud (1969) [MP3|320 кб/с]<Psychedeli
 ```bash
 magnet:?xt=urn:btih:12F01E3E3DD8B6CD951FCF22B966DFBC7AF15969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

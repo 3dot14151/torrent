@@ -19,8 +19,7 @@ HD Music Player v3.4.1.164 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:35E1DF516A78B4F34B8769EDF983B7DCCF6AE4F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DailyRoads Voyager v8.1.1 (62) Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FF8499442BE8F6A1A382732EB0466BCF3C051662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F0EC2A792672DEDD58F76B5B92C5F678DF99D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

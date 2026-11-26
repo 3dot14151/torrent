@@ -19,8 +19,7 @@ The Brew Barons приглашает в мир, охваченный беспо�
 ```bash
 magnet:?xt=urn:btih:D346663C6F804A071E4602A3920F25E87498D344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hospital of the Undead погружает вас в леденящую душу 
 ```bash
 magnet:?xt=urn:btih:95D6E87582108B8B5745E0FBDA0599C44D6B2878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Intra - Tower Defense представляет своим игрокам обш�
 ```bash
 magnet:?xt=urn:btih:4601D77A4C9484C61FF5173FE0E0B64CFFFA1E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beyond the Fringe - в первую очередь шутер от третье�
 ```bash
 magnet:?xt=urn:btih:34374D7FD02145CBA7F3D42EAAD19ED8780441E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Big Adventure: Trip to Europe 7 (2024) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:C1B4C261547FAD6579DD907C399412074DF6B73A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

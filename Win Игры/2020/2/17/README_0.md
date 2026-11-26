@@ -19,8 +19,7 @@ Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) Repack Other s [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:05EC2F73A4967AC11C201672D0771D963418D73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

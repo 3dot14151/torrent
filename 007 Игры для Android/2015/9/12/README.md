@@ -20,8 +20,7 @@ Gangstar Vegas v2.0.1b [Ru]
 ```bash
 magnet:?xt=urn:btih:80808336D12BCB3CFC3FB1DD8861A44D41257729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

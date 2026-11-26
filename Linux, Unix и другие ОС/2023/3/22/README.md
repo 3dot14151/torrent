@@ -19,8 +19,7 @@ Wifislax - это Linux-дистрибутив с набором предуст�
 ```bash
 magnet:?xt=urn:btih:DC42E2AA4AB1DDEB46675C568BF2671A1BBA6217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

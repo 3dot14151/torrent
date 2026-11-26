@@ -19,8 +19,7 @@ Royal Detective: Queen of Shadows / Королевский Детектив. К�
 ```bash
 magnet:?xt=urn:btih:7578838F73C49D7C7A6B9AEEE51AB822CD14DB63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fear for Sale 4: Phantom Tide / Страх на продажу. Призрак �
 ```bash
 magnet:?xt=urn:btih:88B9ED97B7346189CA6858D1DFC2B5F8F9FF549E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Stranglehold — высокотехнологичный компьютерный
 ```bash
 magnet:?xt=urn:btih:1CCF7F92AFB82E38E1E00650DBE41D823D862A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

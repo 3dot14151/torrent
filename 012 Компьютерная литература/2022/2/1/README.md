@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:BF72FB3D1D32004899D8B0ED72F484CEC0651A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cycles — это движок рендеринга, который впервы
 ```bash
 magnet:?xt=urn:btih:0A73ADC63CDC779BF0BBAB6AFFA994482778EA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

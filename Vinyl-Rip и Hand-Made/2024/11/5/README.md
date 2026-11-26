@@ -23,8 +23,7 @@ Mötley Crüe — американская глэм-метал группа, о�
 ```bash
 magnet:?xt=urn:btih:E827EA74E336AE7B60CB4C0A69FF9E7B129D728C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Withering Surface - Melodic Death Metal группа из Нестведа, Да
 ```bash
 magnet:?xt=urn:btih:CFF91E5458263DBA29058FFE0C03959E98A79C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Visions of Atlantis — симфоник-метал и пауэр-метал-г�
 ```bash
 magnet:?xt=urn:btih:4C91DCD17B7A80D500872E1C81EB9305F1F3B513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Nightmare - французская пауэр-метал группа из Гр�
 ```bash
 magnet:?xt=urn:btih:C5A8A59EA31FFF7DF07ADCB267D11E1E33028810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

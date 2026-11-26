@@ -19,8 +19,7 @@ Smart Compass Pro 2.6.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:BAF1D02FEB6B591F017B0E1619D4652819AFA837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Microsoft Outlook 2.1.209 [Ru]
 ```bash
 magnet:?xt=urn:btih:0782681F6F77C410815F68BDEE899118932AD805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

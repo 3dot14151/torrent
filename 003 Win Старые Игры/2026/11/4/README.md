@@ -19,8 +19,7 @@ Blaster! (2026) [Ru/Multi] (rc8f/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B022F1DDD00F8B0101D6CF08A74C499C66D62295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

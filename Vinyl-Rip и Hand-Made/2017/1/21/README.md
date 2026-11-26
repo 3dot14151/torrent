@@ -22,8 +22,7 @@ A4. Since The Last Goodbye (4:35)(   Читать дальше...   )Произ�
 ```bash
 magnet:?xt=urn:btih:861617EFD97521794ACA0E892739A677A524BC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

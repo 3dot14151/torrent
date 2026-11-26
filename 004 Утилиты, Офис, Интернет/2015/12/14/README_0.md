@@ -19,8 +19,7 @@ Aomei Partition Assistant WinPE – загрузочный диск для ра�
 ```bash
 magnet:?xt=urn:btih:BE3B088C838535D7C7D76B1DF681FEC9FC82ED88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

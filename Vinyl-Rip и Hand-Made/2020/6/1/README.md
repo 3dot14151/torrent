@@ -22,8 +22,7 @@ Diana Krall - All For You (A Dedication to the Nat King Cole Trio) (1996) 2016 [
 ```bash
 magnet:?xt=urn:btih:F168EFECC63290A2C66FD7EE949660AA2BB0E0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

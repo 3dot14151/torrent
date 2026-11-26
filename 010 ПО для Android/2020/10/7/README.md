@@ -19,8 +19,7 @@ Diabetes:M v8.0.8 Premium [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E07C17CADFAF6A1CAE94B418E336D791BDEF010D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

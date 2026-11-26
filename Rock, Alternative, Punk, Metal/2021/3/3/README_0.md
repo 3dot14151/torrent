@@ -22,8 +22,7 @@ Null'O'Zero - Instructions To Dominate (2018) [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:7F46F43C117E264E9B3A656B5E9930AEF51CBE5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Collateral - Collateral (2020) [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E18E311ADDED4DC9137DE364A5AD790EE6049EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tragedian - Seven Dimensions (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:15C5A846479B4200ACAE137F12856A88DE3161B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Joseph Williams - Dеnizеn Теnаnt (2021) [FLAC|Lossless|image + .cue] <Rock,
 ```bash
 magnet:?xt=urn:btih:56D498F25F0E6C1841A11CE91C3B5582F6CC243F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Slayer - Divine Intervention (1994) Reissue, 2013,  American Recordings [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:EE7684E205F533983A8BBF8CDBF30B906D39A642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Slayer - Christ Illusion (2006) Reissue, 2007,  American Recordings [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:BEEF557DF926A621BCF362270676C35B2815E3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Long Distance Calling - How Do We Want To Live? (2020) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:F4A3E17CA21C78BEF5B322AD8683F368FEDB55C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:455B6D2D8CC66E0869F13D3DCC8E3DA238674BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Tabasco Band - Песни свободного племени (2021) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:580E9B0378787B56500458B59DFE10FB615193A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Tina Turner - Private Dancer (1984) [FLAC|Lossless|image + .cue] <Pop, Rock, R&B
 ```bash
 magnet:?xt=urn:btih:29515BBD610BCBC2A57FB6F71983E54027E6F2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Steve Lukather - I Found The Sun Again (2021) [FLAC|Lossless|image + .cue] <Rock
 ```bash
 magnet:?xt=urn:btih:A68C63588E042C59ABC4BCD202B474E8AE339D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4C25A27C97EDD81FCC2590754EC7A3492DE3576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Grim Tales 18: The Generous Gift / Страшные сказки 18: Щедры�
 ```bash
 magnet:?xt=urn:btih:E3A1FEA53B9C62A34EE726E1C005DE5E420E1DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

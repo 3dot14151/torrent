@@ -19,8 +19,7 @@ Sea of Lies 2: Nemesis / Море лжи 2: Возмездие (2014) [Ru] Unoff
 ```bash
 magnet:?xt=urn:btih:148693D5299CB9B957F22D6EC5EF323562DDB82B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Car Mechanic Simulator 2014 — это, как не трудно догадат�
 ```bash
 magnet:?xt=urn:btih:594E60C41BAD4D1E09437A304080B382CE82610F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F0A10E4D09CB2641ACBEEE5630FEB135F398DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Healer - Enthrall! Gibbet! Interdict! (2011) [MP3|320 kbps]<Trash\Hardcore>
 ```bash
 magnet:?xt=urn:btih:5188E17A310695F122C5B2A6767CACDD6D2B0228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ VA - MEGA ELECTRO FROM DJMCBIT AND DELFI vol.62 (2011) [MP3|128-320 kbps]<Electr
 ```bash
 magnet:?xt=urn:btih:F982443B7C1AF23872C8F205A4E816D671C15885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0AA6316E19FE750A715DEE8B8333405299C4FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DD73D7C474EDC9452DED2A2BDC8A36251ADA048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A47F2EBE0D4777188640D52C064B38130463E383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC01AB2FC07497C281EF7FDF299F622A8FE60027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56BBA5E8C4077F206BA3CAFED5EB10C8ABE6C0EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D4FFB5066D5987243359B9033BBC6A01BE5ADFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09B77329E52AA45777BEA295F397B65E5B6CABB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45EF203BFBE701C6F39E223E77E36FE5F46F6F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ VA - Arabica III - Voyages Into North African Sound (2002) [MP3|320 kbps]<Downte
 ```bash
 magnet:?xt=urn:btih:ECC3DFF7BB6C06E95412C27D452899823ACEA5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Armin van Buuren - Live at DC Armory (Washington DC) (2011)
 ```bash
 magnet:?xt=urn:btih:F215593492598119232A9C7014A4FEAAE0CA9737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ Bahramji and Mashti - Divaneh (2011) [MP3|320 kbps]<World Beat, Ethnic, New Age,
 ```bash
 magnet:?xt=urn:btih:3832D1C196363CAAA368FAD587FC1122D8181A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ VA - Seashore Desire (Best of 2011) (2011) [MP3|320 kbps]<Uplifting Trance, Drea
 ```bash
 magnet:?xt=urn:btih:88754B1F4B0A49C7730510F1D56EC74933C585C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ VA - Nice To Chill You Vol 5: Chilling Pleasure (2011) [MP3|320 kbps]<Chillout, 
 ```bash
 magnet:?xt=urn:btih:16FA75F91E3BF9E7432C88BA0A39512A256A346A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ BatWithParameters - бесплатное приложение для управ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ VA - Dreaming In Paradise: Chill Out & Lounge Vibes Vol 3 (2011) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:0E0CACEEA48DACEF60D4BDAA3B1A9A9A18B720A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A722A56BAAE52E3C68C8FFCDA20531234905224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ VA -  NeРусский Шторм - Сотка Декабрь (2011) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:5CB6B3FCC330ABFB5DA7AB9F7F17908D2C41213E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B32016799022B36B7965292F16979574E9864BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ The Wombats - This Modern Glitch (2011) [FLAC|Lossless]<indie rock/british>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ VA - Зимний хит-парад на Hit Fm (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:4D610E5E600C8D27AC4BC866D8F2A0459CFA2988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ VA - EDX: No Xcuses - The Violet Edition (2011) [MP3|320 kbps]<House, Progressiv
 ```bash
 magnet:?xt=urn:btih:DF211FCEADF40539FC4EA4DFEF8CBBD7D88F9137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ Ancient Bards - The Alliance Of The Kings (The Black Crystal Sword Saga Pt.1) (2
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Java-программистам необходим фреймворк Spring. Э
 ```bash
 magnet:?xt=urn:btih:8020D984E9E87E02B264F23AA64B10606BF07F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

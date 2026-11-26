@@ -19,8 +19,7 @@ The Secret Order 8: Return to the Buried Kingdom (2018) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:936F18E20DA28F33375B1157366359E8CA694A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Cave — новая приключенческая игра от автор�
 ```bash
 magnet:?xt=urn:btih:49DFD9D150F94660AEEEC8065FDDC8B2CA999952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aven Colony (2017) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:2FE558665AD414F209AA91EB4EF8E15C31865A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bladed Fury (2018) [En/Ch/Jp] (1.0.1819) License CODEX
 ```bash
 magnet:?xt=urn:btih:959FB1D151D945A8BA623BB30DF46522297D6B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

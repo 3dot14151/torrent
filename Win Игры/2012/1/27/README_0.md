@@ -19,8 +19,7 @@ Nightfall Mysteries 3: Black Heart Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:14E3F80C922B5A1A7C985AB5397938CA191A3AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Genesis Rising: The Universal Crusade / Genesis Rising: Покорители в�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Galaxy quest (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:19E25E8A2C6C9EC7A8D70FE26A47CB37856DDAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Nightfall Mysteries 3: Black Heart Collector's Edition / Тайны сумере
 ```bash
 magnet:?xt=urn:btih:446B8AFA4F08A59F2F816E14829C0B44D9085A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

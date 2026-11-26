@@ -19,8 +19,7 @@ Veeam Agent для Microsoft Windows — это решение для защит
 ```bash
 magnet:?xt=urn:btih:C3AD77E0F4DA81736F71C28B3A5C44A2312656B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vit Registry Fix Pro - мощная программа для очистки р�
 ```bash
 magnet:?xt=urn:btih:71496195F0395B1C95389E37FB4A8B4F8F60C1BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

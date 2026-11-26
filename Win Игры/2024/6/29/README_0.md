@@ -19,8 +19,7 @@ Riven (2024) [Ru/Multi] (build 1294) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:0100D26290ED67F1AB7D97B6944FE2CB099D4A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sunless Skies - это готическая ролевая игра с элем�
 ```bash
 magnet:?xt=urn:btih:F63858D2E55CB7A64D7ADBA9868747F335C5A638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ My Museum Prologue: Treasure Hunter понравится всем любител
 ```bash
 magnet:?xt=urn:btih:1C3699B25B3BEC510B705815AAAFC89EE0DE20D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/En] (1.1.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:DBDDEBFA0114D85FF30D02307E4A523AAA6F05FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mystery Detective Adventure / Мистическое детективное пр
 ```bash
 magnet:?xt=urn:btih:6F1DAF122E5D3B58F0E1831E6361D272B89D0F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

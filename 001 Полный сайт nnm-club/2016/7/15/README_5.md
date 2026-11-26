@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:09D7372BEA5CC140BCE8F71368FE6714132B0CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A80A42F42F9A49FD5919E2A28774AF5F6BF614C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Beauty Retouch панель сочетает в себе основные скр
 ```bash
 magnet:?xt=urn:btih:189D184B5B566FFE9271C26458895B43C0912B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ VA - Клубная Авто Дискотека (2016) [MP3|320 Kbps] <Dance, Cl
 ```bash
 magnet:?xt=urn:btih:7876402E3408B3F35A110EA41F014446D68C6957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Singularity (2010) [Ru] (1.1) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:07E696B20CF8333EA9474138E5E869DD291AF043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Fallout Shelter дает возможность каждому желающем�
 ```bash
 magnet:?xt=urn:btih:724FE1B70772652296D9285BF28E14ECA6AE8149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Navitel / Навител Навигатор v9.6.2674 Full и другие  [Ru/
 ```bash
 magnet:?xt=urn:btih:E8B77F3862654BF10B7E2BEFB619448F48857E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

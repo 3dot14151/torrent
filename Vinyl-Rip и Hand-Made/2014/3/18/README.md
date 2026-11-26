@@ -26,8 +26,7 @@ A8. THE OTHER ONES - Holiday :: 03:35Жанр: Italo-Disco, Synth-pop, Pop, Rock
 ```bash
 magnet:?xt=urn:btih:2F5111138C2DCBC1AC70E10906FFDCD2E44F17F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

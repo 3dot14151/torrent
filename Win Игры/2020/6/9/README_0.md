@@ -19,8 +19,7 @@ Chimeras 10: The Price of Greed / Химеры 10: Расплата за алч�
 ```bash
 magnet:?xt=urn:btih:91267D38088E0FE90DC201E677E6A2FE6EB1A3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

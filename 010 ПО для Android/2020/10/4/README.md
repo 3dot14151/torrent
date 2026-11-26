@@ -19,8 +19,7 @@ DailyRoads Voyager - приложение для устройств под уп�
 ```bash
 magnet:?xt=urn:btih:32CA11A7DF77D7F55EAC5F7DBE4CC090956A139B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Android Hidden Settings (Professional) v1.7.3 [En]
 ```bash
 magnet:?xt=urn:btih:6A8BF84DD89644A23D95E0B7D21F8E0807F30A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

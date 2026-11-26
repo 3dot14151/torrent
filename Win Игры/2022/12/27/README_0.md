@@ -19,8 +19,7 @@ Lunistice может заинтересовать тех, кто носталь�
 ```bash
 magnet:?xt=urn:btih:E27BF0557BB18B01E4917E8B0840FD0B58114C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 ```bash
 magnet:?xt=urn:btih:582C126011F1094C971162CEAAADE0F07E08E718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

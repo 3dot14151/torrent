@@ -28,8 +28,7 @@ Legenda - Eclipse (1998) [APE|Lossless]<Dark / Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:AD827E87833E404DA53F87346AD54562C4097A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Turin Brakes - We Were Here (2013) [MP3|~245 кб/с (V0)]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:E659D09F98A68398DE78110F40576D6A01F52FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Onslaught - VI (2013) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7AA3EAF9EC334B4F749FDD846EC9B02985CE1853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:666726F4E380F1D7D0C3892582B3A70CBC525946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Yes - Going For The One (1977) Hybrid SACD /2013, Audio Fidelity/ [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:D38701FF1AD732DFC70AB2E5684F63340A09775E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Yes - Close To The Edge (1972) Hybrid SACD /2012, Audio Fidelity/ [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:DBBAB8EF1F7EA653C96FDDF715377E81ACCB7BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Everlast - The Life Acoustic (2013) [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:BDCD84327BE3AFDE0F27149842B57FB8E2990688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Roxy Music - 10 Albums (2013) Mini LP SHM-CD /2013, EMI Music Japan/[FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:EC581E7EE2C43140357BF096E2E0EC10F8F147F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

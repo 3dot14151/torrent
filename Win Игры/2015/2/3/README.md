@@ -22,8 +22,7 @@ Shiver: The Lily's Requiem (2015) [En] (1.0) Repack Twisted EndZ [Collectors Edi
 ```bash
 magnet:?xt=urn:btih:92D46F3C667E79D863428C1745B6B1A8A212711F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Grim Fandango Remastered [Patch] (2015) (1.2.2) Official CODEX
 ```bash
 magnet:?xt=urn:btih:CFA77688232A19BBDE39E4396AEF77144578DA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Venetica (2009) [Ru/Multi] (1.03) SteamRip Let'sРlay [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:52E54DD9142E43BB9E0A7F1387DB6FD5043161A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Horizon (2014) [Ru/En] (1.0.2.128) SteamRip DWORD
 ```bash
 magnet:?xt=urn:btih:75ECBC02112DAAB9C078B4CAA51505C64640FD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Endless Space – космическая стратегия в смешанно�
 ```bash
 magnet:?xt=urn:btih:B56B9387D1DE22F165CC71287F1C4380B09AD2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Blackguards 2 — это продолжение пошаговой страте�
 ```bash
 magnet:?xt=urn:btih:4557A1D1E6ACFB573EA3FF242E0A5770E35E45C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

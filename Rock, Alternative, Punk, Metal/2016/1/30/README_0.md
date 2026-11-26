@@ -22,8 +22,7 @@ The Shivas - You Know What To Do (2014) [FLAC|Lossless|WEB-DL|tracks] <60's Psyc
 ```bash
 magnet:?xt=urn:btih:ED4A897BAA4E49739E65B82465288977A8C1AF6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Billy Joel - Streetlife Serenade (1974) remaster, 2015, Audio Fidelity [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:B6FC96D973E5B41064F20E562867C4FC86D80BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Steve Hackett - Wolflight (2015) Special Edition [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:E9811EF33D2AA4540EDD4DA49ED767BE2F509686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dylem - Dylem (2016) [MP3|320 кб/с] <Melodic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C12D387AD68E4423FCE97F12DFB153F0F369E538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Now That's What I Call Rock (2016) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:2D4E78AFEB8A03F15A2E63F97ECF41228584ECD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Savages - Adore Life (2016) [MP3|320 кб/с] <Garage, Alternative Rock, Indie R
 ```bash
 magnet:?xt=urn:btih:C2F09751E477D8931C60147405CECF5B643701BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ AC/DC - Back In Black (1980) Germany Original Press, 1988 - 1989 [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F1B52F8EFD8D7D5949237529A1A7BE5AC5C9735D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Dream Theater - The Astonishing (2016) 2CD [FLAC|Lossless|image + .cue] <Progres
 ```bash
 magnet:?xt=urn:btih:12124197D57A5407D7375DA2BC6E523AA60B36D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

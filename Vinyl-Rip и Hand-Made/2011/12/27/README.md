@@ -28,8 +28,7 @@ Genesis - Rock Roots (1976) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Psychedelic Rock
 ```bash
 magnet:?xt=urn:btih:CC86E7BF7F046C537D76938D95589842E5A0C84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

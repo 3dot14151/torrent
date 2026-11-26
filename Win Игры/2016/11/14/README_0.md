@@ -19,8 +19,7 @@ Rayon Riddles  Rise of the Goblin King (2016) [En/Ge] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:837BFD69B6C0BD9B974A9AAB6ED772E1BE1789E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pineview Drive - хоррор первого лица, действие кото
 ```bash
 magnet:?xt=urn:btih:0884E401520A438FD713029C8F291B1DD8366176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

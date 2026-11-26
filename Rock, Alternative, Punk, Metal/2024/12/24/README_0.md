@@ -22,8 +22,7 @@ Beardfish - Songs for Beating Hearts (2024) [FLAC|Lossless|tracks + .cue] <Prog 
 ```bash
 magnet:?xt=urn:btih:078B4E3B3F564508E3BE8E467F03D4CBDF844D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

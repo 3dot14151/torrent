@@ -19,8 +19,7 @@ TE120 – короткая одиночная игра во вселенной H
 ```bash
 magnet:?xt=urn:btih:3CF346437590212AD714F29D08F9034E07E5691A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cat Quest - замуррчательная РПГ, чье действие пр�
 ```bash
 magnet:?xt=urn:btih:726FF8BBBCDD463C613E002F1498249F407EA1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alien Shooter 2 - Reloaded - это полномасштабное продол�
 ```bash
 magnet:?xt=urn:btih:050CF2FDB7416AE1D45EEA1A740905E6143279C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Murder Mystery Machine (2021) [Ru/Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:04E9FC10DAAC26742DD09B336A2C2B286F43175B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NEO: The World Ends with You (2021) [Multi] (1.00) License CODEX
 ```bash
 magnet:?xt=urn:btih:466FB0C573D94209894A13CC3460AE5307A6B07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ I Saw Black Clouds (2021) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D3ECAD705DEE3D9D0370C94E48DED38AE904EF88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Case Files 17: Rewind / За семью печатями 17: Вспят�
 ```bash
 magnet:?xt=urn:btih:5A69B21ACF8A544CAD93D8C8F26A0D160AE7C54B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

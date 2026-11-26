@@ -22,8 +22,7 @@ A3 淋しい熱帯魚 - Glowing tropical fish (Night Tempo Showa Groove Mix)(   
 ```bash
 magnet:?xt=urn:btih:93AF4075B841A08C23BD8ECE29C0CE1AF42FD07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

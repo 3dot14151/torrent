@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DC1BBAAB2C96604F74E69E6EDADB731F65FC66EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C31FBEAF4FB3BA598D6B2CF55D53F9FA0363D433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ XYZ School, Егор Гришин | Скетчинг (2020-2021) PCRec
 ```bash
 magnet:?xt=urn:btih:F46A389FE87530E4FC2EADBEA70C1E06DE86D521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ S.M.A.R.T. Vision 4.1.0.1796 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E68B7B261B8AB8F4F421B3409ACF0A092FD0C73A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ RF SCreater 2.3.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:1B6BDB6929F3E1FB25033217328173E023A5EF8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04CEE12B1A346CE238B7AF22B314BEA6DC52246A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ B2. Smile :: 06:12Жанр: ElectronicФормат: Vinyl, LP, AlbumПродол
 ```bash
 magnet:?xt=urn:btih:7A3F5DE6700B73EA8B4719F277F41431BCA8E78A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Mercenary - Metamorphosis (2011) [MP3|224 kbps]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:A202EE90DF9DFB9B46990FA4AEB6A73BC7E0CDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Essence - Lost In Violence (2011) [MP3|256 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:CF4A58B5C342332D4022ACB0D290513A10B18A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Danger Zone - Line Of Fire (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:2E879D34B5D21B2B35E7C431767F75942516727E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Nasty Tendency - Hello Suckers (2011) [MP3|192 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:17A366279ABD274D7365D6A8CC54B06571A53572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Destruction - Day Of Reckoning (2011) [MP3|320 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:57D7D74B536119576BE55713AA999B68B329160F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Gideon - Costs (2011) [MP3|320 kbps]<Melodic Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:05D768BE0A68F1718A9102A72E3C7457020CD3FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Artas - Riotology (2011) [MP3|320 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:DA2C3EF978CC042DFA08F729ACC69C8996E37201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Coldspell - Out From The Cold (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:8CD3205E7E25CA9683F35DFB5F5A802E14ADCFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Assassin - Breaking the Silence (2011) [MP3|224 kbps]<Thrash metal>
 ```bash
 magnet:?xt=urn:btih:23F2E77422CCAC5B04BF0D8F71059C49D212F8BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ Mercenary - Metamorphosis (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +365,7 @@ The Trashmen - Surfin' Bird (1964) [MP3|320 kbps]<Surf-Rock, Rock-n-Roll>
 ```bash
 magnet:?xt=urn:btih:2576D6F1F038E764B6B6F3202CA7E3DAD3537772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FDEB418C30C7925F90C1BB3AD74ECF4CAEC1434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E41DB09F39574684ACA100A83CE628D9A67FAEBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

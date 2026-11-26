@@ -19,8 +19,7 @@ Mortal Kombat Trilogy - это файтинг-сборник 1996 года, ко
 ```bash
 magnet:?xt=urn:btih:48B4C8E0B3D05F6398FB6DCCBC454625BA63075C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

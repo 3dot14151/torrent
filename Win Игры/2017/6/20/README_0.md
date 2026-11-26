@@ -19,8 +19,7 @@ Spirits of Mystery 8: Illusions / Тайны духов 8: Иллюзии (2017)
 ```bash
 magnet:?xt=urn:btih:CB897552FC229D57637EA2D7ADC9839B8B31C1F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Moto Racer 4 - это продолжение легендарной серии �
 ```bash
 magnet:?xt=urn:btih:E5B5522027E597EA4FAD7990C2F1B025FBACD6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Windward (2015) [Multi] (2017-06-17.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7CD2BEE02562FC32D859E4090132C7BA8DC162CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Season Match 4 / Времена Года 4 (2017) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:7DEE4F64753182FA6871B4E2BFD3064D796A3BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Perfect World / Идеальный мир (2005) [Ru/En] (1.3.6) Unofficial
 ```bash
 magnet:?xt=urn:btih:1B7714063B611F00472D268B745418DF932C2F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Witcher: Anthology / Ведьмак: Антология (2008-2015) [Ru/En/P
 ```bash
 magnet:?xt=urn:btih:971B0CDF0C2FA5F4FD0FA2254E68CB5EA2F6E323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

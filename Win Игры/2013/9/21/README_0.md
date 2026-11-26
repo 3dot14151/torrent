@@ -19,8 +19,7 @@ Shadow Shelter (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:CEF1864ADF5C16332198C6A6690A84D421D4B763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Web of Deceit 2: Deadly Sands Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:CF12DA9713385A02626E67ADCE7A5C27062DB5D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Age 3: Liberation of Souls (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:B53E7E27FA210646A9FBF8F67C520AD2B1F6A7D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nightmares from the Deep: The Siren’s Call Collectors Edition / Кошмары
 ```bash
 magnet:?xt=urn:btih:8A30F3FF415EE2F6F91BEEF54EC1207D464EC659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sable Maze 2: Norwich Caves. Collector's Edition / Темный Лабиринт
 ```bash
 magnet:?xt=urn:btih:14A2753918FB1912084BD6BB808CF8721901E658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Arma: Tactics (2013) [Ru/Multi] (Beta 4.2.1.11645) SteamRip R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:37E69BE201EC831CD0FFED40DFCF3015D203ABF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Urban Trial Freestyle - игровая новинка, которая предс
 ```bash
 magnet:?xt=urn:btih:87CE6F6EB85F2C6951A86B490B04446A0D08DA84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Day of Defeat: Source предлагает напряженный онлайно
 ```bash
 magnet:?xt=urn:btih:FBFBF5A3D998357CFF16169A1A8D19747DE01E55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Doorways — indie-игра в жанре survival horror от победите�
 ```bash
 magnet:?xt=urn:btih:96A24DCB6A7E72A0B4CF8BFAA3D06B70C41D7DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ The Sims™ 3 Кино Каталог привнесет шик, блеск, к�
 ```bash
 magnet:?xt=urn:btih:05DCBEF6F267CC300A0A7B31D629F4ACB3E5F15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

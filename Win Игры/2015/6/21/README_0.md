@@ -19,8 +19,7 @@ Grim Facade 6: Hidden Sins (2015) [En] Unofficial [Collector's Edition / Кол�
 ```bash
 magnet:?xt=urn:btih:9067704F1ADE79CA6F3E0B64C76571F99B5FB2DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ominous Objects 2: Phantom Reflection / Зловещие вещи 2: Иллюз�
 ```bash
 magnet:?xt=urn:btih:D4C5EFDB23C107E8C08470092ECE7C50D9145BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NASCAR '15 [Patch] (2015) (upd2) Official CODEX
 ```bash
 magnet:?xt=urn:btih:E6DB49AFC5E2215092B803A0809FE4CE73075E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ NASCAR '15 (2015) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:22B484A27A10A744D55DE06CF6E730C8E707557C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Subject 13 – классическая приключенческая игра,
 ```bash
 magnet:?xt=urn:btih:B8E69E29A36B7BE3B2D19DEC53BF57EDD2F58758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

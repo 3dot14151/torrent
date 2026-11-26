@@ -19,8 +19,7 @@ EARTH DEFENSE FORCE: IRON RAIN (2019) [Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F6129FF97DE09EE617E6CB419BA6E554C4C08CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Boulder Dash-XL - аркадная головоломка от студии Catn
 ```bash
 magnet:?xt=urn:btih:AD4D641EC0ED2BDE10D76AB223778136C9050476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

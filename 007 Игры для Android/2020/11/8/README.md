@@ -19,8 +19,7 @@ RONTLINE COMMANDO 2 - Продолжение военного экшена, пр
 ```bash
 magnet:?xt=urn:btih:7C46F1D2968E03D640221158CF7C42795ADABA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

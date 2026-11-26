@@ -22,8 +22,7 @@ A4 Я Не Виноват(   Читать дальше...   )Жанр: New Wave�
 ```bash
 magnet:?xt=urn:btih:3A8E83BFE7B47D0F7423EEA7FDC2BA3EDC1D1724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B2 - Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Met
 ```bash
 magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kalmah — финская англоязычная метал-группа. «Ka
 ```bash
 magnet:?xt=urn:btih:B0700D7D042554E94A1496492D70E8226F651223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

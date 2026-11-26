@@ -22,8 +22,7 @@ Nightwish - Once (2004) Released, 2013, Nuclear Blast [FLAC|24/192|image + .cue|
 ```bash
 magnet:?xt=urn:btih:09EED9BC75D4789E2AC28BE59545AB55EFE00F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Forever(   Читать дальше...   )Жанр: Hard RockПродолж�
 ```bash
 magnet:?xt=urn:btih:3413E3A452548C4D6DB7B6E58B292C55DA8733FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4. Disavowed(   Читать дальше...   )Жанр: Death, Black MetalП�
 ```bash
 magnet:?xt=urn:btih:71E6FC0E459AA1AB3B3D3C9B79FCDF21A8923D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Rotting Christ - греческая метал-группа, созданная 
 ```bash
 magnet:?xt=urn:btih:D7CAA7F95FFEECD128FC2BFBD08B1654AC361708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

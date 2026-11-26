@@ -22,8 +22,7 @@ Sleeper Agent - Celabrasion (2011) [OGG| 456-521 кб/с]<Alternative Rock, Indi
 ```bash
 magnet:?xt=urn:btih:1849CF2EC2265B50B6721FA7EDBDCE82743410F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sleeper Agent - About Last Night (2014) [OGG| 458-516 кб/с]<Alternative, Indi
 ```bash
 magnet:?xt=urn:btih:FDDB0C1823822CD7F63B0048FBF82FFFBB62302D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lebowski - Cinematic (2010) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:ACBC507C680CA65F0463C7B51186B9A814AAA6BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lunatic Soul - Walking on a Flashlight Beam (2014) Special Edition CD+DVD [FLAC|
 ```bash
 magnet:?xt=urn:btih:7B27FDC1A48879986523EAD88A96EEC7B8095F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CEB3925D84AF0F3995899BFAD30F4666AD7C04D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Stratovarius - Eternal (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:276CE7A654D5C99041A452EF5FC8E8D6E36C50D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Slayer - Repentless (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:EEAC18357E1B523E85F6EC444CB3014638AFCA3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9899E3C116E613884C886D24DAB1F85507C16A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

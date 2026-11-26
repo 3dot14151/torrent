@@ -19,8 +19,7 @@ Edge of Reality 6: Mark of Fate / Край Реальности 6: Метка С
 ```bash
 magnet:?xt=urn:btih:549F767C88146F88EF3D3BEFE1DC5CF30220A696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alienautics – тактический научно-фантастический
 ```bash
 magnet:?xt=urn:btih:3EFF20647E8E7543B9D7AB8575C87F01DF253FD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

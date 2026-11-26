@@ -19,8 +19,7 @@ Aeonian Sorrow - Forever Misery (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Got
 ```bash
 magnet:?xt=urn:btih:8835EC5B4590CF7D745A9623C7831CB24239E874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Edenbridge - Aphelion (2003) [FLAC|Lossless|image + .cue] <Symphonic Power Metal
 ```bash
 magnet:?xt=urn:btih:32D24EA03C190F42C1EC62FFC8B52A49C6BCBCEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Edenbridge - Arcana (2001) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:07A7B122ED00C9821F4EE2A51521CFAE97221322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Edenbridge - ...Sunrise In Eden... (2000) [FLAC|Lossless|image + .cue] <Symphoni
 ```bash
 magnet:?xt=urn:btih:5CCF9C50442BE4782661ADE193B49BF0ED279BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Edenbridge - Shine (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:41B8635DE8872F05001BCBBE831BA890F4BE84D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Edenbridge - MyEarthDream (2008) [FLAC|Lossless|image + .cue] <Symphonic Power M
 ```bash
 magnet:?xt=urn:btih:3268C05062D3269815C19898B2CB409B9628FBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Aeonian Sorrow - Into the Eternity a Moment We Are (2018) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:BBFF390C924917F15ECCBB50D14E2E896BB2F37A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Edenbridge - The Chronicles Of Eden (2008) 2CD [FLAC|Lossless|image + .cue] <Sym
 ```bash
 magnet:?xt=urn:btih:76E76CF4EC8A81883FA8FDB28B0117C2F19E4456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Elm Street - The Great Tribulation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 ```bash
 magnet:?xt=urn:btih:48AD8CD56E56ACCDBD830B107E99E614E296EB99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Fish On Friday - 8mm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock/Cros
 ```bash
 magnet:?xt=urn:btih:11BC9A1324BBFE09E465FE882E7F6C5076168A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Axxis - Monster Hero (2018) Japanese Edition, 2019 [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:AEBA65AA86B9D600FFCEE6E1E05E628A9DA94A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Sacred Reich - Awakening (2019) Japanese Edition [FLAC|Lossless|image + .cue] <T
 ```bash
 magnet:?xt=urn:btih:9D12B271FB0F02D007413D705BC430236E727DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Def Leppard - On Through The Night (1980) Remastered, 2018, [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:EA7372DB1FF48349B86BBA69CEB107FC800A041D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Soniq Circus - Chapter 1-2 (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Prog
 ```bash
 magnet:?xt=urn:btih:7CF512B65CE6F4C74307A09F27460712BB93B3DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Till Lindemann - Zunge (2023) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:D21C863C40080BA1C918E15611DDE404940565D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

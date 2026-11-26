@@ -19,8 +19,7 @@ Detectives United 4: Phantoms of the Past / Лига детективов 4: П�
 ```bash
 magnet:?xt=urn:btih:C1A64EAF3D3792347DADAE49E1B47AB5ED4EBB2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

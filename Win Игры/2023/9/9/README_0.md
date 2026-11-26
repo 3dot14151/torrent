@@ -19,8 +19,7 @@ The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EE5AB3D4C0321909D42DB5D32028509C4BA54B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CONVERGENCE: A League of Legends Story - динамичный платформе
 ```bash
 magnet:?xt=urn:btih:314E10146197837ACC4F95C11167517B69103C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DOOM Eternal от id Software – прямое продолжение хита D
 ```bash
 magnet:?xt=urn:btih:54BD0BF10E4776D13024D7AA927F16BE08626087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

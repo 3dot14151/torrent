@@ -27,8 +27,7 @@ Rezinwolf - Corruption Kingdom (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F8C0B1AF4B09A0343238F54F0EF03BB075E9B3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Brand New Machine - The Devil Made Me Do It (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0571B50F16DDB207167201966F48DD38A5835AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Zebrahead - Call Your Friends (2013) Japanese Edition [MP3|320 кб/с]<Punk Roc
 ```bash
 magnet:?xt=urn:btih:BD1F5DAD710E2969347AC9819EF7BDBAF9588B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Paper Lace - ...And Other Bits Of Material (1974) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:6C9F068519B7F79CEC1A32C195F206D510563E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Hellrazer - Operation Overlord [Digipack] (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8BF9A8C97011F4CDF0A1BF484321E405EB7DDDE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cabela's Big Game Hunter продолжает серию симуляторов 
 ```bash
 magnet:?xt=urn:btih:F5E4696415BFA8A52D990AD93DA355BB918A8175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cabela's Outdoor Adventures (2009) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:C9AB9CDF2407FF8CEB4B62D05B10D3CA2F3AFCBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Talisman: Digital Edition - это электронная адаптация н�
 ```bash
 magnet:?xt=urn:btih:F0B7696C3FF4DC3AFBBE85E2D6097D3BD8947708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Professional Lumberjack 2015 (2015) [Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:9E154F9FD5E58FE91C45CBF20E3B4949691C39F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Behind the Memory — игра от первого лица, в которой �
 ```bash
 magnet:?xt=urn:btih:C316DC365E0DEBE6304AD210EBE97A395A6FECE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30C79B54A118FF82DCAD522D021A187B6779DB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

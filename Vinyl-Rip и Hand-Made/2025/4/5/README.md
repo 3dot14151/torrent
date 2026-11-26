@@ -21,8 +21,7 @@ Frantic Amber — метал-группа с женским вокалом, в �
 ```bash
 magnet:?xt=urn:btih:4A3058D7D8DF78CC841FE566549FD4E2792F885D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Nightwish - Dark Passion Play (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 ```bash
 magnet:?xt=urn:btih:A923C525758C4E7ABFEF868315057A498F9C75AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Ne Obliviscaris - австралийская метал-группа из Мел
 ```bash
 magnet:?xt=urn:btih:D33948BD0E0D92516A1CA929615ABD7B2802C3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

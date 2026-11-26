@@ -19,8 +19,7 @@ Resident Evil 2 (1998) - ReEnhanced Edition [Ru/En] (1.1.0) Repack/Mod KaSix
 ```bash
 magnet:?xt=urn:btih:55953607D065A7FC4047DDA6ED5356319D9CF41F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

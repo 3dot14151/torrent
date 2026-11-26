@@ -19,8 +19,7 @@ Altarsoft Photo Editor 1.51 Portable by elcafe [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F5BA3F30E748683711B2B5B6CFC4E9917E685D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

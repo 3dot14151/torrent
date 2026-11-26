@@ -19,8 +19,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:6140FC82F78557CF7A826EB723CE8554DE64BEBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ReNamer - это очень мощный и гибкий инструмент д
 ```bash
 magnet:?xt=urn:btih:E873A350230B9DDC644DA2E03642DBBFBFDCA07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ReNamer - это очень мощный и гибкий инструмент д
 ```bash
 magnet:?xt=urn:btih:9293BC09ADA19F26075817007C5297ED06668D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:1FB291387A9FED2D0AA44FA46B5C80BC164C52BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

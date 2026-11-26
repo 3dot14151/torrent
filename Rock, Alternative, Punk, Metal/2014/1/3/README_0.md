@@ -28,8 +28,7 @@ Fernando Noronha & Black Soul - Heartful Of Blues (2007) [MP3|256 кб/с]<Blues
 ```bash
 magnet:?xt=urn:btih:E59EE10CBD3ED424589C1D0A4D775D6393310507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Laquesis - Laquesis (2013) [FLAC|Lossless]<Symphonic Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:22D0CB1E773999655F68261451C181C5479F3245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Benedictum - Obey (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6E5ADE4214D2AD37DE15AE0F6C43B27AB3D198D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Broken Arrow - Feel The Arrow (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0A914AD7253D1F12A852EE00641D5F97E0C520D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Headstone - Bad Habits (1974) [MP3|320 кб/с]<Art Rock / Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:E71E77DC1CA2726DF238C3354A3B08D51BA4E24F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Dario Lorina - Dario Lorina (2013) [MP3|320 кб/с]<Instrumental Guitar, Hard R
 ```bash
 magnet:?xt=urn:btih:E6E35FA367DBE05E20F801D3B51A2ABA5280F894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ VA - 100 Hits - Drivetime Anthems (2013) 5CD [MP3|320 кб/с]<Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:567BAA21A600730619A6287E580898E166373DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92781861E62A88ED505098E7753DB4E40B257D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Within Temptation - Paradise (What About Us?) (2013) [FLAC|Lossless]<Symphonic/G
 ```bash
 magnet:?xt=urn:btih:B91FB5F01DE00A0D43956B0A28C619B13168B8CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A7BD5F1DFAE90668B61C3F401FEBBFA1290A858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.2.381918 build 20599177/dlc) Repack HardwareM
 ```bash
 magnet:?xt=urn:btih:96819EDDD3A6A1CF2F9797F38D5635C918E9ED6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ayasa: Shadows of Silence приглашает игроков в мир, где 
 ```bash
 magnet:?xt=urn:btih:2A8A091B06875A86187D4E0C662F692F7442963A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cricket 22 - это максимально детализированная и �
 ```bash
 magnet:?xt=urn:btih:0019F214043B30B6C40AE04757D99E08039A352F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AFL 26 (2025) [En] (1.0.1672) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9FD02350C20F7401BE9ED8AE2FD547FBEFBF9D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rugby 25 (2024) [Multi] (1.0.4016) Scene Rune
 ```bash
 magnet:?xt=urn:btih:78A840E6A23CA757BCCF1B09FDFC429748F9DFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5607CD790ADE62B56239BB81064256BE0AD4D076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ayasa: Shadows of Silence приглашает игроков в мир, где 
 ```bash
 magnet:?xt=urn:btih:911A70D573C8F0FB40F96C84ABB3543AD31F9123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ GigaBash - приключенческая игра про огромных мо�
 ```bash
 magnet:?xt=urn:btih:D9D0A07FEFF1443F1735BA8F83D29E3B10DC3663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:AA89EFA4AF093DE400B2D9BCC786077D4AB3F338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.2.11062025.41663/dlc) Repack L
 ```bash
 magnet:?xt=urn:btih:CB8B70980269A78D7AD0346967CD2900C3CDFD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

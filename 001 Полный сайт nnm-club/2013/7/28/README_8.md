@@ -28,8 +28,7 @@ John Askew - Z List Uber Star (2008) [FLAC|Lossless]<Trance, Techno>
 ```bash
 magnet:?xt=urn:btih:77D3A68AF98310F3BAD65276F2D297BE855B8AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Gimmick Ecosystem 3.0 Ibiza Edition (2013) [MP3|320 кб/с]<House, Deep Ho
 ```bash
 magnet:?xt=urn:btih:527ED02A1088EA77E3885E7B8681D94C6D7C0292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Korablove - Statum Far (2013) [MP3|320 кб/с]<Tech House, Deep House>
 ```bash
 magnet:?xt=urn:btih:3A3B330E1C6A90CB843B63544D69B1A8B97E3257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ VA - Trance Pro V.32 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7087DE5BF665CF487989E45D98AA700E550629E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9BEB912C840D9801005E87F942A82260EEA342C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Photo in Lounge - Have A Good Time (2012) [MP3|320 кб/с]<Downtempo, ChillOut,
 ```bash
 magnet:?xt=urn:btih:87BC7FA9F1676793A2AB7AA866BACE49F71BB8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Illusion Suite - The Iron Cemetery (2013) [MP3|320 кб/с]<Progressive Power Me
 ```bash
 magnet:?xt=urn:btih:8E29308A44D9E200DA5DE05733791D8AD95F9A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Thrudvangar - Tiwaz (2013) [FLAC|Lossless]<Viking Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:93C5E087158C19ED5CCC55878859715E4873833C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ VA - Alter Ego In Sydney (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4175F2331D42E9A2F303B1DB4DC6D5BB6224ADE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2501E17037090E53D24329FA78F5BB63E69373CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ VA - Breezing Optic Sonar (2013) [MP3|320 кб/с]<Melodic, Trance, Uplifting, E
 ```bash
 magnet:?xt=urn:btih:E692449D5F83CC58B2FAD447069BC3C1A5092711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5498224E1841A7B8D105AB5C23917C9183C8CD98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ACE065250B2BA0614F7ACA891DFE2D3AA03D26A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ Alex Cortiz - Volume 1 (Funkin' Triphop Variations) (2013) [MP3|320 кб/с]<Tri
 ```bash
 magnet:?xt=urn:btih:863A158D8CDA5F3483A08E777414154990962B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ Alms - Beyond (2013) [FLAC|Lossless]<Symphonic Prog, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5E0B29B4D6AD6D8EA596740FE578A648E076D83E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +516,7 @@ VA - Drum and Bass Pro V.21 from AGR (2013) [MP3|320 кб/с]<Drum&Bass>
 ```bash
 magnet:?xt=urn:btih:1432166236FDCBB5A479AC60162D848F7F4CCC1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +542,7 @@ Discovery: Цирк. Серия №6 / Circus (2011) HDTVRip
 ```bash
 magnet:?xt=urn:btih:12AE69DCE5D5EB6ED8CAB0D3DCCC23B89025F8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5E17D7C2158826CF06EAFBF27D0F2B3BE73CBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCEB6C28F7A3B6C422068DCC5BF435D9C673D236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +627,7 @@ VA - Electro House Pro V.42 (2013) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:DEE3ED55C91F2C3EE8C04334617BA7F1D2F913DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +661,7 @@ VA - Mixmag Presents: Groove Armada Next Type Of Motion (2013) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:C994793D4B0D077667B62210AF7B62CF3D26721D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +695,7 @@ VA - Mixmag Pres: Never Say Never (Mixed By Sasha) - 2013 [MP3|~245 кб/с (V0)
 ```bash
 magnet:?xt=urn:btih:D31C2D89976A0FF2B2DD6BBD0C67E9F585426B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C1969D1A33437B47DADC700D701F13965117665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +756,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77AE9B13BF962FB8D5D7854BF9241E2C564B9A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -813,8 +788,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA16F83DD8F65938A929A3A61395C9AA4DDC3239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

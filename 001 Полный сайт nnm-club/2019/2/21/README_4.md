@@ -22,8 +22,7 @@ Jessica Williams - The Art Of The Piano (2009) Origin Records [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:45DBE558D31BA58CB4A5F66C9B7C4B14D80F3421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Golden Daze - Simpatico (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Psyched
 ```bash
 magnet:?xt=urn:btih:262D15AA95F809E948529E906D1EB4779C41C0A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Young Hunting - True Believers (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:7C40445E431F3FBB527CE2C972FE6B7EE289DECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Panopticon: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Trance, E
 ```bash
 magnet:?xt=urn:btih:DA15399BF64542D95A641FD8A59EE0ABEA9A571E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Antarcticats - I Know You Are, But What Am I? (2018) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:BEB5FB2C7B5E27980FCF982C9F186EC05557B3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ HOMESHAKE - Helium (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:17A4B3C60AA298567E4FE14BE6B4A21A70608963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Urban Grunge (2019) [MP3|320 Kbps] <D&B, Dubstep, Bass Electronic>
 ```bash
 magnet:?xt=urn:btih:A47A2EC2B152C7F8771FC672A1D718C3E172C8E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Chronicle Pro 9.0 [En]
 ```bash
 magnet:?xt=urn:btih:EC655F34F0FC17CEC341276F6E588769668F8559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Ko Tao Dreams Vol.2 (2019) [MP3|320 Kbps] <House, DeepHouse, Downtempo>
 ```bash
 magnet:?xt=urn:btih:69E8316375390E934321F95D64EFE99E1AAA9CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Believe In Deep Vol.2 (2019) The Groove Edition [MP3|320 Kbps] <House, Deep
 ```bash
 magnet:?xt=urn:btih:6CDC03A6082B33268E7FC0059273C599E8D11C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Inkubus Sukkubus - Belladonna & Aconite (1993) Reissue, Remastered, 2011, Resurr
 ```bash
 magnet:?xt=urn:btih:87CDB8A547B346255BB748CD8E99F890B38A0365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Workout House Bangers (2019) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:6435E0B92FBDAD853E135EC2EDB9DED39F9A72F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:8E1A69E801C0E5F1ADE72BDECF20AE03736EA3A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ VA - Anthology of contemporary music from Africa continent (2019) Unexplained So
 ```bash
 magnet:?xt=urn:btih:1EE18B584D16EE1268D204F08EC94576DC28BDAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ A Pale Horse Named Death - When The World Becomes Undone (2019) [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:E1375E193636E6C3FB64E6DD921EE5F9E517602A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31416FE0C754206E772EF513E10147067E31376B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ Zebra Crossing - Zebra Crossing (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 ```bash
 magnet:?xt=urn:btih:2653199781768A39C7766B4BBC14651ECDD3A1B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ VA - The Best Of The Last 50 Releases - Special 150 (2019) [MP3|320 Kbps] <Tranc
 ```bash
 magnet:?xt=urn:btih:E5E2709EBD0ADC74FF00E7C96F86DB2BD93ACAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:226930D5A73DCF3B9181B785C0E9D3BA2D9BF25C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ NetWorker - небольшая и очень простая утилита, ко
 ```bash
 magnet:?xt=urn:btih:17EC23CDB5C47B436A5144296C3A54F0AA1F1ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ SmallCubed MailSuite 1.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:B4F7DDEE3A9961182AD1F8CBDFDC36772F56A9EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ Sleepthief - Mortal Longing (2018) [FLAC|Lossless|tracks + .cue] <New Age, Downt
 ```bash
 magnet:?xt=urn:btih:AD25CBCD7517C8966114E35B8F25F8DF010B8ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:743165575BD18DCB867A1CD7C5FAD585282FEC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ Said the Whale - Cascadia (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indi
 ```bash
 magnet:?xt=urn:btih:5F855DCC643E308A56C936416EC88EAB09EAC3E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ SQL Dynamite 2.1.3.5 [En]
 ```bash
 magnet:?xt=urn:btih:1C109D65BFFE0DCBD44E7D3E043EE2CBCFE9558B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +706,7 @@ Jamelia - Superstar-The Hits (2007) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:6A2A586483DF2B5091A7B7D5227A6C8BCC6BEB32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

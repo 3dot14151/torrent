@@ -21,8 +21,7 @@ The Dead Daisies - Burn It Down (2018) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:89E01609835EF3C2202C934A8814C46D325E130B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ O&O DiskImage Professional - программа позволяющая созд�
 ```bash
 magnet:?xt=urn:btih:52075731BA1E500B2D202B1952C5493B063350D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:C5C75AAD34A1B29461C68BE325EC3C23184C67B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ MacBooster поможет настроить и ускорить работу ma
 ```bash
 magnet:?xt=urn:btih:47D4240DB1248B9A5E8AF357AFB4D6DEE836E225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Netojuu no Susume | Recommendation of the Wonderful Virtual Life | Гайд по
 ```bash
 magnet:?xt=urn:btih:DCFE5C23D9EEE45938F4B11F6047748758CA86F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Yelawolf - Trial By Fire (2017) [MP3|320 Kbps] <Rap>
 ```bash
 magnet:?xt=urn:btih:3CD500D602DE6EB90A07F0F6BC3C78BF6D616E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ VA - Empire Records - Mystification (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:5FAFB8988FE5108E9034C829FF3FDD9018E7A14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ FileOptimizer — это бесплатная утилита с открытым
 ```bash
 magnet:?xt=urn:btih:92C3EFF436431AE80112E977049BB3A3C06808D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26FCA4117D59984011F31C8537DCC52E97181327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:AFB85BA12DECF0A0276C2A60863268A6F62F6B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCBB71BCA79AF6F8AAEA5BDF3F8D745ED139974C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ VA - Erotica Vol. 2 (Most Erotic Lounge And Chillout Tunes) (2016) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:81442FECB3EBD0D4FBA73196CE58A9380111D81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Animal ДжаZ - Счастье (2018) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:33C9B18CD8B6ECFB226FD4FC3F674C51DD8A9C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ Opera 52.0.2871.40 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B5954D2EDC6B5C34E72CE972BBCFB202971D2153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Directory Lister Enterprise Edition - полезная программа, ко�
 ```bash
 magnet:?xt=urn:btih:FF3D8F415809E8A72C1E8FF0B2793502519D0D5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Aaliyah - One In A Million (1996) [MP3|320 Kbps] <R&B>
 ```bash
 magnet:?xt=urn:btih:E679C4E7B6742AC6CCDEC1209383D8B7137BEFE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Myths of the World 14: Love Beyond / Мифы народов мира 14: За �
 ```bash
 magnet:?xt=urn:btih:FA2762CCC2E0CAA08F66C515041667A2D24C9DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36CB8FC441EC6DE477687E0C99BF38132E9423F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ Zettainaru Kodokusha «Isolator» | Изолятор: воплощение аб�
 ```bash
 magnet:?xt=urn:btih:59ECF3C9E73AD9E2594B898F0DE6B8233A893E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B23EF6842D48C6E5FC4CF9547FA5564B4104458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ Ash of Gods — это история трех разных героев, сто
 ```bash
 magnet:?xt=urn:btih:42CB587B4626B09AF13DB40AF613FB3AD13CCD84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1222CEA73C32D2F8DD9C860BE13B57CD050811CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ Ollie 8 Pro Bundle - это идеальная коллекция, котора�
 ```bash
 magnet:?xt=urn:btih:603CB9FAA6EBB5A7EF8C6C4217BF665DBA68A49A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ VA - Erotica Vol. 3 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:839FBC8427DF9F92C6F44396EB65D8F92B9B9FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ VA - Erotica Vol. 1 (Most Erotic Lounge And Chillout Tunes) (2014) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:0C0346EA5F18BF8298D17F516EFA5DC55BF279B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35A6AF513DE85D6A6CA35B49D7E1A33772F1AB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

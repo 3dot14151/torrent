@@ -19,8 +19,7 @@ Death at Cape Porto: A Dana Knightstone Novel Collectors Edition (2013) [En] Uno
 ```bash
 magnet:?xt=urn:btih:952CF0A04A844227F507E89FE4E96CA55B418CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Botanica: Into the Unknown Collector's Edition / Ботаника. Путь в �
 ```bash
 magnet:?xt=urn:btih:6C730AF4325062621EC91F071232A7F55BF1C26A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Chaos on Deponia (2012) [Ru/Multi] (2.0.4.2299) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:F9433EB2B660B693FAAFB3DD81BDA0C7AF9B3EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Goodbye Deponia (2013) [Ru/Multi] (1.1.4.3284) SteamRip R.G. Origins [Premium]
 ```bash
 magnet:?xt=urn:btih:D3CAC495EFF5903E8E8D33B0E450D56C0A58D799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Deponia (2012) [Ru/Multi] (2.0.4.1281) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:4EE665021C6992129E9BA8C481729A057014BF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

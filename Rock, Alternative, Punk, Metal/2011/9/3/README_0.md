@@ -28,8 +28,7 @@ Azarath - Blasphemer's Maledictions (2011) [WavPack|Lossless]<Death Metal/Black 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Of Wrath And Ruin - Conquering Oblivion (2011) [MP3|320 kbps]<Melodic death meta
 ```bash
 magnet:?xt=urn:btih:0F318E58AC8AB27B59984E1C2ADC306763A509CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ The Ukrainians - 7Albums+3Singles+1EP +1Live+5Bootlegs (1989-2009) [MP3|192-320 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Opeth - Heritage (2011) [MP3|320 kbps]<Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:C6E244AA4D3867596E71ABC1060D2F54A678FA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:D944800AC8B78139EB568C3A52E45074AF0BAC36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Theatre of Shadows: As You Wish (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:C267E2CD23B64EA6F7546A8AB0BAA8F40FF012B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Be Richest! (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:A1DCCA7107D8FE2E9F367528EDD038114961EC4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Orcs Must Die Дилогия [Ru/En/Multi9] (RePack) 2011-2012 l R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:7E93CFEC20FF7457C638EA1682C6245361BE9073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ The Elder Scrolls V: Skyrim - ModPack [Ru] (Mod/040812) 2012 | ModGames
 ```bash
 magnet:?xt=urn:btih:8D3CE821E7062A0A299829E9923FCB563E10C153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

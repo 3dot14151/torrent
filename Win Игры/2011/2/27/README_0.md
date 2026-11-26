@@ -19,8 +19,7 @@ Akhra: The Treasures (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:41E9157824161D94925B1613B6CB015639A751AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kings Legacy / Наследие королей (P) [Ru] (2010)
 ```bash
 magnet:?xt=urn:btih:EECB19248B6EE5A4D63E3A7E52D853E2454FC724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wolfgang Hohlbein's The Inquisitor / Инквизитор. Тайна мертв
 ```bash
 magnet:?xt=urn:btih:46DF77E132F24762B141EB61D973F62B445680B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ My Farm Life / Реальная ферма (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:3C8E1C4B606159B222FDABD5D042CCDA24D784C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

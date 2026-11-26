@@ -19,8 +19,7 @@ Superior Drummer 2.0 мануал на русском языке, програм
 ```bash
 magnet:?xt=urn:btih:C9E0C1717C5FEDC7CC5469403CC70075F29C82D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

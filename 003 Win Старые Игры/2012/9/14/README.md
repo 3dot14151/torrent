@@ -20,8 +20,7 @@ Wings over Vietnam / Асы над Вьетнамом [Ru] (RePack) 2004 | RG Ga
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ TRON 2.0 [Ru/En] (Repack/1.042) 2003 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:AC26392BD56B32B1843FC2F2FFA9A1EC2016095C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Horror-action по сюжету известного писателя и реж�
 ```bash
 magnet:?xt=urn:btih:6B717027FBE3C23BE3B1FA2DB56AD1080D445395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

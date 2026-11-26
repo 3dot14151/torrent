@@ -25,8 +25,7 @@ Dvorak: Cello Concertos, Lasst Mich Allein - Isserlis, Harding, Mahler Chamber O
 ```bash
 magnet:?xt=urn:btih:E3A8D3E907A76645544CE5AB43A84AD1DFED6D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F0E84BDEA86A1801C7C09B170BAE1A658C76979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E673BF1B08C231B4FF76C3FCF9EED0BC8087742C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81F03B85EAC7B9BBBD1B7954AFCF1B50745E81B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Streetwize - Body Party (2013) [MP3|320 кб/с]<Jazz, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:5B454143113D4FC00B79CC3AB8F0A88B5326DE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C0A1434DF76789D14BE6DF043E25185FEE74ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ HyperSnap - это инструмент для захвата изображен
 ```bash
 magnet:?xt=urn:btih:C3CB3C3F58FDAB810611C19D435A9C11FA52EBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ VA - Now That's What I Call Country - vol.6 (2013) [FLAC|Lossless|WEB-DL]<Countr
 ```bash
 magnet:?xt=urn:btih:8F6EE4323DAD7B0E44D14C2FA2F0189640923D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ VA - Coffee Bar Chill Sounds (2013) [MP3|320 кб/с]<Chillout, Lounge, Downtemp
 ```bash
 magnet:?xt=urn:btih:2BD426E2A7AA741607B73A782FF278C151F09B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ Lunarsea - Route Code Selector (2008) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C2D18F67A790C6E6BCA9B8E620C6EBED814AE7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89824C0DE4BC96D2266B914FE28D3FA014567C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ Lori McKenna - Massachusetts (2013) [FLAC|Lossless]<Country>
 ```bash
 magnet:?xt=urn:btih:8D4253F7068FF2EFC5D644AFC38C39BC7B83B8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F16BAB49C30666CC21BACD812C8D3D6681A3562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F33A01771BB8D8974C28B6A21639F87936BF059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B85D97CC1EE846A03B5A355CF7806BD43EBE315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ VA - 10 Years Of SW4 (2013) 2CD[FLAC|Lossless]<House, Dubstep, Techno, Drum & Ba
 ```bash
 magnet:?xt=urn:btih:EDE3ACE32FB73894169BD696A0E918C9A7624D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ Count Basie & His Orchestra - Good Time Blues (Budapest 1970) (2004) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:65B4BBA4B24EF4E17E8CA965ED5D9B99688E5B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1E8E4F630E6C177C335B6FB40CE8966E53C682C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +545,7 @@ The Manhattan Transfer - Anthology - Down In Birdland 2CD (1992) [APE|Lossless]<
 ```bash
 magnet:?xt=urn:btih:89B4B19D7C78B199AF7731CC0C89BCE8B0B2D40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ Emmylou Harris & Rodney Crowell - Old Yellow Moon (2013) [FLAC|Lossless]<Country
 ```bash
 magnet:?xt=urn:btih:D21F41DC383E523E500A9F8A67BB5B9C6642A945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ VA - Шансон под семки и пивасик! (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:61D02FF0BEC09DCBAD0047E75EFEC7EFB50D8059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B33C435057F2E2D55B336460D5EF453C9745E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ Keith Jarrett - Concerts - Bregenz & Munchen (2013) 3CD [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:BE70B1B2EB096B3F125C9602E74FB6CB77194871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ VA - Record Super Chart № 317 (2013) [MP3|320 кб/с]<Electro House, Trance, 
 ```bash
 magnet:?xt=urn:btih:8A6D55DADEF60305064F24020FF25EFCAA1CED5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ VA - NRJ Music Awards 15Th Edition (2013) Pre-Relise [MP3|320 кб/с]<Pop, Danc
 ```bash
 magnet:?xt=urn:btih:77BEADFFFD3D7F9636ABF2542F574947AC62B208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B995942D8ECC348DA45411BD6C5AAA869BD5F485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

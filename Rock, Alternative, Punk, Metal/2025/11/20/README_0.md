@@ -22,8 +22,7 @@ Agalloch - Ashes Against The Grain (2006) 2XCD, Reissue, 2025, Eisenwald , Delux
 ```bash
 magnet:?xt=urn:btih:36312CA5246638AC3231DE74FC990159BDECCC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bloodbound - Field of Swords (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:8603571304BE7D6C32E281E64EBBE542199FCE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

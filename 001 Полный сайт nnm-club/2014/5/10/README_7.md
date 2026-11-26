@@ -20,8 +20,7 @@ Microsoft Office 2003 Professional — исчерпывающий комплек
 ```bash
 magnet:?xt=urn:btih:D9AFDAC94A5DE7196B26D7959A8867D645DD1BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Ubuntu — это разрабатываемая сообществом, осн�
 ```bash
 magnet:?xt=urn:btih:FA5741B0AFBE15D891E9ECC82056D55AC7AF5C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:B7AF1C09BB88900154DE2F7BE281090CC664FC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ MotionPulse включает более 2000 составных звуковых
 ```bash
 magnet:?xt=urn:btih:876D04C451AC6B6348B124C1F333D3489A6A06C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

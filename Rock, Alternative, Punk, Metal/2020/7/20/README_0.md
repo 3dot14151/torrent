@@ -22,8 +22,7 @@ Morta Skuld - Serving Two Masters (2014) [FLAC|Lossless|image + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:0517118886DEDDF8C34BEFE6E045CBF65129B0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Duel Of Fate - Don't Leave This World (2006) [FLAC|Lossless|image + .cue] <Power
 ```bash
 magnet:?xt=urn:btih:00DAF06C63A280CFD8BBE222BBA923E57C05EED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Vampire - Rex (2020) Century Media Records [FLAC|Lossless|image + .cue] <Death M
 ```bash
 magnet:?xt=urn:btih:E34BCB7CBF1F6B8672468B50D752DFCF009550BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ First Mountain - T-Minus; Your Highness (2020) [FLAC|Lossless|tracks] <Progressi
 ```bash
 magnet:?xt=urn:btih:E706D6574B13C6BC978E4FA5C6B8AE9CF2C80A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Poor As Flies - Poor As Flies (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:127CB4E910E65D45F51632BC42309D0F001D3290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

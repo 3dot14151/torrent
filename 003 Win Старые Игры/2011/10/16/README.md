@@ -19,8 +19,7 @@ Enemy Infestation [En] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:77FE8EC3E347CCAFEA9761DCA54ABD8A3A490711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

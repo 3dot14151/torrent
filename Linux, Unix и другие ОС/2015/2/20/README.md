@@ -19,8 +19,7 @@ Network Security Toolkit (NST) 20-6535 [i686] DVD
 ```bash
 magnet:?xt=urn:btih:3E1F58503C397DE2F2344F2BC881C3823C3C0F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu 14.04.2 и  его производные продукты обновле
 ```bash
 magnet:?xt=urn:btih:8F75D3C2DF4153BDDC5B6AFBB6DDDA8F1EF7D616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

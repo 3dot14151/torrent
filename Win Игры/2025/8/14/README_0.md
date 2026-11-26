@@ -19,8 +19,7 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 ```bash
 magnet:?xt=urn:btih:6B4C712800FBAC03F07222F5688DF419E5511BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:02256A22E41550A0AF599F1A510A721E40303DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cabernet - ролевая 2D-игра в антураже Восточной Е�
 ```bash
 magnet:?xt=urn:btih:1FC97676327EB19B5C8458A2ED060D741C50B888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (4326/dlc) License GOG [Master Cra
 ```bash
 magnet:?xt=urn:btih:310685DF455985E1265C0103C6789C244EB7DEFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Scouring - это стратегия в реальном времени, в 
 ```bash
 magnet:?xt=urn:btih:4312A8095A31DAE73C376118BBEF19D3838F56E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kebab Chefs! - Restaurant Simulator (2024) [Ru/Multi] (0.5) Repack Pioneer [Earl
 ```bash
 magnet:?xt=urn:btih:CF5630FD01809B22047AA5FD96ED651A7BBEAA1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Echoes of the End - кинематографичный приключенчес�
 ```bash
 magnet:?xt=urn:btih:31000C6C44C94D4E125F2332AF4AFA0E930142B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Abyssus (2025) [Ru/Multi] (1.0.1.50519/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4C1DA9E100395369776B2FAFC2C35044BCBDA8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:C72D87B63C9D602B6964BB3EA32B2F3181C30403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Echoes of the End - кинематографичный приключенчес�
 ```bash
 magnet:?xt=urn:btih:6213031949708B61FD6B63EC6540D56E7296F887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:D80E9B4663D472151823D2BA95B30FD27E44F6B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Uplink OS (2021) [Ru] (21.04) Mod/Русификатор kesha4
 ```bash
 magnet:?xt=urn:btih:E90D2B8FE710AEAA746844590DF6F0E83BA30591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Lost in Random: The Eternal Die объединила динамичный экш
 ```bash
 magnet:?xt=urn:btih:7AA6C220C8DA0289C2ECAEDBD5CB9B44E449E9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Kao the Kangaroo (2022) [Ru/Multi] (Build 11272397/dlc) Repack Let'sРlay [Anniv
 ```bash
 magnet:?xt=urn:btih:D45D0729912C06CCE2AFBBE6F9E2147D5E4E744D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

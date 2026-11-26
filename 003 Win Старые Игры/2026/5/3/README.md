@@ -19,8 +19,7 @@ FlatOut - динамичная гоночная аркада с видом от 
 ```bash
 magnet:?xt=urn:btih:01BB6E6AB6D45A5CC9919202AC68FB7CD842F7A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FlatOut 2 (2006) [Multi] (1.2) Scene TiNYiSO [Enhanced Edition]
 ```bash
 magnet:?xt=urn:btih:8DCCC8BBA672D4DAA508FC7CA937A5EC5A4883FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

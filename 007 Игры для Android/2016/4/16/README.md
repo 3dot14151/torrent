@@ -19,8 +19,7 @@ Perfect Angle v1.6 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5BF5CFEA5C1E288973826A032E2EA01DDA6C7DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

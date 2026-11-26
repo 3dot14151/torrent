@@ -19,8 +19,7 @@ War Wind (1996) [En/Fr/Ge] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:0CCD5B0F13D7DDEF75FFB25B2AA1F39904537C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

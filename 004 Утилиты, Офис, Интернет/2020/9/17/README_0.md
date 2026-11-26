@@ -19,8 +19,7 @@ Smart Game Booster Pro - утилита, которая автоматическ
 ```bash
 magnet:?xt=urn:btih:8A06CDB25C7FD938EDF036B54E32DE3F3253A3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

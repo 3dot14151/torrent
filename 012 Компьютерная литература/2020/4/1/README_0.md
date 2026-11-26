@@ -19,8 +19,7 @@ Wale Soyinka | Linux Administration: A Beginner's Guide, 8th Edition / Адми�
 ```bash
 magnet:?xt=urn:btih:52F1FF8D4C74A9A45C556CC1A43ADCBCFE267787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D176BD00829A111A53B78124443B465F2BBBEF10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

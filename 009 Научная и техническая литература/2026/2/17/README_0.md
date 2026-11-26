@@ -22,8 +22,7 @@ Sylvie Pommier, Yves Berthaud | Mécanique Générale (2010) [PDF] [FR]
 ```bash
 magnet:?xt=urn:btih:62DADF3D302C94404A62172659E5FFC61AE1015D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87E9A4AF8775E58C3C7E2B3C024432E3AAABD95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ André CHEVALIER | Guide du dessinateur industriel (2004) [PDF] [FR]
 ```bash
 magnet:?xt=urn:btih:C72B457BD97A300A4DF0C1ED64EEF02E9CE9DF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A7C134309DDAFA5BCA7397EEC26F59EABC37A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D06A82F6AA81E9F4ACEF336D9ADD6774221EEF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

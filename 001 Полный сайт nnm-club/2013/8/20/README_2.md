@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:3BD99339103C6CB560FC6A15B87752593C43FF4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Dana Fuchs - Bliss Avenue (2013) [FLAC|Lossless]<Blues Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:1705B997FDAE0BCD56F0497E606D98F936DDF60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ KAWAII LADIES 8Разрешение файлов: 1500x1000-3249x4599Форма�
 ```bash
 magnet:?xt=urn:btih:8F862BDD6288630C61EEC095506DFF137CD453AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F71EAF198FD67D5AC89ADC1AAD349EECD7FD3A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Alpinestars - White Noise (2002) [FLAC|Lossless]<Synthpop, Electronic>
 ```bash
 magnet:?xt=urn:btih:2A7247C30D1A029A4117FE8DEB841BD81408370C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C98A4B4246B94FE2ECF998F22852376F3F613698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9AC934A0EB90DEF1841125CE0020F46765CD9516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Toolwiz Care - это очень мощный набор всевозможны�
 ```bash
 magnet:?xt=urn:btih:FB9C65290EBA6CCA07C2BFC3B2342E1F67B763FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ OCRKit представляет собой простое и рациональ�
 ```bash
 magnet:?xt=urn:btih:1446AF3106050B563213C379394AAE1367423743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9476331795A934DC7805B3F52BDC0C033D563A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ Break My Fucking Sky - final breath (2013) [MP3|320 кб/с]<Atmospheric Post Ro
 ```bash
 magnet:?xt=urn:btih:E2746D6C940607B3D6FB04A4CFA82FFF84F117A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +393,7 @@ Ladytron - Gravity The Seducer (2011) [FLAC|Lossless]<Synthpop, New Wave>
 ```bash
 magnet:?xt=urn:btih:0B1741261320F66634FD7ED3814A655777ABFD6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0497B96FC945DC1CEBE732617067C6B37296215B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03D8E72402F37EA0C0E19FDB2CA701F3166EAD76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF2A548CAF2BDC1809E291D2372020A979CC4826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B44028967845D0682F41CC0F239077A333312347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ B5. After Midnite :: 03:34Жанр: Hi NRG, Synth-pop, DiscoФормат: Vinyl,
 ```bash
 magnet:?xt=urn:btih:3C0D8EEE8A61228B37765B04C0B147A7ED88E969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ Born of Osiris - Tomorrow We Die Alive (2013) [FLAC|Lossless]<Progressive Metalc
 ```bash
 magnet:?xt=urn:btih:85E5DDC029B3DFEA74615EEFDC797A07D5C95423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:369498928DF030EA22F6645A0373DCF1635EEBF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ Hans Christian & Harry Manx - You Are The Music Of My Silence (2012) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:092829E14EDD5972D82CF8774DD86E83A9B9F70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7836CFEB50EDEB3B8B9FBC93554940FB3E929669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +684,7 @@ Bryan Ferry - Boys And Girls (1985) /W.German Target CD [FLAC|Lossless]<Rock, Po
 ```bash
 magnet:?xt=urn:btih:01DC4F0029D550306CE224E0ED34ECA4B3802C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:891252BE2C448B6BB506EE605E0363CB1C84C6A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +735,7 @@ Digital Art (19.08.13)Разрешение файлов: 490х800-5366х2965Фо
 ```bash
 magnet:?xt=urn:btih:DD5A870204E1528BCE33FE1896719A3BEB159D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

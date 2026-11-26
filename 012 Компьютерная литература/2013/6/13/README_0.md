@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ED1D85D92EACCB2593434F694D5B2BA0BC815D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:132D52EE2C02E456C8815CB93AFEE0AAFAEEF010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ D. Beazley, B.K. Jones | Python Cookbook, 3rd Edition / Рецепты Python, 3
 ```bash
 magnet:?xt=urn:btih:B8D4A572B6F6D29275CD38C6CB0255EA517ACA39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

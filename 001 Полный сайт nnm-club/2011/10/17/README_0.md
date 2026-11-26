@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:C832820AE5084E1735C7C5551015328288243624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ VA - Хит Парад от Europa Plus (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:AD3FD192273A9A81F22A8A3D79AAD236A7429C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - Муз-ТВ Хит Часть 3 (2011) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:0C71635D21A2A5EFBE08CB60000554977B3F101F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ VA - Лучшие Хиты MTV Часть 7 (2011) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:63C46A98C6ABD93694D269ADDA9492281EDEBFB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D660B367658B955D603892C3D7FFB7626E01CCD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:416E4E606B8B1AF21B5BBD25D5D22360BC5C847F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:541BD51F51123BD5D0DAD6D30AE67F43DBEFA471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ Lunatic - Uplifting Memories (EP) (2011) [MP3|320 kbps]<Uplifting Trance, Nitzho
 ```bash
 magnet:?xt=urn:btih:EB724E24F75C73CADB289807E24CBBD359AD985F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AEFAAEEB6DF6B151722783A4F1112415AE56259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DB0701595421771076F0275C13FA59EE92EB1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ VA - До 16-ти и Старше DFM №40. 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:FB54FE96E9C4FFCE104D7EEF4A4DBCFCAD9B04CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ VA - Москва Златоглавая №5 (2011) [MP3|128 kbps]<Шансон
 ```bash
 magnet:?xt=urn:btih:F8F38AAB10938F14A182D5DFCA694BADD54D176B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +374,7 @@ Abstract HD Wallpapers
 ```bash
 magnet:?xt=urn:btih:B2D9FC8B0652F9D51947BC551A08E2456522BFC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ VA - Best Of Disco (2011) [MP3|192 kbps]<Pop,Disco>
 ```bash
 magnet:?xt=urn:btih:7BED9371627493C6F9C6F023EDAB525696B70B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7A7A5A542AB2806494B92640B9E20547BDCCC29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F54148CC69B2F6665C17952DE608EEFE32CB1AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ Vishwa Mohan Bhatt - Guitar a la Hindustan (2004) [FLAC|Lossless]<Ethnic Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ VA - Романтика Шансона. 200 песен (2011) [MP3|128 kbps]<Ш�
 ```bash
 magnet:?xt=urn:btih:393873EF01C953480BBD4E16B3BC890087C851FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ Lynyrd Skynyrd, Free, Status Quo, 10cc , City Boy и другие.01. Lynyrd Sky
 ```bash
 magnet:?xt=urn:btih:17B0BF284B99D993F6F83AEA8168964FECAB9914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ SolveigMM Video Splitter – редактор для MPEG-2, AVI, WMV, ASF, MP3,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ VA - Октябрьская дискотека на Муз-ТВ (2011) [MP3|256-
 ```bash
 magnet:?xt=urn:btih:1A1AF3878EF06A081625AE648BC8F84F0155ACFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ VA - Золотая осенняя попса (2011) [MP3|256-320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:CC4F4A5ED7EC5E14B0C973C3DEF609FFE642B7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0181A73ED62511C097CDC5408B60A8B827AA6FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCC06B666D3ED19D13D047FD2E8D09D397D97478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ VA - Над Запреткой Туман (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:8CCA375E310C4AF0101B225E1EA07649F4D07689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +771,7 @@ Games HD Wallpapers
 ```bash
 magnet:?xt=urn:btih:BEA859DD9C4B6225F38731F79D7B831CDA574E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

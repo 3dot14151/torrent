@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:21617191A7D5A59159CCA8385F5F6213869D36F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ochre - Beyond the Outer Loop (2017) [FLAC|Lossless|WEB-DL-24Bit|tracks] <IDM, T
 ```bash
 magnet:?xt=urn:btih:C6D32D1414C5C9093896C8048931AD5124A20AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71A9DA42552B160B26BD541086A0CCB75FCF7A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Stella no Mahou | Magic of Stella | Магия Стеллы [2016, TV, 12 эп.]
 ```bash
 magnet:?xt=urn:btih:0C83BD0BE45F7987FED18851894E84740E94D3BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:356CB03876AA9CBC3B70B929581F4EEC42CAD139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A73C8085889261506058523A8F39438CDC121A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C923C93169D4C6320E62DFED235721913BD3600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ MODO является полным решением для исследован�
 ```bash
 magnet:?xt=urn:btih:0275D295CC0F781BF042C158B7FE5311E9B5062D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Auslogics Disk Defrag - программа, призванная помочь и
 ```bash
 magnet:?xt=urn:btih:777E83FCDEB466EBF72069071C00668F21730263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A10D1D48BDA0AE1E438FC308C30F82EDBDC18ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67E15A2E0896C8AA61B171A86E4695B34390B195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7F709DF13BD6DEBCFE11E37106B9D647DBE0738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Www.Working!! | Www.Wagnaria!! [2016, TV, 12 эп.] HDTV 720p Hi10p raw
 ```bash
 magnet:?xt=urn:btih:6A938E6060B0DABA39EE9C2AF429F0C318D33397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BC0B8F3F6A71FA7BFF761AADDF5E2AD44945B0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3422D50C9B91EE3EAD1F859A4906B2E459984694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
 ```bash
 magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ R-Drive Image - утилитa для создания файлов образа 
 ```bash
 magnet:?xt=urn:btih:82D91AD416ADEFC7266EA3567D69B410829858FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ LiLA'c Records - 31 альбом (2009-2016) Touhou Vocal /Doujin/ [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:A9DE1A4C3A98745DEDC95779AC520485A7B5AD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ EastNewSound, instrumental part - 17 альбомов (2009-2016) Touhou Instrum
 ```bash
 magnet:?xt=urn:btih:907CA31BCB4414C604B9C129F15DFF4EBB0F3EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ Rooftop Matchups - представляет собой пакет из высо�
 ```bash
 magnet:?xt=urn:btih:9F2FDEC12EC0F596894457644BF4D619B2E77D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ ViVid Strike! | Решающий Удар [2016, TV, 12 эп.] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:45138099B530FBC201B715DAE6E0E56889C0C798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ Hibike! Euphonium 2 | Sound! Euphonium 2 | Играй, эуфониум! [ТВ-2
 ```bash
 magnet:?xt=urn:btih:91944B3C090156768DFAE8A80AA91C59EF163EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:114A5EE6211C016EDAB2AD2A9E808F17F56CBCE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:762369797B540B32AF3133B20A3BEF2E25C5A8CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +661,7 @@ Rhinoceros (Rhino) — коммерческое программное обес�
 ```bash
 magnet:?xt=urn:btih:CB1EEECC78B3E13195B54F9829573534FBBCC4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

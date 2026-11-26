@@ -19,8 +19,7 @@ Field of Glory II (2) (2017) [Multi] (1.6.10/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:AAA9D1CA03718B396FA3FA4373C37DC03DB78965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ys Origin (2012) [En] (2024-01-08) License GOG
 ```bash
 magnet:?xt=urn:btih:3D7EEAC22A39CC32777B7300F7B11FC48474935F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Despair: Blood Curse — выживание в жанре ужасов. Вид �
 ```bash
 magnet:?xt=urn:btih:357A88524D8D10BFC662198591DB5AE4A4D1A30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Unstoppable погружает вас в самое сердце леденящ�
 ```bash
 magnet:?xt=urn:btih:F8410D24430862DDE4842540FF40AB029878A5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Progeria: Vae Victis - визуальная новелла, созданная �
 ```bash
 magnet:?xt=urn:btih:DEF3E0265D4807CB5933A5FF1816F56B9E22492D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Baldr Sky - визуальная новелла в аниме-стилистик
 ```bash
 magnet:?xt=urn:btih:70CDF079E4A27242CA3E8BFF5BF8DC4EA0DDFD82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Unsolved Case5: Killer Popularity / Нераскрытое дело5: Убийс
 ```bash
 magnet:?xt=urn:btih:E7047A91249C2DC90EC39FD15DD2BDF98F2A41DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Crossroads 3: What Was Lost / Перекрёсток 3: Возврата нет 
 ```bash
 magnet:?xt=urn:btih:16FE845F4C59C6509D3355A86AB50BDFA1C297D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Connected Hearts 4: Cost of Beauty (2024) [Multi] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:5D33C2D75B122F3AB8F2EFAFE1847E77773B8FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

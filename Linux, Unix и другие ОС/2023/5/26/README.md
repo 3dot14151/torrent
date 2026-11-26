@@ -19,8 +19,7 @@ MATLAB – это высокоуровневый язык технических
 ```bash
 magnet:?xt=urn:btih:1F506203185DB1AF4EED2662E354A1753ACBBC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

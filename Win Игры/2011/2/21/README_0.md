@@ -19,8 +19,7 @@ Magic Sweets / Волшебная кондитерская (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:8E80504FC2A68CB80E77086C93902E4151DE18D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Delicious - Emily's Childhood Memories Premium Edition (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:DFF9DD85A21AFF923CEDF2A49245B2E49D819FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Dive To the Titanic [En] (L) 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

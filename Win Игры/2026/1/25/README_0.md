@@ -19,8 +19,7 @@ The Book of Bondmaids (2021) [Ru/Multi] (Build 18042732/dlc) Repack Let'sРlay [
 ```bash
 magnet:?xt=urn:btih:2E17D18C6D2451AB896331E9AE75E9CC802CDA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Book of Outcasts (Книга Отверженных) - это продолж
 ```bash
 magnet:?xt=urn:btih:3615D6AFB53293F2DAC5BD9CD122D02263106DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:56CF75A24F49B4ADA4F29AEE03E6A8FCF78696E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ StarRupture - игра от первого лица, где вам предст�
 ```bash
 magnet:?xt=urn:btih:A0CDDE6B0DF59929E5ADDB7F72DBC6B0E9709BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ PC Building Simulator 2 - продолжение затягивающего и �
 ```bash
 magnet:?xt=urn:btih:A986C04728D1106674AC01E05CD6B338CB390FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack Pioneer [Pilgrim Edit
 ```bash
 magnet:?xt=urn:btih:478EE7C5764589FA459AEBE818C07483DEC122A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dead Space (2023) [Ru] (Build 10602756/dlc) Repack HardwareMining [Digital Delux
 ```bash
 magnet:?xt=urn:btih:0894F1C10C95DC986050D0E295D70D126E7981EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack FitGirl [The One Who 
 ```bash
 magnet:?xt=urn:btih:26BB0DEBA0FBFE9232EAD1E41460BDB4ED026005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Foundation: Новая эра в средневековых строительн
 ```bash
 magnet:?xt=urn:btih:C45A3AD3CCC86174B982FC559679C7A19F4F4829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Tennis Elbow 4 - это продолжение Tennis Elbow 2013, признан
 ```bash
 magnet:?xt=urn:btih:90FCC8C35E0BE9AB9B934EE705FF1E30D7E6595B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Tennis Elbow 4 - это продолжение Tennis Elbow 2013, признан
 ```bash
 magnet:?xt=urn:btih:67C691F4FEDE3B5D2ABC0D3761B7EF6ABDD4E5DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Quarantine Zone: The Last Check - симулятор сотрудника кар
 ```bash
 magnet:?xt=urn:btih:73AF7DF2D8FEC1279F9825C98A2DD39E6518DC80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

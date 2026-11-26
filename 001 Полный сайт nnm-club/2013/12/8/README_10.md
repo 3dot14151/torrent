@@ -18,8 +18,7 @@ Rogero CEX 4.50 v.1.01 + multiMAN 04.50.04 FULL [PS3] [Ru/Multi] (2013)
 ```bash
 magnet:?xt=urn:btih:333BA214F0D522A25DB3D6390B6BC226AF745CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Portal 2 (2011) [Ru/En] (2.0.0.1/2dlc) SteamRip DWORD
 ```bash
 magnet:?xt=urn:btih:B566E1331FABCEC9B2CDC65F53CEB3E845D2693D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

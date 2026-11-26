@@ -20,8 +20,7 @@ Prince Of Qin [Ru/En] (P) 2004
 ```bash
 magnet:?xt=urn:btih:CEA05B67A1A5885AF7DE7C8E1C7C8A415479DDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Ark of Time [Ru] (RePack) 1998 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Urban Assault (Rip) [Ru] 1998
 ```bash
 magnet:?xt=urn:btih:38E08BF19F6AAA1F0679B65ED7E45C3FE2637178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Micro Machines и Micro Machines 2 [En] (RePack) 1994-1995 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

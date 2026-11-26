@@ -19,8 +19,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack FitGirl [Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:9816BA47B5757511AF120E19C4D54C0774071CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Far Cry 3: Blood Dragon - футуристический шутер с видо�
 ```bash
 magnet:?xt=urn:btih:96C14096FDEF5855928D411906234F4435E31C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pine Hearts (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:99CFB79C72B4BBFDCDE8FD99122EAC0AC99EF6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hotel Business Simulator ставит вас на место владельца 
 ```bash
 magnet:?xt=urn:btih:2E8E565805ECD532070B469217CD4C7DE553C548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:606D20DC8F319F4866242327221AA080FC25CD8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Isles of Sea and Sky – стратегическое приключение с 
 ```bash
 magnet:?xt=urn:btih:0B2CF8C617AFF0B66E5CFCFE9293DD0ADCB007F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tamarindos Freaking Dinner – это невероятно яркое, мест�
 ```bash
 magnet:?xt=urn:btih:B046486B7C03D3987E7C68D4ED3F7E99BB5BFC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

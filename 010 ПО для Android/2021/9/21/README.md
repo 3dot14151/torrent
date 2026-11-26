@@ -19,8 +19,7 @@ MultiNotes v2.10 [Ru/Multi] - удобные Заметки с напомина�
 ```bash
 magnet:?xt=urn:btih:03E221BC79C7CAB14F9B99538EB355A5B4C9BE47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BE8417177EA3381B9A4EFC066116AE76C4F4E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Opera 58.0.3135.79 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4C927637430E6CCCA73C89D54FD41D7D74B321D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Seasonality Core - превращает ваш Mac в домашнюю мете�
 ```bash
 magnet:?xt=urn:btih:8BD929D7A96B48C962B7B67176A3C1152E76D443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:235FFF48CB8122B0CA8AFC5B7A585D63C9F40885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2D38B699C36D1181F913DA5DF02469A4EC6BD18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VA - Romantic Vocal House (2019) [MP3|320 Kbps] <Vocal House, Electro>
 ```bash
 magnet:?xt=urn:btih:2AE9734E26F70C970B8059B90ED66D4DFAB73866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ VA - 20 Best Of Brazilian Capoeira (2019) [FLAC|Lossless|WEB-DL|tracks] <World, 
 ```bash
 magnet:?xt=urn:btih:9FEB51035559FF56E28FC43BD23135BC21062E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EDC277E642C9073D7E19701C25FFE2ACED469CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Chaka Khan - Hello Happiness (2019) [FLAC|Lossless|tracks + .cue] <R&B, Jazz, Fu
 ```bash
 magnet:?xt=urn:btih:077C79421B97E6B8525A43BCCAB6BE7479CE594D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Weezer - Weezer (Black Album) (2019) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:C1385096B982FD4B774B6EC94226DD5650DBE77F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ VA - Options Remake Of Tracks February -B- (2019) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:5E415C390719E60F62019C6F03F93CB9EC737224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5F1DF6B4023E087795B3B2C06FFF589E07066E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Amadeo - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:233BDDA5F7CC270ABA9615F90B23398625BBE289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC9BA1A8CC10AFFE2143DC1B19ADA795A66C8BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4B041154B6DCBC2ED2F1C65DC1DC44FC67E1D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ NGW. Человек против пумы / Man vs. Puma (2018) HDTV [H.264/1080
 ```bash
 magnet:?xt=urn:btih:12444079820FCDB86F47C62E76529A6BD336E86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5D36A3CF3BED2C2CF423AD68770CA1E042D68BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84D6E3593B2EEB585E10FB007C3BDC1D52D2D2A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 6 (1990) [FLA
 ```bash
 magnet:?xt=urn:btih:F43C24CC7767FC64943BB14D2807763F45A5639F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Scotch On The Rocks - The Songs Of Anfield Road (2002) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:2035890401F2CFA411BE311B28BF8787FC466EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ Lika Star - The Best (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1532FC93C006BBEB05BD7ECCACDB7EA8AB151D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B704BE0C2CD6042C67B1B8B08CCE0A53BAFDC04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:28D7D9ED0391942A83FBBDABC7547318FB5DBED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [FLA
 ```bash
 magnet:?xt=urn:btih:C807FC1A5FD955CBA403183BF156487354C1EDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 9 (1994) [FLA
 ```bash
 magnet:?xt=urn:btih:F96E499538262FF9B90571E3F36F0B56A306081C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ NGW: Власть царицы / Regime of the Queen (2018) HDTV [H.264/1080i-LQ
 ```bash
 magnet:?xt=urn:btih:5BC89040DB0F0DADC0FA4C5CB1CD5FEA7895443B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ Finished Touch - Need To Know You Better (1978) LP [MP3|320 Kbps] <Disco, Soul, 
 ```bash
 magnet:?xt=urn:btih:D3ABA2B2583ECD325FFBDDB4B767E3A2FAF6BCD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

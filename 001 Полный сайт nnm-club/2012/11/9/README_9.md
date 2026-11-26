@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:117EC41CDF62ACC2AB909469617A43B7955DD8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ NBA 2K13 является продолжением серии баскетбол
 ```bash
 magnet:?xt=urn:btih:D41B2175CBFCF3EC0044699FA25BA77E2CE274A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F489DDE7D2CFD75EF343B381C278CE1534CE6134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Double Dragon Neon [PS3] [ENG] [NTSC] [3.55] (2012)
 ```bash
 magnet:?xt=urn:btih:5B5814E1EFCDD0EAD3E62869FC67F3C7FCA772C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Chrome, Internet Explorer, Safari и браузер операционной с�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ NBA 2K13 является продолжением серии баскетбол
 ```bash
 magnet:?xt=urn:btih:21129FD85AB0AB465870F64E50FD36C4DD9F161B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65F0E24F6132E7360E03064B15EE5A906317B1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Gyo / The Fish / Рыба [2012, OVA, 1 из 1] BDRip 1080p 10bit raw + rus
 ```bash
 magnet:?xt=urn:btih:87BB1B67FA7C3815E6BEEB7FF341531364C4823B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DED7FF27E8A9BDD54CC57B2D1A45A19D9638527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Into the Dark - смесь Action и RPG. Добро пожаловать в к�
 ```bash
 magnet:?xt=urn:btih:9E180091CDCA1BCA6E4F508655ECB6EBCB4A8A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671.iso.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Total Commander Podarok Edition Extreme Pack v.27 - навороченый Total
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED5346413C4ADDE7DAF1C6066BDD930297781E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Grand Theft Auto: San Andreas (2005) [Ru/Multi] (1.0/1.01) License HOODLUM/DEViA
 ```bash
 magnet:?xt=urn:btih:889604407B7D71ADCC05FFAAB093E8A25C43538A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

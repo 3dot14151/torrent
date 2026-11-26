@@ -19,8 +19,7 @@ Counter Action / Противостояние Дилогия [Ru] (RePack) 1996 
 ```bash
 magnet:?xt=urn:btih:85E00F4225E7DD0739ACA71C00F5CA970309A3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

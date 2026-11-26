@@ -19,8 +19,7 @@ RIDE 4 (2020) [Ru/Multi] (2021.02.08/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:B08AC3505AC547F1433C8CB6CE68B92DD08237CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sword Art Online: Alicization Lycoris – новейшая игра по мот�
 ```bash
 magnet:?xt=urn:btih:7781CFA365A098537C4A6633D4C7E50540535765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

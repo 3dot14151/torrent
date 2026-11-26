@@ -28,8 +28,7 @@ A War Within - Sons Of Saturn (2014) [MP3|320 кб/с]<Alternative Metal/Post Ha
 ```bash
 magnet:?xt=urn:btih:EFC287D70A03D7177EB66A31E25F2F1369671C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Vastum Silentium - 2 Альбома (2011 - 2014) [MP3|320 кб/с] <Pagan Metal
 ```bash
 magnet:?xt=urn:btih:3CCDB084FEC2F39AC85BFA136EEFA5EBDE3F1F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Chasing Safety - Season Of The Dead (2014) [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:4CE331297C4141C728E5EEDF41A22C114176096F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Dr. Z - Three Parts To My Soul - (1971) Reissue, Papersleeve /2001, Vertigo, Jap
 ```bash
 magnet:?xt=urn:btih:2FAE61EA41F038779AA34A89065D3E4659FD1535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Albums, EP:
 ```bash
 magnet:?xt=urn:btih:F7B4D3E7FCBA921A9B628BF8E0972CFF8A6C3C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Project NT - Истории Темных Времен (2014) [FLAC|Lossless]<Neo
 ```bash
 magnet:?xt=urn:btih:F93E2A6E05C525F5258F2D600D34A565BB38DA1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Gotthard - One Team One Spirit (2004) 2CD, the Very Best [FLAC|Lossless]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:490FA1E46E3EAFB305D653F4F78687E42FE98412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

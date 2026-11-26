@@ -18,8 +18,7 @@ Minecraft (2019) [PS4] [EUR] 9.00 [HEN] [License / 2.35 / DLC] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:18AFF20DED3CBC867E4FF6663D44E220A3713159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

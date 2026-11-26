@@ -19,8 +19,7 @@ Beyond Hanwell - это насыщенная, детальная и атмосф
 ```bash
 magnet:?xt=urn:btih:C8E37F4321015A64A584470579F369D4126601F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crysis - первая игра в популярной трилогии, дух�
 ```bash
 magnet:?xt=urn:btih:DDAA0B94125E0A7C1B3CDCDE6BDEC764ABDB6E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9528AE775CA35C50AC98D192B2A81EBA9B3036C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Flintlock: The Siege of Dawn с головой окунает вас в огро
 ```bash
 magnet:?xt=urn:btih:0A7DB438074D09C50A59978DEBB8C689364E8381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Psycho Fear - это захватывающая головоломка-квес�
 ```bash
 magnet:?xt=urn:btih:E5C7E45219DBDE0011BE46FC37D46C73C3449ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Satellite odyssey: Рrologue - открывающая часть серии иг
 ```bash
 magnet:?xt=urn:btih:99322182EAAD2451E89EE4AFBFBEE84EFFC4D2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Yars Rising (2024) [Multi] (1.1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4300340189E2C6177977DDB0FBFCBBAE81569864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Space Prison бросает вас в холодную реальность га
 ```bash
 magnet:?xt=urn:btih:82E6B48DB36B3B250EC6F32343B0E87E6F18890E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

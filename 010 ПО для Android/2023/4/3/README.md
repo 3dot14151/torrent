@@ -20,8 +20,7 @@ FBReader Premium – Favorite Book Reader v3.1.5 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0B948831F53BDA7D884E7C50935F5E670C9ACE62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ World War I / Первая мировая (2005) [Ru/Pl] (1.0) Repack Chernobyl
 ```bash
 magnet:?xt=urn:btih:465AC1E498531F851BF8333B02FEC1D59BCEEE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

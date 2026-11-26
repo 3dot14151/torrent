@@ -21,8 +21,7 @@ Action Strike – это трехмерный онлайн шутер от пе�
 ```bash
 magnet:?xt=urn:btih:807C100CF08A0CC755A851458802B18E2F1BB87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

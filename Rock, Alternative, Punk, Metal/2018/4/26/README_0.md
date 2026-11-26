@@ -22,8 +22,7 @@ Ancient Lasers - No Photos on God Mode (2018) [MP3|320 Kbps] <Alternative Pop, E
 ```bash
 magnet:?xt=urn:btih:CA8547147145BCAC64078E9025D028EBB5EE6622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crystal Ball - Crystallizer (2018) [MP3|320 Kbps] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:09F542FCC41B4DAD5BDA8A855C56B4A2C23769F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Foreigner - With the 21st Century Symphony Orchestra & Chorus (2018) Live [MP3|3
 ```bash
 magnet:?xt=urn:btih:5DBE0E74D660094523CD9DCEFD6B5059316BA60D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ God Is an Astronaut - Epitaph (2018) [MP3|320 Kbps] <Post-Rock>
 ```bash
 magnet:?xt=urn:btih:9342083BD217CE76C544B5F34A837CCEE977AD13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Godsmack - When Legends Rise (2018) [MP3|320 Kbps] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:E7819D42E56E86603062B29F239E3178D91F3208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

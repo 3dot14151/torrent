@@ -19,8 +19,7 @@ Haunted Legends 12: Monstrous Alchemy / Легенды о призраках 12:
 ```bash
 magnet:?xt=urn:btih:B27A89852C8D1CE150DCA1068B6AB77339AD8401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

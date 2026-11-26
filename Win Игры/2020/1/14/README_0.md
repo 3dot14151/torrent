@@ -19,8 +19,7 @@ The Veil of Mystery. Seven Little Gnomes / Под покровом тайны. �
 ```bash
 magnet:?xt=urn:btih:06F7BAD1280E20D517B8DDBBDF7B8FFE53D45391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

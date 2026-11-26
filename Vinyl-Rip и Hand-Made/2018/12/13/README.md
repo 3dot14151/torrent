@@ -22,8 +22,7 @@ A4 Corner Of The Earth(   Читать дальше...   )Жанр: House, Acid 
 ```bash
 magnet:?xt=urn:btih:4C017953E84009F13E93D17A092D979D4F157CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Ж. Рождественская - Запомни(   Читать дальш�
 ```bash
 magnet:?xt=urn:btih:8D4D8798B61275A39832BD010DF7D9D0A66C59E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A3 Тихо Несет Вода(   Читать дальше...   )Жанр: Ele
 ```bash
 magnet:?xt=urn:btih:C79CD65CB638DEB9C2533F3F92EA9270B7BA4A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episodes 1-2]
 ```bash
 magnet:?xt=urn:btih:606E4377289A131E953031EC605011BED43DE50C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

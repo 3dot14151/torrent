@@ -22,8 +22,7 @@ Jay-Z / Linkin Park - Collision Course (2004) Brazil, 936248963-2, AA0050000 Pre
 ```bash
 magnet:?xt=urn:btih:D7C17E36F6047FB8295209DC8100C837DDBB32DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Linkin Park - Recharged (2013) Brazil, 0093624941606, AB0003000 Pressing [FLAC|L
 ```bash
 magnet:?xt=urn:btih:7A1F0F9A869B9DD0D32A139112414A0C2CE69A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Linkin Park - Songs From The Underground (2008) Japan, WPCR-13468, 2009 [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:B3670C031775E29673AF605F4C8AC1785C39E35C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Alter Bridge - Alter Bridge (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Altern
 ```bash
 magnet:?xt=urn:btih:D0D1E137BAC85D0971F0621DBF64386ABF465854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Petra - Hope (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:E837D383850C71A59922B53552FC98DC5644F90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

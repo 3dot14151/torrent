@@ -19,8 +19,7 @@ Fatal Evidence 3: Art of Murder (2020) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:331366D5538D5CA0A1147FE5DF39C1F2132DD8FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

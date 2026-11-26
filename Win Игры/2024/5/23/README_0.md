@@ -19,8 +19,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.1.361/dlc) Repack Decepticon [Ju
 ```bash
 magnet:?xt=urn:btih:BC5E9BB8901FECBD4BEC01D2CCB7F393EB977BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Morbid: The Lords of Ire - продолжение игры Morbid: The Seven Aco
 ```bash
 magnet:?xt=urn:btih:3723CCBAE6D647E06ACD2E596AE50125C34AF208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.0.0515.2048/dlc) Repack seleZen [Direc
 ```bash
 magnet:?xt=urn:btih:AB42A94D9A61DAC9F6B9752286F9BD7D266D0165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Back 4 Blood (2021) [Ru/Multi] (20240515/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:16DD75361F1E8D860B4FDB932232E1A944CE7EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ BroodStar представляет собой аркадный шутер с rog
 ```bash
 magnet:?xt=urn:btih:398787AC8AAD30F8E70B6D9F20C6858CCA878CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Turbo Sloths – это гонки, использующие научно-фан
 ```bash
 magnet:?xt=urn:btih:326B134636EEE711FE5188F3AAA9DE848D44432D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:49AFCE858437A41D67C3B987B506E4DF323F7C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Venture to the Vile переносит геймеров в загадочный 
 ```bash
 magnet:?xt=urn:btih:C4956F092766A7874EDC619F7119904100CF7A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:72A8A2FF38C3DB8A2812E35B340884B0664CBCD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Venture to the Vile переносит геймеров в загадочный 
 ```bash
 magnet:?xt=urn:btih:36641483E171062677CEA2CD19847C5D6FC30317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

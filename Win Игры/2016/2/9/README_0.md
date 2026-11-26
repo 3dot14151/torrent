@@ -19,8 +19,7 @@ Lucius II: The Prophecy - трехмерная хоррор-адвенчура, 
 ```bash
 magnet:?xt=urn:btih:142CDCBB00563511F0B5307A25EC07D6C8FDCA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

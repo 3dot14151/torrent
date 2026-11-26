@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:428C6D6096F33F60FD90EC1F99CAE74E9F5C997E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Vestiges - 1 Альбом, 3 Split (2010-2013) [MP3|320 кб/с]<Post Hardcore, 
 ```bash
 magnet:?xt=urn:btih:524B3631BC8056A008BEE1A1D419811426545800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Ifing - Against This Weald (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Fol
 ```bash
 magnet:?xt=urn:btih:8EDD25AA10A4DF434D4681347DDC8A86564B976E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD8AF196ED904D45F3EB823965E7051CC33C6D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Kyle Jester - After All This (2014) [MP3|320 кб/с]<Electric Blues>
 ```bash
 magnet:?xt=urn:btih:A1FA477080620911A7FB7CF60B41FB9D4C9463B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ VA - Vocal Trance Temptation Volume 35 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:754E99703F505D19F8162A0613CEE34B03E4AB50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0AD15E84E2B2DB835550D9FE632721FD42CEEC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ In A Mindset - Compartments EP (2010) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Indus
 ```bash
 magnet:?xt=urn:btih:9F1030C759E83C6FCBC070ED8EF64713CCC3A708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ Buddy Guy - Living Proof (2010) [MP3|320 кб/с]<Chicago Blues>
 ```bash
 magnet:?xt=urn:btih:80144D83C4C888650831E9DBB99032B92398C496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ Travel Channel: Чудеса планеты / Earth Wonders (2010) HDTVRip (Се
 ```bash
 magnet:?xt=urn:btih:EA55A911ADBAF7C2791896FE32A80F7C1E20903C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:385FC3EFC25153E8D6422732533516B945A86740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ VA - Vocal Trance Temptation Volume 36 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:20857EE93C5828260A98CB44C86F0927E668A58A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76880CFB2EEA6E693FD2CC47F91A3FD3CFC639BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +421,7 @@ Colt Ford - Every Chance I Get (2011) [MP3|320 кб/с]<Country-Rap, Southern Co
 ```bash
 magnet:?xt=urn:btih:B783E2842C4E5B729B18B5B166F1711A7B4CC55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F85F5A87C315B2F017A21989073675C57F715196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +482,7 @@ Dysk-1:
 ```bash
 magnet:?xt=urn:btih:7CAF66707A7458252F9D96A84F0C80071CD1886F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ Akentra - Alive (2014) [MP3|320 кб/с]<Melodic Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:EBD1389ACA8E81EB930AA538F6FD2672DA1E150B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ Hierophant - 3 Альбома (2010-2014) [MP3|320 кб/с]<Blackened Crust, Dar
 ```bash
 magnet:?xt=urn:btih:53C9BACBA7F421118DB5F868457C754FF05E820A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41039DA7F309694D83E128167F2B012F781F9275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8B49FEB5605A15A0F46C0C3BAFAD3DD0A39C3AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FDE7C7322728FE10EAD05EEF4427CE809635AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ Csemer Boglarka Boggie - 4 альбома (2013-2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:E444913218AF04B61B6FF2D8489192BBA4F0C5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C046912D69F50700BE1D4FDC389FA48198807D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ VA - Paris Musette Vol. 1 (1990) [MP3|320 кб/с]<Jazz, Gypsy Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:44AB764A7B05B636CD604BB0A46D267D2667387A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ Slam - Reverse Proceed (2014) [FLAC|Lossless|WEB-DL]<Ambient,Techno>
 ```bash
 magnet:?xt=urn:btih:255C98C2B9D12C2E0C7A1BD4DCB44AA2BD5ABA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

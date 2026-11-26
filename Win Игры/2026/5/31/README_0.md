@@ -19,8 +19,7 @@ Luna Abyss (2026) [Ru/Multi] (Build 1295, 1292) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:E79A24D88BAC9BC679E098310FDD829501DD40F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Fall 3: Lost Souls (2009) [Multi] (1.6) License GOG
 ```bash
 magnet:?xt=urn:btih:AB320F0B6876BDCA97CB1020FF8C7C28E3854DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Airborne Empire - это уникальный RPG-симулятор градо�
 ```bash
 magnet:?xt=urn:btih:67C01117204B9F906798FCCB9164ECDFBBE76436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Necrophosis приглашает вас погрузиться в мистиче
 ```bash
 magnet:?xt=urn:btih:31E8C3045CF51FFFC35CCC61728370EE0307F9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cheap Car Repair (2026) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CFE68BDE1E33CA1D5A7A13C6F27D77606E184E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Phonopolis (2026) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:7C5D62E856F5AB02192015A87ACC504BDF45C933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Life Below - это свежий взгляд на жанр градострои
 ```bash
 magnet:?xt=urn:btih:CDA3F4F841AAC3ACF0E4451FAAFB63B126BBCF5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ It Reaches - это хоррор от первого лица, снятый че
 ```bash
 magnet:?xt=urn:btih:57004AB827BAEFC698EBDED28F5A5F363A5241E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Shooting Range Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9E11BCF7596212104F7B811E52B2550CA602728B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Battletech - это пошаговый ролевой экшен с робота
 ```bash
 magnet:?xt=urn:btih:0FB554137D9D6CDF27AFEA4C2F3EA6ACFB6EA600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Mafia: The Old Country (2025) [Ru/Multi] (Build 20951841/dlc) Repack Other s [De
 ```bash
 magnet:?xt=urn:btih:E5BBA51A637F65107088FFD4EB45D6779C37452D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

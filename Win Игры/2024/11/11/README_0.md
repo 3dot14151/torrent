@@ -19,8 +19,7 @@ Dustland Delivery - это постапокалиптический бизнес
 ```bash
 magnet:?xt=urn:btih:DBE53C6C835BB637F8017802C9064934D1B90688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Strategic Command WWII: War in Europe (2016) [Multi] (1.30.00.01) License GOG
 ```bash
 magnet:?xt=urn:btih:9E410815452436B52256B8C0F811B9C20C041B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Demonologist - это кооперативная игра ужасов, в ко�
 ```bash
 magnet:?xt=urn:btih:0A60C956175F87C6FCB464913518371F0F7734AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Call of Sentinels (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A4609AFCBE2226A4696217DD3F90F073CF2B2896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

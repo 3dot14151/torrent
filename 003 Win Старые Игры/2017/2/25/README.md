@@ -19,8 +19,7 @@ X-COM: Interceptor (1998) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:82E0651E8560E0762860AAB1AB7770CF38F0801B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

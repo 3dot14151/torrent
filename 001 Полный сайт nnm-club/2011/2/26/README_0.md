@@ -27,8 +27,7 @@ VA - Progressive House Collection 25 (25.02.2011) [MP3|320 kbps]<Progressive Hou
 ```bash
 magnet:?xt=urn:btih:C847641A6263AF00879157DAEE4A2836E3240C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Lowrider GIRLS - журнал с красивыми девушками от Lowr
 ```bash
 magnet:?xt=urn:btih:A554E7D802343EC9D9C6A7D0A7A7B30D97E14105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ NG: Древние мега-цунами / Ancient Mega Tsunami (2009) HDTV [108
 ```bash
 magnet:?xt=urn:btih:1F5B771CEABEA4FB744E3F45D6A80D77D31C44CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EDB67AE387102766FE28DECD2BCCE7E1698449D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2B688A3913CA32C1711DABE33591D706B6F43CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Mike Vickerage - Ambiente: Reiki (2003) [MP3|320 kbps]<New Age, Relax, Meditativ
 ```bash
 magnet:?xt=urn:btih:104BEE1CC9329E777A0652F27B313A6555C709A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ VA - New Dance Music Vol.14 (2011) [MP3|192-320 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:207D47945102EDFB5575251C74D7848A0B5BFBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6A03F92D706BD3CADE1ABD1A5BB66B7DB4C853F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BA05F4F382B77E1F2E5D9C6E2DD8A9BC3E564C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:031A15B356E67089C0286564A90C4F1D8C6E100F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ NG: Экспедиция в Антарктиду / Expedition Antarctica (2009) 
 ```bash
 magnet:?xt=urn:btih:48CFE236A1CC0B4AF79AAC026A0BDF511F9060C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D803B50DED7476D2904780FE7EC17F6902BF8153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ VA - 40 Winter Trance Hits (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:130443AF320F3315C43869D644F96A2DCA5BEFE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ VA - The 80's (2011) [MP3|320 kbps]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:8C465D216DCF1DD98143CDC411ED0B58B8F9E33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ Rhino Bucket - Who's Got Mine (2010) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ DJKJ - JUST TO RELAX (Vol 01-017) (2008-2010) [MP3|192-320 kbps]<Chillout, Ambie
 ```bash
 magnet:?xt=urn:btih:6060D39350DB3EB8CF0158D5993FB7E4D24E70C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ VA - Союз весенний (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:DB8A97975C6D47085C154BC4B37922B83E5B8C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Vogue полностью посвящен моде, служит источни�
 ```bash
 magnet:?xt=urn:btih:64C7E6B6C603A074771C2B8A2C470A26E3CCAF11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ Bullet - Highway Pirates (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:A199F88F46ECBD1A811730959D3E0924C48C46CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80E70CDB2F06A718C43706CA1A52F714A9A0BEF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Hour 1Жанр: TranceПродолжительность: 01:52:58
 ```bash
 magnet:?xt=urn:btih:90C3CA2DF2CDC19AF69DEB2C9AAF04089B349E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35458FEF5DB94CD1905D522F4B68869453E29593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Jolly Rover – это новая игра жанра поинт-энд-клик
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A98FF2FD8981CC8050EE6427E512B177CDF190ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

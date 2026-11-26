@@ -22,8 +22,7 @@ Nokturnal Mortum - Істина (2017) [FLAC|Lossless|image + .cue] <Folk,Pagan,
 ```bash
 magnet:?xt=urn:btih:D008D9F269DAA0C87D28033A405D1CE4A75C5E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

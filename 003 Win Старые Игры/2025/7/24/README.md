@@ -19,8 +19,7 @@ X-Com TFTU (1994-2025) [Ru/En] (1.0) Repack/Mod AndyFox
 ```bash
 magnet:?xt=urn:btih:4910F5EBDA69CF9C2A23D6A324E314ADEDF78344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

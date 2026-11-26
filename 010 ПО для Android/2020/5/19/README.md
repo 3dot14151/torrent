@@ -19,8 +19,7 @@ Pilzlexikon 2 PRO 1.0.17 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:82A624C99FBF7D07F75874B5284F25D961A5A2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

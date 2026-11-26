@@ -22,8 +22,7 @@ Covet - Technicolor (2020) [MP3|320 Kbps] <Post-Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:68D5C1B1CD504C38A64BE7EED36D9036408C91F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Powderfinger - One Night Lonely (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:0E3DD898D09647CCF451656BF4618576472B4CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Martin Grech - Hush Mortal Core (2020) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:8524588A2D87A2F1BFC89D88AFBD26E1AC7393D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Die Kreatur - Panoptikum (2020) [FLAC|Lossless|Web-DL|tracks] <Gothic Metal, Ind
 ```bash
 magnet:?xt=urn:btih:F811172E7381121A938BADCA71809ABA1B79A0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Rockin' the 90's (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:E6971276CDA0CCD730A5670E794851D5D71F5AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Tibbs - Tribute to Pink Floyd (12 Classic Hits) (2014) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:CA7676FF6A90889A571BEBFC230D8A923FCB41FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Block Group - A Tribute to Pink Floyd (2012) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:E3ED9279B1674AB7FDA7BBFE5CF578ADAF9289E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Rockopera - Tribute to Pink Floyd The Wall Live Orchestra (2013) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:98CF60D5355C924752D2D278706750294991FE2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Shoot To Thrill A 2020 Legends Tribute To AC/DC (2020) [MP3|320 Kbps] <Rock
 ```bash
 magnet:?xt=urn:btih:FFF757A23E5E6A1A18F1D87615C6A5232A924079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

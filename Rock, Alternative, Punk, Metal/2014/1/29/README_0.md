@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:E2D3896AAE2DAAD00389836F16175867D4E1EB5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Skull Fist - Chasing The Dream (2014) [MP3|320 кб/с]<Heavy Metal/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:5D2F4381D2AE3E1BDB4C30A7789AF9490D7A1B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Without Words - Fate (2013) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:5AA1B90558EA75E48E7F9ECFE958C3B404096593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Karlahan - A Portrait Of Life (2009) [MP3|320 кб/с]<Folk / Melodic Death / Sy
 ```bash
 magnet:?xt=urn:btih:234D69B38DA1CB68416F2FD761CCEC1E4236F7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C881AC1BA24EFBF22816F9EB06F2E3F4B9C1B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Paul Rodgers - The Royal Sessions (2014) [MP3|320 кб/с]<Classic Rock / Blues 
 ```bash
 magnet:?xt=urn:btih:0901E8AF0C1EFFC7B040E1F69D899E925E371606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Europe - 4 Albums (1983 - 2009) / 2013, Blu-spec CD 2 Sony Music Japan / [FLAC|L
 ```bash
 magnet:?xt=urn:btih:72243483FBC78E5385CC9AF265AE2D090CF08BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:A4FC6C4E9E64649478E13709F81807F4A57BDCC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Skindred - 4 Альбома (2002-2014) Дискография [FLAC|Lossless]<A
 ```bash
 magnet:?xt=urn:btih:8818E25AE2D189478D25F3AB8991E79FA11832ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Within Temptation - Hydra (2014) Deluxe Box Set [MP3|320 кб/с]<Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:45E320C43813B8438C6ED2E04F66742C9B580EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

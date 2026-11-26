@@ -19,8 +19,7 @@ Full Pipe / Полная труба [Ru] (RePack) 2003 |  R.G. Catalyst Old-Game
 ```bash
 magnet:?xt=urn:btih:9ED1A68595C09992C705C0DEBBC5EE2095902545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

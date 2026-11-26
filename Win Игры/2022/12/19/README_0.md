@@ -19,8 +19,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:27D0DEECDEB5B67A436E6F88C72E8ED3B30333C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MiniOS — это лёгкий и быстрый модульный дистри
 ```bash
 magnet:?xt=urn:btih:E0779226E98E941A2E837CDD8FA294016F188FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kali Linux 2025.4 [amd64, arm64] 9xDVD
 ```bash
 magnet:?xt=urn:btih:ACF897C38B4CB8E4FD4F0AABD4FAAD337852E746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

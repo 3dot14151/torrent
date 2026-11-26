@@ -19,8 +19,7 @@ No Longer Home (2021) [Multi] (1.3.3) License GOG [Farewell Edition]
 ```bash
 magnet:?xt=urn:btih:F29ED144C6A367545A67FBBCDEB1333884E95CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

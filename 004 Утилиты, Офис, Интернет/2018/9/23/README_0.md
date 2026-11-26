@@ -19,8 +19,7 @@ Aiseesoft Video Downloader – профессиональный загрузчи
 ```bash
 magnet:?xt=urn:btih:62FA15C7D5912ECDB6EF555C1FC82D34F1F25696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

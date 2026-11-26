@@ -19,8 +19,7 @@ Edge of Eternity – японская ролевая игра, события к
 ```bash
 magnet:?xt=urn:btih:19D79C0EE2534E554913A29DA9900EC4A016AC5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Davidde penitente, K 469 (1785)
 ```bash
 magnet:?xt=urn:btih:306BF0D5753A5DC385E5F96254AEA676564373D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAD118BC398ECC98F928871FD17DFC37AB4E50DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EC66BE08FA18601FBB191B043CA905AFB3EC05F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Brandenburg Concerto No.3 in G major, BWV1048
 ```bash
 magnet:?xt=urn:btih:A0BF66627B912ACBD5A195ACC7821798DED3FF49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EB52EC086142DD0870E0D9DFA5D21A9CDE55257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ Sonata No.10 In G Major, Op. 96
 ```bash
 magnet:?xt=urn:btih:F4F4AA6466B93EDDCDD044EE3827ABC218F71663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ Jimi Hendrix - 51st Anniversary: The Story Of Life (1993) 8CD Boxset Bootleg [FL
 ```bash
 magnet:?xt=urn:btih:1F9F0A414B661F4B62539AA9837F69ADB5369E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4118F6D1CAABFEE023CEE856DDE77FE2A5ED23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ VA - 50 Acoustic Bar Lounge Classics - Best Of Chillout Songs Vol 1 (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:675FAC41EE4393715C91B17101B5F167190126E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A61CAE19A3983414D23E8D1B099E740841AF3134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ Zorge (ex-Tequilajazzz) - Что Мы Знаем О Равновесии? (2013)
 ```bash
 magnet:?xt=urn:btih:622EF6280AC168052C987CB452ABE9CBA59950A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ VA - Зарубежная дискотека бездна Exclusive (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:14E72B1B9A53D6C43224B4DBCC13B1FC4E35FAA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ Roxette - Traveling the World Live (2013) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:24D71959EA25C390321CA81B3B8E5DE20B3E4FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +454,7 @@ Kosheen - Solitude (2013) [FLAC|Lossless]<House, Techno, Dubstep, Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:C2F4C897A8A3821E83B6F4C4D1DE27085DD89C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34592BFAFCE1F11F1E01B55222EFED3D0B71B0E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8AA5C613AA90F53849E3A1275A023C88437B78F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:802DA0B616E3B3145894DD32B4314A4B9B7DCD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51249E84B5E1C4C1834FA8F36ACC487F1158BBE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ Raphael Francavilla, French Digital ArtistРазрешение файлов: 400
 ```bash
 magnet:?xt=urn:btih:EAA4419756A28677BD25D37B9C5D67BD7C5DCB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ Andre Rieu - Music Of The Night (2013) [MP3|320 кб/с]<Neoclassic, Pop, Instru
 ```bash
 magnet:?xt=urn:btih:E62EBC7ACB8BA3B6F2ACA1411BBAC910252718EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFF2BB54250C7F5109F790DFE7007C1869748F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ Bryan Ferry - The Best Of Bryan Ferry (2009) [FLAC|Lossless]<Classic Rock, Art R
 ```bash
 magnet:?xt=urn:btih:2A1D9122E4F0EFA99F66AFB5CCF57F7D4BF65383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:494408A8816907AA304E20686BD6DB305C829179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8807E4E31F1363F65EC50798275E4DADDF35AD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -782,8 +757,7 @@ VA - Best Instrumental (2013) [MP3|192-320 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:10F3C061BEB5CC3F939E8EBCEE62A123B440A87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

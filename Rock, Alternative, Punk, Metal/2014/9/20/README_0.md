@@ -28,8 +28,7 @@ Flyleaf - Between The Stars (2014) [FLAC|Lossless]<Alternative Rock, Christian R
 ```bash
 magnet:?xt=urn:btih:88854BA3E0E5CEA67BD5F54F77AECD70512AACEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Kinks - Come Dancing With The Kinks - The Best Of The Kinks (2004) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:E36494D50FD04922DCA700B50391AD156F9DFE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Lenny Kravitz - Strut (2014) [FLAC|Lossless]<Rock, Pop Rock, Funk Rock, Neo Soul
 ```bash
 magnet:?xt=urn:btih:132844FB62C02CF280CCCBCBAB2D74B5EEF6BF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F57DA7A6D4A84DBB50378AFD126AF74216C43C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

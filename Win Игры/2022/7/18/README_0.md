@@ -19,8 +19,7 @@ MADiSON — это психологический хоррор от первог
 ```bash
 magnet:?xt=urn:btih:72E171CE7767B09E840F59AF4635684AA0514156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Lichdom: Battlemage – это игра от первого лица, основ
 ```bash
 magnet:?xt=urn:btih:4CF6DA95FE434A0DE25B99B8F57A8F80F234378C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Plague Tale: Innocence – это невероятный средневеко�
 ```bash
 magnet:?xt=urn:btih:F6DC97C0058B39CE92A83EC1829C07E56A60D589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

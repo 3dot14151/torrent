@@ -19,8 +19,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:2B648ADBAC4BAE4511095573FDB5144588D03311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:15AAE5D4BC323BA5E9FC7A6DA06F06BFEC957559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Soft Organizer Pro 10.20 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:116436FE527B6FAF4718FC3C70CD7E685195DBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Soft Organizer - утилита для полного удаления нену�
 ```bash
 magnet:?xt=urn:btih:988CE5F3166D9139225A8ADB660A04B4DB2E4704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Ashampoo WinOptimizer 28.00.13 RePack (& Portable) by Dodakaedr [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E3564038F4959748E19EAF9F5B12EA534DEEC09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Element 3D – лучший в мире плагин для визуализац
 ```bash
 magnet:?xt=urn:btih:77385F13E11B660CC82E0A9675DCAD9EAE398DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C60643A3F17CB8592134EF3F85A773AFCC120C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

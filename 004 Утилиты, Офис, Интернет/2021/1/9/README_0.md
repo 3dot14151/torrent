@@ -19,8 +19,7 @@ Default Programs Editor позволяет исправить настройки
 ```bash
 magnet:?xt=urn:btih:E5602770B354B639AC5A7ED875FA8079B4640688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

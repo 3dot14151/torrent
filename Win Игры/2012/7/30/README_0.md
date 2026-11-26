@@ -19,8 +19,7 @@ World's Greatest Temples Mahjong (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:C63258FD15D34E0B929157204811BF5A2BF205A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Silent Nights: The Pianist Collector's Edition / Тихие ночи: Пиани
 ```bash
 magnet:?xt=urn:btih:FAB564579DF08907ADA999A3EB5B1EE824171ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Prototype 2 (Crack) [En/Ru] 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:FB158332FBAF5A17249C08AE88F6D0D3B2217E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Prototype 2 - продолжение жестокого и кровавого и
 ```bash
 magnet:?xt=urn:btih:222ECEC7BC688700472C374142626A92336E7250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ TCP (Temporal Chaos Project) - Temporal Chaos (2016) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:3384EB236BDE97E5421C72388EC25F0431B2EFED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ USM (United States Of Mind) - Silver Step Child (2000) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:843709A13914D5BEE3B296E672C0EE2E54C9AF42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ S.O.T.O. - Origami (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal
 ```bash
 magnet:?xt=urn:btih:9A18D9FEE837EF20CB13647925CB81EF063EEE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Shortino - Make A Wish (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:234BF12502F7C6ACCCB3A678154D7A468F399CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60FEA730975A654314B6BEE658E522D4F3321551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Black Stone Cherry - The Human Condition (2020) [MP3|320 Kbps] <Hard Rock, South
 ```bash
 magnet:?xt=urn:btih:877324532B6E544B27269856FB4A759D27141E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Creedence Clearwater Revived - Creedence Clearwater Revived (2020) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:3ABD12EC96D7379E50AA4886F5C7ED35AEA07DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

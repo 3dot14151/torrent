@@ -28,8 +28,7 @@ Suzanne Teng - Mystic Journey (1999) [MP3|320 кб/с]<New аge, World>
 ```bash
 magnet:?xt=urn:btih:3FAB6429042B12943469AF06A6FE5B5B3335D9E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Danny Wright - Healer Of Hearts (2003) 2CD [MP3|320 кб/с]<New age, Piano>
 ```bash
 magnet:?xt=urn:btih:5A6DD1A9257D2655EEB968E731567E2A8E890CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Ingrimm - Henkt Ihn! (2014) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:E6B6C8F65B7E222AA7B4AFF4D6D1879DF9BCB756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ VA - Dancing Planet Vol. 4 (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:FBDD6775E9B0AF72E62740A76AD01567457B6CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ VA - Sequence (Séquence) (2014) [MP3|320 кб/с]<Dub Techno>
 ```bash
 magnet:?xt=urn:btih:FAAADD413D1391C49257E3E01EC4866A3CD31C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ VA - Dancing Planet Vol. 5 (2014) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:C5A64B3C67A13F7BC13F02D1D2068F7E443BDDB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34E56CCB2077AD0084F4803CAF00C2BC9D76B6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ VA - Lounge At The Seashore 10 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:289610185B40459E54336FB5E6906C6B60B0D0EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ Restless Oblivion - Sands Of Time (2014) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:A8EB00A4081F28A03F936C001E9CBF0D4E537AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8AD2FA59EF7BABE2C25A07041ECB806BD109E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E88DFE59058AAC198D0907B6A2299F09AC2D84C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ Clark Terry featuring Paul Gonsalves - Daylight Express (1998) [FLAC|Lossless]<M
 ```bash
 magnet:?xt=urn:btih:F4DF73FDC8DEEFBEBC9BB4BEA095E9FB079C87FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A19AE6CE2DF6AC828E8965C4EB5610E769CEDF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ Wallpapers - Олимпиада [JPEG]
 ```bash
 magnet:?xt=urn:btih:641EC7CE985511D4CA6095873744E4AA6CF28D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ Noble Beast - Noble Beast (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:33DCB7A3B8CFFF41BF5FFF6C48FBFA874D160EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:516B2628A758172A0BECC69E319BDC509FED0153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ Rustless - Guardian Angel (2014) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D08373B06762D42A254B9DF71D1A3C9FBEADB93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E9619F18DA6707EB642AE6D9493334D5037B9A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCE269324A59F896DEEF3CA9C781FFC36C58FF05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ Blue Sky Black Death & Deniro Farrar - Cliff Of Death (2012) [FLAC|Lossless]<Rap
 ```bash
 magnet:?xt=urn:btih:3F440086141F3CF4C8089D7C6613BDB85A43BE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61C8B9AE2A0F80A4C537902FF00A28059525F0EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ Beegie Adair - As Time Goes By (2007) [FLAC|Lossless]<Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:C2AC6251581E0A107B9A8671F09F3017288221A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +712,7 @@ Marco Polo - Newport Authority 2 (2013) [FLAC|Lossless]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:B7CBAA86E2512660288486DC34B1F6B70FF251FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ ITAL TEK - Control (2013) [FLAC|Lossless|WEB-DL]<Juke, Glitch, IDM, Dubstep>
 ```bash
 magnet:?xt=urn:btih:FA972F06E29FD9ED31511932BC8AAABEC930E041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -794,8 +769,7 @@ Wallpapers - Мотоциклы и мотоспорт [JPEG]
 ```bash
 magnet:?xt=urn:btih:00B24D0A43F40A976D4AD03EE27F05D9DD9E6BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

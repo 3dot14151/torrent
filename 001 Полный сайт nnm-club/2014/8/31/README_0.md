@@ -27,8 +27,7 @@ Steven Price & VA - Армагеддец / The World's End (Full Soundtrack) (20
 ```bash
 magnet:?xt=urn:btih:96331483FCC6E2B567B7329F58C51603B5E590EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D59E73385FF9396AB16A3ED0D348A33AC618D94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Pray For Sound - Dreamer (2014) [MP3|320 кб/с]<Post Rock, Shoegaze, Instrumen
 ```bash
 magnet:?xt=urn:btih:C3E6D1F0801026202F7665270E88CBB5080FF058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65B0751B2FFA3ABB858E11B1A6A83DC43E55C272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Entwined 2: The Perfect Murder (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:126707BBEDBCCFF03D7D7E9E4E797C8D2A536379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Auslogics File Recovery - простая и эффективная в испол
 ```bash
 magnet:?xt=urn:btih:383C788EACCA0AC21EBE54BB7DF18E25349CC4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4AFDD4AC5C82F02E57A00D636FA9251DE4AE751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Kill it Kid - You Owe Nothing (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5A504445F9F4B7FF930168A97742797C5B0DAA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Anna Buturlina (Анна Бутурлина) - Words Of Love (2008) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:04D6ED4483D866153274D530F2E8FB4920DACF92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ David Arkenstone - In the Wake of the Wind (1991) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:06D9E33DD3288D4277E209CBCF39F128AD8E2B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ CD. 1
 ```bash
 magnet:?xt=urn:btih:DE119047B7FCFFDCD9BE0492705C80466CC0997C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ Piero De Luca & Big Fat Mama - As We Like It (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:47003D33FC70684EC07E87C211818B750EDE0862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1C1A56BB3C7747859D9B28B67C5805D03F7F28E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ Emarosa - Versus (2014) [MP3|256 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:AF6A72BF3BBD9A5A478E444DC42776F83082431A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ Brian Tyler - Неудержимые 2 / The Expendables 2 (Expanded Motion Pict
 ```bash
 magnet:?xt=urn:btih:3A81DEDBFCEE1F52C396E362B8F700C286326519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ Wallpapers - Ящерицы, игуаны, вараны [JPEG]
 ```bash
 magnet:?xt=urn:btih:8FE8428227C3C324285962A92A953BCACC6F081A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ Skyforest - Aftermath (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Depressi
 ```bash
 magnet:?xt=urn:btih:EA550E866E2CF34F2A349AC6113200C0C39E7792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ Waking Aida - Eschaton (2014) [MP3|320 кб/с]<Post Rock, Math Rock, Instrument
 ```bash
 magnet:?xt=urn:btih:55FC6921E7FACEB2BB3F61C98C7131B90435396C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE756CD2F7C8569393410F52C3CE81E54A64FE28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ Brian Tyler - Неудержимые / The Expendables (Expanded Motion Picture 
 ```bash
 magnet:?xt=urn:btih:971FE66B9E176962E745974AD41BA31B49976496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +629,7 @@ Arion - Last Of Us (2014) Japan [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:F603A9FE0722E200B972E2FD602468480195513E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +655,7 @@ FotoSketcher поможет вам автоматически конвертир
 ```bash
 magnet:?xt=urn:btih:A66E0F3396C100F5FD3532CDA03E8C4B552BA8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ CD. 1
 ```bash
 magnet:?xt=urn:btih:4B63F327C044E2C2D67D97F2F02135654C43A0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +712,7 @@ Death and Betrayal in Romania: A Dana Knightstone Novel 5 (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:609B4D3B40F03C1CC9CD58CB9D80B121D724C79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA5B085B769FFF45755596FFC4FAE9A6CA6DB5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +762,7 @@ Comedy Баттл. Суперсезон. Лучшее. Выпуск №6  / Ко
 ```bash
 magnet:?xt=urn:btih:56B4F56A9191E90DDF18F9389F9452BF562E68FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

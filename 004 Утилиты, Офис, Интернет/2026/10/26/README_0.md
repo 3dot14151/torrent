@@ -21,8 +21,7 @@ Maxthon Browser 7.5.3.3400 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7D59DEB82EBC52FA70B375A40B9E393391201393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:E55076FA5E7D9AC13EDCA8F66757302E4CE17C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

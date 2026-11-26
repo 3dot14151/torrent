@@ -19,8 +19,7 @@ Warcraft 3: The Reign of Chaos (2003) [Ru] (1.26a/dlc) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:1E2C246BA80776DF35DAC22C3155865C31D7D5DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

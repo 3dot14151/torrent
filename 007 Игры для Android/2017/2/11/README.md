@@ -20,8 +20,7 @@ Fallout Shelter — мобильная видеоигра, разработан�
 ```bash
 magnet:?xt=urn:btih:BE64118D098E189E29CD7C2A94431C6A85268206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

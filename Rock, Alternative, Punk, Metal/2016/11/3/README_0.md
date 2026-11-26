@@ -22,8 +22,7 @@ Until the Uprising - Out of Time (2016) [MP3|320 Kbps] <Melodic Death Metal, Met
 ```bash
 magnet:?xt=urn:btih:E64A3BEB92AE18A55D6BA592FEDBCC914AD0F997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Exiled On Earth - Forces Of Denial (2016) [MP3|320 Kbps] <Progressive Metal, Thr
 ```bash
 magnet:?xt=urn:btih:96F2B34246C9E5C9EF7D9056406565CE6F5DC16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Wovenwar - Honor Is Dead (2016) [MP3|320 Kbps] <Alternative Metal, Melodic Metal
 ```bash
 magnet:?xt=urn:btih:CDEC73ED6BE0B0C250AF02AC2522F513090B6FDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pretty Maids - First Cuts...And Then Some (1999) [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:FCC53F37FDA281150908935EAC37E6214833DEEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:AD71D86FC9BC1BD54AF74E62C46373A6FF57EFD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bon Jovi - This House Is Not For Sale (2016) Exclusive Target Edition [MP3|320 Ð
 ```bash
 magnet:?xt=urn:btih:971F3D2370F662BF50670101FDCB3916A235D337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

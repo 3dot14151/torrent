@@ -19,8 +19,7 @@ Pinstripe - это заряженное эмоциями приключение 
 ```bash
 magnet:?xt=urn:btih:F474AA5A3E715FC4880FE0EC222D1EC1A9D92D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Disney's Chicken Little (2005) [Multi] (1.0.0.1) License PROPHET
 ```bash
 magnet:?xt=urn:btih:97F0339F76AF5C05796D13C330D835D1B89598AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Immortal Redneck — это шутер с элементами жанра роу
 ```bash
 magnet:?xt=urn:btih:8552FB4A86378F830B889D6F6B52CF1967EB71E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Starfighter Origins - это стиль 90-х, вдохновленный так
 ```bash
 magnet:?xt=urn:btih:A10FFDB79FD34B034123608FA590C62A0A263B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

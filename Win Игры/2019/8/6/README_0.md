@@ -19,8 +19,7 @@ Obduction (2016) [Ru/Multi] (1.8.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:54B297E9331FF37A180713509A3CA5FF88D59CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Street Fighter V (2016) [Ru/Multi] (4.070/dlc) License CODEX [Arcade Edition]
 ```bash
 magnet:?xt=urn:btih:C6A5EFD20BBD7D0760488EC3E0E9BF83A5B8DF2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mind Diary Journal / Дневник для самоанализа и самор�
 ```bash
 magnet:?xt=urn:btih:36B270D0B2BAD00A18EF274228283DE4F348ACD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

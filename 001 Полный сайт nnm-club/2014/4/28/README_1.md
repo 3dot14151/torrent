@@ -27,8 +27,7 @@ VA - Best House Spring Selected (2014) [MP3|320 кб/с]<House, Club House, Danc
 ```bash
 magnet:?xt=urn:btih:FCA205EB3E82261C23EE386D8EBF0F6DAAF9939F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A1D0AD97B167F5567C05C3B3774617E086130C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1DBCA9C8D5F6D6896B362AD6A7F010A5E1CF640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ BBC. Horizon: Луна на продажу / Moon for Sale (2007) SATRip
 ```bash
 magnet:?xt=urn:btih:08C8010F3F837B8602A3DA9BFD9276ACAF8266F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E1EBBA11945A00002B44A58A09FE9FCE24C56FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BD8B9D145CC9EEA490E58240299D40002ED9533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Keyboard Maestro — приложение созданное как раз дл�
 ```bash
 magnet:?xt=urn:btih:4063A689C5F222E804B326F7E64C2871D2D3EA78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ XviD4PSP - лучший по функциональности видео-кон�
 ```bash
 magnet:?xt=urn:btih:1AA2E52224BDF8F55E2FD0E2304AB6C2ABC16EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF05353158E84A1A0BE27477BFA9584C5AE1CD61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ TabLauncher поможет вам быстро и легко, используя
 ```bash
 magnet:?xt=urn:btih:8260F51C06E9D4FA0091EE184B3B27999F403822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:8583D8CC4F7DBCB6663E34A45F37E7E9868D4AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FEEDB95436C26E00F64BA6F19170BD697F47167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Squarepusher x Z-Machines - Music For Robots (2014) [FLAC|Lossless|WEB-DL]<Leftf
 ```bash
 magnet:?xt=urn:btih:D282CD07F759E12021CBB3959DB6FEE093151152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ DiskAid 6.6.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3E45D1ACE7B05913F71E88ED6E9203C082BCF865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:458AE9D4D93C27A4BAD2947CE848995CD6576FAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ Re:Volte | Scinicade | SonicRevolution - 22 альбома (2005-2011) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:0C8E4E09204D777D49808A8C8C323B1D4E72AEAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ High Maintenance - Higher / Running Away (Original Mix) (2014) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:2CB102A672A522F8C4419A68A4407325A8620FAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ Run-Command представляет собой небольшую портат�
 ```bash
 magnet:?xt=urn:btih:815D7DEC97F9341899D8DBD08BF800306951C9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ Wallpapers - New Mixed Wallpapers Pack (28.04.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:1EA35F611F557DF4021790294CC512A98F374166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ New York Jazz Lounge - Cool Jazz Masterpieces Vol 1 (2013) [MP3|320 кб/с]<Jaz
 ```bash
 magnet:?xt=urn:btih:66E1ADB59EC4E424A96074758C5DF4D8B5940CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE5FE8377AA23189669EB1186543D80F173BFD38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ Anvide Lock Folder 3.11 beta [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6F499FC5E21DE43DD52EFE9BB27936081014F919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 magnet:?xt=urn:btih:60C67124A66398EB0210DDB22E10602570E0CBD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ XOTIC [FRONTIER CREATE] - 5 альбомов (2009-2010) [FLAC|Lossless] <Touhou
 ```bash
 magnet:?xt=urn:btih:2C4EE3E31FFCD5EFAF444B4F893776E5D532A371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +714,7 @@ Frontier Aja - Koumajou Densetsu OST (2009-2011) [FLAC|Lossless] <OST, Touhou, J
 ```bash
 magnet:?xt=urn:btih:095796D1F0BB216A8FDABD865C0F39939C81696F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

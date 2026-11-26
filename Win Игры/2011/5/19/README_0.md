@@ -19,8 +19,7 @@ Mystery Chronicles: Murder Among Friends / Мистические хроники
 ```bash
 magnet:?xt=urn:btih:4137245BF1E53D66503EE9F8330D34660760C8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Our Worst Fears: Stained Skin / Клеймо судьбы (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:BFDB90D36C7E04A6781DB012A030CAC9B7A01F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Garden Dash / Садовый переполох (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:92D148A41F56DD8EA420FC8818FB46E3B53DB92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gravely Silent: House of Deadlock Collector's Edition / Гробовая Тиш�
 ```bash
 magnet:?xt=urn:btih:3ADF256D891FA64DE5E64ED678BDD8657C3888A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Alternativa / Альтернатива: Нечего терять [Ru] (RePack) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ The Treasures of Montezuma 3 / Сокровища Монтесумы 3 (L) [Ru] 
 ```bash
 magnet:?xt=urn:btih:A1E35CD0CD512DE9411B4477DE5DF7B77B24E073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

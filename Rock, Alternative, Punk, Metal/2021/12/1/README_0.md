@@ -22,8 +22,7 @@ Roy Wood ( ex-The Move, ELO, Wizzard ) - You Can Dance The Rock'N'Roll-The Roy W
 ```bash
 magnet:?xt=urn:btih:990EF5C261096B9DAE6C201706B4FD10774E45C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Robert Palmer - Pressure Drop (1975) Reissue, 1987 [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:9A4ED9F935B0677CAA50BDD65095B3477D2D1A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Roger Waters - Live American Radio Broadcast (2020) 3CD [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A533F26FDDE5D02EFB047478FCB36B244C6B17EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ DEEP PURPLE выпустили альбом каверов под названи
 ```bash
 magnet:?xt=urn:btih:8DB967AA362363DACC15F3273D9614D4A3271C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Star Ocean: The Last Hope 4K & Full HD Remaster (2017) [Multi] (1.0.0.0) Repack 
 ```bash
 magnet:?xt=urn:btih:1FCDB365B05F7DD9629239741C383998C2542787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

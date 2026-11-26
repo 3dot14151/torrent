@@ -19,8 +19,7 @@ Asterix & Obelix XXXL: The Ram From Hibernia (2022) [Ru/Multi] (1.03.2) License 
 ```bash
 magnet:?xt=urn:btih:602E19F437B25510660B510DA88D64FA731B6D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death Trash - изометрическая RPG в мире постапокал�
 ```bash
 magnet:?xt=urn:btih:9BE60E6B26399BE8E7C3E5164A2873DD98AFF312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ B.I.O.T.A. (2022) [Ru/Multi] (59744/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:42FB5DD0D778CCD9615E0B1B5583BCB82E3AD864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

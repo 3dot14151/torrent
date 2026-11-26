@@ -19,8 +19,7 @@ Mysterious City: Vegas / Загадочное ограбление в Лас-В�
 ```bash
 magnet:?xt=urn:btih:282B757545754BC70B4B03332FE9E48978D88F7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

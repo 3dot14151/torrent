@@ -28,8 +28,7 @@ A1. - I Left My Heart In San Francisco [02:56]
 ```bash
 magnet:?xt=urn:btih:029794C931F843CBB4F5A4C6A0745EB69BB2DB44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

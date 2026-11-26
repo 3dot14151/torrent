@@ -19,8 +19,7 @@ Traffic Giant - это удивительная игра-симулятор, к�
 ```bash
 magnet:?xt=urn:btih:93C7A51FD62C367211EBC7D16B9321B29F52F600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Industry Giant (1997) [En] (1.0.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7A71F705202EEB8EC9C6FA80FF2B27CB3BEF184C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

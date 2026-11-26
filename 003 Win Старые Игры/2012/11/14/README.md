@@ -25,8 +25,7 @@ Tom Clancy's Splinter Cell: Double Agent [Ru/En] (Rip/1.02a) 2006 | R.G. Shift
 ```bash
 magnet:?xt=urn:btih:835D72B0B3374A6427768A058714BEC4A4ADCC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

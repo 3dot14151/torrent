@@ -19,8 +19,7 @@ C помощью этой игры у тебя появилась возможн
 ```bash
 magnet:?xt=urn:btih:8CD8D2526C345A2578E585C25E28E75941FF1275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mad Max в воздухе, перенесенный в тридцатые год
 ```bash
 magnet:?xt=urn:btih:A0EBD0C523A0C0F3A25CC08F7BDB2A2658326BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Earthworm Jim 2 - продолжение увлекательных приклю
 ```bash
 magnet:?xt=urn:btih:B585885E059282990B08B1B8ED2B7003AFAED9BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B351CEDD0067B9DDCB6861C0249866B0641179B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

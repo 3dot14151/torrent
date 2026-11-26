@@ -19,8 +19,7 @@ Bridge to Another World 9: Christmas Flight / Мост в Другой Мир 9:
 ```bash
 magnet:?xt=urn:btih:4A12A63A754D6760ADB61B176F85CC4D6E428A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightmare Reaper - шутер от первого лица, отличающий
 ```bash
 magnet:?xt=urn:btih:FD22232A6B89F4CDBC8F1BB7A35FFF185E55E218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

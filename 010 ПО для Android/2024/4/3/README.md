@@ -19,8 +19,7 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:57F87344C8328156D5809DD30EFCF1A3A7375B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BZ Напоминания и Дни Рождения PRO v3.3.10 Mod by Eco19 [R
 ```bash
 magnet:?xt=urn:btih:4CD248FA5FF7376EF395105742A0490F04AE7F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

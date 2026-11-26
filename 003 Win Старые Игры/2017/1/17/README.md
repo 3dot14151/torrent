@@ -19,8 +19,7 @@ Syberia Dilogy / Сибирь. Дилогия (2002-2004) [Ru] (1.0.0.0/11) Repa
 ```bash
 magnet:?xt=urn:btih:49D3E7A84B3A678B444B5523E3D6CA3C4B043DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

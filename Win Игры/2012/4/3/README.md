@@ -19,8 +19,7 @@ Sters - некие существа, обитающие в домах с при�
 ```bash
 magnet:?xt=urn:btih:80286F92F0B8D4DB85244C310000D3665432AD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ School house Shuffle (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:74C365F4C6A5EE4DD73DB0B5745369273ACB6613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

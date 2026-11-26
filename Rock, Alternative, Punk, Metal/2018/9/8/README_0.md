@@ -22,8 +22,7 @@ JJ72 - JJ72 (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:701A4FAFB3B7C59B2206C0DD762572F4CFCB3486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

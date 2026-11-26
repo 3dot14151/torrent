@@ -22,8 +22,7 @@ B1 Fishing Junks At Sunset(   Читать дальше...   )Жанр: Electron
 ```bash
 magnet:?xt=urn:btih:9BB63BC1A83628DBC73999CE6922756D257B0660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Abacachi(   Читать дальше...   )Жанр: Soundtrack, Theme, Easy
 ```bash
 magnet:?xt=urn:btih:79E2EB7C07B3A7AE5F3CDB5ABC19AE915918628C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

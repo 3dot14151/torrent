@@ -19,8 +19,7 @@ Amygdala бросает вас в леденящую душу одиссею. А
 ```bash
 magnet:?xt=urn:btih:3D72FE6CD795B4B3CD3614DEEC3B852D9D17354F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Weird Dream отправляет игроков в сайд-скроллин
 ```bash
 magnet:?xt=urn:btih:20418B2117FF46ACE6E93531CC4BC649EC72D992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grand Soul Saga - чудом сбежав из страны, где назрев
 ```bash
 magnet:?xt=urn:btih:32816DAB48A4D170A06619BDFB7E5647F3D481AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ EMPYRE: Earls of the Deep Earth - тактическая ролевая игра
 ```bash
 magnet:?xt=urn:btih:128BAD6935416DCC021EAE0CDD05F991DAAF3529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Deep in the Woods / Глубоко в лесу (2024) [Ru/Multi] (1.0) Scene Ten
 ```bash
 magnet:?xt=urn:btih:BF3721ED8E24B2C11A9C54B3D932E25C79F21083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Out of the Park Baseball 25 празднует четверть века сов�
 ```bash
 magnet:?xt=urn:btih:39FEF56C2BACD151BA3EDD0521F7D9D28398D180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hex Gambit: Respawned – многопользовательская аркад�
 ```bash
 magnet:?xt=urn:btih:36BDF43A6D7806ED715F4A07C345DFC5C8CEE66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Corbid! A Colorful Adventure - приключенческая игра для в
 ```bash
 magnet:?xt=urn:btih:53C6F81B4311E3089C623BCBFCF6F6E080899A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Morok - Вне света & На круги своя (1997) 2CD, Remastered & Re
 ```bash
 magnet:?xt=urn:btih:E2016FC08C55D91A9AAD8A49B7787613BAF69FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:811220E9B0DE34F312F37B8D2268DAD1E28DFF56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

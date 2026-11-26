@@ -19,8 +19,7 @@ DreamWoods 2 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:EB15B2A65EF28A4656E945244720085B31B36EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Portal + Portal: Prelude + Portal: The Flash Version Mappack [Ru/En] (RePack) 20
 ```bash
 magnet:?xt=urn:btih:E053CD271C0C3740F7D4041D2DA129C9ECDF86F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

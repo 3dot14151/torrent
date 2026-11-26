@@ -19,8 +19,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.6/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A70BD5186FC365796FA5E4DAEFFAED01B39B1888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

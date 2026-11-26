@@ -22,8 +22,7 @@ John Butler Trio - Home (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:85897DA719A7335FD5EE0B4F7CF56B02B343173D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ John Mellencamp - Other People's Stuff (2018) [MP3|320 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:7A888954FC4BE8348BE1C2C5787324AEF33C7C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Forest Of Shadows - Among The Dormant Watchers (2018) [MP3|320 Kbps] <Doom-Death
 ```bash
 magnet:?xt=urn:btih:6383F5D95A4CA55CEBBF719421AB65BD9587DA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Primal Scream - Give Out But Don't Give Up - The Original Memphis Recordings (20
 ```bash
 magnet:?xt=urn:btih:E447D5AF464EA2605CF09F6229662B247FD24708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D223553C2E92A0869E0D6B81681EDBF593C0308E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D9A889C7DB1CEA29BCAE10DCAF4EC737CA97717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Montrose
 ```bash
 magnet:?xt=urn:btih:4B2E5AB3F6135F3A7C501A71132159F9E02742D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ dArtagnan - Verehrt und verdammt (2017) [MP3|320 Kbps] <Musketier-Rock, Folk Roc
 ```bash
 magnet:?xt=urn:btih:D432ABA5ACF8260668CACCC059CDFD8857E4C1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

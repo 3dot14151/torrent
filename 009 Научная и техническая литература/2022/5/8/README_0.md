@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:18BD5B876E8E6114E4E4C0AF5376B174981EF46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Speakout - Шестиуровневый курс английского язык
 ```bash
 magnet:?xt=urn:btih:49FE1C8E37F6201E3C515CF7223A068D95296D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Speakout - Шестиуровневый курс английского язык
 ```bash
 magnet:?xt=urn:btih:335A3B1FF7806524D11676B6B86927E68CE08CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Speakout - Шестиуровневый курс английского язык
 ```bash
 magnet:?xt=urn:btih:5DAF675EE6676E3A0031BDB028358D86E85640D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Speakout - Шестиуровневый курс английского язык
 ```bash
 magnet:?xt=urn:btih:EFD3BAB402125453202F926485A5985CB22C987F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Speakout - Шестиуровневый курс английского язык
 ```bash
 magnet:?xt=urn:btih:08BD7F5DC04F4259592D4419EC0B8D57B42EAD35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

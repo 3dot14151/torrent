@@ -19,8 +19,7 @@ Serial Cleaners - сиквел игры про профессиональног�
 ```bash
 magnet:?xt=urn:btih:ED83401B83891D40080BDF5F415E0402E9DFFAB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

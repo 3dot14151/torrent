@@ -19,8 +19,7 @@ Traffic Giant - продолжение серии GIANT, благодаря ко
 ```bash
 magnet:?xt=urn:btih:5C3F6E9189B4ACF8315814C51AC63CFA135795BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

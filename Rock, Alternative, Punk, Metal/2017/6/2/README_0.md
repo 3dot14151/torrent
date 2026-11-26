@@ -22,8 +22,7 @@ Saint Just - La Casa Del Lago (1974) Reissue, 1994, Mellow Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:928AFB5C8C18EF49796FA6C0D63696C2B9F03C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Robert Fripp and the League Of Crafty Guitarists - Live! (1986) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:0227332C0844DC29C92C8B89A64713A436F88BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD1 – The Joshua Tree Double Album
 ```bash
 magnet:?xt=urn:btih:5D266A9CFE86C020EE8BFAF5B2664FF480838C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

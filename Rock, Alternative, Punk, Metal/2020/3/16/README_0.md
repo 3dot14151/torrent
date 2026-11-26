@@ -22,8 +22,7 @@ Good Moaning - The Roost (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alter
 ```bash
 magnet:?xt=urn:btih:277DE8C80ACBF81EAEE807E4409DD4C9067AE105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trillium - Alloy (2011) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:51713D550C387C0CB8687F141ED37F6023BD9251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62BBEDB2D5FA76FF2C50731A1ABA8620630E8C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Code Orange - Underneath (2020) [MP3|320 Kbps] <Metalcore, Industrial Metal, Mal
 ```bash
 magnet:?xt=urn:btih:84DC1F231A0313803B6BCE408E80D73ADE21C361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Eilera - Face Your Demons / Waves (2016-2020) [MP3|320 Kbps] <Folk & Viking Meta
 ```bash
 magnet:?xt=urn:btih:B0A032200360F22F9B7305734B66B5012DAC2B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - I Love Rock Ballads (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:92425B97E6A7C2FA7C36CF8418B5BCBEA177396B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Pyogenesis - A Silent Soul Screams Loud (2020) [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:8C7044C53A0A311C81217D98C90DE8B38E166E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ In This Moment - Mother (2020) [MP3|320 Kbps] <Alternative Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:8685F8EBB06D179CE17EDCEF7762CDA9BAE889C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

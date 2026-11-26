@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2FCE043D61405A12433C14221DCDBF7D778F8719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:2F19D5A3127567DDBC39C71F1D65720182E6DB33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Drink Water / Напоминание пить воду v2.26.0 Mod by PieMods [R
 ```bash
 magnet:?xt=urn:btih:1087E2D754C4C7C6986DD5F986B4AE10933FCDAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:06C46D35D3EB3081FDF7327E9C662287E0752B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

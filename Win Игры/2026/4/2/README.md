@@ -19,8 +19,7 @@ The Last Faith рассказывает о герое, который решил
 ```bash
 magnet:?xt=urn:btih:98EBACAC1533D2E139BB719CA057E56D547B6906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Truck Mechanic: Dangerous Paths – это проработанный до ме�
 ```bash
 magnet:?xt=urn:btih:C40E8324953FE277C0416412D139362F7B626A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Truck Mechanic: Dangerous Paths – это проработанный до ме�
 ```bash
 magnet:?xt=urn:btih:CC0849A45D3F42E6AD4BDCD1AE1DAA61BBF0BE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ GRIME II (2026) [Ru/Multi] (1.0.17360c) Repack Other s
 ```bash
 magnet:?xt=urn:btih:97227237D31F6A5C27659C596644865DF39CBDB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ GRIME II (2026) [Ru/Multi] (1.0.17360c) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4681E1AD330D474C6D9911F6EF3DA81A4EFE3E20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Super Meat Boy 3D - это суровый, как само существова�
 ```bash
 magnet:?xt=urn:btih:A5F0352A6C74B650EA0B3B28BECA618E5F8B2843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Hard
 ```bash
 magnet:?xt=urn:btih:EA829A1A67A8D29A71B3F2770D67988C6D73FB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

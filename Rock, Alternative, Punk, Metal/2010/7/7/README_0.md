@@ -28,8 +28,7 @@ The Pretenders - 10 альбомов (1980-2008) [FLAC|Lossless]<Rock, New Wave,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

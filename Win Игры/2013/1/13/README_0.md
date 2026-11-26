@@ -19,8 +19,7 @@ Time Mysteries 3: The Final Enigma Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:54BFE6A95DBE91D754E853028F240CBCBFDD3486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hallowed Legends: The Templar. Collectors Edition / Священные леге�
 ```bash
 magnet:?xt=urn:btih:DFCE8D336A5AB5A71E65A2BDBEC1DD000F94364A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Tales 4: Edgar Allan Poe's The Gold Bug Collector's Edition / Темные 
 ```bash
 magnet:?xt=urn:btih:CF0BC40A37AE52EFCE6544EC43C16A5FF2FDE61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beat Hazard [Multi9/-] (Steam-Rip/DLC) 2010 | R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:EC0464C3301A1693DDDBC59B91B87067FADD5F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Crazy Machines 2 Happy New Year Bundle Edition [En] (Add-on/1.06) 2013 | TINYISO
 ```bash
 magnet:?xt=urn:btih:609F83EBD180E71D9D294638FD821D781FF8D263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Closure – логический платформер, использующий 
 ```bash
 magnet:?xt=urn:btih:7D21D9D9FD71438C7348BBA2170BDA4C813D2045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Nightmare Realm 2: In the End Collector's Edition / Царство кошмар�
 ```bash
 magnet:?xt=urn:btih:B616ED2418107ACF3DF0647CF67EF5C5B52FA640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

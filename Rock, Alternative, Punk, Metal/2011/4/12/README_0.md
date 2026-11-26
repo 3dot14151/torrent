@@ -28,8 +28,7 @@ Sideburn - Jail (2011) [MP3|320 kbps]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:EAC376AFC3AB1C99028F22FACE81E8F9080B9908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Ocean - Anthropocentric (2010) [MP3|320 kbps]<Progressive / Atmospheric Slud
 ```bash
 magnet:?xt=urn:btih:642B2B74107DF528CC4E3607A0975EB17372FC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Blitzkid - Apparitional (2011) [MP3|320 kbps]<Horror Punk>
 ```bash
 magnet:?xt=urn:btih:0A90AB5316AF748FEFBC06AFB2B55EA355F6459E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Edgar Broughton Band: The Harvest Years 1969-1973 (4CD Box Set, 2011)[FLAC|Lossl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CE3F90139F0311377806BD2A7FFA80B87805E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Asking Alexandria - Reckless & Relentless (2011) [MP3|320 kbps]<Post-Hardcore / 
 ```bash
 magnet:?xt=urn:btih:6AAEDFE6181288A671890F5FBE1D7372910B9FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Castlevania: Lords of Shadow (2013) [Multi] (1.2) SteamRip R.G. Origins [Ultimat
 ```bash
 magnet:?xt=urn:btih:ADE3FCD46A934FE346B7F3587B98AEBD7442679D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

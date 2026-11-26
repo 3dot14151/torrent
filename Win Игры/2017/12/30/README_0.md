@@ -19,8 +19,7 @@ Tooth and Tail (2017) [Multi] (1.1.0.2) License PLAZA [Season 2]
 ```bash
 magnet:?xt=urn:btih:59635C10CBD437AD3D5FEC77AEA1912DDBC5027A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ X: Superbox (1999-2013) [Ru/Multi] (2.2/2.2/1.5/2.5а/3.4/3.3/4.30/dlc) Repack R
 ```bash
 magnet:?xt=urn:btih:8867F8C9EAE8F5A049D69173D0F5E2C5EC86B90A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RaceTime: Undercover – это увлекательная гоночная ис
 ```bash
 magnet:?xt=urn:btih:8C23F404F929E2CC2EE268B2506711AADE6D31B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wargame: Red Dragon – первый выпуск популярной сери�
 ```bash
 magnet:?xt=urn:btih:4E8977137DA5B053F8AD78D2AF4B626D295F712F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Dan Spătaru/Дан Спатару – Песни Из Кинофильма «П
 ```bash
 magnet:?xt=urn:btih:9CD317CEB5BC8B3619D40C2771E4BFFB989D7CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Scientific Linux 6.5 Live [x86-64] 1xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:37C8C2D076B2D089C64CE193280666B461AD79DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chakra 2014.02 Curie (Arch + KDE) [x86-64] (1xDVD)
 ```bash
 magnet:?xt=urn:btih:7EFE3EE7D6547E0C3DDE4DC6004EF4A5646C6E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ BlackArch Linux - специализированный Arch-based дистриб
 ```bash
 magnet:?xt=urn:btih:746414CE850B2A0DE481E004404A641E41289AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Der W - IV (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:24DC1EABE66F3F1FF9897F79132EA22369560FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kreolis - Театр Вампиров (2018) [MP3|320 Kbps] <Metal Opera>
 ```bash
 magnet:?xt=urn:btih:3A31DA2D307FF2BD8B63EA320A09896B56104722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jack Johnson - All the Light Above It Too (2017) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:2E917A8DD716F5D73376579C7A506F1DF85E14F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ AVRELA - Скоро рассвет (2018) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:AA50EEAD267CA19821307C370945E1609C4C9CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ In This Moment - А Stаr-Сrоssed Wаstelаnd (2010) Japanese Edition, 2015, K
 ```bash
 magnet:?xt=urn:btih:73CE503479052534E8D49DB29B0674923DCFC96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Load — вышел в 1996 г, за год ранее альбома01. Ain't M
 ```bash
 magnet:?xt=urn:btih:0038588459708516CDEB3FE4936A3CB4FDD92DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

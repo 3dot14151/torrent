@@ -28,8 +28,7 @@ Valerie Dore - The Legend (1986) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Italo Dis
 ```bash
 magnet:?xt=urn:btih:8DA85728B6956A03A72752B3BB0E3C0F8786621E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ D1.  Junior Dad  :: 19:32Жанр: Rock, Hard RockФормат: 2xVinyl, LP, Alb
 ```bash
 magnet:?xt=urn:btih:EFD24D5A6E4CF200C049AD11379F8402DC842798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

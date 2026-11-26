@@ -19,8 +19,7 @@ Legend of Keepers представляет собой хитроумную см�
 ```bash
 magnet:?xt=urn:btih:29E3E52C47EBD6CB78F87A0D05D1E193987F2362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

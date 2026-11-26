@@ -19,8 +19,7 @@ The Way это двухмерная головоломка-платформер,
 ```bash
 magnet:?xt=urn:btih:1E8B2E590DBBF370CFEB3CEB25F4F3AAAD9E7DEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0/upd1) License CODEX
 ```bash
 magnet:?xt=urn:btih:D62749030D5D5CACD1C5484FAED5B222A52462FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

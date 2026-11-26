@@ -19,8 +19,7 @@ Isles of Sea and Sky – стратегическое приключение с 
 ```bash
 magnet:?xt=urn:btih:C11A60A22986B4BF800B59CAB964CB1963292FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Remnant 2 - это атмосферная и брутальная комбина
 ```bash
 magnet:?xt=urn:btih:0716F065B59AB96698A0FBAA9AD0299D363B8FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Train Sim World 5 (2024) [Ru/Multi] (Build 283/dlc) Repack FitGirl [Special Edit
 ```bash
 magnet:?xt=urn:btih:F654BFA7EE748DEF5C8C3B003B3840504680E898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Batbarian: Testament of the Primordials (2020) [Ru/Multi] (1.4.4) License GOG
 ```bash
 magnet:?xt=urn:btih:EB26D982FCD545334A0CA6EEFF7801A66D0B2279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Shadows of Doubt (2024) [Ru/Multi] (39.07) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7D6E84D10E8A82A85B7D0219DEB0541D2B2D5B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dwarven Realms - это ориентированная на действия 3D 
 ```bash
 magnet:?xt=urn:btih:7957448F825706424E7C410860B37E8B7AE4F933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Chained Together (2024) [En] (1.8.6) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:6BFF1F2B336D9F8990F6BA08B0593E8953C11CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Trap for the Heir – что вы скажете насчет исследова
 ```bash
 magnet:?xt=urn:btih:5F9C34D49C4FF27497A08FF179CBEB75CA209D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B1EE41E0704A74A2A620301A26A072AE72C087D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

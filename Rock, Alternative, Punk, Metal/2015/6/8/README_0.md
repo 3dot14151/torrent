@@ -22,8 +22,7 @@ Terramater - Protheus (2015) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:8EDB89BD12F04B0A4B29689FF7CADD92A5B30640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ambrotype - The Revelations (2015) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:213E3DF020CB12C1C64F0227C1AC06F94822BFE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Overtures - Rebirth (2011) [FLAC|image + .cue]<Heavy / Power Metal>
 ```bash
 magnet:?xt=urn:btih:158E1DCC1334FCAAAF4D325079CCAF277774BA46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Conquest - Taste of Life (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:5C42B601558EE33BB587715CE5F083BA95094280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sensorium - The Art Of Living (2015) [MP3|320 кб/с]<Power Metal, Female Vocal
 ```bash
 magnet:?xt=urn:btih:82C495AE1E8AA6177A87024E855C56E61A20D374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Das Bluesgericht - Was Besseres (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:466B0AC03E9C225FF7B914707D511E6F91CB8B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Annie Eve - Sunday '91 (2014) [MP3|320 кб/с]<Alternative, Indie Folk, Indie P
 ```bash
 magnet:?xt=urn:btih:29F038F247C3B0B6526D98111E441946F9A274A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Burning Point - Burning Point (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F3B7F59208B903E2D7F68C6ACB799C8A1565A3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Dominik Nicolas - La beaute de l'idee (2015) [OGG|489-536 кб/с]<Alternative, 
 ```bash
 magnet:?xt=urn:btih:D0FD572F1FB6BBB123F833CFDE43EDC056C51ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Brad Wilson - Blues Thunder (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:278B887C823E393CA814C2F0E238E3ECAEDE8842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Neurotech - Stigma (2015) [MP3|320 кб/с]<Industrial, Cyber Metal>
 ```bash
 magnet:?xt=urn:btih:7269CC9226DAF164AD0141AF3E309CEEC3E6E26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Armored Saint - Win Hands Down (2015) [FLAC | image+.cue | Lossless]<Heavy Metal
 ```bash
 magnet:?xt=urn:btih:4EB78888FB2080E383CDA98DFCF0DE90407CE7B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Lifehouse - Out Of The Wasteland (2015) Target Edition [MP3|320 кб/с]<Alterna
 ```bash
 magnet:?xt=urn:btih:CC13343B335B962545C37AF3572737ECC4098544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ The Rolling Stones - Sticky Fingers (1971) Remastered /2015, Polydor/ 2CD Deluxe
 ```bash
 magnet:?xt=urn:btih:F75BAF4DFD72D17CB62E43B77F67CBCED4DB9CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Single & EP к новому альбому фронтмена RAMMSTEIN Тилл
 ```bash
 magnet:?xt=urn:btih:7C8546F2BF684DA44A568AB76E5B61C81FF24D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

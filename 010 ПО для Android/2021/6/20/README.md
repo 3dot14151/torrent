@@ -22,8 +22,7 @@ Dictionary - Merriam-Webster v5.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:FD3F2E2E645E06BBF486B16E4C94112CD7C5AB3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ POIbase speed camera warner V7.2.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:682102D651AF206493B53F1F9432088CD372DF5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6831294272538B60522FE3C19904A65E31B6ACB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Text Scanner v4.1.7 [Ru/En] - извлечение текста из изобр�
 ```bash
 magnet:?xt=urn:btih:069141DF8AA7F55AF811B3A01B467658C6E45822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

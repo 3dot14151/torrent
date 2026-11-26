@@ -19,8 +19,7 @@ Jazz Jackrabbit (1994) [En] (2.0_csv2_patch_2/dlc) License GOG [Collection]
 ```bash
 magnet:?xt=urn:btih:0C9ACFB7445A3DD28FF3E9FBFFEBCCB011A4F1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

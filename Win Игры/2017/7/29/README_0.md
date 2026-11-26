@@ -19,8 +19,7 @@ Immortal Love 2: The Price of a Miracle / Бессмертная любовь 2:
 ```bash
 magnet:?xt=urn:btih:83E551342F60ABE584B0553F79727AF7582BCAE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PuppetShow 11: Arrogance Effect / Шоу марионеток 11: Эффект �
 ```bash
 magnet:?xt=urn:btih:CC2C2F9A40AC0C4DC9F0FEFDC13B3BEFA55ACEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hotel 19-95 (2017) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C034E4B4AE5C26B45015F75B1781DADFA732167B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sudden Strike 3: Arms for Victory (2007) [Multi] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:F5B17C9313C3A0348C8EB7595764A9DFF3AEC5D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sudden Strike: The Last Stand (2009) [Ru/En] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:F50E7433A48DE183D9BEA1C9E4318552B09CE09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

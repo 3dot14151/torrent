@@ -22,8 +22,7 @@ A4 Took It To The Limit 3:46(   Читать дальше...   )Жанр: PopП�
 ```bash
 magnet:?xt=urn:btih:B43F11E2BB300820044587F5FD4FB626F4C6113F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Magical(   Читать дальше...   )Жанр: EuropopПродолжи�
 ```bash
 magnet:?xt=urn:btih:E7E89FC969B8A8DF38CA19B97AD69536A4939BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4. You Give Me All I Need(   Читать дальше...   )Жанр: Hard Roc
 ```bash
 magnet:?xt=urn:btih:C1D83B40EE1942AE7E89374231DC99BC6E5CB45C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Overkill — американская трэш-метал-группа, осно
 ```bash
 magnet:?xt=urn:btih:DA79B0D8D4BF1B2D305537A46923BDBE826D231A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

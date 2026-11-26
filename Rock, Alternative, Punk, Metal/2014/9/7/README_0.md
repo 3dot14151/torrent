@@ -21,8 +21,7 @@ Silent Wood - Me And My Shadow (2014) EP [MP3|320 кб/с]<Post Black Metal>
 ```bash
 magnet:?xt=urn:btih:5705462850DE3023808633574C48D74DE912B96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Votnut - Votnut (2012) EP [MP3|320 кб/с]<Blackened Hardcore, Black Metal, Dea
 ```bash
 magnet:?xt=urn:btih:7B9E4D1C8B3A9053D80397DB782AA6F1BDE6F51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Gary Brooker - Echoes In The Night (1985) [MP3|320 кб/с]<Art-Rock>
 ```bash
 magnet:?xt=urn:btih:E375298653B47D9BF0C80784EA07B4205FE8EC04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Set And Setting - A Vivid Memory (2014) [MP3|320 кб/с]<Post Rock, Post Metal,
 ```bash
 magnet:?xt=urn:btih:C8E46346B9B8ADF5970D1560E8C845F42CC60075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Kerretta - Pirohia (2014) [MP3|320 кб/с]<Post Rock, Post Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:21C17F70458B3D93371D75B6A3ADF7A779D6038F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Darkspace - Dark Space III I (2014) [MP3|320 кб/с]<Atmospheric Black Metal, A
 ```bash
 magnet:?xt=urn:btih:9F663F5132C3216B3AF3320410C55421BE4DA840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Phil Collins - Hello, I Must Be Going! (1982) [MP3|320 кб/с]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:41C900881961BDCDE888CF9119C0639F66AC3B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Marillion - Fugazi (1998) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:16012AD3DF7FC30084FD04E16017CBEEA9048164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ The Haunted - Exit Wounds (2014) Japanise Edition [FLAC|Lossless]<Melodic Death/
 ```bash
 magnet:?xt=urn:btih:933C25307DBF297FA85395044F89D09CE3CF5FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Judas Priest - Live In London (2003) 2CD Japan [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F160C8F1AEADBF3D8E955753938789251EE927C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:0D3F6D1798CA1F7FE21193171678824AD7CA3702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ In Flames - Siren Charms (2014) [FLAC|Lossless]<Modern Metal/Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:46452383B68E67149B939587F6E80F8880D8265D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

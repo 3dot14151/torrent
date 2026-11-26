@@ -19,8 +19,7 @@ Watchmaker / Тайна маятника (2002) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:BE20D932078AFA5E75BAF30CE21D7C34291025C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Conflict: Desert Storm 2: Back To Baghdad / Конфликт: Буря в Пус
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Conflict: Vietnam / Конфликт: Вьетнамская война [Ru] (L)
 ```bash
 magnet:?xt=urn:btih:B95D1E10D11DCAB7BB29A7D1AF066ED4EFAF46FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Conflict: Desert Storm 2: Back To Baghdad / Конфликт: Буря в Пус
 ```bash
 magnet:?xt=urn:btih:9714D0CC42DFFB2690CE947DC8A112BB846BF071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Cross Racing Championship 2005 [Ru] (L/1.2.4-Version 1.50 build 907) 2005
 ```bash
 magnet:?xt=urn:btih:460D0BB23769DF642DC436121C5CDB505EA53C6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Halo: Combat Evolved - это отличный шутер от первого л
 ```bash
 magnet:?xt=urn:btih:E6406FC2EC5A0DD785B4302059FFD616217AB628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

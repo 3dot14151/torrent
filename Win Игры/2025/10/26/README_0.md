@@ -18,8 +18,7 @@ Lone Soul - это рогалик в жанре hack-and-slash, сочетающ
 ```bash
 magnet:?xt=urn:btih:8628A79F143D3B401EB0F9037FA72CBEEB756372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

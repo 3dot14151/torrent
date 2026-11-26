@@ -22,8 +22,7 @@ A4 Вечная Весна(   Читать дальше...   )Жанр: Classic 
 ```bash
 magnet:?xt=urn:btih:6CAD26BF0A0C9FA18BA2436F744B4FB8201ABA93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

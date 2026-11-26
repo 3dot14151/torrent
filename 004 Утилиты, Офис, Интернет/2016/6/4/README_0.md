@@ -19,8 +19,7 @@ DjVu Small Mod — программа для создания электронн
 ```bash
 magnet:?xt=urn:btih:0CA394A91C75C1BE6FD3CD942E23AABD53E0C39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

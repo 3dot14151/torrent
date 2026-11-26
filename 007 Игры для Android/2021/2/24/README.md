@@ -19,8 +19,7 @@ Transit King Tycoon - транспортная стратегия, в котор
 ```bash
 magnet:?xt=urn:btih:ADF3316231CDDC06A7F3E10C6E7F0DA11BF03355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mekorama — головоломка в которой нужно помочь к
 ```bash
 magnet:?xt=urn:btih:55264BF9777074E21FE1C35860CD0692E37E59FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

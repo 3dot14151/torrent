@@ -19,8 +19,7 @@ Move or Die – это потрясающее развлечение на одн
 ```bash
 magnet:?xt=urn:btih:E6C81AAE0EE3852AEFD251FB68B8E363BB1BD72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mushroom Wars – это сочетание стратегии в реально
 ```bash
 magnet:?xt=urn:btih:AD113C9195D47EAA4844C3BD0C54C7E28FA2A77D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Absent Mind — игра, рассказывающая короткую исто
 ```bash
 magnet:?xt=urn:btih:5ABD41D7E207B05B483B502A519FCC530D106C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hollow Knight – приключенческий двухмерный платф
 ```bash
 magnet:?xt=urn:btih:7A39A83F1F04F57E6353361C9F81E9D77707A835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Boogeyman 2 (2017) [Ru/Multi] (1.4.1) License HI2U
 ```bash
 magnet:?xt=urn:btih:AFAFD3F423AABA36A9CB9F4A62EE321D747F53E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

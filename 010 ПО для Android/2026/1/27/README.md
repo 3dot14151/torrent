@@ -19,8 +19,7 @@ PORTAL-WG 1.3.6 Mod by STR_BYPASS [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F151BAF38EBABAB4DE6F2F06551DCE9510202648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

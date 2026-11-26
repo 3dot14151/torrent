@@ -19,8 +19,7 @@ Vessel (2012) [Ru/En] (1.15) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:C48B28332A359BF820BA7BA92B976729610BB852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Survivors: Viy - кооперативная инди-хоррор игра на 
 ```bash
 magnet:?xt=urn:btih:FCF165EC64018C804E91EFCDD62B0B5380613A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Caesar 4 / Цезарь 4 (2006) [Ru/En] (1.2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:EF4E80AC6675D75DA09573C28999BA2C869D20FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Tomb Raider (2013) [Ru] (1.01.748.0) RePack Audioslave [Game of the Year Edition
 ```bash
 magnet:?xt=urn:btih:1226DB93D7D3F2295368A4FC77063F98C1611597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Hitman: Absolution (2012) [Ru] (1.0.447.0) RePack Audioslave [Professional Editi
 ```bash
 magnet:?xt=urn:btih:ADD723FAF2008C8610298966FE6FE2D6DBA3B662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

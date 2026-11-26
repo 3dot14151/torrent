@@ -19,8 +19,7 @@ Rene Cacheaux, Josh Berlin | Advanced iOS App Architecture, 4th Edition (2022) [
 ```bash
 magnet:?xt=urn:btih:7CB7CB315927B4C8281DB193BA6991CF203D44AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Cesar Bravo, Desilda Toska | The Art of Social Engineering (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:81A7E20204E415343416C5FCD08EA8DB06F006A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

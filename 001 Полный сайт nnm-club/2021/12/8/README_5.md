@@ -18,8 +18,7 @@ Thunder Tier One (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:4E8E84D54268DE96F8AF2AAF6737459ECEEA6AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Spirit Legends 3: Time for / Легенды Духов 3: Время перем�
 ```bash
 magnet:?xt=urn:btih:8A2BAF35BC0DF5DAA1783037E343DB2A978EF739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fatal Evidence 2: The Missing / Роковые улики 2: Пропавшие 
 ```bash
 magnet:?xt=urn:btih:177790510FBCEB7C40F81372C19BD3081E55FE70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Two Point Hospital - симулятор работы медицинского у
 ```bash
 magnet:?xt=urn:btih:697174C08DA919456D4EF91E76C983DD0BC15133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

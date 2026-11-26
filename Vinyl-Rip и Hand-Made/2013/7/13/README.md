@@ -27,8 +27,7 @@ A9 My Friend Stan [2:41]Жанр: Classic Rock/Rock & Roll/GlamПродолжи�
 ```bash
 magnet:?xt=urn:btih:BCAD9BE33F4AA889D453EEC4BE61D6E25E2E443E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

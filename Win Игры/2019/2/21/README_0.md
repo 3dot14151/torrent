@@ -19,8 +19,7 @@ Grim Facade 10: The Message (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:AFDD1F5C13643B9BEE54A82FDBFC3F13D51AE1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Unseen Fears 2: Outlive (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:1F40DA82F43A0245D850F2379BC2D0A71E9549C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Medium Detective: Fright from the Past (2017) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:2C8E770EF1E782D3605B31BA624D262E38BF3722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Enchanted Kingdom 4: Fiend of Darkness / Зачарованное королев
 ```bash
 magnet:?xt=urn:btih:6A7A0B77E8786DA35AD1E1944A724612A901F88B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Prisma Art Effect Photo Editor / Арт - Фото в Рисунок v4.6.2.618 
 ```bash
 magnet:?xt=urn:btih:CE71647611BC3146C7F1F8DE307273C50E861C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Cradle Of Filth - Cruelty And The Beast (Re-Mistressed) (1998) Reissue, Remaster
 ```bash
 magnet:?xt=urn:btih:E8C4B7C6E34F8C019C32E8929729AE5B46800713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6476CF25C0D08C7DC95BC5EDFA2982F007F42C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fortune - 3 альбома Discography (1993-1995) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:73A67BAA158A2108E414C3459DA9D871FA0A55F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fortune - 3 альбома Discography (1993-1995) [MP3|320 Kbps] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:2D1669C66007B1268AD27598646F1988A2B5B5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lacuna Coil - Black Anima (2019) Limited Edition [FLAC|Lossless|image + .cue] <A
 ```bash
 magnet:?xt=urn:btih:67E8A65375972D600967E0019E3A83F16E4B9788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bring Me The Horizon - 13 Releases (2004-2019) [MP3|~245-320 кб/с]<Deathcore 
 ```bash
 magnet:?xt=urn:btih:C9760C23BCE4F16C41F1AB6A1428F40DA8B31DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

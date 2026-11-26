@@ -19,8 +19,7 @@ Star Wars: Galactic Battlegrounds Saga (2002) [Ru/Multi] (1.10/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0BCCCD9775C96776159455C8B0AEBA49F61441E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

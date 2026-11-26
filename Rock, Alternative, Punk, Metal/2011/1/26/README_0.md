@@ -28,8 +28,7 @@ Whitesnake - Greatest Hits [2CD] (2008) [MP3|320 kbps]<Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:42C36688880977A1B4093EED2E460B2C1D566AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

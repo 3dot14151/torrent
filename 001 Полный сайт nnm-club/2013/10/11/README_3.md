@@ -27,8 +27,7 @@ Bon Jovi - Best Ballads (1997) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:86D5CB70158CD0A3C71CDC1D043966471823CE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:52083972FB58FE542E840715851EF3AA0AAE4F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Universal Religion: Chapter 7 - Mixed & Compiled by Armin van Buuren (2013)
 ```bash
 magnet:?xt=urn:btih:8EFC5C32B1918E686319920D0DA8EC61F51188E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04491088A2AE346414130EED34097DEBA8E739F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Larry Coryell & Alphonse Mouzon - Back Together Again (1977)/2002 [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:05653D4B2FC80105203882E40A621024E5EB6AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Scooter - 20 Years of Hardcore (2013) [MP3|~245 кб/с (V0)]<Techno, Happy Hard
 ```bash
 magnet:?xt=urn:btih:4A3A62D1893D5E538A5833BA03D8E072B357620E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Lee Ritenour - Masterpieces: Best Of The GRP Years (2012) Jazzclub [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:5345F0FD464F5A735AB1019A71A9D1F4A133439E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Wallpapers - Обои разное 15. [JPEG]
 ```bash
 magnet:?xt=urn:btih:1091D2D601948217C4D86FA3D578F4F4DBD7BBA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ Dr.Web CureIt! 8.2.0 (11.10.2013) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1F8EDF2316B9CE2EFD211B9AA9A7B089666A20B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ TagScanner - мощная программа для организации и у
 ```bash
 magnet:?xt=urn:btih:2DAAF9D899586152221E2990CC1A31728145D03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ Apowersoft Streaming Video Recorder является прекрасным пом
 ```bash
 magnet:?xt=urn:btih:F6A642C4F7459C198BB2DE24F316E83748BDEEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ Choco - отличный выбор для любого любителя фот�
 ```bash
 magnet:?xt=urn:btih:634D02AE4737EFFC97EDCA79DA2803DC78D6386B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ Wallpapers - Эротические обои.(16+)Часть 9. [JPEG]
 ```bash
 magnet:?xt=urn:btih:D888D99F6CFA944A6FFC36000115E0F21DDF32F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ VA - Europa plus. Дискотека Осенний драйв 50/50 (2013) [MP3
 ```bash
 magnet:?xt=urn:btih:38F792FFDE04AA61400E90E6E2EF2AEA93C9D7CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ Wallpapers - Обои разное 16. [JPEG]
 ```bash
 magnet:?xt=urn:btih:267453EB59DD550D5FC83338C85EFF0095C4D521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:4ADC6F1EB5D4D77DFD9D17CA466F931513C62714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ Bigasoft MKV Converter - мощная программа, которая пом�
 ```bash
 magnet:?xt=urn:btih:1933BF89A1916920BF50B4FCC90CDC6D0430B054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ Foreigner - The Very Best... And Beyond (1992) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:48EF8EF5864EA2F154F8482D375AFA6E11CF2D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +541,7 @@ VA - 100 Hits - Soul (2007) [MP3|320 кб/с]<Soul>
 ```bash
 magnet:?xt=urn:btih:A8509A0F60492D5129FC2E06BAC180C61E165FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D13BE52491E8AF8DE908DD84648B9D2BF44CCAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:5CC72803B354033ED8C91FD5A17943120E771154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ VA - Club Music Vol.20 от Kulemina (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:6449E43991896EF2EEBABFB3A235BDA8373CF907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ Trine перенесет вас в фэнтезийный мир, где хра�
 ```bash
 magnet:?xt=urn:btih:3B23C0056D088A0BDFA5EC4E2469FDA12B96F199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A7C9B2667CE71B7714E5C85C0D3B21F56CC9A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +701,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:C2D7230795E77776C8A91A7651318EE4DB8F6E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +726,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94DEE15FB94A0C930F0622B11F71FD5354372BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

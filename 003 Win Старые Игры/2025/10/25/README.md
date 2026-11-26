@@ -19,8 +19,7 @@ Crysis 2 (2011) [Ru] (1.9.0.0/dlc) Repack Necros [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:E820D8D8E8E1E3C5F2392F34457B0B7E5A6CEC4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
 ```bash
 magnet:?xt=urn:btih:4571ADF03CAD213F2862F56654EFEED915D718DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hard Truck: Road to Victory / Дальнобойщик: Путь к победе
 ```bash
 magnet:?xt=urn:btih:9C40CE1F9C8C54D7005BB1E69C7B91D0FBC2E564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

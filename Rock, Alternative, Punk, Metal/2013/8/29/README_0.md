@@ -23,8 +23,7 @@ Forgotten Suns - Snooze (2004) [2CD] [FLAC|Lossless]<Progressive Metal / Rock>
 ```bash
 magnet:?xt=urn:btih:78050A8E1A93DADA80BF9F27BCDC1B8A9DA8A11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Tarot - Gravity Of Light (2010) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:258EA50C77EE0BC91175C19D14640B083CF28D1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Deadlock - The Arsonist (2013) [FLAC|Lossless]<Metalcore | Modern Metal | Male &
 ```bash
 magnet:?xt=urn:btih:DAC968757639703F98F2D1D5EA86DEB022821264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Cardiant - Tomorrow's Daylight (2009) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:A74AB0BF298E5BF676F42D5B651EDB5A5B39B9F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Eternal Oath - Ghostlands (2013) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:9A05B80B006931BD4877FF14AAA3E20E022AC9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Santa Cruz - Screaming For Adrenaline (2013) Japanese Edition [FLAC|Lossless]<Ha
 ```bash
 magnet:?xt=urn:btih:67D0C3FFCDFCD5A5B5D93B519394C0D5543FBE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Popa Chubby - Universal Breakdown Blues (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:BF0FB76D69BB253F21B2730C7877C62CBD45F487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Tedeschi Trucks Band - 3 альбома (2011-2013) [FLAC|Lossless]<Blues Rock, 
 ```bash
 magnet:?xt=urn:btih:84C6936136AAF619DDA80E55B1A41843D726190A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Journey - Greatest Hits (1996) [FLAC|Lossless]<Art Rock>
 ```bash
 magnet:?xt=urn:btih:5D2BB4C67143DA5BAA90C66099D09D52FB5886C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Ritchie Blackmore's Rainbow - Black Masquerade (2013) 2CD [FLAC|Lossless]<Hard R
 ```bash
 magnet:?xt=urn:btih:F5C35EEC70830AE57B136CE49FD60ADEC3952C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

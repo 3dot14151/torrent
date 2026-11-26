@@ -20,8 +20,7 @@ ABBYY TextGrabber на лету оцифрует фрагменты печатн
 ```bash
 magnet:?xt=urn:btih:C6DF851C495180DAF7806DC9040706B7E953994B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ ESET Mobile Security — это быстрое и мощное приложен�
 ```bash
 magnet:?xt=urn:btih:BD8C558987A9B2124ED4CF9DABC77F3BF17C68FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

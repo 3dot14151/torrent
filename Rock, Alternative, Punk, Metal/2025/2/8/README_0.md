@@ -22,8 +22,7 @@ Dream Theater - Parasomnia (2025) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:F9C9829356F92E8CDA4BFACCF5675064D4F2C058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stud - Under Silver Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:92142BD284D84B7C0176D6DF2A92F390FE35678D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

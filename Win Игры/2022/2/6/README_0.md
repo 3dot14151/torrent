@@ -19,8 +19,7 @@ Deja Vu / Дежавю (2020) [Ru] (1.0) Unofficial [Collector's Edition / Ко�
 ```bash
 magnet:?xt=urn:btih:6086924985F41BBB5D64AA7BFDDF8A77B70F0F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

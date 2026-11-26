@@ -19,8 +19,7 @@ tTorrent - удобный, функциональный и из-за прочи�
 ```bash
 magnet:?xt=urn:btih:BEDBB9EF49A45C23C479C227C57B657D0A4E7A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF8CB6D7170EC29B9FE42DFE3114E2A5275035D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

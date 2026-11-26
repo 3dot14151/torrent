@@ -21,8 +21,7 @@ Dynamic A-D Ports for Applications - addon for gufw - ufw (DAD Ports for App); L
 ```bash
 magnet:?xt=urn:btih:2689B0F37340DF5793ECE1D419003DE211AF64C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Safari Quest (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:968B2087932B2EEF334BCD6217456C177682221E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Darkness Within Дилогия [Ru/En] (RePack/1.02/1.04) 2007-2010 | R.G. Ме�
 ```bash
 magnet:?xt=urn:btih:AEF7E4E73E92F2BBF393FAC9309399CAE5EAFF51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Roboquest - это динамичный рогалик от первого ли�
 ```bash
 magnet:?xt=urn:btih:46DECF6B1B5FC5BFF6C52F6495203B23B1019100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:A8FA0764788AC6EE73DCD5163880043904C34A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Scene Rune [
 ```bash
 magnet:?xt=urn:btih:40008D8A67B5FEB1C36C349B7B9F28672396E83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:CCF2B608F3503AAE3A95712CB73BE36FC5C12CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Scorchlands – прогресс и магия, это одно и тоже! Т�
 ```bash
 magnet:?xt=urn:btih:547C7A0E064C354FBF48124F62F065596CBB7596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:513D0DCB623B47BA625531D6BB43C2DCBD55F6C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Avowed (2025) [Ru/Multi] (1.2.5.0/dlc) Repack FitGirl [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:B706DC4B8E689CD3213D70CF84D3DE176A741477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Catizens (2022) [Ru/Multi] (1.0.r166) License GOG
 ```bash
 magnet:?xt=urn:btih:5B859285807E6D1C769FC0CCF3D1825483144C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 ```bash
 magnet:?xt=urn:btih:B25F48F72AE15A7866917B856CD8783E4AF68BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Get Tilted! :) (2025) [Ru/Multi] (1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3AC0BEB9174A1BD0BB3DB49784E2815FC66BE0A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Few Nights More предлагает уникальное сочетание у�
 ```bash
 magnet:?xt=urn:btih:155809B1DA0A6A00A12C8822798E63359C398D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 ```bash
 magnet:?xt=urn:btih:4003ABCE0EAAF9BE6D9EB7A8E8DF4CAE5C169EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ BlazBlue Entropy Effect - двухмерная приключенческая и
 ```bash
 magnet:?xt=urn:btih:E3E146762CAFD2C96E007475650677FF3535667A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Beyond Blue - это однопользовательская игра в сти
 ```bash
 magnet:?xt=urn:btih:6869C0C124E955F98E280DFB9D556905BABA47EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Bulwark - это создание своей крепости и расшире�
 ```bash
 magnet:?xt=urn:btih:D4376A831374E072A1F435CA3BB85EB3B29D3571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

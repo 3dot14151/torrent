@@ -22,8 +22,7 @@ Svartby - Elemental Tales (2012) [FLAC|Lossless|image + .cue] <Folk Black Metal>
 ```bash
 magnet:?xt=urn:btih:1163D301ABA589BFD522246F597AE0103E64D69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

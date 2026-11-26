@@ -19,8 +19,7 @@ Fae Tactics (2020) [Multi] (1.010) License GOG
 ```bash
 magnet:?xt=urn:btih:56D42A86C0C19CA69930211496C72BA9E32A7887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:1CA515BA229F63E786B26C2AF8E683BCAC6B6696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ osmic Star Heroine - одновременно типичная и нетипич
 ```bash
 magnet:?xt=urn:btih:5D8B6C69006B6FA55BA4B5592D437649830FC58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ hovel Knight: Treasure Trove - это полноценное и завершен
 ```bash
 magnet:?xt=urn:btih:6988F2D5E9DA53026542372A0052B248E330FF03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

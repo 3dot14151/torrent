@@ -19,8 +19,7 @@ Vivaldi для Android — это новый приватный веб-брау�
 ```bash
 magnet:?xt=urn:btih:6E3D403BFDF065AC1253E085CFD7349472919174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ AIMP - это легковесный мобильный аудиоплеер п�
 ```bash
 magnet:?xt=urn:btih:6C5ABB309FF5440EE3AAC496BE780BB2C31F13ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

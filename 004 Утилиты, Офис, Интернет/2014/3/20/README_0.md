@@ -19,8 +19,7 @@ Recuva - программа для восстановления удаленны
 ```bash
 magnet:?xt=urn:btih:2844162B49EF48B51892F8294AF93DDAA036D1BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Child of Light – первая игра жанра JRPG от компании U
 ```bash
 magnet:?xt=urn:btih:1BDCEA5E3BF78CD6E12E7F79C2F4A868348874AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

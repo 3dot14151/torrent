@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:05FDB2170F58C0926D53B1758CA71EBC99D74AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C64D97CCDE068A6033C4C318D8A9803EFBFE4DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Red Giant Shooter Suite 13 - Новая версия пакета плагино
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ VideoSmile, Артём Слаква | Мини-курс «Blender для нов�
 ```bash
 magnet:?xt=urn:btih:ADC3D6DF6AF839A6AF1E95903AAC0A071D4BDD12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Hataraku Saibou | Клетки за Работой! [TV-1] [2018, TV, 14 ep + 2 
 ```bash
 magnet:?xt=urn:btih:A4687D57E3BFA8F679E0B3A8CB07FB6EB0116A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Deadman Wonderland | Страна Чудес Смертников [2011, TV, 12 
 ```bash
 magnet:?xt=urn:btih:0796150279C25262C2B626136E2120074646F1E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

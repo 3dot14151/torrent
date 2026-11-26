@@ -19,8 +19,7 @@ Zaycev.net v8.9.4 Mod by Timozhai, Dymonyxx  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2FC49C9E78E028A082A1F06D90C8F24CEB8A4D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Super Recorder - это мощное приложение для записи г
 ```bash
 magnet:?xt=urn:btih:07A7AEA4B6EA68CF77A9007164E6B95D8E3D7F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

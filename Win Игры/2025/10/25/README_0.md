@@ -19,8 +19,7 @@ Queen's Wish: The Conqueror - ролевая игра, выполненная в
 ```bash
 magnet:?xt=urn:btih:9ED4950EC8F26C6B63B48FC6A0A32003B83AA51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.04.03.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:6D096C5C4DDCED78E2FA538520D17D98D60254D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unto The End – зрелищный рисованный платформер о
 ```bash
 magnet:?xt=urn:btih:B9377AB3A3B95C22AE0D149F8C6CB41B6545E49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sunrider Legends Tactics поставит игрока во главе воен�
 ```bash
 magnet:?xt=urn:btih:0435D70F1BC7C5796B3DC018A229591B63C16A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tomb Raider рассказывает напряженную и захватыв�
 ```bash
 magnet:?xt=urn:btih:33479F5120A7AE17B800867914BA447EB5D19F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Adventure of Samsara - это двумерная приключенческая 
 ```bash
 magnet:?xt=urn:btih:65D41F81D31A82AEBE51F85A1B350C5D639D9116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bleak Haven - это игра в жанре survival horror, в которой �
 ```bash
 magnet:?xt=urn:btih:225E49872F813F62F852C0C59D901358BA6C4758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ FAR: Lone Sails (2018) [Ru/Multi] (1.31) License GOG
 ```bash
 magnet:?xt=urn:btih:B56CBE2F30F367005951945CE5DA6D7FF85060AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Neon Abyss сочетает динамичный сюжет в стиле «ст
 ```bash
 magnet:?xt=urn:btih:67023D92506EB8CE9C4C11A0BBC09E9A5AF9E648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack Other s [Digital Deluxe E
 ```bash
 magnet:?xt=urn:btih:BDAE34627FF8902C76F7455ED707B9418F4D7346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Paint the Town Red (2021) [Ru/Multi] (1.3.4 r5682) Repack Necros
 ```bash
 magnet:?xt=urn:btih:386D83E4E1CFE54EC021A43E87087A500495DD88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Gunfire Reborn - это приключенческая многоуровнев�
 ```bash
 magnet:?xt=urn:btih:1EBDDB76EA6A4C1C168D76BA8C5ACB74CBBA3E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Bridge Constructor (2013) [Ru/Multi] (1.3-fix/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:537AF26D418F7D79A06181D915B58E9A3339896E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Total War: Three Kingdoms - эта игра из популярнейшей ст
 ```bash
 magnet:?xt=urn:btih:7B00FE73C832730C5BC719F94361A79EB7E24B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9E0AF157D4655DBEA644EB9FA229F7398FAA108A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Trials Rising - продолжение популярной мотоаркады
 ```bash
 magnet:?xt=urn:btih:7F37FD92B4054395FE6E06ED882CA70DB897B71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.2/dlc) Repack FitGirl [20 Year 
 ```bash
 magnet:?xt=urn:btih:51C86B31924DC3B1FCBC7F0E2491ADF8DE6B1ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:5BC80049E34FE034781D99B586754072D25AC960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Necros [Digital Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:D89FCE9342FF4713CE6537C865E3CE22023E737B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Dispatch - это комедия о рабочем месте супергеро
 ```bash
 magnet:?xt=urn:btih:C68A36C2A226AD9C8CB41C8A9C34482AF1578BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

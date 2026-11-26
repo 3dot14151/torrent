@@ -19,8 +19,7 @@ Slax это миниатюрный дистрибутив, базирующий�
 ```bash
 magnet:?xt=urn:btih:4CC24980799ACF7FD0BFC1306134A6CACEAA3276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

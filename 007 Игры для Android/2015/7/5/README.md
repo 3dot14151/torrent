@@ -20,8 +20,7 @@ Overkill - широко известный и популярный тир от �
 ```bash
 magnet:?xt=urn:btih:12B605C363E16C0EE7C28F4C1B7E11B0873CF196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

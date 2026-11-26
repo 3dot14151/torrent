@@ -21,8 +21,7 @@ Debian GNU/Linux 8.0 Jessie (Testing, 01.12.2014) [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:008CFF7FF3FCA8F4BC1EB7F7E2484D86C7637A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Imperator: Rome (2019) [Ru/Multi] (1.1.1/dlc) Repack R.G. Catalyst [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:D89ED6C2AA6E5D01D3F084A3F5668F6B8F0B3550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Hive - новая стратегия в реальном времени с �
 ```bash
 magnet:?xt=urn:btih:1E23421623C93E2DAA0581FEF626EF3F11961843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Georgie Auld - 1946 - 1951 (2004) Classics [FLAC|Lossless|image + .cue] <Swing, 
 ```bash
 magnet:?xt=urn:btih:C13785BADFFCE8E90F34F173452F1EBBF607E7B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eddie Jefferson - Letters From Home (1962) 1987, Original Jazz Classics [APE|Los
 ```bash
 magnet:?xt=urn:btih:F8B94CD9452E14FAD71A05A3CC2D9DFB5DB16AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Silent Strangers - Anagram 4: Lume (2017) Selection 27 & IDMf [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:6EE0BC47228D8A8FFBF939B807F30ACE4F6AB525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Le Son Dancefloor (2009) [FLAC|Lossless|tracks] <House, Electro, Europop>
 ```bash
 magnet:?xt=urn:btih:25BAC30AEAF6B8A4D61068053E7D8871C935D141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - EE Compilation (2012) Electronic Explorations [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:D13D57BAE9815E0668ACB605F5EDF8F0CD60A3E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Beats For Life Vol.1 (20 Big Room Monsters) (2018) [MP3|320 Kbps] <House, B
 ```bash
 magnet:?xt=urn:btih:F655C0AB8A9FF348DC4275B265754D37504AED98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ The Three Sounds - Moods (1960) 1987, Blue Note [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:C8AA43B50F40DA44EB9EEEDAC86A9504DEE1BE8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - The Sound Of Trance Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:619B000DAC769E36512CEFD05A011804328465FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Tech Trance Essentials Vol.11 (2018) [MP3|320 Kbps] <Trance, Tech Trance, U
 ```bash
 magnet:?xt=urn:btih:34E68116322FF2ED8BA8A5F8B0008A95E8B541D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Deep House Architects Vol.8 (2018) [MP3|320 Kbps] <Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:13913D7235C823FA0FFAB060A93FBC14F4DA28B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Phylum Sinter - Colony Collapse Reorder (2014) Detroit Underground [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:15950E74FE11E944FBD2A3AE5339D39617DA975A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - House Goes 80's Vol. 3 (2009) [FLAC|Lossless|tracks] <House>
 ```bash
 magnet:?xt=urn:btih:48D30C09DD3CD223F038760F3663380C35AB27F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:F1E4C3EDDDBE621FFACF3F529395EAF42A4D5A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:27578FBFB601C89D89066B73C0C79729D5CB983E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:27D6DD10D6168D3CB29140081387F1D56774DA06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [MP3|320 Kbps] <Progres
 ```bash
 magnet:?xt=urn:btih:2DEA98CA537910754C9AF1323C70F5A80DD36840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ The Saturdays - британско-ирландская девичья груп�
 ```bash
 magnet:?xt=urn:btih:F7860ACDE0FE6A7145AD8DC4403C1CE48F1351E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B75BA8BA07264E36BB8B4FCA0F19AD3021B489C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:4424F5654D5AA074B74CABA25556C34BEFB92D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:342EE712F6AD2590DCB0464C2F92E51760DAE51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ VA - The Official UK Top 40 Singles Chart 09.02.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:AEEAD53DDA7E44ADBD75FDDFB0F66DFF1D7EA74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ VA - Nothing But... Progressive Selections Vol.01 (2018) [MP3|320 Kbps] <Progres
 ```bash
 magnet:?xt=urn:btih:59A37CAE8726E083043B4471F30AED9331C3D481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ VA - JB-Mix 19 (2017) [MP3|320 Kbps] <Drum n Bass, Dub Step, Jungle>
 ```bash
 magnet:?xt=urn:btih:C83D3B2FDEE345B196276B81109D3AF69AFF3D73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:0A2E36A824090B66F44CD90F7C09CEA9E6FA3A55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:7D08E6A7583CABA25FABFFFC69079637350CA9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ Gold Panda - Good Luck and Do Your Best (2016) City Slang [FLAC|Lossless|tracks+
 ```bash
 magnet:?xt=urn:btih:CEAE00A5183220033D1C680829513677E82EABE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

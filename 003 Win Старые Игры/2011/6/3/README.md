@@ -21,8 +21,7 @@ The Suffering Дилогия [Ru] (RePack) 2004-2005 | R.G. Catalyst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ You Are Empty [Ru] (RePack/1.3) 2006 | PURGEN
 ```bash
 magnet:?xt=urn:btih:3CDEB9DCB3E252C96758A95AA02461C221F03ACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Icon Of Hell (2016) [Ru/En] (0.99) Lisence
 ```bash
 magnet:?xt=urn:btih:DA39B58D41E0C7B73435B1C173A08893A63B3C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Tape является медленной и жуткой игрой от п�
 ```bash
 magnet:?xt=urn:btih:0C3B00C0725676A57277B5BDD4B223FE1B9423CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Demesne - игра для тех из вас, кто любит рыбалку �
 ```bash
 magnet:?xt=urn:btih:1D038CD963102383218EF9769AAB0F98E88256C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Putrefaction это Шутер от первого лица с элемента�
 ```bash
 magnet:?xt=urn:btih:4DC4FD5BF92AC5F9731532407DA8BCEA6300805E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dead Secret – мистический триллер, созданный для
 ```bash
 magnet:?xt=urn:btih:E112E959BFD3E7640305626BC2F9D3AE90DD5D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

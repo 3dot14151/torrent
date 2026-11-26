@@ -19,8 +19,7 @@ A Boy and His Blob - ремейк оригинальной игры, котор�
 ```bash
 magnet:?xt=urn:btih:6B53BBAA7AD0D88B7A2B70D1465248F7F2608D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.5) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:23A042A77BD31E4904FCD3E40F28B3D18D39E5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

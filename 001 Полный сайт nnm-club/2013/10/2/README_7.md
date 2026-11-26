@@ -28,8 +28,7 @@ K-di - Мелодия моих планет (2013) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:751CEB7C1ABCE7BF7EBA826CAFC44116F72B1F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Daedalus - The Never Ending Illusion (2009) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:5B3B7691FCB577ADD8024D340E0AEEADB252E493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Trance Maniacs Party: Trancefer Wave #126 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5D25913217C9DF173E55FE76E1019EDFC10631D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Josh Money - Carve (2013) [MP3|320 Kbps] <Dubstep, Glitch Hop>
 ```bash
 magnet:?xt=urn:btih:76748F29BE254C08D48AD94A4EA2383D285930CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ DJ Sync - Ethereal Atmospheres (2013-09-29) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:24A274FCF0712BD93C4F776F794C8E8EEF1BA5DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ VA - Chill-Out Exotico (50 Ritmos Esenciales de las Musicas del Mundo) (2013) [M
 ```bash
 magnet:?xt=urn:btih:A4F15ED23B83D3C9ADADD8900DEF5A9445487358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Opera Developer - браузер Opera, обновляемый каждые дв
 ```bash
 magnet:?xt=urn:btih:073079E99BCA4D416A292FBF174D50FE5F00AE95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2611E7C5B64AAD895D8365D13B210D958CB61CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ Erika - True Colors (2013) [MP3|320 кб/с]<Vocal Jazz, Latin Jazz>
 ```bash
 magnet:?xt=urn:btih:861069F7FF29BF8C229247CABFD8D06CED1FA863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2F5AA89ED1D92EDDF067C4CFC97080EE7F1902B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92A263C1E391C5721D2B8756C3E706F2F27F9B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ As Autumn Calls - An Autumn Departure (2011) [FLAC|Lossless]<Melodic Death/Doom 
 ```bash
 magnet:?xt=urn:btih:5D58B38F560834DB6B21C1A8772A5E3EBC3EC6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ VA - A State Of Vocal Trance Volume 22 (2013) [MP3|320 кб/с]<Trance, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:579CE220131DA2F6D463FC89596D1EACDFB52192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ Noktamid - Carpe Diem / Carpe Noktem (2013) [FLAC|Lossless]<Psy-Progressive>
 ```bash
 magnet:?xt=urn:btih:115D854170D5A698F83F57EC3B85CA895FC6394A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ Avulsed - Ritual Zombi (2013) [WavPack|Lossless]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:9549ADF8080029BD4F044547D456721FC4121EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +548,7 @@ George Nascimento - Piano Bar (2005) [MP3|320 кб/с]<Instrumental, Piano>
 ```bash
 magnet:?xt=urn:btih:8D3CDA8E8E92533E274DE75F93E0E7075F2B6B05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +582,7 @@ VA - City Dubstep Bring (2013) [MP3|256-320 кб/c] <Dubstep, Beat, Electro>
 ```bash
 magnet:?xt=urn:btih:233EDC76BFE726FD04A110D8832747120350D2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +616,7 @@ Doug Simmons & Glen Mitchell Band - 7 альбомов (2009 - 2013) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:BAB4F75303AA256CA4F54DC236F3D156B645CFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +650,7 @@ VA - Best Drum Elements (2013) [MP3|320 кб/с]<Drum n Bass>
 ```bash
 magnet:?xt=urn:btih:07A4BA35BA006ED81A9D7898238F541D214ACFF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +684,7 @@ Lars Leonhard + Alvina Red - Seasons - Les Quatre Saisons (2013) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:B756A8A949D76FD26440C8C8C6718EB5CA18CB19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +718,7 @@ Andrew Belle - Black Bear (2013) [MP3|320 кб/с]<Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:F6D2598011EDA9CBD54DAB7F75D0C353F8228571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +743,7 @@ Autopano Video Pro – это профессиональное приложен�
 ```bash
 magnet:?xt=urn:btih:2C1D6F92FEC5740514F4406375337120BE103250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -800,8 +776,7 @@ Eguana - We Turn Into Water (2013) [MP3|320 кб/с]<Psy Chill, Downtempo, Ambie
 ```bash
 magnet:?xt=urn:btih:13794AC3BB7396BD8F128B698B7B4BD9C4E60825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -829,8 +804,7 @@ VA - The Best Of Simplify Bass Volume 3 (2013) [MP3|320 Kbps] <Dubstep>
 ```bash
 magnet:?xt=urn:btih:06B91F4DE9F853E400B37846BA856E68B4632AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

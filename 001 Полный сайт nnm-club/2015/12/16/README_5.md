@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:950DF59023F089FF92C6B629AB486F2B16D00A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48172E0B8ED9C2990A9B597334F7B1ED929C4FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Boris Continuum Complete 10.0.686 for AE&PrPro CS6-CС 2015 (x64) RePack by Team
 ```bash
 magnet:?xt=urn:btih:9485159E132E519CB98077DB732C62597886EC55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03BF8239FD9C8ABC34D3CBF1F422709CACDE7C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Helldivers (2015) [Ru/Multi] (Build 901447/dlc) SteamRip Let'sРlay [Digital Del
 ```bash
 magnet:?xt=urn:btih:0B212908CC94E1BA8BEA3D6574B2EC45F8FB2F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) SteamRip Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4C252816860AEE01C4E1813F67CBA4DB6BB66909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B25A4BB405A3C69332D0B87EAAA5B62237AF61D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Dr.Web CureIt! представляет собой антивирусный ск
 ```bash
 magnet:?xt=urn:btih:9EFA3E7ACD2426060EB0995187D6F8C40106971B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

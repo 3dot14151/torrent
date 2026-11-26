@@ -19,8 +19,7 @@ ToonMe v0.6.109 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:453CF9ED7CF3D9C8E846E44669DAEBC67C4FF899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spyglass v3.9.9 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D4BF8893F62DAED39E27273A44C030EAA87FC5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ventusky: Прогноз погоды v31.0 Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7BEEB02281AA556FA15BF4367B34EE111F9BDA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:3162338BDCDEBD4D15B868C0A59597D9000D7A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ActionDirector- это единственный 📹 видеоредактор,
 ```bash
 magnet:?xt=urn:btih:D3F5B3CCE465587AF9BD278EE3062633437A0F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

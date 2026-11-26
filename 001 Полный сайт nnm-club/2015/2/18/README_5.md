@@ -18,8 +18,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.9926 (x86, x64) [Ru]
 ```bash
 magnet:?xt=urn:btih:02C481FFEE73FFD4749029B6A796A6860AD85871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

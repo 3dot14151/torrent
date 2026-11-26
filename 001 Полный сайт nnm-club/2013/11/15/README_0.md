@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4108115DFB63956E5D67DE685E22C3D4FD79E70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:815CA2B28146F2EDA733BBF2C008F13BB04ABAD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - MNM Big Hits 2013 Vol. 3 [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:E34CBAB777734427CED160CA46841BC81C95BA65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Cafe Buddha Box Set - Classic Buddha Lounge (2009) [MP3|320 кб/с]<Downte
 ```bash
 magnet:?xt=urn:btih:0F383B4941A744673C0BBB2A6FD4970904D81181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D067D2BE3D5E0C746243B916FD2A694E75C20B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB1120EB47007546E0BB99400DE717359154DC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ AL Jarreau & Lou Rawls - Kings of Soul (1997) [FLAC|Lossless]<Soul>
 ```bash
 magnet:?xt=urn:btih:219F197E61E64917F3182252B2EA3434E0AD014F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ VA - The Mash Up Mix Ibiza (Mixed The Cut Up Boys) (2013)2CD [FLAC|Lossless]< Cl
 ```bash
 magnet:?xt=urn:btih:D5A073974E3E5074C9C548783B11EB95BCA92FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ Maxthon для Windows использует уникальный двухдви�
 ```bash
 magnet:?xt=urn:btih:27E8EEBDCB32F76F315DE8D34DE3B02DAEA7749E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ VA - Full On Fluoro Vol. 1 (Mixed By Simon Patterson) (2013) [MP3|320 кб/с]<T
 ```bash
 magnet:?xt=urn:btih:5034055F603C79A60B6D3BB92DD0455528B24728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:663CC4CE735BA567BB697E8CEDF2EC012D9C30E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ Comedy Баттл. Без границ. Выпуск №26  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:80DD9DE62DA6B161FD80A3D6B1811F523DF5500F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ VA - Record Super Chart № 316 (2013) [MP3|320 кб/с]<Electro House, Trance, 
 ```bash
 magnet:?xt=urn:btih:6F607EF2C2D3DDCF15237879B578D6BE01FB112E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ SVIRID - Radio Chillstep (2013) [MP3|320 кб/с]<Chillstep>
 ```bash
 magnet:?xt=urn:btih:09203EE104E44147197BB1EDD24AC9355D0E912D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95CBF77C3E65D7CD175B68F18035D27EF7566597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ VA - Ignition Red Planet Vol. 1-2 (2013) [MP3|320 кб/с]<Chillout, Ambient>
 ```bash
 magnet:?xt=urn:btih:9383F44F8398EEF9104730B4DA7C0FDFA9BA79BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:9CD6AA7C0F6EB45E8D24CD1A16E213BF9B7A10A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:728CBFD32FB55CF9A158BCB7508DBA2686B2F2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:421E05328687F55060EF796E6B451464F33CD4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6CF2E706FCA8DDFE97E32968D3807650F947F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3BDA64D266D0EBAE1D535EEE8BE24AC72C9A09D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:90004E0FE0F2F108409347D9BCD1169AECAF6886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +682,7 @@ Armin van Buuren - A State of Trance 639 (2013) [MP3|320 кб/с]<Trance, Progre
 ```bash
 magnet:?xt=urn:btih:B86646E2F2F2E1047C946F987ABCF3D446B954A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +716,7 @@ VA - Хит за хитом от DFM Осенний (2013) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:FB490BC192B11C394AA059F2B690B317385C6F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26B0C849602031B441480C26AA920BCE94E266A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

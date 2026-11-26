@@ -23,8 +23,7 @@ Dekadent - Veritas (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:6D2C120060D45D27FBE304882F4A29C43C8B3C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Morgoth - Ungod (2015) Limited Edition [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:FF7214032ED37F97A147F55B5C4AF1B63BBCA1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Ginger Fox Band - Won't Change (2015) [MP3|320 кб/с] EP <Hard Rock, Blues Roc
 ```bash
 magnet:?xt=urn:btih:13DF3FDF4EC862053C27C0CEB4380DEC275DB150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Civilization One - Revolution Rising (2007) Japanese Ed. [FLAC|Lossless]<Melodic
 ```bash
 magnet:?xt=urn:btih:29564ECA9E94143D69BE28EB262AEE341BE76338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Smash Hit Combo - Playmore (2015) [MP3|320 кб/с]<Rapcore, Frenchcore>
 ```bash
 magnet:?xt=urn:btih:7DF56FEE9565649A6BDF28F9CDC18C7F7892B547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ VA - The Many Faces Of Ramones (2014) 3CD [FLAC|Lossless]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:851D3A5D4CE6799BBDE2D120DA784D7E62C00C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15EE4477B4EA8EC4760034EE386311B97FD2C61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ VA - The Many Faces Of Black Sabbath (2014) 3CD [FLAC|Lossless]<Heavy Metal, Har
 ```bash
 magnet:?xt=urn:btih:6F607BCF57B53EE532E8C41852F71175BA4C77CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Michael Schenker's Temple Of Rock - Spirit on a Mission (2015) [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:B29FD335215857B950102F6FD7A75D1B9603B7D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Santana - The Magic Of Santana (2015) [FLAC|Lossless]<Classic Rock, Latin Rock, 
 ```bash
 magnet:?xt=urn:btih:321200F8E1ECFA8396D676A4993A424A9F844FA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ The Greenhornes - американская группа, играющая в с�
 ```bash
 magnet:?xt=urn:btih:D18C2D4F0C550D4AB70EB18C1C9BC0D68E73827A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

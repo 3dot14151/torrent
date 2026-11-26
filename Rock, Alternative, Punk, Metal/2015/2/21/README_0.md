@@ -22,8 +22,7 @@ Led Zeppelin - Physical Graffiti (2015) 3CD, Deluxe Edition [MP3|320 кб/с]<Ha
 ```bash
 magnet:?xt=urn:btih:AD92CC920DA6AFAB2E138B0FB032EF4E3792B7D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Led Zeppelin - Physical Graffiti (40th Anniversary Deluxe Edition) (2015) 3CD [F
 ```bash
 magnet:?xt=urn:btih:C832FB9AE6C5AF92957DDC2620B134B719D46679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

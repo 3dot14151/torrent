@@ -19,8 +19,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Wanterlude [Digital Deluxe]
 ```bash
 magnet:?xt=urn:btih:E14E8D007628F6C9435D8114914B6F9E50CEEE8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bridge to Another World 13: Fate of the Seasons (2026) [En] (1.0) Unofficial [Co
 ```bash
 magnet:?xt=urn:btih:D9CDFA237928E88A206E0C50C28FFD8C782AEC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack dixen18 [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:BF0CB62E457022E099D99CFFB114B152480730BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack FitGirl [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:FD307BFE7AECAF77851528F55E6C00802A390FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:9E31AF2737ABF9DB3BB7270087800FC00DB6D96A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2C89BBFA7D7C2768951EFD78C59E492890E52F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

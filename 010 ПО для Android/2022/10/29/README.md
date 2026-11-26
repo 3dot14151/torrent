@@ -20,8 +20,7 @@ Circuit Calculator v5.5 [En/Ru] - Калькулятор электро-схем
 ```bash
 magnet:?xt=urn:btih:77C312F887E1CB8806EEBB8CD77833A8C5AD558E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

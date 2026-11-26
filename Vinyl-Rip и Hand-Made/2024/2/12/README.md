@@ -22,8 +22,7 @@ Nickelback — канадская рок-группа, основанная в 1
 ```bash
 magnet:?xt=urn:btih:63AA1ACD4209DAC660AACEA2DA8438DD13010882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anathema — британская рок-группа, образованная 
 ```bash
 magnet:?xt=urn:btih:4BF29E8E1D4A78C405809317268B8522DCEEB99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

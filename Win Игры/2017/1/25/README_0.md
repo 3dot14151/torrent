@@ -20,8 +20,7 @@ The Last Look – приключенческий инди-хоррор, в ко�
 ```bash
 magnet:?xt=urn:btih:24227B750F7116569D3660CCD05F4F6443C28626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Vector 36 — это sci-fi аркадный гоночный симулятор
 ```bash
 magnet:?xt=urn:btih:63D54D68E90169740E64562631E1A741DFF5B5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/upd7) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A2E13F2105913D4C729FF7C1A976FF3E7591EF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

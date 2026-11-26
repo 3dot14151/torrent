@@ -18,8 +18,7 @@ Uniblue Powersuite - это системная утилита, которая п
 ```bash
 magnet:?xt=urn:btih:9EB9FFE4F1ABF6FE53216EC262A69C8A28997799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A60AAFB478DCBEAD502205CFBCCACA9F3C3D2519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Syberia / Сибирь  v. 1.05 [En] / 1.1.0 [Ru] [iOs 7+, jailbreak]
 ```bash
 magnet:?xt=urn:btih:F39DF0067B4647250354899E75A6B3C8B6F216FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Crypt of the NecroDancer — это хардкорная помесь "рога�
 ```bash
 magnet:?xt=urn:btih:01B0E6C8C469366F7409EAA16F84073F1F5896B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A3F63EE2A1AB9F2D20B9DB43C0A3E0BB3FCDDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10036 (x86) [En]
 ```bash
 magnet:?xt=urn:btih:E91A1A55B3F5285046AB7123CD9EB5119C3035FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Noize MC - Hard Reboot 3.0 (2015) Limited Edition [MP3|320 кб/с]<Rap, Rap-Roc
 ```bash
 magnet:?xt=urn:btih:871C69FE4034B80824381E76C738E372B6D830F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Universal Viewer - это универсальный файловый просм
 ```bash
 magnet:?xt=urn:btih:A55CC457958B584A65659FA1C19F63BC3217723B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Internet Speed Meter является инструментом, который �
 ```bash
 magnet:?xt=urn:btih:73CAB70B575F2416696A95088B11E70DAEB6A39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6F0185A41B85A1876014D6E0998D5BF0131D0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E5FA2DF53670265EDBB56C940EAF5E9772F1235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:386CD3C16BBEBE81A3D87FDCC3B20AB6F09934F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ Atelier Shallie: Alchemists of the Dusk Sea — японская ролевая 
 ```bash
 magnet:?xt=urn:btih:E574D00B6F1B1C88BEF22DABBB9CE8D7BF98356D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ Battlefield Hardline – это знаменитые сетевые режимы
 ```bash
 magnet:?xt=urn:btih:8FF7EC0461801126A15E35EAA0D4C2741CCCFCC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ Studio поможет создавать более качественную г�
 ```bash
 magnet:?xt=urn:btih:0C80EE114D45E7A202665FB437C65377C437D1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BAFB14612B3581859688BA3D1FF75861D746333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Agisoft PhotoScan Pro — мощная программа для 3D модели
 ```bash
 magnet:?xt=urn:btih:5D765C173C331006721DE8123015E6E81369A004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Grim Dawn - мрачный рассвет нового века, где желе
 ```bash
 magnet:?xt=urn:btih:4E7DEE24575AF9D2B8D4F0FE206ECBBD7EC48217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C1C51C7FF9C76D4A65E14A9F0354EA4757CB946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFF42BBCFDD8F7D3F5544EB48563536183005CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ Hamster PDF Reader положительно выделяется среди ан
 ```bash
 magnet:?xt=urn:btih:9F3765948AAD25066200E60459A9A9BF1C384927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC1F2B86EC9DB3B4479EA4E3377F5883200DEFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ books.ru | Сборник книг по IT (2001-2014) [PDF]
 ```bash
 magnet:?xt=urn:btih:D88332B93CC15E2041E3E1D9B2D7F1059EEFF35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ VideoStudio Pro X8 создана для обработки видео и поз
 ```bash
 magnet:?xt=urn:btih:472FCED7AB86E0FB15CE7FF1C604CBEB902644C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ Vol 04 - Alabama Jr. Pettis & The Teardrops - Nora Lee(   Читать даль�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66573A108257CD1EBEA298CEA7BA8539967A9A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

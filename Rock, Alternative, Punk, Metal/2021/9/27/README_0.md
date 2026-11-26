@@ -22,8 +22,7 @@ Lethargus - Eclectia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Pr
 ```bash
 magnet:?xt=urn:btih:E466CFE40D004565553AAF6AA90DEA9C339EDEE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Grafvitnir - Death's Wings Widespread (2020) [FLAC|Lossless|image + .cue] <Melod
 ```bash
 magnet:?xt=urn:btih:86FDAC8F685D6011831B22D1A0236AA25F73AA6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:441C452F26E1575C04EEA5905468398D0414830E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Dazed Son - Crazy (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:563507F2E8413C72EE7699ABEF603FC16B302813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ War & Peace - The Walls Have Eyes (2004) эксклюзив [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:05C655C54CF93BEBBF14C305C1F65FC927C543BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mordred - The Dark Parade (2021) [FLAC|Lossless|image + .cue] <Thrash Metal, Fun
 ```bash
 magnet:?xt=urn:btih:4DB2C90864B68423784A1C383ECC60A8B9EDCF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Voidalnaut - The Lunar Collective (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Progr
 ```bash
 magnet:?xt=urn:btih:AE491F6259A849F8085BAFA54D0A0CD313652D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ VA - Maxidrom (1995-2006) 10CD [MP3|320 kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:53FB9CB6EDAAD8D6BFA786D18AF28FAFA38747FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E17482E1E69B9DBBDA0168611DEE24BBECFE983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:105E9513C735E9CEAFAE8AEE4BA290D0C894AE68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Status Quo - Aquostic! Live At The Roundhouse (2015) [FLAC|Lossless]<Classic Roc
 ```bash
 magnet:?xt=urn:btih:4A83177219DC759C8BAFF11CA54683FE2A7C6B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ Status Quo - британская рок-группа, основанная ба
 ```bash
 magnet:?xt=urn:btih:88F82E7BE2E78E1C8B9968FD08B0B8965D1E02BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

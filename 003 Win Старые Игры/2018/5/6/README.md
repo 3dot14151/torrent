@@ -19,8 +19,7 @@ D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:480893D5C21A90E59767C7D6CA252FA588B18C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

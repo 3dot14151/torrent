@@ -19,8 +19,7 @@ Dawn of Fantasy: Kingdom Wars - многопользовательская ро�
 ```bash
 magnet:?xt=urn:btih:AA0D8228A1270705483F822E855082B31606B8C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

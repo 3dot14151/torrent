@@ -19,8 +19,7 @@ Apowersoft Screen Recorder Pro – программа, предназначен�
 ```bash
 magnet:?xt=urn:btih:0D40841D15E45AA1C813E2DE78DCBF1DD38B1F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

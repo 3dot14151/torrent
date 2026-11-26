@@ -19,8 +19,7 @@ Spirit of Revenge 5: A Test of Fire / Месть духа 5: Испытание 
 ```bash
 magnet:?xt=urn:btih:B6688E4C3B145E0C59617A88F877716C096A72F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sea of Lies 6: Leviathan Reef / Море лжи 6: Риф Левиафана (20
 ```bash
 magnet:?xt=urn:btih:8CA19BFF8845209F783A19C1DDBF1AE732141361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Persian Nights: Sands of Wonders / Персидские Ночи: Чудо в п
 ```bash
 magnet:?xt=urn:btih:6FBC647BB508F528862B3F74EE500064BB6DBD87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mystery Case Files 14: Broken Hour / За семью печатями 14: Бой
 ```bash
 magnet:?xt=urn:btih:4E55EE2032FAFEB66903292758A329162EBFE74E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ World of One (2017) [Ru/Multi] (1.2.2 B9) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:8A247C0344BF3AA4D8477CFF192F966CA0F19979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Please (2017) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:08955E4B15BFEF059DEB9839EEAFBFA170AFD176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

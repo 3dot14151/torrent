@@ -19,8 +19,7 @@ European Mystery: Scent of Desire Collector's Edition / Придворные т�
 ```bash
 magnet:?xt=urn:btih:686CCF663D963596CC98B9854171ADFAFECAAF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Tomb Raider: Survival Edition (Patch/Crack/1.0.722.3) 2013 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:178ABE8F54F29DFED6CE97792D3E043752D5B241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Surgeon Simulator 2013 [En] (RePack) 2013
 ```bash
 magnet:?xt=urn:btih:F0F18CCEEE8D2D014BD87AC7EE76EDD03C9F0058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

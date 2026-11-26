@@ -19,8 +19,7 @@ Beltion: Beyond Ritual / Бельтион: Свод Равновесия (2009) 
 ```bash
 magnet:?xt=urn:btih:5F826CB9FDEC5BD78F6979242B8C2A8C9F5BF050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

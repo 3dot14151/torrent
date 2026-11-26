@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:70965F451E84CE2A7526ED978D1A14D4D36EBC34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The Barra MacNeils - Oh Christmas Three (2013) [MP3|320 кб/с]<Folk, Celtic, N
 ```bash
 magnet:?xt=urn:btih:F5609A80CDB6500A1D90F095AAF6C02880CF998B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Lotus Chillout, Vol. 1 (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:25188E3A364E43A76A4352040A148C768EF29F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:075C5AB1F8BC11A89573EE3F0FB314B5E53D5587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED46572A4E44B8D2127CAF69D8684E89EE8C5655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:064A6050DDA803008B7A21E3F5D32FF4445E6450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ VA - Музыкальное потрясение зимы (2013) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:B663337F465444A3D3478D2ED69D530C5F13F8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ VA - Funky Disco House Sessions Vol. 11 (2013) [MP3|320 кб/с]<Funky, Club Hou
 ```bash
 magnet:?xt=urn:btih:CE807F8182C633CBB68346FA05F3F4B7C2FF3974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36BA8D3B414FADAA5974D7B347CB1FCC45C3DE3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ Lefteris Mikalis - Jazz Cocktails (2013) [MP3|320 кб/с]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:EAFB827E148E3ACD47AA10A162B166E4E181B563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Denis Solee - Blues in the Night (2010) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:A3C2D7CDD20D5C8524D0E157F79AEF73A73A7D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ MIMEP-DOCETE (изд.) | Чин Мессы. Obrzędy Mszy Świętej. Die Feier d
 ```bash
 magnet:?xt=urn:btih:A1A2DCAC303E77C2D8F869AFFB41BC080F8C71F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E11252B83352EC7048A2B90F2A33512612AD6DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Tom Scott - Masterpieces - Best Of The GRP Years (Jazzclub) (2013) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:DEDA853E1FFA12D13EB9E970CEC89631E217091E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BEB5411A23037EB6432BC566632F4C23C6AAE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:C92F1AD92A9D32AB64B3ED689C014533ECD0C7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +546,7 @@ Luxury Grooves - R&B Jazz Lounge Vol 3 (2013) [MP3|320 кб/с]<Downtempo, R&B, 
 ```bash
 magnet:?xt=urn:btih:88E2866CE54E855BA4C8659FC670B35512393300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ VA - Amnezia Super Hits 96 (2013) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:10C89A08DC0F50C2DF120FDDE59CC4D4C3FAC2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ VA - Эх Зимушка-зима! (2013) [MP3|256-320 кб/с]<Рор>
 ```bash
 magnet:?xt=urn:btih:DBE24A8913C9D238E70230C9A0188B104C5ADF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +648,7 @@ B5 First Time 3:18Жанр: RockПродолжительность: 00:39:17
 ```bash
 magnet:?xt=urn:btih:D7322E4401414CDF00DAC8EE88571AECCE2CCA14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +675,7 @@ Writer Pro – один из лучших текстовых редакторо�
 ```bash
 magnet:?xt=urn:btih:9C6E87B07FAD60F5FCD100CA3BC55A1B6A5AB1C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:602F9964470078C99783598ED26925BA9EDA1FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C397342787D8E7FAEC70CF920CB48B63749A2DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06725EA30D94A0DC88FB4452C4AE3FAEFF2A7E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -29,8 +29,7 @@ Indiana Jones Anthology / Индиана Джонс: Антология (1989-20
 ```bash
 magnet:?xt=urn:btih:F8F9FBD1D367646A02A7D690A550D60EA567C468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

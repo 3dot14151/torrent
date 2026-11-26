@@ -19,8 +19,7 @@ Red Faction (2001) [Ru/En] (1.21) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:BBF3511159AAF7942B944094CACF6B94AADA1E01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

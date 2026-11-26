@@ -19,8 +19,7 @@ Briar - это приложение для обмена сообщениями, 
 ```bash
 magnet:?xt=urn:btih:DB2A32464076BF3ABDFBA0A9F9F20C855885D8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

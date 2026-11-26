@@ -19,8 +19,7 @@ Inner Worlds [En] (RePack) 1996 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Uncharted Waters Дилогия [En] (RePack) 1990-1995 | RG Games/Pilotus
 ```bash
 magnet:?xt=urn:btih:E5C4E7EEA8EF83C6FFBDA9FC68043E8817D74DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

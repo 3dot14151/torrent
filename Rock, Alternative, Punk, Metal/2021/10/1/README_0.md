@@ -22,8 +22,7 @@ Crystal Blue - Detour (2003) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 ```bash
 magnet:?xt=urn:btih:65A4538AC22A2B75850EEE0F02C69B5D095126CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Linkin Park - Minutes to Midnight (2007) [FLAC]
 ```bash
 magnet:?xt=urn:btih:DB9AE8D105B810083A47A7B6F93728BC4B6572CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

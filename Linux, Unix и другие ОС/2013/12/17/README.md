@@ -21,8 +21,7 @@ Debian GNU/Linux 7.3.0 [i386] 3xDVD+update DVD
 ```bash
 magnet:?xt=urn:btih:CF2DA624975A73BEFCAEF297B7273452F2633D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

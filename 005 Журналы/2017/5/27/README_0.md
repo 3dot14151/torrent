@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:8820B838D20B681B7E9D8946D468F9B30FB7F91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Men’s Health – главный мужской журнал во всем ми
 ```bash
 magnet:?xt=urn:btih:369F3A30A512608A13A1DFDCE3D4F8E9EB985583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Tiny Terry's Turbo Trip - безумная аркада про Терри, ге�
 ```bash
 magnet:?xt=urn:btih:56D6E6ADAC2A69283BFC8353D299F6F1F37F1A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 ```bash
 magnet:?xt=urn:btih:23A0380DB6960D040E2B5F255ABF4415E3530DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB89A695FC207AAC9253BBEBA997C4D9305E6812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Maxthon Browser — многофункциональный браузер со �
 ```bash
 magnet:?xt=urn:btih:7F6BFB4B02F932C09E07BBB793F4CDABC37FF541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Medieval Kingdom Wars Story (2023) [Ru/Milti] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:95AA113AA74406D134027857EFEB4D187DF48922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04B6B82F15E298F066D9DB1212891860BD3FDE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dark Souls 2: Scholar of the First Sin - это ролевой экшен, в к
 ```bash
 magnet:?xt=urn:btih:C8008561192730C9580760039110442E43B04C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DEFF02071ED1C7219B57443BC4038BF758C2C02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ R – безусловно лучшая среда для интерактивн
 ```bash
 magnet:?xt=urn:btih:1E87D4C6ED683746D35708ECB5C383DF14424A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Rocket Rumble бросает геймеров в безумный мир, где
 ```bash
 magnet:?xt=urn:btih:17AE0D924C7BF6D1B1F7E82D3C2FD2B6CF7D1E72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFDB6C6DE330F83913882460D037ED68CF13D5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:B05D648A5D011FE1AEEA9B026C680399498D9001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Umbraclaw – события нашей игры вращаются вокруг
 ```bash
 magnet:?xt=urn:btih:C959FE9E0B23A1BAD7C53075B44D537B9281BB9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDACAC95AB270751D4FB43A629B342E2C8F1737C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:533B13827C3B42B0676EDE3A3D2D5BEED94FFEFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A9508F7D1235F9BFA5E1872D1E9BF785362124A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Echoes (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:43996294F446E1AF560D50D6063B02BD6D29F091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Lesson Learned – вы, будучи школьником, переносите
 ```bash
 magnet:?xt=urn:btih:2BE9096D050D633B4DD34DD0B7FDB26F554F84C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7ACF6FB188BD3C65A97D489619442E8D7632522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A99C7EF309EE8C1CEE99752B8996A9E074D5284A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:7A1FED890B9F7CDDF31D103B814C27C0BCC1F553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ FBReader Premium v3.7.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6FCB3E274F0A359EE1D9DB993108EF09A78EE5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B983788314C0788AA4585315C25F951969862A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41E90D3192AF51492F23DC3308708B16510D2F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:330FD776C6E389B60ABB497EFBA7CB15BA74D390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +644,7 @@ Little-Known Galaxy - приключенческая RPG с элементами
 ```bash
 magnet:?xt=urn:btih:CCFD2ED81007EA6EF01A74B518198E5D2D9F21A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

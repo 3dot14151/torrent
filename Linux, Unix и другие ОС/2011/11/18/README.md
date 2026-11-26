@@ -23,8 +23,7 @@ Mandriva Linux 2011 LXDE (LiveCDs - "легкий" дистрибутив) [i586
 ```bash
 magnet:?xt=urn:btih:98ADAA9FBA028FA9CF891388A2771CD852B2D923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

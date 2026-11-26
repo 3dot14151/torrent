@@ -20,8 +20,7 @@ World Mosaics 3: Fairy Tales (L) [En] 2010
 ```bash
 magnet:?xt=urn:btih:BF3FA0C49604B76FB30D0275D5B0B2D9EBE6915A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Soul Journey / Путешествие души (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:522194EC0CD8EF505F9C0E6A54365E4521599C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dark Parables: The Exiled Prince Collector's Edition / Темные притчи
 ```bash
 magnet:?xt=urn:btih:3C36093AEBF7B8195A4D211E33E31929E40B296B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

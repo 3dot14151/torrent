@@ -19,8 +19,7 @@ Lost Civilization / Забытая цивилизация (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:24F0DCDF8DE889A047026476BCFEE413C77E2757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cook, Serve, Delicious! (2013) [En] (2.23) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:B4F884CE4B8287FB1C1187A9A826589B0C0D437E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ DuckTales: Remastered - это красочный, нарисованный вр
 ```bash
 magnet:?xt=urn:btih:FC3457A4524E6D0EAA43C4C3477C043D543E0A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ The LEGO Movie Videogame (2014) [Ru/Multi] (1.0.0.35922/dlc) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:40AFE15ECEF70AAF7DE439F27C9A13203CBFA80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Brutal Legend — это нестандартный, совершенно без
 ```bash
 magnet:?xt=urn:btih:C7CC81C96D5BCFDC3F35D0363426310743F506BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

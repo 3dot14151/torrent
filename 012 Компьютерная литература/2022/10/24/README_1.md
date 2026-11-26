@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ED98E3457AB75C23FF19B8D042AA3B12F2A981A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Entity Framework радикально упрощает доступ к данн�
 ```bash
 magnet:?xt=urn:btih:5EFD36933CE8E6F3FEB134FFEFF30E5400C30042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

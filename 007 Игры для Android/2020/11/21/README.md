@@ -19,8 +19,7 @@ Rally Fury - Extreme Racing – отличный симулятор ралли, 
 ```bash
 magnet:?xt=urn:btih:5E8941F6C4C052AEDEA9D72D7504B8A8E6257833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

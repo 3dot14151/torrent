@@ -22,8 +22,7 @@ Hisstönend - II (2013) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:018D3845C558768A5F354DCC1990F7B7B8709847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hell Theater - Reincarnation of Evil (2012) [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:46D327B9F01DBC6C8639FFD6F3F5A1733601F030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hyborian Steel - Blood Steel And Glory (2012) [FLAC|Lossless|image + .cue] <Epic
 ```bash
 magnet:?xt=urn:btih:F39FFC64D750A7C1124A78D8A4CAA751A9FD6431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Conqueror - Madame Zelle (2010) [MP3|320 кб/с] <Rock, Prog Rock>
 ```bash
 magnet:?xt=urn:btih:9FEE7CB94B2C281891EC6A42CB6958B7370A7EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dodsferd - A Breed of Parasites (2013) [FLAC|Lossless|image + .cue] <Black Metal
 ```bash
 magnet:?xt=urn:btih:147F1B46FBBB50B9CBFFCD1C33A102419AC0D1AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Enoch - Sumerian Chants (2013) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F0998AF451824EDED7C492CEFA2ED05362C50E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ice Cold July - There Will Come A Day (1994) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:ACE6F30A8B9D2A52DB141A201063728357D5A314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ When Nothing Remains - In Memoriam (2016) [MP3|320 кб/с] <Doom Metal,Death Me
 ```bash
 magnet:?xt=urn:btih:129BE9E0070D557CF8009C36F663F8FF7E4EF2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A2343C4E89E2921DFC026FCBF46B0D7C4F55FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ It - Departure (2009) [FLAC|Lossless|image + .cue] <Neo Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:7CDC627448B75E02C21919C3A830DED5D5430BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ John Ford - Resurrected (The Best Of and Then Some) (2011) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:E4055033D191A656A21FA00B5FBD7F8035899114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ It - Over & Out (2002) [FLAC|Lossless|image + .cue] <Neo Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:6CC54AF31DE528F12D5BD75CA4920C91DD0EB0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ The Temperance Movement - White Bear (2016) [FLAC|Lossless|tracks + .cue] <Rock,
 ```bash
 magnet:?xt=urn:btih:D2EBE517725F38F2A8E13A23A60EAD465901858E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - The 60's Collection (2000) [FLAC|Lossless|tracks + .cue] <Rock&Roll>
 ```bash
 magnet:?xt=urn:btih:3B58C8647B9ADB6715E6FD83974FF4788BFF5A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - The Many Faces Of David Bowie (2016) 3CD [MP3|320 кб/с] <Art Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:B350C0E1B88CDC3E2B46038FB16987E27EC3B12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ DDT - Метель Августа (2000) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:38FFD73C535E1F3C611CC0C115F16BFA43B9AF01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ VA - The Best Rock Ballads... Ever! Volume 2 (2013) 4CD Box Set, Deluxe Edition 
 ```bash
 magnet:?xt=urn:btih:B8B4CDE628D5147351EC2DECD675397C47965ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ VA - The Best Rock Ballads... Ever! (2007) 4CD Box Set, Delux Edition [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:113C12E663A06DB8C33F59A1C3BED92AA4E85CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

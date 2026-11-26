@@ -19,8 +19,7 @@ Margrave 4: The Blacksmith's Daughter / Маргрейв 4: Дочь кузне�
 ```bash
 magnet:?xt=urn:btih:954A7A76D3DE696B19DF1F69A9ABB5C94183AD23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

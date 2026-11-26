@@ -19,8 +19,7 @@ Trine 3: The Artifacts of Power - продолжение красочного п
 ```bash
 magnet:?xt=urn:btih:CDA73B310B774087CC75A2A92EBD5F622071E80E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call of Juarez: Bound in Blood (2009) [Ru] (1.1.0.0/tr) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:DA5ACD41D6814A6F71A922025F11914456664B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Castle Story - новая воксельная стратегия с элеме�
 ```bash
 magnet:?xt=urn:btih:47C6883D45F5B0544E973A6F17836647C386BB51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

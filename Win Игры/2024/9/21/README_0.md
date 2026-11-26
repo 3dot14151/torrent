@@ -19,8 +19,7 @@ StarCraft 2: Legacy of the Void - это третья, и заключитель
 ```bash
 magnet:?xt=urn:btih:A9A70439700E420ECB46B49939306DD2FEFF0817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Scourge of War - Remastered бросает вас с головой в хаос 
 ```bash
 magnet:?xt=urn:btih:AE416B7C396410D315F4CCEF6B7A75AE05F9B4A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Gunk - приключенческая игра про космических
 ```bash
 magnet:?xt=urn:btih:86A54CDA405E1A275D27445B93159EB5924A9330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Smells Like a Mushroom - научно-фантастический шутер о
 ```bash
 magnet:?xt=urn:btih:2FD72D181863E240456365AE526C8A4B8034BEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:03B40A8D81BA3F26AC3025FC7FDDD58B39D498E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Guns And Draguns – насладитесь в полной мере коман�
 ```bash
 magnet:?xt=urn:btih:304D7DEC73875A8084690ED9857E91E9519032DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Crash Bandicoot 1: Где-то на территории Австралии уч
 ```bash
 magnet:?xt=urn:btih:168069F2FDC1354EE88AE8916E637E3CC0FEADF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Roots of Yggdrasil (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:808E5123DA55BDD504B3C7B013A0EF011C3D6B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Myths of Orion: Light From The North - игра в жанре поиска пр�
 ```bash
 magnet:?xt=urn:btih:C535B1CEDD93E77535D307C414C5F22A51EF671C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ AMEDAMA - это приключенческая адвенчура в жанре
 ```bash
 magnet:?xt=urn:btih:6C13BC04FBB4C019BA8CCCC849327FEC5917C6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ BAKERU (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3E296ACF39B47D6739089D8643D6E06EE55131EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Garden Witch Life приглашает геймеров променять су�
 ```bash
 magnet:?xt=urn:btih:1390AEE7EB942B6E71C4B976D376453B2982386A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

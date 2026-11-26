@@ -19,8 +19,7 @@ EndeavourOS — это дистрибутив Linux, основанный на A
 ```bash
 magnet:?xt=urn:btih:7D10D50A1D2144BAF9E11021226483BB3ED1F49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Qubes OS — ориентированная на безопасность нас
 ```bash
 magnet:?xt=urn:btih:C125502E34EAE434EDEDF0D148A6104B20DB39F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

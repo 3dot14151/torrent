@@ -19,8 +19,7 @@ Pinstripe - это заряженное эмоциями приключение 
 ```bash
 magnet:?xt=urn:btih:0DDFF8F21C9CEA087F74844F11FECEF72AD03DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

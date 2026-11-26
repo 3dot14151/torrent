@@ -28,8 +28,7 @@ Requiem - Falsos Poemas (2009) [FLAC|Lossless]<Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Centurian - Contra Rationem (2013) Scene [FLAC|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Message Through Motion - Earthshaker (2013) [MP3|320 кб/с]<Alt.Rock / Post-Ha
 ```bash
 magnet:?xt=urn:btih:55E241C34A680BA7ED1A68933E06EE3A70A2D92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Ataraxia - Adolescence Of An Ancient (1986) [MP3|320 кб/с]<Rok>
 ```bash
 magnet:?xt=urn:btih:982F4E8AFA3E976163BFD8C12306C7F71AFABE94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Nightfall - Cassiopeia (2013) [MP3|320 кб/с]<Melodic Death / Dark Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ VA - Heavy Metal Box  (2007) 4CD Box Set, Limited Edition/ Rhino Records/ [MP3|3
 ```bash
 magnet:?xt=urn:btih:6F5F10DB0BBBB68DE106A5AA4DFDC1FC20149344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:77A2134D4F70CAAD9A56D2E55E86C11EBB6871C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Rutube v29.1.1 Mod by vadj [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6319A5D50B1289926458AE5E8D0A704FDC18816A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ DailyArt - Daily Dose of Art v3.2.2 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A1D1A9C0392CE01246A424EC0D4ECC67AABF9657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

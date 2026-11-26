@@ -19,8 +19,7 @@ Hermes 2: War of the Gods / Гермес 2: Война богов (2019) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:0300855151109CD3A97FFB5988F43F44E430EF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Some Distant Memory (2019) [Ru/Multi] (1.0.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F194687CE1ABC86B8D06659C2DF79A72C8BD18F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bee Simulator (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A48DDBCF8DAA7430004E798A7194CBDFB3D43DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

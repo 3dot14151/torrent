@@ -22,8 +22,7 @@ Huntress - американская хэви-метал группа из Хай
 ```bash
 magnet:?xt=urn:btih:6504B50137E67CCD3A7C1A2688B8532F592CB7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Evocatus - метал-группа из Австралии, основана в 
 ```bash
 magnet:?xt=urn:btih:0B59F17ED7164D2B3C0603BAA29A619103314621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

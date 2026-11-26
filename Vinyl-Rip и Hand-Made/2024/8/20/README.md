@@ -22,8 +22,7 @@ Dark the Suns — коллектив из Финляндии исполняет,
 ```bash
 magnet:?xt=urn:btih:EA7B138A5659D759D9EB59F1B4277CF4B60CCB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Revolution Renaissance — пауэр-метал группа, основанн�
 ```bash
 magnet:?xt=urn:btih:B89BBE53737A60FB92DE5BCAFD2DE45BACAB6C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Timo Tolkki's Avalon (a.k.a. «Avalon») — финский метал-опер�
 ```bash
 magnet:?xt=urn:btih:FEB79C698F24747D622268B9E4A85E8441857C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

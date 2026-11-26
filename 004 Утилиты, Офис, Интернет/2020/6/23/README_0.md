@@ -19,8 +19,7 @@ Portable Offline Browser позволяет скачивать как отдел
 ```bash
 magnet:?xt=urn:btih:87E03EBB886A4617D7DC9853D8771DF75ECECA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Scribus — это  бесплатное издательское приложе
 ```bash
 magnet:?xt=urn:btih:48DBAF6955D29876DD41DF0A893D04C97B463F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Screenpresso - это один из самых простых инструмен
 ```bash
 magnet:?xt=urn:btih:3079B05AB9F10AF4AA3006DAF468C4AA55C1C7BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

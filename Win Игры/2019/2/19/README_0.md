@@ -19,8 +19,7 @@ Eastshade (2019) [Ru/Multi] (1.07) Repack Other s
 ```bash
 magnet:?xt=urn:btih:478FD70090DD8500E2D2AED51E42F21751C49518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hero Defense - Haunted Island приглашает всех любителей M
 ```bash
 magnet:?xt=urn:btih:16819F69B65FF5DA0E500A7FD88A15AC2227423C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0/upd3) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:EC1487EFD9419C21734C4B4150B2922DEF5F5C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Quantum Replica (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:884E491AE59CB31606E8BE7423933E2333F53152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

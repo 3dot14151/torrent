@@ -19,8 +19,7 @@ LEGO The Hobbit (2014) [Ru/En] (1.0.0.21750) Repack xatab
 ```bash
 magnet:?xt=urn:btih:ABBB6996B6709AE9283AC8F389E74C3A23CFFB62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

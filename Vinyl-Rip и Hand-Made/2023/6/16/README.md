@@ -19,8 +19,7 @@ Bathory — шведская группа, внёсшая значительны
 ```bash
 magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

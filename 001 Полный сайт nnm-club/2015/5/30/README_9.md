@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4B555AF74CC1E3102430138B0279E55C01A36A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Audio Hijack имеет блочный интерфейс, набор шабло
 ```bash
 magnet:?xt=urn:btih:6F78272A0B8C1988653A4083FC164C49BB6E25F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Microsoft Windows 10 Pro / Home Insider Preview 10.0.10130 (esd) [Ru]
 ```bash
 magnet:?xt=urn:btih:38A21D7CE334401BB62026E6C0FE993EDB984207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Microsoft Windows 10 Enterprise / Pro / Home Insider Preview 10.0.10130 (esd) [E
 ```bash
 magnet:?xt=urn:btih:1008BB7D279AE6A3D1F826A19C97B84C3F61DC26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Geekbrains | Веб-дизайн. От новичка до профи (2015) PCR
 ```bash
 magnet:?xt=urn:btih:DCB95C9DFB586EBD15E281D110B7E92D3BF078DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 ```bash
 magnet:?xt=urn:btih:866B50E7888324FAB58FB2BC085E7B9FC321EA6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

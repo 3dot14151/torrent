@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:37C5324E3F41B2F0532E0EF87B64E9BF01B7CBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Windows 11 Media Creation Tool – официальное приложение M
 ```bash
 magnet:?xt=urn:btih:88801DD1C1EB19542191F408C9201A550EB2A06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ BREATHEDGE — это ироничная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:634C7F2F152251D32FB0078FBAE0F3D79994EDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ DAEMON Tools Lite - программа для работы с образами �
 ```bash
 magnet:?xt=urn:btih:669DE00D5A79A73BAD74308904322965DB4163FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Alan Wake Remastered — в этом отмеченном наградами к�
 ```bash
 magnet:?xt=urn:btih:B66DEE085F93B6CD04F73CF65B288518E528400B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Jane Air - Чёрная гавань (2015) [FLAC|tracks|WEB-DL]<Alternative Roc
 ```bash
 magnet:?xt=urn:btih:F9DEFDB71F8CFB7C482F6736177E6AA2EED26F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CAE90BCC4404F5640F13C8219E4206544C48CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:440C2044AFDFB579D146E4E062EB2B5151CF2B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

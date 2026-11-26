@@ -19,8 +19,7 @@ Unsolved Case 3: The Scarlet Hyacinth (2023) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:F69A99F5E5930180E7482776F4F77935D46745E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chronicles of Galdurvale (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:993948CEC6A16F7F6D61BCD4A23DBC4CAE83AB14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

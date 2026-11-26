@@ -19,8 +19,7 @@ Small Saga (2023) [En] (20231130) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0100DD204C2960664A7DE89BF14BC39A59A93300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hotel Renovator (2023) [Ru/Multi] (1.0.6.6.285/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A328C51436DAAEB0CE3216921726A49CF9D9F7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Submachine - это рисованная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:B7FFA0F0B2CE3AAE0E35D606BD49F7A39D561D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lakeview Cabin 2 – хоррор-приключение в открытом и�
 ```bash
 magnet:?xt=urn:btih:42190DEA1D53EA95C37AF31AF3D371D57943313C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

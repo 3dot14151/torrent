@@ -27,8 +27,7 @@ Wolfpack Unleashed - Anthems Of Resistance (2007) [MP3|320 кб/с]<Thrash Metal
 ```bash
 magnet:?xt=urn:btih:81ACD10CCDE724D9BE2BBB90B50720CD37EAF770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ End Year - Kursk (2015) EP [MP3|320 кб/с]<Post Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:8D0B277CD1197104082602494400DCF22DC8A040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Mechina - Acheron (2015) [MP3|320 кб/с]<Death/Industrial/Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:450F17BFA1AAE8C5294B57799CDD1F968694ED7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Mechina - Acheron (2015) [FLAC|Lossless|WEB-DL]<Industrial | Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:259DE370F43783CF69F0775E43EC6574B8FDD248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C86998F0366E57609943A4567BC5FC807B89E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC1447001432ECE2EDD6E550D58FA53403F94600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Cinderella - Stripped (2014) [APE|Lossless]<Hard Rock/Glam Metal>
 ```bash
 magnet:?xt=urn:btih:060A4260396D4A1C5351596C9DD2802D7B1A41D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Albums, EP:
 ```bash
 magnet:?xt=urn:btih:B00D05236EE18DD6E92C5B3B07B97D371D68C13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

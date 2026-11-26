@@ -19,8 +19,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:8F3A1731AEA47D1991F0F9B07CAD95AD494FB089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Revo Uninstaller Free 2.6.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:23EB5C7BB656F69CE754C0FF2F9490EE6C012E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ iTop Easy Desktop позволяет вам гибко управлять эле
 ```bash
 magnet:?xt=urn:btih:F2E652D4439BB7C7E41CA4DB28410DFF83297795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:7589F2C7431451EF442ED70E4BA57B4590C3270D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

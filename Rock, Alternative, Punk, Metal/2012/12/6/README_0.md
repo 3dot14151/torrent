@@ -28,8 +28,7 @@ Solisia - UniverSeasons (2012) [MP3|320 кб/с]<Symphonic Progressive Metal, Fe
 ```bash
 magnet:?xt=urn:btih:12E9422DF4ED6480C43BC2789F92A2158678BAE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Opera IX - The Black Opera, Simphoniae Misteriorum In Laudem Tenebrarum (2000) [
 ```bash
 magnet:?xt=urn:btih:A9D98AC0E3A926EC9142E1C4A684054D312D3574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Dimicandum - The Legacy Of Gaia (2012) [MP3|320 кб/с]<Atmospheric / Gothic Me
 ```bash
 magnet:?xt=urn:btih:4E2F6976CCF51F2DE8FDB55BC747263C534AC589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Steffe Sharpstrings / guitar, vocals(   Читать дальше...   )Жанр
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A3C9B66E2BF5716B2E1F108D6B52CCEE19F88F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E61540D44B0D1C32A581DEDD9F19A639310D3C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:7FC7179FC6D98FD9CE3F20235973E7706726FD2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ Twenty Sixty Six And Then - Reflections! (1972) [FLAC|Lossless]<Progressive, Kra
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67904EAB061F1040ECC177CE3417C2EAE7A54ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F2C4E19011102BAF0F66147CD5A0C672EE26777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Small Town Terrors 3: Galdor's Bluff (2015) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:8DD13BA66E2005D40ED9A9C24903F17E25A63B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fairy Kingdom (215) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:BFC18C537F668103DD618A3B018F9F2EE6649F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Shiftlings – логический платформер, главными ге�
 ```bash
 magnet:?xt=urn:btih:FE57B696F3A438B3D988C91B2C754B239C282617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

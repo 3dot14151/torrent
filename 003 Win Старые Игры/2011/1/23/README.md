@@ -23,8 +23,7 @@ Space Interceptor: Project Freedom / Стармагеддон 2: Свободн�
 ```bash
 magnet:?xt=urn:btih:949B2D303E56F442D346F0EEB597CB0770CA618A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

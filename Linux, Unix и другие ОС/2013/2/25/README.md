@@ -21,8 +21,7 @@ Debian GNU/Linux 6.0.7 [amd64, x86-64] (10xDVD)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

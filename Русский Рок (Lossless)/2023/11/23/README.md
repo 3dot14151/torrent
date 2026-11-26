@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:A1E79EA5D8E497D24912C7545BF41269FD00CCA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Prostoband - Гештальт (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:895D7459731F8E8773B68FB883EA58E4062EE5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

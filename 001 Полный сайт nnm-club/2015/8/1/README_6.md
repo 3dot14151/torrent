@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:10BB6042FAC0D1AE6951C063503693D3515D3A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Kaspersky Small Office Security включает все необходимое �
 ```bash
 magnet:?xt=urn:btih:6C0738302DB14C68E0524B7D9EE2FC3CA8B3993E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

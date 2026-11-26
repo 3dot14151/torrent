@@ -22,8 +22,7 @@ Envy - A Dead Sinking Story (2003) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:C47541FF72F4E68E82370478F6936A6193062AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Envy - Insomniac doze (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:EEE493C268B312350A779F01BF94044E58D35769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Envy - All the Footprints You've Ever Left and the Fear Expecting Ahead (2001) [
 ```bash
 magnet:?xt=urn:btih:8BCBBFF3E96150AB4A09C88E90BA29D8789F2115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Envy - Recitation (2010) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:0A6680E8A208FF0F911307D94245645A5F4E82F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Envy - The Fallen Crimson (2020) [FLAC|Lossless|tracks + .cue] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:C5BCCD15FBEE729AB07C010FC475FCF664D2DBB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Envy - Compiled Fragments 1997-2003 (2005) Anthology [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:629BE365AFA346E644CEFE9C2DD6BFFE6E5E8155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sellout - Я остаюсь (2020) [MP3|320 Kbps] <Punk Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:11F1163B4B9B589F06534C3BF7C01355EC601A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Pride Of Lions - 6 альбомов Discography 7CD (2003-2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:B320FCF42F2570D2A35EAC6D13D12AFC74F9734F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

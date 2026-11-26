@@ -22,8 +22,7 @@ The Blackbirds - No Destination (1968) Remastered, 2005, Long Hair [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:C80F014EC51F5F6658BF96BD88E2E62088FE36B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cliff Richard - Just... Fabulous Rock 'n' Roll (2016) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:461B5179A06141D4B9C8E3A2EDB9C83949B06A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tony Carey - For You: Best Of 1988 - 1990 (1993)  [FLAC|Lossless|image + .cue]<C
 ```bash
 magnet:?xt=urn:btih:858FC7DF9AA9630D034DA6687BDF126A7374522A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Black Sabbath - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:90F67873EC5F55FEBC0C80E7C3939B8D82F3A22A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Smokie - Early Successes (2016) [MP3|320 Kbps] <Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:EEA3457AD873CCA7D0607707CBB94107E8FEA6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

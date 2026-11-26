@@ -23,8 +23,7 @@ Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [i686] (3xDVD)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

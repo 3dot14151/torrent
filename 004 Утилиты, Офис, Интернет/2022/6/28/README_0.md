@@ -19,8 +19,7 @@ Windows 11 приносит много новых визуальных улуч�
 ```bash
 magnet:?xt=urn:btih:28ECEB47F95017182848ECA279F6EDDD4FB273D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

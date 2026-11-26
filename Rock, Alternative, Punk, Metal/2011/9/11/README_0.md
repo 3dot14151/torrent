@@ -28,8 +28,7 @@ Himinbjorg - Chants D'Hier, Chants De Guerre, Chants De La Terre (2010) [FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Excruciator - Devouring (2011) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:3930460C338B0C4553DD2DF74725846C10248EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Arkan - Salam (2011) [MP3|320 kbps]<Oriental Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:57DB2FF277818088D608B136F9C5A68EB19E70F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:862127C71ED5B1D3D6E4AB014445232BAE0FA95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Darkmoon - Wounds (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Holy Force - Holy Force (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:31E7E147D16B33DD3BFB0CFFBD4E38435A9D341B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Messenger - See You in Hell (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:CFC1941F63A7E729FA4213E783E4772C94F13AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Anthrax - Worship Music (2011) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B1210CCD5CB138A1D8937930968DD452711838D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ CD1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +320,7 @@ Therion - Greatest Hits 1993-2010 (2011) [MP3|320 kbps]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:770240E86A3FDF04BD1F7909591466B17BC8CE0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ Chris Rea - Santo Spirito Blues (2011) [MP3|240kbps]<Blues >
 ```bash
 magnet:?xt=urn:btih:914488A126156D26799B3C1BE18613FEBD015634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +388,7 @@ CD1 - Santo Spirito Blues
 ```bash
 magnet:?xt=urn:btih:16D82D2AE860B023F0ABFA1E72749EF1E2448C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +417,7 @@ Blind Guardian -  9 альбомов,8 ремастеров,9 сиглов,2 с�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +451,7 @@ VA - Всяка-Бяка 1,2 (1997-1998) [MP3|320 kbps]<Alternative-Punk>
 ```bash
 magnet:?xt=urn:btih:105597C2347AE4D64497F2BACFD1C65338CCB57C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +485,7 @@ Motley Crue- Greatest Hits (2009) [MP3|320 kbps]<Hard Rock / Heavy Metal / Glam>
 ```bash
 magnet:?xt=urn:btih:3FBA056C4BAC11303A2F97D5E866BAF1D8353DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +519,7 @@ Whitesnake - 12 Альбомов (1978-2006) [FLAC,WV|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ubuntu 22.04.2 LTS, KDE Plasma, [amd64] 1xDVD (март 2023) [Авторска�
 ```bash
 magnet:?xt=urn:btih:76466683568721AD79D739E48D582E164F102AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

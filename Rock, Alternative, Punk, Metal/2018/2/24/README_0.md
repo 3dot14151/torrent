@@ -22,8 +22,7 @@ John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [M
 ```bash
 magnet:?xt=urn:btih:B2357E58656CE1E69F019DE0477DEA425A7A06C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Neal Morse (Нил Морс) - It's Not Too Late (2001) Ear Candy Records [MP3|3
 ```bash
 magnet:?xt=urn:btih:9FA65634DB29C212F6B8CC65C6992DBD193EB178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Neal Morse (Нил Морс) - The Transatlantic Demos (2003) Radiant Records [M
 ```bash
 magnet:?xt=urn:btih:F045E906E81A5FDABAE104C65C675D7F278838CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ MegaDriver - TriMetal (2017) [MP3|256 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0CA4FE16104A88E28652574B78D7041DB7B9B9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Neal Morse (Нил Морс) - Testimony (2003) Inside Out Music, 2xCD, Album, P
 ```bash
 magnet:?xt=urn:btih:F4B16A9232FF8A686A97106D4351A4E4A8EA9B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ MegaDriver - For Great Justice (2018) [MP3|256 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:369A281E3D73715461D5FD82A9F843E958233601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Alice Cooper - The Sound of A (2018) EP [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7A5263805AB8DD14A55967737434DE6434FF3558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ VA - 100 Hits: The Best Rock and Power Ballads Album (2017) 5CD, Box Set [FLAC|L
 ```bash
 magnet:?xt=urn:btih:414D90071237D9F39BC9A5C8238ACF16A4009448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

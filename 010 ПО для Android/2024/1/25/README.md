@@ -19,8 +19,7 @@ PictureThis - Plant Identification v3.76.1 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F7C937268D932689C0841A626992DCFE23674883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PhotoTune - Улучшитель фото v4.4.9 Mod by maxi123444 [Multi]
 ```bash
 magnet:?xt=urn:btih:E66D3EF793EDA6EDFC9C90BC92BB45E679CFAC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:DC9FC2A09C627D4BD0EA43F110C18B2B64C10D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

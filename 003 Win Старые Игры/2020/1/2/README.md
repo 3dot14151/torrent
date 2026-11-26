@@ -19,8 +19,7 @@ Back to the Future — компьютерная игра в жанре квес�
 ```bash
 magnet:?xt=urn:btih:FF5251B3C632A42FEAA2960DCC71148B9E9A151F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

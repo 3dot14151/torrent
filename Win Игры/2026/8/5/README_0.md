@@ -19,8 +19,7 @@ Avatar: Frontiers of Pandora (2024) [Ru/Multi] (2.7/dlc) Scene voices38
 ```bash
 magnet:?xt=urn:btih:3E6A0ED0B6E9C0193195D010371A45963E462089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ChessBase - это персональная, автономная програм
 ```bash
 magnet:?xt=urn:btih:F1EE990DED5507EE1E709D2DA201E8137189D118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HIARCS Chess Explorer - это революционная шахматная б�
 ```bash
 magnet:?xt=urn:btih:7B767B12B9A9C7A9BBCC9C6CDBC35C3E71D62F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

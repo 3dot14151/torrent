@@ -19,8 +19,7 @@ O&O SSD Migration Kit позволяет легко и удобно произв
 ```bash
 magnet:?xt=urn:btih:E421054E3DFCBA43BA6731EE763DC0BAA0088EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

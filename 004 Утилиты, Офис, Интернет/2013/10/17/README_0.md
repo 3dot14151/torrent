@@ -19,8 +19,7 @@ Able2Extract Professional – новая версия популярного PDF
 ```bash
 magnet:?xt=urn:btih:ADE1FF7041108A227B8421F55791C9186581DFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MOBILedit! Phone Copier позволяет переносить адресную
 ```bash
 magnet:?xt=urn:btih:10CD8E48D55189E11F3C556DA1FD089E41982F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

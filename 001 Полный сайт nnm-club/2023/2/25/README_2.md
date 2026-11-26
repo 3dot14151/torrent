@@ -20,8 +20,7 @@ Myst v.1.8.6 (2021) [Multi] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:410FA118D76E2B15C49B4A518049C94BF1696C53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC0C79FB7732C94054A7A725A83EC41DDA6E5B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Arcade Paradise (2022) [Ru/Multi] (1016/dlc) License GOG [Digital Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:AC1265B7DE5DADF8DC892A56FF20C5102F06DD29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73D9536611CB2AD9BDF4AB6635B7D5935701ED10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ WinPE 11 Sergei Strelec x64 2023.02.23 [Ru]
 ```bash
 magnet:?xt=urn:btih:045917CE08BF84E8E4D75F5A9EA4026340A89BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Python стабильно входит в “топ -10 наиболее поп�
 ```bash
 magnet:?xt=urn:btih:F597F90BD01696A495CCAF70B73B485DC3590E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Windows 10 Pro VL x64 (22H2) (build 19045.2604) by ivandubskoj 24.02.2023 [Ru]
 ```bash
 magnet:?xt=urn:btih:EC8362E349052899BAAD49961FBC522535533840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Redemption Reapers - приключенческое фэнтези, в кото�
 ```bash
 magnet:?xt=urn:btih:B322FAA3A4F840BA6A38DD95CB2D06906C661E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ AliExpress собирается отказаться от склада в Рос
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Udemy, Sergei Semenov | Автоматизация API: REST Assured + Java, п�
 ```bash
 magnet:?xt=urn:btih:E06447B1E8AA6F42078C8BF5932AE7607C919459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:3FBEAF6467658F35368003DA3124022C78532A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF0B712872BC03442B05B272F221AFBD6A3D81DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A83CC0DA13AD693B64954EEA18D33110855C351A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Microsoft® Windows® 10 x86-x64 Ru 22H2 8in2 Upd 02.2023 by OVGorskiy
 ```bash
 magnet:?xt=urn:btih:87537E5D4B536F8613B7A60C73AB76E63FF49D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2B2A19B3FFAB937B2B5D9066487BD71570D5C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ Hogwarts Legacy - ролевая игра по мотивам знамениты
 ```bash
 magnet:?xt=urn:btih:FD8B9BD074D0DE83BAEB4BD8A340EFB4B58D1678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02A2B281A1CC757D25ADD5863691EBDF9D292854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ Self Deception - You Are Only As Sick As Your Secrets (2023) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:E99F9B27F5AB918BB632055B4E82F2CB9A045367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6070DFE6106D851C400CE39CD0AF704DCDB388B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BA03ED802D6964C218354302223CEE4CE8AA31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E550EEA818DA31410F2541DCF596BB9B1FBC4DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ Toot Farangi - Stingchasers (2023) [MP3|320 Kbps] <Progressive Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:E34424472CCBCA9B9D9F9F115E6574512E6E415C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C2410FBEDC7A6F4DE8E08BE8A24917E3DF74D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +607,7 @@ Fish - Vigil’s End (UK Tour 2021) (2022) [MP3|320 Kbps] <Progressive Rock, Neo
 ```bash
 magnet:?xt=urn:btih:B652B1826808E910B82640CC27CC8E6179A1E4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +635,7 @@ Tanzwut - Silberne Hochzeit (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Neue Deutsche
 ```bash
 magnet:?xt=urn:btih:D9C4E84DB129BD9D42065EE252044169333985E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +663,7 @@ VA - The Sound Of 2023 Mix: 4 Kuala Lumpur (2023) [MP3|320 Kbps] <Trance, Progre
 ```bash
 magnet:?xt=urn:btih:00CF4A341E55C795BAD2AD38DFE73A1A00CEBFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

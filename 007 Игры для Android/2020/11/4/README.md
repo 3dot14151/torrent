@@ -19,8 +19,7 @@ Who Are You, Mr. Cooper? - увлекательная приключенческ
 ```bash
 magnet:?xt=urn:btih:D16A5096ABBC2992A8512AB08CEB2E0AFB0124B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sky: Дети Света - волшебное приключение на Androi
 ```bash
 magnet:?xt=urn:btih:E6FDDBB649166DC088CC33809EAE70772AD06EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

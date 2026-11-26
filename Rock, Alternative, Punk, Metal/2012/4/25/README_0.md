@@ -28,8 +28,7 @@ Fatal Force - Unholy Rites (2012) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:CEB74879F6ED819C99CD7A1A903B2E4CA796B2DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Marilyn Manson - Born Villain (2012) [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:C3483DC06E44A76FAC801AAFC6C3EFA666C13001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Allman Brothers Band - At Fillmore East. 9 Albums (1969-1979) Promo Box Set 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Paradise Lost - Tragic Idol (2012) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:389FADF8A7A6F133AC34363DA6E162CEF5B2E51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Samael -10 альбомов, 4 сборника, 3 Demo, 7 синглов /Ди�
 ```bash
 magnet:?xt=urn:btih:9F7D8ACB1C8CEEB348F5B6313ABDA937A94C38C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Unleashed - Odalheim (2012) /2012, Nuclear Blast Records/ [FLAC|Lossless]<Death 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Europe - Bag Of Bones [Japanese Edition] (2012) [MP3|192 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:481A922A167C08A76FBE865B396E2AF8D2B279A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

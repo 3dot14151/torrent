@@ -18,8 +18,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.3.1.1/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:9AFDA7D931CD524D132E36C84B568005A2DECCB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDE6AC8D29E0D8F0EBAD4C8D486E2774C4EC0515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:F94D4BA935547448CA4685C6096B4C139630CE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Logo Reveal - разработан для придания отличного в
 ```bash
 magnet:?xt=urn:btih:C6DAD50BD441E4C30A475A81C1E0DC201688CC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ eRa: The Live Experience 2025 (2025) CamRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:C5546F19024E322A8AA4B3F6639E28D83C514FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Clear используется инженерами по постпродакш�
 ```bash
 magnet:?xt=urn:btih:85792E24A34E6826152F7434FC3E6736BD537B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C68324E8C535FC0F3DF5258B685D1775DF3FE86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Tone Generator PRO 3.78 Mod by Alex.Strannik [En]
 ```bash
 magnet:?xt=urn:btih:50BA9BBDCCDA3ECBB14157BC6B0E704EF53D679B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Coolutils Total Outlook Converter Pro – конвертирует электр�
 ```bash
 magnet:?xt=urn:btih:38C22EEA592E8CE339DCC8719722D18F6295AAA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

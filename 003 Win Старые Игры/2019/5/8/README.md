@@ -19,8 +19,7 @@ Command & Conquer 3: Tiberium Wars — компьютерная игра в жа
 ```bash
 magnet:?xt=urn:btih:DF80539C8DBC771EE87408333734A7736E916691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

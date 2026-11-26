@@ -26,8 +26,7 @@ Lyfthrasyr - The Engineered Flesh (2013) [MP3|320 кб/с]<Black Industrial, Ext
 ```bash
 magnet:?xt=urn:btih:DCD6DBAD7A87E69D4FFA50E34214C192C0DF496C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ M-19 - Mission: Destroy (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7A4FE153410A59028006E6016A4D6BD5F3F8E207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Black Velvet Band - Piesni Oblakane (2013) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:C492A7EC101461DC9C4E220BC3A130C88BBCE86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Elvis Costello - Secret, Profane And Sugarcane (2009) [WavPack|Lossless]<Rock, B
 ```bash
 magnet:?xt=urn:btih:CB0BE5539EB93AB0C0657AFB40C2894861231940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Keldian - Outbound (2013) [MP3|320 кб/с]<Melodic Sympho Metal / Power Metal>
 ```bash
 magnet:?xt=urn:btih:86960C3531420B51DD64108BAE9AFBDB1282310A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Jethro Tull - A Passion Play (1973) /2003 Remastered, Chrysalis/[FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:7D0D62DB8BA3183C823E0456CE137A6897E44757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Bonus Track(   Читать дальше...   )Жанр: RockПродолжит�
 ```bash
 magnet:?xt=urn:btih:913D01984EABB95A9E4A2DE711D5409DDFA66459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Mick Jagger - Goddessinthedoorway (2001) [FLAC|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:E90A4FAE12191181A1E88912E6F84EC014ACBCD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Boston - Life, Love & Hope (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2B6B0D5BE3740D68BDB131D9D2C71E5FE39CC9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +315,7 @@ U2 - Ordinary Love (Single) (2013) [MP3|224 кб/с]<Rock, Alternative Rock, Ind
 ```bash
 magnet:?xt=urn:btih:2793A2B7A2091A07557E0CFAC59FB38F211E0ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ Jimi Hendrix - 51st Anniversary: The Story Of Life (1993) 8CD Boxset Bootleg [FL
 ```bash
 magnet:?xt=urn:btih:1F9F0A414B661F4B62539AA9837F69ADB5369E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ Zorge (ex-Tequilajazzz) - Что Мы Знаем О Равновесии? (2013)
 ```bash
 magnet:?xt=urn:btih:622EF6280AC168052C987CB452ABE9CBA59950A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +417,7 @@ Bryan Ferry - The Best Of Bryan Ferry (2009) [FLAC|Lossless]<Classic Rock, Art R
 ```bash
 magnet:?xt=urn:btih:2A1D9122E4F0EFA99F66AFB5CCF57F7D4BF65383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +451,7 @@ Nirvana - A Big Mix of Besides. Collected (2013) [MP3|256 кб/с]<Grunge>
 ```bash
 magnet:?xt=urn:btih:11D229FE3125E167F123579429BEA0319A1CD427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +485,7 @@ Bryan Adams - Полная коллекция хитов (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:14431A4439C67FB18112A3EE0097EC4A7E2C554B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +519,7 @@ Phil Collins - The Very Best (1992) [FLAC|Lossless]<Pop / Rock>
 ```bash
 magnet:?xt=urn:btih:FA2A76013F9413A3FE790101578EBACF787485E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +553,7 @@ Smokie - What Can I Do 20 Hits (1996) [FLAC|Lossless]<Pop-Rock, Soft-Rock>
 ```bash
 magnet:?xt=urn:btih:75BE9460685DBD5DA7CD21A526C5B5C9620AE106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF1D0AC3F59DF52ACA0A35CE44789D39F87B03FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:EEECCE2FFEAE15964E84D9F414E43C289E3E1C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Egan Matt  | The Complete Guide to Windows 8 / Полное руководств
 ```bash
 magnet:?xt=urn:btih:BD351A6747EF81779D397A709672A8CA4594832A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

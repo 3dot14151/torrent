@@ -20,8 +20,7 @@ Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
 ```bash
 magnet:?xt=urn:btih:D4A1E33F8D74CAA1C2037D20AE8AD29EFED8EFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

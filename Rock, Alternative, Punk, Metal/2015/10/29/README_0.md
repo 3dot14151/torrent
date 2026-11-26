@@ -22,8 +22,7 @@ Draconian - Sovran (2015) Deluxe Edition [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:82E29610D89A9115102723526EDD50824A50D6C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Skindred - Volume (2015) [MP3|320 кб/с]<Rapcore, Ragga-Metal, Electronic>
 ```bash
 magnet:?xt=urn:btih:D23D76F1408788FEEE4C2B52CD4DF6692AC3DFC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Def Leppard - Def Leppard (2015) [FLAC|tracks|WEB-DL]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E14B0009A9CF6783736811E248FFDEA97737C6DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fall Out Boy - Make America Psycho Again (2015) [MP3|320 кб/с]<Alternative Ro
 ```bash
 magnet:?xt=urn:btih:8A4614F67FB6ADCF426150207C6D9DCA9783E7E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bon Jovi - Burning Bridges (2015) Japanese Edition [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:93CC85A23901F8874DB336738187357A904916E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Def Leppard - Def Leppard (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:290930259910C2B9046007AB80C01C07CF4E331B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

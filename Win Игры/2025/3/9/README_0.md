@@ -19,8 +19,7 @@ Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E3437ED7E76B8A18A9E868B9B5755587B9E627D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lucky Season 2: End of the Rainbow (2025) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:50E77957730196C91239B2C104759ADE8D5BFEFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Biohazard: Siberia - это психологический хоррор от п�
 ```bash
 magnet:?xt=urn:btih:7F0FC373BBB63F15EC3E25DCCC7FB53BD0003E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Battlefield 1 погружает вас в эпоху Первой мирово�
 ```bash
 magnet:?xt=urn:btih:53538D5E5E5F39762A1DDFE9B8C523D8D6C138C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Split Fiction (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:22DCB7182F0DCD8C151C3580FB10058BE6426DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dark Return - это игра в жанре ужасов и мистики, в �
 ```bash
 magnet:?xt=urn:btih:CF2143C5AD10FFECE9E8734CD2EAC0D6356E1CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Uncursed - это психологическая игра ужасов от пе
 ```bash
 magnet:?xt=urn:btih:7220C4CB3B9A2DE637CD6984E3907C722C12931B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Multi]
 ```bash
 magnet:?xt=urn:btih:804F41FA080F20F849CA06EE4EDB00644F2F5986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Carnaval Simulator - это инди-игра в жанре магната, си
 ```bash
 magnet:?xt=urn:btih:B917D20B420ECBC09C4A84DF3E89D671E2781787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Carmen Sandiego (2025) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2330CF20DDB7E04E6CD3BB4DE82C55BFFA3AD5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Playtown Genesis (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C5FBB12710187958D8D75382EF5BCA7121D301A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B76280F57BEC3BBEFFC99FB51ABD15C0D57CCB06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Tech Store Simulator (2024) [Ru/Multi] (1.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:142B2F30726AD19587559A6FF53DDF8BCDCF858B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ The Lego Movie 2 Videogame (2019) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7D34F2F82B3B62687AA57AD35865FF06A3DAF49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ MainFrames (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BC20CCF2DE39D01F0DB6BEFB51108C8285F43273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

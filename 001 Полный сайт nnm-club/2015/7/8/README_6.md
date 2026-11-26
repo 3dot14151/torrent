@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1DF7D7AC377500CF9F46C461A7156CBF5D17947F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Alien Skin Software Photo Bundle Collection (08.07.2015) [En]
 ```bash
 magnet:?xt=urn:btih:79C7B9905A0ED02AF79B3947D4081A8B96432611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Alien Skin Exposure — это плагин для обработки фотог
 ```bash
 magnet:?xt=urn:btih:28197D5F99B781A5BD4C790E83C5789A55DB826C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:95FBADF60A0E97E77BF968D7ED253AC7E8B71BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C33F883F8250BEBE6D53DAF70DA5D66323D22DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

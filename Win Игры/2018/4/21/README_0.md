@@ -19,8 +19,7 @@ Steampunk Tower 2 - уникальная экшн-стратегия в альт
 ```bash
 magnet:?xt=urn:btih:EC389815741F85ACB1D44E45A7B754CAA31F8DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

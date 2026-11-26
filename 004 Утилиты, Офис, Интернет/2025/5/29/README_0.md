@@ -20,8 +20,7 @@ LogViewPlus значительно облегчает просмотр запи�
 ```bash
 magnet:?xt=urn:btih:358FCBAC355A8A4B4CE7503560540381226D82A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

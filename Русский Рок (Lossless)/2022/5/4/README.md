@@ -22,8 +22,7 @@ IZTUMANA - Zoomorph (2014) [APE|Lossless|image + .cue] <Space-Rock, Psychedelic 
 ```bash
 magnet:?xt=urn:btih:09CEDC97219D9A2F49B26435466E0AF299D39241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

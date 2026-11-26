@@ -22,8 +22,7 @@ Athlantis - The Way to Rock'n'Roll (2019) [MP3|320 Kbps] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:1A4AF6D97739CA636A8D01C69D0949C72D1042A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Traitors - Repent (2019) [MP3|320 Kbps] <Downtempo Deathcore>
 ```bash
 magnet:?xt=urn:btih:B842F7C5A6B1C806A46D2A6E79DA34B26C8933CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ignis - Sic Transit Gloria Mundi (2018) Remastered [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:F87E6C1D59667E30FE1AA5B4424949F9B22BEBE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Battle Beast - Eden (2019) Single [MP3|320 Kbps] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:EEA0D8669B07026EF82386368E4F3E426D9C821E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Pink Floyd - Greatest Songs (1995) Unofficial Release [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:B9DA052562B54D85FB092829C812DBEAEAA527D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Waveform [En/Ge] (RePack) 2012 l R.G.Механики
 ```bash
 magnet:?xt=urn:btih:A4C29858579179455D680095FB768903F6640335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Secret Files 3: The Archimedes Code – продолжение серии кве
 ```bash
 magnet:?xt=urn:btih:A5B8293C81C31901945E64E7CC1E66BD19204E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

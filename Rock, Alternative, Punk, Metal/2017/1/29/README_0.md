@@ -21,8 +21,7 @@ Signum Regis - Through The Storm (2015) EP [FLAC|Lossless|image + .cue] <Power M
 ```bash
 magnet:?xt=urn:btih:FB1630825071889B6A0464E1F99BA0059C0C9EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Various Artists - Record Transmission Mix - Mixed by Rezonanz (2011) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:1B38438CD4E3538AB43572CFF8908D7D79889080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Муз отрыв Спецвыпуск 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:9E1A443B1DF97B5331EB29088DFCB3A28235FF97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16E6887823A5AF5A9DDB1CF1931EF95B22CB7CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Весенний Хит Парад Русский (2011) [MP3|256 kbps]<Pop
 ```bash
 magnet:?xt=urn:btih:DB85E791CEE31E19D77C017BF133DB96D798A562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ PITTSBURGH PENGUINS vs PHILADELPHIA FLYERS
 ```bash
 magnet:?xt=urn:btih:66E55F796F0414C5B1095DF96582220FFD341D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ GranTurismo 5 - Original game sound track (2010) [MP3|320 kbps]<Sound Track>
 ```bash
 magnet:?xt=urn:btih:14597F49735B51F2AF8FA093562BD03C137A50A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7879EEFC2F3C66DB1BC4C398FD4D085BFA92DFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ VA - Arty - Anjunabeats Worldwide 219 (27.03.2011) [MP3|256 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:8F169CD2B52804C2095D2E3957D583480E126176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - VIP Абсолютно Танцевальный (2011) [MP3|256 kbps]<Pop, 
 ```bash
 magnet:?xt=urn:btih:9E02F5BBC8077251E7FB506D9A0EDC382F731F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ VA - Новинки: Выпуск 50/50 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:14287E37E13241D2C2A6F7A475926FDBE0EA9A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:190B44AEC16431B439B8DA1223E2362984240707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0B27F04C3B6E258C127A1DD87C8C5BB729FD2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Русский Автозвук Часть 2 (2011) [MP3|256 kbps]<Pop/Danc
 ```bash
 magnet:?xt=urn:btih:E1A0E36D94C21A216F87B3A26F1374B177E05309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C3D5A201A6AACCE5E7A09086E99C433AE843BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Uriah Heep - The Spitfire Years (2011) [MP3|192-256 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CC7852719A73ED3B07A9A354531FDA656BE7AE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ BBC: Симфония мира природы / Natural World Symphony (2005) SA
 ```bash
 magnet:?xt=urn:btih:605C175CF99F451EE5BCE671602AB5B041091FAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ VA - Top Европа плюс 50/50 (2011) [MP3|320 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:3ED59D47ECC4B62EF3A0D5FA237EC658290CB3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Mylanviewer - это простой LAN сканнер для вашей лок�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ VA - Super Звёзды 90-х (2011) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:61BA248A2236EC78468981E24E4B6B7318B4CAAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Persephone's Bees - Notes from the Underworld (2006) [FLAC|Lossless]<Alternative
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ VA - Новинки Сезона DFm Весна. #17 50/50 (2011) [MP3|256 kbps]
 ```bash
 magnet:?xt=urn:btih:D6FF5E574B7AC457130D01B2F5F35E620B1FA800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF061894114C4298A0230F456BF464181F533197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ VA - Русский Размер Удовольствия (2011) [MP3|128 kbps]<
 ```bash
 magnet:?xt=urn:btih:3A8410E319A5ACEAD8675A2D8FE82BFCC8BBC183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6A9F6BCF487A8D8975A97B123A66F8875A3EB45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74241265FB11B96EC99C58F0A4905BE2E09FEC03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

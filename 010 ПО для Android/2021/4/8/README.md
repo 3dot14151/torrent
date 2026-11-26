@@ -19,8 +19,7 @@ Partitions Backup & Restore - Храните на смартфоне слишк�
 ```bash
 magnet:?xt=urn:btih:983E48661BE6AFCF92FCDE460BF226095C4C5AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

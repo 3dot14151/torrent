@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:537352E91E487E0A8B340762CDAEF202C5765F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rutube v29.4.1 Mod by vadj [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C2143E91AEDCF5E90675C9B94407CE8CAB34A876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ToonMe v0.7.8 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C2DC287309273E76AF13EF7195B606B2EEA9B3FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Reface: Face Swap AI Generator v4.11.0 Mod by derrin [Multi]
 ```bash
 magnet:?xt=urn:btih:BFA1F988EB458DFA426D0CE8D76E24CD4EA0CAAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Picturize it v1.1.9.1 Mod by srajawwal09 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BEC1E395D19127676D4C41306C5AA1829BEA8C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Apowersoft Streaming Video Recorder - программа, которая раб�
 ```bash
 magnet:?xt=urn:btih:FA8454665C33240BF380D8EEEAB214D0E7E20DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

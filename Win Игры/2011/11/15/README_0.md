@@ -19,8 +19,7 @@ Youda Mystery: The Stanwick Legacy (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:A4B7B5A4CA5452F69BC8B78845805ED9CED4AE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Case Files: Huntsville / За семью печатями: Хантсв�
 ```bash
 magnet:?xt=urn:btih:31B78F399B4EBCD192E634CA99136F3821D2DA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Keepers: Lost Progeny Collectors Edition / Хранители: Утраче�
 ```bash
 magnet:?xt=urn:btih:ADE42A3CCAC28F1AB4A597B7E385250A72968D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

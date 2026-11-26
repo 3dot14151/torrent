@@ -19,8 +19,7 @@ Toren (2015) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6EA0DC0D6558B20DD302C6A96E71C2A52EEC55F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Desktop Dungeons - минималистичный, но очень интере�
 ```bash
 magnet:?xt=urn:btih:E6B7EDA2274550B55D31D0B39ABC572E0C7FF777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Darkness II (2012) [Ru/En] (1.1) Repack R.G. Механики [Limited Editi
 ```bash
 magnet:?xt=urn:btih:59618B5222432623E19885A41EFBD2A795573C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Damnation (2009) [Ru] (1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:958074B37107755645B31EB4433F562532488260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

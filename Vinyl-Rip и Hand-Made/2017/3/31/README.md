@@ -22,8 +22,7 @@ VA - RETROспектива, часть XV. Мелодии и песни из к�
 ```bash
 magnet:?xt=urn:btih:A2A630B7E99141755C404C61C6BD7EC9978C1935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Danse Macabre 3: Deadly Deception (2015) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:2AB1C730233EFCA5E0465EE90A8D23CA9882F97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Witches' Legacy 5: Slumbering Darkness (2015) [En] Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:DD2CB329FD9A606665F0A6C461931B400742D37A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Christmas Eve: Midnight's Call / Сочельник. Полночный звон
 ```bash
 magnet:?xt=urn:btih:165AA40E15426D23C177626D88A9192C557472F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sacred Citadel – первый платформер в знаменитой с�
 ```bash
 magnet:?xt=urn:btih:1B610547D11C57BB22194DA775504776858C161E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Harold – смесь платформера, гонки и головоломк
 ```bash
 magnet:?xt=urn:btih:E0E22DE9502084814F816CDDDE2BECD2D7D63709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Divinity: Original Sin - это очередная часть знаменито
 ```bash
 magnet:?xt=urn:btih:B6E98DEE8F6644D1765867F04F53F89E21965BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

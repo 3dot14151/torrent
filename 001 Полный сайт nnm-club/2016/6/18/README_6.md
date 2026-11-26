@@ -18,8 +18,7 @@ Galactic Civilizations III (2015) [En] (1.8/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:801A81D416BA6775877AFE3C2BA93169EB6CC445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Blossom Wedding - Photo Gallery Slideshow - красочная, свадеб
 ```bash
 magnet:?xt=urn:btih:6496C47A726E08E42DFBEB2652C3BFF226886AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KMSAuto Net — автоматический KMS-активатор для оп�
 ```bash
 magnet:?xt=urn:btih:040D3F70EBBF9A9AAE3F62F4AEA4F8BCDE0B07D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AA358D7E179C43165432BEA9D17D82F0F582212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0389AB0DC439E2332840AFA4F63E1F9F87A7DF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ HitmanPro – мощный cканер для выявления различн�
 ```bash
 magnet:?xt=urn:btih:7DCFCD411D821C7086F74C9385E0224FCBF7C52D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Battery Monitor Widget Pro 3.17.1 [Ru] - Виджет батареи
 ```bash
 magnet:?xt=urn:btih:3F046AEE822680F9BCD538EA9ACA44D0589FE541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Joe Dever's: Lone Wolf HD Remastered (2014) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5C76793A032DF9B4E2F1183A3AAB4533C1696BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ NeuroNation Premium 2.6.0 - 2.6.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:7C356F5C175A8F977D6B794CA71FFA6185B57F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Space Run Galaxy от студии Passtech Games — сиквел игры Spac
 ```bash
 magnet:?xt=urn:btih:A486A0B9751D863DF2360D3851CA99D4F9FC2060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F624670DB8F4CC75D126898D33379363034A18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Kingdom Wars 2: Battles повествует о фэнтезийном мире,
 ```bash
 magnet:?xt=urn:btih:51E41FFB07FF019BC7B52C33CD3E54C0F31BA83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:124F5BA641799FB0294C26C6E3B5865E6635343E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD3123761D4A819272091B41A3314CA1628C722F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ Beyond Compare - мощнейшая программа для сравнения
 ```bash
 magnet:?xt=urn:btih:49C75AEB28366925938F1576757F8DD89AAAD447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58AC78BC0BB3CE4D3500DEA9A9B510FDA3AC1016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +446,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (5.09/MP Only/dlc) Rip X-NET [SE5 
 ```bash
 magnet:?xt=urn:btih:C27A1AE285A5C4BD0AA0E055C44A446684D682EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +471,7 @@ Element 3D 2.2.2.2147 - плагин для After Effects, предназнач�
 ```bash
 magnet:?xt=urn:btih:A7A3ED04C15D5C7BDCB2CAE1DE046D7F16A30AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

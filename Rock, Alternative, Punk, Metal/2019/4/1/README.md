@@ -22,8 +22,7 @@ Ringarë (Ringare) - Under Pale Moon (2019) [FLAC|Lossless|tracks + .cue] <Black
 ```bash
 magnet:?xt=urn:btih:603C3498B698505233042AAD80F9CAF021FC9A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Malakhim - II (2019) EP [FLAC|Lossless|tracks + .cue] <Rock, Black Metal>
 ```bash
 magnet:?xt=urn:btih:060AE7BB51BE5B475B38D47B4FBD4CE70485673A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pulchra Morte - Divina Autem Et Aniles (2019) [FLAC|Lossless|image + .cue] <Deat
 ```bash
 magnet:?xt=urn:btih:0DF778CF887245326A2E06A4B3B3D6F2FD391783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jetboy - Born To Fly (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3EFA76AAF78D6A3955DE039CB805C2272DB07DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Periphery - Periphery IV: Hail Stan (2019) [MP3|320 Kbps] <Progressive Metal, Ma
 ```bash
 magnet:?xt=urn:btih:0F3BE8E5776C2E6FBCE42B7BB7D395D7B2B53456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

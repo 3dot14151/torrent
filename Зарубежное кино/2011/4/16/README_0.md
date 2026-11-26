@@ -18,8 +18,7 @@ Cобытия развиваются вокруг молодого восход�
 ```bash
 magnet:?xt=urn:btih:F27253D4D1184454C3A62881942C5BA22C4D0930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

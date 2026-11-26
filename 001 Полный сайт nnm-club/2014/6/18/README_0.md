@@ -27,8 +27,7 @@ Paul Lamb & The King Snakes - Hole In The Wall (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:CDF5FDE8A9FA892A8A2507D94D1D83205F95BFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Advanced Installer - это мощное и простое в использов
 ```bash
 magnet:?xt=urn:btih:E2424B0D68C63ABE0C8E9EB85D0B3ED8474CE30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Music For Everyone - Chillstep & Dubstep Vol.1 (2014) [MP3|320 кб/с]<Chi
 ```bash
 magnet:?xt=urn:btih:4BB3DB5FF39308718AEF3A4A1F7DCA283C03E298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Bloody Mary - We Rock, You Suck! (2009) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9B2EF93AD2EB767E7737EC757FF288FEB159E27B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Kayama Yuzo with Nokie Edwards - Live at Akasaka Blitz (1998) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:71E0D6763A236B718B95172751A8217BA595E541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Maldives Deluxe Beach Lounge (Relaxing Chill Out Selection From The Top Res
 ```bash
 magnet:?xt=urn:btih:CBC4EF3B34EA5861CB4C16A399D7553451D10257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Ashampoo Music Studio как глоток свежего воздуха для �
 ```bash
 magnet:?xt=urn:btih:29A34D7B4FE8F16B9D20871F2C544985387AF515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ DSLR — как много смысла заключено в этих четы�
 ```bash
 magnet:?xt=urn:btih:2828B545D1A206664D04945AD997D7E2EF43F456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09410B665C35AF99FE9765EC1F25B0596C85ACA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ Papers — персональный каталогизатор научных с
 ```bash
 magnet:?xt=urn:btih:075204B9EECEAD0D5D8E8E0095D7DF6E4715549A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ Sygnals - Enter Light (2014) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Ambient
 ```bash
 magnet:?xt=urn:btih:33CB48797ED6507F0D9ECA2E135B4761EE92667D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1ABA0AD1703A2427642D116EFD76E1307DC192D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA338FB22819B16BD140CB8FF1D80F38680AC495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ VA - Автозвук. Вруби Погромче! 50/50 (2014) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:8A7CBFEDB95A8C332BE946A59387B81F59532127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +512,7 @@ Comedy Баттл. Суперсезон. Выпуск №12  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:225015A4D988F1D8A4D4150DF13424EB913725FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ Ashampoo Music Studio 4 - всё-в-одном для создания, реда
 ```bash
 magnet:?xt=urn:btih:B17E0AE4EDF5F3D1F2DDE97E82054CBB85D304C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01598B87EDEE68AF8E9E5676E8D2299214353C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ Ill Nino - Epidemia (2012) [FLAC|Lossless]<Nu Metal / Alt. Metal>
 ```bash
 magnet:?xt=urn:btih:C4E48F8BF10922B01D55BF5AF1BD5CB75776AA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:303011CBB52E0AEFA037FBA5C3971B5DDF52DC08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A2190D479141E8047CE80FEDF2B533C53336CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:969AC97D5923358353A73261DBA1D48014914B71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ TabLauncher поможет вам быстро и легко, используя
 ```bash
 magnet:?xt=urn:btih:B0EBD3F75A5CE066276EF40801974D6B15BC99D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +742,7 @@ Darkest Era - Severance (2014) [FLAC|Lossless]<Heavy/Celtic Folk Metal>
 ```bash
 magnet:?xt=urn:btih:3F32BDB167F6277E83778A81FF051C996622875D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

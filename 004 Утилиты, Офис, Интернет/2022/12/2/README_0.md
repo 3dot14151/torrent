@@ -20,8 +20,7 @@ Hasleo Backup Suite — это бесплатное программное об�
 ```bash
 magnet:?xt=urn:btih:FD00276FA80EAAA5B21C64AE05ED0F7499033778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

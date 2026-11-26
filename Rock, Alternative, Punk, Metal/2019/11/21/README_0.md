@@ -22,8 +22,7 @@ W.E.T. - 4 Альбома Collection (2009-2018) 5 CD [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:70778CCD7C9F76CF4D66E768D5A8535F76F30D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:DE88AB5BB7A218A27393D34BA3289C33C256C8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Beck ‎ - Hyperspace (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Roc
 ```bash
 magnet:?xt=urn:btih:CF0DBB2D85C439999E337C5109DEF482F1C23A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Chris Rea - Dancing With Strangers (1987) 2CD, Deluxe Edition, Reissue, 2019, Ma
 ```bash
 magnet:?xt=urn:btih:6138757319D7B614C975B0505DDF75BD5F893B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Peter Gabriel - Flotsam And Jetsam (2019) [FLAC|24/48|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:A967B4B6B5645E05FC01AAB71E1BA1801362E04B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF96163E7EE0D7A4F62665210F59A75D1A15414C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ AC/DC - Greatest Hell's Hits (2009) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6B05706CDD885813E195ADB7BECE3C9962D7024E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

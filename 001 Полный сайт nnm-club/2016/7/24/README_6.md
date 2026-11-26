@@ -18,8 +18,7 @@ DU Battery Saver, ведущий инструмент для экономии з
 ```bash
 magnet:?xt=urn:btih:E73DE219617B3DAD1B58B49A232DB9B469996CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Cнайпер: воин призрак / Снайпер: призрачный с
 ```bash
 magnet:?xt=urn:btih:69101FEF7AAC345DDB8093E32B1BF509FC69820F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:00A1EE615FD0C45BC26E84EA5423B552F94C7180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Mac OS X 10.11.6  El Capitan  VMware Image [AMD] [Multi]
 ```bash
 magnet:?xt=urn:btih:00F0C37925EEA5828B37D22C12FF4AB4593D15FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

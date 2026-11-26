@@ -19,8 +19,7 @@ Bit Trip Presents Runner 2: Future Legend of Rhythm Alien (2013) [En] (1.0/dlc) 
 ```bash
 magnet:?xt=urn:btih:4756D6A4443CEF32AAB4A6DAB57009FC23CF4C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BRAWL (2015) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:B1EA65DC4DAA04AACDC4B0DA0568A12CB2B7CBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enki – это мистический квест, где игроку пред�
 ```bash
 magnet:?xt=urn:btih:17081288076D89D25C11006D1E8968CD16F96664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alien Rage: Unlimited (2013) [Ru/En] (1.0.9084.0/upd6) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:7080FF0104644BAADF9F410789EFD185E5FD3FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Angry Birds: Star Wars II - это продолжение эпической с�
 ```bash
 magnet:?xt=urn:btih:904D2C4DA502CC7075962F1411A0542F68FF979C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

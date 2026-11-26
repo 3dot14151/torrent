@@ -25,8 +25,7 @@ Fractured Insanity из Бельгии возвращаются с новым а
 ```bash
 magnet:?xt=urn:btih:DA44B6CC4C24012EA52AF22EC01B05E08C481705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Haunt - Ignite (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7CC2C669B33F8E7B92EBEA36FAE92D310A888F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

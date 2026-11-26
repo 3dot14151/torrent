@@ -22,8 +22,7 @@ Point Blank - Point Blank (1976) Reissue, 2006, Wounded Bird Records [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:C4F54D4C810C781168F3D52191B8C77F9AB044AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trigger - Trigger (1978) Remastered, 2009, Rock Candy [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3B891508998BCFED7E43175ED45D462846567580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ King Kobra - Thrill Of A Lifetime (1986) Limited Edition, Remastered, 2000, Axe 
 ```bash
 magnet:?xt=urn:btih:31E1BDBEA91636C5025A3F41695410A512605F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Starset - Vessels (2017) [MP3|320 Kbps] <Alt. Rock, Electronic, Symphonic>>
 ```bash
 magnet:?xt=urn:btih:ACE470F81FC1A5A224DF714F30DDAA907B823756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pain of Salvation - In the Passing Light of Day (2017) Special Edition 2CD, Medi
 ```bash
 magnet:?xt=urn:btih:72199F9FDCE556309CB83907788F3B0369B2F165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Caravan - The World Is Yours: The Antology 1968-1976 (2010) 4CD Box Set, remaste
 ```bash
 magnet:?xt=urn:btih:219B622F9E723D5F2C3E1E6AD59CCBC76C80F754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

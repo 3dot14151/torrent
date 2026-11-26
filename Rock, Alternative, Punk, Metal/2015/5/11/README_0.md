@@ -23,8 +23,7 @@ Arcturus - Arcturian (2015) [FLAC|Lossless]<Avant-Garde Metal>
 ```bash
 magnet:?xt=urn:btih:D965481CA9EE7D953571686E6B86114DC05AC2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The Beatles - 1962-1966 (1973) 2CDs /1993, EMI Records/ [FLAC|Lossless]<Beat, Po
 ```bash
 magnet:?xt=urn:btih:5283F2D824CE0D46550A051B9B2D5994C152E10F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ The Beatles - 1967-1970 (1973) 2CDs /1993, EMI Records/ [FLAC|Lossless]<Beat, Po
 ```bash
 magnet:?xt=urn:btih:285B3D6227F5B2246423FC371E396365A248AB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

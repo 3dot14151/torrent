@@ -19,8 +19,7 @@ Mind Games Pro / Игры ума v2.5.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B89F44748B440012BE37868228FA580DA12807A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cogs — это игра-головоломка, в которой вы стро
 ```bash
 magnet:?xt=urn:btih:AF7DD0037F0329417948B50054F8092EFD219BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

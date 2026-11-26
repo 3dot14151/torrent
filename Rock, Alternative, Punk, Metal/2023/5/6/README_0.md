@@ -22,8 +22,7 @@ Adrian Benegas - Arcanum: El Mantra Secreto De Los Espíritus (2023) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:92A190E073511D85D2E6A30C3E5645A5706BB012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cradle Of Filth - Trouble and Their Double Lives (2023) [FLAC 2.0|44/24|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:95C01A832E1472FB021034EC42D4110BD4DC13B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

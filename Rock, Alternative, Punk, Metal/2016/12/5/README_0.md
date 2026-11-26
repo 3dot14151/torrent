@@ -22,8 +22,7 @@ Slechtvalk - Falconry (2000) [APE|Lossless|image + .cue] <Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:A43E8A8B242ED20ADEF0494711A22DA51A850A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Slechtvalk - The War That Plagues The Lands (2002) [APE|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:473B373E89921C17FFCEEE613FD8BB59824D9ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Morgart - Die Türme (2007) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:1600A71EA66ADE969FE64C425E71B1D3A2150F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Carnal Grief - Out of Crippled Seeds (2004) [WavPack|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:11E6FE64681B4EFBFEAF509B210E45FF1E6BF01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Slechtvalk - Thunder Of War (2005) [APE|Lossless|image + .cue] <Pagan Black Meta
 ```bash
 magnet:?xt=urn:btih:0218E10D7B635731B3CD3E48C133EF7397F17806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Blind Stare - Symphony of Delusions (2005) [WavPack|Lossless|image + .cue] <Melo
 ```bash
 magnet:?xt=urn:btih:57AC5825C34729B6DE03BC2EB3673034521A9C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Uriah Heep - Salisbury (1970) 2CD, Remastered, 2016, Sanctuary Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:E6C06E3B2D0D57634AE315FA1BC94501F71291FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Ventoy - это инструмент с открытым исходным код
 ```bash
 magnet:?xt=urn:btih:850247873717EE56A002054B5F2D5A25CFA1A25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Bсe звери в лесу счастливы - родился олененок
 ```bash
 magnet:?xt=urn:btih:8A2D1CD2BE7A36F3F9517995488BC9FFCE8917D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ppc.world, Никита Кравченко и др. | Специалист по 
 ```bash
 magnet:?xt=urn:btih:DE19C836E48A702E50D8D4A669BCC0355E321CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:723AAAF0D03495A374DF51905423BEE684E83E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

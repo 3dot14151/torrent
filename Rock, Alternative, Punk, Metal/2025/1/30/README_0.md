@@ -22,8 +22,7 @@ Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:8D5217DBB7983D697FE9CC9C1A127EA5F44BFFDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Masterplan - Time to be King (2010) [FLAC|Lossless]<Progressive Power/Heavy Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Element of Crime (1986-2009) - Discography (22 albums) [MP3|160-320 kbps] <Alter
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

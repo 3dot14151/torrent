@@ -19,8 +19,7 @@ Dreamwalker: Never Fall Asleep (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:22C0A1341714B3B77313055994583EEAF2A35468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C5B8D9A794698D2556E262028BDF27DB5674D33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Truman - Ikebana (2015) EP [MP3|320 кб/с]<Screamo, Emoviolence>
 ```bash
 magnet:?xt=urn:btih:5F0F364C84A558712B689982307C3E3C9F9B5CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - High Voltage! A Brief History Of Rock (2006) Kerrang! [MP3|320 кб/с]<Alt
 ```bash
 magnet:?xt=urn:btih:40977703BA625783B6727B23C0874505100A5250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ The Amorettes - Game On (2015) [MP3|320 кб/с]<Hard Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:F8D28F07D0ADCD712025FD15BC3116D713C6C61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Majesty - Generation Steel (2015) Limited Edition [FLAC|Lossless]<Heavy Metal, P
 ```bash
 magnet:?xt=urn:btih:43A3460B5AB10526B28368F6F537F3BD36DBA9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Therapy? - Disquiet (2015) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:18FC6C69411E5EE0666E02E315F488B2E5590E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ VA - Higher Voltage! Another Brief History of Rock (2007) Kerrang! [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:B022787B5E783BCDF1228F5A011A5D797CC300E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ VA - Kerrang! Presents Maiden Heaven A Tribute To Iron Maiden (2008) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:E2B5566E1EEFCA2AD6E65303EBEC3DD8568BC40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Annisokay - Enigmatic Smile (2015) [FLAC|Lossless]< Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:9CE869CFE70CED1706D83FB9F4CD23E3AA55DF0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

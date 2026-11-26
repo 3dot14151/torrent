@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B71D2B9DFEFC967D00BB1F57D94A79CA3FFD60DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Death Engine - Mud (2015) [MP3|320 кб/с]<Post Hardcore, Post Metal, Noise Roc
 ```bash
 magnet:?xt=urn:btih:FA6C3C85E6AF9D440B2FF24627D50CD627537020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F30413F7141B82099028199F3962800BC6D9EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4A8EE93196E8E97970E7170EC7A183BC00315D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Trance Cookbook Vol.71 (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:46A9751E4C997C05B4874847CC4553F023C15893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Larry Young - Mother Ship (2012) [FLAC|Lossless]<Jazz, Hard Bop, Jazz Funk>
 ```bash
 magnet:?xt=urn:btih:644989987F4EF54897D58472D5D9079B0C7431DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Art Simmons - Quartet (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz, Cool, Vocal 
 ```bash
 magnet:?xt=urn:btih:462A03B3305454011B7151A4E4A565EA78DF4FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ VA - Sound Of Miami: One A.M. Volume 29 (2015) [MP3|320 кб/с]<Trance, Uplifti
 ```bash
 magnet:?xt=urn:btih:E4475B736AA38B4C37AFC7102D6E876564972D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ VA - Sense of Vocal Trance Volume 40 (2015) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:2806D0720272530467B08EAD2DA562F828D5945D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ Baton Rouge - Baton Rouge (1997) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1B6E65F74D026982E1B6FF38D17C5C545F1F96F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ Septic Mind - Раб (2014) [MP3|320 кб/с]<Funeral Doom Metal, Experimental>
 ```bash
 magnet:?xt=urn:btih:391A70486F11746738540CCA86FCCCF38D0CBB0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:278F979B2E23F5012DF19855410A730B95DA286B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F92F9A7858DCEF6963BEB5C363A47D9678904A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1290357AF6368DDFCA18E54666A08A1616546DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37AF59B8B85552EC0E35D846A5A6B149DB78C2A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ These Ghosts - Still The Waves (2014) [MP3|320 кб/с]<Alternative Rock, Indie 
 ```bash
 magnet:?xt=urn:btih:0B514C246679AC735C8C0A168A9095FAE31D9418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B4FFFD3200C5F7954A7EC7C5FD82698F91CD3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +539,7 @@ Don Friedman Trio - My Favorite Things (2004) [FLAC|Lossless]<Jazz, Post-Bop, Pi
 ```bash
 magnet:?xt=urn:btih:E017B4D15390A5D3CDFC9A2528904AFAB0BA1A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ False In Truth - Back To War (2014) [MP3|320 кб/с]<Thrash Metal, MDM>
 ```bash
 magnet:?xt=urn:btih:82CE4169C32485A0D42B3FD2EFCBF13224563E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ Evyltyde - Evyltyde (2015) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:D68BBF0613901AD3C1ACE2C4D326848DFB1FD580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9488C1A51DEFB9B96ED735AB9EEF3FA068F18653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ Armored Saint - La Raza (2010) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FDD72D5F3D0A778CEDB510979379371316367908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ Blue Stew - Destination: The Blues (1998) [MP3|320 кб/с]<Modern Electric Blue
 ```bash
 magnet:?xt=urn:btih:32974E4C0C0F6D980C529838A25047196521B3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CC70D52A3D654140F7CCBD47009CEA98035A0F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ Venus Vegas - Morning Still Life (2011) [MP3|320 кб/с]<Modern Rock>
 ```bash
 magnet:?xt=urn:btih:0B86D6DB8CDE37813CC42DF0762E7B802B459852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Project NT - Ottobre Nero (2016) [FLAC|Lossless|image + .cue] <Dark Ambient, Exp
 ```bash
 magnet:?xt=urn:btih:20178461753CCC1A7412F5AD0D2C907EEE500DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

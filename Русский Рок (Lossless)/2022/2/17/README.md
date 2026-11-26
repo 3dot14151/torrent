@@ -22,8 +22,7 @@ CD - 1 - Иди ко мне:
 ```bash
 magnet:?xt=urn:btih:942950FF5B39411B5415C0CF417D7B808DCFDB47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

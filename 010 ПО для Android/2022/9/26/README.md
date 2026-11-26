@@ -21,8 +21,7 @@ Learn Languages with Music 2.1.3 [En]
 ```bash
 magnet:?xt=urn:btih:44B222D842F62DDDF86C74674101469DE9EB8040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Business English by BEP 1.6 [En]
 ```bash
 magnet:?xt=urn:btih:40B83EC20BE093D08C20FBBA8C38F04FCC911239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Fluenz 2.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:5F80D2DE6A6F3DAFB4E65614F441C2D1926342C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Bright использует топ-метод интервального пов�
 ```bash
 magnet:?xt=urn:btih:514AA58CA9763CBF165178A70CEAB7DBDE88409E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

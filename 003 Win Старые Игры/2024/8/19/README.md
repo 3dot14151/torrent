@@ -19,8 +19,7 @@ Nancy Drew: Danger on Deception Island - детективный квест пр�
 ```bash
 magnet:?xt=urn:btih:D5A3ABFBA9C597B85B7842E71A7939365CFC68E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Ori Uplift - Uplifting Only Episode 709 (2026) [MP3|320 Kbps] <Trance, Upli
 ```bash
 magnet:?xt=urn:btih:38B4D39BB3771B5AAED0C7AE7218822F7B31A570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5449B2CC735539AF25EAFE30AEC32F9897BD3581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Armin van Buuren - A State Of Trance 1294 (2026) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:F3343CFAE11F17C4B85028A3E565F17FF464D9F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Winterhorde — израильская метал-группа, сформиро
 ```bash
 magnet:?xt=urn:btih:37FAEDFA4844F26D846DE184283F4703A9DF0984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Thobias Wiklund - The Gates Of Heaven (2026) [FLAC|Lossless|WEB-DL|tracks] <Heav
 ```bash
 magnet:?xt=urn:btih:40AF4F9C66DD4F294377FD56C365B4128FF5A4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - A State of Trance 25 Years - 2013 Highlights (2026) [MP3|320 Kbps] <Trance,
 ```bash
 magnet:?xt=urn:btih:4161259ACC9EE985A63810134C32D7B14542AFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Lime - Sensual Sensation (1984) [FLAC 24/96|Lossless|image + .cue|Vinyl-Rip] <El
 ```bash
 magnet:?xt=urn:btih:4A43EA055A167D98EDD6C50176CBCE9ED8D0DA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Just listen ... Part 37 Other Soul (2026) [MP3|320 Kbps] <Blues, Blues Rock
 ```bash
 magnet:?xt=urn:btih:BD5ECABABD43D429B12A76557E3D06877675C529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Billie Eilish - Compilation (2016-2024) [MP3|320 Kbps] <Electropop, Indie pop>
 ```bash
 magnet:?xt=urn:btih:2B719CCA57B2D3758DA0B80E111E4566ABB003C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Various Artists - AFM Records: 25 Years Metal Addiction – The Rare & the Unrel
 ```bash
 magnet:?xt=urn:btih:5C7B64ADBF20D6C831298B2E597856665B28C007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Lime - Caroline (1991) [FLAC 24/96|Lossless|image + .cue|Vinyl-Rip] <Electronic,
 ```bash
 magnet:?xt=urn:btih:43F58E90ACF39BE9C056D6DC618A94A2396CADD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D81ED41A643BFE61E33731E0B08110795820E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Wouter Kellerman, David Arkenstone - Pangaea Immersive Realms (2026) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:64BD9249F3836AFB6FCCB0EC63A4A999E7702085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F61FB864F4AF45A454780B800E9AAD4172F8789D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ VA - Top Best Trance September 2026 [FLAC|Lossless|WEB-DL|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:3B096E8A745A6263EF0F35D538D5CD9675795653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ VA - Just listen ... Part 36 Other Soul (2026) [MP3|320 Kbps] <Blues, Blues Rock
 ```bash
 magnet:?xt=urn:btih:507FD0A5B50B3B3223F6CCFA09A8B2125C3EF221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A143C53582BC9E28E7574F76C868003CAC89F23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA7FDC43FBDF186DF83041C29029C4B6A6D076E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ VA - Just listen ... Part 35 Other assorted (2026) [MP3|320 Kbps] <Other>
 ```bash
 magnet:?xt=urn:btih:381F967B8DA29410DED07C8242CAD648EDC3462B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ reaConverter Pro – инструмент для тех, кто имеет де�
 ```bash
 magnet:?xt=urn:btih:548E219CF3A5FE9D533CBC5797FDC9BDBB1E9A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:C0D2627AD58C1C9CD715D2767E4E41E90F9B6981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ Adobe Audition - Программа для работы с аудио-данны
 ```bash
 magnet:?xt=urn:btih:3DB7196CA5563F12FB7008787C7CF678CFB146AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D90C4D23F64238DC1057824A6E9B3EDC7C1DFB8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F05809236CB4B6BC07A4EE30261E17257F2AB846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C4440DF925A932B8EFC5BEF55B7C6AD0F2BCD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D31AA92B10982621F4EC4B7AFE9265C1F54AFF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:B294650CE38E790E6EF2C237D282AB95EAE50512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Joseph Sullinger - Earth Voyage (2011) [MP3|320 кб/с]<Instrumental, New Flame
 ```bash
 magnet:?xt=urn:btih:55F1B4BAD94CA13D913C3634611344669EAFC40C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - Winter Chillout & Lounge Songs (2014) [MP3|320 кб/с] <Chillout, Balearic
 ```bash
 magnet:?xt=urn:btih:224B8B5360D190105343A010A23C3ABF5446B657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ PeacesЖанр: Ambient, Electro, ChilloutПродолжительность: 01
 ```bash
 magnet:?xt=urn:btih:E63160E4B2B961F5566EBAC63577698E48A12849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30208925E25079FA5F85A0A8854EDACA6B2B42A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Paul Haslinger & VA - Другой мир: Пробуждение / Underworld: 
 ```bash
 magnet:?xt=urn:btih:4F7DB2D53C45B767BEA8749E8576D568318D8CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7D3F1F8B7824C8F331BE7212C08CD008AD338F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ VA - Rock Star (Original Motion Picture Soundtrack + Unofficial Songs) (2001) [M
 ```bash
 magnet:?xt=urn:btih:BD75A15AEED19BE816D9EF35DB283F745C82C8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ VA - Verve & Blue Note Today (2014) [FLAC|Lossless]<Mainstream Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:E27FA0A260EC456ED9D6902A855AC8373461B7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA077BC02BA7749A3624BDD57AF47A728D9A96BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66620E576221805DA2CAB78D8D87932DEE433B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ VA - Luxury & Sexy Beats (2014) [MP3|320 кб/с]<Chill House, Deep House, Chill
 ```bash
 magnet:?xt=urn:btih:B9585F67DECA141B8CE989F940BF556AF5E8EBB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ Hide Folders 2012 - это удобный инструмент для сокры
 ```bash
 magnet:?xt=urn:btih:5049F289EF512F494C22182032928A5B1CAC2E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9ED5DCD9FF262DEC9A4B9B88D0F77764BA40732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +442,7 @@ Ben Woods - Surf Flamingo (2014) [MP3|320 кб/с]<Instrumental, Surf, Flamenco>
 ```bash
 magnet:?xt=urn:btih:9FEA9A9BFCF6DCE85AA9BB4AEE4CFF566F335B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45B88BB256C8C70B5C1EEADD067D7BCB392A8482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A90C2F6E51B9200817503CA1210A197FC407570E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ Giant - Last Of The Runaways (1989) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C768C121AE1F641CDFAC8DF2D7FF4F34AB228EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ Run-Command небольшая, портативная программа для
 ```bash
 magnet:?xt=urn:btih:B425653DED616ACC18D09DE05DE45575E741082D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:288022AAC2AE6B1F76D333394DBB1CEA2CEF0BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ Giant - Promise Land (2010) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5DFB5F55379820D9C5DD5340516FF134B10B74B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ UC Browser - мировой лидер среди мобильных брауз�
 ```bash
 magnet:?xt=urn:btih:352825E28092852366497DFF041DCEBA19152DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ VA - Enigmatic (2006) [FLAC (image+.cue)|Lossless]<NewAge>
 ```bash
 magnet:?xt=urn:btih:2379BF3195E75C18509C309DF40ED9C5B99488B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ Hilary Stagg - 7 альбомов (1988-2001) [MP3|320 кб/с]<New Age, Neoclas
 ```bash
 magnet:?xt=urn:btih:7FF6F4EE09ADAEEA68C680C44FEFEDA094DEC998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ Seitokai Yakuindomo* / Члены Школьного совета (ТВ-2) [2014
 ```bash
 magnet:?xt=urn:btih:E08411BCEA78F9373FC082DC70854486AF67AC78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ CD10 - The Ultimate Diva CollectionЖанр: Jazz, Vocal Jazz, Latin, Bossa Nova
 ```bash
 magnet:?xt=urn:btih:25A8F5E6D4FED23A4026A0FE0CAEA7B846BFECDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

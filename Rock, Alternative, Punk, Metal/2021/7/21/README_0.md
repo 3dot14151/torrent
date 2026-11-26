@@ -22,8 +22,7 @@ Missing Tide - Follow The Dreamer (2009) Japanese Edition [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:8847E2F0B680C083ED358500FE7B079DFCDB0B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Platens - Of Poetry And Silent Mastery (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:91B8E222E0F5783989A0696BE16623DDB49BF359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Kinks - Kinda Kinks (1965) Remaster, 1989, Castle Classics [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:3013FE578A87E4D2C510FB8CA71A4170B848A769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

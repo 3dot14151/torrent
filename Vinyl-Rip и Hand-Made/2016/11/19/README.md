@@ -22,8 +22,7 @@ Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [WavPack|192/32|tracks|Viny
 ```bash
 magnet:?xt=urn:btih:AE6718A21081EAFCC78388CE02D30DC97CABBBF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

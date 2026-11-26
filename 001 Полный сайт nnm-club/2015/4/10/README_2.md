@@ -21,8 +21,7 @@ Translator 1.1.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4F761291CF39CA2D50CABD78C7A0A484F3D87FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Van Halen — американская хард-рок-группа. В 1972 г�
 ```bash
 magnet:?xt=urn:btih:3ED383FD7D226C85265DBCDFE5C5DA275E90B23B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ CrystalDiskMark - утилита для сравнительного анали�
 ```bash
 magnet:?xt=urn:btih:1514DECA85C7F60AF3D08E51B9FB948483BA4EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Advanced SystemCare - программный пакет, содержащий м
 ```bash
 magnet:?xt=urn:btih:5D3C2DCC84AD1466564E7180C886E3A7C3A2511D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ StickMount может использовать бинарники NTFS-3G и mou
 ```bash
 magnet:?xt=urn:btih:5AFBF43660CCAACF418322E310897B072D71DF5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30C9EEC63A52AEAB8C6ADDAFA0DD1414CC4F117C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B50DF5864B119D8BB64BEB266A340B9B3280964B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA6AC375DE8EA5D05B297F6E5806F02383DF00AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Star Ruler 2 [Patch] (2015) (1.0.1) Official SKIDROW
 ```bash
 magnet:?xt=urn:btih:3EE2A0E94401634ED66F3B064E056CF7F2A23EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Memory Free Pro представляет собой простой инстру�
 ```bash
 magnet:?xt=urn:btih:699E16C255B7446B20E4F4EB106D0F2FCB6884FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DA63ADE3F53F91D15FB28F9A9B762881EDB0155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ PathFinder – замена стандартному Finder’у, предлаг
 ```bash
 magnet:?xt=urn:btih:9A55F2D776AB0756CB03C92AFBD3C099A7760533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Survivalcraft - это игра на выживание и строительс�
 ```bash
 magnet:?xt=urn:btih:B65EB3CEB112677281CCBCE9959E35417621A7D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ The Prodigy - HMV Exclusive Remix (2015) EP [FLAC|Lossless]<Breakbeat, Breaks>
 ```bash
 magnet:?xt=urn:btih:15CCDEE065CEB7F1EEFFCC35878748537E59C59C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ A MusiCares' Tribute to Paul McCartney (2012) BDRip [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:8F82600757ECA702A51276BC179573BEC8E0EE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:764185505B5EA511724277B20356E2030FE0B50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ MailTags добавляет поддержку тегов, ключевых сл
 ```bash
 magnet:?xt=urn:btih:13D1F8FF66B26A206FE028B9F00173943B335D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Halestorm - Into the Wild Life (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Alt.
 ```bash
 magnet:?xt=urn:btih:369146469D8BD292076E49F91662B12C18C7DB1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ ProgDVB 7.08.8 Professional Edition [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:19F70B3AFA28C3CD81E31FF1D58F54E9A638A04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ Image Uploader - бесплатная программа для Windows c отк
 ```bash
 magnet:?xt=urn:btih:13802EEC5F29CDA1DF828390A90A027120BCDA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98209EA6E460C6571E45369960582257BA7510BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF7E2DF372BB8AF852A8072CD09C61E2A5132663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ Audio Switcher пригодится меломанам и другим цени�
 ```bash
 magnet:?xt=urn:btih:5BA754D4D3AF9CCF51F03A214ED1C8DFB9162899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ Clash of Clans - Эпическая андроид стратегия, в кот
 ```bash
 magnet:?xt=urn:btih:722CA40BEABED72DF55A140F908A34565EAF4676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:9F8CD6A44904AB6A14BB906FCA9255AAF2F5BE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9DEC0C0C537D7758D43FA13AAB185CE29829A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

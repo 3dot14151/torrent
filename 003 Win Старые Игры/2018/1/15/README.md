@@ -19,8 +19,7 @@ Space Empires IV / Space Empires 4 / Космическая Империя 4 (20
 ```bash
 magnet:?xt=urn:btih:5FB1447BD66F013D461C9291ADB897997D808650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Return to Mysterious Island / Возвращение на таинственны
 ```bash
 magnet:?xt=urn:btih:08EB7315AE220442079D19966BB5351A2C7E36A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

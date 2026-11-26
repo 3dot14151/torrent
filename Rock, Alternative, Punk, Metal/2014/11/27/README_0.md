@@ -23,8 +23,7 @@ Starless Night - Lost In Life's Endless Maze (2014) [MP3|320 кб/с]<Depressive
 ```bash
 magnet:?xt=urn:btih:49DBC0DD6F632544E8220263D5E7CC4146F8B2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Divine:Zero - The Cold Asylum (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0E956D9936A781D4C91B236A6C3A4EE0D3276E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0281F78CFC3C5B1CF4B5E484E8E605A8B5E12DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Omit - Medusa Truth, Part 1 (2014) [MP3|320 кб/с]<Atmospheric Doom Metal>
 ```bash
 magnet:?xt=urn:btih:4018DB4B27594B872FE871196F121734A7D2A680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Bandemonic - Fires of Redemption (2014) [MP3|320 кб/с]<Heavy Metal, Power Met
 ```bash
 magnet:?xt=urn:btih:341C44F7605ED916FFF48A53F345E624DEABC6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Whether, I - Catalyst (2014) [MP3|320 кб/с]<Post-Hardcore/Electronic>
 ```bash
 magnet:?xt=urn:btih:1A587E0C58F5DFD037EA82BF630A95B8823D756D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ VA - The Song Remains Remixed - A Tribute To Led Zeppelin (1999) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:252D561BEDB21172A34D77243A2E5D795FDB83AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50821EE6DAC53CB0BC1D8B6F6F153C1A4225E7B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +285,7 @@ Emera - Leap In The Dark (2014) [MP3|320 кб/с]<Symphonic Metal, Progressive M
 ```bash
 magnet:?xt=urn:btih:41636F331AB624380E05AD82FF5B9396711F46F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Coldplay - Ghost Stories Live (2014) [FLAC|Lossless] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:F3CF5E301F539D219ACD42B98EBCB259962EF2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

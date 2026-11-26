@@ -20,8 +20,7 @@ Allods Online Astral Demons / Аллоды Онлайн Astral Demons [Ru] (P) 2
 ```bash
 magnet:?xt=urn:btih:11901EA3DCE89B6DD8731862F45164536E10BA08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dustforce - стильный акробатический платформер �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Yetisports. Кругосветный пингвин. +бонус (L) [Ru/En] 200
 ```bash
 magnet:?xt=urn:btih:81F57A7ADB6D89BE419FB4FEB501C8FDA4472290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Amulet of Time: Shadow of La Rochelle / Путешествие во времен
 ```bash
 magnet:?xt=urn:btih:C66D19EDE81CBF18AED06710BB26A4E954925C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Easter Eggztravaganza (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:39DFA079126FCBFB5EF4A09D5283854EA054B650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

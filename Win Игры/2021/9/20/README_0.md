@@ -19,8 +19,7 @@ Zombotron (2019) [Ru/Multi] (1.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:808CF51E92A743D262EBEF8DBCE5EB787E4D87E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call of Cthulhu (2018) [Ru/Multi] (4.15.2) License GOG
 ```bash
 magnet:?xt=urn:btih:8423517A5DEDF9DEBDDA6A70846C863CC4330E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

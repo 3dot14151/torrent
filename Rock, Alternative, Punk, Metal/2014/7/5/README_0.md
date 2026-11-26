@@ -22,8 +22,7 @@ ASxAL - Demo (2014) [MP3|320 кб/с]<Powerviolence>
 ```bash
 magnet:?xt=urn:btih:C644EED5DA42F0278D95E022A5CFDD83F8C985CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Split (2014) [MP3|320 кб/с]<Screamo, Post Metal, Post Rock, Punk, Ambien
 ```bash
 magnet:?xt=urn:btih:A9F7084118F92B6EB6A6FAA1D2E3E0BCBA4DE4FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Vintersorg - Naturbal (2014) [FLAC|Lossless]<Progressive Metal/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:775F771B02090BF2F970E4476286E247E90DF530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Portrait - Crossroads (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4461624AAE501ADC427E02D28A3CD3B57EA4A4C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Sudden Flames - Under The Sign Of The Alliance (2014) [MP3|320 кб/с]<Power/He
 ```bash
 magnet:?xt=urn:btih:0F9565D1DDE231A6A47A62B0CB326065B16F84E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Falconer - Black Moon Rising (2014) [MP3|320 кб/с]<Folk / Power Metal>
 ```bash
 magnet:?xt=urn:btih:98BD7DA504A7B24B84E13A6820297B2A320BD65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Andwella - 4 Альбома (1969-1971) Reissue, Remastered, Papersleeve /2004-2
 ```bash
 magnet:?xt=urn:btih:525DEF28F1F456240CE3D7F1CFF7245151A613B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Tarja - Left In The Dark (2014) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:C92E5D3204E17659A83591BABB5051288187649B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

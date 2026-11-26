@@ -20,8 +20,7 @@ Microsoft Mathematics 4.0 + AddIN (x86/x64) + Manuals [Rus]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

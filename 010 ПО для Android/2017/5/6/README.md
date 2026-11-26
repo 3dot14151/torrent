@@ -19,8 +19,7 @@ Remotix — это быстрый, удобный и безопасный кли
 ```bash
 magnet:?xt=urn:btih:31776E171A7120B1F0B7E8765E79D71F63F4A2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ SURE Universal - это универсальное решение дистанц
 ```bash
 magnet:?xt=urn:btih:4EA249820B206AE9742A91D163C348BE6B3F9394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

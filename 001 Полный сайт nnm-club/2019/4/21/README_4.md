@@ -22,8 +22,7 @@ Ripping Corpse - Dreaming With The Dead (1991) [FLAC|Lossless|image + .cue] <Dea
 ```bash
 magnet:?xt=urn:btih:A1108EEBD947D5DD1DFECC508EBF6D1D9ED74B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ruby Braff & Dick Hyman - America, The Beautiful (2002) Arbors Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:8ED693E98DF730CE10120EFF4F8FDD5AC6B9E55C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87A3F81FF8B075082EBE13D99A7EAB1FCA7A2801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Digital Dream: Techno Set (2019) [MP3|320 Kbps] <Techno, Electronic>
 ```bash
 magnet:?xt=urn:btih:0FBCF7F0DAAE1C3350BD94943CA55AC63A361BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F2E72FB66A2D5FEC4C36A15318B533A09B9534C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Captain Torkive - Flying Saucers (1979) 7'' [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:55EA9946DE7662E6F6459F809F9B0A4F280E8ED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ VA - Spring Lounge Vol.1 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:2A740F29EC694C44FD30865152E635C30DAD0ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Roger Gerressen - Monoaware (2017) Sushitech Records [FLAC|Lossless|Vinyl-24Bit|
 ```bash
 magnet:?xt=urn:btih:37FB668F049F17CA0450E4B9AED04B234D11C689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - 100 % Pure Bounce (2019) [MP3|320 Kbps] <Hard House>
 ```bash
 magnet:?xt=urn:btih:CA560A0C56D3CB3B8CCB9C22150DDF4118D32BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ VA - April Bassline Mastermix (2019) [MP3|320 Kbps] <D&B, Dubstep, Bass>
 ```bash
 magnet:?xt=urn:btih:87E3B096D0F02450687D545B1F7AD972240FC5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - Spring Lounge 2019: Sounds Like Sunshine (2019) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4747D63F3EBB0804AAF56D887B63357F0EDADF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ VA - Special Electro House Mix For Ladies (2019) [MP3|320 Kbps] <Electro House, 
 ```bash
 magnet:?xt=urn:btih:1E8A3639FB458DFA14537CE77FFAA3955A96E620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Mr. Lif & Brass Menažeri (Mr. Lif & Brass Menazeri) - Resilient (2017) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:30CFE4D6398C6C5971CD48B1D04F01B1EC01454B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:332258423BE701D27DB6B1D73FB88F314FFD1BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Alex Hepburn - Things I've Seen (2019) Explicit [MP3|320 Kbps] <Pop-Rock, Soul>
 ```bash
 magnet:?xt=urn:btih:8E3B514CD69166C52034B5BF09C0CB50E5A6E019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:318017FA998ACFD480B4A220AA9561F5CFB0DB14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Exponential Audio - PhoenixVerb 6.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:9310CFBFC015BFED102E1BA5A450F3CB0C7C77FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Bu günlerde kipir kipir bir bahar kendini müjdeliyor! Yeniden uyanan toprak, t
 ```bash
 magnet:?xt=urn:btih:CDA08458A3DC25C882DE7CAEDA0BECBFC78CDFF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ R2 представляет пышный, красочный алгоритм р
 ```bash
 magnet:?xt=urn:btih:FE9F09800CFDAF73E32D1A6C1040D34EDEBCCEB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63C02669F3E48E68AF5DAB6D3CE6C86ABFAD1676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ Kool Keith - Total Orgasm 5 (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:B6F58CD4EF41EB1F39EAD27B8EF588E8E4AD5CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ Köfteler mutfağımızın en çok aranan ve tercih  edilen tariflerindendir. K�
 ```bash
 magnet:?xt=urn:btih:23F72D088440E1585A8B7DCB1E896B8D80F1E2AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:824C23EEE02E95F0E2572BD85C00C04C72BF62A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ VA - Total Stress Relief (2019) [MP3|320 Kbps] <Meditation, Relax>
 ```bash
 magnet:?xt=urn:btih:C2780B2532095CC526EDE66275224E80EE58EA6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ Thomas Fehlmann - Los Lagos (2018) Kompakt [FLAC|Lossless|tracks+.cue] <Techno, 
 ```bash
 magnet:?xt=urn:btih:AAD6855422BB6D66F5F592EBA7A5AB5C70A91EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:086D31F486C2A6B4A019C7379C42A5463D3044E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

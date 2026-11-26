@@ -27,8 +27,7 @@ Heavy Justice - Apocalyze (2013) [MP3|320 кб/с]<Heavy \ Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5C2FA3A400FD75F0A13D7EFCEE067F4CC6E094BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC40BAB0BE3320739136C63AB9FC1DED86EEE927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ VA - Recoverworld Best Of Trance (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:ED8482436FFDE918F1E2D45B5B0774A6425860B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Burden Of Grief - Haunting Requiems (2000) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:F92A2F125348645885FFE53D9CEFFB97725BDFC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Dave Edmunds - Riff Raff (1984) [MP3|320 кб/с]<Rock, Rock & Roll>
 ```bash
 magnet:?xt=urn:btih:021B881B988D90617B02F503E8874EA4BF331AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Michael Formanek - Small Places (2012) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:25AA3668F48FC00ED48F71746EA1B7022DE39A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Food - Mercurial Balm (2012) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:A4FBEFE3E20E208BEC1C618763C6CE89FE1C04A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E18CD3AB53DA3177811D9FA73C69F86FF9C9580C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C2364466A56BB3592470882605CABE6237D3481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ VA - Chris Teitjen - Acht (2013) [FLAC|Lossless|WEB-DL]<Techno, Tech House>
 ```bash
 magnet:?xt=urn:btih:A795D9199884E9DCAFF1D38938652DA9EE4A8664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4DC401700342F7E86FEF23C7B08227E1F84266B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:490719249B1D8A05380CF545DE9A41F4728BC395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ Tesagure! Bukatsumono / Поиск! Клубная деятельность [201
 ```bash
 magnet:?xt=urn:btih:981E194BA9434D591DCFCD130287F45FD61E743C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ Amok (amo.k) - Necrospiritual Deathcore (2006) [MP3|256 кб/с]<Black/Death/Thr
 ```bash
 magnet:?xt=urn:btih:C1C949DEF9F771A5FFE67471625E73458C27F55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ Persuader - The Fiction Maze (2014) Japanese Edition [MP3|320 кб/с]<Power Met
 ```bash
 magnet:?xt=urn:btih:792D671F4F5C6C49544B9B5D849BDFD339466342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +516,7 @@ Aleks - Reach (2013) [FLAC|Lossless|WEB-DL]<Ambient, Deep House>
 ```bash
 magnet:?xt=urn:btih:A0FDAE094FD6819C244B336EEBBA5E84752EACC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EAFF890E9941D253713D76E50CC58636890E848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D8D8B7E8DFAF62FB4B2113DB2437741D1AD529F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ Chris Botti - First Wish (1995) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:BF8DA568B0940B4D98DD766F5E8C48670CBB0365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D823FA7DE3E445CE1ECAB14ABFF1A223B34EFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01BA3BAE2A4EA1D276A887D4D43FF96C41CDD0D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7C3CCB95B4A5AA52AE0B536324088348827C5E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +722,7 @@ Deep'a & Biri - Emotions, Visions, Changes (2013) [FLAC|Lossless|WEB-DL]<Detroit
 ```bash
 magnet:?xt=urn:btih:AD774F059C78E0F7F17551DCE5C74B32BCBD1C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +747,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58BCAFE0F329EC151CA59278E242F553F6FB2A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -806,8 +781,7 @@ Nicholas Greenwood - Cold Cuts (1972) Released 2007 [FLAC|Lossless]<Progressive 
 ```bash
 magnet:?xt=urn:btih:707C55E45C0C4FA02939ED68DE321C07BB6E344D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

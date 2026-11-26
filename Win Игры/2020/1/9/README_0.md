@@ -19,8 +19,7 @@ Christmas Stories 7: Alice's Adventures / Рождественские исто�
 ```bash
 magnet:?xt=urn:btih:50CE3A68FD3C42C961CA2459E94A65AE028C16EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D289731BF0FD2A2E578B2AEEA7E569D16F8656C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Interstellar Space: Genesis использует классические мех
 ```bash
 magnet:?xt=urn:btih:4E4B2BB486A97A71C362BEFA364B5B25ED968F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Luxar (2020) [Ru/Multi] (1.0) Repack Mr_Weegley
 ```bash
 magnet:?xt=urn:btih:19497701B9339B4E0B28A57AD69FF3D932E7D6AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

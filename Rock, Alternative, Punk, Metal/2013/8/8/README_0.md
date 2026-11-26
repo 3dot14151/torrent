@@ -24,8 +24,7 @@ Frostreich - Geistfahrt (2013) [MP3|320 кб/с]<Atmospheric Black Metal, Post-B
 ```bash
 magnet:?xt=urn:btih:4FE3046CF01BC69C451019CA05CF24400D49A852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Norma Jean - Wrongdoers (2013) [MP3|320 кб/с]<Chaotic Metalcore / Hardcore>
 ```bash
 magnet:?xt=urn:btih:ADEA2CAE685D716C32154C5F82E1B6C4A40050C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Counterparts  - 3 Альбома (2010-2013) [FLAC|Lossless]<Melodic Hardcore | 
 ```bash
 magnet:?xt=urn:btih:4775D2FCCCF7D9983A23F753B8B0C753B5B9C661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:278CD7A905E45A15037C00374EA389F82E2E43D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ The Flying Burrito Brothers - 2 albums (1968-1970) [MP3|192 кб/с]<Country roc
 ```bash
 magnet:?xt=urn:btih:6C80D9E0A570BD1597A8D11882829800F7D1CBF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Twins Crew - 2 albums + 2 EP (2008-2013)[MP3|202 -320 кб/с]<Heavy Metal, Powe
 ```bash
 magnet:?xt=urn:btih:D679FD5C87C7F7DD91D46DBB3DF93A91E272FC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Norma Jean - 6 Альбомов (2002-2013) [FLAC|Lossless]<Chaotic Metalcore | 
 ```bash
 magnet:?xt=urn:btih:84AB4B7043BCC67B4C3D34C0C5FE53A58B82FC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Sound Of Contact - Dimensionaut (2013) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:55563B3A8CB660FF4F4238ABC43557010D7912A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:252623F06251ECEAAD447FF3F23B3C2FAAF1A9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Arthur Brown / lead vocals(   Читать дальше...   )Жанр: Psychede
 ```bash
 magnet:?xt=urn:btih:8B1FB3AEDA3F29A996875D82F939114895CEB73C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +363,7 @@ Wolfkrieg - Born In The Dark Ages (2013) [MP3|320 кб/с]<Epic Metal, Black Met
 ```bash
 magnet:?xt=urn:btih:38D10731925435DB70F7EBAA77D570EEEF9AEC90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4858AF1F78B9EC9036DB1A3C7DC962C98578EB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +424,7 @@ Budgie - 15 Albums (1971 - 2006) [WavPack, FLAC|Lossless]<Hard Rock, Classic Roc
 ```bash
 magnet:?xt=urn:btih:F26F27CCF497EF236E28157DD53B1920C42573A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +458,7 @@ Blur - 7 альбомов (1991-2003) [APE|Lossless]<Alternative Rock, Britpop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

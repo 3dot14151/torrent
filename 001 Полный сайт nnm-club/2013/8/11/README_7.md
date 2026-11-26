@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1F5151397E8DA87DEB741A43C219D93B1D2CDF8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Topaz Labs Photoshop Plugins Bundle 2013 (08.08.2013) [En]
 ```bash
 magnet:?xt=urn:btih:9EDA5888FC1645BD295F4C54CAED3AEBB3F6DE03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ OsmAnd - это навигационное приложение, которое 
 ```bash
 magnet:?xt=urn:btih:A37A9E48801D57966D11A4B2A1422B596D0C3332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1C61288BA25651749B43CE1AB3323670E91A638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D7A561603B9F89C37F2970C66354B877721BDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Imagenomic Portraiture превосходно устраняет дефекты 
 ```bash
 magnet:?xt=urn:btih:67665B2FA21E4C032640BBFB5AE30C8075DC49FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Elementary OS (англ. elementary — простой) — дистрибути
 ```bash
 magnet:?xt=urn:btih:E5BC046444B9F9D4883AA5B0FA15533DA37A8ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ AntiWinBlock - программный комплекс, предназначен
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Modern combat 4: Zero Hour v1.1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:F1BF5B9B5B07A4DD4E9392A9B48D7E9417B38CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Devil Survivor 2 The Animation [2013, TV, 13] HDTV 720p 10bit raw
 ```bash
 magnet:?xt=urn:btih:8FC5280ABE0EB94D885D09B9F6EEF27898A127AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Dragon Commander - это не просто стратегическая игр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ Divinity: Dragon Commander (2013) [En/Ru] (1.0.20.0) Repack R.G. Games [Imperial
 ```bash
 magnet:?xt=urn:btih:1E6005B0BDC4FF0958946AFA72BC68B529E05739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Mount and Blade Warband Napoleonic Wars/ Mount & Blade Эпоха турниро
 ```bash
 magnet:?xt=urn:btih:F19EA410DB3845471BB6E4420BBF5DDBB5D9F6AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Pirates Odyssey: To Each His Own / Корсары: Каждому своё (2012
 ```bash
 magnet:?xt=urn:btih:A2EE28878B1AD2E198984F49140737AF82B102E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Yuri's Revenge
 ```bash
 magnet:?xt=urn:btih:95159A14DDB6A86F4A558D9151C80B6EB9CB5A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ MultiBoot USB Flash 2.0 by OVGorskiy® 08.2013 [Русский]
 ```bash
 magnet:?xt=urn:btih:42F8C58839F1523153E3068C44245F01EEAF3091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

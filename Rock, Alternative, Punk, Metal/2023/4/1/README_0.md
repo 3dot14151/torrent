@@ -21,8 +21,7 @@ WLVS - Камео (2023) [FLAC|Lossless|WEB-DL|tracks] <emocore, hardcore punk>
 ```bash
 magnet:?xt=urn:btih:998121AA7780462F72B709C088B1747D5B76EEBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Heezer - Sungrinder (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Gr
 ```bash
 magnet:?xt=urn:btih:1F14F80CF04DED79837981598291C3845C7000E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Crimson Day - Crimson Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6943F5248C2C7AD08309399B362B12D750B8A2A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

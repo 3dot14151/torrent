@@ -19,8 +19,7 @@ Rite of Passage 5: Heart of the Storm / Обряд Посвящения 5: Се�
 ```bash
 magnet:?xt=urn:btih:BBF44CF7500791B7DC95BD975B20E72A62B5A793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Randall (2017) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:938A8ACA97AFDEB7FE324EB0DCCCA49B4305FB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Room Two - продолжение замечательной игры The Ro
 ```bash
 magnet:?xt=urn:btih:2A11BC4DD1554B4BCCBAC8E596977FE1A3EE316E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2/dlc) Repack R.G. Catalys
 ```bash
 magnet:?xt=urn:btih:78E9BED2B1899F21FD394800A8BE94D6FF694123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Victor Vran - это изометрический ролевой экшен с �
 ```bash
 magnet:?xt=urn:btih:B06B32075336A6CE4964C0289EBA3A5860556DBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Saints Row: The Third (2011) [Ru/Multi] (1.0.0.1/dlc) Repack R.G. Catalyst [The 
 ```bash
 magnet:?xt=urn:btih:D702064263CF192E01ABDB3CD35F6DB278705996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

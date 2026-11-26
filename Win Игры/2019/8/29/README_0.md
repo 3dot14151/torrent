@@ -19,8 +19,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.3.85/dlc) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:E85F5B0F55A5DD181E15FFB70F862B0FA9D428B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cliff Empire - небольшая экономическая стратегия.
 ```bash
 magnet:?xt=urn:btih:DD5A06F6F4F4ADE6FD19ECBFEAACA9488D8A5AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

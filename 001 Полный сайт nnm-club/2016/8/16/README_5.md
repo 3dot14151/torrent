@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:D83E12F092FACBFE66990A46D43CB61C35F8EFE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Rolling Stones - Totally Stripped (1995) Blu-ray [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:5FFA9CDE736B8911758507EB933B260893ACF993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:7AE3733962FCF5DED16005AB540B1E56FB79623A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4106C9A01ECDE5FFE881616FE5ED6340578AA84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ WinAIO Maker Professional 1.3 Portable [En]
 ```bash
 magnet:?xt=urn:btih:85897AC2D55DA54C05B3C3D3FB0B0123E6005766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9449A1D45F937A3BA1266CAA41946FE1651A010E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Two Worlds (2007) [Ru/En] (1.07/dlc) License GOG [Epic Edition]
 ```bash
 magnet:?xt=urn:btih:6FE204F82B798D309F6F7C5A7F1A05D8F83925BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:5C4144F64C757BFAD18C14542F6D4C96DCBEE001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57AB1EB9E9B6E7B056CCA2E69DA92B22A929FA20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Windows 7 SP1 x86 x64 AIO StartSoft 17-2016 [Ru]
 ```bash
 magnet:?xt=urn:btih:10BA57CF3E79D945761C7DC3644FDEFC57644653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A98431A5BD66D9FAD68F4C041E6A5437D9C9E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Marvel Ultimate Alliance 2 - это сиквел Marvel Ultimate Alliance. В н
 ```bash
 magnet:?xt=urn:btih:6E83DA498271B0FE1F036698C33A0D8FD3D202A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ VA - Клубная Молодёжная Вечеринка (2016) [MP3|269-320 
 ```bash
 magnet:?xt=urn:btih:D902E8526411C2359AEA245832CD8171E73E8386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68A75E50D6E7F9C74383A0850294039E60C0B17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Neverwinter Nights 2 (2006) [Ru/En] (1.023.1765/dlc) License GOG [Complete Editi
 ```bash
 magnet:?xt=urn:btih:A715923809A905F26EF24F392671B54487A23484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Microsoft® Windows® 10 Ent 1607 x86-x64 RU-en-de-uk by OVGorskiy® 08.2016 2DV
 ```bash
 magnet:?xt=urn:btih:A18F5465E36414977FC3337EB3BE7168F1957CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ CorelDRAW Graphics Suite X8 18.1.0.661 RePack by alexagf [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8473497DC0845357DC982655C4C201793334C797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

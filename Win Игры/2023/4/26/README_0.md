@@ -19,8 +19,7 @@ Vampire's Fall: Origins - пошаговая изометрическая РПГ
 ```bash
 magnet:?xt=urn:btih:B8E8313233D962176FCC6A4C1E90DCC4E9D8D77A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rendezvous - это уникальная адвенчура, действие к
 ```bash
 magnet:?xt=urn:btih:C393684315B19C7FD66FAD39EA9944A7042886DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

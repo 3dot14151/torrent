@@ -19,8 +19,7 @@ Galactic Civilizations II (2011) [En] (2.1.0.3/dlc) License GOG [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:1C8FF0430EFE193CA3EB10D64942AB573548029E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Die Young: Prologue (2019) [Ru/Multi] (1.1.0.58.20) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D9F37814DCA6C24B23ED3EC0BF3E7C77B85C7282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

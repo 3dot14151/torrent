@@ -19,8 +19,7 @@ Torchlight (2009) [Ru/En] (1.15(a)) License GOG
 ```bash
 magnet:?xt=urn:btih:6911179B6AEA97E049DB289406DC4B5EF61C4D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mines of Mars (2018) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D12D8B582704DB4CD78E2F453B41AFB6A553FD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.9/upd6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E42D07EFB9C7046C9339036EB3E739F88DAC4140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Unravel Two (2018) [En] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D479C4E198B841F15272B7F6678CB0155217CBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

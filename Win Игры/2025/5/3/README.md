@@ -19,8 +19,7 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.1.2)
 ```bash
 magnet:?xt=urn:btih:CF7FA8DA8A89D089BEA1021E4AF45F2F776E12E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Moroi предлагает геймплей, включающий сражени
 ```bash
 magnet:?xt=urn:btih:2406060E712E0E90CACEB3706DFE871599EB254B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.4_30: 1:50) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F4C99753B7F2D9AD650907AD3BA8194F7A33C35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3p1_85049/dlc) Repack Let'sРlay [Collect
 ```bash
 magnet:?xt=urn:btih:B7CEE7E9230413D698A0BBE501B1B48A9E2ADD77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (0.20074/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:CE6B8B84FA9505ED65A35421B679BE0A45B85AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ theHunter Call of the Wild (2017) [Ru/Multi] (2989309/dlc) Repack Let'sРlay [Ul
 ```bash
 magnet:?xt=urn:btih:BF87B692CE3E4C5ECEA574F115E824E0346E3D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack FitGirl [Backstage Ed
 ```bash
 magnet:?xt=urn:btih:E110D6B5D38C7DB44312DB18CD57B4CB4A11C344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Haunted House Renovator (2025) [Ru/Multi] (1.3.190) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7499BF54783C66B15B9A3B36686D8460EE03ACD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Skin Deep - затягивающий шутер от первого лица. В
 ```bash
 magnet:?xt=urn:btih:CC2364AAE906042E8C40F61A73B317C203687070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Pax Augusta (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:410DF57F874D648C6E2F5D94B5E2A796F202891D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Badlands Crew передает геймеру контроль над боево
 ```bash
 magnet:?xt=urn:btih:3E0B38525B1EFECF4B6C827CB5BBC3DC4800591D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:28934680333E5E31F922391C889717738174587C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.3.16/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:32A200F6F5CFC74EE78CFE8956525FDC76CB4E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Old Skies (2025) [En] (1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:79A568201EC3D8331B2F6B0ADEF7C75310E3C907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack Other s [Soundt
 ```bash
 magnet:?xt=urn:btih:055C6C96A51B5712D2B5487E044C7AAD931B3ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Wartales - ролевое приключение в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:89971A17F701C5910B8A497883BFE7E03D9B3C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Skogdal (2025) [Ru/Multi] (0.9.12) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6EF3255CCDA6A4D96FE1B78F1B7A2B204C160C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:70B3844B27CC68D110250ABFCA34B65AC2FF12B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Pocket and Zooom - это игра-головоломка, где главной
 ```bash
 magnet:?xt=urn:btih:DAB5045DC33F71E5684B2616DAB1627C68E80CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Astral Ascent переносит геймеров в современный фе
 ```bash
 magnet:?xt=urn:btih:E91999182001431ACBEE0D5DE3E1884833F888D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Breath of Fire IV (2000) [Multi] (1.0 HotFix) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B4157152D35BA49B0C4A92E54EABDA509C4FDC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ Ship of Fools - это кооперативное морское приключ�
 ```bash
 magnet:?xt=urn:btih:9D70D9210BA22944363429DD03A0B8B747249C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +569,7 @@ Super Raft Boat Together погружает игроков в подводное
 ```bash
 magnet:?xt=urn:btih:455A6C944B0F31720E48533E198C52E8404FDF6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +594,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (build 18316498/dlc) Repack sel
 ```bash
 magnet:?xt=urn:btih:C9353F3FB3159C3340D4474E04C84520BF97EF88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +619,7 @@ A Haunting Novel 2: Surfaced Secrets (2025) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:99BF12ED98A32416943C7FDC1EC0499B8F4FE7D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +644,7 @@ My Party Needs An Alchemist (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:893581FD1E9D0CFF611117F6A26567C6425E9C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

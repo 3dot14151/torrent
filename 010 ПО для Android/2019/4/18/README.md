@@ -19,8 +19,7 @@ TВ - Онлайн v2.3 Mod [Ru]
 ```bash
 magnet:?xt=urn:btih:889C5BED43CEF466F3225ECC1581EA5D193D433C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

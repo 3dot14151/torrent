@@ -19,8 +19,7 @@ Aqua Map Marine - Boating GPS v20.4 [En]
 ```bash
 magnet:?xt=urn:btih:C930237CBB44502EF82C7D29E8CAD4B720FBD81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4718A165CF200EC10EE0BF60BE9D666C4C2C792D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

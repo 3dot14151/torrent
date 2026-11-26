@@ -19,8 +19,7 @@ Under the Disco Lights - 80s Bar Simulator - симулятор управлен
 ```bash
 magnet:?xt=urn:btih:93F9F98944A117A919696624D72629378F2D4001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Werewolf: The Inner Beast - это 3D-хоррор от третьего лиц�
 ```bash
 magnet:?xt=urn:btih:CF7C86CAC80902FBC43B2BCE7BD39F48BF6F69DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WILL: Follow The Light - приключенческая головоломка �
 ```bash
 magnet:?xt=urn:btih:54B9158B6189C152577CE7CF15325E0AD963BBF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DarkSwitch - это вертикальный градостроительный 
 ```bash
 magnet:?xt=urn:btih:655ABE984BCBD8D31AEA1270A03D11F3937A37B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mixtape - это музыкальная приключенческая игра 
 ```bash
 magnet:?xt=urn:btih:CF0618C782A63E7A560A469A8752800310F1AF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mixtape - это музыкальная приключенческая игра 
 ```bash
 magnet:?xt=urn:btih:519FD85998664EBD1388DC80D487298D2BC98778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Coma 3: Bloodlines (2026) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E3CDD02896849A17B03ADEBAA7F2B14C82157C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Under the Disco Lights - 80s Bar Simulator - симулятор управлен
 ```bash
 magnet:?xt=urn:btih:48623CC20013DDF81D0A41A14C8DD2BD3F5C5153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Eden Crafters (2024) [Ru/Multi] (1.0i) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2614F333FC05F1C3B65FA78F3DA8ABAFD85DA42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack Wanterlude [Gold Edition
 ```bash
 magnet:?xt=urn:btih:9101FC9386DBE5D761BD190A931487B3699536B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Watch Dogs Legion - продолжение экшен-адвенчуры, кот
 ```bash
 magnet:?xt=urn:btih:E209302D91226644D899110561E347FD9B6B218D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Dishonored - это насыщенный экшен от первого лица
 ```bash
 magnet:?xt=urn:btih:E2D9785B3F9009FE643734E6760E0E142B89B92A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Magin: The Rat Project Stories - приключенческая игра, сод
 ```bash
 magnet:?xt=urn:btih:FE8E037A1F7600D6D62A788098C5528D5186B177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:012C668045447DC27ECBABA6341A80CF4E74596A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Citadel Remonstered (2026) [Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:F1CA4E1C627AD4B8F0431ED1D563512BFFF12C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ HELLBREAK это динамичный roguelite FPS в стиле survivor-like,
 ```bash
 magnet:?xt=urn:btih:0E417FAF30832E5F591079D3C09F8280485AF19A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Rise of Piracy, сочетающая элементы стратегии в ре
 ```bash
 magnet:?xt=urn:btih:EA9CE1BC3F3B716E8AC9480738DE719A3048FF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ GYLT (2023) [Ru/Multi] (2026) License GOG
 ```bash
 magnet:?xt=urn:btih:07E7FE1FF798CB05871B9EDB66E95DC054EB1802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Stolen Realm Survivors - командный онлайн автошутер на
 ```bash
 magnet:?xt=urn:btih:D54858491E90300653F8BBF7812D2A115D8F7E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

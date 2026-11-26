@@ -18,8 +18,7 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) License GOG
 ```bash
 magnet:?xt=urn:btih:BC636FE42F8D72F8E2C2E882D61298B7EF1D003C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Dead Reset (2025) [Ru/Multi] (build 19945272) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F01BCCC9F514AD7DF77885534305A93D909B2796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Just Cause 3 (2015) [Ru/Multi] (1.05 Denuvoless/dlc) Repack FitGirl [XXL Edition
 ```bash
 magnet:?xt=urn:btih:A834488C14D8CF1D1D32B5F6CEFAB016215B5453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Just Cause 3 (2015) [Ru/Multi] (Build 20206564/dlc) Repack dixen18 [XXL Edition]
 ```bash
 magnet:?xt=urn:btih:23075EE294A893D35DF737B1F008DAA8B42876FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Agents of Shadow - это гибридный проект в жанре хорр
 ```bash
 magnet:?xt=urn:btih:B4EB44DDAE55F5A2D3984A3B2A6D6DED93BF50B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Oddsparks: An Automation Adventure – это стратегия в режиме
 ```bash
 magnet:?xt=urn:btih:2A769FAC18A5EFC34ED157E94847C2E1B4C2DE56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ HELL OF FEAR Mind Breach (2025) [Ru/Multi] (165.5.1.f) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8CC1CFDEF381FD51FA046417A8BADD2AC050F699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

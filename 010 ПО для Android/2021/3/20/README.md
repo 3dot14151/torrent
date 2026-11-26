@@ -19,8 +19,7 @@ Map Marker v2.19.1 [Ru/Multi] - создание собственных мето
 ```bash
 magnet:?xt=urn:btih:0E4B28DFD446DACA9319E1B822D0CF8A27F3873C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Instander – неофициальная модификация приложен
 ```bash
 magnet:?xt=urn:btih:45472A93C8C40A53EDC3D7DB210BCA15946383B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

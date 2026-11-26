@@ -22,8 +22,7 @@ Corrosion Of Conformity - Good God / Baad Man (2026) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:D0F94E4114D29A4F0C35103D34981FEB303E19D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Label Society - Engines of Demolition (2026) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:536C8D1E61E5A8C0125ABCA2429750510BB7ACD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Robert Plant - Dreamland (2002) [FLAC|Lossless|tracks + .cue] <Hard Rock, Pop Ro
 ```bash
 magnet:?xt=urn:btih:DF4DF163FB6D6FADF070ED3B94D495791851FB52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Chateau Disaster - Access (1996) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B1F8FAD8A70CE9A6B8D7353F466B3EB4DD3DA80C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nervosa - Slave Machine (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Meta
 ```bash
 magnet:?xt=urn:btih:2E57AEE82AF71ADC9797E30574ACE71319F3A651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

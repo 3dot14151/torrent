@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B5D03CA97C812F998E393C7B837CC40141E6CFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BFC10E0369937DC474857A2E165677561F0AF2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.08) License GOG
 ```bash
 magnet:?xt=urn:btih:8CB7156B8DF7ACB8F3C26681A709D18446CB7A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69E1DC9F033253A364D3ADCAACCC5B58064A7B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F259C569F77C53CED040F0E8CB498AA6421C0BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Mafia III / Мафия 3 (2016) [Ru/En] (1.090.0.1/dlc) Repack xatab [Digital De
 ```bash
 magnet:?xt=urn:btih:7BDB69FA2773C5E47EF88EFB6C7DCF76D46CBC44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

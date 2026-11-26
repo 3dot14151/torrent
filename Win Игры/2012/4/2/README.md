@@ -21,8 +21,7 @@ Supreme Commander 2 + DLC [Ru] (RePack/1.25) 2010 | RG Packers
 ```bash
 magnet:?xt=urn:btih:E2F97C3052417BB5C15C7AD49363C0FDB05C6CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
 ```bash
 magnet:?xt=urn:btih:53D9BCACD4FB338EC4CCD6D55ED4916B0EF18A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Fear for Sale: Mystery of the estate of Lord McEnroe Collector’s Edition / С�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Fear for Sale: The Mystery of McInroy Manor Collector's Edition / Страх н�
 ```bash
 magnet:?xt=urn:btih:7964004EB39068A0D22142935F67A58468F6394F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

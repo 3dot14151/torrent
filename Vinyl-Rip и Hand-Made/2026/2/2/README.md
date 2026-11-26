@@ -22,8 +22,7 @@ Queens of the Stone Age - рок-группа, образованная в 1997 
 ```bash
 magnet:?xt=urn:btih:7F9808055C37CCF3A1964065AC27EBEA7B489D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B3 High Class Baby(   Читать дальше...   )Жанр: Pop RockПрод
 ```bash
 magnet:?xt=urn:btih:5586CFE591AE092C5124B271D1D8043899C3B871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

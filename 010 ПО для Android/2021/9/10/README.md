@@ -19,8 +19,7 @@ Adblocker Browser v80.0.2016123424 [Ru/Multi] - Adblock & блокировка �
 ```bash
 magnet:?xt=urn:btih:43BC777820FCAE3E178A77A907665F881D7563CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Lingualeo — это удобный и эффективный сервис дл�
 ```bash
 magnet:?xt=urn:btih:83CBCB73C8FDE271E89EC7CDC0BB94D05642F190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

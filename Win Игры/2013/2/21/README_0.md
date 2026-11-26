@@ -20,8 +20,7 @@ Orcs Must Die: Game of The Year Edition [Ru/En/Multi9] (L) 2011 | PROPHET
 ```bash
 magnet:?xt=urn:btih:2D57969E4FD98D111F8BC48B8F4390982B96A281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Tiny Bang Story — это история одной Крошечной Пл
 ```bash
 magnet:?xt=urn:btih:751AC55841F8FD63369F767385E23AA92F65C1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Highborn [En] (Repack) 2013 | FANISO
 ```bash
 magnet:?xt=urn:btih:00EE1CEE02751C73656497BC541E41C1A4D7624E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

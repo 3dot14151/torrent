@@ -19,8 +19,7 @@ Ancestors Legacy - стратегия в реальном времени, пог
 ```bash
 magnet:?xt=urn:btih:B2CCB11A9E45D7F4CE05CF28C3124D05A1FE8B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Exo Rally Championship - гоночный симулятор в жанре на�
 ```bash
 magnet:?xt=urn:btih:E4862E67B0DF70CD4A388DAC10792C4A9405B7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LoveR Kiss: Endless Memories - романтический симулятор с 
 ```bash
 magnet:?xt=urn:btih:16F875040E881E6FB34A3E30229DD6FBAF27E825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hearts of Iron III (3) (2009) [En] (1.4-3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:33A83CE4528A54B17F19FCAECCFC42AFE3B605CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Along the Edge - визуальная новелла с элементами и�
 ```bash
 magnet:?xt=urn:btih:76677B368551D1101E2505C3E46AD59C226952E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

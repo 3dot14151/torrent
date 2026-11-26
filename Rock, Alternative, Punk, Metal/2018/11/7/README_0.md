@@ -22,8 +22,7 @@ Svartby - Elemental Tales (2012) [FLAC|Lossless|image + .cue] <Folk Black Metal>
 ```bash
 magnet:?xt=urn:btih:1163D301ABA589BFD522246F597AE0103E64D69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Plenty - It Could Be Home (2018) [FLAC|Lossless|tracks + .cue] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:E8C635154EC63805ECC6776244F4F4E85DD08505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hootie & the Blowfish - Cracked Rear View (1994) Europe Reissue [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:56D6AFC34BB058E4ED7DEB1170B054A3A427DEF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bad Company - Dangerous Age (1988) [FLAC|Lossless|tracks + .cue] <Classic Rock, 
 ```bash
 magnet:?xt=urn:btih:3963071DD1A68C81CEF6E1DEC3E657F56B704940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Daniel Lanois - For the Beauty of Wynona (1993) American Edition [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:82B93EDFF0994112F375E88A4C3F6425A749FFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Parasite Inc. - Dead and Alive (2018) [FLAC|Lossless|image + .cue] <Melodic Deat
 ```bash
 magnet:?xt=urn:btih:05980A47C6C3BA794EB8D385AC5AE045F26C2301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Muse - Simulation Theory (2018) Deluxe Edition [MP3|320 Kbps] <Alt.Rock, Progres
 ```bash
 magnet:?xt=urn:btih:11C458D7ECA1D19539E782947E40075CF2071B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Muse - Simulation Theory (2018) Deluxe [FLAC|Lossless|tracks + .cue] <Alternativ
 ```bash
 magnet:?xt=urn:btih:F5BC873F95330590A01FAB4CDAD081F11658F73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

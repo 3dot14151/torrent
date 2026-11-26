@@ -19,8 +19,7 @@ The Unseen Fears 7: Inner Darkness (2025) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:D753A9C4CAF048780DB5511A99AF7077D12A01C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Miami Hotel Simulator (2025) [Ru/Multi] (0.13.345.pa) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2291DDBC1A0525AB417C02E13C1C4BD6A7027829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MythForce (2023) [Ru/Multi] (1.2.4.2) Repack Let'sРlay [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:659F2F4FDEEE1F04F50C5DBDB40867B6489D1BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Day of the Shell – это динамичная тактическая игра
 ```bash
 magnet:?xt=urn:btih:7AC61B0C5F16975728E66B4397EE568FE5C99D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Unravel Two – приключенческая адвенчура в стиле 
 ```bash
 magnet:?xt=urn:btih:09C254178D918227EF14E2ACB5A2F7B415203A5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 ```bash
 magnet:?xt=urn:btih:89CB1BD6FFA26A215DC3C87EA753861DA871BF49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 ```bash
 magnet:?xt=urn:btih:3BA024FFE9E885AB1265620F4C6A0D3C67F9B129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Relaxing Time: Paradise Resort / Время отдыха: Райский кур�
 ```bash
 magnet:?xt=urn:btih:16442D7A9720A5F3B4A37A32BCD5DEBFAB4481A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Relaxing Time 2: Italy Tour / Время отдыха 2: Итальянское 
 ```bash
 magnet:?xt=urn:btih:27237B1DCDBBFEEE93D4EF51DB1AA2A85E670A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

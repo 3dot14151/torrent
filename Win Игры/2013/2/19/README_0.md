@@ -22,8 +22,7 @@ Cities XL Platinum позволяет проектировать, строить
 ```bash
 magnet:?xt=urn:btih:9F315B9DFFDBA8028E38B84453C7C7DB2C5499AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mario Forever — фанатская видеоигра по мотивам по
 ```bash
 magnet:?xt=urn:btih:3FC348BC94D1B83D8EF81612D0D67BFDEF36B8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

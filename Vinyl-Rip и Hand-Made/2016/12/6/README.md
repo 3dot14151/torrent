@@ -22,8 +22,7 @@ A4. The Great 1974 Mining Disaster (4:38)(   Читать дальше...   )П�
 ```bash
 magnet:?xt=urn:btih:3F0AA08A7A344B5A54BBF4625937C76445773682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

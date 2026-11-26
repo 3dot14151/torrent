@@ -20,8 +20,7 @@ Subterranean Masquerade - Temporary Psychotic State (2004) Single [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:CBEB368500D7FD78135218D3D584DB7F02CCCC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Subterranean Masquerade - Home (2014) Single [FLAC|Lossless|WEB-DL|tracks] <Avan
 ```bash
 magnet:?xt=urn:btih:FABC5E1E60FD614C9EC48CFC1C480D78CA27C257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Seas of Years - Drifting Ever Shifting (2014) [FLAC|Lossless|WEB-DL|tracks] <Pos
 ```bash
 magnet:?xt=urn:btih:B1505DC890DBED3AC72BAA70556F07F07946D582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Seas of Years - The Ever Shifting Fields (2016) [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:2AFA596A6668838091BC1F102D573704BD56D07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

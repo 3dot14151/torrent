@@ -19,8 +19,7 @@ Alex Hunter: Lord of the Mind Platinum Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:B4CD100E85F602A930E9BA4EE1F86368F215A7A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88473A775759CBD75F0F37481BB1954D3CFB9B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Jurassic Park: The Game – эпизодическая игра, созданн�
 ```bash
 magnet:?xt=urn:btih:3824E30256EA68682AE114592A51B7FDF470368B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

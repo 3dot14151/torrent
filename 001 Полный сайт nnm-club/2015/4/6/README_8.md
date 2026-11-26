@@ -20,8 +20,7 @@ Running with Rifles - Тактический шутер с видом сверх
 ```bash
 magnet:?xt=urn:btih:A7F5AD1EC9A29929524BC4D1568FBE56AF750F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Trinity Seven / Святая семёрка [2015, OVA, 1] BDrip 720p rus
 ```bash
 magnet:?xt=urn:btih:7FFADB2E720EA2E12D62505DAB98B0340F5A6B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B2F631ECDFCEE8AFBDEEFBE35B0C28F9A939E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07D00D93C9918AF7157F8E7A9622DEE05D187EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6827DB7B1BE593570EBA1BCD7665D72E4E23267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Log Horizon 2 / Лог горизонта [ТВ-2] [2014, TV, 25] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:DA9A03FA26B4E97384D06765D391CA56B4215113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Red Faction Guerrilla (2009) [Ru/En] (1.0.2.1/dlc) SteamRip Let'sPlay [Steam Edi
 ```bash
 magnet:?xt=urn:btih:9F94F67B72B98D3881762AE066A805FBD1305661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C822614710E1E87435898AC6DD5E2661913B9A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:935DA523D79CE4AD48F2CA41728E78211726F693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Sid Meier's Civilization V / Sid Meier's Civilization V (2013) [Ru/En] (1.0.3.14
 ```bash
 magnet:?xt=urn:btih:697AA6C87217E4AB494FBAE4DE4BB5F99647B83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:084ADE9EE2A1394F0032BE693F5ED6D62887AAE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Need for Speed: Carbon (2006) [Ru/En] (1.4) Repack R.G. Механики [Collec
 ```bash
 magnet:?xt=urn:btih:C0B13F37D3822593EAA09211E080A2E115C40DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A6954B47F56239B3E574B045189E614F80C004A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D11AAD6B68DC0AD053A698B355AA300E170ED4DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ The Sims 4 (2014) [Ru/En] (1.5.139.1020/15dlc) Repack R.G. Механики [Del
 ```bash
 magnet:?xt=urn:btih:07E3758B4C70D2B1ABA27D5E716CC4911C6F09FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

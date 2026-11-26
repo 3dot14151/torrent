@@ -19,8 +19,7 @@ Avatar: The Last Airbender / Аватар: Легенда об Аанге [En] (
 ```bash
 magnet:?xt=urn:btih:EA5B290DD061B29F4327C57D9559ACF6862161A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

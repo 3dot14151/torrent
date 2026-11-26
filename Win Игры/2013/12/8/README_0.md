@@ -19,8 +19,7 @@ The Agency of Anomalies 4: Mind Invasion Collector's Edition (2013) [En] Unoffic
 ```bash
 magnet:?xt=urn:btih:ADA60A86AD1A881423C2CFB14E34BFD6397A7B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Fog / Туман (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:02740601A011DC8D2350E419EBB4A265A3E74505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Temple Of Life: The Legend Of Four Elements Collectors Edition / Храм жиз
 ```bash
 magnet:?xt=urn:btih:5AE02123601644A4B43F73F8DE63D5841A3E613E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Puzzle Agent Dilogy (2010-2011) [Ru/En] (2010.6.30.44242/2011.6.30.61761) Repack
 ```bash
 magnet:?xt=urn:btih:C136CBB1D8AC741CF6B56EC579511804BC45A398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Christmas Stories 2: A Christmas Carol. Collectors Edition / Новогодни�
 ```bash
 magnet:?xt=urn:btih:E622EF5AC33B856178CB7B5F48E0778799645C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04CD933088DBB121257CB8DEB311370BF372D69C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ A New Beginning - Final Cut (2012) [Ru/En] (2.0.4.0395) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:60796BBD4FACB27A38C2055976098DC09AAF1BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Racing Manager 2014 (2013) [Multi] (1.0) License FANiSO
 ```bash
 magnet:?xt=urn:btih:7AE6831866638D62B0D780B3219126D8237C0539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

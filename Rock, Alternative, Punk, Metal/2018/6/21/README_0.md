@@ -22,8 +22,7 @@ Lizzy Borden - My Midnight Things (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:4445F67F59A746A229FBD54AB390E43C6DFE40E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Ventures - The Ventures Best Hit Collection 30 (2018) Japanese Edition [FLAC
 ```bash
 magnet:?xt=urn:btih:638C9DB41AAAFAB423D352CE52EF0931B6276C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

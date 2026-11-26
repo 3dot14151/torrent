@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:7B498D2A85D855F9902F5C5718D5409550E46195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CE7322F9746166597DC9747D31488814E880E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Buygore: Fresh Blood Compilation (2014) [MP3|320 кб/с]<Dubstep, FutureBass, G
 ```bash
 magnet:?xt=urn:btih:EE8E232FE3AC8F16338AD48032DBFF6EADE6D130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Big Gilson & Blues Dynamite - Live! (2013) [MP3|320 кб/с]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:A5B89E60376BBB04FAC9C5C7A76C0068642F7A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAD26472E9724AAF40D6F2B3AFFA9A18BEEAB97E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ VA - Ibiza Deep House Experience (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:E317F85872A8901D806AF0CE4D38543BA939CB05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ LL Cool J - 14 Shots To The Dome (1993) [FLAC|Lossless]<Hip Hop>
 ```bash
 magnet:?xt=urn:btih:C1AE361CA508D7D19133AF35798FCAC29578FC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D0625FED6409A05E830144D0CDEFBBEE959C26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ Franco Paletta And The Stingers - Can't Kick Love (2013) [MP3|320 кб/с]<Swing
 ```bash
 magnet:?xt=urn:btih:12DF724FE5638441654CC0BA7AB6B8F3F60711F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3078B4255B5B068AD8C92DA283047A1D9A9B6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D26137F1B80C11482086D46DB497917EC390E53C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DF9B23638C84AB2CB58E815C6068E3AF8B3D906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ VA - Deep House Sensation (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:A122ED80837019CF2517DC89EBD244D08F40F59C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Low Society - You Can't Keep A Good Woman Down (2014) [MP3|320 кб/с]<Blues Ro
 ```bash
 magnet:?xt=urn:btih:1A03D22303AB06781CDA604B16D6E53A8E435B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ Rosetta - Flies to Flame (2014) EP  [MP3|320 кб/с]<Post Metal, Sludge, Ambien
 ```bash
 magnet:?xt=urn:btih:32019876685A1AFE408F43F58B09B8E7B0E813BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ VA - Progressive In Motion - Vol.177 (2014) [MP3|320 кб/с]<Progressive Trance
 ```bash
 magnet:?xt=urn:btih:568907366854291C13DCD1263BEDFA4C890F14E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ Moose - High Ball Me (2000) [MP3|~245 кб/с (V0)]<Alternative/Indie Rock, Alte
 ```bash
 magnet:?xt=urn:btih:3B07DD0C408243450EF312CA8C787EEC1EB7B7B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ The Rubens - The Rubens (2012) [MP3|320 кб/с]<Alternative/Indie Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:549D1210313FFFC6A20D230B3D9001B071FC9E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C12EA9CD367A1C101F9D528E6AC2B563D3E72C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3EE76BB1B14F58AEAA22C327690F8A8DFFD3D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +650,7 @@ VA - Table Of Elements Vol. 3.0 (2014) [FLAC|Lossless|WEB-DL]<IDM, Industrial, E
 ```bash
 magnet:?xt=urn:btih:D44CF6BAFE1A721F531A477B64906AD261BCE37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ Marek Hemmann - In Between (2009) [FLAC|Lossless] <Techno>
 ```bash
 magnet:?xt=urn:btih:41CA65B6D2D01C64492CB077565DFEBC30D08B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +718,7 @@ The Kendra Gale Band - Carousel (2014) [MP3|320 кб/с]<Rock, Heavy Blues>
 ```bash
 magnet:?xt=urn:btih:7C370FC622A0A89C61C06EA2B2D10A0919EA45A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +751,7 @@ Gideon Van Gelder - Lighthouse (2014) [FLAC|Lossless]<Jazz, Piano jazz>
 ```bash
 magnet:?xt=urn:btih:4A07FFC54C2671AB6422DEDD8193488EB62B86C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +785,7 @@ VA - Smog presents: Battle Royale Vol. 1 (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:F13B11F16C0BEE8A23D24F6A420D39F655751F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Octodad: Dadliest Catch — это игра о разрушении, хитро�
 ```bash
 magnet:?xt=urn:btih:7607BEEF5F611513FD3160C046AFE5E19B03F05D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Soul Axiom - это научно-фантастическая приключен
 ```bash
 magnet:?xt=urn:btih:B3007348AB99336B1820BBCBBA5B2EB1F24D028F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fragments of Him (2016) [En] (1.20) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:11B00F8BF9C0C45EBF62A80D849FC0971E3CA68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

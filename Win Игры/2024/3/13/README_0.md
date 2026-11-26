@@ -19,8 +19,7 @@ Criminal Archives 3: Murder in the Pages (2024) [Multi] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:FBAE365BCFF9F9D8C04260CE41B76D4F4EE34C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Taxi Life: A City Driving Simulator - симулятор такси, в кото
 ```bash
 magnet:?xt=urn:btih:000A5E911CF329DEA4455B708384F1FB0413AE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0/dlc) Repack Other s [Suprem
 ```bash
 magnet:?xt=urn:btih:59E91B73BCE96B492FAB0BDD78457344B48990DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Big Adventure: Trip to Europe 7 / Большое приключение: Пое�
 ```bash
 magnet:?xt=urn:btih:CA0E922378178FBDF7977A92FD5BC9B86940EF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Connected Hearts 4: Cost of Beauty / Связанные сердца 4: Цена
 ```bash
 magnet:?xt=urn:btih:2FE1FB59713659FF1A2AC6414A81E978588B1F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

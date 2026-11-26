@@ -19,8 +19,7 @@ Fright Chasers 3: Director's Cut / Ловцы Страхов 3: Виденье �
 ```bash
 magnet:?xt=urn:btih:05C830237FC61754E84650BF9E80CBE4F9DD5263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:50121C3054D162B43B1F9DCB14C78F04389D756E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Descenders - современный экстремальный фрирайд-д
 ```bash
 magnet:?xt=urn:btih:B69C28737070E6C2E5ABFBE5E85D937A20D2FE59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

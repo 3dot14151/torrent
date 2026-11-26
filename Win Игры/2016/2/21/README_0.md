@@ -19,8 +19,7 @@ Mysteries Of The Past: Shadow Of The Daemon (2016) [En] Unofficial [Platinum Edi
 ```bash
 magnet:?xt=urn:btih:752C1FEFEA41F52FE951BB9179CDB41762EF0F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PuppetShow 8: The Face of Humanity (2016) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:D31946E2813C5B7AA32978F48166D08F77B1D700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA9532D1B03DCE0A7A6E748415EE8FDE42C888D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Immortal Love: Letter From The Past / Бессмертная любовь: Пи�
 ```bash
 magnet:?xt=urn:btih:32FEFBC27B3A5888F50866252B77B833EE2529C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sable Maze 5: Soul Catcher / Темный лабиринт 5: Ловец душ 
 ```bash
 magnet:?xt=urn:btih:829C8027CC24E7FCDC639C0D6B7AA9449A670D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dark Romance 2: Heart of the Beast / Мрачная история. Сердце
 ```bash
 magnet:?xt=urn:btih:190C841CECDADF80717477716BFB0700CE38ABE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

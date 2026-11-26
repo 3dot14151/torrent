@@ -22,8 +22,7 @@ Side One:
 ```bash
 magnet:?xt=urn:btih:7CBCF76AFBA1CF33BC4DFA438A69B03F457F4233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 (You Never Can Tell) C'est La Vie(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:C912588F76AD77B972B28D6AC0495A4E262DE1A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Absolutely Nothing's Changed(   Читать дальше...   )Жанр: Pop
 ```bash
 magnet:?xt=urn:btih:038B0E144940142EC43CE5A263CC3D512A3093BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

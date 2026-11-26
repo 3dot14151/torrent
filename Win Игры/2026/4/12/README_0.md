@@ -19,8 +19,7 @@ The Occultist, геймплей которого базируется на то�
 ```bash
 magnet:?xt=urn:btih:2BB2BB19A729BA21FFCACAEDF052608F53EE07B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Origament: A Paper Adventure (2026) [Ru/Multi] (1.8.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:853D49AFA593C5A87928C5C3A51D462CC749905C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack HardwareMini
 ```bash
 magnet:?xt=urn:btih:29126FA577044A9B369BDFA11657524DDA64231E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

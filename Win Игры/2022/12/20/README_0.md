@@ -19,8 +19,7 @@ Gray Zone – RTS шутер с элементами RPG. Это одиссея 
 ```bash
 magnet:?xt=urn:btih:B30E0E31652485994F272DE7F6973C8C772C1CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

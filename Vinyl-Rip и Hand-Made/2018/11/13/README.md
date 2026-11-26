@@ -22,8 +22,7 @@ Bomfunk MC's - In Stereo (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic
 ```bash
 magnet:?xt=urn:btih:A8867340EA1BE2AA1DB4A28755044EE3AE3C110B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

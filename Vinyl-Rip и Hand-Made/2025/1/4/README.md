@@ -22,8 +22,7 @@ Accept — немецкая рок-группа, играющая в стиле 
 ```bash
 magnet:?xt=urn:btih:0A78E145EA4DE94AFA9F99235D87EEB381B90619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

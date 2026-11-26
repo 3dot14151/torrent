@@ -22,8 +22,7 @@ A4 Mary In The Morning(   Читать дальше...   )Жанр: Pop Rock, Gl
 ```bash
 magnet:?xt=urn:btih:0A869FCE7BD10D9FB1748344D68FA9A2CEECF52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mark Tremonti — американский гитарист и вокалист.
 ```bash
 magnet:?xt=urn:btih:AFF115C64D6E8BE7803DF7B4F9AE91766861C727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

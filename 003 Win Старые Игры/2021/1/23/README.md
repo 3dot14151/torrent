@@ -19,8 +19,7 @@ Worms 2 (1998) [En] (2.0.0.23) License GOG
 ```bash
 magnet:?xt=urn:btih:C9BC64E8180B854937097AA6771EC51DBD79EACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

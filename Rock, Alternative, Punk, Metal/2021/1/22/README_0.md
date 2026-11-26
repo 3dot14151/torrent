@@ -22,8 +22,7 @@ Fluisteraars - Bloem (2020) Limited Edition [FLAC|Lossless|tracks + .cue] <Black
 ```bash
 magnet:?xt=urn:btih:EEDB6C44943CD5CA66B925C2A3692F275964E0B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Labyrinth - Welcome to the Absurd Circus (2021) [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:C5917CB067A73A80CC66B95F23C12E7414CB605A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mind Driller - InBolution (2021) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:D22B6A1C55A996FE61B86106918C09071E681718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Voodoo Circle - Lосkеd & Lоаdеd (2021) [FLAC|Lossless|tracks + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:0078BB5D1E713329835EF5E29ACCBD2338FEF9BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

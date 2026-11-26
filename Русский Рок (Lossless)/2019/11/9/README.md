@@ -22,8 +22,7 @@ VA - XXXL 10-Рок (2003) [FLAC|Lossless|image + .cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:AEDAC46A5CC650390988F3B3FF64F6DFDE321E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

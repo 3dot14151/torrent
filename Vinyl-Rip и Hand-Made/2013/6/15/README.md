@@ -24,8 +24,7 @@ A5 - Miss You Blues [4:14]Жанр: Folk RockПродолжительность:
 ```bash
 magnet:?xt=urn:btih:1AF62766A4185A72F7471E387980FC141136124A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

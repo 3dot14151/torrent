@@ -20,8 +20,7 @@ Sam and Max Anthology (2007-2010) [Ru/En] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C7911B7E579840E9E931C586E0C5F4BC16DE0B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

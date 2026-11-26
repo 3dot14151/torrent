@@ -20,8 +20,7 @@ Urban Trial Freestyle - игровая новинка, которая предс
 ```bash
 magnet:?xt=urn:btih:66E7EE8F9810048087B7A5C19D92B22347D23A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Metro: Last Light Developer's Pack (2013) [Ru/En] (1.0.0.13 / DLC) DLC R.G. Orig
 ```bash
 magnet:?xt=urn:btih:43446262447303BD7A3573F25C374BFB2D05A483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

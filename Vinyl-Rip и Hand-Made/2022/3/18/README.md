@@ -22,8 +22,7 @@ Rob Zombie - Studio Albums (11 releases) (1998 - 2021) hand made [restored, decl
 ```bash
 magnet:?xt=urn:btih:0D79AC08500B482F3F107D4B74E5B56EFEEE94AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

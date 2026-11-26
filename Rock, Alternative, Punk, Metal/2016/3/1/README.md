@@ -22,8 +22,7 @@ Sinbreed - Master Creator (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:4E599A54098DEA3380B2A649542CDD14CCC0E6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Champs - 25 All Time Greatest Recordings (2000) [MP3|320 кб/с] <Rock, Ins
 ```bash
 magnet:?xt=urn:btih:C33541CCDC84172E430AD7D4CDEA8A7977FCFD2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Textures - Phenotype (2016) [FLAC|Lossless|image + .cue] <Progressive Metal, Met
 ```bash
 magnet:?xt=urn:btih:153512765B2F07E7490D5E2071F1485A8B0A7253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Omnium Gatherum - Grey Heavens (2016) [FLAC|Lossless|image + .cue] <Melodic Deat
 ```bash
 magnet:?xt=urn:btih:B4D72D4BDC849FF75A056F4243ECCA127B80C489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Lost Society - Braindead (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F6AD578667C8BE5376B323CCD54196A09138C5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Tony Carey  - Retrospective: 1982-1999 (2000) [FLAC|Lossless|image + .cue]<Class
 ```bash
 magnet:?xt=urn:btih:2F0F4515A6C18837C7376A720798790F207C3BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Gorky Park ‎ - The Best (1999) Compilation [FLAC|Lossless|image + .cue] <Rock 
 ```bash
 magnet:?xt=urn:btih:843AFDE62EA2EDB82025305ED122689BB0734428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Pink Floyd - Delicate Sound Of Thunder (1988) [FLAC|Lossless|tracks + .cue] <Psy
 ```bash
 magnet:?xt=urn:btih:892407FD3EDCEA8BA6BC1853E1F4F58EDDAD3F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Pink Floyd - The Wall (1979) 2CD, Remastered, 1994  EMI United Kingdom [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:A3387891FAA5D6B07462462B56F262D716C7CFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

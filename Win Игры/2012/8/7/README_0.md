@@ -19,8 +19,7 @@ Farm Quest (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:889184C8DDE9C5932E7435222A2D076BBCDE5A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Prototype 2 - продолжение жестокого и кровавого и
 ```bash
 magnet:?xt=urn:btih:22C2608F83CBFAC4A00CF4D26D349BA275DF8CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Mercenaries 2: World in Flames [Ru/En] (RePack/1.1) 2008 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D552EF7B64D5A096EC9FC5808419AFEA99A8456E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

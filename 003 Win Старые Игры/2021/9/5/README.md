@@ -19,8 +19,7 @@ MicroProse™ Soccer (1988) [En] (2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:AE48DFF8EE02809DCF66B15F95297FC61F078776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grandmaster Chess (1992) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:77AD9BF454655CD89EE56EB3EF665A48E0675615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

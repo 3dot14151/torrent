@@ -19,8 +19,7 @@ Replay Video Capture - это приложение, которое позвол�
 ```bash
 magnet:?xt=urn:btih:841B343ADB4930367F7F179BEC127D6BEE527DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yellowpile - программа для создания разноцветных
 ```bash
 magnet:?xt=urn:btih:C68D916B598B6F791131A447BDD2A92551D4A6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

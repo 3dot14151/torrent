@@ -22,8 +22,7 @@ VA - В стиле Шансон от Arhangel Music (2024) [FLAC 2.0|44.1/16|Los
 ```bash
 magnet:?xt=urn:btih:3EE97F3F685851DE59B6D454C05F27F51CE848B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

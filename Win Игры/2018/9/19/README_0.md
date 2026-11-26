@@ -19,8 +19,7 @@ Immortal Love 5: Kiss of the Night / Бессмертная любовь 5: По
 ```bash
 magnet:?xt=urn:btih:70F438F35785F6CF812D7C7FCACF4258F0875331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Transference (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B8BEFCDDA8B0785930A2647F0E21B7718B20F1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battle Chef Brigade - это отрисованная вручную прикл�
 ```bash
 magnet:?xt=urn:btih:5E576F071C127A56BE06CF5B19EA6AB7C534308A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Carmageddon: Reincarnation – снова позволит геймерам по
 ```bash
 magnet:?xt=urn:btih:8149EB5D935A51D155A9CF12BBC50DB50713D703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

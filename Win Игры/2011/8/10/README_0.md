@@ -19,8 +19,7 @@ Kona's Crate (L) [Multi10/+] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:EB6D39B35535C4FB018E19B7CDE6C17EA6FB6B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alien Breed: Impact - это осовременить классический �
 ```bash
 magnet:?xt=urn:btih:378ED969220B69D4C48805E4BE3062B7058B0DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Another World Collector's Edition / Another World: Коллекционное п
 ```bash
 magnet:?xt=urn:btih:73B8AA26B3AF6F24891CCA10369E1F08B44B7EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

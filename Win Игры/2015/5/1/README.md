@@ -19,8 +19,7 @@ Amaranthine Voyage 4: The Obsidian Book (2015) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:4992FA10C2BC44603D5C53597CD14BF170D63207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

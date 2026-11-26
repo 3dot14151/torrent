@@ -19,8 +19,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E77F17F5F85B9764957DC657511A92289AD83D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Men of War: Assault Squad 2 - Cold War (2019) [Ru/Multi] (1.006.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:DABFE5B6F8FF582045D9030A5C522B91D33F78AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Heroes of Hammerwatch – это пиксельное экшен приключ�
 ```bash
 magnet:?xt=urn:btih:D0485D041015CCC283DD91A6079A5E7E0F1949DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

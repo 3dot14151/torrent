@@ -19,8 +19,7 @@ Legendary Tales: Stolen Life / Легендарные предания: Укра
 ```bash
 magnet:?xt=urn:btih:67DD6522A9740899F5DBB5CC660A711F317EC2B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Broken Porcelain вносит в серию много долгожданных 
 ```bash
 magnet:?xt=urn:btih:DD5DFE354286ADFD355ED7B5C3FAC53D5DE57E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

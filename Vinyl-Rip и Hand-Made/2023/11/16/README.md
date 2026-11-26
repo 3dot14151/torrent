@@ -22,8 +22,7 @@ B2. Forest of October (13:03)(   Читать дальше...   )Жанр: Progr
 ```bash
 magnet:?xt=urn:btih:A45B9C244FF72A4FA6B123411546ABA46B313364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

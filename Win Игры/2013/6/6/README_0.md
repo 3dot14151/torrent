@@ -19,8 +19,7 @@ House of 1000 Doors 3: Serpent Flame Collector's Edition (2013) [En] RePack Dizz
 ```bash
 magnet:?xt=urn:btih:40D438D0D7928DF65144950F6FF41FD2B409C803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trave - казуальный платформер, в котором Вы упр
 ```bash
 magnet:?xt=urn:btih:9BF32115CA3D4B70BBF3D27ED8CCE11B4FCF649A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kung Fu Rabbit - платформер, в котором мы играем за 
 ```bash
 magnet:?xt=urn:btih:1D8D9681E17709FA2864084EEFDA9974CBC75093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jigsaw Boom 3 / Пазл Бум 3 (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:1F5AA053CE5A45DF062AFADF318B116E4D8D736C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fort Defense / Защитники Форта (2013) [Ru] (1.0) Repack
 ```bash
 magnet:?xt=urn:btih:F03D3B98C221C5D46F1EFE6E89E582D960A4A1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Royal Jigsaw / Королевский пазл (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:E2B3FF18B0D358EBCC4476381B5E78ED19A64DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ G-Forcе / Миссия Дарвина (2009) [Ru/En] (1.0) RePack R.G. Меха
 ```bash
 magnet:?xt=urn:btih:3F561448EE833856AAC388E94AB0AA7344EE7A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Rolling Idols 2: Lost City (2013) [Ru] Repack SmallGames
 ```bash
 magnet:?xt=urn:btih:325C140524C99AC1092DBE3986B21D956A7665B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

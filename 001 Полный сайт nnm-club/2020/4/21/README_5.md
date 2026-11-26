@@ -18,8 +18,7 @@ Bishoujo Senshi Sailor Moon S: Hearts In Ice | Красавица-Воин Се�
 ```bash
 magnet:?xt=urn:btih:BF5FE432617619567A4A95C22441D7AF3A596AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Bishoujo Senshi Sailor Moon R | Красавица-Воин Сейлор Мун 
 ```bash
 magnet:?xt=urn:btih:E844145E259B8ABC41B17E610083A768E1F87AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Bishoujo Senshi Sailor Moon R: Promise Of The Rose | Красавица-Воин
 ```bash
 magnet:?xt=urn:btih:A037602B37BEE4302FC24E7A493671C7D585189E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Bishoujo Senshi Sailor Moon | Красавица-Воин Сейлор Мун [T
 ```bash
 magnet:?xt=urn:btih:B014591990F601AF966213EBE6F9CC35FF4B9A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Bishoujo Senshi Sailor Moon Crystal | Pretty Guardian Sailor Moon Crystal | Кр
 ```bash
 magnet:?xt=urn:btih:94309884BBD013D3B74C5B29BEDA588CD7ABC210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7108F90AFAD099F4B9E6F209011C8DF6CB23E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8175D056EA8555943629F5EF5038CA2CB973018F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Satisfactory — это игра от первого лица в открыто�
 ```bash
 magnet:?xt=urn:btih:3F05DDFD38F1EF86C127268A37EA82026DACE420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6EEA79A9971011F7969A9ED536B0E2D41D41517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ BELOFF 2020.04 [Ru] (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:7D47BB8ACF2A45769C697E7ED14FCFC5A0B66057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6327A2C4C122EF233272053B1813D8634FCAF3D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2020.04.20 [Ru]
 ```bash
 magnet:?xt=urn:btih:E747A2994BD31E2212BF7322C25986D35B9A9290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

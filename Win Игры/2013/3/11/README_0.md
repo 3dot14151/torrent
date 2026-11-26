@@ -22,8 +22,7 @@ TВьетнамская война — один из самых неоднозн
 ```bash
 magnet:?xt=urn:btih:F58FEA8F04DD9AE565DDA8BED764283A20A24D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Worms Revolution + 4 DLC [Ru/En/Multi8] (Repack/0124) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:1E73ABC4A85DB144FEDB199DAF7A9041D0AA8348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Crysis 3 (Patch/Crack/1.2) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:04B8D9E2BFD995E75455DD82DD2976E3F0843986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Vergil’s Downfall (Падение Вергилия) — первое DLC к и
 ```bash
 magnet:?xt=urn:btih:72F82133182C99F4F0473C389BDABF785BC626D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ DmC: Devil May Cry [Ru] (Repack/1.0u2/4 DLC) 2013 | Fenixx
 ```bash
 magnet:?xt=urn:btih:AD644F96C0F0004F9D41BC23FDB005AA041EDBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fairy Godmother Stories 5: Miraculous Dream in Taleville (2021) [En] (1.0) Unoff
 ```bash
 magnet:?xt=urn:btih:ABC1712D18E51C20AB883DCE6CCD802654C5DC64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tormented Souls (2021) [Ru/Multi] (7256155) License CODEX
 ```bash
 magnet:?xt=urn:btih:5C6252C11D85592E9E488C0F949B1129E92951B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Murder Mystery Machine (2021) [Ru/Multi] (7059951) License Fairlight
 ```bash
 magnet:?xt=urn:btih:0AA122A04CA818FCFCA25087951219C62EABD3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Myst (2021) [Multi] (1.4.0) License Fairlight
 ```bash
 magnet:?xt=urn:btih:78A8F45BD72E401F39A6ED2951E3870B3FDB1FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

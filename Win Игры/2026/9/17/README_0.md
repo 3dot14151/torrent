@@ -19,8 +19,7 @@ Dragon's Dogma 2 (2024) [Ru/Multi] (3.2.0.0/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2DE7D505AB3AB358715DD10FD26A42FBCF30290E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon's Dogma 2 (2024) [Ru/Multi] (3.2.0.0/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:0ACC73842A3686E9946A793A74459BB6F35BAEA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

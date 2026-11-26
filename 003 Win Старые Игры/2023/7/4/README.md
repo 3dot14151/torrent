@@ -19,8 +19,7 @@ Velaya - Geschichte einer Kriegerin / Велая - сказание о воит�
 ```bash
 magnet:?xt=urn:btih:4949AE30C865F584978BB6D55B78F0BAE9A4C54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dirty Swamp - это мод, рассказывающий небольшую и�
 ```bash
 magnet:?xt=urn:btih:A205D615069956B7A7BC200D4A48A8CE2116C09F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

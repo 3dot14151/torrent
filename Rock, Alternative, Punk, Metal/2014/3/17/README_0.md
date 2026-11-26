@@ -28,8 +28,7 @@ Metsatoll - Karjajuht (2014) [FLAC|Lossless]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:55DE53F3C25B6C8EA1567A2EBA9A5B51639BF2AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Bonus Tracks(   Читать дальше...   )Жанр: Speed MetalПродо�
 ```bash
 magnet:?xt=urn:btih:DD2B2E000D4CB82D140842E5F5AEE15FE2726F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Stamina - Perseverance (2014) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:1455805B1C9892F6F75DD7C3110D6644A209A756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Astral Domine - Arcanum Gloriae (2014) [WavPacK|Lossless]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:EB671A3AAE4661825C87C1BB94C50944B886ADC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:692462DFA870F46B91DD879EF2CC4FED3A480093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Overland - Epic (2014) [FLAC|Lossless]<Melodic Rock / AOR>
 ```bash
 magnet:?xt=urn:btih:B40649790CC6D8AB4F59898D8D42EE19523FEC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Ez Livin’ - Firestorm (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E83FFACF61BEF77FAD74A6761CFD95C0402E50AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ The Pretty Reckless - Going To Hell (2014) Limited Edition [FLAC|Lossless]<Alt.R
 ```bash
 magnet:?xt=urn:btih:62E565AB3A012B163B932187A07C346F23A586C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D79CD7247AFB39A58AEFE5E7DAC9A30BC4A9991E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DF2B1D436219821E2DB3742FCCE5083F4E0EE66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

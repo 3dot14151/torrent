@@ -19,8 +19,7 @@ Kalkules является универсальным научным кальку
 ```bash
 magnet:?xt=urn:btih:DB39F86D4C37DC940EBB91A523CB397191523D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spoon Virtual Application Studio (ранее — Xenocode Virtual Appliance Stud
 ```bash
 magnet:?xt=urn:btih:40A132B98D41FDD24B4B11C12FACAFDA5877DBA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

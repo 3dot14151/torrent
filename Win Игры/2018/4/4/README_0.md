@@ -19,8 +19,7 @@ Moto Racing 3D — увлекательная игра для всех люби�
 ```bash
 magnet:?xt=urn:btih:848916E5F236DDADB2E26FEA5CE1700242C29501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Drift Tuner 2019 – гонки, созданные для любителей д
 ```bash
 magnet:?xt=urn:btih:0DAF0C4BE55DDF2205E0B51A11F1697335CFC6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Welcome to the Game II - атмосферный ужас, стратегия, г
 ```bash
 magnet:?xt=urn:btih:C447EB1AA4614D9035BD803BAA1939571088EDF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Devil May Cry 4 (2015) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst [Special Editio
 ```bash
 magnet:?xt=urn:btih:8A27788321E68E6ADE41734641195678808E4C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SUI File Explorer PRO v1.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:A461534A55588417D76CD5FA257FBF7DF9B5355C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Oxford Dictionary of English v11.7.717 Premium [En]
 ```bash
 magnet:?xt=urn:btih:6AF036677CDA0B506BA86175146A4E634E5AC8FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

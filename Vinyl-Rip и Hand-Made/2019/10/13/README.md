@@ -22,8 +22,7 @@ Lana Del Rey - Norman Fucking Rockwell! (2019) [FLAC 2.0|24/192|tracks|Vinyl-Rip
 ```bash
 magnet:?xt=urn:btih:A8159766C9373F2150ACA16540A87A0C748EE511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

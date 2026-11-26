@@ -19,8 +19,7 @@ Stranded 2 / Затеряный 2 [Ru] (RePack) 2010 | 4eloBook
 ```bash
 magnet:?xt=urn:btih:88EDD4EE50DBA0D2F8B9B908E656606D856F5462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Microsoft Telemetry Tools Bundle - специальный пакет для бл
 ```bash
 magnet:?xt=urn:btih:761D28490FF2564EC86298860A54AC97090AFBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

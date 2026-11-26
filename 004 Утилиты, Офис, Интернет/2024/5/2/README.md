@@ -19,8 +19,7 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:A41F6732189D1D37F55687F5FE6FD99AAD81C046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:B125361870FB5E173BBAEA55C7FFAD0D97F08E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AutoPowerOptionsOK — небольшая по размеру утилита, п
 ```bash
 magnet:?xt=urn:btih:AC17AA40C4633D957AB399FFF5146CD4978B3DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ NewFileTime 7.21 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F35FEB4BE8FD3D73F771C113C23E8226AB2DB201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

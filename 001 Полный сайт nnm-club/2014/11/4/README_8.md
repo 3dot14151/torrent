@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D75F8F76928C52C69930497DB3A045315F3A40E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42D14F5B03474C7F1DE8EEBC274BC3BDC73E5C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34D6CC6557C1CD4A2D67781473DAC5E21E24150A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ WebForMySelf | WordPress-Профессионал (2014) [unpacked]
 ```bash
 magnet:?xt=urn:btih:4210EA0603569C1EDAA4B482EA70B7B520B44D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Assassin's Creed - симулятор средневекового убийцы,
 ```bash
 magnet:?xt=urn:btih:2E3C6D38EBCA98AEC24E37737D4B52A4A357428A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

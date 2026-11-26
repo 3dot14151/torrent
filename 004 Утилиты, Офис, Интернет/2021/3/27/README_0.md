@@ -19,8 +19,7 @@ Link Shell Extension – утилита для быстрого создания
 ```bash
 magnet:?xt=urn:btih:6E7B62355A44124AB97EAC22F482C951BB71D9E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

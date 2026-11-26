@@ -22,8 +22,7 @@ Nephenzy Chaos Order - Pure Black Disease (2003) [APE|Lossless|image + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:D2C77E2E11D14FCD43AE0837CA116ABF433D30F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Range Of Mutilated - Beheaded Or Melted (2013) [FLAC|Lossless|image + .cue] <Bru
 ```bash
 magnet:?xt=urn:btih:130A0B190644598143E441325D1EE08C7E404AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Eibon - Eibon (2008) EP [FLAC|Lossless|image + .cue] <Sludge Metal, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:1667D95B0069A70A4CAAE5D8CC0123EA52080110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Nordheim - Refill (2013) [FLAC|Lossless|image + .cue] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:9F20BF660797070D4AD0BA8152C1200337CE6667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Nocturnal Graves - ...from the Bloodline of Cain (2013) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:FB528B6F2D491BF4293911D770A9F6374ED82AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Bonded - Into Blackness (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4344DFF87F99E5B167DB88EB7F512DECC174C5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Edain - Of Those Who Worship Fire (2013) [FLAC|Lossless|image + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:6E81C65CC3137EFD5326765F8C8CD31B82A67E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ VA - Melodica, Vol. 6 (2021) [AAC|~333 Kbps] <Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:A66A9BD3B6243113A91C0380ACF16DC791BF21C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - Melodica, Vol. 8 (2021) [AAC|~333 Kbps] <Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:AE2C8787D17EFD4DA00BACDC1D3700789400B9D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Edain - Through Thought And Time (2009) [FLAC|Lossless|image + .cue] <Death Meta
 ```bash
 magnet:?xt=urn:btih:27783FC39D97645AA891813E1DA75051155DFB5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ VA - Melodica, Vol. 3 (2020) [AAC|~337 Kbps] <Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:6AA698A6523EEBF79708679B1C338BECA5EFF0EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Thy Flesh Consumed - End of Blind Obedience (2004) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:E6E085AA16A538193EDBD64071DF8B833A731352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ VA - Melodica, Vol. 4 (2020) [AAC|~329 Kbps] <Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:93F3FBCF6DB05BCE2EA232A116029EFA699CF894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Non Serviam - The Witches Sabbath (2000) [APE|Lossless|image + .cue] <Black Meta
 ```bash
 magnet:?xt=urn:btih:7641CA44F0B93A6F0E0C5D2AD982B59FC8D6874B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ VA - Melodica, Vol. 7 (2021) [AAC|~336 Kbps] <Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:EFE55DA4CB752FEEB25D4FD62AD5A958FD9714F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ VA - Melodica, Vol. 2 (2020) [AAC|~333 Kbps] <Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:96BD525AF389C1AAA88201E8FC57BEC4309FF4BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ VA - Melodica, Vol. 5 (2020) [AAC|~332 Kbps] <Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:8A603065DAF6E774320F509E5554292D0BEF5D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ VA - Undiscovered Places: Urban Chillout Vibes (2021) [AAC|~327 Kbps] <Lounge, C
 ```bash
 magnet:?xt=urn:btih:0E84A4ED57CDF7AFA3CFCD1205168336311EA8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ Thy Flesh Consumed - Pacified by Oceans of Blood (2006) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:4705AD4C077D31807277CCD4625C022BE7BF5EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ Tsatthoggua - Hosanna Bizarre (1996) [APE|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:A6EC69CDCC45DA6BCFE06B7CEE96A91E5F4B0609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +580,7 @@ Thy Flesh Consumed - Unrepentant (2009) [FLAC|Lossless|image + .cue] <Death Meta
 ```bash
 magnet:?xt=urn:btih:72BD65213812D64A1BD34CB58B6EBD2FFE512384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +608,7 @@ Unleashed - No Sign Of Life (2021) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:41CD3975BE1E82FA084176704868A0343B638031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ Battery - Armed with Rage (2014) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:38BFC70F944CDE25CD6BE5CB150E285343C6FA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ Benny Barksdale, Jr. - The Heart & Soul of Benny Barksdale, Jr. (2021) [AAC|~342
 ```bash
 magnet:?xt=urn:btih:7DCB75D3F6C6C595260072B4D5F2F53D5BCDB814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +692,7 @@ VA - Keep Chilling (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B02054522407DA91D1D0AC34622BD0CA8B029FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +720,7 @@ VA - Melodica, Vol. 9 (2021) [AAC|~331 Kbps] <Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:2B6CD56E1AAA7CB372C5706ECD79438D40BE53EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

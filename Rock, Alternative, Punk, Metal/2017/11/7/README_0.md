@@ -22,8 +22,7 @@ Arturius - Arturius (2017) [FLAC|Lossless|image + .cue] <Symphonic Progressive M
 ```bash
 magnet:?xt=urn:btih:12FB110891FDDA8E57345D80E028A0C2FEEFD08B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Savage Messiah - Hands of Fate (2017) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:BDBC8E190EB247C6E3A89C5FC2F965C1A7684114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Enslaved - E (2017) [FLAC|Lossless|image + .cue] <Progressive Viking Metal>
 ```bash
 magnet:?xt=urn:btih:FBF2D6E3032459DBB20F8670AE6A3A533B8242F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:DBDD03761D5298F8E6231B6B4A26833E865B86FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D13AF3F01EAC592C6DBB60023FC248524229EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Red Before Black (CD1)
 ```bash
 magnet:?xt=urn:btih:94592F57C0B271C4346D70D4A3EA913D52352F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Status Quo - Collected (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:4FDD6A38F41059FBB4E14022FEE8C48446320E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

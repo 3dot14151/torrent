@@ -19,8 +19,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:B7F9436602262B5AA45D93684B8B8ED7A8F71CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PhotoRoom v5.5.2 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:283C98A8472D76E2DB44F535C49EC0AA49568BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

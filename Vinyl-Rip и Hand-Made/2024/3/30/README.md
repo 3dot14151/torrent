@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:91ED4FEE76E057A44C7742168A21330F6EABA7C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Warriors Of The Wasteland
 ```bash
 magnet:?xt=urn:btih:F3E2905F0472D5C36274771D489234F968772EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

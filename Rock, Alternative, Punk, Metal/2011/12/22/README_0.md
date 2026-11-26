@@ -28,8 +28,7 @@ Cage - Supremacy Of Steel (2011) [FLAC|Lossless]<Heavy Metal, Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Magic - A Tribute to Ronnie James Dio (2010) [MP3|320 kbps]<Heavy-Metal/Har
 ```bash
 magnet:?xt=urn:btih:81D8D75B6300D66935BE7F6CADD13FA91904D509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Art Of Dying - Vices And Virtues (2011) [MP3|192-320 kbps]<Alt. Rock, Modern Har
 ```bash
 magnet:?xt=urn:btih:7BB89E5AFBBF2328969F2D3124C6DA27F406FED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

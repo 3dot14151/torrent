@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A16B8402C41DB099F7830E8CAAB9443E329DA543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SnippetsLab  — менеджер фрагментов кода
 ```bash
 magnet:?xt=urn:btih:73502C19B5834C2CEE65F84D0EA914052F5FA794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F14A3270224B225ECE650BAA7919F15431BF4784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Snowy White And The White Flames - Little Wing (1997) /2006, Remastered/ [FLAC|i
 ```bash
 magnet:?xt=urn:btih:1914E888BFDECC1671DD7434DFB55AA3A660C7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Francisco Canaro - Serie Para Baile Vol.2 - Todo Vals (1941) [MP3|256 кб/с]<T
 ```bash
 magnet:?xt=urn:btih:602EFD7695FDFC64236A1C5002B9CD3820BD00E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ iPulse - Утилита для мониторинга работы Mac OS.
 ```bash
 magnet:?xt=urn:btih:F1194457B6DB4D6CFAC7F130EB9DDADB6E79BF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A24E365759A552973013C6DA5FF897D4A0FE4CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EAA59A19E2FA514F551AA69B9A84AE6285D7214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:150ED118691452BB1F326F1694BAA1010BEFECB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Francisco Canaro - Todo Milonga Serie Baile, Vol. 1 (2015) [MP3|192 кб/с]<Tan
 ```bash
 magnet:?xt=urn:btih:528A25BE1063A0AF1270FE4D16C296633CC9CE5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Watermarker - профессиональный инструмент для ус�
 ```bash
 magnet:?xt=urn:btih:66488D6294A5F31A531ABD769747958D83411010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Hurts - Surrender (Deluxe) (2015) [AAC|256 кб/с]<Synthpop, Pop>
 ```bash
 magnet:?xt=urn:btih:D7B032CA11593F1A75ADF5DDB9213F581A6806E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ A4. Life In A Dangerous Time (4:33)(   Читать дальше...   )Прои�
 ```bash
 magnet:?xt=urn:btih:E4F2DF981A73F72A2F0EC219A70B65D12AE6CB1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Ramin Djawadi - Железный человек / Iron Man (2008) [AAC|WEB-DL|25
 ```bash
 magnet:?xt=urn:btih:D076F8CE66C4CF0352111AA2F52E0D0F80CCEFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ VA - Клинч (2015) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:9C57777787B48C8DD31B7B994834679215180B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF89960268771C43345E2D0030B3FA4D55100983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DDF0F755D7779333D75AA220F2CFDA36B576681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34478A7C8826ECE6DF17F749324C6F3C9DA94143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:91E1A727DE4D399E4C090103C55DCB1E5065ECA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ Wise Program Uninstaller 1.81.96 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A8E58C78382CD4B3E44E754A5BE911C4CAEA2F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C68EE53D32B4C91A8554F5DA59C4B17A54CC6BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ NG: Жизнь до рождения: Однояйцевые близнецы / 
 ```bash
 magnet:?xt=urn:btih:1348DE47BE2E9DD92FAC74F4E3D00B1E662E0D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ Money — приложение, предназначенное для упрощ
 ```bash
 magnet:?xt=urn:btih:C94FA8B53F845FF3203F2F2EE65C9508906F406C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ Amanda Lear - Good Songs (2015) [MP3|160 кб/с]<Pop, Shanson>
 ```bash
 magnet:?xt=urn:btih:09B1778EB3A33E4FC804987FB2B1B32A8D7987DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Mini Dialer for Android Wear 1.09 [Ru] - Вызовы с помощью часо
 ```bash
 magnet:?xt=urn:btih:2781532C4AAC05270FEFF2BFF82DF164F85B5636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

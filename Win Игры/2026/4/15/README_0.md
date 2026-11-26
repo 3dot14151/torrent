@@ -19,8 +19,7 @@ REPLACED (2026) [Ru/Multi] (1.0.1073/1.0.1030) Repack FitGirl [Supporter Edition
 ```bash
 magnet:?xt=urn:btih:F90835CBD9BEDA58CBD650D6ACF5BCE7B539BB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ REPLACED (2026) [Ru/Multi] (1.0.1073) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:941B26DBBA10D65112F6766FD138A644D755A329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (1.1.2.0/dlc) Repack Let'sРlay [Deluxe 
 ```bash
 magnet:?xt=urn:btih:A8D536F02AA993A1CC20F697CCF85C40431D3E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Samson (2026) [RuMulti] (Build 22731263) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DADEFCBBD7B3FAFB798962D90A52B621BCF0739C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ REPLACED (2026) [Ru/Multi] (1.0.1077) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:3B29C94ACF1AB483C65D24560638D19F644C15FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Possessor(s) - это стремительный сайд-скроллер с б
 ```bash
 magnet:?xt=urn:btih:EAD170A333A8C9898075781A4A1B84A2CA68323D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack FitGirl [Del
 ```bash
 magnet:?xt=urn:btih:D9A886A661BE4BE56A3CF4A2BBC997A4866FA7B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

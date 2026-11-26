@@ -19,8 +19,7 @@ Chernobyl: Origins (2023) [Ru/Multi] (Build 10809098/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AA8FCFB0440589D08084E19F78C694BE95E1B04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Angry Birds Epic v1.0.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:EC9DFD1703A7053BD4F96483C415DCA2215F40C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

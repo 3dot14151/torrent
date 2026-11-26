@@ -19,8 +19,7 @@ Janis Joplin - The Classic LP Collection (2011) 4 LP Set  [FLAC 2.0 24/96|tracks
 ```bash
 magnet:?xt=urn:btih:299ABBAB78CCE02E083496118E6F280BCE725104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ CD 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Motorhead - Covers I (2010) Bootleg [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4FB0BCF216224CEEAFB78937C200D50044D59738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ F.P.G. - Стихия (2010) [MP3|320 kbps]<Punk rock>
 ```bash
 magnet:?xt=urn:btih:9E7482D92A5AAF4590EB0381BC079A4988CAB7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

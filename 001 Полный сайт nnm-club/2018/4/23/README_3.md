@@ -18,8 +18,7 @@ Kokkoku / Миг за мигом [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:9CD4631D2806724AADD35D984D4EE2D33F9F0848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Koi wa Ameagari no You ni / After the Rain / Любовь - словно про�
 ```bash
 magnet:?xt=urn:btih:63B3366EA94B84D4EB607BC949F3331FE98A9CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11F580855BBAB6F5E7736F361301E419BE1507AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90B36D1E9F41DF7F3DCE5516FFA3136A23EADB64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Itou Junji: Collection / Junji Ito Collection / Коллекция Ито Дзю
 ```bash
 magnet:?xt=urn:btih:E93DABBF3F595EDA43BF9B6C0707D8AE28FCCD23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mahou Tsukai no Yome / The Ancient Magus' Bride / Невеста Чародея 
 ```bash
 magnet:?xt=urn:btih:7FCA62B8C0BCFBCB80CFB0245427267FA0C24905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Office для вашего компьютера Mac
 ```bash
 magnet:?xt=urn:btih:2D6A45EB462CC49FBE5BF515BCC1CEF757EA2EEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 ```bash
 magnet:?xt=urn:btih:4AC03A8431635C8A1986DC57691F2F5C22585BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Adobe Premiere Pro - это мощный, настраиваемый редак�
 ```bash
 magnet:?xt=urn:btih:91AF365A0271A77429CC813A431794BFD72ABB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F2DAA6138A77202A1ACCA7CA48354DA6546766A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

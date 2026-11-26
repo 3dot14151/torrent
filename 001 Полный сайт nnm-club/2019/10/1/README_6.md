@@ -21,8 +21,7 @@ iTubeDownloader 6 v6.5.6 [En]
 ```bash
 magnet:?xt=urn:btih:4EF55D5C95AAFEF906A1E244A45A88022390E16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Understand - это инструмент статического анализа
 ```bash
 magnet:?xt=urn:btih:1BAC658309AB23DF3C9C59D43968E0D6391C3B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ App Tamer 2.4.8 [En]
 ```bash
 magnet:?xt=urn:btih:F0602DF9BC3A79F03A0C60359CA7BB5E5CBF8360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Photos Exif Editor - это интуитивно понятное приложе
 ```bash
 magnet:?xt=urn:btih:DA5FA86CC1A9FBE476CCAB315A7E61A130DD45EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ TurboMosaic — программа, позволяющая легко и быс�
 ```bash
 magnet:?xt=urn:btih:E1D513F2C112D1CB4FA3FF8D72AADD61CA034957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:CB398D3A9184AD8E7C3D67BFAF86ABA5977A5BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Ryo Fukui - Scenery +2 (1976) 2005, Solid Records [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:93D91FA0180602EE8ADAC90130AC52391A9DA96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ PopClip появляется на экране при выделении мыш�
 ```bash
 magnet:?xt=urn:btih:C462968E3E71FB0B2E0AE38DC6A29F54A8BCDBD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Duplicate Photos Fixer Pro является удобным приложение�
 ```bash
 magnet:?xt=urn:btih:D4C24AF03D24993EB42C14859FB596209DFF0084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56DAA6697C1B71C386469033A0C4C6162A3C9564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Meta поможет Вам управлять постоянно растуще�
 ```bash
 magnet:?xt=urn:btih:87AC807EA4128FDEC919DE8A5AB54C3CB90B72AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Macgo Mac Blu-ray Player - это один из лучших (если не ск
 ```bash
 magnet:?xt=urn:btih:9C15C5C29C7106AA930B76366C6D755A324137F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ ScreenFlow - создаем свои скринкасты
 ```bash
 magnet:?xt=urn:btih:6934BB9009433C9A67FA2F174896CD1CB4994100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Airy — YouTube загрузчик
 ```bash
 magnet:?xt=urn:btih:ABFD0E0696EE32F8C45336B8EBD66312F86F6F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ SlimBrowser – браузер, построенный на базе Mozilla Fir
 ```bash
 magnet:?xt=urn:btih:CB2BC0B407ED269FD3F8AC31A497CCA3BCFAB2B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Proxeeus - Celephaïs (Celephais) (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient
 ```bash
 magnet:?xt=urn:btih:9B14474AB0894045B1F719F53DD7BD57A3DB6B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Serial современный эмулятор терминала, которы�
 ```bash
 magnet:?xt=urn:btih:57B1ED4FE0504838AF46265F20928FAF70B4AB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Synalyze It! Pro – это инновационное приложение, к�
 ```bash
 magnet:?xt=urn:btih:62D6C61E6638A84F0A8F2622BF67FE4BDAF63BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Smart Zipper Pro - это профессиональный архиватор, �
 ```bash
 magnet:?xt=urn:btih:4E203959B6DC87A7D77B0D4E3C0B49A82CE8ABB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ MyBrushes (   Читать дальше...   )Тип издания: macOS Soft
 ```bash
 magnet:?xt=urn:btih:D8B48FBEB578AC8BB203590D2C9C4C3C273310A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ Spiritual Beggars - 9 Albums, 11CD (1994-2016) [FLAC|Lossless|image + .cue | tra
 ```bash
 magnet:?xt=urn:btih:1BA3299DC17FF2ED574CA167E4534EDFDD30F506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ John Prater And The Benders - John Prater And The Benders (2019) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:4D12CDA8364A74BF94A5B8E8E0AFA0E80198319E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:888830AB10453B1AC5E245BD68C47CDC972DF8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Sonata Arctica - Talviyo (2019) Japanese Edition [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:2459E85B435174897808FD7D986C06B142BC917B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Image2Icon Pro - простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:62560F5F32B3E1A82DE8C690109A481A5B6B3C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ Allavsoft Video Downloader Converter - профессиональный инст
 ```bash
 magnet:?xt=urn:btih:2201B6180670BB0C2FBC4FEA3C8323244062C28D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

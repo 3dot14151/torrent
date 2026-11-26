@@ -19,8 +19,7 @@ Factorio – игра, в которой вы строите и обслужив
 ```bash
 magnet:?xt=urn:btih:C1BC4AFD26E60A1CD30A7C2E15108E8BDC1C08F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Northend Tower Defense – динамичное приключение, собы
 ```bash
 magnet:?xt=urn:btih:DFE2451A12A7A3F210943C349F9FB63CA7DBC065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Factorio – игра, в которой вы строите и обслужив
 ```bash
 magnet:?xt=urn:btih:3F803539AA7449C47590E9FF8C1006F55D0D501B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

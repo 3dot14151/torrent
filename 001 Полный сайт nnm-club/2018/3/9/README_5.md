@@ -21,8 +21,7 @@ Ultimate Final Cut Pro X Plugin pack by joinqwerty 0.1 [En]
 ```bash
 magnet:?xt=urn:btih:2DA1D5C9BEB441E38A4B37C53602AC15FC9EF170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 ```bash
 magnet:?xt=urn:btih:DD816EA7CC650DCE38F120E4F1184B3216430855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA2FAF68C7B727BF0AA5079EA3FFD9E102029316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Kingdom: New Lands, расширенное и дополненное издан�
 ```bash
 magnet:?xt=urn:btih:E4C362ADA77478CC3FB8EE2FA1D7DF86773FB6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ MInstAll Enter-Soft Free -это сборник бесплатных прогр�
 ```bash
 magnet:?xt=urn:btih:79B1DE1207F2AD855CBB86B4DE70DE5306AC2F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

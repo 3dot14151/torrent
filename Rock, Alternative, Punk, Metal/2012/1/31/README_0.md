@@ -28,8 +28,7 @@ Suicidal Angels - Bloodbath (2012) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:27FC1C3254B772744CA81D25FC5F74FC094E224C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3DB04FC8579EFF89435D798D09ED9335051ECA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Invektiva - Love Life Hate Death (2007) [MP3,320 kbps] <Alt.Metal/Gothic /Cabare
 ```bash
 magnet:?xt=urn:btih:11EDFEE90307AABC64222A50196C220863704FB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Lord Belial - Black Curse (2008) [MP3|320 kbps]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:E95C9C35C531CF45FD818CD9AACAE5D7655EC4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Flyleaf - Дискография (2002-2010), [MP3|160-320 kbps](Alternative, Nu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Gods of Guitar (2CD)  2010 [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:3DE27180DC5177A155365FE1807B8070E5DBEAA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

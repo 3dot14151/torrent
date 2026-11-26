@@ -22,8 +22,7 @@ A4 Song Of The Islands (Na Lei O Hawaii)(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:DD4C23BFADA349D59E5D93DDF05945BB9B7DF7C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

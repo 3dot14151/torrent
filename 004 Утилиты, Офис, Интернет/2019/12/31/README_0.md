@@ -19,8 +19,7 @@ ICQ — Программа для мгновенного обмена сообщ
 ```bash
 magnet:?xt=urn:btih:9687B457FDEC1065ECD008FD114D823CD604D00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Auto Shutdowner 1.3 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:850E03F994A71D92D4E518647A74CB9535316F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Browsec — это бесплатный VPN-прокси, который защ�
 ```bash
 magnet:?xt=urn:btih:9C3570309AE9925834F2A8C46C0601383B3CC11A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

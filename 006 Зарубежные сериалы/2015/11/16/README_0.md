@@ -19,8 +19,7 @@ CSI: Киберпространство / CSI: Cyber (2015) WEB-DLRip (сезо�
 ```bash
 magnet:?xt=urn:btih:4BC7A85958D85709DE3C0D083147EE8943FBD7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

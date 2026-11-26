@@ -19,8 +19,7 @@ Halloween Chronicles: Monsters Among Us / Хроники Хэллоуина: М�
 ```bash
 magnet:?xt=urn:btih:29BBAF532A19FFF6F615ACDD38F04825185C25B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deck of Ashes — это приключенческая игра с тактич
 ```bash
 magnet:?xt=urn:btih:A4AB2A073B4BA79647C4F0A7989DC4420B1ACF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) Repack R.G.Catalyst
 ```bash
 magnet:?xt=urn:btih:EDA8ECD3DA38E62E9198A06B5A5D69109AEF8A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Weedcraft Inc изучает индустрию производства, выр
 ```bash
 magnet:?xt=urn:btih:8C13B9D00588CE2BA774A8F5024313C579478D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SUNLESS SKIES (2019) [En] (1.2.1.2) License CODEX
 ```bash
 magnet:?xt=urn:btih:52E09768B92C81993AD5C0E17012FB57C9A4E3C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

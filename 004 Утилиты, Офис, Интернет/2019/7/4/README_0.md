@@ -19,8 +19,7 @@ Starus File Recovery восстанавливает файлы, утерянны
 ```bash
 magnet:?xt=urn:btih:78B8E2FCCF7C2FBA62541BB196DE9DA60A3C0C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

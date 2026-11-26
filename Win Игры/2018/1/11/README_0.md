@@ -19,8 +19,7 @@ DYING: Reborn - это игра-головоломка в жанре «Эске�
 ```bash
 magnet:?xt=urn:btih:B2AC5D7BDA0A453FEF4266289872C4A7D1131AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:9CF116DBB65C7D858421519AC044315B110F234A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

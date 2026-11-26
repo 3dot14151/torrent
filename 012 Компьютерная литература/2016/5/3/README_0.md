@@ -19,8 +19,7 @@ BIOS (Basic Input/Output System) - базовая система ввода-вы
 ```bash
 magnet:?xt=urn:btih:6D61151873047B8F1ABA86C224659B743FCAA4F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ ArchBang Linux — легковесный дистрибутив Linux с пла
 ```bash
 magnet:?xt=urn:btih:75295B566E4654EB2343A9E72582846F425F8968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

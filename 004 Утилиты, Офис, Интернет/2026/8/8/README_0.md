@@ -19,8 +19,7 @@ AutoSettingsPS (ASPS) - это инструмент, для автоматиче
 ```bash
 magnet:?xt=urn:btih:6AE1EF52E97EF9FE51E2FDCDDD36B60D18C62222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Google Chrome — быстрый и удобный браузер для раб�
 ```bash
 magnet:?xt=urn:btih:92820AB791E728A2D51A95464B6D614E4434C9FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:5C146F0DF8BE2538A355C7344CE98D2BEE9B95EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ ProxyRouter — это приложение для Windows, которое на�
 ```bash
 magnet:?xt=urn:btih:2CE7E8679ED3006D2B58D1469472B7A9E110341D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Raven — это современное нативное приложение д
 ```bash
 magnet:?xt=urn:btih:B7F2AE07C45F3D4FC5DB012E696B00DCC942FA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

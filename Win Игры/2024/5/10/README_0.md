@@ -19,8 +19,7 @@ Pizza Possum - это забавная аркада с поддержкой ко
 ```bash
 magnet:?xt=urn:btih:B4FAF24044532275713B98CA6CFA5001BE3B6E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ King Arthur: Legion IX представляет собой сочетание п
 ```bash
 magnet:?xt=urn:btih:A1C09EC51345F80516F8A31C1772811A21216D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Last Train Home - это интригующий тайтл, погружающи
 ```bash
 magnet:?xt=urn:btih:744AEF6879A5E5FFC795DC6D5012102811D14DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Dwarf погружает вас в мир, овеянный легендам
 ```bash
 magnet:?xt=urn:btih:468D120BF7A1F2629A2E22372731A285CF78B59C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:C7C5E0C36000CBA8A2C481B036107FDC4C21EAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

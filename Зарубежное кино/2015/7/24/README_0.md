@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:0C4D3C28119DE30E5F5D1AC543AD3D3BE8C9173C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7516752E96067261EF23A47E37E5A47FF7433044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ XVII век. Речь Посполита объята огнем, спровоц
 ```bash
 magnet:?xt=urn:btih:61E3741BA0A600BB72D99AD7A73309E50598CA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

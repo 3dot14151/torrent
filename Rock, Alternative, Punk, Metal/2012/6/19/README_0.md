@@ -26,8 +26,7 @@ Kaila - Миражи Гипербореи (2012) [MP3|320 кб/с]<Hardcore, Met
 ```bash
 magnet:?xt=urn:btih:6AE5BCFCF1F234CF05FABED4DAF4E5F12635472E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:160A61D733BE524D0BE45C0472DE537A2015C704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ The Smashing Pumpkins - Oceania (2012) [FLAC|Lossless]<Alternative Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

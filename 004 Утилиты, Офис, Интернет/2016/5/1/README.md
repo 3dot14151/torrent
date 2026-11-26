@@ -19,8 +19,7 @@ Ultimate Windows Tweaker 4.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:A3212AF93766DA4B6277AC2367661FE264AC76C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

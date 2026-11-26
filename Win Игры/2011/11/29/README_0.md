@@ -19,8 +19,7 @@ Eko: Episode 1 - Strange New World - первая из трех частей ю�
 ```bash
 magnet:?xt=urn:btih:0B7E80C77E93F0876F47EE18FD6F7407A282206E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Throne of Olympus (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:BD7038661F3417EA701CE4DD84880DA4835CC29B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enlightenus / Эстетика (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:BB3827F1B701AE60F866BB6B79DE46714B0BDAB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

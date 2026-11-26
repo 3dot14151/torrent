@@ -21,8 +21,7 @@ Amatory - Огонь (2016) EP [FLAC|Lossless|tracks] <Alternative Metal, Nu-Met
 ```bash
 magnet:?xt=urn:btih:FBD5203BF1AA2C1A8473D857C7AFAD74A993AE8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Amatory - 6 (2015) [FLAC|Lossless|tracks] <Alternative Metal, Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:F0C5F37639DB4C32592617299B961E448905AB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

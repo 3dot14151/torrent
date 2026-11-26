@@ -20,8 +20,7 @@ Art Me: ИИ-художник v5.4 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:68F2F5027374573A046AEB0A529AC51F0622414D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:7C86FF767299DD7D17CDA441992656AF0D072FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Rowel 1.1.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F74761082546376E2E1FFFE6217611B8FE5B0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Motrix Turbo — это Motrix v2, переработанный с нуля с �
 ```bash
 magnet:?xt=urn:btih:51548D0426B8DD317CCAFF9D7DAC77EA827222AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ OnionHop V3 — это современное кроссплатформенно
 ```bash
 magnet:?xt=urn:btih:642C63809B56AAA913B74375DD0FC98EDEE3F644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ TweakHub создан для работы на USB-накопителе. Рас�
 ```bash
 magnet:?xt=urn:btih:BE9FC526F2B8367525418064A33381A714F018AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ OpenNetMeter поможет вам точно понять, как исполь�
 ```bash
 magnet:?xt=urn:btih:CB83DCFF74334CBBD6141686C2292F5E9D2FA5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Reduce Memory 1.8 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6902C6979F360A45AE8C77ADC7580571294C52CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ WinScript — это лёгкий и простой в использовани�
 ```bash
 magnet:?xt=urn:btih:947F0BE4592C4473AC5D139005B2712D9A3DCB5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Mozilla Firefox Portable — это версия Mozilla Firefox от PortableAp
 ```bash
 magnet:?xt=urn:btih:D3F76BBF0AFA398391077BFF07A57756A08FD31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ OCCT 17.2.3 Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:DCE3D99ED0991499F732DE5C2E16CA6333223442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Just Manager — это многофункциональный, универса
 ```bash
 magnet:?xt=urn:btih:6BC80555D5B15F338C25A4E31F6423A9783AB45E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Snagit предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:14F9F9015BAACE9F1EEBA3D5F0B3943849601635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

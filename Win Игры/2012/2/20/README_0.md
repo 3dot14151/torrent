@@ -19,8 +19,7 @@ Eufloria - игра, в которой вам предстоит путешес�
 ```bash
 magnet:?xt=urn:btih:E5D35A6F2FE516F5655F4AEDDF3D5A045265C38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Star Prospector - одиночная стратегическая игра в н
 ```bash
 magnet:?xt=urn:btih:7711BE72B5E9544B41B1863DEA6CCCDB42A874D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C06EAAE75C4057ED6A3AC691EB05FF815B719F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB509390F8D7460DDFBFBB2E8C24737781E23052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

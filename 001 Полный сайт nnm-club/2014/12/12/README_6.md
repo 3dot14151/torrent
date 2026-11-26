@@ -18,8 +18,7 @@ Halo: Сумерки / Halo: Nightfall (2014) WEBRip (сезон 1, серии 1
 ```bash
 magnet:?xt=urn:btih:C66205D26C9C06141E5B1F2711FF069AF42A4C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E5B1585425D60D0A6C27C5A943D12C5B3A6CFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

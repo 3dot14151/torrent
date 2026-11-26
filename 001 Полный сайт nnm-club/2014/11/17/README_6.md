@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:39EC3002AB8EA6E11687EF536F99E33D01EF533C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ A Bird Story - это непрямой приквел To The Moon (действ�
 ```bash
 magnet:?xt=urn:btih:6E04E64119ADE2338D9FBA76B45D0BB189B36193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Nik Software Complete Collection by Google 1.2.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:607B6B240881F521778E6047FFFA42199FCA0F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:147603957AC744E35B5697EF4AECCBBAB1B343B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Eufloria HD - редакция в формате высокого качеств
 ```bash
 magnet:?xt=urn:btih:4B41A1C0B9795BEF5789C87374AFB3BEDD0AA0E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67B3C67D0BE3866B5CA3A315A52D1318D59E5081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Ookami to Koushinryou / Spice and Wolf / Волчица и пряности (п�
 ```bash
 magnet:?xt=urn:btih:27DE71275C7E871D3FC68B7B1D511E21E2DECEA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Middle Earth Shadow Of Mordor [Rus] (2014) [XBOX 360] (16537) [Freeboot]
 ```bash
 magnet:?xt=urn:btih:D017387A1C9C3DC672F553D774C5AE15B2400327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C04F9882A02335C3D802ED4AB58C24B2DA35689E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ NAVITEL® выпускает глобальное обновление карт 
 ```bash
 magnet:?xt=urn:btih:7539D2389DB033392A9282282302518F1354213F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 11.2014 [Ru]
 ```bash
 magnet:?xt=urn:btih:2AA22F0E9EF8F54FEBE0C9D67BD6E0F07367F5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Dungeon of the Endless - это смесь из жанров Rogue-Like и Dunge
 ```bash
 magnet:?xt=urn:btih:5EFC335574A4F4CD4514841271077158D85EF0F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94586C390C62B6CA91D50893A910576EE1F66F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1282FE8918F42658017009A9FCE4A2D2595946B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

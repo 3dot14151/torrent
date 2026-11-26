@@ -19,8 +19,7 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 ```bash
 magnet:?xt=urn:btih:259BE51E8E2A0777FF0DB389FFDCCA0F1DF819BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

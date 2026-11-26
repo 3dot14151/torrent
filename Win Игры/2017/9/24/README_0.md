@@ -19,8 +19,7 @@ The Secret Order 3: Ancient Times / Тайный орден 3: Древние в
 ```bash
 magnet:?xt=urn:btih:729ED1583FD5C547B6A89D69BBE390A269DD2A5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Figment (2017) [Ru/Multi] (1.0) Repack CoolGames
 ```bash
 magnet:?xt=urn:btih:9CF6C8F2928552429D9B586B08C9E6501136EA74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.0/dlc) License CPY
 ```bash
 magnet:?xt=urn:btih:5A8E375C2E631AB2888B081963B135F0639CC379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

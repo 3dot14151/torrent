@@ -19,8 +19,7 @@ mirethMusic 4.4.1 [En]
 ```bash
 magnet:?xt=urn:btih:450C5156B20269C95AD8B18CADD95657FEC6DEFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Valentina Studio - это идеальный инструмент управле
 ```bash
 magnet:?xt=urn:btih:9D1178ECDB4D68718D8B86A7B131C18CEC97BAB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C50DA5078479DCD217B1FE83B72821CE9E5C3280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Lu Watters' Yerba Buena Jazz Band - Air Shots From The Dawn Club 1941 - 1942 (19
 ```bash
 magnet:?xt=urn:btih:891F1DC2C02C46D63B635994411DE570FBB16318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AFF65B9D6643143E0D8C7F6E3AA8436BF7E6340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66A8D40FF69CC23DB45F7A0367B07CF64AD1E012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ AText ускоряет вашу запись, заменяя сокращени�
 ```bash
 magnet:?xt=urn:btih:3473FB587B994CBEA8CBF211C609C246CF835AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB4A1F28BEAF4C2E48153AA806202BC679F4283C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ QLPro Studio инструмент управления базами данных
 ```bash
 magnet:?xt=urn:btih:3C8F0EA406F9C7686B6484DD4B6D5D887A0120FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Above & Beyond - Group Therapy 356 (24.11.2019) Radio DJ Mix [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:9D739425B84BC7F5CE6FA9EB857A05F7379DB8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ VA - Beatport Trance Pack #02 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:AABCC33E9347BEFF4396E63B54E6E55CE43679AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ NetShred X - утилита не просто для удаления кэша �
 ```bash
 magnet:?xt=urn:btih:E98F22F9FBBC8CB75A2B8F720E6D86D9FF9308E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:935E55BEE6BFE2DEDAB378B8407F87C01F4ADEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Kurushimi - What Is Chaos? (2018) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Jazz
 ```bash
 magnet:?xt=urn:btih:F54D6B7B8B4823095547C3D706B39DF06A6672E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46BE2CA5630FBE79D6B8386B71085B4338FC0E2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Network Radar предоставляет Вам информацию о сети
 ```bash
 magnet:?xt=urn:btih:BFBD7F48BB58233BFCA38D6F9299344BB772B5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ SQLEditor - визуальный инструмент для разработк�
 ```bash
 magnet:?xt=urn:btih:666DC139FBA1388F6383B9FF9AB9D7FC1FC74038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Gudars Skymning - Dansa Tillbaks Till Din Grav (2008) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:3B8C0FD8597865332D539652A0AEB800F21C9065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ Stars & Belles - Xmax in Harmony (1995) [FLAC|Lossless|image + .cue] <Acapella, 
 ```bash
 magnet:?xt=urn:btih:818BD7AD47B28A706FE36B7F8B109DAC2A3D7F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ Antivirus Zap - небольшая утилита, которая проскан
 ```bash
 magnet:?xt=urn:btih:EA8E7D0535EEF59C57CBD7176B82172CC1C4C13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Weapons Of Peace - Weapons Of Peace (1977) LP [MP3|320 Kbps] <Electronic, Funk S
 ```bash
 magnet:?xt=urn:btih:7EEFC07AB062E52BD19D9F800568BE61862AA263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ Deep Blu' - Under The Ocean (2006) [MP3|320 Kbps] <Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:DF6EFEBEEA146CC197DAD9CEB4E6D5E8F9B4B958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ Party Poppers - Sing-Along Christmas Party (1997) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:985F33E57FAD40CD675B496025AF9446E2E3A478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ Aging - Suitable For Night (2017) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Jazz
 ```bash
 magnet:?xt=urn:btih:4FCFCF1D0C9D91244F5AB198BFEE0466C671EC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ Wondershare Recoverit - профессиональное приложение, �
 ```bash
 magnet:?xt=urn:btih:749CE825AC94815A415E943836AFEEF7B7BBD355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ VA - Kiez Beats: Retro Futuristic Sounds (Revisited 2k12) (2012) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:7C5B023355D1C8C24456169A9FC90C895302D497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

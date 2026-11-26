@@ -19,8 +19,7 @@ Mini Motor Racing X – аркадные гонки на микромашинк�
 ```bash
 magnet:?xt=urn:btih:56BED33E53EFC8304790A152BD274CA7198F52FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

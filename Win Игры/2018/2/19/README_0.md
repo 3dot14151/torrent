@@ -19,8 +19,7 @@ Impresja - это исследовательская игра, происход�
 ```bash
 magnet:?xt=urn:btih:70D079ADA54E1335C03ED8C66F488ABBB1B92536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hunahpu Quest. Mechanoid (2018) [Ru/En] (1.0/upd1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7EEE697EA6AEC6E56B36ECBCF998C6A0A6E9555F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dungreed (2018) [En/Co] (2.19) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C75BF07F37E618AD25169CB9D6DDE9FF9AD2F969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DYO - Это кооперативный платформер для одного
 ```bash
 magnet:?xt=urn:btih:2C591EAE13C30E80B35CDB8640DC1078BF2760A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

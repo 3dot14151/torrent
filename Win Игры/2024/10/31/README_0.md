@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C2B2E5C0B3EBAED5D9D95666ADA64D3D816CC10A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jujutsu Kaisen: Cursed Clash (2024) [Multi] (20240925/dlc) Scene Tenoke [Ultimat
 ```bash
 magnet:?xt=urn:btih:ED1BD19BA6075D7E378518938E5999C78D5E44C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Riot Operator - симулятор сдерживания массовых бе�
 ```bash
 magnet:?xt=urn:btih:62464752ED8E11EB19D7688FBF48E37C8C6B06D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blockbuster Inc. погружает вас в самое сердце Голли
 ```bash
 magnet:?xt=urn:btih:ECAF636EA73BE0F47D065A2FB719CEC385CADDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
 ```bash
 magnet:?xt=urn:btih:732543A42A37E8DAC793FEDA0EBA7507341A5DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sofie: The Echoes (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B4D2A26281E80A0DE4D656A0EFEA32A1B9DA5607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Frontier Hunter: Erza's Wheel of Fortune совмещает элементы п�
 ```bash
 magnet:?xt=urn:btih:E196EDD231278FCE341635552EE4CFE183A1FED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.3.1) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:DF2D1541BFB284CC6375D65C5CA05A7482FF53B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Don't Be Afraid 2 - хоррор с видом от первого лица и �
 ```bash
 magnet:?xt=urn:btih:C770446D6B8AFE53365B5C94CC39B48D50E9F76A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Unity of Command II (2019) [Ru/Multi] (Update 29/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3E1CA48DA8D4DF19E70F0DDF2B16B48142F3D421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

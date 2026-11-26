@@ -19,8 +19,7 @@ Nevertales: The Beauty Within Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:BD998AD9C393976010251808D2A281C97D5E7945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Clockwork Tales: Of Glass and Ink Collector's Edition (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:6834C7C982DE0585B2863FFCA3097AB5FAB702CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

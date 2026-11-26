@@ -22,8 +22,7 @@ A4 - Poor Man's Moody Blues - 6:57(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:08E539E3075190C0CD52FB0717FAA74B039D6333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Crash Dance 2:09(   Читать дальше...   )Жанр: Pop, Electronic
 ```bash
 magnet:?xt=urn:btih:F2FCFBC7F78482EE24A0C54C7D666AD00A0A3D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

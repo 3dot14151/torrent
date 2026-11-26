@@ -20,8 +20,7 @@ Cybion – рок-опера с научно-фантастическим сюж
 ```bash
 magnet:?xt=urn:btih:D13A4D73F726FA38F3C26208CEF6D9CA0E4F43A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

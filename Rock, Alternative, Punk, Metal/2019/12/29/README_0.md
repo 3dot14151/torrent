@@ -22,8 +22,7 @@ Dungortheb - Intended To... (2003) [WavPack|Lossless|image + .cue] <Technical De
 ```bash
 magnet:?xt=urn:btih:9C42C41866C060FD5187E88D6FA3F7A88473712E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Psycroptic - Symbols of Failure (2006) [WavPack|Lossless|image + .cue] <Technica
 ```bash
 magnet:?xt=urn:btih:AA43CA54DDD6E2E4549A9ACE56B9975A64F96566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Les Discrets - Septembre Et Ses Dernieres Pensees (2010) Limited Edition [FLAC|L
 ```bash
 magnet:?xt=urn:btih:CA8213391E7AF9C22CA2CEFA9C0D93F1C2F63879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ GB Arts - The Lake (2000) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:32813B6FF506291DAD044457CAFA6B50E1F2C160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Rydell & Quick - 2 альбома Discography (2006-2012) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:4509E2C93B2F1B4833A26BDA93016BC72022B276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Sons Of Apollo - MMXX (2020) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:A0EB38F30B7133862E5D374220C3147841FAF674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Alcest — французская группа из города Баньоль-
 ```bash
 magnet:?xt=urn:btih:92B01B73418DF0173373A243CAEED11D32D37D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Rydell & Quick - 2 альбома Discography (2006-2012) [MP3|320 Kbps] <Melodi
 ```bash
 magnet:?xt=urn:btih:C1EF096DEF1D854C1ADCE7878907B288F1380BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6361198C43A250B66091329BAA28B1750A841A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Silvertomb - Edge of Existence (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Doom>
 ```bash
 magnet:?xt=urn:btih:2D076026B53188F34EEC2351E43A3A131BF9423F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

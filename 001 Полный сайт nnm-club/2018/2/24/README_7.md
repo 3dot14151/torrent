@@ -22,8 +22,7 @@ Teddy Hill And His Orchestra - 1935 - 1937 (1992) Classics [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:A65064895618FE010AA4A7F3770FC238A544B229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mel Torme - Night At The Concord Pavilion (1990) 2002, Concord Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:ED11A03C5CA27B7BC0995AAF7EAA687431BE2DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - The Sounds Of The Underground 11 (Compiled and Mixed by Deeper82) (2018) [M
 ```bash
 magnet:?xt=urn:btih:9D70166F45A0551380C1BB3E7BEE90AD83491FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F334E8E23CC7F521CBE8D1BA9CB013B8E15728BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5410F0F1ED4AB444E651FFA634B17F7EFCAB0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ VA - Double Environment: Progressive House Garden Music (2018) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:616CFEE8E91C158F8D8126B37063815852A1EDF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - The Official UK Top 40 Singles Chart 23.02.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:220FF452A8450D219384E9E9D0D9669DE6EFD535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4C0825230B987D067C1E840997B8A4AD1E9551A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ CD1 - Harry Edison, Buck Clayton, Red Allen:
 ```bash
 magnet:?xt=urn:btih:71B6507B9EDB328447A2AF37A0054C2633E96A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [M
 ```bash
 magnet:?xt=urn:btih:B2357E58656CE1E69F019DE0477DEA425A7A06C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ VA - Hidden Places Chillout And Ambient 7 (2018) [MP3|320 Kbps] <Downtempo, Loun
 ```bash
 magnet:?xt=urn:btih:D1067442C442051109C7BC591FA6B455C82F7883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6072ED38822BD46C264AD3644F16C9EB007C2AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Neal Morse (Нил Морс) - It's Not Too Late (2001) Ear Candy Records [MP3|3
 ```bash
 magnet:?xt=urn:btih:9FA65634DB29C212F6B8CC65C6992DBD193EB178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Neal Morse (Нил Морс) - The Transatlantic Demos (2003) Radiant Records [M
 ```bash
 magnet:?xt=urn:btih:F045E906E81A5FDABAE104C65C675D7F278838CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:041E3D51FCF0BAA4BD19C66E7D38B1BE67911C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ Merovingian - Prøv å Forstå (The Remixes) (2018) Drift Deeper Recordings [FLA
 ```bash
 magnet:?xt=urn:btih:8D39DE1254F0F0E8605D624FCFFAFC53424179E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ MegaDriver - TriMetal (2017) [MP3|256 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0CA4FE16104A88E28652574B78D7041DB7B9B9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E88E040BC8934ABF6A330135D8E2A45C2CFB870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ FileZilla — это свободный многоязычный FTP-клиен�
 ```bash
 magnet:?xt=urn:btih:BB1CA41C138EDBB488413A53AD8A1EF6FD9DA6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ VA - Record Super Chart #525 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:34F521F89B167313EA0C9B3AD5E011916106E75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Neal Morse (Нил Морс) - Testimony (2003) Inside Out Music, 2xCD, Album, P
 ```bash
 magnet:?xt=urn:btih:F4B16A9232FF8A686A97106D4351A4E4A8EA9B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1F2653FAA47E7AA99461AE6D8B34C9A719724C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8A94CCD27F7568F1BF49F7DF353A7300FA66540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BD91DF74E766547BEE1DEB66A6E5FB6D6B973CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ Totally Mild - Her (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, 
 ```bash
 magnet:?xt=urn:btih:80DAF4CBE8EFD0BE605796B77523623AB3454DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ MegaDriver - For Great Justice (2018) [MP3|256 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:369A281E3D73715461D5FD82A9F843E958233601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

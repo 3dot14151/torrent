@@ -22,8 +22,7 @@ VA - RETROспектива, часть XII. Мелодии и песни из к
 ```bash
 magnet:?xt=urn:btih:94D59E8C99EE03292BFCC65957A7E8A6FC76B3E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

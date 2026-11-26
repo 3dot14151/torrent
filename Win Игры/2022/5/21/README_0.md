@@ -19,8 +19,7 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 ```bash
 magnet:?xt=urn:btih:39CB569FDEA285632684E10397F231B84097CE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

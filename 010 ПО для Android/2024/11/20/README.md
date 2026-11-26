@@ -22,8 +22,7 @@ Magnifying Glass / Увеличительное стекло v3.9.1 (от Pony M
 ```bash
 magnet:?xt=urn:btih:84EF63F199F998F7A5E31903224D1EA97A4E16E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Grab Photos From Videos / Фото из видео v11.3.2 Mod by Mixroot [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:B03674AF46DC6FEEFFC8E5619AEBC93E9B828079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

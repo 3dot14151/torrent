@@ -20,8 +20,7 @@ Matt Kloskowski | Photoshop Compositing Secrets - Секреты компози�
 ```bash
 magnet:?xt=urn:btih:982A39016A059DF26426D57AFC19C6CC292BD9C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9999360C7BC570A4319667C128F19C10AD32A7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

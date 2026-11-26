@@ -20,8 +20,7 @@ CSS Master специально разработан для веб-дизайн�
 ```bash
 magnet:?xt=urn:btih:11F30914A06D6D0B96944122C49EB77FBAB4E09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

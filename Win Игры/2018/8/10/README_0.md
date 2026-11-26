@@ -19,8 +19,7 @@ Total War: ROME II (2013) [Multi] (2.4.0/dlc) License CODEX [Emperor Edition]
 ```bash
 magnet:?xt=urn:btih:FFF75C0B0B87D10067DD1E5D391F958C7A573005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ You'll also find best practices for producing, manipulating, and consuming PDF d
 ```bash
 magnet:?xt=urn:btih:61A4907DF38938A807D706B22EE71EB89FC6EED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

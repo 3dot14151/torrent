@@ -21,8 +21,7 @@ BlueScreenView сканирует все имеющиеся файлы авар�
 ```bash
 magnet:?xt=urn:btih:66DA82FCFD6ACB6730F1A6F234B94A4C765504B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

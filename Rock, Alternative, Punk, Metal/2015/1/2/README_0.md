@@ -27,8 +27,7 @@ Seelenfrost - ☽ (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:35CD63F2BB4C38C09A996055C7AA13D905DA30D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Old Man's Child - Vermin (2005) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:58760E5AB32466BEFEAA73502314670823F83402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ The Old Man's Child - In The Shades Of Life (1994) [MP3|128 кб/с]<Melodic Bla
 ```bash
 magnet:?xt=urn:btih:2F60877730F96A441F60D5A3BE78C81DDC022D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Northland - Downfall And Rebirth (2015) [MP3|320 кб/с]<Folk / Melodic Death M
 ```bash
 magnet:?xt=urn:btih:5FF0382883FDB5E200AD69EED01075BE7FFCBB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Victorius - Dreamchaser (2014) Japanese Edition [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:0B3B367DC0431905F81BD6209B4B013F16A2A378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ CRYXUS - Rise (2012) [MP3|320 кб/с]<Industrial Rock>
 ```bash
 magnet:?xt=urn:btih:831347C8D5BF0C5487150EA6B9051A429A960516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Five Finger Death Punch - The Way Of The Fist (2007) [MP3|~225 кб/с (V1)]<Gro
 ```bash
 magnet:?xt=urn:btih:C4808D77B06F3F8351A74E76BA23001FDB6CFE20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Empire - Chasing Shadows (2007) Japan [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8889F0918704F39D784C98FEB93B92DE1FFEA4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Sonata Arctica - Pariah's Child (2014) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:55ED899FFF0E468580E55D3BF754BCDA457F060D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DED76D742DA382C33CFD7AB43AFD1C33AAEA784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

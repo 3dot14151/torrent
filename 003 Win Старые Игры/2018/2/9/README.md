@@ -19,8 +19,7 @@ Lighthouse: The Dark Being (1996) [En] (2.0a) License GOG
 ```bash
 magnet:?xt=urn:btih:811A3550AC16181774A40694FCC9E124CA7A3706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

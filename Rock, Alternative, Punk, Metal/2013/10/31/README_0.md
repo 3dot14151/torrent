@@ -27,8 +27,7 @@ Dawn Of Tears - Act III: The Dying Eve (2013) [MP3|320 кб/с]<Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:1D6EA91DAFB6C73A3CEA66BA5B86B9B6095F4442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Pearl Jam - Vitalogy (1994/2013) Epic/Legacy (Remastered) [FLAC 2.0 96/24|WEB-DL
 ```bash
 magnet:?xt=urn:btih:B6920A6D2EF1518AD9878C7AAA041D73E549C272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Dethklok - The Doomstar Requiem - A Klok Opera (2013) [FLAC|Lossless|WEB-DL]<Mel
 ```bash
 magnet:?xt=urn:btih:DA25DE4B4F4C6D33473BD31D7DB4D87D741D244F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Lumen - Нет времени для любви (2013) [MP3|320 кб/с]<Alterna
 ```bash
 magnet:?xt=urn:btih:6376E3B2DF51320ADC9231B2A4B5424017BDE97F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

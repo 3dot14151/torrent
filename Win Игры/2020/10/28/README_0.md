@@ -19,8 +19,7 @@ Magic Academy 2 / Академия Магии 2 (2009) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:98047C020FC2A7C22C1EDE308ABCBDF28AD5C5FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Infliction – сюжетный психологический хоррор от
 ```bash
 magnet:?xt=urn:btih:B4002E950C965C933CB78434C1D91BA2FE5B02DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

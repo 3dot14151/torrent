@@ -28,8 +28,7 @@ B09  You Don't Say Us Anymore  [04:05](   Читать дальше...   )1985Ж
 ```bash
 magnet:?xt=urn:btih:54B9939AA97409C019B6478AE23B545AC9F1DE2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

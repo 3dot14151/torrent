@@ -19,8 +19,7 @@ Gone Viral – захватывающий игровой проект, разр�
 ```bash
 magnet:?xt=urn:btih:BDF984B8C6B599212AFA744815A48372758BEFBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Magister (2021) [En] (1.0.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:FDF93279980334E77AB563547D29997C2EB19FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Serin Fate (2021) [En] (1.0.22) License GOG
 ```bash
 magnet:?xt=urn:btih:68F69F32ABBD738FE286CC1346A37B3A3628BEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A37D592EFEE4291CF21EEB5F6E460844DF2FEDB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Out of Line (2021) [Ru/Multi] (1.0.1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:5825C7D3ADF866BF91959D0E58DBFFDE868858D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Hand of Merlin (2021) [En] (675212/dlc) License GOG [Deluxe Edition] [Early 
 ```bash
 magnet:?xt=urn:btih:E7EEC6C49EC92EA84E441C4D7CD9D50BCBB7B6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

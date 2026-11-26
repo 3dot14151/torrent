@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:42F7AC019645CC740E105B1EB359ECDD8AB75F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B6AADDF71E1C07D9E70F20B3C7C9DCE19F5796D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ha заре мира, когда Землю населяли фантастич�
 ```bash
 magnet:?xt=urn:btih:F6C297357A3110D99780A727F59ED4060B59CBB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

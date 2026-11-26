@@ -20,8 +20,7 @@ Thunder Wolves (2013) [Ru/En] (1.0u1) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:918F95B83D914873CD1C3E13CCC85118CBEF5E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Carrier Command: Gaea Mission (2013) [Ru/Multi] (1.6.0011) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:8CE13B378245DD2350DDFA75C80E1BE9F8E4B1B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Carrier Command: Gaea Mission - это футуристический экшн �
 ```bash
 magnet:?xt=urn:btih:B75A86E001D59D7E0F21C36069A7DB1EAAAF4099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

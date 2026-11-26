@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:EAD97277F11EEFF0D94A5B50DBFE003A9673EA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Golden Resurrection - Man With A Mission (2011) [WavPack|Lossless]<Melodic Neocl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Nina Hagen - Volksbeat (2011) [MP3|320 kbps]<Punk>
 ```bash
 magnet:?xt=urn:btih:80B73FB8AEC5E3481CBA36D5A4F627ECA8C6EC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - AHK-toong BAY-bi Covered (2011) Tribute to U2 [MP3|320 kbps]<Rock / Alterna
 ```bash
 magnet:?xt=urn:btih:55F738A9810425354C07A5FFA5821651428B93E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ CD 12010Жанр: RockПродолжительность: 01:13:46
 ```bash
 magnet:?xt=urn:btih:517C77F917298EA22A8CFDAA3614366C7F2511B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Chris de Burgh - Footsteps 2 [Limited Collector's Edition] (2011) [FLAC|Lossless
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Five Finger Death Punch - War Is The Answer (2009) [FLAC|Lossless]<Groove metal,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

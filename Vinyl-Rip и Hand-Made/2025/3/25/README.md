@@ -22,8 +22,7 @@ Lyrics By - Fish(   Читать дальше...   )Жанр: Progressive Metal,
 ```bash
 magnet:?xt=urn:btih:12D2467D9E45962D8740CB9B7320B70B98BD7516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nightwish - Oceanborn (1998) Released, 2010, Drakkar Records [FLAC|24/192|image 
 ```bash
 magnet:?xt=urn:btih:B9BAB3962A9DA59BA73103FD688889EDE186F52F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 - Misfit Opening(   Читать дальше...   )Жанр: Sludge, Progres
 ```bash
 magnet:?xt=urn:btih:3F6C3A562857C2654B928B73560756D696E28419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

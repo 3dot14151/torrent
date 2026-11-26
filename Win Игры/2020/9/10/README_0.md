@@ -19,8 +19,7 @@ Necromunda: Underhive Wars (2020) [Ru/Multi] (1.0.4.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9F220707C7F50F5C99E9058FB74F3A9BD434FA34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

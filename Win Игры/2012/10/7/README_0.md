@@ -19,8 +19,7 @@ Whispered Secrets: The Story of Tideville Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:82E5AB8913742CFAFEFC96AD18051209B66243A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ F1 2012 — это новая часть всемирно известной с�
 ```bash
 magnet:?xt=urn:btih:F396980DEF84E7CA46D63F2CABA3F1129FA6184B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Tryst - это стратегия в реальном времени, дейст
 ```bash
 magnet:?xt=urn:btih:EF3E1367E3B2937A0BBACB68DF95A3D2AD94D2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

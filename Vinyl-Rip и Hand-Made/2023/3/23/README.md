@@ -22,8 +22,7 @@ A2 Марыля Родович - Баллада О Поезде
 ```bash
 magnet:?xt=urn:btih:550AF49E2C3A2B0C7F8826325B155A975903E1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

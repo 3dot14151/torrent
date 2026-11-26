@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9CC06D6044E439581F53C9781C4E6373AE74DAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ GATE | Gate: Jieitai Kanochi nite, Kaku Tatakaeri | ВРАТА: искусств
 ```bash
 magnet:?xt=urn:btih:515BDD62F4A10914C47EFB0616AFBF01E6B2AE3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:354BF0E3914B86045721086A4913B74B7847BA0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ultimate Adobe Photoshop Plug-ins Bundle 2016 — Пакет включает в
 ```bash
 magnet:?xt=urn:btih:6A434B5A902459AC0B32D6B020E60B9A3232EE0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

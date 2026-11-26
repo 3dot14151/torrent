@@ -19,8 +19,7 @@ Suburban Mysteries: The Labyrinth of the Past (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:680EE69FC4CAE9068CD4455BDBDD1FB96829DD65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Damnation [Ru/En] (RePack) 2009 | VANSIK
 ```bash
 magnet:?xt=urn:btih:CF43A7233C4EB7B2AA11438032ABCAEBF53BFC8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Prototype 2 + DLC [Ru] (RePack) 2012 l Fenixx
 ```bash
 magnet:?xt=urn:btih:FE9385B7A08E1E5673C4AA42284C5856307EDFC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

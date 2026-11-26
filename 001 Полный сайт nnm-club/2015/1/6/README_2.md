@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1752F2F4200C2643A7F9291AC3FDA947CCA5F86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Mozart Master Mix (1997) [MP3|320 кб/с]<Rock, Classical>
 ```bash
 magnet:?xt=urn:btih:150CE77358777A9642BF5DBB3C14D5529269B8AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7708AF00D66F61277A6363D1B5E3BC6C38AC7460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C58D019F8E4512A97FA3E86D372B758161C2AAC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ VA - Mozart Master Mix (1997) [FLAC (image+.cue)|Lossless]<Rock, Classical>
 ```bash
 magnet:?xt=urn:btih:EFABFEC36E5763AE9AB1A8CC1F52F4E746D04855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Wallpapers - Котовасия или 200 фотообоев с любимым�
 ```bash
 magnet:?xt=urn:btih:84B8297BB73F084C0F1D893F67D09C94804DEAD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ HighLoad++ | Конференция по высоконагруженным си
 ```bash
 magnet:?xt=urn:btih:59C2D43C759031C93AB677342D7E9839D7D9947E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ iCalamus может импортировать все изображение и 
 ```bash
 magnet:?xt=urn:btih:CEE32B0F47552C7D640A7246719F6E7E44CB261C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ LEGO Pirates of the Caribbean (2012) [Multi] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:D25445B98C9E5A64137F00262A9A63FE87B3BB43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ Sacred Earth - 4 альбома (2003-2014) [MP3|320 кб/с]<New age, World, Re
 ```bash
 magnet:?xt=urn:btih:64EAFEA097165C6546AC277D99828552EDD5CB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ Comfy Photo Recovery - восстановит цифровые изображе�
 ```bash
 magnet:?xt=urn:btih:42D95B729E094C00A910991360DECD2077356DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ VA - Brutal Yet Melodic 01-29 (2012-2014) [MP3|320 кб/с]<Metal>
 ```bash
 magnet:?xt=urn:btih:D787791B1D7652ED7095651714AC99D38137D880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ Perfect Uninstaller - программа для тщательного удал�
 ```bash
 magnet:?xt=urn:btih:CD65C8C3729A92A767ED25E779820751DDA74FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ USB Safely Remove это надежная и удобная замена 'Без
 ```bash
 magnet:?xt=urn:btih:8E7F1D67EA8C6BE6CB1C2094BB23277675752EA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C079C7B1886509AB6AB4E832548ECB7CADF009BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ WinX HD Video Converter Deluxe - профессиональное приложе
 ```bash
 magnet:?xt=urn:btih:7751DB3D6A69752EFB0461F4CFD33EEB633809FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E13BA3D4438524D3D28919189A7844D4BB8DFFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E737D94AA9CEB92DE4CB670FEF349A524692B75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Comfy Partition Recovery - предназначена для восстанов�
 ```bash
 magnet:?xt=urn:btih:3E99BF7218C65E559AA7F280FB83C309A47BE8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Password Depot Professional - рентабельный инструмент, у�
 ```bash
 magnet:?xt=urn:btih:727B8B31ADB972EB4A8233E20D4D686A0793BCA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ ErlangЖанр: ПрограммированиеПродолжительност
 ```bash
 magnet:?xt=urn:btih:5A2F686432BC2569E676F3FD9085342286B1421C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9988D5A3739E2C66379486FDC9B45D84CAEAAFF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B95F6562E869D38F0763553EF8D41859DE4637F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AFB69B5790EFD5B66E4443B49322B75327D8C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39B0AB29EE81C4FA99513FC37A5D4C4E1E2259FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0B2144F0D9E9AB77DB0EA6E1964C49BF7F9CAC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

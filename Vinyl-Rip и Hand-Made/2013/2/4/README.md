@@ -27,8 +27,7 @@ B4. Clean 5:29Жанр: Synth-popПродолжительность: 00:46:30
 ```bash
 magnet:?xt=urn:btih:AFE98CDF9D88713EFFB06255062F95905FC51DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

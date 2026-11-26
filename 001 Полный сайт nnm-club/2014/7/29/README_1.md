@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FA2BDE48752119C083A4FD5C52CBD2EF6F7E2278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45BEE40961309B407DABCBAF8B855A274A0B0608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Insane Cold: Back to the Ice Age (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:0DFC40B2BDA865927ED8D84171C61C8A5D46B3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Puss n Boots - No Fools, No Fun (2014) [FLAC|Lossless]<Southern Rock, Adult Alte
 ```bash
 magnet:?xt=urn:btih:604C3D5FDB865DEA7AE11A8A8B8D1583DE75B60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Hans Zimmer & James Newton Howard - Тёмный рыцарь / The Dark Knight 
 ```bash
 magnet:?xt=urn:btih:1D05DBCC7948D8A026A2FC913B54BABC6F007EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CC99BF389BA1C02F4578AE5145064A5F8A6A875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ VA - Mafia: Тhe Сitу оf Lоst Нeаven (2002) [MP3|256 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:691E28C7597DF5125542E6CF42D01475B6295EC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F46A44C3FB93E35BD097B5B7BAB4357E76BC220B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A294E3576869BAD4F6A33679791CE4EACB7F96C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Alan Silvestri - Хищник 2 / Predator 2 (Original Motion Picture Soundtrack
 ```bash
 magnet:?xt=urn:btih:962F69909A343F54C7F6755F2B15C4341C00ABFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ VA - The Best In Minimal Update 10.0 (2014) [MP3|320 кб/с]<Minimal Techno, Mi
 ```bash
 magnet:?xt=urn:btih:918A421F3DFE9D0BF189FCE007DA26527377FE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ Anna Maria - Spain Never Sleeps (1998) [FLAC|Lossless]<Classical, World, Spanish
 ```bash
 magnet:?xt=urn:btih:7AF4568B16B3E1174B39E7286E7B337EE9B846D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ VA - Armada Collected: Roger Shah presents Sunlounger (2014) (Bonus Track Versio
 ```bash
 magnet:?xt=urn:btih:B27F4F182C80B98AAAF1BA37EB5CA4111F446185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B7C3F118C5B3BDB9F28E9D2826D71B549C23F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ Recorder Concerto in G minor, RV 105
 ```bash
 magnet:?xt=urn:btih:1E2960B0FACE5CC058C207A5BF23E85552A58D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A093A00085F6D3B97DA1036AAADF4C654CCDCE75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ Dara - Картина Маслом (2014) HDTV [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:1A3687847F475C420809D9D26A9896DC0B0D867C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ Stereo & Video первым встречает и представляет са�
 ```bash
 magnet:?xt=urn:btih:7770C130DCF7819461361693C02D659676A1DDA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F03B0E7CF6A66F177375A53349B970A651531FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:CC1354290DB85C6604007A26653DA7E560536DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +595,7 @@ Any Video Converter Ultimate 5.6.5 Portable by PortableAppZ [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C06A8B649773512FD300813FE601F5AD44F3C5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F1DEC21ABE2422692098FDBAACB083C4196768D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4C5C52231FAB9F8A27DC365F0E299EDA96745E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +670,7 @@ NG: Дикая Бразилия: Тень орла / Shadow of the Eagle (2014) 
 ```bash
 magnet:?xt=urn:btih:F76239E19D159F22E9DA2525C341CD17BE1EE63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +695,7 @@ Discovery: Город наизнанку. Чикаго / Strip the city. Chicago
 ```bash
 magnet:?xt=urn:btih:DA0A87CB2A6A976DE9F7DD5C4745CBD7D544D01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +729,7 @@ Hans Zimmer & James Newton Howard - Бэтмен: Начало / Batman Begins (
 ```bash
 magnet:?xt=urn:btih:C44B0DDC41F43272E2B41D4C595AAB77497507B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

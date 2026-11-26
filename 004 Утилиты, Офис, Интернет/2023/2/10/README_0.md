@@ -19,8 +19,7 @@ VideoInspector - это инструмент, разработанный для 
 ```bash
 magnet:?xt=urn:btih:366F6CB5ECD4471685F46F93802B7469E3926338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

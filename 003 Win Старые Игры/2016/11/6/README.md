@@ -19,8 +19,7 @@ Myth III (разработчик Mumbo Jumbo) представляет собо�
 ```bash
 magnet:?xt=urn:btih:15A7881D8DCB634B0BA440C60215E24B3662598D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:0E77AA433EBA1F74EC5FC977CD6E4C06113BAB25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Acheloo - Dream (2013) [MP3|320 кб/с]<Deep Spaсe Ambient>
 ```bash
 magnet:?xt=urn:btih:F9BF667DAEEC1AB50463BBB67253C77988B3C167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0954604E66561312031F4111F3302884839375DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ VA - Mistique Collection 017 (2013) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:BAA13D0DB812E58CECA5A09131D1D6853D176D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4488DE0D657154003198913020319FC968AC265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ Beckwith - Anjunadeep pres. Beckwith 01 (2013) [MP3|320 кб/с]<Deep House, Pro
 ```bash
 magnet:?xt=urn:btih:12A51503FDD0427E7C0A997D85BE52C77E209582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Globular - Magnitudes Of Order (2013) [FLAC|Lossless|WEB-DL]<Psydub, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:3FECC9046FFACA60487F1B0E5A7130C72057998C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Johnny Rich - Dreamin' Dog Years (2013) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:E013A32A3516229A4D7B9F188D2DE2E7BC53C949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ Liquid Sound - Away EP (2013) [MP3|~245 кб/с (V0)]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:C44B1433D344ACC039B8EA9B51B311C1BEE50B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ Dimension Zero - 3 альбома (2002-2007) [MP3|320 кб/с]<Melodic Death/Th
 ```bash
 magnet:?xt=urn:btih:77DB2B949DF0F42BF28F5C747AC8500EA1F84358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ VA - Classic Trance Tracks Vol 2 (2013) [MP3|~245 кб/с (V0)]<Trance>
 ```bash
 magnet:?xt=urn:btih:D2D065175A2932CB9E7556296A38310B0EC021B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ Shine in Ash - No Way Out (2013) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:06DC458E74E55486D60BDBEB5A3AFEA7B6BDDFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ Jeff Greinke - Scenes From A Train (2013) [FLAC|Lossless|WEB-DL]<Ambient, Modern
 ```bash
 magnet:?xt=urn:btih:8A302F37A3E4C36ABD5C43A975E8134C2D3C7EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +434,7 @@ Hysteria - Incipiens (2013) [FLAC|Lossless|WEB-DL]<Full-On, Twilight>
 ```bash
 magnet:?xt=urn:btih:1B8B70562541C0594F9E8584FFE636B369997710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +466,7 @@ Slackbaba - Ask (2013) [MP3|320 кб/с]<Dub, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:F8796AC43110328D76ECFD2888CCC1B69706DB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +500,7 @@ VA - Spiritual Protocol (2013) [MP3|320 кб/с]<Full-On, Twilight>
 ```bash
 magnet:?xt=urn:btih:ED3E4950542BD6A5C5EEA4746883658DC4CEDF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +533,7 @@ Champa - My Son (2013) [FLAC|Lossless]<Psy-Trance /Full On>
 ```bash
 magnet:?xt=urn:btih:9515D60D99B238546FB6C4B7366AF13340EAA45A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +567,7 @@ VA - Thai Chill Lounge Vol 1 (Chill Your Mind) (2013) [MP3|320 кб/с]<Downtemp
 ```bash
 magnet:?xt=urn:btih:D575B97A25EC94665200E16671861F628B3BCBD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +601,7 @@ VA - Pure Trance Vol. 2 (50 Trance Classics) (2013) [MP3|320 кб/с]<Trance , U
 ```bash
 magnet:?xt=urn:btih:5AE968FCBA52502E36C0E4924E8A738D45ACA12C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +635,7 @@ VA - Kontor Top Of The Clubs 2013.04 (2013) [MP3|~245 кб/с (V0)]<House, Dance
 ```bash
 magnet:?xt=urn:btih:184976D82F5327EFDB66CE9C76B05342623E67E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5E9F4A70E7179D9E0153ADFCEBE115556C63B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +694,7 @@ VA - 55 Chilled House Classics (The Finest Chill House Grooves Selection) (2013)
 ```bash
 magnet:?xt=urn:btih:B084D28E96FDD707607A02914EE39F4D8BD83F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +719,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59447EF89AA8FF691E1854A5A985B9CC2E8272D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +753,7 @@ VA - Kontor Festival Sounds 2014 (2013) [MP3|~245 кб/с (V0)]<House, Dance>
 ```bash
 magnet:?xt=urn:btih:47410A16DFEECC5CD52C821A02E332D97159342B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -811,8 +787,7 @@ Velvett Fogg - Velvett Fogg (1969) [MP3|320 кб/с]<Rock, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:18C1FE9347140E2079D0297F53581DCBABA0D459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -843,8 +818,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2366737F228592C361823D87ABCFF018AC2F96A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

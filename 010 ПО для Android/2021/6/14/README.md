@@ -19,8 +19,7 @@ Parrot - это приложение для записи голоса, кото�
 ```bash
 magnet:?xt=urn:btih:09245EA4E15C3F6BC0CF9F5F44A4DF24F1732EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total - Recall Call Recorder – отличная программа для за
 ```bash
 magnet:?xt=urn:btih:BCC75EB7AF557041BBAA7DC644CBAAACC0A1EA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

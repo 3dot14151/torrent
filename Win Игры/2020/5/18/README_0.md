@@ -19,8 +19,7 @@ Robin Hood 2: Winds of freedom / Робин Гуд 2: За свободу (2020)
 ```bash
 magnet:?xt=urn:btih:E4CA319EA621CC36CE990E20DC1A5992C6161B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Outpost Kaloki / Аванпост Галактики (2004) [Ru] (1.0.5) Unoffic
 ```bash
 magnet:?xt=urn:btih:388C8EB3729AE85003B07B3082669054AD6BD535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

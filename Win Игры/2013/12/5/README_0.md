@@ -19,8 +19,7 @@ Christmas Stories 2: A Christmas Carol Collector's Edition (2013) [En] Unofficia
 ```bash
 magnet:?xt=urn:btih:4EE868238F62E21F68EE95ED2A2B64C353A2AFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Files: Echoes of JFK (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:ADF9A583A60BE054FEA45BDB8839837621113F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Garfield Kart (2013) [Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3ED5904B4D19528400974F5C18BB6052F1E0EDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Garfield Kart (2013) [Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:43019FA3F9DF990986950A0F0ED5780A47D11CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Speedball 2 HD (2013) [Ru/Multi] (1.0) License FANiSO
 ```bash
 magnet:?xt=urn:btih:7B9EE653577BC3358E42D26512D9AF670C5CEC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Spelunky (от англ. to spelunk — исследовать пещеры) —
 ```bash
 magnet:?xt=urn:btih:7986796B83E7C1C1982C6BC96AC1AD993C38B842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

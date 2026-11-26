@@ -19,8 +19,7 @@ Kristala (2024) [Multi] (1.3.1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:977AC9B9367007F0B10C33AB31AF0F52B1E2D571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phantom Blade Zero - это динамичный экшен‑RPG в эсте�
 ```bash
 magnet:?xt=urn:btih:56C953F38F4568ADBC394F8A5C1DFB020284D3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 ```bash
 magnet:?xt=urn:btih:843722E8759F28CEB037A5A47D749ADC93E2C5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

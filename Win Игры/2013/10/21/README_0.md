@@ -19,8 +19,7 @@ Legacy: Witch Island / Остров Ведьмы: Наследие (2013) [Ru] U
 ```bash
 magnet:?xt=urn:btih:572D6B93C2936422B2DE7EF01C036FCF316B203F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Keepers 2: The Order's Last Secret Collector's Edition / Хранители.
 ```bash
 magnet:?xt=urn:btih:C6F66AC45B1BCD276FDD96CD306CFF6255D5B3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Batman Arkham Dilogy (2009-2012) [Ru/Multi] (1.1) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:19DE39E2B7BFEE67D25D2EFC978F939AAAC22903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Gravi - это увлекательнейшая  головоломка-плат
 ```bash
 magnet:?xt=urn:btih:BA32101AA796B4386C372734117D7BFD2AF5BBFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Cabela's African Adventures – симулятор охоты в полност�
 ```bash
 magnet:?xt=urn:btih:8BBE5E4D64F44AC89F0A9D3C6E882ECC6AD356D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ The Raven — Legacy of a Master Thief — это увлекательное к�
 ```bash
 magnet:?xt=urn:btih:221F51474267151A6D0D6BE664ABA28AC9BDC7E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

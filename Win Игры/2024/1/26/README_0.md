@@ -19,8 +19,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.14.2) License GOG (обновляе�
 ```bash
 magnet:?xt=urn:btih:88AA8BCDC60679E2DCBC20DBC9FADC5096586F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Heroes of Eternal Quest – окунитесь с головой в настоя
 ```bash
 magnet:?xt=urn:btih:25CC0D02702248824035332CFCCF14F5D7BC6C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Source (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:94BDFEFB4A71E6B6F919520CDBC8C7BB3FB2CB64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RIN: The Last Child (2024) [Ru/Multi] (1.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:BBB52455935EDB1F8007ACE7A4BB6EA093E1AB32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Magic City Detective 4: Wrath of the Ocean (2024) [Multi] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:1B05B5C54E097A30D16492ADD78BFB9893886630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

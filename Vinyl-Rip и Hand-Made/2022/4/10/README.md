@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:C8CF10AA50B300402F89823344E282237B761DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4	Hi Hi Hi (Vtip)(   Читать дальше...   )Жанр: Blues Rock, Prog
 ```bash
 magnet:?xt=urn:btih:48B383381F211F2600167B9E196651428328B42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

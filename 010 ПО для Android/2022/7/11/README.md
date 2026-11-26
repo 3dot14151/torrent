@@ -19,8 +19,7 @@ Termux - представляет собой полноценный эмулят
 ```bash
 magnet:?xt=urn:btih:583348517EED380830CC40C27689F40B21FD752E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Parallel Space - является приложением, которое мож�
 ```bash
 magnet:?xt=urn:btih:71C81C6504C938971FC8052B4AE3A0E26C8B341A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NetShare Pro - Позволит превратить ваше Android устро
 ```bash
 magnet:?xt=urn:btih:E6E34529AF2FA8E4998542A214710A8E03F8F553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Auto Clicker - это невероятно простой в применени�
 ```bash
 magnet:?xt=urn:btih:6956773887BD83C50A227CA69201265B2F9B79AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC980F01794E26BAF8C61C8B746AFD036E9134BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

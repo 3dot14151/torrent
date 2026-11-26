@@ -19,8 +19,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.3411.0/1.70) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:54FD8FF749317FEE3173FE0FDCEDC43AC88DD561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Toy Tactics - основанная на законах физики страте
 ```bash
 magnet:?xt=urn:btih:1B2C55CE3E5BD3321773B95A0D2C510BFE0EA3DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nine Sols (2024) [Ru/Multi] (202501031718.687084df.0) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:176529A490427C9BF0FDA6F18C36015150563949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ For The King II (2023) [Ru/Multi] (1.3.5) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:967984F851035E64A266B737C0A0D55C80E60373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mystery of Myths: Heart of Athens / Тайна мифов: Сердце Афин
 ```bash
 magnet:?xt=urn:btih:872A6F00CEF8ADA69B87300EAACCF541F6ACEEA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Touch Type Tale: Strategic Typing (2024) [Ru/Multi] (1.2.68) Repack FitGirl [Del
 ```bash
 magnet:?xt=urn:btih:DF7E9D6F040B7BF8A32519E17F6786079A0C48B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Rusted Moss (2023) [Ru/Multi] (1.76) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:15921EB9B58C186D9B3BB5CF64FA2F1B255CD452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Supraland Six Inches Under (2022) [Ru/Multi] (1.2.3349) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9309D13ED799B8FF24178310B2B88CB69EB72FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Cartier 06 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0CB54C97305E8869338F1F7F932B41FE0BD918FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

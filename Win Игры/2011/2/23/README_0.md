@@ -19,8 +19,7 @@ Ancient Spirits: Columbus' Legacy / Тайны прошлого. Проклят�
 ```bash
 magnet:?xt=urn:btih:7D9F7481026B0B3FA9C9D02278790089092F9A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Age: The Imperial Staff / Мистическая Эпоха. Импер�
 ```bash
 magnet:?xt=urn:btih:8225A9B44645F2A3754D4A7C7A346E949F31CACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Inca’s Legasy / Сокровища Инков. В поисках золо�
 ```bash
 magnet:?xt=urn:btih:1A4D316354EDDEC97B6225E38992CC0F0F6E6620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

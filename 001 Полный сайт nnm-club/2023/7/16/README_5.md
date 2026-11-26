@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:AD24B64FC358D1BED5B05BDDBCB79173B9C72D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HeadUp Display (HUD) – это возможность использовать 
 ```bash
 magnet:?xt=urn:btih:D170A650F5593A4838B3C57A660A8A90A6DB8C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27A1FA4570CB14D6B264AF8DD95A756E136664DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Nova Lands (2023) [Ru/Multi] (1.0.23) License GOG
 ```bash
 magnet:?xt=urn:btih:E914D9F0A02519F08C944AC6F6198E9C0A1BF966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2
 ```bash
 magnet:?xt=urn:btih:199C43CEEAD3427728DFC7A0693A8458B01F4883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Kena: Bridge of Spirits – сказочное приключение в оча�
 ```bash
 magnet:?xt=urn:btih:C36B75DA4326B54D2355D3BD579EB654E17513E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Total War: Rome II (2) (2014) [Ru/En] (2.4.0.11535779/dlc) Repack dixen18 [Emper
 ```bash
 magnet:?xt=urn:btih:C60B9C3422C76856E5C908A43575741622510DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

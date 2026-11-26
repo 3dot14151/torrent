@@ -19,8 +19,7 @@ Inbetween Land [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:036D999E5D19BE3123976640480F0B76273C1B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jumper Yo / Веселый Жо [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:28DBB3369412094DF5D6534CDF09FF7A6C9CE9DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Expendables 2: The Video Game - загружаемая игра по мотив�
 ```bash
 magnet:?xt=urn:btih:0A3D55B3BAD8C5B25B285D10F5777B121DF05C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tales from Space: Mutant Blobs Attack [En/Multi5] (RePack) 2012 | Luminous
 ```bash
 magnet:?xt=urn:btih:BB5D1C516817616CC3406F8755B5503090756AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Jagged Alliance: Crossfire – это полноценное дополнени�
 ```bash
 magnet:?xt=urn:btih:E3C2B1D2B5496D6919F30D0288650B3FA28665A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Aliens vs Predator [Ru/En] (RePack/Update 6/DLC) 2010 | z10yded
 ```bash
 magnet:?xt=urn:btih:5957CB04FBBB1B28C91B1FFCCA2B3D0475B9FE00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Jagged Alliance: Crossfire / Jagged Alliance: Перекрестный огон�
 ```bash
 magnet:?xt=urn:btih:B3B3A2F7D5695AABA69F10444D8C448F6969698F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Metro 2033 / Метро 2033 [Ru] (Steam-Rip/1.2) 2010 | R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:932B5A35D7EA07E2CB4D98D877395044C60F83CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

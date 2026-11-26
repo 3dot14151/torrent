@@ -19,8 +19,7 @@ Syndicate [Ru/En] (RePack) 2012 l R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:284E8F406755D72E4A23EAA156E4DCC47B4DCEA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Syndicate [Multi6/+] (L) 2012
 ```bash
 magnet:?xt=urn:btih:879471A929D9EB5968E87847BC3AFD4A2541946D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A5AEC7B32A7EC4D2430D0D06DED48E3E82B18D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

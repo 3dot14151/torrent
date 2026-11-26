@@ -28,8 +28,7 @@ Elvis Presley - Greatest Hits (2CD) (2008) [MP3|320 kbps]<Rock and Roll>
 ```bash
 magnet:?xt=urn:btih:1C99CE87B7A7A5CA554291065A28146B9D91D6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Rammstein - Instrumental [Compilation] (2010) [MP3|192-320 kbps]<Industrial>
 ```bash
 magnet:?xt=urn:btih:2AF763BB9CCF0C2908DA9A5AB92AA258959BC430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

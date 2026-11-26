@@ -21,8 +21,7 @@ Tweak-7 является совершенно новой разработкой 
 ```bash
 magnet:?xt=urn:btih:A7A6AEE80B876131FCE2C47BEC1CC356BA29ADBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

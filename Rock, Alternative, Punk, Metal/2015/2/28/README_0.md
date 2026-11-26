@@ -23,8 +23,7 @@ Ambush - Firestorm (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3ED266715321EBC708EC3411843DC71ACD7216FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Angry - Future Chaos (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:46DA9771924E04ABE9E73B489A7F6444350FFA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ State Of Salazar - All The Way (2014) Japanese Edition [FLAC|Lossless]<Melodic R
 ```bash
 magnet:?xt=urn:btih:E291DFE5B3BF4853FA196ACCA653617C512D79F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Ambush - Firestorm (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5C1DDE2AE96BE80AAE6748446CFA2BFC7336EF81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ State Of Salazar - All The Way (2014) Japanese Edition [MP3|320 кб/с]<Melodic
 ```bash
 magnet:?xt=urn:btih:5EF2DDC447E5826293DE7D17F18DCA43686EDF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Neil Finn - Dizzy Heights (2014) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:E9D681242189C2F68B50BED9994237CAE86E4FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Enslaved / Shining - Shining On The Enslaved (2015) Split [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:3DE000714427142CDE9D3D1A080F9268CD0720B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Mirratal - Rising Sun (2015) [MP3|320 кб/с] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:408C51EF562306E9B16397843E710B650F459663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Carach Angren - This Is No Fairytale (2015) (Limited Edition) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:77480F53C0C5819B6A1C9B1651D63766740BF6D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ DeadStar Assembly - Blame It on the Devil (2015) [MP3|320 кб/с] <Industrial M
 ```bash
 magnet:?xt=urn:btih:171F7103BA40FEEA03F69A8503F7B416CA575E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ Friends Will Be Friends - Welcome To The Backstage (2015) [MP3|320 кб/с]<Post
 ```bash
 magnet:?xt=urn:btih:1A4389ED4523E753C358EBF546A3A7B785637449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ Leah - Kings & Queens (2015) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:B408E111C42C70D018C8B6A64115B1A3C1B262F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ Pink Floyd - Live at Fillmore (1970) [WavPack|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:324D2163348A627A898A4E6FBA1FF3F22DDAFB33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C89E4C0FA59277F5AEA20E2EDDA61DF7C0D8F247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ The Rolling Stones - Tattoo You (1981) UMG Remastered /2009, Moon Records/ [FLAC
 ```bash
 magnet:?xt=urn:btih:3929C48504EC872F84373641AFD185150066136A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +456,7 @@ VA - Rock Legenden: Puhdys+City+Karat (2014) [FLAC|Lossless|WEB-DL]<Rock, East R
 ```bash
 magnet:?xt=urn:btih:2301533018CA2E811A10AC2FF2EC2F810FBE1008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ VA - MOJO Presents - Physical Graffiti Redrawn (2015) [MP3|320 кб/с]<Rock, Cl
 ```bash
 magnet:?xt=urn:btih:ED41BBC593E1B53E9F9E545C76088A975F8295FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ Noel Gallagher's High Flying Birds - Chasing Yesterday (2015) [FLAC|Lossless]<In
 ```bash
 magnet:?xt=urn:btih:2BBA1CFA9C9CD8EEC41D6873C722B6F70868FCC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD56151BD2F842C61646FB2968A40BD995294911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +572,7 @@ Steven Wilson - Hand. Cannot. Erase. (2015) [FLAC|Lossless]<Crossover Prog>
 ```bash
 magnet:?xt=urn:btih:A48D9BF07558DBD08F29060DC7B89C442810690B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +601,7 @@ Shocking Blue - Greatest Hits (2004) [FLAC|Lossless]<Classic Rock, Rock n Roll>
 ```bash
 magnet:?xt=urn:btih:1A09AC94A5CC2854191137103912D72868378CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACA8AEDDD9E07F76CD4B85CAC6D7769228F4FD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +658,7 @@ Guns N' Roses - Best Ballads (1996) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:555C83D10EECF64C4159204A621F718DB3DBB96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ReLens - отличная находка для любого поклонник�
 ```bash
 magnet:?xt=urn:btih:B322E5DB98D9B2D531811D34BA50DEAF8B6C309A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Allegorithmic - лидер отрасли в области технологий
 ```bash
 magnet:?xt=urn:btih:8793721C6EF9BED0F1BF4F3C364CEF307C69EBDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

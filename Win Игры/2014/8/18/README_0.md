@@ -24,8 +24,7 @@ Speed Kills - игра от вдохновленных классикой 90-ы�
 ```bash
 magnet:?xt=urn:btih:BF8087711A78631E1D6F46044CE10C1CF890C5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

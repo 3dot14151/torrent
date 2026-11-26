@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:C5E93512BBD013717F3C96E761FE11F09BB37976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ FireLake - The Temptation Journey (2005) [MP3|320 кб/с]<Progressive Melodic D
 ```bash
 magnet:?xt=urn:btih:AE50D1462A1C1C03C290EBD378ED240153C74F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Stargate - Beyond Space And Time (2012) [MP3|320 кб/с]<Progressive/Symphonic 
 ```bash
 magnet:?xt=urn:btih:326F529E51BF2C1BCE60A79B836CC136B435C827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +137,7 @@ Chrome Division (рус. Дивизия хрома) — норвежская х�
 ```bash
 magnet:?xt=urn:btih:DA648D1B0B11258F9FAEE182DFFDF257085305E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

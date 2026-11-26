@@ -22,8 +22,7 @@ A4 Take These Chains From My Heart(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:72222CA9D886E21DFC7CEDA0568C75FE740FF782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04180D0FFEEB4A4F830CFF26E91B74A9F63BA69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A3 'Cause You Are Young(   Читать дальше...   )Жанр: Euro Disco�
 ```bash
 magnet:?xt=urn:btih:74EE639E50570487C1163D810A3F99B680BA2D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

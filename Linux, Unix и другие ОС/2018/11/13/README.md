@@ -21,8 +21,7 @@ Debian GNU/Linux 9.6.0 + nonfree Stretch [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:B059CCE29BCDA2C5510517DB3D658F85B864FFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Debian GNU/Linux 9.6.0 + nonfree Stretch [i386] 4xDVD
 ```bash
 magnet:?xt=urn:btih:14232E14C93ACDCBD9050809003C0C1015D4E637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Command & Conquer [En] (L) 1995
 ```bash
 magnet:?xt=urn:btih:972402253ADA9DF8218C0C6D1C42395CF8EB27D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

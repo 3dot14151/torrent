@@ -22,8 +22,7 @@ Solid Explorer - это приложение для управления фай�
 ```bash
 magnet:?xt=urn:btih:8103C6AF3E34632B7145259E506ED48FFF93B7E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:05485DF9862B9BEF1B5A390B0E85A28D4AE2F95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ PictureThis - Plant Identification v5.22.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:41744E44939FE7EEC84993973609814AA77700D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Smart Tools® это набор инструментов состоящий из
 ```bash
 magnet:?xt=urn:btih:4A83C5A554CB75AC96177C3D645720B74CE77DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:DE8E756B91503924E26D11D9B59A0B48CF131345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Remini / Улучшение Фото v3.7.1301.202520225 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:5DBA6A129204B601D8D0F79DB500C8E0622869C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Call Filter / Фильтр Звонков v1.33.8 Mod by FreeSoftware [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5074753FD153B9D1F59CD0BBF059DBCE5FA26A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.4 Mod by baalajimaestro  [
 ```bash
 magnet:?xt=urn:btih:893F47E96C6CD84898D83876782A780DB1EAA0FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ NewPipe v0.28.4 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1E1247DC0872E38EF8A7BA2DC9B7B6597602757F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:47E8673BE2F7C81357F93F33D744FA3425C56EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:B136C87EC18131D2410DA8650C1A375C8ABE5C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:502869DD1E51BE9BF4E11485AE7346FA29A453C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ PORTAL Connect — новый инструмент обхода блокиров
 ```bash
 magnet:?xt=urn:btih:84E9AA1A7B83FC244F51337A72835685DF36DA14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

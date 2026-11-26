@@ -19,8 +19,7 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 ```bash
 magnet:?xt=urn:btih:32330D8FDF90C52A825AC36B898C1B3443EB677F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

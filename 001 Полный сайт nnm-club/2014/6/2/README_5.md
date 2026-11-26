@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:8714C3E06FD48E990AE4A416858CD39F63B5DDE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21B5FEBDE49C8852242BB9FF2FF5522629984B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Zillya! Антивирус Бесплатный - антивирусное ре�
 ```bash
 magnet:?xt=urn:btih:0BAB16594674C7955078AF5F75980F15D2D1867C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Wallpapers - Mixed HD Wallpapers Pack (01.06.2014) [JPEG,PNG]
 ```bash
 magnet:?xt=urn:btih:F264BC4097DBF5CF25DF125C5A548B87A29220E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ RusLive Full (мультизагрузочный вариант - RusLive, MemTe
 ```bash
 magnet:?xt=urn:btih:2A840402D27588BFCF7DFAD715C27746187BE9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Car Mechanic Simulator 2014 — это, как не трудно догадат�
 ```bash
 magnet:?xt=urn:btih:472B9D758AFDB4722D988E3279CAD1641A17A71C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF4C7B5F074A6CB7CCF18A706F8B86203326C59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48E9EF31528E4F42F12A84622D8140E2F2EE4988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Monument Valley - это сюрреалистическое исследован
 ```bash
 magnet:?xt=urn:btih:5135CF62075241951029F0EBED0CB2FAE7342E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCDD80E32AC36C52D65DFD94EE2B8D5B45E56100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A46FF80A2CAADBBA81FB9B18820EE66DBAD82590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ The Night of the Rabbit – это еще один красивый рисова
 ```bash
 magnet:?xt=urn:btih:7AAD952E5A816A44C1BA4E472BD2C4A37D8A1CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D104999EBD557AFDDF0B0D3FE7B6A5E57A5975DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BEDA94BE3190D0BA1A00A943BE0EF21CDF4C8CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ VA - Зарубежные Хиты 80-90-х В Современной Обраб
 ```bash
 magnet:?xt=urn:btih:0F1ABCA81EFBE4CC0340A1152AB61505029D1E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:3B9B401EBEB0714AAC757FAE00CE4D2B1D52BCF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1F5F41870B069D238CC80D65ABFF6B0B8CA5162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ LEGO Digital Designer - программа представляет собой �
 ```bash
 magnet:?xt=urn:btih:E1862425237F6D5E81325E9D968CA1F144C60C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Need for Speed: Carbon [PS3] [USA] [En] [2.42] [Cobra ODE / E3 ODE PRO ISO] (200
 ```bash
 magnet:?xt=urn:btih:7802DDC68483C7C43179B256ECE3C89AB00F8481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ VA - Dance Hits Collection 90th (1990-2000) [MP3|192-320 кб/с]<Eurodance, Ita
 ```bash
 magnet:?xt=urn:btih:8C6DCBCB6C4402D8A2AFDECE91FC414A47D1617E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C44A4422F986DC749127C0C2D3B0092BAB822D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5525981A5B9378C04E64D00EA31E161DD1277711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ RAD Studio XE6 — это среда разработки native-приложе�
 ```bash
 magnet:?xt=urn:btih:104E131B0D90FDCF8B3B4EE1A9AF0D56207F02A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ WPI By Elgujakviso x86/x64 (v31.05.14) [Ru]
 ```bash
 magnet:?xt=urn:btih:394CD56182DF7A23BE8E085510C0DCFB8545967B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:442BFD299B6D42FA4041CDD4F3E92C6699B6EFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:616D653585244395AD5158850103B93F84004260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

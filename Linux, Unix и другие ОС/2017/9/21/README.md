@@ -20,8 +20,7 @@ KNOPPIX German DELUG edition of Linux Magazine. 8.0.0 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:4396805D8BFF967C79CD5DBCD018EE16A83263BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

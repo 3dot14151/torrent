@@ -19,8 +19,7 @@ ReadEra Premium – читалка для книг, позволяет чита�
 ```bash
 magnet:?xt=urn:btih:B0B29AFCAFD64C18C81AFC64A671D0AFB61753BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

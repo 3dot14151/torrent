@@ -22,8 +22,7 @@ Infamous & Gratzug - Infamous & Gratzug (Split) (2016) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:7908BB78EE9A87A31024A5050F0CA23BD8A70F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Theaterror
 ```bash
 magnet:?xt=urn:btih:C41E0C3849E88C84346EB6C43568669AB2FE3F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Deep Sun - Race Against Time (2016) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:7268E15ACAA081F72DE637711CA211DE4CAA015E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Insomnium - Winter's Gate (2016) [MP3|320 кб/с] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:A076E21F34BA60F706C687F7F062469902E96A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:125B140B81236E15DA90917432F76240A1922C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

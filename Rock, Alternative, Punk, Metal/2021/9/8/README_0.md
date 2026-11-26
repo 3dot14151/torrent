@@ -22,8 +22,7 @@ Messiah's Kiss - Prayer For The Dying (2002) [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:35F213F353781509E7C8AC32B5BBC06F8A209E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bloodbound - Creatures Of The Dark Realm (2021) [FLAC|Lossless|image + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:9842A32331E9235661549010D4BDEDA67184D356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:6FF8046159CC25638390F57769007D284E12DC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

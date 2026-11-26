@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B76E7C33A1A0AF9DFCC874A20CE332AAB4AF0AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ reaConverter Pro – инструмент для тех, кто имеет де�
 ```bash
 magnet:?xt=urn:btih:25FD89C58114220C338234AF5E957FD498192E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

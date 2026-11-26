@@ -22,8 +22,7 @@ A4 Insidious Repression(   Читать дальше...   )Жанр: Brutal Deat
 ```bash
 magnet:?xt=urn:btih:76EA09B73307699C8A9EA7937EFA8396C76CFF4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Conceived Into Enslavement(   Читать дальше...   )Жанр: Bruta
 ```bash
 magnet:?xt=urn:btih:07D07817B42027FF87FD9F8E8DEF4868DA940490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sutherland(   Читать дальше...   )Жанр: Pop (Sound-Alike)Про�
 ```bash
 magnet:?xt=urn:btih:5665089D88FE813DF5D0F2F029F397A72983C990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wondershare Data Recovery - мощная и простая в использов
 ```bash
 magnet:?xt=urn:btih:A28413463D00791B14BBF77094ADC9204DC340E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Olatunde Adedeji | Full-Stack Flask and React (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:72A2743692B15FBCABFD075148D9F511339EF90C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Viorel Rudareanu, Daniil Baturin | Linux for System Administrators (2023) [PDF][
 ```bash
 magnet:?xt=urn:btih:4BB0A7D6D26F604328533ECD2CFBA07D17387FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

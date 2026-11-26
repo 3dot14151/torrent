@@ -19,8 +19,7 @@ Iron Harvest — это стратегия в реальном времени (R
 ```bash
 magnet:?xt=urn:btih:5DD6635198D192A3A6E98F134F8CE8D9CC58CAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

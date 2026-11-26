@@ -19,8 +19,7 @@ Escape from Darkmoor Manor / Побег От Наследства (2014) [Ru] Un
 ```bash
 magnet:?xt=urn:btih:9F6DD53C20E43A2DA68C058F43976A4A4D512535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pro Evolution Soccer 2014, впервые в истории знаменитой
 ```bash
 magnet:?xt=urn:btih:4773B2A5E60AD0D69F128BBA3546DC72D56ADD0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Bloodbath (2014) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1FFAE2259647756DEF4AD745D0760CACE4CBD4A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

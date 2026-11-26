@@ -21,8 +21,7 @@ CentOS 7.7 (1908) [i386] 2xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:D82D3406080BDBE2A11399D6E423D09D402A7ED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ CentOS 7.7 (1908) [x86-64] 5xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:84A10CAABCC60283880BF2CC795FC55DC286A22D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:4299422E6ED7099C989CC42ECFD6380A1DA31EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:473D7F779BC68C80E5E6B0D9F0987CD5BAF2AF83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0345204C083B06A8822809ABFE499A4426B01341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kei Kobayashi - Softly (2002) Somethin' Else [FLAC|Lossless|tracks + .cue] <Voca
 ```bash
 magnet:?xt=urn:btih:E3C9430288DDCF035ADB290240434F96C3BBC4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:658C27997C29C6A1DFE85F994F6EF8A685262615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF6AFE94C13EB905279AF72184348E71E3352EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sammy Davis, Jr. - The Definitive Collection (1950-e - 1970-e) 2006, Hip‐O Rec
 ```bash
 magnet:?xt=urn:btih:819F0E0A8FD617D3221EF70CB65A9C74F4187D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Jimmy Smith - The Fantastic Jimmy Smith (1953, 1954) 2002, Empire Music Group [F
 ```bash
 magnet:?xt=urn:btih:DBDDEFEF87EFF3E4720229402D6B09464216BB9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Jazz Grooves: Best of MapleShade, vol.3 (2010) MapleShade Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:9EBD0712748AD28A57FDB88720D1400C33F17F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Fantastical - приложение представляет собой кале�
 ```bash
 magnet:?xt=urn:btih:08704D1124846369BCACBA9488F66CA57CE846AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C8D760B779726B91D607BE662204E5278D1C74A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:266D4C8DF6AA44430B673F3F230DBF03BC1EB7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E186F656ECD7300106CA071E58C868E35F303EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ Buddy DeFranco (De Franco) & Martin Taylor - Garden of Dreams (1988) ProJazz [FL
 ```bash
 magnet:?xt=urn:btih:F67782E79486804182DCF9A5DC66537B49EAC92C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CB70332BCCA16BF2D778C9E67B9BDEA92013CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ VA - Spring Tube vs Easy Summer Vol.21 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dow
 ```bash
 magnet:?xt=urn:btih:10EC6A8745D25B221CD0F46ACBA9AE63A97E2A4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ Monster Energy Nascar Cup Series-2017, Этап 31 - Alabama 500, Talladega Supe
 ```bash
 magnet:?xt=urn:btih:866DC0BBCDF7DC099F88B39FF50B5B7B425EBC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ VA - The Best Of Trance 61 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 ```bash
 magnet:?xt=urn:btih:417DDA57D8EF8437BE88C43933DC3F5EB32CDE79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47B045674B298D73121344E1E89B2688656B1944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Oshy - Say No (2017) [MP3|320 kbps] <Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:0C537BC16E22B2D04F98A1958D1327E11BA063FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ VA - Amsterdam Dance Essentials Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2EA5E29A6BFACC631956D21E39309C25381399E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ Rainforest - Motion (2016) EP [MP3|320 kbps] <Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:884EF9FB3663A2F1063D483374D86707079CF91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ VA - Luxury Brazilian Cafe: Cream of Latino Lounge (2017) [MP3|320 Kbps] <Balear
 ```bash
 magnet:?xt=urn:btih:45A90045375BF83D8F9EF303CF39F0FBAE4B1D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ Total Audio Converter - мощный конвертор всех музыкал�
 ```bash
 magnet:?xt=urn:btih:171155D0AF23BCA59C4CD5EF91B38B77A07870CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Triosphere - 3 альбома (2006-2014) [MP3|320 кб/с]<Power/Progressive Me
 ```bash
 magnet:?xt=urn:btih:B2AB01274055FB9018A4C071A18CCB807A479F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

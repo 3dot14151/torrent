@@ -19,8 +19,7 @@ Last Will - это приключенческая игра в рандомно-�
 ```bash
 magnet:?xt=urn:btih:B467448B324352D36B8E42929A8B9B235A607A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Finding Bigfoot (2017) [Ru/Multi] (1.1.7) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EFD58CE57BFB94609DC9CA9DAA0C13F16130F26A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Leisure Suit Larry: Reloaded (2013) [Ru/Multi] (2.1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:4A24BD408EC347E4A94987D665F766E07A1C9CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark Shores – хоррор на выживание с перманентной
 ```bash
 magnet:?xt=urn:btih:A4F0340583BB7F356777871818370D99ED859FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Wild Eight – это новый проект на тему выживани
 ```bash
 magnet:?xt=urn:btih:6093A7796DA3634BF5597E46B977FD8AE16C82CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Legends of Eisenwald – это приключенческая игра с та�
 ```bash
 magnet:?xt=urn:btih:B68258A6E03B12DB6FE12B2A98B55AA100C3C77E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

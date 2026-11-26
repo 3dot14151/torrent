@@ -28,8 +28,7 @@ Souldrainer - Heaven's Gate (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:C368E6605D2855F0A09C47EF4B2CA6E4F95A58A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Kara Lin - Aura (2011) [MP3|320 kbps]<Alternative>
 ```bash
 magnet:?xt=urn:btih:202CDEF6A1D3F6D1CB3081C23A9688F5768D72B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Venom - Fallen Angels (2011) [MP3|320 kbps]<Black Metal/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:208FB373076E095FA944701A706F4BC9005EBAD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:889AD7BB3ADFBF263B221CE567C04FE1336AAF9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Fallulah - The Black Cat Neighbourhood (2010) [FLAC|Lossless]<Electronic\Pop-Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Dropkick Murphys (Дропкик Мёрфис) — американская ке
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

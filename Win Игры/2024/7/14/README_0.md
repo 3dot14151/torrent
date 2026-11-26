@@ -19,8 +19,7 @@ Donut Dodo (2022) [En] (1.3.9.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E0D479C54AF79A50F2095B4CC94C9D40A08A33D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Songs of Syx – это градостроительный симулятор с
 ```bash
 magnet:?xt=urn:btih:04567AE60F14BD5971CFEAFEDE42F0FE9F48F94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Land of the Vikings является градостроительным симо
 ```bash
 magnet:?xt=urn:btih:9D497E850ACC4321068111233A35D06FA6106B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deep Rock Galactic – научно-фантастический шутер пр
 ```bash
 magnet:?xt=urn:btih:08C1CD17740CEEDF157F47F09ED3C0C146CF9A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Heirs – на самом деле наследство может быть ра
 ```bash
 magnet:?xt=urn:btih:86F307349D4FF4512424FAB04994AA236160A4E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ GTA 3 - Definitive Edition - ремастер культового экшна о
 ```bash
 magnet:?xt=urn:btih:4594BEEBE9522BCB4D02BE267466DB2BC8C4C6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ GTA: Vice City - Definitive Edition - переиздание культовой 
 ```bash
 magnet:?xt=urn:btih:4052031C479B23E5DC34395352A828AD7FE7E97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Barn Finders – это симулятор поиска "сокровищ" в г
 ```bash
 magnet:?xt=urn:btih:FB2277E3799D401276062750A5069E1ED557928B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Apocalypse Party - 3D-рогалик с видом сверху вниз, дей
 ```bash
 magnet:?xt=urn:btih:054F543B7B889FEED22EBB2DD3E7165BE7BD1F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Heirs – на самом деле наследство может быть ра
 ```bash
 magnet:?xt=urn:btih:9B3CB9B3DBFC7DD4CDB08BEF7EA02A97B9E6CAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Anomaly Collapse - это увлекательная игра, в которой
 ```bash
 magnet:?xt=urn:btih:D4C53FF4161A47A378B0E970A50FD4605DF0ABB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Station to Station - это романтический и минималисти
 ```bash
 magnet:?xt=urn:btih:4C16F271FBFB7CE2F6FB4F1CB881D8AF3E556881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

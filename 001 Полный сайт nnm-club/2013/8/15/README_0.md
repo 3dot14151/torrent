@@ -27,8 +27,7 @@ VA - Digitally Dreams Of Chillout & Chillhouse (2013) [MP3|320 кб/с]<Downtemp
 ```bash
 magnet:?xt=urn:btih:A5F95E44CB2AD921B2804FCC93B250EF5F84CCE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48DBB4345CAED607824E9DEF4A44A1A09669146F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Dr.Web 8.0 Security Space Offline Update 13.08.2013 [Ru]
 ```bash
 magnet:?xt=urn:btih:CA072C6BE417C613A76581E8B9B2BFE53711BB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F350E65EEFB19120AC44C168C3B947F375E1D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - A Paul Remix Compilation Volume Two (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:EDC71EF8EDC532CD09C317B09CEF239266E84C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Alexkid - Caracol (2006) [FLAC|Lossless]<Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:69FF198A1A8A08D412C08B8801A46CE2905763F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ VA - Structures Volume 27 (2013) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:1DADF74FB53323FB30F1112299B66C3664C700EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ VA - Year Six (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:C036BEE019C3A671B8BE77E3CA705C67E41111AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Antalya - Morching To The Beat Of Your Own (2008) [FLAC|Lossless]<Downtempo, Lou
 ```bash
 magnet:?xt=urn:btih:FE4F8F0624527DF4B5EC955021B7BD6A45FE2E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ DVDVideoSoft является независимым разработчиком 
 ```bash
 magnet:?xt=urn:btih:10980F800971ABD5011F827E7AE0FA04C5B4BAB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ VA - Year Seven (2013) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:6119A194D3488401E98A5A7318ADB3C3E861CB1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ VA - Бездна шансона 3 (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:0419CD4CE1E91354F42438F0001669CFA66BBEB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +407,7 @@ Alex Skolnick Trio - Goodbye To Romance: Standards For A New Generation (2002) [
 ```bash
 magnet:?xt=urn:btih:08CA2FC6CBC75F85B24D2AF1B0798F917B04E10F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +441,7 @@ VA - Stolen Moments | Red Hot + Cool (1994) 2CD [FLAC|Lossless]<Hip Hop, Acid Ja
 ```bash
 magnet:?xt=urn:btih:9D694B2F23A4B64A6F996108E550CACF6BEE9DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +468,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:1F0BD1A40F9F4975765DF91EC955623B9F3CB316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +502,7 @@ VA - Private Room - the Lounge Session Vol.13 (The Best in Lounge, Downtempo Gro
 ```bash
 magnet:?xt=urn:btih:CBF57A4197A873DD0A18D4025EF1E29E8884A27F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +536,7 @@ VA - Summer Bass Essentials Volume 1 (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:E7D5959C501DF3BB351E6CFA158CB4F963890F8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FA0E05C3F749B5B39E545717011C082C0B67398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +598,7 @@ VA - Chillout Nostalgia (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:48A9DC162D4FE39C17F4C9C47D951DD87CB0F932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +632,7 @@ Folkodia - The Fall Of The Magog (2013) [FLAC|Lossless]<Folk Metal/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:2FC5E32ED263520673E6AE2CB0C697C81076C8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +666,7 @@ A10 Can't Help Falling In Love [2:26]Жанр: Vocal/Jazz/PopПродолжит�
 ```bash
 magnet:?xt=urn:btih:2C5C3BC019E5C24F2961F77B83BA41EEC0F76AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +700,7 @@ VA - Mega Dance Top 50 August (2013) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:E7B6A9CBD17521E5E3328F268F41564A26CD3DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +725,7 @@ MediaCoder является универсальным программным м
 ```bash
 magnet:?xt=urn:btih:A1CAC67C2F5946AA22BEBF5788D0E1D1F05D8045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -782,8 +759,7 @@ Celtic Thunder - The Show (2008) DVD5
 ```bash
 magnet:?xt=urn:btih:08BE3AA6457EE2DABF81907D577669510BBB1562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -817,8 +793,7 @@ Mayte Martin & Tete Montoliu - Free Boleros (1996) [FLAC|Lossless]<Jazz, Latin, 
 ```bash
 magnet:?xt=urn:btih:EEA1F29B3433AD5A29D92D8491043D53A6DC7517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -845,8 +820,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83808D1B858970AA63A3ACA39EA75F5B78A1D03E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

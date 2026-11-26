@@ -19,8 +19,7 @@ Frankenstein 2: The Village (2016) [En/Multi] (1.1) Unofficial
 ```bash
 magnet:?xt=urn:btih:F346DB7C985254B8E0232EA37FC77CF3F80FEDB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Beyond the Invisible: Evening / За гранью невидимого: Суме
 ```bash
 magnet:?xt=urn:btih:E16E332035020F016862B3038502E73DDDBFFAC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Swordbreaker - визуальная новелла, рассказывающая
 ```bash
 magnet:?xt=urn:btih:D81A288528A68E794B3A352C6CE53D9C5BBA205E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Carnivore Land (2016) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B5D40C72352879105540D5424541ECFC0E70374E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Blue Sheep (2016) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:958FA5B136A2F33315AB8463EF8A8B7F2DB88CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

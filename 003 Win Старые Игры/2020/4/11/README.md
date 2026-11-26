@@ -19,8 +19,7 @@ Medal of Honor: Pacific Assault (2004) [Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:93E462D01E838DCFE1391E3CBE103E019D229410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

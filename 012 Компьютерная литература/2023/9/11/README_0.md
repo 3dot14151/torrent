@@ -19,8 +19,7 @@ Hem Dutt | Full Stack iOS Development with Swift and Vapor (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:D7C56A80EB78EB113DB8B26C1A0BBCF5ED5C42AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5FDEEAA34F4CE2065A73277569BF8DAE96B92BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ted Hagos | Beginning Kotlin (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:72AF315FDFD85FB5350AC3F56777E2275B6B8BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63F1AB87F37D47E1473DED6077C527BDB5B044E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

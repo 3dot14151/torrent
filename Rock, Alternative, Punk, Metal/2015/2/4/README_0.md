@@ -23,8 +23,7 @@ Planet P Project - Pink World (1984) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D4A668A6CFD8AB5CD481A54AFDBF943B86983F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:7E0DAE2C7A815C47A36AD834D3B9B84F7F6821FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

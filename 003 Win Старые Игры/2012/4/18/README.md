@@ -19,8 +19,7 @@ The Blair Witch Антология [Ru] (RePack) 2000 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ballerburg / Баллербург [Ru] (RePack) 2002 | Pilotus
 ```bash
 magnet:?xt=urn:btih:4D331D539B6C09C46C3D49CCA740E12C8DB1FC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

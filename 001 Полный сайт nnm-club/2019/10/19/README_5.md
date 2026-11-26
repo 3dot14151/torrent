@@ -23,8 +23,7 @@ Microsoft Office for Mac Standard 2016 v16.16.15 (build 191014) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B87418E991B6BF57CB880EC430FD1124A5530904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2372F4E6AB21F283F4938825CE88380D6E708E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Carole & Tuesday / Кэрол и Тьюсдей [2019, TV, 24 из 24] WEBRip 72
 ```bash
 magnet:?xt=urn:btih:8C73BD370705BE611F8052F53BF2D46A5CC66D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

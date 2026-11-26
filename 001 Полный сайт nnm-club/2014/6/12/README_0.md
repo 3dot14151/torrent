@@ -27,8 +27,7 @@ Jimi Barbiani Band - Blue Slide (2014) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:FBE5B8617456366E0555AF522E7E83C7C725941F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Imbaburamanta - Meditation Spirit Of Ecuador (2013) [MP3|320 кб/с]<Native Ame
 ```bash
 magnet:?xt=urn:btih:F20EE45465814A8F60D90B2EBAA5BC9D76F46DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DAD11594B4F3E6B6827B8C572D0BEA3D432FA46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ The Road Hammers - Wheels (2014) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:F5708D6CE31E1D4452299D05BFF5365C49C4AE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6810C760344883F3D54F877B4C823B491CFEAF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B368B921A81B4DEC8679FF4EE0255B2C4C013AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ James Wilsey - El Dorado (2007) [MP3|160-320 кб/с]<Instrumental Surf>
 ```bash
 magnet:?xt=urn:btih:C742CB1EB06F357EAEEFD88FE9D4BBBCE7C7FAA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Miranda Lambert - Platinum (2014) [MP3|320 кб/с]<Pop, Country>
 ```bash
 magnet:?xt=urn:btih:1AA68634D480EC0485FA3D4757BDA9970F7717ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ WinBin2Iso - небольшая бесплатная утилита, предн�
 ```bash
 magnet:?xt=urn:btih:66FF2C3A9CF91DB43CDF6AA690D3BF6D5F4F30C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ Army Of The Pharaohs - In Death Reborn (2014) [FLAC|Lossless]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:1E4C44E381A83E0CE86AD906EFE0E23FFFEF0DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72E9E523A25769CACDDE837EBC6A4507AC35320E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ Txt2VobSub - конвертер субтитров из формата SRT, TXT 
 ```bash
 magnet:?xt=urn:btih:A025DEE855A531BAD12CD9A08A480F6183FD2777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F6BBCD77EACE2456F7104A6D68A7C83577CBA19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ Comeback Kid - 5 альбомов (2003-2014) [MP3|320 кб/с]<Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:573960631FB167ABF29D3F21DD094FEE8F4CFD3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:55B5BDD376A507A191F7137D874A6E4440CA7922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ RJ TextEd - бесплатный текстовый редактор с функ
 ```bash
 magnet:?xt=urn:btih:E04EA75BC752BB341FDA7AAC63AC084DB50AF465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ Ashampoo Photo Commander - универсальный набор средств 
 ```bash
 magnet:?xt=urn:btih:116F5A314F53B9D901363619AE4ADF881187A210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ DiskAid 6.7.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C91C03E29B4FC6D65CC45ADBD4E7EA3E814F8AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86B0701838E92919DEA51E14692D2AFB12D3EA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ Gino Marinello - Guitar Greatest (2001) [MP3|320 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:432D480980629F17F2E1DAB196B9ABCD3B5B41A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +604,7 @@ VA - Rhythm Code (2014) [FLAC|Lossless|WEB-DL]<Psydub, Glitch, Dubstep, Psychill
 ```bash
 magnet:?xt=urn:btih:F121D31FAAC4A2883FC1DF38BCB8A33E20EE4529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D9AE18C4FC3326972B1D8DC970AEF40AD08BD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ VA - Armada Sunset (2014) [FLAC|Lossless|WEB-DL]<Deep House, Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:048C6A53AEB683ACA2E110F4DF49AC46029B3DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5594FD4219073D0A7E3D07A9E59515494FB8B1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54E8B701F65D5C20555CC1F608F2596E5996AB71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +747,7 @@ VA - Above & Beyond - Anjunabeats Volume 11 (2014) [FLAC|Lossless|WEB-DL]<Progre
 ```bash
 magnet:?xt=urn:btih:3F7BAD732E51B31ED5A73244EA97A44B541BD942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

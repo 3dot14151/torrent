@@ -19,8 +19,7 @@ S.W.A.N.: Chernobyl Unexplored - это научно-фантастическа�
 ```bash
 magnet:?xt=urn:btih:0D9DD97E85869B7F21A9F8C14754C3775F20A503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

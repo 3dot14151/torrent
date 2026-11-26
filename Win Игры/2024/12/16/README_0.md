@@ -19,8 +19,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 ```bash
 magnet:?xt=urn:btih:6D7EE3860C4044D654630355B870C8B432496FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trepang2, сумасшедший кровавый шутер от первого
 ```bash
 magnet:?xt=urn:btih:5B2D412C16B42AF348E2EE2B3CC70F857A619C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battle Shapers - это молниеносный фантастический ш
 ```bash
 magnet:?xt=urn:btih:035EFE2F34D32F3A7A7B1941A89CFD0102F5D26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Forbidden Fantasy - визуальная новелла для взрослых,
 ```bash
 magnet:?xt=urn:btih:E940C24BFF1D10933757D1335E10FAAB30C228DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:894A609F6D3D35405321431E24C32022B1AAFAB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:A74439A95938BE54FA6D3C766038491E13FB89C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:EBA3D95BC01EA9C7750AD3C4D624CD5AB566624B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Autopsy Simulator – симулятор с элементами хоррора,
 ```bash
 magnet:?xt=urn:btih:AE17CA869376ACD5AE4AC48C4AA85064423D4045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Scrap Mechanic – креативный симулятор выживания, �
 ```bash
 magnet:?xt=urn:btih:8C1B56E7108C37B8C29930B0814F045068BDCB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Mystery Trackers 20: Reflections of the Past / Охотники за тайна�
 ```bash
 magnet:?xt=urn:btih:B1D8A08A5F3A1C366AC694F17285B88D7ABF7A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Rogue Citadel (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AF9D7739FC7163B1298D2A6BD52382B645B321F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

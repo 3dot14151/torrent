@@ -27,8 +27,7 @@ Akale Wube - Mata (2012) [FLAC|Lossless]<Funk, World Fusion>
 ```bash
 magnet:?xt=urn:btih:F1CF0A329E59E3375B342C2EB7279E106DA6492A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Kopecky - 4CD (1999 - 2006) Discography [FLAC|Lossless]<Progressive Metal / Prog
 ```bash
 magnet:?xt=urn:btih:F8377F18F17BAB86BE046A0A13BD94638AA4BB0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30CCFF5E8105625446B595D6010B1B264F1F39FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Ariadna Project - Mundos Paralelos (2005) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:383848C9C356039BCFC97FB763950F3B47785290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Wild Adriatic - Big Suspicious (2014) [FLAC|Lossless]<Classic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BB957F08D88CCBF103FE7F136D29B1D886CBCA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Somatoast - Withinity (2013) [FLAC|Lossless]<Downtempo, Glitch>
 ```bash
 magnet:?xt=urn:btih:00BBF9B03CE131D9932C5E007D38705732D287B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Yggdrasil - Kvallningsvindar Over Nordront Land (2007) [FLAC|Lossless]<Folk Meta
 ```bash
 magnet:?xt=urn:btih:6B1FF8A2D46D53154789340F895C0DD9552182FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Vimana - Galactic Guidance [EP] (2013) [FLAC|Lossless]<Full-On, Morning>
 ```bash
 magnet:?xt=urn:btih:6EC03E9F2CA2A2F2AC10D6A3E3B73CB1D90DAA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54E33CB3B16A01F46453948D338251B6A09D85D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4F22AD591888A8AA7379BC14297CCC895402B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ VA - Kollektiv Audio Archives 1.0 (2014) [FLAC|Lossless]<Progressive, Techno, Ps
 ```bash
 magnet:?xt=urn:btih:AF85873027D9F1B250A4E0EA76C39C112F5D6867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ Savvas Ysatis + Taylor Deupree - Origin (2013) [FLAC|Lossless]<Minimal, Ambient>
 ```bash
 magnet:?xt=urn:btih:DAE5CE51AC77D6FE93FBA85062684A54204FD51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ VA - Mind Eclipse (2014) [FLAC|Lossless]<Progressive>
 ```bash
 magnet:?xt=urn:btih:EE52167D8FBE2A0F57E8A1556858A4A8F5981D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ VA - Polish Force (2014) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:1899F56557F7DFC06204C90EF5AF99C0FC95A7F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ N.S.U. - Turn On Or Turn Me Down (1969) Remastered /2006, Get Back, Italy/ [FLAC
 ```bash
 magnet:?xt=urn:btih:60DF665D4D849A04619AA77B1006B46D67DAC792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D023EF8C5C2CB836CB32A86555D781FBA47702B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +541,7 @@ VA - Emotions And Memory (2014) [FLAC|Lossless]<Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:1EC7734215BE4F9E7654A98508892B0180DAA0A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +575,7 @@ Twink - Think Pink (1970) Reissue 1991 [FLAC|Lossless]<Rock/Experimental>
 ```bash
 magnet:?xt=urn:btih:6510B68F6299D09E9677031BEF6F636C7FFD633B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ Hana Pestle - 6 альбомов (2008-2011) [MP3|CBR 128-320 кб/с, VBR V0 к
 ```bash
 magnet:?xt=urn:btih:B58186EA2AB158A70C1E5481A6B7511881706378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +640,7 @@ Grand Magus - Triumph And Power (2014) [FLAC|Lossless]<Heavy Metal/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C5B7F83AEB297123039358C06812C4AF33F482F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +670,7 @@ Sick Individuals & Axwell - I Am (Remixes) (2014) [FLAC|Lossless]<Progressive Ho
 ```bash
 magnet:?xt=urn:btih:CA61FE8116C4EC315538FAC25BAF143F6E94F33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +697,7 @@ Cuptakes – эксклюзивные обои для рабочего стол�
 ```bash
 magnet:?xt=urn:btih:EA4D374F7012ABE0A606B1A71CD57ED45471AA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +731,7 @@ Side Liner - Dream Stealers (2011) [ALAC|Tracks|WEB-DL]<Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F9389DF0C6970F15B00F4FEB90452C2F0401673C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +765,7 @@ The Unguided - Fragile Immortality (2014) Limited Edition [FLAC|Lossless]<Modern
 ```bash
 magnet:?xt=urn:btih:89723709E53F829F626167A01C79EFC320065CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E78FA280D6744061F761C470E05F7CA2CE1CE60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

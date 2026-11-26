@@ -28,8 +28,7 @@ The Verve - Дискогрaфия [1992-2008] Mp3@320kbps <Brit-pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -68,8 +67,7 @@ Dave Matthews Band - Discography (42 albums) (1993-2009) [MP3|224-320 kbps]<Acou
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

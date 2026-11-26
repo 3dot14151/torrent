@@ -19,8 +19,7 @@ De Blob 2 - красивый и захватывающий аркадный пл
 ```bash
 magnet:?xt=urn:btih:1451C7F97A3393243D04A50C71AFD263DF333F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

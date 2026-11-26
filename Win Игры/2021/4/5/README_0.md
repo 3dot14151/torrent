@@ -19,8 +19,7 @@ Fear for Sale 9: The Dusk Wanderer / Страх на продажу 9: Блуж�
 ```bash
 magnet:?xt=urn:btih:29B44D1EF30B6BA8B5520B5459C235B1E4F9A4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

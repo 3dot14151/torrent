@@ -22,8 +22,7 @@ Heaven Shall Burn - метал-группа из Тюрингии, Герман�
 ```bash
 magnet:?xt=urn:btih:4E2A44239342F9A3F054D3F7B44BC05A1FB0357C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

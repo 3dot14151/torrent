@@ -20,8 +20,7 @@ Dracula 2: The Last Sanctuary / Дракула 2: Последнее Прибе�
 ```bash
 magnet:?xt=urn:btih:A95D119451FBADF8DD479BB4D4B3B5C4189F20A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

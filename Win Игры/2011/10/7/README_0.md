@@ -19,8 +19,7 @@ Juliette's Fashion Empire (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:CE9C5BA8ED28E83408006042DB5E6A1F297AA9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Tales: Edgar Allan Poe's The Premature Burial Collector's Edition (P) [En] 
 ```bash
 magnet:?xt=urn:btih:7C5E894BBDFFE930EE91C7A206F28D402F6BFE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

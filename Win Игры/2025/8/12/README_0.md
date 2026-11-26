@@ -19,8 +19,7 @@ Deadzone: Rogue - это roguelite-шутер от первого лица, де
 ```bash
 magnet:?xt=urn:btih:7B4A9398DBA6D9430416F5985D3B79B979C309EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dystopika, градостроитель, разработанный студие
 ```bash
 magnet:?xt=urn:btih:159701F37D488C11A62B85E1C49ACD8F4AABF9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.1/dlc) Repack Let'sРlay [Deluxe E
 ```bash
 magnet:?xt=urn:btih:0D861DF7630967B5293D70B3ED3B968309ED1622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RAID: World War II - это захватывающий кооперативны�
 ```bash
 magnet:?xt=urn:btih:2FF78B7D35C2C91C41DBC0C9BEA0998F8E5DAD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.021) Scene Rune
 ```bash
 magnet:?xt=urn:btih:28B5F73BB86E735DB96C335CE24975C70E0DCA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Let's
 ```bash
 magnet:?xt=urn:btih:09D5A81410FFEA07B9E245560A7ED6156428F96A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Roottrees are Dead предлагает геймерам погрузить�
 ```bash
 magnet:?xt=urn:btih:79848BB09A4598126156093F50301111A6ABC1A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Deadzone: Rogue - это roguelite-шутер от первого лица, де
 ```bash
 magnet:?xt=urn:btih:63C92ED27821DC4B166152B1E968642BA5C64764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Realm of Ink (2024) [Ru/Multi] (0.18.10) Repack AIexandro [Early Access]
 ```bash
 magnet:?xt=urn:btih:D5EE2A5C7C4CAF21FF8043B0AE67C37A1D35FC72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Detectives United 8: Vengeance from the Past / Лига детективов 8: 
 ```bash
 magnet:?xt=urn:btih:5527FD8E2A7F1C579755203A34B06611CA92DA37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

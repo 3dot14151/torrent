@@ -27,8 +27,7 @@ Tidal Dreams - Once upon a Tide (2012) [MP3|320 кб/с]<Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:082BF49BABD89510DFE0BBB846E5AC13C9BBB033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Richie Valens - Rockin' All Night (1995) [MP3|128 кб/с]<Rock n Roll>
 ```bash
 magnet:?xt=urn:btih:C8D5569B09C010CDB24D53C1601A30D00DC49E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ NТерапия - Время и Смерть (2013) [MP3|320 кб/с]<Depressive
 ```bash
 magnet:?xt=urn:btih:BE10AC875763796E50D76F819DB543DA5C50E7AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Poco - Indian Summer (1977) 2004, Lemon Recording [MP3|320 кб/с]<Classic rock
 ```bash
 magnet:?xt=urn:btih:6EAA029F1029BB390310AFC233C182042F278FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Eric Burdon - My Secret Life + 1 EP(2004-2006) [MP3|320 кб/с]<Rock, Blues Roc
 ```bash
 magnet:?xt=urn:btih:F5D1E51450DFD4B1C4F5A33CC4372F5FAA3263DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ In Vain - Ænigma (2013) Scene [FLAC|Lossless]<Melodic Black, Progressive Death>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Dominoe - 5 альбомов (1988-2012) Дискография  [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:114B3A5058039CC03D2B2520C218825F45168921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Celestia - Сверхновая звезда (2011) [FLAC|Lossless]<Modern Progr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Hardcore Superstar - C'mon Take on Me (2013) [FLAC|Lossless]<Hard Rock, Glam Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Amaranthe - The Nexus (2013) [MP3|320 кб/с]<Power Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:78D59A0B71A432F4037DCF5A69FAF8A0C873FACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

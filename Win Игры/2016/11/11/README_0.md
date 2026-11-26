@@ -19,8 +19,7 @@ Anomaly 2 - сиквел высоко оцененной игры Anomaly Warzon
 ```bash
 magnet:?xt=urn:btih:6B6387E64C39669443609493AF86648B130A9C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

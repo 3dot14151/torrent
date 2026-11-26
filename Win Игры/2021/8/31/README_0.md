@@ -19,8 +19,7 @@ Evan's Remains (2020) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:976EF779DB9405B7B120B77CE426A8A1307A12D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Insurmountable (2021) [Multi] (1.3.1) License DOGE
 ```bash
 magnet:?xt=urn:btih:7F3D0E6F2663F00AE8971D520B5584E56DFE546E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

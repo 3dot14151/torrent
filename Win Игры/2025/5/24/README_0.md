@@ -19,8 +19,7 @@ Gunsmith Simulator, как понятно из названия, являетс�
 ```bash
 magnet:?xt=urn:btih:286C5EB1140BFCA543F21159BCC4F92BD513D114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Another Crab's Treasure — это приключение в стиле Dark Sou
 ```bash
 magnet:?xt=urn:btih:D31ADE0408BA97FFC2B306BFE766DFA987E74374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7949798321D03AED24C5BFFD7F2F83CBC2CF1082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.09.1/dlc) Repack Let'sРla
 ```bash
 magnet:?xt=urn:btih:228D27780FCE275627BD71133BA0AE1DF0667768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SpaceEngine - научно достоверный и фотореалистич�
 ```bash
 magnet:?xt=urn:btih:08161DA522BFD72B6423407AA92D018952951188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Warhammer 40,000: Gladius (2018) [Ru/Multi] (1.16.0/dlc) Repack FitGirl [Complet
 ```bash
 magnet:?xt=urn:btih:7909A7785A1B0D619E047335457D25E7A2BDA0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bloodshed - это захватывающий сплав элементов уп
 ```bash
 magnet:?xt=urn:btih:292E5EBD54AD8EC5FD3A5ED452C50549F5FD18FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Duck Detective: The Ghost of Glamping знакомит с Юджином Мак�
 ```bash
 magnet:?xt=urn:btih:3778A8967279DBC12FEC9494DBBCA3B8D03F4EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Domini Games предлагает вам новое волнующее прик�
 ```bash
 magnet:?xt=urn:btih:65AF9A812BBD0D82868DBD9983A8704D5F177085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

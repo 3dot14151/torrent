@@ -20,8 +20,7 @@ Need for Speed 2015 является перезагрузкой культово
 ```bash
 magnet:?xt=urn:btih:0F8FA500B3723A1A67200994F49D8A563CE1050A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C33297BDDADF26D6C72A7959960CBA809FB9B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C266A2C24EE9F7ACFEF76A6BB204B00CE44E3BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Log Horizon 2 / Лог Горизонт (ТВ-2) [2014, TV, 25 ep] BDRip Hi10p 7
 ```bash
 magnet:?xt=urn:btih:8A838FC47CF5826C23456CD0742EFE82E2A76B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ ru_windows_7_home_premium_with_sp1_x64_dvd_u_676728.iso.(   Читать дал�
 ```bash
 magnet:?xt=urn:btih:86AC85FEF4F7349D60407EA0E5B41F063CF04432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10FD4D0812D9A5C9F0432068A8F2D372037A69AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

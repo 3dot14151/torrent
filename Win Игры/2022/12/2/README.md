@@ -19,8 +19,7 @@ New Joe & Mac Caveman Ninja (2022) [Ru/Multi] (2022112301) License GOG
 ```bash
 magnet:?xt=urn:btih:AFA94201FF7D3F734486839A8F02E3DBDDD5E2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

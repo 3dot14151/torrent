@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E582435F2EE6C2427ACFBAE7E2802539B256DC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ The Sims 2 - компьютерная игра в жанре «симулято�
 ```bash
 magnet:?xt=urn:btih:1F665695E1396D17CEFB85215E412298ED844F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2118444F5AF2EE76BBABB167388492B0CB46962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Zero Absolu - Automn (2012) [MP3|320 кб/с]<post-rock>
 ```bash
 magnet:?xt=urn:btih:5C1231E5852E1D8DB37C6E04722BD9858407AB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Sombres Forets - La Mort du Soleil (2013) [MP3|320 кб/с]<Atmospheric Black Me
 ```bash
 magnet:?xt=urn:btih:105026DA098DFDF7D2FAE54943BDC62AFDC6106A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Lost In Kiev - Zero Absolu - Split EP (2013) [MP3|320 кб/с]<post-rock>
 ```bash
 magnet:?xt=urn:btih:8EF1DFE18CEB37D3C87D9C1FCA6548C4BAA9F3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ V.A. - Opera Metal Vol. 8 (2013) [FLAC|Lossless]<Sympho Metal>
 ```bash
 magnet:?xt=urn:btih:C35BAF061B3A1CDFEDCA72B0AFB48E17C5E102B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Yoko Ono & Plastic Ono Band - Take Me to the Land of Hell (2013) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:709514A07AF4CBA1F083BB31D55E76A7071A71A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Redlight King - Irons in the Fire (2013) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:56CC629D09E241EC3F2A374BB785A1E2DEF482D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Starship - Greatest Hits (Ten Years and Change 1979-1991) [MP3|320 кб/с]<Rock
 ```bash
 magnet:?xt=urn:btih:68EC65F2BAEE6B8F531457E6FFDB9E4F46D9290F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ III. Lucid Dream
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

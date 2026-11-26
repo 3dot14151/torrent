@@ -19,8 +19,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:93FD74F699FD19FCBDB54C1315BF530BAD5B413E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5/dlc) Repack Let'sРlay [Digital Delux
 ```bash
 magnet:?xt=urn:btih:F034D43A761D22734FD3E8A43C8ED182A2992B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:69F485B81835F350D9F0492C6B921D2288C9B0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ River City Girls 2 (2022) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6D678441EF4E29CCF79AEA4BD174E2787C00B86D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14327/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:9DDE285ACD670B6163C065CACC91E81F5B0467CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (27289703) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:05B70FA92090BDC6F0BBC7C47F07C819797BB6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

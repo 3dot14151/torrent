@@ -19,8 +19,7 @@ Unreal (2000) [En] (226/dlc) License GOG [Gold]
 ```bash
 magnet:?xt=urn:btih:7F4B20CCCFE53E0E9786EDCC7BC24AAEBA14ED7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

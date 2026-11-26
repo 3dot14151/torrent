@@ -21,8 +21,7 @@ Oracle Linux 6.3 доступен для архитектур x86 (32 bit) и x8
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Jigsaws Galore (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:0A0099E84E9E2AD8908D88F2310180E06C90C78A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World Gone Sour [Ru/En] (RePack) 2011 | R.G.Packers
 ```bash
 magnet:?xt=urn:btih:6BC36D8C8D12F1BB252B947598858E7B0762771B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:968DB081A49740BC664EEC930F4AE17BE00EC2DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Command & Conquer 3 Complete Edition [Ru/En] (Lossless Repack) 2007-2008 | R.G. 
 ```bash
 magnet:?xt=urn:btih:86251B7685A42F0677F05E1C709CBDEF7118C3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

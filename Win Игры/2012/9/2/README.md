@@ -19,8 +19,7 @@ White Haven Mysteries. Collector's Edition / Тайны Белого приют�
 ```bash
 magnet:?xt=urn:btih:95FF1AABB589823D9DC5BAA3F5B54C182DE5185E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35554284477CE7C6250726C4AA7ECA456B1EAF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Gothic Fiction: Dark Saga. Collector's Edition / Зловещие Истории
 ```bash
 magnet:?xt=urn:btih:05A24C80A7D1396A451E44C10A6A88CD1BB0DB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Damage Inc. Pacific Squadron WWII [Multi5\-] (Repack) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:C521FD8F55A679C6F9F488CB5EC67C3B00762B05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Sleeping Dogs (Update v1.5) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:F58FD8A7CB93225F73D6604B618A32F19EC7C765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Snapshot [En] (P) 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:C7B23CB8E315B70D297C681FD6EC0B273DC80718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Ра
 ```bash
 magnet:?xt=urn:btih:83A0F3862E31420895CE15F53CF16F728A636709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Remedy Entertainment подошла к созданию PC-версии реме
 ```bash
 magnet:?xt=urn:btih:00E468D10E96ED1B7879F07DE1C177756CE40BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Total War Battles: Shogun – новая стратегическая игра �
 ```bash
 magnet:?xt=urn:btih:588933B602C87967230DD6EE10AE65BB0C535DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Naval War: Arctic Circle – стратегия в реальном времен
 ```bash
 magnet:?xt=urn:btih:FFF39200173C37F941823B54BC72577F6220A2AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

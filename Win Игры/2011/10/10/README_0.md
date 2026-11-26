@@ -19,8 +19,7 @@ Reincarnations 3: Back to Reality - Collector Edition / Перевоплощен
 ```bash
 magnet:?xt=urn:btih:50F114D8566C9EBFEEFA61A341655F30D54539E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

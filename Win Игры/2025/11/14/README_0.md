@@ -19,8 +19,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.37/dlc) Repack FitGirl [Year One & T
 ```bash
 magnet:?xt=urn:btih:03017EFBE6913F06924D0E2C406D9C4556732E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wartorn - это однопользовательская рогалита с о
 ```bash
 magnet:?xt=urn:btih:ECEE28AAEAEAFA4AE96ADD27411B193AB7DC7E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.330/dlc) Repack Necros [De
 ```bash
 magnet:?xt=urn:btih:291684C10EBB03DAE568D09DC895771848193C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Angry Video Game Nerd 8 bit - сатирическое приключение, �
 ```bash
 magnet:?xt=urn:btih:DCCCE6D82A8412D8F27E9A70B309B489461B1672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Zaccaria Pinball отмечает богатое наследие Zaccaria - и�
 ```bash
 magnet:?xt=urn:btih:049D91D7BDF6194693805A82BF1FEC9EEE1C13CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Rise Eterna (2021) [Multi] (1.0.0 r8) License GOG
 ```bash
 magnet:?xt=urn:btih:F89EECF218FFD1E37DAC123460409CAB0659B4AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Angry Video Game Nerd 8 bit - сатирическое приключение, �
 ```bash
 magnet:?xt=urn:btih:A5C9FEC78DA1E9AB4E30F16FC0FFD928D191EBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Venba рассказывает историю молодой мамы, кото�
 ```bash
 magnet:?xt=urn:btih:A26C143ED6C798A7E0421A4AED89A6AEA8EBCDF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Troublemaker 2: Beyond Dream (2025) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:52642E8F577A9FEC6C0E568B7BFF253781C7B0A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Wartorn - это однопользовательская рогалита с о
 ```bash
 magnet:?xt=urn:btih:479BE1FA582BD55CE848469BD11FF4999CD1BF56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

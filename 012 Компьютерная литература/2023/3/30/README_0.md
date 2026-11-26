@@ -19,8 +19,7 @@ M Rashid Raza | Getting Skilled with Java (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:B4A2F7B9C73B599107AE230944C5AEE956C24D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Machine Minds AI | Building Javascript Apps with Chat GPT (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:4FCEBB2DF9CA1DB7B6EB455465DD579DFF51856C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Amestigon - Thier (2015) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:6DF7B06222A7C801CB50943E77BC363465A5CA41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rise Of Realism - Mirage (2015) [MP3|320 кб/с]<Progressive Rock / Crossover P
 ```bash
 magnet:?xt=urn:btih:A9B7DB039A0BC02250F8FA30FE9D15000E13D6ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cross Vein - Royal Eternity (2015) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:AFF4FA6EC0B5DB7899A13AB1F0487D68C1FD6D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Grinders - Beer On Venus (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9887AAAAEB01D238C4F3563381C3B161E4A225AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Witch Doctor - Witch Doctor (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8DAA203AAB144ED3C3323908E7DF035282306A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ M.H.X's Chronicles - Infinite Ocean (2015) [MP3|320 кб/с]<Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:F60FFFA1B4FAA4C91583C76D487BD256DF80409B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Introitus - Anima (2014) [FLAC|image+.cue]<Progressive Rock, Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:F5C734F6C33A53721F895F6B2FD58F5E96C9855B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Darkness - Last of Our Kind (2015) [FLAC|Lossless|WEB-DL]<Hard Rock / Glam M
 ```bash
 magnet:?xt=urn:btih:4544A31D1CC7E8FCB4D203AEC62C7F120B5852F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Paul Carrack - The Best Of Paul Carrack (2014) Remastered [MP3|320 кб/с]<Pop 
 ```bash
 magnet:?xt=urn:btih:25D0E8B01E7DF875239EA1FAD27CA4596D6D093F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Lifehouse - Out of the Wasteland (2015) [MP3|320 кб/с]<Alternative, Pop Rock,
 ```bash
 magnet:?xt=urn:btih:57463920BF8524A50CD78F61428FDF7238560BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Flies - Complete Collection 1965-1968 (2001) [MP3|320 кб/с]<Garage Rock, 
 ```bash
 magnet:?xt=urn:btih:72B232B88E4EDC77AF847791FC4CA79AFB503D6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Foreigner - Foreigner (1977) Reissue /1984, Atlantic/ [FLAC|image+.cue]<Classic 
 ```bash
 magnet:?xt=urn:btih:70418512059466214F22075742356E0399241B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Graveworm - Ascending Hate (2015) [MP3|320 кб/с]<Melodic Black/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:AEEB95A9D9D6417AB2A417879C644D76082DBF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Tales of Evening - Hajlektalan lelek (2012) [FLAC|Lossless]<Symphonic Power/Goth
 ```bash
 magnet:?xt=urn:btih:DDD38C3F15B1FF2BEC6DE84BC108B399D264BF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Paradise Lost - The Plague Within (2015) [MP3|320 кб/с]<Doom Metal, Gothic Me
 ```bash
 magnet:?xt=urn:btih:444B53BD7042CDD67121D0858531E34D3B0F954B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Helloween - My God-Given Right (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:180AA50314A7BB56BA423D23E0F24E22D37E8E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40755D74D614F0B627A45E697CF8A8273A77E051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SeeTV.tv v1.03 Ad-Free [Ru/Ua/En]
 ```bash
 magnet:?xt=urn:btih:C8C414060C385DDBD6F3D8CD8B18CA85C1A92B43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

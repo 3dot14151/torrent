@@ -19,8 +19,7 @@ Them and Us - классический хоррор на выживание с �
 ```bash
 magnet:?xt=urn:btih:3BFC974F624146537B3FBF24C30908770802B7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:5A17B19EBE555F22A794FFC90A5817EFA8A324F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Solium Infernum - увлекательная пошаговая стратеги
 ```bash
 magnet:?xt=urn:btih:410327EEA79DEAD0833808776F7B1E00778AC517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bloodshed - это захватывающий сплав элементов уп
 ```bash
 magnet:?xt=urn:btih:301FA0770A1D1A497127820F2E2E4E30903996A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Rangers in the South - это пиксельный экшн-рогалик, 
 ```bash
 magnet:?xt=urn:btih:D4C7228845C99BF5AA434C7784DE1BE9C9F06BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:285A9CD8195015A3D40A312B8A6048F24A811D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1) Repack Necros1404
 ```bash
 magnet:?xt=urn:btih:680474BF470120963F220468C0580E561D2B241F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 ```bash
 magnet:?xt=urn:btih:BF7310D232832288C2A5D2AB558883CAE843BE1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.19-38.257/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6F51CFEC704AE2CE0E31ADEE2C221243053BB294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

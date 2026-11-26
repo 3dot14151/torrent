@@ -19,8 +19,7 @@ Star Wars: Dark Forces Remaster был воплощен в жизнь коман
 ```bash
 magnet:?xt=urn:btih:6F89FE767F9413FBBD7A3CEFCABA344CD71B4D6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.051) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:731C628CE9D0B2B416E96DF8CF888E2F52936F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stories from the Outbreak – в этой классической пошаго�
 ```bash
 magnet:?xt=urn:btih:525C4A24DC60F75E131D48D6BE861DE9D349B77D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Superscout - это не совсем обычная видеоигра. Она 
 ```bash
 magnet:?xt=urn:btih:7A5D255029E5A2130E266FC0F1CD9C90F0EAB4A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ReRoad (2020) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B293E434AA149B8F3831129D4541B6F5BDDC228E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ USC: Counterforce (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D0001FCBC3E98308165865ACB60B383224002B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Pacific Drive - это атмосферное автомобильное при�
 ```bash
 magnet:?xt=urn:btih:A6C096AA734C67532795B1D35F7C0656F9246259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Until Then – после судьбоносной встречи жизнь М�
 ```bash
 magnet:?xt=urn:btih:495DC92190BA7191127A8E688881A7A6AA10C92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Anger Foot - это молниеносная хардбасс-игра, где �
 ```bash
 magnet:?xt=urn:btih:612F2743395F1218323FA51BE2FCAEE4F60E29B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

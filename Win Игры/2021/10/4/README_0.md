@@ -19,8 +19,7 @@ Entwined 2: The Perfect Murder / Запутанное дело 2: Идеальн
 ```bash
 magnet:?xt=urn:btih:217A965B8C8659D5E649CD349A638301B419E068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Inspector Waffles – приключенческая игра со стильн�
 ```bash
 magnet:?xt=urn:btih:90D2AD730E3D12ED30FDA5437CAD81D9A71EF995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Haunted Hotel 4: Charles Dexter Ward Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:55E1C2C0AC27A660B88AA9EA0552817A3B4645E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

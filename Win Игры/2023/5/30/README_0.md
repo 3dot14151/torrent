@@ -19,8 +19,7 @@ Panzer Knights (2021) [Ru/Multi] (1.1.7/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B7D0ECCEFDD26113A90CC7F5382A12B2D8F5D2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death or Treat рассказывает историю, в которой Хэл
 ```bash
 magnet:?xt=urn:btih:95828814305F5CEBD3C3FBE8DD0169A7AA9005D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

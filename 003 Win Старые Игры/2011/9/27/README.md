@@ -22,8 +22,7 @@ Oni / Они [Ru] (RePack) 2001 | Pilotus
 ```bash
 magnet:?xt=urn:btih:3A51920FF89AA01B3BD2DC2B3C4A327530F2E4A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

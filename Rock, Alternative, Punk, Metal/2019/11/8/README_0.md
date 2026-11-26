@@ -22,8 +22,7 @@ The Presidents of the United States of America - Pure Frosting (1998) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:9026294CAD7468F347D02B8031451BD2B004C3E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Snow Patrol - Reworked (2019) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:7B8A2CFE8E842E306F00723A77BADC8178E99447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Royal Coda - Compassion (2019) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Exp
 ```bash
 magnet:?xt=urn:btih:1F1690D506199E0F96E103E8DC015FE3997477AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BDBE2EC35398522E078F559FFCF9E585135927B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Santana - Tanglewood 1970 The Classic Early Broadcast (2019) [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:33DEFE7D682B9242D21A21E5215E24D905742F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Queen - Sheer Heart Attack (1974) Japanese Edition, 2018 [FLAC|lossless|image + 
 ```bash
 magnet:?xt=urn:btih:F75D304535F2C59369AB69C492629E7150689951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

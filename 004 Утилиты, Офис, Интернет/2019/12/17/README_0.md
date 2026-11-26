@@ -20,8 +20,7 @@ Wi-Fi Scanner 4.7.1.189 [En]
 ```bash
 magnet:?xt=urn:btih:AC68B3BB7DE6A26DBFF8518E3981EA456BD2EBB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

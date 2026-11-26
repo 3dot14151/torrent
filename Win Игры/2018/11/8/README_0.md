@@ -19,8 +19,7 @@ Mystery Tales 10: The Reel Horror / Загадочные истории 10: Уж
 ```bash
 magnet:?xt=urn:btih:DF35B7D7A953575EDEFE58BFC329BD706FF96327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GRIP - это крутой высокооктановый боевой гоно�
 ```bash
 magnet:?xt=urn:btih:997DD77DFD4D7FE8672CD5EF77A0F1C79B3CF48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Police Helicopter Simulator — симулятор, в котором у вас 
 ```bash
 magnet:?xt=urn:btih:DCA8E82CD54D58FFF180C76B94D437F3BD103ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Steel Rats (2018) [Ru/Multi] (1.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:718EA221A9B2E20D128AE6A1D632F61159329EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

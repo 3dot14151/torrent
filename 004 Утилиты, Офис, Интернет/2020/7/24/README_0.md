@@ -19,8 +19,7 @@ Dicter - бесплатный онлайн переводчик, с помощь
 ```bash
 magnet:?xt=urn:btih:671427BF545085D9F504A917BB3FD20673ED276E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hobby Farm / Хобби ферма (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:5A8C27C3F3FBBFC2229DD8000ECF842AF15D222F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Abandoned: Chestnut Lodge Asylum / Заброшенная клиника "Каш
 ```bash
 magnet:?xt=urn:btih:7E068E8AC8F82A5BCB657E7D81B810FAEBB2B192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Tales: Edgar Allan Poe's Murders in the Rue Morgue / Страшные ис�
 ```bash
 magnet:?xt=urn:btih:E7562965D296A377ED700061EF9D3B640D530BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Book of Desires / Книга желаний (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:642FB340A9FEF5609CF7193309E231BDAA094AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

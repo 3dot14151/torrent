@@ -19,8 +19,7 @@ A Memoir Blue – это невероятно трогательная и мил
 ```bash
 magnet:?xt=urn:btih:CCC86F54C9A39D900A30352AC963A8864534E16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Punch Club 2: Fast Forward - это двухмерный экшен-файтин
 ```bash
 magnet:?xt=urn:btih:9ABDBEFE767F0DB2FA9157EF73C1193DDD18FB58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crystal Shard Adventure Bundle - это не просто обычный сбо�
 ```bash
 magnet:?xt=urn:btih:A4348E326063DDC56E8D39F46CFE4C06D5FE3E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Messenger - это классический экшн-платформер, �
 ```bash
 magnet:?xt=urn:btih:8F46718758E1CAFDEF010E82C3404072D4478570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ House Party (2017) [Ru/Multi] (1.3.3.12714/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:38AB338D885F9DA8194848497403311A3AA907CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B7D04D5A7EC280CDFB5043BE80A8DA9E9ED5842B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Resurrection of mind (2024) [Ru/En] (Build 15055615) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2ACF01DFEDBC0083ECC40964DE3EEDA10043C6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:343E94BBF00CBDE2EB2F832A1778365C60A51B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Gestalt: Steam and Cinder – платформер, выполненный в а
 ```bash
 magnet:?xt=urn:btih:5CBC197EF9EE321CF6789B34640F8309F1017DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ No Man's Sky (2016) [Ru/Multi] (5.00.1/dlc) Repack Other s [VR]
 ```bash
 magnet:?xt=urn:btih:19E3F16F228E27DDD1D92BAEC6860A0DEAE972A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Star Named EOS - не совсем обычная приключенческ
 ```bash
 magnet:?xt=urn:btih:96B91A9EFD4954053084821BAA0C5B79DEFA252A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Chornobyl Liquidators - симулятор ликвидатора Чернобы
 ```bash
 magnet:?xt=urn:btih:D35ED5DCE917F4B619AC007B16643EBF392EDC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Bloodstained: Ritual of the Night – это смесь готического �
 ```bash
 magnet:?xt=urn:btih:2C2801AF13643CC97917F4F0F73785025A866A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Undying (2021) [Ru/Multi] (1.0.2.41413/dlc) Repack FitGirl [Premium Edition - Se
 ```bash
 magnet:?xt=urn:btih:7A8B2E8B2985570ABF0905C45CD77F5A57542FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ The Messenger - это классический экшн-платформер, �
 ```bash
 magnet:?xt=urn:btih:1AFAFF22B14649D4D698B2B89E791C0F00A650D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Over Islands – помогите местным жителям мира, кот
 ```bash
 magnet:?xt=urn:btih:87EE24BCD02E4C4EFB102096A17EA56A9B079FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ JustAxe – красочный платформер, который поможе
 ```bash
 magnet:?xt=urn:btih:1915B34132A7B23284B1CA02506A27863D6AFA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

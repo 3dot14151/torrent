@@ -19,8 +19,7 @@ Start Everywhere - это программное обеспечение с ме�
 ```bash
 magnet:?xt=urn:btih:B04CDC765E11A1B0BF42912D6A6CBB4F93E7C882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:FDAB9942404C33901E12AC611A9FA7CACDB9F83E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:1EE8D6D028827AEB3068429CB701873711954ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

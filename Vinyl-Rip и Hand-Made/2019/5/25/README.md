@@ -22,8 +22,7 @@ SIDE A:
 ```bash
 magnet:?xt=urn:btih:3379715825309C0F79E6D50C159268B4B7604447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Red Bird (Красная птица)(   Читать дальше...   )Жа�
 ```bash
 magnet:?xt=urn:btih:B769561943A34700E8816A33302557EC72CFB03A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

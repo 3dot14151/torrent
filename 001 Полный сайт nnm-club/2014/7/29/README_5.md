@@ -18,8 +18,7 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:17C12BAD627F18E080FB5E38E4116D0595CF610C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Shovel Knight - это классическая приключенческая �
 ```bash
 magnet:?xt=urn:btih:54351A9EEE31A9EEDCD6768A866D0DC9E547BA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Plague Inc. - Вам предстоит распространять опасн�
 ```bash
 magnet:?xt=urn:btih:234540A1FDA2C356FE3622540478DE0BFA1D9D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Minecraft - игра жанра "песочница" с видом от перв
 ```bash
 magnet:?xt=urn:btih:BC9056D9EDC2F101F73336DE7283570A3CAC66E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Planescape: Torment - одна из величайших игр в истори�
 ```bash
 magnet:?xt=urn:btih:02905E4176B70F8141FB7538EFB9BA350A9A2199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Spec Ops: The Line сочетает увлекательную сюжетную 
 ```bash
 magnet:?xt=urn:btih:6FE183B3CDEB70F7CE6F720F82CC4C0BEE3403AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Impulz LUT устанавливаются в самом популярном ф�
 ```bash
 magnet:?xt=urn:btih:83F1C8FCD3DF2E24A40DEC345E2DE9ADD71D84C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Kaspersky Internet Security 2015 - комплексный Антивирус К�
 ```bash
 magnet:?xt=urn:btih:DAB4CA836680E2E67A107AD198FAFCD5B12D6694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Kaspersky Anti-Virus 2015 15.0.0.463 (a) Final [Ru]
 ```bash
 magnet:?xt=urn:btih:946369DC53EC4B242972ACBFF44B023DC4292741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

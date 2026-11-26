@@ -19,8 +19,7 @@ Z: The Game (2014) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:2DDEAEBDF9901E86594CD1A76DEBD861BEA5ADE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Rage VR - приключенческий экшн о ближайшем б�
 ```bash
 magnet:?xt=urn:btih:EE04D0DE7329C7071BC30901C76D88D4AB4E968A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lobotomy Corporation | Monster Management Simulation (2018) [Ru/Multi] (1.0.1.0�
 ```bash
 magnet:?xt=urn:btih:C59E74FEF9867EEB6721715F89FF1EF075EC8401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

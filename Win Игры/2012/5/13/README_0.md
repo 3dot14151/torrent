@@ -19,8 +19,7 @@ Diablo III/3 [Multi9] (L) 2012
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tropico 4 [Ru] (1.05/RePack) 2011 l UltraISO
 ```bash
 magnet:?xt=urn:btih:BA3C03D7760CB9764773864883716DE0D0092966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Stacking (Русификатор/0.91) [Ru] 2012 | ZoG Forum Team
 ```bash
 magnet:?xt=urn:btih:89E186E2116E650A217E03EBCFD031B0BC1932D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

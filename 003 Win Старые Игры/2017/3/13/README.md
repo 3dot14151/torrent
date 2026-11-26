@@ -19,8 +19,7 @@ Battle Realms (2001) [Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A1067E018080524C99B578EB992C1B790EDA698F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Worlds Legends: Kashchey the Immortal (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B35C4780FD7E660DBCC7091AFD84581EEA8FB9A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Top Secret Finders / Архив Секретных Агентов (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:BFE30B5349C721F0CDC7AC9F552345B58C94E4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Shuggy только что унаследовал замок, где полно 
 ```bash
 magnet:?xt=urn:btih:F8A7BFFFED6991B701A4C38C02F1285400FE7B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Unmechanical - скроллер, сочетающий в себе исследо
 ```bash
 magnet:?xt=urn:btih:22EFC0F2D02331B9911A3F71312664211F9DCE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Unmechanical - скроллер, сочетающий в себе исследо
 ```bash
 magnet:?xt=urn:btih:064A18142C5F1AC28B8C270E077361D626839EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Maelstrom перенесет вас в мрачное будущее, на те�
 ```bash
 magnet:?xt=urn:btih:4C1B95AB61D0B2FCE97F9CA27D5A5532485E6BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Dominions 3: The Awakening [En/Ru] (RePack) 2006 | R. G. Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Ubuntu 12.04.4 и  его производные продукты обновле
 ```bash
 magnet:?xt=urn:btih:C7057305BEC457A08FA7B47679B6B68A74CC0E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Xubuntu 12.04.4 обновление LTS-выпуска, в которое вх�
 ```bash
 magnet:?xt=urn:btih:1112FCAE5089CC0973630A0337DD6F6A5D91EEA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

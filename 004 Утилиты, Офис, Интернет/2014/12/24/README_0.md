@@ -19,8 +19,7 @@ USBTrace - небольшая программа-монитор, показыв�
 ```bash
 magnet:?xt=urn:btih:DE758B3FA7B7CA6273038E2AA9BC998809E8BE06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

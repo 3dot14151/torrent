@@ -19,8 +19,7 @@ DevCheck Hardware and System Info Pro 2.61 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F2050DB1A31AC9A4F09E2D3037ECD07721AA9E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4D847F6709F9AA130FC1ACDB5029B61824C0267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FullReader Premium 4.2.3 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9011CF5122267A76EF1D868209869B1B40800585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

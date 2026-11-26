@@ -22,8 +22,7 @@ Herman Frank - Studio Albums (5 releases) (2009-2021) hand made [restored, decli
 ```bash
 magnet:?xt=urn:btih:C943394C97F4DCDBFDFA5366DA7452CE81E08A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Darkness By Oath - Seeds Of Desolation (2014) [MP3|320 кб/с]<Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:A3E111600FAF63AFF696D60C3955A05B5330E223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Leading Light - Protect The Sinner (2014) [MP3|320 кб/с]<Metalcore / Atmosphe
 ```bash
 magnet:?xt=urn:btih:5B754B1CBB4E2641848D41C6BA9AE431A7638054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Nefastis - De Diebus Fastis, Nefastis, Infaustis (2014) [MP3|320 кб/с]<Melodi
 ```bash
 magnet:?xt=urn:btih:58AE8590C0F0BC7B2A79628971DA044848FBECCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Dickie Peterson - Child of the Darkness (1997) [MP3|320 кб/с]<Hard Psych Rock
 ```bash
 magnet:?xt=urn:btih:C33EAD36F2B4C448156C1163DE94F0D0E1B1F26A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Iced Earth - Box of the Wicked (2010) 5CD Box [FLAC|Lossless]<Power/Thrash Metal
 ```bash
 magnet:?xt=urn:btih:CC7BDBEE41BBFFAFCD8E6FE59C1A928557CD3A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Edgar Allan Poe - Legado de una Tragedia (2008) [MP3|320 кб/с]<Heavy Metal/Ha
 ```bash
 magnet:?xt=urn:btih:2784FFE101A7B3169BB45F2959BDB0F33C973D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

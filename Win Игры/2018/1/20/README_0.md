@@ -19,8 +19,7 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:369BCEDDF6792FDEB4CA16733F4B40CC3C58EE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead or Alive 5: Last Round — это доработанная версия з�
 ```bash
 magnet:?xt=urn:btih:95B11D321736978AB2592962D3575CA7531272C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ World Of Warcraft - многопользовательская ролевая о
 ```bash
 magnet:?xt=urn:btih:7AFF68B0FDB5460C5DD9D2A5C8662BD4685EEE30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

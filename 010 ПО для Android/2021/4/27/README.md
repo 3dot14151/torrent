@@ -20,8 +20,7 @@ PhotoPills v1.7.3 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:78D3B8C8E3F0FF66B2F93071868159C4329EDCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sunnytrack v6.2.2 [Ru] – Положение солнца, Тени, Золот
 ```bash
 magnet:?xt=urn:btih:35958EB53A66162F24AF8B600CD72E20DE78EB9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Songsterr — приложение для просмотра и разучива
 ```bash
 magnet:?xt=urn:btih:6E5456A316D9C93A3EF7931D64E7782FDECA5523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Aliens: Fireteam Elite 2 отправляет до четырёх игроков
 ```bash
 magnet:?xt=urn:btih:4E2ADF23A0D439646ACD138082368E15323149CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Curse of Pirates - пиратский экшен‑рогалик от сту�
 ```bash
 magnet:?xt=urn:btih:AEFBE53CB97597A74C6B1E0927EF447A0A4AA920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Prince of Persia: The Lost Crown - это динамичная метроид�
 ```bash
 magnet:?xt=urn:btih:5D9F06598785A385671ADCA35E964FF184BD7D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Prince of Persia: The Lost Crown - это динамичная метроид�
 ```bash
 magnet:?xt=urn:btih:EE9BB6A50D4211DCF73807EBAAA02038421E9439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Prince of Persia: The Lost Crown - это динамичная метроид�
 ```bash
 magnet:?xt=urn:btih:1B577610535EE2738986B784AC834DFF5B5FB373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Shadow Dungeon - это мрачная фэнтезийная экшен-RPG с 
 ```bash
 magnet:?xt=urn:btih:CAC23F160AC4D6D2A94953D232DCD90ADBC9428E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Shadow Dungeon - это мрачная фэнтезийная экшен-RPG с 
 ```bash
 magnet:?xt=urn:btih:36155FD71C7B66DE95ABA4D3D8D371A82C8230CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ NBA 2K27 - флагманский баскетбольный симулято
 ```bash
 magnet:?xt=urn:btih:F2C1278AC960D0E3B2FBBCFD1CD9B78FB2120DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Darkest Dungeon – пугающе сложная пошаговая ролев�
 ```bash
 magnet:?xt=urn:btih:43A234D05007871998F54BD7CF3479E8D01ABCF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Far Cry 5 (2018) [Ru/En] (1.016/dlc) Repack seleZen [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:1F63CAD35C2D14BD5533AEE4339DD1386C124CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Far Cry 5 (2018) [Ru/Multi] (1.016/dlc) Repack FitGirl [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:419F2A34EE32A372F9F154F755E848D4CF9DD551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Whirlight – No Time To Trip - необычный квест, расширяю�
 ```bash
 magnet:?xt=urn:btih:79974C79C6E4AA9F30CEA54CEE6070B79E87DF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

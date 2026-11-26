@@ -19,8 +19,7 @@ KIBORG (2025) [Ru/Multi] (1.08/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3F61C8B7DFAE25735A4D3DE409992736A6F6B2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

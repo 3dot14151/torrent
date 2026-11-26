@@ -19,8 +19,7 @@ Boogerman 2.0 [En]
 ```bash
 magnet:?xt=urn:btih:1D70E547BE71C6D52752D21DBCF642C3B5DFFEB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Urban Strike 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:BAFA140F1FE5062CBE24DED856178FF537AD9422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jurassic Park The Lost World 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:1E1A8A3CD85B5957267A97F18F9BD75C0651E728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Robocop Versus The Terminator 2.0 [En]
 ```bash
 magnet:?xt=urn:btih:CD15AE6B0D0FE8EEB6CB700787DF4163742B4C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dune The Battle For Arrakis 1.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:13EA3CB7DDC5E87FFBFE3AA114A1EB53039AD411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Battletoads end Double Dragon 2.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:13F1F0DFE67369B18731193D20F964F5ACE0EBE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

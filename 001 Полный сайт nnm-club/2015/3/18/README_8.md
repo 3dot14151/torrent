@@ -19,8 +19,7 @@ Variant - Auratia (2015) [FLAC|Lossless]<Dub Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:35AE8EE9F45652716D072FEF021C50A566C24408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Louis Prima - Pretty Music & Wonderland By Night (1998) [FLAC|Lossless]<Jazz, Sw
 ```bash
 magnet:?xt=urn:btih:9BE580805893D73DEE8686F7D460ABD93309FD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22FE78B0C350A44EDC9118B6CF18E7F4536099E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Souleck - Game Over (2015) [MP3|320 кб/с]<Gothic Metal, Alt. Metal>
 ```bash
 magnet:?xt=urn:btih:55E6D5D7793ACCE7324651B7E590EC277097D4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30FE7A1FEEE762554CAD94B45DC61357B46CD3F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ CunninLynguists - Sloppy Seconds Volume One (2003) [FLAC|Lossless] Mixtape <Hip 
 ```bash
 magnet:?xt=urn:btih:1D3AEA9FB7C8EE416ADD9342140CC9D63FCFAB30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Snakeyes - Ultimate Sin (2015) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:79242EA66134941383390D41029318C0E0E7D17D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ CunninLynguists - Sloppy Seconds Volume Two (2005) Mixtape [FLAC|Lossless] <Hip 
 ```bash
 magnet:?xt=urn:btih:661011E59F55B82FC91FBC78B4E8BFAE985FE71A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8894CEADB0F61B3DD09448602080E91154305A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8106FE51E294FBF8CC7FDE522F133FDE4F296C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37CF5362F6EFEFA1F4681F7909591C0507870A3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Alan Hull - Squire (1975) /2001, Warner Bros., Germany/ [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:DA53F56E26BE49079FB09803C983FC7C7118A072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A62EA7D2A099658AA8D2D8A5AD0F0E1B5873146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F5EAB31786C458CA20102A1650BE73356F57F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Madlib - Medicine Show No. 2: Flight To Brazil (2010) [FLAC|Lossless] <Jazz Hop,
 ```bash
 magnet:?xt=urn:btih:48BCD89603CD5BAA49B91F76802D697B61F4C170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAADB4019C793DC6D157ECF9932BF9E5A4E7795B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ VA - Tallinna Lounge Collection Vol.5 (2015) [MP3|256-320 кб/с]<Chillout, Dow
 ```bash
 magnet:?xt=urn:btih:F6C00FA0877AE35C0891BACA23DB5E798042875F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Nullvektor - Marathonmann (2014) [FLAC|Lossless]<Rhythmic Noise, Techno, Industr
 ```bash
 magnet:?xt=urn:btih:A686B4C72ED96A0BFF9A8BF16A86B12B04AFD4D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ VA - Vintage 50's Swedish Jazz 1949-1961 (9CD) (Box Set) (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:1A69B5E0ACB1513B9C6C589179E62E663949EEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2CED3B413E0E4C4065EF48055246D507AEB34F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D70A2BCB77F526EFE2AACA4C1C52F0AE76949BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D0F57DE42A5DA100C5410B14DA4DB13114BC2B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ Sensorica - Eva (2015) [MP3|320 кб/с]<Ambient, Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:543F668E078D867922016BEA46DFE99B335725FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4827F8EA37C8C94C1BF668E2508DB6F637468981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ Ray Charles - Standards (1998) [APE|Lossless]<Blues, R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:8BF7EE1348AA5B6202E9BA634D2039D8CFC55602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Eddie Condon featuring Wild Bill Davison 1951 - 1952 - Dr. Jazz Series, Vol. 5 (
 ```bash
 magnet:?xt=urn:btih:F2370CFCA2FB016C8C4386461A9BF01FC47EDF38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D906DE20CAEB9BD44EFE56CBB2ACF53CB0FE4396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ```bash
 magnet:?xt=urn:btih:E9C306859336BA1D56D8BA6709FC0D925FB4C873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Marked 2 — универсальный превью-инструмент для
 ```bash
 magnet:?xt=urn:btih:0281CB9B53F909097920575020948737CFFEEF57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C42514DDB13836AB4B906F5A6EDCAB64564B675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ VA - Melodic Lines Electro House (2019) [MP3|320 Kbps] <Electro House, Dance, Cl
 ```bash
 magnet:?xt=urn:btih:B4A56FE2914BE5D2CF82D2B59F2D03FB97BCC994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8B6B3491DF40DE8315B81CFE23F9C44838AF100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ SE - TEPHRA (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F803A27E19EA91535B5FAAC522B1CC4B38E77A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Inboard 1.1.4 [En]
 ```bash
 magnet:?xt=urn:btih:B7AF0407053FD742C73F229BCA7A4B4A44D08B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ VA - Abstrct Vision: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Tranc
 ```bash
 magnet:?xt=urn:btih:26EFE63CC77F5E72CC9D245D7F803E2E271944A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ VA - Hedkandi Dance House (2019) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:499E2889D2DE509115FF99D8B4F094611B0576D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VA - Future Horizon: Tech House Movements (2019) [MP3|320 Kbps] <Tech House, Ele
 ```bash
 magnet:?xt=urn:btih:11C6308927265FCF3A7F0E30211313E62C2D75B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - EDM Classical Melodies For The Dancefloor (2019) [MP3|320 Kbps] <Electro Da
 ```bash
 magnet:?xt=urn:btih:AE74C8269E5933B4472AC79D1746133F5E00AE71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD9AD97183297E5E9E39AA5F5ADDFCFC15D930CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ VA - Club EDM Mysterious (Vol. 01) (2019) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:DA8F2C71EAF54E4DC78D741D6314A727BF41EE72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ```bash
 magnet:?xt=urn:btih:81D1007AAA03C382D1C966470F55360E02B54144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ VA - Club EDM Mysterious (Vol.02) (2019) [MP3|320 Kbps] <Dance, Electro, Club, H
 ```bash
 magnet:?xt=urn:btih:19AFEC39C0EB0CB9EC43C4AB5F8D272FD7FE64FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:A479849760BCBF59DF969A6ABA0ACD11734B1074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ VA - Hardstyle Dance Music For Fitness (2019) [MP3|320 Kbps] <Hard Dance, Hardst
 ```bash
 magnet:?xt=urn:btih:34FFAB08EFC1DA9D178DED954843E9DFB8742A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ VA - Chill Music In The House (2019) [MP3|320 Kbps] <Chillout, Chill House, Ambi
 ```bash
 magnet:?xt=urn:btih:E7E81508CE46357CA95A28FA9365F3B1FE99D6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ MacClean360 - удобный и безопасный уборщик вашего
 ```bash
 magnet:?xt=urn:btih:27148E3AE7E70E44D38990AB82C18FF8971EABE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ VA - The French Touch Connection - Mysterious Lane - Face A (2013) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:DA0DAAE0ED928B12974C6AC04965A36ED004BE71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ Aimersoft DVD Ripper 4.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:C906BB1928BEBB2F970FA63D7D93BCC77D93DFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ VA - Hypervolt: Essential Techno Electro Mix (2019) [MP3|320 Kbps] <Techno, Elec
 ```bash
 magnet:?xt=urn:btih:4DD217E767FE5D78B97E5A05C2F7149D42619C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ The Vision Mastermixers - Christmas Party Megamix (2000) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:BBFDEF9C655FCC16897BB53C6BA497DA0603ED6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ VA - The French Touch Connection - Mysterious Lane - Face B (2013) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:F66A6A15CD995F7DF15A44D8C72FECC089F4F875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

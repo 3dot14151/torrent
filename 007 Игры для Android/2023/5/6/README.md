@@ -19,8 +19,7 @@ Alias — популярная игра-викторина, которая ид�
 ```bash
 magnet:?xt=urn:btih:BEEF499156D980205906FB6893F642153DAB052F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

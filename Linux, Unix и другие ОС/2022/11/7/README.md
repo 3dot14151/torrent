@@ -19,8 +19,7 @@ Athena OS amd64 [Хакинг, аудит, безопасность] 22.11.04 [a
 ```bash
 magnet:?xt=urn:btih:9FF33E3988F31CDFC917A96D7AB2B3015BB7C0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

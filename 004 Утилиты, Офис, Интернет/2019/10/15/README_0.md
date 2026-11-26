@@ -19,8 +19,7 @@ WinX DVD Copy Pro 3.9.2 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0B8387B4BB644D406B4E509046336CAAAF7C7BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Jennifer Wolf and the Mayan Relics [Multi5/-] (P) 2012
 ```bash
 magnet:?xt=urn:btih:58859A5F4B23E22CFD7171E60191EEA6080E7D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Happy Kingdom [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:BBC097DE056B41A400D53A72AB1FA62FC9EDD044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Runaway With the Circus / Гвоздь программы: Следуй за м�
 ```bash
 magnet:?xt=urn:btih:768412FBA3D001239E93C9C195807BD15550393D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Margrave: The Curse of the Severed Heart Collector's Edition / Тайны сем
 ```bash
 magnet:?xt=urn:btih:96C1D1E7C4FCD5E7B68EDAE37F2CD0B4E4A32E27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ WRC 3 FIA World Rally Championship [En] (RePack) 2012 l YelloSOFT
 ```bash
 magnet:?xt=urn:btih:68EC27545CDC097B7C1103EFF1AF90885EE4A662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mark of the Ninja [En] (P/1.0) 2012 | FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:42496E4713AEA5D71AB9EAD17003EE5BE54AD340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ R.A.W.: Realms of Ancient War / R.A.W.: Проклятье древних кор
 ```bash
 magnet:?xt=urn:btih:3987F1A944B769E006BF4D64D041E84E78504EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

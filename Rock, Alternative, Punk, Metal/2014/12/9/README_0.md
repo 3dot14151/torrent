@@ -28,8 +28,7 @@ Disembarked - Nothing's Wrong Here (2014) [MP3|320 кб/с]<Post Hardcore, Screa
 ```bash
 magnet:?xt=urn:btih:8905545DCC8FDB915F21E9ECDB10195BF9F5F857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Folkearth - Balder's Lament (2014) [FLAC|Lossless]<Epic Folk/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:6F5EE781659571D42521E3B83F127186ECF93B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Season of Ghosts - The Human Paradox (2014) [MP3|320 кб/с]<Modern Metal, Indu
 ```bash
 magnet:?xt=urn:btih:7995D97FE474C17A6A2108EEDEF89C5CB2339B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Alvin Stardust - Alvin (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:C8C2002633CE72ED099AB93595F4722991D34918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Giant - Live and Acoustic - Official Bootleg (2003) [FLAC|Lossless]<AOR>
 ```bash
 magnet:?xt=urn:btih:3DA5C98172B7384DD24C409F9588BF7DC7D1755D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Giant - Don't Leave Me In Love (2001) [FLAC|Lossless]<AOR>
 ```bash
 magnet:?xt=urn:btih:5E6CA747145C9251FACB14AC85C9F06DB5E34D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Cadaveria - Silence (2014) [MP3|320 кб/с]<Dark Metal, Gothic Metal, Extreme M
 ```bash
 magnet:?xt=urn:btih:C95BCDBD09D549F9AFEF3A7E0CC084D3C99EC92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Giant - It Takes Two + Giant Live! (1990) [FLAC|Lossless]<AOR>
 ```bash
 magnet:?xt=urn:btih:6D3323B5DC2498FE14533F9C2BA9202E1C02B911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ Giant - III (2001) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5D8B4BF6D0C0B5C9489A305A43486A875B1E37EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ Giant - Last Of The Runaways (1989) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C768C121AE1F641CDFAC8DF2D7FF4F34AB228EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +359,7 @@ Giant - Promise Land (2010) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5DFB5F55379820D9C5DD5340516FF134B10B74B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

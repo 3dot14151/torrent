@@ -19,8 +19,7 @@ We Are Not Alone (2024) [En] (1.9.5.1) License GOG
 ```bash
 magnet:?xt=urn:btih:49239A213C40B3D2CDB8407027A7EAC4B6216F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:218891BBC7FFA6C0D70324B325987CA520C32B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:33554350970772CE8DE6849C87FC3D14BFF25EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Death Roads: Tournament погружает юзеров в гоночные со
 ```bash
 magnet:?xt=urn:btih:AA8259DAD234F91426E4845069244F412BDAB338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hellish Quart – реалистичный файтинг с использов�
 ```bash
 magnet:?xt=urn:btih:0BBD1E6D4155DE46F573C50E294425072AA6652F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Morbid Metal - это экшн-rogue-lite, в котором игроки мог
 ```bash
 magnet:?xt=urn:btih:BFEF44E1B16752EA28D7BB3AC0F0860DAF721D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay [Demo]
 ```bash
 magnet:?xt=urn:btih:07304F6AB9B6566CC64417E6E611D4CD783DF8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tormented Souls - это игра, которая вновь погрузит в
 ```bash
 magnet:?xt=urn:btih:A53C6FBF23E016A066A08FA9F1DB2C300439C802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Rayman 3: Hoodlum Havoc (2003) [Ru/En] (1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C97E42741B95389887FA586B9D4962C6F1D9086B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

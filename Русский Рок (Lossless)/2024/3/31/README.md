@@ -23,8 +23,7 @@ Zемфира (Земфира, The Uchpochmack) - 7 Albums + 10 Singles + Live +
 ```bash
 magnet:?xt=urn:btih:2ABFCA3523A6D3868A4F6B0ED40D8DEE228022DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

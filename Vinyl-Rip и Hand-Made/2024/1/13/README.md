@@ -22,8 +22,7 @@ A1 Я — Просто Певец • I'm Only A Singer
 ```bash
 magnet:?xt=urn:btih:E74F8F0520A8681935D11A5BB56057346E0A1B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Triple Kill - Thrash/Power Metal-группа сформированная в 20
 ```bash
 magnet:?xt=urn:btih:7243D16CB5D49ABF21C4E127623671BCB5AB6D2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ City of Stories: Stephan's Journey / Город Историй: Путешест
 ```bash
 magnet:?xt=urn:btih:10F187BFABCE2E2821D70112AD9CC69AC04B42F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Racine (2023) [Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:3E99E6613CDF36FC92CEE814DBCFE0D1CB2EB388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lillusion - это ролевая игра с традиционной 2D-гра
 ```bash
 magnet:?xt=urn:btih:F020448D7FBA1D4C21E46FA388E4D5750AD26BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

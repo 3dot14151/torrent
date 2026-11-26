@@ -22,8 +22,7 @@ Possessed - Revelations Of Oblivion (2019) [FLAC|Lossless|image + .cue] <Thrash,
 ```bash
 magnet:?xt=urn:btih:C4665A96B05D1D9FA63699BCEEE78B78A42AF082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

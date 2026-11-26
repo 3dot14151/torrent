@@ -21,8 +21,7 @@ VA - Soul Waves Music: Best Of 2015 (2015) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:8324E0C95D94ECFA9B0675197C7FFDE12311B5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Perfecto Records: Best Of 2015 (2015) [MP3|320 кб/с] <Trance, Progressiv
 ```bash
 magnet:?xt=urn:btih:3986775E43E10214850702D51ABE6CFE946D70BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Abora Recordings Best of 2015 (Mixed by Ori Uplift) (2016) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:0ED5F1C19A5EB017CB11C8E9F2491541F8E27CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Syllamo Trio - Marcella (2015) [MP3|320 кб/с] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:AA77E8EF8748B1E37E87CD7E71E86F6042B80524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53E3C30DFC181292B6FB01FCECF181DA98A8DF9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72E8D6BE871B2F4E14C6DECC0B93A6F0C4C3699F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08A01A5327BA13F0EFEDDBCE809BBBE949069A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Chico Hamilton - Peregrinations (1975) Remaster, 2013, EMI Music[FLAC|tracks+.cu
 ```bash
 magnet:?xt=urn:btih:163B8BE0E16379BA6DE3833142DE747009DEA5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Smash Hits volume 1 (1995) [MP3|320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:CB58B59557F1EC719289BAE06A07759AA161A5CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6CD02C488ACABCA702B58A04E27695BC59E15B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7468436905674259AFBED9D59A87042F629FAE5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4A26F385CD4A34293B96F90CD6371C9F4CC1500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13312F21AD2C3F7E3E19E3E73263AED1E50CE028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ VA - Get up with Best Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:F5E503373F96D0F2DC53907120B7C9B71CB2F36B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ Soulounge - Home (2004) [MP3|~190 кб/с] <Soul, Jazz, Funk>
 ```bash
 magnet:?xt=urn:btih:08FCAB11DBA0AE74B485A8693C4D732DB18566A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Bob Sinclar - Born In 69 (2009) [FLAC|Lossless|tracks + .cue] <Hip-House, Euro H
 ```bash
 magnet:?xt=urn:btih:EB7664996A78233CBB18295E5CB98C0983FAF61E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2615CFF34056D3109800D9AB019B6E11D52D411E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7E415B256283F4BAB0CDAE084586323CE9E48CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ Jim Brickman - Pure (2006) Japanese Edition [FLAC|Lossless|image + .cue] <New Ag
 ```bash
 magnet:?xt=urn:btih:11A681FD06DC66BC753FFA7C4051FEBAC4592440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7015DE8935213AE8F815A59ACB3EAA00F4127E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Audio - Now The Future / Drop It Human (2015) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1ECFA6CC32D1D81AAB2F82959F719DADBAB8788B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5147863CF20FC379A04D6F286F42AE0BDBEAF382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B186828DCF639E7BB2551AC84393D78572EB5B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ VA - Радио Шторм представляет: Клубный Yearmix (201
 ```bash
 magnet:?xt=urn:btih:77B55818DDFAFC96E56D6183020A7F0A4DA20B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ Jazzra - Soulounge (2009) [MP3|320 кб/с] <Lo-Fi, Nu-Jazz>
 ```bash
 magnet:?xt=urn:btih:8B2C60EA1D6A1FDDF6C859110813C62792F04826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0ED1ED781B4B28544650BA397978295C9B73E30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Crash Time 5: Undercover (2012) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F9835F689BEEEBD77F72C511F256D0707DB388F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ CastleStorm - это игра выполненная в смешении жан�
 ```bash
 magnet:?xt=urn:btih:0C9342575A926E593A6848D548ACDCC06A6CF8C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

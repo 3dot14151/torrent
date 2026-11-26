@@ -19,8 +19,7 @@ Acronis True Image WD Edition - бесплатная версия програм
 ```bash
 magnet:?xt=urn:btih:154707699E2B706770D5EA5CCAAFBF043B76DDEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

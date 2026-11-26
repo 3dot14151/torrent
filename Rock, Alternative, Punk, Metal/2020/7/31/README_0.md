@@ -22,8 +22,7 @@ Mastifal - Intermundia (2010) [APE|Lossless|image + .cue] <Melodic Death Metal, 
 ```bash
 magnet:?xt=urn:btih:5EDF099E9E85F6E43C81A8EAAE158A32D2201004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Saints Everlasting Rest - The Dusk Of Millennium (2005) [APE|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:782FEC94C5C788580C8B04E325CF4C2191B036EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Celtic Frost - Vanity/Nemesis (1990) (1-st US pressing) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:F5A96B6D7B5BC0135B0871DF8A28C8D73E82D2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Metal Priest - Bursting Out (The Beast Became Human)/Get It Now (2006) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:E3B836091124919A5A70D5C7FC51ACDD68D519A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fontaines D.C. - A Hero's Death (2020)  [FLAC 2.0|96/24|tracks|WEB-DL] <Indie Ro
 ```bash
 magnet:?xt=urn:btih:12CAB4B895CA7D14D696144D19890E64FD4950D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Alanis Morissette - Such Pretty Forks in the Road (2020) [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:B940C7599D37BE4928C3E11154DA8D15E3EC8988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

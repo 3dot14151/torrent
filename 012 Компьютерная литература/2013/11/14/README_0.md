@@ -19,8 +19,7 @@ Aвторы не предлагают эту методологию как не�
 ```bash
 magnet:?xt=urn:btih:233B1BF2E2AA683A04CD96F3780A40989AB1BEBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7226FC51B0B3EF29F72B8011775CAAA3C798299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

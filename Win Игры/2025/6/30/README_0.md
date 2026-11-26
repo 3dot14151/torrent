@@ -19,8 +19,7 @@ Bygone Dreams (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:174CB5E9D7051552AC4691A06D6FED149B7CE173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:471C0BA83C64A2924E516C2B7B91B8E6A65410FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.64.0/dlc) Repack FitGirl [Deluxe Bundle]
 ```bash
 magnet:?xt=urn:btih:A88629C04A49B5958F3F9928BC6ADD667DE78A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Control (2020) [Ru/Multi] (1.31 HotFix/dlc) License GOG [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:FC4AD71E266BF4E009511F28E7022C09CE45FEFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ POPUCOM - кооперативный приключенческий платфо
 ```bash
 magnet:?xt=urn:btih:737126C3B3FC73627CFD8B03600C46F16D16215F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
 ```bash
 magnet:?xt=urn:btih:DB983BC1ABBAFA35B1CFF6531B59BE4FA54A2E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Boxville 2 от Triomatica Games - это следующая часть прик
 ```bash
 magnet:?xt=urn:btih:81DF80114D7F94F5026AE4D17745983D2F43BB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Leftovers KO! (2025) [Multi] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:DBE4E4015E19BBA82EE7A82F50D5C3C97E074613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ POPUCOM - кооперативный приключенческий платфо
 ```bash
 magnet:?xt=urn:btih:324AB8730F7D8B40A2887569CEF4077F9FF8E823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ All About Chopsticks / Все о палочках для еды (2025) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:A2FA7672E7E7A35F0CDBBE687C1134FA12371DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

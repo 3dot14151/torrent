@@ -20,8 +20,7 @@ Ruby on Rails - один из наиболее популярных фреймв
 ```bash
 magnet:?xt=urn:btih:187BF4772FAF65A3DB4BED941929BA4F2E6D6DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

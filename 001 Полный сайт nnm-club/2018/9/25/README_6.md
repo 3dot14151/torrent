@@ -19,8 +19,7 @@ NetWorker - легкий и простой в использовании инс�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tri-BACKUP Pro 9.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:31BBF31C4377301BB9D6FDED8246C806F493D29C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SuperDuper! - Утилита для клонирования жесткого д
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Calendar 366 II 2.3.8 [Multi]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Omni Recover для macOS позволяет восстанавливать уд
 ```bash
 magnet:?xt=urn:btih:9F0FC6EA52C7D00F8E51AFDAF113BFC4AE2F454A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Feeder - это полнофункциональное приложение дл
 ```bash
 magnet:?xt=urn:btih:6B047E4D973721940242F47C582F858B18248E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:943643922097E2DADF3D1ACA3250044676EA6893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ IconJar 1.11.0 [En]
 ```bash
 magnet:?xt=urn:btih:29B7662B7559D16C4E84E10D59AA2C60982F4462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ VA - Good Bye Summer '18 (2018) [MP3|320 Kbps] <House,Future House>
 ```bash
 magnet:?xt=urn:btih:A679B15E52DCF15840B2C6C68198E889F8B11571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ VA - Trance Rave Vol.1 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:47EB806EE0CE731A33B686E45CFBD884FF9B2FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ iTrash - утилита для удаления приложений с ваше
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Network Radar предоставляет Вам информацию о сети
 ```bash
 magnet:?xt=urn:btih:00841D4F98EA852FFCDC88AE6852C8D94F942863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ VA - Pacific Trance Waves (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F15F2B1BCD23825A8467C81AB3E9927A8CD23018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ VA - Trance Maschine Vol.6 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ VA - Trance Rave Vol.3 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ VA - Tech House Frequencies, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech House, De
 ```bash
 magnet:?xt=urn:btih:F7566DB1DC3E5BBFD152D2D31E598A540424F271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ VA - Beatbox Rockers, Vol. 6 (50 Club Bangers) (2018) [MP3|320 Kbps] <House,Elec
 ```bash
 magnet:?xt=urn:btih:02FAA9B73439042C018E86DC76AF24B92295A275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ xScope — cоздан специально для дизайнеров и ра�
 ```bash
 magnet:?xt=urn:btih:A410EF37E43F2AD699636BA4D8ABD195D2167117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ Get Backup работа по расписанию; возможность пол
 ```bash
 magnet:?xt=urn:btih:22227D6B27F4934928C0D78FBE00B6FC8C9C7673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28D91AE5233F79FCAA54F31183BF6B1E5E358193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ CD1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ popCalendar представляет собой миниатюрный кале�
 ```bash
 magnet:?xt=urn:btih:209EDCA01F642BC75F74249E4E8C9CF5B06DAAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C02B32E91157343C9A86048700300523AD102F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB44C53ED988022F36A16324DEDBA6E149FC43DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ Comodo Dragon 68.0.3440.107 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:27A874B55BD2BC9E72FE00FA0EE98062080B8CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FreeArc — современный архиватор общего назнач�
 ```bash
 magnet:?xt=urn:btih:4D0472EB91FC6C3A20F8FE6ADA2CD17F382B657D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

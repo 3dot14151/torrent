@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2B916179FBDCF18AA4B58B3902B43759D7738DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Schwarz & Funk - Beach Flavour (2013) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:133096AE9456152701492F95454824337DE024F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Violin Sonata No 3 in C minor Op 45
 ```bash
 magnet:?xt=urn:btih:A56F966D88BEAF1E51DAFE4868CBAE49C626B3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Brian Simpson - 2 альбома (2010, 2013) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:5868C3B1D6410419F692910309F9D99938E31879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Discovery: История мира. Серия №4 / History of the World (2012
 ```bash
 magnet:?xt=urn:btih:67F1C96B773783ED299FDEDA15CF86175F69DF56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ Discovery: История мира. Серия №3 / History of the World (2012
 ```bash
 magnet:?xt=urn:btih:04F888208533957F59EB8E8699F2FFF8EBC2BF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ SpeedUpMyPC является удобным настройщиком вашей 
 ```bash
 magnet:?xt=urn:btih:A227D4DD1F063F0FCD183BB29D8A561EB3870785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F81627B47B87B875E84DC32B94BF054DBCF22E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ VA - NRJ 200% Hits 2013 vol. 2  [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:17DEDE688060E418E48BF1944866D46AEA05754A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ Angie Stone - Mahogany Soul (2001) [FLAC|Lossless]<RnB, Swing, Neo Soul>
 ```bash
 magnet:?xt=urn:btih:8C4A98D3C2BFC315086DE0C66E1FAA8FC56A0D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ Severence - Hidden Ceilings (2013) BineMusic [FLAC|Lossless|tracks+.cue]<Ambient
 ```bash
 magnet:?xt=urn:btih:2C7E7AE4CE24479E9450BC86192A61F0044DC418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C54AEB28F719B1A0F7D60197329F309604896BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BFD95D962E9386CE1A1EFE6200475FEFA79392D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ Architect - Mine (2013) [Hymen Records] [FLAC|Lossless|WEB-DL]<Downtempo, IDM, A
 ```bash
 magnet:?xt=urn:btih:118361DBA32EEF6051942BCE34761151B32493B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:28DD4E8241DD842537DB710229B54106C776F189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:2B8DC4B6609F25CD084C759314429E51A9BC91E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ VA - A Complete Introduction To Chess (2010) 4CD BoxSet [MP3|320 кб/с]<Chicag
 ```bash
 magnet:?xt=urn:btih:0F8EC8691338C3BCAEDE23958048EC5068E71D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ The Standards - студийный альбом кубинско-америка�
 ```bash
 magnet:?xt=urn:btih:DDF0568538E35E8077422738ABB182E4D5EC0B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E3AE6C87FF8C37E89AD5536D82B1012E0BA5D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A3F03179180D3954E7A68630D5CD27664E908E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ PC Magazine является одним из известнейших и авт�
 ```bash
 magnet:?xt=urn:btih:5DC290D0EB013F8F223FC90A66D06E46674B83A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +628,7 @@ Malcolm Kirby Jr. - Saints Row IV The Soundtrack (2013) [MP3|320 кб/с]<Soundt
 ```bash
 magnet:?xt=urn:btih:6A229CF52B67E0CABFD3B2AC639C1E09D922D4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +653,7 @@ NG. Обезьяночеловек. Серия №2 / Ape Man (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:0D693A1D2B7330E7852A71613E1F2D9DB32273D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +679,7 @@ NG. Евангелие от Иуды / The Gospel of Judas (2006) HDTVRip [H.264
 ```bash
 magnet:?xt=urn:btih:639B945D940403BFA8772103A21EAD47C8C60EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ Santigold - Master of My Make-Believe (2012) [AAC|WEB-DL|256 кб/с]<Alternativ
 ```bash
 magnet:?xt=urn:btih:BBA0302B3C78ECFF26A590C66199238F98E7165F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +738,7 @@ Sticky Password – уникальная программа, которая ин
 ```bash
 magnet:?xt=urn:btih:E690240730C9D0ED2A77CB70F525EF1FE95463C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

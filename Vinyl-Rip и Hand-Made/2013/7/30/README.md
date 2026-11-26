@@ -28,8 +28,7 @@ B4 Gonna Sing You My Lovesong [3:42](   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:1EA831736BC7CBC1409BAF3908A74F0DC1339D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

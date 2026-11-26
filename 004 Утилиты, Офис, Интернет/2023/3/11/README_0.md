@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A81266EB8F42715F78760548B05BC8C5A396F111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ IDPhotoStudio - интересная программа для создания 
 ```bash
 magnet:?xt=urn:btih:48C5F418DC8DA5A95D084A68C82C1D3FFD42ACB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

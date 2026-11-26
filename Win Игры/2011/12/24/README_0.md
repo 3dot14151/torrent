@@ -19,8 +19,7 @@ Brink of Consciousness: Dorian Gray Syndrome. Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:F4FD6764DA465F7A185773C86D3E518ECAFA3572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World's Greatest Cities Mahjong (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:22FC31B1B375FD4A91F35983B682AFFAC9A414AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stone Age Cafe (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:0ABCE14C28889236B7CC9204FACA63D458526638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B88F34467311A57DB11CDEF871EC14294091401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Happy Chef (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:2794CE79A3B57D7BEA23C918F164B0046840232A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:720DA64CC6D9EEFE210774432DE487B1F75978CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47624488D496E25DAD1D75394A20B7FDA2A5E3B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

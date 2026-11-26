@@ -28,8 +28,7 @@ Falconer - Armod (2011) [FLAC|Lossless]<Power Metal/Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ The Flight Of Sleipnir - Essence Of Nine (2011) [FLAC|Lossless]<Stoner/Doom Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Steven Tyler - Love Lives (2010) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:51B2893D61EB639F7EB91465EC76402A3BCC4981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Yellow Matter Custard - One More Night in New York City (Live) (2011) [MP3|320 k
 ```bash
 magnet:?xt=urn:btih:F3A4BE5B7EC5CA84EF1113CC7F4D7AAB2A553DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Kitchie Kitchie Ki Me O - новая группа и первый альбом �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ VA - Super Rock. Power Hour (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:D0370AF40CECFE8A03CF78A1B2FC8D82F7EC465E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ Human Zoo - Eyes Of The Stranger (2011) [MP3|320 kbps]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:B717ABBE6767CACC098F051C89E959F50E47654C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

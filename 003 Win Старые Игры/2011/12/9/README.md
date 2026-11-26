@@ -19,8 +19,7 @@ Sea Legends / Морские легенды (L) [Ru] 1996
 ```bash
 magnet:?xt=urn:btih:A775B8490B5F44EAF49C78F2208AD82FD709CB5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

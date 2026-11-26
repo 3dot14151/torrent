@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Voskoley - Uninhabited Planet (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D134AC38ACD38D69E812CE9AF6E81B35AC4A7B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Empire Records - Classic House 3 (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:782DA44382FE613BA4633BC3FD22702999B0BDD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - EDM Dance For Valentines Day (2018) [MP3|320 Kbps] <House, Nu Disco, Dance>
 ```bash
 magnet:?xt=urn:btih:AC93D882B247294D2E2F4D1BC0DF5B65183008F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Dana Dawson (Дана Доусон) - Black Butterfly (1995) EMI United Kingdom,
 ```bash
 magnet:?xt=urn:btih:C348EEBCBEC6EEFAB4EE831CCAAB1FFEC0F54F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Brubeck & Desmond - Jazz At Storyville (1952) 1986, Fantasy [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:A70974E9A4AAB07E6A5CC191C7C9A8A3D963D997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Empire Records - Night Walk 2 (2018) [MP3|320 Kbps] <Progressive House, Dee
 ```bash
 magnet:?xt=urn:btih:2AEE76488880CDFBD84490A19DA97DA3F241EC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:356BE46BB7EA3E7634FFA77B75170BCE951BCF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Tidy Up - приложение предназначено для поиска д
 ```bash
 magnet:?xt=urn:btih:F5B370AFDE7FFF38BB94B904F6DEA321F7240CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32C8C48BD34FAE6B027A9FCB55317B3E9BB1FB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Empire Records - House Clinic 3 (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:1D823220A847C3B10964131CCABD1B7FA1E5EBAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Trance Favorites Episode #011 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:16B9266932C34FAFCAABEFA515F06F2EC495F889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:147DB5B4DE714E856D8207149FB340DA9E4CF1A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Known Rebel - Discography 4 Releases (2010-2014) [FLAC|Lossless|tracks+.cue, tra
 ```bash
 magnet:?xt=urn:btih:8D75FFF2571CE3084ED0859AAEDA2186286B0ABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C525E75219A59F7E34D0F5C10A88D4A42728BFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ VA - Relax Culture Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:E3A70A385083CF35F7C94AA2CCFD3D1A1D60380C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:439673E797F670CE0960693A428FE9B48AF4BBEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ VA - Late Night Disco House, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech House, De
 ```bash
 magnet:?xt=urn:btih:490239B99EB655D16E82567043CEC4D6BD087EB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5993A4289327C077F72E0A5E8DD1653700018BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7221C5E9BCEB1CA3B154B04937067FE6123DF41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Reggae Girl - VA (2018) [MP3|320 Kbps] <Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:A161140F8AA177C570FE65E6AB8D9AAC0E24258F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Tamuz Nissim - Echo Of A Heartbeat (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, V
 ```bash
 magnet:?xt=urn:btih:4934663A78E729C00EA9486A1A0C50944B6D6D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ John Surman, Nelson Ayres, Rob Waring - Invisible Threads (2018) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:AEEDED257402CD6BCF215117B0BD677B61CF84ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:179C503B0F53933AC476756EC93B687286AEEC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ Cкелетон. Кубок мира 2017-2018. Санкт-Мориц (Швей�
 ```bash
 magnet:?xt=urn:btih:7E00D956E8C51862304148A9BE8BF91D688C6AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3B67F7CC31BE4D4C584F026951F7A1C3FC04037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

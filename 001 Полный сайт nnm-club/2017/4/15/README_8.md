@@ -18,8 +18,7 @@ Acronis BootCD/DVD 2017 – это загрузочный диск, на баз�
 ```bash
 magnet:?xt=urn:btih:7E732C3528FB0F27A23B9A482777195DA858427B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886
 ```bash
 magnet:?xt=urn:btih:F54FCD25492387911CF0BEC7C8AEF4A3BD3B9BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Titanium Backup Pro 8.0.0.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5191856C216CBAC21ADE0786D3B19E762B4E3BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Kwheezy 1.1 (Debian + KDE) [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:738F84F33BEDEED4503DEAA44D71A4CDD51B6F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Alan Baghumian объявил о выпуске финального релиз�
 ```bash
 magnet:?xt=urn:btih:A13CCC65BEAA2D297CBE148AE5D1B20C567C2F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ PCLinuxOS 2013.08 KDE FullMonty [x32, x64] (2xDVD)
 ```bash
 magnet:?xt=urn:btih:7F342518525CE5747008FEA8DAAEFE9F6DAE7BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Delain - Dance With The Devil (2024) Japanese Edition [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:A086FB6CB79F7B4C98823778C41717431829FC11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lumen - Три пути. 20 лет (2025) Live [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:0F26041E1D03ADCE79ED4F3D5A732C482BCFB3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lightning Swells Forever - Delirium (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 ```bash
 magnet:?xt=urn:btih:5BB730C777B729C4D886F9673765874658E06BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The 7th Guild - Triumviro (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power 
 ```bash
 magnet:?xt=urn:btih:106B6827062333506FD83BEA9D1B6C62AA032F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Throne Of Iron - Adventure Two (2025) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5D6884AEA98A3A1D9A9A1B068FDB184931ADE4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Destruction - Birth of Malice (2025) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:748EDD865B86C655025B1AD390ED6AE2B52D48D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lacrimosa - Lament (2025) [MP3|320 Kbps] <Gothic Rock, Darkwave>
 ```bash
 magnet:?xt=urn:btih:0B14A480EBCDD998A6BCC92816530F594AC24475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

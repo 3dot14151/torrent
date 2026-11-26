@@ -22,8 +22,7 @@ Trail of Tears - Existenita (2007) [FLAC|Lossless|image + .cue] <Gothic Metal, S
 ```bash
 magnet:?xt=urn:btih:C28E49EDF079C7467C6337FA3D70A9E70D46221B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vampiria - Among Mortals (2000) [FLAC|Lossless|image + .cue] <Melodic Black Goth
 ```bash
 magnet:?xt=urn:btih:97586E485B5F3EE2C8D15AB5DAB525FB4EB63381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Trivium - The Crusade (2006) [FLAC|Lossless|image + .cue] <Thrash Metal, Metalco
 ```bash
 magnet:?xt=urn:btih:1CAD7432FA3076394DC6A45787371A13FDB553EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Bongtower - 3 Альбома (2019-2020) [MP3|320 Kbps/V2] <Stoner, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:E87FFA81038FC55F09C8B226B8D8AD58ECD3AABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Cirith Ungol - Forever Black (2020) [MP3|320 Kbps] <Heavy, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:313A54F7FE3D7EBDFDB02B9AF738C7AE6C1E510D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Pholhas -  бразильская рок-группа 70х, для латино-
 ```bash
 magnet:?xt=urn:btih:5A44965D7CE1E02985DFF8C2EA1648886F7D29CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Lord Vigo - 4 Albums (2015 - 2020) [MP3|320 Kbps] <Epic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:7A897AC908CB85A6BA71AC80BD644B83127D1965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Chimpan A - The Empathy Machine (2020) [FLAC|Lossless|tracks + .cue] <Progressiv
 ```bash
 magnet:?xt=urn:btih:828BD1FE4D5D6FC6F92E39F5F23E18F79271524E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Levandowskiy - Чувства или секс (2020) Single [MP3|320 Kbps] <Alte
 ```bash
 magnet:?xt=urn:btih:798E15176E11186E8268A7458D828D7DB45A77A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

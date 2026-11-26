@@ -21,8 +21,7 @@ Scientific Linux 7.0 [x86-64] 1xDVD, 1xDL DVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:27217EC29532033BBDD21E71FD6DE1EFE37D674C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Active @ Partition Manager - бесплатное приложение, кото
 ```bash
 magnet:?xt=urn:btih:F23A04F1799BC70B3C59566C3612DD09C4188208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ASc TimeTables — автоматическое составление расп�
 ```bash
 magnet:?xt=urn:btih:E9EC1001270248E37C8D87D4A392CBAE678D5D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

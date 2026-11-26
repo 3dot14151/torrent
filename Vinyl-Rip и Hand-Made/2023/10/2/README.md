@@ -22,8 +22,7 @@ A4 Marras IV(   Читать дальше...   )Жанр: Atmospheric Black Meta
 ```bash
 magnet:?xt=urn:btih:866859237EE73B837E31A8575A50C5D43C9EC52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Diablo — финская мелодик-дэт/грув-метал группа
 ```bash
 magnet:?xt=urn:btih:100F36BE192373B50EC264E0DA07BE6F3FF8BBAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD-1 (45:42)
 ```bash
 magnet:?xt=urn:btih:195B308004824B301633075387620139447D9723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

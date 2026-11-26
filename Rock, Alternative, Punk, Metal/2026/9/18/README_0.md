@@ -22,8 +22,7 @@ Kissin' Dynamite - Kissin' Dynamite (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:FAB610D7EBB8EA1F3994E96D2020A2A3CF8FD85D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Bends - If You Insist (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternativ
 ```bash
 magnet:?xt=urn:btih:DA1C9CED813FD5ECF70B88FFCB74F5BC104B6B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

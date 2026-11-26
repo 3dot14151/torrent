@@ -27,8 +27,7 @@ VelvetSeal - Lend Me Your Wings (2009) [MP3|320 kbps]<Sympho Gothic,Dark Metal>
 ```bash
 magnet:?xt=urn:btih:325E54546EB0423E2467FCA067B04541FFA9FFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Catharsis - Светлый Альбомъ (2010) [MP3|320 kbps]<Symphonic Metal/
 ```bash
 magnet:?xt=urn:btih:D9953804E6AF30045FA9924A71E6832CE908678E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:321A5B598567D933AA66745A99F6E8C3ECF252D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60658908BD078D743031432D7FBA84B4C3CCCE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Paradise Lost - Discography (1990-2009) [MP3|320 kbps]<Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Slade - The Amazing Kamikaze Syndrome (1983) [APE 2.0 24/192|image (Vinyl-Rip)]<
 ```bash
 magnet:?xt=urn:btih:877361BCF2AEE73E6D8599BC937F9F989B153B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

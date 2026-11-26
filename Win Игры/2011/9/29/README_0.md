@@ -19,8 +19,7 @@ Heroes of Hellas 3: Athens / Герои Эллады 3. Афины (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:C5F7FCB9340817319AC690E1DA410520C852A928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

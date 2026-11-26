@@ -18,8 +18,7 @@ Revo Uninstaller Pro 3.1.2 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CDF70F2EAC252F2D978F3FEC24033819DE1B3768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:987F851117D2A48E04611CB64A28824A9C595C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Emergency 5 / Служба спасения 5 (2014) [En] (1.2.2) Repack R.G. М
 ```bash
 magnet:?xt=urn:btih:4B0EC8788506258E0853AE3D27160ED6C214B0DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E6F828270145A6A2B25893CDBCAA7798FDD5AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Highlights School | Мастер-класс по цветокоррекции и
 ```bash
 magnet:?xt=urn:btih:1FCC023E791871BFA34C4E6061F65DAD4CC8B4AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7E92D746D8C2603BBF81E31EEEB79B0A9900DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ ABBYY Screenshot Reader – простая и удобная программа 
 ```bash
 magnet:?xt=urn:btih:97BF58322FE744B7C8A2DCEF340DC8DAC061F6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FE33DD6ACAA3253B4CFF8A796E4C5DDA72BC9B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ DiRT Showdown 1.0.3 (2014) [Ru/En] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:CC8717739FD18C9F91A31F6CEA6E783CF5449A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C74B4AEFBF3B6A2332112139A7AF212C4389459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ I Will Escape - стелс-экшен с видом от третьего лиц
 ```bash
 magnet:?xt=urn:btih:9226769A68B62E3F563E875148430B1D0A6D48AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D5F7FE679B40EFEEBCCF2BB97A8B772B8BE3FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CBD0275EBB04AD98ED65F8690B0B7FF52121BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ AIDA64 (бывший Everest) - утилита, являющаяся мощны�
 ```bash
 magnet:?xt=urn:btih:23024F2CABC22C2614486FD0D3D6E22441FD1553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5387087C10D09BD633026098CD46901F1B033FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB217832DAB7E8FA151B0EF1AC38E34D32B54939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5171C0F703E16DC8CE32EF9EBC44096C5A3EB249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Windows XP & 7 Drivers x32/x64 Update 31.12.2014 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:318E6D5673C41D5D74FFE28E4193FF37F9F42EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ Full Screen Caller ID PRO 10.1.1 - Фото на контакт /обновле�
 ```bash
 magnet:?xt=urn:btih:005A470E8CE5FEDCC82EA43011EE82CCE363F3E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

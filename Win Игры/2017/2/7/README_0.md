@@ -19,8 +19,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.20280 Hotfix) SteamRip Let
 ```bash
 magnet:?xt=urn:btih:768D52A64F9484640189B79FAA61E440AC94BAC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

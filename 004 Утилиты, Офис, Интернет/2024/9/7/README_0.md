@@ -19,8 +19,7 @@ ApowerREC - это программа которая может записыва
 ```bash
 magnet:?xt=urn:btih:D0B80D7528F14A2D7D1D38CE10B282B2DED64A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GetPixelColor 3.36 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C5050591CCCC71527B34B618AD4AF16EBDC2E996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Viber - десктопная версия популярного мобильн�
 ```bash
 magnet:?xt=urn:btih:92E97D90FA5D0256142FDD060EB426C81975A9F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Bulk Image Downloader – это программа для загрузки из
 ```bash
 magnet:?xt=urn:btih:064B5F187C38877A2BC46DE33A70C0EF088850A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ HyperSnap 9 - это самый быстрый и простой способ д
 ```bash
 magnet:?xt=urn:btih:070BDF15227A551F37B059CDEC06F6E0B2130154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Colors Pro 3.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D47B5A841E68AFF2A4AA2B5965E7366054BD2B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

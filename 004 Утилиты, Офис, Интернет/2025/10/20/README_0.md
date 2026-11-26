@@ -21,8 +21,7 @@ QuickPanel — панель быстрого запуска приложений
 ```bash
 magnet:?xt=urn:btih:02DB00FD8C6A11EA2E6858FDC1C499A473D76DF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DA0B6EE894455332AF9369BC704FDDC517241D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:6607E8DC4A54D1C9DB1C8E0A03642F785066B155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ BleachBit – это мощное приложение, предназначен
 ```bash
 magnet:?xt=urn:btih:D54C1C16A66BDD30AA25704B5465E4C3B11B40D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:B55705A6E839B7DBD802E2C3DF19A0C0635160EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ MAX Desktop 25.13.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:BDEE89DB3A292DDBEB5DA1BB51A65731C817DD57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Slimjet 48.0.0.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7EE0032E49DFC0EF281A3866693136EF6153E0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:927025955A20E82B1E293C2347A1E3EDB095F6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Fen - Dustwalker (2012) [MP3|320 kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:2E4BC166FAA4F97FB00F26B75E9B3ACCC22B9000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Dreams After Death - 2 альбома (2011-2012) Дискография [MP3|32
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Stained Blood - One Last Warning (2013) [MP3|320 kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:16D32834228A88CF42AD0D9C292DB63C52C5A8DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Newsted - Metal (2013) EP [MP3|320 kbps] <Metal>
 ```bash
 magnet:?xt=urn:btih:5C931F9EE2F4B5AAC36C6A54D8F4F19006205561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Infernal Poetry - Paraphiliac (2013) [FLAC|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Mutiny Within - Mutiny Within 2: Synchronicity (2013) [MP3|320 kbps] <Metal>
 ```bash
 magnet:?xt=urn:btih:62783DE404EEFA5DFF50CF4C2315AE8FAEE554DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F369B299FC62604A90BCE22BCD8C16593DECB97E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Coheed and Cambria - The Afterman: Descension (2013) [MP3|320 kbps] <Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:8D46C0D914E76D9305FBB56C9429CCA7B2DB9BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ Everything Everything - Arc (2013) [MP3|320 кб/с]<Indie-Rock, Indie-Pop, Expe
 ```bash
 magnet:?xt=urn:btih:CAB740502B1BD782E5A7763084D2E5D7EAA5FC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2D4FD8B69F83A36C067F2BC130EAE752900887F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +353,7 @@ The Courteeners - ANNA (2013) [MP3|320 kbps] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:2B05D57336F791482C762D692BC3FEE36C9DCA01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +387,7 @@ A Life Divided - The Great Escape (2013) Deluxe Edition [MP3|320 кб/с]<Rock /
 ```bash
 magnet:?xt=urn:btih:B424180CCC051447C2EAA0986D694F73343150B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +421,7 @@ Bad Religion - True North (2013) [FLAC|Lossless]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:A9D80B4BBA0752D8B6204E38B064FF9D9029EA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +455,7 @@ Think Floyd - 2 Альбома (1997, 2000) [FLAC|Lossless]<Psychedelic Rock, Pr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2757E33D8B78DF72151D37355BA47F33E9A5B427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +523,7 @@ Dropkick Murphys - Signed And Sealed In Blood (2013) [MP3|320 kbps] <Alternative
 ```bash
 magnet:?xt=urn:btih:61863EC4819F159E915FC36EB3C1E215E2B8B22A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +557,7 @@ Hollywood Undead - Notes From The Underground (2013) [MP3|320 kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:0D2EE7A87937BD24F5ADAF63EA713EBFDD7288B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

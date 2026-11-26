@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:669280DF15BF0935F3D7ECF984E93AE641575E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ IBM. Руководство пользователя по базовой сис�
 ```bash
 magnet:?xt=urn:btih:3A3B95D46A4C2F521E8211FDD74F7D4618B40C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

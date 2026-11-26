@@ -19,8 +19,7 @@ The Dame Was Loaded (1996) [Multi] (1.0cs) License GOG
 ```bash
 magnet:?xt=urn:btih:AC45B9B541BE1C4A1489CA3FC429482034B67F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

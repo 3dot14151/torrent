@@ -20,8 +20,7 @@ SD Card Test Pro v2.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E933A36D67621F2367E15D30BECC7F8C9E2EDC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Enigma 7 (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:E47755C4A2B9C0E6DE4EEA546FD33ED62B2788EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alice Дилогия [Ru/En] (RePaсk) 2000-2011 | R.G. Catalyst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Super Mario Brawl – это красивая фан-игра в смешанн�
 ```bash
 magnet:?xt=urn:btih:346651FE4F2DE70C77A0BE119CE37EA942472A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

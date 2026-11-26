@@ -18,8 +18,7 @@ Overlord Specials: Ple Ple Pleiades | Повелитель: Пле-Пле-Пле
 ```bash
 magnet:?xt=urn:btih:6735CE435A9477F61BA854E462BA7803DF9343EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Gekijouban Soushuuhen Made in Abyss | Созданный в Бездне (ком
 ```bash
 magnet:?xt=urn:btih:5AFCD7894298AF6996F547F46B3734340B32C204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 ep] BDRip 1080p raw+r
 ```bash
 magnet:?xt=urn:btih:3358F16EF95C0B7D1DBED2CE55939D1A4D3D3E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Overlord I | Повелитель [ТВ-1] [2015, TV, 13 ep] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:67A2957460C6218F823C095CF94138B0A25DB9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:211E1EBCB33E23AF8E82F0D587285EFB65579402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F1B8A9CA9CC9D532ED64B4BE343DDE5D5512BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97F775DDEC3252FAE3CEFDC77243C7543AEF1204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BAA0BE83239479BF37F3E934D76DB1EA83BCD70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

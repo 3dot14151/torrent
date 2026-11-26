@@ -22,8 +22,7 @@ Weary Eyes - How To Leave Places (2015) [MP3|320 кб/с]<Post Rock>
 ```bash
 magnet:?xt=urn:btih:C255431A9B3DB6D7536EBD92489310C1315A2991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

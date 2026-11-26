@@ -19,8 +19,7 @@ Posing App - Model Poses v1.6 - руководство позирования д
 ```bash
 magnet:?xt=urn:btih:6A5A5FD4311F1D9F32838B569F6A97C33BA68FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

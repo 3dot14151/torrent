@@ -19,8 +19,7 @@ Myths of the World 5: Black Rose (2014) [En] Unofficial [Collector's Edition / Ð
 ```bash
 magnet:?xt=urn:btih:D9CA15054B8EF324271493B3CAC200E82FCDE379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ace Combat Assault Horizon (2013) [Ru/Multi] (0.0.143.72) License PROPHET [Enhan
 ```bash
 magnet:?xt=urn:btih:B72B66B49E8C1BFB9626023AE7FEA532BFA2E5D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

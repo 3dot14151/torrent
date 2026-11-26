@@ -19,8 +19,7 @@ Outland - это динамичный платформер, в котором и
 ```bash
 magnet:?xt=urn:btih:C13A277CA9AB17F923E909E72F51C331C0780187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

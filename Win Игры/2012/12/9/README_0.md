@@ -19,8 +19,7 @@ Dark Mysteries: The Soul Keeper Collectors Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:D6A83F84C1B8A94B266C70295D47012B6FCCD561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phantasmat 2: Crucible Peak. Collector's Edition / Фантазмат 2: Пик 
 ```bash
 magnet:?xt=urn:btih:BC04030B2701ECCFE72E29CEFCF3F88966985505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Howlville: The Dark Past / Ховлвиль. Темное прошлое [Ru] (P
 ```bash
 magnet:?xt=urn:btih:DACCEA4A92E5FB1BC8597034DEA04157921A9E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

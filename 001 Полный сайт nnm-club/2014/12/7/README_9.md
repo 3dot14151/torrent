@@ -20,8 +20,7 @@ BELOFF 2015 b [Ru]
 ```bash
 magnet:?xt=urn:btih:6B1A888745A9E8719C1947F60B06E24557F7A5A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

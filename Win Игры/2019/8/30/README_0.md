@@ -19,8 +19,7 @@ Grim Tales 17: Guest From The Future (2019) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:BF74C3AE673428C4E04330737DD5AA97082A2E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enchanted Kingdom 5: Descent of the Elders / Зачарованное корол
 ```bash
 magnet:?xt=urn:btih:A43B95304FC5BB107F8617F1314149EB00983F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0.0/dlc) License GOG [De
 ```bash
 magnet:?xt=urn:btih:E7902CCBB277D13AD0AD066EA96317BD1A4F64F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

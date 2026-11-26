@@ -22,8 +22,7 @@ A4. Ябеда (4:37)(   Читать дальше...   )Жанр: Рок / Ав
 ```bash
 magnet:?xt=urn:btih:392092AA191C208BA20B20BDB95FDF5F07D67E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Al Bano & Romina Power - Felicita (1982) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop>
 ```bash
 magnet:?xt=urn:btih:2C8279732E7D830527F75EB36682F2DBBCB3A56B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Agent Cooper - Beginner's Mind (2005) [FLAC|Lossless|image + .cue] <Hard Rock,  
 ```bash
 magnet:?xt=urn:btih:E091A67F129202124E97786C06DFACC99D50508F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wild Turkey - Battle Hymn (1971) Reissue, 1991, Edsel Records [MP3|320 Kbps] <Cl
 ```bash
 magnet:?xt=urn:btih:7FDB7F7FF5B4E9A0AC37E862869947668FA0DE64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Wild Turkey - Turkey (1972) Reissue, 1995, Edsel Records [MP3|320 Kbps] <Classic
 ```bash
 magnet:?xt=urn:btih:8E1C24AF73BA476415BB483478C4632902745AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ The Pretty Reckless - Just Tonight (2010) Single [MP3|320 Kbps] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:EED91E04CB12CDE77E9286FC21C2B910D7C1D853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ The Pretty Reckless - Going To Hell (2014) Victor, VICP 65213, Japan [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:6F81DD9DE906F4295156B57A2633A55A6604F0D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD5C484C8659D8B22258F98D9DCF40DCDA9608CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Epica - Epica Vs Attack On Titan Songs (2017) EP, Japanese Edition [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:85EC4B96542ADCFD44A07E61503A4D0D9CA254BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

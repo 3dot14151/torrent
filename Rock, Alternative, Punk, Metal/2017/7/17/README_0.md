@@ -22,8 +22,7 @@ Aversio Humanitatis - Abandonment Ritual (2011) 2012, Self Mutilation Services, 
 ```bash
 magnet:?xt=urn:btih:D2084D482B72120D3837668FF276A0505325A42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Coldplay - Kaleidoscope (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:1A6D42167CF6D1374C6E197B430777BA859BEEB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

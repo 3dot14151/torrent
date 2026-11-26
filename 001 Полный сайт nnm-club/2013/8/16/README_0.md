@@ -24,8 +24,7 @@ The Monolith Deathcult - Tetragrammaton (2013) [FLAC|Lossless]<Atmospheric Death
 ```bash
 magnet:?xt=urn:btih:186C20B94633EDB777CC36ECD742F02E5319E5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ End of Green - The Painstream (2013) Limited Edition [MP3|320 кб/с]<Doom Meta
 ```bash
 magnet:?xt=urn:btih:C90C61F5876F966BFDED45CECE9835F64846B215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Quaterna Requiem - 2 альбома (1994-2012) [FLAC|Lossless]<Prog Rock, Symph
 ```bash
 magnet:?xt=urn:btih:9C35AA789B70A2A1B3B260E4904E1C89ECB7C9A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Armin Van Buuren - A State Of Trance 626 (2013) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:95FD47421448AF3D1741226C18A7A7CF62635834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Anciients - Heart Of Oak (2013) [FLAC|Lossless]<Progressive Metal/Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:FC13938A5CC3E7ABFA3DAA128FE5CBA5E3626A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ VA - Клубная энергия танцпола. Будет жарко (2013
 ```bash
 magnet:?xt=urn:btih:B103D23E924B038BEC9763B0F01B4123ECF990C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Rolling Wheels – единственный на сегодняшний день
 ```bash
 magnet:?xt=urn:btih:5A40D115B464085E211870C2F5A2ACB01483A845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 magnet:?xt=urn:btih:2C4F991EF9B2B1CAAA44C418757DC998544EDBB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:D8DED8DA6445E879701F8B21DD272C13AD3EE885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Unmixed:
 ```bash
 magnet:?xt=urn:btih:470CDFB736E3E634C76ADF24D5A6BF1ECD80DBF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ Caravan - Here Am I (2005) [FLAC|Lossless]<Prog Rock, Art Rock>
 ```bash
 magnet:?xt=urn:btih:A43346B12D1E16789B76E25D93CD248D4CC462B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +394,7 @@ VA - The Sound of Music: The Original Broadway Cast Recording (2013) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:5ECDCBE042BE1090488E1ABB6DC3E1FEF8167087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ Wise Care 365 - это комплекс системных утилит с пр�
 ```bash
 magnet:?xt=urn:btih:99FE129EF37E4D44E0B8919DF9387D466D58CE7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ Comedy Баттл. Без границ. Лучшее. Выпуск №5 / Ком
 ```bash
 magnet:?xt=urn:btih:C5972497215951EBAC3C0469220021EAD1213163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09D11C456246B3865B9E75021F9A7487212C3B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ VA - Fluffy & Lifted Lounge Diamond Moods Vol.2 (A Beatism' Lounge Deluxe Music 
 ```bash
 magnet:?xt=urn:btih:ADC79D1931FC7789AC814DA45F697F6A0A513632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ Armand Van Helden - Ghettoblaster (2007) [FLAC|Lossless]<House, Electro, Hip Hop
 ```bash
 magnet:?xt=urn:btih:4D8F904BC6292646D6939F368A9FE44A41CEB579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB2B49E18B7B471217DAEB87EB16F68B3FE3065C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +592,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:1A97BC7529432A8681D0E1F70DDD38934586C5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +626,7 @@ Aly & Fila - Future Sound of Egypt 301 (2013) [MP3|320 кб/с]<Trance, Upliftin
 ```bash
 magnet:?xt=urn:btih:74CD2B5F2FFF3F86980D8027CB7E86C1D4375281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F255FFAAF821BF34D78D67B96C49320F8AE4B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:5C0A27D14214C26D8C6B874F393FA7832FA21389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:DCE699F9E1E05E15BB6EA7C841B1CA64E3B19667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63087ECBC9AC618875D3B25A7BA1BA685F468FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ Chill Melody
 ```bash
 magnet:?xt=urn:btih:F39C99D4B4C5857138BDB60F82C17F608D6156E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ KnownReader – приложение для чтения электронных 
 ```bash
 magnet:?xt=urn:btih:1E66B1564D723D31EF8319805EAC1B2138107534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

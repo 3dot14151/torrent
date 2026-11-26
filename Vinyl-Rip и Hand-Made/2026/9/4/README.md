@@ -22,8 +22,7 @@ Avulsed - метал-группа из Мадрида, Испания. Осно�
 ```bash
 magnet:?xt=urn:btih:282C591C7C9567D855A82E69F5573201E94E3FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

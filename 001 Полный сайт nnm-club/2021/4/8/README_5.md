@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ECFAAC0EB4E6A77528020D058DB0B13A53C45738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Skillbox, Николай Смирнов и др. | Таргетолог с ну�
 ```bash
 magnet:?xt=urn:btih:835F96A839399FD26E9C768102FBCEA463AB01CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (2.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D0DEEF50B67FB3F52A22C993B353EC1F89208F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EFD76A4D3605A2BA793DDCB5BCAE8FE7E1C3545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Terraria (2011) [Ru/Multi] (1.4.2.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:66FAFF6FB55B784C6D6BBD8F9DFE4E330DFA1455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Spintires®: The Original Game — уникальный симулятор от 
 ```bash
 magnet:?xt=urn:btih:8C6EBFD4252F74EEC2155F0AC2BE8BE987D2BE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

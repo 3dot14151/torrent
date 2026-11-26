@@ -27,8 +27,7 @@ Loudblast - Frozen Moments Between Life And Death (2011) [MP3|320 kbps]<Melodic 
 ```bash
 magnet:?xt=urn:btih:D11A7B9A80D346F6F2C9C28DED5B32D71FC3BCCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Los Mustang - Anthologia 1962-1970 (2003) [MP3|128 kbps]<Beat, Pop-rock, Blues>
 ```bash
 magnet:?xt=urn:btih:B1131BA18ACA84BDC686F68A00A14D3B3EB10909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Lake Of Tears - Illwill [Limited Edition] (2011) [MP3|320 kbps]<Progressive/Doom
 ```bash
 magnet:?xt=urn:btih:64731EB394EA3F50D31AF2F0A3A70A72F29DB5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ The Swinging Blue Jeans - Hippy Hippy Shake (Vinyl Rip) (1973) [MP3|320 kbps]<Cl
 ```bash
 magnet:?xt=urn:btih:689E62DE7EC43B2ABD362F784A389686DA9BFA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

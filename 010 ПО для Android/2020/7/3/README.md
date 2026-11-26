@@ -19,8 +19,7 @@ Vocalizzo - Vocal Warm-up v2.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D9894C8BA4D53F70672615939BBE4B46E74046E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Google Play Market (Плей Маркет) – это приложение яв�
 ```bash
 magnet:?xt=urn:btih:83FF1614046E6CEE4F1DAB627A35035430A09232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

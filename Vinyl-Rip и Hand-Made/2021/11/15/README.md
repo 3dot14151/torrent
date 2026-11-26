@@ -22,8 +22,7 @@ ABBA - Voyage (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Pop>
 ```bash
 magnet:?xt=urn:btih:CE53AF75DA6560AE91499E8166AC24BC6F283FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Moby - Reprise (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Downtempo, El
 ```bash
 magnet:?xt=urn:btih:73D656F1944EBED68A845F91F95F65ABEF25BD27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B2. Funky Shit (05:23)(   Читать дальше...   )Жанр: BreakbeatП�
 ```bash
 magnet:?xt=urn:btih:782AF8D99A0F7D8CA2F55BDE1BC1800BE8963D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

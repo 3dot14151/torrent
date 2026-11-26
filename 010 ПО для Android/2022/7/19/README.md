@@ -20,8 +20,7 @@ VPN с 15 странами, 14 игровых страны, 12 стриминг�
 ```bash
 magnet:?xt=urn:btih:E8D95859CE1449854239A4358D9A88B959E8923F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

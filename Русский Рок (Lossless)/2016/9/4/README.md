@@ -22,8 +22,7 @@ Grobut Neerg - Схрон (2012) [FLAC|Lossless|image + .cue] <Folk Metal, Death
 ```bash
 magnet:?xt=urn:btih:A6FD734E82609660E3F1A00A3C6D3F41BB85A6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

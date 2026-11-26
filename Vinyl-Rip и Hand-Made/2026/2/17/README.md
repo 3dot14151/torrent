@@ -22,8 +22,7 @@ Callisto — пост-метал группа из города Турку, Фи
 ```bash
 magnet:?xt=urn:btih:A5208F15A5932C9CC53243CBC88847569B4ACD29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

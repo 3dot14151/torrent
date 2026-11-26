@@ -19,8 +19,7 @@ Life Goes On: Done to Death – трагикомический платформ�
 ```bash
 magnet:?xt=urn:btih:2B7C24E98E97A0546ACC5742201EA2DED01B615A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer 40,000: Armageddon: Da Orks - вторая часть в серии в
 ```bash
 magnet:?xt=urn:btih:AE997403D2848B33475882975D72F6E01261C197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

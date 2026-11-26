@@ -19,8 +19,7 @@ The Descendant — это приключенческая игра в сетти�
 ```bash
 magnet:?xt=urn:btih:23275557C30503549673E85250631FFA84DD18E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Walking Dead: Season One (2012) [Multi] (1.0.0.26/dlc) License GOG [A Tellta
 ```bash
 magnet:?xt=urn:btih:D56152CFB0271B3EC6B787079998051681F41BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Warhammer 40,000: Dawn of War II (2010-2011) [Ru/En] (2.6.0.62/3.19.1.49/dlc) Li
 ```bash
 magnet:?xt=urn:btih:2DA60623764CB1C6014D4009CE52950DECE95E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Skydrift Infinity - это динамичная аркадная игра, в к
 ```bash
 magnet:?xt=urn:btih:50B2891FD86CE5DCA8D2A0917161C196A87CB21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

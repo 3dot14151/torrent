@@ -19,8 +19,7 @@ FAITH: The Unholy Trinity (2022) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:EC0C27F8D508A35EA89BA9CD619E35DA93E84D73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Contract with the Devil (2015) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3AB6A1600C90B742D2016EB5DDFA4F321A6B8B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Adam’s Venture: Origins – новое прочтение серии игр о
 ```bash
 magnet:?xt=urn:btih:2373056C4024475BFCC67ED9EAD9FCDA800578AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

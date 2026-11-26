@@ -28,8 +28,7 @@ The Pontchartrain Wrecks - Pontchartrain Wrecks (2014) [MP3|320 кб/с]<Country
 ```bash
 magnet:?xt=urn:btih:D6BE0CE932E5F94503A12EBD4B7D305C713D91B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Rita Zipora - Als Ik Kijk (2014) [MP3|320 кб/с]<Pop, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:A6F4ABF7DEB67914068D0E7A11DB8FA6DB26A1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:799CA876FFBB712382840BC79A0F8EBE2922AA4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE4C3F11CDF7B2DD888E68E61470167E0862D6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Comedy Баттл. Суперсезон. Выпуск №4  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:2592F0516301DFB009A7C5BB34D84E33B84209C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77CBF569C7206DD2B2C0FC7CAEC631AFE01BCDA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ VA - Music For Everyone - Electro house & Progressive Vol.1 (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:0CE575CF0560D58FE86680AB15D6B146A32A3636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:00696A12D35C81000A86CDE4DD9452CD34005E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Klatu (Klātu) - Mutual (2011) [FLAC|Lossless|WEB-DL]<UK Garage, Dubstep, Ambien
 ```bash
 magnet:?xt=urn:btih:9CA3FD040B5561D9F647561717C369B05DCFAE0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ VA - Deep Mood vol 2 (Smooth Deep House) (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:0D218803CA5B509F6F3B7F4EC304A1125075FCDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ Brainchild - Healing Of The Lunatic Owl (1970) Reissue /2008, Second Harvest, US
 ```bash
 magnet:?xt=urn:btih:F462CCA829532B89854A3638718DE661D9876676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +343,7 @@ Dhamika - Jeeva EP (2014) [FLAC|Lossless|WEB-DL]<Ambient>
 ```bash
 magnet:?xt=urn:btih:A7E1DE7BE2703C5B1EF455F2A59E1AFE94005C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1F375583F67BBD0930F4EE8CA81AF72D3064D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A99842AFF1C5C2F61383648BC69A0538911EB982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25EF967C1EA6A64079FACE932C660267EBAC46F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ Klatu (Klātu) - Alchemy (2013) [FLAC|Lossless|WEB-DL]<UK Garage, Ambient, Abstr
 ```bash
 magnet:?xt=urn:btih:7AE156DA7566C52D756394F546CDEB1B84E6C6D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +481,7 @@ Paul Brett's Sage - Schizophrenia (1972) Reissue, Remastered /2007, Japan/ [FLAC
 ```bash
 magnet:?xt=urn:btih:A762DE8DBAB2CB47529D50CC0B34908FFF212A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ Wallpapers - Баскетбол и серфинг [JPEG]
 ```bash
 magnet:?xt=urn:btih:1A3AD235ED3B5E30635011D3AFEFBBF4319A6992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D2E8AE0F15C01C2468998EAA8F5390F28BE85C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ PC Week - Журнал информирует о передовых технол
 ```bash
 magnet:?xt=urn:btih:AA8109C6427714B5B083536248220B42154EEE49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +615,7 @@ Pleq - Sound Of Rebirth (2010) [FLAC|Lossless|WEB-DL]<Modern Classical, Glitch, 
 ```bash
 magnet:?xt=urn:btih:C4C9D2A5156DCCBA0A55203B62ECD30CDE627519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAA3B3C3FE30AC996680E9D5C8D767B81F4F1903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +671,7 @@ Web - I Spider (1970) Reissue, Remastered /2008, Esoteric, UK/ [FLAC|Lossless]<J
 ```bash
 magnet:?xt=urn:btih:4AFA34B50034DE407303E153E8543DB37328B6C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +696,7 @@ Saveurs («Савёр», «Вкус») — глянцевый журнал об 
 ```bash
 magnet:?xt=urn:btih:BB1633F9DE19778EDBAD2CE71F20ACD592826CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +721,7 @@ AVG LinkScanner - утилита от популярного антивирус�
 ```bash
 magnet:?xt=urn:btih:58EF3D79E116F1A8D90588397F5CC9DE0F34D6B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

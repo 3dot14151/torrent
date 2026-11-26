@@ -19,8 +19,7 @@ WindowBlinds 8.12 – программа, предоставляющая пол�
 ```bash
 magnet:?xt=urn:btih:2C8D64CFD43824CB7286AA626AF1982D49C47510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SsdReady 1.30 build 209 Pro [En]
 ```bash
 magnet:?xt=urn:btih:F720B5B37DB3BF1108431A83F458C05FB8E9B6CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Fimbultyr - Gryende Tidevarv (2008) [FLAC|Lossless]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:91432009682960DFACECF6EA317EFB48C2A350A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Deer Tick - Negativity (2013) [MP3|320 kbps]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:5B3EF9016E0F31827197F25B9FE5EBAE3E3978A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Todd Wolfe Band - Miles To Go (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:E421312E4D4BB02E0E8871E10F820D06EE909B87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Highway Ryders - Faith, Pride & Justice (2013) [MP3|320 кб/с]<Hard Rock, Sout
 ```bash
 magnet:?xt=urn:btih:FFB75F6998247BAC9B91813CEF98C938CDCC2446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Genocide (Nippon) - Black Sanctuary (1988) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EF490BE330324CBC77D36BC333F41325899FE436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Wilde Jungs - Hasspirin (2013) [MP3|320 кб/с]<Deutschrock>
 ```bash
 magnet:?xt=urn:btih:6718CE292837ACCEC5002A01FCA94E25FBD743B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Night Horse - Perdition Hymns (2010) [MP3|320 кб/с]<Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7FC5E39A3C166E0CBB64CC8F5DE2B9FC56A2747B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A63818B0DD376850291E6CC0C7A9D4E20E15115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ ZZ Top - Fandango! (1975) SHM-CD, 2013, Warner Music [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:9CFD602A857356751F6491606AFB0593B01B30DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ The Police - The Police (2007) [FLAC|Lossless]<Rock, Punk, New Wave>
 ```bash
 magnet:?xt=urn:btih:E068EF41F70EEEA6D84873C3F1DA8601AC324B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ ZZ Top - Rio Grande Mud (1972) SHM-CD, 2013, Warner Music [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:EAE6230609DCFB9CD865D81C0E373CA599ECFEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Lenny Kravitz - Are You Gonna Go My Way [20th Anniversary Deluxe Edition] (2013)
 ```bash
 magnet:?xt=urn:btih:B90DDE769EC452A09A51BE420B832B68833B0DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +420,7 @@ Freddie Mercury - Mr. Bad Guy (1985) Columbia [FLAC|Lossless]<Pop Rock, Synth-po
 ```bash
 magnet:?xt=urn:btih:2463BD843681558F10E7C985E5A6E82964B5823D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +452,7 @@ Darkside - Psychic (2013) [MP3|320 кб/с]<Psychedelic Rock, Experimental, Elec
 ```bash
 magnet:?xt=urn:btih:143FDB51BD6B33E0C5AEC288265F19521D675136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24F7340B6598ABCC1C6E0F4FF56215B4F2784651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

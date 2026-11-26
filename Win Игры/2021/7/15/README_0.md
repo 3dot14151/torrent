@@ -19,8 +19,7 @@ Roads of Rome: Portals / Дороги Рима: Порталы (2021) [Ru] (1.0)
 ```bash
 magnet:?xt=urn:btih:634A5219DA08775188354451D80A83AB1309DDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wonhon: A Vengeful Spirit (2021) [Ru/Multi] (1.0.4r) Repack Other s
 ```bash
 magnet:?xt=urn:btih:84F3C2F6F11E485A080BC18576FC46D053BDD31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bastion – ролевой боевик, в котором рассказчик 
 ```bash
 magnet:?xt=urn:btih:E15D2AC42EE727126B9321E4D8CFB76F9FB36A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ State Of Drama - Fighter (2013) [MP3|256 кб/с]<Indie\Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:B75D673AA3EA34F552252BF58F1D0EFC243F48D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Trail Of Tears - Oscillation (2013) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:31556FEBF7A8C91698C2A2CB6D553CB102D5FC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Summer Set - Legendary (2013) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:C6184789F9FB128FE7CA7A448AF4BCBCC8A65B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ The Ocean - Pelagial (2013) Limited Edition [MP3|320 кб/с]<Progressive Metal 
 ```bash
 magnet:?xt=urn:btih:3F4F40E6274FABE9ABA3F0580D754E06D716354A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92503AF92FD386D83388341F78602A7F3775E110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Element Eighty - 3 альбома (2001-2005) Дискография [FLAC|Lossl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:278E2CC9D6833BC7825083AB236927CC148429BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

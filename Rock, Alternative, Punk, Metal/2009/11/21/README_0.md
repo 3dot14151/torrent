@@ -19,8 +19,7 @@ Editors - Дискография (2005-2009) [MP3|320]<Indie Rock / Alt Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Metallica - Death Magnetic (Vinyl 5LP) (2008) [FLAC|Lossless]<Thrash Metal/Heavy
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ CivCity: Rome — новаторский симулятор градострои
 ```bash
 magnet:?xt=urn:btih:03A83457BEC5B1BDB4F1F0CB8524D03959CCBC79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sid Meier's Civilization III: Complete — это самое последнее 
 ```bash
 magnet:?xt=urn:btih:B1A55E6DEB4DF5755AF39AA5E1F44A9DF01C30D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

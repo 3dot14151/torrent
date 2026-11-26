@@ -19,8 +19,7 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:7BEE977EA12231AB6669AB85AF755E65EE02BB7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:B97966C8E16FB10E2C11D11F6BF220FE7DEE7516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

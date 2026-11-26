@@ -20,8 +20,7 @@ AOMEI Partition Assistant Pro позволяет создавать, удаля�
 ```bash
 magnet:?xt=urn:btih:150D4F4AD933EF689F192952AEFA2218015817BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

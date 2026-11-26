@@ -19,8 +19,7 @@ Microsoft Visio 2013 включает в себя набор новых функ
 ```bash
 magnet:?xt=urn:btih:86FFBE7989A001005A15BD7FD520C6D837C4F288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

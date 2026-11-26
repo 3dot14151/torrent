@@ -19,8 +19,7 @@ JetBoost 2.0.0.67 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5BD44E05849D7D7918E0124F15901347CAE6C20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

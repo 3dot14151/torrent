@@ -20,8 +20,7 @@ SanDisk (Western Digital) SSD Dashboard - официальная програм�
 ```bash
 magnet:?xt=urn:btih:AC960FE93832F5F34AC44204D3256625330A8D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Kill Blinton - EP (2014) [MP3|320 кб/с]<Neocrust, Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:34D823731F8E107C9E2A142816B983248A93742D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Mudbath - Corrado Zeller (2015) [MP3|320 кб/с]<Doom/Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:FF16EDFB52B9C2979540B4A80EABE241FC3850AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Godhole - Self Titled Double (2014) EP [MP3|320 кб/с]<Powerviolence, Grindcor
 ```bash
 magnet:?xt=urn:btih:D5E2F480ABF51870CCABA3DD7D2B7B9574891120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Neversun - Archaic Interpretation Of Freedom (2014) [MP3|320 кб/с]<Death Meta
 ```bash
 magnet:?xt=urn:btih:31D8BD4DDAF891A3AE59A328B6B602ACBD27349D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Icaros - Icaros (2014) [MP3|320 кб/с]<Neocrust, Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:1C5E26C90590BEB4939F3F75AA5A434058CA2ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ De Profundis - This Winter In My Heart (2014) [MP3|320 кб/с]<Atmospheric Blac
 ```bash
 magnet:?xt=urn:btih:E0BEA3CE42BC9E10A0DA1F714ED5072B1058CE76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Albums, EP, Single, Split:
 ```bash
 magnet:?xt=urn:btih:5FF40A350D1875BDE5C98CE1E8F2C4B152188B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Master Crow - Die For Humanity (2014) [MP3|320 кб/с]<Technical / Progressive 
 ```bash
 magnet:?xt=urn:btih:C30EDA8C281769891934322F5B7FB0D09D600469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ Abinchova - Wegweiser (2014) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:6C4BE81534177B5A84E786CB16347E12A622AE0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ Cerebral Extinction - Inhuman Theory Of Chaos (2014) [MP3|320 кб/с]<Brutal De
 ```bash
 magnet:?xt=urn:btih:6612DFE8A3F59D0B764EEC5804AF12204C6A7FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ The Hunt - Funerals (2014) [MP3|320 кб/с]<Neocrust, D-beat, Metallic Hardcore
 ```bash
 magnet:?xt=urn:btih:06DBBB84A845B08694B0CC6DB35AF3CCE482B690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +369,7 @@ Shades Before Dawn - Blinded By The Inability To See Beyond (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:7125BA05F2CFF879389BB10619A628653ACE7B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +403,7 @@ Sirens Over Sumeria - Sirens Over Sumeria (2014) [MP3|320 кб/с]<Progressive M
 ```bash
 magnet:?xt=urn:btih:8610C8F1B5BDA5E26E6567BC92C3D712DF57D750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +437,7 @@ VA - Digital Society Recordings 2014 (The Yearmix) (2014) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:D9CD2E50624E0F79C5F3847A815E23F7B831AB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +471,7 @@ Starkill - Virus Of The Mind (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C9C7DE77B192E026525F0C3EEABFF6412CDF286D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +503,7 @@ Stormcast - Frame Of Mind (2014) [FLAC|Lossless]<Atmospheric/Melodic Black Metal
 ```bash
 magnet:?xt=urn:btih:3C719BE632A735EC8F8AD71106D05E944606C447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90A8D93E68AF4F5B96FAF6F69CE68DF066DEB4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +562,7 @@ VA - The Best Of Silver Waves Recordings (Mixed By Hassen B) (2014) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:A1F6B1A8FF88F5E2825C4BD374D04FE83E06E94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +596,7 @@ Beitthemeans - Head Held High (2011) [MP3|320 кб/с]<Southern Rock/ Hard Blues
 ```bash
 magnet:?xt=urn:btih:8BEEE41766CD01FC110225CE3CA2774CE42F9AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +629,7 @@ Miss Sophie Lee & New Orleans Jazz Vipers - Miss Sophie Lee & New Orleans Jazz V
 ```bash
 magnet:?xt=urn:btih:7EE2132580548D35F31235DA0354AA53985B51A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +663,7 @@ Jack Teagarden - Mis'ry And The Blues (2003) [FLAC|Lossless]<New Orleans Jazz>
 ```bash
 magnet:?xt=urn:btih:5879B6923DE1B284D957592AC462B338EA4E0AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +697,7 @@ Zed Yago - Pilgrimage (1989) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8B8CC87AAF6395423C1EC6E3FE64EFA60DD8E075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +731,7 @@ Stallion - Rise and Ride (2014) [MP3|320 кб/с]<Heavy Metal/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:60E392A25D6C5DE8ACC46CAB46D9FC3BF5B200ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +765,7 @@ Atlas Losing Grip - Currents (2015) [MP3|320 кб/с]<Melodic Punk Rock>
 ```bash
 magnet:?xt=urn:btih:BA707645A22994767C8B7028BA83A7262F0BC244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -822,8 +798,7 @@ Alltheniko - Fast And Glorious (2014) [WavPack|Lossless]<Power/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:BD97FFB160E6E00C0094946ABDA7C9CADF95AEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -856,8 +831,7 @@ Ekoplex - Discovering The Ancient (2012) [FLAC|Lossless|WEB-DL] <Downtempo, Psyc
 ```bash
 magnet:?xt=urn:btih:86F10127779E0E4996D382A1912E6136CDF4A49A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

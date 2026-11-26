@@ -22,8 +22,7 @@ Prime Creation - Souls of the Fallen (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:0D1957AD132D1F05B08A491260BD0FDEA5B15470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tyr - Tyr (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Metal, Viking Metal, 
 ```bash
 magnet:?xt=urn:btih:A383650D48F922AA3E1EBDDFE54A398BE3757817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

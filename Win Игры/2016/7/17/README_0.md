@@ -19,8 +19,7 @@ Burnstar — это захватывающая экшн-головоломка, 
 ```bash
 magnet:?xt=urn:btih:5D0712DDE8CFFFD3025E403A18B6B3978C48620B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Oxenfree (2016) [Ru/En] (2.1.0f26) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C1ECB141844ABF9036E1420B5B8ABA64C933FA82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Electric Circuit (2015) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4C078DFEAE1AFE5ED062E06BB288795A02DA2F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Satellite Reign — стратегия в реальном времени с п�
 ```bash
 magnet:?xt=urn:btih:A027B9DE270930C1A0AA06673AD248C0977E1494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ridge – это приключенческая хоррор-игра, разр�
 ```bash
 magnet:?xt=urn:btih:1B8F555D62F131B525D04360F693AD3265F4EC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Ridge – это приключенческая хоррор-игра, разр�
 ```bash
 magnet:?xt=urn:btih:9F0BC82879D876F463AAF216A52E9AE638EEAE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

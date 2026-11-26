@@ -19,8 +19,7 @@ Dark Reign + Expansion – это мини-сборник, куда вошла �
 ```bash
 magnet:?xt=urn:btih:08CC7F0E5EF927D9741B00B0485047E03B9CFCC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Arven - Music Of Light (2011) [WavPack|Lossless]<Melodic Power Metal,Female Voca
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Cradle of Filth - Evermore Darkly [MCD] (2011) [FLAC|Lossless]<Symphonic Black /
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Godsmack - 6 Albums | 1 Live | 1 EP | 1 Compilation (1998-2010) [MP3|320 kbps]<A
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

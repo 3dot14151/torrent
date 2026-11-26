@@ -19,8 +19,7 @@ Project: Snowblind / Операция Снегопад  [Ru/En] (P) 2007
 ```bash
 magnet:?xt=urn:btih:47396D0D6AD9A815041B946F88F5989948864D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

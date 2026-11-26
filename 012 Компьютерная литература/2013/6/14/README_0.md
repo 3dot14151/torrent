@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:549BB6243CC05C3D12E0876AFD571070EA10C9B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ B. Fane, D. Byrnes | AutoCAD 2013 For Dummies / AutoCAD 2013 для чайник
 ```bash
 magnet:?xt=urn:btih:9D8FFBF8FED3D6DB7F5E25B0A177887D14292AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

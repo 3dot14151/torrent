@@ -21,8 +21,7 @@ KNOPPIX 7.4.1 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:029E246F0267A679F5C07D01F10B9B517F28886C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Red Hat Enterprise Linux 7.0 — Компания Red Hat анонсировал
 ```bash
 magnet:?xt=urn:btih:4421304CF93EEBBF97B45D6A14BA2632AFC51E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

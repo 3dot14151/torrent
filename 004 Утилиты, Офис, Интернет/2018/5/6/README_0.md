@@ -19,8 +19,7 @@ Memory Booster 1.9.5.1959 Portable [En]
 ```bash
 magnet:?xt=urn:btih:3EE42397C947EE8015440AC113F68965261F17A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bios beep codes viewer 1.0.3.1036 Portable [En]
 ```bash
 magnet:?xt=urn:btih:7238117B6B59914868EED671B827E6A7E0007CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

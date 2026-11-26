@@ -19,8 +19,7 @@ PortraitPro позволяет любому с легкостью улучшит
 ```bash
 magnet:?xt=urn:btih:D7F8E70AD6B58939D89135590C86B207ED94431A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

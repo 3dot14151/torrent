@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FA15C2291416F6C30643C183A57BCADB69300944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Steganos VPN Online Shield постоянно защищает ваши личн
 ```bash
 magnet:?xt=urn:btih:9F0AA1B9DBB1D949A5D2A201728A27A7494843A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Лучшие мелодии на свете - Collection (24CD) (2006 - 200
 ```bash
 magnet:?xt=urn:btih:A7D75E205A237722779CA92FD1A016EFDCF69952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:3066C460304C3520E0291673EF2F10A7C022E560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDD71E4E9491793ECFBC0F43BD158A9F70EC48A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:870D35C6F374A77CE57AD0A40850F1A03DC406C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3069C79F535ED7B10E407115A7C1D83E228252F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

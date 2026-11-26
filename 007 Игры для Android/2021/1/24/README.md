@@ -20,8 +20,7 @@ FPSE способен отображать все PSOne игры в высоко
 ```bash
 magnet:?xt=urn:btih:D2D41B486D2EAD23213A6CF2B90E1B379DECD5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Baldur's Gate Enhanced Edition - легендарная игра на андро
 ```bash
 magnet:?xt=urn:btih:0156850E89C9791D3899757C06D16B03FAD709D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

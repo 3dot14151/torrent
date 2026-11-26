@@ -28,8 +28,7 @@ Celesty - Legacy of Hate (2004) Japan [FLAC|Lossless]<Epic Power Metal>
 ```bash
 magnet:?xt=urn:btih:136DDE49C5746F5D10BEE7CAB615224738883B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Psychonaut 4 (Грузия):
 ```bash
 magnet:?xt=urn:btih:67DC76C5FAD77D6CD86C58B1D43E029E2AB4E2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Flashback Of Anger - T.S.R. (2014) [MP3|320 кб/с]<Power/Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:F91262FB71586D5ABAD17F03E976D330C97B6984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Allegaeon - Elements Of The Infinite (2014) [FLAC|Lossless]<Technical Melodic De
 ```bash
 magnet:?xt=urn:btih:DBB7AC3AF8A1EB44EC35DEFC0BD5EC9F670E118F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Bloodrock - Bloodrock 2 (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F4DD02460366E5B49B27512FDBC1801F7EA959DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Wishmasters - Beatrice (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:5838740367FA372CC36F2940B558DCC2F3EC661A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90C29EC8069468E064B8FF5C75C023204F1E69F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5F8C0611A22E3308B19A98659540B541026FE19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +285,7 @@ Uriah Heep - Very 'eavy Very 'umble (1970) Remaster /1996, Castle Comm./ [FLAC|L
 ```bash
 magnet:?xt=urn:btih:89EEC66CD0A1CED3BE9566B8AE475CCA442EC67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Pink Floyd - Ummagumma (1969) 2 CD Box Set, Remaster /1994, EMI Records/ [FLAC|L
 ```bash
 magnet:?xt=urn:btih:D9F9589D9E837052EBFA89B9C38C874B37A2CBF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ Rise Against - The Black Market (2014) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:D86967ADA6AA6DEEDBD5AC409C4627E5F52C596A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

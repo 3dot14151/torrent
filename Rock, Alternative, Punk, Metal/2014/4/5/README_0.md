@@ -28,8 +28,7 @@ Shaiko - Insomnia (2014) [MP3|320 кб/с]<Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:CF875014EBD37FF873970B0E5E2943FDEA808094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Descend Into Despair - The Bearer Of All Storms (2014) [MP3|320 кб/с]<Funeral
 ```bash
 magnet:?xt=urn:btih:A61248F402E4DB69E589FF1A143E44A0823BBEE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Massive - Full Throttle (2014) [APE|Lossless]<Rock-n-Roll (High-octane Rock-n-Ro
 ```bash
 magnet:?xt=urn:btih:964E42B66C52D2495A472B59388F2133482225ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Diabulus In Musica - Argia (2014) [MP3|320 кб/с]<Symphonic Power / Gothic Met
 ```bash
 magnet:?xt=urn:btih:517025B35FBFDF5D735A987390B2857DA9A672EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Diabulus In Musica - Argia (2014) [FLAC|Lossless]<Symphonic Power, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:512C81E870FA53878E9F912B534BA4F28EBD3F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Triptykon - Melana Chasmata (2014) [MP3|320 кб/с]<Gothic/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:497AD8392B20FC999713926D2BBC4346F734B576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Peter Green - The Very Best (1998) [FLAC|Lossless]<Rock, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:3EB1CE9C1ACFF390FC40C2572DE41C1785BA3E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Kiss - The Very Best of Kiss (2002) [APE|Lossless]<Rock,  Glam Rock>
 ```bash
 magnet:?xt=urn:btih:E98D31EB7AB5198BE0F7F5513D1D0F97A2E0DA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Winter Of Sin - Violence Reigns Supreme (2014) [MP3|320 кб/с]<Death Metal, Me
 ```bash
 magnet:?xt=urn:btih:802DEF63E91952097A191ED61A46FBB5F11DFE03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ Black Label Society - Catacombs of the Black Vatican (2014) Limited Edition [FLA
 ```bash
 magnet:?xt=urn:btih:FD67F6340FF39655D925F722BD8F7621DF10C90E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +358,7 @@ Electric Light Orchestra - 12 Albums (1971-2001) 13 CD Japan Remastered Reissue 
 ```bash
 magnet:?xt=urn:btih:14EF4A75118C28840094706B46F78F7DFFE0B507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

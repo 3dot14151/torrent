@@ -18,8 +18,7 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:DB20220CABCD43EC4E71A2A3474428126C32D352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ After All - Cult Of Sin (2009) [APE|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D1F9BBE266C29A011622C421306DFE9516030CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nothgard - The Sinner's Sake (2016) [MP3|320 Kbps] <MDM, Epic Metal>
 ```bash
 magnet:?xt=urn:btih:D605F7416EAEA8DD8C827CC68E6003523F4D39D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ VA - Свободная культура. Звуки Северной столи
 ```bash
 magnet:?xt=urn:btih:4767589B65B5CDF43C1E116DE6B601EEE94E1918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Shakin' Stevens - Echoes of Our Times (2016) [MP3|320 Kbps] <Classic Rock, Blues
 ```bash
 magnet:?xt=urn:btih:81C3C5C1A3D0307740EF36AE377D3FC9D8ADF7AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F283E302F71D462832539F4AB278D61F9FEF55DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Ritchie Blackmore - Best Tracks (1995) Japanese Edition [WavPack|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:407013A7C3FFD33F78570FE96E730E4B0297B795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:626289C960E5ABD8FE220B95E74573506628B546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Sum 41 - 13 Voices (2016) Japanese Edition [FLAC|Lossless|tracks +.cue] <Punk Ro
 ```bash
 magnet:?xt=urn:btih:5955E952E5A75181804C967791629216DBABB40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDE55FC94D0079BF376DD3E2778D1BA698210D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Theatres des Vampires - Candyland (2016) [MP3|320 Kbps] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:2A5C12F3038713F1B2461240EBF1560DB90C90F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

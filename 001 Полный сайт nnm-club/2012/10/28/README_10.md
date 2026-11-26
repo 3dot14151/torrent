@@ -18,8 +18,7 @@ Marimo no Hana: Saikyou Butouha Shougakusei Densetsu / Цветочек Мари
 ```bash
 magnet:?xt=urn:btih:4F26AB3A90AFE739F8A2A6ED050BB451F0A7BE94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Nero 12 предлагает целый набор полезных и прос�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Five Star Stories / Герои пяти планет [1989, MV, 1 из 1] BD
 ```bash
 magnet:?xt=urn:btih:9E0B1B268C15CB463B434993C2331CA7361AC57A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blue Submarine No.6 / Последняя субмарина [2012, OVA, 4 из 4
 ```bash
 magnet:?xt=urn:btih:3C9F01434AF4AA0F373C574356C80762678FE289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Silent Hill HD Collection [PS3] [RUS] [NTSC] [FULL] [3.55] (2012)
 ```bash
 magnet:?xt=urn:btih:BB5F9C0D5CA4CCD665D3380DC82E191A9946E5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02FE876AFE965B35597CDA0BCE09CB5FB4DAEBB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Pro Evolution Soccer 2013 – продолжение знаменитой сер
 ```bash
 magnet:?xt=urn:btih:1D87B07FD5014D43A56B76A36856B941B0E0641D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Resident Evil 6 [PS3] [RUS] [PAL] [FULL] [3.55] (2012)
 ```bash
 magnet:?xt=urn:btih:F24862B8250B9760ED18489819F7224CBD5A2AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Assassins Creed III [PS3] [RUSSOUND] [PAL] [3.55] (2012)
 ```bash
 magnet:?xt=urn:btih:6A55C5392BFA1C408A559EBA2E4EF422CC3CAAAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Might and Magic I-IX / Меч и Магия 1-9 Антология [En] (L) 1986
 ```bash
 magnet:?xt=urn:btih:A52EEB33D144659FEA4F58108DAB863D918F2B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1CAE44E4FA811A6B5328A76C01E05968C84B285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ WWE '13 продолжает серию игр по реслингу, предл
 ```bash
 magnet:?xt=urn:btih:3B3F8EA929FBEB5DEA38A223AE0CDD91222801C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ The Witcher 2: Assassins of Kings Enhanced Edition v3.0.1.17 / Ведьмак 2:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Medal of Honor Warfighter - Limited Edition [Ru/En] (RePack/1.0.0.2) 2012 l R.G.
 ```bash
 magnet:?xt=urn:btih:D627F9A90A457F6292079F640885595B3A4DC5C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEBBE36209413B3FA4CB44805993225A52BAFB2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Adobe® Acrobat® XI Pro — это не просто популярный ко�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

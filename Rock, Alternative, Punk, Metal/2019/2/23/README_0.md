@@ -22,8 +22,7 @@ Disavowed & Nocturnal Silence - Plateau (1998) [FLAC|Lossless|tracks + .cue] <De
 ```bash
 magnet:?xt=urn:btih:142DE572BE41F505C209E8D0A11DB7CC747B2FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Internal Bleeding - Onward To Mecca (2004) [FLAC|Lossless|tracks + .cue] <Death 
 ```bash
 magnet:?xt=urn:btih:075FE015E12DDBE841ED4EDBCA12B49EB6134621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sister Hazel - Fire (2019) [FLAC|Lossless|WEB-DL|tracks] <Southern rock, Alterna
 ```bash
 magnet:?xt=urn:btih:6265019C3164C881A9883556BFE70AA0F1655F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F30505D23A7D34DF01704ECB03EC025D6840EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Perverted Dexterity - Spiritual Awakening (2017) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:90571C459E0B61B82533E47412AF15971B0B1502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ VA - The Rock Album (2017) Box Set, 3CD [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:F6BDEEBC20F4FFAD14E1020170D2387C2761B45F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

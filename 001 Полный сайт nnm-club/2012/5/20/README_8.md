@@ -26,8 +26,7 @@ Status Minor - Ouroboros (2012) [FLAC|Lossless]<Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Viva! Decor посвящен красоте жизни. Той красоте, �
 ```bash
 magnet:?xt=urn:btih:D3B889F151296855B9BB6946A61E63F837DCB029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Songsworth - Launchland (2012) [MP3|320 кб/с]<Traditional Electronic, New Age
 ```bash
 magnet:?xt=urn:btih:A552D5B6A03F4644DE086F49D3FBA649BF96DD58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Pulsedriver - Hands Up Bombs! (2012)
 ```bash
 magnet:?xt=urn:btih:17E9504421BDA0DCD0CCCD7E871A0E9852D4FE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Daryl Hall - Laughing Down Crying (2011) [FLAC|Lossless]<Pop Rock, R&B, Soul, Po
 ```bash
 magnet:?xt=urn:btih:EDBC59FE03B9F3AC1FF9A6264FFB610060F9F903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Harper's Bazaar - это журнал, который уже 140 лет нахо
 ```bash
 magnet:?xt=urn:btih:01B3930FEF34A0D8CA0D50870BF0958E80E99D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FD4A07D287C20CFF99C678D80571F56E7067B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ Harper's Bazaar - это журнал, который уже 140 лет нахо
 ```bash
 magnet:?xt=urn:btih:1B8F6E95846388916C653C5B9FD50343F090D52F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6BC8409A13B3BD12E285393F5E450EBE5D8B181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D69A036184D3466E850E9D74E1E760DD750C1031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Harper's Bazaar - это журнал, который уже 140 лет нахо
 ```bash
 magnet:?xt=urn:btih:3F43BF3FF73FCC718DA4A39E1C3FDABD5B693A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE74DBBBB5804E57B5D91712BDEFC20296CAF657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA98EFFBA107EFA42B60E1F59E95F266803819CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Trancern 35.1 - Official Compilation (May 2012) [MP3|320 кб/с]<Trance, V
 ```bash
 magnet:?xt=urn:btih:F2186A8661C21703F25C4C34451947C8FEC2827C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D298F317251AE425789FEE38C71A9B6C7933ABC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Harper's Bazaar - это журнал, который уже 140 лет нахо
 ```bash
 magnet:?xt=urn:btih:973AB718C71D5605B407FFE37D945D0226F20459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DE882EAD4520CFA7F6E695EDC82364DE45FA25A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2164063EB44B4B456505E2E644E4DEAC9AE73079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09D4A901A28223438092C56727E05BC997A0680E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2ED05B61D022507E5E84295D25B0C3CD5065E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Harper's Bazaar - это журнал, который уже 140 лет нахо
 ```bash
 magnet:?xt=urn:btih:CE0B7928C707FE82A2BAED6FC5A6650C38C68D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Harper's Bazaar - это журнал, который уже 140 лет нахо
 ```bash
 magnet:?xt=urn:btih:42628F8BB6D1F83970BF3360A5B7B3AA050A6C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ Glamour - это популярный модный журнал для женщ�
 ```bash
 magnet:?xt=urn:btih:F40B3801CF684B4B8E3CA147429C46F3F2FC9413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B888A43AF57F7B5802CEA5AFF15A2431A06DA5EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ Tears of Martyr - Entrance (2009) [MP3|320 кб/с]<Symphonic Death Metal>
 ```bash
 magnet:?xt=urn:btih:A461EBA73396F7B1825DA82E3C925E0C5B6163D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD245B57E79C27FFC5AEA2915389E65E911D1414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

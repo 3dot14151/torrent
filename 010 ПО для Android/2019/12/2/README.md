@@ -19,8 +19,7 @@ Lunafaqt v1.25 [Ru/Multi]- Лунный календарь
 ```bash
 magnet:?xt=urn:btih:93DF178F4B2678F798AACA52A3A0B8B56E492AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark Romance 13: Vampire Origins (2020) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:A4B18BAD6E3FD62B2AA20DD7DE41B6E7BE85E5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tour de France 2020 (2020) [Multi] (1.35.0.0) Steam-Rip CHRONOS
 ```bash
 magnet:?xt=urn:btih:B7CE7F8DD14C7A948E841D87611585FDADC7D4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

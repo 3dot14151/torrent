@@ -19,8 +19,7 @@ Macabre Macabre Mysteries: Curse of the Nightingale Collector's Edition / Стр
 ```bash
 magnet:?xt=urn:btih:80D73BA3CDC4E54E8B1AC93A0049A70B3ECDC3D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Horde - новый хоррор-экшен с видом сверху. См
 ```bash
 magnet:?xt=urn:btih:217DF2531B81ADEA569EB58024F8F0B087161DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

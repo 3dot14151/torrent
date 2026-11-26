@@ -21,8 +21,7 @@ Amatory - Огонь (2016) EP [FLAC|Lossless|tracks] <Alternative Metal, Nu-Met
 ```bash
 magnet:?xt=urn:btih:FBD5203BF1AA2C1A8473D857C7AFAD74A993AE8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Rolling Stones - Sticky Fingers Live At The Fonda Theatre 2015 (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:9A5552307144A0B6DB24B324096B9867029EF7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Amatory - 6 (2015) [FLAC|Lossless|tracks] <Alternative Metal, Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:F0C5F37639DB4C32592617299B961E448905AB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Marilyn Manson - Heaven Upside Down (2017) [FLAC|Lossless|tracks] <Alternative R
 ```bash
 magnet:?xt=urn:btih:A84F00906135D6685F8394BBE5E137CE0312B4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

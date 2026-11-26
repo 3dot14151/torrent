@@ -22,8 +22,7 @@ Mors Subita - мелодик-дэт-метал группа из Оулу, Фи�
 ```bash
 magnet:?xt=urn:btih:DE70EF7545436266A0D654A92DB5B4F033CB2F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

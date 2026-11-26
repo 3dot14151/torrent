@@ -19,8 +19,7 @@ Enchanted Kingdom 5: Descent of the Elders (2019) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:7BC8904ABFABBCF56C23E05EC9303C46E060CC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Armello - увлекательная RPG от австралийской сту�
 ```bash
 magnet:?xt=urn:btih:025F6F106DE29DB1EC111E36134CCBB0CF3727E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Eternity: The Last Unicorn – это полномасштабный ролев�
 ```bash
 magnet:?xt=urn:btih:BC8267C98FF8E3D2E6B6187A4284B1707385DF0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Yakuza Kiwami (2019) [En/Jp] (1.0/upd2) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C2D6A97F3E63C2CF3C88F8774F5840E22884E780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Armello - увлекательная RPG от австралийской сту�
 ```bash
 magnet:?xt=urn:btih:89EF4408236BEDA1DD4A26AF9B0B02A3243E4EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:BAC8884FBF48F988D705068D1CA7444B9B5BAC19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

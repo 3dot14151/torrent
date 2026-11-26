@@ -19,8 +19,7 @@ Mystery of the Ancients 5: Mud Water Creek (2016) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:5736F6AE1C2C92A58B135801A4D683368C0DA6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sea of Lies 5: Beneath the Surface (2016) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:7D2B822BF1B62B9FB1575F6D35058694658DBFFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sea of Lies 6: Leviathan Reef (2016) [En] (1.0) Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:BDCDFA33860F1E64F394A065B9F1B844A12F21A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Horizon 2 продолжит историю, начатую в предыд
 ```bash
 magnet:?xt=urn:btih:C43BDE13526C3D2A3A628A5DFCB11BB3FAF9997E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

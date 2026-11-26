@@ -19,8 +19,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/Multi] (1.2/dlc) License GOG [Complete Editi
 ```bash
 magnet:?xt=urn:btih:200670039482D6F49EF97CD314622E4CD49E8599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Craving - At Dawn (2013) [MP3|320 кб/с]<Black Metal, Folk Metal, Melodic Deat
 ```bash
 magnet:?xt=urn:btih:FE86CF9101A45BEF2DD28902C5808739D038FFD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ RoutaSielu - Pimeys (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:3FDB7E7A19FA860C08F414CE07177F160E8C35DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Zorge - Формула EP (2011) [FLAC|Lossless]<Alternative>
 ```bash
 magnet:?xt=urn:btih:4FF6D1D2766D5F86213815A23C1089DF17899965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Tuomas Saukkonen (весьма талантливый и
 ```bash
 magnet:?xt=urn:btih:183FE09A8DD6CD9C38C9B48E6E8D5F2CCCD0108F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Jeff Kollman - Silence In The Corridor (2012) [FLAC|Lossless]<Rock: Instrumental
 ```bash
 magnet:?xt=urn:btih:213D5E1DEB083A810FF6CE6737ABB6697C2CE603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ The Browning - Hypernova (2013) [MP3|320 кб/с]<experimental deathcore/experim
 ```bash
 magnet:?xt=urn:btih:54BEFBF1431BDFA85268041AE5FDA0A1EB90C4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Pestis - Yersinia Pestis (2011) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:6FC9F66C05D2CA040CF1032439F5262459AACC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:231DBC6EE01F45B12E97843CE17561311F4F6348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Cliff Lin - This Is War (2012) [MP3|320 кб/с]<Alternative rock/Industrial Met
 ```bash
 magnet:?xt=urn:btih:5E59A9852ABECEAD147C5B32545CA081F4F635EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Little Angels - 3CD (1989 - 1993) Japan Edition [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B2497AFA685CF1A0C0146405211AE5AEB3466E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Anneke Van Giersbergen - Drive (2013) [FLAC|Lossless]<Alternative rock>
 ```bash
 magnet:?xt=urn:btih:AD02FB92B134593494BE586024D4F6D87BD4360F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ Paul McCartney - New (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:F831FBF42E013C55F52AE77B2657C8CD65D217D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ Drowning Pool - Resilience (2013) [FLAC|Lossless]<Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:146100ADE5CCACA015858AF47C6335F8E833763C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +457,7 @@ VA - Pure... Rock Ballads (2013) Box Set, 4 CD [FLAC|Lossless|tracks + .cue]<Roc
 ```bash
 magnet:?xt=urn:btih:65126162FFF25F85B690706F112703BF5A4F8272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +490,7 @@ Bryan Adams - 9 Albums (1980-1998) Mini LP SHM-CD /2012, Universal Music Japan/ 
 ```bash
 magnet:?xt=urn:btih:7897A51D165AE1B789A3CE896AD9474524F86661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ VA - Trap Second Edition (2024) [MP3|320 Kbps] <TRAP>
 ```bash
 magnet:?xt=urn:btih:1638BC57D8D4AEBA43279D71E02FB7DB90DF0251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF5C03CD866E9D9A368EF8EB299C598E8A2DFD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - AI song, AI music CD 2 (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
 ```bash
 magnet:?xt=urn:btih:069E3750AFA52B41BA43D1803973E76B52BFC9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

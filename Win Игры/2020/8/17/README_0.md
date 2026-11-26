@@ -19,8 +19,7 @@ Milky Way Prince The Vampire Star (2020) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:07608501F8913B7BD01E42FB011D0F0460A55C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

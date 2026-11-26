@@ -19,8 +19,7 @@ Nazareth - 12 альбомов (1971-1989) [FLAC/APE 2.0 24/192|image/tracks (Vi
 ```bash
 magnet:?xt=urn:btih:F108BCA787F2FC07D074E6479A068B68185E0E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

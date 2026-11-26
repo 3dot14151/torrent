@@ -19,8 +19,7 @@ Neon Wars - это аркадная игра, в которой яркая гр�
 ```bash
 magnet:?xt=urn:btih:9B94B7DF90C93C92A58A6A0FD218B9EE6E13A067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Quantum Conundrum [Ru/En] (RePack/1.0.8623.0) 2012 | Audioslave
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C84925C279F799087E2E4C5DE1D8C686053E1B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Attack of the 50ft Robot! – это забавный трёхмерный эк�
 ```bash
 magnet:?xt=urn:btih:BEA787F5F8AC3F351EE78DA111FAFDDF0422F590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Deszcz - Rain Keeps Falling (2014) [MP3|320 кб/с]<Neocrust, Hardcore>
 ```bash
 magnet:?xt=urn:btih:BE68DBC646A4886F649AA0099A0B17FDAB52D897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Yautja - Songs Of Descent (2014) [MP3|320 кб/с]<Hardcore Punk, Crust, Sludge>
 ```bash
 magnet:?xt=urn:btih:7E97BA3A1887422BA41C08AECF30B6794A6BEDA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ VA - Vendace Ibiza Essentials (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:2BCB0D51B26548AB7AF89831F89D871553A7B945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ The Rodeo Idiot Engine - 2 альбома (2011-2013) [MP3|320 кб/с]<Chaotic 
 ```bash
 magnet:?xt=urn:btih:B36C977F0C97E8E35C3542CDD681734191A073FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ VA - Chillout Passion (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:408A46F48FFFAF12B89F93989CBF1930BEA3C88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42AC8EE95607FD4DD76725853A5FDDC7BFB8FFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6C4BC3C08E82F7DE83F5CBDFEE0D00D16773688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B991BFBCC0B0E1AFAD9BB47BF41B4738359B875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ VA - Secret Lounge 3 (2014) [MP3|320 кб/с]<Lounge, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:BE81F38C29AFC3FE55EDAE22429A42E9BC476FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE6C953E30A3F54E4640BAEA1EDD1BB8C92F1693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ Abigor - Leytmotif Luzifer (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:9F0E0D3311A3088E74F71B9EF452D3429D8DE9B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ VA - Ibiza Club Life (Self Raiders) (2014) [MP3|320 кб/с]<House, Club House>
 ```bash
 magnet:?xt=urn:btih:4938FED527D96ECEC3EDC50FA41982AEC60A7B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:979F521C65616F2AEBFC490BBDCDF463C00CDA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62D0D6638D7D6AF439044CD3B4F74704B43C4566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ VA - Wins Trance Feelings Lights (2014) [MP3|320 кб/с]<Trance, Progressive Tr
 ```bash
 magnet:?xt=urn:btih:897B814265D64E22EED4F11709DEF4DD7BF73B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ Shinyribs - Gulf Coast Museum (2013) [MP3|320 кб/с]<Alternative Country/Blueg
 ```bash
 magnet:?xt=urn:btih:ECBE5DE944E22FE23EC6E5163F47AA73B8B6E301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ Makson - Electronica (2011) [MP3|320 кб/с]<chillout, ambient, electronic, idm
 ```bash
 magnet:?xt=urn:btih:EF89C67A3E256F7B106118AC90E9068584E650E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +561,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:2B003B26C675E86C35B4B782CA14FB521BB3E556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ Kamikaze Kings - Master Or Slave (2014) [MP3|320 кб/с]<Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:48776C8092877CC7345952251ACE2ADE3DEB33AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ Piezo не требует никаких настроек, достаточно 
 ```bash
 magnet:?xt=urn:btih:6C60B9631BD67BC56CC5697869F4E6FA913B0615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC5BA1FF00A18C561E01AB70BC9EFC3C1E1F7400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +685,7 @@ Little Bob - Time To Blast (2009) [FLAC|Lossless]<Rock, Dark Blues Rock>
 ```bash
 magnet:?xt=urn:btih:067EB89D1CA8EE3EE573611FAD17A946886248B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +719,7 @@ VA - Mr. Technobeat Pres. Saxo House Party Pt. 1 (2014) [MP3|320 кб/с]<House,
 ```bash
 magnet:?xt=urn:btih:E0CB80E995EA57F024DF5542F5A40C5559B376F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:999DEEDF6F2A543483876F2979403154B4303DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ VA - Ibiza Compilation 2014 Vol 1 [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:62A5C0A810E6FD7FE4C41AE352ABE0DA1A556FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

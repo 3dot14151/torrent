@@ -19,8 +19,7 @@ Jane Angel 2: Fallen Heaven (2014) [En] [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:BF44D03B70B55DD500116001FE13772ECC8B84BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Surface 5: Reel Life (2014) [En] Unofficial [Collector's Edition / Коллек�
 ```bash
 magnet:?xt=urn:btih:CD6F224EB5939745FA8D14EC821C75FB75D15168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Castlevania: Lords of Shadow - Mirror of Fate HD (2014) [Ru/En] (1.0.684551 upd1
 ```bash
 magnet:?xt=urn:btih:24C1070EDBD4FE63504121819B5595ADB184DEED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ LEGO The Hobbit / LEGO Хоббит (2014) [Ru/En] (1.0.0.21750) Repack R.G. М�
 ```bash
 magnet:?xt=urn:btih:279A17A062A8BA14642A618035AAE8F011E5A084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ X3: Albion Prelude / Рассвет Альбиона Patch (2013) (3.1/Ru) Unoff
 ```bash
 magnet:?xt=urn:btih:08462090C2F7A7A9A9AAFCC9E0B6FB4CBA243B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Words – это приложение для изучения слов инос�
 ```bash
 magnet:?xt=urn:btih:26CF50D477A67FC328A2A1C73313E6F4A6ECE0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CC5E68B71D8C9D446F42354570BA20235FF7A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NewPipe v0.25.2 Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5AD50CCBA31BD936E85B5230F4AC7FF79411CA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

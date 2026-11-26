@@ -19,8 +19,7 @@ Ghostrunner — эта жестокая игра-слэшер от первог�
 ```bash
 magnet:?xt=urn:btih:785BE070A45F3CE3F2EE218B2732DDEEAED18BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Strange Investigations 2: Two For Solitaire / Удивительные расс�
 ```bash
 magnet:?xt=urn:btih:700B491378D254EACFC357516AA6C17F78F67A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

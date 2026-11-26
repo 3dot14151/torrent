@@ -19,8 +19,7 @@ Rage (2011) [Ru/En] (1.0.35.4669/dlc) Repack dixen18 [Anarchy Edition]
 ```bash
 magnet:?xt=urn:btih:7DA49D6618A875C69D628A19AE0351276EAD53BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Barotrauma - сайд-скроллер, позволяющий играть по
 ```bash
 magnet:?xt=urn:btih:0BB87CFAEC7BBA11B19CD382C1765A196F9DC7A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HORROR TALES: The Beggar бросает вас с головой в разруш
 ```bash
 magnet:?xt=urn:btih:616A7EEB72708A66582C5FF6AF9EA5FB741118F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

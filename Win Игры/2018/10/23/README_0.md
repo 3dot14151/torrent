@@ -19,8 +19,7 @@ Omensight - это экшн игра-головоломка. Вы - Предве
 ```bash
 magnet:?xt=urn:btih:F0D3EE520A5EB87EE6F817EFF479F1D823B5A213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F5B86FE8FA4584EA43E126ECBAE87676C9ED49A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Syrian Warfare (2017) [En] (1.3.0.19/dlc) License CODEX [Delux Edition]
 ```bash
 magnet:?xt=urn:btih:AD4F0C57061BD11F37B40275240D947CEC0A73AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ God's Basement — это хоррор-игра, рассчитанная на �
 ```bash
 magnet:?xt=urn:btih:283E92E97014E3A77529A37093E5B3CC45245E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C46AB87AE83D3F78ADD74D1356B28A449F32C0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

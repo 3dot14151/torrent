@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:4EE19C38F7EB823E3FAEA9C2AEA1076CFFAAF131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Corkestra - Corkestra (2004) [FLAC|Lossless]<Avant-garde Jazz>
 ```bash
 magnet:?xt=urn:btih:C4551DF9600D064B40D058C92DA417D6F5DA25AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Private Lounge Club 7 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:E894C8E7DACC3B3F7D00D057A85E88E550EC1767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3F32D91079BAAEC09AA0B0D4184E1BACE84C3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Berryblues - Voodoo Men (2014) [MP3|320 кб/с]<Blues-rock>
 ```bash
 magnet:?xt=urn:btih:5D798CB3D6BCDB8F77D37E13010423508875192D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Aruan Ortiz Quartet - Orbiting (2012) [FLAC|Lossless|WEB-DL]<Contemporary, Moder
 ```bash
 magnet:?xt=urn:btih:77881DD342CF5F29DB0560F70AC0B0968067525F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ Bucky Pizzarelli, Howard Alden, Johnny Frigo, Michael Moore - Hot Club Of 52nd S
 ```bash
 magnet:?xt=urn:btih:B3AC07E3784685D50CF5B8088A618791E0DA2091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ Levania - Renascentis (2014) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:062563E6CEC7DA17A50390A041C00567E1C0BE64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +339,7 @@ Arve Henriksen - Cartography (2008) [FLAC|Lossless]<Avant-Garde, Modern Composit
 ```bash
 magnet:?xt=urn:btih:32CB18CF3458000F5A4925277AC8BAD6FBCB18C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +373,7 @@ Bettye Swann - The Complete Atlantic Recordings (2014) [FLAC|Lossless]<Funk, Sou
 ```bash
 magnet:?xt=urn:btih:1F9B7AE3D2AB4D1EA6012B4AAB178C2A46F22D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A001FB135478C68C26B0865CB1AF4A65AF33B1D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE6018FC1B15E2DE44C877CDDD7B2C74EBB6432B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ BulletBoys - BulletBoys (1988) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8FA3FFB11170A0BDD0A6E2EEE183C30965E29041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AAF782155267D11CB605388CA689F12A3532FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +513,7 @@ B.T. Express - Keep it Up (2012) [FLAC|Lossless]<Funk, Disco>
 ```bash
 magnet:?xt=urn:btih:984552A8DFF0170F0AE89A165A0C6F86906D7798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +547,7 @@ Fate - V (2006) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:065654591C0E2DB6CBBEB8EF9E89FAF88BCC527C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +581,7 @@ Chris Le Blanс - Beyond The Sunsets (2013) [FLAC|Lossless]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:CF095E3A73A655A2272E9852240E1B30612BF59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3A856DE4555ED6E19413F4E214BB4F6B5A0B664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4113AC3D08E4BEC1988D10E6DAB1D3446AD8CAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9977AB6D7937898E5E6090AF648D6E5154EEAE93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74F4DED436C653405F0021D79F5951286ED44DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ VA - Mistique Collection 018 (2014) [MP3|320 кб/с]<Deep House, Progressive Ho
 ```bash
 magnet:?xt=urn:btih:236FE114886BC30D88A751D1F9713C3002610689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79A372F230E416954F09EBA4342F237FD6442EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -800,8 +775,7 @@ Blue Murder - Blue Murder (1989) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2B0C9741DECBBF6133920A7188E520B481BF4D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

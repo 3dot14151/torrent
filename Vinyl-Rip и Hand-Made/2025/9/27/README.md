@@ -22,8 +22,7 @@ Revocation — американская метал-группа из Босто�
 ```bash
 magnet:?xt=urn:btih:9854B1F30D43785A508A1667C6FB63E7D0FEB943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mors Principium Est - мелодик-дэт-метал группа с учас�
 ```bash
 magnet:?xt=urn:btih:9B3812337D053039A139A526E65B6B87090809A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Final Fantasy VII Remake Intergrade – улучшенная и расширен
 ```bash
 magnet:?xt=urn:btih:59F939BDB5C31941EA63874D26FB019D7640931C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Womanizer (2024) [Ru/Multi] (Build 20905236/dlc) Repack Let'sРlay [18+]
 ```bash
 magnet:?xt=urn:btih:9BC04400B5CA5767F9F59506BB460F973F63C56E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/Multi] (Build 17653291/dlc) Repack Let
 ```bash
 magnet:?xt=urn:btih:73519BF5798FF021FF2C27C9AC0007480A1231CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

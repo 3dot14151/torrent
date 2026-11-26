@@ -19,8 +19,7 @@ Amnea 28: Two Eternities / Амнея28: Две Вечности (2026) [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:DC05CF99B02D886EDD9D2F13332CD6154E72C502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enigma of Fear погружает в мрачный мир паранормал�
 ```bash
 magnet:?xt=urn:btih:107ABE3148DC137388E8978AF0FC2D369FCE3A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cash is King! Business Simulator (2026) [Ru/Multi] (1.4.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:EA26C2B4D65CF20A51C83D311E41D8B74665DF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Heart of the Forest (2026) [Ru/Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:699D01FC8D14718351303481DCE41E397FC9E0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SYNTHETIK: Legion Rising - это динамичный шутер, где выж
 ```bash
 magnet:?xt=urn:btih:4B18950219C884169D8C8E7D9285CED1F1305827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Agent A: A Puzzle in Disguise - это атмосферная головолом
 ```bash
 magnet:?xt=urn:btih:44A3CBA68D7256B16380D52911EBAFCA01C0429E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ I.T. Never Ends (2026) [En] (2.7.45-rc1) License GOG
 ```bash
 magnet:?xt=urn:btih:CEB053C8AB82F499175109ECBF198C3E3A2179D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ IObit Uninstaller представляет собой удобный инстр�
 ```bash
 magnet:?xt=urn:btih:D5D79975459103806BD1DA32E28D3A3C69AB1467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PowerOff - программный выключатель компьютера. �
 ```bash
 magnet:?xt=urn:btih:AE1C782CEE7AAA32182F60EA03C9E5785424436F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Error Lookup - небольшая утилита для получения ин�
 ```bash
 magnet:?xt=urn:btih:8934AD8F6A83406BC2EF3AE83338F1754525907E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Process Monitor 4.01 [En]
 ```bash
 magnet:?xt=urn:btih:09919F9D5DA69B1BA4FAA711EC3ACB1031C4D4AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

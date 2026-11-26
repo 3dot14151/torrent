@@ -19,8 +19,7 @@ Lost Tales: Forgotten Souls [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:267F0ECC2A1E3F4A4C745B09D503F45053DD4ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Nancy Drew. Tomb Of The Lost Queen / Нэнси Дрю. Усыпальница �
 ```bash
 magnet:?xt=urn:btih:DDC78245D9A75500B22626A7E52D6D1F1D45E5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

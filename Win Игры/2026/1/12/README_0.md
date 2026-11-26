@@ -19,8 +19,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack FitGirl [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:36ED6167E2554FE06F2FF0D18AAF3400D5A07B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ UnderRail – изометрическая пошаговая ролевая и�
 ```bash
 magnet:?xt=urn:btih:5CD6E0FBADE43CA331DF4275FE636EE0321BAC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Toads of the Bayou (2024) [Ru/Multi] (20.51) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3663EBC960E8DF1AFE53998AA20386E00FA3435D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Moons of Madness (2019) [Ru/Multi] (1.02) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B9A4D886B26B399124D5025F1721122D2332D1A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.5.1/dlc) License GOG [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:6DBB42227B712D5E2F9C0898756B93FBF4D6FF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.1.3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:756B8200ACA331E8F2CF408D01E7218C9FAE4B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

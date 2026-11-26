@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:84750145A44EC22BAD4D6BA8D7787118BAA22D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.
 ```bash
 magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

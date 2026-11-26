@@ -19,8 +19,7 @@ RAID Reconstructor - утилита для восстановления данн
 ```bash
 magnet:?xt=urn:btih:B5985A0858B08AF238C662207DBB6FBF4CB2A5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

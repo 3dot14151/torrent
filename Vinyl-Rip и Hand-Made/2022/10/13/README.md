@@ -22,8 +22,7 @@ A4 Бесполезная Песня(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:70D7356B458599CEBEBBE634329742F0ED95B9E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

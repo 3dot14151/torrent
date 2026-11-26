@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:664B8E29E175BB2F86D5B5B9C9E8B36BF60B6855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Carista — мобильное приложение, с помощью кото�
 ```bash
 magnet:?xt=urn:btih:76FA508A5906A553CF01F52CB29C432C749C92CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A5C43CED2B6E5F35100202D2B6A032B01A57B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

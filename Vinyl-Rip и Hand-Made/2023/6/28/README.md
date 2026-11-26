@@ -21,8 +21,7 @@ The Sins of Thy Beloved — музыкальный коллектив из Но�
 ```bash
 magnet:?xt=urn:btih:2850E838857667DD3914CFAE98763A28F7998B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ A4 Танцевали Пары(   Читать дальше...   )Жанр: Lati
 ```bash
 magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

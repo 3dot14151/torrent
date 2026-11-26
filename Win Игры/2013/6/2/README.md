@@ -19,8 +19,7 @@ Dark Dimensions 3: City of Ash Collector's Edition (2013) [En] RePack Dizzery
 ```bash
 magnet:?xt=urn:btih:7B9D2D0CC1943263FD6DD119DDDDC60C07337CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Parables 5: The Final Cinderella. Collector's Edition / Темные При
 ```bash
 magnet:?xt=urn:btih:DB0907FC5D269664B61523D4755947C8E06C7585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

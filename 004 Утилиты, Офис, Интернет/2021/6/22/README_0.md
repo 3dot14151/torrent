@@ -20,8 +20,7 @@ iFun Screenshot - бесплатная программа для создани�
 ```bash
 magnet:?xt=urn:btih:DCA5A4F01F482686F7B8E559E764D4AD2A8671E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

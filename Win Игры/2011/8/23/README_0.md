@@ -19,8 +19,7 @@ Rangy Lil's Wild West Adventure / Ренджи Лил. Приключения н
 ```bash
 magnet:?xt=urn:btih:DA2699E177784FD59F256233B5C2E757AD587956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Flight Control HD (P) [En] 2010 | Unleashed
 ```bash
 magnet:?xt=urn:btih:A9AE39AE296C1B8731497946D9ADADAD41CCE14A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A New Beginning / Послезавтра [Ru] (RePack) 2011 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:C0772EAAD00B8582F0A843897F3C14F418947B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Detectives United: Origins / Детективное агенство: Исток
 ```bash
 magnet:?xt=urn:btih:B5A3213112F93BC10B31703E1204E756072CB238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

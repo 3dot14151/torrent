@@ -28,8 +28,7 @@ Folkodia - Forgotten Lore (2011) [FLAC|Lossless]<Folk/Viking Metal/Acoustic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

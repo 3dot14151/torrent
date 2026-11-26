@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:C2C75F46F89748B6DCB04E4EFCB26B151FEA7E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Eternal Delyria - Letting Go Of Humanity / Paradox of the Mechanical Angel (2016
 ```bash
 magnet:?xt=urn:btih:479ECC2104B6A85E2799D797490C3188B1063406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - 100 Rock Classics (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B6DB46809D44ADE2EF4990558E5E4E02C104AC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

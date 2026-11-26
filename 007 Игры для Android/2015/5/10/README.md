@@ -19,8 +19,7 @@ Sonic 2 - The Hybridization Project 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:489CF9253F6E05A6EA32BBBD73A073DFA915F147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sonic 2 - Advanced Edit 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:CE5ACC900CF31C886A9C976235A3E2AE90C51D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Holiday Gift объединяет в себе потрясающую физик�
 ```bash
 magnet:?xt=urn:btih:1722B454F87A3B4792C191739D2DDBD4F0AEC5E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

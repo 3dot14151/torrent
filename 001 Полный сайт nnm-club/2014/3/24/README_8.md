@@ -21,8 +21,7 @@ War Thunder — компьютерная многопользовательск�
 ```bash
 magnet:?xt=urn:btih:85B3333C7EB17DC3569E73E51642E7A20D8DDB9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Metal Gear Solid V: Ground Zeroes является прологом к игре 
 ```bash
 magnet:?xt=urn:btih:FDCFF052A45BF303C9E029B1F1CC65C2957547F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ BBC: Что такое свет / Light Fantastic (2004) [2 х DVD5]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:385125221BF1CE8C1E0A5535D3E92DC100067712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ BioShock Infinite + DLC [PS3] [MOVE] [USA] [Ru/En] [4.30] [Cobra ODE / E3 ODE PR
 ```bash
 magnet:?xt=urn:btih:AD803DD6E32143B0B8DB749FBB5771F7C8468ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77ECE21871C20C589F73E86356800BD3B4398D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Uniblue DriverScanner - утилита производит поиск и заг
 ```bash
 magnet:?xt=urn:btih:0B23201AA1132587782471017D6AB4F5160AFEF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Gekijouban Kara no Kyoukai / The Garden of Sinners / Сад грешников (
 ```bash
 magnet:?xt=urn:btih:4BAFFDA7CD5EA97E0366CEAC6153A75447544EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 ```bash
 magnet:?xt=urn:btih:71046D6F24BE743F8BC2CBF54587122F147D269A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22A053CA1E9CC3C57C8258A1122E3E3E8FB7C832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Robotics;Notes / Записки о робототехнике [2013, TV, 22] BDR
 ```bash
 magnet:?xt=urn:btih:2DF88D3B17411A0A7B4F53ECE9EC619F72A19590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Adobe Fireworks предоставляет в распоряжение веб-д
 ```bash
 magnet:?xt=urn:btih:62B630B9F91FC3E61CBACCE013CEE3E744435B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Garmin: City Navigator Russia NT Navicom 2015.10 (03.2014) <Ru>
 ```bash
 magnet:?xt=urn:btih:975106DBB90119958725CEFE58D706E165D087C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ VideoReg Pro 6.81 [Ru] - Видеорегистратор
 ```bash
 magnet:?xt=urn:btih:150830372BBBE638A25F148A354D994F80773C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

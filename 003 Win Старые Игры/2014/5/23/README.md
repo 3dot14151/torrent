@@ -22,8 +22,7 @@ iFly Jets: 737NG является наиболее сложной и полно�
 ```bash
 magnet:?xt=urn:btih:E15DD43D70BF2963685AF327D074A7837056F6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

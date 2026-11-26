@@ -22,8 +22,7 @@ Witchery - I Am Legion (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Bla
 ```bash
 magnet:?xt=urn:btih:B0735F4A63B467C4451C11C69A2EE0D465EB481A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elvis Presley - Christmas With Elvis And The Royal Philharmonic Orchestra (2017)
 ```bash
 magnet:?xt=urn:btih:C1E75F6BB210824436C348767FBBB2B3AB21C292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Revolution Saints - Light In The Dark (2017) Japanese Edition [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:0B9ABE6C4AF0F7BCF0E211CF5B4584492255497A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Quatermass / Quatermass II - 2 альбома, 3CD (1970-1997) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:78E4BE687FF2E19D2BD8118F8AC203CECA1F824B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Manhole: Masterpiece Edition открывает перед каждым иг
 ```bash
 magnet:?xt=urn:btih:091BC9379F8F15937AC922E9CCF5D9D945708692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

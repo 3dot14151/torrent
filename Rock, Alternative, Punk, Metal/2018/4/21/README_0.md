@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E5697320EC481571D6284A3DFD897C7C446FD78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAC033C0B725342D92E0237D9D931FBC1B7619B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ phoenix/NEBULIN - Mainframe (2018) [MP3|320 Kbps] <Alternative Rock, Industrial 
 ```bash
 magnet:?xt=urn:btih:EBDC70D87DA4A69C1CEBED4F5E2CFD42EB1B2105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Opium Ink - Opium Ink (2018) EP [MP3|320 Kbps] <Alternative Rock, Electronic Roc
 ```bash
 magnet:?xt=urn:btih:9B2D38A5BF735C81D881FE039D0963CD50A5D794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

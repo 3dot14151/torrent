@@ -22,8 +22,7 @@ A4 П. Нечепоренко - Наигрыш Владимирских Роже
 ```bash
 magnet:?xt=urn:btih:11E5CF22E869351C78A846E76F1C8C0586F1413C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Heretic - американская пауэр-метал группа из Ло�
 ```bash
 magnet:?xt=urn:btih:800744C29636105CC849E27C2B23158D2EF05028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD16EB57D724FF98A3C033448138801106671ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

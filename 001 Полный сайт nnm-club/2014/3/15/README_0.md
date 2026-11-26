@@ -18,8 +18,7 @@ XI Зимние Паралимпийские Игры 2014. Лыжные гон�
 ```bash
 magnet:?xt=urn:btih:DDA20DDFAD6001C9647931EE03D639EC1E25CF05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The Coathangers - Suck My Shirt (2014) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:ADE50F8A904F976A9BA5085612855B9027B3E003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ XI Зимние Паралимпийские Игры 2014. Следж-хокк�
 ```bash
 magnet:?xt=urn:btih:67888FBBEBD15524C403FC687979FC6FD7A97CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Chill Out In Montecarlo (Luxury Compilation) (2014) [MP3|320 кб/с]<Downt
 ```bash
 magnet:?xt=urn:btih:AC101817775B843ECCE56AAADD02C864B2B753EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDBE90C57D5C9B9FDA8EE3F1125C06FA2F31A465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Erroll Garner - Collection Vol.1: Easy To Love (1999) [APE|Lossless]<Bop, Swing,
 ```bash
 magnet:?xt=urn:btih:03FC97EF12542E1D419BDF8B1F197DE6B3FC7DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ VA - Ambient Easy Listening Vol 1 (2014) [MP3|320 кб/с]<Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:8DC729C7DEEAED9DF3E9001BA4FBF2A0933034B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Rishi & Harshil - Forget Your Limitations (2008) [MP3|256 кб/с]<Shamanic, Wor
 ```bash
 magnet:?xt=urn:btih:0A930658E4E2F675699C37227F80164827D1E8E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ Thelonious Monk - Paris 1969 (2013) [FLAC|Lossless]<Bop, Hard Bop, Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:69092AB02D287825329CC7AB2DA959E5EF547A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8804316FDA97C69D9B8ACA32179D0D85E74A5737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ VA - Весенний Хит. Зарубежный (2014) [MP3|256 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:F5D9D62470EF6769E77562B4C465EFF58A25A645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8023AC9024F8AD4188CD0B85DFB04CE5C4659057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C8B0BC7B8C9BD3E9F2412C2B3F2BD20BA41BF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FEFAB59502E8D67DC78BE4FDE852333A6B505F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD5FE232136F9B506E828F17E1017C7606CD057E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E694B65251DAA1D8323A053FDC8774532B4CA782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ Anna Rossinelli - Marylou Two (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:02A35922E10C4E2967E7CD76532C2ECCDBC969A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ Fuel for Pages - это удивительное дополнение для п�
 ```bash
 magnet:?xt=urn:btih:D3D304003014BC4A583CD53649A6AF4082001032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6B29B4D4584F3D06D196B508A2A88FB784C9A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:804471868A565ED1B4FB56DDC02D65CF679267BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ Natalie MacMaster - Yours Truly (2006) [MP3|320 кб/с]<Instrumental, Folk, Cel
 ```bash
 magnet:?xt=urn:btih:BA4942B1E4F1CE92BF3C1A03D307C3AEC4C6F2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +633,7 @@ Wallpapers - Футбол [JPEG]
 ```bash
 magnet:?xt=urn:btih:C5397C06EBB35ACD8A00F561726F6D153DC445E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ Mike Strickland - The Piano (1999) [MP3|320 кб/с]<New age, Instrumental, Pian
 ```bash
 magnet:?xt=urn:btih:30F7D36CD8B4C9C48854D3A11D411154771BD667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +701,7 @@ VA - Seductive Lounge Vol 1 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Ou
 ```bash
 magnet:?xt=urn:btih:D1A42CA5721B62585B3D569B9BE06F4E7AE2C40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ Stonelion band - Любовь из металла (2012) [MP3|320 кб/с]<Regga
 ```bash
 magnet:?xt=urn:btih:EA1E38E5E32FE479E9374AF4D35B4692498D4713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9310B516416631604F2F5550D0CE8A2C3DAABBDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

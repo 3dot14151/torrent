@@ -19,8 +19,7 @@ Lichess 5.5.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F59DDEFAF91EFE7F69B5F7481FB4900870C6CEFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

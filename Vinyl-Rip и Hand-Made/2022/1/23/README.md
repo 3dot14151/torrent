@@ -22,8 +22,7 @@ A3 Granada(   Читать дальше...   )Жанр: Easy ListeningПродо
 ```bash
 magnet:?xt=urn:btih:51E31FDA0E4EBBEC3AD7FBBECE8CA26784DA9FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

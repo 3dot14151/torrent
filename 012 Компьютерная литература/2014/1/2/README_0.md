@@ -21,8 +21,7 @@ Windows 8.1 выглядит и функционирует не так, как �
 ```bash
 magnet:?xt=urn:btih:DA5713F6A96493F77BE9133BD8414D9E6E693AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

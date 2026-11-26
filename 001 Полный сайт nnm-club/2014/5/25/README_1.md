@@ -27,8 +27,7 @@ VA - Voice From Paradise. Transient Rays (2006) [MP3|320 кб/с]<New аge, Voca
 ```bash
 magnet:?xt=urn:btih:4A2B147E2EEFF96271AD8D1847C894DF1DAF7D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ An Danzza - Scintilla (2014) [MP3|192 кб/с]<Medieval folk, New age>
 ```bash
 magnet:?xt=urn:btih:2CE02CD5E88BDA5983F1BF5ED02B62DD65D895EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Dynamite - Blackout Station (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0193B663011D02EE1729059831F0EA4D5EA4C57C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Led Blimpie - A Tribute To Led Zeppelin From Hell’s Kitchen (2014) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:3694B2F7C5CBFBA2B8CBAE022C21CF8F25ACDC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ cEvin Key & Ken Hiwatt Marshall - The Dragon Experience (2003) [FLAC|Lossless]<I
 ```bash
 magnet:?xt=urn:btih:E0ABAAC79418BCD3AA76DBFFD72099726D32A3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E72E3B191CE43D4D7F385E25A812405AF00783C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Utah Jazz - January Silence / Endless (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:52E41FF28C4A27BF7787359FBFF59DB511A2CE1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:427849A2E387824C222D5C4F44CB722CAB3F84DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ VA - Voice From Paradise. Before Dawn (2006) [MP3|320 кб/с]<New аge, Vocal>
 ```bash
 magnet:?xt=urn:btih:13CCCC369DFC7952DD248EEF0AFA67A931803BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A9F3D45F853D3C24DA552C628158353372F26E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Giuliano Palma - Old Boy (2014) [MP3|320 кб/с]<Pop, Ska, Rocksteady>
 ```bash
 magnet:?xt=urn:btih:5C3180B4ED7D45C9F935BAE29FB38603A8D647A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:445FCB512EDA5B0B6196F6D7B3774B3C99EC7192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +413,7 @@ Mighty Mystic - Wake Up The World (2010) [MP3|320 кб/с]<Reggae, RnB>
 ```bash
 magnet:?xt=urn:btih:BED0A02F6D58142E9B11650D1CBBA1EF7EE4FBA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:904FE271EDF2C98E45D48EA4DF46CE35DA6E200A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +465,7 @@ Balabolka 2.10.0.569 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E2356E4222E977CDC5E464F1E4002C10B2EC151E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D01EDCFA181D500A46E73F85B1156C00124ADE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +515,7 @@ PrivaZer является очень полезным инструментом, 
 ```bash
 magnet:?xt=urn:btih:6CC525B6D8D40420E7AFAB93B4F34753CC86BE19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDEF9BF48045DB32C5273367916CE413B7544C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B695D168D8D691ADA47AE68B986F7CE4024839A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ Sinfonie Nr. 39 in E flat major KV 543
 ```bash
 magnet:?xt=urn:btih:20950B00412780586DB76DBC52B9C000EBC17FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BCBCAE4950C2129F3609FAE863557F34D366B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:297421A1CE341BE59AADC272ED4477648F58A6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ Multi Commander - бесплатный, удобный, мощный, функц
 ```bash
 magnet:?xt=urn:btih:823690E5F7F32EA44C1C4BEFA84E20C44004E38C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ VA - Ministry Of Sound: NERVO-Inspired (2014) [MP3|320 кб/с]<House, Progressi
 ```bash
 magnet:?xt=urn:btih:19B265C27BE236AF30C38ECD844CF092D39B190E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ Wallpapers - Comics (24.05.2014) [JPEG,PNG]
 ```bash
 magnet:?xt=urn:btih:FCAB4FF3E99330D6560CEB1380C6D7D4D1CCB556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C232856A549C8FF20FDBCD89D82B94F26A5BE83E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

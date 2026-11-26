@@ -19,8 +19,7 @@ Kathy Rain: Director's Cut (2021) [Ru/Multi] (1.0.3.5273) License GOG [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:AD3E2303C415CF2BFA0BB04E5A702013E34989B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Silence - Echoes of the Damned (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A9CA3792F923F5BFE6C3790FD0A667178E86E59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Autobahn Police Simulator 3 позволяет вам играть за офиц
 ```bash
 magnet:?xt=urn:btih:95123A04FA4A7EE2C636D82AF8D4650DD654DDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hyperviolent (2023) [Ru/Multi] (1.0.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E6C6F395ED0CBFDD464F90929773746D28C21326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lethal Honor - Order of the Apocalypse (2025) [Multi] (Build 20336899) Scene Run
 ```bash
 magnet:?xt=urn:btih:D6A69769A15D5B213B015D8A5D7112981363CEF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [20 Ye
 ```bash
 magnet:?xt=urn:btih:79282748DC0B1585053A801B1F9DCCF7BC22305C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:8C0D2801D88EB9DF47E667D6B099CD1A2D50B030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066) Scene Rune [Enhanced Editio
 ```bash
 magnet:?xt=urn:btih:6C608068F42ACE802060939495441E539226E97E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:F1EFE74ADE663424A7B84BEC5F8E69F7EB46E187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

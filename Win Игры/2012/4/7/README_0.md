@@ -19,8 +19,7 @@ Shoot Many Robots – динамичный платформер-шутер, в �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Happy Chef / Веселый повар (P) [Ru] 2012
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Happy Chef / Веселый повар (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:A94CE61120DA497FFCE5A5BD5F8D581778F09E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jewels of the East India Company / Сокровища Ост-Индской Ко
 ```bash
 magnet:?xt=urn:btih:04D2FC6BCC06C8F4DFCDC5F1F2CEA8F654499254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Azkend 2: The World Beneath (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F3AAF855BAE57FA35D3C873AB3850C142CD86D79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Enchanted Kingdom 6: Arcadian Backwoods (2019) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:F31C03F907D7E66AF30E1EDF215C2C83EED5E420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Domini Games предлагает вам новое волнующее прик�
 ```bash
 magnet:?xt=urn:btih:385A7961919AD466D295D301745C21B5D9D7ED8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

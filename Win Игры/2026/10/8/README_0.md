@@ -19,8 +19,7 @@ End of Abyss (2026) [Ru/Multi] (22954) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C954DB215347A0F7C23872F6054CA40E2CCE04B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ he Legend of Fancy Realm Remake - это сюжетная тактическая
 ```bash
 magnet:?xt=urn:btih:1561760F78E652356DEB1BF0EC5D908EF5B1F2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Atomfall (2025) [Ru/Multi] (1.2.2/dlc) Scene voices38
 ```bash
 magnet:?xt=urn:btih:C47F8602C7E6AE2C10362878A36E024C8545CC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

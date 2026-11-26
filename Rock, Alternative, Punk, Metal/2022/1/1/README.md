@@ -22,8 +22,7 @@ Iron Fate - Crimson Messiah (2021) [FLAC|Lossless|image + .cue] <Power Metal, Th
 ```bash
 magnet:?xt=urn:btih:44D048C36A1779EF7A37CABE5C9629FD6FACEE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

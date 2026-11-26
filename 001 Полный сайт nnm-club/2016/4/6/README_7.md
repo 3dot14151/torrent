@@ -18,8 +18,7 @@ PES 2016 / Pro Evolution Soccer 2016 - Удостоенная многих на�
 ```bash
 magnet:?xt=urn:btih:86905A11EED0EF2266556A4E39B4F050B1738035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:800A5C18A4F5180140D71556477DCD203DA53B56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Vacation Adventures. Park Ranger 11 (2021) [En] (1.0.0.1) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:E5437299FE13AEB046E6111386D4F584E7611FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Words — атмосферное повествовательное при�
 ```bash
 magnet:?xt=urn:btih:16B983C7FE2BC0867101722B0BE82AC67009423B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ADD (2021) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2933FAB32EB801D356F810C804F447501581BB50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

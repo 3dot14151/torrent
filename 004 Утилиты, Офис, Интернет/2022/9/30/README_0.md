@@ -20,8 +20,7 @@ Family Tree Builder 8.0.0.8625 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:69D5B8D79DFB4D2B47B1C2FA233810B7584E9856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

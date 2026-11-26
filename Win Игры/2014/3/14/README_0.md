@@ -22,8 +22,7 @@ Costume Quest — это приключение на тему Хеллоуина
 ```bash
 magnet:?xt=urn:btih:265B70E3740FD480E97AC743189FC8E98AB52ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ South Park: The Stick of Truth / South Park: Палка Истины (2014) [Ru/
 ```bash
 magnet:?xt=urn:btih:03DD8237D0555186A80ACEFA25356E6C43DC332D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

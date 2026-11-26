@@ -21,8 +21,7 @@ VA - Роза белая (2016) [MP3|256 кб/с] <Поп, Шансон>
 ```bash
 magnet:?xt=urn:btih:AE067B3D150DE5E76E05E2F0FBF2783A2E43396A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Sudha - Planet Love (2004) [APE|Lossless|image + .cue] <New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:825806DFE3E0E2675C809FE65ABB0029C0DB89FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Mark Mikel - Collection (1993-2007) [MP3|192 - 320 кб/с] <Classic Rock, Power
 ```bash
 magnet:?xt=urn:btih:7858EDDF049B8278E3FDF9B1E5163CEC1DB3A7CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Billy Rankin - Growin' Up Too Fast (1984) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:830B768E939A12D0C8560177681BAAE621124C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Chatty — замечательный Facebook-мессенджер для OS X.
 ```bash
 magnet:?xt=urn:btih:9C5A348C92A96755E649BE7CD830E1FCAAB95A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Neo PsyTrance (2016) [MP3|320 кб/с] <Psychedelia, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:4A560BD4AAA8D5468DDE28A3E057B904749611E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ VA - Minimal Daydream (2016) [MP3|320 кб/с] <House>
 ```bash
 magnet:?xt=urn:btih:DBB85CCEAA1A935EE39CE0B35CA3C6D3C8B5454B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - 200 Hits America Latina (2015) [MP3|320 кб/с] <Dance>
 ```bash
 magnet:?xt=urn:btih:26C8AFCD0B0D034221E266159F308EA5CEEFF8D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B2B74AE160C2EFC0F7C77F11952DAE539F84FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ VA - We Love Jazz Piano (2014) [MP3|320 кб/с] <Chillout, Lounge, Easy Listeni
 ```bash
 magnet:?xt=urn:btih:846568E76A24E6BAE13326D8273B206EFE66C290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2FF988E4D3F564DF2CF6F4AFA7CD8091F3E6DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6F827DC3D9C03FCD5E85F6ADCD6C20A050FD97E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D14DEFB9756C2B91945449BC33EEEBB63E85887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1763BA2B3C26116CE8ECB3090D398B9F65BACB97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Find Your Harmony Radioshow 004 (16-07-2014)(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:A44B29B3BED451FAF0F23299800F2DC717FF2953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E3835F6D00518C0200B880812B5E78A86C7CD04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Rob Halford - The Essential Halford (2015) 2CD Japan [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:8F78BC098FEB023EDBE14249BDC571CFD28E01D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Precious Wilson (ex. Eruption) - Collection (1979-1983) [OGG|438-537 кб/с] <D
 ```bash
 magnet:?xt=urn:btih:1FB7BA001CB315742B194C66D8C115C357277194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DBE8CABD9D2F7EEF15539DBC0965B0B237F8CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ FilePane - легкий, универсальный мультиинструме
 ```bash
 magnet:?xt=urn:btih:EA6355CE64FF274D6C00FA47D49070F3BB6320E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Heifetz Jascha - Adagios (2002) [FLAC|Lossless|image + .cue] <Classical, violin>
 ```bash
 magnet:?xt=urn:btih:737024E42145D3094C8799119D67E44776F78AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4B05991355E4768459BD612F551164B3DEBEFA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:118D5D3A8956152BF0BF09ACB278F26520606479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Comodo IceDragon 44.0.0.11 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:EF119EFBD1DBD5EA5DF66CAC92E3F0EFC4C30380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Cyberfox 45.0 for AMD + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1446F1CD0E6C1C8580E59771159C3BD0ADB56088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F809DFAC076F06A4C099126690DFA2B862D6BD5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

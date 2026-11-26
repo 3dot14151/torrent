@@ -19,8 +19,7 @@ Fauna - Rain (2006) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:AADD68B2130481B76E7C2B9D7827F622E98BC2C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Galloglass - Legends From Now And Nevermore (2003) [APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:05DFFE8C23106CA1008571D68DA1CD829C2B5FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Black Fate - Between Visions & Lies (2014) [MP3|320 кб/с]<Power / Progressive
 ```bash
 magnet:?xt=urn:btih:F018C1BCF41CDA1C87098F27B16A5996715B4C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Axenstar - Where Dreams Are Forgotten (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:7D661F8330F40DB19312D09C6B000F99428F9823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Harmony - Theatre Of Redemption (2014) [MP3|320 кб/с]<Progressive Melodic Pow
 ```bash
 magnet:?xt=urn:btih:A8AF9055BD9189C147C5A8159113370FBAC263E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Obscurity - Vintar (2014) [MP3|320 кб/с]<Death/Black/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:6ABDD5DE3E342219206ACDCAE2E75969CC761775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Soulnerve - The Dying Light (2014) [MP3|320 кб/с]<Melodic Thrash Metal/Metalc
 ```bash
 magnet:?xt=urn:btih:C8A4DF11F300600B290B931503F4DF50C8CC2FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Harem Scarem - Thirteen (2014) Japanese Edition [MP3|320 кб/с]<Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:526CDB18EE4C108E20696EC94A0DEA565DEB7F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ Panzer - Send Them All To Hell (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:85A3472163D6E5CB591654024EAC5D697358065A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ VA - Golden Rock Ballads - V0I.1 (1986) [APE|Lossless]<Romantic, Rock>
 ```bash
 magnet:?xt=urn:btih:346B1FF9F25916BFFCC4B72D0122AE464625BC35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

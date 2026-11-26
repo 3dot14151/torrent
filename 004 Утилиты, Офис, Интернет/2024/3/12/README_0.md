@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DDC4963AD43C1BE8C7CCEA5BEB86878D903CC7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RegScanner 2.75 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D34146F13A0AB15AA3583DF4A3D2F2C26A3D166D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

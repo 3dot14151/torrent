@@ -19,8 +19,7 @@ BitTorrent®- Torrent Downloads v8.2.38 Mod by PieMods [En]
 ```bash
 magnet:?xt=urn:btih:980F6F2C35A768DEBDDD3464D935A59C0D18793C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Photo Sherlock v1.129 Mod by Mixroot  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C4EC922898C958676F467D9EC4E8C1D5B524A546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cossacks 3 - стратегия в реальном времени с уклон
 ```bash
 magnet:?xt=urn:btih:BD491996C616C12E6860A06FB0C740C0DD9C7C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Turok 3 Shadow of Oblivion Remastered - это точная реставраци
 ```bash
 magnet:?xt=urn:btih:DF0B2546C975148823306EE10C41E33A6C736B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Carrier and Crows (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FAD77AA516D778E6D461D473B32E217334E529E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 ```bash
 magnet:?xt=urn:btih:06FEC62C66B766BA4D099CF5D3AA58E5768BD3E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

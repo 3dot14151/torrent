@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5F6763261D64D064F51499EB3EB830C1CB5778B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19B5F331A1E7DC5B01FB3435C7789488553F8704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25D9388A0937E72CB1C2EA19C2477891FD989C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9618FBC2088A870E9D6547FC4BE173A0B7290E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ ABBYY FineReader - (   Читать дальше...   )Язык интерфе�
 ```bash
 magnet:?xt=urn:btih:CDB607E8CB0B9FA604FD3310BEA31E66C38F3CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ King's Quest переносит нас в новую эру приключенч
 ```bash
 magnet:?xt=urn:btih:7A996DDB6C69CD254224BB6C6CAC52769D8F4590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Kyn – ролевая игра, действия которой развора�
 ```bash
 magnet:?xt=urn:btih:FEE6A66A6D5A62B96F830DF1CDD60AD90997B37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Adobe Acrobat Professional DC — это полностью обновленна
 ```bash
 magnet:?xt=urn:btih:6476B238BF13D3191BDC1DEE7A17117853517141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Windows 10 Manager - программа-оптимизатор все в одн�
 ```bash
 magnet:?xt=urn:btih:18A15EE676ED4AD3AA22C02D85BBFCB794D875C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Enemy Front — это новый шутер от первого лица от �
 ```bash
 magnet:?xt=urn:btih:321C5050EE9E54A9C6664111E6E8BDC122CC0AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Kiss x Sis / KissXsis (2005) [0-91 глава] [Манга] [Английски�
 ```bash
 magnet:?xt=urn:btih:BE40AB4BB2A87C31CC9EBB7F11129FFCD837B18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2CDAFEC16314E600C1547DF937900BEB1448487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:233B2C174D5FEF9D6AFAA61D150EC0B6F821D6A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Magi: The Kingdom of Magic / Маги (ТВ-2): Королевство Маги�
 ```bash
 magnet:?xt=urn:btih:B46A9901293FA4CD3630F5779BAC86B27B782DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ Microsoft Office 2016 v15.12.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:264410756272BD76485F93FBACB98CD912A74B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:330FAEED51E7776B49423FDFE2E8367E62C479A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ Terraria (2011) [Ru/Multi] (1.3.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:71DD1FF404C9F6DE66F7FA72978DE4098FE7FCAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ Microsoft начала рассылку Windows 10
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ World of Tanks Mods (2015) [Ru] (11) [Сборка модов от YelloSOFT д�
 ```bash
 magnet:?xt=urn:btih:042B761521E77B94026584FFCF2507BF4BAF103A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAB07F770F0811D78D9581C1F24DBB8B8BE932A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ Microsoft Windows 10 Pro-Home + Single Language 10.0.10240 [Ru]
 ```bash
 magnet:?xt=urn:btih:803F60538F9BC6BEBB70C170796F167911CA3770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ Microsoft Word 2013— версия текстового процессора с
 ```bash
 magnet:?xt=urn:btih:B912AA261706FEB90D779EB3361641C7999EC2AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ Lords Of The Fallen (2015) [Ru/Multi] (1.6/dlc) RePack R.G. Games [Digital Delux
 ```bash
 magnet:?xt=urn:btih:F7CDC70319FA5A8F1C8D483118CF8C351F9EDF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +607,7 @@ ESET Smart Security 8 поможет сделать работу в интерн
 ```bash
 magnet:?xt=urn:btih:B42C95489D843F09D862A36B06D2F0ADDB9194A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

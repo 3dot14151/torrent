@@ -19,8 +19,7 @@ Royal Romances: Battle of the Woods (2022) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:26BFB3533A6C6FB24260DC1F7BD26D215593C643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sumatra: Fate of Yandi (2019) [Multi] (1.2) License GOG [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:D337000F742F5CEC8D2F6698C05FA52AE8AF8963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

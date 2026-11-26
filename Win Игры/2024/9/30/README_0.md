@@ -19,8 +19,7 @@ Valfaris: Mecha Therion является продолжением игры Ва�
 ```bash
 magnet:?xt=urn:btih:4432E8B46B6B6754B56C28CB7BEDCF3688990D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resolutiion - это динамичная игра в жанре action-adventur
 ```bash
 magnet:?xt=urn:btih:B6B5E0F64E407F9F05AC4DCB915C0F88677DE6B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tribal Hunter (2022) [Ru/Multi] (1.0.2.4) License GOG
 ```bash
 magnet:?xt=urn:btih:CF82C5B9A549BAD87B9788128D831725A579F792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nigate Tale – приключение, события которого прои
 ```bash
 magnet:?xt=urn:btih:1A0166D9316CD7E5F1030130D72D3E97A029C70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Murder On Space Station 52 - это остросюжетное мистичес�
 ```bash
 magnet:?xt=urn:btih:F720DEF5AE6EFD4E2A995C8C19EB7F8280845910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Pneumata (2024) [Multi] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:8FE1808FD81937A5483BA41B3CD27E9CBD8AE157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

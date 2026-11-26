@@ -19,8 +19,7 @@ Debian GNU/Linux 7.5.0 Live [amd64] 4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:6498247E9C64390EF1C7E423627E68FBB33DBBE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debian GNU/Linux 7.5.0 Live [i386] 5xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:4DBAA7B65CA97C73A673EC810A3493AC7A25487B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NetBeans IDE 8.0 предлагает готовые решения по ана�
 ```bash
 magnet:?xt=urn:btih:F2430A03815224886F2476B78C5FE63A72042C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

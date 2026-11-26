@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:44BBF32B6B923BBD1938A26EF16943467E673C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Bluetooth Scanner v1.2.2 [Ru] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:6494E9D2A08350D2A3261001513250E1B49597A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

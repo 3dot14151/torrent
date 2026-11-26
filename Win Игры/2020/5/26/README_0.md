@@ -19,8 +19,7 @@ Celestian Tales: Realms Beyond (2020) [En] (1.0.14) License GOG
 ```bash
 magnet:?xt=urn:btih:751214E8F91FBE1D59C9E3C8F9DCE43AF32C7410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jet Lancer - это игра про неистовые схватки в воз�
 ```bash
 magnet:?xt=urn:btih:70A0C9833FA7C16F20CB578B3254D7D50BFFCF79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Any Video Downloader Pro - это приложение для Windows, помо�
 ```bash
 magnet:?xt=urn:btih:4AB8D0B335926D2CB44FF1A0DAADE4A272CAFDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XML Blueprint 22.20260416 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B6A26EA25DA85284480CE68F1F639E58FBE40BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Abelssoft EverDoc 2026.11.04 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D495474EA6F8EBBB64ECFE55280D352FCF777E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Abelssoft Screenphoto 2026.11.01 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D23B63455C3B7ED35BD9FC579F20FE363DE01859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:4147D155FBD75FE4C647B4946C522B2D5A7A3DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:D6C57F9BE1DE6F5877D605F213A1B97CCA83ACBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Insofta 3D Text Commander 7.0.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:74ED0678BE2BF72AB7E7A58EB8EA327B6E1F227F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

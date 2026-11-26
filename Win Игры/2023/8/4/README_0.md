@@ -19,8 +19,7 @@ Dark City 8: Kyiv (2023) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:711A375948E07BD8CAF8D21F0B536D8F88E9B85C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Welcome to Kowloon — хоррор от первого лица, в котор�
 ```bash
 magnet:?xt=urn:btih:9636AE5964F3AFAB8EBC381AE8CCC211DD33714E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Dragon's Lair (2013) [Multi] (1.0) Unofficial TiNYiSO [Remastered Edition]
 ```bash
 magnet:?xt=urn:btih:81F3EAAD22890F7217C2A997938CD7B6EE61C665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Castlevania: Lords of Shadow рассказывает мрачную истор�
 ```bash
 magnet:?xt=urn:btih:F31B0B5F7EC1FA5E6F153A5F7BAA8E5F575A03E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Grand Ages Rome / Великие Эпохи: Рим - Правление Авг�
 ```bash
 magnet:?xt=urn:btih:D5E80E3A33FC0C4B860EACC803677732AA63C8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Space Ace (2013) [Multi] (1.0) Unofficial TiNYiSO [Remastered Edition]
 ```bash
 magnet:?xt=urn:btih:447044C502E1AFF5DF9AD5149C4279F0D5ABC7E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

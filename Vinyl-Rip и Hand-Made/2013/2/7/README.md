@@ -28,8 +28,7 @@ C4. Damaged People 3:30(   Читать дальше...   )Жанр: Synth-popП
 ```bash
 magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ B5. Wicked Ways 6:32Жанр: RockПродолжительность: 00:46:53
 ```bash
 magnet:?xt=urn:btih:A46BFC05513E57F36CC3C67C285C0D88061F7D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

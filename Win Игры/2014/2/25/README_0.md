@@ -22,8 +22,7 @@ Poker Night 2 является прямым сиквелом Poker Night at the 
 ```bash
 magnet:?xt=urn:btih:B3CDCE591751C4DDF31F8235E70F6C00D43482A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ NaissanceE - это приключенческая головоломка от �
 ```bash
 magnet:?xt=urn:btih:31A2AE5E013B99F0D00BC5CC320A56CB6626360A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

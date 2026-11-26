@@ -19,8 +19,7 @@ Vermillion Watch 6: Parisian Pursuit (2019) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:4B18A38F0DC98958C4E170BA1E12DD6504A3B3FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Redemption Cemetery 14: Dead Park / Кладбище искупления 14: П
 ```bash
 magnet:?xt=urn:btih:DAC867E1B14DCE847C1BE013AA3E4B8E75453EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

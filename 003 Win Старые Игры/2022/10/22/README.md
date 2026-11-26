@@ -19,8 +19,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru/En] (1.2.12) License GOG
 ```bash
 magnet:?xt=urn:btih:2C818AF17F4BEE92786DFB4DC2BB1840A2D85DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

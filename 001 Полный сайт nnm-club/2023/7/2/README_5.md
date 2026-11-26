@@ -18,8 +18,7 @@ Adobe Illustrator for Mac 2023 v.27.6.1 Intel/ARM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E2325C63B02EC1D8081E4DA324B172D41C3CF128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

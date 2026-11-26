@@ -19,8 +19,7 @@ Linlinkan: World Tour - замечательная игрушка, позвол�
 ```bash
 magnet:?xt=urn:btih:751EDDC4336784DC238310D4040A9D2D4198ABEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resurrection, New Mexico Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:2674AAC7E3C49F5E34FF945B3000BE66E69E881D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

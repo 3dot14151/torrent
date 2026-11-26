@@ -19,8 +19,7 @@ Lumini (2015) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FF6B4FC1A4B34B0168C602C620A2536A549C7453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kill to Collect - рогалик в киберпанковом стиле для
 ```bash
 magnet:?xt=urn:btih:5AEBB4F28CEF8E63171DF74A6CDE5E6C26C65360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wailing Heights (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:F98A67EC3B3BCD2C965AF851E1157B506ADE338D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hyperdevotion Noire: Goddess Black Heart – первая игра в серии
 ```bash
 magnet:?xt=urn:btih:8A1D58A6CB119F18E96E0EC3AFE5B2AD7DD9C56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Planetoid Pioneers - это двухмерная приключенческая 
 ```bash
 magnet:?xt=urn:btih:395EC78AA794564217EA3897481DF1C6C1A65E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

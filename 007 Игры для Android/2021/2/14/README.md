@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CEEAF7C04119C5CB83E5FD92C4FD4B35916E568F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Play Magnus — проверь свои шахматные навыки в пр�
 ```bash
 magnet:?xt=urn:btih:FAA10368A7CD460D90EB5AEBAEB91DA0ECA8A81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sonic Dash 2 - невероятное продолжение ранее попу
 ```bash
 magnet:?xt=urn:btih:7AA5AFFC5888CAEA672EB142B44C2AEA922DAB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Walking Zombie 2: Zombie shooter – шутер от первого лица
 ```bash
 magnet:?xt=urn:btih:BF06C15C801FA81F2D3F762745BF2D10B421FF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

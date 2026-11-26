@@ -19,8 +19,7 @@ Wipe Pro - программное обеспечение удаляет врем
 ```bash
 magnet:?xt=urn:btih:46BE518DC1659FFB169C192B2CFECE7F9AF91EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eassos DiskGenius - программа для управления раздел�
 ```bash
 magnet:?xt=urn:btih:808DA2575DBA01C7F92F176982BAE02BB6AF4501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ DesktopOK - это небольшое, но эффективное решени�
 ```bash
 magnet:?xt=urn:btih:6C0B8F8A894A688CA2F9540AB4557FFC60925C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

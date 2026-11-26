@@ -18,8 +18,7 @@ Inscryption (2021) [Ru/Multi] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:CD0DEDC9C8C0DCD18BC10DC7E71261B898C377D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Intravenous (2021) [Ru/Multi] (1.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:DFA5466372A6F65ECB81D24367A96DCA35927CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23C0A8E8B3C888D9FE11EC297D3C5FCDFDDD3B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Gloomhaven – тактическая пошаговая РПГ с элемен�
 ```bash
 magnet:?xt=urn:btih:D7F414489EDA00A795AEADABCF1BDB78C6FC8C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E952049EB4A64A6A31C626F49AC14432C56A3C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ WingFox, Huifeng Huang | Creating an Advanced Cinematic Character - Vagrant Knig
 ```bash
 magnet:?xt=urn:btih:44BCF89903A366FBC72FA3BA2121118EFE1720C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ ZZ Top — американская блюз-рок-группа, основан
 ```bash
 magnet:?xt=urn:btih:2F7F472F46D6016F7F9FECD022E599F2A7DD5A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33860A8D84C98C2EE60E52106ED429DD57985845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEEDB5BAF8FD1222C8F91F7F5F2954EC75CFED15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:150197EFB85EE99FE4BCBE71033E179B058A89DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.2.7w1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B795F560E7B956AB0F1D07CBB1CA15A1C97C4D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0CD3E1BADF1ED7B6913FF1E2C106C93161BB069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9A9EFC5E14A4FB8510CE18CB6BED5E7E37B5958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ Tainted Grail: Conquest - мрачная ролевая игра с пошаго
 ```bash
 magnet:?xt=urn:btih:6599E9A562B3190EFEAF695E955A9E4D3A5DE659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DADCF259BC3AE58C0481FCBD6206CB1FC30C798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ Alchemist Adventure (2021) [Ru/Multi] (1.211021/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:752DFB154CEF87966BE4174B4F3718AE1786D71D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86965F9F53D7833407D998AA7E23F6C6CABA8173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ Patron сочетает в себе классические элементы г
 ```bash
 magnet:?xt=urn:btih:DD072356C7470D0E78DC424CF636A8F09A2ACB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ Mafia: Definitive Edition (2020) [Ru/En] (1.0.7368608/dlc) Repack West4it
 ```bash
 magnet:?xt=urn:btih:B06AE7188BA5C1552D443643EE2B21F9777DFD56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4DF9257AEAEC40DA4D9E505486C960BF701CB27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:797D59A5F322E57ACAA47585ED713B7074FC896C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

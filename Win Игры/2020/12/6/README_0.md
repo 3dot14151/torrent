@@ -19,8 +19,7 @@ Christmas Stories 9: The Christmas Tree Forest / Рождественские и
 ```bash
 magnet:?xt=urn:btih:0219F5205B792FF730515CBFB40D0C7EEFDCF438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Surge - киберпанковая RPG от немецкой студии De
 ```bash
 magnet:?xt=urn:btih:6F05BF7C35C63F1E28AABBB9B0C28C04596DF47C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:7E438507ED6859DCBCD47EA7F069C68FF4079C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

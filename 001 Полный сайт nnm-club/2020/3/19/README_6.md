@@ -18,8 +18,7 @@ ITVDN | SPRING (2020) PCRec [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:12631AB40F58808186AD91D0531FC876C01FF2DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 ```bash
 magnet:?xt=urn:btih:D4961C51AAF759F756FCC5B9D9CACF229EB140BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Babylon | Вавилон [2019, TV, 12] WEBRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:2264DF79C7745A42EE022A262C114B7E9DFE93BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Soul Eater | Пожиратель Душ [2008, TV, 51 ep] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:E8B8E8F4AF4F52A2A49C8FDC1B79F019EBCE4A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Overland (2019) [Ru/Multi] (770) License GOG
 ```bash
 magnet:?xt=urn:btih:858A62DBF8F56855FA2F04D23FD71DC25E76EA55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Subway Simulator (2020) [Ru/Multi] (A 2.8.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A380527C89C15D5BC41486C7AEA2EC2E0C953299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ KRT CLUB - программа для сброса триала (для мног�
 ```bash
 magnet:?xt=urn:btih:7B5290528380C2CBD8FC9F7C62494E950315A89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE3AC3B9EAD37296AB6F5B3932E6176E19C32771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16F25358B3CE9F61B5E84A195234632251461B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

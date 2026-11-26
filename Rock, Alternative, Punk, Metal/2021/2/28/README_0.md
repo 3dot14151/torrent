@@ -22,8 +22,7 @@ Fortune - Fortune (1985) Remastered, 2004, Gypsy Rock [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:59CC38AC2872F63E2253A87015145BAF96BE6F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Zavod - Epok Vol. 1 (2020) EP [FLAC|Lossless|tracks] <Industrial>
 ```bash
 magnet:?xt=urn:btih:C78D8F955009BC5F8B3FDFA6BF5CA4E035464792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Christopher Cross - Christopher Cross (1979) Target, Gold, Reissue, 1989, WB [FL
 ```bash
 magnet:?xt=urn:btih:7FA4BBEA321554D13C091B81A7FA40C9425891BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Freddie Mercury - Remixes (1993) Compilation, 1994 Japan [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:9B8250A805BA4AE29F2A117D12EA7B8C416D1960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E30E8A3EB9C544F02C046D6C44707F8AEE0AA7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Whitesnake - Snake Bites (1989) Promo, Compilation [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:D4EBC6664D3B0E250D7634893256BAD5EAB0D09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:25F64BFE75299BDA6464F633B5969338CB0AE6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Kreator - Under the Guillotine (2021) Explicit [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:16DFAC8E7B5253FC62AB7251B0EE977FE3C3295B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:784E85E3DF7C6CBA6D3DB1114AF589490D4CA5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Parasite - Parasite (1984) Mini-Album, Reissue, 2018, No Remorse [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:3BF9F6867D4CEFE2C8DE68BE26CCCFDA727C9BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Dead Original - Bought & Sold (2021) [FLAC|Lossless|WEB-DL|tracks] <Grunge>
 ```bash
 magnet:?xt=urn:btih:471519D60443111C88CF6F5A5B171E70A763D734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ ATTICK DEMONS - португальская Heavy Metal группа, котор�
 ```bash
 magnet:?xt=urn:btih:7E51B01127FBBF9347C1C30783A8C7F1337E6BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CF7E8E70A0AE6E116B44B2DD3F22669011079AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A73C5B422487B2576681C4DABE0D562A0B23E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ Hardline - Double Eclipse (1992) Japan [FLAC|Lossless|image + .cue] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:0FC170A5415B44029E90A400EFCE681BF63BFC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ IT - Live At ProgDreams VIII (2021) [MP3|320 Kbps] <Neo Prog>
 ```bash
 magnet:?xt=urn:btih:AAEE1799F0795894942B1A4E27379E46D4B6C31E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Hyades - The Wolves Are Getting Hungry (2015) [FLAC|Lossless|image + .cue] <Thra
 ```bash
 magnet:?xt=urn:btih:DF24558663EDCC8CE0C945F83B4D914B89F8008A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

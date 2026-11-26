@@ -19,8 +19,7 @@ Army Men: RTS / Вояки: RTS [Ru] (RePack) 2002 | Scrim
 ```bash
 magnet:?xt=urn:btih:D508C2F935CBC06D7A40735ED6FE77D6BF89AF8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

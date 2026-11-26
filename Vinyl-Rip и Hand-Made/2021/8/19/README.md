@@ -22,8 +22,7 @@ Pendulum - Hold Your Colour (Reissue 2018) (2005) Breakbeat Kaos [FLAC 2.0 16/44
 ```bash
 magnet:?xt=urn:btih:034E7F5014F40410E1CED1645AFAF56121A552F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

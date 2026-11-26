@@ -22,8 +22,7 @@ The Mystery Lights - The Mystery Lights (2016) [FLAC|Lossless|tracks] <60's Gara
 ```bash
 magnet:?xt=urn:btih:5BAF0CBF81B0E8D46BAD081FF00DC7647A6A4634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Valor - The Yonder Answer (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
 ```bash
 magnet:?xt=urn:btih:C1464DDA8266C574296ED61174A4EAE6D7CFA52D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ London Symphony Orchestra - The Best of Classic Rock: The Ballads (1997) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:F347D87939AEB38AD65BFF3441F39795389EA1BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

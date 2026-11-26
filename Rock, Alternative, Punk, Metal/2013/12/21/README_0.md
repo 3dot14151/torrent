@@ -28,8 +28,7 @@ Thaurorod - Anteinferno (2013) [MP3|320 кб/с]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:BC04EBCB6F5524BCDC4C8677BE0D934532538BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Slow - III Gaia (2013) [MP3|~245 кб/с (V0)]<Atmospheric Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:77736D8F250FCBAF2C64E93BE67984C91A54850C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Tad Morose - Revenant (2013) [MP3|320 кб/с]<Heavy Metal/Power Metal>
 ```bash
 magnet:?xt=urn:btih:C736F3203B4B7BE174A3128A58AD2A63319220A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Blast Furnace - Blast Furnace (1971) Remastered 2002 [APE|Lossless]<Progressive 
 ```bash
 magnet:?xt=urn:btih:65312A831796FA3C0ECB8296C73916A8139D4A0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Arx Atrata - Oblivion (2013) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:7364BB0B925F0BEE311673A72AC38BE4A8A4A193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Beckett - Beckett (1974) Reissue 2008 [FLAC|Lossless]<Hard Rock/Progressive Rock
 ```bash
 magnet:?xt=urn:btih:30D21C3287A654E941777935D0F8E5E73D456F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Brazen Abbot - Bad Religion (1997) Japan [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:112B89A403508AE1FFAE16E13971EDAC524A4DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Shadow Gallery - Digital Ghosts (2009) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:64E712BDAC49D57B3F66CC16BCB64D3DE3A46366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5246776FA4043BADA53780DB4798C9945B946C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

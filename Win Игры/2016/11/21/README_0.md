@@ -19,8 +19,7 @@ Armello – красочная пошаговая стратегия с элем
 ```bash
 magnet:?xt=urn:btih:391A98370F2FAEBF29992B155ACBAC519A44F549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

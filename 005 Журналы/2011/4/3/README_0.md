@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0E9DC67AB438FA92E6336C545AF1ADFA1B9EBDB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Playboy - легендарный журнал для мужчин, основа�
 ```bash
 magnet:?xt=urn:btih:8B529344A8805839F683CAB8DCDAC8A8270E2946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ ZOO состоит из соединения смешных новостей, с
 ```bash
 magnet:?xt=urn:btih:7C0D0A0B0B6565462C30357AD9A410CFD5884678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

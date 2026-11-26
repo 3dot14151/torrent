@@ -19,8 +19,7 @@ Volko Alaturka Drum User's Manual - мануал на английском яз�
 ```bash
 magnet:?xt=urn:btih:4B06BF60436B2831DD53AD31B0D7D73523B3B8E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD3D13145E0303E09859A6D059D794165943D061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

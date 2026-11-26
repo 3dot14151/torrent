@@ -22,8 +22,7 @@ C1. Out Of Subconscious(   Читать дальше...   )Жанр: Progressive
 ```bash
 magnet:?xt=urn:btih:05B48CB57E962B8C02D52953822EB377A5348279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Graveworm — итальянская дарк-метал-группа, обра�
 ```bash
 magnet:?xt=urn:btih:85ADEDB81DB9292B0C30461F3BBB3935CD18747E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Ектения • IV • Милость(   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:2D6D10BB09207C0A3E4BA1835AB8505F5FF42E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Al Jahliyah(   Читать дальше...   )Жанр: Black, Folk MetalП�
 ```bash
 magnet:?xt=urn:btih:DADB02171C9E835554D51F1A404B83A1873CA82F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ B1. From Saviour To Assassin(   Читать дальше...   )Жанр: Progre
 ```bash
 magnet:?xt=urn:btih:A8CEABB8030D1F0FC2F6CE903CFDE3F12975DC7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Infernal Poetry — итальянская дэт-метал-группа из �
 ```bash
 magnet:?xt=urn:btih:78E43A6BA1CA8E417795BA618AFB52F3DCDDD3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Green Labyrinth - швейцарская прогрессив-метал гру�
 ```bash
 magnet:?xt=urn:btih:C17FE29B954AEFD226983AE6C6E1E90B506EC7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

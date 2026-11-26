@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0F3260BFDBA10892A84B54AAF4ABAB3038AAEF59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Ibiza Dance Party 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Club, H
 ```bash
 magnet:?xt=urn:btih:C8F1FEB7D3248F321E8B0C974D2F26EF040CEE88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

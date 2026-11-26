@@ -19,8 +19,7 @@ Mondealy (2023) [Ru/Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:132B6884A2CD7A9ACF097B0E7D56E40ADA5D88F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rabat Protocol: Metal Rhapsody (2023) [Multi] (20230802) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:30E8E871330CF338EEEDDF8203CA2815D5C4537B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:F39433D5B071F01039A7C87CA97A87F4EF25A350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

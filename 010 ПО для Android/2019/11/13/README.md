@@ -19,8 +19,7 @@ WordBit v1.3.5 [Ru/En] - Английский язык (на блокировк�
 ```bash
 magnet:?xt=urn:btih:5D996D6ADBC92A717A00A6EE723E1CE24EFB49CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FreeFlix TV Pro v1.0.3 Mod [En]
 ```bash
 magnet:?xt=urn:btih:6DE5B61642CEB26F1491E3EC3824F464EDCF570D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Organic Syntheses Based on Name Reactions is an invaluable reference book for or
 ```bash
 magnet:?xt=urn:btih:B4A8AA739F5B384E3379C9F20C7F92F7417D624C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Discover Miller/Spoolman/Andrews-Brown's ENVIRONMENTAL SCIENCE, 17th Ed., and ge
 ```bash
 magnet:?xt=urn:btih:1C1E792FD8947133479D76FD1D16D57DF73F25F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Drawing (   Читать дальше...   )Жанр: Landscape Architecture, U
 ```bash
 magnet:?xt=urn:btih:31BC0235C52251C8FBF749943EC45DD5FB6EE0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3A8BD6415EA31740EFDFB059AC2C42A3306B24F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ In the newly revised Eighth Edition of Building Codes Illustrated: A Guide to Un
 ```bash
 magnet:?xt=urn:btih:9DFDEFA52950AEEED427EA5069977D16F766FFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ The integration of microgrids with solar generation enhances energy efficiency, 
 ```bash
 magnet:?xt=urn:btih:8C2D8BF86F7483FB525EC65A9236F3C559AE7718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ The newly revised and updated Fifth Edition of Cases in Medical Microbiology and
 ```bash
 magnet:?xt=urn:btih:167E550AFF84759F95BD4ED76D1F216134345B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Time(   Читать дальше...   )Жанр: Hard Rock, Pop RockПрод
 ```bash
 magnet:?xt=urn:btih:8309D8D21EC3FADFB102F752FB0DD3C6C2DDD7B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Just Love Me(   Читать дальше...   )Жанр: Hard RockПродо
 ```bash
 magnet:?xt=urn:btih:BFEBED8B5EB0AAA6D219FDB7F9D961E29262A747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 All Those Years Ago(   Читать дальше...   )Жанр: Pop Rock, Cl
 ```bash
 magnet:?xt=urn:btih:05B1F8F64BFB391086913FC53E92A74495250133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

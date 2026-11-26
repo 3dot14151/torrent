@@ -19,8 +19,7 @@ novaPDF- программа для создания файлов в формат
 ```bash
 magnet:?xt=urn:btih:BCA21C9D0F5289BBDD558871BE360291C131A5E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

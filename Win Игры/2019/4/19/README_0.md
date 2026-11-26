@@ -19,8 +19,7 @@ Hidden Object Adventure: Captain Nemo / Hidden Object Adventure: Капитан 
 ```bash
 magnet:?xt=urn:btih:040C3B5D76634378CCB5CD5484A1CC96F46D7AB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ God's Trigger (2019) [Ru/Multi] (1.1.58505) License CODEX
 ```bash
 magnet:?xt=urn:btih:7DE85FA43B674A25A755D53B2C32417E46272886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:43F33A9051BAF79DCD4652A429DB3B5296B4A82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Weedcraft Inc изучает индустрию производства, выр
 ```bash
 magnet:?xt=urn:btih:8C6FCF5760EFC00C54EFB5D38EB9153B3B764560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Helium Rain — это космический симулятор для одно
 ```bash
 magnet:?xt=urn:btih:22D8238D2051C11C71B830332FABEA5BCF602510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The LEGO Movie 2 Videogame (2019) [Ru/Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:548589AE32F66C7EA60008F247A02FA651EE71D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

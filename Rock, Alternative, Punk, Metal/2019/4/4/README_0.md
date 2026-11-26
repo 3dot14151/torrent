@@ -22,8 +22,7 @@ Ty Segall - Deforming Lobes (2019) Live [FLAC|Lossless|tracks + .cue] <Garage Ro
 ```bash
 magnet:?xt=urn:btih:FE96B6E7D9D4E639B04B95CC1EF74228D3450D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Demons & Wizards - Demons & Wizards (1999) 2000, NEMS Enterprises [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:1C14723C184E38D5D8092F3CC2FDFDFDC146A09F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Aerosmith - Big Ones (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:FD5CEEE9D58B4DDF06F1FD0B508A5646E6499D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nine Inch Nails - Strobe Light (2019) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:C25DDF6F7598E1E7DA88E880A95AA9A021C70240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nazareth - Greatest Hits (1993) Unofficial Release [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:48960495831F10159E11B130043A10C56B3C0A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

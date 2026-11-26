@@ -19,8 +19,7 @@ Mystery Trackers 14: Mist Over Blackhill / Охотники за тайнами 
 ```bash
 magnet:?xt=urn:btih:6E8B2D14DE6414F1A2B941AA368C6A2D31EFE00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.4.2) License GOG
 ```bash
 magnet:?xt=urn:btih:E36541F5CB32170DF673E6E05E72DE24AC20E17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Need for Speed: Underground уже дважды встряхнула миров�
 ```bash
 magnet:?xt=urn:btih:FCE79EE52557327D16FF512B19696FDB3E14F951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Rogero CEX 4.55 v.1.00 + multiMAN 04.55.00 FULL [PS3] [Ru/Multi] (2014)
 ```bash
 magnet:?xt=urn:btih:38B628FF6E70C79F5BDFF67DD0A18074FA0897F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Last of Us + Left Behind / Одни из нас + Одни из нас: Ос
 ```bash
 magnet:?xt=urn:btih:B02E8E48F756C1A8DD929D2E159438680C14BDD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:921197385287F09ED0DE4E15A60CF779EDCA18B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:CD905A76F61EAEDE2409C2F1A3C4FDEF9AAD4375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Ashampoo Snap - это идеальное решение для быстрого
 ```bash
 magnet:?xt=urn:btih:C6BE11C81F225A4BC7980F097B4EEBD25100453B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ VA - A Different Mix 8 (Remixes By Syrian) (2013) [MP3|320 кб/с]<Synthpop, Fu
 ```bash
 magnet:?xt=urn:btih:26294DB9F78E8069AF42750317D4DC29F8757223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D03D6936A7E52AC1E740364BA334C3C23AABCDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Cyberman - Time Travelers (2013) [MP3|320 кб/с]<Spacesynth>
 ```bash
 magnet:?xt=urn:btih:026ECCCE11F45C6457C70E03BB2326FFFA74E57F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B688AA1F32856F1D73103B56D38346872A2FEC04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ VA - Jazz Up Emotions (2013) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:DE9534A8EAEC835C09FE462633B9E036642A8CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Men’s Health – главный мужской журнал во всем ми
 ```bash
 magnet:?xt=urn:btih:5F957D62587D406BE2E77952BC34C615C8B3F223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ VA - Ночное движение летних хитов (2013) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:90543A27E9B4F29531328FD6BF328C0FCA4B6E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:9618411BD26849BB9F9ED69A0B143382D87BC393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67DB8D53D0CC95C763B87D175E3427853F87A953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92AC16875504F271E4383CFA6D852EB2C5C44122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ Jazzamor - Selection: Songs For Beautiful Day (2008) [FLAC|Lossless]<Downtempo, 
 ```bash
 magnet:?xt=urn:btih:9BC79C8E9FF4823810182E533D1F805A79E8FC8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55439F3E6C19B41D35B70FFADE7DD99E0D552EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ Pitbull - I Know You Want MeЖанр: МузыкальныйПродолжите
 ```bash
 magnet:?xt=urn:btih:3B89FB348D98EBD1EF0554D4EF2CEC58FB5DFD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF11D84ADD66D47E711E5C0C50637910744CC4AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC053F6176D210F99DD5719C3E30620B6699653F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ WinCatalog 2013 - мощная программа каталогизатор, у
 ```bash
 magnet:?xt=urn:btih:45B62776F2F5ED05769BBC943EEC88804136EF35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +563,7 @@ Jono - Requiem (2013) [FLAC|Lossless]<Progressive / Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:CEB1FFECAF75981D1B3849E48F8AB0D58EE62C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +588,7 @@ Growl — это система уведомлений и напоминаний
 ```bash
 magnet:?xt=urn:btih:A78ADC87EFA045F656693A9DCF24BC5FD191053C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 http://www.dailytechinfo.org/space/5096-zagadochnyy-magnetar-sozdaet-odno-iz-samyh-silnyh-magnitnyh-poley-vo-vselennoy.html
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +647,7 @@ Jethro Tull - Original Masters (1985) [FLAC|Lossless]<Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:9A6FB86D87274DA214B71EFF6657F8C9D47698F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ VA - Лучшая душевная музыка на радио Шансон (20
 ```bash
 magnet:?xt=urn:btih:0D9B006203E3BDF014E9270F1D1FAC8A6800950C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ Zero Cult - Pop Insanity (2013) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:518AAA46851502BA2D38B8BB9E285E242CE73AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +740,7 @@ Ashampoo Photo Card - это интуитивное и простое решен
 ```bash
 magnet:?xt=urn:btih:D25B677FE79D6A41A1EEB61C16E23B0D6DB0FED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

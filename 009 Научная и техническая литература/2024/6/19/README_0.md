@@ -19,8 +19,7 @@ A thematic organization of more than 10,000 fully illustrated terms labeled in b
 ```bash
 magnet:?xt=urn:btih:2A866ED92D10CF554823C04A1D5F9FF7B319C397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A photographic guide to the key words and phrases in Thai. This attractive pocke
 ```bash
 magnet:?xt=urn:btih:5D89CE247190049E0E9A640B0F8CE4C1E739331E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Everyday words are arranged in themes with carefully selected up-to-date images 
 ```bash
 magnet:?xt=urn:btih:2F3EC1ED88F45A816209E67A9F04FB9991A8F38C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

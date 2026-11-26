@@ -20,8 +20,7 @@ Project Nomads / Проект Бродяги (2002) [Ru/En] (1.2) Repack R.G. Ca
 ```bash
 magnet:?xt=urn:btih:555270CD04CB32C888AF7C03C59D5D8DF77D52FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ ABBYY FineReader PDF 16.0.14.6564 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DFE064427884E2190CD2D8C93F4CC9CE6D26F301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystic Legacy: The Great Ring [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:3CD2071D7EBDFD49378AA0A32118A8E787A556B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

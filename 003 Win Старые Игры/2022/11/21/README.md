@@ -19,8 +19,7 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 ```bash
 magnet:?xt=urn:btih:EA00AD5EECB8B985EDF75C666005EE1BCF9E4970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 ```bash
 magnet:?xt=urn:btih:B8B5C3BAA501CD139F4FF991F41749B1C5DC718E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

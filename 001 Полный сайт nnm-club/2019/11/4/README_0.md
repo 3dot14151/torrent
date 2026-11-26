@@ -21,8 +21,7 @@ Dynamic Illusion - Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient
 ```bash
 magnet:?xt=urn:btih:A75595265582FC6E17E6355B924D24D042C99194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADC084E087B9F5C256CB386DC7E10ECA74A3BE4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - не Громкие новинки недели 41 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:BFF19636C53263FCF6DCB769BE62FA7F267BB168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57F4A96FC9E4E114D7EC0332FC1BF6A387A5845C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Space Sound Records Presents: Italo Euro Disco Vol. 1 (2010) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:45968B7D217E21709D37719678877EDEBCB1F95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ V.A. - Buddha-Bar By Sahale And Ravin (2019) 2CD [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:2D337AD055F427D91CD725E8A3F71A7DDB41C7FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ MotoGP. Этап 18/19. Гран-При Малайзии. Гонка. (03.11.201
 ```bash
 magnet:?xt=urn:btih:1CD290500C1F677CF6E2D1A9115D7B509B4F4B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ NASCAR-2019. 34-й Этап. Техас. Гонка / Monster Energy NASCAR Cup 
 ```bash
 magnet:?xt=urn:btih:CB5650E263129E3055D3CB2740E7947BD45D26B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Alter Bridge - Walk The Sky (2019) [MP3|320 Kbps] <Alternative Rock, Alternative
 ```bash
 magnet:?xt=urn:btih:C643C4E33D20EBB1679E8BF641D3EA2FD78AE9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F9865F1FEF758C30F343934CFAEC0F5342E1239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:E059C9C1671AA25322995F52177E85FD1A14D402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FAB38D6CCC383807954D34C82EAD0DFD4225C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ Desktop Wallpapers Full HD. Part (526) [JPG]
 ```bash
 magnet:?xt=urn:btih:AFED4506E0CF32D23BF4F6769D2CDE9839C12F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A7B1212674518A170347222827B4D8D0B805175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Desktop Wallpapers Full HD. Part (525) [JPG]
 ```bash
 magnet:?xt=urn:btih:CACE500885DB03D57484DBAB80BB170CAF664FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Celine Dion - Courage (Deluxe Edition) (2019) Scene [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:0B326C72A89ED730A8754DD2D7E746C6D228E306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ UHF - Strange Days Of Happiness (2017) Borg Recordings [FLAC 2.0|44.1/24|tracks|
 ```bash
 magnet:?xt=urn:btih:9AEA68B47DAFBDD6A052FC74D90C0A4F73353C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Desktop Wallpapers Full HD. Part (521) [JPG]
 ```bash
 magnet:?xt=urn:btih:86C5D994BBE0994CA87EB92BEF5C79FAB8222707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F789724534CDF0FB504C0462D126DC47DAB723F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E9E501D3DAB1FAB5C7354BC263424CBC379E512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ Desktop Wallpapers Full HD. Part (522) [JPG]
 ```bash
 magnet:?xt=urn:btih:15DB0018647D7838CDC31425C1F1E61D484A046B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F10BDA8D41C8D23913BD860D707D39C871E1F219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ S.E.X. Appeal - Sexy Boy... Best Of (2018) [FLAC|Lossless|WEB-DL|tracks] <Euroda
 ```bash
 magnet:?xt=urn:btih:A1E229DF61A3CEC6BE4C8CD93C4B9BE75BB18EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ Desktop Wallpapers Full HD. Part (523) [JPG]
 ```bash
 magnet:?xt=urn:btih:11D53320FFEA7A78BA9470056CE96297D7CE4B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ Desktop Wallpapers Full HD. Part (528) [JPG]
 ```bash
 magnet:?xt=urn:btih:C48B3739BD286ED949BA2F5AEFFE1E5E67D7D559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ VA - Italo Eurobeat Collection Vol. 1 (2019) 2CD [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:CB54783102FAA7657D63610937907224E9EC199F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

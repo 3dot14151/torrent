@@ -28,8 +28,7 @@ Claymords - Scum Of The Earth (2013) [MP3|320 кб/с]<Gothic/Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:12151694CD50FD973DA3A5F4B05696D5E3AB1849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Thyrfing - De Odeslosa (2013) [FLAC|Lossless]<Viking Metal/Black Metal>
 ```bash
 magnet:?xt=urn:btih:8F42933171936CD77B4FED11B423A05716DF9523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Vorna - Ajastaika (2013) [MP3|~232 кб/с]<Black Metall, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:1BF7EC92DC34534B056186755ED9ED81ABD07421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Revocation - Revocation (2013) [FLAC|Lossless]<Technical Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F52F80CAD0D84E936BEBA9DFAFFC438C14CA1FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Parasite Inc. - Time Tears Down (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:531A4855F25FBD11F540A40B9A3AD37DFE965960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Zebrahead - Call Your Friends (Japanese Edition) (2013) [FLAC|Lossless]<Punk Roc
 ```bash
 magnet:?xt=urn:btih:CDD7BC91F3E7C4BD1BAE2A9A23B66A01F3DB434C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Neil Young & Crazy Horse - Zuma (1975) Reissue /1993, Reprise Records/ [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:E2980FEB378C15C3739EB43AC470F1593E433558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ VA - Krautrock: Music for Your Brain Vol. 1-5 (2005 - 2012) [MP3|320 кб/с]<Kr
 ```bash
 magnet:?xt=urn:btih:6F1CEA307EDBD6A5CDA482E463C8C84096F199D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

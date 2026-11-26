@@ -22,8 +22,7 @@ Morticide - One With The Darkness (2022) [FLAC|Lossless|tracks] <Death, Groove M
 ```bash
 magnet:?xt=urn:btih:537800375BAEADF3ACAD08CC2AF6FE1862122DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mortal Thrall - A Path to Fire (2022) [FLAC|Lossless|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:CB813C07749EF6AA6C9C30F6338C2B58613B4CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mdou Moctar - Afrique Refait (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, 
 ```bash
 magnet:?xt=urn:btih:E25517AC85D01DD0665D5BBEB348FE60563D8F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Vatican - Ultra (2022) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Metalcore, Hardcor
 ```bash
 magnet:?xt=urn:btih:D53AE8C467D916E1D5453F1E2A6A4F637944F0F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Steve Marriott - Marriott (1976) Reissue, Remastered, 2007, Universal [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:DCF62890CCBE76A635B8F3E4758E15D4CE69235B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Lazarus Dream - Lifeline (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:ADE7F21FC69748329BA875506AF804D86FB01183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Black Keys - Dropout Boogie (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock
 ```bash
 magnet:?xt=urn:btih:63314AE8E7AFF7B9A5824050715312B32CF5034A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Anthology: Set the World Afire - третий альбом лучших хито
 ```bash
 magnet:?xt=urn:btih:D5BA3626C45393ACFCDF6EAEB7182E190C67BF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:2B8AFFEAAF2251F98E915A4F9587B9DA771C447C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

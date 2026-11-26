@@ -22,8 +22,7 @@ Restless Spirit - Restless Spirit (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <St
 ```bash
 magnet:?xt=urn:btih:CCB8EB04FB1056786DB96B176BB8FB3E9199DCE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Arkan - Salam (2011) [FLAC|Lossless]<Melodic Death Metal/Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Tarot - 8 альбомов (1986-2010) [MP3|320 kbps]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Cold - Superfiction (2011) [MP3|320 kbps]<Alternative Rock | Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:0CD44AEA3C7AD68F8131B29B8999D7E95267E36D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

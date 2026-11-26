@@ -20,8 +20,7 @@ Assetto Corsa [Patch] (2014) (1.0.1) Official CODEX
 ```bash
 magnet:?xt=urn:btih:ACD69E44BA675DA822C856B60E842287E095795F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Malebolgia - это приключенческая ролевая игра, в �
 ```bash
 magnet:?xt=urn:btih:C63B85D59E7578E163847BD1F2983243B0C7DC99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Oddworld Stranger's Wrath HD (2010) [Ru/Multi] (1.5) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:DBDE145D7AC7655EA3A3CEEB66C92F9E3DCA7026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Christmas Stories 11: Taxi of Miracles (2022) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:976F005F9C2A2FD7E300BE976E08E2EDA3D01056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Living Legends 10: The Blue Chamber / Живые легенды 10: Синяя �
 ```bash
 magnet:?xt=urn:btih:41CB85B894D37926A7BD23B6F8B9D80A27AAB8C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Case Files 24: The Last Resort / За семью печатями 24: П
 ```bash
 magnet:?xt=urn:btih:9BF4D8F8187193E2A0784765088B11C3255A27E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hello Neighbor 2 создана в мультяшном стиле, а вы ис
 ```bash
 magnet:?xt=urn:btih:3287998483FF35C2F362E57EE7E77D12A13D1D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Base One - это симулятор-стратегия с элементами 
 ```bash
 magnet:?xt=urn:btih:5515C948BD6EF2B5625B56AB99CA0E96E977A22F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

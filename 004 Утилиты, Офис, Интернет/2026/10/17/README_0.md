@@ -19,8 +19,7 @@ Chromium-Gost 152.0.7977.149 ARM64 сборка autosettings.win [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AE5EE911A278AFC0122D0F7E0CE7AF3E4D9204FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chromium-Gost 152.0.7977.149 Portable ARM64 сборка autosettings.win [Multi
 ```bash
 magnet:?xt=urn:btih:E1CAC9C8481FEA3C39F56E2F2A06A13EC7E9AAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:7298310D70EDAD70B60FC6621F343E058CF2D461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ RAM Saver Pro выполнит следующие действия:
 ```bash
 magnet:?xt=urn:btih:7F88D0D65292F1FB4366A929CF608B72666CBE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:739CF2F9DAD375A60CF4B27D6DE71DA1C1AB4874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ FolderSizes Enterprise 10.3.90 [En]
 ```bash
 magnet:?xt=urn:btih:6F98BC7878AD0C5A471D70A6E17C7812FA6A7275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:484FE876932D587A09AA0F254E39FE7E110D7732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:4FED8716DE8F43E0549AAED7CEBF2B255515228B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ InnoExtractor - это приложение, которое поможет ва�
 ```bash
 magnet:?xt=urn:btih:B4BF91F0D8B86CB9BBCC9CB7F69DD4F990131B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

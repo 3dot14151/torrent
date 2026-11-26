@@ -20,8 +20,7 @@ MechCommander Gold – фантастическая стратегия в реа
 ```bash
 magnet:?xt=urn:btih:80BA364DD473CAD65FCE10462F7B81A2B8EF8C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

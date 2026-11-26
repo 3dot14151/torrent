@@ -19,8 +19,7 @@ The Jimi Hendrix Experience (The Experience) — британская рок-г�
 ```bash
 magnet:?xt=urn:btih:9370F730DCAAE546A079EEF8147C0D1A251FCFE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

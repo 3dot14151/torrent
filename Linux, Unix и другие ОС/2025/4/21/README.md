@@ -19,8 +19,7 @@ UALinux CyberPack FaP (digitalРазработчик: UALinuxЯзык интер
 ```bash
 magnet:?xt=urn:btih:CD6A05F4F0D574BB97ED8A57CF924E23495310CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

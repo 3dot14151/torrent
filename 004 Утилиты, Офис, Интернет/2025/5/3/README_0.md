@@ -19,8 +19,7 @@ MobaXterm - это комплекс утилит, в котором есть в�
 ```bash
 magnet:?xt=urn:btih:0FFF8C8BEAD0FA2BDD3BC9E890B564FB52A21913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

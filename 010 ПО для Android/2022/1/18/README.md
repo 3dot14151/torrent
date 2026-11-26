@@ -19,8 +19,7 @@ UPlayer (Видеоплеер со всеми форматами) - Удобны
 ```bash
 magnet:?xt=urn:btih:8F453A5739B5AD412B9AA8FF7B19812B6109CB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ UPlayer (Видеоплеер со всеми форматами) - Удобны
 ```bash
 magnet:?xt=urn:btih:2BD785DB788868722EC7EAF5E5C519820B99DDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

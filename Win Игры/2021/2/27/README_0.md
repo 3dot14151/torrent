@@ -19,8 +19,7 @@ New Yankee 10: Under the Genies Thumb / Янки 10: На службе у джи
 ```bash
 magnet:?xt=urn:btih:8400DD9D34EB07073B5CD3633C30466CFFA335D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ColdSide — это психологический хоррор от перво�
 ```bash
 magnet:?xt=urn:btih:3C79C12FB22E870EB2DBDF178141988EDEB0362B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beyond a Steel Sky (2020) [Ru/Multi] (1.3.27878/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FD5F33ECF6EFECF1B2B05F23750D7F77D86DD191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ARMA 3 — это новый виток в жанре тактических в�
 ```bash
 magnet:?xt=urn:btih:15FDF400C01529E0DEAE403ABD22B375B260908E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Just Cause 4 (2018) [Ru/Multi] (4110618/dlc) SteamRip =nemos= [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:80B80AE3D98430C8878C8EFA0528A4DC2765696A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

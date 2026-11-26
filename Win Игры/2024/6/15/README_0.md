@@ -19,8 +19,7 @@ Shadow Hush (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4949E1A70744E0BBB3210414321B8C59CAEE839D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Born of Bread (2023) [Multi] (r3.2.4d) License GOG
 ```bash
 magnet:?xt=urn:btih:C2DC0B9676F5FDC29AE748C44397D8BFB41C500C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.11.0e) License GOG
 ```bash
 magnet:?xt=urn:btih:359B77E16CE9B3F6B631D6FF1C90C83B00ED3090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grounded (2022) [Ru/Multi] (1.4.0.4495) Repack FitGirl [Fully Yoked Edition]
 ```bash
 magnet:?xt=urn:btih:F8C573A6D266411383CB12DA9DA1DFACB7720DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

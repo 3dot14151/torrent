@@ -20,8 +20,7 @@ Hard Reset: Extended Edition [Ru/En] (Repack/1.51) 2011 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:877C248E000B2C2742B037A2701443B4F6B526D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Hard Reset: Extended Edition [Ru/En] (Repack/1.51) 2011 | R.G. Механики
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

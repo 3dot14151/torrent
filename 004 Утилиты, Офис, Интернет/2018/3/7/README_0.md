@@ -20,8 +20,7 @@ KeyFreeze — это бесплатная портативная програм�
 ```bash
 magnet:?xt=urn:btih:9872C20DBDFEFC667121B05C90B5B45369128F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ORPALIS PaperScan Professional является универсальной, мо
 ```bash
 magnet:?xt=urn:btih:45670AEBB919B22C3925653C6FACD95A119F573B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

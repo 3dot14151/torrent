@@ -19,8 +19,7 @@ Next Track позволяет пропустить песни, отключит�
 ```bash
 magnet:?xt=urn:btih:F5B33E44455ABCCB51468AD117ED28CFDB51BAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

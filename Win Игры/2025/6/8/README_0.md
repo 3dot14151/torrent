@@ -19,8 +19,7 @@ InfraSpace дает возможность юзерам стать мэрами 
 ```bash
 magnet:?xt=urn:btih:2C2C964838E147124961D5E186DE7A97D9F69FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Starcom: Unknown Space - это увлекательное сочетание к
 ```bash
 magnet:?xt=urn:btih:2E3D22C2885BF84057B494A5E420BDC83A9E782F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:777CAD81DF0964C44E747C76FCE5EB5CE7E4F5FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Empires of the Undergrowth – это уникальная по своей ме�
 ```bash
 magnet:?xt=urn:btih:E24F9050A056FAFE6092F2B3FB684689C1377C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hellslave (2022) [Multi] (1.46) License GOG
 ```bash
 magnet:?xt=urn:btih:C4AA3975327B37B4714B7F2A5EC907617C70D90C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.03/dlc) Repack Other s [S
 ```bash
 magnet:?xt=urn:btih:61958DD977126516A081180A5DF20D6F2EEA7FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
 ```bash
 magnet:?xt=urn:btih:2954B3200C3355E24047E4146DECC619EEDD4448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Nova Drift – экшеновое ролевое приключение с ви�
 ```bash
 magnet:?xt=urn:btih:2398E562F951826646D68066EBFC4D8C7072D1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Galacticare - это ваш шанс спасти галактику, заним
 ```bash
 magnet:?xt=urn:btih:5BEFA60FFF6864A0C383DF83A87719EFCB7BE6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Arctico (2022) [En] (2.6w) License GOG
 ```bash
 magnet:?xt=urn:btih:62AB3DAED5DA1080CC157D8CA1409B2D1CF28404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Felvidek – события этой JRPG-игры разворачиваютс�
 ```bash
 magnet:?xt=urn:btih:2EDF8EE1A42DE073CC97AFCB5759CC7924182137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Between Horizons - это крутой 2.5D приключенческий де�
 ```bash
 magnet:?xt=urn:btih:73605D2271F029E93F885040C7CB854E0BB91451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Rune Factory: Guardians of Azuma представляет восточную н�
 ```bash
 magnet:?xt=urn:btih:CD9D8EF7B2ED58D202F358752CE2630BAF6ECC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Dark Souls III продолжит испытывать игроков на пр�
 ```bash
 magnet:?xt=urn:btih:CA17364E31E0C17407711C9493EFEDC3B6C48C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Anoxia Station - игра об управлении подземной горн�
 ```bash
 magnet:?xt=urn:btih:6668A8876269DD31224B22F4BF60B77D4F5A2B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Deltarune - спин-офф головоломки Undertale, о чем гово
 ```bash
 magnet:?xt=urn:btih:5FA65E4D88DDE34DC710EEB1E6116FFB165CD4BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Lethal Company - захватывающая кооперативный хорр�
 ```bash
 magnet:?xt=urn:btih:EC1783BEF1FFE4DE7C94DAC23DEBEDFB74CAFEC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Take Me, Vitaly / Догони меня, Виталик (2024) [Ru/Multi] (Build
 ```bash
 magnet:?xt=urn:btih:DEF525177E763B684120495C2B0B6C5E5FB70790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ ICBM: Escalation — масштабная стратегия в реальном
 ```bash
 magnet:?xt=urn:btih:2C1F20ADD4F7AA7E343A390392E370A5FE7CC0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Synchro - пошаговая RPG о борьбе со зловещей корп�
 ```bash
 magnet:?xt=urn:btih:10C19844E1BE0304A20F5646B4F2F24445939DBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Out of Sight - атмосферный хоррор, сочетающий пер�
 ```bash
 magnet:?xt=urn:btih:C42D21D687C6D4E95BCAD30B82C75DA96929C4E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ QBoard (2025) [En] (0.9.9.3) License
 ```bash
 magnet:?xt=urn:btih:EC72CA4DC92CF493745E61D37C7CD47E0231929D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +569,7 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:4FD9F1175B9C959ACD9B6D9FE1F023AE409F37C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

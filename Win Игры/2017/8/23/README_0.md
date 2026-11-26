@@ -19,8 +19,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.0) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:8246BB804947A84C69B92588839EA5619ACBB32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Super ComboMan (2017) [Ru/Multi] (1.04) License PLAZA [Smash Edition]
 ```bash
 magnet:?xt=urn:btih:34C56F27659BF16ECA8C0D82B85CA6261354B5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mages of Mystralia (2017) [Ru/Multi] (25464) Repack Other s
 ```bash
 magnet:?xt=urn:btih:346525CA98490D5F01EA534961A9889FA4E53353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alice: Madness Returns Storybook (2011) [Ru] (1.0) Unofficial Pamplemousse [Flas
 ```bash
 magnet:?xt=urn:btih:69E44DEB7A94C73A9BEAF2050162324FFF1DB49E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cursed Mountain / Проклятая гора (2009) [Ru] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F21F764354BC7EAF4DE63FD20C793BE6C1B8444A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Escapists 2 (2017) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3B00D4A056DC7541A9004042ADAD104BF6026122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Distrust (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C35A03BA1A969298C87EFD0EBC8140169CCA9F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Blue Horizon (2017) [Ru/En/Ge] (1.0) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:062343C19A46947CE886281C0C2CA3AE995DF26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Distrust (2017) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:887A77B095D4DBB6F5A9E3E40AD084FB9D8F7604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

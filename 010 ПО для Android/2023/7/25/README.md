@@ -19,8 +19,7 @@ Always On Edge - отличный проект для персонализаци
 ```bash
 magnet:?xt=urn:btih:971B16FCC8D01BAA85F23CBBE638C7FFDB7C4B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pawxy: Fast VPN & Browser 1.4.3 Mod by ANiK555 [Ru]
 ```bash
 magnet:?xt=urn:btih:9DBF52887E83602DC8D2A4C515A87E3F078CB264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Always On Edge - отличный проект для персонализаци
 ```bash
 magnet:?xt=urn:btih:160A8F519992D86C832452D03A465D0EF85E7F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Total Commander - Android-версия культового файлового �
 ```bash
 magnet:?xt=urn:btih:4C7415546D33E1D7A72EEE4DE85E7FD75F4F5ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Total Commander - Android-версия культового файлового �
 ```bash
 magnet:?xt=urn:btih:357DC1E95B2DB6C1CDFB1CE93AD5649D817EB2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ ESET Mobile Security Antivirus 8.2.8.0-15 Mod by DEXUNPACKER [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EF678D79F9CC0F62EEFB9422617F4E26B725D7E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

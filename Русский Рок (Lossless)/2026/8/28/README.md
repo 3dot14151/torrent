@@ -22,8 +22,7 @@ KDRR - Посторонний (2026) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:A6FD73B9C6376F3B116A29277EB0115C7C3E5D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C2468382DE160528AFF097D845103BC323D2B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:BCDA20C51011A07DC3F090EEAE894B871DE66747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Desktop HD Wallpapers 13
 ```bash
 magnet:?xt=urn:btih:2B94E981535FCDC1EA085335D8AF153C302EFCB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ VA - Too Marvelous: A Collection Of Jazz Classics (2001) [FLAC|Lossless]<Jazz, C
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B7E971CA56F383E76D411D9DA8DBC5C5C211AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ VA - Record Хитовый осенний (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E177DD4DE3132D64E89768A2B524B722D8A21821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E28FF1D9CDF12F257481F2C6E5EE52325D2C6ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Bang Tango - Pistol Whipped in the Bible Belt (2011) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1D4735B8B0B789B322D0688817048AD5475AA1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ tenor, bajo, coro, zanfona, chalumeaux, canno, flauta tenor, tambor de madera, p
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C0ABA34A6981E6F97CA6D4B947BE637A03F88D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ VA - New Russian Electro Vol.14 (04.11.2011) [MP3|320 kbps]<Electro House, House
 ```bash
 magnet:?xt=urn:btih:6346B1F75DB544C20381B9630A1990950326E794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9177905C56F7840E4035AA2A87E5F8B6DFCFC847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ VA - DubstepKill v.2 (2010-2011) [MP3|320 kbps]<Dubstep,Drumstep>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ N/A2011Жанр: House / club House / Electro HouseПродолжительно�
 ```bash
 magnet:?xt=urn:btih:0A9DFD231213C8A733CE5B3A722E642472CC813B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ VA - Bermuda 2011 Presents: City Sound Berlin (2011) [MP3|320 kbps]<House, Tech 
 ```bash
 magnet:?xt=urn:btih:E1CE2FC8C49A652D6F432B3EC5A482857D24FEDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B5CD8502BD6C774430D7311729E39227017C948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ Carlos Montoya - 3 albums (1992-2004) [MP3|320 kbps]<Instrumental, Flamenco>
 ```bash
 magnet:?xt=urn:btih:D84B6A698CEB927A7B8F1F30009221E0AF87A26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ VA - DubstepKill v.3 (2010-2011) [MP3|320 kbps]<Dubstep,Drumstep>
 ```bash
 magnet:?xt=urn:btih:2067E22CC0EC3F98084F0ADE7F91F3238B89AEAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F796A5F17651ED04A85FA5533B2D19C85BBFC773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ Desktop HD Wallpapers 15
 ```bash
 magnet:?xt=urn:btih:26B5E00F0FFCB788A70902B9E13C38D643A9072E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ VA - Взрывной хит-парад 4 Осень 50/50 (2011) [MP3|256 kbps]
 ```bash
 magnet:?xt=urn:btih:F6E877A352EC1F3157406E80909C38CA0A0E247C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ Mongrel - Better Than Heavy (2009) [MP3|320 kbps]<Alternative Hip-Hop / Indie Ro
 ```bash
 magnet:?xt=urn:btih:67AFC98C71D24226786513E588D9189FD5554EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:475F5F95DDF717376F0172F1DEBDEF12A4D9567D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ Death Under Tuscan Skies: A Dana Knightstone Novel Collector's Edition (P) [En] 
 ```bash
 magnet:?xt=urn:btih:D6B0F69ED55E9CDD26F7561B9F130D2B0AA43152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ VA - Brain Suicide (2011) [MP3|320 kbps]<DubStep/Electro>
 ```bash
 magnet:?xt=urn:btih:A73EAD59B0F1CFC4F358781A252E68FAAA0ED90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14056EA45FCD8BF2FB4CDD5D9FE5C17A7BCABCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ Yesterday Live - это наш шутливый ответ америкнско�
 ```bash
 magnet:?xt=urn:btih:ED94609AC06101D6E9E0D13F939B3DBEB4214C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

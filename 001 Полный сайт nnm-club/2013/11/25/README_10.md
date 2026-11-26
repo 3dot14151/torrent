@@ -23,8 +23,7 @@ POLY.тех (выпуск 9) (01.11.2013) SATRip
 ```bash
 magnet:?xt=urn:btih:E44E187D3E85FFE03DD0C1C24CF5C453E76F976D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ POLY.тех (выпуск 10) (08.11.2013) SATRip
 ```bash
 magnet:?xt=urn:btih:151F4D0129DF56F56B13CCCC3A2ED371BC84EFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ POLY.тех (выпуск 12) (22.11.2013) SATRip
 ```bash
 magnet:?xt=urn:btih:871BD473AD72591B0E3008602EC2550D65F9F684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ POLY.тех (выпуск 8) (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:32F145AC73544D8FD93B54443FCF94326B9F4B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ POLY.тех (выпуск 11) (14.11.2013) SATRip
 ```bash
 magnet:?xt=urn:btih:35B522C131B50A3FAACEB601579F5D8B6876245E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ VA - House & Soulful UK Session 1 (Extended Versions) (2012) [MP3|320 кб/с]<H
 ```bash
 magnet:?xt=urn:btih:F087CE3D5885B16EC9B044A81B7C8357AD50170E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ POLY.тех (выпуск 7) (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:BDB7147A185D6C4897788094F09849FF29C13284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ Nitri -  Overpast / Stormtrooper (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1AA2BD025A30AB11038E4757645E241C8145DB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ DJ Nike Twist - TranceWave 076 @ GTI Radio (21.11.2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:4EEF31ADCCA28FB48C071138AAE72A6B910D12E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ Daily Noise Club - Rock'N'Roll Fixx (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:970B4C1683FE4DD271E25D3017E26314FBC00D73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15560DF719D0D617E5ED793F95F85C522D60A82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ John Abercrombie & John Ruocco - Topics (2007) [FLAC|Lossless]<Jazz, Instrumenta
 ```bash
 magnet:?xt=urn:btih:456BD089F8C883362B20394CF5934ECD519D4C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C622F0DA59F3FA03C027279140A5AA1CA6EA74E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ John Abercrombie, Eddie Gomez & Gene Jackson - Structures (2006) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:961D6D042D4824AC43866DC51D353B502DA4F844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ G.L.A.S.S. - Giving Live A Secret Story (2013) [MP3|320 кб/с]<Symphonic Gothi
 ```bash
 magnet:?xt=urn:btih:324AF230FD7DE5524253F782A526228208D20778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ Full Tilt - Full Tilt (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:509D11F091421A1F4760F9DBD835A6773FD23980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ John Scofield and John Abercrombie - Solar (1996) [APE|Lossless]<Instrumental Ja
 ```bash
 magnet:?xt=urn:btih:3F408AA82A6B7366AD5C6949F624631CD4366C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D364611218C9270B7B07108848CAA818B624839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +573,7 @@ Kenny Barron - Kenny Barron & The Brazilian Knights (2013) [FLAC|Lossless]<Latin
 ```bash
 magnet:?xt=urn:btih:1774565800D93B9BFFC92DFEB043F2B58289D836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:725AD81FEB0A75D817F718EA305D2E3DB1BB4B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ Orkidea - 20Ximer (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7518621FDD10105E5E275BBBD52BA68C3C7913FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ VA - Winter Landscape (2013) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:01D4DF26327342D9809BFBB98AC88890D28B698C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +700,7 @@ Iron Mask - Fifth Son Of Winterdoom (2013) Japanese Edition[MP3|320 кб/с]<Neo
 ```bash
 magnet:?xt=urn:btih:C315B997EC6A18B04CD481C086E59C338B8F78C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00A19A06BED3272FA2A87D9C68C5298CE8A05698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +757,7 @@ School Of Crystal Healing - Form And Frequency (2012) [FLAC|Lossless|WEB-DL]<Amb
 ```bash
 magnet:?xt=urn:btih:6375BCDA305F3E6F67EC9BDFB5CC763F9ADEC9F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -807,8 +782,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E727BAA96D08114495D38D3DDEC4882BCB0BC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

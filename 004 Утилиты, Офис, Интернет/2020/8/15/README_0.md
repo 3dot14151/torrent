@@ -19,8 +19,7 @@ Registry Life - программа от разработчика Reg Organizer, 
 ```bash
 magnet:?xt=urn:btih:8FD119003E60E984D85EFE5177ADEC7DDF3CB848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ICE Book Reader - мощная читалка электронных текст�
 ```bash
 magnet:?xt=urn:btih:453A24AD3F02A3222738A75024F60D5BC23734EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

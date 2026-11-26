@@ -19,8 +19,7 @@ Cloudpunk (2020) [Ru/Multi] (1.0) License SKiDROW
 ```bash
 magnet:?xt=urn:btih:E6C80523857D7F83A1CAE40B650B9C31AD7E524C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Battlefleet Gothic: Armada - адаптация классической нас�
 ```bash
 magnet:?xt=urn:btih:89D0AFE5C3366E4FCC6AD14563702C36E498E24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ghostrunner — эта жестокая игра-слэшер от первог�
 ```bash
 magnet:?xt=urn:btih:7A2B261EAA4CE0C26F709395887D1448A8EB1C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

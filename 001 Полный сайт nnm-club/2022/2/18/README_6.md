@@ -22,8 +22,7 @@ VA - Notes from the Depth, Vol. 4 (2019) [AAC|~314 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:AE094B509AB352E57A4D691C696E7EA3DDFE2108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Notes from the Depth, Vol. 5 (2019) [AAC|~336 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:4671FA2563BFB20B6C2562B60D852D1E75DFC0FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Notes from the Depth, Vol. 6 (2019) [AAC|~324 Kbps] <House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lionel Hampton And His Orchestra - 1949 - 1950 (2001) Classics [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:1200D6B29C80496B3F7D61BA8A60667CEAC28E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Iconic Lounge (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:608F87C340DD8FEE95BAF41C7670EEEA1884A9CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Julian Siegel Jazz Orchestra - Tales From The Jacquard (2017) 2021, Whirlwind Re
 ```bash
 magnet:?xt=urn:btih:14922B8B833BD5AFE819E1EC96632B103A1CBFAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Schizophrenia - Recollections Of The Insane (2022) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:A17E60241358CF44F756BA4FBA6286CF45340455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Lounge Jazz in Rio De Janeiro (A Chillout and Bossa Jazzy Collection) (2014
 ```bash
 magnet:?xt=urn:btih:F8C21B71CECAB36A8D946C3A196F970D027C6583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Glasya - Attarghan (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:05238A825AE14BC699A7A211AEBD61980409BED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Renton - Be Youself [Summer 2018 Mix] (2018) [FLAC|Lossless|WEB-DL|image + .cue]
 ```bash
 magnet:?xt=urn:btih:70EE2B6CCCA69E472BD16BB93502C6E5F2C7C62C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Summer Vibes (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F470E243F6D82880CD3DBEB31F94574555ABD192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Lounge Jazz in London (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Lounge Jazz in New York (A Chillout and Bossa Jazzy Collection) (2014) [AAC
 ```bash
 magnet:?xt=urn:btih:DF7E4A5D7011CC8C005621E815F0C2B289ED9A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Lounge Jazz in Berlin (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~
 ```bash
 magnet:?xt=urn:btih:EAE4A92899CD7E4FF434690022FB460E02D05979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Lounge Jazz in Tokyo (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~3
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Lounge Jazz in Los Angeles (A Chillout and Bossa Jazzy Collection) (2014) [
 ```bash
 magnet:?xt=urn:btih:6C8BC9F8E638243045F3405B314157382EE13266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Multitouch 1.26.3 [En]
 ```bash
 magnet:?xt=urn:btih:1200FC5B7CDE772362230E05F00F76595387AE90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:C04FDFA2C13D984A498353BBF465486F5138713B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Andrew Cyrille Quartet - The News (2021) [FLAC|Lossless|tracks + .cue] <Avant-Ga
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ VA - Lounge Jazz in Paris (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~3
 ```bash
 magnet:?xt=urn:btih:0702C4334D92E15031B51F960F48629EEF57AFDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ VA - Lounge Jazz in Moscow (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~
 ```bash
 magnet:?xt=urn:btih:BB92449E2A3D817C0B222F7A4132757F47281157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ Zadra - Guiding Star (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ File Shelf Pro — это инструмент управления файлов
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ VA - Sensual Background Music (2022) [AAC|~296 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ VA - Summer Resort Best Background Music (2022) [AAC|~300 Kbps] <Lounge, Chill O
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ VA - Beatport Hardstyle: Sound Pack #403 (2022) [MP3|320 Kbps] <Hardstyle, Hard 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

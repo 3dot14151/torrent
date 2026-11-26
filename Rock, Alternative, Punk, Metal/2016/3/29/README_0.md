@@ -22,8 +22,7 @@ Vindictiv - World of Fear (2015) [FLAC|Lossless|tracks] <Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3EFA1D89229191F41FDA6666753D14072AF88C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kyle English - 12:33 (2016) [MP3|320 кб/с] <Acoustic Rock>
 ```bash
 magnet:?xt=urn:btih:558F9E71605155FA8609A79F48158BAE128FD116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jorck - BLACK SUN (2016) [FLAC|Lossless|tracks] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:75B570A2593448E874F3240E22DF89AB1466188E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Farm - Farm (1971) Remastered, 2000, Shadoks Music [MP3|320 кб/с] <Psychedeli
 ```bash
 magnet:?xt=urn:btih:0A6AE9828436188CAD9E1B7B27C3830D0BF48DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bear Ghost - Your Parents Are Only Marginally Disappointed In Your Musical Taste
 ```bash
 magnet:?xt=urn:btih:8978C491E591398615CD096CC33A6248EAB65F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Eclipse - The Truth And A Little More (2001) [FLAC|Lossless|tracks] <Rock, Melod
 ```bash
 magnet:?xt=urn:btih:79DE54AE5F7A77771F346241039611F866258392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F33B09D7B64D5AE901BCAB42F71178060E8D1284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Ventures - The Ventures (1995) [FLAC|Lossless|image + .cue] <Instrumental ro
 ```bash
 magnet:?xt=urn:btih:089EB578389D4347D8CEB205DB24F85DAD4CB613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:927977368502A242FEE26894C38BA3C0F086C5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7A485037BA2D90539A12FB15DB4D2C65B268C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

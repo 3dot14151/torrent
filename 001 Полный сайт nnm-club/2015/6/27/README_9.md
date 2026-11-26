@@ -19,8 +19,7 @@ All tracks compiled and mixed by Vladmix (dj cd-info).Жанр: Disco, Synthpop,
 ```bash
 magnet:?xt=urn:btih:46466108B0F4841BD1CA58663D674DCFBB3C3BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

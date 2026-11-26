@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F5D0FE229566FC157BECD994B9E957E9A26F572A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Computerworld - еженедельник, посвященный информа�
 ```bash
 magnet:?xt=urn:btih:D010BB176E2B9CB93F7679C4BFAC99005D25CF1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

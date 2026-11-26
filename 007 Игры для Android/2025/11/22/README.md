@@ -21,8 +21,7 @@ Jewel Legend: игра три в ряд v3.18.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:80B99FE15D8C7FEC732BB71C5CF4ECB6C95CE936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

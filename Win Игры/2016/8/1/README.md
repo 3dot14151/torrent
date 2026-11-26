@@ -19,8 +19,7 @@ The Eyes of Ara - это трехмерный приключенческий п�
 ```bash
 magnet:?xt=urn:btih:A76CBA9F2EA3291395CA24810EC4F9733FD7E15B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Eyes of Ara - это трехмерный приключенческий п�
 ```bash
 magnet:?xt=urn:btih:D2B3A19526A04D5D403D6DE37DA9A4D8B65F1CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Whispers — это шутер от первого лица. Вы играете
 ```bash
 magnet:?xt=urn:btih:9EC3D4F6E6F985D1ED2B326CB770CB0042112284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/upd2/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:681343C07058459250F24121C8CC1668A7F7DDCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

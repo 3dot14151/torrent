@@ -19,8 +19,7 @@ TweakBit Driver Updater - программа для обнаружения и о
 ```bash
 magnet:?xt=urn:btih:A80F9D14C40CCE6E3468DE52B6708F63939C05EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

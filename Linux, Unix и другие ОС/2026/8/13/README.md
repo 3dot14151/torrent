@@ -19,8 +19,7 @@ EndeavourOS – роллинг-релиз дистрибутив Linux, осно
 ```bash
 magnet:?xt=urn:btih:22CCA77A6F18CD45E1FDD14BE66D3A6CD31C12FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pop!_OS – оптимизированная операционная систе
 ```bash
 magnet:?xt=urn:btih:3BA30B5D57CF28F177C064E434FB7990A15A3844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

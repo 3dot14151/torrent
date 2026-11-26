@@ -19,8 +19,7 @@ Which [En] (RePack) 2010 | braindead1986
 ```bash
 magnet:?xt=urn:btih:C831229B96F735244F0964EF2C1F2076D0882EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. S
 ```bash
 magnet:?xt=urn:btih:E8644F4F15ED90B6EC34E265C8D68E94DBBB476D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ The Chronicles of Riddick Gold [Ru/En] (RePack/1.0.0.1) 2009 | Audioslave
 ```bash
 magnet:?xt=urn:btih:91C4DEB7B748DF1442D70A3B1403A23741F07D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (Rip/1.00.2) 2012 | Audiosl
 ```bash
 magnet:?xt=urn:btih:3E8DAB2290BAD63096BA24CC8DE3272A6599F901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Borderlands [Ru] (RePack/1.2) 2010 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D392CAED67960F212355BC9FA82D87AC5ABD836A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Might and Magic: Heroes VI Gold Edition / Меч и Магия: Герои 6 З�
 ```bash
 magnet:?xt=urn:btih:DB66E517C96ECFF86FEA55E91FA631DB0D15AE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Pro Evolution Soccer (PES) 2013 / Русские комментаторы (Ру�
 ```bash
 magnet:?xt=urn:btih:BCF1B7012B3456242AE48FC6C6A8973B2B5EEFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

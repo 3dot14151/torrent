@@ -21,8 +21,7 @@ Vinylage Music Player - стильный аудио-плеер с анимаци
 ```bash
 magnet:?xt=urn:btih:10E0300B63678E0EFF114BE77B10613DE8ADC377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Family Locator - GPS Tracker v5.23.1 [Ru/Multi] - контроль за мест
 ```bash
 magnet:?xt=urn:btih:368B3662F98B4BE52552E010B21519D14DA5092A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

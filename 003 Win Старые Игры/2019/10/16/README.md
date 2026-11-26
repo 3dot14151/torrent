@@ -19,8 +19,7 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 ```bash
 magnet:?xt=urn:btih:315554E0BA995EE95BAEEA90DDFA4C02FEB551A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

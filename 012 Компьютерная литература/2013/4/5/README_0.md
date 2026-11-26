@@ -19,8 +19,7 @@ P. Thurrott, R. Rivera | Windows 8 Secrets / Секреты Windows 8 [2012] [PD
 ```bash
 magnet:?xt=urn:btih:292F6AA77BB7BAAC422E5160A5F67FB71FFE6E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ A. Kriegel | Discovering SQL. A Hands-on Guide For Beginners / SQL. Руково
 ```bash
 magnet:?xt=urn:btih:7E09A2BD827A66AEEAF55075BA03567FC2486D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86B95D9899DF19ACD63F36C0C86A37CB4540B36A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

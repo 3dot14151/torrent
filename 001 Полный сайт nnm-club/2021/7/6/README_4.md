@@ -19,8 +19,7 @@ Timemator 2 v2.8 [En]
 ```bash
 magnet:?xt=urn:btih:DE2A5E75535386FF673DCCE1A29F5702B115AD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ P.J. Perry & Doug Riley - Come Sunday: Songs of Spirituality (2004) Justin Time 
 ```bash
 magnet:?xt=urn:btih:4A816B3B6FB75F5F81243172A23CCE4E18D3449C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Notebooks является единственным блокнотом, кото
 ```bash
 magnet:?xt=urn:btih:5CB82FEEB739C8085D4A12EF34C2217D36038284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ JPEG, JPEG2000, GIF, (   Читать дальше...   )Тип издания:
 ```bash
 magnet:?xt=urn:btih:5FBEE358153A5C5E8EFEEF0D2F4B6C346455E11E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Posterino – программа, ориентированная на созда
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Joyoshare UltFix 2.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:C3575D39BCD0DC59F9134D1C38C7FF9D039D9448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Kayak - Out Of This World (2021) [FLAC|Lossless|tracks + .cue] <Rock, Progressiv
 ```bash
 magnet:?xt=urn:btih:31B777AACD5467F2D72B2FD68A65CB716D12C74E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Van Canto - To The Power Of Eight (2021) [FLAC|Lossless|image + .cue] <A Capella
 ```bash
 magnet:?xt=urn:btih:00E37EB7357FF95C3799EA5A9977A6EA76C4253B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Converge - Unloved And Weeded Out (2003) [FLAC|Lossless|image + .cue] <Chaotic H
 ```bash
 magnet:?xt=urn:btih:41603FB2C0A591248B761D8A5D585DFEF3356F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEF20B0FBAFD83B3E0C5A6C352F92DB4DBE32DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:7DDE1CCA95732E65A72814688036ED588B2A0E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36970321A007E04F513E138518BE4A867B8C18CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ DaisyDisk - утилита которая весьма необычным обр
 ```bash
 magnet:?xt=urn:btih:9676173FA0DEB63D85C846B11E91DE29B579A7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Joyoshare iPhone Data Recovery 2.3.1 [En]
 ```bash
 magnet:?xt=urn:btih:087E2E37687810DDE847C913A6CAD04E9B60F6B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Tata Vega - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Disco, Funk Soul>
 ```bash
 magnet:?xt=urn:btih:20223ADFC432666EA4BB37BF3DB608A89DFEA2C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ KeyCue – удобная утилита, которая поможет поль
 ```bash
 magnet:?xt=urn:btih:9119F8204C54FC37AC0D7D1E7D24B7EFABE22D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Brian Bennett Band - Rock Dreams (1977) [MP3|320 Kbps] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:9A92737CCEE839C7501F52A1192F08A6E3094B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Desaster - Churches Without Saints (2021) [FLAC|Lossless|image + .cue] <Thrash M
 ```bash
 magnet:?xt=urn:btih:96B73563155035AD79DF21E3A475528F195CC7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FD5DD649D28624421B8BB68C87FCE660E087089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:514A29E0ABCB611F38A9D389E5F503AB3AF81CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Joyoshare VidiKit первоклассный универсальный набо
 ```bash
 magnet:?xt=urn:btih:D3C352730E31348D59E776961D66B4F48DDC24FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:4962E179178A8959F405A6CB226C937028005B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Heavy Raid - Железный марш (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B42C3E010C45D94131D90E23C00C828E640F9F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4025633FB5E9921A4F7E5249C497173860956EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:084A473667D381BE87D7C336EDCCBC4482EE7521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

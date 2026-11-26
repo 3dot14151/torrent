@@ -19,8 +19,7 @@ Source of Madness - это мрачный экшн-roguelite сайд-скрол
 ```bash
 magnet:?xt=urn:btih:F4658BC711074AD5BA1FE9E921E5FD4AC90B39CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E9078B5348AC55F0DB2459A2DFE2DBC8F2635614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 ```bash
 magnet:?xt=urn:btih:57B0A6A32A9FE406232B597ECBB7285341D57AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Aragami 2 (2021) [Ru/Multi] (1.0.30195.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4D3C67565DE773356AF2AB2AD391050111E14662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Windows 11 16in1 +/- [x86] Office 2019 by SmokieBlahBlah 2022.11.13 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1EDEFB435AC564ACA93E78D3BADC33B730826D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

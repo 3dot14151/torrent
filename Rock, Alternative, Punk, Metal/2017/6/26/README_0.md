@@ -22,8 +22,7 @@ Heart - Magazine (1978) Reissue, 1995, Gema Special Markets [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:6284903243C23ED63B2B5F55FBD1B76EE7BFD6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Arc Angels - Arc Angels (1992) [APE|Lossless|image + .cue] <Hard Rock, Blues Roc
 ```bash
 magnet:?xt=urn:btih:D85F68793349079C22FABAC474518EE0C453E8BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Luca Turilli's Dreamquest (ex.Rhapsody) - Lost Horizons (2006) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:F02EB9664BD5ECB293411206AF997E6E79038065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hollerado - Born Yesterday (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:25A12685C3BAE4B8F074B11F831CD09082D3E6AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Municipal Waste - Slime And Punishment (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:EB8F54B62F7AB2C0B9A0E77A50A8387F53C78B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Brian Jonestown Massacre - Don't Get Lost (2017) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:4C162081A6BD7AFEAFF68E3006C47781B29A7475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Adrenaline Mob - We The People (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:AACF9E34B5990D2D653A022AEB4360D749742D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Charly Bliss - Guppy (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ind
 ```bash
 magnet:?xt=urn:btih:2940FF3227241936F5150F727BA2091D2C9B7280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Ten – английская AOR-команда из Манчестера, на 
 ```bash
 magnet:?xt=urn:btih:C49C71D06E758878BB2B3315B1EE9A5D5B474871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Billy's Band - Петербургские открытки (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:04FD46BE19AFC840BC3262240AAFEBA5D9070FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

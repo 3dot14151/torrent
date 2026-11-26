@@ -19,8 +19,7 @@ Broken Porcelain вносит в серию много долгожданных 
 ```bash
 magnet:?xt=urn:btih:091EAE0C9A3DF485B2F4D25217159648C0260228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forager - это 2D-игра с открытым миром, вобравшая 
 ```bash
 magnet:?xt=urn:btih:A8A2306192866E04BB1CC797B5F6CB4C32963FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Men of War II: Arena — продолжение легендарной сери�
 ```bash
 magnet:?xt=urn:btih:74F09792D82BE329C1870F281AA80FD9F53DBE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

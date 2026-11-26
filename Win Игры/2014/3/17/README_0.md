@@ -19,8 +19,7 @@ Riddles of Fate 2: Into Oblivion / Всадники Судьбы 2: В забв�
 ```bash
 magnet:?xt=urn:btih:C5F33C880FDF3D03DE8F36BBB3A1700C6FA824FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Nikopol: Secrets of the Immortals (2008) [Ru/En] (1.0) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:553B774419666B60C9E12977654B8C1F0BFFCD72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Lost Lands: Dark Overlord / Потерянные земли. Темный Пов
 ```bash
 magnet:?xt=urn:btih:2D4D7FAC245CCB0E03EA51F7605BE19282DB50ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

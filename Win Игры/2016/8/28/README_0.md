@@ -19,8 +19,7 @@ Klocki (2016) [Ru] (1.5) Repack WetGrapesStudio
 ```bash
 magnet:?xt=urn:btih:D7B40DAEA5906F33F3FE51CF6E3EAC573918C7B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Week of Circus Terror (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:10971F652021D0B70EA313A4AFA9DCB9DEB00469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clandestine – это кооперативный шутер с элемента
 ```bash
 magnet:?xt=urn:btih:BC492792ECE771AE2FDA6418F427BECBFB82C4C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Parvaneh: Legacy of the Light's Guardians - очень красочная игр
 ```bash
 magnet:?xt=urn:btih:C22A685685FB44D66F3608C087F1A4DFEF2663F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ My Sunny Resort - игра про то, как живут менеджеры к�
 ```bash
 magnet:?xt=urn:btih:11138B2F32362C8E23CC933C390B8239F15721BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ocean City Racing: Redux (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:56EE387DCB3ED8A940FF65537D52D0BB2352ADDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Zombie Night Terror (2016) [Ru/Multi] (1.0/upd3/dlc) Repack Other [Special Editi
 ```bash
 magnet:?xt=urn:btih:33F158E8F71912AEAD718915DCD9F9207D8A1988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

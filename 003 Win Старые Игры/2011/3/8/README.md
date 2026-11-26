@@ -20,8 +20,7 @@ Disney's Tarzan [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:B5202214ED300E3892E5024453BD5BF9D52C2898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

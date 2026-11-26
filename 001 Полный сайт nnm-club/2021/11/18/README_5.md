@@ -22,8 +22,7 @@ Patrick Cornelius - Acadia: Way of the Cairns (2020) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:8D4096DB3A39B0CBB2034DC693530FF3B143C6BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Warfield - Master Executor (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5820CB091F5F97D9DF4747A691F09E5C98AFA6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dark Heart - Dark Heart (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBH
 ```bash
 magnet:?xt=urn:btih:36568C57A69602F5EB34925EDB73BAB1E3114BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Daniel Gauthier - Altitude 16425 - Someone (2021) 2xCD [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:FDD8C5DBF2A149E5A7484FE405666C25F099CC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Black Out позволяет быстро скрыть деликатные ча
 ```bash
 magnet:?xt=urn:btih:282063DABF4DF49CE698A7C7F457DCD0B689A1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mo
 ```bash
 magnet:?xt=urn:btih:BCAF7F03F1871483FD4BD019818BB964329FC85F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:B8F9F730CDB2FC765B6C8DE618B33CE51E1A7705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ GoodNotes 5 v5.7.46 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A2DEF549557278AD84DFF1B394B50E6873E40CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:C4A14874441D2E797DFD6AA8EBCB92FC1E20811F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:6BFA776BCFB9A606DC5378956409915A8C4ED480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ VA - Eclectic Ethno 1 by Nikko Sunset (2020) [AAC|~310 Kbps] <Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:3998042C2E7BB5F0C0DAB1CD9244670CA29BCDD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Dario Congedo Trio - Don't Quit (2020) [FLAC|Lossless|tracks + .cue] <Post-Bop, 
 ```bash
 magnet:?xt=urn:btih:3A2ABB94811A1BE2B1555FDD137BD9FC3553BFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ VA - Eclectic Ethno 2 by Nikko Sunset (2020) [AAC|~326 Kbps] <Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:0C94668CE03C7B7FE6F4B19EABD279A2FB6B1D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ eBookBinder - это супер простой инструмент для со�
 ```bash
 magnet:?xt=urn:btih:4A54E12C08880070D32059C7DF07F0FAC2A31862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ PDF Merge and PDF Splitter - это очень простое в использ�
 ```bash
 magnet:?xt=urn:btih:C1AD56684C144D56891ADDA5BE0EFD71466F9C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ VA - Legends of Modern Jazz (2021) [AAC|~300 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:E10249E91AF56ADE02FC294D506D0B4540C833B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Kite предлагает ряд базовых строительных бло�
 ```bash
 magnet:?xt=urn:btih:45F91735CC860B6F844F15FD51B7E124B09E399C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:44D9F5810E735E529270A6FB2DEFDF1904B489A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ VA - Jazzy Summer Nights (2021) [AAC|~339 Kbps] <Jazz, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:C587D6D7277AB84A202546A31C5C24798462D7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ Mike Onesko's Guitar Army - The Last Solo (2021) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:A3BE5ACA4AA054D34F27298580E3280D8B9B97FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ VA - I'll Be Home for Christmas - Christmas Jazz (2021) [AAC|~323 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:67E603139BDA7BCE42EEAB775CE2EE55450D84F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ VA - Music To Drive With Open Mind (2021) [AAC|~326 Kbps] <Nu Jazz, Soul, Lounge
 ```bash
 magnet:?xt=urn:btih:7D1F3AA8A7F29E2FE23D2884746C8344693213A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ Be'lakor - Coherence (2021) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:842DA829381648E34601A76113301AAA6021B3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ ON1 Resize (ранее известный как Perfect Resize Standard) - эт
 ```bash
 magnet:?xt=urn:btih:E0BCC8166E520F757BAE1EEBBF1EA93386C0A558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ CleverFiles Duplicates Finder 2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CF76AB1E97333961E1BF4682F5264D6C494D795A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ CD01 -  Donald Byrd with Pepper Adams Quintet - Out Of This World:
 ```bash
 magnet:?xt=urn:btih:7AF35C02F7AE244A6682BB816570CAD5A63C4142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

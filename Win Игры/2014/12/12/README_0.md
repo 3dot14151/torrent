@@ -21,8 +21,7 @@ Super Trench Attack – комедийный аркадный ретро-шут�
 ```bash
 magnet:?xt=urn:btih:1AEAC0B7D12910EBC6A519BD5345B7008A5B27DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

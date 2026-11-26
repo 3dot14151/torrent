@@ -20,8 +20,7 @@ EDGE (2011) [Multi] (1.0.2894.8583) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:6CF72F0DAE50A317092E19C215975F004C26B3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Castlevania: Lords of Shadow (2013) [Ru] (d1.0.2.8) Demo [Ultimate Edition] [Rus
 ```bash
 magnet:?xt=urn:btih:D42847FE62FF5D84C96D4E27266210EBF1A6A005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Mark of the Ninja (2013) [Ru/En] (1.0) Repack Табличка [Special Edition]
 ```bash
 magnet:?xt=urn:btih:58DAE20D9C44720FED5CAEC5639A2B1F36CCE722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Yesterday / Yesterday: Печать Люцифера (2012) [Ru] (1.0) Repack Т
 ```bash
 magnet:?xt=urn:btih:4C6EDA5F2593CFE00BCFFA3C116C7D197906DBAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Skullgirls – красочный рисованный 2D-файтинг, в к�
 ```bash
 magnet:?xt=urn:btih:F58D75103AD86681DF8AEEB509B3D936030937D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Towns - это градостроительная игра с менеджмен
 ```bash
 magnet:?xt=urn:btih:15AC1BA9965148569AAE3DD63032D0B0E16380AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

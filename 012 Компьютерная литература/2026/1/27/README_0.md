@@ -21,8 +21,7 @@ Acing the CCNA Exam comes directly from Jeremy McDowell, a much-loved Cisco tuto
 ```bash
 magnet:?xt=urn:btih:A6279A8E2DF769837123567565D05B09044AFEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Generative AI is transforming software development. Stay on the cutting edge wit
 ```bash
 magnet:?xt=urn:btih:DE80C91A7DB585100D1187D9C8FE3DC3278650D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Red Hat's Alex Soto Bueno and Andrew Block walk you through (   Читать д
 ```bash
 magnet:?xt=urn:btih:7FECFC46FE3654C346AA8780B005F81D54856362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Neural networks are at the heart of AI—so ensure you’re on the cutting edge 
 ```bash
 magnet:?xt=urn:btih:EA4EA16B88AA76E6F09E150CE7B140784DA4747A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Learn the ins and outs of containerization in Docker with this practical guide! 
 ```bash
 magnet:?xt=urn:btih:F6D2C6800B2409A122EE69FCFE4896244A316F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Beginner or expert, professional or hobbyist, this is the Linux guide you need! 
 ```bash
 magnet:?xt=urn:btih:BB4E0AEFA8ACA68CA93F2F3BA56455D5C8921111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ If you need to know C++, look no further! This comprehensive guide has everythin
 ```bash
 magnet:?xt=urn:btih:58AC16053360638447ECF0B5ACB3CC28225F7748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ In the newly updated eleventh edition of the Linux Bible, veteran Linux author a
 ```bash
 magnet:?xt=urn:btih:6924716470702716E78D42C690A985F8FE519CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Modern Operating Systems incorporates the latest developments and technologies i
 ```bash
 magnet:?xt=urn:btih:B4CE95A007BAA059E295740DCC0FD5CE2A4100A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MotoGP 14 (2014) [Multi] (1.001/dlc) License PROPHET [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:D1C2279B39F10B308A38A9ED0B91F01E6D018232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Delicious: Emily's Christmas Carol (2016) [Ru] (1.0) Unofficial  [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:A4060CCA6BFFA3E967FC5F95403DC0138E3630E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Tales 10: Edgar Allan Poe's The Raven / Темные Истории 10: Э�
 ```bash
 magnet:?xt=urn:btih:4B47CFBCA890D2E83358776C02C2F62C9696E847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tropico 3 / Тропико 3 (2009) [Ru/Multi] (2.1.474.38210) License PROPHET [
 ```bash
 magnet:?xt=urn:btih:0068303CEF889363063CAE3D1873E2663D01F18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Champions of Anteria – тактическая стратегия, расска
 ```bash
 magnet:?xt=urn:btih:53D586173FBEA11E63342F8F4B06A86C2AD9BE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grave Danger (2016) [En] (1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D957CB8A14548BA6A07B4C681476B95785113787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Kalaban (2016) [En] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:21843CBC618612D0A96A0F837AF9591024DED6EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Duke of Alpha Centuri – космический шутер с красочно�
 ```bash
 magnet:?xt=urn:btih:0359144B9001493E065463EA9D8FFF9CA5917FEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

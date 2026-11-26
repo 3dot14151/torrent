@@ -19,8 +19,7 @@ Hitman 2 (2018) [Ru/Multi] (2.72.0hf/dlc) Repack xatab [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:21F88F6EC2EDC767E140D420A23E6B3DE2EAACEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Octopath Traveler (2019) [Ru/Multi] (Update 1) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E7762F1B70F793014B2CBFD6C4FD4A24D8162B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Eternal Magic — бесплатная многопользовательска�
 ```bash
 magnet:?xt=urn:btih:68FCEBD1933661293743BDAC3688F11BA42A50B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

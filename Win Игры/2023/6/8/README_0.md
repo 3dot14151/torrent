@@ -19,8 +19,7 @@ Car Dealership Simulator - это иммерсивный симулятор сп
 ```bash
 magnet:?xt=urn:btih:8744A1DFE6A373AB963FD9440724BAE9D406FAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tennis Manager 2023 - это проработанный спортивный с�
 ```bash
 magnet:?xt=urn:btih:0CDBD8DC649C35BA5BB0E2C68F041CB3C68282D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tank Mechanic Simulator (2020) [Ru/Multi] (1.4.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:7200764981C458FBF984BC1C61F138C796D5A0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

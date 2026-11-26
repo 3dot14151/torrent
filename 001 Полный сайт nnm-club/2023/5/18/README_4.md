@@ -18,8 +18,7 @@ DYSMANTLE v.1.2.1.9 (2021) [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:414CA035792FA88FABD64DCB07620BA36DA417DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:2C82A4FBC9FAA19B2AE39A7069CFAA88227B93CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

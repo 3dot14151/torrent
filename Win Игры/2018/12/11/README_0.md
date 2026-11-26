@@ -19,8 +19,7 @@ Bibi Blocksberg - Big Broom Race 3 (2018) [Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C4A1AE0EDA155A94B3CDB8540C70B632A3874990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:CC1B4DA5E1A7DEB107DED7CD7264245C2AD193DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Husk — это продуманная игра в стиле Survival Horror, �
 ```bash
 magnet:?xt=urn:btih:0712906092D5319ECB3722F78C55B39CBCF7C6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

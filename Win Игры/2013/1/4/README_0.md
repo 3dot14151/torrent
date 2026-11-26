@@ -19,8 +19,7 @@ Deadly Voltage: Rise of the Invincible [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:18F8694A7A4511565DA32A1E3BE8B2B5B8C3405B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Awakening: The Dreamless Castle / Пробуждение. Заколдованн
 ```bash
 magnet:?xt=urn:btih:633326BE709A483E55DC59C849CA267C988EDAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Green City / Экосити [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:DF8E1733173F9CC44D0912B06B10BAF156975519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

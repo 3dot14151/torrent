@@ -19,8 +19,7 @@ DVDXpert – компас в мире Hi-Fi и High End техники и дру
 ```bash
 magnet:?xt=urn:btih:C04738BE34C9BB044E552EA919E66F18FB197686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vogue полностью посвящен моде, служит источни�
 ```bash
 magnet:?xt=urn:btih:206EF49437EF4E4C1E51A2A05B6467E5BFB08598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

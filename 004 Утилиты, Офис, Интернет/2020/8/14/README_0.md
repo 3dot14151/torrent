@@ -21,8 +21,7 @@ Starus Partition Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:860EE69A115EC8F0432C78E892A46DC19F9F4E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

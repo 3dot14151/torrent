@@ -22,8 +22,7 @@ Def Leppard - Hysteria (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C0F8994506E24FC87802F2081FCB124399FDA3E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Flood of Light (2017) [En/Ch] (1.1.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B4437D7314AD9EA862D344DA5D7B5AA2959CD623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 3 Full Burst HD (2017) [Ru/Multi] (1.0.0.
 ```bash
 magnet:?xt=urn:btih:D85F805938641616C416AAAA568758E85FF1FF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Marvel и Capcom объединились, чтобы организовать �
 ```bash
 magnet:?xt=urn:btih:7946709F60988E0B69F549962E83CBCB21872E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Batman: The Telltale Series - видеоигра об одном из самых
 ```bash
 magnet:?xt=urn:btih:C7A1E2605500BED5F4BD935D6B59184106DDB76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tyranny (2016) [Ru/Multi] (1.2.0.0124/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:39673BBC393D912331B20C7508AD0601B18E4D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Need for Speed: Rivals (2013) [Ru] (1.4.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1A2B817794D6AE389AE5F42577CD6CE01EA0EEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

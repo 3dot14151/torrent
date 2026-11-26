@@ -22,8 +22,7 @@ Shaman - бразильская прогрессив-пауэр-метал гр�
 ```bash
 magnet:?xt=urn:btih:45EE556676D92A88B8559B5000E429A09E42ACDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Angra — бразильская пауэр-метал-группа, основ�
 ```bash
 magnet:?xt=urn:btih:D50CDA7E32FE24EEA6468A53F3CD516B2A061FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Almah — бразильская метал-группа, сольный про�
 ```bash
 magnet:?xt=urn:btih:3B2BA07E0E0D4F9999C966DC00B013B460327009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

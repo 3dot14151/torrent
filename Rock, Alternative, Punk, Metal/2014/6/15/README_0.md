@@ -28,8 +28,7 @@ Underoath - Icon (2014) [MP3|320 кб/с]<Post Hardcore, Metalcore, Screamo>
 ```bash
 magnet:?xt=urn:btih:A94CB00CEF7E9A02C2AE82713240FEF819F4B917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Closure in Moscow - Pink Lemonade (2014) [MP3|320 кб/с]<Post-Hardcore, Progre
 ```bash
 magnet:?xt=urn:btih:5E38F069E384EE884EABFDF16EE87C4194DB2214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Dollyrots - 4 альбома (2003-2014) [MP3|320 кб/с]<Punk Rock, Female
 ```bash
 magnet:?xt=urn:btih:35F47E9630BD80D4309C115229763A81B9D36488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ For The Fallen Dreams - Heavy Hearts (2014) [FLAC|Lossless]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:F45E5D3659FE7EB46D7C5EB10CABAF0782BB7DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Hellyeah - Blood For Blood (2014) [FLAC|Lossless]<Heavy Metal | Groove Metal>
 ```bash
 magnet:?xt=urn:btih:A324BA7D2F7C7927F094C1F2E7FDD9B88D72FEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

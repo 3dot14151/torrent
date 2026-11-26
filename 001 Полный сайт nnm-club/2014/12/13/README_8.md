@@ -26,8 +26,7 @@ The Praetor - The First Implotion (2014) [MP3|320 кб/с]<Deathcore/Thrash Meta
 ```bash
 magnet:?xt=urn:btih:35D5E4C6882D21BCABA57C0C9FF00C007DC32C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Hacride - Deviant Current Signal (2005) [APE|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:4BE935DFB3A84600F89C2B6E9D1306871C668BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ People Are Mechanisms - VII (2014) EP [MP3|320 кб/с]<Depressive Black Metal>
 ```bash
 magnet:?xt=urn:btih:21C70ADB45E221DD9C10316CA156C3BEA589BC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Hacride - Back To Where You've Never Been (2013) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:0BC80DA1DB9E969485F892CB808997F75F9C372F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Zeelion - Zeelion (1998) Japan [FLAC|Lossless]<Heavy Metal / Power Metal>
 ```bash
 magnet:?xt=urn:btih:940FF57C7CCCCD9D0EE6116227320953C2E8D830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B5370526D0C6FA2019E7DAA526E2685F3A7C7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ Isole - The Calm Hunter (2014) [MP3|320 кб/с]<Epic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:889C704D1571B8279F22C6E3018491A1FA6CF5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ Gayngs - Relayted (2010) [MP3|320 кб/с]<Alternative/ Experimental/ Indie/ Sof
 ```bash
 magnet:?xt=urn:btih:E7F05E03D3A2C4DC52744DA92C0D31DDA2451EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Hiram Bullock - Carrasco (2011) [FLAC|Lossless]<Jazz, Jazz Fusion, Jazz-Rock>
 ```bash
 magnet:?xt=urn:btih:102E231F423C2CB1C9BC85CD9FC9FA9C1B9BD1C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ Black Moon Secret - Another World (2014) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:7A63D42AAC9F634A394C7F4791645CA25F6D0393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ Etostone - Absolute Electronica (2008) [MP3|320 кб/с]<Breakbeat, Breaks, Elec
 ```bash
 magnet:?xt=urn:btih:CC88228899966AC9350AD900261200C8D4BA337B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ Haken - Aquarius (2010) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E2E2A6FF14CDE9A6F0732E646C556C2B85F1CC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +429,7 @@ Crocodile T.X. - За горизонт (2014) Unofficial EP [MP3|320 кб/с]<Ro
 ```bash
 magnet:?xt=urn:btih:BE9560C2E1BAECE7213C45EE7E5A53572BF2CA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +463,7 @@ VA - Les Standards De Jazz (2014) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:9225F5D78FB09698A00FE5A6EFBC01CAAFD94E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +497,7 @@ VA - The Secret Chill Out Lounge of Cala Carbo Ibiza (2014) [MP3|320 кб/с]<Do
 ```bash
 magnet:?xt=urn:btih:6825C9FDB72275A6F4A46DF74764D27876270E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +531,7 @@ Viktoria Tolstoy - Letters To Herbie (2011) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:98EF60FC1E99F92985A4C13DC33F1B8253E01821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D8DAB2979DEC569F9E65CB8AC71923780CA401E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1754153587260C53667E35B27DA2CA8B7BE3F3BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +609,7 @@ Apolo-13 - Другая Луна (2014) EP [MP3|320 кб/с]<Alternative Rock | 
 ```bash
 magnet:?xt=urn:btih:FBCDBBB5016E78B81F1A9318A0D5FD8C25561AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +643,7 @@ VA - Gentlemen of Jazz, Vol. 1 (2014) [MP3|320 кб/с]<Jazz, Esay Listening>
 ```bash
 magnet:?xt=urn:btih:653CBA9A144FCD3DC82769F4FE49AA2772C71AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +677,7 @@ Queen Dementia - The Aftermath (2014) [MP3|320 кб/с]<Melodic Heavy Metal / Al
 ```bash
 magnet:?xt=urn:btih:D433E6B557B80FABC4E72F44A4CFDFC7BB9F3C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF7E2068364BF04F3430700B068FC5831696FB48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:379B726B520680D88CDB1A084A082A940004A529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +756,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:688BA6E949F69321E51E85FB519A8B9539591EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +790,7 @@ Grieves - Winter & The Wolves (2014) [FLAC|Lossless] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:EADA387F63A16DC1544181655C1A7BCF31052EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

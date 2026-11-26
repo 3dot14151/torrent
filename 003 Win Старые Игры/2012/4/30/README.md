@@ -19,8 +19,7 @@ The Elder Scrolls Adventures: Redguard [Ru] (RePack) 1998 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 199
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

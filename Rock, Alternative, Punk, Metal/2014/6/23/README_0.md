@@ -24,8 +24,7 @@ Watered - Some Are Born Into The Endless Night (2014) [MP3|320 кб/с]<Post Roc
 ```bash
 magnet:?xt=urn:btih:3DF67B12EF6C6402DCD4DA100ECA023C56085748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Allegaeon - Elements Of The Infinite (2014) [MP3|320 кб/с]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:F9F1AAFC4B82E1711FCC38C4685E2B9FD0AD4CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ The Dukes - Smoke Against The Beat (2014) [MP3|320 кб/с]<Indie Rock, Punk>
 ```bash
 magnet:?xt=urn:btih:5D44D7B38D665961B23751557F3A4C5DBDDADD95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Three Man Army - Two (1974) [MP3|320 кб/с]<Hard Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:6C34C0C9BB51100FB47F5E125DB9119FA4A193F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Ring of Fire - Battle of Leningrad (2014) [MP3|320 кб/с]<Progressive / Power 
 ```bash
 magnet:?xt=urn:btih:6A47A9E5D1FE18C255E82B5752D0EA5F30C36BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ B.O.S.C.H. - немецкая группа, играющая в стилях Neu
 ```bash
 magnet:?xt=urn:btih:39A37F26C5A4823998A03FA26A99CB6758896BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

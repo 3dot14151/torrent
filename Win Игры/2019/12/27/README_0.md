@@ -19,8 +19,7 @@ Haunted Hotel 16: Lost Dreams / Проклятый отель 16: Несбывш
 ```bash
 magnet:?xt=urn:btih:ED7430C66D80F92694561C7347377AD89B3E2972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fairy Godmother Stories: Cinderella / Сказки Феи Крестной: Зо
 ```bash
 magnet:?xt=urn:btih:F96F4333B122E37BB2BF9B5268C1DCA47CFB589A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Christmas Spirit 3: Grimm Tales / Дух Рождества 3: Сказки 
 ```bash
 magnet:?xt=urn:btih:A758043E88BCEDA97DD50A217D84C6BCDE93CD82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

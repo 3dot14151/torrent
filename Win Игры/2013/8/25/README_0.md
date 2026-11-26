@@ -19,8 +19,7 @@ Twilight Phenomena 2: Strange Menagerie Collector's Edition / Сумрачное
 ```bash
 magnet:?xt=urn:btih:11BDFC10BF7A77414C525D59C3F468A9C1D87291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Druid Kingdom / Королевство друидов (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:17C37F9D3722E8D9CE11821695403B316FD859B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Scott Eaton | Anatomy for Artists Week 1-8 (2012) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:9E125118CA896A9B8B21506757F7526A775EFA06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEC0719D91FC43015F04ED5A1703939BE8DBF319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Remote Desktop Manager – это приложение для контроля �
 ```bash
 magnet:?xt=urn:btih:C276FFA550223568E997168F030DF5393998E31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:26A9CD6146AEC6E600D4AAFA63FE434960147CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ VA - Hangover Lounge Grooves, Vol. 6 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, 
 ```bash
 magnet:?xt=urn:btih:F1F4F55FB8954743B6FE725AFEBB877C2BFFFA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Artstudio Pro 4.0.8 [En]
 ```bash
 magnet:?xt=urn:btih:F3B496917A3BD50A032D5375C6A1825E71D76A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Omni Recover для macOS позволяет восстанавливать уд
 ```bash
 magnet:?xt=urn:btih:C98160E4C219E2AEC90B39FF880F906F5F6A38BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Lyre le temps - Lady Swing (2010) [AAC|~278 Kbps] <Electro Swing, Hip Hop>
 ```bash
 magnet:?xt=urn:btih:C8B3937EE685542CD0D0ECF261B0109C79C3F971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ VA - Hangover Lounge Grooves, Vol. 4 (2013) [AAC|~312 Kbps] <Lounge, Chill Out, 
 ```bash
 magnet:?xt=urn:btih:96D6E5C91606997BD1854364ADEFCC54675A6DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Lyre le temps - Clock Master (2019) [AAC|~333 Kbps] <Electro Swing, Hip Hop>
 ```bash
 magnet:?xt=urn:btih:A69A93AA9B0614272430B05DA83DA648E335AC42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ VA - Hangover Lounge Grooves, Vol. 7 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, 
 ```bash
 magnet:?xt=urn:btih:97C5D487A62A9F2F46DB99F304A55F449C003E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - This Is Chillout Jazz, Vol. 3 (Cool Jazzy Sounds in a Lounge Mood) (2015) [
 ```bash
 magnet:?xt=urn:btih:AF4C1E98C7A3C9D326381B0152DE5A87D6693DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ VA - Loungerie (25 Amazing Lounge Tunes), Vol. 1 (2017) [AAC|~314 Kbps] <Lounge,
 ```bash
 magnet:?xt=urn:btih:9DA072B448C4F2FFDA87DD1E65ED2085D35B540B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Lyre le temps - Prohibition Swing (2016) [AAC|~185 Kbps] <Electro Swing, Hip Hop
 ```bash
 magnet:?xt=urn:btih:AA1111400573EE9C1A44AD93DDA4AC958F98F8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ VA - Hangover Lounge Grooves, Vol. 1 (2012) [AAC|~337 Kbps] <Lounge, Chill Out, 
 ```bash
 magnet:?xt=urn:btih:3777C5431F33F05480FA13722D53BC1E2483EA45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ SyncBird Pro - это файловый менеджер iPhone, который �
 ```bash
 magnet:?xt=urn:btih:C29E6D37148B86EAEF74DCCDF487EFFFC3166E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ VA - Il Caffe Italiano Firenze (Italian Lounge Espresso Music) (2016) [AAC|~318 
 ```bash
 magnet:?xt=urn:btih:799206FE586F5FE7606CD60F358E7FCE23FF4FAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ VA - Hangover Lounge Grooves, Vol. 2 (2012) [AAC|~314 Kbps] <Lounge, Chill Out, 
 ```bash
 magnet:?xt=urn:btih:0883F215A5582882FD806E58A81C4B4BA1338953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

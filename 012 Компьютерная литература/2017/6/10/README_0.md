@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:318973B75C481A1726D66E51BCA5143AB9B5DFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Unity является самодостаточным, интегрирован�
 ```bash
 magnet:?xt=urn:btih:91297A35BCCC50C7714A2C0B7053F3A904BE3710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

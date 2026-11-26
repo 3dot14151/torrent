@@ -20,8 +20,7 @@ Escape from Monkey Island [Ru] (RePack/1.1) 2000
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Odyssey: The Search for Ulysses / Одиссея [Ru] (RePack) 2000 | RG Games/P
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ New York Race / Погоня за 5 элементом [Ru] (L) 2001
 ```bash
 magnet:?xt=urn:btih:1AA8858FF7BE39D7E8CDDDF6FE0C9807FCD681F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

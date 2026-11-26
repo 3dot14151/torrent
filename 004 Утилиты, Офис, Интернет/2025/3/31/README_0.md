@@ -19,8 +19,7 @@ File & Image Uploader - удобная и просто незаменимая п
 ```bash
 magnet:?xt=urn:btih:90A198DD53F9D72F71C91CE2279A3B93C21C3739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Duplicate Cleaner выполнит глубокое сканирование в�
 ```bash
 magnet:?xt=urn:btih:B79967943E8F376F7BCCE8A2AAD39424062D0885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

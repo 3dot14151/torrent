@@ -19,8 +19,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.8.1.1) License GOG [Pa
 ```bash
 magnet:?xt=urn:btih:A6E2C538A9AB1F5C385007D7CD6CD46BEEE50309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vampiress: Eternal Duet - сайд-скроллинговый экшен, гей
 ```bash
 magnet:?xt=urn:btih:8654ED524D9C897A5C9C5EC4C3368358BCBF459F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shadow Gambit: The Cursed Crew – оригинальная стелс-стра�
 ```bash
 magnet:?xt=urn:btih:D59E563CA8BF6377ABBC03AB3A1B7D00D429A47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Potion Craft: Alchemist Simulator – проработанный симулят�
 ```bash
 magnet:?xt=urn:btih:6C41949143943DA3BFBD7F6E793BB12450A291A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.2) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:82F4D003B3673CE1C8ACFDFBA7112C6E2A9BC025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Redout 2 – аркадный гоночный симулятор, событи�
 ```bash
 magnet:?xt=urn:btih:822674B1DEC040787556F77EC2C103AEEB8703B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.1/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6371C2BD50C16C31A4C0EA61B0F30B999312F6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chiyo - это посвященный японской мифологии инд
 ```bash
 magnet:?xt=urn:btih:CB5BF4D710B25F91176FA05483F90FF244BEC266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Myth Or Reality 3: Snowbound Secrets / Мифы или реальность 3: �
 ```bash
 magnet:?xt=urn:btih:77C824CB3330CB20905670BEBB5EE2C507E5C95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

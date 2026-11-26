@@ -19,8 +19,7 @@ Surface 7: Alone in the Mist (2015) [En] Unofficial [Collector's Edition / Ко�
 ```bash
 magnet:?xt=urn:btih:FADABAC3DC407890703C02F97D6BF45FF6C5121F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales 8: The Final Suspect / Страшные сказки 8: Главны�
 ```bash
 magnet:?xt=urn:btih:E6962C613109CE03293F64EBFF175B97E9963341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Unseen Fears 4: Stories Untold / Невидимые страхи 4: Нера
 ```bash
 magnet:?xt=urn:btih:AE91FAF1C43CF0AC22A32244B2CAF213E661C2B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Darkness II (2012) [Ru] (1.1/dlc) Repack Other s [Special Edition]
 ```bash
 magnet:?xt=urn:btih:43E0BB2AE405D44613FBBCB9FA1122B5137AA41E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

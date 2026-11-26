@@ -21,8 +21,7 @@ VA - Smooth Jazz n Chill 5 (2020) [AAC|~347 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:B926C5D80A031915F9850D2435FCC4100347BA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Smooth Jazz n Chill 3 (2018) [AAC|~310 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:CC4FA69C3DE9EA5D66E4F6F6305DD16515808458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Electronic Clouds, Vol. 2 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:8BCF47E0FC5766A4D6BAA480B871A8813E5F64E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Electronic Clouds, Vol. 4 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:731C2B06149BA365BABBD1651A15CEAC2042247B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Lounge & Cookies, Vol. 2 (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:56BD55484F3E65FC3AE0B134A64DE6FD8A382D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

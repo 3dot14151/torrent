@@ -19,8 +19,7 @@ European Air War - авиасимулятор, действия которого
 ```bash
 magnet:?xt=urn:btih:C62683E4DCAEC3557F28F375BF9174C1DCA94B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

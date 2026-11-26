@@ -19,8 +19,7 @@ Royal Challenge Solitaire (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:93947E714B4241E69B39340609C863DF66630FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Snark Busters 2: All Revved Up (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:19DAE7FC264E64FB9CFBA91C1B064B4250C82A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jar of Marbles (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:F499B8DFC09C6DF11EBB64098462CC0AEF4C012C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Collector’s Edition включает бонусный геймплей, сау
 ```bash
 magnet:?xt=urn:btih:E38EF910369355806BB5F1D308296CE96C9163A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Tropico / Тропико Трилогия [Ru] (Lossless RePack) 2002-2011 | R.G
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Combat Wings: Battle of Britain / Крылья победы [Ru] (L) 2007
 ```bash
 magnet:?xt=urn:btih:A9309AE5379A63177D0B82D35C44F4241D74B613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

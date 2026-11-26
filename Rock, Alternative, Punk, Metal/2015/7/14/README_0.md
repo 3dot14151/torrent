@@ -22,8 +22,7 @@ Climates - 1 альбом + 1 EP + 2 Singles (2012-2014) [MP3|192-320 кб/с]<M
 ```bash
 magnet:?xt=urn:btih:86815C5BCDD24B3187894AAA939C91F7187BE049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dystopia Na! - Dweller On The Threshold (2015) [MP3|320 кб/с]<Experimental Po
 ```bash
 magnet:?xt=urn:btih:BF1D239340DB4F4618BCB712A3A5751BF2E0282B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gorgoroth - Instinctus Bestialis (2015) [FLAC|image+.cue]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:17F321929FA0144895E7870E737B631892A7E451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Exovex - Radio Silence (2015) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:A1B84D428F520B59AE7C45D6774AE83A5F19BD0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ozzy Osbourne - No Rest For The Wicked (1988) [FLAC|image + .cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F6D591DBE273DCA93663E4A68F129367FDE7FC9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Between the Buried and Me - Coma Ecliptic (2015) [FLAC|tracks +.cue]<Progressive
 ```bash
 magnet:?xt=urn:btih:E7753C4B0E38774F694431EB0C988064FBBA2A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ The Fab Four (Beatles) - Solo Greatest Hits (4CD) (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:39697BBA7A49C36D1B99A3A588C80B71D48D75D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

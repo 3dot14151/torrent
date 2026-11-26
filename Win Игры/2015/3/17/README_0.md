@@ -20,8 +20,7 @@ Stay Alight! – аркада с потрясающей графикой, ори
 ```bash
 magnet:?xt=urn:btih:EBBD2E33B21E1FA310710A30C98930366DC861C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ LA Cops - аркадный изометрический шутер с элеме
 ```bash
 magnet:?xt=urn:btih:D9619ADE8813ED468750EB0A9CB985567061CE01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Starship Traveller (2015) [En] (1.0) License TiNYiSO [Fighting Fantasy]
 ```bash
 magnet:?xt=urn:btih:AA5830AF3C3A3D66A1E9A293C6646A7069C197BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Hotline Miami 2: Wrong Number — это брутальное завершени
 ```bash
 magnet:?xt=urn:btih:6ABD4D789A24E57646BEECF10367017065E634B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Tom Clancy's Ghost Recon Future Soldier (2012) [Ru/Multi] (1.8/4dlc) Repack R.G.
 ```bash
 magnet:?xt=urn:btih:C4B604E884A35DB08F13CEA651FA2D5CD69705D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

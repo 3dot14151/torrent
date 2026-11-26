@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:222D62D90CD3ADA29BC8D24263497B63ED1B7C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Mafia II / Мафия 2 (2010) [Ru/Multi] (1.0.0.1/dlc) SteamRip Let'sPlay [Digi
 ```bash
 magnet:?xt=urn:btih:0D5F0017E073BF839BC66C3F9AA50E393B56AA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Dead Rising (2016) [Ru/Multi] (1.0.0.1) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:7AF9517BDB0ABDE9E674BF34C7AA191316B2CAF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:704EBEE76AE6076C0EFFE5F5F8EAAB023432C658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Mafia II / Мафия 2 (2011) [Ru/Multi] (1.0.0.1/dlc) License PLAZA [Digital D
 ```bash
 magnet:?xt=urn:btih:CF95140D5BCC309EB7B6076A123A5E48E09EAF1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ MInstall StartSoft 24-2016 [Ru]
 ```bash
 magnet:?xt=urn:btih:34A8460220E9AD3C5EB7EF2119315AEE6824FCFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42958A1BD15EEF4F66DF36D93B1265F31BEC0798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Metro: Last Light Redux – самая лучшая и полная версия
 ```bash
 magnet:?xt=urn:btih:3C8859533045FD89EC3C5AB54F0AD2A67F13D929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Ontrack EasyRecovery Enterprise | Professional 11.5.0.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E3A8E165C629EE2249023CC500751768B8BB236C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ Windows 10 PE (x86/x64) v.4.8 (13.09.2016) by Ratiborus [Ru]
 ```bash
 magnet:?xt=urn:btih:D755787CAB9075827E429C83E4780E5A16282643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ Skyhill (2015) [Ru/Multi] (1.1.19) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D9D3C025E74803F6213809CA8E2744E57DE74C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88E51799342C83FB9F626F2A57E00C2ACD649971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBEF3AB134A7936778EC8951A3D05AE932AE1C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Hedon - Summon The Demons (2014) [MP3|320 кб/с]<Melodic Black/Death Metal>
 ```bash
 magnet:?xt=urn:btih:75FDE3F67F656227A1655E915F732EA6D7F491C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Corral - Revenant (2014) [MP3|320 кб/с]<Melodic Rock, Progressive Rock, Femal
 ```bash
 magnet:?xt=urn:btih:E458EC7BB67D5E48EA1F99B8E836C02448FFE0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Leon Brock - Welcome To Botox Nation (2014) [MP3|320 кб/с]<Rock, Americana>
 ```bash
 magnet:?xt=urn:btih:4CA72A4CD7B96F423EEFBC64CA6CEAC29335CEBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Egart - Divide By Zero (2014) [MP3|320 кб/с]<Power / Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:72A3298959E34A0F44132E1233C2B00A44AAFB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Shane Speal's Snake Oil Band - Holler! (2014) [MP3|320 кб/с]<Rock, Heavy Blue
 ```bash
 magnet:?xt=urn:btih:D77AB5F10B72D0D8D483D7AE3EF8D97D923D7633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Hunter & The Dirty Jacks - Single Barrel (2014) [MP3|320 кб/с]<Rock, Blues Ro
 ```bash
 magnet:?xt=urn:btih:8AA8045E732C99750F7178F4280583D04F413A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Darkest Horizon - The Grand Continuum (2014) [MP3|320 кб/с]<Epic Melodic Deat
 ```bash
 magnet:?xt=urn:btih:3483CFDAF3E9BE8688611AFF128AFD6A3004FD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ The Whiskey Prophets - Recoil (2014) [MP3|320 кб/с]<Southern Rock, Country Ro
 ```bash
 magnet:?xt=urn:btih:C01AD716E4BC9BAA24E898F3B553FEFF934DE313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:7DBB91EDFAEB9C9DD5038DFF1927FBD0C8CA0620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ ReverbnationЖанр: Melodic Gothic MetalПродолжительность: 00
 ```bash
 magnet:?xt=urn:btih:D3EF9747062B7AFBEC362ADBD0FE3F2F6A4587FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +363,7 @@ Enemy Of Reality - Rejected Gods (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:85F4CA3598277CC70D576463A8122727DA97CDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +397,7 @@ VA - The Death Of A Modernist - Songs For The Dead Vol​.​1 (2014) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:498F9AE1D9509C44C327C827EC8172A3AC658CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +431,7 @@ Colt Ford - Thanks for Listening (2014) [MP3|320 кб/с]<Country Rock, Southern
 ```bash
 magnet:?xt=urn:btih:5533C30BDF0F25A5EF2FA234986164821750E83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +465,7 @@ John Hiatt - Terms of My Surrender (2014) [MP3|320 кб/с]<Rock, Roots, Blues>
 ```bash
 magnet:?xt=urn:btih:4FB368D548D82243B48D8B367503CEAABF529901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +493,7 @@ Gillan - Double Trouble (1981) Remaster  /1996, Virgin Records/ [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:93AD0B96ABFF52B2C1BE2565E44882A729B36A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +527,7 @@ VA - Melodic Rock Volume 12 - Better Days (2014) [MP3|320 кб/с]<Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:A3D1C64DA273E761CC8FBFAD01A98A4BECA18D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +561,7 @@ Sinead O'Connor - I'm Not Bossy, I'm The Boss (2014) [MP3|320 кб/с]<Pop Rock,
 ```bash
 magnet:?xt=urn:btih:90662A8CC17A5EB920871E080BF09FB75C545AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +595,7 @@ Dead Man Standing - The Risen (2013) [MP3|320 кб/с]<Melodic Death Metal, Meta
 ```bash
 magnet:?xt=urn:btih:5E07028B64A92B3FA7D892F39C970FFE158316CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +621,7 @@ Grave Digger - Return Of The Reaper (2014) Limited Mediabook Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:EC888548E808D1011EDD73E00CEC04DA8D03F160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAA830E92FCDA54DB27D72EF1AFFE587B513ED1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +676,7 @@ VA - Light My Fire: A Classic Rock Salute to The Doors (2014) [FLAC|Lossless]<Ro
 ```bash
 magnet:?xt=urn:btih:A9CCCFC11F7A65B765D2AD1F4EA1D42A3A6FCED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30D0586FEE8DA41E1AF4670C3CC405CDE5A4F0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

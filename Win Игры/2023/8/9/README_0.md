@@ -19,8 +19,7 @@ Franchise Hockey Manager возвращается в сезоне 2022–2023 г
 ```bash
 magnet:?xt=urn:btih:10A3773B052F79055A99C3B032F853FA21A36AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Liberte - это коллекционная карточная rogue-lite игр
 ```bash
 magnet:?xt=urn:btih:B5A98C2A8829B56EA443265A5C01262648613C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lunacy: Saint Rhodes — хоррор на выживание от первог�
 ```bash
 magnet:?xt=urn:btih:FC2A6AFB6A605C124F8AD2619F249E32AAC8A063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ TailQuest Defense - это игра в жанре tower defense, в которо
 ```bash
 magnet:?xt=urn:btih:13C61CD92407A6E21EA1FB60BA60FCBF6668AE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

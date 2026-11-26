@@ -22,8 +22,7 @@ A4 Superstar(   Читать дальше...   )Жанр: Pop, Easy ListeningП�
 ```bash
 magnet:?xt=urn:btih:B1AF8A127EF27546203157A14F4F1BA87BCD3ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Soldiers(   Читать дальше...   )Жанр: EuropopПродолжи
 ```bash
 magnet:?xt=urn:btih:C91E3FB510BF65A0C52FE99B98CFC697FDD39927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

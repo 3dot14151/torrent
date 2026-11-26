@@ -22,8 +22,7 @@ Music By – C. Szlazak(   Читать дальше...   )Жанр: Pop Rock, S
 ```bash
 magnet:?xt=urn:btih:6F77F0378226E9E6B0BD4D19E76C21B47C29B5B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

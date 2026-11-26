@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:446511771573427A141F22EAD9F336122BD248A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B07551047F009E03F6A5914FF725EB1E6CA92DA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC216B1D804DBAF4D131AE754592410BFB006CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Chalice Of Doom - Into Hypnagogia (2013) [FLAC|Lossless]<Melodic Death, Doom Met
 ```bash
 magnet:?xt=urn:btih:AB4E36345E9AE85D430014E9BF126F2BDAD13C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Epysode - Fantasmagoria (2013) [FLAC|Lossless]<Progressive Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:78BC06D47C03EC2FE43B1386903E2F2D8862D87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Comedy Баттл. Без границ. Выпуск №21  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:A410F493D1FC4E1232C4BEEA11BCAA3C1E0080BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Linda Ronstadt - Get Closer (1982)/W.German Target CD [FLAC|Lossless]<Rock, PopR
 ```bash
 magnet:?xt=urn:btih:9A2D53117A3371363C9DC39B909117C48E26DA6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A672E617DB54B5FA80426FBC54D6054D4E5A5EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E1D68176725433255510CBDAB200622ED3629D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D11C34088D2999680DE81E753AB006A447702930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ CCCP. Обратный отсчет. Стахановцы. До и после р
 ```bash
 magnet:?xt=urn:btih:CCD213B7B2B2B2FBEF94922A743B40457F0450F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55D9F038DADBD879B4E19718F94D1F82B239B72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Fantasy - 2 Albums (1970-1976) 1992, 1994 Reissue [FLAC|Lossless]<Rock / Progres
 ```bash
 magnet:?xt=urn:btih:73A4CF135124D7FFEB1453A81095C2D481A2EB52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ VA - Kaimo K - Collected Best Of Uplifting Trance (2013) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:335B894173115981F5F9551C3223279B83EFDBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ dPen - Boarding Pass on Frisky Radio (2013) [MP3|320 кб/с]<House, Progressive
 ```bash
 magnet:?xt=urn:btih:4C86C3874631E732A4834D66E0D75959591B7624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +507,7 @@ Jody Wisternoff - ntensified on Frisky Radio (2013) [MP3|320 кб/с]<House, Pro
 ```bash
 magnet:?xt=urn:btih:16CD1DF544C89EE5F540BE89078367455DC85C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6B8D29CE9AE6DAA3F12176896E52F698B18060B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:653220570E873B57D88A98B622A9A7B6A2D001D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23B6E090D0B11D8CAA16590663FD9C41DD8D706C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33555F57C3949B5F2A9B8986825F32CC0403D748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +667,7 @@ VA - The Last Minute Soundtrack (2003) [MP3|320 кб/с]<Leftfield, Future Jazz,
 ```bash
 magnet:?xt=urn:btih:8559A49BE8770337B69289231FA63EE9B9835A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +700,7 @@ Frost Raven - Ultimate End (2013) [FLAC|Lossless]<Psy-Progressive>
 ```bash
 magnet:?xt=urn:btih:1A43EED084C6C1FD05B8C8AE88B36C6D164BDB5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +734,7 @@ Europe - Super Hits (1998) Compilation 2007  [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1BE154D6495A78FEC8C31EF1CEBBA5002D4E7420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

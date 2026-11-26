@@ -19,8 +19,7 @@ Dark Heritage: Guardians of Hope Collector's Edition / Темное прошло
 ```bash
 magnet:?xt=urn:btih:70E5171101113ABFA8423D9768C7105BDAD0518C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Lost Souls: Enchanted Paintings Collector's Edition / Похищенные ду�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Adelantado. Trilogy. Book one / Трилогия Аделантадо. Книг�
 ```bash
 magnet:?xt=urn:btih:30BAD00C4CF27D630F3B6A6E634EE42BC0B02525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

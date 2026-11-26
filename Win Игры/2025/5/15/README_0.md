@@ -19,8 +19,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:38B1A76FA51D619B6D83660A5150204CECB92222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:2AA4C1869BF715F0968D46BFD5DA29352B37BEB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battle Shapers — это молниеносный фантастический 
 ```bash
 magnet:?xt=urn:btih:90BC75D35498AB976B2D438FCCDD0240E6245A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Magicraft (2024) [Ru/Multi] (1.1.16) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B4F56CE299BF32BFE2656AAF4B468A0A28190CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6172A24447A12FAF04A906F0919BCC0AB03C0824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Sinking City - это приключенческий детектив, со�
 ```bash
 magnet:?xt=urn:btih:CC88250D79616C4BC3E339624092DE845A3891CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cryptical Path (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9CDECE5B7ABFB22A8069CF098D002F63A818DD52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:26E408C588EAB49043ADB4D0C418ED2AB11000DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 ```bash
 magnet:?xt=urn:btih:034E26A7371BF026EAB813251FAFF701526FFD74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 ```bash
 magnet:?xt=urn:btih:0B73C7D27B72AE9CE1AA266DBEDDCBF7C443158C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 ```bash
 magnet:?xt=urn:btih:23060434B21BFAEC82613F8107AA542BE2BB6F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:A26334E1BB250CFAD29037F9C566B7010F580AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:863FD01CE96B1A4C4B1A98A711AE72F9A854BCF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (build 16505703) Repack seleZ
 ```bash
 magnet:?xt=urn:btih:72572706997214463CC8DB362E1656C5B72BB2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

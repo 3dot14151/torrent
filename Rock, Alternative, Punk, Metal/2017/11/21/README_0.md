@@ -22,8 +22,7 @@ Logos - Plan Mundial Para La Destruccion (2006) [APE|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:B044C7E2145408A01CF75B8CD3DE68CBE46EA145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Zebrahead - The Bonus Brothers (Japan Only Bonus Tracks) (2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:C0F3DF4F4FCA7E073817E0EA0A8295922A47E6F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fleetwood Mac And The Christine Perfect Band - Hey Baby (2014) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:A344D20E5243BC86706368CC9ADD481BC9E991AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A7C288CFECF449FDAA352996B3F50BDE6BA495D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Linkin Park - Crawling (One More Light Live) (2017) Single [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:6C5DA3B70279F2E8E44972D809791FB904DB9CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Queen - News Of The World (1977) 40th Anniversary Edition, 3CD, 2017 [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:6A5A095EF5FA47CC077B746D1B56E8A6404FE022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

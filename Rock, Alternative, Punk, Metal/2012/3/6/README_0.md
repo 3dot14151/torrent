@@ -28,8 +28,7 @@ Evgenica - В Зеркалах... (2012) [MP3|320 кб/с]<Melodic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:C4868685A85901FB0EC6A92ADECF9EFB4E422737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Red Lamb - Red Lamb (2012) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:67714F45164DD2701F5B1AE6667BC6C6D067D863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Intra Spelaeum - Intra Spelaeum (2011) [FLAC|Lossless]<Melodic Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Diabulus In Musica - The Wanderer (2012) [MP3|320 кб/с]<Symphonic Power Metal
 ```bash
 magnet:?xt=urn:btih:798E23629DD55A2F1C4679A0C44A51B0255EA5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Epica - Requiem For The Indifferent (2012) [MP3|320 кб/с (Scene)]<Symphonic M
 ```bash
 magnet:?xt=urn:btih:D77929D00F36884F7A99178F60C4DA25FD058656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

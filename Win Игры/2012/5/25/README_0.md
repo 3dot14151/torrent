@@ -19,8 +19,7 @@ Nancy Drew: Legend of the Crystal Skull / Нэнси Дрю: Легенда о �
 ```bash
 magnet:?xt=urn:btih:511A30F94D6DD884C5F4676890E320CAAEF0FEA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sandman / Истории шёпотом: Песочный человек (P) [Ru
 ```bash
 magnet:?xt=urn:btih:E57DFDE04EB8025D44637577734380AAC635B463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

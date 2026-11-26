@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D74CA8B822C228D88C1E7DF935F687832F5B9E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Metro Redux Bundle (2014) [Ru/Multi] (1.0.0.1 Upd2) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:2701664F9A8D34404FD32A98E23DA5E6EC434322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C5600ED7276660603C928E1C3DE0765B825FE6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D27A6D44EF43E3F559D9FB46696EAA8F817B0BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Fallout: Anthology / Fallout: Антология (1997-2010) [Ru/En] Repack R.G.
 ```bash
 magnet:?xt=urn:btih:E531D4BA69C97BC4140B32F309BEE6C41576831C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

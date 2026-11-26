@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6E6DDF2D8D53CC98AE718E1D09F0BE342D1F7428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Dhamika - Levitation Generation (2010) [MP3|320 кб/с]<Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:D1A48D85886D9B25558EBE37301DD7AAF38C9CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Typinator умеет работать как глобально, так и пр�
 ```bash
 magnet:?xt=urn:btih:5CE8FABD162A6408B41F0D2BB449B4B2F424B4B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ B3. Everdance (5:53)Жанр: Rock, Psychedelic Rock, Prog RockПродолжи�
 ```bash
 magnet:?xt=urn:btih:263A3056E992AE1491887F7481F649A775C47FD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E0C20A737B39402166A29651A4E7080938AC1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF4D7097CF782B5EFE20E5155EAF18D3BF773795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ VA - Клубная Тусовка - Новинки Весны (2014) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:0A1A5F029EA6D4B3F0B9A4BD3FF2274B014E210F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Dr. Oetker | Рецепты к Пасхе (2014) [PDF]
 ```bash
 magnet:?xt=urn:btih:055B9A6C66DC04E49A00DE57DDBDB5AD1610D0DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Dimension - On Her Behalf (2014) [MP3|320 кб/с]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:36B684223ADB498D13C449A89A08C9E1247D99CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E29E0EBF9AAD18AF21DAD252CD865394153A282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ Uppermost - Evolution (2014) [MP3|320 кб/с]<Electro House / Electroclash>
 ```bash
 magnet:?xt=urn:btih:A511218E40AF21FEC2DF57788064B0AB8264ADBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F8A9334A2026D3EAD922E12D006BE0609DE06F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ The Winery Dogs, новый проект, в состав которого вх�
 ```bash
 magnet:?xt=urn:btih:EEBE149EAAAF764A5C279CA42C4CE4786E23F072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Spotlight является мощным, но работать с пользов
 ```bash
 magnet:?xt=urn:btih:67FA52D65D80A1B55C16101F229D2EEF6DBFA82E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E1DD344799BDE9E1CD3D064A982565104DF7225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:128FB7368D493D46ADBA59C22A9245D23F13DB8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Armin van Buuren - Save My Night (incl. Remixes & Blasterjaxx Remix) (2014) [MP3
 ```bash
 magnet:?xt=urn:btih:36538241EC413EA44F9237B599147E7128B7C1AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ NeoOffice создан на основе офисного пакета OpenOffic
 ```bash
 magnet:?xt=urn:btih:7A52AB31DFD0AECAD79763AD1469116DCF892769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ Legowelt ‎– Crystal Cult 2080 (2014) [FLAC|Lossless]<Deep House, Techno>
 ```bash
 magnet:?xt=urn:btih:8315AFD79F56BC1FB29729985666DCA6C556D9A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FFD37857FC0E3BD40D1B26ADBE00E014CCA33E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFBFA38D35D26B061482888BBF7246D787B7E01F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ Dart Rayne & Yura Moonlight - Collected (2014) [MP3|320 кб/с]<Trance, Uplifti
 ```bash
 magnet:?xt=urn:btih:8D980E7C6824092BFFDE97304486FE5D8FF8F63C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E205D5A614416C1E3763799DF8C00936F6E3BB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ Dhamika - Floating (2013) /EP/ [FLAC|Lossless]<Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:429CB3C34113E73F93EE66247CA056E9610D01BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D47B59F9E1555BC5D09F8CE1EADF96A896EEA5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

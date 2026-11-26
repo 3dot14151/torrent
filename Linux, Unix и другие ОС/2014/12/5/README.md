@@ -20,8 +20,7 @@ SUSE Linux Enterprise Server 12 [x86_64] (2xDVD) 12 [AMD64/Intel 64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:DAEE85AB5D82A53AF59B16062E95F9DBA30B002A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

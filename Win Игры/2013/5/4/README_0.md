@@ -19,8 +19,7 @@ Zeno Clash — трёхмерная компьютерная игра, файт�
 ```bash
 magnet:?xt=urn:btih:DD675908FCBB0E0AC6A64346FEF2479E2C6DEDEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Might & Magic Heroes VI - Shades of Darkness (2013) [Ru] (1.8-2.1/Digital) Patch
 ```bash
 magnet:?xt=urn:btih:A5DE684C294722DDE2B539F5EA571C6EF2E12FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Might & Magic Heroes VI - Shades of Darkness (2013) [Ru] (1.8-2.1/Retail) Patch
 ```bash
 magnet:?xt=urn:btih:5C68E4199301EC577BBFA8091E2CB4F7AF27C276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Might & Magic Heroes VI - Shades of Darkness (2013) [En/Fr/It/Ge/Sp] (1.8-2.1/Re
 ```bash
 magnet:?xt=urn:btih:FE939A7233F72E7E29075A14AA8CDE2B6B1C1FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

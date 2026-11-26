@@ -19,8 +19,7 @@ Tomb Raider 4: The Last Revelation / Tomb Raider: Последнее откро�
 ```bash
 magnet:?xt=urn:btih:A748C9FB4E2219A5F5D6D1ACE017F6438D641F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

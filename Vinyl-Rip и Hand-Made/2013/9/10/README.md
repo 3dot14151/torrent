@@ -28,8 +28,7 @@ B5. Cry Wolf (4:11)Жанр: Hard RockПродолжительность: 00:41:
 ```bash
 magnet:?xt=urn:btih:7743F666E36C7934310E0E07A3BB99244DDD6246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

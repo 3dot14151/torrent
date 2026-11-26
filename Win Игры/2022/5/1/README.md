@@ -19,8 +19,7 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.112) License GOG
 ```bash
 magnet:?xt=urn:btih:4C53BE4F084176E31F8EFD258C87080D9629A506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Generals Evolution предусматривает перенос C&C: Generals -
 ```bash
 magnet:?xt=urn:btih:3F4F6DC8634FBF7D14F6493FE0EC6BEAE3522F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Waylanders (2022) [Ru/Multi] (1.10) License GOG
 ```bash
 magnet:?xt=urn:btih:E6E5928CF54544B9E2BD42FC56FD777969A7C0C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

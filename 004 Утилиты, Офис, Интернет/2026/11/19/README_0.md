@@ -21,8 +21,7 @@ Catsxp — браузер на основе Chromium, сочетающий пр�
 ```bash
 magnet:?xt=urn:btih:57AD9B382CB7A88BFD66195C46EE37B0479145EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Text Editor Pro 38.1.0  + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:446A5329F2E7917240781FD61E3E88A56A62097C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Vivaldi — это современный веб-браузер, созданн�
 ```bash
 magnet:?xt=urn:btih:7E0BD09034510FB563A3B4DDCC366AD3EB36C33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:A669211A2BA2238BBAB7FC6CC26C078DA194A362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ LibreWolf - открытый проект на основе Firefox, котор�
 ```bash
 magnet:?xt=urn:btih:522982FD475260CB178550C4CC017945784F61D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ HWiNFO - мощный информационный инструмент, кот�
 ```bash
 magnet:?xt=urn:btih:C9CEA33C54DBE0BAA702F384D96D7E77C2D17972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:FCE30650ECF2B5EDD5BEA7BB10E74B0456C43952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ MassTube Ultra — очень простая в использовании пр�
 ```bash
 magnet:?xt=urn:btih:C58A42A62391B6797AB0E1CA862B447F94C399F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ RAM Saver Pro выполнит следующие действия:
 ```bash
 magnet:?xt=urn:btih:CB5F5A804067D0C2FE8784730E057ECD19204F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0B68AE2EE7BAB9120FFA54722CEC6851E746201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Wireshark — это мощный анализатор сетевых прото
 ```bash
 magnet:?xt=urn:btih:3AEE27A01C3CFF168322B94C9A1CFADE0CE44F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:BD208A398B4DABE15B8733DF7885341A07B170B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Wise Memory Optimizer - утилита для освобождения опер�
 ```bash
 magnet:?xt=urn:btih:F18A31D31CB8936F40BE3B40D8618F007B4F625C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ MAX Desktop 26.41.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7BFDAD5AB14B93225AA0708249433CF942E06A83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ The Supermium Browser — современный браузер на базе Ch
 ```bash
 magnet:?xt=urn:btih:76D557734C54C3FDD26E644B78661E6BD824280D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

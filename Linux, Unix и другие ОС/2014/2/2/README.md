@@ -21,8 +21,7 @@ Mageia 4 Cauldron [i586, x86-64] 2xCD + (dual)xDVD
 ```bash
 magnet:?xt=urn:btih:1C6507BA859E93AF85EEBAD3FF3E9C7E04E773CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Mageia 4 Cauldron [i586] 1xDVD
 ```bash
 magnet:?xt=urn:btih:AE7A81710D3E3A3F7CA045A6019EA721077570AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Mageia 4-Live Cauldron [i586, x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:8088D2BC02927B18C8FCEE883A611729D1001420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Mageia 4 Cauldron [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:FB62F89DE03CFDE2820303AA04A3C1EF9BED07E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ ROSA Desktop Fresh Gnome R2 (updated) [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:E559303D02647F12ADC7CC0F774A44AB8339E45C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ ISO-образ может быть записан на DVD, смонтирова
 ```bash
 magnet:?xt=urn:btih:C6B5F61D91F2742D3A5C4699D7205247EF38C6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Arch — «легковесный», простой и гибкий дистри
 ```bash
 magnet:?xt=urn:btih:3EC4F7C45664E1477A570BEBAE283F49D90DB66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

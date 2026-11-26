@@ -19,8 +19,7 @@ Abathor бросает геймеров в самое сердце павшей 
 ```bash
 magnet:?xt=urn:btih:D324EF4EEC04E35383DB7A739B085D921D601D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shoulders of Giants представляет собой научно-фанта�
 ```bash
 magnet:?xt=urn:btih:62D36B31FE1DC7670CF053E5051F77EB590F1B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ X Invader - это динамичный экшен-рогалик с видом 
 ```bash
 magnet:?xt=urn:btih:DAEED9C916F578BC669E3DEC3FA284FBF9D21C10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

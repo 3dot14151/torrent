@@ -19,8 +19,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.0.5) License CPY [patch]
 ```bash
 magnet:?xt=urn:btih:27579A02DE91CDFD9E427AD265847EAB67A37C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

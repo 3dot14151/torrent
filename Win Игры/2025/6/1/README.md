@@ -19,8 +19,7 @@ Immortal Life (2024) [Multi] (1.0.43) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CCFF63B4332F964071CD47FB2FB39FF9110DB551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kathy Rain 2: Soothsayer устанавливает действие в 1998 г�
 ```bash
 magnet:?xt=urn:btih:A3D55E6C1A8B5FF1F9953257B689951F0E512DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 ```bash
 magnet:?xt=urn:btih:DCD3CF7D265B9BD8EB2359955D344D7933BCC31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Twilight Wars - dungeon crawler в киберпанк-сеттинге, где �
 ```bash
 magnet:?xt=urn:btih:672EE013CC9A5EA69DD27A640C4A9435CC7DE246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ True Fear: Forsaken Souls Part 3 - заключительная глава тр�
 ```bash
 magnet:?xt=urn:btih:1CEB4C0B5A07B17342C0A50CABE665217860A1C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cataclismo вводит игроков в роль лидера, ответст�
 ```bash
 magnet:?xt=urn:btih:2B9CB855E5EC2A79344D211EEC881B7D54E3C5C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Car Dealer Simulator открывает путь в сферу торговли 
 ```bash
 magnet:?xt=urn:btih:6CF045369685242FF2B2316F31A8F8723911725D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Flashing Lights: Police, Firefighting, Emergency Services Simulator – это �
 ```bash
 magnet:?xt=urn:btih:DC9C0B6DD33998C065DA04B41BD9033D9B17717A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Brassheart - приключенческая игра, действие кото�
 ```bash
 magnet:?xt=urn:btih:5A264437ED3D1A8546549BEDFB98C708BB1EF772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ MindKatt: First Strike (2025) [Multi] (Build 18559755) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:51F08526AD3CCADF749BF329314D2906B934A5AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Disney Illusion Island - это двухмерное приключение дл
 ```bash
 magnet:?xt=urn:btih:AF32846399DC5B7F04107E980A7134371E0064B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Grim Tales 26: Prisoners of the Past / Страшные сказки 26: Узн�
 ```bash
 magnet:?xt=urn:btih:248CF86FBD4DEB2C114117FEAF02D6D89CCD0D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Disney Illusion Island - это двухмерное приключение дл
 ```bash
 magnet:?xt=urn:btih:7AAD11B013AC83E8CE54E197B8B127C02BBBF959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Wayfinder (2023) [Ru/Multi] (211130/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:50FFA7E4ED254390DAA2BE7571AB647024502CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Car Dealer Simulator открывает путь в сферу торговли 
 ```bash
 magnet:?xt=urn:btih:7FF59C3806629A0E314E33EA8F9CE7BFE925965D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

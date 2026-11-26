@@ -19,8 +19,7 @@ Microcosmum 2 - стратегическая игра, основная цель
 ```bash
 magnet:?xt=urn:btih:4AA5F010FC128B192DC1FFA15D7FD75515D31CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tomb Raider (2013) [Ru] (1.1.838.0/dlc) Repack Decepticon [Game of The Year Edit
 ```bash
 magnet:?xt=urn:btih:1FC625AF97D88A43E91FF67E1C0EFD853F0273A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Welcome to ParadiZe - это увлекательная изометрическ
 ```bash
 magnet:?xt=urn:btih:0CB8888438A7DD9859FF0FA721CE19D3ECBF4ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1027.0/dlc) Repack Decepticon [20
 ```bash
 magnet:?xt=urn:btih:A3344BAD665AF8D43A366A01886088377CA4906A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tank Operations: European Campaign ставит вас на место амер�
 ```bash
 magnet:?xt=urn:btih:D58E5A8A6995FE3EEB370C04454A9A52612B1190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Unknown - психологический хоррор от первого л
 ```bash
 magnet:?xt=urn:btih:3F6E884CE917AAC675CC98A510F153DE981C0B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cats Love Boxes - это восхитительная игра-головоло�
 ```bash
 magnet:?xt=urn:btih:0D83EF95CDFB5E8007261F3851227403FABE5EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Chambers - захватывающий платформер-головоломк�
 ```bash
 magnet:?xt=urn:btih:34BDCF93EAC77C17D88C0F0839197F2A248AFFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Silent Cause - это однопользовательская игра в жа�
 ```bash
 magnet:?xt=urn:btih:8AF5B09C33FA8CE203EFA7A544EBB6D4FE57EF91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Living Legends 11: The Red Trace (2024) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:DD0FF5F26451D1CC90EDF3C88D9CECBCB507C785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

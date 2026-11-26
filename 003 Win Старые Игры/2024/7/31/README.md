@@ -19,8 +19,7 @@ Street Racing Syndicate - аркадная гонка, включающая св
 ```bash
 magnet:?xt=urn:btih:13E278397866AFD07ABFE18324F0EF9F91A7BD14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

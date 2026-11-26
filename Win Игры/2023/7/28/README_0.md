@@ -19,8 +19,7 @@ It Happened Here 2: Beacon of Truth (2023) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:1A20C2ACC5C8FF5E5519AFD249D90651DD5C952D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D413433F97ACB6A400C76FBD5E7F76E0F007293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

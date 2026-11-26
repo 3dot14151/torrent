@@ -28,8 +28,7 @@ Wartex - When It All Fades To Black (2014) [FLAC|Lossless|WEB-DL]<Southern Metal
 ```bash
 magnet:?xt=urn:btih:ED3CE51682018D02B0C9BFE796ECDA71D165DACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Infestus - The Reflecting Void (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:481615250B46F04AB2388A7DB960795BC5ED5DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Eltharia - Innocent (2014) [FLAC|Lossless|WEB-DL]<Power/Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E453BDD90B89EF3A56E17B344120EF30BC90FAF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ These Are They - At The Feast Of Seven Funerals (2014) [FLAC|Lossless]<Death Met
 ```bash
 magnet:?xt=urn:btih:DD0876B918C73A45F0CE368B51E6669E26C88A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Stoneman - Goldmarie (2014) [MP3|320 кб/с]<Industrial Metal, NDH>
 ```bash
 magnet:?xt=urn:btih:0A50CDF11345A52C4C16F4D5844B43FCACCA19CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ The Steve Sutherby Band - The Steve Sutherby Band (2014) [MP3|320 кб/с]<Class
 ```bash
 magnet:?xt=urn:btih:1E5ADFA256C67ACD16441CA58237E5C6D66C49FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Cody Canada & The Departed - This Is Indian Land (2011) [MP3|~245 кб/с (V0)]<
 ```bash
 magnet:?xt=urn:btih:962F8A1CECD8BBDE2BA153C7C008F33BCD3BD6B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Part 5 - The Darkness
 ```bash
 magnet:?xt=urn:btih:836E0FA8C79CEA3B58117E1FD3F177819BE78B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ Eddie Vedder - Ukulele Songs (2011) [OGG|~500 кб/с]<Folk Rock>
 ```bash
 magnet:?xt=urn:btih:C6E41174F23A5FEC65107B7FF34FF84A0F6994CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FFCC7566B3BE2BA40159A78580FE3A2C62B464A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:824F9001A7620E48364403D69C826D6706D65569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ Scorpions - We Built This House (Single) (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B496140BA8DD4EEE89015CB40123B6081CA76215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27A037CFF56FB1DCFEEAA06447E6AAD4D42F3272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

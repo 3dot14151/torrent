@@ -19,8 +19,7 @@ JUSTICE SUCKS: Tactical Vacuum Action - юмористическое прикл�
 ```bash
 magnet:?xt=urn:btih:BD501E1477E40E538920C7E47432EFE1BB23CF4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mad Games Tycoon (2016) [Ru/Multi] (1.171020ax) License GOG
 ```bash
 magnet:?xt=urn:btih:718D12CBAE68B59B51A30BC3A6D1AAD52479F025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mahokenshi (2023) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:0E8F1C469F0D17C7FCB6438211535AA8E352E385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ False Myth представляет собой ролевую игру. Вмес
 ```bash
 magnet:?xt=urn:btih:1ED7ED6127E77C23C88AF8C89DCB2609FAD05654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Exorcism Ritual – это хоррор на выживание с элемен�
 ```bash
 magnet:?xt=urn:btih:8CAAC06E7E7C2774395A6AC99FCB967E2F2B56CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Void Scrappers расскажет об извечном противостоян
 ```bash
 magnet:?xt=urn:btih:3380D8B538A0123A0D1A905078EC6D7C8C265090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Primitive Hearts (2023) [Multi] (v1/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:B7B0BA3DD2E326CC0F23C0E6D17DB6BA82F04278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Amber's Tales: The Isle of Dead Ships / Сказки Амбер: Остров з
 ```bash
 magnet:?xt=urn:btih:BB63AE3898910E66CF4563A5B74917B093B6451B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Toy Defense 3 - Fantasy / Солдатики 3. Средневековье (2014
 ```bash
 magnet:?xt=urn:btih:186C0107824665A52DC8FFF5AB4D9D975207F724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Magicka — сатирическая приключенческая игра, д
 ```bash
 magnet:?xt=urn:btih:515D73AEE4366604F02242AD94D3FC89431C7565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

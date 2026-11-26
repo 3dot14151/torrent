@@ -19,8 +19,7 @@ Royal Legends 2: Raised in Exile / Королевские легенды 2: Ди
 ```bash
 magnet:?xt=urn:btih:C33BB8CE8842687C126D6FADA4F5FDBCBFF79D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ POSTAL: Brain Damaged — это новая интерпретация куль�
 ```bash
 magnet:?xt=urn:btih:49BB49ADA80FA9E97730280EA8BD81887A85DD61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

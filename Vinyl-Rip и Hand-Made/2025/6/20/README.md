@@ -21,8 +21,7 @@ Letters From The Colony - метал-группа из Бурленге, Шве�
 ```bash
 magnet:?xt=urn:btih:336F322A182CBC9AE5FEA5FF47B910EAB0FFB082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Sonata Arctica - Silence (2001) Released, 2017, Spinefarm Records [FLAC|24/192|i
 ```bash
 magnet:?xt=urn:btih:1091AB78D33067BE80935D751FA5CEB8A6DC7C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Manowar - Kings of Metal (1988)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy, Pow
 ```bash
 magnet:?xt=urn:btih:E52DB2772D1ED42A8E523CA506A0F3D2838866EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

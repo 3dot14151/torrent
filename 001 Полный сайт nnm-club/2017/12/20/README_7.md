@@ -22,8 +22,7 @@ Yusef Lateef - Lost in Sound (1961) 2003, Fresh Sound [WavPack|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:FBD44612A374F54B7DC786E252F61C05D0864FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ David Bubba Brooks - Smooth Sailing (1998) TCB Records [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:B6437BE00362E274ED928FF41D824E8E6580ABBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ralph Moore - Who It Is You Are (1994) Nippon Columbia [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:9A84A295D37E25D85CDB68F66FD47B2E9F3F0F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE96A70501A36BD2E33E7A8E4C3E84476E48F15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAE32DB08F5F0A4BFBC5D87D3EF7AD66C424C052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Second Storey - Lucid Locations (2017) Houndstooth [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:ED50ABBC21E2E91CCEE50D1D9F1DCE976EEA2342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Application - Discography 3 Releases (2014) Dust Science Recordings [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:16A5B49F040A60EBC3023A8A6F34B70928E8829A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - The Best Of Suanda Dark (Mixed by  Roman Messer) (2017) [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:F22F96E871575AA17B0030E0DFB4AA75417D384E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ NX-Trance - Angst: The Seventh Album (2017) [MP3|320 Kbps] <Trance, Tech Trance>
 ```bash
 magnet:?xt=urn:btih:BEE90001FB9A56DA90CC6F975264F175B2935D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Automatic Peacock (A T M P K) - Discography 6 Releases (2013-2017) We Only Share
 ```bash
 magnet:?xt=urn:btih:5F82F8DBC31C8099F81930F0E0E93551ACC4F4BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEC2EEB86D0C16639C1D2148F72E1EAFAA234903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Best Of Trance Vol.07 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:519DE949B19E9ECEDE6B8D200490049142B6F27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Ziyal - Discography 6 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Drum n
 ```bash
 magnet:?xt=urn:btih:B0303A2F96945B08A5151F9B5BCBBF9B127A1016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Downie поддерживает более 1,100 популярных сайто
 ```bash
 magnet:?xt=urn:btih:D76BDB7E8DD462F796A56C9D3E61C36DFD333163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.19 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:DCAF4268D6FE9FD0C310A8F71EB91F7909C4FD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.20 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:716E32CB5DA71B78C3B35E67427B8842BC31643C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Burshtyn - Безвірник (2017) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:EE88E7DF835F01AB401DBDF702180C15538D97C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Translatium - одно из самых мощных приложений пер�
 ```bash
 magnet:?xt=urn:btih:5DD4DCBF87B267A4D7E21943EFD356F994DAA74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FBAEF8E2E18124935E7537CA08E6664D10B9D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ Audirvana Plus - мощный аудиофильский плеер с широ�
 ```bash
 magnet:?xt=urn:btih:AD048B3E1203FF949A5C8117A2C72B07B84B8D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B81D69C18CEDD4E1B1702D31C835508149EF7CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F39159F9878DD1EB8F488BF34DF57729D830953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1637EA28175EAB33DD08DCE6270B41594AAF09A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ VA - De Top 100 Aller Tijden 1973 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ```bash
 magnet:?xt=urn:btih:5FCDC0761ACCBAE1F82344D6740DF86FE036B6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34A539B54624C76181DC7B850EBE5CB50A6450AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ VA - Future Noir - A Collection - Beats For A New Dark Age (1998) Credo [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:9819B5CAC66D2F2BBE4D52BFD268AF5D1E1588D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

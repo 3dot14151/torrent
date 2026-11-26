@@ -23,8 +23,7 @@ Remix, Producer2006 ( 13 Nov )Жанр: Electronic, PopФормат: Vinyl 12"П
 ```bash
 magnet:?xt=urn:btih:A48AE4669A2C54C2245CF91BD743C48B264F9A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Side 2(   Читать дальше...   )1962Жанр: ClassicalФормат: V
 ```bash
 magnet:?xt=urn:btih:117BA10D151FA82D215099D978E3019AED4F2033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ B2 Crying Days [04:36](   Читать дальше...   )1976Жанр: Hard Roc
 ```bash
 magnet:?xt=urn:btih:851D9C62DE90E60B757D8F2364EFF7595E12927E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

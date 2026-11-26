@@ -19,8 +19,7 @@ ENTITY: THE BLACK DAY (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9A927C71D71FAE90EBD45D076F4809D3662E8BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Quake Enhanced (2021) [Ru/Multi] (1.0.5582/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:FC485FEC0622D6D6A0F5E2CD7D37AA0922A784C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ghost Keeper объединяет классические элементы из
 ```bash
 magnet:?xt=urn:btih:B986FD2B5C52EAB2E28B56DE87075BEF54F2CACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bookshop Simulator (2025) [Ru/Multi] (1.0.1221) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9F834A8010E8CD3DDA488F847033E2AEE39165D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DIVE or DIE - Children of Rain (2026) [Ru/Multi] (1.0.4.848) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E6A1F22828BC78726C6DE12EE32D794FA5842886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ DIVE or DIE - Children of Rain (2026) [Ru/Multi] (1.0.4.848.st) Repack Other s
 ```bash
 magnet:?xt=urn:btih:21BE2507BFA7B56A14182B04DB640BDCF88EF966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Nightmare Frontier (2025) [Ru/Multi] (1.0.0.1607) Scene Rune
 ```bash
 magnet:?xt=urn:btih:B689C7A56B2F6454CB2E60529B75223C9E5D79DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Avatar: Frontiers of Pandora (2024) [Ru/Multi] (2.7/dlc) Repack FitGirl [Complet
 ```bash
 magnet:?xt=urn:btih:7290511B546040A01ED55F07BC232AD80575D212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Avatar: Frontiers of Pandora (2024) [Ru/Multi] (2.7/dlc) Repack seleZen [Complet
 ```bash
 magnet:?xt=urn:btih:7115B1C56AB1E4A24D5AA1C577EE04307BEBCC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Cinders (2012) [En] (1.2.7) License GOG
 ```bash
 magnet:?xt=urn:btih:3E595D2E1B762049708F501CEAF24C27921E3046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Dungeon Defenders: Awakened - это кооперативный гибрид tow
 ```bash
 magnet:?xt=urn:btih:451F7E127C28507998AC8B156B49B713B05A51F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Raft - это симулятор выживания в открытом мире
 ```bash
 magnet:?xt=urn:btih:0310AFBC4690C55479035F93482A8510DE719C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Luto - это психологический хоррор от первого л
 ```bash
 magnet:?xt=urn:btih:CB5DA7D804D67936680EAE81C1E8F046E953FEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Beast of Reincarnation (2026) [Ru/Multi] (1.0.5.0/dlc) Repack seleZen [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:1DA086D9FDA7A0B2766E4C826EF19DB19F13ACDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

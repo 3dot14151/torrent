@@ -19,8 +19,7 @@ Heroes of Might and Magic III: Complete (1999) [Ru/En] (4.0/dlc) Repack Deceptic
 ```bash
 magnet:?xt=urn:btih:780B4214A54F1CBB711F3DAEF5BB7D9BBA3058C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

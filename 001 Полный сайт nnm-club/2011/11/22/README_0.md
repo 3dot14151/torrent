@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:FA78C28447EAA0E890AE9FBA04731B5F0BF76F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Русские Новинки Vol.8 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E9CC25A0E618598FE39F435FADB7F1D38C5AE661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Roadrunner United - The All-Stars Sessions (2005) [APE|Lossless]<Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ The Roswell Files - Chapter two - это вторая часть ужастик�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ VA - Республика Kazanтип - Best Club (2011) [MP3|256 kbps]<Dance, C
 ```bash
 magnet:?xt=urn:btih:5505EA57A8BEAED1970056DF674F736960154AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FCBD8894BFF0D44E5365B992219BB7F1F388B66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CA22119753FF92125CD9503548869B56F70F93E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ VA - High Contrast Presents Ali Wilson (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:10C1B22983D4C3D42B56F740D42B5663DE7F5997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ VA - Сборник Хитов Интернет Чартов (2011) [MP3|256 kbp
 ```bash
 magnet:?xt=urn:btih:F17CBB58D9E904C99C8C074925225B34A23CB454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ Sevenlee - Не твоя (21.11.2011) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:A726D11AC0C8EEFA9327A5522750DF84DAA6FEC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8974584762476A634E200FEEF9A40933E6A4717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE6A9B95EC412EE916F831FBB8263E40801273A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9941B412B36DD43AC28A7A7F6CDDC7AFE6008AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ VA - Kontor House Of House Winter Edition 2012 (2011) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:608841D4F9350AF74663657A25784CCA466F15CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C73509BC21D68DD85A56A96E888E6EC2A0FBC22F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1903D0FB3B210E3C170D4E01EE6B9C442E5281A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B74EADD4CEEAF45EF32D5FD04BD878B71B76D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ Accept - Kaizoku-Ban (1985) live [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:11614DC484B356DF3271FFC09856699E3F8AA63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ Evgeny Bardyuzha-Referendum (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:7871C40364854A344DA872002AB11B706ECD7890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ VA - Dubstep Is Fun! Vol. 5. (2011) [MP3|320 kbps]<Dub, Dubstep>
 ```bash
 magnet:?xt=urn:btih:229FA7FF6814DD0005EA6559BACFEB89C770AAD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ Surfact - Feeding The Beast (2011) [MP3|320 kbps]<Alt. Rock | Electronic>
 ```bash
 magnet:?xt=urn:btih:653B0C8FDB7C34B847B1CE2BE9E570627775EAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +725,7 @@ VA - Stop It! (2011) [MP3|320 kbps]<Breaks>
 ```bash
 magnet:?xt=urn:btih:E4A750B8B1B748F1AABC461CCAE99BFAFA70E789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ The Roswell Files - Chapter three - это третия часть ужасти�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -800,8 +775,7 @@ The Roswell Files - Chapter one - это первая часть ужастик�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

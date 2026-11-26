@@ -19,8 +19,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (1.0.3) R
 ```bash
 magnet:?xt=urn:btih:02E3F13C0CF4E48D2D870B81853AE4731588BC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ STUFFED - это процедурно-генерируемый шутер от �
 ```bash
 magnet:?xt=urn:btih:DE7B78AB22DEE0C0FEEAB8C75A44D12ACD88F8F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Supreme Ruler 2030 - это политический симулятор, в ко
 ```bash
 magnet:?xt=urn:btih:E33C66553847A1817A324E09EE81353BD01E4C7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Crab God – это увлекательная подводная крабост
 ```bash
 magnet:?xt=urn:btih:D89B644777655BB807AD86E9017CC0EE1A6162C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Doodle Adventure of Chameleon (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:31B09603B06B15D4A862568B24453B177FC303F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

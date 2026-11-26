@@ -19,8 +19,7 @@ P. Thurrott, R. Rivera | Windows 7 Secrets / Секреты Windows 7 [2009] [PD
 ```bash
 magnet:?xt=urn:btih:025B9153968D0DE28E91B602C116D8F9151D5B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:728682CA11516EBC11242666595C80FFC44BFAEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

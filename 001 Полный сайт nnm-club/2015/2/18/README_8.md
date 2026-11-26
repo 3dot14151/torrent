@@ -23,8 +23,7 @@ Arovane - Lyid Skor (2015) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Drone, Experimen
 ```bash
 magnet:?xt=urn:btih:A45EE0E2C778FB393957855A4E2E0F48CACD4EEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Arovane - Eleeve (2015) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Experimental>
 ```bash
 magnet:?xt=urn:btih:1B88D105769A9EDC0EF9A4DD7EDA9ED4048B02A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Rival Consoles - Odyssey EP (2013) [FLAC|Lossless|WEB-DL]<IDM, Techno, Experimen
 ```bash
 magnet:?xt=urn:btih:BA9F6E19A0CD7B75986E124FDE4F5CCE6399E8ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Elvin Jones - It Don't Mean A Thing ... (2005) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:ADA59EF85253554CFE65D71643CCB43D00E44D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Ocean Of Sin - Lie Goes To Hell (2014) EP [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C75BDF5B0CB59C61AC5296AF16F0403B6EC556D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Alio Die & Lorenzo Montana - Holographic Codex (2015) [MP3|320 кб/с]<Ambient,
 ```bash
 magnet:?xt=urn:btih:C87895EE52ADF4635595C51FE556583464F6C6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ VA - Vanity (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:6BE617F37771D9DA5404AF92CB94180618CDEF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Michna - Thousand Thursday (2015) [FLAC|Lossless] <Breakbeat, Hip Hop, House, ID
 ```bash
 magnet:?xt=urn:btih:E31BEF753D212B266550CB442562A2F76B431356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Director: Феликс Чонг, Сиу Фай МакПеревод: Одног�
 ```bash
 magnet:?xt=urn:btih:93FC843E4FE4FAF78EEA699692105E1A33A029E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ Pestilence - Testimony of the Ancients (1991) [FLAC|Lossless]<Trash Metal \ Deat
 ```bash
 magnet:?xt=urn:btih:F35CACBCAC2A3595E8AA71501C6CCEEAAC1FA4A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ Delta Moon - Goin' Down South (2004) [MP3|320 кб/с]<Electric Blues>
 ```bash
 magnet:?xt=urn:btih:B3BA3A6B834ED6F3D50FA65A30799B220BBF9D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65F0D59CFC1E7E81D134579B5ECEEFB4521FAADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ Orgatanatos - Constructive (2014) [FLAC|Lossless|WEB-DL]<IDM, Glitch>
 ```bash
 magnet:?xt=urn:btih:BEC5F91EEF35AE313343A0695EB3F4EC18A73823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2021F3B620E2ADEBBE82FD85CCF27C9D021400F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23E02F174DDBA110711BB940AC951F666820DB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Woob - Light and Levitation [Epilogue] (2015) [FLAC|Lossless|24Bit|WEB-DL]<Ambie
 ```bash
 magnet:?xt=urn:btih:11ABC77AEEF6231CD11ED0FB979206AA332E9B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ VA - Music For Everyone - Deep House & Nu Disco Vol.3 (2015) [MP3|320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:61003BC894EB20848ECE27FC8A2A555A0E926E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +500,7 @@ VA - Sport Dance Training Trance (2015) [MP3|320 кб/с]<Trance, Progressive Tr
 ```bash
 magnet:?xt=urn:btih:FCEADCC6033417C81293B7E4E0C55459C1FD2941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B70E5CC6495CC079724FA8B79852C542D69EEA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Heamy - Spacetime EP (2015) [FLAC|Lossless|WEB-DL]<Electronic, Drum n Bass>
 ```bash
 magnet:?xt=urn:btih:4F855F9A7765818779E9A76DD2EA805CEDFCF24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +583,7 @@ Lysergene - Critical Mass (2008) [MP3|320 кб/с]<Industrial, Electro, Noise>
 ```bash
 magnet:?xt=urn:btih:3A85DD0D22F2613CE565DCA73D9E0E1B4A3D1CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +612,7 @@ VA - Tallinna Lounge Collection Vol.1 (2015) [MP3|192-320 кб/с]<Lounge, Nu Di
 ```bash
 magnet:?xt=urn:btih:91D4F65294854FF55E0D6D79B259F51B744ABBD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54159F5D3C849C0128D89FA23ABF85E8B381340A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E64669645D309EC5929F1403171EC352F75437A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ EditPlus — это текстовый редактор, редактор HTML, 
 ```bash
 magnet:?xt=urn:btih:C6D6B9EDBA6D2F3E6E4EF3CF916E5460AB0CE132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ ReGen - KeyCode - это программа для определения код
 ```bash
 magnet:?xt=urn:btih:5035115D6BC725FE6CD4DABFA4C22BA7181AF074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

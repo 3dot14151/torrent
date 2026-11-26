@@ -22,8 +22,7 @@ i am no hero - Nights of Wonder (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock,
 ```bash
 magnet:?xt=urn:btih:003BA3B979124243991D3907105B25F2B109E574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Burning Witches - Dance with the Devil (2020) [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:34ECA20158132F23474B55A7C4B992DDC825A899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Live Sounds Of Rock (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:38E6F3DEEA71FB91FB78D130964B7E5800C035B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Best Rock Ever (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:0437CE9488E13ABB2657557D989FA0CAE627DF5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Glam Party Supermix the Glam Rock Allstars (2014) [MP3|320 Kbps] <Glam Rock
 ```bash
 magnet:?xt=urn:btih:2EB3860D40BF3927B3901C408A23542F27467578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ COVID-19 - We all Die (2020) [MP3|V0] <Doom, Death, Black Metal>
 ```bash
 magnet:?xt=urn:btih:01B1501626BE304E65229F51768CA99F656C15E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Brujeria - Pocho Aztlan (2016) [FLAC|Lossless|image + .cue] <Death Metal, Grindc
 ```bash
 magnet:?xt=urn:btih:A68E1ACA4ABEE8E1804F8173178EE8455D579199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Reusmarkt - Эхо (2006) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:1857B24513FDE2ACFA15D568F0B4AEA9268F9E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

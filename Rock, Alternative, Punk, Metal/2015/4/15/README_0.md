@@ -23,8 +23,7 @@ Congiura - iBlood (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:7B49A5799FCA1A7368D6F88201A9E30FFF8FD7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Apophys - Prime Incursion (2015) [MP3|320 кб/с]<Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:E83640DCA0B66DFA8511E83C6E8A33095894CDB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Kill Me This Monday - Kill Me This Monday (2015) [MP3|320 кб/с]<Alternative M
 ```bash
 magnet:?xt=urn:btih:03582BD5BDED460BB5EA4C136E6DFAABCD77B9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Blood Of The Mother - The Mother And The Neue Maschine (2015) EP [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:F42AE10FC032CD25C6E347F1A8A3FD81BDEEBD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Toad In Transit - White Doves & Blood Rivers (2015) [MP3|320 кб/с]<Atmospheri
 ```bash
 magnet:?xt=urn:btih:EDF1683B73D3771D9277ED0CE02C2EE9E4EBFDE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ The Uptown Savages - Rock 'N' Roll With You (2015) [MP3|320 кб/с]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:631B430BAD31B96A45A02946C9E90A0A20CEB88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Thunderheart - Night Of The Warriors (2015) [MP3|320 кб/с]<Heavy Metal / Hard
 ```bash
 magnet:?xt=urn:btih:5C1A7CC22B53EAB86FBDD2D1FAF7B499E49DB59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Joe Cocker - Organic (1996) [FLAC|Lossless]<Rock Blues>
 ```bash
 magnet:?xt=urn:btih:305DFE956F2B6C18C1A72E9218C99046979DBA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6491958A9F07E60440278166ED3E12E30DDC4E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ Dead Sara - 2 альбома (2012, 2015) [MP3|320 кб/с] <Alternative, Modern
 ```bash
 magnet:?xt=urn:btih:297255D6FED2E5ED463F9E69B483108FA3DE3F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

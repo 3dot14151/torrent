@@ -24,8 +24,7 @@ Cake Shop 3 / Магазин пирожных 3 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:906C8D592354A9B2945FBB05DA9A58668278D9B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ HdO Adventure. FBI: Paranormal cases / Мистические истории. С
 ```bash
 magnet:?xt=urn:btih:153E5AAD8A1ABC14EDC402FC1710B20CFF266EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

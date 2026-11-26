@@ -22,8 +22,7 @@ Melyazm - Чтобы было (2014) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:BA2224F5476FF801E248A6EC77A980745D8D2F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Los Lobos - Earthquake Relief Concert 1989 (Live) (2024) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:40F0B326F7307390B0BB9874930251BB4FCFE3B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Queen - The Works (1984) Japanese Edition, SHM-CD, Reissue, Remastered, Repress,
 ```bash
 magnet:?xt=urn:btih:E29DCEC253F2A1D730F97740045A92C97B49D57A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Queen - Innuendo (1991) Japanese Edition, SHM-CD, Reissue, Remastered, Repress, 
 ```bash
 magnet:?xt=urn:btih:877F142B8F6EBAD58F09EFE233DD4B1915B4E342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Godsmack - Godsmack Power Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:9FF2D6F8DABBA7680ED527DB50F8355533436D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

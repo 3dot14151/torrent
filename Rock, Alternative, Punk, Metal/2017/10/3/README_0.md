@@ -22,8 +22,7 @@ Broken Hope - Mutilated And Assimilated (2017) [FLAC|Lossless|image + .cue] <Dea
 ```bash
 magnet:?xt=urn:btih:81B8BAC2A6415F75F71B48BC41C396127640A449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Colaars - Native (2014) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:7107A3ADBDEA86528B4656F3D15FFF166CB5C60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Evil Invaders - Feed Me Violence (2017) [FLAC|Lossless|image + .cue] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:73A1E1BD952D2BE1B7F4074415D828AADE0E1548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Survivor — американская рок-группа. Стиль групп
 ```bash
 magnet:?xt=urn:btih:96E43CF7BC19D66757F14CFE735F00BF8CE87C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

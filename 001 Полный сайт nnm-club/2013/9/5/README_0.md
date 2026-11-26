@@ -27,8 +27,7 @@ Hann - Крайности (2013) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:B10C4455994C833ED47BFEBA39376EBEEEB3AF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Dance Level (20 Tracks for DJ's) (2013) [MP3|320 кб/с]<House, Club House
 ```bash
 magnet:?xt=urn:btih:01D166FC4C6C1F149E6D9E43B0CA1A73112188FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C3964248714D972D5D9F6039A754291F6162900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Tytanium Vol. 1 (Mixed by Sean Tyas) (2009) [FLAC|Lossless|WEB-DL]<Trance>
 ```bash
 magnet:?xt=urn:btih:4BD4DBC9DAA21B384655A831612BD216558B79E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - Танцевальный Коктейль Зарубежные Новинк
 ```bash
 magnet:?xt=urn:btih:4A0FC9A7208DE13E4479608F325EB98B2148B996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ VA - Sensual Beings, Vol. 2 (Supreme Chillout & Mood Upbringing Harmonies) (2013
 ```bash
 magnet:?xt=urn:btih:B70F5EEBF42C45D51CC84DF850470F46D5B0C9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ bonus
 ```bash
 magnet:?xt=urn:btih:A6F3546B55EBDC7E1763810E9BD5016DA088C23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Jay Leonhart, Gary Burton, Joe Beck & Terry Clarke - Four Duke (1995) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:18914E81446B3C439AE3E878C16AECCDB1866696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B12482B3D9571CEF97ADF2C2B57E4AE012D9E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +344,7 @@ VA - Love Vocal Trance: Volume One (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A7B5B91707E27BF83B4252BD4D89E44BFA4C9684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33192ACD5F775E3E83EF09975B22830EDD67E971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ Myselor - Parallel Consciousness (2013) LP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:97C2906F7FCCC9A36C410F91A41BEFAB9117AF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +431,7 @@ Miss Blues - Sittin' in with Blinddog Smokin (2001) [FLAC|Lossless]<Blues, Class
 ```bash
 magnet:?xt=urn:btih:77C45F65B776598619EF985FE8AFB30D0011186A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:742DDBB29E0DCA05DC96920B6EB98B027A7F06FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E1834AC4275B7560A18F3398DB522A2E3280C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ Wallpapers - Мотоциклы (часть 2) [JPEG]
 ```bash
 magnet:?xt=urn:btih:11BE2066CA376D9C2979CB91534FF7D32ED7AF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D5ACD2DAE2DD69FA57706537F4B1AF92694F574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ Utopia Kitchen&Bathroom - английский журнал, представл�
 ```bash
 magnet:?xt=urn:btih:7791A571B0872CA810E023570043B50C2BD0383F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:215EA02F3C5F562045E5F7A8C8C9F22AAC83F32A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ VA - Dubstep Spirits (2011-2013) [MP3|211-320 кб/с]<Dubstep, Chillstep, Ambie
 ```bash
 magnet:?xt=urn:btih:3BD44C396CEEEAD233DE7CFD8F6236728525D4A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C920B7469241B2A86800CA5BB2B3B69C14657E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ Dj Sveta - Summer Love (Beautiful music 2013)[MP3|320 кб/с]<Progressive House
 ```bash
 magnet:?xt=urn:btih:19CA6712A3A8840AD22F6EF4FA89ED1E483F89E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ VA - Super Дискотека С Новыми Звёздами (2013) [MP3|256-3
 ```bash
 magnet:?xt=urn:btih:8BCCEE600A55081A0831A0C199A5A101A5B0678D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B43F03DFC75530024E8405FD4192EC91D1E7CCEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -794,8 +769,7 @@ ReinXeed - A New World (2013) Japanese Edition [FLAC|Lossless]<Symphonic Power M
 ```bash
 magnet:?xt=urn:btih:680D7B3456E4DE62ABEE099A22E34818647C245C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

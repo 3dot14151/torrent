@@ -19,8 +19,7 @@ Hooked on You: A Dead by Daylight Dating Sim (2022) [Ru/Multi] (1.0.15) Repack O
 ```bash
 magnet:?xt=urn:btih:73C856239D9DD122934FB7122C83E08669BE502C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

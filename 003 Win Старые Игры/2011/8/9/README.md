@@ -19,8 +19,7 @@ Hot Dog King: Fast Food Empire / Девушки за работой (P) [Ru] 200
 ```bash
 magnet:?xt=urn:btih:5B262CD402E29E97E3AA439E5E68EC9070A93397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Omerta – City of Gangsters позволит вам на своей шкуре 
 ```bash
 magnet:?xt=urn:btih:10CD363E57C64BA84867B7EA5293BF2B9113C240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ DiRT Showdown (2012) [Ru/Multi] (1.2) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:03808487EA2919BB86DE36495171D02BEC490968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

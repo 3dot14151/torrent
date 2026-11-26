@@ -19,8 +19,7 @@ Bazaart: Photo Editor & Graphic Design v1.20.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:62BB3306A7C4E8758276CFF73925B901F36A5000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

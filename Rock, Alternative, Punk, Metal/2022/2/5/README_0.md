@@ -22,8 +22,7 @@ Ian Gillan (19.08.1945) – один из величайших рок-вокал
 ```bash
 magnet:?xt=urn:btih:6155C0883268F5AE71D80BA6E1BEDA2DEBEFA21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82F659616825F901745288210FDB6423C119FE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Чиж & Co - На поле танки грохотали (2020) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:F284C1339D2FC113C5B2490B4D93D18C66EB8055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Чиж & Co - На поле танки грохотали (2020) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:0FA64D4797EACEFA31E06861F8E361086CCE32E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27EB121420A2055D8D75C1C176931693A1DD8E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Blue October - Дискография (1998-2009) [MP3|320 Kbps] <Alternative ro
 ```bash
 magnet:?xt=urn:btih:682B9BD6BDB2824E8B5B6D61D70E75B9DC16B380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

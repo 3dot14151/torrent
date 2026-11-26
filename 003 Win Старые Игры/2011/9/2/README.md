@@ -19,8 +19,7 @@ Delaware St. John Volume 1: The Curse of Midnight Manor / Охотник за п
 ```bash
 magnet:?xt=urn:btih:C4CEFCC65AF094A9DBCCEC8662C7EF62E5F7C4B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

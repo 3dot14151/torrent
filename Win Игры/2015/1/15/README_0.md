@@ -19,8 +19,7 @@ Lost Lands 2: The Four Horsemen (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:3A36D08B3ADF6FBC3AF382702C0333D87122151E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

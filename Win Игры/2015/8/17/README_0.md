@@ -19,8 +19,7 @@ Dream - игра-исследование, действие которой пр�
 ```bash
 magnet:?xt=urn:btih:F96E954877FC7BD08AF07A4897D3145853DA5BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fallen A2P Protocol (2015) [Multi] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:66137A092D70EFD1B5751913B82535954BBD26BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

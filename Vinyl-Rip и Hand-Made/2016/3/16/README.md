@@ -22,8 +22,7 @@ A4. Crossfade (3:41)(   Читать дальше...   )Производство
 ```bash
 magnet:?xt=urn:btih:6438D39027558495235AE58EBC30CBE7229CD865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A3 The Wake 3:45(   Читать дальше...   )Жанр: PopПродолж�
 ```bash
 magnet:?xt=urn:btih:84A8B87831341F03980378CAD74954B95B1EEC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

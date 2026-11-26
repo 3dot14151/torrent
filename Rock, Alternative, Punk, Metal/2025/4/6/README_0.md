@@ -22,8 +22,7 @@ Borssch (Борщ) - Экзистенция (2025) [MP3|320 Kbps] <Punk>
 ```bash
 magnet:?xt=urn:btih:8D394C2A4DA4400D55BAD5A00E2D9951535958BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Seven - Interdimensional Act III Shadows in the Sky (2025) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:4BE23CE9685417C7F7F3212FFDAB71E562ACEA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Depressive & upliftingСписок альбомов:
 ```bash
 magnet:?xt=urn:btih:ED96F0AA6D18C63F5CC1A2E305BC832B445BC272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Совсем Не Popsовые (2014) [MP3|320 кб/с]<Ska, punk>
 ```bash
 magnet:?xt=urn:btih:6CF4CD84EA7E80AACCC121774CED14AE4C6B6210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Covers Rock Bangers (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:CCF9CC2E8E2A691948737112FB881EAE726D7177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ L.A. Guns - Leopard Skin (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
 ```bash
 magnet:?xt=urn:btih:9914D995102A97EC65FB411AF5EC1D6425CE9336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

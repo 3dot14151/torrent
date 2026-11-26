@@ -19,8 +19,7 @@ Lovely Lady RPG начинается с пробуждения героини п
 ```bash
 magnet:?xt=urn:btih:9122F261FAB1F002C3C2C79813B6B8E3C2F3397F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

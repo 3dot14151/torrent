@@ -22,8 +22,7 @@ Imperial State Electric - All Through The Night (2016) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:112C9FFD567931EC5C66D1FB69AC98A8FF1418E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ray Gillen - 5th Anniversary Memorial Tribute (1998) [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:1E7072497FB75F40C33FEF6CDC01820B21FB2E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ David Crosby - Lighthouse (2016) [FLAC|Lossless|image + .cue] <Acoustic, Rock, S
 ```bash
 magnet:?xt=urn:btih:44363144CD4324FE90D22E442093578511D10364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nick Cave - HTV Music History (2001) Compilation [FLAC|Lossless|image + .cue] <A
 ```bash
 magnet:?xt=urn:btih:969701BA87B5867D2EF601D9B7FFB8A8926459C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jimmy Eat World - Integrity Blues (2016) [FLAC|Lossless|tracks] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:FF19843C015A92D148D1F04EED12A3220FEDD9EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF143584DED67A7CCF0B34664194BC37F6D2309B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD281FF40FD15FA2E644638B54E943230EF60323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Santana - Santana IV Live at the House of Blues Las Vegas (2016) 2CD [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:5412EC93D284EC01F1EE7326FFE8E7DF5A350C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - The Many Faces Of The Beatles (2016) 3CD Box Set [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:00A9E89ADA59863B4A48E9D3AC00A924B47057CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

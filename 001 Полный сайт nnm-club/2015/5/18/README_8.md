@@ -22,8 +22,7 @@ VA - Discover Digital Sessions 003 (Mixed by Rich Smith) (2015) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:8ACFAD9C6334C35F7F952844A82D923104846399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Catatonic Society - Baptistina (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5A21B4FEBCAAD99DFD7F2DF4EAA7BF70CE848670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Annulation - Human Creatures (2004) [FLAC|Lossless]<Thrash Metal / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E3A0F2AD6B37136B1C650D203BAFC945DD4CEED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Discover Digital Sessions 004 (Mixed by Rich Smith) (2015) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:4EDB4DD943AC85A96B077601F23073118A8748B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Dark Sessions Radio 006 (Mixed by Oberon) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:407A757EFD3B7ADE4F3B0D90CB5C24B7F5F7FF34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:582FED547A168772BD4A8A683CF587B39794B349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - 2 Years Suanda (Mixed By Roman Messer) (2015) [MP3|320 кб/с]<Trance , Pr
 ```bash
 magnet:?xt=urn:btih:746992F350612B1E6291615C2735207CD1FE9DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Militant Artists (Mixed by Oberon) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:2D43FA853B856DC14BE9BB4AD4E14998DEE9B2B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73159AFDB14C821C2357E6C36035F2410AB725E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3AB2A09E9CBD6D2D421626FC55EF222C81A299D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ CD1 - Rhythm Sundae:
 ```bash
 magnet:?xt=urn:btih:03D3C6EB5DCDF2C9CFDD9837DB9B9B1BD497ACE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Adastra - Deadlock (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1CE3090D8C61FD9C5AC00058717B11CA579D3A4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F34A2A2D712A3FE3C35DEC5EB5B2FBC35BD3F7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49E7B72D82EE9CFFA2B35E3608DC6B2E48623D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6DEC03DCDD7B0C050B2692C9E1FC61074DCC3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:915FDD055DFA6086CB77BFCA32D266D1074D1A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ VA - Militant Artists (Mixed By Thomas Datt) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:BA8D69731AFFCC2D487A66A0FE917A0D10E91DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E20CCF614BD42AC47AFCE49A0B0EBA87C334C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ VA - Rielism Vol. 3 (Mixed By Sied Van Riel) (2015) [MP3|320 кб/с]<Trance , P
 ```bash
 magnet:?xt=urn:btih:CA11BB2603DBBCF6CAD4D1F76F91726139AFDA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BF694831CFAC3B7F5214A0DA7246C8C15B0FC7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Shorty Rogers & His Giants - Bossa Nova (2014) [FLAC|Lossless]<Jazz, Cool, Bossa
 ```bash
 magnet:?xt=urn:btih:1F3D601BFFD59BAAB22B25FA67329BB0C2461CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Ragor - Миг рождения бури (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:AC2714BF95CA9A563C8E7E8C9FA9A753717FF4D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ DSG (David Shankle Group) - Still a Warrior (2015) [FLAC|Lossless]<Heavy Metal /
 ```bash
 magnet:?xt=urn:btih:5F0D6735A64226D1E82385B7AC1EA750CB97F5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Witchbound - Tarot's Legacy (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DC5938AFEBA776DE71850FC615D4DC2E746D99DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:076567C447C7A899E25C5805F2982C6B8CBE5C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Psychonaut 4 - Dipsomania (2015) [MP3|320 кб/с]<Depressive Black Metal>
 ```bash
 magnet:?xt=urn:btih:541DE5B799BCE70D4D4FE47877FE8270E30A581C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

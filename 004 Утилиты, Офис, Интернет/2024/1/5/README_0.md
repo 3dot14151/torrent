@@ -19,8 +19,7 @@ PortScan & Stuff - бесплатная утилита, которая дает 
 ```bash
 magnet:?xt=urn:btih:00CB90177F120B5BCA3C95C618407048DF015AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

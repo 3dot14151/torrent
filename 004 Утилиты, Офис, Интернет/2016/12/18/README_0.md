@@ -19,8 +19,7 @@ OpenGL Extensions Viewer — программа для вывода информ
 ```bash
 magnet:?xt=urn:btih:54092203FBFC43576D5C9DACFA266B5A28838EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

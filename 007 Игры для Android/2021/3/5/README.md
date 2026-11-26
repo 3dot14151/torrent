@@ -22,8 +22,7 @@ Vector – это посвященная паркуру аркадная игр�
 ```bash
 magnet:?xt=urn:btih:919CE6F5E4C98AF3C5D21FCE5439982AEFF64555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Plague Inc – Редко, когда мобильные проекты выхо
 ```bash
 magnet:?xt=urn:btih:CDD3FDBB194456D431AF240ED45C17EEC6719DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Grand Theft Auto: SAMP – простой и удобный лаунчер дл�
 ```bash
 magnet:?xt=urn:btih:4882725E711DD200F0F6DABB8922041B4402F42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

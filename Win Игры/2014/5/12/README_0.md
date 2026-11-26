@@ -19,8 +19,7 @@ Flashback HD - переиздание классической приключе�
 ```bash
 magnet:?xt=urn:btih:26E625172D0B339A12FB64D4C2F49C9CC732F127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Mount & Blade: Warband Good mod Resurrection (2011) [Ru] (0.1) Mod Vyacheslav
 ```bash
 magnet:?xt=urn:btih:FC672E35409A9CC47B8EC79D8B9637BC63FA643D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

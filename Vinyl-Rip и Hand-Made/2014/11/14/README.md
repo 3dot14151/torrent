@@ -22,8 +22,7 @@ A4. Gypsy (5:10)(   Читать дальше...   )Жанр: Hard RockПрод�
 ```bash
 magnet:?xt=urn:btih:E4BEA7B15F939916D64438753372157FB9114BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

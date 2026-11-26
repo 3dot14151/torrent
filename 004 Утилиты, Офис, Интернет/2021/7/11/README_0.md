@@ -19,8 +19,7 @@ MP3jam - это программа, с помощью которой вы смо
 ```bash
 magnet:?xt=urn:btih:AA3CB00D1B65EC1B1EF620D0B33F76AFF8B15144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

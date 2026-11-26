@@ -26,8 +26,7 @@ Inner Shrine - Pulsar (2013) [MP3|320 кб/с]<Gothic Doom/Dark Metal>
 ```bash
 magnet:?xt=urn:btih:CB346D45C7542205890DA0FF476ED8A3FF7AFB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Taberah - Necromancer (2013) [FLAC|Lossless]<Power Metal/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B1BC87E8BB0DE5E904BC8AC04F3806CAC283CC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Chastain - Surrender To No One (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0312AF94F8A1243D264ED9EDAA71C9D1058F854B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Fergie Frederiksen - Any Given Moment [Japanese Edition] (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:FFB203FAFFAD88695E4D99EC39CCAB4F0B1C3D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ With:(   Читать дальше...   )Жанр: Symphonic ProgПродолж�
 ```bash
 magnet:?xt=urn:btih:56ECFD541C1768A8D4DBEF8C743878A1E72A4C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Deicide - In The Minds Of Evil (2013) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:6A4E545E4C468415B0C7353A359953BA0147A1EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Hell - Curse And Chapter (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B154DD850507DA2516AF177413F5751676D936BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ The Uchpochmack (Земфира) - First & Last (Single) (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:FBE4DD6A39301038453301D82FA0DADB5FEED42D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF219B4AA7186E4A436A5D2BB6DEF4001EDA5430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

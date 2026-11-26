@@ -19,8 +19,7 @@ Platypus 2 / Платипус 2: Пластилиновая война (L) [Ru] 
 ```bash
 magnet:?xt=urn:btih:7F8D28E7D3421D3462273E9629E1DAC396D974B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vampires vs. Zombies / Вампиры против зомби (P) [Ru] 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dynasty Warriors 6 [Ru] (RePack) 2008 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:21B39F498DDE83A48AC7DDA12A42777B3038BB16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

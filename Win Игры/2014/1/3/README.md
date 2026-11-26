@@ -19,8 +19,7 @@ Dangerous Games: Prisoners of Destiny (2014) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:6A091407EF81E6F4774661448E0E2EC398BF903F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Awakening Kingdoms (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:28AAAAD53B763770956A561F3F0886115B508641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mexicana Deadly Holiday / Мексикана: Смертельный отпус�
 ```bash
 magnet:?xt=urn:btih:AFA458768AA50396C45645D6D0C8BE2EC72814B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sphere - оригинальная головоломка с видом от пе
 ```bash
 magnet:?xt=urn:btih:9792A8A3DBD8BAB1527FB1BC9BF4469DFDB787AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Resident Evil® Revelations после доработки снова на пла
 ```bash
 magnet:?xt=urn:btih:DCE1EC44E4D316731B165AFA14AC0E7DE98F6CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

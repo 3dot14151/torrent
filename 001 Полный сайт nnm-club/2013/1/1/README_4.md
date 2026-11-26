@@ -20,8 +20,7 @@ Rosario + Vampire season II / Крестик + Вампир II (2008) [59 гла
 ```bash
 magnet:?xt=urn:btih:D5398A098FC41014A79AC3942A295258DA1A0728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ New Super Mario Bros Wii The Next Levels [Wii] [ENG] [NTSC] (2010)
 ```bash
 magnet:?xt=urn:btih:5E94E8F99F309ABB06681D7DF1F0DD280C11AD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Adorage Light Transitions HD RePack by PooShock 1.0 [английский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D81FED839235D945D4ED9414C436B29218B7144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Kane & Lynch Dilogy [Ru/En] (RePack) 2007 - 2010 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4D210B26108B563B85EBCBD384C4BB07E73C64A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B9FECFA052C8080F1AAACF143D435C59E010081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Shank: Dilogy [En/Ru] (Repack) 201 - 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:82805D731E7050F6C17AE523F7DAED9B52CD3BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Shank 2 сразу хватает быка за рога. Только вы вк
 ```bash
 magnet:?xt=urn:btih:18FDAF5F8FE30592A35778718A732F04B69D3637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Kane & Lynch Dilogy [Ru/En] (Rip) 2007 - 2010 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:599326B68F6139CD2E0C18CDBAA55813EA4E42CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ Minecraft - игра жанра "песочница" с видом от перв
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ AntiWinLocker LiveCD предназначены для разблокировк�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E1044AB335B6275C6346ABEC000B34BA80A7907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA730279E1D377E67FABD9F54024377BD7732E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Age of Empires / Эпоха Империй [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:FF7BE39D6717E44079E683DAD284D61EC7D89998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Halo 2 - долгожданное продолжение небезызвест�
 ```bash
 magnet:?xt=urn:btih:241632673F2BC18B21F31C60D1119BC23F2CDE0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

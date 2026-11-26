@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:10E49ED8CFC20207DB8C92DA983202EF8C736AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB5CF0C14350C179A68798FDF3B7D98278EE7793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAB4287545C58974D4916219E7D6B31DA919BA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Awards Promo Opener - это проект премиум класса. Можн�
 ```bash
 magnet:?xt=urn:btih:584791843556B62A0CE5E6C9AD56469C8758B890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6D907F6FDB439E85E6E4C168DF8E4CF95E6E0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Enemy Territory: Quake Wars (2008) [PS3] [EUR] 2.30 [Cobra ODE / E3 ODE PRO ISO]
 ```bash
 magnet:?xt=urn:btih:A1CD8B392DE25644876D0EF6E5E10C5A78FBC41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F05023A3114784E729ECBC7E197B518C3A05F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B12CF8E2D5DF75968906616D1265DD0E1D3B98CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEAEE169B8501F3327BEDDC003E6241F6D3C3D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Grungetastic позволяет обработать ваши фотографи
 ```bash
 magnet:?xt=urn:btih:22CFE381A3917632062C676C5613BB814B1804C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A540F6CD7EC0227384D47407D34C1BC8993BC933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Ubuntu BusinessPack 18.04 (август 2019) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:096AE5721483A00A57D3E708CB9FDBB624AF4030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ VideoHive - Corporate Swipe Slideshow - 24325057 [AEP]
 ```bash
 magnet:?xt=urn:btih:103164E0D18637070C76B04DA10AE931384CEEB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F2AF3B47E8FC78CFD4FC1B13622EC33BBE4E75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ VideoHive - Clean Corporate Broadcast Intro - 10702837 [AEP]
 ```bash
 magnet:?xt=urn:btih:C9270EA6CFB1519685F70837F5F3FEFE599A3973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ Armin van Buuren - Balance (Extended Versions) (2019) [MP3|320 Kbps] <Big Room H
 ```bash
 magnet:?xt=urn:btih:26F9C1FDC38C35BA14F010B332E9C04EC807B3B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9084B48AC8FE593EB0F655615FD490B789FCDBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) HDRip [UKR] [Line]
 ```bash
 magnet:?xt=urn:btih:E80B1239B28C8A759B3F82305A0C68DC9F81F49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C90881750D21812E7C27939B892EC44244139D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4633BE5481C422BEC588F96D0444BD9D99612A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +575,7 @@ Homefront (2011) [Ru] (1.5.500001.0) Repack xatab [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:015B6F4137E5F0769CD69529EB67CE014C2761C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264/1080p-LQ
 ```bash
 magnet:?xt=urn:btih:EE14FD0F35A4428F797A89F4148AC50A5436678C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +625,7 @@ Movie Park | Видеокурс по видеопродакшену, съёмк�
 ```bash
 magnet:?xt=urn:btih:0073B31A630FEBBAB9781CAD92A02BFDE18E4814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +650,7 @@ Homefront (2011) [Ru] (1.5/dlc) Rip Other s [Collection Edition]
 ```bash
 magnet:?xt=urn:btih:D1F90637CBBB74AC7F8695C850EF7BD5BF82BC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

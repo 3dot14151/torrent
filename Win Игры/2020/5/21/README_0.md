@@ -19,8 +19,7 @@ Neversong (2020) [Ru/Multi] (1.0) License GOG (обновляемая)
 ```bash
 magnet:?xt=urn:btih:007A83D5DE40BF0FA2FF59BC4EF0815764A420EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

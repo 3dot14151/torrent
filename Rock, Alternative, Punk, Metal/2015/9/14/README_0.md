@@ -22,8 +22,7 @@ Wolfheart - Shadow World (2015) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:CB3E2EF69352C873C460483BE8301BF719F4500F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Grand Tour - Heavy On The Beach (2015) [FLAC|Lossless]<Neo-Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:8D51951BC18A324228C0D342E38ECA73788ECB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fear Factory - Genexus (2015) Japanese Edition [FLAC|image+.cue]<Industrial Groo
 ```bash
 magnet:?xt=urn:btih:1AD7337343D1331508EDD47155467CD12DA825BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ My Dying Bride - Feel the Misery (2015) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:CD7988D8DF0B85FE40A051F2E15DB98FC2D5A1A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Territory - Killer Instinct (2011) [FLAC|Lossless]<Heavy/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D1D96B4821B1239702114C7A8AFA7D8D64BCA49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rammstein - New Collection (2008) Compilation[FLAC|image + .cue]<Industrial Meta
 ```bash
 magnet:?xt=urn:btih:FAAD31C207CB1AAA5C78718F47801734EE56DE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Brutto - Родны Край (2015) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:F6C702617ABDC8F7E53EA54CEBC23A8A2AD6C70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

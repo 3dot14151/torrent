@@ -19,8 +19,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (1.1.1a) License GOG
 ```bash
 magnet:?xt=urn:btih:C684885C72AE97BA74334C25678AB662F798A184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ My Little Pony: A Zephyr Heights Mystery отправляет игроков в 
 ```bash
 magnet:?xt=urn:btih:0AF8B33375E3FF0822A0EA87A19DB8FA28AE8EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ My Little Pony: A Zephyr Heights Mystery отправляет игроков в 
 ```bash
 magnet:?xt=urn:btih:7B89D7BC2DDEB1BF60262801E425F169449F8A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

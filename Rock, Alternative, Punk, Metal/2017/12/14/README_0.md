@@ -22,8 +22,7 @@ Asking Alexandria - Asking Alexandria (2017) [MP3|320 Kbps] <Metalcore, Post-Har
 ```bash
 magnet:?xt=urn:btih:9574910624A20CB5548FA014EB84737BA904CAA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Linkin Park - One More Light Live (2017) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:46FEC739846A5978ADAA4553249694BDB23E2599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

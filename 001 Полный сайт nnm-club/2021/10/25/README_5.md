@@ -20,8 +20,7 @@ Feeder - это полнофункциональное приложение дл
 ```bash
 magnet:?xt=urn:btih:5B7B89DC3BC01CB65D074403DC97389B3FB103A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ S.E. Project - Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Death
 ```bash
 magnet:?xt=urn:btih:94224C811954D7E36265D174918BA87CEDE6EEFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - Harabe Daydreams II (2020) [AAC|~324 Kbps] <Tech House, Deep House, Techno>
 ```bash
 magnet:?xt=urn:btih:C23D77D07046CFA3CE47A1FA60F9A9FBCDED2DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Harabe Daydreams I (2019) [AAC|~309 Kbps] <Tech House, Deep House, Techno>
 ```bash
 magnet:?xt=urn:btih:29EDE6DC920A29610916BFCD0CFFB3905838E343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ iBoostUp Memory Booster позволяет вам просматривать п�
 ```bash
 magnet:?xt=urn:btih:05476B2489E4DFEB4DD0761DCCC12F90B2530899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Acoustica Premium — многофункциональный аудиореда�
 ```bash
 magnet:?xt=urn:btih:3EFB8045E056B27D006D66D3A3C69B28C893553A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ SuperDuper! - утилита для клонирования жесткого д
 ```bash
 magnet:?xt=urn:btih:3870BF9612B9BFE05160A37DD9B12727CBD16984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ MacMagic может помочь очистить гигабайты диско�
 ```bash
 magnet:?xt=urn:btih:CD212F7F32F589C19F4BCC96EADB230D75241AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Harabe Daydreams III (2021) [AAC|~319 Kbps] <Tech House, Deep House, Techno
 ```bash
 magnet:?xt=urn:btih:A0DE2E52D22879C030FED5512962CA6E12E0FAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Librarian Pro 7 v7.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:46018A129131A8BF56BBDBC63D86B2020C7E4B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ SideNotes - это боковая панель, которая заполнит 
 ```bash
 magnet:?xt=urn:btih:9461261CED98E80EBB62A27B821C8D5B02A0612C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Kaleidoscope — приложение, предназначенное для с�
 ```bash
 magnet:?xt=urn:btih:F9C35778A044E8A43272EBE3163CAB63F7DACC20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ PDF-компрессор предназначен для сокращения р
 ```bash
 magnet:?xt=urn:btih:035D6291D055DF5E4CBA8524AD05C15E9E109E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Affinity Publisher 1.10.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3876E1E44533A6F1E156BEE130A70383D8413330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:DA875DCB08195F9D437E3B8921577176D4DA206F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Switch 1.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:6434930D9AB896F419836A8BBA22ABDA9745BFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC161115573FBA096336A148BF6BD333E58F2CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Buddy Tate Meets Abdullah Ibrahim - The Legendary 1977 Encounters (1996) Chiaros
 ```bash
 magnet:?xt=urn:btih:0F535832130452F7C61F49313C21A968240811A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ TunesKit AceMovi Video Editor может отличаться от множес�
 ```bash
 magnet:?xt=urn:btih:BF483235514B14FA338B97C8B1CDB4DFF6B5C231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B174DA643B2E6D36B8EEB622B69A2888989587C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ Sepultura - Roorback (2003) Remaster, 2021, BMG Rights Management [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:074971A5AA16383BCD2658BF77E31EF55B93D984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65D185E8DF01A006CBB532F61B74487AB8BC599B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ Kfir Ochaion - VIII (2020) [AAC|~282 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:A4E12D619729EB40B0E0FF8350D3FB3D52AB0914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ We're Wolves - Evil Things (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, 
 ```bash
 magnet:?xt=urn:btih:E747415664DF7A9F226FD5B297EAB0E3C50DB3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ Affinity Photo переопределяет границы профессион�
 ```bash
 magnet:?xt=urn:btih:5AAB0F1331FF1A079895D86026A17C6B3A255FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 ```bash
 magnet:?xt=urn:btih:19CCE92990419665AF7405426BFC1B64AB73B82F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

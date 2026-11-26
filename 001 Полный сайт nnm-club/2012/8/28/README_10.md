@@ -26,8 +26,7 @@ Jagged Alliance: Crossfire – это полноценное дополнени�
 ```bash
 magnet:?xt=urn:btih:E3C2B1D2B5496D6919F30D0288650B3FA28665A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Galaxy on Fire 2. Full HD [Ru] (RePack/1.0) 2012 | {AVG}
 ```bash
 magnet:?xt=urn:btih:CDE112C3540557358046BAD427AB0EB436BDCBB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9B1FE37E04598F706BAA9CD6074084106932FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Animated Canvases Collection 08: Open Spaces - Подходящий момент
 ```bash
 magnet:?xt=urn:btih:70D494CE65DE09AE519493356E44FCB9D72868D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ True Crime Дилогия [Ru/En] (RePack) 2004-2006 | Mailchik
 ```bash
 magnet:?xt=urn:btih:721244CBC6CF1E61298CDF963B059C483B05D697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93BD2E86B7C480DF4C97794711BCE8D9C362F767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4F7A73AC1829BC6C37B38151766ECEAEAADABA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Fallout: New Vegas Ultimate Edition [Ru] (RePack/1.4.0.525) 2012 | Audioslave
 ```bash
 magnet:?xt=urn:btih:30F3EE4BEB3F1D7C9DC02067FBD3DE2235DFCCC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63600EE4CB76B5EF28188BC58F8061E2BE6EA9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Fallout: New Vegas Ultimate Edition [Multi4\+] (Steam-Rip/1.4.0.525) 2010 | R.G.
 ```bash
 magnet:?xt=urn:btih:739E04EF81D81F11EFE50F8FDE1CA4EFF15151EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ The Elder Scrolls V: Skyrim (RePack/1.7.7.0.6/DLC) [Ru] 2011 l R.G. Origami
 ```bash
 magnet:?xt=urn:btih:6F5990933052E4B0AC5D6775CE6A7A8EE892E47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4777433CD7877783CEA980639D0518AE44430C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ Aliens vs Predator [Ru/En] (RePack/Update 6/DLC) 2010 | z10yded
 ```bash
 magnet:?xt=urn:btih:5957CB04FBBB1B28C91B1FFCCA2B3D0475B9FE00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE6B5C93FC0FBCC10B2B624E85E89C8D133B6370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ Animated Wipes & Transitions Collection 1: Striking Changes является п�
 ```bash
 magnet:?xt=urn:btih:DAF194A655FEDAEBB1DF174AD2381FF23936AFF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEFBBCAAD3D4FE78456DC92000798CD039368B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Jagged Alliance: Crossfire / Jagged Alliance: Перекрестный огон�
 ```bash
 magnet:?xt=urn:btih:B3B3A2F7D5695AABA69F10444D8C448F6969698F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ Metro 2033 / Метро 2033 [Ru] (Steam-Rip/1.2) 2010 | R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:932B5A35D7EA07E2CB4D98D877395044C60F83CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ WinRar – Один из самых известных архиваторов. �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ Age of Empires II: The Age Of Kings — компьютерная игра, ст�
 ```bash
 magnet:?xt=urn:btih:CCCC3F73708360E3EC77F8162A377DFFA9F546A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ Adobe Photoshop Lightroom — это известная в среде фотог
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:974EF53C257189B3923BCE1681F20903B205E972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Bonfire Stories: The Faceless Gravedigger / Истории у костра: Бе
 ```bash
 magnet:?xt=urn:btih:4F4C4BC4E1FCF000A3AEB30A39BC079E210CAFBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ICED (2017) [Ru/Multi] (23.05.2017) Repack VseTop
 ```bash
 magnet:?xt=urn:btih:98A3B1B70858694ED1162BE2ADA35A2966BE7271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Inversion (2012) [Ru/Multi] (5.48) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:39E71B446B013876E433D6027C4186282B4CAD0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Sea (2016) [Ru/Multi] (1.0.3L) License GOG
 ```bash
 magnet:?xt=urn:btih:7404B2CA38E1616F1A741409A990639BB085C466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Saints Row: Gat Out of Hell - это самостоятельное дополн
 ```bash
 magnet:?xt=urn:btih:51375ED827C922E5533692BCEF52C028E508118A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Anno 1404 (2010) [Ru] (1.03.3650/2.01.5010/dlc) Lossless Repack R.G. Catalyst [G
 ```bash
 magnet:?xt=urn:btih:5E0BF41C3410EAA9D124CABEDC58349CCD446F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

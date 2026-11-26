@@ -19,8 +19,7 @@ Old World - это историческая стратегия, в которо�
 ```bash
 magnet:?xt=urn:btih:7C9E5BF2383B7376CCF37A1E2C9478D104233BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ METAL GEAR SOLID Δ SNAKE EATER (2025) [Ru/Multi] (1.1.4/dlc) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:9C2899FA764042432EC953D2430DA2C220051784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sins of a Solar Empire II (2024) [Ru/Multi] (1.45.9/dlc) Repack Let'sРlay [Prem
 ```bash
 magnet:?xt=urn:btih:DA37D4831CD41FE91534054EC37CF3F96A247B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (738144) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B2F0B8D68D5CD1106D94229C5B28C82C6636B9A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:9E6D174FC5F1AFBC48C39AE4E92FE8B5A74DE582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ BeamNG.drive – автосимулятор, моделирующий повед
 ```bash
 magnet:?xt=urn:btih:A3E1708573BDB02A53D70D57EBEE12C0AF7AC64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F501FD6EA91AC7150AD5F2A91D86CDA1D0EFE78E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) Repack Other s [The Galactic Te
 ```bash
 magnet:?xt=urn:btih:94146C276335D522E7361DD4FB79071AE4050525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

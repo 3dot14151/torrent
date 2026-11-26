@@ -22,8 +22,7 @@ Steel Raiser - Unstoppable (2015) [WavPack|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CDD1464D886BFEEDAF44CB7CD05E2245047EEFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kissin' Dynamite - Money, Sex & Power (2012) Japanese Edition [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:3577F835D9D960AF751308C047704E6746C25416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The New Roses - Dead Man's Voice (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:78ED523DFB9A91379ECA08B760FB86A733EBE3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Paul Simon - The Paul Simon Anthology (1993) Unofficial Release [APE|Lossless|im
 ```bash
 magnet:?xt=urn:btih:F5A485A0B3E6EA1561E6CFFEC96486B773AF439E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tanzwut - Schreib Es Mit Blut (2016) [FLAC|Lossless|image + .cue] <Folk Metal, I
 ```bash
 magnet:?xt=urn:btih:0A9BF8D1F69073AF83EC67E2180151186F2A6619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Great White - The Essential Great White (2011) 2CD [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:2E7621A76408EBD2899AF48567621FB8F5B3AF03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Roxette - Joyride (1993) Unofficial Release [APE|Lossless|image + .cue] <Pop Roc
 ```bash
 magnet:?xt=urn:btih:3956FED17D3CE28550DF3BE04B328F0CA02DB34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Despised Icon - Beast (2016) [MP3|320 Kbps] <Deathcore>
 ```bash
 magnet:?xt=urn:btih:3B51D51784F842ECB5588260A7C242655D4E4036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Chastain - We Bleed Metal (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:702F58EF2086274E087983FE2D2E0E0603152D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:B9080A9B581E5232AE2B34162AD02134BF867FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

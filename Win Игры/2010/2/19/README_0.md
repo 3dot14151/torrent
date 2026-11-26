@@ -23,8 +23,7 @@ Mind’s Eye: Secrets of the Forgotten / Забытые секреты (P) [Ru] 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

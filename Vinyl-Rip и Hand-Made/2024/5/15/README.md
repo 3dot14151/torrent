@@ -22,8 +22,7 @@ Freedom Call — немецкая пауэр-метал группа, основ
 ```bash
 magnet:?xt=urn:btih:5B3B1A5274A55E651DDADB5A18900732D8021049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

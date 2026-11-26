@@ -22,8 +22,7 @@ David Crosby - Sky Trails (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock, 
 ```bash
 magnet:?xt=urn:btih:6B6B3B698E2CEA4A25A25E19885FB38A901E2B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gary Moore - Blues And Beyond (2017) Box Set 4CD, Limited Edition [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:45E5B6869581F7C951E69275B970237721C55BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

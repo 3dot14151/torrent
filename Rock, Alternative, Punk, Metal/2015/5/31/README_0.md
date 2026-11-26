@@ -22,8 +22,7 @@ Mount Shasta Collective - Beast (2015) [MP3|320 кб/с]<Post-Metal, Post-Rock>
 ```bash
 magnet:?xt=urn:btih:8D2CD07CFC69C64AF159C8A2C46AB8977DDBCAE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Direblaze - Direblaze (2015) [MP3|320 кб/с]<Death Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:406C43E1B2EF923BA00B14D1C87C0B88E94D7D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Vermillion Road - Palaces (2015) [MP3|320 кб/с]<Modern / Hard Rock>
 ```bash
 magnet:?xt=urn:btih:649E2CD10738503F20F7B7F04814A8593DA73A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sister Sparrow & The Dirty Birds - The Weather Below (2015) [MP3|320 кб/с]<Fu
 ```bash
 magnet:?xt=urn:btih:E48BB51CACEC0ECFCD819DB0716CA424D9F2087C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Signum Regis - Through The Storm (2015) EP [MP3|320 кб/с]<Power Metal, Melodi
 ```bash
 magnet:?xt=urn:btih:1C3084AE48BCAC0E6215E49E91F3CA6E6CC46DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Perzonal War - The Last Sunset (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Meta
 ```bash
 magnet:?xt=urn:btih:25E08EABACFD1C4C651B1A1561126098649959EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Thurisaz - The Pulse of Mourning (2015) [FLAC|image+.cue]<Melodic Death/Progress
 ```bash
 magnet:?xt=urn:btih:1A6928972184BD04F9A2778AD35AB2E453283C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Luciferian Light Orchestra - Luciferian Light Orchestra (2015) Limited Edition [
 ```bash
 magnet:?xt=urn:btih:B1A4425F5D14108E93EC0E04BE989064C9EA544C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Paradise Lost - The Plague Within (2015) [FLAC|tracks]<Doom Metal/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:90A95B3FA908B687DFD00A752D3EE583AD26B9BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Muse - Drones Singles (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:B202485325B22EB66053D88428DFD2CDFE1141B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ John Lennon - Icon (2015) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:DA34E975E215ED6DAD6509658D7B9D4176EC08A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52595FE27775DF074275786C610AD083C74F25D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEE6A209DC7E6102489691C3EF60F8059BA8D71F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

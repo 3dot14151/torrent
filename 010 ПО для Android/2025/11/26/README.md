@@ -19,8 +19,7 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:1B67FC982B57781CD223FBCE508E1331971F8037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ProShot v8.32.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B9DB622851B136356EA41405D30D8D6A5C593967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Smart AudioBook Player Pro v11.6.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0294A94277BB6BE8D31C7AA46E82AE5720D96A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AI Photo Editor Pro - Polish v1.693.239 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:08C13BA941789E0552E05608AD9D3A27287CAFEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:28EFF3DD58A2FD68C144D65991CDEC7D24E418E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:2896E2EF1BB058EBCE281D49C3F0C4FE1835D18B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

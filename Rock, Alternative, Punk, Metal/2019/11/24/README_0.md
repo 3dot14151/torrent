@@ -22,8 +22,7 @@ Machine Men - 3 Альбома Collection (2004-2007) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:CFCB40749EFB4093B28F0847712C3EA52A22D63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Fools Faith - 2 Альбома Collection (2007-2011) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:0FC3ED4364D32E787A3BB33DE1309928C1DC5CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Winterborn - 2 Альбома Collection (2006-2008) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:F95741C3B10A8B3FE21E4BEC1DFFDF737620D79A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Birtha
 ```bash
 magnet:?xt=urn:btih:6CD27B572C83474837E964FED53F0BD161A2F590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Aftermath - Natural Destruction (2003) [FLAC|Lossless|image + .cue] <Technical P
 ```bash
 magnet:?xt=urn:btih:B9AA6D34CC4E34F93FA30C425C464E1F5943417A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

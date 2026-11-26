@@ -18,8 +18,7 @@ Wicked West (2025) [En] (1.0) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:460FA3DCC98B77DE656814F7BDD18BA4EC79AFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Tavern Manager Simulator - это увлекательный процесс во
 ```bash
 magnet:?xt=urn:btih:0656E6DDED7519C6108AF4F98AD81A0F751B4B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Miraculous: Rise of the Sphinx (2022) [Ru/Multi] (Build 10128456) Repack Yarosla
 ```bash
 magnet:?xt=urn:btih:03B5DE4001212A6BBAD13204BD8D442C518296D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Builder's Journey - это лирическая головоломка, кото
 ```bash
 magnet:?xt=urn:btih:B1E8BA6661160891564D369BDCF1714349C79E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Hotline Miami — это взрывной боевик, брызжущий на�
 ```bash
 magnet:?xt=urn:btih:5B6EA2B4A0C6166721DCB549B5DD999156B96DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ The Riftbreaker (2021) [Ru/Multi] (2.0/dlc) Repack FitGirl [Complete Pack]
 ```bash
 magnet:?xt=urn:btih:DCDDBFB20B3A64FF1CB776C964FB9525A8FCC7E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

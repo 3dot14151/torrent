@@ -19,8 +19,7 @@ True Fear: Forsaken Souls (2014) [En] Unofficial [Collector’s Edition / Кол
 ```bash
 magnet:?xt=urn:btih:AF8CD9E85CF8C6BDD5120B91A218CC8529D8A29F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Train: Spirits of Charon / Поезд привидений: Духи Х�
 ```bash
 magnet:?xt=urn:btih:34C359CCBDF2EDF503D2EA4F0391D9E612CA8360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Danse Macabre: The Last Adagio / Танец Смерти: Последнее А�
 ```bash
 magnet:?xt=urn:btih:D0818A00C3F31F5AEACCD78C7E773C64319AFFEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Pid – платформер, где вы выступаете в роли ма�
 ```bash
 magnet:?xt=urn:btih:C864BF09ED68771419002694B6AF260405446B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

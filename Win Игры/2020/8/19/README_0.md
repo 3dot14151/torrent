@@ -19,8 +19,7 @@ Worlds Align 2: Deadly Dream / Слияние миров 2: Смертельна
 ```bash
 magnet:?xt=urn:btih:46645A9232ECFFA9FCE425DEDE541CF214BF4232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

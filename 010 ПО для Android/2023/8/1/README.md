@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D8FB08BB6BCFE5DCEAD71503CC1E3D7483A971A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Remini / Улучшение Фото v3.7.314.202248013 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2E5DEBF3DF065821BFDF0E5044D9A2E39F169E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ QontrolPanel — это расширенная аудиопанель для Win
 ```bash
 magnet:?xt=urn:btih:AC0421C97AD81BEF1115C892A75410F5548408F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Zettlr 4.10.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:355A4FC1E62F5D9561DBCB72AC3307A039176B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ DiskRaptor 1.0.54 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CD864EBC3A62CA8A5F1E83DEBB75D3463FC309BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ ShowWhatProcessLocksFile — это инструмент, который иде�
 ```bash
 magnet:?xt=urn:btih:F9CC07874608989899B37388CD5A8CED0E1F601E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ RightClickTools 2.0.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5329178705EE11BD9E9F246EBCE0AD93E4DC282A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Filee 2.4.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0904F73A41D3B36367A1F425E86160950417BB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:643B83E66C8A03D17541C30DE53F49F407850FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:F0F6C5A6F1255AAB4A062BD1741CE377F1B59692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Camtasia захватывает действия и звуки в любой ч�
 ```bash
 magnet:?xt=urn:btih:45DBA282209733581A1498D82107026516FCCF7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ PrivaZer – полезная утилита, которая поможет ва
 ```bash
 magnet:?xt=urn:btih:E762BC3301D9FC7CC064F5A29A713E389C6CCF36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ OnionFruit™ — это прокси-шлюз Tor, который запуск�
 ```bash
 magnet:?xt=urn:btih:5679E1B5CE48F480D48D7ED0E9B91B3AEFEC0A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

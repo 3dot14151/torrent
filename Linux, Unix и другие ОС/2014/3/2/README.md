@@ -21,8 +21,7 @@ Manjaro Linux 0.8.9 Ascella  (Arch + зоопарк рабочих столов)
 ```bash
 magnet:?xt=urn:btih:5D7E5B900A864BF5D98DD72E87CC1F3B34051278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Manjaro Linux 0.8.9 Ascella (Arch + зоопарк рабочих столов) 
 ```bash
 magnet:?xt=urn:btih:516B4096A56C902AF39E849603363993B1082DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

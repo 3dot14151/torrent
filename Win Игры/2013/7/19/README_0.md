@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7C6BADC797C61DCEE289340110EC38838FA527E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stray Souls 2: Stolen Memories Collector's Edition / Заблудшие души
 ```bash
 magnet:?xt=urn:btih:CB1FB854508FDB9158EB06D057101E7AA6B57B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bastion — ролевая игра с принципиально новым в�
 ```bash
 magnet:?xt=urn:btih:EE53AF3A90F6382CFD097D5744E72D7D3E8ED022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

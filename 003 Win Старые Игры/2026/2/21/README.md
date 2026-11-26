@@ -19,8 +19,7 @@ Mafia: The City of Lost Heaven / Мафия (2002) [En] (1.2) License
 ```bash
 magnet:?xt=urn:btih:A543B4C39E3FEF59B941771FB2FF0680BE00071B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Total Overdose (2005) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:DB7206C7B3AD588B8CFAA8AA2EFB7EFB9B0913EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Grand Theft Auto III (3) (2002) [Ru/Multi] (1.1) License
 ```bash
 magnet:?xt=urn:btih:A1DAE7B5B190FC80E28B52D44F9DB3A9D0C0E1E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

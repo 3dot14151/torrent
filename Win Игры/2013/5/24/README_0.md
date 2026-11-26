@@ -21,8 +21,7 @@ Twin Sector (2010) [Ru/En] RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:063FAA05EC618282FA434DB653F9ED6FD0727630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Cave — новая приключенческая игра от автор�
 ```bash
 magnet:?xt=urn:btih:8B33F4A3E46C109DD4E5AB9768D0E2978BFEBD21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Antichamber (2013) [Ru/En] RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4EB13644A9B490E6CAD3A74E6E97EAA8DEC32FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Brutal Legend повествует о рокере по имени Эдди Ри
 ```bash
 magnet:?xt=urn:btih:404E415E91D9D43CAE43C73115DAF6473181FC6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

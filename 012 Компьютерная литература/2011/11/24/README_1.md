@@ -19,8 +19,7 @@ Mark Christiansen | Adobe After Effects CS5 Visual Effects and Compositing Studi
 ```bash
 magnet:?xt=urn:btih:A50005716EB7E16CBDFE2CCB3B5E2D86B545C08A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

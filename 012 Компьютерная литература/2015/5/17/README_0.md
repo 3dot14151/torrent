@@ -19,8 +19,7 @@ Jeff Knupp | Writing Idiomatic Python 3.3 (2013) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:DEE25CE7B2F9C1BD52BAA70A1718F56883AD26CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ferdinando Santacroce | Git Essentials (2015) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:2F6F8303DA38006C462F29BC27EE265863C942C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bryson Payne | Teach Your Kids to Code: A Parent-Friendly Guide to Python Progra
 ```bash
 magnet:?xt=urn:btih:C7C1C21423184E1E4F335BCB74454E5EE2134E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ S. Millett, N. Tune | Patterns, Principles, and Practices of Domain-Driven Desig
 ```bash
 magnet:?xt=urn:btih:8F05FB136F8CB15EEE2F9BA81C0BF90EC20FAD27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85737E01DB7660559F73FA4B6064311A5B94E8A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D356759613E2838B91AC7489B895B16E50A2A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

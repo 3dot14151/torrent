@@ -19,8 +19,7 @@ Emberwing: Lost Legacy / Эмбервинг: Забытое наследие (20
 ```bash
 magnet:?xt=urn:btih:EEA32A5911EAF2EFD3000391592B41D7B37F91EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mysterious Oasis / Таинственный Оазис (2014) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:C7564C938EB68E07205A16B12C175EF28CBE3F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Girls Like Robots – интересная игра, сюжет которой �
 ```bash
 magnet:?xt=urn:btih:EB0E02B01848F42BA404582AAB03E6B3E834ADCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Mystery Trackers 7: Blackrow's Secret / Охотники за тайнами 7: 
 ```bash
 magnet:?xt=urn:btih:46BF5085DB3D879D91855E11C01E23BC64A085EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Anomaly 2 — продолжение успешной стратегии Anomaly
 ```bash
 magnet:?xt=urn:btih:94958BF731B590B30772D104CE92B9527526775C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Super House of Dead Ninjas (2013) [En] (0.9.6/dlc) SteamRip R.G. Игроман�
 ```bash
 magnet:?xt=urn:btih:7B28FAE3AEEDE0DCFCF21317D4F68D7542510337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ How to Survive - это экшен про выживание среди сред
 ```bash
 magnet:?xt=urn:btih:883987A4E4002B08CB88E901787E60740863B0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Hack ’n’ Slash – приключенческая пазл-игра о ха�
 ```bash
 magnet:?xt=urn:btih:5C1261902B6713A23B6252AFBAAD9F3978081E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Ikaruga (яп. 斑鳩?) — это игра жанра shoot 'em up, разра�
 ```bash
 magnet:?xt=urn:btih:72340B554C05D823F4F8CF27CD770415E5737B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

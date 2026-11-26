@@ -19,8 +19,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:09A68FAB114C055D1C66F296E346CA1587A92AA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3505FDC56E778556ADD4A7138936DA801704C9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5273DADE13FE1F8DE23E3A0BF94382CC59DAA7D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D59003797683D6724312F2FA38FF73868E597965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77545327D26F68F84B979429075A33A621CA198C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Smart Tools® 2 - это расширенный набор инструмент�
 ```bash
 magnet:?xt=urn:btih:D480289A267AF9E7DEDDD95322EF975793A8BD50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

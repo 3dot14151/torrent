@@ -19,8 +19,7 @@ Tzar: The Burden of the Crown / Огнем и мечом (2000) [Multi] (1.01) L
 ```bash
 magnet:?xt=urn:btih:17858DC033C1BABEBC7FCA15F4FBA21A62D80FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:0533F140DC8207F00FF4EF8A42A28894A7FA35F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ NG. Icons of Power / Лики Власти (2006) HDTVRip [H.264/720p] [1-4 се
 ```bash
 magnet:?xt=urn:btih:CFEEF69C1A883AE06AB5C2D55E15E0555126A22A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ FotoSketcher — простая и небольшая программа, соз
 ```bash
 magnet:?xt=urn:btih:17109E7DA32E52A35A01470D4F4046E4DB4824BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ XXII Зимние Олимпийские игры. Сочи. Хоккей. Же�
 ```bash
 magnet:?xt=urn:btih:7243E8094D2D52C481F17BB13A99B4B35233067D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Far manager — Бесплатный файловый менеджер с под
 ```bash
 magnet:?xt=urn:btih:FCD6A7205F74774F4B6906EDDFA23089718FBAC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A2031967294A72834328F771049256B45008DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3353B922EECCFB5826911C5768402A9BDC0D613A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - Музыка любви (2008) [MP3|320 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:722FE50DCDBDD9BE1EC586E48F7F263AF028C850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (09.02.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:358E50D1E073F4ACACA2C298C81F37F5F96B59DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30FFB02466AD575479544C8CC6353F8EA67740A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Smith Micro ScatterShow предназначен для тех, кто испо�
 ```bash
 magnet:?xt=urn:btih:2532C4C77E16F1925E7E9AB39F481BE02BB97B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Portrait+ Неплохая программа, которая автоматич
 ```bash
 magnet:?xt=urn:btih:E633A6D16FFEC40EACA0BA8FEE5A0A98CABA76F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Fancy - DiscoFox of the 80's, Vol. 1 (2013) [MP3|320 кб/с]<Italo>
 ```bash
 magnet:?xt=urn:btih:8FE1B61A5C4BB510F25A1D6E63A71CF49F29BC1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ Apocalyptica - Apocalyptica (2005)U.S. Edition [ALAC|Tracks]<Cello Metal / Symph
 ```bash
 magnet:?xt=urn:btih:D999A1DF5E5D76A850D06CDB84DDBFA497236223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Joe Basile - Rome with Love (1995) [MP3|320 кб/с]<Easy Listening, Accordion>
 ```bash
 magnet:?xt=urn:btih:C360FC103AE634B85E4CD998E0FA3E7493FC0F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C7D9B2AB5DA0EB9B3E560074C166A60C2C700A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B18E2CD8C8BA1CA829D453540D9D682A3DC6D4AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ Cлeдoвaтeлю Лeкapeвy пopyчeнo выexaть в дaлeкий cибиpc�
 ```bash
 magnet:?xt=urn:btih:89E6A36E1B32570ADEFCF58CC10D21ED15E8617E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:481747993754FC3F6FA3A41563ED40B90F2FDEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39B45B1F7A122D3C9489BBADABC658E505D97694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:900AE35FB3C036C1386F26CBF53A54E41E7F5452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:0607FB3006A173752A36C0AEF3DCEA080718BC45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76D13AB9AC0DEC84886200DCA3F0F5D662BA5C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E7111C96F3564851B930ED0BDB506482F1891D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA71DBB61B4960526E7EAE85A5F71CF55B4FCEFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

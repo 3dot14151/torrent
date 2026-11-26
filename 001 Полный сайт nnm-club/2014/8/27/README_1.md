@@ -27,8 +27,7 @@ Travellin' Brothers - Red Hot & Blue (2009) [MP3|320 кб/с]<Blues, Funk Blues,
 ```bash
 magnet:?xt=urn:btih:F65416BF9150C10EA3D1F1E10F016D0D387F6205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ MainMenu Pro позволяет добавить новое меню в сист
 ```bash
 magnet:?xt=urn:btih:68EB8AE4FEBFF925EA4704F2E14C1778BC0ABFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Jessica Hernandez & The Deltas - Secret Evil (2014) [MP3|320 кб/с]<Alternativ
 ```bash
 magnet:?xt=urn:btih:65C52BDDC2A108B3EBDBFE9E67DA38558FDA8CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9CA1F604C812E9B3C5A53A98168B8F9E938C779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECA639B9AD25FF91C660A318EF5D5FC7EB09ACE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Archiver для Mac OS - Быстрый и удобный архиватор, к
 ```bash
 magnet:?xt=urn:btih:BD4EDFB397A2E4AE2949992D1FC21E7D59ACC0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49467C8A4C7223690A0544ABD69F7764FE743D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CC29CEAD416397407CFFF52CCFA8D0488B214A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ Blonde Redhead - Barragan (2014) [MP3|320 кб/с]<Indie, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:834587EDB19A627E1E0104692A33D8B00E95CCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ Ashampoo Photo Optimizer - простая в использовании прог
 ```bash
 magnet:?xt=urn:btih:45A4B729E100D9BADD8C551A1C5AE490CDECE952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ Eilera - 1 EP, 2 альбома (2005 - 2011) [MP3|320 кб/с]<Gothic Metal, Ro
 ```bash
 magnet:?xt=urn:btih:2486CD0CB7D154F53DEB7A1DBD25622D551579F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Razor Edge - Emmit (2014) [FLAC|Lossless|WEB-DL]<Industrial, IDM, Hardcore, Ambi
 ```bash
 magnet:?xt=urn:btih:3060D513DD2CA5D8D2E3D8DCA2A25AF5CC92D4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8146C915DC302EA41931C5648C1E541A14833794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:1FFA13B4C82DD4F2571BFA3E24FC1D290CE44183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +424,7 @@ Icecream Ebook Reader - бесплатная читалка книг в FB2, MOB
 ```bash
 magnet:?xt=urn:btih:7EAD689AD2DEA322722EAF7A338A1456DE82793E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4CD69E087A9CF0EF5F3B50A42276E04E51F75A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ VA - Us And Them A Delicate Saucerful Of Pink Floyd Covers (2011) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:66F7191748D817F2FFA897152009B5DE048056DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:A535608A1AC43127232BEC2A20F977D93CF85C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +551,7 @@ NeSezone - Сыпется песок (2012) CAMRip [H.264/720р-LQ]
 ```bash
 magnet:?xt=urn:btih:0B0E4071E2C00F82B2F9FB7FA94F9B135EBC5DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ VA - Ambient Relax Vol 2 (2014) [MP3|320 кб/с]<Chillout, Ambient, Electronic,
 ```bash
 magnet:?xt=urn:btih:3BE1088546DA605DD2AB729F608662FA2098CCC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ Ben Miller Band - Any Way, Shape Or Form (2014) [MP3|320 кб/с]<Blues, Rock, C
 ```bash
 magnet:?xt=urn:btih:9FFF9FD02C51ACB65B29A5CBBC50DDB368AECE7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCAA55C9AC4E7E0EA822F3B6A8118856F4AB7915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ VA - Passport United States Of America (Mixed by Ferry Corsten) (2007) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:C213D4CDF94FE65F9CEF25F55537AC8743AB3784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +711,7 @@ Billie And The Kids - Jukebox Daddy (2014) [MP3|320 кб/с]<Rock & Roll, R&B>
 ```bash
 magnet:?xt=urn:btih:14CCEBEE14336D14A1B80C643306001090F26870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +745,7 @@ VA - Les Tubes Du Zouk 2014 (2014) [MP3|320 кб/с]<Pop, Latino, Caribbean, Mus
 ```bash
 magnet:?xt=urn:btih:302C03794A4673235739B5267F772245A536D43A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -797,8 +772,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:3D6C9A98EA3B19F27C2ADAFAED12F887C01DCC08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

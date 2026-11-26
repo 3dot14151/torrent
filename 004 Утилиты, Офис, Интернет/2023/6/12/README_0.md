@@ -21,8 +21,7 @@ S2G - это универсальная программа, использующ
 ```bash
 magnet:?xt=urn:btih:131DA055354BAFB617EDD5057CCBAD33A8A28D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Soft4Boost PC Win Booster Free 11.0.3.685 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AC9E1A85B11C140EE39194DC04ED9F389F51937F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

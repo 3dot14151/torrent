@@ -19,8 +19,7 @@ Haunted Hotel 15: The Evil Inside / Проклятый отель 15: Зло в�
 ```bash
 magnet:?xt=urn:btih:67D937CE8691E1F5D253D51BFC4627B5D671B6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Willy-Nilly Knight - прекрасная история, основанная �
 ```bash
 magnet:?xt=urn:btih:9148D5C666FE62FEBBA74CFC8718F60547B86D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TransRoad: USA (2017) [Ru/Multi] (1.0.7) Repack xatab
 ```bash
 magnet:?xt=urn:btih:0D77FC880585987E0AFD968E4C0B2B099231C59C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Syberia 3: The Complete Journey (2017) [Ru/Multi] (1.5.07/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:403526C9170133AB58BDCD3096A493D280023E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ NecroVisioN: Lost Company / NecroVisioN: Проклятая рота (2010) [Ru/
 ```bash
 magnet:?xt=urn:btih:7A1B712688B4D10CDCDE5CB62ACFEAF1EBD8C096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Willy-Nilly Knight - прекрасная история, основанная �
 ```bash
 magnet:?xt=urn:btih:4A0205B92CFDAE2BB5DCB23BB0C34B117E1424F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ NecroVision (2009) [Ru/En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:2605923FC8AD9058995C5E8E21F4C1382DD73D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8386777DA9D6F49EBB2BA4D23D57C0276F7E85BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

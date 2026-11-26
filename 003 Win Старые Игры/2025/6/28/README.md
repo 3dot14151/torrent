@@ -19,8 +19,7 @@ Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
 ```bash
 magnet:?xt=urn:btih:BFEE63BE1887AA31FB436BFB95F06F3D4B26B0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Far Cry - захватывающий шутер с видом от первог�
 ```bash
 magnet:?xt=urn:btih:ABD62E4D44E4320D38EE19AB65C7C31BD3E46D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Manhunt (2004) [Ru] (1.1) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:98B0B3664E2B5B03D07CEF34C35A350B7B9F9F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
 ```bash
 magnet:?xt=urn:btih:E0382F342CB42A1EC75516EF2D4704C3056E2561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 ```bash
 magnet:?xt=urn:btih:2F1EA50BA19C89AC801975CA58613289C68FC3FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

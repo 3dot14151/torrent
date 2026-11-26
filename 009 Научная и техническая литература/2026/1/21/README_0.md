@@ -19,8 +19,7 @@ English Vocabulary Elements draws on the tools of modern linguistics to help stu
 ```bash
 magnet:?xt=urn:btih:A0B1957122149C4214F1D777F0C02BC0EAF685B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ English Vocabulary is Social CapitalIf you want to improve or build up your word
 ```bash
 magnet:?xt=urn:btih:555321E43C885010CB8370D77D39A63CE09B4A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ to publish reliable data and views articulated in the chapters (   Читать
 ```bash
 magnet:?xt=urn:btih:A97A0726DBA059C8DEC0B6F69DB518E36361AFF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Covers a wide range of entries in computer science, providing a thorough introdu
 ```bash
 magnet:?xt=urn:btih:9ACB49DB37FEE36F4EF39843009E75F48B39BA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ License. A Wide variety of references are listed. Reasonable efforts have been( 
 ```bash
 magnet:?xt=urn:btih:A3940E6B93CF8708DCBE4675052963ECCD9E98B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3680A58943FE19866E2F8E878716756EBEBDD7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

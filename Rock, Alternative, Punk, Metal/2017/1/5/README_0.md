@@ -22,8 +22,7 @@ Ice On Mercury - Blind Leading The Lifeless (2016) EP [MP3|320 Kbps] <Groove, He
 ```bash
 magnet:?xt=urn:btih:AF4491F90A26A71D2400EE33687AE9B3FCD967CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dantalion - ...And All Will Be Ashes (2016) [MP3|320 Kbps] <Melodic Metal, Doom-
 ```bash
 magnet:?xt=urn:btih:AEA959A6E9C39DEA9A36C1444FC98E8088FD2951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Spitfire - State Of Mind (2017) [MP3|320 Kbps] <Groove, Stoner Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:1E4EF51B9EDA482054D53CED90C39B268E7641D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ A.E.R.I.S.T. - Redeemer/Destroyer, Pt. 1: The Strength of Many (2017) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:6CA5C39CF51BE32A84EA31533FC1D278806CAA41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Blue Rising - Ghosts and Monsters (2017) [MP3|320 Kbps] <Alternative Rock, Metal
 ```bash
 magnet:?xt=urn:btih:C160A630AC45EE2C8103558E8A6C4501D12720CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Steve Vai - Mystery Tracks - Archives Vol. 3 (2003) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:7AE190AFBF98C016BAAF25491545556B5940C3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Solice - Genesis (2017) [MP3|320 Kbps] <Alternative Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:BE56F34DF40A80D56BC80B74C0F9A6D707751ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ For Today - 6 Альбомов + 1 EP (2008-2015) [FLAC|tracks|Lossless]<Christi
 ```bash
 magnet:?xt=urn:btih:72166735705067A5A9E5F28C00622A00C2BDA3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Dropkick Murphys - 11 Short Stories Of Pain & Glory (2017) [MP3|320 Kbps] <Folk 
 ```bash
 magnet:?xt=urn:btih:116A96094A248C8344DC45E945EC8C10EDC6FF07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:450DB21122E711921209B24BD5EE705DAE7E5212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

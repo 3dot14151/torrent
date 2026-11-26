@@ -19,8 +19,7 @@ Reface: Face Swap AI Generator v5.0.0 Mod by Mixroot [Multi]
 ```bash
 magnet:?xt=urn:btih:9C6E7EF51265494060B8354181250217AE07F32E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:0C9C3D1B4CEFABC3769E13EBCD89E739F613B2AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cleaner for WhatsApp — это мощный инструмент для очи�
 ```bash
 magnet:?xt=urn:btih:A62DB25E202AB54E0599E48CAC2B48FEE0E10843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AudioLab: Audio Editor Recorder – это самый продвинутый к�
 ```bash
 magnet:?xt=urn:btih:EDCD05575D43858BC49D5A85E5EE5D0E94D45A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

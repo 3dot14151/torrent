@@ -22,8 +22,7 @@ Debian GNU/Linux - операционная система на базе Linux �
 ```bash
 magnet:?xt=urn:btih:4D54760D917E9AC58CF3D443C6B04724CB87FF98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ CentOS Stream - новая версия бесплатной операцион�
 ```bash
 magnet:?xt=urn:btih:7B5013B728C0FD58FE4365629947141F08A01D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 ```bash
 magnet:?xt=urn:btih:179EA5DEFC20A1091C26DAD5D3B87B5F2787CC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ MX Linux поддерживает работу в режиме LiveCD и LiveUSB
 ```bash
 magnet:?xt=urn:btih:07375ED72741E03D172082C80F1DE488D9DA51ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ openmediavault 7.0-32 [x86_64] 1xCD
 ```bash
 magnet:?xt=urn:btih:14B7DF10D4AC2C6B45A75322B340D6E71841A9A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Ubuntu Desktop – система с открытым исходным кодо�
 ```bash
 magnet:?xt=urn:btih:A3E9114D3CCE6D1720B9FD9BF9D83E5B2E92EA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Red Hat Enterprise Linux (RHEL) - популярная коммерческая 
 ```bash
 magnet:?xt=urn:btih:CA83D0A604318C4E594575F60B97302F59A5092B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ SparkyLinux - это полнофункциональная операционн
 ```bash
 magnet:?xt=urn:btih:782F27F494EF6CE5E66FC855E44EC5D6C17EF4DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Rocky Linux — дистрибутив Linux, разработанный Rocky E
 ```bash
 magnet:?xt=urn:btih:4299EEEFA61E76B2BC4949C2306261B609DA9B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

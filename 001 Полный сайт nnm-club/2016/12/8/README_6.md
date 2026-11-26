@@ -18,8 +18,7 @@ Sacred Almanac: Traces of Greed / Священный Альманах: След�
 ```bash
 magnet:?xt=urn:btih:3EDD0F8A76A4D43C6F5E7101AD2005FFA66869CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E32973A330250BA9C00CA22FD6F936173E55B94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Pulsedriver - 7 Albums + 63 Singles/Remixes + 3 Compilations + DJ Mixes (1997-20
 ```bash
 magnet:?xt=urn:btih:6248E404EADA77769DCA3ED63FF286BD995D0D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFC68FB35CBD4D62C699D9FA21645A6C6A810322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ EARTH'S DAWN (2016) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C364A2F84C00A2E75197A02ED0D52BCD4F4B5A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F3C64C2A40FD282E1E73B63C8ABA2FC6BCBE3F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D673E9F76BF575B01A07069E34E9F253F458901A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE8F669C159F6739D03FDB72A2113FF5B0F11288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BDC4EEF5C813B4AC21275DA915D6FB22D73561A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ SolidWorks – система автоматизированного проек�
 ```bash
 magnet:?xt=urn:btih:C5952AEE2A7EDEB37E8C6F405BE715B069974CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Proxy Switcher — программа для мгновенного измене
 ```bash
 magnet:?xt=urn:btih:B8E85E6C9639A1A629FFFCC0ADB95FB89DBAABBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ VA - Record Russian Mix Top 100 December (07.12.) (2016) [MP3|256-320 Kbps] <Clu
 ```bash
 magnet:?xt=urn:btih:6CC54D7E6E1FA62545A9181EB31D894EA3F398ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Sacred / Князь тьмы (2004) [Ru/En] (2.28/dlc) License GOG [Gold Edition
 ```bash
 magnet:?xt=urn:btih:052296F774E6879CC7B3093BA1A35F87827E6F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Call of Duty: Advanced Warfare (2014) [Ru/En] (1.22.0.1/upd12/dlc) Rip R.G. Ме
 ```bash
 magnet:?xt=urn:btih:FA045196D509C961E7CE3EF27999F8C09FA711DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Call of Duty: Infinite Warfare – очередная часть в популя
 ```bash
 magnet:?xt=urn:btih:AF1A3D436DC371153B2E8936989B0FE501FE6F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Adguard – это единственный в своём роде интерн�
 ```bash
 magnet:?xt=urn:btih:51353FB6D116BA5024C18385FA10B76BDDCA5E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

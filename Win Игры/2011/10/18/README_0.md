@@ -19,8 +19,7 @@ Best in Show Solitaire (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:4CE55F8B85E7038A321B556C2F58AC3328D46765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Halloween: Trick or Treat / Хэллоуин: жизнь или кошелек (
 ```bash
 magnet:?xt=urn:btih:D745A9629070C8E06CD7B7F524AB7CB259FEAC68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hidden Secrets: The Nightmare / Секреты твоих кошмаров (P) [
 ```bash
 magnet:?xt=urn:btih:4A707777C64173E15D552751BF45CD2B96326030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Dracula Files / По следам Дракулы (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:20E79D5154E437803F851F1E9EA612B5AA4C35B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA642B809087FF0004DE6255325D2959D7E08BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Blood Bowl - сумасшедший коктейль из классическо
 ```bash
 magnet:?xt=urn:btih:C4FE8B65698FE61A914A1F02F7CFBAD628701388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ WRC 2: FIA World Rally Championship – новая часть в серии оф
 ```bash
 magnet:?xt=urn:btih:1CE85DBEA5F35453CF252298F4BE4293062044F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

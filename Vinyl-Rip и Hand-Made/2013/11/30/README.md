@@ -28,8 +28,7 @@ ABBA - ABBA (Sweden) (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Pop Rock, Disco>
 ```bash
 magnet:?xt=urn:btih:2E915AA641C3E25584EB443773267DB89DC80CDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ INVSN - INVSN (2013) [MP3|320 кб/с]<New Wave, Post-Punk, Indie>
 ```bash
 magnet:?xt=urn:btih:D8640430C4BEEB7B7C02FC6555398089D05FE9D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Onslaught - VI (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:02D6410F63E95784751DCA0C9574A185D6B8205D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Death Angel - The Dream Calls For Blood (2013) [MP3|~270 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:54D2BA3C298C2127075FBC708FF14FE3383E2493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Joan Jett & The Blackhearts - Unvarnished (2013) Deluxe Edition [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:B7A432ABCC9F66FA208DF51F78112855077C3226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Rise Against - Long Forgotten Songs: B-sides & Covers (2000-2013) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:0D73E09E3A79ECCE8A00BE159045B2569C23F36D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Everlast - The Life Acoustic (2013) [FLAC|Lossless]<Alternative>
 ```bash
 magnet:?xt=urn:btih:A2AA88155BD91BD92F97B1F6E4605733C7C0932C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Korn - The Paradigm Shift (2013) Deluxe Edition [FLAC|Lossless]<Alternative, Nu-
 ```bash
 magnet:?xt=urn:btih:854097D580017B35717E091ACE59B065EB0DADC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Dream Theater - 12albums + 3EPs + 7singles (1989-2013) [MP3|320kbps] <Progressiv
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

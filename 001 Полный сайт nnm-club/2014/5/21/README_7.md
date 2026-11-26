@@ -19,8 +19,7 @@ SonicMan for Cobra ODE v3.03.2 [Multi/Ru] (2014) [PS3]
 ```bash
 magnet:?xt=urn:btih:497C09C5CC4E82CEAC868F67ADDDA8221F53D82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Star Wars: Battlefront 2/II (2005) [En] (1.3 r129/2.2mod) Repack by XAP4O [Ultim
 ```bash
 magnet:?xt=urn:btih:C7B73156C545EB4769805F59B6D6F1151D597B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Neko no Ongaeshi | The Cat Returns | Возвращение кота [2002, MV] 
 ```bash
 magnet:?xt=urn:btih:756A93E4F11371F931C86E22469526FA7163381C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF802A85A84B64CE69D313518F35E51A716D9D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29B0FB0FD433699ADC4716D2FF898D23E5EEC983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ ESET NOD32 7 гарантирует вашему  высокий уровень 
 ```bash
 magnet:?xt=urn:btih:A99F5466B7AFD3D851E55318E687A9ED2A5E58FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Recover My Files – программа, позволяющая восстана
 ```bash
 magnet:?xt=urn:btih:14FAD195400FB8B3B738F4C49404CAB81DA43525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59D7961A61170D0F27FB7BEEFB2DF34A444F0715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ ESET Smart Security 7 поможет сделать работу в интерн
 ```bash
 magnet:?xt=urn:btih:912784850C2BD60BA70A6AE48D1078C927B28CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Dishonored – увлекательный и необычный экшен, в �
 ```bash
 magnet:?xt=urn:btih:7D960126C7828B5D48DA336536936B47E559D13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:41E60EF3EB1C21F08604335E819D9EC1E7A801DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

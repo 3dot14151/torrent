@@ -21,8 +21,7 @@ VA - Hot Electro House Tunes (2016) [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:8DA778D3264F6462FB968F9A1AB01DF6C8666089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Танцевальный Экспресс (2016) [MP3|320 Kbps] <Dance, Clu
 ```bash
 magnet:?xt=urn:btih:AEFF7B0D1FA64EF2A4601E97A3777955DA509F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Sense Of Renewal: Club House Party (2016) [MP3|320 Kbps] <Club, House, Danc
 ```bash
 magnet:?xt=urn:btih:0338D5148628DF088EC0190321BE1DF66328EDFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - 130 Collection Euro EDM (2016) [MP3|320 Kbps] <Dance, Club, Electro House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ AutoCAD Architecture – это AutoCAD для архитекторов. Спе�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B505618EF0696577D8C766CFF36FFA3991CD478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ SpaceSniffer - удобная, бесплатная, портативная ут
 ```bash
 magnet:?xt=urn:btih:481CD1FE02D98A06C78B1C6F75A1830C987EC821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ multiboot usb(hdd) 7 [Ru]
 ```bash
 magnet:?xt=urn:btih:C6D5BA4D014AE22B61EC7F60413A67F332823A55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:430F4CE44DE0F5A6B5B679CAA6B5BE27C9CF4637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ AutoCAD является мировым лидером среди решений
 ```bash
 magnet:?xt=urn:btih:85E76E29E9618E7BAFAAD835DC7B425F5E679D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:757404507C31B30EDBB88BCFBD567DD652E6C8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Bethesda Game Studios, создатель популярнейших игр Fall
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Spirit Legends 2: Solar Eclipse (2019) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:F5B5BC40F4F3931DA0D9A70EA05CDB8C4180925C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Golden Trails 3: The Guardians Creed / Золотые истории 3: Хран
 ```bash
 magnet:?xt=urn:btih:9FB1B86462CC0BE9387272B5F3350A54BB2EEB96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Trident's Wake — это динамичный кооперативный шут
 ```bash
 magnet:?xt=urn:btih:66EB004C89B895407A23662DD69F08E47B9ECC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

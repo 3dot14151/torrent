@@ -28,8 +28,7 @@ VA - Evening Tranсе 2 (Compiled by Alex3107) (2014) [MP3|320 кб/с]<Tranсе
 ```bash
 magnet:?xt=urn:btih:B8E4870A5D5AAE3D24D0C837FAEBC7B7BDE84C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ T & Masson - Smoke My Blues (2005) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:4AB8F9DAD721BF881269575F289F425F0D127C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42F60499E3ECB2038605E3A8A6EF3AE0D7CF13AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Gordie Tentrees - Mercy or Sin (2009) [FLAC|Lossless]<Blues, Country>
 ```bash
 magnet:?xt=urn:btih:B4759D0F6DE9D6A819CBD069C3B32D1D90994623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Eldritch - 8 альбомов (1995 - 2011) Full-length Albums [FLAC & APE|Lossl
 ```bash
 magnet:?xt=urn:btih:414C6B36ADCBE692E13C69E1CF2265C530121329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Giovanna Pessi, Susanna Wallumrod - If Grief Could Wait (2011) [FLAC|Lossless]<J
 ```bash
 magnet:?xt=urn:btih:EC5F2772D205C67134FD1F11C546131E5DBD1D1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0295E5632C90BBE062738E1C145F3F5B7C849476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Sir Charles Thompson - The Jazz Legend (2011) Released 2013 [FLAC|Lossless]<Jazz
 ```bash
 magnet:?xt=urn:btih:65816F834C17E1ED03D2019340033D098C832A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ Inner Sight - A Vision Of Ekstasy (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:625D9DDE0CA9346C9877E0130410D75CCA97AD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82E89FBE90193E29E157CB006B9CF849C969C4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ Side Liner - Once Upon a Time (2007) [FLAC|Lossless]<Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:8190826BA81B9C75E0681C111F3439F84B4C6426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ Sweet Mama Cotton - Suh Weeet (2012) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:6EBD4B43CB9B8259B74ACE0B2613627591712529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +408,7 @@ Eller van Buuren - Acoustic Dance Music (2013) [MP3|320 кб/с]<Guitar, Downtem
 ```bash
 magnet:?xt=urn:btih:55B5FEB1275017A2F5DE75450B5A517B3B53AFF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B65613BEC4BD7E16F730B508EA53010742494140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4F5D65E657471BF99F596479830541E69354BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:5425C3F7E05848B863ADC1200F855B2D683366FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:899C8587221C269E7B580B3B0113810D5EC7B3A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ Stacey Kent - Close Your Eyes (1997) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:016DE65C4B069458EC6822A809113553A9006DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +577,7 @@ Steelshine - Steelshine (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3A2FED852DAA321518731FE7AE2FDE224559E605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +611,7 @@ Astrakhan - Retrospective (2013) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:620D7E3C62461B08BFF9D9259E47F88044AF7784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +645,7 @@ Chick Corea, Stefano Bollani - Orvieto (2011) [FLAC|Lossless]<Jazz, Piano, ECM>
 ```bash
 magnet:?xt=urn:btih:D61C866438D553A52B059AAD9D44EDADCA564688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +679,7 @@ Dragonland - 5 CD (2001 - 2006) [FLAC & APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:F50A5B779D2B8168EDE7EC887C726994D3F2AC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +713,7 @@ VA - The Other Side Of The Moon (2013) [MP3|320 кб/с]<Psychedelic, Full On, P
 ```bash
 magnet:?xt=urn:btih:8D44FC02DE1557211457E035DEB1530D0612C8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +747,7 @@ George Thorogood & The Destroyers - Live at Montreux (2013) [FLAC|Lossless]<Rock
 ```bash
 magnet:?xt=urn:btih:CF88311D7A9DB6E55F5634445164A070AF526C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +781,7 @@ Revolution Road - Revolution Road (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:72E4EDEF0D214CB0C8CF425596E50A1B49A95B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -833,8 +808,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6661E72FED9859067A0A02F5FA7B1D64A27E5E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

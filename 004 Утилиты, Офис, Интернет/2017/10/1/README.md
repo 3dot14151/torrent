@@ -19,8 +19,7 @@ Debut Video Capture Pro 4.0.8 RePack by 78Sergey [Ru]
 ```bash
 magnet:?xt=urn:btih:5F1C05756F16D8C69AD3207711D5C2BE8629F9B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

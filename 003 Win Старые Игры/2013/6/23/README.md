@@ -22,8 +22,7 @@ Beyond Normandy: Assignment Berlin / Пункт назначения: Берли
 ```bash
 magnet:?xt=urn:btih:F7E44C0206D85BB8DC27AED9F1CA13827A8AA64F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ F/A-18 Precision Strike Fighter (2001) [Ru/En] Unofficial
 ```bash
 magnet:?xt=urn:btih:BA1881275F4CBCB5C12D54CC5C4EF8B35DDF20D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Mace Griffin: Bounty Hunter (2003) [Ru/En] Unofficial
 ```bash
 magnet:?xt=urn:btih:12E12CAFCC3B95A47A6F759127FE9B98A39AD11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Pokemon Play It! Pokemon Trading Card Game ver.2 (2000) [Ru] Repack R.G. Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Pokemon Play It! Pokemon Trading Card Game ver.2 (2000) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:605BF3B8A5480AD3128B0C948861C2B68C3743CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

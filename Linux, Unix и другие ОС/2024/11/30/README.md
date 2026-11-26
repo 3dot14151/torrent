@@ -19,8 +19,7 @@ Elementary OS — это операционная система, основан
 ```bash
 magnet:?xt=urn:btih:707926186513360C28CCF62D19D3FE572B0E5369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

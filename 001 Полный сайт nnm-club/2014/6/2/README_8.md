@@ -26,8 +26,7 @@ Arson Anthem - Arson Anthem (2008) [MP3|320 кб/с]<Hardcore Punk, Crust>
 ```bash
 magnet:?xt=urn:btih:9E3E7087E8FD17DB1303BD6B7B91D28916E9C9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ You.May.Die.In.The.Desert - 3 альбома (2008-2010) [MP3|320 кб/с]<Post 
 ```bash
 magnet:?xt=urn:btih:5E706515EE516CD6378637C33B4ABC424A7E176B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Chilliwack - Anthology (2004) [MP3|320 кб/с]<Classic rock, Pop-rock>
 ```bash
 magnet:?xt=urn:btih:35FC1EDD49C56159DC0DB44BCF5BFBD031FECB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ The Abyss - 2 Альбома (1995, 1996) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:C0B4719EA8BF3792C6AC70CEBA88C5605A51A685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Aerofoil - Aerofoil 2014 (2014) [MP3|192 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:FA9C132B15DD2EC5A6E64D0B777710ADF92D7316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Diabolos Dust - Ruins Of Mankind (2010) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7817EBE28E64EB79362F4D0BC0F7CCD39A893B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF2E72E98091B679D30FFBCCF964F4EF00E3A116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Morgen - Morgen (1969) [MP3|320 кб/с]<Hard Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:E7DF9764A432B72A1AED0CA9AEF89A611113C47C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ Light of Darkness - Light of Darkness (1971) [MP3|320 кб/с]<Hard Rock, Blues 
 ```bash
 magnet:?xt=urn:btih:D51AE305015AE802BFAF421BD8216D1CA0E0F8AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FDC96B3C1C34EFE3E9290F947659A6ACF9CFF0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2840C74FF3EED85E007100506F044492B84E43D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ VA - The Last Chill Supper (Finest In Chillout Environmental & Spa) (2014) [MP3|
 ```bash
 magnet:?xt=urn:btih:2E9CC7772A373CD0D8A14731462679AEAD31B6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE1AA4DB8C265AA7FEAC17A87F41E747A7F5B704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7396D597733AD00BAF66B7847766850F1DD30C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ Wise JetSearch - программа, которая предусматривае
 ```bash
 magnet:?xt=urn:btih:3E12ED6A3F7835F1A6006EBB63D915651FDBEEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +514,7 @@ Tellus Requiem - Invictus (The 11th Hour) (2013) [FLAC|Lossless]<Progressive Pow
 ```bash
 magnet:?xt=urn:btih:55E2A753E640D077FC86DCD3B8473C0BC91E8237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ Levin Minnemann Rudess - Levin Minnemann Rudess (2013) [FLAC|Lossless]<Progressi
 ```bash
 magnet:?xt=urn:btih:FEC49D4B00A563CC77C9C86137CAEBFD066361C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ Tom Wax - WaxWorx 3 (2014) [FLAC|Lossless]<Tech House, Techno>
 ```bash
 magnet:?xt=urn:btih:7D5E9B1E8102E8371FF72277870B69BB32438488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED4C74B373EC94E98F6436C7566BE63C7F3A2C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:238EA567CBF620315EA3E8F48A4A90B46D67AD02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4191481BC7A1F20D450EB93E68DE3ABA5F9A678C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ KenZiner - The Last Horizon (2014) [FLAC|Lossless]<Neoclassical / Progressive Po
 ```bash
 magnet:?xt=urn:btih:5AE67FDFB73695918CCF420AC1DA3604AD41C51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ VA - Voices Of Silence: Blissful Sensual Music (2014) [MP3|320 кб/с]<Lounge, 
 ```bash
 magnet:?xt=urn:btih:826D44101FD68B27A8BDED501DBB344260E5619B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ Sylar - To Whom It May Concern (2014) [FLAC|Lossless]<Metalcore | Djent | Electr
 ```bash
 magnet:?xt=urn:btih:0A65A857136A2975F715AD400BB5949B34BD261D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

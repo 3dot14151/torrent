@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:DC1126631EF7C7D641916FC7FBA3506EB39FB18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ B4. We Can Make It [5:22]Жанр: Hard RockПродолжительность: 
 ```bash
 magnet:?xt=urn:btih:53E0499BB0D64855B06C79210E92896204F2D1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Volume 3: 61 Highway Mississippi - Delta Country Blues, Spirituals, Work Songs &
 ```bash
 magnet:?xt=urn:btih:E8944C6553F7B1821B721651F4A0011ECF8E5F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:50BB077608437A06D04A33074A0FA5528F753DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ VA - Only Romantic (2013) [MP3|256 кб/с]<Pop, Dance, Rock>
 ```bash
 magnet:?xt=urn:btih:388789E2E60C1EF97205346A347620141A0B0494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DD457EF136A360F08B31AC8B2D8B2CFB85486A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ ZZ Top - The Best Of ZZ Top (1977) [WavPack|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:CA0D829AA990964D20DF04D18BA2FDD0D2B548CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DF999EF1EE8C7AC0504704FF5802774D748DB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3E746A64434BCEDDF32C67E8F132EFBEC272A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ Bolide Slideshow Creator - c помощью данной программы Вы
 ```bash
 magnet:?xt=urn:btih:D6361A3467A8D339F43630C46588F809580CDC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ SolSuite 2013 - самый крупный в мире сборник карто�
 ```bash
 magnet:?xt=urn:btih:2B1BA24EAE61527E65EBDA194C2B2F2D26A9A5B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ SDL Passolo – это шаблонный редактор ресурсов лю
 ```bash
 magnet:?xt=urn:btih:3C6EDFCB63F9830078EA7EA6008E0E90C277EE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Apowersoft Streaming Video Recorder является прекрасным пом
 ```bash
 magnet:?xt=urn:btih:E0AF1B4D5C117D13F05275FB1F46BF8E5E974F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9025E2FEFB59BF1C76FD73C55AD9142AAF8CB54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ Au5 - Crystal Mathematics | The Reason II  (2013) [FLAC|Lossless]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:71DDC7CFF17D0A121332081EB1A6EE3D81E660D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A6C0FC8A178407DCD1D6DD878AD4AC5F8482D5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ VA - Летний марафон № 52 / Видеоклипы (Зарубежн
 ```bash
 magnet:?xt=urn:btih:22364C3AC463940D210F35A37825729F52FBCE0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79D4C2C4333F4602058E6BA997E36BC700ACD115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAAA45978E201F034C9BAD80DE8FFF845988037F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ CPUID HWMonitor Pro 1.17 Portable [En]
 ```bash
 magnet:?xt=urn:btih:B475529BCF2D3751872466330AE9C483792E010B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ Parralox - Recovery (2013) [MP3|~260 кб/с (V0)]<Synthpop, Electropop>
 ```bash
 magnet:?xt=urn:btih:0BA941E7D011A7A8C207439F5BA3C9B042ABF9E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ VA - Best and New World Hits (1980-2013) [MP3|320 кб/с]<pop, dance, rock, alt
 ```bash
 magnet:?xt=urn:btih:96545D905D9D31F991024A64014A57AC40F69CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +661,7 @@ The Best Pessimist - Discography 3 Albums, 2 EP (2009-2012) [FLAC|Lossless|WEB|2
 ```bash
 magnet:?xt=urn:btih:B75C1B8B9D6E7230C0AD04E471358FDCB3915B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ Fancy - Get Your Kicks (1985) 1-st press [ALAC|Lossless]<Disco>
 ```bash
 magnet:?xt=urn:btih:431685AC1CEF2A3FC8AFDF50093805256787A16C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +727,7 @@ Tech N9ne - Something Else (2013) Deluxe Edition, Itunes bonus tracks [MP3|128-3
 ```bash
 magnet:?xt=urn:btih:D35EA0B9861C4E651A879928CA35237CDB969981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

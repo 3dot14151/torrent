@@ -19,8 +19,7 @@ Cant Drive This - гоночная аркада с элементами симу
 ```bash
 magnet:?xt=urn:btih:A90B715876D89B7F086BEC64F9B48C6CC5A96E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RC Airplane Challenge (2021) [En] (1.0) Scene PLAZA [VR]
 ```bash
 magnet:?xt=urn:btih:5E7531865E376DC85B037FF029754144823FA2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Panzer War: Definitive Edition - это игра-стрелялка по тан�
 ```bash
 magnet:?xt=urn:btih:52963633E241E6F8D82A7707765D7EEBB804DF8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

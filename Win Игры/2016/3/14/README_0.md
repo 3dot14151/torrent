@@ -19,8 +19,7 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd 3) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:F76EA75531015B53190983F09F6B8D37CA814073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RISK™: Factions (2011) [En/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:31EB0146FD69D081AF661288F3DBE7E0DC205D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 ```bash
 magnet:?xt=urn:btih:D91B74C60D9550D557A75C1B0015C2F6D02A18D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F10043C3D237CE9E1162EBB15942B2FCA918A77D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:18C783EBCD6518D3762483C138D253D7A32B9E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Александр Башлачёв. Серебро и слёзы. Триб
 ```bash
 magnet:?xt=urn:btih:6E5D4E62A46531756A64DB2275990D456A87AA56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

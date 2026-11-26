@@ -22,8 +22,7 @@ Mangod Inc. - Near Life Experience (2007) [FLAC|Lossless|tracks + .cue] <Alterna
 ```bash
 magnet:?xt=urn:btih:B678912F5A20E684E604236234F15DAF7F0AE87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Magic Bus - The Earth Years (2020) [FLAC|Lossless|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:8274A9B5FAEC5A0A5BA2707A724FF5FA0E9D5161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Plus 33 - Open Window (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, In
 ```bash
 magnet:?xt=urn:btih:36F095B26D11EDFE432053B68E25CF7EC0ECDA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fleetwood Mac - Tusk (1979) Reissue, 1999, Warner Bros [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:5207910906B9644775CCDA3EC57A0A38032EBB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mark Knopfler - Sailing To Philadelphia (2000) Japanese Edition [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:1E38387CE73088775A71E084FA5EF97E249923CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

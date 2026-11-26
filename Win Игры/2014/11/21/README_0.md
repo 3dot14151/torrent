@@ -19,8 +19,7 @@ Surface 6: Game of Gods (2014) [En] Unofficial [Collector's Edition / Колле
 ```bash
 magnet:?xt=urn:btih:B65B7D98604645E1E895591CCA97F1AACCECA154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Luftrausers - аркада от студии Vlambeer. В Luftrausers игрок
 ```bash
 magnet:?xt=urn:btih:E2D9E4540159844957A6CFC837A6C23D4D31BA99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Chariot – платформер для одного или пары игрок�
 ```bash
 magnet:?xt=urn:btih:7E7C494AE308B458C88D77AD0F9CBEDB34B28DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

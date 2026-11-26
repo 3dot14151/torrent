@@ -22,8 +22,7 @@ Dark Nova - Sivilla (2005) [FLAC|Lossless]<Power Metal / Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:97164D19070231B4AF1631A091E51FB9F7A36C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bloodlost - Evil Origins (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:780C1A16FE6E9655E21AE84F5242B4A230FFBC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Landing Heroes - Darkness Despair (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C6F77FB173C8FC1C7DA1A11FDCCD763B75C6F72D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Von Hertzen Brothers - New Day Rising (2015) [OGG|456-514 кб/с]<Alternative, 
 ```bash
 magnet:?xt=urn:btih:42D6FD25BFC6498ADCE70B84B22B894D0661B304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pump - Sonic Extasy (2010) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5DE89FA2F2F3D477AADE1AD433CE664DF00C304D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Room Experience - Room Experience (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EE292AA527CBDA010B30BB4EE8599AAAF5D1A87F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45562B72EA55A748D6515B6FBE853F9DCF484A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Faith No More - Sol Invictus (2015) Japanese Edition [FLAC|Lossless]<Alternative
 ```bash
 magnet:?xt=urn:btih:60F8C1F0C644FD6C16FF1DF7A686AC5C34C0132F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D139DFCB1ACF8317EA8297FFDD201BC3E28FEF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Dire Straits - Love Over Gold (1982) 1st press[FLAC|Lossless]< Rock >
 ```bash
 magnet:?xt=urn:btih:250C36020D9FC4E0F0AF2EEF0541B257AA446644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DACADB017F0B1DFD119AE8E5ED91E6E68946ED7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Ensiferum - Дискография (2001-2009) [FLAC|Lossless]<Melodic Death, Fo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

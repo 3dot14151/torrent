@@ -19,8 +19,7 @@ UVLayout является автономным приложением созда
 ```bash
 magnet:?xt=urn:btih:47E736DF9837A46C845E25B834F62FBC49E9D25B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Go, также (   Читать дальше...   )Жанр: Программи
 ```bash
 magnet:?xt=urn:btih:E11FF01A09197D160B9014C7CE10DDEB59D7FD80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Takashi Iijima | Action Anatomy: For Gamers, Animators, and Digital Artists / А
 ```bash
 magnet:?xt=urn:btih:1CAA0267BAD490570B16151BC7E7A9631BF3B0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Pablo Munoz Gomez | A Guide To: ZBrush Comic Style Render / Руководств
 ```bash
 magnet:?xt=urn:btih:674D39DA819F25FE485E657FE6481717F175AA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

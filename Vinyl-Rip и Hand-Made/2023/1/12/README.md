@@ -22,8 +22,7 @@ VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|
 ```bash
 magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE8D3AECEA25FDDF7DD68C3CE06561BE1374F282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

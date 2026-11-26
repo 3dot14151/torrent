@@ -26,8 +26,7 @@ Subliritum - A Touch Of Death (2011) [FLAC|Lossless]<Epic Metal, Melodic Black>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Hollowick - Beautiful People (2011) [MP3|320 kbps]<Alt.Rock, Modern Rock>
 ```bash
 magnet:?xt=urn:btih:2291C02A449FF0E2D249100579269B0687F67C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Deepfield - Nothing Can Save Us Now (2011) [MP3|256 kbps]<Alt. Rock, Post-Grunge
 ```bash
 magnet:?xt=urn:btih:A88CF44BC6939E79667F61F09BC32BDF21E7B8C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ A Broken Silence - A Broken Silence (2011) [MP3|320 kbps]<Alt. Rock, Rap Rock>
 ```bash
 magnet:?xt=urn:btih:CAA0ABA877E7BC0358F043BA3B1D644254AFB7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ R.E.M. - Perfect Square (2004) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:619BFE169DB592F33397B15584A841226950D9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ CD 1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

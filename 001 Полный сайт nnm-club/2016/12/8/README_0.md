@@ -21,8 +21,7 @@ VA - Взрывной хит-парад. Версия 2 (2016) [MP3|256 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:35375BBD5879E68C6F093D7B908931A181EA8422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Club Hits Special Authors (2016) [MP3|320 Kbps] <House, Electro, Hands Up, 
 ```bash
 magnet:?xt=urn:btih:11334AD60C9480790CD730358D723D4B648B0479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Осенняя дискотека по-русски. Выпуск 7 (2016) 
 ```bash
 magnet:?xt=urn:btih:67540C716631CD49E71776F89FC1C669A6C3A1A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Folx Pro 5.1.13639 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:79D3931B3C91AEF6C4BADC43A16851793DE56722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - A Guy In Buenos Aires (Mixed by Guy Mantzur) - 2016 [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:415EF435B207A5C89773AA648685097430C5226C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A792A55E260973BF8312DF84D4C3DE4F01C42A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14983281CBE97706BA66E656F1DD954424233D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Reflect Studio - новый фото редактор от создателей 
 ```bash
 magnet:?xt=urn:btih:BCD3DAEC018776248377E87B3DF2CDDE06D067C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Русские Свежаки Радиостанций (2016) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:4D76E71AC60EB69E8BE112C98C4BB9AE60FA5869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ VA - Музыкальные Новинки 50x50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F1EBEF12EFE1FDBA301BEC06C6F26E7950941002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ VA - Сотка модных хитов. Выпуск 8 (2016) [MP3|256 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:C489C7740B82719F6B111B2533731FEEF1E5FD10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB07EB608D0A70748770A9EC87E3390C84410E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:630F3F1C0B4B04B134C01294690BD0B503F1907B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ Circular Studio  веселое приложение с мощными новы�
 ```bash
 magnet:?xt=urn:btih:B83A27D8968AA8FEC6274D1D1F71482449536679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Nina Simone - Pastel Blues (1964, 1965) 2006, Universal [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:058A15CFE6DEE2321079445EFE4A2B259B3DE34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Aesop Rock & Homeboy Sandman - Lice (2015) EP [FLAC|Lossless|Web-DL|tracks] <Hip
 ```bash
 magnet:?xt=urn:btih:DD6E3C696243FBE26DA123A5B6A73A370AF3B082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78140F1ECF42B7393F1C5E02EBD30C334345BDBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD6CC52F796AC17C273957A7A7B9A20D55AFDC79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ VA - Traxsource Top 100 November (2016) [MP3|320 Kbps] <Afro House, Minimal, Sou
 ```bash
 magnet:?xt=urn:btih:084300E0CC0A4C90DA9B56046B9D549EFD78A59B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FCFACF2116DB2603B42860737083C3CF7CD2DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FA54675D852BF57BB06437F7AAC054E491EABC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1408CDBD5C1E61CCE685F2E7E1D3FD12CBDCA7F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB154B2BFF1B37D5D22B5DC4877416D228EF5696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Gram Rabbit - Music to Start a Cult to (2004) [MP3|320 Kbps] <Alternative Pop, P
 ```bash
 magnet:?xt=urn:btih:BE49BC1025CDD93F9E1E37F78995710D97D9E61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ED7C310962AE2A5001D1CDFEDA8D4248CD2CBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ Aesop Rock & Homeboy Sandman - Lice Two: Still Buggin' (2016) EP [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:5A580563017BC03BA6117496BC9C391D0B03A2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

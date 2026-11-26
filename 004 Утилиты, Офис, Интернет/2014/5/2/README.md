@@ -19,8 +19,7 @@ VideoGet это программа для скачивания видео кли
 ```bash
 magnet:?xt=urn:btih:E5DF6353BC9884DC68385FB60C40AD0D6BD2A99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Comodo BackUp - программа для создания бэкапов, с п
 ```bash
 magnet:?xt=urn:btih:AF5C6D84F1AEA276288A05FD46FAECC9395CF271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

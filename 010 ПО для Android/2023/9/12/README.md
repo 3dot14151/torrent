@@ -19,8 +19,7 @@ Moon Reader - проект-читалка которая весьма извес
 ```bash
 magnet:?xt=urn:btih:6BAFBF8412EA1535AA691092A24EB5F11B450684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ VPN Monster - неограниченный бесплатный впн для An
 ```bash
 magnet:?xt=urn:btih:330287A92BC110EAF536B32FE9ACCC909A256154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Turbo VPN - Лучший безопасный и бесплатный впн д�
 ```bash
 magnet:?xt=urn:btih:468E4BCE69B965876761CC2F874240A3D9BC40FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

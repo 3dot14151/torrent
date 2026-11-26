@@ -28,8 +28,7 @@ Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar ( 1970 ) [FLAC 2.0 24/96
 ```bash
 magnet:?xt=urn:btih:2C20E80A973077DEC591458F2A4A88A0074F44E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Modern Talking - 5 Альбомов (1985-1987) [FLAC 2.0 24/192|image (Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:BEF4DDD754166AF1F322C3EF9DF47FE58548396C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ LP2(   Читать дальше...   )Жанр: Electronic, SynthpopПродо�
 ```bash
 magnet:?xt=urn:btih:70C72CE76E8D472A3E0DF6FABE68619A5D7715A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

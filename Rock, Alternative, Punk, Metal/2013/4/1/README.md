@@ -26,8 +26,7 @@ Breed 77 - Under The Skin (2012) [MP3|320 кб/с]<Alternative Rock / Acoustic>
 ```bash
 magnet:?xt=urn:btih:B6EE2811CA40D752D6290A8C00C372A4B3EE8598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Animal ДжаZ - Фаза Быстрого Сна (2013) [MP3|256-320 кб/с]<A
 ```bash
 magnet:?xt=urn:btih:C932FEA7316FD1ADEAED3C5B24584953BAC413CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:908A4FB39A9FBF80DAAC3AAF7048E42E343DA516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Carlos Santana - 3 альбома (2004-2006) 3CD Box Set, Live Compilation [FLA
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Carlos Santana - Original Album Classics (1972-1990) 4 Box Sets, 16 Studio Album
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

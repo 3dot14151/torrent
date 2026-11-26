@@ -19,8 +19,7 @@ Mystery Case Files 26: A Crime in Reflection (2023) [En] (1.0) Unofficial [Colle
 ```bash
 magnet:?xt=urn:btih:DABD852B30E71CFCB8F36B4625EFBA0E86FE3E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yohane the Parhelion - Blaze in the Deepblue - это 2D-метроидвани�
 ```bash
 magnet:?xt=urn:btih:95EE8414075205EEDCFB586F602318956536CE3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Father's Day (2022) [Ru/En] (1.6.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F297DB1FC17F732EE2465FC216DE936FA181B77D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9B52E3EE1656F103C86B306A19366EEA505EC273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

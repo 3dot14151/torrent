@@ -21,8 +21,7 @@ Sir, You Are Being Hunted (2013) [En] (alpha 0.5.4725) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:F2E4536EADD57F6DFFFCA6D1975541EE9DA48DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Moorhuhn родился 14 лет назад, и с тех пор было мн�
 ```bash
 magnet:?xt=urn:btih:618F1964F45F74FBECBF648DA9C6BA13A2129E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Iesabel (2013) [Ru/Multi] (4.2.0.11237) RePack z10yded
 ```bash
 magnet:?xt=urn:btih:5C72BFEA4ED7604BBE08F2149F12B5D1F8FE230C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

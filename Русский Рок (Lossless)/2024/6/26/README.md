@@ -24,8 +24,7 @@ Louna - российская рок-группа с женским вокало�
 ```bash
 magnet:?xt=urn:btih:5AC71CDB9D4F9D64C4D864C38570AF88D82050C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

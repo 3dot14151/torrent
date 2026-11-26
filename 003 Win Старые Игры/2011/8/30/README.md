@@ -19,8 +19,7 @@ MechCommander Gold – фантастическая стратегия в реа
 ```bash
 magnet:?xt=urn:btih:42F54CA98187323615D8E1010C2034183072A7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Real War [Ru] (L) 2001
 ```bash
 magnet:?xt=urn:btih:33E6507056BCFC16DB7751CE9FA3642E26C6DD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

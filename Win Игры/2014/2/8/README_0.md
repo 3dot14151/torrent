@@ -19,8 +19,7 @@ Dark Romance: Vampire in Love (2014) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:236E47D2429E59DA7D25E4E896CD72CBD08878FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ American McGee Grimm погрузит Вас в пучину ужаса сказ
 ```bash
 magnet:?xt=urn:btih:D2A9515B731A4015EEF871712162E78CF9590E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Tales from the Dragon Mountain 2: The Lair / Истории с Драконов�
 ```bash
 magnet:?xt=urn:btih:9BD444C550BA61DE41AD636224B33F46DE3B05A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Contrast (2013) [Ru/Multi] (11736/dlc) SteamRip R.G. Игроманы [Collector
 ```bash
 magnet:?xt=urn:btih:6F71F963910464B0EFB895804BB91423B502AA7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ WRC Powerslide (2014) [Multi] (1.0.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7506CA5A4463BE3A3981F00ECF75ABA2C94FEF28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Mirror's Edge предлагает вам роль уникальной геро
 ```bash
 magnet:?xt=urn:btih:7D7C0E77CA5588077273B7F6F97D71FA734B73F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 ```bash
 magnet:?xt=urn:btih:2F0EB602C77545B5DB2A0BD94AAA8CA4E9997706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Aarklash: Legacy будет опираться на настольную игр�
 ```bash
 magnet:?xt=urn:btih:B25E9EB92CFBA5BB644450E25C5686694E9827E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

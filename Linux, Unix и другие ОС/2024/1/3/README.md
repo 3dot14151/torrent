@@ -21,8 +21,7 @@ Linux XP SMB Desktop – это программный продукт для р�
 ```bash
 magnet:?xt=urn:btih:74DACF01F7678A82E476BA75FCDE1E1E07462A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

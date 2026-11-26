@@ -28,8 +28,7 @@ Ian Anderson & Jethro Tull - Best Of (2009) [FLAC|Lossless]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Sopor Aeternus & The Ensemble Of Shadows - A Strange Thing To Say (EP) (2010) [M
 ```bash
 magnet:?xt=urn:btih:0EEB5CFC519A6D291CBDD9EDA7F313DF8F39DB4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ The Soulbreaker Company - Itaca (2010) [MP3|320 kbps]<Hard Rock/Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F0EAA4D6794C440BD85EB2BA5D6BFC17ABE94969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81F95556A7AAD0E06F92D78294F17107A2199190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8B768F85B901447BE54087D7E30F04168664AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Van Halen - Дискография [1976-2004] [FLAC|Lossless] <Heavy Rock, Heav
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

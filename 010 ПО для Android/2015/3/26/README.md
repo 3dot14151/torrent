@@ -20,8 +20,7 @@ Root Task Manager поможет Вам ускорить, очистить и о
 ```bash
 magnet:?xt=urn:btih:E01139DF2DAF0E4D91AF3F89D8DFD529DDA214B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

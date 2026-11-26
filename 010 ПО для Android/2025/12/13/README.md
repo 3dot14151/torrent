@@ -19,8 +19,7 @@ Universal Copy — это самый быстрый способ копиров�
 ```bash
 magnet:?xt=urn:btih:3B188F6C65922957C4499DD7902FA758CBC8143E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.5.6 Mod b
 ```bash
 magnet:?xt=urn:btih:B298667CB340ADB4A709E5CC4C255EDFC54A8E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:1284A7FAB8F1B54AB13A48C0F740D7257232B42E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:0D2A77DA7BF37C6F83379E71A4B53BD658F7EF4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55348FC4F5C78A6BA241748D231A1600C9F33C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Listen Audiobook Player v5.4.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CBEC2EDC53EC17ADD276E26EA1D3EA1594E94C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Remini / Улучшение Фото v3.7.1213.202518225 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:C1ADBEE90322F937A65D24BD1ECF86BEAF86D0C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:6A2C804C5C04FAAEB09A434A8426F727E7BB2C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F78E79234E218F14D313F7C9403D45623526361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ AirBrush: ИИ Фоторедактор v7.22.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:69AFE3C7B991F60AF61D7AA5B33ECC3B12DEF90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:02C82E1DDC1D63A2CBA86C74A19A71C723650B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Exo Player - Видеоплеер и IPTV v2.1.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C5C572A981E5DAF1D2BACB9CCE75B206246759FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ YouCut - один из самых удобных и оптимальных по 
 ```bash
 magnet:?xt=urn:btih:21B2207044CD120E159766A07FB8CE6A4B04B175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ WaveEditor для Android™ — это профессиональный инс�
 ```bash
 magnet:?xt=urn:btih:2FC3FCBD48A6A3695F9AE69C25F307B5BA930689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:BBA71BBDF8E89B3180B71DD115EB7EF54EA17D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

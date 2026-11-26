@@ -19,8 +19,7 @@ KinoTrend – это приложение, с помощью которого в
 ```bash
 magnet:?xt=urn:btih:CEB55867BCBDB0227376E278EAB1A4E9BFA62111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

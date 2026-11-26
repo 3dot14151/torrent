@@ -19,8 +19,7 @@ AbleBits Ultimate Suite for Excel представляет собой компл
 ```bash
 magnet:?xt=urn:btih:042571D23608C35686EE0B01F111A9CBA80CC73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

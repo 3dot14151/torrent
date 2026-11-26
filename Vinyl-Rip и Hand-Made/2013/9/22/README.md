@@ -28,8 +28,7 @@ B4.All Signs Of Life :: 03:55(   Читать дальше...   )Жанр: Pop, 
 ```bash
 magnet:?xt=urn:btih:DBA094E7F91CCBF573B19EF66C9059DC38176E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -64,8 +63,7 @@ B5.The Sketch :: 01:43(   Читать дальше...   )Жанр: Synth-popФ�
 ```bash
 magnet:?xt=urn:btih:115C178CA2B24E572861C725E773EB3FBFEA0A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

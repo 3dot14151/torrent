@@ -22,8 +22,7 @@ Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped]
 ```bash
 magnet:?xt=urn:btih:4CFE00208ECB83C0A81BD6E48D9A7608A1DE8267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A.4 Bite My Head Off(   Читать дальше...   )Жанр: Classic RockП
 ```bash
 magnet:?xt=urn:btih:A0C9408988DFD6ADA33080DD4AF83A832037E878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) Unofficial Re
 ```bash
 magnet:?xt=urn:btih:EF351CAD6C7E36CF394AD7107BFF46C27D755A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

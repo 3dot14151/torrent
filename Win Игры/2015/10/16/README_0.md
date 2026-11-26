@@ -19,8 +19,7 @@ Breath of Darkness - Dollhaven Mystery (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F98B31AA3495A80E90507697069F4EA49428741D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nevertales 4: Legends / Несказки 4: Легенда (2015) [Ru] Unofficia
 ```bash
 magnet:?xt=urn:btih:A6008340644F05BC9E1A860C1BA4271A22221C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dungeons 2: A Game of Winter (2015) [En] (1.5.1.392/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:2B929B60238A27A2EA8EF48BE5735944E1F51739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

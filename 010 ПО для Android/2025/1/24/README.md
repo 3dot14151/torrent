@@ -19,8 +19,7 @@ Gallery Plus: Photo Vault v2.3.37 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3CEDFD80CDF4B83230E566FE89752B29FD687DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

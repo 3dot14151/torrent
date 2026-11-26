@@ -23,8 +23,7 @@ FreeNAS основана на ОС FreeBSD, поддерживает обмен 
 ```bash
 magnet:?xt=urn:btih:8EFFE4D36239E4A016BAAE158E8A0CDF2FBEB673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

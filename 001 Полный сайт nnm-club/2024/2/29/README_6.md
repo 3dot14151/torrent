@@ -21,8 +21,7 @@ Eric Assmar, Jefferson Goncalves & Gustavo Andrade - Assmar, Gonçalves & Andrad
 ```bash
 magnet:?xt=urn:btih:2968E5319A90D87055CE9964BAF0765C124D113C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

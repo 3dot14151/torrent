@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A6ABE139975C42CA10122E6D67C94A02C4A9D214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Thief Simulator (2018) [Ru/Multi] (1.02) License CODEX
 ```bash
 magnet:?xt=urn:btih:889DBE0A9159AAFA05BCFC6B5509546D722E16A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EB0D4350B7C69A23533BF3FB6CC868A122DFABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dread of Laughter (2018) [En] (1.0/upd4) License PLAZA
 ```bash
 magnet:?xt=urn:btih:69D2203681C2FD9D988715D9241742127960AC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.0.0/dlc) License GOG [Game of the Year 
 ```bash
 magnet:?xt=urn:btih:C4DD8070D8FEAB3A94D4A63B0AF9168616033318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

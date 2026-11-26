@@ -19,8 +19,7 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 ```bash
 magnet:?xt=urn:btih:AD0EF3612E6B00A3B0F8D95BEBAAEE983E8162EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Steel Seed - захватывающая приключенческая экше�
 ```bash
 magnet:?xt=urn:btih:C4F5DAB110BD98C315A862C2D995ECB7B038EE09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Shivah - нуарный квест про Рассела Стоуна - ев
 ```bash
 magnet:?xt=urn:btih:70E29387A51231FA3B2283EE03AB62A1E8CA800F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lords of the Fallen приглашает игроков в мрачный мир
 ```bash
 magnet:?xt=urn:btih:FEAA69C9C15941282DBA3E1967B11D566A1D4F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sunset Motel (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AFFC08F3498947D4BC921B54C2D487D36E4E2D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:5AF50E4EE5DCEDC59E0472BB4C164008FDA57A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DB84C1A8C906AB86E31E75BB00E8BD81DE2069E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ It Happened Here 4: If Walls Could Talk / Это случилось здесь 4
 ```bash
 magnet:?xt=urn:btih:A0278008E9BC2A245E021F325D501A0FA00A2977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

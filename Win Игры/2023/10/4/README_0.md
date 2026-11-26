@@ -19,8 +19,7 @@ UFO: Extraterrestrials Platinum (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2E5362D6D2BAC4D3F26E4C61F57E8976C1BDA5E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

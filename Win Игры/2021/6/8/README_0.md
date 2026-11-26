@@ -19,8 +19,7 @@ Backbone - это постнуарная детективная RPG, где Ва
 ```bash
 magnet:?xt=urn:btih:3279D1FB88374DD3A73E294F955296FBD418FCB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.68.11808/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CE725946F57F2DF2F96933399A0F92B1E0589B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

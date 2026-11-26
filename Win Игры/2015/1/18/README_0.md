@@ -19,8 +19,7 @@ Kingdom Tales 2 HD / Королевские сказки 2 HD (2015) [Ru] Unoffi
 ```bash
 magnet:?xt=urn:btih:B8E2A8D1453F9E8ED2C60243BAC039A80C80E0A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

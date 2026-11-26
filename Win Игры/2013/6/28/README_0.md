@@ -19,8 +19,7 @@ Chronicles of Vida: The Story of the Missing Princess / Вида: История
 ```bash
 magnet:?xt=urn:btih:8283AF0B527099EBA552659A0991B95EFFC9CEAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deadpool (2013) [Ru/En] (1.0) RePack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D55056FF02DAC894D4F587AADF685A6E057B105D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

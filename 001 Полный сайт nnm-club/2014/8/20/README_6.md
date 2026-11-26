@@ -18,8 +18,7 @@ MulitiBoot MultiBoot USB utility and Windows 2014 v1.08.14 - эта обновл
 ```bash
 magnet:?xt=urn:btih:6779005EEEC6F072CA32C5B00261F5DE18DC60D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53D217B6703B24A651AE42217E7B27471B039ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

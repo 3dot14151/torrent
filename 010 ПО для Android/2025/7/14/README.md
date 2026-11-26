@@ -19,8 +19,7 @@ AIDA64 v2.10 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E5EFDBFAB3DE0F6C2942BF3DDDF8694BB651F728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

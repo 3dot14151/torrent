@@ -19,8 +19,7 @@ Photo Album GPS Mapping Tool - это программа, которая пом�
 ```bash
 magnet:?xt=urn:btih:AB4EE902F4E3C13507E1A47451F904B7540CE4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Publishing Python Packages научит вас, как легко делитьс
 ```bash
 magnet:?xt=urn:btih:6F262AF646465E5DA9D749CD6A28D686B75DA118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nanik Tolaram, Nick Glynn | Full-Stack Web Development with Go (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:82E6D2EF1EADC5C075991B55858B25FC97A0DAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

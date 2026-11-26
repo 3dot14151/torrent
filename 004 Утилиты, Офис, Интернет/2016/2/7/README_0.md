@@ -19,8 +19,7 @@ Starus File Recovery - Мгновенное восстановление уда�
 ```bash
 magnet:?xt=urn:btih:2D232151146CEBC54891B4BEFDC4443B0203480F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

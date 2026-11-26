@@ -20,8 +20,7 @@ Trayy 3.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:92D1C740A8A13ED71A97DD1B660D0B8ED0DC657C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ qBittorrent — это BitTorrent-клиент, написанный на C++/Qt
 ```bash
 magnet:?xt=urn:btih:8E629682540D27AD3EE0FB0C24638AF7B9221AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ WinDirStat — это программа для просмотра статис�
 ```bash
 magnet:?xt=urn:btih:C41EB809DE638B47E15E05F5A4B675FE046A3A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF4BB64EEA1AD105E892F979F7E35EC742A80AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:43F1F47998FD84C1B6F4ABEB9BD1199766F24495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Macrorit Data Wiper – мощная утилита, которая поможе
 ```bash
 magnet:?xt=urn:btih:F8A32A676251FB9D144802BE52E52B2212FD65E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:707725F272E5869E6835E9CFEDA15DEA8E5A6880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ NTFS Permissions Reporter Enterprise 5.3.691 [Multi]
 ```bash
 magnet:?xt=urn:btih:F66CF59B757BC51A20C76944C7FCF8AE64FDA469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:F8A6259ACBA9BC1196B5133318C0F63D12ABC792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ QR-Code Creator 7.6.2.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:CFC23B27763B3CC8EFB4D4B49B9DFCFBF4781402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:2C3A7326FA99E2041B9692D6748600C1B88E55CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

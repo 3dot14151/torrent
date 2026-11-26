@@ -19,8 +19,7 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 ```bash
 magnet:?xt=urn:btih:19B9B41FF9FA092E1A886DD991FB8C09D38588EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PATAPON - приключенческая экшен-игра, где игрок�
 ```bash
 magnet:?xt=urn:btih:08C9CE409F8A7F49712C7A49AA2275AF74238780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 ```bash
 magnet:?xt=urn:btih:B2FD5F8C95056FE3EACD81518A5CA501DDF9BF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 ```bash
 magnet:?xt=urn:btih:8CFFD6986D6C1397BC4A433A54414E3025B987D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack 
 ```bash
 magnet:?xt=urn:btih:27B3053FFB894BBDD8F7328E1C86491641C46433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:ACCBD9B0B85640529F7458FECDA0A2D1C70E4516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Precinct (2025) [Ru/Multi] (1.9.19872) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C6C2B86D3F30BC3C020C11917A1450E999DE4AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Beyond Sunset – это яркий неоновый экшн, в котором
 ```bash
 magnet:?xt=urn:btih:9807D5184403E2A3E2D558F24DC621D3AC984FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:7340AD817FF7D9D85E64A6C175E3E4E80AA9C711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack Wanterlude [4-Year Anniversary Ed
 ```bash
 magnet:?xt=urn:btih:7DD6BD4C42EF74577FA4E3DEE172FD8CD4D15E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Kitaria Fables (2021) [Ru/Multi] (1.10/dlc) License GOG [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:093EEE738C340C07F7729C6FD1C308CB9D2004AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Monster Prom (2018) [Multi] (8.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C7C5BB89AD8209063707C56264A02A3AD3C1BA2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Elroy and the Aliens (2025) [Multi] (1.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:C98B1DC6B9B343D95A8D26A1E9F2E00FA7F35292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.741703/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:9F87E72D3117F21A46690E7AF578958E44953E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Star Fire Eternal Cycle (2025) [Ru/Multi] (1.26.325) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AAFF2F4EEA4B1266FE4841EF8244444F9D0CF9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 ```bash
 magnet:?xt=urn:btih:5BCABB1075CDAF917FC06FDCED61B280F8D9BF05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ JETRUNNER (2025) [Ru/Multi] (1.0.1-dragon-0694/dlc) Repack FitGirl [Founders Edi
 ```bash
 magnet:?xt=urn:btih:D5268D380E5D68A8EC82F61CFAE2B35D785D1B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

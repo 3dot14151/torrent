@@ -22,8 +22,7 @@ Harlott - Exsequiis (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:05A76C0D50215CD3B185F116A63A9A00F96D05BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

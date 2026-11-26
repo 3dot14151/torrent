@@ -20,8 +20,7 @@ Neighbours from Hell 2: On Vacation / Как достать соседа 2: Ад
 ```bash
 magnet:?xt=urn:btih:B3C84C543C7E52EC72F7F815C41790A0BCBDF2B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

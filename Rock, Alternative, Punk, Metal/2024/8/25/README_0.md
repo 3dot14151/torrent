@@ -22,8 +22,7 @@ Equus - Equus (1985) Reissue, 2024, Pride & Joy Music [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:74962198C07D02643F836EB59C789843C5F69FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jeris Johnson - Dragonborn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 ```bash
 magnet:?xt=urn:btih:139E2EF5EFD1D101427269827B9DC5C2C4C19DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lionheart - The Grace Of A Dragonfly (2024) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:F26B1868826C0E9F4121449D309745482B47E807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Honeymoon Suite - Alive (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:54A71A6137A7146C521815CEF2C474D57DF9FBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

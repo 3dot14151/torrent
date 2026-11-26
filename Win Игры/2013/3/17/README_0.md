@@ -19,8 +19,7 @@ A Wizard's Curse [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:2293C66AE4FDC5C2FA10BC9E23CF02AE51D297AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ King Arthur Anthology / Антология Король Артур [Ru/En] (RePa
 ```bash
 magnet:?xt=urn:btih:9D76298A865803FB7833DD8745507AB60B777737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Sniper: Ghost Warrior 2 - Special Edition / Снайпер: Воин-призр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

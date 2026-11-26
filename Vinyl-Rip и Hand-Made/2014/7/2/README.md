@@ -22,8 +22,7 @@ A4. It's Hard (3:47)(   Читать дальше...   )Жанр: Hard RockПр�
 ```bash
 magnet:?xt=urn:btih:57AC978D6E1368640A97A44485C38DC0D957C652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

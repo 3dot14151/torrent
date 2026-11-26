@@ -19,8 +19,7 @@ Acting Lessons предлагает получить уроки актерско
 ```bash
 magnet:?xt=urn:btih:B79178492796DA51B1536D0D367A05E482F9A359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

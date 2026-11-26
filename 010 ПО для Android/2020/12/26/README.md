@@ -19,8 +19,7 @@ Webcams - отличное приложение, что предоставляе
 ```bash
 magnet:?xt=urn:btih:65BF3D273173B4A962FF622F0F9A138C85AE2EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Next - это не очередное фитнес приложение с на�
 ```bash
 magnet:?xt=urn:btih:CD77A8FA1B75A13DD9CE1DAFC3D5AE27F954F63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Impact Mapping – практическое пособие по картам в�
 ```bash
 magnet:?xt=urn:btih:0CE078736A971B2D23E0ACEAB62EA39BAA14FDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Lost Chronicles: Fall of Caesar / Забытые хроники: Падение 
 ```bash
 magnet:?xt=urn:btih:30FB83B967929429FCB70DC24A1C55EFBE0F436D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55253343A6EAD7A0B11419882F7BCF2CF38AEFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

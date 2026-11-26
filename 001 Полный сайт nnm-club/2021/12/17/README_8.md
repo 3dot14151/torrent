@@ -22,8 +22,7 @@ VA - Dispatched 2021 (2021) [AAC|~337 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1A9B7AACF67D5D406E51C20B7722537DC0A437C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Erroll Garner - 1949, Vol.2 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing
 ```bash
 magnet:?xt=urn:btih:1DA35CE0AAA5860DCEC7C596D83914ED96B0FD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 4 (2021) [AAC|~302 Kbps] <Lounge, Chill Ou
 ```bash
 magnet:?xt=urn:btih:4905A65A62D340A85AAC5E382008D0AF84B673BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Chill Ou
 ```bash
 magnet:?xt=urn:btih:5CF7CA924C30A2A9F04B0B925F92D332FF381153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Ou
 ```bash
 magnet:?xt=urn:btih:A56F02742039E8E57F79211DCFF25AAAAB06FD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Ou
 ```bash
 magnet:?xt=urn:btih:70297D045F269837605065F2C87B6F6ACD6828E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Lakeside Chill Sounds - Autumn (2021) [AAC|~323 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:F6A67ADADD30F482DF0B42459E8A326A2329F0B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Anjunadeep The Remixes 2021 (2021) [AAC|~327 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:F6E046FDE439872B741A53C8272985976978069A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - The Yearbook 2021 (2021) [AAC|~337 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:610194CCF5BAD3C09F15068C3C555FCD7622D6B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Hoom Side of the Moon, Vol. 02 (2021) [AAC|~334 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:D1A01ABCA79372DEBCFB3D160B47598B22EB0600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Hoom Side of the Moon, Vol. 01 (2021) [AAC|~335 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:275010A2A863F31B3A6EBF26FF49E1A76017B90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Johnny Hodges, Rex Stewart, Barney Bigard - The Great Ellington Units (1940 - 19
 ```bash
 magnet:?xt=urn:btih:5CECA131344275AFF2EA3C401F3B35DB90F753BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:DD3A47655BA5CD955466DCF4C97DC4E5765E4B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ VA - Zen Garden: Winter Vibes (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:0336CABA344CE317174F799E34075CF3A2723636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ Iron Fate - Crimson Messiah (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, T
 ```bash
 magnet:?xt=urn:btih:023112CC18E7547B0BC786BB6D52E54F3A41A8EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ File Cabinet Pro - файловый менеджер строки меню Mac O
 ```bash
 magnet:?xt=urn:btih:E5F1FC10B782D181E68074A170A2341F85E58D5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ James Ryan - The Best Of Lounge: L.A. Lounge (2001) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:D19D042D07FCBD107CF6EC32304F6962F1B2F217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ Sublime Merge - клиент системы контроля версий, ко�
 ```bash
 magnet:?xt=urn:btih:C4BA33252F41E28CE9A5C5BDB0CFE8EC9FADB293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Vangarde feat. XXL - The Best Of Lounge: Buddha Lounge (2001) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:944535990E60F979C3338829A1EBF1C2B6471C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ Levantis & Friends - The Best Of Lounge: Classic Lounge (2001) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:CB304A89BFBAEE08CAF91108109A0FD780E6C4D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ Peter Ellis - The Best Of Lounge: New York Lounge (2001) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:BA12C30B4A25E65303CBDE4AAF6416969AFB9584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:988909E6C218FDE520797C2EDE129E23983022F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E57141661E29261CFBF611FDF8120170F2EA359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F00E8EFEEBEB655B5194C3DABCB906326A61FD0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ Lian Ross - The Ballads (2021) [AAC|~325 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:455C0C6B75A2E0EA66A326D15A19E64C43FAA2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C750C8B4A7A4B67995B57D926F8645FBF22F6ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

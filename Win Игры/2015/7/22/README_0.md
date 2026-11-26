@@ -19,8 +19,7 @@ Yasai Ninja — игра жанра hack`and`slash, и своеобразная 
 ```bash
 magnet:?xt=urn:btih:72EFA6FAB0E937F6D9742EAE91C565B858FF2BF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tembo The Badass Elephant (2015) [Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:3B3AAF984FF3C3018091CA3E2FAC21CA9156F2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

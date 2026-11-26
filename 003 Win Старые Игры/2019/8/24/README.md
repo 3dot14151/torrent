@@ -19,8 +19,7 @@ Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:69CBBDD1AA5FCB9F47860D37CAA02BD0DA8AE4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

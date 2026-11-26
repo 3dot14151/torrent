@@ -21,8 +21,7 @@ SEGA MEGA DRIVE - игровая приставка четвертого пок�
 ```bash
 magnet:?xt=urn:btih:0A8B15D413CE4B8862EE4CD293F37ACCFDC51228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

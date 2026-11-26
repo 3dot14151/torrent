@@ -19,8 +19,7 @@ Whispers: Revelation [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:B4A55824D16D74B1D94DF4DBE999191590A0A7D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sacra Terra 2: Kiss of Death Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:937F1805D63DC62F0A472B03DB96438F29DF8FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enchantia: Wrath of the Phoenix Queen Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:48AC5F1FD4CFDEAC2F4787CA1B50ADDCDC265DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Quantum Conundrum [Ru/En] (RePack/1.0.8623.0/2 DLC) 2012 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:B61AD4983E35B20ACED3F15593CEC1F11CEA7771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ FIFA 13 [Ru/En] (RePack/1.7.0.0) 2012 l R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:A46DB83DAA3F3FAEC3B93AC22CDA25A5DA1E935D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4. One Fine Day (3:29)(   Читать дальше...   )Производст�
 ```bash
 magnet:?xt=urn:btih:E4A1EB9397DDC99578E447B43FAA1ACC517D74F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

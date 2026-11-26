@@ -19,8 +19,7 @@ SystemRescueCd — это спасательной диск в системе Li
 ```bash
 magnet:?xt=urn:btih:BA538C504CDD00DDC35AE23D354D89A9334CB10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
 ```bash
 magnet:?xt=urn:btih:A3A314CEE7A5E73E3723B3D7F4C8C71855E835C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ OpenMediaVault в первую очередь предназначен для и
 ```bash
 magnet:?xt=urn:btih:9D9B4520BBBD44BEA7F7EC0633547FD6E155D239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ pfSense - компактный дистрибутив для создания м
 ```bash
 magnet:?xt=urn:btih:CD7EBC1FDD9236F09EA2BA94D052C9D0BDF068D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ MX-19.2 Linux (XFCE) [x86-64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:EB287244BFDE751BBD64C99A171567E52276B822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

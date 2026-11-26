@@ -19,8 +19,7 @@ USBLogView — это небольшая утилита, которая рабо
 ```bash
 magnet:?xt=urn:btih:4FF0C7478AFA8D0B7A6471EBC9B62C4E6CA6654A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Fleece - Scavenger (2015) [MP3|320 кб/с]<Psychedelic Rock, Progressive Rock, 
 ```bash
 magnet:?xt=urn:btih:C27DE6008A39E6FEB70E0A76A752D3009A7966D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mother's Cake - Love The Filth (2015) [MP3|320 кб/с]<Progressive / Psychedeli
 ```bash
 magnet:?xt=urn:btih:A72519FF8DF4FDEF22B1736166BD2CD17E25AA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ John Du Cann - The Many Sides Of 1967-1980 (2012) Remastered /2012, Angel Air/ [
 ```bash
 magnet:?xt=urn:btih:FB86A2E1FAA0446511808EA23D1AAF5616BE8F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Forest - 2 альбома (1969-1970) Remastered /2015, Warner Music Japan/ [FLA
 ```bash
 magnet:?xt=urn:btih:9A6F018CFFBB592D0582223C7BDB9DB5B8B0B75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mark Slaughter - Reflections in a Rear View Mirror (2015) [MP3|320 кб/с]<Hard
 ```bash
 magnet:?xt=urn:btih:075D3AFB5AE19087E2944CCF8673F642C8EA7D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mark Slaughter - Reflections in a Rear View Mirror (2015) [FLAC|image+.cue]<Hard
 ```bash
 magnet:?xt=urn:btih:0E1749FAEC225793423CEFE48A6F0A9A9061C6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Billy Joel - The Hits (2010) Remastered [MP3|320 кб/с]<Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:01B166F8886979B4983561A0DA3B78F7648F3FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Accept - Russian Roulette (1986) [FLAC|image + .cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:58D7DAD3D5EF9A9948AA6D6EC5DCA4196B7F2D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Muse - Drones (2015) [FLAC 2.0 24/96|tracks (WEB-DL)] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:F3F02CE321A188BC2CFDB10526F51DC819A66E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Fats Domino - Jambalaya (On The Bayou)(   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:F1D719CD4652C3E95FE3317F4A76D5281B25A143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

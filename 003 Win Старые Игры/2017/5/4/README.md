@@ -19,8 +19,7 @@ FireStarter (2004) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:00EB1CBB0F9E9E7996D4F79F84EC3A2E585C471A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Birthright: The Gorgon's Alliance / Право на жизнь: Союз Гор�
 ```bash
 magnet:?xt=urn:btih:305E40152CD92D26DC075694A8F8FA136C5BBB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

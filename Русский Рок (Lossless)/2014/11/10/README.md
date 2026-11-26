@@ -28,8 +28,7 @@ VA - Трибьют Александру Башлачёву - "Серебро и
 ```bash
 magnet:?xt=urn:btih:05BC461C039D2403992294B16623C452BC9FA5F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

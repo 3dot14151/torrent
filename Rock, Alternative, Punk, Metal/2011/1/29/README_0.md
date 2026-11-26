@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:51464198372CB33E22DACA416C4BBEF8B44F33E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Oceana - Дискография (2008 - 2010) [MP3|320 kbps]<Post-HardCore | Ind
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ NeoNate - В маске (2011) [MP3|320 kbps]<Melodic metalcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

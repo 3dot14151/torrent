@@ -19,8 +19,7 @@ The Sinking City 2 переносит игроков в мрачный Аркх�
 ```bash
 magnet:?xt=urn:btih:602C538E63DA6459459176E077568731F6D2AFD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Harvest Moon: The Winds of Anthos приглашает отправиться в
 ```bash
 magnet:?xt=urn:btih:275CA1BDCE7F11C6291391C3859526839D6435B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Ember Guardian (2026) [Ru/Multi] (1.2.0.3a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:85B4AE4B51DBFADF83185876C35912814E0791C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ENDLESS Legend 2 – это фэнтезийная стратегия, где в
 ```bash
 magnet:?xt=urn:btih:7B3B9D9636446EC774AE2FAB0AA56E907EA39A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ENDLESS Legend 2 – это фэнтезийная стратегия, где в
 ```bash
 magnet:?xt=urn:btih:FB525E74C1255566A7952C4BD0352A1A36A6D857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

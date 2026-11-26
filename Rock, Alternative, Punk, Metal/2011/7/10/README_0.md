@@ -19,8 +19,7 @@ Blueville - Butterfly Blues (2011) [MP3|320 kbps]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:3BD1830147F21189B5F2C84F2AC5458C7770A2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ X Opus - The Epiphany (2011) [MP3|320 kbps]<Symphonic Power Metal / Progressive 
 ```bash
 magnet:?xt=urn:btih:A94577F11F5BABA6F799366B2B4AF339C05AA2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - UK Rock Vol 41 July (2011) [MP3|192 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:2931CE8D4E21EAFC847B6906EC59EA79CE54E83F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Ringo Starr - Better Than Best (2011) [MP3|320 kbps]<Beat, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:ABC55542B00997BC0ECD3E2BB0CD0F89C8940C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Hellraiser - 4 albums + 1 live (1990-2007) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

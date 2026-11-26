@@ -19,8 +19,7 @@ Grim Tales 3: The Wishes CE / Страшные Сказки 3: Желание (P
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Old Clockmaker's Riddle {0.1.20} (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:C973C2F873DDF445623E7ED4E9E17DC661EC4224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Forgotten Hope 2 - это мод для Battlefield 2, который воссо
 ```bash
 magnet:?xt=urn:btih:F31A7F8063C972E130DAF2CC8722C7ABE0D2B4AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

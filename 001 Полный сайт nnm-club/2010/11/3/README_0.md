@@ -18,8 +18,7 @@ VA - Indian Secrets (1998) [MP3|320 kbps]<Native American, Ethnic, New Age>
 ```bash
 magnet:?xt=urn:btih:9E5596421E32170ADCFFE73BB6C1A8F58B5B9F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ MoozE - Selected Works (2006) [MP3|192 kbps]<Breakbeat>
 ```bash
 magnet:?xt=urn:btih:143860049578A7B80FBA9D0D7735149A20113B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Duke Ellington - Love Songs (2001) [APE|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE827F74368C5A97E9F35E03E841504C3C446185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Joe Pass - Appassionato (1990) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C817BE23B21823623DB09E385CF0B4E815FF930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ Belle and Sebastian - Write About Love (2010) [FLAC|Lossless]<Indie Rock, Indie 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ VA - Samurai Collection (2004) [FLAC|Lossless]<New Age, Ethnic, Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ The Jazz Crusaders - Old Socks, New Shoes...New Socks, Old Shoes (2008) [FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ R.E.M. - Fables Of The Reconstruction (2010) 2CD [MP3|256 kbps]<Indie rock>
 ```bash
 magnet:?xt=urn:btih:4037DBC205D9BE95EE28FAEFC828DDCF632BB2AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:034E42E67AA91F993856C6A6C29DBC45745C60E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ Pitbull vs. Yolanda Be Cool & Dcup - Bon...Bon (Americano) (2010) DVDRip
 ```bash
 magnet:?xt=urn:btih:9F3BFC5E4ECEC586A1D6A60D0564D3FA6688599E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ VA - Клубные новинки осени-13 (2010) [MP3|320 kbps]<Dance, Ho
 ```bash
 magnet:?xt=urn:btih:0C1D122E78AA22E60127ECF660A11BE1D96D5FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +442,7 @@ Dexpot позволяет создавать до двадцати незави�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ MoozE - Firestarter (2006) [MP3|320 kbps]<Industrial Breakbeat>
 ```bash
 magnet:?xt=urn:btih:7507EAFEADCA2CA6C57351BD4746BDE6356CA76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ Tetania - Dewildication (2009) [MP3|320 кб/с]<Neoclassical, Gothic>
 ```bash
 magnet:?xt=urn:btih:8ADEAB64B076F0EC3830D2CE366CED4C893F0903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ Hideki Mori - Siam Experience (2009) [MP3|320 kbps]<New age, Meditative>
 ```bash
 magnet:?xt=urn:btih:16A189C7189EF6474783B23A47A75EF3F6893666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A16EA2B12D22FF374D4DBAA919EFC7AA6736D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ BBC: Уборщики мертвых / Dead Body Squad (2006) SATRip
 ```bash
 magnet:?xt=urn:btih:E6FEF0A83519FE9CBCA12ECB0AE948421064C38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A484A152D91BDF4F0B724AA8CD235ADA1FFA030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ AntiDupl.NET 1.5.3.0 [[Rus|Eng]]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +681,7 @@ Spectralized - The Puzzle (2010) [MP3|320 kbps]<Pop, Synthpop>
 ```bash
 magnet:?xt=urn:btih:4C83DE926304B3F1C9394495FB17D1402EA3366F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ Buddy Guy - Bring 'em In (2005) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ Sticky Password сохраняет и защищает все ваши перс�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82ECF9A7C3E8C28AFD471CA82AA42B7139DC7F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

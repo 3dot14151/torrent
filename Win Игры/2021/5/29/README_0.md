@@ -19,8 +19,7 @@ Larger Than Light - захватывающая 2.5D платформер-гол�
 ```bash
 magnet:?xt=urn:btih:E6E8B7EC581E7FAD6C653A9EF62E62C1E795113D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Company Man (2021) [En] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:96AF825CEBB33541F7344AC614FFB4E77973672E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

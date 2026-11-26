@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:4360CB1F77D80EF1E8467ED67F13B96A62DAFF73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Busuu - популярный и востребованный проект для
 ```bash
 magnet:?xt=urn:btih:72965CB3472598649863C14149AEF86EB7F27CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:10866B3A44A4850FE051B74BFEFA9ECA54FEBC41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Polarr v6.9.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:71F23DCC22E039722C93FB43DAA38BABFD30E727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Colorfy - это раскраска, призванная помочь вам у
 ```bash
 magnet:?xt=urn:btih:5AA008F3351DFE7E8A5F0B4A1376019D4C731002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Final Cut 5: Fame Fatale (2015) [En] Unofficial [Collector’s Edition / Кол�
 ```bash
 magnet:?xt=urn:btih:F252B9067F9094B16DFE458067007B26CB3D6CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

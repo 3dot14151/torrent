@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:34C028D9CFA4F310C691659CE953406A912BC377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Darkthrone - Pre-Historic Metal (2026) [FLAC|Lossless|WEB-DL|tracks] <Black Meta
 ```bash
 magnet:?xt=urn:btih:8D543C592514096A8FC8C58F2CB2F9BD1E37ECE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

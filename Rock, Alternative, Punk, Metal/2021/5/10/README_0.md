@@ -22,8 +22,7 @@ Marius Danielsen's Legend Of Valley Doom - The Legend Of Valley Doom (Part 1) (2
 ```bash
 magnet:?xt=urn:btih:E7E6B368D01AAD289B5E01544B626883C16AFDF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ World On Edge - Against All Gods (1993) [FLAC|Lossless|image + .cue] <Pop Rock, 
 ```bash
 magnet:?xt=urn:btih:F4C52246FDCD5F8FCA24B332BF8CE07477A6802D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Marius Danielsen's Legend Of Valley Doom - The Legend Of Valley Doom (Part 2) (2
 ```bash
 magnet:?xt=urn:btih:E8B422413F44A0744CDF35C762D5C2B1DDB0453E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6068BF83927FBEB9D57B1973A9D2F78F36D87ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F53C2188B4F80670D0551B73D1D84652C5DF55A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Marius Danielsen's Legend Of Valley Doom - The Legend Of Valley Doom (Part 3) (2
 ```bash
 magnet:?xt=urn:btih:2D3FA30FE56ED44180D29C37233982C9AD6A32DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Elvis Presley - Las Vegas International Presents Elvis (2021) The First Engageme
 ```bash
 magnet:?xt=urn:btih:F07C9ACABE9E565C71EEE3139A0678138F0F7F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Dan Reed Network - Origins (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, F
 ```bash
 magnet:?xt=urn:btih:25D2BE7CD4230A6DB22DDD165564DCB7DAC69216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Frederic Slama родился во Франции, но более 10 лет п�
 ```bash
 magnet:?xt=urn:btih:6310012CDD341FF2753160902B1030C2AD47CC10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

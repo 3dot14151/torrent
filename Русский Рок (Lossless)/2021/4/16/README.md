@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:109236FB0B1795F68982628B6B150CF0AD6C01C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ LOUNA - Обратная сторона (2021) [FLAC|Lossless|WEB-DL|tracks] <Al
 ```bash
 magnet:?xt=urn:btih:3B993A6C488E396FE63FE15581C9B4B7A3709335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

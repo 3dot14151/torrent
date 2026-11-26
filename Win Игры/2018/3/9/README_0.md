@@ -19,8 +19,7 @@ Enchanted Kingdom 3: Fog Of Rivershire / Зачарованное Королев
 ```bash
 magnet:?xt=urn:btih:9B980C69C497ED8B607E25FC1CC1FB91C6FA799B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Demolish & Build 2018 (2018) [Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:5B88FE0146B6C5DF174AA07297EF39280047EA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pyre - ролевая игра, в которой вы становитесь п
 ```bash
 magnet:?xt=urn:btih:195D43FED6AD976D35ABDCD51CA278ED445F5E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fear Effect Sedna (2018) [En/Fra/Ge] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E35DBAA6B9F4BA33E73C2CFA2EB83D64E82140E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ I’m Lost (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:F226453E99BFA08202735835BA977333B5E16F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

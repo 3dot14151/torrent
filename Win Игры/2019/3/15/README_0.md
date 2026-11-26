@@ -19,8 +19,7 @@ Dragon Ball FighterZ – эпичный, яркий, динамичный и н�
 ```bash
 magnet:?xt=urn:btih:B4DE28662F0766EB2E654E6E3A89AC7A0EDF0A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Battletech - это пошаговый ролевой экшен с робота
 ```bash
 magnet:?xt=urn:btih:F21577865FCE1CF97E8910AFF58FB34CBCD6BAFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

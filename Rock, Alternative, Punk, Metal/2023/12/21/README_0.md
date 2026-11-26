@@ -22,8 +22,7 @@ VA - Митьковские песни. На море танки грохота�
 ```bash
 magnet:?xt=urn:btih:E4329C8AE40928113255D6548231B6E6D8D56196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ossuary - Stellar Annihilation (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 ```bash
 magnet:?xt=urn:btih:A0FD62EF10263AAC9DA8E4B42A7DD01B85FEDC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Animal ДжаZ - Корни (2023) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:3A66F2CEF483FAACF197CE0BED0EC5DD04CBD14E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Demon - The Plague (1983) Japanese Edition, Reissue, Remastered, 2020, Rubicon M
 ```bash
 magnet:?xt=urn:btih:5896102D0F1FF029B20BA2DF8CF6096474373DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Uncircle - Via Dolorosa (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Modern 
 ```bash
 magnet:?xt=urn:btih:F6EB81EF82611DA44024AE0B2B440EFBD68DED2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Apostasy - Accuser of Brethren (1993) Reissue, 2020, Pathologically Explicit Rec
 ```bash
 magnet:?xt=urn:btih:71E8A5DFBFB26DB72171E0BA8883BD4377A839D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Horrifier - Horrid Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 ```bash
 magnet:?xt=urn:btih:AEEB001DD4F5C9633827770F8C76DB36EA756D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

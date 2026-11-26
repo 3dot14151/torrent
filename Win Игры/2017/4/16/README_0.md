@@ -19,8 +19,7 @@ La-Mulana (2012) [Ru/Multi] (1.6.6.1b) License GOG
 ```bash
 magnet:?xt=urn:btih:85092F85DA607CF505BD55EE80611295F607975F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Need For Drink - это шуточная мультиплеерная игра, 
 ```bash
 magnet:?xt=urn:btih:3F291C27CF39A57AA1512ADC1CD7F87035E04220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DiRT Rally — самая реалистичная из ныне существ�
 ```bash
 magnet:?xt=urn:btih:F9EF0582A043B33DABD332F696E77E22027AB3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ This Is the Police (2016) [Ru/Multi] (1.1.3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5AE1ECC5D67A7CCD884AFF16DC39932DA831A638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

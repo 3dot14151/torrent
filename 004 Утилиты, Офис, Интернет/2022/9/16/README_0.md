@@ -20,8 +20,7 @@ Registry Workshop представляет собой альтернативны
 ```bash
 magnet:?xt=urn:btih:AAD8C8876EDDF5CE8AFCEBC3A5043EA52FCF21BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Resident Evil® Revelations после доработки снова на пла
 ```bash
 magnet:?xt=urn:btih:04206BF588E7C498AD76757EA75948BD9C195FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil: Revelations 2 (2015) [Ru/En] (6.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:477EC3FAA5CC1170A12233601AF121ADBDE1918D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resident Evil 2 (2019) [Ru/Multi] (1.05u13/dlc) Repack Decepticon [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:2028221A35860362554ADE9E601236E7A8C6D839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

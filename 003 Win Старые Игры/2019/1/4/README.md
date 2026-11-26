@@ -19,8 +19,7 @@ Rugrats Go Wild (2003) [Ru/En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:B7E12B10731FFA985D4E578B125F1A6C3E409F51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

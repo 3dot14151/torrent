@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:86EFA373DA71E21A5119E6E8AD0AAA2E3BCBD0F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Overlord / Повелитель [2015, TV, 13 ep + 8 SP] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:64FC0C769580D24A4A1CD2E60FD47132A5EB0E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C372EF3A2C6E0C674EBEED39B8A1D5E3AB01FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C7F55B01136DB66F9D997BE59632EF7E9608E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mass Effect (2010) [Ru/En] (1.2.20608.0/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:2C937EB88EB4D5E93A8EE8B6FCDDD537352C875D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Gran Turismo 6 – продолжение знаменитой серии авт
 ```bash
 magnet:?xt=urn:btih:A300DE3BE90B701F47429C3C403EC673E8146F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/Multi] (1.
 ```bash
 magnet:?xt=urn:btih:E3042C1EC7E8C604202B9B577F23BE5AB4510A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:917144DB1E8E877B2E0E222D98B404452EF2A403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

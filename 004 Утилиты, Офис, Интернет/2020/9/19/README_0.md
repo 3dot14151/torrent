@@ -19,8 +19,7 @@ BWMeter - лучшая из утилит для подсчета трафика.
 ```bash
 magnet:?xt=urn:btih:4DE6FFDCDDA37C6A98F17E4CC68F60727A9AD458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

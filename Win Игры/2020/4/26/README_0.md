@@ -19,8 +19,7 @@ Lost Lands 7: Redemption / Затерянные земли 7: Искуплени
 ```bash
 magnet:?xt=urn:btih:EB1C6F2FA3E9957701B0F224DB884CD6B7C4186C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tank Mechanic Simulator — игра про танки времен Второй
 ```bash
 magnet:?xt=urn:btih:CF2EDB53DE68BC4D92BF0B5F6F09E64B0BD2869B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LUNA The Shadow Dust — это вдохновленная квестами ст
 ```bash
 magnet:?xt=urn:btih:D42080884A74AEA5BE29BD21FF875A2381C07526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

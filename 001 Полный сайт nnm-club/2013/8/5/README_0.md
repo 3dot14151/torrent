@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Trance Pro V.34 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:27C48AD9C13099D803E74267D5FF2684DA132A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71341BC94911469F9C5B22A69842FAAB7E82407E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - There Is Soul in My House (selected by Seb Skalski) (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:9673C041347313798C3387BCE6811B237C57DD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Oliver Nelson & Friends - Happenings / Soulful Brass (2011) [MP3|320 кб/с]<Ja
 ```bash
 magnet:?xt=urn:btih:E48776789F9CB68037890230F4EA44691EE7E4E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Exilia - Decode (2012) [FLAC|Lossless]<Alt.Metal | Nu Metal | Female Vocal>
 ```bash
 magnet:?xt=urn:btih:7DF901E29F9024D5C8654E6E6AF204E0652F5D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ VA - Deep Elite - Deep Tracks 2013 Selected By Jaques Le Noir (2013) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:E0B92A08CF0EB63AEE1EB0F1FCA12802EA7E738D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ VA - Drum and Bass Pro V.23 from AGR  (2013) [MP3|320 кб/с]<Drum&Bass>
 ```bash
 magnet:?xt=urn:btih:5061772F696052E880B85F82679CC82A7A1FF714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ Glary Utilities – это функциональный набор систем�
 ```bash
 magnet:?xt=urn:btih:258CB309D256B0C54D1EDCE198411F337C837745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:505ECD2F40A54D2891EA898C0F3C758698C33796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:030AA21A5FF5B40FAA505CBD6B1C1609B9B0EB9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ The Greatest Songs Ever Swung (1959)
 ```bash
 magnet:?xt=urn:btih:D6F8BFF86F57CFC2207ECD176D955A2029F11FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ History Channel: Ледовый путь дальнобойщиков (Сезо�
 ```bash
 magnet:?xt=urn:btih:E0150121975D32A9CC22DCC25097ECD092C14ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ VA - Trance. Vocal Fascination 47 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifti
 ```bash
 magnet:?xt=urn:btih:1C0B3BA15BAC425E052034BDEBC67B3D9FEF9B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ Gil Evans Orchestra - Little Wing (1981) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:EFF8C65C9D849DDC0D22295DFAA22A2B7F5FB749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82781F1091C28349B81545326C865D5F296549CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ History Channel: Ледовый путь дальнобойщиков (Сезо�
 ```bash
 magnet:?xt=urn:btih:4B18CE278C29A6998DA9587B852FF215C4E7A3EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ Alexia - iCanzonissime (2013) [MP3|320 кб/с]<Pop, Eurodance>
 ```bash
 magnet:?xt=urn:btih:5725F10D3B220CC24338D0CBFDBF0DD4159E8BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +567,7 @@ We Caught The Castle - Time To Grow (2012) [FLAC|Lossless]<Alt. Rock | Post-Hard
 ```bash
 magnet:?xt=urn:btih:B97E5A7D56C0BEAD6E1D1F18DFCA59A02A4297E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +601,7 @@ VA - Drum and Bass Pro V.22 from AGR (2013) [MP3|320 кб/с]<Drum&Bass>
 ```bash
 magnet:?xt=urn:btih:08A439CBBBC0143B46F5B9F2CF69DFC73AD41B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E188A11024795D25DAA88A512B265449B8A1775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +658,7 @@ Dr.Web 8.0 Security Space Offline Update 02.08.2013 [Ru]
 ```bash
 magnet:?xt=urn:btih:A535EB33C7F4E9027C9A07AA8D48F624D426E251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +692,7 @@ VA - Creative Music Box 17 (2013) [MP3|320 кб/с]<Dub Step, Drumstep>
 ```bash
 magnet:?xt=urn:btih:2756501C7A307F0FC8F76015E0F7C4AF58451503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +726,7 @@ VA - DubStep Pro V.34 (2013) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:756DE4CADF345028A05603C3EFCF8D56F89113B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +751,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DFDD0F4379603CD34BC14B3551FCDBD572D2C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

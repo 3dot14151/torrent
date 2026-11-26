@@ -19,8 +19,7 @@ MyLifeOrganized (MLO) — это самое гибкое и мощное при�
 ```bash
 magnet:?xt=urn:btih:305266E2ADF857B44C96FD654899F0492C4D6899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GIF Maker - GIF Editor - видеоредактор, что создан для 
 ```bash
 magnet:?xt=urn:btih:A488F88B936CC6ACCDB95A4F39089B5A87168B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

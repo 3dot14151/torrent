@@ -19,8 +19,7 @@ Parallel SpaceMulti Accounts v4.0.8934 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:83B634127B68F9EADB3BDFEE5F9BC04C95FFEA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chromatix - это мощное мобильное приложение, кот�
 ```bash
 magnet:?xt=urn:btih:B87B51C2B50F199272B0F390CC24764156964229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

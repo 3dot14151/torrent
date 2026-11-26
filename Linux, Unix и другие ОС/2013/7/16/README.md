@@ -21,8 +21,7 @@ PCLinuxOS 2013.07 (MiniMe KDE, LXDE, Mate) [x32, x64]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

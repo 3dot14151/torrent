@@ -19,8 +19,7 @@ Microtopia (2025) [Ru/Multi] (1.0.9d) License GOG
 ```bash
 magnet:?xt=urn:btih:073FF63310B4021102E93F9906A51582BA8FB403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Scene Rune
 ```bash
 magnet:?xt=urn:btih:F9F18556CCE491C4B7344CBF28C2ED67B5C129E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wizordum - это ретро-шутер от первого лица, в кот�
 ```bash
 magnet:?xt=urn:btih:84AC03B91018CA71C274EE277642AA17C73EB1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:89D3787E35A3A0EC3C5AB3A348484C40FB40F77D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F1D8021FC7ED04EB6FC7D794FF314ECFC96F603C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Siege and the Sandfox - это стелс-метроидвания в еди
 ```bash
 magnet:?xt=urn:btih:7B1A7CCD35BD9536BE27CEDA515EB141AB0754E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:78FD4EB75E1C2DA72804C89B530017FF41410D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Hunter’s Journey: Tears of the Lake / Путь охотника: Слезы о
 ```bash
 magnet:?xt=urn:btih:91E21FF8F1BC166868BB3FEBF9F5A5AF3FEA6D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Brass Brigade (2019) [En] (1.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:4081E1B1288BBE3933622426CD9308E988AF42E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

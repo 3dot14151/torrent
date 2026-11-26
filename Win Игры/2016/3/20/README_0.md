@@ -20,8 +20,7 @@ Dead Reckoning 3: The Crescent Case / Точный расчет 3: Дело По
 ```bash
 magnet:?xt=urn:btih:219345FFBD48A2EF3A45580D23608690A6947DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Dead Reckoning 4: Broadbeach Cove / Точный расчет. Бухта Бро
 ```bash
 magnet:?xt=urn:btih:78F441450187D0FD12F8966CBB19F4F5431C4C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Razenroth - это темный ролевой экшен в стиле Diablo, 
 ```bash
 magnet:?xt=urn:btih:4E846376B8D469CE5C6E920355CF64422F4985CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

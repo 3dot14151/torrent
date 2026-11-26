@@ -21,8 +21,7 @@ People's Choice - We Got The Rhythm (1976) LP [MP3|320 Kbps] <Disco, Funk>
 ```bash
 magnet:?xt=urn:btih:1C14EBCB8AF0E800C29DE73EF3203707780E5CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Nothing But Thieves - What Did You Think When You Made Me This Way? (2018) EP [F
 ```bash
 magnet:?xt=urn:btih:94D2D5E7CA9D85580C898579680D24CA4CA23F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ HY-Plugins - HY-SEQ16x3v2 1.1.51 VSTi (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:272054C58078D3308C6C692455FD7CB271E1D6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D26C1F7E3954B06AFF6D1B415B8AF08CC0F03A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ iShowU Studio предоставляет эффективные инструме
 ```bash
 magnet:?xt=urn:btih:21CF724374E977346D2987DDC65FACB238FF9422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Silent nook - С.О.М.А (2018) [MP3|320 Kbps] <Trip-Hop, Ambient>
 ```bash
 magnet:?xt=urn:btih:8EA0C09E0D4C15F18E8D98DFF90A1280BE7CAD97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Audio Playr App может обрабатывать почти все, если 
 ```bash
 magnet:?xt=urn:btih:1D74D1689F9B248ECB28F16B5D40B5149CFF805E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Total Video Tools = Video Editor (Trim/Cut/Rotate/Merge/Extract…) + Screen/Voi
 ```bash
 magnet:?xt=urn:btih:8F76233880F38E8FAAD8537419613F0DC20841EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ VA - Sweet Dreams Electro Zone (2018) [MP3|320 Kbps] <Electronic, Synthetic>
 ```bash
 magnet:?xt=urn:btih:24B0253B15CF85576086F018D8F71FB64BE5A913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Blue Cat's All Plug-Ins Pack (v.2018.11) VST, VST3, RTAS, AAX RePack by VR [En]
 ```bash
 magnet:?xt=urn:btih:723DBB9D801A414F3B7876E73AB0307865E14E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ HY-Plugins - HY-MBMFX2 1.0.6 VST, VST3 (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:94F75CB6679EF367115A9FCD76CA003DDE0955FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:ADBBF5466D9D0B5DF0C7800C702CAAEB1434A71C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ HY-Plugins - HY-Delay3 1.1.2 VST, VST3 (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:EFD33E5497E3256EC6B6993696974A183FC3ABD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C1326FADFE52B9E7A330747EF07E0C234FE1D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ Vivaldi 2.1.1337.47 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4DCC4BFCAFAFA628BAC758B7F5E24A442F859655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ NG: Первый великий побег / The First Great Escape (2014) DVB
 ```bash
 magnet:?xt=urn:btih:6FEC4B47C0286D7DECCAECA25131B7703D5FA8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ NG: Из истории Второй мировой войны. Гражданс
 ```bash
 magnet:?xt=urn:btih:AEA52ABC6099A1A60301BB4A37CD3AF6FDB2C858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE9FFD6F09575E8B44E79BEB33A9CD4CCD5462ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6F7845F59DF3D42DA7A2AEA5CD05E0B8584B0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:440B0F6ABE72D7AC42CD8274BBC63785720BA81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ VA - R'n'B 100 (X5 Music Group) (2018) [MP3|320 Kbps] <R&B, Swing, Soul, Jazz>
 ```bash
 magnet:?xt=urn:btih:DECAB7B0B6E0F3EC12B00D2F86DB9F1FD0C84A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B1A251078AF608BA527834DA03A163FF85A2D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3312312D038D4610DC572E5A5040E04635557B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F5FB79283D1047B436138164419BDE801613F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ NGW: Дикая природа Перу: арена боев – Анды. До�
 ```bash
 magnet:?xt=urn:btih:6D9EA8D977E5B30329BCA8C6D075F3446F68AA06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ Deep Space Network | I.F. | DSN. - Discography 7 Releases (1992-2004) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:5749CF7339F17056EDDB334DA0F9F926ED197C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

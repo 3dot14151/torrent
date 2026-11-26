@@ -18,8 +18,7 @@ Okami была высшей точкой эры PS2, совмещающей эк
 ```bash
 magnet:?xt=urn:btih:F76D9BD4415769164824EAC561C84AC55E3F4E2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Sid Meier's Civilization: Beyond Earth - новая часть знаменит�
 ```bash
 magnet:?xt=urn:btih:8AE47512229143F5C8131B59C25069839437446D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Burnout Paradise (2009) [Ru/En] (1.1.0.0/dlc) Repack R.G. Origami [The Ultimate 
 ```bash
 magnet:?xt=urn:btih:86A517B09716C24227073A5C2C7C6F62483DD912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61EDF3CAE68783FD68EDEA540BE855E5E9FCB2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:3BB4B0022637468F7DBEFADC563B6FDE1D479B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tom Clancy's Splinter Cell: Conviction (2010) [Ru/En] (1.04) Rip R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:3D9888C1C5226C533C797CCFBDBC3D1BEDD0D560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Warcraft III: Reign of Chaos – продолжение знаменитой с�
 ```bash
 magnet:?xt=urn:btih:8A1AF54240C6EF4C1AB535C003C9050F62598478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Windows 10 Enterprise "LTSB Style" VL (x86/x64) Elgujakviso Edition (v.14.12.17)
 ```bash
 magnet:?xt=urn:btih:EBF757189440C152A13F17F241D3D24C5F880834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ SpellForce 3 — увлекательный гибрид стратегии в �
 ```bash
 magnet:?xt=urn:btih:E63EAF15E6FECA45B56BF30F13B0CC3F24332640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 14.12.17 [Ru
 ```bash
 magnet:?xt=urn:btih:DD12FAA746F596DBBBC73A794419C26D60E704EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Far Cry 3 — шутер от первого лица с открытым мир
 ```bash
 magnet:?xt=urn:btih:423B385CBECE600AECC141627DCC6AD3BE76B9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

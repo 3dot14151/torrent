@@ -22,8 +22,7 @@ Reverber - The Satan Creation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:2562917A8B263287E5A554EBD1D836B41D8F6477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Coldplay - Moon Music (Full Moon Edition) (2024) [MP3|320 Kbps] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:51D16E77A96C84C49CFD000E936FC8AB9381C097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hardy - Мир Криминала (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & H
 ```bash
 magnet:?xt=urn:btih:D40519EF13CE5CFD7AD63690EA07EA4CD0ED574E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Paul McCartney & Wings - Wild Life (1971) Archive Collection, Remaster, 2018, Pa
 ```bash
 magnet:?xt=urn:btih:F84666A3163944C5E6EC85D5A15EFE3BCE533870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

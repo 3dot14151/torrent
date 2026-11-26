@@ -19,8 +19,7 @@ CSI: Место Преступления / CSI: Crime Scene Investigation (2014-
 ```bash
 magnet:?xt=urn:btih:1D79F19E923E77CDD6547F80062A1F58DCB446B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9AAA2A69FB4EAA9152FC924CBE2FB28C3AC09E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

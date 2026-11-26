@@ -19,8 +19,7 @@ Underground Garage (2024) [Multi] (157_UG) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C102C30F68B6751DDA818BECFFD00188C4E461CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ S.E.M.I. - кооперативная онлайн-игра про побег и
 ```bash
 magnet:?xt=urn:btih:CB72B9CDF44B1A9A4F9CB75409FCC98BEB0C148C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wreckreation (2025) [Ru/Multi] (1.4.4.149571) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3415EB26581205F75DF433A55127E79EFE0FFBFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Peregrino (2026) [Ru/Multi] (1.0.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:4F4A76A1E60F922B131AF895D0857032E6B9AA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Towerborne - это захватывающий ролевой экшен-бро�
 ```bash
 magnet:?xt=urn:btih:F6563B4409F2A6D19E77141C1D3912E06D14F21C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack HardwareMining [Mas
 ```bash
 magnet:?xt=urn:btih:373A5792B9407359899605947ACC96EF5EDC9A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ DOOM: The Dark Ages - это не типичный шутер с беготне�
 ```bash
 magnet:?xt=urn:btih:D8C86CA073191A1AAF25E54C8A83C190D6DE73A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ BioShock 2 (2010) [Ru] (Build 789537) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:08A6B0449698067F06DDFB0ECA201E18F4860C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Hellmart (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A07178CC91A944DDB3593556C66BA8F2C33C925A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (20260226/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:FDB98F2A7B5161F95F18B39AC55905ABE43B7DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Millennium Dream - это разработанный одним человеко
 ```bash
 magnet:?xt=urn:btih:6CEDFD833C14E705B589CC51F4D4C822FB5798FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Ready or Not (2023) [Ru/Multi] (112610/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5DBC4DF8358E08D6F3C7D7198DABAD9CB937A947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Hoverflow (2021) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6A9B30F9112B116F479A4669BABBD6A38B07AC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Cryogear - это уникальный платформер Pixel Art в сти�
 ```bash
 magnet:?xt=urn:btih:FBC5AF58B038B2BA820DB0313E8D04567984547F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Tomb Raider: Legend (2006) [Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:83FFEBBE285FC2869E912C0DF4D33DC9DA52D233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

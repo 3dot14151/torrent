@@ -19,8 +19,7 @@ Riddles of Fate 2: Into Oblivion (2014) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:FAAFFEA08672449FAE97D4EE8A8D24B3ED5F30BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zeno Clash 2 продолжает приключение Гата, которы�
 ```bash
 magnet:?xt=urn:btih:6BFA948E8D83B0ABD2AC86951A65126161B82932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

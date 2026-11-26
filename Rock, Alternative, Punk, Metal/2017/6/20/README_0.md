@@ -22,8 +22,7 @@ Estus - Estus (1973) Reissue, 2016, Flawed Gems [MP3|320 Kbps] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3BAA041000067BB204FCAE33E95CF14D9B39A75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Richard Hell & The Voidoids - Blank Generation (1977) Reissue, 1990, Sire, Warne
 ```bash
 magnet:?xt=urn:btih:E948A4B85FF514411D5693181FC951A257F7BB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eric Burdon & The Animals - Winds Of Change (1967) Remastered, 2013, Polydor, CD
 ```bash
 magnet:?xt=urn:btih:400B7CAA685E061A1A95A414551716FBCCD7DA45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Royal Blood - How Did We Get So Dark? (2017) [FLAC|Lossless|tracks + .cue] <Alte
 ```bash
 magnet:?xt=urn:btih:66A1345923948693D1BC0329D233EC729A343EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rainbow (Ritchie Blackmore's Rainbow) - Since You Been Gone: The Essential Rainb
 ```bash
 magnet:?xt=urn:btih:8207586C1B96C66C002A2D0D981B023CA30EE625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Nickelback - Feed The Machine (2017) [FLAC|Lossless|tracks + .cue] <Alternative 
 ```bash
 magnet:?xt=urn:btih:2FE9B7B23F3FA538EF7A1E7F00CF646259C45ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

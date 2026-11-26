@@ -26,8 +26,7 @@ VA - Mechanics Of Awakening (Compiled By Nomolos) - 2011 [MP3|192-320 kbps]<Psy 
 ```bash
 magnet:?xt=urn:btih:309EC54A117325B1A5BEE4BF937E46E109A711EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - Лето Солнце Жара (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:D45E3897D0893824B7A1F003C6D7521578478BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDF6CFB688D7A77B965B4CE78E009EAB1146DF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Dusk Till Doorn: The Extended Versions (2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:FAA4136C3E1F79104EFEC298B29C0CCE93448775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Bhaishjaya - Medicine Buddha (2010) [MP3|192 kbps]<New Age, Relax, Meditative>
 ```bash
 magnet:?xt=urn:btih:0E61723AA2E5628699C65E9097102454800F9C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Steel Aggressor - From Ruins to Dust (2011) [MP3|320 kbps]<Power Metal, Thrash>
 ```bash
 magnet:?xt=urn:btih:A73E4AC8626478AEB4289630559C0B152BB239CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ VA - 100 хитов радио Поп-Са (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:6A65E6E26BE4290BBD40227BF6345F427D4FEEFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ Teenage Bad Girl - Backwash (2011) [MP3|320 kbps]<House, Electro.house>
 ```bash
 magnet:?xt=urn:btih:B9F90B4206E322009AD821C89AA0E4E250AD72C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ VA - Лучшая клубная сотня 19 (2011) [MP3|320 kbps]<Dance, Hous
 ```bash
 magnet:?xt=urn:btih:119F55992C44D17E28A94F41C97513209811D7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +335,7 @@ VA - The Best of New Orleans Rhythm & Blues (1988) [FLAC|Lossless]<Rhytm & Blues
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B1D2BC1BF6CC086803D885FDBBF03733E790DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ VA - Зажигай с хитами лета (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:471B02B074CAEEC5A511E3E99A45377226E1765D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ VA - Masters At Work Present: Latin Sounds (2004) [FLAC|Lossless]<Latin, Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ VA - Сотни Километров До Любви (2011) [MP3|256 kbps]<Ша�
 ```bash
 magnet:?xt=urn:btih:E5A1043B52222446C23CC3524943AD45691C96B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ VA - Ascension 001: The Awakening (Mixed And Compiled By Tasadi) - 2011 /LOSTCDL
 ```bash
 magnet:?xt=urn:btih:300CE48CA51E82D648249827235456FD6A1F3898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBB5E2828C185FE9F59AF3A62BF2EDCDB77C2609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ Moleman - Breeze EP (2011) [MP3|320 kbps]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:0E55ABBF1463B2E47A9D8837F9268DC47075C46C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ VA - Лучшая клубная сотня 18 (2011) [MP3|320 kbps]<Dance, Hous
 ```bash
 magnet:?xt=urn:btih:A709FC2353A332E5453AAA1D1DE16D3330B4E2AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ Angeli Di Pietra - два альбома (2009,2011)  [MP3|320 kbps]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:AF2FDFFB672970AEC75C452C562C13160CC73F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEECACAC8B459297068AF878DB5A8965882195E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F33E256F624AA79ACA7D623A1EE0B85667363C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Beady Eye - 1 album + 4 singles [MP3|320 kbps]<britpop>
 ```bash
 magnet:?xt=urn:btih:1796632D3CC5ED4DCDBB944A7DCB9225D82C0F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C149685C8B57C3AE64667FB27E55D8AFF2D62140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:193207B2CFFFB579E9EB7068448E3E3B462B20E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

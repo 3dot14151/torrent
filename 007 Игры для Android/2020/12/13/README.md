@@ -19,8 +19,7 @@ Survivalist: invasion PRO v0.0.431 [Ru]
 ```bash
 magnet:?xt=urn:btih:C1DBB68614C3EAE846F1FA1CFD324389C586A27C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Prince of Persia Shadow&Flame – эпическая сага легендарн
 ```bash
 magnet:?xt=urn:btih:424CCA4830010E54FD5EC00DFCBB0F2F085BA88A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Half-Life 2: Episode Two - наконец-то, мы дождались прод
 ```bash
 magnet:?xt=urn:btih:3E9C4FA9F2D7846E74C013D5CF860CED0A4F2120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

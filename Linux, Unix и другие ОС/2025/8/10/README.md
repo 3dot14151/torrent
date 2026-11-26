@@ -20,8 +20,7 @@ Ubuntu*Pack 22.04 DDE (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:92CF5A0FB91E5884936D8143A5C9F59924078D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

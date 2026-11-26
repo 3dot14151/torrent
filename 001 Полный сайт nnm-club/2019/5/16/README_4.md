@@ -18,8 +18,7 @@ Jikan no Shihaisha | Chronos Ruler | Повелитель хроноса [2017, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ No Game No Life: Zero | Нет игры - нет жизни: Начало [2018,
 ```bash
 magnet:?xt=urn:btih:361DBDA13E69161252A0AA2043D484DDA85672A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25] BDRip 400
 ```bash
 magnet:?xt=urn:btih:A744CC7D61D95A0560DC3ACF543F2C0B16D24873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65359E2FBE5552B84756D45611CC46C05E8B22CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ AirServer – это мощное приложение для Mac, которо�
 ```bash
 magnet:?xt=urn:btih:C3B46C2D7C395201E760C5DF8BEC4A21E6F21563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C889BF5296912DD1CDA4E11BB245B904D0B055C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Galactic Civilizations III – самая глобальная игра-песо
 ```bash
 magnet:?xt=urn:btih:47B9DE3AED1C43DDC18D7BF16E063EEF299BB37E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

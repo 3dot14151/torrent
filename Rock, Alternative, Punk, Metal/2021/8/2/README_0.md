@@ -22,8 +22,7 @@ Chris Rosander - King of Hearts (2020) [FLAC|Lossless|image + .cue] <Westcoast, 
 ```bash
 magnet:?xt=urn:btih:4759CDA7BFF4C88374EFBD8E500F9403E12BD8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Thronehammer - Incantation Rites (2021) [MP3|320 Kbps] <Doom, Sludge>
 ```bash
 magnet:?xt=urn:btih:7DC0F371E2E1A64653129C76799FE98308C201C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nth Ascension - Stranger Than Fiction (2019) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:EEEB41239D94983BB79F8C90941CF128708F1457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Universe - Mission Rock (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C3E366BC859E4ABBC284DD75CEF1F55FC7363137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Geezer Butler - Manipulations of the Mind: The Complete Collection (2021) [FLAC|
 ```bash
 magnet:?xt=urn:btih:C92E93EAE59ADA133D70BBE992527D21AF07D9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

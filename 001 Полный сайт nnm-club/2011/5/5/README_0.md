@@ -18,8 +18,7 @@ VA - MEGA Cборник Клубный Club Mix And Remix Vol.8 (2011) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:2F97214F826C7A2CE1591A87F4C5919D8588689D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Total Science & S.P.Y - Ghostriders EP (2011) [MP3|320 kbps]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:769FBCAFBD9E2867FACC169A25F8207AF5F8C2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A28D0AAAB53E598B2AA1E16CC61EA6CAB249762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ NG: Львы африканской ночи / Lions of Darkness (1993) DVDRip
 ```bash
 magnet:?xt=urn:btih:4D5172D1E0EFF7F9D25512879EE0141478D42FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Point Productions - Composers from ... (2003) [FLAC|Lossless]<Classical>
 ```bash
 magnet:?xt=urn:btih:27C1F6E0A691D12B1FFEACA34B1F2B2A9DF89551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ VA - Дискотека Life Is Life (2011) [MP3|256 kbps]<Pop/Disco>
 ```bash
 magnet:?xt=urn:btih:9C298941AC786926DEC2DF369DEE9A517F9610B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2B7AA31A1E1715EC9AE28C47D358A7ED7DABAA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ VA - За Тех, Кто На Зоне (2011) [MP3|256 kbps]<Schanson>
 ```bash
 magnet:?xt=urn:btih:7C812C929E5D7DAE82C3B9188B38239475FE846E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ VA - Двое на ветру (2011) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:1493FCB2850C3D8C90DE03CC015FCF19CB915B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32614A024B030C5643248C4E0068F071B7F83881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ VA - Record: Свежий клубный хит 5 50/50 (2011) [MP3|256-320 kbps
 ```bash
 magnet:?xt=urn:btih:B64DE170EE4C97E6D0FFFFBCEE0B4CCE0ADB84E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ BBC: Мир природы. Из жизни акул / Natural World. Sharks on 
 ```bash
 magnet:?xt=urn:btih:76BEE3350F6EF15C68266764C01E33DFE4C90D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ Omaha Bitch - Best Of Metal (2011) [MP3|320 kbps]<Metal>
 ```bash
 magnet:?xt=urn:btih:4884430303DFD4A5820CC99E4CB3BC0BE86FBDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ VA - Подарок для милой мамы (2011) [MP3|256 kbps]<Шансо�
 ```bash
 magnet:?xt=urn:btih:15E63632C8B36D92B9EE1BFDD0A82BE6EF76FB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ VA - Русский Хит-Парад Солнечный (2011) [MP3|128 kbps]<P
 ```bash
 magnet:?xt=urn:btih:A25C99ADE557835BAAE98874A7913A53DAF0EEBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ Internet Download Manager 6.06 Beta 2 [Мульти(русский)]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ Jazzsteppa - I-Doser EP (2011) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:C5BCE9068545E59C48289BD3C803B00EAE50F3B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B8A9666AB19A3288D4054E3EAFA82AF837315C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35EFCBDE146C7D1AFD160D61A1BBDC7E73315C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ VA - Блатная Игрушка 2 (2011) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:5B327DCBD3E3E1DF2F63233A1DC87C4343AAF4E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ VA - Chillout & Lounge (Vol 2) (2011) [MP3|320 kbps]<Chillout / Lounge>
 ```bash
 magnet:?xt=urn:btih:6E80578A3EDADFA9390DF94C9225CB4642DDA057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5AEDAC0C3AC93A4FAB4685FAC1E1C310545EB6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ Ashampoo Photo Optimizer - простая в использовании прог
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

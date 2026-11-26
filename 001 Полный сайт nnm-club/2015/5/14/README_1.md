@@ -21,8 +21,7 @@ Charles Mingus & His Jazz Groups - Mingus Dynasty (2014) [FLAC|Lossless]<Jazz, P
 ```bash
 magnet:?xt=urn:btih:14DA5486E18B69EEE3E9334E846A23FB518A1ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:8F3B241645A6FC781FAB1B9B7FDE39A1352CF361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Ashampoo Snap 8 позволяет пользователям захватыва
 ```bash
 magnet:?xt=urn:btih:D2EB3CEE4A82FB06DA3705C7E5941EBFAF428AB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Maxthon Cloud Browser 4.4.5.1800 Beta + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:49D4ED783C1312E30D81A1B3B5129DD87CF1D307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Streaming Audio Recorder - поможет вам записывать абсол
 ```bash
 magnet:?xt=urn:btih:58ABC8F5C17D1517B714DDCE6C79F26DE99ADB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:0DE9EDB7AFD0B0E83287A1ABFF3AC913A1E5592B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA762FE74925F53D93904BA9DAC02A706A6E7362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Savage - Gold (1994) [APE|Lossless]<Italo-Disco, Europop>
 ```bash
 magnet:?xt=urn:btih:94D47AB53CD3AA342C96EF12F47C19EE46A0E918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6221E82F2C82A63CCC76027C66552401BD5104B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ VA - Танцевальные клубные хиты (2015) [MP3|256 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:A56A2C5275A89392CFD1D31B0D0AC53475A8203C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F67873A90BAF882C33F6D7FD36437C3B9F3BD9FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.20-Bonus200
 ```bash
 magnet:?xt=urn:btih:71AD23808C1AC5D792C955DB00EE4843DCE56A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ WinToFlash Professional - знаменитое приложение для со�
 ```bash
 magnet:?xt=urn:btih:80A6F07563D8AAB8584FDA5081AC288785EFEF22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C985BDDCA9D17FB256B6A8B1BE71C07CCB1F4DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ VA - Top 100 Music In The Car (2015) [MP3|320 кб/с]<Club, Dance, House, Elect
 ```bash
 magnet:?xt=urn:btih:D8C90C06946BF5275934CB7C551370F35F768ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Corel PaintShop Pro X7 17.2.0.17e RePack by MKN [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8605B5283B5537147D98D7A50356D4B36993AD1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ AS SSD Benchmark стала фактически стандартом, при т
 ```bash
 magnet:?xt=urn:btih:87796A076BF759017AF2B161DC487B413A3F4C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ Icecream PDF Converter – мощный инструмент для конвер
 ```bash
 magnet:?xt=urn:btih:41347516784E10A9E77A704105C64F274AFD2C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F8ADFE410490E329743D0AF2F5E8930CAF23F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Spellcrafter 1.0.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:123B406D4732D45F25B1BA342C35B6AA66BCC5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0E3FE0B08E279C4B69624B04960EE3410549518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ Michael Jackson - Number Ones (2003) [MP3|320 кб/с]<Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:49F09BDA1AD2D2D1CD2F78F83AE9E0F941782B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67C06F1447D632B33FE08BA0FD60D00DDA6D4445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6E39563EB3B5536E40D690F6F564DF1027E3E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:512C5958985BD7E24AECBA2EF34852C7219221BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

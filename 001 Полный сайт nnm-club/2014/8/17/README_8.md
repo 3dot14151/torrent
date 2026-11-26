@@ -28,8 +28,7 @@ Some Nerve - Some Nerve (2014) [MP3|320 кб/с]<Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:C026CB989973A74B8F0AB0D43C2C8D7AE150BA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Destillery - Ferrum (2002) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4DAE3EC07387F4BAEC33FE98FC683B9F8C5327FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Magni Wentzel - Live (2010) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:403B07FDAB9BC255DB3B2FF55952EA2C08A57244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Destillery - Behind the Mask (2000) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9E3A7791862A592FD1A8FBE60FADB3C64398908D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7257C59A6275AD3F9DD908E3FC7CC6207A95A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Aska - Fire Eater (2013) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:485A67B72EACD55DB9EBE9B1E4CFC1703AC43707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Dylan in the Movies - Sweet Rebel Thee (2014) [MP3|320 кб/с]<Indie Rock, Alte
 ```bash
 magnet:?xt=urn:btih:1659F678183AE764E4E6ED55B8FF49BFA218F7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Magnolia Jazzband - A Lovely Way To Spend An Evening (2001) [FLAC|Lossless]<Dixi
 ```bash
 magnet:?xt=urn:btih:381D7B7B2A811EB74082C50885F672BC1B609DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Nucleus Torn - Street Lights Fail (2014) [MP3|320 кб/с]<Avant-Garde/Folk Meta
 ```bash
 magnet:?xt=urn:btih:1D1FDF7482A3104E3F6B027A4B17737FD803FC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ Crypt Of Silence - Beyond Shades (2014) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:3286AC6DF4DCCC2C842E6A2DF7F64E967B4E1D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ Aska - Absolute Power (2007) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:24557C4A2518BF5BEF25319CEC3E7326F16C9319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +378,7 @@ Destillery - Immortal Sun (1999) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5AB06BD075535E1212DAB49B1F29D5096D80B63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +412,7 @@ Laura Cheadle - Bruised & Soothed (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:3F56D778D309322D53AA1D44449952850E323F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +445,7 @@ Magnus Ostrom - Searching for Jupiter (2013) [FLAC|Lossless|WEB-DL]<Crossover Ja
 ```bash
 magnet:?xt=urn:btih:160C84CCCFDD0B133C02D1076655F04731078F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +479,7 @@ Magnus Ostrom - Thread Of Life (2011) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:AB0E09C1C97CA03A893F1D0C5375857D2C315026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18BE53A90B272517126470D7B7456C1F56892A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2BC3C1E9D61CBD428210FA7F4CF15C17714D20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C81E250971301AA218FA9D2C6B6F1F18367E474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:080097465777CF0154CD5C869B65A33D2AC1EDCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D442E44A693EB16690FFE21CEE2408321998D0DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E93335E2640688A286A008D6A0BEF563B65D74F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +667,7 @@ Donald Harrison - Modern Jazz Archive (2004) 2CD[FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:EFBC420D91BADB9E825368092F805C1DF9FD70C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE05B81AFE86B5012C46CF156986FFA76058FE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +726,7 @@ Dr. Feelgood - Stupidity (1998) [MP3|320 кб/с]<Pub Rock, Rock'n'Roll, Blues R
 ```bash
 magnet:?xt=urn:btih:0FE4EAF70D50BDE87A3C49E857BFBF10E922A2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +760,7 @@ VA - Lounge Jazz in Berlin (A Chillout and Bossa Jazzy Collection) (2014) [MP3|3
 ```bash
 magnet:?xt=urn:btih:59F3134E8FBB7C7D721AE612EF10B88C37D5D6FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +785,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6E56FFAC9D441B251A0F518A68F2D8F422EB49E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

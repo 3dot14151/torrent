@@ -23,8 +23,7 @@ LXLE 12.04.3 (Легкий дистрибутив с длительным сро
 ```bash
 magnet:?xt=urn:btih:FB04333808D5739CB278FE7308D433B900C34BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

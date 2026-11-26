@@ -21,8 +21,7 @@ VA - German Top 100 Single Charts (17.03.) (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A265754CD8BD90C1D1C6254A358F8A06FF3164F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Empire Records - Dancenudisco 13 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Di
 ```bash
 magnet:?xt=urn:btih:6B40CA0EFF226C6D3574ADADC45D0D34D13AC73D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Quiver — это записная книжка, специально созда
 ```bash
 magnet:?xt=urn:btih:515FE9C47AC14E891D045138CB2136C01B909FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ MacPilot 9.0.7 [En]
 ```bash
 magnet:?xt=urn:btih:1F324A6C176021F3140787AEFFB8F58600C7BAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ JPG,BMP,PNG,GIF,PDF,PSD,PNT,RGB,ARW,BMPF,CUR,CRW,CR2,DCR,DNG,EPSF,EPSI,EPI,EPS,(
 ```bash
 magnet:?xt=urn:btih:D416A3FE7BD73334116F8472A9CB2B334F72A440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BD90522B4ADBF385D3B257EB32336D113367B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Los Lonely Boys - Forgiven (2008) [FLAC|Lossless|tracks + .cue] <Chicago Blues, 
 ```bash
 magnet:?xt=urn:btih:6941158109A7CBDCCB33BBFE88FE4CB5CD3CA1BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Весенние заводные хиты (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:10AE26D7D1D6CB089BF860FA0005693DD0B4B3E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - 100-ка популярных весенних хитов на Europa Plus 
 ```bash
 magnet:?xt=urn:btih:185F879C53B0C266866033F45A1FBB52D22698CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - Любимые песни на радио Шансон выпуск № 3 (
 ```bash
 magnet:?xt=urn:btih:5C4DDD082C4ABD4783095855C542041E498BF36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Gomer Edwin Evans - Music for Lovers (1992) [FLAC|Lossless|tracks + .cue] <New A
 ```bash
 magnet:?xt=urn:btih:C3D9A2FC426E32972F4BA97FCB162E2538859C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Marc Seaberg - 2 Albums (1979,1980) LP [MP3|320 Kbps] <Electronic, Pop, Disco, S
 ```bash
 magnet:?xt=urn:btih:4F956751CE46B977AA13B1686E1FA4FA75D6571A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E86633A537644D09F62FFA5F7CE9BA44C10EF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ DOM & podium – яркий, уникальный глянцевый журна�
 ```bash
 magnet:?xt=urn:btih:4D1CC73D3CE39030B384DDD4BBC2D8409629D8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01193E23C2D315A873684A8B331ED67DF13A9B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Mr. Zivago - Best Of (2017) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
 ```bash
 magnet:?xt=urn:btih:38E7AE98058B748363E7972F85BC47B0B6309635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Doo - Get Things Done 1.5.5 [En]
 ```bash
 magnet:?xt=urn:btih:600A5DC939EDF1879055E8AD37A458A5F1D4ECB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ VA - Шальной шансон в дорогу. Часть № 2 (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:C4D5327A07659FA276C5E32656F3EA6744E8E747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Livin' Blues Xperience - This Is The Time (2008) [FLAC|Lossless|image + .cue] <B
 ```bash
 magnet:?xt=urn:btih:DB504AF8DABF62F0763014FC6003EC7EECD2A2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:495BCEB295FDE7D3EE08B8C8039066B8DFDA8AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ VA - The Jazz Story (2017) [MP3|320 Kbps] <Jazz, Jazz-Pop, Vocal>
 ```bash
 magnet:?xt=urn:btih:EB1E59A8FFBB36701EE8A1E85DFEE496C353A7CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ VA - Tibetan Waves: Asian Ambient Relaxing Spirit, Deep Focus, Meditation Tibeta
 ```bash
 magnet:?xt=urn:btih:82BF060626922089ADC721683DA781E2FEC746E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ Jeremiah Jae - A Cold Night (2016) [MP3|320 kbps] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0A1E6AF1774E33E939784CB639E4D6E3D6F4531A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B305F891E138CDB01DB96C0A8144C9EA36653C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ VA - Лучшая дискотека на Europa Plus выпуск № 4 (2017) 
 ```bash
 magnet:?xt=urn:btih:2CE9352D7592679522EC80092D37420B753CC958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

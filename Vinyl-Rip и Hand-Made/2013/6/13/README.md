@@ -28,8 +28,7 @@ Hypocrisy — шведская дэт-метал-группа, сформиро�
 ```bash
 magnet:?xt=urn:btih:1E77DF20E019B6C73C03FE533A57B39D4AE5FBC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

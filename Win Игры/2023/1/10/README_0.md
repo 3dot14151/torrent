@@ -19,8 +19,7 @@ Lara Croft Tomb Raider Trilogy (2006-2008) [Ru/Multi] Repack R.G Catalyst
 ```bash
 magnet:?xt=urn:btih:A31C39E54ED379D90C6B0D4DA06B1350DAC4F785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

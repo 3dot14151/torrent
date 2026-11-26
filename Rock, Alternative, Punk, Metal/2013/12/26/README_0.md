@@ -24,8 +24,7 @@ The Howling Void - Nightfall (2013) [MP3|320 кб/с]<Symphonic Funeral Doom Met
 ```bash
 magnet:?xt=urn:btih:99133E7B943D16D59DD1CF94CF676A29A79F7208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5A5DF51C69BEA6648CE3C32E72DB2C0961E2014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Fail Emotions - Gravity (2013) [MP3|320 кб/с]<Post-hardcore \ Trancecore>
 ```bash
 magnet:?xt=urn:btih:4B23FE24197766D8483A1BC2A1D3CD082BFEDBA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ VA - Gothic Spirits pres. Dark Ladies 4 (2013) [MP3|320 кб/с]<Gothic / Sympho
 ```bash
 magnet:?xt=urn:btih:A220C84281942000481E374C5CAF490B229E4914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C669DFA9BB3B2709E2402D86E921D6A389880CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Slade - Merry Xmas Everybody: Party Hits (2009) [FLAC|Lossless]<Glam/Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F15FF9079428A76842DE7026709DA64BF1851AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53DA330D9AD7717DA1EAB1F04A5A11C6E036DC75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

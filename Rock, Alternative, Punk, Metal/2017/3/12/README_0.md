@@ -22,8 +22,7 @@ Netra - Ingrats (2017) [MP3|320 Kbps] <Depressive Black Metal, Trip-Hop>
 ```bash
 magnet:?xt=urn:btih:2D31581C295B5B3A3B9C5B9D126207DCFB3982A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dawn Protection - Eternal (2015) [MP3|320 кб/с]<Instrumental, Progressive Met
 ```bash
 magnet:?xt=urn:btih:0E71D080DD51E1CA1F50A1D6AC6CDAE75E950845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Отражения (Tribute to Каталог) (2016) [FLAC|lossless|tracks
 ```bash
 magnet:?xt=urn:btih:B20BAB5670159215F094D5E6DEA4E62C5E5C3C7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Отражения (Tribute to Каталог) (2016) [MP3|320 kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A1B69778D3354D5C871662F9833B570C535E2C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Eclipse - Monumentum (2017) Japanese Edition [MP3|320 Kbps] <Hard Rock, Melodic 
 ```bash
 magnet:?xt=urn:btih:3C59C3DB26E9FF5977FEF16E4EBD61E540EB8719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Deep Purple - Limitless (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F4DA7C6AF6FD1B6388013EDB0EFCED0E6E480005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

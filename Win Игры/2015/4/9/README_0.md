@@ -20,8 +20,7 @@ Whispering Willows – приключенческий логический ин�
 ```bash
 magnet:?xt=urn:btih:947D64406B48DCF27A1AB7EA95E1A4C84FF2EFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Warhammer 40,000: Armageddon (2014) [En] (1.05/dlc) License SKIDROW [Untold Batt
 ```bash
 magnet:?xt=urn:btih:60E1F7EAA43D22C2AA02463A7A0E719D85B72C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Finding Teddy 2 - это приключение/экшн в режиме 2D с �
 ```bash
 magnet:?xt=urn:btih:685AF7CA48DEE9B00CD98BBC6109CEF7163CD155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ FIRE — это приключение-исследование с множес�
 ```bash
 magnet:?xt=urn:btih:3DCC8BE3B35DED777C7CEC53F090FC777FF1C49A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

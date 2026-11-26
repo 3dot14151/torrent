@@ -21,8 +21,7 @@ Full Throttle - одно из самых лучших детищ Lucas Arts. Э�
 ```bash
 magnet:?xt=urn:btih:E6DF676B147A9906858AB58410AC16A1F6A3A322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

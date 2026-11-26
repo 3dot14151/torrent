@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B5B2F3A072FBA023AC82CD485B21D0D65D10EDA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E61AE11035D6600C864DB0B41193AA198A94701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ CarBit ELM327 OBD2 v3.5.2 Mod by vedserega [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0BCB626523EEA28458BE5CC8E5EABD3F6385B20A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

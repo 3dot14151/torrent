@@ -19,8 +19,7 @@ Oaken (2023) [Multi] (1.1.2/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B2672BAF5E386E3A01F8788846C69F25C7B94C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Arkanoid - Eternal Battle (2022) [Ru/Multi] (1.1.24/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:852DEF8F740FED2D750E822974A8E90ABF649AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

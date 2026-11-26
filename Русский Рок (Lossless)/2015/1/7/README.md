@@ -28,8 +28,7 @@ Project NT - Истории Темных Времен (2014) [FLAC|Lossless]<Neo
 ```bash
 magnet:?xt=urn:btih:F93E2A6E05C525F5258F2D600D34A565BB38DA1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

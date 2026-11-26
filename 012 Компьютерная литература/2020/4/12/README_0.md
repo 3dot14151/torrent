@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9F15D7723B6D055464C1A81337B648977C45F952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DrMax | Продвижение YMYL сайтов. Практическое ру�
 ```bash
 magnet:?xt=urn:btih:7D136D198C5892524B74E310B686C4554E33FF33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

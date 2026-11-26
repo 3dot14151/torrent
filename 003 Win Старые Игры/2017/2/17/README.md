@@ -19,8 +19,7 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:61AAA8874BBA07247BA3512E768C5BAB500AF686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 ```bash
 magnet:?xt=urn:btih:15DB74000D571D910D5E950267307DC9251E79FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

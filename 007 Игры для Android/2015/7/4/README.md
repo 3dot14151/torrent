@@ -19,8 +19,7 @@ Chess Fusion- настольная игра шахматы на андроид, 
 ```bash
 magnet:?xt=urn:btih:141872E213F2C30A7B0B922E058EB36E82EEB2A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

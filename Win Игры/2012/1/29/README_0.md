@@ -21,8 +21,7 @@ Air Conflicts: Secret Wars / Air Conflicts: Secret Wars. Асы двух вой�
 ```bash
 magnet:?xt=urn:btih:C180876F7ED38F49A77941112627421C8E7C8DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Midnight Mysteries 4: Haunted Houdini Deluxe (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:65F48D312D14C9E795CD18B842252FA8FAE57083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

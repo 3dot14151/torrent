@@ -22,8 +22,7 @@ Rock Justice - You've Been Served (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:0F59E72B7C6E0858DC731F0585B901524601B354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fai Laci - Elephant In The Room (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 ```bash
 magnet:?xt=urn:btih:F81AB66BC52831CE567B2DC8CEABB316BFB9084B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Pink Floyd - The Wall (EMI, remastered 1994) (1979) [FLAC (image+.cue)|Lossless]
 ```bash
 magnet:?xt=urn:btih:13F4AF07775D3FF65AECD0514870CBFC8C5EE243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Lex Legion - Lex Legion (2026) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6BEBA510ACDFA1F2FE0E1810F19FF32BC3BD61FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

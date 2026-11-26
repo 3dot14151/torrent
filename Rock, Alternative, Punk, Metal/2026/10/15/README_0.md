@@ -22,8 +22,7 @@ Fontaines D.C. - Dopamine Chamber (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Al
 ```bash
 magnet:?xt=urn:btih:45DF6B2FA6575B33E6486EA31E6970FE8867250E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Joe Stump - Lord of the Strings (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Neoc
 ```bash
 magnet:?xt=urn:btih:EEE17962C9CEB5CF357993CB6FDF503F66DC519A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Greta Van Fleet - Palace For The People (2026) [FLAC|Lossless|image + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:4D6BB9657A840E785DEB3A617F3B51C3599F8FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Europe - Come This Madness (2026) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F166FFC859554C227584379B46F972D6E8515D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Insomnium - Netherworlds (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Dea
 ```bash
 magnet:?xt=urn:btih:D537230DFF3D7B15DD3DB4089052986E55C94B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Uncle Acid & the Deadbeats - Shapes Of Midnight (2026) [FLAC 24/44.1|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:5348CD6F54D880BDE07F7A8FAC8AE63843E95C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

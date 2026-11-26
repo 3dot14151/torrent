@@ -22,8 +22,7 @@ Bachman-Turner Overdrive - BTO's Greatest - 1986 (1996), FLAC
 ```bash
 magnet:?xt=urn:btih:7C7F70BFF78371AA0CF928576128E5D6B5003452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

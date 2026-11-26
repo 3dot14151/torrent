@@ -22,8 +22,7 @@ Winter Moon - Make Real, Make Believe (2019) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:03E252D2E117B0AA427B55968D5714A49A94D149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Restless Spirits - Restless Spirits (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:92175ABDF773B9255304B4E45201F5B315A67170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

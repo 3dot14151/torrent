@@ -19,8 +19,7 @@ Shadow Warrior 2 рассказывает о новых злоключениях
 ```bash
 magnet:?xt=urn:btih:3A20656C737C0C1CDA70C7C9EF4E6642079D782D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NecroVisioN: Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] 
 ```bash
 magnet:?xt=urn:btih:A31017B5DE8A141B9830B672AC801B3DFE1D38BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

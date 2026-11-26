@@ -19,8 +19,7 @@ Halloween Chronicles 3: Cursed Family / Хроники Хэллоуина 3: П�
 ```bash
 magnet:?xt=urn:btih:89A5BF17C268B5A532FB46CDBE9518B0319FFF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ In Silence (2020) [Ru/Multi] (0.43) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:483B4D805C8D31D5A2ED469FF8629B5E68E213DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ GONNER2 (2020) [Rui/Multi] (1.1.8.2) License GOG [The Full Ikk Edition]
 ```bash
 magnet:?xt=urn:btih:65ACA67F7A85881B22D668D66342BEF9A31AE7F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

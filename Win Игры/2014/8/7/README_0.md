@@ -19,8 +19,7 @@ Recruits – тактический top-down шутер, разработчик�
 ```bash
 magnet:?xt=urn:btih:651E6AFEEE96AF0FFDBED7C0FEE373A863867C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Stealth-action от третьего лица, повествующий о де�
 ```bash
 magnet:?xt=urn:btih:B135494C5D34421F1BFCDC29AE49D941BAF69828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Recruits — это брутальный аркадный шутер с видо
 ```bash
 magnet:?xt=urn:btih:5341547ECB0BEB2751DCD47BB2C57D8B7FBA894D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Trine перенесет вас в фэнтезийный мир, где хра�
 ```bash
 magnet:?xt=urn:btih:CA17C85989780B45341E248A567A4FB276005F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Stealth-action от третьего лица, повествующий о де�
 ```bash
 magnet:?xt=urn:btih:0B692978ACC07C4D71809657313016AF9558ED4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

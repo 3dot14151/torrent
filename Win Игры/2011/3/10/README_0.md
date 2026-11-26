@@ -19,8 +19,7 @@ Glimmer (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:0B10370F785FBE6485343FE5356C23467E6DC54C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hoyle Puzzle & Board 2009 (L) [En] 2008
 ```bash
 magnet:?xt=urn:btih:B156669BF2C6F4E0BF0AF2AA17BB74C511A1DE71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hoyle Puzzle & Board Games 2011 (L) [En] 2010
 ```bash
 magnet:?xt=urn:btih:C464627BD725787C3B865E7A48627CC00C040741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Fall Trilogy Chapter 2: Reconstruction / Трилогия падения. Г
 ```bash
 magnet:?xt=urn:btih:F43533305838431FED6B28DA91E85B4760D0379D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

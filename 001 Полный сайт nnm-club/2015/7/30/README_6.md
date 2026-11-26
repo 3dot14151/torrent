@@ -18,8 +18,7 @@ Microsoft Windows 10 - Оригинальные образы от Microsoft MSDN
 ```bash
 magnet:?xt=urn:btih:0F19A1872CB5337D8DF9230C9A92B330493A98F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ ESET NOD32 Antivirus 8.0.319.1 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:24370971884B4521EF708C94A8D81B4902997DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Acronis Backup (бывший Acronis Backup & Recovery) - программа д�
 ```bash
 magnet:?xt=urn:btih:47FB71C1396E9AC23A964CDA258AEBDD8DD52FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FDEC87849C16904839F89D9E8FC3B5486FE290F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Microsoft Windows 10 N - Оригинальные образы от Microsoft MS
 ```bash
 magnet:?xt=urn:btih:F457342D19752F3F33C9547E03ED2A5C609DC8C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ SpyShelter Firewall предлагает мощное и легкое в исп�
 ```bash
 magnet:?xt=urn:btih:1955CC6AD2DF4D2A0B2F656BBC0E4AFDE8C00B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B232B0E2B2B5F0BCFE0D10A0FA7AE35711EC67E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ ArchiCAD - это мощное приложение моделирования, 
 ```bash
 magnet:?xt=urn:btih:BF6AE118FF76CE69BC1596FB077EDE955FA29186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Portal Stories: Mel (2015) [Ru/En] (1.02) RePack xatab
 ```bash
 magnet:?xt=urn:btih:0F6DFBBCA1552C12535EB8E4CB2D2035142EFD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Microsoft Windows 10 Enterprise 10.0.10240 - Оригинальные образ
 ```bash
 magnet:?xt=urn:btih:A84647A796333581169E9B43D9306E27E0545985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ Microsoft Windows 10 - Оригинальные образы от Microsoft MSDN
 ```bash
 magnet:?xt=urn:btih:8357E79183DD3C0C5CB2D6948FE4EA1EC4FF4E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E797FDDB0B21017B5F503DF3FE61F775567AB9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x64) WZT [He]
 ```bash
 magnet:?xt=urn:btih:F281ABCBB6CB51C8EF24C20BBD406D4483D7344C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Zen Bound 2 [Ru/Multi3] (RePack/2.5.0) 2010 | NSIS
 ```bash
 magnet:?xt=urn:btih:2583174F1C3957BA31C3BD395AB46C628D438120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

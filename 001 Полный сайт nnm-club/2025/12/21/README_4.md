@@ -18,8 +18,7 @@ Stepik, Михаил Трунов | Командная строка для ра�
 ```bash
 magnet:?xt=urn:btih:38A90264EB73176E0304427D6809D4211DAB9A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Onskills, Семен Глушков | Онлайн-курс по нейросе�
 ```bash
 magnet:?xt=urn:btih:A28F8829D8B1A6871479CBE1DCB2531BB33D83E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A174F1584E658F10C91D348A84F2436ACA76D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ TutorPlace, Лина Максунова | Soft skills (2025) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:541488112E4289A7F1E2583C9B110410215F17D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0599A74D85DB2E4C4B33A7540FC61F69C5FD7E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Liveclasses, Анатолий Ясинский | Ценности и конфл�
 ```bash
 magnet:?xt=urn:btih:96134395F988CE274CF84BEDD82C7753D875E26A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:412A509F32A7D9B65E3B2875A0969A4762415193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53497F61AE50C946F3B40008E3C486696092CABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC69374FE8A9CD8E418CAD7D34B70BA37177CB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Spectaculator 9 - это новейшая версия популярного э
 ```bash
 magnet:?xt=urn:btih:30CBD7B9C67A4CD273F3A4DAD22D929345209B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5728062BCCF03C6C6F1A38F08FBB639AC093E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:242549DC53B652EB541BB6E27626FA93580F6DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ River City Girls (2019) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:016EB4A7FC60F4ED2C2D292ADC1859730B23A198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ Escape the Backrooms (2022) [Ru/Multi] (1.2510) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CF60E38C88FD11E4C537E93A224C995207D8653F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ SUFFOCATE (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C5B6904E04C5ED8B0765F6E3AFE56A0C9D163447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ Scott Whiskers: the Search for the Golden Cat (2025) [Multi] (1.0.40) License GO
 ```bash
 magnet:?xt=urn:btih:ADFB0066CB3A70C7D6F39CF9D261CBBBFF3651F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.003.28253.87380/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:3F011B043B10D84FEAF92436D700AF0F64948D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.1.10242025.58358/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:0357E804A925C3C0AB542B38A90EB8395EEC1137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +497,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.2.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:626D3AB1D8D8CD6DE6D3B473DDC98479CB5D1CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99735A6F24779A05E40E6CC1BF12202B902DD468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5117B18E5E092B469BBF7D697373E1B496532B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B391E9EBDB6AD3D78BF75BC4AA607EB79A8FBAD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +647,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (47139 build 20790748/d
 ```bash
 magnet:?xt=urn:btih:0828A20676989B80F1558802498A23BC977B4211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

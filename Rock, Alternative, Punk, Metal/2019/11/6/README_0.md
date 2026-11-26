@@ -22,8 +22,7 @@ Frankie Valli & The 4 Seasons - Greatest Hits, Vol.2 (1991) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:C6F78C1D8B177A08F9E5B7C79A8CB15859068D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Lindemann - Knebel (2019) Single [FLAC|Lossless|WEB-DL|tracks]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:BD2D2BC716529102C6D4E557E417AFFEB7848E39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

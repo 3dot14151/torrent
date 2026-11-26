@@ -19,8 +19,7 @@ Kindle Converter легко сконвертирует Kindle DRM / DRM-free э�
 ```bash
 magnet:?xt=urn:btih:19F33DEEFF3C4C2C70BAC75929F16E49D822BCE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FileSearchEX это простая утилита поиска файлов дл
 ```bash
 magnet:?xt=urn:btih:D865C3A9FAC89D323810B6FFBB6F876910C83288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kindle Converter легко сконвертирует Kindle DRM / DRM-free э�
 ```bash
 magnet:?xt=urn:btih:331D5E4BD4117A368F1D9F5EEDEC4186E30FAAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

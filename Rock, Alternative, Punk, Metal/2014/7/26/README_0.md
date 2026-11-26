@@ -25,8 +25,7 @@ Abigor - Leytmotif Luzifer (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:9F0E0D3311A3088E74F71B9EF452D3429D8DE9B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Shinyribs - Gulf Coast Museum (2013) [MP3|320 кб/с]<Alternative Country/Blueg
 ```bash
 magnet:?xt=urn:btih:ECBE5DE944E22FE23EC6E5163F47AA73B8B6E301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Kamikaze Kings - Master Or Slave (2014) [MP3|320 кб/с]<Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:48776C8092877CC7345952251ACE2ADE3DEB33AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Little Bob - Time To Blast (2009) [FLAC|Lossless]<Rock, Dark Blues Rock>
 ```bash
 magnet:?xt=urn:btih:067EB89D1CA8EE3EE573611FAD17A946886248B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Darkest Hour - Darkest Hour (2014) [MP3|320 кб/с]<Melodic Death Metal, Metalc
 ```bash
 magnet:?xt=urn:btih:39700FB417715C91EB39484C3056F577BE65A300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Neopera - Destined Ways (2014) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:16E361DAB8CBC60018D995E255F571AE88C7A3B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Jon Allen - Deep River (2014) [MP3|320 кб/с]<Classic Rock, Acoustic>
 ```bash
 magnet:?xt=urn:btih:601970A03CD862B67172AC9EAE56CAC247761D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Point Blank - Volume 9 (2014) [MP3|320 кб/с]<Southern-Rock, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:12F9497E501963850C94832EAF98A4A2EC3CE692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ In Hearts Wake - Earthwalker (2014) [MP3|320 кб/с]<Metalcore, Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:981840528DF8A0CB9241EA1846E2AFC7E054FD43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ Puss N Boots - No Fools, No Fun (2014) [MP3|320 кб/с]<Americana, Alt Country,
 ```bash
 magnet:?xt=urn:btih:1166F6C11F2BE1D9C6FC05BE648D0D0F068F7EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ Downset - One Blood (2014) [MP3|320 кб/с]<Rapcore / Hardcore / Rap-Metal>
 ```bash
 magnet:?xt=urn:btih:492B024ED5D5B3E2C23EB61DE05F5904E89F71DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +398,7 @@ Tom Petty & The Heartbreakers - Hypnotic Eye (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:246F87D23D1F0A86ADE1DEAFA37167F6CF99291E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +432,7 @@ VA - A Blues Tribute To Creedence Clearwater Revival (2014) [MP3|320 кб/с]<Bl
 ```bash
 magnet:?xt=urn:btih:82D91A05E851FE1B1EE200BE0E660B35B1C8866D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +466,7 @@ Eric Clapton & Friends - The Breeze: An Appreciation Of JJ Cale (2014) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:87A83E5F0478F29E32A72D3EFB2C54AC6E235684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +499,7 @@ Korn - The Paradigm Shift (World Tour Edition) (2014) 2CD [MP3|320 кб/с]<Alte
 ```bash
 magnet:?xt=urn:btih:66633FEF9664E4466D5C203274E1D46070455AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

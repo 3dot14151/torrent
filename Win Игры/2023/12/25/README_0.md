@@ -19,8 +19,7 @@ Knight Cats 2: Waves on the Water / Коты-рыцари 2: Волны на в�
 ```bash
 magnet:?xt=urn:btih:D146BF871B329536B6CB2E6484C671F9AAB69528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

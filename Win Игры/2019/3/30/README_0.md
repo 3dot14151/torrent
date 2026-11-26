@@ -19,8 +19,7 @@ Grim Facade 11: Broken Sacrament (2017) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:F7DFD8D711DD166E53A294170B5FF1C88C528FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Andersen Accounts: Chapter One (2018) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:D921FB0CB5EA004A19D9650A99DB25902AFEEF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Endless Fables: Dark Moor (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:40E269E58B9DD122AA85B1F34CD357AABBC334B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Moonsouls: Echoes of the Past (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:5EEF77246649DF6D5D45C26AAC599F82FB40D4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Myth Seekers 2: The Sunken City (2019) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:1202DDA7B3D5CFE8F987686E00C203B029169FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bridge to Another World 6: Gulliver Syndrome / Мост в другой мир 6
 ```bash
 magnet:?xt=urn:btih:39CBE2D2F896E48C6182D243B76F8B87CD37CB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Whispered Secrets 9: Cursed Wealth / Нашептанные секреты 9: П
 ```bash
 magnet:?xt=urn:btih:304B5050663AA0EB509381AEF5866B2356FEABEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ One Piece: World Seeker (2019) [Ru/Multi] (1.0.2/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:515866E38186D96A1C2FE285F6D72A9343161B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [Ru/Multi] (1.0) Lic
 ```bash
 magnet:?xt=urn:btih:0868F3F41627DD0F18D0C049CF931AD3BDC33CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/upd5/dlc) License CODEX [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:B00E02405ED83C385E9BF1C02F6D6E78512C219A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

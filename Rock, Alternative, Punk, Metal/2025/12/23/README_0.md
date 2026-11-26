@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:5B79F690EC7F8FC0A99F31482A7E0CFADD265E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vitrectomy - Valediction Universe (2025) [FLAC|Lossless|image + .cue] <Brutal De
 ```bash
 magnet:?xt=urn:btih:15AB2BDAC4DE3B5BAAFCAB164C74A4A8548FE8A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Trick or Treat - Ghosted (2025) [FLAC|Lossless|tracks + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:F30DD6111D492770A225B1BB006E07BA13AD1297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

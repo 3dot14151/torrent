@@ -21,8 +21,7 @@ Folx- бесплатный менеджер загрузок с удобным �
 ```bash
 magnet:?xt=urn:btih:DE255DAF056F0D1556BB29170289E30567343200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [MP3|320 Kbps] <OST>
 ```bash
 magnet:?xt=urn:btih:D5DB9467824A3592B0C89143501FAD01AE60F00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DD63B10518B0FDCC8235F640C1C500B70C35519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - A Very Joyful Bluegrass Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Cou
 ```bash
 magnet:?xt=urn:btih:19861F651A36628C2F6A3E779799E95F84384BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Pianoбой - ХІСТОРІ (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1597FC5A26954546254DCB3270167131FD34AC7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ The Ferrymen - 2 albums (2017-2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9C87937604104FAAC9A58357D335E2DF3DE4A7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69BF77F9E2127508C15B9DDFF7F7BDD22FC64B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Deodato - Knights Of Fantasy (1979) LP [MP3|320 Kbps] <Disco, Jazz-Funk>
 ```bash
 magnet:?xt=urn:btih:8A7FEE7648CF19E2CE8CC5E0968D17B9CF0AF409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Ten - 21 Альбом Collection (1996-2018) 23 CD  [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:10EB155A80282EBD8D31A6517E2B65FD50CEFE13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Kokhe - Blue World (2019) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:DDFC523F97C804A5F24AA72736052C275A8978F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93D027D5720654FD135468D710BA65F28956D444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D4FFB95C286938BDB6B545416D912F1D018438E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ National Geographic Traveler - это журнал о путешествиях �
 ```bash
 magnet:?xt=urn:btih:7975B8F2D2BF9CD8693024C1E7A6A02EF24301B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Pixelmator Pro с широким спектром инструментов дл�
 ```bash
 magnet:?xt=urn:btih:D3E946A711BA7A82A4037CACB8464A820AFBD6D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ VA - Italoconnection: Remixes Vol. 2 (2018) [FLAC|Lossless|image + .cue] <Italo-
 ```bash
 magnet:?xt=urn:btih:230ACEC543E12E830544EB87D68E9F9500257392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Force Intel - Label Pack 5 Releases (2010-2012) Mille Plateaux [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:F1A85042FA6F1070B5791EFCA303FF0157ECC9C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1FBADBFB888E6CB491136C02E82B39BAFB1A50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Fairy Godmother Stories: Cinderella (2019) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:96398D990FFACCA62ADF535F761DBF53C4FA4419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ VA - Armin van Buuren - A State Of Trance Episode 938 (2019) [MP3|320 Kbps] <Pro
 ```bash
 magnet:?xt=urn:btih:3D37F0B106C160FEF92A24D475170089CF46E82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ PDFelement Pro - профессиональный инструмент, кото
 ```bash
 magnet:?xt=urn:btih:D014B5E72A4675C0FE7E7CCC2AD41F1DCDCE7DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D3C6FBB50F6BBD90391FFEE3340FE739A16D4B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:EA3C78C43132CC7D584B9CA855014B9873F33DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ Celine Dion - Courage (2019) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:E06A17EACE2BD77652E31D866586AC54A6C5BD59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F9DAB23D84B90AA84CA7B2AAB290792216567B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC2B67AFE1D50AFC7F2D89EBB29C217F23BDDA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03A17DB93D80D0765C4E0C67DED43637D4A67B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

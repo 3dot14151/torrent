@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:89FB8D258F2D4B578B72DF16263FD8E194CDE8EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ VA - Opera Metal Vol.8 (2013) [MP3|320 кб/с]<Heavy Metal, Goth Rock, Symphoni
 ```bash
 magnet:?xt=urn:btih:8D9B68CBCCE255902F6896ED3539B764BE21950C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Belvedere - All of It (2013) [MP3|320 кб/с]<Punk Rock, Melodic Hardcore, Skat
 ```bash
 magnet:?xt=urn:btih:D38F4B5092925D88307FDADCA5394E077570C807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Calyx & TeeBee – Strung Out (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:C8125CB9506B54F3EB42C7D4F05D79025AFBDE06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B627EB2BEDC00ED0BED32D75231275D421DE6820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ Inner Shrine - Pulsar (2013) [MP3|320 кб/с]<Gothic Doom/Dark Metal>
 ```bash
 magnet:?xt=urn:btih:CB346D45C7542205890DA0FF476ED8A3FF7AFB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Taberah - Necromancer (2013) [FLAC|Lossless]<Power Metal/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B1BC87E8BB0DE5E904BC8AC04F3806CAC283CC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ VA - Tainted Guide to Ambient & Chillout The Ibiza Tbr Cut (2013) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:453D2056F88A495FDD8B1CA96A3EB215DD42DCA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ VA - Absolute Fashion (2013) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:73710187E71A4D2FB7EA47CC30853A8E044568B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ BBK - Age Of Pain (2013) [WavPack|Lossless]<Progressive Rock, Fusion>
 ```bash
 magnet:?xt=urn:btih:0C2737FE0D9E6D127E236A60045C08C8AFCA69BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C55B0297441EB02A242D4A0690CEF3B96B53D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +394,7 @@ VA - Chillout: Beach Cafe, Sunset Session (2013) [MP3|320 кб/с]<Balearic, Dow
 ```bash
 magnet:?xt=urn:btih:2FDA54C3362350B7359B77F913FD1CFE9315F0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +428,7 @@ VA - House 2014 (2013) [MP3|~245 кб/с (V0)]<House>
 ```bash
 magnet:?xt=urn:btih:9031C0CE0D4373BDEE1CF8D9AEFAA4A43B3951F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +462,7 @@ Larry Coryell - The Lift (2013) [FLAC|Lossless]<Fusion, Jazz>
 ```bash
 magnet:?xt=urn:btih:A051A5B1DA6F6653D90AD77AA050045AB907436D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19EF662A4977BE225E15B1A623923920EF3FA294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72E912B187C5FD819A60C5F358F31ECD79266E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AFF187F686FFB449AD13E42646B5972581FCF3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +573,7 @@ VA - Chill House Night Top 50 (2013) [MP3|320 кб/с]<Deep House, Chill House, 
 ```bash
 magnet:?xt=urn:btih:1496C8ADE21B00A5AC4966052AE4FBC3B307FB48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00370842E8A4CF99EC5547F66AEAC28F2E7F5159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ NG: Комета века / Comet of the century (2013) HDTVRip
 ```bash
 magnet:?xt=urn:btih:7F2039FB83519E8E48AA52D1C3439C55307ABF78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ VA - Tandava Garden vol. 1 (2013) [FLAC|Lossless|WEB-DL]<Psy-Trance, Progressive
 ```bash
 magnet:?xt=urn:btih:A249B873F99BFB72D11FD14C8930C80E908842AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C6A2B4E7F623E8E4704A85186109CAFD03ED5B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87D7175B888E89A3B8A957FFB9A5235F14A349A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF68B6F73C095A32B897BBCCE83DA01C991BB1A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ Chastain - Surrender To No One (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0312AF94F8A1243D264ED9EDAA71C9D1058F854B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

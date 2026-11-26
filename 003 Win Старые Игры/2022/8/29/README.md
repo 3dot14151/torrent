@@ -19,8 +19,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [En] (1.2) License ViTALiTY
 ```bash
 magnet:?xt=urn:btih:53B3C5822EC6B8A65BF63CA3CDB850BE13D56BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

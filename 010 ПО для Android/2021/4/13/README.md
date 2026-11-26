@@ -21,8 +21,7 @@ QS Английский язык v1.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:24C710C48804859D250F73BD3F153F9BB7BFF243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

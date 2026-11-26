@@ -19,8 +19,7 @@ Willard M. Oliver | The Birth of the FBI / Рождение ФБР (2019) [PDF] 
 ```bash
 magnet:?xt=urn:btih:8AE7BA6EB4981B9BF4D8998AD5E15DA1FEA932ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A2C8A795180DF4A0E1846BABE845B3428B3A705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

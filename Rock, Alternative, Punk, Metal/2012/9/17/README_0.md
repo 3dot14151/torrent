@@ -26,8 +26,7 @@ The Gathering - Disclosure (2012) [MP3|320 кб/с]<Alternative / Progressive Ro
 ```bash
 magnet:?xt=urn:btih:D9F058CF1214DDA083B91244A4C22192941CFBC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Devil Sold His Soul - Empire of Light (2012) [MP3|320 кб/с]<Progressive / Amb
 ```bash
 magnet:?xt=urn:btih:1C1FEDFE36644D145E796E7384F7A263D6E816B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Simple Plan - Get Your Heart On (2012) [MP3|320 кб/с]<Pop-Punk / Punk Rock>
 ```bash
 magnet:?xt=urn:btih:F2B7723474B2801E669106B24948D39228624862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Motley Crue - Saints Of Los Angeles (2008) [WavPack|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Becoming The Archetype - 5 Albums (2005 - 2012) [MP3|320 kbps]<Death Metal, Prog
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Zdob si Zdub - Basta Mafia! (2012) [MP3|320 кб/с]<Folk Rock / Ethnic Rock>
 ```bash
 magnet:?xt=urn:btih:60FC2496E859DADAF91FCF88EF9B39E3C4B26985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Steve Vai - The Story Of Light (Deluxe Edition) (2012) [FLAC (tracks+cue)|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ VA - Beyond The Love Downspace (2016) [MP3|320 Kbps] <Electronica, Chill House, 
 ```bash
 magnet:?xt=urn:btih:33026ED5631D7351C8FA4F64CE48665CCA803740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Naked Chilling Vol.1 (Pure Summer Chillout Tracks) (2016) [MP3|320 Kbps] <D
 ```bash
 magnet:?xt=urn:btih:9972EFDEC12C946F72C6FC477C2F022B8295970B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Ibiza by Night Lounge Playlist (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:069AD6039BB42B3CA914E890D7A7CCAD204C6A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A93544AB54FB22029699D192C3DDFF4845F8C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFB19CB0DCAA1294089E1B3AB80A786880340657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Thats Ibiza 2016 (50 Gorgeous House Music Summer Tunes) (2016) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:582B3B3E66AF65A2CBE640C05297BDA8B6394E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F79BF58C170E81DE6E51BE58AD7449E5F99FE4D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Closing Parties (2016) [MP3|320 Kbps] <Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:3C3829D0CC5371E570C46FE44DF75012A8F55B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C07FC5CC05C568036FC5C9E4D12A3C1F645DA9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F69AD8EFA075626818BA2C2E74EBD37A4F5BC1B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ VA - Options Remake 150 Tracks (AUGUST) (2016) [MP3|320 Kbps] <House, Tech, Prog
 ```bash
 magnet:?xt=urn:btih:B2C1D37114A258780EC4C5FAE7567BD899E8A7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Spillo имеет красивый современный интерфейс, к
 ```bash
 magnet:?xt=urn:btih:0F1EB6A74B528DD68AD8A3E3F0221AFAD974447A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71B35F26A7B63D5CB67306FBCD2977F645D1DC52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A27C55A348115D9C7E3D6D8DEAF8995E60DB133B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ VA - Hit Drive EDM: European Version (2016) [MP3|320 Kbps] <Progressive, Trance,
 ```bash
 magnet:?xt=urn:btih:8ACDB3A06229BC9C7FA5C00A8AD14B7AAB93A3CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ VA - Chill Out Bay (2016) [MP3|320 Kbps] <Chillout, Lounge,Deep House>
 ```bash
 magnet:?xt=urn:btih:29276865AB901128ED6DCD336DDA5F5DA456D7A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ My Regime - Dogmas (2016) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:17B83EB12A8C11BF59638925CD0020BB344CE71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Woody Herman - The Thundering Herds 1945-1947 (1988) [WavPack|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:59E2C9FEAAEBCBF7DDC5E4363B41A54C07976F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Cisdem PDFPasswordRemover - Удалить пароль из PDF и получи
 ```bash
 magnet:?xt=urn:btih:AB8EA4CF8D8889D4280E1B1C2E9DA6C430FE1504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E935042D1AB9C8CC09650FDC8C8AEBEB2DAB98BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9442F469EB25CBDA94440888410C08BF11378966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23C060356898F3363E988B7DC309BBA08868EDFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ The Bai Bang - Are You Ready (2009) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0A3DD9D4FDF6B3298C2FCE98099ABC8899A3E8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ VA - 100 Sexy Chill-Out and Lounge Tracks (2016) [MP3|320 Kbps] <Balearic, Downt
 ```bash
 magnet:?xt=urn:btih:2BF5EFC16B09ED6083D166242E13414DCB575234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Beyond the Fade - Welcome to the Pain (2016) [MP3|320 Kbps] <Alternative Rock, P
 ```bash
 magnet:?xt=urn:btih:99F989B62480417663F09CA75DB8E70583F644C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ OS X имеет свою философию и некоторые вещи в с
 ```bash
 magnet:?xt=urn:btih:7BEC932A3E22C2EA7BA1667781027B67775B0A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

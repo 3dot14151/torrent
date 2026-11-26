@@ -22,8 +22,7 @@ This Books Absolutely For Beginners:
 ```bash
 magnet:?xt=urn:btih:9B8835200B6C5CEFE0849F6585687AB83FB87E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ C ++ 20 для программистов - это учебное пособие
 ```bash
 magnet:?xt=urn:btih:BF0E30D2063BA1C4A124487D232E8634967611F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F177A99DFA342494E0128C4A95586DF2FC36584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

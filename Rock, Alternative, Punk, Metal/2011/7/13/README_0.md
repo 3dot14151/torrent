@@ -28,8 +28,7 @@ NeraNature - Foresting Wounds (2011) [MP3|320 kbps]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:27BDAFAB812F262C9423C29D19AE7AEB39FF4F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Rod Stewart - You Wear It Well. The Collection (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:CF3FF6573827A2EBB18972C39981D58F71C77206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ The Creepshow - They All Fall Down (2010) [MP3|320 kbps]<Psychobilly/Horror Punk
 ```bash
 magnet:?xt=urn:btih:2DB906D575B0E6CC55071FFA1244CFA68740D050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11B955CABCDB9D464B8BF0BADBCEFB975BEFF0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BC933479445E06462C524CD4C997D08C5C3A48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:165058D05682EFFDC70D260BD7668C3BC256E79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Hegemony Rome: The Rise of Caesar - стратегия в реальном вр�
 ```bash
 magnet:?xt=urn:btih:7DB0D4E8671BD7CDC40966FDAD3AAD8168E2B1E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Sleeping Dogs: Limited Edition (2012) [Ru/En] (2.1/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:832CD69CD04FDC7ABC198568692C070A64C9044C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

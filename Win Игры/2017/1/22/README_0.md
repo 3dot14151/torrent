@@ -19,8 +19,7 @@ Wonderburg / Вандербур (2009) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:A887A405D0B977AE782F9BF0D6FD5982AF65CC14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ God Eater 2: Rage Burst является самостоятельным допо
 ```bash
 magnet:?xt=urn:btih:C1ECB4BFE6617174C75029C3C4604494929DB767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hard Reset Redux (2016) [Ru/En] (1.1.3.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3D998C8BE2FAE8D450F41A915BB801A5FEAB411B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DeadTruth: The Dark Path Ahead является эпизодическим хо�
 ```bash
 magnet:?xt=urn:btih:EEDBA4702246CB6E33FE9992AC5EB526D9D10E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

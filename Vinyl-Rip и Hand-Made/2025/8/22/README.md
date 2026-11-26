@@ -22,8 +22,7 @@ Deftones — рок-группа из Сакраменто, Калифорния
 ```bash
 magnet:?xt=urn:btih:E8A4775F3E5855982F91B52D7CA83A426C8AED52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Burning Witches — метал-группа, основанная гитарис
 ```bash
 magnet:?xt=urn:btih:74A45862329C724F1E269750EF7A5A238494E397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Meshúggah — шведская метал-группа, играющая в н�
 ```bash
 magnet:?xt=urn:btih:758FE6A67DB2A881237F6EA2FEF344DB89A233FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Blackbriar — голландская метал-группа из Ассена,
 ```bash
 magnet:?xt=urn:btih:C6B52FAD296F3167B8834BDBCC38D98A4C2AC097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
 ```bash
 magnet:?xt=urn:btih:02C8F8641FA3BEFD88243B0BF74E9A0E592D0826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

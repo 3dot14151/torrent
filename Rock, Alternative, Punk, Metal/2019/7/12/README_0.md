@@ -19,8 +19,7 @@ The Kills - Future Starts Slow (2011) Single [FLAC|Lossless|tracks + .cue] <Indi
 ```bash
 magnet:?xt=urn:btih:4D7ACB24EDD304846E58907BD1E558E2442223AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

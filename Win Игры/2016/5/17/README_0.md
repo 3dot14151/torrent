@@ -19,8 +19,7 @@ Redemption Cemetery 8: At Death's Door (2016) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:02AC64A465B8BA3ADD6EEA1FCFC5E1283D9A4243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19520F70CBE98558D5ECE22AF40ACB1B56014C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dark Romance 4: Kingdom Of Death / Мрачная история 4: Загово
 ```bash
 magnet:?xt=urn:btih:F228F9EAEA3E1FB8912676258C709CB6AB9F338B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Insane Decay of Mind – хоррор с видом от первого лица
 ```bash
 magnet:?xt=urn:btih:843B0721B8196DA0E4FD8C7B032B4DD6252CE894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Shadwen, нервная игра о ремесле средневекового 
 ```bash
 magnet:?xt=urn:btih:5969A453F49D579AE3BB90EA757576126ACB8827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ The Song of Seven покажет игрокам необычный мир и р�
 ```bash
 magnet:?xt=urn:btih:D4C19FD30EECD62383475ED7BA0E42CB5EE87480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Panzer Elite Action - Dunes of War (2007) [Ru] (1.44.12) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:5AD2E547D239AB380CF152610ABFBC8217BAE754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Danganronpa 2: Goodbye Despair является продолжением Danganr
 ```bash
 magnet:?xt=urn:btih:BD86983A370A1E3C1AAE0804302C9774574565BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Realm of Ink - это роуглайк с элементами экшена и �
 ```bash
 magnet:?xt=urn:btih:10DC215F9BB44CB23822D561BF1E5E7018231450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SILENT HILL: Townfall (2026) [Ru/Multi] (1.4.153521/dlc) Repack seleZen [Deluxe 
 ```bash
 magnet:?xt=urn:btih:E79A30ECA60C754DBF3BB9A8AC7CEE7965BDB541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

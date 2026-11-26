@@ -22,8 +22,7 @@ A4. Violence And Bloodshed (03:54)(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:6A223F401AF040E32B97808020136468DD5BF5C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Billy You're A Friend(   Читать дальше...   )Жанр: Pop RockП
 ```bash
 magnet:?xt=urn:btih:9A6458A3354B9683E31997B122D8EB67AED552C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Soulfallen - дарк-метал-группа из Ювяскюля, Финля�
 ```bash
 magnet:?xt=urn:btih:F771B2211ABDFA39961E6B142498D60800B29073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FreeSWITCH — открытая телефонная платформа, рас�
 ```bash
 magnet:?xt=urn:btih:24472B8B8AFAE2E93CB6A766DE1CC0AF0195355E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FreeSWITCH — открытая телефонная платформа, рас�
 ```bash
 magnet:?xt=urn:btih:EAD869FF4A30D93560934CBCD26531DA37194E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ LinuxPHB 12.25.0002 (Debian 12 Bookworm) [x86, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:69C0B8174D486ACB500BD6D48CED8DFE022FFDBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

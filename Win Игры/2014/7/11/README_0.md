@@ -19,8 +19,7 @@ Beyond the Unknown: A Matter of Time (2014) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:C4B79A266BFD7F3CA0DB8D90071F419F5B1393F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Evil Pumpkin: The Lost Halloween (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:3119417E77372B8F593635F3579711599CE9753E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ MahJong Suite - это высококачественная коллекция �
 ```bash
 magnet:?xt=urn:btih:E3AC8E23540BEF7D956D8BFC2D038BB887D23B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Kingdom Rush несомненно одна из лучших tower defense на 
 ```bash
 magnet:?xt=urn:btih:6C9E328175AE6B1BF9E3D2BD62BB2FDF30BC324D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

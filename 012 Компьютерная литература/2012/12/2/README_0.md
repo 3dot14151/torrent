@@ -19,8 +19,7 @@ Windows 7 без напряга - веселый и интересный сам�
 ```bash
 magnet:?xt=urn:btih:D3065A97DA75724ED29A1A4B095617D56F8769A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lucky Blake | Сборник уроков по фотошопу [2012] [PDF](О�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

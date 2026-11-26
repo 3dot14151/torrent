@@ -19,8 +19,7 @@ Vernal Edge – приключенческий экшен с видом сбок
 ```bash
 magnet:?xt=urn:btih:FBF094A680B2A38989089849404191F75AC5F884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Plebby Quest: The Crusades перенесет вас в бои, происход
 ```bash
 magnet:?xt=urn:btih:185769AF9EB6F07C5F31B733877EB06F5DFC72B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SuccuSeka: Resist Succubus Temptation - игра от компании Wakaba Sy
 ```bash
 magnet:?xt=urn:btih:CC260492F8A99FF0E72EF7AD7C8A6EE05E5DD95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

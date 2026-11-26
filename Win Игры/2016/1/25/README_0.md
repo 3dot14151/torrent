@@ -19,8 +19,7 @@ Terminator Salvation The Video Game (2009) [Ru] (1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:F7E7304E8EBD7E219F91555EC94D291D5130EE82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

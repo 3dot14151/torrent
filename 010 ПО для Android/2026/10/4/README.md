@@ -19,8 +19,7 @@ Rosetta Stone: Изучение языков 5.15.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7557719952A0B981BF01AB944A5C301BB6A3ADD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ One Read (Pro) - Позволит мгновенно открывать доку
 ```bash
 magnet:?xt=urn:btih:931B734819115A0DEEB857D5B1E9B29C274BEFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ LazyMedia Deluxe 3.467 Mod by FuRReX [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4D6054004793394E4BD80174D7AAC51C76E76121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

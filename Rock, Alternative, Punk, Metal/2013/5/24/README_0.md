@@ -28,8 +28,7 @@ Enemies - Embark, Embrace (2013) [MP3|320 кб/с]<Math Rock>
 ```bash
 magnet:?xt=urn:btih:A1A6FFE9E0A4C8A95E6B5B0ABBF8E2915B5E898B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Kotipelto & Liimatainen - Blackoustic (2012) [FLAC|Lossless]<Acoustic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Pretty Boy Floyd - 2 альбома (1989 - 2004) [FLAC|Lossless]<Hard'n'Heavy /
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ End Of Green - 7 альбомов (1996-2010) Официальная диско�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ A Pale Horse Named Death - Lay My Soul to Waste (2013) WEB [FLAC|Lossless]<Stone
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Alice In Chains - The Devil Put Dinosaurs Here (2013) [FLAC|Lossless]<Heavy Meta
 ```bash
 magnet:?xt=urn:btih:3AFBA99D2365787DF6D7DE9AF077D02AD695505A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Darkthrone — блэк-металическая группа из Норвег�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ U.D.O. - Steelhammer (2013) Limited Edition [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Dark Tranquillity - Construct (2013) Deluxe Edition [MP3|320 кб/с]<Melodic De
 ```bash
 magnet:?xt=urn:btih:C233CB33BBA96253E562681E695C9A13A1CBACAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

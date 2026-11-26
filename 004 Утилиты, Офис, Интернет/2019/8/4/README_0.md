@@ -19,8 +19,7 @@ AVG Secure Browser – защищенный браузер для безопас
 ```bash
 magnet:?xt=urn:btih:305C616434DE0F2FAE757F210518DF0E7C39157D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

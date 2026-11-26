@@ -22,8 +22,7 @@ A4 - The Return Of Apocalypse(   Читать дальше...   )Жанр: Black
 ```bash
 magnet:?xt=urn:btih:B4AF239EB08C6A19FADE5F73CFB91B2A6101E7B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Mötley Crüe, Quiet Riot сформировавшая лос-анджелесс
 ```bash
 magnet:?xt=urn:btih:254C80D4C6A185178D3E4BD71082E099CD20673E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

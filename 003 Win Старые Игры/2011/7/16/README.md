@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3D6431D8A53A26FD4E46B57FFE307AD45026D053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sherlock Holmes: Mystery of the Mummy / Шерлок Холмс: 5 египет�
 ```bash
 magnet:?xt=urn:btih:F6A1178C11E7118F2D6DE87ED5644DC496768A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

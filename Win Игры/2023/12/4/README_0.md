@@ -19,8 +19,7 @@ Christmas Wonderland 14 (2023) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:98826ACB6C83F243557EE3E7802FFDB27E0A2DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack dixen18 [Game of the Year 
 ```bash
 magnet:?xt=urn:btih:538A432924BDAD88F9672DFD7E2FCBE09F911388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:61B1C7B417879ED7948816C009DA577ABE04F1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

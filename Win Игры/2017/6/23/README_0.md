@@ -19,8 +19,7 @@ WRC 6 FIA World Rally Championship (2016) [Multi] (1.0/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:4804478D68DB715AEF7B10D7BD9FAEA8BA75E5C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chess Ultra — современный подход к величайшей ст
 ```bash
 magnet:?xt=urn:btih:AD7890F24DE0AD28DEAFA59F5C656053CD1D33A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lethis - Path of Progress – двухмерный «олдскульный» г
 ```bash
 magnet:?xt=urn:btih:9CBE02C935BBEC4715836500CDF9E3D656BAE342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

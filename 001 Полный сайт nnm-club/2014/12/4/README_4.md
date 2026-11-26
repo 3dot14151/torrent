@@ -22,8 +22,7 @@ The Crew позиционируется разработчиками как мн
 ```bash
 magnet:?xt=urn:btih:E87527AFDF0DF68F999599CC24A49A14E01F186E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BA9B11DB6412F6B0F0C72E5A0DC6A0AC7ABD9CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ ru_windows_8.1_professional_vl_with_update_x86_dvd_4048744.iso
 ```bash
 magnet:?xt=urn:btih:8638F6916D008827E2BB1CA36AA3B33B46B2951D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

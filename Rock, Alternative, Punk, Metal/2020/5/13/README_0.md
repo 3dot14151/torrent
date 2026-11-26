@@ -22,8 +22,7 @@ Mercenary - 11 Dreams (2004) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:EF0A2F8F253B483DB6AB859F4B9BA2BBC2F5F478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anti-Depressive Delivery (Antidepressive Delivery) [ADD] - 2 albums (2004-2008) 
 ```bash
 magnet:?xt=urn:btih:12A4F6CE5E9CC91001514A697F5184C41A508356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Millenium - Hourglass (2000) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 ```bash
 magnet:?xt=urn:btih:4D0A5D4BFE5E1CA1E10F61D3DC25BBE6F33EFA81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Michael  Vescera - Sign Of Things To Come (2008) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5D2DF3B2BCF175249DCEC88D2672A09B19CB7561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

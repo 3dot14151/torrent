@@ -19,8 +19,7 @@ Andres Ibanez Kautsch | Modern Concurrency on Apple Platforms (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:08716DCE862C8919631E54BCEB0464B3AFB34BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Frank Zammetti | Modern Full-Stack Development, 2nd Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:1D87D4419C11A89013D40371CCCDF42515C06E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Alexander Shuiskov | Microservices with Go (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:ACF6D0F8C720CCC6F901D16FE9F97EB7C89C5CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Jonathan Bartlett | Programming for Absolute Beginners (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:332CDD21EC4F523529794F1B9F66E75698D77E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

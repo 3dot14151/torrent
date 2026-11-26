@@ -24,8 +24,7 @@ Battlefield 4™ – это определяющий для жанра, полн
 ```bash
 magnet:?xt=urn:btih:951980005CECBA4E401AB7D82B74CA87DAF384CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E5955BFC2835E4A4CE359D524FC887F9D7BDE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Naruto Shippuden: Ultimate Ninja Storm 3 Full Burst – расширенная �
 ```bash
 magnet:?xt=urn:btih:46EE45854FC3243DE7F3AFA4578560F1FCE23F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Windows 8.1 (ранее известная как "Windows Blue") являетс
 ```bash
 magnet:?xt=urn:btih:3580FE8A662B1A0D6FE179E32CACDEB017961A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ UFC Undisputed 3 [PS3] [PAL] [En] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:0F8FEBE98CCA06FCC80F82871077615A8572645F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ The Dark Eye: Demonicon рассказывает трагическую исто
 ```bash
 magnet:?xt=urn:btih:47CF895810B07E33AB87A9265A75CC54018D6079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ WRC 4: FIA World Rally Championship (2013) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:3FC37919F206D197011390BB410A90674EB43F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Beyond: Two Souls / За Гранью: Две Души [PS3] [EUR] [Ru/En] [4.46
 ```bash
 magnet:?xt=urn:btih:BA3B9BEE91C8EA08760FD4A3E047DB17D354B88A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Battlefield 4™ – это определяющий для жанра, полн
 ```bash
 magnet:?xt=urn:btih:550688CDD614FD8BD5BCF9F10CF00143C72FA7D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Assassin's Creed IV: Black Flag [PS3] [EUR] [Ru/En] [FULL] [4.46] (2013)
 ```bash
 magnet:?xt=urn:btih:79AB20C19D1A42697535BAF133DB6FDF2416489B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Battlefield 4™ – это определяющий для жанра, полн
 ```bash
 magnet:?xt=urn:btih:C4DDFB01E20F7E392A09A686590CEEF58B7FF229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Autodesk AutoCAD 2014 for Mac [En]
 ```bash
 magnet:?xt=urn:btih:F827CF2DB25DDDF9CBCCB1D50654AF57D15F23BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:556C8D90B62DA4921813591D4600F94B09681E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:C0B38E9BE55A578C8C9225CA4C98E911DDAEE655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

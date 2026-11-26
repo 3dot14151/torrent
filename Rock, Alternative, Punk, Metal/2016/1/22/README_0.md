@@ -22,8 +22,7 @@ Dethrone - Incinerate All (2016) [MP3|320 кб/с] <Death Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:DB595EFBB62E9A8845CA9DE66E323583EF4640F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Legions of Raum - Fruition (2016) [MP3|320 кб/с] <MDM>
 ```bash
 magnet:?xt=urn:btih:263EFD547074605FF3CAFBF4E9EBC2120DA55FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Evil Drive - The Land Of The Dead (2016) [MP3|320 кб/с] <MDM>
 ```bash
 magnet:?xt=urn:btih:28F5F3ED507DBFC182EE99CC04462D3134DCB4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Victors - Victorious 1964-1966 (2006) Compilation [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:8FCD3ABEB14D777240E640E18EC6A5207ECDFF21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Skeletoon - The Curse Of The Avenger (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:719486D620522CB7C3DBC97781953EBEB8FD690E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Teen Spirit Vol. 2 (2002) [FLAC|Lossless|tracks + .cue] <Alternative Rock, 
 ```bash
 magnet:?xt=urn:btih:0C6195AFC25780BB80D354CC46D48597B45F0335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ John Illsley - Live In London (2014) 2015, Creek Records [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:1DC8D5AC4ED4C7B9D36093BC09A6CBB1E5567CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F2C4F2989665336D2B29FDECFF7779350BF4920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Hell In The Club - Shadow of the Monster (2016) [MP3|320 кб/с] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:086591A97C222F9393D9909E885E235D692C4925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Erdling - Aus Den Tiefen (2016) [MP3|320 кб/с] <Industrial, Neue Deutsche Hä
 ```bash
 magnet:?xt=urn:btih:0770EAC43288C476EAE1EBB497A153471AB50798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Primal Fear - Rulebreaker (2016) Deluxe Edition  [MP3|320 кб/с] <Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:0F02EAE34B971854445C85345799767985C99FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Scorpions - Love At First Sting (1984) 24K Gold, Remastered, 2012, Audio Fidelit
 ```bash
 magnet:?xt=urn:btih:420ABD0124C24740C83415C00638C27F230BB956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Scorpions - Blackout (1982) Hybrid SACD, Remastered, 2014, Audio Fidelity [FLAC|
 ```bash
 magnet:?xt=urn:btih:6897E63EEF12672320A5AC2C8537552A9CC95742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

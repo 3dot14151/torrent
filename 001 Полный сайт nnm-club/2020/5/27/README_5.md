@@ -18,8 +18,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.7.16/dlc) License 
 ```bash
 magnet:?xt=urn:btih:861C8E560ADD23AD7E18F0CB901ABA11D6EACA63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18C5812ADACDDE41CE54356FD40F3B9951F87053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

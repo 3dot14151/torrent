@@ -19,8 +19,7 @@ Blur (2010) [Ru/En] RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:7B1388DF86E5742E6AAD275141DD62A875427999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

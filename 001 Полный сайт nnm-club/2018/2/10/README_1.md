@@ -21,8 +21,7 @@ Jay Sewall - Payin' My Dues: 50 Years Of Blues (2018) [MP3|320 Kbps] <Acoustic B
 ```bash
 magnet:?xt=urn:btih:C545B06934C7AF17FE970A436E20AABE1F89E9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C627C73D5E8984C105F051DEC6CEB760402EC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Homemade Weapons & Red Army - Sleep Terror EP (2016) Samurai Music [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:E987C41090A7EDD1ED2B2A3A5A55EE66488491A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Blindstone - Датское Трио , сформированно в 2002 (Thist
 ```bash
 magnet:?xt=urn:btih:0FE397221E6515ADF60F41D826386DED38DFE4CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73933C1DD3A410CBBA8B4754A970CA0103492D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Son Lux - Brighter Wounds (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Expe
 ```bash
 magnet:?xt=urn:btih:5C58F22591EF4A6D569ED0D71439E43705E03F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ The Wombats - Beautiful People Will Ruin Your Life (2018) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:3C85D8E683FC03B35080D827165F6E6756056803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - Greatest Ever Indie Disco: The Definitive Collection (2016) 3CD [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:14E18524CFC30A8BA93CD5FC038ED4015B4AD7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Robert Rich - The Biode (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 ```bash
 magnet:?xt=urn:btih:0FBD8710A095CC701EADD042D1DB1B783B52DBF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55809DD24D1E7F7076813DC3DC310CD824447ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65BADC06A00B9B7A4BABEFC9DD491FF27FD8744F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Blank & Jones - Morning Of The Earth | My Island (2018) EP [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:549240C514917D22149C80B49FDF1B74A3FEEAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56D7DAE1860E93EABA163A5349244EB9CEDC712F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ ExpanDrive 6.1.11 [En]
 ```bash
 magnet:?xt=urn:btih:799EA64D6FDD8CA9324EA03D65F7C2C17C4CEAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Music maestro. Brahms, The complete live and music of the great composers (1992)
 ```bash
 magnet:?xt=urn:btih:5C743DD91D2FD447D13490CBDA9D8EF93F51EC45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9870E6199F6C87AEFC49F67D38BA599B98FC480F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ VA - Sanremo (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B89463860B041A2ACC85F21144ACF25FBEA8FBFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ VA - Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:E079713A4978C3F4FB979147EF5BC31E0003E06C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1988) A
 ```bash
 magnet:?xt=urn:btih:867CF3E55BBFF072C860CB3BB96FB3B8BA6606A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ XXIII Зимние Олимпийские игры 2018 пройдут с 9 по
 ```bash
 magnet:?xt=urn:btih:4020E099D7E8857CCF6A7EF4AF7C294B7C175528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F41241067851B23C5F217EB1BB292670EB30C1DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ Propellerheads - Decksandrumsandrockandroll (1998) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:D664BC6A49A50FC0D6A898BAD42647ADDA683B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ Perfectly Clear - последняя версия программы, котор
 ```bash
 magnet:?xt=urn:btih:02420FBEAB357A58795B2802A3532E38D28716AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:905D4E3339E4E678E79FBB3E3AD72A5E48A0AA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76DEA7A2A0853172899EAC34A3E6D16EE977C5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ Aiseesoft 4K Converter – универсальный видео конверт�
 ```bash
 magnet:?xt=urn:btih:42F28EB9FD1C642DCB90827CF384711D9A5259E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

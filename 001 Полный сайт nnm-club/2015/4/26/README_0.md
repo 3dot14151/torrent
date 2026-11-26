@@ -22,8 +22,7 @@ Piranha - Piranha Discog (2013) [MP3|320 кб/с]<Powerviolence, Crust Punk, Har
 ```bash
 magnet:?xt=urn:btih:3AC642C90FE7D1D456DBA4C60538BDA778520FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E5D93F5BC827B661CF6A01944C60A70B72D5B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Club Tunez - Depend Suddenly (2015) [MP3|226-320 кб/с]<Electronic, Club, Funk
 ```bash
 magnet:?xt=urn:btih:72B635407A5A2C386CB7EFE3F1F18D79E966CC30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Billy Walton Band - Wish For What You Want (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:081046A1C57B8DA4967E6DD57A1DCC63299C5E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nuork - Nuork (2015) [MP3|320 кб/с] EP <Post Metal, Atmospheric Metal, Instru
 ```bash
 magnet:?xt=urn:btih:DD73D5A357B34707AA32BC5C1E450AA1373238E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ VA - Music For Everyone - Trance Vol.3 (2015) [MP3|320 кб/с]<Trance, Upliftin
 ```bash
 magnet:?xt=urn:btih:CD2C2EBBEEDCDCF25143ACDFEB2BE1942CE1D983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Blackwelder - Survival Of The Fittest (2015) [MP3|320 кб/с]<Heavy Metal, Powe
 ```bash
 magnet:?xt=urn:btih:05A0A4ECB2C83332F1811254B572B42EDEE00782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ The Gene Harris Quartet - Brotherhood (2013) [FLAC|Lossless]<Jazz, Hard Bop, Sou
 ```bash
 magnet:?xt=urn:btih:DF090C30E684764ACBAC2F9294BCF59D2FA69E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Mons Lvnae - Lotvs (2015) [MP3|320 кб/с]<Gothic/Folk/Doom Metal(Female vocal)
 ```bash
 magnet:?xt=urn:btih:CC5685E6E160E61C0ECE73D3EFFD3FEE883AEABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Joys of Emptiness - Непонимание (2015) [MP3|320 кб/с]<Depressive P
 ```bash
 magnet:?xt=urn:btih:F9B5C3FDA6FD47808E68BC7FAAB2670DA79AF4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Sensual Ibiza (2015) [MP3|320 кб/с]<Electronic, Chill Out, Deep House>
 ```bash
 magnet:?xt=urn:btih:66AC63C2C215B4E2913867E814E4EC2EACA0EAE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ Violet Cold - Desperate Dreams (2015) [MP3|320 кб/с]<Atmospheric Depressive P
 ```bash
 magnet:?xt=urn:btih:08831D33318DA0F474C61CD567BD2CF7D6F851E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E8917AD6B301DD348770DA2C25CF84E109BBDEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F08B606DB368A279EED409DFA642AACAD85C679F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ VA - Lounge Appeal Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:52B81A160A4F37A973358B35EC8AFDDC2D3027E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Snarg - Snarg (2015) [MP3|320 кб/с]<Nintendocore, Chiptune, 8bit, Hardcore>
 ```bash
 magnet:?xt=urn:btih:804B580DC4816FFDC25E65419B7C3B9BB71AEF9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ Haley Reinhart - Listen Up! (2012), Deluxe Edition [MP3|320 кб/с]<Rhythm & Bl
 ```bash
 magnet:?xt=urn:btih:179639AA4CD0C02AD80307C5DDC2A8CA2F7898D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Masters of Disguise - The Savage and the Grace (2015) [FLAC|Lossless]<Speed/Heav
 ```bash
 magnet:?xt=urn:btih:6B052B18073C1E1142A11A6C532E1ADB638501EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Defence Mechanism - Invasion Of The Robot Brains From Planet Zero (2010) [MP3|32
 ```bash
 magnet:?xt=urn:btih:C51151F6F4B71D55EBA06D37FF9163537EDE73A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +611,7 @@ VA - We Love Trance Vol 1 (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:825F01589B3605DDAF2B65ABABBF46223226FAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +640,7 @@ VA - Fashion Anthems (25 Deep House Tracks) (2015) [MP3|320 кб/с]<Deep House,
 ```bash
 magnet:?xt=urn:btih:718597FFEF0D23371B8DF8851BA5105FC3724FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13271A273390822BDA030EF8F48D830E7C3C59F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ Shed Seven - The Best (1994 - 1998) [MP3|320 кб/с]<Alternative, Britpop>
 ```bash
 magnet:?xt=urn:btih:09323AD6705AA343A4C4650B904565D56E67A3E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1957119D6F5BC64F5CB1FAEE33FBA0EC4CC9C1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

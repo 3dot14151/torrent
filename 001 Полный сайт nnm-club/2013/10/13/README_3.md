@@ -27,8 +27,7 @@ Airi - Lifebird (2013) [MP3|320 кб/с]<Dark Psytrance / Night Psytrance>
 ```bash
 magnet:?xt=urn:btih:B6F4EE3F47C2BFD16B0205039ACC9E5FA8FE6AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:782D6856C9D622FF4553C58F9C3E91A5AD288C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Stephanie Bennett - Lumiere. Baroque Music For Relaxation (2003) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:D2E7D184FB24EA6EFE34D4EF8569BF0754FBA93E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B8188B8E499D333D33358B99DE0AB65395544D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76EC5705B3568531822C65671109EDDDD9A9F71E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ Figure - Horns of the Apocalypse (2013) EP [MP3|320 Kbps] <Dubstep>
 ```bash
 magnet:?xt=urn:btih:7DFB82E5B9C0C5E13B272B9E2D7AE5B2B77133C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ VA - Simply Dubstep October (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:77A47F2C0FD7E52DEEE1AD4CF2081B5CD2950C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33775B2DE185C1A568B135373E477F12E850DC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ VNP - Chillout Mix 3 (2013) [MP3|320 кб/с]<Chillout, Ambient>
 ```bash
 magnet:?xt=urn:btih:1AA9B73AFD88FB6A474A268B51BB230FC39627BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DEA62E050161603E33FB78842A71D6E7297186A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ VA - Turlitava 2 (Compiled by Anub1s) (2013) [FLAC|Lossless|WEB-DL]<PsyChill, Am
 ```bash
 magnet:?xt=urn:btih:32998E08D368A65CCAED6A6F5FB5C82C901CC0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:F843AB087FED7F2721182D09FDA010E61FBB91F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ Paltry Dream - Secret Wishes EP (2013) [MP3|320 кб/с]<Chillout, Ambient, Expe
 ```bash
 magnet:?xt=urn:btih:64B9CC8798CA3355100A06A9AAC0BB09CDF212CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:912FBA7DA08614DBD64A22AC01DB0F3C0E697537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ Shastro - 3 альбома (2004 - 2013) [MP3|256, 320 kbps]<New age, World, Med
 ```bash
 magnet:?xt=urn:btih:3016185AE7D1C8229FE444CA1134E22A6713402C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ Brandon Visel - Flight (2010) [MP3|192 кб/с]<Neoclassical, New age>
 ```bash
 magnet:?xt=urn:btih:B9B6AFFA47A3E697E3B5FC43E814879325A9045A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ Anjunabeats pres. Alternative Beats 01 (2013) [MP3|320 Kbps] <Dubstep, Drum & Ba
 ```bash
 magnet:?xt=urn:btih:CFC38CBA3E82D43637905BE4C31D03ECAC56A5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E1851C34E75396A9D49FBFFAD2541FF0EBF2E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84119CE278075D9EFD7E3DB9863579F934C135D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:5590E2C99307DE65BE9085B1959E0B90E9A693B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ The Underachievers - The Lords Of Flatbush (2013) [MP3|160 кб/с]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:2ADAE717B136EE456939BB56EBB39CE3BD7D89BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ VA - Summer Meets Autumn (Compiled by Anubis) (2013) [MP3|320 кб/с]<Ambient, 
 ```bash
 magnet:?xt=urn:btih:71DC1D84B6AB34F08C03BF46AF0DD49D9DE376AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9B0AA2B5631560BDC24E9CA955DB38952111D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +717,7 @@ Indiogenes - 2 альбома (2005 - 2007) [MP3|192 кб/с]<Native American, F
 ```bash
 magnet:?xt=urn:btih:C825776D55729BB5D2A5193913F9E48C0DFCD932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +751,7 @@ B5. The Gift :: 04:53Жанр: Synth-popФормат: Vinyl, LP, AlbumПродо
 ```bash
 magnet:?xt=urn:btih:3ADFB87D693C9A33C9C71F930112CCE3BF03C1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +785,7 @@ Little Angels - 3CD (1989 - 1993) Japan Edition [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B2497AFA685CF1A0C0146405211AE5AEB3466E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

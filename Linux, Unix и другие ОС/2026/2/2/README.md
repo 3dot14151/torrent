@@ -19,8 +19,7 @@ ALT Linux 10.2.1 СП [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:95913679B04ACF00CE393B9BAD41D92D64C6A3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

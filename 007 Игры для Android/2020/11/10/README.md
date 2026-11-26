@@ -19,8 +19,7 @@ Plague Inc – Редко, когда мобильные проекты выхо
 ```bash
 magnet:?xt=urn:btih:43B5C29D352CAA951D532CA54180D18FA57539D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

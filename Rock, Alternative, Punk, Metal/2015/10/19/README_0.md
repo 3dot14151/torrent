@@ -22,8 +22,7 @@ Bryan Adams - Get Up (2015) [FLAC|image+.cue]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:3CACFD014D0733C16E03B70E503DD4A9F3A39C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

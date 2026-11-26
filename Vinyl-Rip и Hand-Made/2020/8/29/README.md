@@ -22,8 +22,7 @@ A4 Крошка Жанет = Baby Jeannette(   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:83B231A82BE78F88221E8E999E1C252719199498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Lori! Lori! - Всё неправильно (2011) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:E42BA288B12637C0535B049401BEE986ADA88276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EB664432B56E399EAC924D204D628E84DE53669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

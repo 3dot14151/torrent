@@ -22,8 +22,7 @@ A3 Good Days Have Gone(   Читать дальше...   )Жанр: Pop, FolkП�
 ```bash
 magnet:?xt=urn:btih:FE47DCD164DDA7F43736DEFB744B22B3844689A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

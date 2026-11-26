@@ -19,8 +19,7 @@ Hidden Expedition 11: Midgard's End / Секретная экспедиция 11
 ```bash
 magnet:?xt=urn:btih:585C593334916C364723C779834F90A6D43ECCDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Fandango Remastered (2015) [Ru/En] (1.4.1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:7B734BEB234DB0CBF19C13298B77965FB9817501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blood Feed — это аркадный шутер, где играющие за�
 ```bash
 magnet:?xt=urn:btih:5403279F06226BCE0C8B38347BBED98EF162B5E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Goat Simulator - это безумный симулятор об эксцент�
 ```bash
 magnet:?xt=urn:btih:A06D7CC5B735D3772266C9E67A07DC2E1340CAAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

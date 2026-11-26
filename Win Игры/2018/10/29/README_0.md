@@ -19,8 +19,7 @@ Circle Empires (2018) [Ru/Multi] (1.2.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FD763C05CADDA8DDDC1796BE5314BC9FFE8E3F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

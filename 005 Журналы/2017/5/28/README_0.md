@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B0E66240A4B71A2460472E9B56738D45F5926F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73E4AB0354762A0ED2A7E1AFDC3B3D0E06CB3C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ P.S. Не знаю почему в издательстве решили, что
 ```bash
 magnet:?xt=urn:btih:6984389BC001A619E4EC48E5BC583B3AF46DBEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

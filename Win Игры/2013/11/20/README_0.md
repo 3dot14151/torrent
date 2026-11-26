@@ -19,8 +19,7 @@ Dark Angels: Masquerade Of Shadows (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:0C0AC6FB024A44F1BB3757F1CF1F6FAA5E089FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Party of Sin (2012) [Ru/Multi] (1.0.0.5766) License [indiegamestand]
 ```bash
 magnet:?xt=urn:btih:6FC102E2FFDDB5500A1DE33FC31E347F9DDE0E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Young Justice: Legacy (2013) [En] (1.0.0.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B196715C999B7B6CEFEEFDBBC55804E7CB4BACAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Young Justice: Legacy (2013) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:6F1CE2B127BA5473D3655FC7FAAF93A688132BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

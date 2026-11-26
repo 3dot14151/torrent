@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:C4A82D22623D0445921AFFA145A7D52F9D7BC106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ A. Каминская | Экспресс-самоучитель итальянс
 ```bash
 magnet:?xt=urn:btih:9F31E5EBAD5F87077AFDE16CB5C79102B945C6D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA597976DF20EB7B0B7308687E619F267B0C0D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

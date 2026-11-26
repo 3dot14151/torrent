@@ -23,8 +23,7 @@ Just Cause 2 / Immortal [Ru] (RePack/Mod) 2011 | DOOMLORD
 ```bash
 magnet:?xt=urn:btih:3EFF0DF49F62446BC3B3AD54A11835B68FDE5FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8ACBB73A770664DB3599CBD4097D1F55A70FC85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 ```bash
 magnet:?xt=urn:btih:02F3AFC683D9B65F71AAB5AA0D23DD4F6ADF6496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ LEGO Star Wars 3: The Clone Wars [Ru] (RePack) 2011 | R.G.Repacker`s
 ```bash
 magnet:?xt=urn:btih:BC6B7A04ED8E7A50303FD5CC495F9465739D113F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ WPI BARS 1.1 - Вашему вниманию предлагается профе
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

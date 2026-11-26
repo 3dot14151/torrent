@@ -19,8 +19,7 @@ Banner Saga 3 - грандиозное завершение захватываю
 ```bash
 magnet:?xt=urn:btih:017CA043775E15E556606093474FA4CF7A8F6036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Storm Chasers: Tornado Islands / Охотники за штормом: Остр�
 ```bash
 magnet:?xt=urn:btih:94DA8A9B7BC94AFFE43C28C77FF49764B7E2F54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 ```bash
 magnet:?xt=urn:btih:C0B70E4590872F3BE7C6436608F52655A832AE51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ State of Mind (2018) [Ru/Multi] (1.2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:70B83E4DC8BA46D79401F3745069FE1674F91476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

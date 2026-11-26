@@ -19,8 +19,7 @@ Phantasmat 12: Death in Hardcover / Фантазмат 12: Смерть в ст�
 ```bash
 magnet:?xt=urn:btih:4C1D0FE860B0A86681290EBC63B5718A2B4E85A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Watchmaker (2018) [Ru/Multi] (1.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:94F490D60D3F2A7F5958CB9363BD577167A15A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Human: Fall Flat (2016) [Ru/Multi] (842523) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C717BF3D83B79AADAD962A7225E4C3FFF87B3853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Anno 1503: The New World (2003) [Ru] (1.0) License Новый Диск [Колл
 ```bash
 magnet:?xt=urn:btih:09F23BCCE8A35F6A1DFA8CDEF11424E3648E982E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

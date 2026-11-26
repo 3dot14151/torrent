@@ -19,8 +19,7 @@ NexusFile - это мощный и стильный файловый менед�
 ```bash
 magnet:?xt=urn:btih:E7E09BD5363FF359B8744A75AC9CB4A2D3824770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ VA - Trance Beach Volume 34 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:96D53593616380D86CD13CA318633775B35760DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Damascus - Heights (2013) [MP3|320 кб/с]<Post Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:6BEC8892DDAE79F79927488732AF2D6AA223AADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ DJ Nike Twist - TranceWave 068 @ GTI Radio (15.08.2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:DF5DB770C3FB3DF34ADEBEC1F551932C2597C215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A82BE113617EE9DF03E8C4C6C2D4C8A7EC96D53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Photo in Lounge - Feels like home - part two (2013) [MP3|320 кб/с]<Lounge>
 ```bash
 magnet:?xt=urn:btih:4C64759AE3D474F44FDB7C5F43524CCD0F5034F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Impalers - Power Behind The Throne (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B3A81B025F4E6D4EBFBCFC81B63CE070150B4D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABD3DEDC38B3F9F2C5AE7F1ECD3E11E9D5362137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ VA - Focus On: Deep House (2013) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:EDC1B452F613E8A472D904CBAA168477952ECB98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ VA - Summer Dance Party Vol.2 (2013) [MP3|320 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:D8E274F55FD1ABB91E1418CF4116F2EAF21B5B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0715C3D41F3985440C64E34C2C013D79BDDC6A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +333,7 @@ VA - Summer Night Lounge Vol.3 (2013) [MP3|320 кб/с]<Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:84FFC88ABB191B58B3A1820126008DC09500EFA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A88F2F2A98FD84944995BF313A847BB87C57CED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F075F90ADFD874BBAAC16959C1E11824BF46C9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:681D166C99DE6B9E78C38242FA8056EC51926883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ VA - Trance Maniacs Party: Trancefer Wave #122 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:255DF6385CA88899D88B543F2876F44D9437C925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ Animal Collective - Sung Tongs (2004) [FLAC|Lossless]<Indie Rock, Acoustic, Abst
 ```bash
 magnet:?xt=urn:btih:2A7E9D762AD1DF3E8B29EE112B40E89606230469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ VA - Celtic Music For Harp. My Gentle Harp (1999) [MP3|320 кб/с]<New age, Fol
 ```bash
 magnet:?xt=urn:btih:70A5AA6AC70E7A425BC99F059A385105101E5558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ Timeless Rage - Forecast (2013) EP [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:193591536E2220B136922EE20E75901442693B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ Discovery - сайд-проект Wes Miles из Ra Ra Riot и Rostam Batmanglij
 ```bash
 magnet:?xt=urn:btih:C8D38B5E84FBCFCAB68D6E12797567F807E5DD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93635A2CED254CC660D337601B61BF7DF5214C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +660,7 @@ Red Baraat - Shruggy Ji (2013) [MP3|320 кб/с]<Jazz, Funk, World Fusion>
 ```bash
 magnet:?xt=urn:btih:27E5D9ABD9F36C8FECF316BC67CAE58EC6D0AE89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDEF3D026B9B3DD9219DFF80155C68E35DDC8192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A17BBBB055D3C710F203F1C90FAD0170F820B84C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ Animal Collective - Feels (2005) [FLAC|Lossless]<Folk Rock, Post Rock, Psychedel
 ```bash
 magnet:?xt=urn:btih:496D626A35E819895068427FB183F2EC01FEDF9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -794,8 +769,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C24CE22B8C93571A05B4EB75AA97FEA1D518379C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

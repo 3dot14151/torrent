@@ -25,8 +25,7 @@ Neurosis - Honor Found In Decay (2012) [MP3|320 kbps] <Post-Metal , Experimental
 ```bash
 magnet:?xt=urn:btih:01523ADD0BAE4B0A8C4A4A4E8D98EDB0BFD497AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ My Dying Bride - A Map Of All Our Failures (2012) [FLAC|Lossless]<Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Fear, and Loathing in Las Vegas - All That We Have Now (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:D0D243DD56DBD8D8DA9A28892B0EFF4B2B47284A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Magnum - On The 13th Day (2012) 2CD [FLAC|Lossless]<Melodic Hard Rock, AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Stone Sour - House of Gold and Bones Part 1 (2012) scene [FLAC|Lossless]<Alterna
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B21158810B9CC06B27107FD66EF9E957152C7013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

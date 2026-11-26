@@ -20,8 +20,7 @@ Anomaly 2 продолжает историю об инопланетном вт
 ```bash
 magnet:?xt=urn:btih:BEADE1B4776791CC627FE59EF91548C6060A2DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

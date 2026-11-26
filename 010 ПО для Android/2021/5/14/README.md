@@ -19,8 +19,7 @@ Polaris Office - мобильное офисное приложение, поз�
 ```bash
 magnet:?xt=urn:btih:1781A453E4473CB5679335F83AA360BFBC412458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

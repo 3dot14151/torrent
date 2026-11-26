@@ -19,8 +19,7 @@ Fi da Puti Samurai погружает геймеров в перестрелки
 ```bash
 magnet:?xt=urn:btih:7E80B41476197702B6E5376DE329A302BDAE56D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WRATH: Aeon of Ruin – шутер от первого лица, созданн�
 ```bash
 magnet:?xt=urn:btih:081EC79B4418D486886529F388237C55E10D3D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rise of Gun (2024) [Multi] (3.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EE68CCED16680A22A2D15A86F6DC8FD80EE5F8A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 ```bash
 magnet:?xt=urn:btih:11E92F78032E77306AC5BB8ECFB39985822C3571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Silent Nights: The Pianist Collector's Edition / Безмолвные ночи. 
 ```bash
 magnet:?xt=urn:btih:0E4B8282EA5CA8F3A3863DB326F36BD2ABD1959E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Alpha Protocol - приключенческая экшен/РПГ с видом 
 ```bash
 magnet:?xt=urn:btih:1EC0CC893CB75B2A3A7594C418A5CEE738D41BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 ```bash
 magnet:?xt=urn:btih:A066F2C690B79F829F1A3C93C1EB2EA0F2DC1F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Fi da Puti Samurai погружает геймеров в перестрелки
 ```bash
 magnet:?xt=urn:btih:D2FD83CBEFC7751553828A5DDC6FBC8C20C263D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Between Horizons - это крутой 2.5D приключенческий де�
 ```bash
 magnet:?xt=urn:btih:60770B373DD42F21A395FB8FFAADB42B349FC0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Living Legends 11: The Red Trace / Живые легенды 11: Красный 
 ```bash
 magnet:?xt=urn:btih:A8A769113E8B602E1DEDC125A26F7D34C03001C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Alpha Protocol - приключенческая экшен/РПГ с видом 
 ```bash
 magnet:?xt=urn:btih:798144EC74B4EF13F41B70D00A03959B63C65749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

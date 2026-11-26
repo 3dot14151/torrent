@@ -28,8 +28,7 @@ IgVin - Dance club energy Vol.101 (2013) [MP3|320 кб/с]<Club, House, Trance, 
 ```bash
 magnet:?xt=urn:btih:DEAF39FB11EF9A000B6D48CBA59C847C5F07E3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Impress. - Всё, что осталось (2013) [MP3|320 kbps] <Post-Hardcore 
 ```bash
 magnet:?xt=urn:btih:8DCA39667B04C567764475B6D1F65E86601724B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ VA - Mastermix Pro Disc 153 (2013) [MP3|320 кб/с]<Pop, Vocal, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:B29C33C2C2CF1A7A5702263E28BA67E55B90C680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Little Wings - Last (2013) [MP3|320 кб/с]<Indie, Folk, Acoustic>
 ```bash
 magnet:?xt=urn:btih:5C267112BAB763CEACEE5DF4D1EFAB6045817289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Fiona Monbet - O'Ceol (2013) [MP3|320 кб/с]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:62556D54E730A9E863FC1DE4ECCADBEACAF15628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ N/AЖанр: TranceПродолжительность: 00:59:57
 ```bash
 magnet:?xt=urn:btih:29C2C6C3684422359A0F0A6DE9291BA9D59998C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6B4B19E7A11FA6C9DECEB6B60B5AF38EF63FD88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ VA - Club News (2013) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75170B2F2444AF95902BFF82D0B7C30A74F72617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ Six Feet Under - Unborn (2013) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:5BDE04EF8216162EF706587201F507C4001C0C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ The Bilibis - DEMO (2013) [MP3|320 кб/с]<Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:D1CAA075AA084D6AAEB67CA0D1DEDEAD59A25613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +367,7 @@ VA - Клубная лихорадка Vol 1 (2013) [MP3|320 кб/с]<Electro, C
 ```bash
 magnet:?xt=urn:btih:A9C648D1BDAFA011E92A5EB46EEED8CB34139801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ One Morning Left - Our Sceneration (2013) [MP3|320 кб/с]<Post-Hardcore, Elect
 ```bash
 magnet:?xt=urn:btih:8DD695C6B1ABD3B231E9EC23FF845D0472580A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ Lizard - Big Road  (2012) [APE|lossless] <Southern Rock / Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64923C7D7736A152D79553A9082E46F8C91095CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +494,7 @@ VA - XXXXXL. Блатные звезды 3 (2013) [MP3|256 кб/с]<Шансон
 ```bash
 magnet:?xt=urn:btih:21573CB648649CBA32CBABD2F809675439C24623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +528,7 @@ A Faylene Sky - Hell Is Where The Heart Is (2013) [MP3|320 кб/с]<Post-Hardcor
 ```bash
 magnet:?xt=urn:btih:CE3FBF62CF6646B04D3EB88429A2A4741183BED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +562,7 @@ VA - Ресторанный Хит В Южном Городе (2013) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:B09E1815EA639BEBCFC00837B15B7F26338EA664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:041BE67C176A3EFC2D1EC45C631E1898AEB53E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +622,7 @@ Funeral For A Friend - Conduit (2013) [MP3|320 кб/с]<Alternative Rock, Mall E
 ```bash
 magnet:?xt=urn:btih:17E1C8EE088B680162AB69330AA0EC79DE0ADCDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +656,7 @@ VA - XXXXXL. Блатные звезды 4 (2013) [MP3|256 кб/с]<Шансон
 ```bash
 magnet:?xt=urn:btih:75EEC5427BB5EC36269520727384ECC34B5B2FAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +690,7 @@ VA - H1ts Hiver 2013 (2013) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C376A44A2942BE1E2F2A7037ABA4124B6D6AE3E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33777048E06B29745C6DCFE9A2A2085E70E57007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +758,7 @@ Hello Ocho - Hello Ocho (2013) [MP3|320 кб/с]<Psychedelic Rock, Experimental,
 ```bash
 magnet:?xt=urn:btih:ED5776BA64DE8B1DB9624A40EFF5D716E030DA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -807,8 +783,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60A3392DF27BBBED5C3238C0261AACBE6DCEF4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -835,8 +810,7 @@ VA - EdShar Music (01.03.13) [MP3|192-320 kbps]<Progressive House, Electro House
 ```bash
 magnet:?xt=urn:btih:610AFDD634A59271CBF07EE12623B10DB4DBD08C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

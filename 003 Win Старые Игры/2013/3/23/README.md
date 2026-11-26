@@ -20,8 +20,7 @@ Deo Gratias [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:80D521F70FAB848C516AD61EEA9A4D0245C576CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Primal Prey [Ru/En] (P) 2001
 ```bash
 magnet:?xt=urn:btih:B3649EAA6EE80D718F62C59558C0616122444485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

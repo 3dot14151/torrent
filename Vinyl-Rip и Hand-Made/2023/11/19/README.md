@@ -22,8 +22,7 @@ Warfect - трэш-метал группа из Швеции, основана �
 ```bash
 magnet:?xt=urn:btih:F6BDEB746B07B4DC2407D69EC860BB817000BE5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

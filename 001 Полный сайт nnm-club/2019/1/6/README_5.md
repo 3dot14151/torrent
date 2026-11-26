@@ -18,8 +18,7 @@ WPI x86-x64 by OVGorskiy® 12.2018 1DVD [Ru]
 ```bash
 magnet:?xt=urn:btih:CF35DBF25B98C5085FCB4345DF6E84F48CD63F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D05E97B248D21094789D2EA737A702FD1ED709B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Windows 10 Enterprise LTSB x64 (Version 1607) Elgujakviso Edition v.05.01.19 [Ru
 ```bash
 magnet:?xt=urn:btih:58542C2A431ED21C4A4FCA1CD005EE59B1246CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

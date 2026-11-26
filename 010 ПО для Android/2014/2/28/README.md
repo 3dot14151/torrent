@@ -20,8 +20,7 @@ Root Call Blocker Pro 2.2.3.17 - Файрволл входящих звонко�
 ```bash
 magnet:?xt=urn:btih:9A4C0F4698B091A9444136A54734E6306ADB5129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

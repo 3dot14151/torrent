@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:FC1A1E31182B2063FF3F1E71317F56129C3819A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pain - Coming Home (2016) 2CD Limited Edition [FLAC|Lossless|image + .cue] <Indu
 ```bash
 magnet:?xt=urn:btih:24099B014E78C54C4FA8B6F6CC187B944940FBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD9E81ED16492CE5E529A0CC1F01385CDB8F6A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

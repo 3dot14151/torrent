@@ -21,8 +21,7 @@ Reperfection - Volume 1 [En/Ge] (RePack/1.2) 2012 | Elektra
 ```bash
 magnet:?xt=urn:btih:548712BB1BBF382C2D973355C32AECB9ED682750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Toxic Bunny HD [En] (RePack/1.2) 2012 | VACE
 ```bash
 magnet:?xt=urn:btih:D51D93B8D2263C3934BC6EC585BE47588F4E359B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Resident Evil 6 (Patch/Crack/1.0.1.3.0) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:38C2B4F576412C1476494B1873BC35F48F5A5401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Project  Wreckless - We Are Wreckless (2020) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:44CC46D1F8D47CE6EA89620F3088CF13F731E2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Miklagard (Miklagård) - Miklagard (1979) Remastered, 2020, Paisley Press [FLAC|
 ```bash
 magnet:?xt=urn:btih:3CF58FB8D0A398122F9E3A9755AD8E7EFE45C998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rubicon - Demonstar (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:3DCD56542FD158A9EE631CB401D9CCE4B3A794E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Muntro Coutant - 2020 Out (2020) [MP3|320 Kbps] <Alternative Rock, Indie, New Wa
 ```bash
 magnet:?xt=urn:btih:6C48C76416D2B49DC1A5CAE69E6501DF6E467314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tungsten - Tundra (2020) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:2BE5F445B553447D83A32FF9DCAD6A01B96FBF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Chris Turner - Rock 'n' Roll Man (2020) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:2DFBEE670B67ADFB91E8B02A8EFC28935F689D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dread Sovereign - Alchemical Warfare (2021) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:DC99E0059221D1A1D7D0CF6030E31011EB655FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ If These Trees Could Talk - The Bones Of A Dying World (2016) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:DE0FA16CC6B26211BA86FE4B707F69110409E8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:B25F18EC8D9569301AE680AEAA40E855A4F42281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Anna Pest - Dark Arms Reach Skyward With Bone White Fingers (2021) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:5F718A790CADCE1D94A34D1ED72B16D340F56414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Ominous Glory - The Elven Dream (2021) [MP3|320 Kbps] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:B7F64D6FE93704E91427643F85EC42AE3618BE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

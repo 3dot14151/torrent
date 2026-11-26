@@ -27,8 +27,7 @@ Beitthemeans - Shotgun Radio (2004) [MP3|320 кб/с]<Southern Rock/ Hard Blues 
 ```bash
 magnet:?xt=urn:btih:B83B714CF62BC47C608C881F9B7D15840FCD66E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Morgoth - Odium (1993) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:364DFEB0D7A12DD54CE48EB91C7A4FE0B3E8874E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ VA - Dark Mystery 01 (Compiled and mixed by Deeper82) (2014) [MP3|320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:4FDEC4760A58E17CAD9BC4151ACCE04A6BAAD681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Leland Scali - Seeking Dreamers (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:671A2F083E2653928B9440E13EA88E7AF89A9206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E114A984F20485724891A3AAE98146B6F9D0FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16AAC72A9AC9584211F1BE419C912FAA123F65FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Pako & Frederik - World In Progress (2002) [FLAC|Lossless]<Progressive House, Pr
 ```bash
 magnet:?xt=urn:btih:8794A0C9F6007FD1498EA43C7788AFEC2E87C9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ Eldiarn - Зима (2014) EP [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:6E3512BD79D8F4760DEAB48B9A0643792D28327F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Galactic Cowboys - Space In Your Face (1993) [FLAC|Lossless]<Progressive Metal /
 ```bash
 magnet:?xt=urn:btih:EBC4666CCF6B85A47F9887CEDF27E869CAFFF367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ Beitthemeans - Crude Alabama Storytellers (2008) [MP3|320 кб/с]<Southern Rock
 ```bash
 magnet:?xt=urn:btih:76621C0B4CD960AB329386C41337B0D25C66FB90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E93F58E74D86856EA62D314BAABEB58EAD1CD59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ New York Rock & Roll Ensemble - Reflections (1970) [FLAC|Lossless]<Classic Rock,
 ```bash
 magnet:?xt=urn:btih:CB05565CAF6600062C576454D59E1EF1D00C005B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +404,7 @@ VA - Mutant Area 2014 (2014) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Techno, Experi
 ```bash
 magnet:?xt=urn:btih:053B4EF74A09FB5CF2AAE0968DCC35F387B986FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +438,7 @@ Bear McCreary - Чиллерама / Chillerama: Zom-B Movie (2011) [AAC|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:438009884D240C5581FDCD61A2E503C890261185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E393777945D40D73E01E226E5A77D3BE85DD2FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +494,7 @@ Felt - Felt (1971) [FLAC|Lossless]<Rock, Blues Rock, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:F05BD01F5C2D29EC9A51F218FD0551347EC23DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +528,7 @@ Duke Ellington - Piano In The Foreground (1999) [FLAC|Lossless]<Jazz, Swing, Pia
 ```bash
 magnet:?xt=urn:btih:4FAA417F91D747986299202C9D03FAE6211E1209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +561,7 @@ Your Shapeless Beauty - My Swan Song (2003) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:DAEBD1EF934EB1F4403834164A842592E01C7032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28216C57EAC3F6087FEEBFB307B4408775C26AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:239F5286F7443944153D57E8E371FDA115FF71A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +645,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:B0FC90F253D0AA1280760A1F419157655CEA5295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +677,7 @@ VA - Sexy Trance #75 (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:E3AE5ED50A80021F4E59995A23C9982B49FF21E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +711,7 @@ Wicked Sensation - Adrenaline Rush (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5A99CFBEE4CE6D499709905791E28EB0FE7D0857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +745,7 @@ VA - Сплетение (2014) [MP3|320 кб/с]<Dark Folk, Neofolk, Atmospheric
 ```bash
 magnet:?xt=urn:btih:D971BCF890AEEE4ED347266B1B788DD48BAEECAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +778,7 @@ Slowdive - Just For A Day (1991) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:E7E0C688FB9BB14BE4D660EE164F2CFA199FA3E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -833,8 +808,7 @@ EPs:
 ```bash
 magnet:?xt=urn:btih:ECB208C85F5034EF0A9DCE132FA0BD135C1A6540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

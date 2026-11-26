@@ -19,8 +19,7 @@ Enchanted Kingdom 8: Master of Riddles / Зачарованное королев
 ```bash
 magnet:?xt=urn:btih:E5C91913CC7FD05231F37FAE30B4976AA86EE208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Overboard! (2021) [En] (1.3.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E06DD0651EB86D0483E6EF3E8C3861E95DD536A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E77E692CB23046CBE54C339A78659D536604B890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ BZ Напоминания и Дни Рождения v3.3.4 Mod by Alex.Strannik
 ```bash
 magnet:?xt=urn:btih:DF1AD5F5B32A7CDE3F6FD5DFCA8B91B55D89B8C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ SkyVPN – это бесплатный и безлимитный VPN прокс�
 ```bash
 magnet:?xt=urn:btih:02E9493E1F402976B7F0516DB4BB73CFFB61F3E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

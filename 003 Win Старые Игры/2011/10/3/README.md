@@ -19,8 +19,7 @@ Dino Crisis Дилогия [Ru] (RePack) 2000-2002 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D5B586906640A0D7CB5F7243FED01D354689A9A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ eM Client - мощный клиент электронной почты. Пом�
 ```bash
 magnet:?xt=urn:btih:A14F84E795EBBE3672C2241510C2A97D720189F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ApowerREC - это программа которая может записыва
 ```bash
 magnet:?xt=urn:btih:72B7515BA9E15A41A0D8BECA2F540ADFAEF2B779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

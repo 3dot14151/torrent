@@ -19,8 +19,7 @@ SuperBird является браузером с особым акцентом �
 ```bash
 magnet:?xt=urn:btih:80808D7313273D4DF932CFACD39A27D2F1004368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

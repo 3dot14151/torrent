@@ -19,8 +19,7 @@ EBOLA 3 - переносит вас в великую классику ужас�
 ```bash
 magnet:?xt=urn:btih:6EC6F0B2E13347B639B76DCDCEFAF4B86D123209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ South of the Circle - эмоциональная игра с глубоким м
 ```bash
 magnet:?xt=urn:btih:922E4DD117BAC7C84E34E28422C989DAAA48978C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 ```bash
 magnet:?xt=urn:btih:5F619E18D4B63B6831D02FE4714293500FD486E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

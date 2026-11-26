@@ -19,8 +19,7 @@ Hidden Object Secrets 2: The Whitefield Murder (2024) [En] (1.0) Unofficial [Col
 ```bash
 magnet:?xt=urn:btih:2A8081A142BB9E72BC1D71436442DD84A954F32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:5F3CA02C6264A17B1EE0E0D477AF261515D25033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fractals of Destiny погружает в захватывающее прикл�
 ```bash
 magnet:?xt=urn:btih:FEDC028858C60A4D85F6C71C7ABC0B6FFE819A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ White Day 2: The Flower That Tells Lies – первый эпизод прикл
 ```bash
 magnet:?xt=urn:btih:D87E041CAF687BFA5F348F2F1D77E921702A261A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Lost Village - это оригинальная смесь из иммерс�
 ```bash
 magnet:?xt=urn:btih:CD5E871FE4C76615D7494EFBE3893FCA51D0E4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Monsters Domain - фэнтезийная игра, сочетающая в се�
 ```bash
 magnet:?xt=urn:btih:047FF93D2B2D3D2AB60AC6B4982F85906323EDED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ NightFeed предлагает уникальную смесь экшена, в�
 ```bash
 magnet:?xt=urn:btih:B3F5BC2A05300A9EC6D6B795C86554E176B271B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Inkbound - это тактическая РПГ, в которой вы смож
 ```bash
 magnet:?xt=urn:btih:DEF639125BDC92B07A17DB01563FB40AA42FD044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ MythForce сочетает в себе все эти элементы в увл�
 ```bash
 magnet:?xt=urn:btih:B1622C261A33DDE24502A59DB0FC394C8603C628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Turbo Kid представляет собой метроидванию с дву
 ```bash
 magnet:?xt=urn:btih:DB93143A09B11DE563F60E1146B7C55D8296816F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ FIFA 16 – первая игра в серии FIFA, в которой учас
 ```bash
 magnet:?xt=urn:btih:F8741C4FB9A0ADE9C51DC04C086218152DB5506D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Nightmare House (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D156D6E7DFB1BA267308E10A4AF928214E48F916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ CD 2: Trap Master - инновационный геймплей, в которо
 ```bash
 magnet:?xt=urn:btih:F976EFCCDD64D881DAEC9D77E7696F862C1E4667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ White Day 2: The Flower That Tells Lies – первый эпизод прикл
 ```bash
 magnet:?xt=urn:btih:1E68FABD109C96FB6CB32C591C9DB8E08F233AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Voice Love on Air - это игра-симулятор знакомств BL, в
 ```bash
 magnet:?xt=urn:btih:8AD8FC8CD7663123BA891B0A3D64FEFCACCC0894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Children of the Sun бросает вас с головой в жестокую 
 ```bash
 magnet:?xt=urn:btih:772DF4DF07B479F775498BD8B65F33FC1025C4E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ A Divine Guide To Puzzle Solving бросает вас в мир богов в �
 ```bash
 magnet:?xt=urn:btih:7F19DE4753E925F44B0B93FF5826A10EC586DF42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

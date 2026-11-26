@@ -19,8 +19,7 @@ Last Knight (2014) [Multi] (1.0.9029.0) License PROPHET [Rogue Rider Edition]
 ```bash
 magnet:?xt=urn:btih:6478C8F1B20AE1264D83BFA5DEAC206613723A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Deadfall Adventures - это зубодробительный шутер от п
 ```bash
 magnet:?xt=urn:btih:752FC7BE2074A906B0A4373CCFE1CFDAEF681FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Multi] (1.0.6) License PROPHET [Ultimate H
 ```bash
 magnet:?xt=urn:btih:2F6326429CFD0CAECD97F6AA5327EFD21AC7DBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

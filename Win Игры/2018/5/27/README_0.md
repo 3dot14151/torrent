@@ -19,8 +19,7 @@ SimplePlanes (2015) [En] (1.7.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:B60942E8E2E89A2B877FEA01AB481EA61C92663F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Office Quest — это интересное приключение с ме�
 ```bash
 magnet:?xt=urn:btih:00132536DF925BD4548713021A980A0DE6DB9AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

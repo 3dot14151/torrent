@@ -19,8 +19,7 @@ English LinDuo HD v5.29.3 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CE4FD3E62EF695B4CB6922BC678EFA9EC631B713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

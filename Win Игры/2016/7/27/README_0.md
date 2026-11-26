@@ -19,8 +19,7 @@ Cursed Cases: Murder At The Maybard Estate (2016) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:FF79A6191B6054002BDA197669307F8008A63279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Legends 8: The Iron Mask (2016) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:1743C589F04BE2A6192A04A2140D0C5EA8BCFC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Parables 11: The Swan Princess And The Dire Tree (2016) [En] (1.0) Unoffici
 ```bash
 magnet:?xt=urn:btih:600B84927FDA89F8A68B81BCF87201FCE6DBBB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark Parables 10: Goldilocks and the Fallen Star / Темные Притчи 10:
 ```bash
 magnet:?xt=urn:btih:E653D32B8427B89A006DD2C80FCE53C9CF19E43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Haunted Legends 8: The Iron Mask / Легенды о призраках 8: Же�
 ```bash
 magnet:?xt=urn:btih:79317181DC08556DCE821C1A4C2E315069EFB0E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Terraria (2011) [Ru/Multi] (1.3.2.1) Repack NIK220V
 ```bash
 magnet:?xt=urn:btih:6F323764ED2688A19DA2C5FDB5A98D19A39827D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Minecraft: Story Mode предлагает отправиться в попул�
 ```bash
 magnet:?xt=urn:btih:3FE21C714D291ECF152E8418A3A7CC79F7FAE9C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

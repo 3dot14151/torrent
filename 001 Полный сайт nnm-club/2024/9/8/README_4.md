@@ -21,8 +21,7 @@ Bon Jovi - Forever (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:B5C37A893E80206734FF05C86CE577C287029B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (
 ```bash
 magnet:?xt=urn:btih:8A90CAE4A8E6651719CE3455DE7893EFF4FF29CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E74BAC15DE7C3F04352896E546679D0964E0565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA44749116888EFD63D3311D8ED4C4449541FA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - ARAB X (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 ```bash
 magnet:?xt=urn:btih:66DDAD55BC95EBF7B4AB5B0755CCB6E9F96F5DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:581CE4DD3C2263CAE43E8FBCEB8B22F5D3D6D382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:951F276F9C8B6FDBA149353F9FDBC5518942B87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Drummatix — сценическое имя Екатерины Бардыш, и�
 ```bash
 magnet:?xt=urn:btih:481DD81CB9FEDB027CF94824C48C4CEFDE7FD816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ T-RackS 6 - это новейшее поколение известного пр
 ```bash
 magnet:?xt=urn:btih:28CB2F60D465AE3203AB701AD3B98E2EA33D137E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C062C853A565438CA6F966145ED3DF37467F2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBA802E94994898DAC3D9118320ED1949767D5A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

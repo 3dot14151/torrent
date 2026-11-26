@@ -19,8 +19,7 @@ AirBrush: ИИ Фоторедактор v7.1.3 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C7B8A83444286A0E96A32C90B2F1F047AD0BD3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PhotoRoom v5.2.6 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7E20568B0C4604F9760D743AC75E33CB9F9847D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reface: Face Swap AI Generator v4.19.3 Mod by Mixroot [Multi]
 ```bash
 magnet:?xt=urn:btih:E9AE34B74BFA10B4F27F861EE80A144EB90CADA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

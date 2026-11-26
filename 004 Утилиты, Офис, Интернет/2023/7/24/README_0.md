@@ -19,8 +19,7 @@ BackUp Maker – простая программа для создания ре�
 ```bash
 magnet:?xt=urn:btih:863FAC07BEF8DC47AA507FA3B9204AC4CACCA101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OpenHashTab 3.0.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8E75416D9EC74DF73DC7D233404DC69C0F69CCBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

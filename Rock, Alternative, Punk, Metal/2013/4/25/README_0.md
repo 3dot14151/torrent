@@ -25,8 +25,7 @@ Vallendusk - Black Clouds Gathering (2013) [MP3|320 кб/с]<Atmospheric Black M
 ```bash
 magnet:?xt=urn:btih:77B416EFE52B3FD3E7CBDDB48E09A9BBD9D00898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Ola Podrida - Ghosts Go Blind (2013) [MP3|320 кб/с]<Rock/Indie Rock>
 ```bash
 magnet:?xt=urn:btih:742425522EADF507ED492C8163A3BB8F260814B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Dawn Landes - Discography 4CD (2005-2010) [MP3|192-288kbps]<Indie Rock, Singer/S
 ```bash
 magnet:?xt=urn:btih:286B323C15712AE2918AB5887389D91614B9AB04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ HIM - Tears On Tape (2013) [FLAC|Lossless]<Gothic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

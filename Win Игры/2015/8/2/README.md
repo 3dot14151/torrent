@@ -19,8 +19,7 @@ Invasion: Lost in Time (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:5E5594AC69AB73E6F3BE88B8A6A4A3B5F35DA200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maze: Subject 360 (2015) [En] Unofficial [Collector's Edition / Коллекци
 ```bash
 magnet:?xt=urn:btih:639FD7EA7A8D55F07D78972B0DAA97F68403D873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Final Cut: The True Escapade / Последний дубль. Настоящая
 ```bash
 magnet:?xt=urn:btih:E9A9128648D623E2BEC99FC7226B7C1697B09F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Westerado: Double Barreled - отличный вестерн с интересн
 ```bash
 magnet:?xt=urn:btih:C61AA3C8AC44AFA2B0657742C88E86142ABF78E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Aggression: Reign over Europe / Агрессия (2007) [Ru] (1.23) Repack R.G. 
 ```bash
 magnet:?xt=urn:btih:9AA2B7868545DD82A92BA7F8E652E8F1B554C096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

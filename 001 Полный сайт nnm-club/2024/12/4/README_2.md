@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7FBFDCB8D5CEBD9DEB59BBE9B53F61B368ED102C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Draw.io 25.0.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D5D9938B4C33A6227F65E62EC20139B05FB9CBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Denigrate - To the Goddess Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:2797D6526BB1A711EF333A751416772149E06713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F1FB7269376FE0FFC9D49F44398CDDFF4768480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Phineas Newborn, Jr. - Harlem Blues (1969) 1991, Original Jazz Classics [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:8D9E3F18C40CB12F659424545EF1550B82FBBEB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FD0FF00F13E3554559C867E1B0C2610D6633B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Teddy Wilson And His Trio - Mr. Wilson and Mr. Gershwin (1959) 1992, Sony [FLAC|
 ```bash
 magnet:?xt=urn:btih:7390182CEB8F1FE77FE52F9A318CD7DB24E06492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ The Green Pajamas - Just To This (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 ```bash
 magnet:?xt=urn:btih:1505429DED3B740FEE70A1D6D5DC71942BE0A779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ FM - Old Habits Die Hard (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:4102D9DD19C475E1C4955814258F5AAB9CB29EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Future Sound of Egypt Best of 2024 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:0973B313837E1283AB25A18A9779DAA194FBA1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - The Best Of Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:9AABC8C06D9AE2BF206771A983907261C6974EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F508BC6CD69C825EE16D359F81806DE5E2A7A8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ The Cherokee Spirit - Meditation (2011) [MP3|320 Kbps] <Native American, New Age
 ```bash
 magnet:?xt=urn:btih:B67B26F9DC492A23AD203ED7FB6F131F9E4F1266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Leather Strip - 4 Albums (2024) [MP3|320 Kbps] <EBM, Techno, Electro-Industrial>
 ```bash
 magnet:?xt=urn:btih:748CAE56D641F4B9668676636F14D86A7A56F908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ David Guetta - Live @ Château de Chambord, France (2024-06-29) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:7835F04EDC5BD2CB0AE46C78D18C7979FB25F450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CA4FD606289B95C137099EE9BF9C6A925BC6AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CCB828E9011009C716D7705216443287EA06FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 2 (2024) [MP3
 ```bash
 magnet:?xt=urn:btih:11EAF5F90D0E5867EE71FC409F35179AC1470319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76ACF1892614BC92BA73755CB2809DD10098E6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Slackers - Carts of Glory - это гоночная адвенчура, кото
 ```bash
 magnet:?xt=urn:btih:C9039E3C629E0504FBDA6AC79D8DDEC0E4E33E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Word of the Law: Death Mask / Слово закона: Маска смерти (
 ```bash
 magnet:?xt=urn:btih:4737AC7107324359FB599D52AE568D57EA5ACEB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VALORANT – это ваша глобальная соревновательна
 ```bash
 magnet:?xt=urn:btih:C13527A841AA58D5E510F89522014306573B4ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

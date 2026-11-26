@@ -22,8 +22,7 @@ Amnesia: The Dark Descent перенесёт игроков в таинстве�
 ```bash
 magnet:?xt=urn:btih:EAF6E08A435BEAFDE1C6FEDC05A4A6B111FE302F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

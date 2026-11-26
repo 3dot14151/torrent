@@ -19,8 +19,7 @@ Lost Souls: Enchanted Paintings Collector's Edition (L) [En] 2011
 ```bash
 magnet:?xt=urn:btih:E098315136FCA57EB1DE0026F8FD2F12178C8855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Expedition 5: The Uncharted Islands Collector’s Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:9CAD8FB5CE771847CF64A991B667C66F4E71910D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jewel Quest V: The Sleepless Star (P) [Ge] 2011
 ```bash
 magnet:?xt=urn:btih:B3DBFDF60E6A1D4D65C3A303553C241976A1BA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Written Legends: Nightmare At Sea / Сказания об ужасах моря 
 ```bash
 magnet:?xt=urn:btih:17E748B671DD2FDB422441511A93BCBAB7E38B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Evil Invasion - это аркадная стрелялка с элементам
 ```bash
 magnet:?xt=urn:btih:BE3C4CE5E31ACCFDF91F0E6A84D310AB7B6DEFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Crazy Chicken Pirates Portable (P) [En] 2006
 ```bash
 magnet:?xt=urn:btih:6AC27C58DE0AD61CEB02E84620B09D95A76DE0DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Dream Chronicles 5: The Book of Water СЕ / Загадки царства сн�
 ```bash
 magnet:?xt=urn:btih:81F730C49586441F2957CCDD1A976EEDAEBEB5B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Warriors Orochi [Ru] (RePack) 2008 | MOP030B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Operation Flashpoint: Red River [En] (RePack) 2011 | R.G. Incognito
 ```bash
 magnet:?xt=urn:btih:55ABF12833B3A14B1663565C795B3DB7D4D231EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

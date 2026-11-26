@@ -19,8 +19,7 @@ Archimedean Dynasty [Ru] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:80E454E96B0ACBFC1A53F31CFCC161D2347F404F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dragon Throne: The Battle of Red Cliffs / Империя Дракона (Суд�
 ```bash
 magnet:?xt=urn:btih:D0B605017E6E5F1BC8111039FB0529E5F1B1B9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9A00729177809230080CCF15380B0A15AEBD99C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ISO-образ диска, прилагающегося к учебнику. С�
 ```bash
 magnet:?xt=urn:btih:4A2036B6E6AD94E0A070C2E92C3F1FBB43354588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

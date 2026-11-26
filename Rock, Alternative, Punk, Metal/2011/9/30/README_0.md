@@ -28,8 +28,7 @@ Arida VorteX - Invisible Tension (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:A30F87E0F482CD4130C79621C1249FE97B93D8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:DD6C94A6CD629625F3B0EA0425BD52C5C17924E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Dead By April - Incomparable [Special Edition] (2011) [MP3|320 kbps]<Melodic Mod
 ```bash
 magnet:?xt=urn:btih:D121850ABBB07D56BE71B8080E9028B7F4C265E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Misfits - The Devil's Rain (2011) [MP3|320 kbps]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:EF0183B3EB36EA20EBEB7FD693B8E1B058B3E4C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Chickenfoot - Chickenfoot / Chickenfoot III (2009,2011) [APE/Flac|Lossless]<Hard
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Queen - The Platinum Collection: Red Special Edition (3CD Box, 2011) [UICY-75044
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

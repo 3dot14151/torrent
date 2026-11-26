@@ -19,8 +19,7 @@ DillyBall почти классический марбл платформер. �
 ```bash
 magnet:?xt=urn:btih:66A4DB3E9AC1B8E52E82630B2B20992A0F7F59EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Save Jesus (2016) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8C85469B5E59A3301BD0DC5BDB6D38650EAFD219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Wild Eternal – приключение от первого лица, рас
 ```bash
 magnet:?xt=urn:btih:15EA7B6D7204B7A2F5062706FEDC54F840748088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Asura» - игра, в которой вы будете играть за дем
 ```bash
 magnet:?xt=urn:btih:927C2624BCAC27759499D101CCD0A7FDEF9A4734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ On the Road - реалистичный симулятор грузовиков �
 ```bash
 magnet:?xt=urn:btih:0A695A6EF6C6E636922E48C86783E286E497CB41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Mr Shifty – хардкорный изометрический стелс-эк�
 ```bash
 magnet:?xt=urn:btih:73344E8C60EAF8745B07DF94A2A5351A5785CEAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Haydee (2016) [Ru/Multi] (1.09.1) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:1BA5EFAE8E88F4CB1490D16FB2044C31A74BAF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Moonfall это side-scrolling 2D action RPG в жанре Beat ’em up, офо
 ```bash
 magnet:?xt=urn:btih:6DE2903997458F979AED9DDA5ADE7E3B4CAD647B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

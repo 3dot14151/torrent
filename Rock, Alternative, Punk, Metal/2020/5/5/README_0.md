@@ -22,8 +22,7 @@ Lovedrug - Turning Into Something You Were Never Meant To Be (2020) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:0BFA1A01C8F599729BCA48095CB282BD714608E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lovedrug - Turning Into Something You Were Never Meant To Be (2020) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:EAB71FB1882F6FF2137936185BFD4908537BF1FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Fratellis - Half Drunk Under a Full Moon (2020) [MP3|320 Kbps] <Indie Rock, 
 ```bash
 magnet:?xt=urn:btih:15E40EFC66742C0DCD77708E7785FBE94699923A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Fratellis - Half Drunk Under a Full Moon (2020) [FLAC|Lossless|tracks] <Indi
 ```bash
 magnet:?xt=urn:btih:F2207C7353DD2256EBDFA2B2E204C1803AD029C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Aether Realm (Æther Realm) - Redneck Vikings from Hell (2020) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:F07BE22804C49879B01073D6392FEEF283B7B697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:912EC30272534D7AD21697552D8888C3F2F84190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Black Swan - Shake The World (Japanese Edition) (2020) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:349DBC7A11BDA7729D707EC31806AA25379BC70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

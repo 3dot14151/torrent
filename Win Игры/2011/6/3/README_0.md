@@ -19,8 +19,7 @@ Bilbo: Four Corners of the World / Бильбо. В четырех уголка�
 ```bash
 magnet:?xt=urn:btih:BDDD1885B352DEE67F2D06A3F11AA5A71053D7B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Agency of Anomalies: Mystic Hospital Collector's Edition / Агентств�
 ```bash
 magnet:?xt=urn:btih:F57D193149A2E11414548CDE463A3863FF50EA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Island Tribe 2 / За Семью Морями 2 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:1BAD64DC5D683938B08C2FA2C34BF64C807C3E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Strong
 ```bash
 magnet:?xt=urn:btih:11B562C8B7DB32E569BBCE41BBD5EEB7CD8CA70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Peace Craft 3 / Полцарства за принцессу 3 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:06B15374F37413914260F4E827D33B33FB164516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ World of Subways - серия из наиболее интересных мар�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

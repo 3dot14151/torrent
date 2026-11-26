@@ -19,8 +19,7 @@ SIP клиент для Android. Не теряет связь с серверо�
 ```bash
 magnet:?xt=urn:btih:FA74510FEC81DD607375A9CE74B8E78641932550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

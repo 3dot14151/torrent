@@ -19,8 +19,7 @@ The Artisan of Glimmith - это уютная и медитативная гол
 ```bash
 magnet:?xt=urn:btih:58FF3BA61C8D8C807EA77FBE8CAE70F5F3BE14B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mindseye (2025) [Ru/Multi] (6508009/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:48ACE38B17B53C0FC54F5A9C132A4FE2D093F640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ I Am Jesus Christ - это повествовательный опыт от пе
 ```bash
 magnet:?xt=urn:btih:0C5BD4B4D97E5CEF51DA56D59AA5A185BB1828E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Headquarters: Cold War - это динамическая пошаговая ст
 ```bash
 magnet:?xt=urn:btih:EF86D27B0AB40BC867DEAC8802B314BD34013AAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ No Vacation for an Executioner - хоррор-экшен RPG в стиле ре�
 ```bash
 magnet:?xt=urn:btih:33B38028AB44A57B2EF96213EDAAA87A5190873A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Elemental: Reforged (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:964D6A786AB8557D39550C1D2E07652649BF1E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sherman Commander (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F471400E1EFDCDB431474E5EF8E767B1E47DF710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

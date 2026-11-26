@@ -21,8 +21,7 @@ New Arcades - Proximity (2021) [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
 ```bash
 magnet:?xt=urn:btih:4D414187B16522218588975CA5F7E9801ADEFFC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:80B86A1C3480EF02CACF1E996B1787901293187D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ ScreenFlow - создаем свои скринкасты
 ```bash
 magnet:?xt=urn:btih:977725E39A5660C5B2AC062F3F58F0A84CA0A02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:7339DFCB7FA4BA7ED872FF1F55DF7F31EE9C1AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:911D41A6AF45A8EEA5EA312D1C52F095BA55D8F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3F05FF8A513C57B5D19F2E6E2AF82E4F3416526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Migos - Culture III (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap>
 ```bash
 magnet:?xt=urn:btih:079ADC31656A941EAF2EB852C03A015B7FE4664C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C329356DCAD7DCA96341748E6FF476E2AB488C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ VA - Venti Compilation 7 (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Di
 ```bash
 magnet:?xt=urn:btih:F32782E8577484666B5CCB398E7272D059C5F318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ The Drop — это плагин аналогового резонансного
 ```bash
 magnet:?xt=urn:btih:340B1CD6204295B1DBCB3839BBD1E2F93DEBA131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ ON1 Photo RAW включает в себя ключевые обновления
 ```bash
 magnet:?xt=urn:btih:29232AA048760B72F268F1425AA1F7F12686EC7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:975E6D2461115436DD4E336A649EB54A7FA3892E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Yelawolf x DJ Muggs - Mile Zero (Mile 0) (2021) [FLAC|Lossless|tracks + .cue] <H
 ```bash
 magnet:?xt=urn:btih:7D0C43B479FA729AB83CDC6B53CB4C87653E172F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:883BA4482EC7792E18C1B0585296194C3A2DF9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B3DB9B5D7FD7998A67710BCC076641C2C319123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ Exif Editor - ваше предпочтительное приложение д�
 ```bash
 magnet:?xt=urn:btih:EB59DB7F3EEE117E82C5F253DA42064E8812B215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ Aesop Rock x Blockhead - Garbology (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop
 ```bash
 magnet:?xt=urn:btih:BF8510A30974940ACC6171FBBB624FDDCA0C7310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ Rhinoceros 7 v7.14 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8881DA7DFB39695DAA6D5AFEE5938FCB24E2C769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A1E5AB38249A079F00BB1865196D3DD8AF4196F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:72930F09429F67E9EEED000B5EDBC63F58A65364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:883F6EC0BA0EDF7FAF3F40FA54CEEBCB20858CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 5 (2021) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:6014EBE437EEA5881161671051604E3A44ECC63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:D2E13BC4E7AC483C47E9E1685FD8F625C778F0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ Gemini поможет быстро найти и удалить одинаков
 ```bash
 magnet:?xt=urn:btih:8DE3E1433ACCFAC4868A40AA6E4219C0A7E55F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ Ennio Morricone - Ennio Morricone Remixes (2021 Remastered Version) (2021) [AAC|
 ```bash
 magnet:?xt=urn:btih:00293E0C1EEC0503227B85F54F45F3F928F84894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48C9FD47169205C61BCC9D79FE6886142ED05620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

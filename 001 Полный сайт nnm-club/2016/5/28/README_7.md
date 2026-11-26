@@ -21,8 +21,7 @@ The Alan Parsons Project - Discography (1976-2016) 69 Albums [MP3|192-320 кб/�
 ```bash
 magnet:?xt=urn:btih:F7908F27E37068E8260724486268900C507BD158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Mordheim: City of the Damned – это первая видеоигра, сде�
 ```bash
 magnet:?xt=urn:btih:9A5FD27F5F039F44F1D5C26AB0D5BFE88E7EFA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6B39D1EB14DC20B5BE2D6D71BEAA7984A0E5B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ ESET NOD32 Antivirus 9.0.381.0 Final [En]
 ```bash
 magnet:?xt=urn:btih:0D95204F852F52D407A9A5EDD897BC0723327D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Kaspersky Internet Security 2016 - комплексный Антивирус К�
 ```bash
 magnet:?xt=urn:btih:F7EEAF5F8D2EBC0DFE21A70A31AA65CE1C36CCF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBCC57716D8DAF7BF46770DF5085FDFE4D636C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ ITVDN | Видео курс Выполнение домашнего задани
 ```bash
 magnet:?xt=urn:btih:D4D3C9374C4A5CAA418050FEAA8189F42CB136EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51423012FBA3E75757F038A4BC346340F1A4FD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BB14D42AFB16CE6B7A1D9FF299AE0342973D534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Adobe Illustrator CC 2015.2.1 19.2.1 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3E3976B7191C8B56AA2F6A4FAD57E14094F8B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Microsoft Windows 10 (Education / Pro) 10.0.10586 Version 1511 (Updated Apr 2016
 ```bash
 magnet:?xt=urn:btih:0ADA6AE54E49574FF976D97302EC4D96BA9B9409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD06C83321E0A631C3A42AF6EF1E3C7A337895D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Jackal (2016) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A3E72B454AF2E44637E8B88753836EF620DA108E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C18B26E752B5202B746A8DD8467CCE57107EBF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:AB028B436C065F0E226C3711D9EF0EC6F8FFAA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95A6DADE09DC18B49C8131B1380C607321702B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

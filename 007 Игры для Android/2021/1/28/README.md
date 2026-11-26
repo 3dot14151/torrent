@@ -22,8 +22,7 @@ Brain Test 2: Хитрые рассказы v0.155 [Ru/Multi] (обновляе�
 ```bash
 magnet:?xt=urn:btih:79D607D6B2272CD6CF0B77D56B9D25510A434B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

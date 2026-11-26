@@ -27,8 +27,7 @@ VA - Baeaeaerenstark!!! Hits 2013 Die Erste (3CD) (2012) [MP3|320 кб/с]<Dance
 ```bash
 magnet:?xt=urn:btih:F5C226ACDF66E16F08352A85D33C3A3A5F66D401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBD44F3FF5859D555DE9ABA0832206A5DE72078A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A1D8F513FB2689DD72D4F7005330935F916FBB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ VA - Creative Electro Box 1 (2012) [MP3|320 кб/с]<House/Electro House/Electro
 ```bash
 magnet:?xt=urn:btih:AA3C4BA38220A45AEF3989EEAC931B50C7D796EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ VA - Бум года новогодний. Выпуск 2 (2012) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:D0CE75E44593647CFC243B4C0133EA03FD8FDD1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Doobie Brothers - Stampede (1975) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Classic Ro
 ```bash
 magnet:?xt=urn:btih:0287C104047B946D9BDC416AE5980BF0688EF310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ VA - Pure Trance Emotions (2012) [MP3|320 кб/с]<Trance, Progressive Trance, V
 ```bash
 magnet:?xt=urn:btih:2A3C39835694E25DC0B21699CED7BF9863E2F46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ Sexy Women Wallpapers (09.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:24CC6B04C250CF374689D2C3E720047C6476A545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Conrad Herwig - A Voice Trough The Door (2012) [FLAC|Lossless]<Post-Bop, Contemp
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC05B4813BC5AC43103C587C8D91211A9437D83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6510FA0056EF39B4FBB2B53CDDE8E54544B1715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ Best HD Wallpapers Pack (13.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:CA3181D679DAEA568DDF38BEBADB9528D8AA0274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ Thought Machine - Thought Machine (2012) [MP3|320 кб/с]<	Industrial, Cyber Me
 ```bash
 magnet:?xt=urn:btih:3CF4FCB44BC3B812D1D74043412644FE2744D14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ Chromium - мощный, но простой в использовании бр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C06896CA1F3B57D9BA40EF2FE41C458435AE5ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +487,7 @@ VA - Winter Hit-Mix зарубежный (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:032234FAA6EBF7329F8BB052CEDD42AEC6BCBCE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ Red Moon Architect - Concealed Silence (2012) [FLAC|Lossless]<Melodic Doom Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBAB8BD967A5156C03ABD8DC89772171E9B6FBB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ D'Ercole - Dreams Of The Heart (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AC75199032E280A042915D6A1A6EC84A00BDA2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ Cojones - Bend To Transcend (2012) [MP3|320 кб/с]<Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:4B157AFE5D1189BFC0DBF6A574A4A51A25DB3B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +639,7 @@ VA - Straight  Up Dubstep Volume 6 (2012)
 ```bash
 magnet:?xt=urn:btih:D84AAACAF0FD4EBD21A5688A5BB23CAF7ACBDEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EE5AC3A38ECCBC9C8F37A5C157F2F8B90A1AE5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +689,7 @@ Creative Wallpapers (10.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:EBA0DB557EE3AAC73F065F8635496E21F52FD516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +723,7 @@ VA - The Best of Disco Fox (2CD) (2012) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:1252CF5EFE19E4B7AECE118065D1B11FBFE909C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE454062BA592EACC9C30250FF209FBF26E3F7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

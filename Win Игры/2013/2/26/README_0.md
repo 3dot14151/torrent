@@ -19,8 +19,7 @@ Lake House: Children of Silence / Дом у озера: Дети тишины [E
 ```bash
 magnet:?xt=urn:btih:56A4FE42E0D9CE7AA64DCA474886E311BFA409DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mountain Trap: The Manor of Memories / Ловушка в горах: Помес�
 ```bash
 magnet:?xt=urn:btih:9C573A60B3FE72587CBE01366D5B5B6EB17A79BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Brutal Legend - это приключенческий экшн объединя�
 ```bash
 magnet:?xt=urn:btih:F3A5288D51DA266CF3DB9653494B2267E552110B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

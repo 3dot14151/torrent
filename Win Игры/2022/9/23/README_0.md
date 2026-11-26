@@ -19,8 +19,7 @@ City Legends 2: Trapped in Mirror / Городские легенды 2: Узн�
 ```bash
 magnet:?xt=urn:btih:BF2E5D3D3CEB912B84F850B0DFC682CDE77EE6A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ghost 1.0 - научно-фантастический экшен-платфор�
 ```bash
 magnet:?xt=urn:btih:78DC1A3C0DA65D9871DD8BDD68C85BF655F6CE76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

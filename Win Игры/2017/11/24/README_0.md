@@ -19,8 +19,7 @@ Fear For Sale 11: The Curse of Whitefall / Страх на продажу 11: П
 ```bash
 magnet:?xt=urn:btih:916AD615BB4764A7061C628E5FA4E5A718E6E1CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

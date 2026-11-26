@@ -19,8 +19,7 @@ Google Таблицы – прекрасный редактор таблиц, п
 ```bash
 magnet:?xt=urn:btih:58074A79ED3AEAA7DB4777FDA7F5D087A096BCFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5327BCC01F97CA592E94960654BE52D5ABAE26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

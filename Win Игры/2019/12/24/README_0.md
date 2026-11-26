@@ -19,8 +19,7 @@ League of Light 7: Growing Threat / Лига Света 7: Растущая уг
 ```bash
 magnet:?xt=urn:btih:D12BEAABFDC386672AEF3032F073E17B6945AD0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chimeras 10: The Price of Greed / Химеры 10. Цена алчности (20
 ```bash
 magnet:?xt=urn:btih:35003BD14B52CB63C60BF50D7F61ED2CFB6A86A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

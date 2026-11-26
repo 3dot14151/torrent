@@ -22,8 +22,7 @@ A4 Wake Me(   Читать дальше...   )Жанр: Hard Rock, Classic Rock�
 ```bash
 magnet:?xt=urn:btih:23F2395F15CECEDD3EC5C0D21159D9AC9E6F83E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Haggard — немецкий музыкальный проект, исполня
 ```bash
 magnet:?xt=urn:btih:797F95D5B116B6390A84A57163CE1955E99D3179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

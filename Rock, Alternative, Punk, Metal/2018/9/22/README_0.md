@@ -22,8 +22,7 @@ Caspian - Tertia (2009) [FLAC|Lossless|tracks + .cue] <Rock, Post Rock>
 ```bash
 magnet:?xt=urn:btih:3364F45D0825A0EE23F80973B30B751FFBD883DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mark Rowen - Radiance (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:8B63451328CB953E38639DF363FD947FC9FDCC72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nico’s Alchemy - Fundamental Darkness (2007) [FLAC|Lossless|image + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:F0C53EA8F755E6E1FFAF29482CB85244934623FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Billy Gibbons - The Big Bad Blues (2018) Concord Records [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:1227AFFE30E6E9CF9C6597270F5F84B93608D676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Uriah Heep - Living the Dream (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock, C
 ```bash
 magnet:?xt=urn:btih:1F0C55F844FECA1F20A97B0E9E6F731DAD65AA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

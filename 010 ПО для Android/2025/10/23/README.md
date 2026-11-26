@@ -21,8 +21,7 @@ InviZible Pro сочетает в себе сильные стороны Tor, DN
 ```bash
 magnet:?xt=urn:btih:D9AEB6752E4B00B5B05E889E098BB9A8C4F96707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ MultiTimer - это простое и универсальное таймер-п
 ```bash
 magnet:?xt=urn:btih:C420AAE268912F1A915686C37033F043ED2888FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F384DAAA222AFC5D3742893C0A5024FEFBDC3400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

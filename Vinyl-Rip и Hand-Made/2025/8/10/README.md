@@ -23,8 +23,7 @@ Peter Bjärgö - шведский музыкант, вокалист.
 ```bash
 magnet:?xt=urn:btih:BFB643FCF6AC24ADC72AC9FA213B66495EDAA7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ A4 Crawling King Chaos(   Читать дальше...   )Жанр: Symphonic Bl
 ```bash
 magnet:?xt=urn:btih:F031FE3B26D502E91ED370A97AECEE2E56AA4B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Motograter — американская метал-группа, образов�
 ```bash
 magnet:?xt=urn:btih:7E8FAE7F357EBC168F1DF10B2D5702C6196A815F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

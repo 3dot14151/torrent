@@ -19,8 +19,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:6DEEC89AEC3E0839270C15AC197B2D6E75CD6F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:593CB2174C96C8397E408F650B4F62AE68E5D888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gedonia (2022) [Ru/En] (1.48b) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:0E2E44855DC22C7FFDAA3C717965E4D1C1757723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

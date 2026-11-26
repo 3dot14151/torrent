@@ -19,8 +19,7 @@ AV Linux 2016 (Мультимедийная рабочая станция на �
 ```bash
 magnet:?xt=urn:btih:E07CF6CE763A8D35DD1F3B16E8F2B9896F5C48F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

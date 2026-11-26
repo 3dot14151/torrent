@@ -19,8 +19,7 @@ Plague M.D. - Вам предстоит превратиться из сумас
 ```bash
 magnet:?xt=urn:btih:C360DA977ACB73DB858D851D02CEEF7946C8A6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

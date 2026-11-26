@@ -19,8 +19,7 @@ Hammer of the Gods (1994) [Ru/En] (1.0.2035) License
 ```bash
 magnet:?xt=urn:btih:5688ED965B6AAE4741F275D3ED9707EC85CFDBAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

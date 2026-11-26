@@ -22,8 +22,7 @@ Guilt Trip - Armour Of Angels (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Meta
 ```bash
 magnet:?xt=urn:btih:A2CE325EC0BC33AA6FBFF24710233929834DFAE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Monolord - Neverending (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner/Doom M
 ```bash
 magnet:?xt=urn:btih:9FD2B69FC1689AFDFB334D60A78B9D99E4C76C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Alias - Alias (1990 - Remastered 2022) [FLAC|Lossless|tracks] <Melodic Hard Rock
 ```bash
 magnet:?xt=urn:btih:58E607E7448C4169874A887FCD21396A6F71CDEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Degrees of Leverage - Malice & Manipulation (2026) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:D76FDBEFB03145076433E30BE71F24A9583283EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:28BFF6046F8CF09FC9A1916394AF15B75A9FA74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Trollfest - Norwegian Fairytales (2019) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:ABAC3BFF50EFA18148B3AFAE75404391E8A19733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Secrets of Great Queens 2: Regicide (2018) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:5C615B2E1182671437A4D85AF44CBFD743A938C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:177D60EF60BC675D7E769F1C69FB1FCB57FCD22A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ CD2 - 01:09:33
 ```bash
 magnet:?xt=urn:btih:7369B744D1E60F4FD39ADA18C179BA1D4D8AA920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ VA - New Music Releases Week 3 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Trance>
 ```bash
 magnet:?xt=urn:btih:8AD7EF0A2CF1358F99380685BDEE2EF20CF18AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Apowersoft ApowerRec - программа для захвата и записи 
 ```bash
 magnet:?xt=urn:btih:6C8752BE0C80652C4C8F08A068F3CD1A31C68FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Photo Supreme - вспомогательная программа для вла�
 ```bash
 magnet:?xt=urn:btih:DA34F5C53D6671F16EE24F84A6B7C8410AB764CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Venise - The Best Disco In The City (1978) LP [MP3|320 Kbps] <Electronic, Funk S
 ```bash
 magnet:?xt=urn:btih:06E858EC74B667E8115B75AE8B0C5F9E598816EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Bilskirnir - In Solitary Silence (2018) [FLAC|Lossless|tracks + .cue] <Black Met
 ```bash
 magnet:?xt=urn:btih:002A424EBD368E19A48345EC981E2D2394AE5FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Rival Sons - Feral Roots (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:5EC73ED8C63419FF020ED478F9DAD549AF971E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Cecile Monique - Genesis (2018) [MP3|320 Kbps] <Gothic Rock, Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:611AD2735D8B78BC64E132DA620B5108FC83851E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ Meta поможет Вам управлять постоянно растуще�
 ```bash
 magnet:?xt=urn:btih:4A3C8D35A55CDC93EEF3B45BC548B8F7D646B2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90C53C7275EB6AE18734DE62534CE0897CB37C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ VA - Record Super Chart 571 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:6D4D7105B1DE2146706067A08422F18BA6DF059F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Eugene Carnan - Eugene Carnan (1972) Reissue, 2011, Shadoks Music [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:D8AB65A599690C44F2B94968D78B0F359246916E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ Barnaby Finch - Digital Madness (1986) 2014, Warner [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:49A1352B983AD050DFAD562EC5E878A593824C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Crypton - 3 Singles (1981-1984) 7" [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:89C400A1C95DCA04FE05D144506FE01F4B82DBD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ Fear For Sale 12: Tiny Terrors (2018) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:92CD84BEED92D4EA613D781F8AF056CDC20BB740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C33A74B7982A6E07794AA4C2B9ADEF5AC5A08750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8F730800D354912D875BEF48359158CD73DC7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ WidesMob Montage должен быть отличным производител
 ```bash
 magnet:?xt=urn:btih:E36969570AE2D154555E3B41FE7E345BED903DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ Pixelmator Pro предлагает широкий спектр професси
 ```bash
 magnet:?xt=urn:btih:6C65D87E206DE73D5360297F6BE74AF91BE39F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D15EE3A7AF2670E104C3AE29122981F6027F565D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ Alcove - Universal Implication (1994) Visible Records [FLAC|Lossless|tracks+.cue
 ```bash
 magnet:?xt=urn:btih:FEDCFDB2CD47964378E38AA15CE74F5571E6AAF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ Mp3tag предоставляет пользователям мощный и п�
 ```bash
 magnet:?xt=urn:btih:670C7A1B7E50DCAF1117D8C46A9BF73B96C42A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Last Days / Последние Дни (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:CC6387CB5940A9E0DE933757A839D7E5BEF22281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mary Knots: Garden Wedding (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:6D96C27B6D13E584546388E44D8378F3043D992D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cadenza 2 : The Kiss of Death / Каденция 2: Поцелуй смерти 
 ```bash
 magnet:?xt=urn:btih:61251BFE81788CF181E6A75A46D735FA2E7B7C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

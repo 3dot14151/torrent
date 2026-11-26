@@ -19,8 +19,7 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:2D8B6B87986CD23B3B1F0CB7EF2CCED74B47B2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WARRIORS OROCHI 4 — продолжение серии захватывающи
 ```bash
 magnet:?xt=urn:btih:DDDEF4803A302F93127680F887D4CE94261C569A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ The Sliding Tube - Rainy City (2014) [MP3|320 кб/с]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:FFC45E241C8B1BB31F2014433F65A2457DDA6641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:744C45463253191CB29062CB79E57E0DDE88C3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Foster the People - Supermodel (2014) [MP3|320 кб/с]<Alternative Rock, Indie 
 ```bash
 magnet:?xt=urn:btih:56B44B85AEFE9BCF865E4A7A7B199DD3A8C331CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Heart - Magazine (1978) Remaster, Hybrid SACD /2014, Audio Fidelity/ [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:B58D5882B83A9281060D1EF95C98BBA0103721D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Nine Lashes — американская группа, образованная 
 ```bash
 magnet:?xt=urn:btih:5B9A6CD257FBEAB01B95671D4A4E8A3E7367FD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Online access- FREE Downloadable worksheets (   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:940E9536FAA056F260E75F1E5E103DD034DF2C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Each section covers a different aspect of teaching and offers a selection of 10�
 ```bash
 magnet:?xt=urn:btih:C9C036D1F5055520696401D55BC33976D21B59BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ The book features a wide variety of reading, writing, speaking and listening gam
 ```bash
 magnet:?xt=urn:btih:5997703CF08B402DED99BA614728EE10A4947FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

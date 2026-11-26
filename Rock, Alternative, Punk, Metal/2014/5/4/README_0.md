@@ -28,8 +28,7 @@ Wings - At the Speed of Sound (1976) Reissue /1989, EMI Records/ [APE|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ The Beatles - 12 Albums (1963-1970) Dr. Ebbetts Blue Box Remasters /2005-2006, D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

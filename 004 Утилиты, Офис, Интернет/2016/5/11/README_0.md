@@ -19,8 +19,7 @@ ABBYY FineReader 12 – программа для распознавания т�
 ```bash
 magnet:?xt=urn:btih:8E88EDD1EDAEC8661405FBDAEEFCD095C2C5DEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

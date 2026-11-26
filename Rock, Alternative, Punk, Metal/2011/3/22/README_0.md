@@ -28,8 +28,7 @@ Papa's Band - Nostalgie AVE Future (2010) [MP3|320 kbps]<Neoclassic Metal>
 ```bash
 magnet:?xt=urn:btih:E40E5E24D9478F3AB676DD8AEE1272DADEE6C157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Cake - Discography (1994..2011) [MP3|320 kbps]<Post-Rock, Indie Rock, Indie Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:795F3046201F330F2FABB5B6E99ACB7DCFF114B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

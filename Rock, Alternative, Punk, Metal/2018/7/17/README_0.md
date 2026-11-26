@@ -22,8 +22,7 @@ John Morgan - Kaleidoscope (1971) Reissue, 2013, Prog Temple [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:60134F6F4F50061724A8C12072166DF67716CCE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Hicksville Bombers - Danger Road (2018) [MP3|320 Kbps] <Rockabilly>
 ```bash
 magnet:?xt=urn:btih:9E4103059B6BEB52699B3092A753B1AE48E1C823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Megadeth - Cryptic Writings (1997) [FLAC|Lossless|tracks] <Heavy Metal, Thrash M
 ```bash
 magnet:?xt=urn:btih:8F8331151951A7118F0A8BF1FE5123B2DA14532A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

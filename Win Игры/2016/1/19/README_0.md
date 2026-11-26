@@ -19,8 +19,7 @@ Gemini: Heroes Reborn - это экшен-приключение от перво
 ```bash
 magnet:?xt=urn:btih:DBCCDD93410ACEBACDCD6D510EE293851A79D5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

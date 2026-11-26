@@ -20,8 +20,7 @@ From diamonds and sapphires to emeralds and obsidian, Gem profiles all the key g
 ```bash
 magnet:?xt=urn:btih:0AC617B7154E4DD620113BA3AA9B324B92B60CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Do you plan to take TOEFL or IELTS but are not ready for the challenge? Do you n
 ```bash
 magnet:?xt=urn:btih:1460D252D7EF4FC1BC52A32B0769F526191BAD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Combining a clear, practical and accessible style with a methodical and thorough
 ```bash
 magnet:?xt=urn:btih:EA9C8CC2066C19D493740E27E103A99217953C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

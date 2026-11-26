@@ -28,8 +28,7 @@ EkoTren - The Dead of Night (2011) [FLAC|Lossless]<Metalcore / Nu-Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Night Songs - Best Of Rock & Metal Ballads (2010) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:71A2CD5A30559731EFE902354D3DEDB99AB87306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

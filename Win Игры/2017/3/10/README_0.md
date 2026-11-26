@@ -19,8 +19,7 @@ Gremlins vs Automatons – это автономная версия карточ
 ```bash
 magnet:?xt=urn:btih:D17B561C5AD766B81A019764D3D1F61762442E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MadOut BIG City (2017) [Ru/En] (24.02.2017) Repack Andrxaxa
 ```bash
 magnet:?xt=urn:btih:2842B932878F5D22DEFB079BDF875CD0E700640E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

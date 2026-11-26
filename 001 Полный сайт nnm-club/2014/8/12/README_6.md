@@ -21,8 +21,7 @@ Ave - Control (2014) [MP3|320 кб/с]<Black Metal, Сrust Punk, Sludge>
 ```bash
 magnet:?xt=urn:btih:7B910B646A1FED88E9C85E9CD50F6D24828CFAB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35A804A20CB81F65CAC81FCEE5B1339446A6ED6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ The Dowling Poole - Bleak Strategies (2014) [MP3|320 кб/с]<Indie Rock, Psyche
 ```bash
 magnet:?xt=urn:btih:8AC24605861691707B0F907773E933BCA011954C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Fedde Le Grand - Twisted (Eptic Remix) (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:6E4B61F1957E6DAB1F2A0C0F6B267756DAB3CCB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Xenofish - Datastasis (2014) [MP3|320 кб/с]<Drum'n'Bass, Neurofunk>
 ```bash
 magnet:?xt=urn:btih:E094A44B0BC5A715CAE39FDE94A936223BFB6F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7D0673803AF5E5730CF2624CC4E0D3E43F45B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Sidney Bechet - Runnin' Wild (1998) [FLAC|Lossless]<Jazz, New Orleans Jazz, Trad
 ```bash
 magnet:?xt=urn:btih:8CE85356A88C6F65AA13F9005B2C94DC8404E1F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ VA - Dj Compressor - Best 2014 Part 2 (2014) [MP3|320 кб/с]<House, Club, Danc
 ```bash
 magnet:?xt=urn:btih:55FD2FC8AC121B07F1F96A144C775C15F91BA4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11A279B31E9EBA2CA2693CB8C0C74E5ECA86CD9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Luna - Ashes to Ashes (2014) [MP3|320 кб/с]<Symphonic Funeral Doom/Death Meta
 ```bash
 magnet:?xt=urn:btih:06C131F2416A5F7F27CE8FA0C3C38FDBBC516D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:361BE7F1BFEB95FB1409BFF4C0FC42B650157D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ Duke Ellington Orchestra - Harlem (1964) /1985, Pablo Records/ [FLAC|Lossless]<J
 ```bash
 magnet:?xt=urn:btih:A86AA87D77B0C886AC2027C174F1D773F9A8A4D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ Stealth Bastard Deluxe - OST (2012) [MP3|320 кб/с]<Soundtrack, Trance, Chillo
 ```bash
 magnet:?xt=urn:btih:78BE20B6A2B93684F18F24AEB36268AA3E944114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ Rock-H / Рокаш - Білий динь (2014) [MP3|320 кб/с]<Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:4307604ED848789B409698F7FE5E928B4ADE1E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF614F5D4A70B91BE283D5718754A7D754DC444B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ VA - Paul Oakenfold DJ Box: August (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:E35EC3565B08A1EA451D46E0EA3350B8CA95363E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ VA - Secret Dreams of Lounge 2 (2014) [MP3|320 кб/с]<Lounge, Downtempo, Chill
 ```bash
 magnet:?xt=urn:btih:D5354390B2B2A14AC36ABE2FF577DA12E2E7C81E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB9AC68D236465B0118D9F9E3F6754567864D317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ Rainbow Crab - 6 альбомов (2012-2014) [MP3|320 кб/с]<Fusion, Jazz-Roc
 ```bash
 magnet:?xt=urn:btih:75B2D98C0621F20B295DBA0EFB5C3BEAF9A6A2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ Adobe AIR включает в себя возможность создания �
 ```bash
 magnet:?xt=urn:btih:3FDBE50AFA55C6EA74B9CA8126FFE688D537825C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +659,7 @@ Fantasia - Flamenco Magnifico Live! (1997) [MP3|320 кб/с]<Instrumental, Flame
 ```bash
 magnet:?xt=urn:btih:9DAB0D9E7351BFF69238C4556C5F81CDA9AE47FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ Danny Elfman - Франкенвини / Frankenweenie (2012) [AAC|WEB-DL|256 к�
 ```bash
 magnet:?xt=urn:btih:84FB001E8648AAF46F5325208AC8CFA9E9C0D529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ VA - 100 Dance 2014 Vol.6 (2014) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:F5A67388C5B99F29B3F15985C309795542F37B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

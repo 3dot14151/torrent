@@ -19,8 +19,7 @@ uTorrent 3.5.5 Build 46552 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7A63E025919CD8E04255A54A6B04D7CCAD770B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PerigeeCopy 1.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F57A41AE45276DDAD111B0FE1E1D615688BF0A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

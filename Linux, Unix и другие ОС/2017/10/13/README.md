@@ -19,8 +19,7 @@ KDE neon 5.11 (20171011) [x86-64] 6xDVD
 ```bash
 magnet:?xt=urn:btih:221B2FA27BB7B8667C2757E8CF06C8AC345B90AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

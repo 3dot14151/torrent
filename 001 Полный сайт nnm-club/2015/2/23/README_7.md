@@ -23,8 +23,7 @@ Trevor Watts Moire Music Drum Orchestra - A Wider Embrace (1994) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:45C2B4EB95F752DE74A9BD02A55BB6DE8A654CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Tomash Kofa - IL2 (2015) [MP3|192 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:5DF06687F26A066ADE1EE412DD2F83491950840B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Phoenix Again - Look Out (2014) [FLAC|Lossless]<Neo Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:AA6F1D0DDCB3D478C1012A7BF1E1F3A0891A1D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Phoenix Again - Look Out (2014) [MP3|320 кб/с]<Neo Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F7ACD5312597B07A63E028309D24BEE3F52C8845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Red — американская рок-группа из Нашвилла, шт
 ```bash
 magnet:?xt=urn:btih:AB42E673A3ED48B3F8A0BA4FB82874BB52AFBF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Nexus And Tight - Under The Stars (2015) [MP3|320 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:D8EB315626411EEAF9E05051ADB7491D9FD84DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Lee Morgan - The Sixth Sense (2014) [FLAC|Lossless]<Jazz, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:DBA051588C8189CDEA765B4CCF07DDE3CF74B804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Forest Silence - 3 Демо, 2 Альбома (2006-2010) [MP3|192-320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:597D51CC1892DE231F9BDEE1C85EE6413D884362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - Best Relaxing Atmospheres (2015) [MP3|320 кб/с]<Lounge, ChillOut, Relaxi
 ```bash
 magnet:?xt=urn:btih:91D1E30E479C35570398D020D145E3166512BA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E952EC4B19F6A106F2659CBA6431842F33209413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ VA - Calling All Maniacs (2001) [MP3|320 кб/с] <Rock, Pop Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D496EEFEAEEE8495850275E1266DB13B7C661BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A38CDB8B90E0C78DD5362659C0823795FD7769FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Little Big Wolf - Pinkie Brown's House (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:85575F181542268D8EFCFCFEDA89D4029D973BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ Saycet - Mirage (2015) [FLAC|Lossless|WEB-DL]<IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:A7E93AD897BF2406A6366670B1AA92102FB1CFAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ VA - Hard & Death Dubstep Vol.1 (2015) [MP3|320 кб/с]<Deathstep>
 ```bash
 magnet:?xt=urn:btih:76FD85782F669850BC803A062A15DBEFA1B585E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Buckwheat Zydeco - Menagerie (1993) [FLAC|Lossless]<Blues, Creole, Zydeco, Soul-
 ```bash
 magnet:?xt=urn:btih:D7ED09B621EE79DFD67AA11E8DC0255D2E09E216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72A74DC9DCF2C0E0797D278385696882C3F43F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CACABC34B402F072DE86EB52D78698829F8FAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ Tipper - Fathoms EP (2015) [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Glitch>
 ```bash
 magnet:?xt=urn:btih:5011ACB1831C2C43D83D0670B8DF37B83762216F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6CF1B24DDCC19331E5CDE67ABAF7E91ADA4AC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ Ocean Of Sin - Lie Goes To Hell (2014) EP /Авторская раздача/ [F
 ```bash
 magnet:?xt=urn:btih:0F6759A6765B7875BCD657A667BDA6161EE9BFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:362F9DC22252A004938D24531B9B1B53F65B58FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:739E2D11278D2AD98989BBCF2A4805868DF69CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0150433BCB4F481D99D18CFA80CB357E7ABA7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

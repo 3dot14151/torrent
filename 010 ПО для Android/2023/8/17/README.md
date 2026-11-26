@@ -19,8 +19,7 @@ Photomath - настоящий подарок для всех, кто регул
 ```bash
 magnet:?xt=urn:btih:175A43DB20972B5BD2C7A9F3FA8998F9F62AC727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Node Video - один из самых мощных видеоредакторо�
 ```bash
 magnet:?xt=urn:btih:7D8C40520D4E5FA8ED0DDD5365A9B42F530EE544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SmartTube Next - неофициальный продукт представля�
 ```bash
 magnet:?xt=urn:btih:BC41B012D9ADBD7234FBDB342FFF46A71AA6E523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Snap Camera HDR – Еще одно популярное приложение, �
 ```bash
 magnet:?xt=urn:btih:31E421926EFCE7C8347C05D7E1CECBA3E1C4FBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

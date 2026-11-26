@@ -19,8 +19,7 @@ Discovery: Через червоточину с Морганом Фримено�
 ```bash
 magnet:?xt=urn:btih:15CA7F9FE628A686DED92BF615D0F351DF68296B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:C959F6EBF9B8C9EC9D50652359F300145EF67500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DF369BF6C7D1469C6A9070C5916CA003E33A727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16A8AEC8184DD00606C8FDC617AAD9652ED803DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8AC51302A752AAA5B24C3E5522A2EE89FA2AB56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D667922E74A5EF5FF49D8D4147567D6CE83DA3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Adobe Audition CC 2014.0.1 Build 7.0.1.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4E3D2F9E99032A5A8E8FD6C674F484DC1BA1CFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F6B1E9EE4FC85FCCB63099947D80AFCF4B90C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ GRID 2 (2013) [Multi] (1.0.85.8679/12dlc) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:65FC0B1642305F58A87CC1D229C4098BA4D32993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Various Artists – New Sound Experience (SACD Sampler) (2004) [DSD 5.1, 2.0 1bi
 ```bash
 magnet:?xt=urn:btih:E8959B8770B700B3460B340F9A60EEFDC3C62833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DADBC9CEB47E0B82F8BDD67A629C1B57B11544BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:184EA9A233FBD0EAD1E443F524254A88B900D485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Boot USB Sergei Strelec 2014 v.6.7 (x86/x64) (Windows 8 PE) [Ru]
 ```bash
 magnet:?xt=urn:btih:061A637D729F570864E883A918BBEC4F61B57069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D7A8CF21F3DD6699D8BD430C897BD3070E078DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ How to Survive - это экшен про выживание среди сред
 ```bash
 magnet:?xt=urn:btih:883987A4E4002B08CB88E901787E60740863B0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Grim Dawn (2013) [En] (0.2.9.3) R.G. Игроманы [Steam Early Acces]
 ```bash
 magnet:?xt=urn:btih:6205D572CFC7045EF4C53FD2AFB2F666F681EF48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ Thief (2014) [Ru/Multi] (1.6/7dlc) SteamRip R.G. Origins [Master Thief Edition]
 ```bash
 magnet:?xt=urn:btih:205FEF406853094469AC6958480CD3AF56715C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Hack ’n’ Slash – приключенческая пазл-игра о ха�
 ```bash
 magnet:?xt=urn:btih:5C1261902B6713A23B6252AFBAAD9F3978081E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:524D2D6667FE7538D531447F7B69018549C49FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Xenonauts (2014) [En] (1.09) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:ADF4600CA6C693960B40857AD9BD2AE6F81D4CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ Ikaruga (яп. 斑鳩?) — это игра жанра shoot 'em up, разра�
 ```bash
 magnet:?xt=urn:btih:72340B554C05D823F4F8CF27CD770415E5737B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ FIFA 15 Demo (2014) [Ru/En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:5C41EC8F59B47AC0F5F212219FCCF5F205A2CA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ SSDlife Pro - диагностическая утилита для твердо�
 ```bash
 magnet:?xt=urn:btih:4B23DE995E38E4702AD0F49D2C5F93B484AA78A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ Child of Light (2014) [Ru/Multi] (1.0.31711/7dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3148FC632A4F74840CC156F08B266CAB2622CCA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ Diablo: Belzebub (2014) [En] (beta 1.045) Mod/Demo
 ```bash
 magnet:?xt=urn:btih:035207D58DE0143FCB591F07C01596680FD308CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A73B2C18277A05CEE561CE26290176A3CBD42F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

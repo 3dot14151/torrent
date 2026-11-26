@@ -22,8 +22,7 @@ Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <Ho
 ```bash
 magnet:?xt=urn:btih:A5A29B53BACA6D81B5E0D1A6CAA16759F87F2DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A1 Toki Ni Wa Haha No Nai Ko No Yoni
 ```bash
 magnet:?xt=urn:btih:F5EBCC0B5A046021743BEE380E142C16DDD2F538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

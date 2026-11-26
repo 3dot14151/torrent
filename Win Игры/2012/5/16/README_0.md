@@ -19,8 +19,7 @@ Sonic the Hedgehog 4: Episode II является продолжением Sonic
 ```bash
 magnet:?xt=urn:btih:E67C0CF0D77B4C12CA29DEDEE0B260F825B0F76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Warhammer 40,000: Dawn of War II - Retribution - второе отдельное
 ```bash
 magnet:?xt=urn:btih:A18B1D0DF9E9CBF44018EE26CAAA313370F73DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Pro Evolution Soccer 2012 + DLC 4.0 (RePack/1.06) [En/Ru]  2011 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:3A4BA06C04A24C6D81EE4CF0FD9415C72806C544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Dark Alleys: Penumbra Motel Collector's Edition / Темные аллеи. Мо�
 ```bash
 magnet:?xt=urn:btih:A8E2280A99CDFE71A35F6BE48BC48F7341F6127E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Sonic the Hedgehog 4: Episode II является продолжением Sonic
 ```bash
 magnet:?xt=urn:btih:ED1D670A6F241AD1EAB12A5E4FBA37BB79734DEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

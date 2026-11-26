@@ -26,8 +26,7 @@ Head Over Heels - Head Over Heels (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F532F89519806733977429D5B80FAC05EBD11B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Strange - Translucent World (1973) [MP3|320 кб/с]<Hard Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:8260C62BCAAAB5B31FE4C1BDBD7A5B76ACC23271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Miss Fortune - A Spark To Believe (2014) [MP3|320 кб/с]<Alternative Metal, Ro
 ```bash
 magnet:?xt=urn:btih:C5992635587E310CC4F55CAEFE3B5D1D96757003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Flamin' Groovies - Shake Some Action (1976) [MP3|320 кб/с]<Classic Rock, Beat
 ```bash
 magnet:?xt=urn:btih:929DF7EC9B597D5D85A90251DDB4355BAD1D7B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Haymarket Square - Magic Lantern (1968) [MP3|320 кб/с]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:B645BFDF723EF2B3238E094E63B17E3728B75BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Possessed - Exploration (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7A1C014E54993864E826EA8121F7D3228C1A9981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Trance - Victory (1985) [MP3|320 кб/с]<Melodic Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:56294D211402D10089CC3A66E3C4A6C032FE7E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDD3B92E26DCA6A5506099EADB0E64DA14B04383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ The Exies - 6 Альбомов (2000-2007) [MP3|158 - 320 кб/c]<Alt.Rock, Post
 ```bash
 magnet:?xt=urn:btih:7528B047277A68DF4BF0362C8389D49075A448FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ Buried In Verona - 4 Альбома (2008-2014) [FLAC|Lossless]<Metalcore >
 ```bash
 magnet:?xt=urn:btih:2F8879E09B8ED45628F26459D2513BAC3BBBB4AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ Jack White - Lazaretto (2014) [MP3|320 кб/с]<Blues Rock/Country>
 ```bash
 magnet:?xt=urn:btih:E228EC7A3F489AD3E72116E175A11E1F46FFB372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ Kasabian - 48:13 (2014) [MP3|320 кб/с]<Alternative, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:F0B4613E3E51D654E5373E54F498E1C61A6A3C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

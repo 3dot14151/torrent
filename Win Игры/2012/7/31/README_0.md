@@ -23,8 +23,7 @@ Pro Evolution Soccer 2013 Demo 1 [En] (Mod/1.1) 2012 | PESEdit
 ```bash
 magnet:?xt=urn:btih:DF1A77B6551A3A9677F4FB1D392A926E6FA52597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Wood Land Arcanoid [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:C55529BF9934FD9CADE7817DA14BBE436CB8C064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Luxor Amun Rising HD [En] (P/12.02.24.0001) 2012
 ```bash
 magnet:?xt=urn:btih:15420B9D9CB75008F2A6200CEE175B0F6EB691A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ XVI век, Карибское море. Эскадры пиратских ко�
 ```bash
 magnet:?xt=urn:btih:2F9138EE6B90748DE253D5788F07B807F66BDE87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

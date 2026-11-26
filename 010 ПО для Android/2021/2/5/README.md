@@ -19,8 +19,7 @@ NUM - No UI Movies v1.0.60 [Ru]
 ```bash
 magnet:?xt=urn:btih:438FC75F30D1460B6710199A7BCD077435A155AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

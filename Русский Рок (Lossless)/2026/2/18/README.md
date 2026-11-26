@@ -22,8 +22,7 @@ Otto Dix - Хюбрис (2026) [FLAC|Lossless|WEB-DL|tracks] <Darkwave>
 ```bash
 magnet:?xt=urn:btih:C3684A3BD795A62FD78634C4618B2E72A5BE9E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

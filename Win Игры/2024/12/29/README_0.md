@@ -19,8 +19,7 @@ An Airport for Aliens Currently Run by Dogs (2021) [En] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:F0B21DBDFB8AFB993994DB457012D45449E4AABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:793101AB6AE173CC648158F061993982EAA52F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Trade Conquest (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0F91708A0BD8E3DAF6A116DC73272DE4EC5C57F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Binding of Isaac: Rebirth - это RPG-шутер с элементами и
 ```bash
 magnet:?xt=urn:btih:86E1B5AF22E0B09F037524F15BFAD2011A8B56D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Open Wheel Manager 2 приглашает вас в мир автогонок. �
 ```bash
 magnet:?xt=urn:btih:C00F10685890FC33F0C5C44EDDD147178F52B594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dungeon Defenders – интересная игра, которая сочета
 ```bash
 magnet:?xt=urn:btih:ACA50E3247A48603A462C530D719EF2330D87BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Doll Impostor погружает игрока в атмосферу страха
 ```bash
 magnet:?xt=urn:btih:A153CBA0593023E624F2BDBFFC91A29DD793F565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ FIRE - это приключение-исследование с множест�
 ```bash
 magnet:?xt=urn:btih:CEAEDB4263CA073018988CC6A842A6B367B8984A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Jusant - увлекательная видеоигра, которая приг�
 ```bash
 magnet:?xt=urn:btih:8668677AA0CB2933A61D8061293C119D6FFB2EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Many Pieces of Mr. Coo - это сюрреалистическое граф�
 ```bash
 magnet:?xt=urn:btih:EA9ABAF9C6D64C295D45C82DD91EA157E33E5285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Dude, Where Is My Beer? (2020) [Ru/Multi] (11) License GOG
 ```bash
 magnet:?xt=urn:btih:CB7C59134D1676F9149FED208D279EC94947DBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C36ED21EA3757257BB3824AF253371909F351849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Pools (Бассейны) – игра, разработанная в жанре 
 ```bash
 magnet:?xt=urn:btih:9D4A95EE880374C2F012E237A2C565F546290DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:D296E9B3F0FD220289144DA0B168D70BC6D3CA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5498) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:9125DD2AA1EDF4C109282583AAF5F20530E9B378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

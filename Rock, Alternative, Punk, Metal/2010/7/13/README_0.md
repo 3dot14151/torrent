@@ -23,8 +23,7 @@ Opeth - Дискография (1995 - 2008) [FLAC|Lossless]<Progressive Death M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

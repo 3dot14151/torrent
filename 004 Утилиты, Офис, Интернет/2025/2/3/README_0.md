@@ -19,8 +19,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (2501) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:AF5992EB4027410478CEA6821C481851A0C07B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:4F1709AFDFB669483F0F83FBD41286AEDE645754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ EssentialPIM - это отмеченное различными наградам
 ```bash
 magnet:?xt=urn:btih:93F078803973AE56D94EB9320EEE7C6864B347B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 ```bash
 magnet:?xt=urn:btih:E29D7A22DD0E9558A955B053FEF2922FA0F36A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ ClipAngel 2.17 & portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2ECEB89CBAE09A0C536DB6324307ED5EFE1EA699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

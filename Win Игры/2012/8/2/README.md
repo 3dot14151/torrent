@@ -21,8 +21,7 @@ Prototype 2 - продолжение жестокого и кровавого и
 ```bash
 magnet:?xt=urn:btih:5F31B7D6145FD9DD8B6D8A3F181C9D581BD724B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru/Multi2] (Steam-Rip/1.00.2) 2
 ```bash
 magnet:?xt=urn:btih:44E81F00CF5EC44BDB010A3281EC7ACBE2F87F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Prototype 2 - продолжение жестокого и кровавого и
 ```bash
 magnet:?xt=urn:btih:D56FFE9C029127C6F3DD0494EA6BFD25F5E557A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (RePack/1.00.2) 2012 | R.G.
 ```bash
 magnet:?xt=urn:btih:780170EDF1592AE5FF19B8CA33FEEF4BF43A8645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

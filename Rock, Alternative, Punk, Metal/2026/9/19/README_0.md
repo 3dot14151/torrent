@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E8E55CED48D511AB588ED7FA95A32939E09EC174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Norma Tale - Кто старое помянет (2026) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:7F2490878EEE6B6F2C963C8CE53C9ED1A2E5D908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stay Away & В майке Сталина - Продано (2026) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:FB79E5752D052AC325BFC8D6BA71C8C4BD4F747F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hardbone - Hardbeat (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C6DCB2F78E57ACEC92E0615F675D5E9D7CF8416F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Roger Taylor - Violence Insane In A Beautiful World (2026) [FLAC 24/96|Lossless|
 ```bash
 magnet:?xt=urn:btih:E792D163DC6AC2A5F932BCC52434797A55D3EFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Santa Cora - The Breath Of Living Earth (2026) [MP3|320 Kbps] <Power Metal, Prog
 ```bash
 magnet:?xt=urn:btih:4FE3E91F90961E3F12FE066E0F2892454C0014C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Green Lung - Necropolitan (2026) [FLAC|Lossless|image + .cue] <Doom Metal, Stone
 ```bash
 magnet:?xt=urn:btih:9A7D63338AA3040A255DF8C9E974DBB8F50DD9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

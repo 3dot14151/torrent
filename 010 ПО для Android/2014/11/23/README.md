@@ -19,8 +19,7 @@ Instant Heart Rate Pro 2.6 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:11882A302563526D8937CB822D9C7D8D417BDB74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

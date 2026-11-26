@@ -19,8 +19,7 @@ PortableApps.com Platform 30.6.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B2BEEFE45BF9D7DCF19E6006DA2673FE58641D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KillerPDF — это бесплатный редактор PDF-файлов с �
 ```bash
 magnet:?xt=urn:btih:347E11AC693393AC9C2DD2F9CB9CA3FC67C74C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BUtil 2026.11.21 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3A03E03F7FE3B8E22D49311258C53478F28C5F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Lacey Free Music & Video Downloader 3.21 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3529F61818776644919B21B4D8F06897EF7BF696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

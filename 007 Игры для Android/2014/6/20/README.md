@@ -19,8 +19,7 @@ Threes! - это пазл, в котором задача игрока соед�
 ```bash
 magnet:?xt=urn:btih:692FD7B491269AFE585832C7108A7DEE8C165554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

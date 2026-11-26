@@ -19,8 +19,7 @@ Barotrauma — научно-фантастический симулятор по
 ```bash
 magnet:?xt=urn:btih:5C2FC6E70B13F7C971ACF937D8ADDE94E67B87E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CarX Street (2024) [Ru/Multi] (1.9.1/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:7E910177103336857357451B33B5F096E21906C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20708995) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:00A16EBE8AE47D24F32265419B89A56E29563915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bad Cheese - это психологический хоррор, вдохнов�
 ```bash
 magnet:?xt=urn:btih:C83E58914BF978DF6DC40098737097B2DFD9F1AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EC905AB50CB4B41C6D7C718EC9D69DC53387BE59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Teenage Mutant Ninja Turtles: Out of the Shadows вернет вас обрат�
 ```bash
 magnet:?xt=urn:btih:02E3A187CFA762B20F7CF5C300113E8C30C0C2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D008D6D8D81A5B86E45E0252C59FA7C4E4EBD4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ VA - 500 лучших песен Нашего Радио (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:BB68367B5CFE6D2AFF809DF0DD9B9C04972FE32E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Volume Activation Management Tool (VAMT) 3.1 (x86) 6.3.9600.0 [En]
 ```bash
 magnet:?xt=urn:btih:02CB16019E448F1202FF0E81A23EF5B4F06CB191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ A-men это головоломка платформер с очень спец�
 ```bash
 magnet:?xt=urn:btih:DCF3229D59801FC64662D94AA03B8ACAA46C753F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Batman: Arkham Asylum GOTY [PS3] [EUR] [Ru] [3.15] [Cobra ODE / E3 ODE PRO ISO] 
 ```bash
 magnet:?xt=urn:btih:933276BEC148864F20BC1D11470BD34008E43877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29AE0B25469EA375609E9DFE3560E0287F87D0A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9805A2729620EC100817A178BA75BD545CA9F871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:616AB0B3A5A98DB24D7E3CBC431C464347EB82F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA296E3C0A01FDF9EB9AFE3E1174352FA37F4EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Citadels (2013) [Ru/En] (4.0) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:32422A5F74E866CAE090F01D2AA74AF07DAC558A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Edge Animate идеален для использования веб-дизай�
 ```bash
 magnet:?xt=urn:btih:1D58B2673AD363D61E458E6E5492B4E6544C1C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Game Dev Tycoon - качественный симулятор разработч
 ```bash
 magnet:?xt=urn:btih:9A5DDB6FA392D9EF41A173A999A258B58F25562C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A63C938F2C2370B144774E1CF32954D2C5595C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4DB0D26032303B31D30243D9BF3000F98CE64F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Tomb Raider – один из ярчайших проектов весны 2013 
 ```bash
 magnet:?xt=urn:btih:9E40FD194E13BDA79E71C557240EEEFA30FD5A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

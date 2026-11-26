@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:95064F5EE3F6D294F3B7871A825CBB200B4CE130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ShellShock Дилогия [Ru] (RePack) 2004-2009 | tukash
 ```bash
 magnet:?xt=urn:btih:7CEB95ADCEF027DB32C55642761E14EC72915938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

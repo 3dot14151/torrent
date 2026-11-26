@@ -22,8 +22,7 @@ Skillet - Интервью с Джоном Купером на радио УЛЬ
 ```bash
 magnet:?xt=urn:btih:C64D6EAC4C642DB82ACC81389F144189A6777608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sixx: A.M. - Prayers For The Blessed Vol.2 (2016) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:8285B7C889FCD61828896F68C4C9B4D181BEB5D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Words Of Farewell - A Quiet World (2016) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:1B9A4CBD61DBCE100651BCF499B7382C1228F547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ SunSay - Выше головы (2016) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:67D9AE9BA694D4E788D80295A52496BF64F1DD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Aenaon - Hypnosophy (2016) [MP3|320 Kbps] <Avant-Garde, Experimental, Progressiv
 ```bash
 magnet:?xt=urn:btih:9BE6BACE919DA0D458643A4D5186877242161997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Brutai - Born (2016) [MP3|256 Kbps] <Progressive Metal, Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:22A053966AB403ABD7CEF6941AB25ABB9D086B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

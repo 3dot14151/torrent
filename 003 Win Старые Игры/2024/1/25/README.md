@@ -19,8 +19,7 @@ BloodCM - это разрабатываемый в данный момент, н
 ```bash
 magnet:?xt=urn:btih:55B825E78D3E72FCFE2EC471B4CFE4DD85C72CD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

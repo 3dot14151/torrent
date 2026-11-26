@@ -28,8 +28,7 @@ Lumen - Нет Времени Для Любви (2013) [FLAC|Lossless]<Alternati
 ```bash
 magnet:?xt=urn:btih:5F374C181EE6EA6A2B14E7AC409111D509A564EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

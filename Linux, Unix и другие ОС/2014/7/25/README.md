@@ -19,8 +19,7 @@ Debian GNU/Linux 7.6.0 Live [amd64] 4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:06FB9792303056F00F6BE116C00C0BFA52D78AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debian GNU/Linux 7.6.0 Live [i386] 4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:BDB1542AAB0AB3AC2A5909CC1D671A2764BAD2BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ubuntu 14.04.1 и  его производные продукты обновле
 ```bash
 magnet:?xt=urn:btih:5203B22BE88E4F599A9A433C1206DED181BB4520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:2FC367CD2646269A3F84CEC005A5885F8465EA90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Xubuntu — дистрибутив Linux, основанный на проект
 ```bash
 magnet:?xt=urn:btih:F9F03B02B7CCCABBA9D12B61735EEBE6AA9B198E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

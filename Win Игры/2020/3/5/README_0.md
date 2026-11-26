@@ -19,8 +19,7 @@ Weakless – красивая 3D-головоломка с невероятны�
 ```bash
 magnet:?xt=urn:btih:C7F88E268155B2FC187CAB5523EC273EFC93A4EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

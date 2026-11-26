@@ -19,8 +19,7 @@ Don’t Starve — это бескомпромиссная игра на выж�
 ```bash
 magnet:?xt=urn:btih:17C932AA7B9A06B930E21848529B1BCD6F005250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Immortal Realms: Vampire Wars это увлекательная стратеги
 ```bash
 magnet:?xt=urn:btih:D86D770C3942AF66D0B490E5B40682F2AD56949F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pine — это приключенческий боевик с открытым 
 ```bash
 magnet:?xt=urn:btih:039027DC881D8216600AE809E2C42388527E9EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

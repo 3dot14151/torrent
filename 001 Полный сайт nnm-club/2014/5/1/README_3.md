@@ -23,8 +23,7 @@ Crystal Antlers собрались в январе 2006-го года, где-т
 ```bash
 magnet:?xt=urn:btih:5F279C1B8D02D92CAF9894217BAE84F371C1F97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5320891A55530502BA6527D088F4D53B946992B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B32C6BF5029D9B7BD5190DB04F260DF4B944573F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Neil Young - A Letter Home (2014) [FLAC|Lossless]<Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:D7E6A2EEEC44AD00F6C9054200DBA3F864123272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ VA - Buddha Bar XVI (2014) [MP3|320 кб/с]<Chillout, Lounge, Ethnic, Downtempo
 ```bash
 magnet:?xt=urn:btih:3C72438D17E0A4699F7033585A30908D327EE1A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Apollo Brown - Thirty Eight (2014) [MP3|320 кб/с]<Instrumental Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:03486CB47DFA3490649AAF28686DD8FA5A83FCC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E497D00973DC388B32E8D383D5B1D1528FDF422D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42B94EE46F5CFDA0A8CB5E985E9149E8345944B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Tame Impala - Live Versions (2014) [FLAC|Lossless]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:1641CCF47F87CD70A73E1B820031F9EBA1F9DE76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ Scorpions - MTV Unplugged: The Studio Edits (2014) [AAC|WEB-DL|256 кб/с]<Hard
 ```bash
 magnet:?xt=urn:btih:952C848E9ACF3356BF55F2192813200E40C4229A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22D8DE4F7EAF2DBBE1F2910EC2320065FD800280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ Imelda May - Tribal (2014) [MP3|320 кб/с]<Rockabilly, Blues>
 ```bash
 magnet:?xt=urn:btih:2996813A6E134BF9E8F0C0B347DE45D72F08BB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ W&W & Blasterjaxx - Rocket (2014) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:B716176D53BBEB6949ABDA96C6FA7873501582DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ BBC. Horizon: Прощай планета Плутон / Bye Bye-Planet Pluto (2
 ```bash
 magnet:?xt=urn:btih:C2ACAB80CBFCA46A4C80959D61863BF9AE0C6B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A72E52B181DC1E72DDE50043AC9FCA80EEA2E8A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F8FACD05DB4F72FF22939D7775FF3FEC7DD69EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ BBC: Дикие водопады / Wild Waterfalls (1989) DVDRip
 ```bash
 magnet:?xt=urn:btih:0D6FFF8243B9BFE0594034ACDD15CC2AE897A2EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:326C83AA5311112484F8594FB065579B1B156E0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +531,7 @@ BBC. Horizon: Война против науки / A War On Science (2006) DVBRi
 ```bash
 magnet:?xt=urn:btih:6635A6AC3419A9C55B316DBC320AC9097F4E9559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +563,7 @@ VA - 100 Лучших Диджеев Мира (2014) [MP3|256 кб/с]<Dance, Cl
 ```bash
 magnet:?xt=urn:btih:8F9F77ACEBE5CA02E8780A0CC3A53F8BDD279C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09B671B54F788083544FF8999B8D415E11A4B2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F7CB7D887CB499D1FA666D2E749E78A29F257CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2C16A6A3FAA92AF26D3CDE227E0FE2913536393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:079E0ACF8E5411FF6412D6BD9C1892AC0396757B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +695,7 @@ BBC. Horizon: Проект полтергейст. В поисках нейтр�
 ```bash
 magnet:?xt=urn:btih:44F4530267EF4E9421015F580BCBF6903EF3EDC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +720,7 @@ BBC. Жизнь на Земле. Бесконечное разнообразие
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

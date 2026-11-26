@@ -19,8 +19,7 @@ This second edition introduces Python programming to readers with little or no p
 ```bash
 magnet:?xt=urn:btih:5DCBD1B4E5F41D0484CCEA8E4BE4BE4B9FB968AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Understand and build a proof of concept by migrating a multi-tiered .NET Core we
 ```bash
 magnet:?xt=urn:btih:C5E55086493FD5A27FF0E0DAFA261925DC65420D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ This book provides a thorough introduction to Python, specifically designed for 
 ```bash
 magnet:?xt=urn:btih:6658F8C82950BFE8B9AF6EBE9B8676B4E4A77BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Streamlining Your Research Laboratory with Python covers the Python programming 
 ```bash
 magnet:?xt=urn:btih:F65CA2D1DC5585B30B40AA0EEAB7205683EB9C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ This book covers all the topics about ChatGPT required to successfully generate 
 ```bash
 magnet:?xt=urn:btih:3DDE1FE7D3787A9E62BB14BBA82842B9DD88125C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Traditional money and banking textbooks establish the central tenets of the econ
 ```bash
 magnet:?xt=urn:btih:A126BF34431A14A03D067753EEF119742312C622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Prepare for Microsoft Exam AZ-500 and demonstrate your real-world knowledge of M
 ```bash
 magnet:?xt=urn:btih:0901718F6F6B0D2033E81BB8180D4D42ACCAA38F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Generative AI enables powerful new capabilities, but they come with some serious
 ```bash
 magnet:?xt=urn:btih:F747517163F99A340B174B79B86B7742ECE15F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ This newly updated and (   Читать дальше...   )Жанр: Mathematic
 ```bash
 magnet:?xt=urn:btih:110AC29926C69151F05C4DB298054343CEF4A4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ This book offers a comprehensive first-level introduction to data analytics. The
 ```bash
 magnet:?xt=urn:btih:AEFEF5F5E6E933D742487645BCB72FA4068D60AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

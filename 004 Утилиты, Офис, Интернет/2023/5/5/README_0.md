@@ -19,8 +19,7 @@ GiliSoft Formathor - это комплексный и универсальный
 ```bash
 magnet:?xt=urn:btih:C2088D787A9FAF461933B321A4382C6F8BEF4169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WinUtilities - системный набор для настройки Ваше�
 ```bash
 magnet:?xt=urn:btih:08A2735305AB306517D89A531F6D9EF223B7A4C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

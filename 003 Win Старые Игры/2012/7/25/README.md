@@ -19,8 +19,7 @@ Midnight Club 2 [Ru] (L) 2003
 ```bash
 magnet:?xt=urn:btih:1F22860EBFE56CF5EFACEDC99F0B95F38D9274B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

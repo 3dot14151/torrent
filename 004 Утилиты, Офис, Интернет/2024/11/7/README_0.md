@@ -19,8 +19,7 @@ PingPlotter Pro – приложение, которое предоставля�
 ```bash
 magnet:?xt=urn:btih:168C8E0D16EDAC327925385C786F07A4E792E01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

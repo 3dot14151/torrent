@@ -22,8 +22,7 @@ Diamanda Galas & John Paul Jones (Ex-Led Zeppelin) - The Sporting Life (1994) [F
 ```bash
 magnet:?xt=urn:btih:DF89F1D7B0C947B84FD63AD63F1FE2B4A38A5B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ruin And Reverie - The Seed Of Chaos (2026) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:9DAA23BC14B032A9558B622AE5884874C0CB9744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1 - Путешествие (1981):
 ```bash
 magnet:?xt=urn:btih:6CBA587E3280A44EA8AFA414255CDE5B6E4C4D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Harsh - Feels (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A3E4FF5AC70C00CE46A00ED702C4B4A50FE68F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dominum - Night Is Calling (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 ```bash
 magnet:?xt=urn:btih:9B15724CA998796241141BB4DF4D0D35423DF5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ The Who - 11 Albums (1974-2000) Mini LP SHM-CD DSD Remaster, 2011 / Universal Mu
 ```bash
 magnet:?xt=urn:btih:4684D63333B150205F66F23A1027A5BB52F324D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

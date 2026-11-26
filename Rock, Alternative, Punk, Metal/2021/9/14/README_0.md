@@ -22,8 +22,7 @@ Andreas Aarflot - Det rivna pianot (1978) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Ro
 ```bash
 magnet:?xt=urn:btih:514996D543EDAC010A12BD20A24D4F1F18A0C8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Syndone - Kama Sutra (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:29B600B054F3090BD9858FB95849BCFAFF88766E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ancient Empire - Priest Of Stygia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:A8D75DC070ACD880207EDA8E15B00FA770D0429D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ancient Empire - Priest Of Stygia (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3777D9B2050AD76300C2D6126670B3FC679893A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Dirkschneider & The Old Gang - Arising (2021) EP [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1D1ACAD6CB22D04DB0F4FBB4380F78678073C087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Dirkschneider & The Old Gang - Arising (2021) EP [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:07C6521A7C2DA137F666A206DCD75B67DFCF3B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ The Cranberries - Remembering Dolores (2021) [MP3|320 Kbps] <Alternative, Rock>
 ```bash
 magnet:?xt=urn:btih:C8B3E79A86EC1D163E93F6C45B41BB8C9606117E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

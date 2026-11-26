@@ -19,8 +19,7 @@ Total Media Player v1.7.7 Pro [Ru/Multi] - многофункциональны�
 ```bash
 magnet:?xt=urn:btih:0BE569977A22D204B0F667CB4911B2FDA36EEEA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

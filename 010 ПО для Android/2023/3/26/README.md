@@ -19,8 +19,7 @@ LectureNotes — это приложение для Android, которое по
 ```bash
 magnet:?xt=urn:btih:0875B776C31B60206E75C135DD0B0220F34099BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ```bash
 magnet:?xt=urn:btih:F833C4688C19440035F33F980DE9025C2C73D8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

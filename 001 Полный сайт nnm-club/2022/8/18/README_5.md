@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8395CFB2607B04900F02BCAA37BC64AD73F64119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81EEEDBDC57CCE814B232EE19C5E1E64492DCDD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:143B132B6A1594BA32512B8D7ACB1DA06AF68CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Yiihuu, wingfox, Zaoeyo | Masterclass Motion Graphic Animation in Cinema 4D (202
 ```bash
 magnet:?xt=urn:btih:8CFBE18C732E023BA85876DE2103E56163F21310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E47BF92BCDBE213994E26B82B7E902225D2E1127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ HTML Academy | Навык «Вёрстка навигационных элеме
 ```bash
 magnet:?xt=urn:btih:A6E8A80A2CBB1EE6BF71AB222739713F0174305F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

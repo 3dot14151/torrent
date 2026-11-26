@@ -19,8 +19,7 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:C1BD85849D2F197C5BC67D5C28F5E003DF107155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

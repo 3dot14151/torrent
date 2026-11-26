@@ -22,8 +22,7 @@ A4 Люди Скажут, Что Мы Влюблены = People Will Say We're I
 ```bash
 magnet:?xt=urn:btih:5F12E1FE17E559E2B0A036339AC8F848B74453F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Casey Jones - I Hope We're Not The Last (2011) [MP3|320 кб/с]<Hardcore Punk, 
 ```bash
 magnet:?xt=urn:btih:F280E9BDEE005F982051B47E88155D2C3ABC177B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Chaser - Decay (2014) LP [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:75FA04EA58F7606D19A235010139C5009EAF223F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40934A57C0D2DEF9AFE25D97A57906CE5BB1818D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Subminderz - Sphere (2014) EP [MP3|320 кб/с]<Drum'n'Bass, Crossbreed>
 ```bash
 magnet:?xt=urn:btih:882BECA7E3EAAD6B6AF926E38415320F22D6ECAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Numbers - Three [3CD Special Edition] (2014) [MP3|320 кб/с]<Post-Hardcore, El
 ```bash
 magnet:?xt=urn:btih:4B3B0A0BD0AB7970F0F0E33C4082F4CD88D8E679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ VMP - Turn Back (2014) EP [MP3|320 кб/с]<Dubstep, ElectroHouse, GlitchHop>
 ```bash
 magnet:?xt=urn:btih:474D13E97031B3356A717FB037CE5FF1E132A601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Andy Frasco & The U.N. - Half A Man (2014) [MP3|320 кб/с]<Blues, Rockabilly B
 ```bash
 magnet:?xt=urn:btih:D7F5934DCB05397DCD81F9A3C763550FABFD66A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ VA - RLX 6 - The Chill Out Collection (2014) [MP3|320 кб/с]<Chillout, Lounge,
 ```bash
 magnet:?xt=urn:btih:F713897C472759202FE4F3E898A2D1A0B4839DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ Avenguard - Eternal Battle (2014) [MP3|320 кб/с]<Instrumental / Heavy / Power
 ```bash
 magnet:?xt=urn:btih:020240EA25A0E620332F604134386738E0020A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ Lazy Poker Blues Band - Halsted (1994) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:A56073CE31088C6D2E7FD421637157C4710B55AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D622D24291937E3C3A67BEA47FBB495A0E001C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C73BCA0541F12EC12FAA08364F50B50E35050DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ Bastik Legion - Anima (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:FC8A139375C19CB925124CC94FF1E2F39F5949AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ The Charlie Daniels Band - Hits Of The South (2013) [MP3|320 кб/с]<Southern R
 ```bash
 magnet:?xt=urn:btih:6B238BCCD5CD4B13DC930DB09618BE3467EF668E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ VA - Daft Funk House Ladies (2014) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:657076DCED6AFE47FD07335E2D0AD93AA5D8D70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:214B71C0FBC0B9869564BE073B74E6DBAB263694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ Confess - Jail (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3718FFF4E917B2355E37DC77333A79765C8D6ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ EH!DE - Destroy All Humans (Ray Volpe Remix) (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:918B42E8152096EF3F433C0EAC8F94C3E1E7781E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ The Dagger - The Dagger (2014) [MP3|320 кб/с]<Heavy Metal / Hard Rock>
 ```bash
 magnet:?xt=urn:btih:64A8999DDE450E9F572D30A234593AEFAA23691C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ VA - Essential Chill Out Tunes Vol. 02 (2014) [MP3|320 кб/с]<Electronic, Ambi
 ```bash
 magnet:?xt=urn:btih:B2293758B47E09C562297C4E536DA4E650B5EA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A3C2A154FFF6B3A049594038A9F3C98509F53B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ Various Artists - Drum & Bass Arena Summer Selection 2014 (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:2342E9E0D7ED50E1C1A58252A5C91ABA47845C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEED3833A4439CD16D442C1F63FF9CEE9F2806C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

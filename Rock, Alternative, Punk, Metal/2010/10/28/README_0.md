@@ -19,8 +19,7 @@ Cliff Richard - The Rock N Roll Years-2CD (2010) [MP3|320 kbps]<Rock and Roll>
 ```bash
 magnet:?xt=urn:btih:7EDAC139CB79E36D1508B0BBD9C4DFEAE5D8A6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

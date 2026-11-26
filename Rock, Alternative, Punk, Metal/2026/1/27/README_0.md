@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:D29A5D6B0BFA70DFE9367E0B59FEB50BE6F3C51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Angel Byers - Fighting For Me (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 ```bash
 magnet:?xt=urn:btih:5790555CB38AE4C7F3AD2FCEE4F637EF155D66D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Megadeth - Megadeth (2026) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash
 ```bash
 magnet:?xt=urn:btih:85201FF16593D53B26C42D994401164DC0FFCA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

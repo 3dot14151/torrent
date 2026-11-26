@@ -22,8 +22,7 @@ Wendigo - Темный ритуал (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk R
 ```bash
 magnet:?xt=urn:btih:08AB93B9A082A3C2374FFAC5913B4434B7651F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

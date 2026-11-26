@@ -20,8 +20,7 @@ AdGuard — уникальный блокировщик рекламы без п
 ```bash
 magnet:?xt=urn:btih:1135DDF67E0E172DB239B30BB8EC47ABF0832F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

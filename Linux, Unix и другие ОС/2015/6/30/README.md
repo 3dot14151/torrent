@@ -19,8 +19,7 @@ OpenMandriva Lx 2014.2 [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:1582D02BC92076C1F606933CAD8C2B3C6199112F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Parrot Security OS  операционная система для специа�
 ```bash
 magnet:?xt=urn:btih:E7ED456C3F74BBD7FDC86962495D489F959291AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

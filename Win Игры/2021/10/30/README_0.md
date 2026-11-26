@@ -19,8 +19,7 @@ Live Or Die (2021) [En] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:8FF7E1AA68A10025903756D3786DA5211FB26F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Indicted (2021) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:B1CD804FA7928AFC619A1008B33695AF46059AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Franchise Hockey Manager 8 (2021) [En] (8.1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:E5B24860220EBD17BCCC609C11075154C620566E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ George (2021) [En] (1.0rls) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:DA30B70FCF9DE2850F7C45CC4618CCB9D623E711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Horror Story: Hallowseed – одиночная игра с глубоким с�
 ```bash
 magnet:?xt=urn:btih:6DB520FE51F5B14A414550380858F97701BFF3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bassmaster Fishing 2022 (2021) [Ru/Multi] (1.0rls) License CODEX
 ```bash
 magnet:?xt=urn:btih:A0EA08C64A0FD771B1A48C7951EDB1FAD78C6CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

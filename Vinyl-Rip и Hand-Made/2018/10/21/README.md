@@ -22,8 +22,7 @@ A4 Puccini - Intermezzo: (Manon Lescaut, Ch'ella Mi Creda), Placido Domingo(   �
 ```bash
 magnet:?xt=urn:btih:33136F64EAFBA3B5B3CCE40D48271A51645FC462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Carnival of the Animals
 ```bash
 magnet:?xt=urn:btih:1FD2C86480B45946949490126DB3A6DC3A1FAC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Mind over Matter(   Читать дальше...   )Жанр: Pop RockПро�
 ```bash
 magnet:?xt=urn:btih:7012E518BDE96ECCCB29451FFE786590F4C9B6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Spring Concerto in E major RV 269
 ```bash
 magnet:?xt=urn:btih:A762169DA14E395D09C5BEECF03B15202834F9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A4 Не Говори О Любви(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:73114A96360FF284768223FF621C97B8E70469A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

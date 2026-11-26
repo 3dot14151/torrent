@@ -27,8 +27,7 @@ Katri Ylander - Valvojat (2009) [MP3|160 кб/с]<Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:D8B077D1004110F33C6598A1052D3A3E2AF44D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Acheode - Anxiety (2012) [MP3|320 кб/с]<Technical Death / Mathcore>
 ```bash
 magnet:?xt=urn:btih:AF741D5DE80E534FEEA40A1A474AC494779F0367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Chromium – мощный, но простой в использовании б�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Skelator - Agents Of Power (2012) [MP3|320 кб/с]<Epic Power/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B7AC82155268853C6C9F653DF80C8A9A72777A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ KeepRolling - Клуб Настоящих Мужчин (2012)[Mp3|320 kbps]<Punk
 ```bash
 magnet:?xt=urn:btih:2D13DA2B1341B3A3DF7E46772FDFB86CBD9F022A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

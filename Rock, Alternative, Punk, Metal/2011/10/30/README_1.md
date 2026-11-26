@@ -28,8 +28,7 @@ Sandstone - Cultural Dissonance (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:450B5E7FEDB524F802D7073A180AD6F38B748477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Warpath - Malevolent Reprisal (2010) [FLAC|Lossless]<Brutal Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Foo Fighters - Medium Rare (2011) [FLAC|Lossless]<Alternative Rock, Post Grunge>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63A11A3E7E8E5B62729DE89C2816A1E197DB1732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

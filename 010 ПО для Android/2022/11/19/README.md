@@ -19,8 +19,7 @@ ALTLAS: Trails, Maps & Hike 3.3.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:CA5FFC6F2011CA8DEF538643DBB0F4F0C16167BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dictionary 15.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4874B2D902C9FE3C79AF0ABE8AFD9DDEFA595F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ The Clock: Alarm Clock & Timer 8.4.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:65F3C748AEDE1CCE57D35EA7FFF1F5EED48A0A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ ABBYY FineReader PDF – ваш умный карманный сканер с и
 ```bash
 magnet:?xt=urn:btih:99E018E705138C5870E8CE8F19774973D5A99842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

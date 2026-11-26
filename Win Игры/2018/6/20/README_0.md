@@ -19,8 +19,7 @@ Railway Empire (2018) [Ru/Multi] (1.4.0.20902/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:60CCE818967738620CFA95EE45239F9F21400DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84D5A702F9F5B21FEA8A79669B06B442200AD12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haimrik (2018) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:BE330B155A869DC04E51F1BD79B3FB6C0E4DD592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Haimrik (2018) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:55491848A5FD0A9F5FD26843604E442DFCE599CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pinstripe - это заряженное эмоциями приключение 
 ```bash
 magnet:?xt=urn:btih:952BDDB6121A9862FFE1C3B22548CD53850C269D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

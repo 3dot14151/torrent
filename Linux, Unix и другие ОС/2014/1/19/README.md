@@ -27,8 +27,7 @@ Mageia 4 RC [i586, x86-64] 7xDVD
 ```bash
 magnet:?xt=urn:btih:E5CB2A2DFA767AE8F33D677CEC1D6A9F77C1F46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

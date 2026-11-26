@@ -28,8 +28,7 @@ Harmanic - Chronicles Of Devastation (2011) [MP3|320 kbps]<Death Metal/Thrash Me
 ```bash
 magnet:?xt=urn:btih:8374E62CA89C675D005751DBDB11459FED7675F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Time Life - The Ultimate Rock Collection - Gold And Platinum (1964-1995) 6x
 ```bash
 magnet:?xt=urn:btih:D67C316DEBB0984B4626C068CC57C3C8A0A9FBEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Cinderella - Caught In The Act (2011) [MP3|320 kbps]<Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:119403F029182F6E10ADF8A0A95555A852C2D5DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Bluebeam Revu eXtreme - мощная программа для просмотр�
 ```bash
 magnet:?xt=urn:btih:60BE302DB36697D5CA1B20FA39A54DCAD59C74E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

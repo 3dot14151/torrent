@@ -28,8 +28,7 @@ Yo La Tengo - Fade (2013) [MP3|256 кб/с]<Indie Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Zilly Monk - Together Forever (2011) [MP3|320 кб/с]<Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:EBDD7FCF43348DD9AA2B5AA6FD1298E984AB8C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ F.E.A.S.T. - Strong, Wild and Free (2012) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Villagers - Awayland (2013) [MP3|320 кб/с]<Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:4A24A1BE2C0EC72011049AB1B6FDD0DBB0F1F8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Skadika - Frozen Legends (2013) [MP3|320 кб/с]<Melodic Viking Metal,  Female 
 ```bash
 magnet:?xt=urn:btih:5DD855A91AA929DB99D1F83B1632C2DC26EAC7A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Texas Hippie Coalition - 3 Альбома (2008-2012) [MP3|320 кб/с]<Southern
 ```bash
 magnet:?xt=urn:btih:D9980D7A47C1C47A4B6D3F822FA9F427CFCF8522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B88C503448DC23EE79A1CC0036A90FB94BD9DE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Gorky Park - The Best (2013) [FLAC|Lossless]<HardRock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD048F7757C8B349BA737D2CF9FB379F02574B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

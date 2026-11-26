@@ -21,8 +21,7 @@ Microsoft Outlook – персональный информационный ме
 ```bash
 magnet:?xt=urn:btih:C747ACCAF1DF9DF762953A76AFC32FB15C6A6C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Homefront – сюжетно-ориентированный кинематогр
 ```bash
 magnet:?xt=urn:btih:3C8FD21E95306E9C36194D904B9EB27F6906EEEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Tower Builder / Каменюшки (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:DAF44EA7442F545D8D9F8680F52BE67BCF4C546A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

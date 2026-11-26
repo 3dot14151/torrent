@@ -19,8 +19,7 @@ Lynked Banner of the Spark (2025) [Ru/Multi] (Build 87707/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:66D5C737FF4B1B38741C4CF21ADA0CE30CF10CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shining Resonance Refrain - это ролевая игра в жанре экш�
 ```bash
 magnet:?xt=urn:btih:88E3EEAEF4CC57AF987B68DECAB7543D8709A2A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warcraft II: Remastered (2024) [Ru/Multi] (1.0.0.2157) Repack Necros
 ```bash
 magnet:?xt=urn:btih:B809DCF41679B955474790ABAC225499576570A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Knightica - сочетает в себе жанры стратегии и сим
 ```bash
 magnet:?xt=urn:btih:C700E062F0DFC49A8D9000122D8932A040D268DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Castle Crashers (2012) [Ru/En] (3.0/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:670AB29E3CFD63F3C66B0D0B8E8B354470A6513E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack Wanterlude [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:0A8F3DF78A26B4C83DCC4DF140E57734600D8D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Forgotten Seas – станьте властителем морей или за�
 ```bash
 magnet:?xt=urn:btih:AD4FDCE9D2E68FF47F65D6F7A3FE7647F0E7FDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Forgotten Seas – станьте властителем морей или за�
 ```bash
 magnet:?xt=urn:btih:8BFDCAF37115FC1DB5F884ADED606E637B6CDE0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack seleZen [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:FEAC67DF0A78FE73360720495C9A860F55D1F78F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Scene Rune [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A4A7939FB42F6820913069ECAB4F96326627B211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Double Dragon Revive - это переосмысление оригинальн�
 ```bash
 magnet:?xt=urn:btih:8FEDFA0CFA2799E757880D5B8066EE4D2F632649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Absolum создана с любовью командой мечты, котор
 ```bash
 magnet:?xt=urn:btih:48EEF111D25EF3D5CA09EBC0B8F9094A0FC7B0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Bye Sweet Carole - это уникальная хоррор-игра, сочет
 ```bash
 magnet:?xt=urn:btih:D6F4F30721471111B993ADEB8B92D36E213A77C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28891) Repack Necros
 ```bash
 magnet:?xt=urn:btih:6DF8B5F01DAAF65368A7B49B7B7E30AD6555CAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Teenage Mutant Ninja Turtles: Shredder’s Revenge - это яркий, сдел
 ```bash
 magnet:?xt=urn:btih:E2E1BAFFCCB5BB2CAFFB9D520B0FABCDBA8FFBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1 Build 18571048) Repack Necros
 ```bash
 magnet:?xt=urn:btih:58AA201D14E71618993E4E6E7AF518EC141F051D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Othe
 ```bash
 magnet:?xt=urn:btih:AE0ECBA304B671BF4AA956658542C1811893C111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

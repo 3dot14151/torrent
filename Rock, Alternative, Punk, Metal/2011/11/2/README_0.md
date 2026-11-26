@@ -23,8 +23,7 @@ Circus - 2 Albums (1976-1977) [MP3|320 kbps]<Progressive rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Jump - Jump (1971) [MP3|320 kbps]<Progressive rock>
 ```bash
 magnet:?xt=urn:btih:BCC415E60376F041512BC7ADB9B6CB97E75BCE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Circus - In The Arena (1977) [MP3|320 kbps]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:4A03B57964BF9A39C37C85608B3C515FB94E935C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Ruts - The Crack (1979) [APE|Lossless]<punk rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Magic Sand - Magic Sand (1970) [MP3|320 kbps]<Hard Rock/Psychedelic rock>
 ```bash
 magnet:?xt=urn:btih:A1D7EFA9BA7E48F61F5A8DC69849238167285A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ John Mellencamp - Words & Music: John Mellencamp'S Greatest Hits (2004) 2 CD [FL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

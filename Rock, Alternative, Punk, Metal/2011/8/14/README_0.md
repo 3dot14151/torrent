@@ -28,8 +28,7 @@ Thin Lizzy - Bad Reputation (2011) [MP3|192-320 kbps]<Classic Rock/Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6BB947444221C693F347FB3E75E07E109BD3CD7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Elevener - Symmetry In Motion (2011) [MP3|320 kbps]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2055B9F694CFAC495C8E0A6A836A42FD9C9B8136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Roger Glover and The Guilty Party - If Life Was Easy (2011) [FLAC|Lossless]<Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ VA - 50's 120 Original Hits (2010) 6 CD [FLAC | Lossless] < Rock`n`Roll; jazz; B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Band In The World             (05:10)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Queen - Greatest Hits (2011) Japan SHM-CD UICY-15001 [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:D99D9FAC21A7789B702980443694152ABBC28503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA8ABF0C0574CF1D33339D2EA73222A54DDFF024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

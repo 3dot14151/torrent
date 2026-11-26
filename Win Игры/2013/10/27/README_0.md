@@ -19,8 +19,7 @@ Dark Canvas 2: Blood and Stone Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:05B1E135AC1BE142E0416A73ADE2F891EF303C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Teleglitch: Die More Edition — это захватывающий шутер, �
 ```bash
 magnet:?xt=urn:btih:34320509CFD020150ADE89F9DF3ED962F6A886D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ World of Goo — это неоднократно награжденная физ
 ```bash
 magnet:?xt=urn:btih:7AB27BDE14842A3CF8AA8D7048EB7FE3C58B3FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Defense Technica – игра популярного жанра «tower defense�
 ```bash
 magnet:?xt=urn:btih:E33BC3B886C413D94BA0E8DDD96B265C436BEB65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

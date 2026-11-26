@@ -26,8 +26,7 @@ Astra - The Weirding (2009) [MP3|320 kbps]<Art-Rock/Space Rock>
 ```bash
 magnet:?xt=urn:btih:C629839BEBF4AC61091514394FB4A5C22E25DB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Cem Koksal - 3 Albums + 1 Live (2004-2011) [MP3|320 kbps]<Neoclassic/Hard-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Nightrage - Insidious (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Van Canto - Break the Silence (2011) [MP3|320 kbps]<A Capella Power Metal>
 ```bash
 magnet:?xt=urn:btih:0CB176C2BD4B8F3D3CCEE0D7386D0E85BAC941C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Uriah Heep - Golden Ballads (1996) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:2B8B4E36D9E490148CC0B55594AF28E7CEB6BE1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ King Crimson - In The Court Of The Crimson King (40th Anniversary Box Set) (2009
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Jorn - Live In Black (2011) 2CD [FLAC|Lossless]<Hard Rock / Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

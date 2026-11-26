@@ -19,8 +19,7 @@ Bridge Constructor Portal (2017) [Ru/En] (1.0.0.0) Repack Aladow
 ```bash
 magnet:?xt=urn:btih:87ACDD63C4E832844355C9AFF1762FDB87B98EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

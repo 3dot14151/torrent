@@ -19,8 +19,7 @@ Deadnaut игра в жанре стратегии и, по совместите
 ```bash
 magnet:?xt=urn:btih:F09E0BC71BB5E5A14599805E3029E636594A79C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Frozen State (2016) [Ru/Multi] (1.00.271) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:BA01354A884C5D6054DA86BAAF9689A3E32D5524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

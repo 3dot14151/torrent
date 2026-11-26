@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:81A30E0F63BB6ECE449D31708AD702ECA89D0D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Glass Prism - Poe Through The Glass Prism (1969) 2012,  Flawed Gems [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:9ABAACB00E673C3A53EA1ED7BFCA63273870C0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Preacher Stone - Remedy (2016) [MP3|320 Kbps] <Southern Rock>
 ```bash
 magnet:?xt=urn:btih:5C5CE6AA2A8601E5ED840E332B584CB231EB5E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Nightmare - Dead Sun (2016) [MP3|320 Kbps] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:2CA3771A1F591C37AE9AA009F8E5381D2A1B111D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Vanilla Fudge - Out Through The In Door Tribute To Led Zeppelin (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:9ADF6508E74E1369E37FF2EC707D47DEA2C03E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D61B452B78422F6570CD2E0A5B5C6DBC47677BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Accept - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C800109462609500675C44D0948BDE1A8ADB6A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Metallica - The Best Ballads (2005) 2CD [MP3|320 Kbps] <Metal>
 ```bash
 magnet:?xt=urn:btih:9F47E1652CB2FF6643CF55BBA10E74B796311050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Legacy 2: Prisoner / Наследие 2: Пленник (2018) [Ru] (1.0) Un
 ```bash
 magnet:?xt=urn:btih:2E562EDE7411F58A8C1F66EB049F08513ADFF0E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rusty Lake Hotel – это детективный квест с необычн�
 ```bash
 magnet:?xt=urn:btih:E65011B7C2980C3AB5E68B10D050090BDD3732F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

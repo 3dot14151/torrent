@@ -22,8 +22,7 @@ Gaerea - Mirage (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:E1CB80AAF00B33CFC961D71452E40DF8993B77AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Siege Of Power - This Is Tomorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, T
 ```bash
 magnet:?xt=urn:btih:49EF672D2455B1E3401040FBD970FE4851F76E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mammoth Caravan - Ice Cold Oblivion (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Doo
 ```bash
 magnet:?xt=urn:btih:8BB95E6462517C0429D23649DCEFB1DE878343B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Accept Death - Accept Death (2006) [FLAC|Lossless|image + .cue] <Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:50C4C659B8338B318CA31F11942C7871E3F79445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Richard Stepp - Richard Stepp (1981) Japanese Edition, Reissue, 2015, Creole Str
 ```bash
 magnet:?xt=urn:btih:4816427F159D66DBE97FDCE649858801FADAAD93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Decoy - Without Warning (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:411B1E3E15AE1998E38DCE033F77057AFBC65B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ La Scaltra - Mater (Мама) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:99BB142082A94D59BC6DCAA567A8071A62C7C78A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Arc Of Life - Don't Look Down (2022) Jараnеsе Еditiоn [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:4089493AFD46A367461A9A8FADAF7CD933FAE5FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Brian Jonestown Massacre - The Future Is Your Past (2023) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:6E8B1C24B04C47B1BE45067A9635FC44C1505141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Maerzfeld - Alles Anders (2023) [FLAC|Lossless|WEB-DL|tracks] <NDH, Alternative,
 ```bash
 magnet:?xt=urn:btih:EFDCAF2C74212A42B7C717F7CF90E8D4178313C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Nevena - Nevena (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:C826590A65802BA1858E1CC269D45394A9864DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:6921CB811330DB1B8297E216ED32A4D42AE6B4AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Sound Of Smoke - Phases (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner
 ```bash
 magnet:?xt=urn:btih:B8D5BABFCDD4C986177548C10C70EFA74816EBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Harlem Lake - Volition Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern-Rock,
 ```bash
 magnet:?xt=urn:btih:C63F05234E1436FA793E9E677EE61A1C0FD61ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ In Tormentata Quiete - Krononota (2021) [FLAC|Lossless|image + .cue] <Avantgarde
 ```bash
 magnet:?xt=urn:btih:6A5F01C297D7A9EA08F18ABFC2EBCB902D383935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Othyrworld - Beyond Into The Night Of Day (2005) [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:42ACD33B6C6FA10FF8AA21FDA5B2F91CD7EF37D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Archaic Knowledge - 2 Albums (2016-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, D
 ```bash
 magnet:?xt=urn:btih:6A2288DEF651931AE810E28712BBA4A593FCDBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Slumbering Sun - The Ever​-​Living Fire (2023) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:068959F5FE2B06E3DA1E63CA8B3250B80A97E348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

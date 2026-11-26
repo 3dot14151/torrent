@@ -19,8 +19,7 @@ Skelethrone: The Chronicles of Ericona – в этом достаточно не
 ```bash
 magnet:?xt=urn:btih:1CAAA7C7728D142429A876923A8FE4F1FF86458B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dune: Imperium (2024) [Ru/Multi] (2.2.10.1211/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3639379FEB409539F40BF86C2E13F8A199D33B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Peglin (2022) [Ru/Multi] (1.1.10) License GOG
 ```bash
 magnet:?xt=urn:btih:E5B8E795C0999A6F6B0DE478DDE89F31A2C87D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fabled Lands - ролевое приключение в духе старой ш
 ```bash
 magnet:?xt=urn:btih:DE7FCC97DC0D566DF1D454289ECCE3FE13B6817B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Zoria: Age of Shattering – тактическая групповая стра�
 ```bash
 magnet:?xt=urn:btih:9C71EDA01258EBB12FA1AF3A85C26B463E43AC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) Repack Le
 ```bash
 magnet:?xt=urn:btih:32920CBF2E10398A903E1EE290F1865896224E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Repack FitGirl [D
 ```bash
 magnet:?xt=urn:btih:8D2EA46A0FCB0556992CF4B1C6D7F49A927E1CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Terraforming Mars – официальная адаптация популярн
 ```bash
 magnet:?xt=urn:btih:B256A0452C7BDAF1BAB96FEA1745B48268F3D264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Siege and the Sandfox - это стелс-метроидвания в еди
 ```bash
 magnet:?xt=urn:btih:AF2108DD8E86D7D31A5866511299CC7595E1BFDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.1) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:B731E0123F372E37BE499B50D8AAC0DB9C4B09F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.80) Scene Razor 1911
 ```bash
 magnet:?xt=urn:btih:8E5C235E381438308D10AB7CB2FDB28CF676DAD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Scene Rune [Delux
 ```bash
 magnet:?xt=urn:btih:42C1114E80E5E9C54490F8CD4246C7E8CE49E2AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

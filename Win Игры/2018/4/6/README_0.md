@@ -19,8 +19,7 @@ Dawn of Andromeda (2017) [Ru/En/Ge] (1.096/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:AD0881F0F2EBD90928C507065084E42374C49D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F865CCC3B0DE2C93B49B60BC3F1836522148A655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

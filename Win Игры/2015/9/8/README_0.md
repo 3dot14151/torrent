@@ -19,8 +19,7 @@ Phantasmat: The Endless Night / Фантазм: Бесконечная ночь 
 ```bash
 magnet:?xt=urn:btih:B102BFE8E6E5FAF9C77935C18BF89A00E6404F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Beyond Eyes (2015) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:FBA37FEB75813E30A3757DDB7A5499A615A429C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Red Goddess: Inner World – приключенческий платформер
 ```bash
 magnet:?xt=urn:btih:12EFBF7CA06C411DFAB77F8DE678548383A00D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Daydreamer (2015) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:1A40E20EE5A4ECD0024BF48B8AAF98E3B8E8AA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Exile's End (2015) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:D2CDB65354E8AEEDFA5771555AEC42B23F1C124E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Onikira - Demon Killer (2015) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:0BDCBACF5C9EF0350D96DE7632D8CFF87A1A4FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

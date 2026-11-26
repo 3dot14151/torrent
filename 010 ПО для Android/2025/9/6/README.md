@@ -19,8 +19,7 @@ Link TV — бесплатное приложение для онлайн-про
 ```bash
 magnet:?xt=urn:btih:74FE79150DB4A5509F1A29754D2DB312C04DA73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SHAREit Premium: Pure Share v1.1.98 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4CB2A301603A882E37F85D0C28F5CCCB62BE6685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Anews – это быстрый и удобный способ читать но
 ```bash
 magnet:?xt=urn:btih:2507BFCF2A930AD58596C7E1DB36A661A1D141AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Logic Circuit Simulator PRO предоставляет вам место для 
 ```bash
 magnet:?xt=urn:btih:4E0B8434D27DA9E48365B834F26DE8A11ED3D713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ TVGuide v4.6.0 Premium Mod by Alex.Strannik [Ru]
 ```bash
 magnet:?xt=urn:btih:86FDAFFE200F20C8FA1083C9E412F25DEFBEFF06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

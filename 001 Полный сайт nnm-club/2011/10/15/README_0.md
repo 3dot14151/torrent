@@ -18,8 +18,7 @@ Guardian Dragons (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:60B579F31F53BEAF74F6A44BF11CF2E767B449D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC1CAA99BD7F49C4BAFFCDB92E1CF826B849A61D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Joris Delacroix - Room With View (2011) [MP3|320 kbps]<Electronic, House>
 ```bash
 magnet:?xt=urn:btih:351CAE44467394D41C89F24EF5C22AB58590009D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ DJ Kocmoc - Dub Step Part.1 (11.10.2011) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:1E21608F9DB43F43D3D69B854D216FBAE6C34C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Зарубежные клубные новинки vol.13 (2011) [MP3|320 k
 ```bash
 magnet:?xt=urn:btih:121EEF09CB7F1BA8A217028214A144AEF40F2253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Performance Auto & Sound - специализированное зарубежн
 ```bash
 magnet:?xt=urn:btih:C3CF4649E54B32FBE15344CF656F0CC07F088966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ USEXY. Special Edition - специальные выпуски журнала US
 ```bash
 magnet:?xt=urn:btih:7BC04E96609ACFFA94DA3ECB8079706E7525CC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ DJ Kocmoc - Dub Step Part.2 (12.10.2011) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:73D449D0E8461E4620BF9D9D295631B1D8431D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:245DBA9FADBBDA2D781A77E3A2237EDC8ADF12B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4A109CE2DA203A5A0211759BD346D523E645650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Mixed
 ```bash
 magnet:?xt=urn:btih:D2754B039A921E75F402229F9456E82EAE0C29A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ USEXY это самый гламурный тайваньский мужской
 ```bash
 magnet:?xt=urn:btih:AA4540054F1C417E22BBCC9CD4C9F18D59E1F6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17D03A491B227F5BBD5EA122CDF6EA7134FCFEDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ USEXY Special Edition - специальные выпуски журнала USE
 ```bash
 magnet:?xt=urn:btih:0CF9B5D7E82F10436D1E9B17E07F611C003D119A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC38B8EB0A81A24EFF3CFD2BE94DB3CE3DCF8ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ USEXY Special Edition - специальные выпуски журнала USE
 ```bash
 magnet:?xt=urn:btih:E1837FF389E1F9DF138682494AE3F4456038A575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Sonic Prophecy - A Divine Act of War (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1AAD80E421F0C9D8B0C89B0C7E8B17052424B941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ Guardians of Beyond: Witchville Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:E0D8D118A75ADC3C554BFF9665663C823FDA4706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ Auto Bild - авторитетный европейский Журнал об а
 ```bash
 magnet:?xt=urn:btih:8CC685BFBBC0669EF0F4B7C94015FE2AA7EC0668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ Odysseus: Long Way Home (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:C2C8C16DEEA080A597E97EC6BD35BD7AD96CFA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ USEXY Special Edition - специальные выпуски журнала USE
 ```bash
 magnet:?xt=urn:btih:0546A6E551DCF588F1B0745B8C96776B147CD780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2354807D948D9846E0097352DC1006DF47FF0237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ USEXY Special Edition - специальные выпуски журнала USE
 ```bash
 magnet:?xt=urn:btih:69DE0407013DD1BF573DEFF5E11A0B5A2D175CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B1A2FE84848ACA92F11F84B481EC21933EAA9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

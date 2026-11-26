@@ -19,8 +19,7 @@ Troubleshooter: Abandoned Children - это первый сезон пошаго
 ```bash
 magnet:?xt=urn:btih:5E1E165D187CABBD2E863E528DDD5C244E414334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Machine Mind - это экшен с элементами выживания и R
 ```bash
 magnet:?xt=urn:btih:C793145177635AE47497042A54B6FCAEC3DFF86D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:92202758E6946941A88BED4ACD9BF4FB0F0D9CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ground Zero (2026) [Ru/Multi] (Patch 1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B3EADDE6B671CE308D97B9E0A45AA1964D9E0ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Camper Van: Make it Home предполагает обустройство мо�
 ```bash
 magnet:?xt=urn:btih:B3CC0B2E1B96DCACFCFEE2D987EE61296D541FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Outbound (2026) [Ru/Multi] (1.0.2-797/dlc) Repack FitGirl [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:D84CA1C58234B35BDFFDD415C9EFA6D484351FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Causal Loop - нарративная головоломка с научно-фа
 ```bash
 magnet:?xt=urn:btih:D81B957B2F24B1FC894C03B7DD26852A94069366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ MOTORSLICE - это динамичный экшен-платформер, вдо
 ```bash
 magnet:?xt=urn:btih:BEF622CCDA82BA0DF2E772BB8313D552B1280308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Hotel Architect (2026) [Ru/Multi] (1.0.0.7) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:48CA0EE50BC11D0ADC0A12EED52DC86DC3338095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dark Dominion - мрачная Souls-like история о человеке, п
 ```bash
 magnet:?xt=urn:btih:12ECA5336693B20F4D054FC5A4523884D9985B43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Dead as Disco (2026) [Ru/Multi] (Build 23060593) Repack seleZen [Early Access]
 ```bash
 magnet:?xt=urn:btih:F8FE3235DEB6BBA997B3127E187875DB904EDC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Shards Of Solitude (2026) [Ru/Multi] (1.0.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1FE5CDEDCADC72B7630094784E51F69F641F662D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Willy Morgan - классический квест в мире современ�
 ```bash
 magnet:?xt=urn:btih:2E9733D31812275D805EA1AB228A31640136D2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Whirlight – No Time To Trip - необычный квест, расширяю�
 ```bash
 magnet:?xt=urn:btih:67F542EB8FD5A898D0849CA12653AF1A42328C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

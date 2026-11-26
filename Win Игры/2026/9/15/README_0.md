@@ -19,8 +19,7 @@ Fatal Claw (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DDC2A9097C6062AA5735C9E8598F19DA7AE0696E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hunted: The Demon's Forge / Hunted: Кузня демонов (2011) [Ru/Multi] 
 ```bash
 magnet:?xt=urn:btih:53AD433796CF92CA9D7065102B9B9057E5BCE8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sunken Engine (2025) [Ru/Multi] (1.0.33) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9A39550F1A4DC743813BE2296573C8F099D31D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rollerdrome (2022) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4BD57BD5D61001EA2EF639423106D6CB2E34921E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Painkiller (2026) [Ru/Multi] (0.4.4) License/Mod GOG [RTX Edition]
 ```bash
 magnet:?xt=urn:btih:1620846716024699B1F70AB660AFD72E8B73EEF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

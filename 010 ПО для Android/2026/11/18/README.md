@@ -20,8 +20,7 @@ ReadEra Premium – читалка для книг, позволяет чита�
 ```bash
 magnet:?xt=urn:btih:147D5B5E8B526953891034C5045DE561D91F3B99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ AmneziaWG 3.1.20260813 Mod by Алексей-52 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:620D46C95D3C26384734E8F233F424C9BEFC8D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ NNM Club TV — клиент каталога NNM-Club для Android TV и см
 ```bash
 magnet:?xt=urn:btih:E59D9FAE96250C2F809893166D5863B3C837F5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:CEC3D9ED81C39F9D55F87ABD36C8ABB1F699D1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A68924E790352D43A9D46EF095BAA0D73444134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:024942AA52AE8125BCFE5B4D78E93E65030F13B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ VA - No Sound Lost: NSL002 (2013) [FLAC|Lossless|WEB-DL]<UK Garage, Ambient, Dub
 ```bash
 magnet:?xt=urn:btih:BB13C1F657E43703AA5E26CE55D5D264FD628D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Nivathe - Enveloped in a Diseased Abyss (2008) [MP3|320 кб/с]<Funeral Doom/Bl
 ```bash
 magnet:?xt=urn:btih:93D6902174669FDAFE1B7E784296D95AD52DE14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Einherjer - 6 альбомов (1994 - 2003) [MP3|320 кб/с]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:1549C7289419D6BF1409DBE041230BEE93408B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Joshua Jern and His Orchestra - Cook Then Chill (2012) [MP3|320 кб/с]<Mainstr
 ```bash
 magnet:?xt=urn:btih:800E1F99D37F1FB48F3C49DC9542717EE74F0A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6302F60DA57FE27C9E638C10E39A99FE0055FBDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ VA - Spring Dance. March (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:68CE4CC0729BE2046B310FBCFA0074EE863AD281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4D4CCE520ABEF7A32CF1453331E13E1CDC51EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:315644F514639D851FFA7EC5927D924B245C3602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ Erroll Garner - Collection Vol.3: Too Marvelous For Words (1999) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:A3C75055075E8D3795AE2105CE27BC5F16F0BDF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ VA - Bikini Lounge - The Best Chillout Tunes (2014) [MP3|320 кб/с]<Lounge, Ch
 ```bash
 magnet:?xt=urn:btih:338B3BEA34EDA58F1B4D1BD9014213CD74082B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ Ruby the RabbitFoot - New as Dew (2014) [MP3|320 кб/с]<Indie Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:0F1726151CEF4545125D9ACBFD8443EC6C4CF628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39BA4A3ED2FA030B218555E12E99FA4CAC089DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BC1E11427BCA425196CB246381572C4599AB26A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ Gallowbraid - Ashen Eidolon (EP) (2010) [MP3|320 кб/с]<Atmospheric Black/Folk
 ```bash
 magnet:?xt=urn:btih:0B6C0C4B2AF86B91084D10ADFE60C37F85585E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB0D2A3DE397BCF38713E3CFD9AC4D3A877892B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ VA - 100 Клубных Хитов 18 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:DE268403C49E4A3EEBB9DA4AB1B0632419B92A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ Lily Moe - Lily Moe and the Barnyard Stompers (2013) [MP3|320 кб/с]<Swing, Ja
 ```bash
 magnet:?xt=urn:btih:2FFE177B6BEE45193FF0277F45CCA16BCC8F22CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:062F671B61A5E749A198F2F0D491645FB358AC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ VA - Finest Groovy House Music Vol 2 (2014) [MP3|320 кб/с]<House, Club House>
 ```bash
 magnet:?xt=urn:btih:09CBDAE15A89835F35E3C304A43C5E8F8A264529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ XI Зимние Паралимпийские Игры 2014. Следж-хокк�
 ```bash
 magnet:?xt=urn:btih:27087EBE19B832413D0E967B90DA47CDCD153F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +701,7 @@ Hiromi The Trio Project - Move (2012) [FLAC|Lossless|WEB-DL]<Fusion, Progressive
 ```bash
 magnet:?xt=urn:btih:582871B45EA73B6871463CF88DA79E6B905B8059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +726,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9A05D8A55F2F971A8E2CB03935ED7D6B1DBCCFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD30D79E7E7133827BC0A4806FCD31EBC29AA525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

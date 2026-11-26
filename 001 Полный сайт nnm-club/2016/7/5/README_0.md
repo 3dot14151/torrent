@@ -21,8 +21,7 @@ PharaOm - Tesseract (2012) [MP3|320 Kbps] <Goa>
 ```bash
 magnet:?xt=urn:btih:FA9A2523A91C96A1A4C9DEF6F6E627714EDEA638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Siren Song Trance Vocal (2016) [MP3|320 Kbps] <Vocal Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:591CAD0641E3198C3556BCD6B76A59F0D4095CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Manifold - Digital Sun (2016) [MP3|320 Kbps] <Full-On, Twilight>
 ```bash
 magnet:?xt=urn:btih:793E840A4F845AF1DB695E1FD8852354996C5EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Ibiza Vocal Trance (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:4F8728A38E882DF77A48D66B3A03A48B0A6C1674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Pentatonica - Mars Is Not Red (2015) [MP3|320 Kbps] <Full-On, Morning>
 ```bash
 magnet:?xt=urn:btih:E8480AAA2E0B2FA829F9130952DB34DD8395AAC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Pixave — менеджер изображений для Mac с широким�
 ```bash
 magnet:?xt=urn:btih:8E6D5080EC836115DCA9297FC17422BA037B1603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A908FBEAC1159414E5E24D44D32CC87DE393701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:D0052EDF53109DFFCDCE165E276DDCAE3904C5CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ PharaOm - Under The Sun Of Goa (2013) [MP3|320 Kbps] <Goa>
 ```bash
 magnet:?xt=urn:btih:F57B755D2EFE032124637716E2A79F65B0A3279F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Oliveira - Stellar Communication (2016) Troll N´ Roll Records [MP3|320 Kbps] <F
 ```bash
 magnet:?xt=urn:btih:C738A59FD390B9E57862737728ACDF716D61066A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78AB335D7306A7D9C2964AA939C4F0425F6D8310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Earotic Vol 1 (Chill Out For Your Ears) (2016) [MP3|320 Kbps] <Deep House, 
 ```bash
 magnet:?xt=urn:btih:66AB362F2E6A56062520243FB7109B36F1528160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Marga Sol - Colours (2016) [MP3|320 Kbps] <Lounge, Chill Out, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:7414D4AAF712F8DFE240E15EE87A8109B1C8BDCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:159597BFF0374D017D0D0ED6B429ADBF94306644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Be'lakor - Vessels (2016) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:F848E24C1BC9C5303594EA53A1033441EE57C8FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ VA - TOP 100 Club Tracks (2016) [MP3|320 Kbps] <House, Electro House, Club>
 ```bash
 magnet:?xt=urn:btih:51C119EF6B5483024254D9E9F75F39A503482E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1B415BBC513205D7CEA158C2127C42E0B621FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F62855B95F34C0401B5979784A38DB789B3CB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ Terry Oldfield & Soraya - Namaste (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:6414683AF6430A962E6C1D1B7EA9335DEC77CF78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ VA - German Top 100 Single Charts (11.07.2016) [MP3|320 Kbps] <Pop, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:D5C9D4FDAF706FEDD6BE233619E1CF48FF845576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ David Clavijo - From the Depths (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:07AF899CDEA15BD7B1A1E9FFF59A5D55A01AF509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B04C0D16557A4B8FB352EB01C9380CC2844DB4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55334D25518553D354489507DF657CF911BED007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:80316CF43FDE8681CB79008562A3FCB94BB950AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F17D8DFEE9EB3BC8F22CFBAD9463B6C4228D0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Simonopetras - Psaltirion Terpinon - Hymns From The Psalter (1990) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:8D872FE75A615DC475E9D0B3134A67950383E707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

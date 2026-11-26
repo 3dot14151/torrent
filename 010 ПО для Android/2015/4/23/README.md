@@ -19,8 +19,7 @@ Wondershare MobileGo - незаменимый инструмент, позвол
 ```bash
 magnet:?xt=urn:btih:8F4AF6BE5F25BE288E8CA9FD106B3631861A8DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

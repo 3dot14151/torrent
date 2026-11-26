@@ -19,8 +19,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:16B9DCBC5FD39CC1E67D4161469B65CF8203F0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack seleZen [Elite Nig
 ```bash
 magnet:?xt=urn:btih:8F70DE93EB90E5AB029C4A053B47B3BA5A0BE2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067/dlc) Repack FitGirl [Deluxe E
 ```bash
 magnet:?xt=urn:btih:750052CA41368826EF079C8F995F72DCBB42638C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dread: The Cold Case - это психологический хоррор от �
 ```bash
 magnet:?xt=urn:btih:AF6F549074EAE7D0A5EE9629BBD1395A06769651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Death Must Die - это RPG-рогалик, в которой вы играет�
 ```bash
 magnet:?xt=urn:btih:1799F52C6141F60B588A5DA1494C46C4EAC75613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sears: The Sky Frontier - это красивая и эпичная страте
 ```bash
 magnet:?xt=urn:btih:6BAE6198873A9489EF9F42C03896CB05607D860E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Meat Fest - динамичный шутер с аренами и коридор�
 ```bash
 magnet:?xt=urn:btih:4662C7ED519204B14467B535807AE1A0E363E532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Paranormal Files 13: Chaos Weekend / Паранормальные явления
 ```bash
 magnet:?xt=urn:btih:D680A5A0AEDACD9504C1BE7B3F4602E2F1FEB724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mini Cozy Room: Lo-Fi (2025) [Ru/Multi] (1.02.04/dlc) Repack FitGirl [All in One
 ```bash
 magnet:?xt=urn:btih:8570D57ED9D562C6F3A04814F2B32681213C7BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Detectives United 8: Vengeance from the Past (2025) [En] (1.0) Unofficial [Colle
 ```bash
 magnet:?xt=urn:btih:7EC40F58EF2E08979BC4F824DB7C2B6C7B280372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Reveries 2: Soul Collector (2014) [En] Unofficial [Collector's Edition / Кол�
 ```bash
 magnet:?xt=urn:btih:B8051F09A8E85ABA341B8B162384E85497265A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery of the Ancients 4: Deadly Cold (2015) [En] Unofficial [Collector’s Edi
 ```bash
 magnet:?xt=urn:btih:940FF3F188C59C0915C522996859117C836BF94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reveries 2 : Soul Collector / Грезы 2: Собиратель Душ (2014) [
 ```bash
 magnet:?xt=urn:btih:95FFCD449931D7EC93F8A12F9CCE5766B6F437BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Crashed Lander (2014) [En] (2.5) License HI2U
 ```bash
 magnet:?xt=urn:btih:14E7A2DE40C5DC2E43FC615B2916351FE61061F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Grim Legends 2: Song of the Dark Swan / Забытые Легенды. Песн�
 ```bash
 magnet:?xt=urn:btih:227312969758D96501624B2B871C00A4795B464D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

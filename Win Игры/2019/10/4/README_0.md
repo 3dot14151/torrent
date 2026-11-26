@@ -19,8 +19,7 @@ Worlds Align: Beginning (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:96CF77137AB06DABFE9717047FF6FC2CA5BC625D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Minoria — новая амбициозная игра от студии Bombser
 ```bash
 magnet:?xt=urn:btih:2F88E282EB5CF50B7C885A01781D5C81BAC3C2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Frontline Zed (2019) [Ru/Multi] (1.00) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:B1D789BCC1CC267FA7F73E967EE94D7949AA4791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

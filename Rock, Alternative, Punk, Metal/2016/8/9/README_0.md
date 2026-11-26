@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:FB642A6D0660EF751F74238E91914932B71A649C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mike Pachelli - Tube Driven (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Blue
 ```bash
 magnet:?xt=urn:btih:502FE046920491BDA01112DB90664EAF15E0F1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:02BA7EA19283552979786BD7AC473B5B9C4D6429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nick Simpers Fandango - Slipstreaming & Future Times (1999) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:077E2FF8C0224C63EA11F27A4556832306F80EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Gary Hoey - Dust & Bones (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues R
 ```bash
 magnet:?xt=urn:btih:BE3E7A5D0F3835338FE49C10EA3EE4B1536ED1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Iron Butterfly - Light And Heavy (The Best Of) (1993) [MP3|320 Kbps] <Hard Rock,
 ```bash
 magnet:?xt=urn:btih:7DD8980A43530F0B635209CEB830AD13510B2D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Blue October - Sway (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Mode
 ```bash
 magnet:?xt=urn:btih:339996E66B6523A0B0F26839AA86A60426CF6C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Trans-Siberian Orchestra - Letters From The Labyrinth (2015) [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:99442838BEE5890B02626FA151B84CF505AE88E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

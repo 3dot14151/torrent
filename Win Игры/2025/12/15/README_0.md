@@ -19,8 +19,7 @@ Phoenix Point (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:6ED1A5411D27D61A97BF32EE633EBB1EE76AF88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rugby League 26 (2025) [Multi] (1.0.3326) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9E58E321997A7DDF9376289DD66D28284EF3CA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Adrenaline Rampage - агрессивный экшен, в котором сол
 ```bash
 magnet:?xt=urn:btih:68C3979AC6AE0EA81FFBC1D65DEE6E88C8E1E501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shadow Gambit: The Cursed Crew – оригинальная стелс-стра�
 ```bash
 magnet:?xt=urn:btih:FB8063A9FEDBF1DF63E8B753702B0000B1B813D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cybernetic Fault – сатирическая приключенческая и�
 ```bash
 magnet:?xt=urn:btih:E598882DC4BF903D0907C3C938CB2C9A73F7167D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Looper Tactics - карточная ролевая стратегия, гейм�
 ```bash
 magnet:?xt=urn:btih:AE24D603F4F8B66BEFE0F677C9366B2B4446DF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ MyVoiceZoo - уникальный симулятор зоопарка, в кот
 ```bash
 magnet:?xt=urn:btih:C12847DBC0A1FCBC1BF1B832A7CAB4773EC82E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Chaos Galaxy - это пошаговая стратегия в стиле пик
 ```bash
 magnet:?xt=urn:btih:9790EFC7D125286DB0540B8BD1864F657DE95FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.12.0/dlc) Repack Hardw
 ```bash
 magnet:?xt=urn:btih:ED7B64E8632B1B274AA66C558E731EA8525F41CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Metal Mind - двумерный экшн-рогалик, дающий возмо
 ```bash
 magnet:?xt=urn:btih:B5F3FC8A1CAD42B3319226EEF1BA50C16AF60D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ ROUTINE – это sci-fi хоррор от первого лица в стил�
 ```bash
 magnet:?xt=urn:btih:E508B31615E4E7F9C37896E360DB44B3DA113CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

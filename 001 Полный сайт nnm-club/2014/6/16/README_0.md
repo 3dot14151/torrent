@@ -27,8 +27,7 @@ Bjorn Berge - Live In Europe (2007) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:F947CE08F320620B6D2A4AFD11F017396F6859C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Deluge Grander - August In The Urals (1996) [FLAC|Lossless|image + .cue]<Symphon
 ```bash
 magnet:?xt=urn:btih:BDFA333BDDAB5534FA7B57E2B084C7751FB2C5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Ronnie Earl & the Broadcasters - Just for Today (2013) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:9BC93E27F78C7D2F9A74569D8F0D87085F49D84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Marc Ford - Holy Ghost (2014) [MP3|320 кб/с]<Blues, Blues-rock>
 ```bash
 magnet:?xt=urn:btih:CEBB5F156DD685989CBB99C6795DBC19EFCF4328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Kvelertak - Kvelertak (2010) [MP3|320 кб/с]<Hardcore Punk, Black Metal>
 ```bash
 magnet:?xt=urn:btih:93161D0DE0C6E12518CAC2803545D865E067D89E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ VA - DeepSoulDisco Vol.1 (2014) [MP3|320 кб/с]<Disco, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:B166FB23A663DF257C4AC816F79234E23BB72A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1099DA1D006B60B0050132C5B7F05FA9A8CA2869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ Al Atkins - Victim Of Changes (1998) [MP3|320 кб/с]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:D39E1E11ECCA24DB5083B3BEBEC6EDE7203C2D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Satsuki Iida - Moon River (2014) [MP3|320 кб/с]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:A02F15D0D7E5D26CE0812084AF3C81AB43BF1B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ Ashampoo Music Studio 4 - всё-в-одном для создания, реда
 ```bash
 magnet:?xt=urn:btih:E781CC39BBA09D1D3B37580DA32E6F4699FBFD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ Jerry Goldsmith - Вечно молодой / Forever Young (2011 (1992)) [MP3|3
 ```bash
 magnet:?xt=urn:btih:BA4077EB68A1254D2FE976F4CC756831B4678A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ Random - Rock Me (1991) EP [MP3|320 кб/с]<Techno, Breakbeat>
 ```bash
 magnet:?xt=urn:btih:84F1A6C3B32003B83F69401704A400C7B9518235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +403,7 @@ Geoff Whitehorn - Whitehorn (1974) [MP3|320 кб/с]<Progressive, Art, Blues, Ha
 ```bash
 magnet:?xt=urn:btih:12E9D50BD00FC4ABBB144C730ABE184CDC711D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EFE5131FFA8318825AC736DC68D0A7CC0C4A961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +462,7 @@ Bjorn Berge - Blackwood (2011) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:805F030E645320771193CA07D2E039AF00F2211F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +496,7 @@ VA - Music for Work (2014) [MP3|320 кб/с]<Chill Out, Chill House, Lounge>
 ```bash
 magnet:?xt=urn:btih:2AA9E930184F1E02E659D49443847414BDD4A61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +530,7 @@ VA - Ibiza Clubbing Summer House (2014) [MP3|320 кб/с]<Dance, Club, House, El
 ```bash
 magnet:?xt=urn:btih:020B7A8BC8B2BADDA9E9CAAAE330754074CE9953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +564,7 @@ Lori Carsillo - Sugar And Smoke (2014) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:D58E1B9B4A79BB3A1ED1CE0E46974FD4D29C09A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +596,7 @@ Marry Me In Vegas - Hey Cap, We’ve Got A Situation (2012) [MP3|320 кб/с]<Me
 ```bash
 magnet:?xt=urn:btih:E9540010A5A531DCD4917ED0205C5596A6318192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +630,7 @@ Nelson Riddle - Бэтмен / Batman (2010 (1966)) [MP3|320 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:5D1CE81C3A359F5FE067B42DF1FFDF5C64BBE812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +664,7 @@ The Dutch Band Swing College - Jubilee Concert (1980) [FLAC 2.0 24/192|traks(Vin
 ```bash
 magnet:?xt=urn:btih:6242C931CA0639A20351EC00683A47E0F71B3DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +698,7 @@ VA - Music For Everyone - Dubstep & Drumstep Vol.1 (2014) [MP3|320 кб/с]<Dubs
 ```bash
 magnet:?xt=urn:btih:C2A6727581D527977B4AA33DAD4FD524195F3F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +723,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:479682EE195F3EF6E30EFD662C4788C425D91A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +757,7 @@ Beat Science - Out on a Limb (2014)[MP3|320 кб/с]<Drum and Bass, Neurofunk>
 ```bash
 magnet:?xt=urn:btih:02F46DF32DF2416E11495B3D49B461D28A45B183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +786,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3AA6207D10FF18EBEDC4A18E7F2602682B1F198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -836,8 +811,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F76377D4F5280BD0553109F428E62E7FF9F50C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

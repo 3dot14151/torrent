@@ -28,8 +28,7 @@ Willpowerless - Taking The Clock Apart (2012) [MP3|320 кб/с]<Alternative Meta
 ```bash
 magnet:?xt=urn:btih:A8E49E3D8EEBE78038DDA61F2081A0386C42284C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Story's End - Story's End [EP] (2012) [MP3|320 кб/с]<Alt.Rock / Modern Rock>
 ```bash
 magnet:?xt=urn:btih:6713890CEAFF83CBC01AAAAD418014596A39F3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Coheed And Cambria - The Afterman: Ascension (2012) [MP3|320 кб/с]<Alt. Rock 
 ```bash
 magnet:?xt=urn:btih:5EE4F392198D863E5B6F2BFE1915B5892443B277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ VA - Sleeping Beauties - Songs We Shouldn't Forget (2009) [FLAC|Lossless]<Rock, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ CD1 - Original Album:
 ```bash
 magnet:?xt=urn:btih:0D7E895D9B64790A2F5AB149B24895EFFD47D498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ The Birthday Massacre - Hide and Seek (2012) [MP3|320 кб/с]<Gothic Rock, Synt
 ```bash
 magnet:?xt=urn:btih:4D63A1B178AA082AFCF8618B2EF2EE5DEBB22DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Michał Malewicz, Diana Malewicz | Разработка пользователь
 ```bash
 magnet:?xt=urn:btih:F17B4437CC21958029E44F6B3AFE4F99B6C84A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

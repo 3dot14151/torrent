@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:17F1537D81264592A9502CD99E543B85EE71EE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75908AAED5E97E273DBDE3F69F4017D07679C620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:792F304776C82762C562210337300D24360DC457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ SketchCut PRO v3.9.45 [Ru/Multi] - Раскрой под рукой
 ```bash
 magnet:?xt=urn:btih:962764BD8BEA7F72CFE42EC2482D889EE092C6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Hotspot Shield - приложение для быстрого, безопасн�
 ```bash
 magnet:?xt=urn:btih:CF297244F23872CBD1C815FE4EB8039EA78ACB82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

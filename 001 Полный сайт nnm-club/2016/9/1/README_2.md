@@ -21,8 +21,7 @@ Get Us Out Of Here
 ```bash
 magnet:?xt=urn:btih:5A0AE7108B15C2E7763A9C18168BAAB3F8BCEBEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Label Pack - Delirium - 9 Releases (2015-2016) [MP3|320 Kbps] <Trance, Progressi
 ```bash
 magnet:?xt=urn:btih:0BBA74D6D00B19213031DA83DF74313D88FEA5B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ IT Expert - журнал для профессионалов в области I
 ```bash
 magnet:?xt=urn:btih:E50981CA325C9F0DD4082D775FDA0D64D1785DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 ```bash
 magnet:?xt=urn:btih:1BA5D7D965ECB26EBD7EB51CD340E57C431AB88A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E52B818EE225679C715B916E80D3F0E8823AC9DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 ```bash
 magnet:?xt=urn:btih:7ED05EC4E38EFC2225FE58593E494774AC392C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Sketch Art Photo - экшен для Вашего творчества.Форм�
 ```bash
 magnet:?xt=urn:btih:BE459FB7F0BA50DC5FC10CF43BE5AC9F702E3EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DBF2FF7EDCCC3C57B1EFF91C06B0DF4043A0C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Sketch It - экшен для Вашего творчества.Формат: AT
 ```bash
 magnet:?xt=urn:btih:4B51F62350FB381557A930F2904D76EF4682FB58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC3200B361230FB3B6FD9B7B55500479BEEEA935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Iron Man - экшен для Вашего творчества.Формат: ATN
 ```bash
 magnet:?xt=urn:btih:BF70FAEC08EEAF1F2C9C254F4E66C2A83E7F0CE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:71D78088A1D609243983123122D2F9092A7E2B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94CAA2A7E2B42937CAF007F629BDF556FCF9EA44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ The Veils - Total Depravity (2016) [FLAC|Lossless|tracks] <Alternative Rock, Ind
 ```bash
 magnet:?xt=urn:btih:F3217B1F6341AD9A68553A7172F1C2A2F241A3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ Random Walkers - No.Real.$.K. (2015) [FLAC|Lossless|WEB-DL]<Techno, Tribal, Indu
 ```bash
 magnet:?xt=urn:btih:C0E143324FD4EC0A4D4300D79528724BFB6CD4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ Avira Free Antivirus - бесплатный антивирус, антишпио
 ```bash
 magnet:?xt=urn:btih:53C0197C16A1C21283D89E1C15C3F048C475EA76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A04517CAC0F59547C0D728788762D2AD432F984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ Pro CINEMA V.1 - экшен для Вашего творчества.Форма�
 ```bash
 magnet:?xt=urn:btih:ECE53931742A9E0F7A856E7DFA8D3EBB4AD50114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ SR5 Rock Bass - бас гитара с высоким качеством зву�
 ```bash
 magnet:?xt=urn:btih:817FDDFCB2F6D6B987EB3137E79D4755A620D91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9EB791162F40725708A9D4D4C0C6DE3A88B5045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79A7150E5A5568C64548B3BFD1FCF9EDF25DBABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DA544D86F490988799C63049A737E414DB13C02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ Hard grunge - стили для Вашего творчества.Формат: 
 ```bash
 magnet:?xt=urn:btih:2E5375124F342918230601B3EF8BE2525ACF873F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B370CC9DE83804A6F73184CDC9FFD973AEDDA25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ Registry Life 3.32 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C595670B51A4E4258517AE47670D374F0DC53007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

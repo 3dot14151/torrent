@@ -25,8 +25,7 @@
 ```bash
 magnet:?xt=urn:btih:2366737F228592C361823D87ABCFF018AC2F96A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Sheryl Crow - The Very Best Of Sheryl Crow (2003) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:150BCB2EB9C8CBD324DC58498F6BE4C400A0ECC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Jethro Tull - The Very Best Of (2001) [FLAC|Lossless]<Progressive Rock / Rock>
 ```bash
 magnet:?xt=urn:btih:35AF380FB337A8308F59A63C848F3F9C941B3F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ From No. 4 Chart Album Deep Purple in Rock(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:45B35A9DBFCE43CF54F1AD9AAC56377F982BAD65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Kiss - Полная коллекция хитов (2013) [MP3|320 кб/с]<Hard 
 ```bash
 magnet:?xt=urn:btih:35BFBB688127383C5817E0682D37808236A3BDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:732294177B45DBF74EE05C24F0F46DF7196EB1AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

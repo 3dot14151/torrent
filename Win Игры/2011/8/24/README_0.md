@@ -19,8 +19,7 @@ Age of Enigma: The Secret of The Sixth Ghost (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:2BD4297134E0201AF3A28D756A643EC0DDD04BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

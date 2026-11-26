@@ -19,8 +19,7 @@ Call of Duty: WWII достоверно покажет Вторую мирову
 ```bash
 magnet:?xt=urn:btih:2409452C2799EA0BEBFF2E51F87A7AF87A389A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call of Duty: Modern Warfare Remastered – переиздание Call of Duty 
 ```bash
 magnet:?xt=urn:btih:C6C9184F4D4EE6ADAE3875581B0654A7E2583E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Escape from Umbra - это атмосферный хоррор‑приклю�
 ```bash
 magnet:?xt=urn:btih:45B9F7BDA1F8792E1A2F97ECAD87BF053F9E26B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Escape from Umbra - это атмосферный хоррор‑приклю�
 ```bash
 magnet:?xt=urn:btih:D67C7C5DEBE70912D4ADFA88676B4CCDBEB58A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DarkSwitch - это вертикальный градостроительный 
 ```bash
 magnet:?xt=urn:btih:2E24A7142BBAE4AE4957ACBF29E5877EEC2B12A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:44D48658CE43F2DC7DE1B792544638E75BCD0100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Mound: Omen of Cthulhu (2026) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:F6B21A95A8009B19D2B842EAAB29343C2CF0B1C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Echoes of the End - кинематографичный приключенчес�
 ```bash
 magnet:?xt=urn:btih:F0F91B64B019BE198F8FB8D4BE7BD6D7E3A0186C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Mound: Omen of Cthulhu (2026) [Ru/Multi] (CL34308/dlc) Repack FitGirl [Delux
 ```bash
 magnet:?xt=urn:btih:40C6E9C6184562A60A2424A58A712AE1FB744BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Mound: Omen of Cthulhu (2026) [Ru/Multi] (CL34308/dlc) Repack Other s [Delux
 ```bash
 magnet:?xt=urn:btih:62ED88B32A9BB494432FAD58201CFEFF046AC99B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Gothic 1 Remake (2026) [Ru/Multi] (СL 170775) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5ECB6298C3CD307307B34639CEA466DD6A96DAE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ After the Burial — американская метал-группа из го�
 ```bash
 magnet:?xt=urn:btih:BEF2DED4DCDA1AE27362F0F0F8D2AAC5DEC91D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

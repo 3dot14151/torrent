@@ -19,8 +19,7 @@ Chicken Run (2000) [Ru/Multi] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:9DDEA8D738307E2CB34F81BF1BE6A5CA40E56B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:B45F432C7B1FBFED5DEBC3619661912B593E9419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cold War: Hot report / Cold War: Остаться в живых (2005) [Ru/En] (
 ```bash
 magnet:?xt=urn:btih:C1B5322294F73C77F7983A4053FA065E5293A3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:B32EF1159F6FE34EE4644E7C0F0819F9ECD31BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Air Raid: This Is Not a Drill! (2003) [Ru/En] (1.0/dlc) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:C34FF629162518330998472B33DB955BC9BD5C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cold Zero: No Mercy / Cold Zero: Финальный отчет (2003) [Ru/En] (1
 ```bash
 magnet:?xt=urn:btih:EE6029AC5F8BED73FBB41067B0B68F469EC8C9B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.4) Repack Necros
 ```bash
 magnet:?xt=urn:btih:D0112CF0E1D85DD0AF1C2F2DD4B80EEFB6640D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Halloween: Trick or Treat 3 / Хэллоуин: Кошелек или жизнь
 ```bash
 magnet:?xt=urn:btih:EDC0F51002015333A58A5CA77BFAC9802A119268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Three Kingdoms Mushouden переносит геймеров в 182 год на�
 ```bash
 magnet:?xt=urn:btih:E72E275416228B02F9B6F3C834BDCE2E10E926D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Resident Evil 4 (2023) [Ru/Multi] (1.5.0.0/dlc) Repack FitGirl [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:672FB5F6EDAC967120937A558F75521EC0183D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Occupy Mars это высокотехничный, открытый мир, пе
 ```bash
 magnet:?xt=urn:btih:9D0877973FF02E086CB7C31E4169935BDDB87923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Resident Evil Village продолжает приключения Итана и�
 ```bash
 magnet:?xt=urn:btih:7E4830A4E1FEEF5ED6B7BB8F36D8C084F849339C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack seleZen [Gold Edit
 ```bash
 magnet:?xt=urn:btih:F581DBD5A7D6A9F332077CEA8A68E626D32DDFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

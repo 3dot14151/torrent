@@ -21,8 +21,7 @@ Snapseed является единственным приложением, ко�
 ```bash
 magnet:?xt=urn:btih:6C304B50A11D10A597C9A2C412D6ED67E757CAD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ My Android Tools Pro 1.3.7.2  [Rus]
 ```bash
 magnet:?xt=urn:btih:92724377B303705B7B4817060684DDF9CBF14D93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

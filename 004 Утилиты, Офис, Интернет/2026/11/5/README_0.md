@@ -21,8 +21,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:91A339122E8FD86ED89E538563D9B60AE222BD58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ LibreWolf - открытый проект на основе Firefox, котор�
 ```bash
 magnet:?xt=urn:btih:2AA815B4EC71834A1745D85F837C70099396A9E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ LibreWolf - открытый проект на основе Firefox, котор�
 ```bash
 magnet:?xt=urn:btih:1C12AC8A4E870B46F3AC2EB06402D469A9957BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

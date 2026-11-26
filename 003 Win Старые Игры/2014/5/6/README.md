@@ -19,8 +19,7 @@ Tomb Raider Collection Game - это собрание первых 3 игр зо
 ```bash
 magnet:?xt=urn:btih:E0F1F72B22D1EFBE314C80F9616EAB4FD0549D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Duke Nukem Anthology - это собрание всех игр из серии D
 ```bash
 magnet:?xt=urn:btih:0D609B75C8B936BAC290E65457553FEFDB4ABD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Medal of Honor Airborne(   Читать дальше...   )Тип издания
 ```bash
 magnet:?xt=urn:btih:961F152B775A1707B771D0D893832426FBB0AAE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

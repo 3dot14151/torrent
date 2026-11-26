@@ -19,8 +19,7 @@ SpeedyFox - небольшая утилита для популярных бра
 ```bash
 magnet:?xt=urn:btih:4BD0D58B1FD5B0473E12BB11212FD7BE100BB501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

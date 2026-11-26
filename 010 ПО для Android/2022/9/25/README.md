@@ -21,8 +21,7 @@ ElectroBox - Electronics 15 [En]
 ```bash
 magnet:?xt=urn:btih:C4B0F0B8C6647A0A73278038824AA132DEF5FAE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

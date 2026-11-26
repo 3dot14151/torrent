@@ -19,8 +19,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.48188/dlc) Repack Let'sРlay [Complete Editio
 ```bash
 magnet:?xt=urn:btih:6AAA7CDA444479A6D496D22A57DB49ECEBAAFA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.15) Scene Rune
 ```bash
 magnet:?xt=urn:btih:FA5A5A0A2E0E791DD3CE052D9651FFAAFABE12F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.3/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FA2CAA35993590DA3458F7B38B73E763426CCBD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Heart of the Machine – игра в мире киберпанка, в кото�
 ```bash
 magnet:?xt=urn:btih:8624F4BFD00E5A6211A58713FEC46F2816E40FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Shatterline (2022) [Multi] (98.0.36.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8E4252AF349F6AEABF5F52CD984BD544169C1145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ My Time At Portia (2019) [Ru/Multi] (20250620-1430-141719/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:62948E91210E53EB3148186B2FFB873007F483C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dreadful River (2023) [En] (0.9.1.0) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:6D935107431A9392A87AADC4644710D44E052E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Ru/Multi] (1.0.4258.0) Repack 
 ```bash
 magnet:?xt=urn:btih:61CA64EE7FF47DD46257BFF44CDACE612081B1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Echo Paradox - это психологическая игра ужасов, 
 ```bash
 magnet:?xt=urn:btih:10F18B917D9DBCF0BA12E7F176A4E2CE88A3EC12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (Build 19026706) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:D0A3EAF5695477637A3F600EFCABF71C3854029C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.27) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FCF8C531FB9EA9FA942DA15539CF846A7DFC32B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Disney Dreamlight Valley - это гибрид между игрой-симул�
 ```bash
 magnet:?xt=urn:btih:02863912FB5A6CD9B77E9F725A0ACAFD1273BF7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Ys VIII: Lacrimosa of Dana - это ролевая игра в жанре JRPG, 
 ```bash
 magnet:?xt=urn:btih:BF7BC11074302E533E69854A16348B654D8484B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Yakuza 6: The Song of Life (2021) [Ru/Multi] (1.009a/dlc) Repack Yaroslav98
 ```bash
 magnet:?xt=urn:btih:E0311CBDE067B62B9E2B3F9E3431123F13F77D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Tales Beyond The Tomb - White Silence (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3353F3FAACB41736F745EE1BA130A2104EF760C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5593023F04B18FE613F857D9C086821B3FAA263A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ White Knuckle - это захватывающий рогалик от перво
 ```bash
 magnet:?xt=urn:btih:2B50FCC8213B63F09A50F4042205FF9952A1EC53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

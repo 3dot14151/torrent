@@ -19,8 +19,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Multi] (ph3 update/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:2A92A9F2BF834AE1474D9C17C2EF05C75AB32DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

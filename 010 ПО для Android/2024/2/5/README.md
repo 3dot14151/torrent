@@ -19,8 +19,7 @@ Clean Master 9.4.9.3479 Mod by Dymonyxx [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D75D47D1724F345FE7A2838409375271B4905255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:2F654E83099F51D9D882782FF9744998D8D9AF76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9C84D5839DD4CAADB4E2EDFA453253EBABE841A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ For the Fallen Dreams - Back Burner (2011) [MP3|320 kbps]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:B3537CBF5FDA480C2489DF03DBE61F07D3D3E853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Хиты на всё лето. Русский выпуск (2011) [MP3|192 
 ```bash
 magnet:?xt=urn:btih:4DBCF015D7AB895CA0A9874E8426B592A99491BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ CD1 (01:17:58)
 ```bash
 magnet:?xt=urn:btih:A4C96288DE097CEF06BDCE3E11A1CF171CEBEA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD994310C20B58D407FCDD95082B12DC85F97509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDFB47FE2346ACA02173D2608DD40BD99637EC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9FBB10166263B3FE7240DB1B6D3CBE433929437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:893ABB62763DB7ACEA78C4992EC0D560084AB5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD30A1FEAF074CCEE36F830274A6E997AF4DD59B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35D74D5C8170A96B0A3E643932160C208F833188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74AA3A761AF982235B5C665A4205EC1BD798C824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Side Two:(   Читать дальше...   )Жанр: Easy Listening, JazzПр�
 ```bash
 magnet:?xt=urn:btih:69BBABB2CC0A0FF9A83C7E18F2B53B6CF0F54D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ VA - Trancemaster 7003 (2011)  [MP3|192-320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:552CB3A7B305760F2EECECF9AC833F720C3E92BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Mantus - Zeichen (2011) [MP3|192-320 kbps]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:1121E04887709A706E082B6B4B3DCEF6A9D3EAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DEFDBBFEA7F0E881381A3C0FB4AA4D1B5C4E5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ VA - Русские Ди-Джеи vol.5 (2011) [MP3|320 kbps]<House, Club>
 ```bash
 magnet:?xt=urn:btih:A2661641AF826DB34EEFAEE1CC1F37148C117A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Radio Record - Aly & Fila - 2011 [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:F3A289A9AE5838C964070695CEC0F0D71C0C832A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09923F2A4AF6B1BB22C5F621EB9A2BC03EE19ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Radio Record - Above & Beyond - 2011 [MP3|320 kbps]<Trance, Progressive Trance, 
 ```bash
 magnet:?xt=urn:btih:1482BFBF299FD801CDE2FA80306D67C9AFAD2585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B3FD4E83F81C85DC45BF2164348A4DCB02EEA7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Paul Oakenfold - Planet Perfecto 029 (23-05-2011) [MP3|256 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:28C479C7FC1FE19AE26CA1D8E756A2294B351B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ VA - Хиты Наступающего Лета (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:27802833F4C2916FF3D9F47CC5D3F3E2FE0CB4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ VA - Сводный Чарт Европа Плюс 50/50 №5 (2011) [MP3|256 kb
 ```bash
 magnet:?xt=urn:btih:EA0B3766E2B8AD12D78A16AD126B04383AF5745E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ VA - Super вечеринка Радио Record Лето 50/50 (2011) [MP3|256 k
 ```bash
 magnet:?xt=urn:btih:B615EDF0CC272450FBBADF337792719C6CD8E522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Týr - The Lay Of Thrym (2011) [MP3|265 kbps]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:31BFD734C0B4CD0B1042D0B7FA1BAA771A57D048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

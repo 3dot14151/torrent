@@ -20,8 +20,7 @@ Apocalypse Hotel (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:61DAEDFDDEF0B7B8C4B527F268A1C44409F173E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ N.E.R.O.: Nothing Ever Remains Obscure - это чудесное путешес�
 ```bash
 magnet:?xt=urn:btih:1487B8D03B1DBB696511E708EDFA1414D83CC8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0) Repack R.G. Origami [Definitive
 ```bash
 magnet:?xt=urn:btih:8B5273ACFE23AF0B1C6383EE0FF7976602A49DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ NERO — это один из наиболее амбициозных проек
 ```bash
 magnet:?xt=urn:btih:E8E0F8489A1715F23D7D06B3E2160E43484D6AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

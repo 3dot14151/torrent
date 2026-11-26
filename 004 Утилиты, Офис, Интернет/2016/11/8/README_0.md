@@ -19,8 +19,7 @@ CCProxy - простой в использовании и мощный прок�
 ```bash
 magnet:?xt=urn:btih:C076473B45AD2735ADA38B26037DFDC35D945739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

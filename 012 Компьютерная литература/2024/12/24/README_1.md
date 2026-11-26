@@ -19,8 +19,7 @@ Alexey Soshin | Kotlin Design Patterns and Best Practices (3rd Edition) (2024) [
 ```bash
 magnet:?xt=urn:btih:B3C7B94629C4E2FB809B631FDB6E3DD71834D9B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mikhail Sakhniuk, Adam Boduch | React and React Native (5th Edition) (2024) [PDF
 ```bash
 magnet:?xt=urn:btih:8B1D53B96DAA6332FD80CE84EF0334C51E072A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Frances Buontempo | Learn C++ by Example (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:E7750797B30E502E59BDDFF8404A03BB4CD4E49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

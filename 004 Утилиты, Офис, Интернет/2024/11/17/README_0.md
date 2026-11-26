@@ -20,8 +20,7 @@ WinDjView Extended — это быстрая и удобная свободно 
 ```bash
 magnet:?xt=urn:btih:8EA2133162E3F08BF43DAE131D33270765EBCDE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:DEC137FCE2F60A67E08219F256A7518D607D2798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Unknown Battle (2016) [Ru/En] (1.0) License FANiSO
 ```bash
 magnet:?xt=urn:btih:46F3F7D7542EB2771672B0AD996E26BBB51062C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

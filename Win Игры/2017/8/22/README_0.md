@@ -19,8 +19,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.01.1) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:D834CF9C4B73408C1A996D1C0E956809807C5D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Virginia - триллер от первого лица про маленький
 ```bash
 magnet:?xt=urn:btih:114AE98A0672FAC698BB6E0F36393F42F08544FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

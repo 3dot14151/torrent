@@ -19,8 +19,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:5D96A4D21826E4BF5D231594088BDA4CDB73BF57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

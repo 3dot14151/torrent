@@ -20,8 +20,7 @@ gSyncit 5.3.23.0 [En]
 ```bash
 magnet:?xt=urn:btih:8C206B65B8AF91B6D314F6C5F8DD24530BC60095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

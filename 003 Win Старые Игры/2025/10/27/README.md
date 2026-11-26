@@ -19,8 +19,7 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 ```bash
 magnet:?xt=urn:btih:F33387F1819AD1A5B3982710C68DF2F8E514B83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

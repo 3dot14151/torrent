@@ -22,8 +22,7 @@ VA - Full Moon Chill, Vol. 3 (2019) [AAC|~317 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Texpad это редактор LaTeX предназначен для прост�
 ```bash
 magnet:?xt=urn:btih:09D48DFE22418D8B9B9DA8823D00CB29E998E883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Deep & Joy, Vol. 2 (2022) [AAC|~328 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:C7B42587AB1ABBCB118C8C06C706E2640CEE1741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Marga Sol - Nightchill (Chillout & Ambient Vibes) (2013) [AAC|~306 Kbps] <Lounge
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Marga Sol - Love Sensation (Sensual Lounge Vibes) (2013) [AAC|~334 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:84B0C31FDB02637267ACF529D20CEE13BB792BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ GoodNotes 5 v5.8.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B6467BDEC63A35A942D7766961032EF52EA9A4E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - Winter Relaxation, Vol. 5 (2022) [AAC|~309 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:620325A2D9639BD2DB83EEB6A06A8106E2AF18F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - Full Moon Chill, Vol. 1 (2017) [AAC|~320 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:FF03B5A5B6784563E55B394650915FC9053E9DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ VA - Maretimo Records - Masterpieces, Vol. 2 (2020) [AAC|~324 Kbps] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:F345C7AC08FDA8A75A5D01ADEA91408A0F6F47BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Marga Sol - Awakening (Chillout Deluxe & Finest Lounge) (2013) [AAC|~278 Kbps] <
 ```bash
 magnet:?xt=urn:btih:F5DA0E5065488C7EF891B6AB0BEF565ACFBFC759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ VA - Maretimo Records - Masterpieces, Vol. 1 (2017) [AAC|~333 Kbps] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:F88297A65ED7029F8091D1531073E9AC5D9B947A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ VA - Deep & Joy, Vol. 1 (2022) [AAC|~325 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:1D700CB40419FA1250A43072F5D08B7D67A2637A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ VA - Full Moon Chill, Vol. 2 (2018) [AAC|~330 Kbps] <Lounge, Chill Out, Downtemp
 ```bash
 magnet:?xt=urn:btih:A7FFDC826DCA5DA33CBAE3845B30873614967693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ VA - Santorini Solaire Chill 2 (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:EBC859C562BEA8D1796744E8D4FCD9D372189E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ VA - Sensual Lounge Musique Vol.2 (Selected By Simon Le Grec) (2018) [AAC|~337 K
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ VA - Evening Chillin': Urban Chillhouse Music (2022) [AAC|~322 Kbps] <Chill Hous
 ```bash
 magnet:?xt=urn:btih:835FF99D3DCF70FFC05CABF67B5A7422890CF3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ VA - Sub-Division Recordings - Partitions, Vol. 1 (2021) [AAC|~322 Kbps] <Drum &
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ The Soul Crusaders - The Future (2019) [AAC|~316 Kbps] <Lounge, Chill Out, Smoot
 ```bash
 magnet:?xt=urn:btih:081AA264EF7810C9110160AEDABF6DCFDB9B1DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ VA - Deep & Joy, Vol. 3 (2022) [AAC|~315 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:8002E4F5D0F342C7896AE27D543F85E89FA343E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ VA - Infinite Chillout (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F57DEF48C8A8459D8054D943C45553443E884F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ VA - Chillout Essentials 2022 (2022) [AAC|~292 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:BF82DAA83B8FF9F6CF92AD06B192EA0B60DEC159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ VA - Sensual Lounge Musique Vol.1 (Selected by Simon Le Grec) (2017) [AAC|~320 K
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ VA - Vanlife Chill, Vol. 9 (2022) [AAC|~323 Kbps] <Lounge, Chill Out>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +661,7 @@ The Maldive Lovers - Sweet & Lovely (Sunday Chill Out Vibes) (2022) [AAC|~319 Kb
 ```bash
 magnet:?xt=urn:btih:90E61C96C3F6F21F84A6BACD18DF627BE8A4E743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ Darkroom: Photo & Video Editor 5.8.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B1DFB6BBD45528FB2F36B1B790E86C8853753A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:876DE3A6840E3AF40BC76099267C21465804E0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

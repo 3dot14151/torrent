@@ -21,8 +21,7 @@ Puddle (2012) [Ru/Multi] (0.2.1.47) License PROPHET
 ```bash
 magnet:?xt=urn:btih:C39F3B05EF0DAD68856AF6628BE9007EEC2E7B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

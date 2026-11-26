@@ -19,8 +19,7 @@ Paranormal Files 5: Trials of Worth (2020) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:5E2C0D9C9463672A2735B0450CEED2BBE1F638AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Secret City 4: Chalk of Fate / Тайный город 4: Мел судьбы (2
 ```bash
 magnet:?xt=urn:btih:A00538FE52F8C7ADDB9F1062C23A01C6E1BD9390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pulang: Insanity — психологическая игра ужасов, со�
 ```bash
 magnet:?xt=urn:btih:99D08E90382ECAB06A42CC96844C1EF75C15375E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ STELA — кинематографичный, атмосферный платф�
 ```bash
 magnet:?xt=urn:btih:D1A5D49887FF89DF5FDD971A4821DD09CA672041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Bleeding - Godless Communion (2026) [FLAC|Lossless|WEB-DL|tracks] <Death, Th
 ```bash
 magnet:?xt=urn:btih:8CF8BEA16C9876B0941A605FF161DE2CDEB52AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Voodoo Highway - The Satan Inqviesta (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 ```bash
 magnet:?xt=urn:btih:5368D8083BE2B426EE60E1CFA5282AC27F5E24B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ dArtagnan - Helden X Hymnen (2026) [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
 ```bash
 magnet:?xt=urn:btih:B87A1B5C8D449CFD821ACF2536D9FF9FCBD02E5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

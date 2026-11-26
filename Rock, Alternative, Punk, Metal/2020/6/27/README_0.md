@@ -22,8 +22,7 @@ Falconer - From a Dying Ember (2020) [MP3|320 Kbps] <Power Metal, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:C472BCC8139CEFFA22510AE98E49E56FA3C5BA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Long Distance Calling - How Do We Want to Live? (2020) [MP3|320 Kbps] <Post-Rock
 ```bash
 magnet:?xt=urn:btih:6593C13D4A8C15693076CC6D8785827A0C4E26C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Markscheider Kunst - FREEDOM (2020) [MP3|320 Kbps] <Ska>
 ```bash
 magnet:?xt=urn:btih:04071B4074DFCC20B885C9AEB2AA0F88D2612E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2FAD4F2BD8DB30C7EE307CD670BEC26E51F3843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Grey Daze - Amends (2020) [MP3|320 Kbps] <Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:831337CA5E5459F66BB0BD000E760C326B35FDB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Anix - Graphite (2020) [MP3|320 Kbps] <Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:B436EE379E83F8D4D8CD1C10FDB747948306770E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Network & Battery 12.2.4 [Multi]
 ```bash
 magnet:?xt=urn:btih:771C27C86B5BD45CCCF82C03E850BE9C103F94A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5813CA38FAEFDF76666AA9AD38175E646C41EADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Disturbed - Live and Indestructible (2008) [FLAC|Lossless|tracks + .cue] <Nu Met
 ```bash
 magnet:?xt=urn:btih:4BAF802D23060907F48C71FD6E88DC161FBDA49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Gartraada - A Night Of Winter Solstice (2013) [FLAC|Lossless|image + .cue] <Atmo
 ```bash
 magnet:?xt=urn:btih:F38A9A3FD694BA974B7B0665741F303C43BFE0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Tempomate - умный и красивый метроном.Тип издани�
 ```bash
 magnet:?xt=urn:btih:52A789D926A924979DBD48E27734B275F0781D7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Buster No - Buster No (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic R
 ```bash
 magnet:?xt=urn:btih:0B7DD3B77124E7BCC1E861B172C0FFAE53D51736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DF69E88FFFDB60CA1671F6863078D3C9B1EC188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1C2B6DC70FAAADB83DC0E2D0C2461B892E271C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ The Dutch Jazz Orchestra - Portrait of a Silk Thread: Newly Discovered Works of 
 ```bash
 magnet:?xt=urn:btih:F89B0AF0D27286CB1815AEA8A1248CA41FFA04C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

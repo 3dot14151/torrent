@@ -19,8 +19,7 @@ OpenVPN v0.7.21 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:1FF448F011B5A0D4DC03028711861EB4138F148B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ NG. Самые странные в мире: Необычные фермы / Wor
 ```bash
 magnet:?xt=urn:btih:FC3A580869C134A3050063E4B32B380CE507B59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MediaCoder - Программа позволяет повысить компре
 ```bash
 magnet:?xt=urn:btih:30162A7ACCC32A8239F5345AB10BAC3C1847FB30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ RogueKiller — это полезная антивирусная утилита,
 ```bash
 magnet:?xt=urn:btih:0BFEAE280BFC11E5AFBAED12E808C157FF14689C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Barry Manilow - The Very Best Of Barry Manilow (The Mail) (2008) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:0BDE138065ACF85D0D2954FF1F614A6ACE19D686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Bryan Ferry - Boys And Girls (1985) Japan, 1st Press[ALAC|Tracks]<Rock>
 ```bash
 magnet:?xt=urn:btih:93E6714AE8EB071D6BAF667C7DE8C34874F262A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D2E8559C1077A523067C6129BEE0ACD8288FE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Groove3 | Реверберация. Разъяснения (2012) [PCRec] [EN]
 ```bash
 magnet:?xt=urn:btih:B7E65BF57E66580C16BC167DBCE79B6BD76C5E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ McRip SystemFiles - уникальный инталятор, который ра
 ```bash
 magnet:?xt=urn:btih:95914F8F95626936BD09E9965A443B5651932A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FCD21A09DAE29CB707D8CA64BB674C3D9F7AD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Cee Cee James - Low Down Where The Snakes Crawl (2008) [APE|Lossless]<Blues, Blu
 ```bash
 magnet:?xt=urn:btih:DBB9D35E986886B502DBFB09AF2622EE03B28512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2623F1E226FE4CA9BDD9EAA279CAF55C276868AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ NG. Самые странные в мире: Шокирующая еда / World
 ```bash
 magnet:?xt=urn:btih:DD7B39662B44DD2DE81FB7DECEF4B6845C06B1C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2363667B5E0C1C90222D1CF0E7A2DBC4830FA63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ Ashampoo Snap - утилита для создания скриншотов (с�
 ```bash
 magnet:?xt=urn:btih:0146FEE54163D189B345CF4607F6566213E764F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55C8C17E2D2FE039CE81E84F9199D18150D4C346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ AppCleaner 2.2.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3A8B6E27CB11521337EC4EE71B30D8F640824497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Schiller - Sun (Chill Out Edition) (2013) [FLAC|Lossless]<Ambient , Chillout>
 ```bash
 magnet:?xt=urn:btih:937F43C1DC8DE5E65819AEB8076D7AC99699C64E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ VA - The Very Best Of Blues: 25 Legendary Tracks (2013) Remastered [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:97362D79CF58C40B08E4BD5505B7A3A865B6E27E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C53C71DE1BF0E0AFDA94ACEA71AC82CD3C1D07FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCA87F849FE545BF7FE2F29A82A8CC3A1F9B71BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ Chrome Division - Infernal Rock Eternal (2014) [ALAC|Tracks]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FE18B84254BC43FFE4113D639D0B5A46CE968171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ Muse - Live At Rome Olympic Stadium (2013) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:C8BF2117929C3BDD13C397BC979B0F4DC6A33F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB7C640305FA3A32FB7763E7CE7A4C9A63781B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82076C1F0B8C7974326D2C770DD8B82B991A2BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ Kingdom Come - Kingdom Come (1988) SHM-CD /2013, Universal Music/ [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:687576F0C2DE31C8E375ABB51B5FF869DB71E9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

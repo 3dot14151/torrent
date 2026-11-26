@@ -18,8 +18,7 @@ Stim Axel - AcousticA (2010) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:300F5B20F18909A79879C7C3747D99DF3FFB20F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Salamandra - The Starshine Mix 2007 (part 1) [MP3|192 Kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1AFA8221BC0712E02261B6276965D41D748AED70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Aphrodite - Break In Reality (2007)
 ```bash
 magnet:?xt=urn:btih:1862E6D9530DCC12DB15EEB11AA375763823AD66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ ru-ru_windows_11_business_editions_version_22h2_updated_may_2023_x64_dvd_90166b2
 ```bash
 magnet:?xt=urn:btih:4BA841DF68D827F9E66FD72008090B9AAEA2330E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Stim Axel - Тишина (2006) [MP3|320 Kbps] <Drum & Bass, Vocal>
 ```bash
 magnet:?xt=urn:btih:F09700A417F65D095B5828FE69F56B220801623A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:BE763A21D013377229F33D7F34BE94D784BD403E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93F76B1C1E773949E76A3B1680DFB372C13067A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Microsoft Office 2021 for Mac LTSC v16.74 VL [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2689620693CDEE083F1E54592F94D85EC4E5A081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Project Lazarus (2023) [Ru/Multi] (7.0) Scene DARKSIDERS
 ```bash
 magnet:?xt=urn:btih:A4248A534DE3DB94FF80AB23F887DD4B6308C504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ S.U.N. Project - 7 albums (1997-2005)[MP3|128-320 kbps]<Psychedelic , Trance>
 ```bash
 magnet:?xt=urn:btih:E4A15368CF09ABEF862BDA7CA140E7F9FBF2AE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:009A75FAE748A04CE662D2B979E8E8A6E648CF43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Contra Anniversary Collection (2019) [En] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:562C3A009E876CF8655B345D57EA321325B9E94F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

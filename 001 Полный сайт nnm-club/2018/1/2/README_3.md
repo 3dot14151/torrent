@@ -18,8 +18,7 @@ Windows 7 PROFESSIONAL Rus SP1 x64 Game OS - это сборки, основан
 ```bash
 magnet:?xt=urn:btih:3AC982010203E91CF3DC322DE41336D380EB3D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

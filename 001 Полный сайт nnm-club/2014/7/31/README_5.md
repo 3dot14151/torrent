@@ -18,8 +18,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:A2AF953AB769F8F7C38E7072AAAE1311771317EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Metro 2033 Collection (2010-2013) [Ru/Multi] (1.0.0.1/1.0.0.15) SteamRip Let'sР
 ```bash
 magnet:?xt=urn:btih:A7E6ED75AA581CF28EFCF2D62688D4A597F8230A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:269A66862FA74618F4BDCD83D4BC530E6E97329E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Kaspersky Internet Security 2015 - комплексный Антивирус К�
 ```bash
 magnet:?xt=urn:btih:4541FE0E41AB034694A56BF7CD9A1DFCF176DDCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Adobe Photoshop Lightroom 5.6 [Multi + Ru]
 ```bash
 magnet:?xt=urn:btih:9F4E14FA3F755C44EEB4EA9D01986930644D9A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ ADVANsCEne Playstation Portable (2001-3200) [PSP] [En/Jp] (2005 - 2014)
 ```bash
 magnet:?xt=urn:btih:24E6917035F53FC486D4766A81A6D4CA6C56EAA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Adobe Photoshop Lightroom CC 2014 (5.6) [Multi + Ru]
 ```bash
 magnet:?xt=urn:btih:549EE5C6C9BC1616BCA11996361F09C9D94DCBA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E495B665ACBFFAFF43D8FA46F238F004F214E0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) SteamRip Let'sРlay [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:05DDAF6DB20745B13AA38F6CBB04C9B1AD8A2357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Dark Messiah of Might and Magic — ролевая игра нового пок�
 ```bash
 magnet:?xt=urn:btih:42E19C465DF70BEC01D90DE8EA07B261067B0F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

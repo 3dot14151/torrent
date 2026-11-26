@@ -21,8 +21,7 @@ CentOS 7.5 (1804) [i386] 2xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:F8FCCA4254984A5EDFD8C0C0E5850D0512E61B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

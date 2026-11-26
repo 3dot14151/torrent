@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:051CB3E8E525BF54874E88A084C03AA9C2E349F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ BELOFF 2016.8.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:B520FAEE2099BD0DE77CFAC25B1696AE1A37EC67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Running Hits Summer Edition (2016) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:CFF295C4439B42E60D04C5D0F9F5E747CCA09B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Atomic Alarm Clock - данная программа преобразит ваш
 ```bash
 magnet:?xt=urn:btih:37D5E74CFC4FD5FE961C20AF69E855ACBD6E7BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:0FA59D37BE6D81C9D854E67CCCE4B906DC1381D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Microsoft SQL Server — система управления реляционн�
 ```bash
 magnet:?xt=urn:btih:ED719595902EDE61FC440CC0113CE654D0B6D183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D05E77EEAEE2710F8EAAB46388DEA182D87A27BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.668.0/dlc) SteamRip Pray
 ```bash
 magnet:?xt=urn:btih:A6A6D646875CEC80C568F49AE0121BBE6F330885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Hard West (2015) [Ru/Multi] (1.4.3/dlc) License GOG [Collector`s Edition]
 ```bash
 magnet:?xt=urn:btih:CA0360D1C4AA4BD0A44CEE0C4CC7E46DCE5B4F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ The Solus Project , захватывающая история выживания
 ```bash
 magnet:?xt=urn:btih:C93CE4A8CA856CCEC4ED4D678EBBC55D27E2D41F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

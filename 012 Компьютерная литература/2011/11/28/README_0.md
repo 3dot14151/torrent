@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:07CBAE033D0A91A9EB94FE5333F330FF880EAF48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rhoda Grossman Draws | Digital Painting Fundamentals with Corel Painter 12 [2011
 ```bash
 magnet:?xt=urn:btih:98D9CC1056094880A89D37BD1E4624F2A88B7D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

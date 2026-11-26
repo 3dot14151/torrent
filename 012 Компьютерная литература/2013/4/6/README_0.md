@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DB0D8778D8BD31C01556B89FCDBDFF303FFFAE0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ J.C. Sheusi | Android Application Development for Java Programmers / Разра�
 ```bash
 magnet:?xt=urn:btih:D9C4D18EAA894290B8133C7BDC5CE15522357D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Jag Panzer - The Scourge Of The Light (2011) [MP3|320 kbps]<Power metal>
 ```bash
 magnet:?xt=urn:btih:0CF8D5F2A8A8329A2CBE660814F12D9EF5EC4F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Chubby Checker - 5 Albums + Selection of mixes (1965 - 2005) [MP3|123-320 kbps]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABE4E0F9EF1C059F7B9D2A13D64AFD74C18A69B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

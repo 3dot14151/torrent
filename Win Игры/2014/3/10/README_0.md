@@ -19,8 +19,7 @@ The Flying Farm (2014) [En] Unofficial [Platinum Edition / Платиновое 
 ```bash
 magnet:?xt=urn:btih:11DA811F08CB43CFD4BE9D9BE75E8BD07DE1C84B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Royal Envoy 3 (2014) [Ru] Unofficial [Collector's Edition / Коллекцион
 ```bash
 magnet:?xt=urn:btih:4C441EBEECE0FF5C03D256FCD8AB3ADEB20D4117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Farm to Fork  / С грядки на стол (2014) [Ru] Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:1DE490948D108E167F18119FE52778F621711D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

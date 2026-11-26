@@ -22,8 +22,7 @@ Joker - Joker (1990) 1991, TECP-25726 [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B0028761770A42CE8E7BEC81F8986B64F8976AA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Panic! At the Disco - Pray For The Wicked (2018) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:9F431041FB339B47964082FA77F6108A3A4958E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

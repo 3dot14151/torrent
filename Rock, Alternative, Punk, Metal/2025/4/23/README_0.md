@@ -22,8 +22,7 @@ Brave Hearts Factory - Love Never Dies (2025) [FLAC|Lossless|WEB-DL|tracks] <Roc
 ```bash
 magnet:?xt=urn:btih:EBDAC069CF576EB2B361098949B0ECD9C3495FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sign of the Wolf - Sign of the Wolf (2025) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:ED0215719A683500AF75FCC000053D073076C897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

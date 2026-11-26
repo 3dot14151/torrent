@@ -27,8 +27,7 @@ MX vs. ATV Reflex продолжает и развивает игровую се
 ```bash
 magnet:?xt=urn:btih:BC95A9F25D929C9DFB3384D0C65A4A56E77D6D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Joe's Adventure - Выступив в роли Джо, вы узнаете, кт
 ```bash
 magnet:?xt=urn:btih:D0204780FF29E96F395BCAC035FBBCF1CDBA4FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Theatre of War 3: Korea / Искусство войны: Корея [Ru] (RePack
 ```bash
 magnet:?xt=urn:btih:2C855A192A2268EDEB2B4EEEB273F8A00B035EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

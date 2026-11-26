@@ -19,8 +19,7 @@ DailyArt - Daily Dose of Art v3.2.3 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B0DBE6DC39143AD78950CA4D357F753B5B413B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RS Проводник - запросто поможет вам в управле
 ```bash
 magnet:?xt=urn:btih:CE30FD1005AAA4CD40D92E91FB40A15090DC3657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

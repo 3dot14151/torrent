@@ -22,8 +22,7 @@ Crimson Coven - I - The Forge (2026) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom, H
 ```bash
 magnet:?xt=urn:btih:AEF7C862C3BCB4FEC6BCA642EE633EE85B25EEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

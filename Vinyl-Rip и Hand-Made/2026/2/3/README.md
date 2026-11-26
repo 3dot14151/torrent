@@ -22,8 +22,7 @@ A4 Forever(   Читать дальше...   )Жанр: Pop RockПродолжи
 ```bash
 magnet:?xt=urn:btih:9A58C67463F6F1E01AB056714C2D4AF97188FC4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

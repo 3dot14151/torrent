@@ -20,8 +20,7 @@ Mark of the Ninja (2012) [Ru/Multi] (1.0) Repack R.G. Revenants [Special Edition
 ```bash
 magnet:?xt=urn:btih:F4B085E6907FFDF398B23B0D2BB38C30BD922B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

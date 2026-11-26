@@ -19,8 +19,7 @@ HuniePop – это своеобразный симулятор для PC, Mac �
 ```bash
 magnet:?xt=urn:btih:4D3E3EE338AD21400A1E7CF7905C1C16DF89DA09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

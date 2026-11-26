@@ -19,8 +19,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.17.30088/dlc) Repack Le
 ```bash
 magnet:?xt=urn:btih:AC1FF74C7C9777CECFA52F57DC012C2C98681706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call to Arms - Gates of Hell: Ostfront – стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:C7046A01CE1EF9877EC2CC7D8F8380BE76A631A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2.2489/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:80DEF5F784906EE317D1A1D29D6C20C4D9F5A4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Who's at the door? (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4D31EDE953341080D64AB1C224BC6CEBDD1B4C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 ```bash
 magnet:?xt=urn:btih:C9D3921BF7017490C74D546C3D0FD6F1E0694422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

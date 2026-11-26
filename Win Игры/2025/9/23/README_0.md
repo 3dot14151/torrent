@@ -18,8 +18,7 @@ Daymare Town - это рисованная от руки приключенче�
 ```bash
 magnet:?xt=urn:btih:804C197950C4A5EE4295073289C833F99CAE1B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.1/dlc) Repack dixen18 [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:9A6CF1A9422AF1F16C3B91C6B021ACD23E7949DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:5AFE93E0CDDCF80925BF45B3320CACBA7D8B50BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

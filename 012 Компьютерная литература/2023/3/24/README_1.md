@@ -19,8 +19,7 @@ Mike McShaffry, David Graham | Game Coding Complete (2012) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:8791DF0AF36D58B1ACC81DA51BB56181E03A90D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Spiro Buzharovski | Introducing Blockchain with Java (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:20F1DCF16EBC7850FC5FAB7CFEA25B2A7364FC15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

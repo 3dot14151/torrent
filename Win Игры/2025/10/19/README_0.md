@@ -19,8 +19,7 @@ Train Sim World 6 предлагает освоить три уникальны�
 ```bash
 magnet:?xt=urn:btih:29E118B393212CE34465293B8100370DE5960C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D333DF3E862B95CCBAD71ECFFA63DBF8F60A3CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Little Big Workshop (2019) [Ru/Multi] (2.0.14042.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3D74DCBE99EDC4E866D3B69E233B7068E8A20304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SUPERHOT: MIND CONTROL DELETE (2020) [Ru/Multi] (1.0.8b plus l1.1.36) License GO
 ```bash
 magnet:?xt=urn:btih:AAF87F6F993154432266F6E5A4918F6219085C19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
 ```bash
 magnet:?xt=urn:btih:642BB970FD33FAD3A2D010AEA8B1C3A23F3151D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fantasy General II (2): Invasion (2019) [Ru/Multi] (01.02.12913.01/dlc) License 
 ```bash
 magnet:?xt=urn:btih:79937F58670B5CC947E85A4CC2573A419925A921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Order of Battle: World War II – это первая ласточка в сер
 ```bash
 magnet:?xt=urn:btih:8ADF4BBAE81E5447077CCF04FD4170D2AA3E02B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Overcooked возвращается с новой порцией безумно�
 ```bash
 magnet:?xt=urn:btih:12287F4DA5D4381080000E0F1507DE528CBE765E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2E1726537AE88902B08B49DBB9D351A193E11996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5729A590EB5A82A29F60124EF40A2A609BBD4A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Dark Deity II (2) (2025) [En] (1.14) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:52371B8F896C926A424A120D33E11BC16BB90BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

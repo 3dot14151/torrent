@@ -19,8 +19,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:DA98FB44FF14F90A059B6EE4F155AC9DCE7BD826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:90B8C3226EF75A8DDA7558A69B2166DB25C22114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MediaHuman YouTube Downloader 3.9.21 (2206) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E86F99172C440E41E237761F17C5A98DBB940834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Coolutils Total PDF Converter 6.5.0.171 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:37BDCABF7F6965C12E60433AA8F94033C239B9E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

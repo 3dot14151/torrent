@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7627BA8B5E72697C02D8DC9AFE9B0BDA53324817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Asphyx - Death... The Brutal Way (2009) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:09218DEBF52CCD711EAFB610F6A9E975CB88517A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Ally Venable Band - Wise Man (2013) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:E5B0CF9F830C896780D098108450444D8C832999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDC595967EDA4BF8BEE403950F05C208733B3619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ DJ Цветкоff - Танцпол @ Record Club # 252 (14-12-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:9BFAC33068B39EF206917A63A39D0BDA25E7C62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Xabec - Closing The Circle (2013) [FLAC|Lossless]<Ambient, Tribal, Experimental,
 ```bash
 magnet:?xt=urn:btih:403E66724DD3949C61CAC307CC914D2A070C5630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ VA - Клубные Новинки Vol. 347 (2013) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:CA4EB78C4C03C8FC731477856207693B6B98EEF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FE5611BEC9F85E7D6C1991C61E4ADF0F9BE6B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ Gran+ - Tet A Tet/Night (2013) [FLAC|Lossless|WEB-DL]<Downtempo, Dub, Trip-Hop, 
 ```bash
 magnet:?xt=urn:btih:494CA253DC1512333E717400A5F0AF07E5130C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05164A2166C27E6B695EE425AF4FFAD3216FCA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:1704BCC2186DB82C66AD30C002E8E5CFDD380264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ Ani Tsering Wangmo - Alokhe (2007) [MP3|320 кб/с]<Folk, Mantras>
 ```bash
 magnet:?xt=urn:btih:21F6D47916E8F01CE7A64244DC518885C75AB0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ tsMuxeR – утилита для создания TS, M2TS файлов и об
 ```bash
 magnet:?xt=urn:btih:D863CCE536D68BF6454FA94D78281BB247E4D6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ Mail.RU Agent - бесплатная программа для быстрого 
 ```bash
 magnet:?xt=urn:btih:E154F9C261E48FB382663FC16A9F5D3A91140842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ VA - Top 100 Vocal Trance (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifti
 ```bash
 magnet:?xt=urn:btih:892FF248C871EB501060EA1FA7EE16190BAB59FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ VA - Anjunadeep The Yearbook 2013 [134D] [FLAC|Lossless|WEB-DL]<Deep House>
 ```bash
 magnet:?xt=urn:btih:F0479F20F3FDA190A09A25892D5CF4478A8A0B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D3C708300BCD108BB6C631E74F7AEF4B4306566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDB79BCCFFA9B746F918387B08455D0E25E435AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ Xabec - Discography (6 Albums & 4 EP) (2000-2013) [MP3|192-320 кб/с]<Ambient,
 ```bash
 magnet:?xt=urn:btih:F918F61786E5575D6F7CA06795AE865BAC1A9D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ Diaphane - Lifeforms (2013) [FLAC|Lossless]<IDM, Ambient, Dubstep>
 ```bash
 magnet:?xt=urn:btih:4DBFC1BD32BE039B8DD80D6022C421FD32696B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CC39906C8F42A8D404FB33B3B1929C37F2DDC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72A0EA27E41028C900F92B4C70BF28A10A8C9DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F42B2DFB92D24959EC19B77A904ECC6CAB05076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00A7FD9C77B8709AFB3F6F64EC7996EE7DE3228D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ Wounds - Kairo: Arranged Soundtrack (2013) [MP3|128 кб/с]<OST, PsyAmbient, Dr
 ```bash
 magnet:?xt=urn:btih:45F705F1D8562E687F5660E0FB91AA1254C57774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ Monster Truck - Furiosity (2013) [FLAC|Lossless]<Hard Rock/Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:FABFA6FCA949C1FED2E36DE05FC95C0375DE119C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

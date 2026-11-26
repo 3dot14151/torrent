@@ -19,8 +19,7 @@ Men of Valor (2004) [Ru/Multi] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:9FFBC6D200CDD0C0FCCF0787D32E6AC61E88A4F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Men of Valor (2004) [Ru] (1.3) License
 ```bash
 magnet:?xt=urn:btih:E1CBF75C0B7843406778FB132094353CAFB6BBBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

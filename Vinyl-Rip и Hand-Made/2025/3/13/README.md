@@ -22,8 +22,7 @@ Cryptosis - голландская метал-группа, сформирова
 ```bash
 magnet:?xt=urn:btih:7E65845E4D2717CD66D2BA7628A0B010C5C12B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 - Hiidenpelto Including Häpeän Hiljaiset Vedet(   Читать дальше
 ```bash
 magnet:?xt=urn:btih:14A5B1995B612EFFACDE0A6095C4C423FD3E83E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Space Chaser — немецкая трэш-метал-группа из Берл
 ```bash
 magnet:?xt=urn:btih:6472F98FB26B9CC9F802692A05E93AA5576B4E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ SIDE A:
 ```bash
 magnet:?xt=urn:btih:CE473B138EE1C2A7B0A242DD154CF3D523B2ACA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

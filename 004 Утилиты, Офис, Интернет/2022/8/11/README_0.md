@@ -19,8 +19,7 @@ Driver Reviver – это приложение, которое проскани�
 ```bash
 magnet:?xt=urn:btih:5D1C7BD36DA293574F392ABD502392FC49911349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MiPony Pro 3.2.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4E09D2C99BBD1A0CA4D392EE7451F66863C4288B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

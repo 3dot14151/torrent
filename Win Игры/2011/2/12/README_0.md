@@ -19,8 +19,7 @@ Real Crimes: Jack the Ripper / Джек Потрошитель (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:14D99B66BC9AA98E012561C08F8EA6A22B6B43FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Woodville Chronicles / Вудвиль (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:F3087F2889D0D2F391AD0BBB2DE89A7ABA41F3B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Noi — это уникальный браузер, который совмещ�
 ```bash
 magnet:?xt=urn:btih:BFB2E881A284EE6B209A9C82D843BFE281CA51EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

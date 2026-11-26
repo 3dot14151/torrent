@@ -19,8 +19,7 @@ Christmas Wonderland 12 (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:D2A1A0CCDD6D9242A8F55BA7E3E0E61226EAC654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Twin Mind 2: Power of Love / Близнецы-детективы 2: Сила л�
 ```bash
 magnet:?xt=urn:btih:1839EFF98CE9C14A2D080F655C22F7211F1C14BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Case Files 23: Incident at Pendle Tower / За семью печатям
 ```bash
 magnet:?xt=urn:btih:2F89EE65B2E549BE11FB886F245DC187AF5B8AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blue Fire (2021) [Ru/Multi] (5.0.5/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:80A823687E24B636F325C5B5FE2EF12CB5D5045B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.9.23494.D/dlc) License PLAZA [Complete
 ```bash
 magnet:?xt=urn:btih:87DE27717A6EF39AFCC3ED6101B7A3EEF48E4377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cyjin: The Cyborg Ninja – хардкорный платформер, вдох�
 ```bash
 magnet:?xt=urn:btih:3D30A3FAF842F8AEF4C542BFE4E8B1F7A1545E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Armored Xpress (2021) [En] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A0951DBA8896F48B4B518AD1ADB387AAEA624C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ CyberTaxi (2020) [En] (10.24xyz) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:E62DD458F4E874E067F8E609684BBB0268E3B41B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Griftlands (2021) [Ru/Multi] (484799) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B644A753B30CD40DD3495BCA9DAD29B67E6A9CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.0.11/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:5937EE4ED5F070F3C331ACA099B8E8FF4DD42B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Observer: System Redux (2021) [Ru/Multi] (7368691/dlc) License CODEX [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:44C9130221C0F68F367D3DE2A2FB602749615846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Madness Beverage – шутер от первого лица, события к�
 ```bash
 magnet:?xt=urn:btih:D6060F83C586E9D99814ACF5EF4930ABB32120F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Combat Mission Cold War – варгейм, события которого ра
 ```bash
 magnet:?xt=urn:btih:2175B22901E850B3E63236C524604EDF7D6A3994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ DarkHouse – игра на выживание в ночной психиатр�
 ```bash
 magnet:?xt=urn:btih:5D91EEAC3C102709758F48A02C6415579165B2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Aliens: Fireteam Elite (2021) [Ru/Multi] (1.0.1.90663/dlc) License CODEX [Deluxe
 ```bash
 magnet:?xt=urn:btih:4D31797AC3C0E37F0D3876A219CC617FF0F8AFFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ CHORUS – космическая стрелялка, в которой вам �
 ```bash
 magnet:?xt=urn:btih:D8D21E50F9B4E0249E30E391224AEBB45FCD3FBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Raymond Lacoste, Bradley Edgeworth | CCNP Enterprise Advanced Routing ENARSI 300
 ```bash
 magnet:?xt=urn:btih:D11FB9F3C1065249ADDA3490A4CD761C70AD8756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AC0EEF0D40CEF899C6760C5354556BE941CBE1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dusan Petkovic | Microsoft SQL Server 2019: A Beginner's Guide, 7th Edition / Mi
 ```bash
 magnet:?xt=urn:btih:8756E4BFF1959ED1F371C8BC03B727A31948EE8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

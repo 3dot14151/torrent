@@ -19,8 +19,7 @@ Radu Nicoara | How to be a Web Developer (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:8D94FD82408D9752FC714905274F13C09958AFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Linux Kernel Programming - это исчерпывающее введение д
 ```bash
 magnet:?xt=urn:btih:69ED605DB6AFE4D56104CB24190B31D0E99FD222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

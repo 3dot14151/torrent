@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:307E4E143A27B2735ED597547DAABFB0C52BBB24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aймен Эль Амри | GPT-3. Программирование на Python 
 ```bash
 magnet:?xt=urn:btih:28F6310FF5759A9FCA276F44F6BB977F5B3AD6A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

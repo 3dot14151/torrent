@@ -27,8 +27,7 @@ VA - Trance Desire Volume 46 (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:1F3565D58BD86F8E8F0E245DAD357AF670C76362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Redux @ Amsterdam (2014) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:CBDA3B4CF57E7B10E0759142D507BBC3EBD365BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ R. Carlos Nakai, William Eaton & Will Clipman - Dancing Into Silence (2009) [MP3
 ```bash
 magnet:?xt=urn:btih:1B455130C13FE4B76980C4BA3C1C6CA7640CEF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ VA - Creative Music Box 22 (2014) [MP3|128-320 кб/с]<Dubstep, Glitch Hop>
 ```bash
 magnet:?xt=urn:btih:8582960737868EB614E01C3984B6EF6EE907E5D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D64C5F32D405C746DBD48C897BA698D7036A6A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F5E504BBFAD36C0E3CB3C12D3FA65F277ED61C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5166E43C7FB17FDEC4DEB2D3DB90CF7027A5DA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Carlos Rivera - Por Un Perdon (2002) [MP3|192 кб/с]<Folk, Latin, Guitar, Harp
 ```bash
 magnet:?xt=urn:btih:14829E9539E9E2F5597AD58ACF555DD86C2C45F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ VA - Balance 021 (Mixed By Nic Fanciulli) (2012) [MP3|320 кб/с] <Tech House, 
 ```bash
 magnet:?xt=urn:btih:6D5154CB716FA33A9220B682545035725899705C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ EdelSounds - 2 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin
 ```bash
 magnet:?xt=urn:btih:531BC67F43CAF20BECFE32CB71C1FE22AAF212C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ VA - Namaste Healing (2014) [MP3|320 кб/с]<New age, Easy Lisening, Relax>
 ```bash
 magnet:?xt=urn:btih:74E2299CD279745DBCEF3D926BBBEE1659BC4064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ Lester Young - Blue Lester (2002) [FLAC|Lossless]<Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:DBBDDB37DD9FF9A5826AB223F3E8A816E61AC0B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +392,7 @@ signum/ii - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin 
 ```bash
 magnet:?xt=urn:btih:E2AA9373E128A56957977DC65EA6C28A32F5F79A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ Antreib - 2 Альбома (2013-2014) [MP3|320 кб/с]<Punk Rock, Melodic Hard
 ```bash
 magnet:?xt=urn:btih:441F6B979B759140305D4C464A4006699B10F48C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B2C17573CC564670C78EBF676D8EA323B264983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC087F69D6A129D1CB07CF7A902CE305E9A5B302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E2B0BFC0E49561B6B41BE688DFAE03A09B0DCD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +541,7 @@ The Doppelgangaz (Dpplgngz) - Hark (2013) [FLAC|Lossless] <Hip Hop, Conscious>
 ```bash
 magnet:?xt=urn:btih:EBC0467B32C1ECA8BE6F05209FC43A68143D3FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +575,7 @@ Johnny Hunkins - Down In Flames (2014) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F01585E6393E90A816BEA8EFDC5BE104156DA217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7ECEF3E67A831B837A4409E7E86A429DAA84490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +634,7 @@ Bill Haley & The Comets - The Very Best Of (1999) [APE|Lossless]<Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:07B78D83255061A63F7A6A517B0DF601E1712D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A672F116BBF187A816E9EDE214ABE19292DFF1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83607AAAD237D2AA0AE86A92D14A636DF717EA14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D833AC85AA59AAB91935861518AC2C2ADFF78EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +743,7 @@ U.K. - U.K. (1978) remaster /2014, Universal Music/[FLAC|Lossless]<Progressive R
 ```bash
 magnet:?xt=urn:btih:33ED415CA4EFBCF7D53FEA932483809AA00D77A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +777,7 @@ Stacy Sullivan - It's a Good Day: A Tribute to Miss Peggy Lee (2012) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:031F58F1E60F5D94A644F533CF8DB789E615C8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

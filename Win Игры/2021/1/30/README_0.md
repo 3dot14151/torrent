@@ -19,8 +19,7 @@ Strange Investigations: Becoming (2021) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:A43EC95852B7D15D60FA70B601E0B51BC2C66538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Disjunction (2021) [Ru/Multi] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:B60607A5C6E0EF6DB6D9A407C0BBAE395796F4D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

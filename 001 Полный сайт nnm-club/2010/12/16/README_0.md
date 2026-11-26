@@ -27,8 +27,7 @@ VA - Armind-Best Of 2010 [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:9C722EF6C0C967724824ACCD297334225C0DCD23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ WinSnap - утилита, которая позволяет с легкость�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Redman - reggi (2010) [MP3|320 kbps]<Rap>
 ```bash
 magnet:?xt=urn:btih:90CF97DBD9C89890111837548473588A46B668BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Музыкальный снегопад from AGR | @nGeL® (2010) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:0DB37DF673CD5187FB89A73743C33AC31DACA9A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ VA - Новогодний Танцевальный 50/50 (2010) [MP3|256 kbps]<P
 ```bash
 magnet:?xt=urn:btih:49887E29475F4FCEC5207D335FC866A9D9BE5F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Максимальный Dance from AGR | @nGeL® (2010) [MP3|256 kbps]<Pop
 ```bash
 magnet:?xt=urn:btih:116FAE19D8A0DD37EBC6A22E8EA9325773DFA409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Зимний хит-парад 200 50/50 (2010) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:954234273B8E37267A8D2C59C53741F23C540CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - Новогодний Коктейль from AGR | @nGeL® (2010) [MP3|256 kb
 ```bash
 magnet:?xt=urn:btih:CE9E29207B6297B2D375AC4F2BD024D69B9AF5DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Trance In Motion Vol.72 (2010) (16.12.2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:A370F676B8FE4C480FD3093E27B51E3A38CD9F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ VA - Жажда Скорости Зимние Гонки 50/50 (2010) [MP3|256 k
 ```bash
 magnet:?xt=urn:btih:CF1130E101E4FAF8951C515209943CF0986C3F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F3A1EAEF0F9DE0309A8EA4AFC3874A25B2788DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ VA - Зимний Парад Звезд 200 хитов 50/50 (2010) [MP3|128 kbp
 ```bash
 magnet:?xt=urn:btih:D0773A9CA3DDFE332B842FA729CD99044DED80E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB1990F6814AEB8330A10CA2C9D34CB0034F4BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1078FA7C499CD8CB0786726B977CAD0B89737B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ DVDFab - программа для копирования DVD и Blu-Ray дис�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ VA - 200 русских хитов зимы (2010) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:36F5572BE72D926FEDED21FBBBF6AE4269D6251E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ RegexMagic делает написание регулярных выражени
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ VA - Бум года Новогодний (2010) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:C8F4FEB370A025ACBCFE655BE87F4FF4A7F68F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ The Great Jazz Trio - 4 альбома (1977-2006) [APE|Lossless]<Jazz, Post-Bop
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ VA - Лучшие хиты «Авто радио» vol 5 (2010) [MP3|128 kbps]<P
 ```bash
 magnet:?xt=urn:btih:14B188E5907BD44A71954D4CF888CA88FDCEFAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FAA5C1042ADC4C0F0FB4FFC9FD26725A812F891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:453A1AD26494255311FCB790B79E2AB414DBDF46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

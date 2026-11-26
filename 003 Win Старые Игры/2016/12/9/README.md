@@ -19,8 +19,7 @@ Screamer (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:FF9EA9037040C8CEFFC730B8A333187445448CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Screamer 2 (1996) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:ACA4FA710FFBE7B319BE58E3B719F677002DCDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

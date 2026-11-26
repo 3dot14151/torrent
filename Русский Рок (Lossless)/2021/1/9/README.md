@@ -22,8 +22,7 @@ Vjuga - Aeternum (2021) [FLAC|Lossless|tracks + .cue] <Post-Black Metal, Shoegaz
 ```bash
 magnet:?xt=urn:btih:DA8CDB94C0886D0A4202AC8986C10470663D3EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mirror Morionis - Mirror Morionis (-The Afterdeath Connection) (2020) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:B37CAB5D5AC154DC2445CD0BA99E3D6E5AAC65AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6E2F895519BD181A26393DF922A3EF4C6BE384AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5B8464C3DAE30358E6662A27F6423935E5FC135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Viva! Decor посвящен красоте жизни. Той красоте, �
 ```bash
 magnet:?xt=urn:btih:D54595D53E478EC42CCB129FAD1D9720B5C75117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE526AADF3E7338A4FE209AC0C1390D1D5E24906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E7184438DD7A64C9BB1232E77CEC1B6456EE999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Осенний муз-отрыв Спецвыпуск 50/50 (2012) [MP3|256
 ```bash
 magnet:?xt=urn:btih:3EC32A9051D17B98A84B7CB9CA2C9A4AAC466F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ VA - Осенний Mega хит-парад 50/50 (2012) [MP3|256 кб/с]<Pop, H
 ```bash
 magnet:?xt=urn:btih:3E0BDB48F4B59BB6C18375FC1331E6F65EF08107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04B6CC2A85019171C812F9F07182C97580473E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ VA - Kosmoraum (2011) [MP3|320 кб/с]<Electronic, Ambient>
 ```bash
 magnet:?xt=urn:btih:9C981C6376143DA9251BDB4FA3FBE09576AA3C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B04B38CDBEEE602C0DD5D7645B9D61CF70FD06EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57CE4F594D1314990636A47B87920B58DA8464F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ VA - Palladium: The Official Compilation Album Mixed by DJ Lady Trinity (2012) [
 ```bash
 magnet:?xt=urn:btih:A00EA09B38832CDE116C2FBA6B04827ED40BBB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B01C46CFA5EBE1CB884E4C7DD4641458317001D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ VA - Топ Хит осенний от Русского Радио. Зарубе
 ```bash
 magnet:?xt=urn:btih:BE5E3377167E2008588DD5E71E1C8E462959827E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ VA - Only Best hits: Новинки русского радио (2012) [MP3|128 
 ```bash
 magnet:?xt=urn:btih:F7646FDC25F5DA04C352C95488099BEF373C5D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ Computer Desktop Wallpapers Collection (25.10.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:F59F7613D35C1FA000DDEAD7AA726D8B07D769CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ N/AЖанр: HouseПродолжительность: 00:59:55
 ```bash
 magnet:?xt=urn:btih:358B796D92BCB21B2AFBFD97F3F463685C9065FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0332ADB2E514ADD4C7F1AFA30212E4DFBEE1FEB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +535,7 @@ Anime Wallpaper (24.10.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:66605FB18710D5FE35FFD1CA026E2714384B59F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B1A144BAFE6CCF9EE4BD1F0301D75AB83DEA1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ Design and interior of the wallpaper (21.10.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:79BFBCABC29135EA2293641AE24EBA204069C823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ Bobina - Russia Goes Clubbing 216 (24-10-2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:42CA8DBB702BAD901CB3687D8CB69190CCB2D96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FAE1292B747913B4C3303118B6FC72B29E82A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD26E5177ACDC4A1BD54D74C37C999FC1BCD62CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +711,7 @@ Rebellion - Arminius: Furor Teutonicus (2012) [MP3|320 кб/с]<Heavy Metal, Pow
 ```bash
 magnet:?xt=urn:btih:514744F7C78D717B3B5BE26E65BB4720B625144A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9CCB46E79641CD3C0E6487B148D883150F583F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

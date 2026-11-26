@@ -19,8 +19,7 @@ PC Auto Shutdown - простенькая программа для управл
 ```bash
 magnet:?xt=urn:btih:F62F809CC1EBBB206909E6DB7D3E1B866FF0B931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

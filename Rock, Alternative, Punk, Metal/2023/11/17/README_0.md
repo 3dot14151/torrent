@@ -22,8 +22,7 @@ Immortal Guardian - Age of Revolution (2018) [FLAC|Lossless|WEB-DL|tracks] <Meta
 ```bash
 magnet:?xt=urn:btih:26AF231C0A62F4D8BC61D4E15193AC2ED65732D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Draconicon - Pestilence (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Me
 ```bash
 magnet:?xt=urn:btih:3C43A918F3359382871F6E2CEB90072B30E8CD93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Reveal - Still Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Me
 ```bash
 magnet:?xt=urn:btih:04256B1D35E44B1B3D5847155211B6A2E0F88A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

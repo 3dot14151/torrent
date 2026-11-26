@@ -22,8 +22,7 @@ A4. The Longest Wave (3:32)(   Читать дальше...   )Жанр: Alterna
 ```bash
 magnet:?xt=urn:btih:CAE8D9C2A58EEFBB07C9210F6D6F5930FD78F698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

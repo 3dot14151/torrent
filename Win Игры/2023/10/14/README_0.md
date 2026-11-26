@@ -19,8 +19,7 @@ Monolith (2023) [Multi] (1.0.1.3) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6C04506F6978C8AEB676518B7B56D02FD9A9D4D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted House (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:96A6B672A8167B20D1EE59E9C461AE0E63D89DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Last Lesson - жуткий психологический хоррор от пе
 ```bash
 magnet:?xt=urn:btih:E2B3932DFF814039149EE444329989C2C3AF82AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RAILGRADE (2023) [Ru/Multi] (4.7.42.1) Scene Rune
 ```bash
 magnet:?xt=urn:btih:EA1410E8F127F5726BE581BFFB313DB307E2CE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Scene Rune [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:DBC7DA5EC826276C9C597F149D200064201140C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Repack DjDI [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:F3EAA26E2ACC09A8921BAAF449B0ADEFF787898D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

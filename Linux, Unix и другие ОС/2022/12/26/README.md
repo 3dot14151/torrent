@@ -19,8 +19,7 @@ Kali Linux 2022.4 [amd64, i386, arm64] 8xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:E3FF8A584543E4156324FDF38C455CBEF52ED974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

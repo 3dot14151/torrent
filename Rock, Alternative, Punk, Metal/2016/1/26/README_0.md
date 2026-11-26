@@ -22,8 +22,7 @@ Dream Theater - The Astonishing (2016) 2CD [MP3|320 кб/с] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:DB8C679472F62CD0B559AE073343AE617893A34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

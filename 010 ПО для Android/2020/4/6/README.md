@@ -19,8 +19,7 @@ Notify & Fitness for Mi Band – приложение для фитнес-бра
 ```bash
 magnet:?xt=urn:btih:7BE0E6AE6538B353A0EFFCB77B6D3B53205B70DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

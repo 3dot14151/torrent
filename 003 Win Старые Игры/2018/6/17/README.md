@@ -19,8 +19,7 @@ Nosferatu: Wrath of Malachi (2003) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1B8FE07C6FDDBC94A498DE3F141325FD44327085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

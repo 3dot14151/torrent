@@ -19,8 +19,7 @@ Val'Gor: Dark Lord of Magic / Вальгор (P) [Ru] 2007
 ```bash
 magnet:?xt=urn:btih:DE80B96DEEB5BCE8ACBF1EAA83265E7A2D202B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

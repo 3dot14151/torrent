@@ -19,8 +19,7 @@ Spirits of Mystery 5: Chains of Promise / Тайны духов 5: Узы кля
 ```bash
 magnet:?xt=urn:btih:F8084A7C27A8D9E20CF85587C32537FCEBBF790D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Condemned: Criminal Origins (2006) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:A432B800020938CA4A29B2FE0978B14A1CC15B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

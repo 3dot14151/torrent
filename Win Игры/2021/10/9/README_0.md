@@ -19,8 +19,7 @@ Legendary Tales 2: Cataclysm / Легендарные Предания 2: Кат
 ```bash
 magnet:?xt=urn:btih:5CB1EFE95AF9C2FDA538A1B8C54638136916EA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maid of Sker (2020) [Ru/Multi] (1.4.4) License GOG
 ```bash
 magnet:?xt=urn:btih:5A18C5A36CA237C8FE8E70B981D66FC21DA46B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

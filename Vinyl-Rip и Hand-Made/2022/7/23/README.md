@@ -22,8 +22,7 @@ Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [rest
 ```bash
 magnet:?xt=urn:btih:86C5E4EC47AAD93064A322CF1FCED3B5BB454E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

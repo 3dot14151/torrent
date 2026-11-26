@@ -28,8 +28,7 @@ Bystander - Not So Innocent (1987) [FLAC|Lossless]<Melodic Rock/AOR>
 ```bash
 magnet:?xt=urn:btih:42E7AFFB1A2C3082D36A40BC15DE6911537F949D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Niva - Gold From The Future (2011)Japanese Edition [FLAC|Lossless]<Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:0A969C648EAE028083C9B460E2F168F1E48FD072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Burning Kingdom - Simplified (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:114F466C1CF3E347EA6A00E04FFCE3804998085D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Bruce Springsteen - High Hopes (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:32484E1AC313B8811019DFC4E831900DEDF95B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:175A48184378CF720688C7F44589041A946C277A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:175A48184378CF720688C7F44589041A946C277A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

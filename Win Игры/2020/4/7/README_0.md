@@ -19,8 +19,7 @@ Dawn of Man — это игра на стыке жанров «выживани�
 ```bash
 magnet:?xt=urn:btih:00AD4A7AE5730A37EBF5AA8E5A624FBBA39B1C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Daemon X Machina (2020) [Multi] (1.0.1/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:78900899E4290E742CF307BE51E15B05732C85EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

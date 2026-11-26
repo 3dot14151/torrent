@@ -19,8 +19,7 @@ Mystery Case Files 22: Crossfade (2020) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:FA481C3B79FFDFB70675658EE2D46513701CA748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pride and Prejudice. Blood Ties / Гордость и предубеждение
 ```bash
 magnet:?xt=urn:btih:D3C030D3F8D394C291303A8030BCB840770DB206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark City 5: Budapest / Мрачный город 5: Будапешт (2020) [Ru
 ```bash
 magnet:?xt=urn:btih:56BFA10F8EDF95C2C37862800710D80816DB0D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

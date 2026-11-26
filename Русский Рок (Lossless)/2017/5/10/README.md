@@ -21,8 +21,7 @@ Neutrino, Нейтрон - 7 релизов (2012-2017) [FLAC|tracks+.cue]<Melod
 ```bash
 magnet:?xt=urn:btih:78A8C49539434F7388FF3482C3DA967EC3A23610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16F20463C162591ECBAA69E9BBB1BE3D0A86564D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

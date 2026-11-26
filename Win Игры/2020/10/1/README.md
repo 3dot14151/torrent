@@ -19,8 +19,7 @@ Resident Evil 3 – полностью обновленный ремейк хо�
 ```bash
 magnet:?xt=urn:btih:00E8FA3AF8BECFB9289F3B11C350E05130BA4E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wasteland 3 (2020) [Ru/Multi] (1.1.1/dlc) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:BF59F86C5BF4757526E3EA1930F5EC378E9A8D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Projection: First Light рассказывает о приключениях д�
 ```bash
 magnet:?xt=urn:btih:78D382E2B8016248D9B498904BEE48071C8B7381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

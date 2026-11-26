@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9E912ED0A7C130FE0BC9094998708F55CC7F5D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Elder Scrolls IV: Oblivion, демонстрирует графику выс
 ```bash
 magnet:?xt=urn:btih:895996C53804B120871014B0974CF89CC9A40849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ BioShock Сollection (2007-2013) [Multi] (1.1/1.5.0.19/1.1.22.55730) SteamRip Sm
 ```bash
 magnet:?xt=urn:btih:634A43ECBEB05A8117C3C48063416368EDA8EDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:FDF7162F9C6A97D02439F1DCA1FDF950977B75BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Alan Wake Dilogy (2012) [Ru/En] (1.06.18.1326/1.03.17.1893) Repack a1chem1st
 ```bash
 magnet:?xt=urn:btih:4880C9C3EDFB6B9B0D215C92D47D2F8D8935DFF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Viscera Cleanup Detail: Shadow Warrior (2013) [En] (beta 0.20) DLC HI2U
 ```bash
 magnet:?xt=urn:btih:6532B83E0F98F290479E0BFDD7F06ED7AC25E311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Paragon NTFS for Mac OS - это низкоуровневый драйвер ф�
 ```bash
 magnet:?xt=urn:btih:E24298A2E9B1D3374AEA8D9DE3389CAFAB564189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ MAGIX Music Maker MX содержит более 1500 новейших звук�
 ```bash
 magnet:?xt=urn:btih:0C592973BE3CCF0A832C81A2337FDA7F35A28214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Fallout 3 - Game Of The Year Edition [XBOX360] [PAL/NTCS-U] [Ru] [XGD2/7371] | R
 ```bash
 magnet:?xt=urn:btih:789D014633D3B5647D3A01B3C7C479F514E94241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Fallout 3 - Game Of The Year Edition [XBOX360] [RUSSOUND] [Freeboot] (2009) | R.
 ```bash
 magnet:?xt=urn:btih:7BAA33C0A98334E19F932B63FB178ECC2C632A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Mount and Blade: With Fire and Sword [Ru/Multi] (1.143) License PROPHET
 ```bash
 magnet:?xt=urn:btih:DEA0E0872B44ACD812D93004BD93E3163E1E001F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ MiniTool Partition Wizard - программа для работы с разде
 ```bash
 magnet:?xt=urn:btih:EBCD91052FFF14B8F44F41B06144F546AA4B801A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ The Elder Scrolls V: Skyrim (2011) [Ru] (1.9.32.0.8/4dlc) Repack/Mod a1chem1st [
 ```bash
 magnet:?xt=urn:btih:3AF571DBEA906FACDF9441B2EED370D5A644E668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ Adobe Photoshop CC - программа для обработки растров
 ```bash
 magnet:?xt=urn:btih:E2EC944C24585568A0CC1174AB25779AA3A35DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774.  В своем с�
 ```bash
 magnet:?xt=urn:btih:719C5178C2610AD57FD0CB97E4E6956AA58D4065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EFDABE0413B93B6E535397A4F3EC9960196CC22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3231699BCC17BFC3A32365FD420B0E587F8CA28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ The Bureau: XCOM Declassified (2013) [En/Ru] (upd1) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:77EE694027BBE9704DB2EF5146FBF3CFB554A38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ Plants vs. Zombies 2 [En]
 ```bash
 magnet:?xt=urn:btih:E53A8FD377D6CF81EED09B4804B34F4BCDC51585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ FIFA 14 (2013) [Ru/Multi] (1.2) OriginRip
 ```bash
 magnet:?xt=urn:btih:5E30B93D8A0582790E1DE85BD820CE8D83C96507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ Total War: ROME II/2 (2013) [Ru/En] (Update 4/DLC) License RELOADED
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.isoЯзык интерфейса
 ```bash
 magnet:?xt=urn:btih:DD25053C37243C47842831037CDD484821322179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

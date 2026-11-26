@@ -18,8 +18,7 @@ Mafia II / Мафия 2 (2010) [Ru] (1.0.0.1/upd5/dlc/tr) Repack =nemos= [Enhanc
 ```bash
 magnet:?xt=urn:btih:6F641FAAF616665EDE1A09D0E31A0F4C6558D984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

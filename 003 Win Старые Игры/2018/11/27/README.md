@@ -19,8 +19,7 @@ Jurassic War (1997) [Ru] (1.05) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:50A6C8C712431CF7EB1A36FE3C08BE5667AB80F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Evolution: The Game of Intelligent Life (1997) [Ru] (1.0) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:B27964C78F0AF8400F0EB7499E9A221DF2FE0C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

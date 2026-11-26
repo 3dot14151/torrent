@@ -21,8 +21,7 @@ The Cave (Русификатор/1.0) [Ru] 2013 | ZoG Forum Team
 ```bash
 magnet:?xt=urn:btih:BFBE1B3840EC7FB9AA825C31B27B1C29DA710FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Retrovirus - шутер, имеющий шесть степеней свобод
 ```bash
 magnet:?xt=urn:btih:7B84AD6711A10195DE438570F3C199792E2EA767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ R.A.W. Realms Of Ancient War [Ru] (Repack/1.0.1) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:CA30CD46A98A095F50CED05D682ADC82074F0BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

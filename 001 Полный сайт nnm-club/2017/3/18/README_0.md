@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:445BEBC84DFCF299F4D4A15E5D198308C98E854F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:6D531069EE228CF2A192293A9761275F7EF91224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - Молодежный хитовый бум. Версия №7 (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:3AB5AB482FD496230B64FB90AA2FE38D22786559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Rockefeller - Song Of An Island (1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Sch
 ```bash
 magnet:?xt=urn:btih:261EEED3F7E4C2E6B4738A8FEA6CCBEEF87E75C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Лучший русский шансон. Версия № 5 (2017) [MP3|25
 ```bash
 magnet:?xt=urn:btih:C4DE7DDAF49D16FD9F82668622065F54F22C58F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Tedeschi Trucks Band - Live From The Fox Oakland (2017) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:BD2889E033B80658BF2865DE7FD72538BC126B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Ex-участник из O.R.S. (Orlando Riva Sound).01. City Jungle (5:16)
 ```bash
 magnet:?xt=urn:btih:BCC1986A273E11E98C30B3E0D3748A065C7498B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Козырная песня на радио Шансон выпуск №4 
 ```bash
 magnet:?xt=urn:btih:4EB36AC687C002B7A0D69550DE98DF381ACC6EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Spoon - Hot Thoughts (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ind
 ```bash
 magnet:?xt=urn:btih:1BEE36AE6B83C51BEC892E03815EA258D03ABC56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A639B7DE6805DA6A3FDF82A8EDAC12A26C7DDB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80E16A91243E84E7D3D49E460C9C94D280961F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6DB827DE905DA86C1F1E048903E053B26E0D2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Весна пришла. Лучшие хиты. Часть №12 (2017) [MP
 ```bash
 magnet:?xt=urn:btih:0D73BCCB0C1423A4A2CCD896F9E054D8A852299F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Velvet Insane - Velvet Insane (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E5D65754E103DA9FC231101283C3FDB1CE63B43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36A5B4085050FCBE921D16F51A2007EDC6DEBA28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ Phil Collins - Hello, I Must Be Going! (1982) Remaster, 1998, WEA International 
 ```bash
 magnet:?xt=urn:btih:085E58DF494CFAAB7019AA58081996F68CDFE4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88FE13487BF8E7DBE14FDAD571059B3C48F28386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ VA - Шальной шансон в дорогу (2017) [MP3|256 Kbps] <Шанс
 ```bash
 magnet:?xt=urn:btih:DA095D05E784C7404CF0ED1EBFB162D21FF7DF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ Pallbearer - Heartless (2017) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:27F20B7A1A1B0BB50FAB1C409DACCA47A8DAB9A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3058DE995EB53079BB5BC74875AF4F3F2011372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3B4E83C1C5F1A6E8E00B70A0ECC22B1C58A0A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:180BA6EC8094A4E97DE2FB25C1D419DFAF2A059F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Chicken Shack - Stan Would Rather Go Live (2004) Live, 2008, Angel Air Records [
 ```bash
 magnet:?xt=urn:btih:F55C49148EA1747476450899A186FD047E3A88B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:381F32C3D0DF4A83F28ACAF6AC357A6F9E2B6DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ VA - Shrapnel Records Presents: The Best of Modern Blues (2015) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:3C9E6D24E5D43E2E499CA7DA4A0CC6C3C92AA532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0D1DD1A8CBE64196A3F6EA914F694B2FFEB4B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

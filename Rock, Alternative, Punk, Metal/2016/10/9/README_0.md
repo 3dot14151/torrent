@@ -22,8 +22,7 @@ TBC - 28 Days (2010) [FLAC|Lossless|image + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:3B431A5544263BC3AEB4DCDC00D10C35A63E229A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brutality - Sea of Ignorance (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:773AF8D000BDB798757E72D5C6E4498F125F3F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ TBC - The Rise (2012) [FLAC|Lossless|image + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:CED53D55E71A394E9915282CAC5A05A99DA824B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Narnia - Narnia (2016) [FLAC|Lossless|image + .cue] <Neoclassical Power Metal>
 ```bash
 magnet:?xt=urn:btih:013B4A57DF4394C524B1E9964B97E7147807B3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Charred Walls Of The Damned - Creatures Watching Over The Dead (2016) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:FF364C6AC16D9AF9A11C4B0F3BE7F74161412250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Comus - Song To Comus: The Complete Collection (2005) 2CD [WavPack|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:D0C2883FE5488CF4DE1930F36856ADD519668402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Crimson Glory - In Dark Places... 1986-2000
 ```bash
 magnet:?xt=urn:btih:21C44B507CD4997B42E853E564AEC6FA9BE04D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Joe Lynn Turner - The Sessions (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8291518883B9C7A64D82931C8396CD047FBD924F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Alter Bridge - The Last Hero (2016) Best Buy Edition [MP3|320 Kbps] <Alternative
 ```bash
 magnet:?xt=urn:btih:4C9BE8FBFF1C13AC592D6195DCD281887F4A4B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ Molly Hatchet - Original Album Classics (2010) 5CD Box Set. Sony Music Legacy. E
 ```bash
 magnet:?xt=urn:btih:A38B1AC0EDF83A592E05FBE69EF587BDE769F689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ APPETIZERS
 ```bash
 magnet:?xt=urn:btih:72041D0186603A9DD7C7DFAC99FC53181D143983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +335,7 @@ Joe Lynn Turner - The Sessions (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:498C607A18E8DCD0EEB42EDF4CAA15B03D2E5DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98B6C8E538CB4FD1DDB9DB6BC9A60CCC7062A2DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ Green Day - Revolution Radio (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 ```bash
 magnet:?xt=urn:btih:6410C86255FA899268913FBFCE8EF73FF6768D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ Queen - Hungarian Rhapsody: Live in Budapest (1986) /2012, Island Records/ [FLAC
 ```bash
 magnet:?xt=urn:btih:F0A2F243A906ED4F9151EC9B140A7B43C5EDCCDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

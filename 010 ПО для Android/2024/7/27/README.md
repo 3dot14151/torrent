@@ -19,8 +19,7 @@ PictureThis - Plant Identification v4.2.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3AE2CB6EEB55C8E885FB884B37CA95B19471B1E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PhotoRoom v5.1.9 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C9A2A92672783A6BB84B60AA8061A8E98AB1ACCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NewPipe v0.27.2 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DCC50F8D9B1ACF669BC427B26BAF190312B9B627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:988A6AF02F72DDD4B84D29397546DC36FB8F170B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Republique – затягивающее стелс-экшен приключен
 ```bash
 magnet:?xt=urn:btih:D3E8D916D64504DD952B58E3BC7453252F968B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mega Man 11 (2018) [Multi] (1.0.0.1/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:7160550A916FC32B117D2E3E8D5FDD025ADC4571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Republique – затягивающее стелс-экшен приключен
 ```bash
 magnet:?xt=urn:btih:E0A0569151F241A6A560D0B4FE185160C85D662D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

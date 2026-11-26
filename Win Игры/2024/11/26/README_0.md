@@ -19,8 +19,7 @@ Beyond Hanwell - это насыщенная, детальная и атмосф
 ```bash
 magnet:?xt=urn:btih:82D288B1C64EAD37095D167CA4FCBF1A7031DA6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FEAFD543CED54CDA45EBC55B0F10356702845BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dune Spice Wars – стратегический игровой проект, г
 ```bash
 magnet:?xt=urn:btih:DB861538315CC97321DC0B3B04454F38471DB727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:81BD264AB7890820292417835E88A0E1C938F42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Endless Sky - космическое приключение, в котором �
 ```bash
 magnet:?xt=urn:btih:8990530DF60CCD72941520CEDE0BB1763B501149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Strange City (2024) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0584E0C6B738DE2B952544527E7C17D2B90B9516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack Other s [Deluxe edition]
 ```bash
 magnet:?xt=urn:btih:26D28423A15EBA89FF0B7A194520B9BFF5886352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Slay the Princess (2023) [Ru/Multi] (1.0z) License GOG [The Pristine Cut]
 ```bash
 magnet:?xt=urn:btih:5EE16D1E8B0C5BD17C90C6F6DAA510F2073271EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.80/dlc) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:51D86616DC40A796ABC880BE8CC9E4DBF4CA2CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Frontier Hunter: Erza's Wheel of Fortune (2022) [Ru/Multi] (1.1.02/dlc) Repack L
 ```bash
 magnet:?xt=urn:btih:9AF979CA2E109E4B530D05EA6AEABA88EAB498EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ El Hijo - A Wild West Tale – это увлекательная игра в с�
 ```bash
 magnet:?xt=urn:btih:D461BDA6BDD9BF2C46E1BAB2A41DE7ACDF16EE49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Beat Hazard Ultra - это ни на что не похожая игра, кот
 ```bash
 magnet:?xt=urn:btih:2DDC1C4ACABA9838092C876D920AE19BC9E363E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

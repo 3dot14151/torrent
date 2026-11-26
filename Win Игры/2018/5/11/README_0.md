@@ -19,8 +19,7 @@ Cadenza 5: The Eternal Dance / Каденция 5: Вечный танец (2017
 ```bash
 magnet:?xt=urn:btih:CA99181BD0DE5C007FF1F9907988F60CEC90BA7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lake Ridden (Озеро Риден) — игра-головоломка, осн�
 ```bash
 magnet:?xt=urn:btih:002B7834A9279C91AF99472C977503B93A613D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

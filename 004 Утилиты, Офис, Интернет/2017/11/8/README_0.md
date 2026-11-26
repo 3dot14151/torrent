@@ -19,8 +19,7 @@ GreenBrowser 6.9.1223 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:03302030E4E98A076747BC49C04654D65781D835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Incomedia WebSite X5 — программа для создания веб-са�
 ```bash
 magnet:?xt=urn:btih:DB4E76CAB60309B8DCF1BC563D9E26C0ED33A66F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

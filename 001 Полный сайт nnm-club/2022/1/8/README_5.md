@@ -20,8 +20,7 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ```bash
 magnet:?xt=urn:btih:F5D7A9BF394E8AD79BCD7A6A1632DF86FBE4655C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Smooze одушевляет ваш скролл и добавляет функц
 ```bash
 magnet:?xt=urn:btih:E354FB672134880DB65C096F06C375FA10FEF987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ VA - Winter Grooves: Urban Chillout Music (2022) [AAC|~309 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:06F10E43AC4A02721ED2614F7CC00F6DEE0D3807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ```bash
 magnet:?xt=urn:btih:B9B226D96F343D32B30063F88586DABF0EA81620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Feeder - это полнофункциональное приложение дл
 ```bash
 magnet:?xt=urn:btih:AF335D35B761B6280D1AB40CC2A6784DC4B108C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ IconJar 2.10 [En]
 ```bash
 magnet:?xt=urn:btih:3DF4C7AD96AACCFE5F6940DC98210C94F9FEB561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ VA - Ethno 3 (2019) [AAC|~323 Kbps] <Chill Out, Downtempo, Organic House>
 ```bash
 magnet:?xt=urn:btih:463D69662CB69793856574E58540391C8DC41307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:50AC908A50FE2C6452DC563C79B0476B0A2D274C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ VA - Guatemala Orange: Latin Chill Music (2021) [AAC|~322 Kbps] <Chill Out, Nu J
 ```bash
 magnet:?xt=urn:btih:18A4A9EFAF205EAEF6CB2E362B47322173F79A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Laidback Luke - Yearmix 2021 (2021-12-16) [MP3|320 Kbps] <Electro Pop, Tech Hous
 ```bash
 magnet:?xt=urn:btih:C4FB41D55BACC1C75DA15754C67176CDDB564703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ ShowKeyPro 1.0.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:4F5F1FCA629E638D1CB3886943AF544F652938F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Gregg Allman - Laid Back (1973) Reissue, 1987, Polydor [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:75E75ECC349FE62175CA6EA7D12680C7124FF2DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ VA - Ethno (2017) [AAC|~321 Kbps] <Chill Out, Downtempo, Organic House>
 ```bash
 magnet:?xt=urn:btih:7A55F371EF2DA3DE6AF009A08BB34CA0F135045B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ VA - Chillout 2022 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:3F19EFEE907496225A4198CDD5DFCC396AE01FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Data Guardian 7 v7.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:457005DC94D850A0F46AB47E69C4F3D898C9CC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ XCOrganizer - это инструмент, который позволяет л�
 ```bash
 magnet:?xt=urn:btih:4E8C19D6ACCD526BA9919801E4B8C71D3A874DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ VA - Deep & Soul 3: Deep House Music for Your Soul (2020) [AAC|~319 Kbps] <Deep 
 ```bash
 magnet:?xt=urn:btih:0088A732099C9802C3A5CE6D05B4D6F4B1BA672E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ VA - Deep & Soul 2: Deep House Music for Your Soul (2020) [AAC|~322 Kbps] <Deep 
 ```bash
 magnet:?xt=urn:btih:64BDE1BF6B46E056F98E083212030C4706EF6FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ VA - Deep & Soul 1: Deep House Music for Your Soul (2020) [AAC|~325 Kbps] <Deep 
 ```bash
 magnet:?xt=urn:btih:132096ACC64F1737528A3E37EF4FEBA77E340BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Animated Wallpapers - приложение говорит само за себя
 ```bash
 magnet:?xt=urn:btih:C521EBB3CE268B48EC3E80EEB0E0823AD3CB8682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0E994672E0FA802E249B98BC22AEFD510588071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89C01F31BF160C247D8DD372A09C3A74048AD8AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Bigasoft Audio Converter для Mac, все-в-одном аудио преоб�
 ```bash
 magnet:?xt=urn:btih:512B1217E9DFD595E5AEF72AC1F70EB3D1B451B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:C7BD3FB0B81D8E28275FE319CD54DA828724F6ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Bart&Baker - Nicolle Rochelle Sings Bart&Baker: The First Lady of Electro Swing 
 ```bash
 magnet:?xt=urn:btih:560421997090C9BAFCCE7885021E9B48AE8D16DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C0FC531416E3A1AB664F0CCC9B7506016612CFDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

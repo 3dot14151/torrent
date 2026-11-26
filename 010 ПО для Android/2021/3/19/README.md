@@ -22,8 +22,7 @@ Piano Ear Training Pro - тренажер для слуха
 ```bash
 magnet:?xt=urn:btih:FBC2F7295B185235DBBC7C05CFAC787B087F2641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9A9E1EEE28A048DE353E79798CB67D3CEC86505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ TiviMate IPTV Плеер v2.8.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:C3825677AA5A4270CE72D7993FE3ACA070D9DC32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

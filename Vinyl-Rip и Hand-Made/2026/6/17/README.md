@@ -22,8 +22,7 @@ A3 Chet Atkins - South(   Читать дальше...   )Жанр: Jazz, Pop, C
 ```bash
 magnet:?xt=urn:btih:4FFFE6E2F48867D0EB03E8E210D9D992CE13C217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

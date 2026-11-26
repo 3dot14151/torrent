@@ -26,8 +26,7 @@ Alaskan - Despair Erosion Loss (2014) [FLAC|Lossless]<Atmospheric Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:F735A56182A891DEEB599E37BACF2FD29830EE09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Revolverine - Samsara (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6B68E041BA495AEC22F7DC78F447F661CEE9FD57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Bonus track:
 ```bash
 magnet:?xt=urn:btih:415CBA1ACAF1A3F09C8EF41E4730D9A3718EF2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3893CC2F73126C5FCC4563304780584FAA67938B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ b. Miracle(   Читать дальше...   )Жанр: Rock/Blues Rock/Prog Roc
 ```bash
 magnet:?xt=urn:btih:94E6C7B3A2539FCE3F09806F3D3C54E232747FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Nashville Pussy - Up The Dosage (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F3588CDDD3B36E76C4AE780CC8CB1CED2D1A301A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ VA - Classic Rock #125: T.N.T Dynamite New Music Inspired By AC/DC (2008) [MP3|3
 ```bash
 magnet:?xt=urn:btih:CEE7AE07EC54B79B7105428EEB11BD4F8E01460B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:920F2B6F00985FC597DA65F519E731B5D38765D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ Lacrimosa - Heute Nacht 2013) EP [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:F843CA7E1A8B3B813BB36C2254FA5DA77109BC8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ UFO - On Air At The BBC 1974-1985 (2013) 5CD Box Set [FLAC|Lossless]<Hard Rock /
 ```bash
 magnet:?xt=urn:btih:BFA3A9B4C2BAA691620C1CEC1989C3AD708A8390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Demon Hunter - 8 альбомов (2002-2012) Дискография [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:96CB83F992DA1E6C53E4D3A2429A4A08AC405F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Guns N Roses - The Ultimate Best Of 2014 (2014) [MP3|256 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6CC3AB6C123AF47D8061AFEB29251B4190F76F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

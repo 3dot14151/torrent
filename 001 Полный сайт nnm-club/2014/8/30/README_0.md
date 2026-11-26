@@ -27,8 +27,7 @@ Eternal Soul Vibes - La Polemique (2014) (Polnoch Psydance Podcast) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:5046FDA330B2496ACE58B9DB1A6EF1418DF81220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBB01402D54632944C556A1B2A496ACFA8D3EB52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C3CBCFA06243EC1ED7B698566BD835FB3FDD9A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Thomas Datt - Inside the Glacier (2014) [MP3|320 кб/с]<Chillout>
 ```bash
 magnet:?xt=urn:btih:A1562A0689B13B919433315824D1921514092792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E757CF2C47FD6732B2944BDB5C0B23AAEED4D624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ George Harrison - Gone Troppo (1991) [AAC|304-356 кб/с]<Pop Rock, Classic Roc
 ```bash
 magnet:?xt=urn:btih:08AD117CBFFE73F017630BB5518CF997ECEAA750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Malia - Young Bones (2007) [WavPack|Lossless]<Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:5973852C6A4DB90964F565D12BF5EB8DDFED0D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Scott Hamilton - Nocturnes & Serenades (2006) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:C02C2104988B3C5B391CA20B5F9CEAF2D7D01A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ Malia - Yellow Daffodils (2002) [FLAC|Lossless]<Funk, Neo Soul>
 ```bash
 magnet:?xt=urn:btih:8B9518DC1757B09A7F81367D17FF4300FF4F28DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ Motion Drive - Viewpoints (2013) [FLAC|Lossless|WEB-DL]<Psy-Trance; Progressive 
 ```bash
 magnet:?xt=urn:btih:05B2E77FFC9BFDE2D2C1D199D1372708CC4CA049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ Final Cut Library (   Читать дальше...   )Тип издания: OS
 ```bash
 magnet:?xt=urn:btih:F3A926A1BC64F113DF7FB8E8B8A3510DDFD5D13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD2852768F60879568697FDEBA9F36BD1FC3BE1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ Spheree - сферический дисплей, способный демонс
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ Alcohol 52% - широко известная программа для эмул
 ```bash
 magnet:?xt=urn:btih:AC813B91E2DA152CCD906A39792D2C5F79B7CA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E7D4AFA7F54AA32A5CEFCFC2825AF3394E34FE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE910ACA703EE95D18C7A134714664FEF9D92878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ Billboard Hot  фактически является официальным хи
 ```bash
 magnet:?xt=urn:btih:EC80F495E6760F1AACED35717A5F71CA5A534E40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3D881970A5598FD0C6F398DBC7105EC31686871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAEC14A7F535B5EE24A4AA428E46543AC3B1748A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F31ABD244081AC0EC9717F44575D3183BBB0F211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BC113DAFB08990126C041AEA462FD3734A7E2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +633,7 @@ Banks - Goddess (2014) LP [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:0EA5367E42106780883F0CF2B8D36C302DD4807A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ VA - Music For Everyone - Atmospheric & Progressive Breaks Vol.2 (2014) [MP3|320
 ```bash
 magnet:?xt=urn:btih:ECBE0B6EE7FC7B0B8FDB4D8E8509ED5312BB2163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ HyperSnap — программа для снятия скриншотов. Мо�
 ```bash
 magnet:?xt=urn:btih:1734D07E12367557ED397BBC21719541310CD30A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ VA - Lounge Jazz in London (A Chillout and Bossa Jazzy Collection) (2014) [MP3|3
 ```bash
 magnet:?xt=urn:btih:10311A0CA3C00E50C99435E50505D07D8808A152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +752,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:085E18A717E57791DF506F054A9BC9B0EEBCA074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

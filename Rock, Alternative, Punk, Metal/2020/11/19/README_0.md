@@ -22,8 +22,7 @@ Sodom - A Handful of Bullets (2020) EP [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:05C28CD28D164E076586EF8DA0F932FB292F200F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dark Tranquillity - Moment (2020) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:80F1EB5132115C9E8764F954B6BA89F0905FB38E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cellar Darling - The Spell (2019) [FLAC|Lossless|image + .cue] <Progressive Folk
 ```bash
 magnet:?xt=urn:btih:F3FCD233F7F131C10D15534F3C771C0E259D8A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

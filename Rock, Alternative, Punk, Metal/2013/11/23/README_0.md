@@ -27,8 +27,7 @@ Witheria - Vanishing Order (2011) [FLAC|Lossless]<Melodic Death, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:060DB52B915DC5D6B48C9DCB5B9D023D92B35443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Blues Power Band - Dark Room (2012) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:36698DAE82FFBF26F249DC7295D6123C98C439C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Essence Of Datum - Event Horizon (2013) [MP3|320 кб/с]<Progressive Technical 
 ```bash
 magnet:?xt=urn:btih:55CFEB48179AE7A555CFD17B04E6CA0B4652D712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Andi Deris & Bad Bankers - Million Dollar Haircuts on Ten Cent Heads (2013) [MP3
 ```bash
 magnet:?xt=urn:btih:56564307DB087164E4A0C4D48150726751C3B594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A95CD9E7A1FD60C932C090FFBC94DF3E02A51DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DC857A57067B727D129E98DC57C51E5974440D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

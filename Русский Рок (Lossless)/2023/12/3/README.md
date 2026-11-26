@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:6FAB0EA667931EFD63C90351748A709474B31BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pioneer of Deep Space - Северное лето (2023) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:0758BC101D6CD68D369EEE6157BDD5C2CAE669C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:F00251A0BB7125508F950C7E83016D13A32D9BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Lingobit Localizer — профессиональный инструмент д�
 ```bash
 magnet:?xt=urn:btih:3FFC7E954190E6004E87C1F73924DD13DFB9B5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FileVoyager 15.5.7.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C5290DFA8B17B206DD08D927A070B3ACA16AA490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Active Partition Recovery — служит для восстановления �
 ```bash
 magnet:?xt=urn:btih:226C0FD0227DDFB8D97E9D999036EA4AA4F87FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

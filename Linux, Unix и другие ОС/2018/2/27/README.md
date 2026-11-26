@@ -20,8 +20,7 @@ BlackArch - «легковесный», простой и гибкий дист�
 ```bash
 magnet:?xt=urn:btih:279F3FB454B0D10102B6D1497EF1F0DECC577F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

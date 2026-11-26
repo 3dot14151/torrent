@@ -18,8 +18,7 @@ Need for Speed: Heat – очередная часть гоночной сери
 ```bash
 magnet:?xt=urn:btih:6B891A01A883000615B86130A80913DD06D8C80E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

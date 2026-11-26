@@ -21,8 +21,7 @@ Tanglu 3.0 Chromodoris willani Live [Plasma KDE 5] [amd64] 2xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:FEF7CB5B8BDA89FC38876B2997591F3E6E1CC720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Tanglu 3.0 Chromodoris willani Live [Plasma KDE 5] [i686] 2xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:D257459372DAAC68A0CF705A48BDC1ED75EA0E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

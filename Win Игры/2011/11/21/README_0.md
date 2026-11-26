@@ -19,8 +19,7 @@ Drawn 3: Trail Of Shadows Collectors Edition / Спасенный: Мир тен
 ```bash
 magnet:?xt=urn:btih:97F025A40C46E94E9A576A4A9B248BA24E0216BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Lagoon 2: Cursed & Forgotten / Затерянная лагуна 2. Нов�
 ```bash
 magnet:?xt=urn:btih:F06B69FE9E92CEAAA6E84EE7F41CEBCC0656B6E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Manor 2: Queen Of Death Collectors Edition (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:C4AF8A4D813C1D5D9F95D5B08FD410D301E86DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Non Fellows / Не друзья. Вымерший город (L) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:23FF3291B869F5060A5202B5ABF94DBBF1E88BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

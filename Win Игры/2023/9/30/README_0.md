@@ -19,8 +19,7 @@ BIT.TRIP BEAT (2009) [En] (2.0.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:12FA6A59744CDC51C0BBA3E7B8B4922B893513D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BIT.TRIP Presents... Runner2: Future Legend of Rhythm Alien (2013) [En] (2.0.0.3
 ```bash
 magnet:?xt=urn:btih:1DAA57C51EC032D83744BD998B362ADD34708562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) Scene Rune
 ```bash
 magnet:?xt=urn:btih:95DC44EA11F88357E4B159B8476F09C61ADC61D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4B04F59F562FF501466CA2E0E0C32689C5003C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ BIT.TRIP RERUNNER (2023) [Multi] (20230927) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:32F69DE315A08896E0C6D26737C74E8A6FF83E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ NASCAR Arcade Rush (2023) [En] (1.0.0.2/dlc) Scene Tenoke [Project-X Edition]
 ```bash
 magnet:?xt=urn:btih:2BD98B2BDC9A4889B1BEBC8D4A87C96B2CFCC18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

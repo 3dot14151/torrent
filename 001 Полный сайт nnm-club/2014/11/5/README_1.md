@@ -27,8 +27,7 @@ Catharsis - Индиго (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:975D6428C7E7A65004A51B4E8395D013BF46905A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Ronnie Earl & The Broadcasters - Deep Blues (1988) [FLAC|Lossless]<Blues, Modern
 ```bash
 magnet:?xt=urn:btih:BDE824FE3C0DEB447E0A5AACC9CD8DCFE59E8BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Sleipnir - кроссплатформенный веб-браузер, пред�
 ```bash
 magnet:?xt=urn:btih:D36800A965DBC1554C569717D81F544D7AC28AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Chris Norman - The Original Album II - Different Shades (2006) [FLAC|Lossless]<P
 ```bash
 magnet:?xt=urn:btih:B75B473EDDC3A4A8E066A1BFB6FBF61F95552535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ INXS - 18 Original Hits For Love (1997) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:4210DB9C4EC2636BC74095E98DA2719134B7CD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:672BFBD714CE8EC74CA01A2F5AB7F9A29A2DC59D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Soviet Suprem - L'internationale (2014) [MP3|320 кб/с]<Hip-Hop / Comedy / Fre
 ```bash
 magnet:?xt=urn:btih:7FF02BB6BBF66E2664279B3EE960F5554F08E8DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFC4F89DB875440D43DAF85A7C8B44E8ECE1744A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E58C157F6241522C07F4B42BDF18874003B0726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DA9E7AF2E62EF41EE7D981C428FD3D19FE0FA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ LibaBook  (ЛибаБук) – бесплатный каталогизатор �
 ```bash
 magnet:?xt=urn:btih:D30B103B90D4578E12A75FABC2B44589E68D25E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80BE683C83B1C926257CB2629C970BEF7B477F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +363,7 @@ SAM CoDeC & DeCoDeR Pack 2014 5.70 [Ru]
 ```bash
 magnet:?xt=urn:btih:37C370CB15908C23139084BDF0642721D3B9006F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ Simple Minds - Big Music (2014) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:97FA8DF92A936603B0141E8D1E833D5DCBD18E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69D678D6700E6E5BC27655FBD54250051CDF4EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +451,7 @@ Hugh Laurie: Let Them Talk. A Celebration of New Orleans Blues (2011) [1080i] HD
 ```bash
 magnet:?xt=urn:btih:E7F146D009C17D6359925D3B8F44E4D83C2D87BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29FCACAF87702B63FA7208095A974E9BD78B66ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEA2DFE115EFFFBC7F60151A4553A7657533F69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:E5703ACBB1CEBC5FAE22F7006CA60D8C56D97916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25BBF81E69B8FFA583CE095FA7563D4C3018DA45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ Frank Sinatra - Songs For Swingin' Lovers (1990) [FLAC|Lossless]<Vocal Jazz, Swi
 ```bash
 magnet:?xt=urn:btih:E118F89BBD0FB809AEAA8A1627FA8C5760DF498F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +622,7 @@ VA - Best TOP 100 - Hits Dancing (2014) [MP3|248-320 кб/с]<Dance, Club, Progr
 ```bash
 magnet:?xt=urn:btih:A37799F1F6AB15290DE0DC854B08F79E9DD76DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9342DFACAD85AABE3D5D73DB2B0E3561C7410A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +675,7 @@ AirFile – Управление и доступ ко всем вашим обл
 ```bash
 magnet:?xt=urn:btih:ED05D3D6818C16D1ED35F376C9EBF0BD3A9BECDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +700,7 @@ The WhiteHat Aviator™ Web Browser - простой, быстрый и безо
 ```bash
 magnet:?xt=urn:btih:0EF473C9A99B45AEAD0E96E1CB0EC72D9F4E5BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:952C59465B96FDF31620267B8395AA350707D777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

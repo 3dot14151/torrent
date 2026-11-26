@@ -21,8 +21,7 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:C76BFA7AC9B275DAC190114549CC648057412185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Kubuntu 14.10 Utopic Unicorn Beta I [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:4D5A9100CC8833D2FBAA1BD032386DF49F49F031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DCBC527A39782E21F8C22FE891CC7E3E191A861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Wanderlust 2: The City Of Mists / Жажда странствий 2: Город 
 ```bash
 magnet:?xt=urn:btih:431908D73534061520F1C2B4660663EBE2E9980D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Constructor Plus – новейшая игра в знаменитой сери�
 ```bash
 magnet:?xt=urn:btih:EFFB2A10E86B568126245975F89527E9548B53D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7493624FD82656677077A112AC5C4FC9056092E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA62ECD3BA8A5C006719372688676DEE60674F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Nisekoi | Nisekoi: False Love | Притворная любовь | Любовь
 ```bash
 magnet:?xt=urn:btih:AE17E25D8CE08D98EC997AC272CF9CC8EA08F103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ VA - Over Records Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro Hous
 ```bash
 magnet:?xt=urn:btih:DD049CF52BF7657487E3AE605208546ED4A0488F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ VA - Top 100 Club Tracks Vol.1 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:B3F03D3D93E8C0383820567273BFD40453454BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ American Truck Simulator это симулятор вождения америк
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A26E60552333B6E65566007B6084DAF5212BB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BF8D18788B19A6BDBD2D12BC64244402389021B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ Spec Ops: The Line (2012) [Ru] (1.0.6890.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:54B9192F89E80857A85ABF6D45CD26327F74353C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ Yume Tsukai | Ловцы снов [2006, TV, 12 эп.] DVDrip 396 raw+rus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ Kirameki Project | Проект Кирамэки [2005, OVA, 5 эп.] DVDrip 480
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.2.5/dlc) Repack R
 ```bash
 magnet:?xt=urn:btih:33CC85A35BD8EFFDEC20CDC40E0C7734DC909E3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ Tetsuwan Birdy Decode: The Cipher | Birdy the Mighty Decode: The Cipher | Мог
 ```bash
 magnet:?xt=urn:btih:2A02B9FA977F373BC37233379CB0797229CD5703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ Tetsuwan Birdy Decode:02 | Birdy the Mighty: Decode | Могучая Берди 
 ```bash
 magnet:?xt=urn:btih:6609090F72E66ED728402C41C46F82ED3F845C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ Shin Kimagure Orange Road: Soshite, Ano Natsu no Hajimari | Новые капр�
 ```bash
 magnet:?xt=urn:btih:D3C2D76D0F04389B2154DCA43DA8FA2D8E2D9328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ Kidou Senshi Gundam 0080: Pocket no Naka no Sensou | Mobile Suit Gundam 0080: Wa
 ```bash
 magnet:?xt=urn:btih:3AC297CD6CA8EEDAD3CFB5F3D6C053FB4CC25A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +625,7 @@ Megazone 23 | Мегазона 23 [1985-1989, OVA, 4 эп.] DVDrip 480p raw+rus
 ```bash
 magnet:?xt=urn:btih:BBB8D8258CB437641AF857F503C0A9E54E5220B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +650,7 @@ Tetsuwan Birdy Decode | Birdy the Mighty Decode | Могучая Берди [Т�
 ```bash
 magnet:?xt=urn:btih:65CED84BA1DD8704672EA13437189FCE395DF87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

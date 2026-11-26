@@ -19,8 +19,7 @@ Chainz Galaxy (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:226A06EF23A02BF93B0F37B2780F941E01475034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery of Shark Island / Тайны острова акул (P) [Ru] 2007
 ```bash
 magnet:?xt=urn:btih:9083859AFC29856CD08A185B42EB2BD798E538DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E6D9BC2FE7C5ADE9D7759C8012177C4DB8012A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

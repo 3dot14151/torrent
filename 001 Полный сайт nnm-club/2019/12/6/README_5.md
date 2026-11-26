@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:35C8F648043886E56019FFB2258023F4CB852466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01EF2C3BAF0692B9E7CCBF1A6B834B4256D07367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Elfen Lied | Эльфийская песнь [2004, TV, 13 из 13 + спешл]
 ```bash
 magnet:?xt=urn:btih:63A054745481B0929BC5B84BCBD7097E38A09D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6633B2583103FA8DC28DD5B6E1B953F353857C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ The Matrix: Path of Neo / Матрица: Путь Нео (2005) [Ru/En] (1.2) R
 ```bash
 magnet:?xt=urn:btih:A629C3D47A710168DBC38E1DB9F5CDADB8A862F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Halo: The Master Chief Collection (2019) [Ru/Multi] (1.0) License CODEX (обн�
 ```bash
 magnet:?xt=urn:btih:EC4EC6E9B2BC67885A45CFCA0A7A457FD3FDC5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.163.0.1/dlc) SteamRip =nemos= [Game of the Yea
 ```bash
 magnet:?xt=urn:btih:B333374C7E9FD9DBFDBC295E6340CE656E452ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

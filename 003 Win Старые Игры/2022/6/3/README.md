@@ -19,8 +19,7 @@ Patrician III - это экономическая стратегия. Вы - о�
 ```bash
 magnet:?xt=urn:btih:56159AFD8ACB47563776A69F8B2360110AA0A222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

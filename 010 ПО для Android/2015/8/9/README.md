@@ -21,8 +21,7 @@ RunKeeper 5.8.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:9AAEDA72C0A7DE108EAA39DCD73DA41CF0970BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

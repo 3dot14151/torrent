@@ -19,8 +19,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:EABCAD5EE53357B07C1904DE23162706771F53B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Beyond Hanwell - это насыщенная, детальная и атмосф
 ```bash
 magnet:?xt=urn:btih:A15DBB94EE0E1986DF136592B8734DBE138BCCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Songs of Conquest - пошаговая стратегия, вдохновлен�
 ```bash
 magnet:?xt=urn:btih:D62281D2137904E05228FE517EE8E4DCB7444DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PROTOCOL 11 - Episode 1 (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C9F23F15958641C696FE042D46B9F18E702D3F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rising Star 2 - ролевая игра в сочетании с симулят�
 ```bash
 magnet:?xt=urn:btih:EC89DAF7B6E2AC6FDAC07D58C39462916708855C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Marenian Tavern Story: Patty and the Hungry God - необычная японс�
 ```bash
 magnet:?xt=urn:btih:B44C61DFD07E5663967A0FB1E21461DF778908B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

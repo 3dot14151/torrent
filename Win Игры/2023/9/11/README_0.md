@@ -19,8 +19,7 @@ Little Witch Nobeta - трехмерная экшен рпг уже как тр�
 ```bash
 magnet:?xt=urn:btih:9D10385089991E069035EE7AAAA1C0511E7DF4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gordian Quest (2020) [Ru/Multi] (1.4.2) License GOG
 ```bash
 magnet:?xt=urn:btih:0DB57E2159C06D600DCCBF231C8873EB44BD9B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

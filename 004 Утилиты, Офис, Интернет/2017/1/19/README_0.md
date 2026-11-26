@@ -19,8 +19,7 @@ Acelogix Software Ace Utilities 6.3.0.292 — надежная, простая, 
 ```bash
 magnet:?xt=urn:btih:C6D6C24ABDDA74BA9360B256BE16CF25B69F9775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ LINE - это приложение, позволяющее делать бесп
 ```bash
 magnet:?xt=urn:btih:314DF0BCA3518B37C1CC6FAAA51EE3325F906CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Wondershare Data Recovery - мощная и простая в использов
 ```bash
 magnet:?xt=urn:btih:8ED6BE185623D289E14D653C2C89F9566E73E1C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

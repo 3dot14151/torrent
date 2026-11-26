@@ -19,8 +19,7 @@ Driver Talent Pro - программа для поиска и установки
 ```bash
 magnet:?xt=urn:btih:7FBBDD91F71ED5C0D5E9FB79399A0B134C1AE815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

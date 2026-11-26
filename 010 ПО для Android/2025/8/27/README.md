@@ -19,8 +19,7 @@ Proton VPN — это единственное в мире бесплатное 
 ```bash
 magnet:?xt=urn:btih:BF8F2AFEBA142037E98180A742F468DFC265EB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lighting calculations / Расчеты освещения v6.1.7 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:ADBA3FBC3B512736E25E38064BDC555C988E14F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:7DBEC32A3B7209FEB4AED5A0F60E0515BE87CEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:F07C02B1A797F114A8393E215CC01E4120524647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

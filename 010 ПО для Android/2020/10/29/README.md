@@ -19,8 +19,7 @@ Comica v1.41 [En] - превратить фотографии в комиксы 
 ```bash
 magnet:?xt=urn:btih:61CAD905B5D8EABA9FEA9B20A4A5DDEE01A7DAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

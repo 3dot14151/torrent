@@ -21,8 +21,7 @@ Clifford Curzon, Budapest Strig Quartet - Brahms - Piano Quintet in F minor. Dvo
 ```bash
 magnet:?xt=urn:btih:0E5EECDDCAF9B83DE1FAB4EAF24EE4B2C6DB4957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDF3166B7E65B533BC15607EC604A9D1A3053382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EDE2A689D90BF4C6905726E0AB5CED421B3DFD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B24FFE703B440B19CE4956F8DFE2F537E9C7DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ ExpanDrive - удаленный сервер, как локальный диск
 ```bash
 magnet:?xt=urn:btih:CE57410653DFEA7355BFD631E057438C7387EFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D7BF7EED8F249E5FAE199E84EDE0DD43F85A5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A5715D27D26F9AE9C61F17BC2BA391447F6BE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ VA - Давай, наливай. Сборник радио Шансон 4 (2016)
 ```bash
 magnet:?xt=urn:btih:04B39C8A9321EEEF4BA396ED9791112C7A442DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Spirits of Mystery 6: Family Lies (2016) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:DB2108DCC074014406553C3B2A65C27645FA3CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Cosmic Gal - Keep On Moving (1979) LP [MP3|320 кб/с] <Electronic, Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:C12E6AB646E88BACE703F291730299D14782D077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DC894A5C6532FA54252447D79B8B5B41B1D0730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64A57A98B608961F9BA1BCF4E403439627936F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1B9D71FF398BD080FA1F5E78B033797B5BD81EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Mick Jagger - Mick Jagger and Friends (2006) Live bootleg [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:3D86996633272329A82D7FE994D20A61256F6979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Janet Baker, Geoffray Parsons - Baker (2002) "BBC Legends" Series [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:F9ACACB187197B08105949FA4D75D2BDCF3BD02E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Vampire Legends 3: The Count of New Orleans (2016) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:9BF2724CA005DAF8BEC0EA6AB90EC2185400D6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ VA - Retro Chic 100 (2014) [MP3|320 кб/с] <Balearic, Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:2C8B5B37DAE0998C1F5AB4DD4EC5D7075FA5445A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E518F66CE3B35944ACBBFDF7C27A4485C5E8C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:FC8CE360DA6E0621302D14BFD5CD7B616778EED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ Stand Up (2016.03.06) WEB-DL [H.264/720p-LQ] (сезон 4, выпуск 2)
 ```bash
 magnet:?xt=urn:btih:76893354B3D4BEFFAB15DC7874759F8E931D0740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ VA - Новая Жажда Скорости Без Тормозов vol.3 (2016)
 ```bash
 magnet:?xt=urn:btih:CC1921B0880E53162664DF9991C46D55C8286E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ XMedia Recode - бесплатный, удобный, функциональны
 ```bash
 magnet:?xt=urn:btih:E47D7F460745C1E9E8A8982D5351CEDD02C9CA79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6962EE417338ABAC62A1F6055C9038E924FCA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ BBC. Horizon: Выжить в автокатастрофе / Horizon. Surviving 
 ```bash
 magnet:?xt=urn:btih:65AF7717F889914290D5970A7777D2F1DFFB339E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ VA - DJ Tools Essential: DJ Samples DJ Mixtools (2016) [MP3|255-320 кб/с] <Cl
 ```bash
 magnet:?xt=urn:btih:2732093A679EEA94594772684120B6CDF28F8EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ VA - Armin van Buuren - A State Of Trance Festival (Warm Up Sets) (2016) [MP3|32
 ```bash
 magnet:?xt=urn:btih:AF4B68661EF788C510B51DA23335500C119036BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

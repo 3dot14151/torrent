@@ -19,8 +19,7 @@ WiFi Premium 4.120.02 [Ru]
 ```bash
 magnet:?xt=urn:btih:9AED49722A33A337DA394127AA2A68B15754C192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

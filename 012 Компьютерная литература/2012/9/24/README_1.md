@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:5F9BE09AA6E470CE43B357BEF1CD266EBC53E25C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Adobe Press | Adobe Audition CS6 Classroom in a Book [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:B3353A99BE794FDFF94630776D43B465186A33B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Jennifer Niederst Robbins | Веб-дизайн. Самоучитель 4 в 1 (
 ```bash
 magnet:?xt=urn:btih:AED4DE93AEA31AA09879E3545D731E81768DA4D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

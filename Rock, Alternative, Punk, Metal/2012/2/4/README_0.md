@@ -28,8 +28,7 @@ Supertramp - The Ultimate Best Of (2011) Бутлег [MP3|320 kbps]<Прогр�
 ```bash
 magnet:?xt=urn:btih:321AF2C3C6D9102636391464CED024D57B13F3E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Lana Lane - El Dorado Hotel (2012) [MP3|192-320 kbps]<Symphonic Rock>
 ```bash
 magnet:?xt=urn:btih:9DAC69A7F662707F31F77E6F23968892C1690B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Semantika - Эхо Давних Дней (2012) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:F3A231D1F1DA5087A455CD466A301A6672532B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ V) Crossing The Line (07:14)(   Читать дальше...   )Жанр: Progre
 ```bash
 magnet:?xt=urn:btih:9C0D98269C0FFD1DBB201115D8FF48226E3F273B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Bleeding Through - 7 Albums (2001 - 2012) [MP3|320 kb/s]<Hardcore / Metalcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Phil Collins - The Lost Album & Demos (2 CD) (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:30199DED6B7C7A5693348AA8B7CE2E7D368175B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

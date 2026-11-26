@@ -19,8 +19,7 @@ Black Dog Media Ltd. | The Complete Photoshop Elements Manual / Полное р�
 ```bash
 magnet:?xt=urn:btih:188740EFE3634E38B03D20299438EEE5390A4F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Black Dog Media Ltd. | The Complete Photoshop Manual / Полное руково
 ```bash
 magnet:?xt=urn:btih:325F6491DAB59C22D7C3CE8F7B648F5518DB72B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B48100BBB1A533036FCFFEC52200CC8056874F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

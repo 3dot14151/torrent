@@ -19,8 +19,7 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.1.1.22380) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:0640F93B00B41B2E0DA610828CDDAF7D491BF5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Device Doctor Simulator 2024 предлагает интерактивный и 
 ```bash
 magnet:?xt=urn:btih:24334CFE125EC1C5A3DAEEB0054F76227F8CD18A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 ```bash
 magnet:?xt=urn:btih:5F39C157B7483CB25C72341B9DE57FBC7463BAA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:CC420CA51DDDDFB0736ACF7A25342AA3214CDD26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Empires of the Undergrowth – это уникальная по своей ме�
 ```bash
 magnet:?xt=urn:btih:ABDC5117B26BC9C8888A9DEE9EC8A7B2999AACFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cities: Skylines предлагает по-новому взглянуть на 
 ```bash
 magnet:?xt=urn:btih:CE6747C5903D307086D8CF967186D6D8AE015D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Device Doctor Simulator 2024 предлагает интерактивный и 
 ```bash
 magnet:?xt=urn:btih:E4AE9FBC106EDF5D85E659A738C781D58E8A6A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Among Us (2018) [Ru/Multi] (16.0.0i) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:4A8881C6C421140F7821C923C2DEA956E90AC3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.95.0) Repack seleZen [Early Acce
 ```bash
 magnet:?xt=urn:btih:A0C0EAB9DDF7AC1354A5376A5AE1397A3B752C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Them and Us - классический хоррор на выживание с �
 ```bash
 magnet:?xt=urn:btih:AF802C775E8E466F30F9D45E562571AA17069179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

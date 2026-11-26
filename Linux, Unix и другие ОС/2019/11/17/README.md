@@ -20,8 +20,7 @@ IRIX — операционная система, используемая на 
 ```bash
 magnet:?xt=urn:btih:3BA67E7941B29968C506C2F48739621DA11BCF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

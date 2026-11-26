@@ -19,8 +19,7 @@ Persona - твоя новая селфи-камера на каждый день
 ```bash
 magnet:?xt=urn:btih:C0A42C81D39DD4BBCFD2E5249BBD3133BF4E2083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GPS АнтиРадар v38.0 Mod by Dymonyxx [Ru]
 ```bash
 magnet:?xt=urn:btih:71BB414B00342044B79878EAB228DC2DB16885AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

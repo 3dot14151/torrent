@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:1286F3AA294E9D0A965EAE7A02067F5EE55EBB97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E93C370FE31D6EB786B25B7FAAD836AEE78EFAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Rainbow Web 3  / Радужная паутинка 3 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:848AD9B69551AC51BFCF279865CBC18419288ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Depth Hunter - симулятор подводной охоты, позволя�
 ```bash
 magnet:?xt=urn:btih:C1EFDECE3D7A529DB665BD50B0530CB2C71D9202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Fitness Dash / Переполох в фитнес-клубе (P) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:6BFC81E3F40F735420B1C294F90DEE1A20939C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Grave Mania: Undead Fever (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F4D6C0E1AE65B6A5C84DA2967F02AE1AAF3E2417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

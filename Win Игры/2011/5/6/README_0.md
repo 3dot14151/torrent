@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CDAB883A9BB087CBF8BD45D5DA00148982909107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Capsized - динамичный 2D-платформер. После того к�
 ```bash
 magnet:?xt=urn:btih:944063D99ADA34568600C3E8CB09973E2DFD21EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Saxon — английская рок-группа, одна из ярких п�
 ```bash
 magnet:?xt=urn:btih:C1C38FAAC544AD9051D3A177815806307F29EDF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Circus Maximus — норвежская прогрессив-метал-груп
 ```bash
 magnet:?xt=urn:btih:AEB2CB25F947163C6755F7403400E03EC34F3E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Calendar 366 Plus - календарь событий и напоминаний 
 ```bash
 magnet:?xt=urn:btih:DD9E506A81365880E4A819E962225C4655056CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:429131DD79D4829EF5104E8D0FAD0553463D4A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Silencio Collection Vol.1 Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chill
 ```bash
 magnet:?xt=urn:btih:5E34B352E9E7D61C35A3FD7DD5A61252F1BD23A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Deep Red Chillout (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:C291FC0C50A3CB4B37C2D479DB99CCD5AC502997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:09B9F690F2B085273C668EF067718520B338DA9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Atlas Corporation - Turbo Uplifting 002 (2017) [MP3|320 Kbps] <Uplifting Trance,
 ```bash
 magnet:?xt=urn:btih:AB66558809AE22AE0050073EA2B650AC2BB33092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Atlas Corporation - The Lord Of Psytrance (2016) [MP3|320 Kbps] <Psy-Trance, Tra
 ```bash
 magnet:?xt=urn:btih:65AC48B1875B62BADDE876C11D22E861720D56F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Sensual Lounge Affair: Selected Lounge and Chillout Vibes for Love (2017) [
 ```bash
 magnet:?xt=urn:btih:A87C7D300DCDD04993378487DDA03A6C95B81B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Pat McManus Band - Walking Through Shadows (2011) [APE|Lossless|image + .cue] <B
 ```bash
 magnet:?xt=urn:btih:C31F33810F71B8C1BB5286E655451FBC606E646E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Degreed - Dead But Not Forgotten (2015) [FLAC|Lossless|image + .cue] <Melodic Ha
 ```bash
 magnet:?xt=urn:btih:00E84B5097C6E773E92C6A168D3002EC9BA8E0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ VA - Last Night On Ibiza (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <Dee
 ```bash
 magnet:?xt=urn:btih:6286DD936DA11F4C965DB94CDD9DB0ED5509C33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Atlas Corporation - The Pirate Bay Trance 001 - 003 (2017) [MP3|320 Kbps] <Tranc
 ```bash
 magnet:?xt=urn:btih:BE4AD2FE1152F9CD1EF71C637727601CF82B62A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ VA - Deephouse From Tomorrow (2017) [MP3|320 Kbps] <Deep House, Funky House, Sou
 ```bash
 magnet:?xt=urn:btih:7DC9BD9A088FFDDA8B7E4BAFDFA21B322905E06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ Fobee - Equilibrium (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:883A7010A8E938D373FA883ADDE0C6D1DC800D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ VA - Look Back To See The Future (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:B43EA7E3589F013CEA527E7D42CEFA8E94A0A078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ VA - Apres Ski Vocal House (2017) [MP3|320 Kbps] <House, Tech House, Deep House,
 ```bash
 magnet:?xt=urn:btih:68A251213A5FD0576F4D5D63670129E1468E7386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ VA - Танцевальная зима. Снежная сотка версия �
 ```bash
 magnet:?xt=urn:btih:EDB9A1BCE3833926C3E6D0CBB020E624F3AB4B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F3E119C42A5F35E5C7DB74E20927C91B95AE329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ Apollo - Waterdevils (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:171CD83542A428762D80EEBDDDB9D422BAD544ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26D286584A5751A8DD471B94E18BE5D2F35AAAB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20F6D8DCB029F6927E090A1F20C06200304CF3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ Ellwood - Lost In Transition (2011) [FLAC|Lossless|tracks + .cue] <Reggae>
 ```bash
 magnet:?xt=urn:btih:A231E5583AFE62D8E5BE8842C752073F1155ACA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD5EA1AAF9A2770D3D004DC7B6CE6FF110817791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ Interstate Blues - Dragon Lady (2016) [FLAC|Lossless|image + .cue] <Heavy Blues-
 ```bash
 magnet:?xt=urn:btih:7CC5F1831DE0363279CC387BCA10B98292C1B464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ VA - Вечеринка в стиле радио Шансон (2017) [MP3|256 Kb
 ```bash
 magnet:?xt=urn:btih:399F7DCCEBCE6AB17FFE87D35B5B1C14EE6599D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0x/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:EC2DADBCC6B89E674B6A2A44849B6445D8E79FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.53r) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:596DA09827F0BE41FB4CB4A458FC9D8D3BFC9632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Avium (2024) [Ru/Multi] (Patch 43/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4D46DA3902E8EFA671F2A6FFEF82E26993AD39D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Sinking City - это приключенческий детектив, со�
 ```bash
 magnet:?xt=urn:btih:4B9582B17C5DA53673217DF8CD3966095CA4FE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fabledom (2024) [Ru/Multi] (1.07 HF) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:1425E21E0767049D621B8B146573866B9DC80055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.1.15) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:66300E6DEA93FB65083560E60914B20AB95FC892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Outer Wilds – приключенческий экшен от первого л
 ```bash
 magnet:?xt=urn:btih:2F7ACDD16496A4C7B192704583A7691AD714AF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A57F0486C439F60B68F39CBED403638A7C0F111B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:978AA283998132CD6EBC6C3E190E9992870D5CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Oxygen Not Included (2019) [Ru/Multi] (U55-663500-SCR/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3928611775B990E938F817A4FA5D1AF402FE03AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31934/dlc) Repack FitGirl [B
 ```bash
 magnet:?xt=urn:btih:8BB154A77F67F88F9397930FE1AA8B53713266B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Wildermyth - ролевая игра с процедурно генерируе�
 ```bash
 magnet:?xt=urn:btih:3E5848C37554EAA838BE65CCF71BF0E65F24944C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ A Haunting Novel 2: Surfaced Secrets / Проклятый роман 2: Тайн
 ```bash
 magnet:?xt=urn:btih:BEDF0893EEE18D5D81FF262D183CA1C758DBFDE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

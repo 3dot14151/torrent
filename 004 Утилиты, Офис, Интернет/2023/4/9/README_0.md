@@ -19,8 +19,7 @@ Directory Lister - полезная программа, которая позв�
 ```bash
 magnet:?xt=urn:btih:E0C64FB846F9F618F5946F6820C316E40C592ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Directory Lister - полезная программа, которая позв�
 ```bash
 magnet:?xt=urn:btih:A86E456CF989AAFA13BEEF480BD375AD30C204A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

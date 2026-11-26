@@ -19,8 +19,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.7.2) Repack ElAmigos
 ```bash
 magnet:?xt=urn:btih:BB497EF36AD2F953B522BAE4A348B044D97EF10D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

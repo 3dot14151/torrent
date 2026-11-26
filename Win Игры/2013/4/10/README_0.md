@@ -19,8 +19,7 @@ Ghost: Elisa Cameron [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:0E8BFCC021321679BD1DA6415609205B31F51407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Epic Battle Fantasy II (2) [En] (L) 2009
 ```bash
 magnet:?xt=urn:btih:4E53F8D298FE4278930C1446D4F1E2AFB42CFA2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Dead Pixels представляет из себя side-scrolling платфор
 ```bash
 magnet:?xt=urn:btih:C5AFFE7BF240CAB3372784039BDAC709C8AE7EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

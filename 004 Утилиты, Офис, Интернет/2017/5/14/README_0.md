@@ -19,8 +19,7 @@ Professional Renamer - незаменимая программа для пере
 ```bash
 magnet:?xt=urn:btih:A477CC22199CA62906C70C37D7FDDC7F694390E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

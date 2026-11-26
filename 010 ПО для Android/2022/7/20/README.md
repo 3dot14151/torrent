@@ -22,8 +22,7 @@ GIF Maker and Editor, без водяных знаков и качества HD.
 ```bash
 magnet:?xt=urn:btih:4465A243B6D85964F577C81C90C748F283EAD2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ SHJARAH vpn v1.0.7 b8 [Multi]
 ```bash
 magnet:?xt=urn:btih:DC8E09A163AE2B57D4F2A1AA1FD7259309134856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Colorize от Photomyne v3.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:04D24E972E40CC76A6A9DDC7D51990265F1F1BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

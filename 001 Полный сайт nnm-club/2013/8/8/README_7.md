@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1D926881E5C87E150A93A85C983B023116883012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Frostreich - Geistfahrt (2013) [MP3|320 кб/с]<Atmospheric Black Metal, Post-B
 ```bash
 magnet:?xt=urn:btih:4FE3046CF01BC69C451019CA05CF24400D49A852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35F3DE3A8AE98B162396BDD5A08DA4BCE2E5BD30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Andrew Lu - Club Universe Radioshow 076 (01.08.2013) [MP3|320 кб/с]<Trance, P
 ```bash
 magnet:?xt=urn:btih:E3A558E968A9ACBADC85B69C7564B3AE061C05A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ VA - Клубные Новинки Vol.309 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:A6B433E0F6EA5C43C3DB2B3B7E6B8AB92DABD470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #108 (2013) [MP3|320 кб/с]<Tra
 ```bash
 magnet:?xt=urn:btih:C111FE214FE12C93EAE01CB756C361AC7BC5A569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Norma Jean - Wrongdoers (2013) [MP3|320 кб/с]<Chaotic Metalcore / Hardcore>
 ```bash
 magnet:?xt=urn:btih:ADEA2CAE685D716C32154C5F82E1B6C4A40050C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ VA - Trance Maniacs Party: Trancefer Wave #121 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:797C99FD97177217FC9A1E90374B15F0692F1305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Counterparts  - 3 Альбома (2010-2013) [FLAC|Lossless]<Melodic Hardcore | 
 ```bash
 magnet:?xt=urn:btih:4775D2FCCCF7D9983A23F753B8B0C753B5B9C661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +312,7 @@ VA - Клубные Новинки Vol.308 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:C9FDA91ED8500751D1F1706D1D8310D01CF02839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +346,7 @@ VA - 100 Клубных Хитов 11 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:3324F414DCD04C56FAD413A00AC2BC77DF498A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ Tucandeo & Smart Apes Feat. Emma Lock - Illuminate (2013) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:0E6B3A1395F7B7881103E5C1F18E1D1A813DFE50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +408,7 @@ John Hebert - Byzantine Monkey (2009) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:BB4266C5447CD37968F0E30A192620DC2F8A48B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +442,7 @@ VA - Electro House Pro V.43 (2013) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:0C2C23EDB6B9490307F32C072766CC66A690243F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:278CD7A905E45A15037C00374EA389F82E2E43D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CA7AAAD3D07BCB3AF67CE6BF7EDEB57C93881CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0633018C610054BA743AEA43D14B3983840061CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +559,7 @@ VA - 100 Клубных Хитов 12 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:CE8CB3B350FDFECE500ACC76E45E1DF294404B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +593,7 @@ The Flying Burrito Brothers - 2 albums (1968-1970) [MP3|192 кб/с]<Country roc
 ```bash
 magnet:?xt=urn:btih:6C80D9E0A570BD1597A8D11882829800F7D1CBF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F62EEA987DB59386FFFF3AB102B9AA0870B8239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +644,7 @@ Photo Collage Max – программа, которая создает фото
 ```bash
 magnet:?xt=urn:btih:546EAD5F3157E5CC5E5A0E523D21F67ECD4FAA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +678,7 @@ VA - The Spirit Of Ibiza: Chill Out & Lounge Vibes (2013) [MP3|320 кб/с]<Down
 ```bash
 magnet:?xt=urn:btih:BAD43D4526A657E2DDDEC251A57C89B923195FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +712,7 @@ Twins Crew - 2 albums + 2 EP (2008-2013)[MP3|202 -320 кб/с]<Heavy Metal, Powe
 ```bash
 magnet:?xt=urn:btih:D679FD5C87C7F7DD91D46DBB3DF93A91E272FC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +771,7 @@ VA - Magic Summertime 60 Feelgood Singalong Songs (2013) 3CD [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:D266C5606468E587E9788A268CC27033C761C7F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -822,8 +797,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:580486E632B49908E6B8C682B9CDC8E4239A1998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

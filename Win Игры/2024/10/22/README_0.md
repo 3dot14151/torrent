@@ -19,8 +19,7 @@ Road 96: Mile 0 - приключение с сильным упором на п�
 ```bash
 magnet:?xt=urn:btih:854ACB775F328A15D1AD4AB333CF5CCEB31A324D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Europa (2024) [Ru/Multi] (build 16022486) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:3FD5B682135C48BD6E855D1A58168A63CC5B5456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

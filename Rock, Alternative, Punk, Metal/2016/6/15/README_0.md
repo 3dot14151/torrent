@@ -22,8 +22,7 @@ Arlett (ex-Леді Арлет) - Arlett (2016) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:BBBBE1A822C49E172C24F18AA4108BD03B391B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Great Master - Lion & Queen (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:700957FA7066A2F7AA838E4CA8D44DC3D3F90F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Forcefield II - The Talisman (1988) [WavPack|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6CAE8EBD5AD2F8FA2E5DE9400813783EBC83537B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rage - The Refuge Years (2015) EP, Compilation, Remastered [MP3|320 кб/с] <He
 ```bash
 magnet:?xt=urn:btih:83E8B1E0EBD2B816EB8117B934815DD604F27EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Epolets - Cult (2016) [MP3|320 кб/с] <Alternative Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:96358D398F71D008539C835FBACFB51E106E6F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Catharsis - 20 первых лет. Полное собрание сочинен
 ```bash
 magnet:?xt=urn:btih:0E2DEB4AB928FC098CCC8E63F40F9B681B0BD4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fairy Godmother Stories 4: Puss in Boots / Сказки Феи-Крёстной 
 ```bash
 magnet:?xt=urn:btih:F361558C07324947F3759121794A5B36E94D67FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bad Dream: Coma (2017) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:103BE570C6C0E6C7279700FB753BFB7D5807CFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bad Dream: Fever (2018) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:DEBD66286631F638F44E86BDF1114023F238E86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ One Step From Eden (2020) [Ru/Multi] (1.6.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:1C40229D794C84DE662605773629B55CF24463B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Room 54 (2021) [Multi] (1.0) License DOGE
 ```bash
 magnet:?xt=urn:btih:C0705B67CF40A7AB7CDDD45DCC3A810DEC8F2760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D65F0C306CF8C4B33F1076D6FD042477A9937907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

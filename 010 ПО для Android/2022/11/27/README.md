@@ -20,8 +20,7 @@ Sleep Timer v22.11 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:16E4AB06DAEBC659F58FFED94FA532C1C276531C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Microsoft Office объединяет Word, Excel и PowerPoint в одном п
 ```bash
 magnet:?xt=urn:btih:8F3EA0D76F7D5CC0579C975F1E1DC688ABD02137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

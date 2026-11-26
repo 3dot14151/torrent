@@ -28,8 +28,7 @@ Feanor - Hellas (2010) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:587C5CC18D920184E8F2DC41AE455B4A7C1BD62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Brad Wilson - Hands On The Wheel (2013) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:CCE982A551028A825A2A08EBBBBC7691F1AA4F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Ashen Light - 10 Albums (1999 - 2011) [MP3|320 кб/с]<Pagan Black/ Black Metal
 ```bash
 magnet:?xt=urn:btih:4F01FC9444FF2AD3161AFA27B7021D39751D7898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Blues Pills - Devil Man (2013) EP [FLAC|Lossless]<Blues Rock, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:E062050AF57F44CE07AC7ECDB2E844A965EC9CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Blues Pills - Live At Rockpalast (2014) EP [FLAC|Lossless]<Blues Rock, Stoner Ro
 ```bash
 magnet:?xt=urn:btih:F12A45D497311CC68DC4EB2ED7AA0F75BF3C51BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Mike Oldfield - Man On The Rocks (3CD Edition) (2014) [FLAC|Lossless]<Rock, Prog
 ```bash
 magnet:?xt=urn:btih:EEC61CB3F8948BE5B0AD90E7A383880A01478A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:647810C34B93AD027D98B44F5220C96D434772EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

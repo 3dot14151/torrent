@@ -20,8 +20,7 @@ One Night [En] (L/5.1) 2009
 ```bash
 magnet:?xt=urn:btih:212DCB8269087B6FDE21324A05F29BD4FE9B8B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ One Night: Full Circle - сиквел к предыдущим играм One Nig
 ```bash
 magnet:?xt=urn:btih:6BBD6483B31A3CA6D8EBA90E9F6BD3C4894DEB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ The Briefcase [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:7A837D6B48FFB759759BCF989BC077E4A4FF9BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Paranormal [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:B37991B6ABACEBFFE85BDF3E31A1F542296C219B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Erie начинается в октябре 1966 года, когда Ферми
 ```bash
 magnet:?xt=urn:btih:7B91143C6A7451DD2A2E572178E1D70CDD55955A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Wretcher [En] (L/Beta) 2012
 ```bash
 magnet:?xt=urn:btih:403CF66E7E098E846E2FA2317D5EAA0B493D576A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:004FB62F20E29CA90934275BB1390D7720FC451A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Shadows: Price for Our Sins / Тени: Плата за грехи [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:E81577DDB3F24E211FC426E170FC4B77E1C8175A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Book of Unwritten Tales: Critter Chronicles является приквелом 
 ```bash
 magnet:?xt=urn:btih:FFBCBC9036C4F5623D43C3748251C0FFCAC06168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Sid Meier's Railroads! (RePack/1.1) [Ru/En] 2006 | R.G. ILITA
 ```bash
 magnet:?xt=urn:btih:71F93B1DA705CC364AE360DD73F210F515ABF685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

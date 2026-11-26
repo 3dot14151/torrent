@@ -19,8 +19,7 @@ Juiced 2: Hot Import Nights (2007) [Ru] (1.0) Repack R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:E87B981042206FC0CA46513A795B89FEE75A7A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

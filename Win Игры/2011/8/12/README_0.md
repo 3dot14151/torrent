@@ -19,8 +19,7 @@ World in a Dream 2 (P) [En] 2011 | Fyrrion
 ```bash
 magnet:?xt=urn:btih:582E20F76FDAE4A5EB50046139BC52535ACB419A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Edge (P) [Multi6\-] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:E47542C279D2A8416E117368EE728F525DD013C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

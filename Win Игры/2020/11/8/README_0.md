@@ -19,8 +19,7 @@ Enchanted Kingdom 8: Master of Riddles (2020) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:27A8F0FE0406F5356CBDE9CA6938D626C02BDD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

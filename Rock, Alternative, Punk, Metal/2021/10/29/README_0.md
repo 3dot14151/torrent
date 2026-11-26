@@ -21,8 +21,7 @@ Michael Schinkel's Eternal Flame - Gravitation (2021) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:6C33CA2518BADD75810F2C157D9F22E1C8548A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Oblivion Beach - Cold River Spell (2020) [FLAC|Lossless|WEB-DL|tracks] <Gothic M
 ```bash
 magnet:?xt=urn:btih:7E8290F5A9BC782FFC5213831022FBC2CD992354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Beast in Black (ex-Battle Beast) - Dark Connection (2021) [FLAC 2.0|44.1/24|WEB-
 ```bash
 magnet:?xt=urn:btih:046758F58EEE912B1B23507A3A856483812B07E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Drifting Sun - Forsaken Innocence (2021) [FLAC 2.0|48.0/24|WEB-DL|tracks] <Progr
 ```bash
 magnet:?xt=urn:btih:35E0785C00480E503B2BDB047BF6F3161EAD7B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ XXX $ Горы (   Читать дальше...   )1. Барышни (XXX $ Г�
 ```bash
 magnet:?xt=urn:btih:ABA2740D786147A4254C6B31A04442C8C84F0FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F2856FCE05CC104400C706F3D2B660742894A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Whitesnake - Restless Heart (1997) 25th Anniversary, Super Deluxe Edition, 4CD, 
 ```bash
 magnet:?xt=urn:btih:E26B3AA5D4CCA368BE2D3984167CE0E4B868AA82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Dead Wolvs - What Doesn't Kill You (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 ```bash
 magnet:?xt=urn:btih:C9BA548CCAA6BDB16DB0B6F5D33BFD2A0B45C03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

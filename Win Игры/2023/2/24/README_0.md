@@ -19,8 +19,7 @@ Beatbuddy: Tale of the Guardians – приключенческий экшен �
 ```bash
 magnet:?xt=urn:btih:D40D8DCA2E19AFF5E7D021C97B8EBDED7F10A741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Street Legal Racing: Redline - симулятор автомеханика, ко
 ```bash
 magnet:?xt=urn:btih:8B1458A873BC7161C18DC1FCE0DC799729BF5D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jurassic World Evolution 2 - долгожданное продолжение п�
 ```bash
 magnet:?xt=urn:btih:768ACD17C7EDCE7A66E8A7E4FDCC2588D9BF509F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Swordship переносит игроков в футуристический м
 ```bash
 magnet:?xt=urn:btih:9B24D99F7A04848F613132EE6AE6E1D3D2CBE667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ViruZ (2021) [Ru/En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:7FD84F7E633FBCF62467EF9CA86EA09DE21790BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Remorse: The List представляет собой мрачное прикл�
 ```bash
 magnet:?xt=urn:btih:263FE8C8B76D6A58A1A3B9AEF59C73A7AB1B379A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Grim Guardians: Demon Purge (2023) [Multi] (1.0) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:EC7120948EB14037DB14B22050314D628AB50068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

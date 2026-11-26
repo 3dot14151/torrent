@@ -19,8 +19,7 @@ Showgunners - пошаговая стратегия, сюжет которой �
 ```bash
 magnet:?xt=urn:btih:D1F26D137BCD31416CECA7DE612DCD37F33211EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ STORY OF SEASONS: A Wonderful Life предлагает погрузиться �
 ```bash
 magnet:?xt=urn:btih:525FF04A3A57D54D1CD813C920F8D92337F71A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Phoenix Point (2020) [Ru/Multi] (1.20.1/dlc) Repack dixen18 [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:C743414B827D0EB8929ACFCB0433701A3CCF8532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Unholy (2023) [Ru/Multi] (30649) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F166542872863FEC0C6ED325CC76F5874CE0BF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

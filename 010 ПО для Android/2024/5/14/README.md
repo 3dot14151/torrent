@@ -19,8 +19,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.6.38 Paid [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C0F785CEF7BEFF47E9324882A8790D2C2FC2B753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCE0C511C2E07F27B2C45A66DF37C9450CA7D730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pixolor - удобная цветовая пипетка с ручным кон�
 ```bash
 magnet:?xt=urn:btih:86AC0AE9B25C82AC025DA1EE512179678F59A7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Video Converter Pro - стильное и функциональное прил�
 ```bash
 magnet:?xt=urn:btih:3A974458D5565F0754FF0DBA1B55A0E4A6037A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ AirBrush: ИИ Фоторедактор v6.5.3 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:64B9A049B70567BAA66515D29639C78086C4FA47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Video Converter Pro - стильное и функциональное прил�
 ```bash
 magnet:?xt=urn:btih:1441704C499D70D3EFD51C618732D6EC3C53B447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Adobe Acrobat Reader - знаменитое приложение названи�
 ```bash
 magnet:?xt=urn:btih:675CE111F67FB2BFC1D728167AFAF063CB7F9476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8D70C79B1FE4931CC2A2E6721E0BEA76265AA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ PhotoTune - Улучшитель фото v4.6.0 Mod by Mixroot, 0x7d [Multi]
 ```bash
 magnet:?xt=urn:btih:E143C25FB2AF0A757D4B5A2ED0B28D35F8C4F389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Colorize Images - это сервис, основанный на автомат�
 ```bash
 magnet:?xt=urn:btih:DA179F82C72C82B7DFA28334D5C5124AD4661B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

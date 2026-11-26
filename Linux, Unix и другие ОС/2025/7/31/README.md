@@ -20,8 +20,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:083C8A0C2DB9126FF7D8E4D9DB67A1F12ADC8995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu*Pack 22.04 (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:7C9BE79BF99C7CADB1F155BFBB5B80D2A9BDF5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ubuntu ServerPack - полный комплект серверного ПО, к�
 ```bash
 magnet:?xt=urn:btih:C756CEEDFE5575514197FE61316A8C31B6A59349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Ubuntu*Pack 22.04 MATE (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:01F9F593CDBD084C1E81403DBD44970C5B559005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Ubuntu*Pack 22.04 GNOME (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:DE4B34643867C0D1D88C1869523940E42D901DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Ubuntu*Pack 22.04 Cinnamon (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:6E9F7908D9014CE5C7798CC7037127C6A2EE689C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:D91BFCB7EEA4CC67879B63F94E2D792EF780A737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Ubuntu*Pack 22.04 LikeWin (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:5330EE7F3AA923A7C29874FFD1B149082F17752E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:397CFDA298BFFF113F97CDD93C4CA821B233E326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

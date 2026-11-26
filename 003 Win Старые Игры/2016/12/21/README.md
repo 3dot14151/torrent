@@ -19,8 +19,7 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:7023EAE2F6C0BD840731B3B8DEB49D4D0F68BDF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

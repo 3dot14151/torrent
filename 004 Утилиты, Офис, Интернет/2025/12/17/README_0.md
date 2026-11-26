@@ -19,8 +19,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:F8FF654D695CD002125B22661DBBB3D016052500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Futuremark 3DMark 2.32.8743 for Enterprise RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:32537A0A32669A92B12BC7EC625BDBBC958716B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:51D7651BA0FD2544929CFDE4ABBAC493DEBB0074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AAct - KMS-активатор для операционных систем Windo
 ```bash
 magnet:?xt=urn:btih:3C764FB9ECF067825C0F74015B6E51D2A9C96978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:8A4C06DD71A548FAAF3AAEBE46E7E17EBB924D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Slimjet 48.0.1.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:201920E9AEDC33DDA91CEC637BE8630E5DA97208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ KMS Tools — облегченный вариант сборника прогр�
 ```bash
 magnet:?xt=urn:btih:83BA696AC8D83C65C2D61E1D404F13343C6163F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

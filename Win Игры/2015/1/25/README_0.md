@@ -19,8 +19,7 @@ Saints Row: Gat out of Hell [Update] (2015) (upd1) Official RELOADED
 ```bash
 magnet:?xt=urn:btih:5CED363252F9F46088D5EFEA4D09B4FD75651BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Do Not Fall – логический платформер, рассказыва�
 ```bash
 magnet:?xt=urn:btih:F29E7F581510670E19C87C171ADD3531A0538753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Tiestru (2014) [Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:806ECF9B444D692B3036896F49861BECF9CBB5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Rooks Keep - необычная логическая игра, скомбини�
 ```bash
 magnet:?xt=urn:btih:8ECAD2A4478288AFBA5B6F3CD17A45C9DBC1E5E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Dead Effect – научно-фантастический зомби-шутер 
 ```bash
 magnet:?xt=urn:btih:DCACE28C8F679566E96ED71D962F51E543E22913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Dead Effect – научно-фантастический зомби-шутер 
 ```bash
 magnet:?xt=urn:btih:9B680C30C88A79D668C76DED45938DF18B258A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ The Dark Eye — Demonicon рассказывает о печальной суд
 ```bash
 magnet:?xt=urn:btih:17D01836F5F495BEB5FE93572E1935590F7E74C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Hotline Miami — это адреналиновый боевик, полный �
 ```bash
 magnet:?xt=urn:btih:7BCB03605F5053B61436D66B823716A330416457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

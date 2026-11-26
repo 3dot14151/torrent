@@ -22,8 +22,7 @@ Purvpn 9.7 [En/Farsi]
 ```bash
 magnet:?xt=urn:btih:1B39AA50469CF4EAA831F7DBEC1E9F9747EEAD61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

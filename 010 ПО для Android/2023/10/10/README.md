@@ -19,8 +19,7 @@ Simple Gallery v6.28.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3D8182F6DFDBEDC55CB649A2C17D2DE65EDF2759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

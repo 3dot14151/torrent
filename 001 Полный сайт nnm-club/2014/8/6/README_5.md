@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9E86B56904793D96D0658BB2F7D8C4F2246B8836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.100.5260/6dlc) SteamRip R.G. Игрома�
 ```bash
 magnet:?xt=urn:btih:E23DF060AE0599F946DB83BFFB4BA23F01C21461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D709191580F985F6441BCE73F26002C0C3E59856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sacred 3 это экшен-аркада для четырех игроков, к
 ```bash
 magnet:?xt=urn:btih:F08D1E6DA6AD1617281E08A4937775274336BC6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Dynasty Warriors 8: Xtreme Legends предоставляет вам совер�
 ```bash
 magnet:?xt=urn:btih:F512A8313B6B98ED0BABCA49E97C047A2C7F35AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Wolfenstein: The New Order - это возрождение серии, кото�
 ```bash
 magnet:?xt=urn:btih:D767220EB9B645C01D246DD04D70E2FAA109E6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Toy Story 3: The Video Game / История игрушек: Большой по
 ```bash
 magnet:?xt=urn:btih:78564513922154761B86F3427F149021F5DB2C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Android Cleaner Pro 2.2.1 - Чистка и оптимизация систем�
 ```bash
 magnet:?xt=urn:btih:BC5F21E1F1AD34522A2A1390DDD9D78E0E96B1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4910876225EF11EE6D5569011965B4DC1F3F8FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Adobe Photoshop CC 2014 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:13B099FD138FD50C7C24E841F7B468F777B64FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Z: Steel Soldiers Remastered (2014) [Multi] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:24D0359CE2F3D244A3B9872050B800419E427562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ GRID Autosport (2014) [Ru/En] (1.0.100.5260/6dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:95C32A006FC065CD98477FCE208EC8EB01A996F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ NewStyleXP Full Final (29.07.2014) [Ru]
 ```bash
 magnet:?xt=urn:btih:68EECD9D5AC40339197B2F2CB3274973CCE78D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

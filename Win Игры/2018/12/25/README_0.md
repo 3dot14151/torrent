@@ -19,8 +19,7 @@ The Seven Chambers (2018) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:48BD21649DD49A81567630263A463C12F7AC9F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery of the Ancients 8: No Escape (2018) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:512EDE08C3AD70FC5A1C79F808638DE7C16F330A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PuppetShow 15: Porcelain Smile (2018) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:74A01FC9E0EB8F03A938BCA442E8CD01DF2E3750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hidden Expedition 17: The Altar of Lies / Секретная экспедици�
 ```bash
 magnet:?xt=urn:btih:8CD325750045E041335499B682AC454CB818A657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Death's Gambit — увлекательный 2D-платформер в жан�
 ```bash
 magnet:?xt=urn:btih:A7D8E7A81B18B7C8573B82C8C24FBB5880B02DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sundered – ужасающая борьба за выживание и здра
 ```bash
 magnet:?xt=urn:btih:37AFA0448BFF19FC5EDCC212BA70639E768026CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ashen – экшен-РПГ с открытым миром, что расска�
 ```bash
 magnet:?xt=urn:btih:BC4A49D2ED0426FD15DFCAE47C1CCEAB2F4BF65F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ BioShock - это приключенческий шутер от первого 
 ```bash
 magnet:?xt=urn:btih:321998D5A81D8D5DAFF6F1B00DA7A50F85072170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

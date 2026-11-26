@@ -22,8 +22,7 @@ A4 Мария(   Читать дальше...   )Жанр: Hard RockПродол
 ```bash
 magnet:?xt=urn:btih:4B62B3000B55DB173E73E57C52489EBA47E8C4F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B2 Invisible Limits	11:38Жанр: Electronic, Ambient, Berlin-SchoolПродо�
 ```bash
 magnet:?xt=urn:btih:9988EF09DB2BA403F6D9AB26745AE208C6AF3A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

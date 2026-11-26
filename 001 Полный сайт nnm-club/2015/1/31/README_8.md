@@ -27,8 +27,7 @@ A Swarm of the Sun - The Rifts (2015) [MP3|320 кб/с]<Post Rock, Post Metal, E
 ```bash
 magnet:?xt=urn:btih:D24F6F1C8ACC6E29C67FC33613EF1C4864672824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Masahiko Satoh - Randooga: Select Live Under The Sky '90 (1990) [APE|Lossless]<J
 ```bash
 magnet:?xt=urn:btih:AA32BD266F0B1CF4168BC225A2BE1EB9DC89F3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Mike LeDonne Quintet/Trio - The Feeling Of Jazz (1990) [FLAC|Lossless]<Jazz, Pos
 ```bash
 magnet:?xt=urn:btih:0A29ED1073DF84025AE5A74B16666C06A900ABF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Tujiko Noriko - I Forgot The Title (2002) [MP3|192 кб/с|Vinyl]<Downtempo, Exp
 ```bash
 magnet:?xt=urn:btih:9EEE17E293DB4F2F283C64C6EDE002FC82CB1480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Hate - Crusade:Zero (2015) Limited Edition [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:F683CCB8E7E0A7953AEDF65AA8660D62A9DA489E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E509CE7725519C6DFD95D9D61FE032D889CDF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ VA - Jazz From Finland (2005) [FLAC|Lossless]<Jazz, Post-Bop, Mainstream Jazz, A
 ```bash
 magnet:?xt=urn:btih:503400FE2C26ED7A50529499FFE682B54584E248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Keep Of Kalessin - Epistemology (2015) Limited Edition [MP3|320 кб/с]<Melodic
 ```bash
 magnet:?xt=urn:btih:FA9EB25E6640D0A856BC94DC57B94B88D984EDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Hate - Crusade:Zero (2015) Limited Edition [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:CC4C72ED2109662FAC3456D2CCAFB32F3C140F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ MPAA заставила переименовать пиво "Rated R"
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ S.O.T.O - Inside The Vertigo (2015) [FLAC|Lossless]<Power/Progressive Metal/Hard
 ```bash
 magnet:?xt=urn:btih:0C4D6DCE32A164ED5FB10D2E6C823E64C749E628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ Miellnir - Incineration Astern (2014) [MP3|320 кб/с]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:00C4EC9ABBDC0BC9A7D173FD3EFE043A2C98221C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BC3C09F63324D3A6619F8A7DAEAEBF725A2FC5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +431,7 @@ Leftover Crack - F**k World Trade (2015) Reissue [MP3|320 кб/с]<Crack Rock St
 ```bash
 magnet:?xt=urn:btih:8B08ADB78BD111B0673FC855CCFCB2DEFAD6553A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +465,7 @@ Ryan Bingham - Tomorrowland (2012) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:2518BAADF58F526B13FBADD75F745E40B60B9D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ Ghost Town Blues Band - Hard Road To Hoe (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:AB2640A7A2CCD2448E80D33AEC96D7086A49784F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +533,7 @@ Thulcandra - Ascension Lost (2015) Limited Edition [FLAC|Lossless]<Melodic Black
 ```bash
 magnet:?xt=urn:btih:A8F4653F3886AD139D56334D86AB6ABABF45C97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F3F8C5FC863897DD37B7C752EE3273FBACFF9AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AC58D843B6F0829ABE7D251F2BE75BB94FF3ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AA7A173284319B0382E336B943DE2153D2B0C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ save2pc Ultimate - программа для загрузки и конверт�
 ```bash
 magnet:?xt=urn:btih:88ECCBF21A05A0F963918DEFA9BE2B7356FA34F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46DC4E9B2E0EA12F5066CD50F50F971279712CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:797DA6506358836D3FB5C86E801291FD42E89681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:238099C85456738AD63BC0FAC6412D554968A3C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +748,7 @@ Angelus Apatrida - Hidden Evolution (2015) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:3A3FA591C7B92E472E59B0DA45A2732DCC0B5B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -798,8 +773,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E71C21F2D06FEA830D2EAEC07DF967509C9D221E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

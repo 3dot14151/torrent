@@ -19,8 +19,7 @@ Amaranthine Voyage: The Tree of Life Collectors Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:B9D9775FA4B01F43DACFBCC23A0785873D198B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightmare Adventures 2: The Turning Thorn [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:7098A37B20852FC67B54916545B134D262103BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Symphony [Ru/En] (Steam-Rip/1.3) 2012 | R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:932C8BD7F581D74478A3AD76E5B87D1B36F6C8F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Warlock: Master of the Arcane - это новая стратегическая �
 ```bash
 magnet:?xt=urn:btih:A529476614347EB52EC88597AB732CC8452EE107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ iBomber Attack [En] (RePack) 2012 | TiNYiSO
 ```bash
 magnet:?xt=urn:btih:2A2DACD264C747C0D3C583FAFAC401ABA27E8C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Ace Combat: Assault Horizon Enhanced Edition [Ru] (Repack/1.0.117.128) 2013 | Fe
 ```bash
 magnet:?xt=urn:btih:35B3D79A1889C1C94B1C1D1AE6571EE975BE8F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Rise to Ruins - это игра, в которой сочетаются меха
 ```bash
 magnet:?xt=urn:btih:C00A7478577C4869CFE9EB1E460EFEBEF60CA1F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GSClient Counter-Strike 1.6 - старая-добрая CS1.6 с авто-обн
 ```bash
 magnet:?xt=urn:btih:04E1C7B41E8CD45EB7CCC5BB374C0B5D43438225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ My Recycling Center – теперь в вашем распоряжении ес
 ```bash
 magnet:?xt=urn:btih:1014EB4F275DE7775709683E9A6EAB5924E12BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Master of Magic (2022) [Multi] (1.09.13/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:45ACD6EAB64FF588E72935823E7FDE9EB809AA21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Realms of Arkania: Blade of Destiny представляет собой реме
 ```bash
 magnet:?xt=urn:btih:D772D773F98CE5C06428D7751F7310A7E17F1332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Exotica: Petshop Simulator (2024) [Multi] (1.0.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D372014089E40ECA6EC66EC3AF79E4F39E6E6386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ P·O·L·L·E·N — атмосферная, захватывающая и вы�
 ```bash
 magnet:?xt=urn:btih:E17B80634FEBFB68F29B46437ABF0FB02DBC0A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

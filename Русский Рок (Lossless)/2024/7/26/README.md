@@ -22,8 +22,7 @@ Green Grey - Greatest Hits (2014) [WavPack|Lossless|image + .cue] <Alternative R
 ```bash
 magnet:?xt=urn:btih:A86B1AB2BA8129D970267F1016858A190CCE1A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2966FD03D63669698BE754F828A973E4DE42AB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

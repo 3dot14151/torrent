@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:FD908540E0F2350BA24533303817D50EFE1E24AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hard Disk Sentinel — отличная программа для монитор
 ```bash
 magnet:?xt=urn:btih:F988E27C4D1666D66B96DE99E7E86EAD2A3E3D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

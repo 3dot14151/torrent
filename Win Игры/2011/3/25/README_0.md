@@ -19,8 +19,7 @@ Tamara the 13th (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:494ECD68326595EA6E70E647DDA402CFFC1A43DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost City Of Aquatica / Акватика. Затерянный Мир (P) [Ru] 2
 ```bash
 magnet:?xt=urn:btih:71EBB7ADA32C1F096DC3D59F37984F4699BCCB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crazy Machines Elements (P)  [Multi5\-]  2011
 ```bash
 magnet:?xt=urn:btih:2AE0A9907D8CB9937DD119CA6666B642F8BC8746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ The Sims в Средневековье. Игроков ждет захватыв
 ```bash
 magnet:?xt=urn:btih:EA907EF37621AD98C6E659B279872A2203110C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

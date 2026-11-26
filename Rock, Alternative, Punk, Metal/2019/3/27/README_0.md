@@ -22,8 +22,7 @@ Whitechapel - The Valley (2019) [MP3|320 Kbps] <Deathcore, Alternative Metal, Gr
 ```bash
 magnet:?xt=urn:btih:A64707E29BC8564F896DD04A0EB4AD91D9E94CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jenny Lewis - On The Line (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:5FAE49137F282EDBC02799F9C90845A51C025F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Yngwie Malmsteen - Blue Lightning (2019) [MP3|320 Kbps] <Neoclassical, Metal>
 ```bash
 magnet:?xt=urn:btih:731F86C474BEFEB88E0F732F2E79F087B300EB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Powerwolf - Metallum Nostrum (2019) [FLAC|Lossless|image + .cue] <Symphonic Powe
 ```bash
 magnet:?xt=urn:btih:4D72084D3F42DA70850CDCFEDE63A5D0DEE67C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Battle Beast - No More Hollywood Endings (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL]
 ```bash
 magnet:?xt=urn:btih:E8F05F6EEFE8E46BA91A4449633CB57F776B34F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Candlemass - шведская метал-группа, известная как
 ```bash
 magnet:?xt=urn:btih:6A4478237665F101C9903114D031903ADF16F4EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

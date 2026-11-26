@@ -19,8 +19,7 @@ WiFi Analyzer v4.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:67116464F4C59BA0000A88BA373AD14E576C2ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

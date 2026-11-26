@@ -28,8 +28,7 @@ Slough Feg - Digital Resistance (2014) [FLAC|Lossless]<Heavy Metal/Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AB3AA58D2421AC030243D48746F65622561FF852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Unisonic - For The Kingdom (2014) [MP3|320 кб/с]<Melodic Heavy Metal, Power M
 ```bash
 magnet:?xt=urn:btih:769653C86D591E52679C6EF9BC2B15685A0D35B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Led Blimpie - A Tribute To Led Zeppelin From Hell’s Kitchen (2014) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:3694B2F7C5CBFBA2B8CBAE022C21CF8F25ACDC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Magnum - Escape From the Shadow Garden (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:169DF21427AB898C0C8AFF525CF21CD5B2AE78B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80A0EBA27716E6B8860A1D85D00681675FD7E23D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Oasis - Definitely Maybe (2014) 20th Anniversary Special Edition / 3 CD [MP3|320
 ```bash
 magnet:?xt=urn:btih:ECD68EB9AD2808C5C8E8E77C000A2F8B9F49421B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Led Blimpie - A Tribute To Led Zeppelin From Hell’s Kitchen (2014) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:03A871A25D31CFD7F5104C04CAFC816DB6386C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Fastway - 8 альбомов (1983 - 2011) [FLAC|APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:112CEAAF08B2D76CCF7E9A2913465DC84B0CDE5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Scorpions - MTV Unplugged- Live In Athens (2014) 3CD, Limited Tour Edition [FLAC
 ```bash
 magnet:?xt=urn:btih:73D40F5C6DCD88EE487A74ABB3A256103D278CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Coldplay - Ghost Stories (2014) [MP3|320 кб/с]<Pop Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:F5679A689FD38B333D6BA0E4E1AE2730E7F0C52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

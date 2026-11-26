@@ -19,8 +19,7 @@ Mini Settlers – это минималистичный градостроите
 ```bash
 magnet:?xt=urn:btih:CAA8F7B76FC7E875D5AB09D3776A8BB9A95134A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Anoxia Station — игра об управлении подземной гор�
 ```bash
 magnet:?xt=urn:btih:2F484F414E8794D8C6FD19F5D6EB6F8A328CDA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.22.4/dlc) Repack Other s [Digital Ex
 ```bash
 magnet:?xt=urn:btih:6C49D65BF846504B18FA623D369326A7DE0B194A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Train Valley 2 - это железнодорожная экономическа�
 ```bash
 magnet:?xt=urn:btih:C42CE3D1FD0D254B0E9B8704A8E9C82BC58EE3B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.518/dlc) Repack Let'sРlay [The Galactic
 ```bash
 magnet:?xt=urn:btih:06CCE9BF438DCBC1ECFE50CA11F79F493E3FB9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.15.1.0/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:C4D2D19C0C3891CBFD80A96DB5C56B3637520331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ S.T.A.L.K.E.R.: Зов Припяти – прямой сиквел к S.T.A.L.K
 ```bash
 magnet:?xt=urn:btih:BBAFEAA942D14145E625FF107116FF21158490C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Undying Flower (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:69410520113F5D38E02D70B4A47116F4F30AF369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Wilmot Works It Out - это игра-головоломка, приглашаю
 ```bash
 magnet:?xt=urn:btih:F7D1239A79E55D70414FAA1F6B8B4C3F9850659C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dark Souls: Remastered - это переиздание самой первой �
 ```bash
 magnet:?xt=urn:btih:BCB5FF454320782EDE1883579B9B67B055BF7C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

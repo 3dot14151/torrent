@@ -28,8 +28,7 @@ Elen - Girl & Cat (2012) [MP3|320 кб/с]<Experimental Metalcore, Mathcore>
 ```bash
 magnet:?xt=urn:btih:F13D66C10CEBD9B2E41F598AA8CB5B60B99C9890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Burning Point - The Ignitor (2012) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:0433533778F9BD1E7F46C1274D48F2554ED843DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Ghost Inside - Get What You Give (2012) [MP3|320 kbps] <metalcore>
 ```bash
 magnet:?xt=urn:btih:8CB00762CC3EB9352B24747E60E72BB6D4E1B1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Eddie Hardin - Wind In The Willows (1985) [Original Studio Album + Out-takes And
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Video Game Orchestra - Rockestral Game Music (2011) [FLAC|Lossless]<Classical Ar
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

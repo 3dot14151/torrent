@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:58BBB1B2E2622003E85B29E0CA9885A25729DA00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BFC59FCFBB261886C97A4766B344526FB9247F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso v14
 ```bash
 magnet:?xt=urn:btih:FCBCD4CD2710D87E81AD5B689142E29D9D1974B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ YouCut - один из самых удобных и оптимальных по 
 ```bash
 magnet:?xt=urn:btih:5A305A631A502D082BB45123468CBE21666B20E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ NokoPrint v5.22.2 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0B86C7E0641CC0DE060F11BB7E034B58ECF5260B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Sketchbook — это то, что вам нужно, — от быстрых э
 ```bash
 magnet:?xt=urn:btih:FCCD5331A1EB30468A447177FF7D8EBB9E7BBABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

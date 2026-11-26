@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CB8879E72D4060CC4940691CA96D9ECFC1F8E23C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Node.js является серверной технологией, котора
 ```bash
 magnet:?xt=urn:btih:40D6BE992DC1D164C77D7D4ECDBA1CA695635F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32382DB0D7DE4B1B16197F9A16D301FF05D4844D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0722EA34F6B796A5E7EABE4FEF9E8A8C41C1BD41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ HitmanPro – мощный cканер для выявления различн�
 ```bash
 magnet:?xt=urn:btih:63E2BDA50629338FC33C0A63E1096CBFB7459756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Counter-Strike 1.6 Mod Sonicivse Edition (2003) [Ru] (pv48/b4554/mod1.05) Repack
 ```bash
 magnet:?xt=urn:btih:50A66179FD45592B4C656A6D54205A31D4684E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Ratchet & Clank: QForce / Ratchet & Clank: Full Frontal Assault [PS3] [+3D] [EUR
 ```bash
 magnet:?xt=urn:btih:E43EDB960DDD4B1AA8270593B9557CB235319CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Ratchet & Clank — серия игр жанра платформер, разр�
 ```bash
 magnet:?xt=urn:btih:1EEB62562AF09FE6FEE40CC1EF85948442533348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Thief (2014) [Ru] (1.3.4118.5/5dlc) Repack YelloSOFT [Master Thief Edition]
 ```bash
 magnet:?xt=urn:btih:BB15B3E8D16B0680EAE2C36A3464361D3F9C568E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7D76B1B0BCDB8F4426CD5D222BAAB74A547C015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Ratchet & Clank Future: Tools of Destruction — продолжение леге
 ```bash
 magnet:?xt=urn:btih:C3EA41BDAA1AB13AA37234B20D5A81085403B1EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D706AB8E164615DB67CB5F0E27D7AA63D79B494E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Ratchet & Clank: Nexus [PS3] [EUR] [RUS] [4.46] [Cobra ODE / E3 ODE PRO ISO] (20
 ```bash
 magnet:?xt=urn:btih:835BBA13BB49837C6800F5E9DF8238C426A84656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D39A4BA843E20A9FB38334E68EB187326E0B693C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ The Ratchet & Clank Trilogy - Classics HD [PS3] [+3D] [EUR] [ENG] [4.11] [Cobra 
 ```bash
 magnet:?xt=urn:btih:E1F00B3AA2911EA65E3F0570020891D1C3A71169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Ratchet & Clank — серия игр жанра платформер, разр�
 ```bash
 magnet:?xt=urn:btih:4BCD04CDC48812BDE4856519C3FC48968AAA284B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ LittleBigPlanet: GOTY Edition / Little Big Planet: GOTY Edition [PS3] [USA] [RUS
 ```bash
 magnet:?xt=urn:btih:18A783C79DB50F0D5E38C411472E9134B0A0F88D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Cерия мультфильмов про милого, доброго зайч�
 ```bash
 magnet:?xt=urn:btih:8D5CD758F2EDF21E83070A9250ADCB132C63E0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ SimCity (2013) [Ru/En] (10.0.0.0/17dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:B6367D9DD6132A0F452936B81DB442C9FB8D1E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ Acronis True Image 2014 — это интегрированный пакет п�
 ```bash
 magnet:?xt=urn:btih:F44E9D7BC0AFA7BFEA79D67A4108BF9CE6CA5582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ Acronis True Image 2014 — это интегрированный пакет п�
 ```bash
 magnet:?xt=urn:btih:69EC38D6D783707408E413F2455032DE421E52F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02875C0D5E5870AD56865BBF2E0B31A060D0BECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ BioShock Infinite (2013) [Ru/En] (1.1.25.5165/8dlc) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:B4B5D1C3F45E2A9F820CEC3494E842107BAFBA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65643172B29E9817456385CE14DB472473EB945C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E41F937A2848D5618EF3653E1F91AC8BA8AF4863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

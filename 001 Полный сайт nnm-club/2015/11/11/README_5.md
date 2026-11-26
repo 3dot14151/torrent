@@ -18,8 +18,7 @@ Stronghold: Crusader II - это долгожданный сиквел ориг�
 ```bash
 magnet:?xt=urn:btih:3BE06E6A82829732BEAC081A642815A7070D0F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A85C7DC5B2BF24B7A4606394E4A79861917FA70C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Grow Home является экспериментальной аркадой, к
 ```bash
 magnet:?xt=urn:btih:4F13212EE7D2397BF04C621B6A1F11F8D766AB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Rise of the Tomb Raider - продолжение опасных, но таких
 ```bash
 magnet:?xt=urn:btih:F8D27DC20BBA167273F2B0B5B6BAE3FD7F8A98A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ JetBrains WebStorm - программа представляет собой ин
 ```bash
 magnet:?xt=urn:btih:9DB79BEFD24A40B5F45B62176E21AE9A64ED72C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4104C36D363A75E5AD68BF1D611571AF2CC061E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4CEC16AAC1F0CE3D4D0DF1A78D153097945985B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Foxit Phantom - приложение для просмотра, редактир
 ```bash
 magnet:?xt=urn:btih:81DEE0230E7927040FE6FCB1846229665A59B293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Planetbase - сложная и увлекательная стратегия о�
 ```bash
 magnet:?xt=urn:btih:796E8AED6A47DBC7A3562138AFBE280B208E1145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ JetBrains WebStorm  — мощный инструмент для разрабо�
 ```bash
 magnet:?xt=urn:btih:257503428FED5C172D6D5C9037067768A105E6A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Siger Studio’s SIGERSHADERS V-Ray Material Presets Pro - это объём
 ```bash
 magnet:?xt=urn:btih:D94411FF2E15F5BA9ADA070644E5B171FD0FE848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D56D799A5189BD774B587D13A40368F1A854303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

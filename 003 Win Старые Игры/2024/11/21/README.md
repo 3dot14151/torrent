@@ -19,8 +19,7 @@ S.T.A.L.K.E.R. Trilogy (2007-2010) [Ru/Multi] (1.0006/1.5.10/1.6.02) Repack Dece
 ```bash
 magnet:?xt=urn:btih:1E83B090946F85F7617D81A61E21C5400651D45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

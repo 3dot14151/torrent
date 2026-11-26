@@ -19,8 +19,7 @@ Anna Rustikano - Two Albums (1986, 1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 ```bash
 magnet:?xt=urn:btih:E26C845A01E4662DE6B713C213989FC141584A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Pallbearer — американская дум-метал группа из Ли
 ```bash
 magnet:?xt=urn:btih:F562F73833B68AE583C07F00ECC92C11B5C6E396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

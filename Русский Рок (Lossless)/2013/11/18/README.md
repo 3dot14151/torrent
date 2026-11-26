@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:17A6503FA824D88F6D3A694CAFAEF43331F13277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Symfomania - Empire (2009) [FLAC|Lossless]<Symphonic Rock>
 ```bash
 magnet:?xt=urn:btih:D629999D2B11965096F8E0663C6F7A92E4CDB298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

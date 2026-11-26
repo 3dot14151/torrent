@@ -23,8 +23,7 @@ Angry Birds Space отправляется в космос! После того,
 ```bash
 magnet:?xt=urn:btih:B4D9B21577AE24BB756538651E62FB71A7C831DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Amaranthine Voyage: The Tree of Life. Collectors Edition / Вечное путе
 ```bash
 magnet:?xt=urn:btih:4299E2C2950439012241DE3E8441C78CE7386781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ The Fall Trilogy. Chapter 1: Separation / Трилогия падения. Гл�
 ```bash
 magnet:?xt=urn:btih:D5F099AE7E0C3C237671F50BFC2296C185355EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Oknytt - это pont&click приключение, где игрок берет 
 ```bash
 magnet:?xt=urn:btih:A94B1B47D00F6FC91CC9D72C199592F2F6A708CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Legend of Dungeon (2013) [En] Repack 3DM
 ```bash
 magnet:?xt=urn:btih:C1518A54F80F1E880E737BFC4605C738736FD52D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

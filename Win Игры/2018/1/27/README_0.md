@@ -19,8 +19,7 @@ Capsized – это динамичный двумерный платформер
 ```bash
 magnet:?xt=urn:btih:0A1AC165DD5F83610B7FD02847AA5A9F7742155C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Hat in Time — это милейший 3D-платформер о мален�
 ```bash
 magnet:?xt=urn:btih:1592AEA6FB68FD0EDB3035747FFA1F2192DCDF3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:0E1A04F75BC9F7663DF3EFC54F36373B28457D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Divinity: Original Sin – это новая RPG в духе старой шко
 ```bash
 magnet:?xt=urn:btih:F3BE674AACA8FB3D426F76B1152521FA06B16DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PDF Annotator - оригинальная программа для работы 
 ```bash
 magnet:?xt=urn:btih:F77D4A40DEEE73C5CDB115B75194F077A1C94A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Solo on Dvorak Keyboard 8.2.1.6 [En]
 ```bash
 magnet:?xt=urn:btih:91C2EB81ED36B4F7AE502C9E7159207ABC5C99C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MemTest86 - программа позволяющая проверить опе�
 ```bash
 magnet:?xt=urn:btih:DD5C9FA2C340C2BF41305AF8FF1549D531328813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

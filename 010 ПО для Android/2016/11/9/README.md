@@ -21,8 +21,7 @@ Android Auto 2.0.642308 [En]
 ```bash
 magnet:?xt=urn:btih:7802BFDF0F6297E2011CE7A54145D74712997FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ABBYY Lingvo Dictionaries 4.6.6 [Ru/Multi] - Оффлайн словарь
 ```bash
 magnet:?xt=urn:btih:05B1BDEB0F6861A550A7312CD7E64348A9BBB831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4F86EE60C7B4B30EDDD33E4209F4424EC74EC3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Carmine Noviello | Mastering STM32 (2017) [PDF]
 ```bash
 magnet:?xt=urn:btih:DDBB49855E5E0ECB5C024661EC26C37016FD7575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

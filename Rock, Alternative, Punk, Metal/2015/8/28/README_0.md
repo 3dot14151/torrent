@@ -22,8 +22,7 @@ Tad Morose - St. Demonius (2015) [MP3|320 кб/с]<Power/Heavy, Progressive Meta
 ```bash
 magnet:?xt=urn:btih:3C1460DA9CE8C2747D267921DDD15EA23D4043A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Introitus - Fantasy (2007) [MP3|320 кб/с]<Symphonic Rock, Progressive Rock,  
 ```bash
 magnet:?xt=urn:btih:FBE210A6EB87432ABED123AD147DF4E3453700B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fink - Fresh Produce (2000) [MP3|320 кб/с]<Electronic, Downtempo, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:21A0261BCA1D3F850AB7D700DE69DA30CC671D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Spock's Beard - The Oblivion Particle (Digipak Edition) (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:D7C12C7B64995332AFEB356AF9CA51989CDFBEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Backyard Babies - Four By Four (2015) [MP3|320 кб/с]<Hard Rock, Glam Punk>
 ```bash
 magnet:?xt=urn:btih:78151EEEC2C795D67520C1C60205B84D8B0F18CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Motorhead - Bad Magic (2015) [FLAC|tracks|WEB-DL]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6235778977EDC1B113D812C2CBB45088C0292B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Soilwork - The Ride Majestic (2015) Limited Edition [MP3|320 кб/с]<Melodic De
 ```bash
 magnet:?xt=urn:btih:D04047ACD51B03593437B877A66BCB5913AACB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Foals - What Went Down (2015) [OGG| 442-508 кб/с]<Alternative, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:6D9B9FDFFC68CB4E7790633864ABD6949409AF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Daturana – Crossroad Man (2011) [FLAC|Lossless]<Psychedelic Rock / Blues Rock>
 ```bash
 magnet:?xt=urn:btih:AEC891560A6CB38A0E48B9585B19DDA4E1713DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:F7F02919A8FA0E083FA00756CDD9EB2874E19A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ P.O.D. - 9albums + 3EPs + 6singles (1992-2015) [MP3|320kbps] <Christian Rock, Ra
 ```bash
 magnet:?xt=urn:btih:E3DE88D994AA7BA851AE86E10B4EA8A8E1C234C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

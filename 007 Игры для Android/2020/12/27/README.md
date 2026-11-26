@@ -20,8 +20,7 @@ ExoMiner - Idle Miner Adventure
 ```bash
 magnet:?xt=urn:btih:B9C6B98A6843EF40DBBA6DFFC51A59D7ACDC2103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Shadow Hunter : Lost World - Epic Hack and Slash v0.20.8.4 [En]
 ```bash
 magnet:?xt=urn:btih:A1613D2EC89729DCD627D05DBA325A4290FF9477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Age of Civilizations II - продолжение геополитической 
 ```bash
 magnet:?xt=urn:btih:32096B8A66F3EE2BD932B17AA97DF04CCA33652C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Flight Simulator 2d - realistic sandbox simulation - довольно неста
 ```bash
 magnet:?xt=urn:btih:0BA225BD137E9470751AB1EDAB901BF0EA611F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Day R Survival – интересная игра в которой вам пре
 ```bash
 magnet:?xt=urn:btih:AEC507992DBAF3F85E9CE501C62D8A593275AA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ DATALABS unCHK free 1.0 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:00654B3A02C7001D73DF5EE826D54B2FB24F0979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

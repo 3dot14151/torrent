@@ -25,8 +25,7 @@ Menace Ruine - 5 albums (2008-2010) [mp3|192-320 kbps] <Black Ambient, Psychedel
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Arven - Music of Light (2011) [MP3|320 kbps]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:7B7A8A839C6A577691D0FA4F3380E25D78E68E9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

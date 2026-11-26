@@ -19,8 +19,7 @@ Sea of Lies: Burning Coast / Море лжи: Горящий берег (2015) [
 ```bash
 magnet:?xt=urn:btih:0A2B1B6BEAF6F3DD71AE8ED224C3DF52617FAC65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

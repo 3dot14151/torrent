@@ -23,8 +23,7 @@ Nasty Bulletz - Right Time To Rock You (2013) [MP3|320 кб/с]<Hard Rock, Glam 
 ```bash
 magnet:?xt=urn:btih:F466DF12CB9D3B8C9E76399D5A5B4EF217DC8C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Damnation Angels - The Valiant Fire (2015) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:A3A2F29E078862783E2D99363FFBA34BC6386E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ The Open Mind - The Open Mind (1969) Reissue /2006, Sunbeam Rec., UK/ [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:D8901D1B1140F2FD6C85A99F3BF98CF41EA1147E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Headphone Killazz - Нулевой Вектор (2015) [MP3|320 кб/с]<Cyber M
 ```bash
 magnet:?xt=urn:btih:E572E5FAB445297D4C88F6404ED33DBF8ADC663D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Disturbed — рок-группа, исполняющая музыку в сти
 ```bash
 magnet:?xt=urn:btih:987D6B8F8A7FBB1D1604C245F3890FCC84EC7490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

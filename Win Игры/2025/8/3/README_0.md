@@ -19,8 +19,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) Repack Want
 ```bash
 magnet:?xt=urn:btih:7EA37A93F35E00004271F08A08CAC4B8C2989078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ South of Midnight - новое приключение от Compulsion Games. П�
 ```bash
 magnet:?xt=urn:btih:7626BCD80209CDD9A6EDBDB4CDE722D4951CF980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Yaroslav98
 ```bash
 magnet:?xt=urn:btih:893840B60CB36C013F46CDD306EB6FFB7FA4D912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (360.1/dlc) Repack FitGirl [Ultimate Sur
 ```bash
 magnet:?xt=urn:btih:CC887AA7C9A5E4A1C720E8A2D966AF76A81F4E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:97A38DE5A22ABFA7177AB9C03C38E4265F4DA6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Asylum (2025) [Ru/Multi] (1.3.3071) License GOG
 ```bash
 magnet:?xt=urn:btih:77F2D47C86267001A451237FDFC72D13DF8F09AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cosmoteer Starship Architect & Commander – новая песочница на 
 ```bash
 magnet:?xt=urn:btih:16771DF67AABC98F270CC811D975C79BB4E61707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Decepticon [Campaign]
 ```bash
 magnet:?xt=urn:btih:59D0143ED86D63EE53A21F99ECEEDA221FAB8685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B523D720BDAB1F3F1FC75E258F2EFED58D0F2272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Craft The World – уникальная стратегия-песочница, 
 ```bash
 magnet:?xt=urn:btih:1D1555E3961C4783A42E213ACAE63B90ED8BB78A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A5CFB2408965EA7D1C21321045A6643D4CEDC11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ No Plan B – это тактическая стратегия и по совм�
 ```bash
 magnet:?xt=urn:btih:EE4DA457040A72CC6BB1EF684BFC330AB897A754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Red Dead Redemption 2 – приключенческий шутер от тре�
 ```bash
 magnet:?xt=urn:btih:2803B9DF72AB8E1F39EF160FC2ECB8236F6DC140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Drill Core (2025) [Ru/Multi] (1.199.5.7.17.49506e6/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:86347225F152D9B97937061797AD1745D8323566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19401283
 ```bash
 magnet:?xt=urn:btih:F31BA18C12082D08A659EF39A9696A8F7A7E94DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Tyrant's Realm (2025) [Ru/Multi] (20250731 Build 19375382) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:779E893C1D58F47A42E4980E922FA4CD944C6D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Power & Revolution (2023) [Ru/Multi] (6.94/dlc) Repack FitGirl [2023 Edition]
 ```bash
 magnet:?xt=urn:btih:8976756C66C1291438FEC50B9660211ED1B09FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Chasers Dash & Bash (2020) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D12C3B2284D7954ABC7E16240E924C59C30BC3FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Other s
 ```bash
 magnet:?xt=urn:btih:78BB50294C7BE7BAF1EA88577866A638FB551ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 ```bash
 magnet:?xt=urn:btih:318CB24C8191AD49C981295D69794E94430EF1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ACF0DC9852F7FC8C1C37FCC49DB5DFBBE2EF6C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9-r3) License GOG
 ```bash
 magnet:?xt=urn:btih:A279299A2B4EF72C7484FDF9721123048CF467EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +569,7 @@ Forest 6174 представляет историю Дэнни, человека
 ```bash
 magnet:?xt=urn:btih:051AD4AC4FE7FEA16B0994473FC23BD3A97A7372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

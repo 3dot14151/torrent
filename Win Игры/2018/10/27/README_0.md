@@ -19,8 +19,7 @@ Edge of Reality 4: Hunter's Legacy / Край Реальности 4: Насле
 ```bash
 magnet:?xt=urn:btih:54EEE2EDE99E75CA9088D8B094465BFE6796157B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ State of Mind – футуристический триллер на тему т
 ```bash
 magnet:?xt=urn:btih:0208B1842688DE54C43262F91D5CF92318A9B93E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.15/1.0.8) Repack R.G. 
 ```bash
 magnet:?xt=urn:btih:143305F3B9D3113816DF13F108C9AED8A3689FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ TheNightfall (2018) [Ru/Multi] (1.5) Repack Other s [Halloween Edition]
 ```bash
 magnet:?xt=urn:btih:5A8220DA058EAA015E7BDEE9354B001CE550B114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

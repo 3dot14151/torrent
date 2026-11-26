@@ -28,8 +28,7 @@ Geasa - Fate's Lost Son (2003) [FLAC|Lossless]<Celtic Black Metal>
 ```bash
 magnet:?xt=urn:btih:CE5808FCF59E46E66AE1A43DA17D33BC46EF6546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Malevolent Creation - Doomsday X (2007) [MP3|320 кб/с]<Death metal>
 ```bash
 magnet:?xt=urn:btih:B5ABD3AEE61AA2ED30246552D7A63C348BBF0494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Mystery - Destiny? (1998)10th Anniversary Edition/Remastered,2009/ [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:40D166E17A4649ED1896CA66EDC634B8D069CFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Kens Dojo - Reincarnation (2010) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A604FAEE12ED8DE81885F8B6B5E969B26CDF9ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ King's Call - 2 Альбома (2011-2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:621FD1E416F2D30363CC6816676F3E0D88AFE306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Graveworm - 9 Albums, 2 EP (1997 - 2011) [MP3|192 - 320 кб/с]<Black Gothic>
 ```bash
 magnet:?xt=urn:btih:AD9F8BFD090495914261C890EE9903800582B0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Fleshgod Apocalypse - 3 Albums, 1 EP, 1 Split (2008 - 2013) [MP3|320 кб/с]<Te
 ```bash
 magnet:?xt=urn:btih:26849031A1715B47500191529185302C2CE36DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Rachael Sage - Haunted By You (2012) [FLAC|Lossless|WEB-DL]<Rock, Melodic rock>
 ```bash
 magnet:?xt=urn:btih:17AD5174EE628E4705B97978E64D6BF090A86046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ Michael Bruce - Halo Of Ice (2002) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:B3AD8FF3F2D68D5D4145B9CB5F1BA729D268D9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ Gloomy Grim - Under the Spell of the Unlight (2008) [MP3|320 кб/с]<Symphonic 
 ```bash
 magnet:?xt=urn:btih:DDCDB08D421A3A243D727BDA6A3BE5D5A1D5D7DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +365,7 @@ Motorhead - Aftershock (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E461DD7B3A7E1C0C17D69F647DA9FF58D2B82AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +399,7 @@ David Bowie - Best Of Bowie (2002)  2CD [FLAC|Lossless]<Rock, Glam-Rock, Art-Roc
 ```bash
 magnet:?xt=urn:btih:C054A710405B76C03430CABC5C14B9503C9D656A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0952C72FF5E0B9A2CD7CEADE30B497DD273A6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Glitchhikers: The Spaces Between (2022) [Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:404E3CC3310891425A77B1E9BDD08BCAC3A6E0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Catie in MeowmeowLand - это классическая юмористическ
 ```bash
 magnet:?xt=urn:btih:163FEEC40A43AAB1912700A92A69987D8C26DFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

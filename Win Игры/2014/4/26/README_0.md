@@ -24,8 +24,7 @@ The Secret Order 2: Masked Intent (2013) [En] Unofficial [Collector’s Edition 
 ```bash
 magnet:?xt=urn:btih:A7F96690BDF0D45E9C5C9AC26B635B1385D75DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Secret Order 3: Ancient Times (2014) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:BFBFF6D6996DCBB740CD5F8564F3BBFC5326A18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Mystery Trackers 5: Silent Hollow / Охотники за тайнами: Тих
 ```bash
 magnet:?xt=urn:btih:C9EC847229572CCC35B9D6263233C6FB09D0F575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

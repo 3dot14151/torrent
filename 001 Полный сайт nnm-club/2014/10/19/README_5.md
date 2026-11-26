@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3528F204D9937CD9C5083561062F98D9D8377817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Towa no Quon / Вечность вечного [2011, MV, 6 из 6] BDrip 1080p 
 ```bash
 magnet:?xt=urn:btih:CDD73943057CB674860FF9C6DA6D94B2BC70495E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10E9F39BB34A247D330F25E0834BEE8274282C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ad Muncher - работает в режиме proxy-сервера, с одно�
 ```bash
 magnet:?xt=urn:btih:B0108615A8A87B4B9206976EE5BB16470492DFEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB7B28AE375576A9894875C577BB4601BC717E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Dead Rising 3 (2014) [Ru/Multi] (1.0.0.5 Upd5/4dlc) SteamRip R.G. Игроман
 ```bash
 magnet:?xt=urn:btih:2A5AC00A7F51611F5BBA60BD11AD56C89AFADE74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

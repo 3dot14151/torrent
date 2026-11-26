@@ -22,8 +22,7 @@ Anna: Extended Edition [Ru/En/Multi8] (RePack) 2013 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:131CCAA5EDA3297AF93288513818E83C256727BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

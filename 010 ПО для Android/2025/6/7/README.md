@@ -19,8 +19,7 @@ Proton VPN — это единственное в мире бесплатное 
 ```bash
 magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

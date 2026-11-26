@@ -26,8 +26,7 @@ Bitkit - Necessary Illusions (2009)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ VA - Exotic Wafture #12 (10.02.2011) [MP3|320 kbps]<Trance, Progressive Trance, 
 ```bash
 magnet:?xt=urn:btih:0A5B5F168B778A9DE2F3272FF5FCF219FC5AC631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5D32F33C4D6680018EAB4CF9AA7FF7DA108E46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CC5DAC1DE20914B53463399CA1F583F27974A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ VA - IBёZA party vol. 2 (2010) [MP3|320 kbps]<House, Techno>
 ```bash
 magnet:?xt=urn:btih:F3D19A40CC69FBD6B6C6CA9E3B038FF7AEA2B054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ VA - Всё было не зря (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:B072AE776EC9F6B8CF25BC86F918B24CB4A6E02B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7B0A30695CB68849B5DA23B36DFBCDA6D76ABF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F3CC1322FD25E39EEC59906E5AA316208EF2991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Economist публикуется компанией The Economist Group. С 1928
 ```bash
 magnet:?xt=urn:btih:B82277AF50BC21A84FE38188347470E1C9A9E1E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +335,7 @@ VA - Sonic Shamans (Compiled by Idyllic Soul) (2011)
 ```bash
 magnet:?xt=urn:btih:E8D62E397E0EE6B35CB624CEE1FEB5B8F062DF0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ VA - Клубные новости 50/50 (2011) [MP3|256 kbps]<Pop/Club>
 ```bash
 magnet:?xt=urn:btih:1DBFC67D69AAF829EB559C3B429C2ED7D4589190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ Heavytones - Freaks Of Nature (2010) [FLAC|Lossless]<Jazz-Funk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ VA - Для влюбленных (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:2022B17D6591B9F7F00F874F43CA1EC2B08579AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ Oops! - ежемесячный журнал для стильных девуше
 ```bash
 magnet:?xt=urn:btih:65074E0CA52A74B43651FA8AC44E910AECD02F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Affetto - робот-ребенок с реалистичной мимикой �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Alex M.O.R.P.H. B2B Woody van Eyden, Chriss Ortega - HeavensGate 236 (08.02.2011
 ```bash
 magnet:?xt=urn:btih:AE48B3332E1368C24A173E4E2D90E9B69872F876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ VA - Музыкальный подарок от радио Record 50/50 (2011) [
 ```bash
 magnet:?xt=urn:btih:F039B0FF7B72EAC32743F044700CCE473CC637BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C07FAC8A199D10B2DF8F26B5EE227D9EC7BECB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ VA - Chaos Universe (2010)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ Visions of Atlantis - Delta (2011) [MP3|192-320 kbps]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:5EC02E426A54505D89103B9A8C4BF14FEDB961A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +671,7 @@ VA - Car Audio vol.1 (2011) [MP3|320 kbps]<Dance, House>
 ```bash
 magnet:?xt=urn:btih:5FF69726EAAB3353004F1EA1A861B6BBD1FAF2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DE7889B15CD98E51F2005A195B870EBAC4C10AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +725,7 @@ Astel Oscora - Дискография (2009-2010) [MP3/320 kbps]<Atmospheric/Sym
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

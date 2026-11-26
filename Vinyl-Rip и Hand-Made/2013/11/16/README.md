@@ -28,8 +28,7 @@ B3. Аэрофлотовская [1:56](   Читать дальше...   )Жа�
 ```bash
 magnet:?xt=urn:btih:F91FFE7346DAED0B125550172F19E8E92D2E72C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B1. Варьете [3:19](   Читать дальше...   )Жанр: Ballad, A
 ```bash
 magnet:?xt=urn:btih:5D0EEC34D7D91E4B1D33FDCD025D8FE6CA42005A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

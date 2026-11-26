@@ -19,8 +19,7 @@ FontLab 7, это новая программа, для профессионал
 ```bash
 magnet:?xt=urn:btih:D3610A6AA495A0D0AD6623C1A8B53B248E73302F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

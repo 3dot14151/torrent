@@ -20,8 +20,7 @@ C++ и STL. Справочное руководство - Написанная �
 ```bash
 magnet:?xt=urn:btih:53EB8C2405DE24ADBB49CDBAA53E00489886AB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

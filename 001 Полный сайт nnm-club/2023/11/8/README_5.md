@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:18BAA2D823FF493EEF2EBE96E7CB62C695F0B00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D6013B9B70B74B072292D7BF469305C813EF4CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ SYMPHONY No. 1 in E flat major KV 16
 ```bash
 magnet:?xt=urn:btih:98E23D8DEEA06FE0A60AF77D0D745600E387C525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

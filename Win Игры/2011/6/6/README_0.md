@@ -19,8 +19,7 @@ Secret Diaries: Florence Ashford / Секретные Дневники: Флор
 ```bash
 magnet:?xt=urn:btih:A22B87798662BFC1A7F7D0213D47B4C40061148A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Marco Polo / Марко Поло (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:2D0E22364554DFA304D4925D492F029B9D8C728A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

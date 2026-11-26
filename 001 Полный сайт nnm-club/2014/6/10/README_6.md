@@ -27,8 +27,7 @@ Linn Records - The Super Audio Collection Volume 5 Sampler (2011) [DSD 5.1, 2.0 
 ```bash
 magnet:?xt=urn:btih:80B5139A7522ACE40F0EECCBC3F0C10D7333295E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Super Motherload (2014) [Multi] (1.3.6.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D227FFF0ACA40C90BA64827B1958D70F5256D307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Anthology Armored Core [PS3] [EUR] [En] [1.70, 2.42, 4.01, 4.46] [Cobra ODE / E3
 ```bash
 magnet:?xt=urn:btih:E2A2721A0C7C2566FE0A695EB3026CDE36908BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Linn Records - The Super Audio Collection Volume 6 Sampler (2012) [DSD 5.1, 2.0 
 ```bash
 magnet:?xt=urn:btih:37041CD421653DDE0CA62AF7D5D56B76CEB52E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Dead Space [PS3] [EUR] [Ru/En] [2.42] [Cobra ODE / E3 ODE PRO ISO] (2008)
 ```bash
 magnet:?xt=urn:btih:70B72631EF4F64E705E653C34DCE0FCB74D0BE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BD69390FB33BF8B3A6D0681CBA299EB17A7A8A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ LittleBigPlanet Karting / Little Big Planet Karting [PS3] [EUR] [Ru] [4.25] [Cob
 ```bash
 magnet:?xt=urn:btih:DC1C7B3DB7FEECF46E844D7BCB3A8909AB6C4415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ LUT Utility for Final Cut Pro X and Motion 1.37 [En]
 ```bash
 magnet:?xt=urn:btih:717B00C855A4F5013A2874D467C5A3A41FD04D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Vue 2014 XStream 2014 12.00 Build 12002349 [En]
 ```bash
 magnet:?xt=urn:btih:BF2DC8E28FA7EE002435D8B03EBB84526B9C9FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Boot USB Sergei Strelec 2014 v.6.1 (x86/x64) (Windows 8 PE) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E3495E03A1AF60B4AF063C34147AF768015DB9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09445A2CC5363020151D0FF6B9C01072A3201F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13702ECD154D90D35773776D64078795271BD72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8F81A20346564A9C08EA4856A311391550E24C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ VA - Энергия музыкальной волны DFM (2014) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:9DB0D391E45CAE3455C7605AA1651B34D81AA457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ VA - Дискотека СССР Современной Обработки. За
 ```bash
 magnet:?xt=urn:btih:1CF34515E5F34A3B223C23DB30D5F36469A6B902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ VA - Дискотека СССР Современной Обработки. За
 ```bash
 magnet:?xt=urn:btih:2826A77972787379D9EB350D532C42BF2F4A110E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ Action Storyboard Plugin, Advanced Masking Tools 2 Plugin, Anamorphic Lens Flare
 ```bash
 magnet:?xt=urn:btih:76F9D1C9A2E262D09492E6C9B60492FD521CAC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +585,7 @@ VA - Назад В СССР. Дискотека 80-х, 90-х 50/50 (2014) [MP3|1
 ```bash
 magnet:?xt=urn:btih:B15718FD22DA070F90BC14279BB225DB0EA22AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +614,7 @@ Watch_Dogs – экшен проект с открытым миром, глав�
 ```bash
 magnet:?xt=urn:btih:34DBFD29564A1F859DE48F8545FA3863E9ADEB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1402B3BA18520C24A0B94A373EB093A5524C8194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +673,7 @@ Micrоsoft Windows XP Professional with Sеrvice Pack 3 VL Russian.
 ```bash
 magnet:?xt=urn:btih:DE428F2CC8463D9D2DBC2118B0BD1B756D3525F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

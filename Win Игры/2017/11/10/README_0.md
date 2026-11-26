@@ -19,8 +19,7 @@ Forgotten Places: Regained Castle / Покинутые места: Обрете�
 ```bash
 magnet:?xt=urn:btih:A1AB9C763124CEC216EF8F8894A50654DE144ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) License RELOADED [Deluxe 
 ```bash
 magnet:?xt=urn:btih:E3851B127BF079D2EB65033DFE7A0C94283FA9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crimson Earth 2 (2017) [En] (2.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:0BF03FC59FA47714420A91C42D254010989060DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

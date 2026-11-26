@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4785C329F219C4DB519DA3251E1946AD31BD19CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Microsoft Windows 8.1 Enterprise with Update x86-x64 Ru by OVGorskiy 08.2014 2DV
 ```bash
 magnet:?xt=urn:btih:01A0EB7355D6D6D969B841E346B84937CA84066D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

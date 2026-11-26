@@ -19,8 +19,7 @@ Sonic the Hedgehog 4: Episode II является продолжением Sonic
 ```bash
 magnet:?xt=urn:btih:372419352DB7C81CFDDE43F6CCB69FE95B072167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Diablo III/3: Collectors Edition [En] (L) 2012 [Без таблетки]
 ```bash
 magnet:?xt=urn:btih:4A55B8E51B814E7269B93B4659617A0F1D539D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Dungeon Defenders является смесью двух популярных ж
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

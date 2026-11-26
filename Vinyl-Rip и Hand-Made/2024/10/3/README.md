@@ -22,8 +22,7 @@ Morgana Lefay - шведская трэш/пауэр-метал-группа и�
 ```bash
 magnet:?xt=urn:btih:B23A1FF9892AF579EFB3DC2FE988F2AC4B90003B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Logic Circuit Simulator PRO предоставляет вам место для 
 ```bash
 magnet:?xt=urn:btih:A0B6F363D8F5F48C1E502E364CD246DBF88D2729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AGContacts - звонилка и менеджер Контактов, Избра
 ```bash
 magnet:?xt=urn:btih:66EDB029F1A8E5F84881A828CF9EC723934949D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:386957B57C7418D29B974C136F7457B4D253C774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

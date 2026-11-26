@@ -25,8 +25,7 @@ Odradek Room - Бардо. Относительная реальность (2012
 ```bash
 magnet:?xt=urn:btih:B2479C9A96B74CC3A728C5B81CD776B15973EA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Omar and the Howlers - I'm Gone (2012) [MP3|320 kbps] <Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:8FC6A330A7FDBDD0F0FB01593AE1CC4B58E0B2E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Hotel Diablo - The Return To Psycho, California (2012) [MP3|320 кб/с]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:A39119273B8D363E81031B9A5002E144FA07B214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Lita Ford - Living Like A Runaway (Limited Edition) (2012) [MP3|320 кб/с]<Har
 ```bash
 magnet:?xt=urn:btih:7873A61E0A94E086FFB4E4AA3AA1855AA4DBCDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ CD1 - Remastered Album
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -25,8 +25,7 @@ Hallywood X - Origen (EP) (2012) [MP3|320 кб/с]<Dubstep, Electro>
 ```bash
 magnet:?xt=urn:btih:57F611F28E2B45ECA7AB8EB1025DA0C38CA8DE6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Smaxxide - Smaxxide (2012) [MP3|320 кб/с]<Nu-Metal | Rapcore>
 ```bash
 magnet:?xt=urn:btih:FE3106EA3102536C61FF712AED89CD4E12999E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96F8983733835D209AB1C261E9AB6B0CA8461FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ White Flame - Cougar (2012) [MP3|320 кб/с]<Hard Rock / Glam>
 ```bash
 magnet:?xt=urn:btih:1475D25AF31CB33D145708581118D4E7955EE59D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB818DB4C1CCCF65DE074774D599D0EFF0A77A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6D59721A90E7AD0A4D8366055CE0D94E57AF890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:349DD3C24853AEC9C11E0FD6600CCD1102B7B321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Desktop Wallpapers (16.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:297770144A09CD2330E744CE5912A8F989AC509B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ MitiS - Give My Regards (EP) (2011) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:279CA2CFA4D7D19D81DE484A5A2458593B74CABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ VA - Вояж Русской Музыки (2012) [MP3|256 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:0CFEDD5EB4DE740897B5A9BC7FE5A8D985D2623F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CE770FD8BC9F162DC00BDD80505E256FD00B79D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:908EEE3ECEA4AF09FB49E496DF6E66737612E5DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +362,7 @@ VA - Осенняя Московская Дискотека (2012) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:AF67862DBB5CD82096F37B67A92BCFFAAD18D3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ VA - Jazzy Christmas (2010) [MP3|320 кб/с]<Deep House, Jazzy House>
 ```bash
 magnet:?xt=urn:btih:4405653A88EE2AEBF51146CAED33B755C975CCF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +430,7 @@ Kill Ritual - The Serpentine Ritual (2012) [FLAC|Lossless]<Heavy Metal, Thrash M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +455,7 @@ Computer Desktop Wallpapers Collection (16.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:80D668226C6AD3129BAF9D285BD50995A9098465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +489,7 @@ Bouncing Souls - Comet (2012) [MP3|320 кб/с]<Punk rock>
 ```bash
 magnet:?xt=urn:btih:39C43197E8EE3EEFF5EFB33F1E28486E008EEE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ The M Machine - Metropolis Pt. 1 (2012) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:A5B7BBC2B1443C26F47CAA5AF111F7451FEFDA48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ Best HD Wallpapers Pack (16.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:0E9FBAF9B07F894D1B326047A10EEE9933102F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ Bobina - Russia Goes Clubbing 219 (14.11.12) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:0DD5E498F7896A3C4B7D9D39F12ED7B80E044F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ VA - Хитовая жажда 50/50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:95B542B50AA0CBF7D46CAED1FDADE6A727AD2164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ VA - Звездный осенний хит 24 Зарубежный (2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:F5EE441FF8B1AFEF6F28F78A1B77CD20BDEB8F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +671,7 @@ N/AЖанр: DubstepПродолжительность: 00:28:39
 ```bash
 magnet:?xt=urn:btih:334AEBF17D217BFDF1F09574C5A82C8693B8A1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D524D3A125ACA1B0916BD27BB71B512A28D2960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:398CD2B2767B892DDC3D7CDCF414F049DBB1007F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +746,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A224D3BFF11159CF8D41FD63D0C273AFB5F549F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

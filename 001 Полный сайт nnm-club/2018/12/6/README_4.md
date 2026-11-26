@@ -18,8 +18,7 @@ Shenmue I & II (2018) [Ru/Multi] (1.07) Repack West4it
 ```bash
 magnet:?xt=urn:btih:8F090B5E67A2D4A927A22B2BC6825F8DD618AC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Kenshi (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:F9D922B53C8B3C01E7F6B7C4CAAAFB7789D79343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3CD4BE813B248FF9BC51343BDA590B68127571F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Constructor (2017) [Ru/Multi] (1.0/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2875916EF76D3BFDBABED591B7CC5CFAA583046A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Total Commander PowerUser Portable by HA3APET v70 от 5.12.2018 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E53100C81CF070310688A6FE22945D64845FE562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E3D3DA06DA8F864C78B715D84B4B2F6FC6D902E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Project Cars 2 – это вторая часть мегауспешного г�
 ```bash
 magnet:?xt=urn:btih:BD6B34C5BE4D85C99515060CA1E0C3147BA47B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

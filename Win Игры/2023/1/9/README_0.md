@@ -19,8 +19,7 @@ Two Worlds 2 (2010) [Ru/En] (2.0.6/dlc) License GOG [Epic Edition]
 ```bash
 magnet:?xt=urn:btih:62E5E2B2DA9825E44803DF1992F675CB52EF8583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

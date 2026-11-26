@@ -19,8 +19,7 @@ Thrills & Chills - Roller Coasters — увлекательная игра, в �
 ```bash
 magnet:?xt=urn:btih:97F144594168CC69C473F8FEFCEEF8127A87A3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Island Dilogy (2016) [Ru/Multi] (1.1.2.0/1.1.2.0) SteamRip Let'sPlay [Defin
 ```bash
 magnet:?xt=urn:btih:950F4B28FE3324B0D2A7F2B9A311DBBAA4DBBE26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Five Nights at Freddy’s: Sister Location — это новая часть из
 ```bash
 magnet:?xt=urn:btih:7F5E57E59A45355D1DBF8BCB2A5FEBF18AE605BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

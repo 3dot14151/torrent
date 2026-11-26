@@ -22,8 +22,7 @@ A4 It Could Be Sweet(   Читать дальше...   )Жанр: Trip HopПро
 ```bash
 magnet:?xt=urn:btih:A6902D2FA54D225761699AFFA2FC04E7EA9361DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 Inertia Creeps(   Читать дальше...   )Жанр: Trip HopПрод�
 ```bash
 magnet:?xt=urn:btih:F856FFF29F9FC2FC57918BCF9FF411AA729D221F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Screen Capture - программа для захвата нужной обла�
 ```bash
 magnet:?xt=urn:btih:27AF9D793FAD7E8043EFDA067AFFC8FE0D493749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ iOS Toolkit - программа для восстановления утеря�
 ```bash
 magnet:?xt=urn:btih:C91E6CA81F27F1D507CF34C23515483B9D9F4C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ AnyMP4 Android Data Recovery – это отличная программа дл
 ```bash
 magnet:?xt=urn:btih:15EFB78751D87F5C456879B91B889F461173F4DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Android Data Recovery  совместима с Android 2.3 и другими б�
 ```bash
 magnet:?xt=urn:btih:037BDCAD883B81DD4D4D28E979B201CD4C76DDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

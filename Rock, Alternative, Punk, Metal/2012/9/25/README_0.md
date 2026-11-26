@@ -28,8 +28,7 @@ Joe Bouchard - Tales from the Island (2012) [MP3|320 кб/с]<Classic Rock, Hard
 ```bash
 magnet:?xt=urn:btih:28C889CCFF93F909A72FBFF2D0139364AAFFCFE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Sturm und Drang - Graduation Day (2012) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:914B3AB6A34F8706C8D8A6E72A9F7B19DC8B0B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The xx - Coexist (Japanese Version) (2012) [MP3|320 кб/с]<Indie-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

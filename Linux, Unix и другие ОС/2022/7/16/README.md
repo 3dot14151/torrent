@@ -20,8 +20,7 @@ Ultra - самая (   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:08B5FBE4BE78B030B5DBB1E6B8815E2D18F337CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Maximum - (   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:B9B0935225FD773B58AB81E754FD36145C2045FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

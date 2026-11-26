@@ -19,8 +19,7 @@ Champions of Anteria – тактическая стратегия, расска
 ```bash
 magnet:?xt=urn:btih:631D03DD4DB7E3CEA46C243170D303EA7BA79F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Champions of Anteria – тактическая стратегия, расска
 ```bash
 magnet:?xt=urn:btih:80D4C6AB4DE8780AEA8A231F44107C09AC0F144B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hand of Fate (2014) [Ru/Multi] (1.3.14/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:345FED82EA50D50F5D49CEF4514FD86B45BCA98C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Red Faction Anthology (2001-2011) [Ru/En] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2929FBB2123ABBCEA7B54A3E0D7F571F584987CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

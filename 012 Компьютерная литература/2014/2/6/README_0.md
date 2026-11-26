@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:C43CFCB343052B6355CDA904CFAD678A528F4246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ htmlsupport.ru | Осваиваем верстку сайта на пример�
 ```bash
 magnet:?xt=urn:btih:275B3A447899FE492A717EA86DA2C0F94D5987AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

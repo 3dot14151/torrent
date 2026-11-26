@@ -28,8 +28,7 @@ Tom Jones - Tom Sings The Beatles (2007) [MP3|256 kbps]<Rock & Roll/Male Solo/Po
 ```bash
 magnet:?xt=urn:btih:812D940D3906B07615028E943EC24B51B6600437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Cписок песен:
 ```bash
 magnet:?xt=urn:btih:B4C3903DEC3E26947F3A18DC5CB753E14E8E97B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Moody Blues - The Very Best Of (1996) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Combichrist
 ```bash
 magnet:?xt=urn:btih:BC83C1A45C792689ABDE336195F5D2D5F3349B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Bon Jovi - Greatist Hits The (2CD) (2010) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA3A1B2B55EDDC4CDF8600F209D2D777CFF821EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

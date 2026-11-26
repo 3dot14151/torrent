@@ -22,8 +22,7 @@ Green Talisman (Skorsky / Carmona - Goings - Skorsky)
 ```bash
 magnet:?xt=urn:btih:C1AE867AF801BAAAB7156E7515019089917E9CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ivo Linna - Поёт Иво Линна (1983) [FLAC 24/192|Lossless|tracks] <Pop
 ```bash
 magnet:?xt=urn:btih:84F483AB2C85AC102D526839462FBD988F197511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Everybody's Talkin' (F. Neil)
 ```bash
 magnet:?xt=urn:btih:22EDB0F1F0C0D21B87443ABE4128229D8A20371B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39ED83346B49088FF2ADF07D0BC7F29EC076C01F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ XMeters 1.0.103.0 [En]
 ```bash
 magnet:?xt=urn:btih:A1289A4443510E4D3E161DB1FAA4B614E6A895F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

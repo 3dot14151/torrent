@@ -19,8 +19,7 @@ Kotama and Academy Citadel - это трехмерная метроидвани�
 ```bash
 magnet:?xt=urn:btih:6D13CA34F07A6DC4A10B9D70CF042436A0A68898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Caribbean Legend: Age of Pirates (2026) [Ru/Multi] (1.0.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7CA435036707131DAAF76B17356E93685AA50EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack Other s [Digital Suppor
 ```bash
 magnet:?xt=urn:btih:4596AA2C47E2E20121BFC9755C1FED06195DB3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack FitGirl [Digital Suppor
 ```bash
 magnet:?xt=urn:btih:7F374BBAD4D9DE273A063F27A80E5C92FFFF507B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sunbreak War (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E35B67E741A5559E472D3D52DCE471956FD16674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Caribbean Legend: Age of Pirates (2026) [Ru/Multi] (1.0.1/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7C4DE065DE7319F3D22A17021F6E618B74F2B9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Fall of an Empire (2026) [Ru/Multi] (1.243) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4CB364E487A9E35FC6913311C3BBFE077C0486F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The King is Watching - это роглайт-стратегия с уникал�
 ```bash
 magnet:?xt=urn:btih:97CD7FFB27B114BDFE30257EBA1E25B2A0460CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ AETHUS - это сюжетная игра на выживание с низко�
 ```bash
 magnet:?xt=urn:btih:52C030BF27F0438658FA09DCEA6EC838B92001C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

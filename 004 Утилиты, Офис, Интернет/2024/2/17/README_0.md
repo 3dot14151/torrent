@@ -21,8 +21,7 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by Topersoft [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:994A2223E488B426B24CA4C2F39020BCC20E9AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

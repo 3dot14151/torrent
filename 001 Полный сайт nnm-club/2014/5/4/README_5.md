@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:0F4B61368F894D4E03539E650AB0C7C1B7CEFCD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Disgaea Dimension 2 является прямым сиквелом Disgaea: Hour
 ```bash
 magnet:?xt=urn:btih:65D56FC219FEF252F70E8F3DAB106130D18278AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Capture One позволяет использовать несколько ва�
 ```bash
 magnet:?xt=urn:btih:0EDE8E33BC0E7B6AB69422A75B655EA46DE2803B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:44BEF5CEB8C6FF2105738D728A322BD98FBB21D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D1EA2B97A79FF8A60CDA5F8CB4F9F61AD2C94C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Zone of the Enders – быстрый экшн про летающих боль�
 ```bash
 magnet:?xt=urn:btih:7434A29779888353FF99EE6A4654DE959CA3514F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ The Amazing Spider-Man 2 [XBOX360] [RUSSOUND] [GOD/Freeboot/16537] (2014)
 ```bash
 magnet:?xt=urn:btih:2DDB69E2FECE40D554F095BADAF13FAF10963915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ The Beatles - 12 Albums (1963-1970) Dr. Ebbetts Blue Box Remasters /2005-2006, D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBA548917EB22F44C81230F6C90CBAB86FD6D20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A6FB35B4B808A109CFF5E555E9D0829EBACCA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ The House of the Dead: Overkill - Extended Cut [PS3] [3D] [MOVE] [USA] [En] [3.7
 ```bash
 magnet:?xt=urn:btih:BAC555F41A71A6FE9E47292128D09A2DE45D6541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ G Data TotalProtection 2015 включает включает антивирус
 ```bash
 magnet:?xt=urn:btih:F36E8B25A29BDFE1118B3F351409F86A4B1C3FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Resident Evil 6 (2013) [Ru/Multi] (1.0.6.165/dlc) License PROPHET
 ```bash
 magnet:?xt=urn:btih:F5E04BE203054793A03AABDC88CB7C20762045EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC3C5D08E21E7DA5A7DE4BDA52B82135A9B24825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ ASUS Backtracker portable 3.0.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:50EED92B659B4A0BDE1B0EB31F475B0CAAEF344C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ State of Decay (2013) [Ru/Multi] (14.2.11.5126/dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:8413CD096561F3F996304AD552F8FC4CEB4B6651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA67E832CC102452DDC45F66F4AC8D7D9F730A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Coppelion / Коппелион [2013, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:9E1AA005D973D3D5C5A9B8D9020D401F80661933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Burnout Paradise: The Ultimate Box [PS3] [EUR] [Ru] [2.52] [Cobra ODE / E3 ODE P
 ```bash
 magnet:?xt=urn:btih:2726B1FC55F2904801C98853C8FA13306AD2B5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FED1961082BBF7DAFBBB79A85E0BC88C7D4621B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Metal Gear Solid. The Legacy Collection [PS3] [USA] [En] [4.40, 4.11] [Cobra ODE
 ```bash
 magnet:?xt=urn:btih:E4BC48E55698EB9DE677B9847FB21BF63A48DD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ TitanFall - это научно-фантастический шутер от п�
 ```bash
 magnet:?xt=urn:btih:AECBB6CC08351F4E1D7674BB34B450A3114107ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ ACDSee Pro - профессиональная программа для рабо
 ```bash
 magnet:?xt=urn:btih:508EDED6A93D4D14385550D13E192C6203A79C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 ```bash
 magnet:?xt=urn:btih:77A296CFE08F17F97D5B1C7704C99CD5C2B6AD89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

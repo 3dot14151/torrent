@@ -19,8 +19,7 @@ Maths Formulas - программа, в которой Вы найдёте вс�
 ```bash
 magnet:?xt=urn:btih:31ED39BE3F1B425E6A67DF4AAD7EABC770EC8ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

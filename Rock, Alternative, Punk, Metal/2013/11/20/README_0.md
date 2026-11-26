@@ -28,8 +28,7 @@ Awrizis - Final Hybridation (2013) [FLAC|Lossless]<Melodic Death, Thrash Metal, 
 ```bash
 magnet:?xt=urn:btih:0DF11131E639BE4F8F03DD69C7F715799185B7A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Adagio - Dominate (2006) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:73DEDAC11B50CF4F8644C1570619DF60FF778A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Lamb Of God - As The Palaces Burn (2003) 10th Anniversary Edition, 2013 [MP3|320
 ```bash
 magnet:?xt=urn:btih:7E839291A5F0F19D62DCBC57E5BED670CF871735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ David Coverdale & Whitesnake - Too Many Tears (1997) CDS [FLAC|Lossless]<Blues R
 ```bash
 magnet:?xt=urn:btih:0213B7DB751F77C7E06277EB97D8EE65CA5D7513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1EA95929B83AFDCB7318F60C292EE40D58C0A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F262CB6D774ADD01F207F04F10FB3F42A9D8F6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Roger Taylor - 5 albums (1981-2013) [MP3|320 кб/с]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

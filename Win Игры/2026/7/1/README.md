@@ -19,8 +19,7 @@ Plant Nursery Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:88FE61A47768F6223ED93CFEBC37CC0D7834EE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4850 rev632/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:FE1A4B6DBA69915BD8D36EF2F1971A741B401B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bad Boys: Miami Takedown / Bad Boys II / Плохие Парни 2 (2004) [En] (
 ```bash
 magnet:?xt=urn:btih:C5DE9BE7FA682347B4D7E632D05EA5BAD31E8584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 53872) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:C250B2202B125AFA96EDC5FBAEC9477447C5B378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ GRID 2 (2013) [Multi] (1.0.85.8679/dlc) Scene Prophet [Reloaded Edition]
 ```bash
 magnet:?xt=urn:btih:6FE23CF468FE1981332B0B1246E8DBC5C32A6226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (1.20/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:EDC7A144319CF9709385B019E1FB5F3FF5C86DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

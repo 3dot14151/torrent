@@ -22,8 +22,7 @@ Powerized ‎ - The Mirror's Eye (2018) [FLAC|Lossless|image + .cue] <Progressiv
 ```bash
 magnet:?xt=urn:btih:945A8EE70B5BD5060EA06A59A211E22FD816EA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Amazons - Future Dust (2019) [MP3|320 Kbps] <Indie Rock, Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:309D3A764637CD187F5AF8E431E56689966C3F36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Honeyblood - In Plain Sight (2019) [MP3|320 Kbps] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:9D4444F614287B8F6B5623F80066D3701D3C6996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dark Blue Inc. - Linked To Life (2019) [MP3|320 kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:38EAEE83BEDD218C314A7CD08985D1AEAEAB80EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sammy Hagar & The Circle - Space Between (2019) [FLAC|Lossless|tracks + .cue] <H
 ```bash
 magnet:?xt=urn:btih:E818468DDFEEC083D8ADEDC509CA72BD8DEEBF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ October Tide - In Splendor Below (2019) [MP3|320 Kbps] <Melodic Death Metal, Doo
 ```bash
 magnet:?xt=urn:btih:27D49413260449954D2B0A3EB7DF872B5C85EC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:A2E7ACD17584C0CBC3D41A664CA504BE78C9D860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Cate Le Bon - Reward (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:A4BB34E34CCFD22C662709FF48D9E08281A48927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Alliance - Fire And Grace (2019) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DB3DE2829A444C5B3F40B1258634F18F3C38E39F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Lewis Capaldi - Divinely Uninspired To A Hellish Extent (2019) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:ABBD395C0AB5E6F59682A5BBD137DCB1CEB5A361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

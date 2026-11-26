@@ -19,8 +19,7 @@ Hollow Knight 1.2.2-Final (Unofficial port) Mod by Skaizek & Dan Cooper [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:40FE3050B1DF5D8BD6FBF1F667A7C26761328E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:227F2BA62D936ACDA896E09D2D34E6313CC9B30B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mark Simon | Getting Started with SQL and Databases (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:E13BCA46FB5405E144408F47494740EC1C07B0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deepti Chopra | Flutter and Dart (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:84EEEC56EFA6AA1AA844C7E953C5EFB6847BB1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E8D4243CE5E093166470466F7E4C253796FB52D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

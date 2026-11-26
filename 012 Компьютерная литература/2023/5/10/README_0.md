@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:2F66D802B0A10421E90AE56ECCCD236C2B014693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sulekha AloorRavi | Metaprogramming with Python (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:B0AC413B13B1FFCF5287130AFF7F9C3A32C48531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

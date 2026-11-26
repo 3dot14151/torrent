@@ -19,8 +19,7 @@ Mortal Kombat Trilogy (Kommunity Patch) - файтинг, не являющий�
 ```bash
 magnet:?xt=urn:btih:EB5925F58E47B8E8BD236910240E9DE72348C2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Driver: Parallel Lines (2007) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3B3A7155E34443421ECC522872C08E0ED2238611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

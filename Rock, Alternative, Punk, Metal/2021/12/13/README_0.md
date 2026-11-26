@@ -22,8 +22,7 @@ Teleborian - Electric Fortunes (2021) [FLAC|Lossless|image + .cue] <Modern Hard 
 ```bash
 magnet:?xt=urn:btih:4F6FFD63740278A81D8136B39AF0C97D74C5E2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wolftooth - Blood & Iron (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:88BF6D25C7A56EBC0FDCDAA3C63E7FCCE620D411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Written-By – Greg Hart, Mick Wilson(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:B0613B17DF37089D049883D69769BE9C9EECC338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:962F89C072A1A604F53D67FFE370C623BAED2726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Allman Brothers Band - Shades Of Two Worlds (1991) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:16219E2626E68ECF40FDD519EA35CD97C36FECE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Bubble Bobble [En] (RePack) 1986 | Pilotus
 ```bash
 magnet:?xt=urn:btih:E6AE3F33791E2B67AF90B0DBE2BF56C11B16594E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Duke Nukem начал свой путь еще в 1991 году, до того �
 ```bash
 magnet:?xt=urn:btih:19045322A89DFDA29B3E5185E29A81FC862570A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

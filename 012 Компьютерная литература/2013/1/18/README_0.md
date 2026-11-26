@@ -19,8 +19,7 @@ Texas Instruments | Руководство по выбору усилителе�
 ```bash
 magnet:?xt=urn:btih:25A3AE9D17FFA33C2AA4C10B2B1CAB425464E720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBF872137E9755C4CF5EEFBC8317E24B409DF69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

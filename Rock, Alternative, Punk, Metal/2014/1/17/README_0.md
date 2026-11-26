@@ -28,8 +28,7 @@ Enemy Is Us - We Have Seen The Enemy... And The Enemy Is Us (2005) [WavPack|Loss
 ```bash
 magnet:?xt=urn:btih:50932EB8E9129C2FBB22F4BBAC123069E5CB0F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Eternal Oath - Wither (2005) [WavPack|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:E45D752BA436467C6E4F934055EB36A157D4F43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Vital Science - Imaginations On the Subject of Infinity (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:3C1A133460781BCC3942716A78602F9494ECAD7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Eternal Mourning - Delusion & Dementia (2001) [WavPack|Lossless]<Gothic / Doom /
 ```bash
 magnet:?xt=urn:btih:E54CEE5D0C1F6D8CD620E438E20C26DB5C1170DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Shotgun Symphony - Shotgun Symphony (1993) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:036746F7812AA0947ACEB2C9E1F4DDCEEFFF7646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Chrome Division - Infernal Rock Eternal (2014) Limited Edition [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:E856D117BD04DE8033F46150F5D0F0047367448A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Still Remains - 3 Альбома (2005-2013) [FLAC|Lossless]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:1F9CD163EEFFA805F6C50E7753EEB90755DB6A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Electric Light Orchestra - Balance Of Power (1986) [FLAC|Lossless]<Classic Rock,
 ```bash
 magnet:?xt=urn:btih:0F8C261DC2166326562C2F83EF842FEAEDFE4AC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ A Call To Sincerity - Foundations (2012) [FLAC|Lossless]<Metalcore / Hardcore>
 ```bash
 magnet:?xt=urn:btih:754E822DCCED2DD90918B00709F995CDD5AAB869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Electric Light Orchestra - Strange Magic: The Best Of Electric Light Orchestra (
 ```bash
 magnet:?xt=urn:btih:ECCE30BDBD36B177DBBBAF0CB770EEF964DA7573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ The End - Elementary (2007) [WavPack|Lossless|.iso.wv]<Metal / Rock / Ambient>
 ```bash
 magnet:?xt=urn:btih:662C0DD2EF8F5439A337C31712E1C7B9EE85ADC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ Alice Cooper - Hey Stoopid (1991) Expanded Remastered Edition, 2013 [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:15B13FC100B81E689209B394F3750E6667CA9856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ Within Temptation - Hydra (2014) [MP3|270 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:9D8969A98E29590C1CD6C70DD4152B5F58B53BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:148F1113A861BA159246057A94846DC0205F7F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

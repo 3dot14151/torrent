@@ -22,8 +22,7 @@ F. Roses - The Prologue of Mythology (EP) (2012) [FLAC|Lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:CE74241B0FE84FEACF8BFDE8B33B8BBA18861F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vildhjarta - 6 альбомов (2007 - 2015) [MP3|192-320 Kbps] <ambient, math,
 ```bash
 magnet:?xt=urn:btih:B209F3E3181D96B464EE53A5AB6C5822913431D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bonfire - Temple of Lies (2018)  [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:928CCBC9668FA417B96C0D93A44128A2F9D979A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

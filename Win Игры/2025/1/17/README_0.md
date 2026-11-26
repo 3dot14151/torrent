@@ -19,8 +19,7 @@ City of Stories 3: The Hunter's Heart (2025) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:ED19824C8FA5E580F7CFE4B287DD6094EF572893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Decepticon [D
 ```bash
 magnet:?xt=urn:btih:A74EC00BDAB57549F1872EE1478C6704CA4FF5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Terra Exodus - экспериментальная экшен-стратегия 
 ```bash
 magnet:?xt=urn:btih:27AEBEFB52E9FD19EDC08C5AD0B5BDD61BA9BB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:762725C08018C1AF6DF02ED2E3C02E39A2859E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Lies We Tell Ourselves - психологический экшен от пе
 ```bash
 magnet:?xt=urn:btih:7C15003FFCD9CEC829878CD8399C1EA435681928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cursed Digicam - хоррор, где основное внимание удел
 ```bash
 magnet:?xt=urn:btih:742117DC5030ADD6A46A2A159C0DCD12BB0FDDFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Age of Darkness: Final Stand - это стратегия в реальном в�
 ```bash
 magnet:?xt=urn:btih:6955F79C38F39EB7A3AA9ADE2C90419C41D4E74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (1.0a) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E77514984306ED95D4E35B60BD850F4DD1E3961B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Montezuma's Revenge - The 40th Anniversary Edition (2025) [Multi] (1.0.0.1.229) 
 ```bash
 magnet:?xt=urn:btih:377A4DC318C126E8664CF6010890EF8E8DFBAFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Reus 2 выделяется своей уникальностью и увлек�
 ```bash
 magnet:?xt=urn:btih:8BCCD1E2629EC683C305E5657D2D8F23CCA95B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:80C35A20E4472FC503327257FC5F1226128DC381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ ECO HOLE (2021) [Ru/Multi] (1.06) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:87C0D90AE1576AADDB6218BC7533143EB397B8A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ The Haunting of Joni Evers – это эмоциональная история 
 ```bash
 magnet:?xt=urn:btih:3DF240D8334E9F03EC24FF38407AF7DFBCAEC8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

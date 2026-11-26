@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B95CAD5E1AA9CBD4F4F9C5CD5A3953559ECD9516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Blasted To Static - Blasted To Static (2016) [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:885341387BE84764E76912DCD49D888053E17635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:581BC9F0E063A62FBE05684D6F27E06811070786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AD399F897BC3CE272289BE8D080612953822B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0A440AC614D19942959825327F8283C055E5AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6B85C8ABDE1BCB599FB8FE546947C28C93867BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ VA - Ambient Diary.Three (2000) Elektrolux [FLAC|Lossless|tracks+.cue] <Ambient,
 ```bash
 magnet:?xt=urn:btih:88064B5F6B0A01604137B3EA29E3DF813525C0DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DC38533222681CC69C1B51ED6AAC055A400128E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ DJ сборникЖанр: Deep House, Indie DanceПродолжительнос
 ```bash
 magnet:?xt=urn:btih:DC0DB7ADD3003C82D40C84180DAD62FDC3DF0F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ VA - Magic Fire: Trance Progressive (2016) [MP3|320 Kbps] <Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:164D5BCFD6E3A6C4C57E09AEA9A15AD101584586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Eternal Breath - The Joker (2016) [MP3|320 Kbps] <Thrash Metal, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:9454DAC5B79AFD545F65E408D1DB538DAAD43C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4F7D27BB2F7FC64627073C60CD33C90B8E86D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ VA - Who's Afraid Of 138?! Top 15 2016-07 (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7A019BE4565B032A00B90BD49CBD309D41BA2D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8E192793D7AF09263E72A009F5646B9D62812FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ VA - Ibiza Goes Deeper: A Unique Selection Of Deep House Tunes (2016) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:910E51EF39EF71CE04BA1756E38EA3A0E6B3548F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ Frozen Infinity - Phoenix (2016) [MP3|320 Kbps] <MDM>
 ```bash
 magnet:?xt=urn:btih:898BBFFAFB96A919FBEC6ACE4423A9D42DAB6FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ VA - Dezza Pres. Best of Progressive House, Vol. 07 (2016) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:0E08BB2904EEF7A0BF6BD0D4163A7BDCC42AD0BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Kevin Max - Broken Temples (2015) Deluxe Edition [MP3|320 Kbps] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:065C9C275B11EB29B9C571629220174A7C131EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85C0553796CD9D8BF372AB16DA94A68F95AE7920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ Shastro - Bandole! (1994) [FLAC|Lossless|tracks] <New Age, Ambient, World>
 ```bash
 magnet:?xt=urn:btih:3D2AE16F223494509FF51E029F5A7F2A5B7E45F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ Orianthi - Fire (2011) EP [MP3|320 Kbps] <Alt. Rock, Pop Rock, Guitar>
 ```bash
 magnet:?xt=urn:btih:0E978B0364F891C257C54D4AE360B4A465E8C2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Kevin Max - Playing Games With the Shadow (2016) [MP3|320 Kbps] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:F6B2CE4B7D2EDF5A807DD92BEC27E689A29FC8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ Andre Gagnon - Comme Dans Un Film (1986) [MP3|320 Kbps] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:1FC9BF0955A9FD32D73C3545A25752C8AF732FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ Sarah Jarosz - Undercurrent (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 ```bash
 magnet:?xt=urn:btih:71106FD150C0F682352AE98D5B5EBD01BE1DE00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BE742489A1102F636451DA916ABF6B9E6004A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ VA - Sensation Angels and Demons (2016) [MP3|320 Kbps] <House, Electro-House, Pr
 ```bash
 magnet:?xt=urn:btih:37B851C31B9BCF55E97EC8A9C29CE4B94A238DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

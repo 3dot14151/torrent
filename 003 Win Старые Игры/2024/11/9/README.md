@@ -19,8 +19,7 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:9FB68820365CAD2FEE1AF166D5939D3D0DDA6763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pariah / Изгой (2005) [Ru/En] (1.03) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:3D54975929A3ABB51BB0FBD86A1C74780E4DF447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

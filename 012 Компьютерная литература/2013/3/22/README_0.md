@@ -19,8 +19,7 @@ Rob Sheppard | Photoshop Elements 11 Top 100 Simplified Tips and Tricks / 100 п
 ```bash
 magnet:?xt=urn:btih:9D129FD15FB9C33527BAD6CA796323ECD1B85BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mike Wooldridge, Brianna Stuart | Teach Yourself Visually Photoshop Elements 11 
 ```bash
 magnet:?xt=urn:btih:8504FB7F2B63A706432C91091876BD50CCC07FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Barbara Obermeier, Ted Padova | Photoshop Elements 11 All-in-One for Dummies / P
 ```bash
 magnet:?xt=urn:btih:60505D9279875B758F1687883F285CA655D48188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Peter Smith | Professional Website Performance: Optimizing the Front End and the
 ```bash
 magnet:?xt=urn:btih:AB846B4B5A44714DE2AF9D5D0E17FD8F105752E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74BE52EC76A2347E6B489AD7AB29EDE553AA4756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84A89C2CB5DA39A229E8C0EA1D18F662FB7BB833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

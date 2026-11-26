@@ -19,8 +19,7 @@ Prey - Mooncrash (2018) [Ru/En] (1.10) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:20056F28920FFACBEF96DE3864E5583939808598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

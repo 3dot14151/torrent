@@ -19,8 +19,7 @@ Cилы Хаоса начинают захватывать планеты раз
 ```bash
 magnet:?xt=urn:btih:329CB746FAD993FE899AC66FF2E330B43202AFF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ VA - Extreme Noise Terror vol.2 - Scumgrinder (2010) [MP3|~199 kbps] <Psytrance>
 ```bash
 magnet:?xt=urn:btih:330E8D399725862F14360DEC4CE189835209C90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Diane Arkenstone - Aquaria (2001) [APE|Lossless]<New Age, Ambient, Ethereal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A91B498F48F61D8DB2313E11555587C96162D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ VA - Lovely Mood Lounge (2010) [MP3|320 kbps]<Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:5FD8E597F2C73C16FA6251AA0851072821A4577C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C406690B4B6842D1EE27B95FDE76A5635837B5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ LoveTension - Vocal Trance Heaven Episode 44 (08.12.2010) [MP3|256 kbps]<Vocal T
 ```bash
 magnet:?xt=urn:btih:F807FDAEBF53FEB42D8140BABD11C04D51F47199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ DJ Melo - Vocal de luxe Edition 30 (06.12.2010) [MP3|192 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:DE0B9F92F23FEBE251E2F7C4316FAAE7C95F70FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Shah Digital Rec Pres: Euphoric Trance Essentials Vol 1 (Mixed By Pedro Del
 ```bash
 magnet:?xt=urn:btih:B2E9CF2D4A12E36004B5DCC0478446748634B57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Rumble Pack - Breaking The Silence (2010) [MP3|~203 kbps]<Psytrance>
 ```bash
 magnet:?xt=urn:btih:B6B2FDD3822DBB44A84BD8DD498979688AC944F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB63725585CB5D0B313C602A9A6C306F669FE393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ VA - Мега хиты от Europa Plus 50/50 (2010) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:A4312327D7F1EAC7250898627370F29AB97F7D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3379FF23A319851C4733928DEBCC2B4D1C63077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ VA - Жажда Скорости  Новогоднее Autoparty (2010) [MP3|128
 ```bash
 magnet:?xt=urn:btih:BC72141A6D79B41CC7A63D268D12AB26F1CD0C59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D06251C28D8CBDFFD3E03FCC79D472F0A3EAE497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6372C24877FDF8E07B56184CB7EDF4FA97D6C9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ VA - Vocal Trance Collection Volume 46 (2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:618E8E9516A8BE13FAC93D1C15C80008705D8C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB5D12A2D545CB5554679A1F2000B54132626721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:564F2A526C35ECDBC457B1A5148FEA3C4436EBD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Usonic - Evolution (2010) [FLAC|Lossless]<Jazz, World Fusion, Contemporary Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:414E59770CD904A4204A06FE89EF33BE0A605BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ VA - New Year's RnB Revolution (2010) [MP3|192-320 kbps]<RnB>
 ```bash
 magnet:?xt=urn:btih:CED6563D4AEC0DC94C25BA210E0C3A658646EFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ COBRA - 2 album's (1996-2000) [FLAC|Lossless]<C rock,blues rock,girls band>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ Braincell - Intelligent Beings (2010) [MP3|~207 kbps] <Psytrance>
 ```bash
 magnet:?xt=urn:btih:B23575E7E3290B168B3C18957E215C83AFB8616C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ EGO – стильный журнал для мужчин, в фокусе ко�
 ```bash
 magnet:?xt=urn:btih:83AD0658B5766BF3713F85E82F635F14C4A3BCE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

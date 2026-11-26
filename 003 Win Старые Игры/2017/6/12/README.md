@@ -19,8 +19,7 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D9D4A9AC7DFA31090F5D7460B40B4CCC5A1AE264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Last Blade (1997) [Ru/Multi] (1.0.12541) License GOG
 ```bash
 magnet:?xt=urn:btih:5E31C4033ADDD809E2D4D37310199EAAB531574C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

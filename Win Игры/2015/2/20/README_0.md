@@ -19,8 +19,7 @@ Dark Tales 7: Edgar Allan Poe's The Mystery of Maria Roget (2015) [En] Unofficia
 ```bash
 magnet:?xt=urn:btih:3189730CEA0475ACF553B97CB94ED1C5578FF2BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Frozen Cortex – тактическая игра, совмещающая в с�
 ```bash
 magnet:?xt=urn:btih:F5A4C8C3857ABD7EFE5838987C061ECF054C615F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Agarest: Generations of War 2 (2015) [En] (1.0/dlc) Unofficial Fairlight
 ```bash
 magnet:?xt=urn:btih:CCC1817BB40E1BDC01F80D47E0B39D4FC1F1B55F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ European Ship Simulator — это игра в жанре симулятора, 
 ```bash
 magnet:?xt=urn:btih:B9CBE2F13C48FEED51158303FF5CE822910F3FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

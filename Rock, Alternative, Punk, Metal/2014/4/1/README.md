@@ -26,8 +26,7 @@ Dying For Fun - Bullets In My Head (2014) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F2EB2479C79E2590A60B333152CF40526F80ED67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Nina Persson - Animal Heart (2014) [FLAC|Lossless]<Alternative Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:30313C820A18036329FB618CB8AB243897009948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Savage Garden - 3 Альбома (1997-2005) [MP3|320 кб/с]<Soft Rock, Pop Ro
 ```bash
 magnet:?xt=urn:btih:1D5F171455A6F25061CBE9F0FC62031CA1E937BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ The Baseballs - Game Day (Deluxe Edition) (2014) [MP3|320 кб/с]<Rock'n'Roll/R
 ```bash
 magnet:?xt=urn:btih:A06D05738403994C9A656629223F2FC15DBC9DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ VA - A Tribute To Creedence Clearwater Revival (1996) [FLAC|Lossless]<Rock, Coun
 ```bash
 magnet:?xt=urn:btih:258CC11823EC6E4FAD0AE1292FF625F2AAC5FAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:5A2474B018DAF54D36299A4265A12EA3F7128D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

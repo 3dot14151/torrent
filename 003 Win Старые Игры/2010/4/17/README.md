@@ -19,8 +19,7 @@ Tom Clancy's Ghost Recon: Operation Polar Star / Спецотряд Призра
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

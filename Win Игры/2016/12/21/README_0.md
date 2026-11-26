@@ -19,8 +19,7 @@ OmniBus (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A8905952B3F890CD6EF417447EE308F93EB6760C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kingdom Rush: Frontiers, новая глава в серии милых и не�
 ```bash
 magnet:?xt=urn:btih:1EB28764339D1F383A2BC4BBCD9A2053C5190D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Assetto Corsa – новый гоночный симулятор компани�
 ```bash
 magnet:?xt=urn:btih:83301F0D5556916661F15875F2DD8DD4933B67D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

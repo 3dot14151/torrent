@@ -19,8 +19,7 @@ WWE 2K25 представляет вам непревзойденный сост
 ```bash
 magnet:?xt=urn:btih:91B2533B39232F16A93F24E013CB9EE2B4BC18A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Serious Sam 3: BFE — это великолепное возвращение в
 ```bash
 magnet:?xt=urn:btih:8DB1B80A8435C323A15C0C19B6DFF2EC4DBBDFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Banquet for Fools (2024) [En] (3.02) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:1F35D13489E2AA52AAB8BE03FEA695026400CBD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 ```bash
 magnet:?xt=urn:btih:A181E08EF7EC052DAA40188126B528364DBF9919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Capcom Fighting Collection 2 (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FD529A83D9E4FF624EE46BB1C7DE6527C4D05A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Teardown – симулятор проведения ограбления в р�
 ```bash
 magnet:?xt=urn:btih:165DBC4A960FD6C5F398FACFC3F9B4760CED614A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Monster Train 2 (2025) [Ru/Multi] (Build #11691) Repack FitGirl [Supporter Pack]
 ```bash
 magnet:?xt=urn:btih:6982F983FB5E5C4C022D3A35E9D7D0A80EEE17A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (Mod HotFix) Scene Rune
 ```bash
 magnet:?xt=urn:btih:04BF66758660DE4E7F28E5A6234E9FE36628ABDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Dustborn - дорожное приключение, вдохновленное �
 ```bash
 magnet:?xt=urn:btih:261381B904000F00D1DBBFAB77B95E74BE0403C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

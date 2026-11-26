@@ -21,8 +21,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.826.26 Lite RePack by KpoJ
 ```bash
 magnet:?xt=urn:btih:B587F5C066D797220F7793197D1DB4DB7AE1C32C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

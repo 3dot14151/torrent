@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:07E3EE713A242BBE6FF1F0192D5F0D2D92760166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C851A500062A41697F03CE999DE881E76017E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA4CEA697A050CE3CA27BCF877D2B459F72E95F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E83D00A1C319025CB77C2B0C2085E6CF26405D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42A1486A7D0DC0370EB8A1957D6DD1591C95E04B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Windows 10 Enterprise LTSC 1809 (Build 17763.1098) x86/x64 by Sergei Strelec [Ru
 ```bash
 magnet:?xt=urn:btih:D4BEACC738D06D8806D1FDDACA8619E9CF84A30C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:A00535363FDE5FE2190B01A116275F114388A074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02AA09132D620C378EB474A46B94E1E6D68E6310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:8C3237CC5D9CDF08F4A0D2F33F81A877C51783D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Vaya Con Dios
 ```bash
 magnet:?xt=urn:btih:30CDD579DC759EE9F3BE9666A4F986D80D9468A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Rikei ga Koi ni Ochita no de Shoumei Shite Mita. | Science Fell in Love, So I Tr
 ```bash
 magnet:?xt=urn:btih:79F2A4F7C73EFDD809CF176D70832186E52D459C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C78C35F33D00CE73382092D37DA98809ADCFB8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCC4B8B3674CC198AC0F8B8B49829618DF16AB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ VA - B машину ремиксы Vol. 3 (2020) [MP3|320 Kbps] <House, Pop, Dan
 ```bash
 magnet:?xt=urn:btih:EB4C5CE0D73D460C131A83DDC8A152C5EFBB863F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ Windows 7 SP1 with Update [7601.24550] AIO 11in2 (x86-x64) by adguard (v20.03.11
 ```bash
 magnet:?xt=urn:btih:F951A59D865C935A27A1EB395E4E00722CB3E70A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6DE819FDD9EE1943D7C36B5981CAE9418E42762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ Part 1 (Discoteka):
 ```bash
 magnet:?xt=urn:btih:D436B08730B6BC4F4E1FA7A6069895219DF9103B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ Speedcam Downloader - очень полезная программа котор�
 ```bash
 magnet:?xt=urn:btih:656BF62CC2659FC44D3C8165D1F22895EDACC9C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACDD845477B2858ED846EF816815CB2B3B788CBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ Baka to Test to Shoukanjuu | Дурни, Тесты, Аватары [ТВ-1][201
 ```bash
 magnet:?xt=urn:btih:E6D988A85E189E0E5B5A8F90678265B6C46FAAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ Baka to Test to Shoukanjuu Ni! | Дурни, Тесты, Аватары [ТВ-2]
 ```bash
 magnet:?xt=urn:btih:756B541E372747205D497524B01E4E1713DF7357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ Batman Ninja | Бэтмен Ниндзя [2018, Movie] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:022497525A7FAAE7B9F75BFD20AF49188C6F047B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:312EECEFC175DD47AA5CFD7D012E4D8CD579BCEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +631,7 @@ Promare | Промар [2019, Movie] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:D865872E17CE36B769F69E182C6DA5105010DA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +656,7 @@ VA - ABC...Euro - Italo - Disco (378 CD) (2006-2015) [MP3|192-320 kbps]<Euro-Ita
 ```bash
 magnet:?xt=urn:btih:4565A96576440A14405F017DAAB7EA6A1C015DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

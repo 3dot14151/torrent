@@ -19,8 +19,7 @@ City Legends 3: Ghost of Misty Hill / Городские легенды 3: Пр�
 ```bash
 magnet:?xt=urn:btih:8921EDCC2DCAA6C66E3609537F0F72301BDAD080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.0) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:B39F44FEEC149486D5F8AD9103678E7A6A27F925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Daymare: 1994 Sandcastle - это сюжетный хоррор от треть�
 ```bash
 magnet:?xt=urn:btih:CDFAD05D63D7B5DAD730FF90E3D367D31D4F6BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ It’s a Wrap! - бросающий вызов 2D-платформер с эле
 ```bash
 magnet:?xt=urn:btih:26040EA86675F5488A521E3DDB730FBE1074F72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

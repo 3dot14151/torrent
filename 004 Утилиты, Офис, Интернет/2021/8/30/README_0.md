@@ -19,8 +19,7 @@ Windows 11 Compatibility Checker – портативная программа �
 ```bash
 magnet:?xt=urn:btih:1342BC258B707F4977C8D19358D66E1DEEF691C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Magnum - The Eleventh Hour! (1983) Japanese Edition, Reissue, Remastered, 2023, 
 ```bash
 magnet:?xt=urn:btih:E4EC354740953B11582185E95E236F726DABA43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kaos Vortex - Seeds of Decay (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:5E892FA657A57638E159EC9EBC44B90E3E1A9E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kairi - My Light, My Flesh (2011) [FLAC|Lossless|image + .cue] <Funeral Doom Met
 ```bash
 magnet:?xt=urn:btih:9DE45F4C284CA7F1BA00A2E65597E7BFABC03F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

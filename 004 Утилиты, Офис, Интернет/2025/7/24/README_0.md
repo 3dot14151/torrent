@@ -19,8 +19,7 @@ FolderView позволяет сохранить или распечатать �
 ```bash
 magnet:?xt=urn:btih:8298429293C65305363EDD9D3AC25F600C1CD2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 ```bash
 magnet:?xt=urn:btih:63BEA9774E0A1E9D99063F331770AB9492DAEC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Edge of Reality 5: Great Deeds (2019) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:1C69A7BB0D564907BF7DA3099C1B96FB7013171D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (5.5.6) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:F591BA276FB9989D4289898178E44BA2E04EDD71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grimshade — это история компании героев, волею с
 ```bash
 magnet:?xt=urn:btih:BFCF8795814C76B0C66DBEB51891DB461AC4D061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dance of Death: Du Lac & Fey - это приключенческая истор�
 ```bash
 magnet:?xt=urn:btih:969821AA261B991743A937A336F043C4909A7AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Phoenix Wright: Ace Attorney Trilogy (2019) [En/Jp] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:2134FF807504386237EAA9EE110687E25A736FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (5.5.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DCD4787F59D2F4F1AB4FE21E134B257C0F6F15FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

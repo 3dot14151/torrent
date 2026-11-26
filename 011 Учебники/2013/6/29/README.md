@@ -21,8 +21,7 @@ E. Frendo, S. Mahoney | English for Accounting +Audio [2007] [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:3C4B97E36AF94FC57B22E0B1CCF23D3F6007C0EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

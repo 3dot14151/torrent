@@ -22,8 +22,7 @@ Ost+Front - Adrenalin (2018) Deluxe Edition [MP3|320 Kbps] <Industrial Metal, ND
 ```bash
 magnet:?xt=urn:btih:821896E368FC2EB9824AA20CBE2FC98F8E06FA50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Umbra Et Imago - 13 Альбомов (1992-2017) [MP3|320 Kbps] <Gothic Metal, I
 ```bash
 magnet:?xt=urn:btih:01557878C737716431B20A0682B20433441BBB40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sweet (до 1974 года The Sweet) - британская рок-группа,
 ```bash
 magnet:?xt=urn:btih:922D98FE23BC15FD33A018506C1CFE65B8822D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pink Floyd - Animals (1977) Unofficial Release, Reissue, 1986, Harvest [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:21DA1DBBDFF60FB8D5C1B705531D1CD0C628E1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

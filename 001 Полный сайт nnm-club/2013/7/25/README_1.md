@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ HiKi. Калории и тренировки - это удобная систе�
 ```bash
 magnet:?xt=urn:btih:93F3D6F3291C3C3A5DB92715B9E1C45984832B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Funker Vogt - Companion In Crime (2CD) (2013) [MP3|~245 кб/с (V0)]<EBM, Indus
 ```bash
 magnet:?xt=urn:btih:358C4DC77E196B7F0E5090A09EE5926175B0447F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E7CECBCCB9150D0EB586B19502C921E094BF62F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Jan Akkerman / live In Concert The Hague 2007 (2008) DVD5
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ VA - Летний плейлист - 25 (2013) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:71774503B4C6115A9FAEF2A96A0A881158BF8AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Nat Geo Wild: Аляска: Война за рыбу. Серия №3 / Alaska: 
 ```bash
 magnet:?xt=urn:btih:5408E6E9B3C0EE137FEE208C43F581F151D8C25B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:032F176C081A48D10CBCA511EDC17B8C2426FA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Madonna - GHV2 (2001) [APE|Lossless]<Pop, electronica, dance>
 ```bash
 magnet:?xt=urn:btih:294D39458A30991AD1A9A2347FE84D6B436E0ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B243E754F4F031ADD9F8610BC91D8E68370F82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Discovery: Америка с высоты: Невада / Aerial America: Nevada
 ```bash
 magnet:?xt=urn:btih:05DE9B70CA76B857F72A37ED5353126E2DC6657F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ R.I.O. - Ready or Not (2013) [MP3|320 кб/с]<House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:2701BE955FD7162A3C3BBD9ACF5BF2001835449E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:263F40B428B0C56B8EE5D28518659198DA669784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ VA - Drum & Bass Summer Slammers 2013 (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:7C87061E6B3F319200ADAE3073ED971AFDED86D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Windows Hotfix Downloader - небольшая бесплатная утилит
 ```bash
 magnet:?xt=urn:btih:100242B78E7B46086371C50CFE19528162CFE6A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:958B76496B43ACE50D14EA090DF546534BFB07A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Discovery: Америка с высоты: Луизиана / Aerial America: Lo
 ```bash
 magnet:?xt=urn:btih:9988ED55AE16CDC5ABF820D8E5FCE95B64CC4F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ VA - Beatport Top 100 Downloads: July (2013) [MP3|320 кб/с]<House, Tech House
 ```bash
 magnet:?xt=urn:btih:E4EE10E6263C8BC7A214A38AF90E22027F12AD1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ VA - Звездный сборник радио Шансон - 2 (2013) [MP3|256
 ```bash
 magnet:?xt=urn:btih:8088E61F5EB9F0318780F0965B62C8853FFCBC67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (HD)Жанр: 
 ```bash
 magnet:?xt=urn:btih:0AAFAF352FB7AC80F5C204F0BD52AAE305377F29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +583,7 @@ Evernote - программа, с помощью которой можно бы�
 ```bash
 magnet:?xt=urn:btih:93635EA889E34CB10575871650994F8652FD992D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ WebCamMax - продвинутая утилита для работы с веб-
 ```bash
 magnet:?xt=urn:btih:BBA4F67D228C873CB4ABF108E37F0F730173ECFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C7E9BBD42478D31F006FCC28DCD862C4D925EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ Blockhead - Interludes After Midnight (2012) [ALAC|Lossless]<Instrumental hip ho
 ```bash
 magnet:?xt=urn:btih:F7AFEACAC9C89DCDFA30861A57FF7066624C0014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A00C1D3F0087C06EF8080AEFA879360984A397BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0B421B48D5FD499553FE8BAAB1E23ED7D6F4339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

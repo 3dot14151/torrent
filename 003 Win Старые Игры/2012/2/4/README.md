@@ -19,8 +19,7 @@ B.A.T. Антология [En] (RePack) 1990-1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:CB82DCD0C9F5FD2E0EF8100D6F9ABF8CFEC49398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gunship: Apocalypse [Ru] (P) 2006
 ```bash
 magnet:?xt=urn:btih:F45AC475AD1F819A62E7B8488A9075560525C451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clash / Схватка [Ru] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:259D29FAA27491359F5FEED5A78AFF6F33CC8481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

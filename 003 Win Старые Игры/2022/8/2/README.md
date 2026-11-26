@@ -19,8 +19,7 @@ Soldier of Fortune II. Double Helix - продолжение знаменито�
 ```bash
 magnet:?xt=urn:btih:3E2E4D7E90E30FB098DABAB17E845C374C36F5D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

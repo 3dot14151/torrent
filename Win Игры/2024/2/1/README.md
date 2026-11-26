@@ -19,8 +19,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.26/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:70EDC5F16A79206E322CA74E7E5D236FB98505EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death Stranding (2022) [Ru/Multi] (1.004/dlc) Repack dixen18 [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:3F060E1E7B0884BF7D8B1AA60258294BDBE8019F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

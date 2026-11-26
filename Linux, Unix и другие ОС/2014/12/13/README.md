@@ -21,8 +21,7 @@ Fedora Workstation - нацелен на создание надёжного, д
 ```bash
 magnet:?xt=urn:btih:DCDF8E87B09D8DC125B38A7D42A98768C82F820A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Fedora Live - нацелен на создание надёжного, друж�
 ```bash
 magnet:?xt=urn:btih:BBD25A61B123094B896DCA8C61AECEBF4A65E158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:8683C4E194A042DCDBF3AC2113353F73B99EA762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Fedora Live - нацелен на создание надёжного, друж�
 ```bash
 magnet:?xt=urn:btih:7F1D0B8901BAC6693DF77CDB8E122017DE4E0AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Game of Sisyphus - инди-игра из разряда тех, что ис
 ```bash
 magnet:?xt=urn:btih:A495D1258E91868CDCDA841D6984A44922C4935C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lunar Lander Beyond - насыщенный событиями космическ
 ```bash
 magnet:?xt=urn:btih:405EFE8A9D5FB4F86A8200314C4EB1AB74C7FF88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crossroads 4: Fatal Truths / Перекрёсток 4: Роковые истин
 ```bash
 magnet:?xt=urn:btih:4ED0DA44B1F3818DD2CAE52407005392902271A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark City 9: Amsterdam / Мрачный город 9: Амстердам (2024) 
 ```bash
 magnet:?xt=urn:btih:9EAA0DC1C3F5009B7D08D2CA3F463E001EBD8A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Anomaly Korea – дополнительная кампания к Anomaly Warzo
 ```bash
 magnet:?xt=urn:btih:A375A5B424B1F545746C1FD87477853700BA00E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

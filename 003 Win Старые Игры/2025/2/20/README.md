@@ -19,8 +19,7 @@ Bully (2008) [Ru] (1.2) Repack EXROW [Scholarship Edition]
 ```bash
 magnet:?xt=urn:btih:6372D86D5C829DF8A5B8A0D23D1E1DECF1D50EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

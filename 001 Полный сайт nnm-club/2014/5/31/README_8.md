@@ -28,8 +28,7 @@ Al Basile - Soul Blue 7 (2009) [APE|Lossless]<Modern Electric Blues>
 ```bash
 magnet:?xt=urn:btih:6DE66BB244008B57551ACFE86427FB9E980DD546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Tal Farlow - Modern Jazz Archive (2004) 2CD [FLAC|Lossless]<Mainstream Jazz, Gui
 ```bash
 magnet:?xt=urn:btih:B524827781246D1B766B9D46A887674F6DD84300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Albert Castiglia - Keep On Keepin On (2010) [APE|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:6AFD10114B228E7EE06EF3C9C5CC153E342A6F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9060803D0BADEAC464A83812067CDE74C0CE0CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Kaya Project - Firedance EP (2014) [FLAC|Lossless|WEB-DL]<Psychill, Psydub>
 ```bash
 magnet:?xt=urn:btih:D5FBBF80361BF47D152C9CE263BE0A8F55F200B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Falkenstein - Die grosse Gottin (2011) [MP3|128-320 кб/с]<Neofolk, Folk-rock>
 ```bash
 magnet:?xt=urn:btih:C9FE65B982A381A2490E8AD47F3625C1AD8D8A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Steve Scondo Band - The Basement Shuffle (2009) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:CC0B4E46BB26C13C9111478314C2259B036AC1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55C488D2398C3D6BF66AFC3EB4D693207AC737E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ Anoushka Shankar - Anourag (2000) [FLAC|Lossless]<Indian Classical, Sitar>
 ```bash
 magnet:?xt=urn:btih:B535AB0AB26023B80BE22AF34200D4985772A96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:018C41A3B532CBFCD8CE3B01A12B0B5C6A0558E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ Anoushka Shankar - Live In Cornegie Hall (2001) [FLAC|Lossless]<Indian Classical
 ```bash
 magnet:?xt=urn:btih:A870AFF9126192E2D6DBEB6B1C7CFC38425A9F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ Anoushka Shankar - Anoushka (1998) [FLAC|Lossless]<Indian Classical, Sitar>
 ```bash
 magnet:?xt=urn:btih:6DF8F406F456AA12FA634A34A1E0E79A955AA41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ VA - Psychotria Chill Selection (2014) [FLAC|Lossless|WEB-DL]<Psychill, Downtemp
 ```bash
 magnet:?xt=urn:btih:FA5E03FF6523656162A6E306BC89269A4109EA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9CA0119CDEF3279A01A84ECAD1404945DC792AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ Brandon Lane - That Kind Of Love (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:67D29987613ADD20A74D08A85D562607F279F841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ VA - Alps Spa - Pure Relaxation (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:F1DEC77115EE5C48D47ACDD365CC1729AE9C3D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ VA - Клубная Мода Vol.2 (2014) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:B31B88233704779DA5596A29432499E18D02708B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ Anoushka Shankar & Karsh Kale - Breathing Under Water (2007) [APE|Lossless]<Inst
 ```bash
 magnet:?xt=urn:btih:E12AA3F4075AE8C0F44D05BE8FB1E9B054FB0FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC9BD16B6B254BEBDBAFAEF4446657B766EF3FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ TextExpander – боец невидимого фронта …. Функция 
 ```bash
 magnet:?xt=urn:btih:819927B740D19E09EF895BEDD478002AA060B948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E15395A6424F4178E38CA21DEF7184ADD7B36B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3DF6C7EFDF80A7BAA937723D81F193D64B2B5B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A50ED7827B31A2AC56A234A2D2BB8AC5C9DA457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ VA - Dj Compressor - Energy Mix 14-04 (2014) [MP3|320 кб/с]<House, Club, Danc
 ```bash
 magnet:?xt=urn:btih:35804C30186DF72AD45C9C61DD10820505FD2B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ Erja Lyytinen - The Sky Is Crying (2014) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:FE4AE956230F46E370D9D161970F0E5C0DE94888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

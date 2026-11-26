@@ -19,8 +19,7 @@ Ms. Holmes 5: The Milverton Plot (2023) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:8AE8AD1D38133EB8AEDEFF8D1E29A8A8BD51BEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Skinwalker Hunt — это симулятор охоты, смешанный с 
 ```bash
 magnet:?xt=urn:btih:8B60A0E514BE039F3467FE7D27E1533F5A7EBBE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ THE MULLER-POWELL PRINCIPLE погружает в межпространстве
 ```bash
 magnet:?xt=urn:btih:0CB77E3E1C2491167289AB8DC9032B8FF41FD87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

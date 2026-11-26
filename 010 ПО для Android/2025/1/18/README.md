@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:42A050DA42ABC22DFC46925E389E5D1E34666B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:E884FD2F58577E6367FACC2F892D4B15319C82DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F7264289A9E3104E29A69D71EEABC9D7C45C375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ English LinDuo HD v5.33.1 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D605D18A18FD378BF4AAE3800B701FAEE2C8A3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

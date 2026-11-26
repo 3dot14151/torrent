@@ -22,8 +22,7 @@ One Desire - Midnight Empire (2020) [MP3|320 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7D9D81F8643763CDC4B2DFDD205A4565939EA769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Die Kreatur - Panoptikum (2020) [MP3|320 kbps] <Gothic Metal, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:DAB23A1B4E8D26C6BE5149477F5A477F3E47A762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Queen - 15 Studio Albums, 8 Live Albums, 18 Compilation, 66 Singles, 2 Collabora
 ```bash
 magnet:?xt=urn:btih:A9CBA13B39D342F0F74413D5069230F350C5F269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

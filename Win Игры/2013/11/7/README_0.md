@@ -19,8 +19,7 @@ Myths of the World 2: Stolen Spring Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:6F7B4E0493AAE3FBD02810B0CB5CCC153CF2CA0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Civilization (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:7EA2F0C0CCFEFEBCA6F07A38B25502EB5176C908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Final Cut 2: Encore Collector's Edition / Последний дубль 2: На 
 ```bash
 magnet:?xt=urn:btih:2EA5B5B133194ADDBEB0ECC0D05176DA2F218DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

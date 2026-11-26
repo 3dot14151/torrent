@@ -19,8 +19,7 @@ Emperor of the Fading Suns / Император Угасающих Звёзд (1
 ```bash
 magnet:?xt=urn:btih:4D6950EA464DE78930A55F1B349EB89D6D8BDB5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

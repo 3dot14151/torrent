@@ -21,8 +21,7 @@ Valiant Hearts: The Great War (2014) [Ru/Multi] (1.1.150818) SteamRip R.G. Иг�
 ```bash
 magnet:?xt=urn:btih:F70248DA04B1BB789294099C3F1CC9682E776330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Dead Rising 2 (2011) (1.0 Upd2) [Ru/En] Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:FC9D2EC89CA396509E6CAA5A8B79F66ECEB72517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Bound By Flame (2014) [Ru/Multi] (1.0 upd2) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:09C02F981CB8CA5C2A916559791B8652DA92FBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

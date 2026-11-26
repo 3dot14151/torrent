@@ -22,8 +22,7 @@ Supported formats: MOU, RAR, ZIP, 7Z, CAB, ARJ, ISO, GZ, BZ2, TAR, WIM, ISO, BIN
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

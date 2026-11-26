@@ -19,8 +19,7 @@ AntispamSniper — это плагин к The Bat! и Voyager, обеспечи�
 ```bash
 magnet:?xt=urn:btih:F31DF7FAE7A4B3FC3CD12ED71AACDC3A7F114A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Eloy - группа, основанная Frank Bornemann'ом в конце 60-
 ```bash
 magnet:?xt=urn:btih:AC550397F06FC758A2D24FE628560CD2B699FF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Myst
 ```bash
 magnet:?xt=urn:btih:E7D490D74DF3CEFFF6F6B50C726B202D488EA81C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ CUBE — это отмеченный наградами творческий в�
 ```bash
 magnet:?xt=urn:btih:8F4871F0A9037EABA2B5A44B73E6CB863BD0BCA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Fontexpert - полнофункциональная программа для п
 ```bash
 magnet:?xt=urn:btih:F2BC1AD352651B5F7323E5FB2FB8376B2A022ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9701CBCE85E925984BBCE3164198B383485C3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ VA - Musical kaleidoscope part 17 Electronic, Instrumental, Easy listening (2024
 ```bash
 magnet:?xt=urn:btih:FFD68077A1B3D604140B356AADE45DB3F66C0375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Gomorrah v1.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:9DDB93201ED0B95AE5132A013EB8A9B84F9F441B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0BD8F7011EB74D8441B4EE9C969CF7D76B4A3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8837590F42A9705C39888956F8150569FCF0F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ LANDR - Mastering Plugin Pro 1.1.22 VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:F7D850E0A6025F642464D9181CB2DF893D4E7AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ Endling *Extinction is Forever 1.3.2 [En]
 ```bash
 magnet:?xt=urn:btih:97CAA9AFE58816CCDF1F7C337AA6D79C0FF2FCE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:48DD6E87F78F0C17ABFE781CC54EFD2E208DDB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECB55359DA40AF3B4F90E02BF5F69097340449AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7743D7FBB0DCCBCA6EC7A757E70CD84DA4C3453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 ```bash
 magnet:?xt=urn:btih:D817207CA94DB07E258D149A18BB39B6B01DCC9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E450EAF1EDAE94C4470BD898DD983C406E572C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ Laser Tanks (2024) [Ru/Multi] (Build 16740402) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0BF69CAFB043B7D80CC9B6FE521DF668FF02F21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82838DAC86053725119E42E561948C2CA726E7C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ VA - Compilation part 134 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:F83EABBE8D0D924D1A034980FFEE61B6AD50EBB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20D7A83612A7C8D016A557ED94CCBE1F8650F572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Myst
 ```bash
 magnet:?xt=urn:btih:382CDD720B4401734B1A94F3E4582BC764AB39DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ CARRION — хоррор, в котором вам предстоит оказа
 ```bash
 magnet:?xt=urn:btih:835B107DA44A61D7D5C87700F3AA62B7112B6BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

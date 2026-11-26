@@ -30,8 +30,7 @@ Fancy также известен, как автор песен для друг�
 ```bash
 magnet:?xt=urn:btih:F6123DE3465F49FC8EF3DE0458EF4EB6A1FA7988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

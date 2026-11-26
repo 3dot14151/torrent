@@ -19,8 +19,7 @@ Essential Anatomy 3 — бестселлер среди 3D справочник�
 ```bash
 magnet:?xt=urn:btih:2C542EF7D2677D7878B290AF12A0CEB5499D8835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

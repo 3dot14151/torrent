@@ -19,8 +19,7 @@ MiSide (2024) [Ru/Multi] (0.9) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A4064848D01C3CE6638F2E32E6B6D02458C419F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:902641821B8EFC506B5CF6AC280BE2775EEA3DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ On Your Tail (2024) [Multi] (1.0.1) Repack FitGirl [Deluxe Bundle]
 ```bash
 magnet:?xt=urn:btih:8D80D7D5E37DCA52495914FB2E5EC6507BCD3B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cowboy 3030 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1A5797427295D9DE74DBF11DDD73CAE0DC6AA69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Finding Frankie (2024) [Ru/Multi] (Build 16260850) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2D18EF68A1232918D91ED5A2934BD575FBE95B92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.2.20240313) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7FF8CA957313E63CB1BD3B19823C000EB0607FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.1a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F2CEF6A7658BB98FC412CC88E8973709BC46C0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:63365E29949DE87E77413D96CB399E9889870FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

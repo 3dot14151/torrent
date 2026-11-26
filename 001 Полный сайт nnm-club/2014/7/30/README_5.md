@@ -19,8 +19,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0.0.1) Repack R.G. Catalyst [Episode 1-5]
 ```bash
 magnet:?xt=urn:btih:4B517FED24667DC20230CFD2D1AF58491DAE1ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sen to Chihiro no Kamikakushi | Spirited Away | Унесённые призра�
 ```bash
 magnet:?xt=urn:btih:3E2DA3350450562853651D92EAFD041299D161FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9754B042C697F640BE18FD669A9AB6325BF65BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Dragon Age: Origins & Awakening (2009-2010) [Ru/En] (1.05/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:2A1A949D7CB9E988931E9943124C8BFCAB20B539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

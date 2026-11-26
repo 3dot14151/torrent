@@ -19,8 +19,7 @@ Windows EducationPack - это специализированное дополн
 ```bash
 magnet:?xt=urn:btih:7CE0E005435C160CFA4BBD1DC4B7F326474FB801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

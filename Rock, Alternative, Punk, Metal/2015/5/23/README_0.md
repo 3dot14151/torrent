@@ -22,8 +22,7 @@ Agony Voices - Mankinds Glory (2015) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:3BCC65BFFE60B982C18F787BF8958207509CDB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eternal Silence - Chasing Chimera (2015) [MP3|320 кб/с]<Gothic Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:DC81F202E20EBE59A2B62834AFB10843C77FDAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Banditos - Banditos (2015) [MP3|320 кб/с]<Rock, Country>
 ```bash
 magnet:?xt=urn:btih:243C5EBC8EA13195894881C0F865454D37E5E5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kamchatka - Long Road Made Of Gold (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:51D2733C420AA551D2344B90425780FC2BF0937B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Guardians of Time - Rage and Fire (2015) [MP3|320 кб/с]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:730BA7A53B240012FCBE5233602776E4B29CDEB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sniff 'n' the Tears - Downstream (2011) [MP3|320 кб/с]<Classic Soft Rock>
 ```bash
 magnet:?xt=urn:btih:741C20C39612538536A2721337F316D3CB4BFAFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Crystal Ball - Liferider (2015) Limited Edition [MP3|320 кб/с]<Melodic Power 
 ```bash
 magnet:?xt=urn:btih:0EB97C8503BE230ADC30F65723B32A61ADDB6203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Bonfire - Glorious (2015) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:304ECDB97F7B04B022BC82B0A39227DE7745C1B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Mark Knopfler - The Princess Bride (1987) Japan SHM-CD /2012,Remastered/[WavPack
 ```bash
 magnet:?xt=urn:btih:CFA24F9C7AE67F5AFC3D39949A651E6DC2D92EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ CD 1: Архимед
 ```bash
 magnet:?xt=urn:btih:420EAF4A43853C045D7DA51E756626C85C63EEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Dire Straits - Communique (1979) Remastered /1996, Mercury/[FLAC|Lossless]<Class
 ```bash
 magnet:?xt=urn:btih:0921A5EFB0911096C0C05F3F2D3BB24084FC6F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Pink Floyd - Anthology I (1999) A Collection of Rare Tracks 1965-1983 [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:401F9361D698AB9105ED02A689C06A2F1579F306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BEC56D469D0D98E216AA23A644123432D575642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

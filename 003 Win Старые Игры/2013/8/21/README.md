@@ -20,8 +20,7 @@ Electro Man (1992) [En] Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:C4BD825A51A060CCAC784B8B0E06B0D0BFF6CEB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Pike: Operacija Gromoverzhec / Pike: Операция Громовержец (19
 ```bash
 magnet:?xt=urn:btih:DFD63216D0084B2342ED09D5AA86D820B9F5896A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Lord of Magic / Владыки Магии (1997) [Ru] RePack Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

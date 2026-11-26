@@ -19,8 +19,7 @@ Necesse - это приключенческая игра-песочница с �
 ```bash
 magnet:?xt=urn:btih:2C35885887A860FEA69F7EFA8A2979D747BC526E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vesnith Tapes (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3C2C0923B78DDAA0933DE224D5EB0B9281B90CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ISLANDERS: New Shores (2025) [Ru/Multi] (Build #4ccdb730/dlc) Repack FitGirl [Th
 ```bash
 magnet:?xt=urn:btih:7108BA331252E2F179D57F5E82ED27632B726C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tony Hawk's Pro Skater 3 + 4 (2025) [Multi] (Build 18871623/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BFAD6EE8616E6AC4296B97CC1D67364878BBA0F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rally Mechanic Simulator (2025) [Ru/Multi] (1.0.236/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D0A990A903B663B52CC005470C9C208D255552C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Forest Asylum 2 (2025) [Multi] (1.1.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0D01F8A0248F25B4537787194C5303BC9FAAD466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Do Not Press The Button / Or You'll Delete The Multiverse (2025) [Multi] (1.0) R
 ```bash
 magnet:?xt=urn:btih:5823AEF89C0A5ED4996147F20C8523522143316C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

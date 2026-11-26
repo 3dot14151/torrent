@@ -22,8 +22,7 @@ Otto Dix - Классика (2025) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, New 
 ```bash
 magnet:?xt=urn:btih:6DC232F87646F04C4C24B38D12F7D4EA1E366439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

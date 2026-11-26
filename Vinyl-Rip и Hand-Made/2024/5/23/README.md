@@ -22,8 +22,7 @@ Exhorder — американская метал-группа образован
 ```bash
 magnet:?xt=urn:btih:668C15937FE087A799B38D6CE08753D4727B6E69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

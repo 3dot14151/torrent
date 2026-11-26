@@ -21,8 +21,7 @@ Paragon Домашний Эксперт™ 11 предсьавляет соб
 ```bash
 magnet:?xt=urn:btih:A3960168FDF4C118E6E5565CD5FDB059E6A66A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Morifade - Empire Of Souls (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:D32750C953BC449A869AE3795EDD7AC94F267F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Jan Holberg Project - Sense Of Time (2011) [MP3|320 kbps]<Melodic Rock/AOR>
 ```bash
 magnet:?xt=urn:btih:83C37FCD8D9587E6892968D4CD5B34784AF3759D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Terry Brock - 2 Albums (2001-2010) [MP3|320 kbps]<Melodic Hard Rock/AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Scott Rolaf And Joe Lynn Turner - Light Of Day (2011) [MP3|320 kbps]<Melodic Roc
 ```bash
 magnet:?xt=urn:btih:A4271BD36FB6FDD9AC8049088968F6F58DB0157E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Robin Beck - The Great Escape (2011) [MP3|320 кб/с]<Melodic Hard Rock/AOR>
 ```bash
 magnet:?xt=urn:btih:0F574A38F0B098B575AC00E72B96E90AB8C60029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Fandango - 4 Albums (1977-1980) [MP3|320 kbps]<Melodic Hard Rock/AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:27F2294F3B681FB44539841CE5C7918B53D0E0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ AC/DC - Gold Album(1974-2000) (2000) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B4EA37D7BB78086EE1BF4721008AFEDB75D30360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

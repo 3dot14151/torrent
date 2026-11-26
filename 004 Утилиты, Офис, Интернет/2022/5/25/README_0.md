@@ -20,8 +20,7 @@ Hekapad 0.70 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:98DBA9023EA11012303C382B2533AE473ADA4744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

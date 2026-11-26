@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:47712ACE54D586C2BA0649C819F56C786C9AD94E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DF46BBCAD6A74BF9822AAFB3430AA7BB27A091E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Black Label Society - Grimmest Hits (2018) [MP3|320 Kbps] <Heavy Metal, Southern
 ```bash
 magnet:?xt=urn:btih:9B745FA2CEF743DF5D79757DE80D6A8A09969F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Magnum - Lost on the Road to Eternity (2018) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E719446F3824FCF5B973E2167E5E259F626D0328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Wild Boyz - Unleashed! (1991) Polaris Records [MP3|320 Kbps] <Hard Rock, Glam>
 ```bash
 magnet:?xt=urn:btih:5C6D9F369EBF8970B37DD64DB2BB350E476AD538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:99DB053F5CBDF608A0BE09337179D7189E46C7E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

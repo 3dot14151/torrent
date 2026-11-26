@@ -25,8 +25,7 @@ LearnWords ver. 3.0 [Программа] (Android) - Обучающая прог
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

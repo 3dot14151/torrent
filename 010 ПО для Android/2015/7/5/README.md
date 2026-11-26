@@ -19,8 +19,7 @@ Super Backup Pro: SMS&Contac - это программа для быстрого
 ```bash
 magnet:?xt=urn:btih:F3B3DE88B93A7998AE8527E6790A3EEEDEBD75F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ZenMate предоставляет вам услуги виртуальной ч
 ```bash
 magnet:?xt=urn:btih:39B594491BC0492CA9C2678D96ED44D0BD46C276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

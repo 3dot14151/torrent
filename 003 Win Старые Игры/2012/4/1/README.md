@@ -19,8 +19,7 @@ World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L
 ```bash
 magnet:?xt=urn:btih:0BD53F5E19B9AB7C4343F8DBBB3D9C3C547B9CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

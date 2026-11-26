@@ -18,8 +18,7 @@ Assetto Corsa - новый гоночный симулятор компании 
 ```bash
 magnet:?xt=urn:btih:AF039738F6F011CA160E5D055DC1B8C983124BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Total War: Rome II/2 (2013) [Ru/Multi] (2.2.0/13dlc) SteamRip R.G. Игрома�
 ```bash
 magnet:?xt=urn:btih:14F27E4705769BFE7743AE87FF7150FC8C595F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Divinity: Original Sin возвращается к истокам памятны
 ```bash
 magnet:?xt=urn:btih:38F81247070625DBA5B01B8815118C77409E1128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Stranded Deep — это квест с видом от первого лица �
 ```bash
 magnet:?xt=urn:btih:9D9E75BD06C0F82A9F38A9673D134790E611B991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Wasteland 2 — это прямое продолжение Wasteland – игр�
 ```bash
 magnet:?xt=urn:btih:99B4D9CC6AD05A86AB241C986B41917C552E8FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

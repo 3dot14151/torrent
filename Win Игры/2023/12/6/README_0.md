@@ -19,8 +19,7 @@ art of rally - раллийная игра от создателя игры Abso
 ```bash
 magnet:?xt=urn:btih:67BD9DAF77858523CDA9093C36BC482BB032178D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Waifu Fighter - Family Friendly переносит игроков в уника�
 ```bash
 magnet:?xt=urn:btih:BDF4035AAF13458A9159057D9745EAF4A3216882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Devil's Hunt (2019) [Ru/Milti] (1.5.0) License GOG
 ```bash
 magnet:?xt=urn:btih:9D974B6C415756863BF52EE7DFB193D0AFBB24CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

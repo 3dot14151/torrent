@@ -19,8 +19,7 @@ Analog Clock Constructor-7 v4.44 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:444476B14A005C725F96800E026B3C7A8C2ED889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

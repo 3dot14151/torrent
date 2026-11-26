@@ -22,8 +22,7 @@ Lowbrow - Victims at Play (1999) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:7304DA6EE8CB2F1803288BA761D1AF56F9D14F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mallet - немецкая рок-группа, созданная в 1979 год
 ```bash
 magnet:?xt=urn:btih:0B6662FA9E7D3EBFB5DC5E277DB2CDC7ADA7398B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:932800DC4D30FD0839D59EE1521929ECB030A512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Diabolicum - The Dark Blood Rising (2001) [APE|Lossless|image + .cue] <Industria
 ```bash
 magnet:?xt=urn:btih:EF1363A0376A0009049B50A7C884E1EC7EF7197A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Illegal Operation - Digital Hero (2002) [APE|Lossless|image + .cue] <Industrial 
 ```bash
 magnet:?xt=urn:btih:58D7F40465426CD7C40FE5DD473979AEBEEE1DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mournful Congregation - The Incubus Of Karma (2018) [MP3|320 Kbps] <Funeral Doom
 ```bash
 magnet:?xt=urn:btih:7CB169E99F03C96F8DEAA3A46A1ECBAAA8E0A659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Airborn - Land Of The Living (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:F798AC850A2BFE5B9ABF84462EFF5BAB54A54DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Odyssey Desperado - Don't Miss The Sunset (2018) [MP3|320 Kbps] <Melodic Hard Ro
 ```bash
 magnet:?xt=urn:btih:E412B63CCACA8C20627B14AA24001876D190354A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F46D8B75778B310FC52C94C325B4D6E5B998B24F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

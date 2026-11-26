@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:11A4E1E8A26C6D2D3EC0FB4F6498C88316AD6C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0B7D50100AC15F9C03CA0269043660D3633DB1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fallout 3: Fate of Wanderer 2.5.1 (2015) Repack/Mod HalferQ
 ```bash
 magnet:?xt=urn:btih:23286321C482FED0A54B6254BFBED5A2F6E6C32D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Adobe Premiere Pro CC 2015 - это мощный, настраиваемый р�
 ```bash
 magnet:?xt=urn:btih:6215608CD8DE1496140139CC5E5593431F04016B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28532F030CF32A4E62FD517731AE474BD41FFFC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

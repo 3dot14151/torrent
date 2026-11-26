@@ -27,8 +27,7 @@ Vergeltung - Exploration Of Space (2012) [FLAC|WEB-DL|Lossless]<Industrial Metal
 ```bash
 magnet:?xt=urn:btih:9FA13C9C54CCB1D2C4AF91B669EC4A43AF61828D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

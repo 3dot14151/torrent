@@ -22,8 +22,7 @@ Belfegor - The Kingdom of Glacial Palaces (2000) [FLAC|Lossless|image + .cue] <B
 ```bash
 magnet:?xt=urn:btih:6EBD4D6D5B232A6A03811D6A291C85C63B622EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Monolithe - Okta Khora (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:521BD9F289C9658182253FF2C0277928D32C6DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Reece - Resilient Heart (2018) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:0972F26A0CCECEF8C929087559B4EB38D8B988C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ David Reece - Cacophony Of Souls (2020) [FLAC|Lossless|image + .cue] <Hard'n'Hea
 ```bash
 magnet:?xt=urn:btih:B8A8957EA82149F0668F00F66B47807BF23FC604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Anathema - A Fine Day To Exit (2001) 2006, Music For Nations, Sony BMG Music Ent
 ```bash
 magnet:?xt=urn:btih:CF1A2E60A1D0A594CCF8588338C3191CEA9896B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Season Of The Witch (2011) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:D3A7982F13704F02FEDFFFBF4BB474617666E0A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

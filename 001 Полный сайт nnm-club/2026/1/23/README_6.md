@@ -18,8 +18,7 @@ MF Ghost 3rd Season | MF Призрак [ТВ-3] [2026, TV, 1 из 12 эп.] WEB
 ```bash
 magnet:?xt=urn:btih:F733D94407CE98AB8B0373EC164684E54743E874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

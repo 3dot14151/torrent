@@ -19,8 +19,7 @@ Big Fish Legend / Легенда о большой рыбе (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:8D0C3E6EB1AF172FE4A4DEFAF3AA879050DFF37A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ RTL Зимние игры 2009: Новый сезон (L) [Ru] 2009
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Stone Age Cafe / Кафе каменного века (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:AE763305D30B660E5AB60F097E07EA4FAE8D1C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Midnight Mysteries: Haunted Houdini / Загадки Полуночи: Приз�
 ```bash
 magnet:?xt=urn:btih:28782FC0E94AD91501E6EE8AA4241504B679CA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Forget Me Not Annie - хоррор-пазл-экшен с видом от пер
 ```bash
 magnet:?xt=urn:btih:36CE282DB54FA5CFD859611BE936065CE0BDEB1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Mother Nature (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:42D1EF719D3E72BBB372E510F6CF9B79901A3C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

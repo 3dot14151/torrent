@@ -22,8 +22,7 @@ Gorky Park - Stare (1996) Reissue, 2023,  Moroz Records [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:64F49E2FC2923BC50B77457FDAD50E808BE7081C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

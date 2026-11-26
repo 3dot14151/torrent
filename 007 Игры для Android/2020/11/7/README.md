@@ -20,8 +20,7 @@ Warlords of Aternum v1.11.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:E68887AA0922500B03850249BE1F14C0CB800B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Brawl Stars v30.242 [Ru]
 ```bash
 magnet:?xt=urn:btih:AE9DF00040E333512283F6435D5ADECFCD46C7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Among Us – это потрясающая экшен-игра, в которо�
 ```bash
 magnet:?xt=urn:btih:822DEA883B78419B3F20978A5C337E32B56EAB08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

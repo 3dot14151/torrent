@@ -19,8 +19,7 @@ Danse Macabre 4: Thin Ice (2015) [En] Unofficial [Collector's Edition / Колл
 ```bash
 magnet:?xt=urn:btih:604B1A44107939B40409D86834CA0772AC90F6EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ New York Mysteries 2: High Voltage (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:126EEB7C45C5CD23D37C265AF288C3E648C44539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Secrets of the Dark: The Flower of Shadow / Тайны Тьмы: Цветок Т
 ```bash
 magnet:?xt=urn:btih:40645BA5183615F2B274EF699699D7CA726B0852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

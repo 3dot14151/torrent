@@ -23,8 +23,7 @@ Jondo Live-CD / DVD предлагает безопасные, предвари�
 ```bash
 magnet:?xt=urn:btih:73C5FEF846829BC1004627DAB1B8C56651A2B285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ ROSA Enterprise Linux Server (RELS) – это серверная операци
 ```bash
 magnet:?xt=urn:btih:C8E8C6D67A7E13B465EC1FB4FFEC0D6FB8586A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

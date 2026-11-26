@@ -22,8 +22,7 @@ Dyecrest - This Is My World (2005) [APE|Lossless|image + .cue] <Heavy, Power Met
 ```bash
 magnet:?xt=urn:btih:D8813B10741181A5349272684BE16967AA187CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Repossession - Repossession (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:7F7D70BCFA61943792A11BC6C81675DA8A00C47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dyecrest - The Way of Pain (2004) [APE|Lossless|image + .cue] <Heavy, Power Meta
 ```bash
 magnet:?xt=urn:btih:9B153CED6256E8ED3D1DDF2B5D6700FB78B4D41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sydra - Call of the Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thra
 ```bash
 magnet:?xt=urn:btih:12E8E512B3B91A59D418DA188CDCE06B7EC98236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Destructor - Blood, Bone, And Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash,
 ```bash
 magnet:?xt=urn:btih:664FFC549D4E96E25AE05D4086B741BD1251B055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Succubus - The Eternal Curse Of Existence (2023) [FLAC|Lossless|tracks] <Melodic
 ```bash
 magnet:?xt=urn:btih:D095DA8F4B078CDB6D12075C86498D6E2B1E51F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dogma - Dogma (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Female Voca
 ```bash
 magnet:?xt=urn:btih:060BBD8E8195C90E3D9627095F43D34190EEF674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Destructor - Sonic Bulle (2003) EP [FLAC|Lossless|image + .cue] <Thrash, Heavy, 
 ```bash
 magnet:?xt=urn:btih:FB6B0B1F4B56479F3E51B935D85A8BCEF97DD73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Evanescence - Fallen (2003) Deluxe Edition, Remastered, 2023, Craft Recordings [
 ```bash
 magnet:?xt=urn:btih:A2887DAE9B6788F629FD346100CDE8E862941385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Keeper - MMXIV (2014) [MP3|320 кб/с]<Crust, Hardcore, Sludge>
 ```bash
 magnet:?xt=urn:btih:86B3A045F02EAC4B3AE1F0E604276A2C8B206D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Nivlhel - Nivlhel (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:7500E63C2BE3857E97C354C7B741AD1912C50C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Freddie Red - On Fire (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A08141448929DC77EE49AD8324748F201C3262EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Australasia - Vertebra (2013) [MP3|320 кб/с]<Post Rock, Post Metal, Instrumen
 ```bash
 magnet:?xt=urn:btih:1C27A154099917AF498035730003D62F02277A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Nikk Wolfe - Slide Stormin' (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:23E7367D3C0E0A35D296141E1F8E42BD80FEA095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F26575EFB3F7E47098C950842A08AC508EF63247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F0A40363BA164E680B2B940C95663CF832A4EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ Bad Temper Joe - Sometimes A Sinner (2014) [MP3|320 кб/с]<Acoustic Blues>
 ```bash
 magnet:?xt=urn:btih:02CBEEDEE459E6CA62A93FD06FC52809F54B8463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ Blacktop Deluxe - Turn Up Be Nice Play Hard (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:EB284B75835E863F5A376E2BE8C523BDBE77479A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ Gehennah - Hardrocker (1995) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:2A8071C0EE7AEB83E9753CF8E2B2B5B89E477629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD79275FC110BEDB5806442E55C620A7FD1C9F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C04018F014DA70ABA5F401BE7BD260362F392675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +407,7 @@ Guerrilla Alliance - Empire Of Fear (2013) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:F1D14B9448FED03707194D688EB40E75A92C14C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +441,7 @@ VA - Solitude (Chillout for Singles) (2014) [MP3|320 кб/с]<Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:9E6ADA92CC6CE6FF89C25BD57DD6BA5F053AE013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +475,7 @@ Perfect View - Red Moon Rising (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3CD45037731A18CFFF303AE81FE42E7F197B91D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8037BB9713FA54C1C9FD58457FB4E10CA2D1629C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +535,7 @@ VA - Full Lounge Vol.2 (2014) [MP3|320 кб/с]<Lounge, Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:711A74FCF37E402C60739B6F2111C377416492C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2765DCF6C854FF76E99F9892DFFD440C2199C160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +595,7 @@ VA - Abstract Visions - Volume 2 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:0CC304464C30333DC5E9CC82F24A4B5764EE942F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E462D0B3A526EDF6F5ECC8D5A38DABDA7CF512E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +655,7 @@ Masi - Vertical Invader (1990) [APE|Lossless]<Instrumental  Metal>
 ```bash
 magnet:?xt=urn:btih:72D4034510FDEC2DDDAF15363795D9E077A0CE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +689,7 @@ Stryper - Icon (2014) compilation [MP3|320 кб/с]<Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D622A4B74D73F3625AC973C33984FB69C950622D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +714,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40F794C4C4BE5778062C3E79D6DF348B7156C833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +748,7 @@ Salvatore Amara & The Easy Blues Band - The Blues Catcher (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:7B85A3D873F4C66DE657645FA67276F84C3DE8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -806,8 +782,7 @@ VA - Full Lounge Vol.1 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:B0214C7572F47A6576F06A9E27238E241CC36E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -837,8 +812,7 @@ Vy Pole - Self Titled (2014) [MP3|320 кб/с]<Post Rock, Post Metal, Instrument
 ```bash
 magnet:?xt=urn:btih:7D8C16F191AF025F844909F2AE22FC024F4D458C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Al Bano & Romina Power - Аль Бано и Ромина Пауэр (1982) [FLAC
 ```bash
 magnet:?xt=urn:btih:9E2642248F866BAE628B1936C17ED1C6C37C63F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Pass It Around (3:06)(   Читать дальше...   )Производс�
 ```bash
 magnet:?xt=urn:btih:330A5ED060902A2D62E337C1C9AEA05968DFC2A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bon Jovi - New Jersey (1988) [FLAC 2.0 24/48|Tracks(Vinyl-Rip)]<Хард-рок,
 ```bash
 magnet:?xt=urn:btih:38CF0D206DC661639375196EF1CB705D3CBC2F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

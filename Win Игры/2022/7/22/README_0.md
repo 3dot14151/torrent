@@ -19,8 +19,7 @@ Mari & Bayu: The Road Home – кооперативное 2D-приключен�
 ```bash
 magnet:?xt=urn:btih:141630019555B77A0DC059DD0494D512A1F828D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

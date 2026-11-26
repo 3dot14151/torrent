@@ -22,8 +22,7 @@ A4 Katri Helena - Vain Hieman Rauhaa = A Little Peace(   Читать дальш
 ```bash
 magnet:?xt=urn:btih:0C584D45710EE4D9660F516AE982A349228EFF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Help Me Make It Through The Night(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:447CC9A5174872247930E0E2AD535FC657F7CF80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Flying Saucers - Texas Calls You Home(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:30DD3AB107DF4D912AB786B86DDFB48CD09C2554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Elvis Presley - Collection 11 Альбомов 13 LP (1956-2007) [FLAC/APE 2.0 2
 ```bash
 magnet:?xt=urn:btih:89756A37564880E170C3DA038AA4750728566609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Alice Cooper – 20 Альбомов (1972-2011) [FLAC 2.0 24/96|tracks (Vinyl-R
 ```bash
 magnet:?xt=urn:btih:08B74910E7212F482E95BBBCF1D017F23A84101E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ A4. Fire Dance 4:30(   Читать дальше...   )Жанр: RockПродо�
 ```bash
 magnet:?xt=urn:btih:678C1E76A64F21449B32FE44894297827A3BABE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Rammstein - XXI (1995-2015) 7 x Double LP, The Vinyl Box Set, Remastered, 2015  
 ```bash
 magnet:?xt=urn:btih:BD734A0ECE8555FBB02F704089D36A51D544CD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ A4. The Future Never Dies 4:06(   Читать дальше...   )Жанр: Hard
 ```bash
 magnet:?xt=urn:btih:B9FED0FD723DB627313ACDA098D448025FFD28E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

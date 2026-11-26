@@ -19,8 +19,7 @@ Window Maker Live 0.95.7-3 - Live-дистрибутив на основе Debia
 ```bash
 magnet:?xt=urn:btih:8772280AA5F7F3512D2683738935012226B52166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

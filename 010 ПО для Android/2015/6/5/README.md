@@ -22,8 +22,7 @@ P.S. Так ничего лучшего на рынке и не вышло!
 ```bash
 magnet:?xt=urn:btih:E78FABE577682C2329CA1A7114CF62B8F05AB204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

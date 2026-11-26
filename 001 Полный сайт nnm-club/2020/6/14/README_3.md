@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:BD997D0F19F4B5175B422938FC3F6B7C9E4A7BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4991F5EA0099A6175B4912D5782C852059710098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Elder Scrolls V Skyrim - Special Edition (пейзажи) (2020) [H.264/1080
 ```bash
 magnet:?xt=urn:btih:E03DA69987C05F18122002E7AA25B99A0427FF10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Udemy | Азбука JavaScript (курс для начинающих) (2020) PC
 ```bash
 magnet:?xt=urn:btih:B22F89C1AA14AB18B1F69DBE8D2B97F37309F974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93D2B8970956222AFC40DB8FE75A7332114A1D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Debian 10.3 XFCE 4.14 (май 2020) [64-bit] 1xDVD
 ```bash
 magnet:?xt=urn:btih:F40B06ADB44D5CA38AF52613E371954E7D2D8AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B394D50ED6CA1143663CE631AF8DF8822A1AADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Pro Cycling Manager 2020 (2020) [Multi] (1.0.0.2) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:B6D5F9F213AF7D507D40B10B10CB825DD140C3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Telegram — это мессенджер, позволяющий обменив�
 ```bash
 magnet:?xt=urn:btih:47B558BE4D496207382825A383A952A3CA267FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ SKYHILL: Black Mist (2020) [Ru/Multi] (1.0.002) License CODEX
 ```bash
 magnet:?xt=urn:btih:B939FE6236EBBCCB2CB7E88BCC8DC55F05AEED7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:539B6CDB5CA5D9F1E6BC7B158B5547E67D93A62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 20.06.11 [Ru]
 ```bash
 magnet:?xt=urn:btih:725DC777F58D0E3FDF0F071D3ECB87AC85060AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09035ECD9C15DE9EE367E45892875E477532F545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4442536D8D18C0CD79F8FC3EF8C742ED013AA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ VA - Громкие новинки Июня (2020) [MP3|320 Kbps] <Pop, Dance, O
 ```bash
 magnet:?xt=urn:btih:B140FF8D7D226B4D9C02C5EF2692F549FA3EA139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1C182FF9527B6F823ED416B71568E79758C9611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Foxminded | Инструментарий Java для новичка (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:BE801B3A4D9C98B09DF41D8D37DDFF03B541EE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDACBEB3A91A18B8FFBCF68AC970C64FFC4D1B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ Hotspot Shield VPN - самое полное решение проблем бе�
 ```bash
 magnet:?xt=urn:btih:84C81194AE951153F3892DB6AE9E53939793FCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ Nmap - это незаменимый инструмент, который дол
 ```bash
 magnet:?xt=urn:btih:48604962956465D1EF9C7C4F5A22CB85FE1D249C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ Ni no Kuni Wrath of the White Witch Remastered (2019) [Switch] [USA] 9.1.0 [NSP]
 ```bash
 magnet:?xt=urn:btih:011B12145070F8A144B393B8ED31CA367F673169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ ReadEra Premium – читалка для книг, позволяет чита�
 ```bash
 magnet:?xt=urn:btih:B0B29AFCAFD64C18C81AFC64A671D0AFB61753BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BC09AD15019B1CC3C66437BB11B260C0D531B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGor
 ```bash
 magnet:?xt=urn:btih:96C3EA73E89510413A6D746AB0D3331D244C0FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ Windows 10 Enterprise LTSB v1607 14393.3750, включающая в себя 8 
 ```bash
 magnet:?xt=urn:btih:1A8D3AD0000258D8485341C43E54ECC1EB0373BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

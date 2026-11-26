@@ -28,8 +28,7 @@ Johnny Spence & Doctor's Order - Full Throtte No Breakes (2009) [MP3|112-320 kbp
 ```bash
 magnet:?xt=urn:btih:69A31132B706AB0D0A76051F22C2A885A2894D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Tori Amos - Strange Little Girls (2001) [FLAC|Lossless]<Alternative, Piano, Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Legion Of The Damned - Descent Into Chaos (2011) [APE|Lossless]<Thrash / Death M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Tori Amos - Midwinter Graces (2009) [APE (image +.cue)|Lossless]<Alternative Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Pink Floyd - Greatest Hits (2007) [FLAC|Lossless]<Rock / Psychedelic Rock / Prog
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Russ Ballard - 13 альбомов (1974-2006) [MP3|128-320 kbps] <Classic Rock 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Travis - Discography (1996..2010) [MP3|320 kbps]<Alternative Rock, Brit Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

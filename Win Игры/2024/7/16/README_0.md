@@ -19,8 +19,7 @@ KAKU: Ancient Seal предлагает стать на место Каку, г�
 ```bash
 magnet:?xt=urn:btih:111131ACE2477704C73B0060B5818E2A95116669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ System Shock - это полноценный ремейк хита 1994 года
 ```bash
 magnet:?xt=urn:btih:62C689B3E0F4A9310AF8CB3EC2517C8A47D5A08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Layers of Fear (2023) [Ru/Multi] (1.6.1/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3A4762B82EEE5070EE4DF22606D554433725A596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Layers of Fear 2 призвана продолжить традиции по в�
 ```bash
 magnet:?xt=urn:btih:6E21F05B28350BF4E15B1BA4809176B871DA6290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ KAKU: Ancient Seal предлагает стать на место Каку, г�
 ```bash
 magnet:?xt=urn:btih:3BDAEDE317AFADA077A71685D8522F2006AC8EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Anger Foot - это молниеносная хардбасс-игра, где �
 ```bash
 magnet:?xt=urn:btih:8DA59948F6FBBE4C520F3D1D1B3F0F4CD7631AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Yuppie Psycho (2019) [Ru/Multi] (2.7.5) License GOG [Executive Edition]
 ```bash
 magnet:?xt=urn:btih:D7ECC51E78AF0177D34F146A4564C14435548702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Criminal Archives 4: Blade of Deceit / Криминальные архивы 4: 
 ```bash
 magnet:?xt=urn:btih:BBF7A9ADA5FE817176A253A4BB6B39499C37F01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Antichamber – необычная головоломка, где игрок м�
 ```bash
 magnet:?xt=urn:btih:7971EA9D3F45597D7724F00E1C38A397DD4AE1AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

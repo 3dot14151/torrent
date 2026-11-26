@@ -19,8 +19,7 @@ C++ — превосходный выбор для разработки встр
 ```bash
 magnet:?xt=urn:btih:9C6B7C6D160A4972597EB0D7BC7E2F0178C9F760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

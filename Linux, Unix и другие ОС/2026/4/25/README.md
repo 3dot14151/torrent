@@ -22,8 +22,7 @@ Canonical выпустила Ubuntu 26.04 LTS «Resolute Raccoon» — перв�
 ```bash
 magnet:?xt=urn:btih:31E6E104C43BFA95FB1632360D882691CC4BDACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

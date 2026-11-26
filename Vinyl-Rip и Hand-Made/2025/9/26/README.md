@@ -22,8 +22,7 @@ Rage — немецкая хэви-метал группа, основанная
 ```bash
 magnet:?xt=urn:btih:FFCB17C237F91FE3648F97A1BD11C93E048F2391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Paradox — немецкая метал-группа, образованная �
 ```bash
 magnet:?xt=urn:btih:F0591D9EA2439308421092C674656A86E607E37B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Vildhjarta — шведская метал-группа из Худиксвал�
 ```bash
 magnet:?xt=urn:btih:E4E62E02E033361C36A90415F4E3A8220E249CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

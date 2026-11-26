@@ -19,8 +19,7 @@ Silent Hunter 2 (2001) [En] (1.00.06) License GOG
 ```bash
 magnet:?xt=urn:btih:376DA7CA64FA9752923B5E7351DFAEA558EDA8D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

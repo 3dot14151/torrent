@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:53624A078A3279FCAA5D6E37F92419F448CE00B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A967F8F4EB9F1B39D2B4E2B16CABFBB0F7A3B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ DEATH STRANDING (2020) [Ru/Multi] (1.02) License CPY
 ```bash
 magnet:?xt=urn:btih:0B07CEC3E00CD99FDBF6B3FA0664EF7B0CED29C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B634F250CBDB17D7E4CE076FC8F8D129C1AC76CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8096F9FCDD9DDC0BAF3B90DA162DC9190C9B5079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Port Royale 4 (2020) [Ru] (1.1.1.16203) Repack xatab [Extended Edition]
 ```bash
 magnet:?xt=urn:btih:2CEB9EDFB2508D385066E5D8AA9AB9215004B896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.1/dlc) License CPY
 ```bash
 magnet:?xt=urn:btih:B8F7A28AD29F3383C38AAB70616186D4A0996C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.04/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:854E2ACA416DE5B343C703A7E8AE061EF61C10A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D60F331657BD7281416EE04190226124A0378F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

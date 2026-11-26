@@ -22,8 +22,7 @@ GT Project - Az Elet Rock & Roll (2019) [FLAC|Lossless|tracks + .cue] <Rock, Har
 ```bash
 magnet:?xt=urn:btih:1E3869824E08338E7B1685A43590772A663A35B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Thrall
 ```bash
 magnet:?xt=urn:btih:9F64D290058A1141D2E6726C228AF558ACD52CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Find Me - Angels In Blue (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:02E0F48F83D8EC9DB6EF12172D4B525A46ED45BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Zebrahead - Brain Invaders (2019) Japan Edition [FLAC|Lossless|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:732E590804FC85E3B13BD61EDA541279D2529700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Quatro, Scott & Powell - Quatro, Scott & Powell (2017) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:6641FF142DB160F213070680A3CE2D68698E5324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bloodbound - Rise of the Dragon Empire (2019) Japanese Edition [MP3|320 Kbps] <H
 ```bash
 magnet:?xt=urn:btih:2EC0CE40A493BC40B96891F627E7A47DFD258BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ CD4 - Monitor Mixes & Intros (September 1983)Жанр: Hard RockПродолжи
 ```bash
 magnet:?xt=urn:btih:B610768964B211DF0E067ACC94B3D4D01A31EA13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Bee Gees - Love Songs (2005) [FLAC|Lossless|image + .cue] <Soft Rock, Soul, Ball
 ```bash
 magnet:?xt=urn:btih:CADA78D20592DFAD98620A3DC2D00D545AD6E89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Pink Floyd - Wish You Were Here (1975) Reissue, 1986, Harvest [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:D8FA87CB86B5060F735267E35C959831B08257F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Manowar - The Final Battle I (2019) EP [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B2A3E44F984B61283FB29237BD990D94525A9DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ Radio Tapok - 7 Альбомов, 7 Синглов (2016-2019) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:27929E6CA916371E723B2F91CEC836743CF42216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

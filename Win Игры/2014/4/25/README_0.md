@@ -19,8 +19,7 @@ Grim Facade 4: A Wealth of Betrayal (2014) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:E2EAC9B4A6D1D97CA6A7534F19D3535068090C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Romance: Vampire in Love / Мрачная история. Влюбленн�
 ```bash
 magnet:?xt=urn:btih:E75B8DDA534156544D72F648CB126EF6E09EEC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kick-Ass 2 (2013) [Ru/En] (1.0.0.1) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:3BDF8EAF598DCE793D1BBE4EB18E34B92141F874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Aliens Colonial Marines (2013) [Multi] (1.4.0/dlc) License PROPHET [Collectors E
 ```bash
 magnet:?xt=urn:btih:517E2DD148C5FAEA9D6377B4682E27BC1795ABFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Midnight Calling 3: Valeria / Полуночный Зов 3: Валерия (201
 ```bash
 magnet:?xt=urn:btih:4892BC1EF2BE38C0A5C9632F4D208536F9623E0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Hotel 13: The Thirteenth / Проклятый отель 13: Трина�
 ```bash
 magnet:?xt=urn:btih:26895069CE7F0FAE2E7A3E0A20CCACD94FCA09A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Evil Tag (2017) [Ru/En] (1.02f) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:A23B293F079FA199B340F525BD794EE2C0918462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Age of Wonders III - давно ожидаемое продолжение отм
 ```bash
 magnet:?xt=urn:btih:AD87D5B469524B61A8D5291566DADFF9AA59AA65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

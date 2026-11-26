@@ -22,8 +22,7 @@ Schattenvald - Alle Hernach (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Blac
 ```bash
 magnet:?xt=urn:btih:F144D9C54CF81B5879B179C6226D3845755E9F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Myrath - Wilderness Of Mirrors (2026) [FLAC|Lossless|image + .cue] <Power Metal,
 ```bash
 magnet:?xt=urn:btih:B71154BAC9E14592A93A5A388E5F5F58BAF8535E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

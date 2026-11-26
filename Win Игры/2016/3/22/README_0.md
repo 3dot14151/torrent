@@ -19,8 +19,7 @@ Hyperdimension Neptunia U: Action Unleashed представит знакомы�
 ```bash
 magnet:?xt=urn:btih:DBAEC4324725FAE1DE643B7183C733CD20F6E254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Republique Remastered – игра в жанре стелс от студии Ca
 ```bash
 magnet:?xt=urn:btih:797CDEBA3133F7C4A45E147BBFCAF1370C31F45E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

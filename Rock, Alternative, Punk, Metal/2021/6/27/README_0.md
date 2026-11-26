@@ -22,8 +22,7 @@ Prodigal Sons - On Our Last Day (2012) [FLAC|Lossless|image + .cue] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:6546CEFE3EDF394371CD2938C604A805CE4400AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alan Reed - First In A Field Of One (2012) [FLAC|Lossless|tracks + .cue]<Crossov
 ```bash
 magnet:?xt=urn:btih:2A47FB969FD682B59A79CBCF17FC615CBF70EB07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lindemann - Live In Moscow (2021) Live [FLAC|Lossless|image + .cue] <Industrial 
 ```bash
 magnet:?xt=urn:btih:EE43A7E8A1DA201B0161CFF68169B440730A56E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hellryder - The Devil Is A Gambler (2021) [FLAC|Lossless|image + .cue] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:939BC7DE50AD0B629C035CE14DB6F2E2DC635E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ozora - 2 Albums (2017-2021) [MP3|320 Kbps] <Alternative, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:A08D7213832BC65293D30AD4F4271C76526D963F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Scythelord - Earth Boiling Dystopia (2021) [MP3|320 Kbps] <Progressive Death, Th
 ```bash
 magnet:?xt=urn:btih:D009731EA224FA7544EA57E0593EB80C00111176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Invitado De Piedra - 3 Albums (2011-2021) [MP3|320 Kbps] <Psychedelic Doom, Ston
 ```bash
 magnet:?xt=urn:btih:08EC5990670C371D70E1376D15B02CD1D0276D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Amenra - 6 Albums (2012-2021) [MP3|320 Kbps] <Doom, Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:5E2C5CE6BA50401B096ADD773751560B21F91E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ De Arma - Strayed in Shadows (2021) [MP3|320 Kbps] <Gothic Rock, Post Rock>
 ```bash
 magnet:?xt=urn:btih:6815DD3028AE4A21715A7DF5FB682316977A9D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Arabs in Aspic - 3 Albums (2021) [MP3|320 Kbps] <Heavy Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:33CDF1F33FF3B91CFCB0F0DFDC3D605962F460E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Celtian - Sendas De Leyenda (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Powe
 ```bash
 magnet:?xt=urn:btih:427862B325CE662A33498C3A91847C6DA2BBFDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Mogwai - As The Love Continues (2021) 2CD, Deluxe Edition [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:F992077BABA12EBDBC89F0AACC27EE019F8F88FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Paul Gilbert - Werewolves Of Portland (2021) [FLAC|Lossless|tracks + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:9536E7BE1BE83E8387B92C5460D93AC77067E1EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Helloween - Helloween (2021) Limited Edition [FLAC 2.0|44.1/24|tracks|WEB-DL] <P
 ```bash
 magnet:?xt=urn:btih:37E99D09A8FFC34D2A6FD3CF7BDF9CEB2188367D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Muse - Origin of Symmetry (2021) XX Anniversary RemiXX [FLAC 2.0|96/24|tracks|WE
 ```bash
 magnet:?xt=urn:btih:F44AA999F2C3EB43327015063947B3FC41C3D648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Within Temptation - Shed My Skin (2021) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:8F99789038412F1FB4DE7311F470D068329370A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ The Saturday Blues Project - 3 Albums (2014-2021) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F9896724365C9E9ECC8414FC41248529F7B26F1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

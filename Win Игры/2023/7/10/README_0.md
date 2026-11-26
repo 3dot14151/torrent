@@ -19,8 +19,7 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 ```bash
 magnet:?xt=urn:btih:B7EB8D2FC080FA12F5AAC371C2E1F1C9F5CAD12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maximum Action (2018) [En] (0.92) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:E025EA9969751D5CFEB21E623F097FEA7C480D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

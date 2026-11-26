@@ -22,8 +22,7 @@ Dãm - Purity (The Darwinian Paradox) (2005) [FLAC|Lossless|image + .cue] <Death
 ```bash
 magnet:?xt=urn:btih:C7DFF0A3B83742BA8BF8CC805FDB0BCF843ED7EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Concerto Moon - Between Life And Death (2015) Japanese Edition [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:EEED00087870A1F6032CBFDDE1930C658B56FCE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Concerto Moon - Angel Of Chaos (2010) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:4861A20DBD76A8082055AA7D1A6B9B5F4C6835DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Se Delan - Drifter (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:41768A801743AF770407187FB1516F0A88D496E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Penelope Houston - Cut You (1996) [FLAC|Lossless|tracks + .cue] <Rock, Alternati
 ```bash
 magnet:?xt=urn:btih:C1E355B2054E6C95C3E593786802B248B0E7940E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Maerzfeld - Tief (2011) [MP3|320 Kbps] <Industrial Metal, NDH>
 ```bash
 magnet:?xt=urn:btih:DE8C68F09576B355A76DC8AA811FFAED0CF9B7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Mors Principium Est - Embers Of A Dying World (2017) Japanese Edition [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:DBCCBE911BA2AD7D567A44ACC8439DD2905FB6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Black Star Riders - Heavy Fire (2017) Limited Edition [FLAC|Lossless|tracks]<Har
 ```bash
 magnet:?xt=urn:btih:6948EC239AF45DF30B46A99B5A3B937617A326CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Mick Jagger - Primitive Cool (1987) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:CDA8934985CAADF07D59BB9462AF77B3953E7C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Hobbs' Angel Of Death - Heaven Bled (2016) [FLAC|Lossless|image + .cue] <Thrash 
 ```bash
 magnet:?xt=urn:btih:145F814FF001072977D907E04C09C871DB15DF36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Electric Light Orchestra - ELO's Greatest Hits (1979) Remaster, 1988, Epic Recor
 ```bash
 magnet:?xt=urn:btih:E5605B1D2948A3316BA041D8D3D5034D24F1443E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

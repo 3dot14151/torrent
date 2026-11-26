@@ -19,8 +19,7 @@ System Shock 2023 - ремейк легендарного иммерсив-си�
 ```bash
 magnet:?xt=urn:btih:870963B05F15E3B4E522D7355AD9FB94E63AA315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.03B) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6E51B19011E7EB658880BBD543B2412F81117DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44BF099B8E3896B579EFE8E2879F49CAA70EE299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Crown Wars: The Black Prince - пошаговая стратегия, дейст
 ```bash
 magnet:?xt=urn:btih:4F9CE0A4BACA551B186F7F44645F71DCED2B8EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Besiege - это основанная на физике игра, в котор�
 ```bash
 magnet:?xt=urn:btih:1B977AF05AFA049E28F3CFD46CC87AD6EE7730C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Journey of AutUmn – перед вами традиционное прик�
 ```bash
 magnet:?xt=urn:btih:AD49EA612065E7D5FEE10E41091A23330468746E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ RKGK переносит игроков в мрачный нео-бруталис
 ```bash
 magnet:?xt=urn:btih:6EBE3876316C236AFED9EBC471B1CEBAA20C4530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Turnip Boy Robs a Bank - это забавный двухмерный прикл
 ```bash
 magnet:?xt=urn:btih:09E63453AE5EEA27E2B96A71C8B92AF90138674C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ RKGK переносит игроков в мрачный нео-бруталис
 ```bash
 magnet:?xt=urn:btih:4FBE8BD95E812EA1D6485CF8DB19E32B35CF3018
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

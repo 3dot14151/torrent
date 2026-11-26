@@ -21,8 +21,7 @@ P.S. Данное приложение стоит рассматривать к�
 ```bash
 magnet:?xt=urn:btih:F497CE86A0036B1788A7A0EFD8678102BA5A1653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

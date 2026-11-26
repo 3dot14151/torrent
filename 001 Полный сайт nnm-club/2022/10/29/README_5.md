@@ -18,8 +18,7 @@ Resident Evil Village (2021) [PS4] [USA] 5.05 [HEN] [License / 1.11 / DLC] [Ru/M
 ```bash
 magnet:?xt=urn:btih:0B6C1C4C67B47E1C88D68720B754792497CE7819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4E1C21FD71A52D71ACC6E305E40A5FD58A802E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3015088A540D69D23E13ECE081F18AB6920A6D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0564437FDB2115440A468AA112C1E7AA488B2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ A.L. Weber / T. Rice - Jesus Christ Superstar. Различные вариант
 ```bash
 magnet:?xt=urn:btih:7DAB85569B0F2CD56F3A71D155A51765D4D0EF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Hell Pie - непристойная 3D-игра, которая выведет �
 ```bash
 magnet:?xt=urn:btih:0E8C0F0D350AD910F15F84D6AEC878260EE68098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Udemy, Dzianis Matveyenka | JUnit 5 (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:56B2881DDCCF90BC402D66D4FE6CB92CD9AA950F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Circuit Calculator v5.5 [En/Ru] - Калькулятор электро-схем
 ```bash
 magnet:?xt=urn:btih:77C312F887E1CB8806EEBB8CD77833A8C5AD558E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ TrackView – кроссплатформенная программа, кото�
 ```bash
 magnet:?xt=urn:btih:D20F1EE5AB61CB3644FC52B69AF474469F6BFB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A6EB83AD86FD8A1F8FB7C12050DE521BB6FB556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB6D06DF417211FCA71E952F4951444205A79637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71166E41911F451FD4964EAD3A14CB8003462839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Gotham Knights (2022) [Multi] (9794860/dlc) Repack DjDI [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:74AD6FC8836B87EC93846A0714A4ACC185CB29DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5540F536DE503B1F34924467D6DD1FF490374D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

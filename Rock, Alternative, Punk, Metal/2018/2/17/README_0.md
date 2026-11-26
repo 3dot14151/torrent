@@ -22,8 +22,7 @@ Steven R. Smith (Стивен Р. Смит) - Log The Man Dead (1995) Autopia, M
 ```bash
 magnet:?xt=urn:btih:1C3A80E133C33652142DA8D934254AB04D54B9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:743DBAF56815582ABFDCB37DDDBEB156FF0B06F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Asylum 8 - Repressed (2017) [MP3|320 Kbps] <Melodic Death Metal, Industrial Meta
 ```bash
 magnet:?xt=urn:btih:586116351C82271EB0E0DE789C43F3B274C3051D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mystic Prophecy - Monuments Uncovered (2018) Limited Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:62874E738EE5B198DA44E598CC4AAEA5B7A9FB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Toto - Super Hits (2004) [MP3|320 Kbps] <Soft Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:E0E53150D71F68E118B02F3D65E1F67AD74F8D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01AC886EB426B484635006210F639CA5E20C1229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7E7CDBAB288EB68169577F86C5FD0B952FF0CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

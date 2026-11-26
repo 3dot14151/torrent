@@ -19,8 +19,7 @@ Taking Your Last Chance - 1 альбом, 1ЕР, 1 сингл (2008-2013) Дис
 ```bash
 magnet:?xt=urn:btih:1EB5FA8BB651C038326270977E785A393CF03F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACEC08B8CB2724F21E0DAB3A809D284772D4C22C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Ishimura - Transition: vol.1 (2013) [FLAC|Lossless] <Post-metal \ Post-hardcore 
 ```bash
 magnet:?xt=urn:btih:8F309D21219B6B78227C44C1B1A3686E3930E0F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ McDonald And Giles - McDonald And Giles (1970) Mini LP HD-CD /1998, Atlantic Jap
 ```bash
 magnet:?xt=urn:btih:3FE563802B62A88BF92DF3018F54CCDA187681AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Behind The Scenes - 3 Альбома (2000 - 2008) Дискография [FLAC|
 ```bash
 magnet:?xt=urn:btih:8A0B202AF71FADDFD66C0C407F1EAE8F638020CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Shadow of the Colossus - End Game (2013) [FLAC|Lossless]<Progressive Metalcore\D
 ```bash
 magnet:?xt=urn:btih:F8B56D12E5017CD8D14D7F857B356DCFD572BA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Eskimo Callboy - We Are The Mess (2014) [MP3|320 кб/с]<Post-Hardcore / Electr
 ```bash
 magnet:?xt=urn:btih:A9D408119CBF6717947121D9AE9DED27F62C47CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Roger Taylor - The Lot (2013) / 12 CD Box Set / [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:3DCC16D320671536A415DFFA537F92565F0DC033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Manny Charlton (ex-Nazareth) - 5 альбомов (1999 - 2008) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:0442439CA566F2543A4EBCB4A59967C7283A839E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

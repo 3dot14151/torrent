@@ -24,8 +24,7 @@ Preceded by the single, an anthem for the ages, "Saturday Night (Hallelujah)" (
 ```bash
 magnet:?xt=urn:btih:9F8C4BC682D46924CAD6BEB55F8459F98243BFE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Stay Away - Можно спрятаться, сбежать нельзя (2021) 
 ```bash
 magnet:?xt=urn:btih:B3458462489CBCE2933E10ECB35C1431DA3D4564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Glass Hammer - Skallagrim - Into The Breach (2021) [FLAC 2.0|44.1/24|tracks|WEB-
 ```bash
 magnet:?xt=urn:btih:B69B700815EF88E4D004074E3BC0EEF5DC558965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

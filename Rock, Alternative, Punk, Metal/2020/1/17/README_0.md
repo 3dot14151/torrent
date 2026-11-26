@@ -22,8 +22,7 @@ Yes - Topographic Drama: Live Across America (2017) Live [MP3|320 Kbps] <Progres
 ```bash
 magnet:?xt=urn:btih:5FF1F321D8C49FE1D4C96D660D55910A01C60421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Ozzy Osbourne (feat. Elton John) - Ordinary Man (2020) Single [MP3|320 Kbps] <Ha
 ```bash
 magnet:?xt=urn:btih:1608817C6791B1453C198AF03F8D4F991B256F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

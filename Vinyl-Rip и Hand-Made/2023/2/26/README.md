@@ -22,8 +22,7 @@ Catamenia — финская мелодик-блэк-метал-группа и�
 ```bash
 magnet:?xt=urn:btih:5C53D90BBD81CA7A1A40DD2E3D05722F2A0AADC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

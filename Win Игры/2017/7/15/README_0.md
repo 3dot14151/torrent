@@ -19,8 +19,7 @@ Mystery Tales 7: The House of Others / Загадочные истории 7: О
 ```bash
 magnet:?xt=urn:btih:1DAD0008B53C60F7298E59E18A62762BBC3DF69C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sublevel Zero - шутер с процедурно-генерируемыми у
 ```bash
 magnet:?xt=urn:btih:94086E206CCC4DE3E102789D6D4A92EAC3CB6151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ultimate General: Civil War (2017) [Ru/Multi] (1.0.20111) License CODEX
 ```bash
 magnet:?xt=urn:btih:208601C3C1BC6A56E5F7FA6C0CDF23A3C1A9601B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sniper Elite Anthology / Sniper Elite Антология  (2005-2017) [Ru/En] (1
 ```bash
 magnet:?xt=urn:btih:B76C748D81B1AB24FDDD601C30AEC9F404A6C9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

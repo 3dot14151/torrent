@@ -27,8 +27,7 @@ VA - Горячие треки лета (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:0ED9C58A6875A6D9F5514933FF5665ACFFA0455A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:168E358E0477A7E0EDB6D80C1FD085B512F01984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - Official UK Top 75 Chart 2011 (New Entries) (Week 27) (2011) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:26D764D65BB30C630946ED2F82775F321E3BE3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Soul Jazz (2006) [FLAC|Lossless]<Soul-Jazz, Jazz-Funk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Arkan - Salam (2011) [FLAC|Lossless]<Melodic Death Metal/Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Frank Gambale, Stuart Hamm, Steve Smith - The Light Beyond (2000) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:BCD70C9E9304B5E4BA5A26B2DF9370D25E2B5BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Rnote 1.4.0.58 [русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ Tarot - 8 альбомов (1986-2010) [MP3|320 kbps]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ Wolfgang Voigt - kafkatrax 1 (2011) [MP3|320 kbps]<minimal>
 ```bash
 magnet:?xt=urn:btih:806AE34AE8C667EBF2ACDD5F8236D2865CAF6B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88571B346E505E016B14120F6714B533E18D4A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ Iron Maiden - Live Mexico City (2011) LIVE [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7C84907547826928614700F94C15B72B1A0E0DD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43BB643E04F756E6CF99984B438DCFEE354FEA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ VA - VIP Дискотека Бездна Лето Русский (2011) [MP3|128
 ```bash
 magnet:?xt=urn:btih:DF3EE9EC42C222E1D1CBEF7D7F5532A4B7EAA0CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E736FA902BFC2F19FE44D4C5330D40B73C3E941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ Susan Wong - Step Into My Dreams (2010) [MP3|320 kbps] <Smooth Jazz, Pop, Bossa 
 ```bash
 magnet:?xt=urn:btih:34DF4C9C3CA995472B8C4316E3A2ED7199D1BD7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ Chromium – мощный, но простой в использовании б�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ Sylvia Bennett - Smile (2010) [MP3|192 kbps]<Jazz, Bossa>
 ```bash
 magnet:?xt=urn:btih:09104DDFB9906CBDD103E1FAB00C2D7BC7642EA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ Unsolved Mystery Club 2: Ancient Astronauts Collector's Edition (L) [En] 2011
 ```bash
 magnet:?xt=urn:btih:BE2F8300DAA6A73EF98F232C7A31B5AB2DC23045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ Robin Beck - Do You Miss Me (2005) [APE|Lossless]<Melodic Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A514FAB4A30F133BCF4BD0A72D3C25F956348238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +691,7 @@ N/AЖанр: Electro HouseПродолжительность: 00:49:08
 ```bash
 magnet:?xt=urn:btih:4C73D40EA9282082B6916F35101F13F0CDE2F7AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +725,7 @@ Simona Molinari - Egocentrica (2010) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:0A9D7DC45C6A7F24DB4B1AF14353C4D44F6B66F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ VA - Disco Jazz (2009) [FLAC|Lossless]<Fusion, Jazz-Funk, Disco, Easy Listening>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:99BE464E0B6A197F52EF43D968A793B50C0B83F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Target-Multimedia | Большой словарь русского языка v.
 ```bash
 magnet:?xt=urn:btih:D2BFDE749F624EEDA984B63755D0B72C1F799F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

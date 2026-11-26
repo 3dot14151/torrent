@@ -23,8 +23,7 @@ World's Greatest Cities Mahjong / Маджонг. Величайшие горо�
 ```bash
 magnet:?xt=urn:btih:A8537CFD4B5740F63B58E6F62E1D713D2D82EEDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

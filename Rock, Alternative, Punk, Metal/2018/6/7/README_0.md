@@ -22,8 +22,7 @@ Trooper - Two For The Show (1976) Reissue, MCA Records [MP3|320 Kbps] <Classic R
 ```bash
 magnet:?xt=urn:btih:28115C4166D98BDB02CE07E849049E45C15F4530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tremonti - A Dying Machine (2018) [MP3|320 Kbps] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:E1EFD5A3A033554553D4D603F130E84A0777F2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

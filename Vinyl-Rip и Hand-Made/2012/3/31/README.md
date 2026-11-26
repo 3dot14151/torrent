@@ -28,8 +28,7 @@ Europe - The Final Countdown (1986)  [APE 2.0 24/48 | tracks (VinylRip)]<hard ro
 ```bash
 magnet:?xt=urn:btih:9561E9AE966EAFF6D3C5534CE24DE9BBD1CBAF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

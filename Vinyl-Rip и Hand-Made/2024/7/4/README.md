@@ -22,8 +22,7 @@ Velvet Cacoon - Genevieve (2004) Released, 2007, Southern Lord [FLAC|24/192|trac
 ```bash
 magnet:?xt=urn:btih:691436E439CC7E288A84F332F0AC60B99F8C69BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

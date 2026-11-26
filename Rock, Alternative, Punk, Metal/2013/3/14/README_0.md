@@ -28,8 +28,7 @@ Los Lobos - Del Este de Los Angeles (Just Another Band From East L.A.) (1978) [M
 ```bash
 magnet:?xt=urn:btih:D1E53350F1045CA53C2B2573E5AB34EA834F5448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Alpha Tiger - Beneath The Surface (Limited Edition Digipak) (2013) [MP3|320 kbps
 ```bash
 magnet:?xt=urn:btih:D28238D6B569F6E75DB2E1E91816A1B4DDD05E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Michael Katon - 10 альбомов (1988-2007) [FLAC|Lossless]<Hard Blues-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Bon Jovi - What About Now (2013) European Edition [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ AC-DC - Living In The Hell (1979) Bootleg /1991, Flashback World Productions [FL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Woodkid - The Golden Age (2013) [MP3|320 кб/с]<Chamber pop, Indie, Alternativ
 ```bash
 magnet:?xt=urn:btih:70C7247E80C030F244A100D654DEFCCC8F6482A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

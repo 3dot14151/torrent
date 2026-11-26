@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7C12BB9224BE04E4DAB1FFA1088AA997014C5869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7DDD4BC5334B5C88356B1DFA62B8E3661E68E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Hypersnap - инструмент для захвата изображения, �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Trance In Motion vol.90 (Mixed By E.S.) (2011) [MP3|320 kbps]<Trance, Vocal
 ```bash
 magnet:?xt=urn:btih:7801832753D44DB5AB1ECBAD29AF8C9461AAE023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Fashion Club Vol. 1 (The Haute Couture Catwalk Edition) (17.02.2012)
 ```bash
 magnet:?xt=urn:btih:937DFAFB077F95FCE1A8B555D5990C9BF6B7EDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ The Surprising Adventures of Munchausen (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:D1D85C9D93A789DA7489115226620479CAC546DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ VA - Brain Killer 52 Rage Generation (2012) [MP3|320 kbps]<Electro, Electro Hous
 ```bash
 magnet:?xt=urn:btih:EED4AC350550F2E5E930DAD34389B648AD6682E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ The Chicago Kingsnakes - Blue Mosaic (2011) [MP3|320 kbps]<Blues / Electric blue
 ```bash
 magnet:?xt=urn:btih:4AAE24A1348C2E562F7D50694048ED7CBE71358A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ VA - The Best Of Trance & Progressive 19 (2011) [MP3|320 kbps]<Trance, Progressi
 ```bash
 magnet:?xt=urn:btih:F5582C334190A3F7DD03187D299B8B201AAF772E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ The 335 Experience - Croydon Bluegie (2011) [MP3|320 kbps]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9BEB1A5FDA68125DB7593765C0E1BEDBE1F8FA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ VA - Stax Does the Beatles (2008) [APE|Lossless]<Southern Soul, Jazz Soul>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ VA - Ibiza Trance Party 2010 (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:CCD8BA219717001E8C4C3413A76912509BC40D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ VA - Улетный Попсовый Спецвыпуск (2012) [MP3|256 kbps]<
 ```bash
 magnet:?xt=urn:btih:46E5E73FD43D83E0C02D0052D041693D6BC917C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:085DFFD023FD36E3DEE036401C27904BEBDD74F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ VA - Ibiza Lounge Season 2011 (2011) [MP3|320 kbps]<Deep House>
 ```bash
 magnet:?xt=urn:btih:C9A37EB55825371CA862CC96D69D66F4AE11204F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ VA - Stay Alive (Compiled by Wega) (2012) [MP3|192-320 kbps]<Psychedelic / Full 
 ```bash
 magnet:?xt=urn:btih:458F62A31FA07C3C2E39E867F4CDC139D09D033E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +513,7 @@ Rizon - Masquerade (2012) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:72961180EA9FCC85F311A1F274BB816C16341B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16E0BB139A4A0EE2228A42AB81203163D93F9672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +565,7 @@ SeaMonkey — проект, основанный на добрых традиц�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57BCA699A9F3D72B9A60A268FDF022459CBBB068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:324640517385AA08683A022688F640AB711CED00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7CB056137132284D4D1E7C0D577CEB92FA3A45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85D501528D53B65FCA32F908ACAC4CB0C117E56B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BF23EB8AB0D61C87E822ADC00219E1A67F755D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:366A21B7E53CF04C7E617A87B98B88A2D89F7BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:508323398CD593F4A3C6EDBB0DFDC7A7CE479E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Xuan-Yuan Sword VII - это ARPG от третьего лица, сюжет к�
 ```bash
 magnet:?xt=urn:btih:C101D0CFB28F0A420EABAC596BAA4D8168B5EDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reverie Knights Tactics - изометрическая пошаговая RPG с
 ```bash
 magnet:?xt=urn:btih:9AA94AFB0DD0CB8C2A942F5A59CFE4B8AB7E35FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mary Skelter 2 (2022) [En] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:38AEC3EB08B4BFE54D0E92FFDFF29B62CCF5FBAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

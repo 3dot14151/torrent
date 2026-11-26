@@ -19,8 +19,7 @@ Strive Intervals v1.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:CCCAD402FE6485970F307CB76A4C0C07E4E62B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

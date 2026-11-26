@@ -19,8 +19,7 @@ Tales of Terror 5: The Fog of Madness / Трепетные истории 5: Т�
 ```bash
 magnet:?xt=urn:btih:77EF2940B0CA1BD4B950C66388D31A0AB1321D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ State of Mind — это футуристический триллер в дух
 ```bash
 magnet:?xt=urn:btih:644DB97C5BF15F1B3CB6E738BAACF9D9000D7438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

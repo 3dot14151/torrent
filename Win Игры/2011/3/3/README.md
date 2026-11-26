@@ -19,8 +19,7 @@ The Mysterious City: Golden Prague / Загадочный город. Золот
 ```bash
 magnet:?xt=urn:btih:801D5725EF597064B65C749C1802A989F4C16AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C8EF15D6E62FD3CB75B946C386EFAE2343FA0100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02D6FC1CC8EE0335E71793C95D0319647DBCFF21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2B8CBD6EF664BB7C9C4E28E4DBB7498FAD30BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - 10s Acoustic Covers (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrume
 ```bash
 magnet:?xt=urn:btih:0D1558DE259C762690009B4E7BA754CF32DC5A29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Discovery: Почему? Вопросы мироздания. Наступит �
 ```bash
 magnet:?xt=urn:btih:D711494541450F4B2C035E36AF5AF39EF5557797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - Жаркое Хитовое Лето (2016) [MP3|256 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:7B3181E46769E33998060392DF8BBC31BE418853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Weltschmerz - The Norwood Scale (2016) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <In
 ```bash
 magnet:?xt=urn:btih:98BC0572236FF4E4C71BC511B775904163275A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ SRWare Iron — браузер с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:B2CEAB46A500E085AE1A4B2E24F23673C6CE5E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016
 ```bash
 magnet:?xt=urn:btih:0882EFB38857A41C2527E4357123E542D32748BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016
 ```bash
 magnet:?xt=urn:btih:F25627D329DCE2B49A0CBAAE3F515696543E79B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Or
 ```bash
 magnet:?xt=urn:btih:4FBD64A16D359348D07EA3088B9489677AE035FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:393F4AC46E0999A8B95736FDEF7978D417784732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ VA - Russian chart. Русский выпуск (2016) [MP3|248-320 кб/с] <Po
 ```bash
 magnet:?xt=urn:btih:6D4E911544E27B4A86CE34B0D03D5A57C08E0161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EA9A1CCB4C36D94F0648C3351A119483E86B0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:162523B31FAD974098562A469691E9732C7E2A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ NetTraffic - удобная и небольшая программа для де
 ```bash
 magnet:?xt=urn:btih:6748C478E90461C830877A72A3CA465EF6C4B80B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ Smart Defrag — дефрагментатор, позволяющий довес
 ```bash
 magnet:?xt=urn:btih:DD264A1752EF3E0C00D5AABFAC5C291E825D46B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2646D47B63A50B8FF3B795E3FC475185D8936E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68F928C7255064004D6D30F109AB50CA142A8058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:8B15FF70AF5645FF8DDCF40FE2AED98E944B7B87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4FA9D1B5631F71CC2FFE3BA91A5FF2F42BFA8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ VA - Unwind Piano Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:EBE9492F99E16BD99632939E601A29301DDC1577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2A2CE4B84E7AAF0DC2510928B23448385F52734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +626,7 @@ Whitesnake - 1987 (2015) Remaster [APE|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F2E193585E3B9194D912506E0842849FF14FD2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ BBC: Horizon. Жизнь без старости / Don't Grow Old (2009) HDTVRip
 ```bash
 magnet:?xt=urn:btih:5F5339B453588670FC787685484831127CCC5F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ Running Wild - Riding The Storm - The Very Best Of The Noise Years 1983-1995 (20
 ```bash
 magnet:?xt=urn:btih:7B0216490797AC792EDC0A9061CF0E31FFF2EA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

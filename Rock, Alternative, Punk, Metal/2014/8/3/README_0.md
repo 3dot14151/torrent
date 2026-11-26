@@ -27,8 +27,7 @@ Necrodeath - The 7 Deadly Sins (2014) [FLAC|Lossless]<Black/Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4117F3B6F6EADC2CFADD4CF2BDBB9F23FE55F798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Fissure - Fissure (2013) [MP3|256 кб/с]<Hardcore Punk, Powerviolence, Fastcor
 ```bash
 magnet:?xt=urn:btih:766320F688E5C639868249E5D36B552C8CF5E718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ The Ghost Wolves - Man, Woman, Beast (2014) [MP3|320 кб/с]<Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:BC1C2F9FB01A3925E2A64FDF845DAC26C809E688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A3A2DC40C9D8B92E3340E9A94409DB64AE070B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Cecilia::Eyes - 4 альбома (2005-2014) [MP3|320 кб/с]<Post Rock, Instru
 ```bash
 magnet:?xt=urn:btih:5371FC977E54CC724F5F9D7A1D14C35679640485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Guilty As Charged - Leap Of Faith (2014) [MP3|320 кб/с]<Heavy / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:FDA731291AA25BF43BC7A87645D69DF3DBB6E08D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Marc Broussard - A Life Worth Living (2014) [MP3|320 кб/с]<Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:97D4EB40A7A5DCBA0E0ADDBB5DC101F6B03F27ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ BloYaTop - Mayday (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C775C64B4956D74C1C1B2BB156299A96908CE09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Unisonic - Light Of Dawn (2014) Japanese Edition [MP3|320 кб/с]<Melodic Heavy
 ```bash
 magnet:?xt=urn:btih:7A5A92021027AF13E95DBB056E1A64B347F25DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Dark Lunacy - The Day Of Victory (2014) [FLAC|Lossless]<Symphonic / Melodic Deat
 ```bash
 magnet:?xt=urn:btih:C00B9049481DDC4BA778218025C8CB0EBB64C36B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +356,7 @@ Helix - Bastard Of The Blues (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:21C6B7F8FE7261C62DCD7E191AF08AEF040D1474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +388,7 @@ Smile - Ghost of a Smile (1969) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:9FB1B1017AD1D14308A786A5E7B5F719D3A571AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +422,7 @@ Arion - Last Of Us (2014) Japanese Edition [MP3|320 кб/с]<Melodic Heavy Metal
 ```bash
 magnet:?xt=urn:btih:FCA59F261E8FF5BCBB6B3BDB78098EE36DC90649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:618306C617FA235A0BE43CCF53116A731DD992C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +487,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:1409D0D13D2E386D03E492370B7BC272ECCAC210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

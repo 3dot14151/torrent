@@ -19,8 +19,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.7.0-68176-154/dlc) Repack DjDI [Essential
 ```bash
 magnet:?xt=urn:btih:EEF9E4D04651C37DF593FFEC6C28C3C111D30931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crying Suns (2019) [Ru/Multi] (3.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:FFB9E47D7366B608FEC70620399172093340F4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unsolved Case 2: Murderous Script / Нераскрытое дело 2: Сцен�
 ```bash
 magnet:?xt=urn:btih:76F804706BC8267BCB996BD5E4A8B09A58DEBE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

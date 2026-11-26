@@ -19,8 +19,7 @@ Golf With Your Friends (2020) [Ru/Multi] (258/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AF26896585042D69B73FE59623A91443D6333A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

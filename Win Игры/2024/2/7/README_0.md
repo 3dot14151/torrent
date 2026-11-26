@@ -19,8 +19,7 @@ BeachHead (2024) [En] (1.3.25) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5E4D9B01C9D6CA323AD60296C81514B53C80A84C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9AA96A79603881B54FBA0500E1D7266EB81D0910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Anomaly Agent - динамичный 2D экшен-платформер, в ко
 ```bash
 magnet:?xt=urn:btih:1659CB76614AF908A1C029F2F8E3F765424A3C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Great Rebellion - экшен с олдскульной пиксельной 
 ```bash
 magnet:?xt=urn:btih:9AFEA1F08DA9608C6CF16B0B1B5C2BEE73866309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Steel Echoes – сойдитесь в эпическом противостоя
 ```bash
 magnet:?xt=urn:btih:B57C6E07FDE2B861345BE80B4BBBE2A905D48E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

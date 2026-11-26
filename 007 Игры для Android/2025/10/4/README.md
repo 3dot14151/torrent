@@ -19,8 +19,7 @@ Jigsawscapes® - Пазлы v4.2.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5FB831F4E8AADF931FE95109C95260ECDAEA0F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Words of Wonders: Игра в слова v5.5.20 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:10F661545C287F9720EB698CF340109383F7F9ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Shakhtyor - Tunguska (2015) [MP3|320 кб/с]<Post Rock, Doom Metal, Sludge , In
 ```bash
 magnet:?xt=urn:btih:01C2BC3FFFEB2C4733A2B726556A1E88E3A20533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Implode - I of Everything (2015) [MP3|320 кб/с]<Melodic Death/Groove Metal>
 ```bash
 magnet:?xt=urn:btih:9D2CC1BC91CA8E3ECACE3B183E5C1A4706EFDFC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Ereb Altor - Nattramn (2015) [MP3|320 кб/с]<Viking Metal, Doom Metal, Epic Me
 ```bash
 magnet:?xt=urn:btih:DCD8F2FB95C7BD1E3A834A74114A66B8491D0CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Lustre - Blossom (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
 ```bash
 magnet:?xt=urn:btih:60E1C72E3B0A66DF26B6E26A3843F69CCC829B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Basarabian Hills - Enveloped In The Velvet Cloak Of Midnight (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:88EC7A0C0BAD5CAE7D64FBBC0FF968367B9C6795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Schwarzer Engel - Imperium I - Im Reich Der Götter (2015) [MP3|320 кб/с]<Sym
 ```bash
 magnet:?xt=urn:btih:69A4B4FB43CDDABDBFA5EEDA5D7DB8C972455E76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Thomas Blug - Electric Gallery (1997) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:C5818809EAC6CCC6339D85F7AD43BB7E40F4F86B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Paradise Lost - Maximum Plague (2015) Metal Hammer Exklusiv [MP3|320 кб/с]<Do
 ```bash
 magnet:?xt=urn:btih:829DE21FA807C7FB79975ACBC06D1322551C30D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ Kiske / Somerville - City of Heroes (2015) [FLAC|Lossless]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:416FB38B65253B8B087EC34DC0C699C3ACB0BAE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Seikoku no Dragonar | Dragonar Academy | Академия Драконов [2014
 ```bash
 magnet:?xt=urn:btih:106D92F121A67A2073F92BA9EE912612C1D8B77D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SamDrivers 14.7 - Сборник драйверов для Windows [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:58EAA7165FD0BC28137C79384CA704239F9875AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Blade and Soul / Клинок и Душа [2014, TV, 13] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:92DCC4517EA3D0A39C914B9526FFA0F750753ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E55E87A3B9D47AF7CF21E59E5EF0FADA4C9680FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Magic Partition Recovery от East Imperial Soft предназначен для
 ```bash
 magnet:?xt=urn:btih:2C7EA07124EA00A46BC924E685147A5CDCFBA316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCEAB57AC7EFEE84B05EDD2AC17EC81DED9C0E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2 upd1) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:86489E883620D2ACA58227B8BC20F92EDE0D55C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

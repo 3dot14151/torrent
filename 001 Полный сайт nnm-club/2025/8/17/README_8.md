@@ -21,8 +21,7 @@ Scott Fulton - Closet Blues - Scott Fulton - Closet Blues (2025) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:FB37DBAD28D8A480554380FB63EE0179A4815FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C52DC202EBF8C53FC8B70F0FDF0595D258D60668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

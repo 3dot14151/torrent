@@ -19,8 +19,7 @@ Stirring Abyss — пошаговая тактическая инди-игра �
 ```bash
 magnet:?xt=urn:btih:438BFBA0A4739EDE8C6E4493601E0ED71840FCAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.00.12) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C8E60B61855E46E1F222B4E7172C33042B85428F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Manhunt Anthology - это собрание всех представленны�
 ```bash
 magnet:?xt=urn:btih:2EE4092B8FE773DBFF42FFD88A945ADBCA0547CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

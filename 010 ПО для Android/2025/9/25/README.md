@@ -19,8 +19,7 @@ RUTUBE — официальное приложение одноименной о
 ```bash
 magnet:?xt=urn:btih:2CD6F82D4DD46D180992539E4F03A9C1D7CBF0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rosetta Stone: Изучение языков 8.34.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:17A8E2EA95CF332F22538147112A0097CEE050C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

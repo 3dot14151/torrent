@@ -21,8 +21,7 @@ VA - Rough Boys - Hard Rock Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:3EA2CC154E64FB10F4BAB18DD9A53574EFFF4089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Angelo Comincini - Misteri Architettonici (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:0E9C74B97A1A69FC543E4DFF748490AA71CA382A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ QuarkXPress 2020 16.3.1 [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:D27E23C3963FEB1F365FBD687C52B644379A262E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Akane Maniax | Фанаты Аканэ [2004, OVA, 3 эп.] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:DB774A0511D5F68C44F8EA6A637F4B128E753CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E8035992F8D5B0866C3CB9E106D6B4EC73E4C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E7ADCB13CA824BF0C685D199BB5E422197CA356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Aleph - Little Wonder (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobea
 ```bash
 magnet:?xt=urn:btih:492A85AC1BD4D312049A0C9AD435AC565961660C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F1D85EEEF24788F1A503EE11DB1EB10495D16A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Moonspell - Hermitage (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal, Goth
 ```bash
 magnet:?xt=urn:btih:A40DBB825C60A16757184073C2B362B19AFF0D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F795704EDB7EFF0CAC81C30B5F27A6EE2315F4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6410A353B03DFCEAED53432202D582764B63D86D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4C4607BA0586B0F84F6DEAE347F31FD29C391A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Advanced Installer - приложение, с помощью которого, �
 ```bash
 magnet:?xt=urn:btih:AB1023923E9E99E6C38BA2DE461EE82A32079B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Orion the Hunter - Orion the Hunter (1984) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BF0E93BDF0A721EB5E231F423A825CFF38F019A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Aleph - Black Out (1988) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-D
 ```bash
 magnet:?xt=urn:btih:E0B403654C0953B9FA00588E3DC1CD1E5B73B72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ Nexus VI - Enslaved (2021) [MP3|320 Kbps] <Electro-Industrial, EBM>
 ```bash
 magnet:?xt=urn:btih:ECEDBD6FFB804B28661085802448453587781769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Amadeus Liszt - La Donna (Original Mike Mareen Master Tape Series) (2019) Expand
 ```bash
 magnet:?xt=urn:btih:E91BB36A08ADC84D391BCFE8C91936FD4BFE0850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:835BEB60F7DF4F126B9533ADC38B9FCCCB72EDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ VA - Lazy Jazz Cat vol 2 (2021) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:6F73240628A499E20AB7A98B73EB17E4A9F0C809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAA1EA84B6D291AEEEC1AB4A52358D05E1012991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:702015923F684D1960FBCAEBD96C40DAABA6D563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F67C6594B74678C8CE572F94D1EAC7A3F01B560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ Amadeus Liszt - Win the Race (1987) Singles Collection [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:987F4D2433E2ABE46109D5F41D1D0DB16D958C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ Lovebites - Electric Pentagram (2020) Japanese Edition [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:D5819D420C6A0521856CBE60FBA43C43332BD3FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ Erementar Gerad | Elemental Gelade | Воздушные пираты [2005, TV, 
 ```bash
 magnet:?xt=urn:btih:E139C9F448121872AFBB91E0B6319F240AA5B39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ Lida - Музло из гаражей (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:3A68C73B9E4DAD27ED4E6014E6B4A62F12CB1A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

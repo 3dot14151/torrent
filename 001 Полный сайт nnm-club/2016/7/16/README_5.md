@@ -21,8 +21,7 @@ VA - Дискотека Казанова Старые Песни По Новом
 ```bash
 magnet:?xt=urn:btih:EA562AAE9F23E4573240173093A088C8C71D78CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5EEB0778A36FF124127A6FD1CDAA4E036BCA9DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ryse: Son of Rome (2014) [Ru] (1.0.0.153/upd3/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:3DEAE6859502D05442BFC6DE95CC4028D8D9ACBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Navitel / Навител Навигатор v9.6.2674 RePack [Ru/En] - толь�
 ```bash
 magnet:?xt=urn:btih:DA1C2F7F366DC558B4020227874BE3161B4BDEB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35571D646FF4EC9D0B2C074FBB90EF1DD7E63EFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

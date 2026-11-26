@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:4E115347A419F1862383762A4E142355AB3CABA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ June Christy - Complete Capitol Small Group Transcriptions (1945, 1946) 2001, Ja
 ```bash
 magnet:?xt=urn:btih:031C31889EDF87CAFB1C037653DDB35383E41EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77909FFDE22BD259ADDA99116FEEA35F09A95033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sidney Bechet - Jazz Anthology (1952) 2007, Promo Sound [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:896A7CF9B5461B5A6A37EA3E9616D9D4E1777645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Драйвовый молодежный весенний музон. Вер
 ```bash
 magnet:?xt=urn:btih:5D24F53A2122C72C2D8AD46F24A6F8F3840AE3E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Electric Heaven: 100 Progressive Trance Mix (2017) [MP3|320 Kbps] <Trance, 
 ```bash
 magnet:?xt=urn:btih:D2334EACD2CBB78700747454F063D23BE2934EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 ```bash
 magnet:?xt=urn:btih:62EC05E424715E028E63ADAA1C33B69DDA8813BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ FSMonitor - это приложение для MacOS, которое отсле�
 ```bash
 magnet:?xt=urn:btih:C1211A89EE0D315F58A57BE5C959F2F255A3ED86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ File Juicer может быть использован (   Читать дал�
 ```bash
 magnet:?xt=urn:btih:1B44F9BEF61DB766BECBEC387048B0C44B483362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Dancefloor Everyday Mix (2017) [MP3|192-320 Kbps] <Progressive, Electro, In
 ```bash
 magnet:?xt=urn:btih:04C53037791CD022A313F6FCF183C0F1D0BAFC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Laurindo Almeida - Chamber Jazz (1978) 2000,	Concord Jazz [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:EE3DCDB02DCEE133AFFC043630F47374B9054BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B726FCF89FE023FE6C1A416EA4979BA534182B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Johnny Crash - Unfinished Business (2008) [FLAC|Lossless|image + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:26D92F1D5CC5B6E972BCEFF9C3E5DB3654270DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ VA - Любимые хиты весны. Часть № 11 (2017) [MP3|256 Kbps]
 ```bash
 magnet:?xt=urn:btih:58D22D43B7B31A5D173C15D6701878DA762F2228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ VA - Glamour Deep House (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:ABDDFE770B7889E79DC2029A07CA8B706725C59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ VA - Sportskanone Vol 1 (25 Dance Bangers To Make You Sweat) (2017) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:DF6AB8E3A5F859B30AD63A4393D2B5645893C265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ QuickPhotos for Google - это приложение для Mac, в которо
 ```bash
 magnet:?xt=urn:btih:858D0B4627568E73B854785DB726E8F5A88E3A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ VA - Русский отрыв на Русском радио. Выпуск № 
 ```bash
 magnet:?xt=urn:btih:C8633DDA6808C1205EAA7F9429AD327B09FE455E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ VA - Blackness Logic: Techno Minimal Compilation (2017) [MP3|320 Kbps] <Techno, 
 ```bash
 magnet:?xt=urn:btih:7F4157D82F2FA7D1DABE475E685B381ADC0E0ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ Frank McComb - The Truth, Volume One (2003) Expansion [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:D0394B86CE29DECD344F3AD70E991D0A7B66EB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ Innes Sibun - Superstitious (1995) [APE|Lossless|image + .cue] <Blues Rock, Clas
 ```bash
 magnet:?xt=urn:btih:C8808ABF0FE4845548CB4FAB6DDF6CA812F1D282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ Eddie Higgins - You Don't Know What Love Is (2003) Venus Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:AB6258D451A95895AFA7675AAAD23060C4FBE33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ Volbeat - The Strength / The Sound / The Songs (2005) [APE|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:B36B14B8399A9817B28BA6ED7A61C1D7D566BE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ VA - LUXEmusic - Dance Super Chart Vol.115 (2017) [MP3|320 Kbps] <Club House, Da
 ```bash
 magnet:?xt=urn:btih:D6CD8D05BB49376F810F55A9D24F1DBFAE3620F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ VA - Положительный заряд Hit FM. Выпуск № 9 (2017) [MP
 ```bash
 magnet:?xt=urn:btih:880C6EC6249BD925BF07F78697EC69C686AB3DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ VA - Зажигай вместе с Europa Plus (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:5D639A9E64ABA5928BC8C66C54F6CAFF04FE187C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

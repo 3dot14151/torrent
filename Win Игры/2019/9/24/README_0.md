@@ -19,8 +19,7 @@ Chimeras 8: Heavenfall Secrets / Химеры 8: Секреты Хэвенфол
 ```bash
 magnet:?xt=urn:btih:72621874EC95507E18E28C6AA2CB4F80ED95187D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Keeper of Antiques: The Revived Book / Антиквар: Книга кошм
 ```bash
 magnet:?xt=urn:btih:898ED1A04FE446FDC9CEC8CAD4A5F94F9CC9FFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Palmyra Orphanage — это паранормальный хоррор от пе
 ```bash
 magnet:?xt=urn:btih:DC1505B6048AEE6FA13041259DB066176193D73D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Eador: Masters of the Broken World / Эадор. Владыки миров (2013
 ```bash
 magnet:?xt=urn:btih:1D0C8F9BF1AF3B04405496214BF2ABF1055F2B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

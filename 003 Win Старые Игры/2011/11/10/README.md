@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C815A9E83933261829F0B83DC52E4862810C6E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sherlock Holmes: Nemesis / Шерлок Холмс против Арсена Л�
 ```bash
 magnet:?xt=urn:btih:199D833817E59D30E03DD059B7413655784A2533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Theocracy [Multi6\+] (P) 2000
 ```bash
 magnet:?xt=urn:btih:C710AEB705001912D9A3B2397DE5D0911A9E0FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

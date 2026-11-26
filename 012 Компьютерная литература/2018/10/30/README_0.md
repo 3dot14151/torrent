@@ -20,8 +20,7 @@ Good Luck! Have Fun! – приветствие, известное геймер
 ```bash
 magnet:?xt=urn:btih:41615AB71171AB693426B05B0BF743F8B652F678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F419F65CD0F0C5A64E5CD4586CF60B49595ACEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Duplicate Photo Finder – софтверный инструмент, предн
 ```bash
 magnet:?xt=urn:btih:DE743E4F43BDCB8BB66FE48E523F51A6C6CE36BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

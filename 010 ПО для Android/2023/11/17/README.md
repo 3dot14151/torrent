@@ -19,8 +19,7 @@ Seal 1.11.0-rc.3 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EBA85858483FE45A9EE33BE6DE386009EC632890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Baldur’s Gate: Enhanced Edition – ремейк легендарной РПГ
 ```bash
 magnet:?xt=urn:btih:4B6C97A9031FED6D7300617DECDA73718798F82F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Far Cry 3 [Xbox 360] [RUSSOUND] [Region Free] (XGD3) (LT+ 3.0) (2012)
 ```bash
 magnet:?xt=urn:btih:C6CB805E33407A91C4A0A94C9762FEFED4F49418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Mass Effect 3 — третья часть саги о войне органич�
 ```bash
 magnet:?xt=urn:btih:62E7C0FD70A103F1F9D0D67DE10BA961DD7BC5FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Far Cry 3 (Русификатор/1.0) [Ru] 2012 | Бука
 ```bash
 magnet:?xt=urn:btih:916F539DF3015FE23C450CF6BCE67F93ABA33B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Alcohol 120% - эмулятор CD/DVD-дисков. Программа созд
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

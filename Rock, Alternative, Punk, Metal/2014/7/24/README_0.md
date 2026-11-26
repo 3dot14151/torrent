@@ -27,8 +27,7 @@ Crows An Wra - Kalopsia (2014) [MP3|320 кб/с]<Screamo, Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:62FC3F5161399AADD502EADB200E52E5FC89DD16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - This Is Frenchcore Vol.3 (2014) [MP3|320 кб/с]<Frenchcore>
 ```bash
 magnet:?xt=urn:btih:DA6F873AB9D597B6D6F36F04F227CC26A7A63E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Crystal Eyes - Killer (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:FDCC8E1F59B34C65ED8BC949A19D8EB26C78D61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Niva - Incremental IV (2014) Japanese Edition [MP3|320 кб/с]<Melodic Hard Roc
 ```bash
 magnet:?xt=urn:btih:31004313420A738CB46659628FBA201B217E6EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Lacrimosa - Live in Mexico City (2014) 2CD, Live, The First Edition [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:1B6DFF67B0B5EF92DD33E8BDAB40C88E2AD3E263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

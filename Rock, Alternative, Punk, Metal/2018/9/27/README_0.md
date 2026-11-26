@@ -22,8 +22,7 @@ Almas Militares - Almas Militares (2006) [FLAC|Lossless|image + .cue] <Power Met
 ```bash
 magnet:?xt=urn:btih:DBF12D27CA915521023DFA8FA6BF19826F1DB7F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Almas Militares - Nubes De Gloria (2004) [FLAC|Lossless|image + .cue] <Power Met
 ```bash
 magnet:?xt=urn:btih:47A765CEDF36F63A0E46D969864D9CC0CC72B3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Almas Militares - Tormenta Solar (2012) [FLAC|Lossless|image + .cue] <Power Meta
 ```bash
 magnet:?xt=urn:btih:5D46B17E10EECA5490247EC8AA6CB6DCDDE32439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Finsterforst - Weltenkraft (2007) 2CD, Reissued, 2008 [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:D83EFB459F17A406573B98AADB45F9AC014126AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fortíð - Völuspá Part III: Fall of the Ages (2010) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:83E7A4D8E2345CD19300314BF52E0C844F233E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Demonical - Chaos Manifesto (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:3FF4C07388E5816A50B41C8F7B6967E89700217E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:042FE9B33D99E0F85B9771C3A90E2CE16A3EF767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91D56375B87F39733F6C951F98DB831CAB1B21AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Stefan Berggren(   Читать дальше...   )Жанр: Classic Rock, Hard 
 ```bash
 magnet:?xt=urn:btih:9779B8D923FE708609EDBEB0C99CF15349C6FAFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Wolfheart - Constellation Of The Black Light (2018) [MP3|320 Kbps] <Melodic Deat
 ```bash
 magnet:?xt=urn:btih:782CD773ECF39A044F2EF647611A250DBEE8B7C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Brainstorm - Midnight Ghost (2018) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:D099035C8A0B758013F673AF0320A564E2983F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Drowning the Light - Varcolaci Rising (2017) [FLAC|Lossless|image + .cue] <Black
 ```bash
 magnet:?xt=urn:btih:2420DDFF571F0B1228D8D2BF21E65635CD273C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Slash (Featuring Myles Kennedy and The Conspirators) - Living the Dream (2018) [
 ```bash
 magnet:?xt=urn:btih:AB8A5B652232EBB9BF058041B018C70F942F9A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Rod Stewart - Blood Red Roses (2018) Deluxe Version [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:93131E1441FF4E4E3C12D4B1823958CAB77B192A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Stratovarius - Enigma: Intermission II (2018) [MP3|320 Kbps] < Melodic Power Met
 ```bash
 magnet:?xt=urn:btih:FD66B7AB6420E50398153B7E8A03E6018A6A44DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

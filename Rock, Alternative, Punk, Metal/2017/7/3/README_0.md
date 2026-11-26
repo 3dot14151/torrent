@@ -22,8 +22,7 @@ Winter - Into Darkness - Eternal Frost (1999) [APE|Lossless|image + .cue] <Death
 ```bash
 magnet:?xt=urn:btih:00927A7FB122E6EA16E929458459F2717EC73898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

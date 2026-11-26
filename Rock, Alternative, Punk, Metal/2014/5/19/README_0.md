@@ -22,8 +22,7 @@ Kultivator - Barndomens Stigar / Waiting Paths (1981-2006) Reissue /2008, Mellot
 ```bash
 magnet:?xt=urn:btih:7FE1539EBCFFF99104866CE9358C2AFF7A96D2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Alto Saxophone, Tenor Saxophone, Flute, FluteЖанр: Jazz Rock, Contemporary J
 ```bash
 magnet:?xt=urn:btih:3993BEC4F1C5350171D3519B80B8B0D88ED0A8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Automatic Fine Tuning - A.F.T. (1976) Reissue /2005, Lake Eerie Records/ [FLAC|L
 ```bash
 magnet:?xt=urn:btih:69D440A22F49DD73EE5D42F277E01DE6A3AB969F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Michael Sweet (ex. Stryper) - I'm Not Your Suicide (2014) [MP3|320 кб/с]<Hard
 ```bash
 magnet:?xt=urn:btih:1FD334D178D0E758A8EBFF6A3B2909DEDE1AF5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Jan Akkerman - Minor Details (2011) [FLAC|Lossless]<Progressive rock, Jazz fusio
 ```bash
 magnet:?xt=urn:btih:B270FB7C77FFCCC3EEB993EDD06D21C39F144305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Alice in Chains - Black Gives Way to Blue (2009) [MP3|320 кб/с]< Alternative 
 ```bash
 magnet:?xt=urn:btih:63512A66B0CEE8F7724FF8BDB33A291D39E74C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

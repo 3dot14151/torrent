@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:965877426AFE1CFC169480EE89020036B0A12380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - The Only Trance Collection 06 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:2187D88EA9D53E5F6863397DC2132E3BE3C1D6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2F30172BB47C2BB1A99689F847698EF0D58CD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FB9158639F2275BE21E4E865E014B16C584275E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Mike Zito & The Wheel - Gone To Texas (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:D8A979A69B36D375113D68DFFAFFADFE2E93DB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C993FB15D2CCFF07F10ADCD5A26284F8471317B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C4F85079334510460DAF35E5C245C94CC969526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03B45B02DF8909B630D0E3A8D920D2A3A9AC2AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDD2E447F94F7959144FF59D5FFEEEDB9502295E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49C7BF6629808062A9185AC1A9372B52CDD1831C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50713FAEE2087F74689DE7EB764C6CF060950DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Thunder - Live Wacken 2013 (2013) DVDRip
 ```bash
 magnet:?xt=urn:btih:6BAA6B1ECCF9503EB40817F9D802F4FE420DD622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ Ministry - From Beer To Eternity (2013) [FLAC|Lossless|WEB-DL]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:D9378941F82260105A4F41B05076A5CD31FB86AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ Ran Kirlian & Jaja - Cosmos Vol. 1 (2013) [FLAC|Lossless|WEB-DL]<Ambient, Space>
 ```bash
 magnet:?xt=urn:btih:26F962532609B954E63C9B138C9EAF3109B71D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE63525CFD793BB547959E15830587542E56D791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +451,7 @@ Astrix - Trance For Nations 011 (08.07.2013) [MP3|320 кб/с]<Psytrance / Full 
 ```bash
 magnet:?xt=urn:btih:38A6023223F90992700765410DBAE6B33BFDAF43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ Asia - Asia (1982) /W.German Target CD  [APE|Lossless]<Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F96A52EF98D6D38E0054789F6B5BA91933AF37E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADCA34214197AD83A38A0DB18F350DB036CA8266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:04FC6D91BAD16C288E13125BE0141E2207E6B7A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:40769CA25CB7B7A39BC31458FB8A77FE7E22807F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ VA - Jazz Festival Vol.3 (The Most Beautiful Jazz Essentials for a Chillin' Summ
 ```bash
 magnet:?xt=urn:btih:77A6191E792B2AF54359AFC867777D4AE3C44E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +627,7 @@ Aynsley Lister - Home (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:C9848AA6E330BB50E3CB2BABCA3674DCDA6B8CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +652,7 @@ Mojosoft BusinessCards MX 4.88 RePack by AlekseyPopovv [Ru]
 ```bash
 magnet:?xt=urn:btih:F68234E1F4387BCA0104E49EAD87DA182EEDA615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +686,7 @@ VA - Sexy Lounge XXL (30 Perfect Chillout Tracks For Your Sexy moments) (2013) [
 ```bash
 magnet:?xt=urn:btih:E5473625B213746B95C47231C51D85959D9ACE4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ John Digweed and Friends - Live in Miami (2013) [MP3|192 кб/с]<House, Deep Te
 ```bash
 magnet:?xt=urn:btih:648EA31AAC6D123CEEF78D8695A52BBD242268D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ Graeme Edge Band - Paradise Ballroom (1977) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:B6E7AF532A8D065B62D2572C17A205C31C06A1D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

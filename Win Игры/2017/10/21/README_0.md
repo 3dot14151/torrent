@@ -19,8 +19,7 @@ Project Cars 2 – это вторая часть мегауспешного г�
 ```bash
 magnet:?xt=urn:btih:CAF7EA8D04B29C66EB9594040264C0CD11F37F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadow Warrior 2, продолжение неординарного шутера
 ```bash
 magnet:?xt=urn:btih:C1BF67322B0DF9C975F026BE40D9B955C12F20FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hitman (2016) [Ru/Multi] (1.12.2/dlc) Repack R.G. Catalyst [The Complete First S
 ```bash
 magnet:?xt=urn:btih:A992781643F771852F367183673B12ABCAEBC092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DUMMY LIFE - игра-головоломка из научной фантаст�
 ```bash
 magnet:?xt=urn:btih:D8A6346DB892D0200C35EBA6FCEE158053298BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Inner World - The Last Wind Monk (2017) [Ru/Multi] (96894D) License PLAZA
 ```bash
 magnet:?xt=urn:btih:DCBEB0FC3C382DF947736E44CAD2CC220292B2AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

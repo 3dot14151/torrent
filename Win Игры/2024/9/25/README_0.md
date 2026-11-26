@@ -19,8 +19,7 @@ Disney Epic Mickey: Rebrushed оживляет магию мира Disney в к�
 ```bash
 magnet:?xt=urn:btih:CAF51D7C7DDCF5464E45040F6BFCFB99AE5A01F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором
 ```bash
 magnet:?xt=urn:btih:5CB12F1BA264AFCFEDADF4FB0165719B432EF387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ City Bus Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:81702FE672B70D435CF09B35897E08803891F8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:027F5F96AA2B782DE47924DAB20096ABBA13CFA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:B72222769C67FD78E7EC2593ECB8671A156EF848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

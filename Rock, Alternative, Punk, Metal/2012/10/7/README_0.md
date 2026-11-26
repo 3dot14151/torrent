@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:76DCFCCB03C106340B65D71D9F06A27821C5C738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Трибьют Гражданской обороны (2012) [MP3|128-320 kb
 ```bash
 magnet:?xt=urn:btih:C0E0B0E2A59F09F74A9A54FD049FF4C155123472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Genesis - A Glimpse In The Night (2012) бутлег/ [FLAC|Lossless]<Progressiv
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

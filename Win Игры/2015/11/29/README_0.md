@@ -19,8 +19,7 @@ Serious Sam: The Random Encounter (2011) [En] (13.11.2015) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:50D7BF04F5DB6CC6FA68859B39FB637A8AA2D040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

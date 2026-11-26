@@ -19,8 +19,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:79BD296118F76448DBD5A31B88AA1282CB5D6280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:C4B16F39BA6DB096FC5AAC0D8FEBA159727D2B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Opera One 132.0.5905.102 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4D2E3C96ABF965A74D6F4DF09E5883DCCF9FA787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ HDD Regenerator 2024 [En]
 ```bash
 magnet:?xt=urn:btih:26DC957126E83D6CF781499178204C01F8A121C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MAX Desktop 26.21.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7FE64A6816552A7123F0BE8BBE0768AB8685DDC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

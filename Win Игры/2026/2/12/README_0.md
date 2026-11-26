@@ -19,8 +19,7 @@ God Forsaken (2026) [Ru/Multi] (1.0.3/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A18000F11D22FC1B163805BFA69362531E0CEC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Guns of Fury - это экшен-платформер в ретро-стиле, 
 ```bash
 magnet:?xt=urn:btih:CED005CF3DADB3AB87601AB699899C7DBBB3DD9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FRONT MISSION 3: Remake - это тактическая ролевая игра,
 ```bash
 magnet:?xt=urn:btih:E78F8B574CDD535D21DCBDC98303FABE45370628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Relooted (2026) [Ru/Multi] (Build 21884112) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8098C0FA30174D6708CFD5A25402E7A24C70D931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mewgenics (2026) [Ru/Multi] (0.0.20622) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6E9F4DC1EAF60FC4093A9DDEE0ABF054D539AF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.3) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:C10778FB4C586200C63651C71C7A26936C5FE0B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Fear The Timeloop (2026) [Ru/Multi] (1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CD81D2AA7A7E00DDC330CB4380FB34E96AE5C849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

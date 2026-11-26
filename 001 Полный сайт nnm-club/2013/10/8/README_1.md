@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:3868208306DF08705664CDC4902E6A964927CB4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ VA - Never Ending Summer In Ibiza (Presented By A.C.K.) (2013) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:6DB69B80A85AE887493B6B47ED56DE6447390BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Dissection - Storm of the Light's Bane (1995) [ALAC|Lossless]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:3BFC7588C93364AA5A0B4E96BB04BA3E5310C12E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Whisper of Consciousness Volume 44 (2013) [MP3|320 кб/с]<Vocal Trance, U
 ```bash
 magnet:?xt=urn:btih:F71B79E2D75B5185DF39D527FBF5325CD1B86D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Stanley Clarke - Hideaway (1986) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Fusion, Pop 
 ```bash
 magnet:?xt=urn:btih:ACCB96566A339E8483F7A8C8E4F2C3100BB8A4A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:647B748D0471C5CB46AE980654EA5F7E730EDE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Mediks - Cannibals EP: Part 1 (2013) [MP3|320 Kbps] <Drum & Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:4CCB8BA3151B691B8FEC964A80E5397A46CBEB93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Simply Wave - Changing Direction (2013) [FLAC|Lossless]<Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:B03088BE0ABC21F49D7C21A9696BDA4A1C4EC166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09ED64D985A155E98E649A61632CBF1197A83C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ B3.  Здесь...  :: 09:05Жанр: New Age, AmbientФормат: Vinyl, LP, A
 ```bash
 magnet:?xt=urn:btih:ABDD6FAA3DFB092C74BD3DA7B85DC358F553BBC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B42EA299C089887BAE9A1C8FA26A1A8CBD96CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D54F58983AD931223B538E69EA4F329BD2F1D7A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D91553C3799518F1A91919657D809BDCD34126C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ Peter Gabriel - And I'll Scratch Yours (2013) [FLAC|Lossless]<Indie, Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:1B11B44184C1CE4C351B16CE86C3C0B2331D3457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6824E662CDC4C375800D7360D1FE4CB69676F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF59F7BAF33617D06805A10AC98FB28ADEA37F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +518,7 @@ VA - Now That’s What I Call 80s Dance (2013) [MP3|~245 кб/с (V0)]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:CC966973F866848741C13C4C68256B015530AA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0B4F32AF1A05E5088D2545B49C76D3B68ED45CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ Shako-Pani - Tia Carat (2012) [FLAC|Lossless]<IDM, Drill'n'bass, Drum'n'Bass, Ju
 ```bash
 magnet:?xt=urn:btih:6AD676BD631C121143FA7A066B915719CB770B80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3986A470CFB45CA9E0C66F2F06A97DA684B8C5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77AE74B21D1A422126429827D9039BA5D8FC40B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF6A91A9622BA7A2DE893872E6C156EE948313F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB17F2203A473FABC8698064205F3AFFCA910CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +717,7 @@ Pearl Jam - Lightning Bolt (2013) [MP3|320 кб/с]<Grunge>
 ```bash
 magnet:?xt=urn:btih:D00697DB23C59CAECDFE0FE1EA9B28C6C263F2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +752,7 @@ Megadeth - Countdown to Extinction (Live in Pomona, CA) (2013) [720p] BDRip
 ```bash
 magnet:?xt=urn:btih:1AA21E650FA78E4C447984D1DF2294A7BF83EF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

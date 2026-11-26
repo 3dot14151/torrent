@@ -21,8 +21,7 @@ Online-мобильное приложение "Фармацевт в карма
 ```bash
 magnet:?xt=urn:btih:814285A5C53D5BA138AA49695FA140E46387DDF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F59F59F716E05D4B2543832E2A568F4FD07917BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

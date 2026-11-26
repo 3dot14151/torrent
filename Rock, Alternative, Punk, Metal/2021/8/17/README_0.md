@@ -22,8 +22,7 @@ Perticone - Underdog (2021) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:0316D7755435DC8EDEBC1AB7FDF9426CAE807FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dругой Ветер - Feat., которого нет (2021) EP [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:AF568C4ABA8890F20F4FA63725809F80474D0BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Liberate - Roma Aeterna (2021) [MP3|320 Kbps] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:3A5C7BA468A96C4263CB4D75D4C4FC239F327085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Seventh Crystal - Delirium (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:275757DF4891F1E8DED31E77B515ACADBF338460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Предатели ваших идей (2021) Трибьют Бригадн
 ```bash
 magnet:?xt=urn:btih:FEB012BC34FCC8BE003248330F320E5855FEEEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Acid Test - Drop 1993  [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Roc
 ```bash
 magnet:?xt=urn:btih:51DC84E5DA8052C54C6EC6097E81390FF87916ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Robin McAuley - Standing On The Edge (2021) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:73E06B9B052F1C1AFB71C263F5A5AF39700B9BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

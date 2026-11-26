@@ -19,8 +19,7 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:CB90409C79D1A350F50B41B9B7B7EBA65FB4A034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Blasphemous — это динамичный напряженный платфо�
 ```bash
 magnet:?xt=urn:btih:F351041134521E7B055AA61B4DA7842B1EEE89D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windbound – это грандиозное морское приключени�
 ```bash
 magnet:?xt=urn:btih:7A2A89F8D7042181C8F6627077401DA1D1DABFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ATOM RPG: Trudograd (2020) [Ru/En] (0.6.7.1) Repack xatab [Early Access] (обн
 ```bash
 magnet:?xt=urn:btih:E79016898B119CC5DAE70BB4B859842AB055E548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.315/dlc) Repack xatab [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:5068003720279B3FF3336CFB3E57DA6369C25C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

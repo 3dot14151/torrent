@@ -19,8 +19,7 @@ Where the forest ends (2026) [Ru/En] (1.0.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:08A609C7B818DAD6835308395C1EFD6802F9A3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BrokenLore: FOLLOW (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3CBBCA8AC0C6162F00AA31D6DF5FB40B63B258BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ inKONBINI: One Store. Many Stories (2026) [Ru/Multi] (1.0.207.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:EBF64EFA9EB1723E9120CFE589FF0AADC170A3E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ My Garage – игровой проект, разработанный в жан�
 ```bash
 magnet:?xt=urn:btih:20AD25CA3A30D4816E2469544F490A7AB4FC77DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Gothic 1 Remake (2026) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:42788AFB107143488CB576085BD5A5DEF165FC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

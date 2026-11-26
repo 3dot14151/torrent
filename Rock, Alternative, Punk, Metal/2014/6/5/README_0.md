@@ -24,8 +24,7 @@ Armaggedon - Armaggedon (1970) [MP3|320 кб/с]<Hard Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:26F8602F68E076D78D4F0E6704D8B484F4B1A4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Night Sun - Mournin' (1971) [MP3|320 кб/с]<Hard Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:F9531A9D3930E23D5D0E5B83305C20DF4A51F12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Osyron - Harbinger (2013) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:0156F0310BD75CB521E65A3687391BFDDEE17243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Decembre Noir - A Discouraged Believer (2014) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:46CD99F5B8E5AD15302F8B420C4ECE0D6AD7CFED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Dark Forest - The Awakening (2014) [WavPack|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:E8FFEED0342A9A0CC8C7527F45B49E22F883BA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Television - Marquee Moon (1977) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:AA228023D69F5A7291CD452AB64796C35ECD4B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ The Guess Who - American Woman (1970) [MP3|320 кб/с]<Classic Rock, Blues Rock
 ```bash
 magnet:?xt=urn:btih:B1CD6B1906CA8B79E156BAB832A5AC8C1FCC21A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EAFA995894092816982ABFB233A9640BB8DE40A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ The Fireman - один из экспериментальных проектов 
 ```bash
 magnet:?xt=urn:btih:5D513A6BD7AFBB0DC4CCDD2735A9D2B5A752408F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ Creedence Clearwater Revival - Greatest Hits (2014) [MP3|320 кб/с]<Classic ro
 ```bash
 magnet:?xt=urn:btih:15A88A7176CE2874E212E142198888DC195D14F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

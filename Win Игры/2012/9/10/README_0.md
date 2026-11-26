@@ -19,8 +19,7 @@ The Dreamatorium of dr. Magnus [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:7C7F7069E9EA2FEC3C00699B9556DF10B17DF35B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Black Mirror III завершит историю ужасных событий �
 ```bash
 magnet:?xt=urn:btih:41E74B7537F45C08C3BC4B0F52D408EAF88904A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

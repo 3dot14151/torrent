@@ -19,8 +19,7 @@ Bookari - это программа, с помощью которой вы см�
 ```bash
 magnet:?xt=urn:btih:99F0CEF57A428B8FD02D4FE77DE670E43CBA95D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

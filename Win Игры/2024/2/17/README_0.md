@@ -19,8 +19,7 @@ Terminator: Resistance – шутер от первого лица, являющ
 ```bash
 magnet:?xt=urn:btih:09FA55BE7774647DD8BECD23DA98AC49118AC122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Green Hell (2019) [Ru/Multi] (2.7.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C3287C531DC2F441C190DB9EC1A5C098E4E974C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

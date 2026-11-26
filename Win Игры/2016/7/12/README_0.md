@@ -19,8 +19,7 @@ Haven Moon (2016) [Ru/Multi] (1.0) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:926A187EE8C2F8C0A2D6760EC13AC72650E88CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haven Moon (2016) [Ru/Multi] (1.0) SteamRIP ALiAS
 ```bash
 magnet:?xt=urn:btih:4D24BF0947925696DAB99B0B9201A0412713C3EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

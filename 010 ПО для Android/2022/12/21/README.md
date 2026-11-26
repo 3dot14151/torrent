@@ -20,8 +20,7 @@ Daff Moon Phase (Фазы Луны) v3.23 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:49859F51CA5DA40E8BB86921C67C523FBE9CB875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Grooz VPN позволяет быстро и безопасно подключа
 ```bash
 magnet:?xt=urn:btih:26F12ECB2B7C342530D4426D07455CCB6779C458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

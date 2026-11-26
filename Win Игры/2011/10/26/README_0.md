@@ -19,8 +19,7 @@ Strange Cases: The Secrets of Grey Mist Lake Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:B1A4DE0AD79DF87FDB5CB6212F613F23198009C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Project Black Sun - олдскульный инди платформер с по
 ```bash
 magnet:?xt=urn:btih:AFFF4ABD6548640E7BFBB11C330F190F82B175EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Drawn: The Painted Tower / Нарисованный мир. Заколдован
 ```bash
 magnet:?xt=urn:btih:1E36B041671F0F1F2250DE36E342A7D5FF385AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Serious Sam: The Random Encounter (P) [En] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:28465B8833695BB8A6F6FAE5F78C6E4499F62065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Zombie Driver: Summer of Slaughter / Смертельная гонка: Троп
 ```bash
 magnet:?xt=urn:btih:A47C0C8B7CE6369847FFB495825D3A7158AC4BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

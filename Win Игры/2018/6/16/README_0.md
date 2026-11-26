@@ -19,8 +19,7 @@ Shantae Anthology (2014-2018) [En] (1.0.1.5/1.04g/1.0hf21245) License GOG
 ```bash
 magnet:?xt=urn:btih:5DDACD9AD30D5C7D2A42D3FF7932261DA8DF3306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lust for Darkness (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:C34FC782341F094EBC63AE0B47B1DEC43793CD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ POSTAL Redux – римейк классической игры, где поль
 ```bash
 magnet:?xt=urn:btih:57914EFD9B9D564896486CC532FFCA565C1079D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ LEGO The Incredibles (2018) [Ru/Multi] (1.0.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:2895C9BA921B3B5D6CE651269B08A3B8C2ECC124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ The Superjesus - Jet Age (2000) [MP3|320 кб/с]<Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:0A9486BBF86D30D35FA522158BA0219DCD326D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Freedom Call - Beyond (2014) 2CD, Limited Edition [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:F8BDC0CC253AD431E27D7D2D801DF0346930D843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Fear Of Domination - Create.Control.Exterminate. (2011) [FLAC|Lossless]<Modern M
 ```bash
 magnet:?xt=urn:btih:48DCEC6DD4A107DC1496136C4F795D17C215D93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ House Of Lords - Precious Metal (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2F6AE6EE58EC8339CB54DEB5EF101B1563CB75C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Crematory - Antiserum (2014) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:6ABED43575005F8314116D1EF7809E5907490DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

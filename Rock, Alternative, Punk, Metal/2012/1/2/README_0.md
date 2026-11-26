@@ -28,8 +28,7 @@ Hexfire - The Fire Of Redemption (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:452E1DDDABC5DEA590F129461C0B8E3EC3AD0CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ System Shock - 2 альбома (2004-2006) [FLAC|Lossless]<Doom Metal,Melodic D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Risha - Птаха & Лето (2011) [FLAC|Lossless]<Industrial, Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Barenaked Ladies - Hits From Yesterday And The Day Before (2011) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:66B2B9D5C19547C3E6B20FF6A89D2B86548D9F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Robin Gibb - Robin's Reign (1991) [MP3|320 kbps]<Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:5AC62C8B39DD3E8018AD5BB5A56BF8A20F9DD5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ XXI
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Sting - Fifteen Healing Bites (2012) сборник [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

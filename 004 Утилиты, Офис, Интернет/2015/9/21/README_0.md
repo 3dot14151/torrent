@@ -19,8 +19,7 @@ ListTV позволяет в удобной форме просматриват�
 ```bash
 magnet:?xt=urn:btih:B676835F4AFBDC182D7F543909CA65F50D98A70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

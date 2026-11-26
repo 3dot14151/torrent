@@ -19,8 +19,7 @@ Settlers of the West (2013) [En] (1.01) RePack R.G. Games
 ```bash
 magnet:?xt=urn:btih:251A796BA9389C217CFB8B2589EA30CC2170181C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Lands: Dark Overlord / Затерянные земли: Темный Вла
 ```bash
 magnet:?xt=urn:btih:504866DC1F7C87EEAF8AB0E89DB3428B2BA2542E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Settlers Of The West / Поселенцы Запада (2013) [Ru] (1.11) RePack
 ```bash
 magnet:?xt=urn:btih:9DE94A6733A2F5220C230DE1BADEDBF9DC6EFFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

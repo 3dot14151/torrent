@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:51155E7113AE968AD2A39CF938147CA6A90C45E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ M. Duckworth и др. | Business Result (A0-C1) (2017) [PDF] [Including MP4, MP3
 ```bash
 magnet:?xt=urn:btih:0ED97F07064FCE78A08E4A48268282056DE8AB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2E61E2629BB9655679FAD017DCCBBDE5A3690C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Redman Stuart | English Vocabulary in Use. Pre-intermediate and Intermediate (20
 ```bash
 magnet:?xt=urn:btih:203021F76303984FC59CE76F6F670A136904F7D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Speakout - Шестиуровневый курс английского язык
 ```bash
 magnet:?xt=urn:btih:E4A47ABB7E077D0A289AE8E26FEAE071E78551A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:859BF3F304A9A3FF4778A8631F6F823319E25993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

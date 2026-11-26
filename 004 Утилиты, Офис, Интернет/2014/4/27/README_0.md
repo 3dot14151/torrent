@@ -20,8 +20,7 @@ FeedDemon - Одна из наиболее достойных программ �
 ```bash
 magnet:?xt=urn:btih:12D375E9FEA65F1F25A8DDFE30396F1A5584DCE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22341AC3B24BFDA94F35C5FAA36A9A391D057452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

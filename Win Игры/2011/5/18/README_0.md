@@ -19,8 +19,7 @@ Puppy Sanctuary Beta (L) [En] 2011
 ```bash
 magnet:?xt=urn:btih:6C56128DC13E029485C9A2DF14408039A0008E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Falco Lines (L) [Английский] (2011)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Direct Hit: Missile War [En/Ru] (P) 2011
 ```bash
 magnet:?xt=urn:btih:94C53B54EEF78E8D36BFA24F0C5F4E68BADBB460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Alternativa / Альтернатива: Нечего терять [Ru] (L) 2011 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Fable 3 [Multi8\+] (L) 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

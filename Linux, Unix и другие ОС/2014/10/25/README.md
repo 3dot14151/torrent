@@ -19,8 +19,7 @@ CoreOS — это новый дистрибутив Linux, архитектур�
 ```bash
 magnet:?xt=urn:btih:2E6EEA0633142C82C327E963154B7E6CF5673B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

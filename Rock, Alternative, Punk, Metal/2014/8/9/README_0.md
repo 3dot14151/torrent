@@ -28,8 +28,7 @@ Dead End Heroes - Roadkill (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:16341064AE9835D467AD4487A6A8278D2871F5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Witness - Witness (1988) [WavPack|Lossless]<AOR / Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:ACE0F87B77D7E84956AC591D655500D292AB4A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D5F084EB332868BB7749B0C7311531DE0A9E55F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3D28601110F9FFC383AE210CB6A3C934ABD7631F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

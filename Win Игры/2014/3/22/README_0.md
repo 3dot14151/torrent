@@ -20,8 +20,7 @@ Trine перенесет вас в фэнтезийный мир, где хра�
 ```bash
 magnet:?xt=urn:btih:944421230FA7108FBEC44A5B0C596FD3ABF77017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Breach & Clear это тактическая стратегия, дающая к
 ```bash
 magnet:?xt=urn:btih:CE196A45FA43193F489AC154601CA80763FD24A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

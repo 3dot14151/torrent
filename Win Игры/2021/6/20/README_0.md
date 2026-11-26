@@ -20,8 +20,7 @@ Exit From - это хардкорная хоррор-стелс игра с эл
 ```bash
 magnet:?xt=urn:btih:2E572E1D8EA030655431D52D5FEB9679728E5B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

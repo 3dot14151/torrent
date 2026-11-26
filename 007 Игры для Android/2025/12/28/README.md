@@ -19,8 +19,7 @@ Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
 ```bash
 magnet:?xt=urn:btih:C68AECA8F70BE38E9FBA3E693A7CE586CCA9EC53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Red Dead Redemption v1.53.61003005 [Ru]
 ```bash
 magnet:?xt=urn:btih:0C0CDB1F31ED338AB50FC18D6F59505C2825D8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Red Dead Redemption v1.53.61003005 [Ru]
 ```bash
 magnet:?xt=urn:btih:E2CBADE372B6CEEF6654A1EF8D4095C0C2F8729B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Slender Threads v1.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:B1350C7CBA09500E0BC300A21823B1176BE50C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Planet of Lana v1.6.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:8B325F5AE20A352308E3CD23AD639D57FFB81A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Resident Evil Survival Unit v1.3.1 [En]
 ```bash
 magnet:?xt=urn:btih:0513A37E8EFF57FBF6D00A43A2BA34780BC068D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

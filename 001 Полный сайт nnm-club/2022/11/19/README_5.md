@@ -18,8 +18,7 @@ After Effects CC – это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:9E9CFB80ACFE3D249FE82F07F9CD62BDE85A9A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ABBYY FineReader PDF – ваш умный карманный сканер с и
 ```bash
 magnet:?xt=urn:btih:99E018E705138C5870E8CE8F19774973D5A99842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:632F91B83F9C5B365FB12B46526B674DCE67D44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Terraria (2011) [Ru/Multi] (1.4.4.9v4) License GOG
 ```bash
 magnet:?xt=urn:btih:C5BA3824A0EA1C28A245883B3BCAAAD6AAED86B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

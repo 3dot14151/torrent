@@ -19,8 +19,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0.0.10/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:C5D5E17250F85C6D2061F9CC42BEBC8427371703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:92275D4C11F45553B6832FB3A6FCB9A7C4B31C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CULTIC – ретро-шутер от первого лица, где вы сы�
 ```bash
 magnet:?xt=urn:btih:2A431CB6314D3DC3731445AB6474FEABDA3281D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bytebond (2025) [Ru/Multi] (1.0.0.6/dlc) Repack FitGirl [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:8D8EB9EB7CBD0AB29DE45EA55A7315028F5C83DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Castle of Heart Retold (2025) [Multi] (Build 19960600) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:36E6BCC2745927EEE33A88A81268A16F4B8C09F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Halloween Stories 9: The Death Card (2025) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:B761EBADF6876A1C9898046998782E86F965E115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Villages & Dungeons (2025) [Ru/Multi] (10033/dlc) Repack Let'sРlay [Crystal Edi
 ```bash
 magnet:?xt=urn:btih:DF59411652450BC7090CC7E9C89C8A85460587B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Divine Invasion (2020) [Ru/Multi] (Build 20224638) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CD2BBCE2BEA5CD2149105B6EE62222F7C465EED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

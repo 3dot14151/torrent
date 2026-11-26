@@ -22,8 +22,7 @@ Boys From Heaven - The Wanderer (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 ```bash
 magnet:?xt=urn:btih:62B5F6D11C5134F193E3DB105C84D94F01621EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Von Groove - Born To Rock (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F2796443D2D134D3434520FBFEA81C79B89ECC6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ John Schumann - Portrait (The Very Best of John Schumann) (2003) Compilation [FL
 ```bash
 magnet:?xt=urn:btih:7F462635355A02CA55B2401CEB4F30FBBD8478BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ofsoski - Later Than Never (2006) [FLAC|Lossless|image + .cue] <Progressive Meta
 ```bash
 magnet:?xt=urn:btih:F9CCE8E3EEBA6C1007202FD2AC45AA1C4A6D930F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Den Syvende Son - Ti Skridt Fra Livet (2026) [FLAC 24/44.1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:D80970DF7BFF0AE8C4C41DE1C2D23B2D5F0AD0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Drakaria - Hail To The Queen (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:E46C722BB06930C16B02DB7A3E48BFD37BE9D868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Erik Gronwall - Bad Bones (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:DA1D0416FB291199A914E30E0130F2CE90DA1BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

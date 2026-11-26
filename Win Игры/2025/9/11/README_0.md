@@ -19,8 +19,7 @@ Deadzone: Rogue - это roguelite-шутер от первого лица, де
 ```bash
 magnet:?xt=urn:btih:C5F69992527BC297B648D6D1AD89BD7B84674826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Section 13 (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:62237DC2528701A4C39B97EB06CE52BADF047710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Darkest Dungeon II - это путешествие в жанре рогалик,
 ```bash
 magnet:?xt=urn:btih:B9A020E8F94D5F07FD5B71D2651ED740D8F576C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 ```bash
 magnet:?xt=urn:btih:F12BFBA9C0256BDEB8312A807761659A9DBE97A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Knightling (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8F4103490720009B42E5DE978797C3EDE49F1056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The House of the Dead 2: Remake - это обновленная версия в�
 ```bash
 magnet:?xt=urn:btih:672A2924F34F81A1CA4B6D7445F3D87EF0AE07CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

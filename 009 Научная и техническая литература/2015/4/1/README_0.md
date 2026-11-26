@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:31F324CC4D8C105041928B8339193574E8B29809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D9D9F3483B4F4DA2C8B1B98097FAC5CB6D6AEFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Official IELTS Practice Materials рекомендованы для тех, 
 ```bash
 magnet:?xt=urn:btih:9C26830259178D42C26F778604A3C87D681A38DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

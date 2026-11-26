@@ -19,8 +19,7 @@ Assistant Premium 3.3.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5300A037959595928F9B2A0739ABEFE2A3683482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

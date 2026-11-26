@@ -28,8 +28,7 @@ Envy - Recitation (2010) [MP3|320 кб/с]<Screamo, Post-Rock, Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:B24942D1AD2C1F2EAEB6D032A71D119A365837FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Indian Summer - Indian Summer (1971) Remastered /2002, Akarma/ [FLAC|Lossless]<R
 ```bash
 magnet:?xt=urn:btih:ED01EB1F61DE1D3ABE07A269F1749430F1868C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ I Miss My Death - In Memories (2014) [MP3|320 кб/с]<Gothic Doom/Dark Metal>
 ```bash
 magnet:?xt=urn:btih:A939E7EBA41D359B4C0C044F3175A29702063AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Brother Firetribe - Diamond In The Firepit (2014) [FLAC|Lossless]<Rock, Melodic 
 ```bash
 magnet:?xt=urn:btih:1D4016E70B496F3FD8A38C71970931BDDE536DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Spiderbait - Spiderbait (2013) [MP3|320 кб/с]<Alternative Rock, Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:155713E547B1DF6B2C1CBEDF3AE7A5FB02AEAB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Ahola - Tug Of War (2014) [FLAC|Lossless]<Hard-Rock>
 ```bash
 magnet:?xt=urn:btih:A536833418556D7ADD0BE08064984A2689216FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ The Doors - The Best Of The Doors (2000) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

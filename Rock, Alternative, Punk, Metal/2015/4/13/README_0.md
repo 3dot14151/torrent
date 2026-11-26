@@ -23,8 +23,7 @@ Devils Rage - Impending Demise (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:B0BB74579EA79458453F0EA50E41E9370CD4EDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Watch Them Fade - Welcome to My Void (2015) [MP3|320 кб/с]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:37522BEA187D25067A9C26F3DCB6BD7FE5267583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Omheten - Sjalv (2015) [MP3|320 кб/с]<Depressive Black Metal>
 ```bash
 magnet:?xt=urn:btih:1C96E20B69A8425FD5EE122FBA934AF838A26551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Boy Breaking Glass - Vesta (2015) [MP3|320 кб/с]<Alternative, Indie, Pop Rock
 ```bash
 magnet:?xt=urn:btih:DB919BCCD3E44589760DFCC2AF1AFCA6FA03EE52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Rolling Through The Universe - Lethe (2015) [MP3|320 кб/с]<Post Metal, Sludge
 ```bash
 magnet:?xt=urn:btih:FC335AAAD622C66FF9222D83DB08F6644BFB37E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Witchery - 6 альбомов (1998-2010) [MP3|320 кб/с]<Thrash / Black / Dea
 ```bash
 magnet:?xt=urn:btih:FA7504710CB2A12B4A7586A566AA57072AC53655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Snakebite - Princess Of Pain (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FB2B8B4EA4EFFF4DA9161203E7EF267552D9D51B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Dear Rouge - Black To Gold (2015) [MP3|320 кб/с]<Alternative, Dance Rock, Pop
 ```bash
 magnet:?xt=urn:btih:A9343A3FAFA16E289B0CFD32C43182FA63572807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ VA - The Many Faces Of Sex Pistols (2013) 3CD [FLAC|Lossless]<Punk>
 ```bash
 magnet:?xt=urn:btih:570A5307EB6A92F6728A3E1B3D3B19825EA1367B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Lee Saunders - A Promise of Peace (1995) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:54E7A309AA7907C5A46655E66FEC7EBEC4FA33C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ Gateway Drugs - Magick Spells (2015) [MP3|320 кб/с]<Alternative Rock, Psyched
 ```bash
 magnet:?xt=urn:btih:46C512BBFE60901BD2E63267E0B90AF0703C611E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

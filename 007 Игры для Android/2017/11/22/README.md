@@ -21,8 +21,7 @@ Furry Pet Hospital v1.0 [En]
 ```bash
 magnet:?xt=urn:btih:EE16922023A379483E5462BCA78DB7E4A2BBFB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

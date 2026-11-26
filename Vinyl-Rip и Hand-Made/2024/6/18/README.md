@@ -22,8 +22,7 @@ VA - Золотые хиты ХХ века 1 (2003) Unofficial Release [FLAC 2.0
 ```bash
 magnet:?xt=urn:btih:13C2317F97E53DA0E87C14AF53A851A6A6D6D4EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

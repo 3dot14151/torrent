@@ -28,8 +28,7 @@ VA - The Prophet Lounge (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:84508776D4B176E05FB657149DE45EEFA7974DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Blut Aus Nord - Memoria Vetusta III: Saturnian Poetry (2014) [MP3|320 кб/с]<A
 ```bash
 magnet:?xt=urn:btih:ABF63F697310F5BC8EB79954C95C2DA647B13606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Tyranex - Unable To Tame (2014) [MP3|320 кб/с]<Thrash Metal/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:78BAA54AC3925F7090E5EFFF7DBD131444152EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ VA - Experiments Vol 1 (2014) [MP3|320 кб/с]<Dubstep, Psystep, Psybreak>
 ```bash
 magnet:?xt=urn:btih:3858E4BF1EB6C623D4145FA49CC66EE023B868CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Shane Dwight - This House (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:FB7F9F6229AECCCBEDA2DA2B6CD0E50EAB895274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Marian Ledesma Y Los Hermanos Zapruder - Zapphobia (2014) [MP3|320 кб/с]<Soul
 ```bash
 magnet:?xt=urn:btih:20CA96AEE7C57E1027B8A4F877AAF8C3DCD8010C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Mark Levine & The Latin Tinge - Serengeti (2001) [APE|Lossless]<World Fusion, La
 ```bash
 magnet:?xt=urn:btih:046657BECAA68718C0E4FE4C85421068458CB931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ VA - Party In Miami - Life Firestare (2014) [MP3|237-320 кб/с]<Progressive, E
 ```bash
 magnet:?xt=urn:btih:59DF650E74726A8FA22B8EC6E28067BF02C0AAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FBA288F2F11C549AA3325F4D33D0E557FB6D39E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +320,7 @@ The Pretty Things - Parachute (1970/2000) [MP3|320 кб/с]<Psychedelic Rock, Pr
 ```bash
 magnet:?xt=urn:btih:78879BFD14040D00F2DF9109A7B433AF8045FA29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69CB57514381BDACBBE8D189E93388D1C5A87B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +380,7 @@ Sarah Vaughan - The Great American Songbook (2007) 2CD [FLAC|Lossless]<Vocal Jaz
 ```bash
 magnet:?xt=urn:btih:E01885E845F5CA2D608AA62DFC3D9D17A65FFBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E62F020A9008D0CB80B6251DBE8D727201F1ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AD982316FD6E9C3C16925C536327E10E48FEA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:906BC164CDD4A618374DA67642D740033F3411C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:560E8800DA378117654B13B73C57D345271E64E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ PowerArchiver - универсальный архиватор с поддерж�
 ```bash
 magnet:?xt=urn:btih:201286AB1D0F15DCB8B279DD0401FF1D2A9B9608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ Billie Holiday - First Issue: The Great American Songbook (1994) 2CD [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:5316FDD40625BBF67B16D546AD79228AF74EFDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9AE772449A3C4E50D67BEFF08E10194B68B03E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +599,7 @@ VA - Drum & Bass, DubStep, Trap #5 (2014) [MP3|320 кб/с]<Drum & Bass, DubStep
 ```bash
 magnet:?xt=urn:btih:6431CDE31E78AE23CB2E64A5A1E8F3FDCF582ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA76BD51DEEC2CDB772CE9B9F7E0F16855623F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79C531E17E54EE35112F1E818F0147B5D5246B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ Marta | 150 рецептов для мультиварок Marta MT-1962, MT-197
 ```bash
 magnet:?xt=urn:btih:17E789F396572CCE083346E74E718439FEDA9680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A84C701DAC01BFA7E4340779105DA51C71CCCDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5F765A09BEA05C936967CF5C8008A4B5AD7FF35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ Ella Fitzgerald And Joe Pass - Easy Living (2011) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:74D8A634212E00523F1C249D3754CBA76B00624B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

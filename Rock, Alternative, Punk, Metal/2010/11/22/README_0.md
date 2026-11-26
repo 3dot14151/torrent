@@ -28,8 +28,7 @@ PSYCHONOESIS - Superflualismo (2005) [MP3|320 kbps]<Fusion/Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:1874028CF9CAAAF0DF8881F4CCAD78FE6F950BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12C170E605BCAAC853303703211A47934197F323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Sixteen Horsepower (+ Woven Hand & Lilium) - 23 albums (1995-2010) [MP3|320 kbps
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Deep Purple - Deepest Purple: The Very Best Of Deep Purple [30th Anniversary Edi
 ```bash
 magnet:?xt=urn:btih:C2CC08C81EF3CAD058A8DDEEE923B6621B462515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

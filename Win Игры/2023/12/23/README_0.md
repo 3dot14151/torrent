@@ -19,8 +19,7 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:57D2AE09742F25BDB7D26CCDE5BE4CD5E844E822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Need For Speed: Shift 2 Unleashed (2011) [Ru/En] (1.0.2.2/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:D64811789E9FAA34D6C3EC8F5445316B2FCB9500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (1.08rc1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5DB4AD1019302903FE052CAE67F2AD7236F86DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Fabulous Fear Machine - стратегическая игра с увлек�
 ```bash
 magnet:?xt=urn:btih:502298222552E20AB50AD69793EDCDFAE30EA9A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

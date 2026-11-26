@@ -19,8 +19,7 @@ J. F. DiMarzio | Android. A Programmer’s Guide [2008] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:1F91424309FEB35D457E2114BAA6A1367DBC9DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9374BB7C405382F6A1A3F7C52C6EA558D7D9F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

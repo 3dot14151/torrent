@@ -19,8 +19,7 @@ Life Is Strange 2 (2018) [Ru/Multi] (1.0) License CPY [Episode 1-2]
 ```bash
 magnet:?xt=urn:btih:18C221115FA7D301061FE7AF4C4585E00C565F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

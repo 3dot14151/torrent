@@ -23,8 +23,7 @@ Pro Silverlight 4 in V является неоценимым пособием д
 ```bash
 magnet:?xt=urn:btih:C5F663B7B5D670BBE3FD21419743256F7E558656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F2D4186AC5CE15DBB0AFF5B337544FDD8B5046B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

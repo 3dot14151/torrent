@@ -22,8 +22,7 @@ KUZMIN Absolute Band - Я - твой рокенрол (2020) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:C0A01ED30121630FD77FFF47A12FB9A7246FB108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

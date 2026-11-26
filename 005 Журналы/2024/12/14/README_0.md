@@ -19,8 +19,7 @@ Burda Вязание – это специальный выпуск журнал
 ```bash
 magnet:?xt=urn:btih:81B4AF15EAA544ADA282CC614B98254AAAC911FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Burda Вязание – это специальный выпуск журнал
 ```bash
 magnet:?xt=urn:btih:1DAC8F1AC520527DA2CB86FF0B4EA48527229CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Burda Вязание – это специальный выпуск журнал
 ```bash
 magnet:?xt=urn:btih:AE17045C795044F23E4708850247566895E54557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

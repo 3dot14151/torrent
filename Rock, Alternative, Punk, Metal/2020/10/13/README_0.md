@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D6A8A4A633FF8CA8902D5F1D4185463F53C31AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Boy Hits Car - Worldwide Alive! (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 ```bash
 magnet:?xt=urn:btih:F98DDBA5EBFCFF2C8064A6631BD25B5962643347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Derek Sherinian - The Phoenix (2020) [FLAC|Lossless|image + .cue] <Progressive R
 ```bash
 magnet:?xt=urn:btih:0462672924AE7E60201AB69E0AE7B45EE87AFCE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Brother Firetribe - Feel The Burn (2020) [FLAC|Lossless|image + .cue] <Melodic H
 ```bash
 magnet:?xt=urn:btih:C4E799C6AE10D277506B403B2C03C8ADF63E9EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Spirit Adrift - Enlightened In Eternity (2020) [MP3|320 Kbps] <Doom Metal, Heavy
 ```bash
 magnet:?xt=urn:btih:DA5A14AF6764EAE4304619982C305658D49A49A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ XIII - 3 Albums: Sick; Impure; The Blood on the Wall (2018-2020) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:749892471601361FE536B1465AA67D1285482F73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Antony Kalugin - Marshmallow Moondust (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Pro
 ```bash
 magnet:?xt=urn:btih:C604E5976E96C21DAC5D3B3116AD99B449ECC590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:66472696FB185841C56DFB1D2FDBB891A552C550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Mad Max («Безумный Макс») — немецкая рок-группа
 ```bash
 magnet:?xt=urn:btih:407608DCAD95FD0D9D113CABEE418005362F268C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

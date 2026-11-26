@@ -19,8 +19,7 @@ Eastern Era (2026) [Ru/Multi] (1.0.18) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DF4FFA4F29FEE5007E8449445A185DF0E66E8785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crown of Greed (2026) [Ru/Multi] (1.0.0f5/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5618BFF17B3A211B0357BBB755DBA93B42B4D80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.123) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:C4671FEB8A8C7D02F6D67D8E0FE17091A4D6FD4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.49.0/dlc) Repack Hardware
 ```bash
 magnet:?xt=urn:btih:39B293CD94E7E229ABCA08E2079648839944B54D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Starsand Island (2026) [Ru/Multi] (1.0.0.7673.194862/dlc) Repack Let'sРlay [Ear
 ```bash
 magnet:?xt=urn:btih:9BCF7DD08E0F39B31D06772A829335950E9402EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Docked (2026) [Ru/Multi] (1.0.8.1/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:5DC1B2DF8958CB4A876FD2F863126F67371346A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

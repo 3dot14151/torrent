@@ -22,8 +22,7 @@ In Hearts Wake - 5 альбомов + 1 EP (2012-2022) [MP3|320 кб/с]<Metalco
 ```bash
 magnet:?xt=urn:btih:1B6E0674A323E77C6A772138948AB41A77F72300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

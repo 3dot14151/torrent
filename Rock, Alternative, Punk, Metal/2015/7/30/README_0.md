@@ -22,8 +22,7 @@ Alesana - Confessions (2015) [MP3|320 кб/с]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:743EE141F5D45AFD78444FCB48C17724B6C00A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mary Lou Lord - Backstreet Angels (2015) [OGG| 415-510 кб/с]<Alternative, Fol
 ```bash
 magnet:?xt=urn:btih:CBB4C5557A7F47049FE9F77A15E62FCBA3875D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Phoenix - Journey From Night to Day (1979) [MP3|320 кб/с]<Krautrock, Prog Roc
 ```bash
 magnet:?xt=urn:btih:0F93C5D2415B2336C47E46C83B86ACF88A4BA943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Alice Cooper - Billion Dollar Babies (1973) Hybrid SACD, Limited Edition /2014, 
 ```bash
 magnet:?xt=urn:btih:0FC9C0FB451045C71A2F0F153AD4C98CA0B36801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

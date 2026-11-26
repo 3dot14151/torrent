@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2C3F818B309CD86225A89B6F349E3EC9870600C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6052C3514DDC1C334425D9C142CB90697137465E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30B46B0F13426AE0470E4F122785BA2598B0220E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C818E02FE5EC6394BAF4973B128E5A395886D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sheltered (2016) [Ru/Multi] (1.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5640120E1186862887231A4C823BCEB9C1EEAEFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kaspersky Total Security (бывший Kaspersky CRYSTAL) обеспечивае
 ```bash
 magnet:?xt=urn:btih:83DD10AF3DE0C3ED5A9E828E652EC68756BED7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Castlevania: Lords of Shadow - Антология (2013-2014) [Ru/En] (1.0.2.9u2
 ```bash
 magnet:?xt=urn:btih:11E8F0A896748F5E209E68FC4E199BD92B49B7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ NG: Происхождение: Путешествие человечества 
 ```bash
 magnet:?xt=urn:btih:2A3E90B35BB4B1F7F6674311B9A0AD88112A5B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC450DA510AD67E098C2E76325315C140B4BA81C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E109C069436BC65449B9ECC445F8089480313A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Lara Croft GO предлагает довольно необычный взгл�
 ```bash
 magnet:?xt=urn:btih:DA3A25A2ABEAB6B1E05D325FB56C85A7979D1199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ eXeLaB.ru | Курс видеоуроков КРЭКЕРСТВО + ПРОГРА�
 ```bash
 magnet:?xt=urn:btih:CEC4E1EA51331C718923C165201CEE7A5DF9FD3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Tor Browser Bundle 6.5.2 Final [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F3A2FA93512D7C33840D9524216D0E917900DA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ uTorrent 3.5.0 build 43804 Pro Portable by Коля3Д79 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1E70581110A307BB0FA8CF5D45D034B8AC96402F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BA9BADD05500048EDD06AB08268907600D5BE57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Fallout 3 (2009) [Ru] (1.7.0.3/dlc) Repack Other s [Game of the Year Edition]
 ```bash
 magnet:?xt=urn:btih:19BF70BDE08D7FE96B3FEAF784A582CDA88F4F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Tomb Raider + Lara Croft Anthology (1996-2015) [Ru/Multi] Repack R.G Catalyst
 ```bash
 magnet:?xt=urn:btih:50739BFF68283E87545F1419B76CF5EB357AFF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB0EF6BF0CD173041B4F9B2C27DCAA4C7AED6CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ V-Ray 3 для SketchUp - мощный инструмент визуализац
 ```bash
 magnet:?xt=urn:btih:546FAF9D544B75BAF3003D1D0976D10863EBDD3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ CyberGhost VPN позволяет просматривать веб-страни
 ```bash
 magnet:?xt=urn:btih:0A9308B6A992D5BF9FE86EFF66317343AC1E9BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +547,7 @@ SW_DVD5_Win_Pro_10_1703_64BIT_Russian_MLF_X-21-36764.iso
 ```bash
 magnet:?xt=urn:btih:16C31DF70A2D7D80E9FC8B58A216B84B68B12CDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

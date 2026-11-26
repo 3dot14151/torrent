@@ -19,8 +19,7 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by TryRooM [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6AFDB0F37831B9DDF3E625E451D27A7D5E3D40D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Talking Tom Gold Run - неизвестная глава из жизни все�
 ```bash
 magnet:?xt=urn:btih:D5F94E2D76D1FD86C68B985A2E1773C2F86397D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C8892788555FF5FC81332839D66F0396183AC59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

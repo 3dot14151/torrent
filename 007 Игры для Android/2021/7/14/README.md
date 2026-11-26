@@ -19,8 +19,7 @@ Get aCC_e55 – увлекательная головоломка на андр�
 ```bash
 magnet:?xt=urn:btih:8A58E8E851947E81D1CAAD0FC111A2EB5BEF39ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

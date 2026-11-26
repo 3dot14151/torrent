@@ -19,8 +19,7 @@ Bio Inc.: Redemption это сложный биомедицинский симу
 ```bash
 magnet:?xt=urn:btih:4C94960C8DF66C4F218B73F16FF952747E927E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

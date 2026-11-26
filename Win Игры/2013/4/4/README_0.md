@@ -20,8 +20,7 @@ Hamilton’s Great Adventure - качественная аркадная гол�
 ```bash
 magnet:?xt=urn:btih:B76F65A640200FD4916C3C187F7DC2AC237F1515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru]
 ```bash
 magnet:?xt=urn:btih:32411A9A67C4C5FD36090B8F4C3E64089D25D64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Pressure [Ru/En/Multi8] (RePack) 2013 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:BDE69C4A54383075021148D30C985012D762E9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEA440B734005A56F50403633C70C0D96B129A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Kaiser Chiefs - Start The Revolution Without Me (2012) [MP3|~245 кб/с (V0)]<I
 ```bash
 magnet:?xt=urn:btih:E6B982893C073C65FFB59F83CC91B212435BF29C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Fox - 2012 (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:22BEB35FD7C07FD04BE1356E07B99C4EDE45F1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ CD 1 - 01:20:10
 ```bash
 magnet:?xt=urn:btih:14AEB49C5FF247FB11F2D6A6F3F3F8B9803A24F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Spawn Of Possession - Incurso (2012) [FLAC|Lossless]<Technical Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3E3EE8BDE44CEAFA7F93651ECB5A3B4250729F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Megaherz - Gotterdammerung (2012) [FLAC|Lossless]<NDH, Industrial Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

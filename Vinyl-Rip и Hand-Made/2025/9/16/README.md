@@ -22,8 +22,7 @@ A4 Танц За Теб • A Dance For You • Танец Для Тебя(   Ч
 ```bash
 magnet:?xt=urn:btih:E38686F333013CC66C9DF98679E3721D24DBBB50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dagoba — французская метал-группа, основанная 
 ```bash
 magnet:?xt=urn:btih:A23FB35512F71E2FAE57E257994D48E9B14E21C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

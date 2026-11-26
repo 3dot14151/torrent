@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:911571CF8F975DC4F4D9BEC74893F207C9A14594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Boot CD/USB Sergei Strelec 2014 v.5.1 (x86) (Windows 8 PE) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1CF5C2C5D0D081F8B416F51560DDCF0765E782B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Flashback HD-переиздание классической приключен�
 ```bash
 magnet:?xt=urn:btih:A7CEE52991F6A9E58E02F851ED7D4990EE87972C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:963A6E6A749D45AC3B1D9ADDFD6B821DF9D62C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Super Hide IP - одна из лучших программ для автома�
 ```bash
 magnet:?xt=urn:btih:20334647F2C0726175FF58AB4AE74AA0503FF3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Half-Life 2: Orange Box - новый уникальный продукт от к
 ```bash
 magnet:?xt=urn:btih:F1D5951BA5791ADD9B0F81DE8D8C46176D318437
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Videohive - Timeless Memories - 3829010 [AEP]
 ```bash
 magnet:?xt=urn:btih:6C4A7405DB639CE792C847380B05E8047B286999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87D45B2C37A7D7FD46D02FC843066D75E6A5D51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Mars: War Logs (2013) [Ru/En] (1.0.1736) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:5313E20A21D394FB0BC74CBF59BA1C2A5628F017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0706831009C62C800B8C4B9D7F9B708D76FBB032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96D68FEA1884616BDDAB232374F0F35A152C5362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D703FAB70A9A360716929D2CBB5BEF286F6B08BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ The Witcher / Ведьмак (2008) [Ru/Multi] (1.5.0.1304) License R.G. Игр�
 ```bash
 magnet:?xt=urn:btih:1455648DC8B228BA97D60EFF3E7EA4CABFF6F022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:239CAF617449539BB35FEE26F6AD9EE5D777B540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE39B432A4754B70EAB006297E28573B524F9883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ KOMPLETE 9 ULTIMATE, помимо 65 инструментов и эффекто�
 ```bash
 magnet:?xt=urn:btih:F8B2A3765B5E0DE867069D77325846D088210EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 4 in 1 Origin-Upd 02.2014 by OVGorskiy® 2DVD
 ```bash
 magnet:?xt=urn:btih:3A9832AEF94EA55CA08CF85B25A892D2C922A407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ The Elder Scrolls III: Morrowind Overhaul (2011-2012) [Ru/En] Repack/Mod R.G. Ga
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

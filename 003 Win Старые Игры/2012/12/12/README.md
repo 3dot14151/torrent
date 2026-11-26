@@ -21,8 +21,7 @@ Unnatural Selection [En] (RePack) 1993 | RG games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Alcatraz: Prison Escape [Ru] (RePack) 2000 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Civilization: Call to Power [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:38FFC0BC67EDF057EE640DB17B0402C8F1B090E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ NBA Jam Tournament Edition [En] (RePack) 1995 | Pilotus, SomeOne
 ```bash
 magnet:?xt=urn:btih:06CA1CC636ECD007803D3677ACDE418C7134BA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ TeraBox - это БЕСПЛАТНОЕ облачное хранилище для
 ```bash
 magnet:?xt=urn:btih:00949075B94E6BE549E033306C2FB6F568443011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

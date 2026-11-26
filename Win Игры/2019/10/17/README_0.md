@@ -19,8 +19,7 @@ Mystery Tales 12: Art and Souls (2019) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:8827AC683CE77DE12080725C0EA7A4BBD013D6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Layers of Fear 2 — это психологический хоррор от п�
 ```bash
 magnet:?xt=urn:btih:2A0E95720D92BD36CCDD9203B0A84E59F839B5E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Morels The Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:6FD69AFDABE191B126F0AD0B0D18A8D52B3B6941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:3333B79B464ACC2BEDB2889D70D14F9124B645AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3DBE73045954DFFF04C73956941BF276D9003989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Project R.I.P. (2019) [Ru/Multi] (1.05) Repack Other s
 ```bash
 magnet:?xt=urn:btih:080831761402534743FE64262EF54D2C04AB1ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

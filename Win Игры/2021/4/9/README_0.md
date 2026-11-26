@@ -19,8 +19,7 @@ Nevertales 10: Faryon / Несказки 10: Фарион (2021) [Ru] (1.0) Unof
 ```bash
 magnet:?xt=urn:btih:C1AA54898925E7C6E4FF47E709A370106671DF0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Trackers 19. Forgotten Voices (2021) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:3730BEB6870C6445A222A01BA749B5D23BDBD250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Scarlet Hood and the Wicked Wood — это приключенческая сю�
 ```bash
 magnet:?xt=urn:btih:8A09D0F448BED87338746C1F62C8C7B13DE1642E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Children of Morta (2019) [Ru/Multi] (1.2.55/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:54B353AF6DE0B8A5BD8A89D51BA23ABC003AFE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

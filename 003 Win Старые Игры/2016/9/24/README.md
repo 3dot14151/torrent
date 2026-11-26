@@ -19,8 +19,7 @@ Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:132D085745FE8F4D36121A1E4EAAE7130A59B690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

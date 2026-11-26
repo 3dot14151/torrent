@@ -19,8 +19,7 @@ AOMEI WinfrGUI - бесплатная программа для поиска и 
 ```bash
 magnet:?xt=urn:btih:2A670CD60EED142BEADA73FD45F91A3FE916508A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

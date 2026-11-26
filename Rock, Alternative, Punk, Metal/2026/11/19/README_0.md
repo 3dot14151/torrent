@@ -21,8 +21,7 @@ Laura Cox - Trouble Coming to Paris: Live at Le Trianon (Live at Le Trianon) (20
 ```bash
 magnet:?xt=urn:btih:525D07482D8B1849A20A9DD1F59682115C2FA943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Sheryl Crow - Sheryl Crow (1996) [FLAC|Lossless|tracks + .cue] <Country Rock, Po
 ```bash
 magnet:?xt=urn:btih:3D341586B458F28451A90D046A0A20041DF2AE45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ America - Halcyon Days (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:8443D1C9BEBE453C2CC7BAB3EC07E3481E71FC42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Band of Brothers - Restless Heart (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 ```bash
 magnet:?xt=urn:btih:3FDFBDCA9B18C56C1D8F20F40045418973168816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Cocktail Slippers - Joyride (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:16401B86ABD94DB3EE0412CDAC904FC53F9CE29F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ The Afghan Whigs - Soft Control (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 ```bash
 magnet:?xt=urn:btih:752E3B2439A13362BA79388619459C676A3B1817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ The Barbarians of California - Megatons (2026) [FLAC 24/48|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:A5C4403D35A7F95F65844886184F00D734BB891F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Rammstein - Live in Mexico City (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indu
 ```bash
 magnet:?xt=urn:btih:8AFE7A8308B32E313DD8F371C79EADA69F7B1C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Wolf - Hour of the Wolf (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6F42B034D1E32A8750E58024EF1C44961B981BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

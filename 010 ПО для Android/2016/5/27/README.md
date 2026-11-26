@@ -19,8 +19,7 @@ Video Converter Android 2 v3.2.5 Premium [En/Rus] - видео и аудио к�
 ```bash
 magnet:?xt=urn:btih:A584F3116F16CE9C010F3F3084B81B9701523EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

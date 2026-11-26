@@ -20,8 +20,7 @@ Alaborn activeWords PRO - это признанная многими польз�
 ```bash
 magnet:?xt=urn:btih:881B9EEE6F5C6D1E59ABE02F38984F4DB917DD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ WinISO - лучшая программа из всех подобных для �
 ```bash
 magnet:?xt=urn:btih:EA2B56A9EE75F5592DCD751A73A69E749FE441C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

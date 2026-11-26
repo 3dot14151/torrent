@@ -19,8 +19,7 @@ Rally Trophy / Ралли Трофи (2001) [Ru] (1.01) License
 ```bash
 magnet:?xt=urn:btih:93A615E2DD18F732CB966FFB3CBDD3427BB39351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

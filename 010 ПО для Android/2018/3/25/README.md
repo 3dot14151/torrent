@@ -19,8 +19,7 @@ Money Pro - это единая программа для ведения бюд�
 ```bash
 magnet:?xt=urn:btih:43179A173FA56BBDCB7BBA82B103CF7BB84B30BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TrackChecker Mobile - это приложение, которое поможет
 ```bash
 magnet:?xt=urn:btih:4515C4D69C297A321B33BD9D674254D20E4CACC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mars Horizon (2020) [Ru/Multi] (1.4.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3D1A60BD65DAE455122762574FD17B775A2DF8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Blur - The Ballad Of Darren (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A2295E9A0D75395E7C2306B7A67836B3E00D2CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

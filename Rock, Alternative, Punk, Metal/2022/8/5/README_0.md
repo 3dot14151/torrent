@@ -22,8 +22,7 @@ Abhorer - Zygotical Sabbatory Anabapt (1996) [APE|Lossless|image + .cue] <Black 
 ```bash
 magnet:?xt=urn:btih:720FE93F39151763CFF1AE3E9C1EEF39DB662593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Abscess - Bourbon, Blood And Butchery (2013) [FLAC|Lossless|image + .cue] <Death
 ```bash
 magnet:?xt=urn:btih:8D2956B931D9D5D2C52EF1DDBA6658B8EE990609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Abscess - Dawn Of Inhumanity (2010) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:ECA2985E9D0E882DE926E763BDB1C2365EBECD1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Martyr - Feeding The Abscess (2006) [FLAC|Lossless|image + .cue] <Technical Deat
 ```bash
 magnet:?xt=urn:btih:F2D8B39C417A7D91BED37658A66975E52499AE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Reternity - Cosmic Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Me
 ```bash
 magnet:?xt=urn:btih:94FE4A103762635BDCDE94BD3D0A8841AAD34DF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Nightmare - Live Hard, Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:D25F606D8AEB55FB612B02298B7F02DE2CF949BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Stensland - Dark Valley Blues (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Classic Roc
 ```bash
 magnet:?xt=urn:btih:2F53DC79F3E227D6CA92C92B75CCF09350BA9887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ White Lion - The Best Of White Lion (1992) [FLAC|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:C5072A2893EF7254C8C4ED3B3B7C4A6F3272517A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

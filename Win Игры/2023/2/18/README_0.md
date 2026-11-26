@@ -19,8 +19,7 @@ Twin Cobra (известная как «Kyukyoku Tiger» в Японии) дос
 ```bash
 magnet:?xt=urn:btih:5F4CC9C17EF0B23173CE8A4EC927AE92E7C24DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Starless использует научно-фантастический сетт
 ```bash
 magnet:?xt=urn:btih:3F1EBC5C39E3B0BDEE896779A7DB5CDDEA28A352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Loretta - визуальная новелла, в которой предсто�
 ```bash
 magnet:?xt=urn:btih:BC0DB93218C2FEA282E3A83FAE7F8BDE5F4BDE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Out Zone от Toaplan возвращается в строй и переполн
 ```bash
 magnet:?xt=urn:btih:A471EB42E853B315747B1EAC675B441F0C4D13BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

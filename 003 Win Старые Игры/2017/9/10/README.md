@@ -19,8 +19,7 @@ Privateer 2: The Darkening (1996) [En/Ge] (17.0e) License GOG
 ```bash
 magnet:?xt=urn:btih:2A3DA6F1DBF98DA42C5F7EF1B509FEC9C9CDEF10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

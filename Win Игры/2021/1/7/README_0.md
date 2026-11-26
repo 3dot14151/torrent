@@ -19,8 +19,7 @@ Star Ocean - The Last Hope (2017) [Ru] (1.1.12212) Repack xatab [4K & Full HD Re
 ```bash
 magnet:?xt=urn:btih:082C16A9111063F9898F51C9E45AD4575D9D6F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Exiled Kingdoms (2018) [Ru/Multi] (1.2.1124) License GOG
 ```bash
 magnet:?xt=urn:btih:531DEC3CA58320C6AC61DA380B48D0889B4DA42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Devil May Cry 5 (2019) [Ru/En] (1.0.0.1.05962864/dlc) Repack xatab [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:DF365A6F78472F0B2504F6BD9ED60B0DD1058B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DBD033227D0696BBFA0D0D1789AAF8B72CB74370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A75596240B846A199F8B495DD1A418399F552ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Skidrola - House Of Hope (2016) [MP3|320 кб/с] <Blues, Rockin' Blues>
 ```bash
 magnet:?xt=urn:btih:4CA7B99B0E5A24831B3B164895A5EC17652D3FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9D9EA90D9A7A4D95D9CA81E7F9B987BC34BA3C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:054804FAF6DDF4A92F4FC3F641D03A6398F20AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:7CF38B2171875DFD580B4A16901A14439AEE5E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:FA47A1BA8685DA383B903664DFD009C49DCA6826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Jorck - BLACK SUN (2016) [FLAC|Lossless|tracks] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:75B570A2593448E874F3240E22DF89AB1466188E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ VA - 15 Years Of Vandit Records (The Remixes) Vol 1 (2016) [MP3|320 кб/с] <Tr
 ```bash
 magnet:?xt=urn:btih:9058CEBF264993FFF175D6438EEA897ACD9DCC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Farm - Farm (1971) Remastered, 2000, Shadoks Music [MP3|320 кб/с] <Psychedeli
 ```bash
 magnet:?xt=urn:btih:0A6AE9828436188CAD9E1B7B27C3830D0BF48DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ VA - Vocal Trance Work Out (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:A7B2F067C4006CAB239205ADC189A7B29A9B1528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Window Tidy — отличное приложение, которое спосо
 ```bash
 magnet:?xt=urn:btih:5CC40B1D4C4C3B968005A86FDD2EECCDB29E5344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ ColorSnapper - инструмент "селектор цвета" для раз�
 ```bash
 magnet:?xt=urn:btih:1974D95CE792B131566F807678E4FE5E96B1AEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ OS X имеет свою философию и некоторые вещи в с
 ```bash
 magnet:?xt=urn:btih:69665D2B51E0A6A3F589785151BAF7A4CF4F6558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Bear Ghost - Your Parents Are Only Marginally Disappointed In Your Musical Taste
 ```bash
 magnet:?xt=urn:btih:8978C491E591398615CD096CC33A6248EAB65F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C46EADE0BCDC7D2B7A1E66F6216546AA7EF790BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C01BEDD75C3195F4B80A07E2B104BA6E5508DEE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Robin Trower - Where You Are Going To (2016) [MP3|320 кб/с] <Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:26E4E003A7DE61D4E9D05A08DD6EBD61FA719DA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ VA - The Great Singers Of The Jazz/Големите Вокалисти На Дж
 ```bash
 magnet:?xt=urn:btih:A1E98D6DAB0D5FE1BA5F019FD1F8D46D7635B033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Eclipse - The Truth And A Little More (2001) [FLAC|Lossless|tracks] <Rock, Melod
 ```bash
 magnet:?xt=urn:btih:79DE54AE5F7A77771F346241039611F866258392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Maltsev Anton - Gentle (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, New Age, Elec
 ```bash
 magnet:?xt=urn:btih:5BF935F13636091D37E3C53B3548DFE55F64A5B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FCE528A2FCD09F9BA918F47B73686C25A853B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ Alfred Powerpack 2.8.3 [En]
 ```bash
 magnet:?xt=urn:btih:B95C013D91352C0520085EAADE4180DD623AE0D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F822F8EB5509E505BD88BBBFBFCDF300E4232EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ CopyLess 1.8.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6F1C4AF6FC14753F7FB6B40104DBD8EAB9978B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F952FD908033349A813A1B106B92A25B7ABF4E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

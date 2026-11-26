@@ -19,8 +19,7 @@ Madden NFL 19 дает вам возможность полного контро
 ```bash
 magnet:?xt=urn:btih:E628805320B38A1C3024DDABA093095915FF0329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WWE 2K19 (2018) [Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:90337C11887FD476FAC6E3684C71DC169CEE8060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

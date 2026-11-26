@@ -22,8 +22,7 @@ A4 Hobo's Mediation(   Читать дальше...   )Жанр: Folk Rock, Coun
 ```bash
 magnet:?xt=urn:btih:3FBEFD497C47F9C6A5EB5304107AA3DBD4A89E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Югославская Эстрадная Музыка (1976) [FLAC 2.0|96/
 ```bash
 magnet:?xt=urn:btih:85A02A41D513E96BF4A8D2E4BC34F831F4224D94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

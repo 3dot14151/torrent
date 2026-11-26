@@ -21,8 +21,7 @@ Modern performance analysis and tuning: terminology, concepts, models, methods, 
 ```bash
 magnet:?xt=urn:btih:E311D65C222C2400093BDC09ABFA72931B28B928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

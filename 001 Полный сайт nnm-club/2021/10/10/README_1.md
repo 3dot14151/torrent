@@ -21,8 +21,7 @@ VA - Serious Beats 97 (2021) [MP3|320 Kbps] <Dance-pop, Techno, Disco, Progressi
 ```bash
 magnet:?xt=urn:btih:E4B9728D20A7030A8D3B727C4124C26C0E1DB9C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - The Official UK Top 100 Singles Chart 08.10.2021 [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:DB3B445E9EE12D642151E2BE7B26039BE10ED1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Doro - Warlock - Triumph and Agony Live (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <H
 ```bash
 magnet:?xt=urn:btih:290098B8853F4C013176E31BC77C6E55779D9996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - 255 DJ Loaded - Sessions Speech (2021) [MP3|224-320 Kbps] <Dancehall, Nu Di
 ```bash
 magnet:?xt=urn:btih:0C472CE8D87ED4AB695CE1BBBE7471B50F45423E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB8B88C33F97D1A31CB962E286659894DE9F2AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEF9D182EAAD0687D97EE848E1FC52E5AC1589DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - The Ambient Atmosphere: Relax Musical Collection (2021) [MP3|320 Kbps] <Amb
 ```bash
 magnet:?xt=urn:btih:F03A4662FB6ABAF883EFBF788F5D8A0D21DC0B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ kalachevaschool, Вера Соколова | Согревающие пожела
 ```bash
 magnet:?xt=urn:btih:3F5A87E90661680D2FBF0426483C99BF008083AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ kalachevaschool, Татьяна Чулюскина | Антиква и скри�
 ```bash
 magnet:?xt=urn:btih:2C78D50AD9C0C8CE47FD22A72D7661E8DD23C2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:843239E0D2C4D3C200F9E2436F1582A29F1A7B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:301C72B9FB31234E220ADA9A7C312417FBAA38E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F84E486A1C04BDFA9EFFC0A386E3EC307F97A4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ kalachevaschool, Анна Цымбал | Надпись на стекле (2018)
 ```bash
 magnet:?xt=urn:btih:A8029459EDD7BC4AF10F82973DD180B93419F388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ kalachevaschool, Вера Соколова | Новогодний девиз (20
 ```bash
 magnet:?xt=urn:btih:341F3CC6713235A08372874850C95616B935241E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ kalachevaschool, Анастасия Ермакова | Горное пастби
 ```bash
 magnet:?xt=urn:btih:C7DD3C0BD1907459AA5B5A509DB5B40D24F1C891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ kalachevaschool, Анна Цымбал | Оформление предметов
 ```bash
 magnet:?xt=urn:btih:DD7BC7AF7B0521380A9092FA46F307D3ACA21AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ PassMark PerformanceTest - набор тестов, позволяющих оц�
 ```bash
 magnet:?xt=urn:btih:39588570FB3C5E77077493AEEE308AE8C823F498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ VA - Soul Sugar (2021) [MP3|320 Kbps] <Funk, Soul, Jazz>
 ```bash
 magnet:?xt=urn:btih:D5C80D55621E26DF5F41878CC3A22C60BB95EA93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ kalachevaschool, Анастасия Ермакова | Закат на горн�
 ```bash
 magnet:?xt=urn:btih:F69369E60B86DD46771E0F511242DDC69D7BE96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD177D4999FC0694CC06385F88C98610252E52BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ kalachevaschool, Татьяна Чулюскина | Книжка-расклад
 ```bash
 magnet:?xt=urn:btih:54453A317EBA48975A68476FCA410F8DFDAC1735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ kalachevaschool, Татьяна Чулюскина | Шрифтовой колл
 ```bash
 magnet:?xt=urn:btih:B88BAADC74F82E56EDEF99B651BC16A016A96ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ kalachevaschool, Анастасия Ермакова | Звездная ночь
 ```bash
 magnet:?xt=urn:btih:97C77667F5FC882B95FEAB5A9B5151E9D82CFFA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78EB587CCE095853703931F3DEAC91165CAC25B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:E1E96123D0BC52DB45305273E5FFEDF72042D605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D418B98C1E0E57867DFB992F7FADD100E115A5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

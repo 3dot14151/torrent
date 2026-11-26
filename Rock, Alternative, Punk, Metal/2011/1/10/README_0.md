@@ -28,8 +28,7 @@ Marion Crane - Kamikaze (2010) [MP3|320 kbps]<Alternative Rock/Post Grunge>
 ```bash
 magnet:?xt=urn:btih:E9914C597A98CC600D49EFFF0474D6F21B9DEDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

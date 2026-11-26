@@ -22,8 +22,7 @@ Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] 
 ```bash
 magnet:?xt=urn:btih:EB1792E8B78554439E52F65A953BD7C250C029B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

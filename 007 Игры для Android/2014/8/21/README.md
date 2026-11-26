@@ -19,8 +19,7 @@ Sonic Jump Fever v1.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:8C8C760C770E0BE01CB0F494BA7C006B8BA8A035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

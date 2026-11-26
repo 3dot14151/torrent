@@ -27,8 +27,7 @@ Milt Jackson - Ballads & Blues (2012) [FLAC|Lossless]<Hard Bop>
 ```bash
 magnet:?xt=urn:btih:FAF0EB06E0533FACCC80208DEF1C6C391450AA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Adam Holzman Band - Manifesto (1995) /Russia, AGAT, 1998/ [FLAC|Lossless]<Fusion
 ```bash
 magnet:?xt=urn:btih:07F5BBC7979E6FB727F99BF73E27258B82D855E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A41A4B9BC70226581DD7D5DA17E986A592BA333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Adam Holzman - In a Loud Way (1992) /Russia, AGAT/ [FLAC|Lossless]<Fusion>
 ```bash
 magnet:?xt=urn:btih:11702A26D9AAD3DD1E8C883CAF7FA633AEDBC00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B5C24B5D952155E139DFA5DC4572A727B40C323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Bjarm - Imminence (2014) [FLAC|Lossless]<Symphonic Black / Death Metal>
 ```bash
 magnet:?xt=urn:btih:CD06665C03C28108B80B73456EF4E2E9549C70F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E6ECEF7C91B094BA8CBAB89D09C785161178F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DDBFBE973C83FEA9A783F4123CA48DA7A750FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ VA - Backtrack 7 (Vinyl) (1967-1970) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:BBFA0DC673E1194C5A02841DB707CF6B82A26A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ State Azure - 3 Releases (2011-2014) [MP3|320 кб/с]<Psybient, Downtempo, Ambi
 ```bash
 magnet:?xt=urn:btih:533D2E349BCCC511B773BF9F60B8A903CD7F2B87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +339,7 @@ Stanley Clarke - Rocks, Pebbles And Sand (1981) /Russia, Release Records/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:FF24596F7101FB4D41CC783F842D755BAB4C973D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ Skogen - I Doden (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:935C9CBDC762407AA9B8234DAED0C5F4F4B86DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FDCA84EF9BFC346EE8E1FC0F8749A3BD6F7E304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +431,7 @@ VA - Global Trance Russia (Mixed By Ex-Driver) (2014) [MP3|~245 кб/с (V0)]<Tr
 ```bash
 magnet:?xt=urn:btih:82AE8B7FABAD50182720E102E2708025ED8B9A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0197A1E6F0E91E3AD6DA8717F70A621E323A2BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +489,7 @@ Horace Silver - Modern Jazz Archive (2CD) (2004) [FLAC|Lossless]<Hard Bop>
 ```bash
 magnet:?xt=urn:btih:F69F92D76054E9FFDA2B93739FA7FEB0DE7EE9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ LDSD - надувная тормозная система, при помощи �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +547,7 @@ Stanley Clarke - Time Exposure (1984) /Russia, Release Records/ [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:D831BEBF201EACA5F9C9A0F2B642472B08B166B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +576,7 @@ S1gns Of L1fe - 2 Releases (2013) [MP3|320 кб/с]<Psybient, Downtempo, Ambient
 ```bash
 magnet:?xt=urn:btih:207D9913046209D0B4E938637727F3AF66CE0389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEC0BC5178C90DD9F83605C58104B4068A37E39A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ VA - 50 Chillout Anthems (Best of Dreamy and Smooth Chillout and Lounge Music) (
 ```bash
 magnet:?xt=urn:btih:DDD1B84A132881E082ADC00420FFA3E72BF49ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +669,7 @@ Luca Vasta - Alba (2014) [MP3|320 кб/с]<Pop, Indie, Alternative>
 ```bash
 magnet:?xt=urn:btih:239F6860BCFAD56C6EF85C22ABD2336207EE5555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7861A6AC9184BBA0A9D3EE4C3C93D92DD9488854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +726,7 @@ DeeperNET - One (2013) [FLAC|Lossless|WEB-DL]<Goa Trance, Downtempo, Psybient>
 ```bash
 magnet:?xt=urn:btih:2C0F1CCBFE34D83A20E739F73A84343F20A0FA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +754,7 @@ John Coltrane - One Down, One Up (Live at the Half Note) (2005) 2CD /Verve/ [FLA
 ```bash
 magnet:?xt=urn:btih:88216294E0C689E1B6E30D24482E366F88B2B55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -811,8 +786,7 @@ Sand3d - Dark Side Of EDM (2014) [MP3|~245 кб/с (V0)]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:56991D9790C74299A3B3E9FB5DA667CC9B40A0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

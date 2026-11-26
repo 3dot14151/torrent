@@ -19,8 +19,7 @@ ProcessKO 6.33 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:418F70D76C4F889A4E320EEFA3567341B6C0EA8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Desktop.Calendar.Tray.OK 4.06 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EC21E866F61F4E2460D9DD0FAB46207224B7C0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

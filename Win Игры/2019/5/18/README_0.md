@@ -19,8 +19,7 @@ Mystery Tales 10: The Reel Horror / Загадочные истории 10: На
 ```bash
 magnet:?xt=urn:btih:7DC2C9B2B1C9BB459A4B8E1D267B6AE19EBB44C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Plague Tale: Innocence – это невероятный средневеко�
 ```bash
 magnet:?xt=urn:btih:9BA4832C34869B269B5927EA450DDA422D09B0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mortal Kombat XL – файтинг нового поколения и след�
 ```bash
 magnet:?xt=urn:btih:32167C301DCDB50CEDAD8B4ED74ADC9E9EA66C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

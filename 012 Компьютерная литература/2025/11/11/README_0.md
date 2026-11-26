@@ -20,8 +20,7 @@ Stack Overflow | CSS для профессионалов. Руководство
 ```bash
 magnet:?xt=urn:btih:7357D913639D93528C77FBDFF2F5B73CEABE3521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

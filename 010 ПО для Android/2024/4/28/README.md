@@ -19,8 +19,7 @@ Enhance it v4.1.8 Mod by srajawwal09 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7A8B0A8C8B8871A1DEE5C89A0147F001430191DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

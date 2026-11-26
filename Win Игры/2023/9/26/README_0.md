@@ -19,8 +19,7 @@ Detectives United 6: Beyond Time / Союз детективов 6: Вне вр�
 ```bash
 magnet:?xt=urn:btih:B656C53FDE46537E735E53A2E834CE00A4FEF948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paranormal VHS отправляет в захватывающее путешес
 ```bash
 magnet:?xt=urn:btih:40DB8FA85D0A9E48AE7753EEFF0AD06293E87CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

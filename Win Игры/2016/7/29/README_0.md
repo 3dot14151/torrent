@@ -19,8 +19,7 @@ Vermillion Watch: Moorgate Accord (2016) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:0EA7C02EDF5C819752A155686EAB123143CDA6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Trackers 11: Train To Hellswich (2016) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:61FADCC0ACA709094041E558386086C34E4F765A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Anarcute (2016) [En] (1.0) Repack Elektra
 ```bash
 magnet:?xt=urn:btih:801E80E01351AEEEB9404A85F9AA0D0F503A577D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Spear Of Destiny. The Final Journey / Копье Судьбы. Последне�
 ```bash
 magnet:?xt=urn:btih:B0C78E5A6C975A166C4720B16AF38A7E5F7EEC05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SEUM: Speedrunners from Hell - это экшен-платформер, смеш�
 ```bash
 magnet:?xt=urn:btih:667BE3859FC612607ECE3353ED2C1AD28DFD2A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Vermillion Watch: Moorgate Accord / Алый Дозор: Мургейтский 
 ```bash
 magnet:?xt=urn:btih:1CF1D70FBA6AB3B515AADF7A0611A1496D8AE3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:76EC85CBFB5B6ED22BCB119AA94987E1B247944D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Thea: The Awakening - это гексагональная пошаговая с�
 ```bash
 magnet:?xt=urn:btih:1161B18F718634ACAA0A7941075C2699461C9777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ SEUM: Speedrunners from Hell - это экшен-платформер, смеш�
 ```bash
 magnet:?xt=urn:btih:CCC2AE5D8F2499D947967B78E89B2F5553E66D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Villagers - это прекрасно иллюстрированная и дет
 ```bash
 magnet:?xt=urn:btih:CE512F1BF416C537F0AE49E096D0C4268491CC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

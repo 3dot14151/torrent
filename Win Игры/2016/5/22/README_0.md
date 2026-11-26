@@ -19,8 +19,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:28EE896B7BF5001D9BA2D65284CE362CB0CF0DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ IS Defense - это аркадный шутер в фэнтезийном сет
 ```bash
 magnet:?xt=urn:btih:C5108CBEA5CB1DE6B2471AA956902BCBDB67BD0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

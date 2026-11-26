@@ -22,8 +22,7 @@ Jonne Aaron (Йонне Аарон Лииматайнен) - финский пе
 ```bash
 magnet:?xt=urn:btih:C662822F1BEEDF2F3004BADC0B026B90541C7712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

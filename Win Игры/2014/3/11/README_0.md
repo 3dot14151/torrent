@@ -19,8 +19,7 @@ Mind Snares: Alice's Journey (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:52D878397F2664493714766DCBE1098479C51EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Space Legends: At the Edge of the Universe (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:BFF829DD809A3B90F32C5C16689E182E95F572EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Kaptain Brawe: A Brawe New World (2011) [Ru/Multi] (1.4.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D58249E09DF151FF64A4B745E262FCE809942FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ The Incredible Adventures of Van Helsing 2 находится на ранней 
 ```bash
 magnet:?xt=urn:btih:CA7AF776369C626A980E5A726B44E42923D52F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Forced - аркадный экшен/RPG с элементами головол�
 ```bash
 magnet:?xt=urn:btih:5D1348D033EED5E8E9F02173CCB60BD7058E8D1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Tower of Guns - занятная смесь олдскульного шутер�
 ```bash
 magnet:?xt=urn:btih:11F30416DFBFB0AFF66948543D972F44052C0A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

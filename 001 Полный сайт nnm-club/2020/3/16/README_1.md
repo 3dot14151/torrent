@@ -18,8 +18,7 @@ VSD Viewer for Visio Drawings – хорошее приложение от ра�
 ```bash
 magnet:?xt=urn:btih:C6ABF5F2AE4AACB505C88A8E06E044794C840413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:CF6BF945C9651AB0882A7082413125401CDEB956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Basilisk - это веб-браузер с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:0061142F1A76DC0C42E58319690A03F3D20311F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ AIDE Premium Key - это приложение, представляет соб�
 ```bash
 magnet:?xt=urn:btih:04ED0CE1FD275E443793088AF7EDD65C1B46243B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Pear Launcher - Лаунчер способный полностью помен�
 ```bash
 magnet:?xt=urn:btih:C9C325AEB9430A761217A59A72A1092B0293B321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AFF4DC419FD2CDA3A7DDBA74D45841D24B144E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2176CE3B5728FA6CCE2DF0600DFD48121DAB8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ App Cloner - Хотите играть сразу с нескольких акк
 ```bash
 magnet:?xt=urn:btih:8CD3E33523E35830BFD4E916D13CA3DB0109975E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ The Hollywood Symphony Orchestra - Native Spirit (2012) 3CD [MP3|192 Kbps] <Nati
 ```bash
 magnet:?xt=urn:btih:B0A7536B92D2E6FF9D3FA871EBE26C325992E0BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A4E55016E7D8E08E9A10A6DA11383F2BF3C6613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:088B26D19187F186DADFA8F8C6137FF06F132F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ VA - Buddha-Bar XXII (by Ravin) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 ```bash
 magnet:?xt=urn:btih:9D7462D5D92EDB2F59A7C3BEFD207A1523A68860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Pyogenesis - A Silent Soul Screams Loud (2020) [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:8C7044C53A0A311C81217D98C90DE8B38E166E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Die Antwoord - House Of Zef (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Hi
 ```bash
 magnet:?xt=urn:btih:421C78B02C6D3D70D8A0CACFC65E878B8F04C741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ In This Moment - Mother (2020) [MP3|320 Kbps] <Alternative Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:8685F8EBB06D179CE17EDCEF7762CDA9BAE889C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AA46894CD93B1BD82DC20419DBCEC8A1A56D826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ VA - Лучшие Trance треки Ver.14 (2020) [MP3|320 Kbps] <Trance, Uplift
 ```bash
 magnet:?xt=urn:btih:F80A1CC8879E7055F0D044A2A16F22827D1BC2D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Stellarium Mobile PLUS - Star Map – отличное приложение на
 ```bash
 magnet:?xt=urn:btih:C80EF9FCA84A3FAC803B182D1CCD7FB9D7780709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F93B09E783E03BCAB166A265306D7C0566253318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4AA628FFA0B1730A85DBF9E8CDFA79DB4E1746C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2212CADD40CC85E7D820C5C87550E2452E7D44BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ Lindemann - Live in St.Petersburg Sibur Arena (2020) WEB-DL [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:BF30C94DF1640D585718BBBB31513C3205049119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EDDBE747A0888F507A87836C5B16D64FF9844A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CB255DDC6F16A9016087DB548E49A3199DFC0F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ Lightning Launcher eXtreme - расширенная версия одного и
 ```bash
 magnet:?xt=urn:btih:7A666A2911458A672614B52856BB25263BD183DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7DB710244F65504B7FF24DACD6B750952B989DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

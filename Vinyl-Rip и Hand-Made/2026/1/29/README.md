@@ -22,8 +22,7 @@ Avatarium — шведская рок-группа из Стокгольма, о
 ```bash
 magnet:?xt=urn:btih:E1CA7CB64211C5FE3D234649BB84FAEA65674A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Jarkko Kalevi Ahola.2012 - Stoneface
 ```bash
 magnet:?xt=urn:btih:4839E79D411FD3D0277C1136D3A0D83783809464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

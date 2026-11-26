@@ -19,8 +19,7 @@ ASTROKILL — это аркадный космический симулятор,
 ```bash
 magnet:?xt=urn:btih:CDFC9D59D5EC6EBE5A63F35C46F04EABF85652C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Metamorphic — аркадный 3D-платформер от первого л�
 ```bash
 magnet:?xt=urn:btih:D899893D2AAE1FEDD86EC0A2319790F272324915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Furi (2016) [Ru/Multi] (1.0) Repack Dok2
 ```bash
 magnet:?xt=urn:btih:7FAAE05FA8951AA8CA1481AFFFEC5925BCE4F775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RWBY: Grimm Eclipse - это, созданная по мотивам однои�
 ```bash
 magnet:?xt=urn:btih:9AD7980F6A163E4061E87BA4BC13D17B32745170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Parted Magic - это комплексное решение для управл�
 ```bash
 magnet:?xt=urn:btih:46B580A07EE0261B4C438E7102CAF5259DBFCA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

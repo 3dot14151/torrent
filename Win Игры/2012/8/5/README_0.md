@@ -25,8 +25,7 @@ The Political Machine 2012 [En] (L) 2012 | POSTMORTEM
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

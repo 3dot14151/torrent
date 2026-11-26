@@ -19,8 +19,7 @@ zetaTorrent Pro 3.7.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2ACA5373376AE3ADFE39D15ACA938CE101B2E7E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ En16 - это простой и эффективный способ изучит
 ```bash
 magnet:?xt=urn:btih:4B1FAF507C3BE2B4E537CAD4A9ACBA7C949292C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

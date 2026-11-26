@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4D017A933C1CC8C4706E4228DDD038780E2F56DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Java нельзя понять, взглянув на него только ка
 ```bash
 magnet:?xt=urn:btih:FFAC9AF691585E7416A0981C08FA2970697D6EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

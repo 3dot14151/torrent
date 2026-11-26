@@ -27,8 +27,7 @@ VA - Dubstep The Best (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:F8288BD8CC2596660C94A724DB8D3CAFC4B50C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Mixmag Pres: Heatwave mixed by Maya Jane Coles (2013) [MP3|320 кб/с]<Dee
 ```bash
 magnet:?xt=urn:btih:792817D087B9BBEC1586D4E9528E96C9D6899F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C0552628515E4051E23B64853D54477E6739E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Billy Squier - Video Hits (2005) DVDRip
 ```bash
 magnet:?xt=urn:btih:9FF593AD98C877B87AE800481B9C74C4EC0B0FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33E27822FA4AB9FD98F5733E7A15FCE13B97B24A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA4055C5C2FEBDE4AFA2782223786682E5A6576D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:5C49F9881E8B6F4B127C96D4838DC44729897EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:251D726F02A9D5F16792F2C0316391533C320EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:AA1EA880D1ED3A261B235A9A47D56FD0A8AC1DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ VA - The House That Jackin' Built (2010) [FLAC|Lossless|WEB-DL]<House, Acid>
 ```bash
 magnet:?xt=urn:btih:CC13186CC396E6650C6B44CBF334CDF139002E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:668FB33152F4F40F29324C034FF07263F58BDB50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:19B1FCB7D3A7A3292A3870651633846DF3E9D109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ VA - Radio 538: Hitzone 67 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:19859CE6BB60511E505E81230477290369AE7F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8490162CEF77BF6C938322DD763729D382C86401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ xScan – утилита для мониторинга использовани�
 ```bash
 magnet:?xt=urn:btih:342528B2628EA678580DA690FA67B210D25E055C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E1CF1A0E5EA3D6EB06513D76C8A3DE4DE2DBF4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +500,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:6AA06CBE43156B55D211D1E304AFA498B40CCF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ VA - Snuggle Lounge Deluxe, Vol. 1-5 (2012-2013) [MP3|224-320 кб/с]<Downtempo
 ```bash
 magnet:?xt=urn:btih:06A67664529B89824B80DE1B4CEAAD0E36FC02B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F26F9C54665CF2F1BCEB1E9BCFF1AAB9F4776FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ N.K.V.D. - Власть (2011) [MP3|~245 кб/с (V0)]<Industrial Black Metal>
 ```bash
 magnet:?xt=urn:btih:16F5DC9EBFA5F68501980659D5B97C195225C27F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C5251CC3ED2124A637387B4FF90E6E08BA3F948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C047D5DB019A46B4C293F638ACA78983FE39B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6AFD86E4853FA1A2AA3E6BB617D56F12712AEE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +704,7 @@ Diana Ross & Marvin Gaye - Diana & Marvin (1973) /2009 Universal Music LLC/ [FLA
 ```bash
 magnet:?xt=urn:btih:51EDF4C3CA6712370128B48F27B6F1E1476DEFFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +729,7 @@ GenShock - новая интеллектуальная система автом
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

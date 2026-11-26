@@ -20,8 +20,7 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:6C93E22D46BB33E23AEF419698380E853E56CCD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Metadata Converter - это интуитивно понятный редакто
 ```bash
 magnet:?xt=urn:btih:329A153395C0178649345502B27CCFD43B670CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ MarkupTable поможет вам быстро и эффективно созд�
 ```bash
 magnet:?xt=urn:btih:406FB16AC67AA34FE13DF3B5E61BD5D169A62502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Easy App Locker может защитить паролем отдельные п
 ```bash
 magnet:?xt=urn:btih:C00A330C7C96A6C932162D8EE800548958024EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Best of Elevate Records 2021 (2021) [AAC|~333 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1097F0F5E145B5DA8F6C7D574791119E90C406F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Caato Time Tracker использует трехуровневую иерарх�
 ```bash
 magnet:?xt=urn:btih:9B37273D2B2E9AE5CF029C8D4BF93699B457860E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ PhotosBlender «обрежет» результат, чтобы он соотв�
 ```bash
 magnet:?xt=urn:btih:29EB4BF75348D706F65FEAA910E2364727033F4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Scroll 2.3 [En]
 ```bash
 magnet:?xt=urn:btih:0366D07DC34F62CE5352E0F8D49363FFCD6D229C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ PatterNodes - хорошо продуманный и настраиваемый 
 ```bash
 magnet:?xt=urn:btih:0B4258D00C7DAC0AC481852008790C973228A3D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ VA - IGNESCENT Drum & Bass Annual 2022 (2021) [AAC|~340 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1D8F9E035A66F66EC5CF5392C84B6361A63F7303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Duplicate Finder и Cleaner помогут вам избавиться (   Чи
 ```bash
 magnet:?xt=urn:btih:FEF88B79557081CD34A484108B6A510321B164DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Erroll Garner - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 ```bash
 magnet:?xt=urn:btih:39EC7DE205C6643074F0B1E8D48DD2D05AC3F141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Johnny Hodges - Storyville Masters Of Jazz (1943 - 1964) 2006, Storyville Record
 ```bash
 magnet:?xt=urn:btih:885D46013642BCF729DB66BDCA86B074B7FD08E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ HighTop - самый удобный способ работы с любимым�
 ```bash
 magnet:?xt=urn:btih:220DDBDDDD6E6CAB471238B8E420CD8E0F88D141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Hyperkey 0.11 [En]
 ```bash
 magnet:?xt=urn:btih:C02259C664D70E56BDD26D6D9C7851DC576021DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ VA - Mellow Cool Swedish Jazz (2021) [AAC|~257 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:0544F2242C4DC5DCEDDEFCC9D53D12CF86BB5187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ Magick Touch - Heads Have Got To Rock 'n' Roll (2020) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:BC1EFADF0C47C528F2B72C615021F9EDCA3BF067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ SignFlow - это быстрый редактор PDF для электронн�
 ```bash
 magnet:?xt=urn:btih:C2699DF50C8F503A84BC69EBF9E5E350323FF1ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ Pro Microphone: Audio Recorder 1.4.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:B1CBB6DD47F3CFACE6A3AB2D601C1BE0FA95A7E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ Dropshare - приложение строки меню для Drag & Drop заг
 ```bash
 magnet:?xt=urn:btih:EBCD0876763BD655DF9DBAED8C0E5A210516EB97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ VA - Euphoric Techno Dec (2021) [MP3|320 Kbps] <Techno, Electro>
 ```bash
 magnet:?xt=urn:btih:381866430F659097FCAF782EFCFCA86E632562BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Super Photo Upscaler, основанный на технологии масшт�
 ```bash
 magnet:?xt=urn:btih:DC8909BF6A3AD208C0E65EE61A0A2417F1351E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C1231A9EC15E4297D47186C1CF8C4B12523F99A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2126726A24BCA332BDBAAE5E042F5C1D54A42235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77FBDD622CCAC7B87E208669AC35AEEF023B8318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ Prism представляет новые способы организации,
 ```bash
 magnet:?xt=urn:btih:ADC280C87E60313F9F451537B50C2D84F92F25AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Startopia (2001) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:FA249B233B1009A839032747A8031B913CBA59C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Freedom Force vs. the Third Reich – изометрическое ролево�
 ```bash
 magnet:?xt=urn:btih:7C82D9029B3C5FAA7E2D1D26456770DD8EBBCAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Freedom Force (2002) [En] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:819EE5EB1E247D3DEC3246B5056CD35646D15DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

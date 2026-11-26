@@ -19,8 +19,7 @@ MiniBin 6.6.0.0 + Themes [En]
 ```bash
 magnet:?xt=urn:btih:4555A6B55FD937094652DF6F18FC13625818E1BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

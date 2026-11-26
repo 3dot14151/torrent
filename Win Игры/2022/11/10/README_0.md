@@ -19,8 +19,7 @@ Samudra - двухмерная приключенческая головолом
 ```bash
 magnet:?xt=urn:btih:EA7F666189BC980B486130B5B65A0CDEBA4C4C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

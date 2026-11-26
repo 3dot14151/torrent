@@ -27,8 +27,7 @@ VA - Smooth Jazz Strings (2013) [MP3|320 кб/с]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:F101541A74599A8F6F19764A0B97F27D1A2371A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Operadyse - Pandemonium (2013) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:A796F2D461BC248CC5CA383640F8051C0EF6D658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:774D06EF4C28E278D74C55F0C10F21D06D1D208D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Side Liner - Missing Pieces Of A Puzzle 4 (2013) [FLAC|Lossless|WEB-DL]<Ambient,
 ```bash
 magnet:?xt=urn:btih:D692C9FF4897C4B533D1FEC4DF097901ABDAFD5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Selber Machen — немецкий журнал для домашних маст
 ```bash
 magnet:?xt=urn:btih:8E2673B994B1A665F1D28A65D3DF56CEEDDDA68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Gerry Rafferty - Sleepwalking (1982) [MP3|320 кб/с]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:206E0CD431BEEC94FA9236F3ECA5C60A107A1961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Plagiarii (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:C7F0D41B384D54B8631AAD50E57ADB8D7D85B1EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ DSLR — как много смысла заключено в этих четы�
 ```bash
 magnet:?xt=urn:btih:BB36218CF14322A29193695F0C8FA02B828227E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDE5F305F4B30F1100750F396AB0BD909C182254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EF60F2370323A3FBE9D2F3F0C5A8AC45D38C56D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:645C993B8D78E2B4847C66148C66CB57BFABAD5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +369,7 @@ VA - Dessous Lounge - 20 Erotic Chillout & Lounge Tunes (2012) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:FF4C15BC32FAC8E79E922B3F703EFB1FA12DB4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A23D082850145CC3E7F298CAED725BD9628765FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ Joanne Shaw Taylor - Songs from the Road (Live) (2013) [MP3|320 кб/с]<Rock, B
 ```bash
 magnet:?xt=urn:btih:4F1BA4F4555952093106A451377C0BBE15CCD53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ ELLE Decor - самый красивый и полезный журнал о с�
 ```bash
 magnet:?xt=urn:btih:9DD0E60807AE5DE47529357AF5F2BCE3A4CD155E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ Kylesa - Ultraviolet (2013) [MP3|320 kbps]<Psychedelic Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:8A8C2B6437B5787BED1A420ECD676C3D1114EA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA996E80B592073188E6013CC7B024E1751FD0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +549,7 @@ Purson - The Circle & the Blue Door (2013) [MP3|320 кб/с]<Psychedelic Rock/Ha
 ```bash
 magnet:?xt=urn:btih:3B70FCCB96388C9B1FD67F9299ECE39228EBC867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ VA - Горячая сотка RU Осенний выпуск №4 (2013) [MP3|2
 ```bash
 magnet:?xt=urn:btih:01638DF8088ABD6545E726991E30CE039B84197C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ Arild Andersen - 3 альбома (1994-2012) [FLAC, APE|Lossless]<Contemporary 
 ```bash
 magnet:?xt=urn:btih:F8BF27D037FED0AAA501F11CAD7EBF30140229CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ Electro Synthetic Rebellion - Time Of Fear (2013) [MP3|~245 кб/с (V0)]<Dark E
 ```bash
 magnet:?xt=urn:btih:46AFE39976752A87B8654207A743ED97C8A0FB74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6320AE6DD8776F2551CC4B9C116C90E1EADD5B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:819CF6A4B720BF36B6C66A59D6E712483C514835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25C577879E7DB8755B8B4D0A8BB29B24455EF27A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95614EE4504F275A2E23943010EBE0E532B056B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

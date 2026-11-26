@@ -22,8 +22,7 @@ Sunless Rise - Unrevealed (2015) [MP3|320 кб/с] <Melodic Death Metal, Progres
 ```bash
 magnet:?xt=urn:btih:7BDEBAFAF8C3E68A7957E3B0EE10B890CE3D1BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A2121D5BBE602373A871379BBE05572DB00F130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B68B0310790B1B689D4E4706C819CB664304F946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Elvis Presley - Elvis 56 (1996) Compilation, Remastered [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:88098D7637002AEF00C7C2B0B15C99A3658FCE38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bon Jovi - Crush (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:8EEBF47D9F1031332B94BD74A77633F1E79A93F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ The Alan Parsons Project - The Turn of a Friendly Card (1980) 2015 2CD Deluxe 35
 ```bash
 magnet:?xt=urn:btih:262200FAC9AB02A3F5604B089549C2747C6E1597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

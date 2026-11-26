@@ -19,8 +19,7 @@ Coolmuster PDF Password Remover Открывайте защищенные пар
 ```bash
 magnet:?xt=urn:btih:E5F9698C8BB34A6D7FCBC8A9085789E1D8D6192A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

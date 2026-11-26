@@ -19,8 +19,7 @@ Dark From Day One - A Darker World (2026) [FLAC 16,24/44.1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:56C59A729B39F6D3EED1704C1A8181D5D392B5E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Dreams in Fragments - Shadows from Afar (2026) [FLAC|Lossless|WEB-DL|tracks] <Sy
 ```bash
 magnet:?xt=urn:btih:CB65F30FA34E3BAC31926FB4A8032651FB3985A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Pink Floyd - 8-Tracks (2026) Japanese Edition, Compilation, Limited Edition [FLA
 ```bash
 magnet:?xt=urn:btih:56F7645DFADB9A3863769CD45C539A915E08A3E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Iron Slaught - Metallic Torments (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Sp
 ```bash
 magnet:?xt=urn:btih:1F62E881F8C79E64D63BB738F0E56FBA16B3C6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

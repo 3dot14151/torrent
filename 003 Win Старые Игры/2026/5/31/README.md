@@ -19,8 +19,7 @@ Dark Fall 2: Lights Out (2004) [Ru/En] (6.00) License GOG [The Director's Cut Ed
 ```bash
 magnet:?xt=urn:btih:A8F1979FF2D43FE9AEF3846F8193BE754F6C12FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

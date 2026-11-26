@@ -22,8 +22,7 @@ A4. Someday {05:06}(   Читать дальше...   )Жанр: Arena RockПр�
 ```bash
 magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Swept For You Baby(   Читать дальше...   )Жанр: Soul, DiscoП
 ```bash
 magnet:?xt=urn:btih:8E8BAD264AC7CAC6C7A680FF47AFCD1B71C20118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Aerosmith — музыкальная группа, вероятно, самый 
 ```bash
 magnet:?xt=urn:btih:893FBC5828368B3AAB3FC78EDEC256B17752735D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Immortal — блэк-метал-группа из Норвегии. Колле�
 ```bash
 magnet:?xt=urn:btih:504D540E874F75669070C2045EE6AB1C902C5D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

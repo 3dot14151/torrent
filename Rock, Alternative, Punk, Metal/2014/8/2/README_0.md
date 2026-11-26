@@ -28,8 +28,7 @@ Beatsteaks - Beatsteaks (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:429EC7ACB659C02CA63931BCA1C9BC099B102DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Theory Of A Deadman - Savages (2014) [FLAC|Lossless]<Alt. Rock | Hard Rock | Pos
 ```bash
 magnet:?xt=urn:btih:AA9FECEEF8CECF9D79B246C1242A0E315DD22F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Black Keys - Turn Blue (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:FF6F0D454E76689EE7E488A171BDD108F686AE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

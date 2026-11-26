@@ -28,8 +28,7 @@ Warbeast - Destroy (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:BFFCF215FA2B0CC312EF8C1F2252DE4C79516784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57F1DFC078A75381DB79986F89390EE04F45D95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Velvet Underground - The Very Best Of (2003) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:D811DE71AA5843EFB1F629F75F7AF871B0B1EF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Elton John - The Very Best Of Elton John (1990) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:2729D2CE0AB9A29C9BD1627E078DCE22CDD1B015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Billy Idol - Greatest Hits (2006) [FLAC|Lossless]<Punk>
 ```bash
 magnet:?xt=urn:btih:E922D728E122804D1940F457EA34D32C41DFF593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Annihilator - Feast (2013) 2CD, Limited Edition [MP3|320 кб/с]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Out There Tour - последний концертный тур Пола Мак�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A96FEEA66F49DE2990AC678525E8F1D96FE70F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

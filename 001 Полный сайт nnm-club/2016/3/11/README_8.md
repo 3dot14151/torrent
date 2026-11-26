@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:323D451B53C056984A6515466D98C9756E6D3F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEF9E86422492FF883F35999C6EF46815AD98CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Call of Duty: Advanced (   Читать дальше...   )Тип издани�
 ```bash
 magnet:?xt=urn:btih:2513F2CCB839A22FFF0225BAA35A128C8F2DA414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

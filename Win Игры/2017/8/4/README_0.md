@@ -19,8 +19,7 @@ Witches' Legacy 10: Covered By The Night / Наследие ведьм 10: Ск�
 ```bash
 magnet:?xt=urn:btih:36F8B660DBE1B2818915B1F347F37AD54EF785FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Witches' Legacy 9: The City That Isn't There / Наследие ведьм 9: Г
 ```bash
 magnet:?xt=urn:btih:DFC88560810D77D9A3173E7895A6521263C1669D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tacoma — приключенческая игра с увлекательным
 ```bash
 magnet:?xt=urn:btih:7F0D31F499728C11D4832E8B8D33894FE201A612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

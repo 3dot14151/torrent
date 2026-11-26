@@ -22,8 +22,7 @@ VA - трибьют Пурген (2024) [MP3|320 Kbps] <Rock, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:A78181E4DF30D6B8AC15289879350EBC3AE4589C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A297DB2834682FFE9C2F592F921E627FC1717712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6CC15503CE13FABDFA2F5CB63B5B8AFD64E2551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ MishRooms - Пьяные драконы (2024) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:DA5D843387BC137587E52F408750887370BC7A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Rage - Afterlifelines (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power M
 ```bash
 magnet:?xt=urn:btih:E5EE251907C1BC6B2A9D7AE072D40F08D43E06BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Famy - We Fam Econo (2014) 1st UK Press [APE|Lossless|image + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:5F0C4597E483C13BEB8E6FBBFE7D55D258970A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

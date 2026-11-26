@@ -19,8 +19,7 @@ Dark Tales 16: Edgar Allan Poe's. Ligeia (2019) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:83913E7ED0A318294FE504760344D0F787898589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fantasy Strike — это файтинг с максимально просты�
 ```bash
 magnet:?xt=urn:btih:36FABF40F23CC6C2C16E80531D2ADD1127CB3B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Immortal: Unchained — новое слово в жанре хардкорных
 ```bash
 magnet:?xt=urn:btih:686381EB94321FEB5221A752A31C9CED7A2E0C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

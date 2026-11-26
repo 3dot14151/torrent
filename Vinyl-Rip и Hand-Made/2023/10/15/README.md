@@ -22,8 +22,7 @@ Bullet - шведская хэви-метал группа, основанная
 ```bash
 magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A2 Машина Времени - Путь
 ```bash
 magnet:?xt=urn:btih:AFA2192E2F02FFA62F1DCFADE4DF814872045F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

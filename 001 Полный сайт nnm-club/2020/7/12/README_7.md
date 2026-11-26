@@ -18,8 +18,7 @@ CAR India, признанный лучшим автомобильным журн
 ```bash
 magnet:?xt=urn:btih:A3B5EAFF56A8656A735435D46985ED0F2A159514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:521DF52A64255CF29FF66B33160C89F11DF59B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dust to the End (2021) [Ru/Multi] (1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E88AC4EDEEACCFC14848310F32BECBD15B3AB89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

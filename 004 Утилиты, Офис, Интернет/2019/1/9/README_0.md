@@ -19,8 +19,7 @@ Passcape Windows Password Recovery Advanced 11.6.1.1095 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:618008E055FF0C54730AE6F600D5D1DC909E233F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

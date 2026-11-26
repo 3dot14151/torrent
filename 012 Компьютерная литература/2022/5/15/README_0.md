@@ -21,8 +21,7 @@ Andrew Ferlitsch | Deep Learning Patterns and Practices (2021) [PDF] [Книга
 ```bash
 magnet:?xt=urn:btih:B7B417C5796137B05FB8D984DC3ACA5689E69D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Samer Buna | GraphQL in Action (2021) [PDF] [Книга + Видеокрус] [E
 ```bash
 magnet:?xt=urn:btih:62021200F6C10A668765F49A90D32041C38EEE4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Craig Walls | Spring in Action, Sixth Edition (2022) [PDF] [Книга + Вид�
 ```bash
 magnet:?xt=urn:btih:50AD70AB2169B32A90DB00350A86B28D499C4DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Alexey Grigorev | Machine Learning Bookcamp (2021) [PDF] [Книга + Виде�
 ```bash
 magnet:?xt=urn:btih:63AB46B6E621E43EA1B690108B1B949229FD4C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Leonard Apeltsin | Data Science Bookcamp (2021) [PDF] [Книга + Видеок
 ```bash
 magnet:?xt=urn:btih:89F00911282DC5D5B4804682BF1443CE1E98C8B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```bash
 magnet:?xt=urn:btih:F8727F3563CE616C40769204AD251725057A53A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Martin Joo | Test-Driven APIs with Laravel and Pest (2022) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:9F150FB67A90F5A08B6E3EFFA5FC805BD3703491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

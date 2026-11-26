@@ -19,8 +19,7 @@ Moon Mystery приглашает игроков в космическую од�
 ```bash
 magnet:?xt=urn:btih:DAE5FA53C6194BF678F90D5981223FC8485FBC55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mount & Blade II: Bannerlord представляет собой долгожд�
 ```bash
 magnet:?xt=urn:btih:AB2EEAEF41656BA9F9C98BF8D2802775910F972C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Legend of Heroes: Trails from Zero (2022) [Multi] (1.4.13) License GOG [Extr
 ```bash
 magnet:?xt=urn:btih:201027F79185EEF241A3952DEC225D03CBCF173B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Owlcat Games, 18 000 спонсоров с Kickstarter, дизайнер пов�
 ```bash
 magnet:?xt=urn:btih:172C545A50C55BBA2010CA90B210507E431D636F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 ```bash
 magnet:?xt=urn:btih:EF984C488D18B3EC2E2BE324EB0071E55D31F0AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SPRAWL (2023) [Multi] (1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:81F19EB82D16319745BB502BEBBB2F24E7777707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711.b1327bd4.0) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:688D8A4F61A79171242FA86C65D89803B8ECECEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Paranormal Files 12: Fatal Flaw (2024) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:FA4EC25DE4045A6BCACA9A15AF3E6E38D75ED399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Super Woden GP 2 - это любовное письмо в мир автоспо
 ```bash
 magnet:?xt=urn:btih:22762FF5757B7243FEB8CD4B09CD899BF501C53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

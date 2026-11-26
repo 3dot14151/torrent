@@ -19,8 +19,7 @@ Al-Qadim: The Genie's Curse (1994) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:74625168E0A03ABB8710E654EE5F7021A7A3AA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

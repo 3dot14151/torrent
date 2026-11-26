@@ -20,8 +20,7 @@ Battle Engine Aquila / Боевая Машина Акилла (2003) [Ru/Multi] 
 ```bash
 magnet:?xt=urn:btih:BDEE92F2D490006787FDA4AC7D6589D538AFD161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

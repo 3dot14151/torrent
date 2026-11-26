@@ -22,8 +22,7 @@ Desaster - Stormbringer (1997) Reissued 2003 [FLAC|Lossless|image + .cue] <Black
 ```bash
 magnet:?xt=urn:btih:8375E3C3A1D47954AC734F4CBBB76BF2D42B0D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Christophe Wallemme - Om Project (2017) Bonsai Music [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:C1BD25F1AFA5F99888827A30B3D1B55CFF32C694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:DD744850D99B0881CEFBA690A4EE8A92AC0BD0D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Willard Grant Conspiracy - Untethered (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock
 ```bash
 magnet:?xt=urn:btih:354D6177B619A8D72482862CE5EBDA46C14A6BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Christina von Bulow - On the Brink of a Lovely Song (2018) Storyville Records [F
 ```bash
 magnet:?xt=urn:btih:78CBB92BF23D63025446D6F5BBD25E1D05A7E723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8373757A3DFCAEC7AF6B4208210717B7D88C4C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - New Music Releases Week 51 of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alt
 ```bash
 magnet:?xt=urn:btih:404BDB937CA8CB196DB6B94BBF262282FFC0BA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Jo Jo Gunne - Jo Jo Gunne (1972) Reissue, 2003, Collectors' Choice Music [MP3|32
 ```bash
 magnet:?xt=urn:btih:1A563FDDA7D4522B61076CA6B2C6A72569693710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Beats Drum Jungle (2018) [MP3|320 Kbps] <Jungle, Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:454F63AB94D8E3B6814F931A5E7F3E2E620898AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:63F2B3200F7038E6C7C6DEAF9CE6F87ED6A6A8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Four On The Floor - Four On The Floor (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco
 ```bash
 magnet:?xt=urn:btih:22EB61F2EF8B6FF6163D13FFAC1887FF354B4E2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ VA - German Top 100 Single Charts 31.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:59F1C9528934CB0B072C3F5B2822144A19095F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ VA - The Ratpack At Christmas (2012) [MP3|320 Kbps] <Jazz, Pop, Folk
 ```bash
 magnet:?xt=urn:btih:9D56494D672B2EE90DAF0DE0C0CB9847F06EDC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ A4 Neidot Herkat Hennot(   Читать дальше...   )Жанр: Folk, World
 ```bash
 magnet:?xt=urn:btih:2FCF8BE6C0A182F0FBC27B72FFB7E676A4074B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ Money Pro сократит расходы и покажет полную кар�
 ```bash
 magnet:?xt=urn:btih:5A71E9658B97812EFC9E5500B460CCDB71AA11E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ A4 Funny How Love Is(   Читать дальше...   )Жанр: Pop RockПро
 ```bash
 magnet:?xt=urn:btih:A44B0117C33743844D61B4D9DE77668802CBE965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Last Autumn's Dream - Secret Treasures (2018) Japanese Edition [MP3|320 Kbps] <H
 ```bash
 magnet:?xt=urn:btih:947CD0D8AD044E2146BF8B82E4CB9359A5AA8FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8F1427A6AB7476D601E421BA997C97B4A5C0DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:8F83BC587A9C0A3508085358FA0B05FEFB8F2E0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ VA - Best Music of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alternative, Dance>
 ```bash
 magnet:?xt=urn:btih:E63886D0789D2A18CCBBE81EB2BD3493AC8BA034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CDB202AC42C8B8119FC30571CC6AA43EAB36D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB816579FAC72757A498D11C7A83C79E734FA502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ Def Leppard: История группы / Def Leppard: Group Story (2016) HDTV 
 ```bash
 magnet:?xt=urn:btih:6C4615B27AFAF99A5BDDB5FC601956D28F793BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ WiFi Scanner 2.8.2 [En]
 ```bash
 magnet:?xt=urn:btih:B4BC80CD1F6F26AADE6B06849D3E6D445B08DA3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ Movist является простым в использовании и мощн
 ```bash
 magnet:?xt=urn:btih:957868AF2581DF399E12DBA6B0C48D3B8C1444DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ VA - Billboard Year End Hot 100 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
 ```bash
 magnet:?xt=urn:btih:C4354B865D4C9B58795E8D41C9AE9A71E1AF7CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

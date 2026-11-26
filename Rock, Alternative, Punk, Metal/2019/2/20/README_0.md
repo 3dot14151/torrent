@@ -22,8 +22,7 @@ Before The Rain - Frail (2011) [FLAC|Lossless|image + .cue] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:FC32607818CB046F2716F3B74BB811F070C269A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Foxwarren - Foxwarren (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Fo
 ```bash
 magnet:?xt=urn:btih:5CDD081FB20EF4E4BDD576632B2153FEBE404D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Au Pairs - Sense And Sensuality (1982) Remaster, 2002, Castle Music [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:20D6FFCF41C3F55F69DE880E1F7DCAC925D11609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Hard Rock Arena (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:26726FA4223AE647B8CAC5689360F13DE38B1764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

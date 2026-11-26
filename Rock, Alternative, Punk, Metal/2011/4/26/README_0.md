@@ -21,8 +21,7 @@ American Hi-Fi - 4 альбома + 2 сингла (2001-2010) [MP3|320]<Alterna
 ```bash
 magnet:?xt=urn:btih:51A4CA636A5F4A3ACD0B780C19A38ABC6452ECDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Skindred - Union Black (2011) [MP3|192-320 kbps] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:8F7CFDA443C5D41BC6C357F19290D05F85441DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

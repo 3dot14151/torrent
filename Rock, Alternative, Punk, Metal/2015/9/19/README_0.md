@@ -22,8 +22,7 @@ Ad Hominem - Antitheist (2015) [FLAC|image+.cue]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:C0CAE12F76BC11C8A1134EE6FEBE9E53931BE9B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shining - IX - Everyone, Everything, Everywhere, Ends (2015) [FLAC|image+.cue]<B
 ```bash
 magnet:?xt=urn:btih:38BC5D14F0777A5FCC44EFB095BB5383337F4410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jungle Rot - Order Shall Prevail (2015) [FLAC|image+.cue]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:2CDE3441FE2571E8CED89E76ED2C6CEA9F597432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Tea Party - The Edges Of Twilight (2015) 2CDs Deluxe Edition [FLAC|tracks]<P
 ```bash
 magnet:?xt=urn:btih:1B6A1A11210269745E271AA30E652E6A9C46DD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Children Of Bodom:
 ```bash
 magnet:?xt=urn:btih:62894DF39B3B0C9970AC8CA3087CB0DF9F5F249F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Stratovarius - Eternal (2015) Japan SHM-CD Edition [FLAC|image+.cue]<Melodic Pow
 ```bash
 magnet:?xt=urn:btih:22F722A79F98D49B4265501B07E646E163751AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Celldweller - Blackstar (Original Score) (2015) [MP3|320 кб/с]<Industrial, Al
 ```bash
 magnet:?xt=urn:btih:99EF6231C13C5D6D512E23B7C2D80A0F0F444148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:03DA6EB087DB2FA4CDDE7D91C3D1908AA7274876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Chris Norman - Crossover (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:796C505255C0DC3DAFD68582AFFD5CD84D3B762B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Elvis Presley - 15 Original Albums & Bonus Tracks (2014) 10CD Box Set[FLAC|track
 ```bash
 magnet:?xt=urn:btih:71AF9C25CB221B02527D04CE13399D30392A1A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Flying Heroes / Рыцари поднебесья [Ru] (L) 2000
 ```bash
 magnet:?xt=urn:btih:3F435E1186E3D08E85594F3052ECBCB322832B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Doom — культовая компьютерная игра, выпущенн�
 ```bash
 magnet:?xt=urn:btih:5FD543CA19AB05398C56A00510FB9E17EC7BEF42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ The Battle for Wesnoth / Битва за Веснот (L) [Multi35/Ru] (2012)
 ```bash
 magnet:?xt=urn:btih:248BB74A97484BC9FADE69A4D87057DA5B67A404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

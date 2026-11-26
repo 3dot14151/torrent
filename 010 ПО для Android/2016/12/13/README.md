@@ -22,8 +22,7 @@ KMPlayer - игрок, который стоит выше остальных, к
 ```bash
 magnet:?xt=urn:btih:BDE368FA10A9F9CD664711974EBEBA705AE62793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Automatic Call Recorder – приложение, позволяющее авт�
 ```bash
 magnet:?xt=urn:btih:AFEE306170003F745B7319AC403E75DE69599FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Root Call SMS Manager 1.8.1 [Ru] Full
 ```bash
 magnet:?xt=urn:btih:69023A14CA1AD75167863BF2BD6FC4DC36E1BCC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C912E81C5F11DEA49CFE70FC41D278309C068F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

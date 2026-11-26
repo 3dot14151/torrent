@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:755569178A6D0F5BB78AE09A50F74E65D45A1F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Grade 3 (9-10 лет)(   Читать дальше...   )Жанр: Обучен�
 ```bash
 magnet:?xt=urn:btih:68BF120877CB7ECAF1F6D8515F398E7749E367BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

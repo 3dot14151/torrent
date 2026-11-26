@@ -22,8 +22,7 @@ Nightwish - Wishmaster (2000) Released, 2015, Spinefarm Records [FLAC|24/192|ima
 ```bash
 magnet:?xt=urn:btih:B1CEDEB557E55F5A945F32D34A7F278CC5E14976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nightwish - Wishmaster (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Po
 ```bash
 magnet:?xt=urn:btih:C6DED3E50D2CB38544C7C0489F31978DE4C23885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 - Hate Yourself(   Читать дальше...   )Жанр: Post-Black Metal
 ```bash
 magnet:?xt=urn:btih:C576B703FFDD783F23CF021AD90E544BCD3BDC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 - He Dives Down(   Читать дальше...   )Жанр: Sludge, Stoner M
 ```bash
 magnet:?xt=urn:btih:90D376C49D71509908A41A7FA134F99EDACF9F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

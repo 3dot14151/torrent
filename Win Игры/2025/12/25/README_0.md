@@ -19,8 +19,7 @@ Happy Holidays 5: Christmas Never Ends (2025) [Multi] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:D42E997EDA08BF4589DBE313B05792BA6F8DA569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The House in Fata Morgana (2016) [Ru/Multi] (1.3it) License GOG
 ```bash
 magnet:?xt=urn:btih:DC638E019937EC2EBFAC2451C07579EAB309C63C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ After… Prologue - это сюжетный ужастик с элементам
 ```bash
 magnet:?xt=urn:btih:7302CF3221F2E7F453FC801373DCDBE2D4881D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fuzz Dungeon (2021) [En] (1.3c) License GOG
 ```bash
 magnet:?xt=urn:btih:6DD9A244C36781F433415D76B4BB82AC651B1509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ JEF (2020) [En] (1.1c) License GOG
 ```bash
 magnet:?xt=urn:btih:09D0B4D5E3C8156F237272D3AF71891229D8FD5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cats Hidden Around the World - это не обычная игра со скры
 ```bash
 magnet:?xt=urn:btih:7B7795B5BA1E6911A56CD74F6880300A09C1074C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

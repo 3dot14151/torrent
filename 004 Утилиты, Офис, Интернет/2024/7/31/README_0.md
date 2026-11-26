@@ -19,8 +19,7 @@ KMS_VL_ALL_AIO-52 Portable by abbodi1406 [En]
 ```bash
 magnet:?xt=urn:btih:2079FE5C7A4E00B1E090AD9603C34AF9E6A1ADAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:B9F64D297A65C328A5AC10D8B13A2C695F9B235D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

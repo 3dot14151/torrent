@@ -19,8 +19,7 @@ The Sims 4 — игра-симулятор жизни, которая позво
 ```bash
 magnet:?xt=urn:btih:774F66EEBB6462F0B037EC9A239D4A87BA27033C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AA311548692E461D682F18DD34EEDC85522110C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Navitel / Навител Навигатор v9.8.19 RePack для карт ре�
 ```bash
 magnet:?xt=urn:btih:4CCE69B28B7D1ADB79EA7A14D1077F3147BEDFE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

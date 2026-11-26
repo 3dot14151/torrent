@@ -19,8 +19,7 @@ Scrollow позволяет управлять различными параме
 ```bash
 magnet:?xt=urn:btih:717EC088C3D2EFB84695BDFB97ADF3ED268B3B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hasher - это простая в использовании утилита дл
 ```bash
 magnet:?xt=urn:btih:3A3420A1CD44005D9411B27D6F05586EA00C9E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - A Tribe Called Kotori 1 (2018) [AAC|~330 Kbps] <Progressive House, Deep Hou
 ```bash
 magnet:?xt=urn:btih:04DA74BBF15E2E13CB9EDEB09CC143A6048E116A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Ink2Go - интересное приложение, которое позвол�
 ```bash
 magnet:?xt=urn:btih:F59F0126894D56A31A70E641FECC88901147D1E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ VA - A Tribe Called Kotori 2 (2018) [AAC|~333 Kbps] <Progressive House, Deep Hou
 ```bash
 magnet:?xt=urn:btih:338086A0E3A9ADF21542CE64EC4453EAAD9F9E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ VA - syncmusic - Essentials, Vol. 2 (2017) [AAC|~337 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:40D66A345E8AC2235F9F0BB4E1B68D6C703BDA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Smultron - простой и удобный редактор. Smultron - про�
 ```bash
 magnet:?xt=urn:btih:FCFED890CE89F556C4E2702A117EB8E1082049AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 ```bash
 magnet:?xt=urn:btih:4C90DB88F093299F740CC0EF9B7ADB7C08976420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ VA - syncmusic - Essentials, Vol. 3 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:CCF65F793F962A1E0687BF3AB56A1DF21C8BF9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Image Resizer – Resize Photos  полезный и эффективный ин
 ```bash
 magnet:?xt=urn:btih:276D8BDFBA08949A1ACE091BBD4B1DABCFD6DC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ MarsEdit 4 v4.5.6 [En]
 ```bash
 magnet:?xt=urn:btih:5BE8F70FCA7C3EBE49E499D24E95887B2414CA30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Lich King - Toxic Zombie Onslaught (2008) [WavPack|Lossless|image + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:29657C058A21DF4BB2A201165631A5E087C34F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ VA - A Tribe Called Kotori 3 (2019) [AAC|~328 Kbps] <Progressive House, Deep Hou
 ```bash
 magnet:?xt=urn:btih:CF3D1C7A213F1D783048856E3077FC5FBBB0A7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ PaintCode 3 v3.5.0 [En]
 ```bash
 magnet:?xt=urn:btih:4EB1723EDD46D439DE1454C9FB651C8F8EFE2C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Untouch 1.2.1 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:859AE2F0730FEE0101D019B35487CBFA8C76AC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ VA - syncmusic - Essentials, Vol. 1 (2013) [AAC|~335 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:9A2B829DC1EA313FA62AC333BE0820C3160223B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:EE3FAC29E4872E4141ABCBE6518D518B31B8031F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Lich King - World Gone Dead (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C25CC890D40E7308B038067DEE0B56F89F228898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:23E8068B729C7F6E0796000FA86CF23330CAAF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 magnet:?xt=urn:btih:529F88E4CD22512CA3EDD5E80F09498606998CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ VA - Calm Winter Sea: Chillout Your Mind (2021) [AAC|~339 Kbps] <Lounge, Chill O
 ```bash
 magnet:?xt=urn:btih:F60E7128EA379CEEBEFC51939C9E368C0CB26559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Lich King - Born of the Bomb (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:2A427F3B700F90D9997F37BDDB2DDC3D2291E012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Lich King - Necromantic Maelstrom (2007) [WavPack|Lossless|image + .cue] <Thrash
 ```bash
 magnet:?xt=urn:btih:68FD3A15CB96887AB3F16FE933515B53F6BE81B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ VideoDuke 2.2 [En]
 ```bash
 magnet:?xt=urn:btih:A6C3B9DCC67927C1ED642C62BBD46DDA5C4EBD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Murasaki - это приложение для чтения книг в форм�
 ```bash
 magnet:?xt=urn:btih:97858D40E32434AE2F7E6E2569714F37EBB4701F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ YouTube5 был расширением Safari, когда Flash был еще в
 ```bash
 magnet:?xt=urn:btih:2627B7826C0CF4A0FC9B655827AFF55E492ED9BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Empires Of Eden - Reborn In Fire (2010)
 ```bash
 magnet:?xt=urn:btih:C893F70AC43930C2710A97A1A7399886C0D0586A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ CANDID8 - Ради Чего? (2011) [MP3|320 kbps]<Punk-Rock|Melodic Hardcore Pu
 ```bash
 magnet:?xt=urn:btih:2A61DC102A41D32C790E9F84B89E777BCC4682C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

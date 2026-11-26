@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:79BD06A61DC9179456DE83D495446F127D94FFCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ RGPO - Ешка (2023) [FLAC|Lossless|WEB-DL|tracks] <ska-core>
 ```bash
 magnet:?xt=urn:btih:8E582EF0B4539EA7095E709D77CFB9834205A5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

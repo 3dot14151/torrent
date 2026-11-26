@@ -27,8 +27,7 @@ Inner Sight - A Vision Of Ekstasy (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:625D9DDE0CA9346C9877E0130410D75CCA97AD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Steelshine - Steelshine (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3A2FED852DAA321518731FE7AE2FDE224559E605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Astrakhan - Retrospective (2013) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:620D7E3C62461B08BFF9D9259E47F88044AF7784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Dragonland - 5 CD (2001 - 2006) [FLAC & APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:F50A5B779D2B8168EDE7EC887C726994D3F2AC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Revolution Road - Revolution Road (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:72E4EDEF0D214CB0C8CF425596E50A1B49A95B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Everything In Slow Motion - Phoenix (2013) [MP3|320 кб/с]<Post-Metal / Post-H
 ```bash
 magnet:?xt=urn:btih:8F0CA82CAA02D3A04F1166176C9139BD9AC63E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Boston - Don't Look Back (1978)Remastered/ 2006, Epic/ [FLAC|Lossless]<Hard Rock
 ```bash
 magnet:?xt=urn:btih:68E65106EB3AD802B8B6D217FED2A318BEADBADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

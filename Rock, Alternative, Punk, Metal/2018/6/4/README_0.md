@@ -22,8 +22,7 @@ Five Finger Death Punch - A Decade Of Destruction (2017) Compilation [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:11BB04B930174F5ED5C855B90651AA56086C1397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

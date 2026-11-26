@@ -19,8 +19,7 @@ Conceiva DownloadStudio - это универсальный комбайн дл�
 ```bash
 magnet:?xt=urn:btih:312E92935A590D20E918C6954866A311F1A18C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Iconico Screen measurement pack - это пакет программ для пр
 ```bash
 magnet:?xt=urn:btih:67276069A3372CD38FF378E664AFC38BBF8FBF8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Screen Calipers представляет собой обыкновенный ш�
 ```bash
 magnet:?xt=urn:btih:E1D832B6796EDB938BA6D4E09374CED03FE22C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

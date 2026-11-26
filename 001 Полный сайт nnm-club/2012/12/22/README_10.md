@@ -26,8 +26,7 @@ Rико - Вагоны [ЕР] (2012) [MP3|256-320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:CF64CB207E4D724252531C48450A4E197820E37C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Vocal Trance Volume 49 (2012) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:C51D9C114851664A0B3002E25F85622B2DA4D9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ ArtyomPro - Lights Please (2012) [MP3|320 кб/с]<Hip-Hop|Southern Rap>
 ```bash
 magnet:?xt=urn:btih:07CC3396228EA242AEDEDAC1DE9E42A45B51A6B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ VA - Vocal Trance Volume 50 (2012) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:9CAED05D4278DFB668C39FF10D1F5A2D37E33F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ VA - Trancern 2012.5 - Official Compilation (Best of 2012) (2012) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:822E91B81BF0AADE5C8F94111C059B1E77FC1051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ VA - Keri Gen - True Trance Nation (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8528D18543B5A1A39328A7EFE1096370F21C1863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ VA - Vocal Trance Volume 51 (2012) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:6D3573CDC6A862D5543885056D4E3A370003680F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Freddy Todd - Sick in the City, Alive in the Woods (2012) [MP3|320 kbps]<Dubstep
 ```bash
 magnet:?xt=urn:btih:A4222B2A149210E9DDA3814AB5D6695B275FAA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B326C2600471EFA30267FB75E95CE73B307AFF63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F0C413A7FF9587839FF56F514994EDC5EC8EC27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ VA - Vocal Trance Volume 52 (2012) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:014DB0326FF0E10EE552670C0491990DE870C8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ VA - MyRadio Dubstep (2012) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:7FDBC81578B1E17F6A1385283C10776A6F22AE4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +444,7 @@ Animal Wallpapers (18.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:453733727F270240A62553EF4488423800B96BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B44AA19913CCA3FD49CCB81AF7BB858E5C2C970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38A6CFB77ED649EEAA77EB85D7147D57C724AC62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +529,7 @@ DJ Feel - TranceMission (17-12-2012) - INTRO
 ```bash
 magnet:?xt=urn:btih:C92A44FA135FB85EE9787180D6DE424047E9C845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +563,7 @@ Butterfly - Favorite Colors Episode 063: End of Year 2012 (Part. 1) (22.12.2012)
 ```bash
 magnet:?xt=urn:btih:86BE16CA246F5FCF078C86B4924D457E94782FBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +597,7 @@ Margie Gibson - Say it with Music (1993) [FLAC|Lossless]<Jazz Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +631,7 @@ DJ Feel - TranceMission (13-12-2012) - INTRO
 ```bash
 magnet:?xt=urn:btih:15D499F3965E9F1616B4450E0BBF4A419BEEB6C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +663,7 @@ Alien Autopsy - Paranormal (2011) [MP3|320 кб/с]<Industrial death metal/death
 ```bash
 magnet:?xt=urn:btih:B34650FB7BFE601C40A40E26279EBD03AD8EE592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +697,7 @@ VA - Sense of Vocal Trance Volume 14 (2012) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:8F7D5A93B4A306311600490DD8333E8A48DCA462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:525E0FE2C00E75D53F5F6ECC292416DFAE8DCB80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +747,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FD64960C7713D2C25066FEFE3CFB77C04BEAB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +781,7 @@ Astronautalis - This Is Our Science (2011) [MP3|320 кб/с]<Hip-Hop|Experimenta
 ```bash
 magnet:?xt=urn:btih:FA7712038E6ADB531BD480FD4BDEB0A7A8D53D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -840,8 +815,7 @@ Indukcia - Free Current (2012) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:A345B70A9BB0A5EFB9EB6D95FEF2EA467FF45875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

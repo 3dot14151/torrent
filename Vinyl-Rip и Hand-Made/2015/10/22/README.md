@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:35BB934EC2AF75F7DBC56404EE85A75F7C9BD876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Бумер - 2 (2006) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Original Sound
 ```bash
 magnet:?xt=urn:btih:CAF1630512B22B5A3B0C4375BBA87CB05F14185F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Шедевры инструментальной музыки части 1 -
 ```bash
 magnet:?xt=urn:btih:D73A71FB3328BCB5F9E052B853B1ECA49C126D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

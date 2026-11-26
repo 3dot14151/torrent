@@ -19,8 +19,7 @@ Cyberfox 52.9.1 for AMD + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BD9804DC6C73BD31D196FA53F3E4A6D2456E5F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

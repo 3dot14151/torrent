@@ -19,8 +19,7 @@ Darkarta. A Broken Hearts Quest / Darkarta: Поиск разбитого сер
 ```bash
 magnet:?xt=urn:btih:A371A14EA391488F1A28A67F5D5F9BD4D501F5F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Escape The Manor (2020) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:35991AD1A564EAEF29F2C1CDAD7528D8EE383181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lightmatter (2020) [Ru/Multi] (1.05/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:80BFAEAFBD3E5035700F2D0AF5C175215CAD115E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

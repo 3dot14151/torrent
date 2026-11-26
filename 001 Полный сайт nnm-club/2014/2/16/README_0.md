@@ -27,8 +27,7 @@ VA - Русские Новинки Vol.145 от AGR (2013) [MP3|320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:4940E529E6DB137E7F2D222819546B16AD01A06F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00A563DF3C1B814F98B5C15D626827A5D5E96929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49A8F42C5A585A96E6424C16D26FE13895480827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Ari Hoenig, Jonathan Kreisberg, Tigran Hamasyan, Danton Boller, Will Vinson - Pu
 ```bash
 magnet:?xt=urn:btih:04B2573BD5F9462E5FDB59F9489BCFC17EAA5F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ VA - Kontor House Of House: Spring Edition 2014 (2014) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:3D476563448F6001292C83787D738D6E256EA4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ VA - Best Of 2013: Terminal 01 Recordings (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4D89983553CC8596436035EC8A9775EC3B556E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ Nintendo попросила власти США оказать давление 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ VA-Armin van Buuren-A State of Trance 650 (Part 3) (13.02.2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:C21E33068BC871CA0C2EAFD0098FC09AC017E0FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ Anna Luca - Listen And Wait (2012) [FLAC|Lossless]<Acoustic, Jazz, Indie>
 ```bash
 magnet:?xt=urn:btih:4AF256C13DCE061747657861F2EF98BE00761E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ Los Lonely Boys - Revelation (2014) [FLAC|Lossless]<Blues-Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:20540C327B296946889F00248E87E14E18AEB48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ Dirty Looks - Turn Of The Screw (1989) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0BD4C5C755E99F5EB167EAD23F2CB6A499CC74C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AC71DD4B169D17749536EA94C93997505A3D218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B8F7056F9CD916D7B037D35712FCC8904625BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D72C9B6650D829413A21B3ABE096DA21B7923BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ Matt Schofield - Far As I Can See (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:690F84DB3C1FE98A1C383643A646D1255D7393D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +477,7 @@ Sweet Cheater - Eatin' Ain't Cheatin' (2006) [APE|Lossless]<Glam Rock>
 ```bash
 magnet:?xt=urn:btih:374CA55631B10A880E7F8B3306749279E14C7D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:132571A7B26D3C9C9A2AFD706646A2529890FF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ PDFpen Pro для Mac OS - Программа для создания и ред�
 ```bash
 magnet:?xt=urn:btih:2A2987B5786DCEA3F06DC2F2AF41070E4FF59AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:143EFAD72C71FB5CD33D845DA5385430C561B434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D437A89A9D4FBE87D741663DF94DAD635F575A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ Pia - Magical Eclipse (1999) [MP3|320 кб/с]<New age, Vocal>
 ```bash
 magnet:?xt=urn:btih:574FB15943F55123949BBBD078A8E3256CBBCA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ SuperCharger - Broken Hearts And Fallaparts (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DAB17E2A690AACAB12051A89A1A128E8F32A8D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FD77B5212EA929FB4CCA9E5E519727315A392C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ Jack Jezzro - Romance in Rio (2003) [FLAC|Lossless]<Jazz, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:56B1DF673340607DB0EBA9D3C47EB9FC915F5F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7867587A1DFF9583C24CE3E262F3CC07050B0094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EE25BF2689B813A42245B8AAB46DCC16C193C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

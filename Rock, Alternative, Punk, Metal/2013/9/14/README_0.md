@@ -26,8 +26,7 @@ Pelican - Forever Becoming (2013) [MP3|320 кб/с]<Post Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:269C0F8B9AD35D3CF5342389181251262A2BA471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Aska - Fire Eater (2013) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:FD2E80313D19E31991F1E420ED9B0CDF9838B3C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Lustre - Wonder (2013) [MP3|320 кб/с]<Ambient, Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:FC1B469658A110D5740DA0FB13D43B394702FE98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Protector - Reanimated Homunculus (2013) [MP3|320 кб/с]<Thrash / Death Metal>
 ```bash
 magnet:?xt=urn:btih:40E6E048E35A75F5A5A1F13E573451890FAC9E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Cult of Luna - Vertikal II (EP) (2013) [MP3|320 кб/с]<Post Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:9234837B1A6513DC13B8FEB709B60549676CE2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Tyr - Valkyrja (2013) [FLAC|Lossless]<Progressive Viking Metal>
 ```bash
 magnet:?xt=urn:btih:69426FD97368EF47676403B8AD35BD1D5BAF4623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

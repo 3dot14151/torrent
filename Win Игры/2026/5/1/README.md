@@ -19,8 +19,7 @@ The Coma 3 Bloodlines (2026) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay [Complete 
 ```bash
 magnet:?xt=urn:btih:422E8FB6F7D3479626DB6EF2E7163F77477A4EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Adorable Adventures - расслабляющая игра от третьего 
 ```bash
 magnet:?xt=urn:btih:C2094EC81EA04CF775DAEA3990622E087D4E26D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ INDUSTRIA 2 (2026) [Ru/Multi] (1.0.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1CDC90595E477BBB7AFB0E7714C7B0E3FF5D7513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Adorable Adventures - расслабляющая игра от третьего 
 ```bash
 magnet:?xt=urn:btih:6AC1050955A06F33A839541CCC1E0D942D827BC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bus Bound (2026) [Ru/Multi] (1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:B870EBEF4CA1AF3A9A3658D976FA1EF8838BEEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ What the Golf? (2019) [Ru/Multi] (20.5.2-2024.6.19.11.00) License GOG
 ```bash
 magnet:?xt=urn:btih:953E819C69DB485D6CDED25BA67DD6D51BF60500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bus Bound (2026) [Ru/Multi] (Build 22926160/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7A5C4F5B77EB69E78BFFAA5A7B5E26237D248C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Bus Bound (2026) [Ru/Multi] (Build 22926160/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:B2688BE537296035A2D058C226E41FC8ED99D9CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ TerraTech Legion - это игра в жанре Bullet Heaven от команд
 ```bash
 magnet:?xt=urn:btih:58B481AB4471EF6EDA49752F1AF5BFF39F573FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Spotter: Dig or Die (2026) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0FAFAE8A1B57747F27CE4831F5F14324C24FB4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ inKONBINI: One Store. Many Stories (2026) [Ru/Multi] (1.0.204.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D9B4FB3EFFCE7594CEC67595AA9F7F924896A21A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Temtem: Swarm сочетает в себе минималистичный игр
 ```bash
 magnet:?xt=urn:btih:C3ECDE9F9850B7C8BE02FF813EAA435AF74CC4BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Strings of Fate XI: Magic Dream / Струны судьбы XI: Волшебны
 ```bash
 magnet:?xt=urn:btih:7C25FC020B70C0B0477EAD9D2248D9F3171C76FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Heroes of Might and Magic Olden Era (2026) [Ru/Multi] (0.80.07) Repack seleZen [
 ```bash
 magnet:?xt=urn:btih:1354A0167946CE53C8B1F4D962823A47CF69363C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Cthulhu: The Cosmic Abyss (2026) [Ru/Multi] (PR1.8347.29914/dlc) Repack Other s 
 ```bash
 magnet:?xt=urn:btih:DD6ABA1882F4E06F40D3AB211BAA37AE8C82D3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Black Myth: Wukong - ролевой боевик по мотивам китай�
 ```bash
 magnet:?xt=urn:btih:C44DFEDBA9509F4B04C6A9C93DFA98526110E4DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

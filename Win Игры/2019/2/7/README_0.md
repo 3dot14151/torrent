@@ -19,8 +19,7 @@ Tiny Tales: Heart of the Forest (2017) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:F0C37B04715F9CB46A0DE46CDB98FF6B0CF1B552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Dimensions 8: Vengeful Beauty (2017) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:308AA55BBD535DF6B7CA191385C75EFA9273230A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Legacy: Witch Island 2 / Наследие: Остров ведьмы 2 (2019) [R
 ```bash
 magnet:?xt=urn:btih:6FBC274A3A4653E54A57DA3BA6429265BF7A7764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DESOLATE – это хоррор выживание от первого лица
 ```bash
 magnet:?xt=urn:btih:7229A728597A61D60FD0360B77FFFDDE9C42B179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

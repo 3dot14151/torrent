@@ -19,8 +19,7 @@ Ravenous Devils (2022) [Ru/Multi] (1.0.1) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:CFF06FF6679ACCEC6E22296FA9DE23C4E42366E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VELONE - увлекательная головоломка, вдохновлен
 ```bash
 magnet:?xt=urn:btih:8857197D8CE1854B9C74E118810BE537E5E3BF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lumote: The Mastermote Chronicles (2022) [Ru/Multi] (1.5.3-rc5) License GOG [Dig
 ```bash
 magnet:?xt=urn:btih:96340663F4A5CB7D1626055A29EBBCC63509D63C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Godlike Burger (2022) [Ru/Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EF76CD91FC1840BDDD41D54DC21AD4216E772CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ orbit.industries (2022) [Ru/Multi] (1.1.9717.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B7BA9440A42E4EB002DB303B3D50ED718B94FD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

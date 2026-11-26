@@ -19,8 +19,7 @@ CONTROL Resonant (2026) [Ru/Multi] (0.563.737.9/dlc) Repack Other s [Digital Del
 ```bash
 magnet:?xt=urn:btih:439C83E136F24D80FEC3504BA951EFF7B38DAE79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon Quest VII (7) Reimagined (2026) [Multi] (1.1.1.0/dlc) Scene Rune [Digital
 ```bash
 magnet:?xt=urn:btih:0DD85C19B12BA61F98F2E3BCA2CD6CB4D87AA428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mall Together (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0BCDA4F71DA9FA7420615A32C45FF585C9612BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

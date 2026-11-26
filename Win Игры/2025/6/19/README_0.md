@@ -19,8 +19,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D49D6872FFC6970B6518EB76C0EA829F32B4A145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5-34484/dlc) Repack FitGirl [The Compl
 ```bash
 magnet:?xt=urn:btih:C4E6EC63A58923580CDC5D83136AE1740A48D600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WARNO (2024) [Ru/Multi] (157953/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:B1B4960569710A447B4032ADF0D02F296CF48E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack FitGirl [Vanguard Edition]
 ```bash
 magnet:?xt=urn:btih:B0F4D314D244CD4182A436FC5C1458FA07ABECC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Songs of Conquest - пошаговая стратегия, вдохновлен�
 ```bash
 magnet:?xt=urn:btih:D319B12190A25F48ECD600D801EAB8150798F3BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:772CDA137FE1225B4DAF5FE048568F5324065DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ At Dead Of Night (2020) [Ru/Multi] (Build 14844637) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:C5507E60C851DDE6417A960BA6346034387AB974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Chill Town (2024) [Ru/Multi] (1.0.0 Build 63) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0DC4B6AAE8317E47D06299D80077555481061487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mini Racer Car Shop Simulator позволяет вам управлять вс�
 ```bash
 magnet:?xt=urn:btih:CA1303CF26F0A108B041428920E0914FEC251862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ```bash
 magnet:?xt=urn:btih:BC159551C16B9DF3959FD6DCA9C4256079CBFB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Labyrinth of the Demon King - это вызывающе сложный данж�
 ```bash
 magnet:?xt=urn:btih:AEB5BD7E773E8EB78DBD0535D792015A887D7DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Gloom: System Breach (2025) [Multi] (1.0.7) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C084FE962E78D86502A7A7BAF4E374DA61AE82D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.0.13) Repack FitGirl [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:3265880E3D17B742EE4A5486EBE1F51DC08832DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:61C3758BF8F1249E149473641FFE20FF03302ED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

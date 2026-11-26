@@ -18,8 +18,7 @@ Online TV в высоком качестве. Более 450 ТВ каналов
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

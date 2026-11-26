@@ -27,8 +27,7 @@ Dethroner - Blind Souls (2012) [FLAC|Lossless]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:EE84325F0745FFE3D06F8B4C166D671D555022C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Taberah - Necromancer (2013) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:B368CAB339569E35CD5BE7C602DFE7CE31F40F01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Benedictum - Obey (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:549A700673BDC9AA534C284D55E89FAC9F5D499D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Hecate Enthroned - Virulent Rapture (2013) [MP3|320 кб/с]<Melodic Sympho Blac
 ```bash
 magnet:?xt=urn:btih:CBDF6670D1A085D1DF3D8E50B90794C97E98DB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Human Fortress - Raided Land (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:63E43C386BF29194162A7775933B20757743D354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Joe Bonamassa - Tour De Force: Live In London (2013) [MP3|192 кб/с]<Blues Roc
 ```bash
 magnet:?xt=urn:btih:3991B12B9C3B0D3D02441760FE34F820FE019A52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Crystal Ball - Dawnbreaker (2013) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:A283DDDBE258C95F0A174B385A897A09B7092EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Ben Howard - The Burgh Island - EP (2012) [MP3|320 кб/с]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:52F04BDF54311FB3AFE8C1CCE541256530E463BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E304FCFEBCC8A3291087C41D3C16CC17D7154A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96FF7FF1126A69665DCD1ECE8A93645F7DF5D910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ Ghost — шведская группа из Линчёпинга. Коллек�
 ```bash
 magnet:?xt=urn:btih:E011A0C6DA870CCC0D8BDF9E3221C4871DD09BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

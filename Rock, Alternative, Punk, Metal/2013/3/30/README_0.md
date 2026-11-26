@@ -28,8 +28,7 @@ Gloryhammer - Tales From The Kingdom Of Fife (2013) [MP3|320 кб/с]<Power Meta
 ```bash
 magnet:?xt=urn:btih:6116BE2A64FE3991BE9B2A07A4AD04B533426637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Fear and Wonder - Beauty Is the Beast [Ep] (2013) [Другой|~245 кб/с (V0
 ```bash
 magnet:?xt=urn:btih:1338E5DFEF51E332431C2B17B03C0CA84EB7A1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:622059990930A0BCAFA4E9B9FD9B16DC10FC69DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Axel Rudi Pell - Live on Fire (2013)[MP3|320 kbps] <Hard Rock / Melodic Heavy Me
 ```bash
 magnet:?xt=urn:btih:97841F2C8E213FD1BD6B9F894BA33500493D6BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Killswitch Engage - - Disarm The Descent (2013) Special Edition [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:80232DE7F64BFD9BA75DF3252A9ADF129CE1ACCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Deep Purple - Machine Head (1972) [FLAC 2.0 24/96|tracks (WEB-DL)]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:96A289CE65B4FB1BB1AFB57021FF286471F693E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

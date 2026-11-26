@@ -22,8 +22,7 @@ Josey and The Whalers - Josey and The Whalers (2022) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:140D5FBD1A5AF8B5478E4FE3EA5AFB96AEB5A331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Chillax (20 Chill-Out Tunes), Vol. 1 (2017) [AAC|~313 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:E11B64EE15C4CF0523543E0D3CA8914941CC05A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Daydreamin' (Electronic Lounge Bubbles), Vol. 4 (2019) [AAC|~318 Kbps] <Lou
 ```bash
 magnet:?xt=urn:btih:8E737735E9E1371C20EDC78BDDDDF7D8D700E3B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Daydreamin' (Electronic Lounge Bubbles), Vol. 1 (2019) [AAC|~322 Kbps] <Lou
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jim Kahr - Back to the Roots (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Middle  просто добавляет возможность сделать «
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Ibiza Party Island (Midnight House Tunes) (2022) [AAC|~333 Kbps] <House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Maurizio Gnola Glielmo - Beggars And Liars (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Kulhu & the Vigilantes - Good Day to Die (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:4A571DA45DE162B2372985EA8FCE5208AB01B7D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Katie Henry - On My Way (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:2615FA79142FB8D3F40C8073DEDFF55FF88F645B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Junior Mance Trio - Live At Cafe Loup (2007) JunGlo Music [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:D2D9BD8BF9B90694B0BE9C93CB68284580A8E2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Deep Skin Vibes (Perfect Time To Relax), Vol. 1 (2022) [AAC|~307 Kbps] <Lou
 ```bash
 magnet:?xt=urn:btih:CA9B1DB4D8412670990F4315634D5ADBAADD9A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Larsen and the Coloured Dreams - Bucket List (2022) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Mississippi Nova - The Desert in Winter (2022) [FLAC|Lossless|WEB-DL|tracks] <Ha
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ VA - Mykonos Orange: Urban Chillout Music (2022) [AAC|~315 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:76B0E351EAFC99461477608DA27C44D6E3B102A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ VA - Toolroom Vaults Vol. 4 (2022) [AAC|~332 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:4EA22B26FC0C971B03C86CBDE59A827FBF24E130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Leather Apron Revival - Light and Shadow (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ VA - Chillout Your Mind, Vol. 6 (Ultimate Chillout Collection) (2022) [AAC|~328 
 ```bash
 magnet:?xt=urn:btih:7F17BBC4375BB368F6CCC38747CA4FD559E7260B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ Michael Russell Trio - Six Strings Away (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ```bash
 magnet:?xt=urn:btih:2CBB253D3FDFC373674954D02A0E87566C220026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ Lemongrass - Flow (2022) [AAC|~344 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:16811FA8902B74E7641328583976734DC3DA7734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:2B67C1173506A55016D10E83B51568850F05E4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ TSAR - Acte I (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Stoner Roc
 ```bash
 magnet:?xt=urn:btih:ACE410B7BCE08ED844F619DB72E9E33D4D4586FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ Eels - Extreme Witchcraft (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:8522EF4693166726D7AB930F41A9A09E82CAB2D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ Max on the Rox - Rox Motel Bar & Grill (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:9478044CB41646509D4AAC52CC8C0DC2ED4BE5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ Megahera - Metal Maniac Attack (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

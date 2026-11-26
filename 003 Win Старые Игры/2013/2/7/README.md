@@ -19,8 +19,7 @@ Onimusha: Warlords / Onimusha: Путь самурая [Ru/En/Jp] (Repack/1.2) 2
 ```bash
 magnet:?xt=urn:btih:0981193CF686EA73F7FA57518FFC5A4F51B73BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

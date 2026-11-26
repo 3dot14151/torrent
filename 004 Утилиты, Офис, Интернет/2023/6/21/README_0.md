@@ -19,8 +19,7 @@ KSA Power Supply Calculator WorkStation - программа для расчёт
 ```bash
 magnet:?xt=urn:btih:C26838B856058DFF6AE788BDEA34D35633C7F10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Atrise Lutcurve 4.1.1 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:C3730BE06B77776A970F45DB1C5014681932EBD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

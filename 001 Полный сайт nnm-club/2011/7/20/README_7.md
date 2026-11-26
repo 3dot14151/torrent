@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:AA9EE343A9D3D5E396B2FFD02BE804BFD63E0678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Panzer Corps [Ru/En] (RePack) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:78F531F139B9318EAD0CE12FD3D7AFA6FBCD634E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Android-x86 2.2-r2 [x86] (7xCD)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADB4F192934D9B1CC475E2F4CFC9D5F940441834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C08A4E3E90D3749D75B8236088DBA749C26EE739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ GTA - Vice City Deluxe - это глобальное дополнение к о�
 ```bash
 magnet:?xt=urn:btih:5EF58CEF31951504994667673D01E43C272ACF21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

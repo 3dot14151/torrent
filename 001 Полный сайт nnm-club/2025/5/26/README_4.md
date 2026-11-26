@@ -18,8 +18,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Scene Rune [Delux
 ```bash
 magnet:?xt=urn:btih:42C1114E80E5E9C54490F8CD4246C7E8CE49E2AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE25D26EBF55DE817E220AB3CFDC87DECB508FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6B0E9FB85986483D8FCFFE65578B508F0CA16F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE8F2D44E58628749201C4A653347EB50B432B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VA - Compilation Part 165 Easy Listening (2025) [MP3|320 Kbps] <Easy listening, 
 ```bash
 magnet:?xt=urn:btih:085AD9375244E4BE98D66AE66BDF71F7612CC153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Sweet - Hannover Sessions (2025) [4CD Box-Set] [MP3|320 Kbps] <Rock, Glam Rock, 
 ```bash
 magnet:?xt=urn:btih:A673D8293417FA1C65CD2DD23AF63BE554A8385F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4E0CE57529FEFD2E207D5382FBBC472B386B6D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ VA - Assorted Compilation Part 8 (2025) [MP3|320 Kbps] <Electronic, Easy listeni
 ```bash
 magnet:?xt=urn:btih:236D5CFB10C302B10DDDDC8092D3B3CD75FD09BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dangerous Games 2: Illutionist / Опасные игры 2: Иллюзионис
 ```bash
 magnet:?xt=urn:btih:7B31066249DF8DBC204F4E07F29AEEED0052B2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Costume Quest 2 (2014) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:179A92B4600049EAB1777B827F8B34A0A80425D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

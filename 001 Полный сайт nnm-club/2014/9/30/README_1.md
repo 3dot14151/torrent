@@ -21,8 +21,7 @@ Jeff Lorber - Chuck Loeb - Everette Harp - Jazz Funk Soul (2014) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:44B13A5C7CA4C9573D2FC6887672D8C7A31DECE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Trap Music Jam v.1.0.0 (2014) <En>
 ```bash
 magnet:?xt=urn:btih:48042E15EDD9BC9EEDC2A479E9D35D1ED51C3834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ CD2 (00:47:39)
 ```bash
 magnet:?xt=urn:btih:C07CEACD027EB6656526027E958A7460FE84CB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80964AAC5831280EE387CC3CCA9CDFA755B917F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B97F48F17C089BF2801C7A7B72D7974ADB142B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Sinewinder - 2 Релиза (2012 - 2014) [FLAC|Lossless|WEB-DL]<Progressive; Ps
 ```bash
 magnet:?xt=urn:btih:3380B6F5A86D25976A86F7014D4EFEDD2CDF2349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Danse Macabre 2: Moulin Rouge (2014) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:C77C07206C9D28403D641D5EE21E9F4D188BC736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ Mike Patton - Адреналин 2: Высокое напряжение / Crank:
 ```bash
 magnet:?xt=urn:btih:3606F007C8D75F219D0E0FF6EC1C6DEBD286BEC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ CD. 1
 ```bash
 magnet:?xt=urn:btih:C1E9F082A40E58E23FB64C171573514807A03927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11DE320C424FC539CB3C2F0AE39F61F291D15E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E362F2D3C35C20618128CD44009A201ECA3B87F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC8CA44EA22D7B6C164CA96CF1920019B6423279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ JP Harris and the Tough Choices - Home Is Where The Hurt Is (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:BFFACF7F85F95A3280618780D7BCAACBF9CD1D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F8AAD440D2D7DBB600869A3FED800224DDE1499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ Dario Marianelli - Семейка монстров / The Boxtrolls (Original Mot
 ```bash
 magnet:?xt=urn:btih:45525F17A4DCDD00418A05598FE2FF9DC7E373C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ Secret Diary - 3 альбома, 1 переиздание и 2 сингла (200
 ```bash
 magnet:?xt=urn:btih:2320E804FAB751813D44C5C00499B8DB1C608B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57B248F87DC70FE239ACC3A417F918F7D22A9181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A5FB6E45E9B2CF1E374B503715DE306DB46F01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ Voiciano - Everflow (2014) [MP3|320 кб/с]<Neoclassical>
 ```bash
 magnet:?xt=urn:btih:C833CC96CF7CB925CDC2560C45E76E091F6E87B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EAD48748E021B4EA786DED389C726DD38E1A033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ MotoGP. Этап 14/18. Гран При Испания Арагон. Гонка 
 ```bash
 magnet:?xt=urn:btih:C83174CBC10857317B9B9670B5C4F049DFA5337A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ Ramin Djawad & Mike Shinoda - Medal of Honor: Warfighter (Original VideoGame Sou
 ```bash
 magnet:?xt=urn:btih:BD23BE58F5BFDBA1E782B7D27849F824CE1EA502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0D8E704AB3DF3AECEF96EAAD0DE54852B0EC3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ VA - Best of French Reggae Vol.1 (2014) [MP3|320 кб/с]<Reggae, Ragga>
 ```bash
 magnet:?xt=urn:btih:E6E3E3DD0AD49363127A08E3BD5D407915C2E3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +736,7 @@ VA - KuschelRock 28 (2014) [MP3|320 кб/с]<Top 40, Ballad, Pop, Rock, R&B, Voc
 ```bash
 magnet:?xt=urn:btih:69EA69CF1444E28ED02FA128FB2E3A37A1329128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2A022A2CA07CE505AFCE1362B1E8FBB91E797CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Rolling Stones - Studio Albums 28, Live 37, Compilations 42, Singles 16, Box
 ```bash
 magnet:?xt=urn:btih:64840AEB3E951195A2416BCEB59AE9DA18620852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55239C4F1FE46DC2EA04E9D287E061F932D0A127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Paul McCartney - Tug Of War (1982) Japanese Edition, SHM-CD, Reissue, Remastered
 ```bash
 magnet:?xt=urn:btih:39889977A8326B1009635953D35956A08F3A6EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

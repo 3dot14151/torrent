@@ -19,8 +19,7 @@ Graphite - это рогалик‑RPG, где мир рождается из 
 ```bash
 magnet:?xt=urn:btih:15A2B08AA9C4DD869B638481CA8B3B579EEFA952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Repack Decepticon [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:7A9259B34EC824735CF0B160FC79092879A854FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blitzkrieg 3 - это стратегия в реальном времени, 
 ```bash
 magnet:?xt=urn:btih:57C5B9C097933EDA588EE18A1F9F063AC8139D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Serious Sam Fusion (2026) [Ru/Multi] (791116) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:2482F76D24D0031322325DA8A851E0E96C7024A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pit Panic - это динамичный 2D-платформер с элемен�
 ```bash
 magnet:?xt=urn:btih:8797BA2E3D0B88B5EEF35AF0AF100E9AAD6FD136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Alt-Frequencies (2019) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D024E5158C1F05AB89E5E8DBB8436583C647128F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ HOPE 01 - это мрачная экшен‑RPG с элементами вы
 ```bash
 magnet:?xt=urn:btih:E66684DD804F46D091881CAF1BC4E869A17ED8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Serious Sam Fusion (2026) [Ru/Multi] (791116) Scene Rune [VR]
 ```bash
 magnet:?xt=urn:btih:BF4DCA8AB03A1A0ADF397367B2167F426B016DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Quake (2021) [Ru/Multi] (5603-aef4a4c-487/dlc) Repack Motorboy [Maximum Edition]
 ```bash
 magnet:?xt=urn:btih:45AC494BFB71698C33D1349347D1D01855916B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Privateer 2: The Darkening - это яркий пример самовыраже
 ```bash
 magnet:?xt=urn:btih:1F275C08E01DF987C11745F8E1CC69C1C574FB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Phasmophobia - это кооперативный инди‑хоррор от 
 ```bash
 magnet:?xt=urn:btih:F1BB04CD6F05296C038B9DAA8A9E212B7E601227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

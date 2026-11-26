@@ -19,8 +19,7 @@ Murder, She Wrote 2: Return to Cabot Cove / Она написала убийст
 ```bash
 magnet:?xt=urn:btih:965B1BCCED9ADA0BDB7479D0610C3C6CA46887FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Overlord II / Overlord 2 (2009) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1FCF38CEF55D48D022C5CE59E8650117EAB9FECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

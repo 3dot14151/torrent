@@ -19,8 +19,7 @@ The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CAF2391A085175863DDC654EFFF5FDB613EEBBE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

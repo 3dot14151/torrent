@@ -26,8 +26,7 @@ Zwartketterij - Cult of the Necro-Thrasher (2007) [APE|Lossless]<Black/Thrash Me
 ```bash
 magnet:?xt=urn:btih:B178C12CD64FE561221A85994A6373728BFBFEBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Need - Orvam: A Song For Home (2014) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:5BE5E6B44C12BA4671DB09F0DA1FCC92C20058B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Soulslide - Amaurotic (2014) [MP3|320 кб/с]<Gothic/Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:7F1E39E6B37105EEB383C0654AF5DA66ED86D6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ In Loving Memory - Redemption (2014) EP [MP3|320 кб/с]<Melodic Doom/Death Met
 ```bash
 magnet:?xt=urn:btih:8CD261962F07BE79CDC371C7061612E4505766B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Angels Or Kings - Kings Of Nowhere (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:91F64F785DBD4C1909B40C1A8ECAAFBFE6AC2007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ StoneWire - When The Crow Flies (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:37B679006DA820DFD148FB100831E8ED8607C26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Aly & AJ - Insomniatic (2007) Target Edition [FLAC|Lossless]<Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:3B33B229CA793E25AE72FFA90F9E2C3BB1322E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ Spike - 100% Pure Frankie Miller (2014) [FLAC|Lossless]<Hard Rock/Blues Rock>
 ```bash
 magnet:?xt=urn:btih:5BE398D6B8D92F54889B50E8F866B660DE269A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ While She Sleeps - 3 Albums (2010-2013) [MP3|320 кб/с]<Post Hardcore, Melodic
 ```bash
 magnet:?xt=urn:btih:2E68B6675E74AC4B48C98E440B0FFC67AFC5FDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ Written-By – Phil CollinsЖанр: RockПродолжительность: 00:
 ```bash
 magnet:?xt=urn:btih:C7353B1963CD9D2DEE016B593378535DA1FDFDF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +339,7 @@ The Smashing Pumpkins - Monuments to an Elegy (2014) [MP3|320 кб/с]<Alternati
 ```bash
 magnet:?xt=urn:btih:4A38DF87A4AB02CD95123B20D158F7E3DBA6A09D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +373,7 @@ Sasha Gray - Герои лета (2014) [MP3|320 кб/с]<Metal, Electronic>
 ```bash
 magnet:?xt=urn:btih:3E07532CCC7DF1CA5A750B7FF89222BCF8B98344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +407,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:A1C968B6256109D42B0AA1804D1B598FCDD94F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C467A3870D584EEA7963DC48990C5C458EDAC800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

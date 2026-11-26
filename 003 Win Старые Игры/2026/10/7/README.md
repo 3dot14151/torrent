@@ -19,8 +19,7 @@ Stargunner - это горизонтальный скролл‑шутер 199
 ```bash
 magnet:?xt=urn:btih:EE31DD071A775E35D00CE2DB8D8E9113459E802E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Earthworm Jim, 2, 3D (1996-2000) [En] (1.0) License GOG [Антология]
 ```bash
 magnet:?xt=urn:btih:C5CA40AD31D694EB9E3995359B0447D98A3E332A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

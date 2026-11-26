@@ -19,8 +19,7 @@ Moonglow Bay (2021) [Multi] (1.0rls) License CODEX
 ```bash
 magnet:?xt=urn:btih:E16583DE206B3F08906612B82999D5E8D68A2BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NieR Replicant ver.1.22474487139... – обновленная версия NieR
 ```bash
 magnet:?xt=urn:btih:40DBD8473618153C4F38BB67E75BC9C3426E4F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

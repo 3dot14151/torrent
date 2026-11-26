@@ -21,8 +21,7 @@ VA - Armada Trice Miami (2016) [MP3|320 кб/с] <Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:6475CE17B6212A546671D13E6488C6A3BFF9007E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Dreamlike Horror - Delightful Suicides (2005) [FLAC|Lossless|image + .cue] <Atmo
 ```bash
 magnet:?xt=urn:btih:7558CD4251B54AEAC4A76D0D2C8BAFC8C58469D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B1BA956E357648C9E5597B369B1ED6F6B5B98E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Ibiza Dance Sensation (2016) [MP3|320 кб/с] <Soulful, House, Funky, Nu D
 ```bash
 magnet:?xt=urn:btih:E590AE97341FF0617FB7909F1B0820EDDA676031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Golana - Feather On The Wind (2000) [FLAC|Lossless|image + .cue] <New Age, Inter
 ```bash
 magnet:?xt=urn:btih:E8A64B838E7C3A7DDDCE6C8CC46CF8196B0A5FB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Manuel Le Saux - Destiny (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:C9C05A672885B7632BBAB8E91D67EF5D58AB2648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ VA - Star Hit. Самая желанная (2016) [MP3|192 kbps - 256 kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:F0C13D7D33BADDD4F017077D179A4A9B94D88AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1ECB32A60A2E72F3421B516508A266067095B7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Night Sky (aka Afternova) - Visions (2016) [MP3|320 кб/с] <Ambient, Chillout>
 ```bash
 magnet:?xt=urn:btih:3FEDE09D3DE02FDAE9A3D32D0E43103D79976388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:EF97A4CF3E4A272DC3979C10F1612B7D662FB5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ VA - Судьба злодейка (2016) [MP3|224-320 кб/с] <Шансон>
 ```bash
 magnet:?xt=urn:btih:7721F87C2EE87F27FAA9FC7A766019F31A7D1BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8A9802E865C5658881929B86C7619204FFBEAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Estes Brothers - Transitions (1971) Reissue, Remastered, 2002 [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:8CAB4E83DE4162F45E8057BBCE20C708A455C063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04175B5BF0661C3CB4B0BF48C72EEA20342ABBB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Richard Laurence - A Busy Couple of Years (2016) [MP3|320 кб/с] <Classical, N
 ```bash
 magnet:?xt=urn:btih:6F4D6AA5B019071EEEAC418C9C5240115F75F3E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ VA - Electro Life 41 (by ZiP)(2016) [MP3|320 kbps]<Electro House, Progressive Ho
 ```bash
 magnet:?xt=urn:btih:A64E2E323E160717B88E5B8EDDDAA3E7C5054159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 magnet:?xt=urn:btih:DAFF0FEDB6CBD7D9AA82050252F5573CB2227855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ VA - Душевный шансон Любимая женщина (2016) [MP3|256
 ```bash
 magnet:?xt=urn:btih:AD57CED12045A7CD83B305BF8726726577459E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ VA - Isle Ibiza 2 Grooves White (2016) [MP3|320 кб/с] <Future House, Tropical
 ```bash
 magnet:?xt=urn:btih:4293611B2300902F4BF0DDBC27E0385B64C415D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ Demise Of The Crown - Demise Of The Crown (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A14A617A5CCFC220A870C864658C027059EB8C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Anya Marina - Paper Plane (2016) [MP3|320 кб/с] <Alternative Pop, Indie Pop, 
 ```bash
 magnet:?xt=urn:btih:A3A6BA78C61910379452F679EC09E692471210F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Chain - Two Of A Kind (1973) Reissue, 1997 [FLAC|Lossless|tracks + .cue] <Rock, 
 ```bash
 magnet:?xt=urn:btih:A3936173A8EB9103C69B400905AB2AA08C8248DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ Aesthetische - Dirt And Basslines (2015) EP (Deluxe Edition) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:E8FF0A5E9E9E9BA59F9351503A0C20B684F344DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ Biosphere - The Hilvarenbeek Recordings (2016) [FLAC|Lossless|WEB-DL-24Bit|track
 ```bash
 magnet:?xt=urn:btih:2E85F5B894FDA82BE92BFCE2BF94988C2C2EF443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ Nicki Parrott - Sentimental Journey (2015) [FLAC|Lossless|image + .cue] <Contemp
 ```bash
 magnet:?xt=urn:btih:6AEDCDBC428E37C81813CBE9C9D8010F60CE666B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +710,7 @@ Gomer Edwin Evans - Mystical Eastern Beauty (2016) [MP3|320 кб/с] <New Age, I
 ```bash
 magnet:?xt=urn:btih:8FA92468514816D0B6B410B9B032C5725E6168DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

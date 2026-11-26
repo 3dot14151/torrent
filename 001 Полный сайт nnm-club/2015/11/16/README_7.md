@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2D97FC0159AD3A17B72A62E90ECCEEC32D4AD43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:78CB3D7360B364FC51674C3EA687278FA30E52D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - TGIF Playlist Collection Lazy Sunday Chill and Ease Up Playlist to Relax (2
 ```bash
 magnet:?xt=urn:btih:99BC8E0DF4DAC20701CCA6D978CD7CF6D015361B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Intelligent Manners - Miracles EP (2014) [MP3|320 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:883D28BA2D6EEBD8393042C6B409D1E9C8744EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Dark Sessions Radio 012 (Mixed by Oberon) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:61296C70756E3F0031E37C20EF1DFF876F56A4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ VA - Cozy Evenings Vol 1 (25 Warm Up Lounge Tunes) (2015) [MP3|320 кб/с]<Chil
 ```bash
 magnet:?xt=urn:btih:B8AA5C026577921E218A352C1CD8FE8B6B157E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Kenesis - Dark Sun EP (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:6C0EE7D4C6D5F02A9EC81794BA7B004E147FBFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Instinkt - Focus EP (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:9FDF625529D625FCA7CC56CC9BDAADF480D4A98D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - Ibiza Festival - Madness Peoples (2015) [MP3|320 кб/с]<Funky, Club, Trop
 ```bash
 magnet:?xt=urn:btih:D05FDB745A8523BB2AA96747BE1EA95A0481854C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4EB153741D4AE6E839E1854E3FBD7876DEE1C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Phace - Phace & Friends EP (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:EC7EE06F55FA510783DE960B99E8E9588677A4D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8206115A195277D69F27AA6DBE49C231D0A69F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Syntouch - In My Memory (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:91C0F579B1B423085EE7B559B68CED0A51DD28D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Bryan Kearney - The Things We Should Say (Solarstone Pure Mix) Single (2015) [MP
 ```bash
 magnet:?xt=urn:btih:F8DA878530B7A8640836D477EAD665A9766B3998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ Gydra - Akatsuki / Freefall (Remixes by Gydra) (2015) [MP3|320 кб/с]<Drum & B
 ```bash
 magnet:?xt=urn:btih:EBCB3368DBCA01C997497AC5DCEADFF109C8764A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ VA - Evolutions Vol.1 (2015) [MP3|320 кб/с]<Drum & Bass, Neurofunk>
 ```bash
 magnet:?xt=urn:btih:7B408C207E992F0EBE20FFE6232797514FF523E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AE67022317E272B030C5CF3928511EBCFE009DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ FunkinEven & Delroy Edwards - X / XX (2013) [MP3|320 кб/с]<Techno, Acid>
 ```bash
 magnet:?xt=urn:btih:225B0F1F072469E5C3D3D3D48E1FEA80D9FC33DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ VA - Did You Know! (2015) [MP3|320 кб/с]<Dance, Club, Electro, Pop>
 ```bash
 magnet:?xt=urn:btih:1CBB9DD714355E3E28304B1AA6759A6BBE00E395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Eric Tingstad - Mississippi (2015) [OGG|442-502 кб/с]<New Age, Contemporary G
 ```bash
 magnet:?xt=urn:btih:ED97761447BBB2D0477021226D2BD0AE0B8857B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE65C66F8F722C54D658BC502B1EA67C9109CA06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D25809A5120929A9BF8F8CFFB277748E7DB40B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ Bop - Ambient's Not Dead (2015) [FLAC|Lossless|WEB-DL]<Ambient, Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D86D40E84628D12338D132C217018D897943FE22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ Larry Cann - Rodeo Road (2015) [MP3|320 кб/с]<Country, Country Rock>
 ```bash
 magnet:?xt=urn:btih:1CB55BC33EDFB0D2227E2495F5830AEF9AC03ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3CCB320A5E2A5A080FF23C3D7ABE78BF633C02E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6700EDBE8E367545E054F6DB3650D01CEE6813B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

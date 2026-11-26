@@ -19,8 +19,7 @@ Ready or Not (2023) [Ru/Multi] (66884/dlc) Repack FitGirl [LSPD Bundle]
 ```bash
 magnet:?xt=urn:btih:7FBF03CCC9115260DC50102E5A31E83E91422A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.3.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:80D9EB67B6A2BB775366A659BF12A20F81FF8B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tetris® Effect: Connected — это такой Tetris, какой вам ещ�
 ```bash
 magnet:?xt=urn:btih:525D638A791B72441368AD3044586D88BCD6C8AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ State of Decay 2 - игра-антиутопия про выживание в о
 ```bash
 magnet:?xt=urn:btih:2B1EFC1374C0A4FEB667D2582F2B00DF2DE0FC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hot Wheels Monster Trucks: Stunt Mayhem погружает игроков в м�
 ```bash
 magnet:?xt=urn:btih:744F51F73429FCFF3705BE3BA994E6C268C7FE4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Painscreek Killings (2017) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:25542B38EA56E8F5F6D785F376F53858287F5D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Baby Blues Nightmares - Toddler Horror Game - это игра-ужастик н�
 ```bash
 magnet:?xt=urn:btih:E12A4EBEFCEB186951F24BE5789D95E9A5A73A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ TRANSFORMERS: Galactic Trials (2024) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:68B0F0191BB1DE4B45ACFE5ACABDD77C33FA99F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Keylocker | Turn Based Cyberpunk Action (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4690AB34541C5A7A8B517D3413C3CBED829890A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Laser Tanks (2024) [Ru/Multi] (Build 16740402) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0BF69CAFB043B7D80CC9B6FE521DF668FF02F21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

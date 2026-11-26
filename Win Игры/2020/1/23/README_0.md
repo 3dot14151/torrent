@@ -19,8 +19,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0/upd5) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6704B24FC0265203DC508B7EC7025173D57204D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Linker 2.3.1.17 Portable[Ru]
 ```bash
 magnet:?xt=urn:btih:1CC1C44743289081BD4E70E4A0483D01ED3B7320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

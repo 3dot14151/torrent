@@ -25,8 +25,7 @@ Black Autumn - Losing The Sun (2014) [MP3|320 кб/с]<Depressive Black Metal, A
 ```bash
 magnet:?xt=urn:btih:73A455E8D62B109E98C03FA0228541E0C4F95271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Godflesh - A World Lit Only by Fire (2014) [MP3|320 кб/с]<Industrial Metal/Sl
 ```bash
 magnet:?xt=urn:btih:B25FEB66DF69AB33815A97AB045DFB45775D71B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Shake Well Before – Woland (2014) [FLAC|Lossless|WEB-DL]< Metalcore>
 ```bash
 magnet:?xt=urn:btih:1B0B4E543800156CC3C77AB501EB15332629A16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Diathra - Fascinating Impulses (2014) [MP3|320 кб/с]<Doom/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:9BFAC806073841E04D912B691CE812101C3D20B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Revocation - Deathless (2014) [FLAC|Lossless]<Technical Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B03D3362F6C2E0ACD6B616A68A9DC5B46C705BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Lenny Kravitz - Greatest Hits (2008) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:2AB498F2353C072D45F0E10B7484B1631A7CF940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Elvis Presley - Elvis is Back! Legacy Edition (2011) [FLAC|Lossless]<Rock'n'Roll
 ```bash
 magnet:?xt=urn:btih:015B688EB46D29B672CD288A2F0A486EE0AD1E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ George Harrison - Greatest Hits (2010) 2CD [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:1D6AA4D7DB3145F5F29074A49D0FC60756B026EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ VA - Celebrating Jon Lord (2014) 3CD [FLAC|Lossless]<Hard Rock, Classical>
 ```bash
 magnet:?xt=urn:btih:DD892E01651BAADB22AD84D9C026627AA871B943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Eclipse - шведская рок-группа из Стокгольма, обр
 ```bash
 magnet:?xt=urn:btih:B3483E7A5A6EF7B57D75FD435BCC3FF643701201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Cure — британская рок-группа, образованная 
 ```bash
 magnet:?xt=urn:btih:77F5954CD38F22D17317573FE856CD649EAF0F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Brothers of Metal — шведская пауэр-метал-группа, об�
 ```bash
 magnet:?xt=urn:btih:2FA74682F7827E932DC0618C54977723583DC48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Stahlmann — немецкая группа, играющая в стилях Ne
 ```bash
 magnet:?xt=urn:btih:E12B4A8E9366687124EE01321F9E81CC932E2FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Ensiferum (лат. «меченосец», «вооружённый мечом»
 ```bash
 magnet:?xt=urn:btih:09DEFB0CAB02688004CA7F950EF249D9BEB75D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

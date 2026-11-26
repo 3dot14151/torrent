@@ -28,8 +28,7 @@ Blue Coupe - Tornado On The Tracks (2010) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:2F9BCBD04691CA4913E5260C519847350AF9E63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Birdeatsbaby - The Bullet Within (2014) [MP3|320 кб/с]<Alternative, Indie>
 ```bash
 magnet:?xt=urn:btih:E67F0C5B1F1955F5E1433E1444F8623FDD6DE8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Askira - Currents (2013) EP [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:18D1B730F17C0D936113BDE6712E8B2A8D56083F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Islander - Violence & Destruction (2014) [FLAC|Lossless]<Alt.Metal | Progressive
 ```bash
 magnet:?xt=urn:btih:77FBEC27CE0D844CCFEAEEA84575AC3A95BF0DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Overkill - White Devil Armory (2014) Limitеd Еdition [FLAC|Lossless]<Thrash Me
 ```bash
 magnet:?xt=urn:btih:6B7BC7A41B382F29FE92483B9A77EF74467E3D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

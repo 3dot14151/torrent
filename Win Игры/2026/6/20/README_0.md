@@ -19,8 +19,7 @@ Rana Card - это roguelike-игра с элементами карточной
 ```bash
 magnet:?xt=urn:btih:D7387E2CBC1A4D85DF39112F42928A2F96BFBF29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

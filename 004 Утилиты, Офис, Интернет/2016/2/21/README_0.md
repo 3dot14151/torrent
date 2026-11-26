@@ -19,8 +19,7 @@ Classic Menu for Office - эта утилита создана для тех, к
 ```bash
 magnet:?xt=urn:btih:28B24643CE37363420CE068551B15A8EA500C7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

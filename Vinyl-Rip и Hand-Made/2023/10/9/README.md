@@ -20,8 +20,7 @@ B - Man Ov SteelЖанр: Industrial, Progressive Death MetalПродолжит�
 ```bash
 magnet:?xt=urn:btih:5ECD61F490627987AC99F4D9587F97C78D9D5D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

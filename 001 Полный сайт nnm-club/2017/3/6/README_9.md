@@ -22,8 +22,7 @@ Isham Jones - 1929-1934 (2008) Jazz Oracle [FLAC|Lossless|tracks + .cue] <Early 
 ```bash
 magnet:?xt=urn:btih:14148B77A6F835E9388EFFACA827769540B52A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jackie McLean - Strange Blues (1957) 1989, Original Jazz Classics [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:715A74B7D31A50A6BADE26DC98194FE2FC3C3457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Junior Cook - Senior Cookin' (1979, 1981) 1998, 32 Jazz [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:D8513B8A706BBCC22D170A93C79086E4476DE7B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Meteor Trance Vol. 1 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:501C025C44BAD9C950CEDFCB1D6C6A8AADE15D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Gcmn - Code (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:BDD0119DD9ACEC7B066138049CE5E0B8FC4DE6C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sankt Otten & N - Männerfreundschaften Und Metaphysik (2016) Denovali Records [
 ```bash
 magnet:?xt=urn:btih:178C6337CA6643AEC22132F27E92AD3F9924BCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Society Clubbing Smashing House (2017) [MP3|247-320 Kbps] <Dance, Club, Fun
 ```bash
 magnet:?xt=urn:btih:455B72E1DC7F11D1EEB2964186A118FAF10D2273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Boris & Merzbow - Rock Dream (2007) 2CD Limited Edition [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:2CF40BD4B2FC7957CE9AD457239FC6F80B595713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Delta Moon - Cabbagetown (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blu
 ```bash
 magnet:?xt=urn:btih:C932BB016980EE6629D19E100BC62C350DBA7971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Jeff Healey - Songs From The Road (2006) [APE|Lossless|image + .cue] <Blues Rock
 ```bash
 magnet:?xt=urn:btih:89A1813715717A73128F87DC6B0F77C83559D043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Pogo - Rock Your Soul (2017) [MP3|320 Kbps] <Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:D19F82582F2927EBD381283783B6F812A9A3A6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Chet Baker - Ensemble (1953) 2004, Pacific Jazz [FLAC|Lossless|tracks + .cue] <C
 ```bash
 magnet:?xt=urn:btih:5D39D42A4525A3099003DE0B85AF894F3A5142E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Persefone - Aathma (2017) [MP3|320 Kbps] <MDM, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:188E88D1E0489FF67AE27B93F7E3430EB0F50805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:A1DE502299A22DC81648CBA149712743634AF3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Chano Dominguez - Over The Rainbow (2017) Nuba Records [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:744838868BE6F27E5808A7A98E9E4604313F803B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57645B21DEDB1F617C695E86B90B93EBABA47F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF6CEF56A15009E2D6F5E89D0AEE1E5070BD73B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:598904B0DD9002AABE094A32730416D54ED0A011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ Roy Buchanan - When A Guitar Plays The Blues (1985) [MP3|320 Kbps] <Electric Blu
 ```bash
 magnet:?xt=urn:btih:DCB990214576EF1B9994FB9F816785D9B86AC178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ VA - Woman’s Day (2017) [MP3|320 Kbps] <Pop , R&B , Chillout>
 ```bash
 magnet:?xt=urn:btih:E9AFAA60ACCBD43D38B45E72C1B91F975BDA5C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ Alternate File Shredder 2.070 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:42B4369DF8716249AFDB18052CE860A69F47AFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ VA - High Life - ...Nur Das Gelbe Vom Ei! (1986) CD [MP3|320 Kbps] <Electronic, 
 ```bash
 magnet:?xt=urn:btih:0C7981250872DE3650477609FEE9F2047A2A9C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E90C1E2F4DA57DFA2E96FBB003B4A8938D86314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ VA - High Life - Himmlische Tophits (1986) CD [MP3|320 Kbps] <Electronic, New Wa
 ```bash
 magnet:?xt=urn:btih:22892B1E17422AAA793FC62FEF0B2903C2DBCF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C1BF2A3F9799C6B2B246724BD3E86C94ABEC876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

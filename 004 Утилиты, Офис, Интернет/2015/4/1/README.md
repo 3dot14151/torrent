@@ -19,8 +19,7 @@ Corel WordPerfect Office X7 Professional 17.0.0.361 [En]
 ```bash
 magnet:?xt=urn:btih:D8301B708771FE70730E98B015D8B09EE60170F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

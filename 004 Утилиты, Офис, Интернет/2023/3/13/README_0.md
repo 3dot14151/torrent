@@ -19,8 +19,7 @@ uTorrent Pro 3.6.0 Build 46738 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ED2AAFE61CD9D22D8FFA2C00169EA7521C510F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

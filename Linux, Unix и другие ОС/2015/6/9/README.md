@@ -19,8 +19,7 @@ Debian GNU/Linux 8.1.0 Jessie [i386] 2xDLBD
 ```bash
 magnet:?xt=urn:btih:B12F7F4650E69852853BF8B9EFC66D06EE7F67E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debian GNU/Linux 8.1.0 Jessie [amd64] 2xDLBD
 ```bash
 magnet:?xt=urn:btih:1578B1A5773C4FC72A94C2462AA33B57D3F58530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Monada Gems: Mentis Excessus (2021) [AAC|~330 Kbps] <Organic House, Deep Ho
 ```bash
 magnet:?xt=urn:btih:C075AE66F4798DFB15464FACB3CA0F11213E7A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Aurea 5 (2021) [AAC|~317 Kbps] <Organic House, Deep House>
 ```bash
 magnet:?xt=urn:btih:7D55920A30E069DA695E0F45490CD62C96C250C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Aurea 3 (2020) [AAC|~321 Kbps] <Organic House, Deep House>
 ```bash
 magnet:?xt=urn:btih:9805ABDA9FE1EE49400DAF4D9BBD2BC8C21B4D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Aurea 2 (2020) [AAC|~318 Kbps] <Organic House, Deep House>
 ```bash
 magnet:?xt=urn:btih:0634E5B1157096454AB843979DCA75E818C70DBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Parousia 2 (2019) [AAC|~311 Kbps] <Organic House, Deep House>
 ```bash
 magnet:?xt=urn:btih:8DFD15043216F2397875DAA0DD4AD7BC7829E7A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Aurea 4 (2021) [AAC|~307 Kbps] <Organic House, Deep House>
 ```bash
 magnet:?xt=urn:btih:56E3C9A6B2C3792D0F89D2DD5BB3E201398411A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Odd Echoes, Vol. 5 (2021) [AAC|~341 Kbps] <Melodic House & Techno>
 ```bash
 magnet:?xt=urn:btih:500F9A2A59E2031F4C4AB652A9997BF5AB5DB5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Lost & Found Reflections 2021 (2021) [AAC|~344 Kbps] <House, Progressive Ho
 ```bash
 magnet:?xt=urn:btih:5EB20D1441C7A74D49EBA29623230F634FC7E384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Monada Gems: Sonus Terrarum (2021) [AAC|~308 Kbps] <Organic House, Deep Hou
 ```bash
 magnet:?xt=urn:btih:ABCC272D20C9F569DE98E41F545F6FA077FADBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Parousia 4 (2021) [AAC|~325 Kbps] <Organic House, Deep House>
 ```bash
 magnet:?xt=urn:btih:CEB0E5509DC3385C30300CAE101A588C8DA72B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Parousia 3 (2020) [AAC|~326 Kbps] <Organic House, Deep House>
 ```bash
 magnet:?xt=urn:btih:56D1BA07C8A567E2661444ECFCE6F7CE12381672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Aurea (2019) [AAC|~311 Kbps] <Organic House, Deep House>
 ```bash
 magnet:?xt=urn:btih:C7894A05403982CCEE2F2AA9C6BDB63953663605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Parousia (2018) [AAC|~333 Kbps] <Organic House, Deep House>
 ```bash
 magnet:?xt=urn:btih:870230569086241926A185C58CC7355F8F87D6AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C23E046745F413A8712555E199C70DC6874FA97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77D4F550745E0357D24564FDF658260284EC06C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:C5A067BEBC34FD34137810B4DE1E9F3C6C98BB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:D4945767DAEBF2F064F5DC0F153EF4ECB7CB3073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:259D0B6950241AF0B28390D430F3D052B735E5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Australian Custom Trucks - ведущий журнал о грузоперево
 ```bash
 magnet:?xt=urn:btih:F32AB2E2D3E23DF3E41CE494AE0E22480C158FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:6F52EE574E4C6E1845035C4D4105C5C06F63EFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:0A682C9B940769595DA9CA74644C2924EE8F2483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E68E802B022CA407605899E712D7D32BFB564D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:C29180BCCA7357436E5A7D4842DDE1F11543030C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:903B1E5FC463FA8664904FE1B5A22F9A7B674873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96D5A796E43FC76D1FEE10373949618851DCC99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ Auto Express — еженедельный британский автомоби�
 ```bash
 magnet:?xt=urn:btih:2838F6A77596F144C36955754C05A9135AC3F7CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

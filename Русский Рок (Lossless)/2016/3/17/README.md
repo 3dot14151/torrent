@@ -22,8 +22,7 @@ GAiNA - С Кем Ты Играешь И Поёшь?! (2008) [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:C4FD6AFD4AF61327C97D0E3F6FA4ED11D5DD1AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75CAE507B37E577FED8B176A1C5FC5FAA4F005C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FCFDE9AA82C7D734A825EC6E8CCF7C8A69CBCFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

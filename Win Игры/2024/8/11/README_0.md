@@ -19,8 +19,7 @@ Taxi Rush (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E1D2FA8E575EE61D58A19754C10DC88834B8A7FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ mack Studio – окунитесь с головой в достаточно м�
 ```bash
 magnet:?xt=urn:btih:138C1E6C8EE3455B9D961193C7D502A943AFBDAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

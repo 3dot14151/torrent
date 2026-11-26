@@ -28,8 +28,7 @@ Accuser - Dependent Domination (2011) [MP3|320 kbps]<Thrash Metal/Groove Metal>
 ```bash
 magnet:?xt=urn:btih:202E25F8656A3B895CA00F0275792B3474EEE274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ SuperHeavy - SuperHeavy (Deluxe Edition) (2011) [MP3| ~240  kbps]<Dub,Reggae,Roc
 ```bash
 magnet:?xt=urn:btih:5EC3B66ACA52A10A3B3FF64C8E9148D55205BC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

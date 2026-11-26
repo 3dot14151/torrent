@@ -19,8 +19,7 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.22/dlc) Repack Necros [Advanced Ed
 ```bash
 magnet:?xt=urn:btih:3A8A836A341ECD0CAE5D3060CC8CE32C0597553F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil Village продолжает приключения Итана и�
 ```bash
 magnet:?xt=urn:btih:04267DFB1C5BD256A752192CC39CD2886D17A3AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resident Evil Village (2021) [Ru/Multi] (1.1.0.6/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:9332E7FA34C1B3DBE5DDD316278D7A44F850B7E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Wanterlude 
 ```bash
 magnet:?xt=urn:btih:61B9E3D254F81B0C7288C98A48D1C2FD74B72A3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Super Drift Blade - это инди-экшен с элементами RPG и р
 ```bash
 magnet:?xt=urn:btih:5E8B3474CE88865F01C1153982DA799395522D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.3.0.0/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:AD2292C8C6E27F04849F8F77058F2B8AD1EB55B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

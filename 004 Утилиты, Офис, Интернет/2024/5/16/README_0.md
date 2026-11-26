@@ -19,8 +19,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:DC36E8AA90E80BBF29F1839CF3AD91F49421B07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ASAP Utilities позволяет упростить и автоматизиро
 ```bash
 magnet:?xt=urn:btih:2471DA62CFA8F355E3A489D7FB45871907DD9FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

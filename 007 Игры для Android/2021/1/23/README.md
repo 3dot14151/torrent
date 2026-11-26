@@ -21,8 +21,7 @@ ePSXe для Android - это эмулятор консоли Sony PlayStation (
 ```bash
 magnet:?xt=urn:btih:0160798B1DDD48431EAA17CE8059CD899844A7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ PPSSPP Gold - PSP emulator v1.10.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:769AFCFD99C8025B8011448C749E189943432445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

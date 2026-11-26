@@ -22,8 +22,7 @@ AnyBalance+ 1.1.220 [Ru] Full
 ```bash
 magnet:?xt=urn:btih:B7393B55E22059F2123CE62D2BB6CB30F3E78193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

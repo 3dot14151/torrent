@@ -20,8 +20,7 @@ Amparo - Love Life (2013) [FLAC|Lossless]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D256938E3952DAE45164FDAEF4123A40EBEE1008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:113462F0D823D647B4E53036943A381BB3A10878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Elton John - The Diving Board (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:2A5B2281411C76A5215C66ED60353F3AFE13E995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBF7801A16A7F5854E746E08E91178D75774FB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Portnoy, Sheehan, MacAlpine, Sherinian - Live In Tokyo (2013) 2CD [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:0CC6FF6000AED6AFE8D8664335928A402473E4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ VA - Absolute Dance Summer (2013) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:7FAE75158850874552BA25E0D08C61D09E810932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFF30798D416F9569BA28DEB190E37C5E3F17E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35BBED5806C77911D6B820C938AF447C10947ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ VA - Осенний Союз 50/50 (2013) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:2595CEB8FF14181C707B6150E291FD743FD7FEDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ Jorge Pardo, Ernesto Hermoza, Juan Medrano Cotito - Puerta Del Sol (2013) [FLAC|
 ```bash
 magnet:?xt=urn:btih:99CCAA2602CE5EA218ED6C41981C490F2E9A1799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ VA - Factory Team Hits & Mixes (2012 - 2013) [MP3|192 кб/с]<EuroDance,ItaloDa
 ```bash
 magnet:?xt=urn:btih:B905FE234A33F2B3876D9243A7692D69D8E1DF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ VA - Радио Record Самый популярный Exclusive - 4 (2013) [MP3
 ```bash
 magnet:?xt=urn:btih:FB5C95F99DA36CEAAC64A04666A9D5D56BC61ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ Nuts and Volts" - популярный журнал по электронным 
 ```bash
 magnet:?xt=urn:btih:5E8C7AA445EC1247B569EE4BA71C41D8874EC41C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA22063434F6807F851A8053EC815A899572D778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +442,7 @@ VA - Дискотека 2013 Dance Club Vol. 115 (2013) [MP3|320 кб/с]<Club, 
 ```bash
 magnet:?xt=urn:btih:234E712BBBA589EF81E4D81E1C944C47C1827952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ Pink Martini - Get Happy (2013) [MP3|320 кб/с]<Latin Jazz, World, Lounge>
 ```bash
 magnet:?xt=urn:btih:73573A81D3823BC4FB67AEBFE1F31F9AFA256706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32A774518E9DE3A2FFF3CA4D22C28CE86D9A0196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7663264F5A848CB2D76449B69CA9CA4C5807502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ VA - Лучшие Интернет Новинки 50 на 50 (2013) [MP3|256 к�
 ```bash
 magnet:?xt=urn:btih:7B2B8C8E675ABFAA947300A557B774D3AE145081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ VA - Шансон за рулем. Осенний Выпуск (2013) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:71BCDF5CF32C4FF82B54BBE265C3A5AFDC765890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:294351639CBE10BD634C3525D77CF62C2239CE57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38926D8C06AE636223E3FD3DE68B014D1E2B0FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +681,7 @@ VA - Новинки Русского Шансона выпуск 2 (2013) [MP3|3
 ```bash
 magnet:?xt=urn:btih:397B684A750956B7EB5C878E665FB6C0BF3CD443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ Flogging Molly - Speed of Darkness (2011) [FLAC|Lossless]<Folk-rock>
 ```bash
 magnet:?xt=urn:btih:548D8249AA89A9D362FD02B29959DEDA6B4A3BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +749,7 @@ VA - Зажигаем Вместе (2013) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:3A7234313CF52824219A1E32B8C9E87FE666DD29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -808,8 +783,7 @@ CD 1 - Now , Then & Forever
 ```bash
 magnet:?xt=urn:btih:5D66E32559A5412C673382D7A3C54313FE1ECE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

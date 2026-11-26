@@ -27,8 +27,7 @@ VA - Melodic Trance Life vol.7 (2011) [MP3|320 kbps]<Trance, Vocal Trance, Melod
 ```bash
 magnet:?xt=urn:btih:111F29FBA010715AD9F6889876F2A70ABE95D977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70DBB63AE6767DD5F2DC2944281A6FEBADA84C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Ibiza ClubSound (2011) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:FA1CA591DB59196B09FA63E665BE45AD692098E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Andes Pan Pipes Plays - De Los Andes (2011) [FLAC|Lossless] <world, pan pip
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ VA - A State Of Trance Radio Top 15 July 2011 (22.07.2011)
 ```bash
 magnet:?xt=urn:btih:9843A99666613BE2B1720D6F59184A86270C1E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Loadstar - Space Between EP (Ram Records, 2011) [MP3|320 kbps]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:36C9DE9097328C77FAE865F4F36F6B2A8E94EABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ VA - Золотой Граммофон: BEST- OF- KA #3 (2011) [MP3|128 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:B082FA2F10C2B8D0EF0D88A070674F5ECAB9E09A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ VA - Новинки года 9 (2011) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:B3B440773D171B778FB99DB31DEE1B43D89359FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ VA - Dance Club Summer (2011) [MP3|320 kbps]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:525F54082D4BF505868B8BB3009FFDD2AA1338A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C93432C2C58222D7FD89783D4B81FF5DC02A9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +369,7 @@ VA - I Love Vocal Trance 32 (2011) [MP3|320 kbps]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:24E0B58201E0B442BDFD7ADE692877C57021A21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B562ECBF14728440FC2C47B4E2ECDB4C52EF543B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +462,7 @@ VA - Тебе, любимая... Суперновинки Попмузыки (20
 ```bash
 magnet:?xt=urn:btih:2A397B50EF2A56911E477DEF5292DD6375DE60C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +489,7 @@ NG: В опасных водах Австралии : обед для акул /
 ```bash
 magnet:?xt=urn:btih:66497DCB7A2EE17F39A4ACB79E02137E4DB48A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9DE8DA28C5B62DCE82ECEEDA0444ED07E5F5D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +548,7 @@ Sun Project - Remixes ll 2009 (2009) [MP3|~206 kbps]<Psychedelic>
 ```bash
 magnet:?xt=urn:btih:F64F39961DA68CE73595F295CD3749F9768D1591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +581,7 @@ Brussels Jazz Orchestra & Tutu Puoane - Mama Africa (2010) [FLAC|Lossless]<Big B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:887624BAECD506B3380F51814006026C1F4D7266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:666CA86C04889B8347A77471F0C51D0B2B0309D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ Dj Heartbeat Dancer - JC4ever (2011) [MP3|320 kbps]<Eurodance>
 ```bash
 magnet:?xt=urn:btih:1134A24E26FE2ABAFCBBCCD0FB1C42A1E334A049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05C07E1D0BAA8F22A6030205F8877047F27F9848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +722,7 @@ Armin van Buuren - A State of Trance 518 (22.07.2011)
 ```bash
 magnet:?xt=urn:btih:B6F55B3067C335B2244F2282B5DF9262CC6092B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70B6100E4F6B1661086642A675E9D8E762057570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -807,8 +782,7 @@ Louis Camblor - Dansez avec Louis Camblor (1998) [MP3|320 kbps]<Instrumental, Ac
 ```bash
 magnet:?xt=urn:btih:B30A0030BFAF4B8BB93F1955199527FF9DE8B4A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

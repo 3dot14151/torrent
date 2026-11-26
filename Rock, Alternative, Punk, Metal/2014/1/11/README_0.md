@@ -28,8 +28,7 @@ Korozy - From The Cradle To The Grave (2000) [WavPack|Lossless]<Symphonic Black 
 ```bash
 magnet:?xt=urn:btih:46CFC6BEF816C7D704CA64E261ACC32F513093ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Seventh Key - Seventh Key (2001) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E9FD467A675C501832B7A43FEC4DB740BAA6140D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Sylvium - The Gift Of Anxiety (2013) [FLAC|Lossless]<Heavy Prog, Progressive Roc
 ```bash
 magnet:?xt=urn:btih:C8180FF3E27D3E67F3BF92531950091AFEEB6487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Out Of Yesteryear - 3 альбома (2007-2013) Дискография [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:C29A491EC8BAF92684DB3EB5F976DA0A5A5D5D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Seventh Key - The Raging Fire (2004) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5F5FBB140F56D2F6F645181DC401037DC0981868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Suicidal Angels - Divide And Conquer (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:0791F384667A8FF1F3BEBFEE891B1F0C355C9EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Baby Snakes - Gunslingers (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A44D339E8C68154BB91CF4B15066663D9A768B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Suncrown - You Are Not Alone (2014) [MP3|320 кб/с]<Symphonic / Epic Metal>
 ```bash
 magnet:?xt=urn:btih:2E6FA84EC16EA2A7F362499E7E769CBBF5B2D830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Seventh Key - I Will Survive (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:462F2EDBCD5FA150BEEBC8543401A1183ABA097B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Cliff Richard - The Fabulous Rock 'N' Roll Songbook (2013) [APE|Lossless]<Rock &
 ```bash
 magnet:?xt=urn:btih:806132D0413B5E0502679A59CD459E91AD004610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +363,7 @@ StereoИстерика - 3 альбома + 3 сингла (2010-2013) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:7A9CB6A4F819DDBC58743B653F0EB44EEED4663A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +397,7 @@ The 69 Eyes - The Best of Helsinki Vampires (2CD) (2013) [FLAC|Lossless]<Gothic 
 ```bash
 magnet:?xt=urn:btih:DC795B6B6E8EFD843EB9474EB30E325506E2E692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +431,7 @@ Louna - Мы - Это Louna (2013) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:6E140CCC60BEEDA1D8739C935AD2666BE5233CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.06.1254/dlc) SteamRip R.G. Игрома
 ```bash
 magnet:?xt=urn:btih:3294AFD87C7E6238D686CE9F321B04CA3B6CA5FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brigador (2017) [Ru/Multi] (1.3.2a) License GOG [Up-Armored Deluxe]
 ```bash
 magnet:?xt=urn:btih:64291FA19DF48F1EFA6E633799933F26F035ABB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SophiApp — это графический наследник Sophia Script for 
 ```bash
 magnet:?xt=urn:btih:0FC4A2B8B4949EE5ED4BCC3D4D16D747741A117D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

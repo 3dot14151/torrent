@@ -19,8 +19,7 @@ Alien Shooter 2: Захват [Ru] (RePack) 2011 | Chestr21
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

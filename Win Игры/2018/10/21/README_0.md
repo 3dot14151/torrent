@@ -19,8 +19,7 @@ Omensight - это экшн игра-головоломка. Вы - Предве
 ```bash
 magnet:?xt=urn:btih:A28F4DFCFE95B5462D03309305A5B0E1C54262A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Revival Productions с гордостью вам представляет нов
 ```bash
 magnet:?xt=urn:btih:5B714D0ED7D6993798FB476FA08B264BD3C097BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reigns: Game of Thrones создана на основе знаменитого 
 ```bash
 magnet:?xt=urn:btih:B065CFD20D3EE7A925E3E60641DC9DBA4D6BEDF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blood Bowl 2 - сиквел прекрасной стратегии, созда�
 ```bash
 magnet:?xt=urn:btih:9EB44DBD8925F4A16829D5E00D58749FA5C5D0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

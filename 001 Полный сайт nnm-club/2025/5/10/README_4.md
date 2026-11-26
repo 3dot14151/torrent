@@ -18,8 +18,7 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:CDC138B22A00E62E27D6A9F756189CD8A7E45484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Ashampoo WinOptimizer 28.00.10 RePack (& Portable) by Dodakaedr [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CBC122DD4F7845636CBD3E4C9C4EF54FF5C88629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EE5696A0DDBD5AFA76BCFEE9FEDE7F7EAB5369D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Draw.io 27.0.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:755EB2547327B01447F00C7AFA1DD674F2ED7AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78770089F8346B587DA5D05C7E546CA188684D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2D52E08748F35C8F3AF90E2A98493836A40FC3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Forgive me Father – шутер от первого лица с мрачным 
 ```bash
 magnet:?xt=urn:btih:FC0E2C6E17A320D0814980A0B38D0295701274C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Balabolka 2.15.0.895 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:89E038A0D595B270396BC135622F1F5F7361347B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

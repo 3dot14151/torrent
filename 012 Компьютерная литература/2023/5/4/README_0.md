@@ -19,8 +19,7 @@ Marian Montagnino | Building Modern CLI Applications in Go (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F3AF1879ACAE661EFBB14B9B04167EC244A99F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F06EFFEAE67B5741569F0E62D115C4B5B107E8A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Itzik Ben-Gan | T-SQL Fundamentals, 4th Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:81F08F677C1AFA7F351461AAE7E9C33122021234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63EDF5DE624D917E5A845C4F7889029912521833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

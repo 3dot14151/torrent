@@ -19,8 +19,7 @@ Macrorit Data Wiper – мощная утилита, которая поможе
 ```bash
 magnet:?xt=urn:btih:F83243943DF5E64F153FE219C7565E8A601062A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:AE2AFDB46F38E7198C9AA4EA805A20409984AE66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FonePaw Android Data Recovery - эффективная программа для
 ```bash
 magnet:?xt=urn:btih:4E458A58CB01332CB9E01F815FC300F9A5DCC77E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

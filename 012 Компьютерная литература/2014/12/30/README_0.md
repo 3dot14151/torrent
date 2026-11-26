@@ -19,8 +19,7 @@ Beginning 3D Game Development with Unity 4 (2nd edition) идеально под
 ```bash
 magnet:?xt=urn:btih:FF265C6209EE65DD746BE84A38C2ABAB104ADB3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Alan Thorn | Pro Unity Game Development with C# (2014) [PDF, FB2, DJVU, EPUB,TXT
 ```bash
 magnet:?xt=urn:btih:69286E1ACCAF92A8887590DE84469E157BEE9046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

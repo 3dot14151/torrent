@@ -19,8 +19,7 @@ Forgotten 23 (2025) [Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:0169046E2B8FFF3C88844ACC17CA36E71B7C94D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Runa Illustra (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FDBCF2EBFC477C8CFBB92E7770E1FD151711E8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Iron Core: Mech Survivor - это однопользовательская ро�
 ```bash
 magnet:?xt=urn:btih:A36DD25399849130D219B2DF65D969ACA22D478B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5A9C17E7EBB7A29444D7502CD8A5E2EA836D4EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The RPG (2025) [Ru/Multi] (1.001/1.004) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D385299A0C85B843C23AAB58962B20D923B22D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:929DF32EEA4FE461A1A0E89C8820E7A1F4010BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 ```bash
 magnet:?xt=urn:btih:AE3336668A1E97B1F7D33F910FEDE251DF5E9477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ RAILGRADE (2023) [Ru/Multi] (7.3.63.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6A7FA09C2A751E7D9BDB69B7AE56E79B9906BA44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.06.18.12/dlc) Repack Fit
 ```bash
 magnet:?xt=urn:btih:2A237CF51BB72F1BCCED8B0DDACF2E1C6F8932F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

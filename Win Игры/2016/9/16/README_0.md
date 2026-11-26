@@ -19,8 +19,7 @@ Toki Tori 2 – веселая игрушка от студии Two Tribes, гд
 ```bash
 magnet:?xt=urn:btih:EF901C9B608C553A5888D58F872EB8F4EE1FF4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Victor Vran - это изометрический ролевой экшен с �
 ```bash
 magnet:?xt=urn:btih:062E12B5E8F75111A94AB15017A4E7760F5CB4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

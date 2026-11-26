@@ -19,8 +19,7 @@ Ultimate ADOM - Caverns of Chaos (2021) [Multi] (1.0.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:73561624E8C56B506B2FB9F59C27F86DC0707727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mecha Knights: Nightmare (2021) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:EF038602913F65FB4A399CD87CE9946C5B4F3494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MagicMaker - волшебный платформер с приключениям
 ```bash
 magnet:?xt=urn:btih:4AAB88FD2F21999B85B4457A6EA4B3C7A2CD2D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Call of Duty: Infinite Warfare – очередная часть в популя
 ```bash
 magnet:?xt=urn:btih:AE64247653A13CE56E4E83AE03F3C08E712782BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

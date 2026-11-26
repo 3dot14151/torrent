@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CDE4F42A50B132756C894DEE7E7CD8796CAE39A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Iggy Pop - Apres (2012) [FLAC|Lossless]<Post-Punk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Gotthard - Firebirth (2012) [MP3|320 кб/с]<Hard-n-Heavy>
 ```bash
 magnet:?xt=urn:btih:7E63C8E621435192AF24CDBC330B36044BA6B5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Znaki - 100 Триллионов (2012) [MP3|320 kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:03E1F78D4CD3F4EE60AA643A1EA1F90F552F5E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
 ```bash
 magnet:?xt=urn:btih:7981573C41848F4581823C2D003C7ED6E8978548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8091688A46CF4BC019666549E20F68ACCDC162A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:6E081DF319FDFA31C7C926CF1B7A30DCAEA2857B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Borderlands 2 (2013) [Ru] (1.8.4/dlc) License PLAZA [Game of the Year Edition]
 ```bash
 magnet:?xt=urn:btih:E014A62F0021A272D112F1056156095A5A1B40A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assetto Corsa была разработана для того, чтобы как
 ```bash
 magnet:?xt=urn:btih:E3928450C518628B7E535E8B89BEAA5E992EE690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Subnautica - это ролевая игра от создателей Natural Se
 ```bash
 magnet:?xt=urn:btih:E303964226E706E857F8B5FDDF347F0D32AC614D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

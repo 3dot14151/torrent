@@ -27,8 +27,7 @@ Seecrees - Genesis (2011) [MP3|320 kbps]<Cyber Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:CC94F3834883CAAF8BA8F2D8ECC7C4AE2082A8CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ CG Bros. - Под Прицелом Врага (2011) [MP3|320 kbps]<Alternative 
 ```bash
 magnet:?xt=urn:btih:811116AFE597CC7453B04F1FD0BDA48428B3CD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Crowbar - Sever The Wicked Hand (2011) [FLAC|Lossless]<Sludge Metal/Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Oasis - The Ultimate Best (2011) [MP3|320 kbps]<Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:C96B41CEA11C28C3E6A3FE13E2A6BC65A7C612A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Love Is A Laserquest (3:11)(   Читать дальше...   )Жанр: Indie R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

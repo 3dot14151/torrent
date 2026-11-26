@@ -28,8 +28,7 @@ VA - Melodic Punk Style - Sound Of Us Volume III (2014) [MP3|320 кб/с]<Melodi
 ```bash
 magnet:?xt=urn:btih:E44C658F216C791C5305ADDA46F75CCB1141846D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ AOR - L.A Connection (2014) Japanese Edition [MP3|320 кб/с]<Melodic Rock, AOR
 ```bash
 magnet:?xt=urn:btih:4E732D7A80DD273FA329B5882EE81338A4886596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Brian Setzer - Rockabilly Riot! All Original (2014) [MP3|320 кб/с]<Rock'n'Rol
 ```bash
 magnet:?xt=urn:btih:B3D7688016F9EE779E3EADB630649A08381E090B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Losers - ...And So We Shall Never Part (2014) [MP3|320 кб/с]<Alternative Rock
 ```bash
 magnet:?xt=urn:btih:1AF61EA43EDB1B1B8268B49DC86178A659C8FECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Nickelback - Edge Of A Revolution (2014) Single [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:A18EE61A0B3B9ABD7F08A6039A37D2B1FF7496D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

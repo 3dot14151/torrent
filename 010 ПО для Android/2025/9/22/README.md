@@ -19,8 +19,7 @@ Remini / Улучшение Фото v3.7.1126.202516929 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:5DBC0F121088C729650D50D9D06783A026C8065E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:7D922137E94ECB2523DAF3800F20C8B88DEDB661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HiPER Calc Pro v11.2.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A925ECEA5531EAEF171030E0D19E9E47EF14A670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E1977074B51581117C4AB38C03FC5CE6C3BEA477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Virtual Rides III наконец-то с нами! Мы приглашаем в�
 ```bash
 magnet:?xt=urn:btih:1A8A07F8233E358A0962626EFA2B2212BD759316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02D9E6DC288CD6ECD026DB56688AA0884537E2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Revenants [Ep
 ```bash
 magnet:?xt=urn:btih:05E6DB53A9B6203C0E511C905ACC5E28A52CB013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Monochroma - платформенная аркада от студии Nowhere S
 ```bash
 magnet:?xt=urn:btih:91764A5D3E6993A4680747151A421E7193DC3AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Codex of Victory (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:61B4E12E87B466104FB0647FF5EC6BC98389D112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

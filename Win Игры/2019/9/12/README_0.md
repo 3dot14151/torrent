@@ -19,8 +19,7 @@ Dark City 3: Vienna (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:273D61AF0AE1CCD45DEF164798AB10C73DB8190F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alicia Quatermain 4: Da Vinci and the Time Machine / Алисия Квотерм
 ```bash
 magnet:?xt=urn:btih:B382F54ED116E115308436E7FBF333D1CF7468B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0.gogp180619) License GOG
 ```bash
 magnet:?xt=urn:btih:35E2DD8F43080FA7E3D1E123E5460003549E48D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

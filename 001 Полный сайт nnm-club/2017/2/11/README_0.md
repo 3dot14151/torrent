@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:45D39E1DFA0C3C9B19F16104AA1E7F9E163D52A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Jim Crean - Insatiable (2016) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7EFE657D1D994492958E1E13687A73D0A3EA1C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Cr2 Live & Direct Presents: Secondcity (2017) [FLAC|Lossless|Web-DL|tracks+
 ```bash
 magnet:?xt=urn:btih:2930D2EFA84D0320401E43D6A1BAE1C0784BF353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - The Acid Jazz Test Part Three (1995) [FLAC|Lossless|image + .cue] <Acid Jaz
 ```bash
 magnet:?xt=urn:btih:0906C7132D4C39BCFBA235245CBDEE8A44812C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Cold Blood - Lydia (1974) Remastered 2004 [FLAC|Lossless|tracks + .cue] <Rock, F
 ```bash
 magnet:?xt=urn:btih:811A8E5CA9ED4B70A89A103199682FD577CB9FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Jesca Hoop - Memories Are Now (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie
 ```bash
 magnet:?xt=urn:btih:1FDC9A3111681EDEB1056DD34CE1AD5F5D0238B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Knorkator - We Want Mohr (2014) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche 
 ```bash
 magnet:?xt=urn:btih:660F7A0035BF18D0834C9A2D82D9D4CA9D1D466E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Expressions поддерживает переключение между гру�
 ```bash
 magnet:?xt=urn:btih:489102E07F00F9AA59DEDC590590B9EA67EFB1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83D601F2912A98D6E11C3E26B15B2B7F22D27655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4187283A14426581056CB8E06BED4398AC0D5EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A28CEA932E9A0E562752D9031BC3708F2632057D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Left Lane Cruiser - Beck in Black (2016) [FLAC|Lossless|tracks + .cue] <Blues-Ro
 ```bash
 magnet:?xt=urn:btih:98A132F4E9E74022444BFB3800C7397E88BC6D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Submarine Silence - Journey Through Mine (2016) ex-Moongarden [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:046D47FBBDB4AFED91916DD727FFED816D0DD5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Oscar Peterson Trio - Encore At The Blue Note (1993) 1998, Telarc[FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:4A8AEF88ADCEE51F87AA2E11E8D6601A914DF6F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Leda - Welcome To Joyland (1978) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco
 ```bash
 magnet:?xt=urn:btih:6A8826028234B126DD46A9C43A8213982A74495E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Principle — умный (   Читать дальше...   )Тип издан�
 ```bash
 magnet:?xt=urn:btih:6250B3578AF1C1E272F5C341693885F1CE762301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Stevie Ray Vaughan - Up From The Skies (1996) [FLAC|Lossless|tracks + .cue] <Blu
 ```bash
 magnet:?xt=urn:btih:87C6F2748CF50841F89872A3C985997A732E0D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ VA - Dance Essentials (Armada Music) (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:CCDC747A6A29726CAC2410E63A3F15B5AD600F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:012270F7BACAF0E3F0CBE6EEB669A88028FEF12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ Handyman — очень известный и популярный журнал 
 ```bash
 magnet:?xt=urn:btih:782DC03DED7FFB80AC5CC34E3B8A1C3C087C2A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D07C71736854156415151F12FEE2C121739C4E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3D82026C028817D43FFAC9378B6782FCF35E773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ Burnin' (1962)
 ```bash
 magnet:?xt=urn:btih:5B6CAD74E5EA282B56A152DDBFFF49465AABBA30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DA38E0DA7E708B01D7561806B7243CE98D738C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ Doro - Machine II Machine (1995) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard
 ```bash
 magnet:?xt=urn:btih:6C34D0BA84816AD3CA269DECA4D609C82A80269C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ Ronnie Earl & The Broadcasters - Good News (2014) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:40A1B4A910CA9A7D7A4D92B7E188F16967433F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

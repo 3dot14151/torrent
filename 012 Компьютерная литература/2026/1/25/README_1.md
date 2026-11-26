@@ -21,8 +21,7 @@ Print out whatever you can dream up
 ```bash
 magnet:?xt=urn:btih:841B2769FB27BFFDFF642B964D717A2BC1A6025D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

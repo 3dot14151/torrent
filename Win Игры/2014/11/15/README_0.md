@@ -19,8 +19,7 @@ Haunted Legends 5: The Stone Guest (2014) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:1A1CF680D73464C5AA61DD29F9D70D72DEDDF232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Parables 8: The Little Mermaid And The Purple Tide (2014) [En] Unofficial [
 ```bash
 magnet:?xt=urn:btih:3CB8C07FF09395927ED4F91CFCCA4BCAE7E4DE50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Myths of Orion: Light from the North / Мифы об Орионе: Свет Се
 ```bash
 magnet:?xt=urn:btih:37CF72C21636032A5816E45B4463914C2724C559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grim Tales 7: Color Of Fright / Страшные сказки 7: Ожившие 
 ```bash
 magnet:?xt=urn:btih:5FA59B455B764BE93AA8A445D04F0AA74C19789F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

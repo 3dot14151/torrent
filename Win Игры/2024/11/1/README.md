@@ -19,8 +19,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.12.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2D814A4704C894C6DD8CAC675A4BF6253A1B3CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504czj3/dlc) Repack Wante
 ```bash
 magnet:?xt=urn:btih:064D824EB6C9F9DCC2E30F5462EB36D47E2F54BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [Deluxe
 ```bash
 magnet:?xt=urn:btih:E6C1FCFD3C71AE2DD52160A0D3EEC777DB945A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Resident Evil: Operation Raccoon City - это командный шутер, р
 ```bash
 magnet:?xt=urn:btih:AC61222CADD212FECD63C3B71F1B8BED1E5F9BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Scene Razor 1911
 ```bash
 magnet:?xt=urn:btih:70A7E86A01EA4E1F8603C082AA2A121C13F0FC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:CEC0E7ABCCFEE9F7E1AF79FA6285742C2476804F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Scene Rune [Del
 ```bash
 magnet:?xt=urn:btih:758EB36764C30A26E8E5201F53E0E0DBDEB61EB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:16CAD74230189BB66038DCA77DEA304C8D43FA33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:821E877DC29FD5B46D3CDD4B7640BB2CCFB1B0E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:97F131FC3C09EBB2DA907962E1BE4EFB8B835EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Shadows of the Damned: Hella Remastered - долгожданное переиз�
 ```bash
 magnet:?xt=urn:btih:2A93D70FFDFF2F5A18B0F7DAC74DD0FA1CF61DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Deponia (2012) [Ru/Multi] (3.3.1357) License GOG
 ```bash
 magnet:?xt=urn:btih:0795988FFCB5BB9EF16AAC4B3123FDFAAC3AA67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.105/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A0FB2D8691C49B06C53F0C6EB36EFC05C9EF43C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Moon Mystery приглашает игроков в космическую од�
 ```bash
 magnet:?xt=urn:btih:26451534CB9B4D1A7A507B5686E2F2CE5E1D19A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Granny Remake (2023) [Ru/Multi] (3.5) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:552E643F6C30286D9A38156A882D254CD131011D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

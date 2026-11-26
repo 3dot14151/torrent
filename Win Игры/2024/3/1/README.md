@@ -19,8 +19,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0.0.0/dlc) Repack DjDI [Supre
 ```bash
 magnet:?xt=urn:btih:F288A95D4A06667D98952B7677E6F74921BBF29C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nathan Morgan: Dilemma ставит вас на место детектива Н
 ```bash
 magnet:?xt=urn:btih:C9F1944C17BC988885D55816B2B3D677B813BB7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ad Infinitum – атмосферный хоррор-проект, в котор
 ```bash
 magnet:?xt=urn:btih:52517CFD08882CB3791A069CBB65266F64BE5DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Star Wars: Dark Forces Remaster был воплощен в жизнь коман
 ```bash
 magnet:?xt=urn:btih:DEC27076A224EBDCC3A9CD70AD3BEE88A2034F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Slave Zero X - это биопанк-экшен, выполненный в по�
 ```bash
 magnet:?xt=urn:btih:C2391D0DADD31606D3B20FB1AC7252A4542E3C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Invisible Fear погружает вас в леденящий душу кошм
 ```bash
 magnet:?xt=urn:btih:C77F8C6A81471682C177896C76C6409057A8A6C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bridge Constructor Portal (2017) [Ru/Multi] (001.04/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A86BD7DE26A1C7AF781A88E9FFFE38F46CF664A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ WRATH: Aeon of Ruin – шутер от первого лица, созданн�
 ```bash
 magnet:?xt=urn:btih:0C949B841117C62D41F8C3182630C76CEC4FB2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ ecrets of Grindea – интересная игра-приключение, в �
 ```bash
 magnet:?xt=urn:btih:8D58059EEB666C69BE5EFFAE1C35F0115535E7A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Penny's Big Breakaway - это яркий 3D-платформер с иннов�
 ```bash
 magnet:?xt=urn:btih:0B6698D5D5C3DD307DF8FB12F63E2454CBB47864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

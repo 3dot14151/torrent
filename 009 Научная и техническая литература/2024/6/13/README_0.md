@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:15A634BB92FF7AD1AA8C9CA6684CF665A4B6B9C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ How to access Hot English.(   Читать дальше...   )Жанр: учеб
 ```bash
 magnet:?xt=urn:btih:DD9F0BF1F97143063A5B97A475F661C62A8E18DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ This book is essential to anyone who is planning (   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:694FCFBB3F2F0059BD04B7C066AC096A08FDA040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Falar, ler, escrever português - Um curso para estrangeiros. Livro do aluno (co
 ```bash
 magnet:?xt=urn:btih:BE3C6A64105D054650E9AAF5BE824E889D690137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

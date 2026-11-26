@@ -20,8 +20,7 @@ TeachVideo | Mac OS X 10.6 Snow Leopard [2011] [EXE]
 ```bash
 magnet:?xt=urn:btih:A56F0A35D5450F4741847F71B7F297F5E59A4C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SpeedFox 2.2 [RUS]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:452BC683719A36B672DE616873FD3A18798B5309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ CD1: (01:09:02)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ TeachVideo | Microsoft Outlook 2010 Обучающий видеокурс [2011]
 ```bash
 magnet:?xt=urn:btih:A54ECD7F5303F26A05438231CC770EA7E60B5349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Cериал про группу полицейских под таким при�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Vegas Movie Studio HD Platinum – видеоредактор, включающ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A35C9D731DE41D82A2EA2D4C120AD1D3DA874E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C657D2BC2466BA511F051BFFB14C2F36D50D5083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ TeachVideo | Microsoft Office Excel 2007. Базовый курс [2011] [EXE]
 ```bash
 magnet:?xt=urn:btih:B04F1D1B8BD6A290006C9A6C4BC2BF9F8729473E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76213206F12261EB9724D21907E15B89A77BBF98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ Microsoft Office Word 2007. Продвинутый курс - в данном у
 ```bash
 magnet:?xt=urn:btih:42BE9534448A9DFC8E2F322BDC3D133B22BB4489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ UFC Personal Trainer [Wii] [NTSC] [ENG] (2011)
 ```bash
 magnet:?xt=urn:btih:B85C51BE22E27DBCC723B4062A8BFFA482047CB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C19574A91E8FAC74893514CD618A71125BB67AA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ TeachVideo | Microsoft PowerPoint 2010 Обучающий видеокурс [20
 ```bash
 magnet:?xt=urn:btih:22B83D2C01AA4CB9B07E961F4DF935E0AC7E2F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ TeachVideo | Физика 7-11 Класс [2011] [EXE]
 ```bash
 magnet:?xt=urn:btih:9885B9552CACE3F2CC08AB49236B3F0433974A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ TeachVideo | Видеоэнциклопедия Adobe Photoshop [2011] [Iso]
 ```bash
 magnet:?xt=urn:btih:FC46D232FFAEC5B935E3842216F5E2F270DC62A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ TeachVideo | Microsoft Office 2010 Обучающий видеокурс [2011] 
 ```bash
 magnet:?xt=urn:btih:27716CEE90F499711936CCB00B14A030E86DFE08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +553,7 @@ TeachVideo | Microsoft Office Excel 2007. Продвинутый курс [2011]
 ```bash
 magnet:?xt=urn:btih:9FA2264EFEF9B3E8F79673EF787D12FCE9A07B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ TeachVideo | Информатика 7-11 Класс [2011] [EXE]
 ```bash
 magnet:?xt=urn:btih:0A0EECCCDB1E157FCFEDA1ECAE64241D5DA59453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +603,7 @@ TeachVideo | Математика 7-11 Класс [2011] [EXE]
 ```bash
 magnet:?xt=urn:btih:C7C56A9C22EF43E8346F1E51790D457E1770A72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1A9CE50272B7647A3F4CB9DB2CC06DE2AA550E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +657,7 @@ Disciples: Sacred Lands / Disciples: Священные Земли [Ru] (L) 1999
 ```bash
 magnet:?xt=urn:btih:C3437CD0FCF07EB695109A0F49EFBD88CA3EF2CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

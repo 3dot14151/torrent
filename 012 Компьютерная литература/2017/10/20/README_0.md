@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1FE1CD11629F39F5FEEE5B1A76F25E307B40F39A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Python - это высокоуровневый язык программиров
 ```bash
 magnet:?xt=urn:btih:055C606D14FB681F39C76E40728E9BEB3CE42BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ UpSkill Learning | Программирование NodeMCU с использо�
 ```bash
 magnet:?xt=urn:btih:A80D779B37285EE024995234C5954DD64197FC4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Google Таблицы – прекрасный редактор таблиц, п
 ```bash
 magnet:?xt=urn:btih:44860C1B3527C6F64AEA6CA088706D012F1D188C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

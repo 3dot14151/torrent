@@ -19,8 +19,7 @@ Jasi Patcher — патчер для приложений. Программа д
 ```bash
 magnet:?xt=urn:btih:05DF0C42AC927F71F33C8E2097C81325EF184120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tiny Scan: PDF Document Scanner - Теперь преобразовать обы
 ```bash
 magnet:?xt=urn:btih:66196DD8AF756C0BA9FBED3A72F2ECA6A419BB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SwiftScan (Ранее Scanbot) - это мобильное приложение,
 ```bash
 magnet:?xt=urn:btih:2651E270EA1E8D0DA3B6A916C653F265E290AE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hi-Q MP3 Voice Recorder – бесплатный качественный MP3 д
 ```bash
 magnet:?xt=urn:btih:D918DB60A8DBC9802888C1350FD5510C1F227142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

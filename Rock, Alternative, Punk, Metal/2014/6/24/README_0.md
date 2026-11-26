@@ -23,8 +23,7 @@ Autarch - The Death Of Actiacus (2013) [MP3|320 кб/с]<Neocrust, Post Metal, H
 ```bash
 magnet:?xt=urn:btih:3184ECD8E833A2E117585B2E73B36EF29C984CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Psycrence - A Frail Deception (2014) [MP3|320 кб/с]<Melodic Progressive Metal
 ```bash
 magnet:?xt=urn:btih:864D693E9E44CC9D5B43E501CE6B3F2A27D84A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Brighton Rock - Young, Wild And Free (1986) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:05615F112DE8C39E0DADCEB144C4C5994E356368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Free - Fire And Water (1970) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:BB09A874B852146F1FA1AA96E7EE5DFC167ABA2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Fort Royal - Игра В Сюрреализм (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:E258D2030B7175801D629649D4D01A2E260FB8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

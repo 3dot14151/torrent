@@ -19,8 +19,7 @@ Dungeon Keeper KeeperFX (2008) [Ru/Multi] (1.3.0) License/Mod GOG
 ```bash
 magnet:?xt=urn:btih:37B8FA6148DFED1EDBEAF3F65DA828ECF71F4B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

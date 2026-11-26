@@ -28,8 +28,7 @@ Steelpreacher - Hellraiser (2011) [MP3|320 kbps]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:314C1CFF4A20FEF2C0A5DD6FD4EAFCE2EA16B891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ SpieleBand - SpieleKraft (2011) [MP3|320 kbps]<Medieval Folk Metal>
 ```bash
 magnet:?xt=urn:btih:3D0995A8E870E3FC378B60F84626DE542EDF55BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ The Devin Townsend Project - Ghost (2011) [FLAC|Lossless]<Progressive Metal / Am
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

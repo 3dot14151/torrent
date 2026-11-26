@@ -19,8 +19,7 @@ Rapid VPN - лучшее приложение VPN для просмотра ва
 ```bash
 magnet:?xt=urn:btih:AC59B507109EBF981457FAA8334362A6E5F355EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

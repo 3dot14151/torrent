@@ -19,8 +19,7 @@ Crossroads: On a Just Path / Перекресток: На верном пути 
 ```bash
 magnet:?xt=urn:btih:C5937F53CC42538B0EAF6D9B65E128EAEE7C6C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ JollyHangman — это реализация классической игры �
 ```bash
 magnet:?xt=urn:btih:9D635DB863DA493EC15835C2178092A71680ACA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spirits Chronicles: Born in Flames (2022) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:0F40E165D9AB65F2DA87B4E19F14553A5A3820B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

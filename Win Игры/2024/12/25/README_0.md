@@ -19,8 +19,7 @@ Bear and Breakfast - это неторопливая приключенческ�
 ```bash
 magnet:?xt=urn:btih:7E9980B1F18122A8938E8DD08DDA2B370A17377A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Legend of Heroes: Trails to Azure продолжает историю Лло
 ```bash
 magnet:?xt=urn:btih:B6EBA58DBB6D7D6247170F902A8509FE418F90C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (1.2.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:A552DC32D19EBC523FE798E13C7F53D9E0C724A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tokyo Clanpool (2024) [Multi] (0.30) License GOG
 ```bash
 magnet:?xt=urn:btih:BEA46AEA3BE4E7D9C4BFD5EFA4DB54B3D5DCF595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Christmas Wonderland 15 / Рождество. Страна Чудес 15 (2024) 
 ```bash
 magnet:?xt=urn:btih:372E1A14F47E403490435F2B897C6D08D3BE1A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

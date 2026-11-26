@@ -22,8 +22,7 @@ A2 Серые Глаза
 ```bash
 magnet:?xt=urn:btih:7CCDA5F64130E86C81410FDC4D0186C4D0B7964D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Fate - Scratch 'N Sniff (1990) Japan, 1st рress [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:49658EBDB8AF08CECFB3A1A11EC6A4A7A689E50B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -65,8 +64,7 @@ Jimi Hendrix - The Singles Album (1989) 2CD [WavPack|Lossless]<Hard Rock, Psyche
 ```bash
 magnet:?xt=urn:btih:3A98FAA5619E7ED32855D47BA6B7DF072C180691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +98,7 @@ Jimmy Page - Blues & Ballads (2000) Bootleg [WavPack|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2E88CD6AEAD64CA8285705B35E3AB0F619011BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +132,7 @@ Harem Scarem - Mood Swings II (2013)Japan, SHM-CD [FLAC|Lossless]<Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:F14F6C1506E298DF3A8DF926ED43DD22D88E7998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +166,7 @@ David Coverdale - Ballads (1995) Bootleg [WavPack|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0A8E34B4C62C4D0D758214FFF6B941ED0728CB45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +200,7 @@ Uriah Heep - Come Away Melinda: A Collection Of Classic Uriah Heep Ballads (2001
 ```bash
 magnet:?xt=urn:btih:E27FE82619B469ECF12CF2098207C61E571E0F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +234,7 @@ Sepultura - The Mediator Between The Head And Hands Must Be The Heart (2013) [FL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

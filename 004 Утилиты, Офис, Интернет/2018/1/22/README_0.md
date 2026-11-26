@@ -20,8 +20,7 @@ Shining Android Data Recovery - профессиональная програм�
 ```bash
 magnet:?xt=urn:btih:CB0F5AC7BE351D09463991BEE2D33465C808DE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

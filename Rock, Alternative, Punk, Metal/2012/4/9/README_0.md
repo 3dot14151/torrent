@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:A51AC97178632894DAF09216E4FE4D7F3AB984E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Talon - III (2012) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Blotted Science - 2 Albums (2007 - 2011) [MP3|320 кб/с]<Instrumental/Progress
 ```bash
 magnet:?xt=urn:btih:1BF582C42533626C232D03331F27C66D909BDEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Dreamcatcher - Emerging from the Shadows (2012) [MP3|320 кб/с]<Heavy Metal, P
 ```bash
 magnet:?xt=urn:btih:785DC86F95657D7046FA4E3E3AFCF9776CC932D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

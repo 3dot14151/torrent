@@ -19,8 +19,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:C492EC8A2095C992C2D8E2A61705C983AA4E623D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NoMachine – это средство доступа к удаленным ра�
 ```bash
 magnet:?xt=urn:btih:B984A1A0B83CC5D89D79BB93E85976E739B757A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

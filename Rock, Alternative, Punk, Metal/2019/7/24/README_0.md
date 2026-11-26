@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:6F8449F89E0929D9472467C9282C77A14851CEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bokassa - Crimson Rider (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Hardc
 ```bash
 magnet:?xt=urn:btih:20CBBB6F251D392D4B71A3CF6E4371B43097CB2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

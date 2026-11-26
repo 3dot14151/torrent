@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:577ADBD80226A637608F09519CEA86FAFE25416D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ In Learn Python 3 the Hard Way, Zed Shaw taught you the basics of Programming wi
 ```bash
 magnet:?xt=urn:btih:030A5A827153BB56969C51D3A6347B8C42D4E4DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

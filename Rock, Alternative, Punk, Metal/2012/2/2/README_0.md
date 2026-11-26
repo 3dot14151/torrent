@@ -28,8 +28,7 @@ Eternal Dream - The Fall of Salanthine (2012) [MP3|320 kbps]<Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:D2C7108677BA9098BBB64173535D0B39F410FE62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Lorenguard - Eve Of Corruption The Days Of Astasia - Part One (2011) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:50762864DB810C4BC07EE9DCA7689F341F1DA4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Nightwish - Live at Gibson Amphiteatre (2012) [MP3|320 kbps]<Symphonic Metal>«�
 ```bash
 magnet:?xt=urn:btih:B73DB575778DA502B217DA4FF3887A6D472238D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Les Friction - Les Friction (2012) [FLAC|Lossless]<Alternative Rock, Neo-Classic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

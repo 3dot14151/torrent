@@ -19,8 +19,7 @@ Runaway Express Mystery (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:AEFF2F561158C16DE95B448C8EC3A3B7B3600561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Parables 7: Ballad of Rapunzel / Темные притчи 7: Баллад�
 ```bash
 magnet:?xt=urn:btih:E5E229CDBD8C6CDE80C83B5C7DC01A7690A9D6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Dark Souls II привносит традиционный для серии вы
 ```bash
 magnet:?xt=urn:btih:C5789C99D3B607E7DAC4C9461A875282EDC671C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

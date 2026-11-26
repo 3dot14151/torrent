@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1E03D8F0C31AE8C7CADE0BF95B5F7EB5B14BF5DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1839B72A32A2D6F5E49448B32701DEAA28A0EAFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Sousou no Frieren TV-2 | Фрирен, провожающая в последн�
 ```bash
 magnet:?xt=urn:btih:04E50518496B407C03FC80A8B1202BD5008B6170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

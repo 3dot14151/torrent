@@ -19,8 +19,7 @@ Octodad: Dadliest Catch — игра о разрушении, обмане и р
 ```bash
 magnet:?xt=urn:btih:FFB7041BD87687D63C590EEB384753C5CBD6725E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Puyo Puyo Tetris 2 — это новый кроссовер мегапопуля
 ```bash
 magnet:?xt=urn:btih:9BBA3955686F34839BB3A0BD2F592DB757CFA3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5AFB4CB95E4F4136845B4DE4E531CF8ABB48BEC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ B1 Snakes Of The Old World(   Читать дальше...   )Жанр: Atmosphe
 ```bash
 magnet:?xt=urn:btih:D765D4C105AB58FD8FF557E03D6CE5AD277A4F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 Tu Funeral(   Читать дальше...   )Жанр: Celtic, Folk, Power M
 ```bash
 magnet:?xt=urn:btih:C5A6F5D2E60D625DE094F7B18F2E46DB02F28095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

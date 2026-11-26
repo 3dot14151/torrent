@@ -21,8 +21,7 @@ Tower Wars это новый и уникальная игра жанра Tower D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

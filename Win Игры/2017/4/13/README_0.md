@@ -19,8 +19,7 @@ Planescape: Torment: Enhanced Edition - переработанное издан�
 ```bash
 magnet:?xt=urn:btih:7FCE95569F6D51B5E75BD1272F1477DAB055C223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Sexy Brutale принадлежит перу студии Cavalier Game Stud
 ```bash
 magnet:?xt=urn:btih:B1D92903BB45D0D11D971CE87A051A246A71AD7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tinertia - это экшен с элементами инди-игры, арка
 ```bash
 magnet:?xt=urn:btih:1E6C56EA2F25AD3B24DF0ADDCBB15314BAD829D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

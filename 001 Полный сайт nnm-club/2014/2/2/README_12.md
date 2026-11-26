@@ -24,8 +24,7 @@ Magog - Magog (2001) [APE|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:4A5C8AC1E542FAC04CA76C3286BA9CEADEE794FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Eterne - Deadauthor (1996) [FLAC|Lossless]<Dark Metal>
 ```bash
 magnet:?xt=urn:btih:B9BCAB2D4EA149791B00E94FF1C785D779481BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Cauldron Born - Born of the Cauldron (1997) [APE|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6C9020F91AA89E89C03BF40757BF55CB0B84683A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Alain Pinsolle - Chtarbmusique (2011) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:69316E525B1654DF21F67EC9027ACFC49C5F67AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Montreal Trance Scene (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8B079CFCDCD5232F16989D0E2026A89D007ECD5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Yaotl Mictlan - Guerreros De La Tierra De Los Muertos (2006) [APE|Lossless]<Preh
 ```bash
 magnet:?xt=urn:btih:CB0BCF3EA89D9062651F65AB3FB624A948A060E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ VA - Global Trance Sessions Vol. 13 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:D4661339B54B215F0A0509002AFFD53F0686CF88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ VA - Watch Restart Underground [Collector Tracks] (2014) [MP3|320 кб/с]<House
 ```bash
 magnet:?xt=urn:btih:7A372A3D22B703A87CD03C1E816257FB1A6F5885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ VA - Ronski Speed-Euphonic Sessions (February 2014) (2014) [MP3|320 кб/с]<Tra
 ```bash
 magnet:?xt=urn:btih:B5FCD450CA83BEEE94AC1BCDDCDB785648C4693A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +320,7 @@ Lyfthrasyr - The Recent Foresight (2007) [FLAC|Lossless]<Symphonic Black Metal>
 ```bash
 magnet:?xt=urn:btih:CD0A9153093BF94498B11572BF4301EEC0690FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ De La Tierra - De La Tierra (2014) [FLAC|Lossless]<Groove Metal>
 ```bash
 magnet:?xt=urn:btih:A096DCD74851DFD8A8385E170BB156E6E55CD50F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBD22FB3C7D7D2E8A741691E2DC650A4A377BD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECC45E30AEF55E9CA0CD47A2682AFEB64CDF5DA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +440,7 @@ Zihard - Life of Passion (2007) Japan [FLAC|Lossless]<Neoclassical Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:70DAFE6384424EBD2D52941A02534CD1BDB5FC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +474,7 @@ VA - Smells Like Fake Tan (2014) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:BC95E4907AE87347175A4F31D89E49092C759F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +508,7 @@ Talmud Beach - Talmud Beach (2013) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:6BDD550B03BC5501977D1806DA789133C5FB35A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +535,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:9DF4BBB9E544405893D3F2901B3B2E777FE29BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +587,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:CB5472304E332F015D297E777B2075235B5EBBBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +619,7 @@ VA - Seamless Sessions Crowd Pleasers - Ibiza Closing Party (2013) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:7CD0A55FA30E1376E46E92A264FD11039671D669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +646,7 @@ Cydelix - Soul Enable EP (2012) [FLAC|Lossless|WEB-DL]<Ambient>
 ```bash
 magnet:?xt=urn:btih:CC9E20437280E431E06B39743CDCB131015ACEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +680,7 @@ The Treatment - Running With The Dogs (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:47EEAC488E99D1A71FC2C44563A3F391F700A4F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +714,7 @@ Zonaria - Infamy And The Breed (2007) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:681FB6FC68F6CB155F50B0C24C9032B096FA3BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -771,8 +748,7 @@ Raintime - 2CD (2005 - 2007) [WavPack|Lossless|.iso.wv]<Melodic Death Metal / Po
 ```bash
 magnet:?xt=urn:btih:4207F247403BEDAB03E7A760E5224716627E3447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -806,8 +782,7 @@ Funky Sister - Music Response: Funk Grooves (2014) [MP3|320 кб/с]<Funky / Clu
 ```bash
 magnet:?xt=urn:btih:98AC0D09227DE7D2A3574D7E3FCA23BD6A2641F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -841,8 +816,7 @@ Jerry Goldsmith - Козерог один / Capricorn One (2005 (1978)) [MP3|320
 ```bash
 magnet:?xt=urn:btih:91931063BE3C47F889FC80C026B926CC18AE3AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

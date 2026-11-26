@@ -22,8 +22,7 @@ Nailed to Obscurity - метал-группа из города Эзенс, Ге
 ```bash
 magnet:?xt=urn:btih:A83A18E85EE510D67D4F933E0DCCB5852AAAB67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

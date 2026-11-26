@@ -19,8 +19,7 @@ Candleman The Complete Journey (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:695C10A57D9EA125CAB85B4485596FD8DEEA44D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Apartment - психологический триллер. Сочетает 
 ```bash
 magnet:?xt=urn:btih:B300D44842E8CD4BD101DCD767EB0AD9107983CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wulverblade - двухмерный брутальный классический
 ```bash
 magnet:?xt=urn:btih:8DA8D9B90220579E54D4BD82D2EBC26DB0590FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

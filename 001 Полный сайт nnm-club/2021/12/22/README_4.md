@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:89A1399CFCBB8D876383842324A4FA83D694A19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4EE08E65B91A24FF5D3996863E699FAFCD96A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | Плод эволюции: М�
 ```bash
 magnet:?xt=urn:btih:A9296B1B5FF2E728C25C22A7947985DA72F136BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5FDBC3071DB38B602DE033A084B3979F4AFDC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei Suru / Лучший в ми�
 ```bash
 magnet:?xt=urn:btih:B7D08A12FA3CFCE9A27C42A175D92841AE1FD9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C23F4A614BC6C24B7CC9D23342746B6B3D92B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 ```bash
 magnet:?xt=urn:btih:A4C39B83540E8EA82350FD2367A491036A2A760F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Windows 7/10/11 Pro х86-x64 by systemp 21.12.15 [Ru]
 ```bash
 magnet:?xt=urn:btih:57C1F1ED377E294BA1D6FAC356779EF0197C4A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:853408AFA2702B12F2DB2318F06CB4B735E0847C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5E6300A3470A6A29C3AF67FEED4DFE9F783DE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D9E740EA088CB492ADAF871DB25062891086632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Tooth and Tail построена вокруг экономической мод
 ```bash
 magnet:?xt=urn:btih:5A66E0389E24540B49176381C78B6D69E675EE5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9187ED27611163EC85DC6FBADC66D1534CEECA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2021.12.20 [Ru]
 ```bash
 magnet:?xt=urn:btih:2058800A97BC09673218C41C03F03A85D5EBE130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ PROMT.One (Translate.Ru) – это онлайн и офлайн перевод�
 ```bash
 magnet:?xt=urn:btih:E9C4D2ECD5EBB6C5805EFA3E502A31ED5CA8F74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Windows 10 Pro 21H2 Build 19044.1415 x64 by SanLex [Ru] (2021.12.19)
 ```bash
 magnet:?xt=urn:btih:35A64BF42FCC1463D2EADE688E4AB911AF52C0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ The Riftbreaker (2021) [Ru/Multi] (1.50) License GOG
 ```bash
 magnet:?xt=urn:btih:8CC2544165FCDD161940E479F8768050D68425E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +500,7 @@ Stardew Valley (2016) [Ru/Multi] (1.5.6.1909543277) Repack Other s
 ```bash
 magnet:?xt=urn:btih:25F8E2976F716120529C2CFD2A90FC2CEF4F4911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +525,7 @@ Medieval Dynasty (2020) [Ru/Multi] (1.1.1.0/dlc) License GOG [Digital Supporter 
 ```bash
 magnet:?xt=urn:btih:DDB7FDA3045F96B7511CB7DEC70A3CF7A75E38CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

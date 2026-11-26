@@ -19,8 +19,7 @@ The First Tree — красивый квест от третьего лица, �
 ```bash
 magnet:?xt=urn:btih:194405E376806DAF5333854C4D0B5FDCA19FD057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Wild Eight (2017) [Ru/Multi] (0.7.28) Repack Other s
 ```bash
 magnet:?xt=urn:btih:57ADFCCB9C637669CE5DDD1D4D195C94490E555A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Professional Farmer: American Dream (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:EDC0D9A77B5BAAD6DED7D5E8F76D51AD7A7D8EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ South Park: Stick of Truth (2014) [Ru] (1.0.138083) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E3B6187BAF3A054C0EE059EB26E4EA73C3D114E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bayonetta - это настоящий боевик-мясорубка в сти�
 ```bash
 magnet:?xt=urn:btih:6323A0E2772F5085E22C2A73F7DC331291850ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

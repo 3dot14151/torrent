@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4ADC8BD450298C96D140C0DC6484CDB64CDF895E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The Most Southern Blues Band - The Gathering (2013) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:38FD10B27AA2583BC1F02FB4CDED1285356DEBAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A61596E82EBE56B08F580AC075E5E4AB6492731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Toolroom Records: Ibiza 2013 Vol. 2 (2013) [MP3|320 кб/с]<Tech House, De
 ```bash
 magnet:?xt=urn:btih:F1CEBD21749606CA63C7C0B9B71BCC9C035F38E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7274DB443AFFFB0429CEBF41732A2F83C3538B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F8A320C97189F2CBAD0B5DD7F894564AF3DFABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C50D659D291CCAF7E5CF6A45EE40E52E165FCBE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ACAE8B7E4B4BB297C4439DDBB1E366ADCCAE795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58800E322D8DB2B6F5B7DCF2CD3A04B3D6289628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Light Image Resizer - многофункциональная программа 
 ```bash
 magnet:?xt=urn:btih:8D920AFDE60975738EE1CDC8CCA547C694DCBFD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F389FEC955453965BB675F7D3414E8E83A67D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +334,7 @@ VA - Armada Top 15: September 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:62F7A3EE02D7E8A885D5CEE41EF1617C724FC165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ VA - Ultra Lounge Vol.3 (2012) [MP3|320 кб/с]<Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:E7AA880571E96EAEFF1B2EA946375BF6145B9E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4F6C3335BA1E6FA913AAD0F11736741E5CD68EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +427,7 @@ VA - Global House Sounds Vol.19 (2013) [MP3|320 кб/с]<House, Tech House>
 ```bash
 magnet:?xt=urn:btih:5DED7BD9098416279DE50E50FAD3F2ED570F1073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ Kryptik - Rewire (2013) [FLAC|Lossless|WEB-DL]<Full-On, Psytrance>
 ```bash
 magnet:?xt=urn:btih:EAF9A455746F92B39804036A2E40243C3BCEBCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ Wallpapers - Мотоциклы [JPEG]
 ```bash
 magnet:?xt=urn:btih:900A58C76B7B4DCBAA1D6D81D9DD80D79FBEF860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +517,7 @@ VA - Katoeys Thai Lounge Bar (2013) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:B03CAF4CC11CCFF89D06A4E56107D3D62DF3C472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9F6FAA5F5B9F3E6867D7B0A8639A91E0B9DA4F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +576,7 @@ VA - Chill Out Vol.2 (Brownsville Ambient White Sheep Pre Election) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:59185C15E79174EDE379032F7B1833E2F8E1128B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2F2FDD1AF6AC6F5AE283B7183B439CEA6BB3905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ VA - Kiss FM - Top-40 + Kiss FM - Top-10 (01.09.2013) [MP3|128-320 кб/с]<Danc
 ```bash
 magnet:?xt=urn:btih:865F42B69D3A4902E59D4DEA6F8C706F8E158007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +666,7 @@ VA - Pure... Urban (2013) [MP3|320 кб/с]<R&B,Soul>
 ```bash
 magnet:?xt=urn:btih:682CA8F204E5F2E98F368DC1E85A53647F613406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ VA - Vocal Trance Essentials Vol.8 (2013) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:8B2A2289F5727A71E4D9B940CCE203AA0C855CFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ VA - Радио DFM - D Чарт - Top-30 (01.09.2013) [MP3|128-320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:3AE036C7B7EE09990772891FB6333A94A2C2FF25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +768,7 @@ VA - Fun Radio: Fun club (2013) volume 2 [MP3|~245 кб/с (V0)]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:6487ED9637D62E8BF84D5EB65B9B9A01C98AE070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

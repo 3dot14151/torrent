@@ -19,8 +19,7 @@ Forgotten Tales: Day of the Dead / Забытые истории. День ме�
 ```bash
 magnet:?xt=urn:btih:C373452B3C8817C6FE521B5EB7EC5340E73D7F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) Repack R.G. Механики [The Comp
 ```bash
 magnet:?xt=urn:btih:451BEA22EF066B0152DC9BD83C6BDA8B3A309D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Count Lucanor - приключенческий RPG-рогалик с эле�
 ```bash
 magnet:?xt=urn:btih:52C5417997C5F7685253DF13F7887E6126F3B5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ WWE 2k16 — Знаменитая серия симуляторов реслин
 ```bash
 magnet:?xt=urn:btih:240E7EA00F40A68424E86CC50A7279C229287C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Murders: The Sleeping Palace / Мистические убийства. 
 ```bash
 magnet:?xt=urn:btih:F3DCBA8321FCCD34B76A4A1B0EB30D7AA4CF3797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Worms Revolution (2012) [Ru/Multi] (0140 / 6 DLC) Steam-Rip R.G. Origins [Comple
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ The Path of Hercules (2013) [En] (1.0) Repack SmallGames
 ```bash
 magnet:?xt=urn:btih:F7DA51071773B1EAB84BFB0BE71E60893FA92796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Voronis - инновационная игра в жанре "Match3". Ваша �
 ```bash
 magnet:?xt=urn:btih:2FBDC8484B75B133B7EF5620A57DDBC48D4B0549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

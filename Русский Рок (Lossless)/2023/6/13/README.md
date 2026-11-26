@@ -22,8 +22,7 @@ L’Homme Absurde - Stranger (2023) [FLAC|Lossless|image + .cue] <Black Metal, B
 ```bash
 magnet:?xt=urn:btih:A3A1A186AFE0A2E6B375FE38ED22A45005844C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

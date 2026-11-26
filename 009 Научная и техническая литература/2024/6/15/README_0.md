@@ -19,8 +19,7 @@ Perfect Phrases for ESL: Conversation Skills is filled with hundreds of ready-to
 ```bash
 magnet:?xt=urn:btih:C2661A4E7EFBA18BB25142FAB0F89B7D42636116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The concise clarity of this book makes it a handy reference for anyone intereste
 ```bash
 magnet:?xt=urn:btih:E416F10F811A7EE26633C8CECD81EF672328FEAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Drills for each test section—Reading, Writing and Language, and Math(   Чит
 ```bash
 magnet:?xt=urn:btih:0FCB5541A39C10234C661E1A1A261CAF8AF245A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

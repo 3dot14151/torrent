@@ -22,8 +22,7 @@ Battletoads Double Dragon - The Revenge это продолжение знаме
 ```bash
 magnet:?xt=urn:btih:263986A083AD588FE6568874FC1C1ABB0101D22E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

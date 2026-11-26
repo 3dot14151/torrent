@@ -19,8 +19,7 @@ Network science offers a means to understand and analyze complex systems that in
 ```bash
 magnet:?xt=urn:btih:489CA32C32B34A37CBDD7A975F2448E42488C0A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Without proper optimization, however, LLMs can be expensive and slow to serve. H
 ```bash
 magnet:?xt=urn:btih:6D6A44F9236FAA4BF76980859509F8212D4F25F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Our world is complex. To make sense of it, data analysts routinely fit sophistic
 ```bash
 magnet:?xt=urn:btih:529DB055EDFEEC973A33461DDD6E685087C3B2AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

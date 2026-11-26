@@ -19,8 +19,7 @@ Skullgirls – это быстротечная двухмерная игра-ф�
 ```bash
 magnet:?xt=urn:btih:38ECB2ADF61D167BBAFBAC93F7254723940B93A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rambo The Video Game: Baker Team – шутер от первого лица, с
 ```bash
 magnet:?xt=urn:btih:0177B6502042A2CD8B90BD21AB58BF7129AD0F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

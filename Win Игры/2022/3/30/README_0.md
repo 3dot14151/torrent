@@ -19,8 +19,7 @@ Twin Mind 3: Ghost Hunter (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:AD10F714A507F732C926C38124A63CCED8356577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Whispered Secrets 13: Tying the Knot / Нашептанные секреты 13:
 ```bash
 magnet:?xt=urn:btih:9F2E01434D6C33FF36BFCAF48273E52A6B94ADAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Orbital Bullet - динамичный 360-градусный экшен-плат
 ```bash
 magnet:?xt=urn:btih:FF373F7C9A91366C76B1FDB962CA7E95E06CF16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Expedition Zero — survival horror про аномальную зону в ле
 ```bash
 magnet:?xt=urn:btih:C4DFF655397B9CC64648C43E4AE3907B1A58A041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

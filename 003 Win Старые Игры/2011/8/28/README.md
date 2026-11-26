@@ -19,8 +19,7 @@ Scratches: Director's Cut / Шорох: Последний визит [Ru] (P) 2
 ```bash
 magnet:?xt=urn:btih:91BFAF60C605C3834C8BE2935A0E8022FA767F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

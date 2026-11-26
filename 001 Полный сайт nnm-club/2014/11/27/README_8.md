@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Starless Night - Lost In Life's Endless Maze (2014) [MP3|320 кб/с]<Depressive
 ```bash
 magnet:?xt=urn:btih:49DBC0DD6F632544E8220263D5E7CC4146F8B2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Divine:Zero - The Cold Asylum (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0E956D9936A781D4C91B236A6C3A4EE0D3276E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Echoes and Signals - V (2014) [MP3|320 кб/с]<Post Rock, Progressive Rock, Ins
 ```bash
 magnet:?xt=urn:btih:9ADCA35787733A6A9B6FABE487A080EE2A060799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Zwei Kreise - ZK XIII (2014) [FLAC|Lossless]<Ambient, Dub Techno, Downtempo, Idm
 ```bash
 magnet:?xt=urn:btih:FE1D837A76AE18EEDD4FFD1A00451096A83B04D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Zander One - Inner Horizon (2014) [FLAC|Lossless]<Ambient, Dub Techno, Downtempo
 ```bash
 magnet:?xt=urn:btih:57AE99783384E6F6B6B7D2CB4B88837699F3AE28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ Mon0 - Monophon (2014) [FLAC|Lossless]<Ambient, Dub Techno, Downtempo, Idm>
 ```bash
 magnet:?xt=urn:btih:0EFB3748EEF82E2A629CDC5415445C064647E27B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0281F78CFC3C5B1CF4B5E484E8E605A8B5E12DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ Zzzzra - Vive La Lenteur (2014) [FLAC|Lossless]<Ambient, Dub Techno, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:94403562E5CD15D426A2EBAD1C28645B9367CCB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F521BF12FA2925493C28432FB1AD776E37B55AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84AA801D490523D1440C851526DF2511D75480AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:648854406C31B30E1B6EA3737181C075D084F142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Omit - Medusa Truth, Part 1 (2014) [MP3|320 кб/с]<Atmospheric Doom Metal>
 ```bash
 magnet:?xt=urn:btih:4018DB4B27594B872FE871196F121734A7D2A680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D65A3E8DF1D62D4BE2430F22BF54CE1B43B60A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ Cavendish Trailers - Action Thriller 1 (2011) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:B8FB7BB7684E0683883DDD945891B28D780A3EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ Bandemonic - Fires of Redemption (2014) [MP3|320 кб/с]<Heavy Metal, Power Met
 ```bash
 magnet:?xt=urn:btih:341C44F7605ED916FFF48A53F345E624DEABC6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDB4C752C824F9540E2764BD8BC2BF621A48BCD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE5529CA693593FEF726279CDC18B8B52EC3865F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87A24C7DA75946E053E9ED4C86EFCBD25C3153A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ John Coltrane - All The Jazz (1999) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free
 ```bash
 magnet:?xt=urn:btih:FFA471DFE38A9FB743FBABC5757A57508AC4D786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:691C2E0B50A8693D39372718FB1C00E907276319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ABC81E7F222C788CD0115B6A3B37EAFFF4A2AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ Dave Hole - Whole lotta blues (1996) [MP3|320 кб/с]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:B1ACCF705C9B023DB336B43CE66C491F16AB9718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ Karise Eden - My Journey (2012) [MP3|320 кб/с]<Blues, Soul>
 ```bash
 magnet:?xt=urn:btih:47F14857D1D503402CCE34804354630632216BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6864291C9940ED2064E50250F161897F16239D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ Louis Armstrong - His Last Recordings (1989) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:CB608085E89D53DCC091CF337260F7BCA27A56AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

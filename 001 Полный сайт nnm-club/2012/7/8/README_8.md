@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A869A41FBD7698439BC49D8867B89FB409A085F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Endless Space – космическая стратегия в смешанно�
 ```bash
 magnet:?xt=urn:btih:7A5F0BD80A37287DC5F61D236AC53A2E0237C0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ S.T.A.L.K.E.R. - Потерянный Мир. Месть Зоны (Mod/Add-on/1.
 ```bash
 magnet:?xt=urn:btih:B11B73531A4D0580E7205E26AF0D099C2837A93E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A4567013692C19CD86510E81D315B418B83314F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Golden Boy / Золотой парень [1995, OVA, 6] DVDrip upconvert raw + r
 ```bash
 magnet:?xt=urn:btih:99C3FAB5C46FFB3A3F61FD6921772133D78F3E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Empire: Total War + 5 DLC [Ru/En] (Steam-Rip/1.5.0) 2009 | R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:66766E9D273A9F5209DA72EA1AAB222164EBED1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ UralSOFT | Видео курс по созданию сборки Windows 7 [201
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Tekken (яп. 鉄拳 Тэккэ́н?, «железный кулак») — фр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ S.T.A.L.K.E.R. - Игра в жанре survival FPS, действие кото�
 ```bash
 magnet:?xt=urn:btih:54668AF3CDE10EF86B4C4ED96B528E3071C1DFAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

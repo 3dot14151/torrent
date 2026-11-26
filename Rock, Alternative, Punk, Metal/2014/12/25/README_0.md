@@ -19,8 +19,7 @@ Eye Of Solitude - Dear Insanity (2014) EP [FLAC|Lossless]<Death/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:8D997C2346E10803B93E216B66CEB7CFB249EFEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Pythia - Shadows Of A Broken Past (2014) [FLAC|Lossless]<Power/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:E11CC12D0B574621150CB74DB8373E90F4C9E48A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Trapeze - Trapeze (1970) [MP3|320 кб/с]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:D452AC50EB31093792300A9AC9A18F11C93584B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Harmony - Theatre Of Redemption (2014) Japanese Edition [MP3|320 кб/с]<Power 
 ```bash
 magnet:?xt=urn:btih:3854F9C709639C7A9C2F26144E8608EAE8B12301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Harmony - Theatre Of Redemption (2014) Japanese Edition [FLAC|Lossless]<Progress
 ```bash
 magnet:?xt=urn:btih:AA6F998FFC3184F3F59A09549F696351997C872B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Evil Not Alone (E.N.A.) - Пятый (2014) [MP3|256, 320 кб/с]<Alt. Metal, R
 ```bash
 magnet:?xt=urn:btih:A1D27969F6A17E068F6CB61E1718A9CFA656015E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Disc 1: Secret Garden
 ```bash
 magnet:?xt=urn:btih:B528EC8C70A423A61FDDDEF6CA5D86C500366E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Bonus Tracks:(   Читать дальше...   )Жанр: Hard RockПродол
 ```bash
 magnet:?xt=urn:btih:27B8B49B5893730198AFE276A99097F9519D35DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ Deep Purple - Made In Europe (1976) /1990, Metal Blade Records/ [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:15DF642CA54425B9AAF6AB0659D8942289056A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20296FF83A2BEE65BD534CDCCBD8573D0E65E40D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F00418B8F333F1B47592EC35CD375C35F9398ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

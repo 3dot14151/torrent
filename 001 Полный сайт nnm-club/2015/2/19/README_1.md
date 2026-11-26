@@ -22,8 +22,7 @@ Robin Trower - Something's About To Change (2015) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:526EB970940BEE2B28DC5A17600628BEE25D4960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Dhamika - Energy Flow (2015) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Ambient
 ```bash
 magnet:?xt=urn:btih:95AB4D99243D2D9D80F343C7838D35829D8A8B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FCC010C84C87C2AB49EE7E574B0F698D657D5C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Dropbox 3.2.6 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BE43228895452F6E5EF369ECAFB8AC090B06172D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Simple Run Blocker – компактная утилита, которая ра�
 ```bash
 magnet:?xt=urn:btih:047FC7A341FCF61CA08AE830FB491CE0FC7A40E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Gall Force: Chikyuu Shou | Gall Force: Earth Chapter | Девичья Сила O
 ```bash
 magnet:?xt=urn:btih:211F73D7E70685A5BBEE6D9AF142A8A16E2874E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Toots Tielemans - The Brasil Project (1992 -1993) 2CD [FLAC|Lossless]<Brazilian 
 ```bash
 magnet:?xt=urn:btih:E38828C255FDE863EC800E64C4468A2605853469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04EA7419F40260AD3E1611C61E439D29132674F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Cтареющий клоун Калверо спасает от самоубий
 ```bash
 magnet:?xt=urn:btih:00E311EB6B2BC14BAD7C02262E5FE6895332C917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Icecream Screen Recorder 1.37 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1FA84312E56B332BA2D693C9AC20AA39B256199E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:A1A2BD006395671CE2602A0352EB0A424251D766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ HWiNFO32/64 - программа, выдающая подробнейшую ин
 ```bash
 magnet:?xt=urn:btih:D6BFC95B50C29B3AD83A8D75B64AD01E577C39CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ VA - Pure... Rock (2012) [FLАC|Lоssless]<Rock>
 ```bash
 magnet:?xt=urn:btih:9D295888240346D22E6AEBF7FBB7B4B216DF5829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00EF563604642A5601558BA7CC11B68A0B30C48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ VisualDiffer сравнивает бок-о-бок папки и файлы с �
 ```bash
 magnet:?xt=urn:btih:139B0A6C15C96DDE6E7AF12E89713482A27BDE15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ Password Safe 3.35.01 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A919C15AD45F792360B9EAD80FD21651BD0C2502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Folders Popup 4.2.4 + Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:76AB431E8BA59158D31879E58A4D8A8D7BA8F220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51CB323F08FA2E1B684137DB66B220B1B4F102F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9ED3C7C2138CE0A1E37B99A5E52C58B40044609E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E77D60D14B4A054FB2BD1256065BBE14657CF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ EagleGet –мощный и удобный загрузчик файлов из 
 ```bash
 magnet:?xt=urn:btih:65BCE2B5C23BC232A70EF4713F8C9AB2FDE9D569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ VA - От заката до рассвета / From Dusk Till Dawn (1996) [AAC|W
 ```bash
 magnet:?xt=urn:btih:EED7415E4BCCA85D17264B9A500EDD59F2C99924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D4CDC9B2EBD44AD5529C87416C1FD10A409D6E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F326696E9D0D39B063CAEE5545C81B77AE9136B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:0B9ECB7232B592A29EFCA8583D21B09575C5578F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Gall Force: Shin Seiki Hen | Gall Force: New Era | Девичья Сила OVA-5
 ```bash
 magnet:?xt=urn:btih:E96B898937320221528CCA45EBE1358BC27E6324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

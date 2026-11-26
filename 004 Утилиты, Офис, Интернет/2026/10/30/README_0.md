@@ -21,8 +21,7 @@ InstallerClean Standart / Slim 3.5.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A55785DDDA2A7CD90708476D3BA24AD6E0060E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Crafting Apps - WordCraft 0.11.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7DFA61FF4DC29BE340581B4DAFAE957BC425378E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Crafting Apps - GridCraft 0.12.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A7EFD3237E1B49BC811694D806E9CDB86AF0174E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:C94F0969218D01E53510A4E1E112884672F51308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ NetSpeedTray 2.2.0 RC 3 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4E5450E680FFE9F6C753C64D3A78FE62B0676936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:9E45766A5C62E513F9789B7EF83518AEAB95EA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ UniGetUI — это интуитивно понятный графический
 ```bash
 magnet:?xt=urn:btih:C34C4F9A85FE2BBFD8393B9A332DBD890760A8E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ OnionHop V3 — это современное кроссплатформенно
 ```bash
 magnet:?xt=urn:btih:5E552C3D52D3C43DC610F9863DB4762F6829A653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Opera One 139.0.6053.22 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BBC71401CF7505077C18C648527EEA5C81B9AB14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Tor Browser 15.0.26 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7DCAB59FA3AF6C8BDC7505F267D03344849F290E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

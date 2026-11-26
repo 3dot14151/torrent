@@ -19,8 +19,7 @@ GTA / Grand Theft Auto: Криминальная Россия RP (2019) [Ru] (0.
 ```bash
 magnet:?xt=urn:btih:6DFEFDB6A85DEEA190275525ACCD3643749CF79B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

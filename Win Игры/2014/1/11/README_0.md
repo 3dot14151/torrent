@@ -19,8 +19,7 @@ Haunted Train: Spirits of Charon (2014) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:C6D630754376702353198D640F3CEC3642DCFC9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:665740986410018251BC07D886BDC4FF98EE1B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Wimp: Who Stole My Pants (2013) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:517D6EACB728E27DB65BE86B099FE54A4F2066B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ DuckTales: Remastered - это красочный, нарисованный вр
 ```bash
 magnet:?xt=urn:btih:44AA21838B91424054016FAE998F83E9C0C33D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Confrontation (2012) [Ru/Multi] (1.0.0.19003) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:093A6F1F0BF169EB46109849EC30B205DE78827B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

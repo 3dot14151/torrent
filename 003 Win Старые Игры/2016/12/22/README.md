@@ -19,8 +19,7 @@ Disciples 2 Gold (2005) [En] (2.02/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DD60C6C3624F8356ECD5955D85529055B3536A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

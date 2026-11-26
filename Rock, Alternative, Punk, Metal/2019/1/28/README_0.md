@@ -22,8 +22,7 @@ Distant Dream - Your Own Story (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumenta
 ```bash
 magnet:?xt=urn:btih:EE1898D61279377C41E552E9802120B540D5EB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Little Richard - Greatest Hit (1993) [FLAC|Lossless|image + .cue] <Rock & Roll>
 ```bash
 magnet:?xt=urn:btih:4346723C7C610D2DDFC423846363586ABB5BF485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Distant Dream - It All Starts From Pieces (2017) [FLAC|Lossless|image + .cue] <I
 ```bash
 magnet:?xt=urn:btih:28883C5E20360A887C69D1582BD9520AD93087C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Axe - Living On The Edge (1980) Unofficial Reissue, 1997, Axepertise Entertainme
 ```bash
 magnet:?xt=urn:btih:6FD9C9FDD8FC58FE47F636010FBAB3DECCC3CC52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pink Floyd - Animals, The High Resolution Remasters (2017) The Archives Records 
 ```bash
 magnet:?xt=urn:btih:BCA8A285511D2A8A6EA8295A6349AE0DB44728D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Linkin Park - Meteora (2003) Unofficial Release [FLAC|Lossless|tracks + .cue] <A
 ```bash
 magnet:?xt=urn:btih:8FB6F3C18A8814DFED47E0FFD6A5AFC54ECD3619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

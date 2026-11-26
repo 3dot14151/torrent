@@ -19,8 +19,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 ```bash
 magnet:?xt=urn:btih:F8DE54F5CDA097992E93FE8191C2130A4630122C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3
 ```bash
 magnet:?xt=urn:btih:7D808470C123E70B48CA68491EA5AEC9E2E43151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shadwen (2016) [Ru/Multi] (1.0.0.1356/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:99773903FA04D902C843C48D31DFB27A021426EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

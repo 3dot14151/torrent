@@ -22,8 +22,7 @@ Adbusters выступила с рядом международных кампа
 ```bash
 magnet:?xt=urn:btih:3E2BA01C652A2CCB2BAC8CC9B85326050E91E07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

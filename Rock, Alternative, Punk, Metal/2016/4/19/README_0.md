@@ -22,8 +22,7 @@ Elton John - Blue Moves (1976) Reissue 1988 [APE|Lossless|image + .cue] <Pop Roc
 ```bash
 magnet:?xt=urn:btih:3A102E4355855D313F1DC113A2F06C4113063A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eric Clapton & Friends - The Breeze: An Appreciation of JJ Cale (2014) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:46888929AE30B0679AD35A97A2EB4788B8BF6F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ ZZ Top - The Very Baddest (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:A66FDAFC472988A0B7667F9E26EB9D5E0F54DC34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63FE955AB294538D9C7F02F87D7284A07357CB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

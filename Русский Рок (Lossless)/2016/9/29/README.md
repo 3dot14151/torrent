@@ -22,8 +22,7 @@ VA - Детский сад. Штаны на лямках (2002) [FLAC|lossless|i
 ```bash
 magnet:?xt=urn:btih:A5A6245B36E85D988244E36F2E79001059B17764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

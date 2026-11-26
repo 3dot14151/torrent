@@ -19,8 +19,7 @@ The Trasamire Campaigns - это напоминающая настольную �
 ```bash
 magnet:?xt=urn:btih:1A331D4BC43B2F87C03F8AF02BE516185C4F2FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Runeborn предлагает пошаговые бои, построенные 
 ```bash
 magnet:?xt=urn:btih:72EDFF10A3217078CECD6500D479533AB25AAC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ iRacing Arcade - аркадный автосимулятор, посвященн
 ```bash
 magnet:?xt=urn:btih:C82D216F19B501EE828337C1A5B8F41CD626E40A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BioShock - это приключенческий шутер от первого 
 ```bash
 magnet:?xt=urn:btih:6D3D7C57147A3D83C52CF3116B8E6DFEAF891DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tomb Raider 1-3 Remastered Starring Lara Croft - ностальгический 
 ```bash
 magnet:?xt=urn:btih:0ADCEE9FEA38C2A918B0D4EECBF92BF3F010FEF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Gotham Knights (2022) [Ru/Multi] (Build 21284365/dlc) Repack HardwareMining [Del
 ```bash
 magnet:?xt=urn:btih:DBA7B35E1DBC3C6C5FF51CCBFE193CF1827F772B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Wrangle Ranch (2026) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:26A0E54C623F41E85677257D7E64B514B4486B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tasomachi: Behind the Twilight (2021) [Multi] (20220419/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4DD890AAA74DBC0D56B6BD38E7B67D4995183B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Dragonkin: The Banished - это мрачный экшн-RPG (hack 'n' slash) с
 ```bash
 magnet:?xt=urn:btih:836D744C133FC912835DEEE08D345C4AEA4C669D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dragonkin: The Banished - это мрачный экшн-RPG (hack 'n' slash) с
 ```bash
 magnet:?xt=urn:btih:F6D3120C379CE56EA3EB59C718281AF53542CC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Dragonkin: The Banished - это мрачный экшн-RPG (hack 'n' slash) с
 ```bash
 magnet:?xt=urn:btih:77DACE78166243B56EA72224717A0BA73FC134FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

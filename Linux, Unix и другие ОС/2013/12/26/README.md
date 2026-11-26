@@ -23,8 +23,7 @@ Alan Baghumian объявил о выпуске первого корректи�
 ```bash
 magnet:?xt=urn:btih:AE79BC31740427779592EFF090B9B6A7019837BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

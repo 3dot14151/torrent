@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Blackie and the Rodeo Kings - South (2014) [MP3|192 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:E2892B44474A2146AD2E964D5F206DBE88C56217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Statement - Monsters (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9A38AFE700C1F0FA3CD99688D2F3EFF652FE5DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Equivalent & Fragment - Fallen / Spirits (2014) [MP3|320 кб/с]< Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:A3F799FD51ED59343B42225925097D8C40AB7BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Who Cares? Demo [1989]
 ```bash
 magnet:?xt=urn:btih:721200F9B20EA0E3DA8FCB5155F8ED87B5D04CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ Crissy Criss - Trinity Vol. 1 (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:28E4E2CE539120E1BF092119A1DEAFA63F954C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B26DBE68166B519D85AD6815A1FCDE3B431E0DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA0D08FE4967290AF3301D5D9762339A8CE0F889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ Rebel Road - Lock & Load (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:54BA09EB7F091F3FC287349B63AC7BC963B625B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ BluFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:2494D0CE0DAEF140C6FC00B6AA881144D8D1752C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ XI Зимние Паралимпийские Игры 2014. Лыжные гон�
 ```bash
 magnet:?xt=urn:btih:EF83F5223ADCE6133FEDBB31FA45CFEEAFED4940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ First State - Full Circle (2014) [FLAC|Lossless]<Trance , Progressive House>
 ```bash
 magnet:?xt=urn:btih:85F22153710E2D57EF3ADB36510BCF65726653E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ To/Die/For - Wounds Wide Open (2006) Japanese Ed. [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:0B5AD68025B435A7D1B65A8C623708991CEFE2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ Chocolat для Mac OS - Редактор текста и исходного к�
 ```bash
 magnet:?xt=urn:btih:6B26766F779040282F9EC339BAD5EA0EE94D707D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ VA - Chill The Planet (The Diventa Project) (2014) [MP3|320 кб/с]<Downtempo, 
 ```bash
 magnet:?xt=urn:btih:63B747BCC742CBAF65A2A77130042DF9F1BCD7C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ XI Зимние Паралимпийские Игры 2014. Горные лыж�
 ```bash
 magnet:?xt=urn:btih:853F5719CC63CF89D2E8A279B2B3E41E6AC2F763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ Damned Nation - Just What the Doctor Ordered (1995) (Japanese Ed.) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:C89DB0EF6F1701BAD711C63CE3DE2A2AD4A34B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5FD4B3CA0513E72D14E4C051E5AF8AE181DF244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ The Carapace - Moments In Time. (2012) [FLAC|Lossless|WEB-DL]<Glitch, IDM, Ambie
 ```bash
 magnet:?xt=urn:btih:9CBEF9726A1B6CAC717C4F64AD1E1DB55733A049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9A734B2EFFD19C078B38FBD43B99EEE01AB7F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +625,7 @@ VA - The Night (The Chillout & Lounge Experience) (2014) [MP3|320 кб/с]<Loung
 ```bash
 magnet:?xt=urn:btih:D4EB099348F7F72E84E3E3FF4573AB7E9D42A628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D8D0B276E82827855ADB4149D6348D6632BC827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ VA - On Air Miami Sunset Lounge (2014) [MP3|320 кб/с]<Chillout, Lounge, Deep 
 ```bash
 magnet:?xt=urn:btih:F3F1EFF1B433B6BE104CD9EFECDF123628F96305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8F99C90AA0969FEB3E30B86F5CD95DB95BFCBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:411E55F54609B227831EC1DA85350E8F1B769F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ ReadKit - полнофункциональная offline читалка и RSS �
 ```bash
 magnet:?xt=urn:btih:5A45FCF46ED9D81A66039B9E7D4917378DE92359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

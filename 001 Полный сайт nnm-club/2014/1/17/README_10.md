@@ -22,8 +22,7 @@ No More Heroes: Heroes' Paradise [PS3] [EUR] [En] [3.60] [Cobra ODE / E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:C775ABB59D0A5A5B855C411463E8B6A76DBF05C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83F23B07C842892733BD8312DE56844CC7293483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A3D28698B651FF8C4FA86E661F18AFAF793C863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Starперцы / Last Vegas (2013) BDRip [H.264]
 ```bash
 magnet:?xt=urn:btih:59F64B491F9B92FD0C8C38BD9CE232F76F08437E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63EF0A7B01D9E784C23DD363709D3A00351A94F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A26D992CA35C83EB1C72B112C728DD40F96CC9C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ NeoSpy - программа для слежения за компьютером.
 ```bash
 magnet:?xt=urn:btih:6C2B4DBD2D54759E8CB51A41A1ED36F819ABBE87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Movavi Video Suite 12 – программный пакет для обрабо�
 ```bash
 magnet:?xt=urn:btih:AB566D09127ADFA4E9AC0A4A3E15B020A630AFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

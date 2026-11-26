@@ -28,8 +28,7 @@ Brad Wilson - Brad Wilson (2003) [MP3|320 кб/с]<Rock, Rockability Blues>
 ```bash
 magnet:?xt=urn:btih:8E9331DDC37C6F99EC21BC6C8F44C18E3022BB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Wreck And Reference - Want (2014) [MP3|320 кб/с]<Post Metal, Noise Rock, Expe
 ```bash
 magnet:?xt=urn:btih:271FA2C8B44CF3C9F382DBC9E691CDDFCC72CB5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Hedon - Summon The Demons (2014) [MP3|320 кб/с]<Melodic Black/Death Metal>
 ```bash
 magnet:?xt=urn:btih:75FDE3F67F656227A1655E915F732EA6D7F491C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Hotel Skt. Petri - Edition Jeune Et Agite (2014) [MP3|320 кб/с]<Chillout
 ```bash
 magnet:?xt=urn:btih:1AE01470FAEE874CFA60701BBD403D1E04AF37AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Corral - Revenant (2014) [MP3|320 кб/с]<Melodic Rock, Progressive Rock, Femal
 ```bash
 magnet:?xt=urn:btih:E458EC7BB67D5E48EA1F99B8E836C02448FFE0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ VA - Dj Compressor - Energy Mix 14-06 (2014) [MP3|320 кб/с]<House, Club, Danc
 ```bash
 magnet:?xt=urn:btih:4D5F6B271A59BF43851B07B563AA20A745C442A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Leon Brock - Welcome To Botox Nation (2014) [MP3|320 кб/с]<Rock, Americana>
 ```bash
 magnet:?xt=urn:btih:4CA72A4CD7B96F423EEFBC64CA6CEAC29335CEBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Phil Reynolds - Digital Revolution (Remixes)(2014) [MP3|320 кб/с]<Trance, Har
 ```bash
 magnet:?xt=urn:btih:18CC7487912275ED235CFA368B271CB128A96DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Danny Freyer - Must Be Love (2014) [FLAC|Lossless]<Vocal Jazz, Traditional Pop, 
 ```bash
 magnet:?xt=urn:btih:ADC380ADBAAF543C454521FB5F451848CA8B102E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F358538CAA44CD3E7DC7C31668EA042BC6004E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ The Robert Balzar Trio - 2 альбома (2000 & 2005) [FLAC|Lossless]<Contempo
 ```bash
 magnet:?xt=urn:btih:5A00389C5935563D6B270CF9091F8BCF7DC7578D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +380,7 @@ David S. Ware String Ensemble - Threads (2003) [FLAC|Lossless]<Jazz, Avant-Garde
 ```bash
 magnet:?xt=urn:btih:236EBD481EE0F16D14C82523F88E1CA7593899D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +412,7 @@ Egart - Divide By Zero (2014) [MP3|320 кб/с]<Power / Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:72A3298959E34A0F44132E1233C2B00A44AAFB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB70DEC8A3663790F4B0BF9B10536BA133D0D2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +471,7 @@ Shane Speal's Snake Oil Band - Holler! (2014) [MP3|320 кб/с]<Rock, Heavy Blue
 ```bash
 magnet:?xt=urn:btih:D77AB5F10B72D0D8D483D7AE3EF8D97D923D7633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +505,7 @@ VA - Rome Love Club (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:201CEC5C3E976E355276CC4D985A5F5C391E3C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +539,7 @@ Hunter & The Dirty Jacks - Single Barrel (2014) [MP3|320 кб/с]<Rock, Blues Ro
 ```bash
 magnet:?xt=urn:btih:8AA8045E732C99750F7178F4280583D04F413A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:942853F4B596D9A75E37D636D03FEE4CBD87EE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +597,7 @@ Darkest Horizon - The Grand Continuum (2014) [MP3|320 кб/с]<Epic Melodic Deat
 ```bash
 magnet:?xt=urn:btih:3483CFDAF3E9BE8688611AFF128AFD6A3004FD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +631,7 @@ The Quireboys - Black Eyed Son (2014) [MP3|320 кб/с]<Hard Rock / Blues>
 ```bash
 magnet:?xt=urn:btih:426FA21837C60B78F3A3FFB6CFE6FD92D20C8F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E4EAAA8AC9A5C2EBF0B2AF4942B2210FA257BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +692,7 @@ The Whiskey Prophets - Recoil (2014) [MP3|320 кб/с]<Southern Rock, Country Ro
 ```bash
 magnet:?xt=urn:btih:C01AD716E4BC9BAA24E898F3B553FEFF934DE313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +726,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:7DBB91EDFAEB9C9DD5038DFF1927FBD0C8CA0620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +757,7 @@ IconKit 3.1.3 [En]
 ```bash
 magnet:?xt=urn:btih:F85C14BEA45930F7D95E3E62F793001B8AD963D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -815,8 +791,7 @@ ReverbnationЖанр: Melodic Gothic MetalПродолжительность: 00
 ```bash
 magnet:?xt=urn:btih:D3EF9747062B7AFBEC362ADBD0FE3F2F6A4587FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -850,8 +825,7 @@ Enemy Of Reality - Rejected Gods (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:85F4CA3598277CC70D576463A8122727DA97CDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

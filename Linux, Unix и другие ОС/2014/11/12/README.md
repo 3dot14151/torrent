@@ -19,8 +19,7 @@ NetBSD является свободной, быстрой, безопасной
 ```bash
 magnet:?xt=urn:btih:27E1DEA8A4899E1B6C9EE955EE9C9B4D170058B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8F62CF3F84D73144416DE06AF390D285780FCBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD7C8FA6E7E74E6BCC2C93CF2A70663C877B59D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36354BDF30CF7142FA7CC02B7B13114912E13A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4BD8FEA1720F197BEB7E1772BCEFE08D74AD0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tyrone Brown String Sextet - Song Of The Sun (2000) Naxos Jazz [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:2A527091311C80DC67CC2EF0A65E13DD76C87F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ragnarok - In Nomine Satanas (2002) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:5F47EAACD873997FBB2345297741490A392DABDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ragnarok - Nattferd (1995) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:275A8A9E35C2A38EC8427479D0D19B1723C0A571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Ragnarok - Diabolical Age (2000) [APE|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:2E33AD6008941C863F40721B985636918F646DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Kenny Rankin - Professional Dreamer (1995) [FLAC|Lossless|image + .cue] <Vocal J
 ```bash
 magnet:?xt=urn:btih:F09F8030D38E1681B08E12ED64BB50C7285DEEB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Ragnarok - Collectors of the Kings (2010) [FLAC|Lossless|image + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:737ED84B67A624BA29BAC077086B80A76D369768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Carlo Actis Dato - The Moonwalker (2001) Leo Records [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:05EC6C30A7B426DBC578785ACA5768A218901F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Balearic Lounge Beats (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:E0A2D81DFB0E6AD335B9A02FA7964B6C6250E0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:300E8C1AE7A1989D4FDF27E1D6A63DC96ED19825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Ragnarok - Arising Realm (1997) [APE|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:ADCA1361295F9A27781717BAF3AFBA484ED4F745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B5FD3832E182C14EA7C3503916A5047D2B97B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ Ragnarok - Malediction (2012) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:4EF4A694D53951E63B7133EB86CF5E6351085239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ Monica Chapman - Small World (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal 
 ```bash
 magnet:?xt=urn:btih:8872E258DE13326C4D6ED136C893AE13ECE0DD08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7EB0D205AD32C5CDE2ECB50B933BD122809DFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ Chris Camozzi - Windows Of My Soul (1996) [FLAC|Lossless|image + .cue] <Smooth J
 ```bash
 magnet:?xt=urn:btih:15A312ABA2E2D5CAE995873B84FF8156FAABBE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Permute: Универсальный конвертер видео, аудио и
 ```bash
 magnet:?xt=urn:btih:48B43FB9C746C4B647B5C4C7CA58E22C671F4E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ File Cabinet Pro  - менеджер документов из строки ме
 ```bash
 magnet:?xt=urn:btih:BD91A0B993DDC27AD4F7ADEC4BA54F180AC3C861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ Miles Davis - Live In Stockholm (1960) 2001, Jazz & Traz [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:79243DAEC1BB9B083383CD9C930A9863EDD98C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ Pagan Land Demo 1994:
 ```bash
 magnet:?xt=urn:btih:A44F1C43EBFF4AD209C5C92AE7FAEA598D37F303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ Miles Davis - 1958 Miles (2001) Remaster, Sony Music [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:4743EEB1BE05AC436F3949F3808EFAE613F1188D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ VA - Paris Rooftop Chill Vol.1: Finest Chill Out Selection (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:BD4F0534682941D01E433645F84EB200A87A808E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ Dima Ustinov - Remixed Mistakes (2017) [MP3|320 Kbps] <Breaks, Downtempo, House>
 ```bash
 magnet:?xt=urn:btih:2D7BC47ACB2D6A679D7B02335B004DFBA6C18AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

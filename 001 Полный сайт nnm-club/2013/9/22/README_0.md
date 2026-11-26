@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7EB09552622A4A41EC2FF1ED880ED46E77D582DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:E0B9F65D241A1CA15C2C8271B0490ED5CE7218E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Black Water Rising - Pissed And Driven (2013) [MP3|320 кб/с]<Hard Rock, Stone
 ```bash
 magnet:?xt=urn:btih:A013C27D2FE926C312667D894AEFAA0157D3E821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
 ```bash
 magnet:?xt=urn:btih:65FC468F4A1718F52E61081731EFB6FA4FAC9406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ GeoGebra позволяет напрямую вводить уравнения �
 ```bash
 magnet:?xt=urn:btih:D1EE5D24586D0833358842D6F63C013D30B221C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ VA - Sexy Trance #55 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:3A723386BBE7A0B6FB0B8188F1FAEF1EE074DDC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ B5.Feeling Okay Reprise :: 03:20Жанр: Italo-DiscoФормат: Vinyl, LP, Al
 ```bash
 magnet:?xt=urn:btih:18C7D3000605FCB91754CEB739FEE1C5C35A1107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ Dionne Warwick - Now - A Celebratory 50th Anniversary Album (2012) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:7E1139255D2C3AF99A9F9BCD9BAEB26A36E59544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A71516A465E54F6BA4FE44D72C726B37CA7DAF6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A06EEC04F0F394CF93BF0E5F576818429A9F07F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96AC6AB842C5B0636B0D5B918C953D1AF11959B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ VA - Hits Cocktail - 19 (2013) [MP3|320 кб/с]<Pop, Dance, Сlub>
 ```bash
 magnet:?xt=urn:btih:54B1C6BAA6E3493A6739E4E5E72E51634D95145E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EFB7D19EA35CA00B6A150423D11B7755D86531D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ Behind the Scenery - Retroviseur (2004) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:5A8EF48ABFE4F5977D08898FC8CF94C064F9BDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40EA831322295D96E05F8658F5BA4CEB26E984C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72C5CF7FFF270E0F178D66B61517F452398F7FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ VA - Русская блатная двадцатка - 16 (2013) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:F08D1CDC82BD511F0E1E67DC5BD1A5F187A2B70D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:562D03A22A0C6E0AD403FCE1E7F2B5B3B4C773BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ Behind the Scenery - ...of Honesty Forbidden (2000) [ALAC|Lossless]<Melodic Deat
 ```bash
 magnet:?xt=urn:btih:6D72029A7FAEA27E9997B53FEED86471F14A89E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +591,7 @@ VA - Звездная Дискотека Осени (2013) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:BEBE86A5AA04E547449A3D8B44C311E0AD26A54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0211AD6EB4988450971C292B98E60699B9307ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA4C4379CD27C21D81274D566BC629AAE8F6A2EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ Unanimated - Ancient God of Evil (1995) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:85277A08C87D8235DDF161028A1669CE75ADB3E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ The Strypes - Snapshot (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:413065259C37CB5808303BC7078D0020ABFC921C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ Unanimated - In the Forest of the Dreaming Dead (1993) [ALAC|Lossless]<Melodic D
 ```bash
 magnet:?xt=urn:btih:144CDE3A68F624065C821F6FFAD33E4BC9DE7D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ VA - Новинки шансона - 26 (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:0A0A455725487C6A3F360BF347B48D8C7881FC51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

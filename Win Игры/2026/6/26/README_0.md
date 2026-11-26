@@ -19,8 +19,7 @@ Dead Rising 2 (2010-2011) [Ru/Multi] (1.0/1.0/dlc) Repack FitGirl [Complete Pack
 ```bash
 magnet:?xt=urn:btih:99401F174F6A86D80C38DDF3F9EDD36A7A0438B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Driver: San Francisco (2011) [Ru/En] (1.04) Repack R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:39E620082A285EFA99F77BEED679B0BCD10D609F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gothic 1 Remake (2026) [Ru/Multi] (168089) Repack HardwareMining
 ```bash
 magnet:?xt=urn:btih:758806973AB16C3EE8C8EA46A721699FC1AAB965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

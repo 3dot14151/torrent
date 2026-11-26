@@ -19,8 +19,7 @@ HIND: The Russian Combat Helicopter Simulation (1996) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B5F2E91B809F278C3D5377EC5301728505AB3FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

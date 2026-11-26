@@ -21,8 +21,7 @@ NFO(   Читать дальше...   )Тип издания: ЛицензияЖ
 ```bash
 magnet:?xt=urn:btih:763CA20C76BD80D57E530A1CE92CA05B4D31C5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Walking Dead: Survival Instinct / The Walking Dead: Инстинкт выж�
 ```bash
 magnet:?xt=urn:btih:D7EFBF4737DF8EF8D9513295A3B96080349F243A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

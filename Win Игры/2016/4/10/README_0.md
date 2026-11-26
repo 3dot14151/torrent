@@ -19,8 +19,7 @@ Recursion Deluxe - красивый пиксельный паззл-платфо
 ```bash
 magnet:?xt=urn:btih:18CDCBF7CA16F0896F6A53881F5F1FBDC2555631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rabiez-Epidemic - это тактическая реал-тайм игра в с
 ```bash
 magnet:?xt=urn:btih:A6B3931EB02E6EE2CCF8AA1B8A7E9DEFEA290F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bunker - The Underground Game - point-n-click адвенчура, в котор�
 ```bash
 magnet:?xt=urn:btih:9BF8967C10FBAEFF7DFB81860401471F8CB4B9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SolSuite 2016 – крупнейшая, постоянно дополняема�
 ```bash
 magnet:?xt=urn:btih:4DD0D543E31E6B3AF69F5DC7C1CDB3E144E110E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Adventure Time: Финн и Джейк ведут следствие — нов�
 ```bash
 magnet:?xt=urn:btih:D2FD1E562DE0A43DA508EE04F3055C7DDA80B9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ MXGP2 - The Official Motocross Videogame — это развитие преды�
 ```bash
 magnet:?xt=urn:btih:743358F19AD0B06984062DC70C3BEE53DC9FBDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Europa Universalis IV – продолжение знаменитой серии
 ```bash
 magnet:?xt=urn:btih:1B1110162EE551C296399CED76B601A280BC4CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Fear Equation (2016) [En] (2.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:7B0FED3C6B88C10CEA90AF85318AAC857BE82F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

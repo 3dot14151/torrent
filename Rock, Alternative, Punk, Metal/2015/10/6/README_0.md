@@ -22,8 +22,7 @@ Papadosio - Extras In A Movie (2015) [OGG| 399-563 кб/с]<Alternative, Electro
 ```bash
 magnet:?xt=urn:btih:DFDB13F6BF912757673E7636E4BD40DA19C0CBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0EB8829A36C4440D4A354D5E3C64DC63C16A4C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

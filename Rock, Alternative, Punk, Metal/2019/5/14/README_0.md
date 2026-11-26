@@ -22,8 +22,7 @@ Bruce Hornsby - Absolute Zero (2019) [FLAC|Lossless|tracks + .cue] <Rock, Pop Ro
 ```bash
 magnet:?xt=urn:btih:91EF03089F4C73FDABA864DF35EC5195BBC33A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ So Blonde (2008) [En] (1.0) Scene Reloaded
 ```bash
 magnet:?xt=urn:btih:DD0DA566F331020893B32A814A2478456643E6E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

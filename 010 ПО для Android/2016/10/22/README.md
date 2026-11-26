@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1E236F24FC7D6B4EF727D06039EF47D037DC5ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phases of the Moon Pro 4.5.1 [Ru] - Фазы луны
 ```bash
 magnet:?xt=urn:btih:F3398F2E5A66F06245FD2982F49448A5612A1B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Of Mice & Men - Restoring Force (2014) [FLAC|Lossless]<Metalcore | Nu Metal | Po
 ```bash
 magnet:?xt=urn:btih:1964ED3F19B1F1BE1BB1C568EAC3AA2086A83527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Santana - The Essential Santana 2CD (2013) [FLAC|Lossless]<Rock, Latin>
 ```bash
 magnet:?xt=urn:btih:9BAC358B22EA1D746A92EB414078A6A2F8EC546A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F76B53635633F6F89A07C1A7D3192A3F87F62A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Rainbow - Ballads & Instrumental (2012) Japanese Edition [MP3|320 кб/с]<Hard 
 ```bash
 magnet:?xt=urn:btih:ED22E38F18F5746AEF5BF6FD0EA14C0C5248082D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ VA - A Tribute To Metallica: Ride The Lightning (2014) [FLAC|Lossless]<Thrash/Ne
 ```bash
 magnet:?xt=urn:btih:7833CF8D28D943545D84E69847A76D664638110C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Eskimo Callboy - 3 альбома (2010-2014) Дискография [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:6A21D3CDA330DF4F29C45BBB294E8241BF36DD33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

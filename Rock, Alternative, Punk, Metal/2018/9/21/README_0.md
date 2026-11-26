@@ -22,8 +22,7 @@ Blitzen Trapper - Furr (2008) 10th Anniversary Deluxe Edition, 2018, Sub Pop [MP
 ```bash
 magnet:?xt=urn:btih:84E8B546503DDEE6A3E6F46409EF7CB9B97297EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Andrew W.K. & B-Roc - DAMN! The Mixtape, Vol. 1 (2009) Limited Edition, Mixtape 
 ```bash
 magnet:?xt=urn:btih:860BDFBDB74A477FBF80E7EDD195DC1532068AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hush - Aloud 'n' Live (1973) [MP3|320 Kbps] <Glam Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:6E4DF27732E149DCCEDDC91F93F0AC94FF919C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mizantropia - Out Of Mind (2018) [MP3|320 Kbps] <Dark Metal, Gothic Metal, Extre
 ```bash
 magnet:?xt=urn:btih:D51BF960786C1E6A910FA4C339C34B1114E9AA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Trubetskoy - Трафик (2018) EP [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:D2CE839286187A7320E4D4F30BFECA49F6173265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Gravy Train - вполне можно причислить к выдающимс
 ```bash
 magnet:?xt=urn:btih:42CAB6C1E4456717529F4CAEBA74BB42C35B46D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Machine Head - американская грув-метал группа бла�
 ```bash
 magnet:?xt=urn:btih:75D40C59428BF68301639AF30CC16DF9B3F6EDFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:9CAD40573BD71E874352EBF825BEA5B245672925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ VA - The Best Of 70's Vol.2 (unknown year) Unofficial Release [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:19BC1A76C804FFC66C310DE4BDEBDF6359C99F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Billy Gibbons (Zz Top) - The Big Bad Blues (2018) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:65C48AE79BEAEB27F273B7F2431FD2A21061EBAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

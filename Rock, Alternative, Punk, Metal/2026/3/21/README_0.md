@@ -22,8 +22,7 @@ Axel Rudi Pell - Ghost Town (2026) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:89F0A755680AAC5991E91654CCC796962D8BA4E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eihwar - Hugrheim (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Neofolk, EDM>
 ```bash
 magnet:?xt=urn:btih:C116C1D953EA100482318E4B0C1B96880A3EF5CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Rock Anthems (The Ultimate Collection) (2017) 5 x CD, Compilation [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:BAC6688875E6DB00A5C6DCC9F10EA043ECA60525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - This Is... 1974 (2008) [FLAC|Lossless|tracks + .cue] <Hard Rock, Alternativ
 ```bash
 magnet:?xt=urn:btih:AA6C38C890B22CB425A9DBE272AED0A80FE399D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

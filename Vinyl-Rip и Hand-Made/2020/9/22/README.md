@@ -22,8 +22,7 @@ A4 Journey To The Centre Of The World = Reise Zum Mittelpunkt Der Erde(   Чит
 ```bash
 magnet:?xt=urn:btih:0C268CC30659A4323C4A5E5CB29BE7CE444C5829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 В. Дьяконов - День, В Котором Жил Я(   Читать 
 ```bash
 magnet:?xt=urn:btih:76DB32256656BCB23CFB5E9AEC011DFAAE0C1A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 You Gave Me The Answer(   Читать дальше...   )Жанр: Pop Rock�
 ```bash
 magnet:?xt=urn:btih:45BDF5DC1E86CB1F425135296872F490FA1598BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

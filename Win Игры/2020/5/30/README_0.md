@@ -19,8 +19,7 @@ Royal Detective 6: The Last Charm / Королевский детектив 6: �
 ```bash
 magnet:?xt=urn:btih:CF8ED4DF77BECA0B83B357E66CCBB0653813A1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Skin Witch — это настоящая игра на выживание, в к
 ```bash
 magnet:?xt=urn:btih:5BF38430040D860A609A5B0205DF098E74736A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PREY (2017) [Ru/Multi] (10966486/dlc) Repack Other s [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:E4E1DACC75827173EB8468DD465FAF8102DB652A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Luna - On The Other Side Of Life (2015) [MP3|320 кб/с]<Symphonic Funeral Doom
 ```bash
 magnet:?xt=urn:btih:2A0ACFEFA5565D567B212726B0CDAF23F182A0E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Ronnie Montrose - Music From Here (1994)/2014/ [OGG|481-538 кб/с]<Classic Har
 ```bash
 magnet:?xt=urn:btih:A95ADAD4985706EA8A33A1FAD651B38C33BB11F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Debauchery - Fuck Humanity (2015) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:F1DBC3D9B6250F83891DBD3C2D10B92D0B495DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE6FAAB2CF7DCEC3D55DC1526BFBDD13E81FBCB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Heart Rock - Rock Fur's Herz vol. 5 (1993) 2CD[FLAC|tracks + .cue]<Rock, So
 ```bash
 magnet:?xt=urn:btih:9CEB65D35288C8A3927C94CC828B3C952E2D2187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Ratatat - Magnifique (2015) [MP3|320 кб/с]<Alternative, Electronic Rock, Indi
 ```bash
 magnet:?xt=urn:btih:9EAF2DFE8A87952A6EC034222B8FFDB1C6DC77B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Cradle Of Filth - Hammer Of The Witches (2015) [MP3|320 кб/с]<Black Metal, Go
 ```bash
 magnet:?xt=urn:btih:C845378051BCE230CC8162D3AC97D8DFEA294DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

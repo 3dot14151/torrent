@@ -19,8 +19,7 @@ The Suffering: Ties That Bind (2005) [Ru/En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E5400102AD2493FF799B71160C8591ADD1340B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

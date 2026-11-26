@@ -19,8 +19,7 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:AA24821EBE278D59E6E6F3DFE9A743D469BBBC1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ PulseMonitor 1.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:B978175B97C364F731AAF236FD7454BA90ADABFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Quick CPU — это мощное приложение для мониторин
 ```bash
 magnet:?xt=urn:btih:75E393D6DC70D0C8BB0B1ECA8B5A3DC2A46E08F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ USBDeview — это небольшая утилита, которая отоб�
 ```bash
 magnet:?xt=urn:btih:01C6E2469F8147CD591F8750F0FBEB03D800E291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ FastDownloader — это бесплатный и минималистичный
 ```bash
 magnet:?xt=urn:btih:71192BEAF9DEF3CF2A38E738DDB2D32F097A44F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ HWdetails — это бесплатная утилита для Windows, кот�
 ```bash
 magnet:?xt=urn:btih:4C78106F163B726B3B106F38DAA44747B0AAE526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ PowerISO - программа, позволяющая создавать, кон
 ```bash
 magnet:?xt=urn:btih:E5105DF42F7AFB4A324252F8BABBECE12C22F090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ YTDL, ранее известный как YT-DL, это простое и уд�
 ```bash
 magnet:?xt=urn:btih:84632D6C347ABCA69B3FCACE0DFA866CFF8440F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ QontrolPanel — это расширенная аудиопанель для Win
 ```bash
 magnet:?xt=urn:btih:6E51A2F66E30A815BC4B24D04CBC8E97B3C0BF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:AED99755979122619BB863F1F877FE3BD2B17B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

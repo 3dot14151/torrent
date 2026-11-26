@@ -19,8 +19,7 @@ Steinberg Virtual Bassist - книга-мануал на русском язык
 ```bash
 magnet:?xt=urn:btih:ACAC3B73F4CBDFF7F85CFA6F636F9CC4AD9C9CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Steinberg Virtual Guitarist революционная технология, к�
 ```bash
 magnet:?xt=urn:btih:E239D665E9F44B7786FD11FD221EB66C54427A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

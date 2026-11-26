@@ -21,8 +21,7 @@ Eberhard Schoener - 2 Albums (1978) (Bass Guitar, Vocals - Sting) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:1F26059BF54767A1DD0C7238E4CB168D09E72025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ PhoneRescue for Android – приложение для восстановлен
 ```bash
 magnet:?xt=urn:btih:D681659CAE4B728DA34EB9A111FB2E43D718CDB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:D9A2817F0E8AEF8512B6B410B520BE30C389091D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ AnyTrans for Android - предназначен для быстрой и удо�
 ```bash
 magnet:?xt=urn:btih:675C2EC72AE939F25921329A44F17A60EDE2C322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Kaah - Kaahlender (1998) EP [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:4338B6A4CD705AE4C7D882D8B0D1416D6A1E99F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Noel & The Red Wedge - Peer Pressure (1982) LP [MP3|320 Kbps] <Electronic, Pop R
 ```bash
 magnet:?xt=urn:btih:74B0D6E2924A6B56490EE446A6C81C02E43C70BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ King Midas Sound - Solitude (2019) [FLAC|Lossless|WEB-DL|tracks] <Experimental, 
 ```bash
 magnet:?xt=urn:btih:D9065CD5C0D8FFF8F7E675D64D381BB0AD319436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - 90er Trance (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:9F6C6A119A026524F2923CE2F99B3A6BFF2BBDB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Louis Armstrong - What A Wonderful World (1962 - 1965) 1989, Jazz Hour [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:A2CE1A76F679EC066355480BEFA201975E1A19CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Workout 2019 Aerobic Hits. Music For Fitness & Workout 128 BPM/32 Count [MP
 ```bash
 magnet:?xt=urn:btih:4920A350032F612826BBAB6A6FB13463D6C9F5D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Thylacine - Roads, Vol.1 (2019) [FLAC|Lossless|tracks + .cue] <IDM, Ambient, Dee
 ```bash
 magnet:?xt=urn:btih:28C8F7A0547C6D29871B68F1575BBDAC85F06C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Del Faro - 2 Albums (1988, 2015) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Eur
 ```bash
 magnet:?xt=urn:btih:B87FCAF208953FB5A2B87EC3804F6D83CEB07AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Fakear - All Glows (2018) [FLAC|Lossless|tracks + .cue] <Experimental, Downtempo
 ```bash
 magnet:?xt=urn:btih:E2F8B1AB7116E3B01281667A5227A4BBE16C34DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ VA - Italo Disco Evolution (2018) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
 ```bash
 magnet:?xt=urn:btih:54D36BED608878E4D3C2FE7F4BE342C55FF3F66F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:414DDB9610894D3978DBE2691D52343411E130C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Robbie Williams - Under the Radar, Vol. 3 (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2742B9C5AA595456AA4E094D7E2498C83883CC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ```bash
 magnet:?xt=urn:btih:7F6FF3ABF391CB79FFAF31AEBD4BDDAEF53D3AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Winger - Live (2007) от ALEXnROCK WEBRip
 ```bash
 magnet:?xt=urn:btih:1DC4FC0416A27118FFBED6306736BC470DC91C02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ Rotting Christ - The Heretics (2019) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:DA6F932561D9D8B685FF2520C2DCAD947177FE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Foreigner - Live in Concert (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:76FCCE64A9F745C9953A2968D4B927DD5745985D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ Vivaldi 2.3.1440.48 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A099604F153D08A79DFCB7333680298F92ACB4B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6E229C1982A2163A02F5F6B5DBC98DFA8F8E091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ ST1M - Калейдоскоп (2019) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:D5598FEE670F2645B6E4C73787E2BDA7F75EFA12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ Monoplay - Octopus (2019) Nopassport Records [FLAC|Lossless|WEB-DL|tracks] <Deep
 ```bash
 magnet:?xt=urn:btih:5C0AB59CE6042B4CC65583F808D382CF0CEBF985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:4D05EEC26846030AAC8300C49ED013ADD886004F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:253D984F67B6FD5582C76D86D8495E16F4EB1CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

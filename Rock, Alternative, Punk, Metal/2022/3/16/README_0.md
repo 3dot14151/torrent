@@ -22,8 +22,7 @@ Ramihrdus - The Sorrow of the Evergreens (2021) [FLAC|Lossless|image + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:84F041F4ACA32ACEC45A0D383631502205AFDCC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Otargos - Fleshborer Soulflayer (2021) Limited Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:9082F43F040C634E2D16199ABBD5E590FF467A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chains over Razors - Chains over Razors (2022) [FLAC|Lossless|WEB-DL|tracks] <Mo
 ```bash
 magnet:?xt=urn:btih:59DFF3992088706FB60E13C2C2EF55A610F5037B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Arcane Tales - Steel, Fire and Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Symph
 ```bash
 magnet:?xt=urn:btih:35D3E515305A707BF1879231150987E7FB2089FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Allegaeon - Damnum (2022) [FLAC|Lossless|image + .cue] <Technical Melodic Death 
 ```bash
 magnet:?xt=urn:btih:6E3229D589735845A9E171A368FF060E4B7A05AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Allman Brothers Band - Midnight Callin’ (The Broadcast Travelog Volume Two
 ```bash
 magnet:?xt=urn:btih:DCC4F95E633E5F02825F974AF8F4643F79490DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Helloween - Keeper Of The Seven Keys, Part II (1988) Remastered, 2CD, 2006, Sanc
 ```bash
 magnet:?xt=urn:btih:1F049AE6766E5239E92CA07B1E22012D2A919688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Steve Vai - Inviolate (2022) [FLAC|Lossless|image + .cue] <Instrumental Rock>
 ```bash
 magnet:?xt=urn:btih:2BF5A758F089DE1A7372337704571CC3374D0F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

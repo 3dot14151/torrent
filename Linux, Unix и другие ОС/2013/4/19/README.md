@@ -21,8 +21,7 @@ ROSA Marathon 2012 RP2 (Enterprise Desktop X1) (Национальная про�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

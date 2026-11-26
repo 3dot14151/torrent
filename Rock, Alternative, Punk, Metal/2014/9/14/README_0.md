@@ -23,8 +23,7 @@ Ophis - Abhorrence In Opulence (2014) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:80AC74DD7F62997A18C2106295D7C92D4DAFB37E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Terminatryx - Shadow (2014) [MP3|320 кб/с]<Industrial Metal, Goth Industrial>
 ```bash
 magnet:?xt=urn:btih:1163BB316D9B84A0D21E682F878A766BB9A6B4BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Death In Motion - Dias De Los Muertos (2014) [MP3|320 кб/с]<Nu Metal>
 ```bash
 magnet:?xt=urn:btih:3C0D4B7629666B895079BECF554ADF29C851B9C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Deceptic - The Artifact (2014) [MP3|320 кб/с]<Modern, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:A90C4E781D9CE12597270C861363E1880BA85E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ ElvenStorm - Blood Leads To Glory (2014) [MP3|320 кб/с]<Heavy Metal, Speed Me
 ```bash
 magnet:?xt=urn:btih:E967263BE32C2FF34DA7ED29D7D1BA122FC31223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ American Dog - Neanderthal (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:24BA1E25E6603C81B08F1FF467605F45422365A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Hush 'n Rush - Tales Never Told (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A992380E39AA98454316F4917CA4697B9BD1F802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:4169C0B4D4DF29718DD307770978AEECB9AAB82F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ California Transit Authority - Sacred Ground (2013) [FLAC|Lossless]<Rock, Jazz-R
 ```bash
 magnet:?xt=urn:btih:ACF98981FF0BC0236B93EAC159724AE4F4F13ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Deadlock - The Re-Arrival (2014) 2CD [MP3|320 кб/с]<Modern Metal, Melodic Dea
 ```bash
 magnet:?xt=urn:btih:C146393224B8885CA52AC691F3C122B664FD13FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Beholder (2016) [Ru/Multi] (1.0.20161118) Repack Dok2
 ```bash
 magnet:?xt=urn:btih:4D36ED1025697817910248E9C159E292A8CE3F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Incredible Adventures of Van Helsing III (2015) [Muli] (1.0.6b) License GOG
 ```bash
 magnet:?xt=urn:btih:685F61A732A34B5CC4AAC0E0723D21C2AB465230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Banner Saga (2014) [Ru/Multi] (2.36.03/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:6471FC9700D8C6F65088C5222651FBEB8317E269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

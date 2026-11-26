@@ -19,8 +19,7 @@ EDN Europe — журнал, посвященный электронной пр�
 ```bash
 magnet:?xt=urn:btih:787ADF3C20D69D1DEA6324732BBB8316E00D1DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Pantaculo Mistico - Hermetico (Hermético) (2016) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:89A2AB6052625ADB4B714047E47ABE16B99F7173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Solution .45 - Nightmares in the Waking State- Pt.I (2015) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:B6A57848E1903031BA0F9F2F1016CA93E70FEB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Young Flowers - 1968-1969 (1997) [APE|Lossless|image + .cue] <Blues Rock, Heavy 
 ```bash
 magnet:?xt=urn:btih:57DE1ABF9ECF71809A4A087A412859887082BDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Men At Work - Business As Usual (1981) [FLAC|Lossless|image + .cue] <Rock, Pop R
 ```bash
 magnet:?xt=urn:btih:F3ECBAF4CE8A03FD93D95F0A55A6CADE174EEE19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3990E3C58AB04C7454998065CC9A7C804976C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

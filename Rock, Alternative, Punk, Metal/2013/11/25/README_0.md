@@ -28,8 +28,7 @@ Iron Mask - Fifth Son Of Winterdoom (2013) Japanese Edition[MP3|320 кб/с]<Neo
 ```bash
 magnet:?xt=urn:btih:C315B997EC6A18B04CD481C086E59C338B8F78C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Eden's Curse - Symphony of Sin (2013) Japanese Edition[MP3|320 кб/с]<Melodic 
 ```bash
 magnet:?xt=urn:btih:F4CC19982D8972552CDCE49027350F1BDD146395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Buckethead - Thank You Ohlinger's (2013) [MP3|~245 кб/с (V0)]<Instrumental Ro
 ```bash
 magnet:?xt=urn:btih:501C5710B5DA0E58965D4A6D0E18E14E5EB659AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Generation Kill - We're All Gonna Die (2013) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5CB8980F41CA1474FDBAC3355FDE0F0E249AC042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Leaves' Eyes - Symphonies of the Night (2013)NP Mailorder Edition [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:8C1F4A257D9E49099F98ACB7788AE7FDA81840B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ The Hollies - All Time Greatest Hits (1990) [FLAC|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:43C4239049DDC9F52251C68FB5BC064AF5544641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Rhapsody of Fire - Dark Wings of Steel (2013) Extended Version [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:8EAAE4567D2D87646F1F0FEB72567074F3158BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Earthless - это инструментально психоделическая
 ```bash
 magnet:?xt=urn:btih:8BF74CFAB91CA3DC94C4FAACA0652904D2DFED71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Epica - Retrospect 10th Anniversary (Live) (2013) 3CD [FLAC|Lossless]<Gothic Met
 ```bash
 magnet:?xt=urn:btih:1507F5B8286B8B236DE370C2CA4BDADC720B385E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

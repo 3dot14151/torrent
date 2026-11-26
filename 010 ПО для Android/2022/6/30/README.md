@@ -19,8 +19,7 @@ IP Webcam Pro - Превращает телефон в сетевую камер
 ```bash
 magnet:?xt=urn:btih:6CE021C1E90F1FB3D656879E5469E151C47AC927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

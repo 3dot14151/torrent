@@ -22,8 +22,7 @@ Constructions - Void And Silence (2016) [MP3|320 Kbps] <Sludge, Groove Metal, Dj
 ```bash
 magnet:?xt=urn:btih:D63EEBBAB57364D10ADD94AC3A6D14465980F234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Thrasher - Burning At The Speed Of Light (1985) [FLAC|Lossless|image + .cue] <He
 ```bash
 magnet:?xt=urn:btih:0740E97B3C78CE73A9B92CE745B6B45CCCC33651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Handwrist - Green Tourist (2016) [MP3|320 Kbps] <Psychedelic, Post-Rock, Progres
 ```bash
 magnet:?xt=urn:btih:BB441D899933E8E9E07FDA6FA7C22FCF403CED18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Emarosa - 131 (2016) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:919C540D2F02EDD29F947A6ED57FE3FA9F0422EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Blazon Stone - War of the Roses (2016) [MP3|320 Kbps] <Speed Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:393CFFD9EF79D42E104DE6F773FB97E027F867FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - The Many Faces Of Iron Maiden (2016) 3CD [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:B0E9BE9A466C879BF57631C21BD1762A4026F83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2D955BCFC8D5D7360D13BFA5C470F3EE6EAA916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDCA55617305BB085D1187FC990501379DBA6EA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

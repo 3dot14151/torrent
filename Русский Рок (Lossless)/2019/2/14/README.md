@@ -22,8 +22,7 @@ Project NT - Веселые песни о Жизни и Смерти (2019) WEB-
 ```bash
 magnet:?xt=urn:btih:1E96F36019B52945ED86D7495225C9F52D889673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

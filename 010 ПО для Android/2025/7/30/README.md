@@ -19,8 +19,7 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:66F280ED75C6A0730AE734F7B0108E9227C0C015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:7F067F395CC9C423EC66664751EE7E2F7188673C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MultiTimer - это простое и универсальное таймер-п
 ```bash
 magnet:?xt=urn:btih:6D0A4075727FB4B808234AFFF4898E95FB3EACF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

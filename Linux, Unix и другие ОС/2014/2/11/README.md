@@ -23,8 +23,7 @@ Scientific Linux 6.5 Live [i386] 1xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:4A813B5D693514468097D265006320184C53BA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

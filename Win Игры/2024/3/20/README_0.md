@@ -19,8 +19,7 @@ Trans-Siberian Legends (2024) [Ru/Multi] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C422500C354C5B029040CF7D3773781622AD444E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Beast Inside – психологический хоррор с соврем
 ```bash
 magnet:?xt=urn:btih:BAAF71586AFE101534E57D7F2342AA3FB8669651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Goblin Stone - пошаговая ролевая игра, рассказыва�
 ```bash
 magnet:?xt=urn:btih:54D848914CAF8DCC75E6A9E30D76E76A394DF1D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7CDEC59C1A5FC6F0B16E33D88D74ED37565BE083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

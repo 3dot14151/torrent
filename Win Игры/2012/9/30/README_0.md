@@ -19,8 +19,7 @@ Paris 1925. Episode 1: The Shadow of the Freak [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:EDF86EF0A6ECB6B0148526914233FFEE9482A68E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sable Maze: Sullivan River Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:9CB216ED9D3CB3C1E46C6947984A9FF5BE5BA52B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spirit Walkers: Curse of the Cypress Witch / Искатели призраков
 ```bash
 magnet:?xt=urn:btih:5AB55CB55A3B5B54BFAA3A3A728307692713C318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ McPixel - это забавная point-and-click адвенчура выпол�
 ```bash
 magnet:?xt=urn:btih:BBD5B77484EE83232EDACC9A4DF376CD41B41F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C46F412EBC5D2D44884F5AF192C916DDA66A4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

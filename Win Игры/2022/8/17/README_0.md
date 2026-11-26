@@ -19,8 +19,7 @@ As Dusk Falls — это оригинальная интерактивная д�
 ```bash
 magnet:?xt=urn:btih:AB13018EE0FCEB293F75C57B7975690AAAC1397B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

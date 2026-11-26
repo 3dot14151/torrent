@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5773ED1377C125DC2DE09BB43C332C9FA5BC55E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Donny McCaslin - Fast Future (2015) Greenleaf Music [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:C8EDD6E7174351CE3D73A3E80C94E88E1F4DA333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Suanda Autumn Vol.5 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:9B10FC87D40BD7DEEA2F4EE50857F98B00A2DEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ European Jazz Trio - An Afternoon In Amsterdam (2009) M&I [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:117677A3A84721F21B509D292C0D61554AFD01BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Gods Of Darkness (1997) [FLAC|Lossless|image + .cue] <Black Metal, Death Me
 ```bash
 magnet:?xt=urn:btih:8C8C4C0A4A00C110631532F5BF6C8516BCEA1676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Magic Of Trance Vol. 6 (Mixed by Vito Von Gert) (2018) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:1C980DA8F3C00BC2546B12660B6C99C909D6C95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Trance Anthems Vol.3 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F91E23565312C63B0538F8BFC67FE013F66EC055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:A562B2D8D65EFAF265613A3F5B7AA32C87CBDD3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:5DF6A0B2B5414707ABE30E0E7E5C95A14522FB3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Laura Luna Castillo - Laminares (2018) Genot Centre [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:DFC2D6B47701B252A1C43B6CEF8F0AC12D1BA15E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Nothing But... The Future Of Trance Vol.09 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:DB581AEAE3663084D13BBC87E1AD2538EA327727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C86DCE4CE09AAA2ABC0919F942C58358E38EE3D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Bayside - Acoustic Volume 2 (2018) [FLAC|Lossless|tracks + .cue] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:92F1733A1157F27FC528A40698DC30A9BDDC159C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Postbox является почтовым клиентом, в основу со
 ```bash
 magnet:?xt=urn:btih:EFC0CFDF244ABC888F1EE42AB0DB4EB5467DF5C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63B86670CAA67B48A538B5B6A3C8B50DECDF3E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ECAE44EEA381CAF061B91801E74756879D0A783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AE1C1C07F32E2542A7B0B494BAB5DCF8CBBE855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07251EE6194540D6147E7BB82089DB898F8710AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Desktop Curtain - это простой инструмент, чтобы скр�
 ```bash
 magnet:?xt=urn:btih:62AD45291475DE0B157364DA0F302D7249A880EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Mirror for LG TV 2.3 [En]
 ```bash
 magnet:?xt=urn:btih:B702A9E7C53145449914D49F5D4E58D16BA5C47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Org Chart Designer Pro 2 v2.28 [En]
 ```bash
 magnet:?xt=urn:btih:4A72B906CC7B933FB46D5E2233E0D3E956BD2CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ VA - Sound Of A Feeling (2018) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:C5CA2EFB7A70127E8F28E9A8DCEC96712BF03024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1251D5E33D5E069460A352B17244C2D76DA87FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ Vivaldi 2.0.1309.37 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:DE018B109479AC3DA1E88D1CF3FDF330408FAE8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Resolutionator делает его простым в использовании 
 ```bash
 magnet:?xt=urn:btih:2287686A5959DDB08C3ED232D600A40635D605B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ Dense - Impact (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psychill
 ```bash
 magnet:?xt=urn:btih:2051A67C69867212360287E99F928D0FB6187639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

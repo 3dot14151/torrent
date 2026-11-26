@@ -19,8 +19,7 @@ Space Hulk: Deathwing - Enhanced Edition - это шутер от первого
 ```bash
 magnet:?xt=urn:btih:A38306EC0E00A091AD3F666A3446ABC0EBFC2999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

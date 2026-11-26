@@ -19,8 +19,7 @@ iMazing - отличная альтернатива iTunes
 ```bash
 magnet:?xt=urn:btih:A26742664AEF83F36B66E0A50366B992F95079A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2C8C3651C19F941FB020B0AB864750B73FC85ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

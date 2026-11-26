@@ -19,8 +19,7 @@ Urtuk: The Desolation (2021) [Ru/Multi] (1.0.091b) License GOG
 ```bash
 magnet:?xt=urn:btih:399122B0C1256BD51A9806EE62133EC77489417E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

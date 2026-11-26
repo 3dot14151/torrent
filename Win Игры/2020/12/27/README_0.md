@@ -19,8 +19,7 @@ Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
 ```bash
 magnet:?xt=urn:btih:5F47C4B019C6BA19DEDCB69B5917D117BD46FE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

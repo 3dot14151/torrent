@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:61F0F0F74D8AEC0F76D0170D426907F5739101E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Adobe Photoshop Express - ещё одно крайне нужное и поле�
 ```bash
 magnet:?xt=urn:btih:9EE3BF96CE6D04D22662A458F358FB3D9F9993D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

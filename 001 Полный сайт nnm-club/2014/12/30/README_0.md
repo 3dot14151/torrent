@@ -27,8 +27,7 @@ Stonehouse - Stonehouse Creek (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:205C69345B4151B00D84C72D13C37BA760FEB985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Live At Ronnie Scott's (1993) [FLAC|Lossless]<Jazz, Hard Bop, Cool>
 ```bash
 magnet:?xt=urn:btih:40A31397A494F58A70A95C02FADF163A83818CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Beitthemeans - Marble City Secrets Are Off In The Black (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:63D820BD5B4EA5378713C7FBFE928D4D6169B3EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Ronnie Earl & The Broadcasters - Test Of Time - A Retrospective (1992) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:CCDAFDB5A0673A79D11BB1D18D1DD5982C77528B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B0291A951D66059B3014386AE4D3D9BBB65BA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ VA - Blue Soho Recordings Best Of 2014 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:6BDB504C795CD2AD7BE9CDEAAFBFD9B0B02AE641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Beto Vazquez Infinity - Beto Vazquez Infinity (2001) [FLAC|Lossless]<Power Symph
 ```bash
 magnet:?xt=urn:btih:9BAF0EC13638DCF0A0A43D44C89B47361C2C3888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Bloodbound - Book of the Dead (2007) Japan [FLAC|Lossless]<Heavy Metal / Power M
 ```bash
 magnet:?xt=urn:btih:E9DAB802DED81FF83178A4D7FE8418FB08D94A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ VA - Lounge Atmosphere (2014) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:BE566FDE360E43E8CA723C01962E550122CF73A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ VA - Chillout 2015 Best of 30 Top Hits Lounge Ambien (2014) [MP3|320 кб/с]<Do
 ```bash
 magnet:?xt=urn:btih:F35FA1A7FA29DBF9C677693333403A81B83482EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ Senko - Dronetudes (2014) [MP3|320 кб/с]<Abstract, Ambient, Experimental, Gli
 ```bash
 magnet:?xt=urn:btih:F7BA3D5938D48DC13B55FA929828E5F10E604B0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93C50FEFF8E3D1DA02705DCC6C3712E250F9921B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72D27AAE58C2F7FD45BA122E305D1F1E45C9080E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +434,7 @@ VA - Deep & Dark Dubstep Vol.11 [Compiled by Zebyte] (2014) [MP3|320 кб/с]<De
 ```bash
 magnet:?xt=urn:btih:5641CBEA7357CD1CF951F8D8C98DE16C067E3F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5489ED2891264D960CE90DC6C6481C3BCED5B3BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDCA4E40C6828401D06022AD002861E235F71431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +539,7 @@ VA - Billboard Top 25 Hot Rock Songs (03-01-2015) [MP3|320 кб/с]<Rock, Pop, D
 ```bash
 magnet:?xt=urn:btih:772124106D14E26AA01722F51343D7A286F08227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:106C2155DFF031217AFD9B5A1FB845885B2EF9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ Sleep Dealer - 3 альбома, 2 сингла (2009-2013) [MP3|192-320 кб/с
 ```bash
 magnet:?xt=urn:btih:9426D1CC89ABDBE02698E1FFAA29BD0412F484DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ Anathema - Alternative 4 (1998) [FLAC|Lossless]<Atmospheric Metal>
 ```bash
 magnet:?xt=urn:btih:28D61A164A4DF0984640AF2361ADB81F1A7E76DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ Elvellon - Spellbound (2015) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:D3A6297214CC4122C1317BEA98ACB60A85FA6938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1537B585E3EE58D92AE3CFCD383217D9987D67D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF5371529BFB9D33050BA99C467D9AE6348F0EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D70BD8D6B57EEF46EB389E7CC29E4B154859CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:AC2283FF3D8CB0C155EDB23F77B46691AC259C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

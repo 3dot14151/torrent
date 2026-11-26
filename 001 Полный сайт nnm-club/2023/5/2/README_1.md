@@ -21,8 +21,7 @@ VA - Best Collection Of The Year - OMNE ONE (2023) [MP3|320 Kbps] <Progressive H
 ```bash
 magnet:?xt=urn:btih:FB72004F4EB9411FE0EA6A92424D765DE57CE98A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
 ```bash
 magnet:?xt=urn:btih:5A1CC6DD189D01907512BE293639805368CECC50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Funky Music Sunshine The Groove (2023) [MP3|320 Kbps]  <Indie Dance, Club M
 ```bash
 magnet:?xt=urn:btih:16486F6388EDD05683993B22529BF373FD0CD91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Apowersoft Screen Capture Pro – многофункциональная про�
 ```bash
 magnet:?xt=urn:btih:2C34208598A5B6409832D397124C8DE6A75B19A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:EF122A4CC4E34734A1FFD7B2FAF4429D0584BA1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ VA - 12 Inch Maxi Club Disco Funk Vol. 02 (2015) CD, Compilation [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:7DC8DE283746C175E8B309502DE4A39D5F941647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:1F122AF5D9426EC32ED0B05FC10478CE3E6701B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ HiBit System Information - управление списком всех прил
 ```bash
 magnet:?xt=urn:btih:9150C018BEBE584766337040B30D9C12FBA3E0A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Jessie Ware - That! Feels Good! (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Indi
 ```bash
 magnet:?xt=urn:btih:120F91E21376D462D3C0AD825D2B80C1AE87F52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:210D40C88165E36150C735A72B618C3D89826F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - 12 Inch Maxi Club Disco Funk Vol. 01 (2015) CD, Compilation [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:AF43CD07CE4839C8A516E4DFE0F27A7539CF14D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Whitesnake - Still Good To Be Bad (2008) Remix, Remastered, 2023, Rhino Entertai
 ```bash
 magnet:?xt=urn:btih:65ADCD10D0E492599F4948A9FA957A803F7BC2C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ WSCC (Windows System Control Center) - портативная программа
 ```bash
 magnet:?xt=urn:btih:01A605506B469B7F6E8B86DF60DEA739A4F2BB19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC960141C0F5D85C7F403AEF08DCCD21AEF0C639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E7915498B4CA84B687150537895A242E7C00A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFF8DC0537BE2C136F894F83085B969FA17B11BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ VA - Taj Mah Lounge, Ambient Grooves (2011-2023) Vol. 1 - 7  [MP3|320 Kbps] <Ele
 ```bash
 magnet:?xt=urn:btih:F17B3BE0406205FA491F68CA2E116EF1E59C5F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ Maxthon Browser — многофункциональный браузер со �
 ```bash
 magnet:?xt=urn:btih:C7455A7D16E0726DACDA005D95C3A7DB5653ED4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E5F70EF55F8DC08E41BD2022AA54A4F9A80EEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ KLS Backup - мощная программа, предназначенная д�
 ```bash
 magnet:?xt=urn:btih:6BFBF6B4401760077B340D11EEACFD47F3D1F260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40C911E4CCA7BF7B8A431C17352A17C9ACE0A18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:822E6B7BC65484FF017CA0B487DE1F92118FB394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ DP Animation Maker 3.5.17 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:51C52DBCA19DFE451BAB6B6A80BADF0E57111436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5068D401434455708E4047373D9C0A658EC10A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ ID Photos — профессиональный инструмент для ре�
 ```bash
 magnet:?xt=urn:btih:ED6B063B94F1164A9DF081021D16CD31293D5039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ AIO Boot NewGen - это мощное программное обеспечен�
 ```bash
 magnet:?xt=urn:btih:536125BD40E1FA8FA8F45B184CFAFEEE1A2B3FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

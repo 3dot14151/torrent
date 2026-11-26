@@ -19,8 +19,7 @@ Cтолкнулись с «неразрешимой» проблемой при 
 ```bash
 magnet:?xt=urn:btih:443A42D30512F25DE9CB07F41C2C5C7A5259686C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

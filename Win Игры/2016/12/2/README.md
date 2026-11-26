@@ -19,8 +19,7 @@ Valentino Rossi The Game (2016) [Multi] (1.000/dlc) License CODEX [Special Editi
 ```bash
 magnet:?xt=urn:btih:2F362D4546EF8FA2DBCF6B06049C33A61D4389EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ I am Setsuna (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:0E75CE4BECD82D25103702734551547BBF9C1AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Other 99 - приключенческий экшен с видом от пе
 ```bash
 magnet:?xt=urn:btih:BEF7F79FAEC076364BC688ACC91AE9A2FF05DE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Maize – приключение с видом от первого лица, р�
 ```bash
 magnet:?xt=urn:btih:5E98D5211942E5C02741F5833764D63F4B632B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SHENZHEN I/O – это достаточно сложный симулятор, 
 ```bash
 magnet:?xt=urn:btih:2FD2DC702664BD76FBD5351B022E0297F3C05AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

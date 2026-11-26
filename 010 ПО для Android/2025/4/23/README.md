@@ -19,8 +19,7 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.61
 ```bash
 magnet:?xt=urn:btih:E2666DAF4976D348F304547075C7CBC4727179B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

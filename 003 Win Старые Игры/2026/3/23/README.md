@@ -19,8 +19,7 @@ BioShock (2007) [Ru] (Build 11242) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:9D8C4C576D298471DBDE2DC82471B1EEEC435109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

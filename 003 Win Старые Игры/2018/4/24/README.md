@@ -19,8 +19,7 @@ Combat Chess (1997) [En] (3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E07BAEFD0FCE5E421B853F59FD6272E2700FB0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

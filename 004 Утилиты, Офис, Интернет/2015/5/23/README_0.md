@@ -19,8 +19,7 @@ RetroShare — свободная программа с открытым исх�
 ```bash
 magnet:?xt=urn:btih:9F510F3E5A252EA9D086F12064A8F3108B4F22C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

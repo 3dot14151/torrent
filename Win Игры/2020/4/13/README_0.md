@@ -19,8 +19,7 @@ Mystery Tales 12: Art and Souls / Загадочные истории 12: Душ
 ```bash
 magnet:?xt=urn:btih:90F868C79057AAF83956B0F2350547CB06EF0D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ New Yankee 8: Journey of Odysseus / Янки 8: Путешествие Одис�
 ```bash
 magnet:?xt=urn:btih:7006B76F66CF6F98752768C436E8486BD2741FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Portal Knights (2017) [Ru/En] (1.7.2/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F3B7E00F2CA482881B63E00C4B1DCFF33B69FC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Delivery from the Pain — это игра на тему выживания. Н�
 ```bash
 magnet:?xt=urn:btih:572D35D3DC5D8AA8982AF68B890CB77A80A348B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ XCOM 2 – это продолжение полюбившейся игрокам
 ```bash
 magnet:?xt=urn:btih:8AEFA59D1314A340CC91183F6EDC5919A123C0A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

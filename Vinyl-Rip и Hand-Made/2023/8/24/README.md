@@ -22,8 +22,7 @@ Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge M
 ```bash
 magnet:?xt=urn:btih:4F3B124811987B455D7D1285CC972C8BE9AD3F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

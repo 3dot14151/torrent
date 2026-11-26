@@ -22,8 +22,7 @@ The Doomsday Kingdom - The Doomsday Kingdom (2017) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:9CD467EA83BB62EFC0FA998F687FFC38E978265A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Big Apple - Rock Area (1995) Japanese Edition 1-st Press [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:1A1F361547BED473DEA37CC123268A725D52F757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Alien - 1983 - Cosmic Fantasy (1983) EP, Vinyl Rip [MP3|256 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4244C04066CCE5EB044BB59CE16F81F2C3C61F51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Shadow Of Intent - Reclaimer (2017) [MP3|320 Kbps] <Progressive Death Metal, Sym
 ```bash
 magnet:?xt=urn:btih:FEC629C0D1E8758052C95325CD439F7EC85073BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Feist - Pleasure (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:CF522BA3AEBC4F677B45AC18737892286213902E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rhino Bucket - The Last Real Rock N’ Roll (2017) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:BBA4EE488570182B24381AE02A37BE2CAC743E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Охота 73 (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:80124630663B89170D11B357EA2E4F612F263B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

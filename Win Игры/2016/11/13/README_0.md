@@ -19,8 +19,7 @@ Mechanic Escape - красочный платформер события кот�
 ```bash
 magnet:?xt=urn:btih:1E363404A209AA33925EC07E7EE2C95B7FB7E336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Abyss Odyssey (2014) [Ru/En] (1.0.8767.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2D87543A0DC0B842AA1D234117AE13C40DD8BA79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

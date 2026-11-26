@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:C81FFAE585795650404A4FE5C788BE624EA6CC09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ J. Smith, R. Joost | Gimp for Absolute Beginners / Gimp для новичков 
 ```bash
 magnet:?xt=urn:btih:BF7052B93096490F88C07ABBC23B6CDF8874D309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A463397D7FE7148AA94BC4D2618D04C161F5738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ W. Odom | CISCO CCENT/CCNA ICND1, ICND2, 3-е изд. + CD [2011] [PDF, ISO] [EN
 ```bash
 magnet:?xt=urn:btih:64B909370994245805713CB1842DAB6D003D644A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFB77F461086CD89D2FA81166736BD146601187D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

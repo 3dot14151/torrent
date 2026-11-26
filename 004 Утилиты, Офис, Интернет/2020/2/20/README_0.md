@@ -19,8 +19,7 @@ Active Data Studio - программа, содержащая набор нас�
 ```bash
 magnet:?xt=urn:btih:6F8F5F456A6014CF8502EE792B4971EE41A8786E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Algorius Net Viewer 10.4.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AAC146A301A8E92BB076053703D6B921797035A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VNC Server 6.7.1 [En]
 ```bash
 magnet:?xt=urn:btih:CB25BC519604A85A115639F526AB319C9FD67F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

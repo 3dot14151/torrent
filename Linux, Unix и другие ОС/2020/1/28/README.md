@@ -19,8 +19,7 @@ Kerio Control — это комплексное решение в области
 ```bash
 magnet:?xt=urn:btih:352D444454AA90F9B1F3F4BA58BE5FE892B0A686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Kerio Operator — это телефонная система для предп�
 ```bash
 magnet:?xt=urn:btih:B0EBF15393FC7AFB512618E930C2A7676C25AC87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

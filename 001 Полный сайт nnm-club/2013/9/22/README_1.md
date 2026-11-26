@@ -27,8 +27,7 @@ Black Water Rising - Pissed And Driven (2013) [FLAC|Lossless]<Hard Rock, Stoner 
 ```bash
 magnet:?xt=urn:btih:0D585821E504D7E0148D0EA8EC4AEABA71E39026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ SlimBrowser - это быстрый и надежный веб-браузер с
 ```bash
 magnet:?xt=urn:btih:547AF8D8F6C3F129AF1C8A4D3F73189CCB669120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Ablaze My Sorrow - The Plague (1998) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:9F579A04A68C391680BD9DE04A555EA288EFB011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ B2.One Small Step (Astapella) :: 05:25Жанр: Euro House, Synth-popФорма�
 ```bash
 magnet:?xt=urn:btih:63AE77A4A7F7C9E84AD68230882872DFD40922EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ VA - Sixties Soul Machine (2013) 3CD [MP3|320 kbps]<Soul>
 ```bash
 magnet:?xt=urn:btih:F885719D73EEC96D8F80B58C4AD57CA9E0D3D0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ VA - Blues Down Deep, the songs of Janis Joplin (1997)[FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:E05FDBF961E44D7C97DD685DF528B469B54F192A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ In Flames - Black Ash Inheritance (1997) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:3EC63C5DDF578ECDABA4BC62C76BB7FB699C4CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A482C1B500650150DA51320C61A9904802E88FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ VA - Дискотека 2013 Dance Club Vol. 116 (2013) [MP3|320 кб/с]<Pop, D
 ```bash
 magnet:?xt=urn:btih:7356B66190F7F8C7451BA31482E491D09D4EC455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ Ceremonial Oath - Carpet (1995) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:B4E2A42FE28068555D375EE59090222ACD858F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +333,7 @@ B4.All Signs Of Life :: 03:55(   Читать дальше...   )Жанр: Pop, 
 ```bash
 magnet:?xt=urn:btih:DBA094E7F91CCBF573B19EF66C9059DC38176E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +367,7 @@ Hecq - Horror Vacui (2013) [MP3|320 кб/с]<IDM, Ambient, Glitch, Modern Classi
 ```bash
 magnet:?xt=urn:btih:DFF36B8B8DB37FF8FB4BC88208FF54A86D2C76C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89BE88DE343D292D75E78AF600DAAEB8A8128581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ Bенский оркестр Имре Кальмана был создан в В
 ```bash
 magnet:?xt=urn:btih:004F992E883CE35927005259BA04C15C07214942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +454,7 @@ Ceremonial Oath - The Book of Truth (1993) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:29325B02819BEEF20D78FC0AA051914802FC636A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ Wallpapers - Осень [JPEG]
 ```bash
 magnet:?xt=urn:btih:E34F943E6F0239F644F35001143636F1D8CA78F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BF07258DC2678AA99F5CC555020336BAD87D727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:854E6C3FBC3C9D5572654BA0211BC549D813A915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ Invaders Of Nine – Skyfall EP (2013) [FLAC|Lossless]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2FD41D7E14F8414147E69F44ED946780735047F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81162B5FDD6B76ED80AB5C7D5025DE5D2BE2E2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A52DFB882E0273FA59557553222044D0B0FC287F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ Cher - Closer To The Truth (2013) /Scene/ [FLAC (tracks+.cue)|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:BFA87ED87B76ACB1F8F57AE91FD811574A919156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +675,7 @@ In Flames - Subterranean (1995) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:3479109D45F9047327E4412C1F3E4E869EC745E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ The Internet - Feel Good (2013) [AAC|WEB-DL|256 кб/с]<Trip Hop, Alternative H
 ```bash
 magnet:?xt=urn:btih:A6BFA5D5364BD14DD4531304863AD81C3C37C9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EFA437DBE3193142CC823866D262AB3AFD4D10A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:887C4ADF271EA20795403AA1382FF67F6E7C97AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

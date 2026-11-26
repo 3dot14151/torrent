@@ -19,8 +19,7 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 ```bash
 magnet:?xt=urn:btih:BF7FF018AB047C65300EDF6B93EE589E16C9C25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shogun: Total War – это стратегический симулятор к�
 ```bash
 magnet:?xt=urn:btih:18C212DF2E25A617ADE36640079C652A5AF4BBF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

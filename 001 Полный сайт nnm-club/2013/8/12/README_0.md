@@ -18,8 +18,7 @@ David Forbes - Exist (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:BA4548C04947CBE99EBFA892EFC1D881710079B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Nativo - A New World (2000) [MP3|192 кб/с]<Instrumental, Native american>
 ```bash
 magnet:?xt=urn:btih:CD9361C2121565F50023773108402F1FF33DA8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ James Dymond - Slingshot (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:91B3DE3DA14EDCF5736C781ACE96F2386A38B4F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DEE80347176C0B87A34D513520319EF924B99CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Skin & Ink - американский журнал об искусстве и и
 ```bash
 magnet:?xt=urn:btih:BCDF3B7345BEE2949097CCA67AB4C152597CBB21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Jimmy Galle - Chocola (incl Airwave Remix) (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:17567B47F8203873255C4509F310E88FC3B0D4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Steve Coleman and Five Elements - Weaving Symbolics (2006) 2CD [FLAC|Lossless]<C
 ```bash
 magnet:?xt=urn:btih:85A0634F28BB2200DA5A354BBCE53652CF11B1FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:660069C5B77AB6125ADA27771DD4E4680E122A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ Sonny Stitt with Art Blakey & The Jazz Messengers - In Walked Sonny (1975) [MP3|
 ```bash
 magnet:?xt=urn:btih:5FA509EB9A92A764C166B0A4F392A27A66348D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ History Channel: Ледовый путь дальнобойщиков (Сезо�
 ```bash
 magnet:?xt=urn:btih:EB7A8EC0ED4E985BA894624AC590E26A6FB66D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ Armin van Buuren - A State of Trance 625 (2013) [MP3|320 кб/с]<Trance, Progre
 ```bash
 magnet:?xt=urn:btih:EDA25616FC643435609884617FA1E29C5F94A861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ Total Tattoo - английский журнал о татуировках. Вы
 ```bash
 magnet:?xt=urn:btih:7C995860EE65EDB53512EE868960F41968F79325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Tangle - Mirage (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:DBB42DF8AEE08782BB7FCFE46A85088C70355174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:E34F17D1B6DC8F0FD36425FA492BE241F086E687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Discovery: Суперяхты. Серия №6 / Superyachts (2012) SATRip
 ```bash
 magnet:?xt=urn:btih:28CCB3D7DA2FF07D357A694F72D6D5A7208BAE60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ History Channel: Ледовый путь дальнобойщиков (Сезо�
 ```bash
 magnet:?xt=urn:btih:8F0B01BBBAB3392C63C6B54C80A161243FB90EB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ Maxthon для Windows использует уникальный двухдви�
 ```bash
 magnet:?xt=urn:btih:31C4251D6CF646742E1164B007615E31CEDE1DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04E63ACD8C26102F355AAEFAC0A9039DEC6C9781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ Bigasoft MKV Converter - мощная программа, которая пом�
 ```bash
 magnet:?xt=urn:btih:6B5FE2BA497EEF91D9912068C72E4F9F7E26DACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ CD-1:
 ```bash
 magnet:?xt=urn:btih:E6DE07729D1400692A824F8855F0189DA70FC1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +612,7 @@ VA - German TOP 100 Зарубежный чарт Vol.9 (2013) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:42726F9A0C802CDB53E5F2641CC0B65C71803D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AEAC7B481BA9AEA3751077ADDB3DA3C808EF8AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AE82F3AD38805FA7D2B475C35F46CAD95FC95CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +697,7 @@ Renaissance - Grandine Il Vento (2013) [FLAC|Lossless]<Symphonic Progressive Roc
 ```bash
 magnet:?xt=urn:btih:60BAD57CCBD070AA84962E5CA11F3868E1F44B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA282A44188BC4A5A54B5973136C4AEB10BD9C43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

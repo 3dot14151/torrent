@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:10E72EEF438DB284BD094D8DC698BF896FE6D0A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A60EC89BE3E71A8A678235794CFBD1E90DAD9B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Designed around the most up-to-date theories of language acquisition, English fo
 ```bash
 magnet:?xt=urn:btih:1B4CBE7DC6F2407754A70EDE8986CE7B91DBE39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ The quick and intuitive way to learn and recall everyday vocabulary in English, 
 ```bash
 magnet:?xt=urn:btih:2256CE3DD8C378169A1172AC620FBD342EEB70E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Using full color photographs and artworks to display and label all the elements 
 ```bash
 magnet:?xt=urn:btih:F21A40C5E89C68E501C89457AE5D5CE78718EF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

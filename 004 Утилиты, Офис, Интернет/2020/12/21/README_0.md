@@ -19,8 +19,7 @@ Smarty Uninstaller - простой в использовании инструм
 ```bash
 magnet:?xt=urn:btih:2C214CC65F6D455E254D9263BC9BB90957AB2494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

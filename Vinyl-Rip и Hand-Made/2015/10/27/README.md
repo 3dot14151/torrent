@@ -22,8 +22,7 @@ Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990
 ```bash
 magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

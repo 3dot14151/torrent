@@ -19,8 +19,7 @@ Start Menu X — профессиональная замена системно�
 ```bash
 magnet:?xt=urn:btih:9369A52B1FB6AF46F837638AF0CC13EBBAFB4278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Midori – легкий и быстрый веб-браузер для Windows �
 ```bash
 magnet:?xt=urn:btih:7236F40B449AFF2DE4F9F1CADFE93C44CB6078ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

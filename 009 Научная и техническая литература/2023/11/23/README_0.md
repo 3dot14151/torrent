@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ED4A3E95B0B9ED24BC6F1330F30BF7145FF3DA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Anna Gandrabura | Grammar Phrasebook (2023) [PDF]
 ```bash
 magnet:?xt=urn:btih:EED6B9DCC85FB3944A7580C92501C06FCC3C63AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A91F5676B2E6CD7355A8885B853835451EEE0590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

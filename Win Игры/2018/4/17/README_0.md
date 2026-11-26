@@ -19,8 +19,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0.20180416.01) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F4EE8995BC43BE2362F77742C526523B5D4E8E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

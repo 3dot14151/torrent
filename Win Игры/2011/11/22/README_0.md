@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AE83CBE0283B08CBC04E3750EE3CACEB53889D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RACE Injection [Ru] (Lossless Repack) 2011 | R.G. Packers
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ L. A. Noire The Complete Edition [Multi6\-] (L) 2011 | SKiDROW
 ```bash
 magnet:?xt=urn:btih:1B6E4BCB7926DDFE1D9CBE4FAE63B45217849036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

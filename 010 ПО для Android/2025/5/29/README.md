@@ -19,8 +19,7 @@ Easy Voice Recorder Pro ваш ежедневный компаньон для з
 ```bash
 magnet:?xt=urn:btih:CCC38F660C3B16920D350BEE04DB3E5947395918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:6A3AC4DE5F92EB0C0C9ABE6EF2BC315823A0C735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VivaCut для Android - это профессиональный видеоре�
 ```bash
 magnet:?xt=urn:btih:90769E40D2FD3965E2B1B12D15DEEB1019E4FCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

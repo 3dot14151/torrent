@@ -19,8 +19,7 @@ Cadenza 3: Havana Nights / Каденция 3: Гаванские ночи (2016
 ```bash
 magnet:?xt=urn:btih:CAE45349B4DB253062C0B054A8059EA349C987D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Two Worlds II / Два Мира 2 (2010) [Multi] (2.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:3A726EDFFC704100AFAC619B19F5394585A30588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MotoGP 17 продолжит серию игр о Чемпионате мира 
 ```bash
 magnet:?xt=urn:btih:12CEDCA7387AC34B51FE1D993F0FE8C41897FD33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

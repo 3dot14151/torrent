@@ -19,8 +19,7 @@ Mystery of the Ancients 4: Deadly Cold / Тайны древности 4: Сме
 ```bash
 magnet:?xt=urn:btih:93E9E9F9EF2B8E8C2C0631EE26CF7E7BC84523D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

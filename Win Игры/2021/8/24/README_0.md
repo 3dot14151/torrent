@@ -19,8 +19,7 @@ Living Legends 9: Voice of the Sea / Живые легенды 9: Голос м�
 ```bash
 magnet:?xt=urn:btih:1B0ACE1404DAD3E8FFFFEA1621B707871F6A9AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Inside (2016) [Ru/Multi] (10) License GOG
 ```bash
 magnet:?xt=urn:btih:248ED5F36C500952ED1A08FF392C9729DADDC163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:655DA1599016A74AE194BD928624AC4EAC030D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

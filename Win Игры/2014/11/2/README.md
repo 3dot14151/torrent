@@ -19,8 +19,7 @@ Marlow Briggs and The Mask of Death (2013) [En] (1.0 upd3) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:D52EA60704AA885493692BB648DB4A0D5F6505A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ F1 2014 (2014) [Ru/En] (1.0.0.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:14A100C5A91714DDE7E4A2D9E4973FF2ED14EC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

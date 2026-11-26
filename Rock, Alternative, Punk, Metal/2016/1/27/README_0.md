@@ -22,8 +22,7 @@ Carsten Lizard Schulz Syndicate - The Day The Earth Stopped Turning (2015) 2CD [
 ```bash
 magnet:?xt=urn:btih:727E1139D078A745EA84DBB66EAFB3D2AC867224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Suede - Night Thoughts  (2016) Deluxe Edition [MP3|320 кб/с] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:42BC5AF5580DB1F53D7CBC6A567FF89B2293289B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Serenity - Codex Atlanticus (2016) Japanese Edition [MP3|320 кб/с] <Symphonic
 ```bash
 magnet:?xt=urn:btih:82D9B65A814652261BB6FF81148AEA7988FE0C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0E0ACCE93EA3450248BF480F7F515F00546D5B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF314B04BF40B7F5290089C059AE25F138BA4237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

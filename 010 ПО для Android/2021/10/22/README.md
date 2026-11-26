@@ -19,8 +19,7 @@ Shortcut Maker - это приложение позволяющее создав
 ```bash
 magnet:?xt=urn:btih:404DBF108339E65993C016BA51D9952BCA1EAB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

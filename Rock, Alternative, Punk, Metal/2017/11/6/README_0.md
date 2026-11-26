@@ -22,8 +22,7 @@ Tyler Bryant & The Shakedown - Tyler Bryant & The Shakedown (2017) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:CA2D85970E01E8393822EC5983D5365860A1354C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ David Cross and Robert Fripp - Starless Starlight (2015) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:175976B66A720E9C38633EA7B8CAAAAFBF678388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Iconic Eye - Into The Light (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:90762FD186FC7F037A0AB5184B31377B04A482E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Toto - 13 Studio Albums (1978-2015) CD [MP3|320 Kbps] <Classic Rock, Soft Rock, 
 ```bash
 magnet:?xt=urn:btih:96AD54F7BD8F50A311BF698E94CB3D78B4E43B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Boston - 6 Studio Albums, 2 Live, 1 Compilation (1976 - 2014) [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:DDBB26F17BF899DD859FA1D2692F3BE3665D1838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ BlueLife Hosts editor - бесплатная утилита выступающа
 ```bash
 magnet:?xt=urn:btih:8863EE4CFA24AA0FCB550478E5B65920A04578E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

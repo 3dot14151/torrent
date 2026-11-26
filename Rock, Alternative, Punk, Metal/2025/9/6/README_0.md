@@ -22,8 +22,7 @@ Queen - Under The Covers & Over The Moon (2025) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:DD81FB184A20F53FBA2A9C9097D0A8F02454212F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Glenn Hughes - Chosen (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4ADDE54B211D26F5579D979417D262AF26416296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Primal Fear - Domination (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Power
 ```bash
 magnet:?xt=urn:btih:C15E2BCC6D011095F061CE79C2C9BDB0700D9632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Slipknot - Slipknot (1999) 25th Anniversary Edition, Reissue, Remastered, 2025, 
 ```bash
 magnet:?xt=urn:btih:70436A42C34CF456E2175A89E2B5AF8FF0B19345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Primal Fear - Domination (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:A4E8B96E03DAED2666E3B6052D6C25FD06F2A2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Slipknot - Slipknot (1999) 25th Anniversary Edition, Reissue, Remastered, 2025, 
 ```bash
 magnet:?xt=urn:btih:8C5FBD50FBFA9A03FED12573EF5F24EB70A5B67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Violator - Unholy Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:2EFADDE70898D1B6F5EE6E8F456424EC1115DDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

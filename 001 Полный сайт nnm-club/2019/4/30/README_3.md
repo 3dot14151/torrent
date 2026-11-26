@@ -18,8 +18,7 @@ Transport Fever - это железнодорожная экономическа
 ```bash
 magnet:?xt=urn:btih:F7E63DA78973E2FDB66FF2D139CBD53510248CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Windows 10 24in1 (x86/x64) +/- Office 2019 by SmokieBlahBlah 30.04.19 [Ru/En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

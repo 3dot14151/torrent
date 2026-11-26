@@ -19,8 +19,7 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:D4D3D0DE77567A837DF4B11B43652CC0AD4BE27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ales of Monkey Island Complete Pack – интереснейший компью�
 ```bash
 magnet:?xt=urn:btih:85A9FF06DABDA7C4D6387EA3DE7413923A6A0FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

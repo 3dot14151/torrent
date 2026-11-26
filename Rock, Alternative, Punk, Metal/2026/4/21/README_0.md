@@ -22,8 +22,7 @@ Carcass - The Best Of Carcass (2016) Compilation [FLAC|Lossless|image + .cue] <D
 ```bash
 magnet:?xt=urn:btih:CC47838DB56C5CA17BEC46098B8D616275463069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ De Venom Natura — самое смелое воплощение группы н
 ```bash
 magnet:?xt=urn:btih:17051301242FB8ECA5C64C49B13313369D3BF635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Kill Or Cure - The Prisoner (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D0A583801CAAF99831D66E2DD7555B32ED99F986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Emmylou Harris - The Ballad Of Sally Rose (1985) [FLAC|Lossless|image + .cue] <F
 ```bash
 magnet:?xt=urn:btih:392624587C2ADC0BA039B154EF4B199C63C09601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

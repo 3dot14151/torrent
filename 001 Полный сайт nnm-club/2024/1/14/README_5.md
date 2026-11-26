@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DDF665A549C7ABD964AF3F159BC4638604FAC086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Care Of Night - Love Equals War (2018) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:6B9542A9D203C8A835DA30C07A74CB402265B70C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Edge Of The Blade - Trick Of The Light (2023) [FLAC|Lossless|image + .cue] <Melo
 ```bash
 magnet:?xt=urn:btih:6B63C107CF70237E119299D94519D832FEFCF655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Infant Island - Obsidian Wreath (2024) [FLAC|Lossless|WEB-DL|tracks] <Screamo, H
 ```bash
 magnet:?xt=urn:btih:FB2BE31B89E0743733EC8F66F3949E463C312E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Navicat for Oracle — идеальное решение для админист
 ```bash
 magnet:?xt=urn:btih:083760C3D4D18A677B0F860E25DB01B55E17CCE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Text Workflow 1.8.1 [En]
 ```bash
 magnet:?xt=urn:btih:91E29E3F3D6B2BF3788E38D5EBA8BCB8A4D0CBF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Navicat for SQLite on Mac 16.3.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9FF47E6C9EE29C8C9FB55B8198F97543847F5299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Navicat для Redis — это простой в использовании в�
 ```bash
 magnet:?xt=urn:btih:C83A93C485D98F67268D701834D6666247CCDBFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Stan Getz - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <West Coast Jazz,
 ```bash
 magnet:?xt=urn:btih:FA17A464DA040E79EBAC1B825FAF1C84E20BF78D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ El Reno Renardo - Regreso al Metalverso (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:BCC93E86C554D095C525E7FCACF312E62DC5CEFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ El Reno Renardo - Regreso al Metalverso (2024) [FLAC|Lossless|WEB-DL|tracks] <He
 ```bash
 magnet:?xt=urn:btih:89807435548C2232FB6277BEF52013D981810DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Navagon - Prepare To Meet Thy God (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:57A43572BE83E00C6CCF4425B49A9FE93CF0D1AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Bob Dylan - Playlist: The Very Best Of Bob Dylan '60s (2008) [MP3|128-192 kbps]<
 ```bash
 magnet:?xt=urn:btih:CEF3FCBB6976ACDFA87F2D24FBBCA18C9BD9BC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

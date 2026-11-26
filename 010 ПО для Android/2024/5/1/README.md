@@ -19,8 +19,7 @@ Listen Audiobook Player v5.2.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5C1CE0C6C367593BBD03957AF443136E6B12C746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2ED408CE2B6F2B75756349D6F73C10FD930943D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ ToonMe v0.7.7 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:26E72F203E8E793C24503793E16FBA8898912727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

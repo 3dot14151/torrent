@@ -18,8 +18,7 @@ World of Tanks: Hard Cheat ModPack / World of Tanks: Читерский модп
 ```bash
 magnet:?xt=urn:btih:779C95275D9653FFC5030F6BAD1C4C83213A4292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

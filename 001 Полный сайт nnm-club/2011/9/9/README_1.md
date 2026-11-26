@@ -27,8 +27,7 @@ Jurgen Muller - Science Of The Sea (2011) [MP3|320 kbps]<Electronic, Chill Out>
 ```bash
 magnet:?xt=urn:btih:7756D359C5B503CA43DDB229014AA7B2F5F0DB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71B8E2D3DA1B2812D799E6488348D33522F1A046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Win7codecs - это полный набор кодеков для Windows 7. В 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Jeff Chaz - In Exile (2006) [MP3|320 kbps]<New Orleans blues>
 ```bash
 magnet:?xt=urn:btih:09EDC1C559C43EB4935B707AD8964BD4F6E2FF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Empire - 4 Albums (2001-2007) [MP3|320 kbps]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Living Loud - Living Loud (2004) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:68F294AF336E9DEDBE521DE640BC6CCC875F3D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F41EBAF96D7D0E8E57CB71AD29A6582A7031B436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ VA - Автодискотека Часть 3 (2011) [MP3|256 kbps]<Pop ,Dance>
 ```bash
 magnet:?xt=urn:btih:C01ABA693DAE23260E05C1C36120F2DA4F4E7B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ Big Pete Pearson - The Screamer (2009) [MP3|320 kbps]<Electric Chicago blues>
 ```bash
 magnet:?xt=urn:btih:FD6DB81463896AF7C63F968537F7212C96A7F3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Sexy Girls v.3
 ```bash
 magnet:?xt=urn:btih:42BC03BC1365C8999D73F33F587F7A509FCE88F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ VA - Diventa Island Guide (Midnight Chill Guide) (2011) [MP3|320 kbps]<Downtempo
 ```bash
 magnet:?xt=urn:btih:544751A6B530334F5A032AF99D732E8F8FF89CDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ CD1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:298B75038D84E49588E29D499ACE9F89FE39614B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F44BCD01831EC9538B7CA75991F1D2C6515D47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32504E756689DEB047FCE5D3FACA078946049F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ Viktor Lazlo - Pleurer des rivières (2004) [MP3|320 kbps]<Jazz, Soul>
 ```bash
 magnet:?xt=urn:btih:43248C217865FF46C43F34551D9166000E767513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ VA - Blues Harp Heroes (2003) [MP3|320 kbps]<Electric Harmonica blues>
 ```bash
 magnet:?xt=urn:btih:485B94326E7D1257F81522DDB98FB1DF8C75712A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +575,7 @@ Colosseum II - 3 Albums (1976-1977) [MP3|320 kbps]<Jazz-Rock/Progressive Rock/Fu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +609,7 @@ Celine Roscheck - Electro String (2011) [MP3|320 kbps]<Lo-Fi, Violin>
 ```bash
 magnet:?xt=urn:btih:5A1C53BF2FF5515A3CFCCE45DBD73CFFA8DC3BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +643,7 @@ Jane Bogaert - 5th Dimension (2010) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:06C0149A02A9BE53AD48E5ADBA441F5031F23CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +675,7 @@ Armin van Buuren - A State of Trance 525 (08.09.2011)
 ```bash
 magnet:?xt=urn:btih:E0B09A7CE2FB432535B42B22D4F4C76D3CA4840D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +709,7 @@ Texas - Greatest Hits (2003) [MP3|320 kbps]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:673E5C912F2FFB3027FD4C6EE775EA376D49EC34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBB774CE2EF088F48564122D9AEC5354D1797AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +768,7 @@ VA - Главный сборник Радио Шансон 3 (2011) [MP3|128 kbp
 ```bash
 magnet:?xt=urn:btih:54F4422EDB1BE01ECF216E745B35AFDD73537AD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -818,8 +793,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A78E919C6623FE0C3676FFB3BFEFF5995842C6AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

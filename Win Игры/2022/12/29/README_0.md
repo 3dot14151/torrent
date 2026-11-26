@@ -19,8 +19,7 @@ Autonauts - симулятор конструирования сооружени
 ```bash
 magnet:?xt=urn:btih:8A3116713A93C61A2A5C73C91748CED23DF56B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Riddle of the Sphinx The Awakening дает возможность погуля�
 ```bash
 magnet:?xt=urn:btih:8B0047C7A01048C0FBE36258994E1910CFD19A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ashworld - мир выжженных солнцем земель, где вое�
 ```bash
 magnet:?xt=urn:btih:9D372B3734EB2385730DD5B1736FE3C75E793393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Titan Station погружает пользователей в приключе�
 ```bash
 magnet:?xt=urn:btih:21C825D38585A05F998E48C84A4BAAED7A54BD68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

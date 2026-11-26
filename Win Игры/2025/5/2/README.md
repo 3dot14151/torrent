@@ -19,8 +19,7 @@ Starless Abyss (2025) [Ru/Multi] (1.011) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F07C7B432490B03908FAC6002BA368A7C9AADFCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Scarlet Hollow – приключенческая хоррор-игра, что 
 ```bash
 magnet:?xt=urn:btih:4F432AA10CF2F636F824268A0831232B6727E255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ None Shall Intrude приглашает вас ощутить несравнен
 ```bash
 magnet:?xt=urn:btih:FD5906AD3DA3F1B5D851A50509F7939D950904A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:4D0E5025AC1CE2A58625192925B029329C4DCC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Space Grunts 2 - стратегическая игра, действие кот�
 ```bash
 magnet:?xt=urn:btih:DCBEF670BC2A125A2EFE529F63E7960BA7950FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SaGa Frontier 2 Remastered (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BADCDEF3F805046F5B2E2D320A977C28049E196E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Space Grunts - смесь аркадного шутера и пошаговог�
 ```bash
 magnet:?xt=urn:btih:BA70078E236F10997EF77DFA635953B839D5A0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sports: Renovations (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ACE7B9B1618EA51A72B5E4E6F5739F8FC20D1A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

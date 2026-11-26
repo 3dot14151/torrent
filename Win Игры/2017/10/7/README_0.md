@@ -19,8 +19,7 @@ Monopoly Plus с ее объемными городскими пейзажами
 ```bash
 magnet:?xt=urn:btih:2B4B68FEABE230C7D4FE143015EBD443FF473BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

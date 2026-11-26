@@ -21,8 +21,7 @@ Sproink / Спроинги (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:2E0CBEB5439DD2027A56F3A4279A4278FA5D8BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Alice in Wonderland / Алиса в стране чудес (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:B0F0BB4429B25A0F2A96DA7A57629C8B67884C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Island Tribe / За Семью Морями (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:39B11D437C097FE432A5ACAC877E7C075E40FC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Zen Bound 2 - Продолжение уникальной медитативно
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ King Arthur: The Roleplaying Wargame: The Druids Expansion [En] (L) 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Allen Farnham - 5th House (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Pos
 ```bash
 magnet:?xt=urn:btih:DA624322DDEB4162B7507D0C5907FD7755D0B8E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tales Of Dragonia (demo 1985):
 ```bash
 magnet:?xt=urn:btih:8E4B84736C90C21246DA34385F0A6265597AFDCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Duke Ellington And His Orchestra - Early Ellington (1927 - 1934) 1989, BMG Music
 ```bash
 magnet:?xt=urn:btih:3409345A6233FF4968F2E5D826721493FCDCC00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Horror on Black Heels - An Empty Throne (2014) [FLAC|Lossless|image + .cue] <Sym
 ```bash
 magnet:?xt=urn:btih:DB25AFC6CAC9233E0A3EDACBD4394F94377314A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Drifter - Reality Turns to Dust (1988) [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:7A6572D272B2EE89DC0C8B5C871FA26626C7B85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Trance Asylum Vol.9 (2020) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:C09317CB13355E49EB9CC2BB328BB9228DB7D9BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Trance Impact Vol. 4 (2020) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B9A80DEB21ADA08465D79D9D72633AC4332616F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Gwar - Blood Of Gods (2017) [FLAC|Lossless|image + .cue] <Thrash Metal, Hardcore
 ```bash
 magnet:?xt=urn:btih:96EE46A82EFD4242DC4706C1791C3A99BD07076A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Master of Typing - Мастер Печати на Китайском  7.3.1 [Mul
 ```bash
 magnet:?xt=urn:btih:BC3D80E7C72F6CDEAD09864437F7E104D405F0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Scrutiny проверит ваши изображения, ваши внутре
 ```bash
 magnet:?xt=urn:btih:81124C4DFAD61933B28A5A1569CFBC3B65DF026C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ VA - Trance Revolution vol.11 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
 ```bash
 magnet:?xt=urn:btih:CF9C437441A05B6A61B0542158E30B80BDEBA697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ VA - Trance Summer Season (2020) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:30A08EBAC61EA712C69D46EBA5172EF2452F191C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ Lowrider - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Desert, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:A56D7A27B06AC9ADA13CE44B3BA03DE43A2BA070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:047BD247A6A112138E51BCB06D51E21B9F0C7E01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ VA - Trance Generator 2 (2020) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:3599C4853090C0FC3598F7C3953E5FA1B00B7A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ VA - Trance Love Songs (2020) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:C16C03BFFF3E5603387B40807D8E4A0A3B0AC0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Master of Typing : Состязание 2 v8.5.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B7E91B75D0A517F7B619CC288717264C4A3F9F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ VA - Uplifting Trance Essentials Vol.4 (2020) [MP3|320 Kbps] <Trance, UpliftingT
 ```bash
 magnet:?xt=urn:btih:26464C64544E6A4E3661974EDB38F335DFE8CA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E400B12B0FB5C49229E2F200CCB6F7C3589E524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Bennetts British Superbike Championship — ведущий чемпионат п
 ```bash
 magnet:?xt=urn:btih:18B2EAD56A372921229DD69D91D42F0209E1473F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Blocs - простой способ создания красивых сайто
 ```bash
 magnet:?xt=urn:btih:AA00CCE389B33B7A51F993E598190AE96CE70382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ Mama's Boys - Power And Passion (1985) [FLAC|Lossless|image + .cue] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:8738A4A241F1C681603328C1444664CE971CEAE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ VA - Uplifting Trance Essentials Vol 3 (2020) [MP3|320 Kbps] <Trance, UpliftingT
 ```bash
 magnet:?xt=urn:btih:CE46236AFBAF1F65022DA60A228B826B2F48F83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7FBCAE4AF572DFBC648EC10D912E4C226D8CE5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38CB6B74D4ACFD787CBF3D269FA36723E965C5FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ Rebellion - A Tragedy In Steel Part II: Shakespeare's King Lear (2018) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:D9B4108717B707039E56B796F7383E23F865D7C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

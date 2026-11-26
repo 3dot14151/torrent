@@ -19,8 +19,7 @@ Fez — инди-игра разработанная независимой ст
 ```bash
 magnet:?xt=urn:btih:20D9DF7F09B2E5BF16CDAA7232666F5171FA30CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Transformers: Rise Of The Dark Spark связывает вселенные Cyber
 ```bash
 magnet:?xt=urn:btih:F619250372A64DDFE8CE6CC79FB47D89ABFD9692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

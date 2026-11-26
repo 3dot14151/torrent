@@ -21,8 +21,7 @@ Voyager Live X8  (легкий дистрибутив) [efi-amd64, amd64, i386] 
 ```bash
 magnet:?xt=urn:btih:D3EEC25C3FD490D21BA14DAC172B184F3B99BACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

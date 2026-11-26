@@ -19,8 +19,7 @@ Daniel Irvine | Build Your Own Test Framework: A Practical Guide to Writing Bett
 ```bash
 magnet:?xt=urn:btih:D46064E32D027230B54213F46B0C36FE3E643C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jamie Rumbelow | Building With Ethereum (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:836D63AB8F0B47DAEEBB286FF55AA683607A7B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Akshay Kulkarni и др. | Applied Recommender Systems with Python (2023) [PDF] 
 ```bash
 magnet:?xt=urn:btih:988A0065E4F11E884E31E37BE5A9ABB5C5F9A364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

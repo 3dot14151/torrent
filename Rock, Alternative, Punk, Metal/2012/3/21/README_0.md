@@ -24,8 +24,7 @@ I-Exist - Humanity Vol. 1 (2012) [MP3|320 кб/с]<Alt.Metal, Electronic, Alt.Ro
 ```bash
 magnet:?xt=urn:btih:F3A8FB144499251242790F5AFFDFD69AACE08910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Cynic - The Portal Tapes (2012) [FLAC|Lossless]<Progressive Metal / Experimental
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Cynic - The Portal Tapes (Compilation) (2012) [MP3|320 кб/с]<Progressive Meta
 ```bash
 magnet:?xt=urn:btih:AB6C0B6E9BF64508DBBC6254F452709BD30F271A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Three Dog Night - 10 альбомов [Дискография] (1969-1976) [MP3|
 ```bash
 magnet:?xt=urn:btih:8A3ACFD2E98B7A2C30871CC5168BA2382F61858C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Cannibal Corpse - 12 альбомов (1990 - 2012) [MP3|320 кб/с]<Brutal dea
 ```bash
 magnet:?xt=urn:btih:72D2E7120CB71D0177825D9BFA925B7E3C804DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Bruce Springsteen - Wrecking Ball (2012) [MP3|320 кб/с]<Folk Rock>
 ```bash
 magnet:?xt=urn:btih:B3261DBCB9D2D07443A6C2290DC4E20D3B0B5412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Work Of Art — хард-рок-группа из Стокгольма, Швец
 ```bash
 magnet:?xt=urn:btih:38FDDE8E1ABAE802FB00B59FD15911CDBD4C9597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

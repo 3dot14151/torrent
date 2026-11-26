@@ -20,8 +20,7 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:6158003BB5FC4F39C93B151E9B46C469375296DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B6A28168A95BD40372AB489ED752EAA6033DF73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Kamaya Painters - The Collected Works (2008) [FLAC|Lossless|WEB-DL]<Trance, Prog
 ```bash
 magnet:?xt=urn:btih:61B058ECD0AD686C8EF0C6E873387CFC7A78B6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBB67ADE46CCC0CD74863D2CAC730091D4164AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5D137A1D90AA130B7BF5183A21CF0299344F819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ VA - Hot Dance Summer Vol.3 (2014) [MP3|320 кб/с]<Dance, Club, House, Electro
 ```bash
 magnet:?xt=urn:btih:9E028F437E6A32F8403989770DD955888AEF73FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ r.roo - nothing (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Modern Classical, Gl
 ```bash
 magnet:?xt=urn:btih:140EAE0323BF9F1AC68EEA86A098CAA3C77D7722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BE78637AD951AFFD2B8C772E64AD45C7B6760BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1A776D61A7EA03F6292F97C8D7972385A3C0338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ Paul Rodgers - Electric (1999) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:C836D20821F7228242C126C7A6804B13396F5FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75DE4C76A441CE2DF5245EECAD63259ED6A5FF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A16E1A1596DCD555D25A089E07FFDF819F0861D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A1E69D66C78C53C2642A7B33DF727602C6B07A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +424,7 @@ Zaum - Oracles (2014) [MP3|320 кб/с]<Psychedelic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C3EF976F40B5BF561D134679AF74245DDD8D8070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ VA - Labyrinth Der Tone Vol.1-Vol.3: Deep & Tech House Music (2013) [mp3|320 к�
 ```bash
 magnet:?xt=urn:btih:527D7C90418D3A29D5FCDADC71454C6A467BA9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +492,7 @@ Eric Johnson - Up Close (2010) [FLAC|Lossless]<Instrumental Rock>
 ```bash
 magnet:?xt=urn:btih:4B3DE55AF906DE8A4C4D56A131701B07863756DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ Keeno - Life Cycle (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1B2B5F87820C1BCA74D71688F52477354EB990DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ The Dead Rabbitts - Shapeshifter (2014) [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:183023012946FE8DA2AB667782380DA4906B5EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1F41BFE8C09F740B8C72E2D4010A7018392F9E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ James Newton Howard - Кровавый алмаз / Blood Diamond (2006) [AAC|WE
 ```bash
 magnet:?xt=urn:btih:848A4B21043C269354B61B6BC2D23BDBC97C38F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ VA - Defcon 100 (2014) [FLAC|Lossless|WEB-DL]<Trance,Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:0D07C4D8728857686F4D0D844901733F87B3B9F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ Various Artists - Neuro Kinetics : Chapter 2 (2014) [FLAC|Lossless|WEB-DL]<Drum 
 ```bash
 magnet:?xt=urn:btih:2C7E3C2BDC0921003524326325692EA0A2AD0C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ Various Artists - Neuro Kinetics : Chapter 1 (2014) [FLAC|Lossless|WEB-DL]<Drum 
 ```bash
 magnet:?xt=urn:btih:5A2FEEB5367A04A6697C2355A6F7899416A02FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ Noisia - Purpose (2014) [MP3|320 кб/с]< Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D02B10EE7ECE20B6223E739BAB370463C85E1429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

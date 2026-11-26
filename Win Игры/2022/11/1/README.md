@@ -19,8 +19,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (2.0.4_01) License GOG
 ```bash
 magnet:?xt=urn:btih:BF5813EBD16EF0EF5BF84785F9F69EC0D6141107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bibots – это шутер с видом сверху, в жанре rogue lit
 ```bash
 magnet:?xt=urn:btih:7BA883A40AAE2D38E89B90C855C2AF1893543E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9F40C74DD0CF59E18CC555C6688379A287E3A416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ M. Evening / М. Ивнинг | Adobe Photoshop CC for Photographers / Adobe Pho
 ```bash
 magnet:?xt=urn:btih:E355E31A8516F74DC5E80C71F73CF87CD2F464D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ M. Evening / М. Ивнинг | Adobe Photoshop CS6 for Photographers / Adobe Ph
 ```bash
 magnet:?xt=urn:btih:DBC0453082BEB0226CF8C300B1FFD3BA76221633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Jeremy Keith | The Mobile Book by Smashing Magazine [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:02E33F3816C44B1AF3FA173BA08C6712F15A77B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69996174C32E4C37E3782A715096A71818BEE3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

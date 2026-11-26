@@ -19,8 +19,7 @@ Dreadful Tales 2: The Fire Within / Жуткие истории 2: Огонь в
 ```bash
 magnet:?xt=urn:btih:BE46763466ACF78AFF06023E1FFDAE68B426E005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ In'R'Voice - Magnetic (2010)
 ```bash
 magnet:?xt=urn:btih:71BBE0C01E50DD9AA0E580FC96AC760E63778300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ CD One
 ```bash
 magnet:?xt=urn:btih:EBED7CAFC5160032E8C6FC33F0D305FB53C94AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0BB6F264CB54AED0AB543008C9377A39328CA0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Falco Molecule 1.6 [En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Balkansky And Loop Stepwalker - Fraktals EP (2011) [MP3|320 kbps]<Drum & Bass, D
 ```bash
 magnet:?xt=urn:btih:FE50831A2C1CED0820991C9FECA32B82E0FB0C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C22757D3187B148FCAEC5A7AF8D60204F22A16EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ VA - Danny Howells Pres: Phase One (2011) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:5A330474A1594AE0252410BC1C56B732C55CC8A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Top 10 Progressive House (08.04.2011) [MP3|320 kbps]<Progressive House, Hou
 ```bash
 magnet:?xt=urn:btih:51160C03B50D718760C483EE5FFEFF52D04A4C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3583720FA3A8416FD710F26679DB13F14DBE1B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADF72869D7C0980EC005B616CCB93277D560BA06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ VA - Музыкайф: Наше Новое Лучшее (2011) [MP3|256 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:B823B0AECF2D1CCD38305A94EFF1F2A9D4A03DC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D2CACF7617DCB741D5515E3A5B2D3452E273981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ VA - Smooth Jazz Number Ones (2009) [MP3|192-320 kbps]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:DEF3E65B86C076105A0AFEF862FB42056A80AD77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4386B50A03F6E08C98FC25CDBCDF1ED2614D1F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ VA - The Official UK Top 40 Singles Chart (03.04.2011) [MP3|320 kbps]<Pop, Dance
 ```bash
 magnet:?xt=urn:btih:E8DD3DD11FF7C9A1CBB367501BE3A661330F3F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ Niko S Echo - Head On (2011)
 ```bash
 magnet:?xt=urn:btih:80AE9F734DC19ACAF6382C2477C82D99C3A700FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ Gloria Estefan - Alma Caribena - Caribbean Soul, Unwrapped, 90 millas (2000,2003
 ```bash
 magnet:?xt=urn:btih:B683BD1F2F75C9645D86733CE58450837DB24850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:200D7F55BFF8CF38AD093E868544378856BC4934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ VA - Vocal Trance Collection Vol.57 (09.04.2011) [MP3|320 kbps]<Trance, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:4A324CD7849E8B6E5598EE0FFE1CFDB268EF0E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +587,7 @@ DJ Flash - Effect (2011) [MP3|320 kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:707F4347339E11AB4DB25AC128615340D17657F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +612,7 @@ M.I.K.E. presents Plastic Boy - Plastic Infusion (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:FCDE0D0F81EBFEF1FDC020CA2A76E6F7251A61F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ VA - Клубная дискотека Record Vol.12 50/50 (2011) [MP3|256-320 k
 ```bash
 magnet:?xt=urn:btih:385FA73C74E34A2CD60DDA71C5A5A4EA46AC982B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ Playboy — легендарный журнал для мужчин, основ�
 ```bash
 magnet:?xt=urn:btih:D3939A44423E8F0BBC5308D75B2EEBEE58DAEDD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ Top Gёrl - это первый конкурс красоты с попытко�
 ```bash
 magnet:?xt=urn:btih:7FA3B48DF5F1AAE762F7001262300183FBB37DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9E0B43D1BC94A876ED0EFE92FC8B49DAD8DB654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

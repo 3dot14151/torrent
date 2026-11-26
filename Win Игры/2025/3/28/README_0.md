@@ -19,8 +19,7 @@ Spirit City: Lofi Sessions - это не совсем обычная адвен�
 ```bash
 magnet:?xt=urn:btih:18ED44995B18F68B67752C52C594CCBA9DDCD3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.40.14/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:E734B0654F09CD45A087E7000BE1D2144C3E366F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B76CB151148D23A369561A8BE74DC8A5B6BF9A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MOOD - это мрачная визуальная новелла, с элеме�
 ```bash
 magnet:?xt=urn:btih:9C30F8A480F891CB8BF5CF40A45C4083D149948F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ryse: Son of Rome рассказывает историю Мариуса Тит�
 ```bash
 magnet:?xt=urn:btih:7EF1262D39343D23F9F31747ECD084EA2B064924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Nordhold - это захватывающая Tower Defense игра, идеал�
 ```bash
 magnet:?xt=urn:btih:59613E8A9C1236DC072DB1EF3BBB291FE0BCD921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ I Am Future: Cozy Apocalypse Survival (2024) [Ru/Multi] (1.2.0.009r) Repack Let'
 ```bash
 magnet:?xt=urn:btih:C393CFFCDBF70BD9D8781D048F953EC8AC27DDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E66285476E2CFE9715A4C5B7D15A2F7FF097B328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.0.120/dlc) Repack FitGirl [Resistance
 ```bash
 magnet:?xt=urn:btih:31558EC268AD493A6CC754AC00A57AD1FA98BDD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.8.0.87535/dlc) Repack Let'sРlay [Defin
 ```bash
 magnet:?xt=urn:btih:7F0BDD588A5976E9DBD6EBBF74FAFF36BE3B6236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Ai Limit (2025) [Ru/Multi] (build 17884331/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:33C5B24B42B0A46F04BE01A1AF7E951202AD464F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Harmony Chronicles 3: Cat Out of the Bag / Хроники Гармонии 3: К
 ```bash
 magnet:?xt=urn:btih:89F4C88CA67C0A60A111A2F80CC28B6E233D58C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Enchanted Stories: Mystic Woods / Зачарованные Истории: Та�
 ```bash
 magnet:?xt=urn:btih:99351FD8A958F2BBB4321303A5B9A85A73B5EA37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Within Silence - Gallery Of Life (2015) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:FC4CED3AEAD5E9DF4BA23526F5E57B5196424583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73CB0877BC39F82FF998EC0FDC242BC719B5DD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Powerwolf - Army Of The Night (2015) Single [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:24E80FF167ECD429530C985C2B0CA38CA8C87D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Celldweller - Transmissions: Vol. 02 (2015) [MP3|320 кб/с]<Industrial Metal, 
 ```bash
 magnet:?xt=urn:btih:1D35437B3ECAC109A811AA8E4068D5EA36C0A26A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Leonard Cohen - Can't Forget: A Souvenir Of The Grand Tour (2015) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:E867897CAA39274E54059929191AF0B40CE172F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Eric Clapton - Forever Man (2015) 3CD [FLAC|Lossless]<Rock, Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:821A95E6DEC6D0477650A0F2343A54361F78CF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Cynic - Traced In Air (2008) Reissue, Remastered, 2019, Season Of Mist, Remixed 
 ```bash
 magnet:?xt=urn:btih:CA5D9668ED0A3D4A47EFD9646FFCFDBB4F775416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

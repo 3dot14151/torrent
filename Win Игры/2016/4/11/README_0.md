@@ -19,8 +19,7 @@ Caravanserail - это аркадная торговая стратегия в �
 ```bash
 magnet:?xt=urn:btih:C26C4E46AF3F66482DB100FC718767493064138F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resilience: Wave Survival – игроку предстоит выжить в г
 ```bash
 magnet:?xt=urn:btih:02495FCAC02E3A59380651819A5606F2450387CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Guilty Gear 2: Overture – очередная часть серии «Guilty Ge
 ```bash
 magnet:?xt=urn:btih:82959BA93E50A5330641B34E8C70CED4AE66EB94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

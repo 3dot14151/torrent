@@ -22,8 +22,7 @@ A4 Get Me To The Church On Time(   Читать дальше...   )Жанр: Pop
 ```bash
 magnet:?xt=urn:btih:48CC122481EBADF9A26BC30B274DDFBE5072DCCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Diamond(   Читать дальше...   )Жанр: Jazz, Easy ListeningПро�
 ```bash
 magnet:?xt=urn:btih:2D96B1159D7CBF242F59C47AC06928BA6D7CF77F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

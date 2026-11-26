@@ -19,8 +19,7 @@ vJoy – драйвер виртуального устройства, эмул�
 ```bash
 magnet:?xt=urn:btih:4E5E71CD2626A058BA51E7D6663C2090F233D7EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

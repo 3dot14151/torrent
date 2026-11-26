@@ -19,8 +19,7 @@ Ventusky: Прогноз погоды v47.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C202E279CA0D7BF5CA60B58C12474629BCD27D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:967152A8663FF92DC65E28932A4BCD32EBE0DFC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VRadio - Online Radio App v2.8.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:251B4C14765852FD650D651FA4592DC2EF441D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Squid - рукописные заметки v4.4.1 Mod by Alex.Strannik [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:E11AB09DF754CA02ACBDD92458379F4DB8522BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Taskito - это приложение для управления задачам
 ```bash
 magnet:?xt=urn:btih:0D57177042E450BDD18227F515E47C558EDCC137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Parrot Timer / Кухонный таймер v2.10.0 Mod by Alex.Strannik [Multi
 ```bash
 magnet:?xt=urn:btih:76922B090ABCEFC10ADE59ED168604B7FAB5EAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ STEEZY - танцевальная студия №1 на вашем устрой
 ```bash
 magnet:?xt=urn:btih:7FA650BFBD4BA67F76A41FC7DFD6F549C9820C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:998B710C85B96E5D0F454841CC739AAEF37B2B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

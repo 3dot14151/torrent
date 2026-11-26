@@ -19,8 +19,7 @@ Relax Rain: sleeping sounds v9.0.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3B1DC488455EF4CB6427DEA4C46126E7D8FB9626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mi Home - это приложение для управления умным д�
 ```bash
 magnet:?xt=urn:btih:BF3FBFE28C897CB20938E720FDEDB25D1161B639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

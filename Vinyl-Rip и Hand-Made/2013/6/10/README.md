@@ -22,8 +22,7 @@ Secret Service - Collection (7 LP) (1979-1987) [FLAC 2.0 24/192|image(Vinyl-Rip)
 ```bash
 magnet:?xt=urn:btih:206AB242BB408334705B6533E3C25AE56E6033B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Megadeth — американская трэш-метал-группа из го
 ```bash
 magnet:?xt=urn:btih:C21F083C59B53EBF0BFE393DC21E1CF754F9960A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

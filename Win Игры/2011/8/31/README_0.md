@@ -23,8 +23,7 @@ Lunatic Rave 2 совместима с BMS и BME форматами и испо
 ```bash
 magnet:?xt=urn:btih:A72F3180BB87C46C86BE3812652B8EF173681528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Exodus from the Earth / Исход с Земли [Ru/En] (RePack) 2008 | R.G. Ca
 ```bash
 magnet:?xt=urn:btih:99DD77BCCDE29EF2A489D530230CF8DB28B824CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Death to Spies / Смерть шпионам Дилогия  [Ru] (RePack) 2007-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Achron [En] (L) 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:40130C6A858F93E0C5632EF88DE89D8175ECD15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Gatling Gears [En] (RePack) 2011 | DyNaMiTe
 ```bash
 magnet:?xt=urn:btih:2CE107001476AB8A56CC3607DFF5AD4F24F5ACA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

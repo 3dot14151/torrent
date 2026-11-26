@@ -27,8 +27,7 @@ Essence of Sorrow - Reflections of the Obscure (2006) Japan [FLAC|Lossless]<Powe
 ```bash
 magnet:?xt=urn:btih:482C29A816A6094676DC3107C21C88A7E94309F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Axxis - Utopia (2009) [APE|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EC51846538760D4773487C3813D7FE874ED9BB6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Anklebiter - Weight Of A Pronoun (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Ind
 ```bash
 magnet:?xt=urn:btih:AEB4E3358EC21AC032CE4CE2BA3E0B68B14051FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ The Picturebooks - Imaginary Horse (2014) [MP3|320 кб/с]<Alternative Rock, St
 ```bash
 magnet:?xt=urn:btih:E8149958A7519E0D57BE30523DEEEC8AD5F07EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Marcus Johnson - The Phoenix (2007) [FLAC|Lossless]<Smooth Jazz, Contemporary Ja
 ```bash
 magnet:?xt=urn:btih:A00B5C86BB5F90E3A754C0C9FE1AF5C1892D2958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3AF780782C4D67FD44F5F3287EF28DFCD272E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Samantha Fish - Runaway (2011) [MP3|320 кб/с]<Modern Electric Blues>
 ```bash
 magnet:?xt=urn:btih:97675C9344F6D8A3ECC7194BE8265F5EF2AF7798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED1B74178F44E5E1E28DCEB0D779E4B29D545B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Redemption - The Fullness of Time (2005) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:1F2752940A657CF5AC34018A34F66D705F538F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +312,7 @@ VA - Клубные Новинки Vol.505 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:B49E66B500918DC50E19FB78BE813920B2685FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +346,7 @@ The Head Cat - Fool's Paradise (2006) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:BE515E93D66408BCAE685696CD5E7F21B9A5A382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +380,7 @@ VA - Sexy Lounge Selection (2014) [MP3|320 кб/с]<Electronic, Downtempo, Loung
 ```bash
 magnet:?xt=urn:btih:CCE4D792136A5F653914450FE4D5B695848F17B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +405,7 @@ NG: Генералы / The War Generals (2014) IPTVRip (Серия 1)
 ```bash
 magnet:?xt=urn:btih:7745B00278359A2E6F8ABE11FE139CAEC38DB0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81D1D056178A4E93A81EC8277066B8166B790C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +463,7 @@ New Medicine американская рок-группа из Медины, ш�
 ```bash
 magnet:?xt=urn:btih:0BFBFB981539D4D1153B8EE60EC738CE3266CFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +497,7 @@ Onkel Tom - Н.Е.L.D. (2014) Limited Edition [FLAC|Lossless]<Beer Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:2CAC845CEB8166EE1AB4FF8E29F10FB2A3B3268F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +531,7 @@ VA - 50 Top Charts Fall 2014 (2014) [MP3|320 кб/с]<Dance, House>
 ```bash
 magnet:?xt=urn:btih:ED0EC8F941E07533BBEED42F90C6B086FE8BCF60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E10B00C54665CFD0C3139AB334E32931C1C06FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C3493FF673219482635D95388B6A19D0F158604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7782F4153661AACCE8AE2A67A872E9837CD3B601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +634,7 @@ VA - Le Fashionista (Downtempo & Deep House) (2014) [MP3|320 кб/с]<Downtempo,
 ```bash
 magnet:?xt=urn:btih:9F7F2C295CB5D5D87C2CC6981E1B1204C4DAF73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +668,7 @@ Tony Williams - Wilderness (1996) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:617425BCFD6D4436E765E266595A417FAA676B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +700,7 @@ Marcus - Marcus (1976) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7682F3E9AAFEA59C8C5C55B6EF6B8D0FD06504C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +734,7 @@ Escapist - Hidden Memories (2013) [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:AA02132780ED455D3D9830D293A1692D628B6658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +761,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC775DDEBC141023EFE293A176B72367C0A4BB80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -811,8 +786,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A9567CD116A3471F618BF5512098E8549E9CBD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

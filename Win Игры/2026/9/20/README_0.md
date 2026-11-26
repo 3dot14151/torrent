@@ -19,8 +19,7 @@ Gunfire Reborn - это приключенческая многоуровнев�
 ```bash
 magnet:?xt=urn:btih:A8AB12C244A76899E25E75A24E9F0CF2607F8F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dune: Awakening - это эпическая игра в жанре выжива�
 ```bash
 magnet:?xt=urn:btih:065D6BD87C6E99DE4D60B412DB512732BD3EDAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ StarCraft Remastered - это обновленная версия знамени
 ```bash
 magnet:?xt=urn:btih:51250BB07F8DDB8F181640E5991DBD5A50F89AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BioEden (2026) [Ru/Multi] (1.2.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B9F5561425724959F9DCC7137D705D96E41EB02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

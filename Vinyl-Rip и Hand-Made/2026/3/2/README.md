@@ -22,8 +22,7 @@ Susperia - метал-группа из Ромерике, Норвегия, ос
 ```bash
 magnet:?xt=urn:btih:8F37722BBC0A536C5E3C7C791B0F0AA15540C4B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

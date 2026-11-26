@@ -19,8 +19,7 @@ Chimeras 5 Mark of Death / Химеры: Метка смерти (2017) [Ru] (1.
 ```bash
 magnet:?xt=urn:btih:5ADBDFDFF43C37ECEF72946B4CD550FA3A09A207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ STRAFE - это аркадный shoot'em'all шутер от первого л�
 ```bash
 magnet:?xt=urn:btih:29368A68692B8332112FA2EF35E871DB36DD9AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Remedy Entertainment подошла к созданию PC-версии реме
 ```bash
 magnet:?xt=urn:btih:4D0300F9BF5019CAC268DE87775786FF2EC275D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Broforce (2015) [En] (5399) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:45635C49D2F834D4B2F76EA4B5156050402B4D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Might and Magic: Clash of Heroes - является приквелом к Heroes
 ```bash
 magnet:?xt=urn:btih:CEE1BB906C5387CA431458F2D34C61A3530F03A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44F88FCFBFFF66F806FA8217E53D9C02909A9551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

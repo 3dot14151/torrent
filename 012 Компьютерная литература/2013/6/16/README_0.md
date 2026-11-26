@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D5BB5FED2EBBB83F45482DFCB55F335A4BCFD41B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Quark Software Inc | Руководство по QuarkXPress 9.2 [2011] [PDF]
 ```bash
 magnet:?xt=urn:btih:B7105FF5854CD25B4094C8C35B62B5CD349BB505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

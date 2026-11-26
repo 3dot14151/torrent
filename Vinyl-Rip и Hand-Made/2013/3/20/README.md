@@ -23,8 +23,7 @@ Mylene Farmer - Monkey Me (2012) [LPCM 2.0 96/24|Audio-DVD (VinylRip) <Internati
 ```bash
 magnet:?xt=urn:btih:D7F7B5AD3CA09CB765FE8D5D1328CA98C3DEEDA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

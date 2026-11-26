@@ -22,8 +22,7 @@ V-Ray GPU CUDA - совместимость с GPU и CPU(   Читать дал
 ```bash
 magnet:?xt=urn:btih:A282CE28645CBE70C38309FB07E2205711FE5B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Iridium Browser 116.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:92701A0F4F38090A28FB4FCF0589B0F1C45B8D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:87C5F045FF919A93C792EC7E764F44FF02B0A917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

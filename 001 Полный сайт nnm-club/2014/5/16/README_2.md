@@ -18,8 +18,7 @@ Photo Calendar Studio 2014 - программа для дизайна и печ�
 ```bash
 magnet:?xt=urn:btih:3E01FAAB91D0EE6CAC7CEAA4C5F0992ED643C54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BurnAware Professional - простая и в тоже время мощная �
 ```bash
 magnet:?xt=urn:btih:AFD8EA2D68CCE030EB6BA2EB73A2C7FF1ECCD8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F064553FC167E6EC8BA70AD7AB8B29FFB98B1C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D77DAFD5C20FA5D6F1DC980A2161D1866DDC2E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A618F214735914859893A5BB26E7260DCA4CDB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D0830ECE29B6F5F8F5448F9DA5BB4CCC81B861A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Calibre - программа для конвертации и хранения �
 ```bash
 magnet:?xt=urn:btih:4100C91CAC09BEAD3D80416CB0D75AFDBC69817F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:094558B258FA04DC0CE1A4DB1646112E8293BEA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAC0E83428EDCBF9F4F4E9C22DC996F95C8D7DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Strauss Familie - Radetzky March and Other Favorites (1996) [FLAC|Lossless]<Clas
 ```bash
 magnet:?xt=urn:btih:39555E693F47EA973B3D3A71F73DFE603A4F9496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Simple Plan - 4 Альбома (2002-2011) [MP3|320 кб/с]<Pop Punk>
 ```bash
 magnet:?xt=urn:btih:E8165673899CDEFD3F661CB77B84597206F813D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ Comedy Woman  (2014.05.16) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:B5E8A2B5B3A5D6A118602DEE60A9A60C7B9F13DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Photo Calendar Studio 2014 - программа для дизайна и печ�
 ```bash
 magnet:?xt=urn:btih:5F92B6B0644DCB62352B80090168C712776B21C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0856FD090E4B98DFAC6B0E6E0126D991A3F8D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:97CCF6F0588B23B1C11C0D607DF2C90E2B9571BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ NotesTab Pro — очень простое и удобное приложени�
 ```bash
 magnet:?xt=urn:btih:F9FDA2368B1A36C7CA4210A786FBDA49A7F2EA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07EC84A174CFFF998AA5EC86C93289FB2BA56DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Advanced System Optimizer — удобное в использовании пр�
 ```bash
 magnet:?xt=urn:btih:43FF5855DCED8B70E69D16D460EF01C01045D596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:608DF434502430AB3A22560C3EBADE4EAC533E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Shakira - 'Empire' Live @ iHeartRadio Music Awards (2014) HDTV [1080i]
 ```bash
 magnet:?xt=urn:btih:418BB1EA797E849B91D666E89D3F6D84611FB5FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EB7BA548209FFDBFE84BBE8E661FAA2736F5460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ David Arkenstone - Celtic Garden (2014) [FLAC|Lossless]<New Age, Celtic>
 ```bash
 magnet:?xt=urn:btih:E688D9C6C1298A87DE92C042E1BC8D4E753E8B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ Fotor - бесплатный инструмент для редактирова�
 ```bash
 magnet:?xt=urn:btih:43C5E4FA95263EE9751ED1EE8973F9D484386FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ Chibi Devi! / Chibi Devi! / Крошка-дьяволёнок! [2011, TV, 75] TV
 ```bash
 magnet:?xt=urn:btih:A5E53E6BBBE6DE6741F101B1CDD50F578010C784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ VA - Defected Presents: For The Love Of House (Vol.1 - Vol.2)(2013)[MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:44331A450CCB17BAB3DC79441FF923D41AABD0EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ Comedy Woman  (2014.05.16) SATRip
 ```bash
 magnet:?xt=urn:btih:DF905EA0A2B32954DEB19631D28A0AC43EC1E7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Colorize it v2.2.0 Mod by derrin [Multi]
 ```bash
 magnet:?xt=urn:btih:3DEF5AC551B37ABFF0F511C8141A5962B353F6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Denoise it - ИИ фоторедактор v1.2.0 Mod by srajawwal09 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C781A04E6A34A95FD359B57FE1D01F0FC711A8E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

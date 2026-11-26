@@ -19,8 +19,7 @@ Kirupa Chinnathambi / Кирупа Чиннатхамби | Javascript Absolute 
 ```bash
 magnet:?xt=urn:btih:D90C8ABBB543CC380D802E3BC83C2593A2269E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97F0406583DEEB6282F05E5ABF0E0AE1BBD43EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Остров Сокровищ или В стиле Шансон часть 
 ```bash
 magnet:?xt=urn:btih:E9873571A3E50381456E70C77DF99649360238EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:8AC15B595722C16248AC4780FB9C04F6A9546ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Mammoth WVH — американская рок-группа, основанна
 ```bash
 magnet:?xt=urn:btih:C43CE13EE5E9352ECB8AA0D7AE270FA96B106F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Abyssphere — российская метал-группа, основанна�
 ```bash
 magnet:?xt=urn:btih:534FDF1537128EB9D12714476C67999D68F55DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Human: Fall Flat, забавная головоломка, основанная 
 ```bash
 magnet:?xt=urn:btih:5519EA44225A6C0E2D1A47A2A2F89F682CD4A3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Deadly Tower of Monsters, платформер с неповторимым �
 ```bash
 magnet:?xt=urn:btih:EF7264A742E6EEC12CEF9FA8D360ACEE92846553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

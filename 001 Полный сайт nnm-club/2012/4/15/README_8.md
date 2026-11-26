@@ -27,8 +27,7 @@ Cascada - 2 Альбома (2006, 2012) [MP3|248-320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:95CACFA6E9640E9389A85C2A2F5C1EA473A9FB46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F8CC328CC3AAA4FA0675A644E3C8FB3B84C65E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5810F83480B346DC6DA7895D6E499533F1AACD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ VA - Synthpop, Futurepop, EBM Collection by Eddy18 Vol.2 (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:226C27D02B9CE15C22D2F94D46F08C62A0D50EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

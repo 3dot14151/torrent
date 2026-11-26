@@ -19,8 +19,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.10.5 Mod 
 ```bash
 magnet:?xt=urn:btih:0415964684C87C72B456EADA60890B18C7CB9A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ PixelLab - отличный фоторедактор, в котором все �
 ```bash
 magnet:?xt=urn:btih:BB42724DD64B9BAC29BBC052A327C0E68C1FE5C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

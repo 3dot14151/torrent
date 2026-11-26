@@ -18,8 +18,7 @@ Microsoft Windows 7 Ultimate x86 7600 16539 MultiDVD [100707 activated] by Xalex
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

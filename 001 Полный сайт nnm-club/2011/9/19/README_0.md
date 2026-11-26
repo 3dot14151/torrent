@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:21216A9E89C7396AC3D203215669EDCC219F89FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Поцелуй меня, удача! 4 (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:5CA8137523454349CF52ECDE27FF15975FC40611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Осенний MegaDance (2011) [MP3|320 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:35868E7C70E7C3AD9D7E298977D63402E5F8E3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Drum and Bass people - Volume 7 (mix by Voland BulgakOFF) (2011) [MP3|256 kbps]<
 ```bash
 magnet:?xt=urn:btih:68BB6E1562D1A91FE8334CFDD553DBEC030AB174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ VA-First State - The Whole Nine Yards (19.09.2011)
 ```bash
 magnet:?xt=urn:btih:9E8A933FE01AE273264F4254F258ED57DC8E0E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2D4C884C07D5A04B7C39B0F76F665186316DF4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9C38851CD6976E65C5B186E0319080CA12A9AA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ Satya - Memoirs of a World Traveller (2011) [MP3|320 kbps]<New age, World, Ethni
 ```bash
 magnet:?xt=urn:btih:505A524E10B8ED3F0E87551D98CD4C65BFE1185C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D8A505EF39187735A02336E68F0F204B85E3905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ Victoria Urusova - Interlace (2010) [MP3|320 kbps]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:CD58997A58129DBE87E90592881E2B853E2B5D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ VA - Лучшие Хиты Love Radio Часть 7  (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:52E051DBDA93EFD61456FA130AA85C73687F727A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ Label: Armada Music
 ```bash
 magnet:?xt=urn:btih:C07ADB8633A9B12CF7FAFF9ACA527A775F0BA706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72F0B8CB09E686679578FDB0765AE7157A2E982F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +452,7 @@ Sexy Girls v.34
 ```bash
 magnet:?xt=urn:btih:440D01939C96001909073C6CCA5380B21FABEDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +486,7 @@ Black ‘N Blue - Collected (2005) 4CD Box Set [APE|Lossless]<Hard Rock, Glam Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +515,7 @@ Sexy Girls v.35
 ```bash
 magnet:?xt=urn:btih:9AB7ED0403F6CAC6FA2E2EF34C8559CE45C7C339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +549,7 @@ Adrana - The Ancient Realms (2011) [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +583,7 @@ VA - Самый Свежак DFM (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:81E1E197BE617F2B1D849EA931D841F68F56A64E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +617,7 @@ Dave Weiner - On Revolute (2010) [MP3|320 kbps]<Instrumental rock>
 ```bash
 magnet:?xt=urn:btih:E6D740988016B3390C28A430E387FF83D422F56D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +642,7 @@ Zork Nemesis: The Forbidden Lands (L) [En] 1996
 ```bash
 magnet:?xt=urn:btih:16F270D7239442642AEE358E49AA8B27BD13AECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +676,7 @@ CD1:2011Жанр: Dance, PopПродолжительность: 01:08:57
 ```bash
 magnet:?xt=urn:btih:01B8B4722CEB5C43F7186EAD9FD6381B46BA265C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +702,7 @@ PDF-Tools - идеальный инструмент для создания PDF 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +736,7 @@ Cory Lamb - Break the cycle (2011) [MP3|320 kbps]<Pop / Rock>
 ```bash
 magnet:?xt=urn:btih:B1E092B915A40FFDB4162652806C343A98C7F2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -794,8 +770,7 @@ Black - Any Colour You Like. (2011) [MP3|320 kbps]<Pop, New Vawe>
 ```bash
 magnet:?xt=urn:btih:08EE958D99778A7C2A2CAAF49B7F157025F27E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -829,8 +804,7 @@ VA - Двигай Попой Часть 3 + 2 Бонусa-видео (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:F99647B247B66BDBB083CD1C4EE3DA8198605219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ My Summer Car - единственный в своём роде симулято
 ```bash
 magnet:?xt=urn:btih:EA366FE5C9D56052634C40DCFA03F57299A16C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Building Full of Cats – игра-головоломка, предлагаю�
 ```bash
 magnet:?xt=urn:btih:F260AE96A799CFC67C2CAAF8B2AABA211A88734B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Failure Drill (2023) [En] (0.9.4.0) Scene Tenoke [16+]
 ```bash
 magnet:?xt=urn:btih:4424B8182B33C860C08A2B901FC777204FB06D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

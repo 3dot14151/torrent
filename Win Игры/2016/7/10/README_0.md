@@ -19,8 +19,7 @@ Zero Escape: Zero Time Dilemma (2016) [En/Ja] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1AA2CE5EBE8B5187B57FFEC6F46D9E35AEEF7BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

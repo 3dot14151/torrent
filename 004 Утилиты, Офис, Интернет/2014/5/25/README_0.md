@@ -21,8 +21,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.826.26 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A2F023362EA817EE57D1C60AC53078E6107893EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

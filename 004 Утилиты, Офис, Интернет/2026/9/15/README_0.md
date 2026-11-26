@@ -19,8 +19,7 @@ WinCam – это программа для захвата видео с экр�
 ```bash
 magnet:?xt=urn:btih:4307049C044A4DC3624DF31ED3CFE18DA7972857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WinSnap - отличный многофункциональный инструм
 ```bash
 magnet:?xt=urn:btih:19580AF356A440A5A69029462CEDEC028DC9847F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:EA2353D1BC7A6CEDA946AC9E69A748F43B786957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AIDA64 - является средством для идентификации �
 ```bash
 magnet:?xt=urn:btih:4C7AFF12CC4E0A3A0532FFDE80FE9F2D4A88FED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

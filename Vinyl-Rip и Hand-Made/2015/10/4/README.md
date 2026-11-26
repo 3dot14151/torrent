@@ -22,8 +22,7 @@ Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(
 ```bash
 magnet:?xt=urn:btih:DA99CAB69897FAB4510C74E7EB34D623F0042E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

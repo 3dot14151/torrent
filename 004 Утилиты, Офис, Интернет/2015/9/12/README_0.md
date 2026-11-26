@@ -21,8 +21,7 @@ SurfEasy шифрует подключение к Интернету через 
 ```bash
 magnet:?xt=urn:btih:0A34FFA4CD6CC7678A4E138B00AD31A573C46DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

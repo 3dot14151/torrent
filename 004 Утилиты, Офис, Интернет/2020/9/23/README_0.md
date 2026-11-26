@@ -21,8 +21,7 @@ Hetman FAT Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F6179C49A5106DA65956726944D6B2922E1D3962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ NTFS Recovery™ вернет информацию с рабочих, «биты
 ```bash
 magnet:?xt=urn:btih:59E1B81A0BE29013E489866196C0C888DA69D481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Hetman Partition Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F59326423A182D70C6A8B0786199C7A208313D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

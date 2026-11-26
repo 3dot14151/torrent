@@ -19,8 +19,7 @@ Gateways (2012) [En] (1.15) License GOG
 ```bash
 magnet:?xt=urn:btih:7C24E8BCBA6A8229C2C4DA53CF67B2B3964FC32D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F28102C425A48F9740746C595B5582F6C1DAA6BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lost Lands 3: The Golden Curse / Затерянные земли 3: Прокля
 ```bash
 magnet:?xt=urn:btih:1A4C9DA8C8FDA36929B42B620003A65E63D015AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Farm Expert 2017 - это комплексный симулятор фермер
 ```bash
 magnet:?xt=urn:btih:7678687381A0A704358930B39520BB05E5709C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

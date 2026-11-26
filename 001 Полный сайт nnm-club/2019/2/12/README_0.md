@@ -18,8 +18,7 @@ The Forgotten Fairytales: The Spectra World (2017) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:C57392B617C3A065AADE6229AFFC89EC051AC98A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95CF99E526F575DF97E18C98C2D2BBF27434AF51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - Meditation Music (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Meditation, El
 ```bash
 magnet:?xt=urn:btih:49869B4DD0474D7B10EF2494A7617838B80CE573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Haunted Hotel 14: Personal Nightmare (2017) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:25D759A29C78B4233C316D277D803EFECB3F6792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22AEFA56B8C3BBD98AE2A78232FF2B03BF8AEADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Michael Bolton - A Symphony Of Hits (2019) [MP3|320 Kbps] <Pop, Soul, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:F9AFC41C247464E940751A4B14DBC8FEF41F1842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ League of Light 5: Edge of Justice (2017) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:B0F45A31923215D9F216A854B76A6812B4971C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Bridge To Another World 4: Escape From Oz (2017) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:01F2B09F4637E5D743A93B406CA9D3BC219B113D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A860D38DE936B60D0F239CD16ED929267C53875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Tina Turner - What's Love Got To Do With It (1993) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:512CACADE068B849A66C3D81232281E3A382C6C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1158AFEF8C3EB8AB9B97604AEA62DAD303AD375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6055D9A4088C61C069196E015CB93AF0BC415382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68E3A5D8503DF18D8DCE3E13C3E9045FDDAB3736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:F7E2830D38029B2D85427AE890679B20A1B295DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C920C5552BAD7538D9C8E7F0258E57F104AA218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:25699E8AC37A2F09B6FC802323111533E9BD5144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05C5E1688A341F8BAA3B1E771CA9D4687F2CC95E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ DMG Audio Plugins Bundle - набор высококачественных пл�
 ```bash
 magnet:?xt=urn:btih:0DB88034840A76F64CCAB4BCCDE6CAD7AE76EFA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ VA - Deep House: Soulful Party (2019) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:533DB6BB7A75DFE07F8D99520CE5706049CE6C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:CC6C92E0EE8F88D5033BFE004CC510540848BF3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1219488850EC3EB647ACC68B11D45D28DE762D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F50AC5EF4147E6A3F750391C0B78568DE3EA0AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3964AE74F9ABA8E8F88AE0B185767B9CA3341A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:204D80D509EDB218DD972366EA1D90203478712A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Opera 58.0.3135.65 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2CEB1E9D3642AC35279A20CDCBA7CBB17FF5F4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

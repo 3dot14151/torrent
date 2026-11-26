@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0F9DBD211515E80C87DBD563458E27E68D2DE688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Wreckfest (2018) [Ru/Multi] (1.27.5315/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:D605048EE705FC2D103617206F4A6538F132F59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stellio — продвинутый плеер, с мощным звуком, п�
 ```bash
 magnet:?xt=urn:btih:BD96E20D49F2D15425E6E169F9D9147B4C4D643A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

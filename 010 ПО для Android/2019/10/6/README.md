@@ -19,8 +19,7 @@ Radio Garden v2.1.3 [En] - радиостанции мира на интерак
 ```bash
 magnet:?xt=urn:btih:D65D329EA26CD52D66150BFB23DE41A6C9EA9915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yokee™ - это караоке-приложение №1, благодаря �
 ```bash
 magnet:?xt=urn:btih:1372C927745BECBE828E01198A925D435542EFBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

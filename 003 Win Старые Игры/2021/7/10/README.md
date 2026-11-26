@@ -19,8 +19,7 @@ West of Dead (2020) [Ru/Multi] (1.11.8.29/dlc) License GOG [Path of the Crow Del
 ```bash
 magnet:?xt=urn:btih:4A6836C4BCAAB01D2449D6A4119B75BC06F4E21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

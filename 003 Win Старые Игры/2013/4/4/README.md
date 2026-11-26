@@ -23,8 +23,7 @@ The Punisher / Каратель [Ru/En] (RePack) 2005
 ```bash
 magnet:?xt=urn:btih:99291BBDB338B58B6C459DAC7E1F73344B21250B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

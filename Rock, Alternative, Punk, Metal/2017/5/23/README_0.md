@@ -22,8 +22,7 @@ Rabbitt - A Croak and a Grunt in the Night (1977) 2006, Remastered [APE|Lossless
 ```bash
 magnet:?xt=urn:btih:41C56B347E20F5CA8F8991961A9E60604747F0AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Sensational Alex Harvey Band - Hot City: The 1974 Unreleased Album (2009) [F
 ```bash
 magnet:?xt=urn:btih:83C28D26D53F7909FAD9B259BFB132649BF76983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

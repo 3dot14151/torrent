@@ -22,8 +22,7 @@ Event Horizon - Naked On The Black Floor (2006) [FLAC|mage +.cue|Lossless]<Progr
 ```bash
 magnet:?xt=urn:btih:0F4FB7594963E3116D36B8A1279B3AE933EA16B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Thomsen - Unbroken (2014) [FLAC|mage +.cue|Lossless]<Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:2A72FCE252AAC003DCFC67174ADD39523A737858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mortal Infinity - Final Death Denied (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D552A728F5C6A5551247FFD47E7E58821312E2D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cachemire - Photochope-moi (2015) [FLAC|Lossless]<Pop-Rock, Hard-Rock>
 ```bash
 magnet:?xt=urn:btih:84055FE1C52D184777F76BD472E4335CE83EC963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Delgados - Universal Audio (2004) [FLAC|tracks+.cue]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:C65888F2810C09F589304DA7E3EF28FFB30BAF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ After Hours - Take Off (1988) [MP3|320 кб/с]<AOR, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:29F5A4613E087A6D2B5E83FF34773490CB109480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Texas - White On Blonde (1997) [FLAC|tracks+.cue]<Pop Rock, Downtempo>
 ```bash
 magnet:?xt=urn:btih:D97F49E4652FD966FACAA63497E509E209CEC6AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Khymera - The Grand Design (Japanese Edition) (2015) [FLAC|Image+cue]<Melodic Ro
 ```bash
 magnet:?xt=urn:btih:07C7DD2759E2685B04F8825EFA1E1E01278EBA2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Vorna - Ei Valo Minua Seuraa (2015) [MP3|320 кб/с]<Pagan Black Metal>
 ```bash
 magnet:?xt=urn:btih:040F9FBACB2CDB73B5552F4D1953BA7FDF1A552F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Edenbridge - 10 альбомов (2000-2013) [MP3|320 кб/с]<Symphonic Metal, 
 ```bash
 magnet:?xt=urn:btih:93B6AEB3F09A013D2CB58C85798D6545D15C447C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ V.A. - Classic Rock Magazine presents: The Best Of The Year 2015 (2015) [FLAC|Im
 ```bash
 magnet:?xt=urn:btih:1C2548D64E24816D12BEC5E5FC9F31B8CD59DB10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Vyre - The Initial Frontier Pt.1 (2013) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:9372D9500124EA1517D60AC28B3A804E47914EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rush - Clockwork Angels Tour (Live)(2013) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:506AA77EC8F8C58D6B94510589988465072DE395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ State Urge - White Rock Experience (2013) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:4AB421CEFFF3D9CDE8763DFEF3F84F102F41C98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ VA - Classic Rock Magazine #191: Shoot To Thrill (2013) [MP3|320 кб/с]<Classi
 ```bash
 magnet:?xt=urn:btih:E66AEA2F51CFCC50248431BE6E753A8D5A85DC15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Black Messiah - Heimweh (2013) [FLAC|Lossless]<Melodic Black/Folk Metal/Viking M
 ```bash
 magnet:?xt=urn:btih:B65B592779A0CBF50CD243322BDBC2766A748ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7411A3157C12F2F18341ADD8E51CAC424454F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ George Harrison - Early Takes, Volume 1 (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]<
 ```bash
 magnet:?xt=urn:btih:279B6F58A685C6E2369D4BF6058A2B14F11F5C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

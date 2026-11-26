@@ -26,8 +26,7 @@ Cretu And Thiers - Belle Epoque (1988) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synth
 ```bash
 magnet:?xt=urn:btih:62DC4C7701FBEAFC6AFC1B45157D939BFB018243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Osmos HD 2.3.1 [RU/Multi]
 ```bash
 magnet:?xt=urn:btih:AE1FB84FD9625F30DAAFCDDD82555ADFCAFFEA25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

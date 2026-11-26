@@ -19,8 +19,7 @@ TasteMaker: Restaurant Simulator – симулятор менеджмента �
 ```bash
 magnet:?xt=urn:btih:CE6C1DD1E4E4500329F51437FB32BEAC564C9A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Galacticare - это ваш шанс спасти галактику, заним
 ```bash
 magnet:?xt=urn:btih:7C0E81D2464DD3F60A1CC2D68ED8DEAE9C6B8FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:9C1D179D0DB4F4A33E959148A419868ABC620521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Scene Tenoke [Legate Edition
 ```bash
 magnet:?xt=urn:btih:FA52B061E0FE97AB8C11FC2A688D233EB5DD6373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.14.0.0/dlc) Repack FitGirl [Platinum E
 ```bash
 magnet:?xt=urn:btih:3539146814678687DA7C19113411069AE9890258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ C.A.R.D.S. RPG: The Misty Battlefield объединяет в себе карт�
 ```bash
 magnet:?xt=urn:btih:B92CD4C34493C59136C44FF2FB415565C216110F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cuphead – это в прямом смысле слова "классическ
 ```bash
 magnet:?xt=urn:btih:A6CCE533BE05B20BC9F4525992C8C59F49AFC72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Little-Known Galaxy - приключенческая RPG с элементами
 ```bash
 magnet:?xt=urn:btih:5F2ADB7E1EA13AE7B269F9EE6F9054A6F6188ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Pre Dusk - мрачный двухмерный экшен-платформер �
 ```bash
 magnet:?xt=urn:btih:F577BEBB9B1EE47B8C73D9BCD1FADE6F61082E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ CyberHoney - карточный рогалик, где вы окажетесь �
 ```bash
 magnet:?xt=urn:btih:A67A92D5E9E5D7FA3C24613F9B63238F889AE41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Magic City Detective 5: The Carnival Begins (2024) [Multi] (1.0) Unofficial [Col
 ```bash
 magnet:?xt=urn:btih:93E83EAC426367C434A0FFBBC13E5232F653ED6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

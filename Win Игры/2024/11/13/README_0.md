@@ -19,8 +19,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.5.593/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A7F738EE5B341FAF1658066C7536820979F932F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Craftomation 101: Programming and Craft предлагает геймерам о
 ```bash
 magnet:?xt=urn:btih:E1114BE6DF9CEC7628B72AF9348783D0D12E7D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Forza Horizon 3 (2016) [Ru/Multi] (1.0.125.2/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:A392D1DB791B2FE705882C4978C7B86E7641CF31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Flotsam (2019) [Ru/Multi] (0.8.5f1) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:AF3111CC7F7FFE432BEFBE317779A68DDC433B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D15FDAE953F28074CEDA215A18D51AB32E0F9AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.1.6) License GOG
 ```bash
 magnet:?xt=urn:btih:37DC5F979DD6723B389014B5390178AAD57ABF6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:CBD0B13C38EDD0B161D1392E6F1D8DBBDBF35CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dawn of the Ashen Queen - классический dungeon crawler на осно
 ```bash
 magnet:?xt=urn:btih:F92394CDB861014A8EA8D4401176337AEA026B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.2.1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E3E77B0D6FCE31334C6CE3DB2886F243B3B2FB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Destiny Star Girlfriend 2 (2024) [Multi] (1.0.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:6AEC986FCD4B13DE5EFA7F0AD34D06B6F2CC8416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8FAD6106D2180D2B2835BC76299297EF0A7B9049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

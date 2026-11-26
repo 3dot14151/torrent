@@ -19,8 +19,7 @@ Shogun Showdown предлагает испытать свои навыки в �
 ```bash
 magnet:?xt=urn:btih:4E6D929925CCB566B2E54C73D538277F5987C67C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Super Mario Party Jamboree (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0DA3D748E353F2DECCF3D2537137F3655E8673BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Portal - игра от Valve для одного игрока, действие 
 ```bash
 magnet:?xt=urn:btih:AF023E1CB907EE3E54C8B7CE78749E37D53AA80B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Soulbind: Tales Of The Underworld - экшн-платформер, которы�
 ```bash
 magnet:?xt=urn:btih:E4C1EC5590AF9742238E846042EDD1DD49073320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (96730) License GOG
 ```bash
 magnet:?xt=urn:btih:D4AD7B755960CEA481ECA626EEAF5EEF540BAF0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

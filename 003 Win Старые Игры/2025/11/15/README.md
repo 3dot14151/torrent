@@ -19,8 +19,7 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 ```bash
 magnet:?xt=urn:btih:46BC53B859BFCB85B73FFEBD6BEE12202BAA3A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Friday the 13th: The Game – игра (с одиночным и коопера�
 ```bash
 magnet:?xt=urn:btih:87FE679DB228565DA0768A7B9CE74C323188445C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack xatab [Episode
 ```bash
 magnet:?xt=urn:btih:8A27A59BDEC7C35DAA72C64618C01CA981A89FC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

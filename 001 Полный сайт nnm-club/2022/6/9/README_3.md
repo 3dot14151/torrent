@@ -18,8 +18,7 @@ Liveclasses, Саша Чалдрян | Основы коллажа (2019) WEB-DL
 ```bash
 magnet:?xt=urn:btih:36D441532CD2FF67BEBB8D4F5D03C3128B76A0C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4026837AFEDECEDBF68C93C79231E3245ABFF576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FlippedNormals, Tim Bergholz | Blender for Beginners & Blender Flashbang Grenade
 ```bash
 magnet:?xt=urn:btih:FEC926EB475DF35B0DF0960CF129F0F0D58C265F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Udemy, Titanforged Entertainment | Unreal Engine 5 Blueprints: Develop Your Firs
 ```bash
 magnet:?xt=urn:btih:3CF9D997DAB65A041E49D1E9271E346853ED99E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ AmanVPN бесплатный, быстрый, безопасный и безли
 ```bash
 magnet:?xt=urn:btih:9A5459D7FB03EB26400EC74DF997186841678432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

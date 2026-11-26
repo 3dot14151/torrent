@@ -19,8 +19,7 @@ ABBYY FineReader PDF 15 — это универсальный инструмен
 ```bash
 magnet:?xt=urn:btih:A1230B7464D32DA4FBD6A34CC3C48280ADD4EC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E05285852FA5ED839F8A51A5BA56CF02A9F02D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

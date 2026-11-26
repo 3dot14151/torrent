@@ -19,8 +19,7 @@ Family Mysteries: Poisonous Promises (2019) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:7B9EA2DDBA398FCD0C448BD24879F8F087CF9D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

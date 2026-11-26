@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:40985CBF3CD67921CF3993B6CC127250D09D5752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:5D5ABC3D73D2A5603B6B0AFD03E600DD9F23C581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

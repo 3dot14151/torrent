@@ -19,8 +19,7 @@ CoolUtils Total Excel Converter 5.1.215 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DB9B40B4EE4B5EA5F0A46F47581E029CB9A5A258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total Outlook Converter - удобный в применении инструм�
 ```bash
 magnet:?xt=urn:btih:54333DF425D1450FD51C3CC990BF43E2EEDC8AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:F1DB07E2398CAEA7D385943FECE48C9A1744100E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

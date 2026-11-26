@@ -20,8 +20,7 @@ IntrigaEnglishTeacher - автоматизированная система об
 ```bash
 magnet:?xt=urn:btih:F91D238D67B68DF37E3F171E36A4F6DD8B36067D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

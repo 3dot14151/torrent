@@ -22,8 +22,7 @@ Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
 ```bash
 magnet:?xt=urn:btih:8D4BD9E87949CE71FE289F047EAF16A076B29EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

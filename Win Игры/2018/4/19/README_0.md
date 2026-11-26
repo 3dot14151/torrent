@@ -19,8 +19,7 @@ Hand of Fate 2 — это «ползание по подземельям» в с
 ```bash
 magnet:?xt=urn:btih:6AD9B779E356E3F2BB2669E18C553D7820C3B948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/dlc) Repack =nemos= [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:241A6B82480394D561B49E7112B0E0B2AB709F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0.20180416.1) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:84ED9A3F7168C3C328F2F1A6F4C99463ECCB014F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Station - это научно-фантастическое приключе�
 ```bash
 magnet:?xt=urn:btih:6EC07586BFF3EAB85A5F670D77BDC6076E0075B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ All Walls Must Fall – это изометрическая RPG с элемен�
 ```bash
 magnet:?xt=urn:btih:F655C7EE2C5CC3A95A0005881704ACC4B4A8B4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The King of Fighters превратилась в популярную (особ�
 ```bash
 magnet:?xt=urn:btih:5885AAA4F38F9478C36BE6A9E9E31356C4B9BF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

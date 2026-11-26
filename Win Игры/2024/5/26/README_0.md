@@ -19,8 +19,7 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:44D2EB6B42C01F258807F36A9E1C020D0EB7693A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kubikon 3D (2024) [Multi] (1.0.12) License GOG
 ```bash
 magnet:?xt=urn:btih:A0FEECBF992C69C281F2FC7F2C37A672D1D40F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:F674766F7FBA353A89B729F37719CEC4885A350B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Venture to the Vile переносит геймеров в загадочный 
 ```bash
 magnet:?xt=urn:btih:C294A0F87386BA198F4652E92621F9AC1362AD13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tennis Manager 2024 – как насчет того, чтобы покорит�
 ```bash
 magnet:?xt=urn:btih:EE5E77DADD1E58D0659013B84286832953D0D93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hauntii - приключенческая игра, предлагающая ва
 ```bash
 magnet:?xt=urn:btih:BFC877D0EBD588005170B7FA629EF5C226CF3A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Regency Solitaire является карточной игрой, которая
 ```bash
 magnet:?xt=urn:btih:DD50918FF43A2EB7F6CD2A03A2549C9990157BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Regency Solitaire II (2024) [En] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:990ACDF85C2A79D6D251CA53CD491B567EE4EB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

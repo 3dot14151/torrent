@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A24A85572EB57279CD5852A10587FF4A89AAF950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8ABEA80379FEAA5F53017EEDBF18BB17213F391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7911A8CAB3A3BA658C5491C0CBC0E0608214BD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Adobe Illustrator CC - принятое в качестве отраслевог
 ```bash
 magnet:?xt=urn:btih:F3CEA7929A9A9F2DA7A0E0C4BADD0EC8882D633C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8635835656191E8DCBB7F87CDE5BCB307F71D295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Wolfenstein (2009) [Ru/En] (1.21) Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:91D3C6F6C750EA0E6D0D8D22F0BE0A0B4CD1E97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Adobe After Effects — популярная программа для реда�
 ```bash
 magnet:?xt=urn:btih:F05F0F5EA71D1CD7A9808E3425F244F59C882E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9) Repack R.G. Games [Ulti
 ```bash
 magnet:?xt=urn:btih:38FC97248398470BBA9941918337A44568FD26C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DE5FD80F4C3223E0018C87B7C3F87DB945C5D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:789C15544BFCA28C28CAEAFF5B0295AB0E56CE4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ BlueStacks App Player - это полноценный эмулятор Android'a
 ```bash
 magnet:?xt=urn:btih:9BD8E9D8A62A26081BD52468E53152FCD4C09848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

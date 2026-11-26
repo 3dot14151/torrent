@@ -19,8 +19,7 @@ ACG-Free! 2.01 - это небольшой, простой в использов
 ```bash
 magnet:?xt=urn:btih:22AB86C6F507921F96CCD644318230A4CEC19985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KMS Tools — облегченный вариант сборника прогр�
 ```bash
 magnet:?xt=urn:btih:CCBD3D52A9CD3F1F1CCD8A7E9FCA4204AA82827B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

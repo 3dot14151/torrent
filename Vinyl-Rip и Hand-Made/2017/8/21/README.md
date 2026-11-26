@@ -22,8 +22,7 @@ VA - Робинзон - Леонид Дербенёв (1985) [DSD2.0|5,64MHz/1bi
 ```bash
 magnet:?xt=urn:btih:DC29A3F97A34A309CF555D9E7A95CE0C6502A23B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Interactive Calendar - удобная программа-календарь, и�
 ```bash
 magnet:?xt=urn:btih:25896245A7DE77933F13062692784B1E4B381EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

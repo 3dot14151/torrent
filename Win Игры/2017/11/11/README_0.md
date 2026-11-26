@@ -19,8 +19,7 @@ World Keepers: Last Resort / Хранители Мира: Последняя Н�
 ```bash
 magnet:?xt=urn:btih:245BB020C628A1C42CB5A28D17DC622A7A323DA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Agents of Mayhem - шутер от третьего лица с элемента
 ```bash
 magnet:?xt=urn:btih:D4D30011879B918661A34AC2B9E377C44A6B71CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stories Untold - это текстовая приключенческая игр
 ```bash
 magnet:?xt=urn:btih:6F602575E21456A25448CBEE022B55CF8A29ECCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

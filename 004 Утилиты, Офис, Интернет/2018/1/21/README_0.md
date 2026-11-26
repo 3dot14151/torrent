@@ -19,8 +19,7 @@ Just Manager 0.1 Alpha 54 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:70C57C5AFC1838E68D1F0D862FBA98CDE85BC436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Canopy - E P 2 0 1 4 (2014) [MP3|320 кб/с]<Post Metal, Sludge, Instrumental>
 ```bash
 magnet:?xt=urn:btih:7F4EC4823973A69FA08EABB3C909C9E578176779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ VA - Uplifting Trance Mix Vol.1(Mixed by Denis Weisz's ) (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:EECE8CEE7FDF566F20546269F22B5E54E065679B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Massimo Biolcati - Persona (2008) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:399E7C0181319D05C47F8C1B891709DD2B66B720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Marty Paich - Marty Paich (1995) [FLAC|Lossless]<Big Band, Swing>
 ```bash
 magnet:?xt=urn:btih:DEA6EAC2DC2BB9875261A7187F5E62ECF8883B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ VA - Dj Compressor - Energy Mix 14-09 (2014) [MP3|320 кб/с]<House, Club, Danc
 ```bash
 magnet:?xt=urn:btih:ABD7937B739EA28826958ADF9FE11450BE58BFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Furious Flame - Unleashed Silence (2014) [MP3|320 кб/с]<Black Metal, Instrume
 ```bash
 magnet:?xt=urn:btih:AD301CAF9CABEEF2E1D4BF9AD8DA6EB8DBD3617A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Lester Young & Harry Edison - Pres & Sweets (2001) [FLAC|Lossless]<Jazz, Swing, 
 ```bash
 magnet:?xt=urn:btih:B86F9634382308B1AD0D287256EA62C79EF9D46C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ Odori - Gathering Lines (2010) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:CCDF2FFF4BAB1CEADE5D7517A7D5C62D3D53C51D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB0C0BC55DF44A3AF9E84909017CFE95442EB064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEB444FDC2711F5756A2D7F39188078F3A5177ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91268E4C60C6F44F4E5EA695ACB1C32BF4583341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:A0F4AAFE0DC905E716AC1FAB18E7663F611951C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ Saor - Aura (2014) [FLAC|Lossless]<Atmospheric Black Metal/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:92085B23A73FB6DCBBE4617C80A17EBB5B3D393C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +434,7 @@ Heatbeat - Global Monster (2014) [MP3|320 кб/с]<Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:9285A2A9A97B7D7132FBABFB733875F5FCFAEBC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ Life Extinction - Lo unico seguro en la vida es la muerte (2006) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:F6437608EEF2A23B0A00277723CD99EBC1785E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ The Picasso Of Big Band Jazz (1958)(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:366E2F9099DFEFE803A49E675239F3FDF4C18A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ Step Brothers (Alchemist & Evidence) - Lord Steppington (2014) [FLAC|Lossless] <
 ```bash
 magnet:?xt=urn:btih:54A94549939B5738A30309566E73BFD7F4531CD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:436F66A4A806D1D600ED3BB86D9E817498B2EEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A3059A803F39520E756200D3F08A12FE823691A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ VA - Paris Affairs Vol 1 (Selection Of Finest French Lounge Grooves) (2014) [MP3
 ```bash
 magnet:?xt=urn:btih:85A235CC9EF0F7DD37F27D93CD21D85AA46508FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:450C316A6772FD30A88650BFC335128D41FF4967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +681,7 @@ VA - Зарубежная Popsовая Вечеринка 8 (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:636C359B584F09EEBBEB4933A02CB4F494708922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ Unmixed:
 ```bash
 magnet:?xt=urn:btih:926497782753492C103F57AF0ACBD056A2D4A28D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4892B83F6A3BE0060014BE1513EE55B6C18383F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD0A0E76FAA101B2F36562E2F123D483AC7213F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

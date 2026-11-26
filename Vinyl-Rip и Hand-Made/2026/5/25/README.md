@@ -22,8 +22,7 @@ Shade Empire - метал-группа из города Куопио, Финл�
 ```bash
 magnet:?xt=urn:btih:94761310308E783CF619B955075BA197139D3BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Horizon: Zero Dawn (2020) [Ru/Multi] (6102784-6278995) License GOG [Patches]
 ```bash
 magnet:?xt=urn:btih:1F0D993E9119042BEF39BDCC07ABFC1F5A83A612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

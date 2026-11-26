@@ -27,8 +27,7 @@ Dramatvm - The Prophecy Of Mhisty: A Prelude Of Chaos (2011) [FLAC|Lossless]<Doo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Fireflight - For Those Who Wait (2010) [MP3|192-320 kbps]<Alt. Rock, Christian>
 ```bash
 magnet:?xt=urn:btih:F154903BE33D6D01ACCED1BF4537959534BAD69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Evanescence - Fallen (2003) Japanese Edition [FLAC|Lossless]<Gothic Metal, Alter
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

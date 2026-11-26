@@ -19,8 +19,7 @@ The Universim, симулятор бога, в котором успех ваш�
 ```bash
 magnet:?xt=urn:btih:B4524A0ABFD497C9F7194BAB4980A1F95051B97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.13.1.1/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0D35D7E22C1AD3AB1A6D8CAD33C0E40E830D7890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Eternights - это игровой проект, который рассказы
 ```bash
 magnet:?xt=urn:btih:A7A1F9F31026E963CA0875ADD767A41E266A50D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Around the World 2: Travel to Canada / Вокруг света 2: Путешес
 ```bash
 magnet:?xt=urn:btih:16E9A617B45AB2C8B3BD2F1E5D4B0FDA93C905B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Luna's Fishing Garden - двумерное приключение, механи�
 ```bash
 magnet:?xt=urn:btih:E3AC6E3F960C1E297249DBCF90C578546631E9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

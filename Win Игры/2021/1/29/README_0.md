@@ -19,8 +19,7 @@ Gods Will Fall (2021) [Ru/Multi] (1.0/dlc) Repack xatab [Valiant Edition]
 ```bash
 magnet:?xt=urn:btih:ABF6D72024AFD537D8117E492D4BACBBBD8FBCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

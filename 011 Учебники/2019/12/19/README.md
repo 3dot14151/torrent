@@ -19,8 +19,7 @@ Cathleen Shamieh | Electronics For Dummies / Электроника для ча�
 ```bash
 magnet:?xt=urn:btih:19D6E7DD2AE58744AB3B6DD9D10B5131A329570D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Adblock Plus 1.5 for Internet Explorer [Ru]
 ```bash
 magnet:?xt=urn:btih:1DDD508ADFD759A7D126130DCCB862029990C5E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

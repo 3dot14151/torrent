@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B35C83B9935F06F3983858675520C150B7D8D5FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Corel Corporation | Руководство по CorelDRAW Graphics Suite X6 (201
 ```bash
 magnet:?xt=urn:btih:9395411056C29C7E7DB9C61EEC22684BB85FDED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

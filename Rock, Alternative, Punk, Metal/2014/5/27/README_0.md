@@ -28,8 +28,7 @@ Hannah Aldridge - Razor Wire (2014) [MP3|320 кб/с]<Rock, Country, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:9A704B04CE5A19A0401D954093090816734C8EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Mainhorse - Mainhorse (1971) Reissue, Remastered /2006, Time Wave, UK/ [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:5CB5093D24E906A458D909095F7783E8FB4A2520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Echo & The Bunnymen - Meteorites (2014) [FLAC|Lossless]<Rock, Indie Rock, Altern
 ```bash
 magnet:?xt=urn:btih:42FEAECD1BA560280A4BBFEDE558BAED3E6063D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Linda Hoyle - Pieces Of Me (1971) Reissue, Remastered /2002, Angel Air Records, 
 ```bash
 magnet:?xt=urn:btih:86E6378B878109EF46DA15CF0E5D17E71DE029C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Sugarloaf - 2 Альбома (1970-1975) Compilation, Released /1995-1997, Audio
 ```bash
 magnet:?xt=urn:btih:43FC4937F3C0BAFD820240B4523EF73148957A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Powerman 5000 - Builders Of The Future (2014) [MP3|320 кб/с]<Industrial Rock 
 ```bash
 magnet:?xt=urn:btih:B5AD8D0BBC65E00C9C7AC6D621CF9510F6AF8D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

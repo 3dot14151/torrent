@@ -24,8 +24,7 @@ The Beatles - The Sweetest Apples - Forbidden Fruits - (1967-70) The Essential C
 ```bash
 magnet:?xt=urn:btih:8A55D903C4064DC9A478D289DF6F07F5672EF74F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Red Hot Rockabilly: 50 Hard Hitting Rockabilly Classics (2010) [MP3|256 к�
 ```bash
 magnet:?xt=urn:btih:262AEC2F09AC3D19405969FE18F1C1442258E1ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Kippington Lodge - Shy Boy: The Complete Recordings (1967-1969) (2011) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:744CD62C7A0D77C69836D51406AC6E1B5797D4FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Mena Brinno - Icy Muse (2007) [MP3|192 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Throne of Molok - Impulsive Assault (2011) [FLAC|Lossless]<Black Metal/Industria
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Arctic Plateau - The Enemy Inside (2012) [MP3|320 кб/с]<Post-Rock>
 ```bash
 magnet:?xt=urn:btih:0A99E61B99D391A08EA579492D002517744673E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Elm Street - Barbed Wire Metal (2011) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ Shovellica (Красная плесень) - The Symphony Of The Shovel (2011) [
 ```bash
 magnet:?xt=urn:btih:E3AF2B8F370FE0A5EBC3163808C8D75723563B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Halford - 10 альбомов (2000-2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6C7E631DC31798797626934F3F7794583B20B940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ Deathstars - The Greatest Hits on Earth (2011) [FLAC|Lossless]<Industrial Gothic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

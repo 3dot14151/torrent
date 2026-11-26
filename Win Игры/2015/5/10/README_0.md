@@ -19,8 +19,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.1) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:BF0F04304AC7BF1A378AC0A776D84AF0165D91D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

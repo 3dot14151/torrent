@@ -22,8 +22,7 @@ VA - Без меня. Трибьют Егора Летова (2019) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:94FF77701A66CAF576F683BA91088BFBCD7887B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

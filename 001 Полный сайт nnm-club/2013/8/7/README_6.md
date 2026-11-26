@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D01BE80E9A3C62A467B059AE1E077EB475EF8404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Call Of Duty: Black Ops II продвигает игроков в ближайш
 ```bash
 magnet:?xt=urn:btih:1B1DC4E008B298A7FA5D1CC572D372A5D3BBA5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Aliens: Colonial Marines (2013) [Ru/En] (1.0.210.751923/9 DLC) RePack R.G. Reven
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:968FB0EA088EDE30F1FF71E911EAF98301E701B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Microsoft Office Professional Plus 2010 — один из лучших набо�
 ```bash
 magnet:?xt=urn:btih:7FA08D556EB428A3DAF5E411BB7D02ADBCCBDA01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ The Run – гоночные состязания, ставка в которы�
 ```bash
 magnet:?xt=urn:btih:3C995DA175DF4C28FAC1CC0CB3F1B2DBD5A7F02C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0BC6770CE83A14A4BC5F9BD7C933721912B8DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

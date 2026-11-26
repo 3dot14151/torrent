@@ -19,8 +19,7 @@ DAEMON Tools USB 2.0.0.0067 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7DAEF3CCA317339A2214D2BBF0E8191A3D57BF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Active File Recovery Professional - является эффективным ин
 ```bash
 magnet:?xt=urn:btih:49C71D300F7703DBC9691465F495E28B1F8B70CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

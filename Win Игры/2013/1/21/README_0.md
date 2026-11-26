@@ -19,8 +19,7 @@ The Agency of Anomalies 2: Cinderstone Orphanage. Collector's Edition / Аген
 ```bash
 magnet:?xt=urn:btih:4CA3CB5006515A88850C9AC85DE5E6B232F4F193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Arcana: The Carnival Collector's Edition / Темная тайна: Ярм�
 ```bash
 magnet:?xt=urn:btih:2E1DEC8A757111AF8364F94144CFB071693582EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Test Drive: Ferrari Racing Legends [En] (L) 2012 | Proper FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:1D6FF692D0978C0146066F2EECABA5CBF4C2838E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Enhanced Edition включает в себя «Sword of the Stars II: The Lords
 ```bash
 magnet:?xt=urn:btih:0E65BAF787C9A1EE6D0C71641E3C28E593E166F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Darksiders 2 является продолжением Darksiders: Wrath of War,
 ```bash
 magnet:?xt=urn:btih:00C846D6F3426E290FCB45536D07A99EEDC0FD75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:600098277614CA149E514BB4D7F833EA2E3B54B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ This book is all about making your Python better. To help you manage your codeba
 ```bash
 magnet:?xt=urn:btih:0FE2C4B0C74FE1211D95F67E0828B11CCDB41DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

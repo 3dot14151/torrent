@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:49B3A6032EA82228B337EF068751041C6844B0CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Understanding Java from the JVM up gives you a solid foundation to grow (   Ч�
 ```bash
 magnet:?xt=urn:btih:F75F153F62EB1B8D1FCC4A1AD4500E3906BD4E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Max Payne 2: The Fall of Max Payne - жестокая любовная исто�
 ```bash
 magnet:?xt=urn:btih:4CA013A9FE1C6F0A775DB44D0C3C0E8E422894AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Punisher (2005) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:22F90CE09091F18D61664E40514DDF22272345BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Max Payne (2001) [En] (1.05) License
 ```bash
 magnet:?xt=urn:btih:B1E4195FDCB78CFFFD33FA2192F972036C56CA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

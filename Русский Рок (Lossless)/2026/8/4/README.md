@@ -21,8 +21,7 @@ CD2 - Bleed (2004)Жанр: Alternative-Rock, Coldwave, Goth-Rock, New-Wave, Pos
 ```bash
 magnet:?xt=urn:btih:B1B492144EA3E475C0853128B24A856541E31391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

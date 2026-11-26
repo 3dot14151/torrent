@@ -19,8 +19,7 @@ Under Night In-Birth Exe: Late представляет собой нечто с
 ```bash
 magnet:?xt=urn:btih:860FB064E327887C1ED22F59ABF3D7C37D663525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Beyond Space — новейшая космическая 3D-игра-стрел�
 ```bash
 magnet:?xt=urn:btih:B07C4F1D0745327EBCBD1F1001BADEDADC1B0928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beyond Space — новейшая космическая 3D-игра-стрел�
 ```bash
 magnet:?xt=urn:btih:6E32503A1CEAFD2B0E9D3145DB57F05080653BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

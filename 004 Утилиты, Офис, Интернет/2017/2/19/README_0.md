@@ -19,8 +19,7 @@ Magic NTFS Recovery предлагает быстрый и простой спо
 ```bash
 magnet:?xt=urn:btih:FD4C8DDDF23C468948A0E7174FB5355776DC6B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

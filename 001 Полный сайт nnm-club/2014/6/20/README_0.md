@@ -27,8 +27,7 @@ Peru Inka's - Peru Inka's (2011) [MP3|320 кб/с]<Folk, Instrumental, Native am
 ```bash
 magnet:?xt=urn:btih:E6F788A11CE94B15D44491B194A58C3F030B6CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - House Music Pause Vol 19 (2014) [MP3|320 кб/с]<House, Progressive House,
 ```bash
 magnet:?xt=urn:btih:EC0C8632167B99842A4DD41DE3D6A7B07FC1A56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78FFA35DF4BDFCFECF41D588471FB4016C1EE4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Tomas Michaud - Passion Dance (2005) [MP3|320 кб/с]<Instrumental, Flamenco, S
 ```bash
 magnet:?xt=urn:btih:E86350FED5517B28A7F1E4BB8ED9C7ADC1949F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ The Running Man - The Running Man (1972) Reissue /2000, Akarma/ [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:69AAB62375BFA095E050E1F1E096C294E374F6BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Andrea Cardillo - Lounge in Monaco (2014) [MP3|320 кб/с]<Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:9B7D0E92E312BDD0BE356D7DC442D079F89A9F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDD29B1A37F770D415923B0C053FAD727A257BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ VA - Клубные Новинки Vol.438 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:71904BC1668DA5C92112CB610EA43D98EB2857B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6278B4C04BDA61929C8DE40FF60FE7313BB22E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F544AE663A53B60DC55524B3E8FFF6AE41D41823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +369,7 @@ J Dilla - Dillanthology, Vol. 3: Dilla's Productions (2009) [FLAC|Lossless]<Rap,
 ```bash
 magnet:?xt=urn:btih:564CA34D956D0BE78B9BD69A479A7BF12AED1CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54383BA17F74A34A0228170CBCC868A47EF1A28F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F76A4B6BA94C50D676887734A1C84FEEB754A2D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +453,7 @@ Solar Quest - Core (2014) [FLAC|Lossless|WEB-DL]<Ambient, Dub, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B3B0D847C9D57CA2ACFD916B5C1F431A9C3A7C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +485,7 @@ Eric Alexander Quartet - Recado Bossa Nova (2014) [FLAC|Lossless]<Mainstream Jaz
 ```bash
 magnet:?xt=urn:btih:FE55F765AB1EABBA798CD239D05EB2C9568E352B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4257EBBA6AF07623ADA5C635598FB60FF4A2C7A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +544,7 @@ Edward Shearmur - Законы привлекательности / Laws of Attr
 ```bash
 magnet:?xt=urn:btih:EE5387BC72C41DE6B518EAE8169B8B42730C61D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +578,7 @@ David Arkenstone - The Celtic Book of Days (1998) [FLAC|Lossless]<New Age, Celti
 ```bash
 magnet:?xt=urn:btih:21C1397C68C09C07EDAA56837E72395FB67CA4BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +612,7 @@ VA - Goa Culture Vol. 14 (Compiled By DJ Bim & Shane Gobi) (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:A59235DAD62084EF5AD0DB1C391527D4930B96DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4390BA79F4CC55DC53F59F0D4958EC1817B7AA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA55BABED4519AEB4B67AB7804CB165846943F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EA0B31B38950A224C9E707C099BF9A99CF2281A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +716,7 @@ Reader 2 для Mac самостоятельно «подхватывает» RS
 ```bash
 magnet:?xt=urn:btih:C70D82CA8886378A01DFAC1005705E50660CC811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF7C0315B87294966EEE1B4E8C756068AFA8657B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -800,8 +775,7 @@ Neo Soul Acid Jazz Collective - Soulful Paradise (2014) [MP3|320 кб/с]<Acid J
 ```bash
 magnet:?xt=urn:btih:139F4557D88C10E66ACE832C49850E57F6EB76B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

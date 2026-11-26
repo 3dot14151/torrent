@@ -21,8 +21,7 @@ DOSBox — эмулятор, создающий DOS-окружение, необ
 ```bash
 magnet:?xt=urn:btih:EC25B93A0164356CF699696472E38522DB99CC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:4FECC788D6DE16AF39FFBFE544EBBAD0E838A397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Guitar Hero Antology / Антология Guitar Hero [En] (RePack) 2007-2009 | 
 ```bash
 magnet:?xt=urn:btih:8D3F61286FC3CBEF56E4F5355A2C915999830E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

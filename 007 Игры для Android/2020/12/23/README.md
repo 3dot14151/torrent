@@ -22,8 +22,7 @@ Russian crosswords v1.15.3 [Ru/En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:410D325184EA03C3B79DA072C023C1F3E0EA3EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

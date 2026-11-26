@@ -28,8 +28,7 @@ Cayne - Cayne (2013) [MP3|320 кб/с]<Gothic Rock / Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7F51730439BF9D26C138ABB8B9FF91F0DD9D9682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Fractal Gates - Beyond The Self (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:88EDB5E95F42A4DF601AE91DBDA316EB2626C629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +97,7 @@ Mudvayne - 5 CD (2000 - 2008) [FLAC|Lossless]<Alternative Metal/Nu-Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +133,7 @@ Remastered in 2011 by Andy Pearce.]
 ```bash
 magnet:?xt=urn:btih:89B0CA646F489A58E640B6C64EAE0DD43556A053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

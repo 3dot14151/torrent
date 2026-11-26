@@ -19,8 +19,7 @@ The Emptiness / Пустота (2015) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:E2D668B5AFA6A5A908F239FEE67D149124037A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:7820886CDF280C35B0244FC6BC59187506B6034F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CF1601211ECFD25F2B11C2705F88D6AAB0F8715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Banzai Escape – корпорация «Амино» подозревается
 ```bash
 magnet:?xt=urn:btih:03602CA3D4E9EECF3B31FC2CF10217F10701C73C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0DBB7313433F60863E0411549A181514838054E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Trulon: The shadow engine - приключенческая ролевая игр
 ```bash
 magnet:?xt=urn:btih:C3451BCCA69F598308835D1553A8ADC799B43EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

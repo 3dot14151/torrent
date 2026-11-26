@@ -19,8 +19,7 @@ Techtonica представляет собой симулятор строите
 ```bash
 magnet:?xt=urn:btih:117872BF2BFBCDA175E1D1A85206C7D71AD36D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:C23723CC133360522A335905A1BE01422F0E3C79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Techtonica представляет собой симулятор строите
 ```bash
 magnet:?xt=urn:btih:184B70D2DDB9C2117E06477DDC8E60E6FE4D50A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

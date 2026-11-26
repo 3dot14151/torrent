@@ -19,8 +19,7 @@ Labyrinths of the World 10: Fools Gold (2019) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:BD19DD5F81BAA7367CBC30BF5275F6CB5202DFD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hello Neighbor — игра в жанре хоррор, в которой игр
 ```bash
 magnet:?xt=urn:btih:723949BD07BD098F3472AD17D2EC24D35D8C703F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Street Fighter V (2019) [Ru/Multi] (4.070/dlc) Repack xatab [Arcade Edition]
 ```bash
 magnet:?xt=urn:btih:B277FA8B4FAA0E55D0159226BC2741B3997EF66C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

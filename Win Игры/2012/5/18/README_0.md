@@ -22,8 +22,7 @@ SQUIDS [Multi5-] (L/1.1) 2012 | Reloaded
 ```bash
 magnet:?xt=urn:btih:E2DB2DE823AD2E4303F51757627627AEA6B39223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ May's Mysteries: The Secret of Dragonville / Тайны Драконвилла. 
 ```bash
 magnet:?xt=urn:btih:CC60AD99CA15FDA6BCB548DF017B6EC9FAC8559C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

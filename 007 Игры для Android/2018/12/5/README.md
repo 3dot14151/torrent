@@ -21,8 +21,7 @@ Tacticool v0.945 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6FAA2D938F094F6800FD4B39EF853243F3FB7D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

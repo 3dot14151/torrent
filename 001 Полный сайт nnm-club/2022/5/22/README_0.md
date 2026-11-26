@@ -21,8 +21,7 @@ Iris Divine - Mercurial (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:33E61D7725F449C82C1667E714B730B0F4618042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - The Original Masters, Vol. 4 (The Music History of the Disco) (2016) [MP3|~
 ```bash
 magnet:?xt=urn:btih:F70740C18D6B325B3769431FF445A5EE16987420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - The Original Masters, Vol. 9 (The Music History of the Disco) (2016) [MP3|~
 ```bash
 magnet:?xt=urn:btih:461D83DC3845E7C1175B04022BE874FED9256283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D6AB281ECA6FCB29D6EDFAE4D14C3F83A186FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE6CBD4EBD924A8E825BD62D612D31D7137FE45F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ VA - The Original Masters, Vol. 3 (The Music History of the Disco) (2016) [MP3|~
 ```bash
 magnet:?xt=urn:btih:861634E0077677D8CBFDED740D2A08FABD07330F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - The Original Masters, Vol. 6 (The Music History of the Disco) (2016) [MP3|~
 ```bash
 magnet:?xt=urn:btih:C4A35959F7AFFF15F87EAADA9713DC744AAB5FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Robin Red - Robin Red (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 ```bash
 magnet:?xt=urn:btih:EE642F767477530ADA141C943A877AF4D2EBF5B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - DMC Freshers Ball (Classic Mixes) (Volume 1) (2015) [MP3|320 Kbps] <Synth-p
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - DMC Halloween In The Mix (Classic Mixes) (Volume 1) (2019) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:AB0CC2B72321811D498529A9BFA28CC38330E91F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C12C619F8A0130CD22C10DFFD2E8AF46D10C87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:414606340BB8FAEA6869EACF444FC4BC648DB910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - DMC EDM Mixtapes (Classic Mixes) (Volume 1) (2015) [MP3|320 Kbps] <Progress
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Sapphire Dreams - Мирам навстречу (2022) 2CD, Deluxe Edition [MP3|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Zonderling - Tomorrowland Friendship Mix (2022-05-19) [MP3|320 Kbps] <Future Hou
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ VA - The Original Masters, Vol. 12 (The Music History of the Disco) (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:1B69D50D44E5B4AAF1DFCFBAD541DAA8573A1845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ VA - The Original Masters, Vol. 14 (The Music History of the Disco) (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:452ACE93D6A4DAB81E96CE6D3223AD8305ECEFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ The Alchemy - Idle Ghosts (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ VA - The Original Masters, Vol. 11 (The Music History of the Disco) (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:036B65675196C8E3502409ADE684D3B749B478F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ De Libertas - 6 Relises (2016-2022) [MP3|320 Kbps] <Russian Punk Rock>
 ```bash
 magnet:?xt=urn:btih:52340D241F4CDED01CDE4D91A690C2BC8871CDAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ Vesssna - 3 Albums (2017-2022) [MP3|320 Kbps] <Russian Dark Rock, Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ Coheed and Cambria - Vaxis II: A Window of the Waking Mind (2022) [MP3|204-230 k
 ```bash
 magnet:?xt=urn:btih:605FA8EA3D02B213715F9991E7B9D8979FFF845D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ Brandon Coleman - Interstellar Black Space (2022) [FLAC 2.0|44.1/24|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:E4699382D2D45B0350D78F030E9653B492A680BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7019C1ACE6D834B97630AAEB73F5ADC3DAD59048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

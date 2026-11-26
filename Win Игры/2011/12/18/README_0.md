@@ -19,8 +19,7 @@ The Secret Order: New Horizon (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:EEF16E926FE4EB239BD8F88913E789022EB2891E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ City of Secrets предложит вам поиграть за крота ми�
 ```bash
 magnet:?xt=urn:btih:E1E4C7E7F32A63ECB0DDE5F440346778013B3193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Committed: Mystery at Shady Pines - Premium Edition / Преданный. Тай
 ```bash
 magnet:?xt=urn:btih:36CCB1EAF5BAEEA6D85166763035528A41D055F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Goo Ball Madness (P) [En] 2011 | Fyrrion
 ```bash
 magnet:?xt=urn:btih:2255A143BE522D4A67AFDEB799A753E556D9C55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Dead Block [En] (RePack) 2011 | R.G.Packers
 ```bash
 magnet:?xt=urn:btih:52FF75EB81069D8FCE979CEFD1051F92FC6EAD5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F125A90009D5112037BE135A848600B70C4A363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

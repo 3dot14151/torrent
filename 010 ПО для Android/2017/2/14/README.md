@@ -19,8 +19,7 @@ Trigonometry. Unit circle / Тригонометрический круг v3.22 
 ```bash
 magnet:?xt=urn:btih:42012B800C05AF6A42529AC19DDD74CE4976B153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

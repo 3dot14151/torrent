@@ -28,8 +28,7 @@ Lonewolf - The Fourth and Final Horseman (2013) Limited Edition [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:8000208A2338B2244F2379F2ABB493393C4D080F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Mickie James - Somebody's Gonna Pay (2013) [MP3|320 кб/с]<Rock, Country rock>
 ```bash
 magnet:?xt=urn:btih:F7052BA5B72DC14D5897ACA3CD4D9A68D3628E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Oh, Sleeper - The Titan [EP] (2013) [MP3|320 кб/с]<Christian Metalcore>
 ```bash
 magnet:?xt=urn:btih:C8D6E0EEC87B8CFC60132DC06F1B5F26D78FAED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Kaledon - Altor  The King's Blacksmith (2013) [FLAC|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98F837718B7A25557A144F839B94B0EC4CB5DAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Chris Norman - 25 Best Songs (2012) [MP3|211 - 271 кб/с]<Pop-Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:4ECCBABE168D7E2AA7EF58F3FFDC56B0A3D5D494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Skillet - 14 Альбомов (1996-2013) Дискография [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

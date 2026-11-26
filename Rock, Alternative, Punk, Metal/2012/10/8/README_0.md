@@ -28,8 +28,7 @@ Archive – одна из немногих групп, творчество ко
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ PiotreQ / Queen vs AC/DC - A Day On The Razor's Edge(bootleg) (2010) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:88579821BD332BD91A466D044B7D3E87BB0E06B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

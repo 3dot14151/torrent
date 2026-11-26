@@ -28,8 +28,7 @@ VA - Тараканы! Трибьют (2010) [MP3|320 кб/с]<Punk Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Swell Season: Glen Hansard & Marketa Irglova - 3 Albums | 1 Live (2006-2009)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

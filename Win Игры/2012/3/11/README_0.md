@@ -19,8 +19,7 @@ Lost Horizon [Ru] (RePack) 2010 | LandyNP2
 ```bash
 magnet:?xt=urn:btih:E95CD534BB627A99533420D8710697E3CB385341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Murder Island: Secret of Tantalus / Остров убийцы. Секрет Та
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Agency Secrets of the Orient / Тайное агентство. Секр
 ```bash
 magnet:?xt=urn:btih:43EFEF7666C171E34CAE25F03DC594C71E546B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

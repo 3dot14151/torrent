@@ -19,8 +19,7 @@ Shade: Wrath of Angels - это леденящая кровь история, п
 ```bash
 magnet:?xt=urn:btih:FE1530DC39B06803EE8FD00B050F0CB690BE4415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Into A Dream (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5E2FA2E23302168314CECCB5E4FD60D1A87F9755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hellpoint — непростая Action RPG, действие которой п�
 ```bash
 magnet:?xt=urn:btih:D584B725ECA2FEB13D941C62CFAEE8D73C3F76E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2491/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C13004B5F9D345D9A1A8CFD5AE7CDE6ACCDB41F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

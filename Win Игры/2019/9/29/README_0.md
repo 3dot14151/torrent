@@ -19,8 +19,7 @@ Prodigy Tactics (2017) [Multi] (Update 6) License GOG
 ```bash
 magnet:?xt=urn:btih:5D6C908BCAE74762A7D81D4DBCA60DE1A558C015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Thief Simulator (2018) [Ru/Multi] (1.2.6) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A749D9F0E8173C20B2181059294C3ADB92EAF38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Book of Demons — это гибрид Hack & slash и карточной игр
 ```bash
 magnet:?xt=urn:btih:B39A848A23C5C52E7CF268718A0FE8080B17379E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

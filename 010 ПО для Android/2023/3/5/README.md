@@ -21,8 +21,7 @@ Movily – бесплатный видеосервис для просмотра
 ```bash
 magnet:?xt=urn:btih:0FC706075DE5E7BDEF66010E9EA3E823F347C219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

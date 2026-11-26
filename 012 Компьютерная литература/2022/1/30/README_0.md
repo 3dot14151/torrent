@@ -19,8 +19,7 @@ Cycles — это движок рендеринга, впервые появив
 ```bash
 magnet:?xt=urn:btih:79C73F9D8522309FA087D48A74885D4E7D33CF94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Zero To Production - это идеальная отправная точка в 
 ```bash
 magnet:?xt=urn:btih:051BE6A34A91F369C062A6DC8BEC3026DB5AAAA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A8D1F6A9AC0F2001FBFA242C67C2EFBC52583F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CFDC87FA4EF6F95CE83B2B446FDE4313FEA3F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

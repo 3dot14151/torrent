@@ -22,8 +22,7 @@ Caligula's Horse - прогрессивная альтернативная ро�
 ```bash
 magnet:?xt=urn:btih:5BCCB10073372B17E5A051EEBB2A4690C0F469BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

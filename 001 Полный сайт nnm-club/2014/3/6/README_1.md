@@ -27,8 +27,7 @@ Sanctorium - The Depths Inside (2014) [FLAC|Lossless]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:FD61639414D35E3CE32F170BF0A5D02025E3BD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E5549907E1290C6A8A39A421DB6E41AF7BF2B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ ForkLift это простой и в тоже время функциональ�
 ```bash
 magnet:?xt=urn:btih:5669AD390F06E3B4C2031F4C359E2DA32A5802F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ VA - Всесоюзный танцпол. Зарубежный (2014) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:264A39940B1B11818FECDC851FD2C2F9F6B77B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AB467F1FEAC40DC58CB29D48A35464B2D8DB5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A85681091B0D0247CD3202D5BD17EC3322B93BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Albert King - The Best of Albert King (1998) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:3E4104B58AA261F424A597B46FC9D7828C7BD3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ Armin van Buuren - A State of Trance (650.5) - Live from Buenos Aires, Argentina
 ```bash
 magnet:?xt=urn:btih:40B312D6F62F9CDCCAA9B6C3C7973A490EF91A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ VA - Erotik Wellness Lounge Vol. 2 (Tantra Chill Out and Kamasutra Ambient) (201
 ```bash
 magnet:?xt=urn:btih:65EC800B39F84E50F6C62A98F46CB3C439F03F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35B352A2CFAD573209EACD605E493060A217A8E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:090AABB1C410B298388DFB8F0C225DEC3333ED4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5056F4F409925E5791EE594D29C5CFF23C4940C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ Cuptakes – эксклюзивные обои для рабочего стол�
 ```bash
 magnet:?xt=urn:btih:92AA15085FB3406EE762DD9CE49BCA698DA8F9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +401,7 @@ Michael Stearns - The Lost World (1995) [FLAC|Lossless]<Tribal, Ambient>
 ```bash
 magnet:?xt=urn:btih:60DB84F7CB0AD268472519CFF63CE8ECF7BCFFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7283BB8A29ACDB2AD069DA770A740D54FB3E1D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81933B81F759A944A49BB6D703A506706F1944E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +476,7 @@ Riddles of Fate 2: Into Oblivion (2014) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:FAAFFEA08672449FAE97D4EE8A8D24B3ED5F30BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ VA - Deep In Space Vol.II (2014) [FLAC|Lossless]<Ambient, Drone, Dark Ambient>
 ```bash
 magnet:?xt=urn:btih:A776E618C0B34E4999DFD18DFDA7C78ADBF346BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +535,7 @@ Tор Мюллер, Лейн Беккер |  Удача в бизнесе. Ка�
 ```bash
 magnet:?xt=urn:btih:0E439716FCE3F950FDCF4FF073D1E1EDC606E64F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ John Mayall & The Bluesbreakers - In the Shadow Of Legends 2CD (2011) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:DD138A4FC5D8569A9EDD0501D6D6C400C09BE733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC1B31F64DF02DDC5091310398904495B15DF962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA86EAF8E8C5DDA7599EEFA243D84D27E9096B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDD94FB0BBF7500BC738DEF47464E098B3B27F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34DF53989C2DA786ADE83250594E6FB35B831214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEBEF1DAD6C3C7D05FB454B1CF9F98D958889419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +725,7 @@ VA - Ambient Devotion (2014) [MP3|320 кб/с]<Ambient, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:1608723F924055083AA3738E21AF5D4BAEEC6DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

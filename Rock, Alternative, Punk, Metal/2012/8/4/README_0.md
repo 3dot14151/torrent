@@ -28,8 +28,7 @@ The Beatles - SinglesCollection (2012) (Compilation) [MP3|320 кб/с]<Classic R
 ```bash
 magnet:?xt=urn:btih:F48AD571557C4C61E33F68730AAEA111771181F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD54FEB9BC000D7C268DCA6DD245C90068C03EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

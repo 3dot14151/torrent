@@ -19,8 +19,7 @@ Christmas Wonderland 13 (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:7B225F06DA72C98D9C5415DB71D23CD53BFCE1DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bound By Blades сочетает в себе элементы RPG и рогал�
 ```bash
 magnet:?xt=urn:btih:63423784FDB69841C2A1A3747D88C7065B2C5475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhammer 40000: Shootas Blood & Teef (2022) [Ru/Multi] (1.0.23) License GOG
 ```bash
 magnet:?xt=urn:btih:EA806A7167E3A5465119B0A2BB6EFC27901F09DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

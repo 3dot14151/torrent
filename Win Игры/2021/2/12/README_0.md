@@ -19,8 +19,7 @@ Immortal Love 8: Sparkle of Talent (2021) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:547CF462DDFD8BF0684F05870ABB9072719EB621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Room 4: Old Sins (2021) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:89721AFF60C25F3292CF2CAEA1D4CBE4B73667C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

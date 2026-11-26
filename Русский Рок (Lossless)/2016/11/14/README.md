@@ -22,8 +22,7 @@ On-The-Go - Origins (2016) Digipak CD Edition [FLAC|Lossless|tracks + .cue] <Ind
 ```bash
 magnet:?xt=urn:btih:84957FB1E1BA02ADAEC81347D9C94A6B4028030D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

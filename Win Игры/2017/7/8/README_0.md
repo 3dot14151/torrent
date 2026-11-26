@@ -19,8 +19,7 @@ Dark Parables 13: Requiem for the Forgotten Shadow / Темные Притчи 1
 ```bash
 magnet:?xt=urn:btih:AD7566265B5D01FC2E45DD07B904529D7BD5A223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mitsurugi Kamui Hikae - экшн-игра, в которой Вы управля
 ```bash
 magnet:?xt=urn:btih:03F017BB0E81F813E81706E2C79FC9D92CCAD059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ben The Exorcist (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:453FA3EB7ED253C549CADDF62463570EB92B74D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Might and Delight приглашает вас переступить порог 
 ```bash
 magnet:?xt=urn:btih:11968B67DC16BE407EDC09C54FD6823A7134F2F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

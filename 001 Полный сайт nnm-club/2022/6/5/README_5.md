@@ -18,8 +18,7 @@ ROCKPOP IN DORTMUND: Scorpions, Def Leppard, QuietRiot, Judas Priest, Ozzy Osbou
 ```bash
 magnet:?xt=urn:btih:7516901D81C08E22A252E4740231592F4B18E0C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Linguatrip, Веня Пак | Произношение 2022 (2022) WEB-DL [AD] [
 ```bash
 magnet:?xt=urn:btih:A70F21824D4B14771876C11852E3529FDEBB37A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D936DBAD31E16F6AADCA70EB9247C4FA4C154DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55E43029FE799EC39F6D2CC1A46299F8884B5BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

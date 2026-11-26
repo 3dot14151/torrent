@@ -22,8 +22,7 @@ Simply the Best - альбом самых популярных хитов Turner
 ```bash
 magnet:?xt=urn:btih:42282BB19599929C98E657B42C7886DC9905EB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rage - A New World Rising (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
 ```bash
 magnet:?xt=urn:btih:62454206621AB6DADEB46C6E1B1A0C5666D73F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Halo Effect - We Are Shadows - The Covers EP (2025) Japanese Edition [FLAC|L
 ```bash
 magnet:?xt=urn:btih:FAD447E1BCF08C04F31211066EE3DCA140071064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wildhunt - Aletheia (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:83B0AC7C09AD26752B957A7F0446FF3E2A6BB03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ IV The Jackhammer 3:15(   Читать дальше...   )Жанр: Thrash Metal
 ```bash
 magnet:?xt=urn:btih:004697B85AF7D30DA8E041EA2F67221095B1D561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Various - No Life 'Til Leather - A Tribute To Metallica's Kill 'Em All (2025) Ja
 ```bash
 magnet:?xt=urn:btih:DEBD5E477BB5044DF842844D8B62136A1D70D364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

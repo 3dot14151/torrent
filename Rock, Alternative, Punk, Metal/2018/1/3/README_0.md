@@ -19,8 +19,7 @@ Halestorm - Apocalyptic (2015) Single, Atlantic Recording Corporation, 548818-2 
 ```bash
 magnet:?xt=urn:btih:B411255685F58FC36B59ED105599BCAEBEFB5F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Renia - First Offenders (1973) Reissue, 2011, Flawed Gems [MP3|320 Kbps] <Classi
 ```bash
 magnet:?xt=urn:btih:DC8A8BF80F3F9C850020D0317A8033009AE5A4AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Halestorm - On the Heels of a Myth (2013) Live from Myth Nightclub [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:C0C56130304DECE8ACDEFC3ECAFBAC724F1C5F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C29B29938C23D5DAABE908E1AC244F60126D1C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Halestorm - Into The Wild Life (2015) Atlantic, WPCR-16417, Japan [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:8219AE50ECE0418007EA77CB0FB9B4DDCDF2CDB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

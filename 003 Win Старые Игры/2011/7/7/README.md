@@ -19,8 +19,7 @@ Jagged Alliance 2: Wildfire / Jagged Alliance 2: Возвращение в Ар�
 ```bash
 magnet:?xt=urn:btih:C7580D405874D61FF5E7A0CE88A07E5AD244D0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

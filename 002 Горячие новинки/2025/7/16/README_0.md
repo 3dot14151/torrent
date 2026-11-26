@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:86ECFFAB1332DA0AF68B3E4AF2245E21A41C7F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, Dolby
 ```bash
 magnet:?xt=urn:btih:D953DD6C5856734A26E3C0AA941D023ADBF1F69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFD0C68CBC9535C8D3093D4223076EED6C4F374B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59BDF9D82D4B94B4472B91F07A32A1A715E04739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Minecraft в кино / A Minecraft Movie (2025) UHD BDRemux [H.265/2160p] [4K, 
 ```bash
 magnet:?xt=urn:btih:5A5B58A7368A5D7F2D75F9ADA1556E1EE991FB57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

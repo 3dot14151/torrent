@@ -19,8 +19,7 @@ Nocturnal (2023) [Multi] (1.2.1.748) License GOG
 ```bash
 magnet:?xt=urn:btih:3BD76C343395E42FC240EB3C9D5E101C82425FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Car For Sale Simulator 23 - это в основном игра по покуп�
 ```bash
 magnet:?xt=urn:btih:E0C178C3202957EE1D5AD5DCDDBC3C4EABEDB613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dream Engines Nomad Cities – это необычный градостроит�
 ```bash
 magnet:?xt=urn:btih:CF5CDB46052856400B339F83F308BAAF90354305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The King of Fighters XV открывает мир сражений, сложны
 ```bash
 magnet:?xt=urn:btih:67D3449620F9B8748779CB447669F2005E287503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ City Legends 4: The Witness in the Rye / Городские легенды 4: С
 ```bash
 magnet:?xt=urn:btih:1F336081D09939C4D889F3B9A5087CBEE415B4FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Imaginary Friend Asylum – это самый настоящий психоло�
 ```bash
 magnet:?xt=urn:btih:BD692BCF2DA23882E080CD71459FDF4C3A73063A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

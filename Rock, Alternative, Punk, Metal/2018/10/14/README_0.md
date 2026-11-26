@@ -22,8 +22,7 @@ Darkness - First Class Violence (2018) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:B82CFC915CFAB6115393DAE40FCD11FCB629D7FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bonniwell Music Machine - Ignition (2000) [FLAC|Lossless|tracks + .cue] <Psyched
 ```bash
 magnet:?xt=urn:btih:25603C0DF4E193553EE7C466542707ACE40FDD39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Running with Rock!!! 2018 Session [MP3|320 Kbps] <Rock, Miscellaneous>
 ```bash
 magnet:?xt=urn:btih:8B0C871F22C966434FFDF91CAA3D0B5AE1050A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nazareth - Tattooed On My Brain (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BB09F03FF65C6C657C7474DBBA0DF888AD065A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:931FC3862D44188EC68834A8182D5CC6A0FBEA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

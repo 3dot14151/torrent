@@ -22,8 +22,7 @@ Vindictiv - прогрессив-метал группа из Стокгольм
 ```bash
 magnet:?xt=urn:btih:DF08D1759784C11927F4FAAC539A42BA7AE0D34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Mark Robert Boals (родился 5 декабря 1958 г.) - американ�
 ```bash
 magnet:?xt=urn:btih:6E9BF7D6F234F9345E1DB71915500F6983F1995D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Stone Sour — американская метал-группа, образов�
 ```bash
 magnet:?xt=urn:btih:00E4519727C61B26E164259B1C28DFA4215BA805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

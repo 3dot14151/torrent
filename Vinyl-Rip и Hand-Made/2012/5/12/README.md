@@ -28,8 +28,7 @@ Kansas - Point Of Know Return (1977) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
 ```bash
 magnet:?xt=urn:btih:241A41B42DEC76DFE9BAFE59E6DE1E9A8AED832F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

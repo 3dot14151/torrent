@@ -22,8 +22,7 @@ Dennis Churchill Dries - Crazy Is This Life (2026) [MP3|320 Kbps] <Melodic Rock,
 ```bash
 magnet:?xt=urn:btih:590BD571A6E79055643FB71072A5B5B723545B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mayhem Mavericks - I Can Feel The Heartache (2026) [MP3|320 Kbps] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:ACA0E58DF89156287953BABBC2C6C0A686A45CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:0CB19732C84EB814302BB1DDCCFE105A39297CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B44F2BD134987795C014798D7628EF73714D4B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ WildHard - Love N' Lies (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:36B68E8E8411009DE9E7FE8A0BD6A310D577788C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

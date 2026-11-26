@@ -19,8 +19,7 @@ Dark Strokes: Sins of the Fathers. Collector's Edition / Сердце тьмы. 
 ```bash
 magnet:?xt=urn:btih:96ACF4DE562063E496CE328D499949EE055BC81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

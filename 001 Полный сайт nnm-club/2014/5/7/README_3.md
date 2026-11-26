@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C46240621C5A3C237E7E45DB8530104115A11B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debian GNU/Linux 7.5.0 Live [amd64] 4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:6498247E9C64390EF1C7E423627E68FBB33DBBE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Google Panels - бесплатная программа, с помощью ко�
 ```bash
 magnet:?xt=urn:btih:8CCEC9597096EF00008401A2C633B84011EB1096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:02ABF612417E04FC8597DB487B3FA4FAB5345504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Offline Explorer - мощнейшая программа, позволяющая
 ```bash
 magnet:?xt=urn:btih:05F82C38208F1E14A069411C9B2272461483FA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:FFC39667B240CF4DD0FA3EBB0F87705E05DF4D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71CE12ADE1583DE38CC6A2A845E358A96F7119A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1195721FE7E5BF7B2A901DF4D76AE3E43C1404C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Rondo Veneziano - Concerto Per Vivaldi (1990)[FLAC|Lossless]<Neo сlassical>
 ```bash
 magnet:?xt=urn:btih:776D62089341CBB15B37DAB36398528628522338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89E75872C659B3FC625E9266339EDFD583978A3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B345B1660EF1A88166F12871792FA2B5AC86351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F0BC36205C542E6784DFBAB1AD93269A9024120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Debian GNU/Linux 7.5.0 Live [i386] 5xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:4DBAA7B65CA97C73A673EC810A3493AC7A25487B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Abyss: The Wraiths of Eden (2012) [Ru/Multi] (1.0.6218.150963) License PROPHET [
 ```bash
 magnet:?xt=urn:btih:9FBC08148EC682F6570FF21A2C12D4D1C6700B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD655B3FAFBCC37B440B73C166E87B56DD60FAB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Videohive - Expresso BackToSchool [AEP]
 ```bash
 magnet:?xt=urn:btih:03CB41D904D0D14532E21856FC2F96BBEB818A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ uTorrent 3.4.1 Build 31105 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:89D7340D97E5B908AC6069E45BD537660D03B9B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Concerto for Strings No. 3 in C minor, RV119
 ```bash
 magnet:?xt=urn:btih:8685C52F2BA8917B2CA24DD8843A4030C29A57BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ TagScanner - это многофункциональная программа д
 ```bash
 magnet:?xt=urn:btih:77E0BE00818C6F2E56D7BD1A6FCBC02B9BB453D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Templates for Excel - представляет собой набор из бол
 ```bash
 magnet:?xt=urn:btih:C842EC277F693E4E9526196549EC56FFC9A1052E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CEE8DA9935B85BF989D65198861718308A757F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ BBC: Великие рейды Второй Мировой Войны (1-6 Се�
 ```bash
 magnet:?xt=urn:btih:731CEC6BD32EF3237CE7374CDFFF6C783F08F6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ NetBeans IDE 8.0 предлагает готовые решения по ана�
 ```bash
 magnet:?xt=urn:btih:F2430A03815224886F2476B78C5FE63A72042C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CA8FAF30A4098B84A8284768C602E42FDC66196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0F81C29F1AF77BE55643334EF2A0684B6B8ADD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

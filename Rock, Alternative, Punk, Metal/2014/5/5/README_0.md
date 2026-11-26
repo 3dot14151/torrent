@@ -27,8 +27,7 @@ Vestal Claret - The Cult Of Vestal Claret (2014) [MP3|320 кб/с]<Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:29E6EF2A5B63242AACE15B0911022E1A4BE225E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Chrome Waves - Chrome Waves (2012) [MP3|320 кб/с]<Post-black metal, Atmospher
 ```bash
 magnet:?xt=urn:btih:2D7C769A170BEE19C0DF6FD0C22047A4D7691749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Battleroar - Blood Of Legends (2014) [MP3|320 кб/с]<Epic Heavy Metal, Power M
 ```bash
 magnet:?xt=urn:btih:430024509B4E28A62C513C1F8D450A31FC27881B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Daniele Liverani - Fantasia (2014) [MP3|320 кб/с]<Guitar Heroes, Progressive 
 ```bash
 magnet:?xt=urn:btih:47AC3750E7A36F9AF5A60DCAA887DC8A0C132679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD6AB9AF5B9976198C6F02E67DC34D959362A014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:11CE4427CA58C56FC6D30E6EA75475ADB69E353B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Bell & Arc - 1971
 ```bash
 magnet:?xt=urn:btih:FDA1200FD08134200D2EC3C923C13E4E75B76203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Miss May I - Rise Of The Lion [Deluxe Edition] (2014) [FLAC|Lossless]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:B4068F5DD1C9FAADBE97B2CADD961AAE71664AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Freddie Mercury - Romantic Ballads (1998) [MP3|320 кб/с]<Classic Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:D3F0E1A6A28DA95E05CCABD410C72FCF66B5B1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Santana - Corazon (2014) Deluxe Edition [FLAC|Lossless]<Rock, Classic Rock, Lati
 ```bash
 magnet:?xt=urn:btih:BB5480CA2CC55D6E2C95B8F2852844DE3C047878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27899C5E308799C5EDC568E672A5C4DCD5749DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +391,7 @@ VA - Billboard Top Hits (1985-1989) 5CD [FLAC|Lossless]<Rock, Pop, Electronic, S
 ```bash
 magnet:?xt=urn:btih:F39433B9DFFDA9EA1778F55DB64C4A6937D8D567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +420,7 @@ VA - Billboard Top Hits (1980-1984) 5CD /1992 Rhino Records/ [FLAC|Lossless]<Roc
 ```bash
 magnet:?xt=urn:btih:9BBA2DBE26F331DF9AEF0706060211C2FEBE129A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +449,7 @@ VA - Billboard Top Hits (1975-1979) 5CD /1991 Rhino Records/ [FLAC|Lossless]<Roc
 ```bash
 magnet:?xt=urn:btih:73074B1DA8B7E19A5F378A266672B59F4E446319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

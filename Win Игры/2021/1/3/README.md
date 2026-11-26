@@ -19,8 +19,7 @@ The Walking Dead: The Telltale Definitive Series содержит все чет�
 ```bash
 magnet:?xt=urn:btih:ADE2091C10BC2267E8289CF2DC38417B26CC6442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

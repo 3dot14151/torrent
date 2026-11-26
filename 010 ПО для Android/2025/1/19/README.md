@@ -20,8 +20,7 @@ Audio Books – новая платформа для прослушивания 
 ```bash
 magnet:?xt=urn:btih:8846677D29A3F3C54EAAC739D57BB6002B455282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Lumii - Фоторедактор, Фильтры v1.700.167 Mod by PieMods [Ru/M
 ```bash
 magnet:?xt=urn:btih:B44C3EFEA420B570A86AF5B99CB4BB6D8027E268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

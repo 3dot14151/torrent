@@ -20,8 +20,7 @@ Broken Sword: Reforged v1.1.9.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:C0A68A0ECD0F12FAD9D7DC30E69C01771950B03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Stone Quarry Simulator 2012 {1.2} (L) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B2A2FE1973166E5FB1360F6D2C4F0CC1CB8CDDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Airport Tower Simulator 2012 [En/Ge] (L) 2012
 ```bash
 magnet:?xt=urn:btih:43254B7B40A4BBDB63D3AF919061FFD61E0F711E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NBA 2K11 продолжает популярную серию виртуальн
 ```bash
 magnet:?xt=urn:btih:15BD47940577C213AC53EE49B0D885A5844ED123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

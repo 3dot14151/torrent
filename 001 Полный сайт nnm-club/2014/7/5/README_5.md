@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:991DBD1E2E79FA46CCEBC7F06942B7EC0257FF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Low Roar - 2 Albums (2011 - 2014) [FLAC|Lossless] <Indie, Alternative, Folk, Amb
 ```bash
 magnet:?xt=urn:btih:F153EE5B787EAE5A144F7138EE0920FA66B4ACEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:451DA78DAAAD129505F77FF6079EADB540C50089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:618D1795BB62548DE673CDC3EE7210CF482DC0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Of Orcs and Men [PS3] [EUR] [Ru] [4.21] [Repack] [Cobra ODE / E3 ODE PRO ISO] (2
 ```bash
 magnet:?xt=urn:btih:040A679390918F3F45AB373EF3D99C3B61700AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ TheTunes.Ru | Секреты Мастеринга (2014) PCRec [H.264/1080-LQ]
 ```bash
 magnet:?xt=urn:btih:4CB717D2D29392B0E6FD51D4C443DA782BDAE480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Macrorit Disk Partition Expert - это расширенный менеджер 
 ```bash
 magnet:?xt=urn:btih:7C9E614C3648EA2936B098A69F56577FD07F8AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E141592759E24BA4D7F5D148FBB28EC80C072E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма 1/2 ТВ [1989-1992, 55-6
 ```bash
 magnet:?xt=urn:btih:ED588B8464073B6EB92361876F9ACE3FDE52C715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72580490BD4BF1F8B38C9393DBD2429F207F666B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Discovery: Как работает Вселенная. Чёрные дыры / H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Crash Time 5: Undercover (2012) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F9835F689BEEEBD77F72C511F256D0707DB388F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ F1 2013: COMPLETE EDITION [Rus] (2014) [XBOX 360] (16537) [LT+3.0]
 ```bash
 magnet:?xt=urn:btih:A3B6650B83516E9238D8AEA068B5D0A6BE4459F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ NTFS Drive Protection позволяет запретить запись и ре
 ```bash
 magnet:?xt=urn:btih:7F00AB4FBC1180743FA4FE3702C1CB7F4CAF601B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ CRM-sova - коммуникативный инструмент для подде
 ```bash
 magnet:?xt=urn:btih:D2945FAB8A9799FFA8FE5E26C16DF6BB2B9DA6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ VA - Chill Out Essentials Vol 1-15 (2012-2014) [Обновляемая] [MP3|320
 ```bash
 magnet:?xt=urn:btih:4A7F8BE03CBF0C0A2C23AD5B24B8FB6C104476E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B82A861DF4AA7D86BDC151FF4DD5BEDF2D185280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Blackguards (2014) [Ru/Multi] (1.4.34018s/2dlc) SteamRip R.G. Игроманы [
 ```bash
 magnet:?xt=urn:btih:1E9FB80F87703101D3C3662C9D5D622025650DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F83F415A2638D7D731033A08E97CF9C4A5520AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB2F527261D43E5802A07705EFB8BCCCE33DF461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ USBDeview - небольшая утилита, которая отображае
 ```bash
 magnet:?xt=urn:btih:9759574435141716B1CD28AC1D1F0AB77EE4B0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:793F942093633D524A43D0C8308F9540FF354628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ WTF! Какого черта? / N'importe qui (2014) TS
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ Condemned 2: Bloodshot [PS3] [USA] [En/Ru] [2.10] [Cobra ODE / E3 ODE PRO ISO] (
 ```bash
 magnet:?xt=urn:btih:A1903360569D028A71B6D05EB7F5CB1157540F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9C8256DC288F495074821229D48BEFABECD380C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

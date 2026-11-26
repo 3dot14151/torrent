@@ -19,8 +19,7 @@ Heroes Might and magic I-IV / Герои меча и магии 1-4 [Ru] (L) 199
 ```bash
 magnet:?xt=urn:btih:8BAC576C9758F2EBD6A8ECD70F8BD5FA9012F516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:037E02475460A09E781027921BE0DFAFD991A1FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25D712C794015A09AE4F96A2D2C197B1991C63EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ The Elder Scrolls 3: Morrowind + Tribunal + Bloodmoon [Ru] (RePack) 2002-2003 | 
 ```bash
 magnet:?xt=urn:btih:F663C992C1E9242BD9639E41BE83C63FEB711D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

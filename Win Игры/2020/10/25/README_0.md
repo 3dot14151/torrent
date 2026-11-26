@@ -19,8 +19,7 @@ Mortal Shell — это беспощадный и глубоко прорабо�
 ```bash
 magnet:?xt=urn:btih:4698ACB452F18EE9E521EC17A6E28CBB115526D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

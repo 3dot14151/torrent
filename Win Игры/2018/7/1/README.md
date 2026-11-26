@@ -19,8 +19,7 @@ Lock's Quest (2017) [Multi] (20170716) License GOG
 ```bash
 magnet:?xt=urn:btih:15136570382EC68D365221A423021BFC430A656A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.5.16.6) License PLAZA
 ```bash
 magnet:?xt=urn:btih:8BFD0179845F87CBA76ED5D091BADB459EB9BB82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Hexodius (2013) [Ru/Multi] (1.0 upd1) License PROPHET
 ```bash
 magnet:?xt=urn:btih:6C209B4AD630F5C9902A1EA460C9A1FBDACD3A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mystery Tales: The Lost Hope / Загадочные истории: Потеря
 ```bash
 magnet:?xt=urn:btih:FACE48A335E33E88FB01869CEBE13F7E79034837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Rescue: Everyday Heroes – симулятор, в котором нужно у�
 ```bash
 magnet:?xt=urn:btih:B97A6D728C6C8676BBC6BB9B4BB2AA8262821A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Depths of Fear: Knossos - экшен с ролевыми элементами о
 ```bash
 magnet:?xt=urn:btih:F609F63D7319B1DD71D190F10F53AC6A813C1A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ The Last Federation (2014) [En] (1.000) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:B46B27E9E22F959770CB8E1DAE55B339D21C530B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

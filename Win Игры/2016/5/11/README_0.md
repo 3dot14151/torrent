@@ -19,8 +19,7 @@ Cosmochoria - это дань уважения классическим арка
 ```bash
 magnet:?xt=urn:btih:C486B80337705F190B93609AFAD9A360C9B86A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Octodad: Dadliest Catch - это игра о разрушении, хитрос�
 ```bash
 magnet:?xt=urn:btih:0FE1E482E7CA14B5149785214DAB65836FFB0C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.1/dlc) License PLAZA [Gold 
 ```bash
 magnet:?xt=urn:btih:0326D91BDE39C80FD78C43B45DA6CCADDB96F712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Braid — это выполненный в живописном стиле пл�
 ```bash
 magnet:?xt=urn:btih:A6372D023C8DFF4AD712C2CCA81503D5A9103D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

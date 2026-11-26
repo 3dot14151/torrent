@@ -19,8 +19,7 @@ MIUI Hidden Settings Activity v1.6.11 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7AB3B0E2993E12B58BC5363E6D01A22B395070BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

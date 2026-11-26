@@ -19,8 +19,7 @@ Manowar - 11 альбомов (1982-2012) (FLAC 2.0|96,192/24|FLAC|VinylRip] <He
 ```bash
 magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

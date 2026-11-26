@@ -22,8 +22,7 @@ Ashampoo Snap 10 содержит множество улучшений и ум�
 ```bash
 magnet:?xt=urn:btih:1A8FF6101BDE9CF32159641C3A093DCE50FCED64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

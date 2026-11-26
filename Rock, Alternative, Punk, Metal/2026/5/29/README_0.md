@@ -22,8 +22,7 @@ Narnia - X (2026) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Power Metal>
 ```bash
 magnet:?xt=urn:btih:E90C698D4F435B893F8AB39B217FA35B0E54EB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ IronWill - Reforged Within (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:603DDA926935E0A461D63FC7B29355F6B73EB62F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Emerald Rage - The Eyes Of The Dragon (2026) [FLAC|Lossless|WEB-DL|tracks] <Heav
 ```bash
 magnet:?xt=urn:btih:5E9E55F02F6D647E5A215F984755FC5F0711D5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Shinedown - EI8HT (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:833FDBAC506CF0ACCE1D015011A45F0A0C2DAB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Paul McCartney - The Boys of Dungeon Lane (2026) [FLAC 24/96|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:323ADB6F9C298AABBF4E09AE999B8176C7C1C120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:B315CE369C3ED7FA41C210377EBBDD3ACEB3B4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Abyssic - 3 Albums (2016-2022) [FLAC|Lossless|image + .cue] <Symphonic/Funeral D
 ```bash
 magnet:?xt=urn:btih:E5619CB19E240B11BD91FAE865AA1B3CBABDAA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Dan Swano - Odyssey - 3 Albums (1999-2010) [FLAC|Lossless|image + .cue] <Progres
 ```bash
 magnet:?xt=urn:btih:DFBFCAD4B015388B67963F0FE1D281B7EDCB75B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

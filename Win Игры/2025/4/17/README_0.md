@@ -19,8 +19,7 @@ Sons of The Forest - многопользовательский хоррор о�
 ```bash
 magnet:?xt=urn:btih:BCCBCC1BB9517DF14A25097503792DA137ED9551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ AI Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack Wanterlude [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:68BC4526F8AD2683A8F77004DD49FB130B59B7EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Forever Skies – это нетипичное выживание, в мире п
 ```bash
 magnet:?xt=urn:btih:522E0B7DC17F52B33DBAA32652F991F6015FF238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Anno 1800 – возглавьте промышленную революцию! 
 ```bash
 magnet:?xt=urn:btih:8BDDE2ECD79E40F5800C42F5CE7207C192653222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:26E6AE848E4CB88F7C4DB96F09B0F1071A7AA9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:60FAD9DABBED086083FEF37CEC74A1C9F12C118E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Sweep (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:936521D8F949AB4469D7B2F068395C3B1FB66C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack seleZen [Digi
 ```bash
 magnet:?xt=urn:btih:CEA399C3DD166B93E4F7E5AE9D7F81217D35C1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Space for Sale — межпланетный симулятор управлен�
 ```bash
 magnet:?xt=urn:btih:4398B1A6D22433DCB7795DC0E89ED3C63F068DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Lushfoil Photography Sim – это невероятно красивая и р�
 ```bash
 magnet:?xt=urn:btih:A2D0CE82CFD6FB23D9FB35A37D7B14F50CAED231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Koira (2025) [Ru/Multi] (1.0.7/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:42191DA4B18574551B0AB35BB34BA7EAA26D8AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ StoryKeepers: Hidden Mystery / Хранители историй: Скрытая
 ```bash
 magnet:?xt=urn:btih:ECAFAD98F8DD0AE63CCFC1D7C282C0D1206A20C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E878585B7067DEBEE6B57170675089822AACE0AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ Skelethrone: The Chronicles of Ericona – в этом достаточно не
 ```bash
 magnet:?xt=urn:btih:0CAA11D973EA2BEF4E3DD5393EB5CEF0774F125D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Dark City 10: Barcelona (2025) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:7A9E977715DE78D410D5E716B4847DAFC47BC8ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30E6784E270A1B8EC50C2A75C2F6C749447C0184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +420,7 @@ Mystery of Myths: Mystery of the Fjords (2025) [Multi] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:810A95BFC31C804B34D5E7C80C4CD579EAF259EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

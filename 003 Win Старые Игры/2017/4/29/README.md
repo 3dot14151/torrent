@@ -19,8 +19,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 ```bash
 magnet:?xt=urn:btih:DF5E6916CF119FAD13C2777B21A67880CB80A7CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

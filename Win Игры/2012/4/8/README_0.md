@@ -19,8 +19,7 @@ Deadly 30 (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B4F68DB5E9FCF771188391B9D31E5AEF50181350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon Keeper 2 / Как воспитать дракона 2 (P) [En] 2012
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Treasures of the Deep / Сокровища глубин (P) [Ru] 2009 | Fyrrion
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Necronomicon / Книга Мертвых: Потерянные души (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:3213A52A4C3DE17D8823B32B5352CBC6CC973B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

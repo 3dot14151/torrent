@@ -20,8 +20,7 @@ Xpeerio / Игры детства "Электроника ИМ-XX" 1.1 и 1.0 [R
 ```bash
 magnet:?xt=urn:btih:2CDB9CA89367537680EE0B50E99CFD7218884A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

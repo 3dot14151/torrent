@@ -19,8 +19,7 @@ Invisible Inc. (2015) [Ru/En] (183969/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A39AADB9C0C8BFA796618B060A24C384D91F5B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GRIM - Mystery of Wasules - это игра от первого лица, в к�
 ```bash
 magnet:?xt=urn:btih:95B23A0A94E68CC22CB600DB7407421B6A8A03DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.3.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:373E1D0B3AF303F42416FBA54247C65441DBE3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shiver (2017) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DF81D35C189934813B44ED90B929DB373C7891FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

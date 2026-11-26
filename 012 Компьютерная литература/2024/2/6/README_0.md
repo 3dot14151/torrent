@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1BF366739D829498789F367486F94F84F2E97296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Qian Han, Nick Aleks,Ben McCarty, Daniel Graham etc. | Some cybersecurity books 
 ```bash
 magnet:?xt=urn:btih:B40B37204A1728CBD101E3E73B31F8CCFC3870C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

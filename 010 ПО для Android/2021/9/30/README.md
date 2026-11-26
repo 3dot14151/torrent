@@ -20,8 +20,7 @@ iReal Pro - Нотная Тетрадь & Минусовки v2021.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:A8642C1CE9E263CBA23E17005E44ECFD0CC823D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Speakometer - Английское Произношение и Акцент v2.1
 ```bash
 magnet:?xt=urn:btih:89743B25884540B836A97462F22848847E51B17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC6F442A29849D794BA5DE335FD2AE11C8FCC2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Fennec File Manager — проводник для управления файл�
 ```bash
 magnet:?xt=urn:btih:1C9958BFA1860F44FD82E5A8102C8E25880BADC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Viewbox - весьма недурственное приложение для с
 ```bash
 magnet:?xt=urn:btih:7DBE927E4D02C2983CE69126EE8950ED6148C7EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

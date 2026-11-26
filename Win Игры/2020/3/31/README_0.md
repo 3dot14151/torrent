@@ -19,8 +19,7 @@ Saints Row 2 привносит настоящую свободу в игры с
 ```bash
 magnet:?xt=urn:btih:CA7DA8F42AE091EF5E46E2A7CC7CF3F8F210F8BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wuppo - приключенческий платформер с милым кру
 ```bash
 magnet:?xt=urn:btih:9732C40C17762132CE7F4D23171387D809AE895A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Entropia Universe — многопользовательский онлайно�
 ```bash
 magnet:?xt=urn:btih:13F78E8B985083011595C54E3F6A85998A814702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

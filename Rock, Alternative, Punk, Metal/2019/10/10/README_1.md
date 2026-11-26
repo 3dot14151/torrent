@@ -22,8 +22,7 @@ Elbow - Giants of All Sizes (2019) [FLAC|Lossless|tracks] <Britpop, Alternative 
 ```bash
 magnet:?xt=urn:btih:CF5804C3FA6992D982E644FEF31A49D1602EDE59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Freddie Mercury - Mr. Bad Guy (1985) Special Edition, Remastered, 2019 [MP3|320 
 ```bash
 magnet:?xt=urn:btih:2255DE5BF92434632D50A66BCC9AF8C7E566DD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

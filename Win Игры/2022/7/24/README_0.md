@@ -19,8 +19,7 @@ Spirits Chronicles 2: Flower of Hope / Хроники Духов 2: Цветок
 ```bash
 magnet:?xt=urn:btih:AE874467C71A5C4B4F82AE4935856A2A184EAD84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Platypus Adventures - это семейная приключенческая и�
 ```bash
 magnet:?xt=urn:btih:5E6B864D4BEB0FDC19C54BB45B6FA262816E281B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hidden Through Time - очаровательная, смешная игра в �
 ```bash
 magnet:?xt=urn:btih:C483340D4973F1AB4BF1B69F8BBD1ED50A5BC3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

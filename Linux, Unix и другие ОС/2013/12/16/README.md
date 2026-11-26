@@ -23,8 +23,7 @@ Linux UsefulPack 13.12 (L) [Русский] (2013) [x86 + amd64]
 ```bash
 magnet:?xt=urn:btih:C9C864BFF779A5E07E5819F2BED3099650387CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

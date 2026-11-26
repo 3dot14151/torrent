@@ -22,8 +22,7 @@ A4 You Can Do Magic(   Читать дальше...   )Жанр: Pop, Sound-alik
 ```bash
 magnet:?xt=urn:btih:A69961196FD21E552FF986E80E9303672D6A3F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

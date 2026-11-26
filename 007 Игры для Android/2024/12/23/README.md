@@ -19,8 +19,7 @@ Bendy and the Ink Machine™ — игра-головоломка-экшн в ж�
 ```bash
 magnet:?xt=urn:btih:4DC9691C27AB9E44157F890FB019353F9C613F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Kindling Forest v1.3 [En]
 ```bash
 magnet:?xt=urn:btih:03B7CDBB4289E35036ADBB593E732315C4DEF7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

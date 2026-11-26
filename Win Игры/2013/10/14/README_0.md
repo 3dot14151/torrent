@@ -19,8 +19,7 @@ Legacy: Witch Island (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:1F0549DAC9B9EA67D55D3A35B320908347DC0403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Torment of Mont Triste Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E7902B890BCE3CCD9DEB59FF100C99364E7FE0CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Echoes of Sorrow 2 / Эхо печали 2 (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:D558A2F1AEDE4145C87BF2836E555FDDB9A5A31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sea Legends: Phantasmal Light Collector's Edition / Морские легенд�
 ```bash
 magnet:?xt=urn:btih:84679227FD2244A84ACA539792E333B44621D1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rite of Passage. The Perfect Show. Collector's Edition / Обряд посвящ
 ```bash
 magnet:?xt=urn:btih:B1F040AB13E6B23A7F870642135E277E17F7EC78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Viscera Cleanup Detail (2013) [En] (alpha 0.14) License
 ```bash
 magnet:?xt=urn:btih:ABA18975E76652FB6A64CC719D2D5431ADC65BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

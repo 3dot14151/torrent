@@ -24,8 +24,7 @@ Stilla - Till Stilla Falla (2013) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:83DDD9416BA191BC4820D95CF182D35FF11280E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Air Raid - Night Of The Axe (2012) [WavPack|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Cute Is What We Aim For - 3 альбома (2006-2013) [MP3|320 кб/с]<Pop-Pun
 ```bash
 magnet:?xt=urn:btih:2192601D1DC7F9319354C178142CD2E85A648B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ The Rolling Stones - Flashpoint (1991) Live /Remastered, 1998/ [APE|Lossless]<Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Globus - 3 альбома (2006-2011) [MP3|320 кб/с]<Epic Rock>
 ```bash
 magnet:?xt=urn:btih:65A1881F1CA8D5614B06D8A8B18C36FB432017E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Linkin Park - Castle of Glass (2013) EP [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:A9956084CF4E8FD437A550D7CF7BBB3D2F25A11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D260E88D738EFB71B8D03808F4E21C3A72E1947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Bring Me The Horizon - 6 Альбомов (2005-2013) Дискография [FL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

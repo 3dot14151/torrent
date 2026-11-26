@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:1898682A549745DAAD3768C285DBA6A891BE59FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Master the Spring Framework, its fundamentals and core topics, and share the aut
 ```bash
 magnet:?xt=urn:btih:747C24716AADBC7E33814276A9626CF7CB45FE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

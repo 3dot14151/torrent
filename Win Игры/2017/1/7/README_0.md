@@ -19,8 +19,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (1.0/upd5) License CODEX
 ```bash
 magnet:?xt=urn:btih:4672CB86C532B88E898664F008F86A3AAD5881D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Picture Fish - Fish Identifier v2.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AC662988F83D054BD3502D4D8E91F83117477859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ File Converter v12.1.14 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8A9C1D8AF0836D336E58A8C91F129890976031E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Photo Translator v8.4.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:5DA97613FE6E0BA065E945B311FBDBD94233CFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

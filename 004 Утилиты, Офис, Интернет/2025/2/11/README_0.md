@@ -19,8 +19,7 @@ System software for Windows v.3.6.6 by CUTA [Ru]
 ```bash
 magnet:?xt=urn:btih:4A1409A1E7F576549BBBDAB2AACFB6D39C022067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bandizip — программа для работы с архивами. Дан�
 ```bash
 magnet:?xt=urn:btih:285DF45C1E70D07453E99A143DBD578DD97D5986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

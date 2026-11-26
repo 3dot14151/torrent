@@ -20,8 +20,7 @@ Chess King - Шахматные курсы v 0.9.6 - 0.9.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BB94620EE65001C0D262B0651BB5194D9707A4BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1447E44F592C201CA2042BB6A2E081754D20CCC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Ravenbound - это оригинальный ролевой экшен с эле
 ```bash
 magnet:?xt=urn:btih:CC7683609AD8F3A3476C47E3D1E979A5EEDA59FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6FB35EA2A84D55D40E468FDC36EDC5AC7D21C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Windows 11 3in1 VL (x64) Elgujakviso Edition (v.27.05.23) [Ru]
 ```bash
 magnet:?xt=urn:btih:3921BF7E8E0DCC28A0E07911E972A9B1E2BB5B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

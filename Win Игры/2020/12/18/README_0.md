@@ -19,8 +19,7 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B986F9F1A8C6E7D939376CAE5823541CD3AB3AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WWE 2K20 (2019) [Multi] (1.08/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:FE4E96C97DD2C4A3DAD6E4025E695C77E91301C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Counter-Strike 1.6 Warface (2020) [Ru] (1.1.2.7/pv48/b4554) Repack Ganniball
 ```bash
 magnet:?xt=urn:btih:A5AE9E8E23DEBE97D960308E8852E70C19D84409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Slay the Spire (2019) [Ru/Multi] (2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:E591D5313702846F02B9BFAA6DD99009A9AB01C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

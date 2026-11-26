@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:4E54B3DA5E98976D7F58708A51D7A8FC7C52D0A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F94DE481B389B8BCD6CADA8231890232DDCA708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74621F6FD0E1F5BCF0B7AA5B3D78F49FB51DD474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Poems Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:B61CFD1E8DEBDDA5A7378319EF2BA2845186FA7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Modern Jazz Septet - The Days Of Default (1998) 2002, Dialog Music [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:654BF81CF9753B77294FB7DDB46AA3AD2F7C46EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Lounge Bar by Skyloft: Alternative Ambience Remastered (2017) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:1D40C43B79B7949454841A7B5BA4C56FFC40628A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Top 20 Chillout February (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:3A5C1F33AEFB8233B917028104EC7BBD1ABF5015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Sunday Brunch Chill Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:EFAFE8948D76E592997CA7FE2091466912278581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Clear the Air Vol.4: Pure Chill out and Electronica (2017) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:BC8C3EF0BC4E817983785E55452B258355F40B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A28371D547F1AEC8D3A228AAD4ADDDA1A4B2B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Chillout Dimension: Pure Chill Music Selection (2017) [MP3|320 Kbps] <Downt
 ```bash
 magnet:?xt=urn:btih:55EA6167E640F11348EB1D1DAF562BF23C1152F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Mallorca Beach and Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:CF418FF8B771B1816E9F121E75776E4B23B2F3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Duke Ellington - The 1962 MOMA Recital (2010) La Maison du Duke [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:A6E1D399EE260B8AB71591105416331012CC1C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:395F132679A9A5C423792C0AC93CEEF00AA36A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ VA - 12 Bombs To Rock: Tech and Deep-House Edition 15 (2017) [MP3|320 Kbps] <Fun
 ```bash
 magnet:?xt=urn:btih:97C0A77511FCDE6B8F9B7F01CF29035F22D3B3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ VA - Going Deep in London (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:E3ABFE6D0D7BBAC7DCC6D6C89E092CB38E1846C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Skydog - Just Want To Make You Happy (1974/2001) [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:853122E17CFC30545978793BDA2DD9CFB23D356D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A0C5F1BC399AE00A0E3F2FB59F6AA0822FC2AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ VA - Trance 2017 Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:EF2E45F21890CB36BEA9A579866F830F97E9C99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ VA - A Deep and Soulful House Selection Vol.1 (2017) [MP3|320 Kbps] <Deep House,
 ```bash
 magnet:?xt=urn:btih:1E67F48B6D33F191E40D4567138A32E4DD3D61C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ VA - 1 Year Suanda Voice (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal 
 ```bash
 magnet:?xt=urn:btih:E286DA50E5750DE893C31C629900B6C7CD49108E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ VA - Smooth & Smart Vol. 1 Some Perfect Summer Relaxing Tunes (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:C316C3C2FC36E2C8B2546C4C025F43992729D21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74DB7C03B36918A3F1879A2F9A79FB8BE8C158F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ VA - Cryptic House 4 [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <Deep House,
 ```bash
 magnet:?xt=urn:btih:BC0F1D0011AFDA248FE727AB178EF132628F9B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:EB572B6C4E3DDCBCC7B9ACA56EB6C4AB6276F5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +718,7 @@ Mascha - Stardust (2017) [MP3|320 Kbps] <Pop, Folk, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:324FAE0E723FC8A658BAB0159FABCC50677CA4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

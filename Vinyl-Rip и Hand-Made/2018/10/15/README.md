@@ -22,8 +22,7 @@ A4. Diamonds Never Made A Lady (4.40)(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:82EF9B7D2F0635157555C873D48345536816A334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

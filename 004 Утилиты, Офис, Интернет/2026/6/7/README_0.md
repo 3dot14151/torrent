@@ -19,8 +19,7 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:9490B87AB6E7D4C3EE348CAFFB93BF3997A0A91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:8B4560A3AB5DA0CBD522702BFEF342362F7AA40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

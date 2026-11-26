@@ -19,8 +19,7 @@ Pools (Бассейны) – игра, разработанная в жанре 
 ```bash
 magnet:?xt=urn:btih:80690B702138A76F1B8AB74FA098E83ADF3B05C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Naheulbeuk's Dungeon Master - это уникальная и увлекател�
 ```bash
 magnet:?xt=urn:btih:3E1A512C1A3D70375F00E302769A0E32BF17A043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.8) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A74583D018B14A3D63FBEDA2A4BAD67194491A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wild Card Football - это веселый и простой аркадный с
 ```bash
 magnet:?xt=urn:btih:B24B2E263925199FE96BD63E5E777F69672CD698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

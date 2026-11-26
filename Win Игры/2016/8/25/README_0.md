@@ -19,8 +19,7 @@ Ultra Street Fighter IV (2014) [Ru/En] (1.05/dlc) Repack Mizantrop1337 [Arcade E
 ```bash
 magnet:?xt=urn:btih:BDACCFCA39D62C94DBD7D04B5EF554D01E1171C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Inside - это новая приключенческая хоррор игра 
 ```bash
 magnet:?xt=urn:btih:B692DDF7B437EFC0E9C64625E21EFE7A37A55D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Storm Guard: Darkness is Coming - это пошаговая стратеги
 ```bash
 magnet:?xt=urn:btih:B7FC5EBB9A4EC56D970AC7354D4DBFB6CB77B115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

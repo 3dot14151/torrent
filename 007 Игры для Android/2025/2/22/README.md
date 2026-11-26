@@ -19,8 +19,7 @@ Bright Memory: Infinite v1.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:7B7C2B88EFC340301C446DF234A37ADE4F0C2F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Street Fighter IV CE v1.08.00 [En]
 ```bash
 magnet:?xt=urn:btih:3963E3CA3B21474191189F0896D761BB9DEDB0F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Legacy - Reawakening v1.0.7.3 [En]
 ```bash
 magnet:?xt=urn:btih:6AD84FE1C5440F8FDFC24DD6C7496739D1F477D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

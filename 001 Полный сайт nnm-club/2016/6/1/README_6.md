@@ -18,8 +18,7 @@ Navitel / Навител Навигатор 9.6.2519 Full [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A3F3401489C483CE6E978408891B6252A4CAE440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18D7379FAC941AE59B92D0B398C0925AF14AF356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ The Witcher Adventure Game - игра является адаптацией на
 ```bash
 magnet:?xt=urn:btih:8DB3D91ABDBA7DD1E776E41F5E28EE50CF457229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ SCAD Office - система нового поколения, разработа
 ```bash
 magnet:?xt=urn:btih:D8850910DDC8BA6C27A70D398DF1D15187FD5107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

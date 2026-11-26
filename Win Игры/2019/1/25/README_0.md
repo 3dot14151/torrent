@@ -19,8 +19,7 @@ Maze 4: Stolen Minds (2018) [En] (1.0) Unofficial [Collector's Edition / Кол�
 ```bash
 magnet:?xt=urn:btih:AA38B62C874DC1D8ED1517E880637AC5A2826573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vacation Adventures: Cruise Director 5 (2018) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:DC01C6B88E9340419BA045D6D8A5C15BD64F2593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grim Tales 13: The White Lady / Мрачные истории 13: Белая л�
 ```bash
 magnet:?xt=urn:btih:A6EF03F264E3E4222B9E8AE77E06A692528D4ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Redemption Cemetery 13: The Cursed Mark / Кладбище искупления 
 ```bash
 magnet:?xt=urn:btih:717274090C154B149234C62A7CC6DC1221EF3145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Terrible Beast from the East (2019) [En/Ch] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:DAD05798A065DED959AAEC87B755845C7F47E2AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crookz - The Big Heist (2015) [Ru/En] (1.0.0.24360) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D1F8556A420AE1A73BAB5564A34A2D8939310F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Bloom Labyrinth, грядущая экшн ролевка наконец-то о
 ```bash
 magnet:?xt=urn:btih:6EE15546E889B53DBCE65227E7CA70F50C2B4E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Battlefleet Gothic: Armada 2 — это новая стратегия в реа�
 ```bash
 magnet:?xt=urn:btih:D39226B32FC11AE1B31C762EF977289D650131AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Cisdem Duplicate Finder - поиск дубликатов и их удалени
 ```bash
 magnet:?xt=urn:btih:9C117C3178851EB4BB8DDC9941A03C692EED6952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Feeder - это полнофункциональное приложение дл
 ```bash
 magnet:?xt=urn:btih:677A46B88290206EFAF1BC325C6F0821BBC03F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Studies - это приложение, чтобы помочь вам освои
 ```bash
 magnet:?xt=urn:btih:CD76B0FDAAD6A2223686716E9B2213494CF85A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ GoodNotes 5 v5.7.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4C7741733F50899A4C1EF70575240F38D11AF9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Dammaj - Mutiny (1986)  Reissue, 2012, Skol Records [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:294F8631306324D41CDD0AC73228F7AA9ABC6FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ CapsLocker 1.4.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:0495078F9FFA273D429D5D4F5FF7C5EB94D167CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Hookshot - позволяет привязывать окна с помощью 
 ```bash
 magnet:?xt=urn:btih:FA7DDB444FAE3B83C1A0885B87E50AA32A9B3B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ HistoryInFilm 1.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B6485896D1C5F3CCAF06C67C1C0E6C73A694BE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ WordCounter предназначен для того, чтобы дать вам
 ```bash
 magnet:?xt=urn:btih:83D61A8E84DC0BFFEAAD41387A9001C9F106F210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ SyncTime - самое простое решение для синхрониза�
 ```bash
 magnet:?xt=urn:btih:7D64291A8CB890D680DABCD6073FCB6C79660FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Network & Battery 12.2.7 [Multi]
 ```bash
 magnet:?xt=urn:btih:481036FDD920F847A97459E22A2F99FFE73757D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Kuenring - Neon Nights (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:070F2275AD4E4651E316ECF7BF915B3A14D72221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:9F34E23B76CE4AC1F6FECA731A08FE7D7FE61309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Keep It 1.10.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:80933BC1342943712EFAD83C1981E460DC750996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ Blocs - простой способ создания красивых сайто
 ```bash
 magnet:?xt=urn:btih:C7C9F75585A46D281A5DA8C6BF2CA7AB271A3491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A05EEFFF280ED02229C0D7698161B664E5C98FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ Book Track - это приложение для каталогизации и о
 ```bash
 magnet:?xt=urn:btih:77A9CD9FE839183DEB8520C7D15055320B2F1EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA039F081105FFE27D41E1D01424AA43739EAE87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ AudioSwitcher - небольшая утилита, которая находит
 ```bash
 magnet:?xt=urn:btih:C09C8E6D05A91B63578B4D888E751D5FF5697815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ Simon Says - Spin This (1991) Reissue, Remastered, 2020, Escape Music [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:DCC8AC9CFA863865545A8ECDE7DE369439AF9B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ PeakHour идеально подходит для мониторинга ваш�
 ```bash
 magnet:?xt=urn:btih:587EA17DE2435F054D9B40E41F39614B6CD55CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ Color Wheel 6.0 [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:4A201BE3C495821B1DE14FF8954C12F319B5574A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ Bible 6.13 [En]
 ```bash
 magnet:?xt=urn:btih:A4AB579E57A7FB13AB2B2E4A8321841651E53143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A6CB09FCD963D9FA2506029BF42F97A26CBE388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A20B7D43B858ADA34E0C2229358B9A8662E605F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +673,7 @@ Robbie LaBlanc - Double Trouble (2021) [FLAC|Lossless|image + .cue] <AOR>
 ```bash
 magnet:?xt=urn:btih:83FE1B5BDAEC67FA9FE54C73A6548CC970F02323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

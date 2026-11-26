@@ -22,8 +22,7 @@ Human Fortress - Epic Tales & Untold Stories (2021) Compilation [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:69FEC7F4EDB1136FBAA26C17EAD5400BB9234BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:7A7DE5CCF48585E5714B686FA98C2CFDE90B83FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ektomorf - Reborn (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Groove Met
 ```bash
 magnet:?xt=urn:btih:01777597F3B4A1DD5508F34ED68510CF44C0A1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jason Bieler And The Baron Von Bielski Orchestra - Songs For The Apocalypse (202
 ```bash
 magnet:?xt=urn:btih:A7428C15659F4A942BE0601F090A34CC8D87EC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Myrkur (feat. Chelsea Wolfe) - Mareridt (2017) Deluxe Version, Relapse Records [
 ```bash
 magnet:?xt=urn:btih:1794B7AABF89D46A6416846A24CF42A4C49564F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:656D3CF11B740469441E94237A6B4F546B8B54AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Alkonost - Ведомые Ветром (2021) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:1B8CD70C04BADD630F8A83B64533257C00815B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Wig Wam - Never Say Die (2021) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:72CF24C8D782C8CA7ABD181D52C47CCEC9B3236B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Therion - Leviathan (2021) [MP3|320 Kbps] <Symphonic Operatic Metal>
 ```bash
 magnet:?xt=urn:btih:056A4E8F31DE426B8E4DC18FAD74CFD8FE9CAF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Blackout - Hindsight 2020 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Class
 ```bash
 magnet:?xt=urn:btih:24BB72033F24DD7F72F274A3A454B629A8E3EA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Ektomorf - 16 Studio Albums, 1 EP, 2 Live Albums, 2 Singles (1996-2021) [MP3|320
 ```bash
 magnet:?xt=urn:btih:3761EFC8733ADF9F6540014D9E2FE80115C0774E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Coyote's Tale: Fire and Water / Байка Койота. Огонь и вода 
 ```bash
 magnet:?xt=urn:btih:5FE33EE33D0E25BBD5D6C8291D737DDA61DAF8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

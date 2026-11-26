@@ -28,8 +28,7 @@ Sebastian Bach - Give 'Em Hell (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C1609524E7D668AA84A23AC6CE6DBD03400632B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Ancient Bards - A New Dawn Ending (2014) [FLAC|Lossless]<Symphonic Epic Metal>
 ```bash
 magnet:?xt=urn:btih:AB42DAB5348C31B911A6B08CE9DB60D2494CFC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

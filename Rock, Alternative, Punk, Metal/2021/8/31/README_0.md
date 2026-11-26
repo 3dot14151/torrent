@@ -22,8 +22,7 @@ At Vance — немецкая пауэр-метал/неоклассик мет�
 ```bash
 magnet:?xt=urn:btih:6C2900563ECF721664E582D51D4271F73CEE0FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ U.D.O. - Steelfactory (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7B2F259EECE6171FD71DD5180937F1D5DC9923C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sepultura - SepulQuarta (2021) [FLAC|Lossless|image + .cue] <Groove Metal, Thras
 ```bash
 magnet:?xt=urn:btih:90537E01D4E50EA6E404178446E8AB27DE472633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ai Mori - 57 Covers track (2019-2021) [MP3|192-320 Kbps] <Alternative, Rock, Pun
 ```bash
 magnet:?xt=urn:btih:DA80841B04CD01D1B78413F6066362D5A3A614DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Waddy Wachtel - Guitars, Vocals(   Читать дальше...   )01. Can't Sto
 ```bash
 magnet:?xt=urn:btih:37E5DC2A9045C210D120357E3AFD8F920188AAAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Ratt — американская глэм-метал-группа из Сан-�
 ```bash
 magnet:?xt=urn:btih:874187EFAFFD98EF37C101B517AC18062F35C495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

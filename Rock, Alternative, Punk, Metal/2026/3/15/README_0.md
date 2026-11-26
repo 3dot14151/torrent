@@ -22,8 +22,7 @@ Yonaka - Until You're Satisfied (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alte
 ```bash
 magnet:?xt=urn:btih:CEED1E719B2DB6936324FA9346093ECB1C6C7CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lamb Of God - Into Oblivion (2026) Limited Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:AC7169088F11DAADAF43C234FA44332D0437E5AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ More - Destructor (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBHM>
 ```bash
 magnet:?xt=urn:btih:3C77BE13153EFF7C6E74D4762EE8A717A275F1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Horseman - No Surrender in Dark Days (2026) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 ```bash
 magnet:?xt=urn:btih:D38A05CAF1B454833312B071A098ACE57B04A99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Brian Bee Frank and Syndicated Madness - Chasing The Dragon (2026) [FLAC 24/48|L
 ```bash
 magnet:?xt=urn:btih:60D39036330A10AD3C07491BEC7DF8A79EE10C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

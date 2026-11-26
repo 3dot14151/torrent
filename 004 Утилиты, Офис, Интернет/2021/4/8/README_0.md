@@ -22,8 +22,7 @@ BestReminder v2021.04.01.15 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ACDBFAF1513B4D8B0F21185295CAA6F1FCC582EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

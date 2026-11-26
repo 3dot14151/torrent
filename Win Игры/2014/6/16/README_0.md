@@ -19,8 +19,7 @@ Shadow Wolf Mysteries 4: Under the Crimson Moon / Призрачная тень 
 ```bash
 magnet:?xt=urn:btih:9BAA1ACC588EC4FB21C52B2C44B9D1555A59737F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

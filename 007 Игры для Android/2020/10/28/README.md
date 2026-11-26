@@ -19,8 +19,7 @@ NBA JAM by EA SPORTS™ 04.00.80 [En]
 ```bash
 magnet:?xt=urn:btih:F92790F0EDB8675F941A399313851225D6E26474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B32EF4CF8F76610B2346EA4DA19841BDADE87170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Aerofly 2 Flight Simulator v2.5.41 [En]
 ```bash
 magnet:?xt=urn:btih:7053AB466FB641ABD2EF787E523435D1E7F29001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ FAR: Lone Sails  v1.27 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CC17FF0F4B7718AFF41DF0F1A03FBDDACCB16964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

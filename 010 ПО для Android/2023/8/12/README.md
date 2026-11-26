@@ -19,8 +19,7 @@ Titan - Home Workout & Fitness v3.6.7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:55D7CA054333FC494FE467DBDFFF351D376D2532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

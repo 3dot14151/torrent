@@ -20,8 +20,7 @@ Titus Winters и др. | Software Engineering at Google: Lessons Learned from Pr
 ```bash
 magnet:?xt=urn:btih:5F71F69174E05CFEAB39C935005A96102D50FCFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Jens Gustedt | Modern C, 1st Edition (2019) [EPUB] [EN]
 ```bash
 magnet:?xt=urn:btih:FB531A862D2F330A4B950B703876BB037DA222CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Jan Newmarch, Ronald Petty | Network Programming with Go Language: Essential Ski
 ```bash
 magnet:?xt=urn:btih:C6DEE4EE386FAF324EBBCB59D9BAF0435DCA307C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

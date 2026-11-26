@@ -22,8 +22,7 @@ Jubilation – J. Harris, P. Anka
 ```bash
 magnet:?xt=urn:btih:ED7E8106864986ADA166826B532DB8472E845545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

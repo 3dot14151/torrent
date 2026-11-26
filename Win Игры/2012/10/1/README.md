@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:A6AE89C0F35CB210F8E24C08A595B5C6C46D5058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Garshasp Dilogy / Дилогия Garshasp [Ru] (RePack/1.1.0.3906/1.1.0) 2011-20
 ```bash
 magnet:?xt=urn:btih:43D936BB1C82765717198CB7F72932B1CB772100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

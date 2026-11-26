@@ -19,8 +19,7 @@ ImagePrinter Pro это быстрый и простой в использова
 ```bash
 magnet:?xt=urn:btih:261169B2383CB2239068209EBE1332B781F0CF97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

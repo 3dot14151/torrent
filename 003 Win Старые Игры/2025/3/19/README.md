@@ -19,8 +19,7 @@ Heretic: Shadow of the Serpent Riders - темное фэнтези, шутер 
 ```bash
 magnet:?xt=urn:btih:C8041E457D4408DCC4E94D5995F0F55ECBDEF5DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HeXen: Deathkings of the Dark Citadel – модификация к оригин
 ```bash
 magnet:?xt=urn:btih:B3F902553BCD0ABC0ABF1AA3A8A1B4FD2CD35976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HeXen II (2) (1997) [En] (1.11 music fix) License GOG
 ```bash
 magnet:?xt=urn:btih:718DD40103F3C7D6155D042E63D7200974A2A2FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

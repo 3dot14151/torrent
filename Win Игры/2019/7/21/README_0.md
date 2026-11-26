@@ -19,8 +19,7 @@ Queens Quest 5: Symphony of Death / Королевский Квест 5: Сим�
 ```bash
 magnet:?xt=urn:btih:60CD160D17F68F3472E471DB4C6B896DC8A15B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TerraTech (2018) [Ru/Multi] (1.3/dlc) License PLAZA [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:DA769BA54579F29D0A16DC23648101A2C0A01CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

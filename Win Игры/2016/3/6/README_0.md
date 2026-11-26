@@ -19,8 +19,7 @@ Grim Tales 10: The Heir (2016) [En] (1.0) Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:418A7C3DDFD1470824FA6C269F83421A7521809A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Punished Talents 2: Stolen Awards (2016) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:9F72314059DF4498167A6259BFF3E129F418C212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ True Fear: Forsaken Souls / Реальный ужас: Души прокляты
 ```bash
 magnet:?xt=urn:btih:1491904BDDF5B4E9F6F909CC4257729918D0F091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Entropy Rising - игра от первого лица, основанная н�
 ```bash
 magnet:?xt=urn:btih:A9A5E1E5C1F363535E0A4B1F82642AA6797DBD5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:97F7D4BD6CB251C5D7099577126EE17133965C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

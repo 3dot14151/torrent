@@ -19,8 +19,7 @@ Slayers X: Terminal Aftermath: Vengance of the Slayer (2023) [Ru/Multi] (1.0.0) 
 ```bash
 magnet:?xt=urn:btih:35A20CDA8A6A75230073CCEA979AD57F7866E646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FBAA2194B630820661096DC01F36D6AAD830B613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Planet of Lana прекрасная и цветущая планета, что �
 ```bash
 magnet:?xt=urn:btih:935DE20435779DAB6B49052BC81813D667A96531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack Decepticon [Gold E
 ```bash
 magnet:?xt=urn:btih:F4FA6B3689AE241785C454D783D6130398A74BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Alekon – необычное веселое приключение с видо�
 ```bash
 magnet:?xt=urn:btih:C1180C166CCD5EE62A44AC1BD4E174209BD117CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hello Goodboy - это добрая и интересная история пр�
 ```bash
 magnet:?xt=urn:btih:9F72149902D08D8BDAE4DFC5D938DD552441D6BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Fuga: Melodies of Steel 2 переносит в разрушенный войн�
 ```bash
 magnet:?xt=urn:btih:AF66E945CBBDC6AF1279BF16204C35ACDBD0B04F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Killer Frequency (2023) [Ru/Multi] (1.0) Scene Rune [VR]
 ```bash
 magnet:?xt=urn:btih:32C087BA5E4A9D65B42646FAB37F9211F7A1E567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Batora: Lost Haven - это приключенческий ролевой экш
 ```bash
 magnet:?xt=urn:btih:F55FB6C714E340D4B24AD84B06BA9AA14606C2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

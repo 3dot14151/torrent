@@ -19,8 +19,7 @@ Process Hacker - бесплатная утилита с открытым исх�
 ```bash
 magnet:?xt=urn:btih:42782E49CF941E2375752D9B3E7937BD8AD35A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

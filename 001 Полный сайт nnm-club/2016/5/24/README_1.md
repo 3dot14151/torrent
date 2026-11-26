@@ -21,8 +21,7 @@ Addism это отличный калькулятор для вашего Mac.
 ```bash
 magnet:?xt=urn:btih:88724548416BBE8CEA0E4551BCB475A302E08D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Armin van Buuren - A State of Trance 763 (2016) [MP3|320 кб/с] <Progressive T
 ```bash
 magnet:?xt=urn:btih:22478C98F288251E9FBC0C81D5BCC5EFDFBE4104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2717FCC1ED9028208E72DF0996E8C625C36A11C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Tea for Two: Cafe Jazz (2016) [MP3|320 кб/с] <Jazz>
 ```bash
 magnet:?xt=urn:btih:BDEE17BBFC8A041D28ACBA26DD9CAC138D980CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ John Illsley - Long Shadows (2016) [FLAC|Lossless|image + .cue] <Classic Rock, B
 ```bash
 magnet:?xt=urn:btih:5691D0C34D30BDFF00F490899D41748064F79EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ NG: Спасти Титаник с Бобом Баллардом / Save the Tita
 ```bash
 magnet:?xt=urn:btih:99FE3FF1E6F1244B9F44CC71B6555449F10D3472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ VA - Зарубежная Дискотека ХХ Века - 5 (2016) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:EC845507DDEC6CC59BF12CCF398D4D2CD1ECCCC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FB470A53D0160A03EBD74337D32C7900C4BB021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B81021B9CFDD8188CF9563D54B0065062A1238A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:7E430327B9EDC4E66DAF3E5BEFA11E6C37F65DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ VA - Зарубежная Дискотека ХХ Века - 4 (2016) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:833BA4759159BE53DA7832D8E2E4B04BB32BF016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ VA - Музыка дороги Сборник русского шансона 5 
 ```bash
 magnet:?xt=urn:btih:7CC014F69517FCEADD8A9245BB7F30069EA6CF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ VA - Зарубежная Дискотека ХХ Века - 9 (2016) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:A5456F54AD141F0521E8235BA6E9F1F5B75C310B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ VA - Зарубежная Дискотека ХХ Века - 8 (2016) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:E4F26D95DDC2ABAE55FA6737795C0FA4D72F7624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ VA - Best EDM in Town (2016) [MP3|320 кб/с] <Progressive, Electro, Club>
 ```bash
 magnet:?xt=urn:btih:717A66A6B574B9F6ECBF86873201DA98CD546C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ IT Expert - журнал для профессионалов в области I
 ```bash
 magnet:?xt=urn:btih:A4E02C64E361E891E1D894501E663304F55BA707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ VA - Музыка дороги Сборник русского шансона 6 
 ```bash
 magnet:?xt=urn:btih:1DC32E6CF030BD794893B2767731B33F925C7140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ VA - Зарубежная Дискотека ХХ Века - 2 (2016) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:DED354EFAE6A7FB6FC0643DB0882AED007B30654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:D21214DC6BE9CCADA36A0102532964DE8855C04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ AVG Internet Security 2016 - комплексный антивирус с улу
 ```bash
 magnet:?xt=urn:btih:39FD3F1F24262F69C5ACEACBFA47CDC0134827C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7357DB5E6193CD46E505C0AF57AF5F3AE720E291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ VA - Зарубежная Дискотека ХХ Века - 6 (2016) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:9865C06BDA3EE9A51971CAD567DDE014B18333EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC33A022DD090C557F304BFBB1B280F14A11DACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ VA - Top 100 EDM Summer (2016) [MP3|256-320 кб/с] <Electronic, Dance Music>
 ```bash
 magnet:?xt=urn:btih:8D656944134408E7DBC17752E9FE0971D9D58994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Wise Care 365 Pro 4.18.404 Final + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:614CEE22A8553832E4B7CADD068212C81F159F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9564A78BDC1FF9E8CE59CF2515BC631A971CCCE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

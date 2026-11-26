@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Profound - Deep And Sincere (2003) [FLAC|Lossless]<Progressive Metal / Heavy Met
 ```bash
 magnet:?xt=urn:btih:4248CFC1591CF861D2FB055882D592F7F5D901B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Profound - A World Of My Own Making (2006) [FLAC|Lossless]<Progressive Metal / H
 ```bash
 magnet:?xt=urn:btih:B93AD03020A3A9EBCCF5FB5248AE06427ADF1480
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Balance Of Power - Heathen Machine (2003) [APE|Lossless]<Progressive Metal / Hea
 ```bash
 magnet:?xt=urn:btih:87C900574B4936D4B5269CE76CE1754CDC032CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Corb Lund - Counterfeit Blues (2014) [MP3|320 кб/с]<Country, Blues>
 ```bash
 magnet:?xt=urn:btih:65B2FA086DE11C96D5CCD3E9A48AFD30A8AE0578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Runrig - Party On The Moor (The 40th Anniversary Concert) (2014) 3CD [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:762170C6EEBB50553F33ECA5D7DF837055D214BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ Dave Horne - Artist Focus 22 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A4953CC664282AE537CA94B5CAE3EF212053B3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Marc Copland - Alone (2009) [FLAC|Lossless]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:DFD5EF54319AFFF9D69AB093B02DA05A14DEDC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Creation's End - Metaphysical (2014) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:6A85790F497B83712BB53971CC2EBBD91BF6DFD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Balance Of Power - Ten More Tales... Of Grand Illusion (1999) Japan [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:AED953AD87491918E81341DF579B65BE61D09331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +346,7 @@ Balance Of Power - Book of Secrets (1998) Japan [FLAC|Lossless]<Melodic Heavy Me
 ```bash
 magnet:?xt=urn:btih:C138095283B4100024234DDBA7CFD795CCB4D52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +380,7 @@ Siebenburgen - Darker Designs & Images (2005) [APE|Lossless]<Melodic Gothic / Bl
 ```bash
 magnet:?xt=urn:btih:563D3D5BEB931552C4B78AA215D4F7EAD3ED5088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +414,7 @@ Siebenburgen - Loreia (1997) [FLAC|Lossless]<Melodic Gothic / Black Metal>
 ```bash
 magnet:?xt=urn:btih:9868C15DA3331DC88BE8D2209E080990EB442439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82294408573EE413EC68E460793C18BE8C8AFE00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +473,7 @@ VA - Colorize Vol 01 (Mixed by Sebastian Weikum Extended Mixes) (2014) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:AA358407D8876A484DD9464A26B2877973242FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +507,7 @@ Balance Of Power - Perfect Balance (2001) Japan [FLAC|Lossless]<Melodic Progress
 ```bash
 magnet:?xt=urn:btih:961C8D879A8A830CF83C651CE1595A0976680337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +541,7 @@ VA - Roman Messer Top 15 June/July-August (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8C6E8E81B9D02B72495937FD41E3CE73FD692B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +575,7 @@ Balance Of Power - When The World Falls Down (1997) Japan [FLAC|Lossless]<Melodi
 ```bash
 magnet:?xt=urn:btih:CAE9B8AF900BF667BED2AF99A5FAD3190E89FC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +609,7 @@ Pete Haycock feat. Glen Turner - Pete Haycock's True Blues. Live (2008) [MP3|320
 ```bash
 magnet:?xt=urn:btih:F76273ACA7D5922374D78B45CD0474AD0B7AC6D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +643,7 @@ Colton Dixon - Anchor (2014) [MP3|320 кб/с]<Pop-Rock, Christian>
 ```bash
 magnet:?xt=urn:btih:DF2DCA2E2D90D4E52FC61FE60638A23B73AB270D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03E61776745D0EFCE81F988E4C0D17628EE4EC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +705,7 @@ CD2 - Rambler's Rhythm (01:04:29)
 ```bash
 magnet:?xt=urn:btih:FBCCD1E8821FB4F02FE9908E932234A74C834597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +739,7 @@ Siebenburgen - Grimjaur (1998) [FLAC|Lossless]<Melodic Gothic / Black Metal>
 ```bash
 magnet:?xt=urn:btih:50742575C23484392538AEB77D872CBB9506BF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +773,7 @@ Marc Berthoumieux & Ludovic Beier - Jazz accordeons a la recre (2009) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:0512AD12ADB621FA5D7DFDFACCC324E208E8C190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -828,8 +804,7 @@ subtractiveLAD - Wilderness (2014) [FLAC|Lossless|WEB-DL]<IDM, Electro, Ambient>
 ```bash
 magnet:?xt=urn:btih:A353811EA5EDBB57B1B4EF9CFA08076EACD3045B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -854,8 +829,7 @@ CoolUtils Total Image Converter - преобразует изображения 
 ```bash
 magnet:?xt=urn:btih:8C7D76B95761E3DF96056179407C496C4BD00456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

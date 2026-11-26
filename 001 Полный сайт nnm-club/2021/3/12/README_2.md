@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:2421275F9A4380584C379EF4580AC3E880EB32B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dark Romance 14: Sleepy Hollow (2021) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:B75518C5FA112AE36FBB6E6A83C9DD032CACBBB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEDD4CB2F81E434F1485A0B6B8585D9F6CF88475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ jv16 PowerTools - достаточно мощный набор утилит, п�
 ```bash
 magnet:?xt=urn:btih:074368180C7562659643FB5ED5C9431D20206C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Udemy, Tomislav Fedek | MikroTik configuration as failover and firewall setup (2
 ```bash
 magnet:?xt=urn:btih:3901A3A90808D6EBC920DC144F2A210D165B7B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:B60FB6C6FC447FFCEA0614D3A6D1A5DF89EF47F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Udemy, E-Preceptor Online Training | MikroTik Basic - Module 1 based on the MTCN
 ```bash
 magnet:?xt=urn:btih:3EE098CCA3DB2354AE4265DFC22A2E419C1D1217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96B83DE9EC4E10F5D18EDFB06552A431595B41D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Eric Powell | Артбук художника Eric Powell / The Art (and Many Ot
 ```bash
 magnet:?xt=urn:btih:2C0702594FACF189FD403A4329217C2179C70A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ BGP - это протокол маршрутизации в Интернете. 
 ```bash
 magnet:?xt=urn:btih:D9E583B20B0019A2ACBAA92567D892407A05E01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47375F585CA5E78A11902FA8687A4A2F29DA8409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEB9173E8E24F253D42B3EB5FBCE9CAABA5D5EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Far manager — бесплатный файловый менеджер с под
 ```bash
 magnet:?xt=urn:btih:8D82FB87D58744C1E93DA1D50F41656979A6A00E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F74677F0DC3D530E96921B4533ECF4987FDE9325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Baulta - 4 Альбома + 1 EP (2011-2021) [MP3|320 кб/с] <Post-Rock, Instr
 ```bash
 magnet:?xt=urn:btih:EB933EF93D097821F7EB766904FEDD3E881C5AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Alex Moiseev | A.D. 2059. Необратимые последствия (2021) [
 ```bash
 magnet:?xt=urn:btih:C02273D244667C51989B98BA4D6A0431789A358D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3E11DA1DCAD8F2779F8B5DF80390D337011909F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11AE8763548DE5B1F70C995999B5BED3639CF633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Blackmore's Night - Nature's Light (2021) [FLAC|24/48|Lossless|WEB-DL|tracks] <F
 ```bash
 magnet:?xt=urn:btih:AC5976BD001EC0B363107C86EDD76CE9BC60C988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD2A10C8C447AA89DF2C77F1EDC435173553DCA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +537,7 @@ VA - Piano Classics - Relaxing Classical Music (2021) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:4A68607B80C07E143A70F52740411516E30CFDA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +562,7 @@ Starman – занимательная головоломка на андрои�
 ```bash
 magnet:?xt=urn:btih:F37628DC3110BB056870D28BC2FAF96617FC20EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E87EC1672E4F4A26189B26E7D86FDA0D92400BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ Udemy, Maher Haddad | MikroTik Hotspot with User Manager (2018) PCRec [En / En S
 ```bash
 magnet:?xt=urn:btih:E9FBC77770589D93DC37DDA27693BB028C8F798F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ Udemy, Maher Haddad | Learn MikroTik ROUTE with Hands-on LABS from scratch (2018
 ```bash
 magnet:?xt=urn:btih:D9D7A89CE9F225ADC8AE0C8B71BE1D1013C1AB06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:921D836995463241D8E4DE9F183A0EA08094FA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

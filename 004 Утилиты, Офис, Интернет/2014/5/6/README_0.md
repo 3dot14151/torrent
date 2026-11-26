@@ -21,8 +21,7 @@ KeyCheck - утилита для проверки лицензионных кл�
 ```bash
 magnet:?xt=urn:btih:43F07CD6BF537CC1299D347897CE31D8F7F3E82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

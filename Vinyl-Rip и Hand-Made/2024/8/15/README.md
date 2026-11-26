@@ -19,8 +19,7 @@ VA - Одинокий пастух. Два Альбома (1998, 2001) [FLAC 2.0
 ```bash
 magnet:?xt=urn:btih:23AA3AE43B2068EF2E15091B503AF72A0D0A8A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

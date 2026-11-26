@@ -20,8 +20,7 @@ Holy Void - Demo (2015) [MP3|320 кб/с]<Blackened Hardcore, Crust>
 ```bash
 magnet:?xt=urn:btih:7B0603F9055B3B9F5D9DBEBACBD180FA706BE13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Album, EP:
 ```bash
 magnet:?xt=urn:btih:A213903AE3D728A9BE0ABA86B7B7184DEF4F7590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Mesmur - Mesmur (2014) [MP3|320 кб/с]<Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F5B5C93D92F60464CF8016DF37DABACC52EF5CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Nader Sadek - The Malefic: Chapter III (2014) Legacy Edition EP [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:026C7DB2960A0F1A5C853D89057B9DD0D301E149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Away - Music For Rainy Days (2014) [MP3|320 кб/с]<Post Black Metal, Shoegaze,
 ```bash
 magnet:?xt=urn:btih:12F6F842B3CC663361D9700E07CC1382ABFD9705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Finntroll - Natten Med De Levande Finntroll (2014) Live At Melkweg, Amsterdam [F
 ```bash
 magnet:?xt=urn:btih:E02CC4754E26AEB3496B677C52F32A4AE0E9C63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Tales of Evening - Szilankok (2015) [MP3|320 кб/с]<Symphonic Power/Gothic Met
 ```bash
 magnet:?xt=urn:btih:A6EFCFA9E76D54613B3FC2143E81A05F2CFA8ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Eden Weint Im Grab - 5 альбомов, 1 EP (2004 - 2014) [MP3|192 - 320 кб/
 ```bash
 magnet:?xt=urn:btih:2BE83A936006D9C26704FCFC9986D6710CE95377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ The Rumjacks - Sober & Godless (2015) [MP3|320 кб/с]<Celtic Punk, Folk Punk>
 ```bash
 magnet:?xt=urn:btih:CD38D9BFB2F3AF53E74F3C5D2CFFE894409030C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:021F6A588465EF19C8506C02F9FEDAAEFED5B5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Phil Collins - Greatest Hits (1994) [MP3|320 кб/с]<Melodic Rock, Soft Rock, P
 ```bash
 magnet:?xt=urn:btih:C363E0707AE454A3FC007373A47F3388D25306A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

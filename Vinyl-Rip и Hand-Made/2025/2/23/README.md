@@ -22,8 +22,7 @@ Starset — американская рок-группа из Колумбуса
 ```bash
 magnet:?xt=urn:btih:18BB3154237C7AA7BEBD0C9DA875F75E08D12021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dead Sara — хард-рок-группа из Лос-Анджелеса2009 - 
 ```bash
 magnet:?xt=urn:btih:F401F421CC359B8F0C4944D8078D8F05320D4337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bury Your Dead - американская группа из Бостона, шт
 ```bash
 magnet:?xt=urn:btih:A1927BCD5C264DD0F320F733431C923E1FC6E168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

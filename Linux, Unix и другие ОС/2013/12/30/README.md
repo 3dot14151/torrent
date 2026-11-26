@@ -23,8 +23,7 @@ Manjaro Linux 0.8.8 (Arch + KDE) [i686, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:2E338B613991D076BEB2688FB8F34818F3CE8F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Manjaro Linux 0.8.9 preview (0.8.8.0.909) (Arch + XFCE) [i686, x86-64] 2xCD
 ```bash
 magnet:?xt=urn:btih:2EE3DDE183CE37A608C76E836C5D216DEE995F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Rick Miller - Immortal Remains (2013) [FLAC|image+.cue]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:AA6A2C511B8BA0988E1A276D8FCF7C11BFC522CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rick Miller - Heart Of Darkness (2014) [FLAC|image+.cue]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:8F956C76FAEB461AAA443D67A70CE394D72301C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD: Bonafide - Ultimate Rebel
 ```bash
 magnet:?xt=urn:btih:970E2EC6BBD2A18F260B9B5724AAB976E14B4BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Artful Dodger - Artful Dodger (1975) Remastered /1997, P.E.G./ [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:4C5B2C92CEF42BE200DE5D2C3637AD818AFB705F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Red Rum - Booze And Glory (2015) [MP3|320 кб/с]<Epic Folk Metal>
 ```bash
 magnet:?xt=urn:btih:9256617DE57D65DC259190B11B6C96CE465CDCC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Artful Dodger - Artful Dodger (1975)/Remastered/1997, P.E.G./[FLAC|tracks+.cue]<
 ```bash
 magnet:?xt=urn:btih:69E0D2147ECDAA1C895802403767BC5BEE8731C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Chris Cornell - Higher Truth (2015) Deluxe Edition [FLAC|image+.cue]<Rock, Alter
 ```bash
 magnet:?xt=urn:btih:1F229DACF7325634ACE068BFC13EB87B915719A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Clive Nolan & Oliver Wakeman - The Hound Of The Baskervilles (2002) [APE|image+.
 ```bash
 magnet:?xt=urn:btih:6F0F490217B44012001F421FF71E3393BE6E2C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Dark Side Of The Moon A Cappella - Dark Side Of The Moon A Cappella (2005) [APE|
 ```bash
 magnet:?xt=urn:btih:E9709099C3867013AFDE2E3BB5235F44109B7C19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

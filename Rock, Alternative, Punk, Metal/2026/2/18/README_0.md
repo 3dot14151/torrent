@@ -22,8 +22,7 @@ Avulsed - Phoenix Cryptobiosis (2025) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:05F505EE5AF8D531E78693B0FB8EA81E6A7D9DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Downtown Brown - Moist & Ridiculous (2002) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:356811E5F564B246D7CA141116DBC7496D8339D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gomez - Bring It On (1998) [FLAC|Lossless] <Indie Rock, Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:12BCD72206B848A76584C6401BB7AE62C26F2DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ INXS - Kick (1987) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:1F6DB9B9690868B0B5698BEBE4683F551C0913B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Otto Dix - Хюбрис (2026) [FLAC|Lossless|WEB-DL|tracks] <Darkwave>
 ```bash
 magnet:?xt=urn:btih:C3684A3BD795A62FD78634C4618B2E72A5BE9E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ian Highhill - A Hymn Among Gravestones (2026) [FLAC|Lossless|WEB-DL|tracks] <He
 ```bash
 magnet:?xt=urn:btih:5D39BC9D6C92A7030CE4244AD42DC9BC5B773133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Megadeth - Megadeth (2026) [FLAC|Lossless|image + .cue] <Thrash Metal, Heavy Met
 ```bash
 magnet:?xt=urn:btih:BF628C55955B2A096DC33EF38EE3035C40AB06AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Rotting Christ - 35 Years of Evil Existence (Live in Lycabettus) (2025) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:1847E752B9E52898F8BD8FA1FE0D6FCA0D6D114B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

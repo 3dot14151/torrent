@@ -22,8 +22,7 @@ Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl
 ```bash
 magnet:?xt=urn:btih:F1C2BEE7F702FC9B9A276E71CF3A260976E24919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

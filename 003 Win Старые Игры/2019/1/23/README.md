@@ -19,8 +19,7 @@ Brothers in Arms: Earned in Blood — это тактический шутер, 
 ```bash
 magnet:?xt=urn:btih:F668E2E8845C2E045FD2532AF0AF9FDA98F054F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
 ```bash
 magnet:?xt=urn:btih:56F1D8769A7C01F5CAC8BBDD290498271A7A5689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Brothers in Arms: Hell's Highway является третьей частью в
 ```bash
 magnet:?xt=urn:btih:2E3C5CBD38E5AB6232FE1F76995D350ADF55E92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

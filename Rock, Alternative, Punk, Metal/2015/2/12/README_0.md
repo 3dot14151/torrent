@@ -23,8 +23,7 @@ Edenian - Forgotten Once (2014) EP [MP3|320 кб/с]<Gothic Doom Dark Metal>
 ```bash
 magnet:?xt=urn:btih:B2EFC852D0564473298E931F880281507B9275D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Zero Down - No Limit to the Evil (2014) [MP3|320 кб/с]<Heavy Metal/ Punk>
 ```bash
 magnet:?xt=urn:btih:6E8850F15D205F1DB4204F6A4E83D56D60F7CD16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Destiny - Time (2015) Special Edition [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:05918B7F19DD2D7A666451FA00A8DCFF17E25C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Bullet - Storm Of Blades (2014) [MP3|320 кб/с]<Hard Rock/ Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D6231BA3088999B5B59CB4179C887559AB5DE38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

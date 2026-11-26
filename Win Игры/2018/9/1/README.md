@@ -19,8 +19,7 @@ Panzer Strategy - варгейм в сеттинге Второй Мировой
 ```bash
 magnet:?xt=urn:btih:54A4F4FF5CB03CE4D09840FED75E398172CEA49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Messenger (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:449E1101D9DCE1768C6163260697EB4B3E161B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

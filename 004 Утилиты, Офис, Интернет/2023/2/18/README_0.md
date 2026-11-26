@@ -20,8 +20,7 @@ Document Express Editor - популярная программа для ред�
 ```bash
 magnet:?xt=urn:btih:BC23D8BB0794706EE0BF0695555BAB5172146C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

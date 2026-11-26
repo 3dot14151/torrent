@@ -20,8 +20,7 @@ Handyman Calculator Pro v2.3.7 [Ru/Multi] - Полный строительны�
 ```bash
 magnet:?xt=urn:btih:DBD5AF8E367568501D2D77EB2161B81AF1E5D0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

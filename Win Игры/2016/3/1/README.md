@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:F0BE05532240DB5D4DB1C7A969E119B3D5D0802C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ In Between - инди платформер-головоломка, основа�
 ```bash
 magnet:?xt=urn:btih:8A1323F925BF3035FE4DCD02CB5798842E611DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Soul Axiom - это научно-фантастическая приключен
 ```bash
 magnet:?xt=urn:btih:192CD071289743DC780E368BBF1B30EF53A570EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Dungeons 2 (2015) [Ru] (1.5.2.4-ae89b35a3232/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D19A132CBD11C2F54989AF70A83C8F9616C64DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Underdread - хоррор-игра от первого лица, в которо
 ```bash
 magnet:?xt=urn:btih:EE86FB7C6396F2304D10D4D2EE8642B7FD7BA55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ The Binding of Isaac: Rebirth - полный перезапуск игры The B
 ```bash
 magnet:?xt=urn:btih:6B5E46DC16B05297AB5E37DFF2C5A5DB248828B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

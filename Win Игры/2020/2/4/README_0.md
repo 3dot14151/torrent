@@ -19,8 +19,7 @@ Buried Kingdom в опасности, и вашим старым друзьям 
 ```bash
 magnet:?xt=urn:btih:59D778F0EB1E80D0EA4AC5E8AE067CD80C9A7BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

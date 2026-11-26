@@ -22,8 +22,7 @@ ABBYY FineReader - (   Читать дальше...   )Язык интерфе�
 ```bash
 magnet:?xt=urn:btih:CDB607E8CB0B9FA604FD3310BEA31E66C38F3CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

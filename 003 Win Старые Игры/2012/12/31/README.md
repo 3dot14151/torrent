@@ -20,8 +20,7 @@ Animorphs: Know the Secret [Ru] (P) 2000
 ```bash
 magnet:?xt=urn:btih:651100C3A6F37F93012DC85ADAF9649A7368F332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Eliminator [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:174F11B086690764F51A4E8A23F689CA6CA8FF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Holiday Island - великолепная, насыщенная радужным
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Industry Giant [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:C13442F5EDCC3F655DEB783F3915868317F973D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Hunter Hunted [En] (P) 1996
 ```bash
 magnet:?xt=urn:btih:073B8A8A3B3C63D44A3E5C7B1D6D0574D6632336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Deadly Dozen [Ru] (P) 2001
 ```bash
 magnet:?xt=urn:btih:01B9731E288E8C33FCFAFAE508E9129D9DA3C1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Rising Lands [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:B5183A0527E5F32DFC9294F1B31476F5EB879BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Impossible Creatures [Ru] (P) 2003
 ```bash
 magnet:?xt=urn:btih:79B92FB781874D8EF848C6346B2F69B114B87455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Pac-Man All-Stars [Ru] (P) 2002
 ```bash
 magnet:?xt=urn:btih:CEDA5934D4C4217432BA40D367169A30D6E293F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Bad Milk [Ru] (P) 2002
 ```bash
 magnet:?xt=urn:btih:0B04B25564270D466410157F817B0B3FC4C770BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ The Polar Express / Полярный Экспресс [En] (RePack) 2004 | R.G. 
 ```bash
 magnet:?xt=urn:btih:1EFB522D9B9B3E3BEA0F5E50F53070048897B007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Spec Ops: Rangers Lead the Way [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:26A660D4FC24893921003452EE5FAD425F657EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Interstate '82 [Ru/En] (P) 1999
 ```bash
 magnet:?xt=urn:btih:7CFC29F39F168351007C28C23FAA5C0CCFEF3FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ Freedom Force - тактическая стратегия в реальном в
 ```bash
 magnet:?xt=urn:btih:F922049166AC9C155BC41BA89D56375AC968B7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ Roller Coaster Tycoon - игра позволяющая вам почувств�
 ```bash
 magnet:?xt=urn:btih:FEEBC940354E9304411D139F531FB25C0ABFD4AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ Spec Ops 2: US Army Green Berets [Ru/En] (P) 1999
 ```bash
 magnet:?xt=urn:btih:C25702FB443B2980779E9ED233596FCB1EB92BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ Crusaders of Might and Magic / Крестоносцы меча и магии [Ru
 ```bash
 magnet:?xt=urn:btih:FBAAB9CA6FCC357BC4B7AE9387731F55FB142A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Black and White: Creature Isle [Ru] (P) 2002
 ```bash
 magnet:?xt=urn:btih:39BD5B72AAA52F79BACA5C6EE2CE4C013AF9AB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:17CF132198DF4D80072ED7AEF92CB849F3753804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +510,7 @@ Star Wars: Force Commander [Ru] (P) 2000
 ```bash
 magnet:?xt=urn:btih:E4DFBFFC75FBDADAE99CF3ED2076003CFD0A5DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ Trains & Trucks Tycoon запросто может претендовать на
 ```bash
 magnet:?xt=urn:btih:40B9F47E34FBFFDD326EDDE112BF1E225FC29C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ Enclave [Ru/En] (RePack) 2003 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:A82C7CA81B17AE1AD9C6BFDCD1ECA0BAFAE25462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ Bet On Soldier: Антология [Ru/En] (P) 2005-2007
 ```bash
 magnet:?xt=urn:btih:9F3CDF18A45C51127452880B2E7633E6ED583F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

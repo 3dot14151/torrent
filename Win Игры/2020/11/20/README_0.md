@@ -19,8 +19,7 @@ Hidden Expedition 20: Reign of Flames (2020) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:780B22FCB48C618BBE548F94907B58EAA77B793B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (2.0.3) License GOG [Part 2]
 ```bash
 magnet:?xt=urn:btih:ED1D96218F0678833EA6DBCF32EBD6B8E3C843A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

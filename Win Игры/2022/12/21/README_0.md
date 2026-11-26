@@ -19,8 +19,7 @@ Legacy: Witch Island 4 Last Bastion / Наследие: Остров Ведьм�
 ```bash
 magnet:?xt=urn:btih:783C8AF9C6369C8ABE19876281C95F67579B7568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

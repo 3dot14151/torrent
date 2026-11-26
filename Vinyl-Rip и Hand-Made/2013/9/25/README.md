@@ -28,8 +28,7 @@ B5.  A Train To Nowhere (Train Mix)  :: 04:00Жанр: Synth-pop, EurodanceФо�
 ```bash
 magnet:?xt=urn:btih:EFCB1082EB80A3DB03B19436B1D92C9F9A6F0B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B5.  Dance The Night Away  :: 04:19Жанр: Synth-pop, EurodanceФормат: V
 ```bash
 magnet:?xt=urn:btih:1544FD183576E0275A73D0449DD2B597142126EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ B5.  A World Without You (Michelle) (Classical Mix)  :: 03:30Жанр: Synth-pop
 ```bash
 magnet:?xt=urn:btih:D574882AAF65CE888B358BA7D34CB70F1D605AE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ B5.  Kiss You All Over, Baby (New Version)  :: 04:13Жанр: Synth-pop, Eurodan
 ```bash
 magnet:?xt=urn:btih:88E683308C8D7B906BE9721CBB8D790168F9AAE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

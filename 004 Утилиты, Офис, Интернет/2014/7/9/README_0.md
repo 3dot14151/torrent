@@ -21,8 +21,7 @@ MorphVOX Pro — программа для изменения голоса пр�
 ```bash
 magnet:?xt=urn:btih:863662DD36CD836512BC0D907860C3A2F2D1F5B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

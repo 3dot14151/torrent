@@ -19,8 +19,7 @@ Chronicles of Albian: The Magic Convention / Хроники Альбиана. М
 ```bash
 magnet:?xt=urn:btih:5E801BC48A3167F93B767BFB4799D694A46CF17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Age of Adventure: Playing the Hero / Приключения киногероя �
 ```bash
 magnet:?xt=urn:btih:DCCA2D5742707FB89ECC7C566FE7F4680C144B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Puzzle Dimension [Ru/Multi11] (RePack/1.0u12) 2010 | NSIS
 ```bash
 magnet:?xt=urn:btih:713063D177145D55E37050AECA48DCF9B778344F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fishdom 3: Collector's Edition [En/Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:D35B64D793ABBF5498712D8E89A1B1382886EB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

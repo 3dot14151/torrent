@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:351A2A39C56D9029347AAD9615A88A8C050C59D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Donnie Iris - The Best Of Donnie Iris (2001) [FLAC|Lossless|tracks + .cue] <Pop 
 ```bash
 magnet:?xt=urn:btih:EAF88F00E1E4E591E8C2B630CC5B794CE41FD450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

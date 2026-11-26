@@ -19,8 +19,7 @@ Silent Hill 2 Director's Cut [Ru] (RePack) 2002 | mefist00
 ```bash
 magnet:?xt=urn:btih:5BBBD8654B36AF70341C9083E6629C73587EAA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

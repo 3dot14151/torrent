@@ -19,8 +19,7 @@ Grim Tales 2: The Legacy Collector's Edition / Grim Tales. Наследие. К�
 ```bash
 magnet:?xt=urn:btih:15ECFC3BD07879D1CB45F6098F4E6E6E7C3FAA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Meridian: Age of Invention [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:E4C6EB4350349DB2435153084F126EABF9EA1DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Basement Collection — это сборник, включающий в се�
 ```bash
 magnet:?xt=urn:btih:344650D0483F66ABD82078468034A583AC2C92B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Missing 2: Island of Lost Ships / Затерянные: Остров Пог�
 ```bash
 magnet:?xt=urn:btih:4278D09CC0EA84A7C931E5D9CFC481E8356BF296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Farmington Tales / Фармингтонские рассказы [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:084C8C8C11D7521BAD56BBFBC9125D846AC468DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Little Inferno довольна необычна и уникальна в сво
 ```bash
 magnet:?xt=urn:btih:E949FB34FEDDDA200B12E79B22118E783B9ECBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ MaterDea - A Rose For Egeria (2014) [MP3|320 кб/с]<Progressive Metal, Gothic 
 ```bash
 magnet:?xt=urn:btih:F7DFA6422CFE3208C6571F2317A68F2A4CCE8DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Mesozoic - Sanguine (2014) [MP3|320 кб/с]<Atmospheric, Post Rock>
 ```bash
 magnet:?xt=urn:btih:E4FBEADCFFD6A4DA7B9B79D27242BB7CAB9D58B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Eissturm - Winter (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
 ```bash
 magnet:?xt=urn:btih:39CA8B230CEDC644E54363D9C209A9B39E36D69D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Sky Flying By - 2 Альбома (2011) [MP3|320 кб/с]<Post Rock, Instrumenta
 ```bash
 magnet:?xt=urn:btih:04345815DECB9DFB7225DB205B43FD9E750D8095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Wisdom Teeth - Peacemaker (2014) [MP3|320 кб/с]<Screamo, Hardcore>
 ```bash
 magnet:?xt=urn:btih:B09617EA891861D4381D8C8256035802081F00E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Administration Shock Him - 39:03 (2011) [MP3|320 кб/с]<Post Rock, Instrumenta
 ```bash
 magnet:?xt=urn:btih:6E7AA95C22A98D20CF9770F11E12F707C860C1D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Cannabis Corpse - From Wisdom To Baked (2014) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:A4D78335A9445C5A7104761125D5B2E018ABAA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Tides From Nebula - 3 альбома (2009-2013) [MP3|320 кб/с]<Post Rock, Po
 ```bash
 magnet:?xt=urn:btih:45F65758B466DBB005F6434FCC170C3EE768D629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ Mindplotter - Depths (2014) [MP3|320 кб/с]<Progressive Metal / Electronic>
 ```bash
 magnet:?xt=urn:btih:80396551E4CFBF9B23BC3070143C81C87C2DD3CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ Arroway - 3 Альбома (2013) [MP3|320 кб/с]<Atmospheric, Post Rock, Inst
 ```bash
 magnet:?xt=urn:btih:7C717AA967A5778D0C0195132C4AFB5F6CCCDC97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ VA - Rockabilly Summer (2014) [MP3|320 кб/с]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:3D84602D1AD8945B0F5F57D39681C091BF13AB3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ Sleep Dealer - Imminence (2013) [MP3|320 кб/с]<Post Rock, Instrumental, Exper
 ```bash
 magnet:?xt=urn:btih:2389E952C428D000E782905AFC98BA5DA22CA699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ Miracle Master - Tattooed Woman (2014) Japanese Edition [MP3|320 кб/с]<Hard &
 ```bash
 magnet:?xt=urn:btih:BA3D4B54CAA95F33066E11636C05C7695D7531AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +431,7 @@ Wolves in the Throne Room - Celestite (2014) [MP3|320 кб/с]<Atmospheric, Dark
 ```bash
 magnet:?xt=urn:btih:FC1272306B664AC08961A11BD9E12DD8C645D84A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +465,7 @@ Three Lions - Three Lions (2014) Japanese Edition [MP3|320 кб/с]<Melodic Hard
 ```bash
 magnet:?xt=urn:btih:0D01D3B86816E9154E9E7FF6E45B1474D266648D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ Kalidia - Lies' Device (2014) [MP3|320 кб/с]<Power metal>
 ```bash
 magnet:?xt=urn:btih:3D38385C2768DBD88D1DB0BC488E340355125FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +533,7 @@ CD 1: 2014 Remastered Edition
 ```bash
 magnet:?xt=urn:btih:8FBB6A35C989E90028FF1E806E2A155DA106D257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +567,7 @@ George Ezra - Wanted On Voyage (2014) Deluxe Edition [MP3|320 кб/с]<Indie Roc
 ```bash
 magnet:?xt=urn:btih:9CB017D8AFB515DBED782FA094BD4D207F47D4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EB312DFF4B5CCA9011FDACC599A677CF9E57003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:071C73C717F42EA4623CE291C33FD73016772C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +667,7 @@ VA - A New Abbey Road. A Tribute To The Beatles (2009) [MP3|320 кб/с]<Classic
 ```bash
 magnet:?xt=urn:btih:3840E0B532DDAB0F5E5D074343E11B0F176E05E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

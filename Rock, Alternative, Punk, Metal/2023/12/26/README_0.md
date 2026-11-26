@@ -22,8 +22,7 @@ Mountain - 18 Albums, 1 Box Set (1970 - 2013) 31 CD [FLAC|Lossless|image + .cue|
 ```bash
 magnet:?xt=urn:btih:D8634FD672DE23D8A34D8E5C3EAD72ABD7704163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Johnny Hallyday - Symphonique (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:1557FDBE0B00627DE73BCA777BCBB3BB8494D395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Demon - Heart of Our Time (1985) Japanese Edition, Reissue, Remastered, 2020, Ru
 ```bash
 magnet:?xt=urn:btih:B484CF5483E6EC368E8D03A3E8C118475FC5C051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00514DA336F22910601AB496F0109D4CCF427430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Borgne - II (2007) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
 ```bash
 magnet:?xt=urn:btih:4CD766CFEAE8B531C63854D8EF3AD20CFE472CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:326BA1CC9C7707685BB3E280EC462085ADF09DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Vangardion - Vangardion (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Sympho
 ```bash
 magnet:?xt=urn:btih:5D71010A025DE3F9035DF233F528F3FB65D26706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

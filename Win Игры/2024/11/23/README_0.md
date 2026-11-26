@@ -19,8 +19,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6A0B5ABBE3ABDE46969392CA8F9EC48B0970690D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1358352/dlc) Scene Rune [Le
 ```bash
 magnet:?xt=urn:btih:A784E0CC7E62E368706EA1DCD4FACB7086004869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.2.0.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E6F4BC8DB72EC3C1C7A10170728CD58789E1E9ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Valheim - выживастик в открытом мире, где вы буд�
 ```bash
 magnet:?xt=urn:btih:08380793ED422F71FB0324660AE42C89DE5EFF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Funko Fusion - это экшн от третьего лица, посвящен�
 ```bash
 magnet:?xt=urn:btih:47920BD1E060A742F395E6247CE1AF840BEC025A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Factory Town (2021) [Ru/Multi] (2.2.7) License GOG
 ```bash
 magnet:?xt=urn:btih:6797592138DAB6D33AF5A2A9ACE6CA0378BBDCC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Inside the Backrooms (2022) [Ru/Multi] (0.5.3) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:AFCEEE4C193F8943FE12A950A9F2B77BFCBA55F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [En] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:938536BF3D8896A839BD03F29E6CFE0EE5ED2337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ A Quiet Place: The Road Ahead — это однопользовательска�
 ```bash
 magnet:?xt=urn:btih:2D95063116FB4E9238545F78205290BCCCB7EFD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:32B4DC6246071731FEB7C442B0EE3BFC55A580BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

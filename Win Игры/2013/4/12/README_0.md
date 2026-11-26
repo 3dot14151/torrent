@@ -19,8 +19,7 @@ Mountain Trap: The Manor of Memories / Горная западня. Помест
 ```bash
 magnet:?xt=urn:btih:35829ED06C05DDE9037A8038ABFE25357DB2730C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

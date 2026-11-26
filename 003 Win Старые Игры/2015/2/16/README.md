@@ -21,8 +21,7 @@ Harvester (1996) [Ru] (1.0.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:EDFFE870CA50D53CFCF697FF20165C24A7BAA8AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

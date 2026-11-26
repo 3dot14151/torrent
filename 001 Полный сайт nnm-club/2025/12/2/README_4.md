@@ -18,8 +18,7 @@ Monsters are Coming! Rock & Road (2025) [Ru/Multi] (1.0.8.0) License GOG
 ```bash
 magnet:?xt=urn:btih:21EA40B9A6E5834B9CD7FC2A513ADC732904B5D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Shana - Priestess of Tona - это 18+ автобатлер-рогалик, гд
 ```bash
 magnet:?xt=urn:btih:84AD08556C3405D048106C123C18FEB4D213797B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ SANABI - это увлекательный экшен-платформер, де
 ```bash
 magnet:?xt=urn:btih:464F682B5C1EF3B36F712ECA5D3685CC17EE071C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (1.0.4.20760/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:D1F250108C8E49234A4661ECD84C0E1EF9823106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F861718BFE3648037C583ECD1F3E7F5C466029D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1387A23B80FE7FB1A6C27C4CCB832D0F6354A850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

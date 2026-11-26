@@ -19,8 +19,7 @@ G. Hart-Davis / Г. Харт-Дэвис | Teach Yourself Visually Android Phones
 ```bash
 magnet:?xt=urn:btih:F46FF41019F6D2400356B3FA4547B6E746044C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

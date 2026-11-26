@@ -19,8 +19,7 @@ This book covers Raspberry Pi 5 OS concepts and commands that allow a beginner t
 ```bash
 magnet:?xt=urn:btih:304FBCBDEBEAF12A00B227B510784BF9AAFEDFC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

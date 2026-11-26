@@ -26,8 +26,7 @@ Dark Whisper - From Now On (2011) [APE|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4D50D35BA6996A960F7835D64C7202D6A29DACD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Edge Of Thorns - Insomnia (2014) [WavPack|Lossless]<Melodic Power/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:8AD581D5AFFD35DFE0F00C3899DCBAF606FE0CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Gin Blossoms - 8 альбомов (1989-2010) [MP3|192-320 кб/с]<Alternative 
 ```bash
 magnet:?xt=urn:btih:0C12BCCF65D3EFB48576FD27A530B895EF616BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Evil Conspiracy - Prime Evil (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:DCFF5AF4B3C91F4F3FA2C01B17FBE857F5D376BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Darkest Hour - Darkest Hour (2014) [FLAC|Lossless]<Metalcore | Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:F12DB97A35AF49E37F0C447D6D539BBF2A39AC65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Lords Of Black - Lords Of Black (2014) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BCF62FD9B4D8F212A4FCA1D50BEB0F06F37FC593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Ill Nino - Till Death, La Familia (2014) [FLAC|Lossless]<Nu Metal | Metalcore>
 ```bash
 magnet:?xt=urn:btih:6E6780845A7E8CB86ACA0DFE48850472D9C5EB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Sonic Syndicate - Sonic Syndicate (2014) Limited Edition [FLAC|Lossless]<Modern 
 ```bash
 magnet:?xt=urn:btih:DAF478FC8251A10536F19F9969F42ABD1430EAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Yes - Heaven & Earth (2014) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:E9774548270DFF0F151A56BE86A65C5540370DF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +332,7 @@ Terror - 6 альбомов (2003-2013) Дискография [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:5A3899C4BB7435E700901D1EAC47C9F1C87EA9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

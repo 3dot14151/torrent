@@ -21,8 +21,7 @@ Sabayon Linux - дистрибутив Linux, созданный как форк
 ```bash
 magnet:?xt=urn:btih:21053F9F40987AF72F87F2E9D3DD790A96897974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ DEFT 8 (Инструментарий расследования компьюте
 ```bash
 magnet:?xt=urn:btih:3E4616F4E63435A5E795B3B05CB69D49D7CE7086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

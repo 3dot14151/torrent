@@ -22,8 +22,7 @@ Alina Orlova - Laukinis Šuo Dingo (2008) [FLAC|Lossless|tracks + .cue] <Alterna
 ```bash
 magnet:?xt=urn:btih:2237D01B9CDADC6685B66E0A9302E6004D393C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Toad - B.U.F.O. (Blues United Fighting Organization) (1970) Akarma, 2003 [MP3|32
 ```bash
 magnet:?xt=urn:btih:B80918610DDB4D0DB79DA8CDAD91949A3AE60EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kingdom Come - Balladesque: The Pearls (1998) Compilation [APE|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:29232C49785DAE4CAE91DEDCF39ED98FCC53C88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

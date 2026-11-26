@@ -22,8 +22,7 @@ Songsterr — приложение для просмотра и разучива
 ```bash
 magnet:?xt=urn:btih:5469B47C92028363A6DFFAF0B3FF149183F46401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ GreenTuber - это неофициальный клиент YouTube, что ст
 ```bash
 magnet:?xt=urn:btih:4993D89772A86D1546D19C0298BF14D3148E4072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ UpNote - проект, что является платформой для не�
 ```bash
 magnet:?xt=urn:btih:C2D2FAA7C08E7C6D801B7ADEB0D7E3567DA57CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Microsoft Edge - это современный веб-браузер для Andr
 ```bash
 magnet:?xt=urn:btih:601166426F9B851AD2AB1A0EF38975FBED35175B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Today Weather - это погодное приложение, что предо�
 ```bash
 magnet:?xt=urn:btih:E983F77AF90E0DE71ECFED53CDA74659558D1A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ O Launcher - это альтернативный лаунчер для Android �
 ```bash
 magnet:?xt=urn:btih:FF74C49CD49759A499B38FC04E341CC317AB1C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Today Weather - это погодное приложение, что предо�
 ```bash
 magnet:?xt=urn:btih:B4AC155094AC8F7E37A3717B989E2F18C2BB6EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Today Weather - это погодное приложение, что предо�
 ```bash
 magnet:?xt=urn:btih:DABE64DB4494C0120FD739F03FFA851FF7177D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

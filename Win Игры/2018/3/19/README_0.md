@@ -19,8 +19,7 @@ Vermillion Watch 4: In Blood / Алый дозор 4: Ценою крови (201
 ```bash
 magnet:?xt=urn:btih:B20E3C817E1D6AB87DAB55F49A331F24A613E181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:C394E328896A4B43E33BEC4DF44B6D2DF6B2585B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hellmut: The Badass from Hell (2018) [Ru/Multi] (1.0.3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8844481BA55485F6379470A63F6B8042FCA25535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Coma: Recut (2017) [Ru/Multi] (2.53) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:17E61367869000832BD2BEECA52E198021EA66E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Shadowhand - приключенческая карточная ролевая с
 ```bash
 magnet:?xt=urn:btih:8F7BA3ACA3846E1B00270EBEF4336B1879C774DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:022A6E28BB31BB51634DE15E93D854071DB0628B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Thimbleweed Park (2017) [Ru/Multi] (1.0.958/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7065F1F46A839754C10D41EA36030F19C3A358A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

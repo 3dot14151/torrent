@@ -22,8 +22,7 @@ Altar - Youth Against Christ (1994) [WavPack|Lossless|image + .cue] <Death Metal
 ```bash
 magnet:?xt=urn:btih:F0B0A766EF387B534B0122A3E1CC87F7C872D5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sophia - The Infinite Circle (1998) [FLAC|Lossless|tracks + .cue] <Lo-Fi, Indie 
 ```bash
 magnet:?xt=urn:btih:D464C61FAFBFF0BABE0F702A620A85004941DEA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Behemoth - The Return of the Northern Moon (1993) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:EA2CCACB83C81AF58F2709A1A80633C438780584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sophia - People Are Like Seasons (2004) [FLAC|Lossless|tracks + .cue] <Indie Roc
 ```bash
 magnet:?xt=urn:btih:B9BD728BF9CFC9F6447CE56B769343F15E69A7CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Behemoth - Slaves Shall Serve (2005) EP [FLAC|Lossless|tracks + .cue] <Black Met
 ```bash
 magnet:?xt=urn:btih:DB89FB2BD793754C5F05FED3A1646F618E37DF4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Behemoth - Demigod (2004) [FLAC|Lossless|tracks + .cue] <Death Metal, Black Meta
 ```bash
 magnet:?xt=urn:btih:9D1A873E2BDDDD724EB1937E7D281DA7E815C695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Behemoth - Zos Kia Cultus (Here and Beyond) (2002) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:6E2E96293E628038AF532542FB90AEAFB002E5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Y&T - Yesterday And Today Live (1991) Japan [APE|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:F6996251D5C0F2DF7563CDFFAFFF2EE5B779D715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Behemoth - Evangelia Heretika (2010) Live album [FLAC|Lossless|tracks + .cue] <B
 ```bash
 magnet:?xt=urn:btih:BEEC7150DA45985DFE76B870BD0E0B2440CCC568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Behemoth - Sventevith (Storming Near the Baltic) (1995) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:8DB9D6482C28B591A0F16B25427D470EEF32A326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Behemoth - Conjuration (2003) EP [FLAC|Lossless|tracks + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:BA1A41002B01EDACA7991C7E3E3910E47CF25500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Stigmata - Калейдоскоп (2019) [MP3|320 Kbps] <Acoustic Rock>
 ```bash
 magnet:?xt=urn:btih:41BE3963CD2C33862CFC016BF86B4A1F91D78168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Turilli & Lione Rhapsody - Zero Gravity (Rebirth and Evolution) (2019) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:D08C26C297C314F4B068DB930DA2DBF67A37E640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

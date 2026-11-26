@@ -28,8 +28,7 @@ Coma Divine - Dead End Circle (Digipak) (2011) [FLAC|Lossless]<Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Soulspell - Hollow's Gathering (2012) [MP3|320 кб/с]<Symphonic Power Metal, M
 ```bash
 magnet:?xt=urn:btih:0BF2AD6625030B6C63E0634ABACD70BC2B8248A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Munruthel - ВЕРОломство (2012) [MP3|320 кб/с]<Ambient, Folk Metal,
 ```bash
 magnet:?xt=urn:btih:E7C6030BF53D8958D7A9909539784545B4D97A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Soulspell - Hollow's Gathering (2012) [WavPack|Lossless]<Symphonic Power Metal, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Silent Descent - Mind Games (Japanese Edition) (2012) [FLAC|Lossless]<Melodic De
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Kamelot - Silverthorn (Japanese Edition) (2012) [FLAC|Lossless]<Progressive Powe
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ V/A - Верни мне мой 2007-ой: Море ЭМОций (Новая эм
 ```bash
 magnet:?xt=urn:btih:E2226E00B88F936399351AA2AFEB4E8D71258B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Funky Junction - Play A Tribute To Deep Purple (1973) [MP3|256 кб/с]<Classic 
 ```bash
 magnet:?xt=urn:btih:8FA53C37C62A31518AAE57D31F715379BFE7E8AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Jeff Liberman - Пять Альбомов (2002 - 2012) [WAVPack /FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ Kaipa - 9 albums (1974 - 2007) [FLAC|Lossless]<Symphonic Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0B18D2035B2D8214C220BA207D56E2B186EC298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ VA - 101 Hits Rock Legends (Box Set 4CD) (2009) [MP3|320 кб/с]<Classic Rock &
 ```bash
 magnet:?xt=urn:btih:F96B7296C9D6502DEB6A128C324087F841DDE9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

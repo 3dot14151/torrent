@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:6B0494C35DE1307FD6890A9F1AF83C656AA013ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Freddie Hubbard - Back To Birdland (1982) 1994, Drive Archive [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:0CA95678E202A282CB43286440D491B69CC1161B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Trisha O'Brien - Out Of A Dream (2010) Azica [FLAC|Lossless|image + .cue] <Vocal
 ```bash
 magnet:?xt=urn:btih:66C9C950BB85D06B5E171AA42772F5E40269EDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Heaven's Gate - Menergy (1999) Japan[APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0537536CA722A48D8168D6FEF132DA2DAEA29C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Dayme Arocena - Cubafonia (2017) Beat Records [FLAC|Lossless|tracks + .cue] <Afr
 ```bash
 magnet:?xt=urn:btih:127735C5BC73CB5DAB678D76000EA72759829A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Permute: Универсальный конвертер видео, аудио и
 ```bash
 magnet:?xt=urn:btih:A27DCA0A4FC3C0C00A187F3398564EE7FE67EED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Lane Mack - Lane Mack (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:65E736A95E2888409F9A584C5681FC249EEBEFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Artist Choice 049. Seven24 (Chillout Selection) (2017) [MP3|320 Kbps] <Chil
 ```bash
 magnet:?xt=urn:btih:51057434C660B076B601CA16F0609388E580FBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Platipus - Archive 11 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:354D7C275D5FD77EB2641BC9190D93E3E878A240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Lethe - The First Corpse on the Moon (2017) [MP3|320 Kbps] <Avant-Garde Metal, E
 ```bash
 magnet:?xt=urn:btih:97242FA1BBAA0CDBE00B3E29BAF01E1355419590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Urma - Nomad Rhymes (2004) [FLAC|Lossless|image + .cue] <Art Rock, Acoustic, Pro
 ```bash
 magnet:?xt=urn:btih:2AF322BCA4C12320E9D815DB9AAB22C733658BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - TFB Records Best of 2016 Part 2 (Mixed by J-Host) (2017) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:50F9B496A84E251598F3328EF4D235BDDDB43E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ VA - Trancespotting Vol. 1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:0AB3BB3702E307B35764E4B8C6DB6C7507569228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Jeff Healey - Mess Of Blues (2008) Compilation [FLAC|Lossless|tracks + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:AF3C0E4F8B70C0191160C1E6030BB488928ECE6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ VA - Yoga Springtime Relaxation: Best of Chillout and Beach Cafe Music (2017) [M
 ```bash
 magnet:?xt=urn:btih:D1F944750205310FBE38E3E7CC684BD5C1053D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:B4FE024D68695E3B92AD4E4D3DE4BA778BBBE81F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A13A640A44138E09726DC9A6E18AED76F4D785C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:019BAB4F1663664D829755766FE8EBF2C184B6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ The Sweet Lord Animals - Rise (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock,
 ```bash
 magnet:?xt=urn:btih:666A7C1512D4D239F322DD3B3930F56BFDCF1104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ Ten Jinn - Alone (2003) [FLAC|Lossless|image + .cue] <Crossover prog>
 ```bash
 magnet:?xt=urn:btih:724B8659A24750BC175C793C3ABFA1DE7C076F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ VA - Syncopy Recordings Trance Anthems (Mixed by NG Rezonance) (2017) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:27B90605591AE6F7E643A22F672921C8538C8F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ Buntaro Toriyama - Drop Of Sleeping (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Te
 ```bash
 magnet:?xt=urn:btih:03E118935BF71FA570558B7BD0F5CD8BBD63F16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D1272A79A27985CA86F61A1ACA7527670CA43B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ Jeff Healey - Heal My Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4A7A66B2FA3F71A53DE59C31FD07086BDAA8595B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:595B06542953DC06943C5877C8B19D3115CCB3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E805DE616CA5F5F070403A28F147F71540910EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

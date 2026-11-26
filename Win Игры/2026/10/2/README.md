@@ -19,8 +19,7 @@ Devil May Cry HD Collection объединяет в себе три культо
 ```bash
 magnet:?xt=urn:btih:A324EA451A937B14A1D9DFA9A4550BCEAA255751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Witcher 3: Wild Hunt - Remastered - это обновлённая верси
 ```bash
 magnet:?xt=urn:btih:1CD067B58082259AD7E46399A1C2662C9DC1E1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Witcher 3: Wild Hunt - Remastered - это обновлённая верси
 ```bash
 magnet:?xt=urn:btih:2A82A275F8DCC3AE272C39D77E30EBADBD2272C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Honeycomb: The World Beyond (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A0BA0A31758C8EB9E4C2119746F41E40396C2154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Star Wars Outlaws (2024) [Ru/Multi] (1.7/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:32155C656BF22240D8F2DD6166A7CF857128A791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Alighieri Circle: Dante's Bloodline (2026) [Ru/Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CCDE803A5641E05AE72B752ECD56D1DE98E538C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Connected Hearts 6: Vanished Beauty (2026) [Multi] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:F05621C57F811C32DF4E24C04D1316AF7DD08D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Well Dweller (2026) [Ru/Multi] (9.14.2026) License GOG
 ```bash
 magnet:?xt=urn:btih:52C1FDBCE28EDB7578B5C2FE2DBCA0F74A2C2727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

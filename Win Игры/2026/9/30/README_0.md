@@ -19,8 +19,7 @@ Transport Fever 3 - это экономический симулятор и тр
 ```bash
 magnet:?xt=urn:btih:682C361336E47456DD03E9E638452B418667CA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Escape from 8-Bit High (2026) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8D608934BEEFEC455D18BA7389655990264E2EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Seafarer: The Ship Sim (2025) [Ru/Multi] (1.0.0.2651_7/dlc) Repack FitGirl [Voya
 ```bash
 magnet:?xt=urn:btih:60C325B02D46C0240DAC3D63E0F25CD96CE568D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Woman Simulator (2026) [Ru/Multi] (1.0.20) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4213726863D0B50F3A3680A3759451CEC12289EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

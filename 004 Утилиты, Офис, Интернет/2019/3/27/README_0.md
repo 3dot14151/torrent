@@ -19,8 +19,7 @@ O&O DiskImage Professional + Workstation + Server Edition 14.0 Build 321 [En]
 ```bash
 magnet:?xt=urn:btih:814CD2B6E88C308E3A4563A59178F21063407BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ iMazing – это многоцелевое программное обеспе�
 ```bash
 magnet:?xt=urn:btih:06B1C8F569F9E343DB160F92938277BD0280425A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

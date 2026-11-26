@@ -26,8 +26,7 @@ Sectu - Nefarious (2014) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:591642E7BE960C95B912668663CF9F5F75AAD133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Illdisposed - With the Lost Souls on Our Side (2014) Limited Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:DFF13254E1C8E635B1EA39E445C58086BCB47D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C74D290194BDE72C7C48F3FB52FBD42D41997FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:5CB9A24069626F26ECAECFE092DEC2E8CCC9D0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AE9E846AEDD2F558416FA772C4CC590C90AAF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Down - Down IV - Part Two (2014) EP [FLAC|Lossless]<Southern Metal>
 ```bash
 magnet:?xt=urn:btih:EC0A94F408838B3326EA42A40AF7437307AF494F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Body Count - Manslaughter (2014) [MP3|320 кб/с]<Rapcore, Hardcore>
 ```bash
 magnet:?xt=urn:btih:FE5F42307AE959BCB1E2DCCBC5FA1469F2ACC1E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Marty Friedman - Inferno (2014) [FLAC|Lossless]<Progressive Metal/Shred>
 ```bash
 magnet:?xt=urn:btih:0F77AB85E6C5389C0E9D16D3F126D48FBC588753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

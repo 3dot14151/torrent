@@ -20,8 +20,7 @@ Jeffrey Biles | BUILD PACMAN. Learn Modern Javascript, HTML5 Canvas, and a bit o
 ```bash
 magnet:?xt=urn:btih:CD07BBC6AD14680FD5947A445959808F5E415038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

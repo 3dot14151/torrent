@@ -19,8 +19,7 @@ R - это мощный язык для статистических вычис�
 ```bash
 magnet:?xt=urn:btih:3EF94C28306F41D506A40B4E36BBF7D834D9C6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

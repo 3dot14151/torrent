@@ -21,8 +21,7 @@ Wargame: Airland Battle (2013) [Ru/Multi] (14.02.18.2100001616/2dlc) SteamRip R.
 ```bash
 magnet:?xt=urn:btih:6473ED4FE8CCC0939D4BB002D8EA45EB3A762440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Collapse (2008) [Ru/En] (1.1) License FTS
 ```bash
 magnet:?xt=urn:btih:BB1E92466897C2591425E72FCC31D2EA1F0F0A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Aarklash: Legacy приглашает в земли хаоса, где неус�
 ```bash
 magnet:?xt=urn:btih:97D0E1531AFFFD503393DB1FA53E8D03D4E2DBD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

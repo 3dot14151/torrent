@@ -18,8 +18,7 @@ Desktop wallpapers (27.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:4ED4C1F0F47A8A6F0D6483C3AD9668EA4D6F5355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Design and interior of the wallpaper (21.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:155BF55FDCED36466FCBDAC2B034F05AACD51B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Computer Desktop Wallpapers Collection (28.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6C43F34F801A4601601F6E54622B41DED9BA86EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Design and interior of the wallpaper (24.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:DC3757C63D632CFBEB0078DDDE6EFA61BAF4CD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:016F8BA0504D04791607D76928A5980D5ABC20F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Design and interior of the wallpaper (23.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:A199899DF328A3AAD4838B6E05967A053A1ECF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ VA - Летний Позитив Vol.4 (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:B6615B1EB890A51EE5CDE72C5AF238EA58E8719E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Design and interior of the wallpaper (25.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:CAAC4DE0A889E0D529A0CA02C2E5DFB81BBA20D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Landscapes HD Wallpapers (21.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:C266FE9FD3B34EAD30303EE0450DF4F785336179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Design and interior of the wallpaper (27.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:EE15C11972D5CC940FC3E821B780EB7836CDF38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1050ACF55AB9E8A1A9CA298AE3ED863B6FE15085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Landscapes HD Wallpapers (28.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:F566A56060E1AC61C988029B19EEDF37EC65D4DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ Artworks by Gabriel Deschamps
 ```bash
 magnet:?xt=urn:btih:59F6C7DEEFC2B8FD9DE6C76D586C04419E55A591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA2D709704FCDE8E4A881CB7DC5CA030F5D0C37B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Best HD Wallpapers Pack (23.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:89E1197DF78502A99F60BB7FF5034BBB115AEB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFEFBAF15BEAE17C4DC54E5A8ED19540886C444E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ Computer Desktop Wallpapers Collection (24.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:60BB0256536108A48E16BBE591E89A66BA3AE92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ Best HD Wallpapers Pack (27.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D0121AE89FB736B391DD1765431001782592556D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A4BCA78CBA5E6CE39F06BCC2854DE703907DEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AB611FCD7BF603007D4ECA00683158BB83AFB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ VA - Spiritual High (1999) [MP3|320 кб/с]<New Age, Enigmatic, Ambient>
 ```bash
 magnet:?xt=urn:btih:FC0400152866B44D7ED0D0567AC176FAE63D1F5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ Best HD Wallpapers Pack (28.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:AA7A45E968412DDDC1D407FCBB40F7B733F99CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +602,7 @@ Desktop wallpapers (26.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:66F34DD00244A012F5F89A0581DEBC43403720F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ Design and interior of the wallpaper (28.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:A780FFDD3765743223D072167A6A20427155E748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +652,7 @@ Best HD Wallpapers Pack (21.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:F5D3353590D637520A2A0E24876D382807030966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

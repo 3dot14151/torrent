@@ -19,8 +19,7 @@ Display Tester v4.56 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CC7A36CA9A44912274CC7870476557AF13779064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kiwi VPN Proxy от Macdep - это лучший быстрый и лучший 
 ```bash
 magnet:?xt=urn:btih:80569F8378A0FB8D214758C1BD6739A85567B2B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

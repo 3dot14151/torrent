@@ -19,8 +19,7 @@ Hetman Internet Spy 3.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7222744999459DAA9105079A07FDF9A3244E480C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:912650F8794F558B3D335993E91918CB7D0F3B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3B2D4C0097A8C41122EC2266575D501030D524D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Trackmania Turbo (2016) [Ru/Multi] (2016-03-23_18_29) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:284EE3FA6F2D13095D0D8FA0C881CB594FE15E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:885446097B472C719FDEDA27DEB7DFD4C7F4C1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:829C4E3C69CB6DA13B97258AABBA1D2EED676E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3A5F3CBFF49F5C31D815DB9065733D3B994E157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Metro 24 Pro v3.2.3 [Ru/Multi] - удобный навигатор по метр
 ```bash
 magnet:?xt=urn:btih:E26D186C58F67BBD6583FD8732A1603B123BD1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.04.11 [Ru]
 ```bash
 magnet:?xt=urn:btih:0F34049B9E415D371E18DAF3B9CB8F88240CC142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ BELOFF 2017.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:E660284D0BB380718BCBBBF3727B5AE76F50DDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Zorin OS 12 Ultimate [x64] (1xDVD)
 ```bash
 magnet:?xt=urn:btih:4F6E2EAE3DDD07DD4B6B5DF342D06BD06EA87B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD83151F78A15D11183A50219D247DBC5124BC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA11BFFD1746AF9561112C8B8B5C13793954ED57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ AutoTagger - авто и пакетный редактор тегов v3.3.4 [Ru
 ```bash
 magnet:?xt=urn:btih:EDCE167C473BAB914B425767D0FF6D16D0CB8BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ eWeather HD v8.2.4 Premium [Ru/Multi] - погода, качество возд�
 ```bash
 magnet:?xt=urn:btih:C50A007457E4D885932D5B777BFBB0799E2F9B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ She Made Me Do It - Endless Dream State (2015) [MP3|320 кб/с]<Alternative, El
 ```bash
 magnet:?xt=urn:btih:19819EEB65488662F881B26CB529F638C5C76C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Civil War - Gods and Generals (2015) Limited Edition [MP3|320 кб/с]<Heavy / P
 ```bash
 magnet:?xt=urn:btih:111E17847E3D59433145ACAB909F8522DEA6DF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Sirenia - The Seventh Life Path (2015) Limited Edition [MP3|320 кб/с]<Symphon
 ```bash
 magnet:?xt=urn:btih:09ECF8A6FEE59D16ED74EFFF9627261D760D77AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Uriah Heep - Fallen Angel (1978) Remaster /2001, Castle Comm./ [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:D61A5CB1B458D8D4D0BEF37CEA424AFC94A012A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Axel Rudi Pell & Friends - Magic Moments (2015) 25th Anniversary Special Show [M
 ```bash
 magnet:?xt=urn:btih:ABC79F468C068F9D3D75BA8258C388A41B843DA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

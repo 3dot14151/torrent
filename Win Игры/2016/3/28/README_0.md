@@ -19,8 +19,7 @@ The Inquisitor Book II: The Village (2015) [Ru/Multi] (1.0) Repack АRMENIAC [Ni
 ```bash
 magnet:?xt=urn:btih:945A545176AEE10CBB574F0F4BFEC85D8BB61E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Inquisitor Book I: The Plague (2014) [Ru/Multi] (1.0) Repack АRMENIAC [Nico
 ```bash
 magnet:?xt=urn:btih:9B694594187430249793296551BEF0CEA2E962E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Punch Club (2016) [Ru/Multi] (1.1/dlc) Repack ARMENIAC [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:AF19B5FD50278A0A51E78F62117692BD4ADA439E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ben and Ed: Bencalypse (2015) [En] (1.2.2) License HI2U
 ```bash
 magnet:?xt=urn:btih:C6C641824739973634B8676F9E2FC302F4972418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

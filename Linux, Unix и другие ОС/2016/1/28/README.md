@@ -21,8 +21,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [amd64] 7xDVD
 ```bash
 magnet:?xt=urn:btih:31D8552CEC148FEA68406B08DFB4070778E5CC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Window Maker Live 0.95.7-2 - Live-дистрибутив на основе Debia
 ```bash
 magnet:?xt=urn:btih:5FE32EA28EE47A11D02C1CE5AF596B208B4C27DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

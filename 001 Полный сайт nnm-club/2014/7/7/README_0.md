@@ -27,8 +27,7 @@ Lisa Casalino - I'm Old Fashioned (2014) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:A9C5056A052791E61C441EF0D677B38B21E0EB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Louis Colaiannia - Closer (2014) [MP3|320 кб/с]<New age, Piano>
 ```bash
 magnet:?xt=urn:btih:5ED835BEF4CE96780E003CE27A50C517431355AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ East Park Reggae Collective - Three Stripe Science (2011) [MP3|320 кб/с]<Regg
 ```bash
 magnet:?xt=urn:btih:71FE8497D58806546A1EB16B10892F9B4D90E2EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ N.O.R.E. - Noreaster: The 4.20 Mixtape (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0076B2A28FF5CFA7C520105A99C226B137B27A83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ VA - Hot Dance Summer Vol.6 (2014) [MP3|320 кб/с]<Dance, Club, Pop>
 ```bash
 magnet:?xt=urn:btih:67F81A9B363B7AF3277F9F1575B404A8DFB85CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Levthand - Taxidrive (2010) [MP3|320 кб/с]<Reggae, Funk&Soul, House, R’n’
 ```bash
 magnet:?xt=urn:btih:7BBE7F1D6C1741EEB1690E9BA110C91F258820F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Psych Ward - More Slime (2013) [MP3|320 кб/с]<Underground Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:6A89C7373F65CD9A09586199D60C6DD463A71366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Kelis - Food (2014) [MP3|320 кб/с]<R&B>
 ```bash
 magnet:?xt=urn:btih:68D3E484E40FB6C5BF60B34617E60DEFC944A4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ David Arkenstone - Return of the Guardians (1996) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:A0D2D319FA4278C909950A25CFC0511071826643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B94BF916C1FC426D3BD7DDF5C700BD34F012593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ Resonators - The Constant (2012) [MP3|320 кб/с]<Reggae, Dub>
 ```bash
 magnet:?xt=urn:btih:34A47AAB001027F100E826F7B58AD04CB9476B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CABEF0A0DC71B0C2AFB1D796D19466AFA17EBDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +442,7 @@ VA - Vocal Trance Collection Vol.121 (2014) [MP3|320 кб/с]<Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:5E6CAA5FD2F40D51F1B8ACDA3BE1AF70312E8FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +476,7 @@ Ferry Tayle - The Wizard (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:9757B8D764FB21F7D42DE6BFD40E25BF2BA95178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +510,7 @@ Elton Kranse & Antonio Urzaiz - Guitar Essentials (2011) [MP3|320 кб/с]<Instr
 ```bash
 magnet:?xt=urn:btih:5E150536F055AD10C0D1623115365D3A35B9FA1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +544,7 @@ Project Soul - Zodiac (2014) [MP3|~256 кб/с (V0)]<Trance>
 ```bash
 magnet:?xt=urn:btih:A0E5AADFBA385140195718C733592921CB497376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19DBC9CC2AB406E36D95FE347533FA3CAF4B7570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97B8EF9E991B438EE3EBAB5769819A775FCBDB78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A3003E6521CC2B001F9A142330D90BA597CABBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +645,7 @@ LimNote - небольшая и быстрая программа для упр�
 ```bash
 magnet:?xt=urn:btih:F8C08E92A4E1F37EA4406107F3FFBAAF7E4F2251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +722,7 @@ Dimension - Crowd Reaction VIP (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:72D862E98772686BAA4FBC1CDDE2E0C4D451AB86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +756,7 @@ VA - Mega Dance Party Summer (2014) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:2A8FEF75F9894CC4FC11A467653BD2190F582779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -807,8 +782,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80109A458A15E25725B25651760BEA7BC1287671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Shallow Truths - Alive Again (2020) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:5E6F5E65A81D9266BFF4AC2FCAF71737D593ED68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Omana - Альбом Жахів (2020) [MP3|320 kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:7E467E237054429E279B4153BC7C08E1CA058BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Northern Genocide - Planet Asylum / Genesis Vol. 666 (2015-2019) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:4AEF49A7670FDF8643CBDAE9971EBF01D1EA14F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1930358A517AA224A23E16E110C0DC1278D5DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ South Bunch - Не кашлять! (2020) [MP3|320 Kbps] <Post-Hardcore, Metalco
 ```bash
 magnet:?xt=urn:btih:36134FD787B0D9248AD62B5D0B4C54AB4F33803B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Red - Declaration (2020) [MP3|320 Kbps] <Alternative Metal, Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:3CAD038A2C597AA321D10877E27A2E06CDBA1BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dynazty - The Dark Delight (2020) [MP3|320 Kbps] <Melodic Heavy Metal, Power Met
 ```bash
 magnet:?xt=urn:btih:F83F0C360514EDDA6192BE9DA0611B52396D2FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Hollywood Monsters является детищем французского эм
 ```bash
 magnet:?xt=urn:btih:DFDABA8D2D15FEE3AF03D0527D6ACFE1F5F7F334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Starkillers - Дикий Восток (2020) [MP3|320 Kbps] <Heavy Metal, Nu
 ```bash
 magnet:?xt=urn:btih:D79226261D29ED145FDC04135F59D2B5327B9832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The Starkillers - Дикий Восток (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:4C10AAA25B69B0104480FC7C8CD572B19E96687B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Phish - Sigma Oasis (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Psychedelic Rock, Pro
 ```bash
 magnet:?xt=urn:btih:268F6A498796818F38F850D96F3E13F67361B302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Testament - Titans Of Creation (2020) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8D55A970C60E61DB2F9F7A9C95F218D057FAF865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02BF954CAFC76D2E2935026F8A0520BAB89E1C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Nightwish - Human. :II: Nature. (2020) 2CD [MP3|320 Kbps] <Symphonic Power Metal
 ```bash
 magnet:?xt=urn:btih:A4C8C09D42D1F316E24CCEAD3E1AC9ACDF04B370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

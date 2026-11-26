@@ -19,8 +19,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.0.362/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CF6AEE2A74132C5FCC88AA10B1CA931E78A6067D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

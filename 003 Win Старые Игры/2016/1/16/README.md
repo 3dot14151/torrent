@@ -19,8 +19,7 @@ Evil Dead: Hail to the King (2001) [Ru/En] (1.0.0.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:6A90F1347CD31C79C36F7B8746A964652AC9227B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

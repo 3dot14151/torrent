@@ -22,8 +22,7 @@ Gorky Park - Moscow Calling (1992) Reissue, Remastered, 2023, Moroz Records [FLA
 ```bash
 magnet:?xt=urn:btih:589C577A676C22BA7CF5538116587E0FA30EAC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Kauan - Wayhome (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Black 
 ```bash
 magnet:?xt=urn:btih:6177DA53638433E01C2DF512815D68983EA0C1AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

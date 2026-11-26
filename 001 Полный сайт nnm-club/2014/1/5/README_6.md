@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B324A5CA07F5516168C0943A62C068F928CEBDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ KMSAuto Net - автоматический KMS-активатор для опе�
 ```bash
 magnet:?xt=urn:btih:822331E1470D6448DD0943A859E8267BDF9A6DF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ WPI DVD 05.01.2014 By Andreyonohov & Leha342 [Ru] (Авторская разда
 ```bash
 magnet:?xt=urn:btih:AAFAF4FFF2B508BA7BFEADA8B2CF7A4770A0C336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Goa Culture Vol. 1 - 10  (2009 - 2013) 20CD[FLAC|Lossless]<Progressive Psyt
 ```bash
 magnet:?xt=urn:btih:A4997863E1217F5617BDA9BAD019B04A070D32B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Portable Soft 2014.01 by KasIIysk - это сборник программ, ко
 ```bash
 magnet:?xt=urn:btih:7A0F4F566F8CBDD6DDA087F1946E8D1F7CF42ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ N.O.L.F. стала одной из немногих игр, продолжаю�
 ```bash
 magnet:?xt=urn:btih:A94EDA8A0E1A3B800A54330B158EF2DB63322004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B9BA9FB8DDC5FE758AAB4096782000ACB74164C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Mafia 2/II + Best Mods 2.0 (2010) [Ru] (1.0.0.1 upd5/8 dlc/mod) Repack Mr Brothe
 ```bash
 magnet:?xt=urn:btih:00C908CBFE4FFFE1C62BA5DEEDE71C9A416D8003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Might and Magic: Heroes VI/6 / Меч и Магия: Герои VI (2011) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:A486CCEB452B3F8207CE27440C751710E607562B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

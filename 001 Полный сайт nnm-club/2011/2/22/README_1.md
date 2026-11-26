@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2C4AE07854FFFBE7BF8E3FD939B9D24243DC2F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ NG: Лесное царство / Kingdom Of The Forest (2010) SATRip
 ```bash
 magnet:?xt=urn:btih:C555823D9999DC2216F962721F3204831E9C1B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ VA - Disco Klub80 vol.1 [2CD] (2009) [FLAC|Lossless]<Eurodance, Technopop, Disco
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Emilio Garcia - Ultrablues (2005) [FLAC|Lossless]<Jazz-Rock, Fusion, Funk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Playboy — имя, ставшее легендой. Ежемесячный жу
 ```bash
 magnet:?xt=urn:btih:0D530F2DE56EFC275DB541640ED581EEDB8B2216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B709E11A144F6DC3AA2BA58A63202065C5137E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ GEO — научно-популярный журнал с уклоном в те
 ```bash
 magnet:?xt=urn:btih:8A1D00A7A3F5502C1C7A5F450F190F1199E91A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Goasia - Goasia (2007)
 ```bash
 magnet:?xt=urn:btih:E7CA0322173B7724AE5D63F2EA170F5433666D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA74C0E1B4581C617B15FCBDB6F4B89F82D5BC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Tom Bol возвращается в прекрасную пустыню Moab, Ut
 ```bash
 magnet:?xt=urn:btih:8DBF9AB4C23235E26A213FF4FF4F81C5136C2981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Martian - Flying in Love (2010) [MP3|320 kbps]<Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:3D18CE4AD4A6D4F86A0512986E22C982C8D800D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F2EDC23A5419D696E9D83755FD6602D01BFEC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Mark Isham - Механик / Original Motion Picture Soundtrack The (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:827D8BFD36139C72C11869B22D29CCB84895D5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ VA - The World Of Drum'n'Bass: Make Your World (Mixed by Dj Profit) - 2011 [MP3|
 ```bash
 magnet:?xt=urn:btih:762BA0295E9EC71670E2F1AD668213E867E3B1CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ Atrium Carceri - Дискография (2003-2009) [FLAC|Lossless]<Dark Ambient
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ Various Artists - Lounge & The City (3CD) (2009) [MP3|160-256 kbps]<Lounge, Lo-F
 ```bash
 magnet:?xt=urn:btih:9357542A7D61467D9CFC2335C1A7BCB5D74F07BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77BC29D33A8D3A500C2E0000B89ABB77900C59B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ VA - Campari Red Passion Lounge 2CD (2010) [MP3|320 kbps]<Lounge>
 ```bash
 magnet:?xt=urn:btih:467418FA46537D95AA479ED6FCCF78E4A9FA349B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ VA - Trance In Motion Vol.77 (22.02.2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:9F60169B6B88827F99F5B0DA4C9DCC13D4A85C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Google Chrome 10.0.648.82 Beta [Русский]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D916ABC17CDC55DF5E31E174D957C9B6811DF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ VA - Strictly Digital Presents - Atmosphere Chapter 2 (2007) [MP3|~196 kbps]<Int
 ```bash
 magnet:?xt=urn:btih:759C7FDF364031FB98F60C39F5BC53A4181A30AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18CFF8F2A2E323B9C3F6EA2C045588161940050D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

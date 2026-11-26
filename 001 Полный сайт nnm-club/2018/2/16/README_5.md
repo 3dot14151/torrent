@@ -22,8 +22,7 @@ VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:8095DFD9CC7FFAABBFBBC3437147689CCD7CAD6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 ```bash
 magnet:?xt=urn:btih:8FEE1CEC50A241061B1054BA81871971E78A0D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jakob Lindhagen - Paces (2017) Feeder [FLAC|Lossless|WEB-DL|tracks] <Modern Clas
 ```bash
 magnet:?xt=urn:btih:D410D764C9CD43A2C9F27A52571C91229B183B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Dee
 ```bash
 magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 ```bash
 magnet:?xt=urn:btih:081F191F448A713A007D5AC224AFA2231C5BB4D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:C5CAA4AA02417419869A077072D6DA810F4B94C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 ```bash
 magnet:?xt=urn:btih:74835CCF40CD43160FC2E80918F448E2F954BA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Music For Everyone - Trance Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:57604BC1B24CDFF6EE6A2C6E029998E1AD765595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 ```bash
 magnet:?xt=urn:btih:2DA4A30173E46C8E780A7C340E64D1C290F8350F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:00FA7C4B18679E631466DE6C11779291EEECBBD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:7623F68B95A20F9D476C01502ECC056914065F8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - 120 DJ Neoprint: Trance Project (2018) [MP3|320 Kbps] <Progressive, Vocal, 
 ```bash
 magnet:?xt=urn:btih:4C3809C1907A7350628E0286B1BDE20992884361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ White Wing - White Wing (1976) Remastered, 2017, PROGAOR [MP3|320 Kbps] <Prog Ro
 ```bash
 magnet:?xt=urn:btih:E02BA2DF4413EE368BAF98DCA87E29438584A638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:A8CC357A906516F356CA759294364CEFBCC4A1D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, P
 ```bash
 magnet:?xt=urn:btih:C49F6B1B3D0DA41A444FAB5802F7E3FABA714575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
 ```bash
 magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ VA - Erased Tapes Collection VIII (2017) Erased Tapes Records [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:4139825AD30EBE02B9D443C3838DE8DA3D180178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:64B9A1DE3E603C067247F322714FE4A07003F51B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Ro
 ```bash
 magnet:?xt=urn:btih:655303D3294844E7536DF1F99C4118757935B34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 ```bash
 magnet:?xt=urn:btih:9CA49C1DD22F6AFC12A5F72E77C50306F05E9550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ VA - Deep Progressive House Set | Mixed by Johnny M (2018) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:A98CA3BA4109400723AEED5866D75D37527ECCA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ Anderva - Boarding Pass Festival DJ Contest (2018) [MP3|320 Kbps] <Electro House
 ```bash
 magnet:?xt=urn:btih:8F088DC9889877D3EA2FCF312C63AD840CFB42EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAF3EFE695193A7C8FB6AFC8D1E2B944C7F5D133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +662,7 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 ```bash
 magnet:?xt=urn:btih:A723EB1EC417FF7705462E629AE7ADEB0FE54454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ Nina Zilli - Modern Art (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:FDC0270397B50592FFFE42D57B2826FFEE08D7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +717,7 @@ iTrash - утилита для удаления приложений с ваше
 ```bash
 magnet:?xt=urn:btih:6594D955C8F0056469F6D9D657C75979C6785143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

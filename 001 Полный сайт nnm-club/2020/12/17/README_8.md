@@ -20,8 +20,7 @@ Skillbox, Анна Марчук и др. | Запуск подкаста с ну
 ```bash
 magnet:?xt=urn:btih:CC58AF3609938CEFF89765FC3DDEE006635B4D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.0.1643565/dlc) License GOG [The Complete 
 ```bash
 magnet:?xt=urn:btih:79370CE7EECD7D827200356D64B90FB0178086FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Skillbox, Дарья Макарова и др. | Скетчинг на план�
 ```bash
 magnet:?xt=urn:btih:4C6DBA7439AE167EB11356B4296F15315782F7CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - Новый год 2021 №2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:BBA3B397D2AA46287DF968C6686D4729B7CABA08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ F-Secure Freedome VPN - надежное и эффективное решени�
 ```bash
 magnet:?xt=urn:btih:7D319E9F65ED1867D119D6BB1CF94B09A009A588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Windows 10 20H2 (19042.685) x64 Home + Pro + Enterprise (3in1) by Brux v.12.2020
 ```bash
 magnet:?xt=urn:btih:0FEDC047CDD795FB7FD246C0E079B7F8BB4B4597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FD4AD7B5E6C6E3B5643D2AF4965A0F8CF00ADD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CCE0B5BA2E023A9869E3614EB61727A37E2A41F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB2798506C69D7EC63634988ED3370A3078D443C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49556CB59837EBE30283E85801DFE6B3142E4E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Ancestors: The Humankind Odyssey — симулятор выживания с в
 ```bash
 magnet:?xt=urn:btih:4E2B975E5807D35B0F85DC2EAADF23732512A0EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

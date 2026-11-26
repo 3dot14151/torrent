@@ -18,8 +18,7 @@ Universal TV Remote Pro v1.0.23 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3B589100890AB306064F644F1C5D1AEF5EDD452C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Pop Remix (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:44839DDE3242CDE35CB2D17961C72757B3384716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Adobe Illustrator 2021 25.2.1.236 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:12C8CDD173F97F3A16C03A3275075C3DFB7E7AAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F57411467D218F51735679EFBD88D147A39C39F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Adobe Premiere Pro CC 2020 - профессиональная программа
 ```bash
 magnet:?xt=urn:btih:93C18317F8B37540B8D0AE92910F39EA8D85AA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy 
 ```bash
 magnet:?xt=urn:btih:035C7E80657444F50FFBE3B72D5B88733DBF7D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Serhii Zashkaruk | Видеомонтаж в Adobe Premiere Pro - с нуля д
 ```bash
 magnet:?xt=urn:btih:A059A570584F38000EF57707A6E05F3994797CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ VA - Русская Дискотека 70 - 80 - 90 г.  [MP3|256 - 320 Kbps] <D
 ```bash
 magnet:?xt=urn:btih:C0AB9B204C1ED6D27337A1FA153A563BF1A5A2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Variours Artist - Дискотека 70-80-90-2000 [MP3|224-320 Kbps] <Disco, PO
 ```bash
 magnet:?xt=urn:btih:FB783ACBDBD054E907C4ED28B90C96AEFC54C526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Sid Meier's Civilization VI (2016) [Ru/Multi] (1.0.10.15/dlc) Repack Other s [Di
 ```bash
 magnet:?xt=urn:btih:EEEB15F45779D8041B451528DE6CE7C42CBA10D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

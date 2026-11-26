@@ -20,8 +20,7 @@ Oblivion VPN — это специальное VPN-приложение, пре�
 ```bash
 magnet:?xt=urn:btih:A863A1185CDCCFDC271E37428A4A1D442448D3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

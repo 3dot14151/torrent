@@ -19,8 +19,7 @@ Android приложение - помощник для фитнес тренир
 ```bash
 magnet:?xt=urn:btih:180840A38843A3FFEEA474857580984ABDED4AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

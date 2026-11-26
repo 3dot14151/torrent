@@ -19,8 +19,7 @@ Stonekeep (1995) [Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:ED67E269D57ED8167095104AA878F090C241A194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

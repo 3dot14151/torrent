@@ -19,8 +19,7 @@ Orphan (2018) [Ru/Multi] (1.0.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:60B9D9A4DC862D08CDF28D43E52E271E86B39D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

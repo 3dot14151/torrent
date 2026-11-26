@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2A61DB16766A1E0B41F6D9886C3DE22C5E53AE50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Justin Achilli и др. | Вампиры: Маскарад. Классическ
 ```bash
 magnet:?xt=urn:btih:CFD7BD05B5B17F9E89C2F4DB1EFEB75D1D0C9ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

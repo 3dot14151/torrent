@@ -19,8 +19,7 @@ MediaHuman YouTube to MP3 Converter 3.9.20 (2504) (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:99AF64157C61604F999FE9F712088CDA971EE420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ BleachBit — это мощный инструмент с открытым ис�
 ```bash
 magnet:?xt=urn:btih:2A13785B9517745FA3E4DC01A20A7F8D323BE0CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ GPT4All — это настольное приложение со своей с�
 ```bash
 magnet:?xt=urn:btih:C7AB13AB0761B5E49441143ED155E57ED901FF3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ DesktopNoteOK – простая портативная программа дл�
 ```bash
 magnet:?xt=urn:btih:BE7BB4BDB1C109F5B6D95E683D3D1D34EACD9FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ ThisIsMyFile — это небольшая, но эффективная прог
 ```bash
 magnet:?xt=urn:btih:531ACA1FFB9B01885F6168D3738B05F5EDA33294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ OCCT 16.1.9 Portable [En]
 ```bash
 magnet:?xt=urn:btih:7ACAA6EBA03430E43FFD2C09E308B619EFE87947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:5CE5C0F3E8C394C8AD778F4A4BCAB99A3A3A385E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ DISMTools — это программа с удобным графическим
 ```bash
 magnet:?xt=urn:btih:225C6957168D430ECE2F45EFF311B2600378B145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B3AF629BC7208B03D69B4DDA38C16918ED4EE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ HEU KMS Activator — это простая в использовании про
 ```bash
 magnet:?xt=urn:btih:85A5070FED6ACDDDA69338629CFE200A10258C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

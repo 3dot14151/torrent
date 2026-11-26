@@ -19,8 +19,7 @@ Yakuza 3 Remastered – это обновленная игра, ставшая �
 ```bash
 magnet:?xt=urn:btih:AD62EAFB87741CCFAB9556C70D239C51BEE23C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yakuza 4 Remastered (2021) [Ru/Multi] (1.003a) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:AA40DB17A65011A3169102D3F55AC26A85DBD229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fallout 4 - это продолжение знаменитой постапок�
 ```bash
 magnet:?xt=urn:btih:B67A911FE57133696463A31C810C456CAAED39A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Yakuza 0 (2018) [Ru/Multi] (build 4746539) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:4E54F893531F6D6F759A0464097B9C377DCE079E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fi da Puti Samurai предлагает отправиться в увлекат
 ```bash
 magnet:?xt=urn:btih:AC73B6B2FAFDBAE33E296F97A11E963F1300BA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 ```bash
 magnet:?xt=urn:btih:D551528952D99B1AEF28FB201E6AD33E1430BD01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 ```bash
 magnet:?xt=urn:btih:FE02BADCE6AA7D00D985E48792EAE2D8A5A2C2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Star Fire: Eternal Cycle (2025) [Ru/Multi] (1.25.271) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:63A853B717D0E19B2A324AAD874D2A0D3EDCF48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

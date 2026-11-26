@@ -19,8 +19,7 @@ Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:6C5374389394CDAE3BB7AADB61D98279CD649D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

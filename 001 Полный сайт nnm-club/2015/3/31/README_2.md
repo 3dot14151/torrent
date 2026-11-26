@@ -18,8 +18,7 @@ Directory Backuper - это простая в обращении програм�
 ```bash
 magnet:?xt=urn:btih:FC486A613EAA5E6C72B36988B121DC5A0B3BFC0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Дискотека забытых хитов (зарубежная) - 6 (20
 ```bash
 magnet:?xt=urn:btih:2F9CB29F4AFEA0807C5F8E5DDAA7393D0DFBBB3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Billy's Band - In Rock (2015) [MP3|320 кб/с]<Rock, Blues, Alcojazz>
 ```bash
 magnet:?xt=urn:btih:20075BE67C65DC7532948387903754105524A2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:562D99E570E6BA06DA8BBE2C2020370AA06C72A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72FAAB8D160E60DA273320CD3D90251C4DB83F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Remote Desktop Manager Enterprise – это приложение для кон�
 ```bash
 magnet:?xt=urn:btih:561AC8766CE34494BB7A23CBF63ECB515B8DA54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Balabolka 2.10.0.578 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:87FBA2D335EF884712624F25222E7B096551DF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Icecream Ebook Reader - бесплатная читалка книг в FB2, MOB
 ```bash
 magnet:?xt=urn:btih:3D41325F3FBFF6920A2A43AC2AB9F665DF7523BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Climax Blues - Broke Heart Blues (2015) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:8B4350A203651DE4DE64884709CB7978D2C18F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ IObit SmartDefrag - программа для дефрагментации же�
 ```bash
 magnet:?xt=urn:btih:E80E286BBB396B2BAAD21B1332F572A473E6B8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0E3A57255842DF304B59651F95B629EEBF1F4EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ jv16 PowerTools - программа, представляющей собой н
 ```bash
 magnet:?xt=urn:btih:3FC6494F64686B2BB42A735EB4182FC950195FB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2652F581F69B7F1F7C103C86BEADDEA82565CBA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9B9DFEF0958E0E409EF36361E761A7DC95B7479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ VA - Дискотека забытых хитов Vol.2 (2015) [MP3|214 - 320 к
 ```bash
 magnet:?xt=urn:btih:794EF37E58D8AA521EC04FADD069C67CFAB5E5A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73B9F53FB19253CBF284B13F373D46DB5035A34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7732E61C451772066A5E114D83E1663335ED8889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0275277E0FDBE0B62C096B726068249B4E751B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ Mega Bomberman (Мега Бомбермен) игра на Sega(Сега)-oдн�
 ```bash
 magnet:?xt=urn:btih:4F4D73AB1BCADF0D24CD88631BEB684D240A867F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:598D9908B63434630657C6B1956067BA468E295D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ PSD рамки для фото ,подогнаны под формат А4
 ```bash
 magnet:?xt=urn:btih:F69B958EFF995B0C65E3DA6581549EBF04C790CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ HD Camera Pro 1.6.0 - Фотокамера [Rus/Multi]
 ```bash
 magnet:?xt=urn:btih:8EF13F62BB3B0080D5E8C45B94E10828BA76A67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8353F70594C52B3757C34E7615384E598842D70A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ Oleg Lav | Меняем значок локального диска, папки
 ```bash
 magnet:?xt=urn:btih:BEE574B99E479D020A2F071E1735052B6A20BCE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ Robert Reed - Sanctuary (2014) [DTS 5.1 44.1/16 | .bin+.cue+.cdt (Audio-DVD)] <p
 ```bash
 magnet:?xt=urn:btih:FC0758FC62CDFECA8FFFBAE38AC045B4E9A7BB85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F68DC8BF77E6FEA760755489C9F9096C4649A7C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

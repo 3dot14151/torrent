@@ -19,8 +19,7 @@ PDF Eraser Pro - программа для редактирования файл
 ```bash
 magnet:?xt=urn:btih:43182C901179E39DA7F2344168793289AACB8ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Multrin 0.4.1 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:2AE1B8F3382D86C5D3CBACE35A508151B330F5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Laplink Software PCmover – это программа, которая помо�
 ```bash
 magnet:?xt=urn:btih:C92F48178E681DE42C5BCE4495C018F8F1894DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Signal — это простой и безопасный мессенджер д
 ```bash
 magnet:?xt=urn:btih:9DE8FB27D51277031F8E0B3F07793BA7FCA0420B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Fiction Book Editor это мощная программа для редакти
 ```bash
 magnet:?xt=urn:btih:C1D977629AF420D2E1CBC8960647D68B73258ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Breached — это история человека в руинах будуще
 ```bash
 magnet:?xt=urn:btih:0693641FDF63D9BC97F6196D55DC50536D41B8A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blackguards (2014) [Ru/En] (1.7.23231/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:65259EAD432D8F49D164C34062857A6250266676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mighty No. 9 (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:15315BD8501FB9FF90353463C29F30EFCA4C9F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Asemblance — это приключенческая игра от первог�
 ```bash
 magnet:?xt=urn:btih:47C9457D1B0822B6BE8EA5E139A65D2B1811BB38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MTB Downhill Simulator - захватывающий симулятор по ма
 ```bash
 magnet:?xt=urn:btih:C652A273679591D7849EA53A6F0EE30C07674B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

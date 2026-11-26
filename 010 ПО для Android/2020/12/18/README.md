@@ -19,8 +19,7 @@ YouTube Downloader v7.1 [Ru/En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:15D2F7D740151DC081D9D0AFA11B0255C1747E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blaze v1.6.4 [Ru/Multi] - Виртуальный Камин с разрешен�
 ```bash
 magnet:?xt=urn:btih:1641F697CEB8E19D136EE61D86FCFDF3F9F7A62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

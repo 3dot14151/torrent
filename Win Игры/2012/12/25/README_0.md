@@ -23,8 +23,7 @@ Atlantis: Pearls of the Deep [En] (RePack) 2012 | Twisted EndZ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Anna [En/Ru/Multi7] (RePack/1.4) 2012 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:110BC1155EA9D5A1FE443A259266F9BDEAE752C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

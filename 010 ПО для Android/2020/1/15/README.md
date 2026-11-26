@@ -19,8 +19,7 @@ Private Browser Pro - быстрый, настраиваемый, приватн
 ```bash
 magnet:?xt=urn:btih:DFA99688A8A1CD2443B0B5EE4DE010F9EC8C3AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Graphics Tool - отличное приложение для тех чей см�
 ```bash
 magnet:?xt=urn:btih:C3D9D44D10EB1941B9394D1F315A5FE39F7E1566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WorkAudioBook - уникальный плеер аудио для тех, кто
 ```bash
 magnet:?xt=urn:btih:83258E9572081A4B72435303ECCC5A8343E57A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

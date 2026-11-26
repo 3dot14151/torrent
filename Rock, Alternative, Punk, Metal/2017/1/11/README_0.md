@@ -22,8 +22,7 @@ Hozier - Hozier (2014) Deluxe Edition [MP3|320 Kbps] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:155B78708367300021AF0025BFEE43AEE77F303C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DF24380FF6CED92F13D220931F2FBBEC76EB501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sepultura - Machine Messiah (2017) Limited Edition [MP3|320 кб/с]<Thrash Meta
 ```bash
 magnet:?xt=urn:btih:BD4F198DD6C37D248E45458B63BC46F54C550D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Led Zeppelin - Plays Pure Blues [1969 & 1971] (1994) 2CD Bootleg, Live [MP3|320 
 ```bash
 magnet:?xt=urn:btih:688268482AC4FC873734F76EAD79A8934B9D6E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

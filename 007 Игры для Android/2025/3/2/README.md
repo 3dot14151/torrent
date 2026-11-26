@@ -19,8 +19,7 @@ Oddmar v0.111 [Ru]
 ```bash
 magnet:?xt=urn:btih:4BEC6D9669F29D3FC5FD28AF10DD9466E64721A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dad's Monster House - это нарисованная от руки игра-г�
 ```bash
 magnet:?xt=urn:btih:14B5EF95BECC6B3442E41E25F11374BDE892BFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Fran Bow v1.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:B4D01DDD5CD81C024697CCD24308F97EFFE923DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Cat Museum v1.2.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:97F9C951B1D802D8D88488BB7821C4ED143DA154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Life Gallery — это необычная игра, в которой голо�
 ```bash
 magnet:?xt=urn:btih:C5334B57530AE3CBF69D2430CFBCD3F02543813D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Little Misfortune - это интерактивная история, посвя
 ```bash
 magnet:?xt=urn:btih:4E155F357DCC06D92CE7C10D3BAD0E030520129B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ALT Linux 8 СП C10F2 [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:15C6A4A59D78761D854BC5D7E4E887F188F0BC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Astra Linux Special Edition 1.6.15 [amd64] 5xDVD
 ```bash
 magnet:?xt=urn:btih:F0FCEABC2A97EB6DBAB634CEB48F1001FE827013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

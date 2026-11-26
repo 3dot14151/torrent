@@ -23,8 +23,7 @@ Barrowlands - Thane (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:CC31C0241C8AC99CF660F2F94D6011666C996801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ The Baseballs - Game Day (Deluxe Edition) (2014) [FLAC|Lossless]<Rock'n'Roll, Ro
 ```bash
 magnet:?xt=urn:btih:6D70D243654A0B1858E9ADD0BCF584AA399AA34F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Uriah Heep - Three Years With Lawton (2011) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D00F9A53A2B51DA6741D71FDAE74CCC074C1F1B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Lacuna Coil - Broken Crown Halo (2014) [FLAC|Lossless]<Gothic/Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:CDEDDA7A9E4B332321DBE487234B05285702638A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

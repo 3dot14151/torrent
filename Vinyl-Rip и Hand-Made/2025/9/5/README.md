@@ -22,8 +22,7 @@ Violator — бразильская трэш-метал-группа. Являе
 ```bash
 magnet:?xt=urn:btih:0B5DEE40132A4069B4CB4787058DD0857BA2FCDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Primal Fear — немецкая пауэр-метал группа, основ�
 ```bash
 magnet:?xt=urn:btih:F85FA408BA947121BF9C3BE5025A93E9015FA43F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:EB5D21D79D9A640DDD4C50A1D7D93840393129A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8367468BCC79251A34C5B6576B6CF7AE76C91B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Trance Line Vol.3 (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:EFE5EAC48B5C350ED9D6A7837A2551136571946D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Miami House Vol.4 (2016) [MP3|320 кб/с] <House, Progressive House, Elect
 ```bash
 magnet:?xt=urn:btih:5F54C240620F16F8BBCFB18B98A88BCF93F46F8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Happy Feeling Vol.3 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
 ```bash
 magnet:?xt=urn:btih:1374A38842E753A93C9E538DE7EEAA1ED509D28A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Progressive Nation Vol.31 (2016) [MP3|320 кб/с] <House>
 ```bash
 magnet:?xt=urn:btih:46248163ED85F5065631139D6898EC599B7C0B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Moacir Santos - Saudade (1974) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:17399B5F220FE18B90C4F17CCDB9BA3A946C8B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99FBC98F648FBD77FCE7B0113B98BF45C77F1AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Phil Woods & The Japanese Rhythm Machine (1975) Remaster, 2014, Sony Music[FLAC|
 ```bash
 magnet:?xt=urn:btih:056E4D23045665825327C55F66DF5264738FF964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - Future House Elements Vol.1 (2016) [MP3|320 кб/с] <House>
 ```bash
 magnet:?xt=urn:btih:EF055F6A0D6C4D54109FA141C7D8FF2596975F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Trance Spring Essentials (2016) [MP3|320 кб/с] <Trance, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:153654D602C4FDA95D043FB3995B11A9C438C3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Virgil Hill - Nebula (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:781B798174FC5B66E59C92D7D960EC006DA4287E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8866DC64DCC870A9C1934F05D345AB6CA3E52843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ Downcast – программа  для загрузки и прослушива
 ```bash
 magnet:?xt=urn:btih:E500A3CD49A5E4092B973CC8516AAF6E6E94C2D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ George Coleman - Amsterdam After Dark (1978) Remaster, 2015, Solid Records[FLAC|
 ```bash
 magnet:?xt=urn:btih:D619AA742A86ADDB064D239E17BDFA07A709E854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ VA - Driving EDM (2016) [MP3|320 кб/с] <House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:B9620AB7B33A839F407B579F3323FD9E7F736B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9565B8B21912E01EA208310F9183B32716B8D3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A41EB6784E515E0BC643DAD06D6BB8E67779CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ PeakHour идеально подходит для мониторинга ваш�
 ```bash
 magnet:?xt=urn:btih:5B7898762BD4AA490198EA02022394A7A7152D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ San2 And His Soul Patrol - Hold On (2016) [MP3|320 кб/с] <Rhythm & Blues, Sou
 ```bash
 magnet:?xt=urn:btih:2E37B55DCA2785761745022686EF5F460B1910D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ goPanel - наиболее интуитивное приложение для у
 ```bash
 magnet:?xt=urn:btih:44AD3F3A7A5944877281B520C81F2CEE5601E4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ Camp Claude - Swimming Lessons (2016) [FLAC|Lossless|tracks] <Indie Pop, Electro
 ```bash
 magnet:?xt=urn:btih:3B640546D045CEAA0651BEE02ACE692D8F83A246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ Deep House:
 ```bash
 magnet:?xt=urn:btih:1577E031E70AEE38C8297AC1F009014887FB08A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC9EDC2A5204987A83227C41EF60B60476234949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +710,7 @@ Dennis Jones - Passion For The Blues (2006) [FLAC|Lossless|tracks + .cue] <Blues
 ```bash
 magnet:?xt=urn:btih:9EC2D833738E173AB5ACF61E6013C4F65838C964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

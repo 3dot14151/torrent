@@ -20,8 +20,7 @@ Simplenote 2.12.0 [En]
 ```bash
 magnet:?xt=urn:btih:55635DEB416629ECF4B6A08D0C5F781B9582E2AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 ```bash
 magnet:?xt=urn:btih:A976BDB23DA2181599DEB0F4FE29F03CBE5402C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tom Clancy's Rainbow Six 2 Коллекция / Rogue Spear + Black Thorn + Cove
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

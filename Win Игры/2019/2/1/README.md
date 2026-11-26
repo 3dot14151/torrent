@@ -19,8 +19,7 @@ Greed 3: Old Enemies Returning (2017) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:9B0D2C20FD98723A5F66934D8E3FEBEC8F825C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8463FF1C42CC76C4488AD645E68E82645C30E7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Re-Legion (2019) [Ru/Multi] (1.0.0.194-j) License CODEX
 ```bash
 magnet:?xt=urn:btih:11F6E851FC8417F6470EA74E303300D79A70E5FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

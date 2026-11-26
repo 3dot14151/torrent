@@ -19,8 +19,7 @@ Sydney 2000 (2000) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:EE09E7358BAC7EDB2F03E44BF552B93F619F56CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

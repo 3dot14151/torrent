@@ -22,8 +22,7 @@ Sinead O'Connor - Sean-Nos Nua (2002) [APE|image+.cue]<Folk Rock>
 ```bash
 magnet:?xt=urn:btih:45732F469EB01540387EB2D11E6766FCE5CCA98E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:0B01ABEF4553EC3F7FCCCEBF232876499F9FA393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Children Of Bodom - I Worship Chaos (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]
 ```bash
 magnet:?xt=urn:btih:18AE3048FB53284DC3D7FC9733C325D1A40636AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ W.A.S.P. - Golgotha (2015) Limited Digipak [FLAC|image+.cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:13AD9E5DF628AB0E7F7544D697E854FE1D753C6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sevendust - Kill The Flaw (2015) [MP3|320 кб/с]<Alt.Metal, Nu-Metal, Post-Gru
 ```bash
 magnet:?xt=urn:btih:C16E3AAB28038DFE82787AE71A49F466003D6F29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAE8387AB26497CD73C09B1FCBF125575AE66823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ For Today - 6 Альбомов + 2 EP (2007-2015) [MP3|224-320 кб/с]<Christia
 ```bash
 magnet:?xt=urn:btih:34E4DD75B56762E69F7BD94CFB104006E481E1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - 100 Hits: Rock (2007) 5CD Box Set [FLAC|track+.cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:9A2A6FB05D408A798680CE2B7B114C42F4F9508E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Children Of Bodom - I Worship Chaos (2015) Deluxe Edition [MP3|320 кб/с]<Melo
 ```bash
 magnet:?xt=urn:btih:BE52EA30255548689D06F12BA14015C4AF96F4E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

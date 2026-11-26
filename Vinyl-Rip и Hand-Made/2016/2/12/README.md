@@ -22,8 +22,7 @@ Rainbow - Ritchie Blackmore's Rainbow (1975) Phonogram [FLAC 2.0|192/24|image+cu
 ```bash
 magnet:?xt=urn:btih:2DB2F78D40949239894E3EBFA48A132A840EA78A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

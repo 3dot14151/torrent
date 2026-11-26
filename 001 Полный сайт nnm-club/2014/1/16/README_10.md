@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7FD173DEA9E44EB5B72A62CA7480C3AD81611D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Assassin’s Creed Liberation HD (2014) [Ru/En] (1.0) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:95B7B296C088DA33191150F89E47FDB521881104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Mortal Kombat: Komplete Edition [PS3] [EUR] [En] [3.73] [Cobra ODE / E3 ODE PRO 
 ```bash
 magnet:?xt=urn:btih:1D6234679A343FE3AD555393C7653DD3470FB4F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Darksiders — компьютерная игра в жанре слешер, р�
 ```bash
 magnet:?xt=urn:btih:CECAD828717DA3E5AE376AE8AED53B28C7F8634C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Grand Theft Auto IV: Complete Edition [PS3] [EUR] [Ru/En] [4.46] [Cobra ODE / E3
 ```bash
 magnet:?xt=urn:btih:85B18298637F9F9F8E5E2EF068AC9D9CDBB87E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ The Elder Scrolls V: Skyrim - Legendary Edition [PS3] [EUR] [RUSSOUND] [4.41] [C
 ```bash
 magnet:?xt=urn:btih:0C548E9561F347B8149C7D8E76E4B6D37F5DC638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ C9PE MultiMedia 2k10 Plus Pack 4.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:505FE2D07193A616ACF80779259115F45228BF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ ru_windows_8_1_pro_vl_x64_dvd_2972044.iso
 ```bash
 magnet:?xt=urn:btih:8B78F5313F05E014D127A9873F73A79424867B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DEBC3926B433C4836FC1838E0ECB62BA07DA037E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Pro Evolution Soccer 2018 – триумфальное возвращение з
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Postgres Professional | Разработка серверной части пр�
 ```bash
 magnet:?xt=urn:btih:136489F24BD866812FFCEEDBE38BE59DF3729647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Koi to Uso / Love and Lies / Любовь и ложь [2017, TV, 12] WEB-DL 720p
 ```bash
 magnet:?xt=urn:btih:005699FFDE2A573C0CB61C0398113BFB29395D1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Isekai Shokudou / Restaurant to Another World / Ресторанчик из ин
 ```bash
 magnet:?xt=urn:btih:4782362A692C4E6DFD7F0312A3A9F3638751A3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ ManyCam Virtual Webcam Free 6.0.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3B0CB47F96B86F2E8731E7B3C58283B3B2BDA48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:371DF9EE3C56E8252E8E24B2C5451A0C18861766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ The Long Dark - хардкорный симулятор выживания в б
 ```bash
 magnet:?xt=urn:btih:8B921A1D56EF929185E8A17109DE4A830E637278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) TS [H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 09.2017 by OVGorskiy® 1DVD
 ```bash
 magnet:?xt=urn:btih:8B3AD80EB9285786424C47D1816FEFCA14E447AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

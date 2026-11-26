@@ -19,8 +19,7 @@ MotoRacer – гонки на мотоциклах которые осущест
 ```bash
 magnet:?xt=urn:btih:0522E27F8A2E5D39BD44DFA7F889D93362242FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Men of War: Assault Squad 2 / В тылу врага: Штурм 2 (2014) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:3B1B9E19CE31946E7E40CDA3C5D6AABECBF71657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

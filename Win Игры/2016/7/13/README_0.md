@@ -19,8 +19,7 @@ MechaGore - это аркадная приключенческая игра пр
 ```bash
 magnet:?xt=urn:btih:3A251DDDCE8F8564F243131908A634096D412A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MilitAnt™ — остросюжетная платформа-шутер с бо
 ```bash
 magnet:?xt=urn:btih:5AA03A19AEDE503523DBFD591B5DBA7395E52540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Daily Magic с гордостью представляет новую игру �
 ```bash
 magnet:?xt=urn:btih:CF19D7C95F552416DBB6A4975A285ABF0F53F528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MilitAnt™ — остросюжетная платформа-шутер с бо
 ```bash
 magnet:?xt=urn:btih:FDC77FFBBF402446565EE57FE4C88892A47BE474
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Salt and Sanctuary - это двухмерный аркадный экшен в 
 ```bash
 magnet:?xt=urn:btih:3345B97C3CB72DB92C519BAD641B26CB906F88D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Gas Guzzlers Extreme – это динамичный, яростный, агре
 ```bash
 magnet:?xt=urn:btih:B83624821019F8F6000CAA253481AC8C209269D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

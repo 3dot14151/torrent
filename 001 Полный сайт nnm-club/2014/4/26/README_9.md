@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5A2EF7899662E57840130C94816FE5FC27C9AA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Leaf Storm - Dwellers in the Mirage (1992) [FLAC|Lossless|WEB-DL]<Contemporary J
 ```bash
 magnet:?xt=urn:btih:F5D90873B540847CE33C8851226D83D6835A8345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Laverne Butler - A Foolish Thing To Do (2001) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:9A1F11F2BBCDF9DE5CB9437568F1A15DA723C372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ LED - The Ocean (2012) [FLAC|Lossless|WEB-DL]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:9787A47AF0713824AB512901085917043923AA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Grenouer - Border of Misty Times (1996) Remastered /2005, Metalism Records/ [APE
 ```bash
 magnet:?xt=urn:btih:C55C3F689B9B2497EC0E997CB7BFBB506F5FA938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ LaVerne Butler - Day Dreamin' (1994) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:BD6FC48293A701BD7796755593D0666D864C119F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Laurent de Wilde - Over the Clouds (2012) [FLAC|Lossless]<Contemporary Jazz, Pos
 ```bash
 magnet:?xt=urn:btih:AC94670E8E24AFED1AE7D86EF6FDE3C9E644A1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ VA - Armada Trance 2014-001 (Unmixed) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7FC045F7C9468333DA20D36262A0DA0FA94E1847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Led Bib - Bring Your Own (2011) [FLAC|Lossless]<Avantgarde Jazz>
 ```bash
 magnet:?xt=urn:btih:D786BE3881CDBF08C8E8AFB4D3FB87716A86CE0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ VA - Ambient Easy Listening Vol 9 (2014) [MP3|320 кб/с]<Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:4DA188C085228320D60296A61FC98A2D7CBB0F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +381,7 @@ Lori Pappajohn - Celtic Harp of Dreams (1997) [MP3|320 кб/с]<Instrumental, Ce
 ```bash
 magnet:?xt=urn:btih:D8B6CE93654EA88F1237CEFA56D95D25E49E47EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:469F67904ECDBED032A6DB955647A0CDA79134F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AB6034844E21CE146CC5A969199B44AC83FFFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDD3D68FCEF1403886B02DCDA0787832AF9AC7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:286C859079B96A68C7D228255921D14471A44DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E0B301D51B46E266E2EA102F6D6A31C05B838AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ Auto Bild – авторитетный журнал об автомобилях.
 ```bash
 magnet:?xt=urn:btih:C0D354A52B5B7FE08034AFDC99BD23D4C25CE4C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +565,7 @@ Lavitz, Weckl, Gambale, Goodman, Patitucci & Morse - School Of The Arts (2007) [
 ```bash
 magnet:?xt=urn:btih:0226DDD3158A676BF31CFA84D6C08CA269076B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +599,7 @@ Antillas - Human Frames (2014) [MP3|256 кб/с]<Electronic, House, Trance>
 ```bash
 magnet:?xt=urn:btih:D671702653A5FF76B448540202D543F460DA8072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +630,7 @@ Chitra Roy - Best of Chitra Roy (2010) [MP3|320 кб/с]<Folk, Kirtans, Mantras>
 ```bash
 magnet:?xt=urn:btih:D9F0A1B9134366EF50E3AACE22AD069D9E3F4C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +664,7 @@ LaVerne Butler - Love Lost and Found Again (2012) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:3374A0CF8874A0782201CBC92B2B44C3423EC9EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EC2342E569B6B0A6AC0B48E87E2D9C16FD7D8BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +743,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5D7A30A5FB463BEA0244833B1A78C4450F179A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +777,7 @@ Tal M. Klein - Exhaustasaurus (2013) /EP/ [FLAC|Lossless]<Tech House, Deep House
 ```bash
 magnet:?xt=urn:btih:BA7BDC8E31F910BF0F3DCB0F4BF8C9AFB19FA0EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6DE6108A0C28BA01B46B0DB2F77024EFA66CDEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C67CF1B0187E7A5475459155327E8E8AA7553E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Bill Haley & The Comets - Rock Around the Clock (1999) [FLAC|Lossless]<Rock & Ro
 ```bash
 magnet:?xt=urn:btih:1EF373E3B0523B0E82D681AF55E5F9EB85976C9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Liv Kristine - Vervain (2014) Limited First Edition [MP3|320 кб/с]<Folk/Gothi
 ```bash
 magnet:?xt=urn:btih:009D865D3F4D75470FA6499D717AE078C919B091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4059996C1D5EF8A551575072488E299237F1205B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5FA81B0B5F828327D37B25812DF3525E34ACE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Bryan Adams - Tracks of My Years (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:9A1C44BB055BD2B37404B393B5A02D129D934FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3706093CCB419AA252FB76F25505406C3A6EB0F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C61F77CBBC1F00ED07430A03A7EA332C3915DC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ The Paul Butterfield Blues Band - The Paul Butterfield Blues Band (1965/2014) [F
 ```bash
 magnet:?xt=urn:btih:163961C30A2FA5715621896E36391A7986B1120A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ VA - Ibiza Closing Party 2014 /Deluxe Version/ (2014) [MP3|320 кб/с] <Deep Ho
 ```bash
 magnet:?xt=urn:btih:BFACE89618EEF533F894071C9083D076EB8B90D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +349,7 @@ VA - Dancefloor Fever 2014 - 2015 (2014) [MP3|320 кб/с]<Wagram Music, Dance, 
 ```bash
 magnet:?xt=urn:btih:34D8FFD1789CE1303C7DD96C0CD7E8106E144C1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:241F68F933586060089E4B081449A81312D47082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ Disc 1 Продолжительность: 01:19:49
 ```bash
 magnet:?xt=urn:btih:3B93FDCCC63C7B285D520BC888CFE691851CF7F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EE5E9F84C69DD2F4B610CE1A997FC7B3DD76EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C56C6D304EDC3EB2C882860A1F05E006167A698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ Amaranthe - Massive Addictive (2014) [FLAC|Lossless]<Power Metal/Metalcore>
 ```bash
 magnet:?xt=urn:btih:5FAA253EFA3C2AAB5857D086765822DFD2768617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ Manfred Mann - The Very Best Of The Fontana Years (1997) [FLAC|Lossless]<Classic
 ```bash
 magnet:?xt=urn:btih:1CD50139B6767AA64E4E2B661A24E685FA066587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26BB27A2325E30978B3BF0F2FDCFF4E02C9E956D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ VA - Лирика, Шансон и Любовь и Зеленые глаза (20
 ```bash
 magnet:?xt=urn:btih:5FC2D5B4B1E17E45DFCCF10CBF8F833143AB9D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84457D012A265DF615AFEF21FFCBC9A1F5426840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E91247A46500CE1B2F8856BECF11CFD03703A07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E721B0AF95EDD9F9C59FC9ABF8385D007AC7F6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ Chuck Berry - The Definitive Collection (2005) [FLAC|Lossless]<Rock & Roll>
 ```bash
 magnet:?xt=urn:btih:6B4D23A813B0AAA20B5E5C8536456450AAACD63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ Wallpapers - Cities (23.10.2014) [JPEG]
 ```bash
 magnet:?xt=urn:btih:FF1F8C05C66CC850489B6666783CD9364C3AFA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:2F25D60E2AA3217AC5F0826729568A040BFBA3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

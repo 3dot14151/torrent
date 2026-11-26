@@ -22,8 +22,7 @@ A3 Improvisation on "Schonster Herr Jesu", Op. 55 for cello and organ(   Чит�
 ```bash
 magnet:?xt=urn:btih:607B33E9CF1A42CA95129DA5027E0C7FB9D76B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

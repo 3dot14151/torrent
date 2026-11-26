@@ -19,8 +19,7 @@ Paranormal Files 3: Enjoy the Shopping. CE / Паранормальные явл
 ```bash
 magnet:?xt=urn:btih:942E522BECBFC47074EE81088FD38A1055A4056B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Long Dark – это хардкорный симулятор выживан�
 ```bash
 magnet:?xt=urn:btih:EABC7C3950080184268494E0F67EABC42D583A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8A9E1F66C19764DC3B9BE858DC877E05C857F288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Iron Marines (2019) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:D579838D25404054BAF9879DB3856F50E1CE211B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Assassin's Creed Liberation Remastered (2019) [Ru/Multi] (1.0.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:944AE19E53D43DBE5752BD9A76F46FB7116F7582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Man O' War: Corsair - Warhammer Naval Battles основана на настол
 ```bash
 magnet:?xt=urn:btih:C4E4FF83EA65144CB70D394C622151E6677A88C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

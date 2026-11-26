@@ -22,8 +22,7 @@ Concrete Age - Bardo Thodol (2023) [FLAC|Lossless|image + .cue] <Thrash, Death M
 ```bash
 magnet:?xt=urn:btih:F9E6A6B5EB73A9E721CFD76B397708E2D4009385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

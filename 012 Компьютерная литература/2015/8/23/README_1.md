@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:19D264479DA0A7E522C7D585169E2F4C889C0877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ WebGL является новой веб-технологией, позволя�
 ```bash
 magnet:?xt=urn:btih:C3ACAB1020387CFBEC5E15ED92C26500337000B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

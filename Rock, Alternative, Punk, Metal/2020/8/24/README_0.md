@@ -22,8 +22,7 @@ VA - Play Station (приложение Audio CD к журналу Play #08'06) 
 ```bash
 magnet:?xt=urn:btih:E5CCB8E6631F3E30AD576B78708FA55E7F23D22E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:D85FA46228B332CF521E3A89613A15AF6FB85FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

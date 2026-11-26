@@ -20,8 +20,7 @@ Bottom Quick Settings v6.2.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D8C4427B8E952397DCD4AF7654A6D5442AD19B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MIUI-ify обеспечивает плавную, быструю и естест
 ```bash
 magnet:?xt=urn:btih:C90AABDBEA74CAFCF04C575843D276D057E02620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B54C7173A3313A89C2B5ED1D313FEBB30B4AF491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Reface v3.26.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:12B9F421607A7CC3AC10704E1363A9561E25D1CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ IPTV Pro v6.2.5 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FCCD11853542C6E592DB83EC0DCCA363860ED9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

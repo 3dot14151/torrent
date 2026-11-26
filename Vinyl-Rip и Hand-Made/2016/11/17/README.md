@@ -22,8 +22,7 @@ A4. Demolition Man (3:46)(   Читать дальше...   )Производс�
 ```bash
 magnet:?xt=urn:btih:6CDFA27E225714123D416437C9B764AC46FC405C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

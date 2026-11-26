@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:99F574BF539395F69CEB7941689E588CC861E85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Oswald Campesato | Python for Absolute Beginners (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:65E4158257DD6AD3D4349847606C53885D7F9330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vinci J Rufus | Building Micro Frontends with React 18 (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:07046E6D64A11C0BF1A28A875653F7F036F8172E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

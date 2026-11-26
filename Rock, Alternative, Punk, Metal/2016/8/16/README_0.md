@@ -22,8 +22,7 @@ Royal Southern Brotherhood - The Royal Gospel (2016) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:EC418E76A544C43363422E386A699E6FDC624743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kalaban - Don't panic (1990) [FLAC|Lossless|image + .cue] <Symphonic Prog>
 ```bash
 magnet:?xt=urn:btih:F4FD9B1182E362D4E31087D1DB27CD934D7B132A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eric Gales - A Night on the Sunset Strip (2016) [FLAC|Lossless|image + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:194FFD394FA650281D37D0ACE1D803966F144492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pooh - 1981-1984 (2011) [FLAC|Lossless|image + .cue] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:1DEAF11CCDCACB5730BF9114DDDF36584493A901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ally Venable Band - No Glass Shoe (2016) [FLAC|Lossless|image + .cue] <Blues-Roc
 ```bash
 magnet:?xt=urn:btih:415DF2424A175B2710BFB50350D638736EBE1B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Jon Bon Jovi - Destination Anywhere (1997) Japanese Edition, 1999 [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:2C08BBE3AE736BF3F9DC26ADA5C2318A81A772BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

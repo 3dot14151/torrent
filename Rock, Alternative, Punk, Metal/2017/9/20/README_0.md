@@ -22,8 +22,7 @@ Copperhead - Copperhead (1973) Reissue, 2001, Acadia [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:610C356ED544EB3F1E34D5600126AE7C2B83D64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Johnny Winter - Still Alive And Well (1973) 1994, Columbia [MP3|320 Kbps] <Rock,
 ```bash
 magnet:?xt=urn:btih:458F0F7FBAF62BA86F2AC1E8CE67FA282CC4573B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ohrenfeindt - Zwei Fauste Fur Rock'n'Roll (2017) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:5A05BA01A35751A133188466019E0223FEC51386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Destruction - Thrash Anthems II (2017) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:454CECD54B30CAEC3967E47AF4A2B1A577523746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Suldusk - Anthesis (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Dark, Folk 
 ```bash
 magnet:?xt=urn:btih:D0785053C5CB26AA4149D81B9ECED39F0C20E959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Hea
 ```bash
 magnet:?xt=urn:btih:4404D1CBDD939B99BF1B62B263FF719C1C8F9CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hell Boulevard - Requiem (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Gothic
 ```bash
 magnet:?xt=urn:btih:575F8519DFB22A897B2BB377677DF5476C92DEAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Doro - Conqueress - Extended (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B9C2E3B1658A214633FDA49428485E3C12D035B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Enslaved - Heimdal (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal
 ```bash
 magnet:?xt=urn:btih:3D15B3A2988643B4778295B4D68DA5DCFDFD9370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Surgical Strike - 24/7 Hate (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Thrash M
 ```bash
 magnet:?xt=urn:btih:835D63E318C17F2C76187A72007488DCE68620F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Messiah - Christus Hypercubus (2024) [FLAC|Lossless|WEB-DL|image + .cue] <Death-
 ```bash
 magnet:?xt=urn:btih:736EDDD7DEB9DBCFDDFEC4D9BA7E04A2AB029089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Firewind - Stand United (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy
 ```bash
 magnet:?xt=urn:btih:CA70A42871EADC5A08BAA95804AE929B32DDD349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

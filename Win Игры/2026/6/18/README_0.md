@@ -19,8 +19,7 @@ Myth Finders 3 / Искатели мифов 3 (2026) [Ru] (1.0) Unofficial [Col
 ```bash
 magnet:?xt=urn:btih:570D4B9844980397AC08F41B01B155C3D3D0A25A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RAIDBORN (2026) [Ru/Multi] (2026.06.16/dlc) Repack Other s [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:079550ED74E758C7E429ECA4FF13470A25A3E5C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RAIDBORN (2026) [Ru/Multi] (1.0/dlc) Repack FitGirl [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:D94858B39D41C6E90B2D8C6BCAEC6CB58E06D506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Battlestar Galactica: Scattered Hopes – это тактический симу
 ```bash
 magnet:?xt=urn:btih:D66D788A97997EE06A0197B53C1A97599D5D621E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

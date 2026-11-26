@@ -22,8 +22,7 @@ A4. Skin Flicks (6:50)(   Читать дальше...   )Производств
 ```bash
 magnet:?xt=urn:btih:03C3017D3851570D4A23384B1D49F2704036E06F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2952542D757E130C61F699A5AAF7DF9B1D19E72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

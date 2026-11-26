@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:867071B31E17875EC3D5FB8619151ED14B6B6AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Fairy Tail Zero | Хвост Феи. Начало (2014) [1 том, 13 глав]
 ```bash
 magnet:?xt=urn:btih:41EB194EB2E134DCA5911B078504A5B563972F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Fairy Tail | Хвост Феи (2006) [63 тома, 545 глав + 5 Кросс�
 ```bash
 magnet:?xt=urn:btih:E98636B578E2F1C4C0B5D90D03EFE8434A16628A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ MotoGP. Этап 06 из 22. Гран-при Франции. Гонка (11.05.2
 ```bash
 magnet:?xt=urn:btih:31453798BB9766614AF3323B3ED223BEEB401D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.2 Mod by 
 ```bash
 magnet:?xt=urn:btih:EAF1291498CE2A27E42EDB49C0D22E26B115EC7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Fairy Girls | Девочки-Феи (2014) [4 тома, 21 глава] [Манг
 ```bash
 magnet:?xt=urn:btih:D7ABAFE6C97C0591FE941E108866B334DE58F547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AF3C44254473E35A4B4F61A48E8C7EA3EB9B4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:151B7B32E5F39395BFE0FF08661353BA58CB3A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Lighting calculations / Расчеты освещения v6.1.3 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:76459DD4CB9BF1D385811AE3A94B6F778EE7834F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:975C87F8050C199437CC4C2B1A724FAF63E9D34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E25A28CD4F1EE6DFCCCC098D257C2A722590F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:F6A7407D89E6CC2B5A2E115C27D49B7AF7E3290F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ V.A. - 00s Love Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:0FB048D9CE503E176F77B21CC03D3DFB305610A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ SoundHound — ваше лучшее музыкальное приложение
 ```bash
 magnet:?xt=urn:btih:97ACBF675A2992D3DFF57DE2237B77D2AB2B1430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B288E8CFAC5E892192976DEF993124333E33288C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D587879248D0DA78FF80B8D298087FFB363CCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7B47986B7C2726F514DF46CB8C7637B05BE44F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15032668D469910444AE9A109BC7A5A3D1DCB032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ Ares изображает альтернативный канон после с�
 ```bash
 magnet:?xt=urn:btih:29C96F522C8868EF6A1B66B86B57F6B3141CA4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ Oshi no Ko 2 | Ребёнок идола | Звёздное дитя [ТВ-2] [2
 ```bash
 magnet:?xt=urn:btih:4F8C868E58C55AC436E5A43FBC2964B0A11A5C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ Squid - рукописные заметки v4.4.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2ED73128326FC1331ED310BC2DC56FECBA838A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

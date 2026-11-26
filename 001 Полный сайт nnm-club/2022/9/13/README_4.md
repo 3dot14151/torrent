@@ -20,8 +20,7 @@ exFAT/NTFS for USB by Paragon 3.6.0.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:18D855847B4998A69629E213DD54D37C8F843663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

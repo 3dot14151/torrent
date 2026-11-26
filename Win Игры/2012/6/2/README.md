@@ -21,8 +21,7 @@ Port Royale 3: Pirates & Merchants [Ru/En] (RePack/1.1.2.24556) 2011 l R.G. Cata
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ SBK Generations – продолжение серии мотоциклетных
 ```bash
 magnet:?xt=urn:btih:7C5C4C4667CEA7D53DE371625A685F3C878111C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Botanicula: Special Edition [Multi12/+] (RePack/1.0.0.7) 2012 l R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:1A048CF9868C27C6CE64443C81FE85AECA328587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Pro Evolution Soccer 2012 (Patch/Mod/3.4) 2012 | PESEdit
 ```bash
 magnet:?xt=urn:btih:86162AA9CF6444C4F4D61A5C7CFEC4E170A97CDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Fireburst – зажигательная гоночная игра, в кото�
 ```bash
 magnet:?xt=urn:btih:B6F36CB73DE6C9C1B887CAC36C47CD513405164F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Secrets of the Dark 2: Eclipse Mountain Collector's Edition / Темные та�
 ```bash
 magnet:?xt=urn:btih:CF244B66F15C80FC5138BDE603BB8356FA6920AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

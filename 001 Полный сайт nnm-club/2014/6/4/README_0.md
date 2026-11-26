@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1374716443B68E9E040C628B7018B16FE7884C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Carvin Jones - Live At Joe's Grotto (1998) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:BABA4367F7B810A8D423A1903958EC066F2E75A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:19512A1170A47D3EFDB5109B2E6821D9D79FC96F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C7AE59094464619E1DF5F73AA474B46E47E8F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Anorexia Nervosa - 2 EP, 1Compilation (1999-2005) [APE;FLAC|Lossless]<Symphonic 
 ```bash
 magnet:?xt=urn:btih:26FD39CBDC21328DEA4DBB9BC65CBBA766E8071E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ NERVO - For You (LP) (2014) [MP3|320 кб/с]<Electro House , Progressive House>
 ```bash
 magnet:?xt=urn:btih:2FF709E820D5DE0A6C1B51A5D0317E9EE1312971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ VA - Bobina - Russia Goes Clubbing: Stage 007 (2014) [MP3|320 кб/с]<Trance , 
 ```bash
 magnet:?xt=urn:btih:361FEF52435E6D71DDED994410D74B8ADB558178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D3041B0F2E55B1C4502B4CEF319AE27E50D2099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F137EABA2C4BD0EAD1B99DA518A29241F9BE8783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ Hammock - An Introduction to Hammock (2013) [FLAC|Lossless|WEB-DL]<Post Rock, Am
 ```bash
 magnet:?xt=urn:btih:D163209073AF937B105F23B4914057709B53BAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ The Good Fellas - 13 Women (2007) [MP3|320 кб/с]<Swing>
 ```bash
 magnet:?xt=urn:btih:AB8FAAAEBB5837651F0C62D2B2D3A64422C29D19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ VA - Авто Дискотека Летний Выпуск (2014) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:8B285D2A417D06DA4936D0FEFB8B03ADE91432DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE2D12859084B7474126ED8202CCFDEA6221C523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ Unisonic - For The Kingdom (2014) EP [FLAC|Lossless]<Melodic Heavy / Power Metal
 ```bash
 magnet:?xt=urn:btih:E886015E7018AB59EFDAD0ADF4B7B64BF7DEC4E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ Rondo Fur Horn Und Orchester Es-Dur KV 371
 ```bash
 magnet:?xt=urn:btih:AB99FEF9079D2F14BF7294A3A17A850C33359EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:670B6AF69C0675FB3CFADDCF4F604C49C5BD3F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ Glary Utilities - комплексный набор инструментов д�
 ```bash
 magnet:?xt=urn:btih:8E0CA016E18C3F015A64667B03AF7D169C397382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ Screamin' Rebel Angels - Pounce Like A Tiger (2011) EP [FLAC|Lossless]<Rock, Roc
 ```bash
 magnet:?xt=urn:btih:0CA4B4F2DD192730243F3548C32734B8992C13D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ Zzebra - 4 Альбома (1974-1975) Reissue, Remastered /1999-2001, Disconform
 ```bash
 magnet:?xt=urn:btih:C64129D3602F2C2482CCFC4B0530D2912E541A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ Screamin' Rebel Angels - Hitch Hike (2013) [FLAC|Lossless]<Rock, Rock'n'Roll, Ro
 ```bash
 magnet:?xt=urn:btih:007436A5440A16B0680CCB66237E791C480D3003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ VA - Wonderfull Chillout Del Mar Ibiza Lounge (2014) [MP3|320 кб/с]<Lounge, C
 ```bash
 magnet:?xt=urn:btih:85021BEF473EA983128685FD2B83269C54F3C670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +688,7 @@ Pebbleman - Call of Fate (2014) [FLAC|Lossless]<Heavy Blues-Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3E96ECF673CAEA71F433B9952BA6EAECD948CAC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +713,7 @@ InnoExtractor - программа для распаковки различны�
 ```bash
 magnet:?xt=urn:btih:1357B9376C62445F8B41F1C8E5AEFC9387D2126B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ VA - Romantic Deep House (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:7B5A3A4124470340B346F6D11C5039AAECD5A7F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -797,8 +772,7 @@ Head Machine - Orgasm (1970) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B89BD34BCF0479CB1220689F45A0AE66BE4902C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Advanced Download Manager and Torrent downloader v12.6.1 Pro Mod  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2D34332981432B7F07F83B6A7FEA510D44AE7A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

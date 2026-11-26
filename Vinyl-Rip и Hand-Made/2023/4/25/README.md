@@ -22,8 +22,7 @@ A4 Show Some Emotion 3:48(   Читать дальше...   )Жанр: Pop Rock,
 ```bash
 magnet:?xt=urn:btih:CC2CDF3AB7551983EC057E40159B7AD5EC014802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 A Matter Of Feeling(   Читать дальше...   )Жанр: Pop RockПр
 ```bash
 magnet:?xt=urn:btih:B18B0B3CA005E4E029B8627AEA5DB9DBB3F4830C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Нет, Милая • Honey Don't(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:FC453BD8D98812CFC57FED895639A0436360367C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

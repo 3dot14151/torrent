@@ -19,8 +19,7 @@ Dark Parables 9: Queen of Sands (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:0B829D2F75850849BC81E2F200C2E6F2445E17D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Legends 6: The Dark Wishes / Легенды о призраках 6: Т�
 ```bash
 magnet:?xt=urn:btih:3B54D71AD2877AF3D358BDFFF700FE9CDB2D8DA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

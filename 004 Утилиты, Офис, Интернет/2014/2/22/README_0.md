@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:99B76AE7EC19F6EB80CAB964EF36651C5DFC216F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Autopano Video Pro – это профессиональное приложен�
 ```bash
 magnet:?xt=urn:btih:399047165EF938944533B5E2A6A2A5F67B149C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

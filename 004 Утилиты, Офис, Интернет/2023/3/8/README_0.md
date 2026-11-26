@@ -20,8 +20,7 @@ Corsair SSD Toolbox - официальное приложение для обс�
 ```bash
 magnet:?xt=urn:btih:45811CB334A6769B2DFA3C8E50E80D50209F220B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

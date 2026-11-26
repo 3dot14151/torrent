@@ -19,8 +19,7 @@ Narcos: Rise of the Cartels (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:9ADFFB1DEF21ED8E7B3062E79D0B4B74C9283EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

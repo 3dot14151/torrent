@@ -22,8 +22,7 @@ Undercroft - The Killer Sword (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deat
 ```bash
 magnet:?xt=urn:btih:13FFBE99F8F822743F14D380BCDD9F1B0B57E69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Peter Carlsohn’s The Rise - Raising The Roof (2026) [FLAC 24/44.1|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:A857FFFAAD1C0E8CFB956B167E9242CF6D8DB372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

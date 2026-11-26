@@ -19,8 +19,7 @@ Dire Straits - 1-st press, no remaster (1978-1993) [LPCM, MLP 2.0 44,1/16 |DVD-A
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

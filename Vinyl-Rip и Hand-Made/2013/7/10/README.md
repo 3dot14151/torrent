@@ -26,8 +26,7 @@ B4. King Of The Universe [4:10]Жанр: Space Rock, New WaveПродолжит�
 ```bash
 magnet:?xt=urn:btih:BAC02E3CEA306DB4F91EFCC24BE5F7135DB27756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

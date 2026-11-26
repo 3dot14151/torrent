@@ -22,8 +22,7 @@ The Bronx - The Bronx (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:F3BE3138892D525CDEFF74668B4B2CA3E3DB502B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Le Maximum Kouette - Moi j'aime ça! (2002) Maxi-Single [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:0747DF51538F7155D96623FFBED91880EA6CC4C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Ridel High - Emotional Rollercoaster (1998) [FLAC|Lossless|tracks + .cue] <Pop R
 ```bash
 magnet:?xt=urn:btih:822FE0FF47DEE5600DB61FBCF1223CF82770D145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Notorious - Sexy Funky Monkey (1997) Single [FLAC|Lossless|tracks + .cue] <Rock,
 ```bash
 magnet:?xt=urn:btih:11971DD8166B2EE53C50CBE41352DEE9B6CED631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Dead Meadow - The Nothing They Need (2018) [FLAC|Lossless|tracks + .cue] <Stoner
 ```bash
 magnet:?xt=urn:btih:AFD4445204DD270CBC00C0996E445A8D9D68A933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Soilwork - Verkligheten (2019) [MP3|320 Kbps] <Modern Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C58A2D573AC168B75889EE0A44E451414AE61C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05724C934F2829951CB565DA557B2B6796A1FE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

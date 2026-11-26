@@ -27,8 +27,7 @@ Anathema - Judgement (1999) [FLAC|Lossless]<Atmospheric Rock>
 ```bash
 magnet:?xt=urn:btih:45B63C5C3DD8C96E1444FEF3934EE328EF86D898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ The Lazy Rich Show 056 (21 August 2014) (   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:C83B5D2E25170FA01056DA3CB7C11E73AA628C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ VA - The Official UK Top 40 Singles Chart (28-12-2014) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:2802D6F62BAE7332FF232D27F2F6F04A6FA3769E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Joss Stone - The Best Of Joss Stone 2003-2009 (2011) [MP3|320 кб/с]<Soul, Neo
 ```bash
 magnet:?xt=urn:btih:177CA6435984AD3A0D9A406BA655493BED2732A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Spirit Architect - Anthology (2014) [FLAC|Lossless]<Psy-Progressive>
 ```bash
 magnet:?xt=urn:btih:D9601AFE8C980A202B6B253394B93E58E0A5C050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Slowdive - Souvlaki (1994) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:49CDFCA5821BC0B3D0B1DF632AE1D49E0DAB4C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:DC7D041CA17DB00EB099ADAD017C82116A91E555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C62AF8833AC53A331688DCA5FCD5FF432D525051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5F7AA079B2731F3564B26F8D7E535E0760240D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ Mountain Jam Festival - Collection 2 (2014) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:9968EC5A6B4D0DFC385941636979839D488117C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ Wallpapers - Человек собаке друг или 400 чудесных ф
 ```bash
 magnet:?xt=urn:btih:ED70ED02AABA41AC5F6B493E7AD7FA7F12EB1FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18DD970F843E13030E3B66542C6C52CF0ABE5D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:342429291D4EC27E4A27AF95040A3E81CA09D57A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ CD1:  01:11:47
 ```bash
 magnet:?xt=urn:btih:C00E7014E873379621EFDA214018971DD5E241C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ VA - Destroid - The Invasion Remixes (2014) [FLAC|Lossless|WEB-DL]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:CD632E0FB6A158B3891A7A26E2F462023ACAE41F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D27ED91966A2C58330B024A5C2350241485ECC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ Women’s Health – качественное издание о здоровом
 ```bash
 magnet:?xt=urn:btih:80188DE13E2B04F8D57DCDE5E2D8EE999790330A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EBE8B4244E6FB97B1FC458EE16C4DFE5F9714A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ VA - Гость / The Guest (2014) [AAC|WEB-DL|256 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:40BA41FEC820547ED6DC2D85513F5324A055B8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ VA - Снежный Хит-Парад На Русском Радио (2014) [MP3
 ```bash
 magnet:?xt=urn:btih:A7587262BE8A2A5F5D2238533C731B20405C772B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C283D774CCAA3DDAB252937B556F674252C2C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:391242AC42455ABA7CF97C463C70CBA421FB9C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ VA - Новогодняя Магия Хитов 50/50 (2014) [MP3|256 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:156018D1BB84BCD38B259ACF2789741F252C5FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3EC60EC4DDF2A3C12018251A704D15299D4BE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +752,7 @@ Bob Marley & The Wailers - Uprising Live! (2014) 2CD Bootleg[MP3|320 кб/с]<Re
 ```bash
 magnet:?xt=urn:btih:A6F6645F195C1DDFA85F577549251D49C4FC5D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

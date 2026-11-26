@@ -28,8 +28,7 @@ The Red Chord - 4 альбома (2002 - 2009) [MP3|320 кб/с]<Technical Death
 ```bash
 magnet:?xt=urn:btih:53546DD70B655DC1E1C572B83314C55531BC6A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Shade Empire - Omega Arcane (2013) [MP3|320 кб/с]<Melodic Industrial Death, B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Mad Shadow - Heavy Blues (2013) [MP3|320 кб/с]<Heavy Blues-Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E0CF3553D846E13063536A7695A9FEFC1DA02232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Santana Brothers - Brothers (1994) [FLAC|Lossless]<Rock, Latin Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +165,7 @@ Jeff Christie - 3 Box Sets, 7 CDs (2008-2012) [FLAC|Lossless]<Rock, Pop-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9F21F6D6C2A2A251250388F3484B2C0497D63AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

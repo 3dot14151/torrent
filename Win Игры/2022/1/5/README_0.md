@@ -19,8 +19,7 @@ Gigapocalypse (2021) [Multi] (1.9.81) License GOG
 ```bash
 magnet:?xt=urn:btih:71E9535A1730E626B942E5AE1EA4E82026ED036D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Charterstone (2020) [Multi] (1.2.7) License GOG [Digital Edition]
 ```bash
 magnet:?xt=urn:btih:2D66F7A2214E7C15E871122D7CB029D6E07680DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

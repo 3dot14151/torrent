@@ -22,8 +22,7 @@ The Rocket Dogz - Bad Blood (2018) [MP3|320 Kbps] <Psychobilly>
 ```bash
 magnet:?xt=urn:btih:F274FBFFBC08A83B39BF2C6B2FEBCB7FBDEE77FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Auri - Auri (2018) [MP3|320 Kbps] <Folk Rock, Celtic, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:F8AC334F697803FE810F7AAA5D2A5409095031E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jack White - Boarding House Reach (2018) [FLAC|Lossless|tracks + .cue] <Indie Ro
 ```bash
 magnet:?xt=urn:btih:43D8AB7A85DDA238FBA186D3C3E05EA99069D65B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wildways - Day X (2018) [MP3|320 Kbps] <Post-Hardcore, Metalcore, Electronic>
 ```bash
 magnet:?xt=urn:btih:35B114F6F765BE0E78D3D56F7344AFF31A8FB205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

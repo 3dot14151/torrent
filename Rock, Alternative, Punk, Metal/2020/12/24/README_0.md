@@ -22,8 +22,7 @@ Hidden Machine - Djeneration II (2020) [MP3|320 Kbps] <Progressive Metal, Heavy 
 ```bash
 magnet:?xt=urn:btih:5DE33D720183EE457125F915AA97AA229C9E2F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Within Nostalgia - Void & Decay (2020) [MP3|320 Kbps] <Black Metal, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:500CAA9B1E4F93391E9A27673228230799BC1B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Alura - Alura (2020) [MP3|320 Kbps] <Nu Metal>
 ```bash
 magnet:?xt=urn:btih:EB4DBC7CAED2098DE84C79859F4C056B7B21993F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Evans and Stokes - Diary of the Damned (2020) [MP3|320 Kbps] <Gothic Metal, Prog
 ```bash
 magnet:?xt=urn:btih:A20C9E88A53F5A148DF9CA731D6D1334D0120F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Medenera - Argento (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:9DCA8AB011471D78A623DC47039EEDF474C35F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tourniquet - 10 Albums (1990-2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:AD392ED59FB110B031F9FA2CDB68645E895AAD56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Pendragon - Love Over Fear (2020) [FLAC|Lossless|image + .cue] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:B802E08C65AA7CBC77268505E151097BE32D4141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Ceremonial Castings - Salem 1692 (2020) MMXX [FLAC|Lossless|image + .cue] <Symph
 ```bash
 magnet:?xt=urn:btih:9909CCD3C5484DB20AF0EAE38ABC86AB61CC7AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Madsher - Devil's Alley (2020) EP [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:9036F662381DE5B36C6CBD3301E5C8193F822C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7B920E99AD68361B01CCB1B90288C4ACB39A8DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

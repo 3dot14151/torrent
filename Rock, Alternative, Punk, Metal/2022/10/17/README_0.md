@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:B5E3B36378FB068BC1FC771E7CC7BBC2D94368A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Blazon Stone - Down In The Dark (2017) [FLAC|Lossless|image + .cue] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:C80B65CEAE57AB5FC3005BD5B4D49A99E2AD1871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Roxette - The RoxBox! (A Collection Of Roxette's Greatest Songs) (2015) Box Set:
 ```bash
 magnet:?xt=urn:btih:CABEF6E2AB2C139E889194F7A34BFD85CC268CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ From Fall to Spring - Light Ut The Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt
 ```bash
 magnet:?xt=urn:btih:7167A3DE309161F66C3EF23DA870D6063F0D7845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Mamooth Band - First Steps (2022) [MP3|320 Kbps] <Hard Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7CF681C5D92B3C08C172B508043B482F1AEF5857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Bush - 10 Albums (1994-2022) Full Studio Discography [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:5B43EEA8ABF3A4F1CC166AE0BA69066B51219475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

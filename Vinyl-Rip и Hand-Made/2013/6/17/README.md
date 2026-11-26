@@ -28,8 +28,7 @@ B2. Adagio ma non tanto (5:14)(   Читать дальше...   )Жанр: Clas
 ```bash
 magnet:?xt=urn:btih:FEA77EE3E2DDCFCA1795D4F712EB9B4938EF8C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4EACECF901920B88E88589321591804B2E07821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

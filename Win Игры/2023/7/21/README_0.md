@@ -19,8 +19,7 @@ Absolute Drift – гоночный симулятор с видом сверх�
 ```bash
 magnet:?xt=urn:btih:9AE021446A89BC488CA9507EC6CE4BDF95CC67D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ My Friendly Neighborhood погружает юзеров на роль прос�
 ```bash
 magnet:?xt=urn:btih:5E0272898E1123EF97596A1A70F7AFF9F9696E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

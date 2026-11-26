@@ -22,8 +22,7 @@ Changing Yesterday - Alive (2016) [MP3|320 Kbps] <Alternative Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5F656F3BAF2160A92B37D11C85E27D846CFC4800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Crazy N' Sane - This Mess (2016) EP [MP3|320 Kbps] <Nu Metal, Rapcore>
 ```bash
 magnet:?xt=urn:btih:EEDBEF5659F2B452381CD642EF0A0D5808846AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dee Snider - We Are The Ones (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Met
 ```bash
 magnet:?xt=urn:btih:F3494A180CC03176E3573705AA5F62FB517F46A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Rock Idols (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:3AB41D03E69C83065CD9BF05AFD60A8CB0247296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Electric Light Orchestra - The Gold Collection (1996) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:0C55A4EB2FCF6408C58E691763655C894F4F20A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Black Sabbath - Best Ballads (1996) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:15A2D2D12BD1888DB5D2BC4249ACCB01A4DF2765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:60E4FE38DF54E6EBB1EFC7020B8342407401840C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

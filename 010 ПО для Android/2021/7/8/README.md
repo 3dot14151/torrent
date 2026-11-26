@@ -19,8 +19,7 @@ F-Stop Gallery - Обзор, организация и защита пароле
 ```bash
 magnet:?xt=urn:btih:A94528C5D260BA2DC936B7D81541F70EADD2E01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kuji Cam - это необычная камера с винтажными эфф
 ```bash
 magnet:?xt=urn:btih:1B22AA4BB2533873F1423A9AE28D51A1BB46FA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Power Shade: Notification Bar Changer Manager - ещё один из функц�
 ```bash
 magnet:?xt=urn:btih:FAF78F9F079BE382A2763F30C42FABC625523272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

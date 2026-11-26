@@ -22,8 +22,7 @@ A3 Seguidilla: Pres Des Rampart De Seville(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:B5B8E051941F5B10140DEC7251090EEEC3D4E70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 The Lemon Pipers – Jelly Jungle(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:37DFED17E6073EB62A7E8FC3819F09C9FDF099FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Godsmack — американская рок-группа, образованн�
 ```bash
 magnet:?xt=urn:btih:530EACE44110B1C828F8491AE2D00E902917651B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Oasis — британская рок-группа. Одна из самых в�
 ```bash
 magnet:?xt=urn:btih:2CA0CDB3EAFB95DAB16F84DC6E0006B623C1BEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Evergrey — шведская прогрессив-метал-группа, со
 ```bash
 magnet:?xt=urn:btih:4048EDFED7983F3696888FFFD7F38C4842B70DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

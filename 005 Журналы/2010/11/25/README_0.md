@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:1C4A4C7DB2C5F555C6F6D13AC4112A020BDB4CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF85698A3D92A4B6F386D34A155FE2F10AE00CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Alice Starmore | Aran Knitting [1997] [DJVU]
 ```bash
 magnet:?xt=urn:btih:560B4074A4E3F46E035DA34D9EC613829E13DBA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2C43697BB520511B23701259654693B614EA8B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Photoshop Creative предлагает пользователям Photoshop п�
 ```bash
 magnet:?xt=urn:btih:FD1D6DD62922F8C0055117B8CAA19331B82C17AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

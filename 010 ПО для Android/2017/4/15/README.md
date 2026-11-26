@@ -22,8 +22,7 @@ RealVisor / Детектор движения v5apr2017 Full [Ru/En] - Виде�
 ```bash
 magnet:?xt=urn:btih:E28E9D0134EE8324050422C34F76714F52FC40BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

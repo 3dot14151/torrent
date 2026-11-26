@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E62856D68DA27048F82D32A68599BD9D4AB8CCFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A.B. Сычев | Web-технологии (2016) [PDF]
 ```bash
 magnet:?xt=urn:btih:398000CE5A94339796587A189A764854E61A2047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

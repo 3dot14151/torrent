@@ -22,8 +22,7 @@ Petsch Moser - Johnny (2010) [FLAC|Lossless|tracks + .cue] <Indie>
 ```bash
 magnet:?xt=urn:btih:A58127F1AA5712137212CD9B74B544876AD8BE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Machiavel - Colours (2013) [FLAC|Lossless|image + .cue] <Eсlectic Prog>
 ```bash
 magnet:?xt=urn:btih:33FDE8385D2093E5756B93A8485C453ADA09D043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Erin Evermore - Erin Forever …And Ever …And Ever (1998) Reissue, 1999, King 
 ```bash
 magnet:?xt=urn:btih:FAB64672439FE277748EF0B18F935F79EE689A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

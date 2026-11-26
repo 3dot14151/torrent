@@ -23,8 +23,7 @@ openSUSE 13.1 Live (Gnome, KDE, NET, Rescue) [i686, x86-64] 4xDVD+4xCD
 ```bash
 magnet:?xt=urn:btih:CF3311EA21BA53B9D501651156524C407BE6BAA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

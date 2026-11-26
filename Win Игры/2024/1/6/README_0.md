@@ -19,8 +19,7 @@ Tonight We Riot (2020) [Ru/Multi] (pcrelease.c) License GOG
 ```bash
 magnet:?xt=urn:btih:D9F4533402EE55340FE52E643A9E43E0183DBC97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gray Zone (2022) [Ru/Multi] (1.12) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:23388584C03FF6B2B802CCA05A5ABA9D84E5A93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tools Up! (2024) [Ru/Multi] (1.06/dlc) License GOG [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:F403DA0DDE2B778B61E3883EE9B52CC4A92E8E4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:2F117431B9B2682F99E6B18A14C61793ECB2842E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Repurpose (2023) [En] (2.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:35BD9FA7A5CEB7D4157E1A39F3AEC5B933A818BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Livestream 2: Escape from Togaezuka Happy Place - очередная часть 
 ```bash
 magnet:?xt=urn:btih:42A91865A1F22F3F93FFD92472C81320E3D074A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ballance - трехмерная головоломка с сильным упо�
 ```bash
 magnet:?xt=urn:btih:DE4FC3DFFDE4B7E17A5D91A73B00FA77B0FC70EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ London Detective Mysteria - визуальная новелла в аниме-с
 ```bash
 magnet:?xt=urn:btih:7DB44E315363A49B6D227BAFF5CC3EEEC28658E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark Tales 14: Edgar Allan Poe's. The Oval Portrait  / Тёмные Истори
 ```bash
 magnet:?xt=urn:btih:03E5BFC3B5E38C199EE73363E74717DD11530691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Train Sim World — железнодорожный симулятор от бр�
 ```bash
 magnet:?xt=urn:btih:FDD2B3B6C2BC5965E8F70AEFE1B301E0FF4C97F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

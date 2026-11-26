@@ -19,8 +19,7 @@ XnRetro — небольшое и удобное Qt графическое пр�
 ```bash
 magnet:?xt=urn:btih:DD343C47F7D9B10810A849006304D1D88F4BE22F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brackets — Open Source IDE для веб-разработки от AdobeЯзы
 ```bash
 magnet:?xt=urn:btih:7724CBBBB2422EFCA5BF5007D51BBC44260090BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

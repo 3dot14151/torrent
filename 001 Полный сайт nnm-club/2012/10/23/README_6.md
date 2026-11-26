@@ -27,8 +27,7 @@ Spec8_ru | Базовый и продвинутый курсы  [2011] PCRec
 ```bash
 magnet:?xt=urn:btih:1DC3DEF064347F2FDC67C143DED6E0A9F2028810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98D031D34E7524C3F0E6649F622FDCC73ACD0E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Might & Magic: Heroes VI. Gold Edition / Герои Меча и Магии 6. З
 ```bash
 magnet:?xt=urn:btih:222B196CF345807211657C8A8520C9AF441B84E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Windows 8 Professional VL x86 Optim 1.2 [Русский]
 ```bash
 magnet:?xt=urn:btih:3DB3A3362FECE8BE4B08A9B9461EB383948A3573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Kaspersky Internet Security — это оптимальное решение д�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

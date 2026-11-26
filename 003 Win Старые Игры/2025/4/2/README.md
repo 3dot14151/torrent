@@ -19,8 +19,7 @@ Heroes of Might and Magic IV (4) (2004) [Ru/En] (3.0/dlc) Repack Wanterlude [Com
 ```bash
 magnet:?xt=urn:btih:8275AF1DAF5B0CC3845B2B089DD48835036533CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

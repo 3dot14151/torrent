@@ -26,8 +26,7 @@ Ugetsu - Live In Athens (1997) [FLAC|Lossless]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:F94CBB279469DF05B503AB4C250890870F580AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Unified Jazz Ensemble - New Slant (1997) [FLAC|Lossless]<Post-Bop, Modern Creati
 ```bash
 magnet:?xt=urn:btih:C2054E8349DE0DAB2269A4F8799635F55A745AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Svffer - Lies We Live (2014) [MP3|256 кб/с]<Screamo, Powerviolence, Female Vo
 ```bash
 magnet:?xt=urn:btih:575ABEFE25A862B04A1437C063F2A9ED932C0D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ My Heart To Fear - Algorithm (2013) [MP3|320 кб/с]<Melodic Metalcore, Post-Ha
 ```bash
 magnet:?xt=urn:btih:43E1D5886CA90E7EE3850CEE15953E63016B53B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:251048150AEC4B981A0D0DB94137FD0707187A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Invisor основан на хорошо известной библиотеке
 ```bash
 magnet:?xt=urn:btih:BE35EA0037DD8ECEAA621533F5D14F6A8F288E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ VA - Vadim Exler's Mashups [House] (2014) [MP3|320 кб/с]<Progressive House, E
 ```bash
 magnet:?xt=urn:btih:2AB6F5B443C4EF6B40FCF2A4FC9AC45A91E593A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ From The Cradle To The Rave - Tales From The Raveyard (2012) Vol 1,2 [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:F3ACB68ACAC47B21848DCA4BF486EBE761AE8B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ VA - House Music Pause (Spring Issue) (2014) [MP3|320 кб/с]<House, Deep House
 ```bash
 magnet:?xt=urn:btih:641F4579DEBA9308CE0AE6F8641940A1DF1C5CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1256D6BA98C16754651CC6E8E327D9E89192290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ VA - Miami Lounge Summer (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:38A886CC1EACDC26D14C1750876446735286048A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ Jimi Barbiani Band - Blue Slide (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:CF7944C65CB2D2F5B156C0D1D9D5F8E2E1200778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ Mirzadeh - Desired Mythic Pride (2014) [MP3|320 кб/с]<Dark/Melodic/Sympho/Bla
 ```bash
 magnet:?xt=urn:btih:98F1CBA576BB4406945B8EB3F8DB1B676A44EFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +453,7 @@ NOFX - Stoke Extinguisher (2013) EP [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:0B82A4C81C8DDDF1D32A9FF286163C46FDE15858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAA4946AD47E72905D224E9DD46248615026A56B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ DVDVideoSoft является независимым разработчиком 
 ```bash
 magnet:?xt=urn:btih:52DDEED28A94D5CEB73F3C8A90B6D38920BEAC8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ Gerard Manset (также известный как Manset; родился 21 а
 ```bash
 magnet:?xt=urn:btih:DB7E9C49C155BDC41F41D59D41A8D41F257F7315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ Skylens - система, которая позволит пилоту любо�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ Product Key Explorer - программа позволяет расшифров�
 ```bash
 magnet:?xt=urn:btih:83C8C27D9B5ADB1E20961354496925F790A26494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39B6732BE982C87F1B9FE6485FC2709828C28B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +639,7 @@ Bruno Felix & Voodoo Kings - Nothing But The Blues (2014) [MP3|320 кб/с]<Mode
 ```bash
 magnet:?xt=urn:btih:0AF0127801307E23957B9B2CA67910C72742BB58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ Mad Caddies - Dirty Rice (2014) [MP3|320 кб/с]<Ska, Punk>
 ```bash
 magnet:?xt=urn:btih:02DACB136EBACCF62547AC309422372F10531142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ Neal Schon - So U (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:31A19BE0B8411E0721D7448BE5DF4BD80490FF80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +740,7 @@ Motionless In White - 2 Альбома (2012, 2013) [MP3|320 кб/с]<Metalcore,
 ```bash
 magnet:?xt=urn:btih:F1F8BB50764B65F1732DECFE21F644E58A7693E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -799,8 +774,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B07C58A7FB9D441CCC7D08416405B6B7CFAD30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

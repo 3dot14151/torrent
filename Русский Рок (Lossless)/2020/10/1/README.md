@@ -22,8 +22,7 @@ Cyanide Grenade - 2 CD: Quintessence of Death / Kind Of Virus (2017-2020) [FLAC|
 ```bash
 magnet:?xt=urn:btih:9F069EE49BFD2E81C4083B32E80AD8773B7AB810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

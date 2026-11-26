@@ -19,8 +19,7 @@ Dub Premium музыкальный плеер - потрясающий прои�
 ```bash
 magnet:?xt=urn:btih:ABE712EEA01488860028C7DEAFB49BCA8CB6B831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

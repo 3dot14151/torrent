@@ -28,8 +28,7 @@ Raventale - Memoires (2013) [MP3|320 кб/с]<Atmospheric Black Metal, Doom Meta
 ```bash
 magnet:?xt=urn:btih:4DC23DD46D4E954CC732FBDE2715F4B59D6EFF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Robin Beck - Livin' On A Dream (2007) [APE|Lossless]<Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C8CB5A5DE3390CDB5D764DFFE6AF73A25904EE0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Yiannis Glezos - The Roses Of Pieria: Instrumental Music Inspired By Ancient Gre
 ```bash
 magnet:?xt=urn:btih:D3D1BB3565F77D6CA4826E46D3D7C64E3567C9B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ The Strypes - Snapshot (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:413065259C37CB5808303BC7078D0020ABFC921C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Black Water Rising - Pissed And Driven (2013) [FLAC|Lossless]<Hard Rock, Stoner 
 ```bash
 magnet:?xt=urn:btih:0D585821E504D7E0148D0EA8EC4AEABA71E39026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

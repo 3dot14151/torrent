@@ -20,8 +20,7 @@ Frozen Land - пауэр-метал группа из Финляндии, сфо
 ```bash
 magnet:?xt=urn:btih:E18CC09271746C5776160CA7638CBF33E01D2B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ The Winery Dogs — американская хард-рок-супергруп�
 ```bash
 magnet:?xt=urn:btih:C4FB08828BE13BFB36DA2B8173639076EBF14096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

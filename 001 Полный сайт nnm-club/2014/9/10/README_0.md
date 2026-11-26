@@ -27,8 +27,7 @@ Slow Magic - How To Run Away (2014) LP [MP3|320 кб/с]<FutureBass, Trap, Pop, 
 ```bash
 magnet:?xt=urn:btih:6D0CC306267790583EC2CB0BF09EDDA1E292FC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D3FCB28A43D93057508B484B45E14B1DD29C97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11426A41B78CCE91D780610843476DFE74A6DAD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Phil Collins - No Jacket Required (1985) [MP3|320 кб/с]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:DA814533DC144FA291CA72D20FFE1ADFC7979EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Dominia - Theophania (2014) [MP3|320 кб/с]<Gothic / Dark Metal>
 ```bash
 magnet:?xt=urn:btih:F0B1311E9298F02205F00428A3FEE9CADC9EF8B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ Tabata - Warzone (2014) EP [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:E784518BC49DFB4F61A6BB92AD45A037CD1B4D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Forever Surf - Storm Warning! (2014) [MP3|320 кб/с]<Instrumental Surf>
 ```bash
 magnet:?xt=urn:btih:4528CBBC93E038969BC5FBAF8946D95C2D6A82D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE85A79BCEE1C7071E88B4E8EEED47582C3F424A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40AB5A233921CF244D1376A18A61061CECDA8261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:692D668FA18A61C743362F29B59F506A5A6ECA26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ Sinuous Productions - Throwbacks (2010) [FLAC|Lossless|WEB-DL]<Jazz Hop>
 ```bash
 magnet:?xt=urn:btih:AB38BFB185E042E1CECA623FE56B4053752E36AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ Sinuous Productions - The Jazz Council (2006) [FLAC|Lossless]<Jazz Hop>
 ```bash
 magnet:?xt=urn:btih:D603B222E498B89E3BEF505F85C5AC0EFC63C1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ VA - Peanut Butter Wolf Presents - Stones Throw Ten Year (2006) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:A5EA891BB5856A16BB9EE8A5014AF7F217826303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2DF1BC70F7B7FADB87539AAE7048813E32FA89B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ Phil Collins - Testify (2002) [MP3|320 кб/с]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:E960C4EB19A581067DEE02941464CA9BB030A6EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ Emarosa  - 4 Альбома (2007-2014) [FLAC|Lossless]<Alt. Rock | Post-Hardcor
 ```bash
 magnet:?xt=urn:btih:D1A78579BDFAA32B08057152B70B6A18C92ABDAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ Trilok Gurtu - Kathak (1998) [FLAC|Lossless]<Ethno-Jazz>
 ```bash
 magnet:?xt=urn:btih:1CF1CC8176619910C02F4E88CCA94B1B3CDF109A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F42BA7739ED1BFB7C5BFED62CF5B089B3321311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B53DA29FFDC04A7E5E24419EF65CC6EF172DD69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3573FCB2FAF16F0F911DDE33C6B945FE627D550C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88A6023736FD675EA9E2E6394E90FB36C8AB61B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +694,7 @@ Marillion - Clutching At Straws (1987) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:54935E684096F00C65AE71EA46CE9C7A89D17078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ Akiko Grace - 2 альбома (2002-2008) [FLAC|Lossless]<Smooth Jazz, Jazz Ins
 ```bash
 magnet:?xt=urn:btih:9A9CEE3FE4796A7602F39705EF9A777CAF6A5C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ Bop - Punk's Not Dead (2014) [FLAC|Lossless] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:176EF221BE692754EEC996EEDFDB23C35B18EC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

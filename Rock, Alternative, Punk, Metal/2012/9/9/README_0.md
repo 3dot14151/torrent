@@ -28,8 +28,7 @@ Cannon - Burning Love (2012) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:62130D89F2CAFE2619EDEEAA9684831168211365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Ian Gillan - Chercazoo & Other Stories (1972) [MP3|192 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:383A30560EE6D97E3EA4B1E766EED0BB14284FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Kaipa - Vittjar (2012) [FLAC|Lossless]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ NOFX - Self Entitled (2012) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:CF301A8534E4563BF39891AFFB5C9581EBD301EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ VA - Re-Machined. A Tribute To Deep Purple's Machine Head (2012) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:3752451426B2DC016CFB6AD389B4445BEA94F71F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Loverboy - 10 альбомов (1980-2012) [FLAC/APE|Lossless]<Hard Rock, AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Gotye - 7 релизов (2003-2012) [MP3|320 кб/с]<Indie/Electronic/Downtemp
 ```bash
 magnet:?xt=urn:btih:066D6C33D848DF2322818794E3FE8AB701C8753D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ ZZ Top - La Futura (2012) [FLAC|Lossless]<Southern Rock, Hard Rock, Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

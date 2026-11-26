@@ -18,8 +18,7 @@ Revo Uninstaller Pro 3.2.0 RePack (& portable) by KpoJIuK  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:08FF45ACA80F3C494BD5F034B4ED3A4E2FC74BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ fripSide - crossroads (2017) [FLAC|Lossless|WEB-24-96|hi-res tracks] <OP+Theme S
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Battlefield 3 (2011) [Ru] (1.6.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:884C84B881ABBA4B3316BD5B2BBE5306D41BECF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E5B773F87C99CEFF4E381E7E951A95A59E6DAD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

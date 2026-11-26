@@ -22,8 +22,7 @@ Lumen - Всегда 17, всегда война (2015) 2CD Live [FLAC|image+.cu
 ```bash
 magnet:?xt=urn:btih:A22F4DD0164278F9BD408903BA90A7AE5DB45219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

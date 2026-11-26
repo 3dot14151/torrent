@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:BF9DA15D2324767213B92FF6269BD93681A794DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5AED77919B7AE040FFBB388843071A77AEB2F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Strandvaskeren / Уборщик пляжа — это скандинавское
 ```bash
 magnet:?xt=urn:btih:52F46CE20C67FA61D00DC438C70B0407781D4E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

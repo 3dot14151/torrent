@@ -23,8 +23,7 @@ Chavire - Demo (2015) [MP3|320 кб/с]<Screamo, Emotional Hardcore>
 ```bash
 magnet:?xt=urn:btih:BD86154F81549961EAA640F9F04D62F83B986F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Fiesta Minor - Time Spent Breathing (2013) [MP3|320 кб/с]<Screamo, Emotional 
 ```bash
 magnet:?xt=urn:btih:9B1F21201DF257BB51B84EA27AAC20D87DB764D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Agael - Trost (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Post-Black Metal
 ```bash
 magnet:?xt=urn:btih:F11AC78A8500D1C83DDDCFF7788E5623FA0B8BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ La flag - Spargelzeit (2014) [MP3|320 кб/с]<Post Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:291D8C20AA975B8476274C85E2BFA22C9BDFA774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Vala Cupp - One Thing on My Mind (1990) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:74B6B7B6ED50028796032300C3383B42B67EE242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:463A7A7297DCF10D1F01A1AB4F80B1C8247E6028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Red Butler - Freedom Bound (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:61A8DAE93439A44C38A3817741D3C2BA71732A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FAF336673B1DE592308DFA92A990931CB786040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Heather Pierson - Motherless Child (2014) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:D8759F68E4F495F664DF061E0DE0A75E1049B354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC77E281104BC6BDB0E5C0B1EF84FA7C02BD5607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFFC3111796AE05AD98A9B7E6201EA92F214F4A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ Van Wolfen - Wenn der Mond weint (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:FD6A95EAF89136D883D13B647E669FF2193E49E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ The Art Farmer Quartet - Interaction & Sing Me Softly Of The Blues (1999) [FLAC|
 ```bash
 magnet:?xt=urn:btih:8FE110C2630D7FDEE668940E4123F2089FDA0082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17AFC1993F08C37D86AB38DCA604B45F7C50D4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ Ohrenfeindt - Auf die Fresse Ist Umsonst (2013) [MP3|~245 кб/с (V0)]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:0902C5A16AFA7E3AF5EA8A7FF4EEE2009F543B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ VA - Rewind Reload (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:D0F1DF7B70B5049D9F1565653140CF40B7421910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5208CBA563E0CA7043E4E519777D23B447BC7BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ Anthony Mea - Border (2014) [FLAC|Lossless|WEB-DL]<Electronic, Deep House, Downt
 ```bash
 magnet:?xt=urn:btih:77A0B4BB9A96808C7AA81CCA2301AB65CDD6C469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ Lights & Motion - Chronicle (2015) [MP3|320 кб/с]<Post Rock, Ambient>
 ```bash
 magnet:?xt=urn:btih:16093DF5D6748CC170C440DE1377BD7005542744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3EE1EE56A1D96EDF9D999BA95BEE0E9529934A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02B65BC934BF258EEFD4A2AEF90EDDF8CA0B942A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB67D2E36AE793D391518F8D48CC5E0BE6F74D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5459F83FC85C456372A924A2BBA8486A8F2C7CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D19EF290EF94449CA14EA776CDCFEAE2A2F429E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:FD3EAF27C8E1909EF3508A2257C17279F607A2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ Yngwie J. Malmsteen - Spellbound: Live in Tampa (2014) 2CD, Live, Japanese Editi
 ```bash
 magnet:?xt=urn:btih:8F329C1200F9C251E9B4D65C3B759ADBA1913E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

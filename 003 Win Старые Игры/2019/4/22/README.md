@@ -19,8 +19,7 @@ Prince of Persia: The Sands of Time / Принц Персии: Пески вре
 ```bash
 magnet:?xt=urn:btih:77FC28D539C83F694F59903A7534FF6B6A033616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

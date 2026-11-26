@@ -19,8 +19,7 @@ EMCO Network Software Scanner - инструмент для выполнения
 ```bash
 magnet:?xt=urn:btih:729748C815530314D0D4FA060E8FC86B0376A976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ClipGrab - программа для скачивания и конвертир�
 ```bash
 magnet:?xt=urn:btih:A2DD3F84D37E9AF610E77B67CE476BD2BC481AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

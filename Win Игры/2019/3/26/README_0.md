@@ -19,8 +19,7 @@ Haunted Legends 12: Monstrous Alchemy (2017) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:DE47AF0FCDCF1A198409D8BE25891E2D52CA06FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Immortal Love 4: Black Lotus (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:A205F70D5193C8DAEB4859C1D06E320642CA11D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack xatab [Epi
 ```bash
 magnet:?xt=urn:btih:1DFCE356066A6BEDE19CC0C8CB2B513DE3657CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

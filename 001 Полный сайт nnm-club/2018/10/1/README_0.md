@@ -21,8 +21,7 @@ Deform - Мрачное Видение (2018) Maxi-Single [MP3|320 Kbps] <Altern
 ```bash
 magnet:?xt=urn:btih:F25B63A82AB09F7F4D13503AB4E0844B9AAFFC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ RadioMaximus 2.23.3 RePack & Portable by 9649 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8EC7198C554FB5DD714A9A3656F0812ED1AE3A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Wise JetSearch 3.15.150 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:69EE4391AA45FEB41F37849B6C2A71E87BD465AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCE606D5B1FC909B375BDC67EC48DC5B1B19E1DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ VA - Ori Uplift & W!SS - Uplifting Only 294 (2018) [MP3|320 Kbps] <Trance,Uplift
 ```bash
 magnet:?xt=urn:btih:512EB1D6D94B139FF0D760ED3E857BEAD0A8938A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ eMail Address Extractor - приложение помогает извлекат
 ```bash
 magnet:?xt=urn:btih:322E2F53CD24655448496BBCBB83436835DA7321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ VA - Future Sound Of Egypt 550 - A World Beyond (Mixed by Aly & Fila & John 00 F
 ```bash
 magnet:?xt=urn:btih:BBC7801BF2E4E7EB8E58349B1DEADD353BD72195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1B8EAC1482354E80C84217E6AFE3F9D034EAD59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCFE3810296912655CEB3DE59B90CE161460569E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Movavi Screen Recorder 5.4.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8370DCBD8EABEF79BC1FBD86AB270B2C401CD926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FA8C5576859BF2D5B9DBEC33619CBF374869BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ London Boys - The Twelve Commanments Of Dance (1989) [MP3|320 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:35E156CE0EAF1999DFA3F499A11008B2C8562C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ VA - Mega Power Lifting 70S Hits Workout Compilation (2018) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:CC4FB2F0642428225142A6D4BDE387E122D7E3C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ Rise To Fall - Into Zero (2018) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ VA - Essential Body Building Rock Hits Workout Compilation (2018) [FLAC|Lossless
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ VA - Blue Floor: Techno Electronic Mix (2018) [MP3|320 Kbps] <Techno, Electronic
 ```bash
 magnet:?xt=urn:btih:B97D344AF7B7E70B2C6AC000F860F574CE3052BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1421A29852448B07E5A3CF57904540C43E210866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ PVF - Профессиональный видео формат.
 ```bash
 magnet:?xt=urn:btih:727D92529E6C7447301F1766BFE2EEE821A3CFD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ Desireless - Best Of (2003) Compilation [MP3|320 Kbps] <Pop, Synth-pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ LIve Home 3D позволяет записывать видео интерьер
 ```bash
 magnet:?xt=urn:btih:96FB3E94CD550AA2A4CD55F10E433C87F85209BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ cDock 1.2 [En]
 ```bash
 magnet:?xt=urn:btih:E0939FC92306FAB07DCAEE3FE2739B8136C4AC41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:9C51EC0A272E279929D9CE3707F35F53009FCD3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ USBclean 3.3.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:10025A3E673C857081E0498B51851E3692C4C6E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ Agnetha & Frida - The Voice of ABBA (1994) Compilation [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:270ACCFED197CB71EEC011922DEBFA04F30AE940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

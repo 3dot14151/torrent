@@ -22,8 +22,7 @@ Kauan - музыкальный проект из Челябинска. Прое�
 ```bash
 magnet:?xt=urn:btih:5C8F95D58EB8A3939D5132293A452C5A69B7B2E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

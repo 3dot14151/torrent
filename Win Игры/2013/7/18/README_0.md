@@ -19,8 +19,7 @@ Mystery Trackers 5: Silent Hollow Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2A70F9ABE137CD32C2470BC17E6C1E7E46FB7609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Medieval Defenders / Средневековая защита (2013) [Ru] RePack 
 ```bash
 magnet:?xt=urn:btih:2EBED5AFEBD524918664FC9E4E5799E8744AB3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A Walk in the Dark - двухмерный платформер. Главным �
 ```bash
 magnet:?xt=urn:btih:71B21D5100FF8188CCCA9A020F8AB42A31FF4E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

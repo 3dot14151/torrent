@@ -19,8 +19,7 @@ Uncom OS — дистрибутив Linux c открытым исходным к
 ```bash
 magnet:?xt=urn:btih:623A2E753214408318B9A92B724E60E76D2867D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WinuxOS — это супер дистрибутив Linux для персона
 ```bash
 magnet:?xt=urn:btih:4E8C7915FE16CE62D5677BDD735CC64F27D259B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Green Linux - это защищённая от санкций операцион
 ```bash
 magnet:?xt=urn:btih:1DDF9F41F9FF704A7F1C0536273851FE0B569E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

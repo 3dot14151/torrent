@@ -22,8 +22,7 @@ Hidden Intent - Walking Through Hell (2013) Not On Label [MP3|320 Kbps] <Metal, 
 ```bash
 magnet:?xt=urn:btih:2FE223FD824CED387729EF71867CF6F7CBCD22C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Simple Minds - Walk Between Worlds (2018) [MP3|320 Kbps] <Pop Rock, New Wave>
 ```bash
 magnet:?xt=urn:btih:FBE68BA362B5AA2981213ACAD5293F4DFAB2A93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ FM - Atomic Generation (2018) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A9509D23C7837677553FFF1902C23266635915AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Huey Lewis and the News (чит. Хьюи Льюис энд зе Ньюз) - а�
 ```bash
 magnet:?xt=urn:btih:E860ECFD2A4D769D8BE02696416C3FEC5B421552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Lost - The Lost (1991) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5F657C852B97C0D9E1AC2CE22DF5D573C58DF1F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

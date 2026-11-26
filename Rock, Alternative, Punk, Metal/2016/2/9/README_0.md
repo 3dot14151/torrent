@@ -22,8 +22,7 @@ The Veer Union - Decade (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 ```bash
 magnet:?xt=urn:btih:D5CD6EF134F360BB44F48076EF655C7C00959AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - 15 Песен Для Вашей Девушки (2004) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:DAB2976DB7F78F9D78E7B706C6DB403765776550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Roy Orbison - Greatest Hits (1997) Compilation, Unofficial Release [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:570A607C6502BEBB42BB211D3AAF7F0723BB133B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Pigs and Pyramids (An All Star Lineup Performing the Songs of Pink Floyd) (
 ```bash
 magnet:?xt=urn:btih:5EEB29222DCEA57BBE176D9E3648658AAA914DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:A241EB8A3024F023EAA0ED7A6DBE81EF0B4D5EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

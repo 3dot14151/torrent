@@ -21,8 +21,7 @@ Cartesian Ghost - Lux Arcana (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progres
 ```bash
 magnet:?xt=urn:btih:4BE2101A1D9A8FB98C40FEC27DE570EE3418888F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2F09A93DB47003D7075591AE729883C88083E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Finder Windows — это плавающая панель, которая дае
 ```bash
 magnet:?xt=urn:btih:4904AEBAC7F092205DB67B1749105B559C6BE712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:974392928C81067A7C070D76E8B95C328F9E8ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC6EDDBD80D7A6AAB5F57B13FD62B3A468B74751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Aaron Diehl & The Knights - Zodiac Suite (2023) Mack Avenue [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:59CB367BDF5BB141E337F906960F9FFD721259C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Astrix - Live @ Alternative Reality Set, Universo Paralello, Brazil (2024-01-05)
 ```bash
 magnet:?xt=urn:btih:258278113A6D959883AC3F1FBBE9C2297B593AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Wing Pro - это интегрированная среда разработки
 ```bash
 magnet:?xt=urn:btih:9C586AE7EDDB7547C594C3D76D614D5DEA5699D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC21A780B940471BFFDEACB2329B382B26F62765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ VA - TOP 10 Trance 2023 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:19930663C7CF348013FED2F8CF01275B68757B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Cartesian Ghost - Lux Arcana (2023) [MP3|320 Kbps] <Heavy Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:97CD449575952B2BF04F65430FC1DF235234B886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Rosalba Piccinni - Rosa che s'inchina (2024) [MP3|320 Kbps] <Jazz, Pop>
 ```bash
 magnet:?xt=urn:btih:5CA04F3389B42AE8705531CA1B2B1C726D1A4436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ V.A. - Chillout Covers Collection Vol.6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu
 ```bash
 magnet:?xt=urn:btih:2CA484BE2120150FD85BE753D949BA108782676D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89A7D0981DF7A21430610EC54CC52258BD03B620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Myriam Hernandez - Tauro (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
 ```bash
 magnet:?xt=urn:btih:F68DC6E452BBA56D0E0D083DC547D49C505FFC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Witchcraft - Outside Inn (1979) LP [MP3|320 Kbps] <Disco, Funk / Soul>
 ```bash
 magnet:?xt=urn:btih:69FADEA13898B0B0DF5347417262DAD1058549F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ Cadacross - So pale is the Light (2001) Reissued 2005 [APE|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:D0873CC405F3ACF1F1568D60DA84FBF9D2804D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Sam Millar - More Cheese Please (2023) [FLAC|Lossless|image + .cue] <Arena Rock,
 ```bash
 magnet:?xt=urn:btih:DFA6535559686049D56C77C9A030C38240D5609E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Al Harlow - Now! (2023) [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B7B835098CFC7AD2B27FA4E95F70E1EBB4D1015E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ Death Level - The Era of Religion's Demise (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:DBBDEC678E55CFEE7C289C1DA56E1F1FE0553A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ Marked 2 — универсальный превью-инструмент для
 ```bash
 magnet:?xt=urn:btih:8F2DE3E15BF17659A86446C83DBE75C53E690272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ OmniReader - полифункциональное приложение для ч
 ```bash
 magnet:?xt=urn:btih:5689FA6EB7F3FBAFF4DC29CDFCB0EEB236D65F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ DVD-Cloner - это небольшая утилита, при помощи ко�
 ```bash
 magnet:?xt=urn:btih:EE79BAC22BDCA156B193DF19056C77A71656DDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ Square One - Supersonic (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Ro
 ```bash
 magnet:?xt=urn:btih:5ABD80068D9F57B7755022B0E9E4D61F600BA787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ Balint Gyemant (Bálint Gyémánt) - Vortex Of Silence (2024) [FLAC 24/48|Lossle
 ```bash
 magnet:?xt=urn:btih:7ACAA1FBE490977F762C49B8715273094F3E970A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ Avenger - Steel On Steel: The Complete Avenger Recordings (2024) 3CD [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:500D4CBB9276F923BC008DACF53D513D89A4578D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

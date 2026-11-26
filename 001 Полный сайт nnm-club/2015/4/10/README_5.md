@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FABDB6620A4A42FB51CE2B2AEEB3BE9AB7C8163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A80ADA7F8F1C63634243882D6200CA37E7A38453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:0DD7135DE56EBFFD8383EBE7FF453E4B54372690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD91D4A0CA976D638AA5D49D52DE97FC84ED26E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7CAB403089466C87EE960C6C80F3DC532EC7EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Fullmetal Alchemist The Movie: Conqueror of Shamballa / Стальной Алх�
 ```bash
 magnet:?xt=urn:btih:6E29BDFDC0DD23C40C4F77E8680F5C0795148FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ I am Bread — это приключенческая игра, рассказы�
 ```bash
 magnet:?xt=urn:btih:0F59CF7CE1267341A2FE9188F022B055B8887D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ WinPE 8.1 Sergei Strelec (x86) 10.04.2015 [Ru]
 ```bash
 magnet:?xt=urn:btih:C8CCFCD28E432B79FE983C77544FE9C3F7845850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Tom Clancy's Splinter Cell Anthology (2003-2013) [Ru/En] Repack/Rip R.G. Catalys
 ```bash
 magnet:?xt=urn:btih:D0324E1A72D3DF0217F825D0E235E0E3A0E9E736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Dead Synchronicity: Tomorrow Comes Today (2015) [Ru/Multi] (1.0.6) Unofficial Fa
 ```bash
 magnet:?xt=urn:btih:57FC56972FA9E53AC942D59D818D99B0EB038877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Warhammer 40,000 Armageddon (2014) [En] (1.05\dlc) Repack Let'sPlay
 ```bash
 magnet:?xt=urn:btih:D150DBC19156625B815818A97743C08F2BD47694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ StarDrive 2 — это захватывающее и увлекательное 
 ```bash
 magnet:?xt=urn:btih:24920E659076A1245B3B93B3A1D69364C90CE955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ F.E.A.R. Anthology (2005-2011) [Ru/En] Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:628E2F1F28287D88D272080BD967AA6F63B18607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D29EA1D0C3DA21387D06408DFBF431559A03429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Age of Empires II HD Edition – переиздание стратегии 1999 
 ```bash
 magnet:?xt=urn:btih:AF2D8640E16E914BD6EF365F6057C372604568E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ WPI x86-x64 by OVGorskiy® 04.2015 1DVD (32/64 bit) [Ru]
 ```bash
 magnet:?xt=urn:btih:EDBA7AAB0A4ECAD4241BCDEF924A7E5EBA0121C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +475,7 @@ Shameless, основанный на одноименном британском
 ```bash
 magnet:?xt=urn:btih:B1EC19AFBBAE429E125F21EC4757601E8E245852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

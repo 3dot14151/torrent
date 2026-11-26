@@ -19,8 +19,7 @@ Echoes of the Past 5: The Kingdom of Despair (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:504F358A04675F86BCBCB7B88303BD0E7CE9E4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unmechanical (2012) [Ru/En] (1.2) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:D3C6AB0A89E949498271E65DD908D706CD4F9FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Worms™ Clan Wars - это самая большая и самая лучшая
 ```bash
 magnet:?xt=urn:btih:CC65ECCCBCE70B11D45AA4894C1A75E0FF6FCF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Worms™ Clan Wars - это самая большая и самая лучшая
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

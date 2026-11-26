@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C43696DCB59C237DC2384455650B3924966C7693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ SamDrivers 26.2 Expert [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A781689E87DE72A6A2C420156FE41FE3BE1090D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ SamDrivers 26.2 OLD - Сборник драйверов для Windows [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:B421A7175EE6449B633B329E1C8CCA10FCAF2A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Sector Unknown - это захватывающая изометрическая 
 ```bash
 magnet:?xt=urn:btih:81087023C5DAE4AFD6E9E82F47BAF99A84614221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CC306CE1FEA6B26571AD04A364B5C7F699D6AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

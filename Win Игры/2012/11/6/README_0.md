@@ -20,8 +20,7 @@ Gettysburg 1863 / Gettysburg: Civil War Battles [Ru/En] (P) 2003
 ```bash
 magnet:?xt=urn:btih:B287934A214A7983CBB3465D3051B3882719D50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Good Life - Игроки отправятся на вымышленный т
 ```bash
 magnet:?xt=urn:btih:6C9690AF36ED6CC3B881C17A04976FE6E39B037A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Limbo представляет собой платформер, в которо�
 ```bash
 magnet:?xt=urn:btih:37B53DE0A018E308CBC648B78F2F08F2F080948C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

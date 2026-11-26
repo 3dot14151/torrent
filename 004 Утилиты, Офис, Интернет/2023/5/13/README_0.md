@@ -21,8 +21,7 @@ Radmin VPN позволяет пользователям устанавлива�
 ```bash
 magnet:?xt=urn:btih:ED60F836D9FADE1EB160E8AF4547FDB6F9555D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ FilExile - простая в использовании утилита с отк
 ```bash
 magnet:?xt=urn:btih:88A5D529FD1815ED6647ED7271BF892A546ADB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

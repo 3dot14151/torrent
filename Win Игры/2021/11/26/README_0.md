@@ -19,8 +19,7 @@ Time Mysteries: Inheritance / Тайны времени: Наследие (2010)
 ```bash
 magnet:?xt=urn:btih:610EE93AD317D91A989D0B0FC2D3A4E41924CB71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Game of Life 2 (2020) [Multi] (567387/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:5279EA6FB339E8EF071E7389BC9A1CFB836CD045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

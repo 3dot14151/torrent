@@ -20,8 +20,7 @@ Teeter Pro - игра, в которой вам предстоит провес�
 ```bash
 magnet:?xt=urn:btih:E4B2E7FAF4C63B292825CA62AF11F35388B56766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

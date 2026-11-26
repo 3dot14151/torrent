@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:4F86302E45BF19D13C245E8B89C59B409BB041F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bon Jovi - Burning Bridges (2015) Japanese Edition [FLAC|(image+.cue)]<Hard Rock
 ```bash
 magnet:?xt=urn:btih:E579AF51F0625232C228C1F48643E0B746B582EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

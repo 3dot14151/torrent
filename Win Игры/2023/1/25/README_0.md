@@ -19,8 +19,7 @@ Hero Siege - это игра в жанре Hack 'n' Slash с элементам�
 ```bash
 magnet:?xt=urn:btih:7089CE68E0E6FFA84F9CD818514E2991D70611BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Project AURA - научно-фантастическая стратегия с �
 ```bash
 magnet:?xt=urn:btih:64A7B55C66A50328C7B32F8448F033EDEAAC7AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

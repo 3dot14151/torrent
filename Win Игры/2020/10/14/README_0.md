@@ -19,8 +19,7 @@ SolSuite Solitaire 2020 – высококачественная игра, ко�
 ```bash
 magnet:?xt=urn:btih:392277C2C9D5B3DE4E7ED983C9B0DBBE5335173A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ openSUSE 13.2 Beta [i586, i686, x86-64] 6xDVD
 ```bash
 magnet:?xt=urn:btih:FA15887DDFCB107F780CEA2D1A21A894A3E5F054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu 14.10 Utopic Unicorn Beta II [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:23E2C97FB64B8A7AE43976A0AE96D99FFC9C9FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

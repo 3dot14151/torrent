@@ -19,8 +19,7 @@ Meteor Blade / Воин Поднебесной [Ru] (L) 2004
 ```bash
 magnet:?xt=urn:btih:2A5A1A411DAB015EDC38BE826A9AAE73CAB9EC8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

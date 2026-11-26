@@ -21,8 +21,7 @@ Naruto Shippuden: Ultimate Ninja Storm 3 — это новые приключе�
 ```bash
 magnet:?xt=urn:btih:2AF1E4C789A9AC3C4341BA27FDF88F33C8FC8619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Night of the Rabbit рассказывает историю юноши по 
 ```bash
 magnet:?xt=urn:btih:1B18BEF099FB916853BC5DD98C236CB9B9869561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Brink (2011) [Ru/Multi] (1.0.23692.48133/dlc) License PROPHET
 ```bash
 magnet:?xt=urn:btih:273718AA0D0F2F3E9F01835B335C52AC4C1CEE96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Chaos Domain - это игра о том, как стрелять плохим �
 ```bash
 magnet:?xt=urn:btih:08B69C7BF15FD38F328B5EC7DC50C9E34DEBC101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Into the Dark - уникальный, и сумасшедший, как ад э�
 ```bash
 magnet:?xt=urn:btih:A618B7908178F28C873DD4D9C55CD0EFDF892B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

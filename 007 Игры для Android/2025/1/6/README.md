@@ -19,8 +19,7 @@ GRID™ Autosport v1.10RC10 [Ru]
 ```bash
 magnet:?xt=urn:btih:88750228AF64869CA8ECCB2B31953719348C016D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

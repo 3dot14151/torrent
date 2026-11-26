@@ -22,8 +22,7 @@ Obscurity - немецкая метал-группа из г. Фельберт, 
 ```bash
 magnet:?xt=urn:btih:0670E14020DC5CCE03A2FBC85427CB54E93D95EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

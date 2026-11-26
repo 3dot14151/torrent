@@ -19,8 +19,7 @@ Terrarium TV это Android-приложение, которое позволя�
 ```bash
 magnet:?xt=urn:btih:395C1F161975F58BF1194FDD4BAA92B6AE5242F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Case Files 21: The Harbinger (2020) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:A84E19AE7537BC8DAFE4D88A69AD828B9B807AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Frostpunk – игра от создателей This War of Mine. Это игр
 ```bash
 magnet:?xt=urn:btih:2722CAB6C90F48ADF96A92914F6E1ED3882CCDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Call to Arms – тактическая стратегия в реальном �
 ```bash
 magnet:?xt=urn:btih:D117A865FD4478BF6AB5B2285E3EFE8A3CBD0CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Peaky Blinders: Mastermind — головоломка-приключение п�
 ```bash
 magnet:?xt=urn:btih:C0397C9FF647A0379C98060DBC5AE5657D95FAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Ubuntu BusinessPack 16.04 (август 2019) [amd64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:4EAB7FD7EDE8CC4316A1AA9534CB1050E2829A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu BusinessPack 18.04 (август 2019) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:096AE5721483A00A57D3E708CB9FDBB624AF4030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

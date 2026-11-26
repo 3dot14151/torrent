@@ -22,8 +22,7 @@ A4. Highway For Fools (3:14)(   Читать дальше...   )Производ
 ```bash
 magnet:?xt=urn:btih:B04EFF9E43E8745087B9197BBE12DCA581528BA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

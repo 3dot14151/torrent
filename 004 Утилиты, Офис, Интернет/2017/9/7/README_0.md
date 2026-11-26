@@ -19,8 +19,7 @@ DocumentsRescue Pro - программа для восстановления д�
 ```bash
 magnet:?xt=urn:btih:BE7447F203B90B6C4253802849C40CF60BAF7A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Digital MediaRescue Professional - программа для восстанов�
 ```bash
 magnet:?xt=urn:btih:705B486F296703F7791072135B120744E3115941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Digital PhotoRescue Professional - программа для восстанов�
 ```bash
 magnet:?xt=urn:btih:FAB2B46D0835988BC7C6479B85AC4F27DF0F0392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

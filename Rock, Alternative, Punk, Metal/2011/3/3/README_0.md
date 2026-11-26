@@ -23,8 +23,7 @@ Evade - Параллельные миры (EP) (2011) [MP3|256 kbps]<Atmospheric
 ```bash
 magnet:?xt=urn:btih:882E151986D10A83789E5EAE9F3F92F26B18829B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Before The Dawn - Deathstar Rising (2011) [MP3|320 kbps]<MDM, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:67F1F8ABA42C30863AFE9F03B0EEDED684538771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ In Extremo - Sterneneisen (2011) [FLAC|Lossless]<Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Bill Haley And His Comets - Rock Around The Clock - 2004 (1955) [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Aerosmith - Gold (2005) 2CD [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

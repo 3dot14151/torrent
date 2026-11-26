@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CC06353D70668B4A53399F238C3D295D0C583E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - The Best Of DNBB Ever Vol 01 (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Tasha Taylor - Honey For The Biscuit (2016) [FLAC|Lossless|tracks + .cue] <Blues
 ```bash
 magnet:?xt=urn:btih:DE99721B68425F02A31A219B021FC5039CDA1E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ DMG Canvas - создание образов дисков (.dmg)
 ```bash
 magnet:?xt=urn:btih:1F7F5E2925814904FC50185221BC2E483F69B453
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ The El Caminos - Behind the Surf (2016) [MP3|320 Kbps] <60's Guitar's Instrument
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Michael Sweet - One Sided War (2016) [FLAC|Lossless|image + .cue] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:9D71C530A164C400F535186F4577B38C34094618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Dj Toner - Grandmaster Jazz Vol 1 (2016) [MP3|320 Kbps] <Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:4EEFE3100E57AC3F476D17A7FE7A9E6F5F5D46C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEF1E070B91B7ACC710526C657543D44E1ED76BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B9B473EE8B3FF919EA2D30521FF43FD6419C3C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Rawtekk - Reloaded Pt. 1 (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ LensFlare Studio - инструмент, который должен иметь 
 ```bash
 magnet:?xt=urn:btih:BD5AD258416E5A3ED5C22A10F1470553DAC970D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Seasick Steve - Sonic Soul Surfer (2015) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:D8B643BFA724A0F87E93223845BBB32137293EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AE9BCB4BC45A9CF884B0F5CBB0A8840BE4175C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ CollageIt умеет (   Читать дальше...   )Тип издания:
 ```bash
 magnet:?xt=urn:btih:84F51151232F75F93AFDA19936E3F77C4105F444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Charlie Mike Sierra - On The Moon (1977) LP [MP3|320 Kbps] <Electronic, Disco, A
 ```bash
 magnet:?xt=urn:btih:9AA23569D46FAAD9C2CD9AA1EB8D24AC5A787E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Humble Pie - Smokin' (1972) Reisue, 1990, A&M Records [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:A6DBBEE886363A2319ABC350BC8C9C76987A63F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Smokie - The World And Elsewhere (1995) [APE|Lossless|image + .cue] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:EC0B7F48D5BF7110F107E905ABC1EF659D1B1B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Super PhotoCut интерактивный инструмент для вырез
 ```bash
 magnet:?xt=urn:btih:7C9878605B9B6A26EB6F051815449B61EFC0265D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Way Out West - Set My Mind (Single) (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:069A1FF0DC15F791C242B8D7490A1FCA36348B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ DJ Nike Twist - TranceWave Radioshow 001-100 @ GTI Radio (2011-2014) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:DCA123118168C6327083FEE5110676B44DBA3979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ Jimi Hendrix - Live At Monterey Pop Festival (1992) [WavPack|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:8E488A2D84FD8B8A62414F77F7BA4C72A6CC6CB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6730F92D4207BB4C2E976BAE6EE56CB7424BB60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ Lady Gaga - Perfect Illusion (2016) Single [MP3|320 Kbps] <Pop, Electropop, Danc
 ```bash
 magnet:?xt=urn:btih:1D2781F2F84CEB3B5405EF443AFDA4E61D340108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6727FDFEBA8DA1C550E4E1B936AB712FE0382D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

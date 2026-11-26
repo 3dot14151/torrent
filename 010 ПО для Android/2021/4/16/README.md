@@ -21,8 +21,7 @@ Wim Hof Method v6.2.0 [En] - Making you strong, healthy & happy
 ```bash
 magnet:?xt=urn:btih:73A4DE22F3B71173EF25B51341CF0FA6199FB6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A5D923EC9F2ED08003BBDA07BF0C0102FB48A3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

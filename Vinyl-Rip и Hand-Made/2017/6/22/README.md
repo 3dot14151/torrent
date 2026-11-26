@@ -22,8 +22,7 @@ A4. Good Time Gals (3:32)(   Читать дальше...   )Производс�
 ```bash
 magnet:?xt=urn:btih:6F7DAB0A250EC65959BDBFB98AADF283AA69798F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

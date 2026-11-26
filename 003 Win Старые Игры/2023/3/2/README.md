@@ -19,8 +19,7 @@ Gary Grigsby's War in the West переносит пользователей н�
 ```bash
 magnet:?xt=urn:btih:9C9FE2B32D5524601FFE46008DE02AE23DA19842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

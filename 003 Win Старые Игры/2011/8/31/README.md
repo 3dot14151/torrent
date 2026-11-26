@@ -19,8 +19,7 @@ Blood - кровавый 3D шутер от первого лица, созда�
 ```bash
 magnet:?xt=urn:btih:ED8CCEA05493F893538729AA1D07AEF8BFE11863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NetStorm: Islands at War - оригинальная стратегия в реа
 ```bash
 magnet:?xt=urn:btih:DB41DE50BA00E7CBDE4A8CFBA4D9631A674D4824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ System Shock 2 - продолжение ролевого 3D шутера на у
 ```bash
 magnet:?xt=urn:btih:B18EC63B59259A14142EFD0BB45B65ED04BCFBF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Star Control II - удачная связка квеста, аркады и ст
 ```bash
 magnet:?xt=urn:btih:7D77B2A51B2F8F6D723F8E3866BC67B3A0B7680B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

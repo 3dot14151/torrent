@@ -19,8 +19,7 @@ Knight Rider: The Game 2 / Рыцарь дорог 2 [Ru] (P) 2004
 ```bash
 magnet:?xt=urn:btih:CED0C9D17CDB55AD9276928D00E2239E46460B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Borderlands: Trilogy (2013-2019) [Ru/Multi] (1.5.0/1.8.5/1.0.9/dlc) Repack dixen
 ```bash
 magnet:?xt=urn:btih:E7B4A176B54B2ED6BDD7B480BF7BDF4F79C92444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mount & Blade: Warband – самостоятельное дополнение, 
 ```bash
 magnet:?xt=urn:btih:B8191DC1D0ACDCA144FFF8A3C77641F552BEB9BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Justin Wack and the Big Time Hack (2022) [Multi] (3.2.3) License GOG [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:23CA76F5B620C9A25C068B197C82E26A129808CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Decision: Red Daze - уникальная вариация изометриче�
 ```bash
 magnet:?xt=urn:btih:9D6BD63887A2015449CB2DBE5E461A89995DEC60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ EVOTINCTION - это футуристическая хакерская и сте
 ```bash
 magnet:?xt=urn:btih:1FEF9E49CC1E2E14E10EAA6D3FEACE3AF7A8BE95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Vampire: The Masquerade - Reckoning of New York приглашает гейме�
 ```bash
 magnet:?xt=urn:btih:72E0C2B3234FD812946ABDE45B6C1E6056C14D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Stardiver - это научно-фантастическая игра в жан�
 ```bash
 magnet:?xt=urn:btih:1C9C96484349ECCAD137C7AFC5A402693F23F031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Son and Bone (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DAC77AFF7145A467099033D83DC16A903553914D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Far Cry 2 (2008) [Ru/En] (1.03) Repack dixen18 [Fortune's Edition]
 ```bash
 magnet:?xt=urn:btih:7A7D77FAB9F9E817EEE4FE139269ED79F5DB8A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ I Am Your Beast - это FPS в обертке триллера о мести, �
 ```bash
 magnet:?xt=urn:btih:60C30DA6CBB50C394BA711EB213E0807340285F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ MARVEL vs. CAPCOM Fighting Collection: Arcade Classics собирает колл
 ```bash
 magnet:?xt=urn:btih:918F696453AB8A286C212234CD841E3F4D5ADB9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 ```bash
 magnet:?xt=urn:btih:16973636DC428BED935F4E8D51F090ED308AC703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Vampire: The Masquerade - Reckoning of New York приглашает гейме�
 ```bash
 magnet:?xt=urn:btih:C71FDB8FB3EBAAF248F7A10797311D78683E2F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Turbo Sliders Unlimited – это возможность окунуться в 
 ```bash
 magnet:?xt=urn:btih:4680AE9C96EBDA59110A4E530F98B1387119CAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Demon's Mirror - это roguelike-конструктор колод, сочет�
 ```bash
 magnet:?xt=urn:btih:42E0C87C65DB546A426F2E9B578887D4CE33BE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 ```bash
 magnet:?xt=urn:btih:881CF0608BB72C2A06E9CD2997A5D21413A551E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ BAKERU (2024) [Multi] (1.0) Repack FitGirl [Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:7DA29D64DE50FE755CF3D2A51B5DE32C5F549727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:5D3FA0EA4A1AED7704099BE8770177328DED93A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Edge of Sanity - психологический хоррор на выживан
 ```bash
 magnet:?xt=urn:btih:C6F2539C09ABA1313E066DD7A55E3876C65AE1C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

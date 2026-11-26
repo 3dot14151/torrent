@@ -28,8 +28,7 @@ CD1. Продолжительность: 01:11:39
 ```bash
 magnet:?xt=urn:btih:B39EC115B4AEB0F6F088A78349AB7A8CC4341D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ VA - Suara Showroom Remixed 2 (2011) [MP3|320 kbps]<Tech House>
 ```bash
 magnet:?xt=urn:btih:98E80D1DAB8F282474C49E7165FD048C7955AD9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ VA - TMP: Vanilla Dreams - 048 (07.09.2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:0552FD438250CD2E709AACE9A5961588935D0F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ VA - Extra Dry: Xmas Sampler 2011 (2011) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:3302829B95640C708DA386E94A4102624F659116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ VA - TMP:  Vanilla Dreams - 058 (10.11.2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:A4FCC8F1E713D4607E892899515BBD5446A56672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Pako V - The Album (2011) [MP3|320 kbps]<Tech House>
 ```bash
 magnet:?xt=urn:btih:04DF710179569647EA6B6285625B14A3E53A469A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ VA - TMP:  Vanilla Dreams - 051 (19.09.2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:D826D6FCCA506F838F25678BD310FFA0762AEB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F09EDFB84EB2F413997DFF3F1501E471980080E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ Andy Kohlmann - Lilopo Dancer (2011) [MP3|320 kbps]<Tech House, Minimal>
 ```bash
 magnet:?xt=urn:btih:B24AC44EA6E5D9A093D3635C612CD198D6D7507F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +315,7 @@ William Stravato - Cybertones (2002) [FLAC|Lossless]<Jazz Rock, Fusion, Instrume
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +346,7 @@ Moonbeam feat.Daniel Mimra - Look Around (Single) (2010) [FLAC|Lossless]<House\P
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +377,7 @@ Ferry Corsten - Corsten's Countdown 232 (07.12.2011) [MP3|256 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:80E5C5852F71571E7895330625F618F5017FF472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED9593FAE6B53C317DBEAA01B56D916CB7B12FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +445,7 @@ VA - TMP:  Vanilla Dreams - 057 (28.10.2011) [MP3|320 kbps]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:2258E163778EBA68F61320477BF91FE17568B477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +479,7 @@ Syn & Roc - Hands On: Syn & Roc (2011) [MP3|320 kbps]<Tech House, Minimal>
 ```bash
 magnet:?xt=urn:btih:2D9C44B30E04DCAC31FAC770B3A4A10F0DC795AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +513,7 @@ VA -  Euforia TOP 40 Edition 03 December (2011) [MP3|320 kbps]<House | Club>
 ```bash
 magnet:?xt=urn:btih:8F61309296D4C71F88787FFBA1CB15E11717D067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:101E2FF971DC5E4F29F2A981555C913750A459D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F9338A1C9FB67D8ADA3650DC5E2BE7450AB8F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +598,7 @@ VA - Jazz Ballads & Dances (2003) [FLAC|Lossless]<Jazz, Smooth Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:643680C928961740FAF0FFF69B4632D8EC6685EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84BB18D3E00D254DE8C4C824FEA906D04CE448A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +682,7 @@ James Torme - Love for Sale (2011) [MP3|320 kbps]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:686478B85A41677881DEE07047649139CE7AF861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +715,7 @@ VA - Eurojazz: 11th European Jazz Festival in Athens (2011) [FLAC|Lossless]<Jazz
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +749,7 @@ VA - Музыкальный Ураган (2011) [MP3|256 kbps]<Dance | Pop>
 ```bash
 magnet:?xt=urn:btih:EFA6C52FC91D9DE78E5EA8AB3036732917E5DCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -798,8 +774,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:097324C612183BE2664B84D4D7D6E8944B23521D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -824,8 +799,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

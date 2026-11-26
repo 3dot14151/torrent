@@ -19,8 +19,7 @@ Tales From The Dragon Mountain: The Strix (P) [Ge] 2011
 ```bash
 magnet:?xt=urn:btih:7AA0DD79EC93C849608DE8E5620F9B681F7F97BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Wing Commander Saga: The Darkest Dawn делала команда преданн
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E82BEC584018AA93083A3CBA0612E1C7064DF3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Big Fish Legend / Легенда о большой рыбе (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:DEA0912B9C6D2D5026B7666656860E9BB578FB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ The Chronicles of Shakespeare: Romeo & Juliet / Хроники Шекспира.
 ```bash
 magnet:?xt=urn:btih:D2D375041F4F1A26112D6B7A9B41D4320709239D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Easter Eggztravaganza  / Пасха "eggztravaganza". Поиск яиц (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:060D5943625D23AF2F4F738ED649D19DEBB22EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Phenomenon: City of Cyan (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B1142BF1125465B4568CA5DF6AE48582B9D30B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

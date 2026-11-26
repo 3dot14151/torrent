@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:60D81A0DFEF90EC1D08A1464921291D696AAE1E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Diablo - это action/RPG, в которой вам предстоит прол
 ```bash
 magnet:?xt=urn:btih:8DAFAC10EB75D27CCAB8C49FFDE2BC26768047D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:163372F3F938928B800F02AE93EB16B0CEDE11AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sen to Chihiro no Kamikakushi / Spirited Away / Унесённые призра�
 ```bash
 magnet:?xt=urn:btih:6EFF0D8560D4F4AB35A3F56C9F79A17E79FE216A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Konung 3: Ties of the Dynasty / Князь 3: Новая династия (2009)
 ```bash
 magnet:?xt=urn:btih:861602F56CD51DD1DB1823C6CB579A466D8BA6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ VA - Советский Винил 44LP(1970-1988) [FLAC|Lossless] <Instrumental
 ```bash
 magnet:?xt=urn:btih:0FAB83614FD7A22622D9B0B3CD6B87BD0FF1601C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Sid Meier’s Civilization III, дополнения Civilization III: Play the 
 ```bash
 magnet:?xt=urn:btih:A494585A56EF24EDF3506060C5374FBF8C38C8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4A4F0686BBCF574AFCAB8B1379A5E67912B4D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Civilization IV — последний на сегодняшний день пр
 ```bash
 magnet:?xt=urn:btih:8AA2801C43810D8E7242C61A2E0318BF07330159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ The Elder Scrolls IV: Oblivion Game of the Year Edition / The Elder Scrolls 4: O
 ```bash
 magnet:?xt=urn:btih:19459CA01C7612F8D7A224C020A42B577DC9D4E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

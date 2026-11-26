@@ -22,8 +22,7 @@ Septic Mind - Раб (2014) [MP3|320 кб/с]<Funeral Doom Metal, Experimental>
 ```bash
 magnet:?xt=urn:btih:391A70486F11746738540CCA86FCCCF38D0CBB0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ These Ghosts - Still The Waves (2014) [MP3|320 кб/с]<Alternative Rock, Indie 
 ```bash
 magnet:?xt=urn:btih:0B514C246679AC735C8C0A168A9095FAE31D9418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ False In Truth - Back To War (2014) [MP3|320 кб/с]<Thrash Metal, MDM>
 ```bash
 magnet:?xt=urn:btih:82CE4169C32485A0D42B3FD2EFCBF13224563E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Evyltyde - Evyltyde (2015) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:D68BBF0613901AD3C1ACE2C4D326848DFB1FD580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Armored Saint - La Raza (2010) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FDD72D5F3D0A778CEDB510979379371316367908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Venus Vegas - Morning Still Life (2011) [MP3|320 кб/с]<Modern Rock>
 ```bash
 magnet:?xt=urn:btih:0B86D6DB8CDE37813CC42DF0762E7B802B459852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Divine Disorder - Garden Of Dystopia (2014) [MP3|320 кб/с]<Progressive MDM>
 ```bash
 magnet:?xt=urn:btih:B31AB8901B000D60AFCD098F8AD050959524F0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ The Decemberists - What a Terrible World, What a Beautiful World (2015) [MP3|320
 ```bash
 magnet:?xt=urn:btih:2E47F5CADCACE50B366D9EC3B36FE1CC30A4133C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Against Myself - Odyssey To Reflexion (2015) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:473274A685F525E820848875197A5BCD7C8E5B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DCA8F5037635F99AB99850E8944A20B1B2D73BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:326E288173E9A1AB48DA36A62B7AF9C50E91D6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ Kram - Mix Tape (2009) [MP3|320 кб/с]<Alternative Rock, Big Beats, Post-Grung
 ```bash
 magnet:?xt=urn:btih:0AE3AF5AC631C823674CCEB18F4C54A4A0591BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ Days Of The New - Days Of The New (1997)/Outpost Recordings/ [FLAC|Image+cue]<Po
 ```bash
 magnet:?xt=urn:btih:0BB63D1961035120AB647BE0EF72B887A8E38659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +457,7 @@ Moonshiner - The Brooklyn Connection (2015) [MP3|320 кб/с]<Rock, Neo Rockabil
 ```bash
 magnet:?xt=urn:btih:5D1F87C8AA38975517C85A058219AAF7E1DE4DF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +491,7 @@ Sweet & Lynch - Only To Rise (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0A473BB305426D5BA735F13B3F62AFEFFD2A9CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +519,7 @@ Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC|Lossless]<Alternat
 ```bash
 magnet:?xt=urn:btih:CA24421BA05E8FF1923C550B5A8F26B27E16E8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

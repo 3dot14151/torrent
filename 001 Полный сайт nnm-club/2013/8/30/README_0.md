@@ -27,8 +27,7 @@ VA - Hard Pro Vol. 25 (2013) [MP3|320 кб/с]<Hardstyle, Hardcore, Hands Up>
 ```bash
 magnet:?xt=urn:btih:8BD789F3634A5D9E914BE846148EDA65EBD27EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Wolfpakk - Cry Wolf (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6AA4A35C373E80C453F7EF736428C597DD61DC4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Дикие танцы. Супер Chart лета (2013) [MP3|128 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:25BF9A0D88FF4CEAD626A337CD00888EA29B8683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Earth & Fire - Gate To Infinity (1977) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:D9AF99E135E36BB36CA19CBA48507DD9E99BA2DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Tiesto - Club Life 334 (2013) [MP3|320 кб/с]<Progressive House, Electro House
 ```bash
 magnet:?xt=urn:btih:5BE7157C47A9EF2B6374DB3E9DEDF96E7DA732DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Professional Photographer - чрезвычайно нужный журнал д�
 ```bash
 magnet:?xt=urn:btih:A243A4AFD015D28F607AA9F2A8162AAB0B949391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30A849CB5402D74A274FE9E9EF9221F119E4D614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DBF6E0AFF1D7114736643E91DC6D43F6D94E9CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:0B3AFA5FBC08D0660C708C8B29FBD9177E608985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ Shook - Shook (2013) [MP3|320 кб/с]<House, Disco, Funk>
 ```bash
 magnet:?xt=urn:btih:F61BC8CEE3EDCF2CE9AE2A33C85451FF444B9EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ Bigasoft AVI Converter - поможет вам легко конвертиров
 ```bash
 magnet:?xt=urn:btih:B352F954D094EAA286AFBA068BDB6E81FDE03F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ VA - Зажги под летние хиты (2013) [MP3|128-256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:AE8293CCD1D70D8673FE9467636D7A443E4346A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84885E8EBAD04E7CC96EA7C86A91BD531A1E259D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ Manic Focus - Distant Perspective (2013) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:5C96653902E67DDC572A0F48B4EDC7E98658CA9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:535FB6CC2AB68A5A5E685E455646637C0A9AE962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84AB3D7CACB562DB1E10C7542A28EBBDDEFD74AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7206A7EF1114B4CEE9555329C9550266B441628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ VA - Sparkling Vintage Lounge Vol 1 (2013) [MP3|320 кб/с]<Downtempo,Chillout,
 ```bash
 magnet:?xt=urn:btih:0A4C19EC9B09FC4EC67FEF90745D4606AE37E97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F71E306F4DB81323460D0C358DEA1E21A06B098F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ Dj Parafich - Pumping Romantica vol.3 ultimate (2013) [MP3|192 кб/с]<Pumping 
 ```bash
 magnet:?xt=urn:btih:50CC61D21AF05EC465CE39888E99F32467B9FE71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36B5B9EB291978512075CDAFAA6111BB63FD5F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ VA - 55 Chillout Classics (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:2190C009379C2CFCADDE703DDC1F89589BC3684A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ VA - Juicy Ibiza 2013 (Mixed By Robbie Rivera) (2013) [MP3|~245 кб/с (V0)]<Ho
 ```bash
 magnet:?xt=urn:btih:C110EA38EE7B397903EB54939B68C51462CCC3C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +721,7 @@ VA - Sexy Trance #52 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:20FF57D9E37EB678D499CD65A6EA76C04E28313B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +746,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36DC43C82FA939CB1064505C08388A1D1CD7A825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +780,7 @@ Armin Van Buuren - A State Of Trance 628 (2013) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:EC6C35AAD1A2E9E214A2956BE859D3466E417D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

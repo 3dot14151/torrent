@@ -19,8 +19,7 @@ Measure Map - это приложение, поддерживающее каль
 ```bash
 magnet:?xt=urn:btih:F461AA63F0DCED6A181534CE7806BE28D09D4314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blokada для Android - мобильное приложение для блок
 ```bash
 magnet:?xt=urn:btih:F0FF65C329FA14C2FF82C786E1B453A67950E05A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DF1FFF4E4A1FBA098A67BE87EFC09B20F1B6E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

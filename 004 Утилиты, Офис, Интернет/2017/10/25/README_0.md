@@ -19,8 +19,7 @@ DVDFab Passkey - очень полезная утилита: позволяет 
 ```bash
 magnet:?xt=urn:btih:6108C3AC9EEBD5EC1AC1EBEE888B8E7E6A35C4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

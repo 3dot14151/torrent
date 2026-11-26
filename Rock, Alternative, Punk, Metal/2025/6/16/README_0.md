@@ -22,8 +22,7 @@ letlive. - The Blackest Beautiful (2013) Revisited, 2025, Epitaph [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:FE18DF38F557DFBC0A65C6FA40A1191BDDCD72BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

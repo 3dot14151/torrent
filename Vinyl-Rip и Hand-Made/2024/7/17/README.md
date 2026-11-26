@@ -23,8 +23,7 @@ Vanden Plas — немецкая рок-группа, играющая в сти
 ```bash
 magnet:?xt=urn:btih:8B4A4B0072D46E2BED9E476265E27A2702861E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

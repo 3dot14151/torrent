@@ -19,8 +19,7 @@ Moons of Madness (2019) [Ru/Multi] (1.01) License CODEX
 ```bash
 magnet:?xt=urn:btih:FB54DBD695FE8BDB99EB11C2A354ACF77D33A3FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Butter_
 ```bash
 magnet:?xt=urn:btih:E67D0E7C775C32E675D540F9D82EAD8EB263A10F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AC5440DB65280C7F3A131E18E70391BC9836CE1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Magic: the Gathering Arena – Оригинальная коллекционна
 ```bash
 magnet:?xt=urn:btih:B43AA0B9F5294F9F0DA74E2E1FA1AFF4B97B5DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Need for Speed SHIFT является абсолютно новым симуля
 ```bash
 magnet:?xt=urn:btih:110C689654E60144B3465DAB022AC78C19D41304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

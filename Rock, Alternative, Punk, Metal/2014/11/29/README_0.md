@@ -20,8 +20,7 @@ Virtue Concept - 2 Альбома (2012-2014) [MP3|~277-320 кб/с]<Metalcore /
 ```bash
 magnet:?xt=urn:btih:D6E9B58DCECF8A655310B8C2AA21DAAC909FFE0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ H.O.S. - The Beginning (2011) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F3FAB08D316A6C2478A7FB08376D6D02338F2F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Sacro Sanctus - Deus Volt (2014) [MP3|320 кб/с]<Blackened Heavy/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:FD90384A516D7DF45F0FFB8FA31ED8AF2CBA2020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Ost+Front - Freundschaft (2014) EP [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:CF2AE1FE95B85A9A22B9EDF8E255685A1F6F97D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ The Shoes - Let The Shoes shine in (1970) [FLAC|Lossless]<Ciassic Rock>
 ```bash
 magnet:?xt=urn:btih:20A0CD3F49FDEB3E45553E0BB1E6FF991C365945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Sodom - Sacred Warpath (2014) EP [MP3|320 кб/с]<Thrash Metal, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:3212DADF77013E0330CEF147E099EDA8E3B6AF9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Mors Principium Est - Dawn Of The 5th Era (2014) [FLAC|Lossless]<Melodic Death M
 ```bash
 magnet:?xt=urn:btih:872D28C0EFE43DE606CE6D98AEB6498F4B6D878B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ First Aid - Nursed (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4C15F0EB896C9D45C17BFB5CA37E164FB8F9633E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ Bailey - Long Way Down (Japanese Edition) (2014) [MP3|320 кб/с]<Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:85E7FB1ECBC705A97492FF8F1A65C101AC822A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +315,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:9129C6B71359DF56FF2DB48971A7F26AB9AF8C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ Neil Young - After The Gold Rush (1970) [SHM-CD] (2009) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:7548B7C6A25D074906D26BC5FFD047EFE44B551F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ Keith Richards - Talk Is Cheap (1988) 24 KT Gold MFSL [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:F994215E7B5E39D15261158E7CAE76981C6FB829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +417,7 @@ CD1 (01:13:16):
 ```bash
 magnet:?xt=urn:btih:169C47F921C8E9EED43F2D4CD6A491C09182B42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +443,7 @@ Mors Principium Est - 5 albums (2003-2014) [MP3|320kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:7A538017FE4E533E7AD9FEEF5ACFB4332B17EDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +477,7 @@ Scorpions - Gold Ballads (1995) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:722C2ADE913E88F97DCCD75D74996EB022DEFB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +505,7 @@ AC/DC - Rock Or Bust (2014) [FLAC|Lossless]<Hard Rock, Aussie Rock, Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:16C21218A7E392838A7640264A0B7ECD51BB62A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

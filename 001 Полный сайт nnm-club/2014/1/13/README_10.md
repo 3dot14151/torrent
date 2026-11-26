@@ -26,8 +26,7 @@ Galar - Skogskvad (2006) [WavPack|Lossless|iso.wv (repack)]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:F99B7E05F90AA58188504141B24190322C8A6CC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Trance Essentials 2013 Vol.3 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:C265E416EA18F58BBB194931ACA0286DD9B97B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27B653213A9013841DC2220C93CF40A2CC5855D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ bvdub - I'll Only Break Your Heart (2014) [FLAC|Lossless|WEB-DL]<Ambient, Downte
 ```bash
 magnet:?xt=urn:btih:618AA6BE909B1DD1FEB9DBBAA4B102E57648CBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Dominium - Psycho Path Fever (2002) [WavPack|Lossless|.iso.wv repack]<Progressiv
 ```bash
 magnet:?xt=urn:btih:24EE5BB1158011F34585AF889B3F5DF9726DB854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ VA - In Trance 2014: The Compilation By Matthew Kramer (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:9AA35E8864E33C83A1042709CEF70345CF21D03F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Max Cooper & Nicolas Bougaieff - Movement (2013) [FLAC|Lossless|WEB-DL]<Techno, 
 ```bash
 magnet:?xt=urn:btih:8F8C109C1465FBA2A6E95AD4D41B6141C55B8D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Home pageЖанр: Power Metal, Thrash Metal |Продолжительность
 ```bash
 magnet:?xt=urn:btih:6087B55E0E77AFD15F8A42349DA47C3EE893C0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75A3EAED3E25C5A626D072305C31E8C508AE249D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ J-Soul presents Andy Jaar - Glace (2013) [MP3|320 кб/с]<Progressive House, Pr
 ```bash
 magnet:?xt=urn:btih:F4904EA86A2D452125B33B29650D20A64C60EC50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +344,7 @@ Trygve Seim, Andreas Utnem - Purcor (2010) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:884D8CEE02237DDB9D5D97CD44B9DE80D3180BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +378,7 @@ Dying Tears - Amnesia (2000) [WavPack|Lossless|iso.wv repack]<Symphonic Gothic /
 ```bash
 magnet:?xt=urn:btih:3AE8E02BEF7523A92D27BED96A3D409CA8F1BA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +410,7 @@ Skydancer - Land Of The Grim (2013) [MP3|320 кб/с]<Melodic Death Metal \ Thra
 ```bash
 magnet:?xt=urn:btih:87044D26A32B1EFDD12CBAFA3C5ACC53C1563695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4E8D42647A5A0D6645730ED93AFEFC377586637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +469,7 @@ Vicious Rumors - Vicious Rumors (1990) Japan [FLAC|Lossless]<Heavy Metal / Power
 ```bash
 magnet:?xt=urn:btih:81B1BCF7E70DE4910F40EA20348807D0953B5AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +502,7 @@ Dorn - Schatten Der Vergangenheit (2002) [WavPack|Lossless|.iso.wv repack]<Black
 ```bash
 magnet:?xt=urn:btih:5E0F2C84032C987601ED96B9553E81A1F26E90C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:907832EE21E07B8D6D7B3F8414AFC0E37A5513C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +554,7 @@ Max Cooper - Conditions Two [EP] (2013) [FLAC|Lossless|WEB-DL]<Techno, Minimal, 
 ```bash
 magnet:?xt=urn:btih:E36463414358979359F24D5890B4F0E8E81E93CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28629AF489005E28E0D9073AAEBE4BA97482ECB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0755BF15872C031DD9819377E40EA288956CAFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ VA - House Music Pause Vol 3 (Compiled by Alex3107) (2014) [MP3|320 кб/с]<Hou
 ```bash
 magnet:?xt=urn:btih:12B4F43243623073D91E6ABC84E9027B9DC60E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D02AF478C04DC10CF8CBB18C702365874029CD89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +727,7 @@ Streetlight Manifesto - 99 Songs of Revolution: Vol. 1 (2010) [FLAC|Lossless]<Sk
 ```bash
 magnet:?xt=urn:btih:539720E460F59B2DFA80625DD54808A2AEB181BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +761,7 @@ Evergreen Terrace - Dead Horses (2013) [FLAC|Lossless]<Metalcore/Hardcore>
 ```bash
 magnet:?xt=urn:btih:EA05F12EBF71A61DDD0EA559E7C1B71F497AB9E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -820,8 +795,7 @@ VA - Sabor De Cafe Lounge (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:10C4A840B4449C5D8A3DAE5B17EE41F9037998CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

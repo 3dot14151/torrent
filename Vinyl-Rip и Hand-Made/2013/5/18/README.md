@@ -24,8 +24,7 @@ Digital Emotion - Digital Emotion (1984) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Dis
 ```bash
 magnet:?xt=urn:btih:7BBA6197A057F4F40D88598CCD42E0A01ECF8F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Ingrid Kup - Feel Me (Music By Frank Duval) (1982) [FLAC 2.0 24/192|image (Vinyl
 ```bash
 magnet:?xt=urn:btih:AA350E44A176997A30F410CEED351F55BCF949BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ B.01. В. Ливанов, Ю. Энтин - Фантазия на тему ска
 ```bash
 magnet:?xt=urn:btih:33F6A10F01BFA5E2C47AB78CE5D77D56823664F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Depeche Mode - Delta Machine (2013) [FLAC 2.0 24/192|Tracks (Vinyl-Rip)]<Electro
 ```bash
 magnet:?xt=urn:btih:CDE2EAC082BE49756F33BDB982AB8EE9C97F82CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Daft Punk - Random Access Memories (LP) (2013)  [FLAC 2.0 24/96|tracks (Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:69ED5B878FD91785193913E346360FF6563C46C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

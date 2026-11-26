@@ -19,8 +19,7 @@ Mystery Trackers 9: Winterpoint Tragedy / Охотники за тайнами 9
 ```bash
 magnet:?xt=urn:btih:3313A76F376B42F03C37544B9FB6659CD1B3381C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Heroes of Might and Magic 5 / Герои Меча и Магии 5 (2006) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:31364FCDCDE3C872F84E0041D3E3EE9531B334CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

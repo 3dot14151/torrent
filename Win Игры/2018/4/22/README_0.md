@@ -19,8 +19,7 @@ Bud Spencer & Terence Hill - Slaps And Beans (2018) [Ru/Multi] (0.96) License PL
 ```bash
 magnet:?xt=urn:btih:3DFF3D6346A327EF9FDE505FF8B2F19AAEEAE531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:E3D1101207EF266380A21C12294AF68DFA121BCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

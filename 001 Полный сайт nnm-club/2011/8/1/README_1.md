@@ -26,8 +26,7 @@ Cat.#: NANOOCD027
 ```bash
 magnet:?xt=urn:btih:F4D203A854B54FE3B8300997723838AA88543F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Bizness Band - ... И хищники получают еще одну кость
 ```bash
 magnet:?xt=urn:btih:B5B56A2B1D4FDF455D3E8E1918F40F5EFA1163B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00A0A43FD3E8FEB01468CE3336E0BE262E30E117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ VA - Мы ждем тебя браток: Блатная лирика (2011) [MP
 ```bash
 magnet:?xt=urn:btih:20DF96434CCA4C33392A8076D94F128EAE63ED47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ VA - Шансон на 5+ Лето (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:ADD5FA1458952691B08CFF9455DE5CCC0C2E93EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ VA - Вспомни молодость vol.3 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:55DE76AEC4A64D78C71BA75DC28B9B06336A2D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Hectix - Z-Ray (2011) [MP3|320 kbps]<Drum And Bass>
 ```bash
 magnet:?xt=urn:btih:919750E42D404BB6F352436D53272E2D78FC3DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Svartsot - Maledictus Eris (2011) [MP3|320 kbps]<Viking Folk Metal>
 ```bash
 magnet:?xt=urn:btih:B1E9CE0DBAB56E02F1152B01F2394A6A3D3FAAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +346,7 @@ Cat.#: DNA005
 ```bash
 magnet:?xt=urn:btih:01C64AAEF58AA62FC22A977E6EDEDA32E15DD034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DB3E146C7F1CAD3D47C8D4D120B0E19E15F9AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:999B53BB054DC59DE05CA7EF2A4A075FE941947D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B9F0F959FCF232480E5E562C700CA8160F07517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ NG: Десять казней египетских: Первые кары / Secr
 ```bash
 magnet:?xt=urn:btih:713D6527142924ED8F14F32762715213BE2C3227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C94C27251A3EDD8985E8B94993ED4B272199C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ VA - Gold Foreign Disco 80's Hits (2011) [PCM|192 kbps]<Disco, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:5BD854354887F6BE0CCCE7A45B2126F2F54E2EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ VA-Dubstep Essentials 2011 Vol 1(30-07-2011)[MP3|320kbs]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:1AA672D2CF7B4F8613FB4AD9373D869BFCC26215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:273BC744152792E8FC176FA07ACF37D2EC13E783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ VA - Зона. За Решеткой Небо Синее (2011) [MP3|256 kbps]<�
 ```bash
 magnet:?xt=urn:btih:99FE79B8D68317EF6560DB5627CA2D87A608674D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ TBS Cover Editor - удивительная программа для созда
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ Phaeleh - The Cold In You(01.08.2011)[MP3|320kbs]<Dubstep, Grime>
 ```bash
 magnet:?xt=urn:btih:C24E2E4551CEB8C52EF96778C99D21FA397E94EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +704,7 @@ VA - 50 Клубных Хитов Дискотек Июля (2011) [MP3|256 kbps
 ```bash
 magnet:?xt=urn:btih:7205BCD334C083BA96CB5F522D2BCE858CC2EF8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ Forbes - российское издание главного делового �
 ```bash
 magnet:?xt=urn:btih:79DD33C2ED098876C6212B5788FB337F8409130B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ PJ Harvey - 2 Albums (2007, 2011) [FLAC 2.0 24/96 |tracks (Vinyl-Rip)]<Alternati
 ```bash
 magnet:?xt=urn:btih:D279A4E1ECAF3479D8D61458436A529FF3401D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Prison Tycoon: Under New Management – симулятор, в котором п
 ```bash
 magnet:?xt=urn:btih:A1A7DB2D51658DE5B38643C248064C2EE04932C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:12E0108B3C3C4D3436F2A4E7F67C95A1E9E521EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

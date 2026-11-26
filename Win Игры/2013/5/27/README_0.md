@@ -19,8 +19,7 @@ Rotastic – аркадная игра, разрабатываемая для Р
 ```bash
 magnet:?xt=urn:btih:C9DA5E680F5FB17466E3C8C12A1C28B6745E17FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Freedom Fall (2013) [En] (1.0) Repack Elektra
 ```bash
 magnet:?xt=urn:btih:FBB726F69B16E5D048D1A19A8698E79E477D9394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wimp: Who Stole My Pants? - красочный платформер, в кото
 ```bash
 magnet:?xt=urn:btih:D346514BF016B6755FEDF3ADA34A5FC725AED8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Noire (2013) [En] Repack Elektra
 ```bash
 magnet:?xt=urn:btih:758A73487F21A5911DCC0804C7893C7537FCE17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bret Airborne (2013) [En] Repack
 ```bash
 magnet:?xt=urn:btih:3210FF7D1F23B6E3CA582E68EF037BB4B1A3877A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Constant C - сложный пазл-платформер с большим ко
 ```bash
 magnet:?xt=urn:btih:CDE146807212D1550B4441D2496989C64D64B20E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Lykaon — очень большой приключенческий мод дл�
 ```bash
 magnet:?xt=urn:btih:3B28D2CF387CD45CCDD4692F8BCD53BB5B4D0E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

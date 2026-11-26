@@ -19,8 +19,7 @@ MechWarrior 4 Трилогия /MechWarrior 4: Vengeance + MechWarrior 4: Black 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

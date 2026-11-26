@@ -19,8 +19,7 @@ Heavy Fire: Shattered Spear (2015) [En/Multi] (1.1.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E8D5D11FE7E8816408612DA92A81EB61106FE38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Youtubers Life - самый реалистичный симулятор летс
 ```bash
 magnet:?xt=urn:btih:61EFA97FBAC6D70B96CB61B97ED5A4D2B25AAEDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

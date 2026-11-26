@@ -19,8 +19,7 @@ Spirits of Mystery 6: Family Lies (2016) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:DB2108DCC074014406553C3B2A65C27645FA3CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vampire Legends 3: The Count of New Orleans (2016) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:9BF2724CA005DAF8BEC0EA6AB90EC2185400D6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Final Cut 5: Fame Fatale / Последний дубль 5. Смертельна
 ```bash
 magnet:?xt=urn:btih:E518AB587614040BD23A6E6DFC3160FF7E7A4BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Myths of the World 7: The Whispering Marsh / Мифы народов мира 7.
 ```bash
 magnet:?xt=urn:btih:E0634F6AE992CBEB51E315EEF70C1222730F0106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ DreadOut: Keepers of The Dark (2016) [En] (1.0.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:046A2B131ED202059E1C7EDC0552CD9773D67F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Train Fever (2015) [Ru/Multi] (Build 7753/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:870C4497F7A3DDC2A5DBD04EE741F6F6AEB36CC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Subterrain – хардкорный экшен с видом сверху про
 ```bash
 magnet:?xt=urn:btih:EF84FE9ADB02CD3623B6B0FDE71145623BAEE899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

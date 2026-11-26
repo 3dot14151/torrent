@@ -22,8 +22,7 @@ Teruo Yoda & Dreamy Mood Orchestra - The Enchanted (1967) [FLAC 2.0|44,1/16|trac
 ```bash
 magnet:?xt=urn:btih:345B0C02C05BE67D1FDB3FD9EE5CDDBFDF3062D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Yujiro Mabuchi '68 All Stars - Attractive Tenor-Sax Mood Best 16 (1973) [FLAC 2.
 ```bash
 magnet:?xt=urn:btih:1BFCF68DFA330C20F90284DE40338B5615755663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B1. No Tourists (4:18)(   Читать дальше...   )Жанр: Drum & Bass,
 ```bash
 magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, 
 ```bash
 magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

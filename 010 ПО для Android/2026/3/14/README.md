@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:047907CD7D7AA4C6EF7755077DDE32414826B767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Rosetta Stone: Изучение языков 9.0.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4A6F37C51007E70FAFDC938690367B855D199F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Taskito - это приложение для управления задачам
 ```bash
 magnet:?xt=urn:btih:95AE79C793738E861A634EA90D2C6935D611E0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Mary’s recipes: рецепты, меню v7.5.0 Mod by Alex.Strannik [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:A6608B374A36007E4086F2C8D7BE8BEA3DEDDAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Photomath v8.47.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5921D5E64D6AD0585B64B074BD1F67D644A7A6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ TVGuide v4.7.1 Premium Mod by Alex.Strannik [Ru]
 ```bash
 magnet:?xt=urn:btih:44A6F1EEF86CD7731ABC97D3EEB842AA4C0CF4DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Screen Mirroring - TV Miracast v4.0.0.240 Mod by vadj [En]
 ```bash
 magnet:?xt=urn:btih:4949AFDC4369B36407159E8FAE58F9B21C8EC80A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Bria Mobile: VoIP Softphone v6.22.4 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2A33984E09681AFAFB83017F94033B726C79D2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Smart AudioBook Player Pro v11.6.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:227689059C7199B87BEA8550AF053361401AEB6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61E9DF6D6A16E87E31A19084C774B47909A88D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:377EF704B9C9DE3E815D8F26DD68B4D8F2C40D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:CEA671DFEC9EDA31FF60CAAACCC5212672D3A6D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ AirBrush: ИИ Фоторедактор v8.4.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4B58530A4BBE8E922BDB02ACCE36219C278E0DA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCFBFFEE6B8F7D9BF59B1C43B09970C7A17A9C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ FBReader Premium v3.8.24 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A34492B1A1A2693326770DA61FA717F56EE9986C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +396,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:1A190436E25540772EAA7EF20A74BE043F7216FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAA421B98498345ABFBAA92EE13B1C7C020B5D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ Signal — это простой и безопасный мессенджер д
 ```bash
 magnet:?xt=urn:btih:64C297E5BF6A09127711EC69010C560A5769A4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

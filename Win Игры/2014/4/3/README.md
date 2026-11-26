@@ -19,8 +19,7 @@ Fear for Sale 4: Phantom Tide (2014) [En] Unofficial [Collector’s Edition / К
 ```bash
 magnet:?xt=urn:btih:0EC72BEA1FCCF5BE4BC6E58FADB809F066DB2DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Who ya gonna call?
 ```bash
 magnet:?xt=urn:btih:F09A4DDD89A1DA80EA6EF7A8D7A36814836B0DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Batman: Летопись Аркхема: Блэкгейт - Эксклюзивн
 ```bash
 magnet:?xt=urn:btih:F139CCEEC605C1CAD44C976A04AD200DD92E40BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Spate - это аркадный 2.5-D-мерный платформер в мр�
 ```bash
 magnet:?xt=urn:btih:DCD0663E8475B5026F09F95577D8E2477CA8F6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Batman: Arkham Origins Blackgate (2014) [Ru/En] (1.0.0.33270) Repack R.G. Games 
 ```bash
 magnet:?xt=urn:btih:87482AB1BA92DF3C2491B9E528F764BCB77321CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Painkiller: Hell & Damnation (2012) [Ru/Multi] (build 20131211_3701/10dlc) Steam
 ```bash
 magnet:?xt=urn:btih:EAAFDAB3B1489FBF206214B3EBD8354E1D52F65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

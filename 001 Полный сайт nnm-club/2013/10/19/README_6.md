@@ -21,8 +21,7 @@ Duran Duran - 25 Best Songs (2012) [MP3|233 - 266 кб/с]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:92BAAC7395CE466B61D5C46B3622A158E258E111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:411D1264B8FF69BA8EF422D20E46B0A3B2D0FFF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Render Boost — это плагин для усиления визуализа�
 ```bash
 magnet:?xt=urn:btih:151F2256E6917414984A0B047FE73ED75B3F3664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6696B26A8E316D043D35DE4F296941A6115A414B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Driver Magician - программа для создания резервных 
 ```bash
 magnet:?xt=urn:btih:84747D94CCDF933C396E283970C69A61C96E18D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Silverlight может воспроизводить WMV, WMA и MP3 для вс�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A724F5AD2B20D05B8D9AE7CF55A568D51C8629A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ InternetUrok | Природоведение 5 класс (2011-2013) WEB-DLRip [
 ```bash
 magnet:?xt=urn:btih:4F91F146C6C0BE2D138D24CF58ED260C1DB33B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Nightmare Realm Collector's Edition / Мир кошмаров. Коллекци�
 ```bash
 magnet:?xt=urn:btih:32EF63849F8F628AF93A6A33EB180CCA52DD737C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Sandra - 25 Best Songs (2012) [MP3|218 - 275 кб/с]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:2FDC62E4D3187CF4D444C4A7847844ECFA5AE11A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ C.C. Catch - 25 Best Songs (2012) [MP3|256 кб/с]<Eurodisco>
 ```bash
 magnet:?xt=urn:btih:A6B405B225CD3DAB4204CD9CC638F845ECBF508A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Demis Roussos - Greatest Hits (2013) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:FA28FCB1C1A8FDD9A12F62DE34D0C91F75F1A536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11B5C9F02BA62E70FBE647FF27DF7166EFB22CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1F8805632A0F3D50D0BFEE1F238F99C988A650F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44508273928AB1AAC25279EBA04E8244ABB38FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ UxStyle Core - это программа для того что бы испол�
 ```bash
 magnet:?xt=urn:btih:32CC3C090E2B95A026772341C0099041605E235D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Edubuntu — дистрибутив операционной системы Linu
 ```bash
 magnet:?xt=urn:btih:A8EB3B710B8339DF688188B0F4A044ADF064457A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ Modern Talking - 25 Best Songs (2012) [MP3|228 - 267 кб/с]<Eurodisco>
 ```bash
 magnet:?xt=urn:btih:14F20322017E2F19599C41F9ACB1B215701289F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44A0360CA584033FF5E13DAD43DE9BA09A30CFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ Hans Zimmer - Гонка / Rush OST (2013) [MP3|320 кб/с]<OST>
 ```bash
 magnet:?xt=urn:btih:8CBEB57C86E9BE530528F7D763E34F591222F423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ Truck Racer (2013) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:0FA6E212BE3D48AC61F3A41DD1384C53C0EDD05B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D51C4A15990313C10A950F7B30F2AD0964ACAD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ InternetUrok | Литература 5-11 классы (2011-2013) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:DBABCCDE90849E882D4424E019FCB3C401B1BC9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ Sade - 25 Best Songs (2012) [MP3|209 - 248 кб/с]<Soul>
 ```bash
 magnet:?xt=urn:btih:B12C26695E2E8E8396CFD691A4E6E04E39E7BE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ InternetUrok | Обществознание 6-11 классы (2011-2013) WEB-DL
 ```bash
 magnet:?xt=urn:btih:0A7E19B7403FB77313C2AB765C1B93C1BBF3B3BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

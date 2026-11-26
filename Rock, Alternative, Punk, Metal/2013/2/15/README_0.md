@@ -28,8 +28,7 @@ Wednesday13 - The dixie dead (2013) [MP3|160 кб/с]<Horror-punk>
 ```bash
 magnet:?xt=urn:btih:FA5ECAD9578C0D087CA1EA89CA6B5B197F111572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ ACT I
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

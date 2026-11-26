@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:01ABDB6E9EAC2E457E92D295E415E6DD6FF18CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ HTML Academy | Анимации, часть 1. CSS-анимации (2022) [unpa
 ```bash
 magnet:?xt=urn:btih:23D2E6E83A092251156BEEEB7339C79E061C6EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ HTML Academy | TypeScript, часть 1. Теория типов (2022) [unpacke
 ```bash
 magnet:?xt=urn:btih:ED166785F0D2DC19521B5C9B0C9C95E057B56D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:466E68F136CC910C07C94FBC239CC30A271148C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ HTML Academy | Регулярные выражения для фронтенде
 ```bash
 magnet:?xt=urn:btih:AE53757A2376F176AB8F91A72258F0D294612AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

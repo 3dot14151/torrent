@@ -22,8 +22,7 @@ Kopecky - Drug For The Modern Age (2015) [OGG|430-505 кб/с]<Alternative, Indi
 ```bash
 magnet:?xt=urn:btih:0BF6CD5F3F2F77B5F448D92E0F6BA2CE69605020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rush - Presto (1989) Hybrid SACD, Limited Edition /2014, Audio Fidelity[FLAC|ima
 ```bash
 magnet:?xt=urn:btih:BF78A04669A5F5A3AD67791A28B2E7D479C7AD09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Oomph! - XXV (2015) [FLAC|Lossless|WEB-DL]<Neue Deutsche Harte / Industrial Meta
 ```bash
 magnet:?xt=urn:btih:E6BC8B52F35AEB0F54CDDBC3A0CEEB3A2EB6B2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ U.D.O. - Navy Metal Night (2015) Live [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:549179E21A03BE11E147611EB890AB9EC20C298C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Placebo - B-Sides (2015) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:25FB9470F777A403735112D2BE1E7245FA0ECBFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Oomph - XXV (2015) [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:FB50092F557E6E7704429576548342B686083CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Saint Asonia - Saint Asonia (2015) [FLAC|Lossless]<Alt. Metal, Modern Hard Rock>
 ```bash
 magnet:?xt=urn:btih:14307B765E5E118C4AB48000192BCB1228C58D11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Saint Asonia - Saint Asonia (2015) [MP3|320 кб/с]<Alt. Metal, Modern Hard Roc
 ```bash
 magnet:?xt=urn:btih:8D7853F1FF0194E3ABE022F5F823A1140ED30A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

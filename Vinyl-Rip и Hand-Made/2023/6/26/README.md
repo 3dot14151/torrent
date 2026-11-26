@@ -22,8 +22,7 @@ A4 This Alone Is Love 5:13(   Читать дальше...   )Жанр: Electron
 ```bash
 magnet:?xt=urn:btih:8D6868FBE367A08BB0303738B18AB784F6863B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mnemic — датская метал-группа, образованная в �
 ```bash
 magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

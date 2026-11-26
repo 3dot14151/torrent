@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FFEB084C13353B842CE86AA548EBBB583BCBDC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3324B9E4B50872728AEEC1AA6AF2680430A69123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5946C3BDE9B2DA85029939C0FCC3776B1CFE3D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D834EF5423F516AC7C1202DAD92A0955CE89820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A2F9B0D5A885E628458AFB12AD9380E63EFFED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32862184BF1E6BC946574E754444263DAE27C5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F01B138DC2CE95824630A0E37BCEEBE8A9B8346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Thousand Excaliver - Sailing your dream (2014) KanColle Vocal /Doujin/ [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:809CCB38A13FFA9F4DC88213A1C38BDDC7E08DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7230C04877A881A3F827460AC3606C4DE63A3E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ PDF Combine - это шустрая программа для склеивани
 ```bash
 magnet:?xt=urn:btih:32586153F5473375EF1FF180CA523C3636A28529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ OAKE - Discography (2013-2015) [MP3|320 кб/с]<Dark Ambient, Industrial, Darkw
 ```bash
 magnet:?xt=urn:btih:4BCA9B0409129EBF692E220D5DDB44743F01799C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AE39B1A5275F7F483C104BA78F03B5262068D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3DEA2EC74B76E366E6097C2338EEF9E36254096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Clark - Winter Boots Pt 1 (2015) [MP3|320 кб/с]<Ambient, Downtempo, IDM, Hip 
 ```bash
 magnet:?xt=urn:btih:5E7B55D7A7BA880E4006B629B70EB42401253AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ VA - Best Of Vocal Trance (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:93A6A983589686F49F4C4B9A93E6064423679C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C449A02A08904EEC2ACFD0E7634E4434A27716E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Slimjet 2.1.8.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E0F15277D625A989416657E73A271D7A6D5C8583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Royal Albert Hall, Hammersmith Apollo, Shepherd’s Bush Empire, and The Borderl
 ```bash
 magnet:?xt=urn:btih:13B1353C78128915BDDE721E39FE574B8DF85688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Merry Meal 1.51 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:014319AFA9030E3F1C38C11BE4535AC4E2E44D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ Erasure - Reason (2014) /Single/ [FLAC|Lossless] <Synthpop, House, Electro>
 ```bash
 magnet:?xt=urn:btih:9FB2925E9D11836624B6D6E3C7BE65CD5E625E89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ Kate Tempest - Everybody Down (2014) [FLAC|Lossless] <Electronic, Hip Hop, Downt
 ```bash
 magnet:?xt=urn:btih:0BF4F6DAD9BC2A75FA726E89C5ED8C229C6A686B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ VA - Billboard 2014 Year End Hot 100 Songs (2014) [MP3|~245 кб/с (V0)]<Pop, D
 ```bash
 magnet:?xt=urn:btih:4A8861ECC488D3B8AE99678151A9F511DF5D428E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:117EC07176708BB0757E49B02E533BCE56401A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ VA - We R Hardstyle Yearmix (2014) [FLAC|Lossless|WEB-DL]<Hardstyle>
 ```bash
 magnet:?xt=urn:btih:D6EF215C396851D4763B90766860BBAA9365D754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ SlimBoat 1.1.53 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E16657A99C334CC8205C00B7AB5DE21C5042A904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:335F37F70E45A31B1A6949CCD915236B019EEAA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

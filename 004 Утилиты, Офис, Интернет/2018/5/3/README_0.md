@@ -19,8 +19,7 @@ Card Data Recovery - программа от 7thShare Studio позволит в
 ```bash
 magnet:?xt=urn:btih:C2FFAEDC1566D4724A7EC9EB1909827C6D5F8EAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

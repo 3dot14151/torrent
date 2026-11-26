@@ -23,8 +23,7 @@ Zventa Sventana — российский музыкальный проект Т�
 ```bash
 magnet:?xt=urn:btih:49F554CE61C1C80EC79F605881517A0D81C07CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ A4 - Skulls Adorn The Traitor's Gate(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:4FA06595D62FEB50298EBC18DE98F4753D2661B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ A4 Rotting Ways To Misery(   Читать дальше...   )Жанр: Death, Do
 ```bash
 magnet:?xt=urn:btih:690D9CAE2362CA0706FB1A876132B21D6AF33BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ B1 - Gods of Babylon(   Читать дальше...   )Жанр: Progressive, G
 ```bash
 magnet:?xt=urn:btih:11AE5B0D3663E69980224660A739910366C09EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ A4 Capture Of Fire(   Читать дальше...   )Жанр: Death, Doom Meta
 ```bash
 magnet:?xt=urn:btih:D7C4217F949E17F13F253737210D4124E05CB6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

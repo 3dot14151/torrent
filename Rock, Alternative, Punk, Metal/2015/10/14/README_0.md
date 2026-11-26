@@ -22,8 +22,7 @@ Lord - Ascendence (2007) [FLAC|image +.cue]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:1E21EEDD1AE861ACB0BE10DCF7D148711D1120A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Akashic - Timeless Realm (2001) [FLAC|image +.cue]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:386E0788FD03C41B34B7E9868F6C0F5831FAFC09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lord - Set In Stone (2009) [FLAC|image +.cue]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:C7B7E896B2177ECDFF025861C9974BAE0496B5F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lord - Digital Lies (2013) [FLAC|image +.cue]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:5F7AA30838712276C96B5ACCE8B37128FB615300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A87B6E796EC45D370D6AC99CB1B2EA188AB1C9E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ P.O.D. - The Awakening (2015) [FLAC|tracks+.cue]<Alternative, Nu Metal>
 ```bash
 magnet:?xt=urn:btih:E901A6DF57C656A67C746507BF30F37687F28EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ F.P.G. - Сквозь ненависть (2015) [MP3|320 кб/с]<Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:4E5E3608FC2495CAB076472974E0CE4059D21818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Deep Purple ‎– Hit Collection (2000) [FLAC|Lossless|image + .cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B432B4324BECA6E29F9314FE38DD582E6A0B3CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

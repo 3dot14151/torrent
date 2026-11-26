@@ -19,8 +19,7 @@ Dropbox 18.4.32 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:02251B0291012DC3BED15530B595E7F02DF12AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mail.Ru Cloud 15.06.0853 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3E4294A752CF1D648F648AD9A440623B4204958E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

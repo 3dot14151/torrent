@@ -19,8 +19,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 ```bash
 magnet:?xt=urn:btih:BC5955F3B88D38A19E97F726405BEA5D09BA8F62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Repack FitGirl [Complete
 ```bash
 magnet:?xt=urn:btih:6FBBBE8D4F8A23393BB94A8D0E16457F4BA7B66F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BioShock Remastered Dilogy (2016) [Ru/Multi] (1.0/1.0.122864) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:313157938F19B5A6D90906C35BC7998269FC7B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:7665346EA6148AFDB224728564840E2C78610BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D7CC44969B745F3A32CB880C67D9FD433452A08C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dark Sky (2024) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:A0A2B5BB912F0D5542EA567E3038DE87BFE63B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital
 ```bash
 magnet:?xt=urn:btih:FB88F26BD640E0C43A7503419568E12BE21A9098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dwarven Realms - это ориентированная на действия 3D 
 ```bash
 magnet:?xt=urn:btih:A3CB85BE288CEF69B273DDF18801C5FEEE84529E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Stretcher Men (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:64819539D081C7CDC2D48C7382C1CBD45B82D664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

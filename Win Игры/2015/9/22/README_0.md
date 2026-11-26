@@ -19,8 +19,7 @@ Catacomb Kids - ЖЕСТОКИЙ рогалик о юном пареньке, н
 ```bash
 magnet:?xt=urn:btih:889D6001D911DC23912AA7DB102F6C3D8315116F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

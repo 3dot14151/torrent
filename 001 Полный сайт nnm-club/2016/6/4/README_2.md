@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:89CE72D918903C2E3BCC5534352B6E263774B603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2B8E15A5976F0B7F61B8BA5E0D74C7971BA6131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:4DDD331FEBBAE02EE1AD63AB07D33A8CECA66808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Soft4Boost Document Converter 4.4.9.347 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:40C1B19002AD7DC4587851F839E2F31D63DB772B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:356ECA682BE6F866C05ADFE537F03C8AB70D5978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF901E52D53590964268F2CCFB2346BA1F7F76D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Garbage - Strange Little Birds (2016) [MP3|VBR 213-239 кб/с] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:3F6AC761C49048480C2FEAA72C6B0D9CE94FF928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33ECA8F8B078E95B60E808642BC3DD08C536D5EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04D21C0B0274FF14C20F38DB6C4BEBD943CF9C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ VA - Monstercat 027: Cataclysm (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep, F
 ```bash
 magnet:?xt=urn:btih:F6DB95C9AB72E76277E25833012C86003B9B14E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ SMARTReporter – утилита для диагностики состояни�
 ```bash
 magnet:?xt=urn:btih:BA4BB3D8AA4DBF6B9531680AAFC9072CC4CF5273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Soft4Boost Secure Eraser 4.0.5.367 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C8C3F454D4F4F2C10B9AD825939FDEAB0CC4E03E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4592EFB6180B487C3AC3F09BDF7DE2D9099EBEDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Soft4Boost Toolbar Cleaner 4.5.7.301 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9A6159D850DC982C1F993915E4F990063B802528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Panzer IV — под таким названием эта боевая маши�
 ```bash
 magnet:?xt=urn:btih:DC65A3538C26376DE5A5D1B4AB4206E1D0AEEC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:E5EBF3415F851503E11ADD9A5D8A0EDC9C8B00FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ VA - Messenger Of Licht New Age Enigmatic (2016) [MP3|320 кб/с] <New Age, Amb
 ```bash
 magnet:?xt=urn:btih:33C8701EF2C1D221AAD82A624544250FFDC0B6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ VA - Rautalanka Cocktail (2006) [MP3|320 кб/с] <Instrumental, Guitar, Beat, R
 ```bash
 magnet:?xt=urn:btih:4D4F774827B6F325BBE8FEC958E5EB9FD907C35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2CDEEF711D0158A455847D8F046EF0B96AB4C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ Soft4Boost Update Checker 6.7.5.345 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:43A8DD5DD044C466D3E71B5AB31BC0210A3573C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FCCA0FB82F0E45978797B46BC4D5FE564A85FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0532B197B7A198A29B2C9CA2F3418E5E8D42E855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DA763927DA81766FAD89013DBD6FA64BCE42BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ VA - John Digweed - Re: Structured (Bedrock Records) (2015) Box Set [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:DB9133C95510996B33B0BC38EF8FC0FC060F23BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ Ramin Djawadi - Warcraft (Original Motion Picture Soundtrack) (2016) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:343460A3663483F24359F5667E112126E0B1B24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ Agressor Bunx - Colony (2016) EP [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:080C5A91775596CB7AE5D18B215F7FD6B9886C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

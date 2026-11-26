@@ -18,8 +18,7 @@ Stellaris (2017) [Ru/Multi] (2.8.1.2/dlc) Repack xatab [Galaxy Edition] (обн�
 ```bash
 magnet:?xt=urn:btih:55C90338EAE0AF691A2F7E6A536725EB9889D19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7D75CF7D47F308E3A5A25B7B7FC82D29E8230DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aquanox Deep Descent — это шутер от первого лица с по�
 ```bash
 magnet:?xt=urn:btih:A34AF81260C2367AE84336350F9FD2EAD8A10B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

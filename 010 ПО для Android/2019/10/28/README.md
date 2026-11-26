@@ -19,8 +19,7 @@ Spektrel Art  экстравагантный потусторонний пока
 ```bash
 magnet:?xt=urn:btih:D66397EC0AF32144D5DA6F4042B5FB73BB684CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grungetastic позволяет обработать ваши фотографи
 ```bash
 magnet:?xt=urn:btih:22CFE381A3917632062C676C5613BB814B1804C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A540F6CD7EC0227384D47407D34C1BC8993BC933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DomoMeter — программа для учета коммунальных пл
 ```bash
 magnet:?xt=urn:btih:A4CAE6BE420F384E7078D6F4D5D829798320B5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

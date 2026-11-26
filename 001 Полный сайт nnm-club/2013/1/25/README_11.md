@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:8B5425341BA21424D2A37D79E3246CB9F9740B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Max Payne 3 (Patch/NoDVD/1.0.0.113) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:5A03F64A39A709BE7A2EDDB7B84677210E310D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ DmC: Devil May Cry [En/Ru] [Crack] 2013 | Reloaded
 ```bash
 magnet:?xt=urn:btih:4B26C1F9286AB03C6323B073BDBBAB3978478952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Redmond | Мультиварка Redmond RMC-M90 - 200 рецептов [2012] [
 ```bash
 magnet:?xt=urn:btih:B47339C7FED84666A974C863015B60631FA808B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4ECC5DBB00F751A2D3947982A644F15A97A7CA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F24ED03698E36B4CCA618DC9A990966E2141B9CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Ace Combat: Assault Horizon - Enhanced Edition [Ru/En] (RePack/1.0.117.128) 2013
 ```bash
 magnet:?xt=urn:btih:DA2B7FE84037603AAC9DB490EF0CBAC79CAB14B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ DmC: Devil May Cry [Ru/En/Multi10] (L) 2013 | 3DM
 ```bash
 magnet:?xt=urn:btih:CD00179B730AA6F15523785AF11F4F839877B946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ Ace Combat: Assault Horizon Enhanced Edition [Ru/En] (L) 2013 | *FLT*
 ```bash
 magnet:?xt=urn:btih:08F58C1547E2E0FA11E16638C073BD3355069C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ PSD Codec позволяет напрямую просматривать фай�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Win8PE + (x86) by Xemom1/Ljhvb [Eng\Rus]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru/En] (RePack/1.6/DLC) 2012 l R.G. Or
 ```bash
 magnet:?xt=urn:btih:F1FE8B2FA15CBD7E71F53F47CD48DB0868C74A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ G Data InternetSecurity успешно защищает от вирусов и �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6C6CEB3C486028220785036138C73D992E82BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Wainakh XP 2013 Pro SP3 Volume license (x86) Русская сборка.
 ```bash
 magnet:?xt=urn:btih:C17627D1E45129284F2D97199259027EBFB07720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ DmC: Devil May Cry [Ru/En/Multi10] (L) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:5B4BDF9D539E4AFD2C095DFD2839145581E1E291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ KMSnano 16 - решение для активации Windows 8, Office 2013, Wi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ Phineas and Ferb: Across the 2nd Dimension [PSP] [FullRUS] (2012)
 ```bash
 magnet:?xt=urn:btih:8EA7F7E71368C31972103DDC00C3A27C0829CE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ Miner Wars 2081 [En] (P) 2012 | *FLT*
 ```bash
 magnet:?xt=urn:btih:97F1008C491BFB3A2C612ECB8C05061FFCBC2D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41CBDEB580DABCF06B1D4FF2E45486C6D02E56BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ Paragon Hard Disk Manager - многофункциональное и удобн
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ Ace Combat: Assault Horizon. Enhanced Edition [Ru/En/Multi9] (Steam-Rip/1.0.117.
 ```bash
 magnet:?xt=urn:btih:18DC1DAF1B9B1139A7239CC3EF996C3A170A48AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ PowerDirector 11 — новая версия мощного видеоредак
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

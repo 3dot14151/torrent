@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C3ADE9FF419AA44092280EA556F3B45B3169F1C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 ```bash
 magnet:?xt=urn:btih:D34B7BE823D8BD9D853283B882CD6F009E98812D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Project IGI: I'm Going In [Ru] (RePack) 2000 | Pilotus
 ```bash
 magnet:?xt=urn:btih:D1965C81644E88FE68C5450ECF3B7448EA512E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 ```bash
 magnet:?xt=urn:btih:719735D19A60E1012B60C23F6715E2435378476B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Vangers: One for the Road / Вангеры [Ru] (Rip) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:ACC618AAA10A0EE01CB2C9BDD832AAE02A5D9B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Disney's The Lion King [En] (RePack) 1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:44BE1587BB8AD2A4425558929097B1A30D40BECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ TechnoMage: Return of Eternity [Ru] (RePack) 2001 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Lords of the Realm 2 & Seige pack (RePack) [Ru] 1996 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Voyage: Inspired by Jules Verne / Жюль Верн: Путeшествие на 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Betrayal in Antara [Ru/En] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:899CF8EEA7A6ABC8FE9C5EDA20C1950F3AA26734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Disney's The Jungle Book [En] (RePack) 1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A10F77FA6E7DF0E6FBEC0208A6DDD9EC7BD7C872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Bang! Gunship Elite [Ru] (RePack) 2000 | Pilotus
 ```bash
 magnet:?xt=urn:btih:BE59748BB30D99FBB5EAD20CDB037029B2E24C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Clans [Ru] (Rip) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:2E5910B7BEF6413DF5182C8477D31D6A4C1F9692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

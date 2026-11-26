@@ -19,8 +19,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack dixen18 [Annive
 ```bash
 magnet:?xt=urn:btih:12FEF07B85126A874BE412C16D1C477DA4F996DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nine Noir Lives (2022) [Multi] (1.0.3.1) License GOG
 ```bash
 magnet:?xt=urn:btih:A4D177851C5640B87B7E6C152AE679CFEC7439C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Callisto Protocol (2022) [Ru/Multi] (14745831/dlc) Repack Decepticon [Digita
 ```bash
 magnet:?xt=urn:btih:016B33B80A99DD643F4F6E70A237715A7B6ED4E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dakar Desert Rally переносит пользователей на пусты
 ```bash
 magnet:?xt=urn:btih:6306DC5ED853CEB7EDA6665276D583576E375D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Contraband Police - симулятор пограничника от перво�
 ```bash
 magnet:?xt=urn:btih:4B878178EAD53D06FC1DD31AC784054538D7073F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Highrise City совмещает в себе элементы как строи�
 ```bash
 magnet:?xt=urn:btih:9458CB3CF6DEB5A43596C1B49718A5905D538547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Motordoom - это спортивный фристайл-шутер, сочет�
 ```bash
 magnet:?xt=urn:btih:35CCA608A9918773F1F5A0C3531000EBC4EFD6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Bee Island (2023) [Ru/Multi] (20240805) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E453424909CA5FD734E2AB074ECFE7B48EDDAA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Troop (2023) [Multi] (Build 15201092) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2605A34DCEF9CE32123FD89C2C259C67DAEFE7A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ World of Goo – основанная на реальной физике гол�
 ```bash
 magnet:?xt=urn:btih:CE41427346EB2C22A2809BBD9F82F20EC4D28580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Tour de France 2024 (2024) [Multi] (1.7.2.924/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6875AFB04F8AB6E5283EED829281F0C4F9CA9D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Kanon (2024) [Multi] (1.2.0.3) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8A8ADBA4967016EC6DA81115DAB228D2D2BCCDC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ MeteoHeroes (2022) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F6D03D0F2975AACBF40B860F45056FDA2FE9C5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

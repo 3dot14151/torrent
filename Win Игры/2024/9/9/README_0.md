@@ -19,8 +19,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B5403D33B4048C9550F1BB18D1490B3AF1259AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Northend Tower Defense – динамичное приключение, собы
 ```bash
 magnet:?xt=urn:btih:E58EDB6FFD10A2411556760494A7563618322498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

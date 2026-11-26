@@ -19,8 +19,7 @@ Scrivener — мощный текстовый редактор для тех, к
 ```bash
 magnet:?xt=urn:btih:C5EAC6A631E47158FF25EEC18BBDCE80EB8C0AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

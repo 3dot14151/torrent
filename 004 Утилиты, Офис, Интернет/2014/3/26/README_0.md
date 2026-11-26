@@ -19,8 +19,7 @@ CheckMissingFolders 1.6.7 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:59EAA75F73662880E5A8FFD38C64D3BC47A927D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

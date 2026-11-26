@@ -19,8 +19,7 @@ Time Dreamer / Путешествия во снах (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:E2710DCD9B5908097C80F09A9C46C9ECBC5909A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mary Kay Andrews: The Fixer Upper - игра основана на бестсе�
 ```bash
 magnet:?xt=urn:btih:756E92D06D5FE58D1DBF6F6E5BEDD32567A8F88A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

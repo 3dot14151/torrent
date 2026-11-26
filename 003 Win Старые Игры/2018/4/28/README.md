@@ -19,8 +19,7 @@ Loom (1990) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1D59A5A8DEAD20C8D1BF18128F6B29E9C9973C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

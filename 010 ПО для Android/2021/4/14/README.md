@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:FFF99F4F6F21B55A9C56A0C095F10F5B1641B3BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ FIMO фиксирует красоту и волшебство старинны�
 ```bash
 magnet:?xt=urn:btih:74DC8F253AC44CAE884DB05A0E3654774ED7F42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Stoxy помогает эффективно отлеживать рынки ак
 ```bash
 magnet:?xt=urn:btih:E46C074F19D84844F925AFBFFAB62707144AF270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ DiagScan позволяет вам считать коды ошибок чере
 ```bash
 magnet:?xt=urn:btih:1DE344A7DCE924DC0C7D3B1B7811D2C14F3B0ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ KMPlayer Plus v31.04.120 [Ru]
 ```bash
 magnet:?xt=urn:btih:D67E976A15299B7AB2891D9B8766DFA71081C1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

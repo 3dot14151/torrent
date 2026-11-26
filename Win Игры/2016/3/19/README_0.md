@@ -19,8 +19,7 @@ Mountain Trap 2: Under The Cloak Of Fear (2016) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:92138EA4210FE977A6E76F3488794C6E8C7D45F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fear for Sale 8: The House on Black River (2016) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:D589CE14980370F26A9D6DAB24975FC36726A2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Endless Fables:The Minotaur's Curse (2016) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:3A78DE1B908D6013F8C0A48EE1C47D094EB1A910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Amaranthine Voyage 4: The Obsidian Book / Вечное путешествие 4.
 ```bash
 magnet:?xt=urn:btih:FA35D5E74F05CBCDE627548080E427FA2D791F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Shadow Wolf Mysteries 6: Curse of Wolfhill / Призрачная тень во�
 ```bash
 magnet:?xt=urn:btih:FB30968CCAF543453F6E29C73FE6520457B1E2A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

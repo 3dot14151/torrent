@@ -25,8 +25,7 @@ Father Golem - I/O (2012) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:D2499B9B25C988CBBA918AFBB257FCCAD05537E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Lumicrea - Lumicrea (2009) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:370DDAC7D40D239A929F3881C078D813DB82425E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Full Of Hell & Merzbow - Full Of Hell & Merzbow (2014) [MP3|320 кб/с]<Powervi
 ```bash
 magnet:?xt=urn:btih:BD59C5649299EDE4C5450303B5002C3AA68B2B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:511242C245A791C88E18DA25DC5C2D244E37C623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Mago De Oz - Ilussia (2014) [FLAC|Lossless]<Celtic/Power/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:814D5B2BA9E4A98305AF7EEEF18F4A9C72A411AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Knighthood - Bad Habits (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:23D8C78524B5810E45966DFE4976F48973AD7321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ VA - Rock classics (Best of classic rock) (2013) 2CD [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:0EE136FBA495A67D2BAD45ED4B2BB70C276CB5EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Tommy Bolin - 9 альбомов (1972 - 2008) [FLAC|Lossless]<Rock, Blues Rock,
 ```bash
 magnet:?xt=urn:btih:307DE88416B1DAB25831FF23C6750548699FA553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

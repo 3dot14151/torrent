@@ -19,8 +19,7 @@ Dr. Folder 2.3.0.1 RePack (& Portable) by Trovel (with & without Bonus Icons Pac
 ```bash
 magnet:?xt=urn:btih:EB11D20A7BC2F9E29B5F86FC3B86D615D5CCB639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Proxy Searcher - актуальная в наши дни программа, к�
 ```bash
 magnet:?xt=urn:btih:8D067C045BC2CF81FAB889F35D79B570D5E9D7A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

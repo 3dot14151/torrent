@@ -19,8 +19,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (Build 2975-A/dlc) License 
 ```bash
 magnet:?xt=urn:btih:C80862ECD1572FD6D39F2B7A3B67532515B4B3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Andersen Accounts: Chapter One / Досье Андерсена: Дело №
 ```bash
 magnet:?xt=urn:btih:A94268485876E8927514FF392B6975ACF9F74909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Asking Alexandria - Life Gone Wild (2010) [MP3|320 kbps]<Post-HardCore / Electro
 ```bash
 magnet:?xt=urn:btih:A844D44506B4DAE9F4D46530C3D36D5405A2E0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

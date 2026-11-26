@@ -21,8 +21,7 @@ Bülent Ceylan (Bulent Ceylan) & Doro - Wolfsherz (2026) Single [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:9D77D67375B5CAAA5D8ECCA49D244780CCAB3FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ CD1 - Kiss Of Death 20th Anniversary Edition:
 ```bash
 magnet:?xt=urn:btih:83BB55DC5924FAF3C86E841448CC5F6F75B94A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Epifisis - Heavy Metal Maniac (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:4212B2F26A6C8EAEB705AE6258F3E328B098F1C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Motionless In White - Decades (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 ```bash
 magnet:?xt=urn:btih:666A0CB88E896FB50DA313FC34B2C5A443605EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Motionless In White - Decades (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Altern
 ```bash
 magnet:?xt=urn:btih:82D15F4C6A0D82B2F131E836B7095BBBD81FA493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Psycroptic - The Pulse of Annihilation (2026) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:3EBD07F457346619317BA3E97FDD164A6F2F7823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Haken - in a fever dream (2026) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Progress
 ```bash
 magnet:?xt=urn:btih:C9C7E4DFEBBDF800F48DE3422CDDD5462F4D9613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Protest The Hero - Within (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressiv
 ```bash
 magnet:?xt=urn:btih:E6BE745DCEE3BFE998C9B1C2FAF3C7364E64264B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Loathe - A Stranger To You (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressi
 ```bash
 magnet:?xt=urn:btih:455793DE8373D0288C9A7FC887FA7D85A7762C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

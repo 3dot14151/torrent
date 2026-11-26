@@ -19,8 +19,7 @@ Fitify: Фитнес тренировки дома 1.71.1 Mod by Balatan [Ru/En]
 ```bash
 magnet:?xt=urn:btih:126FC88CAF16D78CDCFF07CA2194A5A53EBB1489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:3B2D792AA35A2A76A14D562221EC45590055449A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Microsoft SwiftKey — это интеллектуальное приложен�
 ```bash
 magnet:?xt=urn:btih:4D15F80F7891B3F3BF8EB549C6E60033EC9D26B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

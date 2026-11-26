@@ -20,8 +20,7 @@ USEXY Special Edition - специальные выпуски журнала USE
 ```bash
 magnet:?xt=urn:btih:EE93B73769921360869AE88BF2878E63656B69A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06D18CB41DD3C0E69102574DA82ED707B43193E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ USEXY Special Edition - специальные выпуски журнала USE
 ```bash
 magnet:?xt=urn:btih:465919B98EB217D8FF2FF7A29661299C73D5C2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

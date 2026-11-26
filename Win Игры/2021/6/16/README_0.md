@@ -19,8 +19,7 @@ Lumberhill (2021) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C4F3253D00A3A4D6B70BD9D5A26D82921F533250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

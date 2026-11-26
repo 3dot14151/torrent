@@ -19,8 +19,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.14.0.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:CF3E18A7838A4404D7802904334FB018A8F7B1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Elmarion: the Lost Temple (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D192F3549B04131E3ADFFB2BD296FEE711AD6C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Exophobia - пиксельный шутер от первого лица, в к�
 ```bash
 magnet:?xt=urn:btih:6D79864C81D4AA2B9A5A208AFA6A889E2638A0AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Anima Flux - это кооперативная метроидвания про �
 ```bash
 magnet:?xt=urn:btih:7C181E6C34411D4062E1049AAC6608590F606870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Espresso Tycoon - это совершенно новый подход к ста�
 ```bash
 magnet:?xt=urn:btih:251E252AEE868E542EBB1DBA3F9B6337ED6B4EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

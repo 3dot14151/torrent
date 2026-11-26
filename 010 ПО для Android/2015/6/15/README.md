@@ -19,8 +19,7 @@ Runtastic GPS Бег 5.11 [Ru]
 ```bash
 magnet:?xt=urn:btih:3FB6AA533FC0F3C1BA1340098311D9454CEFF9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

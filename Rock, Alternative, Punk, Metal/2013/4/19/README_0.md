@@ -23,8 +23,7 @@ Progenie Terrestre Pura - U.M.A. (2013) [MP3|320 кб/с]<Ambient, Atmospheric B
 ```bash
 magnet:?xt=urn:btih:635C14B1B3CEA4C3B23090B5FA41DEE7B792E356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Affiance  - 2 альбома (2010-2012) [FLAC|Lossless]<Melodic Metalcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Doyle - Abominator (2013) [MP3|320 кб/с]<Horror-punk>
 ```bash
 magnet:?xt=urn:btih:8E615573375D87607F97E3B0F763F3B11F5614C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Heaven Shall Burn - Veto (2013) Ltd. Edition, 3CD Box Set [MP3|320 кб/с]<Melo
 ```bash
 magnet:?xt=urn:btih:D6A3C3BE38B227087E95B539BCE0D53699843F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Amorphis - Circle (2013) [MP3|320 кб/с]<Extreme Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:F43424515B9D57DE1E2400D716E7A2C0CC674626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ CD.1.
 ```bash
 magnet:?xt=urn:btih:C86413BD8892639A2B15059F683E5B466EE4C8C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

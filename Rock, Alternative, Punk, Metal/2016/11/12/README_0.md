@@ -22,8 +22,7 @@ Magoa - Imperial (2016) [MP3|320 Kbps] <Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:1BB57FA59BC2150844675D96CD3414BB29536DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mekaora - Elysium (2016) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:5E89CA3B0CF965B567A0138758C9D67BE3734F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gift Giver - White Devil (2016) [MP3|320 Kbps] <Technical Nu Metal>
 ```bash
 magnet:?xt=urn:btih:DE30CF632169767B5C57E4F44EDB206F5CA11105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Freedom Call - Master of Light (2016) Limited Edition  [MP3|320 Kbps] <Power Met
 ```bash
 magnet:?xt=urn:btih:22818E7B7E040CD49D6AF926547A6C91CC3EE678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Overdrivers - Rockin' Hell (2016) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:391D3D15BDF6024360216B47877AFB65C0EDE325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Glenn Hughes - Resonate (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:0067FEC74C108C6AAA17C78ECA84E239304DE9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F3CAEAAC6A19731ADA6E1010293B3417D7BD584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Tony Carey - 3 Albums (1984 - 2008) Remastered, 2008, Renaissance Records [FLAC|
 ```bash
 magnet:?xt=urn:btih:27A9FE9A47CB6F7CB6EDE4E77BA1E8CE8672135D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ In Flames - Battles (2016) Limited Edition [FLAC|Lossless|image + .cue] <Modern 
 ```bash
 magnet:?xt=urn:btih:5EB44E4C83DCB050A5A796301EC268C1FC393136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E5AE6BD71941FDA4F8E8951DCDB81FDCC9ADD8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Korn - The Serenity Of Suffering (2016) Japanese Edition [MP3|320 кб/с]<Alter
 ```bash
 magnet:?xt=urn:btih:0D6B82B8947EC5FC5B0C23E6BD3E2E7894BDBAD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

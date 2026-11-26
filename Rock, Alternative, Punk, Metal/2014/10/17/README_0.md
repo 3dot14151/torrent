@@ -28,8 +28,7 @@ Divine Fits - A Thing Called Divine Fits (2012) [MP3|320 кб/с]<Alternative/In
 ```bash
 magnet:?xt=urn:btih:32D17A8F27EFADF85E77F56EEF80D7419A5BC1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Mob Rules - Timekeeper: 20th Anniversary Boxx (2014) [FLAC|Lossless]<Melodic Hea
 ```bash
 magnet:?xt=urn:btih:0BB6102D21E95CAD7861CB71829C48DDF22662A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Dreadnox - The Hero Inside (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1F08C419B7C04B0BF37D3AABFCC4459EA2F579A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ OK Go - Hungry Ghosts (2014) [MP3|320 кб/с]<Alternative/Indie Rock, Power Pop
 ```bash
 magnet:?xt=urn:btih:5B063E8D586FFCA0620B07A7E72C883B3B215850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Pink Floyd - The Heart of the Moon (2009) Bootleg 2CD [MP3|320 кб/с]<Progress
 ```bash
 magnet:?xt=urn:btih:DFEECEA796BB22E9693F40408F5AE6DE5D43D144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

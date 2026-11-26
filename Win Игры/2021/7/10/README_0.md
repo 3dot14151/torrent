@@ -19,8 +19,7 @@ Police Stories – это история о двух полицейских: Д�
 ```bash
 magnet:?xt=urn:btih:C3E896CA8C9C6F2B92D2E31F6A9E3B0F4EE11173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Moonlighter (2018) [Ru/Multi] (1.14.37/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:1BCF8492E72BDAB4E5167AA836146AA88A12A3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

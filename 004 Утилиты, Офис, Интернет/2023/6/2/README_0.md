@@ -19,8 +19,7 @@ AIO Boot NewGen - это мощное программное обеспечен�
 ```bash
 magnet:?xt=urn:btih:267D20D95D20DF8C1B6B32E12F716FC835ACD88A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

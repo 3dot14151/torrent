@@ -19,8 +19,7 @@ Farzin Asadi | Circuits Laboratory Manual [4 книги] (2023 - 2024) [PDF] [En
 ```bash
 magnet:?xt=urn:btih:A962FD794F73E7371CF8FC29C13C90D40E581763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dogan Ibrahim | LTspice Essentials: An Introduction to Circuit Simulation (2024)
 ```bash
 magnet:?xt=urn:btih:B32018BCD502308FB96104BE5B95DF6CFE349D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D265618B02871FD231437F7D32525EC3A3CE204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

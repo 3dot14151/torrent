@@ -19,8 +19,7 @@ Network Security Toolkit (NST) 30-11210 [x86_64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:65293F81A700857712493BB845F75DCB02EF3132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Paul Quinichette - Basie Reunion (1958) 2000, Original Jazz Classics [APE|Lossle
 ```bash
 magnet:?xt=urn:btih:EE1C21031F4AED23B4D28836D9CE4F942419454C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - 5 Years Of Futura Groove Records (2018) [MP3|320 Kbps] <House, Tech House>
 ```bash
 magnet:?xt=urn:btih:C941A5238705224FDBEED771A57BE86FADDEA252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Thomas Rossetti - Feel Nature EP (2019) Maintain Replay Records [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:872C0A3CF1803C26A5136A35A72839AC5F46C739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Iron Goddess: Experimental (2018) [MP3|320 Kbps] <Ambient, Electronic, Down
 ```bash
 magnet:?xt=urn:btih:6CAE5691E46D32437E2BB3E5D21C9951971442E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9DF0B17E6DD0B06DAA5387A2F512A37CE65B9A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ William Shatner - Shatner Claus (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:E5E5EA8F4F5D11944584D131D6FF3ADD87315400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Devil's Hand - Devil's Hand (Ft. Slamer - Freeman) (2018) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:907E0949E3A3A93DD7A5AA6A3AE5351527ECC547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E56CD9C6A0DD444417B629901536268676726DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC0ABD5E780B14D6D86EC3AB23245F6C3B400DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Thore Pfeiffer - Umland (2019) Savvy [FLAC|Lossless|WEB-DL|tracks] <Ambient, Exp
 ```bash
 magnet:?xt=urn:btih:3BB3F1D637D4FCC906E17535D5C939E852F5119A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ VA - Alpine Grooves X (Kristallhutte) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep
 ```bash
 magnet:?xt=urn:btih:49CAE218325FFB723F5F7413AAA0250DBBDC406D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Drive by Wire - Spellbound (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic, St
 ```bash
 magnet:?xt=urn:btih:116841A0EBC9653CEF504B407BB37CC493FDDF6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ David Wilson - Romance of Christmas (1999) Swallowtail Records [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:E08FB082DFBD7D31D9B772D84996AA600D8DB854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ David Wilson - There's A Small Hotel (1997) Swallowtail Records [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:622D88408B66E9E37B9216D952BAB87A12DA44E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ David Wilson - Easy to Love: The Music of Cole Porter (2001) Swallowtail Records
 ```bash
 magnet:?xt=urn:btih:3798AF354D56AA7617DFCD68432B2AC66DBA5370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88BCAB1C1DA901A78EF89DD986A5D77BBE5A0850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Jack Jezzro - Christmas Jazz Guitar (2018) Green Hill Productions [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:D7ADD360BE40F75F5A9D6C1240D0406BBAB6A34F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:0BC45304BF5CAE5BD27F5626DCA87875CA8FF946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ Toro y Moi - Outer Peace (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie Pop,
 ```bash
 magnet:?xt=urn:btih:A9EC386872AB93F2C6AE705806E66CAD453AA143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ VA - Classic Car Dance Hits 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:9B06CB69CA40B32C035DF7FAFEE486B16E2D24E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ Paul Carrack - These Days (2018) Mike & The Mechanics [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:8E72897333C6DEA7FF4FAEA4447ECDFC48EB5498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ Wondershare Filmora 9.0.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:69C3D08238DF9070B699E39CDA9DF6C1ED333257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ Tammetõru (Tammetoru) - 2001​-​2009 (2018) [FLAC|Lossless|WEB-DL|tracks] <I
 ```bash
 magnet:?xt=urn:btih:CDE8AE34FC98F194BC9A4C2930F6244A0DDC1048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ VA - Partybreaks and Remixes - All In One October 003 (2018) [MP3|320 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:DEC5F2C76274A724AD76EC85C584EAC6E5F44191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ John Legend - A Legendary Christmas (2018) [FLAC|Lossless|tracks + .cue] <R&B, P
 ```bash
 magnet:?xt=urn:btih:2995C320BE90F1C772B30D31AE5828E11A2DF2A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ Philip Wesley - The Magic of Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 ```bash
 magnet:?xt=urn:btih:DF029B88C1E25A0C0A4DDC1DF8ABCDF34D415103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

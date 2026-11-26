@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5FDD49051B6D0C9AAD4FB7423844AF68BE65B595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Dreaming Of Sunset: Chillout Selection (2017) [MP3|320 Kbps] <Downtempo, Ch
 ```bash
 magnet:?xt=urn:btih:8A8E60429E4F0BA8C7AC3D49AE7CBEBB5886FAD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:939E3201476668F3C3F91A76F41E80A947F67348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Startail - Artist Focus 66 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:88BBF5164A667C5F891231D8FA1B60AFC65D4CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Modern Art Of Easy Listening Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:7BC2B884C215445209DAAE5ADCCFD08A87D68547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Cookie  - Программа для полного удаления cookie-фа�
 ```bash
 magnet:?xt=urn:btih:F115C9FDB7A133ABF0792242CC655242FCFE4655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Miguel Zenon - Tipico (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary 
 ```bash
 magnet:?xt=urn:btih:6044FF9FD519CE17BDF1D4A8FB17C6257C2B4C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Lee Thomas Band - 40 Miles of Bad Road (2000) [FLAC|Lossless|WEB-DL|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:B2D2F240251E24235BE6B5079901ADF7C191A65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Duke Ellington - Stockholm, June 1963 (2012) La Maison du Duke [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:E929443F5E332C01785E004745C05066384B2F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ VA - Зимняя русская радиоволна. Версия № 3 (2017)
 ```bash
 magnet:?xt=urn:btih:C9125D21C60C06D01DF5CB1B54D77020A56126D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ VA - Dance Territory (2017) [MP3|320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:5A28327A1A8645209BAD2F27FB2917D3409466AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Jose James - Love In a Time of Madness (2017) [FLAC|Lossless|WEB-DL|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:5FCDB494FDB85D364B474052415D66049D8EA144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEACC73621C0045A1DFFBE0F02B72D8E79C44BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ VA - Dixieland Planet: The Best Of Dixieland (1998) M&A Group [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:A000C621E801D7DFE362B7A6DB46AFE4DAA3C139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Ron Trent - Prescription: Word, Sound & Power (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:EC42E2BB6C51E594C6AD4F78C124AC32C55D12FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Baker Street Blues - Turn Up the Heat (2016) [FLAC|Lossless|image + .cue] <Blues
 ```bash
 magnet:?xt=urn:btih:9D136032BEED1077F82B22FBA8E50DF12CFD474D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ Cameron Graves - Planetary Prince (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <C
 ```bash
 magnet:?xt=urn:btih:84A98140862272D297A1BA3ADF95996791D41EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ VA - Top 100 шансон зимний выпуск № 7 (2017) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:6B081D8989483056AB8F0E2D33DF555359BE11B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ VA - Disco Edits: Vol.XIX (2017) [MP3|320 Kbps] <Disco, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:944D64E6F030EC24C7A8DABB261F3D3B5E762609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ VA - Лучшие блатные хиты года на Шансоне выпу�
 ```bash
 magnet:?xt=urn:btih:F60C2120D35C2A958EB6E787A1C7CDF46E29B15A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C0E8C7679588F5E5C3DDE49A1B1C246F6B9D5AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:806A1E80128E88495B813C719748E52ADEEE2A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C39DC946370C77F84CC32DDAD720754706B981A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ VA - Club Dance Ambience Vol.103 (2017) [MP3|287-320 Kbps] <Dance, Club, Club Ho
 ```bash
 magnet:?xt=urn:btih:1B07B709C4594CC6F1AB8A2679E293B00AD71A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ Tower - Titan (1982) Reissue, 2010, CNR Music [MP3|320 Kbps] <Pop Rock,  Symphon
 ```bash
 magnet:?xt=urn:btih:F98F41FD2B63F89713ACB4D99BA71F6C97F8B5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

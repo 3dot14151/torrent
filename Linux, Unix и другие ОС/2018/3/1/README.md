@@ -22,8 +22,7 @@ NAS4Free основана на ОС FreeBSD, поддерживает обмен
 ```bash
 magnet:?xt=urn:btih:1B6FDF2CB8206998E3DBBAA77B5A612F1E5601F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

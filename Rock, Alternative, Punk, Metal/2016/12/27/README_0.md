@@ -22,8 +22,7 @@ Hollower - Forking Paths (2016) EP [MP3|320 Kbps] <Progressive, Technical Metalc
 ```bash
 magnet:?xt=urn:btih:A0160836242662C09229940F0607C86FBB31C719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Captain Ivory - No Vacancy (2016) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:307DA7B89087552B1DEB8E301FB79DAB589D8546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Joe Brown - The Ukulele Album (2013) 2CD Deluxe Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:8032B7B2B463D8F35BF70503816524FD1AC48907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Devil Doll - The Return of Eve (2007) [MP3|320 Kbps] <Country Blues, Rockabilly>
 ```bash
 magnet:?xt=urn:btih:A4195528C8DD3E6EA70881059377F5DBBFD9921B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Neal Morse Band - The Similitude of a Dream (2016) 2CD [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:87B049E26AF84AF0B468DC7B29565410B7E28159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Neurotech - Symphonies (2016) [MP3|320 Kbps] <Industrial Metal, Symphonic Metal,
 ```bash
 magnet:?xt=urn:btih:F8B5F2D8C6F200F28EF39D61C4C78FCB364B32BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Devil Doll - Queen Of Pain (2002) [MP3|320 Kbps] <Rockabilly, Country Blues>
 ```bash
 magnet:?xt=urn:btih:18489187C4A4D492CB9ABED56FBF4E5F56D2B83D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Celtic Tribute to Led Zeppelin - Long Ago and Far Away (2007) [MP3|320 Kbps] <Ce
 ```bash
 magnet:?xt=urn:btih:6525D4A5FF54E94E79B937D66080073B346E49D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Naka - 8 релизов (2005 - 2014)[MP3|128-320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:6C985883DE92D60DE1160CC50CE0A3D07975F0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Alien Breed Impact - это взрывной научно-фантастичес
 ```bash
 magnet:?xt=urn:btih:9AFB15723E8602EA409AB817A430BBA76E99C1B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alien Breed 2: Assault - вторая глава в серии игр Alien Bree
 ```bash
 magnet:?xt=urn:btih:68018862E1069667340871E546A8BE2F1A176814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alien Breed 3: Descent - заключительная взрывная глав�
 ```bash
 magnet:?xt=urn:btih:617948CBEBAC2D4C84A975094D7951D952BE5AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

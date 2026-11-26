@@ -22,8 +22,7 @@ A4. Становитесь в очередь за мной (5:02)(   Читат�
 ```bash
 magnet:?xt=urn:btih:CB9DF6F41C7DB2AFED9DBC307CDCF51D06D307AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

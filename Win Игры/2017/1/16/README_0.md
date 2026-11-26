@@ -19,8 +19,7 @@ Professional Farmer 2017 (2016) [Multi] (1.3) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:6A92C784A00C28817FBB701716E7AE91A70B16E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legend of Merchant – симулятор торговца небольшой л
 ```bash
 magnet:?xt=urn:btih:F1F0227B418C0C161023A587636ABFF35E31FB95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mystery Trackers 12: Queen Of Hearts / Охотники за тайнами 12: 
 ```bash
 magnet:?xt=urn:btih:B04CC08A5DE6C719BC1DA8E65AFA4CFC4C3DF221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (16.0.20.1060) License PROPHET
 ```bash
 magnet:?xt=urn:btih:7C3DFB6AF52DBE57FEE772C1F306E62451AE2C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fantastic Fishing – бесплатный, виртуальный онлайн 
 ```bash
 magnet:?xt=urn:btih:0D2A4C2F76B240780BB0A7EE76E7AF5C9294CBBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Vikings: War of Clans (2017) [Ru] (575) License
 ```bash
 magnet:?xt=urn:btih:920A56D4B754ABA7BAA66CFD3662124A28B9AAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

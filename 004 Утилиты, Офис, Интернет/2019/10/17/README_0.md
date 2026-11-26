@@ -20,8 +20,7 @@ TogetherShare Data Recovery служит для восстановления у�
 ```bash
 magnet:?xt=urn:btih:3F273DCF0A7E4E48F637BC18B09B17591B206653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ AnyToISO Pro - это простой в эксплуатации и функци
 ```bash
 magnet:?xt=urn:btih:9188AD7F98583477D30CA0D743C989FEBD866879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ MyDraw включает в себя мощные функции, которые 
 ```bash
 magnet:?xt=urn:btih:16772E64328295D6DD34EE6641E8A8633FC27138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Becky! Internet Mail - это почтовая программа японско
 ```bash
 magnet:?xt=urn:btih:4659EE8C215514F225477311CAE1D9831EF50CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ TotalD Pro — универсальный менеджер загрузок, к�
 ```bash
 magnet:?xt=urn:btih:B396124251B49F53E8312D1F8064415526D05CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

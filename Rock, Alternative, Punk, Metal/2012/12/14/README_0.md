@@ -28,8 +28,7 @@ M-Pire of Evil - Hell to the Holy (2012) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Blutmond - The Revolution Is Dead! (2012) [FLAC|Lossless]<Avant-Garde Metal/Blac
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Red Moon Architect - Concealed Silence (2012) [FLAC|Lossless]<Melodic Doom Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ D'Ercole - Dreams Of The Heart (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AC75199032E280A042915D6A1A6EC84A00BDA2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Shining — шведская блэк-металическая группа, с�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Joe Lynn Turner - JLT (2003) [WavPack|Lossless]<Hard'n'Heavy>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Cytotoxin - Radiophobia (2012) [MP3|320 кб/с]<Technical Brutal Death>
 ```bash
 magnet:?xt=urn:btih:698286DA8B67540673554271177DECCDC3CB2B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ The Algorithm - Polymorphic Code (2012) [MP3|320 кб/с]<Progressive Electronic
 ```bash
 magnet:?xt=urn:btih:103B02578B16AA77CF7746F6316AAE67CFD22A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ Lynn Carey, C.K. Strong, Ivar Avenue Reunion, Mama Lion Feat. Neil Merryweather 
 ```bash
 magnet:?xt=urn:btih:64BEC7694F17F9FEFAF0681B75B479E62B3CE691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +314,7 @@ No Doubt - Push and Shove (2012) 2CD Deluxe Edition [FLAC|Lossless]<Pop Rock, Sk
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68A7FA4A223F7A0C48E9CF4EF3BA4B797BD662A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

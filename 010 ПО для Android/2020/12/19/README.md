@@ -19,8 +19,7 @@ Zaycev.fm — это радиостанция, которая работает �
 ```bash
 magnet:?xt=urn:btih:F1B15E0828C55474D552442901A50E1681D8B30B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

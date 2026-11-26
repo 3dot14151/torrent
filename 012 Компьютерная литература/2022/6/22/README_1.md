@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D568B2DFFD1978A806015E2F3BBBD1D29132CAD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ DrMax | SEO Монстр NEXT (2022) [PDF] [AD]
 ```bash
 magnet:?xt=urn:btih:15366AD7B1884A9DA8BBE065D3C5B06C6A5F5445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

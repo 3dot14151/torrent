@@ -19,8 +19,7 @@ Fear for Sale 6: Endless Voyage / Страх на продажу 6: Призра
 ```bash
 magnet:?xt=urn:btih:155246ADD53DDBA6BBC1220F822C4D04B24E57A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Labyrinths of the World 9: Lost Island / Лабиринты мира 9: Зате
 ```bash
 magnet:?xt=urn:btih:0A3917FD8F9E2561FE4C651F4981D4848610C424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Midnight Mysteries 4: Haunted Houdini / Тайны прошлого 4: Зага�
 ```bash
 magnet:?xt=urn:btih:C3112B78A53A5B1688FBE282D22E35334072E97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Don't Escape: 4 Days to Survive (2019) [En] (1.0.1) Unofficial
 ```bash
 magnet:?xt=urn:btih:C4B3977751F6274FF4C0509A614F8AEDB6C85730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:84CE2758FCF522270C64293EB9CEAC40A950F652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

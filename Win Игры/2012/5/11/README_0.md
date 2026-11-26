@@ -20,8 +20,7 @@ Astragon представляет новый симулятор управлен
 ```bash
 magnet:?xt=urn:btih:AD0421850092C5DDFDFAFA350DCC557B8AA7B5F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Dark Sector [Ru] (RePack) 2009 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:8A1042F20E26D0F2B8616A0521390F3ACF1274BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Live Novels. Jane Austen's: Pride And Prejudice / Джейн Остин. Гор�
 ```bash
 magnet:?xt=urn:btih:79E298C2D7CA6C063B2C4F0861BFE66C93884DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Snark Busters: High Society / Охотники за Снарком 3. Высше
 ```bash
 magnet:?xt=urn:btih:414365290C5FF231EC94557269C8EC827D8CAD8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

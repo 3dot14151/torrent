@@ -22,8 +22,7 @@ Mahogany - Mahogany (1969) Reissue, 2006, Walhalla Records [MP3|320 Kbps] <Rock,
 ```bash
 magnet:?xt=urn:btih:CE26C4DF8C273805023FD6107E3D5009F41EAA34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

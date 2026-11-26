@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:E1E781CCB4DF94AF42BEF384CE4E4566E70B29D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Zoner Mobile Security является современным антивирус
 ```bash
 magnet:?xt=urn:btih:F072E8D7DF58B20B8F98D672B1AD63A60D0917B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D98CB556AF560C4B2604D612DFC6A1C1817A7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ BitTorrent - официальное приложение на Андроид. Б
 ```bash
 magnet:?xt=urn:btih:02466855D3591C6F6AEC270EDEAF65D699DB7E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Librera PRO: Читалка для книг - это Удобное и легк�
 ```bash
 magnet:?xt=urn:btih:3D43BA2F6B908C004AA7136C025B4F70DE01A64B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

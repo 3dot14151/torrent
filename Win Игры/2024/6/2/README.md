@@ -19,8 +19,7 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.318.0.8/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:79F64FD1D5FD91A86845B265626290FB67D58943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (1.2.208) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C4B2161C4A59EFD340209D562E299FD40CE9D1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/En] (1.9.461/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:998E514892E9B383346CB65756E561625B94CF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Granblue Fantasy: Relink - приключение в просторах Небе
 ```bash
 magnet:?xt=urn:btih:4D11C8456E042AE78FCDC1D71B885CC18038CE56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Scene Rune [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:9D0C460B45D1F36DCB4B9BA3EEC9AA2827903EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Taboo Trial погружает в мир норвежской мифологии
 ```bash
 magnet:?xt=urn:btih:A634E5C0770DF75C8F8C64801273A1CF541FAB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Vendir: Plague of Lies погружает игроков в мир, наполн
 ```bash
 magnet:?xt=urn:btih:DD64C591A7BBBD425A5E2E4D73DD2B86C009FD60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) License GOG
 ```bash
 magnet:?xt=urn:btih:9472EF6A8D2FEB620B227C0BD4BB45D327B2CD8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Scene Tenoke [Alex Murphy Ed
 ```bash
 magnet:?xt=urn:btih:05E8DEFFD987BEB93766406AC9B4C3473FFE3D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack FitGirl [Apex Edition]
 ```bash
 magnet:?xt=urn:btih:5148FF0778F9FBA422445670B26041CBADB5CEBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ C.A.R.D.S. RPG: The Misty Battlefield объединяет в себе карт�
 ```bash
 magnet:?xt=urn:btih:DC1F34C5743179DEFA7BCAD864362B3344331F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 ```bash
 magnet:?xt=urn:btih:E3E84573A98DD1364521F5952DCDE68B3745968D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

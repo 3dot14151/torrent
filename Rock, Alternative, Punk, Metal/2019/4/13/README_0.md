@@ -22,8 +22,7 @@ PUP - Morbid Stuff (2019) [FLAC|Lossless|tracks + .cue] <Punk Rock, Pop Punk>
 ```bash
 magnet:?xt=urn:btih:81D2206A62F1C7D4B799560560B9A42B4B4EDAAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shovels And Rope - By Blood (2019) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:AD55BAF1352C23B58C030C92534C9ABE96671FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Lovell's Blade - The Nightmare Begins (2019) [MP3|320 Kbps] <Heavy Metal, Hard R
 ```bash
 magnet:?xt=urn:btih:8B86059015B6D791D8BE9820562D82ACFF8B114C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Frozen Crown - Crowned In Frost (2019) [FLAC|Lossless|tracks + .cue] <Power Meta
 ```bash
 magnet:?xt=urn:btih:C1990695244BC2B33FBF49A803B487A9A1E953D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Circa Waves - What’s It Like Over There? (2019) Prolifica Inc. [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:326166308D1E63BAC471BC2DD53E41074C1CA3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6412036DBBC32D7B30E5F64EB3E3BB0FF06818A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - 100 Greatest Classic Rock Songs (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5C1AFA8D9D9CED68D0C803DAEF13D63B155B9128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

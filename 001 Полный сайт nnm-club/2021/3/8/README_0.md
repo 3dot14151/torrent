@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:52C43467019B17E26408EEEB541E30A9C1B3AFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:870798551E47643B1AA8D2D484B1C07536C588B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ AutoTagger - авто и пакетный редактор тегов v3.3.4 [Ru
 ```bash
 magnet:?xt=urn:btih:EDCE167C473BAB914B425767D0FF6D16D0CB8BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33A5D33D7C8CEBB1A5B7B8E25279B597CF9897E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Bitwig Studio – это мощная цифровая рабочая станц
 ```bash
 magnet:?xt=urn:btih:5089D3426775FF5F54647EE6536EFB4221CA854C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Disco Loveland Orchestra - Koto Around The World. ABBA Investigation (1979) LP [
 ```bash
 magnet:?xt=urn:btih:376A1D96DA093928D83F7C32F06D15C23C208878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Jive Bunny And The Mastermixers - Rock'n'Roll Great Hits (2021) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:870BAD53BCEBDFBE752420A96E5CA1C6A497F44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4F6E9583478139C18B5E55CA28CD07077667914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Karakuri Kiden Hiwou Senki | Hiwou War Chronicles | Заводные бойцы:
 ```bash
 magnet:?xt=urn:btih:6F6B14CA1076F3B7A301AA31FD85BB7A0760E7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ Laos - We Want It (1990) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8361337B6C82D3361DD99EBE095172392471AF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ Axxis - Tales Of Glory Island, 2CD, Compilation (2021) [MP3|320 Kbps] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:26AD7FE546015BF63DD3C214FD350CB121A9014F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41E40EC54BB80D1DB1368725795A440CAEDA865E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ Fun Mode - Я Буду Здесь (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:276EED99C1341D19CFAFB79873AA617CF05FD0AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Yotsunoha | Четыре листочка [2008, OVA, 2 из 2] DVDRip 480p raw
 ```bash
 magnet:?xt=urn:btih:F9D275BCAB41DF037E978AFB2EAF35D41EF67235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAEC9B07D1985391F374C1E11E943EB3CF9FC97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Pixelmator Pro — это невероятно мощный, красивый и
 ```bash
 magnet:?xt=urn:btih:9E1C20B879AE4FFF36F85D7557A12F0723903BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Xentry OpenShell 03.2021
 ```bash
 magnet:?xt=urn:btih:6AE6B71BF2AD0C827AACDDCFC0B1EAE3E1366773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Navicat Premium представляет собой очень мощный ин
 ```bash
 magnet:?xt=urn:btih:11035EEF00C9A9C7CD58962D597E8433DD2BBD50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +491,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B377E921EC74458A0567B5B205129D35592B7AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ Udemy, YouAccel Training | Learn HTML - For Beginners  (2019) PCRec [En / En Sub
 ```bash
 magnet:?xt=urn:btih:CD110ED1D52E8E75208D22DCD4C0BC0EDAB03285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ TweakPower представляет собой единый графически
 ```bash
 magnet:?xt=urn:btih:6E39633354C7EFECB1C7E764BD1343DB9518139F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Hajime no Ippo: Champion Road | Первый шаг: Путь чемпиона [
 ```bash
 magnet:?xt=urn:btih:B1E1AA160C9ACADE48D6FEC327CBA2B5F7FAF84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E83CA122BC636CA8CD1A0CB5396DE327E9D939C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ Ich habe genung in C Major, BWV 82:
 ```bash
 magnet:?xt=urn:btih:38A6BB7A887CA56DAAD7DCCFC9C539EDD7B6CA08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ Wangan Midnight | Ванганская полночь [2007, TV, 26] DVDRip 480 
 ```bash
 magnet:?xt=urn:btih:97B66C427C524BA941D8DA2FF42DC9D10EA7C5F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ VA - Acoustic Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:EE18B895006433EF0CA5CE4ECA5D318F72CCF76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

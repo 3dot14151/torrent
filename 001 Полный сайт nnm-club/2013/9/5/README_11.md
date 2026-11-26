@@ -28,8 +28,7 @@ VA - Biggest Trance Remixes Vol.1 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:964CA9863EA2FA08A418762FF50A02C9D2327092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ One Step To Kill - 3 альбома (2011-2013) [MP3|320 кб/с]<Deathcore/Meta
 ```bash
 magnet:?xt=urn:btih:6BCDA55D09C51DC4244032CAF39123DEDDF654CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Aneym - Young & Proud (2013) [MP3|320 кб/с]<Trance, House, Progressive>
 ```bash
 magnet:?xt=urn:btih:4F73A03669F4DBD223EDCE5BE6B70838C4BAC793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE448267A88D24610B361DF3EA11321EA6E272A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Pirana - Corruption (2012) Mexican edition [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:88AC8D411D4955DBD7AAE865204E4A66ABBD54E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ VA - Ferry Corsten presents Corsten's Countdown August (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:25CDCF3F2F074E12C99246F8414CF13B7699A125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ VA - Summer In The City (2013) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:4D9337F90335C9ABCD8C9C2BB02D39B71F98EFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Mlada Fronta - Le Cycle Du Soleil (2012) [FLAC|Lossless|WEB-DL]<Rhythmic Noise, 
 ```bash
 magnet:?xt=urn:btih:72A28B964C51676E499635673836608273926B4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40D37D42664F2F60F7134A7AB32626E3C53F3B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D6A733344AC5F449D70D092ECBC7C2415A71E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ Mlada Fronta - Contrast 1998-2004 "Unreleased And Rare Tracks" (2012) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:FBA03A9E32A344BFFC018F62E8CBC578055235E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ Weedekind feat. Moonbooter - Heiter Bis Wolkig (2013) [MP3|320 кб/с]<Ambient,
 ```bash
 magnet:?xt=urn:btih:E2F5796675ECD5C43F66DC526E5B2429D201D584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ Mlada Fronta - Contrast 2005-2011 "Unreleased And Rare Tracks" (2012) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:EB8C53A4EE1CC264AB62FCFA39897A36182C2F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:063D0B8456555021758D9C5EEAE5349C1D29A8D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +461,7 @@ VA - Ultimate Vocal Trance: Volume One (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5B8AE008D558B1296D28617196FB1CB548D5DD91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3A3AC18DEC500CDFBD8A2689363D11EBFCDCCC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +520,7 @@ Bellusira - Connection (2013) [FLAC|Lossless]<Alt. Metal | Modern Rock | Female 
 ```bash
 magnet:?xt=urn:btih:A7307D22C17A5B5852A8509A207BA99C59E96EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEE8E50C2D33F28B11D6C2178661C09279EAC224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED70C4620C5DE3BA2B4CD554161F64D2DCAF46F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +603,7 @@ Next Round - Святая Кровь Требует Возмездия (2010) [M
 ```bash
 magnet:?xt=urn:btih:FBF7B71BCC815FC2B44E11247350CEB3922DEEA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40F3812FF426409506355EF0A43239591FF4F55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ Lisa Lim - Lisa Lim (2013) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:2937959C847473F0DF5E2E56E5CA08A861EE1DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E43D0888A205DF0A2DC0575FEE8C2B799F3CC2FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +728,7 @@ Dj Sveta - Promo mix (Spring/Summer 2013) [MP3|320 кб/с]<Tech House, House>
 ```bash
 magnet:?xt=urn:btih:74ED45C5BA3FBF023BA50C0F4A02D2DAA1BF0A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -812,8 +787,7 @@ VA - Dubstep and Breaks Vol.3 (2013) [MP3|320 кб/с]<Dubstep, Breaks>
 ```bash
 magnet:?xt=urn:btih:7C2BE610C72D7AD3D8534B73FECF9ADB3AE60830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

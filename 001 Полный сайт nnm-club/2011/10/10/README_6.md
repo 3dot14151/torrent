@@ -26,8 +26,7 @@ VA - Perfecto Records Collected Vol. 1 (07.10.2011)
 ```bash
 magnet:?xt=urn:btih:76FA22AA976DFF8DBCCC9A7AD18011CAB4206874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Glitterbug - Privilege (2010) [MP3|320 kbps]<Deep techno, electronica, techno>
 ```bash
 magnet:?xt=urn:btih:886F54E8C8077C9B3E75E56ECBAA9C7456A08B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33368D21889B41288F3B297024156B70B387FD97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Laidback Luke - Live at Aquarius - Feel Free Fest (25-07-2011) [MP3|~177 kbps]<H
 ```bash
 magnet:?xt=urn:btih:C9E778AD75A4733B07372CF41C19C9AEC1BFF7A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:365BC9C03BA1FC24EA571799F7D7EDAB884C5907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ Renе Marie - Voice of my Beautiful Country (2011) [MP3|320 kbps]<Jazz, Vocal Ja
 ```bash
 magnet:?xt=urn:btih:89EDA5A500322AF087E7E7B299998A5D64A0F61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E390677DAC65B6036874119A96298E1D1DB01653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCD0A7A6E349D0177D2FCF609A45A95AA0024680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CEE8D11ADA521442C162218164BDE992781C9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ VA - Vocal Trance Collection Vol.72 (2009-2011) [MP3|320 kbps]<Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:06F963C8B4F8458A598BB1A4A0EDC898EE72DE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ Cat.#: MUTD002
 ```bash
 magnet:?xt=urn:btih:3E11AD6FE14EC5A2CE5018141BAFBFB8EB78E7F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4ACC0FBD88EF0C2468F7A495DBDA1DB8264EA5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ Terez Montcalm - Here's To You; Songs For Shirley Horn (2011) [MP3|~250 kbps]<Vo
 ```bash
 magnet:?xt=urn:btih:B2408D7DC7C0560A4CB7AD7C09BEB5F3EC563A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D506175ED7E652B30487E62C72C9EA4A06190C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ VA - Record Super Chart № 210 (08.10.2011) [MP3|128-320 kbps]<House, Trance, D
 ```bash
 magnet:?xt=urn:btih:03816F8B59DD74672E46F9F9A9BE3966D7E7DBCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ VA - Горячие русские новинки FM станций. Осень 
 ```bash
 magnet:?xt=urn:btih:02426FA443839FED004576FFE1EBFDBCFBC2CDC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99D37A62B74FC566E20290312281A6F04820D368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9204B5DEDD137CD3A462C094DE49AF1629E42B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ VA - Хит марафон Осенний (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:F44274991527EA3D81FE3A3482B7254EC4C52F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ Sophie Milman - In The Moonlight (2011) [MP3|~220 kbps]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:760FE759CDB6CFC93B05E336472214D60DC2435B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +710,7 @@ VA - Союз блатных хитов Осень (2011) [MP3|128 kbps]<Шан�
 ```bash
 magnet:?xt=urn:btih:EA340AE29671EC9E82011956332F2903CE9DD7AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +744,7 @@ Dj Dankov - Molotov Cocktail (August 2011 Mix) (2011) [MP3|192-320 kbps]<Progres
 ```bash
 magnet:?xt=urn:btih:1AD533B1664411580BE34EBE398159A5E8D92A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -794,8 +769,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60F618165B2036E55C63C61CD55A45A7C2EDE2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

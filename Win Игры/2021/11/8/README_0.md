@@ -19,8 +19,7 @@ SkateBIRD (2021) [Ru/Multi] (1.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:8F20A14321A03A1FFB4F2A30265B95A9F7DA23B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Garden Paws - красивая приключенческая RPG-песочни
 ```bash
 magnet:?xt=urn:btih:B8E37E9B6DDD5B814433C38EF69434B02816FDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Curved Space — динамичный аркадный шутер с двумя 
 ```bash
 magnet:?xt=urn:btih:0C05CAA3D03D73A32AD443765C1D970BD2698229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Project Runner - это игра на выживание, в которой гл
 ```bash
 magnet:?xt=urn:btih:066B7689A0900249E4787A65898D8830A6AD10BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Vigil: The Longest Night - это 2D-платформер с боево�
 ```bash
 magnet:?xt=urn:btih:EFFA007D6C420A69156B92A23FBEB78D9D633BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Midnight Ohota это аркадный авиасимулятор, сочета�
 ```bash
 magnet:?xt=urn:btih:83FC9CE74B0B9AB1F2F0EB4B2C330B29088F8C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Car Tuning Simulator разработан, чтобы вы могли созда
 ```bash
 magnet:?xt=urn:btih:B554B8158BB1420A1E279258543BF8ADAA4CEE12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Legend of Tianding (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:6281D68CFC8440EF1BFF934DBAA04EE0474D7F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Usagi Drop | Брошенный Кролик [2011, TV, 11 ep + 4 sp] BDRip 1080
 ```bash
 magnet:?xt=urn:btih:37ADD7B7B08378C8A23C9A7C32092D11CED87EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Yakusoku no Neverland | Обещанный Неверленд [2019, TV, 12 ep] 
 ```bash
 magnet:?xt=urn:btih:B2D32458CD06A059D3A0548FD1A34445F86732CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Comedy Баттл. Новый сезон (2020) WEB-DLRip (сезон 10, вып
 ```bash
 magnet:?xt=urn:btih:225028770CC6538D8658E1618996CC0EB131DE03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Steel Division 2 – продолжение военной стратегии в
 ```bash
 magnet:?xt=urn:btih:4EBDB9C1D63C9ACAFC89E2B8ADCA08E0CA54FB93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F64E23DFE6C6DAFEC0DF141F002023AB88F1CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

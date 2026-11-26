@@ -19,8 +19,7 @@ The Bard's Tale ARPG: Remastered and Resnarkled - фэнтезийное хак-
 ```bash
 magnet:?xt=urn:btih:4001A0B457780D5FACC62B659E374FCE5A4EB8AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ UNetbootin (Universal Netboot Installer) - это свободная кросс�
 ```bash
 magnet:?xt=urn:btih:EAB6B2A94D0DF6F67B04D13F61E84C2FE373BCF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

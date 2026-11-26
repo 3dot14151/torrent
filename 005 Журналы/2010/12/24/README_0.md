@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:60A25132FBA0E895913688D6F283C7B31B963701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Layers Magazine - журнал для любителей и профессион
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

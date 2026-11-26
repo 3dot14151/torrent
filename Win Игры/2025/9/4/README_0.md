@@ -19,8 +19,7 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:74C3A29F6313110C54437332C41AE6F115DB8C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.88p1) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:8DB94B0D2788A72504503802204E056F5E2BBC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Drifter (2025) [Multi] (1.0.9) License GOG
 ```bash
 magnet:?xt=urn:btih:F267578602F5EFA2BA5CAEC08E514FC207225C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Coral Island – классический симулятор фермы, пер�
 ```bash
 magnet:?xt=urn:btih:374783385EE9A459099C1EB5AC18ABBC1B100593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tiny Glade – это спокойный и даже местами медита
 ```bash
 magnet:?xt=urn:btih:466F81B6FEA5728653E88B975FA74C3174A192ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Lords of the Fallen представляет совершенно новое э�
 ```bash
 magnet:?xt=urn:btih:60A69FCFC33F74D6B010B3979ACCEEF17B5C8AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Farming Simulator 25  – это увлекательное приключени
 ```bash
 magnet:?xt=urn:btih:8F144A3C5BF6FDF4F2FC81676003244F110E8BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Vault of the Void представляет собой колодостроите
 ```bash
 magnet:?xt=urn:btih:BDFDAA689C8AA776E70A77DE6161FE36AB75EFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:562DF374F5A94912DFCE76E2D9370B9B6EC01456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Metal Eden – научно-фантастический адреналинов�
 ```bash
 magnet:?xt=urn:btih:62370F4104700A197D4F8FF7481EB31F44743933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Neyyah - приключение Point-and-click с видом от первог�
 ```bash
 magnet:?xt=urn:btih:537817ED23B752ED0D5E15A7554AF0400653A89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Hundred Line: Last Defense Academy (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:948AF9D5037A9847D7FA110A0344A6CE336C537A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Metal Eden – научно-фантастический адреналинов�
 ```bash
 magnet:?xt=urn:btih:F5F8C1130B860064F74982AC266C0C637F0A08EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:1AD26D302D70A71DDDC43EB3EBDB89885F640A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Down in Bermuda (2021) [Ru/Multi] (1.6.3) License GOG
 ```bash
 magnet:?xt=urn:btih:E9F06978E5EB82810BA9ABA090941E8AB569F1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28324) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:5C47FD0C3030369FA1883122BBBC55C5C68E3F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Central Bank / Центральный Банк (2025) [Ru/Multi] (0.99b) Scene T
 ```bash
 magnet:?xt=urn:btih:A1F554721107E09FAAB6E3775C96BC548022974F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A533357BED678B0DF74A6526AF5117BFD2A7B257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

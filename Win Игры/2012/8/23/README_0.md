@@ -19,8 +19,7 @@ Witch Hunters: Stolen Beauty. Collectors Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:02ACD0F32DF42A2990E6B7320F6E7C11A542A3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Mad Raiders обладает также предельной простотой 
 ```bash
 magnet:?xt=urn:btih:773043D0243DFADB4358769BAF6C807E4C077D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Max Payne 3 (Patch/NoDVD/1.0.0.47) 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:DD618E80F8B6993A4ADBDB8E1B756E59686248FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Max Payne 3 (Patch/NoDVD/1.0.0.47) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:A40D6102440BC4E76BAA5322B8105312D4030E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ The Darkness II - Limited Edition [Ru/En] (RePack/1.0) 2012 | R.G. Shift
 ```bash
 magnet:?xt=urn:btih:D3D5A1EE461E5A4F917549F2DB1DA65E5EEAA3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (RePa
 ```bash
 magnet:?xt=urn:btih:550FF5C1977AF798DF7FB9B2DBF2AA3004B88258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Combat Arms — онлайн-шутер от всемирно известной
 ```bash
 magnet:?xt=urn:btih:9B3DECF3E9B8ECB1C52FAA6CAA732EBCE6F1D221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

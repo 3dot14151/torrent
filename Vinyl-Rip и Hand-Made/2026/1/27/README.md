@@ -22,8 +22,7 @@ B1 The Vienna State Opera Orchestra - Three Hungarian Dances (Nos. 6, 7 And 1) B
 ```bash
 magnet:?xt=urn:btih:12B91270303C405F91D635574F13175399F914C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 Banana Republic(   Читать дальше...   )Жанр: Rock, New Wave, 
 ```bash
 magnet:?xt=urn:btih:A1A298C245597DDF30D165D36C4C78016994747D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

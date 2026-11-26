@@ -22,8 +22,7 @@ Imagika - Worship (1998) [FLAC|Lossless|image + .cue] <Power, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4881C4D6919DD2EEF24FCD7D5EB55FD50303412D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pip Pyle - 7 Year Itch (1998) [WavPack|Lossless|image + .cue] <Canterbury Scene,
 ```bash
 magnet:?xt=urn:btih:B881A676DBADF502635FD16D20B8395B831CFE49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Psykup - Ctl + Alt + F*ck (2017) [MP3|320 Kbps] <Experimental Metal>
 ```bash
 magnet:?xt=urn:btih:6EB24DCEDD6ACFBAE8D7647A685970C427D6F352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Guilles - Harvest Of Grey Days (2017) [MP3|320 Kbps] <Death’n’Roll>
 ```bash
 magnet:?xt=urn:btih:5F1232833E7A7DE7FB383EF7DDE252005194070C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Body Count - Bloodlust (2017) [FLAC|Lossless|tracks + .cue] <Rapcore, Hardcore>
 ```bash
 magnet:?xt=urn:btih:2B4EA07E0C573C6B2645E5F638766CC3D6256FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Uriah Heep - Demons And Wizards (1972) 2CD, Remastered, 2017, Sanctuary Records 
 ```bash
 magnet:?xt=urn:btih:DF6B878DBDAD5F23335E30E426A9357436F1B0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ The Cranberries - Something Else (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Ac
 ```bash
 magnet:?xt=urn:btih:A2BD233D7B62F55E1F9E69BF08E1F24E349DAE1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

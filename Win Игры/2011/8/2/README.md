@@ -19,8 +19,7 @@ Rosemary / Розмари (P) [En] 2009
 ```bash
 magnet:?xt=urn:btih:74D966D75857C8655A8A31C3C798D6997B35F47F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Virtual Villagers: Chapter 3 - The Secret City / Робинзоны. Затер�
 ```bash
 magnet:?xt=urn:btih:A5F804730688033E0AA5A5046C18DC5D1E49B075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Armoured and Dangerous это стратегическая игра, разра�
 ```bash
 magnet:?xt=urn:btih:958A89363AB140F2D30FD226C53AD1A38E46AEB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jewel Match 3 / Джевел Матч 3 (P) [Ru] 2011 | Fyrrion
 ```bash
 magnet:?xt=urn:btih:27755A560C3D9B4C0DC3EC01E8F030BD8A29CBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A65E197462CC5A9DDCC5F569C5463D07418BDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

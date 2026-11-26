@@ -19,8 +19,7 @@ We Heist Too (2024) [En] (5.3.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6FC7697031215A3E0AD18B27769716897B79981F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dreamlike Love with Seira – окунитесь с головой в легки
 ```bash
 magnet:?xt=urn:btih:55F82935217F0D7A6ECEE12F7603DDE41C4F8410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ USC: Counterforce (2023) [Multi] (1.01.0a1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5E3FC96C77E4A82C9E0955AE42F0E18673A80958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kanji Legends - казуальная обучающая игра, которая
 ```bash
 magnet:?xt=urn:btih:B98D172082D69C9D48941838D99109F9F7BC4332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sunrise GP - это гоночная адвенчура, которая пред
 ```bash
 magnet:?xt=urn:btih:24E809FB5A5522700656D393F1C10F038D5E462C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 ```bash
 magnet:?xt=urn:btih:357BE2DE9CFCBA2EC68EF5E8A8A43E6860C12E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

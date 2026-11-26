@@ -19,8 +19,7 @@ PDF Shaper Professional 13.0 RePack (& Portable) by Dodakaedr [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4802C118E8BF8CE22D61D844D3E973BEC25E4FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ GenoPro используется генеалогами, врачами, (   Ч
 ```bash
 magnet:?xt=urn:btih:7F9343092B9BC42AC8B600047D548174BD40176C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

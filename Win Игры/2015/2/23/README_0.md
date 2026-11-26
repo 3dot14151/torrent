@@ -19,8 +19,7 @@ Shutter (2015) [En] (1.08) Repack ALiAS
 ```bash
 magnet:?xt=urn:btih:93F4C0DC0A9A16BA8BDDA4858FBF55207DBE1DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Stay Dead Evolution является игрой в стиле ’round beat’em
 ```bash
 magnet:?xt=urn:btih:8B8B79366E32B9E4F7AE7F80C596BC3892129829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Bonetown - The Power of Deathh - это приключенческая роле�
 ```bash
 magnet:?xt=urn:btih:FEA58DFF657BDF00C3952BDDDFD9713A4B519483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Avernum 2: Crystal Souls является эпическим приключен�
 ```bash
 magnet:?xt=urn:btih:324ADE652598C028174809E9C92FCD60D91478C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Rugby 15 предельно реалистичный спортивный сим
 ```bash
 magnet:?xt=urn:btih:FC31BADC0A7E79937E3D00E7AC751F4B638EEB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

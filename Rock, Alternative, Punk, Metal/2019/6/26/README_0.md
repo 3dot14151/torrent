@@ -22,8 +22,7 @@ The Cat Empire - Stolen Diamonds (2019) [FLAC|Lossless|tracks + .cue] <Funk, Alt
 ```bash
 magnet:?xt=urn:btih:8C4AD8AC281C060EA9F0D2A163A1B03D401E110A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A Projection - Framework (2017) [FLAC|Lossless|tracks + .cue] <New Wave, Post-Pu
 ```bash
 magnet:?xt=urn:btih:0C7AF2CC4471B01BA033E135C7EEB15F386D2D73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

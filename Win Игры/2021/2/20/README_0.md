@@ -19,8 +19,7 @@ Wanderlust 4: The Bermuda Secret (2021) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:F74279540967B7FEC549B70387FA5D3F839C74FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Labyrinths of the World 13: Eternal Winter / Лабиринты Мира 13: В�
 ```bash
 magnet:?xt=urn:btih:F933E0A8B8F70D9792FC4666E1BD5299028A5088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

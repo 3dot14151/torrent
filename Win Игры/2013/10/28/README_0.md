@@ -23,8 +23,7 @@ Angry Birds (2011) [En] (3.3.3) License
 ```bash
 magnet:?xt=urn:btih:79FFA2F9AEBCCE3F4AB42A00B378B542F1573A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

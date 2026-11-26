@@ -23,8 +23,7 @@ Red Rum - With Gods By Our Side (2013) EP [MP3|320 кб/с]<Folk Metal, Epic Met
 ```bash
 magnet:?xt=urn:btih:868E0BDF61BCEFB34AC357480CF3B942499A4FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AABCE39E2AC3920C0FFA990E7A1A42C77A51F2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Fallujah - The Flesh Prevails (2014) [FLAC|Lossless]<Technical Death/Progressive
 ```bash
 magnet:?xt=urn:btih:CE37171B07DB2C93BA56DA4E6F9ACCED345575A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Until We Last - Earthgazing EP (2014) [MP3|320 кб/с]<Post Rock, Ambient>
 ```bash
 magnet:?xt=urn:btih:41CA6492FDCFCEA7E011CEEDFD0F77DBFA42A355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D05E980DD59B2A7AE539E02AAA5DC3526442F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F3C77F0EF9B1FB9E3CA7516D0D687E592E7554D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Pink Floyd - Three Rivers Stadium, Pittsburgh, PA (2009) [MP3|320 кб/с]<Progr
 ```bash
 magnet:?xt=urn:btih:D0A0E9A3841268E5BAA11E1E22BB56E25596AA0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ Bombs of Hades - Atomic Temples (2014) [FLAC|Lossless]<Death Metal / Crust>
 ```bash
 magnet:?xt=urn:btih:D021BDE30FBA35FF46D2D38DA6946660C9C995A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ Pray For Sound - Dreamer (2014) [MP3|320 кб/с]<Post Rock, Shoegaze, Instrumen
 ```bash
 magnet:?xt=urn:btih:C3E6D1F0801026202F7665270E88CBB5080FF058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ Kill it Kid - You Owe Nothing (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5A504445F9F4B7FF930168A97742797C5B0DAA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ CD. 1
 ```bash
 magnet:?xt=urn:btih:DE119047B7FCFFDCD9BE0492705C80466CC0997C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +381,7 @@ Emarosa - Versus (2014) [MP3|256 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:AF6A72BF3BBD9A5A478E444DC42776F83082431A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +412,7 @@ Skyforest - Aftermath (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Depressi
 ```bash
 magnet:?xt=urn:btih:EA550E866E2CF34F2A349AC6113200C0C39E7792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +444,7 @@ Waking Aida - Eschaton (2014) [MP3|320 кб/с]<Post Rock, Math Rock, Instrument
 ```bash
 magnet:?xt=urn:btih:55FC6921E7FACEB2BB3F61C98C7131B90435396C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +478,7 @@ Arion - Last Of Us (2014) Japan [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:F603A9FE0722E200B972E2FD602468480195513E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +510,7 @@ CD. 1
 ```bash
 magnet:?xt=urn:btih:4B63F327C044E2C2D67D97F2F02135654C43A0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +542,7 @@ Pink Floyd - Remixes Out There... (2004) [MP3|320 кб/с]<Progressive Rock, Psy
 ```bash
 magnet:?xt=urn:btih:FFF613A485D68770F924016CC18280AC62E99491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

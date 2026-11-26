@@ -19,8 +19,7 @@ Simple PDF Reader \ Простой PDF Reader v1.0.92 Mod by Alex.Strannik [Ru/E
 ```bash
 magnet:?xt=urn:btih:6772F9F2A5BFB3D2A39AFBC2421B5DD67F5C6C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B383B6E0686D9CA4DC5F01F047802D522CEE605E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bazaart: Photo Editor & Graphic Design v3.3.1 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:13003AD2B8D20EAB9DAF1077958DD6CF8651A3B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

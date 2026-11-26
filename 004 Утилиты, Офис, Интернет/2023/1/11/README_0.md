@@ -19,8 +19,7 @@ CyberLink Screen Recorder 4 обеспечивает надежный захва
 ```bash
 magnet:?xt=urn:btih:95F094D6F7F616A86970EB6E6B5A94CC370F7955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Switch Off - простая в использовании системная у�
 ```bash
 magnet:?xt=urn:btih:EB33A708BFD29238BA800748170F636F758CF01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

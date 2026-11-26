@@ -21,8 +21,7 @@ LibGDX - это кроссплатформенный фреймворк для �
 ```bash
 magnet:?xt=urn:btih:827C22B70B2056C5F49F78E19BB3113409FF157D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

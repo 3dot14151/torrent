@@ -19,8 +19,7 @@ ADB AppControl - это новый менеджер приложений для 
 ```bash
 magnet:?xt=urn:btih:85C308672507106BF3F45D9B6BC2C65CD0303E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FotoTweak - AI Image Generator v1.0.52 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:11DBEB8084223AAB868F8663E2ED33F740ED4C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:E68AC3DB573256E56E3072F8ADB1B80472AE7292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:69EEE4D0CD223097BA834BF9AFCC7F20F20FDD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:451E90D5CEA36767F4F0188EDABEC9A490A75994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Business Calendar - один из лучших вариантов рабочег
 ```bash
 magnet:?xt=urn:btih:5400AECE34A2D678C176BEE8B15B2CDEFF724739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02B28AEB5F2BFE9783CCAA210F9DAA5D43E6A3B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:0F81FC394CAD5C3D143BB0B0AC133E4546C99D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

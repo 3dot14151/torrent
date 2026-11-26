@@ -19,8 +19,7 @@ Final Exam – кровавый платформер, наполненный е�
 ```bash
 magnet:?xt=urn:btih:B14A4ECAEEE071B9F45B5342C0697F8F4E0163D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Randal's Monday (2014) [Ru/Multi] (1.02) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:0194DA48126D66492E2D318CA4696BFFACFEC35C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Tom Clancy's Ghost Recon Future Soldier (2012) [Ru/Multi] (1.8.130422/dlc) Steam
 ```bash
 magnet:?xt=urn:btih:33ED2AAEA32DB74A9C9D2B2CF95861D6D6393FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

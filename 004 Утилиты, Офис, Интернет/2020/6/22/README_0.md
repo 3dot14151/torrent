@@ -19,8 +19,7 @@ LeoMoon CPU-V - портативная утилита для проверки, �
 ```bash
 magnet:?xt=urn:btih:C1BE6F77067D4B7C457E4970E814A1AB315D2B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

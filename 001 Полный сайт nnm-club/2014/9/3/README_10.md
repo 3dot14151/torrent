@@ -28,8 +28,7 @@ Alchemists Of Darkness - The Negative Frame (2014) [MP3|320 кб/с]<Gothic Meta
 ```bash
 magnet:?xt=urn:btih:1C7FD7442390EAEA64B2F2DC59A10026D4F55517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ bvdub - A History Of Distance (2014) [FLAC|Lossless|WEB-DL]<Ambient>
 ```bash
 magnet:?xt=urn:btih:CFBA06BD730271D717785B119EE7836B7D0CEC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Covex & Anna Scholfield - Blinding Love (2014) EP [MP3|320 кб/с]<Dubstep, Dru
 ```bash
 magnet:?xt=urn:btih:B4AF20A1BAEE9C92CE5059229CEB992C6B612287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ VA - New York Deep and Tech House Volume 3 (2014) [MP3|320 кб/с]<Deep House, 
 ```bash
 magnet:?xt=urn:btih:BF5EF722D21F03B8BED3E38C3EFAADCD3F04AE95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Headdreamer - Water Man (Single) (2014) [FLAC|Lossless|WEB-DL]<IDM, Downtempo>
 ```bash
 magnet:?xt=urn:btih:8CD93226885FA7FBE95B2575CB21AC5C3DD14C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Erissoma - Textures (2011) [FLAC|Lossless|WEB-DL]<IDM, Glitch, Modern Classical,
 ```bash
 magnet:?xt=urn:btih:7CBE426F2E4AC1D014D795C73A0E3C2A713B3902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ The Benny Carter Group - Wonderland (1999) [FLAC|Lossless]<Jazz, Mainstream Jazz
 ```bash
 magnet:?xt=urn:btih:E7245C94CAC5B94150DC9DE8082973185E3E5880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ TextSoap  для Mac OS - Поможет подчистить текстовые
 ```bash
 magnet:?xt=urn:btih:F49461C81A7AE93400863718EFAA59D4291E9E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ VA - Chill Tronic Ibiza Vol 1 (2014) [MP3|320 кб/с]<Chillout, Chill House, De
 ```bash
 magnet:?xt=urn:btih:A9FE0F08EECAC0EE8C3B6420D7012E2E19684F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F5B1928033F88741E97CB46B77A835EFFFF6E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ Four Roses - Do You Know What We Mean (2013) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:62720573380B9DC306AE2820A95232E0CACCF84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ Aeon Zen - Ephemera (2014) [MP3|320 кб/с]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:EFED2C5A629FC87EC8FF94D08220031461FBA8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ Koko Taylor - The Alligator Records Years (2013) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:6BC759D0B3F32E56A35841506E29FB4E7C4562E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ VA - Melodic Punk Style - Sound Of Us Volume III (2014) [MP3|320 кб/с]<Melodi
 ```bash
 magnet:?xt=urn:btih:E44C658F216C791C5305ADDA46F75CCB1141846D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ Foreign Concept - Make Meals (2014) EP [MP3|320 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:7751369C118FBE6B00FDD411055BBA755CF72C32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D296FA0AC7773A3B9E113DDA8C6F10B3662FD1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB107C27C67967CF9500997D570B1D8A3A0EB77F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ AOR - L.A Connection (2014) Japanese Edition [MP3|320 кб/с]<Melodic Rock, AOR
 ```bash
 magnet:?xt=urn:btih:4E732D7A80DD273FA329B5882EE81338A4886596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ Bare Wires - Sanctuary Highway (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:858997BBE1A813FA439EDF41EE71C85CE8096127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC2CD56B51050A63A77499BDDC4C0A4D0351BF55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D7E7441E025CBF5949AEC42FC84AE0B9E62FF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33178BFBE1667DD67BD4FD29AD23B43B7209BCD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD1C24180DD672A72173BA489D5EA712D559E591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +701,7 @@ VA - Snowflakes III (2012) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Industrial, Glit
 ```bash
 magnet:?xt=urn:btih:B3E402F368888E89D8E6EF39DFEDB22A28C3A7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ VA - The Best of Simplify Bass: Vol. 4 (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:049CD308908E4E5257139B3EB9CF1740D1386E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08B502D2974F0DBE543BAC390B64183B798F6D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

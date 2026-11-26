@@ -22,8 +22,7 @@ De Staat - Bubble Gum (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, El
 ```bash
 magnet:?xt=urn:btih:3F1B2C4387EDD74CF2F8385504A3A1D516BD1014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Turbonegro - RockNRoll Machine (2018) [FLAC|Lossless|tracks + .cue] <Deathrock, 
 ```bash
 magnet:?xt=urn:btih:D69CA7950CD546E06E0D363902AF2CE71DCE62B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Road of Kicks - Before the Stone (2019) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:CFC3E36916A6FFA82DEEC2299C93E7F72C005BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The 69 Eyes - Devils (2004) [FLAC|Lossless|tracks + .cue] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:780A090C343289371BE43B98370B74FEE23444F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

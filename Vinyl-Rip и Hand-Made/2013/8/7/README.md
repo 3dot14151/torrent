@@ -26,8 +26,7 @@ Black Sabbath - 13 (2013) [FLAC 2.0 16/44.1|tracks (DC-CD)]<Rock>
 ```bash
 magnet:?xt=urn:btih:B6B7FF3C012CFC79DF4E5E9EE8CB41F8A9A0559D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

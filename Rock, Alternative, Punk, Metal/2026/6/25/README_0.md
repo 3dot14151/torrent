@@ -22,8 +22,7 @@ Riot - Inishmore (1997) Reissue, Remastered, 2017, Metal Blade Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:2B7DAA43A3E800D8646F90E46E6D61EF0708EBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:E029C2C97E827DD5CAAD094D6443F1443D2C1824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Rachel Mother Goose - 2 Albums (2017-2021) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:45A6FE3A4CDEBB1A10FE2F62A768F18864F53F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ GUTS (Gory Ultimate Tournament Show)(«Кровопролитное непрев
 ```bash
 magnet:?xt=urn:btih:034105EB9A7BCAF74DB4E0F4F111C6D9ACFE99BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Endless Fables 2: Frozen Path / Сказки без конца 2: Ледяная
 ```bash
 magnet:?xt=urn:btih:6F1CCAB3859F7D8206666566C24DF6645E223551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0.0.1/2017.6.29.321) Rep
 ```bash
 magnet:?xt=urn:btih:1EEADDB501A490AB122130E9F489857D9131C5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hollow (2017) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:37FFE975525C9DC457C8695ABFFF95A59A0A9A20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Device Info — простое, но мощное приложение для An
 ```bash
 magnet:?xt=urn:btih:068A919E117AAAD64E788E46F884651720EDF88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:0AD7BC78F76F9B790E504214EA0CAD551CFCBD0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

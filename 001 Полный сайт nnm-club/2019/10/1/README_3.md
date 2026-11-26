@@ -18,8 +18,7 @@ Cop Craft | Мастерство копа | Детективные будни: �
 ```bash
 magnet:?xt=urn:btih:D9C1A999CBA8FD81F59A6181DF4A6CC0D32795A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ MInstAll v.03.09.2019 By Andreyonohov & Leha342 [Ru]
 ```bash
 magnet:?xt=urn:btih:0DEAFFC6BA11F886BD694B4DA33B656D2892287D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

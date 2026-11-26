@@ -22,8 +22,7 @@ A4. This Guitar(   Читать дальше...   )Жанр: Classic Rock, Hard 
 ```bash
 magnet:?xt=urn:btih:EF43303927AE49C36F90EDDB911E2110F73B111D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

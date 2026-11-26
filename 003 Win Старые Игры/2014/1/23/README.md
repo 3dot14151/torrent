@@ -19,8 +19,7 @@ Aerial Strike: The Yager Missions / Крылатый охотник (2003) [Ru] 
 ```bash
 magnet:?xt=urn:btih:BEDA988266A2D17B14FE8C8AF03D43723E5F2D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

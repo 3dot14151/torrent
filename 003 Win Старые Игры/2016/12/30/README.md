@@ -19,8 +19,7 @@ Hunting Unlimited 3 (2004) [En] (1.0) License ELEGANCE
 ```bash
 magnet:?xt=urn:btih:2D65EBA517E4E86826BD2A8800C5E3C8FB0C8947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hunting Unlimited 4 - симулятор охотника, являющийся 
 ```bash
 magnet:?xt=urn:btih:6BE3B739C58629D49AAE856522350404B2D05A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

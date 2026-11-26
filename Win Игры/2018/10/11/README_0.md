@@ -19,8 +19,7 @@ Grim Facade 12: The Black Cube / За гранью жестокости 12: Чё
 ```bash
 magnet:?xt=urn:btih:CFFCC01E8A00208E79A19488B88133282009EB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ X-Morph: Defense (2017) [Ru/Multi] (1.12/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:0838CA211390208F161954E63DDF6AF3B1CA4E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Valthirian Arc Hero School Story (2018) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:479D32F4D1D539B259A37033EC278BC53234C3D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Red Alliance - атмосферная однопользовательская �
 ```bash
 magnet:?xt=urn:btih:12AAC6A429063599B907DCE3E2585E3949EF917E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Space Hulk: Tactics – новый взгляд на старую добрую �
 ```bash
 magnet:?xt=urn:btih:3A8DCC80B8E5AB32FDB58012ED1C02890AEFF578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Red Alliance - атмосферная однопользовательская �
 ```bash
 magnet:?xt=urn:btih:40CB72C7EA88F972262D03088683B961A4D9592C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

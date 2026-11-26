@@ -22,8 +22,7 @@ Power-user (for MS Office) Premium 1.6.1165.0 [En]
 ```bash
 magnet:?xt=urn:btih:A8ECE620712C8F86DF33FBEEEC4F3B6AAFF88151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

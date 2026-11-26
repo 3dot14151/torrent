@@ -19,8 +19,7 @@ PuppetShow 13: The Curse of Ophelia / Шоу марионеток 13: Прокл
 ```bash
 magnet:?xt=urn:btih:21EF65FFE8CF8065926A84AE95E62F1FAB282546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VANE — игра, которая грозится рассказать эмоц
 ```bash
 magnet:?xt=urn:btih:AA37B5CD1C8CAEA1CF57E7F637EFFE8F4E82D75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VANE — игра, которая грозится рассказать эмоц
 ```bash
 magnet:?xt=urn:btih:A7F69E9019C4D3D3777FD3056A90432B598122E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E9AFE6052E7A9CC7B51B0E36702A5D273ED1B732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

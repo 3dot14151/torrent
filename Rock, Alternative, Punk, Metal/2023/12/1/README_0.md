@@ -22,8 +22,7 @@ Anger As Art - Virtual Sympathy (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:A580F76B283116B1FEFFA5D0422F88AB4EC2C34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dissection - The Somberlain (1993) Reissue, Remastered, 2006, 2CD [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:823E8CD970544CF6CEDABE108F18596474DE7E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Indust
 ```bash
 magnet:?xt=urn:btih:63900F0EBC0D757853018D0D1B0344D6106E629F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Skiltron - Bruadarach (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Celtic 
 ```bash
 magnet:?xt=urn:btih:C6B6C00C596AA8A14756C95CEC4607E45EC28862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Flames Of Fire - Our Blessed Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 ```bash
 magnet:?xt=urn:btih:A9AF360851A8A46412ABFAD9B0868C8924E04D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ LikArt - Мессия в MP3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Ro
 ```bash
 magnet:?xt=urn:btih:C0ACCBAC7E974D26D88ADEEAD02ADA4AEA11C8CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Dissection - Storm of the Light's Bane (1995) Reissue, Remastered, 2006, 2CD [FL
 ```bash
 magnet:?xt=urn:btih:A48919F59E2AE79E973BFF39E8FB14EF2621304E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Moody Blues - Long Distance Voyager (1981) Reissue, 2008, Decca [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:ED12597213EB4C59707915E3EC9FEB44B3EE1448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:986F785FD58511CCCA6D1A02C6CEB4C1D2909177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Voodoo Circle - 15 Years of Voodoo (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:1D915B5C90C8191D21450B9CC7CF4B0FB9900A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Voodoo Circle - 15 Years of Voodoo (2023) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3CDF5BB2FC05550EF099A8311CDC8A8176309E1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Peter Gabriel - i/o (2023) [MP3|320 Kbps] <Art-rock, neo-folk, progressive-rock,
 ```bash
 magnet:?xt=urn:btih:DE333510BC55210E2BAD011F71B9BAA41B563F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

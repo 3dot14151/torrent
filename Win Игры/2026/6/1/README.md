@@ -19,8 +19,7 @@ Cheap Car Repair (2026) [Ru/Multi] (1.0.006) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C5FCECA737CB4699F292821D69EBD1FE758C4281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NAMAKORIUM - кооперативная RTS с элементами хаоса �
 ```bash
 magnet:?xt=urn:btih:0CD81D65BB4E1111B50E4901418653F18BA4FF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Scale the Depths (2026) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:AB9A26DDA01BB868134D66F6F298EEC3C8549F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

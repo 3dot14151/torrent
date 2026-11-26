@@ -19,8 +19,7 @@ Small Town Terrors 3: Galdor's Bluff / Террор в городке 3: Бле�
 ```bash
 magnet:?xt=urn:btih:C989FA5EB90422BDC3AC23156BD3B020EEC44DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mythic Wonders: The Philosopher's Stone / Мифические чудеса: Ф�
 ```bash
 magnet:?xt=urn:btih:A3737D18910B2E67213390215B640418736E450E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

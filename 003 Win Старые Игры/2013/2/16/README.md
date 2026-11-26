@@ -20,8 +20,7 @@ Black Moon Chronicles [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:2904C252089243F4FB3D1C70584CD647DC5073BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Black Moon Chronicles [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:E6D08403B9EDDE4E674DAEBA8C1E31C264A073AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ RTS. Управляешь маленькими прикольными челов
 ```bash
 magnet:?xt=urn:btih:0DEDA4C43661B4F11B50C88475F60DDCB9F5A8DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

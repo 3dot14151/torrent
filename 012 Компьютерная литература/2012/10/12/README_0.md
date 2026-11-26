@@ -23,8 +23,7 @@ William R. Stanek | Windows Server 2012 Pocket Consultant [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:7B7F275FAFAC53D6E26A0D85BAB94721B0C95B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51E417B05E110A27C00825987A16312CDAA47C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

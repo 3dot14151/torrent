@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:825F8A194E15CCA5C3A7D5EC4C980AFBD94D4789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C55FF0AE0DC750386187F9800B38228C5C0679DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AE6E6DB6BE9F23D879692ADFA35537AA1C368AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ CGcircuit, Arihant Gupta | Introduction to Vellum Grains in Houdini (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:CF9345ACFA6A7B9021F49F700890B695D62223D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FFBA8C1B11D7AD17A0698EE8810E6D70B594BE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ WinToHDD - программа 3-в-1, которая позволяет выпо
 ```bash
 magnet:?xt=urn:btih:48A3D0126687DCDFBB6D628DD5BBB625BFAEA5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Shawn Kelly | Animation Tips And Tricks (2009) [PDF] [Volume 2] [EN, RU]
 ```bash
 magnet:?xt=urn:btih:9A14D066701AD2C1996D710891D4962A82E3AAC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:310FFDC7659C18DC01666B75EDB8FF89CFA64C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ CGcircuit, Florian Bard | Disintegration Effect I - The Head (2020) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:6C09DE3807C19C6DEFA173CFC61FF2CC0F8EFB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ A4 Путана(   Читать дальше...   )Жанр: PopПродолжи
 ```bash
 magnet:?xt=urn:btih:E58CD0C02A4F4A8AECE95C3A27EBE9158D999559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Preston Blair | Cartoon Animation (1994) [PDF]
 ```bash
 magnet:?xt=urn:btih:D981CC4AB64DE6CC9F71AFE7655A87F71DD04FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Rohan Dalvi | Patterns and textures in Houdini (2020) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:A95E0B6C8513FB455A279879597FE9D53A6EFA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ A4 Химена · Jimena(   Читать дальше...   )Жанр: Easy List
 ```bash
 magnet:?xt=urn:btih:0498125CF5859DAA37F01F967D1187657E18F26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CD378F36B1D94E2A239C77CD1CDFE3068246CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ Green Grey (рус. Грин Грей, Зелёно-серые) — украин
 ```bash
 magnet:?xt=urn:btih:8A50FF9C6F5C79EC499CD3661D2C65C5BEA5AFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6026CD7FCB4EDFDFE23356FCC2BA7883242BF900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ Masterclass, Margaret Atwood | Margaret Atwood Teaches Creative Writing (2018) P
 ```bash
 magnet:?xt=urn:btih:15BB2E9ADFCEF40FFB043F1D406EEA4A934C5F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ The Art of Aaron Blaise, Lyndon Ruddy | The Art of the Storyboard with Lyndon Ru
 ```bash
 magnet:?xt=urn:btih:7ED09461C358FDE672C5B39AAF1352BB94CEC220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E073D08F62DF56DF50847877B9A71775EB5694FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +535,7 @@ Tanya Lapointe | Артбук по фильму Бегущий по лезвию
 ```bash
 magnet:?xt=urn:btih:65FD6C7CEB86AE45D497B1C497F0D7EE70FC231B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ Icecream Ebook Reader Pro 5.31 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:540C3D7C0555C4AC65E1E4730C0E60A9FDC9329B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F29E2B18A54956145BE748DBE4572A5A6F5AADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +613,7 @@ Creedence Clearwater Revival - Best Of (2008) 2CD [APE|Lossless|image + .cue] <F
 ```bash
 magnet:?xt=urn:btih:BA1AF78D11A7303E6F019C39465C477911F8F632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ The Gnomon Workshop, Scott Robertson | How to Render Matte Surfaces Vol. 1-3 (20
 ```bash
 magnet:?xt=urn:btih:2009D34675E5CF053F9E9E409606AF4D64F895B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

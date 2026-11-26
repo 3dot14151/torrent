@@ -19,8 +19,7 @@ Perfect365 One-Tap Makeover v8.57.17 [Ru/Multi] - создание виртуа�
 ```bash
 magnet:?xt=urn:btih:7EC83A9CC607C37536E77EFE5073650C027A9F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

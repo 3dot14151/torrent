@@ -28,8 +28,7 @@ Lord Snow - 2 Альбома (2011-2013) [MP3|320 кб/с]<Screamo, Post Hardcor
 ```bash
 magnet:?xt=urn:btih:95985C481BAB8B4CC4CCCF5172A21E1B82607F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27EEFC2442BE01E427E3931795726E1223C4E43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1F0B88893B31A57E0166DF79A72CDD925C218AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ MailTags добавляет поддержку тегов, ключевых сл
 ```bash
 magnet:?xt=urn:btih:320CCEDF97B704851070D5AB80ABB8587C62D4EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ Nord Frost - Schwarzwald (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:B38A41B435A3C665BDC051341CD243AC7C936EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Blogo собрал возможности для мощного решения �
 ```bash
 magnet:?xt=urn:btih:80659D351658069DE820E3DBF24D29EB999C7575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Challenge Sprint Pro - велогонка в Квебеке , Канада . П�
 ```bash
 magnet:?xt=urn:btih:2E677BF56B57BDD7EEFBC26B8D4F00D32ED346D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Alexander Stewart - The Live Session (2014) [MP3|320 кб/с]<Vocal Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:AB0E7C66CE519AA364634D7C87B33886C30C1FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ Cox And The Riot - Death Disco (2014) [MP3|320 кб/с]<Indie Rock, Pop, Alterna
 ```bash
 magnet:?xt=urn:btih:03C68E1CCE7E4F60DE2B1E2C3DBA649B3A3DA660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Belfry - Rest In Pieces (2014) [MP3|320 кб/с]<Melodic Death Metal, Power Meta
 ```bash
 magnet:?xt=urn:btih:E36D6DB140B3C8A9F7C91EE4640194AF96AD9335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73664651C1D34ED3A272A31B9B42A936600C2BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ Marc Johnson - Shades Of Jade (2005) [FLAC|Lossless]<Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:5AD89E23A973C51482FBFA99464E0ADAB321B2EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Brothers Keeper - Todd Meadows (2014) [MP3|320 кб/с]<Southern Rock, Blues, Am
 ```bash
 magnet:?xt=urn:btih:6D55A2DADCB12B08E9F6BF38DD2595EB9EB609EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ VA - House Music Pause Vol 22 (2014) [MP3|320 кб/с]<House, Deep House, Club H
 ```bash
 magnet:?xt=urn:btih:B4B6BE9158B70BEA14ACAA54781819B9EFF3B5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ Zainetica - Soul Paradox (2008) [FLAC|Lossless]<IDM, Electro, Experimental>
 ```bash
 magnet:?xt=urn:btih:94F96508F1947FCDE830262AFEA7E7ACA638A807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0F06BD7997ACB995D8F026F9F0D9FC092C4B752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +561,7 @@ Ben Webster - See You At The Fair (1993) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:C40773E0B46B09DF9E75FF66FE621A35BA0EB09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7E97902112B18281796E2EBAA8C3DFA5F3B8179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ Maggie Herron - Good Thing (2014) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:F491AA0805E35AEEABF538CCB1B5D81A66550E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE1FEC5B90F63F7ECD109C724F35070724E8AEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A7FB1047E09BA6DF56C4509C2D97C8DF683E31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +711,7 @@ CD2 - Humoresque (00:57:04)
 ```bash
 magnet:?xt=urn:btih:C79803F72970251B9273FA1EC1CE598C0FF2AF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1A8E2173EB335E67AFD88D46F31E1486BB5FAAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F719FEBCDB88F0212BEF23863CF733D8C8342EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

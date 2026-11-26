@@ -19,8 +19,7 @@ The Secret Order 4: Beyond Time / Тайный орден 4: Вне времен
 ```bash
 magnet:?xt=urn:btih:2663625829000CDAB55917BD1558E9424DC2D06F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forgotten Kingdoms 2: The Ruby Ring / Забытые Королевства 2: �
 ```bash
 magnet:?xt=urn:btih:9839A3B0697E361EBC369A0FB15F421C539C68BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Forgotten Kingdoms: Dream of Ruin / Забытые Королевства: Ра�
 ```bash
 magnet:?xt=urn:btih:41C183E875F4E7786A765DCE63DBE3207CA20DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

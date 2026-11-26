@@ -19,8 +19,7 @@ Mole (2026) [Ru/Multi] (1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:E808A5EC4F623885B490A34B3E635B9F9F410C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mole (2026) [Ru/Multi] (1.7) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:38181948B4D72F27BDB35E29BE93BACF26D98436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HellSlave II: Judgment of the Archon - мрачная тактическая RPG
 ```bash
 magnet:?xt=urn:btih:19982AE1454EB53D730641869345F7E33B85BDDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Yet Another Zombie Survivors - это динамичный изометриче�
 ```bash
 magnet:?xt=urn:btih:C24F358B03948275EAAFADA1D2845F1E354DB52F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lineris - своего рода переосмысление некогда по
 ```bash
 magnet:?xt=urn:btih:7D4C9EF5B57F703C0D536695969807522758ACBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

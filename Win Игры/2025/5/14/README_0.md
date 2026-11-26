@@ -19,8 +19,7 @@ Wildermyth - ролевая игра с процедурно генерируе�
 ```bash
 magnet:?xt=urn:btih:1F0CA0F31CBFFA91DE1D5CDD9A3E5BF9DDE97753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Drug Dealer Simulator (2020) [Ru/Multi] (1.2.19.1) License GOG
 ```bash
 magnet:?xt=urn:btih:924D4236FC764C6444EC2A9E523672F0C8160622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.2.5) License GOG
 ```bash
 magnet:?xt=urn:btih:C3874140E5D30283705A1FBFF2E49C2E296AA151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.17/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:34D25FC79582ADE34F02FEDED8C4A31C144695A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Sinking City - игра-расследование в мире по моти
 ```bash
 magnet:?xt=urn:btih:35A392AFABC6167D2EA7E6DA150A78E6FEA2C2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crystal Project - фэнтезийный приключенческий прое
 ```bash
 magnet:?xt=urn:btih:094F92CA1D07BA60A46E18E1A7E1F1E64938B0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Crow Country (2024) [Multi] (Build 18435138) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B1BE10F7A874AD9525293BB834DD4E8D08DB3DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Crimson Diamond – это детективное приключение в 
 ```bash
 magnet:?xt=urn:btih:5977AE5E3D5ECDBE7ED83DEA90D21F6D4B20CE8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Death Squared (2017) [En] (1.8.5) License GOG
 ```bash
 magnet:?xt=urn:btih:8A26E9CB5C85BDD5670473653961FD0C013B2BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

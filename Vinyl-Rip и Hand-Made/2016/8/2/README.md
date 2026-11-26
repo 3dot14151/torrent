@@ -22,8 +22,7 @@ A4 Art Tatum - Хумореска (Humoresque)(   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:DABD8BC7D5A01F33BC91F52D3EAD1DEA6C0C8E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Carmen McRae - Exactly Like You(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:BC26ADCA15833D7CA36C185E8FAB32048C1FE669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Tony Bennett - I've Grown Accustomed To Her Face(   Читать дальше
 ```bash
 magnet:?xt=urn:btih:6C9C3382778439949BC6EDAB0034DD6BE31F43BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0C29062D77F0B1F8A3577109D6BD00F8AF65079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

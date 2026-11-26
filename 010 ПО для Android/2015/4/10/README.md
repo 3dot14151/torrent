@@ -20,8 +20,7 @@ StickMount может использовать бинарники NTFS-3G и mou
 ```bash
 magnet:?xt=urn:btih:5AFBF43660CCAACF418322E310897B072D71DF5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

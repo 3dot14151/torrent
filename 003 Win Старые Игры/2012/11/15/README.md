@@ -19,8 +19,7 @@ Blade & Sword 2 [Ru] (RePack) 2005 l IGALLARDOI
 ```bash
 magnet:?xt=urn:btih:D744F1A1E145D362FF2D5E0492D519332354075A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

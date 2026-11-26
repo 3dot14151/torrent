@@ -19,8 +19,7 @@ Cadenza 6: The Following (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:17B3538B03B8E55A3DBFC9EF01BDBCA31B042F91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

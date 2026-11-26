@@ -21,8 +21,7 @@ It is important to say the tongue twister out loud. Try to memorize the text by 
 ```bash
 magnet:?xt=urn:btih:2992B9E162E249165A87DAFC1FC0D80B5E233FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ViPER’s Audio - это набор программного обеспечен�
 ```bash
 magnet:?xt=urn:btih:B0FB08E1CE6F50F20EC2A6B122C3AA9FF679A784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

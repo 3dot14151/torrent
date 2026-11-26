@@ -22,8 +22,7 @@ Accuser - Dependent Domination (2011) [FLAC|Lossless|image + .cue] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:290A77ABFC1D4D75ABD50319D63B287FF4426151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Guesch Patti - Labyrinthe (1988) EMI France [APE|Lossless|image + .cue] <Pop Roc
 ```bash
 magnet:?xt=urn:btih:4661E9DDF3B49536B24C88DA66EA61E6B29EDFF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Nemo's Secret: Vulcania (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:78904C6179170CABDF23417F5E7A1596FA2D0790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Temple of Life: The Legend of Four Elements. Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:738B1D1E8F400CA922A1CA8926EEB1A94DA4674C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1D9AABFB1D215AAAE242776614B4FC3579E4387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Red Crow Mysteries: Legion / Красный ворон. Таинственный
 ```bash
 magnet:?xt=urn:btih:78C759225DECEAEDF853F1929F8248F21B6A858B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Frozen Kingdom / Снежное царство (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:ECE7EB52B0998751BBCA3A5B650C5287DCF5985B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Revenge of the Titans [En] (L/1.80.13) 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8E6DEF0F25C7D62787EB71B0982B8A1E4EA256E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

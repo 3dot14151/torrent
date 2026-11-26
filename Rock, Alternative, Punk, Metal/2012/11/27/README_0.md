@@ -28,8 +28,7 @@ Molotov Solution - Insurrection (2011) [FLAC|Lossless]<Deathcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Witchcraft - Legend (2012) [FLAC|Lossless]<Hard Rock/Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Shepperton Studios Rehersals
 ```bash
 magnet:?xt=urn:btih:21D71D272A924E0A43F643CD29E4C19C2C4E1985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

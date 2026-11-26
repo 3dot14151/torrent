@@ -18,8 +18,7 @@ Highlights School | Художественная обработка фотогр
 ```bash
 magnet:?xt=urn:btih:D26703B90D0F5A0F28659A2CFEBB243C228F765D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WinBoot-установщик для Windows 7 (x86-x64) adguard (v15.08.15) [Ru]
 ```bash
 magnet:?xt=urn:btih:655BBC3B51FB1CF2B7EFFE4423B9947E1883EE2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cloudbuilt – динамичный инди-платформер от моло�
 ```bash
 magnet:?xt=urn:btih:38377998CB507E4001E259C15289D66E2FA3E76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Novicorp Remove Windows 10 Spying Features 1.2.0000 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B0F3C1A4A47CB02907BA5A18143C84FFBBC064CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Invisible, Inc. — это генерируемая процедурным об�
 ```bash
 magnet:?xt=urn:btih:D00AA0CECFAD1A3B7373AF4303A50A627A744529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:1402FF3DB7150FDE88F4C995E6854244BA076274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE2CDE46C345EE8FD8749F69687FC292D1537E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ The Incredible Adventures of Van Helsing II / Van Helsing 2: Смерти воп
 ```bash
 magnet:?xt=urn:btih:93FCAC6DAA74C8D253B7C70B9B077EFBC0082272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.4.2b/dlc) SteamRip
 ```bash
 magnet:?xt=urn:btih:710E73726FABA5BE45B1F02E4C637FC68CDDBFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Battlefield Hardline (2015) [Ru/En] (1.07.15.00/dlc) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:E63123CAF618567BC96B529A050C846DE52CA8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ OS X 10.10.5 Installer USB for Win (14F27)
 ```bash
 magnet:?xt=urn:btih:60780B8E1AE80A791285374D78EF583922197B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ iGo Primo - программа спутниковой GPS-навигации, к
 ```bash
 magnet:?xt=urn:btih:979638C65B9378EAA1279D6EF9A77AADF51B9CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

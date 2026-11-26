@@ -19,8 +19,7 @@ Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:171895AFD55B18BB1810238FA55719A38FEBCA01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

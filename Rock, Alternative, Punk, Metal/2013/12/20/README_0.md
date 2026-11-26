@@ -28,8 +28,7 @@ Trauma - Scratch and Scream (1984) 2013 Reissue [FLAC|Lossless]<Speed Metal/Heav
 ```bash
 magnet:?xt=urn:btih:FF377C93B1F63BF544F8D35724AA32072F305BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Anders Osborne - Peace (2013) [FLAC|Lossless]<Rock, Americana, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:41A5B17CBDB691611F92F2058C684E227115DC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Scorpions - The Platinum Collection (2005) 3CD [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D658B5E273E39EF5E8EB28A7A733EFFC424DE92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

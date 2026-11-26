@@ -19,8 +19,7 @@ Investigator — приключенческая игра с видом от пе
 ```bash
 magnet:?xt=urn:btih:D005B06F7821C81C411248C95217B3DA6A803F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fairies - увлекательная головоломка для всей се
 ```bash
 magnet:?xt=urn:btih:8103CB0DDC38F3D3600674D567FAE02F31A71673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:35B456CEC34CE75E1CF63998EB6C2A6366FA5E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tokyo Xanadu eX+ (2017) [En] (1.08/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:1F1A29F08624EA380440083B65AB1FD9BBABB2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

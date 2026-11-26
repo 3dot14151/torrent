@@ -19,8 +19,7 @@ Twilight Phenomena 3: The Incredible Show / Сумрачное явление 3:
 ```bash
 magnet:?xt=urn:btih:2714B4D85313346D4C0489C97EE430BBB06A21AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Silent Nights 2: Childrens Orchestra / Тихие ночи 2: Детский О�
 ```bash
 magnet:?xt=urn:btih:4EB1A4A54FF29E9D35284D7F331060969A516B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

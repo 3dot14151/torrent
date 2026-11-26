@@ -19,8 +19,7 @@ Connected Hearts 3: The Musketeers Saga / Связанные любовью 3: �
 ```bash
 magnet:?xt=urn:btih:758807C819A1126A58074C93E7F1734342770D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ City Legends 3: Ghost of Misty Hill (2023) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:F5A4C540DD92187CB57664A88B9E18C248614C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Criminal Archives 2: Alphabetic Murders (2023) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:3D7AF93AAA52E4214CE6FA0C59CE58881D0D2A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

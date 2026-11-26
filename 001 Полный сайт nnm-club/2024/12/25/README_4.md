@@ -18,8 +18,7 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 ```bash
 magnet:?xt=urn:btih:349225FC13A9347298F01D2435CF0F3ECA979353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Not Another Weekend v1.12 [En]
 ```bash
 magnet:?xt=urn:btih:B81B6C6A31077C8DF5E3455173AA420C5CEA09D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Power Battle Watch Car: Watch Gamyeon-ui Yeogseub | Power Battle Watch Car: Retu
 ```bash
 magnet:?xt=urn:btih:462820816FABCE30137C6A0BE9CE9B2B74EC48C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Christmas Wonderland 15 / Рождество. Страна Чудес 15 (2024) 
 ```bash
 magnet:?xt=urn:btih:372E1A14F47E403490435F2B897C6D08D3BE1A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ The latest news from science, research and culture will open your eyes to many w
 ```bash
 magnet:?xt=urn:btih:A7C75DE932E38C727FB620018550934608266CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

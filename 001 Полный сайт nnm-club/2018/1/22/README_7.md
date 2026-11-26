@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:2EB336802C75B3677E11395EFB782CAB4C18CC8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C4CFA8AB0BD15DCB2454C389E27286FC34F3DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Baby Laurence - Dancemaster (1959, 1960) 2008, Classic Jazz [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:DD88958746FD8984A1DA71156277296EFAB1706D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Frankie   Newton - 1937 - 1939 (1992) Classics [FLAC|Lossless|tracks + .cue] <Sw
 ```bash
 magnet:?xt=urn:btih:AED8F56B541B2F15C9954B6909E200B25F305C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEE80B1EE871404BAA65D83EE37ACAB0094B1CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Cody Moffett - Evidence (1993) Telarc Jazz [WavPack|Lossless|image + .cue] <Post
 ```bash
 magnet:?xt=urn:btih:B138D9073D7A89F8B228EBABC76F76F2180A110C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ VA - Clubbers Culture: Trancefields 003 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7EADBE20161591E43AF29400C6899757D5236050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39299EFBE5C9258185331BF165A6529F6ECE7757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ IsoQuant - Discography 4 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Tec
 ```bash
 magnet:?xt=urn:btih:1595A8CA37D9E28916613C880AED9B8389D5E92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Brien Hindman - Cognitive Buffer Hypothesis (2018) Ant-Zen [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:CA8D0CD87B5D3BCD6A0122F73EB35590C7969AB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ VA - Dark Uplifting Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:BF2C817D279CA90006DF33108BFE60052D364FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Damian Wasse - Music Colours (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:4F067E3B641A74D695E7657C92178CF2D3110DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ VA - Euro Disco: The Lost Legends Vol. 13 (2017) [MP3|320 Kbps] <Euro-Disco>
 ```bash
 magnet:?xt=urn:btih:2B3BB634AA7F5279D36D447F29387166B45536B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Lunar Testing Lab - Discography 11 Releases (2008-2017) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:24CD1CBF3F74D7E7768694F6FFC4246759FCC778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ Signus - Black Hole (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:8208F8B0E9CF661D8DC7A56D0122E2F7E9BE8811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Walking Papers - WP2 (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8F42B24F14256E7EEF14676C8876E7263B01F88C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76B44C2E46CD93A7A60B32918AE275AEEF83689B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E2DEEFC5B6DEAC4A2D74C212F7EE5F5B1030F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ VA - Euro Disco: The Lost Legends Vol. 12 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 ```bash
 magnet:?xt=urn:btih:1932716BDE8D6F9C7EA001E4A15657E278797E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ VA - Euro Disco: The Lost Legends Vol. 14 (2017) [MP3|320 Kbps] <Euro-Disco>
 ```bash
 magnet:?xt=urn:btih:C1A7745F1E8106FE1480655C859F6BE8C416449F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:138D1A9897142176C7E8DC247E9E4B7341EC97A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ Total CSV Converter - прекрасный конвертер CSV файлов �
 ```bash
 magnet:?xt=urn:btih:7E916AB0C0558CD9C13EB619FAE9553939D82F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:5F00A2FADD93125501C9296AC764243D783C4832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ Jens Buchert - Best Of (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electro
 ```bash
 magnet:?xt=urn:btih:A293F917DE07F78B67BD852A47F04289DA47E9C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ VA - Euro Disco: The Lost Legends Vol. 11 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 ```bash
 magnet:?xt=urn:btih:698E30B21EDA7C2284681E36729B5A444F0348D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB81370EB06DEBD23BCA3D473093DF31B3EDE3F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

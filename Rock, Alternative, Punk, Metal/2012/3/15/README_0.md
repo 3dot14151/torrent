@@ -28,8 +28,7 @@ Exodus - Exhibit B: The Human Condition (2010) Japanese Edition /2011/ [FLAC|Los
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Aranda - Stop The World (2012) [MP3|320 кб/с]<Alternative Modern Rock>
 ```bash
 magnet:?xt=urn:btih:C05DAB83E7ED67AAC30E46A3EE54142A76C963D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Alan Corbel - Dead Men Chronicles (2012) [MP3|320 кб/с]<Folk Rock>
 ```bash
 magnet:?xt=urn:btih:1CF0C597B4D88A62080804BC2A3BF2B0E96B2757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +131,7 @@ VA - Рок из подворотен. Илья Черт представляе�
 ```bash
 magnet:?xt=urn:btih:89EDADA1C188F9FFEAD23E5658F3A33989B19F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +165,7 @@ VA - Черный Лукич - Трибьют (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:CAE26CDE5D5DA27CE2A34E9022A3853036FEDFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +199,7 @@ Nazareth - Live In Texas (1981) bootleg /2000/ [APE|Lossless]<Hard Rock/ Classic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

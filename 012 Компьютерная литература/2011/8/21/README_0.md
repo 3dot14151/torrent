@@ -21,8 +21,7 @@ Silverlight 3 — это революционная технология, кот
 ```bash
 magnet:?xt=urn:btih:AEF92A4E860178088A6D15072C200B0EB282A672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

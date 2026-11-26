@@ -22,8 +22,7 @@ Germano Dieni - Per il mio nome (2021) [MP3|320 Kbps] <Power, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FF4187AB70F98528F3569B4A6DE95E0A0571A8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brethren Hogg - Brethren Hogg (2021) [MP3|320 Kbps] <Southern Metal, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:019F2140AF8278FF244B46BB61F988C219E01FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pennies by the Pound - Heat Death Of The Universe (2021) [MP3|320 Kbps] <Progres
 ```bash
 magnet:?xt=urn:btih:6B78B2A6375EEA9605029E317647FF849A22C63D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Black Magick SS - Rainbow Nights (2020) [MP3|320 Kbps] <Psychedelic Rock, Black 
 ```bash
 magnet:?xt=urn:btih:54BDB1E10B1FB7EA3B4B2442A2406D3214C21029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Borgne - Temps morts (2021) [MP3|320 Kbps] <Industrial Black Metal>
 ```bash
 magnet:?xt=urn:btih:10F702942CDCDBBE21B7BFD9C0E70959F70AE654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ DeadLights - 3 Albums (2017-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:F94BD2A35B56115EFA72B4126EE0CF8A3935160D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Herman Frank (ex-Accept) - Two for a Lie (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:5ADA0E66A8DC68BFC6649B486EC25DC13A314CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Roger Glover - легендарный британский бас-гитарис
 ```bash
 magnet:?xt=urn:btih:66B262254719871E1B5BE4FF7D0BFEE59ED2C308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

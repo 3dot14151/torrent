@@ -20,8 +20,7 @@ Wire Messenger - кроссплатформенный клиент для мгн
 ```bash
 magnet:?xt=urn:btih:EA0F66BC7685AE3D2ECB38AAB25CE7AF2934172A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

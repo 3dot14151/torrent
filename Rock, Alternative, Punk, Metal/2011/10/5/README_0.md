@@ -28,8 +28,7 @@ Helgrind - Inquisition (2011) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:996C9ECE17702FD30EC5109E6CCA526819CB3DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Battlelore - Favorites (2011) compilation [MP3|320 kbps]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:0984126A3EC9E23DDB3F7A10BDF197C6EF335A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Nocte Obducta - 8 albums (1999-2008) [FLAC|Lossless] <Avant-Garde/Progressive Bl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Stormlord это уникальная итальянская группа, ко�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ Soviet Soviet - 1 album/1 EP (2010-2011) [MP3|192/320 kbps]<post-punk>
 ```bash
 magnet:?xt=urn:btih:C1A19538F9BD4A7ECD186E939E6E10D22B774B47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Zorge (ex-Tequilajazzz) - Zorge (2011) [MP3|320 kbps]<Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:6056F830B316CDF15AEA5DB84E656A4ADC021D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

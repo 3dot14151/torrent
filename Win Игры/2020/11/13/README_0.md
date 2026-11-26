@@ -19,8 +19,7 @@ Adventures of Megara 2: Antigone and the Living Toys / Приключения М
 ```bash
 magnet:?xt=urn:btih:A08D451A1B0FED1FDF94E4BCF9902E6729D03BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Acronis BootCD/DVD 2020 – загрузочные образы на базе Li
 ```bash
 magnet:?xt=urn:btih:6EEC958B5F28AC7798F14F243F13B400707B1CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

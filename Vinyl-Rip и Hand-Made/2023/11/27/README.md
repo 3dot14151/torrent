@@ -22,8 +22,7 @@ A4 Story Of A Girl I Knew (Lasko Ma, Nerikej Dik)(   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:F05263E71FB7BC6D610F935F3E66650053AA3C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [F
 ```bash
 magnet:?xt=urn:btih:6AC20FB2D7A206ED1F7F303F5EE0549799AE4DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

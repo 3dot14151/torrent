@@ -20,8 +20,7 @@ iTubeGo YouTube Downloader 7.6.2 Portable by zeka.k [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5BC2BCD67CC629E0BDFE741516FBCC6E6DBD05EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:7A600156BDA245FDC2DD97577511662F3525C8D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

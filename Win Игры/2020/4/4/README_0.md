@@ -19,8 +19,7 @@ Figment — игра в жанре приключенческий боевик, 
 ```bash
 magnet:?xt=urn:btih:0B6D4702A25C3B46ECDC5FF87FC1556FE5A0B2EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DARKSIDERS: GENESIS — экшен-приключение, в котором в�
 ```bash
 magnet:?xt=urn:btih:F4B8152ADC4A72CF053DB4ADD5229C9BE3B13F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

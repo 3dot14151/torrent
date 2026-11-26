@@ -19,8 +19,7 @@ Sherlock Holmes and The Hound of the Baskervilles / Шерлок Холмс и �
 ```bash
 magnet:?xt=urn:btih:95D3B8DEB7B3A7C57E01199481B35038EC02E1D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lynn, The Girl Drawn On Puzzles (2020) [Ru/Multi] (1.0.01) License GOG
 ```bash
 magnet:?xt=urn:btih:39D27614246564FEBA3656616ED6A15259ADFC8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Zombie Shooting Star (2022) [Multi] (1.1) License GOG [16+]
 ```bash
 magnet:?xt=urn:btih:F822FDD9CBE85EC7C54EAD3CAB39F0DA8F8DAF35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Labyrinthine — кооперативная хоррор-игра с одино�
 ```bash
 magnet:?xt=urn:btih:EC71D978090BF7CE08C2AF2B7C858B0C8178BE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

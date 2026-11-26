@@ -19,8 +19,7 @@ Heart of the Woods – фентезийная визуальная новелл�
 ```bash
 magnet:?xt=urn:btih:10560F577006FC4AF5E67B84D3E680BDB4DB9BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:DBC44C94B429E1F5DA69A5FBBB06A80CE7375860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

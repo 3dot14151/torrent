@@ -19,8 +19,7 @@ Ubuntu Desktop — это популярная операционная сист
 ```bash
 magnet:?xt=urn:btih:35C9F3F74C16539822F222410F20F7577BCA8545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Deepin 23 — новый релиз популярного дистрибути�
 ```bash
 magnet:?xt=urn:btih:B5C2C75808FD76134DD624006D01DA96640935C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

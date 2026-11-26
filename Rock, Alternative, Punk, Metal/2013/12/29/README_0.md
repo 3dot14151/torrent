@@ -28,8 +28,7 @@ Roko - 2 CD (1990 - 1992) [FLAC|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:6988EE607F661A3E71F64F4EB0A0077BE0D46976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Jimmy Martin - Wild At Heart (2013) [FLAC|Lossless]<Melodic Rock / AOR>
 ```bash
 magnet:?xt=urn:btih:0C970BED3A3F79F3B1680E5551A5DC4439C09968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Silent Voices - Reveal the Change (2013) [FLAC|Lossless]<Melodic Progressive/Pow
 ```bash
 magnet:?xt=urn:btih:280753419EF0177FB97E17360780A5C7E04753F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Bram Stoker - Cold Reading (2013) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:14B09B2E9719AC0C8D2C66DD9B71673708506914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Cakewalk - Transfixed (2013) [MP3|320 кб/с]<Psychedelic Rock, Progressive, Av
 ```bash
 magnet:?xt=urn:btih:FDE264CF866D7652D18C1BCF49B88EDF7CA1FCBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Bob Dee With Petro - Burning Rain (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8F78AAD2DF7DB83D9E7A2219E8D9028C6DFE5EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Gary Moore - Wild Frontier (1987) 2003 Remaster Edition [FLAC|Lossless]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:51B7A5B042D7AC86F53358CC4D9F97F3D1DC8491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Hard-Fi - Best Of 2004-2014 (2014) [FLAC|Lossless]<Alternative Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:467D6FC8410323FCA280B7985BAACF998594C654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F8187B58EDEE0426989F065DEA90F96FD4EB0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

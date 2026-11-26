@@ -22,8 +22,7 @@ Doug Brons - Pull (2021) [FLAC|Lossless|image + .cue] <AOR, Westcoast>
 ```bash
 magnet:?xt=urn:btih:53EDC5C65D55858B3CDB1EF6A75FC22A054A9327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hate Eternal - Upon Desolate Sands (2018) [FLAC|Lossless|WEB-DL|tracks] <Death m
 ```bash
 magnet:?xt=urn:btih:F13CF244B67849AB8B3FAA9F282AFA4E7BDA2794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ M.ill.ion - Back on Track (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FC50E683096B781F09F1BC49E989716C994A1D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Moratory - The Old Tower Burns (2021) [FLAC|Lossless|image + .cue] <Thrash, Punk
 ```bash
 magnet:?xt=urn:btih:A748C601D1CCA537DBEC74D558B76650936BD763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rian - Out Of The Darkness (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 ```bash
 magnet:?xt=urn:btih:5F20AF9656467CBEBB795BE6ACD17E84BAA738B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Soto привлек к работе над "Complicated" продюсера и �
 ```bash
 magnet:?xt=urn:btih:3DAC6594944177045E4E2639A6D145FA8A813EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

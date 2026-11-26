@@ -28,8 +28,7 @@ Fanthrash - Duality Of Things (2011) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:692F7BC27E00FD508F9DAD480D0FDC61DA81A13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Fallen - A Tragedy's Bitter End (2004) [FLAC|Lossless]<Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F9BFF7925DF860F2C964EAD760035BE63AFFCC9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Mufftrain - Evol (2012) [MP3|320 кб/с] <Grunge, Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:FA54C1CF1C1610B47F84D3806BF78046567C0CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Althea - Tags (2011) [MP3|320 кб/с]<Alternative | Female Vocal>
 ```bash
 magnet:?xt=urn:btih:63FDD922841085D515BBC543AA45B9ED70287513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Circa Zero - Circus Hero (2014) [MP3|320 кб/с]<Alternative/ Indie Rock>
 ```bash
 magnet:?xt=urn:btih:890D1B32D8EFA2333DCFCE3C936C45C66D22203D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Stryvigor - Забуте Віками (Forgotten by Ages) (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:28C2F1AAD3B5AED62BCADEE814D865987550C296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Skalmold - Med Vaettum (2014) [MP3|320 кб/с]<Folk Metal, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:4B52B3136BDAA3C6C0E948CC152E141C8C5FA76D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ The Smashing Pumpkins - Being Beige (2014) Single  [MP3|320 кб/с]<Alternative
 ```bash
 magnet:?xt=urn:btih:8F0DDC85AE60C246615E65C8BC3E64E6FC118698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Fatal Opera - Fatal Opera (1995) [APE|Lossless]<Technical Thrash / Speed Metal>
 ```bash
 magnet:?xt=urn:btih:EA8E1064CB06A0A9BB1B4E136F30B8D0B2D6F42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ Sean Lennon - Friendly Fire (2006) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:34B42567848420A2E48FDDBDFC59111273109160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ America - History (America's Greatest Hits) (1975) [FLAC|Lossless]<Classic Rock 
 ```bash
 magnet:?xt=urn:btih:A135183D34D10104A96357982EA6AD5B52D9F3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ Lyriel - Skin And Bones (2014) [FLAC|Lossless]<Symphonic/Folk/Gothic>
 ```bash
 magnet:?xt=urn:btih:BB7F0E113EB0C487BD1BA2FF6D8D9560D1E464A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ Cliff Richard & The Shadows - Thank You Very Much (1979/2004) [FLAC|Lossless]<Po
 ```bash
 magnet:?xt=urn:btih:A5F82846CDC5010F7DAB999759962B3A4B81EAAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +448,7 @@ Ten - Albion (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:33B44B1D1ACA1BA1D72FDFA0EAA01A8000D3DC26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +473,7 @@ Papa Roach - Warriors  (2014) Single [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:082C6D65794FA4CD5756CC4A4F3AD0DBE898E18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +507,7 @@ PVRIS - White Noise (2014) [FLAC|Lossless|WEB-DL]<Alt. Rock | Electronic | Femal
 ```bash
 magnet:?xt=urn:btih:6499F938A9331F8C9F08947165748E6FEDAB1FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +532,7 @@ Papa Roach - Face Everything And Rise (2014) Single  [MP3|320 кб/с]<Alternati
 ```bash
 magnet:?xt=urn:btih:26DC190DBEAE0A14073D5A11C5A5FF39C4482423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:819DDDEF2CCF756FA043F05ADB830B5DBDF67443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

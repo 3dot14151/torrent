@@ -19,8 +19,7 @@ The Long Dark (2017) [Ru/Multi] (2.52 Build 179852/dlc) Repack FitGirl [Quiet Ap
 ```bash
 magnet:?xt=urn:btih:4299837DA6B08B3817CF8F3ADEF90E5912FDC356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ People of Note (2026) [Ru/Multi] (2026.4.13.2026-CL156094) Repack Let'sРlay [So
 ```bash
 magnet:?xt=urn:btih:3CED57165A07CCA3DF1365130978C7C151B3FC55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 ```bash
 magnet:?xt=urn:btih:A15163AD1096912CF4420197429722925B253895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ELEX II – продолжение ELEX, винтажной ролевой иг�
 ```bash
 magnet:?xt=urn:btih:5E132C45968AD34400421D344DD13ACB8561C234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PARANOID (2023) [Ru/Multi] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:156058EC3092264A66219EB4C43AD0EF82AF40F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ultros представляет собой 2D платформер, которы
 ```bash
 magnet:?xt=urn:btih:AB20A6EE96E66738D9FD39AAE4C04AF2F84FC200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

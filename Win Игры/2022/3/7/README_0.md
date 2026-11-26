@@ -21,8 +21,7 @@ The Bad, the Ugly and the Sober / Злой, плохой и трезвый [Ru] 
 ```bash
 magnet:?xt=urn:btih:45D664AEB193664CA13F1601EDEC53231D9B2D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ ARK: Ultimate Mobile Edition включает оригинальную карт�
 ```bash
 magnet:?xt=urn:btih:6C45AB375B2262759673CAA95851D11CF48ED0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Woolly Boy and the Circus 1.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:CCAE7CFF43257EFDE072C579619BAB36BFC1A130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

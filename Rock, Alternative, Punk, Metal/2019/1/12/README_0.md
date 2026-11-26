@@ -22,8 +22,7 @@ Ironia - Hate State (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 ```bash
 magnet:?xt=urn:btih:152375FCD497C5C1C21F8000073C6E05A1D213BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

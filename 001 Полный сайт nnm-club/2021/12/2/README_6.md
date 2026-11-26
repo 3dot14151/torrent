@@ -19,8 +19,7 @@ XCOrganizer - это инструмент, который позволяет л�
 ```bash
 magnet:?xt=urn:btih:8E64590D40DB9D4F26AEF3CA3CD67369AEED9853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ DirEqual - это инструмент сравнения папок, котор
 ```bash
 magnet:?xt=urn:btih:B02300FE22A0C2B6B5D7A982703F8FA6FB267C9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Mac DVDRipper Pro 10.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:BEB60637E3C4998FFC040C2174A6299B01DA78D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Boxy SVG 3  v3.71.0 [En]
 ```bash
 magnet:?xt=urn:btih:B2D1595519A9B17491B68546B921E2B946BCEC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Filmage Converter (   Читать дальше...   )Тип издания: ma
 ```bash
 magnet:?xt=urn:btih:1FAD698F3188367D308026215F2E27C77E192079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ```bash
 magnet:?xt=urn:btih:070895BB8A7E30F4B414BCB733DBF88CA2B18B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Metadata - это утилита для просмотра метаданных 
 ```bash
 magnet:?xt=urn:btih:8B578C6413BD7B1934047CD2FD818C6351FD31BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ RAW Power 3.4.1 [En]
 ```bash
 magnet:?xt=urn:btih:809AA884E3C86A90590E9757BFFB14608C0D43F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:04C5AB73C0AAA76DAB245CAB7DEB405E99F0665F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Dec Burke - Life in Two Dimensions (2021) [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:90D431A04BFEEC13A4DC024DD3FBF7A144FC4187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Task Office 6.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:93E0BCF2C486C507CF61814B9D103139CA2B64AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Eddie Higgins Trio - Jazz Standards Essential Best (2009) Venus Records [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:E093C78D14DAC8D5C19C617915C0778A4F192D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8988171B07CEA70E16FC1C0C74F5DB85D394260A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Text Scanner - это мощный инструмент сканирования
 ```bash
 magnet:?xt=urn:btih:54C81BD342367908460DF6C679D6E1844243C536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18C1416E010A15C89F1605013B57D4AD07DF754D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ Nova поддерживает отдельные задачи сборки, за
 ```bash
 magnet:?xt=urn:btih:9B7CA1502BC46A350848711F6B5FE5CCEEB776F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ VA - D&B: Best New Electro Bass Hype Mix (2021) [MP3|320 Kbps] <Drum And Bass, E
 ```bash
 magnet:?xt=urn:btih:6FD5CCCBC8215CBEF3E7F10212F7BB2A15C3B7B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC3D749F0E5BB6DB596CD51F7A949FDF33793A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ VA - Hypnotic Techno (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
 ```bash
 magnet:?xt=urn:btih:F90F8DA44847EB1CD3FB380C1411EA98F6E2586A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ Movie Thumbnails Maker 4.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:48FF2E79EEC5011FD030086970904D3C15A560EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19E701B47374603B7DC65D85138BA7131A419BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:8D6B3B6C13FC2C43F875E39670D182D99C7B2BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ VA - E-Dance: Clubbing Electro House (Vol.07) (2021) [MP3|320 Kbps] <Club, Dance
 ```bash
 magnet:?xt=urn:btih:0AE0AC51B02AB4978A3EB921EEEF61D0407284E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ VA - Hyperlandia Night Party (2021) [MP3|320 Kbps] <Club, Dance House, Electro>
 ```bash
 magnet:?xt=urn:btih:8058F5DBB0BF029BFA7F1C782295EE519BAD03F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ VA - Calm Winter Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:C8B089B49EEB98C004CE1C35ECFD69E78D0236D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D16EAEA90BEA0FCFFC417A707B51BA3E5C777A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

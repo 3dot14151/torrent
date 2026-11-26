@@ -19,8 +19,7 @@ WWE 2K24 позволит вам заново пережить культовы�
 ```bash
 magnet:?xt=urn:btih:433E7AA526445657B5501DE5FE870AA4937976DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hellbreach: Vegas - шутер с волнами врагов-демонов. И
 ```bash
 magnet:?xt=urn:btih:58103181B934C806AF251796553916C20B5F380D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack DjDI [Digital Delu
 ```bash
 magnet:?xt=urn:btih:F7A99B740E3F488E615F0A2E7E8A8BA67D827FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Umbra: The Last Summoner (2025) [Ru/Multi] (1.0а) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:846211998F7F9949C10831DC46425C5B9811C01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tavern Master: Complete (2021) [Ru/Multi] (2.1.1/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C2898C53685B0BFDF42CA380B7C0DD685F429DF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Lies We Tell Ourselves - психологический экшен от пе
 ```bash
 magnet:?xt=urn:btih:5A25C2D8DB07C211C89FD5392E8F8974EFA810A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Among Ashes - это хоррор-игра от первого лица о ви�
 ```bash
 magnet:?xt=urn:btih:83B3866393A0EC92B1562AFE801754EB1E1EDCE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

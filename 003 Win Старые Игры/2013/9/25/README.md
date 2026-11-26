@@ -20,8 +20,7 @@ Hanse 1480: Das Vermachtnis (1999) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:5689D384CFEB8B95359C08A38BE6780671C97C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

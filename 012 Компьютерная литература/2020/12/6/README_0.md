@@ -19,8 +19,7 @@ Matthew Justice | How Computers Really Work / Как на самом деле р
 ```bash
 magnet:?xt=urn:btih:420CE85424351989996DD51DB90B8D5264599715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4703512D051F2B640F81DF33FB154ADC8EDF7275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

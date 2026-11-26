@@ -19,8 +19,7 @@ SUSE Linux Enterprise Desktop Server 15
 ```bash
 magnet:?xt=urn:btih:AE1957AA503D2119EDA29D05321F5D9D35D78DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.1
 ```bash
 magnet:?xt=urn:btih:5874EB378E306F63875F3569564D1CA3764F0266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.2
 ```bash
 magnet:?xt=urn:btih:4DBF19A69D9F75D0CBF2DE1AE0783A7E4B7E9B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

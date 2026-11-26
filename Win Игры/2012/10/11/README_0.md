@@ -19,8 +19,7 @@ Mystery Trackers 4: The Four Aces [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:A661A9AA29EADED7905B5C6FF373484B420939A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Mysteries: Royal Family Secrets / Секреты Королевской �
 ```bash
 magnet:?xt=urn:btih:F7112ADF423663089511AB3E0203A54D397D456A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ E.P.I.C.: Wishmaster Adventures / Э.П.О.С.: Дороги желаний [Ru]
 ```bash
 magnet:?xt=urn:btih:B11B470B7C14052B6D114337D1C199EAB51C19C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mayan Prophecies: Ship of Spirits. Collector's Edition / Проклятие Ма
 ```bash
 magnet:?xt=urn:btih:9B62BAB78F540682D0A1568CB2F720F5DE345223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

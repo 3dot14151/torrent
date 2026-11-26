@@ -19,8 +19,7 @@ Through the Woods — это приключенческая игра от тре
 ```bash
 magnet:?xt=urn:btih:4BCE49DDE70A295AC1E04D91D2D264F4C3549562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WRC 6 FIA World Rally Championship (2016) [Multi] (1.0) License STEAMPUNKS
 ```bash
 magnet:?xt=urn:btih:C13991A8BCBF1290D56F10F11B86A3B3F12E9E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wonder Boy: The Dragon's Trap - это неожиданное возвращен
 ```bash
 magnet:?xt=urn:btih:10151968D237F2DDD7FBE022AEAF79C59EFA54F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Political Animals - легкомысленный симулятор выборо
 ```bash
 magnet:?xt=urn:btih:B5CE47E2B57F22D65F7767FB582CF32A31DDDA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SUSE Linux Enterprise – это законченный программный �
 ```bash
 magnet:?xt=urn:btih:6951E7F49B58E75C21C26CD8083E633A48F5F859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

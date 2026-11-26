@@ -19,8 +19,7 @@ Spartan - это мощный буфер обмена. Micrоsoft Officе и д�
 ```bash
 magnet:?xt=urn:btih:976BF2E5DEDD185EDD74A161DA7C43335807EDFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ NetBalancer — это удобное приложение, предназнач
 ```bash
 magnet:?xt=urn:btih:03F924F62EC2C6CDCE1FD7864A66D5AB8A42F469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ All-About-PDF — это быстрое и мощное приложение д�
 ```bash
 magnet:?xt=urn:btih:4C4D814BEFF3592C19AA03FE4321C064E3860C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ TubeDownload Pro — это профессиональное приложени�
 ```bash
 magnet:?xt=urn:btih:C13A1EBE7E44F54F8FE198C0B8BD95CFC36368B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Vivaldi 7.9.3970.67 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DB9ECD6EF751EFB8E1F5A592FC6AC96A37D1AE7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Office LTSC 2024 предоставляет привычный набор при
 ```bash
 magnet:?xt=urn:btih:2E7B2C9F2472EECC802F86EB4B7CE8DA85B75E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

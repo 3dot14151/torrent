@@ -18,8 +18,7 @@ KkartSchool, Карина Кино | Создание книги (2023) WEB-DL [
 ```bash
 magnet:?xt=urn:btih:BD5C3F8AF192568509EFFAFE3A01E3BFE3433734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9990D4AF64369F61F5C65F3ECDB05277BB86478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC281CE538510189B35443648CB32DE72322BE21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Schoolism, Jonathan Hardesty | Essentials of Realism (2016) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:00B714EAEA6385BC06F842876A7571015C71E1A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Schoolism, Jason Seiler | Realistic Portraits (2018) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:9EE5ACF39A08C4BC8486DB8986A26AF4DCCAF1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Magnet 2.13.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:ADE878D56AA7E719C6682AA01285A6B0430568BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Cильное искусство, это обычно сочетание тех�
 ```bash
 magnet:?xt=urn:btih:EFEE0D121720BCF42633EF73E37B539D66B35552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67567E7D427B3DBC718AFAD1269A5FA2BE81ECD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:8493C5FCE30DB9EA80F3EA76ACB801E57B3CC920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:817CC1C0B0755044335FEBED0443982CD4F2B013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:657D964A06E57B00BE4BC92CD8D76169688AFD6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7621C7D61269A96B398BB104C623E50D0B36554A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ VA - ЕвроХит Топ 40 Europa Plus 03.11.2023 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:26A373BEE0B601E7F8950EDFFD93A851B68D557C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BBB347742BEE20B069A7986CE5309B444B1B8FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ Anna German - Recital Opole '71 (2013) [FLAC|Lossless]<Retro|Pop>
 ```bash
 magnet:?xt=urn:btih:181289081D2736E1F33DE5B5147CC05F2BC2DFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3772DB09EEEAEB3C3AF05933A292594AD0ADC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ VA - Юрий Силантьев. Памяти маэстро (2010) [APE|Lossle
 ```bash
 magnet:?xt=urn:btih:8615B5D2358FABC220A508F340A60AD642E3FF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +487,7 @@ New Masters Academy, Glenn Vilppu | Многофигурная композиц�
 ```bash
 magnet:?xt=urn:btih:121E8F3BDC081E987088B0AAEDC0FB51B637AF5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ I БЛОК
 ```bash
 magnet:?xt=urn:btih:73F9839B32EC7DE04FAACF31BE46CCE7D67761FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ VA - Яростный стройотряд (Repress 2007) [FLAC|Lossless]<Retro,
 ```bash
 magnet:?xt=urn:btih:F3D74031BF404213C690F60D12C434589523A4B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ Schoolism, Craig Mullins | Painting Sci-Fi from Start to Finish (2020) PCRec [EN
 ```bash
 magnet:?xt=urn:btih:841238C219CE8EC645FA44743D7BDED1D041AF78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEE3ABA4D99850F0F826B7DD2C5A2BAD36CFA3F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ Clip Studio Paint EX (ранее Manga Studio EX) - это ведущее в м�
 ```bash
 magnet:?xt=urn:btih:1BD78406505D206802BE8CF21088566CA6D24FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4100DE43AC918B2ABC820E064C344D024FA329F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0FE8DFD6DEC54DC3B5B293F82900CD1BE4B4ACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

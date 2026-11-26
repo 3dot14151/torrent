@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:56A64AC95053391CDC45587D969B691333B9A8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Android Assistant является одним из самых мощных и у
 ```bash
 magnet:?xt=urn:btih:8C7C182E6BFFA33FA64A0A8193524CFC12CA156F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Magisk Manager — продвинутый администратор прав с
 ```bash
 magnet:?xt=urn:btih:8E09C3ED9A9789457555CD1690421B4D597F9127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

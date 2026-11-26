@@ -21,8 +21,7 @@ CentOS 7.9 (209) [x86-64, i386] 5xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:E2625158E7938F4F313323368AF7E95AD1E8B989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

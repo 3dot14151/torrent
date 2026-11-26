@@ -19,8 +19,7 @@ Infected: The Twin Vaccine Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F14336EF73AFAF9B70878C806D7990ABA8C87CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Woodcutter Simulator 2012 (L) [Multi3/-] 2012 | PROPHET
 ```bash
 magnet:?xt=urn:btih:933E51E0243286D0F189EA2DF6A8953074B064A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Gemini Wars – стратегия в реальном времени в кос�
 ```bash
 magnet:?xt=urn:btih:0A935679F55EF81EFE7382D3B2EBB73040C60DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

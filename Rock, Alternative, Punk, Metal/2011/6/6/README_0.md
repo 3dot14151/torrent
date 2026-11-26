@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:A2D7CDC9B6D553DB7E640CB4F52D9C97E5231450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Gavin Friday - Catholic (2011) [MP3|320 kbps]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:8035E47E9D42BB58EE5BC79941FA1AC495685882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:ED3D02EA5AFA099D7BC0885EF860813EF959D2D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

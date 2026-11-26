@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:B771C9EB7880A7A050D88923148E509F4642B007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ I
 ```bash
 magnet:?xt=urn:btih:DE66C49689F6B2954AF76CF19BD5CE134FE714E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gus G. - Steel Burner (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Ro
 ```bash
 magnet:?xt=urn:btih:D1ACA143B4AF95D8B133269A138D0C320A00CC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Foo Fighters - Of All People (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 ```bash
 magnet:?xt=urn:btih:C1B2841D70F1A42BCB8B54637911D1E44AC525C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0507A90D82F754652D065AD6542EDD2F796D0870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total War: Rome II - Emperor Edition (2014) [Multi/Ru] [OS X Native game]
 ```bash
 magnet:?xt=urn:btih:16534EFAE10E71163B03F92D5FAB711D397D7D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ SpyHunter использует специально разработанные �
 ```bash
 magnet:?xt=urn:btih:C40584E780A55023B87FB24B127F0C420851C523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.0.0) SteamRip R.G. Игроманы [Di
 ```bash
 magnet:?xt=urn:btih:B68F672D0CDC866F56ECDEA54B0DD21B943400B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

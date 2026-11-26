@@ -19,8 +19,7 @@ Dylan Meeus | Functional Programming in Golang (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:FE35DD6EA93314AC9BB9332E48F73119520A34FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Malhar Lathkar | High-Performance Web Apps with FastAPI (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:8B970F942688D37BA3FBBA4BEB203B2A3D7DE639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Trevoir Williams | Microservices Design Patterns in .NET: Making sense of micros
 ```bash
 magnet:?xt=urn:btih:33C7BE9595D8B452282B1DB306037122DA7B1F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ An Atypical ASP.NET Core 6 Design Patterns Guide, Second Edition подходи�
 ```bash
 magnet:?xt=urn:btih:91C58A08E72A441F1CC69ED4C578BD5F42FA2EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 ```bash
 magnet:?xt=urn:btih:E9D37564DF0FD86970A609702331A66498A805BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

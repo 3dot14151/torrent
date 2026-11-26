@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:F827B1F7D11A9F929CCEC1C53AE7E6B12D843D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Marinko Spasojevic, Vladimir Pecanac | Ultimate ASP.NET Core Web API First & Sec
 ```bash
 magnet:?xt=urn:btih:DB8DCCB6FD6584CF642FCD12E1F4F9296D626C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 ```bash
 magnet:?xt=urn:btih:60C3E19A4EE060B3FD2AC23C90D20763B48BC90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Codename: Ocean Keeper (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8991570D1F004F5B1DD78138C86F809ACC30466B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19328) Repack Let'sРlay [Collect
 ```bash
 magnet:?xt=urn:btih:8940A6E9DBE2B495ADCD996A99EC8A2622C2B698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ratopia - это оригинальная стратегия, которая б�
 ```bash
 magnet:?xt=urn:btih:ADA6FBFBC74FD281EDE4A7773F3598D94DA4FD84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ My Garage – игровой проект, разработанный в жан�
 ```bash
 magnet:?xt=urn:btih:F604A1A60C28CBBBC7B4666D559871CCF45D4A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Luto - это психологический хоррор от первого л
 ```bash
 magnet:?xt=urn:btih:49F88D5D6D73134DF0A43786DB3B3DA66F1F9666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Last Spell - это тактическая ролевая игра с эле
 ```bash
 magnet:?xt=urn:btih:57739091DA5DC594C67BFAA4F696EAE2A0A7778E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178111/dlc) Repack seleZen [Deluxe E
 ```bash
 magnet:?xt=urn:btih:BA367719DAFB09790F17A2E8BC1A2226087A218E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Through the Nightmares - это хардкорный платформер, в к
 ```bash
 magnet:?xt=urn:btih:FCE4F1AC1A9B8D081FA4C64DE7CEA2DAA3239F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Car Mechanic Simulator 2021 - симулятор механика, позвол�
 ```bash
 magnet:?xt=urn:btih:3057A54703279021837C6FF4B1DB130CFC9953A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Our War: Firepower Suppression (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:825F558354A4198760A536C0C76EFCD5DF162114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Car Mechanic Simulator 2021 - симулятор механика, позвол�
 ```bash
 magnet:?xt=urn:btih:E9E943051998056108A6FB9052A6855CF0E458CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104.0611.1642/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:C925500F5921DD3813B67A34EFC0A25BAFDB37DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Fragments of Truth: An MCF Story / Осколки истины: История �
 ```bash
 magnet:?xt=urn:btih:994E4CFFBCA93789F6B52C841E223357DABCBBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Encrimson'd - Agrarian Menace (2004) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:1793D4208C5FB4193C78E07D3FAE89D22C686029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Fluisteraars - Dromers (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:B8C67C5BBC02E88F0D23F0AE14A2353BF8629A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Sinister Oath - Sinister Oath (Demo) (2013) [MP3|~245 кб/с (V0)]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:8136F90D08CA9B28D97EF23BE091E830234E0D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Nivathe - Enveloped in a Diseased Abyss (2008) [MP3|320 кб/с]<Funeral Doom/Bl
 ```bash
 magnet:?xt=urn:btih:93D6902174669FDAFE1B7E784296D95AD52DE14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Einherjer - 6 альбомов (1994 - 2003) [MP3|320 кб/с]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:1549C7289419D6BF1409DBE041230BEE93408B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Ruby the RabbitFoot - New as Dew (2014) [MP3|320 кб/с]<Indie Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:0F1726151CEF4545125D9ACBFD8443EC6C4CF628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ Gallowbraid - Ashen Eidolon (EP) (2010) [MP3|320 кб/с]<Atmospheric Black/Folk
 ```bash
 magnet:?xt=urn:btih:0B6C0C4B2AF86B91084D10ADFE60C37F85585E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ Shaka Ponk - The Withe Pixel Ape (2014) [MP3|320 кб/с]<Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:C5A1C7D250BA917B770D419BA14C61081D592157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ Dia Frampton - Red (2011) [FLAC|Lossless]<Alternative Pop-Rock, Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:A8262CA006F2B36407BFD399885A41D65F810868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:E4F43F437312D6382A77678C49C62F85FC508D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ VA - The Many Faces Of Deep Purple (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:98286816BAF5413FA4010398E917035402DBD74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65575FEABADF5B36049309036B0D948B9AB6D23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

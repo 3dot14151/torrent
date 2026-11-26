@@ -19,8 +19,7 @@ Blackguards 2 - это продолжение пошаговой стратег�
 ```bash
 magnet:?xt=urn:btih:027725436749FD70AD950A3ED33E9B7D85338074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Castle Crashers – инди-проект, действие которого р�
 ```bash
 magnet:?xt=urn:btih:E08CA1B56FE0E2C02CB46846E540CF41D45E353C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

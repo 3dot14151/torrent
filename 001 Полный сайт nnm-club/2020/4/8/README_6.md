@@ -19,8 +19,7 @@ Windows 10 PE (x86/x64) by Ratiborus v.2.2020 [Ru]
 ```bash
 magnet:?xt=urn:btih:8AA2A5C8663E9521E98EB8DC1BF25FC880551342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ CCleaner Professional 4.22.0 - Очистка системы [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2FB105CBBA70B172216BA204A7FEE85806DAEEC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59C3E5C13398695EAA031BF0E996A77A9EDD07D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6613F5417179793D14391DF069600AC0638B8D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (20200407) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3396B484E7D8E2C09E41CCFC514190AB217E3623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Keeper (2025) [Ru/Multi] (1218000) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:BF7F9750BC01BD6E4BCF39F2A48AC237F46E4FAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Age of Empires II: Definitive Edition (AoE2: DE) - это обновленная
 ```bash
 magnet:?xt=urn:btih:E33CBAB531C2E78613D7C8C91756922EC5F80252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Flushed (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7F17C4FC00B2F05B7A4BC212FBECE8727D0047B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chiral (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F637B1C977A80F16AEBE45B6EFFEAD3B5FA2A563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ AstroPlanet - это игра-песочница, где вы оказывает
 ```bash
 magnet:?xt=urn:btih:7B042661612B8481D16DE07751A68BA6EB796D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1A258F72DC0A8F3E4170EE5193BD1DF03B2D709B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.526.0.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:93BFECE3B3EA0696DBCAA3CA61215E4FCD5933B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Adventure Seekers: Lost to Sea (2026) [Multi] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:C33D2E78DD6D8B2F9C78B2D8AA42375B8AA272E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Last of Us Part I – игра для ПК от 3-го лица, предс�
 ```bash
 magnet:?xt=urn:btih:CB6CAE02B1BC252CD8EB9DC18193CF929BB93B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Age of Empires III: Definitive Edition - новая веха для культо
 ```bash
 magnet:?xt=urn:btih:119CC1B54E3449DD01F9A390429A3823E9BE2A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

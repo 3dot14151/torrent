@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2302D9D549CE0EBA0C2BE986FC8AD46948FC686A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Essentials - это британский журнал о жизни, издав�
 ```bash
 magnet:?xt=urn:btih:7873227A364CF8DAE03E668F73E3F145D713669C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

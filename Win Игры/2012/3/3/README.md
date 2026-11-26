@@ -23,8 +23,7 @@ Tom Clancy’s H.A.W.X. тесно связан с одним из самых у
 ```bash
 magnet:?xt=urn:btih:1FD6349C812801EB8E9D60855C38BB667906077A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ J.U.L.I.A. [En] (L) 2012
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ J.U.L.I.A. [En] (RePack) 2012 l R.G. Repacker's
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Batman: Arkham City (Patch) {Update 2} [Multi9\+]
 ```bash
 magnet:?xt=urn:btih:BDF9FCFC376456494BFB1356551B3082F2318C60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

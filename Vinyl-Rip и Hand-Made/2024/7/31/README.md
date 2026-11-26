@@ -22,8 +22,7 @@ A3 Дискотека ''Авария'' – Новогодняя 2001(   Чита
 ```bash
 magnet:?xt=urn:btih:33985487BFFF65198EFA6E2744B08B10A86C2AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Slaughter to Prevail - Kostolom (2021) Released, 2022, Sumerian Records [WavPack
 ```bash
 magnet:?xt=urn:btih:DD9F79DE075BDAA586E8B9EAE79829324ED6BB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Iced Earth — американская хэви-метал-группа. Осн
 ```bash
 magnet:?xt=urn:btih:9902A330F57B822CA44017B4021754B2ACD58542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

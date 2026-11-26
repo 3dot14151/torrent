@@ -19,8 +19,7 @@ Volcanoids – игра в стиле стимпанка, где все дейс
 ```bash
 magnet:?xt=urn:btih:A2F87D1831A70A3D253695A2BFBD06E5C50D7BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18383361) Repack seleZen [VR]
 ```bash
 magnet:?xt=urn:btih:06320BA34FB83A5B7D4CFFE0DB3431CE5FE0CE4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ratopia - это оригинальная стратегия, которая б�
 ```bash
 magnet:?xt=urn:btih:149A7C43420B1C0C27C95EC4D9AAB6CDF910D773
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mind Over Magic — это симулятор колонии, действие �
 ```bash
 magnet:?xt=urn:btih:8B33466B93B88D6973E59AB51717BA38537812E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) License GOG [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:2A667A14A99266B3113CC554096E7FC52D21A041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:F95577A97F7B090EBCFC65B81B22FA7790EC2A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Phasmophobia – психологический хоррор с наличием
 ```bash
 magnet:?xt=urn:btih:0592B22F3DFAFC50C89DFB50835C7383016815DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ ZEPHON (2024) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:C22E4E4989F8F943D65AC0FEFF58331149A260B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ iDigging - это увлекательная кооперативная (до 5 
 ```bash
 magnet:?xt=urn:btih:BAB37E572A6889457F455C1EB818A099C399F676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Anoxia Station - игра об управлении подземной горн�
 ```bash
 magnet:?xt=urn:btih:E3AEB8093A6E4089764F8EE6EC34B68AADDCEB94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A75940F5ACB0E82ECD9C9F8749DD352E0CD63BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Dark Envoy объединяет классическую механику RPG с
 ```bash
 magnet:?xt=urn:btih:4ED654D0B3444A3DE6EEACF1148BE970440C299A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ XENOBREAKERS: Classic Tower Defense (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8D3EA0F1BED2A9D82BE9F5A5AD7D790BAC4EF99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1F38A0210B0015F7EBEC4223904D4765851DE42E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Mirror of Heaven (2023) [Ru/Multi] (1.41/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:80379E7ED1EC9819BCF3D86E3E2ED87A27927CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6AD0706264776ABBAF360F9187DEEA45F3879A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Deck of Haunts (2025) [Ru/Multi] (1.01) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8767BB32F2C34D1E4EA586D177B5C509287AE5F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.85) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:4451BDDF1A058FEFB115CC068FF033FE6F5CD846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Forgive me Father – шутер от первого лица с мрачным 
 ```bash
 magnet:?xt=urn:btih:FC0E2C6E17A320D0814980A0B38D0295701274C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2E840A4D249A1FFBF1B09C5928C0596FFA57FDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Angular - это перспективный фраймеворк для разр
 ```bash
 magnet:?xt=urn:btih:B83DD723F682906D3461C28D0DB5087EF103DCA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

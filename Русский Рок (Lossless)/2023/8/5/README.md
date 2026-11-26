@@ -22,8 +22,7 @@ Screammet - Десять Жизней (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 ```bash
 magnet:?xt=urn:btih:A2821C8FFC6C52B5D3002559DA94CF902FE6161E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

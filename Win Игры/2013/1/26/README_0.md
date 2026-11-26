@@ -19,8 +19,7 @@ Motor Town: Soul of the Machine [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:0CF9968E9FEAADA00D2A1DA67BE420A44F3C8023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Motor Town: Soul of the Machine / Моторный город. Душа маши
 ```bash
 magnet:?xt=urn:btih:9D1F052AF3A406CC283059494DFBD1C9AA7C0754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Witches' Legacy: The Charleston Curse Collector's Edition / Наследие в�
 ```bash
 magnet:?xt=urn:btih:6A0C2A5270ED71C9E2BE4014A7B8A387AFD81A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

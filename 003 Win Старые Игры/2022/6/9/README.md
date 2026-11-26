@@ -19,8 +19,7 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B37E69CE6EFAA6279E023AC8B01531D1154B8E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fuelio— простое и удобное в использовании при�
 ```bash
 magnet:?xt=urn:btih:1FD034CD086453A67F2EF55D2A92EDBFB6901730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Film Maker - лучший редактор видео и бесплатный в
 ```bash
 magnet:?xt=urn:btih:EE6C17E1689912FE7B433722E3CB9A90F1A55032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Paranoia: Родительский контроль v1.0.7.1 Premium [Ru]
 ```bash
 magnet:?xt=urn:btih:E405928A3138DADDD0ED6A4645384EE118ED8120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

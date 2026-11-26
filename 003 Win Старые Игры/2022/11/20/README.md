@@ -19,8 +19,7 @@ Instinct рассказывает альтернативную историю с
 ```bash
 magnet:?xt=urn:btih:C356233F224E32901B022AFDC261AB5E6C5C4CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

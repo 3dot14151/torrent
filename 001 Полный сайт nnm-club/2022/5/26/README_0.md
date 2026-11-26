@@ -21,8 +21,7 @@ The Steve Lacy Sextet - Live At Sweet Basil (1992) Novus [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:25615114DE52AEA62D52193A0B541FF7DDA212A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:19BF20F319AA79069FCF689E61AEFD0CC04F08D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Liam Gallagher - C'Mon You Know (2022) Deluxe Edition [FLAC 2.0|48/24|WEB-DL|tra
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:6D8A04ED718FDC3554DABE8865FE90BA68B9C4DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:206295475C7C0B7CD8FDDB39B1E2DF5B4388E1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ ApowerREC - это программа которая может записыва
 ```bash
 magnet:?xt=urn:btih:CA44529BBCCAA00E960243D0193D724AC22BA6D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACD14F386E228ACB857E78763CA87F539585D75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46AEF314BDF23AC6957607B8500761AFA19C5A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ StereoTool предлагает сверхточное управление вх
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Sever - This Should Have Been a Better Place (2022) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:5682CA81082294BFF16118A7328B1AB3FB4279FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ VA - Timeless Ibiza (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ CG Elves, Camille Kleinman | Conquering Sleeves Workshop (2016) PCRec [EN, RU]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ Muse - Simulation Theory (2018) Super Deluxe Edition [FLAC 2.0|44.1/24|WEB-DL|tr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ CG Elves, Camille Kleinman | Dresses Workshop (2016) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:E9CBF7B5CDB692F99C4059AEA401C3BEDA87B1BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ CG Elves, Camille Kleinman | Capes & Cloaks Workshop (2016) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:3E766E9DA4DDCAAA24AB01882E9834DF72697B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ Sound Particles - это иммерсивное звуковое програм�
 ```bash
 magnet:?xt=urn:btih:422F80D74E607D50C8467CDBA89BA079C349629D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34CDEF76A6DA3F39FE412AECE1EB23E193BAE77F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ CG Elves, Camille Kleinman | Shirts, Tops & Hoodies Workshop (2016) PCRec [EN, R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ RZ - Админские песни (2009) [MP3|192 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A0964F6F4442D5C9FD580B2C3488A604A076AB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ CG Elves, Camille Kleinman | Pants & Shorts Workshop (2016) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:3F9A76F5920289BD5B988C9C6FDDD2C75C2E912C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ CG Elves, Camille Kleinman | Skirts Workshop (2016) PCRec [EN, RU]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ Grafix - Half Life (2022) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:33089C92DBCC89B877E40EADBC074A0084E08159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ CG Elves, Camille Kleinman | Hoods & Hats Workshop (2016) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:C529F1222F2A64405C77DCE255F1C131338043FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

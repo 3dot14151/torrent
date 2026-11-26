@@ -19,8 +19,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) License GOG [Deluxe
 ```bash
 magnet:?xt=urn:btih:353C27456D5B11A8121C83D24DDF9C41B0792142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:9496558D1FE1F92F55AEA8A03AD1845208280BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

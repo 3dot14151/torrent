@@ -21,8 +21,7 @@ Necronomicon - Unleashed Bastards (2018) [FLAC|Lossless|image + .cue] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:F2D795768D18C61A6BF95BFE34A5432CB51BB4AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Hanging On  05:05(   Читать дальше...   )Жанр: Rock, Indie Rock�
 ```bash
 magnet:?xt=urn:btih:1DB9B8DD6BEFF18EAD03F5F244CA547D3B0F5470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Ballermann Opening Party Hits 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 ```bash
 magnet:?xt=urn:btih:E7935912BCF37C594EAF0E325E72E95E243B2A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Equipoise - Demiurgus (2019) [MP3|320 Kbps] <Technical Death Metal, Progressive 
 ```bash
 magnet:?xt=urn:btih:705C0F4AB7818FAD32C9B841B293B60AD32A5125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Europa Universalis 4 - стратегия, разрабатываемая сту
 ```bash
 magnet:?xt=urn:btih:D555AC8DC37FBC9092853BE3733304142EAA7FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

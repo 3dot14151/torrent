@@ -19,8 +19,7 @@ Rising Islands (2016) [Ru/Multi] (1.010) License CODEX
 ```bash
 magnet:?xt=urn:btih:06766CB19EEC3296F5BCE891C749EF4426936DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Slap Village – квест, вдохновленный классическим
 ```bash
 magnet:?xt=urn:btih:5FB91C919841ACAFE62C836800F4D736B2BA0C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cast of the Seven Godsends - Redux (2016) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:5E0015B203886429B10EAFC8F09E58B28E3DC66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Slap Village - приключенческая игра в стиле point and c
 ```bash
 magnet:?xt=urn:btih:D0EBDE461C09F32A04E0F25043814614393F7CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

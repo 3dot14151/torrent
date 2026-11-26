@@ -19,8 +19,7 @@ Terra Memoria - ролевая игра с фантастическим миро
 ```bash
 magnet:?xt=urn:btih:891207F58D3A3BB2126011477705FE64FDDF39C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Children of the Sun бросает вас с головой в жестокую 
 ```bash
 magnet:?xt=urn:btih:EB19EBAB708A95DB250289EC260C5CB51DD8C02E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RimWorld (2018) [Ru/Multi] (1.5.4063/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:97219CC11A3F4DBEA0ED57A1136924DAE72B8595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ One Last Breath рассказывает историю о отчаянии, н�
 ```bash
 magnet:?xt=urn:btih:08D4E1BB2AB3FBBAFB4012D65DDF62112834F8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Beat Slayer - гибрид из упрощенного рогалика и ри�
 ```bash
 magnet:?xt=urn:btih:3FCB5E1472C78BDAA2C91CAE4A29C03EEDA4F707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:0210DF705F642340EDB37A8AB4A81D7CBDC7273C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Shadow Corridor 2 переносит игроков в кошмарный мир
 ```bash
 magnet:?xt=urn:btih:36E10A1DEF4292DE1E3ACFB0FBE12EA59B259A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Deber - это короткая платформенная игра, в кото
 ```bash
 magnet:?xt=urn:btih:1CE7D1369A9503DB6C4F5BE01E9B23FAC2BCC1C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

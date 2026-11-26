@@ -27,8 +27,7 @@ BELOFF [sCr] 2014.1 Screensavers [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:75C08A88BF3710D68B66AAF8C0E780CD76DDC7D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

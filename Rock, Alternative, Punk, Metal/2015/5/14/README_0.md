@@ -22,8 +22,7 @@ The Bloodline - We Are One (2015) [MP3|320 кб/с]<Modern Metal>
 ```bash
 magnet:?xt=urn:btih:6F9013F9FAEDEFF767B81C904BB723489F9C0EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chris Rea - 17 Great Blues & Ballads of Chris Rea (1998) [FLAC|Lossless]<Pop-Roc
 ```bash
 magnet:?xt=urn:btih:EB8D2813970F0BBB286EAD425E1058F571B51047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Znaki - Покруче фантастики (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:A4007BBDBB7F89432EEBD4DE2D38185A0E767704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

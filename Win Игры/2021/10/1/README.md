@@ -19,8 +19,7 @@ Myth or Reality: Fairy Lands (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:78C7096D2905E5E6F1DCCFA1126BE4AE62F5D383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Impostor Factory (2021) [Ru/Multi] (7455447) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:C3C8D1DEC39D0906E28718634CA3F1CD5E8C6C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aeon Drive (2021) [Ru/Multi] (1.2.03.1825) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:9A84B830B3E6D72BDAE78CC4B1A00DDB9F2B86B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dicey Dungeons (2019) [Ru/Multi] (1.11.1) License GOG
 ```bash
 magnet:?xt=urn:btih:A0C8E6CC7136E304EEF0E5C42FF0AF88DDB00273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Guild of Ascension - это тактическая ролевая игра с э
 ```bash
 magnet:?xt=urn:btih:254EC313128074FAF8AF8C006A4C5F3421D832F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Lemnis Gate - искажающий время многопользователь
 ```bash
 magnet:?xt=urn:btih:5B27DB7E27553A6A122C536BC588FD92B344879B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) Repack Other s
 ```bash
 magnet:?xt=urn:btih:57691813C9B1ACAD7D672A7BA4CA07D3DC6E64DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

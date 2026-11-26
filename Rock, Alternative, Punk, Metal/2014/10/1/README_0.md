@@ -28,8 +28,7 @@ Edge Of Haze - Illumine (2014) [MP3|320 кб/с]<Progressive Metal, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:6445C3F91E97C4AED2C1C963FB46DB523CC9F6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Steel Prophet - Omniscient (2014) [FLAC|Lossless]<Power/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B5E098EE243C7E675E6BAE91DC800CD063AD4B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Rhythm Shakers - Voodoo (2014) [MP3|320 кб/с]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:CC0CBDCF5D506A079953A5485FA7909BD655763A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Wonderworld - Wonderworld (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3BDA2AD2428C311555D1576763800760AEE5FA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Prince & 3rdeyegirl - PlectrumElectrum (2014) [APE|Lossless]<Rock, Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:6775AC0DFAB352E5052287459C7ADBBA40F368E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3C05ABAF99818B414724C631C59D7D1D9E1A28F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1658657EF1DAA5E6FCF5A2D7A9AA0F4CF987F6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Led Zeppelin - Stairway To Heaven. The Best Of Blues And Ballads (2004) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:9C02EDFA55BC316695A321D95B51C393BD1CE339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

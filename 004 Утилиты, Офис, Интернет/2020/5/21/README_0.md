@@ -19,8 +19,7 @@ WindowsZIP 1.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FC0741641DB0F29EE32E9124CEC152293303694F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Strydegor - In The Shadow Of Remembrance (2012) [FLAC|Lossless]<Melodic Death Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Show Me A Dinosaur - Evolvent EP (2011) [MP3|320 кб/с]<post-rock, instrumenta
 ```bash
 magnet:?xt=urn:btih:E5D543747C9A796ED7610223ABEC3D01D18692E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Gendos (Gen Dos / Gennady Chamzyryn) - Bay-Tayga (2007) [MP3|320 кб/с]<Ethnic
 ```bash
 magnet:?xt=urn:btih:4489E83231409FA208A1CA6C97B594BC9E9E29D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ HolyHell - Darkness Visible (EP) (2012) [WavPack|Lossless]<Symphonic Power Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Digital Summer - Breaking Point (2012) [MP3|320 кб/с]<Alternative Metal / Mod
 ```bash
 magnet:?xt=urn:btih:AF8B0A7AFF1C2413A98C0087514E5C0853F7A073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Magic Kingdom - 3 Albums (4 CD) (1999-2010) [FLAC|Lossless]<Sympho / Speed / Pow
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Live in London - концертный альбом британской груп
 ```bash
 magnet:?xt=urn:btih:C3162EC82A3679FCAC159325983A48ED653FCBDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ In This Moment - Blood (2012) [MP3|320 кб/с]<Melodic Metalcore, Female Vocal 
 ```bash
 magnet:?xt=urn:btih:830E8FF91EA0278D025ABEAAD93DAA79CDFAC045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ Dead Can Dance - Anastasis (2012) [FLAC|Lossless]<Ambient, Ethereal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

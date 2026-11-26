@@ -19,8 +19,7 @@ RTL Biathlon 2007 / RTL Биатлон 2007 (2006) [Ru] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:E7E2046B327E7EB351A6388A64882593B4A84E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Curling 2006 (2006) [Ru] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:5BA74441C186E0338E0D545D838F563B24941EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RTL Winter Games 2007 / RTL Зимние игры 2007 (2006) [Ru] (1.0) Repack 
 ```bash
 magnet:?xt=urn:btih:0E338991CB1ECBA02C871D7F1EDC97E37CBC17AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RTL Ski Jumping 2005 (2004) [En/Ge] (1.47) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:6A9E999B8E276761B289080C921B73C24F964A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ RTL Ski Jumping 2007 / RTL Лыжный трамплин 2007 (2006) [Ru] (1.0) 
 ```bash
 magnet:?xt=urn:btih:E378604FD4C247920EB3A674E9D7C7D4B2BFBFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Alpine Ski Racing 2007 / Горные лыжи: Альпийский сезон 
 ```bash
 magnet:?xt=urn:btih:0F1011FC2A8BF0E1725688AFC45077668C52C25A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

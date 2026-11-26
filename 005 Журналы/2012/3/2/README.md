@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6277CE91CD985AD0E20749FDED386EC421B750BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2F8E6993F99F4F657DF1132AEF2FA9042D827CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Chick Intimate Cult - португальский журнал посвященн
 ```bash
 magnet:?xt=urn:btih:EE2075E165FC58EFF6E93462498BB4D470286298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

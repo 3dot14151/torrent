@@ -20,8 +20,7 @@ Mindfeed — британская альтернативная метал-гру
 ```bash
 magnet:?xt=urn:btih:41A231979F755B099A6C2B336267244181176891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

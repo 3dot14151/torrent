@@ -19,8 +19,7 @@ New York Mysteries 4: The Outbreak / Загадки Нью-Йорка 4: Про�
 ```bash
 magnet:?xt=urn:btih:037760852820B78E33B1CE2E4A18A8F081A06C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

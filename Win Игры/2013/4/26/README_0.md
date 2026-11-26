@@ -19,8 +19,7 @@ Dark Tales 5: Edgar Allan Poe's The Masque of the Red Death Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:57F4C98FA9033DAD2FC1AB1C3E548530D57E1E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fierce Tales: The Dog's Heart. Collector's Edition / Жестокие истор
 ```bash
 magnet:?xt=urn:btih:F0CEB09EB041A2B9239C4148E4FD1CD1005DE64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dreamscapes: The Sandman Premium Edition / Повелитель снов: Пес
 ```bash
 magnet:?xt=urn:btih:460DB2CEBF64427FC378315B1972093F9734F9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Dream (2013) [En] (PreAlpha)
 ```bash
 magnet:?xt=urn:btih:6646D3DB8F6C623587221B337B42D31AE62111D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

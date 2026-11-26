@@ -27,8 +27,7 @@ Side Of Despondency - Cancellation (2011) [MP3|320 кб/с]<Depressive Black Met
 ```bash
 magnet:?xt=urn:btih:FD7B2B772315D9CD3BDB5179A2C9ED2205C3B0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Suanda Summer Vol.1 (2014) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance
 ```bash
 magnet:?xt=urn:btih:CAE97BCDC89DFFB7112EF3AF6A843024D2DAF772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Celesty - Legacy of Hate (2004) Japan [FLAC|Lossless]<Epic Power Metal>
 ```bash
 magnet:?xt=urn:btih:136DDE49C5746F5D10BEE7CAB615224738883B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B17CBC99D7B7462D864A1A730C1434438E9C805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Psychonaut 4 (Грузия):
 ```bash
 magnet:?xt=urn:btih:67DC76C5FAD77D6CD86C58B1D43E029E2AB4E2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7C488DF1559A85CA12933622F1EBDE6124B5BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Flashback Of Anger - T.S.R. (2014) [MP3|320 кб/с]<Power/Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:F91262FB71586D5ABAD17F03E976D330C97B6984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D529C88AD3612108ECBB33FE6C8B108462FB981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ Alfida & TH Moy - Deep Feelings Grooves Vol 2 (2013) [MP3|320 кб/с]<Progressi
 ```bash
 magnet:?xt=urn:btih:18AC4984B885EAB6FA11DD251480B1AC6729CAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ VA - Portrait Digital Summer Collection: 01 (2014) [MP3|320 кб/с]<Uplifting T
 ```bash
 magnet:?xt=urn:btih:6F3019212BB6AFE8000149DB53A3B8D59614E3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ Klartraum - Radio Show & Live Sessions (2009 - 2013) [MP3|192-320 кб/с] < Tec
 ```bash
 magnet:?xt=urn:btih:3B8013C34C7E69EE2F72162FC9FEEC2CDD4A3597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +398,7 @@ VA - Клубные Новинки Vol.439 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:6F1601990594450CAADA9B9A39B0C52C5426D073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDA96D774FF312B2335F9C9523432CFCEB020427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1990363A5BDBE6BDD78162B9859A2543F76DBF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ Naomi Wachira - Naomi Wachira (2014) [MP3|320 кб/с]<Acoustic Folk, Ethnic Jaz
 ```bash
 magnet:?xt=urn:btih:3379547A99472A253BDAF0C7735308A15718AA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +518,7 @@ Michael Burks - I Smell Smoke (2003) [FLAC|Lossless]<Electric Blues>
 ```bash
 magnet:?xt=urn:btih:982A5A0F00DA8EB93BC53A161962E1BF012DCE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C2087BD1308E9ED779594C58A26E669CF8B2916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D9C726AF18BC4754C08393E314D52BA29ABA5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ Sick Jacken & Cynic - Terror Tapes 2 (2012) [MP3|320 кб/с]<Hip - Hop>
 ```bash
 magnet:?xt=urn:btih:1AA934A485F6C795AB132B25BC228F03A9AB0860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FA85BD0826213FB5E8A131EC452D79B42A5BF8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +661,7 @@ Killer Mike - R.A.P. Music (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:5861030A6FECFFB67C206FE26C7D9064900F966D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +695,7 @@ VA - Business Class Lounge Sound (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:879DD2AC9C01FA41202164AB5D82AE4B9BEB6F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +729,7 @@ Allegaeon - Elements Of The Infinite (2014) [FLAC|Lossless]<Technical Melodic De
 ```bash
 magnet:?xt=urn:btih:DBB7AC3AF8A1EB44EC35DEFC0BD5EC9F670E118F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +763,7 @@ Michael Burks - Show Of Strength (2012) [MP3|320 кб/с]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:AFA4CCBDCF6DCD79B341F1D1A66245BCB9119E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -822,8 +797,7 @@ VA - Chill Out Supreme (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:D1D861A0FE9AFB81EFF0C1E747966C7FE22DDC64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

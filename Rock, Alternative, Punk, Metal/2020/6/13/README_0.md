@@ -22,8 +22,7 @@ Creepy John Thomas - 2 Albums (1969, 1970) Reissue, Soundvision, 2011 [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:A0D0148588A698CED428990EAC2BA243616DD046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

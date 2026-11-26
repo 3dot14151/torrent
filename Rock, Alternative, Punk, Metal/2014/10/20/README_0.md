@@ -28,8 +28,7 @@ Xthirt13n - A Taste Of The Light (2014) [MP3|320 кб/с]<Progressive Power Meta
 ```bash
 magnet:?xt=urn:btih:750A909E3B2D35D44A0C494D142ABEA748B3866B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Phoenix Rising - Versus (2014) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:C26CA77353E093872726026B43D051298AA1F9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Tyler Jakes - Evil (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:FC3494FA718BF11B58F3CA092626787254E7641B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ LA Bonfire - AXS TV Presents The World's Greatest Tribute Bands - A Tribute to A
 ```bash
 magnet:?xt=urn:btih:FCD66705FF0FAEE58A5675101C911EC1EB9003C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Neil Diamond - Melody Road (2014) [FLAC|Lossless|WEB-DL]<Rock, Pop Rock, Soft Ro
 ```bash
 magnet:?xt=urn:btih:F953CA25113E0EC12909319B7990CEB1D1424E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ The Sweet - Live (1973-2009) 4CD [MP3|~224, 320 кб/с]<Hard Rock, Bubble Gum, 
 ```bash
 magnet:?xt=urn:btih:2AA12E1ED9A66358BBCE811A0F3E1AD45B4D24F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBB34B1C884045891F742716628F7F69235031EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

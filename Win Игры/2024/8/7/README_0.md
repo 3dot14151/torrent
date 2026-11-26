@@ -19,8 +19,7 @@ Pool Cleaning Simulator предлагает в увлекательной и н
 ```bash
 magnet:?xt=urn:btih:38330361791F45B76377183E7837F8EBA6815ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chernobylite (2019) [Ru/Multi] (49522.s04_black_smoke/dlc) Repack Decepticon [En
 ```bash
 magnet:?xt=urn:btih:B44A5DFE49AC5A9EBA1AC1655947047F97B84BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack Decepticon [Ann
 ```bash
 magnet:?xt=urn:btih:DC2EC1F5A0AB746F1D05BA125B83D555A4095890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PATHOGEN X - это не совсем обычная видеоигра. Заб�
 ```bash
 magnet:?xt=urn:btih:FB2459A8C60A8A41AD10F241E8315EF7E38117F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Truck & Logistics Simulator (2023) [Ru/Multi] (1.02) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A50371742BAAB8EC54B4112BEED8743C1BFE2DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Night of the Dead - выживастик от третьего лица в от�
 ```bash
 magnet:?xt=urn:btih:C4E7128A31A909293793F824BF84B55B99F18051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Abathor бросает геймеров в самое сердце павшей 
 ```bash
 magnet:?xt=urn:btih:07DB6AD27C981796FA07B2C3130C72AF7E9FA4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.782/dlc) Scene Rune [Anniversary E
 ```bash
 magnet:?xt=urn:btih:5784E01B2720E11106CE86C205029C77165CA541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ LunarLux - это захватывающая научно-фантастичес
 ```bash
 magnet:?xt=urn:btih:AAD93B1FA9E1ECC009C42CDC1326B0F3FD00DE6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Sylvio: Black Waters представляет собой необычный ми
 ```bash
 magnet:?xt=urn:btih:39AB623545994D0EE9382C0349E1221723A2DABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack FitGirl [Officer Edition]
 ```bash
 magnet:?xt=urn:btih:4FB49D72D8D6414099AB5347448EE11BE05B609F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Etera (2024) [En] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D2F0C95AE0227FC8B51155567B85333F882795DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6225A7350D62C00707A3A7180B05943A1FB4218D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Cursed Bet (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4887B2F5910705859F651D6C625AB8AC62AD31C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

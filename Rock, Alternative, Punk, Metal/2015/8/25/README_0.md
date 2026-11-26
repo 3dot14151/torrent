@@ -22,8 +22,7 @@ The New Regime - Exhibit B (2015) [OGG| 441-540 кб/с]<Alternative Rock, Moder
 ```bash
 magnet:?xt=urn:btih:F52FB8DB71D57C5C0816E07DA7657016394DC51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The New Regime - Exhibit A (2013) [OGG| 475-550 кб/с]<Alternative Rock, Moder
 ```bash
 magnet:?xt=urn:btih:A71B6BA7797808141DA9943C45D35E6B2E8FAAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Styx - Gold (2006) 2CD [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:545AEBFEB1572F4E10F61ACD7614EA56B1B12AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pop Evil - Up (2015) Deluxe Edition [OGG| 383-544 кб/с]<Alternative Rock, Har
 ```bash
 magnet:?xt=urn:btih:81E5ACF5DABA79863ED075097D4E60420C99A8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAB779B35549E570C3DC6CEB929000EBCC447E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Phantoms: Ghostly Secrets (2026) [Multi] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:60DC7A79CF21CDD271199645CC5E4D38E6CD5B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Soulmask - это песочница c приоритетом на реализ�
 ```bash
 magnet:?xt=urn:btih:9C7D7BA15BF277D88AED36BF49841F02C507931D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aether & Iron (2026) [Ru/Multi] (1.0.56) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B92FE5F587F5CE3ABEBAF15C8C5761CB96854133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ People of Note (2026) [Ru/Multi] (2026.3.31.2043-CL.141515) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E9298CD438CFD91836D7FFE613F9A530F3B713ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Precinct (2025) [Ru/Multi] (1.11.22854) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4E1F814A94AA613E5D7D0D98585FCBF7830572D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cooking Simulator 2: Better Together (2026) [Ru/Multi] (1.9.3fe6e87) Repack Othe
 ```bash
 magnet:?xt=urn:btih:82A464EE43B2B6E6306E95B4A8B72C59E9EF8E17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ REPLACED (2026) [Ru/Multi] (1.0.1077) Repack Let'sРlay [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:5A533AF3223184264BCD02CC9544EACFB16B0F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sea Dogs: Libertalia / Корсары: Либерталия (2026) [Ru] (1.0 Bet
 ```bash
 magnet:?xt=urn:btih:373CDF23FCA9322E364FB0031203ED97B8A842F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

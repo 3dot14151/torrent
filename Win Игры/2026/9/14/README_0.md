@@ -19,8 +19,7 @@ Sunken Engine (2025) [Ru/Multi] (1.0.33) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8190A6B6FC162F8BF3BC2019661FA95BF9B8F2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Age of Empires III: Definitive Edition - новая веха для культо
 ```bash
 magnet:?xt=urn:btih:F582534E093D07E20BF4DCE60E2AE22A32E250F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Uncanny Tales - эпизодический хоррор, где самое ст�
 ```bash
 magnet:?xt=urn:btih:027874388CE5D3A2174EB38542884D00CF721FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pax Autocratica - это гибридная игра, совмещающая �
 ```bash
 magnet:?xt=urn:btih:68C221E91A80103FD711BF4F6D315A53C9BC71E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pizza House Simulator (2026) [Ru/Multi] (1.0.0.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7C6E72A704839002EF0434CB253E0B2175FE2F09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Polylithic (2023) [Ru/Multi] (1.0.0.24) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CF4AAF8454A5886FBE5F619598FE5C2F8EF15CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Polylithic (2023) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D00BA2571ED91C16CB82AACCC7209CA68497E63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Feed the Scorchpot - это пошаговая стратегия с элем�
 ```bash
 magnet:?xt=urn:btih:B4B96AB67868A6837078BFA71FF867599CCBCF80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Can I Come In? - это короткая атмосферная психолог
 ```bash
 magnet:?xt=urn:btih:0B2EE18DDB6EFC69574BB93539EC7DE0A1678448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

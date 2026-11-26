@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8FDEB8EAFC1481B1B6776D746B51D847A2927D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:AE797B579F350570CB3D0C4F8ED9C07D14A42F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ CorelDRAW Graphics Suite 2017 19.0.0.328 (x64) Retail [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2F8B5F56805AC0DA4DAF64E15C8E18C4294F5448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Wolfenstein®: The New OrderTM - это возрождение серии, ко�
 ```bash
 magnet:?xt=urn:btih:A1F9B188BD547D8C2E6D7480C3450795218B7DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ The Forest – хоррор на выживание, выходящий на Ste
 ```bash
 magnet:?xt=urn:btih:20467DADE9DEA333BDFB78DA391AB866752944D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ ru_windows_7_home_premium_with_sp1_x64_dvd_u_676728.iso (Original 12.05.2011)
 ```bash
 magnet:?xt=urn:btih:296704484CDB0B6A73B2965B139D9C908E4CE765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Microsoft Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 04.2017 2 DVD [Ru
 ```bash
 magnet:?xt=urn:btih:C96AF0E21EC2461D1005C85C3A766D1E084751FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

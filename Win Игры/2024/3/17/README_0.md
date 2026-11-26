@@ -19,8 +19,7 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:F5AE587D0B3A6ADAB7EAB60B1AD9708D907A4F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AMID EVIL (2019) [En] (2628/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:E7FDA35CBA863F337B7D379A23CAA44D4773B85C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

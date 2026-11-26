@@ -22,8 +22,7 @@ Jorn - Dukebox (2009) [FLAC|Lossless|image + .cue]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:16E11F803FB648141C6C6B6AB3BEE0C583D70FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Thunderstruck (2017) Compilation [FLAC|Lossless|tracks] <Blues Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:40EDA8AC36BDDBE884DE22CD03B75D5CC1B0F5E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Manfred Mann's Earth Band - 20 Years Of Manfred Mann's Earth Band 1971-1991 (199
 ```bash
 magnet:?xt=urn:btih:54A04C4B8365662F7247C2968924DCE8553D930E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

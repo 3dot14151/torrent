@@ -21,8 +21,7 @@ Summer Promotion Started! 30% Discount on all items in Lost Bubble!
 ```bash
 magnet:?xt=urn:btih:D273E1AE7AB157718D83FD19B23ACDA845BF9E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

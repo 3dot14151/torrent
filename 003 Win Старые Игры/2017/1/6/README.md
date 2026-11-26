@@ -19,8 +19,7 @@ TRON 2.0 (2003) [Multi] (1.030) License GOG
 ```bash
 magnet:?xt=urn:btih:66A5B87C18D5A2BFE94F040F64D94D57DD3F3BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

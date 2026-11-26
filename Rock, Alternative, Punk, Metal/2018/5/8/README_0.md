@@ -22,8 +22,7 @@ Yes - Tormato (1978) Remaster, 1994, Atlantic [FLAC|Lossless|image + .cue] <Prog
 ```bash
 magnet:?xt=urn:btih:E7B45A77FF1CD6244FEB84864D702A7F4A89AD3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bias (feat. Rick Lambe) - Ships In The Night (1978-1981) Remastered, 2014, WEB [
 ```bash
 magnet:?xt=urn:btih:3236C27DE9444239A4D420B1B220C237E430C4E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ DragonForce - Re-Powered Within (2018) [MP3|320 Kbps] <Power Metal, Speed Metal>
 ```bash
 magnet:?xt=urn:btih:C61893654DEC9A026A5CF1884D7B67D43E8AFA1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - 1968 A Music Revolution (2018) [MP3|320 Kbps] <Rock, Folk>
 ```bash
 magnet:?xt=urn:btih:8053CB82D316F07B53A9C361D927745E522449FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Yes - Highlights - The Very Best of Yes (1993) [FLAC|Lossless|image + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:0F729362F07AAF94AC8B3BB16400300E3D93822B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Joe Cocker - The Best Of Joe Cocker (1992) Remaster, 1993, Capitol Records [FLAC
 ```bash
 magnet:?xt=urn:btih:338D13BD2E65D38A4E0A27F43EF14E9116AE59A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

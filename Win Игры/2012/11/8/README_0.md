@@ -19,8 +19,7 @@ Cake Mania 3 (L) [En] 2008
 ```bash
 magnet:?xt=urn:btih:B698D618BAA20424B7FAFD2DB4EE26050FB89AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Chaos on Deponia - это продолжение чарующего двухме
 ```bash
 magnet:?xt=urn:btih:DDD5E32E436E714E7732026E79FD92C5F087B073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

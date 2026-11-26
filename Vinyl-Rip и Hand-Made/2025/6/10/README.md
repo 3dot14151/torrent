@@ -22,8 +22,7 @@ B1 Winter Solstice(   Читать дальше...   )Жанр: Black Metal, Ele
 ```bash
 magnet:?xt=urn:btih:DA43A92C43CA1A82120FB316C36DD3497DAD6A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

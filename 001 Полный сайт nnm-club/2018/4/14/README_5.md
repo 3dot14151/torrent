@@ -19,8 +19,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 13.04.18 [Ru
 ```bash
 magnet:?xt=urn:btih:050BF627C9CCEA3144C4CD908BF351A8752AAD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sniper Ghost Warrior 3 (2017) [Ru/En] (1.8.hf3/dlc) Repack =nemos= [Season Pass 
 ```bash
 magnet:?xt=urn:btih:9E52F0F5A0372A17C85C20E133EEBFB564EDEC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

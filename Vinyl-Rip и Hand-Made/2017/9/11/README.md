@@ -22,8 +22,7 @@ London Orion Orchestra, Alice Cooper, Dave Fowler, Stephen McElroy, Rick Wakeman
 ```bash
 magnet:?xt=urn:btih:44C36F5027E60A7D92C1496463386A75395E7B5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

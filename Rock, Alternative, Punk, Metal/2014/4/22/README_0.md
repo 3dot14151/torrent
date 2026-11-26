@@ -28,8 +28,7 @@ Ingrimm - Henkt Ihn! (2014) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:E6B6C8F65B7E222AA7B4AFF4D6D1879DF9BCB756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Restless Oblivion - Sands Of Time (2014) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:A8EB00A4081F28A03F936C001E9CBF0D4E537AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Noble Beast - Noble Beast (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:33DCB7A3B8CFFF41BF5FFF6C48FBFA874D160EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Rustless - Guardian Angel (2014) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D08373B06762D42A254B9DF71D1A3C9FBEADB93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ SilverCast - Имя Ветра (2014) EP [MP3|320 кб/с]<Symphonic/Power Metal
 ```bash
 magnet:?xt=urn:btih:8F26AFE741A132E04AFA63F2FB0794D4225328E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Damon Albarn - Everyday Robots (2014) [MP3|320 кб/с]<Alternative Rock / Britp
 ```bash
 magnet:?xt=urn:btih:11DCCE0F1DBCD83DCD521DD5D5E7AE3C5A9B5C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Evil Masquerade - The Digital Crucifix (2014) [MP3|320 кб/с]<Heavy Metal / Po
 ```bash
 magnet:?xt=urn:btih:294E6858C7289DD46174AA869897AC77434147AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Stream of Passion - A War of Our Own (2014) [FLAC|Lossless]<Progressive/Symphoni
 ```bash
 magnet:?xt=urn:btih:13A11F21066EC162B4376F77A5ADAC621001AB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05877E0484820D321BE9B60176D45A2E9A5DF069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

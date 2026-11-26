@@ -19,8 +19,7 @@ Aml Pages - это электронная записная книжка, опе�
 ```bash
 magnet:?xt=urn:btih:E546989AD04C28257A1A42720BE83833A9FF6256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

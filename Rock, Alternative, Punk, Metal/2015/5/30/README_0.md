@@ -22,8 +22,7 @@ Nekrogoblikon - Heavy Meta (2015) [MP3|~275 кб/с]<Melodic Death Metal, Folk M
 ```bash
 magnet:?xt=urn:btih:42AB19A4AE6328B807DA8814A21684A651174F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Midriff - Doubts & Fears (2015) [MP3|320 кб/с]<Hard Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:9CE284052FF337547CE13980EE578D83A2BD83AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ F5 - OrganiK (2015) [MP3|~245 кб/с (V0)]<Alternative, Pop, Funk, Reggae, Soul
 ```bash
 magnet:?xt=urn:btih:5A30E5501D7466DDE49A70F233D3C7DE8FBF637D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Armored Saint - Win Hands Down (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EC1DB35B55B0876DD36336F40C25894BF17AB9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ George Kollias - Invictus (2015) /Limited Edition/ [FLAC|Lossless]<Technical Dea
 ```bash
 magnet:?xt=urn:btih:F80102B1D8C6C1F6201498FBCBB09D1B80DD4F73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ DORO - Fight (2002) [FLAC|tracks + .cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6D574B452CAF18899694CCECC1CE8DBB5E811863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Witchwood - Litanies From The Woods (2015) [MP3|320 кб/с]<70's Vintage Hard R
 ```bash
 magnet:?xt=urn:btih:5E9E231B82DE013A32BF8C493DCF8EBDCF9F0966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Classic Rock 211 Summer Daze  15 Hot Tracks To Welcome The New Summer Of Ro
 ```bash
 magnet:?xt=urn:btih:FEC7E480D3B8DBED657F92371E68454CF1B22314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ DORO - Calling the Wild (2000) /2001, Soyuz Music/ [FLAC|tracks + .cue]<Heavy Me
 ```bash
 magnet:?xt=urn:btih:17E641AB218FE9266FCEF5CAF1CCBC4E47F2127E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50704F61E6664C27E584C01B4B36E51B594E0B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Twenty One Pilots - Blurryface (2015) [MP3|320 кб/с]<Indie-Rock / Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:3065D4D9485046B3572FEF96DDEB23F54C727AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

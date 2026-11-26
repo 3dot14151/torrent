@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:A89BD5319A7A04520BC9B7A5882F95FA89D6DBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Lingua Book Reader - удобная и красивая программа, ко
 ```bash
 magnet:?xt=urn:btih:C85ECC1F21AD963E64C6379846F9BF620B6BE24E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

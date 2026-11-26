@@ -22,8 +22,7 @@ Deep Purple - The Boys From Brazil (2020) Remaster, 2024, Leftfield Media [MP3|3
 ```bash
 magnet:?xt=urn:btih:A60536E56EC037D5B81C3AB44AAD12B150C4B0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Посередине века. Трибьют Константину Арб
 ```bash
 magnet:?xt=urn:btih:241C57A6ED76CEA8AB471B3C08520AFD34A09B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

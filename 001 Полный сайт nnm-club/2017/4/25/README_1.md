@@ -21,8 +21,7 @@ Texas - Jump On Board (2017) [FLAC|Lossless|image + .cue] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:81363537BAF79EA0412218B227FF8218D85590BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6D198893903D17212E5103FB6EB24599EBAB3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Folder Icon Make имеет 4 разных стиля цвета и 2 вариа
 ```bash
 magnet:?xt=urn:btih:B5D8E3C00968C3565ED14C21F26DC3BF4BD91DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Themes for Keynote состоит более 135 тем для ваших экс
 ```bash
 magnet:?xt=urn:btih:8CFE147BDF7849538908A976EC8A2A1C489B2C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADAD21DC15EB57F22509178FD7BDBD3D266624A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Resume Lab for Pages - Templates Bundle 1.0.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4532D45585F0265D72E33A743DD435B84B341779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:705F79BC79A1C6E99DF1AE880555D7552C6C9664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Sheryl Crow - Be Myself (2017) Target Exclusive Version [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:12A5597F6EC5AFAC5A714C6A77EF6FE370957840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ NG: Тайны Тутанхамона / Ultimate Tutankhamun (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:47960210F09C47CCF5BC5E26348F1085DAE5B9FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Ashley Monroe - The Blade (2015) [FLAC|Lossless|tracks + .cue] <Country, Folk>
 ```bash
 magnet:?xt=urn:btih:E27C5C25A3DBBB7990CB4D73CB2228AF8A27A7EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:706D7952D5A9AC272218BEAA8724062E446D3141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64DD7BBAA0C0ED03C18773870F0CA69BAD04F1AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9EBE0EE9628C112E34DB76C8618C8F9600473D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:8ECEC5482070F601A60CF9B7361EC96F5A2C09D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Jo Harman - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F51E472673D3C667B1BDC533EB48C99636854DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ VA - Electro Swing Elite Compilation 2016 (Radio Edits) (2017) [MP3|320 Kbps] <J
 ```bash
 magnet:?xt=urn:btih:9CECE5D1C3204B8CE34EFA0B1378D716097AC3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +444,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:2EE9A976CFE78AAFDF61EF1FDC21BB4F2BC326A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ Fleetwood Mac - Tango In The Night (1987) Remaster 2017 (3CD) [FLAC|Lossless] <R
 ```bash
 magnet:?xt=urn:btih:B2EF8D102FCD7626B684F516336ACA5B884450F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ VA - Afterlife (2015) [FLAC|Lossless|tracks + .cue] <Psychedelic , Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:A1F02904B844221B1E2A33F5D72F059C6E56BDF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C46D88A6BE06FF39220087A3EA50CA8DE747B6C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CAE05CE4DB3E2F6EA2DDB7E935EF56E72B7E457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +575,7 @@ National Geographic. Больше чем фокусы с Ди Эм Си / Beyond
 ```bash
 magnet:?xt=urn:btih:1D41E5E48D5B0930238B7EE7B14A780BDDE52E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ VA - Paul Oakenfold - Dreamstate Volume One (Mixed by Paul Oakenfold) (2017) [FL
 ```bash
 magnet:?xt=urn:btih:D3C0E1B32F3DA11257F7680A27F5549A0269424C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +628,7 @@ Opera 44.0.2510.1449 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0619D286A4713BF3C42D198F330FE930DAE83B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62E82CE386A8B226643242BC3F250BA709106BB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ Cyberfox 52.1.0 for AMD + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DE19488690666B82030F5092BE39D9397789B326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

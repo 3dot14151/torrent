@@ -19,8 +19,7 @@ PuppetShow 5: Destiny Undone Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:A3CDDB1121F5E45CE39069A32705EC0EDAFEB5DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Saint: Abyss Of Despair  / Святой. Бездна отчаяния [Ru] 
 ```bash
 magnet:?xt=urn:btih:32770A644A6448EA077562F8BA7B849044832115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nancy Drew: Tomb of the Lost Queen / Нэнси Дрю. Усыпальница �
 ```bash
 magnet:?xt=urn:btih:A7E1CFE0EDDB3BF5C51BEAAD282FEA66D874F389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pressure [Ru/En/Multi8] (L) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:55FF489D6B4C4B2CD33CC7734632500DB66FC628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Bridge Project [Ru/En/Multi8] (L) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:CFBE8AD6F1A94242345786E804D155C9A740EF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

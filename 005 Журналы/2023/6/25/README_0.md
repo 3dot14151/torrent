@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7D03E2B5D6B97EFF89F4DD2D5BA75BDC048C8FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Elektronika Praktyczna (Практическая электроника) - жу�
 ```bash
 magnet:?xt=urn:btih:C175279A6E832125AFD5B1F1889B381440D52F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Elektronika Praktyczna (Практическая электроника) - жу�
 ```bash
 magnet:?xt=urn:btih:20694E3F15FE2F940C661F618D481BF14B3A73FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52E2B40B96EC2683B5DC94CC21F9A171DCFAD74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Elektronika Praktyczna (Практическая электроника) - жу�
 ```bash
 magnet:?xt=urn:btih:88F7EBB6561D44DD42FAB1BCABD3C72ED9BFBF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Elektronika Praktyczna (Практическая электроника) - жу�
 ```bash
 magnet:?xt=urn:btih:2FD96004421EAAE5F188D4C4C317E1B40599ED2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Elektronika Praktyczna (Практическая электроника) - жу�
 ```bash
 magnet:?xt=urn:btih:937A03CA1998B725C5A8D5546DBCEFDEB9C278C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Elektronika Praktyczna (Практическая электроника) - жу�
 ```bash
 magnet:?xt=urn:btih:F1BDC601952EE10BAD4257362251072AE4E260FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Popular Mechanics - журнал о новинках в мире науки и �
 ```bash
 magnet:?xt=urn:btih:06840B867EFCAB819F467AFB6A90ECA0D1129323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

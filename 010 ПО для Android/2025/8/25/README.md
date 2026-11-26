@@ -20,8 +20,7 @@ Android-версия популярной идентификации проце�
 ```bash
 magnet:?xt=urn:btih:A43B3C56E14C6024A31CE39F0C662E1E746911F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4224050A960961F1633C920B96599CEA4010618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

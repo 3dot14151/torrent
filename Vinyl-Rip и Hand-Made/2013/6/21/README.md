@@ -20,8 +20,7 @@ Jean Michel Jarre - Oxygene (1976)/Polydor Japan [FLAC|2.0 24/96|image (Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:F970FC0C9ECBFF10423175F1AC7AB19C83CF91C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Get Up Kids - Problems (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Emo
 ```bash
 magnet:?xt=urn:btih:25C86508FF5420FC8D43CCE7DBE22C85E076C784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Broken Bells - Broken Bells (2010) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:6E4C3E804FC0E5B2899ACE36126DB232DA65ECDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E23130B8DD966874FD56F67D0C8AA575002530C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Freddie Mercury - Time Waits For No One (2019) Single [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A400A0780DE424C56CD375E4975DEC749AF6EBF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:397D45547F82CC178AA6EE3E5B14481C42EE2029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Privatus - это простое приложение для удаления н
 ```bash
 magnet:?xt=urn:btih:33E7584467FA0A40816E57B78AE6CD4B6532C254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Storyist для Mac OS - является мощной средой для ра�
 ```bash
 magnet:?xt=urn:btih:1F53FB8896194A46F59A5F1FB930667B233FB072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ VA - Tibetania Gold 2021 (2021) [AAC|~317 Kbps] <Chill Out, Downtempo, Organic H
 ```bash
 magnet:?xt=urn:btih:BB68965FFF74A38F67C4767C3A03BEE25BFD22EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ VA - The Electro Swing Revolution - Essential Tracks, Vol. 2 (2011) [AAC|~299 Kb
 ```bash
 magnet:?xt=urn:btih:53296376B06D88BBD3CD8152BF4C5D9129698F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Artstudio Pro 3.2.21 [En]
 ```bash
 magnet:?xt=urn:btih:FE1CA082E8980796586857E2D3772BE4BAD90E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ VA - The Electro Swing Revolution, Vol. 4 (2013) [AAC|~320 Kbps] <Electro Swing,
 ```bash
 magnet:?xt=urn:btih:614260DB6E0059340E1404CBEFA12D2278570775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ VA - The Electro Swing Revolution, Vol. 7 (2016) [AAC|~325 Kbps] <Electro Swing,
 ```bash
 magnet:?xt=urn:btih:F4DC2481A127E7A23AADF6CEBBE2753157CE1BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Omni Toolbox - это обширный набор инструментов дл�
 ```bash
 magnet:?xt=urn:btih:A495B6FF5E0401C7B0DC10A53262C00514FB9487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Omni Recover для macOS позволяет восстанавливать уд
 ```bash
 magnet:?xt=urn:btih:7B09FB510E6CA45568D4BC61C652E0A2C69C7501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ VA - Lofi Winter Beats (2022) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo, Lo 
 ```bash
 magnet:?xt=urn:btih:1B4D41D101B56E962841C2436559E82C3B74261D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ ToothFairy поможет вам перейти от одного выбранн
 ```bash
 magnet:?xt=urn:btih:96B03459D8B0125B277EB9D7C4F75A434F71E236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ VA - The Electro Swing Revolution, Vol. 6 (2015) [AAC|~327 Kbps] <Electro Swing,
 ```bash
 magnet:?xt=urn:btih:EE78E1239DB7183ADCB370406591923ECE03A9FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Omni Downloader — простое и интеллектуальное прил�
 ```bash
 magnet:?xt=urn:btih:7B3A15668183A1A7AF7C69D0CCBD2242963FB02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Lunar управляет той же яркостью, которую вы мо�
 ```bash
 magnet:?xt=urn:btih:BD34AD4D7ED8CC65402EFC8C6AB907811365F3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ USBclean 3.6.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:F802B31F9ADCC1C14E54EE542C38B50A6F7B5041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:751A15E47FB7050C36CC7F46585645FE2CE9CE64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ Paletter 4 v4.3.0 [En]
 ```bash
 magnet:?xt=urn:btih:4F943B2B2B25B73209B2262785023021800DB4CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ EdgeView 3 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:AC642B4278F6AA9A11D5F752204D8BA7F58B4053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B2F72AFA404385586ACC9106C0869FC6B706D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ eMail Address Extractor - ищем и извлекаем email адреса. eMa
 ```bash
 magnet:?xt=urn:btih:754C13BFE25DD2FCB61956F1558A8BDCE7893A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ VA - Beatport Hardstyle: Electro Sound Pack #392 (2021) [MP3|320 Kbps] <Hard Dan
 ```bash
 magnet:?xt=urn:btih:8B6289A3E990F23FBFC907B388DB1E872BBE5C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C9A334BEE7C59A01B30AFFB9B26EBAA11DC59BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBACC1B183AA5D8BCA7F233A052788AFAE09EB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A24273250117A47ADDB79C27E2FBA72D1FDD437F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ VA - The Electro Swing Revolution, Vol. 3 (2012) [AAC|~321 Kbps] <Electro Swing,
 ```bash
 magnet:?xt=urn:btih:AD9750BA9249947FFD58798D9C5C43665AFB1DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

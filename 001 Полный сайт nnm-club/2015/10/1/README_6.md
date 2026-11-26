@@ -18,8 +18,7 @@ Shutterstock это самый известный магазин с фотогр
 ```bash
 magnet:?xt=urn:btih:CCB8F29984092E5AFE9E222A383D8E2FFA62D162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13F0CA216AE49D549D79F8540DF630CB01831C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5368AB918EF81F4810DEED0721DA89BA9272BF0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BFD6E5A5D9D3F313E4C41CD2717687C03401163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A67C455344FA704C819E728D42B00A4D10F2E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E018316E67410F254AB070C70B11A25FB284A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EF28145B28AD6650A5DDCA00C09EBC829DF5833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Tuxera NTFS 2015 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:836B0584180BB3A0F9A9CA216C2EB8BABE480811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Soten no Ken / Fist of the Blue Sky / Кулак Синего Неба [2006, TV
 ```bash
 magnet:?xt=urn:btih:91AA98760BFD7C8B89266A3B491A61C18C7E5C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1FF51649F0D043BB9170A5AE2ADB65AB440A1FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FDA6FC5AA25F9FAE668688EF91861C2FBBC4C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCB9B4826BD18291A09BED7F4EE672FC429BB3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ Crysis 2 (2011) [Ru] (1.9/dlc) Repack =nemos= [Maximum Edition]
 ```bash
 magnet:?xt=urn:btih:1C7D388C5BE9C1263D359F345AB07F4D59947E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ God Eater / Пожиратель богов [2015, TV, 09 из 13] HDTVRip 720p 
 ```bash
 magnet:?xt=urn:btih:FD63FF28D0CE4FB6799EBAA98490703E8A72D231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2EEF813D98244B21469FE460F520A235C18C22F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ OS X El Capitan - Влюбляешься всё больше с каждым н�
 ```bash
 magnet:?xt=urn:btih:3B05BDEFCC13E5219D531B4CFD1E1A1FC616FCEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ ITVDN | C# для профессионалов - Обновленный (2015) P
 ```bash
 magnet:?xt=urn:btih:D4133851895BF09B713CD3A6DB84743E37C19305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ Re:Vision - Пакет включает в себя 13 самых последн
 ```bash
 magnet:?xt=urn:btih:EEC9D5877AAEFDC49E3F42804256DF39A478BCAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1165950E304108BCFBD04FD70FCD057E4DE47F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:8B52CE266B9B86B5950A69B2E3EA01BDD5FA344D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ Red Dead Redemption - Game of the Year Edition (2011) [PS3] [EUR] 3.66 [Cobra OD
 ```bash
 magnet:?xt=urn:btih:96F4F6296456B7FBFA5831AE3D4B0CFCFD2AAE4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ Mount & Blade: Warband (2010) [Ru/Multi] (1.168, 1.104, 2.012) Repack WebeR [Nap
 ```bash
 magnet:?xt=urn:btih:B4AC68A35BE474D2FCDD6F06C97F42D03918752A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru] 
 ```bash
 magnet:?xt=urn:btih:182E3D61566C1E5AFE68AC0943BAB343AF61A5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

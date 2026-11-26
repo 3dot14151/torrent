@@ -19,8 +19,7 @@ New York Mysteries: Secrets of the Mafia (2014) [En] Unoffcial [Collector’s Ed
 ```bash
 magnet:?xt=urn:btih:F9F9860810FFC2F9D8E832096E11ABF6C86B552B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Witch's Pranks: Frog's Fortune (2014) [En] Unofficial [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:882C47E540E4A3759688E4AB9218A5A5AD6ED336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Secret Bunker USSR: The Legend of the Vile Professor / Секретный бун
 ```bash
 magnet:?xt=urn:btih:8AC65823F27B671EE3CD7799401B769E0F8E83C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Men of War: Red Tide — это великолепная смесь страте
 ```bash
 magnet:?xt=urn:btih:A762E635A09302558F5AAC77F6768A31EF8ADE2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Borderlands 2 (2012) [Ru] (1.0.66.6778/46dlc) SteamRip R.G. Игроманы [Ga
 ```bash
 magnet:?xt=urn:btih:666E27C864271BB7EDD68B374F9A9AC165B33124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Game Stock Car Extreme 2013 (2014) [Multi] (1.15) License HI2U
 ```bash
 magnet:?xt=urn:btih:ECF20020E01E7AF94A9A94FA4C14846EF0DCB517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Adventure Time: Finn and Jake's Epic Quest (2014) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:505B3502D43DD2FC56B2AA75947F350DBF3AF7D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

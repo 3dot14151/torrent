@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:998D89F769329DBE8C4B39D19F7ADD98DE4C3F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D7C6703078ECA27BA12595508200BC9A9C93818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stefano Noferini - Club Edition 043 (2013) [MP3|320 кб/с]<Techno , Tech House
 ```bash
 magnet:?xt=urn:btih:3659E95FA6745C7E75A1C80FC36D9DF3763B57FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5821CD77B16401F0E7C3979815CF20E6D3FD610B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Sense Of Trance #47 (2013) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:C8848607D274E3EE39E5E866E022E96F2F5949B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D406CDE3FD57955DDF0639EAFF34A2D0A728B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Trance Maniacs Party: Trancefer Wave #123 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:DBDFF1CC85E08F91026E6459AA6F3F32B81B7528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD91D9FDA78E59B959F64728A7063BD889404208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA035A06059EB9DB9257CFFBA2F951941D16D95A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ VA - Seashore Desire #54 (2013) [MP3|320 кб/с]<Trance, Uplifting Trance, Prog
 ```bash
 magnet:?xt=urn:btih:4F97615AB8056038B21191159057D44B1FB80069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57C5F59DB871DEB4D066DCDFAA33B96CAAC4977A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Gomer Edwin Evans - Zeit Fur Traume (2013) [MP3|320 кб/с]<New Age, Relax, Ins
 ```bash
 magnet:?xt=urn:btih:2AC19799E1BC89151A4E811F48C235DBADA533DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE8ABA495EE421F122820936F56D1EC0D06BE3BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAE0CD16B52A29A0CD66FBB28288D160332C739C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ J. D. Blackfoot - The Song of Crazy Horse (1974) Remaster 1992[MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:1C226D578F9F2A825DBE9380E524CA9238ABDE2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Clawerfield - Circular Line (2013) [MP3|320 kbps] <Industrial Metal / Groove Met
 ```bash
 magnet:?xt=urn:btih:526DDE04C7F003F5999F1F2914E0DDB5CB89106C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:845B998F1D6BBC41E771302839F1D2A6A1A16EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - The Ecstasy Calendar 2013: September (2013) [MP3|320 кб/с]<Downtempo, Lo
 ```bash
 magnet:?xt=urn:btih:C7C8A197C743969588EE50E20BF3383A9876FBE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +560,7 @@ Marconi Union - 13 (2009) [MP3|320 кб/с]<Minimal, Ambient>
 ```bash
 magnet:?xt=urn:btih:D054BCB3E7D18CCA838A5FB708F0A86196A21AB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ VA - Aly and Fila - Future Sound Of Egypt 300 - Top 10 (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:CAF6BF4D059F1E9DDBEDA3600D685D182BC10E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +628,7 @@ VA - Exclusive Музыкальные новинки (2013) [MP3|256 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:FC5275A1CBAD92BF214EFDE3374B5B3A66F2EDBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:588324C2966500EB5F5F1761CA3DAD17450A404D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E8C39A8258E64EA3BE925158442459133BF887A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +711,7 @@ J. D. Blackfoot - The Song of Crazy Horse (1974) remaster 1992[FLAC|Lossless]<Fo
 ```bash
 magnet:?xt=urn:btih:86236B405549F89415A6639DC1A456931E2853E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67E29209D66AEF18CEF9E59338E8F48158AB7577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

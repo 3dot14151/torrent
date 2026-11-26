@@ -22,8 +22,7 @@ Midnight Eternal - Midnight Eternal (2016) Japanese Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:D52C28560E6F740EFFB0DDD1796DDD2040C88D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Peter Frampton - Acoustic Classics (2016) [MP3|320 кб/с] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:FBC2BFEDC88FB3F54D9BFE047947D7A066C0F2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

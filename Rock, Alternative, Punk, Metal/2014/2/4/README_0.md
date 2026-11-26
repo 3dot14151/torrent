@@ -28,8 +28,7 @@ Plastic Mind Frequencies - Plastic Mind Frequencies (2013) [MP3|320 кб/с]<Pro
 ```bash
 magnet:?xt=urn:btih:C7085B4EB7E8020770CE1CF626F3E077E162ABB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Vanity BLVD - Wicked Temptation (2014) [MP3|320 кб/с]<Glam Rock, Hard Rock, F
 ```bash
 magnet:?xt=urn:btih:F89DCD682DEA3046EEAC5FB2BAD1633E7D73E0EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Neo Geo - Digital DNA (2013) [MP3|320 кб/с]<Alternative, Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:57628FD9E25233A132465B48782B73121DCE5596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ CD1.  I Want To Know What Love Is - The Ballads
 ```bash
 magnet:?xt=urn:btih:9622F97AC101FDBD6FFC855F3D172F91537BF5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

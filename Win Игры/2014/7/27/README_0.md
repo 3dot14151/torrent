@@ -20,8 +20,7 @@ Urban Trial Freestyle - игровая новинка, которая предс
 ```bash
 magnet:?xt=urn:btih:148CD51A7F12C80E4FFDBA4E54A5F7759ED770D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Magic 2015: Duels of the Planeswalkers (2014) [Ru/Multi] (1.0.0.0) SteamRip R.G.
 ```bash
 magnet:?xt=urn:btih:4A53CC6751EA5A5012ED62868D0DE613D0D9B0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Orcs Must Die! 2 / Бей орков! 2 (2012) [Ru/Multi] (1.0.0.362/dlc) SteamR
 ```bash
 magnet:?xt=urn:btih:1DBB81D2386F65CFF03AC5AAA763267638A6BC5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

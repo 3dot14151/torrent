@@ -21,8 +21,7 @@ PHP и jQuery являются двумя самыми востребованн�
 ```bash
 magnet:?xt=urn:btih:0DC773887ECE86D6D4EFF5015B6719A18D9F28CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

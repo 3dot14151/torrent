@@ -22,8 +22,7 @@ Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <He
 ```bash
 magnet:?xt=urn:btih:03BE611D1BAD9E26B3E4A979616B4983A45386C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

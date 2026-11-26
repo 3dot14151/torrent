@@ -22,8 +22,7 @@ Metallica - Master Of Puppets (1986) [WavPack 2.0|192/32|image + .cue|Vinil-Rip]
 ```bash
 magnet:?xt=urn:btih:6D29BC2D7BE47F2CAF87841F007B6A668FA38004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

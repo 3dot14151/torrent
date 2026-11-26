@@ -22,8 +22,7 @@ Sim - Thank God, There are Hundreds of Ways to Kill Enemies (2020) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:8B70F238FE3B1319268F96D2214F4C5B09672C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

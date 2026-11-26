@@ -19,8 +19,7 @@ Ulfsdalir - 6 Full-length Albums (2003 - 2010) Discography [WavPack|Lossless|.is
 ```bash
 magnet:?xt=urn:btih:2A1BCF5BD27BFF25F7908F82DC92A53440A2EEAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Trance Eve Volume 51 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:0294ECC953D9910FA000F3832127CBEC6C299378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97DB7E9D1CB17926B297C0198B4873259A582A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ED4880288FC0E71AFCE95EC933EA18B9FAC69AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ DJ Цветкоff - Танцпол @ Record Club # 254 (27-12-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:9B7424AD8290A85EE5F223077884DF11317FEECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ DJ Цветкоff - Танцпол @ Record Club # 255 (28-12-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:D2AA05404FA0186F1490C43B8D783AE7B573D7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ DJ Цветкоff - Новогодний Танцпол @ Record Club Part 2 (03
 ```bash
 magnet:?xt=urn:btih:2A6FB18667AE74F40C6DC5B0AF2B6248A0939EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ Fist Fight - Conflict (2014) [MP3|320 кб/с]<Groove Metal / Metalcore>
 ```bash
 magnet:?xt=urn:btih:22468843E5C7D7B7E936FB881E05F91D67014865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DB202EF7D9C2B01C2C08CBF26071651B0EC0C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ DJ Цветкоff - Танцпол @ Record Club # 260 (18-01-2014) (2014) [MP3|
 ```bash
 magnet:?xt=urn:btih:F7B33551137A2476F0D82B50E9CBBA72532D2B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C05140E55BCB1369C6744B509ADF827B1BCB1846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +359,7 @@ DJ Цветкоff - Танцпол @ Record Club # 259 (17-01-2014) (2014) [MP3|
 ```bash
 magnet:?xt=urn:btih:D0FDD7401402931A843AF848CDF688BF30E57B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D427E90E5B5F9DED8C59D6BFA7AC4D5D7856AFF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27A860D5BDBEFA7EA5C0BB2BB5D42CC5CFFCFCD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ AXSmix - Beautiful (Exclusive Mix) (2014) [MP3|320 кб/с]<Trance, Vocal Trance
 ```bash
 magnet:?xt=urn:btih:F8FCF2B24AE1508D48B8955164ED716EC3597455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ BurnAware Pro - простая и в тоже время мощная прогр
 ```bash
 magnet:?xt=urn:btih:6172709863D6076B9042EDB59D1A394A42E6D39F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AC21243FF986E4367AC54912B3224ACD5C12B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF4E6527FCA5C8606F18D179E77A24CE4ED3B50B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8457B7A987A450F0597127CA415AF0246E9F9BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ Silent Civilian - 3 альбома (2005-2010) Дискография [MP3|128-3
 ```bash
 magnet:?xt=urn:btih:1735778CE48AFE94FE987E270EB8F9E4969CA2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ Kerry Leva - Proud (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:B60638997A856D017D2C81D34624FC425260D98A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ DJ Цветкоff - Новогодний Танцпол @ Record Club Part 1 (03
 ```bash
 magnet:?xt=urn:btih:681FAB703BBB052245E6DB084FD7466F766BE1A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +677,7 @@ Dogface - Back On the Streets (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:85BB688EBA931FA93BE00F69013AAC8F44935556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E928D1621A349738FDC00B5AFE04B213C935FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59BCF85E905FA3B4F58C7E1FA211CC13A91451E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

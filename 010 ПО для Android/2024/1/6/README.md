@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:B0EEB8CD88EAA0D3D5D1B2E74D017F41673D14F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Perfect365 Video Makeup Editor v1.6.20 Mod by ModExPro [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D43F7E4E05787961DFFFC9C2D06EB3C83CC2EC30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Perfect365 Makeup Photo Editor v9.45.9 Mod by ModExPro [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EB97DA3AC5AC8ADE72246FDFD17F4664607343EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Mercalli - интуитивный и простой инструмент для 
 ```bash
 magnet:?xt=urn:btih:F5C6F401925D44D0BCB15565E3D97C22C4468F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7954BD8B476DA34ED95D57C4A28B8E28FE57BC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ D4: Dark Dreams Don’t Die (2015) [Multi] (1.0) Repack R.G. Механики [S
 ```bash
 magnet:?xt=urn:btih:075DFDD991909D5C7B6FA53D7E635B16AF730DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BB35740349306505A5BD5E565F38DDFFCBC4146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ WinPE 8.1 Sergei Strelec (x86) 19.06.2015 [Ru]
 ```bash
 magnet:?xt=urn:btih:5BDD780EF313F474A41C09F4EA00E84B4FE5BD75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Wind of Luck: Arena – Новая многопользовательская с
 ```bash
 magnet:?xt=urn:btih:F895E2EF6385BFFA64E39C470F1B99C96CAFDAF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Multi Utilities 2015 5.1.6 by Муллин Иван [Ru/En]
 ```bash
 magnet:?xt=urn:btih:33C6FA48041C58ADA7EDC60743FB4DAB400160EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5C9FA862488336402F92D841E7847B89B480D5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Adobe Photoshop является безусловным лидером сред�
 ```bash
 magnet:?xt=urn:btih:3FCCCBD4079CE056DE59362992DAAA38236B48EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F03FF36B8C93D4BE929739293E54E24B6573F3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Adobe Photoshop является безусловным лидером сред�
 ```bash
 magnet:?xt=urn:btih:5E2B35F942DA78C32AF57B9F79595FB887BF1858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Optical Flares - инструмент создания и анимировани
 ```bash
 magnet:?xt=urn:btih:8963D9686AD74C0A2925BD731377CA7152DCD671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

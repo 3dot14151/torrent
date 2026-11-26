@@ -19,8 +19,7 @@ Your Toy (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5BB295119F1631984CCF9268A07446325DCD2C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Void Destroyer — гибрид космического симулятора и
 ```bash
 magnet:?xt=urn:btih:5AAA077D426F47C6CCB02B92DE839D545621E026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

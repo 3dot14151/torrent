@@ -28,8 +28,7 @@ Deva - Murther (2014) [MP3|320 кб/с]<Progressive Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:AEEFAF596FE25E89B33C9B25129F1C808039FB95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ TNT - Realized Fantasies (1992) Japan [APE|Lossless]<Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:3AFFF583239BE670343D2A8A6ABB0651B2B29F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Lionize - Jetpack Soundtrack (2014) [MP3|320 кб/с]<Hard Rock, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:9AB5C55B9B1DB95A39F01CC82EC9CC26F1086280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Blue Oyster Cult - Secret Treaties (1974) Remaster 2001 [APE|Lossless]<Hard Rock
 ```bash
 magnet:?xt=urn:btih:76EAFB61BFEA15CC24E4927654C621B412836E1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Warpaint - The Fool (2010) [FLAC|Lossless]<Shoegaze, Art Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:ABCDE17407F48D7D890834D5637BF4D574EB7A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Illusions Play - The Fading Light (2014) [MP3|320 кб/с]<Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:D948499C5D7CE6615A93C8A882EC63CEB9E4322D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ VA - Rock'n'Roll Party Megamix (2003) /Signature/ [FLAC|Lossless]<Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:42740D796469095A2551386114F16DA1C9F788D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

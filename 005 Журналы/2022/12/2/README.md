@@ -19,8 +19,7 @@ Woodturning — высококачественный журнал для все�
 ```bash
 magnet:?xt=urn:btih:CFACB5427C7DBA86ACAD7C93BD6C05067A1A953D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Selbst ist der Mann — популярный немецкий журнал дл�
 ```bash
 magnet:?xt=urn:btih:E90FDB4B4D1AB0816F479AB94945796E7836935F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

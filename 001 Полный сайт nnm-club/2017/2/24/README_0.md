@@ -21,8 +21,7 @@ Tommaso Pini - #COSECHEDANNOANSIA (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:E01A25D2693A439451EFC48B8DDFDCFE6958BA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Vocal Dance Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:B6E76C419373D8FDA8086CC6487180B2B1209407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Jordan Suckley Presents: Damaged Asia V1 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:32CD5394B19D397D9221D1F9210F099DE26B8C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97A448501CD9EEB51D11E0E8B0F0B564F9D6B1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Nicole Herzog - That's Life (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Ma
 ```bash
 magnet:?xt=urn:btih:3B60FFB80A822C9C52D9FCEB986F8BF21BB449BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - This Is My Church Vol.2: The Deep-House Edition (2017) [MP3|320 Kbps] <Deep
 ```bash
 magnet:?xt=urn:btih:8A2E7839EC58E81BBBE6896BE433A92604E23380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:80AE1B19F9B8D170FB0ACBD11E1563F07F4E9ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Chill Out Waves Vol.2: Finest In Smooth Electronic Music (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:C65CA5B0636F98BD00DD7870809D4DCB03165457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ IconJar 1.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:60E6C1C1C18DE6FB156E2FA71D209BB3D6EC4B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Leather Heart - Comeback (2015) Japanese Edition 2017 [FLAC|lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:E1A52CE5B76913BD8EA04DA06FA00C8974926485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:5BBEEBBECCCAAE3846F49A0CB487BA6EC1123E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ Banco De Gaia - Ollopa: Apollo Remixed (2013) [MP3|320 Kbps] <Ambient, Downtempo
 ```bash
 magnet:?xt=urn:btih:9F231487B3FC9B6F31344D11C575C9D4C94CF5E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D894E7206905A1EF5C3D31FE585B1807FBC415EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Trollfest - Helluva (2017) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:F6BAECEBFE29F28116D39E4A6707784B5CAD769F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Ibibio Sound Machine - Uyai (2017) [MP3|320 Kbps] <World, Funk, Pop>
 ```bash
 magnet:?xt=urn:btih:022465BE1037F10F36B87A77B39DA0D1B39ED31C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ Let Em Riot - Lines (2016) EP [MP3|320 Kbps] <Electropop, Synthwave, Dreamwave>
 ```bash
 magnet:?xt=urn:btih:25211268E1725659A3D4D1972E082A4B5CB52C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ Govannen - Celtic Air (2016) [MP3|320 Kbps] <New Age, Celtic>
 ```bash
 magnet:?xt=urn:btih:70329CE8EE8B360BAC7F98B77D634FE1A48B398F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ Angel Forrest - Angel's 11 (2016) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:438467464C393CC45BACE61219704168BA882CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A0A8333436CACF466C4B000DE1159C040D3DC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C6582DCA4FE09B66AD94E0CBE72177CDC302616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9583F57FB8FE5E20218B231FB3CC86D0D5E4BDEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FD6AF298D52FC678E4F85F3EB6ADE705279CACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB89D7CEE4E009571493A98DB17737BB3F001348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ iNet показывает устройства, подключенные к ва
 ```bash
 magnet:?xt=urn:btih:1A0A8BFDEEFF1841CBC3E5EF1CAD7C66FC68967A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ QR-код является незаменимым и универсальным 
 ```bash
 magnet:?xt=urn:btih:881B828F150D2D4257D702D5076537488EE23E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ VA - Deep House Edition  № 009 (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:3E08CF1BFAB44F70C86ECBC9282C26A6B0E06F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

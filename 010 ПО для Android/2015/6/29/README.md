@@ -22,8 +22,7 @@ AlReader 1.65 150531 [Ru]
 ```bash
 magnet:?xt=urn:btih:9876A79851E973281E2BFA774DA7362D43A895A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

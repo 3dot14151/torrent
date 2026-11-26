@@ -19,8 +19,7 @@ Leeloo's Talent Agency / Агентство Талантов Лилу (2009) [Ru
 ```bash
 magnet:?xt=urn:btih:4243B436B9CE20E44E5A25654D85ABC1BD4156FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Okhlos: Omega (2016) [Ru/Multi] (2.0.1) License GOG [Omega Olympus Edition]
 ```bash
 magnet:?xt=urn:btih:99310EF57B0A519068BE9369A07D6C71C379986A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

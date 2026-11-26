@@ -28,8 +28,7 @@ Evans Blue - Graveyard of Empires (2012) [MP3|320 кб/с]<Alt. Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -66,8 +65,7 @@ Anderson Bruford Wakeman Howe - Anderson Bruford Wakeman Howe (1989) 2010 Deluxe
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +99,7 @@ Alan Simon - Excalibur III - The Origins (2012) [MP3|320 кб/с]<Folk, Rock, Ce
 ```bash
 magnet:?xt=urn:btih:838FBDB72C1459A885BF0BB270B866FA38942F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +142,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C491C7C4478D74F5EF4E35AD6DF3C468CE5DBE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +171,7 @@ Windhand - Windhand (2012) [MP3|320 кб/с]<Stoner Doom>
 ```bash
 magnet:?xt=urn:btih:FBE531A3ACE4D24812B2121E4100FFEBFD4DD375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +199,7 @@ De Lirium’s Order - Veniversum (2012) [MP3|320 кб/с]<Technical Death>
 ```bash
 magnet:?xt=urn:btih:E3BBEE5EF92EB9DFA63FCF9C6CD519A1BF0E486B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

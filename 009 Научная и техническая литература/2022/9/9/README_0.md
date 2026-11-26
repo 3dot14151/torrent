@@ -20,8 +20,7 @@ Yoai | Как нарисовать аниме-персонажа с нуля (20
 ```bash
 magnet:?xt=urn:btih:D694B09B0FD3EEBF045471776AC895BFF3BE8539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

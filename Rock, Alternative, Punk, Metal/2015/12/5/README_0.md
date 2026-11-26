@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:EC38D4D24C2DC2AA6C97B78C10E2873010A36D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Great Rock Hits (2015) [MP3|224 кб/с]<Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C155BF5AA5C068C15E09C5F7E5C8BDCFDCF5F39B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Coldplay - A Head Full of Dreams (2015) [FLAC|tracks + .cue] <Pop Rock, Indie Ro
 ```bash
 magnet:?xt=urn:btih:627675F0FD341F2D780C73D6B15A97C0CDF89D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

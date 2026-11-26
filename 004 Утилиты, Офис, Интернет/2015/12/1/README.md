@@ -21,8 +21,7 @@ MaxProfit 3.0.0.41 [Ru]
 ```bash
 magnet:?xt=urn:btih:A8AEE038A71B94EF696E50DCBF3BC90BE2BE25E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

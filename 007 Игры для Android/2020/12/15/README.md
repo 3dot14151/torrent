@@ -19,8 +19,7 @@ ROBLOX - Здесь каждый режим противостояния пре�
 ```bash
 magnet:?xt=urn:btih:BA2664DC82AC439771BE51C282E3D33E82D29ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

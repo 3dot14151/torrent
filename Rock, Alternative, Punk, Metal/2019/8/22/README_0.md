@@ -22,8 +22,7 @@ Blut Aus Nord - 777 - Sect(s) (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:1E558A40A36528C18F06CE3119712E7F88284114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Acod - The Divine Triumph (2018) [FLAC|Lossless|image + .cue] <Melodic Blackened
 ```bash
 magnet:?xt=urn:btih:3AD3A13063186816756218FA8909D7C765111569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Florist - Emily Alone (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternat
 ```bash
 magnet:?xt=urn:btih:EA45DA40CE4769D8719CB49074C1D41896D347BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Abbath - Outstrider (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Black M
 ```bash
 magnet:?xt=urn:btih:47C0746AEBF808563D3C6F89EDC6E166AA17B067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

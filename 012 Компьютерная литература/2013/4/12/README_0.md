@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:62D39CBC06E4E5554F4A39CF75441D1113F7EB0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ E. Marmel | Teach Yourself Visually Office 2013 / Office 2013. Быстрый и
 ```bash
 magnet:?xt=urn:btih:573FD4F5CF12C875DC65F0BCF4BAEDF009B414BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Reversion: Chapter 2 - The Meeting (2013) [En] (1.0) License WaLMaRT
 ```bash
 magnet:?xt=urn:btih:37D344B6F50DF8C1CB361A1599A3D12BAFCAA71A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kentucky Route Zero: Act I + Act II (2013) [En] (5.0) Repack SmallGames
 ```bash
 magnet:?xt=urn:btih:CF6295615E3940B533E50F068F983B872A57A641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rooks Keep (2013) [En] (1.0) License DEFA
 ```bash
 magnet:?xt=urn:btih:55DB932C70BFE8619DD03A106228DDA9AED211BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Torchlight Collection (2009-2012) [Ru/Multi] (1.15/1.25.5.2) Steam-Rip R.G. Game
 ```bash
 magnet:?xt=urn:btih:1A1EDDDCBAAB16555FC74E86B116361A83035C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Jewel Legends: Atlantis (2013) [En] (1.0) Repack SmallGames
 ```bash
 magnet:?xt=urn:btih:AE4DB2DDDB9853D6F9377EACED2A2CA038589EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

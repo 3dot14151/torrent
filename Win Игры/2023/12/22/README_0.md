@@ -19,8 +19,7 @@ Need for Speed Hot Pursuit - это ваш пропуск в новый откр
 ```bash
 magnet:?xt=urn:btih:26C4CEB4778A8D511FF6F48D1868F37CFD44450A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Need For Speed: Shift (2009) [Ru/En] (1.0.2.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:0E6E68DCD1EEC766BC171E84B311F7B3CA09DFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Book Travelers 2: A Royal Story (2023) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:336F5E8355D24674DC5C075D067297F3603750B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Christmas Stories 12: The Legend of Toymakers / Рождественские и�
 ```bash
 magnet:?xt=urn:btih:EFE7CA42D8553E0BB6DCABEA0278733706D5DB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

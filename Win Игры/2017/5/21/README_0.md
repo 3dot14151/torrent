@@ -19,8 +19,7 @@ Old Man’s Journey - это приключенческая игра с голо
 ```bash
 magnet:?xt=urn:btih:9340B850B23568A541C4D398183C5E5C9201BBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stardew Valley (2016) [Ru/Multi] (1.2.30) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:BE51908E687E48BD6A9BDF540E46751F6C2E136C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Old Man’s Journey - это приключенческая игра с голо
 ```bash
 magnet:?xt=urn:btih:7DAAB4BB9B45CB86821ED3530DDEA0C3B7D3DDD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

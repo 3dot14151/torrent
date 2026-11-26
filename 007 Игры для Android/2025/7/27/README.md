@@ -21,8 +21,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.8.8 Mod by v
 ```bash
 magnet:?xt=urn:btih:0C161963A7437781F221E36A81FB19A5D2E80A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A236B8C40F05750CD30057972857AB6F3005B65E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

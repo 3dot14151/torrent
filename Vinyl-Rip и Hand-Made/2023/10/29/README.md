@@ -22,8 +22,7 @@ Death - Symbolic (1995) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive 
 ```bash
 magnet:?xt=urn:btih:EECD267AEBFBE2A091DB17592F7B7E116F9CE14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Death - Individual Thought Patterns (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Death 
 ```bash
 magnet:?xt=urn:btih:B040AA3EDB20D562A9BB694C32B233F42913F468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Death - The Sound of Perseverance (1998) Reissue 2016, Relapse Records [FLAC|24/
 ```bash
 magnet:?xt=urn:btih:44A51D6968F01296F1D835CD65C7CF20A4114E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bolt Thrower — британская дэт-метал-группа, образ
 ```bash
 magnet:?xt=urn:btih:2F53D880D8944389925010ED692DC5015E458B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD-1 (34:04)
 ```bash
 magnet:?xt=urn:btih:4459A0DE943680AD4F5845D64CAAC96AFBAEE041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

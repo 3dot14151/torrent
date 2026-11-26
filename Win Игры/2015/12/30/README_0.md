@@ -19,8 +19,7 @@ Dark Age - это единственная онлайн игра о конфли
 ```bash
 magnet:?xt=urn:btih:8A72FE2DBB62AEFB371C3D539C917B58B98B989E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

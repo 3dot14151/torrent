@@ -20,8 +20,7 @@ DYSMANTLE v1.4.0.03 [Ru]
 ```bash
 magnet:?xt=urn:btih:69260143F0DF5C0D3212CB5E4A0FAC975F1F2689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

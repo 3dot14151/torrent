@@ -19,8 +19,7 @@ Castle: Never Judge a Book by Its Cover (2013) [En] RePack Dizzery
 ```bash
 magnet:?xt=urn:btih:4304936EC6C65B1D49C2790249D865B0848F3FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Princess Isabella 3: The Rise of an Heir Collector's Edition (2013) [En] RePack 
 ```bash
 magnet:?xt=urn:btih:F33C74D8824512FB589FFF6750E5049227E3BA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Zeno Clash II продолжает приключение Гата, которы
 ```bash
 magnet:?xt=urn:btih:D87725D60CF15D2B5E422BF994ABC1549613CF49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Pro Evolution Soccer 2013 – продолжение знаменитой сер
 ```bash
 magnet:?xt=urn:btih:7D2DC77C1BBD8226813C1C95A55819AD6718C948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

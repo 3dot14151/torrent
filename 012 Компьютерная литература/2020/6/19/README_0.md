@@ -19,8 +19,7 @@ Alex Banks, Eve Porcello | Learning React: Modern Patterns for Developing React 
 ```bash
 magnet:?xt=urn:btih:8E252A6694FF3BD2B9E7A43E592F85A01F69812C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cycles — это движок рендеринга, который впервы
 ```bash
 magnet:?xt=urn:btih:B3C89555E0E7774AF781BC870AD393435EA485FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

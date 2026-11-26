@@ -22,8 +22,7 @@ Barker & Baumecker - Transsektoral (2012) Ostgut Ton [FLAC|Lossless|tracks+.cue]
 ```bash
 magnet:?xt=urn:btih:E472AB13E0560AE406647813F3358E15494C794F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eyesberg - Claustrophobia (2021) [FLAC|Lossless|image + .cue] <Progressive Rock,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Porter Ricks - Biokinetics (2012) (Reissue 1996) Type [FLAC|Lossless|tracks+.cue
 ```bash
 magnet:?xt=urn:btih:51E72930DD20B10054D599EC5A96C1D685D0870A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F066C21DEC653A8718EF75FE76958B8144F982E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Evade Robots - Voids (2021) Low Recordings [FLAC|Lossless|WEB-DL|tracks] <Breaks
 ```bash
 magnet:?xt=urn:btih:10A27A0CB4C86344C0AC79326576F2DDA6163D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Better Trash - это приложение для управления мусо�
 ```bash
 magnet:?xt=urn:btih:41BDD7BD96FC12AE501824C9AC68F6935977F179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Feeder - это полнофункциональное приложение дл
 ```bash
 magnet:?xt=urn:btih:2AE1834C027F4FBE829CAC6A2CFF9E3995C0246D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Auditory - это уникальное сочетание набора текс�
 ```bash
 magnet:?xt=urn:btih:FFF44F9317720280738D2E2CF670796343CD4974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Artstudio Pro 3.0.19 [En]
 ```bash
 magnet:?xt=urn:btih:4D7AA0B09D6D7B0DF8060095BC49B97AF6F88F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Any RecScreen - это простая в использовании утилит
 ```bash
 magnet:?xt=urn:btih:EBD3B2E85AABBF2CDEB59CE0A52307A6976C1B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Nova поддерживает отдельные задачи сборки, за
 ```bash
 magnet:?xt=urn:btih:AB10C1A3A9668B35E230CE999D9C0DC00CC36AB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ VA - Beatport Electro House: Sound Pack #309 (2021) [MP3|320 Kbps] <Electro Hous
 ```bash
 magnet:?xt=urn:btih:1019DAE98BA3D43409E9D3B6DEEBE13B2D8BCB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ File Juicer может быть использован (   Читать дал�
 ```bash
 magnet:?xt=urn:btih:6B26345CB8C2515BA0209DCD3D00F1299F648770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Noisy Diners - The Princess Of The Allen Keys (The History Of Manto) (2021) [FLA
 ```bash
 magnet:?xt=urn:btih:59AD3B436C248012E30DC9B6A00F152F8C426810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Grids переносит лучшее из Instagram на ваш Mac. Grids for 
 ```bash
 magnet:?xt=urn:btih:14D626B887A3168FD8445F3A1F61ABF146F9BDBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Reeder 5 v5.0.7 [En]
 ```bash
 magnet:?xt=urn:btih:BF44891DCE849C7CFB9DC5EA1BE699C775830001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Outline для Маc идеален для студентов, преподав�
 ```bash
 magnet:?xt=urn:btih:950243E7A08567236ED773CCEBA6A78E3ABC5922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ Dream Troll - Realm of the Tormentor (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:EF8DF03903393F4C377DBC16C112E19352610AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ Les Brown - The Les Brown Story (1959) 1989, Capitol Records [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:530A89EE34328F3B8592C3F9FFE6538B9435EF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 ```bash
 magnet:?xt=urn:btih:5250AA1131D1FB8406CD36B26418B1D4086216E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ VA - Twisted (10 Year Anniversary) (2007) Twisted Records [FLAC|Lossless|tracks+
 ```bash
 magnet:?xt=urn:btih:90482D2591138B70788CB558ACD2DEFE8F175E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +607,7 @@ Winding Road - Winding Road (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:A484957211C3C5699B8A605D999920B62490705E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ Speedio: Internet Speed Test 3.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:524511CA43493129EFAC997AA3AA9EEF7596B10D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E960F6A21016C1C5132463272B97ECC0741A3CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

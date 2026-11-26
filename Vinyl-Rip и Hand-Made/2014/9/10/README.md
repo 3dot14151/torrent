@@ -22,8 +22,7 @@ A4. Waiting for a Girl Like You (4:52)(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:7AADACB392DFD3487C52CE9E329BE6620AA9574C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

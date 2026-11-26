@@ -19,8 +19,7 @@ FilmoraGo - Free Video Editor 13.1.52(13152) Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2F32A0EB9FA106AB3E27A1503EF59BDC585603E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

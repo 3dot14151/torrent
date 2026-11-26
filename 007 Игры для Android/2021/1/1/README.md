@@ -19,8 +19,7 @@ Bob The Robber 4 - очередная глава приключений вори
 ```bash
 magnet:?xt=urn:btih:49DB3F9BE0537EC1DE9478FAA91E519CE20655EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ War of Kings: Эпическая Стратегия PvP - многопользо
 ```bash
 magnet:?xt=urn:btih:D33448E2348880EB5F23FA57527ADD794955D098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FarmVille 2 Cельское уединение на андроид позвол�
 ```bash
 magnet:?xt=urn:btih:320CB2D8747750D44E4C4BB8752D8619794C940D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36E0CC66E9A7F09939F7E472C8B64578D32D775C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ StrikeBox: Sandbox & Shooter - шутер с симпатичной трехме
 ```bash
 magnet:?xt=urn:btih:591E6DE4E85F6E6900AC96738CAC2C562D10C295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Eternium - ролевая игра для устройств на платфор
 ```bash
 magnet:?xt=urn:btih:A014FB97E9D7D44B404B4C20818CDD95641A4544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

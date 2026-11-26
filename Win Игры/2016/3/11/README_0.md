@@ -19,8 +19,7 @@ Grim Tales 10: The Heir / Страшные сказки 10: Наследник (
 ```bash
 magnet:?xt=urn:btih:641637EFB8DA08938226162F4D12F919CCA06A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cobalt (2016) [Multi] (133b Gold) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:25476C20DBC2AB6023C10254C712E68EBC2CAFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Guest – это атмосферное приключение, полное
 ```bash
 magnet:?xt=urn:btih:62E397765CB310E337328390C68154C6B720880A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Emily is Away (2015) [Ru/En] (1.2) Unofficial
 ```bash
 magnet:?xt=urn:btih:E3D2C8177FBD15A90CF3097EC2440096478E89FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Guest – это атмосферное приключение, полное
 ```bash
 magnet:?xt=urn:btih:DA3B872185253187111D69793D7175FFF886E8E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Blues and Bullets - Episode 2 (2016) [En] (1.0) Repack Mr.Weegley
 ```bash
 magnet:?xt=urn:btih:C1A9E853B0CE4BE2FF15C2A1C4F2D12D68CCBC9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 ```bash
 magnet:?xt=urn:btih:445957B9EDCC14A499DD66B7E6E8E16B6E605BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

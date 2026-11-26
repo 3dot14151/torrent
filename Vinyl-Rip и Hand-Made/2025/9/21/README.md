@@ -22,8 +22,7 @@ A4 Souvenir D'Amour (Memory Of Love)(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:4BDC18F99BB11232D658BE3BA9C7636040F7E81B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

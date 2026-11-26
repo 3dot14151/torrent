@@ -19,8 +19,7 @@ Hardcoded Software dupeGuru Pack by Wadimus [04.04.12] [Rus]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

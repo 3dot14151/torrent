@@ -21,8 +21,7 @@ IObit Uninstaller - эффективная программа для полно�
 ```bash
 magnet:?xt=urn:btih:22B7C8816B1A462D0B28A049FEF19A59036C1D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

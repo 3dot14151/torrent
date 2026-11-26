@@ -28,8 +28,7 @@ Neopera - Destined Ways (2014) [MP3|320 кб/с]<Symphonic Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:515537992D9EE0490EB3A803CD30B157681A1DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Rebel Gel - Is It A Sin (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E7413B448F18F6B1FE5755C4078FF1EBB79235A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Terror - Live By The Code (2013) [MP3|320 кб/с]<Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:96900077B4CA5CA169EE07BF31E14F57FB8C25F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Gracious - 3 Albums (1970-1996) Reissue, Remastered, Papersleeve /1996-2006, Ver
 ```bash
 magnet:?xt=urn:btih:28AB3B31DC2F4CD512B48E4E96696DC827C74982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Amberian Dawn - Magic Forest (2014) Limited Edition [FLAC|Lossless]<Symphonic Po
 ```bash
 magnet:?xt=urn:btih:C0ED2E29DF67389984EC8840138F534683435F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CF8BBA0A5F68EA4D43635E502715322737909A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

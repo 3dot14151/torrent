@@ -24,8 +24,7 @@ Forces United - Hits From Metal Musicals (2021) [FLAC|Lossless|image + .cue] <He
 ```bash
 magnet:?xt=urn:btih:796DB5517A7424BB1480BD8FF0AB8F2576C9B2CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Forces United - 2 Studio Albums (2020-2021) 3xCD [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:1C80B011C589A041687472721BB626881342B72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

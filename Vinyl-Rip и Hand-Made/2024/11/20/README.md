@@ -19,8 +19,7 @@ VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC
 ```bash
 magnet:?xt=urn:btih:1610288ECB9F0CB78BCAFDC715F00A68E87B0581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

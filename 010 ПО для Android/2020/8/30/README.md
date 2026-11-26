@@ -19,8 +19,7 @@ Mi Control Center v3.7.9 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:03CB12926833F6079373D0A9B15D4F8C18FDC28E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

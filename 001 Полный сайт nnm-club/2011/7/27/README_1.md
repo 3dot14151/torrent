@@ -18,8 +18,7 @@ AI Roboform Pro - программа, являющаяся менеджером 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Disc 1: Relax
 ```bash
 magnet:?xt=urn:btih:0865D30B9A43F393351D9FE7DC34E5B021796A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Летнее настроение от Dfm (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E7C6DB2154FBC78A0DB3489CBD6E4CD762233E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Дальний свет №4 (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:5BF5A74CB4A8E687C44DCB0F513BB875BB4EC00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ VA - Парад звезд шансона (2011) [MP3|320 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:C432FE057DD083F7E60CC5D74F6CE47FAA63B5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00E8955657106323CA3A0E917312B183A152CD9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DE1DA675E6E47C99528FDF9D15883BE4AE042F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ Mark James Kenger - Silver Lake (2010) [MP3|320 kbps]<New Age, Relax, Instrument
 ```bash
 magnet:?xt=urn:btih:CAD96EB99BAF184396C1AAA1C31BDE82332A38A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ J. River Media Center 16.0.139 Final [Multi/Rus]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:838275E1D8965D78D911CC4DE47DC774CB874A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDC45512C68FDCDCEB691C63A62ED7173D925817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ VA - Летние Хиты За Рулем №5 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:EBE2C0DEE75175C3C82B1E279ED2DD6DAB17A81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ VA - Dusk Till Doorn 2011 (The Extended Versions) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:5F37E71607A9A6CE602F6380D5D944B196AE3FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ Jai-Jagdeesh - I Am Thine (2011) [MP3|320 kbps]<Mantras, New Age>
 ```bash
 magnet:?xt=urn:btih:EC9B2A0876D6D7284F33E3ABAC0F25E465495FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ HD Suisse - Швейцария [часть 17] / HD Suisse: Swiss View (2007) HD
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ VA - Хит Презент Европы Плюс Часть 5 (2011) [MP3|256 kb
 ```bash
 magnet:?xt=urn:btih:EE6FDD99A2143AEB0512530A1AFFBD3C72EFC72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ VA - Armin van Buuren - A State Of Trance Radio Top 15: July 2011 (2011) WEB [FL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82DA34C114B658218E3F4C53D75FD35CD3EC77DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ VA - Лучшие Хиты Радио Милицейская Волна Част
 ```bash
 magnet:?xt=urn:btih:6E9C73B3261000D9DE48F9202CAE76C0BC4B0BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30D6DEF356143EC4FA855550FA4944B37CED92DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ HD Suisse - Швейцария [часть 13] / HD Suisse: Swiss View (2007) HD
 ```bash
 magnet:?xt=urn:btih:AF5790345976226D1400AA58FEDCD51B601D593E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ HD Suisse - Швейцария [часть 16] / HD Suisse: Swiss View (2007) HD
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1703E23CBE790D93D5FB41DD99F3A4D4DE2DAA12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ Jessica's BowWow Bistro (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:85689F160D1DC391C7596B22571ADAEB62E70B7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
 ```bash
 magnet:?xt=urn:btih:9C85BE61C6878FF8102EBB8F67C76C6382DFAC31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ VA - Летний Top MTV (2011) [MP3|256-320 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:4EF8C9500B7DDF9E676BB213B5BB6712051E6ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

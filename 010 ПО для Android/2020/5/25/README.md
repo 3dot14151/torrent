@@ -19,8 +19,7 @@ TTDictionary Русский – бесплатный офлайн Толковы
 ```bash
 magnet:?xt=urn:btih:FC5FCE076BBDB5B9D77448A32C6D241C00C1E78A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

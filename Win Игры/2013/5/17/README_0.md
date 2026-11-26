@@ -19,8 +19,7 @@ Curse of the Pharaoh: The Quest for Nefertiti / Проклятие фараон�
 ```bash
 magnet:?xt=urn:btih:2201EB19E618FDC5558CEAA4546AC6A593463D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Dreamscapes: The Sandman. Collector's Editon / Повелитель Снов. К
 ```bash
 magnet:?xt=urn:btih:D0A12586C9D6013A21BF7300CEA43ECFF0B42DF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ NightSky является атмосферной экшн-головоломко
 ```bash
 magnet:?xt=urn:btih:5C06D2B7CF5271A7DFC15A05E62CBFDF1F7CC62E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ BIT.TRIP Presents... Runner 2: Future Legend of Rhythm Alien - это самый
 ```bash
 magnet:?xt=urn:btih:800C14DB0113759A0F5CB279B032787AA34AB735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Afterfall: Insanity - Dirty Arena Edition (2013) [En] (1.1.8364.0) Steam-Rip R.G
 ```bash
 magnet:?xt=urn:btih:971D006C44595B400D11F4FA505E9A1CDE92FBBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Royal Defense / Королевская защита (2013) [Ru] RePack adguard
 ```bash
 magnet:?xt=urn:btih:773DB9ECBF7F4A09E9D18024C82CAAC125550B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

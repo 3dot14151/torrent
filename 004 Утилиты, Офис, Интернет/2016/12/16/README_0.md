@@ -19,8 +19,7 @@ NextUp TextAloud легко прочтёт для Вас Web-страницы, �
 ```bash
 magnet:?xt=urn:btih:473B5252EF9655D4D65309A30BDB31EDFD2AB971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

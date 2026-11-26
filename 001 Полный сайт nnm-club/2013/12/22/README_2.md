@@ -18,8 +18,7 @@ NG. Пир драконов / Dragons Feast (2012) HDTVRip [H.264]
 ```bash
 magnet:?xt=urn:btih:198E0917047E87641C8DDC0E66B108D85FBD847A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B34893096260C16CE10A61526BF5AF39B72F0F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ VA - Classic Rock #180: Ones to Watch (2013) [FLAC|Lossless]<Alternative Rock, H
 ```bash
 magnet:?xt=urn:btih:5F90DC5EB52BDEBA59601BA6CC32162060638127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E97EA3057D52D2ED5D73C3866ED34E58872D846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Vargo - Beauty [Reissue] (2009) [FLAC|Lossless]<Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:B75CE324B0FA5568FC801CC4D3B053B38062E8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Passacaglia und Fuge in C minor BWV 582
 ```bash
 magnet:?xt=urn:btih:5D962FCD3C8A929E8FDD278ED69D20E94B0C4B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ NG. Превосходство бегемота / The Hippo Supremacy (2012) HDT
 ```bash
 magnet:?xt=urn:btih:AEE8FFE40683F31D75B142DB2115AB73E70AAA0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Myriam Darmoni | Макарон (2013) [PDF]
 ```bash
 magnet:?xt=urn:btih:A7B23455702D03017A7E030CBDB4F41DB1F46A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ Diaphane - Discography 3 Releases (2013) [MP3|320 кб/с]<IDM, Ambient, Experim
 ```bash
 magnet:?xt=urn:btih:79752EBFCB06B01137C33A3DC67A89AAEDC66815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ Majesty - Banners High (2013) Limited Edition [MP3|320 кб/с]<Heavy Metal, Pow
 ```bash
 magnet:?xt=urn:btih:1309E6B466B1154001D058F84A7B483E176EB5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6570ADCED154490712DD25B697D2FF33C2710E3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B9122950E1C9910CC8916E08461DD2045D4DF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ David Arkenstone & Charlee Brooks - Loveren (2013) [FLAC|Lossless]<New Age, Worl
 ```bash
 magnet:?xt=urn:btih:5DC91A6CAD61A7D7168069B2F1C2AD8A5DF34A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +421,7 @@ EagleGet – удобный менеджер загрузок, позволяю�
 ```bash
 magnet:?xt=urn:btih:804E5F8FB4E4B97D82A25E0309FD5BD1E72F2764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB6C3282223115D00B9F87967EBCFE5F6105D607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +477,7 @@ BBC: Невероятный Гудвин. Серия №4 / The Incredible Mr Go
 ```bash
 magnet:?xt=urn:btih:C2BFBB7826B169419A811F07911B9B37A9987F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +502,7 @@ Discovery: Мотореставрация. Под чутким руководс�
 ```bash
 magnet:?xt=urn:btih:54D2F3C49B548002D6E75E0C11F7F717E1721727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +536,7 @@ VA - Рок на Новый Год (2013) [MP3|320 кб/с]<Rock, Hard Rock, Hea
 ```bash
 magnet:?xt=urn:btih:924E683F7DFA5F7666BC0EE6880F773CF5DB0B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +570,7 @@ Flunk - 5 albums (2002-2013) [MP3|149 - 320 кб/с]<Trip-Hop / Downtempo / Fema
 ```bash
 magnet:?xt=urn:btih:869286E5EE04A0D862C6C9640FFC9D1815EE0DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +604,7 @@ Tony Joe White - One Hot July (1998) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:FA898C5004B10FA322C0B17FBB11966E64A581F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2306438AF58AC8F7A4B45ABDE1D0FFC6CA8E4F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ Wallpapers - Коллекция обоев - 111 New Mix HD Wallpapers 2013 | Fe
 ```bash
 magnet:?xt=urn:btih:994BC981FED4BA844649CCB780E410D66E3A811B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A26E4CBCE50F603D2CA8A18949425B73BDD7210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +706,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45D9A81B096AD821F0CEA8B8D3A5E7976D05E93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3EE495E3CD2BAA02ADCCC319900475D4DACED81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Defiled - Daggers (2013) [FLAC|Lossless|image + .cue] <Groove Metal, Modern 
 ```bash
 magnet:?xt=urn:btih:FA654F31407372257104C16454F86621101742E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Asphyx - Necroceros (2021) [FLAC|Lossless|image + .cue] <Death Doom Metal>
 ```bash
 magnet:?xt=urn:btih:199E64660B03FA1A01C25BFAC9F2BA369F637093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:8861A62951BA9849BEB061C999EA64D8A4087847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Billionaires Boys Club - Something Wicked Comes (1993) Jараnеsе Еditiоn [
 ```bash
 magnet:?xt=urn:btih:2D67012D6320FE7543D222E3A936A1356F0C05F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CF796396BFCA6D2087A9CE23EE5C45D9027DE39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Foo Fighters - Medicine at Midnight (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, 
 ```bash
 magnet:?xt=urn:btih:7AD5145A1E273BF4D947681B9B5F608CE7595044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Haunted Legends 7: The Secret of Life / Легенды о призраках 7: 
 ```bash
 magnet:?xt=urn:btih:4B189F578A5A49CA1644E5A680D9AAC38E21C5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Banner Saga 2 продолжает события предыдущей ча�
 ```bash
 magnet:?xt=urn:btih:F4D7F27A257ED5DFD6CAB5D224EA7EDC76266DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FIFA 17 привносит массу нововведений в популяр
 ```bash
 magnet:?xt=urn:btih:6B3CE32CBED7A08F35A75720A0371005CA2AD6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

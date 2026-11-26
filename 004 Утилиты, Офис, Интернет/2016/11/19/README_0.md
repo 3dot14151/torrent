@@ -19,8 +19,7 @@ LizardTech Document Express Editor - одна из наиболее распро
 ```bash
 magnet:?xt=urn:btih:30B5F551C9021A80AD57E09B638297C6742B5199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Promt 12 Dictionaries Collection RePack by MKN [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BD5D89B734395CC214A8EB4DA4634F8007F65E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

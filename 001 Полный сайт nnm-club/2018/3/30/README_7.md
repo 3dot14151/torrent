@@ -22,8 +22,7 @@ Lowbrow - Victims at Play (1999) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:7304DA6EE8CB2F1803288BA761D1AF56F9D14F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bill Barron - A Swedish - American Venture (1966 - 1984) 2002, Dragon Records [F
 ```bash
 magnet:?xt=urn:btih:F50489F9800D8EE577CBCF931181ECD85A6BEE4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mallet - немецкая рок-группа, созданная в 1979 год
 ```bash
 magnet:?xt=urn:btih:0B6662FA9E7D3EBFB5DC5E277DB2CDC7ADA7398B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:932800DC4D30FD0839D59EE1521929ECB030A512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Diabolicum - The Dark Blood Rising (2001) [APE|Lossless|image + .cue] <Industria
 ```bash
 magnet:?xt=urn:btih:EF1363A0376A0009049B50A7C884E1EC7EF7197A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Illegal Operation - Digital Hero (2002) [APE|Lossless|image + .cue] <Industrial 
 ```bash
 magnet:?xt=urn:btih:58D7F40465426CD7C40FE5DD473979AEBEEE1DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Trance Maschine Vol. 2 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:26770F36F868C16A140575D0EF8C829CA87C2B99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Baleric Soaring Inspiration (2018) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:37D2816CC037DDF5B614C262013218E6E85ADE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Rico Seith - Ich zeig dir meine Welt (2009) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:A97B6FA5F84F6022E73A81236B2B0EA90B6680ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Jobe Presents Authentic Steyoyoke #012 (2018) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:066A0212EEE9622A37F2521A18EE4353C3DA520C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Ori Uplift & tranzLift - Uplifting Only 268 (2018) [MP3|320 Kbps] <Trance,U
 ```bash
 magnet:?xt=urn:btih:7E103853B35E023770EC85FF2F55E9A277A0F114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1513A0AB7DCF687604FBE5DB2B4B6F6E19FE52CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Mournful Congregation - The Incubus Of Karma (2018) [MP3|320 Kbps] <Funeral Doom
 ```bash
 magnet:?xt=urn:btih:7CB169E99F03C96F8DEAA3A46A1ECBAAA8E0A659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BA12AA8A712E16D43E48C2A41053C8AE10A2D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:100349A1C666AD06FFD5E3CBBDABABC5690D5000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27AABCAAE9CCE112B50A6FC9EF099EFBDEE9B307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Steps - Tears on the Dancefloor (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Europ
 ```bash
 magnet:?xt=urn:btih:1C7765165C190A9779BA1DBFBAB159814B1FCF8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ Peter Kent - 2 Albums, 1 Singles & EPs (1979-1982) Vinyl [MP3|320 Kbps] <Electro
 ```bash
 magnet:?xt=urn:btih:9946133F865422DA4029DE0456A6F077F52620E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ VA - Abbamania (1999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Europop>
 ```bash
 magnet:?xt=urn:btih:B638A5625E816E5A532C85843776BE47258A70FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ Markus Schulz:
 ```bash
 magnet:?xt=urn:btih:186EF090CB470A1B6EB0ECAE8F1248991BDCD063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61834763F5593C4B587012CF7ADF0E8CA0E6C2DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ Peggy March - Electrifying (1979) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:CBE0398A86D4183A7373F717BFED07439E0F6AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ Ghosts - The Second Compilation by ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ (2018) [MP
 ```bash
 magnet:?xt=urn:btih:1D83710ECBB728BFB05EFB3A32B9E37BA7939C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F016C858605F1857908593BFE55680028C3D699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFCD28256493FA2F2632124495135D236BE3805C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ VA - Deep House Collection Vol.160 (2018) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:3C2CEBF47A1E9F681E91C0C2E6AA894FCD141B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

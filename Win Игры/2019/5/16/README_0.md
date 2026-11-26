@@ -19,8 +19,7 @@ The Subject (2018) [En] (2.0.3) License PLAZA
 ```bash
 magnet:?xt=urn:btih:DFDBF1EC298A3E1D1533E7591E7B96317D3F1B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Imperator: Rome — новейшая масштабная стратегия о�
 ```bash
 magnet:?xt=urn:btih:32BEC703BF0D11D80F0BBC749C90AFE98EBDB462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Independence War 2: Edge of Chaos - настоящий сиквел. Перва�
 ```bash
 magnet:?xt=urn:btih:7EF64A82E7B15A331C00A1379663741850689C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Etherlords / Демиурги (2001) [Ru/En] (1.07/1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:CACBF091F9BF3B16271D479BEC47FC56598E25C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

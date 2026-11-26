@@ -19,8 +19,7 @@ Eventide 2: Sorcerer’s Mirror - сюжет игры разворачивает
 ```bash
 magnet:?xt=urn:btih:44254EFE344CCEA4500BEA50122420F20D79F5E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Tales 6: The Hangman Returns /Загадочные истории 6: П�
 ```bash
 magnet:?xt=urn:btih:E33ABE437232D3A72043892EB5566B4EB173B5F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Eventide 2: Sorcerer’s Mirror - сюжет игры разворачивает
 ```bash
 magnet:?xt=urn:btih:7000B45AFE4E2F4FD316931602D9A53DADFE6728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Phantasmat 8: Mournful Loch / Фантазмат 8: Мрачное озеро (2
 ```bash
 magnet:?xt=urn:btih:A709647808AD6576970E659E2CE17AF8839E7F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Finnish Roller – это простая indie 3d игра с мячиком. В
 ```bash
 magnet:?xt=urn:btih:C51CEFE3868A2A397DA0A8505B6884610AB59170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Gold Rush! 2 (2017) [En/De] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:346EA6FBD62FAA15CAE42E870EA2472620F617DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

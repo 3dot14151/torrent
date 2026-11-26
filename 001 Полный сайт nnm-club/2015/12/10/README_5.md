@@ -18,8 +18,7 @@ The Ritual on Weylyn Island (2015) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:D4DD408DD5085D5830D2E5D255E2B2481498618A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ STASIS – это приключенческая игра «укажи и щел
 ```bash
 magnet:?xt=urn:btih:197353F3B6FE8E4FF2DAB95EDCCF1C1BAD897FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Uplifting Only - Fan Favorites 2014 - 2015 (Mixed by Ori Uplift) (2015) [MP
 ```bash
 magnet:?xt=urn:btih:420BCB8C2E8F387438583C0B637F9321A9F8CD58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Dead Space 2 (2011) [Ru/En] (1.1/upd1/dlc/tr) Repack =nemos= [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:658814C1199979286D995719CB0105130F555D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Супер 100-ка Музыкальной дискотеки 50х50 (2015)
 ```bash
 magnet:?xt=urn:btih:5D9F2C3734BA30EF7865D4DCD695B4AE2CCFEC69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65F24A5DDFCC7495407EB109F2187A6FCC4B966B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Hard West (2015) [Ru/Multi] (1.3) SteamRip Let'sРlay [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:B0D01CCABBB285F86CDB9A49B37F39072CE8B0B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Windows 10 (x86/x64) + Office 2016 20in1 by SmokieBlahBlah 09.12.15 [Ru]
 ```bash
 magnet:?xt=urn:btih:E87EF6768F6734C20BF740823C9C7674EA1B2232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Battlefield 3 оставляет позади всех своих конкуре
 ```bash
 magnet:?xt=urn:btih:CC3D330FFD5E998BF81B33D2087B1A8D77791CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Minecraft - строительная компьютерная игра от пе
 ```bash
 magnet:?xt=urn:btih:3ABC5DEB209D80D02C17C8E9737C38F177F3B5DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

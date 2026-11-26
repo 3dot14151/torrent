@@ -19,8 +19,7 @@ Mystery Tales: The Lost Hope / Детективные истории: Утрач
 ```bash
 magnet:?xt=urn:btih:B74F2C8215E649164B184C9545D22652A9F58AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Legends: The Forsaken Bride / Зловещие легенды. Брошен
 ```bash
 magnet:?xt=urn:btih:4942950EA53DAE834749FFDB890157E9EAC7734F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sniper Elite: Nazi Zombie Army 2 - сиквел спин-оффа в серии 
 ```bash
 magnet:?xt=urn:btih:79D859562B0565AB14DC59A12D1AFEE2CB940B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Counter-Strike 1.6 Mod Sonicivse Edition (2003) [Ru] (pv48/b4554/mod1.05) Repack
 ```bash
 magnet:?xt=urn:btih:50A66179FD45592B4C656A6D54205A31D4684E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ BioShock Infinite (2013) [Ru/En] (1.1.25.5165/8dlc) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:B4B5D1C3F45E2A9F820CEC3494E842107BAFBA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sherlock Holmes The Awakened дает возможность игроку выс
 ```bash
 magnet:?xt=urn:btih:DB5EF4429FC85A2F09DA279EC371A91EBA758EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

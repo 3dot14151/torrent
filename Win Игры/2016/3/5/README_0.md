@@ -19,8 +19,7 @@ The Silent Age - приключенческая игра типа наведи �
 ```bash
 magnet:?xt=urn:btih:468C1AA5BCDD81CCC99D170CD7738BA48FDBB117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jotun - масштабная action-adventure, выполненная в дре�
 ```bash
 magnet:?xt=urn:btih:17CD130BA6B97C7BA9451CE9FC15BDC8F16BFBA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Backstreets of the Mind (2016) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B8024DBFEABDA46D973E6BA61FC5192468D63B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Sector - cовременная и бесплатная онлайн игр�
 ```bash
 magnet:?xt=urn:btih:3AC6A86E4F0D23826A43766744C5E46F57BF39B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

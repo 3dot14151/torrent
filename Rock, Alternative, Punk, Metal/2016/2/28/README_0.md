@@ -22,8 +22,7 @@ Balfor - Barbaric blood (2010) [MP3|320 кб/с] <Progressive Death Metal, Black
 ```bash
 magnet:?xt=urn:btih:D70686FAB4DB0712F4A332DD56DDB74AC7D055AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ivory - A Moment, a Place and a Reason (2016) [FLAC|Lossless|tracks] <Rock, Hard
 ```bash
 magnet:?xt=urn:btih:8EA6E92EB8F30A34EF78A421550D7AD161A1C14E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:2E27F30A29DEAF9138B3F5E20C83BFEE3491682C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The New Roses - 2 Альбома (2013 - 2016) [MP3|320 кб/с] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3860DEF26635EEB27C31A60ED06C668A3EC703D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Placebo - Sleeping With Ghosts: B-Sides (2016) [MP3|320 кб/с] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:FBBB18F7D8F013C30880795C6557370BE31FCF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7656666E725508BA5CB669C114D903C31ECEE7BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Deep Purple - In Rock (1970) [FLAC 2.0|96/24|tracks|WEB-DL] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:40287901A2B614946A51F9CED839AC652E8A9617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Pink Floyd - A Saucerful Of Secrets (1968) Remastered, 1987, EMI [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F621D05E2D10BDC49CCFAC9DBC4A235ED24FDA0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

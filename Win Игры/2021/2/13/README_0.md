@@ -19,8 +19,7 @@ Fireproof Games с гордостью представляют версию че
 ```bash
 magnet:?xt=urn:btih:C07BE01F3ABDFBD43101259A5590EBD1CCEAC331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Werewolf The Apocalypse Earthblood (2021) [Ru/Multi] (49091/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:857F3CF90528AA6536A12C6B29FAFEF0EE6518A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Potentia (2021) [Multi] (1.0.5.2) License CODEX
 ```bash
 magnet:?xt=urn:btih:688F6389A9C32E166B20E2EA11535399611577E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

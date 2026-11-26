@@ -19,8 +19,7 @@ Recover Keys - программа, которая позволяет опред�
 ```bash
 magnet:?xt=urn:btih:7EB5BC3F1240A637D6141A4149CDCCB5912A6351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

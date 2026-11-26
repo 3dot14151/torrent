@@ -19,8 +19,7 @@ Angry Birds 2 – злые птички триумфально возвраща�
 ```bash
 magnet:?xt=urn:btih:7AB8FCB15B66BD5DAE895FE0AA09B9024838838D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

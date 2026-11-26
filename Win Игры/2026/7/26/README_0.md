@@ -19,8 +19,7 @@ Halo: Campaign Evolved - это полноценный ремейк культо
 ```bash
 magnet:?xt=urn:btih:4D16F0924B09E72B373112AC37037E74D4A257E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Scrap Mechanic – креативный симулятор выживания, �
 ```bash
 magnet:?xt=urn:btih:ECFFFDFD6EEC6466C80DC01ABB36E29BF33C68F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grim Dawn (2016) [Ru/Multi] (1.3/dlc) Repack FitGirl [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:7FD35AA5BC97530E0BF718F9A9310424D62301B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ A Plague Tale: Innocence – это невероятный средневеко�
 ```bash
 magnet:?xt=urn:btih:EBB5E5BA6C74F2E1D27AAF1C3EA7402BDBE4B6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 ```bash
 magnet:?xt=urn:btih:D9D6A4442B3B511ADE4E22D1F6449F2E022E9B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mist Survival – это однопользовательская песочни
 ```bash
 magnet:?xt=urn:btih:6C3037F3D2C7C5555913A679F81B5C69DD204840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0CC9DE0772D000BB927EB67A95B9FAE117282C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

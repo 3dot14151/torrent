@@ -24,8 +24,7 @@ Mourning Beloveth - Formless (2013) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:72ABA614F55E41E775EBA1205AFA3C3F5C8C7894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FF0B670EE2DB4074AC64ED1B12E5F8BCEFE08DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Rotting Christ - Kata Ton Daimona Eaytoy (2013) Digibox Limited Edition [MP3|320
 ```bash
 magnet:?xt=urn:btih:3400581E9CB70BA92619B8160E2CCF3A39DC19FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Blood Of God - The Fall And Rise Of Man (2013) [MP3|320 кб/с]<Melodic Death M
 ```bash
 magnet:?xt=urn:btih:3E918A8E43C355CB1C71C7261713DB43BAB0C92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Mysterya - Symbiont (2013) [MP3|320 кб/с]<Symphonic Metal, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:403B406C70CC348D56B9BF5A84A3442737C7A2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Within The Ruins - Elite (2013) [FLAC|Lossless]<Melodic Death Metal/Metalcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20292720DBE68FC7A1654753906E1F5657845767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ U.D.O. - 8 Albums Anniversary Edition (2013) (AFM Records AFM 427-2 - 436-2 EU) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:28ABC5FCEEA3D3B77149B1061F96FAB3809C1E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

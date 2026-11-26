@@ -21,8 +21,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:54AFBBD258554E9064198E220C0826DBBD44DD4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Whyzdom - Symphony For A Hopeless God (2015) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:F2CADB9173A6007C279678B9AB2D665CEC506E02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Buzzheads - Boozed & Confused (2015) [MP3|320 кб/с]<Alternative Rock, Progres
 ```bash
 magnet:?xt=urn:btih:C6CC5481BF507D09BAC03E898554EF6F2F18A399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Familia - Нейроны (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:FB40F8F7AF46CB1D907BD217D053846E55775362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B97C735DEA4A6C7BE3C25BA2C851D4FA12EE1F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Kid Rock - First Kiss (2015) Deluxe Edition [MP3|320 кб/с]<Country Rock, Sout
 ```bash
 magnet:?xt=urn:btih:6FDB4020CB9C16D22299E34020408A2301D34542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC945BB18A0984A91ED5BCA22439584B2205667D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F42101E05B744ECCB589B67CB8ACDAB9F9299EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12B57B0DE6164AFA6DEE6BAC2DF0E2C8D9BB595D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

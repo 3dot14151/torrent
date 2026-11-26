@@ -19,8 +19,7 @@ Farm Expert 2016 (2015) [Ru/Multi] (2.26/dlc) License POSTMORTEM [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:68082C56C8B7BE030C714ECD781D27CF1CC08C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:66663867A2332E7961823FAD0A3B70D2338A153A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.7/dlc) Repack R.G. Меха
 ```bash
 magnet:?xt=urn:btih:1E6B4B2FE2E6F0063252A9A7F73602D268C40623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

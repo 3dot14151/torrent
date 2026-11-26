@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0827DE13F050E6BB1134E4942C3AF78F95D21D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3081246D7B4A3CAD2AB72A66D2B3E083D5915C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2069C84CF5A578F5BAED011CDD3F653144F33F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Heimwerker Praxis - журнал из Германии для домашних �
 ```bash
 magnet:?xt=urn:btih:61521F4C4931F42BE9C0381CAB3D484577BD5515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Heimwerker Praxis - журнал из Германии для домашних �
 ```bash
 magnet:?xt=urn:btih:BB7A30E114A9E8BEA6B7301E5F0DEA4FB9794616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

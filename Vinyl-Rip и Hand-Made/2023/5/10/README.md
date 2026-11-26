@@ -22,8 +22,7 @@ Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock
 ```bash
 magnet:?xt=urn:btih:5CC2BE8BC77F0BD504B809849D51FC0C00234024
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Попытай Счастья В Любви (Taking A Chance Of Love)(   Чи
 ```bash
 magnet:?xt=urn:btih:3F4910120AA499928A0AF10C8DFF008F5891F23D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

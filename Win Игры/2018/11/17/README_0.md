@@ -19,8 +19,7 @@ Forgotton Anne (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:C3143637E375D15CCCF70B40961032104C431255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:FCC45D066A106F148631C9C1F69F2264359BEB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SpellForce 3 — увлекательный гибрид стратегии в �
 ```bash
 magnet:?xt=urn:btih:7372AE777B52A1114EA6973B51E843320B63D51F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

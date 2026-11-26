@@ -23,8 +23,7 @@ Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
 ```bash
 magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

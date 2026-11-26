@@ -19,8 +19,7 @@ Billiards City - это современный аркадный пул с оди
 ```bash
 magnet:?xt=urn:btih:807E92ADDD9F0D6D4DF73F23CDC8C3490021D2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

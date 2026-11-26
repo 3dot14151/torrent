@@ -19,8 +19,7 @@ Marin Todorov | Modern Concurrency in Swift, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:6670D26AC74D52A3D2EB97401A2D860834F24077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ David Sandilands | Puppet 8 for DevOps Engineers (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:3885D9AF1147AA6F981190D9F9D820D944AE06C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

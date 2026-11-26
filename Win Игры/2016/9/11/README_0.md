@@ -19,8 +19,7 @@ Broken Age - это семейная, анимированная вручную 
 ```bash
 magnet:?xt=urn:btih:464A9F4B0D5015507A219F967B314DCBC9E03CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

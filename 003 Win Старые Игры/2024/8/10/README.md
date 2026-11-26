@@ -19,8 +19,7 @@ Star Wars: Battlefront 2015 – космический шутер, основа�
 ```bash
 magnet:?xt=urn:btih:1D35C325A2CD7AF1E8A89FD0119E94B7C49BC2AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hexen: Beyond Heretic - фэнтезийный шутер от первого л
 ```bash
 magnet:?xt=urn:btih:28C43F2F18FA8F493C508D2BF22B2EE6EE274241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

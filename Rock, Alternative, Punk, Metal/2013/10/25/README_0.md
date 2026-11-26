@@ -28,8 +28,7 @@ Hucster - Hucster (2013) [MP3|320 кб/с]<Blues Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:21DA834C24C6F22964E4D416A444817EBBD1EE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Jefferson Airplane - Bless Its Pointed Little Head (1969) Remastered /2013, Cult
 ```bash
 magnet:?xt=urn:btih:94C0A63123DBC58174D1BADC76BCCA3284058210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Jefferson Airplane - Crown Of Creation (1968) Remastered /2013, Culture Factory/
 ```bash
 magnet:?xt=urn:btih:3ECF33601C088B541C3859518E5FE9D12CA5667B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Jefferson Airplane - Volunteers (1969) Remastered /2013, Culture Factory/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:07D8A2AD64355D9CD1F1D8D06429040686FA4AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE3BEBE2830AE914D4BFE4A37E2D6FF36F1C69B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sable Maze 3: Forbidden Garden / Темный лабиринт 3: Запретн
 ```bash
 magnet:?xt=urn:btih:B8638E2D58764F65865B30AD07451303B0F40871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ King Arthur: Fallen Champions (2011) [Ru/En] (1.0.0.6) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:9A5D586431AF8FD24E5DA3B269C3DA97EF4AB75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Epoch (2014) [Ru/En] (1.5.2) License CODEX
 ```bash
 magnet:?xt=urn:btih:DF1B1B16A3109ACD51DB1EE054D568761010D39D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Day One: Garry's Incident (2013) [En] (1.0.9953.0) SteamRip R.G. Игроман�
 ```bash
 magnet:?xt=urn:btih:39C16F0B5AD4ED44881266093F5DC57DBC9559E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Cities in Motion 2 (2013) [Multi] (1.6.3/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:11A42BCA405A6E80CF4A0AC0C3330F97D7A0795B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Eidolon (2014) [En] (1.01) License SKiDROW
 ```bash
 magnet:?xt=urn:btih:7DA6B4611763E3E2BE7125C6ECAF5D8C96C315F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Gods Will Be Watching - инновационный психологически�
 ```bash
 magnet:?xt=urn:btih:3A56754D690BCE84B7407EDC5AD43ADAEDFCBCC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Ghostship Aftermath - первого марта 2368 года была поте�
 ```bash
 magnet:?xt=urn:btih:E9B70A036F67304D2291A4DFF38BDEC22EB987B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

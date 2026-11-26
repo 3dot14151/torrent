@@ -20,8 +20,7 @@ Vetcalculators - это коллекция ветеринарных кальку
 ```bash
 magnet:?xt=urn:btih:62A43F473DB3BD64189CD663B26822D6C8A70A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD825644766EFA149EB0C017985FB9CC54E8735D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ GoneMAD Music Player v3.2.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:82E1461F96F52AB87E1BF89FBE7514E36ABE6075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Superlingo, ведущее в мире приложение для изучен�
 ```bash
 magnet:?xt=urn:btih:C533F255DAB4264D9AE5A99FF76C1366FE0EEDA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Santa 3D Live Wallpaper 1.4.1 Premium [En]
 ```bash
 magnet:?xt=urn:btih:F018F9B638E3ED73BE6062D79A6E85670354229F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

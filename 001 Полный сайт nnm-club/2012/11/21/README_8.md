@@ -18,8 +18,7 @@ Assassin's Creed 3 (Patch/Crack/1.01) 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:5FFEE5AAD8D8D72373B7A7D78BDFE2FA3EAD4BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Call of Duty: Black Ops 2/II (2012) [Ru/En] (1.0.0.1) Rip R.G. Shift
 ```bash
 magnet:?xt=urn:btih:2F36E6EF192DAE34733B749527585A666DBA6439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Assassin's Creed 3 [Ru/Multi] (Crack/1.01) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:5DBB167C1847D920773FFEA6A1AC37C8646CE39B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Halo 4: Идущий к рассвету / Halo 4: Forward Unto Dawn (2012) [H.2
 ```bash
 magnet:?xt=urn:btih:51F3E642D09E74171FDB1777DBD5DCE1AA914AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE1991D22C311BF06010A770554FCD7645C048FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Assassin's Creed 3 [Ru/En] (Rip) 2012 l R.G. Механики
 ```bash
 magnet:?xt=urn:btih:EBBB5BC32B3034EC59CB7958FFC02EFD6C9027BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

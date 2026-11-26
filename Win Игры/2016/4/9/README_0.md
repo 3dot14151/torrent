@@ -19,8 +19,7 @@ Love Chronicles 5: Beyond the Shadows (2016) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:B960C126EB5A6CA4413F284C420C48831B0D9A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stairs - это атмосферный психологический хорро
 ```bash
 magnet:?xt=urn:btih:8BB65D57F2DD5AFDFF11C802E68931E7F89A3C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Statues (2015) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:2C5701CE27EB1A07774AAEB5396F7BE7BAFB63A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Warden: Melody of the Undergrowth – приключенческая инди-и
 ```bash
 magnet:?xt=urn:btih:FFAC03FC3D7757AB8BFE7C45381847222EF89F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mind: Path to Thalamus – головоломка с видом от перво�
 ```bash
 magnet:?xt=urn:btih:123CF9020B77A57BCEC93BCC9401F1F0E8CABDD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Rewind - головоломка от первого лица с элемента
 ```bash
 magnet:?xt=urn:btih:BB9E8E3BBF896E18BAB3ADCEBB740D5A03FD9A0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

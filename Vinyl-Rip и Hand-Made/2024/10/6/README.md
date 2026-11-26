@@ -22,8 +22,7 @@ Twelve Foot Ninja — австралийская группа из Мельбу�
 ```bash
 magnet:?xt=urn:btih:51237C2C33634F573D1C3D56111D1023A5DB5C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

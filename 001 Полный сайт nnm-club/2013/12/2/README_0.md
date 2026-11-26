@@ -27,8 +27,7 @@ Solar Spectrum - Droplets From The Matrix (2013) [MP3|320 кб/с]<Psy-Prog/Full
 ```bash
 magnet:?xt=urn:btih:A526FD886142A618A7BCAC6E6D387259FE9DC4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Carla Bley & . . .  Friends - 2 альбома (1993, 2013) [FLAC|Lossless]<Inst
 ```bash
 magnet:?xt=urn:btih:6C7D001DC5CF9EFBC03A0384CEC5EE08E75ACD9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ DJ Цветкоff - Танцпол @ Record Club # 248 (30-11-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:85B3198E7DF1187D0CEED2B0719E5DE94FC257F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ DJ Цветкоff - Танцпол @ Record Club # 247 (29-11-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:5D24B9286C921FE095C4D90C4DDF311036CBA0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C18A21408FCFDD7F9DB03464F4EBFA9E43AF8623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Treat - 3 альбома (1986 - 1989) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9F7FEBC4665459E4B3DC43B1C7A80956B9EC10D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Bjorn Berge - Mad Fingers Ball (2013) [FLAC|Lossless]<Acoustic Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:D2BAC100E56E56BE4264ACA1DC7326F45F184739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ NirLauncher Package - это пакет из 178 небольших утилит
 ```bash
 magnet:?xt=urn:btih:D0AD08EAD46547947E84513E75BE6A53C55A9C89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ InfoCity – ежемесячный журнал о компьютерной т�
 ```bash
 magnet:?xt=urn:btih:DF40954A4CBEFE62510544C6A8509622FD26F6EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E805B7BD88D4EF5EDCFD3326A9FA385722BE5EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:29E37B73D9F03D1E4FE2C0E71E5DE188456B6E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ VA - Milk Bar Cafe (Smooth Chocolaty Music for Love & Passion) (2013) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:C9C22BCF03CB589FD533D19B144D9A13EF9A4094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:143815F480B0C1E3D660B2862FA6EAD842663990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ Bonus Tracks
 ```bash
 magnet:?xt=urn:btih:81ECB2ADCA6AE84702CBEBA59F8FE40A31548383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:574C96E355C3C02E947A2ADCC801234035DE373F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ Volor Flex - Sabo (2013) [MP3|320 кб/с]<Dubstep, UK Garage, Breakbeat, Downte
 ```bash
 magnet:?xt=urn:btih:A058DC25029729EA6E3C57DA82942C9274B9EF90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49BE4C2EADD17B74C39293B5357081BAF61D1F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ Aglare 3GP to AVI Converter - конвертер 3GP видео файлов в 
 ```bash
 magnet:?xt=urn:btih:23C4E17C88C64F8AF347909D4D299F0E81B32614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ Third Realm - Daydreams and Nightmares (2013) [MP3|320 kbps] <EBM, Darkwave, Ind
 ```bash
 magnet:?xt=urn:btih:6C488B15BB26EE90321B0D8926356A1966115B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6443237222810B42EB9C9583AB01C588801897E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC84361981D1C165E6BB40D298DCF95BC480D3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FB5A7CC9C1DAE39B5C0ABD9311B95BC76AAD023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ Angelica - Thrive (2013) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0027C92799DCCF740E4345C7E8B10C2259F800B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ VA - Радио Energy - NRJ HOT30 (30.11.2013) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F180C3F6499F2B3F6F5B02CA4830589B2B255240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ Discovery: Выжить вдвоем (Двойное Выживание) (Сез
 ```bash
 magnet:?xt=urn:btih:98BAF336AE7B350CEFBDF57F614C5F1560DA2F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ FreeFileSync 6.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FCCBD614F78D8CC76AD8EE3D56893415E554F0A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

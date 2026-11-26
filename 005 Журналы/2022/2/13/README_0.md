@@ -19,8 +19,7 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 ```bash
 magnet:?xt=urn:btih:E01CA12ECC09C8DF491B826487A3004CD121415E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

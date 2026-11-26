@@ -19,8 +19,7 @@ Cliff Empire - небольшая экономическая стратегия.
 ```bash
 magnet:?xt=urn:btih:3B7330378C41C90AAFEFC4B57E0B6A3C5B158FB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Merchant of the Skies – увлекательное приключение, п�
 ```bash
 magnet:?xt=urn:btih:E4A800DA60DE86F59E073C2F0F06156E8EAF75E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sovereign Syndicate (2024) [En] (1.0.25) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:299F4D8BF00F1F3683F47E8A05FF9DC6884011F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.0501) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A8D5E8B753AA4B63A0DB6FE0E4DDA48207DEFD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

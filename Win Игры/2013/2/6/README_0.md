@@ -19,8 +19,7 @@ Sideway: New York [Ru/En] (1.0u?) 2011 | Audioslave
 ```bash
 magnet:?xt=urn:btih:DDE449D4524332ECB2BD6C8086D308CDD4E44DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maestro 3: Music from the Void Collectors Edition / Маэстро 3: Музык
 ```bash
 magnet:?xt=urn:btih:ED4386E9B7C0E815E207B99C7CB8CFBE979395B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cargo: The Quest for Gravity / Эврика [Ru] (RePack/1.0u?) 2011 | Audioslav
 ```bash
 magnet:?xt=urn:btih:EFD76AE723F382DFE91866E1F31BE7FCDA91D738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Dungeon Lore - RPG с пошаговыми боями в фэнтезийном 
 ```bash
 magnet:?xt=urn:btih:80B0809BA7BC64A4110189301F2B0346C685981E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ The Elder Scrolls V: Skyrim - Dragonborn [En] (DLC/Steam-Rip|DL) 2013 | R.G. Ori
 ```bash
 magnet:?xt=urn:btih:4CF727D984612EE1C45F3E174FB59E677C74C6CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

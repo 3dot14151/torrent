@@ -19,8 +19,7 @@ Free Audiobooks v1.14.7 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:6864AC4D323847EC8F1D895EDF651E269558E527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

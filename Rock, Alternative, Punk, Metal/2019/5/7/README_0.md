@@ -22,8 +22,7 @@ Manowar - Into Glory Ride (1983) Imperial Edition MMXIX, 2019 [WV|lossless|image
 ```bash
 magnet:?xt=urn:btih:FC6B9DC498EE9BDED5AB08A9562E990841FC3932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EECEE047FBC2C9F3D3B0ECC8CDFF37C12A97048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Manowar - Hail To England (1984) Imperial Edition MMXIX, 2019 [WV|lossless|image
 ```bash
 magnet:?xt=urn:btih:120389A180A4FDB48AE8D751AFEB6BF43F1B7BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rosetta Stone - Seems Like Forever (2019) [FLAC|Lossless|tracks + .cue] <Goth Ro
 ```bash
 magnet:?xt=urn:btih:EA0E840A661683B6A2EF4165AD13F30FB31CACAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Manowar - The Final Battle I (2019) EP [WV|lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9C8E57552AB4022393C5FEDF9B2C003ACCE58026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mötley Crüe - американская глэм-метал группа, ос�
 ```bash
 magnet:?xt=urn:btih:BF305F6CAC9986C2A90F766490244DF9A608E3ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

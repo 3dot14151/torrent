@@ -22,8 +22,7 @@ Dew-Scented — метал-группа из немецкого города Б�
 ```bash
 magnet:?xt=urn:btih:DA4E6028878DF71FFA70447919DFEAFD2C049EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

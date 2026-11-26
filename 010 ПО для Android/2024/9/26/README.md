@@ -19,8 +19,7 @@ One Read / Все Документы Читатель - Офис v1.2.0 Mod by v
 ```bash
 magnet:?xt=urn:btih:1633D83FF5854F096D780A9A176A0793FF0365C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lighting calculations / Расчеты освещения v6.0.5 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:FFE57EB21A3F92F77EFC647B26FF2A8F60DF4E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:3C6E6499DA6C9652C8D988BA7EF1DD932BFA337D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

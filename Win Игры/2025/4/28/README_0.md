@@ -19,8 +19,7 @@ Tempest Rising (2025) [Ru/Multi] (1.1.1+43856/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:31171AE996C379BCCA2F5B775556C1E7FCC591F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Red Dead Redemption - компьютерная игра в жанре action-adv
 ```bash
 magnet:?xt=urn:btih:8A68F72E63A9E9E9B683B07627D5EC52D7B92EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tetris Forever посвящён сорокалетию не имеющей се�
 ```bash
 magnet:?xt=urn:btih:64610FDDBBCC2540DC869AE5610394B467869B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Deluxe Edition включает в себя дополнение Talisman of
 ```bash
 magnet:?xt=urn:btih:3540B0F604ADB430F4099E829A37735556474041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hero's Hour – это простая, но захватывающая и мас
 ```bash
 magnet:?xt=urn:btih:4162F161D37089FF5A40433B96D62E2D1715ECAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Night Slashers: Remake - это возрождение классическог�
 ```bash
 magnet:?xt=urn:btih:2E38B6A85228F59D24314E197F587DD11D227EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Steel Seed - захватывающая приключенческая экше�
 ```bash
 magnet:?xt=urn:btih:4D92275556D2BFEA4785BE64DFD61F3CAFF102D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SWORD ART ONLINE Fractured Daydream - это захватывающее ново
 ```bash
 magnet:?xt=urn:btih:D6927CF329475823970FD378B101D5471628C59B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Disciples: Освобождение - это история в жанре «тё
 ```bash
 magnet:?xt=urn:btih:1ECA885B3EBBB7444ABF7D016053B01CF44078E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:13CA7577791711B241B35E9588B4F8067DBC3066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Travelers Refrain (2025) [En] (04) License GOG
 ```bash
 magnet:?xt=urn:btih:2C574AAFEDB7A49B45505EA4D23EE6897A045198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Viking Frontiers (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E46DDFD2E7FB672F7729E57058CEA505A3635867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:D05264550C229B60FD64F90021F7C928A994A8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6A55A5E720566DAA086060EA8899E9672DD9A49A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.8) License GOG
 ```bash
 magnet:?xt=urn:btih:689844B8B920170FFDE18ADF3096645FD2E3DD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ The Last Man Survivor - мрачный roguelike, в котором вам пр�
 ```bash
 magnet:?xt=urn:btih:A3F1E977857A614C3F44A1D42E965AA7CC81DCFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 ```bash
 magnet:?xt=urn:btih:FA5CBFCA83F80CA010DA634420052507DADD00DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4A41C23D80721E1B7F2BE2FECA0154165729C8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 ```bash
 magnet:?xt=urn:btih:57FEDE632A4D7E338B572F7FD6E9AAA8D29FE72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (242) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3CD4018BB053CE322E7908C224FA8481674963F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack Wanter
 ```bash
 magnet:?xt=urn:btih:3DB2D5FFBC4F99D4D54FDD4F4A3D6F111D005A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6BEBC5DD26F0BE426F295433B9B5A949813AD14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

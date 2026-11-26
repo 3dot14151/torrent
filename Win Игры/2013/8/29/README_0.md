@@ -19,8 +19,7 @@ Jane Austen: Estate of Affairs (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:785C0B247382B5A3F32953501F191C0DF8279EAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sable Maze 2: Norwich Caves. Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:D7987444B401D91EFBDB18BAC26E0CD06C87345A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Teenage Mutant Ninja Turtles: Out of the Shadows переносит вас в т
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

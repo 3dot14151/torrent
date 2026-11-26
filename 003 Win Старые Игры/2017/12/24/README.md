@@ -19,8 +19,7 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3CCCDB66126AECE6A958AA9EE8E42566389640A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Black Moon Chronicles (1999) [En/Fr/Ge] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:15EE6ABC13790827FFFE42CF27D38B5F3576AED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

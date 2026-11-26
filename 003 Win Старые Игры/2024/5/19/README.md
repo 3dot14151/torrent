@@ -19,8 +19,7 @@ Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое 
 ```bash
 magnet:?xt=urn:btih:963B84716CD1AE808EC717A34BB7B8847397FF9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warcraft III - культовая компьютерная игра в жанр�
 ```bash
 magnet:?xt=urn:btih:EE39E3FE168B80637DE164B6859B840CBABBC496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

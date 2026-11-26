@@ -27,8 +27,7 @@ VA - Мама, я тебя люблю! (2008) [MP3|192 кб/с]<pop>
 ```bash
 magnet:?xt=urn:btih:0F2238078D7420263B0A6B79BA37C15659A397C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75957E4BE6D8A7D4DB91852D2AD7A77216DA0D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Process Lasso Pro - позволяет вручную или автоматич�
 ```bash
 magnet:?xt=urn:btih:23B6543B4722F0929D6F6956A58A454983E116FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8185A9E51DC70C0C59EE1A7F9B866252B037062A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Stephan Moccio - Color (2010) [MP3|320 кб/с]<Instrumental, Neoclassical, Pian
 ```bash
 magnet:?xt=urn:btih:C3FA5232638202C0C04DCD2F879EAC389E40D4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ FreeFileSync 5.21 (& Portable) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:56BE15B3EE4B44DC486F574F5086AFE69EEE2A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69EAF8CC020291195B6506EED98B1A873EC02A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A56955CB48E530C4D07BC10F704E9594847CC4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A00C80F38AB9E9D020BF2D2C99DA012A117A2C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Kailash Kokopelli - Phoenix (2004) [MP3|320 кб/с]<World Music, Ethnic, Native
 ```bash
 magnet:?xt=urn:btih:1E9542FC995A496A358F3D2C10DDC3C307A441B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC4C58494AD2A9837C014D80049FE3C661016FD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:E47B7E8D87D4A3AA9EFAF4B13C699665A493949A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Horslips - 4 albums (1975-1980) [MP3|320 кб/с]<Celtic rock, Progressive rock>
 ```bash
 magnet:?xt=urn:btih:620E7FCCE60BA302B0CE6BA7E79536A68153A987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ VA - Любимая волна. Мегахитовая осень (2013) [MP3|19
 ```bash
 magnet:?xt=urn:btih:1E0A43F4A8F5083B0254ABADE1B9C66002C4F99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +452,7 @@ VA - The Official UK Top 40 Singles Chart (01.09.2013) (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:0FEF82488CDBB90A660E663A3619706FBD3FC59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ Ashes Of Ares - Ashes Of Ares (ex Iced Earth, ex Nevermore) - (2013) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:B190A7F695E9D66F828A27BB371CAFD26D799EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ Black Spiders - This Savage Land (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7927CC40974DC24A9C51DD0BBAB3334A2EA489E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ Yes - Big Generator (1987) Japan, 1st Press [APE|Lossless]<Rock, Progressive Roc
 ```bash
 magnet:?xt=urn:btih:48E56DF5BE106534CCEAD52136635BD27E0C789D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +577,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:6DC326EC3342C74FAB8688D091982C1D410F06CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ VA - Популярный русский XXXL #42 (2013) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:B5D0B25723AA493B8408A9FFD02E9D2F96A29AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ VA - Сливки радиоэфиров. Осенний выпуск (2013) [MP
 ```bash
 magnet:?xt=urn:btih:140451CCBD6880A9AB4F55AF75DAAAACFF0DDEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AD9F690A73D026A568BFF02BE8AD3224915EBB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:0DBC4CB1C6E2371DC08843946B6957E57BD0481C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ NirLauncher Package - это пакет из 173 небольших утилит
 ```bash
 magnet:?xt=urn:btih:0FA8E6D54A61704ADAEB349741AB3BC3E27BBC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18B35AEC4DAE71235EF3074969EA384D50850048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

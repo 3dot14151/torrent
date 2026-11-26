@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ED877157AC7F8E661FA0608F714A60D2F83C642B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SQL был разработан как язык для создания, выб�
 ```bash
 magnet:?xt=urn:btih:9C2D6A023DD29163AFDA72B2F54ADE90043628DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

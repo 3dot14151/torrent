@@ -20,8 +20,7 @@ Donald Knuth и др. | Concrete Mathematics: A Foundation for Computer Science 
 ```bash
 magnet:?xt=urn:btih:56A275C3CD8E46DB74DB79BC1325E98491D87922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

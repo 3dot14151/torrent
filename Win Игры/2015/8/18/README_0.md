@@ -19,8 +19,7 @@ The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) Repack R.
 ```bash
 magnet:?xt=urn:btih:FD90F5F2AC34BD6195C2F8E663AAD2CE04B23810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Apress представляет учебное пособие по разраб�
 ```bash
 magnet:?xt=urn:btih:76E2744BC177F759101935F2D160E7F67B1A73FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

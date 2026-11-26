@@ -19,8 +19,7 @@ Dark Tales 15: Edgar Allan Poe's. Speaking with the Dead / Тёмные исто
 ```bash
 magnet:?xt=urn:btih:ABE97328B1E7CFD624EE241021B2F2E708A191E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Irony Curtain: From Matryoshka with Love (2019) [Multi] (1.0.5) License GOG [Rev
 ```bash
 magnet:?xt=urn:btih:44637285130C58F7A3B1D1CDEC637EC36EAC0160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

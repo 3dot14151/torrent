@@ -19,8 +19,7 @@ Grim Tales 15: The Hunger / Страшные сказки 15: Голод (2018) 
 ```bash
 magnet:?xt=urn:btih:78F6609F74D91607D80156D51FD532874A5BC811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ My Brother Rabbit (2018) [Ru/Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:BD36CC377E5694B9ECA4A3A4BB49974D9863C1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ STALINGRAD ABATIS (2018) [Ru/En/De] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C10F47DA85FC4725C4D55A3A26D55D59A28762C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

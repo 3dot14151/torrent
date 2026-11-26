@@ -19,8 +19,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd1) Repack xatab
 ```bash
 magnet:?xt=urn:btih:1C3943F0015930810B1C3913B7E522751AE1FBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

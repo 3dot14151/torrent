@@ -20,8 +20,7 @@ O.C. Zienkiewicz, L.R. Taylor | The Finite Element Method [3 книги] (2000) 
 ```bash
 magnet:?xt=urn:btih:4072A17BDE4ED371E38B783FB67F9E8720364C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D252500E59FD3FDD05CF48C5EE771302F77C7D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D5CCF801A50BBD7BFFB7DCC9BF9B81C4FEA709B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

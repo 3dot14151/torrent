@@ -28,8 +28,7 @@ Suidakra - Book Of Dowth (2011) [MP3|320 kbps]<Melodic Death Metal/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:4BB3CBC76C7401D609CB864A8D41A3A79622FDBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Nim Vind - The Stillness Illness (2009) [MP3|192-320 kbps]<Horror Punk/Punk Rock
 ```bash
 magnet:?xt=urn:btih:319B65C0C69C55FCC22B45CEABC6A826AB066ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Myrath - Desert Call (2010) [MP3|320 kbps]<Progressive metal\Oriental metal>
 ```bash
 magnet:?xt=urn:btih:EA993425D060185AC5404F2515F353B4777A368F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Vintersorg - Jordpuls (2011) [FLAC|Lossless]<Progressive/Viking/Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Rhapsody Of Fire - The Cold Embrace Of Fear - A Dark Romantic Symphony (2010) [M
 ```bash
 magnet:?xt=urn:btih:B961709D8D273A0EF6728588435189D5BF7A9689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ The Very Best Of MTV Unplugged 1
 ```bash
 magnet:?xt=urn:btih:2C33775FF7D7A07CD1B67B0391C1F35C380C05B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CE89149E9C89105BD512BF0561F315FA1B9E374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:3F62EF7011E4511EEE06F61B48CDFBDF444C4CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:47A7E4CD36F6A65A0C120FA11F0A49F6AB615F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

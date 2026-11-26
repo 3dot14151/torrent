@@ -19,8 +19,7 @@ The Fantastic Kitty Rue - это приключенческая игра в фо
 ```bash
 magnet:?xt=urn:btih:FF7043237A9B2A236841F4671A2A453A1DC06F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Flashout 3 предлагает вам сверхскоростной транс
 ```bash
 magnet:?xt=urn:btih:9912F5BA4FFA081D07553D6AD5B6943836C436B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Doom 3 BFG Edition - это переиздание Doom 3. Жанр и смыс�
 ```bash
 magnet:?xt=urn:btih:E045EABC6BD7887AB871FFC981D02B703B152A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

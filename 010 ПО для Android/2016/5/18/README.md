@@ -19,8 +19,7 @@ BrainBurn Тренировка Памяти v0.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BCA197CB0D3391127F2D8742F13E2294A5C94C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

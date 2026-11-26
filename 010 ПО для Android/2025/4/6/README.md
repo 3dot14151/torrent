@@ -20,8 +20,7 @@ Bananastreet: Deep House & EDM v4.1.61 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:04C104E04346430EAB8A10EC7964C1A897CF506A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:87ADD067A465AB9B4E2E2C5AAC11C93222E986B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ InColor: Coloring & Drawing v6.5.4 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3FD437CAF641765CE12B8FD4D23DD7C1529EF5EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

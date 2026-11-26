@@ -26,8 +26,7 @@ Google Chrome OS —  операционная система компании G
 ```bash
 magnet:?xt=urn:btih:5E411D819AE66598A5C66F555B5E2D40968DF0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

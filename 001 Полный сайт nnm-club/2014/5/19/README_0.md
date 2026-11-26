@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:403D5512ECF011127FB61A3AB94A2F4BB19A5A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Alto Saxophone, Tenor Saxophone, Flute, FluteЖанр: Jazz Rock, Contemporary J
 ```bash
 magnet:?xt=urn:btih:3993BEC4F1C5350171D3519B80B8B0D88ED0A8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Spa & Wellness Background Music (2014) [MP3|320 кб/с]<Ambiant, Chillout,
 ```bash
 magnet:?xt=urn:btih:68F17F2442D6E8E9187B208945103364D47B77C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:EB9824796238DADC986811FAC8A6DE6EF0021B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BEE8E45F6EA8B383C9BFFF963035E63C7BD08EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Automatic Fine Tuning - A.F.T. (1976) Reissue /2005, Lake Eerie Records/ [FLAC|L
 ```bash
 magnet:?xt=urn:btih:69D440A22F49DD73EE5D42F277E01DE6A3AB969F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Trickster – удобный доступ к недавним файлам.
 ```bash
 magnet:?xt=urn:btih:20933D3838E785F5A5EA30B583DE19DCCDECED70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Michael Sweet (ex. Stryper) - I'm Not Your Suicide (2014) [MP3|320 кб/с]<Hard
 ```bash
 magnet:?xt=urn:btih:1FD334D178D0E758A8EBFF6A3B2909DEDE1AF5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ Jan Akkerman - Minor Details (2011) [FLAC|Lossless]<Progressive rock, Jazz fusio
 ```bash
 magnet:?xt=urn:btih:B270FB7C77FFCCC3EEB993EDD06D21C39F144305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C55AA1F12E96380F8F38344C56FD916A8E3362D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ Hardwell feat. Matthew Koma - Dare You (incl. Remixes) (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:37F20A57A7FC60F3F72CC0A7E3E1EAF1F2502EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +343,7 @@ The National - Live At The House (2014) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:AB9FAC3BE9A5797FEDFC5E0AE593A23C6C39ACD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B60DE52C3C7CE9C4CF078E7F922522C756F6A2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F8A2A17A4D42E7A923EC65FB73B681106F615A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ VA - The Official UK Top 40 Singles Chart (18-05-2014) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:F362C64EFA3B5F87AA96C5714E5091B16E928EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6143DCC6957B809EFF8FC44F7691D6F5F0105142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB47EC758AD4E39502909DE623BE8A9290C4FCF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +507,7 @@ Alice in Chains - Black Gives Way to Blue (2009) [MP3|320 кб/с]< Alternative 
 ```bash
 magnet:?xt=urn:btih:63512A66B0CEE8F7724FF8BDB33A291D39E74C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +532,7 @@ Whispered Legends: Tales of Middleport (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:411DED8C215B460E79A7336B76699459D4929D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ VA - Armin Van Buuren: Boundaries  Of Imagination (2014) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:1D484E6A631B09DB82901A43660080DEE380BBE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +591,7 @@ WinContig - это простая в использовании автономн
 ```bash
 magnet:?xt=urn:btih:4E0CE6CE17CF7B07CECE3AF2EF7EE14C2B9FD832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ Database .NET - это инновационная, мощная и интуит�
 ```bash
 magnet:?xt=urn:btih:82256EA51557ACC85860B888C422CC338BA0896D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFF046C0E7B222312FC5DE55D9D7BB9A304C3B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14FD011A8C9F5E857FE628E63C435622CCBC577E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ RaidCall - бесплатная программа для голосового �
 ```bash
 magnet:?xt=urn:btih:0467A5E112FEBEFF57FFFC40A44E68E71C3984C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E607B77D6C420697A3423CCC0598A8206527CF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

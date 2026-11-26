@@ -19,8 +19,7 @@ Unbound: Worlds Apart (2021) [Ru/Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:2D5C178FF01551A03A87BF50396165B737D5E179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Farming Simulator 15 - это открытый мир и улучшенная г
 ```bash
 magnet:?xt=urn:btih:DE5EF5C3D7606D849C0F95EA2A0316AF7A222E69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

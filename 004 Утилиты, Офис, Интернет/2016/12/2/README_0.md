@@ -19,8 +19,7 @@ ActivInspire – это основа учебной деятельности XXI
 ```bash
 magnet:?xt=urn:btih:B9BEB3A1315B056E1A9E11B98171D1066F5D6C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SoftMaker FlexiPDF 2017 Pro 1.01 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B7917BF5FDC42B09B99FBA73236FA6158280E734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

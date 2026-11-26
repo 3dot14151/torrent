@@ -23,8 +23,7 @@ Ecnephias - Ecnephias (2015) [MP3|320 кб/с]<Death Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:931BFDD5A59EF32FAF0440ADD11BF4C378389D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Furor Gallico - Songs From The Earth (2015) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:851DEDD83AA189C2572AFDD2B10EE57FADB1435A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Manic Depression - Technocracy (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:3193AF28F741333CB88E7AE2300F9BF4228FD289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Manic Depression - Technocracy (2015) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:AC6BE532A5B030075B92EC8AF7B44F8638E40D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Aeon Spoke - Aeon Spoke (2007) [MP3|320 кб/с]<Alternative/ Indie Rock>
 ```bash
 magnet:?xt=urn:btih:81C659A2BA413846213A4157643CF049D51BE61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ My Sad Captains - Best Of Times (2014) [MP3|320 кб/с]<Alternative/ Indie/ Fol
 ```bash
 magnet:?xt=urn:btih:FA7C4608B476B81BB5A12EC89961D62A4F5B541F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Calabrese - Lust for Sacrilege (2015) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:DAA2E66DD030FAE1A0FD9030036D8AFA7FF3A784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Bombay Black - Walk Of Shame (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1F64BDB68C9698ACA1579EBFD8037EDC8194AE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DCE92378DCE8CD15CF5E3E1098AD59E57F43B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Bronwynne Brent - Stardust (2014) [FLAC|Lossless]<Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:A976C85CC8BD8703E49345C3C6220AA274F11D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ Robert Plant - Fate Of Nations (1993) [FLAC|Lossless]<Acoustic, Rock>
 ```bash
 magnet:?xt=urn:btih:E6163CB4223E5DA0F9AF58A50BD5146733AEC60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ Aerosmith - Up In Smoke (2015) 2CD [MP3|320 кб/с]<Rock, Rock'n'Roll,Glam Rock
 ```bash
 magnet:?xt=urn:btih:E6344B19F49EBC33BC49D595CEE2AD3B8A6EC511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

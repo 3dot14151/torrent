@@ -22,8 +22,7 @@ GymRun 10.0.1 Premium Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4BFA4D7280A31DE8243613CE25AD8F3C2EBA47CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF396A51560C7B4BCFCA584DD09E51C97D91F915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AE9025F8428225A639F90EDBC27E308FE21C45F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Prisma — приложение, которое превратит любую, �
 ```bash
 magnet:?xt=urn:btih:0AC9A3DB5F53416F3511BAD69175F2F5C879F07B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

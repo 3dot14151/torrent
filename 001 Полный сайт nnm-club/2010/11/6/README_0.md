@@ -27,8 +27,7 @@ Bhakti Music - Mantras In Harmony (2007) [MP3|320 kbps]<New age, Meditative, Man
 ```bash
 magnet:?xt=urn:btih:795545205C4BEBEB9CFCDE9D8500FC0DDED331A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Albinoni, Tomaso - 12 Balletti a tre Op.3 (Ensemble Bendetto Marcello) (2006) [A
 ```bash
 magnet:?xt=urn:btih:2F9CEC91D62E5E560CA4F742AAE600D05F953D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Real Comedy / Комеди Клаб / Comedy Club / Выпуск №11 (06.11.20
 ```bash
 magnet:?xt=urn:btih:78D27A0BC2939DFD22BCEF61B426A9D82021083E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:163499491CC5D5526C7907EAECAFA2146935B891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Suzanne Vega - Close-Up, Vol.2, People And Places (2010) [FLAC|Lossless]<Pop Roc
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ VA - City Sound Berlin (2010) [MP3|320 kbps]<Tech House, Vocal House, Deep House
 ```bash
 magnet:?xt=urn:btih:CA2122FB18347A77FCA795D34BED44F8A1BECDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Flying Lotus - Cosmogramma (2010) [FLAC|Lossless]<Abstract, Future Jazz, IDM, Hi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ Armin van Buuren - A State of Trance 481 (04.11.2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:41B72EBE65A49BC4BA2467F01AD0DA81C861CBBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8063EEA9185FB4AE6136F23DEE48E2A2F2764F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Christina Milian - So Amazin' (2006) [MP3|320 kbps]<R&B>
 ```bash
 magnet:?xt=urn:btih:2FAD096510007B20529FACDF4BD532C2688B8D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +306,7 @@ VA - Клубные новинки осени-15 (2010) [MP3|320 kbps]<Dance,Hou
 ```bash
 magnet:?xt=urn:btih:664A6827ABCCCE02CED6622B49AE7EE1CE01DF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Michel Petrucciani - So What  [Best Of] (2004) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6542AFFDA9B757265CF8D0B8F8F4E67CE017B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77AFE2CB83080BA18173824E0B1B3C405E09168F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ Falco GIF Animator хорошо подходит, как для личного, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D210EEF0FBE77B8C2A0BB954F4464645D95C0594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE6521653DDECC18B5C3F7E1D3D36FF19E4CC688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F468781480FF738EA8DF3076CF25D76254859228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:353C9D0C89F5CD701686E8B328B5318B2A0909DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74F795A42B485B6B67E9BFDB349DCFB16DDAAD6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEF4B342947D5066B99D5C9190C5F21B66CA8E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ NG: Самый сильный яд в мире / World's Worst Venom (2007) HDTV
 ```bash
 magnet:?xt=urn:btih:0F6B1B2F7CA0BF45875E80FE73E874B9BE59CBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Scribus – бесплатная издательская программа с 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ Albinoni, Tomaso - 12 Concerti Op.10 (I Solisti Veneti) (1981) (2CD) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:6EEB75757BB18938FE6E9FAA2A334DEBDE49B721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A590A3453E9B7B3E5531844C59BA93BBAADF384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ VA - Exclusive R'n'B music from DjmcBiT vol.2 (2010) [MP3|320 kbps]<R'n'B, Rap>
 ```bash
 magnet:?xt=urn:btih:3B6DE0F0107BB3EA748164184176BA4F13B61971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

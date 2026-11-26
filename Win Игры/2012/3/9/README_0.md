@@ -19,8 +19,7 @@ Driver: San Francisco / Driver: Сан-Франциско [Ru/En] (RePack/1.04.1
 ```bash
 magnet:?xt=urn:btih:2795FFDCB7F141F09250FE428D051B486A9CF7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Stormrise [Ru] (Lossless Repack) 2009 | RG Packers
 ```bash
 magnet:?xt=urn:btih:53511FC698FBE42D0E107BFA60AB857BF5210616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Major League Baseball 2K12 – новая игра в серии симулят�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Katty and Bob: Tropical Rush / Кэти и Боб. Вперед домой (P) [
 ```bash
 magnet:?xt=urn:btih:E41CA8FBA400B50864F8E2DFD2C825A2FAAE2EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Escape from Thunder Island / Побег с Грозового острова  (P
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

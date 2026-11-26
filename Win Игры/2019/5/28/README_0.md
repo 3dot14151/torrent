@@ -19,8 +19,7 @@ Plane Mechanic Simulator ставит вас в роли техника назе
 ```bash
 magnet:?xt=urn:btih:C811A3EDF60D3BEFB0249D94896D5F45CCFC5C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Veladelyra - Золото погибших кораблей (2020) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:B2E2F948E74D4F8248B83B70857DF8C5477B6FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Otto Dix - Автократор (2020) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, 
 ```bash
 magnet:?xt=urn:btih:7D8EE7ABF57933CA9C4006869ADF31B8D37BF3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

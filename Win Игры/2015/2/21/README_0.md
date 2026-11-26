@@ -19,8 +19,7 @@ Riddles of the Past (2015) Unofficial
 ```bash
 magnet:?xt=urn:btih:7527C0310C65E4522E0B6E6454C72B0708A369B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Collapse: Ярость / Collapse: The Rage (2010) [Ru] (1.0) | RePack от ivan
 ```bash
 magnet:?xt=urn:btih:BC3864E8DBAB2521A5E48313409C4D7AD5A69C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

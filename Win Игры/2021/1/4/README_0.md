@@ -19,8 +19,7 @@ Detectives United 4: Phantoms of the Past (2020) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:C2A12097B5CEF806255B4C9094B3B75DF8DF26D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DARQ – игра про мальчика по имени Ллойд, котор
 ```bash
 magnet:?xt=urn:btih:246C3BB1A7B3D576110FC305D72CE7C5BA75B268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hidden Expedition 20: Reign of Flames / Секретная экспедиция 
 ```bash
 magnet:?xt=urn:btih:6EC7882E517103CDBBC44668822979528CF112B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

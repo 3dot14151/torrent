@@ -22,8 +22,7 @@ AC/DC - Are You Ready? (The Very Best Of) (2016) 2CD [MP3|320 Kbps] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:31C664FD89EEBA41B670A8E5C6006A8EFBE7593C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

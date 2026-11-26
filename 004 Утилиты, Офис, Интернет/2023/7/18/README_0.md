@@ -19,8 +19,7 @@ fx-Calc 4.9.4.0 [En]
 ```bash
 magnet:?xt=urn:btih:8C643AD617D40B7B85DA8E4DAD370C3C15D81D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ashampoo Burning Studio FREE – это быстрый и удобный спо�
 ```bash
 magnet:?xt=urn:btih:4C152C5BC2A0F6EF35C9E0BB67A3E3AB6AA55793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

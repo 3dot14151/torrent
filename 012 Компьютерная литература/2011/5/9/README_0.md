@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:5769CD56A0D3F6E6B893D13AC5B6F29B19D829F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FB9BFA8C8EC8CC4E8A0431F2C61863482EC458E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:021A23ABE96C6C2A88625E386DCB4D416421756B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Free_k | 2011 [Сайт за неделю с Adobe Dreamweaver] [CHM]
 ```bash
 magnet:?xt=urn:btih:24FCFB310F2F83AF3B1AB6B971D7E4099DDB4978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

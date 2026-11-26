@@ -19,8 +19,7 @@ Dark Parables 15: The Match Girls Lost Paradise / Темные Притчи 15: 
 ```bash
 magnet:?xt=urn:btih:7A3E36B22FE0D74070608D1597C10E0BF9A53EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Catherine Classic (2019) [Multi] (1.0.1151) License CODEX
 ```bash
 magnet:?xt=urn:btih:86E62204E76EFC58F9ECCD5E65F32139C0FACB91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

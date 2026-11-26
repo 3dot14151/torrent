@@ -19,8 +19,7 @@ Maestro 3: Music from the Void Collectors Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:ACBF222AAF79DC05B5B9E0510C3F6295CF746E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Lore Mysteries: The Hunt For Truth [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:815AEBCAE087221102857725E3890EA54CFC4937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mountain Trap: The Manor of Memories [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:50C208A72B61D69EAF0EA8A417687604A9B76135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Otherworld 2: Omens of Summer Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:B77B80E4269CC48517D2B193E8269BD04EA6D54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Matchmaker 2 / Сваха 2. Проклятие брошенной невест�
 ```bash
 magnet:?xt=urn:btih:428CAD60AEFEEA5817ECD569967AB055A992FCA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Surface 3: The Soaring City Collector's Edition / Над водой 3: Паря�
 ```bash
 magnet:?xt=urn:btih:7121DE06DA741BF5E94FD27FD4EEA1955863A2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

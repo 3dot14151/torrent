@@ -20,8 +20,7 @@ O&O Defrag Professional – инструмент дефрагментации д
 ```bash
 magnet:?xt=urn:btih:D8B9B4FB99CD3F9776EC4F968EE19A930FF38164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:75A600074DE5F1638CA1EDEBF511E11C5A4148F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28A01D17D279AA9355039954030EEBFEA4FF6FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ MiniBin — это легковесная, но мощная утилита дл
 ```bash
 magnet:?xt=urn:btih:9718130CD4C23C3C2035BFE2E5F0BA71A5214272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ MiniBinKT - это утилита для очистки корзины в опе
 ```bash
 magnet:?xt=urn:btih:313124E4B98C4120F1AFB9DB6FBA2680F3C67E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:539A228AD8C97D2834C18CB10D73A6BDA95D16A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Yandex DocViewer to PDF — это мощный и удобный инструм
 ```bash
 magnet:?xt=urn:btih:EB96634414E67714FA6C07EE48E8A62EEA4EAC37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Wise Disk Cleaner 11.3.6.856 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:30F9EA70BE2F5FD038E41FC3B353E3E5CE98BD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:46A015B9159E936FA8FF0F793AF980E228FB18ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ PrivaZer – полезная утилита, которая поможет ва
 ```bash
 magnet:?xt=urn:btih:95C40BE91F8B0E71EE5206911A78A71AD372C3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:40723698E89EF553989E0D10712DD99F2C06BE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Opera One 133.0.5932.10 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1CF0152A765F269B612D2D0530FC821F962FEFB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:629FB85778C38FE11BC490BE21ABBE8A1AFC1882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +347,7 @@ EMCO UnLock IT - бесплатная утилита для разблокиро
 ```bash
 magnet:?xt=urn:btih:65E1C629ABC6FDB0D9FE796B75757596085DDB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

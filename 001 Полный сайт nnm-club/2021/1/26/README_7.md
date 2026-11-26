@@ -18,8 +18,7 @@ desktopCinema позволяет воспроизводить видео фай�
 ```bash
 magnet:?xt=urn:btih:2227F417A46414AFB7029E48C155FD03B0C1CA21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HideAway предоставляет лучший способ скрыть ва�
 ```bash
 magnet:?xt=urn:btih:7947B2E00AAF0AFCF769F166BC60A704E299D3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ScreenLog 2.30 [En]
 ```bash
 magnet:?xt=urn:btih:4FD57A8ECAF0A6A6C7F5ED5E934414E1BD5371BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ view 2.02 [En]
 ```bash
 magnet:?xt=urn:btih:F6823AAAAA707115FF6354A140BDA88E52A743D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ CVS 2.20 [En]
 ```bash
 magnet:?xt=urn:btih:607C45B8CAC3D027F9C216AF62E689B09698E9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

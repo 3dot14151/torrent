@@ -19,8 +19,7 @@ Spirit Legends 2: Solar Eclipse / Легенды о духах 2. Солнечн
 ```bash
 magnet:?xt=urn:btih:AACE1A7D067E0D34F93E3C0DFC5505D47E816215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F4416DDD3EB836C3B936894D18E7059EF78C2B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

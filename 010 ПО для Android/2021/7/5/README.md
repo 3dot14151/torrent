@@ -20,8 +20,7 @@ Body Language: Psychology behind everyday gestures v4.2.8 [En]
 ```bash
 magnet:?xt=urn:btih:FE3FF80FF5646D8435508E3A9CBBA8CC916FACC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Wannalisn также является лучшим приложением для
 ```bash
 magnet:?xt=urn:btih:CF18E1ABD5EC0B32750A31E03CB82665F769E261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ GPS Camera with latitude and longitude v1.9.6 [En]
 ```bash
 magnet:?xt=urn:btih:DFEB64C523B81B3268E233BB7C4815C3B94EAC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Document Viewer v3.3 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:AD79326A129670C2D66F8EC4D7EBAB23ADE2803D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

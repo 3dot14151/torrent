@@ -19,8 +19,7 @@ HaYehudim - 6 альбомов (1995 - 2007) [MP3|192 кб/с]<рок>
 ```bash
 magnet:?xt=urn:btih:3F01C871B15877F799CA4C445D3874FF45B0F535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCA25423A07FE78611A73DA629B49B5F2420D4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Fuel From Hell - Fill You Up With Five Star Gasoline (2006) [MP3|320 кб/с]<Ha
 ```bash
 magnet:?xt=urn:btih:B966A7BFD4E89F4EFFA23993C46AD85D1D21EB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Jordan Rudess - 14 Albums (1988 - 2009) [MP3|128-320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:36E7D8FD86F4678EDB42558DBA1E118C76062ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Shadows Fall - Fire From The Sky (2012) [MP3|320 кб/с]<Metalcore / Thrash Met
 ```bash
 magnet:?xt=urn:btih:F2809BF5C5624D847AE67EF65E9FDB17B3C5A50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D92E0ADAEBEE5700044C8AC61F5C4D3B3754B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

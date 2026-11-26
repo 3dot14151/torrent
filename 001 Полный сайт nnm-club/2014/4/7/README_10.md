@@ -19,8 +19,7 @@ HyperSnap - это инструмент для захвата изображен
 ```bash
 magnet:?xt=urn:btih:4BACFB33C3276446750B3B9EB0CEB213C8F25744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HyperSnap - это инструмент для захвата изображен
 ```bash
 magnet:?xt=urn:btih:BB4C056E1DA3EAC65B3353B8E5D42650A5F6D92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Goldwine - Dark Basement EP (2014) [MP3|320 кб/с]<Dark, Industrial, Techno>
 ```bash
 magnet:?xt=urn:btih:CDD7C32FAD14B5D3285A679FB85D1CDA142557FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Lanny Morgan - The Lanny Morgan Quartet (1993) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:5084AB90B35AD4FD3FE504F88C3800204E2E0602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3725E3C0E7CDC2469E7A2F3CC8DB0F760FF053D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ N/AЖанр: Deep Melodic TechnoПродолжительность: 01:02:39
 ```bash
 magnet:?xt=urn:btih:4EF9DA06FD49310590F4E15B832BD7D6FDE66127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ N\A
 ```bash
 magnet:?xt=urn:btih:9E6B3E9625A376E897FE3C02D83C8F96D6121165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Lang Thierry - Nan (1999) [FLAC|Lossless]<Chamber Jazz>
 ```bash
 magnet:?xt=urn:btih:C597EF13FCA9C254AAF541DF5BA140BC5086DE36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ Landes Jugend Jazz Orchester Hessen - Magic Morning (1993) [FLAC|Lossless]<Big B
 ```bash
 magnet:?xt=urn:btih:525364AE5FCC267268A8FB391FB021C571B208B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6F523C8C709606F35B110EB7AC361AA8D33992E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ La Pompe - Rue de Thoiry (2007) [FLAC|Lossless|WEB-DL]<Jazz, Swing, Gypsy>
 ```bash
 magnet:?xt=urn:btih:9C83DCC55CF0620D1EC0D0E2E86A282D13310574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ VA - Florian Meindl presents: Paris-Berlin (2014) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:B691A2F911B59784EC443741F6E9E0EA50C6B2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A765BD198698C9364F57168F5D94D8F40F3E5D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +418,7 @@ Alic - Close Distance (2014) [MP3|320 кб/с]<Techno, Acid, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:038424624E8B9C746039A25DAB891B55DD9E2120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ Flowertz - Avocado (2014) [MP3|320 кб/с]<Psy Chill>
 ```bash
 magnet:?xt=urn:btih:B2F293AABD3BFF49A7556A66833063A997FBC61D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3BBAF5968670678433C652696A3565155725935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ VA - Miami Chillout Essentials (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:4C303EE3E91F295E5810728822DAC98B3579E926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ Ben Webster - And Associates (2000) [FLAC|Lossless]<Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:3E2402955672CBA87CB9C40E3D364ADC1406B0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD4DFE9D057602291F20E83F3257AE22833E417D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80A79761225CA09C56FD6E0DE89D642F4DEDFAB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ The Charlie Daniels Band - Off The Grid: Doin' It Dylan (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:2E74758A0195269A1D671A05ACD1A6C63DDD9DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F9030240435855A4E2A0D31FD877375E8350E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C74940C55243139D73D5012A96C8C8627154C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ Darryl Murrill - Love, God, & Sax (2014) [MP3|320 кб/с]<Sax, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:99C61A02F60C37E2659F5794B503DADA39C28993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +737,7 @@ Melodiesinfonie - Friede Freude (2014) [MP3|320 кб/с]<Hip-hop, Rap, Beats>
 ```bash
 magnet:?xt=urn:btih:7B44BCF72BD656C58C0D0FC5A48AACC5B83BA83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -787,8 +762,7 @@ Windows Hotfix Downloader - небольшая бесплатная утилит
 ```bash
 magnet:?xt=urn:btih:06DB302BFD4D15653BDA38FBDA0B548F8992DFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

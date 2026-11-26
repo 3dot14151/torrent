@@ -26,8 +26,7 @@ Halgadom - Halgadom (1999) [APE|Lossless]<Wotan Folk Metal>
 ```bash
 magnet:?xt=urn:btih:B9E139C2A5EB194EABEBC9F307F307FE8F73BDD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Hagal - Karg (1999) [APE|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:273FD01971E1EC81D6C0F87AA444BA398E4D1371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Hades - If At First You Don't Succeed (1988) [FLAC|Lossless]<Power Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A0ED0BCB757FF04424D52928048CD815945110A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Hail Of Bullets - On Divine Winds (2010) [APE|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:85ABC0618F6A9887A6F353ADE99F0099A8A36ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Hacksaw To The Throat - Tear My Eyes Out (2005) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:06B51334232FAE6B33B83A4039A4BF4D7A193A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Hades - Live On Location (1991) [FLAC|Lossless]<Power Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:38D6CBF5B5042DEB2BF7FBFF1A65E9FD3A549DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Widescreen Mode - Until the End (2007) [FLAC|Lossless]<Heavy Metal / Gothic Meta
 ```bash
 magnet:?xt=urn:btih:790F3034EB9CF05C9F2FFDC62FAF43AFF373C4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Hades - The Downside (2000) [FLAC|Lossless]<Power Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5A721B126C38B8B23A10558A251BEE2E569F7B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Gallhammer - The Dawn Of... (2007) [APE|Lossless]<Black Metal / Doom Metal / Cru
 ```bash
 magnet:?xt=urn:btih:D268F38EAE706A7CDACFEBF5B921D0C7AAC98364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Hades - Exist To Resis (1995) [FLAC|Lossless]<Power Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:11EFFC4AED4235CA8560DC0FDA0F65EFC4E52494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Hades - The Dawn Of The Dying Sun (1996) [APE|Lossless]<Viking Metal / Black Met
 ```bash
 magnet:?xt=urn:btih:C8B08A8F6B5C45B205E004B5205743AAABA63408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ John Deen and The Trakk - Beat 69 (1969) [MP3|192 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:2D4A99CC816AA267AE382E0F21F76967094EB790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ Taranis - Kingdom (2012) [MP3|320 кб/с]<Epic/Folk/Black Metal>
 ```bash
 magnet:?xt=urn:btih:CD147CEE0C34B3659E741CA6FA260B8AA5756F51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +455,7 @@ AUM - Resurrection (1969) [MP3|320 кб/с]<Psychedelic, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:AD00BDD037E6BAB5E5EB72649A1ED3B04C15F8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +489,7 @@ Armory - Empyrean Realms (2014) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:7A280226CABE848802FF2BE8EF845054CAC35346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +523,7 @@ Mogul Thrash - Mogul Thrash (1971) Unofficial Release /2011, Flawed Gems/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:794D7371315E269CDC1C99984503F5FCD4F822BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +556,7 @@ Adagio - Dominate (2006) Japan [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:65F6F7768B7820E7BC38F3AAAC38AF39237340AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +587,7 @@ VA - Celebrating Jon Lord (Tribute) The Composer & The Rock Legend (2014) Japan 
 ```bash
 magnet:?xt=urn:btih:6E798DA92DBD365F64C41C36CCBD5FCDE23AC4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +621,7 @@ Kiss - Smashes, Thrashes & Hits (1988) Japan [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D55770EDAF381F4ACE1432F44748214C722D4C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +655,7 @@ Ozzy Osbourne - Memoirs Of A Madman (2014) Japan [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7045E7FB2377B4B153CEF6BE86F702745339613B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

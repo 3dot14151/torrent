@@ -19,8 +19,7 @@ X-Blades подарит фанатам аниме оригинальное пр�
 ```bash
 magnet:?xt=urn:btih:C35C01FA1B475F082B50E0376386E7608AAF17DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Atomicrops (2020) [Ru/Multi] (1.6.1f1-g/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6E6A8670B9DB27C3E25B6999933E7F7C678929FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

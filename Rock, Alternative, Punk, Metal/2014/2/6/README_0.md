@@ -28,8 +28,7 @@ The Mighty Wraith - The Awakening (2014) [MP3|320 кб/с]<Heavy Metal, Power Me
 ```bash
 magnet:?xt=urn:btih:110975D806775FE44012B5F0F1B9CF9EF3E6664E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Devilish Distance - Deathtruction (2010) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:E86165ACE4049A3284DA6F7DBC00FD1205990C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Tides of Man - Young and Courageous (2014) [FLAC|Lossless]<Post-Rock, Progressiv
 ```bash
 magnet:?xt=urn:btih:EE3ED68765EE95C46B2C242C151765847008923E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Armored Saint - Nod To The Old School (2001) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E0E4E3ACB87ADDEC28594D574DAF06C5DEC29BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Buddy Holly - Gold (1993) [APE|Lossless]<Rock & Roll>
 ```bash
 magnet:?xt=urn:btih:A6489F86A8DC7497EA846EDA221711709307BE61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EBCD0E44DAC62D976AA864875D08E0312AA0272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Acerus - The Unreachable Salvation (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0004783C3C6F71F446A178910517EA2F7B910E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:305774A02CD8598D3C38624510FC0F20C972E263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Elysion - Someplace Better (2014) [FLAC|Lossless]<Gothic Metal/Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:5084BC69AED559BE79D37D3C61F0F17F21A8B92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

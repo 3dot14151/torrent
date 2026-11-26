@@ -19,8 +19,7 @@ Search tool - Утилита для поиска подключенных ip к�
 ```bash
 magnet:?xt=urn:btih:8D6CA438C4C23C5912294259FB0170AFFB15FBE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WirelessKeyView восстанавливает все ключи беспров�
 ```bash
 magnet:?xt=urn:btih:D64AB51BD4553145D6C957B1417EE1DED4B7D24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

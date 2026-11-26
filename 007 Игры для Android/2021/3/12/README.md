@@ -19,8 +19,7 @@ Starman – занимательная головоломка на андрои�
 ```bash
 magnet:?xt=urn:btih:F37628DC3110BB056870D28BC2FAF96617FC20EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Scythe: Digital Edition -  мобильная версия успешной на
 ```bash
 magnet:?xt=urn:btih:7800FC5CD32CF9DD12755651306B3877ADA136F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

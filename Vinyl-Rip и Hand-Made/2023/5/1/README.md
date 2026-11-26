@@ -22,8 +22,7 @@ Sentenced — финская англоязычная метал-группа, �
 ```bash
 magnet:?xt=urn:btih:3E6F8C1601CBCD2593A55A89E50F59ED4A3AB2CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Калифорния · California(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:69F279370E9CF47C9306638DA9D8875246BF9FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

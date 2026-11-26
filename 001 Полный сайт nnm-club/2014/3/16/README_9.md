@@ -28,8 +28,7 @@ Krimparturr - ma'Hovtay' (2005) [APE|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:C66540DFAE08C8C1128515B30522FD097BFF8DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Encrimson'd - Agrarian Menace (2004) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:1793D4208C5FB4193C78E07D3FAE89D22C686029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Dor Feafaroth - Земля Охотящихся Духов... (EP) (2004) [MP3|3
 ```bash
 magnet:?xt=urn:btih:E47A0BA1C787E31C4C8EEC3EE6DAE94F343CEC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Kevin Eubanks - Spiritalk 2 Revelations (1995) [FLAC|Lossless]<Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:C21243668FD513A85DD263561C257EF12239E116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Fluisteraars - Dromers (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:B8C67C5BBC02E88F0D23F0AE14A2353BF8629A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Mario Canonge - Retour Aux Sources (1991) [FLAC|Lossless]<World Fusion, Caribbea
 ```bash
 magnet:?xt=urn:btih:FDD98CF0B45517C3A5D2FCFDF4B7B457DEEC420D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ VA - S.A Top 20 Producers Traxxx (2013) [MP3|320 кб/с]<House, Deep House, Sou
 ```bash
 magnet:?xt=urn:btih:BB7B6D99E8B4274D82F92D657D6B369B6A60A52D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Jorn Johansen - Keep on Searching (EP) (2014) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:99204427FD12FB6ED2D935C2177548B45B22828C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ VA - Perfecto Records Miami (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F3047D5EF2DEC63AFDAE0D5BDA0B58212FCDACA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ Old Warhorse - Don't Give No Damn (2014) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:20A0C34DFE1545BAE1AAAF3EFD519E0141AA1F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +344,7 @@ Erroll Garner - Collection Vol.4: Dreamstreet & One World Concert (1999) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:DAA3CF5869E6698C793B0A861AF76D48BA6FEF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ VA - No Sound Lost: NSL003 (2013) [FLAC|Lossless|WEB-DL]<Future Garage, 2-Step, 
 ```bash
 magnet:?xt=urn:btih:F37F5DFD1B822A083371E9717E956EEFD3B68CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +407,7 @@ Kerkko Koskinen Orchestra - Trains & Letters (2011) [FLAC|Lossless]<Post-Bop, Bi
 ```bash
 magnet:?xt=urn:btih:8ACD24E3839847F524650ED215E673B18AE2DC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +441,7 @@ VA - Dance Essentials 2014 (2014) [MP3|320 кб/с]<Progressive Trance , Progres
 ```bash
 magnet:?xt=urn:btih:65A6BC6FBC9BD035E7B05F93FB47B2F7415FA94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +475,7 @@ VA - No Sound Lost: NSL004 (2013) [FLAC|Lossless|WEB-DL]<Future Garage, Ambient,
 ```bash
 magnet:?xt=urn:btih:43F965709D73C0E0F842ED06E7E7C53E78A2A49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +502,7 @@ XI Зимние Паралимпийские Игры 2014. Лыжные гон�
 ```bash
 magnet:?xt=urn:btih:017D28000DC2A69442639CB9B5062689AD526CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6ABBF012EEAC20E58392BC101482356A56B9104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC2AB1977BB2A5E688F242A8CBD88E63FE917F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C827C31368C4776E62FC7EC4F36E226DE1357BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69275BD31DD80BFAACDC4DC4D6C7F87076F8733E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA1870B66CD6FAB85BA86389EB33EA3505A4AED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79D9FE80F1C0F97D9D10B9BC9A2DAAE2726A89CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ Sinister Oath - Sinister Oath (Demo) (2013) [MP3|~245 кб/с (V0)]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:8136F90D08CA9B28D97EF23BE091E830234E0D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +720,7 @@ Moonbooter - Still Alive (2014) [MP3|320 кб/с]<Ambient, Downtempo, Berlin Sch
 ```bash
 magnet:?xt=urn:btih:993B0418E53FE88BF965048A44062A1041FD1074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +752,7 @@ VA - No Sound Lost: NSL001 (2013) [FLAC|Lossless|WEB-DL]<Future Garage, Ambient,
 ```bash
 magnet:?xt=urn:btih:74653771021CE6BE739DCA9692978334D1115EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +777,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D1DB583637587965B421A4B12270F3C91A902CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

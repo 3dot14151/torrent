@@ -19,8 +19,7 @@ Phantasmat 4: The Dread of Oakville / Фантазмат 4: Ужас Оукви�
 ```bash
 magnet:?xt=urn:btih:EDAB967093B8BBF2A4ABFE012C7F6BAFC475F636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

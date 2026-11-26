@@ -19,8 +19,7 @@ Mastering AutoCAD 2017 and AutoCAD LT 2017 является главным ру�
 ```bash
 magnet:?xt=urn:btih:6D27E7AC26BBCB01484F89048641CCE9C69842A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AutoCAD 2017 and AutoCAD LT 2017 Essentials уникальное учебное 
 ```bash
 magnet:?xt=urn:btih:3F38C2B5B5790F8BAF8D59FAB3F448B23446F279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ H. P. Langtangen | A Primer on Scientific Programming with Python [+ Code] (2016
 ```bash
 magnet:?xt=urn:btih:99C2B7FA300DF2ED4FBB89C00D5EDA0C622DE74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A2C147B0765AEBF63D6AB2B7C9636C602958AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Kristian Rother | Pro Python Best Practices: Debugging, Testing and Maintenance 
 ```bash
 magnet:?xt=urn:btih:D175D97A1C6632105E070DE34B71D47D418B78D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Magnus Lie Hetland | Beginning Python: From Novice to Professional (2017) [PDF] 
 ```bash
 magnet:?xt=urn:btih:8BB3E1BAFDC614AE769686DC567FB2E3C0A57463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:944C16A6BA6F85B5B276EF3334C72E5D3F83AE72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

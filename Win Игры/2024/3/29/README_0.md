@@ -19,8 +19,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack Other s [Digital D
 ```bash
 magnet:?xt=urn:btih:2608893326E703844FD7EDE539C3136704F19944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:8D9EE70D927ADB53D53BEB9C344F82F83EC04FAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ One Piece: Pirate Warriors 4 объединяет вселенную аниме 
 ```bash
 magnet:?xt=urn:btih:45B69751399CC553637A8347AA70F93C80941904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Silverwood Bay: An Eleanor Grey Mystery (2024) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:FB940FA5669BA14110A16360A8204DD3EA7A8398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

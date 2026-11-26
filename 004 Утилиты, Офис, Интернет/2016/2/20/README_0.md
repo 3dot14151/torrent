@@ -19,8 +19,7 @@ PDF-XChange Editor – функциональная программа для р
 ```bash
 magnet:?xt=urn:btih:3886177F89731BB046C8EC505B6400FBD60AEF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CyberLink Power2Go Platinum 10.0.2522.0 + Content [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0F833427C2507A986B6A2FD2072C70CB31F14AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ontrack EasyRecovery Enterprise - одна из лучших программ д
 ```bash
 magnet:?xt=urn:btih:F1A7243ED0BD45BE4F4994651B0FD25948F42751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Lumii — это функциональный, но простой и практ
 ```bash
 magnet:?xt=urn:btih:EDA47E1BCDF2A69D115027C53DF37826CED2005A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

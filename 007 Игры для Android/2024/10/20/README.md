@@ -21,8 +21,7 @@ GTA: San Andreas – NETFLIX 1.86.44544238 Mod by Apkvision [Ru]
 ```bash
 magnet:?xt=urn:btih:0D557F2841C012805BAD39DADC33DAAEAA18A358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ GTA: San Andreas — Definitive Edition 1.86.44544238 Mod by apkvision [Ru]
 ```bash
 magnet:?xt=urn:btih:8E65F75FFB64E8CD675BD3582530C7CE2DFFA3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ GTA: Vice City – NETFLIX 1.83.44255649 Mod by Apkvision [Ru]
 ```bash
 magnet:?xt=urn:btih:B12041CDF0C84884D4E352F6C26B9839A98253E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ GTA: Vice City — Definitive Edition v1.83.44255649 Mod by apkvision [Ru]
 ```bash
 magnet:?xt=urn:btih:E957D9ADCA2A83230C38E9964F8353031A8F3C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Monument Valley 2 NETFLIX v3.7.120 Mod by apkvision [En]
 ```bash
 magnet:?xt=urn:btih:3A4E8EC7534FD483CD143177E23FB4AEF13885BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Valiant Hearts: The Great War — это игра из четырех эпизо
 ```bash
 magnet:?xt=urn:btih:3269B9AFCA85619EBC192B0C716A4AFF0F7E8D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ GTA 3 — Definitive Edition 1.83.44255649 Mod by apkvision [Ru]
 ```bash
 magnet:?xt=urn:btih:C6B33A8789665A56A43294F7A5625957C29AE92A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ GTA III – NETFLIX 1.83.44255649 Mod by apkvision [Ru]
 ```bash
 magnet:?xt=urn:btih:547C5B5EAAFFC471B6CF5B68BC9AD708111778D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

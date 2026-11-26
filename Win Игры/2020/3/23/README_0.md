@@ -19,8 +19,7 @@ Cthulhu Saves Christmas (2019) [En] (2.02) License GOG
 ```bash
 magnet:?xt=urn:btih:69B9DF4A73CFB86D1D50D889DFD6F177F016906C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mage's Initiation: Reign of the Elements (2019) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:55BE826EEDDCDF23DFC17CD81385880E78DC47C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grim Fandango Remastered (2015) [Multi] (1.4.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CFCDF5A57E18C230B9A87FD6726053081A4493B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ One Finger Death Punch 2 (2019) [En] (2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C6AD4CD274E7A57EB0D92528BBD6B354731610C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.216/dlc) SteamRip =nemos= [Complete Edition
 ```bash
 magnet:?xt=urn:btih:5D4172BECDE6361997E482EDBA5D60AD28C15F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Crime Life: Gang Wars / Crime Life: Уличные войны [Ru/En] (Lossless 
 ```bash
 magnet:?xt=urn:btih:FF3BEFB085509B4F1D7A93F41B289C5D48BFBDB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ TZAR: The Burden Of The Crown /Огнем и мечом + OST (Rip) [Ru] 2000 | 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

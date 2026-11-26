@@ -19,8 +19,7 @@ Mugsters (2018) [Ru/Multi] (1.0.313) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D3186F2A93419F3F5A5FD23CB32513D436F44244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

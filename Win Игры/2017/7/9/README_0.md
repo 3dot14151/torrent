@@ -19,8 +19,7 @@ Goat Simulator (2014) [Ru/Multi] (1.5.58533/dlc) License PROPHET
 ```bash
 magnet:?xt=urn:btih:C83C56FBA17C9DFA885850FF63B535CA83F0E6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Inner Voices — это сюрреалистическая приключенч�
 ```bash
 magnet:?xt=urn:btih:C12CE88F8DD799B1D870710E09CE55C059AA0980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:84D12B47362DEDA3D0723A4FB0CA29AD18B77F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Candle – добрая приключенческая игра-головоло
 ```bash
 magnet:?xt=urn:btih:11A921B1704827D5064E2DD6E7AB1A3D607A92FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

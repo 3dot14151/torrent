@@ -20,8 +20,7 @@ Ubuntu*Pack 20.04 DDE (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:55C7E1E6CED482CFF50F2BFCF92E94438647A2D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu*Pack 20.04 Cinnamon (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:537A6C6EBCA7022AC37F88B59023680E045BB064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ubuntu*Pack 20.04 Budgie (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:B7284B450A1A2FA9CDC3A8F4158824950E91394D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

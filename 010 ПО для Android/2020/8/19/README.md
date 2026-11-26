@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:F128E1D8DF0F56215E92E0C71841484B9F0D2309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ VK Music Player - неофициальное приложение для про�
 ```bash
 magnet:?xt=urn:btih:1527A48710529C858CC9AEABC2373B8979A4BB36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

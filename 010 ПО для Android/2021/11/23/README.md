@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B0540668BB80D0A9F41EFC3887086C1FDE38116F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadowsocks - это бесплатный проект протокола шиф
 ```bash
 magnet:?xt=urn:btih:4D615CC4A9FB287AE62450C91C201FE7717232B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

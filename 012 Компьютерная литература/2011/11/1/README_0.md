@@ -19,8 +19,7 @@ Progman Oy | MagiCAD 2007.11. Руководство пользователя [2
 ```bash
 magnet:?xt=urn:btih:F720336D7A305C7F6F8FFF38127F1A9664B71CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

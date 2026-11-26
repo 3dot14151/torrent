@@ -21,8 +21,7 @@ VA - Awesome 80s Romance (2016) [MP3|320 кб/с] <Pop, Easy Listening, Jazz Voc
 ```bash
 magnet:?xt=urn:btih:F068B4BC23F0E9A457721DC1F2593AA20F8DC69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:907B052CBED1C0E749F1C24FE9496B5EBD5FABD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07D13F3592E3D8A139A12BB37208C91D34257F03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Clearview - Программа для удобного чтения электр
 ```bash
 magnet:?xt=urn:btih:E671129AB85488240A3C2223CC813D9730838283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83163CD305AAC614646C0B7EBB79710F4E43E9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C886D010EAB8D1003858C04BEC79DED14F6B25C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - May Discotheque - Holiday Hit Parade N1 (2016) [MP3|192-320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:C671616A971E96F20DD466B4AE9F1ECE13C8FDED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ InstaBro это простой инструмент для Mac, который �
 ```bash
 magnet:?xt=urn:btih:63C6443256603F753EA9C947B3BA704D428748E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Sunrise - Absolute Clarity (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:97415592DB6D31E9F4AEDFF456E29B1890834EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Side Liner & Aviron - Out Of Town (2016) Cosmicleaf Records [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:C8318976F823C8D7D92C4139113C6CFE2B837EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72959C66F3C819D7D27EF52C12FCE5014C28D45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Privacy Eraser Free 4.12.0 Build 1969 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EED7A3A87CEF0AFBA2C57E8F278996882EA5350C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC8000CB70A00F42DAC4878ACADA438650070F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Faderhead - The World Of Faderhead (2012) [FLAC|Lossless|image + .cue] <Electro,
 ```bash
 magnet:?xt=urn:btih:B5F60CF257DACEADF6184C29CD31AFE50FD3CF31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Lisbon Kid - Lisbon Kid (2016) [MP3|320 кб/с] <Alternative, Acoustic, Electro
 ```bash
 magnet:?xt=urn:btih:199E3F611D6A001BCDB6211115961D0B8DC74452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Mattias Ia Eklundh - Freak Guitar (1999) [APE|Lossless|image + .cue] <Rock, Guit
 ```bash
 magnet:?xt=urn:btih:885F23612FF90F47CF365806004184A018690E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ Yummy FTP Alias  - Удобная утилита, которая поможет 
 ```bash
 magnet:?xt=urn:btih:D7D6A4DF4CD142D2CED89D3D37184F6C048B8FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ FolderSizes 8.2.134 Enterprise Edition [En/Ua]
 ```bash
 magnet:?xt=urn:btih:307940E6C7F6ABE4D245C442BC35A13B5FCADCE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ VA - Angels Chill out Cloud, Vol.2 (2016)  [FLAC|Lossless|WEB-DL|tracks] <Lоung
 ```bash
 magnet:?xt=urn:btih:FA8B9481A9501342178A96D0EB0F051F1FA4A693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Faderhead - FH-X (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro, EBM, Synth-Pop>
 ```bash
 magnet:?xt=urn:btih:EF6A80E97D6FD1F4B8246D8AF5F71172C7C188D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFDB55C3FAFFAADD7F1366843EBB28FA214CF221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA4101238E5E6716B560CD755E01D2882C6546A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ Medwyn Goodall - Eagle Spirit (1996) [FLAC|Lossless|tracks] <New Age, Celtic, In
 ```bash
 magnet:?xt=urn:btih:3CE95D445FCB04063321E1FC57CA4EC0C9297559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ VA - Blues Women: Collection April (2016) [MP3|320 кб/с] <Rock Blues, Country
 ```bash
 magnet:?xt=urn:btih:CEC9A6E263D04896858306E09A14C571461E7C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Phantasmat 6: Town of Lost Hope (2016) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:F1E67DABC4BC011423E77DC94187D2954AAE020C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ VA - Deep House Edition #002 (2016) [MP3|320 кб/с] <Deep House, Club House>
 ```bash
 magnet:?xt=urn:btih:045B69038ED1DCD131A4F56FC05BD59AD7CE8233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

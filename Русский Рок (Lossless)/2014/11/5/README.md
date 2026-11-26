@@ -28,8 +28,7 @@ Catharsis - Индиго (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:975D6428C7E7A65004A51B4E8395D013BF46905A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

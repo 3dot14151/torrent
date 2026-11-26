@@ -19,8 +19,7 @@ HiBit System Information - управление списком всех прил
 ```bash
 magnet:?xt=urn:btih:FB79A2D5F5DA975030D29DB757CF9CBD681A4479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WhyNotWin11 2.6.1.0 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:774A71BB0CCBEE88569F5ABD6DF0EC614C8D1C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

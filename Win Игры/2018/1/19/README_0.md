@@ -19,8 +19,7 @@ Full Metal Furies (2018) [Ru/Multi] (1.0.0-22R) License PLAZA
 ```bash
 magnet:?xt=urn:btih:879F2B94E3C7E30EF4882A86E78A9E025F820415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chronology – это умопомрачительная смесь голово
 ```bash
 magnet:?xt=urn:btih:F183BD75E083CFE73BE46FB5D47E3E3ADC7E7FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Thea: The Awakening – это походовая стратегическая �
 ```bash
 magnet:?xt=urn:btih:222BA9E7A3D71381F45D23D02FC3F1ABE531F887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nantucket (2018) [En] (1.0a) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5F7E569F0463EB682AAD4A1E8762A30349209EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Thea: The Awakening – это походовая стратегическая �
 ```bash
 magnet:?xt=urn:btih:9DB39458DA40A7E8930A962DB42C22EFDCD977EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ VA - Different Ways of Radar (2010) [MP3|320 kbps]<Indie Rock / Post-Rock / Elec
 ```bash
 magnet:?xt=urn:btih:7CC2865A5C9C471F2E54484764E0B610CBF4657A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Jack's Mannequin - The Glass Passenger (2008) [MP3|128 kbps]<альтернат�
 ```bash
 magnet:?xt=urn:btih:A343D5E1A03F8A82B4D486489494C5B2279DC977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Iron Maiden - Edward The Great: The Greatest Hits (2005) [APE|Lossless]<Heavy Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

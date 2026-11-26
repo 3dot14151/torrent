@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CBA2879374393EE6B6725C924A53AB740DDC80F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ B5. Don't Let The Needle Win [3:56](   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:51A91784EA0D3D6F444933EBF200B669152C50CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Club of Fans Dance Vol.1 (2013) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:EE979E9D94064D689A2A9020222AB72F9C337991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Best Summer Drum (2013) [MP3|320 кб/с]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:E04683F247F9BC51E675D96CF49FA80E2A8BA67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Various Artists - Hits 2013 Vol-2 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:4418C14CDBCFBF62B26439761525F3B5CBA14CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:444126809307531DEB42013F2CBED6E6DAB49541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ The Dead President - Смерть кукловоду (2013) [MP3|320 кб/с]<Pu
 ```bash
 magnet:?xt=urn:btih:9FC804A2BB8FDD9BC48F15EF02DD2AFA8C7310C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36D9CAA0DE7BB238D8102A98BB5CCAEF75726C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ DVS-камера - камера, которая видит все окружаю
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:278EDDEFA119FF21D52C8C539BFFC35A90B60030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ PicPick - бесплатное приложение, объединяющее в
 ```bash
 magnet:?xt=urn:btih:900FB0C0E4A4CA2628BC3D1018004D2707298372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ Wayra - Great Eagle Flying With The Wind (2008) [MP3|320 кб/с]<Native America
 ```bash
 magnet:?xt=urn:btih:5C5D96EDE1FFF033C9AF76E4207CB459B1968065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ Wallpapers - Разное 5 [JPEG]
 ```bash
 magnet:?xt=urn:btih:341F14A261228FBCC7F408909C46AE4392AF2EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ VA - Club Music for DJ's - Sborka Vol.169 (2013) [MP3|320 кб/с]<Club>
 ```bash
 magnet:?xt=urn:btih:186C692F78B26A4D3C58B7F862C6BCB2F14BAD6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ Van Morrison - Hymns To The Silence (1991) [FLAC|Lossless]<Blues Rock, Folk Rock
 ```bash
 magnet:?xt=urn:btih:411BA4A3EB563F9F618FB6D9692F875DB0C68E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ The Script feat. will.i.am - Hall of Fame (3:21)
 ```bash
 magnet:?xt=urn:btih:EC0ECEA98835AC86E1C50BA2DD6D9C3AF99BD991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EF36378B2B9A193AE80732C769D9C3DD683C61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C542C608162CFC4D5E6E98EFB688113785F0AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:822A56ED0D4CD60349D80793BF36C4DE252ECF4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:999FDF09034366BFFC399D52D92953CAC2AA0D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D162A6B9034A7650685E376A8D6F1098F0377305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +635,7 @@ Ulver with Tromso Chamber Orchestra - Messe  I​X​-​VI​X (2013) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:2586AE5EBF04B530548BED3F78ACEA622D85B912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ B5. I Know It [3:26]Жанр: Pop Rock, Classic RockПродолжительно
 ```bash
 magnet:?xt=urn:btih:2604704969028C9D46D83D6F3A3200EBB1BEB910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F86E1002BA9201B77BBC78276C467839AA2E617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E2296CF1DD645DA8BF9692EA5613AFAA4256328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +743,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2BE4F12170F00B968590F98EAC2FB53192DBD82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

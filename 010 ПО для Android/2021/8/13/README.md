@@ -19,8 +19,7 @@ Audio MP3 Cutter Mix Converter – качественное приложение
 ```bash
 magnet:?xt=urn:btih:B0DD83A60A3E01DCEDB72D161AB0E57A882E54CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

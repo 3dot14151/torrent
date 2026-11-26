@@ -19,8 +19,7 @@ Krush Kill ‘N Destroy 2: Krossfire (1998) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BFD22352DA57A34EF223E855A625591397B3600F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

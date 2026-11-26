@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CB763E73DAC7062D6CBF0773247387704CD49A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99EE17F82DF04A75CF8DC30474A3507446DD32DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Beginning with an overview of AWS cost optimization, the book introduces (   Ч
 ```bash
 magnet:?xt=urn:btih:5DCEA191ABA81DC6C5E2CEFA65CCCDFA9CA42FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Large language models (LLMs) have transformed natural language processing, but d
 ```bash
 magnet:?xt=urn:btih:10AC2FD42F4429CD25958D21346D316A040EB81F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Learn the most important topics in securing AWS environments through a strategic
 ```bash
 magnet:?xt=urn:btih:A05D5A0EF73ADB7B337AED64968E7A67E617578B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Develop your own brand, projects, and portfolio with expert help to stand out in
 ```bash
 magnet:?xt=urn:btih:9E43A22C1497B63058F8012C3A73CFA8EB6FD930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Inferi - The End of a Weak Nature (2009) [FLAC|Lossless|image + .cue] <Black Met
 ```bash
 magnet:?xt=urn:btih:0BE6138F200F9E5880088923605584F8545ACB36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Word Alive - Monomania (2020) [MP3|320 kbps] <Post-Hardcore, Alternative Met
 ```bash
 magnet:?xt=urn:btih:C12C74923C0BE82F1DFCDFFC7FA4F8421D9844A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Soccer Mommy - Color Theory (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Al
 ```bash
 magnet:?xt=urn:btih:CD7B47D647489B1AE501860C63F65F9A24600AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Those Endless Eyes - Awaits Behind (2006) [FLAC|Lossless]<Gothic Black Metal>
 ```bash
 magnet:?xt=urn:btih:ECC3A7A63079E38F815923B6E4146072E391D70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ The Toms - Life Raft (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternati
 ```bash
 magnet:?xt=urn:btih:83DCFF61CA24A929DE1797CA3BF121C3CBEC5310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

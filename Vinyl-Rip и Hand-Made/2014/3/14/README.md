@@ -26,8 +26,7 @@ B4. Angel Eyes :: 03:18Жанр: Synth-pop, Europop, Euro HouseФормат: Vin
 ```bash
 magnet:?xt=urn:btih:549EBFB7FC06DBDA8E07F5261812EDCCEFE41F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

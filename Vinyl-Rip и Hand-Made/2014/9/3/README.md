@@ -28,8 +28,7 @@ B3 Little Brown Jug(   Читать дальше...   )Жанр: Easy Listsning�
 ```bash
 magnet:?xt=urn:btih:16A69C37D30FB4C97B45CA2589AA1739C1366CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ D1. Lost For Words (5:13)(   Читать дальше...   )Жанр: Progressi
 ```bash
 magnet:?xt=urn:btih:643BE2B96630075DE560959D2BEF05EC6203370D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

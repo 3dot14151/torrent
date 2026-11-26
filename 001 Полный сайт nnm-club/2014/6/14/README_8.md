@@ -28,8 +28,7 @@ VA - Клубные Новинки Vol.430 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:E866A220D7D1C28A0ACFA6E5B47C20FEB2A56403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Slobberbone - Everything You Thought Was Right Was Wrong Today (2000) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:B3041470FB239990B527941E2B5115C9346BE07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Клубные Новинки Vol.431 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:F0D9747E3335B116148DE227E9E8C75C8D7B700F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Ajosha - Caribbean Deep & Chillout Vol. 1 (2014) [MP3|320 кб/с]<Deep House, C
 ```bash
 magnet:?xt=urn:btih:948EA93F4467049654332D606C17F35C0AA126DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - Loveletters from Berlin Vol.1 (2014) [MP3|320 кб/с]<Deep House, Dance, E
 ```bash
 magnet:?xt=urn:btih:FDDF570469D8694CF00818359E34C02532D1DFF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Diagens - 3 альбома (2005-2012) [MP3|320 кб/с]<Street Punk, Hardcore>
 ```bash
 magnet:?xt=urn:btih:4B8F84BFE02AEE30EB79A2BF1D52E10E6267B509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Black Anvil - Hail Death (2014) [FLAC|Lossless]<Blackened Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C8F47F35EC46FB5DEBCB7D3A6051C968248B46F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Venus In Motion - Somebody's Heaven (2013) [MP3|320 кб/с]<Downtempo,Lounge>
 ```bash
 magnet:?xt=urn:btih:AEF73D9B0EA2A44B5D10EAB22375A03C24C9B005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ VA - Клубные Новинки Vol.432 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:2AA2191C525C8CF8446B79E7F919AAF4D4F10B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ VA - Trendy Chic - Fashion Cocktail in Paris (2014) [MP3|320 кб/с]<Deep House
 ```bash
 magnet:?xt=urn:btih:E0D41CDEC087B8ADB42100500A6EFE3D400481CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:812237F543C4E969E71CE4F6F4364C7FBB991F6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +387,7 @@ Eric's Bluesband - Dirty Road (2014) [MP3|320 кб/с]<Rockin’ Blues>
 ```bash
 magnet:?xt=urn:btih:9999379EA955B094E156C523A733B74A470BBAEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +421,7 @@ VA - Клубные Новинки Vol.434 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:722B5852ABB4A7CD1285AE3C4013D0202D950E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1D94E8B4EBE821659AAF0E3E4EBF724E35A5F71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +480,7 @@ The Dixie Werewolves - Lucky Number Thirteen (2004) [MP3|320 кб/с]<Hard Rock,
 ```bash
 magnet:?xt=urn:btih:8E554CDCEAB781BB07ECAE2A18EA8C709B3B2900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +514,7 @@ Imaginara - The Legend Of Gingelur (2014) [MP3|320 кб/с]<Folk/Power/Symphonic
 ```bash
 magnet:?xt=urn:btih:8A5945C38786AD22C8395744D1843380C2CD099A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +542,7 @@ Boinx FotoMagico позволяет создавать профессионал�
 ```bash
 magnet:?xt=urn:btih:533C1F32725B25AEE00966F90D7D39AE47053B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +576,7 @@ Meadows End - The Sufferwell (2014) [MP3|320 кб/с]<Symphonic / Melodic Death 
 ```bash
 magnet:?xt=urn:btih:91B7C91C94073B555F2EEEEA39D60E715D7C5A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +610,7 @@ VA - Клубные Новинки Vol.433 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:28EB0512D64D02CD55B12A794A23EB9336E28908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A3906B41245DCAB599483B7B4B2EF420B72150B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +669,7 @@ Slobberbone - Everything You Thought Was Right Was Wrong Today (2000) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:C1B1D36895DA709269CA9A09C671DFFDFB5EEE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +694,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:175A2410233E7D6F931E5E46D12B66537AB28C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +728,7 @@ Tunnelvision - Sky Swallower (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:B05210B5F36E2E4FB578FDF4340D21B70870BD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +761,7 @@ West, Bruce & Laing - Whatever Turns You On (1973) [MP3|320 кб/с]<Rock, Blues
 ```bash
 magnet:?xt=urn:btih:8A7FDDCF50A59E7B0426A0F4AF9C7E514D8B3512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -817,8 +793,7 @@ Thunder and Roses - King of the Black Sunrise (1969) [MP3|320 кб/с]<Hard Psyc
 ```bash
 magnet:?xt=urn:btih:B4B2A796EEED9F10720B23FF32D013157DABFA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -843,8 +818,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33008A414211FA67365426F123C70ADBC69B7B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

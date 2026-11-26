@@ -28,8 +28,7 @@ Infestum - Monuments Of Exalted (2014) [MP3|320 кб/с]<Black Industrial Metal,
 ```bash
 magnet:?xt=urn:btih:EC24A37F6B5029399B767E748227B6C93A77E684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Sic Vikki - Kiss Me in French (1993) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:35A4C30A166708D0B035814095175F4A9635A962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Sanctorium - The Depths Inside (2014) [FLAC|Lossless]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:FD61639414D35E3CE32F170BF0A5D02025E3BD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A1777FD540B847701D94A54A11A32210E954537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

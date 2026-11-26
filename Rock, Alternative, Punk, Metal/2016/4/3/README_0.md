@@ -22,8 +22,7 @@ Neverside - 2 Extended Play (2013-2014) [MP3|320 кб/с] <Death Metal, progress
 ```bash
 magnet:?xt=urn:btih:895942499B142B5FA77072790D28937646F12174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Tide - Light From Above (2008) Japanes Edition [FLAC|Lossless|tracks] <Roc
 ```bash
 magnet:?xt=urn:btih:05E8CAAA1D4EC3BF0796A7E358B862EB7C890B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:02DB585B206CFF5D609ECFB6B594E0FE4C0B1565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ When Nothing Remains - In Memoriam (2016) [FLAC|Lossless|tracks] <Doom Metal, De
 ```bash
 magnet:?xt=urn:btih:11B6127CD05F125204EBB374B4B34A8BBFCB2E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:B3E86A502B1994C36E37D9C1E89D9B83A2CF47E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dead Bang - Dancin' On The Edge (1994) Remastered, Japanese Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:A0E7A3488F1F2C58867B39E314153EE5343E4C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Kari Rueslatten - To The North (2015) [MP3|320 кб/с] <Rock, Folk, World>
 ```bash
 magnet:?xt=urn:btih:EC2A14F845B874C7FC0FA02A4E0C18751532ED1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Metal Church - XI (2016) [FLAC|Lossless|image + .cue] <Heavy, Power, Thrash Meta
 ```bash
 magnet:?xt=urn:btih:7351FDBBA21D3EBF9BE26F74586B283AA6650D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Mob Rules - Tales From Beyond (2016) [FLAC|Lossless|image + .cue] <Melodic Power
 ```bash
 magnet:?xt=urn:btih:8C921EF26412D8A784E3126AB2077D094105B281
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Rage Of Angels - The Devils New Tricks (2016) [FLAC|Lossless|image + .cue] <Melo
 ```bash
 magnet:?xt=urn:btih:C6026B4BAB9F759B807B12B15C13C38A61ECE418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Mystery Jets - Curve Of The Earth (2016) [FLAC|Lossless|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:F8C885B27C192744958876DF32432A2481F0EE8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Doro - Love's Gone to Hell (2016) Single [FLAC|Lossless|image + .cue] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:9F3CCD5B340B1ED61D7A4535AECF33B50E3B9076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Alice on the Roof - Higher (2016) [MP3|320 кб/с] <Alternative>
 ```bash
 magnet:?xt=urn:btih:CD56F86FF908C0765DDE23CB68514050F28B0B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Almanac - Tsar (2016) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Po
 ```bash
 magnet:?xt=urn:btih:D0A59E03F7BD3B3D15769B386A334545BEA09908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Weezer - Weezer (White Album) (2016) Japanese Edition [MP3|320 кб/с] <Alterna
 ```bash
 magnet:?xt=urn:btih:1579B16335656B3665A7299EBB886ADF391B73BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Bonfire - Pearls (2016) 2CD [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:909D1514D329F62B2A8FFCB1140EB5BF3E0BCBF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ The Sisters Of Mercy - Greatest Hits Volume One - A Slight Case Of Overbombing (
 ```bash
 magnet:?xt=urn:btih:B6DA76FB53E8E2583A1D685E4B326175A4AF0BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ The Cat Empire - Rising With The Sun (2016) [MP3|320 кб/с] <Ska, Funk, Indie>
 ```bash
 magnet:?xt=urn:btih:4D35E3C8584C4216A7B08459707B2812DBB2E01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B85C3951F6B07E298DE2E6683F58EC27E585C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ VA - Greatest Ever! 70s Rock (2016) [MP3|320 кб/с] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:5C740F9937BE8178909913375CC652031727E3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

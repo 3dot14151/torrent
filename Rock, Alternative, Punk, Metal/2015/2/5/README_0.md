@@ -23,8 +23,7 @@ Human Bodies - No Life (2014) [MP3|320 кб/с]<Black Metal, Hardcore, Crust>
 ```bash
 magnet:?xt=urn:btih:306893589E2525254340201A08D84C9557AAE8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Scumpulse - By Design (2015) Reissue [MP3|320 кб/с]<Black Metal, Crust Punk, 
 ```bash
 magnet:?xt=urn:btih:024922DED5751E172FE50C56FED05D0DBE37818B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Negura Bunget - Tau (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Progressiv
 ```bash
 magnet:?xt=urn:btih:AF8B1FE99CFD3C50BD708B53A0DE752C01FE8C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Hellish Outcast - Stay Of Execution (2015) [FLAC|Lossless]<Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:814AD7F7A474E12C1FFD8C8F3ABBDF5AC2179A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Venom - From The Very Depths (2015) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A3946290048C8AC44762289146AF279FCC3A4A0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Rollins Band - 8 Альбомов, 2 Live, 2  Compilation (1987-2014) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:13D9B2481989D3B14C2968C967250E6F2DC2DCFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0399222FE84DA19780BF12D0CAF744A57705DBC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call Blocker / Блокировщик звонков v4.5.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9D1F6C61CFDF763A440FD48BD1292A96AED8265D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

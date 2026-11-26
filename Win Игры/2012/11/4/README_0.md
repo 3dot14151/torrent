@@ -20,8 +20,7 @@ Mysteries of the Mind: Coma Collectors Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:4854494CDCE03520142CB89C6A1B293E56F6FFD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Cruel Games: Red Riding Hood / Жестокие игры: Красная Шап�
 ```bash
 magnet:?xt=urn:btih:395ABE017BA3F6A7B0E5E61C6AE0FC76A902ABCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Mass Effect 3 [En/Ru] (NoDVD/1.04.5427.111) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:B0299DCE18B1761800998E3B0B65DAAE37E2A5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Mass Effect 3 [Ru/En] (Update/NoDVD/1.04.5427.111) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:705689CBE0587B2C6479E43D14B90A73F2E998EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Crying is not Enough (“Крик не поможет”) - это игра на
 ```bash
 magnet:?xt=urn:btih:AFC1FBBA5E17977D24C7E326F6AA3E7F1F3ADC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Heavy Metal Machines – это многопользовательская иг�
 ```bash
 magnet:?xt=urn:btih:5CE4EE2C2A7B201D8737C6F34901668103F0B181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

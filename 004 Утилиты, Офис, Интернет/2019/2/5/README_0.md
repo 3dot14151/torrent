@@ -19,8 +19,7 @@ Windows Repair (All In Onе) - инструмент все-в-одном для 
 ```bash
 magnet:?xt=urn:btih:1081142FAB24B3FBE376EEEE01DC1E5CDF1D30AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

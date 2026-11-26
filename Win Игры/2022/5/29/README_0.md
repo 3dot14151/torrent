@@ -19,8 +19,7 @@ Magic City Detective: Wings Of Revenge / Волшебный Город: На к�
 ```bash
 magnet:?xt=urn:btih:C365371F4644A3F7421D24622A51C83FADC9C75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

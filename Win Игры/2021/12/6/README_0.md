@@ -19,8 +19,7 @@ Detective Olivia: The Cult of Whisperers / Детектив Оливия: Кул
 ```bash
 magnet:?xt=urn:btih:9EA08ABD3089E3C8A8600F628545F389568F17A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Castle on the Coast — сногсшибательный платформер-к
 ```bash
 magnet:?xt=urn:btih:48E2A8CE3296DC63E86D0CD613B10DD8F251AFAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Oddworld: Soulstorm (2021) [En] (1.162/dlc) License CODEX [Enhanced Edition]
 ```bash
 magnet:?xt=urn:btih:8BD4383D44554D5F56698E6671F61ACDE79F3CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Street Outlaws 2: Winner Takes All (2021) [En] (7729942) License CODEX
 ```bash
 magnet:?xt=urn:btih:303AEAB5B39249E16DA612FB54E88B361C82C252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Divine Invasion (2021) [Ru/Multi] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:4678A084FAE8568A6FEE43347A13220C2466732D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grand Theft Auto III (2021) [Ru/Multi] (1.14718) Repack Other s [The Definitive 
 ```bash
 magnet:?xt=urn:btih:CA7F3552AD7515BE2377BC588AE01513A9010E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

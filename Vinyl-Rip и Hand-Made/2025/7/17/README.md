@@ -22,8 +22,7 @@ A4 Walk Away From Love (Voi Fugi De Dragoste)(   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:57460D1C2CDFC5F091DE31390E5A4F8FE44129C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

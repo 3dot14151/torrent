@@ -19,8 +19,7 @@ TickTick: Менеджер задач, Органайзер и Календар�
 ```bash
 magnet:?xt=urn:btih:4A87BA992B5C623CE2BA77C2185A0800F81CA812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

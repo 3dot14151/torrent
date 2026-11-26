@@ -19,8 +19,7 @@ Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License 
 ```bash
 magnet:?xt=urn:btih:30FD0AE135C1AC890C864293854958FB67B06CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

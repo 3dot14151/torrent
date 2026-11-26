@@ -26,8 +26,7 @@ VA - Old Rock nostalgic memories (2014) [MP3|161-320 кб/с VBR/CBR]<Classic Ro
 ```bash
 magnet:?xt=urn:btih:02B372C3C6706C7B8D14978C94989364D022928E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Starперцы / Last Vegas (2013) DVD5
 ```bash
 magnet:?xt=urn:btih:3939D38054397919314183B2513CD5EEDB8A799B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:099CB7AD067C3B82A883EBAD2C63828316CB945F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Coowon Browser 1.6.5.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E0E48D842A18CB4B778AB009F93BA27EDBD76BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ BBC. Тайны мозга. Патология / The Brain: A Secret History. Br
 ```bash
 magnet:?xt=urn:btih:37B8AA6398811316A457C614E06B0466D2F34B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:73D962965CBFDD20051D213ECE49FEB2E7DA1572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECB137D410CC1B8E835D711AAC3B6B1927E5FD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A74C27D775ED08B3F876AE20E7E6E8151F1F593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0888E5BFAD13E3D37BDFE368406554FBD9ACACA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ BBC: Мир природы. Птицы рая / BBC: Natural World - Birds of th
 ```bash
 magnet:?xt=urn:btih:BB08503E815879BDED489C6E7A822834ED1645E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ VA - The 80s (2003) [FLAC|Lossless]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:5E4F1D3834CB64C6CEE316FC3B9B459FF34FDF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31714AD1E146C95DEBC88932A76D23388DA886C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Green Day: Rock Band – это очередная часть музыкальн
 ```bash
 magnet:?xt=urn:btih:EA3DD9D30DC8343C508D5BDE60D26AF4AF26BE47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:597EE253CAE1CFDD3E1A65A22707C06219A2868E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ FeedDemon - Одна из наиболее достойных программ �
 ```bash
 magnet:?xt=urn:btih:12D375E9FEA65F1F25A8DDFE30396F1A5584DCE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ EfficientPIM - полнофункциональный персональный �
 ```bash
 magnet:?xt=urn:btih:4999468D9566112C6994002295CEC85DDD6398BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DB067857EC6D985AF210E3224C6C85DFEEC0865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ World of Tanks San4oModPack (2014) [Ru] (1.0) Mod [Сборка модов от 
 ```bash
 magnet:?xt=urn:btih:8B6EA2F0F628A7F4FECACD58A884BBDF30F21CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ VA - Deep Sounds: The Very Best Of Deep House (2014) /2xCD/ [FLAC|Lossless]<Hous
 ```bash
 magnet:?xt=urn:btih:A1BD26AD82A9C8C5574C80718979EEDA5AB0C3F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0704AF2A58920C26E20CD5392DE28B2FCED8B10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F63A56D7022EE7DACA8AB09E650255F48769961B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ VA - Лучшее на Europa Plus 100 хитов (2014) [MP3|256-320 кб/с]<�
 ```bash
 magnet:?xt=urn:btih:BEDACB17E9E0A3642ADF3F7393F9B6614003FFBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Virtual ANS - программный симулятор легендарного
 ```bash
 magnet:?xt=urn:btih:EE6F59B101B20F7B2914BC92274F591EA152FFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB7A049C7DC1EE4152480F84ACB8A0206FBA90A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ BBC. Horizon: Не верь глазам своим / Is Seeing Believing? (2010
 ```bash
 magnet:?xt=urn:btih:7EFD5E930783025385A96A2B75243E8ECA0D6AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ Starперцы / Last Vegas (2013) DVD9
 ```bash
 magnet:?xt=urn:btih:95FB67E59C1FCBE71858559A446E01F0872D7818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

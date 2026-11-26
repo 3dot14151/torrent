@@ -25,8 +25,7 @@ Inaki - Tracks and Remixes (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:5973EF8500FDF33FEA201543CDFE9E514D004C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ VA - Almost Weekend III (2014) [MP3|320 кб/с]<Tech House, Minimal>
 ```bash
 magnet:?xt=urn:btih:FCC00EFAE21E071E5F26A96382F878A26579C1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Arakain - Legendy (1995) [FLAC|Lossless]<Thrash/Power Metal>
 ```bash
 magnet:?xt=urn:btih:F6C48D5A68F5D27AAF3FAFFB92ABDEBD240A0AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ VA - Armada Top 15: 2014-04 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:E30547973B3FFB66D8716906B518DC896FF988DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Taproban - Strigma (2013) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:DD409300EA0F62FE672D0C7585D219B9C24B60BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FCE7E4E18419FF2E391F3EAF699B5829A5ED040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ Arakain - S.O.S (1996) [FLAC|Lossless]<Thrash/Power Metal>
 ```bash
 magnet:?xt=urn:btih:01310286894B3BE69E0254455B82078C11C59166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Randy Jacobs - Rhythm And The Beat (2013) [FLAC|Lossless]<Jazz Rock, Modern Jazz
 ```bash
 magnet:?xt=urn:btih:DF131E2A45F6A6DD6E013043F785B4A4A023F2E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE6667578C9D6EA0DEA06B2545FD541CE071E026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A47D2062FAB244125DFC5BE2660DA34D1649847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Skorge - S.N.E.S. (2014) [MP3|320 кб/с]<Electronic, Dubstep>
 ```bash
 magnet:?xt=urn:btih:A196541BB57EE218B52AFD278004BD1869A626BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B20BE378FB795F7C12F56087730D8E25137FE2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ Guitar, Flute, Alto Saxophone, Lead Vocals – Dieter Roesberg(   Читать �
 ```bash
 magnet:?xt=urn:btih:6426BD548688A40D24BDEAD3E18E345495913BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ Skyliner - Outsiders (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:B9C13873D18F5EA0CD2D523BF3A7517DF7DFEC4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ Animal Alpha - Pheromones (2005) [MP3|192 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:ED3B6E5B29AFB158AEC9DD1382545B0373390EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ Bonobo - Get Thy Bearings (2014) [FLAC|Lossless]<Downtempo>
 ```bash
 magnet:?xt=urn:btih:C9B6ECA8534BF706C664FB657E6D5272E37AC19A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8C1D6EED1E25C8F8538452BA8F27490C59530ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +541,7 @@ VA - Paul van Dyk VONYC Sessions Selection 2014-04 (2014) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:C2AE9FE5E570A94A6E6418691A8AE5251286CFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D431B609F208D5EB00D73C3B48D7CCCE3E277CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B033784E6E583A0BC34F33D813EEA2784AA14052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3865330E957D95CDC6D7E5AF453EBF2D421FF1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ Anthem of the Sun - I Came to Rock (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9996807430F7102175BA10C20EB137F668E9D53B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ VA - Music for Balearic Gabba Dreams (2014) [MP3|320 кб/с]<Chillout, Deep Hou
 ```bash
 magnet:?xt=urn:btih:0CAFE672D468878C7F8EC156735A0ADCC8224F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +717,7 @@ N.Tesla - Lux Manifesto (2014) [MP3|320 кб/с]<Post-Hardcore, Experimental>
 ```bash
 magnet:?xt=urn:btih:C600243FEFB89BB4AA0041D89DC97D30DB3C063D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +743,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4CBDEC85A0B0F6F82966005201E2078F7155EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +768,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52EC20E829DF5E24152CB796B1CFDE5171EB2441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

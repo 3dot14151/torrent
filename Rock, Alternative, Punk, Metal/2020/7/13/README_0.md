@@ -22,8 +22,7 @@ Sycamyre - Illuminations (2020) [MP3|320 Kbps] <Progressive Metal, Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:46B66A6793EF9C2253CCA3F4A2556E8C8744823C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Shout The Band - Made Of Gold (2020) [MP3|320 Kbps] <Melodic Hard Rock, Alt.Rock
 ```bash
 magnet:?xt=urn:btih:FF34900C8330D81638D14DEDC66B5B475697B5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Wanderer - Awakening Force (2020) [MP3|320 Kbps] <Speed Metal, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:BDA525D49FD67A0C922E2022C29D8C01DD816DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Santana - Greatest Hits (2010) 2CD, Compilation, Unofficial Release, Digipak [FL
 ```bash
 magnet:?xt=urn:btih:6B0AA8D1B49AAEAEA43C4447510ECABB98E88455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

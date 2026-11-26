@@ -21,8 +21,7 @@ Mario Yoshis Island 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:0F5C23DD3D8610C640B4B22AE893DA034FBC6195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Angry Birds Rio – это еще одна история о сердитых п
 ```bash
 magnet:?xt=urn:btih:11C0789CE3CE602A7156D28A5C77B8AC50AAC5B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

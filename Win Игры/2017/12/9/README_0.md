@@ -19,8 +19,7 @@ R2 Online — многопользовательская игра в жанре 
 ```bash
 magnet:?xt=urn:btih:C2EFEB65569E151A5718DAF972A247F518BD77AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

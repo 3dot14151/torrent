@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D27BF6EF1B5D0B558C5D7E13C155E078E0CCFBD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VideoHive - POKER (Movie Trailer) - 87329 [AEP]
 ```bash
 magnet:?xt=urn:btih:281122331EB65D0702C9BA2FCBD572992DB9159F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ NG: Суперсооружения: Мегазаводы. Ауди / MegaStructu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Java Runtime Environment (JRE) - исполнительная среда соз�
 ```bash
 magnet:?xt=urn:btih:7F6CD194F790AA4D066C23F259740410445688ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ NG: Суперсооружения: Мегазаводы. Швейцарский
 ```bash
 magnet:?xt=urn:btih:8A659B497F015D72A95435588A10A2117B391143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Adobe Reader — программа, предназначенная для пр�
 ```bash
 magnet:?xt=urn:btih:6A5DBFEADB70B15CBCFBB629E5EFD5564FC8325B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ NG: Суперсооружения: Мегазаводы. Кока-Кола / Me
 ```bash
 magnet:?xt=urn:btih:7D72A3410F6EF40471BAFC139459428203E5A7AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ CES 2014: 500 Series AR Smart Rifle - умная полуавтоматичес�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 ```bash
 magnet:?xt=urn:btih:6215521FB452631B2642FA39E2F20AE028C9C120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Jack Daniels - виски любимый миллионами . Следите �
 ```bash
 magnet:?xt=urn:btih:D4CBF79B533EFEC4074CF4BE8D1ECF2FC27E1F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ VideoHive - 3D Text Opener - 4643087 [AEP]
 ```bash
 magnet:?xt=urn:btih:69B06C4E09F980898C754E8E0C413EA266C1CC0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1642272F832F4476A301766CC5FC779527B83B7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ VA - Сборник ТОП 100 Лучших Хитов by DFM (50/50) (2014) [MP
 ```bash
 magnet:?xt=urn:btih:5C65069F657C2FA47C18BF2B73D7AD4716C05086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D5013319FFECE702397B892F84D2BC2C9773D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ VideoHive - News Ident Pack - 4353200 [AEP]
 ```bash
 magnet:?xt=urn:btih:F5025EB5A741F8EAD5C510BE081C0DA0B34F17CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ NG: Суперсооружения: Мегазаводы. Мерседес / Meg
 ```bash
 magnet:?xt=urn:btih:B1AAE22E37847E048D71CDD71B688B528A121AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:597F012E7F59FB54449B3E753E428783305DEC15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ VA - ТОП-100 лучших песен 2013 года по версии Love Rad
 ```bash
 magnet:?xt=urn:btih:2012F7726348A334B699FC5B45C5BEAD3A860A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Zumba Kids: The Ultimate Zumba Dance Party [Wii] [PAL] [Multi 5] (2014)
 ```bash
 magnet:?xt=urn:btih:4FD2457FEF8540FD47A293127B82A8485AAEAF22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 ```bash
 magnet:?xt=urn:btih:039EF98BD5EBCA56ED8DD3967488D6F2B0817017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Leviathan: Warships – это кроссплатформенная видеои
 ```bash
 magnet:?xt=urn:btih:8C6B1A52E034F7098D0AD346CB6AA35016144822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAE9550A6FC32A794704B9545296BB045B6D7DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ VideoHive - Hot And Gold Reveal - 5121679 [AEP]
 ```bash
 magnet:?xt=urn:btih:2BEA2F2684CD2D73D7CCEFD2109E6A5E8D6F14A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A15E3A984F26CB72B1F0246749C1AA5E28716756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B70AAF05457A0094AC5990E154457F7117A79BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

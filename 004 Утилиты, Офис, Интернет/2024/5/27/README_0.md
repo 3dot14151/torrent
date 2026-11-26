@@ -19,8 +19,7 @@ MSMG ToolKit позволяет создавать облегченную вер
 ```bash
 magnet:?xt=urn:btih:9393F7AAA5D3BD97F3D3C248D6D8D09885EE48A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ EzPing 2.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:9BC1BDEE8802975F6B1343860ED394CC183C8040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

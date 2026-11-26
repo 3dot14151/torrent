@@ -19,8 +19,7 @@ Worlds Align 2: Deadly Dream (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:5ABFF71B7BF47E074F1609CEF7DFA347BDEE4816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Family Mysteries 3: Criminal Mindset / Семейные тайны 3: Прест
 ```bash
 magnet:?xt=urn:btih:D9B190195B34ADD1AD423760E52D31EE742FDADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Maze 5: Sinister Play / Лабиринт 5: Зловещая игра (2020) [Ru
 ```bash
 magnet:?xt=urn:btih:F0C1B74608EDB0FFCAF48EF7E87C069B73E6ADA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [i686] 9
 ```bash
 magnet:?xt=urn:btih:A65662CED866A712E1232AF53CD6E27E7768321A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [x86-64]
 ```bash
 magnet:?xt=urn:btih:36A55C042684BAFFD01BC12AF5ED676C4FD7D84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

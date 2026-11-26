@@ -21,8 +21,7 @@ Social Distortion — американская панк-рок-группа, с�
 ```bash
 magnet:?xt=urn:btih:AD23AA59969216C808171FA595F3D34FF2BAF0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

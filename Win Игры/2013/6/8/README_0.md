@@ -19,8 +19,7 @@ Off the Record: Linden Shades. Collector's Edition (2013) [En] RePack
 ```bash
 magnet:?xt=urn:btih:B236735D0C6CB6EB68656F793014AF8E519EA4C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Les Miserables: Cosettes Fate / Отверженные: Судьба Козет�
 ```bash
 magnet:?xt=urn:btih:38D6AF2C25DE8BC637DDE5470D5047A661DF8C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Prime World. Defenders (2013) [Ru/En] (1.0.2386 / 1 DLC) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:F1813D83C3AFDA974863142A2DFE67433792FBA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ BSPlayer - один из тех мультимедийных плееров, ч�
 ```bash
 magnet:?xt=urn:btih:1F22B4F9772AABD60A70198B38F398C876C8BD53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

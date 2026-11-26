@@ -19,8 +19,7 @@ vRGB - LED ИК Пульт Управления v4.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:6DA49B7F6752942D89A5C006F719012102BEEA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rain Alarm - предупреждает вас о актуальном приб�
 ```bash
 magnet:?xt=urn:btih:84307AC2DC8D4EC4981F5CCDB542A2BF83F9635D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SMD info v1.34 [Ru]
 ```bash
 magnet:?xt=urn:btih:8419B149864F6245BE568FB57B6AFF1C59C49D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Quasar IN-8 — это крутой виджет ламповых часов с 
 ```bash
 magnet:?xt=urn:btih:E6789765C7A32CF96F9B99E430532958DC7CA368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

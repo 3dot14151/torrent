@@ -21,8 +21,7 @@ Colormania - это продвинутая утилита для выбора ц
 ```bash
 magnet:?xt=urn:btih:6D6324FD646E9DA67EE71D1ABB7171E389996093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:07BD850CF489828C1F819CAF886C92F3377AB431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

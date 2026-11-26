@@ -19,8 +19,7 @@ SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
 ```bash
 magnet:?xt=urn:btih:54BCACB0FB9E1D111C7DB6F68BDF0234B1ADB543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

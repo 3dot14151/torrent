@@ -19,8 +19,7 @@ Aragami: Nightfall — это первое сюжетное дополнение
 ```bash
 magnet:?xt=urn:btih:A5D05825C0503C1375332323B505CEE6ACE55093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadow Tactics - реалистичный тактический стелс-си
 ```bash
 magnet:?xt=urn:btih:A4179950C9F173C2CAC00D3EB4833B5990AE95B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Agarest: Generations of War (2014) [En] (1.0) License GOG [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:D7F5BC031809E6DE5CF656162F7238184904E663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fictorum (2017) [En] (1.1.01) License RELOADED
 ```bash
 magnet:?xt=urn:btih:EC37ED93085EB37F3975EC0B1075846ED757EC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pro Evolution Soccer 2018 – триумфальное возвращение з
 ```bash
 magnet:?xt=urn:btih:56135171C4CBE6E920935D2174511CDF14950D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0upd1) License GOG [Epis
 ```bash
 magnet:?xt=urn:btih:8522C04668CFA9051E24A7DD4A16D95384416846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

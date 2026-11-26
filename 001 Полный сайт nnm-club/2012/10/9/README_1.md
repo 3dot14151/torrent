@@ -26,8 +26,7 @@
 ```bash
 magnet:?xt=urn:btih:77FEF122094F0FF7D9ED3B95672C982EDBF8AD05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Танцевальная Музыка: Music XXL Vol.2 (2012) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:67E8F80EB9397732510672A968FE1111C7E02C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BBBAE77E4BD57201327C9CC2E968380F65BDC11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38EAC623B1A8516FD8FF78BD76CCC58611060852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Marsicano - Electric Sitar (2003) [MP3|320 кб/с]<World, Folk, Instrumental, M
 ```bash
 magnet:?xt=urn:btih:5962AC1F3F6FEC747B81D02BE034E338EC2AB01F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Wellness Pur - Buddha Lounge: Meditative Entspannungsmusik (2011)
 ```bash
 magnet:?xt=urn:btih:D55A6A7F2395297889F79C8CFD0874A4D4190825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ VA - Любимые осенние хиты Русский (2012) [MP3|128-320 �
 ```bash
 magnet:?xt=urn:btih:338D99B101878F4879E137263D51834D25BD17BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ VA - Сборник Шоферских Хитов *Трасса* vol. 5 (2012) [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Glam Rock - 31 Rare Glam Rock Video (2009) VHSRip
 ```bash
 magnet:?xt=urn:btih:8EE329261606B94766AF5BBB08BEC8D0DB2FCF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<Hou
 ```bash
 magnet:?xt=urn:btih:B31B30BAFB4A8CD216454937E6F8F8758A92587C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35C4C5EDD5AB8A27BCE09E26A902F006FDE598F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ IT Expert - журнал для профессионалов в области I
 ```bash
 magnet:?xt=urn:btih:2260E73313898C6DBD3AE8E756DD9AA51DD44C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ Coheed And Cambria - The Afterman: Ascension (2012) [MP3|320 кб/с]<Alt. Rock 
 ```bash
 magnet:?xt=urn:btih:5EE4F392198D863E5B6F2BFE1915B5892443B277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ Brian Johnson - 2 альбома (1981,1982) [FLAC 2.0 24/192|image (Vinyl-Rip)]
 ```bash
 magnet:?xt=urn:btih:8B7EFE732400CE68697838D019CE41B7ACC7CA8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ VA - Хиты в тачку на прокачку! Vol. 3 (2012) [MP3|128-256 к
 ```bash
 magnet:?xt=urn:btih:F5ABABB3D0B48C5F5F1FDF51FE8FF267B1EFE633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7935C70DF301EF3DABD0F9B234AFDEAAE8EE99A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E194DD8AF76B5DD87D26B21E3025CCA41A4C6F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:156709EFBC340D70B5982678BF1E8647E43E9497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2E275627A1B42DAB0857FC48D3698022A12F234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +601,7 @@ VA - Top 55 Tracks for Cars Vol.14 (2012) [MP3|320 кб/с]<Breaks, House, Tranc
 ```bash
 magnet:?xt=urn:btih:2E5257CE57B5B8C95F340C146377F415376A8BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92667E3AA160E460599B06C410CB6B377AB8EBEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +660,7 @@ Face Off Max - программа поможет Вам сделать фото,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +694,7 @@ VA - Deep+   Vol. 4 (2012) [MP3|320 кб/с]<Deep House/Tech House,NuDisco,Vocal
 ```bash
 magnet:?xt=urn:btih:1424498C0DFF7EE227EF9BAA659D0C9D08D3142C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +728,7 @@ VA - Союз Горячие хиты №2 Осень (2012) [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:E2A85B8F541B891F17D6041DF465BF42DFCFE35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +762,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B66C2E36807F649EE477051AB3B53A81838B189B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -816,8 +791,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68023E9DF70C4844FAF9E681CE95C6F84FEE21F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

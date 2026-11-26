@@ -18,8 +18,7 @@ Strike the Blood III | Удар Крови [OVA-3] [2018, OVA, 10 ep] BDRip 1080
 ```bash
 magnet:?xt=urn:btih:82A58FC30B03EBAE1CEEC96F595760187676B271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ GeekUniversity | Факультет информационной безопас�
 ```bash
 magnet:?xt=urn:btih:A453E656D76DD95DE9B7868B3647A55CBFA2D802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Fragtime | Осколки Времени [2019, Movie] BDRip 1080p 10-bit raw+ru
 ```bash
 magnet:?xt=urn:btih:82124F0A59D37DA127794D581566A49AB437A0A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ SpaceX со второй попытки запустила к МКС свой п
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:461318143801104888CF85BBE22018952C9DFD0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4DDC30BC2E0918EAC7FA0A4874BB65101D381146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF87F145E175BE55EAF3DB79144AEA7FB877231D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

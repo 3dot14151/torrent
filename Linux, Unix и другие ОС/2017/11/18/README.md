@@ -21,8 +21,7 @@ Skype (Скайп) — бесплатное проприетарное прог�
 ```bash
 magnet:?xt=urn:btih:343D3575669A307C58887C358AAFADB46AB32B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

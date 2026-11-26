@@ -19,8 +19,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Tomb Raider 4: The Last Revelation [En] (L) 1999
 ```bash
 magnet:?xt=urn:btih:D2239B751F10048814017A3684477A00CBCDBE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

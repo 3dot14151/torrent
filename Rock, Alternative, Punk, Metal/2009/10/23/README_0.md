@@ -28,8 +28,7 @@ Viikate - Kuu Kaakon Yllä (2009) [FLAC|Lossless]<Folk Melodic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Apocalyptica - Best Symphonic Lyrics (2009) [MP3|320 Kb/s]<Cello Rock/Symphonic 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

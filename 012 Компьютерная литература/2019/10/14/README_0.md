@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:44E82768887714C8EB414FF4688AE3C5DEAF7C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Microsoft Excel — одно из мощнейших приложений пак
 ```bash
 magnet:?xt=urn:btih:79A0DB8A8F9C9C110BBAB6933C7284325E2EEBE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Elastic-стек - это набор мощных современных инс�
 ```bash
 magnet:?xt=urn:btih:BC90467614DB39DCE4D3B394A3AD441AE6A69A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC4C8482801D173797664E8D471C7CC134883634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

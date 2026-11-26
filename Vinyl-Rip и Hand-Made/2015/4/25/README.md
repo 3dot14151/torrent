@@ -23,8 +23,7 @@ Queen - The Game (1980) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Pop Rock, Classic Roc
 ```bash
 magnet:?xt=urn:btih:4E839A3808BD048268DDE74DFE13BF83483E7895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

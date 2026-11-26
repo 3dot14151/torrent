@@ -24,8 +24,7 @@ x-binary.com | Оптимизация и раскрутка сайта! [2007] [
 ```bash
 magnet:?xt=urn:btih:FBD38ED2C5B48577D06B3181188A9492470EFFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68E6CD74C71527C9580A5AD3F537C5DEF0F887BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

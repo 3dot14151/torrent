@@ -22,8 +22,7 @@ Silent Stream of Godless Elegy - фолк-метал группа из Чехи�
 ```bash
 magnet:?xt=urn:btih:949EE514903372029284757FEB44927B32FD143B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Harlott — австралийская метал-группа, образова
 ```bash
 magnet:?xt=urn:btih:1ED38E1E06E1E9B8379BB7486389ECF679E0CAE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

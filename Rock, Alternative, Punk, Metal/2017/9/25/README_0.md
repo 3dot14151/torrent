@@ -22,8 +22,7 @@ Vektor - Terminal Redux (2016) [FLAC|Lossless|image + .cue] <Thrash, Progressive
 ```bash
 magnet:?xt=urn:btih:49B20F0BA4825F8B0A4C0E7733A3B2632698EFE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Billy Idol - The best (1994) [FLAC|Lossless|image + .cue] <Punk Rock,  Hard Rock
 ```bash
 magnet:?xt=urn:btih:33A4960F8DC7016A46AEDB0A2AE75621B437E803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Twisted Sister — американская глэм-метал-группа и�
 ```bash
 magnet:?xt=urn:btih:853109D2D02A571FA637E7B9DCB688A57AFF67DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

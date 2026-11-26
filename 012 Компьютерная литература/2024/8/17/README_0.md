@@ -19,8 +19,7 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 ```bash
 magnet:?xt=urn:btih:7A31F8CB002EBD0CB976D6238E07D52DA3DF7E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Dead Can Dance - Anastasis (2012) [MP3|320 кб/с]<Ambient / Darkwave / Gothic 
 ```bash
 magnet:?xt=urn:btih:328950478CDA3DFA24F625F93B6F33E11092A528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E8B990CD180FDC853CD30560059D2DFCA11C8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

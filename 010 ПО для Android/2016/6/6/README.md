@@ -19,8 +19,7 @@ Balance BY — удобное приложение для проверки ба�
 ```bash
 magnet:?xt=urn:btih:9462A17322D151589EC81D88A16722575ACB59E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

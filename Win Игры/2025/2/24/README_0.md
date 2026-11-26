@@ -19,8 +19,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4F31ACF71C9138CAB910786076E38805167953C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Repack EXROW [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:FD6209DFC8D305BE7490826EB3C549BD49EBDF9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Amenti (2025) [Ru/En] (Build 17306708) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A1A297823065BC67C99AA6D75B75B5750F55BF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ NORCO - это уникальное point-and-click приключение в ж
 ```bash
 magnet:?xt=urn:btih:DA2FF660778F1D057B937A741CBA9BB54C374A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Shell Part I: Inferno (2023) [Multi] (1.0.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:AE5C88FF251CE2711798F646D1D0489E9FD5A23D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E9793A26D95F40F12B358E7FF52D2079E1EABFE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Shell Part II: Purgatorio – помогите детективу раскр
 ```bash
 magnet:?xt=urn:btih:63C30A3E50325B493BE719FFEF8BA41FFC9E131B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.25/dlc) Repack Let'sРlay [Year One 
 ```bash
 magnet:?xt=urn:btih:48ADFA15FC68719120D32BDC4C00B7FA592D0AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Shell Part III: Paradiso (2025) [Multi] (1.0.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DACBD286F9DFB069C8658386957D999184974B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (build 17449000) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B2249B48AEC1544013FD841022F77FEB1ACE9603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

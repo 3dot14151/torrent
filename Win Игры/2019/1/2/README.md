@@ -19,8 +19,7 @@ Transport Fever - это железнодорожная экономическа
 ```bash
 magnet:?xt=urn:btih:A3552F9042AF843DD3A3CC8B54D0597789F359C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

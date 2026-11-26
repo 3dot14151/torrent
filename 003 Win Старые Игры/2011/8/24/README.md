@@ -19,8 +19,7 @@ King's Quest: Mask of Eternity [Ru] (RePack) 1998 | Kirill Games
 ```bash
 magnet:?xt=urn:btih:33372A55049EA00F23DFE12CC2F3DEE23CCC0643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Lands of Lore: The Throne of Chaos - классика ролевых игр, с 
 ```bash
 magnet:?xt=urn:btih:388DF80543AB8BCECE349D3997CDA0A29C4873E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Pontifex 2 / Bridge Construction Set [En] (L/1.30) 2002
 ```bash
 magnet:?xt=urn:btih:FBDF4FD54CBB8D315E3B37A8BC21B38082B3B684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Far Cry Дилогия  + DLC Fortune [Ru] (Lossless RePack) 2004-2008 | R.G. Mo
 ```bash
 magnet:?xt=urn:btih:7072584B220B1877D3BA0E73199168E22969ABF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

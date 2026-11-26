@@ -21,8 +21,7 @@ Jagged Alliance: Back in Action / Jagged Alliance: Снова в деле [Multi
 ```bash
 magnet:?xt=urn:btih:A77B5407CE377F49FCE22B9EC45DAB16F1030D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Gunrox {1.31} [Multi10+/Ru] (L) 2008
 ```bash
 magnet:?xt=urn:btih:CEFD83351E88C5BF9B3715000424227D204B5D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ The Agency of Anomalies 2: Cinderstone Orphanage. Collector's Edition (P) [En] 2
 ```bash
 magnet:?xt=urn:btih:61EEE41986225C7AECDAC904EF2925D14A157C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

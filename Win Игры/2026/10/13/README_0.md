@@ -19,8 +19,7 @@ Total War: SHOGUN 2 (2026) [Ru/Multi] (1.0.0 Build 87380) Scene Rune [Complete E
 ```bash
 magnet:?xt=urn:btih:0DDC1014B45640994F0049F21D861C57EAD5284D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Valor Mortis - экшен от первого лица в жанре Souls-like 
 ```bash
 magnet:?xt=urn:btih:64D2C719708D8610D59C027FBC21F314E6F3C37C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Final Fantasy XV: Pocket Edition - это компактная адаптац�
 ```bash
 magnet:?xt=urn:btih:65CE5F292D628EF3F1EAE80E3FE5273EF7ADCA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Forza Motorsport 7 (2017) [Ru/Multi] (1.174.4791.2) Scene Rune
 ```bash
 magnet:?xt=urn:btih:29E56EA12E65B72469DB9CF74EE8A3AE06A60D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FINAL FANTASY XV (2018) [Ru/Multi] (1.1.605.2/dlc) Scene Rune [WINDOWS EDITION]
 ```bash
 magnet:?xt=urn:btih:B92EEF157916A857C2F3A6BEC651DFF5D98932F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hydro Thunder Hurricane (2012) [Multi] (1.2.0.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:FD1694EADAAF72DCAFA068A96B1CD9F19914FA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ ilomilo - это игра-головоломка, в которой игрок �
 ```bash
 magnet:?xt=urn:btih:CC28E8202261C0DFC59B4A540DDFE5D350F0F600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Project Spark позволяет не только играть, но и соз�
 ```bash
 magnet:?xt=urn:btih:BEAFAD141A793BF1F8758382AF95D0CC91E81935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Code Vein II (2) (2026) [Ru/Multi] (2.0.1.0/dlc) Repack FitGirl [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:10BF7DFBBDE8BAE07651BF7B5C14EF016BEA8C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Final Fantasy XV: Pocket Edition (2018) [Ru/Multi] (1.4.524.2) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2DE2CA7951DB9FE094860C98250530D5C1B8FF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Halo Wars 2 позволяет взглянуть на войну во всел�
 ```bash
 magnet:?xt=urn:btih:068B2566262D942C4BB1B69B8DA833F4A39A96A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Forza Motorsport 6: Apex переносит кольцевые гонки сер
 ```bash
 magnet:?xt=urn:btih:DDC6580378845FCC180CF89200E9F166A291A3F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Forza Horizon 3 (2016) [Ru/Multi] (1.0.125.2) Scene Rune
 ```bash
 magnet:?xt=urn:btih:5E6A696B4F13F6520A16026BF64D4D7855A840C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Gears of War 4 (2016) [Ru/Multi] (14.4.0.2) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3C871097FC2220F3E79935F66D0EFCF54D13541F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Crackdown 3 (2019) [Multi] (1.0.3162.2) Scene Rune
 ```bash
 magnet:?xt=urn:btih:83072C3BB02238B7E89E5B9B8CF8D06FE02971F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

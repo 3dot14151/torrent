@@ -27,8 +27,7 @@ Gingerpig - Hidden From View (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CB35AAF087CA27AD495AEC5DD4B659A3472BDB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ DevilDriver - Winter Kills (Limited Edition) (2013) [MP3|320 кб/с]<Groove Met
 ```bash
 magnet:?xt=urn:btih:0CA12EF1E58E60212B4D4D645FAB034105B04CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Robert Plant - The Principle of Moments (1983) /W.German Target CD [APE|Lossless
 ```bash
 magnet:?xt=urn:btih:FA4FF18F5AB54B58A4775E5C6765377DA79A686B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ CD1Жанр: RockПродолжительность: 00:47:31
 ```bash
 magnet:?xt=urn:btih:430C75355D320BB58993FE3A8270DEED66431505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Carcass - Heartwork (1993) FDR Remaster /2013, Earache/ [FLAC|Lossless]<Death Me
 ```bash
 magnet:?xt=urn:btih:B3746AD31E6462571A84AE91B2EB347BB70A800C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Just Now - Time After Time (2013) [MP3|320 кб/с]<Alt-Rock, Post-Hardcore, Pun
 ```bash
 magnet:?xt=urn:btih:E4DC85E5CD4FDDEEFB9344F24328C510E48572BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

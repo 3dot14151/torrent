@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:CC226598D801AF8870FD4FFAF1EEE0E088C49264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1348B7C7B60A36A4FB9FF5AA902F586E14CF051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eve’s Plum - Envy (1993) [FLAC|Lossless] <Alternative Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:49A8D14E851759A71A62F29767F324E64181F949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Interpol - This Mirror Weighs a Ton (2026) [FLAC|Lossless|tracks + .cue] <Altern
 ```bash
 magnet:?xt=urn:btih:9F54995A1A76FFF8B03BAF1D50B07CB312034701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Behemoth - I Scvlptor (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black-Death Me
 ```bash
 magnet:?xt=urn:btih:2A50F9F77C044B1FCDB3298C585E681461F57C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

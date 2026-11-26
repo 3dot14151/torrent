@@ -24,8 +24,7 @@ Void Of Silence - 4 albums (2001-2010) [FLAC|Lossless] <Atmospheric Doom Metal, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Mona - Mona (2011) [MP3|192-320 kbps]<Indie Rock / Alternative>
 ```bash
 magnet:?xt=urn:btih:AA42E3D26A996D69DFB257EC1B938CA1B5A62469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ CD1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

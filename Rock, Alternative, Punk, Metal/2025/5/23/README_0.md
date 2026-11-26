@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:F1C14DF0DFB2E2EB5026AD3C7BEB29C52501ABA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stay Away - Культ отсутствия личности (2025) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:FD52D48F28C21369DE78B493EDD9F72A00560D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Acoustic - сборник демо-записей, студийных и жив�
 ```bash
 magnet:?xt=urn:btih:BEA0639A67C3594CFBEF9E5533C8D1AB045B06BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B6F0D527E3FABB95A5BEA4C8FC0FD7DF6A8D919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

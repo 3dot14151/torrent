@@ -19,8 +19,7 @@ Warrior Kings (2002) [En] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:02766C27432D2EF718D5497004CB4EC8280AA31B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tom Clancy's Splinter Cell (2003) [Ru/En] (1.3) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:C61BBE6059BEFBFDED535103DC5B785B792155D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow (2004) [Ru/En] (1.0) Repack R.G. Re
 ```bash
 magnet:?xt=urn:btih:1525C6C32706FD0C95EA8B0D9547867657B6C0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

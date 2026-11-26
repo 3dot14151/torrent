@@ -26,8 +26,7 @@ Renaissance - Grandine Il Vento (2013) [FLAC|Lossless]<Symphonic Progressive Roc
 ```bash
 magnet:?xt=urn:btih:60BAD57CCBD070AA84962E5CA11F3868E1F44B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B2D0B036FBA28E55F721DBBF8BC9D4C2F7DDD59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ The Doors - Greatest Hits (1980) [MP3|256 кб/с]<Rock, Psychedelic>
 ```bash
 magnet:?xt=urn:btih:0D9A19D3FBB7AE8184E61AFC913F79E3A0CE1A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

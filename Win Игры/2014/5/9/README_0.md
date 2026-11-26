@@ -22,8 +22,7 @@ Hell Yeah! — это приключенческий экшен-платформ
 ```bash
 magnet:?xt=urn:btih:25E1DA55419035221892EF778109B66514DA70CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

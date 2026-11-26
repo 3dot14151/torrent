@@ -22,8 +22,7 @@ U.D.O. - Mastercutor (2007) Released, 2010, Night Of The Vinyl Dead Records [FLA
 ```bash
 magnet:?xt=urn:btih:5596CAD36DFEA7841F1C1279046B8553F04AF409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Coal Chamber — ню-метал-группа из Лос-Анджелеса, о
 ```bash
 magnet:?xt=urn:btih:41B72A56C833363BEBE51953C32867257415C412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

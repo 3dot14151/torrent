@@ -23,8 +23,7 @@ Brutto - Underdog (2014) [FLAC|Lossless]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:63E8760066852118D261EAFCDD62411049D07793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

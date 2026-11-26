@@ -19,8 +19,7 @@ Mystery Stories: Mountains of Madness (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:8729EBF4C9BAF04E28E3E9A968B555B830286290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World of Magic Machines (P) [Ge] 2011
 ```bash
 magnet:?xt=urn:btih:4AB79FC2DAEE9AF9DFCFABB759A47D03034D386D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reel Deal Slot Quest - Wild West Shootout - новый увлекательны�
 ```bash
 magnet:?xt=urn:btih:0835FC733AAE767056BBBAC2EB3CEB99751624AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Oddworld: Stranger's Wrath [Ru] (Repack/Update 4) 2010 | GUGUCHA
 ```bash
 magnet:?xt=urn:btih:0C019A5BD0D01F4C9E92959725F30618312A4F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Myths Of The World 8: Born Of Clay And Fire (2016) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:B784DAA2A1BD616D3A150D3E6406644227B5E01A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

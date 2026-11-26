@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3A1EF8CB1E1F2AFE2E1594E1EA01FFF700D9962F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Udemy, Hamid Reza Afshari | 3ds Max 2023 for Beginners (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:1D0D331CBDCEA79C1A8CC1FF2B48D463C7FC3C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0F8AEE97F12245401A707B4C667571BD84C778B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ SysAdmin Software Portable v.0.5.8.0 by rezorustavi (07.05.2022) [Ru]
 ```bash
 magnet:?xt=urn:btih:95B1C341B8909E1805648C870999F527FCD6AEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86BD89010B0EC9777F7673E736D22EB1EE969F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:764DE14746CB32E88F45E2D68C86133F50D7CA92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ SpaceEngine - бесплатный космический симулятор, к
 ```bash
 magnet:?xt=urn:btih:A7D372AD7B70484AEEB7E70CBDFCE71D0CAC383A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Udemy, YouRa Allakhverdov | Современный React с Нуля (2022) WEB-
 ```bash
 magnet:?xt=urn:btih:141401E590F01E57EC2D3583DE4B6C8D49F91340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Udemy, Md. A. Barik | LeetCode in Java: Algorithms Coding Interview Questions (2
 ```bash
 magnet:?xt=urn:btih:C27DC56C40F6DA19773940F91E0366066F0148D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

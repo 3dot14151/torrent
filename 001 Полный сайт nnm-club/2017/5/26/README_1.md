@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:AED5A65E1EBC125325B742E1522BAD01C4377F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Photo Batch поможет вам обрабатывать все ваши из�
 ```bash
 magnet:?xt=urn:btih:5CD8487A96315BD98D6B4F2D98FEEFA4078E684E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1470562C20BC636DA31B7A13E1B10ECEF3CCFE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Quincy Jones ‎– The Dude - The Dude (1981) Remaster, 1984, A&M Records [FLAC
 ```bash
 magnet:?xt=urn:btih:73DF9E151AC53B99B3A6B99626438C5197A22BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2FF31F8267CEEBBBB5C51477BFC94459A6CEFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ VA - Jazz Dictionary T (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:9411A5E4D85A797ED8E6FB60050219AC3CD00BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AD22184BF87EF800C127EDFF9ACD562BC55F6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Selwyn Birchwood - Pick Your Poison (2017) [FLAC|Lossless|image + .cue] <Blues-R
 ```bash
 magnet:?xt=urn:btih:36267CB6B7DE8DBD43CD95E75BDB9C80C1EF3ADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D307237285E5C5A53698E328370CC8A4FAD4F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ VA - Jazz Dictionary I-1 (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:7ADB059D5A82DA5161D2680A8A8811EF31424164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ The Tee Cee's - Disco Love Bite (1978) LP [MP3|320 Kbps] <Electronic,Funk-Soul, 
 ```bash
 magnet:?xt=urn:btih:13A2B96D839759E538C8CC30CDF01D8B7001ADF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Occams Laser - The Four Horsemen (2017) EP [MP3|320 Kbps] <80s, Darksynth, Retro
 ```bash
 magnet:?xt=urn:btih:C2AB5D35C93437E948B495CA77E8CE91C9DF687A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Sublime Text не является свободным или открытым п
 ```bash
 magnet:?xt=urn:btih:D19666FF1D39386F6374AAAD2DACED21884F58FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Circular Studio  веселое приложение с мощными новы�
 ```bash
 magnet:?xt=urn:btih:64EC47BA9362551D044C2A96612BE26C4D440AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C945E97C936239B371A778D5877420FE5DDA35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5545E97F3FD92726BD65C94B45800939D92CF471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Records использует ряд macOS функций и технологий
 ```bash
 magnet:?xt=urn:btih:34CAC128B6D77E1ECEF9B7D13A057C77B9CB1E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99374474C05B7FA9365C4033C6F718A556A9D979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69106540B61D5B04316C98DB30228E9C2363A751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24DA08B33AC1DC9C66A72D7824C682B954C2AD8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:070DF2AED8891405DF52EA8C56622BAC5C2065C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richt
 ```bash
 magnet:?xt=urn:btih:27117DA459CC6D3842820E0718277DEDB09D227A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60F8A8ABDF5E324843B27F08E10968CB1C37B4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ VA - Новая Русская Дискотека Vol.7 (2017) [MP3|256-320 Kbps
 ```bash
 magnet:?xt=urn:btih:C1C511B75C4C86F37A5B66121E777583B1E15636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ VA - Душевный сборник Русского радио. Версия �
 ```bash
 magnet:?xt=urn:btih:2C93EAD9AAEB914EB91BD150CE4C603758CB6B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ VA - Workout Music 2017 Pilates Yoga Deep House Edm Top 100 Hits DJ Mix [MP3|320
 ```bash
 magnet:?xt=urn:btih:282C31C26279A84D3BEFA705F007B30957B3E6A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

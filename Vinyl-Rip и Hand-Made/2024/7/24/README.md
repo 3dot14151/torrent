@@ -22,8 +22,7 @@ Kiss — американская рок-группа, основанная в �
 ```bash
 magnet:?xt=urn:btih:08B0AE4571FBE4AFBF873A19A576B501E69A5561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

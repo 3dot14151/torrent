@@ -28,8 +28,7 @@ Profusion - Rewotower (2012) [MP3|192-320 kbps]<Progressive Metal>«Сделай
 ```bash
 magnet:?xt=urn:btih:6E4F03D81F8BED34B3A70D14FF0FAB02032BB469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Dark New Day - Twelve Year Silence (2005) [MP3|208-232 kbps] <Rock/Alternative M
 ```bash
 magnet:?xt=urn:btih:D27954592A0C307A8C8709557630C6F3A37762DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Anachronaeon - The Ethereal Throne (2012) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Of Montreal - Paralytic Stalks (2012) [MP3|320 kbps]<Indie Rock / Indie Pop>
 ```bash
 magnet:?xt=urn:btih:87ADDBFA8F0691D2B064743E9BD81639468CBE0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ CraVing - CraVing (2012) [MP3|320 kbps]<Melodic Folk Black Death Metal>«Сде�
 ```bash
 magnet:?xt=urn:btih:C219AA233EA110A216AE3AA6381F5D539BBE7C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Ancient - Night Visit (2004) [MP3|320 kbps]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:9026046C20C8C2830F73B1244C90590690B6DD00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Metallica - Greatest Hits - Part I, II (2008) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Led Zeppelin - Greatest Hits (2007) [FLAC|Lossless]<Hard Rock, Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ Deep Purple - Greatest Hits (2008) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +380,7 @@ The Beatles - Abbey Road Remix (2005) [MP3|320 kbps]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:874D2467E4F78CD1082ED8D4D113C58CE99013F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +414,7 @@ Procol Harum - The Best (2001) [APE|Lossless]<Art Rock, Psychedelic Rock, Progre
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +448,7 @@ INXS - Original Sin (2010) [MP3|~228 kbps]<Rock\New Wave>
 ```bash
 magnet:?xt=urn:btih:18C296E0CD68BAB36B44CC517254C502B677CB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

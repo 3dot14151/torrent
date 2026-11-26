@@ -19,8 +19,7 @@ A Hat in Time (2017) [Ru/Multi] (59270/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7E2A65A7C9C91F3ED77EA23C8CB306FFFC44FC42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mutant Football League: Dynasty Edition - это адски брутальный
 ```bash
 magnet:?xt=urn:btih:C5F19572D25C17B2ED3C54BBAA504A876EDC743A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MythBusters: The Game - Crazy Experiments Simulator (2022) [Multi] (1.0.88) Lice
 ```bash
 magnet:?xt=urn:btih:DBF8A20D5E2822A1A8F5E340FEE7A7266757A034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

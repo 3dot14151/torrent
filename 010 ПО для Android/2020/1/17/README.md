@@ -19,8 +19,7 @@ MPC MACHINE - Sampling Drum Machine Beat Maker 1.36 [En]
 ```bash
 magnet:?xt=urn:btih:D260E000F0614384F41173B6D5CBC327E8BD92B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cheat Engine - Думаю многим знакомо название этой 
 ```bash
 magnet:?xt=urn:btih:F3D74582EE22540B77C73CCC8F5916516B550E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Calendar+ 1.08.58 (Paid) [Ru/Multi] - Календарь
 ```bash
 magnet:?xt=urn:btih:4FE1E753EBE302557F1B7B9F81C9098AF220A182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

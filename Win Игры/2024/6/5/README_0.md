@@ -19,8 +19,7 @@ Succubus (2021) [Ru/Multi] (14521061/dlc) Repack FitGirl [Ultimate Edition] [18+
 ```bash
 magnet:?xt=urn:btih:9249C1BDCF027917E27F258625D0BA01BC40B415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alien: Isolation - ужастик от первого лица с элемент
 ```bash
 magnet:?xt=urn:btih:E0FE21B7B5CC813147D75DC64C75655967DCA4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Repack FitGirl [Legate Editi
 ```bash
 magnet:?xt=urn:btih:2B9E2DED279E73B701AFD8CD4318137FD5AAC3A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.8.0/1.1.3.0/dlc) Repack FitGirl [Comp
 ```bash
 magnet:?xt=urn:btih:CC472D398D1434184C7BC08E58ABA88A1E76DE5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Call of Duty: Black Ops - седьмая часть знаменитой сер�
 ```bash
 magnet:?xt=urn:btih:01BB0705A8534E6CE8F113A52214EA0A23EC5BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Medieval Kingdom Wars – глобальная стратегия в реаль�
 ```bash
 magnet:?xt=urn:btih:7743B27E0E5A9766F600C3F64910F8E96695F25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mercenary Battle Company: The Reapers бросает вас в неистову�
 ```bash
 magnet:?xt=urn:btih:23F63B7830212AE02B7F641B76E15F8E723CBA8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 ```bash
 magnet:?xt=urn:btih:422AFD139DA244A4F048FAFEDEDD44C84D03B7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Tribe Must Survive погружает геймеров в мрачные в�
 ```bash
 magnet:?xt=urn:btih:A35C7E1A37DE77B246F5AC6176AF7F5AA021A2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Noctuary - сплав визуальной новеллы и приключен�
 ```bash
 magnet:?xt=urn:btih:08819F9E24D0A9789D9B4B8698C1E7FD3AE99C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Crysis: Warhead - продолжение приключенческого шут
 ```bash
 magnet:?xt=urn:btih:D3990DE01AFC8560EE7D67C84D5572939B68B5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Leviathan's Fantasy - это игра-симулятор, в которой 
 ```bash
 magnet:?xt=urn:btih:8D1AD84E5A0000E10812779949754565E394008D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ECE3D51F9AF57634F304E5AC2389C5AE10EE74F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ SAMURAI WARRIORS 4 DX - слэшер, предлагающий не только
 ```bash
 magnet:?xt=urn:btih:0F8E95FE4FA635DFDA09FF0F974C38B3C307E62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

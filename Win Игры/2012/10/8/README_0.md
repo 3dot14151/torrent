@@ -21,8 +21,7 @@ The Misadventures of P.B. Winterbottom - это приключенческая �
 ```bash
 magnet:?xt=urn:btih:C1774B71B38D1141EB1C75C6EDE40320C21162FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ FIFA 13 [En/Ru] [Crack] 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:11948DE82A140DB0A093248B8EB83908A2FAD794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

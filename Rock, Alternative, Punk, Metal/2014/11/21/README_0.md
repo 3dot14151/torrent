@@ -27,8 +27,7 @@ Postmortem - The Bowls Of Wrath (2014) [MP3|320 кб/с]<Death 'N' Roll, Death M
 ```bash
 magnet:?xt=urn:btih:BEE0404412BDFA49D4882B6E03D55AAA120F0EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Zaklon - Nikoli... (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:51B7B620B58B828AA579FA23188220E2594F02D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Starkill - Virus Of The Mind (2014) [FLAC|Lossless]<Symphonic/Melodic Black/Deat
 ```bash
 magnet:?xt=urn:btih:C4D23F2FCDD9C0E4804F705B12AED86208BAB939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Maggie Bell - Suicide Sal (1975) Reissue/1997, Repertoire Records [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:CEF0242D501F85A7711F405A2596203612213F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:6DB03FF1A8343AD9111D417544DF00338DD9E527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Valentine - Bizarro World (2014) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4F42D88676C59F3504426A879B84D958B5B0C010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Bonus tracks:
 ```bash
 magnet:?xt=urn:btih:2527E2B343F545CF2BB48F7A65579E69C39B84A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Simon Phillips - 2 Альбома (1988-2013) /1988, 2013, Food For Thought Reco
 ```bash
 magnet:?xt=urn:btih:6243993B13E4116D551A9BAC66EA5C18F67F089C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Sepultura - The Mediator Between Head And Hands Must Be The Heart (2013) Limited
 ```bash
 magnet:?xt=urn:btih:8E93BF52E585D5C7E5F5E8E29089086B807CD601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Crazy World of Arthur Brown - Zim Zam Zim (2014) [FLAC|Lossless]<Psychedelic Roc
 ```bash
 magnet:?xt=urn:btih:1E0A926C5EFD2BC880247F7552C4E806BBF2D1A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Valentine - The Queen Album (2014) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:47192BB53A4B1F5A08DB3AFC92D35156F1AB71D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ Emigrate - Silent So Long (2014) [MP3|320kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:F558D0978361AF07341235B4CA63E2E26C738962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ Sting - The Last Ship: Live At The Public Theater (2014) Live [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:C311E4DFEB824BBCEDA5B10A18F7D147FE098240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +463,7 @@ The Duskfall - Where The Tree Stands Dead (2014) [MP3|320 кб/с]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:3C765E8710CAC27633BFD1188D4241CF0F9476C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +491,7 @@ Bryan Ferry - Avonmore (2014) [FLAC|Lossless|WEB-DL]<Rock>
 ```bash
 magnet:?xt=urn:btih:65D169174C5843412B5A227474279EA8600A224F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +525,7 @@ Sepultura - Minisserie Dupla Identidade (2014) [MP3|320 кб/с]<Groove Metal, T
 ```bash
 magnet:?xt=urn:btih:A28C04357F509C2CD4BB31E29F615268F55DFC59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +553,7 @@ In This Moment - Black Widow (Best Buy Deluxe Edition) (2014) [FLAC|Lossless]<Al
 ```bash
 magnet:?xt=urn:btih:5172BB727AA955E910DC02A6722C320855F96D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

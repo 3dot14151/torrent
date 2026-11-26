@@ -20,8 +20,7 @@ Opera Crypto Browser 108.0.5067.28 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3B68E2D7623CBFCB5AF79D50659D0D847843B78D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sleipnir - быстрый и надежный браузер на базе дв�
 ```bash
 magnet:?xt=urn:btih:80B18053269F50B426EBB33A42EA8DACAC79ED86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

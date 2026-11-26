@@ -28,8 +28,7 @@ VA - Styles Clubbing One (2013) [MP3|118-320 кб/с]<House, Tech, Progressive>
 ```bash
 magnet:?xt=urn:btih:56976F4CB5633669EA42120167F6E1AA97715759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D7243593D0E20010BA5CEBA26F8766072F7477C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Mallet - Quarter to Freedom (2013) [MP3|320 кб/с]<Classic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7D8B93250A6BA8D01914F9783503A701BE09BAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Fatality – Hostage Mind (VIP) / Biosystem Contact (2013) [MP3|320 кб/с]<Dru
 ```bash
 magnet:?xt=urn:btih:F9B9D4B0DE37E5CA1C4998AFC6188AEB302E7099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ VA - A State Of Vocal Trance Volume 21 (2013) [MP3|320 кб/с]<Trance, Upliftin
 ```bash
 magnet:?xt=urn:btih:9911A1D3697EF617B4688A116B70B101B417FE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ MP3Жанр: Groove Metal / Thrash MetalПродолжительность: 00:4
 ```bash
 magnet:?xt=urn:btih:6E27D41DEA42F008B03285100A6994949898D03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50F9EA990C5188C5387476760E34EA336D494269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ VA - Trance Central 004 (2013) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:55055995339C3DCDF463CBA2DC7DA8EEB1772539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ VA - 50 Tunes House Volume (2013) [MP3|320 кб/с]<Club, House>
 ```bash
 magnet:?xt=urn:btih:7098A0A5A95D1C9643C41CA3D9DB8294B7C8CAA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0483EFF51CB473AA7764898092BA13176C3AA434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ Iro Haarla - Vespers (2010) [FLAC|Lossless]<Jazz, Modern Creative>
 ```bash
 magnet:?xt=urn:btih:AB5CAD9E81FE9C75E8F010A01421512CFF05D11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ VA - Vocal Trance Collection Vol. 102 (2013) [MP3|320 кб/с]<Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:1706F4253EDDA24C98C6E69A0B933D3329B76A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +403,7 @@ Copyright (c) vk.com/mariobasanov01. Lonely Boy - Shut Your Mouth (Original Mix)
 ```bash
 magnet:?xt=urn:btih:4B70548918D38D92AA2ACBD3BA71CC6292830104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +437,7 @@ Various Artists - The Melting Pot Chronicles Part 1 (2013) [MP3|320 кб/с]<Dru
 ```bash
 magnet:?xt=urn:btih:6327D50A48DE7D3DDDEDEBBACBAB16264C561BC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +465,7 @@ Lung - Wait Less Suspence (2013) [MP3|320 Kbps] <Drum & Bass, Experimental, Hous
 ```bash
 magnet:?xt=urn:btih:4EBE6DE06AF3AE8BB43557D2BDF031F077F84C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +499,7 @@ VA - Extreme Remixes Down (2013) [MP3|320 кб/с]<Club, House, Progressive>
 ```bash
 magnet:?xt=urn:btih:8CE4A608B40AE0CBA1F92EB8406796A4172D2910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +533,7 @@ Gad - Меняет (2013) [MP3|320 кб/с]<Rap,Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0B053954F07113E84EF6D259338CD9F72AE461DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:598E708CF2804D97AFA8D519222969C007FCB730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:282120E4F044548DA885176001C44EBC1EA59470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC9127528A775B5A876F2962D702AACEC2EA5C16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F88BBF96218A5C8468F9688240527069C875800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F41A0C5E02DAB7933A14F850853A1E798AB0A850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:051C10F2E37D29496A287F8AD07D6BDAAA49A6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1AA9716D70BADA1A9C5A0C396A6DD81CF36A58A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +759,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8D554A0C61CA53621B911646268E0F05197CA4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

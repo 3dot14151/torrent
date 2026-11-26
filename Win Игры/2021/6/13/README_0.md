@@ -19,8 +19,7 @@ Vengeance. Lost Love / Возмездие. Потерянная любовь (20
 ```bash
 magnet:?xt=urn:btih:CACC39CC12E6AAAB83E8DBE58A9D45A28EC7E62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spirit Legends 5: The Aeon Heart / Легенды Духов 5: Сердце Э�
 ```bash
 magnet:?xt=urn:btih:5A0CF406CF65BFD6FC9452F6CDFB50E56BFD26F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Bastion — ролевая игра с принципиально новым в�
 ```bash
 magnet:?xt=urn:btih:0FAFF4C609BC881EA3751DB82A0A60C335B8CB5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

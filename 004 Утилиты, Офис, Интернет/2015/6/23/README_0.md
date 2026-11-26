@@ -19,8 +19,7 @@ JetBoost 2.0.0.67 Portable by Killer000 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1A5AF3B09F1971454F6208501547EA98F5DDDF6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

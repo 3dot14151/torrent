@@ -28,8 +28,7 @@ Panic Room - Skin (2012) [FLAC|Lossless]<Progressive Rock, Crossover Prog, Femal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Testament - Dark Roots Of Earth (2012) Deluxe Edition [MP3|320 кб/с]<Thrash M
 ```bash
 magnet:?xt=urn:btih:0055484BA7D577A1BD4A6F54CA9602C24D7692E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

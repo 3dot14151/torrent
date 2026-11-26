@@ -23,8 +23,7 @@ Raum Kingdom - Raum Kingdom (2014) EP [MP3|320 кб/с]<Post Metal, Sludge, Doom
 ```bash
 magnet:?xt=urn:btih:7E970D2FE96B163729914E590D7033162D44DF0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Shroud of Distress - Be Happy (2011) EP [MP3|320 кб/с]<Depressive Post Black 
 ```bash
 magnet:?xt=urn:btih:2080670CB4250F07D6125CE69CBD9D499FDEAB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Grudge Connection - Animachine (2015) [MP3|320 кб/с]<Death Metal, Industrial>
 ```bash
 magnet:?xt=urn:btih:72920CF86DAFC0C89933D52CE99C73B391D6929B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Raining Forest - Buried My Heart At Wounded Knee (2013) [MP3|128 кб/с]<Ambien
 ```bash
 magnet:?xt=urn:btih:AEE3FF313818A526D977CBE39C9C586137E9DCDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Sylosis - Dormant Heart (2015) Limited Edition [FLAC|Lossless]<Melodic Death/Thr
 ```bash
 magnet:?xt=urn:btih:8B3375FACCD680E82B80159D505B880DE3D1EE3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D80E6C1CA46EDF617A318D723CB06C295A167288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Funeral for a Friend - Chapter and Verse (2015) [MP3|320 кб/с]<Alt.Rock / Pos
 ```bash
 magnet:?xt=urn:btih:EC23833282D6FD7CA18D01DD22B71AE24FAF40F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +245,7 @@ Night Demon - Curse Of The Damned (2015) [FLAC|Lossless] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A0C86B994CAE2A9BE1DF4101683AAF25CA108B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Venom - From The Very Depths (2015) [MP3|192 кб/с]<Thrash Metal\Speed Metal>
 ```bash
 magnet:?xt=urn:btih:9422A6B09F02F0CAA8275BE95EB73345C25FBB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ Eskimo Callboy - Crystals (Single) (2015) [MP3|249 кб/с]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:81B2D27C4619C96A730C64D2F5B93C142A6A8148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +338,7 @@ VA - Rockin' Bones. Red Hot Rockabilly (2013) 3CD [MP3|256 кб/с]<Rock'n'Roll,
 ```bash
 magnet:?xt=urn:btih:47A122D8ED77C8BF3830F4D17CAAF7063FCB591F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

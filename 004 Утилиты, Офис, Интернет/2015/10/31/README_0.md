@@ -19,8 +19,7 @@ Raise Data Recovery for FAT / NTFS - две программы предназн�
 ```bash
 magnet:?xt=urn:btih:026B571A44FB4BB2B2546703028865F58442F491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Poedit - это кросс-платформенный инструмент ре�
 ```bash
 magnet:?xt=urn:btih:047EE5BA1193A6A7C25259F364D48D7FCA28AD38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

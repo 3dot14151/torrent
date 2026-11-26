@@ -22,8 +22,7 @@ Catharsis - Зеркало Судьбы (2019) [FLAC|Lossless|image + .cue] <Pow
 ```bash
 magnet:?xt=urn:btih:6B32C9A8C82196C9F7E89204BB1D21D5FBBFC390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

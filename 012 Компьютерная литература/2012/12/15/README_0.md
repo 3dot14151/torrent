@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:615A7CC10276790239D6D070495FEE949F677C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Acronis | Acronis True Image 2013. Руководство пользовател
 ```bash
 magnet:?xt=urn:btih:F1341C674875F0016F3CAEC4D4F10621A771C8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

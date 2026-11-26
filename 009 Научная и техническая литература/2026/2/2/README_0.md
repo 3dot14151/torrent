@@ -19,8 +19,7 @@ P. Grohs, M. Holler, A. Weinmann | Handbook of Variational Methods for Nonlinear
 ```bash
 magnet:?xt=urn:btih:31C5C309378FED9BE253E2FDB2FB629295CD8638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

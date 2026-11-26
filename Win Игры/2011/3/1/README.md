@@ -19,8 +19,7 @@ The Stroke of Midnight / Ровно в полночь (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:662E5043BDE73AF9BA732FEDB1990CA83A09B473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Casebook / Детектив Бертон Трилогия [Ru] (Lossless Repack)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

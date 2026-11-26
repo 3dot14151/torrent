@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:FC27B2769F203B0BD2049724F5AB078DD76A381D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D49BE98045517C424B88CB9806B10CBFFF7B729A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ PDF-XChange Viewer - отличная программа для чтения и 
 ```bash
 magnet:?xt=urn:btih:AC2310A08966836D909E3A3DA51E590C2E55BC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:741BBF3885F1CB3FCE3035227C76E91D0CAEBA72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Puzzle Image Gallery - галерея изображений с перехода
 ```bash
 magnet:?xt=urn:btih:5787216B88F41B85A89E32797EE68E1A0D17AF8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F9B29C45839B6AF9DF6C0C03441302071CB6DCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRi
 ```bash
 magnet:?xt=urn:btih:B8E5E0FDF772D65D9BF64586D03A5F721383B5D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Flat Christmas - этот шаблон является приветственн
 ```bash
 magnet:?xt=urn:btih:CC4944AB89088BF1DC749F51A986AEC251B6FE93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ WinterizeMe - с данным экшеном у вас есть возможно
 ```bash
 magnet:?xt=urn:btih:E8F004ABE6F517EA1496AFD35BF56475D1014557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Avira System Speedup - это универсальный набор инстру
 ```bash
 magnet:?xt=urn:btih:2C1D4D019E93DCBA21E7025C546BA5D6005C6435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Puzzle Slideshow - слайд-шоу "Головоломка" -  красивы�
 ```bash
 magnet:?xt=urn:btih:907965E63E6808A4B8B0A58824BD8C7433119859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Skies - с данным экшеном у Вас появилась возмож
 ```bash
 magnet:?xt=urn:btih:268D039A642930E5CDB8FEA7739B38645F35B860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ The Rolling Stones: Havana Moon (2016) Blu-ray [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:BFD9844E8AA4695A815803048B93D6A6B9A24562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69DA077C5B6D4A72065C0BAD504593856475B4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Televis
 ```bash
 magnet:?xt=urn:btih:21FDF88CB5AF4687759C2A065AB0C9B368970E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ Soft Organizer 6.05 RePacK by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B5BB3ACC8609275BD1C88DE9D6325D2A08220E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAE8310376A5D310F01D594092C96B13FADF7C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70DF6B525227888749A2F6F02EAB2CBE39724583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2B84E34577881DC6A3BCCC41A40DDDCA39EBB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5349B0FCD6D230D0A906C685B0D832FD26B02181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7BC8B1E6DC9CFFD9175688113E7B0FD67245C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRi
 ```bash
 magnet:?xt=urn:btih:342A984C2061BC82B4097B5D41442ABC753C62A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:312049ECCE6F13AFBD3A96A04F5894C9D6B2F050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ Russian Money - Nothing for You There (2016) [FLAC 2.0|44.1/24|tracks|WEB-DL] <B
 ```bash
 magnet:?xt=urn:btih:0A7779C04F2EAF3BFA1732B3A494DD4F3FAA4DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ Antonio Vivaldi; Il giardino armonico - "The Four Seasons"
 ```bash
 magnet:?xt=urn:btih:86C33BD11339D82AB85761C8BEFFA669F3857878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

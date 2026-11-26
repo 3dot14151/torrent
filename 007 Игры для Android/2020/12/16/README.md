@@ -19,8 +19,7 @@ Garena Free Fire: Безумие v1.56.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:861E196BB0E3412DE07046B1C0E9A4B716B64826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Max Payne Mobile - увлекательный экшен-шутер на Анд�
 ```bash
 magnet:?xt=urn:btih:2510AC73BE5DEBB78B58C25B7F6619120344E21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

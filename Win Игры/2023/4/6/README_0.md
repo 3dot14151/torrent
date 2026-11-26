@@ -19,8 +19,7 @@ Oxide Room 104 — это сочетание экшена и жанра «эск
 ```bash
 magnet:?xt=urn:btih:B2CF95CA46947EBECD3C37F068EEF42396311E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

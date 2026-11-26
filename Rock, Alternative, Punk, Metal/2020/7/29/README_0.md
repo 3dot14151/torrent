@@ -22,8 +22,7 @@ Longing for Dawn - Between Elation and Despair (2009) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:1AD8CCBFFFAF923770B817BDC898264FF5160FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mar de Grises - Streams Inwards (2010) [FLAC|Lossless|image + .cue] <Melodic Dea
 ```bash
 magnet:?xt=urn:btih:0A1F9AE7C77CF0E1022286AE44CE842960E5844B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Martriden - The Unsettling Dark (2008) [FLAC|Lossless|image + .cue] <Melodic Dea
 ```bash
 magnet:?xt=urn:btih:666F348950D1922A98BA20DD5A8196BBCB13A5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Alberto Rigoni - Odd Times (2020) (feat. Marco Minnemann & Alexandra Zerner) [FL
 ```bash
 magnet:?xt=urn:btih:10309D8AE08D1BF6C5C409BD2E504C0786F829A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Stilema - Utopia (2020) [MP3|320 Kbps] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:0B39C53C5E509AF9BCCE59EF5146F1A37450A1AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Rock Classics Rock Anthems Rock Hit Rock Legends (2020) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:7B0B1D27359A48E03A5ABFDA018593CFE79CC850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Prince of Persia Classic 2.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:C84CADC1B81CCF793D87B4D486417DB544C9AD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

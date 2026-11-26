@@ -19,8 +19,7 @@ Hobby Farm (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:E6E3BB5E03AE466CE103EC897C9ED05B03C2BE2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Redrum - игра для взрослых. В сравнении с кинема
 ```bash
 magnet:?xt=urn:btih:15631F879215E1F6C08C5A1F4E2582815C233FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Anne's Dream World / Желатинки: Страна грез (P) [Ru] 2009
 ```bash
 magnet:?xt=urn:btih:18119A01E4EBE52E83AFBA276EE6DD26E97BA557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Avalon Legends Solitaire - пасьянс в сказочной атмосфер
 ```bash
 magnet:?xt=urn:btih:0BA678B2C607555D96AE6836BE0D405A37B97E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fix-it-Up 80s: Meet Kate's Parents / Починяй-ка. Знакомство �
 ```bash
 magnet:?xt=urn:btih:A1E4C5EF630A44537DCA4FA8B1B8E46A3F489FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA5FA4BD30843CBCD409674041AC39DEC01043FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Dracula 3: The Path of the Dragon. Part III / Дракула 3. Путь дра�
 ```bash
 magnet:?xt=urn:btih:28AD8551CD5661DFAE9989795B875ABA11B7793C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Pioneer Lands / Покорение Америки (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:6ECD5D430E26D7923713373FC2290EE84CF6E833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Twisted Lands: Insomniac / Гиблые земли. Бессонница (P) [Ru
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E915E47362CD1B3550498AA0C27B73993235143F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Crazy Chicken: Tales / Морхухн. Тайны заброшенного за�
 ```bash
 magnet:?xt=urn:btih:030013CF11F607A3340B4430F57A8DAA71D24649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

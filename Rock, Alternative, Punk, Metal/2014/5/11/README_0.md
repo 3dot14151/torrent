@@ -28,8 +28,7 @@ Vengeance - Back in the Ring (2006) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A60D46E2F2A6300A24ABADBAAFFD5DE0FEBB38FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Goliath - Goliath (1970) Unofficial Release /2004, Estrella Rockera/ [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:3C7EACE55D157C640CED77D70758A9078FCD43D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Asgard - In The Realm Of Asgard (1972) Reissue, Remastered, Unofficial Release /
 ```bash
 magnet:?xt=urn:btih:D8627A3AA723DAB96D749B4DCFCD3AC5B7F24B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Gass (feat. Peter Green) - Gass (1970) Reissue /2006, Retro Disc Int/ [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:ED187551B48451C83E89C9A84C09874009E1FBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Warm Dust - And It Came To Pass (1970) Remastered /2005, Second Life Records/ [F
 ```bash
 magnet:?xt=urn:btih:D2EDE55C24385F2F358D1B79957BE64961726152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Buzzcocks - The Way (2014) [MP3|320 кб/с]<Alternative Rock, Punk>
 ```bash
 magnet:?xt=urn:btih:C661DAC7406AB671D8FEDBA87525754B996FEE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Unrepentant Geraldines - четырнадцатый студийный альб�
 ```bash
 magnet:?xt=urn:btih:8CBC5126EBE0D511C761933B0E9367732EF0B626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ The Clash - Hits Back (2013) 2 СD [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:3E9B23CCF585C3DD089E146E9E19C8D3128490A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Peggy's Leg - Grinilla (1973) Reissue /2001, Kissing Spell UK/ [FLAC|Lossless]<G
 ```bash
 magnet:?xt=urn:btih:19DE20A4C70A088E77EC49F3A8C7E4E376934217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Coverdale. Page - Coverdale. Page (1993) [MP3|320 кб/с]<Rock, Blues Rock, Har
 ```bash
 magnet:?xt=urn:btih:567E8328A6BBFF3F76E3AF780A26F602D79F16B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +347,7 @@ Sinister - The Post-Apocalyptic Servant (2014) Limited Edition [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:EE9C50FCEFB0B3DF15894B9CC4524B84B8C3C1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

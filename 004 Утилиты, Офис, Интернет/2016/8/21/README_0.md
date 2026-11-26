@@ -19,8 +19,7 @@ USB Disk Ejector — это отличная альтернатива систе
 ```bash
 magnet:?xt=urn:btih:761F97EDCBB4A038B2B43C2B7D871FAF3C7890AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hamster PDF Reader — это простая, но в тоже время мощ
 ```bash
 magnet:?xt=urn:btih:B77A885DE2ADF2DC5CC9E2A0CEBAF5B3C2564457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

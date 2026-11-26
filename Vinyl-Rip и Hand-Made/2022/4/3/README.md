@@ -22,8 +22,7 @@ Phil Collins & Genesis - Collection (11 Albums) (1981 - 2010) restored, declippe
 ```bash
 magnet:?xt=urn:btih:265FC7EDDC3705EE2B5C48647E1EA823F44A1131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

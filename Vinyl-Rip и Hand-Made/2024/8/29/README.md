@@ -21,8 +21,7 @@ Jani Liimatainen - 2022 - My Father's SonЖанр: Symphonic/Power MetalПрод
 ```bash
 magnet:?xt=urn:btih:17C84E35F459D6CBE74AA77DC64E4DA661623C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

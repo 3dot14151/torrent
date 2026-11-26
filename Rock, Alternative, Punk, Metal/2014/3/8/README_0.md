@@ -28,8 +28,7 @@ Kirk - Masquerade (2014) [MP3|320 кб/с]<Melodic Progressive / Power Metal>
 ```bash
 magnet:?xt=urn:btih:4330828A415DFCEE813B263D14EF42571450DA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:471273A3D9E5571769142895F9623137B0BB5ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Don Airey - 4 Albums (1988-2014) [MP3|320 кб/с]<Hard Rock / Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:058B479B78FAC647382035DDD3116436810C745D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:A882366EF37601569EBB8DE24D0A0CA70F9E8468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Poison - Icon (2013) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:CC7315446216D13789C0689222466C77D81EED01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Poison - Icon (2013)  [FLAC|Lossless]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:38861573FA0C9C29730F91D26373881757C558BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ A.C.T - Circus Pandemonium (2014) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:8D62B4203C04756B8C0C2A545D2BE6D04B379B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB8E391F790247F4F53DC6B3FCC97FB9741D0A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Architects - 6 Альбомов (2006-2014) Дискография [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:780AC2FD8A9B8B1248B33947CE7E720329391038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

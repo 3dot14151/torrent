@@ -22,8 +22,7 @@ Tedo Stone - Marshes (2015) [FLAC|Lossless|tracks] <Folk Rock, Country Rock>
 ```bash
 magnet:?xt=urn:btih:6C8E331CE168BE207E76EEDEE92D81EE81504F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dawn Of Memories - Unwritten Endings (2016) [MP3|320 Kbps] <Progressive, Melodic
 ```bash
 magnet:?xt=urn:btih:1401991B42A1F38E61BE94A897D9F0727DF3AE98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Off The Cross - Divided Kingdom (2016) [MP3|320 Kbps] <Alternative Metal, Extrem
 ```bash
 magnet:?xt=urn:btih:4DE1AB9FC1DEE75CB5C6FC01F684EB2109002784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stick Men - Prog Noir (2016) [FLAC|Lossless|tracks + .cue] <Eclectic Prog>
 ```bash
 magnet:?xt=urn:btih:33BD38F543AA805920C7985ECC1153809886A6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dead Days - Start Over Again (2016) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:803BEF0E7F6A92A47984B030DC147071C7DF7734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Through Fire - Breathe (2016) [MP3|320 Kbps] <Alternative Metal, Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:9F42901E1B5650D29D79DD9D97AC00A3CCB19717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Black Top - Cherry Picking (2016) [MP3|320 Kbps] <Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:1E75700FC0084A33B7D4591E1C858EFC814B0C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Plini - Handmade Cities (2016) [MP3|320 Kbps] <Prog Rock, Progressive Metal, Ins
 ```bash
 magnet:?xt=urn:btih:C254C9A4DEA86539D55E26D3DF22D52AE23C24EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Silence Broken - The Pendulum Effect (2016) [MP3|320 Kbps] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:BB3E80FD8BF8A720AB81F76C2103A80DB707C803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Styx - Edge Of The Century (1990) Japan Mini LP SHM-CD, 2016 [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:3D17C65D8107C6A2735694DA73453E92690A93B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Trans-Siberian Orchestra - The Ghosts Of Christmas Eve (2016) [FLAC|lossless|ima
 ```bash
 magnet:?xt=urn:btih:E8ABB5DBFD3FBA7C97A9B3797A70BBE5CB9E36B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6AFA0F0D0AF60A939203CD3FBF154A04474B937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Spotify — один из тех счастливчиков, которые, н�
 ```bash
 magnet:?xt=urn:btih:CF731D73D9AFA005CD424498F3DF8783CE55A5BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

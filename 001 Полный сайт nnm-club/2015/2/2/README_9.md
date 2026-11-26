@@ -23,8 +23,7 @@ George Russell Sextet - Ezz-thetics (1992) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:6BFE1F25269DAE9B44463727976C72D763413FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Frank Kuruc Quartett - Still (2015) [FLAC|Lossless]<Fusion>
 ```bash
 magnet:?xt=urn:btih:56ABA4A58CB5C7D60989311C0856BFE6222C6908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ CD2 (00:59:56)
 ```bash
 magnet:?xt=urn:btih:5F952FA8D9E94F8A843B78B4F23CCD307A14E382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Coleman Hawkins - Soul (1992) [FLAC|Lossless]<Jazz, Swing, Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:AD6054AC1ECD8BA95F86131C5F0E895142CA1139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Mark Wingfield - Proof Of Light (2014) [FLAC|Lossless]<Fusion, Jazz-Rock>
 ```bash
 magnet:?xt=urn:btih:98AEDD28D68FF51E4C6710AEE51DFDE7356428B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D02A0897F9C23E525EB347DC79DB7DF5D2D219D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ KIYO'SEN - Chocolate Booster (2014) [FLAC|Lossless]<Fusion, Jazz-Rock>
 ```bash
 magnet:?xt=urn:btih:F27BCDD0744B2C2AD9854AE994DA4A1C467C30E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E934F0BC30D835DEFCF671BE0474FA8F8ECF9BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Fabrizio Bosso & Julian Oliver Mazzariello - Tandem (2014) [FLAC|Lossless]<Post-
 ```bash
 magnet:?xt=urn:btih:ED3480C18CDE63F41CBB219ABCAAB556997CB030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ VA - Finnish Jazz (2003) [FLAC|Lossless]<Jazz, Post-Bop, Fusion Jazz, Avant-Gard
 ```bash
 magnet:?xt=urn:btih:3EBA532CA1A16AFFB2465755399B626B4BC8F7F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4539F65E5F93D02A476FFCCBF40051A966B2705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ OAKE - Offenbarung (2014/RM 2013) [FLAC|Lossless|WEB-DL]<Darkwave, Downtempo, Ex
 ```bash
 magnet:?xt=urn:btih:6F024A659254AC8E2081442404423141AE45DBB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ Acidburp - Hello Again (2013/RM 2011) [FLAC|Lossless|WEB-DL]<IDM, Drum n Bass, A
 ```bash
 magnet:?xt=urn:btih:0FAC1EAE996F51843AC952272E61E99080564680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9019B93C8A8876A2BFBD21AAF48BC53C9625602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ OAKE - Auferstehung (2015/RM 2014) [FLAC|Lossless|WEB-DL]<Darkwave, Experimental
 ```bash
 magnet:?xt=urn:btih:6057192E1E9964742538248A3D3C264C2F711983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ Saafi Brothers - Live On The Roadblog (2014) [MP3|320 кб/с] <Dub, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:5B7D6AE5C34E2BECF480AAECE0D57DAFC573B181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +477,7 @@ The Art Of Fiction - The Wise Fool (2015) [MP3|320 кб/с]<Alternative Rock, Ex
 ```bash
 magnet:?xt=urn:btih:405A6D31F70834B6309CE8FD944973B9618B1F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08B19F680A3B7C24EE4BF92808CE8708D37B42B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E39EC58DA0C9A901A86E0F8FB5E9361E942212D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +556,7 @@ Magali Datzira & Joan Chamorro - Joan Chamorro presenta Magali Datzira (2014) [F
 ```bash
 magnet:?xt=urn:btih:4F3EE7D667A654E74746BA59E5E011F862C48B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:385CF35370AAFB4377A39681CC4EE3B733CFAEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ KickassTorrents протестуют против DMCA удалений
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ Linear Bells - Insides (2015) [FLAC|Lossless|WEB-DL]<Ambient, Drone, Experimenta
 ```bash
 magnet:?xt=urn:btih:59D9BABA754BCB98B4225FDBE13C0D185F30AEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Unreal City - Il Pаеse del Trаmоnto (2015) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:742FBCBE4EB9E335D5F31A50528CD7850F48B2B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FCFAEE78BD1A0319517707B4DF6A4CBD52D44EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2046A4CB519041D3F65868622B0D6B31213BD64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

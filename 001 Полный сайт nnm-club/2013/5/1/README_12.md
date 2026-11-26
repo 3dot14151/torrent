@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:87FCEF2E7485221BAD6F1C731F98D33C069C7506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2DCEF025BAD446DBF19BE64303F436687132751
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Клубные Новинки Vol.275 (2013) [MP3|320 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:62D09A91188602F1C6473129F8C407F36B81DE41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3810B2065AB6CEF834411668CCBA2ED77331B6DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ VA - Terminal For Progressive Vol.1 (25.03.2013) [MP3|320 кб/с]<Trance, Progr
 ```bash
 magnet:?xt=urn:btih:CE542D778D513621B111C75469CE0073E5C513D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:485199695A607B1785620F4C0A52E94A80B80097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0FD67269E5E2691A725B21214427B2242441999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ VA - Клубные Новинки Vol.270 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:615CFB75D9970BAA713B758F2F65D45054DC9231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77AEA4403CA25F23D75ACC81DF790F8A5CB39D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A4BAF06C58B45BBC4FB9108B83BF404CC27C59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C045CDC68E1A90A2D647C7FD7330643DA8409D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Облака в штанах (2013) [MP3|128-320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:2C478CDDEE2819A37C8B74B4DFF788D9587D6591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Continent Expedition сочетает в себе увлекательные р�
 ```bash
 magnet:?xt=urn:btih:09D3686E9E2F01DD26E561CF98DF2E1EA02E0F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +389,7 @@ Starkill - Fires Of Life (2013) [MP3|320 кб/с]<Melodic Death Metal, Symphonic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:666F0F99103B0922CDB0944D128503B6BE0B48C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B393C7DDBA1B23D73E2A1ACE6DE9E3327E0F3BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +473,7 @@ VA - Клубные Новинки Vol.273 (2013)[MP3|320 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:4386550CF69DC059810A96273E426EBA29780E69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C645EA048768A29DCB0FA059493EE9FC74050826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +560,7 @@ VA - Бешеный хит (2013) [MP3|256 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:90CCDB991CFC3AEF06F4FF5270B6E06009F3613F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +590,7 @@ Stuart Michael - The Total Spa Relaxation Album (2012) [MP3|320 кб/с]<New age
 ```bash
 magnet:?xt=urn:btih:89823CCFF2961E3CE27F9326156A06DDF77A4FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +624,7 @@ VA - Клубные Новинки Vol.274 (2013) [MP3|320 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:0D9A42F5FE53DB7FE9E506A8E393151C1BEED10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +658,7 @@ VA - За твои глаза (2011-2013) [MP3|128 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:FF395102B4303BC0FCE0D6DA5E9E2E883493FCBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +692,7 @@ VA - Клубные Новинки Vol.276 (2013)[MP3|320 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:D2D2E0B9DEB0F6F6ECC36F15E3B2CD77966B806A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +726,7 @@ VA - Назови меня любимой (2012) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:BF911927E3EE1C9872FBFB2B8038F6D6B495ADCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5FEC7155F10FB64C379238F281FDC015E017CAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

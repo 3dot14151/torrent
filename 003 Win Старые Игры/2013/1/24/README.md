@@ -23,8 +23,7 @@ Re-Volt [En/Multi8] (RePack/1.2a12.1225) 1999 | R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:CA0A3E26188AE0472324871FDF6B6CA2E98A6E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ X-Fonter – программа для просмотра и быстрой ин
 ```bash
 magnet:?xt=urn:btih:A7359AB1F77196C59A9A9EE4702AE9E9D495876E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Apowersft Phone Manager – многофункциональная програ�
 ```bash
 magnet:?xt=urn:btih:AE8AA358E119E3F38150EB14744CB01167E3186B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

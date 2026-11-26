@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1E067253EE863507B6E13834F0DE8F7167650358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CD2610278C00530C69B2BF64DC43ECBD8C5020C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Go быстро завоевал популярность у разработч�
 ```bash
 magnet:?xt=urn:btih:B1B3AE4CD8E60D1B3F4A307E62980DF4F30A90A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

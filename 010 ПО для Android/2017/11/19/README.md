@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E8757C44074C30CAB54A9FC6490408BC6DB37F39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VPN Defender – это ваш сервис!: Абсолютно бесплат�
 ```bash
 magnet:?xt=urn:btih:53B1DE6AFC8FC7945D7625AE9BE622603A1183F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

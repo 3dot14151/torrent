@@ -18,8 +18,7 @@ Fantasy Wars / Кодекс войны [Ru] (RePack/1.0.9.3) 2007 | Audioslave
 ```bash
 magnet:?xt=urn:btih:6A92B438191C0DBA40ABE8FFB291704A457B0AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lego Loco [6+ лет] (L) [Ru] (1999)
 ```bash
 magnet:?xt=urn:btih:E294801E5DE18F97DEB20179AF3A4DB692271B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2464B8D182A641FDC9CD33A08BAB87707F375E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00D6738E2084CF6A8D091A022F2F4A109153E23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Adobe Muse - инструмент для быстрого и легкого со
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D70F08DF182E0660436C7584D4AC85B8CDC2EA55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ RAGE: Anarchy Edition [PS3] [EUR] [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:6D26C2610940ED010F46279303C41F04D191BDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ DmC: Devil May Cry [PS3] [EUR] [Ru] 2013
 ```bash
 magnet:?xt=urn:btih:B4641FC1BD665DE67F6C8180E1768A96F0534E0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ killed_ely поддерживает раздачу около полутысяч
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ Dungeons: The Dark Lord — продолжение Dungeons, игры, в кот
 ```bash
 magnet:?xt=urn:btih:9953EEBD9B4A6DFBFEA4F51945A856DE22879851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3FEDFEAA3699D7D6C9DCC41898A9BF55575992C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Artisteer - первый и единственный продукт автома
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ Fully Editable Eps and Ai files CMYK 3,5X2,0 Print Ready Files Horizontal CardР
 ```bash
 magnet:?xt=urn:btih:E9E568E4E606458B0360129C92E7CEFEA3EDD580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Binary Domain [Ru/Multi6] (Lossless RePack/2DLC) 2012 l R.G. Games
 ```bash
 magnet:?xt=urn:btih:B3CBFCDFB2D54A2FCE5605A7B4DFFD4DB685B845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ Sniper: Ghost Warrior - Gold Edition [Ru/En/Multi6] (L) 2010 | *PROPHET*
 ```bash
 magnet:?xt=urn:btih:8E1A6BC8C31C7AE802996DD986FE5EC67D3C5BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ Brothers in Arms: Anthology [En/Ru] (Rip) 2005 - 2008| R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B05230F5F39B753BB5DE3EA6B8508C205C88AF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ TheTunes.Ru | Как создать коммерческий Progressive Trance.
 ```bash
 magnet:?xt=urn:btih:2CCB91BD92AB2D7BC86A7D2C652A84271178FE2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ A Game of Thrones: Genesis / Игра престолов: Начало [Ru] (ReP
 ```bash
 magnet:?xt=urn:btih:C45884E0F2A3DC50D5B77486B6690F6B787A8E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Solaris 11.1 [x86-64] (1xLiveDVD+USB+2xDVDrepo)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Drakensang Dilogy / Дилогия Drakensang [Ru/En] (RePack) 2009-2010 | R.G. 
 ```bash
 magnet:?xt=urn:btih:D23D8C650F6CBF2BFCE2847D312AA11A7CBA50BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4373898BA22131136283C3361CB0E7D00C56F09A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ DmC является перезагрузкой знаменитой серии 
 ```bash
 magnet:?xt=urn:btih:E4406D9AE712F1A830DE28ED8BBA2D8C7A345A30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ Rage [Ru] (RiP/1.0.34.2015/3 DLC) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:D149E1667E45F4F5F7B3C722E1847D041AB836D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

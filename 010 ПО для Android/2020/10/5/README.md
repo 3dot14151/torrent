@@ -19,8 +19,7 @@ Marine Aquarium v3.3.21 PRO [Ru\En]
 ```bash
 magnet:?xt=urn:btih:3BED0D3FC5597C21830D8D17D8A13389A8B02FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Fabulous v3.65 Premium [En] - Motivate Me! Relax, Meditate, Sleep
 ```bash
 magnet:?xt=urn:btih:B9096711EB1627032C3F361FAE4B036E87056A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Caustic 3 – редактор электронной электронной м�
 ```bash
 magnet:?xt=urn:btih:D09F5AB22E529E7D4E351770EA3CFF890836453F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0119F0523B7800ADC58C1C4F89B80023ED36F728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Coach Guitar — ПОТРЯСАЮЩИЙ новый способ научитьс
 ```bash
 magnet:?xt=urn:btih:5AAA0206611CDE9B502EE3DB5289ED48E94BC049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ WiFi Mouse Pro - Превратите ваше устройство в саму�
 ```bash
 magnet:?xt=urn:btih:998FE81C50F0335836DE44CB627D960510129344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

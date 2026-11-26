@@ -20,8 +20,7 @@ Guacamelee! Super Turbo Championship Edition - платформенный экш
 ```bash
 magnet:?xt=urn:btih:022A6F547CB772F43BE7B73FDA4C666EEB3B491F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Depth Hunter 2 настоящий симулятор дайвера с потр�
 ```bash
 magnet:?xt=urn:btih:5040EA88643120E2BFD2A2046387D5CD5DC8CFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ RESIZE ФОТО - Копир.изобр - Обрезка изображения 
 ```bash
 magnet:?xt=urn:btih:14FE38F4582CD99592E9839B1199D86CD6B796EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C28C2532D8581DD27C210ECA70020B8510DCBF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

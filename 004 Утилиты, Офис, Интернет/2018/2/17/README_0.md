@@ -19,8 +19,7 @@ Erelive Data Recovery - программа, которая поможет Вам
 ```bash
 magnet:?xt=urn:btih:05119802AA18ED83CD800D2EC53ADDAA2307446D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

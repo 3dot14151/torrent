@@ -19,8 +19,7 @@ Router Scan умеет находить и определять различны
 ```bash
 magnet:?xt=urn:btih:AC922BBB049D483B2EBF9FB91A9ECD263DA6D8BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

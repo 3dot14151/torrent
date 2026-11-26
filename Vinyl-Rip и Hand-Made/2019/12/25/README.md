@@ -22,8 +22,7 @@ Joanne Shaw Taylor - Reckless Heart (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<B
 ```bash
 magnet:?xt=urn:btih:4906B6B28BC294F3D4AC245E5913003C0C6E0BB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

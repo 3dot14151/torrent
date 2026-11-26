@@ -21,8 +21,7 @@ Xubuntu 22.04 под кодовым названием Jammy Jellyfish — эт�
 ```bash
 magnet:?xt=urn:btih:23D897CD86C6230F27E3D790DC727D7A0ABF51D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

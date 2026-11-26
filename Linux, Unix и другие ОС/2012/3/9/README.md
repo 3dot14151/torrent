@@ -21,8 +21,7 @@ Unigine Heaven Benchmark 3.0 [x86, x86-64] [*.run]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Recovery Is Possible (RIP) это CD или USB boot/rescue/backup/maintenance �
 ```bash
 magnet:?xt=urn:btih:556832E2813D983300CD433EC6CBFBF25BBC5C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

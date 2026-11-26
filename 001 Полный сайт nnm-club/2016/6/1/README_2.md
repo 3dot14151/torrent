@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FF20C144659E54D4A585A2902DBF9E06B86DE214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ V3: суперпушка Гитлера / Building Hitler's Supergun / Hitlers S
 ```bash
 magnet:?xt=urn:btih:1326794AE0E133A82604A98A40D23C711628A0A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCBACA91BF121023568DFF103502E4F7747AA467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:0373AC336CA7E16B0381C64BC7C46E80FED7868A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Album Player предназначен для составления и прос�
 ```bash
 magnet:?xt=urn:btih:2E6CCC9BEE227208893398AC9683764EE53DD8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ The High Violets - Heroes and Halos (2016) [FLAC|Lossless|tracks] <Alternative P
 ```bash
 magnet:?xt=urn:btih:B5716830C68EABE214377CB2FB5C86C8842957ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6407F8B9FCE917EBB3C2D540BD7CF73963248470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Cледите за работой археолога Майка Паркер-П�
 ```bash
 magnet:?xt=urn:btih:55BB15C7110008912C2FD77A17944AECE924A2C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Yngwie Malmsteen - World On Fire (2016) [MP3|320 кб/с] <Neoclassical Heavy Me
 ```bash
 magnet:?xt=urn:btih:264D843BFED4399F073A27DBC109C6D5B5E05F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BE9A66D27742B211DBA5A7A2FA49671F7C25567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Flume - Skin (2016) [FLAC 2.0|44.1/24|Lossless|WEB-DL|tracks] <Electronic>
 ```bash
 magnet:?xt=urn:btih:47F881B4F29BFD916E83FFFBFDCC44CB170CB135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ NG: V3: суперпушка Гитлера / Building Hitler's Supergun / Hitle
 ```bash
 magnet:?xt=urn:btih:CB266DACE256379717449CF4842BF125A24AFD02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC0EC65CC89AB646EB3BA78F30CE89204B636DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ Tipard Video Converter Ultimate - профессиональное решени�
 ```bash
 magnet:?xt=urn:btih:0BBABA83B29F489ACCB72FFCCD10C9A43250D58A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC1BE4B1CDFA44166E0F692378E88F637B10A941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDA4888A0B45416622C1256EFA827D71893039D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12CB30D4E1C390B947E4A7B1CBEF010F3D2030E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ Modern Art -  экшен для Вашего творчества.Формат: 
 ```bash
 magnet:?xt=urn:btih:2E3D080D76F4E3A4063A4841B70A501CEEDDACCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ BBC: Как строилась Британия / How We Built Britain (2007) HD
 ```bash
 magnet:?xt=urn:btih:BC39D88C9415E43C2BCFCCC7A0C6BD89C6A42C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:849305348109C52990C1564D1F2CB25C551FF735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ Supermax - The Magic Of Supermax (2015) [FLAC|Lossless|tracks + .cue] <Pop, Funk
 ```bash
 magnet:?xt=urn:btih:CA6169D82607655412C1751EB6EA70A83F078762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA46BBBADF0BEEAFC28A376639DDF821A28B03A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ VA - 50 оттенков музыки 18+ (05.2016) [MP3|128-320 кб/с] <Pop, 
 ```bash
 magnet:?xt=urn:btih:9C3E8E8141EDA4C751FA44A7BCF37F9D6ABD5D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ Summer Openers - кинематографическое  слайд-шоу, ко
 ```bash
 magnet:?xt=urn:btih:DFDFC68D938E1D46C374712740280DB590A87E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +637,7 @@ Dark Glow Logo Reveal - энергичная, стильная анимация 
 ```bash
 magnet:?xt=urn:btih:339EC920CD3B3AEAF3BB58349C5BBA28DF3293D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABCA5C341E8E166A8349416A8206D2FA6234EC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

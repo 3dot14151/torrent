@@ -19,8 +19,7 @@ Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Scene voices38 [Digital 
 ```bash
 magnet:?xt=urn:btih:3ABA9E7390BBAD2DDC7C3C9B0B1EE533CE15D74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Typhon: Bot vs Bot (2025) [En] (0.1.2) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:B35EF55358ED07B8B53153401E3D501C57C3DACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Speedball 2 HD - это современное воплощение класси
 ```bash
 magnet:?xt=urn:btih:D1014214274C4C1FDA689568F80EEEA84F81FF29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Aaero2 (2024) [Ru/Multi] (1.52) License GOG [Black Razor Edition]
 ```bash
 magnet:?xt=urn:btih:E8E31883CE9D747BE33E782EE2DFC00C673BC54D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ As Dusk Falls - это оригинальная интерактивная др�
 ```bash
 magnet:?xt=urn:btih:3233FCE81DA66D1F0F8AD81C266B323AD832862C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dragon Ball FighterZ – эпичный, яркий, динамичный и н�
 ```bash
 magnet:?xt=urn:btih:CDF31CDE367E8BBBD17A44253954185557ACB058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Christmas Stories 14: By Candlelight / Рождественские истори
 ```bash
 magnet:?xt=urn:btih:3C6C7BC23EC1B71D0B667C68C2703D0ECF2A442B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Beacon of Neyda (2025) [Multi] (1.0.4b) License GOG
 ```bash
 magnet:?xt=urn:btih:AFE162E70CE696038D29B6D6FB68246F1E53B41C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.874931) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9AF2AA0BE820908ACB08838D2BA91B5FACB6BE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Troop (2023) [Ru/Multi] (Build 20251216/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AD3F0850FF21890E1CAC8ACB700D1C2359D693C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

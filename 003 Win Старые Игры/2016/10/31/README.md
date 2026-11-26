@@ -19,8 +19,7 @@ Advent Rising предлагает вам насладиться идеальн�
 ```bash
 magnet:?xt=urn:btih:1185DEB3232B42D97141E86C1C1A7E81BD0FE9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

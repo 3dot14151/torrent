@@ -19,8 +19,7 @@ DeaDBeeF Player PRO 1.31 - Плеер (01.02.15) <Rus/Multi>>
 ```bash
 magnet:?xt=urn:btih:C58DFDF596F57D72D4B76CC4518C6B3ABE99EB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

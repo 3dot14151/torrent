@@ -24,8 +24,7 @@ Dream Mysteries - Case of the Red Fox / Тайны грёз - История р�
 ```bash
 magnet:?xt=urn:btih:F23FCD2624C20AF35EA3DE3CD7B3569DA3ED1377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

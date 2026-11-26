@@ -19,8 +19,7 @@ Windowed Borderless Gaming (2012) [En] (2.1.0.1) Portable
 ```bash
 magnet:?xt=urn:btih:3510A0FF82107EB655DC7000921111908CF324AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Manor Lords - стратегическая игра в эпоху среднев
 ```bash
 magnet:?xt=urn:btih:1BA04324E59F72779C1F73B4B86F8BBAAE7BF228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Espresso Tycoon - это совершенно новый подход к ста�
 ```bash
 magnet:?xt=urn:btih:033313A0AF64E468F81425EFB39A539CB2720BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 ```bash
 magnet:?xt=urn:btih:3CB0CF00752707AE0CD8DF978E0422EA297A3546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Enslaved: Odyssey to the West — это футуристическая верс
 ```bash
 magnet:?xt=urn:btih:385C8B03E9BD2A3995182FF1D6B526748B757695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

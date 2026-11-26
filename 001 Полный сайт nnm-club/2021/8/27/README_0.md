@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8E40687326CF295718FEEFF2D4F84992AD3321D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smultron - простой и удобный редактор. Smultron - про�
 ```bash
 magnet:?xt=urn:btih:560B99F19141F3CC03AB1496536BD0927050B5B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFA831D45EF8CC9FBE5D4CFBB9D17DD0FD3595F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hemmings Motor News: мы существуем с 1954 года, и если в�
 ```bash
 magnet:?xt=urn:btih:8BA75E34409FD3F0CBA846822910B808E8F6B667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hemmings Motor News: мы существуем с 1954 года, и если в�
 ```bash
 magnet:?xt=urn:btih:43B3BB76A612C6E8FF33A5BC9791D8C5BA5CFD7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ auto sport - известный японский еженедельный жур
 ```bash
 magnet:?xt=urn:btih:3382CA5B2D1521FA6D5DBE7C9F115670A9FDF840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Hemmings Motor News: мы существуем с 1954 года, и если в�
 ```bash
 magnet:?xt=urn:btih:143BE69613AFB73A5381D905DED8C5DB79A82CDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Micromat Drive Scope 1.2.14 [En]
 ```bash
 magnet:?xt=urn:btih:00C3968E8B871DCA18BAC71E57ABA8E86218B5B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Auto Motor & Sport Special это каталог автомобилей от Aut
 ```bash
 magnet:?xt=urn:btih:2B6F4EAF336BA7ED27C84233EEE57B37F262CB53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ The Neal Morse Band - Innocence & Danger (2021) [MP3|320 Kbps] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:2C889EA44288CB72EB6B9401C97D1CAB4CCDD479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63473457667DFCD6BD7029BCB64EC17D0E005B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Behemoth - Messe Noire (2018) [FLAC|Lossless|image + .cue] <Black Metal, Death M
 ```bash
 magnet:?xt=urn:btih:F843648C49AFC1C7B98B7B8FB6591DCE6F2A857C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Duplicate File Finder - утилита, которая находит дубли
 ```bash
 magnet:?xt=urn:btih:F8D9AB5E6118D086DC56D4FA8ADAB8D234CCE5AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ NCH DeskFX Plus 3.16 [En]
 ```bash
 magnet:?xt=urn:btih:A5703BB2395FE497252E5AADCFE6D5A54C2A1812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ ArkenFire - Trials Through Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:6145AF5F69EA5F90DDB98168BF056D23F034A104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Korg LegacyCell - виртуальный синтезатор, позволяю�
 ```bash
 magnet:?xt=urn:btih:AEBF1D32F0C28F13C7AAFACABD2DD2A73C0285AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ Coming soon 3 v3.0 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:79659E0138B5F9F33A48918CBDE611B688579EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ NCH DreamPlan Plus 6.47 [En]
 ```bash
 magnet:?xt=urn:btih:571E53CF748AE8D00F1A500C5FD61A180405CF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +512,7 @@ KORG - Prophecy 1.0.2 STANDALONE, VSTi, AAX (x64) RePack by RET [En]
 ```bash
 magnet:?xt=urn:btih:434E48FBE6456AF032FC2DBE3C90D95C2AA2C0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ Long Shadows Dawn - Isle of Wrath (2021) [FLAC|Lossless|image + .cue] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:010CABB23E3D48A2B15BEEF68C85DBE7B54B21A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ Bandizip - мощный архиватор для пользователей mac
 ```bash
 magnet:?xt=urn:btih:E092122AD90B6576BF513939DCBE7B381D1CB8F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ ARP Odyssey был аналоговым синтезатором, первона
 ```bash
 magnet:?xt=urn:btih:896ADB028DDF25690DB79E13243C64342CDE4B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ PhotoPad фоторедактор это самый быстрый и самый
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ Behemoth - I Loved You At Your Darkest (2018) Tour Edition, 2020, Nuclear Blast 
 ```bash
 magnet:?xt=urn:btih:E84AE7D812BF8D6B0D78778CA27D4C4930002EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ Ex Deo - The Thirteen Years Of Nero (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 ```bash
 magnet:?xt=urn:btih:24B6329026D26DF33C27A48F5D3062CF27DD1528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Asphalt 8: Airborne v1.0.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:717879F65E7CD56D75DED7344E78F96C30E4CD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6908D2C4810248341A38C40FC560DA47444FC938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD74734BE2AB8F012720EFB4CC9BD532DE5AC43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Sims 3: Официальный Патч (2013) (1.63) Patch
 ```bash
 magnet:?xt=urn:btih:B1306E2614CC55CDC62C13B0323DC586DC47A1C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

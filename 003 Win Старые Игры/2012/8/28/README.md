@@ -20,8 +20,7 @@ Eye of the Kraken [Ru/Fr] (RePack) 2002 | RG Games (Pilotus)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ True Crime Дилогия [Ru/En] (RePack) 2004-2006 | Mailchik
 ```bash
 magnet:?xt=urn:btih:721244CBC6CF1E61298CDF963B059C483B05D697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Age of Empires II: The Age Of Kings — компьютерная игра, ст�
 ```bash
 magnet:?xt=urn:btih:CCCC3F73708360E3EC77F8162A377DFFA9F546A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

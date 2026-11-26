@@ -19,8 +19,7 @@ Search and Rescue: Vietnam Med Evac / Вьетнамский апокалипс�
 ```bash
 magnet:?xt=urn:btih:F9146261256995121D7ACC933951910AC9FFFE78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

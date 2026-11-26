@@ -19,8 +19,7 @@ Bloodline Champions / Братство Чемпионов (L) {ver. 2.3.0.0} [En
 ```bash
 magnet:?xt=urn:btih:DAF9BC21D54328ADAC7F1F8B02DAA0C667F46E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Princess Isabella: Return of the Curse. Collector's Edition / Принцесса
 ```bash
 magnet:?xt=urn:btih:7D1ED2BF99021C0C8F8E08A5B5C9B3CE0CF6F52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Living Legends: Ice Rose Collector's Edition / Живые Легенды: Лед
 ```bash
 magnet:?xt=urn:btih:E767135C2A707FAB0FA5BA13E2945248F3A5ADF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Monument Builders: Titanic (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B2D06EBA935DDA8B6AF90C1CBDDF2B1DD5AC5483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

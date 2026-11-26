@@ -19,8 +19,7 @@ Animal Agents / Розыск домашних животных (P) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:5A89F594520716FDA055643459C86FF898A56932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ GooseGogs - это забавная игра, созданная 17-летним
 ```bash
 magnet:?xt=urn:btih:E82D1B9E4B9537C3ED52E7E4937A26264B949F2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

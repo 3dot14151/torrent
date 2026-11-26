@@ -22,8 +22,7 @@ VA - Tones & Melodies, Vol. 8 (2022) [AAC|~335 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:2E1F9B281A663E7F0F50A1556ECFCFDF20688E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - The Perfect Lounge (New York Edition) (2022) [AAC|~294 Kbps] <Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:0427765B68D111BC498815C0DEDBC845FC7DABCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Uplifting Trance Classics 2021 (2022) [AAC|~338 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:97FBFB8914CCEC97575B2F1E26018C3C3F5A8A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Omni Recover для macOS позволяет восстанавливать уд
 ```bash
 magnet:?xt=urn:btih:B02F8FB2D3F217D3964C745CC05EE283B09A99C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ AText ускоряет вашу запись, заменяя сокращени�
 ```bash
 magnet:?xt=urn:btih:BE83EB72BA4617AD77DC1D3007AC34CBCAB9E2B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - Tones & Melodies, Vol. 7 (2021) [AAC|~328 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:52007BA13475804FF5F8D3B50C944BF45117290B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - Tones & Melodies, Vol. 3 (2021) [AAC|~340 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:49C3E34591732A691CD9915E85DB165C83BFD4CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ VA - Tones & Melodies, Vol. 4 (2021) [AAC|~343 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:67F03C811D6F25B3DDFC47B73F3D18C1343C6C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ VA - Tones & Melodies, Vol. 2 (2021) [AAC|~335 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:F6CBA988826AB60B9664D2ED6A6ACF4386D3271E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - Tones & Melodies, Vol. 5 (2021) [AAC|~333 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:6B2231FB23B6B5F48D3806363AF63E5B09D489C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ SyncBird Pro - это файловый менеджер iPhone, который �
 ```bash
 magnet:?xt=urn:btih:0111C79B6660FD49BE72601D56F6C56CFFC714A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ VA - Tones & Melodies, Vol. 6 (2021) [AAC|~326 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:FB0FD270785CFBD12DFC4F89820A68E1727B1E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Auto Highlight 2.80 [En]
 ```bash
 magnet:?xt=urn:btih:E81816243D55165BB1D191E168E2841DE7EAC203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ VA - Calm Morning, Vol. 2 (2022) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:522E123082554F464E2BA89718EBFF9D01F30C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Vetust - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Doom M
 ```bash
 magnet:?xt=urn:btih:5CD47D6B4D15FA26261169145368F79E99484F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ VA - Tones & Melodies, Vol. 1 (2021) [AAC|~333 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:8A112685F36CA69B04A7EE1D18C83688B7C68049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ OmniOutliner - удобное и чрезвычайно доступное ср�
 ```bash
 magnet:?xt=urn:btih:2767A9B0470D847B1BEB83466EFB9F508966DAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ VA - Calm Morning, Vol. 1 (2017) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:3899646FC69852B08FC98F41273FDD74B95A1C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ Bigasoft FLAC Converter для Mac - это специально разрабо�
 ```bash
 magnet:?xt=urn:btih:1C408937342FDECA13359CB9B67413DB49F0D4DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ Lunar управляет той же яркостью, которую вы мо�
 ```bash
 magnet:?xt=urn:btih:3F05F21C342841519C453B3AA04AB546657693B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Aria — мощный собственный текстовый редактор
 ```bash
 magnet:?xt=urn:btih:6193C62D6656E314C7F4B5CB01153B956B798663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Maule - Maule (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D0D023C7CB86D4C6CACA5F038852541BC70F9EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ Magic Hider PRO 1.4.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:8640379611239AB8A50D6C66ACA644CEAE7E0121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ Tipard Blu-Ray Player отличный видеоплеер для воспро�
 ```bash
 magnet:?xt=urn:btih:9F3F2C353367C4DA9C6A6681CC036B471421478D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ start - это уникальный лаунчер для macOS, позволя�
 ```bash
 magnet:?xt=urn:btih:279FDF7015B36C05613E1AC1236BF940C8C8B168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ DockMate Beta 0.8.7 fix [En]
 ```bash
 magnet:?xt=urn:btih:B1C1C7C157C4A2BAA6561E558EF4C7D6094AF145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

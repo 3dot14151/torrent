@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:142D4DEC33B037269D6424F127BC3AAA93284A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Dragon Age: Inquisition / Эпоха Дракона: Инквизиция (2014)
 ```bash
 magnet:?xt=urn:btih:C88C1A2225CC8AC2CDB36BF809DD2CE668B16433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

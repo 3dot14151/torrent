@@ -19,8 +19,7 @@ C этой программой можно записать все, что пр�
 ```bash
 magnet:?xt=urn:btih:7008436C3AEAFD13969D5A2F601B0FB9D5511D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

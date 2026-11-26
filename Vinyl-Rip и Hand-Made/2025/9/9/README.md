@@ -22,8 +22,7 @@ Pantera — американская рок-группа из Арлингтон
 ```bash
 magnet:?xt=urn:btih:95ADC536632AE62D010BBDB7A4A9662E0C6B239D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Green Carnation — рок-группа из норвежского города
 ```bash
 magnet:?xt=urn:btih:A7B67F637BBA13F57E8C81851D78ADA6055CBE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Desperate Surrender (Amor Moriendo)(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:2390F97368F5172C30DA62BCD1184C81EFAD8553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Skyharbor - рок-группа из Индии, образованная в 200
 ```bash
 magnet:?xt=urn:btih:0474B38978AAD1728E56BA52E6D21D1EBE9AC7E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

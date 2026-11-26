@@ -22,8 +22,7 @@ B1. Paranoiac Personality (3:10)(   Читать дальше...   )Произв
 ```bash
 magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

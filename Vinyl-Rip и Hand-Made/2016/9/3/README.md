@@ -22,8 +22,7 @@ Def Leppard - Pyromania (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:52F94159702996FFB78062811CA47C100AA28371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

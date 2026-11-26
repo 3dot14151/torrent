@@ -19,8 +19,7 @@ Provence - это южная часть Франции, наполненная �
 ```bash
 magnet:?xt=urn:btih:618049E1567F4964CD0FB01448BB6D98D312942A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

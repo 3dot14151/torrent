@@ -19,8 +19,7 @@ Fell Seal: Arbiter's Mark – пошаговая тактическая роле
 ```bash
 magnet:?xt=urn:btih:01FA833C88CB38BE9D6A3F416CE821901C5F9FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:65115D118991BEE5705AD26056AADF2CDDB6D41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Lumino City — это приключенческая игра с элемент
 ```bash
 magnet:?xt=urn:btih:B86A1AFB1A86F208A67DAE83024A252F45895CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7B5D682CCFF6A6D62C469F6CF894C8216B98332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC9BE9EB27179C2BD055E882AB9E57802F470E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Lara Croft and the Temple of Osiris (2014) [Ru/Multi] (1.1.240.4/dlc) SteamRip L
 ```bash
 magnet:?xt=urn:btih:20C00A0FFDB3A5B4C3382236F63344DBADD54A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4650FA79C3E6AF9C0DA14B907B39C4F284E36E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:028518E41FEA1CDAC74256A862624693B5D6BE51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Windows 10 Technical Preview 6.4.9879 (x86, x64) [En]
 ```bash
 magnet:?xt=urn:btih:7C062C3268E409D693F577D729598F5FBD5B1DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15ED87AA533741D260791C2182DA873A124D098A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ The Binding of Isaac: Rebirth - изометрическая аркада с р�
 ```bash
 magnet:?xt=urn:btih:A986841BFAA16EA20AD3BDFCEDDEF5C0E95ED365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ The Vanishing of Ethan Carter это мистическая приключенч
 ```bash
 magnet:?xt=urn:btih:6CBD4642A85FF393C5429E016649DB5CF1CC3C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Moon + Reader Pro v3.0.1 - Самая популярная читалка кни
 ```bash
 magnet:?xt=urn:btih:6E398DA49F97DEE95776E92C1C09C082AE4DBA19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

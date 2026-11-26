@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:A35F16D1D91336D0B7B2AB45EDD6E86516BE6199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1121C56D63CE6610E8CA4EF41B20904FF772A5D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Mina Agossi - Who Wants Love (2007) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:430B09612217DEAE2F317E1A94C4C33346E84938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4C8436E7592D31EE2499C0331BE5288C598FE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F0F3B532A8224B5F1308824D5D89F90C280E8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Kenny Drew Trio - Ruby My Dear (2003) [FLAC|Lossless]<Jazz, Hard Bop, Piano Jazz
 ```bash
 magnet:?xt=urn:btih:9AC01E55B818A4E5B5F1789A49A195C590CB2AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ HowellDevine - Modern Sounds of Ancient Juju (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:197F5681EBBB388644B24CB8796DDA09BC73A27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:651E22068090868837AEAB5825ACB9E1C853B719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Paige Morgan - Golden (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:54F67146E7BAC14F87FD3C25F4F4545B7F06E56E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ VA - Mainstage Music Best of 2014 (2014) [MP3|320 кб/с]<Trance, Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:32FB900892725B73C2B6F876A07E97AD7F563711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ The Themesters - Popular Tv Themes (2014) [MP3|320 кб/с]<Downtempo / Trailer 
 ```bash
 magnet:?xt=urn:btih:61CEC2FF79A4B74B6779EBDD748F61000EA9483C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7699102022117A2C445CB0FD946B70A86D123E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ Dark Lotus - The Mud, Water, Air, And Blood (2014) [FLAC|Lossless] <Hip Hop, Hor
 ```bash
 magnet:?xt=urn:btih:95D3360A8B28077A088A20F6810055866DDFD51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +418,7 @@ VA - Groove 149 (2014) [FLAC|Lossless]<Deep House, House, Tech House, Techno>
 ```bash
 magnet:?xt=urn:btih:6C0A36DBF4094C4D7BCBBA84C05FD3F3CA1E44D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ Memoir - Fire In Me (2014) [MP3|320 кб/с]<Indie Pop/ Soul>
 ```bash
 magnet:?xt=urn:btih:7D902D983BC2C9960F48CD5AECA51151FDF9D01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ Morningwood - Morningwood (2006) [MP3|320 кб/с]<Alternative Rock/ Post-Grunge
 ```bash
 magnet:?xt=urn:btih:8FE5F5B5E68752E24B7D6A4C9E5BB97503CE8EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF266B314E49BF5247007C338B91892373EF33A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +541,7 @@ Dreadful Minds - Love|Hate|Lies (2014) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EAAE544C5B520B101586A1B2639084E00AA990E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +575,7 @@ Morningwood - Diamonds & Studs (2009) [MP3|320 кб/с]<Alternative Rock/ Dance-
 ```bash
 magnet:?xt=urn:btih:16BC8CEFF365620151821D4556D557BA930C29F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FD34806A5B13A0C87496B3463579C40A7CF46A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ Blues Pills - Devil Man (2013) EP [MP3|320 кб/с]<Blues Rock, Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:1A4E667B6DA00001FA1E943D81CE1B876FD56CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E193CBA385758B59829D1526E29CD4699BCA21B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A2842F90DE00867445A8E25BEFDBB383687FD4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61584EBCCC235FC334C356DBFEF895E4FAC3B65A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +737,7 @@ Folkearth - Balder’s Lament (2014) [MP3|320 кб/с]<Epic Folk/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:925B93BF428236D804BA95CEAEAF94B8AEFB115A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +771,7 @@ VA - Easy Summer Retrospective (Compiled & Mixed By Victima) (2012) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:50695102D8D03E15102CDA5F5711708B72D69068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

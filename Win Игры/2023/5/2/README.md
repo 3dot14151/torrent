@@ -19,8 +19,7 @@ Project Nightmares Case 36: Henrietta Kedward (2021) [Ru/Multi] (1.06) License G
 ```bash
 magnet:?xt=urn:btih:756C337FFC84F9F66BE6863A4891B31AF20ACBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Between (2023) [Ru/En] (1.1.3.200423) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B7D5203096A482346C4254EF7ED7EC657EAEA41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bramble: The Mountain King – это приключенческий хорро�
 ```bash
 magnet:?xt=urn:btih:1DA137A438D62E19E687FD0D31AD6D729E8262F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SAI это продвинутый установщик APK с поддержко
 ```bash
 magnet:?xt=urn:btih:AF23F21DD6065F8C3257D876045F3569E8464388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

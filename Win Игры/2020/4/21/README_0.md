@@ -19,8 +19,7 @@ Hero of the Kingdom: The Lost Tales 1 (2020) [Ru/Multi] (1.00) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FC07FA52CB19BA49FCA870B038402D55EF110EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

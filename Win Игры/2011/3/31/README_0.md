@@ -26,8 +26,7 @@ Din's Curse / Din's Curse: Проклятие Дина [Ru/En] (RePack) 2011 | F
 ```bash
 magnet:?xt=urn:btih:AEB4E8D295FA45CCB6DC9BA7C26F5A9196F51FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ UberSoldier / Восточный Фронт: Золотое Издание [Ru] 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

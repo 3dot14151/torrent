@@ -19,8 +19,7 @@ Algotica - Iteration 1 (2017) [Ru/En] (1.0.2) License HI2U
 ```bash
 magnet:?xt=urn:btih:8426DF569B197C854FB9912BCB5E051CE6A0E800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gomo (2016) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E1E64091DF798DBEEDBE832674B964FB4BB9741E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Saints Row 2 привносит настоящую свободу в игры с
 ```bash
 magnet:?xt=urn:btih:F3834177439144AB8BB12DFEC76F42886AD041B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ X-Plane 11 является последней версией в тренаже�
 ```bash
 magnet:?xt=urn:btih:F97808F83061D835CADF93F90393201233804FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

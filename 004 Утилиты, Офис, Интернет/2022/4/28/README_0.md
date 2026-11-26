@@ -20,8 +20,7 @@ Xfer Records Serum Skinstaller 04.2022 RePack by r4e [En]
 ```bash
 magnet:?xt=urn:btih:B025D16BA2BDAEF3E3FF75BC0C0867A079D7545E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

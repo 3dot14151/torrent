@@ -19,8 +19,7 @@ Bigasoft Video Downloader Pro — популярный онлайн видео �
 ```bash
 magnet:?xt=urn:btih:99CACD5BF8D8DCA4CF26D3F79BF3141BD2A78099
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

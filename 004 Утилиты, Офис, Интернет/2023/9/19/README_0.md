@@ -19,8 +19,7 @@ WinPing - небольшая бесплатная портативная (не �
 ```bash
 magnet:?xt=urn:btih:381295E6CE242D8CACA824D4F8D52BA9E6654BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ritual был сформирован в 1992 году в Стокгольме, �
 ```bash
 magnet:?xt=urn:btih:39709344AA50CB2FE2B26C5FCB2CF9DE66F5DF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dynazty  — шведская пауэр-метал-группа из Стокг
 ```bash
 magnet:?xt=urn:btih:AC2B5F4745CB4C050AED893799FD4FC3A9203A8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

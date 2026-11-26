@@ -22,8 +22,7 @@ Dimmu Borgir - Grand Serpent Rising (2026) [FLAC|Lossless|image + .cue] <Black M
 ```bash
 magnet:?xt=urn:btih:34BD3CCAE9E21C3C944B21C3F9CEF3FF0542FFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DFA52A7B85D1087B126A8C754A4A847C8045768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

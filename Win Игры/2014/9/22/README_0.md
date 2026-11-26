@@ -19,8 +19,7 @@ Cannon Brawl - революционный тауэрдеф с полной ра�
 ```bash
 magnet:?xt=urn:btih:A8F564289CC2A8B71E8E47C19A7C066D54D07DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

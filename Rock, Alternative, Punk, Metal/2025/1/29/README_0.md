@@ -22,8 +22,7 @@ Piah Mater - Under The Shadow Of A Foreign Sun (2024) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:4361B87CA8012F8974684AC463194CC7FEE0BA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Stand Up And Shout - A Tribute To Ronnie James Dio (2015) [MP3|320 Kbps] <H
 ```bash
 magnet:?xt=urn:btih:7DB99F3428671AD462059B95B9ED5F0B3C757C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

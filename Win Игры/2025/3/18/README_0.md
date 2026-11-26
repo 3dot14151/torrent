@@ -19,8 +19,7 @@ Dance of Cards (2023) [Ru/Multi] (1.1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C98DE5AF911630A61272ED833E765CFCA5720861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.32.1.24) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DB7333A65403763265D162DEFE0987F2382A1BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hauntsville (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:20207073B153BC6D6CA82B80BB6E564F071D1F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (3.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6A2692221BBE9CDC6F61E43A9E19A7D5737FD9FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ori and the Blind Forest (2015) [Ru/Multi] (1.0/dlc) Repack seleZen [Definitive 
 ```bash
 magnet:?xt=urn:btih:7AE7AD864BF366952FD4EBE4DF15E68D6C68E7E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Deep Rock Galactic – научно-фантастический шутер пр
 ```bash
 magnet:?xt=urn:btih:CA19E7134AE220B0B633E49892221AB48C1D96AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Candy & Toys Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7C933929B7D8E6278E7EF4E09E5B2C2B272A7CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

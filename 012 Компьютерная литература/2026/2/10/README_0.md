@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AF1FACD75CA2171EC4836315D0A625EABF33DD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2380AFE3BEE6144C8DB1C8FACA31DE17C6C633F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8B74A156144E2B86DA54D1F2E5AFD138A384ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Each chapter provides (   Читать дальше...   )Жанр: CSS Program
 ```bash
 magnet:?xt=urn:btih:D64FD1EDD3E8316DE92DD2EBF5820A655CF990CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Build a Website with ChatGPT teaches you zero-coding web development utilizing p
 ```bash
 magnet:?xt=urn:btih:09708CD3E4331A59D86133A4301887260A62EA79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

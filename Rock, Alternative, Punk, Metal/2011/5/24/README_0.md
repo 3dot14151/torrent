@@ -28,8 +28,7 @@ Zero Degree - Surreal World (2011) [MP3|320 kbps]<Melodic death metal>
 ```bash
 magnet:?xt=urn:btih:9495AAEC97B7EDCBA591A2795165821C1E1BC499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Thorr-Axe - Wall Of Spears (2011) [FLAC|Lossless]<Stoner Metal/Sludge/Doom Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Rod Stewart - The Best Of... The Great American Songbook (2011) [MP3|320 kbps]<R
 ```bash
 magnet:?xt=urn:btih:FDCE63665895CC2BB9ABDB4850028C611B5DD3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Blackmore's Castle / A Tribute To Deep Purple & Rainbow vol.2 (2005) [APE|L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

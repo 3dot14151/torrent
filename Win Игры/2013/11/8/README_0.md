@@ -19,8 +19,7 @@ Angry Birds Rio – продукт партнерства Rovio и 20th Century 
 ```bash
 magnet:?xt=urn:btih:6B3F6074548B3BE5451105DA16758FFC75221E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Revived Legends: Road Of The Kings Collector's Edition / Возрождение 
 ```bash
 magnet:?xt=urn:btih:0FFCC20E9D84BEC54602E9A1B0DC49E563D37720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Bad Piggies (2012) [En] (1.5.0) License
 ```bash
 magnet:?xt=urn:btih:7C62E2B0731547D23948AB44B8F90E8B1F4065D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Pac-Man and the Ghostly Adventures (2013) [Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:5F3EE0B92EB15EC0DBD92FFB95AC62D5AD1C455A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Dilogy GRiD / Дилогия GRiD (2008-2013) [Ru/En] (1.3/1.0.85.8679) Repack a
 ```bash
 magnet:?xt=urn:btih:E70322CE49A0697F3944721C52EDDD52E99DEC3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ TimeLines: Assault On America - это стратегия в реальном в
 ```bash
 magnet:?xt=urn:btih:CD721B5D3EFD51EEC0A9A695BDDF8141A9348678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Sniper Elite: Армия тьмы (англоязычное название Sni
 ```bash
 magnet:?xt=urn:btih:B5C899939F501896F7DF4C9C5405C4C14EE1667E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ FIFA 14 Международные комментаторы (2013) [Multi] (1.0)
 ```bash
 magnet:?xt=urn:btih:A550D38AD18CDE709A0AE9F71A722E70E9472DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Flashback HD-переиздание классической приключен�
 ```bash
 magnet:?xt=urn:btih:6093D0064E41AAE54637B04451E875E3996106FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

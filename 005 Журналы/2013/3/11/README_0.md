@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E5E2ED66D3E928019DA83B769403F86974B20C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A993CCF92500EF735675B805DDA1F83A34947564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Metal Force (Метал Форс) - украинский музыкальный 
 ```bash
 magnet:?xt=urn:btih:A4D6E3CD7071A77762E2A929090313D644E6BB1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

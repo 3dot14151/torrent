@@ -23,8 +23,7 @@ Soul Grip - Avadon (2015) [MP3|320 кб/с]<Blackened Hardcore>
 ```bash
 magnet:?xt=urn:btih:62A3613F6EE909005C868D64C28AB850FA4154EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Threestepstotheocean - Migration Light (2015) [MP3|320 кб/с]<Post Metal, Post
 ```bash
 magnet:?xt=urn:btih:B2A14A3F3050D7EA7D23D9E1844D6D0A2E4EE269
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Mantus - Melancholia (2015) 2CD [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:851BF5EE64A97381F278C14C9D4A5E12024A7265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Mute Tale - The Gordian Knot (2015) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:F2C5284C44BBF738076C4411726EAB0DEA6DCE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Storm - Storm's a Brewin' (2015) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:8AADB6F595EA0C51099E0A8EE02272B5625ED912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Hor Zapor - Beer Metal (2015) [MP3|320 кб/с]<Beer Folk Metal>
 ```bash
 magnet:?xt=urn:btih:5BA687DC9F22ECED1909047E8E6CEF62C29F69F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Robert Plant - Shaken 'n' Stirred (1985) [FLAC|Lossless]<Electronic, Rock>
 ```bash
 magnet:?xt=urn:btih:2A6976450559ABC2A722BB3FABE10C1F9C1D0639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Impellitteri - Venom (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FFDCF1ADC3971312C224416CB659E953C3E1F6B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:679B5BE4A9AC64153F9AA1EBEA3CD9CBC39EEF6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1D7D62355E2BCCDF35877F67450892A889D0459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ Celldweller - End of an Empire (Chapter 03: Dreams) (2015) [MP3|320 кб/с]<Ind
 ```bash
 magnet:?xt=urn:btih:8744E9D0E7E733B44614C7BAB144E59D5AAC34A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ Mark Knopfler - Tracker (Bonus Disc) (2015) [FLAC|Lossless]<Rock, Blues-Rock, Fo
 ```bash
 magnet:?xt=urn:btih:967A23C92020A44340ADEB3B277F4F49FA73FF89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C00E77C04FF4A4E90209663E91F39A492DEAC460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D1F351A1CC552AC002F07C0B38D93C389772D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

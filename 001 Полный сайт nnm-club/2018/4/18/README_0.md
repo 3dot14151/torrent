@@ -21,8 +21,7 @@ Tax The Heat - Change Your Position (2018) [FLAC|Lossless|tracks] <Classic Rock,
 ```bash
 magnet:?xt=urn:btih:E8A464446791AF31734B6F65DB8ED2185959BD70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ NGW: Возвращение львов / Return of the lion (2016) HDTV [H.264/1
 ```bash
 magnet:?xt=urn:btih:8A69DE7806B91794D0489D4815FA35E8B10B10BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ NGW: Молниеносные акулы / Blitzkrieg sharks (2016) HDTV [H.264/
 ```bash
 magnet:?xt=urn:btih:7D8545364AF84ADD8187B52EC69A98DD205E2335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85E98067A28D11110DE8362DFFDF663B38DCC3F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Breaking the Chains - We Are Breaking the Chains (2018) [MP3|320 Kbps] <Melodic 
 ```bash
 magnet:?xt=urn:btih:3FB40FF1F2AE40E3E0C6C06AB335DAB6DF743696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ NGW: Хищники Аляски. Царство китов-убийц / Alaska'
 ```bash
 magnet:?xt=urn:btih:B7CC9A59A051FFFCA69DFD52390FC5DC480AEA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Total Science - Fallen Angel / Not Again (2018) [MP3|320 Kbps] <Electronic, Drum
 ```bash
 magnet:?xt=urn:btih:34ACA3EA3F43BD7BDD58FA43445FC529164D2817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:9AD5D82AE6E5316AD85B27378310451A26725327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:55DF0791AAA765C6FC1118DF6458FF6B50077536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ National Geographic Traveler - это журнал о путешествиях �
 ```bash
 magnet:?xt=urn:btih:836226E00FAEAAD912BE9DC87569294543C35561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ GreenCloud Printer – драйвер виртуального принтера,
 ```bash
 magnet:?xt=urn:btih:F3BE27B58DB3A1EF00B11328D547A6F3A09E123C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ NGW: Укусить. Ужалить. Убить. Монстры в тени / Bi
 ```bash
 magnet:?xt=urn:btih:2ABA0E2EF3E785CA2F507B34D0BB6F6B295B557B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ NGW: Самые странные животные в мире. В толще м�
 ```bash
 magnet:?xt=urn:btih:D4DDEF8472B186D43E1AF4C6364B2061E5CB3534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E75A6430BC95576948665746673C670FDBBC092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ VA - Vocal Trance Collection Vol.11 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:C4DE135E5136EDA1DBCB2CE22B002EE649829B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ My Indigo - My Indigo (2018) [MP3|320 Kbps] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:00811D942443650C6CEEBFFAC51C01BD8D507176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2484437D543449A0BA67D86075EB00BBCFC634D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +459,7 @@ NGW: Самые опасные убийцы. Ночные сталкеры / Wor
 ```bash
 magnet:?xt=urn:btih:FDF784BD15DE593BA07EBBCDEFB58C5510978CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DA7C39DEDCF3E6C5E83C39795B3A89CCF556BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ QQ Browser 10.х - десктопная версия китайского бра
 ```bash
 magnet:?xt=urn:btih:9DB2E90D2E8FFF95FE906B307789D8A86DB897A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28DF6AFA629BEF47986A7EEC603DB4CCCF34CBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ NGW: Заклятые враги. Кошки против собак / Ultimate 
 ```bash
 magnet:?xt=urn:btih:65884897B4375B67000C9120839E1A420C8F1A27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:2EDBF9004D1B23565E8E663590CE882A2BD382C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ Grim Facade 11: Broken Sacrament / За гранью жестокости 11: Р
 ```bash
 magnet:?xt=urn:btih:9240CF172ED41899533E79D61DA446D0EB04305E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B76D8CC7C756F901483E09883CE4F11AD235CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3175E1A6D5E2A23F90EAE6BE5D0F92F49608C9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Rezrog (2017) [Ru/En] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EEA77C5802BBB3985B47A6ABABFC37EB02856157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ProgDVB 7.26.08 Professional [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:564E978E1C27DCAC850B6C48AF66426DEF9B9B66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

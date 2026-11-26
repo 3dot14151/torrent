@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:DF7947B5B945A5C353F3354027024CC36C0B64C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Electrical Calculations Pro / Электрические расчеты v10.0.8 
 ```bash
 magnet:?xt=urn:btih:047453EE43ADE279F3EB5385B64B303961D66E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

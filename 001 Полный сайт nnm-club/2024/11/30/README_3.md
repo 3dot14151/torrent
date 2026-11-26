@@ -21,8 +21,7 @@ VA - Deep Trance Showcase IV (2024) [MP3|320 Kbps] <Trance, Progressive, Electro
 ```bash
 magnet:?xt=urn:btih:8F352546785042CCBDD859B94D728F61FA86C4BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Les Paul & Mary Ford - The Best of the Capitol Masters (1992) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:78E9FA1E19EC19D91861D55890DED35BADF9AD4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ David Arkenstone - In The Wake Of The Wind (1991) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:0C7C0F00BBB111BA0F1FAA46F4E9DA2511D27346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - It's All About Deep-House, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep House,
 ```bash
 magnet:?xt=urn:btih:8B5B68B4872988D7EAABBD2BA42A16CEC54E7E3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C45CAD186E28CE4F98971C3CB9686239B813FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F16D47E7A1BAA8A24A0CD67E3C517EC04672C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F639C41FD5777894583530016B681C876D633CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ Olivia Newton-John - Angels In The Snow (2008) Reimagined, 2024, Primary Wave Mu
 ```bash
 magnet:?xt=urn:btih:AC56AC86B7206A5C1433A227A61A4241B805BDDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 ```bash
 magnet:?xt=urn:btih:7AD5BF51790CDA73FE5284A9F6D0FA1763E533EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ VA - Late Night Relax: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:0084FEC2EC16D1A28CA434EBF8413C828EECC77E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Cliff Richard - Exclusive (2024) Remastered, 2024, DMI [FLAC 24/44.1|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:856963EB2A6B2256F0C1A4C4EBA74F148B39C92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:450951009020A4C4D5F6E198E0B6DFACBD76184D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Alanis Morissette - Compilation (1987-2020) [MP3|320 Kbps] <Alternative, Post gr
 ```bash
 magnet:?xt=urn:btih:F49728ADB417DBC177C63E500FD0771C9F74724F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14D99E7E207C5FFEC951ACF58C08CD6ED5E61643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ VA - My Electronic Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:3F6A5526E14861B857004E8200E699C03D666D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Lara Fabian - Je suis La (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:73EDDDF8DB7B111175DA1E4AEE3322218D9F4689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D823F31802726D66710D613D5744FB36385663AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B455346298F67E3DAC4558C93FADE48E48907BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ VA - Music News For Forum vol.047 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:083A7CB7630F4DE5D5F59D0A26C927DDE23AF8B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ Puppet House - это приключенческая хоррор-игра с э
 ```bash
 magnet:?xt=urn:btih:3DFBA8A0DED907964918AB32B12E18DAEC9B5E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Orange Season (2017) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B956BA64D3734D4E3696AC188565F461D8AA62DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ Lara Fabian - Je suis la (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Fren
 ```bash
 magnet:?xt=urn:btih:69EEE2AC6828FF99C006B96CFACA49E6BF9E2EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ Anastacia - Compilation (2000-2023) [MP3|320 Kbps] <Pop rock, Soul, Dance pop>
 ```bash
 magnet:?xt=urn:btih:CF7FBC8EFF95A84A652E22254699226FA387ABE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

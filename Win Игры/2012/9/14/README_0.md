@@ -19,8 +19,7 @@ The Agency of Anomalies 3: The Last Performance. Collector's Edition [En] (P) 20
 ```bash
 magnet:?xt=urn:btih:2D719122518801ED2FEE0E26488F863BFA9DDECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Chronicles of Emerland Solitaire [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:7581EBB2A1E96EF5A59C771B442FA20C9206135F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead City / Сумрачный город. В поисках человечно�
 ```bash
 magnet:?xt=urn:btih:FF0E0C32DE95824803505EF3F82477D8766C9783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Northern Tale / Сказания Севера [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:5B196E3FDF1C1BC6E9FB8F1A390D7FF69DA65E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

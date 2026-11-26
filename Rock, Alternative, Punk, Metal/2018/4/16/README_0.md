@@ -22,8 +22,7 @@ Becoming A Hero - Becoming A Hero (2018) [MP3|320 Kbps] <Alternative Rock, Femal
 ```bash
 magnet:?xt=urn:btih:66AFE7AF41894553411BBDF9DD065196A77C6F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ ii) Overheard in Passing # 1 (at the Bar)
 ```bash
 magnet:?xt=urn:btih:9CB4A4BB0A30B21FAC40CB90764F6E71721D696D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Everly Brothers - The Very Best Of The Cadence Era (2005) [MP3|320 Kbps] <Rock &
 ```bash
 magnet:?xt=urn:btih:6B0EE16BFA7D3E651A36E8766DC5898684D8EB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stomper - Thrillers (2018) [MP3|320 Kbps] <Alternative Pop, Alternative Rock, El
 ```bash
 magnet:?xt=urn:btih:F904E7B8210355D221C3C7099ECB38D75A8EA43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83C839AD33CA69A65BE4DA8F9E8A7194FBA54B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

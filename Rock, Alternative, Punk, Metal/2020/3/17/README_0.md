@@ -22,8 +22,7 @@ Rawrorr - Cynism (2020) [MP3|320 Kbps] <Blackened Death Doom>
 ```bash
 magnet:?xt=urn:btih:29EE7705589BF61ADEA1AA42E7D1B5B68346710F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ocean Grove - Flip Phone Fantasy (2020) [MP3|320 kbps] <Nu-Metal, Alternative Me
 ```bash
 magnet:?xt=urn:btih:00259211847689AFF916C45D0FB7464CDCBDD4C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nocturnal Depression - Tides Of Despair (2019) [FLAC|Lossless|tracks + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:8665B307DE37FA95AD068234BC9F107172CBF323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADC509C68527CCD307C8F89B509A14B4E545A62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ethir Anduin - Pathway To Eternity. The Agony (2020) [MP3|320 Kbps] <Black, Doom
 ```bash
 magnet:?xt=urn:btih:EA44CD483C3A1B27424DA7AA900AC1A395ADF248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Kreator - London Apocalypticon - Live at the Roundhouse (2020) 3CD [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:8A0B7E3F22FB5421CE80ADDF847B362401014332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Kreator - London Apocalypticon - Live At The Roundhouse (2020) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:A4884F8A2707E9C275A9903084701F4C5177AD40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Svartálfar (Svartalfar) - Niflheljar Til (2020) [MP3|320 Kbps] <Folk Viking Met
 ```bash
 magnet:?xt=urn:btih:CCC52CAAFD10B28195B7A7F58958166513CC364A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Noel Gallagher's High Flying Birds - Blue Moon Rising (2020) EP [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:5E087E702156B5718497970215CB568DFD8195F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ In This Moment - Mother (2020) [FLAC|Lossless|tracks] <Alternative Metal, Metalc
 ```bash
 magnet:?xt=urn:btih:D5BA60C297CD2CD2A18D184213137D5085A72332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:874BA2AEF0BA08145DC0B755B3352D4C720A391F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Sepultura - Quadra (2020) Japanese Edition [WavPack|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:BFC4D23A1A8436FCA9BDC9457F8CE5E462AFC449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

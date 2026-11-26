@@ -21,8 +21,7 @@ Pat O'May - Welcome To A New World (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:A55203B8DAE0FBE1EF05A3932F1A990B6AC2E0D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Yoko Miwa Trio - Songs of Joy (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop>
 ```bash
 magnet:?xt=urn:btih:BC11A8AFA90923B88AB5EEF43091EEEE1B21233D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Jim Peterik And World Stage - Tigress: Women Who Rock The World (2021) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:46E0D68F9C858CD59280D9555C5C44B683B75C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1236ECF04BFF335619B2A0C5B10EAB58677E443C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Emma Ruth Rundle - Engine of Hell (2021) [FLAC|Lossless|tracks + .cue] <Post Roc
 ```bash
 magnet:?xt=urn:btih:6A5A10EA61C91E8E954E22C175BD6E602C11DFD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Najponk Trio - A Hard Day's Night: Live At The Office (2018) Gats [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:879F3202C4C88864D8BD8234B81732DDA09FC9FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Bedroom Jazz Vibes, Vol.1 (Smooth Sexy Lounge Sounds For Chillout) (2021) [
 ```bash
 magnet:?xt=urn:btih:4A37F5613E7ABF89B2AF434AB02D81C9A3561B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ Illumishade - Eclyptic: Wake Of Shadows (2020) [FLAC|Lossless|WEB-DL|tracks] <Sy
 ```bash
 magnet:?xt=urn:btih:7EC9746EB99FCBA5DFD34F96326AD8418CF832AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Crazy Lixx - Street Lethal (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:09DDCFA020DA6BEA305A8F660A7E22B8E8E64721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 ```bash
 magnet:?xt=urn:btih:DCAAD154FBB1BFC7E158CEF84C3DE1E8B0410B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ AnyGo 5.2.1 [En]
 ```bash
 magnet:?xt=urn:btih:DEB963ACC9589292A07AA6A025AF8C5379D55D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6932AB5B4991CD6DA3015E780104F5E3B93D428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ Bill Evans - Behind the Dikes: The 1969 Netherlands Recordings 2CD (2021) [FLAC|
 ```bash
 magnet:?xt=urn:btih:1C9B1B6DB1A24B3E511E4B3E261B66B75AAC88EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A926B772BFE39CCE1339282FAEC0254883969BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4C44D5A3D1890D797ED1D65AEF446AD380D4585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Sip Pro 4.5.2 [En]
 ```bash
 magnet:?xt=urn:btih:9E4FFB1AB7E3D76E7EB8B46FC0E3E4C835EC07E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ VA - Hardstyle Dance: Fitness Energetic Sounds (2021) [MP3|320 Kbps] <Hard Dance
 ```bash
 magnet:?xt=urn:btih:EE517E3814D68A675E569D6FBDC836F497BDDE19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Galneryus - Union Gives Strength (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Neocla
 ```bash
 magnet:?xt=urn:btih:C626240E346F4D7DCF144A0759907C7123A9EC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ dBpoweramp Music Converter - это совершенное конвертиро�
 ```bash
 magnet:?xt=urn:btih:4C77D02EDD4F40DB6F4CD4051826B7BCA44F8B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ Edge of Paradise - американская хард-рок / хэви-мета�
 ```bash
 magnet:?xt=urn:btih:C13BFC8B9640541B769E97D87D1B8CA3D2644678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ VA - Techno Beats: Electronic Mixtape (2021) [MP3|320 Kbps] <Techno, Electronic>
 ```bash
 magnet:?xt=urn:btih:066B38599B1AD84E3687764F2A9F43AD2F3E6883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F61B7CB6A125AD4D776B3ED25A7B728B43CC1E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A759F807120EEF6111576EBC6D070C7AD8C3270A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:540E3EB0B3BE2896CB9A28971CB3F9ECA3969920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ Rhinoceros 7 v7.12 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D23729100B0B0A1B97277757D596598FA1DC5534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ VA - The Mushroom Substances (2021) [MP3|320 Kbps] <Psychedelic, GOA Trance>
 ```bash
 magnet:?xt=urn:btih:DC7B190726B910276D2E01FA49B5AF1D313F5272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

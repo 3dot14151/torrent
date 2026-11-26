@@ -28,8 +28,7 @@ The Pretty Things - Parachute (1970/2000) [MP3|320 кб/с]<Psychedelic Rock, Pr
 ```bash
 magnet:?xt=urn:btih:78879BFD14040D00F2DF9109A7B433AF8045FA29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD 1 - THE BEST:
 ```bash
 magnet:?xt=urn:btih:B783BAC4ED7A417B940039B4CACD981A02DF7221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ House Of Lords - The Best of the Ballads (2014) [MP3|320 кб/с]<Melodic Hard R
 ```bash
 magnet:?xt=urn:btih:FDD1FFBE7AA35FF5525327A81F954CE244F6B4C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Pink Floyd - Dark Side Of Pink Floyd (2004) Bootleg [MP3|320 кб/с]<Progressiv
 ```bash
 magnet:?xt=urn:btih:9E7A28EE7437DAEBD2E79DABFF7175228654CBCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:CE0DB632ECE43E4FDE1734D90916C1DA01B87F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Exodus — культовая американская рок-группа, иг
 ```bash
 magnet:?xt=urn:btih:DB537408E2371A4F8C42A33AEF32B7CC52FF8A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ The Hardkiss - Stones and Honey (2014) [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:DD89442C0070FFE04CF0C3079459E0A8BDB1BC95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

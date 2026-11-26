@@ -28,8 +28,7 @@ VA - Звездная зажигательная тусовка (2011) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:CF58FC88B8ACAD268A712348CAC0349ADC4E761A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Neon House Night Vol 4 (2011) [MP3|320 kbps]<House, Electro House, Progress
 ```bash
 magnet:?xt=urn:btih:27D78C0AF487F4EAE836F78BCE15CC1E2F7533D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Room Reconstruction Mix)
 ```bash
 magnet:?xt=urn:btih:313BD00EE6AB13FB8CA2C000C9D2417189251955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Попсовый Хит Парад (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:FF6B6F555B5AB266A749EE2CC2F97250192E9844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62D356A0C11804192974AFD2B42FCC3FE9793901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Gurd - Never Fail (2011) [FLAC|Lossless]<Thrash Metal, Groove Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ VA - Танцевальный кураж Хитовый (2011) [MP3|128 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:FCF0A37B5C54AC75FC423D51FDE733BC8EE80B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:3808070CB5F251E73494DC792977142129DBBAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C478479174E5A8B9B2B32C28550FD445C56E872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +315,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:3C7C433ACC468D4772253E2BE042F9791261DA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ VA - Блатная Волна На Радио Шансон (2011) [MP3|256 kbps
 ```bash
 magnet:?xt=urn:btih:58FE16368D7912993DB1CEEC63FCFDEB176012B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +382,7 @@ VA - Лучшая 200ка Русского радио 9 (2011) [MP3|128 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:CF2ACB28BAA45DCC49775EA200086BB632A2F073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +416,7 @@ VA - 538 Dance Smash Hits of the Year 2011 (14.11.2011) [MP3|320 kbps]<Club, Hou
 ```bash
 magnet:?xt=urn:btih:738E834D308AF8D9A339E36E242412676A2B1327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3912708CFEC7F657E2841E20837901DEF1F105D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +475,7 @@ VA - Бездна VIPТусовка DFM 50/50 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E935EFC0F651C7D8963F8CBB75D9EA94B761E5C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +509,7 @@ Julian Lennon - Everything Changes (2011) [MP3|320 kbps]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:6649CA9248313696A66458F395C5EE5724123802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +540,7 @@ VA - Weekend In Amsterdam (2011) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:16416668B16CDF290EF16FE016B5187A02D7C95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +574,7 @@ Wellenrausch - Personal Epos (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:FD83EB6B4762E5AF484F7E64ABF2E56043C61952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +608,7 @@ VA - Союз Блатных Хитов  (2011) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:D99C04E978D93380268FDE72ADFDEF89200784AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +642,7 @@ VA - Dj Imix - Excellent Electrohouse Mix 14 (2011) [MP3|320 kbps]<Electro House
 ```bash
 magnet:?xt=urn:btih:DA68424A01C383F20BB04C54E78CDA7956E1E883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +676,7 @@ Trillium - Alloy (2011) [MP3|320 kbps]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:C682D3D6C60D438825E821FFB78AFA1A57262757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD908F8FDD2DEB2033486CF4181CA644B50849BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +736,7 @@ VA - Только Лучшее От MTV (2011) [MP3|256 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:9E7665309E3FD28802C4D7CF848B1B2B199EE6F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +770,7 @@ VA - Сборник Танцевальных Новинок (2011) [MP3|256 kbps
 ```bash
 magnet:?xt=urn:btih:193D945C19E88548C544F2819106546031B61860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -828,8 +804,7 @@ Issa - The Storm (2011) [MP3|320 kbps]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FE9E6B7FD3ECABDE9F416D69412F3FFD1C3CC92B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -854,8 +829,7 @@ Omni-Crawler - новая гусеничная двигательная сист
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

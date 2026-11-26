@@ -22,8 +22,7 @@ Forces United - Симфония Холстинина (2018) [MP3|320 Kbps] <Hea
 ```bash
 magnet:?xt=urn:btih:F47A452A6BB02CE2EB426A2AAAC097912798FE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

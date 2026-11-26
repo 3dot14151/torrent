@@ -19,8 +19,7 @@ Haunted Halls 4: Nightmare Dwellers Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:6B2A2612B67F103185D7EC555BBFE1A9FB8C6B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Hammerwatch (2013) [En] (1.1) Unofficial VACE
 ```bash
 magnet:?xt=urn:btih:87087C3385243CBEDAB7EAF63749FF910EEEFA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Unepic, это комбинация платформера и ролевой и�
 ```bash
 magnet:?xt=urn:btih:58430F96720A8BB2F3652F9A2DDB978A3A33554D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

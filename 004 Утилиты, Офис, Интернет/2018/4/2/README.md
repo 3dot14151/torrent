@@ -19,8 +19,7 @@ Raxco PerfectRegistry - программа для исправления оши�
 ```bash
 magnet:?xt=urn:btih:D582A91163C2CBC1EEC8D1080C25DF166AACE59B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

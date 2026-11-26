@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Gene Ammons - A Stranger in Town (1954 - 1970) 2002, Prestige [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:D2B1AD943535F42A0287EA19403E8171BBCA48D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Trace Adkins (Трэйси Эдкинс) - Something's Going On (2017) Wheelhous
 ```bash
 magnet:?xt=urn:btih:FEF8AC58CF61E81A1E4DED0C82E996EE5D018577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Trace Adkins (Трэйси Эдкинс) - Comin' On Strong (2003) Capitol Recor
 ```bash
 magnet:?xt=urn:btih:71615EB86C1013AB62373AC9D78AD7593CE878F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9891616533DAC46F3308C3189A2BDFB95E847F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Makia Blue - Dreams In The Twilight: Psychedelic Chillout (2018) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:7C76D7DC337BD7B3993F1FFB09D4B771BA519612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Yann Novak - The Future Is a Forward Escape into the Past (2018) Touch [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:92A55CCED13573178B169C3EBDA1F62CA1A4BD70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7855A6CCBD0551A5C88E4F425A7CB60D60A3AA0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C602DCBF65904AD24F307E6B586D6BBFBD17D071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ VA - Zirkus Zirkus, Vol. 18 | Elektronische Tanzmusik (2018) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:911AEDC87D38B01E79CD2C50C44287242523F607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:AE93A6A9D7BFF7FBC45E0111C98A7FBC1FE619BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - Subculture (Mixed By John O'Callaghan & Cold Blue) (2018) [MP3|320 Kbps] <T
 ```bash
 magnet:?xt=urn:btih:C7790F72E6D0E0362B308D64C4ECE14D126F3904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC21ADBEA5637E6F0C0843DFB4FF158743662385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ Trace Adkins (Трэйси Эдкинс) - The King's Gift: A Celtic Christmas C
 ```bash
 magnet:?xt=urn:btih:E76524274F34BCEBF7CB0EE7748A0BE507BF557B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ VA - Empire Records - Deep Blue (2018) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:B786E1F4D78A11797B1F5EE2175790ACD460ECA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ VA - PSY: Megapack Psychodelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Psychod
 ```bash
 magnet:?xt=urn:btih:199E2900D4566B36FFDC6A7F8189ABB7769B4F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ Disk 01:
 ```bash
 magnet:?xt=urn:btih:592A5CACE87238CB5590E6EE99A37F8AFC777E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A10FFD175839F3537305A3507BF05D8F6620817D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ The Big Blue House - Binne my (2018) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7507A50ED230AAD7173E1542861E6D24639C63B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ VA - Black Hole Presents Best Of Vocal Trance 2018 Vol 1 [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:4EEB9CF2B7C7F96A86B96FD6B900ADD24C21C5D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ VA - Vocal Hits Vol.4 (2018) [MP3|320 Kbps] <Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:2024338DE8D81F407F6B7EAEED5820D9F90FD303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ Movavi Video Editor 5 Plus 5.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:06A0BB73B5E36CBE8603B2F665142ED6417FE639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ ActivePresenter — программа для создания презента�
 ```bash
 magnet:?xt=urn:btih:90A8C25E0DF772F6D6FB91556060733296A59393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A43B8B98C04BCE02653FBEB4747F1AC9F038E3BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ VA - Amazing Piano Music (2018) [MP3|320 Kbps] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:C6C23BB5C61E0529B0B0F13FE9EE43D94D5AB1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ Janiva Magness - Love Is An Army (2018) [FLAC|Lossless|image + .cue] <Blues>
 ```bash
 magnet:?xt=urn:btih:DB67500BE59FBC4E880E8680FC82D1033BAD9A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

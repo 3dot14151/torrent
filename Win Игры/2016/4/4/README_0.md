@@ -19,8 +19,7 @@ Monumental - приключенческая видеоигра, в которо�
 ```bash
 magnet:?xt=urn:btih:FD772FA77CD9C9B25F6BF2EBBBF689ECD1FD325F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wick - приключенческий ужастик от первого лиц�
 ```bash
 magnet:?xt=urn:btih:0EA635E6F175F7ED3B1AF205B54A636AB0FC4572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ DISTRAINT - двухмерный психологический приключе
 ```bash
 magnet:?xt=urn:btih:0952364A7AEC45C35234BC3BB3CAC80A168AFFAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

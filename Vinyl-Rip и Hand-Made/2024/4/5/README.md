@@ -22,8 +22,7 @@ Crisix - Studio Albums (8 releases) (2011-2023) hand made [restored, declipped] 
 ```bash
 magnet:?xt=urn:btih:6158888609499D7474C497961D8C5A45CF0661D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Corroded — хард-рок группа из Онге, Швеция.
 ```bash
 magnet:?xt=urn:btih:84BECAC875B3B4325247E73FF36E878F67BF03C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

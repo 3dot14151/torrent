@@ -28,8 +28,7 @@ Nevergreen - Vendetta (2014) [MP3|320 кб/с]<Gothic/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C5541941CF1471373B5B5BF76E14B0E62927A06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Clap Your Hands Say Yeah - Only Run (2014) [FLAC|Lossless]<Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:02B84671BEAE232DBE94738392CAEE0C3F682287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Nightmare - The Aftermath (2014) [MP3|320 кб/с]<Heavy / Power Metal>
 ```bash
 magnet:?xt=urn:btih:8596909B77501227C3C3E850ADCD31AD90429EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Gruff Rhys - American Interior (2014) [FLAC|Lossless]<Rock, Folk-Rock, Indie-Roc
 ```bash
 magnet:?xt=urn:btih:390C89EFDD6F21730A31180D19D3737C09C2F0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Drake Bell - Ready Steady Go! (2014) [FLAC|Lossless]<Pop-Rock, Rockabilly Reviva
 ```bash
 magnet:?xt=urn:btih:EA885F653C2AE3F850839641DE0F639341D21D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Boy Hits Car - All That Led Us Here (2014) [FLAC|Lossless]<Rock, Alternative Roc
 ```bash
 magnet:?xt=urn:btih:3CE2E3C3B6DA055EA5617BC3DFE189CC09ECFF0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Black Stone Cherry - Magic Mountain (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:C4211B7BA0EDD1CAFF3305F71EB52005897EAB04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ The Black Keys - Turn Blue (2014) [MP3|320 кб/с]<Indie Rock / Blues Rock>
 ```bash
 magnet:?xt=urn:btih:1DA458A9C93FF905F4E90594E799161B5092FEA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

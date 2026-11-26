@@ -19,8 +19,7 @@ Playboy — американский эротический развлекате
 ```bash
 magnet:?xt=urn:btih:43A8B6774013BF0034E3AF4B07004BFBCE02819C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

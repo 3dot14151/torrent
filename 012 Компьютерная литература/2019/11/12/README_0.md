@@ -19,8 +19,7 @@ Java EE 8 - современная версия популярной платф�
 ```bash
 magnet:?xt=urn:btih:4BC9BF3FEE185A63D1AA8DE398E5AC5FEF8269DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

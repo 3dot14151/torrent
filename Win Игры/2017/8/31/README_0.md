@@ -19,8 +19,7 @@ Parallels Cross / Пересечение судеб (2016) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:80BFF0788B7ECD6AB4B3535D995666D0F49E3BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Tales 4: Her Own Eyes / Загадочные истории 4: Её гл
 ```bash
 magnet:?xt=urn:btih:487FBEC53D1281DF1ED1A8F57C39CEBB087689F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Last Day of June (2017) [Ru/Multi] (5.6.1) License RELOADED
 ```bash
 magnet:?xt=urn:btih:660D4415FDB08828BFB355FB2D3A09E9D543C7C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Legend of Grimrock 2 — это ролевая игра в стиле dungeon cr
 ```bash
 magnet:?xt=urn:btih:426DBB533BF05F869D139AFEBC6C2F512A4ACBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

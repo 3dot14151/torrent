@@ -19,8 +19,7 @@ WeChat — это бесплатное приложение для обмена 
 ```bash
 magnet:?xt=urn:btih:C989AF2BBF3E8C56AE202643649F05D579471D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MEGA (файлообменник) - безопасный сервис облач
 ```bash
 magnet:?xt=urn:btih:D81C81662CA8ED0743654BC17EE959F6384A65C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

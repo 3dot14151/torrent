@@ -22,8 +22,7 @@ VA - Алексей Мажуков – Песни Любви (1983) [FLAC 2.0|19
 ```bash
 magnet:?xt=urn:btih:A4292920DF906823BAF83E4D49F043AA4FA1BBCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dimmu Borgir — норвежская группа, играющая в жанр
 ```bash
 magnet:?xt=urn:btih:7C81AE2EDE65045BCCE29CDD0DCBF27DE29C0A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

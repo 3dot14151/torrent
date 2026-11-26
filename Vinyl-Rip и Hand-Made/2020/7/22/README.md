@@ -22,8 +22,7 @@ A4 Delicious Demon(   Читать дальше...   )Жанр: Indie RockПро
 ```bash
 magnet:?xt=urn:btih:927F0DB50C4417601C4F1B32DAE43A095DCF26B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A2 Грибной Дождь
 ```bash
 magnet:?xt=urn:btih:0CDED09D127024EC26AA4B769EBD6CDDEA3583CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

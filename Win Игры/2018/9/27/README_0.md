@@ -19,8 +19,7 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:16365DA35ECAB8AB3F1AD6C97CA9816BA53D353C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

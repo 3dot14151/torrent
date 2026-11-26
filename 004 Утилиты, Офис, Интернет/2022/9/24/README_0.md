@@ -21,8 +21,7 @@ OkMap Desktop - десктопное приложение позволяющее
 ```bash
 magnet:?xt=urn:btih:87E6863BABB2B4A7D73D4E5F2E1B6A0BD9742071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

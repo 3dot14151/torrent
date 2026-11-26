@@ -19,8 +19,7 @@ Combat Mission: Afrika Korps (2003) [Multi] (1.03 rdna fix) License GOG
 ```bash
 magnet:?xt=urn:btih:5501D35AB0A30770DA5426AC43591273A679F8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Combat Mission: Barbarossa to Berlin (2002) [En] (1.03 rdna fix) License GOG
 ```bash
 magnet:?xt=urn:btih:9832767ECB1D4BC8ADD6E483FCB0CCF1C0019606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

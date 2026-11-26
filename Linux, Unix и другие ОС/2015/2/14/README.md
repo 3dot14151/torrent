@@ -21,8 +21,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [i6
 ```bash
 magnet:?xt=urn:btih:84CD119116BA8D17AF579BBC6BC91D6EA1E04327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Mageia 5 Beta III [i586, x86-64] 7xDVD
 ```bash
 magnet:?xt=urn:btih:8BC0520558E30DB2AF8F073C560365F5785EB33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Tails выполнен в виде Live-системы, позволяющей �
 ```bash
 magnet:?xt=urn:btih:78168DF7970401E5825B6833D95A231BE7FAD8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemp
 ```bash
 magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ C3. I Want To Disappear :: 03:12(   Читать дальше...   )Жанр: In
 ```bash
 magnet:?xt=urn:btih:0C81EDA9D2AC5F073C8EEB0C7AD540ED31EA88A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ C3. Happiness Loves Company :: 03:33(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:6C73BBD0AA43211A4A81F8E2C74A7DE714A9D90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

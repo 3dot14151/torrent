@@ -19,8 +19,7 @@ DNS Changer — это самый простой способ изменить �
 ```bash
 magnet:?xt=urn:btih:2C5E05CD58886104060EE55AFDC27D4B844B45F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E022E195990B9D006A7DB100D3FA8231610998EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:E5F37D03517DE960F1139BC1DB421B7EB8FE4033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Astrological Charts / Астрологические Карты Pro v10.5.1 [Ru/
 ```bash
 magnet:?xt=urn:btih:6EC3B7717E3DF4456A99E112D7411DC21BC3EDD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sense Flip Clock & Weather v6.51.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B77AE030133E279C39BD1874EB934252506E3213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:94375DAC855FAF723584936A772907BB9EA5ED2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Horary Chart / Астрология: Хорарная Карта v3.1.1 [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:245556024EC3F26286F9CC27CD3C67A15085F065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7E3114255A181C3F31CC290F815D6D048E1CDC7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ This book aims to serve as an academic manual designed to aid in understanding a
 ```bash
 magnet:?xt=urn:btih:CCC01B5A2F0AF5A4AF15301E9B9E39B18687F443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

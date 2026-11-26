@@ -19,8 +19,7 @@ Phoenix Point (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:A15AAD38144285A0ABD7D0C2DBD8872ACDA0B90F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assetto Corsa Competizione - продолжение реалистичного �
 ```bash
 magnet:?xt=urn:btih:E25E12062402FA7893AD2A3A272312D595D84D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Onirism (2025) [Ru/Multi] (Build 21313783) Repack Other s
 ```bash
 magnet:?xt=urn:btih:505587FF95F4ABA3A6ECB835D8C5270FBEA88BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Stonehearth (2018) [Ru/En] (1.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C37FF6B36A88482670E72F8826079A9B089586E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Yakuza 6: The Song of Life (2021) [Ru/Multi] (1.009a/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:25FBF1226556C3A87FCD509026CADABDEE9DF50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ City Transport Simulator: Bus + Tram (2025) [Ru/Multi] (1.4.0/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:96D5AD39BB08587F8080084AB160B8BE35E79743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Emissary Zero (2025) [Ru/Multi] (1.2.3) Scene Tenoke [VR]
 ```bash
 magnet:?xt=urn:btih:92E646540471723407ADB66AFC3F48790D7F150A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Paranoia: Happiness is Mandatory (2023) [Ru/Multi] (Build 12698814) Repack Let's
 ```bash
 magnet:?xt=urn:btih:E3A45EFA89ECC09196F7637E7EEDA75BD22C73E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Ascent - экшн-RPG в духе киберпанка с режимами �
 ```bash
 magnet:?xt=urn:btih:E64F82030E4FFCF6FA2BF3ADBA4CC1A90EEB7011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ DDoD - это шутер с видом сверху, элементами выж
 ```bash
 magnet:?xt=urn:btih:E27F253F6FC8ACF751438492BC8DC144F772013E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Snow Ash - это карточная торгово-приключенческа
 ```bash
 magnet:?xt=urn:btih:8954B1ACAF5DC480BF9647A398213A49ED6B2DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

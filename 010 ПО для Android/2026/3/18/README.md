@@ -19,8 +19,7 @@ AIDA64 v2.19 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B1E971FE004082EA68A2A48B819613946CD6EB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:40BCD758F05AEE017633444CB76EE7F3733BCF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Smart Tools® 2 - это расширенный набор инструмент�
 ```bash
 magnet:?xt=urn:btih:115E045A2B264D722EFA886D69E9CB57C9334388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:429E2FF75D2E99C81BD97705A669E937CB090C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

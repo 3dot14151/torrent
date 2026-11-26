@@ -21,8 +21,7 @@ SmartWhois - это удобное средство получения всей 
 ```bash
 magnet:?xt=urn:btih:F48EFA3BB0E7B9C2746E5C91AA547408BF10C50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ TMeter Premium edition 13.2.659 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:68A749C92D732341AEC1CB57423628CD5982A511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ WRC 8 FIA World Rally Championship (2019) [Ru/Multi] (1.1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:3F33EF43345D5C8B8A16D2E5A67B758C89E64DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

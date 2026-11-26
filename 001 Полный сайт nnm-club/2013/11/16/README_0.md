@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:D9F66943D54D84885D6369E01BD188B534451B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Kenny Banks - Truly Free (2010) [FLAC|Lossless]<Jazz, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:B5AEC716077BC8560976D578E6F80A9A57835217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Iron Mask - Fifth Son of Winterdoom (2013) [FLAC|Lossless]<Neoclassical Power Me
 ```bash
 magnet:?xt=urn:btih:FA71C374B3585B091DA3101B597D2A6A79D80E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A10BBB808C9B2464C49512236BDA877A45C52600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ VA - Tech Tronic - The Festival Essentials (Mixed By Kaiser Souzai & Pierre Deut
 ```bash
 magnet:?xt=urn:btih:AF705770CA90774C2ADB824CFC1E94723E3CD5CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:CC4A633CD1D3BACCF5F9689FE84094FA3CC98D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31ECE57FB0E2F3EC612918669DF4D92B7CF7BA50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ Entropia - Vesper (2013) [MP3|320 кб/с]<Atmospheric Black/Post-Metal>
 ```bash
 magnet:?xt=urn:btih:4CA218C04E00EBD10F679279276972037ECA9427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7717AC6F1E09D58FF31917C993078F34DAB8EFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AF3AA962B7BB9A7E5064C255865BAB57378EF50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ Deafheaven - Sunbather (2013) [MP3|320 кб/с]<Black Metal/Shoegaze>
 ```bash
 magnet:?xt=urn:btih:B9309E96063D911D902BB11B51BF6790DB9AC7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ Julian & Roman Wasserfuhr - Upgraded in Gothenburg (2009) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:115DAAB1D6F03A707B82E6F16F6EFDB13E1E7EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ VA - Vocal Trance Essentials Vol 11 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:9AC80F8D2EBECE4805DAC6D0D4BE872C4DA1553E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F6BAD2D21C390F3D0278C06199BFF1ACECAB5C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ Wisdom - Marching For Liberty (2013) [FLAC|Lossless]<Power Metal/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:765C731202D9BBDE5548B6893B4B21644C63EEE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:025E36EE85AE9310953A98F548FB6062BCEA2261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ Aosoth - IV: Arrow In Heart (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:2EC2FEA1D6994A6C8DFA90891BA0C66B16B61C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:451C8E1AD4BD18C2F95797D057985D1E8D5F1245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ In Solitude - Sister (2013) [FLAC|Lossless]<Heavy Metal/Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:1E40A54FAB317EA1A31FF78A33784387AA0936D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ VA - Chill House St. Tropez: The Beach Sessions (2013) [MP3|320 кб/с]<Deep Ho
 ```bash
 magnet:?xt=urn:btih:9589A8C65F71B808EF33E5EE8E16BC7479B8D131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1014890429152C4C4993281331BA87082D6E954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ Isaac Shepard - Knights and Damsels (2013) [MP3|320 кб/с]<Instrumental Piano,
 ```bash
 magnet:?xt=urn:btih:9BC795D478A244411F1EE12DB663A481D6439ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49DEC6A6D5961FE7A97D4591299536455ECF22C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +732,7 @@ Bane of Winterstorm - The Last Sons of Perylin (2013) [MP3|320 кб/с]<Symphoni
 ```bash
 magnet:?xt=urn:btih:A0E11D39A5C7B9133F120466EB50DAD636402528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ VA - Vocal Trance Sessions - Best Of 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:DED7C52C8464FF869790E028A005FDC7E3053004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

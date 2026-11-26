@@ -22,8 +22,7 @@ Philhelmon - Enjoy It While It Lasts (2012) [FLAC|Lossless|tracks + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:E089ED41436318A541E5954E40E0324B4CD5AC15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Countess - Child Of The Demonic Moon (1999) 2006, MetalAgen / Soyuz Music 
 ```bash
 magnet:?xt=urn:btih:5468BC35494F79618CB5D497BA6AFED08F080B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Zeus - Attack Time (1981) LP [MP3|320 Kbps] <Electronic, Krautrock>
 ```bash
 magnet:?xt=urn:btih:9125606F3157F88E7F20872223528030478097C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Steve Lee (Gotthard) - The Eyes of a Tiger: In Memory of Our Unforgotten Friend 
 ```bash
 magnet:?xt=urn:btih:50CCA3A885C7B9F4B24FAC632ED943113ACFE344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Irish Coffee - Heaven (2020) [MP3|320 Kbps] <Hard Rock, Classic Rock, Blues Rock
 ```bash
 magnet:?xt=urn:btih:2D4352841CDE838BEA9A0A9F96BD18975C6869AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

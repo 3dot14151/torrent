@@ -19,8 +19,7 @@ Dreamfall Chapters - это сюжетно-ориентированная эпи
 ```bash
 magnet:?xt=urn:btih:1CC78958CA037B7805808AAE7721C9672A8C7454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pure — это мега-адреналиновые гонки на квадро
 ```bash
 magnet:?xt=urn:btih:2A994618EEDACF612B37378227D27980B1A377F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Styx: Shards of Darkness предлагает заняться любимым д
 ```bash
 magnet:?xt=urn:btih:24A63B13D58D537D55652EFD11C3ADF7C3C5BE3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nancy Drew: The Silent Spy / Нэнси Дрю: Безмолвный шпион 
 ```bash
 magnet:?xt=urn:btih:F7381E28F7B85B69A36C4AF71025B709A52D5299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Snake Pass (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A16F0CAECAC5652549F91490D450AEF3C5EB800B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

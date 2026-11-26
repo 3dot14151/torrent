@@ -19,8 +19,7 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (3.16/dlc) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:FF3E2DD8EB58F63904EE465F71A8A5A115CD4282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ZERO Sievert (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:43F57FB717AE095267B9AB5C87996B1AFB183E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Forever Skies – это нетипичное выживание, в мире п
 ```bash
 magnet:?xt=urn:btih:3DBA1A955E07C7C277BF98575541470A8E1C7647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 ```bash
 magnet:?xt=urn:btih:039B74795BDEC05FB877DE194886A06BFF219CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:49147375226F461371CBFD8080FC2AE2B98DA6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mullet MadJack - это динамичный шутер от первого ли
 ```bash
 magnet:?xt=urn:btih:756E58558F4AEFCA99E65C1DE4C3A59E96E0C967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.6.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5D84FF15766ADF0931B890AA412CCD500AD11A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

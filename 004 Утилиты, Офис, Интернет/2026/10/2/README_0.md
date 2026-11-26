@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:18AD1C299321B1AFB4BA982CF16B522A0C714D53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:90EF3D1AF3A6BE95A642B58E4C784FC8DD38E33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SoftMaker Office Professional 2026 Rev S1504.0918 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:365592060E370FA619AF3B8660653EB64E957C82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:0E7F09122657E77B0200CD10EC04C90BB25D41C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:6FE4B0F21854CE8D60A1EC123E4254C1A4F183B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:FB981D00C9C438E2331A92F68AF706B176EBDD6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ SoftMaker Office Professional 2024 Rev S1236.0926 RePack by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5B3A0C0BD7A8AED7D2F3DC69390CAAFEDFF53295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

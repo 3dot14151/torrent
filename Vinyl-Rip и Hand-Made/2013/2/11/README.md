@@ -26,8 +26,7 @@ B4. Overture Piccante 6:43Жанр: Classic RockПродолжительност
 ```bash
 magnet:?xt=urn:btih:336438EA30105DCE5C9EB29D9EE3EDC5049C727D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

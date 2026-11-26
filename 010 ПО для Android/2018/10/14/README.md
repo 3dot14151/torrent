@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C77A9A26E2B941B5566E511CC32EAE4D071DB2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ EveryCircuit v2.19 [En/Rus] - Проектирование и моделиров
 ```bash
 magnet:?xt=urn:btih:511FAFD6DBB5A517461244DAFDAE0F62FA64D822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

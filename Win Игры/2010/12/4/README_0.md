@@ -26,8 +26,7 @@ Nail'd – это гоночная аркада с неповторимой ат
 ```bash
 magnet:?xt=urn:btih:AB3E85E9BC35D409EA4A4A1F242EDF5C9D82301B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Nightfall Mysteries: Asylum Conspiracy  / Под покровом ночи. Ос
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DFFB0222013B1B444759E7AC938F8F5AEAC5BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Greed Corp [En] (RePack) 2010 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:5E716F8260DDCA6C8D7E2BBEAF3F129512538D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

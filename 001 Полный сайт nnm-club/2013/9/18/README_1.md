@@ -27,8 +27,7 @@ DJ 007 BIRTHDAY MIX 2013
 ```bash
 magnet:?xt=urn:btih:DEF7F9FF1F7FB50F3B956F34D6A6BB6DF4B4E540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:0718C47DF645A03D6C82FB173905EBE552555E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:236594F9A5D0FEA5BF86FD3841A83CBCE7B01F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Spiral - Hands On IV (2013) [MP3|320 кб/с]<Spacesynth>
 ```bash
 magnet:?xt=urn:btih:5AC3431FB82D635565B4E6EF86F01BC9FA8D28AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBC865CAFC1B9EDB6FAF7693158E970E5397E6C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ VA - Beluga Lounge, Vol. 1-3 (Lounge and Chill Out Moods for Underwater Living) 
 ```bash
 magnet:?xt=urn:btih:C290B2CB417F3E9211162BCF2CF92B800B041D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Ministry - From Beer To Eternity (2013) [FLAC|Lossless]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:2E937B09A3ABE506BC2EEFB355068534C06C60A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ Wallpapers - Обои для рабочего стола - разное (17.09.2
 ```bash
 magnet:?xt=urn:btih:7F17ACCEE646C4D1CCCFE034D98B0221E31984E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Wallpapers - Обои для рабочего стола - разное (18.09.2
 ```bash
 magnet:?xt=urn:btih:1CE26600303CB3AE00248FEF38A39630C1C4C54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8704B434A5AE4EFEE8D27258601B72478265F326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ Mind Vortex – Gravity / Catapult (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:0A2BAE15CCCAB47FBDC68AEE6723B4FE9A945488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:170355F7331261A1F9440C4BA199D68FE6613AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +364,7 @@ Albeniz: Suite Espanola Op. 47
 ```bash
 magnet:?xt=urn:btih:E4700A72D81AFFA0C636A1E75C1D0BF3FC268E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ VA - Мега дискотека от Русского радио #7 (2013) [MP3
 ```bash
 magnet:?xt=urn:btih:E13A2B4AD9118341CA8CE723CB20453365694652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ Orjan Nilsen - No Saint Out Of Me (2013) [FLAC|Lossless]<Trance , Progressive Ho
 ```bash
 magnet:?xt=urn:btih:538D47FC1D9BB5B699FA3EAC464AA3EA8A14EA99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +466,7 @@ Anathema - Universal (2013) Live [MP3|320 кб/с]<Atmospheric Rock>
 ```bash
 magnet:?xt=urn:btih:64EC7871EE7A6C967FF85F5119F2538B4E95C92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ VA -  Революция молодежи на DFM (2013) [MP3|256 кб/с]<Danc
 ```bash
 magnet:?xt=urn:btih:FB070F1A3D85A48BD5DA2FB962A73AAAA43FC89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDF8FB33FCF0490C2C62DDDFBB9A7677BF34C23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ VA - Jazz Legends (2012) [MP3|320 кб/с]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:CC587571905483BBD15851229E358757C526BD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED43E6F7C1828468DBBAD39CE3D085BBE4EE60F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04D5BFA22FB3E7FFF73095DD415A41E39EF36E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C704978F01FE6FBDB8C27A713566E31FE5A6E60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21117BDE37E7FC5F18355A5C9B05082E62802660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ Tori Amos - 2 альбома (1998-1999) [FLAC|Lossless]<Alternative Rock, Pop R
 ```bash
 magnet:?xt=urn:btih:629B97524D8151075F2FB57F8C0F4DED354A8789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +751,7 @@ Chieli Minucci - 4 альбома (2001-2010) [FLAC|Lossless]<Jazz, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:C0BAA911CE397C7CF45BF85F379FDBEC4A0C47D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

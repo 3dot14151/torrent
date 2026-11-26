@@ -19,8 +19,7 @@ Celtic Kings: Rage of War / Король друидов [Ru] (L) 2002
 ```bash
 magnet:?xt=urn:btih:F83AA5FB283265311380544470191E3E1787BF22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

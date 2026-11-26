@@ -19,8 +19,7 @@ Royal Detective: The Lord of Statues Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:8FF5E695564A72FB73644878CD624113E3700098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rite of Passage: The Perfect Show Collector's Edition / Обряд посвящ�
 ```bash
 magnet:?xt=urn:btih:022DBDFEB90CBE79FF220C790A80FBB927177557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

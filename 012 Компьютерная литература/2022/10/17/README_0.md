@@ -19,8 +19,7 @@ Black Hat Go исследует темные стороны Go — популя�
 ```bash
 magnet:?xt=urn:btih:F1221407F4B0C26BE8A9E4495A57A4DEA29DA8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

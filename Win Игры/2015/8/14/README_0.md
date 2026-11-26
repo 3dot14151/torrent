@@ -19,8 +19,7 @@ Guild of Dungeoneering (2015) [En] (1.02) Repack CPY
 ```bash
 magnet:?xt=urn:btih:8B9A39C25071B7AC01B177A6B445ABEF6AD43398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - RETROспектива, часть XIII. Мелодии и песни из �
 ```bash
 magnet:?xt=urn:btih:0A9A096CFC57AE241C8735C91A2EB5DAA27A2000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

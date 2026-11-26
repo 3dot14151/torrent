@@ -19,8 +19,7 @@ Daniel[i] - Terra Amica I (2020) Pyramid Blood Recordings [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:AE1B80A3D6837E0F328DB97A3D16E2E38E2F8188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

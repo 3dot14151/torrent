@@ -19,8 +19,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:1E0EAD74C07B13CD53835F0673E662BB792ADF9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:7C42830358208A1401A559FA560860F63D3BA70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:25141DCD6A2F70D05D9B038A5FA018EFE721D7B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AnyDesk 9.6.9 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:71635C7CE100FED2F5BC3447B998ADEECF117D05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ R-Studio - основанная на новейшей уникальной те
 ```bash
 magnet:?xt=urn:btih:1659DD86880A6AA2984FE10E91B7F697DB29D973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ MediaHuman YouTube Downloader 3.9.18 (2901) (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D7DB2E74D0E239CC59A6CE7F779ED77BDA7278B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ MediaHuman YouTube Downloader 3.9.18 (2901) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:AD49AC4A051B6CBB69F1A960F03E783A89F1D924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CD4AC8F9242C092AC6B138CF60D71EF9D892264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Ashampoo Driver Updater обеспечивает обновления для ш�
 ```bash
 magnet:?xt=urn:btih:E33BE0F20660C307E020B1108AE1FD06DF938420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ OCCT 15.0.14 Portable [En]
 ```bash
 magnet:?xt=urn:btih:2DA1CC3BCA434F88D33B9202B6CE78DABFB30ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Wise Disk Cleaner 11.3.2.852 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DB6021E2ACDBA14FA0D1D11DBF1B874A6169F922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

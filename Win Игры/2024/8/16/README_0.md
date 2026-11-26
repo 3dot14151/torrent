@@ -19,8 +19,7 @@ The Star Named EOS - не совсем обычная приключенческ
 ```bash
 magnet:?xt=urn:btih:3955779AC2A7224DF88BD06D5A59F8CE595B4271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MT Force Aliens Uprising – откройте много эпических де
 ```bash
 magnet:?xt=urn:btih:FAABBB02B96867AAAB4C2E0B3F2CE4D8E95EE76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Binary Domain представляет собой тактический шут�
 ```bash
 magnet:?xt=urn:btih:3DD6D45915D531094B43451CE2626E9E0CEF6E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark Sector (2009) [Ru] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3BBE7EA00BC2E751E654839AD93538C000A6AFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Diari – настало время отправится в удивительн
 ```bash
 magnet:?xt=urn:btih:75CA16ED309F39EE9198D71456E2C4F2E9210FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

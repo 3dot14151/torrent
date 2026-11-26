@@ -18,8 +18,7 @@ Flash Master Kit 1.1 by Евгений724 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:55726DCD2AAFE302FB0C5D314E583C004944BFC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Etherium (2015) [Ru/En] (1.0.9200) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:C6FCB7168BE643B4F26CD44CFB7683E025ED0882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DipTrace - САПР предназначенный для разработки �
 ```bash
 magnet:?xt=urn:btih:55179E374001FAF3357DB71AA9D5BDD5C326F239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Omnium Gatherum - метал-группа из Финляндии, основа�
 ```bash
 magnet:?xt=urn:btih:C94D5C17CAB79E3E64671CF4284F6F4660E75B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

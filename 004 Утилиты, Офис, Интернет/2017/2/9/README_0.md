@@ -19,8 +19,7 @@ Stardock CursorFX - утилита для создания новых или р�
 ```bash
 magnet:?xt=urn:btih:D8106A81AF4AFE5FBF985AEA672C6A59B80B94EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Amanda Marshall - Heavy Lifting (Deluxe) (2026) [FLAC 24/44.1|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:58AC8C67CEA8036E0F4ADB701902A8A823618D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Banda AL9 - Hey! Hey! We're Banda AL9 (2026) [FLAC 24/96|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:CD515523B3C4A389D940CF3D6A1F5835467A8412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gas Kunst - Charm Offensive (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:C4FE6462945D79D830E0784018D93FFF06E5FB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Girl Trouble - As Is (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:6FDAA7D08D8C3C8FB3D2D98C52D748A9F6659FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Glenn Morrow’s Cry For Help - Our Final Album Vol. 1 (2026) [FLAC 24/96|Lossle
 ```bash
 magnet:?xt=urn:btih:17C690E3EA35E7FABE1862A8A051DF7F6EEC15EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mace 'n' Chain - Crowned In Grey Skies (2026) [FLAC|Lossless|WEB-DL|tracks] <Hea
 ```bash
 magnet:?xt=urn:btih:716088EEA46A458206C3C0F812B1D9D142355072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Warpath (Germany) - 7 Albums (1992-2022) [FLAC|Lossless|image + .cue] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:25F2B1F1FA3A9AE30E6BC47F66F0504CE14E85C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

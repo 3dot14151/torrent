@@ -19,8 +19,7 @@ Absolute Tactics: Daughters of Mercy - увлекательное пошагов
 ```bash
 magnet:?xt=urn:btih:70146FC12DC30B3C7EB25413F8C166126E4E54A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nobody Saves the World (2022) [Ru/Multi] (31300/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A56A114EF3E3ADBC32D985A3D6D2B96CEAA847BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beacon Pines - это милое и одновременно жуткое при
 ```bash
 magnet:?xt=urn:btih:785150783A085CF294FE4B48D7B675B5BE8CFE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Mystery Tales 5: Eye of the Fire / Загадочные Истории 5: Вос
 ```bash
 magnet:?xt=urn:btih:A364683AE76A18B935A3E910CB3CD95524A51C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Mystery Case Files 15: The Black Veil / За семью печатями 15: Ч�
 ```bash
 magnet:?xt=urn:btih:5282902B14AFFF7BA7C71BA785AA7050837A0A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

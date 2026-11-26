@@ -22,8 +22,7 @@ Alexandre Rocha - Viewpoints (2021) [MP3|320 Kbps] <Progressive Metal, Alt. Meta
 ```bash
 magnet:?xt=urn:btih:2632FD7342E5CFE03F47CE0BA3D832B7B4E6C488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Red Cain - Kindred Act I, Act II (2019-2021) [FLAC|Lossless|WEB-DL|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:4AF947184C4FAE2E9B9F9996674598D2BBB0E8F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Belzebubs - Pantheon of the Nightside Gods (2020) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:576640F9B77E835DF0BD24B6F5827A50FD0C3A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mors Principium Est - Seven (2020) [FLAC|Lossless|image + .cue] <Melodic Death M
 ```bash
 magnet:?xt=urn:btih:B060986A02B52ADF58A56903904114AAF711E8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fatal Fusion - Land of the Sun (2021) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:7FDBB1AF564310FCDAC7FD86D2BEC070CE775AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ The Matrixx - EP2021 (2021) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:4D8DDBA16D915280DF797EBB5DBE95CF4443E3BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

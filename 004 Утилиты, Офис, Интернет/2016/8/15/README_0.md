@@ -19,8 +19,7 @@ AM-DeadLink 4.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:39F85775CF351C3A9582AA6CC57E46A9EA6E133C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Re-Loader Activator - ещё один автоматический актива�
 ```bash
 magnet:?xt=urn:btih:0473B0F606919DD78CF1EDF7F35AB0D0DF2FC68F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

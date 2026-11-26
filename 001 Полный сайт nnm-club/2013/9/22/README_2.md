@@ -27,8 +27,7 @@ Disc 1 продолжительность 01:05:02
 ```bash
 magnet:?xt=urn:btih:3C22577037712365E8C5A655403B48CD502F77D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3291A1E9AFE1583BB3679697D6AC9C46DF7C6EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ In Flames - Lunar Strain (1994) [ALAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:267CFFA8CA66C535E62C32A8F63E74EE2E79B29E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56FB65F0F792D9773FED1F3DE56FE7135B09199A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ VA - Romantic Guitar Moods Vol. 1-3 (1995) [MP3|192 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:E91593CCB6779F5E95CC5D1B9A22027048014BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Billy Idol - In Super Overdrive (2009) BDRip [H.264]
 ```bash
 magnet:?xt=urn:btih:E0007E89DD24DF8F10E19362F7C17C23B829F9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF0F230D9594E6B85BF6FAFF0CCFEF5123F9DE72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ VA - Jazz Loungers - Relaxing Jazz Music of Favourite Classics (Vol. 1 - 5) (201
 ```bash
 magnet:?xt=urn:btih:495F38CF79568EB4D97942E2A4A4F8396445C122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ Wallpapers - Обои для рабочего стола - разное (22.09.2
 ```bash
 magnet:?xt=urn:btih:39CF3F9D6F7A50916EFD24CCDE926840EFC4C0BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ Gipsy Kings - Savor Flamenco (2013) [MP3|320 кб/с]<Flamenco, Latin>
 ```bash
 magnet:?xt=urn:btih:1DBA998024530E782F6D90F0ACB31F5B026E5724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FDD970148EC4C7B8FBC79FC5F10FFD277CA1FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ HD обои для рабочего стола  на тематику космо
 ```bash
 magnet:?xt=urn:btih:2DC625C43BD0AFC2B5D16CE4DDC103C2C56D2A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ VA - Erotic Lounge part 1 (2010) [FLAC|Lossless]<Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:744920C609D4B8B7006929BA0F3A45759E221028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ Gilda - 8 альбомов (1993-1999) [MP3|128 кб/с]<pop,latin>
 ```bash
 magnet:?xt=urn:btih:16A8494B6F3F295FEF57B5B4356ABF08C4ED0DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ iDeer Blu-ray Player поддерживает все популярные вид
 ```bash
 magnet:?xt=urn:btih:8289DDA1B16C4E34F6947124E398452368C878E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ VA - Русское радио Exclusive 50 (2013) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:DA61105EB2314298C588EC71760D8B18116FB93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +516,7 @@ Dash Berlin - #Musicislife (#Deluxe) (2013) [FLAC|Lossless|WEB-DL]<Trance>
 ```bash
 magnet:?xt=urn:btih:41A875CE56CF994EA47740F3D14CFE9554EE8E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +550,7 @@ Wallpapers - Моя подборка обоев [JPEG]
 ```bash
 magnet:?xt=urn:btih:9FB6E4439FAE37F081E689F3020EDB516E983DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21EE1C062A355236BE644A669087A0B3295F5D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ Stand Up. Выпуск №1 (2013.09.22) WEBRip
 ```bash
 magnet:?xt=urn:btih:5CA4F82DC4DB005FC37CBBEAE47AD4AA03CED338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:298FB396EEE123853F05ECC3056BA6775F927FAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6613D557153C0209F3B479D0A2BB0A7EC182C54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +688,7 @@ VA - Relaxing Sessions (2013) [MP3|320 кб/с]<NewAge, Relax>
 ```bash
 magnet:?xt=urn:btih:E5A48E02AEE4716793AAF768AB41E5E8C6FDB3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +720,7 @@ Angry Birds Seasons выводит захватывающий геймплей �
 ```bash
 magnet:?xt=urn:btih:46888F882BE32E8562C09E40F24E60E603256D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +746,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4609E64C2015A25F2F78028BF435A9D751E9500A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +771,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D17A6A42DC2635546D5D3D738743E7172D79FE13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

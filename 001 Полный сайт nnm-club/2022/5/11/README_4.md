@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4F1B098E830868E24D0E2392135AAF4DD2899E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - "Доска Объявле
 ```bash
 magnet:?xt=urn:btih:E39199B653E46F0D7EF26F592ED994F0EE95055D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Udemy, Руслан Брантов | Курс по CorelDRAW: теория, пр
 ```bash
 magnet:?xt=urn:btih:1079BF45027315EA1233E8DBA358AD16BF1404ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE34CA6E0E3FF6ACFFC222B4626057F9B9BD86E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ orbit.industries (2022) [Ru/Multi] (1.1.9717.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B7BA9440A42E4EB002DB303B3D50ED718B94FD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Futuremark 3DMark 2.22.7359 Professional Edition RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F49BB36CA0BD548DA23318427566BE400E8A00CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

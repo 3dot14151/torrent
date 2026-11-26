@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:219EB8E212B40679309AB0DAC65B6A01DF94C1E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A.S. Posamentier, R. Geretschlager | Geometric Gems: An Appreciation For Geometr
 ```bash
 magnet:?xt=urn:btih:43F81E1FFDB8FE1EC975F37EB5696E05AC411B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

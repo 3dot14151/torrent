@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:426F6C1D14025C5A3DA9269FCA04E3B2DF7DC6C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Resident Evil 4 - эта игра, перебравшаяся на андрои�
 ```bash
 magnet:?xt=urn:btih:BF4D2AB12CA8962B3A3509A7C018380EFB73272C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Computer Bild - крупнейший европейский журнал о ко
 ```bash
 magnet:?xt=urn:btih:D31948CA6B08DF9CAF60CE8A7A6ABA769209650E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA7D66F02FB92276DE319F8CB12F0B983A21759C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ TRON: Evolution / ТРОН: Эволюция [PS3] [+MOVE] [+3D] [EUR] [Multi7] 
 ```bash
 magnet:?xt=urn:btih:298D52B927E31098B93A6650F0E9FA2737857DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Castlevania: Symphony of the Night [PS3] [USA] [En] [3.55] (2007)
 ```bash
 magnet:?xt=urn:btih:D717045556B22DCE42685F47BF2B0434B429385D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Space Dandy / Космический Денди [2014, TV, 13 ep.] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:E2EE9736C70A5FB487337F91C43D78D14D1E7674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Mozilla Firefox 28.0 Final TwinTurbo Full & Lite + Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:9C71817D1DB76ADE9B71DC0A4589F1AA7907B0BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Webcam Surveyor 2.41 Build 938 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:91F8DF9641D3146F789729DD18BFB2ABA9C9DEE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Recovery USB-Flash for DELL 3521 / Windows 8.1 (х64)  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BCCAA461C8477402F45CCB65A4B12EACD26F07D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Castlevania: Harmony of Despair для PS3 не совсем традицион�
 ```bash
 magnet:?xt=urn:btih:437C558A8EF7ECEAD3CD07282A2C67F3D4CF0703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2:  Убийцы Короле
 ```bash
 magnet:?xt=urn:btih:9E2F287DB5BADB77B0B7AC6C82EE8CB7DF6C5CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Earth 2150 Trilogy / Земля 2150 Трилогия (2000) [Ru/En] (2.8.7.1) S
 ```bash
 magnet:?xt=urn:btih:15B9A4BFF94F2BD385FA5EE9D131C9E5C5AF7805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FDE8E9DEE17FCF3D4B1DEECA1D4EAE41C7AA80D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:608274D9B734677DEBD993886EEF26BE7DD4E191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Recovery USB-flash for Acer Aspire E1-572G / Windows 8.1 (х64) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:97B93B7B057C740F97541C4D1504B90FE2C3B3E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Kult: Heretic Kingdoms / Культ. Королевства ереси (2004) [R
 ```bash
 magnet:?xt=urn:btih:80B1A322A68909F2102071C886E485BAD12BCACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:663FBA63C44755FC4DB93E37941D775423E17C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB7C346ACEECA73987CD2AE70EAF209574D4B91D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ muvee Reveal — программа поможет вам создавать и 
 ```bash
 magnet:?xt=urn:btih:F7F6F8538BB403693C00225924ABE8846158BCC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Strike Suit Zero (2014) [Multi] (1.0) SteamRip R.G. Игроманы [Director's
 ```bash
 magnet:?xt=urn:btih:E60B7635B589DB7E7ABE4ACC64328503BF644EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ NewBlue Titler Pro интегрируется в качестве собстве
 ```bash
 magnet:?xt=urn:btih:0BDCAA673E54BD549A53D892F9E9756BE1421227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:587AB6A6444DB4224B483BE40185CECC092A296F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D20EFF5083AFBA5F4F732A205E5928A4B3BEE825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

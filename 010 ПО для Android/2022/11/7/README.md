@@ -22,8 +22,7 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 ```bash
 magnet:?xt=urn:btih:F37EC6A613A660C3D2790FB4B18455EFC5BFB97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

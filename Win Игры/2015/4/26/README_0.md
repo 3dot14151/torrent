@@ -19,8 +19,7 @@ Haunted Hotel 8: Eternity (2015) [En] Unofficial [Collector's Edition / Колл
 ```bash
 magnet:?xt=urn:btih:46061386D3D78BF48A7DB623F6828074CC633337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Animism: The Book of the Emissaries (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:FA466B28D451606D095655D65DDDE7B95A2620E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Myths of the World 6: The Heart of Desolation / Мифы народов мира
 ```bash
 magnet:?xt=urn:btih:C12167AD0D33CD078E779DBE3D5C63F3721A84AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mystery Case Files 11: Dire Grove, Sacred Grove / За семью печатям
 ```bash
 magnet:?xt=urn:btih:B8FF23440C0BF231315BCDE30AA0E32D496034B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hammerwatch — это игра жанра инди-RPG-слешер, созда
 ```bash
 magnet:?xt=urn:btih:E8A7ABDD754D7F718DB258E63FF8B2BD3C69FE50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

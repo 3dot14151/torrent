@@ -22,8 +22,7 @@ ng-book 2. Углубленная, полная и обновленная кни
 ```bash
 magnet:?xt=urn:btih:AEEF0162653142FD865C6519C986A32170799961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Pro HTML5 with CSS, JavaScript, and Multimedia учит основам сцен�
 ```bash
 magnet:?xt=urn:btih:C348498B11D1EFF8D3D031499D6D2EA935BE824F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ The Python Data Science Handbook дает понимание широких во
 ```bash
 magnet:?xt=urn:btih:D91BD42457FD774E5C0A7B42C404E723B7B2FDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

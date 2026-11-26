@@ -23,8 +23,7 @@ Pear OS - французский дистрибутив Linux, основанн�
 ```bash
 magnet:?xt=urn:btih:2ED0027FA9BBF6EB83056BFA590EA8C77BFE5B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

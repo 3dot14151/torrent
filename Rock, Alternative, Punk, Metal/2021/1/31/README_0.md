@@ -22,8 +22,7 @@ Brandi Carlile - Live at Benaroya Hall with the Seattle Symphony (2011) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:D3EF8C765FC4F47683B7A0B0571450DA98BD29C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ram Jam — рок-группа, родом из Нью-Йорка, Соедин
 ```bash
 magnet:?xt=urn:btih:BB483F761F3C0327F3065A5FE9EBCA088208B083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ April Wine — канадская рок-группа, образованная 
 ```bash
 magnet:?xt=urn:btih:A1BEE41252278E0D4D10F2FB16B84B4ED604B8D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

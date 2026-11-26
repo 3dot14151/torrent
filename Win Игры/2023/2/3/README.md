@@ -19,8 +19,7 @@ Bus Driving Sim 22 (2023) [Multi] (1.0) License TENOKE
 ```bash
 magnet:?xt=urn:btih:B6076D6A54B3F7A7521635F7E0C14A48EBEF00D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CRISIS CORE –FINAL FANTASY VII– REUNION (2022) [Multi] (1.0) License FLT
 ```bash
 magnet:?xt=urn:btih:A8E65FC0F9F2320E6D510434111E82E6DC4529D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

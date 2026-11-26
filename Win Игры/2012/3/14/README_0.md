@@ -19,8 +19,7 @@ Warp (L) [En] 2012 l RELOADED
 ```bash
 magnet:?xt=urn:btih:B190413CC20C387F9AF8A5A7368102CB4E277A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Battlefield 2142 рисует мир кромешного ада и полног
 ```bash
 magnet:?xt=urn:btih:A15FCE06046DFFF0AB52F135F7B4304FB3F104DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Uprising представляет собой глобальное дополне
 ```bash
 magnet:?xt=urn:btih:52DE40CA58845DBBA8CB0229EA686375DBBA0983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Grand Master Chess - шахматный симулятор, рассчитанн
 ```bash
 magnet:?xt=urn:btih:2A5685A35338427463DA337376A89DAFD4850436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC67FB38F59FBB75C1A68E5C5C1672628934F244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ The Next Big Thing / Новый хит [Ru] (RePack) 2011 | R.G. Element Arts
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Warp (L/Steam-Rip) [En] 2012
 ```bash
 magnet:?xt=urn:btih:59E752A1CA0E2C6E7B7EF1D76CCD222FD726EBE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Luxor Evolved {12.02.15} (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:FD2121EEF9E7461960F1D36C9538A91B0204B19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Pure [Ru] (RePack) 2008 | Naitro
 ```bash
 magnet:?xt=urn:btih:C0562EA218081B3B46E17A0D0AE752F77720D4CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37F8B2F267E58FCB0B1CDF154641FAA6ABA1D523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Space Sieged (L) [En] 2012
 ```bash
 magnet:?xt=urn:btih:4272ED02300D39082BFC342E2D366B0B32FE193B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Flower of Immortality (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:5F8F6A676214D18D1D71A3BD488703EF771E5117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystical Island (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:A1AB573D39FEDFFBF49D065C6B07FDB5C8B24B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B6016133FC03D6217EAA5E1C7EBC5ABCEAAE115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E3EF2FC93F4E4417BF7D7A14CC283C9EBDAF92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Hegemony Gold: Wars of Ancient Greece [En] (L/1.5.4.21270) 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:8EBCD83037F56A006D54C55B7D561E4039978C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

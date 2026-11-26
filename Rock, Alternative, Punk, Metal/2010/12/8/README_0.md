@@ -28,8 +28,7 @@ Total time 43:25(   Читать дальше...)Жанр: Hard Rock, Heavy Meta
 ```bash
 magnet:?xt=urn:btih:BFCA29106854AC31B1EA6E4C99F43364790B124C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ System of a Down - Greatest Hits (2008) [MP3|320 kbps]<Alternative>
 ```bash
 magnet:?xt=urn:btih:352B6A9E3282628CB11D5097BB54A8554950DD74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

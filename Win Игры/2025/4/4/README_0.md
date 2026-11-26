@@ -19,8 +19,7 @@ MosGhost (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:894E673B13BDB430FC5DE14CD7ECA753ACFDBFCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13195/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:51C7AC6457B308A00181EFD502D5948DAEB20FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ship Simulator: Maritime Search and Rescue (2014) [Multi] (1.0) Repack R.G. Ме
 ```bash
 magnet:?xt=urn:btih:4417F6725E33281462E3EF8E531EBDFF63A0C4CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fiora (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A654A2A4189FAB9D32DD1F543A6C4EE434A220FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mars Vice - это приключенческая игра, действие к�
 ```bash
 magnet:?xt=urn:btih:C88B863D0FE0D3E2F6677347DB13C91F6DBBECFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.54.2.3/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D035CF3E7B9205309F57D35222E9F915B2600D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.410/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:F361ECB75356CC6A965E95580AAAACE5E8EF1986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Orcs Must Die! Deathtrap - это безумные бои от третьего 
 ```bash
 magnet:?xt=urn:btih:53D1EF0507BB7EBA4FB6B358D534648BF5A8CD56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ My Friend Pedro - это жестокая смесь дружбы, фантаз�
 ```bash
 magnet:?xt=urn:btih:8A86EA61E4F29FDCD8799C367DEF86DE848A855C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:813AFBFC49DCC3FD6AA076B9D3AB5761154E9903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Scene Rune
 ```bash
 magnet:?xt=urn:btih:15AF6F85989579535D2AD63C14F002C3EEFA627E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Paleo Pines (2023) [Ru/Multi] (1.5.22/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DDF670C5CEF241742043CD2534F83F51AEBC5E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Microtopia (2025) [Ru/Multi] (1.0.8bb) Repack Other s
 ```bash
 magnet:?xt=urn:btih:48A8D0D7E83A1C6EE9EF999F45992FE9ED29641D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Pagan's Mind — прогрессив-пауэр-метал-группа из Ш
 ```bash
 magnet:?xt=urn:btih:F60BA97EEAC7248769C2AFCB66CE30B6588387DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B2 Mr.Manic And Sister Cool (Coolest Cuts)
 ```bash
 magnet:?xt=urn:btih:0DBE8080503F300D1318982414D7D84E6B63567B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

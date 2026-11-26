@@ -22,8 +22,7 @@ Postal 2 Complete включает в себя оригинальную игру
 ```bash
 magnet:?xt=urn:btih:6CF24A4BF8DB74ECC35FE737FC673B3493FBD84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

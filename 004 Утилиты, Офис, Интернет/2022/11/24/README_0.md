@@ -19,8 +19,7 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:7CF560FC7401B8D3B93E12EDD3A76E3C80BE04BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MiniTool Partition Wizard Free — бесплатный менеджер раз�
 ```bash
 magnet:?xt=urn:btih:C78FE13DB9EE04F89E6FA6BABD66A0984EDA2632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

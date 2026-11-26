@@ -22,8 +22,7 @@ A4 Gallagher & Lyle - I Want To Stay With You(   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:C2DA25C859E410EB9C926B1618A3656CEF9A410F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

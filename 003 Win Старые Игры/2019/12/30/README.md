@@ -19,8 +19,7 @@ DethKarz (1998) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:99A77CB951DE0DEB7381E140F4BD14B6CFD513F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

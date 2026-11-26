@@ -19,8 +19,7 @@ Sabayon 15.09 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE) [amd6
 ```bash
 magnet:?xt=urn:btih:C7B9C5C35D303BE7DC4A9141437F1971EE39B54C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Manjaro Linux 2015.9 MATE [i686, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:0859F2C4AA109962FD90F1640611A987B66534BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pinguy OS 14.04.3 - это дистрибутив на базе Ubuntu 14.04.3 L
 ```bash
 magnet:?xt=urn:btih:217A886DBF5888DCE19E0D7F5B5EB90B7D3BF914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pinguy OS 14.04.3 - это дистрибутив на базе Ubuntu 14.04.3 L
 ```bash
 magnet:?xt=urn:btih:2C63E1F7E1B91214048205358BD5B6DA61A4A95C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

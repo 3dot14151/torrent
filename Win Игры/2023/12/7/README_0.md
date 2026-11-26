@@ -19,8 +19,7 @@ Mystery Case Files 14: Broken Hour / За семью печатями 14: Раз
 ```bash
 magnet:?xt=urn:btih:D4900E26909DB06597BCFF9A87A3DBA400EFBDDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SGS Taipings - военный и политический симулятор, к
 ```bash
 magnet:?xt=urn:btih:275FE7ABECC2AEC58B453627D4BF86D48B6CB12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0EF5C82C1E984839E75E23A1A2DFB7AD5060EC44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

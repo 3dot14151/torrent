@@ -19,8 +19,7 @@ LASTFIGHT: возвращение 3D-боя в режиме 2х2! Подбери
 ```bash
 magnet:?xt=urn:btih:0E4AB4B01A70A6FAD66D1ECD45048BDBFCFFE789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

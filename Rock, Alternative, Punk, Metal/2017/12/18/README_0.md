@@ -22,8 +22,7 @@ Spirit - Spirit (1968) remaster, 2017, Audio Fidelity [WavPack|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:0034EDCCE1FC89AC9418F5AF6D5103B066C277DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Spirit - The Family That Plays Together (1969) remaster, 2017, Audio Fidelity [W
 ```bash
 magnet:?xt=urn:btih:A22BECC53E994345E1D387E40E68792A265CC9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

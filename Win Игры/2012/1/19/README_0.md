@@ -19,8 +19,7 @@ Twisted Lands: Insomniac. Collector's Edition / Гиблые земли. Бес�
 ```bash
 magnet:?xt=urn:btih:4DF31238304B9FA49F320EF84241EE166F9C7E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windchaser / Windchaser: Небесный странник [Ru] (RePack) 2008 | 
 ```bash
 magnet:?xt=urn:btih:3E362F3EEE0D4FDC065FB5A16DBD8751E4E15AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

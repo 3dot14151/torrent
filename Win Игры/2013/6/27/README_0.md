@@ -19,8 +19,7 @@ Witches' Legacy 2: Lair of the Witch Queen Collector's Edition (2013) [En] Unoff
 ```bash
 magnet:?xt=urn:btih:91FBDEF0AEB35977180EFCD4DB38C825A30B949E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Secrets 4: November 1963 / Забытые секреты: Ноябрь 1963
 ```bash
 magnet:?xt=urn:btih:57E7E9E095EA4B276CABBD9952A50B5A8FB3377F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Empress of the Deep 3: Legacy of the Phoenix Collector's Edition / Морска�
 ```bash
 magnet:?xt=urn:btih:22D72B3B41136D6558F2EB627F27FE3406F2D4C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Magrunner: Dark Pulse (2013) [Ru/En] Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:3B341391AB6294210AD86AF325C90D4F8000BCC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Worms™ Revolution – это взрывающаяся овца, заложен
 ```bash
 magnet:?xt=urn:btih:BF212137B262038A1CF77CC4EB46376DF8E64341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

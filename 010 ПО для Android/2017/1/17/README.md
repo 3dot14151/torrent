@@ -20,8 +20,7 @@ P4P 7 Minute Workout PRO 1.3.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:B30306A8B80E7ABDEC3A6885563F80370DD9BE70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

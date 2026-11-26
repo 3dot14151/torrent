@@ -18,8 +18,7 @@ Adobe Illustrator CC 2018. 22.0.0.244 RePack by KpoJIuK  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:62E466F7A9DFFEBBC4A40620E0EE4B2BACF0E626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ V.I.P. / V.I.P. (2017) BDRip [H.264/720p] [MVO]
 ```bash
 magnet:?xt=urn:btih:F47A50C1A0DD5A5158572635577D4A72C6C3BFA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Inmates (2017) [Ru/Multi] (1.0.2) License HI2U
 ```bash
 magnet:?xt=urn:btih:65C607A514D81EFF47E62680E93D5018713C1EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 ```bash
 magnet:?xt=urn:btih:C4EDC4574FA0FB99F8A20EFC7EF011C774EEBFB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Adobe Photoshop CC — программа для обработки растро
 ```bash
 magnet:?xt=urn:btih:CF13C4E09A6E2519C24F13E331F2ED8CA0280C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3472F05DEED657F39432B9C5A0E73E5750C359E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Banished (2014) [Ru/En] (1.0.7) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9974F4DC2794087BF12AA2093E7783FAFA3605CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ inSSIDer - утилита, которая сканирует доступные 
 ```bash
 magnet:?xt=urn:btih:88E738BA3CEB5DB7447B879817E75CE5374E9BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (1
 ```bash
 magnet:?xt=urn:btih:489EC7FDBCE4344A044F7A57E3715C01D8F7CBDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C28A0BED7120E560AFCC729AEC17FB8C3170BDE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Windows 7 Ultimate SP1 x64 By Vladios13 v.24.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:020D36BF637B8AC66BC3BD098DF59A3C854D95A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ XCOM 2 – это продолжение полюбившейся игрокам
 ```bash
 magnet:?xt=urn:btih:F33CD503B0AAD120B9BD0E027C93AA762022B473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83A4CE2471CF0512CF41108F88807D81A86326ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85D1C0B8A513D9F833BA5B58B9E520BBD25F1ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

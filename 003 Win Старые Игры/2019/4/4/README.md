@@ -19,8 +19,7 @@ Aquaria (2007) [En] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:30CFB69193DAF061B58EBFDEBBCE4AB26BED78C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

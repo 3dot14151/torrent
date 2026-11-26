@@ -19,8 +19,7 @@ MediaHuman YouTube to MP3 Converter - программа для сохранен
 ```bash
 magnet:?xt=urn:btih:19E47D3A2139403E7946169D110C9F7C6DCBCB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

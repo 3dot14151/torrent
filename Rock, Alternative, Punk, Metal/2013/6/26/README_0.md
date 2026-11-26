@@ -22,8 +22,7 @@ Worship - Terranean Wake (2012) Japan [FLAC|Lossless]<Funeral Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Arrayan Path - IV: Stigmata (2013) [MP3|320 кб/с]<Epic Power Metal>
 ```bash
 magnet:?xt=urn:btih:04B2D6C3D2C5114F46EE7201DB13F9FEEB5E0AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ New Years Day - Victim To Villain (2013) [MP3|320 кб/с]<Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:D2E5D0A7569C302B397609072426EC6066F5254E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ The Electric Soft Parade - Idiots (2013) [MP3|256 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:1EF173D12E7B5FB7B142FD6706B61F99AE9A7343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Dave Evans and Nitzinger - Revenge (2013) [FLAC|Lossless]<Hard-Rock, Blues-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Kee Marcello (ex-Europe) - Judas Kiss (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Sirenia - Perils Of The Deep Blue (2013) Limited Edition [FLAC|Lossless]<Symphon
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Havok - трэш-метал группа из США, сформировалас
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Electric Light Orchestra - Greatest Hits (2CD) (2008) [MP3|320 кб/с]<Symphoni
 ```bash
 magnet:?xt=urn:btih:E124AF4339102A293D5BF8974A06843D04C6C559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Elven Legend 7: The New Generation (2018) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:8E25A91ECC24026DE75EF68F47D5DC85B21F183F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pro Fishing Simulator — симулятор рыбалки, который по
 ```bash
 magnet:?xt=urn:btih:7E979FB6151DBAA1810BFF368D075C8691851C52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Banner Saga 3 - грандиозное завершение захватываю
 ```bash
 magnet:?xt=urn:btih:24116CE6F9CA6F3E91174FED3705412338E339A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alpha Protocol (2010) [Ru] (1.1) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E61ADE11C4D20ADA1C35D7EF12417E2D4A2371BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Banner Saga 3 - грандиозное завершение захватываю
 ```bash
 magnet:?xt=urn:btih:0D598B99EFC9ED972965CFDA4FD5CB5B79DA18C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mortal Kombat: Komplete Edition (2013) [Ru] (1.07) Repack xatab
 ```bash
 magnet:?xt=urn:btih:1E1FBACD550F03305BF5FD64476DD53C666FA3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Angelus Apatrida - The Call (Limited Edition) (2012) [MP3|320 кб/с]<Thrash Me
 ```bash
 magnet:?xt=urn:btih:4B244948CF2760989AD1CFCF1B7BAB2198C13786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Bleeding Utopia - Demons To Some, Gods To Others (2012) [MP3|320 кб/с]<Thrash
 ```bash
 magnet:?xt=urn:btih:761945C922DFFA98434A2EE275C2C23F98D99BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Kutless - Believer [Deluxe Edition] (2012) [MP3|320 кб/с]<Alt. Rock | Christi
 ```bash
 magnet:?xt=urn:btih:CF81AA8C027977F6DF9B3168DDACE58A46C3EB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Tenacious D - Rize of the Fenix (2012) [MP3|320 кб/с]<Comedy Rock>
 ```bash
 magnet:?xt=urn:btih:5CF442120C6EF60278406CE5EC7EAC09AC9ACE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Dark Princess - The World I`ve Lost (2012) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:75D7678CF7E97942C2600D28AD345DA51B03B8F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

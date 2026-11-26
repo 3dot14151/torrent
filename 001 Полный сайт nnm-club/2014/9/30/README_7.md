@@ -28,8 +28,7 @@ Sarkast - Komakollektiv (2014) [MP3|320 кб/с]<Powerviolence, Сrust, Hardcore
 ```bash
 magnet:?xt=urn:btih:BE66A3AC9FB020C4BD47E4E970D65AF3116D5339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Mudpie - Panic Sucks (2014) [MP3|320 кб/с]<Сrust, Hardcore Punk, Female Voca
 ```bash
 magnet:?xt=urn:btih:7578D8463CA0451860B1DD6B678EF2774F277057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Ann Sweeten - Passage (1998) [MP3|192 кб/с]<New age, Instrumental, Piano>
 ```bash
 magnet:?xt=urn:btih:E692FDEE58FB8B74C848EC4762F424CB7E9F1B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Kat Niles Band - Till The Sun Comes Up (2014) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:C334EA6B44B8DFE0D7E627DE7DC5AD547B32D441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Eternal Grave - Somnium Obmutum (1999) [APE|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:0C25E8863FC44400F426FFAD4CEF234510207728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ VA - Progressive In Motion - Vol.174 (2014) [MP3|320 кб/с]<Progressive Trance
 ```bash
 magnet:?xt=urn:btih:5CDF772B9333FD7A4C3C34B7FFCDBEB9C0E40FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Henrik Koitzsch & Jakob Gadegaard Frandsen - Woodlands (1998) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:43C6293E168B159591B0DD1B9391DFD1ECDF8423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Plateau Sigma - The True Shape Of Eskatos (2014) [MP3|320 кб/с]<Doom/Death Me
 ```bash
 magnet:?xt=urn:btih:E6C80BFE388BE1805F49A068EB6AD1F2BE1EC962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ VA - Ibiza Chillhouse Beats (2014) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:7C9985E01339125093CEC1E745CD8E5DC594EDF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ VA - Ostwind Spezi Compilation Volume 1 (2013) [MP3|320 кб/с] <House, Tech Ho
 ```bash
 magnet:?xt=urn:btih:B7586848DDEB43313064B855F4952C3019CFF627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ Martin Nonstatic - Inner Landscapes (2014) [FLAC|Lossless]<Ambient, Dub Techno, 
 ```bash
 magnet:?xt=urn:btih:DF9BCB2F124E17A412773D80B23DF1F6171E258C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +413,7 @@ VA - Essential Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:E6F355806D69BC4B515DDF22BD343D3E2AFC02F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +447,7 @@ Ciro Hurtado - Ayahuasca Dreams (2014) [MP3|320 кб/с]<New age, World, Instrum
 ```bash
 magnet:?xt=urn:btih:441114AE5F6ECAE5BE33DC748CC2AED578060635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA7BB30BE9F6263063826B152C0D31C72750811B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +500,7 @@ VA - Warm Morning Sea vol 2 (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:7D989AE5CE2BD48EEF52D4086E6667640716A428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C435B2C71C1FD76383959656A1BF8CDB71B5530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +561,7 @@ Various Artist - We Are Dubstep Vol 3 (2014) [MP3|320 кб/с]<Dubstep,Drum & Ba
 ```bash
 magnet:?xt=urn:btih:B45E0ED9D93A9A56B1C86AE2AD7B9D71604F5755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +592,7 @@ Winterhawk - Revival (1982) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:CF9DE10552D8E38F2E41FDAB3C15893D8B3B28C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +626,7 @@ Ludique - Frostbite (2012) [FLAC|Lossless|WEB-DL]<Minimal, Techno, Ambient, Hous
 ```bash
 magnet:?xt=urn:btih:C20A79646D18E6C800C3FCB17233479BE292B213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BA5968C51945FD717A0A89A0EFB3B5B9B9EDA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +684,7 @@ Dabin - Bloodless (2014) [MP3|320 кб/с]<Drum & Bass, Dubstep, Electro, House,
 ```bash
 magnet:?xt=urn:btih:A007BD576C6F9C19AD105680B4B7970716078ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E3C3557705017F45FFF3DBA28793E1A13C1E00E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:094DF63BED2A4FE6CC972BCB920FE3F0E2D27B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +764,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF20392DF9DE79448DEDBAADA0CC3DE8A18FF506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -822,8 +797,7 @@ Barbara Lusch - Rock Me Sweet (2014) [MP3|320 кб/с]<Jazz-Pop, Nu Jazz, Soul>
 ```bash
 magnet:?xt=urn:btih:371F0F49FCB90983BC250B6C58781E2BC24BB8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

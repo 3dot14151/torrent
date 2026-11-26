@@ -19,8 +19,7 @@ Dangerous Games 2: Illutionist (2015) [En] Unofficial [Collector's Edition / К�
 ```bash
 magnet:?xt=urn:btih:1C3BE2784B04C21C8447C1D5F63DB5E08B8E67B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Off the Record 3: The Art of Deception (2015) [En] Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:53CF53C44C82337247428AADEF1B82AF786E48D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Living Legends 3: Wrath of the Beast / Живые легенды 3: Ярость
 ```bash
 magnet:?xt=urn:btih:1404C297A391E07CFC0A95FDC839D1E1CA2D2C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Double Dragon: Neon (2013) [En] (1.1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:05656E552007422821E09BEFAAA4AEAC2011FBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

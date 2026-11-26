@@ -23,8 +23,7 @@ Whyzdom - Symphony for a Hopeless God (2015) [FLAC|Lossless]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:602854B2B784238B9A6D1324BC3520599364544A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Breakdowns At Tiffany's - Constants (2014) [MP3|320 кб/с]<Metalcore / Post-Ha
 ```bash
 magnet:?xt=urn:btih:F5C30AA8771DAF24A2E7B1E06D32C01806D93493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Leviathan - Scar Sighted (2015) [FLAC|Lossless]<Black Metal/Dark Ambient>
 ```bash
 magnet:?xt=urn:btih:D01399C08D311F7D73C6CBFE06952EAD73CA9693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Celldweller - End of an Empire. Chapter 03: Dreams (2015) [FLAC|Lossless]<Indust
 ```bash
 magnet:?xt=urn:btih:9315DA9145B2F1F8D660F55124A795792912D185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ Awolnation - Run (2015) [FLAC|Lossless] <Alternative Rock, Indie, Electronic>
 ```bash
 magnet:?xt=urn:btih:75CD9FB93F0F0006E8DF196924B1963FFE9485E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

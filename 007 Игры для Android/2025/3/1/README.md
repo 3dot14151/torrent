@@ -21,8 +21,7 @@ One Way - это креативный point-and-click квест от студи
 ```bash
 magnet:?xt=urn:btih:3CD440CD826EF54BECAC0532A0C92023D735F6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

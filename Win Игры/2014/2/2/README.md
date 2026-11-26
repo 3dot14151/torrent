@@ -19,8 +19,7 @@ The Curse of Silent Marshes (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2849A40A05282D2A0564231AB79902CBC46DC3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Secrets of the Dark 3: Mystery of the Ancestral Estate / Темные тайны
 ```bash
 magnet:?xt=urn:btih:70E47F65728E8F4E42900757D400F5C02573D1B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ DuckTales: Remastered - это красочный, нарисованный вр
 ```bash
 magnet:?xt=urn:btih:850F08601036CBDB5F51391A4179AA9DDC8FC6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Nihilumbra (2013) [Ru/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:97371BFFC08AFF14CC3209BDA43ACDB2E08A53C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ PESEdit.com 2014 Patch 3.0 включает в себя все зимние тр
 ```bash
 magnet:?xt=urn:btih:96DFBB1301A41B7931643352D1472E5C81D257A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Demigods / Полубоги (2014) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:3609E83F15A974A7C51F5466E86003614826C3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Hitman: Absolution – долгожданное продолжение сери�
 ```bash
 magnet:?xt=urn:btih:6ABA666E3F98123F33411F2F98C331285A54568C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

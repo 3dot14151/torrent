@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:054C0AF60849EEB025685B8820B7C2AF285519B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Flashback HD-переиздание классической приключен�
 ```bash
 magnet:?xt=urn:btih:122E0C5BB9AAA135247134E876A1EFA06312EAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ FilmConvert - это плагин для After Effects или Premiere - луч�
 ```bash
 magnet:?xt=urn:btih:1EDF57E16022074395BC82EB00D5F0F12080FEC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:584B7DDD5D3AF0615B5649DB39B02BB37A5C407F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E63A0127F88EDD211AEEE1391E502E7E96FF5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Kaspersky Reset Trial - Программа для сброса триала (д�
 ```bash
 magnet:?xt=urn:btih:440DB8F7197F5872C1ADF97104AA5112E02E17BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Original PS3 EBOOT.BIN & PARAM.SFO for Cobra ODE, 3K3Y, E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:EEB2D2EC561AFC4CA840CCA527011587260BD1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Microsoft Visual Studio 2013 Professional  12.0.21005.1 REL [RU+En]
 ```bash
 magnet:?xt=urn:btih:F9C45086073B890F4E0A66B598BBDAB0DC9205FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

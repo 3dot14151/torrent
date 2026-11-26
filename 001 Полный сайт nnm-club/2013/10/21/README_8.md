@@ -27,8 +27,7 @@ Dire Straits - Brothers In Arms (1985) /2013 MFSL Remaster/ [DSD 2.0 1bit/2822,4
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C37FDB8C7433C4022AF00FDD4D0DC76CF85985B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Windows 7 SP1 Plus WPI PE Core-2 x86 x64 StartSoft 44 45 [Ru]
 ```bash
 magnet:?xt=urn:btih:C49A7A24540878ECAD2A7E484D6ED03DADACD4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Aliens: Colonial Marines — новая игра от студии Gearbox, в �
 ```bash
 magnet:?xt=urn:btih:0B9D0137F5B733A7092CEB735E480A3BE61E584D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E890CB465CFAE8AF0F14F5A4C526DCB5811FF81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1062022AA5148332BFF52CA519884C4FB799F344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Parts of Bulgaria, Croatia, Poland, Russia, Romania, Slovenia, Turkey and Hungar
 ```bash
 magnet:?xt=urn:btih:9E93FE7B8D33B14590ADA2727D44C2E952D24943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ The Raven — Legacy of a Master Thief — это увлекательное к�
 ```bash
 magnet:?xt=urn:btih:221F51474267151A6D0D6BE664ABA28AC9BDC7E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E630E1D0060A76A096E9D05817557F7D28B604E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF1B95E31D12671AB01BB7066398765D7056A367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ God of War II HD [PS3] [Ru/En] [Repack / 1.01] (2013) | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:A118A19FC3DBC35F1B09528FF2499B48F22A13A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ The Stanley Parable - профессиональный ремейк необыч
 ```bash
 magnet:?xt=urn:btih:A0FCF5F79059F32718DE26CD0A75211C4F93ABD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1E32757DD640DD55B1253FF588C3BF1E2C89FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ Pinnacle Studio 16 Ultimate 16.1.0.115 Full RePack by PooShock [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3934693FBFBA9351F9F039D486174D6DC0FAA5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBB5625371AD637F104B85177BFE1D40B4D040CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ AutoCAD Civil 3D позволяет создавать более сложные
 ```bash
 magnet:?xt=urn:btih:B3E18AB0F6FA16A3154D414490C5DA46D50E0B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Kaspersky Internet Security 2014 - комплексный Антивирус К�
 ```bash
 magnet:?xt=urn:btih:644A3765CADD75219C8FA8D47147E1BEC5369F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ Minecraft - строительная компьютерная игра от пе
 ```bash
 magnet:?xt=urn:btih:85622F02301D7896BA12F17BA531B42D1C3ED3CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

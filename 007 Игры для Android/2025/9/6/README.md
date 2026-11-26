@@ -19,8 +19,7 @@ Pro Pilkki 2 / Зимняя рыбалка v2.0.7 Mod by ShiroAndShuvi [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:179A011759F60E71B5E0B6D92665FE6AEC89DF58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:568A30989898B3D0272C3E957399CA8831F4B10B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

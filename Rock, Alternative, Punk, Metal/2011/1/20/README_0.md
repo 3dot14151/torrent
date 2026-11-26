@@ -28,8 +28,7 @@ Silence Dead - Одержимость Тенью Иллюзий (2010) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:00BF9FD83CB6E18C3450F9A44D8E413D5BCD5A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

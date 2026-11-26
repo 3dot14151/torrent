@@ -19,8 +19,7 @@ Romancing the Seven Wonders: Taj Mahal (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:F8F5BE485C145D798A2158BE6DC4F374E378B75C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Otherworld: Spring of Shadows Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:54EA731DEC34C754E1844E639E0D6923640972A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hydrophobia Prophecy [Ru] (RePack/u7) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:608CE5D1557B7E692ACA3C52AE2E17C17C3933A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

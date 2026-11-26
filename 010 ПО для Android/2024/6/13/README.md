@@ -19,8 +19,7 @@ Nova Launcher - один из лучших лаунчеров для Android, ч
 ```bash
 magnet:?xt=urn:btih:3837B9E532687906E79E534C1A283A05CA22598C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Knots 360 Pro (3D) v2.8 Paid [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3E20D1CABDDB0360E5CC36B7A90DC50C8A6C083D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Nova Launcher - один из лучших лаунчеров для Android, ч
 ```bash
 magnet:?xt=urn:btih:21D3A2DF258668EC38B6DB9D1FD75361D23F374D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ PicWish — фоторедактор с искусственным (   Чита
 ```bash
 magnet:?xt=urn:btih:B40936702E2C8535032DD0E5A7DC8F1A1C2F06E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Nova Launcher - один из лучших лаунчеров для Android, ч
 ```bash
 magnet:?xt=urn:btih:3E48141109AB4A42987AB10C7AD94C4C1F3BC612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

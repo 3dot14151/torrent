@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:0AD9F9254F1DC4A2293E65CFE84EF7239628D804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ On-line (   Читать дальше...   )Производство: СШАЖ�
 ```bash
 magnet:?xt=urn:btih:A0E01ADE8E94EACD8F9BE9653F6B4737B202C59D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Windows 10 1803 Pro x86x64 By Vladios13 v.09.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:0B0217AAE32D248E5CA8902951B5C4233696E578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Haddaway - What is Love (2011) Remix [MP3|192 Kbps] <Club, Dance, Techno>
 ```bash
 magnet:?xt=urn:btih:ACC35A02828E3153F71EDB538FC4BFC3397DC118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Deep House Collection Vol.186 (2018) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:07265F234AD47BDEEEC31D0165C1A4BADC106A29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:462C736A3CBA51F837EB3490BBD61A6AAD8F8B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Sword Art Online Re: Hollow Fragment — ролевая игра с элемен
 ```bash
 magnet:?xt=urn:btih:F968D9DF820438B3999AFE61A6081B49C5660A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ VA - Deep House Collection Vol.187 (2018) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:3737CBDAE750C8742EED00F4312F4F784081EFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1A5CE5EF6E31D6F4DE5F609FDA8C7A8FE4A7FA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF9CC1A144D9DCCE2DDB6CD089373458F2349B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.0.3/Reg 1.04) License CODEX
 ```bash
 magnet:?xt=urn:btih:B6C1604EB84AA4702D01C6EBA39703E2EC20ADA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:ABD05C92421B9E511A36BA388A8522CB2A5B6837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Sea Dogs: To Each His Own - самая последняя игра легенд�
 ```bash
 magnet:?xt=urn:btih:3CFD76F660B8E4FBC8F0CF7AE91B72A44C455B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Freemake Mega Pack - это репак включающий два продук�
 ```bash
 magnet:?xt=urn:btih:9605E5BC74BB83223F0B8F9497B95890FCDBF20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Linux для дома 22.3.8 (Mint 18.3 + dx11 dxvk0.81) [Авторская р�
 ```bash
 magnet:?xt=urn:btih:F94BD1B694070C00AF453481854DAB5A610B5E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

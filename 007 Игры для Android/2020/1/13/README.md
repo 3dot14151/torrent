@@ -19,8 +19,7 @@ Human: Fall Flat 2019 – в этой игре вы будете управля�
 ```bash
 magnet:?xt=urn:btih:439CF6EADDE777140C570CD4B4D15261A4165AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Geometry Dash – веселый платформер на Андроид, в к
 ```bash
 magnet:?xt=urn:btih:AE3B33ED67E0E2B6565C46AC3E6E3C10B20EDE43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

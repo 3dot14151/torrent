@@ -21,8 +21,7 @@ This book cuts through the noise, focusing on the essential elements of C++ with
 ```bash
 magnet:?xt=urn:btih:A8E76DFAA0E26E1BB93EB65ACF8B9E84D00C3199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

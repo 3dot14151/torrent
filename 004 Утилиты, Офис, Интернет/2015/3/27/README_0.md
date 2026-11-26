@@ -19,8 +19,7 @@ Windows Tweaker 5.3.1 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5A96A7E0A3A93980D3EEA849C35C7F583685A8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

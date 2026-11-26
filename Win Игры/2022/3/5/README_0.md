@@ -19,8 +19,7 @@ Whispered Secrets 13: Tying the Knot (2022) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:AE4BA47BA4E2098C40CD3D19F836C09A0737E862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Night Watcher / Ночной смотрящий (2008) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:0C931252474BF419356D6C911167417B94DFA8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

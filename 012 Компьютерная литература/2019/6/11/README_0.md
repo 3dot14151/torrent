@@ -19,8 +19,7 @@ Carmine Noviello | Mastering STM32 (release 0.26) (2018) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:1A0C52E81EEA071E8BAC69E15B6D15E5F0293F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

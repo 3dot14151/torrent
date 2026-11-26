@@ -21,8 +21,7 @@ Nicky Romero - Live @ Protocol X ADE Label Night, Melkweg Amsterdam, Netherlands
 ```bash
 magnet:?xt=urn:btih:073B93A4A02C06C3DEF57A8A43E930B34BDCC682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ DJ Eric Foster - Night Light (2004) [FLAC|Lossless|image + .cue] <House, Trance>
 ```bash
 magnet:?xt=urn:btih:A78995F6CCE3FC95689CCA20197967B7DBCE9779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Neurochemistry: Psychedelic Trance (2020) [MP3|320 Kbps] <Psy Trance>
 ```bash
 magnet:?xt=urn:btih:A85AD826BEA78E4A264C231CC861EC1FB501D1F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ The Oscar Peterson Trio - In Tokyo: Live At The Palace Hotel 1972 (2005) Columbi
 ```bash
 magnet:?xt=urn:btih:CAF19E396CCBB0455E7A1753E14F48BB3102B795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Igor Pumphonia - Elixir Of The Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 ```bash
 magnet:?xt=urn:btih:69DD10CC696F5F43168C27951FE90F1744624C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ SPINNIN' - Best Of 2019 House Mix (2019-12-27) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:7E76BA83EB5E12FB64C57C340EFEB3A46C5ED406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Dinka - A Date With Dinka (2014) 2CD, DJ Mix, Compilation [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:75E14DED0F1005FB2C3225D2A58711DE2874B764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Above & Beyond - Live @ The New York Expo Center, United States 2019-12-31 [MP3|
 ```bash
 magnet:?xt=urn:btih:95B1B2869CEB4245585B00EC6B90B56CA7F56D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ CD3 - GalaxiesПроизводство: The Daydream Library Series – DLS 004C
 ```bash
 magnet:?xt=urn:btih:BC21E963ABEBC1603A12DAB650AC173BEE176DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ VA - Light Up With Us: Deluxe House (2020) [MP3|320 Kbps] <Club, Dance House, El
 ```bash
 magnet:?xt=urn:btih:782BD06ADEF9E515021FF3FBCE615F69E288C72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ SPINNIN' - 2020 Future Hits (2019-12-30) [MP3|320 Kbps] <Progressive House, Elec
 ```bash
 magnet:?xt=urn:btih:0B8D46A78D5C3398F9E6735443E9E3A7D16D9EA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0B5F3F471C827CC161C256CA30F01D62B7FCB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Sole Massif & Jacob Newman - Santraukos (2019) [FLAC|Lossless|WEB-DL|tracks] <Am
 ```bash
 magnet:?xt=urn:btih:592DC8D2B904D750CF8A835D918FFAC4E5D64A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0729BA46B676D672A2F917CE37C4C993354F6587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B2084F541764695C844A9B24656A909EACA5798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ VA - Queena Techno (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 ```bash
 magnet:?xt=urn:btih:492F07413472B6388959FE7A9DE53BBCC55F1A23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Reasonandu - Zephyr (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Psychill, D
 ```bash
 magnet:?xt=urn:btih:F52875BC5C8C27FA8704411DAE671E07F36BAA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Iris - Siх (2019) [FLAC|Lossless|image + .cue] <SynthPop, SynthWave>
 ```bash
 magnet:?xt=urn:btih:4877E13A9945CECA8C7CE26110D634E9056CFF79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ GoaD - Hypnotic Mirage (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 ```bash
 magnet:?xt=urn:btih:1658C6D0F07854D066979BC6D5D68563B8B09B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ VA - Techno Friday: With Special Guest (2020) [MP3|320 Kbps] <Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:3A9D4D30EEFD95CA5B45C24EBF8150D984DF8F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C4E0CFFB7DD37487FB891408FC559900C169FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ Diablo Swing Orchestra - The Butcher's Ballroom (2006) Reissue, 2008, MALS [FLAC
 ```bash
 magnet:?xt=urn:btih:B8EF9D0F41AB20139032450A849D5E70CBAB970C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2F757408EA32D527DD602801668F1B71BC54C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +656,7 @@ VA - Chillout And Ambient Pieces (2012) [FLAC|Lossless|WEB-DL|tracks] <Downtempo
 ```bash
 magnet:?xt=urn:btih:F898D3E643ED624E0DE5DFA837AE070A6716C137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7E7B6D72307F3B7D5DFE012F1024E6307FA4080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ VA - Excalibur: Trance Original Mix (2020) [MP3|320 Kbps] <Trance, Progressive ,
 ```bash
 magnet:?xt=urn:btih:41DB3ADE1523D1AEAF2612974B387E0FA11135A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tyranny (2016) [Ru/Multi] (1.0.4.0048/dlc) SteamRip Let'sPlay [Overlord Edition]
 ```bash
 magnet:?xt=urn:btih:0F8D2A7576CB7EE858FF070EF7CF277DBC9CA016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Black Mirror 2 / Черное зеркало 2 (2010) [Ru/En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:ECF40E4111FEE9DB61C8E97D2962791761A2FEF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

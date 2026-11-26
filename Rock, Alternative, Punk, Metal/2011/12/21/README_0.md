@@ -28,8 +28,7 @@ Boozed - Tight Pants (2005) [FLAC|Lossless]<Hard Rock, Glam, Rock & Roll>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Angtoria - God Has a Plan for Us All (2006) [FLAC|Lossless]<Symphonic Gothic Met
 ```bash
 magnet:?xt=urn:btih:2D676050747532EC29C15F2CC881A838AD0B8712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Our Waking Hour - Seconds To Save Her (2011) [MP3|320 kbps]<Alt. Rock, Alt. Meta
 ```bash
 magnet:?xt=urn:btih:F7497171104D5864C971F61375031D32C12D6F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Vice - Second Excess (1990) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Rush - Sectors (1974-1989) 15CDs Box Set, remastered /2011, Anthem/ [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

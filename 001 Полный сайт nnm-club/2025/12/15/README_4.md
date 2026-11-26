@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:713A24D659018053D003BD2A49DA1FC32235454C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ROUTINE – это sci-fi хоррор от первого лица в стил�
 ```bash
 magnet:?xt=urn:btih:E508B31615E4E7F9C37896E360DB44B3DA113CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD2FA7A17638F3055F500E1694FE3AB344F73301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cat Scanner / Сканер породы кошек v17.2.5-G Mod by ModExPro [Ru
 ```bash
 magnet:?xt=urn:btih:EA80F89080650B6BCD6830CB333730CE6AA373A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

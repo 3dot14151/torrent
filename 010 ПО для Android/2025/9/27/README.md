@@ -20,8 +20,7 @@ FullReader — многофункциональное приложение дл�
 ```bash
 magnet:?xt=urn:btih:924308CCE00862B961A9F8AB671FB5E4849B8E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Purvpn 9.6 [En/Farsi]
 ```bash
 magnet:?xt=urn:btih:6B6915DFFCF7F57B209FA3F0374718AA4BD2290C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69BF16615A4F181B221EF100F4EB8DC92424A5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:E46C26B7D1BAFEE9F4094B7EEBA2D220AF0C11F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ AIDA64 v2.12 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A2A8F76873BE968BEE7CD7262AF4E5B3451C784F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:DABF9728CA10FCECFE9E125DB8490F3F1680D475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:A8C1B6B7A1E80376887C16F0344A36B9089FDD8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.1 
 ```bash
 magnet:?xt=urn:btih:D5E76F85FF2AF27DABC8A0D6F3BF720B5F3662C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ PictureThis - Plant Identification v5.13.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:35A2C5B1F80965BE3EA3E0FB0A64E5F0551B400B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Auto Reply: автоответчик v5.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A826A6E48625DB51855EABE4DDACDB6948685E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ WaveEditor для Android™ — это профессиональный инс�
 ```bash
 magnet:?xt=urn:btih:63D7F745A71419E67B20DEEB3BB3E51CAEBE585E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ AndroVid Pro представляет собой простой и удобны�
 ```bash
 magnet:?xt=urn:btih:893B6038A4BEB23ED962EB99AA7EA205FC97AD99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

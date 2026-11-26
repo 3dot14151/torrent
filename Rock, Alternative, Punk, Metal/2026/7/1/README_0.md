@@ -22,8 +22,7 @@ Mark Knopfler - Golden Heart (1996) [FLAC|Lossless]<Rock Guitarists/Blues>
 ```bash
 magnet:?xt=urn:btih:D3828DE8086AD6A32E4BDA915579D5D430C0B968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C55AB75F05F811911960F12A3D8A70EDAA363426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eagles - The Very Best Of The Eagles (2001) [APE|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:3FDE59AA36D79B7A8A3938E2EC1865A87E45CE28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hellwitch - 10 Albums (1984-2023) [FLAC|Lossless|image + .cue] <Technical Death 
 ```bash
 magnet:?xt=urn:btih:90ED39E09F671DCA0BEADE11C35FF1B37B744D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Krokus - Metal Rendez-Vous & Hardware (1999) Compilation, Unofficial [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:3836570049176F8FD494E8053597394ED2E6DC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Krokus - One Vice At A Time & Heart Attack (1999) Compilation, Unofficial [FLAC|
 ```bash
 magnet:?xt=urn:btih:744D27FCACA109EE4E341A757A27FBF514E97BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Krokus - The Blitz & Change Of Address (1999) Compilation, Unofficial [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:161883387C23101A2CDF51C5B04A2C10C399689D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Unia - Dolam (2008) [FLAC|Lossless]<Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:42E24DF17AF9DEF2CC995782C2DF69D089085160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Dire Straits - On Every Street(1991)(+сканы)
 ```bash
 magnet:?xt=urn:btih:077114762A0AE91FF480591CCCB0D74E566B5957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

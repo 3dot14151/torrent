@@ -22,8 +22,7 @@ Protector — метал-группа из Вольфсбурга, Нижняя 
 ```bash
 magnet:?xt=urn:btih:08E2FCB44B10665A07D81233729FC2A48FE89BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

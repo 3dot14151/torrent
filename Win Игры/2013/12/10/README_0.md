@@ -19,8 +19,7 @@ Excursions of Evil (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:978F026BC17ABB529CD40FC020D4156EFC943E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ OddPlanet - небольшая красивая приключенческая �
 ```bash
 magnet:?xt=urn:btih:F5D75F7A7097317C2AB11A58B3A25C2D3BF4D441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Alex Hunter: Lord of the Mind Platinum Edition / Алекс Хантер и По
 ```bash
 magnet:?xt=urn:btih:D375AFC0B29B9D8ABA64D9D823F3663F347A65B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Vector - аркадный платформер от студии Nekki. Дейс
 ```bash
 magnet:?xt=urn:btih:A8C093FA7526C8762D5B21A0C240833612E16FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Dark Sector (2009) [Multi] (1.0) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BB0AB73FCD43560BCB053111E946A2A2959D9233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Zombie Tycoon 2: Brainhov's Revenge (2013) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:9E1E7FFD665F8CBA797BFA66116F0186A7F14376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sheltered 2 — стратегический симулятор выживани
 ```bash
 magnet:?xt=urn:btih:2D33B0FAB429823585CBC0EE7B9B18636551D65F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

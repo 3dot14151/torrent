@@ -19,8 +19,7 @@ Hunter’s Moon: A Sovereign Syndicate Adventure - это карточный rog
 ```bash
 magnet:?xt=urn:btih:4CB27344755A4E3F940D5BFCDF20379DDC908E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.96) License GOG
 ```bash
 magnet:?xt=urn:btih:960E5B5E871489929D4F0EBFB7A1C83D6AE26F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Silly Polly Beast (2025) [Ru/Multi] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:48B0B6EA20DB07E412371DCD0DEFC19D9634B98B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (1.0.5.20808/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:75CAB0F2465C99A6F3DFE3F2FA21B3442FDAEA55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

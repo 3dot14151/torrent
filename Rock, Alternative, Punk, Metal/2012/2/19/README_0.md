@@ -28,8 +28,7 @@ VA - Metal Violin (2011) [MP3|320 kbps]<Symphonic Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:C7C44649E0A99D8BF17C4B45546F445B3C45E4DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Semargl - Satanic Pop Metal (2012) [MP3|256 kbps]<Melodic Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:7D2FB02F09F02D864A302E04FD7FB4498750E6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Blessed By A Broken Heart - Feel The Power (2012) [FLAC|Lossless]<Metalcore, Hea
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Rizon - Masquerade (2012) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:72961180EA9FCC85F311A1F274BB816C16341B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Queen - 14 Студийных альбомов (1973-1991) 1-st Press Japan /198
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:A5B8D185332294957DC173FF4979148687CEC4F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

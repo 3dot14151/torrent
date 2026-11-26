@@ -22,8 +22,7 @@ Hater - Requiem Aeternam (2016) [FLAC|tracks|WEB-DL]<Deathcore, Downtempo>
 ```bash
 magnet:?xt=urn:btih:120A524E864262220558BFAA7CA950444E563AD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Zombies - Odessey And Oracle (1968) Remaster, 2004, Imperial [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:7EB86CD10498C6D1FFDB885832196C7A64988E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Elvis Presley - MTV Music History (2000) 2CD, Compilation by Halahup [APE|Lossle
 ```bash
 magnet:?xt=urn:btih:F9D91109390B50C2A60909B079B5A9EAD3737606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Acoustic Rock (Polygram) (1995) [MP3|320 кб/с] <Rock, Acoustic>
 ```bash
 magnet:?xt=urn:btih:2FE8058442B882F1365C8A51C612CB1D99FEDE21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

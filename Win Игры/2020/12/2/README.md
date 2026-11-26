@@ -19,8 +19,7 @@ Halloween Stories 4: Defying Death / Хеллоуинские истории 4: 
 ```bash
 magnet:?xt=urn:btih:C77423DA9BF708D942463471DD391834D416F2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Empire of Sin — новая стратегическая игра от Romero G
 ```bash
 magnet:?xt=urn:btih:B03D4800F33B9F8BC7C552B6695897BE457D5EA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

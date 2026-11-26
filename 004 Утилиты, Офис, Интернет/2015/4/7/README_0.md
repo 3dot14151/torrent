@@ -19,8 +19,7 @@ Attribute Manager 5.15 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D2CE4317B7DA0BBE7E8BF2823BB46CFA9FB09396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

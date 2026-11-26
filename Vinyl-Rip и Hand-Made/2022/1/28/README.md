@@ -22,8 +22,7 @@ Stone - финская трэш-метал-группа, образованна�
 ```bash
 magnet:?xt=urn:btih:FE6EECB4FD1BFAAE3121B78F44340EB12F02333B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A1. Armin van Buuren - Imagine
 ```bash
 magnet:?xt=urn:btih:B9931F04827987327DCDE77C50042EC63C316FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

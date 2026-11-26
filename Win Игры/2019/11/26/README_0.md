@@ -19,8 +19,7 @@ Mystery Case Files 20: Black Crown (2019) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:93D83A1B4B157CE6ACC7BCC131B28D1E912460C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

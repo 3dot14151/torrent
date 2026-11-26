@@ -22,8 +22,7 @@ A4	Hippies With Haircuts–	Eye On You	(4:45)(   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:9E4148D74064A3D81B0B8B068AF25B6AC3626040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

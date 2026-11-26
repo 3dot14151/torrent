@@ -19,8 +19,7 @@ HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Re
 ```bash
 magnet:?xt=urn:btih:EC6AF9182E2767ECB9F1D7258F20BEEFAD2A3AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

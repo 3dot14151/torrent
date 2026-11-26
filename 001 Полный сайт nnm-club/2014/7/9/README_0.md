@@ -25,8 +25,7 @@ Futurist (Kama Wide Crew) - 8 Битв (2014) [MP3|320 кб/с]<Rap - mixtape 8 
 ```bash
 magnet:?xt=urn:btih:F92204F677DC329D83BFA3BDAEEE7CF9F4E5F649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Metamatics - 3 Jak And Dive + Nildro Hain EP (2005) [FLAC|Lossless]<IDM, Downtem
 ```bash
 magnet:?xt=urn:btih:6DE18E319CEAADC25EF611C25A435FC182E2C23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Oshiri Kajiri Mushi 2 / Bottom Biting Bug 2 / Жук Жопокус (TV-2) (2013
 ```bash
 magnet:?xt=urn:btih:26DF9E13EB325F71EA3F1FAAEC5DC2C96589D18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Hecq - Conversions (2014) [FLAC|Lossless]<IDM, Experimental, Dubstep, Ambient>
 ```bash
 magnet:?xt=urn:btih:4C725F7EA5B5FA07D2359C9C4A018BB69316BDAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ Too Slim and the Taildraggers - американская рок-группа, о
 ```bash
 magnet:?xt=urn:btih:F5EC4BE6A99426E602578029E4815012E8BCA6ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Suicide Silence - You Can't Stop Me (2014) [MP3|192 кб/с]<Hardcore, Grindcore
 ```bash
 magnet:?xt=urn:btih:643C5753D32361366C7046211DD18B642F034F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C54FABC2B605E28BB2B7CE76C4E59A57BBF6C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2ABBC3214BC981B48828136948874DE2E2B1015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DCDD68BD136B967C6496142BBF80F8E3E86E63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ Incognito - Amplified Soul (2014) [MP3|320 кб/с]<Acid Jazz, Funk, Pop>
 ```bash
 magnet:?xt=urn:btih:BFE7383093574CC34C936595C83830941C2DF7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D59CDB5144A98310C06262B94463877227B3B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCAD04407C9A76040BB1C3064565739A8E6A9C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +374,7 @@ Lisa Mann - Move On (2014) [MP3|320 кб/с]<Modern Electric Blues>
 ```bash
 magnet:?xt=urn:btih:46A4A0C73923FABB1A0017F9FFB7232CC5CB1230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ The Choctaw Spirit - Morning Stars (2007) [MP3|320 кб/с]<Folk, New age, Instr
 ```bash
 magnet:?xt=urn:btih:295F7809FE055B05682F7AA60F71434453CA10F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +442,7 @@ VA - Club News: 100 New Club & Dance Tracks (2014) [MP3|320 кб/с]<Dance, Club
 ```bash
 magnet:?xt=urn:btih:F2A66C5C50774E8112239CF46AE4E1FFF33188DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ Bruce Kulick - BK3 (2010) [FLAC|Lossless]<Hard Rock / Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:FC1E9BDB827227F96335EF9CE030D5D21E3B929B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ Ken Navarro - 3 альбома (2007-2014) [FLAC|Lossless]<Smooth Jazz, Crossove
 ```bash
 magnet:?xt=urn:btih:88CA920936E7D5D547D89F95BA5AC34E8F39083B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ Chris Botti - In Boston (2009) [FLAC|Lossless]<Jazz, Trumpet>
 ```bash
 magnet:?xt=urn:btih:B3AEFBB6491B850079781A453CC21A7AF0B295C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ VA - Defected Presents: Nic Fanciulli In The House (2014) [MP3|320 кб/с] <Clu
 ```bash
 magnet:?xt=urn:btih:292085B929DDCA510DF2C92622ECBEF0C4C9BE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ Light Image Resizer - многофункциональная программа 
 ```bash
 magnet:?xt=urn:btih:D03EC1A5A4EB3F03DE4CC777A873DDB24DD17FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +630,7 @@ The Fabulous Lounge Quartet - Beatles Cafe (2013) [MP3|320 кб/с]<Lounge, Easy
 ```bash
 magnet:?xt=urn:btih:1CFB753AC85AB62FE12E5A7CA71014BDCB7BDA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +661,7 @@ VA - Music For Balearic People vol. 5 (Mixed by Roger Shah) (2014) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:E2A2C147528AA391413EA229B17700DF2B7E3C7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6BE6FF189DE1C094D21215DF010333255A81F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:866A35FE0034F46DCEB797FF40D8A45463B9ABBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9887B5E0994E1351AAC79DCF834988759C4357D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +761,7 @@ Light Image Resizer - многофункциональная программа 
 ```bash
 magnet:?xt=urn:btih:4FF59B681310D5FEAADCDCA96FA9E7B51F9B4F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

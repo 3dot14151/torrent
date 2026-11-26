@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7FDB46D7D58108207DD6FF77D9879BB54B0536B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE4B2CA8641C7AC5F184C346BCC6F4772367B3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Christian Ullenboom | Java: The Comprehensive Guide to Java Programming for Prof
 ```bash
 magnet:?xt=urn:btih:B4D17491AA9DFC3900CD175D3927F0CB5593BFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Isaak Hypnotizer - Sparkling Forest / 2-Mandragora (2013) [FLAC|Lossless|WEB-DL]
 ```bash
 magnet:?xt=urn:btih:31FD607CFFC3D27ECEB70006F948905FCFFA02B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ VA - Time Travellers (2013) [FLAC|Lossless|WEB-DL]<Darkpsy, Forest, Twilight>
 ```bash
 magnet:?xt=urn:btih:D82DD5FDF46524469126B69FD2134EA496EFFAA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Dirty Penny - Young & Reckless (2009) [FLAC|Lossless]<Hard Rock, Glam>
 ```bash
 magnet:?xt=urn:btih:AEF6275505D3B5A4E5BF9EAF994832F5DFBC4BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ VA - Hands 100 Position Touch (2013) [MP3|~256 кб/с]<Club, House, Progressive
 ```bash
 magnet:?xt=urn:btih:021541C9466A8D457250E47C14984B562FB903F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57FE0F4B2EE723ACA73ABD6CB71E4EC4652BC625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Million Dollar Reload - As Real As It Gets (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D9A5191EA910CFEB4D244CD240D5520C5E2931AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ Moon Duo - Circles (2012) [FLAC|Lossless]<Psychedelic Rock, Space Rock>
 ```bash
 magnet:?xt=urn:btih:124D31F082B02CD9509CD78C3002A69F67F87227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ VA - Зарубежные Новинки Vol.154 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:F1B11A0CF24887402E050021DA3FB7E696A1B0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ VA - Русские Новинки Vol.139 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:8DB16CC34AEFB0FB1B62D644FED6655E66C56010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +314,7 @@ D -Echo Project - A blend of nature (2013) [FLAC|Lossless|WEB-DL]<Chill, Dub, Do
 ```bash
 magnet:?xt=urn:btih:DC081DBF4EC6BFAC8E0AA10C2EEE8CB1EA200488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ CD One01 Goldfrapp - Lovely Head 				(03:36)
 ```bash
 magnet:?xt=urn:btih:4F1C60042799851031969E78EC28763352512BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8086E5AEFDD15475BB0035D3D4CEE0BED2B600FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +407,7 @@ VA - Snowflakes IV (2013) [FLAC|Lossless|WEB-DL]<IDM, Glitch, Industrial, Ambien
 ```bash
 magnet:?xt=urn:btih:332E3C66F9B2315D1EC3FF8F900F9037BF339918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +441,7 @@ VA - Зарубежные Новинки Vol.155 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:EB103125C8891B03C4EAF426E1499F67D480DAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +475,7 @@ VA - Автозвук. Отборный зимний хит (2013) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:3F44CB09EFC88EA96E77E9CA10D2BCE02EA3636C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +509,7 @@ Marsen Jules - Beautyfear (2014) [FLAC|Lossless|WEB-DL]<Ambient>
 ```bash
 magnet:?xt=urn:btih:61C65ED1F5258BFE0660BCD85851753321C75FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0D219930EC4E08F55692DC7C44FFEA5A405D851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFE44CA9C41FB781BBF5D6883BFD37A3087CDD3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9544ECB65F2210CAC45FE92C4732AFBCD1E74723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +615,7 @@ Keeno – Nocturne EP (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:48271EB54AC660A07FE6464BB7E4A6B484843D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABD115CF55599D1066347C1A5E4877599322DB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +672,7 @@ Borealis - Voidness (2012) [FLAC|Lossless|WEB-DL]<IDM, Experimental, UK Garage, 
 ```bash
 magnet:?xt=urn:btih:C0C15168C5040E4FFD7C30B76C4082533038B81A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +706,7 @@ VA - Italo Disco 80s (2013) [MP3|224 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:38C7C45143DC21B9A61BC20CBFCD73AB8361C5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +732,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5EED92E5F133A9E97175E53C208B5D60EF1EF46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +766,7 @@ VA - Psilocybin Intelligences (2013) [FLAC|Lossless|WEB-DL]<Darkpsy, Forest>
 ```bash
 magnet:?xt=urn:btih:0FF37BD43F3EACFA03A351BC19222DBA8BCB709A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -825,8 +800,7 @@ VA - Русские Новинки Vol.138 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:E21731BA2E25AB0E2E293608D224C6E983E44F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

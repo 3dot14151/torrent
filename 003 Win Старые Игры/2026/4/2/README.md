@@ -19,8 +19,7 @@ Turok 2: Seeds of Evil - это компьютерный шутер от пер�
 ```bash
 magnet:?xt=urn:btih:BCC9273328ED26553EAD53AA54815C769BFA2812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

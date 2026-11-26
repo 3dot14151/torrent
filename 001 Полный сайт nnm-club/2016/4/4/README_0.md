@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:260FE9ECF177843400909A06D6E1BD78D2FFB8ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Bootleg Rascal - Asleep In The Machine (2016) [FLAC|Lossless|tracks] <Alternativ
 ```bash
 magnet:?xt=urn:btih:B4C2268D1ACA1424EF7CD549744F7951A1D44116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1C6BA86A4249EEC7D0D93183015483ACABDF13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EC1DBF190F99A218136B63E0EB97763D8D3BE64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Le Voir - Dualities (2016) [MP3|320 кб/с] <80's Retro Pop, Synthpop>
 ```bash
 magnet:?xt=urn:btih:49247427E8ABDED75FA4AC57F630EC29F9ED50FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Papa Serpiente - Rock Evolution (2016) [MP3|320 кб/с] <Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:04AC00FD10A47E43819A00D93AF77066A2D6883B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Matches - For All & None (2016) [MP3|320 кб/с] <Alternative Rock, Experimenta
 ```bash
 magnet:?xt=urn:btih:FC8EB2A6774CAB9A1B28413DE401FD29E2146D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Spring Lounge 2016: Sounds Like Sunshine (2016) [MP3|320 кб/с] <Downtemp
 ```bash
 magnet:?xt=urn:btih:B66ABCC951BBF341F5D0DB0294B5844C02D6DF0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:091805A5C9D7CFF2C796D95044EE096399BD42FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:322F088B3549BF685E24E3B0A725D2EB112D263F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:249CF1AA1FEBC98684610E23996FF1BC60C8DEFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFA2BE8CC9D103D4098070DCEE11AAECAC017D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Duplicate Detective является наиболее полным прилож�
 ```bash
 magnet:?xt=urn:btih:5756EF5DCCCA2AF3D12D735155B685BF03A50D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ VA - Trance Desire Volume 65 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:8A96312369D2260515E95AB005910F769706622A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89FC8404244CBEC5DAD6635CA500A384EA8A73C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Gareth Emery - 100 Reasons to Live (2016) [MP3|320 кб/с] <Progressive Trance,
 ```bash
 magnet:?xt=urn:btih:E7C2E696155095A6A74E5D0430FC8FCD4BC16753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ Privacy Protector является мощным и эффективным сре
 ```bash
 magnet:?xt=urn:btih:57D466A5AC4F7094E502F91C4B0BF0140A41B045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C27B0891E02D84C8C28991C39919FE6F68F6E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ Thunderstone - Apocalypse Again (2016) [FLAC|Lossless|image + .cue] <Power Metal
 ```bash
 magnet:?xt=urn:btih:69800AA822DD6F0107045A866B2EA7E52C89D61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84BAB1BB72B0A15B32FDE2CA034E120C1560D7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ Kim Carnes - Essential (2011) [MP3|320 кб/с] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:EFD8CDD559816729D95F505F6D732B2A2A35D343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:099739C6BA660BB3FE9E2073BDA1D31F18F0D5E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ RegScanner 2.16 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:814C2260A16B5ECDD16E3B9F295957161E06D3EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ Final Chapter - Legions Of The Sun (2016) [MP3|320 кб/с] <Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:B0D7C64F6D1EFEC375BD342904733ACF8DBF3138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Beady Belle - Songs From A Decade: The Best Of Beady Belle (2015) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:5BB7375BE336642F30137A127B80E3948F693737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ Clips это машина времени для вашего буфера обм
 ```bash
 magnet:?xt=urn:btih:BA405E139CB4E318BCD315B5A4F9ACF925288439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Fable стала самой продаваемой ролевой игрой д�
 ```bash
 magnet:?xt=urn:btih:7596CA44A0838253E06CB2DB7284F1C12BEA9749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:838B795B43AAD63C1DC6801F6B44BEECE48A706D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA059AF91CDD3196FE8C4A599218E6FFCF3D6607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Sony Vegas PRO — профессиональная программа для м
 ```bash
 magnet:?xt=urn:btih:56044DADA9D8FEE8BA20647BF3DBB501E983E68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Far Cry 4 (2014) [Ru/En] (1.10/dlc) Repack R.G. Games [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:83D0667DEB26EFE16AF9E74F28EA686F7E127BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

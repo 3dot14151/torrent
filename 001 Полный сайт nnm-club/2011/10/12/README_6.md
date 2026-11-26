@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EC3A0DBB8DC4C339B0C8E3E75252C2E8226F85F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Might and Magic: Heroes VI \ Меч и Магия: Герои VI (L) [Ru] 2011 |
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

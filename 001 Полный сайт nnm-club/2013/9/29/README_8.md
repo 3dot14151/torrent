@@ -18,8 +18,7 @@ Va-банк / Runner Runner (2013) CamRip
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A05085DE31272E0D18A1BB6867E7768885E827E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Recovery Partition for ASUS X550 CC / Windows 7 Home Basic (х64) SP1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5197B972153E0443B68EAD5A13E144B106874B4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F533A656ED877091F1BA18F06FBD92F0D593AD39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Just Dance 2014 продолжает танцевальную серию игр 
 ```bash
 magnet:?xt=urn:btih:E3F2AF8BF958EB4CCC8238797FF300FA54685DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ F.E.A.R. (2005) [Ru] (1.08) License [Director's Edition]
 ```bash
 magnet:?xt=urn:btih:3CB01700B379F97A153C1AB6888EC16B0151BF81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Nihilumbra (2013) [Ru/Multi] (1.0) License DEFA
 ```bash
 magnet:?xt=urn:btih:343115EE3FED31652BC167FB777ABD05792AA537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Just Dance 2014 продолжает танцевальную серию игр 
 ```bash
 magnet:?xt=urn:btih:45A11D0ADABDF56DFB0BFC24636E31E90388F110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Advanced Tokens Manager приложение, которое поможет ва
 ```bash
 magnet:?xt=urn:btih:2CE1EF6C597EAD658B39B920D4AADCBF6C8010A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:020381A384F6329931C04B3CBE91B9AD208DF062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:073DF495E196AA3BEEB6E317A3471DF80CE8AF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Modding Way - добавляет в игру новую качественную
 ```bash
 magnet:?xt=urn:btih:B74B7D853D1B7297A0E6C343C71A5273AF5BB0BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:888808B379B1B34D3E003C86B6E449FB8C5FD439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Movavi Screen Capture Studio 4 — универсальная программа
 ```bash
 magnet:?xt=urn:btih:9BFD312D6D0D44D59621810B5AD4672586D5C3E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C998C3BEC2855D512936161C7EBA7CE6EAC62421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:222B4140FB8000AF2B0C43B2B901A671B8748832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +440,7 @@ Shingeki no Kyojin / Attack on Titan / Вторжение Титанов [2013, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +466,7 @@ Shingeki no Kyojin / Attack on Titan / Вторжение гигантов [2013
 ```bash
 magnet:?xt=urn:btih:F18D7389117F857CB618F8D8A0E2A451CB3FE777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

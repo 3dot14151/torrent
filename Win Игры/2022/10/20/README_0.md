@@ -19,8 +19,7 @@ We Happy Few - история шайки не слишком приятных, �
 ```bash
 magnet:?xt=urn:btih:C507FF8655B10F27194346D9C36C6CCB94F6B1D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:7D756C67B3DC1FA12AEDF3BC0A8FEFD3C18BB410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

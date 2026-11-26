@@ -20,8 +20,7 @@ Angry Birds 5.1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:ED82ABD6A69F62D695898BC56FABB307E5917C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ World of Goo - увлекательная аркадная головоломк�
 ```bash
 magnet:?xt=urn:btih:331E2E6AAB444E1B5F74B2BAF8C6E2192D67E6BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

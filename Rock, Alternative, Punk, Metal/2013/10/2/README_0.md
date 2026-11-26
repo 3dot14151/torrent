@@ -28,8 +28,7 @@ As Autumn Calls - An Autumn Departure (2011) [FLAC|Lossless]<Melodic Death/Doom 
 ```bash
 magnet:?xt=urn:btih:5D58B38F560834DB6B21C1A8772A5E3EBC3EC6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Avulsed - Ritual Zombi (2013) [WavPack|Lossless]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:9549ADF8080029BD4F044547D456721FC4121EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Doug Simmons & Glen Mitchell Band - 7 альбомов (2009 - 2013) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:BAB4F75303AA256CA4F54DC236F3D156B645CFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Andrew Belle - Black Bear (2013) [MP3|320 кб/с]<Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:F6D2598011EDA9CBD54DAB7F75D0C353F8228571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3764395B26E116D2D262F2820B43B39002AECEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Hypocrisy - A Taste Of Extreme Divinity (2009) Limited Mailorder Special Edition
 ```bash
 magnet:?xt=urn:btih:38364948422ED0462BB49F80F9A8FC6DDBC160BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Coney Hatch - Four (2013) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:607C421EC3314B22C2EF8F1A32A26155BDCEAA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Arc Angel - Harlequins Of Light (2013) Japanese Edition[FLAC|Lossless]<Rock, Mel
 ```bash
 magnet:?xt=urn:btih:BD080E3EBE954DDFE0B7A41CE1D1D34E1C096EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ U.D.O. - Steelhammer (2013) Standart Edition [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:ACB19381F58265E082E202DE31AC83737273A5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D42802085AFFDFC206F48A97679006649C890D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +353,7 @@ Korn - The Paradigm Shift (2013) [FLAC|Lossless|WEB-DL]<Nu/Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:9C106E08B76BC49CB0AE0C4D7B60DC2C37FB1515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +387,7 @@ Radiohead - Kid A (2000) Special Edition, Japanese Issue/2009, EMI Records/[FLAC
 ```bash
 magnet:?xt=urn:btih:BFA6B4D085E7E05FF38D527EA5629E5F709348C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +421,7 @@ The Kinks - 13 Альбомов (1965-1983) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:5A44C42B1AB0246922B70AE2938FF847908CF4FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:E805AC2BD4879DB2D67985E677B9F6D6C47B64D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Kathy Gude and Mary Stephens | CAE Result [2008] [PDF, DjVu, mp3] [EN]
 ```bash
 magnet:?xt=urn:btih:F9B9DB0F56AC731D391801AB987354FC83A990D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54B615961C95C8B7F1B51FE78DD35BCC5163C92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

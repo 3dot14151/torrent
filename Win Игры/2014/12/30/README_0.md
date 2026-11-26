@@ -20,8 +20,7 @@ Zombie Driver HD (2012) [Multi] (1.5.23-22476/4dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D3F2288A351485121AE989B51F34D2FF9F72EE41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The Masterplan (2014) [En] (build 7.1) Repack R.G. Syndicate [Early Access]
 ```bash
 magnet:?xt=urn:btih:5D041D2734E9EF819BB57BA832DD5BC039E11930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

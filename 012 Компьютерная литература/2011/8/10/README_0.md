@@ -19,8 +19,7 @@ Visibone | The Everything book [2002] [En] [JPEG]
 ```bash
 magnet:?xt=urn:btih:9D4375D36AE4F2A8C7AA491A03812051CE4D991B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

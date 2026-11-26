@@ -27,8 +27,7 @@ Reality Grey - Define Redemption (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:B38021F0B80D23C9F1FF8BD71AE45702C78BBA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ PILLZ - Когда люди превратились в слова (2009) [MP3|3
 ```bash
 magnet:?xt=urn:btih:7677D9BB459B8AD4F327487FE882808530050EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ The Winery Dogs, новый проект, в состав которого вх�
 ```bash
 magnet:?xt=urn:btih:EEBE149EAAAF764A5C279CA42C4CE4786E23F072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Part Two: Prophecies(   Читать дальше...   )Жанр: Prog RockПр�
 ```bash
 magnet:?xt=urn:btih:52B0A319FC87B12AD2B483C1C425268F83752DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C70C8FD209D5FD3A2767EF156213695967FF01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

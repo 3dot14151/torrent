@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:203B2BE62D5575CBB8493612194B5E9BB5F13C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Matt Lombard | Mastering SolidWorks (2019) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:2B4938604082D62EEB92D72390B124308EA781F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

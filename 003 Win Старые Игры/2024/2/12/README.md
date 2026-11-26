@@ -19,8 +19,7 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 ```bash
 magnet:?xt=urn:btih:D3F038E8051DCB350DAA625D0F4070BBE82F1279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Panzer General 3 - третья глава популярной серии ст�
 ```bash
 magnet:?xt=urn:btih:F1A851BA54465D8AFE2ACB730CA96359C991934E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

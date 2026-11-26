@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D130F9112241EBFB3840FE31063B6F3C84A8D537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Arbitrator - Kill Their Religion (1998) Remaster, 2024, NORZ Records [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:63B8801C5E4FE73DC866C14EC627718636F6D86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C769A7A864DA6E3D5EBB0A16FCDB1E501AFD7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

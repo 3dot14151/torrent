@@ -19,8 +19,7 @@ Landstalker - The Treasures Of King Nole 1.1.1 (SEGA Genesis Game) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:27A19F82552CE8B4E2A527E59BEED35EF96FD881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

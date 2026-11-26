@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9CCFCD4A470B4AB5EEBCE14A90F0609404FFF681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VPN — это виртуальный туннель между вашим ус�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCEA4843FA1A522EDD6064546C507696F851A8BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ DETECTED. Тайна, покорившая мир - серия зарубежн�
 ```bash
 magnet:?xt=urn:btih:D01EBEED455F384298EEAD0FD4CEDF5F89007CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Microsoft Windows 10 Professional VL x86-x64 1809 RS5 RU by OVGorskiy 11.2018 2D
 ```bash
 magnet:?xt=urn:btih:976A35169E53DB1182BF245ED6E77A15B3470990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Tom Clancy's Splinter Cell Blacklist (2013) [Ru/En] (1.03/dlc) Rip R.G. Revenant
 ```bash
 magnet:?xt=urn:btih:04DE40F37B1676834C3A84A5B17E196806DCA368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1A079C6782F379DFB0BC0C9FC1A517D4DC3A363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Photoshop CC — лучшее в мире ПО для графического �
 ```bash
 magnet:?xt=urn:btih:4656B1B696E675BD206A12A1C2CE41B8C572A648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Shadow of the Tomb Raider — финал трилогии о становлен�
 ```bash
 magnet:?xt=urn:btih:FCAC8F0481B1E7C30A49DA106CE2E0D4AB4F2363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55E76D73EBC24CEE2F34B326AA66B92BAC5502FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Microsoft® Windows 10 Enterprise LTSC x86-x64 1809 RU Office16 by OVGorskiy® 1
 ```bash
 magnet:?xt=urn:btih:784A53CB62375E7D99FE3F2B751B158DE94697A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru/Multi] 
 ```bash
 magnet:?xt=urn:btih:CD49515430B719C260A6E1F4114C2FF849CF1050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:292DD64BE1211FEA6F1D12453468CE6A93B55ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

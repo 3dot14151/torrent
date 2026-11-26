@@ -19,8 +19,7 @@ Rite Of Passage 6: Deck Of Fates / Обряд посвящения 6: Карты
 ```bash
 magnet:?xt=urn:btih:C4A1A7A85815D412359063CA11C4D1732720FE64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Surface: Return to Another World / За гранью. Возвращение в 
 ```bash
 magnet:?xt=urn:btih:A96D1ACBF76CAFCC54948631FD3BD81FDBE2EFDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Tales: Edgar Allan Poes Metzengerstein / Темные истории. Эд�
 ```bash
 magnet:?xt=urn:btih:8849218DCDA3B534BE4ED7E4DF4F5E13ED842E05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gnomes Garden 4: New Home / Сад Гномов 4: Новый Дом (2016) [Ru]
 ```bash
 magnet:?xt=urn:btih:86B79A0E57E0CEBBEBB778C75C742A5BBD3B8112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grim Tales 10: The Heir / Мрачные истории 10. Наследник (
 ```bash
 magnet:?xt=urn:btih:7B40EA33F0A7A7AC8314399AB4FFEB0BECE98196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Off-Road Paradise: Trial 4x4 - автотриал по живописным уг
 ```bash
 magnet:?xt=urn:btih:FED46F92CF78CCA973385F98A2A4A4010EF08972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Killing Room – шутер от первого лица с элементами
 ```bash
 magnet:?xt=urn:btih:DCDDE1D402751727C39A5964A0119E11F4A28868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sniper Elite III (2014) [Ru] (1.15a/dlc) Rip Other s
 ```bash
 magnet:?xt=urn:btih:E6BD406A4B464BCA56E307C222B60E2D376B1BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Maize – приключение с видом от первого лица, р�
 ```bash
 magnet:?xt=urn:btih:16A1A2FD5B14A4AEC30F9CEF70ED45E9F3412DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Warhammer 40,000: Dawn of War II - Retribution - второе отдельное
 ```bash
 magnet:?xt=urn:btih:8F66A64272B0971D8928E46644758A9C1BC4DE3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

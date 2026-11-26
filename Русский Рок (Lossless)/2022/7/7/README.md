@@ -22,8 +22,7 @@ Neorhythm - Anthropo (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Math Me
 ```bash
 magnet:?xt=urn:btih:E636B72C52CCC73BC552F7C1AA514E392E4E0405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

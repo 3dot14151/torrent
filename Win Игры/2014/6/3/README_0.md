@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:4231B81B287603722280B3ACB600833837E4E2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Homefront – сюжетно-ориентированный кинематогр
 ```bash
 magnet:?xt=urn:btih:97C855E1AC06846B561DEB57D12AB14970382DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Sanctum 2 (2013) [Ru/Multi] (1.1.25536/5dlc) Repack R.G. Механики [Compl
 ```bash
 magnet:?xt=urn:btih:B7BBE01BE2B9105B54960865816C732D8A4C5590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Silent Hill: Homecoming — это достойное продолжение з�
 ```bash
 magnet:?xt=urn:btih:AA141ECFFEC9A9F64C6805CB25AF92EF9C088D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

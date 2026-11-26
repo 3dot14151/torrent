@@ -19,8 +19,7 @@ The Mystery of a Lost Planet (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:6FB974B17A1C486B1DC6E1656DC3D7F1260499C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Scourge: Outbreak (2014) [Ru/Multi] (1.103.482.0/2dlc) Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:73B90E4DEB6E073164ACA8A82CBB5088E7AD6993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

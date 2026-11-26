@@ -23,8 +23,7 @@ VA - Quatro (2011) [MP3|320 кб/с]<Tech House, House>
 ```bash
 magnet:?xt=urn:btih:DB144C795333C8FD955F6B6038B6438D080D3033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ VA - Клубные Новинки Vol.196 from AGR (2012) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:8036967369A6E41B2AD25C7BFF67543C76B88B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Mondo Creme - Noname part.1 EP (2010) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:0DDC1A6CBCF8E2633B46736B697D979B3C664F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Monsters at Work - Eds Crazy World EP (2010) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:AF1D97DBD4730DE292B3B9D5550ED73B321225CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ VA - Party Open Day (2012) [MP3|320 кб/с]<Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:FFC048CA43E006BCFD55041201AA35C13A9551ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ VA - Tres (2010) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:9E859A6A0F6756ABED3E299DA2631A81CB2ABC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ VA - Русские Новинки Vol.87 from AGR (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:DA2AD4AE56BFD132D315496398AA52E73FEB25AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36389F05A002CF303950692210235F008406D07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ CD 1Жанр: House, Dance, ClubПродолжительность: 01:07:46
 ```bash
 magnet:?xt=urn:btih:CB4BA7C578B79D1B40A397484C730CC710753014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ VA - Клубные Новинки Vol.197 from AGR (2012) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:FBB71A7B9723BC2024771646E9DBA0D5EFD4BAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E59BEB04FCB851356C2CD871FB6C56A25EF21B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ VA - Sound Of Cologne Vol.4 (2012) [MP3|320 кб/с]<Techno, Tech House>
 ```bash
 magnet:?xt=urn:btih:DCD4EAE675B1C14204D72012930E89606D10B156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ PC Week - Журнал информирует о передовых технол
 ```bash
 magnet:?xt=urn:btih:3201AFEAD58FB388913D8303B090FE41D1A7C660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ VA - Клубный Автохит. Зимний выпуск 7 (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:CD1D05FDE3EC25A5A3947841DAB87955547E9762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:180330C574D68C7CF2065749F2B9A0FEB19F6591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +490,7 @@ VA - Новогодний Подарок from Kulemina (2012) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:8D1F5CC96F6A6697C337473219CE121DABED38DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +524,7 @@ VA - Club Music from Kulemina (2012) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:BEFAE4B0398930A7C6BCD22CE73CC0E3A133965C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AA8A0E61B59E8E5D70F2A44203F946B2F31241C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +574,7 @@ VSO Downloader - менеджер для многопоточной загруз
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ VA - Now Call Sounds No.1 (2012) [MP3|320 кб/с]<Euro, House, Club, Dance, Voc
 ```bash
 magnet:?xt=urn:btih:CD7EDDE46E9103AC3C8BA253466A1FFEE2358146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:946997F1A38F9D1449AC2F13D592E6642615107A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +670,7 @@ VA - USA Hot Top 40 Singles Chart 15. December (2012) [MP3|256 кб/с]<Club, Po
 ```bash
 magnet:?xt=urn:btih:AF96959994B75A7A3CD3315332D912706A11755F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +704,7 @@ VA - Зарубежные Новинки Vol.98 from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:CC66C0E7BD4427E09F21BE7E3BE7CA60C00B2797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA9BE1C80354015C7259B3168905E1CF8F08B97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +767,7 @@ Charon - 2 альбома (2000, 2002)  [FLAC, APE|Lossless]<Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -817,8 +792,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC0CECBA63DD4E4647BA4857C377B63126F09186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

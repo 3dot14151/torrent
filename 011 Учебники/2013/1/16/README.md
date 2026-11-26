@@ -27,8 +27,7 @@ V. Основы физической и коллоидной химии биол
 ```bash
 magnet:?xt=urn:btih:E595B38B54ABE9C094D62FFE8A2271DE9EF0AAD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

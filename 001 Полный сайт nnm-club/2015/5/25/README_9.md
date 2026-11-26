@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8ED3EBDB7CE9E0ECF7383796B95014F1396E2E50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Andrew Hill - Blue Black (2015) [FLAC|Lossless]<Jazz, Post-Bop, Modern Creative,
 ```bash
 magnet:?xt=urn:btih:C712E30FEB24BEFDFB667CDE497267ED603DF77F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Rytmica Feat. Big Reggie - Swing Da Thing (1996) [MP3|320 кб/с]<Euro House, E
 ```bash
 magnet:?xt=urn:btih:401AD60D35F23108507677C2AC1B07C5C122391C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE72D529C436B424C88C59AF8988F6E3003169C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A7669F9206AD1D6630DA2BD8681BF3310D25F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Johnny Hodges - Planet Jazz (1997) [FLAC|Lossless]<Jazz, Mainstream Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:69B3AC4EB802FFC6173CD917074F86E49B8BC97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:989BF481207E6950233516A1336A823355985DEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Junkware Removal Tool 6.7.9 [En]
 ```bash
 magnet:?xt=urn:btih:3AD668C1EFA78F45A358E31A86547DF6B91C3885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D76EDE831859AF9822C0DC3FE30158DD927CAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72531CE8667F658A049676646EBACA1618E75505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5B839BAAB8CAAD6EAE403739A7849939321350F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FC662B8FE51BEECAEA01CD0AD5B905DE16A1BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ VA - This Is... Kearnage Vol. 001 (Mixed by Bryan Kearney & Will Atkinson) (2015
 ```bash
 magnet:?xt=urn:btih:9ED8D701E2BDFB4A3A1B3F54DCAFD42D5E385354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA2875CEAB9C33FD29449BB8957C28FB5F8150B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB3A0EEA396884F36FC28D0C06DCB3C16FF5DC23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ Fight like Apes - Fight like Apes (2015) [OGG|479-566 кб/с]<Alternative, New 
 ```bash
 magnet:?xt=urn:btih:9DC31B6FDA74ABA64D77A6D1A3E1B173380DDAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4B217EE328B1884AA305274875D2F28734C14E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Anthony Gomes - Electric Field Holler (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9A5F8E53255E8427D83C438644F57ED4C0F5AE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Dimlight - The Lost Chapters (2015) [MP3|320 кб/с]<Dark / Death / Gothic Meta
 ```bash
 magnet:?xt=urn:btih:2233761C2B6F56BE13D52C7D71CFF716A3E9DAED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ Beegie Adair & Friends - Jazz Romance (2015) [MP3|320 кб/с]<Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:46A2994F066669B58640CECA372281278C4568A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAA3B91DD11BEF153A45AEF76458B6B22ACFD9C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACE97E0D76BE43780E82391C694574ADC6C8FA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ Zomboy - Resurrected (2015) [MP3|320 кб/с]<Drum & Bass, Dubstep, Trap>
 ```bash
 magnet:?xt=urn:btih:2861C510CC870B33DF715C25B8745FB0AD492CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ VA - Oh Yes! Ibiza (Mixed By Fonarev) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8F959284BDADBBBEB092A042041BB9281FE15BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ DJ Feel - TranceMission Uplift Special Episode (2015) [MP3|320 kbps]<Uplifting T
 ```bash
 magnet:?xt=urn:btih:A94C9F45ED5514B775BC6F89941147254D386862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ VA - Always Alive Recordings 100 (Mixed By Ferry Tayle & Dan Stone) (2015) [MP3|
 ```bash
 magnet:?xt=urn:btih:2BDB52B2E542B69F06C2CEC67A5B2305FEDA1619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

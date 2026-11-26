@@ -19,8 +19,7 @@ Mindframe: The Secret Design (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:37E733F31E74419EF0F7DB3A88DD44B445533A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vambrace: Cold Soul — фэнтезийный рогалик в мире мор
 ```bash
 magnet:?xt=urn:btih:8611B1122E7B843E2CB12A01CE6476344912F1E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Northern Tales 5: Revival / Сказания севера 5: Возрожден�
 ```bash
 magnet:?xt=urn:btih:47C852BF1C5459FCCD4837019694DAD686610083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (306.41/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E205ED9DD4BCC71B8187E11857B269FBF89CA505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

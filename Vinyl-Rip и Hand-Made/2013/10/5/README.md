@@ -27,8 +27,7 @@ B5.  It's Getting Dangerous  :: 05:46Жанр: Rock, Hard RockФормат: Viny
 ```bash
 magnet:?xt=urn:btih:77FA85CE6BD4BDC5A3E627FDB149A8A91AC3869A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ D1 Lost Angeles (15:43)(   Читать дальше...   )Жанр: Prog Rock/J
 ```bash
 magnet:?xt=urn:btih:479E2828159FCC6CD945896F06F11F007B6148DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ B4.  Sweet Lullaby (Ambient Mix)  :: 03:48(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:55FC4DBB9C5DDE56328E74B2C2D8D6DEBE9DEC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

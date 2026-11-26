@@ -22,8 +22,7 @@ Dead Native - Keep It Strange (2013) [MP3|320 кб/с]<Psychedelic/Heavy Rock>
 ```bash
 magnet:?xt=urn:btih:638473A22E2D06E11D3D36B68A741BDE44136105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ We As Human - We As Human (2013) [FLAC|Lossless]<Alt.Rock | Alt.Metal | Modern R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Van Halen - 6 альбомов (1978-1984) 6 Remastered CD Box Set /2013, Warner
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

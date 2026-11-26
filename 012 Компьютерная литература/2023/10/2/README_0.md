@@ -19,8 +19,7 @@ Alexandre F Malavasi Cardoso | Enterprise Applications with C# and .NET (2023) [
 ```bash
 magnet:?xt=urn:btih:CA8413DDC0DA0037E9EFA9EAA0F16ABB98D24DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Paul McFedries | HTML, CSS, & JavaScript All-in-One For Dummies (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:74017917C95166EEEBA3B10B9A53BEECE5F32582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

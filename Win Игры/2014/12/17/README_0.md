@@ -20,8 +20,7 @@ Giana Sisters: Twisted Dreams — это увлекательный и дина�
 ```bash
 magnet:?xt=urn:btih:72D1C5D278B894039E43E70055166F5C164C329D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Final Edition — это обновленная версия, созданная
 ```bash
 magnet:?xt=urn:btih:DDA2CBDA43EF178DA8C7E806A9BD2751BEE8BC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Naruto Shippuden: Ultimate Ninja Storm Revolution PC – игра на комп�
 ```bash
 magnet:?xt=urn:btih:DC43D2A5E2A8AC761261FE186744859CADED207B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Fight The Dragon – ролевая игра, которая состоит из
 ```bash
 magnet:?xt=urn:btih:CB8D1B07A0359EE72A572934BA2BAC779A507869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

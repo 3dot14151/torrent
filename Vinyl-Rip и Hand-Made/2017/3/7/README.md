@@ -22,8 +22,7 @@ A4. Killer On The Loose (4:00)(   Читать дальше...   )Произво
 ```bash
 magnet:?xt=urn:btih:8ECBB14DFE7ECA3470324BCDF5CED82DC1C208BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

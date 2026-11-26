@@ -19,8 +19,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:2B95307D3A68C71F09B0634A73462EC0A213E4B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:6EEB210CEDCA131EAA31A8A3C018604E9B0ECB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3BC098D02A4134DB7912927C40D50E702110472E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Redemption of Liuyin (2025) [Multi] (v.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B445F0C76DC4E7A4C1021439353955397204D58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Master Key бросает вас с головой в мир, полный се�
 ```bash
 magnet:?xt=urn:btih:2DDF1EFB85796373F66761B362CF4BCC25F7B6B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dark Deity 2 (2025) [En] (1.0.1) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:AF76340802BE22775F43FCB6514689AEC779B5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Darkest Files (2025) [Multi] (1.0.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1D915A2A8B8DD8838F9AE4361693F48CE51929C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

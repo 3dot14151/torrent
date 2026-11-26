@@ -20,8 +20,7 @@ Vernon's Legacy - приключенческий хоррор с увлекат�
 ```bash
 magnet:?xt=urn:btih:BCEC8B15C5F3B26E42691CC66E89BBBCA347FFA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Pavilion — это адвенчура с элементами пазла, ра�
 ```bash
 magnet:?xt=urn:btih:4861BE86673E0E6606B4F293A5626CD26FF20BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

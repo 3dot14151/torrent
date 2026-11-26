@@ -19,8 +19,7 @@ Yet Another Fantasy Title (YAFT) - это изометрический роле�
 ```bash
 magnet:?xt=urn:btih:F1039FBFB00E4C84868F84E54DC4BEB57A4E53EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BMX Streets - это увлекательный симулятор фриста�
 ```bash
 magnet:?xt=urn:btih:8EE537EB39104A856954D3B486BD77FB48D4719E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sons of Valhalla - приключенческий сайд-скроллер с �
 ```bash
 magnet:?xt=urn:btih:6230695E71D337DED32E6155851784C2252D06D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pathfinder: Gallowspire Survivors, созданная по мотивам поп
 ```bash
 magnet:?xt=urn:btih:3A21DF9B461D6BE7CF6B502AD94C732055B3762F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Anomaly Loop бросает игроков в ситуацию, когда по�
 ```bash
 magnet:?xt=urn:btih:E0AD180DF1CF33F389B701E2879C532F57342976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Death Noodle Delivery (2024) [Ru/Multi] (3.2.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F1EEBD668BDFDBDAA5E06A992E3016A3A275EDD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ My Life: Farm Vet ставит вас на место фермерского в�
 ```bash
 magnet:?xt=urn:btih:53F1ADB27768F3AC8613AED01DED8947B1804F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Acolyte of the Altar - это адвенчура в жанре roguelike deckbui
 ```bash
 magnet:?xt=urn:btih:A7CA43EC1CEC9F09A21FE3E6272B5951AA7793E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ otus Lantern: Rescue Mother - это игра-рогалик с видом св�
 ```bash
 magnet:?xt=urn:btih:51388FB4E3A02741D6401571E9DD88535D6636E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

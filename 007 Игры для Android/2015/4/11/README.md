@@ -19,8 +19,7 @@ Plants vs. Zombies – великолепная аркада в стиле tower
 ```bash
 magnet:?xt=urn:btih:E4E2A0E3845124E43A704D3E78DB48A75631D727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

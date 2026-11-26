@@ -22,8 +22,7 @@ A3 V. Neckar - Kdyz Ti Nejsem Hezkej(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:78179059599895D004686FC802C19D04CDB126A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rivers of Nihil — американская дэт-метал-группа из
 ```bash
 magnet:?xt=urn:btih:E5B4C9724DA3096A891A411BFBF15D99581A6AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ SHINE – уникальное путешествие в мир особого �
 ```bash
 magnet:?xt=urn:btih:470C749D03FCBE604168349282DF5E80D5DB66B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

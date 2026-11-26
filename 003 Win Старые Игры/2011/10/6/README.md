@@ -20,8 +20,7 @@ DragonRiders — Chronicles of Pern — игра, базирующаяся на 
 ```bash
 magnet:?xt=urn:btih:04E7449522C021D6111F34D6FEB9BC3DA0DACDBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ El Matador [Ru/En] (RePack) 2006 | PUNISHER
 ```bash
 magnet:?xt=urn:btih:EFC726B3CE66583BB478A187AF1D7FE08508AB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Tom Clancy's: Ghost Recon Дилогия  [Ru/En] (RePack) 2006-2007 | R.G. Cata
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

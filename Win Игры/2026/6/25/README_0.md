@@ -19,8 +19,7 @@ The Outer Worlds - однопользовательская научно-фан�
 ```bash
 magnet:?xt=urn:btih:347C26A68B0FE2AB490376316893566C14406D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call of Juarez: Bound in Blood (2009) [Ru/Multi] (1.1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:AA73CCF312E660B557EBF29732FBBAC0EAE2BF47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.1.0) Repack FitGirl [Ultimate
 ```bash
 magnet:?xt=urn:btih:A0ABD725403128BC3C43CA36C5267E3C7747785A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hogwarts Legacy - ролевая игра по мотивам знамениты
 ```bash
 magnet:?xt=urn:btih:AD2CDAE40C05F2198233E2B765AA77EC2B4CAD2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hitman: Absolution (2012) [Ru/Multi] (1.0.447.0/dlc) Repack xatab [Professional 
 ```bash
 magnet:?xt=urn:btih:5F2A95C1D4EF07593319D43EC553D27388BEF42D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Myth or Reality 2: Mystery of the Lake (2023) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:A65078F22970973B8723EFD3569A96AD68FE1D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Daymare: 1998 (2019) [Ru/Multi] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:31E85387B5D3C5FDA9859143B4A49988B700E707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

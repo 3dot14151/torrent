@@ -19,8 +19,7 @@ addLEDs - крошечная, не требующая установки, ути
 ```bash
 magnet:?xt=urn:btih:10792CAB6B28FAB2ACC71AE767F5D82037F3D6C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

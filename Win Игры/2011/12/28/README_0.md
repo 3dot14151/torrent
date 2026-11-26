@@ -19,8 +19,7 @@ HdO Adventure. FBI: Paranormal cases. Collector Edition / ФБР. Секретн
 ```bash
 magnet:?xt=urn:btih:1005E6BCE5331893B29EB9C9EA8D2D844CB52AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Exorcist II / Экзорцист 2 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:D41A30B4326321EFF34B7D9CD206A490FAD3558A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

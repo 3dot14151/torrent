@@ -22,8 +22,7 @@ B1 Ганга = Ganga(   Читать дальше...   )Жанр: Fusion, Conte
 ```bash
 magnet:?xt=urn:btih:96CB03520E81C42643907E2D5BF7B2060C838DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

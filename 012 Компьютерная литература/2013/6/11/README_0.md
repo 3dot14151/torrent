@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:87D5C349898AD7D90C7E36480BE7DF613AA36082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F803E77337CDF169E6156C6E6719ED12F3011EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ R. Love | Linux System Programming, 2nd Edition / Linux. Системное пр
 ```bash
 magnet:?xt=urn:btih:204D4FA27DEF238F3C9192D96492A406BA6FA510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

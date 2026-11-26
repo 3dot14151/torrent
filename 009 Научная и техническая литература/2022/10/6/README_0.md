@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CCEB59135BDE4DE2E3DAE91B77CC522B926FDBDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Steven J. Zaloga | French Tanks of World War I (2011) [PDF] [New Vanguard #173] 
 ```bash
 magnet:?xt=urn:btih:ADF9B2F59EFF8E3EE7499E3CBADCFE25354AB2FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Robert Dinwiddie | Ocean - The Definitive Visual Guide (2014) [PDF]
 ```bash
 magnet:?xt=urn:btih:202968F2BE1CFC6C8398F3FB470999D298167DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB8C612F6ED67425086FFA5B4E166D3F46EF61DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Katie Derham | The classical music book: big ideas simply explained (2018) [EPUB
 ```bash
 magnet:?xt=urn:btih:DE06068F0BD1C815A69850015D673C88E32FCBEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A2F121375023746D83F34701A1B3BE221A10096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:868A6A0E92EC72CBA576CED4AAD9E41D8733ADC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E921071447C8324E0104DF675892E6FFE531D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

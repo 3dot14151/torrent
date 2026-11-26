@@ -27,8 +27,7 @@ Eminenz - The Blackest Dimension (2000) [FLAC|Lossless]<Black Metal / Death Meta
 ```bash
 magnet:?xt=urn:btih:0D78B97A052DDA792352DC263EBD617CDC09589C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Chuck Ragan - Till Midnight (2014) [MP3|320 кб/с]<Alt. Rock, Alt. Country>
 ```bash
 magnet:?xt=urn:btih:7D11C8EA305E73EEBE0B61006B472E72968F0090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Darkflight - Closure (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Doom Meta
 ```bash
 magnet:?xt=urn:btih:382B5DD57FCCB197CCCD05F087CD9A5DA450665C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Dead End Kids - Breakout (1977) Remastered /2007, 7T's Records/ [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:A59FEC448D38CDD012EF3F712345385101E2629B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Echoterra - A Sanguinary Greed (2014) EP [MP3|320 кб/с]<Symphonic Heavy Metal
 ```bash
 magnet:?xt=urn:btih:BC25D6AA79A7F5C00747611FA92571E68336C081
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Shear - Katharsis (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:4AB0BA030577A95AA245B4B27A946EA32E7DFCB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Medula oblongata - Pinata (2008) [MP3|320 кб/с]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:AC3ACFD19183AAE6092A8875790D70048632973A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Johnny Lima - My Revolution (2014) Limited Edition [FLAC|Lossless]<Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:6416177482F215D9C4F4A518B269BAE00D14DE7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Wilko Johnson & Roger Daltrey - Going Back Home (2014) [MP3|320 кб/с]<Rock, B
 ```bash
 magnet:?xt=urn:btih:698C766717E347F29F0729B18FE7831E152B0CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Luther Dickinson - Rock N' Roll Blues (2014) [MP3|320 кб/с]<Rock, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:0937D1D82B6726D356D9CBA258A658247102F892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Elvis Presley - Recorded Live On Stage in Memphis (2014) Legacy Edition 2CD [MP3
 ```bash
 magnet:?xt=urn:btih:BA33633600E8E28D0036404EEAFA7047BDF7965F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

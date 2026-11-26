@@ -19,8 +19,7 @@ Star Trek: Starfleet Command III (2002) [En] (1.01.534_rdna_fix) License GOG
 ```bash
 magnet:?xt=urn:btih:42D3395AB7F807A4195272521F556AEB1253ABE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Star Trek: Armada - официальная игра по мотивам знам
 ```bash
 magnet:?xt=urn:btih:76051E520BA934B67453CD83E704273CE401F99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Trek: Armada 2 - стратегическая игра, разработа�
 ```bash
 magnet:?xt=urn:btih:7765264314CEE66BFF2CACBD6B7E7EEED6F0723D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

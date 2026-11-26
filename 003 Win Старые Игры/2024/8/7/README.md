@@ -19,8 +19,7 @@ Deer Avenger 4: The Redneck Strikes Back / Месть Оленя 4 (2001) [Ru/En
 ```bash
 magnet:?xt=urn:btih:4CBCD9B9D33E143C355D5D64F85C787149A48BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

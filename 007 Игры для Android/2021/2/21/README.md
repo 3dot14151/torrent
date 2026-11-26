@@ -19,8 +19,7 @@ Bubble Witch 2 Saga - аркада, в которой главными геро�
 ```bash
 magnet:?xt=urn:btih:B2A6322C803CE4933055B7989B5B1E4AD186968D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

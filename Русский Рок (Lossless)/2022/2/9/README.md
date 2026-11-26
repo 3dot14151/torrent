@@ -22,8 +22,7 @@ VA - Трибьют Сергею "Чиж" Чигракову, Vol. 2 (2022) [FLA
 ```bash
 magnet:?xt=urn:btih:7175D2974D377F64964BC3B29DAA679BB3F70870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

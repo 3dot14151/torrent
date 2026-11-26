@@ -19,8 +19,7 @@ Facility 47 / Объект 47 (2015) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:1BBE89BB63A8501408DACDA48FD9059934EE218F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Wild Eight (2017) [Ru/En] (0.8.52) Repack VseTop
 ```bash
 magnet:?xt=urn:btih:8A3C0684638A217D9A5E70B35053AFA92ECDAB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Airport Madness 3D: Volume 2 - вторая дополненная часть с
 ```bash
 magnet:?xt=urn:btih:219ACEA1F0AC619595BB787B18F43B960C601DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MonteCrypto: The Bitcoin Enigma (2018) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:AE5BEBDD8EA04CD96DCDC63E506C8D6B232BBA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SYMMETRY (2018) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1DC1B49954CE1D79A50D2C235922A0586F24303A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Final Fantasy XII The Zodiac Age – HD-переиздание оригинал�
 ```bash
 magnet:?xt=urn:btih:ED99F16D6A0C7BBBCFAF24EDE62F4831B3196623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Zombasite - постапокалиптический экшен-рпг с зом
 ```bash
 magnet:?xt=urn:btih:0F9473E07B0EA42C26130D17F467909EE105F1B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

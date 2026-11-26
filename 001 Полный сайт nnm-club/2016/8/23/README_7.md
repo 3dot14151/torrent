@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:040A8609D265D59F69D9DBAAEA8DD0DA890EB13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:949AB91FD536ECFED5678057324C9CEB0C462A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6A99D2E3176D0BB13A547831CA3BB2E60B614B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDEED27863D253F2CF28BEB366828CE2CBDAD086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ VA - After EDM Lounge, Vol. 2 (2015) [MP3|320 Kbps] <Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:2BA2DE76443176A5ED60404A495855DA499F18F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ VA - After EDM Lounge Vol 1 (2015) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:83B150BCB460634EB19705524413B81971CCE36C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Beatport Trance Pack (19.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 ```bash
 magnet:?xt=urn:btih:BD3E387F393380F3D5D4C06542DFA67D9023B891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ VA - Beatport Trance Pack (22.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 ```bash
 magnet:?xt=urn:btih:961E48B7FF8332D96411BFD4DCD57CDB1D628E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ VA - Sound Trance Stardust (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progr
 ```bash
 magnet:?xt=urn:btih:DCD8475AA6DEF29F071BF5174B33A0624377A7A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Ernie Wilkins - The Everest Years (1959, 1960) 2005, Universal[FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:ADBEAD5BB040BFB39901AB64FD9F896C7D700553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ VA - Permanent Vacation 4 (2016) [MP3|320 Kbps] <Deep House, Chillout>
 ```bash
 magnet:?xt=urn:btih:95871ACF376AFC01E81061F91AE3C1766804C1B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - My Favorite Selection Of Lounge (2015) [MP3|320 Kbps] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:E6C2EEB0671E22450306735CF726E74C61A265E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Johnny McLaughlin - Electric Guitarist (1978) Remaster, 1990, CBS [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:D98073162879B773EBF300D669EA8AD2F306C74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92CE77F2404E8171E43DD8206D04F2B5911B90D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D36221E55253813F00023B5267042A55C366D5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ VA - !Kollections 01: The Club (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:AC05DB39235D2D87F96EC64C3A7C217B49715454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ VA - Sound Clouds Operational (2016) [MP3|255-320 Kbps] <Funky, Club, Tech House
 ```bash
 magnet:?xt=urn:btih:D627FF62F15B44767B17F4E7A86C64A8F8E51F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ DGM - The Passage (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:D65AB3821556573BF439717DE4A909CE55216B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ VA - Bass House Vol.1 (2016) [MP3|224~284 Kbps] <House, Progressive>
 ```bash
 magnet:?xt=urn:btih:B401C935AAE5B181321F56F55B555506CBE00616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ VA - DUBAI: Best Lounge Music, Vol. 1 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:3A4913EEA828CCBD32B90E6562250EFEB2AA1807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ VA - Ibiza Beach Lounge And Chill House (Summer 2016) (2016) [MP3|320 Kbps] <Lou
 ```bash
 magnet:?xt=urn:btih:C9F5E91C76F9912E88092FA7076ACC881D5F4544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ VA - I Love Chill: Finest Ambient Lounge and Chillout Music (2016) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:0CB6A2DDCA491A9E65F3179D1AA67A42F10CC5C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ Mahavishnu Orchestra - Birds Of Fire (1973) Columbia, Late 1980s [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:930252C3EC980F9B8DB296D961BF35272BDB8642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A1E5BD4154BEF20D536360FEEDACACCBA29A517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ VA - DUBAI: Best Lounge Music, Vol. 3 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:B6461C51FD7B4F17EC166CF07206437CF6D43745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ DropDMG — это очень простая, но функциональная 
 ```bash
 magnet:?xt=urn:btih:3BE6843D6DF9C5A2C26DD564B3B825B13FB00521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

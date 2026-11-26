@@ -19,8 +19,7 @@ Node Video - один из самых мощных видеоредакторо�
 ```bash
 magnet:?xt=urn:btih:93BF6362CBFAD6C2157AED95FACE99801BEA8CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Seal 1.11.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0E0AE14F5B62FF0D0DDD106B8C1A0B399DF652BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Talkao Translate - голосовой переводчик. Talkao Translate —
 ```bash
 magnet:?xt=urn:btih:E13D6D3A54414F7C02E06FEE86ED961F248F944A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ VPN Russia - VPN сервера в России 1.184 Mod by FreeApkexe [Ru/En]
 ```bash
 magnet:?xt=urn:btih:17633C64698926E2E099C0D860FF82C7A57A79DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

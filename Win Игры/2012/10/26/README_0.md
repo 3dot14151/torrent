@@ -19,8 +19,7 @@ Resonance [Ru] (RePack/1.0.0.5) 2012 | Devil123
 ```bash
 magnet:?xt=urn:btih:8B188A6723239E9293911709015ED842E136B9B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Total War Battles: SHOGUN – новая стратегическая игра �
 ```bash
 magnet:?xt=urn:btih:8D2E554EE0E12AF3D266F64259E00A5D952571D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

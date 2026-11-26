@@ -19,8 +19,7 @@ Warplanes: WW2 Dogfight v1.6 Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4963BF935E69E83AD5E6DEA4B4960E9CA9231742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

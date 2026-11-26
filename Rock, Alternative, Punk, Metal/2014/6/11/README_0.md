@@ -28,8 +28,7 @@ Messenger - Starwolf - Pt.1: The Messengers (2013) Limited Edition [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:35654594D6E2F8351F4AA77DDE12270C9996D592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Crazy Rain - Life Illusion (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0AD84F402745B286F196CCE0E0F47811789C3048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Tokyo Blade - Genghis Khan Killers (2011) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0811FAE061A57AD01CB582CC4C6B4E753302A2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B51CC06C92BEDC87F76BAEC72041422BA8B33F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Jeremy Spencer (Fleetwood Mac) - Coventry Blue (2014) [FLAC|Lossless]<Folk-Rock,
 ```bash
 magnet:?xt=urn:btih:4ED7D5DEE6E0B837FF8008730A0AD3239C966CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Seether - Suffer It All (2014) (Single)  [MP3|320 кб/с]<Alternative Rock, Gru
 ```bash
 magnet:?xt=urn:btih:3931DD364FE7CBFEB1070B8B2BA0B2AA26E54725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Genesis - ...And Then There Were Three... (1978) [APE|Lossless] <Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ Pink Floyd - Wish You Were Here (1975) 24-Karat Gold Disc, Collector's Edition /
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

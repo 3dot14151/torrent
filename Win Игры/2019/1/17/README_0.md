@@ -19,8 +19,7 @@ AMAX Interactive представляет еще одну часть любим�
 ```bash
 magnet:?xt=urn:btih:44DC03752A21016C5D8600C99BAD71B193CBEA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paranormal Files 3: Enjoy the Shopping (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:7DC5BD5026860D8AE515D98E7172FF610CEFC8C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Awesome Adventures of Captain Spirit – это самостоятельна
 ```bash
 magnet:?xt=urn:btih:D317C4016969A24AECBE1BA670F349E42151CA8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

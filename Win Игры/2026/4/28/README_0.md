@@ -19,8 +19,7 @@ Frontier Paladin (2026) [Ru/En] (Build 22955847) Repack AIexandro
 ```bash
 magnet:?xt=urn:btih:C9CB459B7320E766F22894AAB115EDC9D440F218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Modulus: Factory Automation - творческий симулятор автом
 ```bash
 magnet:?xt=urn:btih:E172E937206C5555EA525186E6EFEFFB37622E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shapez 2 - Factory (2024) [Ru/Multi] (1.0.2-rc1/dlc) Repack FitGirl [Supporter E
 ```bash
 magnet:?xt=urn:btih:B10503CF1AF2AE9E888A729E9F56C904124488C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Frontier Paladin (2026) [En] (Build 22955847) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D277F78C4A5F90921709A1F3D86FE66EB64FDAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Of Ash and Steel - ролевая игра от третьего лица с о�
 ```bash
 magnet:?xt=urn:btih:2697EE74F44DB69CC551EBE9C003BC08483A862C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Visual novel: Dashing 90s - текстовая интерактивная дра
 ```bash
 magnet:?xt=urn:btih:4C303BD8F2B7FCA894E6B58191277305A994C193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Black Myth: Wukong - ролевой боевик по мотивам китай�
 ```bash
 magnet:?xt=urn:btih:FC61FA202B081E945F54419851FE9CA4012B9587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

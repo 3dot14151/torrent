@@ -28,8 +28,7 @@ Agora - Regresa Al Vertigo (2011) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:FB4EB5A775CE1DAA3AB80C4BAB14D32F0F0D8F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

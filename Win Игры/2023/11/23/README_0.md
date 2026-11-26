@@ -19,8 +19,7 @@ Dungeon Golf, объединяющая мини-гольф и подземель
 ```bash
 magnet:?xt=urn:btih:BDA18E6BB32E2DCFE5D3778F5A5D39DB9B216740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Knights of Honor 2: Sovereign – стратегия в реальном вре�
 ```bash
 magnet:?xt=urn:btih:B2013CB94011E497A73044E0E74D7C13B67C2AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Daylight (2014) [Ru/Multi] (Build 432586/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0A1C5F49A5A0CF74DA66F2833BBE4AF2367FBEDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Valfaris: Mecha Therion является продолжением игры Ва�
 ```bash
 magnet:?xt=urn:btih:0917BEC435B81EB3C5FAFD47D7CA8B1E4E9C9C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

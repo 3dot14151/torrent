@@ -21,8 +21,7 @@ Business Calendar v2.44.0 + Lite Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F3504B837B186826017FD7D0AC823B46B20DFD38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACCBC0223E98AFD3ED0FB01FBA8D4E72D812D2CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ DW Contacts & Phone Pro (бывший Contact Group Manager) – уникаль�
 ```bash
 magnet:?xt=urn:btih:58B17197A993022565E82903107D6DBB29F22DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

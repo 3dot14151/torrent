@@ -19,8 +19,7 @@ Firefighting Simulator: The Squad (2020) [Ru/Multi] (1.0.41.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6B018821940AD26C0BD1D0645B87492806022BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.3.1) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:D5FF6C3B0A9C52248611204665992EBE058651A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pacific Drive - это атмосферное автомобильное при�
 ```bash
 magnet:?xt=urn:btih:4498A1BE81B5DF00A8B47EED9F16E354A6A3F240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Atomic Heart – это приключенческий экшен боевик, 
 ```bash
 magnet:?xt=urn:btih:D909235129ACA66A9694C3D312998444D9EEE7F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Guilty Gear Strive – новая глава знаменитой франшиз
 ```bash
 magnet:?xt=urn:btih:E9AC66D03F530A683487A6DF1724A069DBA1B9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 ```bash
 magnet:?xt=urn:btih:DCCB22D9A5246DCD06FBFE1C8ECA61E278BE558F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Vampire Survivors — казуальная игра в стиле готичес
 ```bash
 magnet:?xt=urn:btih:69C6DF5822A417D25EB7662B6C78F50C4748C5D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Little Brave это захватывающая, приключенческа
 ```bash
 magnet:?xt=urn:btih:AE37D7A537D1DE5298D0CAE80C8DB45BD4C44A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ ENDLESS Dungeon - это уникальный тактический roguelite-�
 ```bash
 magnet:?xt=urn:btih:BC66A4A7C77378BC44CA8FAD23609B2434842F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.2.0.1/dlc) Repack seleZen 
 ```bash
 magnet:?xt=urn:btih:209F3C04DEA2C9B34089F0EDFD411CD9A23ED16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Memoriapolis приглашает вас построить город, охва
 ```bash
 magnet:?xt=urn:btih:9E7902AAB5DBB8BD9B30006031874D723554B9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Frozenheim – сага о викингах, в которой главного 
 ```bash
 magnet:?xt=urn:btih:3DE839CC61B5E154CDC084AEA8C1F91EEF1AD886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

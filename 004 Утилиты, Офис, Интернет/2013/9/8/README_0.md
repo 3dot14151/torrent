@@ -19,8 +19,7 @@ Teleport - многоцелевой, высокоскоростной инстр
 ```bash
 magnet:?xt=urn:btih:91DD4DAECF246E3D16FE0993EFB6C088F8D95FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

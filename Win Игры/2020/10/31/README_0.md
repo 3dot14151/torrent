@@ -19,8 +19,7 @@ Night in the Opera / Ночь в Опере (2012) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:C25824926948C7CC269441FBCAE67649094EFB96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Abandon Ship (2019) [Ru/Multi] (1.3.14934) License GOG
 ```bash
 magnet:?xt=urn:btih:F409D43D644F68FCAD8A5CF0D20C64E8559B82F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battlefleet Gothic: Armada 2 — это новая стратегия в реа�
 ```bash
 magnet:?xt=urn:btih:7FCAD8AF0956A981A5EA0E535681E4A484D20392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

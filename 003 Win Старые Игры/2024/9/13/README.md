@@ -19,8 +19,7 @@ Spyro the Dragon - первая игра от Insomniac Games о драконе 
 ```bash
 magnet:?xt=urn:btih:36542CF52D358C5B2C29F8B250993DBD30190A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Flatout 2 (2006) [Ru/Multi] (1.2) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:318D94B30D7D8A95E8BF84F0DA6FC43ABCA4C51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Xenonauts: On The Edge / Ксенонавты: на грани (2015) [Ru] (4.0)
 ```bash
 magnet:?xt=urn:btih:D26E1C6DDAA559D6AD92FB1D31627D8700B81A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

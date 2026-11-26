@@ -19,8 +19,7 @@ CoolUtils Total HTML Converter - это решение профессионал�
 ```bash
 magnet:?xt=urn:btih:9C12D93A1782334E306B99C0D3B45C09782BDA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CoolUtils Total XML Converter - уникальное приложение для
 ```bash
 magnet:?xt=urn:btih:3772CEDB53F4FEFC19EDE02C905A1098E3434E43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

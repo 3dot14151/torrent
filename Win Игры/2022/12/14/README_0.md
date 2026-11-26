@@ -19,8 +19,7 @@ Out Of Time (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:2A0262DD30A93B65CBFFC5F329356D2590AD064D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wavetale (2022) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:AF0369654758B2A4C1E3C9DC0A7C7F4322A6A987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DB184BDC433544F7B5260D15A253BB4EA14208CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wavetale (2022) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B55C637DE12F3FFFD0B9981ABC3EC30FB9AF6253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

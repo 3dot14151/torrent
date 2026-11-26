@@ -19,8 +19,7 @@ Cynthia: Hidden in the Moonshadow - это приключенческий экш
 ```bash
 magnet:?xt=urn:btih:17692E23791EDAEC0EF5534376CDE98315B1DEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Oknytt - это pont&click приключение, где игрок берет 
 ```bash
 magnet:?xt=urn:btih:142B5E7D3BD981B7BBA92022FD14E78F57FCCA55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Zeno Clash (2009) [Ru/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:783975882EBFAE40E1DB5DA45C1AC6F5B9A68FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

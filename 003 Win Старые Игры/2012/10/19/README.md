@@ -19,8 +19,7 @@ Second Sight [Ru/En] (RePack) 2005 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D2D814AA575BF54797FCB377889ECE7D3B213CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

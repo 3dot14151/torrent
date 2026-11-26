@@ -19,8 +19,7 @@ The Saint: Abyss of Despair [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:02AB1419A5B564444052693AC891A893C5DA1AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Day After Sandy [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:588AD0C3A108C183C92D9BEF302B4DEE42526CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Worms Revolution [Ru/En] (RePack/v.1.0.101 + 4 DLC) 2012 | Naitro
 ```bash
 magnet:?xt=urn:btih:9E425F28F54274B10CC39C0C588A0963F7412BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Cave — новая приключенческая игра от автор�
 ```bash
 magnet:?xt=urn:btih:FA0D021629B51EE00BA895A9E83864513B57802F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

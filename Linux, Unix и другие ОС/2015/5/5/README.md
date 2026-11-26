@@ -19,8 +19,7 @@ Tiny Core Linux (сокр. TCL) — минималистичный дистри�
 ```bash
 magnet:?xt=urn:btih:0331E7BDE06DA2B6B376D4C309D5B31FBA0C7B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

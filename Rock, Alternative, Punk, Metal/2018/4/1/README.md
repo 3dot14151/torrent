@@ -22,8 +22,7 @@ Infestdead - JesuSatan (1999) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:DEF8BD9D1F89D53F66FC5C87B883E5FC7D30B31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mortification - Blood World (1994) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:80AAFCCAD89A1489257575D89DAEBF5BA244DEFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mortification - Hammer of God (1999) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:1A5700FBBE17E78DCAA43745D4BBF974EB1DF92A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ God Dethroned - Ravenous (2001) [APE|Lossless|image + .cue] <Blackened Death Met
 ```bash
 magnet:?xt=urn:btih:BEC9867FCF06C578BEBC94D5A36E57A247653F6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Eidolon - Coma Nation (2002) [FLAC|Lossless|image + .cue] <Speed Metal, Power Me
 ```bash
 magnet:?xt=urn:btih:4A473B2AEA8A58EC69B5CDFDC51A1243143559C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Corruptedl - El Mundo Frio (2005) [FLAC|Lossless|image + .cue] <Sludge Doom Meta
 ```bash
 magnet:?xt=urn:btih:4908CE11A37ED0817520F9F27C4977A746A129B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Pitch Shifter - Submit (1992) [APE|Lossless|image + .cue] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:F4B9BA4BE797FF2C086B2E75627146D2FFA9A796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Realms Of Vision - Through All Unknown (2018) [MP3|320 кб/с]<Stoner Metal, Pr
 ```bash
 magnet:?xt=urn:btih:F5B5A355068900838926E7B14692EBE99EB63A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Derkéta - группа из города Питтсбурга, штат Пен�
 ```bash
 magnet:?xt=urn:btih:8DE1CC3E8F7CCFE2B3CDF7D737ACCDC18C96B5BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Primordial - 2 релиза (2018) [MP3|320 Kbps] <Folk Metal, Progressive Metal
 ```bash
 magnet:?xt=urn:btih:E52CC9D9E47521FFAB0AB9078633587D21822BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Airborn - Lizаrd Secrets: Part Оne - Lаnd Оf The Living (2018) Japanese Edit
 ```bash
 magnet:?xt=urn:btih:6D21D8F41BBB75635FDF3E33B6B919E5F04EE8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Kamelot - Phantom Divine (Shadow Empire) (2018) Single [MP3|320 Kbps] <Symphonic
 ```bash
 magnet:?xt=urn:btih:FCFBC3CD8D39CD33A6470B65FBA145AA23588FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Afterlife Symphony - Lympha (2018) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:43BA713D56ED2B0C9E8F05AFBEDE59B7D3A5EABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Myles Kennedy - Year Of The Tiger (2018) [MP3|320 Kbps] <Rock, Acoustic>
 ```bash
 magnet:?xt=urn:btih:B216D70E0C195D960A1E81E21D500B939B73E2AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ Ken Hensley - Rare and Timeless (2018) Compilation [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:EFA32357538849034AA0BCDB7FAFB8C38AF5C83D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

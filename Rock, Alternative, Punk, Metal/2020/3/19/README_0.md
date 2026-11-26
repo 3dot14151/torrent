@@ -22,8 +22,7 @@ Virocracy - Irradiation (2020) [MP3|320 Kbps] <Progressive, Death, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:389E43A261BA48B45AA50FDE7D44610786171886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Julana - Квартал (2020) [MP3|320 Kbps] <Metalcore, Electronic, Rapcore>
 ```bash
 magnet:?xt=urn:btih:C6E2387E6B98374B0209714C42BDBF0A2A954C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B18B311139EF7E7AED11B7C9393B8DFFAEE7E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ HIM - XX - Two Decades Of Love Metal (2012) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:D0A88755A41ED34C9171C68BE156D0D0E3DCE272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Machine Head - Catharsis (2018) [FLAC|Lossless|tracks + .cue] <Groove Metal, Thr
 ```bash
 magnet:?xt=urn:btih:816125AFADDE15D5D69553FCF4A5C3830F191D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ David Coverdale - Whitesnake - The Best Of Ballads: 40th Anniversary Collection 
 ```bash
 magnet:?xt=urn:btih:3B5251B532E84BB7B65580CEF621A56ABF87C53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Adobe Digital Editions — приложение, разработанное дл
 ```bash
 magnet:?xt=urn:btih:96B80D20D62EADDF5586FA58F81CE24BD52E1767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

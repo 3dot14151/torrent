@@ -19,8 +19,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:BBE49B8C6BFC94EE5E80A7FB4C456AE9C938290F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

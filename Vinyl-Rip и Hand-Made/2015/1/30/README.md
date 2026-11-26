@@ -28,8 +28,7 @@ B04. Одиночество(   Читать дальше...   )Жанр: Chanson
 ```bash
 magnet:?xt=urn:btih:9BC70F90CF9F180D4512022E86C67DCCFB7616C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B03. Пиво(   Читать дальше...   )Жанр: ChansonПродолж
 ```bash
 magnet:?xt=urn:btih:D750DE637822B30118C70E8CA38A8C15FD4D03F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Queen - 8 альбомов + 6 синглов + 1 сборник (1976 - 1995)  
 ```bash
 magnet:?xt=urn:btih:706B25D616F11A380814A7DA9D8CC728241F05C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

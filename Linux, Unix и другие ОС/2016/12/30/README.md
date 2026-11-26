@@ -21,8 +21,7 @@ Calculate Linux 17 [i686] 2xCD, 6xDVD
 ```bash
 magnet:?xt=urn:btih:2FA18B8C44BAA024D02D73A17766DB13813A2576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Sabayon 17.01 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ```bash
 magnet:?xt=urn:btih:22597236C99D5B343662309275CF9FB857148C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ OpenMandriva Lx 3.01 PLASMA [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:DD1AE29DD5945DFA05B44E26739C8278F877D597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Calculate Linux 17 [x86-64] 2xCD, 6xDVD
 ```bash
 magnet:?xt=urn:btih:2C0E0B576B301D5ADCD902926D452F866B1BA15F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

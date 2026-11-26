@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:448E5FD9FAF257C0A39FA8C6F957EA255377D9F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Bates Motel - многосерийный телевизионный прик
 ```bash
 magnet:?xt=urn:btih:A297711C626E3D5E10BD8B3377C30699F7C383B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

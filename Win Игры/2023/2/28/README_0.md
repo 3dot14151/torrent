@@ -19,8 +19,7 @@ Mamma mia! Легендарная кулинарная эпопея Pizza Connec
 ```bash
 magnet:?xt=urn:btih:FEDE9648BEE7B9013E7574AF2FE0DE5033D60507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BPM: Bullets Per Minute (2020) [Ru/Multi] (1.59082) License GOG
 ```bash
 magnet:?xt=urn:btih:38CA1F998E6916D9971E2D1A2F935D585CC219CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Punch Club – это менеджер уличного бойца в жанре
 ```bash
 magnet:?xt=urn:btih:0D6457675D65A0008879B77E40A78439DC2B14D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RC Cars от Creat Studio - это гонки на радиоуправляем�
 ```bash
 magnet:?xt=urn:btih:AE54E91E272CF2C4F4B102423D012089F8B18B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Animal Shelter (2022) [Ru/Multi] (1.2.11-33.192/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:27026C198EE3DE25C063D4219CDBD6DBC37B62D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

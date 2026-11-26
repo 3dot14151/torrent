@@ -19,8 +19,7 @@ Sanctum 2 - продолжение одной интересной гибрид�
 ```bash
 magnet:?xt=urn:btih:6B61FD53B071F48FB33B57D9BA77EE48EB340AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Industry Empire (2014) [Multi] (1.0.4.3) License SKiDROW
 ```bash
 magnet:?xt=urn:btih:B381742F8E8AC43C56488DA56F946DAEEACEB0B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

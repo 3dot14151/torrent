@@ -21,8 +21,7 @@ The Cars - Heartbeat City (1984) Remastered, 2018, Expanded Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:77AC7EE5924B581C41B4900F7FD67C6970B52B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Memory Slides - это классически оформленный шабло�
 ```bash
 magnet:?xt=urn:btih:1F4BEB357B6852C847963C1AA085B11165D3404C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Xubuntu - самый легкий дистрибутив. (   Читать да
 ```bash
 magnet:?xt=urn:btih:6A925AC07D39FDD8C317178EA9EB879DD26D416D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9330D6ECC1338B2AEFCE7DB69B41980DCC5D43C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BB24D61025AE709943DBA02FB46A8261909B36F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CDC5D1FAF97E7CB4F0E295DBA3CF9D433D97703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/dlc) Repack =nemos= [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:241A6B82480394D561B49E7112B0E0B2AB709F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Professional Sport Event Promo - это потрясающий шаблон Afte
 ```bash
 magnet:?xt=urn:btih:CC99D1484FD83551A6C3DFFCEE7CBB56DFA2596B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Reg Organizer® - многофункциональная программа дл
 ```bash
 magnet:?xt=urn:btih:D6F0945D5A7AA52A1BA79323AF8EE86B0D9687BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Wedding Ink Slideshow - великолепный способ показать �
 ```bash
 magnet:?xt=urn:btih:8ED0ED763794B04DA7290D35F0F720648396B9CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0.20180416.1) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:84ED9A3F7168C3C328F2F1A6F4C99463ECCB014F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D435AAB2392D917B4EE8E788B77C449351D3A165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ The Station - это научно-фантастическое приключе�
 ```bash
 magnet:?xt=urn:btih:6EC07586BFF3EAB85A5F670D77BDC6076E0075B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ Stomp Cards Parallax Opener – проект для создания динам�
 ```bash
 magnet:?xt=urn:btih:F8661E8AF341202BEDAB4003D904B3135C2CD3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ Lubuntu*Pack 14.04 (апрель 2018) [i386 + amd64] (2xDVD)
 ```bash
 magnet:?xt=urn:btih:70A9EE20CD29E91F590CCDF375AC641BD862C02C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6C9AF0A8C9DBC2B607604696702003674FAE000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BE2A52F3492E4B34B04051A9849B1037CC96CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ Sting & Shaggy - 44/876 (2018) [MP3|320 Kbps] <Reggae, Pop>
 ```bash
 magnet:?xt=urn:btih:4BFCCFAE87FEFC59F3F740A7CC581B81BC3D74AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AFA69BCEC268E74F030E30D746E0E5FE6FB21BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:42BE755626223093D6AF3CE49090FD556994A68E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +586,7 @@ All Walls Must Fall – это изометрическая RPG с элемен�
 ```bash
 magnet:?xt=urn:btih:F655C7EE2C5CC3A95A0005881704ACC4B4A8B4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +611,7 @@ The King of Fighters превратилась в популярную (особ�
 ```bash
 magnet:?xt=urn:btih:5885AAA4F38F9478C36BE6A9E9E31356C4B9BF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1467CE4D66AEE44BCBAEE8F67B3F5ABFB235FB95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:158F67AC139A9FA34020FF33B94D00653A26EF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

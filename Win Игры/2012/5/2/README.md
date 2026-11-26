@@ -21,8 +21,7 @@ The Book Of Unwritten Tales / Книга Ненаписанных Историй
 ```bash
 magnet:?xt=urn:btih:EC2435384375834441882FAB70EA0A4741C8314F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ The Book Of Unwritten Tales / Книга Ненаписанных Историй
 ```bash
 magnet:?xt=urn:btih:4BC0C2822F3D759907C0415B98E630D252346EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Sale Frenzy / Безумный шопинг (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:4823DFD8B9D4E8C54E111AFE23CB6594A169AD12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

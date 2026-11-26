@@ -19,8 +19,7 @@ Witches' Legacy 7: Awakening Darkness (2015) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:84093E3D4AC9BF8F2E08B2C4050854FE3627927D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Tales 2: The Twilight World / Загадочные истории 2. С�
 ```bash
 magnet:?xt=urn:btih:5F3D5718637BBAE2D43D5AAD856E7D91DB1E485B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

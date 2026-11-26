@@ -19,8 +19,7 @@ Hard Truck 2: King of the Road / Дальнобойщики 2 (2000) [Ru/En] (8.
 ```bash
 magnet:?xt=urn:btih:A01BC236B814D6699DB0BA20ED20562794AE663B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

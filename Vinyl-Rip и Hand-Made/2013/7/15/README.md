@@ -26,8 +26,7 @@ B3. The Magician`s Birthday [10:30]Жанр: Hard Rock/ProgressiveПродолж
 ```bash
 magnet:?xt=urn:btih:CB7D26887AD3689A5B75806B1D1D3B8D5C7443A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

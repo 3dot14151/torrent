@@ -19,8 +19,7 @@ The Last Caretaker - игра в жанре выживания и крафтин
 ```bash
 magnet:?xt=urn:btih:3492DD07976343798D07B3112FB455E69F41C390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mina the Hollower рассказывает историю Мины - мыши‑
 ```bash
 magnet:?xt=urn:btih:C93D96FB5D7A00D484C0FE98A2637F229E08B91F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gothic 1 Remake (2026) [Ru/Multi] (build 168089) Repack SE7EN
 ```bash
 magnet:?xt=urn:btih:2BC0CED7EDC88615F0622CB12F51E5D87553D484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

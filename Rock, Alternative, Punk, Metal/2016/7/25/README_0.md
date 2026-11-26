@@ -20,8 +20,7 @@ CD2 - InstrumentalЖанр: Progressive Metal, Djent, Math MetalПродолжи
 ```bash
 magnet:?xt=urn:btih:5B88A092C143F177F09174997594BB4B20755AF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Gotthard - Domino Effect (LTD Tour Edition) (2007) 2CD Limited Edition [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:F14C3144D5BC88C8B885C187CFDFCAB729142BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Herman's Hermits - The Best Of Herman's Hermits (2015) [MP3|320 Kbps] <Rock, Bea
 ```bash
 magnet:?xt=urn:btih:5213F1853547ADB2E08A2C938854EBBCD44E0F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Jamestown: Legend of the Lost Colony {1.0.1r20 + DLC} (Р) [En] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:1B1EE5C1EB4DEEBA57CDEA9AE9FA506915AACC7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Vampire Saga 3: Break Out (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:5E035571F0F86A4F64F0D57FB2B1DBB135CC2C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

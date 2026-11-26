@@ -19,8 +19,7 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:74020997038ECF901B655A5DE191B31CE81636D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DirPrintOK 6.96 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F94BC31F764F1E499261B0DAAE795BB782DADAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Winstep Nexus — красивая бесплатная панель с крас
 ```bash
 magnet:?xt=urn:btih:190E8F927AB252EC7702E30B41602354B1CEC3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

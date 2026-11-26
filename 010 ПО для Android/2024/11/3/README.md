@@ -19,8 +19,7 @@ Photoleap: Photo Editor / AI Art v1.63.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1BEBF20952459273F298011956079C5E04778BA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cleaner for WhatsApp — это мощный инструмент для очи�
 ```bash
 magnet:?xt=urn:btih:5D083A593FE2D47428D81C93F29249BFF8963EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FotoTweak - AI Image Generator v1.0.43 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E645A60AC31CA79F3A6EDD8CEB209D81057D695C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:E1769851B18E83BF36B2AA2CCC6CA09CAE4BF9B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FotoTweak - AI Image Generator v1.0.43 Mod by ElaMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:547AB65A633156FD8E690ED6FF4415AD85C8F28E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Polarr v6.10.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:80AFD107A8735E14786453DE475740D794B98469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ PicWish — фоторедактор с искусственным (   Чита
 ```bash
 magnet:?xt=urn:btih:3EB511F48ECDEC9E55B35964E6DC02AA47B11277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

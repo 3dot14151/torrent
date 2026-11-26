@@ -22,8 +22,7 @@ Tramtracks - Then? (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:0195686DA26B564055E1B5B0CD59335237244318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ensepulchre - Desolation (2020) [MP3|320 Kbps] <Blackened Death Metal>
 ```bash
 magnet:?xt=urn:btih:93FE92C8EE79C046F82A6852CBC3487467093C59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Heat Affected Zone - Limbo Bar (2020) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A07021EEF998AD2C450D04E8DD50782A9242DB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tramtracks - Then? (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
 ```bash
 magnet:?xt=urn:btih:FA4957878C5146C826551388300A4DAD2AB1995D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ihsahn - Pharos (2020) EP [FLAC|Lossless|image + .cue] <Extreme Progressive Meta
 ```bash
 magnet:?xt=urn:btih:B474E0067214B7577D0CE870DB8A8C0ADED5BE8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Militarie Gun - My Life Is Over (2020) EP [MP3|320 Kbps] <Post-Hardcore, Garage¬
 ```bash
 magnet:?xt=urn:btih:C5A1445307BDF41D63D9A1A1BDD9F9C18EBEC918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Raven - Metal City (2020) [MP3|320 Kbps] <Speed, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FCAF1CD61DD2232E13447A373729CEA4F1784103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Mythos - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock, 
 ```bash
 magnet:?xt=urn:btih:D61EFEB394E6EABDCE5AC746BF3C7506B52C952E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Gazpacho - Fireworker (2020) [MP3|320 Kbps] <Progressive Rock, Atmospheric Rock>
 ```bash
 magnet:?xt=urn:btih:EC318F4764EFACC3CEA246505C39A2E16B5D6014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Finntroll - Vredesv√§vd (2020) [MP3|320 Kbps] <Blackened Folk Metal>
 ```bash
 magnet:?xt=urn:btih:340CC581BC2AB7FE5E74334B59175F0E1913C02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:311E49E7143BC9454340C797A1F29EE707E53FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:EB13FE071D4E05BB4FE7BBDA61E75900C24CFD1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

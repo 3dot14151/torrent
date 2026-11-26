@@ -23,8 +23,7 @@ King Arthur 2: Dead Legions (Р) [En] 2012 l FiGHTCLUB
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Baumaschinen-Simulator 2012 / Симулятор строительства до
 ```bash
 magnet:?xt=urn:btih:203CB14216E1AC95E6CF4937E36FC6A9AC3D6DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Youda Mystery: The Stanwick Legacy / Youda Тайна. Наследие Стэн
 ```bash
 magnet:?xt=urn:btih:C5D92A32A802F619FA1976BFCF838479EA0FEAAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Big City Adventure: London Story (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:44DAC1F119834EED76DCEF9C6FBD1416778AFF10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

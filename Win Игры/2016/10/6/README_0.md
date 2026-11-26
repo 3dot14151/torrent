@@ -19,8 +19,7 @@ Duke Grabowski, Mighty Swashbuckler - это рисованный приключ
 ```bash
 magnet:?xt=urn:btih:C45C590BA536044808D61D66828BDAA6AB433039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

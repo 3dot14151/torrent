@@ -22,8 +22,7 @@ A4. Miss Adventure (2:57)(   Читать дальше...   )Жанр: Hard Rock
 ```bash
 magnet:?xt=urn:btih:F67C12FC1902186F85BEEDA0F14E0E0D6DC3CD8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

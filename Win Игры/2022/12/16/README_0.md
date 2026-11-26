@@ -19,8 +19,7 @@ Christmas Fables: Holiday Guardians (2022) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:28B324D36FED180AFEC899C90DDADD6A22C6F91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Timelie (2020) [Ru/Multi] (1.2.4/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4F5ACF8DBE88C6CEDEC397B3EC2610C9CCB9AE0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

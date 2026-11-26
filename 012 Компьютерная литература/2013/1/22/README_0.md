@@ -19,8 +19,7 @@ Gentoo Team | Gentoo Linux x86 Handbook [2012] [DOC]
 ```bash
 magnet:?xt=urn:btih:137A06541A17E94F321B5EAC3F42E74829977A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Orin Thomas | Windows Server 2008 R2 Secrets / Секреты Windows Server 200
 ```bash
 magnet:?xt=urn:btih:FE6AE036AACA7B251A846DCDD4B33E35DD972989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

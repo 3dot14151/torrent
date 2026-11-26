@@ -22,8 +22,7 @@ A4	Gres Imperatriz Leopoldinense - Abc Do Carnaval À Maneira Da Literatura De C
 ```bash
 magnet:?xt=urn:btih:59AE3967469FF42A285440EB9241E02902912507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4	All Right	4:01(   Читать дальше...   )Жанр: Synth-pop, Disco�
 ```bash
 magnet:?xt=urn:btih:4E6B9B50A0982929C243746FBAD88DA3B5FA5C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB50483059032583F15526D0D569B0FA73B15DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9526CDDB5AE1ED421D577C2F4A9E89F099C4E775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ A4	Локомотив ГТ -	На Релси(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:478255D319B255DD31D6D6CFAE804A56040F0228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ A4	Е. Семенова -	На Минутку(   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:6CE0E7A934960643F398F9CD49EE3A6DCDD36852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

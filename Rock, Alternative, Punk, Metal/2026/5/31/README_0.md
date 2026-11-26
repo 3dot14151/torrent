@@ -22,8 +22,7 @@ Eternal Evil - Forever Feared (2026) [FLAC|Lossless|WEB-DL|tracks] <Black Metal,
 ```bash
 magnet:?xt=urn:btih:7A85B87265AB19092C3E21EAABCDA7191E871FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:20D602D7CF03E93C6DC7C3421FE80D60EAD29D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

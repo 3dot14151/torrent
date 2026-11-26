@@ -22,8 +22,7 @@ A4. It Makes Me Wonder (4:36)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:62D7B74C9687207F5BCF687A193EC843CBB9B74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C4DB1A6BF0FD204681708E13201E930296644367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ FUEL [Ru/En] (RePack) 2009 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:30B83DD4D9FF6A358F1A390382061D99E947C5F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Far Cry 3 [Ru] (RePack/1.04) 2012 | Audioslave
 ```bash
 magnet:?xt=urn:btih:E79B722A855C3CBE0B995D525A4B088CF9428204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Singularity [Ru/En] (RePack/1.1) 2010 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:FBC795E38F4EAE5767F975901AA9308367C72289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DB62B70447CA62DCDEE14FB18D292650A115334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Oblivion Association - огромный фанатский проект по с�
 ```bash
 magnet:?xt=urn:btih:B451DD6790D773DD2F59A7B683BB44DE1C74F0A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

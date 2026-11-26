@@ -25,8 +25,7 @@ Amalthea - In The Woods (2014) [MP3|320 кб/с]<Screamo, Post Rock, Post Metal,
 ```bash
 magnet:?xt=urn:btih:ACDAD77147B89A4D3214D709D063F0492A0B0C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ What The Blood Revealed - Harbour Of Devils (2012) [MP3|320 кб/с]<Post Rock, 
 ```bash
 magnet:?xt=urn:btih:3712A8F0A548C9AB0C4EBCC46675FCB7A55E4D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C181443C4857F64E68649B848692D4D0C29C7EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

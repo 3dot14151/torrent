@@ -19,8 +19,7 @@ Gods Will Be Watching — это минималистический трилле
 ```bash
 magnet:?xt=urn:btih:FF8D930592C73CACED3743820FDD54728934FBD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

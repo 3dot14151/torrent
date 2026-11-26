@@ -19,8 +19,7 @@ Tarja Turunen - Into The Sun (2012) Single  (Radio Edit) [MP3|320 кб/с]<Symph
 ```bash
 magnet:?xt=urn:btih:83195C6539FBD01DC3418969B33860CD67E0A3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ION Shift это хардкорный экшн-платформер с мгно�
 ```bash
 magnet:?xt=urn:btih:F5539FF722C741D5CEC089514930EC2970CF00FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.2.9988/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8E2EB4F3592767065158BC86C355B1E6A6152BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ReSetna (2025) [Ru/Multi] (1.7.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FE3F2BDE445AF903FDDC9D7177C5AB2E9D2BF30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Revenge of the Savage Planet - это оптимистичный, сатирич
 ```bash
 magnet:?xt=urn:btih:76861127BB8793843D0610F56FF70CED85813968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ PC Building Simulator 2 - продолжение затягивающего и �
 ```bash
 magnet:?xt=urn:btih:A05A6F4896865F6B051016DFEF986315536A2A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:17A9624B07174614DD7A49BAF8582796DE23A35B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Shrink Rooms (2025) [Ru/Multi] (1.2.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7B6C8689B890EC91B16E1AF91ED79604931F9090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.1.8/dlc) Repack Let'sРlay [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:347951E697B323C18E0D13FC1CC9F08578241F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Adventure of Samsara - это двумерная приключенческая 
 ```bash
 magnet:?xt=urn:btih:7CD98B93C5CAA066EA9A695C64326CC078AAE039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Labyrinthine - кооперативная хоррор игра, которая 
 ```bash
 magnet:?xt=urn:btih:B7EA77E55286793509C6D884A15234B84B5B12C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Planet of Lana – это грандиозный квест-головоломк
 ```bash
 magnet:?xt=urn:btih:CF1F97E953A71D96577CC9E87DC03DE5A32D1CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Ravenous Devils (2022) [Ru/Multi] (Build 9180250) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C5A1785BB7C4E204516626F2986786AB7BE0FCAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ FACEMINER (2025) [Ru/Multi] (1.41) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:960AE1E0342EDE91623B4B3A84C63779F0D2AF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.3.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B2597A83CD9EA441BCC7E74C6470C9BFAA35E613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Myth Finders (2025) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:1A596333322169B2D4746F3F7994CE43076AAC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

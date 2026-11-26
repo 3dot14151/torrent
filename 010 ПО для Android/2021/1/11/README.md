@@ -22,8 +22,7 @@ AI Перевести поддерживает более 100 языков.
 ```bash
 magnet:?xt=urn:btih:C58BF34FCCE91C1151ECA08AC19A2226EFC29C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Old Movies v1.13.09 Premium [En] - Oldies but Goldies
 ```bash
 magnet:?xt=urn:btih:F8759D9336B2939299AF5812181336C587280DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ ICQ — мессенджер для тех, кто всегда онлайн. З
 ```bash
 magnet:?xt=urn:btih:D1F8448D5F62D50AEA5E03BA7D60920F3A9EFC1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

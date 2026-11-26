@@ -19,8 +19,7 @@ Blackwell Epiphany - заключительная часть серии поин
 ```bash
 magnet:?xt=urn:btih:1B943C68FB2D28B548A715880BBDB13FBE1BAD3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resonance (2012) [En] (3.1c) License GOG
 ```bash
 magnet:?xt=urn:btih:9733F735DF814ADB90ACC12E4189F7EB1BC6C792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Black Convergence - третья часть известной приключе�
 ```bash
 magnet:?xt=urn:btih:420714B27D4E23DE768179EB8F6DEE13DBB1036B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Misanthrope - Embrasement (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 ```bash
 magnet:?xt=urn:btih:B2A7A40CB2CD3095A9181C57224EA51E053E1B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nivathe - Enveloped in a Diseased Abyss (2008) [FLAC|Lossless|image + .cue] <Doo
 ```bash
 magnet:?xt=urn:btih:E4C0CB9A24617CFB49A49AF7BA9CAB2D789AF47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Imposer - Divine Intolerance (2010) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:E379D383F5DDCE656823B67833A731A36CFFB86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Face Down - 2 Albums (1995-1998) [FLAC|Lossless|image + .cue] <Post-Thrash / Dea
 ```bash
 magnet:?xt=urn:btih:18CC992698C1314D9CBCB2FF40CB816E287A3B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Phoenix Reborn - Point Of No Return (2026) [FLAC|Lossless|WEB-DL|tracks] <Power 
 ```bash
 magnet:?xt=urn:btih:CBDEDB6A552E75FBC7C64A5F40C68B43C5701463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Dmitry Spirin - En Vivo En Buenos Aires (2026) Live [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:69DF8CE33FE0C51EE11DB87D200651ACE3FE4182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

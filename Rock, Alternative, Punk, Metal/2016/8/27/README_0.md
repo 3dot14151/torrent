@@ -22,8 +22,7 @@ King Company - One for the Road (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:615C403855DD8A452CBB657A0BA39F033FFB710E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Duffy - Just In Case You're Interested... (1972) Reissue, 2010, Flawed Gems [MP3
 ```bash
 magnet:?xt=urn:btih:7D147F5486ADD5A891F467C7EE262EC2730E3FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Vasco Rossi - Stupido Hotel (2001) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:A5B3BE78273BEE19EB5D6CEF68200E820088425D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Blue Stahli - Blue Stahli Instrumentals (2012) [MP3|320 Kbps] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:A217003E82DC17A0A65ED44AC81B5D2599099B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Cilver - Not The End Of The World (2016) [MP3|320 Kbps] <Hard rock, Alternative,
 ```bash
 magnet:?xt=urn:btih:4CD0C00FE034135BE1B33F55A54F91892F06927A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bad Omens - Bad Omens (2016) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metal
 ```bash
 magnet:?xt=urn:btih:9C9AFAF3A4FAC21142E12FE413D838E3E4AC8844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Glass Animals - How to be a Human Being (2016) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:966E6549D52F5E8FD2FD6A95239A37F895319AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Sabaton - The Last Stand (2016) Japanese Limited Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:B97F3CD1312144316364008D68B4D1D0E523327F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

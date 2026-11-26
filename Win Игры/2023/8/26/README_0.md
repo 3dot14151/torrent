@@ -19,8 +19,7 @@ Endzone - A World Apart (2020) [Ru/En] (1.2.8630.30586/dlc) License GOG [Save th
 ```bash
 magnet:?xt=urn:btih:4E38AB7F1A39D9D4C33DA9A4308CC0E5273A38F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Lands 8: Sand Captivity / Затерянные земли 8: Песчаны
 ```bash
 magnet:?xt=urn:btih:E558F0DEC77AE487B3C8C0067F062FDF91F37A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WildTrax Racing заставляет виртуальных гонщиков в�
 ```bash
 magnet:?xt=urn:btih:2ADD6740F988E691D408B47616571361D926B000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

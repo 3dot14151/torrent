@@ -19,8 +19,7 @@ Ancient Jewels. The Mysteries of Persia (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:92098C02EF116548F65F54B147C79E411A4F71BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wedding Salon / Свадебный салон (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:E372B21D2D8C42CF0759862B48AF4AAA701F9965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

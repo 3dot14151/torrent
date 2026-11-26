@@ -20,8 +20,7 @@ Lode Runner 2 [Ru/En] (P) 1998
 ```bash
 magnet:?xt=urn:btih:C92A3A89BB286BCF7C2D711A27D5189B7206A97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ X-Men: Children of the Atom первая игра Capcom во вселенной
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Paranormal Files 10: Counterpart (2023) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:6A0F625667DC49B085B9B87F2957B84661572EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Savant - Ascent REMIX предлагает отправиться в захва�
 ```bash
 magnet:?xt=urn:btih:AF1161BCE9B11D52417A0E73F0C6600E6A9AA96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hexarchy - стратегическая игра в быстром темпе. �
 ```bash
 magnet:?xt=urn:btih:ABDA78301A9AAFF04FB218D6FD3F68F391AD2870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Space Wreck - пошаговое приключение, события кото
 ```bash
 magnet:?xt=urn:btih:ABE6974DB7FBDAEBA57A2E7EB8B64AB6373F4F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wargroove 2 (2023) [Ru/Multi] (1.2.3) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F8E720FC29579EAE4E56F6B0EC42299B39969DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crowns and Pawns: Kingdom of Deceit (2022) [Ru/Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B2A461ED71A179AA2E228575C0C641A585A5F7B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

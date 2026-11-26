@@ -19,8 +19,7 @@ FPGA (Field-Programmable Gate Array, программируемые пользо
 ```bash
 magnet:?xt=urn:btih:358884DAC434A7D77144D5399A2B11D75DEAC87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Derketa - In Death We Meet (2012) [WavPack|Lossless]<Death / Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C9A44C6FFF38D504984ED828A91A14AEFDBB61FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ NorthBase - 5000 (2014) EP [MP3|320 кб/с]<Drum'n'Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:3DF55129AC1EA6842CBBF00D05685F0ED9A3BEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Bjorn J-son Lindh & Torbjorn Carlsson - 2 альбома (2001-2007) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:3AB62FE540E96356F23A715F2735CB37C2574CD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Gene Ammons - Late Hour Special (2000) [FLAC|Lossless]<Jazz, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:1DEAA42F371C075835E56E4E0F5C91375F01365E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40292D8874F1888FC797E98BE8752968953F2CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Cern & Overlook - Nevada Ghost / Decoy (2014) [MP3|320 кб/с]<Drumstep, Drum'n
 ```bash
 magnet:?xt=urn:btih:4E97798BF93E96931ACC5EB346769DD3328E37DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFD90657993792D0790020C8D7E170D358E33D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Taylor Henderson - Burnt Letters (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:D627E6E27D0C0233B940F614806A0081FE8061EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ Midnight Tyrannosaurus - Remix Bitches (2014) EP [MP3|320 кб/с]<Dubstep, Ridd
 ```bash
 magnet:?xt=urn:btih:4A20BACFA444EA9086C30C3838B534E068AD5044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ Bcee - Hit You Where You Live / Back To The Street (2014) [MP3|320 кб/с]<Drum
 ```bash
 magnet:?xt=urn:btih:8CF9E08E58A8732D91766E2A256EDD33FC5B20EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +319,7 @@ Guy Forsyth Band - The Pleaser (2014) [MP3|320 кб/с]<Texas Blues, Rockin' Blu
 ```bash
 magnet:?xt=urn:btih:4A4955BF70FAA71E305A7AE761B356331D21D60A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ VA - Garuda presents - Ben Gold Volume 2 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:AEBF881E0D4269F5EA022C1B43A164534A1445C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ Nine Below Zero - A To Zed: The Very Best Of (2013) [MP3|320 кб/с]<Rock, Blue
 ```bash
 magnet:?xt=urn:btih:171016E72BE0453E91671C7D6D7394ACE450529F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ Demonic Resurrection - The Demon King (2014) [FLAC|Lossless]<Progressive Death/B
 ```bash
 magnet:?xt=urn:btih:A0A4166CAE0CFE743C2FD2859940317161059D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ Danna Aliano - Sunnyland (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:77919F234458958E0F68BD0BFCD550A1B8F6C8A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ Auto Bild – авторитетный журнал об автомобилях.
 ```bash
 magnet:?xt=urn:btih:2A505709EB405F863E7225A8734542B9A66ACCA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB8D89F1BE7E9A47084A421ABB128FBEC2D174F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ Danny Brown - Smokin & Drinkin (2014) EP [MP3|320 кб/с]<Breaks, Trap, BassHou
 ```bash
 magnet:?xt=urn:btih:ADDD22491FEC94F378CD60234FD03546D4FB307F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED31D2515D2D68DD03D12453E8A8C0C85067CCDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:208714DD4B5D57807201FC90A614C7AE46BED0EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CACD35702967E5A2ADBE36CC242DC8A1FCD8F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +642,7 @@ EnkElination  - Tears Of Lust (2014) [MP3|320 кб/с]<Symphonic Metal, Gothic M
 ```bash
 magnet:?xt=urn:btih:C2454A78A6FAF2567DDB16E79D2DCCFF7984731F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ Scarlett O'Hanna - Romance Floats (2014) [MP3|320 кб/с]<Pop, Indie>
 ```bash
 magnet:?xt=urn:btih:17BF0129B8DF38961D9AC957430518CC26C78FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB481E9D88DA437D0140E29C55A866DFE0B5F23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ FileZilla - программа, предназначенная для загру
 ```bash
 magnet:?xt=urn:btih:3E894892777F3D0DA3B80CB072D8FC82CD24D4E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Tor – это кросс-платформенное ПО с открытым и
 ```bash
 magnet:?xt=urn:btih:DA7F635B95318B07B02A488C2DEF6381CB03A5C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

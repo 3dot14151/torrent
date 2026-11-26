@@ -19,8 +19,7 @@ Puzzingo Kids Puzzles Pro / Пазл «Знайка» для детей Pro v5.3
 ```bash
 magnet:?xt=urn:btih:5C6CC4BDE08F10F3987F75A4706695F60CDEA3FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:08FA1F4BF4E983A79268E878038BE68863FA5233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Quad - El Bizonte Escapado (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Ja
 ```bash
 magnet:?xt=urn:btih:606538E2A008A9ADCEFFFB2E2F7F43BD23B43E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:2F59B978937ACB792C4E42D991208CBD196D99C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Nelsen Adelard - South By Southwest (2008) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:9E9FF72B77480D3F2BBA2988DF02272A0978B447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ VA - Chillout Lounge A Fine Selection Of Chillout & Ambient Moods (2017) [MP3|32
 ```bash
 magnet:?xt=urn:btih:85BD30487AFE5CF2C293F24E1D448D5C250B33DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Eris Pluvia - Different Earths (2016) [FLAC|Lossless|image + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:B8206A52001C85FE2F82BBAB0F051F3DABCB57AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Quantic & Alice Russell with The Combo Bаrbaro - Look Around The Corner (2012) 
 ```bash
 magnet:?xt=urn:btih:4B6B575727ABA0C58DB162CA5E4C8D3BCA8D54CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Hear N' Ade - Now Hear This (2016) [FLAC|Lossless|tracks + .cue] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:BA6BC5E0CB46C1A3B55D66F5BAFF82B6744FFC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - Ibiza Chillout Movement (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:CA2DBC2633BB2100A710D99D2CD60A19C000C651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - The Garden Coffee Shop. Lounge Selection (2017) [MP3|320 Kbps] <Downtempo, 
 ```bash
 magnet:?xt=urn:btih:52C9F5EFF5162E8CEE7A2787D26C1A8683941FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ File Cabinet Pro  - менеджер документов из строки ме
 ```bash
 magnet:?xt=urn:btih:C8DD50237F268E98BC99055886CA074AAA9836C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ VA - Chill Out Love Collection Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:A933C40DD66DBBCB27F13553A363B27BAA96F5D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:0D2F4F665F89E966A00DCAD9AAF12FC00ED57C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ VA - Chill Out Love Collection Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:24A819DD7845F96CB3DBC85EFF49A7F4522024EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ ProtoU - Lost Here (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient, 
 ```bash
 magnet:?xt=urn:btih:0F61C82AE2F9EE3A57263345486651D22E8BCA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ VA - Снегопад новинок от Хит fm. Выпуск № 8 (2017) [
 ```bash
 magnet:?xt=urn:btih:EA18DB17EF999E9024E7644E90263098FFCCAAA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Byther Smith - Hold That Train (1981) [FLAC|Lossless|tracks + .cue] <Blues, Elec
 ```bash
 magnet:?xt=urn:btih:38C7047A86BB5CE955128D9CC75740EB4086999A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ Permute: Универсальный конвертер видео, аудио и
 ```bash
 magnet:?xt=urn:btih:F6EE7AF66834B35565D198AEFC58E2AD54472259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ VA - Wine Bar Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:FED92051633C5B9CAF0DE2C82F3991E727729BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ Zoebeast - 2 albums, 3 demos, 2 EP (2003-2015) [MP3|192-320 Kbps] <Death Metal, 
 ```bash
 magnet:?xt=urn:btih:F08721E771281C01501E6C8521E9C2813BF7D687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ Dronny Darko & ProtoU - Earth Songs (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:B5E7D67CC4C9ACEDC65AA9145A7B0203B8F424DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ Daisy Jopling Band - Awakening (2017) [FLAC|Lossless|tracks] <Jazz, New Age>
 ```bash
 magnet:?xt=urn:btih:21F8A0ACD0EE513EFAEB5BD31180710E78E3F203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3D1D15A57C032EB87E77B6E7962EFB76A56250A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ VA - Музыкальное потрясение зимы. Сборник №5 (
 ```bash
 magnet:?xt=urn:btih:0EA7336A20673ADB8C47D892A76269E6AAC8E503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ HorrorPops - Hell Yeah! (2004) [APE|Lossless|image + .cue] <Rockabilly, Punk Roc
 ```bash
 magnet:?xt=urn:btih:DA02CFF0F41A576B3F84158D531517C4306B93B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ Iron Giant - Creator of Scars (2008) [MP3|320 Kbps] <Stoner Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1272BA1A2A7B80497D4E550D7D5E90AF870D81FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

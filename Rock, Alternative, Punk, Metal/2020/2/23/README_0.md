@@ -22,8 +22,7 @@ We Sell The Dead - Black Sleep (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3CE08FE33185E1F7FA83DB808A42743A9CFC4AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ HELENGARD - Firebird (2017) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Met
 ```bash
 magnet:?xt=urn:btih:6B6045866E92AB2F8E34D565272401B2B1535D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ HELENGARD - Helengard (2010) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Me
 ```bash
 magnet:?xt=urn:btih:E9D2DBE52FB99F36670AAFDA130946A7BF1AC578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Neaera - Neaera (2020) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:96782FD26CD3491C6D8E9FC6852778C21718EA6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E20D02520051F44CEC8D9F7CD86941A6036CC2F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Beneath the Massacre - Fearmonger (2020) [MP3|320 Kbps] <Technical Death Metal, 
 ```bash
 magnet:?xt=urn:btih:829591110B2F5FA336729F2FCDAD22DE34731679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ H.e.a.t - H.e.a.t II (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0EA8E09A840E0B0EB4F7F187376DAB1BF4D8F5EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ a noend of mine - The Serenity's Eve (2016) [FLAC|Lossless|Web-DL|tracks] <Depre
 ```bash
 magnet:?xt=urn:btih:146CD1A9F9F943728C0D7F0C7E7D6A2055C16FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ The Amity Affliction - Everyone Loves You… Once You Leave Them (2020) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:6A1FFA0CC9449E41BE731411E0D91745A0C2210F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Tame Impala - The Slow Rush (2020) [FLAC|Lossless|tracks + .cue] <Psychedelic Ro
 ```bash
 magnet:?xt=urn:btih:41C4C2B1DF03BF9AD23767D23B9140A7DF09076C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Neaera - 8 Releases (2005-2020) [MP3|320 кб/с] <Metalcore, Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:50BE4ACFD478271A4AFD3142A50E82CA842F6E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

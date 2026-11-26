@@ -20,8 +20,7 @@ Month - это коллекция красивых и полезных видж�
 ```bash
 magnet:?xt=urn:btih:24DBE11B6423051888292890C48CE06F26396434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:711CE46D82ED90BCB0855E39FEC05902C5629D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Legs Workout and Exercises v1.3.31 [Ru/Multi] - Комплекс упражне�
 ```bash
 magnet:?xt=urn:btih:91FE33A51D5D7E4FD2458124067670F3212D0935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Butt Workout v1.3.31 [Ru/Multi] - Тренировка Ягодиц
 ```bash
 magnet:?xt=urn:btih:EC5D4C1000F5992D98D6D29B158C12DA12F730BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Chest Workout v2.4.31 [Ru/Multi] - Тренировка грудных мышц
 ```bash
 magnet:?xt=urn:btih:7DE217C8D8F21C36A5A5752981C354D608A62FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2AC97FDEC3C74789CF330F6267FDD490A54E3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Faces - 4 Studio Albums, 2 Box Set, 6 Issues, 13CD (1970-2015) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:0D6854021413E9EB68BBF703F9C418D57B4B6481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

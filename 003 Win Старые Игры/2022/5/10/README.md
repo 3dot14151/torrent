@@ -19,8 +19,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:F702B2B71AFFACC42B364041F93D7F393C1E2ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

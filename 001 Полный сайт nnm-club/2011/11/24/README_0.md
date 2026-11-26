@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39A2166E23C68888300E1BF1C9C39E8643FB6D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Sodom - Live at Hellfest Festival [Bootleg] (2011) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:9E0532FDBEF31AAFB04E1E1609D10B0E43435E89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Toh Kay - Streetlight Lullabies (2011) [MP3|160 kbps]<Folk / Acoustic>
 ```bash
 magnet:?xt=urn:btih:69C0FD048312F509A75052ECF16A4496CD704FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ SайперS - Шаг во вселенную (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:4073F998407B5301C4522F2115ED858F043FD6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +258,7 @@ VA - Русский топ 4 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:1BC5FF4428C895FF95369A8C59E2FD3956BAAA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF461CC75AEB1564E953B1F9178CC87EB82AA2C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ VA - Заключительный хит-парад Осень (2011) [MP3|256 k
 ```bash
 magnet:?xt=urn:btih:C4D9803B770D899570F367C5F552646C584B172C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ Vivaldi, Albinoni, Marcello, Scarlatti - Four Italien Oboe Concertos (1950) [FLA
 ```bash
 magnet:?xt=urn:btih:AD68AB0DDACA317919FC711F99DC376C98465B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ VA - Хиты От MTV. Источник Музыкального Наслажд
 ```bash
 magnet:?xt=urn:btih:2E77B5EF5F73CEE276D434A666676069198944C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD09C14A5AA885FE7969443474D4DB28D264CA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ International Observer - Seen (2010) [MP3|256 kbps]<Ambient, Dub>
 ```bash
 magnet:?xt=urn:btih:AED0361ECCD4F08C7EF5B100012853B002702C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F75F6405C2BAE63850606294FBEC58C564042C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E85B140A1189D071ED914C1F388D1B9D745A194B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ VA - Лучшее Для Своей Любимой! (2011) [MP3|256 kbps]<Шан
 ```bash
 magnet:?xt=urn:btih:CCDD8075F09DE36BE51E8EDCE323441A1FC5F865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB2380511988FED49E55FF90D592EC7FDE3720BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ VA - Музыкальное новье от Европы плюс 2 50/50 (2011)
 ```bash
 magnet:?xt=urn:btih:FF0ACBF5234F498105510E11FC904C89B53AB08B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ Monika Kruse @ Voodooamt - Panorama (2001) [MP3|320 kbps]<Techno>
 ```bash
 magnet:?xt=urn:btih:E7A1D40C19F0A1E8F607D78710C475CDD9583A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ VA - Самые шикарные хиты на Europa Plus. Выпуск 2 50/50
 ```bash
 magnet:?xt=urn:btih:8C13896E5C61E0578E51B44476A8B5D8D509FC8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08EE95D8F63F7FFEDECC37F90AF14EADD02A2C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +714,7 @@ VA - Новые Хиты Русского Шансона (2011) [MP3|256 kbps]<�
 ```bash
 magnet:?xt=urn:btih:5E0EE6F9C962B84BFC40D662323ABB7E68DBD222
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60F436874882BD6B2282944D0B1E27A01AAF4190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ Dj Tapolsky - Time2Bass 044 (23.11.2011) [MP3|224 kbps] <Moombahton, Drumstep, D
 ```bash
 magnet:?xt=urn:btih:BC0C7FE3886EDD1432B4AC87F65EBFAD5B3D9814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

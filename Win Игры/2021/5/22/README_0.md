@@ -19,8 +19,7 @@ LEFT ALIVE – это новый шутер с элементами выжива
 ```bash
 magnet:?xt=urn:btih:6C16234B7B87A4B75DE0A021E4CD3F0B51FD4681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

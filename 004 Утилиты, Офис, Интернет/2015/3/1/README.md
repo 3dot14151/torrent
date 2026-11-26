@@ -21,8 +21,7 @@ Webcam 7 Pro – мощная утилита для работы с веб-ка�
 ```bash
 magnet:?xt=urn:btih:AA18F85847B76727CFD492C5FC29156020E5F4E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

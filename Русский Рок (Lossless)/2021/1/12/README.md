@@ -22,8 +22,7 @@ Lowering - Struggling With The Dark (2020) [FLAC|Lossless|Web-DL|tracks] <Depres
 ```bash
 magnet:?xt=urn:btih:DB306AC60B0C405F54CD334E4025AC6FDD4099CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80FB9B784E2FA7EA6FF27EE2BA53ECDFCBCEF795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

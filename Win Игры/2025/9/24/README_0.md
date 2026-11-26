@@ -19,8 +19,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28650) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:132B52353CBC217E5F40526E7C7599A258A1DA27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Delux
 ```bash
 magnet:?xt=urn:btih:897916AF527D2FE9A6DA99DD9060FB02738397CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ```bash
 magnet:?xt=urn:btih:54DAB561192E7BE4D84EEDB338B233770A7E4FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 ```bash
 magnet:?xt=urn:btih:C1E4783D9D1A1B7541339459461E4F1F2CA0E45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B352C35FE1C2EFE167DD33A1BEC65BCFBD5B6001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ WUCHANG: Fallen Feathers - это ролевая игра в жанре souls-li
 ```bash
 magnet:?xt=urn:btih:A9FED3A167E7192243CFDD1BB913CA2B2577A9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.4.1.85803/dlc) Repack Let'sРlay [Deluxe
 ```bash
 magnet:?xt=urn:btih:BCB3514F10AD878CCF1E6647A7FA3CBCDFE1D7A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Lightkeeper - психологический хоррор, действие 
 ```bash
 magnet:?xt=urn:btih:3E92FBCCB73F0B5D3921FADFD3622F62BA0DEFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ ENDLESS Legend 2 – это фэнтезийная стратегия, где в
 ```bash
 magnet:?xt=urn:btih:FC3D23A8679C57AD2E65B6B7CA77EB478EA61CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:121D8CD1799F3DA71072007BA04A7D8BE66D8F1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:D1E101CA0FC54609DEB3547AF41B2EDC5D000B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 ```bash
 magnet:?xt=urn:btih:5801C7DC1577FE0CD1721B244AAAFAA27FD19D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

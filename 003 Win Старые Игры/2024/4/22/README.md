@@ -19,8 +19,7 @@ X2 The Threat: New Life / X2 Угроза: Новая жизнь (2003) [Ru] (1.
 ```bash
 magnet:?xt=urn:btih:85775887C7D0377247180A98FD678AFDB465DDB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

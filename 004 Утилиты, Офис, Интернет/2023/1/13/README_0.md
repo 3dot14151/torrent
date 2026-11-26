@@ -19,8 +19,7 @@ Sidebar Diagnostics – простая боковая панель для раб
 ```bash
 magnet:?xt=urn:btih:A43219229F149F47EAFB0F1B40A6763226F3B09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

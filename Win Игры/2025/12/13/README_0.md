@@ -19,8 +19,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:166A078D9D0CEDAFEBAB3C23E191185D4ED6C7C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E6402C1BAAFA90C9572F46E69B82D054397DE2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Elder Scrolls IV: Oblivion Remastered представляет собой п
 ```bash
 magnet:?xt=urn:btih:BA47225B4C25A4BB4FF323055B563C8E02279849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Constance - это двумерный приключенческий экшен 
 ```bash
 magnet:?xt=urn:btih:B83D023C11848641125B33077AEFE1CA61A8104D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21057229) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:50BCFF54DDC6A8EFAB087581932F36922BFF5DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21057229) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:256F733A69BA92C558E46CB04059D45E1C5DD873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack HardwareMining [Deluxe 
 ```bash
 magnet:?xt=urn:btih:8A82A6FBD6ECAC9B8A684A8105AE2C2206267D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Call to Arms - Gates of Hell: Ostfront - это реалистичная стр�
 ```bash
 magnet:?xt=urn:btih:EE3E748914499AB374DB2B65B28F9852F9FF04AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Ayasa: Shadows of Silence приглашает игроков в мир, где 
 ```bash
 magnet:?xt=urn:btih:EA446B834496F86BAE6E85AAFE55053706C72CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AB523209CAE1C622D1A878EE4E1DF6D2D158FA17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D12CA15984F9709E2B67F24A0A38F2CECCB4B0BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Routine – это sci-fi хоррор от первого лица в стил�
 ```bash
 magnet:?xt=urn:btih:1ADBA5D54D5CEFC975C20002342CCFCEE41B4DDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Scene Rune
 ```bash
 magnet:?xt=urn:btih:18DBC22D6EAF49321AA233E0862203CB76049432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A52B51DF0AED1E7E9D940119DFF50CC73683242B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Chivalry Quest: Sword and Flame / Рыцарский квест: Меч и Пл�
 ```bash
 magnet:?xt=urn:btih:7C55B481E542D1D25FBDB472317FB979C6269E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:313E0C52E21888AB25A5B5040F174B62BD323017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack seleZen [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:A0F5EC3E060A66B608944A94D43322F571098084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Sleep Awake - завораживающий психоделический хор
 ```bash
 magnet:?xt=urn:btih:03E977473791751806B8D257628DB583A92137AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ Sleep Awake - завораживающий психоделический хор
 ```bash
 magnet:?xt=urn:btih:67E441E817B04359CE3468693793678FDBB3772E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21077857) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0B7BA8B7DFD7DEF0AEEE90BABA37C4F1A17B5B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

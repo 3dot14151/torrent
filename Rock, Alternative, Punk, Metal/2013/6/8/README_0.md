@@ -28,8 +28,7 @@ Like a Storm - The End of the Beginning (2009) [MP3|320 кб/с]<Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:3053AA8089D8540D045BE677D5671C00C5CA6342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Pagan Fire (2008) compilation/Nuclear Blast Records [MP3|320 кб/с]<Pagan
 ```bash
 magnet:?xt=urn:btih:300076DF876AD8A4808A8B8C9AF27D07088B69F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Miles Kane - Don't Forget Who You Are (2013) [MP3|320 кб/с]<Indie Rock, Rock'
 ```bash
 magnet:?xt=urn:btih:A8CAB6BDD8ACF0B68F480E08F86B7B0C1A9EC4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +131,7 @@ Mekong Delta — немецкая прогрессив/трэш-метал-гр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +165,7 @@ Kalmah - Seventh Swamphony (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Grinderman - Grinderman (2007) [FLAC|Lossless]<Alternative rock, Garage Rock, No
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ CD1: Bula Quo!
 ```bash
 magnet:?xt=urn:btih:FFA97E0F70501CE9C66664A682C9FDE95804A069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Civil War - The Killer Angels (2013) [MP3|320 кб/с]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:269CD293DD009F3F0B4090A06E12B8C4527EC4BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ Nazareth - Hard 'n' Heavy (Original recording remastered) (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:6C6F742E54F907BCAC520F5CE71ABC9294583A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ Asaf Avidan - 5 альбомов (2006-2012) [FLAC|lossless] <Folk, Rock, Alt.Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ Children of Bodom — финская англоязычная группа из 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

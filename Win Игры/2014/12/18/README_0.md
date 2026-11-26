@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:35CD7B710219DD94B611904C3D1F6BEFED55C6E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Hotel 7: Death Sentence (2014) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:12BDF7DDE41A2293DC9A054522BC8BC82FB6AD69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Never Alone — это атмосферная головоломка-платф�
 ```bash
 magnet:?xt=urn:btih:B754CC97FB89A4DBEB74C8F74ED4B12A006EDC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

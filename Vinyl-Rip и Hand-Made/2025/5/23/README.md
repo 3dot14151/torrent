@@ -20,8 +20,7 @@ B. Voyage of the Sunchaser (05:33)Жанр: Epic Heavy, Doom MetalПродолж
 ```bash
 magnet:?xt=urn:btih:84CF38DEEC841A7DB49543DFD00A7CBBB67A7002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

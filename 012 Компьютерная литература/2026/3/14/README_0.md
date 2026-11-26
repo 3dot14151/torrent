@@ -22,8 +22,7 @@ Free with your book: PDF Copy, AI Assistant, and Next-Gen Reader.
 ```bash
 magnet:?xt=urn:btih:44049B367D994A815A24D6F21A589C7F21A178FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ This book offers a structured approach to mastering JаvaScript interview questi
 ```bash
 magnet:?xt=urn:btih:947594A90454C99FE467AC9F1C1E4DE4DE71D9CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:211257211EE0151B091C91510A42F89CD837F1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64932BA7E4C1332C3A651284464754673107653C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Set up web forms from scratch using the most popular React form library in use t
 ```bash
 magnet:?xt=urn:btih:FA737C8D1FEC315291B7E0719BFE6D1F3497DB56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Circus - Movin' On (1977) Remastered /1990, Decoder/ [FLAC|image+.cue]<Progressi
 ```bash
 magnet:?xt=urn:btih:E45C97DA60F31366137F51ACFB0539FB09EF41EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Epsilon – Epsilon (1971) Remastered /1993, Bellaphon/ [FLAC|image+.cue]<Progre
 ```bash
 magnet:?xt=urn:btih:87C54D52341BDED618537F9979B0BBF10EF15E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Aunt Mary - Aunt Mary (1970) Remastered /2004, Pan Records/ [FLAC|tracks+.cue]<P
 ```bash
 magnet:?xt=urn:btih:7C40884F64FADF182FC37FAE997C8B8AA9FFF14A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Debler - Noctem Diaboli (2015) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:3F1F326B9C619358756B1EBAAFDAE208488D8A20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mortis Mutilati - Melopee Funebre (2015) [MP3|320 кб/с]<Depressive Black Meta
 ```bash
 magnet:?xt=urn:btih:0A312837C75475DC6A19D2E31DA8A5996B93D6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Room Experience - Room Experience (2015) [FLAC|Lossless]<Melodic Hard Rock / AOR
 ```bash
 magnet:?xt=urn:btih:F7BDF3ECC523FCCCFA1B29ED6EA3579C006028A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Serenity In Fire - Give Him Your Soul (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:EC0B63B923618A681C45FC73F53F2D80773EFB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Renaissance - DeLane Lea Studio (1973) Remastered /2015, Purple Pyramid Records/
 ```bash
 magnet:?xt=urn:btih:333E58837A76D89F6367C2279FF4B37348A1CB80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Nekrogoblikon - Heavy Meta (2015) [MP3|320 кб/с]<Melodic Death Metal, Folk Me
 ```bash
 magnet:?xt=urn:btih:9052F8B1D2804E294063AC4DA3ED3470E1D25291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Spooky Tooth - The Island Years (1967-1974) 9CD Box Set Remastered /2015, Univer
 ```bash
 magnet:?xt=urn:btih:7FBF84C2474A95201E21A35B2D63A6CB8F5736C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ BrainStorm - 7 Steps Of Fresh Air (2015) [FLAC|Lossless]<Brit-pop, pop-rock>
 ```bash
 magnet:?xt=urn:btih:8966A1C7036482BF51AB5F314E0ACAB4E2C62140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ The Royal Philharmonic Orchestra - Plays Prog Rock Classics (2015) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:F2870BBEE4D8A364553BFC756700AD8857BA61B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ III. I Get Up I Get Down(   Читать дальше...   )Жанр: Progressiv
 ```bash
 magnet:?xt=urn:btih:178D2E06367F792FCED346A975831282427052C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:561B0FBCE78B87D68A131E4BBC0693B2A7934AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ Scorpions - Wind Of Change: The Collection (2013) [MP3|320 кб/с]<Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:E31CE3E38B029A512904EBA3B78F0F3CDBF62F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

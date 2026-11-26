@@ -19,8 +19,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune [Digital Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:B9D6223A9DF8EFD77E1052FDDF419CA85B83B907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Plants vs. Zombies: Replanted - это ремастер оригинальной
 ```bash
 magnet:?xt=urn:btih:DDDAC6028935099E26AD86F05C2F9BF595A0DFB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Wanterlude [Ultimate 
 ```bash
 magnet:?xt=urn:btih:D74F6AD769E502509248CF85969C2122AE211A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:43F03D7428AD44D57CA9D0C7362F1540D1249A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Plants vs. Zombies: Replanted - это ремастер оригинальной
 ```bash
 magnet:?xt=urn:btih:BD7CCDECC0B1AA93895C90E8C8DBBC57ABD6ADC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Let'sРlay [Ultimate 
 ```bash
 magnet:?xt=urn:btih:4DDA3369800275F9440988ED928081B992AEDA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Lady Mabel Mysteries: Death on Board (2025) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:FF0732185C1EFAB2795B8A235AD0E26614A68976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Onirism (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:95502885601C731261D7E82D243D795DBF2C29D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14864/dlc) Repack Other s [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:EA2741383A34D6AC843A5FB90FF90A7C15B9F6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Metal Eden – научно-фантастический адреналинов�
 ```bash
 magnet:?xt=urn:btih:A0A2AC120EA0678D3484C0393960E2151D897CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2.1173.0) Repack Necros
 ```bash
 magnet:?xt=urn:btih:B6BE1BFE07728AAC1049EEAB371A334950213BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (0.1.26.2.46023.12/dlc)
 ```bash
 magnet:?xt=urn:btih:1BB3417F9FCE109C202D9DC36E3A9C1BABFA10EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

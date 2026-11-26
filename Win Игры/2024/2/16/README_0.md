@@ -19,8 +19,7 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:7F6C8DF721637CF41C7AF004CC4748365F7F8F06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magic City Detective 4: Wrath of the Ocean / Волшебный город 4: Г
 ```bash
 magnet:?xt=urn:btih:BB1AC04CB919E49751CBF90299FB61F956ED53EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Torchlight II, предательски увлекательное продол�
 ```bash
 magnet:?xt=urn:btih:201FB2E11F1363A29824DCC32F8984F65E70175D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rebel Galaxy это лихое приключение, наполненное с
 ```bash
 magnet:?xt=urn:btih:326D786CF4082DBDAA0FB8030EFC59748B35CB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Chaos Reborn (2015) [Ru/Multi] (1.13.3) License GOG
 ```bash
 magnet:?xt=urn:btih:142D843A97E48B956344D1D0A16F37FBBC499E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

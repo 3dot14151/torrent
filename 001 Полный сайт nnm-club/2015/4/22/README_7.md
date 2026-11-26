@@ -18,8 +18,7 @@ Assassin’s Creed Chronicles: China / Китай (2015) [Ru/Multi] (1.0) Licens
 ```bash
 magnet:?xt=urn:btih:C455750D22F71FE7B08935F846D11BE3CC76AD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Shingeki no Kyojin / Attack on Titan / Вторжение титанов [2013, 
 ```bash
 magnet:?xt=urn:btih:48490A21C7D198E57227BA11FCF32D2CB8CB2A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Alcohol 120% - эмулятор CD/DVD-дисков. Программа созд
 ```bash
 magnet:?xt=urn:btih:014B4750CB4C9FAA58C695CFCADA204ECCC37AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:78BD2487419AA5AB2E1B74F05CFB5C0A68089681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7681D8A8CD5A35323E6668A013746E18AA21704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27C0292E69F4BAD9EFD18CD336803E0F42DC5297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Windows 7 Максимальная Ru x86-x64 Orig w. BootMenu by OVGorskiy® 04
 ```bash
 magnet:?xt=urn:btih:64CC3AF53535C3DD40796FB7979ADF987EFFC1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Adobe Photoshop Lightroom 6 CC [Multi + Ru]
 ```bash
 magnet:?xt=urn:btih:477B6F5100BC04EF45814C04D8BCC4AE34954890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Far Cry 4 (2014) [Ru] (1.10.0/dlc) SteamRip Let'sPlay [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:0E398CBD39AD893C9A9608883E1B63C4A3121B4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

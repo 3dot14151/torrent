@@ -19,8 +19,7 @@ Sale Frenzy (P) [En] 2011 | Fyrrion
 ```bash
 magnet:?xt=urn:btih:D540F5197D7A8869EE17C2FAB320CC12FC0BDC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Captain Backwater (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:7876696678FD2901FF37F2351EEDDCF581C2C5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB0A8B0447215C7FEFAEF4480824CEEBC7F0A2E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Christmas Tales: Fellina's Journey / Рождественские сказки: 
 ```bash
 magnet:?xt=urn:btih:C9C873EBE0A4539B829766CC840B64E4E041FCEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3629F07C4F7BFA8707E1F1EB7441BFD353CC5D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ The Fall - Mutant City- это продолжение вышедшей и зав
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ And Yet It Moves {1.2.2} (P) [Multi6/-] 2009 | THETA
 ```bash
 magnet:?xt=urn:btih:B73DF4B583C856EFAFF5FFD429135E43B0BB2D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Direct Hit: Missile War [Ru/En] (RePack/1.7.2826) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:9996A7896BB8D2979DB72CEC90EA2F556296E066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

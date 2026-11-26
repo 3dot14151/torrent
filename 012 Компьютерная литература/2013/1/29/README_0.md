@@ -19,8 +19,7 @@ Willie Pritchett, David De Smet | BackTrack 5 Cookbook / Рецепты BackTrac
 ```bash
 magnet:?xt=urn:btih:BC923C047735C752E7D58DB2A6A6C095D9A9FD10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

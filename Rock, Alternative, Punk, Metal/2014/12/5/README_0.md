@@ -28,8 +28,7 @@ Faithful Darkness - Archgod (2014) [MP3|320 кб/с]<Melodic Death Metal, Thrash
 ```bash
 magnet:?xt=urn:btih:718D00F40BA8086C3E2013CB262D8C4FF473D17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ For Giants - Depths (2014) EP [MP3|320 кб/с]<Progressive Metalcore, Instrumen
 ```bash
 magnet:?xt=urn:btih:2CB2BF07600033CC710FA38507921BB6D02148F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Marmor - Alma Celta (2014) [MP3|320 кб/с]<Neo-Classical Metal, Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:7536C52C87C657C5366DEA710EAD295BFAED7B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Coronatus - Cantus Lucidus (2014) [MP3|320 кб/с]<Gothic/Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:654443C203E985CA81EF289A540F7520F3C5A58D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Cruachan - Blood For The Blood God (2014) [MP3|320 кб/с]<Folk Black Metal, Ce
 ```bash
 magnet:?xt=urn:btih:365B420188200E16FD45B808965BFC445FC423F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A69C67388D2E1388CB37E17E43951D32E220BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Messiah's Kiss - Get Your Bulls Out! (2014) [MP3|320 кб/с]<Heavy Metal/Hard R
 ```bash
 magnet:?xt=urn:btih:66FC61354114BF3D532CB6DF17FDF8913E6D8C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCF4643DEE27BB540EA758023B485ACA0A3BAB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Suzi Quatro - The Girl From Detroit City (2014) 4CD  [MP3|320 кб/с]<Glam Rock
 ```bash
 magnet:?xt=urn:btih:56ED152903F3C429A93971ED0D5D28642F8C2637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ Foreigner - The Best Of Foreigner 4 & More (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:299CE213F9C6C4CAC3C404E74C6846C4FE471D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

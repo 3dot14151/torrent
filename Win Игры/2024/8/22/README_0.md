@@ -19,8 +19,7 @@ Capes (2024) [Ru/Multi] (1.2.0.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4E4BB68278BAF553D2631E01CFC2566722BE4A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Old School RPG – встречайте нашу увлекательную фэ
 ```bash
 magnet:?xt=urn:btih:82B0779EFC4F7C7F9405E12F9EDD507FF96F1937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sam and Max: The Devil's Playhouse - ремастированное приклю
 ```bash
 magnet:?xt=urn:btih:1992F8F24C9F7DD47AED84302A0BCA3A2040DF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Delearnia: Fractions of Hope - это сюжетная приключенчес�
 ```bash
 magnet:?xt=urn:btih:33C683F1B725BAE7922DD8884FDF5FB170714E9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Nightmare Side: The Game – как вы смотрите на то, чтобы 
 ```bash
 magnet:?xt=urn:btih:19C7B96E7F6989635A7105CCBD2A90F30DAD7EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Unrooted (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3D20947300047BF98F8ECD2868F89796B611738C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

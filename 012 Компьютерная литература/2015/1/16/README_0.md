@@ -21,8 +21,7 @@ Beginning Arduino Programming -  позволяет быстро и интуит
 ```bash
 magnet:?xt=urn:btih:F0FCEEC6E9713667693C4F00F631CCB2E7349CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDAB8A337241F543E3DEC26FA5C5D49A84E31E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

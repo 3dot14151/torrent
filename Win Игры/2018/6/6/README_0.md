@@ -19,8 +19,7 @@ GHOUL (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:EFF9F3758E183172FD18CFB123F363410B4A6EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Piano (2018) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:411D7369D1730238FB9D6C9FEF2EDAE2A9EA65D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NIGHT IN THE WOODS — полный сюрреализма инди-квест �
 ```bash
 magnet:?xt=urn:btih:0D2870C11EB3435D6A6047E5055BE8EC7CBED607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

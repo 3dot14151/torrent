@@ -19,8 +19,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145) License GOG
 ```bash
 magnet:?xt=urn:btih:0F8109F14BD312B41F5087FF61558C7A723CC298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CarX Street (2024) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Deluxe edition]
 ```bash
 magnet:?xt=urn:btih:8F2EB9B0E66C992596F681890AA0CBFB508D0EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3F3B2AADF6DB2D0AF968EFA719F1610AF9A44287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Skies (2025) [Ru/Multi] (0.1.83/dlc) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:DAD5A7E3C0471BCC4CF3FA0666B68D02751BD577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Biped - это динамичная приключенческая 3D-игра �
 ```bash
 magnet:?xt=urn:btih:05F9727EAD126FB694E8519F4677899A7F5C7ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack FitGirl [Digi
 ```bash
 magnet:?xt=urn:btih:2B6969FF5A3703E5BADC64B443D981610946DFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 ```bash
 magnet:?xt=urn:btih:214D97BD3504B773FC82CE1DDADC60ED0800BA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3217340507C975FDE48CF010C9A19A0EB8F4881A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Bionic Bay (2025) [Multi] (1.3.0.4/dlc) Repack Other s [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:88EC0ED6E73829892D5678299C698F97BBAD54A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dive The Depths - это экшен-рогалик, где вы играете �
 ```bash
 magnet:?xt=urn:btih:52FB2D8D976B1CAED2A5EF57470D322291AF63CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 ```bash
 magnet:?xt=urn:btih:1760507871D6FA1EBEA7257B935AD6D59129DF79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Space for Sale - межпланетный симулятор управлени�
 ```bash
 magnet:?xt=urn:btih:B0785D523323C3C6444C6020CBD56AE7D02B4EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:D2A34F8BE3782074B118BBA503064F0069B89ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Mylene Farmer - Vinyl Discography 9LP (2009) [FLAC 2.0 24/96|image+cue (Vinyl ri
 ```bash
 magnet:?xt=urn:btih:3307AD7B7EC765685D70B1B8349F938A9D834552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

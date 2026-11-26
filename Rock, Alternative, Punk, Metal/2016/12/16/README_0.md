@@ -22,8 +22,7 @@ The Red Button - Can't Stop Thinking About Her (2007) [MP3|320 Kbps] <Brit Pop, 
 ```bash
 magnet:?xt=urn:btih:082AD1D820E682C8AA79178932BAF971C42A725D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Slaughter And The Dogs - Vicious (2016) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:3846421C213D05EAF5D0F1234F74D91ABBE4A6A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Bigness - Time Traveler (2016) [MP3|320 Kbps] <Indie Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:8BF071B25E1E0AFAB130673DC767AEA6E0332A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dante Fox - Breathless (2016) [MP3|320 Kbps] <Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:30FC3D62D47DE97D309431E020E22DE04DAF3F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ruby Dee And The Snakehandlers - Little Black Heart (2016) [MP3|320 Kbps] <Rocka
 ```bash
 magnet:?xt=urn:btih:627B9CA6B99A904838249510817A7E8595A6CA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bon Jovi - This House Is Not For Sale (Live From The London Palladium) (2016) [M
 ```bash
 magnet:?xt=urn:btih:F72185098BCBA351BEE739408A637B10F910D37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F2DF5FD422720F3A6EE10817CC1C70A38DD21C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Zodiac - Grain Of Soul (2016) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:62D84649E74893DA3DC6D32E74C8A2433BEF71DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCC2A3FEBEADBD993FC35BAB204B8F8EC37561C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

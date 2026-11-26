@@ -19,8 +19,7 @@ Volume Concierge - удобная утилита, которая может ав
 ```bash
 magnet:?xt=urn:btih:4EA94664A5057812CACF609140DAED2209F7D87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

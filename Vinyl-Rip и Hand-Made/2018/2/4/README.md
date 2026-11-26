@@ -22,8 +22,7 @@ A4 	Cold Arranged      5:37(   Читать дальше...   )Жанр: Classic
 ```bash
 magnet:?xt=urn:btih:1A20DDDEDFFB26CE2BFEAC312FF9F19327D0EBBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Но Это Так	5:45(   Читать дальше...   )Жанр: Blues Ro
 ```bash
 magnet:?xt=urn:btih:A7DA5BAAA20D1D964E1E4287A66FD1E9994324B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A.3	Funky Dung(   Читать дальше...   )Жанр: Rock Style, Psychede
 ```bash
 magnet:?xt=urn:btih:418BC6E4078AC7E347422BA10A68C233C907467B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

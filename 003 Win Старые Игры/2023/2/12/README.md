@@ -19,8 +19,7 @@ Diggles The Myth of Fenris (2001) [Ru/Multi] (2.1.1.10/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0A6C77E9ECD6FF90187BD7F1D6B692ECB4F83BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

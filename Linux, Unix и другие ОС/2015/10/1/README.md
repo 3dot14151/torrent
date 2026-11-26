@@ -21,8 +21,7 @@ Calculate Linux 15 [x86-64] 1xCD, 6xDVD
 ```bash
 magnet:?xt=urn:btih:01E05F565C483B2869F791B456F3671103205130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Calculate Linux 15 [i686] 1xCD, 6xDVD
 ```bash
 magnet:?xt=urn:btih:80E98FA6DFB4A87ADDAA144A887150DBC9F415DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:57CAEBB378AA34F339DAD33C0240A603BE5129B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

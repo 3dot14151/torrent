@@ -19,8 +19,7 @@ N/AЖанр: Melodic TechnoПродолжительность: 01:24:01
 ```bash
 magnet:?xt=urn:btih:ECD2AC82A16C594F1F154B50ECB72A49FF918094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ VA - Trance Life Theory (2013) [MP3|320 кб/с]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:CAC538FFE3365888EBC4394D3AD10EC5563C831A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ The Janeys - Get Down With The Blues (2013) [MP3|320 кб/с]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:ADA465D9AD2547DCA031740EB1FB66D8D0AB12CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ The Janeys - Get Down With The Blues (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:2459CF556A8F9A2B30AB2ED3622082F97B8A2648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD0D9527375F22F761E16212247DB59458C3AEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ Fedaden - Broader (2009) [MP3|140~205 кб/с (V2)]<IDM, Glitch, Abstract, Downt
 ```bash
 magnet:?xt=urn:btih:4C9432F6CFEF68F835077C78848E4E730E1F2974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Lange - We Are Lucky People (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:DB0DB54D4CFA774DB8F4E8CC708FC2FC33F9723E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ VA - 10 Years Armada: 2012 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4363067A4F158B685581136F4FCE04395BC3D969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ VA - Rehab for Lounge Lovers At Lunatic Asylum, Vol.4-5 (2013) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:C7C5ED43276A1E6EBDD1170BD0010AA4A0CC3B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ Message To The Masses - Bitter Ends and New Beginnings (2013) EP [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:9B65E44562FE571CCCE9284A6D1F6E5CBF0775BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ Awrizis - Final Hybridation (2013) [FLAC|Lossless]<Melodic Death, Thrash Metal, 
 ```bash
 magnet:?xt=urn:btih:0DF11131E639BE4F8F03DD69C7F715799185B7A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCBF33196995DFCBD53405E94A041B4F60012296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ Nick de Grand - Waves of Feelings (2013) [MP3|192 кб/с]<Chillstep, Dubstep>
 ```bash
 magnet:?xt=urn:btih:6C56D09D651EEFDEEC8571C47A52C1FA559B3AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C7958CCCC79CA3265EBF296EFE20B4B261279D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A658C5B169C0A043849E80A459477BC50DE9982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B206946F5E8CC5BF2D148AB54309EF7B7605978C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ Tara O'Grady - A Celt In The Cotton Club (2013) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:3BC8227172BCCBBE460C5CB22809AC66086078EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EBF1793FFEB48FF95CAEAEB98CCCA05C82CE6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +625,7 @@ Adagio - Dominate (2006) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:73DEDAC11B50CF4F8644C1570619DF60FF778A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E32617773061BB3331922A946299B3E53874D0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04E9CCB8A8D48DD2EC47BDE3A6468F46E422A1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +713,7 @@ VA - Toolroom Records Amsterdam 2013 (2013) [MP3|320 кб/с]<Tech House>
 ```bash
 magnet:?xt=urn:btih:50BA66566AE220CF6DFAF2EE24F07E398113B6F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07B6E98F0419DACDB8F371B68F0A51AE1082DBBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:363621A5DEC6100A0D452F0DA72D76476B303781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

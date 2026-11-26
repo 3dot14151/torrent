@@ -22,8 +22,7 @@ In Mourning - Afterglow (2016) [MP3|320 кб/с] <Progressive MDM>
 ```bash
 magnet:?xt=urn:btih:437FFB341C2C47AF72E7E0D544F28C94F5B1C37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brymir - Slayer of Gods (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Sy
 ```bash
 magnet:?xt=urn:btih:F81DE67082BED6EFE24EA15D80A528C16521E91E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Yngwie Malmsteen - World On Fire (2016) [MP3|320 кб/с] <Neoclassical Heavy Me
 ```bash
 magnet:?xt=urn:btih:264D843BFED4399F073A27DBC109C6D5B5E05F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A55DF4CA01870506DBCDCC84274F64C1DC338D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

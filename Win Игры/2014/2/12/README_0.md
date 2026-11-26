@@ -19,8 +19,7 @@ Deadly Puzzles: Toymaker (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2DBD0CB876F848D4031BFFED1F335823E29DC395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ethan: Meteor Hunter (2013) [Ru/Multi] (2.0.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B9D0AD6579DE8806E3736760D6A12BCBD36EAE05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Gomo (2013) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6D059E13571C2143A24AB29BF6AD37A417A687DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Twin Sector (2010) [Ru/Multi] (1.0.0.1) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:087CB1E4ABCDB63FC2BCD4D942BC0BD1EBB0218E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Zombie Tycoon 2: Brainhov's Revenge (2013) [Ru/Multi] (1.0 upd1) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:C8A257080C5A2981158E0930C0779243B54E630F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Torche - Admission (2019) [FLAC|Lossless|tracks + .cue] <Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:5F24EBBB67612460E348AA9ED09177BAAC5AB195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Exhumed - Horror (2019) [FLAC|Lossless|tracks + .cue] <Death Metal, Grindcore>
 ```bash
 magnet:?xt=urn:btih:6DE7A508DACAB25713DD04A28EFD879D5C6D617A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Surf Curse - Heaven Surrounds You (2019) Scene [FLAC|Lossless|tracks] <Indie Roc
 ```bash
 magnet:?xt=urn:btih:1BBA354F23D5D7CB7047FC41187CE38BD5846F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nad Sylvan - The Regal Bastard (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock, 
 ```bash
 magnet:?xt=urn:btih:7B4CADFB1E3CE247F861F69DA0EA78573F0208C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Magic Pie - Fragments of the 5th Element (2019) [FLAC|Lossless|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:AF7AD06766BCCC6B15129DBDAFBC75C1E73D2D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rammstein - Raritaten (Chinese Edition) (2019) [FLAC|Lossless|tracks + .cue] <In
 ```bash
 magnet:?xt=urn:btih:2AC8721C1DAC0697C43D16E99321A189299516A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

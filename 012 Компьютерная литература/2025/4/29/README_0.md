@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:29E3B29CB5B3843F694F3A100A7211251359E503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ChatGPT: Principles and Architecture bridges the knowledge gap between theoretic
 ```bash
 magnet:?xt=urn:btih:8D125F8121B6A7BA65CD7FF1527EB26431C43B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Effective Conversational AI teaches you how to build great chatbots that perform
 ```bash
 magnet:?xt=urn:btih:B2C83143DFCF161688D3A4E13189D78ED60E5CDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

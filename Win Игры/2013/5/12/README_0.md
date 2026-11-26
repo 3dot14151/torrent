@@ -19,8 +19,7 @@ Portal Of Evil: Stolen Runes Collector's Edition / Врата преисподн
 ```bash
 magnet:?xt=urn:btih:DD169AECA531DD94FDFC8592B85F305C2D9D518C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Royal Gems / Сокровища короля (2013) [Ru] RePack adguard
 ```bash
 magnet:?xt=urn:btih:347B921DBA0631840E9D61F04BDB0B3718597FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

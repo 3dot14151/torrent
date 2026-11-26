@@ -19,8 +19,7 @@ Horror Tales: The Wine (2021) [Ru/Multi] (Build 6722952) License Fairlight
 ```bash
 magnet:?xt=urn:btih:8EFD5EA3EED8C0519BE5805772C0019D4846B46A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.0.5/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0D5F19BB888C269551FFB89A866E28143A845C79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HORROR TALES: The Wine (2021) [Ru/Multi] (Build 6722952) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C52D6F7BDD78EAF3E9027587C12B2245E732A38F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Liberated (2020) [Ru/Multi] (1.16/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B247D66D87CF5BBB9BE17686A6628F805AA98249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

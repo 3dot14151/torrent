@@ -19,8 +19,7 @@ Univention Corporate Server 3.1 [i386 + amd64 +amd64 (U)EFI] (3xDVD)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

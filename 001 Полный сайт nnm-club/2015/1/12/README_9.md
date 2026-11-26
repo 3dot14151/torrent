@@ -28,8 +28,7 @@ Filthpact - Total Crust Violence (2011) [MP3|320 кб/с] Compilation <Hardcore 
 ```bash
 magnet:?xt=urn:btih:25A890B2F20D91D408C6F4F34FF4700C868EBD3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:449A59C1B2EB862C370AA8F8A376BF6FE34E579A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Trance Maniacs Party: Trancefer Wave #145 (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5349279B87F6C9CA976DF15F6086D8EE1CFF299D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9363B777A9769A23100224463F59678A3251A808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Nelver - Only Weekdays Podcast Winter Edition (2014) [MP3|320 кб/с]<Liquid Fu
 ```bash
 magnet:?xt=urn:btih:C58F813E0CD820E480E4D00E0FF466EBDEAB0F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ CD2 - The Proper Angle (01:01:09)
 ```bash
 magnet:?xt=urn:btih:72622622607CDFF898B9A3F7D00F5D219D1CF3B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5161641DAAEB03AECDE5E79BBC2938FD14EA4686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F26511F4E946AC2008A6E2A4DBF9BF7C0148C01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C08840804D70DB3C0AA1E036D6F7635C3B99D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:025B9735E6A611F055FF2B033E223C7DDFC48E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E03166428C1775CBA3DFBEA5BD504E73A8E7CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ VA - Krake #002 (2014) [FLAC|Lossless|WEB-DL]<Techno, Ambient, IDM, Abstract, Dr
 ```bash
 magnet:?xt=urn:btih:6E1F9991C1F2318642D8CB4D01FFCAF12283AA5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ VA - Creme & Romance (Faithful, Lovable & Delicious) (2015) [MP3|320 кб/с]<Lo
 ```bash
 magnet:?xt=urn:btih:7DACE144CD13F80E1D607051EF6FB853EED494A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B69C1FBA881C604B80974F9BF5F6668648056A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Blasterjaxx - Maxximize Powermixx 2014 (2014-12-30) [MP3|320 кб/с]<House, Ele
 ```bash
 magnet:?xt=urn:btih:D746C7022C45C79E46558CC4B2358DF9518C2098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ Alone - Why Do We Fall... (2014) [MP3|320 кб/с]<Nu Metal, Alternative>
 ```bash
 magnet:?xt=urn:btih:20ED5F999A3D001F3FCB17E8711CA2D9CD6AD756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:827B0667783FA263331D797F6C27D8810B1E6952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +526,7 @@ Distortion Choice - Way Out (2010) [MP3|320 кб/с]<Nu Metal / Electronic / Cro
 ```bash
 magnet:?xt=urn:btih:FF3A0D7A329B1D6FDB6EEE020895B58668DE20A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ Pedro Del Mar - Mellomania Usa (January 2015) [MP3|320 кб/с]<Trance, Progress
 ```bash
 magnet:?xt=urn:btih:38786620CDF8A7555CC38DD55FE19D699224D694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9683AF2FF83C2B2BC70372ECDFCDD1979074C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A25B4690B896736072E93FC1F038828CD4A58A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +639,7 @@ P.B.K. - Lost Files (Part 01 & Part 02) (2010) [FLAC|Lossless|WEB-DL]<Drum & Bas
 ```bash
 magnet:?xt=urn:btih:3B3B1ACB365AD48F254FA71DB3CEF55F11246F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ Wednesday 13 - Monsters of the Universe: Come Out & Plague (2015) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:40670270C65A8929A8C0BF76FEA4F65A6AE2FDCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ Walk the Moon - Talking Is Hard (2014) [MP3|320 кб/с]<Indie Pop/ New Wave/ Da
 ```bash
 magnet:?xt=urn:btih:A2460286BE50B28BC6948A51DC7AE2C40656108E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ Sunny - Kind of Smooth (2014) [MP3|320 кб/с]<Jazz>
 ```bash
 magnet:?xt=urn:btih:630DC54722E4DD2FD48DDCCD8803B9E6EDE75C4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -800,8 +775,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E80DD7D190D54C687EA9F2C832ED2277C7F604E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

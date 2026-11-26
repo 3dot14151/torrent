@@ -22,8 +22,7 @@ A4 Rise Of The 4th Reich(   Читать дальше...   )Жанр: Symphonic 
 ```bash
 magnet:?xt=urn:btih:B08F578F930294AF66E5AA2A0E22A33857C88674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Ascoltai Le Porte Dell'Asil S'Apron Gia, Dio, Che Nell'Alma Infondere (Don Ca
 ```bash
 magnet:?xt=urn:btih:870A41064ADDD114E0F45E11BFF88C53539B6227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

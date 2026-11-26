@@ -19,8 +19,7 @@ NeoDownloader - быстрое и удобное решение для масс�
 ```bash
 magnet:?xt=urn:btih:BDE3D8F19237F12BCC46BFC006589DF3CB7FD052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

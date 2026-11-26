@@ -19,8 +19,7 @@ Myst V: End of Ages [Ru] (L) 2005
 ```bash
 magnet:?xt=urn:btih:DE3D8FBAA57AACB9581AEB979BB2674FDA0322C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

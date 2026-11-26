@@ -22,8 +22,7 @@ AI - AzizRush. Я просто стал слеп (2025) [MP3|320 Kbps] <Metal>
 ```bash
 magnet:?xt=urn:btih:1A36F791610C985DD8D9A43374EE74633EBCC271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1 - Overkill:
 ```bash
 magnet:?xt=urn:btih:39DB9901D80F21716E33E93B45965A3622D63096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA638A35670E34B4C9BFB70DF755465FEC2E1ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Grateful Dead - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:01076B990961A075963A2D1B9B7AD477B382CB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Herman Chittison - 1945 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <St
 ```bash
 magnet:?xt=urn:btih:ACF971D2592510568C25CACC9A56D0C019D770D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Charlie Haden & Hank Jones - Come Sunday (2011) Universal [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:4454BB7A1455BB8BA7FE09B423F90DF81DE5E86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gordon Gano - Hitting The Ground (2002) (Violent Femmes frontman) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:CA896C41AD83DE32FA1F841488BA5487BAA58C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:B1A114005D8768334A7D3088A7F9DC665E1265A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Yves De Mey - Bleak Comfort (2018) Latency [FLAC|Lossless|WEB-DL|tracks] <Experi
 ```bash
 magnet:?xt=urn:btih:AB4350107FB071842827FB71978ACF8EDB6B1065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:9F3C22B25C394611965AECDCFC4E85A3E5FB0783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ zvλd (zvld) - Enantiodromia (2018) 141414 [FLAC|Lossless|WEB-DL|tracks] <IDM>
 ```bash
 magnet:?xt=urn:btih:DEB52FEF5953C2134EF76734B3CC46A5AA5E3F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BD81E8E1DCC0116064C7D83909DFB052DFD7814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Xilphide - Secretos del Viento (2013) [FLAC|Lossless|image + .cue] <Symphonic Me
 ```bash
 magnet:?xt=urn:btih:79B5C2D2DC37806ADD8D735D49FC37D54501C02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ Anthony Linell - A Sense Of Order (2018) Northern Electronics [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:A4E09FEC933D62F771ACA3A597C06A1FDB9813A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE5B2B980EE0E64CA8D6236391BE7BCBB2728133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:48128F04C25F5D6E380B1FE714363FE020C9003A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Umami - In Exchange For Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 ```bash
 magnet:?xt=urn:btih:26554B75B0A9EE7D3F89CB596F76F223CAE710D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ CD2 - Phanerozoic I: Palaeozoic (Instrumental)Жанр: Progressive, Atmospheric
 ```bash
 magnet:?xt=urn:btih:0531A2843F498DA1770AB1D79AF4C640C89257E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Canary Mail может похвастаться большими возможн�
 ```bash
 magnet:?xt=urn:btih:636BEA222BD8CD6E2B60BF2A26F1D35F9FE20FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ The Courteeners - St. Jude Re:Wired (2018) [FLAC|Lossless|tracks + .cue] <Indie 
 ```bash
 magnet:?xt=urn:btih:41F6F9B5CFFF09DEFA9D0BA0C45275ED7BE971B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ VA - Кураж судьбы 2 (2001) [FLAC|Lossless|image + .cue]<Шансон>
 ```bash
 magnet:?xt=urn:btih:5AF4E96A92E8DD092DA9F9A7F0223231F98DB9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ VA - German Top 100 Single Charts 14.01.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:80C59859648DEACD1F07CDF8B0C42E5058885157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Jess Glynne - Always In Between (2018) Deluxe Edition [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:BEE4F0222793AEC9BDF53325AFE354A9B5E1EF85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ Michael Elliot - 5 (EP) + 4 (Single) (2011-2018) [MP3|320 Kbps] <Synthwave, Retr
 ```bash
 magnet:?xt=urn:btih:7D917E854D91944AA8FAE24A244D69221B5D6958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7E45A0256D0529510D5730D0575E133FAB995FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ Lovebites - Clockwork Immortality (2018) Japan [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:E684D7179541B5ED0ED65EC500B8E5E29940A899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ VA - Москва златоглавая IV (1996) [FLAC|Lossless|image + .cue]<
 ```bash
 magnet:?xt=urn:btih:9E569CC8B829287B6877CA59111E45BEF70E273C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ Missy Higgins - The Special Ones (2018) Anthology [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:F96E5F65FC2CEBC5B3C80373FB702E67F853B520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ Sheryl Crow - Everyday Is A Winding Road: The Collection (2013) [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:F34EC2AB4D73E882EC361ACD55F914F6DC391CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ Sophie Lloyd - Delusions (2017) EP [MP3|320 Kbps] <Heavy Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:5B5FC2B1787D194B08FF6C25DDC2AE7EAF16E651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

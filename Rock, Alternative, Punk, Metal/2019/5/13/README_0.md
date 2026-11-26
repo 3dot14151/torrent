@@ -22,8 +22,7 @@ Electrocution - Inside The Unreal (1993) [FLAC|Lossless|image + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:B4C52CC9A7B41D2D987ED46B420878E936BEC923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gasoline Stars - Good Looks, Bad Behaviour (2014) [APE|Lossless|image + .cue] <G
 ```bash
 magnet:?xt=urn:btih:F106FBFDFA7CD012E1B0D3833D977E622801505D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ H.E.A.T. - Into The Great Unknown (2017) [FLAC|Lossless|image + .cue] <Melodic H
 ```bash
 magnet:?xt=urn:btih:E2AC12D56087B0F299C552DA68D6FD4FBA7F877C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Javelin - Rotten Ways (2019) [MP3|320 kbps] <Hard Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:A829AC1AE323DEFFF29E6A09446F27FD6525B9CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Last Ones Left - Songs to Drink and Do... (2019) [MP3|320 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:079736D766FBAAEA947FFB380205CA0F568C4E5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Suzi Quatro - No Control (2019) Japanese Edition [FLAC|lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:2B4C1615F2787A3CE9813D1FD9F4E0286CFD1EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Rampage - Eagle´s Flight (2019) [MP3|320 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B198B963E6F963793F38A5AE61E0046B395336AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

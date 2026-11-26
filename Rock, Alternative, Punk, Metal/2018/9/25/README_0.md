@@ -22,8 +22,7 @@ Rea Garvey - Neon (2018) Island Records [FLAC|Lossless|tracks + .cue] <Alternati
 ```bash
 magnet:?xt=urn:btih:9A4FA821AABCEB295B7529511E1A24E9DAF77848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Eric Clapton: Life in 12 Bars (2018) 2CD, Compilation [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:959BA8FADDAC8CD7129F4A5C0BD96430D140B658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

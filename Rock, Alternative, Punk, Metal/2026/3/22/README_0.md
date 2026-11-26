@@ -22,8 +22,7 @@ Paradise Lost —  (с англ. — «Потерянный рай») брита
 ```bash
 magnet:?xt=urn:btih:79E3B0CECF25E9F7A3C7653215880E3104991E28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

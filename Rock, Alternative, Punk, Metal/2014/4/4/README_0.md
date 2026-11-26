@@ -22,8 +22,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:21AA0ADDAE57BD1199E925550E548FEC6EEED952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C643E35ABBC70D7EC9FC0E8B12285DA688BEBB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Nazareth - The Very Best Of (2001) [FLAC|Lossless]<Rock, Hard-Rock>
 ```bash
 magnet:?xt=urn:btih:239319849F7FD4B9B203BAEA08F313146FE9DF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Gotthard — швейцарская рок-группа, основанная С
 ```bash
 magnet:?xt=urn:btih:C7FFA7D00EF3A3AE1CB5FCD93F4842EB939606D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

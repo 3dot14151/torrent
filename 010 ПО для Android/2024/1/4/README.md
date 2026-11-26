@@ -19,8 +19,7 @@ Astrological Charts / Астрологические Карты Pro v10.5 [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:561BD9FF196904575B70A777EC18CA2E24B2CE83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

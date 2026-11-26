@@ -19,8 +19,7 @@ Peter Jackson's King Kong: The Official Game of the Movie (2005) [Ru] (1.0.0.1) 
 ```bash
 magnet:?xt=urn:btih:BBAA4AE654EF4FD41A3E6D96C8B030AF960B5930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

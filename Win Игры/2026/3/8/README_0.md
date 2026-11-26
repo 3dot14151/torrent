@@ -19,8 +19,7 @@ Reigns: The Witcher (2026) [Ru/Multi] (1.0.3617) License GOG
 ```bash
 magnet:?xt=urn:btih:0A67BB2D14D5D1CE97F8D33C845FADB3B1700C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Book Smugglers (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:37DD37F14FD22244C023FCE83FF5B9D56BD6388D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack Other s [Master Ass
 ```bash
 magnet:?xt=urn:btih:637D4BD7B2788C2BA6D7017FBE9C2527248588FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Carmageddon: Rogue Shift - это жестокое состязание, где 
 ```bash
 magnet:?xt=urn:btih:A8D4AF837AE93A7BA7D7DCBD96C5359278FC8B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Onirism (2025) [Ru/Multi] (Build 2213289) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3D85F7B2A53CAF2744762A030085DDE616D485EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tank Mechanic Simulator (2020) [Ru/Multi] (1.6.2/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9AFF0B7FBAF13CEB6F5BC486A1A2D86124346CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Planet of Lana II удваивает масштаб первой части, п�
 ```bash
 magnet:?xt=urn:btih:CA2A6715B78C858475F3C193E02AD7C9C896CA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Subnautica – это своеобразная и удивительная ко�
 ```bash
 magnet:?xt=urn:btih:C915405687A0B37EC88C64D7ED738BB2F7A07FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ SHE WAS 98 (2026) [Ru/Multi] (Build 21510625) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D4668601648B770E3428E1472F2F409DBF4C2EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Of Ash and Steel - ролевая игра от третьего лица с о�
 ```bash
 magnet:?xt=urn:btih:AC5FA4B811B08D283CE21BEF25E214253D01C7EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) Repack sel
 ```bash
 magnet:?xt=urn:btih:33E0F94186AC63E6CC3B741E32CC4C89AD61393D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack HardwareMini
 ```bash
 magnet:?xt=urn:btih:EF0499B749FBAB067113B2341023ACBD7CEF3D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Neva (2024) [Ru/Multi] (Build 21964472/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6945DA80A9160E641BFAD7CE9C6AE30B577D0FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Legacy of Kain Defiance Remastered (2026) [Ru/Multi] (1.0.6-1239687/dlc) License
 ```bash
 magnet:?xt=urn:btih:F714E4F5ED6DA3FCF98B377738F0E4C69F4CB8D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Planet of Lana II удваивает масштаб первой части, п�
 ```bash
 magnet:?xt=urn:btih:E0617DABC6052E50B4A1D2F479E9B011011C28B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Planet of Lana II удваивает масштаб первой части, п�
 ```bash
 magnet:?xt=urn:btih:4599A175C7B6C76A96DCB0E22EEF8ED87D0EB927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Planet of Lana II удваивает масштаб первой части, п�
 ```bash
 magnet:?xt=urn:btih:4FD75A70F2188219D7C60F0FF5F5F7FC4E80D6C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Wicked Seed сочетает элементы survival horror с пошагов�
 ```bash
 magnet:?xt=urn:btih:786F69F48F0D23A16791FCD56B25065A089107D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ STAR WARS Jedi: Survivor продолжит повествование о жиз
 ```bash
 magnet:?xt=urn:btih:AD48FBE7336D2C5598367A39B63CEC7158507D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ R.I.P. органично сочетает град пуль из Vampire Surviv
 ```bash
 magnet:?xt=urn:btih:357FA402B2646D8A4B05D8AFAF4BB645329504C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Alan Wake Remastered - в этом отмеченном наградами ки�
 ```bash
 magnet:?xt=urn:btih:42E234F4FEB0C1D0B9134BD07AECA701F9FC1A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ Echoes of the End - кинематографичный приключенчес�
 ```bash
 magnet:?xt=urn:btih:84DF22B52715BC79BA3C72D5AAD825D8E112DD2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

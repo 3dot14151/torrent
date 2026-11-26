@@ -19,8 +19,7 @@ WeBuilder - редактор веб-страниц с подсветкой си�
 ```bash
 magnet:?xt=urn:btih:FAEC00B94F8631ABF45C103EDB9D36300E87FD64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PassFab for Excel мгновенно восстановит или удалит 
 ```bash
 magnet:?xt=urn:btih:9A740CCAA116F20C488C40177F037BB867701EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

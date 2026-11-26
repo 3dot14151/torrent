@@ -22,8 +22,7 @@ A4 Big Saarinen - We're An American Band(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:CCF17B19978E02F061A45469741DBC0D06EC37C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Favourite Love Theme From Tchaikovsky's ''Romeo And Juliet''(   Читать 
 ```bash
 magnet:?xt=urn:btih:3D7D9C72EDC680AB97ED20B924505ED891DD990A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Manovalanza - Anziani A Vent'anni (2011) [MP3|320 кб/с]<Ska-Core>
 ```bash
 magnet:?xt=urn:btih:8A8A7872AF283B01E0AEEEC4FC4DCE0204196BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Mystic Prophecy - Best of Prophecy Years (2013) [MP3|320 кб/с]<Power/Speed/Th
 ```bash
 magnet:?xt=urn:btih:3B9CE0464086510B9AE6523B2FDD983581A2E147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:2CC243C6052B6767312E5284D503942519757601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Free Fall - Power & Volume (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Tegan And Sara - 7 альбомов (1999-2013) Дискография [MP3|320 
 ```bash
 magnet:?xt=urn:btih:24D3EBEE5E1D3105613CCB5592F31C1388B7EBE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Suzi Quatro - Essential (2011) [FLAC|Lossless]<Glam Rock, Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Rock Legends: The Gold Collection - John Lennon, Paul McCartney, George Harrison
 ```bash
 magnet:?xt=urn:btih:B9B035C831B745FB4CDFAC0AAFC286A93DF64648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

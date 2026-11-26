@@ -22,8 +22,7 @@ Reamonn - 5 Albums (2000-2008) Full Studio Discography [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:8212AB87A421A94FBCC2C6760961DFEBF910F3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Coldplay - Kaleidoscope (2017) EP [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:6EDC8C304B419F9744B403417E8B91BBB680344F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

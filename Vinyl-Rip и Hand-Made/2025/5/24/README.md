@@ -22,8 +22,7 @@ B1. Warmageddon(   Читать дальше...   )Жанр: Nu-Metal, Groove, T
 ```bash
 magnet:?xt=urn:btih:A6BA63258CFA7EEC13DA0FF4E08AC956D1207424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

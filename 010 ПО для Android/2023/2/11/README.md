@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8DE4D9B21BB4C59FEFDF4EEA756157FF32C9C5C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VPN Russia - VPN сервера в России 1.158 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:DFCB79DAE9F731B6323E2EFDEC62E919E4B5D678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77F4822672A3DC9D685405200AB01DAF66BDEFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

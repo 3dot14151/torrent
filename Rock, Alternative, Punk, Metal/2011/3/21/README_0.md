@@ -19,8 +19,7 @@ Suzi Quatro - Star Collection (2010) [MP3|320 kbps]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:4B131AA668D055DBCDDF5950559DC4C9715A7730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ The Mamas And The Papas - California Dreamin' - The EP Collection (1965-1967) 20
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Original Album
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Amon Amarth - Surtur Rising (Ltd. Ed. Digibook) (2011) [FLAC|Lossless]<Melodic D
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:DAA53F6F0E61174AAFE00D59690187CA9278E380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:FD6EDD75C52BFF0A637C6740FD1ADDE85BFC0B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Slimjet 4.0.1.0 Beta + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4F6266662D5CA9FD67A2121596B6468C394D58D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Arch Enemy - Stolen Life (2015) Japan Tour EP [FLAC|Lossless]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:54C5E5B7D1DE6EBF870620E753E71C52907A0E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Jelly Jump 1.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A46D02F0A0329B3BC546CB3C4AED8C8C31B613C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FB4FF364E8D98264DE5ABB4394DFAFA7D36F004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Dance In Moonlight (2015) [MP3|320 кб/с]<Chillout, Longe, Ambient>
 ```bash
 magnet:?xt=urn:btih:2267BE143A93F7BF5AFD7986101E9C764FE4A696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCFA14EE5524A35A119556DDB63948AB0ED1D12B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33841C5662B457C70D08D8FFDD0C585D58AA41A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CC575C5B7CA0FF55E179DAF70C4085AE76C121C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ VA - Elektroanschlag 2015 (2015) [FLAC|Lossless]<Dark Ambient, Industrial, Rhyth
 ```bash
 magnet:?xt=urn:btih:C14FE75F9734A4B69CCD27E7CB8D044942A2D086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ SlimBrowser 7.00 Build 119 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5B7A44C50C232F4533CABD8AA3928B1967FEE2C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B22EA99C0A34BF12FF5406F81D595B31856F3AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Celldweller - The Imperial March (2015) Single [MP3|320 кб/с]<Industrial Meta
 ```bash
 magnet:?xt=urn:btih:D4C6ED58556C9F970FFCB6559F92326CD1FF8861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Koan (Feat. Fatum Sci-Fi & Tatyana Kalmykova) - The Sleeping Voices Of Subarctic
 ```bash
 magnet:?xt=urn:btih:FC1C8ADADCC2BE55F8A21677B2C5BFB5D1724D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA36427C1EB769BEA2742ACAFA97F64CB66F0363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Aiseesoft Blu-ray Player - универсальный в работе "все в
 ```bash
 magnet:?xt=urn:btih:D5BF3794A5925867C2030630A30462D65ABCF8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2A60B56B69DC75EEF45D984D1DF5F47E69E3041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Long Arm - Kellion / The Stories Of A Young Boy (2015) [FLAC|Lossless|WEB-DL]<Du
 ```bash
 magnet:?xt=urn:btih:7CEA905680BA3DADC33B4B86EDDFB5D73B91EF65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18216AEB88C5BC33627B0F47958B63766955CC58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1262180BB9B53E1EEC9421F5C4FE4974EC2CB6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ Fish Farm 2 - продолжение увлекательной игры где 
 ```bash
 magnet:?xt=urn:btih:37C307EE789746CA72329AC3039EB0FA9B4CCF95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF7B0DBE42B18B55B40EF3CBDCCC6506C3882211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0208821CB9BD66D110F07E05076F3B9FB50967AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:220F51F24FB41C40448948746A18F3E02FD98BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ Koan - Fiction (2015) [FLAC|Lossless|WEB-DL] <Downtempo, Psychill, Ambient>
 ```bash
 magnet:?xt=urn:btih:C924991C02736A58C495E4A5FDA473C4BCC98F88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B12651A678E7398468023CAB73ADFDCB67853B87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

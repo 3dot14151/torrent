@@ -19,8 +19,7 @@ Stardock SpaceMonger - это сканирование, отображение �
 ```bash
 magnet:?xt=urn:btih:87E931116DE4F8BB24844DF39D0A6106D0F74504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

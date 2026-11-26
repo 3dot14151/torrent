@@ -28,8 +28,7 @@ Ct2wtp & Katalonia - We don't have a leader, we're collective (2014) (Split)  [M
 ```bash
 magnet:?xt=urn:btih:168185AFFF613E5470AC78E513682E57DFE1E9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Frater - Into The Light (2012) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:74482F584D94439AB61C11A9BA91BF269BF5CE10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ The Last Day Of April - And Say Hello (2010) EP [MP3|320 кб/с]<Alt. Rock | Fe
 ```bash
 magnet:?xt=urn:btih:DAAEC76D436DB1A8209B0722A98206AD0C645705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Redwood Hill - 2 Альбома, 1 Single (2013-2014) [MP3|320 кб/с]<Post Bla
 ```bash
 magnet:?xt=urn:btih:4FE8EE352F3E84762DEE3162F02142A42D30FFA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Close Your Eyes - Line in the Sand (2013) [MP3|320 кб/с]<Melodic Hardcore/Har
 ```bash
 magnet:?xt=urn:btih:92BAE7FCABF19B0B4841BA15D1C70D0348B48E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Bloodbath - Grand Morbid Funeral (2014) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:36031354B9024C55F3054D82D52A16B9F3098A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Dysphoria - The Apogee (2014) [MP3|320 кб/с] <Deathcore/Mathcore>
 ```bash
 magnet:?xt=urn:btih:CB249DD0957AE3BB31902076A9C437271BBF8C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ Kaledon - Antillius: The King Of The Light (2014) [MP3|320 кб/с]<Symphonic Me
 ```bash
 magnet:?xt=urn:btih:546F6B0DB4DCB4096CE30DD96A8C618A1E612785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ In Divinia - Unthawed (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:608E7E6C19DCC3695EBA538D3A970A89B21ABFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2CB430EED0FE7E1F77CD208BFD33AFE4C7BEA1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +344,7 @@ Within Temptation feat. Xzibit - And We Run (2014) EP [MP3|320 кб/с]<Symphoni
 ```bash
 magnet:?xt=urn:btih:3024B7A1D670F0DC40D4702089602A86BCC326E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ VA - The Art Of McCartney (2014) 2CD [FLAC|Lossless]<Rock, Album Rock, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:0B3A075B6B6860C558F654AC752455EAA08459AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ HITMAN 3 (III) (2021) [Ru/Multi] (3.190/dlc) Scene Razor 1911 [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:BF7DF738404F74B8DC3D50E0A8BAAA9472D3B001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Amnesia: The Bunker - хоррор от первого лица от созда�
 ```bash
 magnet:?xt=urn:btih:4FBFFF0DDFF39AE048EE38D77CD7BC0BAFABB1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98C1E8BADB4488BD8C042C647743FF906266256F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Murders on the Yangtze River переносит вас в Китай начал�
 ```bash
 magnet:?xt=urn:btih:347AAE75FD28BD8FC53900AB7F00A457C99CDBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ultros представляет собой 2D платформер, которы
 ```bash
 magnet:?xt=urn:btih:73F7BD6DCCDCFDA5ED29C7E9689807EFEBB8E214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

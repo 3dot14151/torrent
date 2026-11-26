@@ -19,8 +19,7 @@ DVD Audio Extractor - небольшая программа, призванна�
 ```bash
 magnet:?xt=urn:btih:3FF8E29039A365A446F8C64EDC92A9A261905FDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

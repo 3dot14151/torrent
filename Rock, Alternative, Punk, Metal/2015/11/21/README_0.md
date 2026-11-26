@@ -22,8 +22,7 @@ Gall - Anonym (2010) [FLAC|image+.cue]<Neo-Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:58AB65C8B885D4D5BFA31B04265498DAA0CE0D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Zonder Kennedy & The Scoville Junkies - Hot Water Music (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:D2782EDA611CB5CBEF9B568E7263B57C9A91B4EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Phantasma - The Deviant Hearts (2015) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:389B8480F8482BBE646084C0163088DE9C70A23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

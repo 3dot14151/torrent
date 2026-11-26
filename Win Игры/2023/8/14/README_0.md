@@ -19,8 +19,7 @@ Dark City 8: Kyiv / Мрачный город 8: Киев (2023) [Ru] (1.0) Unof
 ```bash
 magnet:?xt=urn:btih:6D14EA116A976967A8E11E299313F10FE8A0851C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Greyhill Incident – проект, разработанный в жанре х�
 ```bash
 magnet:?xt=urn:btih:80D80D2C5FDEE8DD0A012643B190515F5E827078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cat's Request (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E2A9088A66AAB55F313DAD8B5725F76635993143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ultimate Epic Battle Simulator 2 (UEBS 2) – приключенческий б�
 ```bash
 magnet:?xt=urn:btih:1F050F94CB78DC8FB7F3F6130B5E230BB07843BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

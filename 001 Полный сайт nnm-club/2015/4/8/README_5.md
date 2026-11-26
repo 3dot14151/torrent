@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2C977F6F20A666BAC72975FC5E1D6A7D28E1549D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DDCE8457C8A82D78257017D26BBA76A25C137F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Great British Trance Vol. 1 (2012) [MP3|320 кб/с]<Trance, House>
 ```bash
 magnet:?xt=urn:btih:D54769EB64207DF75DEA835CF18B6C5C310EAD1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:825B461E258A7A69364C987AD70477911290C24F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ We Watch Clouds - Unclassified (2015) [MP3|320 кб/с]<Screamo, Emoviolence>
 ```bash
 magnet:?xt=urn:btih:B45FA47BB874FC561FCFABF9BC712F509ECE52B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F27F153A6F3C24BA46043024933FAA349ED7718F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Evan Parker & Joe McPhee - Chicago Tenor Duets (2002) [FLAC|Lossless]<Jazz, Avan
 ```bash
 magnet:?xt=urn:btih:33921E761A1582C6C2699F2A01D12EB6A47CD66A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8EFE93CF41F451D2DFDB4DDFA8BE9B491385F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEB19C33FE779ADBFDD38EC76804132B4FB62DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ Will Boulware - A Night In Tunisia (2005) [FLAC|Lossless]<Jazz, Jazz Fusion>
 ```bash
 magnet:?xt=urn:btih:FC14A282F171E16E08AA318D36A068AEF4AF8BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ The Shape - Waveshape Fiction (2014) [FLAC|Lossless|WEB-DL]<IDM, Techno Ambient,
 ```bash
 magnet:?xt=urn:btih:571FBC22FFDF5CB8932B34BCDFB2FBFED1DBF33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F43ED8B11C882B9B555E50D7794052F4CB106BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13BB4DE966FC0C2C096CA591A014F5FE2BEBA920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Kaya Project - The Ambient Mixes (2014) [FLAC|Lossless|WEB-DL] <Ambient, Tribal,
 ```bash
 magnet:?xt=urn:btih:A2239211680CA75573033EA51E93A2EADA2CDC51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Charlie Parker - Best of the Complete Savoy & Dial Studio Recordings (2002) [FLA
 ```bash
 magnet:?xt=urn:btih:2C1E968625537F1783DB675B35C47916AA3BE651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Chugger - Human Plague (2015) [MP3|320 кб/с]<Melodic Death/Groove Metal>
 ```bash
 magnet:?xt=urn:btih:9BA7CD8BD476EE7BF7F243E0B012CF2DA6D4E35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:078D4F1E6D2B08C32182773B08AAAF926AAEAD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2239D44D8AFFCEA9D46A4A3991164B1C4569A676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Therapy? - Disquiet (2015) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:1E01D53A35A869F706B42376F8F2DFBA065F8334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ Total Movie Converter - многофункциональная программ�
 ```bash
 magnet:?xt=urn:btih:6F366B6257B88920F13648FCFB4BB67D8002CC33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ VA - Music For Everyone - Chillstep & Dubstep Vol.3 (2015) [MP3|320 кб/с]<Chi
 ```bash
 magnet:?xt=urn:btih:BAB470676A4A3079B53E5406448397A4CE67CE2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:EA6C0CA165E7780A7F9C6475FCDB2497A555CEA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ VA - (OST) Test Drive 2002 (2002) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:AA70B95F5249AA28B2DE38935A8D7207A44DFACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C95B6F39E69DC3C5490785141C72818590A10DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ EagleGet –мощный и удобный загрузчик файлов из 
 ```bash
 magnet:?xt=urn:btih:311937CA1C8BC84DB8373E00171DE8E058BC9CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

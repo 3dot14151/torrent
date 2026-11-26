@@ -19,8 +19,7 @@ Moises v1.3.1 Premium [Ru] - Муз. платформа с ИИ + удалите
 ```bash
 magnet:?xt=urn:btih:7452FB1F87695047F265C4FF281406A7F1847F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Raymond Murphy’s English Grammar in Use.
 ```bash
 magnet:?xt=urn:btih:ED923A907BBF227652A14CF361116BA493F3366C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

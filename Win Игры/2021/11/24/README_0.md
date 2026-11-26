@@ -19,8 +19,7 @@ Mystery Case Files 23: Incident at Pendle Tower (2021) [En] (1.0) Unofficial [Co
 ```bash
 magnet:?xt=urn:btih:FB6AA5198CF7F5125B58E6B2BAE0D45885839AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Henry's Day PLAZA (2021) [En] (7617791) License PLAZA
 ```bash
 magnet:?xt=urn:btih:F8DC77398722B00FC8C5508FCEC15BCBF7B10B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mido and Di (2021) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:C5D06B1A56B7216198F43944E110CE1C6325C58D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Darksburg (2020) [Ru/Multi] (1.0.11.17957) License CODEX
 ```bash
 magnet:?xt=urn:btih:195BF87EC40F2AA420182F4D3F03F8C77D063708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Undungeon - это action-RPG, которая переосмысляет жан�
 ```bash
 magnet:?xt=urn:btih:935A1734BAF5F9521397BCC0B5BA72B52F3855E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dungeons & Dragons: Dark Alliance (2021) [Ru/Multi] (1.20.1370/dlc) License CODE
 ```bash
 magnet:?xt=urn:btih:84D67B1051C975598FE5F3264F87658BA5A26E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:6727DDBAB1C47846FA52E37E23D51591DA2BD391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03BADACA99BB5CB1DF36ABC97B831A628AE4F280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - RETROспектива, часть XVIII. Зарубежные исполн�
 ```bash
 magnet:?xt=urn:btih:64E0A7817962C1675FCE0D75B0081BAF5343C3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - RETROспектива, часть XIX. Зарубежные исполни�
 ```bash
 magnet:?xt=urn:btih:081C4F9BBCD987819C2DA407F4F31920DDF4EBEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - RETROспектива часть XX. Зарубежные исполнит�
 ```bash
 magnet:?xt=urn:btih:BE66C27B17D5DF7B2609ED8FC6E6497062986E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Мелодии экрана, 9 серия (1962) [FLAC 1.0|96/24|tracks|Vin
 ```bash
 magnet:?xt=urn:btih:3C871B9FA6E8EE259BECE614FB616DC4419B1FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - RETROспектива, часть XVII. Зарубежные исполни
 ```bash
 magnet:?xt=urn:btih:18FD43E55A64EF0B77E42C5304BA11003F404DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ A4 Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: C
 ```bash
 magnet:?xt=urn:btih:F52221C668449D2F6388AB942984951CCC20E3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ B  Александр Градский - Памяти Джордано Брун�
 ```bash
 magnet:?xt=urn:btih:87FB0F582AB4026A874A9029F2DF0EF5D2CE59C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - RETROспектива часть XXI. Зарубежные исполнит
 ```bash
 magnet:?xt=urn:btih:02AF04C9BF7A7499A0397B6A9426AA131106CF9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ A4 Take Me To The Pilot(   Читать дальше...   )Жанр: Pop RockП�
 ```bash
 magnet:?xt=urn:btih:8B6A5C76EDC4B147114E5666F003D6092DE7319A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Мелодии экрана, 17 серия (1968) [FLAC 1.0|96/24|tracks|Vi
 ```bash
 magnet:?xt=urn:btih:7F1847AC70BDA4AAAE0EF665A615F953436BB96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ A4 Сын Моего Отца(   Читать дальше...   )Жанр: Jazz,
 ```bash
 magnet:?xt=urn:btih:6D93D07164B63F6BE4D6F61FF25AC285031D7E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Robert Wyatt's Meltdown Concert
 ```bash
 magnet:?xt=urn:btih:E05AA20ED15F99C04BEC6D8EA5D95BF8E8C0DB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Rock Remakes - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.
 ```bash
 magnet:?xt=urn:btih:D8D0BB1F761B06C3834CA52614E589D708E00026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ A4 Плач (Crying)(   Читать дальше...   )Жанр: Hard Rock, Hea
 ```bash
 magnet:?xt=urn:btih:21C439EF8CBBA8BCAEA6448CF53FD2A93F10D798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Romantic, Modern, Contemporary, Jazz, LatinПродолжительность: 0
 ```bash
 magnet:?xt=urn:btih:8D8B783A92A7B1CB92854035CFDCC6B53FD27A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

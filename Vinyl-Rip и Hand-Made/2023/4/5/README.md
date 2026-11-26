@@ -22,8 +22,7 @@ Lafleur –	Dance Till We Drop(   Читать дальше...   )Жанр: Elec
 ```bash
 magnet:?xt=urn:btih:36C9E0021C95E737A6D918DC2A50EDEF9B9AAB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 What Do You Live For 4:06(   Читать дальше...   )Жанр: Electr
 ```bash
 magnet:?xt=urn:btih:2E8967413514C5C77F8BC9E912ADDF3055BB071D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

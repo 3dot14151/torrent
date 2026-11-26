@@ -20,8 +20,7 @@ Print Conductor автоматизирует массовую печать фа�
 ```bash
 magnet:?xt=urn:btih:EE9C30A940BC8311790F73D1C53F95A9E2E4EB22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ NAPS2 (Not Another PDF Scanner 2) - очень удобная оболочка �
 ```bash
 magnet:?xt=urn:btih:4CFAFF2DD0107E54960DA0DD765A6FE74B67C508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Marine Aquarium - без сомнения, одна из самых красив
 ```bash
 magnet:?xt=urn:btih:B0C26FD5ADA2EC9AB4A301B998760457D9F6A0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

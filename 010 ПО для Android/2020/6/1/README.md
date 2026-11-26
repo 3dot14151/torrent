@@ -19,8 +19,7 @@ UFO VPN 2.3.10 [En]
 ```bash
 magnet:?xt=urn:btih:568B4FC21CC2E8D8A63E00C1A81376C80321F67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

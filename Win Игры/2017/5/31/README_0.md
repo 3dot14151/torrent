@@ -19,8 +19,7 @@ Royal Detective 4: Borrowed Life / Королевский детектив 4: Ж
 ```bash
 magnet:?xt=urn:btih:D04DF1C4D27AFF487522E51B7D88824BD03747DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Forgotten Fairytales. The Spectra World / Утерянные сказани�
 ```bash
 magnet:?xt=urn:btih:9750F6D499135C443E2C70B6C83EF69914AAE3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Edge of Reality 2: Lethal Predictions / Край Реальности 2: Сме�
 ```bash
 magnet:?xt=urn:btih:01E929534FE25A030466DD174ADA4822C67D9BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

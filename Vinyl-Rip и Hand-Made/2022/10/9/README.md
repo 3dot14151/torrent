@@ -22,8 +22,7 @@ A4 Всю Ночь • All Night Long(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:BA387D8B0DCBC532BCA999543DC9270E9A70FED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

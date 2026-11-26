@@ -22,8 +22,7 @@ Metallica - Unload (Bootleg) (1999) [FLAC 16/44.1|Lossless|tracks|MC-Rip] <Acous
 ```bash
 magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

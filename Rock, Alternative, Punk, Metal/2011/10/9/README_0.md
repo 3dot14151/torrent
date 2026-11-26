@@ -28,8 +28,7 @@ Regain The Legacy - Collapse Of Ideals (2011) [MP3|320 kbps]<Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:0A3E8C80AFDB251435DF83242C525373250FD1D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ABSOLUTELY NOTHING GOOD - это инди‑хоррор от первого �
 ```bash
 magnet:?xt=urn:btih:2C4C681E1558F88EF8ADAA2FEEE2671CEA82EDEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unsolved Case 7: Whispers Of Elderwick / Нераскрытое дело 7: Ше
 ```bash
 magnet:?xt=urn:btih:D486C5155BDAC29E7C66D2F89CED47847E12398E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mind Echoes 3: Broken Vow (2026) [Multi] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:76AFEBACBB0427DA7F7D9F44EE11846FD438DB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

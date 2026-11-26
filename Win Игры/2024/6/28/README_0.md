@@ -19,8 +19,7 @@ Detectives United 7: Mission Possible (2024) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:D5CBBAC8C8D318D230EA4084254A67C6437F764C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Diatomic - непринужденный аркадный шутер, где ва
 ```bash
 magnet:?xt=urn:btih:C279FCED825B824986EF53B962EDEF9BD6F66562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Riven (2024) [Ru/Multi] (build 1294) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:835838D0405A752A4AA7A2E2F990D0C80A25E9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fork Road бросает вас с головой в тускло освещен
 ```bash
 magnet:?xt=urn:btih:DBE8726FDAB68E9C3B2C7010228B409EC024C9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Russian Village Simulator / Симулятор русской деревни (20
 ```bash
 magnet:?xt=urn:btih:F97D18E11C96B318CEFF729487ACB5E598AF80F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8586C2EC7FDF1CE7C25343A7C94EC6FC322E9235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ COCOON (2023) [Ru/Multi] (20240222) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9BA3221EAF4FF78D5E92C518383DF585C52336B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Ghostboy – хотите открыть для себя мир психичес
 ```bash
 magnet:?xt=urn:btih:97B212B26C99D608A17F15366538FB944E1CAE25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

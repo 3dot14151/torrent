@@ -21,8 +21,7 @@ VA - 25 Years Of Anjuna Mixed by Elevven (2025) [MP3|320 Kbps] <Trance, Progress
 ```bash
 magnet:?xt=urn:btih:B57BD4FF1A59D9820A3C427EB7E0A5D6EBBEE519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Oxtopus — это элегантное и удобное мобильное п�
 ```bash
 magnet:?xt=urn:btih:2B53DB5D590FA73A6AF16E667FBD275A254752AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B404172EFEB42C38C6E51868ADD9A428C42E8C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ GHOST поддерживает пользовательские волновые
 ```bash
 magnet:?xt=urn:btih:DA9FC48F5CC97DC6DAE6001954D0574B30C86FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17D211CF85FC3A078D30D57EC494DE7F4FA1E5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ HOFA Color Delay предоставляет вам все знаковые зв�
 ```bash
 magnet:?xt=urn:btih:069CF5C4F69B4991F22FFCF005ACA80BBEFE906E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Serati - бесплатный шрифт.
 ```bash
 magnet:?xt=urn:btih:11872B8FB2A3223CDFC591998DE64EC663592591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4EEA9D51DEBBBDD2AE44910019A0FB12DBBC713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6EF4B321E124C7FF274A1183B7A69BFDE82B204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Balhattan - бесплатный шрифт. Шрифт Balhattan содержи
 ```bash
 magnet:?xt=urn:btih:25ABA9983C907CA3273C838AB6319526CBA9757E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Velial Squad - Бельмо (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Ho
 ```bash
 magnet:?xt=urn:btih:9667BFEB9F459595F14BF7A8394AE644C87189FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Malevolence — английская металкор-группа, образо
 ```bash
 magnet:?xt=urn:btih:CC52E89ACE0CABAA173E459C9B4B8374EF9611B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Siege Of Power - Warning Blast (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:5176F447C1BA6DF3765A21EF0A391F2EF6F7B233
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ The Crown - метал-группа из Тролльхеттана, Швеци�
 ```bash
 magnet:?xt=urn:btih:5E5BB30CC681B13E9ED75B758874BD1F3347BFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

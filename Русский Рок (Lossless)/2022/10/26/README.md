@@ -22,8 +22,7 @@ Kiara - Archangel (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female 
 ```bash
 magnet:?xt=urn:btih:64D349532717B190923C06054FF224474007A703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2020.09.15 [Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

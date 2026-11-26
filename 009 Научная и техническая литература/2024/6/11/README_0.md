@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:4CCAA5861F59946B134FC5CE87F17C6EA814D05F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ authentic texts from a rich variety of sources, literary and non-literary, used 
 ```bash
 magnet:?xt=urn:btih:4A5A58CE53BAD8491EF632B9324CA5C501E79555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Using authentic texts from a variety of contemporary sources such as newspapers,
 ```bash
 magnet:?xt=urn:btih:C0B3B4EDB2977E4B118F89DF822C23238D81A968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

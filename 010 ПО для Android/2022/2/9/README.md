@@ -19,8 +19,7 @@ Music Theory Companion v2.6.3 [En]
 ```bash
 magnet:?xt=urn:btih:F9C37F88CBE2BFEBE57DE980249CF02074B02B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

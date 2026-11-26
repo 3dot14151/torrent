@@ -19,8 +19,7 @@ Dark City 7: International Intrigue / Мрачный город 7: Междун�
 ```bash
 magnet:?xt=urn:btih:31555E6D8B2877155E4918BB39146CD7D4FDECA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Danger Forever (2022) [En] (845) License GOG
 ```bash
 magnet:?xt=urn:btih:DC260F068A5F08EDF4CDD632AC83D859A07CD2B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ New York, 2034: вы просыпаетесь после того, что каз
 ```bash
 magnet:?xt=urn:btih:8EC7B37155FD6C7280671033E2CF7110725A80FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

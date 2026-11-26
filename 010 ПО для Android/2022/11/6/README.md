@@ -19,8 +19,7 @@ PREQUEL — это фоторедактор с огромным количест
 ```bash
 magnet:?xt=urn:btih:C81FF156349E4EE71C6BC85AEB5267544523D6A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

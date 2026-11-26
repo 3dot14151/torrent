@@ -20,8 +20,7 @@ Waves CPC — это семейство пиксельных шрифтов, к�
 ```bash
 magnet:?xt=urn:btih:635872C8459A820D139B68BB77AFEE4B0CA6B56E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Faithless - All Blessed (2021) Deluxe - Explicit, 2021, BMG[FLAC 24/44.1|Lossles
 ```bash
 magnet:?xt=urn:btih:EE4D0B054F781B087EDD50D20E65A2021A49D012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Faithless - Champion Sound (2025) [MP3|320 Kbps] <House, Trance, Trip-Hop>
 ```bash
 magnet:?xt=urn:btih:BD43965B5847F54A7B82EF87C27CA086E941150C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Umami представлен в 18 начертаниях — от Air до Supe
 ```bash
 magnet:?xt=urn:btih:2BDB3FB9981AA9220B9493A716BC3EF4BF4BB123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Квалифи�
 ```bash
 magnet:?xt=urn:btih:FF1597AAEC1325DE94C5007616A37596F94E594E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8778429B33243AEB5C90C1D197826381870DDAC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Спринт (0
 ```bash
 magnet:?xt=urn:btih:E4CFB8D57270E77BBB1E999829499A52913CC652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ El Michels Affair - 24 Hr Sports (2025) [MP3|320 Kbps] <Progressive House, Downt
 ```bash
 magnet:?xt=urn:btih:A45C511964AF892B7C2EABDC6353D66ECF3801F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Гонка (07.
 ```bash
 magnet:?xt=urn:btih:A706E106D138B6074DD95DF2A4EF86111AC38A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA11579FAD35ABAEB47EF45F092CE98D06EFC053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD7353162E6BC58760ABCA3750E858208ADF8AF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD9EA3CD6F16A37921D77E34ED7AD95E54169808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3B231A8F832D2269EDE3695AF77FB15640C25C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

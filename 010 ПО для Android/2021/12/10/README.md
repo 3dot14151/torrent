@@ -21,8 +21,7 @@ Sectograph - это (   Читать дальше...   )Тип издания: 
 ```bash
 magnet:?xt=urn:btih:641910550A67FDAE6DFD984D5D3FE6D44BCFF047
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

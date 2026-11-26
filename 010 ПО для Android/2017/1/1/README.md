@@ -19,8 +19,7 @@ WPS Connect 1.3.1 (Beta) [Ru]
 ```bash
 magnet:?xt=urn:btih:D9EDA494C6DCB456B2F07FB7757E1C8343C07639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

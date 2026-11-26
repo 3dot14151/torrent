@@ -23,8 +23,7 @@ Arndt von Koenigsmarck | Cinema 4D 10 [2007] [PDF, +CD]
 ```bash
 magnet:?xt=urn:btih:A5601BB55F52D68F15DC356783E898EFDBCB0C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A32655200B9D1208122F58874DBF7BBB4550D368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

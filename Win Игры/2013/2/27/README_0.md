@@ -22,8 +22,7 @@ Imperium Romanum - Gold Edition [En/Multi3] (L/1.04.147) 2008 | PROPHET
 ```bash
 magnet:?xt=urn:btih:B2F13FA83AAE97CB31E1641E1E00F87E702EBD5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Gratuitous Space Battles + 8 DLC [En] (Steam-Rip/1.62) 2009 | R.G. Игрома�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

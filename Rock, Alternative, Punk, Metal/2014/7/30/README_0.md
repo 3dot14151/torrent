@@ -28,8 +28,7 @@ Beyond The Setting Sun - The Villain (2014) [MP3|320 кб/с]<Progressive Metalc
 ```bash
 magnet:?xt=urn:btih:E4454FF1D30325C21474B2F22999F652D0784386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Misanthropic Illness - Road Ally (2014) [MP3|256 кб/с]<Hardcore Punk, Female 
 ```bash
 magnet:?xt=urn:btih:B530601B661CA8D3EB2877782F09F3F5CBC2B2A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Eric Johnson - Europe Live (2014) [MP3|320 кб/с]<Blues-rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:A61F87A73D331917857C24C4731A1D4AD038F0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ The Sorrow - 4 Альбома (2007-2012) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:92CB780BC90F3C1F6D8C2D8D0B2033B7E70028B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Capture The Crown - Reign of Terror (2014) [MP3|160-320 кб/с]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:3CBFF42E62B333B9D18BDFD069A575A07F614FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:182FED33B7DF71012AC4AAEFF6E0A43F51B874D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ BATTLETECH (2018) [En] (1.0.3-280R/dlc) Repack Other s [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:637E997C5B312DB2CC44567ECB0ED6B1280B018B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ F1 2017 (2017) [Ru/En] (1.13/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:199AD66BBBC6ACC80A1A76AD1D72DFF1729C1AA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AntVentor (2018) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:A52789669DE0E5D47E11D92ECCC41FE5849DA457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

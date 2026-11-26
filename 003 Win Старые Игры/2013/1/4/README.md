@@ -20,8 +20,7 @@ Celtica [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:EF455155EDCEE9802E7673A05A51B0C053DD218B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Treasure Hunter [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:70CB8170B0ED5B9A7453536CC3C19A9967C2C302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Sega Коллекция русских игр 124 in 1 [Ru] (RePack) 1992-1995 |
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

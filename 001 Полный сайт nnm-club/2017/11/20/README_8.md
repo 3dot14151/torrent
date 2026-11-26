@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Achromania - A Journey Through White Label Trance Vol. 8 (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:EDAEF599B893F92C9111A32CAAFC565A28D374DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ VA - Progressions (2017) [MP3|320 Kbps] <House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:840B4D34C5A975415CFD7CD0514737A965D8D866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - Clinique Mixed XIV (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:02D6F1A2958B5AF0EEB3F9EFBD563D02223B188A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Trancemission Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:BE9758C647BC46DE1B50B30CEFC480151A99E669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Wild & Free - Shapes On Shapes (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, H
 ```bash
 magnet:?xt=urn:btih:CD50E6BACAFCBDCFBBC47F2CCBF67F1EFC730FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Total Coelo - I Eat Cannibals & Other Tasty Trax (1996) CD [MP3|320 Kbps] <Elect
 ```bash
 magnet:?xt=urn:btih:3F7050D52DF723124EB11DD80C8269F88EF51E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:39B6FC7BCBC62E327F16BDCFCCA1E51521CE7D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Recoverworld Radio 016 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D283DD8F7964AF61BD7291911FA1693A0B5D4DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Chilling Process Vol.05 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:87B5BF1F191F099A957EC8849696576ECE602050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - Electro Party (2017) [MP3|320 Kbps] <Electronic, House, Dance, Dubstep>
 ```bash
 magnet:?xt=urn:btih:063DA35186F33D310C73EA54D01E3DAEA2CC4333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Doo превращает ваши напоминания в карты, кото
 ```bash
 magnet:?xt=urn:btih:138A6F9896DE2864E86F7EE9009C73B7A057CBBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ VA - Ori Uplift & Dj T.h. - Uplifting Only 249 (2017) [MP3|320 Kbps] <Trance, Up
 ```bash
 magnet:?xt=urn:btih:727C882C8BDEC81A4D6E4F4ABD80446BE47B4121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ VA - Amsterdam Trance Sessions Vol.13 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:A0647FF64178819477377B3096DC065164274ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38FC10F4D58C570176E41E14626DA8E0FEF21246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ Uninstaller sensei - приложение для полного удаления
 ```bash
 magnet:?xt=urn:btih:B9BA6B20B54407A1AA9995555E3BAC533A2AE34F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F648AC08DEFB2CBBEAABCB3F88C056797E62AFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ XMedia Recode - отличная утилита, цель которой - по�
 ```bash
 magnet:?xt=urn:btih:57E159350AFCEAE7717230EF73973F697699F59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01F2EEEAB40D3432D0B96FBA816E69354053DAB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ Late Night Alumni - The Ghost (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Do
 ```bash
 magnet:?xt=urn:btih:027D576ACDEA2F4C3789300B126F760AD7A2AEA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ VA - Impulse 8: Super Music For Super Car (2017) [MP3|320 Kbps] <House, Trance, 
 ```bash
 magnet:?xt=urn:btih:3452408DDFBE1C9DB45D9E5744F395511E4CBF69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ Downie поддерживает более 1,100 популярных сайто
 ```bash
 magnet:?xt=urn:btih:5795FE862E69E4A5EB80DFC1A5DA6D70BB9FFBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63D3E7F758164A1FA178023084580A2F07D3864E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8407E8126F7C54A5E613AF9FCECBDFCC4290BE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7325A18A181BDFB4658C79F3EFF662E4DF20CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:709FC512FBB163158DF99F8D702BAB84A65DC8B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

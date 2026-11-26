@@ -19,8 +19,7 @@ Planimeter  GPS - это инструмент для измерения расс
 ```bash
 magnet:?xt=urn:btih:BD6A113F8D4F9351204957F0CDB574214E3B3066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

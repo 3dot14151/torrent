@@ -18,8 +18,7 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:58AA9FFAEC625C3B78F2DD3282007173855F7A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Adobe Premiere Pro CC 2015 - это мощный, настраиваемый р�
 ```bash
 magnet:?xt=urn:btih:0A0B99681C0438890F7259CD742410AAA73D4242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

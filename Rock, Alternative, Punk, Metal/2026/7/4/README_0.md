@@ -22,8 +22,7 @@ Cornucopia - Cosmic Consciousness (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:313B0171801D792887945B19B770B5A26A86732A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Verletzen - Usurping the Throne Under the Crown of Blasphemy (2026) (2026) [FLAC
 ```bash
 magnet:?xt=urn:btih:6B3A69549DE7A7FFE48D2A7323C835ED97DEA51F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Riverflame - Lunar Crusades (2026) [FLAC|Lossless|WEB-DL|tracks] <Epic/Melodic B
 ```bash
 magnet:?xt=urn:btih:9E5501BD035949FD6F9E6FB88D10F635ABE6E949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sleeping Pulse - Dreams & Limitations (2026) [FLAC 24/48|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:5C1F8278ADB23627B3D5566993393E39D9E1F8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Chase - по-английски - погоня. И эта группа подт�
 ```bash
 magnet:?xt=urn:btih:AF2C242666011DA5925A6DC51DFE6CB4BDD154CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Uriah Heep - Firefly (1977) Japanese Edition, SHM-CD, Reissue, Remastered, 2026,
 ```bash
 magnet:?xt=urn:btih:C7A47005B3882DC6640D8D430157D6CAA11BB3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

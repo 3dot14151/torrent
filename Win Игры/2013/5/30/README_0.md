@@ -19,8 +19,7 @@ Reveries: Sisterly Love Collector's Edition (2013) [En] RePack Dizzery
 ```bash
 magnet:?xt=urn:btih:3521ED63C4C587FF4D5D97D8D73995CA05F0568C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Island of Death: Demons and Despair / Остров Смерти: Демоны П
 ```bash
 magnet:?xt=urn:btih:EC2499A57D9B3974A3EBDC8948590F5AB50BB6EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Otherworld 2: Omens of Summer Collector's Edition / Другой мир: Зна�
 ```bash
 magnet:?xt=urn:btih:085C5B5FAC3460ECBEE7411C13E10A07406D61F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Airline Tycoon 2 (2011) [Multi] (1.27/2 DLC) License PROPHET [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:EDD46D34EA21D6BAFF1905FE8AC701AB864A553A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

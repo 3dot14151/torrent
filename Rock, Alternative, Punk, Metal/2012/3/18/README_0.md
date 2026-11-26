@@ -28,8 +28,7 @@ AOR - The Colors of L.A (2012) [MP3|320 кб/с]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:E250E32021F96BE088E257450B7D5C94CD6B4AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Led Zeppelin - The Best Ballads (2002) [MP3|320 кб/с]<Classic Rock | Blues Ro
 ```bash
 magnet:?xt=urn:btih:D3B47D3AD4ED2ED6A62A390A6C53A65A3470BEB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Soulfly - Enslaved (2012) [FLAC|Lossless]<Groove Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Marilyn Manson - No Reflection (Single) (2012) [MP3|320 кб/с]<Alternative, In
 ```bash
 magnet:?xt=urn:btih:5D36375F93D9F6A5AAB926D94D020CA66C437CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Soen - Cognitive (2012) [FLAC|Lossless]<Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ George Strait - [41 альбом] Дискография (1981 - 2009) [MP3|~192
 ```bash
 magnet:?xt=urn:btih:C01CED82220A2F68D0E20566438CD391F9E6D9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

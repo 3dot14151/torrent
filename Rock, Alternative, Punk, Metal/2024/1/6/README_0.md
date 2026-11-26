@@ -22,8 +22,7 @@ Krabathor - Orthodox & Mortal Memories (2014) Compilation [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:1D8C13BA693C2A2669CDE466C7747DA1FB6CF724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Immortal Guardian - Unite and Conquer (2023) [FLAC|Lossless|WEB-DL|tracks] <Meta
 ```bash
 magnet:?xt=urn:btih:BE07747F58DD389EF4FE936E6E222299A069B36A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mursic - Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symph
 ```bash
 magnet:?xt=urn:btih:D15B625C823EA9A2733C70503A4D67A78597905D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Atomic Freak - Nuclear Meltdown (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock 
 ```bash
 magnet:?xt=urn:btih:39CA247F811FE41D60AF32C11AC4271B96D1BF50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Krabathor - Dissuade Truth (2003) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:F101AD29F51F9CC72E13C6054127BDF4798AD8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Krabathor - Unfortunately Dead (2000) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:C16B3C0344FDBDACD622664F17859EE0847F6C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Krabathor - Orthodox (1998) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:2AE301A45DCC2788A6FFC4DC8AEE7EC2D47B83E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Krabathor - Lies & The Rise of Brutality (2014) Compilation [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:B51F9886C38D5D8B7761D4AD055D45B08234863E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

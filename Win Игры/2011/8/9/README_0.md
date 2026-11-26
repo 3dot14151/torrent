@@ -24,8 +24,7 @@
 ```bash
 magnet:?xt=urn:btih:B6A6AC8A9262EA5D2D969667F68508B95CCB3215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Glowfish (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:09F4705B8C0CDD3668398F72B1EC6E226EB8510D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ TRAUMA рассказывает историю девушки, выжившей 
 ```bash
 magnet:?xt=urn:btih:1AEFF264B3EFAA0865BB7659AB10846F82D14674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Grim Tales: The Bride Collector's Edition / Страшные сказки: Не�
 ```bash
 magnet:?xt=urn:btih:AB5E4ECD96940B450B57CFBC29353622D1771416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

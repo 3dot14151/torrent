@@ -19,8 +19,7 @@ Photomyne — самый быстрый и простой способ оциф�
 ```bash
 magnet:?xt=urn:btih:CE4E11D6EF27EF6C8824B3243167831582F247B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

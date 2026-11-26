@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6A9FEEE41E5FDAAB33CE199B681760DFF8C5F1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Amber's Tales: The Isle of Dead Ships (2014) [En] Unofficial [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:DE68020C39B2CE17C5E3D1296F7A5522E2085DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0043A8A9E0ED37A497F99A29EDDC1C104C290DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Vocal Dubstep - Dubstep Light#4 (2014) [MP3|320 кб/с]<Dubstep, UKG, Grim
 ```bash
 magnet:?xt=urn:btih:CABDF97563EAC93D2BC5E4FB56E84308A5EB9921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Wallpapers - 3D Графика [JPEG]
 ```bash
 magnet:?xt=urn:btih:FE8BDCC97BA298B62C3CB9FFEDE3C77B19BB110B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14E2A93128E33A0CCD9A335C3C519979CAD764E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Phenomenon 3: Outcome (2014) [En] Unofficial [Collector’s Edition / Колле
 ```bash
 magnet:?xt=urn:btih:B0A82C3400564738D8D87E47799F74DFA2AA4FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F7B1DCA3B9DB13DF155A3EACDFB8D9A8A757542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12F7445082AF005A659A40076371C30982982E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Schubert - Symphony No.4 in C minor, D 417 "Tragic"
 ```bash
 magnet:?xt=urn:btih:E3CC839D3F8AA93E054DF1D90767DF6E82E6983B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Discovery: Невероятный небоскреб. Серия 2 / Super Skysc
 ```bash
 magnet:?xt=urn:btih:529656DBFBC6AE48ACA2BA6EFE7499AEFE16B31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Mozilla SeaMonkey основан на традиционном проекте Mo
 ```bash
 magnet:?xt=urn:btih:D1EF5510EEB047596F43BD3C8AC304F5BFFE713C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB05F08A2473B74C6E52E06BB58663C70E2AB5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1980259A08AC0B62FDC36526C51CAF8E2321F328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ Brian Eno & Karl Hyde - Someday World (2014) [MP3|320 кб/с]<Synthpop, Electro
 ```bash
 magnet:?xt=urn:btih:B7A968D3B60ABDCD240FE4BAC99E0F9D0EE40E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ VA - New Age Style - Vocal New Age Hits 2 (2014) [MP3|320 кб/с]<New age, Voca
 ```bash
 magnet:?xt=urn:btih:DFC4648C6CE06F5C1EBD9C2C7D36810994C7B00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Windows Hotfix Downloader - небольшая бесплатная утилит
 ```bash
 magnet:?xt=urn:btih:DA6BED24B87D18DFBA899F35F80818C0417BB656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC0314054F232C4FC22EB001CB321D20CCAC189F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ VA - Музыкальные новинки интернета. Весенний 
 ```bash
 magnet:?xt=urn:btih:E0C40B99C45F9D6DF3F7D5009B15D0444026C17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ Brightness Guide - выравнивает яркость фото, осветл�
 ```bash
 magnet:?xt=urn:btih:4433AC7CE08D65F8DD0145D95F44D0925BEBF561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 ```bash
 magnet:?xt=urn:btih:A600007D48DCF369D02E9A1EABDDA2FCF2659D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:581C35E8E8BC0E16C240A03BDAD07048C556E98C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFC8A7E1E2F4395170F41C84D13ECDA4684F2328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54BF2794E50A393742BCD9BDA1D566711061AC04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ Brian May & Kerry Ellis - The Candlelight Concerts: Live In Montreux 2013 (2014)
 ```bash
 magnet:?xt=urn:btih:97797B7DEDA4A765AEF47985B9B42D753077BF04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EE66873325493ED61DB50D64D22A214172B0632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

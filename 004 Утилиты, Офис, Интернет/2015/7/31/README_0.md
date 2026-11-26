@@ -19,8 +19,7 @@ R-Undelete — мощная утилита для восстановления �
 ```bash
 magnet:?xt=urn:btih:398F0EA9739193F6E0F47D66600D5D3038576289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

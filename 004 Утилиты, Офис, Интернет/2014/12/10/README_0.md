@@ -20,8 +20,7 @@ OEM Brander работает от Windows XP до Windows 8.1 и дальней�
 ```bash
 magnet:?xt=urn:btih:FCB5A2096159526AA16D07A3A2CB6C97EB84516C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ RS Photo Recovery - программа для восстановления фо�
 ```bash
 magnet:?xt=urn:btih:20860A3FEED3A7272A5B447EA8468DB875AE575D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

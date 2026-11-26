@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8DC923256F993987B2EFBEF12D8BD09787EDCFD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B078E2A2AECF8F73E4B0181B5B9ACF9B48DAC2F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Bara Ou no Souretsu | Requiem of the Rose King | Реквием по Корол�
 ```bash
 magnet:?xt=urn:btih:0B64BFB5A4758EF6BA77A0B162625B53B9591EE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACACB364EA34D75C3C78D300134FD6A5A82F1121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671
 ```bash
 magnet:?xt=urn:btih:B07FB5C39E53723550550AF6CBB6B7A9F51911FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C83E4CA4CCA84F84B6A73CA195BEF4FCE3418F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

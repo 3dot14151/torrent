@@ -22,8 +22,7 @@ Margenta - Prologue (2026) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard R
 ```bash
 magnet:?xt=urn:btih:76EE49717B6A5C8551D8C3A419B0B874B641D476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark Realm 2: Princess of Ice (2015) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:EC627D252AE2034C7C3226EA83F6E6C91CF983A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Violett Remastered (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:647B5A5EDFA0359D7ACCB2E7F33B3A752A01FF00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rollcage Stage II - продолжение футуристического ав
 ```bash
 magnet:?xt=urn:btih:8F8FD880948CD61772FF5E7802B67966449906DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Truck Nation (2014) [Ru/Multi] (2.1) License
 ```bash
 magnet:?xt=urn:btih:06FA14F83A8CED341C0D0E7C94064D8C12FFCA03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Massive Chalice – это тактическая стратегия в эпич
 ```bash
 magnet:?xt=urn:btih:7C0C74798471DCF909B704C48F4E19F7AF252966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sir, You Are Being Hunted (2013) [Ru/En] (1.3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3520073502A2E694766A22ED604F5DD71C71F7B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Transformers: Rise Of The Dark Spark связывает вселенные Cyber
 ```bash
 magnet:?xt=urn:btih:C159F2CA3D096F3200EF0DC64BFE1B5E9D0D2FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

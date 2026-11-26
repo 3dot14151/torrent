@@ -22,8 +22,7 @@ A4 - Sado Soldiers(   Читать дальше...   )Жанр: Thrash, Black Me
 ```bash
 magnet:?xt=urn:btih:4185CDD55253CE71A970D93E2946BEE8C1E07153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Persefone — андорранская прогрессив-/мелодик-дэ
 ```bash
 magnet:?xt=urn:btih:A32C16BCEFBF973E7F52BBA698FEF545BB852EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:830F24EFAA3B14D926C301B941C965B6F5BBEBC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Benediction — британская дэт-метал-группа из Бир�
 ```bash
 magnet:?xt=urn:btih:7875F548A12F81B7A6107745DD918008BCCF48F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

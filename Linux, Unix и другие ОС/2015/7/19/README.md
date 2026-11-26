@@ -19,8 +19,7 @@ Microsoft Office Профессиональный 2007 — исчерпываю�
 ```bash
 magnet:?xt=urn:btih:1EBA392C3B4828FE112741ACAC838C4A062AC8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ VA - TOP 100 Club (November) (2016) [MP3|320 Kbps] <House, Mash Up, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:BE794F7AC82E36D7F3A3EEA60B5D6327250091BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Dream Dance (Дискотека Казанова) vol.2 (2016) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:BBA9402A2688A61D6305BAFBC8AD31B94871861E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Дискотека Казанова: Старые Песни По Ново�
 ```bash
 magnet:?xt=urn:btih:688A94DEC3B91F38A14089A28EBBEBEFCC4E5FA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Darkest Time (2007/2016) [Ru] (1.0006/1.0)
 ```bash
 magnet:?xt=urn:btih:A8EE25A211FED9258BF78671DF9A99B654BACB54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:9D4E4501A642F0378A863984D5DCFADDC4E04C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:057AA1AADF3FC171591C1EB7F2DB7D823BAEEC18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Schwartz (   Читать дальше...   )Тип издания: macOS Softw
 ```bash
 magnet:?xt=urn:btih:10F2D7FFA703CD5DC31D2A567F2BFB27C9DFDD3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ VA - Uplifting Trance Now! (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:64E6FC1906A18B08E31F35BB538E7AA8CE4C06B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ VA - Infinite Contemporary Lounge Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:41F4450E60DF69BB1B47AA3A2F5899A4FD48E2EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ A.K. Salim - Blues Suite (1958) 1991, Savoy[FLAC|Lossless|image + .cue] <Hard Bo
 ```bash
 magnet:?xt=urn:btih:E1F153E9FAD052598356AA9598F3274C436A84D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

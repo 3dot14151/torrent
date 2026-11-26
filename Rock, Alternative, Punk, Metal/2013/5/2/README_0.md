@@ -28,8 +28,7 @@ Call Me No One - Last Parade (2012) [FLAC|Lossless]<Alt. Metal | Post Grunge>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Newsted - Metal (2013) EP [FLAC|Lossless]<Heavy Metal/Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Los Shakers - Los Shakers (1965) Remaster 2007[MP3|128 кб/с]<Beat>
 ```bash
 magnet:?xt=urn:btih:49E1030A307136A6A15799AD1FEF8D3C6E1A03D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ StoneLake - Monolith (2013) [FLAC|Lossless]<Melodic Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Chunk! No, Captain Chunk! - Pardon My French (2013) [MP3|320 кб/с]<Pop-Punk /
 ```bash
 magnet:?xt=urn:btih:403A6CC4B03FC2DA9262BC42FA2D5D6876FB5D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFA331D6B4B542C441F588331D135F9638AE0DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ The Material - 2 Альбома (2011-2013) [FLAC|Lossless]<Alt.Rock | Female Vo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Nookie - Живы! (2013) [MP3|320 кб/с]<Alternative rock, pop rock>
 ```bash
 magnet:?xt=urn:btih:8A4044F7E411EF714C227391475D52A9F4155D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ CD 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Tom Keifer - The Way Life Goes (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ Michael Learns To Rock - 12 albums (1991-2012) [MP3|320 кб/с]<Soft-rock, Pop-
 ```bash
 magnet:?xt=urn:btih:62D92C09F49190AFF65661FA9FFC3D3F97697549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +396,7 @@ Suffocation - Pinnacle Of Bedlam (2013) Mexican Press [WavPack|Lossless]<Technic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +424,7 @@ Joe Satriani - Unstoppable Momentum (2013) [MP3|320 кб/с]<Instrumental-Rock, 
 ```bash
 magnet:?xt=urn:btih:35EEB80B119A63B6CC3386D99877C7B454B7310B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +458,7 @@ Louna - Behind A Mask (2013) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:29601F74F61252F82F1C62A60AB7113F0BB90C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +492,7 @@ Within Temptation - The Q-Music Sessions (2013)  [FLAC|Lossless]<Gothic Metal, S
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

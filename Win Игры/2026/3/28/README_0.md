@@ -19,8 +19,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (4.0.0c) Scene Rune
 ```bash
 magnet:?xt=urn:btih:DE352957AB115B8D7658DBF14A20A5C4F5ECEB54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mistbound / Тумань (2026) [Ru/En] (Build 22477588) Repack Other s [Early A
 ```bash
 magnet:?xt=urn:btih:DE937FF0BD42CA9668AEAABD0C9AF3EDA60FEF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ghost Master Resurrection (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4C5578E2280C93BEB28E812AD7D39B4787B8FC54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Ai Limit (2025) [Ru/Multi] (Build 22521250/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:C9DBFC8E7493A2E855CCF6056C7B30419996B7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ World War Z: Aftermath - это масштабный кооперативный 
 ```bash
 magnet:?xt=urn:btih:C5E88260AEA9A4E141DEF9AD0B5F401670281A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Wanterlude [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:C522B448718566C04C3FCABF818B07B8A5295898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Endless Space 2 (2017) [Ru/Multi] (1.5.75.2/dlc) License GOG [Definitive Edition
 ```bash
 magnet:?xt=urn:btih:51E425A12FD170582E25378F595FF920018794A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Marshmallow All the Way Home (2025) [Multi] (1.0.0/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:D693B9C3D8A9FBF9AC403AF74442CC9CDA6ADCDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Total Chaos (2025) [Ru/Multi] (1.0.231) License GOG
 ```bash
 magnet:?xt=urn:btih:173A7A5CCED675AE368A27D088F38E075AFD0E1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Last Epoch (2019) [Ru/Multi] (1.4.0.1/dlc) Repack Let'sРlay [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:6AE18365FFA08EB918982F126437BB90C8BA3564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Ghost Master Resurrection (2024) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:5429502DA6BEFEABD8562391487CA2F84F5B9A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Ghost Master Resurrection (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:17973B72C93C28767E3D9ED95A54511125D4A0EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Overthrown (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C457F72AB2D42F1021D231C5E5DEF2A4E1DB4347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

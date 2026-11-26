@@ -19,8 +19,7 @@ ABBYY FineReader 14 Enterprise предоставляет широкий спе�
 ```bash
 magnet:?xt=urn:btih:F3973FC65A08449473FDDDA9371664D0B6692145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 04.05.18 [Ru
 ```bash
 magnet:?xt=urn:btih:9B13ED15614A01112C84B62D877CFFB992A78BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

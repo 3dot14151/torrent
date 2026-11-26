@@ -20,8 +20,7 @@ Confrontation / Confrontation: Последняя битва [Ru/En] (RePack/v.1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Star Wars: The Force Unleashed Dilogy [Ru/En] (Repack) 2009 - 2010 | R.G. Shift
 ```bash
 magnet:?xt=urn:btih:4ADDF7B8F07CF3FCAEE52A360C4D22927A3AC401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Yакuzа - Wау Оf Тhe Dеаd (2002) [FLAC|Lossless|image + .cue] <Progressi
 ```bash
 magnet:?xt=urn:btih:0250B652B8BBF0AAF502B07C745D6B97D26D0744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ John Orr Franklin - Lighthouse (2011) [FLAC|Lossless|image + .cue] <Prog Rock, A
 ```bash
 magnet:?xt=urn:btih:AD043302E8E7F98EEC0E0676182E835FE7F8073F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ First Signal - One Step Over The Line (2016) [FLAC|Lossless|tracks] <AOR, Melodi
 ```bash
 magnet:?xt=urn:btih:549153F848D2313E266B1FB0DD60E164A38E32CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Garbage - A Darker Religion - The Singles 1995-2000 (2000) [MP3|320 Kbps] <Alter
 ```bash
 magnet:?xt=urn:btih:BC6732F355BE644E4000AE435E6BDA7268711285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pantera - History Of Hostility (2015) LP [MP3|320 Kbps] <Thrash Metal, Groove Me
 ```bash
 magnet:?xt=urn:btih:15707D62CC7A77382FFDF8124DE3F629EFDB19AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Birthday Massacre - Imagica (2016) Remastered [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:E2D55B6095EE505F09560EA9053B315E742E1C0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ VA - Electronic Cup (2014) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:4AD7CF48C9327831E418FCC79B1823FE07E3254F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Iron Chic - 3 альбома (2010-2013) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:1AE5ABAFD294C8B7D1CBC1F617E3BC1A6EF76D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E581CE7DBFE1586044BA1DB879760D68F013E69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Jack Walrath - Master Of Suspense (1987) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:BE33C0FC3EEC666FC6A178FBAFEFC575F466F54B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Korzus - KZS (1995) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D6C20BBB340D4DF1C7A853C2743EE94F67F4C9DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Dialectic Soul - We Are Born From The Pain (2014) [MP3|320 кб/с]<Melodic Deat
 ```bash
 magnet:?xt=urn:btih:E405893BB91EA4A4800507233AEF780C27D8B6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:164A58F6678A3D2339C9DD93359C5C28FC2A71BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ Blansh - In Rough (2014) [MP3|320 кб/с]<Hard Blues Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:78109B1117570E40091CBE862B0AE563C879DBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BDD808DD1F34E81804DD4AD79016B39661AE3D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ MitiS - Touch (2014) EP [MP3|320 кб/с]<ElectroHouse, Drumstep, Dubstep, Drum'
 ```bash
 magnet:?xt=urn:btih:FA58DE609D12CBB728CD70B37F74CF96F227F17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ VA - Sunday Songs Collection Vol. 6 (2014) [MP3|320 кб/с]<Deep House, Minimal
 ```bash
 magnet:?xt=urn:btih:3F2B88D52E672BAE2290F7E49D9360EA3848CD26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C885B0AD3FDC6CC60E6D0DCD6F817D4CFFE5A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +397,7 @@ Giants Causeway - New Light (1996) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:DF01E625469C3E91B0A1F31736DDE139BEEB3615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +431,7 @@ VA - Ibiza Summer 2014 Anthems: Trance [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:CA8A92ED6EE99A2DF8170CA044C0CAC063EA051D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5419D9A969A3B3FD7B79BCB34DD87810DD8E6EE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +486,7 @@ CodeKit помогает вам создавать веб-сайты быстр�
 ```bash
 magnet:?xt=urn:btih:02472908DE7EEAB18BBE80F71604DCED5FC3ED13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D4D0D32EDAF9DBD8932C1153341CDEF4BFA6181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D698669C2D74636E19471A6A14049870A81D65BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ VA - Space Options Vol. 4 (2014) [MP3|320 кб/с]<Chillout, Ambient, New Age>
 ```bash
 magnet:?xt=urn:btih:33D7A98D7D904DBE95DE2C090F76ECBB73D60527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ Novembers Doom - Bled White (2014) [FLAC|Lossless]<Death/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:B5E16531669C13E9235A19798F2B1F713B448B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A357C57333BEA3F6E5E0ECB9F49A5C18366D3876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +664,7 @@ VA - Blue Lagoon Soundtrack 3 By Margeir [FLAC|Lossless] <Downtempo, Deep House>
 ```bash
 magnet:?xt=urn:btih:459E11EB20F79DD97EB1EAB726EE7F7775C148E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +698,7 @@ Naomi & Her Handsome Devils - Naomi & Her Handsome Devils (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:40DBC13F2088BF84B40474522B4BF9650A70D38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +726,7 @@ Feed Me - Feed Me's Psychedelic Journey (2014) [FLAC|Lossless|WEB-DL]<Progressiv
 ```bash
 magnet:?xt=urn:btih:DB95021EA363294C175E54BFB6F483DE60330D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +751,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11AD08F7E85B5276179F77B503772592067A14F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +785,7 @@ VA - 203 Finest Lounge & Chillout Songs (2014) [MP3|320 кб/с]<Balearic, Downt
 ```bash
 magnet:?xt=urn:btih:350921E14736C856D7B1AD50C3D164754329DE05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

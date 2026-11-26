@@ -19,8 +19,7 @@ Roguelands - эпичный фантастический RPG-рогалик от
 ```bash
 magnet:?xt=urn:btih:6638083BD8810654A90ACDAE17300715F6055ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BeamNG DRIVE - своего рода духовный наследник Rigs Of
 ```bash
 magnet:?xt=urn:btih:FD66BEC6E4EB9DCD475B1498598EF0E2FDD355DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Magdalena / Магдалина (2016) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:FDE236C53B5940A1519E85D50A43A72DED4BADC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dragon's Dogma: Dark Arisen (2016) [En/Multi] (1.0.10.6911) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:8ABD8D0AB8DC9CE69512491468E09065B5EFACC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

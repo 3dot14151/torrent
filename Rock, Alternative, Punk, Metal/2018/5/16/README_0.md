@@ -22,8 +22,7 @@ New England - Explorer Suite (1980) Reissue, 2009,  Wounded Bird Records [MP3|32
 ```bash
 magnet:?xt=urn:btih:D0ACD00C2F43AC499EBB4B562C534110F37F3183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ New England - Walking Wild (1981) Reissue, 1998, GB Music [MP3|320 Kbps] <Classi
 ```bash
 magnet:?xt=urn:btih:4FD87A396F815F5E679B730D539C1DD06AB27E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ New England - New England (1979) Reissue, 1993, MCA Records [MP3|320 Kbps] <Clas
 ```bash
 magnet:?xt=urn:btih:AD72CCA5BEF9D19183DD835B38A091AA02DC3174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

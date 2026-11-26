@@ -20,8 +20,7 @@ Path of Giants v2.2.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:AC28AAD2573D9BD12F34BD90206112E88605BECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Deep Town: Шахтерская фабрика - кликер для Android-у�
 ```bash
 magnet:?xt=urn:btih:34827E5AA058DC4FD44027C4E413FAD73B24D7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Five Nights at Freddy’s: HW v1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:A6870859F21D770E04085E6AEE5A0E897FA8C1E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

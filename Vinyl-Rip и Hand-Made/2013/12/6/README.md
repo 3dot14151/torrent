@@ -22,8 +22,7 @@ A4. Себе не найдя двойников (5:08)(   Читать даль�
 ```bash
 magnet:?xt=urn:btih:5B2EE716D1DD83024137D2D6D49B0EC9C050E64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

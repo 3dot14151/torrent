@@ -27,8 +27,7 @@ Abstract Truth - 2 Альбома (Discography) (1970) /Reissue 2009/ [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:76672AF1F91EE6FA3C6AE00AA061992FA6492EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Machiavel - 3 Альбома (1976-1978) /Reisssue 1994, 2010/ [FLAC/APE|Lossles
 ```bash
 magnet:?xt=urn:btih:C720B434CE5D31ACAAA68C99B7040EB6001AA09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Anathema -  Universal (2013) 2 CD, Live, Fan's Edition / Kscope /[FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:3A0C3FC6D08DDE5C58616059C731C6BF7DAEB0FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

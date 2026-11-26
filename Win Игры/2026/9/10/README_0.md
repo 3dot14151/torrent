@@ -19,8 +19,7 @@ Valheim - симулятор выживания и исследования дл
 ```bash
 magnet:?xt=urn:btih:712CF1AE388D5C9E99D7B5136DBAEA8D3B1E00CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Artisan of Glimmith - это уютная и медитативная гол
 ```bash
 magnet:?xt=urn:btih:C5D32AC3DDD17A29EF8E6D756B020391C5A7CAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Detective Club 3: Carnival of Secrets (2026) [Multi] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:7E5795ACBCC8E9D6B29671DA3F4F1FF166728D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

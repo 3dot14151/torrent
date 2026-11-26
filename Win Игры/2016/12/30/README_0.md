@@ -19,8 +19,7 @@ Hunting Unlimited 2009 - охотничий симулятор, часть пр�
 ```bash
 magnet:?xt=urn:btih:DAF9675B39BC5013BA39A52A3754525D030A8EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Surface 9: Lost Tales / За гранью: Потерянные сказки (20
 ```bash
 magnet:?xt=urn:btih:EF6514FCD8D6C08D8A0181C1544B4C40AAB6732C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tibetan Quest: Beyond the World's End / Легенды Тибета: На кра
 ```bash
 magnet:?xt=urn:btih:10CEEECAEB9A035C658932CD65C4541F0B53EE97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Need for Speed Hot Pursuit - это ваш пропуск в новый откр
 ```bash
 magnet:?xt=urn:btih:AC51269033DCDE4708457E159CCE1038F7644A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) License PROPHET
 ```bash
 magnet:?xt=urn:btih:AB9E3A48801E395A905C780804C6F8712CA36523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Crypt of the Serpent King - это фэнтезийный dungeon crawler от �
 ```bash
 magnet:?xt=urn:btih:5D76BD09AEC0E5CB8049837B440BAFF71C635904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.17) License PROPHET
 ```bash
 magnet:?xt=urn:btih:338957DC9C82D38735B6611FD1C2666603AE6C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

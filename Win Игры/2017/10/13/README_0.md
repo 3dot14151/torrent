@@ -19,8 +19,7 @@ Putrefaction 2: Rumble in the hometown это отдельная кампани�
 ```bash
 magnet:?xt=urn:btih:DF59C6B8554BF617246140ED765C1A232B0D8261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Putrefaction 2: Rumble in the hometown это отдельная кампани�
 ```bash
 magnet:?xt=urn:btih:C9306C9399E992C82DF6954166CE5AA3E52E672F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

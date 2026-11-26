@@ -19,8 +19,7 @@ Grand Theft Auto IV (2010) [Ru/Multi] (1.2.0.32/dlc) Repack Other s [Complete Ed
 ```bash
 magnet:?xt=urn:btih:00FC403BAD65B1B649F35EEB8B3EE0A596CFBE15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B59D075276322E8B998473CE3D6B9C27D70B9ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8C16B19C0B96120A3D2E8AEA0057F48CF567B75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Infinite Dendrogram / Бесконечная Дендрограм [2020, TV, 13]
 ```bash
 magnet:?xt=urn:btih:AEC835389206D1AECF0B9590F4CEBD8ED674B809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:705DE32140CCD7F06F0DFB3C9B22D149002CAE1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Windows 10 Pro 1909 Build 18363.778 x64 by SanLex (edition 2020-04-16) [Ru]
 ```bash
 magnet:?xt=urn:btih:4B99F10EBEE898A0505B208A1AA5CE969C5A15D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86EB475CD511CBF3968E0BAC566F2DDDE9021ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Youjo Senki | Saga of Tanya the Evil | Военная Хроника Мален�
 ```bash
 magnet:?xt=urn:btih:593A57F4AA45851380B6E18D5B5A14215E4E8152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BE79C0B1C1D35FBC65D4884661EC41B8CA1DF30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Windows 10 1909 32in1 (x86/x64) +/- Office 2019 by Eagle123 (04.2020) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:564874A2E52138D6C68F3E457F26ADA98E472997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08822148D5DCBB29EC4D70571AC9A941524BF118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Gekijouban Youjo Senki | Saga of Tanya the Evil | Военная Хроника 
 ```bash
 magnet:?xt=urn:btih:6B3031AC8C4FC3AAEE40390006D419D539B75A47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Z / Z (2019) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:7132D6250895AFA059FD1072B158BFA3C83505D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:674E19B86DF46AFD621DB6310DFD1C341618F62D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Jinn'sLiveUSB - конструктор мультизагрузочной фле
 ```bash
 magnet:?xt=urn:btih:AC521386AA04383CCE5EF25D8707CDD17A33512C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Control – долгожданное приключение от третьег�
 ```bash
 magnet:?xt=urn:btih:74EA684DC041507F84B43B486DD55E06A54A068F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (53043/dlc) Repack xatab (обн�
 ```bash
 magnet:?xt=urn:btih:4BBCA592001CEBBEF0BA8D8A91DB3999E7319EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ Graveyhard - 2 Albums (2018-2020) [MP3|320 Kbps] <Stoner, Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:A0FCA4F87C63B0E4DFAEFE5259610A31B319F349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

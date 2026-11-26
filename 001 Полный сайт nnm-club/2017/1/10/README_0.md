@@ -21,8 +21,7 @@ Erin Evermore - Erin Forever …And Ever …And Ever (1998) Reissue, 1999, King 
 ```bash
 magnet:?xt=urn:btih:FAB64672439FE277748EF0B18F935F79EE689A66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:883A27E6C1DBAAB1530FD7F9D26C1E5B812FFD7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Happy Workout Rush Hits (2017) [MP3|320 Kbps] <Bassline, Progressive, Regga
 ```bash
 magnet:?xt=urn:btih:8C6AE0F8834564825E90E9198B98138D2B3833EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - The Ultimate Trance Collection Vol. 7 (Mixed by Joe Cormack) (2017) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:002DACFEE1C7DD33671EA956E3B2932D73FDD370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Я слушаю шансон. Зимние хиты (2017) [MP3|256 Kbps] <
 ```bash
 magnet:?xt=urn:btih:C27BA3D04F1786D04D277AB35F61115EE7820731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7261113E5F833CCCF42248D42275AF6D48E7A5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ XVIII век. Санкт-Петербург. Посланник ордена С�
 ```bash
 magnet:?xt=urn:btih:96258158E45A99C82628B860C65621D2048C52BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Lal And The People - Bad Case Of Blues (2016) [FLAC|Lossless|WEB-DL|tracks +.cue
 ```bash
 magnet:?xt=urn:btih:0857D83FA8A141A7DC4BF9D875B8F5F8300FC21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Sergey Mikhaylenko (Сергей Михайленко) & XYZ Quartet - Trump Car
 ```bash
 magnet:?xt=urn:btih:34C04C59FA3B4719778C2DFE2D9E7ED9315E4954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Новогодний ресторан на радио Шансон Выпу
 ```bash
 magnet:?xt=urn:btih:658139EE051A9259AA134AD5889BD25FD79FC488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:533E5D3C01FE718CB12399BCC90D3016EFCB2DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Best Of Trancer 2016 (Mixed by Nick Turner) (2017) [FLAC|Lossless|WEB|track
 ```bash
 magnet:?xt=urn:btih:616A3C525F77841759CF974D48F91754C4CD8C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - The Snowboarders Syndicate Of Chillout (2017) [MP3|320 Kbps] <Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:484C65C20CFB4530D067062794CF1A4FC3EBCA27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Donnie Dubson - Monday Is The New Sunday (2011) [FLAC|Lossless|image + .cue] <Dr
 ```bash
 magnet:?xt=urn:btih:E57292FDCF087BBEAE11FB4857807B6FEE9CB2DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Orician - Solarflare (2014) [FLAC|Lossless|WEB|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:BC3321A183057AD7A83F94BAE72C223630A363C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ VA - Танцевальная зима. Снежная 100-ка Выпуск №
 ```bash
 magnet:?xt=urn:btih:2E276A21C84E9172A9C83E3FCFA53C07FF56586D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3905BD705A15ADAD55A333678FC718D6FA4A16EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ VA - Empire Records - Dancenudisco 2 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Dis
 ```bash
 magnet:?xt=urn:btih:810AB8D37EB2C7E4AC49E46ACBF49B4B17CF2698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B50EEA35996D904465CBF94FA8308DAC1F483D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC0AF4F5C6549101F0BC94ED45444ED7F6E82F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87542E04E312B8C7D005AAEBC77051F6AE1BCF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C4014B337E2A41CC5CB6AA4C38BCB6D413A1334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ VA - Зимние мега хиты. Зарубежный выпуск (2017) [M
 ```bash
 magnet:?xt=urn:btih:F51505BE384D9EFA32EBC928123BF4AA950BFD96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CF5FED99667F4F0A195D215E57777FB801DF7C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ VA - Daily Relaxing Vol.2 (Chill Out & Ambient Music In Perfection) (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:1A6C8568B83ACFEE63C60C8E46A139A10A871B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

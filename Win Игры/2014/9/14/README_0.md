@@ -19,8 +19,7 @@ Dream Catchers: The Beginning (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:C2E142833A60ABC68514A0D40DC690FF68EE783A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fierce Tales 3: Feline Sight (2014) [En] Unofficial [Collector's Edition / Ко�
 ```bash
 magnet:?xt=urn:btih:422F7B4752F7D24AC099F2E7D484E5F4B2ADABFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Maestro 4: Dark Talent (2014) [En] Unofficial [Collector's Edition / Колле�
 ```bash
 magnet:?xt=urn:btih:2BFFE6E369E022F5131CE51677A493D33DDADD39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shrouded Tales: The Spellbound Land (2014) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:57672A14694E4AC94DCE8ED131185A0CE0F0FB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Weird Park 3: The Final Show (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2EF696B0D2BC4EBED83B53F870DE6D3C1F3DA510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Black Rainbow / Черная радуга (2014) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:7F6BB5A9633334F536434EBE5A7F4D6DD4266E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Velocibox — это бесконечный runner от третьего лиц�
 ```bash
 magnet:?xt=urn:btih:7615CC6B99F34ADBC1DEA6957831DC518C638D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

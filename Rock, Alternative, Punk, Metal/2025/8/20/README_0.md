@@ -22,8 +22,7 @@ Greatest - сборник лучших песен Duran Duran впервые в�
 ```bash
 magnet:?xt=urn:btih:5F7A689CE18BAE1644B2E4188E14ED0C74F3F484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Deftones - Private Music (2025) [MP3|320 Kbps] <Nu-Metal, Shoegaze, Alternative 
 ```bash
 magnet:?xt=urn:btih:F3DB87C298A69F0607D844AD52F114C8855B759B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Paranormal State: Poison Spring (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:52E2BE6F06D06EAC85EB80820C29AA018F2EAE2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Outlast (2013) [Ru/Multi] (1.0.11795.0 Upd7) SteamRip _PALADIN_
 ```bash
 magnet:?xt=urn:btih:5D8BFD91CEA61E3A41BA936E1225838BF5099CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Serious Sam Double D XXL (2011) [En] (1.0) License WaLMaRT
 ```bash
 magnet:?xt=urn:btih:4CBC128638BAECD35D59A9CB44B288EE22D565D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Batman: Arkham City / Batman: Аркхем Сити (2011) [Ru/Multi] (1.1/dlc) 
 ```bash
 magnet:?xt=urn:btih:83F874C49774E07F438935D591C58C60F840468D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

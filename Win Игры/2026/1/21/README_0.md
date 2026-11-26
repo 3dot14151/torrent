@@ -19,8 +19,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/dlc) Repack seleZe
 ```bash
 magnet:?xt=urn:btih:FD5073DA68AC3D24C3522122F1F1DEC49E6928F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/3.0.226.993/dlc) R
 ```bash
 magnet:?xt=urn:btih:AAADD608791122BA5CF3B66B34C48BA7BFB1F5B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Divinity: Original Sin II (2): Divine Edition (2017) [Ru] (30.04.2025) Unofficia
 ```bash
 magnet:?xt=urn:btih:EB17132B47F6D41C5392FB51CEDA4AB852D23F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Monster Mop Up (2025) [Ru/Multi] (0.8.417) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2DD5316BFB4E10F141C8A43F1F4E2B60CF8EE4E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Overthrown (2024) [Ru/Multi] (b19669165) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:8C8F045F8C81483430B58914AFE54B148731EAF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386) License GOG
 ```bash
 magnet:?xt=urn:btih:28C606EDE2995AA6E233AACFC94A95F60B7EB705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack FitG
 ```bash
 magnet:?xt=urn:btih:3811BD1E97CED25C97CD7F2972CA96BBF7104A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Adventure Seekers: Lost to Sea / Искатели Приключений: Уне
 ```bash
 magnet:?xt=urn:btih:2DEF5433EE7E2CB614D92D3C4CF07C07BB45B0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ MIO Memories in Orbit (2026) [Ru/Multi] (r21606) Scene Rune
 ```bash
 magnet:?xt=urn:btih:64277C032D53F740D6F7C01ACF51A1549E433116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ HD Textures Pack содержит текстуры в высоком разре�
 ```bash
 magnet:?xt=urn:btih:A2BA430A2265E9C63EA888D80FBA40093B636CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ MIO Memories in Orbit (2026) [Ru/Multi] (r21606) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:43AC91BA7D28D3D43C8859C99783223420CB47D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Amesha Spenta - Amesha Spenta (2011) audiotrauma [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:C7083B5FFC9C83B5E88AC9D3FBAE62A41527F615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ James Murray - Killing Ghosts (2017) Home Normal [FLAC|Lossless|tracks+.cue] <Am
 ```bash
 magnet:?xt=urn:btih:109D56E5AFCEB31B28D5716FD5CA2D26669D58AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Melodic House Sessions, Vol. 04 (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:6EE945A5CB3CFF67D9B38BAF4EA382858FF8E5B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jeroen van Rooij - Building Memories (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambie
 ```bash
 magnet:?xt=urn:btih:79EED5848E1586156D02D13A98C17BC848A1CB53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F401B0360E9E1D4A80952258077A2F857D45FDBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Fonica - Ripple (2003) Tomlab [FLAC|Lossless|tracks+.cue] <Abstract, Leftfield, 
 ```bash
 magnet:?xt=urn:btih:5D83E742D38CA752E7F8658D23BAC66ECD8FD475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Endurance - Echoic Architecture (2017) Polar Seas Recordings [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:7DF87875573FA94F281CB88D72E50BFE82AF0677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Relmic Statute - Morning Tapes (2010) hibernate [FLAC|Lossless|tracks+.cue] <Amb
 ```bash
 magnet:?xt=urn:btih:9499270D3BF760D93DF27A8F2D8F60C1BD340F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD94F7F38006C5F5A1B2CC7528A70CF7BE473A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F16482A555283D0FF904BCEB41E132822963F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Marcus Fischer - Loss (2017) 12k [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 ```bash
 magnet:?xt=urn:btih:609BBBF711FF6AE0F46CFDD9BD46D8E304CEEBE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Ice Pack 2018 House: Deep House (2018) [MP3|320 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:415CC40E7B33F36553518E63552A9A49753ACD9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ VA - Uplifting Trance Sessions Vol. 05 (2018) [MP3|320 Kbps] <Trance,Uplifting T
 ```bash
 magnet:?xt=urn:btih:B18DF9F47933DBB81E27998B20E01BC02A419BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ VA - Progressive Psychodelic Trance (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy
 ```bash
 magnet:?xt=urn:btih:036985501846AC7F92637E93C1794A2C680FCDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Markus Guentner - Doppelgaenger (2009) Sending Orbs [FLAC|Lossless|tracks+.cue] 
 ```bash
 magnet:?xt=urn:btih:85C9133688F7863701E239FB6CFBCD9C313251A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Julien Neto - Le Fumeur De Ciel (2005) Type [FLAC|Lossless|tracks+.cue] <Ambient
 ```bash
 magnet:?xt=urn:btih:642A33C905CFB9AF8962A7451C4227EB20C089A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Northaunt - Night Paths (2017) The Last Bleak Days Records [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:4CEEB4BD5E5D1BB1B7FF3C413E153A305CED084C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Paul Menska - Travel Memoirs (2016) Terminal Dream [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:A66EA6D90FF585F4B94F01C14350ACC915BBB9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ The Winterhouse - Until Voices Wake Us (2017) DataObscura [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:19E91EEF892311900BC1D5EC22489750D35AFBF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ VA - Cozy Chillout Times (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F1E6B5CE89EF5C77E20D8A8B1AC085CC2532124A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B110CA4000DF2615C1699757A5F7C02B6D04D17E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D87B5F44951B01345FE98B716D77CFAB173F84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ Wintersilence - Slow Focus (2016) Musical Philosophy [FLAC|Lossless|tracks+.cue]
 ```bash
 magnet:?xt=urn:btih:3288A703B6FECACAD381A05C976A13873DF96BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ Microtrauma - Sonar (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive Ho
 ```bash
 magnet:?xt=urn:btih:0785EEC134D394FAB49CE2B876E545D74E0AA028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAF20C7F954371359C126332653501E078F69983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ Makia Blue - Electra (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:53F77CE89F52DBAF0A21DBE12ED4257ED19443F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

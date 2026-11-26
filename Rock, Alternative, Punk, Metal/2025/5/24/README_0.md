@@ -22,8 +22,7 @@ Queens of the Stone Age - Queens of the Stone Age (1998) Remaster, 2024 Matador 
 ```bash
 magnet:?xt=urn:btih:5DD24F9FCCF9D068D9FA412F421B9B22AA528F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Onslaught - Origins Of Aggression (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:49C8C80EADDA23520062C15A97A2391DD2CC3CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fatal Embrace - Hail Down Deep MCMXCVIII (2025) [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:0C44928AC2144DCB7AD701747CA863FE62E2AAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Shining - X - Varg Utan Flock (2018) Deluxe Digibox Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:CC54BE24183D62FB083C394DA159AD97F34E005D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E388FB22F6B6AC79FCA20AF7992062DDB4F52A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

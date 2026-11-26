@@ -21,8 +21,7 @@ VA - Techno Trance 2019: Top 40 Hits Deep House (2018) [MP3|320 Kbps] <Techno Tr
 ```bash
 magnet:?xt=urn:btih:B149AAD48F3095B78C4961944B4DF759E5E7F837
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ R-Wipe & Clean это эффективная утилита компании R-T
 ```bash
 magnet:?xt=urn:btih:B0E635E19CA56D13A23AEAECF00F03CBD5127B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26168E127F96D4097D1B8F8E309A51E62A94F225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25D8A9B9F280783D837BEC076316DC187111FBDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF4FFE2A649F1CA1ED9F96F4D095738F5810D961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Animal Planet: Царство гепардов / Cheetah Kingdom (2010) HDTVRip 
 ```bash
 magnet:?xt=urn:btih:472EA0B3A479C10920432464A31FF458076AE234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ NG: Последняя львица / The Last Lioness (2009) HDTVRip 720p
 ```bash
 magnet:?xt=urn:btih:996BE8645702EFF4FD50A88BB79012B28C63B9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F2A85C45473A621C5B919A8FEE84B4450A08673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63959F94425AB3E9EBA2B751201702A731524EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ NG: История о нас с Морганом Фрименом / The Story of
 ```bash
 magnet:?xt=urn:btih:5F1E1E2B8CBC75E2B144582AA942656E0390D182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 ```bash
 magnet:?xt=urn:btih:EB4553022D074EE5F591F90D6C9ECF04A80037F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C67D79312EC9B65C6511045A5CE2D91E9F411E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 ```bash
 magnet:?xt=urn:btih:7FB1DB14ECDB365AC7C43FF72A0B424347785104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEFDD05FC58ED70DBC57465E851CC86007B71FC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ NG: Охотники за вирусами / Virus Hunters (2008) SATRip
 ```bash
 magnet:?xt=urn:btih:0DECB7926007FA58AEAD6E0973C5D739ED3CF113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49FA03DB43EF7166964B23239EF4F455E7729949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C5A961DBA36230B8817E3230784D32D6E37B8AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ MainStage 3 позволит вам взять Mac с собой на сцену
 ```bash
 magnet:?xt=urn:btih:1526BCB5CAFA5D4DA67C655FA50DDB5AFD65A899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 ```bash
 magnet:?xt=urn:btih:C0548FAC359A0CB22F14791C9360A42E7835B282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF8C1EC202FDD4DA279CD364423BC2879175ED4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +556,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 ```bash
 magnet:?xt=urn:btih:8176D73D9C994249AD2E3B346DD84043D91D511A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +581,7 @@ Intel Parallel Studio XE 2019 - набор инструментов, упрощ�
 ```bash
 magnet:?xt=urn:btih:092B045D0CE96C54A1215AE6114839B4F8556782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0738DFD31FC7A5F68C93A1CD0BABF4393A802D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +632,7 @@ Advantage Database Server (ADS), созданный компанией Extended 
 ```bash
 magnet:?xt=urn:btih:BB5598248EAF1401609F8088BCB30C07854807D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +657,7 @@ Discovery. Планета мутантов / Mutant Planet (2010) HDTVRip [H.264
 ```bash
 magnet:?xt=urn:btih:21F2C6E858A3506426206EBBA4EE98653989D998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

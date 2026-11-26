@@ -26,8 +26,7 @@ Larry Coryell feat. Billy Cobham, Bireli Lagrene, Richard Bona - Spaces Revisite
 ```bash
 magnet:?xt=urn:btih:37AFB7C31EA00B389D18E3B418A9CB826D050E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Fiend - The Blooming Tremble (2009) [WavPack|Lossless|.iso.wv]<Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:E4B5EA0FE79DA35CD210B3E5E23ADD3FE6F47D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Billy Cobham Band - Live in Leverkusen (2011) [FLAC|Lossless]<Fusion, Jazz>
 ```bash
 magnet:?xt=urn:btih:F0F9D2BE79B083AA9EADCD803C6E09611BD7873A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ David Davidson - Phantom of Broadway (1999) [FLAC|Lossless]<Jazz, Easy Listening
 ```bash
 magnet:?xt=urn:btih:B5FEC23A078DC99B8EE36E77DE79CA7478887B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7196DFF6A4CE4E4C58A424E09BA5ABA9AA3CA8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Colin Vallon Trio - Rruga (2011) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:275F1BD8BBA471BFB856F97FE21C71C0954E682E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Cremation - Rise Of The Phoenix (2012) [MP3|320 кб/с]<Death metal>
 ```bash
 magnet:?xt=urn:btih:71E7CE69B328A39FBF144E633237370D6239D18F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBF5F0DA4E2DFBA5FE974BE69438CD7DBC70A94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ PDF Squeezer простая в использовании программа д�
 ```bash
 magnet:?xt=urn:btih:87EEC21FA173F65861E79EBACB40D070EB303E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ Ashampoo Snap - утилита для создания скриншотов (с�
 ```bash
 magnet:?xt=urn:btih:1A7927F1430FF0D3F0564FD1BB1AD5E4A5FD6791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ Metalism RecordsЖанр: Symphonic Gothic Metal |Продолжительнос
 ```bash
 magnet:?xt=urn:btih:5938D92C289D00DC7EEE0143DFAC1CEF49507981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ ERC Magazine - журнал о компьютерной и офисной тех
 ```bash
 magnet:?xt=urn:btih:C20CC442D1D24C23A06A2DADA43F534A5B9851E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ Hiram Bullock & Billy Cobham & WDR Big Band Koln - Hiram Bullock Plays the Music
 ```bash
 magnet:?xt=urn:btih:E1429724CE5DE070F3091F46278BF92F60A26932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0C5A0016C211A5A65D6E22456729DCC70E100A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +444,7 @@ Walk On Medley:
 ```bash
 magnet:?xt=urn:btih:4A7151BA872082567A608E711BE09472F4C01BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26D1179027842857A48B1F6BB9627ACB91678B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F105E44362850C7654CFB518199E6C731341BAF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ Andrew Stockdale (ex-Wolfmother) - Keep Moving (2013) [FLAC|Lossless]<Hard Rock,
 ```bash
 magnet:?xt=urn:btih:BD8A9EEFA2A0BD6017CD1B80105565CC2DB8F1A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACCF0F86B0F6A7657656F3DF8B637D7B5366B246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC4724BA709253E536ED3E0C68CDDFF6B6BA3CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE286B1B2A6E2BB2A88AEFE49B45169F29626CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62EC819ACCA37ECC832907F33332B4CE74490179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5238C09DF91FBBB04BEC591BBF04960BFD8D3492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EF732194D2B9F5DF1EE7C9D5A4766AB62A3EBBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA38DA3278533BA9B5DFEABF956544BC2D5E9B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81D33DD687702F599EAE1B0ADA3D8B9DCDAE6D9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

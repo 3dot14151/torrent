@@ -22,8 +22,7 @@ Tactick - Ropa Vieja (2008) [MP3|320 кб/с]<Minimal, Techno>
 ```bash
 magnet:?xt=urn:btih:FA672BCE518ED96EC5E48B129B8F2426EEAF4EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ VA - Electronic. 10 years of Colectivo +0 (2011) [MP3|320 кб/с]<Tech House, M
 ```bash
 magnet:?xt=urn:btih:56759740AE42DFAD7F008D80EB5F17ECCD0F66F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ La Capria - 2 EP (2007, 2008) [MP3|320 кб/с]<Minimal, Techno>
 ```bash
 magnet:?xt=urn:btih:2723B132CDB023A7AC3A8EED43B69DE723936D03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ La royale - Floor (2009) [MP3|320 кб/с]<Deep House, Disco House>
 ```bash
 magnet:?xt=urn:btih:C77891FE8C7846C6331C7DA62E2A00E8B254EB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Tnao - Sometimes (2010) [MP3|320 кб/с]<House, Minimal>
 ```bash
 magnet:?xt=urn:btih:59C449719EC26843CBD78EA742C4761DDF972178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Alex Medina - Mi birra privada (2008) [MP3|320 кб/с]<Minimal, Techno>
 ```bash
 magnet:?xt=urn:btih:2397B74D6E42A35BC0AA0052FF3500C21DC2CAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ VA - Ambient Easy Listening Vol 5 (2014) [MP3|320 кб/с]<Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:5D287B69AB14F7394BA21E05B3E9EA21F77B36A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D3DAFE27B999C90D241CE5EB23210BB30DA56A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ VA - District Facility Vol.1 (2014) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:C27D2C8ED2B98A09F35288EA354CA979B4D92185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ VA - +0Lab Meets Subversive Media (2008) [MP3|320 кб/с]<Minimal, Techno>
 ```bash
 magnet:?xt=urn:btih:00C274EDA3465368C0E8D82D023775F0DB305AC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ VA - La Catharsis - Vingtieme Edition (2014) [MP3|320 кб/с]<Ambient, Chillout
 ```bash
 magnet:?xt=urn:btih:B0571E8290D8D0947E1B4AD6944255CC8A1B55E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ VA - Switchback Ibiza (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:0842949678DCAC4791F524F121A4056367AFD42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ Comedy Woman  (2014.04.11) WEBRip
 ```bash
 magnet:?xt=urn:btih:209250077E4A5750F7DA95B52BFDB81E46896974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ Retrupack Lower - Feelings (2014) [MP3|320 кб/с]<New Age, Chillout>
 ```bash
 magnet:?xt=urn:btih:A7DE4663239865C74C79A13F14000384B1174E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3529A479C02031E351502627945B2CCA9BE1EBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ VA - Ambient Stereo (2014) [MP3|320 кб/с]<Ambient, Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:55E3A68F73E3DF69F03E53AEF26926658DDD8496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ VA - Freestyle. 10 years of Colectivo +0 (2011) [MP3|320 кб/с]<Downtempo, Dub
 ```bash
 magnet:?xt=urn:btih:4F3E5B09C3FC554537BA1AF9C1D71CB1ECB75F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B6C463CA1F810E386E002F38E421242093B20FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ We Invented Paris - Rocket Spaceship Thing (2014) [MP3|320 кб/с]<Indie Pop>
 ```bash
 magnet:?xt=urn:btih:C4B53FFCFECF1FA909A9F9CAFC2608EE1EF18A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA286F994CE6497BFAB8797628D7BC86387B2182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:439E859964356139754FE910C60C56B2DE3E893D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +689,7 @@ Kayser - Read Your Enemy (2014) [APE|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:CFE0FF6FFB4621F9A8BB050531FB1F906106C21B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +723,7 @@ Buddy DeFranco - Modern Jazz Archive (2004) 2CD [FLAC|Lossless]<Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:1FD753FA910178C3D189603FCDCD5E8A079458D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +757,7 @@ Simon Le Grec - Dimitri (Lounge and Chill Out Album Selection) (2013) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:96CEE446F5994050C87AFFF4DD1D61964B5A689F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -816,8 +791,7 @@ VA - Ambient Ambience (2014) [MP3|320 кб/с]<Ambient, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:1B501CF66F0EB94BDEF0B8E24028A3AD6D2A310D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Xubuntu — это разрабатываемая Canonical, основанна�
 ```bash
 magnet:?xt=urn:btih:5ABA6C20AD2182B4CE3E9D02A4DA4677ACE67362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:D26174A54ABCC93DB95BE48D6A79B67D7B2B9651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

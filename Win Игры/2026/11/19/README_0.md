@@ -19,8 +19,7 @@ Shipping Store Simulator 2037 - это симулятор управления
 ```bash
 magnet:?xt=urn:btih:A03517D96853386194CD0D3DF684C5F7693246E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BrokenLore: DON’T LIE - это психологический хоррор о�
 ```bash
 magnet:?xt=urn:btih:D3B6E460375D28344AAA11BE96638F3DD2241FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wicked Island - ролевая игра с выживанием в открыт�
 ```bash
 magnet:?xt=urn:btih:2553B5D960BBF714231D71FFC360C0529E2D2EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ CONTROL Resonant - это паранормальный экшен‑RPG от R
 ```bash
 magnet:?xt=urn:btih:58525F956528F9C20BF75A03FB4BFC331A2544CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Toto's Journey - сказочное приключение по мотивам �
 ```bash
 magnet:?xt=urn:btih:17D4042ACCB4A621175543CB87E4AD317378AADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Realms of Madness - это фэнтезийная стратегия в реа
 ```bash
 magnet:?xt=urn:btih:2B8C0DE72F38824C9CD034D2EB8FD272E2776E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Eerie Night: Escape From The Funfair (2026) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:8BE7E9539ED254C007A5628E48C1DC34C87B508E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

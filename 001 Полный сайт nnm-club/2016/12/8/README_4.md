@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CA234DF2DA511ED81F541EF3659718608805F5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Zaycev.net 4.3.5.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:7DBF81DF178A784137513021FF1F69A45A94CDFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56DCC822B96CB288E8D108A621E99188396A8466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87D325D9FDB8F44CBE41A1633EE6FECA3AE9883B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ That Dragon, Cancer – интерактивный пересказ реальн
 ```bash
 magnet:?xt=urn:btih:DE0AA3B3640ED1A9A6BB9861B9AAEAD6D23EF639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C850687F39702EC4CDB1DAAB2F77D7CD241FC299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AE8FA4D95124E5B41B148F6948CF31150714D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58D8B5AEA26B349E89B7E47981EDB66A5F7210A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Digital Slideshow универсальный, хорошо организова�
 ```bash
 magnet:?xt=urn:btih:68D55B33072D2F84BC9D58843EE00CD10A4FFD5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Discovery: Невидимые миры. Вода / Invisible Worlds. Water (2010
 ```bash
 magnet:?xt=urn:btih:A3819D17F4CA5842C9EC1158FBC9569566FEB659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ VA - Blues Forever vol.65 - vol.68 (2016) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:F1A834E8A0793D5A8C683D6E74D2DE501B5A91C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Two Steps From Hell - Vanquish (2016) [MP3|320 Kbps] <Soundtrack, Trailer music,
 ```bash
 magnet:?xt=urn:btih:57301EEFFD3DAE58624D9C831C4704431EBEF6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Broadcast Complete Package - Channel Identity - полный комплект д
 ```bash
 magnet:?xt=urn:btih:6261F747DAA68DE3223B0DBB14D2FE4C332A3D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ eReader Prestigio позволяет читать книги в форматах
 ```bash
 magnet:?xt=urn:btih:AD63979D1631FDF4990604155BA6C93F96328692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ Jain - Zanaka (2016) Deluxe Edition [MP3|320 Kbps] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:13782840306B801B05BCA22E8C096515CDF80AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ Modern Glitch Logo - демонстрация вашего логотипа ил
 ```bash
 magnet:?xt=urn:btih:EFE4915F2FAC3C254F5A7C4C20EE056A79B8FB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ Christmas Magic Particles - проект для Рождественского �
 ```bash
 magnet:?xt=urn:btih:75E39DC17843386CEBA1292C3C6312E1B01C8AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Version 02(   Читать дальше...   )Жанр: Руководство �
 ```bash
 magnet:?xt=urn:btih:04E6F0C584689626D6944406DF85A4841B5D291A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Christmas - красивый проект для создания Рождест
 ```bash
 magnet:?xt=urn:btih:BA12264F5E175A93D12360D374ABE0672711D1DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CDFD16AF2C7CC89451017394A5E0E87E2ECF957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CA8918D43AC7458C1A9AEB88D93A7274121615A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B926AF73CDFE518AEE280BB8B361279B5BC9F29B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ Louna - Дивный новый мир (2016) [MP3|320 Kbps] <Alternative Rock, 
 ```bash
 magnet:?xt=urn:btih:64331BC845F45604F902EB2609AD4DF98FC58488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D1782AB600DB87AC8AA910F841A63370E21AC50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ RadioBOSS - это программа для автоматизации эфир
 ```bash
 magnet:?xt=urn:btih:4BAFCB97607C3BFCFDEE5D6F69B5D6E643F6BB7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4AF91D91BC9132E1067C4F7B5171DCEA61ED94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

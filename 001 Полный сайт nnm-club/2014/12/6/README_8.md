@@ -24,8 +24,7 @@ Cult Leader - Nothing For Us Here (2014) EP [MP3|320 кб/с]<Chaotic Hardcore, 
 ```bash
 magnet:?xt=urn:btih:BF41F1EE95CD35A2EA4DCF1C3AB9C99D78EE567B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ The Spirit Of Versailles - Discography (2003) 2 CD [MP3|320 кб/с]<Screamo, Em
 ```bash
 magnet:?xt=urn:btih:4B478E55B2262D0BBE9B752213B3ECFEC8CA4614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C751136B6B8184A83F46FAF55388D3AAC89A65D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Quercus - Postvorta (2007) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:A4162E071C9E2D2804F5A200820746948D52F38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Trance Autumn Weekend Vol.8 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:10258D2ACC3CE70C16ADF38DBEE4A1C29E024B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Bill Stewart - Incandescence (2008) [FLAC|Lossless]<Post-Bop, Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:4F682890D1DDA0AAC9E370C1E72F7F447A98A3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45EDDECBE1ECC2C6B754E9CF56676BCC678BE8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04B1F9FD74FEB73C09C3A313C2B8BCC84C426191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:0189D9C11B6F9372676141653E7EA557F622BBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ VA - Stars of Trance and Progressive Vol 1 (2014) [ MP3|320 кб/с]<Trance,Prog
 ```bash
 magnet:?xt=urn:btih:CC4116CEE5C300241E0D5441A72258EE07939A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +320,7 @@ Argus - Beyond The Martyrs (2013) [MP3|320 кб/с]<Heavy/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:86F18F1C22FB41753E67793CBCB53DC2B98A72CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ Aleksey Kovalenko - The Best Of Chillout (2014) [MP3|320 кб/с]<Electronic, Ch
 ```bash
 magnet:?xt=urn:btih:5B4E44CFDA642A71B55B2C6D555C00EB62EB341B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ VA - Just Relaxing Chillout (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:4422EC6C191EA8F8465E026380C24C53195B24CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFCEDEC93AFA7D32D9C398D9B5CA6F3152953DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +447,7 @@ Billy Cobham - Tales From The Skeleton Coast (2014) [FLAC|Lossless]<Jazz-Rock, F
 ```bash
 magnet:?xt=urn:btih:79E559420554BD423A9C8DDE806041B5D4C7A70D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ Coronatus - Cantus Lucidus (2014) [FLAC|Lossless]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:221D9DC534D4028BCF7185601ADFC7CB6F54FBE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +515,7 @@ Obscurity - Vintar (2014) [FLAC|Lossless]<Melodic Death/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:08231A6ED833E4C484119D00E4FBFC0EA947E3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +549,7 @@ Bill Frisell - Guitar in the Space Age! (2014) [FLAC|Lossless|WEB-DL]<Fusion, Ja
 ```bash
 magnet:?xt=urn:btih:72E1176566146B1CBB3E97D2F64F2643638DD0E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0783C0C5533FBA0C3772CA3CDCEA8A3FB674100D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ Igor Dmitriev (Игорь Дмитриев) - Step By Step (1999) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:4490CC4140768BD301C244B9C7E14314358CB697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52614253FBC5387AD49FFD20735899DD7F99AB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78BB6F5FDD90943AFC44E51A272FC02C39059E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9F9DAD5BBF6F3535F7E17B1FF0FCC94F13D0AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17099598C187476A78FB3ACCF2312218CF4B2DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70D5C087B509A68A88F39961283E4B46636CD2A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +765,7 @@ Panzer - Send Them All To Hell (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CBF24EC861759B603182ECB8F88411DB7FDFDB75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

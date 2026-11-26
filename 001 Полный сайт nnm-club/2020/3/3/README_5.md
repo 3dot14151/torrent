@@ -22,8 +22,7 @@ Envy - Atheist's Cornea (2015) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:AAD9E16501593589ADB11FE8D96B3E22791D0DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tacocat - This Mess Is a Place (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 ```bash
 magnet:?xt=urn:btih:06C2878171C05774C4FB9EE72E9F7FAFED100B31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ PhotoMill X (aka Reformator) помогает Вам преобразовать 
 ```bash
 magnet:?xt=urn:btih:C28BA48225D53C377E66E4E7BCB02A3036FAB90E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Coleman Hawkins - 1950 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swi
 ```bash
 magnet:?xt=urn:btih:6C25846D0A43F50EFC028329ED33BE2FD7A930EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ North by North - Get Weird (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 ```bash
 magnet:?xt=urn:btih:3FB5748115C64D51C911B41972185A2F29EB1935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ FontLab - профессиональный редактор шрифтов. Пр
 ```bash
 magnet:?xt=urn:btih:68862089BDC46CDAC1CB768C9EC6AC8DEE214007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Skrin - Синтетика (2020) [MP3|320 Kbps] <Modern Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:E4533F22AC839CBFC4DBCA914EFE5A99338A5350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ MWeb оддерживает расширенный синтаксис Github: TO
 ```bash
 magnet:?xt=urn:btih:74ED75D7BF1E371FDC31640B5CBF9A10FA81953E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Chaotica - это приложение фрактального искусств
 ```bash
 magnet:?xt=urn:btih:942EEBF84FA2E4103469129687839276D65E3B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ SyncMate — это единственное приложение для син�
 ```bash
 magnet:?xt=urn:btih:02565D1304930274DFE9B1B72F54B06C3F593423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ OmniFocus Pro 3.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DE1CD7F86EC2BA29F4401A2281FCD8175F23518E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E5E08B45C5B12B96D186D34C97D55EA476AC91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, T
 ```bash
 magnet:?xt=urn:btih:1D8725EC070A18897B7CC93680976BF684AA717A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86B73F4E2F731299C9365F7C69B22DF4E1EDC37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA683CEC79E3C630AD6C435A83191A4C41BA16E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:880230B84009756375DC397F71A4BF949B18620D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Felix Slovacek - Con amore (1998) [FLAC|Lossless|tracks + .cue] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:37A02CC919E7CD474F332A53F534F4727F505C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:7AF2D2C451CA22FAC7636B1E210375FAFA7536D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Orange | Орендж [2016, TV, 13] BDRip 1080p 10bit raw
 ```bash
 magnet:?xt=urn:btih:213A18B3378093C4D0E5463829BA2355D2150D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:3068F3A7A00E3757E626B40CD9FB1C9895A8583E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ Max Arnald - Piano Covers (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern 
 ```bash
 magnet:?xt=urn:btih:FCB2DA294991813E5999D5DE705A26CE5B74BEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ Vladislav Delay - Rakka (2020) Cosmo Rhythmatic [FLAC|Lossless|WEB-DL|tracks] <E
 ```bash
 magnet:?xt=urn:btih:8E715BB0BEE5105432612E9A12F5446B4FFF85CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ Killstarr - Worlds Apart (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth
 ```bash
 magnet:?xt=urn:btih:C5FDF3B1031630C15A3904A076907FB5BF540F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:792AAFEE3409847979071D0E4C487B747FB8021A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ Photography Week - Еженедельник. Самый продаваемый �
 ```bash
 magnet:?xt=urn:btih:2B40C0334D5C4EDB294735E5756DE94978DC0457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ ActivePresenter — программа для создания презента�
 ```bash
 magnet:?xt=urn:btih:6F2F35CC8C1DD65ED6F4B5AEEE96EECFB1BD6B32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

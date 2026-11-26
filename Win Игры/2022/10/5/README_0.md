@@ -19,8 +19,7 @@ Bus World - игра о пассажирских перевозках, от пр
 ```bash
 magnet:?xt=urn:btih:9130FF4A0FAF02063FC87B25C85698CA9ACE2C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NERO - это хардкорный стелс-экшн, посвященный �
 ```bash
 magnet:?xt=urn:btih:59DDD5F05FE537661D7AF0847C8155198BCAFE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

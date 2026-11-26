@@ -22,8 +22,7 @@ ArtRage Vitae — это Премиум версия раннего прилож
 ```bash
 magnet:?xt=urn:btih:58B10FC498E2BA7B5EE4FF6440126E7710B27681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:08BD3DB994C89F678D78703B90F2B3BE490C1C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Eric McFadden - Eric McFadden does AC/DC: Acoustic Tribute (2018) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:2280B293A5A515B715ABFB744DCE9387B1FA10D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ History Channel. Далекий берег. Афроамериканцы в «Д
 ```bash
 magnet:?xt=urn:btih:08829D48C7A26CFB3FA46E06261A554AF52A6A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ History Channel. Далекий берег. Афроамериканцы в «Д
 ```bash
 magnet:?xt=urn:btih:DE529AB31E10B125C84EBD39F3153D07D6E7D31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Options Remake 150 Tracks (2018 December) (2019) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:2B2D22654E1F051B72D469A7CE7FC050DDCE250A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Brochures Templates for Pages - высококачественная колле�
 ```bash
 magnet:?xt=urn:btih:FE7F8C5F860DE6D66D36C9EC5363720C07739774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Venom - Storm the Gates (2018) [MP3|320 Kbps] <Thrash Metal, Black Metal>
 ```bash
 magnet:?xt=urn:btih:80035D7E518B310BF9FC540012AD4280661502D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Voiski - The Bat Who Wanted To See The Sun (2019) Dolly [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:163018409CBEE3C28A0602F86B6D78C28C2986BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4357B3189409204DDFF10D3539E0FC2AD238CD55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48E72B82C064593BE470C978157C4525C5491B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Deuter - Mirage (2019) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:57804793C46FC70E9F3191FED4777BEA8695102B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E773215D7FF72263A42B4E31673F040F0F490CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:197C7C4A66489B34F7F39713D75F7C5CBDE53FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22DE2D93C204A839F1C963EEA143E09B07CBB132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A225E7B0E1488BB8646931BEE4B7662B9D02DD99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8995DDB3562113B17310012991EF3910B99CAEB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34B02C1F01BADC0DCABFF1307F82F2C684EE0706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ Hela-это высококонтрастный округлый шрифт с и
 ```bash
 magnet:?xt=urn:btih:350FBAB0BA39CA3466CCAECE83014EF9D2AA12E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ Elven Legend 7: The New Generation (2018) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:8E25A91ECC24026DE75EF68F47D5DC85B21F183F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCFDB1F558AD882F121C1F9766F03AF2E2AEC6F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ Luminar первый в мире редактор фотографий, кото
 ```bash
 magnet:?xt=urn:btih:1C42208F242CB4C1F4BEC0B06C0253CB7A8110FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ La Mona Pro (2015-2016) Концепция: La Mona Pro, Mona - это реди�
 ```bash
 magnet:?xt=urn:btih:F21692E5BDB2BCF7363A765DB7FCFB6AE0819CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A5A0E4B7616BE3A65EA6989DC3B72942EFD5260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:226DE9FAFC5E87EBFDA684FCA5511DC13CDEDDC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C27443717643E5705E850750E177FB4C66308F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ BullyGirl - это два весовых нерегулярных и шумны�
 ```bash
 magnet:?xt=urn:btih:289D952A4E921D229955099DE59A37544BC4CA56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

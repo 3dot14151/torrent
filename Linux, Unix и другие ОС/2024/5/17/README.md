@@ -19,8 +19,7 @@ Oracle Linux (прежде известная как Oracle Enterprise Linux, Un
 ```bash
 magnet:?xt=urn:btih:22A793E2F4CB7CE7AA5ABBFD33FC6FD3579544E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

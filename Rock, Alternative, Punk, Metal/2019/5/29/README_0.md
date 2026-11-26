@@ -22,8 +22,7 @@ VA - Калинов Мост Tribute (2016) [MP3|320 Kbps] <Rock, Blues, Punk, A
 ```bash
 magnet:?xt=urn:btih:63036C986DCAD3CAD7622BAB37E8AA8D3E84D885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 ```bash
 magnet:?xt=urn:btih:3DD7D99E1100F7BEB15CDAAEDBAF88258DC0BF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

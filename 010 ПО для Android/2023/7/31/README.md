@@ -19,8 +19,7 @@ Hira vpn 1.0.4 b24 Mod by AzadNet[Ru]
 ```bash
 magnet:?xt=urn:btih:1FF901C958D344A6201DFF62A6B26CCA633FBDDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

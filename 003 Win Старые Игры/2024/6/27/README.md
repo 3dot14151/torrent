@@ -19,8 +19,7 @@ Robbo Millennium - игра-пазл, события которой начина
 ```bash
 magnet:?xt=urn:btih:DD5F4C53D0E49DE16630E393F8B5D5DD88E5342F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ MSI Afterburner - утилита для разгона видеокарт люб
 ```bash
 magnet:?xt=urn:btih:EA4863A740BD37567F636105F84256656A7F2EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ WiFi Warden — приложение для сбора данных о сети 
 ```bash
 magnet:?xt=urn:btih:664FD45F7E01EE25DE4535DB1F3D0A130B237454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFE0E6A25C458403B8C8DA0F1CEE4C2686576EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F8EF43A5A37F0AA3561AC30E62FAE3CB6ADD55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.10.29 [Ru]
 ```bash
 magnet:?xt=urn:btih:3E3BEE2CB953DBC1B8405E97A5FE37A12D3157FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Flightradar24 позволяет просматривать маршрут дв�
 ```bash
 magnet:?xt=urn:btih:BC1D9C0BFCECD8209C30819ACFB64F2737DBF6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

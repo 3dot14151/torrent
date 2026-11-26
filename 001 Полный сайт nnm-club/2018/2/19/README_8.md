@@ -22,8 +22,7 @@ Nightstryke - Power Shall Prevail (2017) [FLAC|Lossless|image + .cue] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:27EF96C5ACAC5B72466004A1E9A881FEF8CD86A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Art of Mankind - Distant Light (2018) [FLAC|Lossless|image + .cue] <Melodic 
 ```bash
 magnet:?xt=urn:btih:0250396C1DD0F78FFCB17D886AE06117987DE99F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Taake - Kong Vinter (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:E4831AFDD0C5C9D59D9CE57AD7AD0B32D419FA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Helen Merrill & Gil Evans - Dream Of You (1956) 1988, Emarcy [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:CDEC7FF846DC0822604DC8B59F12EEF775E18BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Milking The Goatmachine - Goatgrind (2015) [APE|Lossless|image + .cue] <Grindcor
 ```bash
 magnet:?xt=urn:btih:C7091EAFE525A391320CA91929703A6EAC4FDED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Fuzzy Boombox V.2 (2004) Fuzzy Box [FLAC|Lossless|tracks+.cue] <Leftfield, 
 ```bash
 magnet:?xt=urn:btih:8B3C20673B7CBC20A675ED10784EA89D3035EBEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Abstract Spirit - Tragedy and Weeds (2009) [FLAC|Lossless|image + .cue] <Funeral
 ```bash
 magnet:?xt=urn:btih:038576B84FA5E5E364A2CEADDA6764732D30B7A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Veronneau - Love & Surrender (2018) Veronneau Music [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:88348084808D0879101D1EB08B9641DA70B471B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Empire Records - Night Wave (2018) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:91766F32E85D0B813B9CB7A657EAE002509786CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:A8AF86C20EF7F3BA716E29BB34CDDA8BB762904D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:A2BCD2C8685C34154340272614D9336292FD2A04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Snakeyes - Metal Monster (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D8E91E2EFCCC1041B64CEC10D6C5454A054D8770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Melodic Trance Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance, Melodic Tranc
 ```bash
 magnet:?xt=urn:btih:97B830FDAAFE48E182AA54C5DFF6BBB3185A661D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26993DAEF0DB8EBBDB4F5ADC0976FFD99A93CA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Carmen McRae - Carmen Sings Monk (1988) 2017, Sony Music [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:71B7C49B7D8FB98564F8FFCB160934F4102C03DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ VA - Empire Records - Fake 2 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:1C618EE42881E8C88A415DA4F8FAA489C13D03E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ VA - Black Hole Trance Music 02-18 (2018) [MP3|320 Kbps] <Trance, Progressive Tr
 ```bash
 magnet:?xt=urn:btih:8484CC35A415717E0197DF1373343D63C6C054F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ VA - Empire Records - Chill Progress 2 (2018) [MP3|320 Kbps] <Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:AA651A858345F1126F592F4E38C31596CBA5BEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2455D42B56C602F60C0D80BD8F5DFF5C90DD843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13723FE8F26359BE0C865750B45FBBE453F18AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ VA - Vocal House Traxx Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:B69DFE0802FF023C8069BFF2C0290E126FB6219E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ VA - Future Vocal Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:97E83221E1790655608169B24428E2BE7DAFD312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F06DABD9EC68464BF8BCCAD58E6325F8A6812F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +654,7 @@ XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Ко�
 ```bash
 magnet:?xt=urn:btih:5ECA7AC43DDCBC49DFE130DF50D210F1E0595080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +682,7 @@ VA - Empire Records - Tropical Disco 4 (2018) [MP3|256-320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:F876512F25EF5479B360E77E9BE8242838B52FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +710,7 @@ VA - Shock Rock Hellions - A Tribute To W.A.S.P. (2006) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:C33F2A445860C9FA8980E56780B2E53894CA6F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ShadowSide - это приключенческая игра от первого 
 ```bash
 magnet:?xt=urn:btih:CBE89E85168F17F5F5BD4BB83C2E4CDFC6F4FCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

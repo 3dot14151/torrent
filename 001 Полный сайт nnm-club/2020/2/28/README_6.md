@@ -18,8 +18,7 @@ Lonely Mountains Downhill (2019) [Ru/Multi] (1.0.4) Repack Butter_
 ```bash
 magnet:?xt=urn:btih:F9E1E79BAC609964662331CA8685D6824DA9EEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E02588A3EABB07308EF5FF3679B7B085F0D75CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ PROMT Professional 20 – переводчик и словарь для мало
 ```bash
 magnet:?xt=urn:btih:25D3B9D271DA0292910617E533869C72873178D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ CORRUPTION 2029 – это новая тактическая стратегия 
 ```bash
 magnet:?xt=urn:btih:A8B19EB10F530991D624B50946985F5F9241FE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C491C173A4F691E14C0484588FAFBD9A871687D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Udemy | Web-разработчик 2020 (2019) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:3F0EA50DE5407530428CCA573B3CAC721283E809
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:278AEE2DD41AD5BCD3FA5A64BB5E66385E85BCBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

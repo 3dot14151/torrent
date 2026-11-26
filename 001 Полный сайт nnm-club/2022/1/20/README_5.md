@@ -18,8 +18,7 @@ PaintCode 3 v3.5.3 [En]
 ```bash
 magnet:?xt=urn:btih:673C987804F48D20498285DF74DA53D94563132F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Absolva - Side By Side (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EB70801BE0B25DC6A910E09D79D25F8A68994968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Airtool 2 v2.3.4 [En]
 ```bash
 magnet:?xt=urn:btih:4F4F024B7E24166F5025E9BBABE2367FBB9A1E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Absolva - Never a Good Day to Die (2015) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:CCF946497A163360183886BF835F20A6A1473C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Stil vor Talent 300, Pt. 2 (2021) [AAC|~315 Kbps] <Melodic House, Progressi
 ```bash
 magnet:?xt=urn:btih:247C07E2A38AA61082D1846F7C02AE356B2576C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - My Electronic Kitchen, Vol. 3 (2017) [AAC|~324 Kbps] <Lounge, Chill Out, Do
 ```bash
 magnet:?xt=urn:btih:B6DA7A205B415C1F8DC95F0323D7E1882655989F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ AText ускоряет вашу запись, заменяя сокращени�
 ```bash
 magnet:?xt=urn:btih:CE47FDBF3B2C9615F0C8B260E152D9365853C34F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Stil vor Talent 300, Pt. 1 (2021) [AAC|~326 Kbps] <Melodic House, Progressi
 ```bash
 magnet:?xt=urn:btih:41636641DC4CD7AA82674449D4CE10CCE9D03113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:9B6B4F85E73DCC3FF4CC20EF979B75769788A619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ VA - My Electronic Kitchen, Vol. 1 (2016) [AAC|~335 Kbps] <Lounge, Chill Out, Do
 ```bash
 magnet:?xt=urn:btih:F763D8421AB69155DB5ED8C23F8F3D76792BEA2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ VA - My Electronic Kitchen, Vol. 2 (2017) [AAC|~335 Kbps] <Lounge, Chill Out, Do
 ```bash
 magnet:?xt=urn:btih:8E8C4EA69D95A0A5BCB20F326B88394CD526FDBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Mirror for Arcelik TV 3.5.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:A1C9E35EC87F29A6B38ADC88579F4563012C810C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Towards Atlantis Lights - When The Ashes Devoured The Sun (2021) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:E0D35D1EC834896AEA8296E73476A25BEE1EC64F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:1B13A09996F7CD699A47B2039A0903F96C37A1E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Guenter Haas - Tales of a Broken Planet (2013) [AAC|~319 Kbps] <Lounge, Chill Ou
 ```bash
 magnet:?xt=urn:btih:F0F1EAE0F26A58C09413B4A1C9B09583E2F62B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Mirror for Roku TV 2.9.3 [En]
 ```bash
 magnet:?xt=urn:btih:35C7CC401FCA18A805EA4C0484A45C61D2AD1AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

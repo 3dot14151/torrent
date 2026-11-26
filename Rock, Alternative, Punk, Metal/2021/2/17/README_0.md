@@ -22,8 +22,7 @@ Red Moon Architect - Emptiness Weighs The Most (2020) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:FDC78091A601F29BD563CA42D3D3325520A58B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Prog Collective - Worlds On Hold (2021) [FLAC|Lossless|image + .cue] <Psychedeli
 ```bash
 magnet:?xt=urn:btih:9419CF31292E4659BDDF06D360BE9DCE0894F7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Klee Project - Screaming Out Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:1240674EC2A560B40FF26F7D73BB922BB79693F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Highway Chile - Keeper Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ```bash
 magnet:?xt=urn:btih:2E595FA37BFDE7EE6B6628DFD46916BC06854278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

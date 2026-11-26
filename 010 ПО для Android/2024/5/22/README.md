@@ -19,8 +19,7 @@ FlipaClip - Cartoon animation - простое приложение для по�
 ```bash
 magnet:?xt=urn:btih:1695BF2B2D61CA3897BB53ACC34A660AE98408D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A740AD138E727124E1522C0357ADC0B76B13C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AIDA64 2.01 (ARM64) Mod by CMAPTOC [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DED5BA7C289E124FCDE00CEFD1D73FAC08C91D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

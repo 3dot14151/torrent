@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:47FE782E2F87EDB116978740AC688F5010D6BC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Scorpions - Lonesome Crow (1972) Mixed, Reissue, Remastered, 2026, Brain [FLAC|L
 ```bash
 magnet:?xt=urn:btih:072E76FCF450FE59E94F165BF8C1C708CB64DDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

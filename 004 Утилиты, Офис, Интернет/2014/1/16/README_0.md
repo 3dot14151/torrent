@@ -19,8 +19,7 @@ Genie Timeline Pro - это простое, но абсолютно новое �
 ```bash
 magnet:?xt=urn:btih:A94FA338AABD27B4A17EB9543A87E6D4A1CA4402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Miranda IM – интернет-мессенджер, способный раб�
 ```bash
 magnet:?xt=urn:btih:C83D4E38E43562FA521D26252ABA09076995E149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

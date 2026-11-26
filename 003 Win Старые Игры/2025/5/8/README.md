@@ -19,8 +19,7 @@ Homeland - The Stone of Night (2000) [En] (1.0.3z) License
 ```bash
 magnet:?xt=urn:btih:E4953FCDD4E1BF274E37525F0E63B7A9B08E3950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

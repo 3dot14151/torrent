@@ -19,8 +19,7 @@ Endzone 2 бросает вас в самую гущу постапокалип�
 ```bash
 magnet:?xt=urn:btih:B4C30D6C86F77DD472C0EAFB26B8D596726CD0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:DF44485A7FD7CD7225BEE2F5DA5B86B6E9EA002A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Endzone 2 - постапокалиптический градостроител�
 ```bash
 magnet:?xt=urn:btih:84D8AE4C2731B179F449DDE2FAB599EA523F79BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.06b) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:23E4F2F2553BC8E85731A19FB7A4B7CA489879D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:47545901E9F8AF8FCCF2493DCC897A2E04554E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Call of Duty Modern Warfare 2 (2022) - шутер от первого лица, 
 ```bash
 magnet:?xt=urn:btih:BE7B270688C4DBF718AD0268BCE1D4A3E523B681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ CyberCorp (2024) [Ru/Multi] (1.03) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:11151AD1197EFC78523B25DF93F21678CB083C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Out of Sight - атмосферный хоррор, сочетающий пер�
 ```bash
 magnet:?xt=urn:btih:FA56FB91198DB0E16CE59289F8B6DEC770133CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7188813DDEDCA6AA6E9E8951D0EED0242D32395B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 ```bash
 magnet:?xt=urn:btih:B8F577578499571DDBEEF6C8A6F920FCB84DDC82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ TRON: Catalyst - новый изометрический приключенче�
 ```bash
 magnet:?xt=urn:btih:72D1504B4E27B4209598528B268910C1173652D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Rise Of The White Sun (2023) [Multi] (1.86) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7DA5434BE55857C5368CAF82756559739D622DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Boti: Byteland Overclocked (2023) [Ru/Multi] (1.15/dlc) Repack Let'sРlay [Delux
 ```bash
 magnet:?xt=urn:btih:9E08C0F737C0F813A63350E7937F33BB2E64D08A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 ```bash
 magnet:?xt=urn:btih:9364FF40F7D542FE78762011BC533B91E813E06F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 ```bash
 magnet:?xt=urn:btih:A7F007022DC9C2E4A91EC8FF18ED7D13F115BDD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 ```bash
 magnet:?xt=urn:btih:D0D1EF058C13597D1D7CA6320DC2A4E1C8DFAEBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Terra Nil – градостроительный симулятор-песочн
 ```bash
 magnet:?xt=urn:btih:BF57787063347E63FA41C9BA34E69A0FB73AC5DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 ```bash
 magnet:?xt=urn:btih:D27D5E6B96B9548F349EEEF60BB25B68B9CDAEE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

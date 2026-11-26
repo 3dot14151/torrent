@@ -20,8 +20,7 @@ meego это система для нетбуков основанная на re
 ```bash
 magnet:?xt=urn:btih:94AFE14978DAD2C93CF43E62BDDC5CB9C8E6A555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

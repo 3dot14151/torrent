@@ -19,8 +19,7 @@ BloodRayne [Ru] (L) 2005
 ```bash
 magnet:?xt=urn:btih:F761C7142A2E4604B4729DE2B5F69594514FA0A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

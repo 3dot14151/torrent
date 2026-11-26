@@ -20,8 +20,7 @@ Notepad+ 2.4 - Блокнот [Rus]
 ```bash
 magnet:?xt=urn:btih:6BC8CDC4331EB88969656857007848AE30BF677C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

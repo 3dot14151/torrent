@@ -19,8 +19,7 @@ ANOMALITH - приключенческий экшен с элементами в
 ```bash
 magnet:?xt=urn:btih:F7CFD59CA812C53D669F11D223EE607479DA4305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ASPIS / АСПИС (2026) [Ru/Multi] (Build 26158332) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FC1BD20B6956B331E1A61C94583D4930C0E924B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ REKA (2026) [Ru/Multi] (1.0 build 26200396) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:FD393172701CC3520CDD7969FC846981EF4B60D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ REKA (2026) [Ru/Multi] (1.0.21) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:30AFD46AE9632EE649967E9694205AAD38031E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ over the hill (2026) [Ru/Multi] (26.10.22/dlc) Repack FitGirl [Supporter Pack Bu
 ```bash
 magnet:?xt=urn:btih:1D303AEE01A2228BADA5526912BA028E0F5E52B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Detective Club 3: Carnival of Secrets / Детективный клуб 3: Ка�
 ```bash
 magnet:?xt=urn:btih:6B39BB67599471F74F249B505A8131191FAB7F7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Virtue and a Sledgehammer (2026) [Ru/Multi] (Build 26242019) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3025A46C65382F36774489C97F1849B39150EEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Earthworm Jim HD (2010) [Ru/Multi] (1.0.0.11) Repack Let'sРlay [PC Port]
 ```bash
 magnet:?xt=urn:btih:448AC4E39CA918CC8ADC585938DBBF97F18C12BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ You Are Empty (2026) [En] (Build 26240696/dlc) Scene Rune [Absolute Edition]
 ```bash
 magnet:?xt=urn:btih:75C2D0C53DF0352E9856E7B35CE6BDACCCD8E1C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Boss Gangster: Criminal Empire — симулятор криминально
 ```bash
 magnet:?xt=urn:btih:C961134644CB10BF40B2A1367D6B932A8232B3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

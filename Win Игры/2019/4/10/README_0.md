@@ -19,8 +19,7 @@ Dark Tales 15: Edgar Allan Poes. Speaking with the Dead / Тёмные исто�
 ```bash
 magnet:?xt=urn:btih:1258E9137332A7294DD8F50F3A8771FA5D047FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Urban Trial Playground - это аркадный гоночный экшен, в
 ```bash
 magnet:?xt=urn:btih:5533CF84974F1CAC9AFFB31FF00A058ED2ECC55E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Feudal Alloy (2019) [Ru/Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:767B7A8CF965AE847E4D13E7FD3778E9BF2DB3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mark of the Ninja: Remastered (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C392D0C3A5956E8522CBF54405D9B1DC98EF6703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

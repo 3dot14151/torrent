@@ -20,8 +20,7 @@ Baidu PC Faster - программа для оптимизации работы 
 ```bash
 magnet:?xt=urn:btih:1BC6545688A82D8B3FD614DF3A6CFED052E95E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7168863E590603028175021B5A42B7A10AD67070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Scott Bradlee & Postmodern Jukebox - Clubbin' with Grandpa (2014) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:B362F1F538DEB2E86FD34E2D863451CCBF0BE052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Echoes of Sorrow 2 / Эхо печали 2 (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:C9D306DB39A5C1B1979144E36C527F951BC3B220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFEA307A5CF096DCC3C8BE4DA7CEF18E7D0C1AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Suum cuique. Каждому свое. Месть это блюдо из гвоз
 ```bash
 magnet:?xt=urn:btih:42AB55F8E01E427C00F4235DF8CEF166F8CAFE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3E96F6B15B28F81A0485C8BA45D2E4D6EE6431D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D057527A26B6DEF43090F96BF65DBECF955D6D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Reflex - Воспоминания о будущем (2014) Deluxe Edition [MP3|3
 ```bash
 magnet:?xt=urn:btih:0D4A2E936057B2BDDE1A037CEB894933A41427FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7D901DFA7D41CE77A0CFFEE81A4ABEB5573A816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Lynyrd Skynyrd - Street Survivors (1977) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Sou
 ```bash
 magnet:?xt=urn:btih:0B717E965FB1B68C9D1B397E37FBE9C3FDF91AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F7E3237ECBF7CB1A88BE1CB89040211F8B33EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ VA - My Favourite Hits of 1984 (9CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth 
 ```bash
 magnet:?xt=urn:btih:363DB0F92FED30D0A4F525424ABA0E5E353576A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ VA - BioShock Infinite (2013) [MP3|320 кб/с]<Score / Soundtrack>
 ```bash
 magnet:?xt=urn:btih:B648579A6B6D713EA04EACFE74D8C98DE2F4C7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ HitmanPro – мощный cканер для выявления различн�
 ```bash
 magnet:?xt=urn:btih:5CE6524B0C9F39E7C2C8E463B431EAB117C9A784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ Alizee - Blonde (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:8A3F1B1B48BF84B564CB12C6D19908DFA2CDFF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDEF022D1F6B7049EBC027EB10A4840A6D948B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8703488DABE0DA0E11546BEE4A6168B8E6C21AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ Eric Chen - Piano Seoul Lovers (2007) [MP3|320 кб/с]<Instrumental, Neoclassic
 ```bash
 magnet:?xt=urn:btih:C3553FB54CD9D58535CD792971213CD2113F6B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +567,7 @@ DJ BoBo - Best Of (2014) [MP3|320 кб/с]<Pop, Electronic, Dancepop, Eurodance,
 ```bash
 magnet:?xt=urn:btih:E54B670C2F5AEC50FFCAA0FA38BB60743B7E28D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +601,7 @@ Karunesh - Yoga Love (2014) [MP3|320 кб/с]<New Age, Instrumental, Enigmatic, 
 ```bash
 magnet:?xt=urn:btih:19843287B7437A84656B3F279B56BD567832793C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ BBC. Horizon: Астероиды: хорошие, плохие, злые / Aster
 ```bash
 magnet:?xt=urn:btih:75138848DC1C54784B9929D99294233B9E6112A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32701AEA616698F93EFDD277E8F171F225A4C73D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +703,7 @@ School 13 Игрооргии (2012-2013) WEBRip [H.264/720p-LQ] (Сезон 1, �
 ```bash
 magnet:?xt=urn:btih:FA950E3BDD3F52D3D576A8A5188DED76F1BEE64F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A675E9D9AA351ACBC5502748807FC869D569996B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

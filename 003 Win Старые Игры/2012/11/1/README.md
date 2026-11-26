@@ -19,8 +19,7 @@ Delta Force - тактический шутер от первого лица, п
 ```bash
 magnet:?xt=urn:btih:01265D0589CF16FFA96A871D6D00D2FA73CF6693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

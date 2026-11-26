@@ -20,8 +20,7 @@ FlipCreator - программа для создания электронных 
 ```bash
 magnet:?xt=urn:btih:DA251303039DF96A4867F343D33653ABBF3CB54A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ePageCreator - программа для создания электронных
 ```bash
 magnet:?xt=urn:btih:2E2700BC5A9A26B73E9D5C7D4769CD7DBB458F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

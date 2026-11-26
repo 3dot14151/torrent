@@ -19,8 +19,7 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.203/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A3B58B135CF7025DED918D9D466934103C12C084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Generation Zero (2019) [Ru/Multi] (12431825/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:9FDC0C6B9A5F0E3219E3F9EF67497B2BF848592A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DUSK возвращает вас в мир, где, если вы хотите �
 ```bash
 magnet:?xt=urn:btih:DA634C0BFF118273DE84B79B6066B8ED1B83F2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

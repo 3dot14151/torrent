@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:665852AF06FB1E6FE10EFB9D3447E1B8E64947FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Data Science - это совокупность понятий и методов,
 ```bash
 magnet:?xt=urn:btih:4B0EBF73164E2B13FF121A09B32FCCA47C84A26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

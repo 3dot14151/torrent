@@ -21,8 +21,7 @@ Scientific Linux 6.5 Live RC1 [i386, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:910F6D22C3DAF62FB88F664A7E75FFCBEE1BA5A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bridge Linux основан на Arch Linux, и включает в себя г�
 ```bash
 magnet:?xt=urn:btih:A133206A1A7F54502B9ABB55A08A06510E1589AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Tails 0.22.1 закрывает очередные выявленные уязв
 ```bash
 magnet:?xt=urn:btih:07E73C227EE96EBF47C8641B9C95F5A761817629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ ArchBang Linux 2014.01.08 (Легкий дистрибутив) [i686, x86-64] 2
 ```bash
 magnet:?xt=urn:btih:E721154DC909D7467A7EFC58BF798AA17E03D0B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ AV Linux имеет полностью настроенный Debian Linux с XF
 ```bash
 magnet:?xt=urn:btih:A1616A91AA80D52AC66BCB83947185537518D053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ AmigaOS — операционная система для компьютеро�
 ```bash
 magnet:?xt=urn:btih:2F3A6A797DE450B25DD3BF784E7C3129454FDFED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

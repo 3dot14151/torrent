@@ -19,8 +19,7 @@ Mountain Crime: Requital (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:B498881969C33EF85908A3978BA951F735881894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ House of 1000 Doors: Family Secrets Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:F0950F99D925C83CF723F12BAFEDBBB24D1D3104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ LEGO Гарри Поттер: годы 5-7 / LEGO Harry Potter: Years 5-7 (L) [M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ City Life 2008 Edition - полностью трехмерный градост�
 ```bash
 magnet:?xt=urn:btih:8E2B2D508B3776B8EDCF314C6E424C8736A1E907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

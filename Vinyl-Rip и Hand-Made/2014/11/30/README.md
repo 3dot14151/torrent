@@ -22,8 +22,7 @@ B1. Mutually Assured Destruction (Live) (5:12)(   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:E1796E721D60DCA059F5A81EB25D43527FD3474F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

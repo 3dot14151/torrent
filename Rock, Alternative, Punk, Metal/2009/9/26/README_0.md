@@ -28,8 +28,7 @@ Rashamba - Pralavana (2009) [MP3|320 kbps]<alternative>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Limp Bizkit - The Unquestionable Truth II [BOOTLEG] (2009) [MP3|320]<Alternative
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

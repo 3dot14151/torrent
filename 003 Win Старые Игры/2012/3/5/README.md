@@ -20,8 +20,7 @@ The Thing [Ru] (RePack) 2002 | Pilotus
 ```bash
 magnet:?xt=urn:btih:1CB8275FF4A3C8AB855850317B6E2155320A2D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

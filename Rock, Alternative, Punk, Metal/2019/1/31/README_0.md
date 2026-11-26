@@ -22,8 +22,7 @@ Artificial Silence - Negative Space (2018) [FLAC|Lossless|tracks + .cue] <Altern
 ```bash
 magnet:?xt=urn:btih:EBB0FE3E2FC54A24D67CE47F93A5A33652BE401B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Inkubus Sukkubus - Belladonna & Aconite (1993) Reissue, Remastered, 2011, Resurr
 ```bash
 magnet:?xt=urn:btih:0992E5CA4CF909B84C586B17EF0D2C147D58701B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Clouds - Dor (2018) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Doom, Funeral Doo
 ```bash
 magnet:?xt=urn:btih:68ED0FAC5381FB268CC289688915B0EFB9655F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Calico Jack - Calico Jack (2019) [MP3|320 Kbps] <Pirate Folk Metal>
 ```bash
 magnet:?xt=urn:btih:F6A5BD0DB0C3CF278E96F07BB1724BB8D7D9961A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Clouds - Dor - Bonus Album (2018) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, M
 ```bash
 magnet:?xt=urn:btih:0B6E8C3954E93DDB6E91333B1BD82C9FAC0B3ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Soft Machine - Hidden Details (2018) Japanese Edition [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:1CE4C7D3FDCE8C83760475220E393AF96E1337CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Simple Minds - Walk Between Worlds (2018) Deluxe Edition [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:7429C366AE1C7006F20F13C98E627576F992B088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Metallica - Helping Hands... Live & Acoustic at The Masonic (2019) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:394ED89562C48F4BFA9805193B4C9E9AE247E44F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Within Temptation - Resist (2019) Extended Deluxe [MP3|320 Kbps] <Alternative Me
 ```bash
 magnet:?xt=urn:btih:E0F6A441509D66742EAC240238AA52B1F2B635BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

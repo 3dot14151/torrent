@@ -22,8 +22,7 @@ A4.Закрой За Мной Дверь, Я Ухожу(   Читать даль
 ```bash
 magnet:?xt=urn:btih:43EE38CD4C6E351B07E9BCCC13FE941F63162726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

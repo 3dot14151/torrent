@@ -19,8 +19,7 @@ Batman: The Enemy Within - The Telltale Series содержит все пять 
 ```bash
 magnet:?xt=urn:btih:083B181DE7E9DB229180489977238CA75980163E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Immortal Redneck — это шутер с элементами жанра роу
 ```bash
 magnet:?xt=urn:btih:5F4072ED03553F860F5EA6DC7D3E6894333ECC36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Take Off - The Flight Simulator (2017) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:BB12CD912BE039C8933F0D9534F039E50C33993D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:C3E7C434C22AAFEFE2792E2D53DBB3F0DC45BDFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ VA - Pro Dance Vol. 68 from XBSmusic (2012) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:E9A4432415C2B3AEA358D6A0B6DBB001BF479EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1F039AFC6ED6785D49EDD6262FD440BA6998695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ VA - Trancern 38.3: Official Compilation (November 2012) (2012)
 ```bash
 magnet:?xt=urn:btih:12978500C9C7609A20426A99D3BFEDBD8CA53AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ VA - 30 Dance Autumn (2012) [MP3|~225-320 кб/с ]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:6B67A289BBC8E9F8DE916992AB7C2AD9F6E377EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ VA - Хит 200 BESTofка 3 (2012) [MP3|128 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:BBA52BA107524D89295B127721043E7D5EE0A80C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:656442D3C8F79B5A5DC8CDB07CFDCCCC5FE2ACFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ VA - One Year Crossfrontier Audio (2012) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:9692F4034B578DF73DB0EAF68D8473244977DBF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ VoGE - Voice of Golden Eagle (2004) [MP3|192 кб/с]<Native American, New Age, 
 ```bash
 magnet:?xt=urn:btih:815694DE6E13EA21244765C59174363169815B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ Kells - Anachromie (2012) [MP3|320 кб/с]<Gothic Metal, Modern Metal, Female V
 ```bash
 magnet:?xt=urn:btih:AB63D314464C04E2C7F45E3B45D71EA2D4BD9300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D9CE446A3C3B8FAC8E241E8ABB1A0CB97A13343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:340C60E59AF4F832FA6EC51BA6EF2CCFA772DD1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ Abstract Wallpapers (21.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:37C5FCBA59887A75CD64651321496EAB003FF204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ Arty - Together We Are 022 (Best of the Month) (20.11.2012) [MP3|320 кб/с]<Tr
 ```bash
 magnet:?xt=urn:btih:B213363870325F57F8CB515D14CB6155BABCDBE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ VA - Dubstep Impression (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:28AD66E163F1AF73AC184F8A1C3965B21C06BBF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39D1CDA215F2424EEFAB2FA8D1DB466E8CDBA373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +506,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:718FD6AAE12D3CB4167489925B643DE938BCEDCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ Crushing Ground - Rite Of Passage (2012) [MP3|320 кб/с]<Hard Rock / Blues Roc
 ```bash
 magnet:?xt=urn:btih:A8D7E67957533BAF8C0EA4FEEB69E6F83BDCF542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ VA - Trance. Vocal Fascination 37 (2012)
 ```bash
 magnet:?xt=urn:btih:AD8286701D2BBDA18A211EC1F3C0799E3497405B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:200F4B4787416D39B1C6FCBC7FA1E6AD7B5BC097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +631,7 @@ Deadmau5 - Live At Sonos Studios (Hollywood, USA) (26.10.2012) [MP3|128 кб/с]
 ```bash
 magnet:?xt=urn:btih:672ACEE290E468CE57580E034A4FFC4F4A67D22B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ MO - 13 (2012) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:1D6BFF0FE1014621DD815558EA86A9803AD07219
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +693,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2FC244FF1B864DF95915BDEFEAA89929C20DFD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +719,7 @@ PC Week - Журнал информирует о передовых технол
 ```bash
 magnet:?xt=urn:btih:4721B54E0E308AF436FE4287C14094AE6D031E0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +751,7 @@ Dordeduh - Dar de Duh (2012) [APE|Lossless]<Atmospheric Black/Pagan Black/Folk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -810,8 +785,7 @@ Bobina - Russia Goes Clubbing (21.11.12) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:962C9EF6E3667D0F338E36B2E3F6DC1F20DD38AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

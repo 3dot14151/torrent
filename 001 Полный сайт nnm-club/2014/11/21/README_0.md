@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E56D26AC3C3F24876C0DABE09B053ACC1C9994CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Shook - Spectrum (2014) [FLAC|Lossless]<Soul, Disco, House>
 ```bash
 magnet:?xt=urn:btih:6FC3D9A447FE4898D902E79DA8B8DD336E7CA18B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Sexy Lounge Vol 1 (Finest Selection of Sexy Electronic Tunes) (2014) [MP3|3
 ```bash
 magnet:?xt=urn:btih:C48C0576BBB86C0CA2743B26FD08922B9FE2CC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Bonus tracks:
 ```bash
 magnet:?xt=urn:btih:2527E2B343F545CF2BB48F7A65579E69C39B84A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Comedy Woman  (2014.11.21) WEBRip
 ```bash
 magnet:?xt=urn:btih:91150D55ED10048F600E5EABCC44AA8BF59A2914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Saveurs («Савёр», «Вкус») — глянцевый журнал об 
 ```bash
 magnet:?xt=urn:btih:81A5C7F136AE6EA03143534066CCFDD0B6A51D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Ethna - Collection (2CD) (2005-2007) [MP3|~225 кб/с (V1) 320 кб/с]<New Age
 ```bash
 magnet:?xt=urn:btih:383C5E9A04AE3C6A4ABCA8F5C5E0554F2C47E730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Simon Phillips - 2 Альбома (1988-2013) /1988, 2013, Food For Thought Reco
 ```bash
 magnet:?xt=urn:btih:6243993B13E4116D551A9BAC66EA5C18F67F089C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ Olly Murs - Never Been Better (2014) Deluxe Edition [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C7A9C9FD735FD070EDF1759BBA8EBE3C93656DB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E21974C7360FDE1713B2999DCC59B5B6B644D0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:358A951A668EE4EF939CF49293305077E2435967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ VA - Bleep Selects 25 Years Of Warp (2014) [FLAC|Lossless]<Experimental, Abstrac
 ```bash
 magnet:?xt=urn:btih:EB81AFD4B2CEF7FA42A24D01E0090CB81AD0CA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83E44DF09F5234922C95EE5C256FCE349691A2E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EDF5B152CCA812BC2ACB0936F17B1266A1613B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Discovery: Мастер по созданию бассейнов / The pool mast
 ```bash
 magnet:?xt=urn:btih:DFA34AC37F8A6DD381DE112AEB97B33A4A00C1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32DA90B1BDA5956B8DE05BC206251B0DB6D62A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ Comedy Баттл. Суперсезон. Выпуск №33  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:DF38177A361661EEADEB47F847C777A8798F0E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F9F22263A8D2C8233F30BFC6367094229159DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:579F74DC55A0E05125C34B5C071AC875E99F0395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35E9E25C118750A0D0E0EEF688932004EFF91F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +592,7 @@ Sepultura - The Mediator Between Head And Hands Must Be The Heart (2013) Limited
 ```bash
 magnet:?xt=urn:btih:8E93BF52E585D5C7E5F5E8E29089086B807CD601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +626,7 @@ Botanic project - Нормалия (2008) [MP3|192 кб/с]<Reggae>
 ```bash
 magnet:?xt=urn:btih:53B7C46F2B76A08735C00ADC4F8652513EA6264B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +660,7 @@ Cut Copy - Cut Copy Presents: Oceans Apart (2014-11-07) [FLAC|Lossless|WEB-DL]<H
 ```bash
 magnet:?xt=urn:btih:9F0D30185BAD2960FA3A563B2212BA2896F3BE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:381E41F366E85C45C7BA38620EEEAB5A96C9D145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05DE3A75914215E366A8A058251D8CFFF8147A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +744,7 @@ Crazy World of Arthur Brown - Zim Zam Zim (2014) [FLAC|Lossless]<Psychedelic Roc
 ```bash
 magnet:?xt=urn:btih:1E0A926C5EFD2BC880247F7552C4E806BBF2D1A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

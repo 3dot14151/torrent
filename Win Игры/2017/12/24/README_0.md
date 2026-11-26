@@ -19,8 +19,7 @@ Redemption Cemetery 11: One Foot In The Grave / Кладбище искупле�
 ```bash
 magnet:?xt=urn:btih:94F2096BA078AC5F2CB306108BE452205F2FE398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Christmas Spirit. Trouble in Oz / Дух Рождества: Неприят�
 ```bash
 magnet:?xt=urn:btih:12E1A5EA785520368F1023E5F4FC951AD69E76C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ECHO - научно-фантастическая приключенческая 
 ```bash
 magnet:?xt=urn:btih:B9AF7F60B134485599BB861104EC58351696BE97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Redout - это гоночная аркада, вдохновленная так
 ```bash
 magnet:?xt=urn:btih:BDFE0A38E2B2A0F0F8FAD4CD614B454613AA933E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

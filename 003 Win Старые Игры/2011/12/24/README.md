@@ -19,8 +19,7 @@ Outdoor Life: Sportsman's Challenge  / Особенности спортивно
 ```bash
 magnet:?xt=urn:btih:46DE2480FD757CAAAD6FC39DC804D6914CBC1B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cabela's African Safari [Ru] (P) 2006
 ```bash
 magnet:?xt=urn:btih:162644E0C4B51759239844A52BF34BC5CDC074FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

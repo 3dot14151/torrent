@@ -22,8 +22,7 @@ Auditorium - красивая и успокаивающая игра с прия
 ```bash
 magnet:?xt=urn:btih:657213C7295EA9AC4E9B33EECABBBB46952E300F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Thomas Was Alone [En] (RePack/1.1) 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:420F38A8F2DD1A970D2D2EF36BB703C59D6CDCA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

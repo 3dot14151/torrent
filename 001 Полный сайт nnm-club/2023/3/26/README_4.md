@@ -20,8 +20,7 @@ Gibbon: Beyond the Trees — это нарисованная от руки пр�
 ```bash
 magnet:?xt=urn:btih:077AAD23E43CDE8AB904CD165CBA0368C3E882D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD2D9ED32953C59633E0ABBFD522EC69BC214D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ updated_march_2023_x64_dvd_e9856a7a.iso.
 ```bash
 magnet:?xt=urn:btih:3006C0E50D03F9B66B1CE53AD248429C907E6C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Skillshare, Jake Fleming | Vector To Pixel Art (2020) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:BEA8667941687256044B171D30358349002AC8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCFB3A3F08B63A742486D83670FB983570AFB0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ The Dead Daisies - 6 studio albums (2013-2022) [FLAC|Lossless|image + .cue | tra
 ```bash
 magnet:?xt=urn:btih:74634210C01DFF642E95F9F6ABDB062CB6319404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38192C672D97CC9B7F524E08039BC51F82A20924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:811448FE7B1EDC35F5E966102A01B94C915959A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ LectureNotes — это приложение для Android, которое по
 ```bash
 magnet:?xt=urn:btih:0875B776C31B60206E75C135DD0B0220F34099BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6097856F250635C2739EE6FADF5375B2CC4FF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA7F7D18080B5D38F74B3A72195AEB45785BA799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Class101, Studio Pants | Retro Video Game Like Illustrations: Pixel Art for Begi
 ```bash
 magnet:?xt=urn:btih:2D0DCBCABB69C7AC45901D86C30EC0D6F7C5FB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 ```bash
 magnet:?xt=urn:btih:19969019F567C04A446CAD9760199F50EB8EECE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ MemTest86 - программа позволяющая проверить опе�
 ```bash
 magnet:?xt=urn:btih:64C1ACD343B2E66ACFFA398B08449AAD252606EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EED034594D6C11494514941BB582739BED1909F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:127B9F52692B81C3339871B6C5591E8C151C5C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Udemy, Serge Lansiquot | Learn C++ Programming by Making Games, Volume 1 (2022) 
 ```bash
 magnet:?xt=urn:btih:9A43ED77A44E5DE22D2F18DB473BAAFE310B4B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Age of Wonders: Shadow Magic – это продолжение знаменит�
 ```bash
 magnet:?xt=urn:btih:4380A29856AB52B66B1BE8C6E11391214757ABA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ Extended GodMode - это утилита, которая обеспечивае�
 ```bash
 magnet:?xt=urn:btih:D8A94FE6B7CE73A8AFC299350466F67B5591D3E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Udemy, Alan Ayoubi | After Effects Animated Graphics Beast (2020) WEB-DL [AD] [E
 ```bash
 magnet:?xt=urn:btih:438CE502836F367B7B06D6FA3837323F2DC62A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ```bash
 magnet:?xt=urn:btih:F833C4688C19440035F33F980DE9025C2C73D8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +553,7 @@ Monster Energy Supercross - The Official Videogame 6 (2023) [Multi] (1.0) Licens
 ```bash
 magnet:?xt=urn:btih:40B7CE6AB73DCABC91CE960FE275D6821DD02B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +578,7 @@ Outcast 1.1 - переиздание приключенческого экшен
 ```bash
 magnet:?xt=urn:btih:F0815DFD92FEF4C2918DB59F327432E72F638D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F62E104A0E8D6F5F73023D65CD83E2DFEB4E129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ Pikuma, Gustavo Pezzi | Fundamentals of 2D Game Engines with C++ SDL and Lua (20
 ```bash
 magnet:?xt=urn:btih:D6221DB0247BA0E301FA0C603B25054ED8B8E1BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ Drone Swarm (2020) [Ru/Multi] (7377621) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:EA38951B3B9DB4355E15DDA8BE08EF1292B39202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

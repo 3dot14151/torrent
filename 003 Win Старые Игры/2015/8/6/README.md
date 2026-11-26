@@ -19,8 +19,7 @@ Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f)
 ```bash
 magnet:?xt=urn:btih:9CE681E75F3F6B46C5D664AA26B8F78269F58E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

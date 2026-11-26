@@ -18,8 +18,7 @@ Guacamelee (2014) [Ru/Multi] (1.0) Repack R.G. Механики [Super Turbo Cha
 ```bash
 magnet:?xt=urn:btih:48486795212BE7C584146241BEE367283C016E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ DVB Dream 2.7.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E4A5FC9FDB15832567996EE09A878EC30EC14118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Motion Type Title Animations - Полезно для анимации титро
 ```bash
 magnet:?xt=urn:btih:955D15ACF7C9FBACAB3F6EDDEB4FCA4E0F17940C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Azure Striker Gunvolt — это 2D-платформер, в создании к
 ```bash
 magnet:?xt=urn:btih:83398BCBC7B3BC6CB32038DE6D37327CA0D0548E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:529C22D8B4EFA2D5870902C7C89B16E1BF57BCE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ VA - Сто Хитов Из Прошлого: Дискотека 80х (2015) [MP
 ```bash
 magnet:?xt=urn:btih:56302A9C780F906C8BD5288BB2107CCF3831839E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Shape Elements Fresh - Форма элементов Fresh - это мощный
 ```bash
 magnet:?xt=urn:btih:3FC5333C768CABF3656878E41861E0ECE4A7FB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A215B08804139DCFEF7BC94945E199CC56D7D092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Iron Maiden - The Book of Souls (2015) 2CD [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B3A7B48EB06A4FA315D0CC14DF95300138184722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ SoMachine 4.1 SP1.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:694E909136B4410A14E1D1E795BBF8128EF0CE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Syberia / Сибирь (2002) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru
 ```bash
 magnet:?xt=urn:btih:D16CBF572B8185E8623FB55D63DC3E004ACD3003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Bruce Eckel / Брюс Эккель | Thinking in Java (4th Edition) / Мышл�
 ```bash
 magnet:?xt=urn:btih:A841C55D5F2081E8E91681C929BAFEAF0D7B1714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1C4AE2B9B8BCAF5CADFCCAEC3332D7A602DAC69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Tuts+ | PSD to HTML: Flat Design Build  (2014) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:D773287AC3E451D0E627DA0DFB727E7D5416FBD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Five Finger Death Punch - Got Your Six (2015) Deluxe Edition [FLAC|tracks+.cue]<
 ```bash
 magnet:?xt=urn:btih:7A52437D2ECE5C1D0087CC81F1A4078A692C4352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Norton Internet Security блокирует веб-сайты, (   Читать
 ```bash
 magnet:?xt=urn:btih:D31BEA5088AE3049FDE2017A4211484B14E2891D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEF470580EB2684131D67AEEBE3AD8D2CBCB1909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ Iron Maiden - The Book of Souls (2015) 2CD [FLAC|tracks+.cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A02D5D91A269C3C50EB981FC790865D4F750FEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ The KMPlayer – один из самых универсальных плеер�
 ```bash
 magnet:?xt=urn:btih:DAB2BD80DA31B188F36777CC4167F983742C8094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ FotoSketcher поможет вам автоматически конвертир
 ```bash
 magnet:?xt=urn:btih:B7365F8821C135B3C0CDD9DD0CE48AF8BD3328F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFF66C64410E2B2ABAF596E61653E45E6E3ECE21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ Promt 11 Dictionaries Collection RePack by MKN [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ADCCD8203339DE3BC2A5A36A248BCB912A4367BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF8BD4A9E55D3476ECABAFF3438665BF6626D721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +609,7 @@ GO SMS Pro — выбор почти 100 миллионов пользовате
 ```bash
 magnet:?xt=urn:btih:8F981071F45C7C54CA2C3E92AB58E759FADC9FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +634,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49C77AE1F9E12B0F75E1DE8A2277969BD7883A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:675051DA03DF52ABE31D605431C411952D262505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

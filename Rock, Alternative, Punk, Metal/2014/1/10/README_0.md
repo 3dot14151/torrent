@@ -27,8 +27,7 @@ Burden Of Grief - On Darker Trails (2001) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:CDECBAEED595B6322AB32B977EC0D7B04012CC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ While The Heart Becomes - The Sinking (2013) [FLAC|Lossless]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:03B01061481FF79B43C14A3C07B9296656A8F575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Sebastian Hardie - Four Moments (1975) Remastered /2004, Polydor/ [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:F86616EAEC5818A6BB53243134D2B366C0274EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Written-By – Gowen, Clyne
 ```bash
 magnet:?xt=urn:btih:D102BCD5FFB602E11A7F073D1EBCBE3CA27B0C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Vergeltung - Exploration Of Space (2012) [FLAC|WEB-DL|Lossless]<Industrial Metal
 ```bash
 magnet:?xt=urn:btih:9FA13C9C54CCB1D2C4AF91B669EC4A43AF61828D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Electric Light Orchestra - Discovery (1979) Limited Edition /1993, Epic, Jet Rec
 ```bash
 magnet:?xt=urn:btih:79591ABC828EC6EDF741ED2FF6CFD609813EBBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Electric Light Orchestra - Discovery (1979) Reissue /1986, Jet Records/ [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:87905B59F3936F1B8C9C43CDB399F8D7F69B8F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ John Lennon - Plastic Ono Band (1970) MFSL /2000, Mobile Fidelity Sound Lab/ [FL
 ```bash
 magnet:?xt=urn:btih:11D3152B3E6187F80D558E39EFC15EF3A1908D1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ John Lennon - Mind Games (1973) MFSL /2004, Mobile Fidelity Sound Lab/ [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:B8CCB1F22F79D32DCC371F0C41780134882821E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:C11D210CE3894F7C1B11708B90B5EF85D4EA82EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

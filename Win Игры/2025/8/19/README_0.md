@@ -19,8 +19,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BB22F8CBCBDF11FC17A49F61F58463B7CE5B29C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Slayer: the Demon Haunted World представляет мир, выходящ�
 ```bash
 magnet:?xt=urn:btih:6FA5042E1401BD23090B38F34BE0B08A3C8F2792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dread Flats (2025) [Ru/Multi] (2.10.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2A40EE9B5122B7AA05C06FB43FB38F50CBD15642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.10776-250723/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BEB2EBF667BBA4FC3C4D43E05D2CB3F7AA925BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Estranged: Act I / Estranged: The Departure (2014, 2020) [Ru/Multi] (Build 16907
 ```bash
 magnet:?xt=urn:btih:0E568C9670C5154C2367A0567B4096FAE89F9646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.83) License GOG
 ```bash
 magnet:?xt=urn:btih:33321804ADC0E8AE7AC65AA4B0CE840122F3591F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (20250814/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2D96BDD7ECF81D56066D4D3376ADA9D412E02D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.107761/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CA0E5492C954D9C4907583A127CFBEE6197E7DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.107761/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:EB2DD777BACA5D38E51FB4BF31059377C1E6155F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

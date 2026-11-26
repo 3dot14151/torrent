@@ -22,8 +22,7 @@ Butcher Babies — американская метал группа из Лос-
 ```bash
 magnet:?xt=urn:btih:0DA661C389E4F781C2601AB5481DEC028227949A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

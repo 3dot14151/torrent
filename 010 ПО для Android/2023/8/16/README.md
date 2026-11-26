@@ -19,8 +19,7 @@ Luminous - это белая material-оболочка для Poweramp v3. Вы 
 ```bash
 magnet:?xt=urn:btih:18831444C7EE41D1E75407D1B5FB8853706C29E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aurora - это красочный скин для Poweramp v3. Вы может�
 ```bash
 magnet:?xt=urn:btih:F3032E092B78F7FB94C56AA4B733FEB8938F4910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Luminous Black – это современный черный скин для Po
 ```bash
 magnet:?xt=urn:btih:3C6782D777684A8C5075130B10AD581BC9769C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

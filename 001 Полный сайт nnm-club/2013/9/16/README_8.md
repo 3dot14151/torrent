@@ -28,8 +28,7 @@ CD1 - The Boom Boom Room:
 ```bash
 magnet:?xt=urn:btih:734ADDC8C540D19A0F0F22BE8FFF142F92CEBB27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Irving Fields - Oy Vey.....Ole!!! (2006) [APE|Lossless]<Ethnic Jazz>
 ```bash
 magnet:?xt=urn:btih:36DC77A919711AB6ECCB9716EC37FE29CEF8AA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ California Conga - Spill (2013) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:1DCD5165ADFDF1E9748E12C2C75F7E9C3C8D18AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B3DA89CF22800C5688B8573369B97547A7C256A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ VA - Miami Dance: The Album 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:284832C777D9578C58C07F3DDE11A4595A087B35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ Ilan Salem - Wild (2011) [FLAC|Lossless]<Ethnic Jazz>
 ```bash
 magnet:?xt=urn:btih:3294C396967BDD60A626EA6FB29D98EB3C732A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Ibrahim Electric - Absinthe (2006) [FLAC|Lossless]<Jazz, Funk>
 ```bash
 magnet:?xt=urn:btih:A9F462BDA9C1B1A0BD12A67F234BE9EB02B8B16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ VA - World Leading Trance Tunes Vol - 3 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F2B4F75EF1A253E6AEE58638078A543FA19316C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ VA - Black Hole Recordings presents: Summer of EDM (2013) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:0EA6DC364F8454A05CE7B14E8ACA9AE54E8F9448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:273AE7F6B0C493D53BD2F26EC3B7883133853A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11159C284546852D5ABB99AECE9D409E7C4F8B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +394,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:50EF2C732F96A813C08AA486668EED2A3BF165FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +428,7 @@ Steve Haggerty & The Wanted - Bullet And A Game (2013) [MP3|320 кб/с]<Country
 ```bash
 magnet:?xt=urn:btih:F98604C596B88244E6FA9679468D765E760BEA1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +462,7 @@ Midnight to Twelve - Midnight to Twelve (2008) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:74974AE468A491372A14CCFFCEB4CA3AD77F8201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +496,7 @@ Rosa Passos - 2 альбома (1996,2005) [FLAC|Lossless]<Jazz Vocal, Bossa Nov
 ```bash
 magnet:?xt=urn:btih:7DD2E3EF45DBAA2E6BA6B2A57E62A481BD8B9B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0432E8B2D9E020FA4254F801C02D5EDCF520B20A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +550,7 @@ alucidnation - ep​:​03 (2013) [FLAC|Lossless|WEB-DL]<Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:DDC74E28B7AB8EAA8007F5266C1E1F414940FFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +580,7 @@ The Field - Cupid's Head (2013) [MP3|320 кб/с]<Techno, Minimal, Ambient>
 ```bash
 magnet:?xt=urn:btih:DB0EE57C0B076CE718C2B9CC1D28178DAD962EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DCF619E9327EE12D991F87E8907023D111DE5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ Mnemic - 5 Альбомов (2003-2012) [FLAC|Lossless]<Modern Metal | Industria
 ```bash
 magnet:?xt=urn:btih:FA9BC299365CE519D9EB34114EE384F33DEAA67F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:676CF53442F677D9FDD313B629C4C81864328EEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +699,7 @@ Bridget McMahon - Celtic Music Songs (2013) [MP3|320 кб/с]<Folk, Celtic, New 
 ```bash
 magnet:?xt=urn:btih:1AB0F4667E217E58701FCD90FA0AB0A56C54C782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -756,8 +733,7 @@ Last Days - Satellite (2013) [n5MD] [FLAC|Lossless]<Ambient, Modern Classical>
 ```bash
 magnet:?xt=urn:btih:9677255D8563F6B0367B46D4F372A73E7C111331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -782,8 +758,7 @@ Everyday Practical Electronics - популярный английский жу�
 ```bash
 magnet:?xt=urn:btih:DB5549E74DC478F0735526D431C49DFD01393BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +784,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65E37FEEC52391FBE0EAEE891425607FFFD750A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Unblock Me – это простая и увлекательная игра-го
 ```bash
 magnet:?xt=urn:btih:FC58621BBD23665D8ED9243A24F602FB44E4E184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

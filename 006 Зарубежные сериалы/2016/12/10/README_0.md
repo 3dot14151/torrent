@@ -19,8 +19,7 @@ CSI: Киберпространство / CSI: Cyber (2015) HDTVRip (сезон 
 ```bash
 magnet:?xt=urn:btih:843AD84F619CAD192ACA538766A9E636D1E1CBE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

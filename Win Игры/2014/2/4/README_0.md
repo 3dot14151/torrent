@@ -19,8 +19,7 @@ Tales from the Dragon Mountain 2: The Lair (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:6DC05B8F30EEC9FB9D1BAECD227649075B363D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Viking Saga: New World / Сага о викинге 2. Новый свет (2014
 ```bash
 magnet:?xt=urn:btih:B2D054BB47C1E60FA27D420DC813A4EE2C645B71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Law & Order: Legacies (2012) [Ru/En] (1.0) Repack Fenixx [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:0244F5E784801B841B09C976B8865CD29AC89DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Black Mirror 2 / Черное зеркало 2 (2010) [Ru] (1.01) RePack -Ultra-
 ```bash
 magnet:?xt=urn:btih:B8D1EFB9C466E15A21B29FC6F3DB9B10D3BCF9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Strike Vector – воздушный инди-шутер с возможност
 ```bash
 magnet:?xt=urn:btih:EC42B554E1EC94D067C11F2EC5F773E2E08A41A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

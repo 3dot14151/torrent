@@ -22,8 +22,7 @@ Yes - Magnification (2001) [FLAC 2.0|96/24|tracks|DVD-Audio] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D5459338B71F0F2A4AE869C225A963C18337E41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

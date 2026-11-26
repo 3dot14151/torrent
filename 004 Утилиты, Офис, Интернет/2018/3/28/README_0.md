@@ -21,8 +21,7 @@ HttpWatch - это многофункциональный обработчик �
 ```bash
 magnet:?xt=urn:btih:F1A8ABBD6FE2BB367AF97D43EAC104D9BCC7BA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

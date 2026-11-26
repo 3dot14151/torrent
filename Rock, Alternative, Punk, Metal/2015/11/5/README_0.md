@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:BD9F620F3E775C2127A90CF1039404163FDB772E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Low & Behold - Uppers (2015) [OGG| 467-519 кб/с]<Alternative, 80's Darkwave, 
 ```bash
 magnet:?xt=urn:btih:42F04627B2BF615DA0237AA8A4FB0C29B1D93263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Winery Dogs - Hot Streak (2015) [FLAC|image+.cue]<Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:E5F75DAFB4194EFED90A29720135AF113DD17182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Devil You Know - They Bleed Red (2015) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:0B961E9B0D3B2908693B21CD01F97CF6C0FDF279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Geordie - Don't Be Fooled By The Name (1974) Japanese Edition /2006, Archive/ [F
 ```bash
 magnet:?xt=urn:btih:B610B282888AC03B715D97CC651FC5FAA494058B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Celldweller - End of an Empire (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Indus
 ```bash
 magnet:?xt=urn:btih:BD1627AE27EE688364C5394D2758257FE913CA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lacrimosa - Hoffnung (2015) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:BDB074439520AEAFC3FA5E1CBA4586ACD099DFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

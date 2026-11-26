@@ -22,8 +22,7 @@ Subway To Sally - Mitgift AZ MMXV (2015) EP [MP3|320 кб/с]<Folk Metal, Indust
 ```bash
 magnet:?xt=urn:btih:CF693E331790F71C8885F08B0336D33749B85C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Daniel Tidwell - Versus Video Games 3 (2015) [MP3|320 кб/с]<Instrumental/Powe
 ```bash
 magnet:?xt=urn:btih:44F992D7A6F3378F12F0C923C06E5788411E0D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Heart Rock - Rock Fur's Herz vol. 6 (1994) 2CD [FLAC|tracks + .cue]<Rock, S
 ```bash
 magnet:?xt=urn:btih:653435FD8A2AF9FDC879B09151E1568BD0645BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bring Me the Horizon - Live at Wembley (2015) 2CD [MP3|320 кб/с]<Post-Hardcor
 ```bash
 magnet:?xt=urn:btih:583E31B39612FCD84F19940D4B7D8CE84CC15419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

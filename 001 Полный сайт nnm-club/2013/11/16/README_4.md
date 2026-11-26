@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C680ECDA1D714D16AD9026BD6E55D1A8967C5B84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B7C82CF671C2850BCD8929359BAC11F1CD6005B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ B3. Аэрофлотовская [1:56](   Читать дальше...   )Жа�
 ```bash
 magnet:?xt=urn:btih:F91FFE7346DAED0B125550172F19E8E92D2E72C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Eric Clapton - Unplugged (2013) 2CD Deluxe Edition Remastered [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:1838621DEE2685435C82F5FF712054F95FF3DCD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7D1243F69BADDEE619D11B58CD2E3F9240CAED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Tarja Turunen - 500 Letters (2013) Single [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:D5E0DFF9D57F18DC6D1F8068D413E20EA626993E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Robbie Williams - Swings Both Ways (2013) Deluxe Edition [AAC|WEB-DL|256 кб/с
 ```bash
 magnet:?xt=urn:btih:806B1C373C47AA18EB8AEE0669764A559111286F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Wallpapers - Коллекция обоев - Super Mix HD Wallpapers 2013 | FedE
 ```bash
 magnet:?xt=urn:btih:0E9E42D61DEF5DBA5CDB844337748BCCE903CA49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACD5C377B5AF0B6C9FEC9A506ED18A6C402BF812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ The Beatles - On Air: Live At The BBC Vol.2 (1963-1965) 2CD /2013, Capitol, Appl
 ```bash
 magnet:?xt=urn:btih:A940B74287B9CFC0B395F25377300A6BEA7A8631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81EE41D2027DE2C478EDAE5367B06818728C4887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ The Bryan Ferry Orchestra - 2 Альбома (2012, 2013) [FLAC|Lossless]<Jazz, 
 ```bash
 magnet:?xt=urn:btih:667D70DB61540FFD5D202AC655A1D9C5F6E7277C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E0AB5EA74B8C3E9360541CA5F615CE63186E6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ Plastika - Plastika (2010) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:F99C4978F5054CBFCF0984C589496944C287050E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EB48E33EB6031B5CEB1625B922DC231E385A26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ Dr.Web CureIt! 8.2.0 (16.11.2013) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:187FB9C69F6D2CA4EFFE1D33D31EDAB85AB5AD41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Alcohol 52% - широко известная программа для эмул
 ```bash
 magnet:?xt=urn:btih:FD3E1C14FD647D19D091878A5EF2B2C6E385AC4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EBE7EAAB9CCD8CFCD6C75ED2078856E8B9AABBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:543733BA8FEFD94EDCBC979A2611B3E9DAD0ABA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CF723856D501909B395C7D83C1FED97D5A118B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD8C2EF58C9EA895B907403C0614C2A9AFB0D8FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ VA - Шедевры этнической музыки - Кельтская во�
 ```bash
 magnet:?xt=urn:btih:23BBBB569DAA521999568184092D5AE4F9C0053B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FE79EEB4C1267CD118C3F83CB5713590A576AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE3BBDAB12D27E3252279CB63AD64DB1BB097076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +702,7 @@ Armin van Buuren - Intense (The More Intense Edition) (Armada) (2013) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:C232A9846F09FC937BD20023D4BEB7E8ECE2CA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +730,7 @@ Deuter - Dreamtime (2013) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
 ```bash
 magnet:?xt=urn:btih:051E00912CE1A385ADA534B20DF45EF97D284E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

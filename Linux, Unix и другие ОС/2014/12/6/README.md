@@ -21,8 +21,7 @@ Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:AFED349D8C3B76C4FD335F47DE3062C1B4DF64A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

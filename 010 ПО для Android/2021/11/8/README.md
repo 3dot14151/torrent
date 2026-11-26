@@ -19,8 +19,7 @@ TouchRetouch это приложение для качественного и б
 ```bash
 magnet:?xt=urn:btih:80603D8607DE77758C129F4929499C2827CEFF9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

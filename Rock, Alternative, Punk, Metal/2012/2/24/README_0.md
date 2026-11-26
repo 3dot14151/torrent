@@ -27,8 +27,7 @@ D.R.I.F.F. - Белая Сталь (2011) [MP3|320 кб/с]<Melodic Pagan/Heavy 
 ```bash
 magnet:?xt=urn:btih:83B1A60B4250D2CC365A294E336F58B1DF436F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Asphyx - Deathhammer (2012) [FLAC|Lossless]<Death / Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ The Beautiful South - Superbi (2006) [MP3|320 кб/с]<Pop-Rock, Country>
 ```bash
 magnet:?xt=urn:btih:9785E2520A8672318F8797BFA8EACC8C3C3565BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Rhinoceros - Rhinoceros (2002) [MP3|320 kbps]<Psychedelic Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:AF1D0F917814F031A31ECE4495AB32966BF2DF7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ My Best Fiend - In Ghostlike Fading (2012) [MP3|320 кб/с]<Alternative, Rock, 
 ```bash
 magnet:?xt=urn:btih:98AE53462F98882F5392520CC6FD65B6D6586D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ The O Band - The Knife (1977) [MP3|320 kbps]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:01AE6963BC4611BFAAEFF21202D6C0140DDEE5A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Pictorial Wand - Face Of Out Fathers (2009) [MP3|320 kbps]<Progressive>
 ```bash
 magnet:?xt=urn:btih:AC8A6C726E5F29E0FFD76ECE5A79AAA8D420B6BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Mike Noga - The Balladeer Hunter (2011) [MP3|320 kbps]<Rock, folk>
 ```bash
 magnet:?xt=urn:btih:DAE5A7EAA1F56ECF01756FD826FFA82FBC223B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Parachute - The Way It Was (2011) [MP3|320 kbps]<Alternative rock, blue-eyed sou
 ```bash
 magnet:?xt=urn:btih:50124619D61ADE1B6F098B2CFFA0F3C16011D2CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Xandria - Neverworld's End (2012) [MP3|320 кб/с]<Symphonic Epic Metal>
 ```bash
 magnet:?xt=urn:btih:9EB0FA413B627282F1A3517BF6B97ADFFD014950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Puscifer - Conditions of My Parole (2011) [MP3|320 kbps]<Trip-Hop/Industrial>
 ```bash
 magnet:?xt=urn:btih:2D7765158035CE21D6160C316E784773480930D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +396,7 @@ Kiss - 5 Albums (1978-1982) [FLAC|Lossless]<Hard Rock, Classic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +430,7 @@ Stahlmann - Quecksilber (2012) [FLAC|Lossless]<Industrial Metal, NDH>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +464,7 @@ Biohazard - Reborn In Defiance (2012) [APE|Lossless]<Hardcore/Groove Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +498,7 @@ Mecca - Undeniable (2011) [FLAC|Lossless]<Melodic Rock, AOR>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +532,7 @@ Napalm Death - Utilitarian (2012) [FLAC|Lossless]<Grindcore / Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

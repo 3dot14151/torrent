@@ -21,8 +21,7 @@ Port Royale 3: Pirates & Merchants + DLC (RePack/1.1.2.24556) [Ru/En] 2012 l Fen
 ```bash
 magnet:?xt=urn:btih:F5E5E11F92DC96A12BC8B9436FB7F0861755658C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Sniper Elite Дилогия [Ru/En]  (RePack) 2005-2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:61177F423BE7FA95D678519D1F81EC1EC8616670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Final Cut: Death on the Silver Screen. Collector's Edition / Последний 
 ```bash
 magnet:?xt=urn:btih:EFB9D50B3591B5EF06DFDF444BCB792C5F21E7E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ UEFA Euro 2012 (Текст/1.0) [Ru] 2012 | ZoG Forum Team
 ```bash
 magnet:?xt=urn:btih:53F8DB9BB3815A15348F5C4A4FD3B52A0B22D909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ MahJong Adventures (P) [En] 2005
 ```bash
 magnet:?xt=urn:btih:69CD92E877E7935ABAB28E2DACEAB176C5F3EC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

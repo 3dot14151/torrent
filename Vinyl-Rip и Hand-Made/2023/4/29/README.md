@@ -22,8 +22,7 @@ A4 Эта Рена(   Читать дальше...   )Жанр: PopПродол�
 ```bash
 magnet:?xt=urn:btih:01940AFC53BFABA545CD4072615D960EE8E4B80C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Holy Moses — немецкая трэш-метал-группа, одна из 
 ```bash
 magnet:?xt=urn:btih:541FD872CC3ABEE3863ADF7EE3741935A22B6904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

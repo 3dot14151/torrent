@@ -19,8 +19,7 @@ Forza Horizon 6 переносит гоночный фестиваль на те
 ```bash
 magnet:?xt=urn:btih:43FF221633366378C98C6F27431A36B2F932512A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

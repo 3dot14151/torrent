@@ -19,8 +19,7 @@ Haunted Hotel 6: Ancient Bane (2014) [En] Unofficial [Collector’s Edition / К
 ```bash
 magnet:?xt=urn:btih:4023E1193443734B6B9A77152F72BB675E2EFC40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Manor 3: Painted Beauties / Призрачная усадьба 3: Кр�
 ```bash
 magnet:?xt=urn:btih:30EBAD9FBC68BBB832A2A71304E959CC2CD23DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Edna & Harvey Dilogy (2008-2012) [Ru/Multi] (1.2/2.0.4.0394) Repack R.G. Мех�
 ```bash
 magnet:?xt=urn:btih:B5FCD497437AF86681FABCDDD17F01F9AB83DDBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ R.A.W.: Realms of Ancient War (2012) [Ru/Multi] (1.0 Upd2) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:8ED5C9A9B6623092E211D74346BB9FFC0C890E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Kill the Bad Guy (2014) [Ru/Multi] (1.0.5413.2) License Postmortem
 ```bash
 magnet:?xt=urn:btih:3CA344192087CD2788903997FAC7AAB94E5E807C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ FIFA 14 ModdingWay Mod (2014) [En] (1.7.1AIO-2.5.1) Mod Ariel
 ```bash
 magnet:?xt=urn:btih:4201D253D14916AA77AACA49617C56962A1162BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

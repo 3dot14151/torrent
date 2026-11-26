@@ -28,8 +28,7 @@ Zandelle - Shadows of the Past (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:E32B87574C537E1A33076A7FBF80A12BE512E99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Enemy Pain - Тишь (2010) [MP3|320 kbps]<Alternative Metal / Nu Metal>
 ```bash
 magnet:?xt=urn:btih:A7F1FD2472D0683820EB2B732BBCBEB747BC146A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Mortal Sin - Psychology Of Death (2011) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Voyager - The Meaning Of I (2011) [FLAC|Lossless]<Progressive Metal/Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Ronnie James Dio - Ballads (1996) [FLAC|Lossless]<Hard rock, heavy metal, power 
 ```bash
 magnet:?xt=urn:btih:19FEA6B9FD975118B8239AA670B4DAC2BC221436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:EB28215ECC570FBD24362DAA6F339B986007273C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Scorpions - Live - Get Your Sting & Blackout (2011) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4D70B64369D4521123991521AA8B41AEED40ED6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ OneRepublic - Dreaming Out Loud (2007) [FLAC|Lossless]<Alternative Pop/Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Robert Plant - Greatest Hits (2007) 3CD Box Set [FLAC|Lossless]<Classic Rock, Bl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ Pink Floyd - A Foot In The Door (The Best Of Pink Floyd) (2011) [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

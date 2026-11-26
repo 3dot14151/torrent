@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Soft Jazzy Chill: Lounge Music Backdrop (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:118273A046EA7B816BAA497B8E32D42C96EFEA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Шальной шансон в дорогу. Выпуск № 3 (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:30555F1D21D28FBA91BEE0EEA7D40E2CDB9A0267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Purecloud5 - Psy Invention (2017) [MP3|320 Kbps] <Goa Trance, Psy-Trance>
 ```bash
 magnet:?xt=urn:btih:EF1E3AD10A89B190358EA0DC8925F1234000BFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Весенний хит-парад на радио Шансон (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:277D58B4F04452E4E75E47416DB18372A1725F8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Козырная песня от радио Шансон выпуск № 6
 ```bash
 magnet:?xt=urn:btih:F7B05784C9EC494AFB7C57B26BED9CF35A37EBFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:570DB04974A57FF3C9EBA5C66EFE08C25AB27E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Armada - The Remixes 2017 Vol.3 (The Vocal Trance Edition) (2017) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:0E6908CB3EEF8C43DFA7F2A2B6AD499E73AF4653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ VA - Вечеринка на радио Шансон выпуск № 8 (2017) [
 ```bash
 magnet:?xt=urn:btih:2DA0E9CF8D14AD318374FAFE01267565D241AEAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE22F0E50692D26C1B90CB6177A93C30054A3800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ VA - Ресторан Кураж от радио Шансон выпуск № 1
 ```bash
 magnet:?xt=urn:btih:96D5DE05D395401AC9368596FA755C293D72D39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0352CE2C28996F9267633F71441E5BF3C0C37DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - Сотка популярных весенних хитов от Европ
 ```bash
 magnet:?xt=urn:btih:029CAFFC341D3ADD7199B3DDC30169A9FCD7F46A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25E869FFF5FAC60A400768BBE137BDFBE68B8F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ VA - Лучший русский шансон. Сборник № 7 (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:00D745BF3E9833CBB49AAEA38E2CDC81C3A193DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEDB5F20584555D7E6C4E8FCED106AEF0FF20557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE18898532C81E7DCC5102F3864BAE9026E8E51E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Later позволяет планировать напоминания есте�
 ```bash
 magnet:?xt=urn:btih:F70EDBC93411DB894D88B973D2ADD3710F4AD8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ Money 5.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:446F90BA6EB8DBEC32917611BFCDEA8C41C1A63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Mac Bluray Player - Проигрыватель HD Blu-ray дисков, отли
 ```bash
 magnet:?xt=urn:btih:FD34214037F1EB85E36AA1DC11787FC94D45CB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Bills v1.10.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1380F058E560A5F952ED6A594F8A46EDFE899969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ VA - Отдыхаем душой на Шансоне. Часть № 9 (2017) [M
 ```bash
 magnet:?xt=urn:btih:78F62F2200933AC9B97E7A67657333D8BC2EA3E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CCC1BB87F13B2A17A11927A8D1A27F39AE075B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

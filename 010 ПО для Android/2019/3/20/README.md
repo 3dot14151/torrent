@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:CF36D716B2B1C10EF4C72E521A7BBF435CAEA0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ CalcKit это калькулятор Все-в-одном, о котором в
 ```bash
 magnet:?xt=urn:btih:606441A2D6FA0BE790803C003AF514B66784D420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Wallflowers - Collected: 1996-2005 (2009) Interscope Records [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:861268723D9E996A057D71D90E0EC495C479A74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Turilli / Lione Rhapsody - Zero Gravity (Rebirth and Evolution) (2019) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:6DB6B0815874A651176C88511481DF4F5753E549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Bachman покинул The Guess Who на вершине её популярно
 ```bash
 magnet:?xt=urn:btih:0E074F93674A77884554A5B9DD406A1230A2288F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ The Raconteurs - американская супер-группа из стар�
 ```bash
 magnet:?xt=urn:btih:7D9ECE351558492D5EC99AB2217F3E4257A5341A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

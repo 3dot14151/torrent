@@ -20,8 +20,7 @@ Sniper: Ghost Warrior 2 (Crack/1.0) 2013 | FLT
 ```bash
 magnet:?xt=urn:btih:B14F1F71D7A818178B98289E4037496FDFA5934E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Luxor 2 HD - новая HD-реинкарнация Luxor. Luxor 2 HD увлеч
 ```bash
 magnet:?xt=urn:btih:E6658D039D6D87451D1D260396C6CB108A08919F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Rage: Anarchy Edition [Ru/En/Multi] (RiP/1.0.34.2015) 2011 l R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:2E498B7A79B0AF9BE469429BB88A96704B0BD67A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

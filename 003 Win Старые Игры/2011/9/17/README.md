@@ -23,8 +23,7 @@ Hopkin FBI [Ru/En] (RePack) 1998 | Kirill games
 ```bash
 magnet:?xt=urn:btih:8C1EC3F2F305FC26F371919E8FFC346BA9DC60D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Ace Ventura [Ru] (RePack) 1996 | Kirill Games
 ```bash
 magnet:?xt=urn:btih:3AEE2A4138139637B0787500EC5FD7E61096A74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Heavy Metal: F.A.K.K.2 [Ru] (RePack) 2000 | Pilotus
 ```bash
 magnet:?xt=urn:btih:9513D2D3644AC657E19788BAE8F241C40427CCBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
 ```bash
 magnet:?xt=urn:btih:F858B1EF87264A0280887547E44172B838A10672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

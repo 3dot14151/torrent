@@ -22,8 +22,7 @@ American Dog - Six Pack: Songs About Drinkin' And Fuckin' (2001) EP, Live [FLAC|
 ```bash
 magnet:?xt=urn:btih:E27FB987696C5C0A0D6FF478020B70EC2F50D7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Place Vendome - Close To The Sun (2017) [FLAC|Lossless|track + .cue] <Melodic Ro
 ```bash
 magnet:?xt=urn:btih:24B5EE33A26660BE8269378FCE41273598495D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Spoon - Hot Thoughts (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Ind
 ```bash
 magnet:?xt=urn:btih:152EDDFBE8746E4A679D4CD9E4C91E02D52BA805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Donnas - Spend The Night (2002) Expanded Edition, Remastered, 2016, HNE Reco
 ```bash
 magnet:?xt=urn:btih:22D7F0B8C765451EC88EDCA5BE37ACA71B8DA6C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

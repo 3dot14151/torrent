@@ -22,8 +22,7 @@ Truce - A Hope Within Chaos (2007) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:1784E0FD6219440C024CCF71A9759FE1208CDF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Done Messed Up - Me, Myself And A Few Other People (2022) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:6BEC3EE2BEBC39D2118F6348D17E761FF6DE0A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crazy Lixx - Street Lethal (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:D2066F423A675094AD9E234C202B24DD865DA59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bob Katsionis начинал с дарк-метала в NIGHTFALL и блэк-�
 ```bash
 magnet:?xt=urn:btih:3E53A43EC33607501206A53AE46BAB7E3478CA42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sweet - Reincarnation 1 (2022) Remastered [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1D5B11B7E21140257B50FCDBA670F2F3E36322CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sweet - Reincarnation 2 (2022) Remastered [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:F257904D06B57AA165BA89414DA58D9DA7BEA4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Scorpions - Rock Believer (2022) Japanese Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:F14EE59A057A1F4581809600C8B81BA81E30BE9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

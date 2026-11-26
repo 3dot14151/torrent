@@ -19,8 +19,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6BAB06644CD7313152992F9FA4EC3D988A6FF4E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 ```bash
 magnet:?xt=urn:btih:0740AD2AD1343FAFEFD6BC9FB0E6D3205BF3940E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mortal Glory – пиксельный фентезийный рогалик с �
 ```bash
 magnet:?xt=urn:btih:FB87521F188F35FF2AD96E2F02E75CF0022DCBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mortal Glory 2 - фэнтезийная РПГ, которая сочетает 
 ```bash
 magnet:?xt=urn:btih:E1651EEFF6D572C38BF7564D05EBB0B82FEC39EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Empty Shell забросит вас в темную промышленную с�
 ```bash
 magnet:?xt=urn:btih:F8E80C6233F4C488E820B68BE93E609878A51A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:38151E93FBBF0E0EB2F814D674CBD7FBFD80E023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:2834D2D74D2AB3CD8E4B2E1C440851E9F3A37589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ REPOSE (2025) [Multi] (1.1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:06BF490A698334D2A76D548D035A5B23D9A4CB0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Zoochosis (2024) [Ru/Multi] (1.6.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:22525D1DD04F088B4872C87E998B8A819C95CD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

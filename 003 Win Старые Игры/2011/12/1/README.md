@@ -21,8 +21,7 @@ Hexplore [Ru] (RePack) 1998
 ```bash
 magnet:?xt=urn:btih:36B441E7C27B9AD101EFD0E1079BA7ED3EEC1BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Police Quest: SWAT 2 [Ru] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:CAB49E6E244E1DB4D0A49F86691371B5132C0A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Rock сейшн (1999) [FLAC|lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:9CA95C8A371217EE68F55D69AE42D231E7D098EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

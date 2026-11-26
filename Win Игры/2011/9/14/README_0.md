@@ -20,8 +20,7 @@ Two Worlds: Game Of The Year Edition [Ru] (RePack) 2008 | Spieler
 ```bash
 magnet:?xt=urn:btih:0CA9C87B3611BC55E175AE868B9352948CE703EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Free-to-play с открытым миром. Вставайте на лыжи и
 ```bash
 magnet:?xt=urn:btih:6097DA896BCCDA433961BA5EE5D182EAB0F6E689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Air Conflicts: Vietnam / Air Conflicts: Вьетнам (2013) [Ru/Multi] (1.01) 
 ```bash
 magnet:?xt=urn:btih:72F1E83B6CD6C0A6F359C1214B92C6E9E07E499F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

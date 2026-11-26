@@ -22,8 +22,7 @@ Geist - Kainsmal (2006) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:0EACB47E8A3AA0A7EC519A5CAE755CBD709E9723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eliminator - The One They Were Waiting For (2011) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:4E2C83C483D1D80F6C9AAEFDB3D1917C7B217CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eliminator - And the Brokenhearted Balladeers (2011) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:CBA878CA195F7E3E7399B95154034B3FC9473D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Legion Of The Damned - The Poison Chalice (2023) [FLAC|Lossless|image + .cue] <D
 ```bash
 magnet:?xt=urn:btih:0F0E4C0F89A9EA67A6AA42460DDE0B6C40DCA895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Richard Soucy - Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:0F5B2BAF0DEAFA58AFC719F74AE3449D61A3E4A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Billie Bottle's Temple Of Shibboleth - The Mending Tour (2023) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:7FFD4C88991AFEC762C480565361AEBE86D94AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Kataklysm - Goliath (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:8426C8C78AAF8A0FFAD3DE7B641101479525D135
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Etreum - Evolucion (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:DC88888DDEDDB165C2C8EF87D9E8EDF6035E9733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Virgin Steele - The Passion of Dionysus (2023) [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:68A338ED4D44A4C40EE2A7B75B06B078740B8C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Enuff Z'Nuff - 1985 (1994) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F0393D0320E2DE66EB62618C7F4F74AAE4233F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Cordovas - The Rose of Aces (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
 ```bash
 magnet:?xt=urn:btih:8FF761781A66CB115CF52D5990200B6ECD6E267E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ CD2-4 End Of The World	5:42(   Читать дальше...   )Жанр: Pop Roc
 ```bash
 magnet:?xt=urn:btih:D044D66E6669DC28BF4009D7F5FB26608AB216DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Blindstone - Scars To Remember (2023) [FLAC|Lossless|image + .cue] <Heavy Blues 
 ```bash
 magnet:?xt=urn:btih:D9893DEAC14C99CED4D6618988A8C640EA50C0D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Various Artists - Immortal Randy Rhoads - The Ultimate Tribute (2015) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:E7B0293B7E7971D327C905F14536905D41F821A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Denis Pauna - Kill 'Em All ZZ Top Style (2023) [MP3|320 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:A7B683DAEC40E67091420C6F8D9F8AE615DD8A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Elimination - The Blood of Titans (2011) [FLAC|Lossless|image + .cue] <Power, Th
 ```bash
 magnet:?xt=urn:btih:B8743E192F1046DCDFF70CF41E6D2AF2A724922E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ CD1-4 Face On The Bridge	5:49(   Читать дальше...   )Жанр: Pop R
 ```bash
 magnet:?xt=urn:btih:398DCE41229D1841ABE750036BE9B7471EDD495F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -25,8 +25,7 @@ B4 Mardi Gras Day 3:07Жанр: Prog Rock/Classic RockПродолжительн
 ```bash
 magnet:?xt=urn:btih:0526927D82BF75B00EDD73FA23A9B8DF7E38ED2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Side 1
 ```bash
 magnet:?xt=urn:btih:93BF45D0B2082F4F610C382970CB0781C928C207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ B4 Earth: The Circle Part One 3:53Жанр: Symphonic Rock/Prog Rock/Classic Roc
 ```bash
 magnet:?xt=urn:btih:80A0DA46B7E3635989F0A2CAA29A2EAC3AF68DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ The Abyss - 2 Альбома (1995, 1996) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:C0B4719EA8BF3792C6AC70CEBA88C5605A51A685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Diabolos Dust - Ruins Of Mankind (2010) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7817EBE28E64EB79362F4D0BC0F7CCD39A893B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Morgen - Morgen (1969) [MP3|320 кб/с]<Hard Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:E7DF9764A432B72A1AED0CA9AEF89A611113C47C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Light of Darkness - Light of Darkness (1971) [MP3|320 кб/с]<Hard Rock, Blues 
 ```bash
 magnet:?xt=urn:btih:D51AE305015AE802BFAF421BD8216D1CA0E0F8AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Tellus Requiem - Invictus (The 11th Hour) (2013) [FLAC|Lossless]<Progressive Pow
 ```bash
 magnet:?xt=urn:btih:55E2A753E640D077FC86DCD3B8473C0BC91E8237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Levin Minnemann Rudess - Levin Minnemann Rudess (2013) [FLAC|Lossless]<Progressi
 ```bash
 magnet:?xt=urn:btih:FEC49D4B00A563CC77C9C86137CAEBFD066361C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ KenZiner - The Last Horizon (2014) [FLAC|Lossless]<Neoclassical / Progressive Po
 ```bash
 magnet:?xt=urn:btih:5AE67FDFB73695918CCF420AC1DA3604AD41C51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Sylar - To Whom It May Concern (2014) [FLAC|Lossless]<Metalcore | Djent | Electr
 ```bash
 magnet:?xt=urn:btih:0A65A857136A2975F715AD400BB5949B34BD261D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Screamin' Rebel Angels - Hitch Hike (2013) [MP3|320 кб/с]<Rockabilly, Surf, P
 ```bash
 magnet:?xt=urn:btih:E2570623E2AC186380C48D9E127C7A68C12E5E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ Nemirie - Harvester of the Self-Reflections (2010) [FLAC|Lossless]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:1B2DC4132578927E213A24EFACAB568024F2B153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ Weed - Weed...! (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:97B500090C85DD12512A288EA9042AC2605BE04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85E9474753F84FCFB574F25CB07FB7780D737BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ Nazareth - Rock 'n' Roll Telephone (Deluxe Edition) (2014) [MP3|320 кб/с]<Har
 ```bash
 magnet:?xt=urn:btih:A004861EF29C2876E3165C298B6CA132459DD349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +451,7 @@ Guano Apes - Offline (2014) [FLAC|Lossless]<Rock, Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:F98B2C4D70E76BB8E5FABB818DFE2F7A8C976B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F880821BEEBED60449B434F1CD077D7EB1ED0C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

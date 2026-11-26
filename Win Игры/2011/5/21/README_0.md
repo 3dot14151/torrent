@@ -19,8 +19,7 @@ Mystery P.I. - The New York Fortune (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:E97816565D2028BC708C10260CCD57C3EBD18BB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Amazing Adventures: Around the World / Удивительные приключе
 ```bash
 magnet:?xt=urn:btih:CC435F09E12E1EEF9CA0522CC728C683FC27834D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Escape The Emerald Star (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:5353A60111ACC971579D7188BBE7C837D2270E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Amazing Adventures: The Lost Tomb / Удивительные приключен�
 ```bash
 magnet:?xt=urn:btih:EB3AF5DD6079D9D659CEE5FE49E990349B4ED231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Local H - Hey, Killer (2015) [MP3|320 кб/с]<Alternative Rock, Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:3A816C7CA65F396A971533EED2843493E16417A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Hardcore Superstar - HCSS (2015) [MP3|320 кб/с]<Hard Rock, Sleaze Rock, Glam>
 ```bash
 magnet:?xt=urn:btih:176A9C256CAF85F73BA5F65EF954911D5EFA9EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Crimson Swan - Unlit (2015) [FLAC|Lossless]<Gothic/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:911A7A47539D846208818002A64C0C5D0A818725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Total-Empty - Novel Horizons (2014) EP Авторская раздача [MP3|32
 ```bash
 magnet:?xt=urn:btih:92188DF8B5E74D58A40D1958225C8B2FF271EE5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ PunKrot - Д.А.С.Т. (2015) [MP3|320 кб/с]<Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:791BEF3DD4A343A5EE7913962AA8C57B84A36980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2C57D70BF2D7214B5DE2CCCE1C5AC86F6DFB24D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Blur - The Magic Whip (2015) [MP3|320 кб/с]<Alternative, Britpop>
 ```bash
 magnet:?xt=urn:btih:2478420B6FBAFC2054B244D18F00BE966AFF0FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Van Halen - The Very Best Of Van Halen (2015) [FLAC|Lossless|WEB-DL]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D6EBE31665C48D051A3851EC2E74135F6F1B8981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ UFO - No Heavy Petting (1976) Remastered /2005, EMI Music Japan/ [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ Apocalyptica - Shadowmaker (2015) [FLAC|Lossless]<Symphonic Metal, Cello Metal>
 ```bash
 magnet:?xt=urn:btih:BC0615C0D6E813E487800489AF0A257ECBD9076C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ AppleScript – это революционная технология комп�
 ```bash
 magnet:?xt=urn:btih:175151F65B93C580A2CAB53730EF14AB3B726049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ When you have questions about C# 10 or .NET 6, this best-selling guide has the a
 ```bash
 magnet:?xt=urn:btih:E2C486EFDDA6E4A85AC4233F9C845AE0BBF14A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:53EEF9EE3C78214A9C50B8EAB40AFF911466C824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

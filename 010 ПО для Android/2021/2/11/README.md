@@ -19,8 +19,7 @@ AirReceiver - это универсальный сервер ChromeCast, AirPlay
 ```bash
 magnet:?xt=urn:btih:2D898BD6C8E73EFA53FEB50CF22DFE50043093EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

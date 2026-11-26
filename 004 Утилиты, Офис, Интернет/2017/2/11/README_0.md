@@ -19,8 +19,7 @@ Ace Utilities — надежная, простая, быстрая и мощна
 ```bash
 magnet:?xt=urn:btih:799FF48DF7E2045AB72E1A8A7429404EF8CC5A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

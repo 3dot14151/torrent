@@ -19,8 +19,7 @@ Ignition - гонки с видом сверху, уже доступны для
 ```bash
 magnet:?xt=urn:btih:B1727087AA5A811ED06DDD374B2405A35687ECEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

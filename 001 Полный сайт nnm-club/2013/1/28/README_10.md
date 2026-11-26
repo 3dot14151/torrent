@@ -24,8 +24,7 @@ Advanced Human - Boiler EP (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:E18C98E2B1FD1845A9B4F2FD053125C77FAF01E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ VA - Pro Dance Vol. 74 from XBSmusic (2013) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:46A9A41AAB45974C0F02ABACE8EC660E46C15C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Jaytech - 3 Singles (2008, 2011, 2012) [FLAC|Lossless]<Progressive House, House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ VA - Club Dubstep №25 - Dubstep №25 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:8D758D1FA644F44F610B896055D96A2DB19E007F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ VA - Клубные Новинки Vol.223 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:25C1A0EC35710CF9306A32363C791A0D10F20609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ VA - Клубные Новинки Vol.227 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:E1FFD4816FB78C5D6954447A5904D7B77CAE4B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ VA - Parquet Goodies 2012 (2012) [MP3|320 кб/с]<Tech House, Progressive House
 ```bash
 magnet:?xt=urn:btih:5B77B1E3C384D4B3654815B7842A56285AD41FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ Serious Cut - The Blackmailer EP (2013) [MP3|320 кб/с]<Experimental, Abstract
 ```bash
 magnet:?xt=urn:btih:D62B44A65662510D568FAB2CBF1FC3DFEEFC9580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ VA - Vocal Passion Vol.52 (2013) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:E0F432F13BD6E0A94DF31EB9B9ABD4B651617C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ VA - Whisper of Consciousness Volume 28 (2012) [MP3|320 кб/с]<Trance, Vocal T
 ```bash
 magnet:?xt=urn:btih:29068F4285CE3C8FB80B267C2E7E5DCED353A468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ Dj Sveta - Morning road (2012) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:E74A2E0D89F4FCD24A141071962AEF65DCFD75D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +433,7 @@ Kroman Celik - Gutta Cavat Lapidem (2012) [FLAC|Lossless]<Techno>
 ```bash
 magnet:?xt=urn:btih:AAFD5482199C4CFAC5588B02FA49E616785A9FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +467,7 @@ VA - DubStep Pro V.14 (2013) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:FE4D6EE2D5297A2C5C3698B98FA8C201ED26251B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +501,7 @@ VA - In Da Club Vol.69 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:9D35957E94114BE82AD0C52F269423A9371B7CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0641188C23567972250FAB3C9248DAA985808D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +560,7 @@ VA - Creative Electro Box 2 (2013) [MP3|320 кб/с]<Electro House, House, Elect
 ```bash
 magnet:?xt=urn:btih:2C7FEAE8AEAC7B13EC6E631BFC3B3CDB6EB1C909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +589,7 @@ VA - Club Dubstep №24 - HNY (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:CE9BD559831A937ABE3A86AD4A1B8C15296FE004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +622,7 @@ VA - Cahaya Dari Jiva (2012) [MP3|320 кб/с]<Chillout, Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:6F2374C63110FD1482376D9C4A41D245BE9149C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA5915B1D6D6CA0D6CD3BC291DDD1D12D240B17D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +678,7 @@ VA - Club Dubstep №23 - ERROR (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:9BD42B04A5659809FBF4247203CAB6FDF3639AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +712,7 @@ VA - Drum and Bass Pro V.2 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 ```bash
 magnet:?xt=urn:btih:FFA730F09DC7DF37299875C6B4710A8EAE66F806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFA1869CAD43F22359B81A4C7665A9EF63FC94FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +762,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCFA60B516FD076A455907FEAE210123FB5EEBA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -821,8 +796,7 @@ Johnny Burnette - The Ballads Of (2010) [MP3|320 кб/с]<pop>
 ```bash
 magnet:?xt=urn:btih:685E395360AA4774FA28C3F5FCFE2E2CF0F18C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

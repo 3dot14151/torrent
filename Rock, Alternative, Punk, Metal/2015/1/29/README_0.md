@@ -26,8 +26,7 @@ Finsterforst - Mach Dich Frei (2015) Limited Edition [FLAC|Lossless]<Folk/Pagan 
 ```bash
 magnet:?xt=urn:btih:E1BE43113C49F5C5AC565277BC8074658DDFF457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ I Drive - I Drive (1972) [MP3|320 кб/с]<Hard Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:2B66B8D95CE1BEFC07302E0A3F122BFE78941145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Shadowquest - Armoured IV Pain (2015) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:C7AE83B121556328D66654BA351D053F6B033278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ CD-rip
 ```bash
 magnet:?xt=urn:btih:747F2DB48185329A15B0ABDF105447E901FECFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ HammerFall - Threshold (2006) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:790E26F37CB1081C732F6A73CA717FA38FDF597E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Affiance - Blackout (2014) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:7B504D8CEB4D70AA46C0E1254F65F91A122F0F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:B4E6E5CEE05D24AD1A92A5DBFDE0F5622DBCC540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Helloween - Russian Fan Club CD (2009) [APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9B9DA5794BE770C08777FDDE73EE3A92DD96E3CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Blind Guardian - Beyond the Red Mirror (2015) Limited Edition [FLAC|Lossless]<Po
 ```bash
 magnet:?xt=urn:btih:17F6F02164F4B4986942C4D69FA017A709DBBD3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ Insight Series Interview With Original Judas Priest Drummer John Hinch:
 ```bash
 magnet:?xt=urn:btih:5DFC856959B7AE698C5F2565D9D29ED398B6829E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Electric Light Orchestra - The Very Best of ELO Vol.2: Ticket to the Moon (2007)
 ```bash
 magnet:?xt=urn:btih:2CCE80EDAE9D9BD813E088B16911B3E6971DEE62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

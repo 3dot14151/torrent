@@ -19,8 +19,7 @@ Blacksad: Under the Skin (2019) [Ru/Multi] (20270705) License GOG
 ```bash
 magnet:?xt=urn:btih:F3D8236A30B4A0733DEC6E5A944F84AA2BE82D52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ In Search Of You (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E5262AB5443213AE1082CC166FB3086528E9BD37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ducky: The Brave – сыграйте за милого утенка Даки, �
 ```bash
 magnet:?xt=urn:btih:566BFAFBA782FDC196A99AB909CF98BE5C4E69E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Zet Zillions – перед вами классический одно-поль�
 ```bash
 magnet:?xt=urn:btih:76FFD0200424987153027FA08AC330FABD7C8B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Songs of Steel: Hispania (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D2AD81C4F29A5B92D12B3386612EBF16171DE8B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fortress Challenge: Fort Boyard (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:298A95AC5CE9AE219A9CD0C8D7326476231BF931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Dawning Clocks of Time Remake – ремейк инди-игры, перен
 ```bash
 magnet:?xt=urn:btih:8B7F8933BAFB78C378B10CA6A1BD3AE29918E07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SCHiM (2024) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:55C5E350C43E334F57FA7060EA8A4727CA545AD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ HexoCity - это расслабляющая головоломка, погру�
 ```bash
 magnet:?xt=urn:btih:0545175F1E8CD552A895C7CBD31A43EE3F17B4B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ ReThink 5 (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9126E3B9D70A64CD99314BF00130349F6D2D5EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Raw Metal (2024) [En] (1.1.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1D4721AD1CFAAD0DA35F23710700E036247F225C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

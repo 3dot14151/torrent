@@ -19,8 +19,7 @@ Spelunky (2013) [Multi] (2.1.0.9) License GOG
 ```bash
 magnet:?xt=urn:btih:45AE616962BCEE7AC9DEE0F63004035A3EBD01A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Murder Is Game Over выглядит как японская ролевая иг
 ```bash
 magnet:?xt=urn:btih:F962D5F900529EF867E0D7A9C53E5EA109224E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (9806667/dlc) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:B6CB54150F9B716E0CCA58AC8168504D14B3533E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dead Man´s Diary (2022) [Ru/Multi] (1.5.54360) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E46DE10B92C48F1FFEC7B18AA3C3297CAA091F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 ```bash
 magnet:?xt=urn:btih:DCF88B60B35E991AD819C038760CFCE32D786BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

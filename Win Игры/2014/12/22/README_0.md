@@ -21,8 +21,7 @@ Helicopter Simulator 2014: Search and Rescue (2014) [Multi] (1.068) License PROP
 ```bash
 magnet:?xt=urn:btih:6B75CB273137F8EA42EAB98014F921DC3135995D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ BlazBlue: Continuum Shift Extend (2014) [En] (1.0) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:B553CA70D9B42498B27EE02AB35A31DD31ECA6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

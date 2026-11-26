@@ -19,8 +19,7 @@ Before Your Eyes (2021) [Multi] (1.2.6.9) License GOG
 ```bash
 magnet:?xt=urn:btih:D3E1AB3067EFBDC83436CB072C4D973590033564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

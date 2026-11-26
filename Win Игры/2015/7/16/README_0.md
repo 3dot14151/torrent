@@ -19,8 +19,7 @@ Shadow Wolf Mysteries 5: Tracks of Terror (2015) [En] Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:2EBBB45F31A00E7C2FF2AF27AE7B995092021296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Natural Threat 2 / Город оживших лиан (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:8F80A9074C7DC4E5EC92926EED82B878CC39F21C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AR-K: The Great Escape (2015) [En/Sp] License
 ```bash
 magnet:?xt=urn:btih:1FF48C3326722500F2457AEA56D4F2B53938B6C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

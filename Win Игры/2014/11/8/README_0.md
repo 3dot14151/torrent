@@ -19,8 +19,7 @@ Grim Tales 7: Color Of Fright (2014) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:0AF609DE57FBC703650F05E84C34854D6221176B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Violett (2013) [Ru/Multi] (1.0 Upd4) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:872CF0758E48D15817C4C2D23E9C306163B2DB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Painkiller: Hell & Damnation (2012) [Ru/En] (build 20140415_3933/11dlc) Repack R
 ```bash
 magnet:?xt=urn:btih:2DA127C884E1C2565167B532525EFAE4D37406F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

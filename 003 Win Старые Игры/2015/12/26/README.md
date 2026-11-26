@@ -19,8 +19,7 @@ Grand Theft Auto: London 1969 - дополнение для игры Grand Theft
 ```bash
 magnet:?xt=urn:btih:6CC6A885EECE6A59943760B34F68D4917038DD8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

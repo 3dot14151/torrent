@@ -22,8 +22,7 @@ Swiss & Die Andern - 9 Albums (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:1493DCB776FC47861A578E5070D1F414BC0980A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Danny Peyronel - It Happens When You Look The Other Way (2025) [FLAC 24/48|Lossl
 ```bash
 magnet:?xt=urn:btih:A01FF881D18E58C32B7B46C10F197FD106C6879C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [FLAC|Lossless|image + .cue] <Heav
 ```bash
 magnet:?xt=urn:btih:86C0D2DD3240EA3341032B4DC7A0F2C39F0E762F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Myth Seekers 2: The Sunken City / Искатели мифов 2: Затон�
 ```bash
 magnet:?xt=urn:btih:EBC4CD033BB188D38735BB7263E4EACD1FE6BAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Toki (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6BFDD756F407E9717345D71D9125C9149F78769E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Overcooked возвращается с новой порцией безумно�
 ```bash
 magnet:?xt=urn:btih:08E08D48A13BBEF6931740C84F76A975527426DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

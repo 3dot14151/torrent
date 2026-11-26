@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:17F8F1B711984736889D1DBB17982C3E7D8819E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:371FE4C7ED2D7698F53EEEEF336AE0C898C2FEFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C9952211856E214628096D65FC8C9F2A9BA519A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

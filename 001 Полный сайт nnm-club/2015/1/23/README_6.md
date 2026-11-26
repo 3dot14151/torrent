@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:ADDA2E5E0614E34503EA42917D6E44ABE1858C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MGSV: GZ приглашает самых заядлых геймеров опр�
 ```bash
 magnet:?xt=urn:btih:73D521672416967F2F6C418C4BC31B742F3CA764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F72204E63BF5BC548EE29DD5F1F8F1D9904F4D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Olympus 2207 / Олимп 2207 (2014) [Ru] (1.05) Mod Nebesa Games
 ```bash
 magnet:?xt=urn:btih:DAE9F8299A0F21E18B0685ED42CAF5ABA7D7FD69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Resident Evil HD Remaster — это экшен с видом от третье�
 ```bash
 magnet:?xt=urn:btih:4E5F82AB4E2C23D7BCA62C18638C1B2894261741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

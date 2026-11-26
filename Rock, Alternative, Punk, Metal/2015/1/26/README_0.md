@@ -21,8 +21,7 @@ Tombgrinder - Under the Black Sun (2014) EP [MP3|320 кб/с]<Doom Metal, Instru
 ```bash
 magnet:?xt=urn:btih:9E8512950CFBB5EC84ED008C28184F644760819E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ STOMB - The Grey (2015) [MP3|320 кб/с]<Progressive Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:77B7761F25DAA9E0A1C8802109483A05F36F26E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Mushroom Giant - Painted Mantra (2014) [MP3|320 кб/с]<Post Rock, Progressive 
 ```bash
 magnet:?xt=urn:btih:0456542CC6E1F4FFDE86CEFB7DB8E7B7607D11B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Dreambleed - Beautiful Sickness (2014) [MP3|320 кб/с]<Symphonic, Modern Metal
 ```bash
 magnet:?xt=urn:btih:CB036AD62C29E200A957E2F062AB1400FA6C10A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Shadowquest - Armoured IV Pain (2015) [MP3|320 кб/с]<Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:AAB70A44CC5E65FFFB871C026CA644D5E580AC7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Salvation - Resurrect the Tradition (2015) [MP3|320 кб/с]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:DA14E0CB532339EC5C92AC3AF9716CF23911D195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Accept - Eat The Heat (1989) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:68A44C0CF2C55855C559B8BA9EF30CAC34BE6B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE466FA06970AAA4B6648AB061D54D1AEFA2BA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

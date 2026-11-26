@@ -22,8 +22,7 @@ Mayfair - Behind… (1993) [APE|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:02923240CC99EF9DE56B577088502382ED041A78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Flamekeeper - We Who Light The Fire (2019) [FLAC|Lossless|image + .cue] <Epic He
 ```bash
 magnet:?xt=urn:btih:8FAB65E939C57F6C2DF882BE7AA085DB4628C722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Red Chord - Clients (2005) [APE|Lossless|image + .cue] <Technical Death Meta
 ```bash
 magnet:?xt=urn:btih:F2377AEC6D07C467227FB2D52AEFB5900CC47F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Blasphemy - Desecration Of Belo Horizonte - Live In Brazilian Ritual - Fifth Att
 ```bash
 magnet:?xt=urn:btih:7C2CFD947E8940ECCAFCD99CFD43826D73F9272E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Frances Quinlan - Likewise (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 ```bash
 magnet:?xt=urn:btih:97EB9E8611989428E6D971B2241D440953A1E0A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Refused - Songs to Fan the Flames of Discontent (1996) [APE|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:CBEA4722A3CFB97EA12C636EEF2BB231EA923164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Neaera - Neaera (2020) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Metal
 ```bash
 magnet:?xt=urn:btih:BB9B5CDA4D08EC8D73B9B640F246926035CDBA82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Earth - Full Upon Her Burning Lips (2019) [FLAC|Lossless|tracks + .cue] <Drone M
 ```bash
 magnet:?xt=urn:btih:05D440D5CA477C285CE427E13D3D720860855EB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Machinemade God - 2 Albums (2006 - 2007) Discography [FLAC|Lossless]<Melodic Dea
 ```bash
 magnet:?xt=urn:btih:019A7284676E3C05523E79C800E74DB7AEB1938F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Mundanus Imperium - The Spectral Spheres Coronation (1998) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:0C39F9BA0126FF342A49C995463D8C7D82356FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Edgar Winter - Live On Stage (Feat. Leon Russell) (2019) [MP3|320 Kbps] <Rock, B
 ```bash
 magnet:?xt=urn:btih:BDE83AFDA53BF4283FD3F7FD868A98718121D99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Five Finger Death Punch - F8 (2020) [FLAC|Lossless|image + .cue] <Groove Metal, 
 ```bash
 magnet:?xt=urn:btih:E50E6373AC0636DC055CBDA4742101F1123D62CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Machine Head - The Blackening (2007) [FLAC|Lossless|image + .cue] <Groove Thrash
 ```bash
 magnet:?xt=urn:btih:C561FEF85999FBD40FEE08D80DD5999A4FBF165C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Holiday Hare 2023 - это своего рода дань уважения кл�
 ```bash
 magnet:?xt=urn:btih:0D791ABAECD182234DBFC91D79B3D8E370DBE077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

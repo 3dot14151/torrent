@@ -21,8 +21,7 @@ Ctlos Linux — базируется на Arch Linux, iso образ собра�
 ```bash
 magnet:?xt=urn:btih:B044B707CEBB45F0A5CE775FFDC2E2E133D248FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Red OS 7.3 [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:5D861D6F3ADA9C9FC1EAF5B1CB026557AEABC31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

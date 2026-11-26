@@ -19,8 +19,7 @@ Cursed Fables 2: Twisted Tower (2022) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:71A4039E3322CEE2B20B661E609219E3891D9BD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Titan Station — это однопользовательская мистери
 ```bash
 magnet:?xt=urn:btih:66817403CC2AE8BF89B2D9986A39C57ECFFB51A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Choo-Choo Charles – это хоррор экшн, в котором польз
 ```bash
 magnet:?xt=urn:btih:C91DE56C4B11CB4F75FE83326E77E41442599E1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

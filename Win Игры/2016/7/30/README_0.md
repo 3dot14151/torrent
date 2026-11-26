@@ -19,8 +19,7 @@ Deputy Dangle - приключенческая аркада в странном 
 ```bash
 magnet:?xt=urn:btih:12C3D06C8F71AB47E8C9C454B5D8721657AAC26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deputy Dangle - приключенческая аркада в странном 
 ```bash
 magnet:?xt=urn:btih:7CD23C56DBE32DDEA17A353D718EA3A87A3531A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

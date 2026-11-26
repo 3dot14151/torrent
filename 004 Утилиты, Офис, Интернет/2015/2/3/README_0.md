@@ -19,8 +19,7 @@ EyeBeam CounterPath для Windows, представляет собой муль
 ```bash
 magnet:?xt=urn:btih:694149BCCB39A5E119259B8467C7850C5F04882A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Malloc Privacy & Security VPN 3.37 Mod by DEXUNPACKER [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:01AAE81127B328C9EEA57D4628B34CFB357D176D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BSPlayer - один из тех мультимедийных плееров, ч�
 ```bash
 magnet:?xt=urn:btih:3F423C6AC058C089F40D84296A1203767275D978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32819F7173B34DE4B969E66C9FAB79751DE3B774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9CBDDE7A2B8BFF36E07616A886C5A7162EED6D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7B8F62D8BC4BDDDEF8AA0C2E2028C592E631776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ VPN Russia - VPN сервера в России 1.168 Mod by ANiK555 [En]
 ```bash
 magnet:?xt=urn:btih:EF75684D27A032F08006014750166F88651E1E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

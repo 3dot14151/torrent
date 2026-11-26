@@ -19,8 +19,7 @@ Insider Tales: The Stolen Venus 2 / Из первых рук. Пропавшая
 ```bash
 magnet:?xt=urn:btih:7E790BC705D385693326618F00BC5AEC411F6DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Lagoon 2: Cursed & Forgotten / Затерянная лагуна 2. Нов�
 ```bash
 magnet:?xt=urn:btih:26DCCD01B9DB7793A497EB787CE625DD420F4250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Iron Mask — пауэр-метал группа, основанная в 2002 �
 ```bash
 magnet:?xt=urn:btih:4AEE5C8B9D56C0E9B03E31FD29055D6688793BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

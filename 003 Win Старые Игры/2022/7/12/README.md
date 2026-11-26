@@ -19,8 +19,7 @@ Kane and Lynch: Dead Men (2007) [Multi] (1.0.0.129) License GOG
 ```bash
 magnet:?xt=urn:btih:80464219AFA9DFE6688F94D5046988A3D45D8EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

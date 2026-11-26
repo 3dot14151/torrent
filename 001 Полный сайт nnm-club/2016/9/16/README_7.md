@@ -18,8 +18,7 @@ GeoNET - GPS навигатор нового поколения от извес�
 ```bash
 magnet:?xt=urn:btih:CC449CB9206D8AEDC73AB9C0378FAEAFB0EEB95B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

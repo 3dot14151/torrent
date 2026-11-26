@@ -22,8 +22,7 @@ Roland Grapow - Solo Projects (Japanese Edition): 2 Albums, 1 Single, 3 CD (1997
 ```bash
 magnet:?xt=urn:btih:557338A09AADBA49108684A74210A800626C8261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Visitors - 2 Albums (1977-1981) [FLAC|Lossless|image + .cue] <Eclectic Prog, Spa
 ```bash
 magnet:?xt=urn:btih:86D51A87B32ACECEDA950F29F43614B8D3DF2049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ CD3 | Pyromania(   Читать дальше...   )Жанр: Hard Rock |Прод
 ```bash
 magnet:?xt=urn:btih:1BC883DC372D5BA779BFFC332658AE5C739DEC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

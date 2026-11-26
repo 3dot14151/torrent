@@ -19,8 +19,7 @@ Pro Pilkki 2 v1.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AABD8E3FDBD0F29EEA4A425F5B7909683218588B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

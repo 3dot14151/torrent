@@ -19,8 +19,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:D5EEFE254FBCBD506A6E1431D3491A95643FC267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

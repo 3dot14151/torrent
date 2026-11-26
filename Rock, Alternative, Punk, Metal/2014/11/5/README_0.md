@@ -24,8 +24,7 @@ Haive - Mieli Maassa (2007) [FLAC|Lossless]<Raw Atmospheric Folk / Black Metal>
 ```bash
 magnet:?xt=urn:btih:FA0B9D8D326716295126D7BBD100885886550BDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Hagalma - Sublevacion (2011) [FLAC|Lossless]<Heavy Metal / Power Metal>
 ```bash
 magnet:?xt=urn:btih:C41F11E0228EB570CC438D7996AF84B226C1C8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Gallhammer - Gloomy Lights (2004) [WavPack|Lossless]<Black Metal / Doom Metal / 
 ```bash
 magnet:?xt=urn:btih:EC9A1C72FFA72E489F140BC37A0C687E711BDD24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ H.Kristal - Empty (1997) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:AF012080E2BBA01C9609FFBBF4B57C588B734761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Halor - Welcome To Hell (2006) Reissued /2008, Rock It Up Records/ [WavPack|Loss
 ```bash
 magnet:?xt=urn:btih:4ADE6792FC4D69596BC0A63A70668CBE0F20E5A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Falanx - Eletre Itelve (2001) [FLAC|Lossless]<Heavy Metal / Power Metal>
 ```bash
 magnet:?xt=urn:btih:A542E95B094CC4A9A472B26D872A23286AD9DB41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ All Shall Be Well - Blauwgeel (2014) [MP3|320 кб/с]<Post Rock, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:F4910D74DC64B11A1A14D5BD1179CFE9E4F6D481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Galloglass - Heavenseeker (2005) [APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:EA44D06A5B977E0A8C41F390893C5231EEB850AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ Round Hills - Outbreak (2014) [MP3|320 кб/с]<Modern grunge>
 ```bash
 magnet:?xt=urn:btih:770AA8BD73F96758D2B25A2BFAD483C109D81920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +321,7 @@ Between Falls - Intimate Getaway (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FFDEBACFFB9C34B45425D84AA882766A8C59B6E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +355,7 @@ Joe Elliott's Down 'N' Outz - The Further Adventures Of... (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:219B82672D6AD7A3C1745C172318164B1DC1E518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ Bread - The Very Best Of Bread (1988) [FLAC|Lossless]<Soft Rock>
 ```bash
 magnet:?xt=urn:btih:73361E257F32638359B47FF054B655D422ED0620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ Catharsis - Индиго (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:975D6428C7E7A65004A51B4E8395D013BF46905A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +457,7 @@ Chris Norman - The Original Album II - Different Shades (2006) [FLAC|Lossless]<P
 ```bash
 magnet:?xt=urn:btih:B75B473EDDC3A4A8E066A1BFB6FBF61F95552535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +491,7 @@ INXS - 18 Original Hits For Love (1997) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:4210DB9C4EC2636BC74095E98DA2719134B7CD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

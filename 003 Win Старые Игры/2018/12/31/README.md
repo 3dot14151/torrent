@@ -19,8 +19,7 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 ```bash
 magnet:?xt=urn:btih:AB1A4C12B6E03B733326393D2BB53A65DFEAC70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

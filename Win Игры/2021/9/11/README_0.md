@@ -19,8 +19,7 @@ Final Fantasy IV (2021) [Ru/Multi] (1.0) License Fairlight
 ```bash
 magnet:?xt=urn:btih:8455D0B543376B60E52A2EE08664840ECFB08509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ NBA 2K22 подарит вам целую вселенную баскетбол�
 ```bash
 magnet:?xt=urn:btih:B86A8B8CEAF07BA67835F6B6A64978DB90BF3572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Movavi Screen Capture Pro поможет быстро и легко делить
 ```bash
 magnet:?xt=urn:btih:CF38A7B39D1B9189D482E601F3CDB0CAD61D65A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

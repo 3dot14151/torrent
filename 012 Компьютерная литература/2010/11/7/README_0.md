@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:C71BD359BFAC3BCBE80BA0B98CB53BCB9F951F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Windows Communication Foundation (WCF) представляет платформ
 ```bash
 magnet:?xt=urn:btih:9E3392728BBF995C192029D9E6D96C5F3329FEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D8A3FE4443D0F5FC66242D37E337C6A207644F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

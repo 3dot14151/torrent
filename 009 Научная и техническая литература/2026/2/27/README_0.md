@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:2A93EC343F4A9ABAEBC05E84DC9BAF50AC250D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Jean-Louis FANCHON | Guide de Mécanique (2019) [PDF] [FR]
 ```bash
 magnet:?xt=urn:btih:E60EBE36B97CEB4F563106CED121755535B853FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

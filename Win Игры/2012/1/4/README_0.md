@@ -19,8 +19,7 @@ The Kite / Воздушный змей (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:A8C62822A545F704C4E7F6600E5223083F396FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MotorHEAT / Motor HEAT [En] {1.0} (L) 2011 | Unleashed
 ```bash
 magnet:?xt=urn:btih:A3DA4F1BE157A03BF9A6F63B3B647E6E36CD212E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Chronicles Of Mystery: The Tree Of Life / Мистические хроники 
 ```bash
 magnet:?xt=urn:btih:44F39BD7A54B452B7A6A2C4570020BB166CB4A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Haunted: Hell's Reach [Ru/En] (Lossless Repack/1.0.8788/r16) 2011 l R.G. Cat
 ```bash
 magnet:?xt=urn:btih:FFC928A827D847173F3AD2DD3E6BF7B030A234AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:9114A1E3C84E145D9C2746F5A986D7F07FEE19E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Jeanine Meye | The Essential Guide to HTML5: Using Games to Learn HTML5 and Java
 ```bash
 magnet:?xt=urn:btih:00AE46B8A65A4ACA10A44BA71E4D277F861DB924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

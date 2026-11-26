@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B554AA69DBA826C90B49A936496F666EEA5BB7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Pensive - Artifacts (2007) [MP3|<Pop-punk>
 ```bash
 magnet:?xt=urn:btih:C9EFDF289680ACFFD54BC469F4C753AF837C4CE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F39BC1235D257D9AAD75882E23206B1EEA702B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ E.S.P. Trio - Echoes (2003) [FLAC|Lossless]<Jazz, Piano>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Hot Club March (2013) [MP3|320 кб/с]<Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:5D495A923B839FB3852DEE2727A396C6E1FFD389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Luv Machine - Turns You On! (2008) [MP3|320 kbps]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:4CDAE7B1BC235C1D0E92F2FDABBC67EDC5922B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2A23DA5ABAB5432DA39030A08F11A0FA8363975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Bradi Cerebri Ectomia - Supreme Heterozis (2013) [MP3|320 кб/с]<Goregrind>
 ```bash
 magnet:?xt=urn:btih:2FB3EA16B8AE41AB55868EF59073375B99350D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Earth Leakage Trip - Development (2006) [FLAC|Lossless]<Future Jazz, Acid Jazz, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ VA - Club Music Vol. 11 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:A205B123567E739F9FD02EB279C6E6897CAB18B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ Alice Smith - She (2013) [MP3|256 kbps]<Soul>
 ```bash
 magnet:?xt=urn:btih:BAA520A821276559D30FBE4351D88880BE808A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +371,7 @@ VA - Русский Музон Для Молодежи (2013) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:DE02CF0E6B6D934DDF0C2722B00FD73AF62015A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +405,7 @@ Stefania Patane Group - Even Not 4 (2013) [MP3|320 кб/с]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:44E42A1566BD7CF5C1BEB6E728FCA0A72B9F329E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +439,7 @@ VA - Зарубежный Супер Сhart Весны (2013) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:F8760BFF1EFDE2007D3A80F496591879168FFE00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +473,7 @@ VA - 538 Dance Smash 2013 Vol.1 (15.03.2013) [MP3|320 кб/с]<Dance, Club, Pop>
 ```bash
 magnet:?xt=urn:btih:0B120F2E63EA717A8D0FCDE459341B2674FABFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0B4A5BECDF22F64112C8382292ED5AB633F24F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +557,7 @@ Olivia Foschi - Perennial Dreamer (2013) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:74EE10BA1AA6C029E2330A7B45C92E731CF92140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +590,7 @@ Drnwyn - Gypsies in the Mist (2006) [MP3|320 kbps]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:9DABACCCBE37F134D31D85B26AABFE9A8214C3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +624,7 @@ VA - Весна шансона 1 (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:776CFC1BFE497C26B4924654045961C1942A92FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +652,7 @@ Witch Queen - Witch Queen (1979) [MP3|320 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:A69747954EC7F8F3F2E9A0A474F7637B4AF9251A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +686,7 @@ VA - Звезды весенних хит-парадов (2013) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:D3BBEBA535F12EA247C54C548B501184614BB9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +720,7 @@ VA - Молодежная Муз Энергия. Зарубежный (2013) [MP
 ```bash
 magnet:?xt=urn:btih:42730ACC3BA4313AF768903B306282D1F9BBF0D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -768,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A241DEA2C6D510C4021840FA88EB231F1E638163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -803,8 +779,7 @@ Edwyn Collins - Understated (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:36E59231159286DD996B82DF240724415A3E7814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -829,8 +804,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EE982617097659C3959DD7A370EA1F7E2BC0B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

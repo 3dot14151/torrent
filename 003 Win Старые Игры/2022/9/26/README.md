@@ -19,8 +19,7 @@ PC Football 2007 / Лига чемпионов. Футбол (2006) [Ru] (1.6) L
 ```bash
 magnet:?xt=urn:btih:E5446C1B1F8B9F0F6223C41BEC17EF559D6F1E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

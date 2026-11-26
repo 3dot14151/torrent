@@ -19,8 +19,7 @@ KISS - минималистичный и невероятно легковесн
 ```bash
 magnet:?xt=urn:btih:C28B7A0D44541331385003C3C768B78E6C5AEBD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

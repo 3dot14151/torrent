@@ -19,8 +19,7 @@ Labyrinths of the World 10: Fools Gold / Лабиринты мира 10: Зол�
 ```bash
 magnet:?xt=urn:btih:748479BB6F9ED421BDD11862001AC769E6C763E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ We Need to Go Deeper - это приключенческий рогалик, в 
 ```bash
 magnet:?xt=urn:btih:5B47E7764FE223C48A73B5B9BB232622681BB4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Automachef (2019) [Multi] (1.1.0.0.380) License PLAZA [Lunar Update]
 ```bash
 magnet:?xt=urn:btih:4D89D8E9951545F8B904394AE583AD4A39A34A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Praetorians - HD Remaster (2020) [Ru/Multi] (4.22) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A04096E6567C7A1E3E1B0D0B8EBB7099ECEF564E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

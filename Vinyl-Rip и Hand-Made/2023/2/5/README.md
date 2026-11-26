@@ -22,8 +22,7 @@ Type O Negative (с англ. — «первая группа, резус-о
 ```bash
 magnet:?xt=urn:btih:FD4A6D39E7607E360FF6C737C93E3B07D4C25247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

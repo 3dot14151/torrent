@@ -20,8 +20,7 @@ Prime World: Defenders (2013) [Ru/Multi] (1.3.3041.0/dlc) SteamRip R.G. Игро
 ```bash
 magnet:?xt=urn:btih:C1BA8589C61B92006DBBCA0F09EDCF3E36596B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Nascar '14 (2014) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:E24BE3A2FBA09FB1209C9D188DC837AF27215D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

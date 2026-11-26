@@ -19,8 +19,7 @@ Imperium Galactica (1997) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:884B8988BF1424A723B622AE0C4762A190553D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

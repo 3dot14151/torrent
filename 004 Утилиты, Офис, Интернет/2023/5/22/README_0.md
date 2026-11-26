@@ -19,8 +19,7 @@ OnlyStopWatch 6.16 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:05B7F234FA0CB69CB08E9E1DBE3410B066F296C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Nmap — (Network Mapper) — мультиплатформенное прило�
 ```bash
 magnet:?xt=urn:btih:3CDC18507AF065A1CA21B7A4EC5356080657E2D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

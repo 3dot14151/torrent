@@ -19,8 +19,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:C06B39E0A8AB8219435DBFBD04955C81F14598CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Camera Translator использует самые передовые техно�
 ```bash
 magnet:?xt=urn:btih:C79E04F22846F316E3410C283CA3B4C9EAD0EEAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Astrolapp Live Planets and Sky v5.2.1.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:41A3737AF86B81C5FE9096AF5400B860A2AEB175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Display Tester v4.60 Mod by Balatan, serborkr  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:EC83B59736C0DD4DDCD8EC1B40953C42A8AA89A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:0DA3B705E5312593EFFDED5C7387FBC0A035556B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

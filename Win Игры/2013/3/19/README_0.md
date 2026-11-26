@@ -19,8 +19,7 @@ European Mystery: Scent of Desire Collector's Edition / Тайны Европы.
 ```bash
 magnet:?xt=urn:btih:9CA19481ABF6EC207246F4C6327AEC90A4297E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ The Walking Dead: Survival Instinct / The Walking Dead: Инстинкт выж�
 ```bash
 magnet:?xt=urn:btih:0298F0CF1BF32C82654844A343920CE7D2174957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Trials Evolution: Gold Edition - ответ на их ожидания.(   Чи�
 ```bash
 magnet:?xt=urn:btih:7B17BD5AA0C0FEE9915F879136E8FAFBE234BBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ The Walking Dead: Survival Instinct [Ru/En/Multi6] (L) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:A643D7898A9018ECA840DF9BA61423CED3A896F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

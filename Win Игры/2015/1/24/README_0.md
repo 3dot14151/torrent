@@ -19,8 +19,7 @@ Mystery Tales 2: The Twilight World (2015) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:A13C471FF328766D2A99F51CCCB58D38D33D1AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Insane Cold: Back to the Ice Age / Неистовые холода: Возвра
 ```bash
 magnet:?xt=urn:btih:80773869A1B26EFC32FDBC3230660A549EB6B816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ New York Mysteries: Secrets of the Mafia / Загадки Нью-Йорка: С�
 ```bash
 magnet:?xt=urn:btih:6ADA52BB7A69DCBA0E81379990633AA9530D1B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Ghost Pirates of Vooju Island (2009) [Ru/En] (1.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:13F54F95D45E9BA351969E2AA404500DB4B362AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ A Vampyre Story / A Vampyre Story: Кровавый роман (2008) [Ru/En] (1
 ```bash
 magnet:?xt=urn:btih:40C68B32A8AAE9AAA158CCFABA6CF95F61ECFEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ The Tudors: Hidden Object Adventure / Тюдоры (2009) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:44E85A97E8F9D4B3E37146313907EF6A8C7324DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Ridge Racer Unbounded (2012) [Ru/Multi] (1.13/4dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:BAEAB1D57BB28CE8218063EE6CDDB42409AE8774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Mars: War Logs (2013) [Ru/Multi] (1.0.1736) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C4DA205DB0BB2F215F0BEBA79CAB2B31B5F43189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

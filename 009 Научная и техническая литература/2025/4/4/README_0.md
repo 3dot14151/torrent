@@ -19,8 +19,7 @@ F. Klein | Elementary Mathematics from a Higher Standpoint [3 книги] (2016)
 ```bash
 magnet:?xt=urn:btih:541E093B35B0BD3AF63A4EA8436ACEE133D93E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

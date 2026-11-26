@@ -19,8 +19,7 @@ Ultimate Background Eraser v2.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8F642AE772A85F3E58C7FA64AF599B19B65F5C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

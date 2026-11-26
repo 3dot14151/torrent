@@ -19,8 +19,7 @@ DXX Rebirth - это модификация Descent 1 и 2 части для з�
 ```bash
 magnet:?xt=urn:btih:449BBD8A2789A74CBC5777A0B162CA35877D7EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Perimeter 2: New Earth / Периметр 2: Новая Земля (2008) [Ru] (
 ```bash
 magnet:?xt=urn:btih:3D2E3DE584DB12188D05A339F3074A56A14A4FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 ```bash
 magnet:?xt=urn:btih:9887982EAE798CAD6241D68A93B09EA46674E614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

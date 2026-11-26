@@ -19,8 +19,7 @@ GoreBox – проект, исполненный в жанре песочниц�
 ```bash
 magnet:?xt=urn:btih:B0F8855764082391765694370F89D6B1960A9137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Around the World 2: Travel to Canada (2024) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:FC99F1AA60121FF4DCF4D446E88787667C9CBF53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Wink Plus ATV v1.5.0.3 Mod [Ru] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:71F81006ED81DCDC90F269536E9648EC7082FEA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

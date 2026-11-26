@@ -19,8 +19,7 @@ Duke Nukem 3D - культовая компьютерная игра в жанр
 ```bash
 magnet:?xt=urn:btih:559489BA3158EDE3C814D7A115DAF32D450E83F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

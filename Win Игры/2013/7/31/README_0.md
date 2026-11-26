@@ -19,8 +19,7 @@ Mystery Trackers 4: Four Aces. Collector's Edition / Охотники за та�
 ```bash
 magnet:?xt=urn:btih:BAD4F4B3CACDE104CCF0BA87252195F484971436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ PAYDAY™ — заставь их платить или поплатись са�
 ```bash
 magnet:?xt=urn:btih:BC95142F4C9936AF79D65FD2AA3DC5AD20F9EB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Def Leppard - 12 Альбомов, 8 изданий, 19 CD (1980-2008)  [FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Powerwolf - 5 Альбомов (2005-2011) [MP3|320 кб/с]<Heavy-Power-Symphon
 ```bash
 magnet:?xt=urn:btih:2CEB1B1C2323C440CE30BBF87316FE6EC17C7F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ White Skull - 9 Альбомов - Дискография (1995-2012) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:691878FA8C9C8A30F7DE49FE8633C8909A91D4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ Dee_Waste - Discography (2003 - 2010) [MP3|320 кб/с]<Alternative; Metalcore; 
 ```bash
 magnet:?xt=urn:btih:EFEDBC4F481794322767CCB0E38A5D7F0C9EC059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Synthphonia Suprema - 2 Альбома (2006-2010) [MP3|320 кб/с]<Power Metal
 ```bash
 magnet:?xt=urn:btih:B757AA4BB09465311C48D5BDB03FDC2D8E90A479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

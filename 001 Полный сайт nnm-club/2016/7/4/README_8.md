@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:3146DA81358CD4BD190233C846B480A48A7C58D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F57A038255CD4E407C64DD4BDB0FA6BF5D1CA44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Finding Around Happiness 006 (2016) [MP3|320 Kbps] <Trance, Melodic, Stadiu
 ```bash
 magnet:?xt=urn:btih:F1078A90B71A23D379EBC275A09D930AAEC8BC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Timur Mingazov - MBS Mix #26 (Spring Song / Trance Mar`16) (2016) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:5446D5CAFFFE4E8A219CEACEE8A3620EA6D38627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Music Born In Silence Intro
 ```bash
 magnet:?xt=urn:btih:2EFAE80FDD8DEC930819903DD23CA0019A695C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Relevant Freak Future Massive (2016) [MP3|320 Kbps] <House, Electro House, 
 ```bash
 magnet:?xt=urn:btih:00818734E28D77A6E02C2ABFBC6816233B7F3202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Anvil - Plugged In Permanent (1996) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:41F900482BE0CD87F42D88D7FFB0FB7E517DEC6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Denny Zeitlin Trio - Live at the Trident (1965) Remaster, 2014, Sony Music[FLAC|
 ```bash
 magnet:?xt=urn:btih:6F49C35B075674F9E9DE06C51677895F49280375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Martin Neuhold (feat. Guy Beeri Mauseth & Colin Powell) - The Fool's Tale (2015)
 ```bash
 magnet:?xt=urn:btih:CF6AA6DCF918A2008AA4686B5E1DA1564F7DDF03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ DJ сборникЖанр: Future HouseПродолжительность: 00:34
 ```bash
 magnet:?xt=urn:btih:BD597BF5A84579E2759AE746286BA6989D0D16BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Warfect - Scavengers (2016) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:AE1BA0067804D2A3C688BDA43F67A62F67473594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AA675C71491A1778CCAF5C2D4D108C89552D665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ Martyr - You Are Next (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Me
 ```bash
 magnet:?xt=urn:btih:80A3DB5062681D681D7F9BBEACD7A5AA6E3AD665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ VA - Зарубежная Дискотека ХХ Века - 53 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:A7CB08126D72D6C8917BC0C9F333E1DE7372E6A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ VA - Зарубежная Дискотека ХХ Века - 58 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:3A33188B044E81201803B2DD49B170910A757790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Divine Intervention - Traveler (2016) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CF965E4D670C1FCA1345C2D8278B7D75E72FBCBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86DDBF8C81DD247DF6A14E7C0B9B12174950F6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ VA - Зарубежная Дискотека ХХ Века - 51 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:487B772467ED98FC3CD7776957CE5FC50B55658A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ VA - Зарубежная Дискотека ХХ Века - 55 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:C87A1D9D1A440DF67AA2D775948592BA0FC1349E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +545,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:291BE982B84F01E7A2830C94DC2CC6178BB8460A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ VA - Miracle Summer Base Resistance (2016) [MP3|320 Kbps] <House, Electro House,
 ```bash
 magnet:?xt=urn:btih:748D34506DC9E9C90B97C789D0B80E989F244206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ VA - Hot Melody Trance - Day In The Air (2016) [MP3|320 Kbps] <Trance, Melodic, 
 ```bash
 magnet:?xt=urn:btih:8C3086F25EA97D0C34326D2770FD5E827484EECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ VA - Зарубежная Дискотека ХХ Века - 52 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:3A329A1AE56CED85A890A62F7E5855F2A15F5B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ VA - Зарубежная Дискотека ХХ Века - 56 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:C43A1C0EA9A838852B0455055F43051EB2060F9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ VA - Deep House Invasion (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech 
 ```bash
 magnet:?xt=urn:btih:718921FE5434507D94D5DE0A20B8754A7A653680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ VA - Зарубежная Дискотека ХХ Века - 59 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:A1CDCC4DE809D72345DF497C990780822A1AAB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

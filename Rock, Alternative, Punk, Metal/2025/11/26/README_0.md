@@ -22,8 +22,7 @@ When Nothing Remains - Echoes of Eternal Night (2025) [MP3|320 Kbps] <Gothic Met
 ```bash
 magnet:?xt=urn:btih:A13257AF8A464A9C6A17A37758D0D1C9711E86C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51322D23BE1290DF1DEA0890603A8E3A3F6FCA09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bravelord - The Power From The End Of The World (2025) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:938A21DD4B3F7B08F0B9035A843C1868B48B816D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Disc1:
 ```bash
 magnet:?xt=urn:btih:1A61147FD49926C66E56ECF444DCC3C54A49A731
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Brinsley Schwarz - Shouting At The Moon (2025) [FLAC 24/88.2|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:A273ADB2349F49EE9FB439953952061052F4C993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

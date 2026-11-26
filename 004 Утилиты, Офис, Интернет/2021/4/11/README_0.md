@@ -19,8 +19,7 @@ PortExpert – утилита, способная контролировать �
 ```bash
 magnet:?xt=urn:btih:F05D9D9FE686E6FD2B210A327AF161DB0F13A7A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

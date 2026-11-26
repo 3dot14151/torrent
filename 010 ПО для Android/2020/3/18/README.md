@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:8D792D32497328C842A1375D23C5605D483019F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ EUT VPN - Easy Unlimited Tunnelling v1.3.12 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A803C38FDA2C4BE61D66954F161B32E285EC1794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:888C00C6D3D7635ED02CC17691E86772ACD4F8EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

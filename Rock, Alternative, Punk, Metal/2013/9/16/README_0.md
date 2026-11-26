@@ -28,8 +28,7 @@ Mnemic - 5 Альбомов (2003-2012) [FLAC|Lossless]<Modern Metal | Industria
 ```bash
 magnet:?xt=urn:btih:FA9BC299365CE519D9EB34114EE384F33DEAA67F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Blood, Sweat & Tears - Super Hits (2013) [FLAC|Lossless]<Jazz Rock>
 ```bash
 magnet:?xt=urn:btih:BBA2206868CE3847BAAD1367FDCC7FE7D630BF81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:524BCCADBBFDE52D5AFF6BB21D32AC5CE8ABA471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

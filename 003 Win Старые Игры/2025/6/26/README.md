@@ -19,8 +19,7 @@ Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:91689FE556B59F95794CCA156D322EAA9EAD67AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ AccuBattery Pro - нужное приложение для всех кто оз�
 ```bash
 magnet:?xt=urn:btih:F2D24438CA2C8D2024FFFAD44E439682F57D8F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

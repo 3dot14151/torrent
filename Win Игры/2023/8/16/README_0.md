@@ -19,8 +19,7 @@ The Guild 3 (2017) [Ru/Multi] (1.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:1736C563CCAF0989FB20F72E962A581FBAE025DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Moving Out 2 — это уморительное продолжение всем
 ```bash
 magnet:?xt=urn:btih:D0AB42F04DBD2B9F449CDED32EC5AB51D24CA9A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:F2006C69A98F0F2E1D0A1FDA753513962C24AB80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

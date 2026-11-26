@@ -19,8 +19,7 @@ Battle Beast - Eden (2019) Single [MP3|320 Kbps] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:EEA0D8669B07026EF82386368E4F3E426D9C821E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FileZilla — это свободный многоязычный FTP-клиен�
 ```bash
 magnet:?xt=urn:btih:E5F875A683E04CBB9B1886266B20D51F3C1C1575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CyberByte Antivirus and Internet Security - комплексное решени�
 ```bash
 magnet:?xt=urn:btih:24E36A1BFB79D363081506BC5B405339F86D24D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Czarface & Ghostface Killah - Czarface Meets Ghostface (2019) Deluxe Edition, Li
 ```bash
 magnet:?xt=urn:btih:09DE117CE117A94D236CA7107083A2E70FA35DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ VA - Disco Feeling (2019) [MP3|320 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:1B10CA53D45AF9ADCEEA4DE6C59F2D139A296308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Blues Company - Ain't Givin' Up (2019) [FLAC|Lossless|image + .cue] <Electric Bl
 ```bash
 magnet:?xt=urn:btih:DE3E1D1A3F796DEBA7B16DC7F4B5665A99E75C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Witches Legacy 11: Rise of the Ancient (2017) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:BECD3C8037A1019B233EDA4ED727ECDDFAA05841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46AD8F2AB850735A6E13D6BF779EF2AAEAEA5CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Marsheaux - Inhale (Remixes) (2019) Undo Records Ltd. [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:1DB216E3985B9347AE7D1D4AB632234CB97F35CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E61B04228CA2D3CF37499B3D86D2C4E0514BF8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ VA - Love 101 - 101 Ways To Say I Love You (2009) Box Set, 6 CD, Compilation [FL
 ```bash
 magnet:?xt=urn:btih:0A647B9A271E3F28E545CF403B5E04F8BC6D5241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Matteo Zini (Opium, Nosesoul) - Discography 11 Releases (2000-2011) Practising N
 ```bash
 magnet:?xt=urn:btih:612AC640F5C1F754FC2CAF3AA8D0B9F3E331B9CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ UNKLE - The Road: Part II / Lost Highway (2019) [FLAC|Lossless|WEB-DL|tracks] <A
 ```bash
 magnet:?xt=urn:btih:4FAB3DE5C14DD96174BC21A0299EC283BA78C865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Mp3tag предоставляет пользователям мощный и п�
 ```bash
 magnet:?xt=urn:btih:721898275066C3C8DEA7879AA83A272CCD509D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:3DE44CA123AED2894787036C19E0CFA819073627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ The Legacy 2: Prisoner (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:70CE4173D6D8FBE0683DBD6198E9612011E63B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ Master PDF Editor - это простая и удобная программа �
 ```bash
 magnet:?xt=urn:btih:F2A0C565DB0EAC6881CC6104ADE98CFAC606D523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ Transmit представляет собой отличный FTP (File Transfer
 ```bash
 magnet:?xt=urn:btih:F8E421BD52C7E51192A03EECB6388C5B53DA286D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F62136BCA141ABA4D6815B57F895859B0D79C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEB472BF252F37FC04225C86759DD28D285CF8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Surface 12: Project Dawn (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:FA6FF41931B870502C1B991242C8EDE762C3DADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Acoustica Premium Edition - профессиональная программа,
 ```bash
 magnet:?xt=urn:btih:0BF4E39EE0588EB19A319C720BD292B4531C7BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FF76E804E00369D66E3DBD1E2CBD211589A7400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ Total Video Converter Pro - полноценный и универсальный
 ```bash
 magnet:?xt=urn:btih:F5969AB0E291C1438BD159626BDEC9AB06F25319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9EFA329B561730345740C2BBB8272954E580BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B5FC323936F40D509ACBFF210D206AB905DB488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

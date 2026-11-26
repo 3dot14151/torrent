@@ -22,8 +22,7 @@ Agathodaimon - Serpent's Embrace (2004) + обои, фото, фото гале�
 ```bash
 magnet:?xt=urn:btih:B45C0DD90D91ABEB36C46710B2469072F36ADC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Oceans of Slumber - The Banished Heart (2018) [FLAC|Lossless|image + .cue] <Prog
 ```bash
 magnet:?xt=urn:btih:09341121145558E6DE86920B4A79D71401C02DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

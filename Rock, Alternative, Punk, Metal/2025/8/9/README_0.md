@@ -22,8 +22,7 @@ Queen - Rock N Roll (2025) Remastered, 2011 [FLAC|Lossless|WEB-DL|tracks] <Rock,
 ```bash
 magnet:?xt=urn:btih:584DF16A0A0129F69203E37DDC03876F9FDFE745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

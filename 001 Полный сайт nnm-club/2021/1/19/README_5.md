@@ -18,8 +18,7 @@ Death Stranding – один из самых ожидаемых релизов �
 ```bash
 magnet:?xt=urn:btih:AF0F72C139458ED0BC5BB117425173EC7BDD34C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Win 10 Tweaker – это небольшая, но очень мощная пр�
 ```bash
 magnet:?xt=urn:btih:4E49059420A77C3A96CC13514F75729F16501487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Battlefleet Gothic: Armada – стратегия в реальном време
 ```bash
 magnet:?xt=urn:btih:7F65E453C01A66A1667A71072450E1AC56C15FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

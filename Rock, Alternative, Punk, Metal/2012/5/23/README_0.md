@@ -28,8 +28,7 @@ Deep Purple - The Platinum Collection (3CD) (2005) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D04AC8D61240BAD3C6A367754FAE0384FFB992F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Time Life - Guitar Rock - FM Classics(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:E86D94F8EE802C0F776DECC5AFFD0EAD00D6A6C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Spain - The Soul of Spain (2012) [MP3|320 кб/с]<Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:9022617F144AA900D7F434232FED5EF712705832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Skumring - De Glemte Tider (2005) [APE|Lossless] <Doom Metal, Folk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Darkness and Flame 4: Enemy in Reflection (2019) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:42218BE6C6DCE0DA3ACDC2CCC30FC61B06EA88CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legacy 3: Witch Island Origin / Наследие 3: Происхождение �
 ```bash
 magnet:?xt=urn:btih:7DC7EBCE380BD9EE59970BE4C43EFEAD2615FC34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Conan Unconquered (2019) [Ru/Multi] (1.143 build 703634) Repack xatab
 ```bash
 magnet:?xt=urn:btih:A1D0EC3D9137E405F685C0875E3FE89DF7234084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:B682B62B24B39B2BA0E92A97DCF50B1A537F3223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:D9201EA3647D2C001F4D1D38FBE90564F59ED482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Creedence Clearwater Revival - Легенды Зарубежного Рока (1
 ```bash
 magnet:?xt=urn:btih:25E2C40DF3BC82A883ED351552B1C2174EDB8557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

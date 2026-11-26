@@ -21,8 +21,7 @@ Burrrn 1.14 Beta 2 [Ru]
 ```bash
 magnet:?xt=urn:btih:26D17016C3E493C880CD6080E6C5F6F0E3CA3849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

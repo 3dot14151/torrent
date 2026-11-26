@@ -19,8 +19,7 @@ Sable Maze 7: Nightmare Shadows / Темный лабиринт 7: Тени ко
 ```bash
 magnet:?xt=urn:btih:F2E77D6C33EF45DD56DEA24A7A14E98AD31B834C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rock of Ages (2011) [Ru/Multi] (1.11) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:ED8FFD59B7DB4BAC245C2BB952B8EBFE80B76DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aegis Defenders - очень красивая смесь пиксельного 
 ```bash
 magnet:?xt=urn:btih:08B53A49EF134B2BACA1E030D6D557B07A528CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sid Meiers: Civilization VI /  Sid Meiers: Civilization 6 (2016) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:D7C7DD29B6DBBF1EA96DB78AD2554CDBD5DFD609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rock of Ages 2: Bigger & Boulder продолжает сокрушительны
 ```bash
 magnet:?xt=urn:btih:1425E9C2A71EB9C802302944B002F3B0A359DA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

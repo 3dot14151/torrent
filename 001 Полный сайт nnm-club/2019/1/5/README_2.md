@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:03EF86BC075F36F577F2BA14B277DA816FC38198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Dark Parables 15: The Match Girl's Lost Paradise (2018) [En] (1.0) Unofficial [C
 ```bash
 magnet:?xt=urn:btih:CA5BE17537BDDAD67B8F37AC49997D6D070FDDF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ MassTube Plus —Очень простая в использовании про�
 ```bash
 magnet:?xt=urn:btih:AB264DC0807BABA3E6DBE40C48E63A1473ACDDE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 ```bash
 magnet:?xt=urn:btih:D8879C8CE9E61E89E53B289234B2DD87BA80408E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:703869A72168503F9DC86BF13E087CE06A273984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Wise Memory Optimizer 3.6.4.108 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7474A8EA124DD2228F2E0C362D2E130D7E9C0F42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F819C286EB2A765F116170AE03ACB6CCD2FF8749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EFCED362DE5AEEDF7268CB4E4EC14C01A18EA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9599EC786EC5AF3B70A3D9EF5FDB530982F43286
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3791F6DDD4850EA57710E22CB15E542BA76AC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:917EB5838C82D1F69D86759DE8D2234A91454EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:142426B408D02983A27FE760DD38EC0677142A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +320,7 @@ Ubuntu*Pack 18.04 MATE (декабрь 2018) [i386 + amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:752E420AB25B39C7B668D8D6469FC9CE8E0B8B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA34037537CF31CD1BF852C9EA36BCEE79C12811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +370,7 @@ Antergos - современная, привлекательная и мощна�
 ```bash
 magnet:?xt=urn:btih:4B6DAAD7B3D2EB9F7611FA2C46330EF07AED12A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +395,7 @@ Dreadful Tales: The Space Between (2019) [En] (1.0) [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:14848AEF5C84F882942A222F5F4629B950A767F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ Hymn - Sarah Brightman in Concert (2018) DVD5 [custom]
 ```bash
 magnet:?xt=urn:btih:61251BA4F6892CA468867BE235C74D79F40CFD50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ Richard Clayderman - Hi-Res Best (2016) [FLAC|24/192|Lossless|WEB-DL|tracks] <Ea
 ```bash
 magnet:?xt=urn:btih:7A25A56DE10746453B212C884667FBCE03CC2CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F16F3ECE4386B5016CF688452696F6D309E92E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ Ubuntu*Pack GNOME Flashback 18.04 (декабрь 2018) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:191010A41EE7749DBBC89D1A3EF90C0244ED9E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D6BA32E8692A5A291719EE722E29E3038DAFE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE972DE4207657B47F6DD7C596D95F1C74B65019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ Ubuntu*Pack Cinnamon 18.04 (декабрь 2018) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1C43B1F053A693826FA10699C52567010E11ABD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +602,7 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2018) [amd64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:3E01BDF8F9ADF02C835FB66BDE5B07F72575D4DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 ```bash
 magnet:?xt=urn:btih:5FE5560557CB58BFA23BDCE8F9740461E590DAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +652,7 @@ Ubuntu*Pack Unity 18.04 (декабрь 2018) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:C4D7A9F3174CA7E72C673D24B5734F73E1C767CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

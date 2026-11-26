@@ -19,8 +19,7 @@ Strange Discoveries: Aurora Peak Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:DA218B7CF757D24A5323626A1A2A6647987B754B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

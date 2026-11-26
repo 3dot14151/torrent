@@ -21,8 +21,7 @@ Calculate Linux 13.11 [i686] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:85774EC3BA97D99F93B738AD139EF54683D4EC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ OpenMediaVault предназначена для использования (  
 ```bash
 magnet:?xt=urn:btih:2AF204B043001FE1CABE31DBD937DF1C757F02EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

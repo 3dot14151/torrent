@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:765C29584B37BA4C0C99FA67DC5B08C722B71CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Discovery: Из Египта. Плоть и кости / Out of Egypt (2009) SAT
 ```bash
 magnet:?xt=urn:btih:5A32DC1646D4104B77112C3FAD06E7F206C4A472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F1699FCF04384A208632078B77C90D0C823CD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Discovery: Из Египта. Городские грехи / Out of Egypt (2009
 ```bash
 magnet:?xt=urn:btih:B8F4E5FB1402F723A1A2B9D2987B8D5EED0E9FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Fish - A Feast Of Consequences (2013) [FLAC|Lossless]<Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:EC7784C675A8727B3B78692C39631DF9304B4CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C352F2426F6860D35E33C20BE0932DD71E06B74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ deГенераторc - Будь Ты Не Laden (2003) [MP3|320 кб/с]<Rock. 
 ```bash
 magnet:?xt=urn:btih:90059F268813CE54462530F6BCB25AF24B033073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D80A016C9DCAA9295042B38AC5C06F278179C9B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A83515BEE32869C84C278C11CB0F7047DBB92F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97980EC0B6DC0DF15DE905ECBB12FE785DF962AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ DJ SubWave - Invincible Mix (2013) [MP3|320 кб/с]<Dutch House>
 ```bash
 magnet:?xt=urn:btih:EC5EFD4E451D9BBE7F49FAE55975A845EB5AC221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Dragonfly - Atlas (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:138108C49579623F22312B6EA35B8B77DC2D195C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7E253C53A9FA78E70157BA1701A1D4CDCE28261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7C806417AAFBB27AAB4DD50BE325620E06C0886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAD9433998E7E0F2A93BF2561ACAF889FBACD841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ Control Denied - The Fragile Art Of Existence (1999) [FLAC|Lossless]<Power metal
 ```bash
 magnet:?xt=urn:btih:174EB4200A23D4F4CADADE5C0382720A755F741B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +477,7 @@ Indukcia - 2 Альбома (2011-2012) [FLAC|Lossless|WEB-DL]<Drum'n'Bass, Brea
 ```bash
 magnet:?xt=urn:btih:B1B47F043C9830F2D9E24062A27BF00BC8445C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +502,7 @@ VSO Downloader - менеджер для многопоточной загруз
 ```bash
 magnet:?xt=urn:btih:E07C0A510B07F37FC511B5032905DF78D4E819DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ Hazel – это ваш личный уборщик, который органи
 ```bash
 magnet:?xt=urn:btih:8B8F3E5AD1612481A2F3C20EE3AC24CE82E290BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4EFBD0B2DD63AF21722A16C68E8C02CD5A374026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64C1CA0FAAEBDCE3855E86E223D8D26FB4B51097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ Fission - обрезка, склейка и конвертация музыка�
 ```bash
 magnet:?xt=urn:btih:46C6B55CE6F313BF914EB2375FB0529776A96459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +667,7 @@ Latexxx Teens - Cold Heart And Old Scars  (2013) [MP3|320 kbps] <Industrial Rock
 ```bash
 magnet:?xt=urn:btih:908E85A26C933E9FB8ED0895A5ADF2C3D4AB2EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +692,7 @@ Discovery: Из Египта. Рождение дьявола / Out of Egypt (20
 ```bash
 magnet:?xt=urn:btih:1CD5B0B6FAB2D1B0F9A6294C25AA667326D144CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +717,7 @@ NG. Реальность или фантастика? Вампиры / Is it Rea
 ```bash
 magnet:?xt=urn:btih:5A6D096B8F244FFD33CD67A8E4BF45203D9A855C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

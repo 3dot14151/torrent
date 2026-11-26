@@ -19,8 +19,7 @@ District Wars / Кровавая Месть (2009) [Ru] (1.0) License Акелл
 ```bash
 magnet:?xt=urn:btih:7E8C61D11BB402BC434CD0A85F674AEA8826E347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

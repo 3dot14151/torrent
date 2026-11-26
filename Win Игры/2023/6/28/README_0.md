@@ -19,8 +19,7 @@ The Simulacrum погружает игроков в увлекательный �
 ```bash
 magnet:?xt=urn:btih:BB0B37D2B79D176173B62CF5C34257750F2F1037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spellcaster University (2021) [Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:392D585B20EB5AF607C1961D0BA1D1DF4BD97425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

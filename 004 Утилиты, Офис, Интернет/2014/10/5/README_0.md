@@ -21,8 +21,7 @@ Start Menu Reviver вмещает до 32 плиток; таким образо�
 ```bash
 magnet:?xt=urn:btih:898CA93A09DE8F08ECCE3B7F107076BDB0955BC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ CommView - это программа для перехвата и анализа
 ```bash
 magnet:?xt=urn:btih:2771BF9175B2B057052EC6511E7A305F9BD1D38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

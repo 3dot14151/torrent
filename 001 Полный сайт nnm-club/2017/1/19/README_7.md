@@ -22,8 +22,7 @@ Richard Wyands Trio - Get Out Of Town (1996) SteepleChase[FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:B2A7A2CA2E56904D7FBEE471E6134368B4769909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Donald Byrd - And 125th Street, N.Y.C. (1979) Remaster, 2013, Warner[FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:8588E9BAB002C7B008751A5B7EFF99DF43445A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Grafvitnir - Necrosophia (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:F9DF7DDB36A6CE7E43CD5DFF3E7D871C6D28A8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Base Hits Vol. 1 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:BA5A5EF70B60706F742EAC705399997F2BB1B769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Wind In The Field (Downtempo Series)  Vol.005 (2017) [MP3|320 Kbps] <Chillo
 ```bash
 magnet:?xt=urn:btih:112B1362E9C4AE55A6A6964CCBCC713ADEA9011B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Chart Tunes - Indication Reality (2017) [MP3|252-320 Kbps] <Funky, Vocal, D
 ```bash
 magnet:?xt=urn:btih:C1B41A4145243E92CA3399A5E44D9A3D3D6471E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Grafvitnir - Semen Serpentis (2014) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:60141B8F9E7EB23A2F5E8D61E4F138352F6A50F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Grafvitnir - NaHash (2012) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:245129FBEC4F873C24627F2B5E539A35FA965788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8C58A9F2F28852D03FF864CE7599DBDEBE69077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Modern Jazz Quartet / John Lewis & Svend Asmussen - The Legendary Profile & Euro
 ```bash
 magnet:?xt=urn:btih:8C5573EEBC19C6CDD17B2E8709D14D2B0D0D313C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ VA - Midnight Sessions  Vol.3 (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:9DBF131ED48AD318938A9D9320A9278C97A894B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ VA - Games Rain: Chillout Party January (2017) [MP3|320 Kbps] <Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:F21DAC35742DB47EAFFF5B25F34C003DBE3408B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Mark Cook - Take Me Back Home (Styles 2 Collection) (2014) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:E542D7BA271248154E927446A8CBF030AA164921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Rossington - Take It On Faith (2016) [FLAC|Lossless|image + .cue] <Blues, Blues 
 ```bash
 magnet:?xt=urn:btih:5B2E63F3946C8692F51E8A2D0584AC0C8C849F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9D82227D1756D41F606771F8B1A0F09B6BA5DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ Graphic Styles  содержит набор высококачественных
 ```bash
 magnet:?xt=urn:btih:7A8E4CF6EA8EE3829890B0ED5D17661A76BDFD31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ VA - This Is My Church Vol.4 (The Lounge Edition) (2017) [MP3|320 Kbps] <Chillou
 ```bash
 magnet:?xt=urn:btih:3C2001A0E53643FFCBB82570466D6BC8FE1B6B40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ VA - Music For Everyone - Chillout & Lounge Vol.5 (2017) [MP3|320 Kbps] <Chillou
 ```bash
 magnet:?xt=urn:btih:75C53D8FCE026571A9C7BF7768066907ED64CEE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ VA - Extreme Cardio Vol 1 (2015) [MP3|320 Kbps] <Hard House>
 ```bash
 magnet:?xt=urn:btih:2C78EC99AA4587C6C0CF2F25AEB299AC9DB37691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ The Brew - Shake the Tree (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Class
 ```bash
 magnet:?xt=urn:btih:2B7AFD4A63D6BCA307F5E552BB1817B67603FB48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF912334946F5EBC516B4380E49A91F040EAD49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ Q-Dir - бесплатный, отличный файловый менеджер
 ```bash
 magnet:?xt=urn:btih:6BCCD3838BFDF4FBC6D07B6E996633AA7B136169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BEB09701F7F5880E3C80A8896129F211F5DEADC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ InstaBro это простой инструмент для Mac, который �
 ```bash
 magnet:?xt=urn:btih:8856368CD4CF42E9E8333104C5209388E3A34C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ VA - Extreme Cardio Vol 2 (2017) [MP3|320 Kbps] <Hard House>
 ```bash
 magnet:?xt=urn:btih:D015F05948C3CE0CFA600FB2C2BB2854DF0922B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ Simon Kinny - Lewis (2015-2016) 2CD [FLAC|WEB-DL|Lossless|image + .cue] <Blues-R
 ```bash
 magnet:?xt=urn:btih:3D6BF8F73117A95F6FBCFFF843E7E89AAAC5723A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

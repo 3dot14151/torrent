@@ -27,8 +27,7 @@ VA - Dance Music From Russian (2011) [MP3|192-320 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:433C8C4467F0CE676B48014FA1546EC7CBF8E0A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27509CFC4618D6AE48A2DB1DAD555509639426F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Seashore Desire #6 (03.08.2010) [MP3|320 kbps]<Uplifting Trance, Dream Tran
 ```bash
 magnet:?xt=urn:btih:37885FF61B69CECB2FF66D7B891667D8C5F7CF0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ VA - Волна супер хитов 9 50/50 (2011) [MP3|256 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:A54DF9716FF468B985C891923717A60154E3CDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ VA - The World Of Electro (2011) [MP3|128 kbps]<Club | Electro | Dance>
 ```bash
 magnet:?xt=urn:btih:7280CFA05233EA5BEF80CE90F1E755D03C4F2757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ VA - 200 хитов студии Союз 2 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:CD862830F3B8867EE18B839EE2201956532A709C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89626D872E35DCBA425617505351307AF2279158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F74BDA563040129840919608B31FCA23E10BF8D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ VA - Лучшая 100ка: Главная дискотека осени 6 (2011)
 ```bash
 magnet:?xt=urn:btih:94C1B382B818F59CE9D1F39EFD5D051B6935BFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:717849F950123292535E0425445E5EF9DBDA26F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ VA - Лучшая 200-КА Хит FM (2011) [MP3|128 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:E683C8004675E835CDBAB3957B55410C65D036EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ VA - XXXL Максимальный размер удовольствия Осе�
 ```bash
 magnet:?xt=urn:btih:89BCE9DF6626CB8077A2F1E5282A077089985818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +433,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:AFE9C5E2D4573448E3AB51615803FD140D49B329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +467,7 @@ VA - Relax 30  (2011) [MP3|320 kbps]<easy listening | relax>
 ```bash
 magnet:?xt=urn:btih:2183448FDBBFF9F8807F1432EBB77B4E939D09B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +501,7 @@ VA - Звездный бум осенний (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:CEE7B9AAD93DC88D9F8639B16CCADB2F1A3E273D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6A4EAA39F8A68621972891DF9E12630E316CA48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9078F9E3110B92C4811E1A0F2E1C9F9CAF6E08C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +613,7 @@ VA - Хиты Осени Авторадио №17 (2011) [MP3|256 kbps]<Pop | Da
 ```bash
 magnet:?xt=urn:btih:6E90239038796FE19EEC8B3B8FEEE2E51B1636BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ VA - New REMIX (2011) [MP3|320 kbps]<Club, Club House>
 ```bash
 magnet:?xt=urn:btih:D334E76226D501A73F257580DC5B4F3C9808D47B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +673,7 @@ VA - Electro & Dubstep Juice Music (05.10.2011) [MP3|320 kbps]<Dub, Break, Progr
 ```bash
 magnet:?xt=urn:btih:D344513AFC56E8EB54A74FFEDCDDC1EEA79322A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F133763A3FFF5596607F8FC5F52A469EE0D97136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +725,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EF5E278556DCC499B80C8A421822C4C84DB2BEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D98F7EFB44AC20BFA7A1D362FEA6E04A21BB89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +784,7 @@ VA - Super хит осенний 51 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:4E391C71D2F108BA758882A1019054238DC0E535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Power Station - 2 Albums (1985, 1996) [MP3|320 Kbps] <Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:66020685CBE213AB07FE77D3E84353C17E5845F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anaal Nathrakh - A New Kind Of Horror (2018) [MP3|320 Kbps] <Industrial Black Me
 ```bash
 magnet:?xt=urn:btih:72E06A4C746889762622CDB48DE29127593C1316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Riverside - Wasteland (2018) Special Edition [FLAC|Lossless|tracks + .cue] <Prog
 ```bash
 magnet:?xt=urn:btih:80D1F4848B54FB695A3378D65D43F64FB928F58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rod Stewart - Blood Red Roses (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:492155FFC9912222A15583E847C1D36EB616817E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Hardkiss - Залізна ластівка (2018) [MP3|320 kbps] <Alternativ
 ```bash
 magnet:?xt=urn:btih:28FBBD757CE4837E6D950056A6FF21598C10FF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Led Zeppelin - Led Zeppelin x Led Zeppelin (2018) Remastered [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:59993C72D651D92A5EC8B1D1B85AC25A2425D507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

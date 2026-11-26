@@ -28,8 +28,7 @@ Anja McCloskey - Quincy Who Waits (2014) [MP3|320 кб/с]<Indie Folk, Alternati
 ```bash
 magnet:?xt=urn:btih:3A88704B53EFDD73C250C6EDEDDADE5A6F9C13BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Capa - The Droves (2014) EP [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:7618C90A1D36867625DCA348C881C18AFCBEFE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ I.Witness - Youth (2014) [MP3|320 кб/с]<Emotional Hardcore, Melodic Hardcore,
 ```bash
 magnet:?xt=urn:btih:A1A85F8C2384AC0B153FB930D2C442F835DE7B1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Manolo Badrena - Manolo (2002) [APE|Lossless]<Fusion, Latin Jazz>
 ```bash
 magnet:?xt=urn:btih:2B64A1429ACE8B5A1CBD99F0B1410B6CA63BEA3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Panzer - Salvese Quien Pueda (1983) [APE|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:24D35A6C9B60EB89A8E878BF67EBC2BCD38B1F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +211,7 @@ Marbin - Breaking the Cycle Digipak (2011) [FLAC|Lossless]<Contemporary Jazz, Fu
 ```bash
 magnet:?xt=urn:btih:C80D6B53281965E2ADEAFA1E8D1E3F237EF45DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Daughters Of The Sun - Ride To Die (2014) [MP3|320 кб/с]<Psychedelic Rock, Ne
 ```bash
 magnet:?xt=urn:btih:09349E5AC514CEB0B43954D1EF04DB66627648B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ Gob - Apt.13 (2014) Deluxe Edition [MP3|320 кб/с]<Punk>
 ```bash
 magnet:?xt=urn:btih:26216603292166F243C2D055EF52AE035DFAE507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ Reverend Bizarre - Death Is Glory... Now (2009) 2CD [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:763C89E550F19D1BCE8AE1825065E96D4B60B64E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ Blogo собрал возможности для мощного решения �
 ```bash
 magnet:?xt=urn:btih:07EA4C43B5EF51F1E4595EDAA5C9A18B848F8B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ FileZilla - программа, предназначенная для загру
 ```bash
 magnet:?xt=urn:btih:357C180AE20B4DB08D18B72385EFF480D90AAE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DAAB443D3214FE5402C76E273FE8505F330972F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ Agrypnie - Aetas Cineris (2013) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:9408B2CC64CB4FB6CA10A0E69DB19E3FA391777A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:488045CB4718387F74A84CA571E25503058E5325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ Russian Circles - Enter (2006) [FLAC|Lossless]<Instrumental Post Rock / Metal>
 ```bash
 magnet:?xt=urn:btih:8DBE8EE9247E13C39F7701E72F2B369D017EF71A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B78472CBDC512439C25B447BD8B7D45EFEE9600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ Anodyne - IV (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Breaks>
 ```bash
 magnet:?xt=urn:btih:8494204094739A3AD79A533958508F2B9B2D76A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ Russian Circles - Empros (2011) [FLAC|Lossless]<Instrumental Post Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:C164DBAE7E8B3C013C7B50A336CD59E0C5A0F64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ Science Uncovered brings together renowned scientists from around the globe to e
 ```bash
 magnet:?xt=urn:btih:E5CD9F2E0D5635E6082F4BA9622BC32704575518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3FB6B55DF6E9B1A9B8FF965E3061325D5BE28097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +643,7 @@ VA - Chill Me - Summer (2014) [MP3|320 кб/с]<Deep House, Chillout>
 ```bash
 magnet:?xt=urn:btih:D3283888554B2A0B8CC894E6362157BD444CC144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8779956BB1561B703D8FB4F9A1118AFA98F9366F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +700,7 @@ MikTek - Lost | Found : Miktek Archives (2014) [FLAC|Lossless|WEB-DL]<IDM, Downt
 ```bash
 magnet:?xt=urn:btih:C76D43620F5562E760C08C220923555E894A9930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ Age Of Artemis - The Waking Hour (2014) Japan [FLAC|Lossless]<Progressive / Powe
 ```bash
 magnet:?xt=urn:btih:31F13B5923EAD9D16B10A529F79832B0D458C656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +768,7 @@ Rebellion - Sagas of Iceland - The History of the Vikings - Volume I (2005) [FLA
 ```bash
 magnet:?xt=urn:btih:B60365E456056E78615C5D5A703CE5CFD87806E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

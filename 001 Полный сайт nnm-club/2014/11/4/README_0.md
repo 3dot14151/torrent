@@ -21,8 +21,7 @@ VA - Alterportal HITS 14 Vol. 74 - October (2014) [MP3|128-320 кб/с]<Alternat
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Stryvigor - Забуте Віками (Forgotten by Ages) (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:28C2F1AAD3B5AED62BCADEE814D865987550C296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Skalmold - Med Vaettum (2014) [MP3|320 кб/с]<Folk Metal, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:4B52B3136BDAA3C6C0E948CC152E141C8C5FA76D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CF728F9E475D5E68A7BA4C04DC2A909EC10B7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6346AA7EBE19F53517D04C0C3C3FC6EA02B3EB41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Public Enemy - Can't Do Nuttin' For Ya Man (1990) Single [FLAC|Lossless] <Hip Ho
 ```bash
 magnet:?xt=urn:btih:F76DDF51B321D031BC4A5ABFE9F35A303B3D4A41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Fallen Sanctuary - Malevolent Symmetry (2010) [FLAC|Lossless]<Heavy Metal / Powe
 ```bash
 magnet:?xt=urn:btih:0AECE3F5B37FAB38A4413E98AD92678DCE122DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Squelch - Tongue In Cheek (2014) EP [MP3|320 кб/с]<GlitchHop>
 ```bash
 magnet:?xt=urn:btih:2E405FB8EEFE0B75E6BFB2088660C99F9A0B2E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Kenny Wheeler, Chris Potter, John Taylor, Dave Holland - What Now? (2005) [FLAC|
 ```bash
 magnet:?xt=urn:btih:F6C750F0746A2F6BF84E2758635CA2C22CCC3FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ Displacer - Electric Dreams (2014) [FLAC|Lossless|WEB-DL]<IDM, Downtempo>
 ```bash
 magnet:?xt=urn:btih:D9EA25D3914BA4CBF7E1091B7234A1B31C9422F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A077EFA765C30C167D5179F22B71B6F85CB86BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD3E350E73092A70AA6CBFF20E3D1C82EE4A64C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CDA6F01A911FAC63581113571B81AEA0E6FC13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +398,7 @@ The Smashing Pumpkins - Being Beige (2014) Single  [MP3|320 кб/с]<Alternative
 ```bash
 magnet:?xt=urn:btih:8F0DDC85AE60C246615E65C8BC3E64E6FC118698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ Dense - New Speak (2014) [FLAC|Lossless|WEB-DL] <Ambient, Downtempo, Progressive
 ```bash
 magnet:?xt=urn:btih:D21FE43DC2CF01D7EE323391D7A4A0EA89A8B7A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +466,7 @@ Mlada Fronta - Polygon (2014) [FLAC|Lossless|WEB-DL]<Electro, Industrial, Techno
 ```bash
 magnet:?xt=urn:btih:68E0B45CE84AFB7B295771B6DC522DCC9A4AD86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ VA - Light Music Bass 48 (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:A7CD84012BF8F78F8517238CD1BC21DA71E15B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A32849B679A687B2A3527D11DDAD190339A15EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ VA - Discology, Vol. 2 (2014) [MP3|320 кб/с]<House, Deep House, Soulful House
 ```bash
 magnet:?xt=urn:btih:82D187CA957F8190EB7CC455B429549783299881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ Fatal Opera - Fatal Opera (1995) [APE|Lossless]<Technical Thrash / Speed Metal>
 ```bash
 magnet:?xt=urn:btih:EA8E1064CB06A0A9BB1B4E136F30B8D0B2D6F42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +623,7 @@ Public Enemy - Greatest Misses (1992) [FLAC|Lossless] <Hip Hop, Conscious, Hardc
 ```bash
 magnet:?xt=urn:btih:A571D9A6739101466C3EB3DBCCE044A845762100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:886AB573E31118B8F1FE10E04D4259FDF11777FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ VA - Light Music Bass 47 (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:C16723A47F5490B617E34CF9501EDE12CD4E064B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +714,7 @@ VA - Ibiza to Brasil (2014) [MP3|320 кб/с]<House, Minimal, Tech, Deep House, 
 ```bash
 magnet:?xt=urn:btih:2DE07C49E7EB09666C1098C3C7753C6AD13257A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B58046B971CEBC06F86B51B95B34061156252E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90CBBD3C1A1A5594F1E50A843F9F1A63DF5CA52C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ VA - Who Are You (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 ```bash
 magnet:?xt=urn:btih:01CD1442ABC1C33A03FBE2B469C26CDD6BFA1747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Disfiguring The Goddess - Sleeper (2012) [MP3|320 кб/с]<Brutal Death>
 ```bash
 magnet:?xt=urn:btih:FC5D75A4BC486C7FB1039939EA13657A391D554A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Клубные Новинки Vol.69 from AGR (2012) [MP3|320 кб/с]<Club
 ```bash
 magnet:?xt=urn:btih:A8DB41BF2A42B408C24D8412CBE33EB98F4BC388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Arc Of Ascent - The Higher Key (2012) [MP3|256 кб/с]<Stoner Doom>
 ```bash
 magnet:?xt=urn:btih:5D8ABD82F89DD03F44BB2A5EA3FDDB7A07B6B7A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:983B45558B5D8D53245088FC63A3C4EF9DD056E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BE8F7E6F8A6178DA1A27724535638ED7B06E301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D7A5DF648FCBC64633F69C5B62C17CAE49E6A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ VA - Gold Disco 50+50 (2012) [MP3|256 кб/с]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:DBDF7F4B88F0AE50D3600E069FB522D4A25D8E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ Moss - Ornaments (2012) [MP3|320 кб/с]<Indie, Pop>
 ```bash
 magnet:?xt=urn:btih:0A70970E12AD1CA8F69BAA169940B625D6A25F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31AA94A88FBF3B6F21C18AE8727FE4FF3D81BD9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7B5224B26EA6CB16965A8BAE70E2A9C526EB0DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC94934A1532243EB7D7D1EB1BC821C180F3ABEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4F6E3A642902DD1796EB711EDACBFEC4DCF7250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC216DCD5A7DF26BCE0655E2B23AAB7C43898C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ VA - Солнечный заряд энергии (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:9266FB9349E2B7D4EDF892DA1538E153D2E1783F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76879EFDB0191403E4AD4B65F884FEF6BC1203B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ Einherjer - Norron (2011) [MP3|320 кб/с]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:4677FE2515D140937802020855C09C1CA519B461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +506,7 @@ CD1: mixed by Maor Levi
 ```bash
 magnet:?xt=urn:btih:158B2C7B9D01CEE6BE7CC6A6DC69D077EE720C5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ VA - Танцевальная Сенсация Русский выпуск (2012
 ```bash
 magnet:?xt=urn:btih:73275F1E5B67932D34F26A535313312AF12B1250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +574,7 @@ VA - Новая клубная дискотека (2012) [MP3|192-256 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:05E75623A951085BF6F1FF1867ACFE7D2E068ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ VA - Top Club Hits Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:7351DCE890F2CE865F00739C8B4DB0CF75F755FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +633,7 @@ Thunderbird - простая и удобная бесплатная програ
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +667,7 @@ Shotgun Express - Gypsy Blues (2012) [MP3|320 кб/с]<Sleaze Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E15B17381122EDEA246CCE70DE28B3034090FDCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +701,7 @@ Hanging Doll - The Sacred and Profane (2012) [MP3|320 кб/с]<Symphonic / Dark 
 ```bash
 magnet:?xt=urn:btih:43F3380D92606279C26AF82E6CFEA0D011D5C3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ DJ Kocmoc - Spring Emotion 2012 (26.04.2012) [MP3|320 кб/с]<Electro House, Pr
 ```bash
 magnet:?xt=urn:btih:9E6879594A78BC7DEEBBE87361034F2FACFE37D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:159C6CFAC3A30EFE01D2969247534F7BE84389F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

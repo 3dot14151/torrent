@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:72A73997C243A1662F4327F72A401F74A1A2C43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B54AA8C72910ED6D3A0C15824124027D6FB7E3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Offthesky & Pleq - A Thousand Fields (2015) [MP3|320 кб/с]<Ambient, Experimen
 ```bash
 magnet:?xt=urn:btih:8EA2FDF6D0019697C8D714243099C0F48BEED9D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A14247B5733D4CEC18D27708F8879D60352E5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78CD3EF75779C96239481E4FA8236A01D77C4920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3693B2A1751337BB3E6FB1796D764E0E965E26C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Achren - The Forgotten King (2011) [MP3|256 кб/с]<Black Metal, Death Metal, T
 ```bash
 magnet:?xt=urn:btih:BD4FAFF60CE26E28712947D44F8BBE4251045CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B62F3B99ADB19C1C9E78756542BFC6384172B4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ VA - Discover Digital Sessions 001 (Mixed By Rich Smith) (2015) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:F58F9952E7617A9300DB48B4F1631B74E3CD9AE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Masada - Hei (1995) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
 ```bash
 magnet:?xt=urn:btih:BD7A1BB2C16415DA098AF66E236B6C4F5130D313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Nadiwrath - Nihilistic Stench (2011) [MP3|320 кб/с]<Black Metal, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:96967CAC8B1B985FC3362FFFC732E2826C962267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ VA - Dark Sessions Radio 001 (Mixed By Oberon) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:ABC7D87B99B4E93D179C58404DC82DED30AE4B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17734E94206333255E78D0788C5FED155684A3DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Psycroptic - Psycroptic (2015) [MP3|320 кб/с]<Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:E7AE279A617DFF7CCE6E989117E1D41ECF655899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Anguished - Cold (2010) [MP3|320 кб/с]<Raw Black Metal>
 ```bash
 magnet:?xt=urn:btih:5A869BC114274B698CF4888F357CEF56B3D673AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ VA - Dark Sessions Radio 002 (Mixed By Oberon) (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:21B8B53794C779F75800C3E4A8B7F6CBADA9BB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Nukua - Cleanroom (2015) [FLAC|Lossless|WEB-DL]<IDM, Broken Beat, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F5745A687B3D3D46991F3F3D24B9BE6BCF83EB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Arcane - Known/Learned (2015) 2CD [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:758F1D17836B160D2CD32CE56B7555919DA22D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1844A16E12B50609B3203AC3C209D35C9665850D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Lee Morgan - Delightfulee (2014) [FLAC|Lossless]<Jazz, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:D52E643AE07A2FF6EC66BE7641457FAD146BB2FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +573,7 @@ Dew-Scented - Incinerate (2007) [FLAC|Lossless]<Thrash Metal/Death Metal>
 ```bash
 magnet:?xt=urn:btih:9FE7CB84314BEA7E319CD5373C8D838413B7D302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ Little River Band - I Dream Alone (1997) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:198B2929AC87042A250AD0F4055D234021AD210A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ Arcane - Known/Learned (2015) 2CD [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:ABC3E695E32CCC503AC8E2616BCCD79DCEDEFDDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ Rene Lavice – The Calling / Freudian (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:18793752A708DE89CA4526E9CEBA0F2685301FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA66BC5885F446252A5797B5E4C2A64F11EC8C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58B96DA05B28BCA078F8EA13C967A71AF51C866F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

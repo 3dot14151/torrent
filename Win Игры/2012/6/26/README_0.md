@@ -19,8 +19,7 @@ Golden Trails 3: The Guardian's Creed (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:0AC574B8F79A9DD7E18B2D3F8E5D59A54954C62D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Depth Hunter - симулятор подводной охоты, позволя�
 ```bash
 magnet:?xt=urn:btih:E96AE98E55F23F642E12E90151FC58A74084C881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Batman Anthology (3D) / Batman Антология (3D) [Ru] (L) 2002 - 2011
 ```bash
 magnet:?xt=urn:btih:6AC3D6495E8474215671EB6E4DE137EFB1EA6F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

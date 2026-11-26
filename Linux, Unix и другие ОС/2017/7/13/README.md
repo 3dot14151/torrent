@@ -20,8 +20,7 @@ Komodo Edit унаследовал много свойств от коммерч
 ```bash
 magnet:?xt=urn:btih:C5864F42E1681260FD36E5C5F2EABF4CA717E0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

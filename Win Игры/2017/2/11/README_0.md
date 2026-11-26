@@ -19,8 +19,7 @@ Enter the Gungeon - игра жанра “пулевая завеса в под
 ```bash
 magnet:?xt=urn:btih:73D259FBE1BFB88EAAD77C2F10A5E03B56E8849B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Solus Project (2016) [Ru/Multi] (1.031) License GOG
 ```bash
 magnet:?xt=urn:btih:6C3C03F6658DF121A2E5B8F28DCB63C847DBCE40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Infested Planet – стратегия, в которой игроку пред�
 ```bash
 magnet:?xt=urn:btih:C22CF897A775E5E1079D6A604A2935EF30440F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chronicon - приключенческий ролевой слешер, собы
 ```bash
 magnet:?xt=urn:btih:D406EBCB6FEB08B09EDF9C9F27E9978598B464F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.0.2-10547+185658) Repack Let'sРlay [Bu
 ```bash
 magnet:?xt=urn:btih:D17587515E51058D0A80DE8CAB4E33A37720EDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.3.1/dlc) Repack Let'sРlay [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:20AD9D49262CA46B5AF8E3AD3A71BFB4BF57B446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Len's Island (2021) [Ru/Multi] (1.1.43/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:81BDB3E99F2923B3B6C8900E0B0C7CCF0CECF82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dead Space (2023) [Ru/En] (Build 10602756/dlc) Repack Decepticon [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:D73FA44C0A39CF102C4888CE2C8012AE68906ACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Skulker - медитативное приключение, геймплей ко
 ```bash
 magnet:?xt=urn:btih:DCE21D9938CCF7750B578B3F6FC4F2D4B8BDE255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Quarantine Zone: The Last Check - симулятор сотрудника кар
 ```bash
 magnet:?xt=urn:btih:490F45389DA7A803E0A6C13718ABFE46A9599E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

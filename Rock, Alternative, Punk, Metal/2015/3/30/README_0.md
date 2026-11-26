@@ -23,8 +23,7 @@ Edhellen - Sombra y Anhelo (2013) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:C2C747D46B54A7495FF4ECB055BECC345BD0ECF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Tesa - Ghost (2015) [MP3|320 кб/с]<Post Rock, Post Metal, Progressive Metal, 
 ```bash
 magnet:?xt=urn:btih:044335ADB8B37BD1D9E0CA03377B697DDCE72D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Rise Above Dead - Heavy Gravity (2015) [MP3|320 кб/с]<Post Metal, Sludge, Ins
 ```bash
 magnet:?xt=urn:btih:27C62828E25A898362E4345E50B8E272EFFB2878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Magic Kingdom - Savage Requiem (2015) [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:F0CC3CB30A6322A47D5A4E2EEF70055C0BBC12A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Imelda May - This Is Rockabilly (2015) [MP3|320 кб/с]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:6CDFB5E7F67B05D99078799890784761FD7F2086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

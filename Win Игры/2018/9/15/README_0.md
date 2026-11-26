@@ -19,8 +19,7 @@ Victory at Sea Pacific - захватывающая стратегия в реа
 ```bash
 magnet:?xt=urn:btih:A507DC3C2EEA13CAC7E44A6801DA1F497F717581
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Burden (2018) [Ru/En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C8E936B877BA4347D3595024F66DADF685105DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

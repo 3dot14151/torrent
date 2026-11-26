@@ -19,8 +19,7 @@ Alchemy Factory - игра об автоматизации производст�
 ```bash
 magnet:?xt=urn:btih:E5FAA74A6C266BCB7DC4A7601C6785A44FCCB438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ex Machina: Arcade - аркадный гоночный экшен в поста�
 ```bash
 magnet:?xt=urn:btih:AA472E5D4BDBB17D6EDD8A825FDF5D106025D6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

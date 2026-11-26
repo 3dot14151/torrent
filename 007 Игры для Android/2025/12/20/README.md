@@ -19,8 +19,7 @@ Jigsawscapes® - Пазлы v5.0.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D0B3C27CB7C7A5C08A64F62B1E83C440F4BF454A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.4 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EFF926D7AD8D0822EC2C2EBA7541499B27413AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AC3C1D0BDD61B5EB1EF9465EDA74FE7B80533C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Bubble Shooter Viking Pop v7.12.2.38462 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7F337023FC26A38278DBED5138900C45D8523192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

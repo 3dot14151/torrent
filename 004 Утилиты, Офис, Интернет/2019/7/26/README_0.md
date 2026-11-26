@@ -19,8 +19,7 @@ Directory Backuper - это простая в обращении програм�
 ```bash
 magnet:?xt=urn:btih:3EFA510E4BD29602790C3FE8A79AD3D560930F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

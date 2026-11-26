@@ -19,8 +19,7 @@ Ralf Hacker | Active Directory глазами хакера (2021) [PDF]
 ```bash
 magnet:?xt=urn:btih:7140DDF98974C7D3C6C9699A6023AC0BA1354B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

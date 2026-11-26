@@ -19,8 +19,7 @@ Kneusel, Ronald T. | How AI Works: From Sorcery to Science (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:BBCA4485C886C40A9A722E20173E63B8F585BAF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

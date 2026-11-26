@@ -19,8 +19,7 @@ Haunted Hotel 10: The X Collector's Edition / Проклятый отель 10. 
 ```bash
 magnet:?xt=urn:btih:191094EC0348A22FB282EDCB1DFB4EFAEB2204DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phantasmat 5: Behind the Mask / Фантазмат 5: Под маской (2015)
 ```bash
 magnet:?xt=urn:btih:BF59A7D00D2C48A8AE35214750A8098AA5FDA2D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Little Acre (2016) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:5E0F90271DD395C9461D8A5E88773B97C2F74E20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ty the Tasmanian Tiger – 3-мерный платформер, похожий �
 ```bash
 magnet:?xt=urn:btih:F3935CF608B760E37F187B727455657FE1D91629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Adam Wolfe: Blood of Eternity / Adam Wolfe: Кровь вечности (2016) [
 ```bash
 magnet:?xt=urn:btih:1D7D711D4775F2185D9256761F382F4B8649C58D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ BIOS (2016) [Ru/Multi] (0.32) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AE1C19E95C1008EBD743CB577BB19DB472F15D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

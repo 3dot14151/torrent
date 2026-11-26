@@ -19,8 +19,7 @@ The Veil of Mystery: Seven Little Gnomes [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:6537441CEE07A8AB9F0A83350883C632CFD92F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Silent Scream II: The Bride [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:140018DDD62E683FECC89E3F7C7BC8EC3C3675C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Keepers 2: The Order's Last Secret Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:D455328EFCE838D26161689D08733B6D1F505AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nikopol: Secrets of The Immortals [En/Multi5] (L) 2008 | PROPHET
 ```bash
 magnet:?xt=urn:btih:02D401AA0A69B6B7AEC9DE67DE32A8693046E62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

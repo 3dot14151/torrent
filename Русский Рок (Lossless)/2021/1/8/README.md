@@ -22,8 +22,7 @@ Season - Sangvis (2021) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Meta
 ```bash
 magnet:?xt=urn:btih:BF89032DBD4274FFF3DA753119D23C74AB2D25F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Adobe InDesign CS5 Professional. Oфициальный учебный курс [
 ```bash
 magnet:?xt=urn:btih:FD3A10B8CFEF7C585B8A787B7CC31273DDF91C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Adobe | Adobe Illustrator CS5. Официальный учебный курс [2
 ```bash
 magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A7F9982C91F6339A7B458B67805299196AFFABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

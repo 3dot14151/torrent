@@ -19,8 +19,7 @@ Chariot – платформер для одного или пары игрок�
 ```bash
 magnet:?xt=urn:btih:54D364E2252057ABE33FF91FCA02A18D21E5557F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wheely (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E03496933710BCDB14CD6A6D61CC8646BF42FC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Worms Ultimate Mayhem / Worms: Убойные разборки (2011) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:959744F4F0478CC8B4954582A95458650F253899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kingdom: New Lands, расширенное и дополненное издан�
 ```bash
 magnet:?xt=urn:btih:F9C4B91BA0E4E6197E6032D425555CA10F8606A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Camper Jumper Simulator - это сумасшедшая игра, где вам 
 ```bash
 magnet:?xt=urn:btih:F8F604A00D09E8B71BB34987FE428C92C1EEED2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

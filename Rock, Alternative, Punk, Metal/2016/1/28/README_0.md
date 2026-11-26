@@ -22,8 +22,7 @@ The Casualties - Underground Army (1998) [MP3|320 кб/с] <Rock, Punk, Punk Roc
 ```bash
 magnet:?xt=urn:btih:4C88CC24D007EA4B5A58B2C0F42617D2677626CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Casualties - Stay Out Of Order (2000 [MP3|320 кб/с] <Rock, Punk, Punk Roc
 ```bash
 magnet:?xt=urn:btih:6BF74348FD3C06BE643402798BA4568F2152E0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Casualties - On The Front Line (2004) [MP3|320 кб/с] <Rock, Punk, Punk Ro
 ```bash
 magnet:?xt=urn:btih:6B18A9EDB5C456119BFCE5664487612C41B89614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Casualties - Under Attack (2006) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:9968205414AA0E2635A2D8742DD6BAC93E5F2C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Casualties - We Are All We Have (2009) [MP3|320 кб/с] <Rock, Punk, Punk R
 ```bash
 magnet:?xt=urn:btih:8592AB6840CE18AD5D75B9B6A189F347C7057EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Casualties -  For the Punx (1997) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:F2BE2AC5E8328DDEF981778C2A275FA0CFF6E27D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Casualties - Die Hards (2001) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:7745355CF6B019B9AD0FA54D167BF03DDCA26903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ C.O.P. UK - No Place For Heaven (2016) [MP3|320 кб/с] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:873E685E3B50DEEE347F0A70ECB352657A6C46E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Orangefall - Orangefall (2016) [MP3|320 кб/с] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BCC67AF028F281F8CC4821A3340B23142A1767EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E08F13448C0E3EFB7608A2DC08D5829014B174D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Casualties - Chaos Sound (2016) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:78E4DF4FE67977D605C860C193F95F6C2926E2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Linkin Park - Underground 15 (2015) [MP3|320 кб/с] <Alternative>
 ```bash
 magnet:?xt=urn:btih:F9A3C40A06E985C2607BC57E503A68F7F790F4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:486B3F7F6A6A7FA44DAF8D1097E1B5FFEFADA7A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Hoshi o ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы 
 ```bash
 magnet:?xt=urn:btih:08E45C2F9E93BADE1A63DA246F7DAABC1731BDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kingdoms of Amalur: Reckoning — это динамичные сражения �
 ```bash
 magnet:?xt=urn:btih:8D9CDCB0859C8E78DDE3A0B20B0E2D75469CD943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Mass Effect 3 будет реагировать на каждое принято
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Sonic & All-Stars Racing Transformed (2013) [Multi] (1.0 upd6/3dlc) SteamRip R.G
 ```bash
 magnet:?xt=urn:btih:23A3864032378B7874ADE8B593AEEFD622C031DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

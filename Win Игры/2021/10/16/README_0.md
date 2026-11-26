@@ -19,8 +19,7 @@ The Amazing American Circus (2021) [Ru/Multi] (50654) License GOG
 ```bash
 magnet:?xt=urn:btih:700CFA02A1E3E0DEF849AD83105DFC6C2CBC385B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mind Scanners (2021) [Ru/Multi] (1.1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:67C95968B364F5E0CB2A93EB0B642FDD5ABD63EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

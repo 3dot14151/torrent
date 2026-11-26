@@ -19,8 +19,7 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 ```bash
 magnet:?xt=urn:btih:358B545EC98D6AE52FBA8C7ED2594C8078755EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phoenix Point - это новая стратегическая игра от с�
 ```bash
 magnet:?xt=urn:btih:01B8211420999A396C9CE8B9529C8572E29DA4EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

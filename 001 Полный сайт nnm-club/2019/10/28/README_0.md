@@ -21,8 +21,7 @@ VA - Miami Hot Trance Party (2019) [MP3|320 Kbps] <Trance, Electro, Progressive>
 ```bash
 magnet:?xt=urn:btih:486624AC9C80AB83FA8B081BC910507DC4806C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E7DD86139D5B6D7447009AAE689274DB32B7AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - Follow The Wind: Live Groove Mix (2019) [MP3|320 Kbps] <Chillout, Lounge, R
 ```bash
 magnet:?xt=urn:btih:498F60A52084454032C067216594D5D0003D3C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ IDK (Daniel Myer) - IDK ONE (2019) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Indust
 ```bash
 magnet:?xt=urn:btih:D6795D4296EF0C8F69AC943D8B6B3102DC4A0654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Sun:Sets 2019 (Selected by Chicane) (2019) [FLAC|Lossless|WEB|tracks] <Prog
 ```bash
 magnet:?xt=urn:btih:C2659645ED7C436D0F794274E778732577B14DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Talla 2XLC - Fascinated (2019) [FLAC|Lossless|WEB|tracks|image] <Trance>
 ```bash
 magnet:?xt=urn:btih:E3D64E273AE83D27C9B3BC739301C481F570160F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Airbourne - Boneshaker (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D539EABC62919FAC25D489196A8A21A70BE4DB4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Watercolor Studio - программа способна имитировать �
 ```bash
 magnet:?xt=urn:btih:46439FB81C690F6BEB2487F3CEA34A2435DB1011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Bauer Media Group — одна из самых успешных и передо�
 ```bash
 magnet:?xt=urn:btih:EB5B38E1C697E2B15D1DB9973B1F1F0B215D2A7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4C2DDC6C11354FB95E27E33E2D0697798F3344F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:6A29A1028F19CB738CFEFF83A9ADD738C560A69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Thomas Lemmer & Andreas Bach - Night Travellers (Remixed) (2019) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:4FDA73E02ACFE50288F45F0876B0C9265D1E5136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ VA - Horizon Of Events: Synth Space Music (2019) [MP3|320 Kbps] <Synthspace, Ele
 ```bash
 magnet:?xt=urn:btih:26B160DD8F83663ABC49E10BA0158CC64215AFA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ AnyMP4 Audio Converter - простой в использовании аудио
 ```bash
 magnet:?xt=urn:btih:DEDABB05A13BC71C590D819AF07B36FE655CD9F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Joe Bonamassa - Live At The Sydney Opera House (2019) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:10C21E38BFC2BB03A0A44F01562EFC3756B5AA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:7F96F5822350D95C5DA7609A9AE7458AB054D950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40CC2475D309B4B5BDD67F45858F2789E9064506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA75EFE1C838ABA9CC7D9BAF9DE17EB0511A35C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ The Keeper of Antiques 2: The Imaginary World / Антиквар 2: В мире 
 ```bash
 magnet:?xt=urn:btih:FF959D0FB1E0BEAD75BF8C25BB61B3AFE00DFE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C044E0DC88A4EADBED2C4351D9CD32E44BE662E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60D7924F70DA211F465F3D02D5C11B641BDBCCC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:414CF2FD27CE82019B274EBB963E4BBFDE6116A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ Union - это звуковой плагин волнового синтезат
 ```bash
 magnet:?xt=urn:btih:561BEB1AFE43927A4C59CBB557C87F09C8CFB6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ Rockets - Wonderland (2019) [FLAC|Lossless|tracks + .cue] <Space Rock, Synth-pop
 ```bash
 magnet:?xt=urn:btih:E23354B584C0671AADEF250B2A78BF27A43B6758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6071316AA51B20425506B369162E4D6AFD68737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:F9DA561ADA033302171F395ACD6A807BED311995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Asemblance: Oversight - это игра-исследование с элемен
 ```bash
 magnet:?xt=urn:btih:956833F9A596551463B5AC77ED72B2D942FCF57C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

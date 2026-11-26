@@ -19,8 +19,7 @@ Redemption Cemetery 10: Embodiment Of Evil / Кладбище искуплени
 ```bash
 magnet:?xt=urn:btih:C4C5020CCA5FD36CE55FD836B00AE3EA4A73B20D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Redemption Cemetery 9: Night Terrors / Кладбище искупления 9: 
 ```bash
 magnet:?xt=urn:btih:18E3940D9918CF5ACCFE608337CDFC259DEA98A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tanks vs Aliens (2017) [Ru/En/Ch] (5.6.1.24) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B695085A9376056A9D60E9243474ED87E218DCD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Microsoft Classic Board Games (2000) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:F528147B82E698D4B6CEFAEDBC25FC380E9FB333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ LAZARETTO - это хоррор-игра от первого лица, посв�
 ```bash
 magnet:?xt=urn:btih:3A3DB3A55FE583460869CDE5235B58B2F0159BBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Full Throttle - это классическое приключение от ле
 ```bash
 magnet:?xt=urn:btih:2C0F1A746CD9BEC19B2AA3381A954C276E083DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ txtpad - это удобный и простой блокнот, который 
 ```bash
 magnet:?xt=urn:btih:63E44535DABA841C4BC737FE80D143F0C936257E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ TonalEnergy Tuner and Metronome подходит не только для про
 ```bash
 magnet:?xt=urn:btih:A2F984F93E068AC1B9FBBA148B7A7CEC025A2942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ chomp SMS - Данное приложение сможет послужить о
 ```bash
 magnet:?xt=urn:btih:8A574E143C84DCD2A2C91AF5BE0214EDF6E14497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Material Status Bar - сделайте строку состояния боле�
 ```bash
 magnet:?xt=urn:btih:FC45F0140AA45839B5F1609710C94055F68D8B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Amber Weather - специально разработана чтобы совм�
 ```bash
 magnet:?xt=urn:btih:92B0F61F268A72EA65B1855B64D6128C16D21065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F8A84E0405E66264004664412EE1EAA2D5D4725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ ReinXeed - Welcome To The Theater (2012) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:AFA4E904084ADD68D7ED19641CF71187B7B93C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Bonfire - Point Blank (2009 Remastered) (1989) [MP3|320 кб/с]<Heavy metal>
 ```bash
 magnet:?xt=urn:btih:A9CA25CFD0B1C268BC43575CFA62DB35D182F867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Butterfly Temple - 3 альбома-1 сингл (2009-2011) [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:5FC2C3DDA878702D751733D1DC324DA9D45A9E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Candlemass - Psalms For The Dead (2012) [MP3|320 кб/с]<Epic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:48EF5685667180329AA857B44BF30C740020E962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Lenny Kravitz - Mama Said [21st Anniversary Deluxe Edition] (2CD) (2012) [MP3|32
 ```bash
 magnet:?xt=urn:btih:2D8E9FD19D9AA09F876CE30C3C446D72289583B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

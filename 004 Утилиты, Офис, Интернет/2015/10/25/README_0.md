@@ -19,8 +19,7 @@ Xpadder — программа для симуляции нажатия клав
 ```bash
 magnet:?xt=urn:btih:55071D8B40C33100CAC966607064C313385CD7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

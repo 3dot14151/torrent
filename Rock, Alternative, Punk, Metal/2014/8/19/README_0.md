@@ -24,8 +24,7 @@ Endocrine Wolf - S/T (2014) [MP3|320 кб/с]<Hardcore, Crust>
 ```bash
 magnet:?xt=urn:btih:F6AFBEFFD4FA96D8B86AFEE7DF81E9C982FD78B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Messes - This Is A Thing (2014) EP [MP3|320 кб/с]<Screamo, Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:57955447D0014F348AD206D65BE083A9D6386235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Purge - An Exercise in the Fundamentals of Unorthodoxy (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:8EE97CDB6652D12FED904150137872E86E213E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ La Mar - Tides (2014) [MP3|320 кб/с]<Post Rock, Post Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:CF48CD653B6040323A46159A96DF3A3B7FAA23F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Trainwreck - Old Departures New Beginnings (2014) [MP3|320 кб/с]<Screamo, Har
 ```bash
 magnet:?xt=urn:btih:77D0D62DA8BC15A7C6ACE35375266DD15BDEC2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Lowhill - Hollow Words EP (2014) [MP3|320 кб/с]<Melodic Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:3FF2E2C42D2E0D35AAFE5E209658C3863D08B157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ Cerce - 2 Альбома (2012) [MP3|320 кб/с]<Powerviolence, Hardcore Punk, 
 ```bash
 magnet:?xt=urn:btih:8347B153956EC090156B5141CA59F8A52D6EE5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ Dignan Porch - Observatory (2014) [MP3|320 кб/с]<Indie Rock, Shoegaze, Psyche
 ```bash
 magnet:?xt=urn:btih:CC38ED559F9DD4E9063EF0A6B62DF4845F8A7616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ Widower - World of Hate (2014) [MP3|320 кб/с]<Melodic Hardcore, Metalcore, Pu
 ```bash
 magnet:?xt=urn:btih:6DF8D37D0C52A7441D5C55A3EBE6CAB309894FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ Wess Meets West - When The Structures Fail Us (2014) [MP3|320 кб/с]<Post Rock
 ```bash
 magnet:?xt=urn:btih:35495BD0351A2C2E1F0F4789D8E1A6C0A1C18AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ Stresscase - 1 Альбом, 1 Split (2011-2013) [MP3|320 кб/с]<Powerviolence
 ```bash
 magnet:?xt=urn:btih:875A881AFECA563AB1465F048C1CD3C00E306007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +371,7 @@ Zeno Morf - Kingdom of Ice (2013) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:32961DEF2DEA5FAEAF55DEF9308E31AC8037D5AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +404,7 @@ Maat - As We Create The Hope From Above (2014) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:8F6B295B8FCB9F5426300BC261CCA8E71540CFC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +438,7 @@ Whipping Princess - Birth of Rage (2014) [MP3|320 кб/с]<Heavy Metal, Hard Roc
 ```bash
 magnet:?xt=urn:btih:8D461FC80CF8B52C40FC2B904CDE75FAFB1A7405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +469,7 @@ Pelican - Arktika - Live From Russia (2014) [MP3|320 кб/с]<Post Rock, Post Me
 ```bash
 magnet:?xt=urn:btih:D08DFE52719AC781387D9AC56282D8727E3B8B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +500,7 @@ Long Distance Calling - Nighthawk (2014) [MP3|320 кб/с]<Post Rock, Progressiv
 ```bash
 magnet:?xt=urn:btih:1ABB144C2FFA1FDEC06F0C4DC2F7CD401AB686AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +534,7 @@ The GX Project - Sinner (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:161D8EC4414935B72B65B4FF2526EBF9AF772C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +567,7 @@ Dire Straits - Brothers In Arms (1985)  Japan LTD Mini LP SHM-CD /2014, Warner B
 ```bash
 magnet:?xt=urn:btih:3C3C44D9539935221F5493293D1F114773898383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

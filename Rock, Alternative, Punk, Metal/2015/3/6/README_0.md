@@ -23,8 +23,7 @@ The Lemming Ways - The Lemming Ways (2015) [MP3|320 кб/с]<Alternative, Indie 
 ```bash
 magnet:?xt=urn:btih:B0C52852740604A780F34331625E5F579AE83C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Koeter - Caribbean Nights (2015) [MP3|320 кб/с]<Punk, New Wave, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:A5BE2A4B9D10868E7ECAA745619C8ADAA87ED324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ All About Kane - Seasons (2015) [MP3|320 кб/с]<Alternative/ Indie Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:C964E0459F441D54F3C56F9CE5BFCD4ADC49B385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Black Moon Secret - Another World (2014) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:9C1949D6529D1E75F505A417E28B5657200B65A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Company Of Wolves - Company Of Wolves (1990) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FAA6508F4294428808A5E14838B8E08B5D1DA421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Sons Of Texas - Baptized In The Rio Grande (2015) [MP3|320 кб/с]<Alternative/
 ```bash
 magnet:?xt=urn:btih:5280AA938576041D4BEAD45F1325899B204DF2D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Europe - Last Look at Eden (2009) Unofficial Release [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6542021D2F73094DC01E7488FF6E5FF74F44FD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B09FE5F16AD2EF2F846689B42B50339E81F7042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:33C8F2E68D77AD8714022B6A6D1C987828E50CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vivaldi 7.8.3925.66 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E14E064861C1AE10137960F39A0A15E2B3440E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MediaHuman YouTube Downloader 3.9.18 (1002) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:54FFA3E0999A1EBFC0EE8DE9DC53E65DB3BF3FF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:E7F2FCE978FD6C7924DC3D43539C2352CB4EE968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:F2DBE7367577C40BD366FFC12C3876046817DB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:58CD9CDFCECFF8BC4B440014C54E2E463110A99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ CPU Temp 1.9.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:227878BC07DBD63EDDF096AD428B1C9904386076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Opera One 127.0.5778.64 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:325010424FBD91D3924AADE8CFC735EB7E732642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

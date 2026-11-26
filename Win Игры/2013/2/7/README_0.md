@@ -20,8 +20,7 @@ Realms of Ancient War перенесет игроков на разоренны�
 ```bash
 magnet:?xt=urn:btih:7AD8316F45D29C15231F5B77DE7FA1234E7C56D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Lucius [Ru/En/Multi7] (L) 2012 | PROPHET
 ```bash
 magnet:?xt=urn:btih:6FC4A01C2E5AEF91183779C996911AE466CB1945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Deadlight [Ru/En/Multi7] (L) 2012 | PROPHET
 ```bash
 magnet:?xt=urn:btih:84FCFB25E0937E955383D2798F3FDDD76303C8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Man of Prey / Мародер [En] (L) 2009 | PROPHET
 ```bash
 magnet:?xt=urn:btih:436A2309B2E5A8D8A9AED9886098D6CC082C9B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

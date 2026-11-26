@@ -19,8 +19,7 @@ Endless Fables 4: Shadow Within (2019) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:8B0157530576E63CD959509A51A344CB2F20634A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pineview Drive — хоррор первого лица, действие кот
 ```bash
 magnet:?xt=urn:btih:B2CF949202054BFE306DF90FEE7BAF46DE4FEB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) License GOG
 ```bash
 magnet:?xt=urn:btih:3B56F1E56698F6FE8BE2937341B5D2646E6FF7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sonic Mania (2017) [Multi] (1.06.0503/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:6B0237BA8A6C83E65260E802FDA158D949C7194A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sins of a Solar Empire: Rebellion – первое самостоятельно�
 ```bash
 magnet:?xt=urn:btih:6AD70AABDD9E42988D4B484673551AD616133E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Beholder 2 (2018) [Ru/En/Ch] (Upd20190129) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:13352AFC30411741010339A9B3C9A49CCA2DDBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Attack on Titan 2 (2018) [Multi] (1.4.0.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:438CC787E3A3F78ACDB6A62D18835A63C57915C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Endless Space 2 (2017) [Ru/Multi] (1.4.2 S5/dlc) Repack R.G. Механики [D
 ```bash
 magnet:?xt=urn:btih:760D64BBDDEFFC2BE6D9BBA2BABF34B9A1FC812C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ City of Brass (2018) [Ru/Multi] (1.5.1/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:1C4D5B47E808B5A40E76823CF3E6616276D9A9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ BANNERMEN (2019) [Ru/Multi] (1.1) License RELOADED
 ```bash
 magnet:?xt=urn:btih:724DF2865FCFE0413AB538EE8021E9B26C6DD549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

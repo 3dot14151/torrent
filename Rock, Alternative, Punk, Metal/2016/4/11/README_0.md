@@ -22,8 +22,7 @@ Gary Hoey - Bug Alley (1996) series Rock Guitar Heroes, Unofficial Release [APE|
 ```bash
 magnet:?xt=urn:btih:72939C9A9F9197678276E8BD08BAD87636C812D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wax & Boogie - Come With Me (2016) [MP3|320 кб/с] <Rock&Roll, Boogie, Rockin'
 ```bash
 magnet:?xt=urn:btih:1D3431B1A18E8F9F80EEF5414E3358E328157ABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jeff Beck - History Of Rock 70-80's (1995) [APE|Lossless|image + .cue] <Rock, Bl
 ```bash
 magnet:?xt=urn:btih:F48102EA8484944595BB466C95583D1FDF2C7B35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00B8EDE3355E7349A8111216678E1F5D93DA0BE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ iamthemorning - Lighthouse (2016) [MP3|320 кб/с] <Neoclassical, Acoustic Prog
 ```bash
 magnet:?xt=urn:btih:0F562A094278556139FA20A2ECE7F2A17BF4A1D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

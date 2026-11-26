@@ -19,8 +19,7 @@ Rise of Industry (2019) [Ru/Multi] (1.0.0.0205A) License CODEX
 ```bash
 magnet:?xt=urn:btih:0B0697D5B9C531AA5F8A04735B1895B0F7C34EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hegemony III: Clash of the Ancients (2015) [En] (3.3.6.4/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3FF8CB0E8651DDBD044EE18724E5F50D8660B4DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tower of Time — удивительная игра со множеством п
 ```bash
 magnet:?xt=urn:btih:1341EE834E6944B972FBA66D3B0F8C00B214FB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Vanishing of Ethan Carter — это мистическая адвенчур
 ```bash
 magnet:?xt=urn:btih:F59E22F2C56DFED7CD29DF8A76945DB560C96D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

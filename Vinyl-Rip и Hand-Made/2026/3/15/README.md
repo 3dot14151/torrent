@@ -22,8 +22,7 @@ A3 Csardas(   Читать дальше...   )Жанр: Classical, RomanticПр�
 ```bash
 magnet:?xt=urn:btih:93634F230E038A4D13E88D04713564CB8FA6F9BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

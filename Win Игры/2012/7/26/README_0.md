@@ -19,8 +19,7 @@ Mystery Valley / Долина тайн (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:8B6FBF67401D0F7FC75B635B9FA03F2F2AE156CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

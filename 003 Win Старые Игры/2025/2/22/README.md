@@ -19,8 +19,7 @@ Dino Crisis 2 (2002) [Multi] (1.0hf2) License GOG
 ```bash
 magnet:?xt=urn:btih:E9851D25636A140856A8D33151C0E1C9D485CEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dino Crisis (2000) [Multi] (1.0hf2) License GOG
 ```bash
 magnet:?xt=urn:btih:DBA80C2870927A63E70F0DCB680C7DB7705682F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

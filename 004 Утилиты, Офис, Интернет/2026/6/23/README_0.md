@@ -19,8 +19,7 @@ CoolUtils Total Excel Converter 7.1.0.129 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7EB5C7B74019C3E6BDD8FF07D3DC9EF7457A3BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

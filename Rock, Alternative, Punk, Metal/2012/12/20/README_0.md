@@ -28,8 +28,7 @@ Eidon - Crystalight (2012) [MP3|320 кб/с]<Symphonic / Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:315CF789F529C5E5DAE6BB2FC763422E9C8CE7BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Angels & Airwaves - Stomping the Phantom Brake Pedal (EP) (2012) 2CD [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:D156D0D08F9015028EAD680E790260D59D89ECF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Vanilla Sky - The Band Not the Movie (2012) [MP3|320 кб/с]<Pop Punk>
 ```bash
 magnet:?xt=urn:btih:DD99BE11964A485D874C7D6F181B2AC48D942699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Saturnus - Saturn In Ascension (2012) [FLAC|Lossless]<Melodic Metal, Doom/Death 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ Blink-182 - Dogs Eating Dogs [EP] (2012) [MP3|320 кб/с]<Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:55BA808E3B54891EBC8FBE1A5D251E2241C91F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Blue Stahli - Antisleep Vol. 03 (2012) [MP3|320 кб/с]<Alternative / Industria
 ```bash
 magnet:?xt=urn:btih:A20B886D9054810EBD0374260BDC3DFC0CC923B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Pantera - Vulgar Display Of Power (1992) 20th Anniversary Edition / Rhino, 2012/
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

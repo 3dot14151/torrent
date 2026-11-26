@@ -19,8 +19,7 @@ Antique Mysteries: Secrets of Howards Mansion (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:4A63464CD0E6127AC51C862038C75374051263BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Runaway With The Circus (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:7E2778EFD4491F18BD935494424CBA7C2E1F4746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

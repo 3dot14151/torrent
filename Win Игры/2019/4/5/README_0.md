@@ -19,8 +19,7 @@ Demon Hunter 5: Ascendance / Охотник на демонов 5: Тайна м
 ```bash
 magnet:?xt=urn:btih:9E5B98909839299B9C0FDF50E292EB13EBEA7D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

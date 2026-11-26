@@ -19,8 +19,7 @@ Lost Words — атмосферное повествовательное при�
 ```bash
 magnet:?xt=urn:btih:9246005148ED5A9CF87755DCD56E05B9E7555BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

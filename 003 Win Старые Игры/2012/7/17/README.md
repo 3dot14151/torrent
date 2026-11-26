@@ -19,8 +19,7 @@ King of Dragon Pass [En] (RePack) 1999 | RG games (Pilotus)
 ```bash
 magnet:?xt=urn:btih:311DA22C364CF8200518FDD0ACB6108AC1F2E7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Imperialism II: Age of Exploration (RePack) [Ru] 1999 | RG Games (Pilotus)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Star Trek: Elite Force 2 [Ru] (P) 2003
 ```bash
 magnet:?xt=urn:btih:DE917585D5379A8A15AEC056D818CF1B203590AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Beach Life (Virtual Resort:  Spring Break) (RePack) [Ru] 2002 | RG games (Pilotu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Westenra - First Light (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:4476C3A512A732870477A5709530F98E94527B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1 - The Path
 ```bash
 magnet:?xt=urn:btih:CFD0447046958BCF08495E857BE4E40D4DB08B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dread Sovereign - Alchemical Warfare (2021) [FLAC|Lossless|image + .cue] <Doom M
 ```bash
 magnet:?xt=urn:btih:6F593C2C8B4B0D50C817FABA8EA332CC6B4161BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Starified - Fat Hits (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Sto
 ```bash
 magnet:?xt=urn:btih:74E2FB3C5E84A63711EC242578B85D5BA6D2A47D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Witherfall - The Other Side of Fear (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:4F194F6D149A534BD3028980FCD112403A62D3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Winterage - The Inheritance of Beauty (2021) [FLAC|Lossless|WEB-DL|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:B37CF098C914AC8698E55AD7EAEB2FB2364604AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ XTC - English Settlement (1982) Reissue, 1988, Geffen [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:119D8DFBB648A51884AA76F155EC2A3E911AFA40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Lynch Mob - Wicked Sensation Reimagined (1990) 30th Anniversary Edition, Remaste
 ```bash
 magnet:?xt=urn:btih:5A3BA06C9D0C19C7A40DC7919A1A7196E26DCBC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Assanity - Новые русские панки / То, что все знают
 ```bash
 magnet:?xt=urn:btih:D50071F7E6C939EAB817A848FD67DDC486D8512B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25BD6B73DF4C9098A9D3F4F310B0EABFCD0038DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Dragony - Viribus Unitis (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Power Meta
 ```bash
 magnet:?xt=urn:btih:277A259936EC96D680A1D53A76F2D4FBDBF8BFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Blue Stahli - Obsidian (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative 
 ```bash
 magnet:?xt=urn:btih:69A79C6047A65AE92032EBBB7DEA4720B4703EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F27573DD9DBE7AF4940B9AA2D5617A6F1111F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

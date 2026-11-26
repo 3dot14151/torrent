@@ -19,8 +19,7 @@ Punch A Bunch – аркадный симулятор бокса, в котор�
 ```bash
 magnet:?xt=urn:btih:87248BAD67CE71918B882300D643E2EF349A6035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Automobilista 2 – вторая часть гоночного симулято�
 ```bash
 magnet:?xt=urn:btih:61F506CC1077CD336521B310836C1761FA3C3BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

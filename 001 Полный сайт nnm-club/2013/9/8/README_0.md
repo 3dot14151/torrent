@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DF65705E1E7CC1DDE86111D6FC53BD3963A9B8BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B39E4B2398B527B115232121EE193734C7A5A50B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Messenger - Starwolf Pt. 1: The Messengers [Digipak Edition] (2013) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:8633DE7BFA57D1D4C539FDABC48C326E935A1A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Suddenlash - Soul's Revenge (2013) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:A45AB07A257E235027F02ADA905EEBA4D9BDC506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Void Zero Mess - For People Who I'll Never Forget (2013) [MP3|320 кб/с]<Melod
 ```bash
 magnet:?xt=urn:btih:8353893415E08651FCD9D74F09F7BC07DE00AB4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Side 2:
 ```bash
 magnet:?xt=urn:btih:9324DB86D529CA523BC6BB14F55F851F6800A09F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39BA4A33783C770CFD75AB1013012E59A2632CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ Dave Houtmeyers — ударные, перкуссия(   Читать даль�
 ```bash
 magnet:?xt=urn:btih:1347CBA9D5B29BCF229F82CAF5F169C775509B4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ Naked Rebel Party - Anybody Wanna Burn? (2013) [MP3|320 кб/с]<Rock, Hard Rock
 ```bash
 magnet:?xt=urn:btih:2358D7253EEBDD3E0A275849E81275D4523899EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:242D70F7B2765EB5F34F9EED14EFB572F1ECD4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ Gary Schutt - Moving Parts (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2B9F35E865AF7D3F33A65BBDD30525484E6C5EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17DD2163BE6DF55FFBCDEB9C51201874F0C9EAA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1FD262146F6EAC3522CB33988FC34C93F2ADA1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ Willy Moon - Heres Willy Moon (2013) [MP3|320 кб/с]<Rock, Pop Rock, Rock 'n' 
 ```bash
 magnet:?xt=urn:btih:96BEE10605C2800A60E911702855F9BB40828097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ VA - Driving Trance - Volume Two (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A0C8309EAC4953559572110F18C1FE990991A1B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ Nostromosis - Through Space And Time (2013) [MP3|320 кб/с]<Goa Trance>
 ```bash
 magnet:?xt=urn:btih:284F0969CAAB41A736A3ACC6B6B7981A9A5A3297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ Schongeist - Wehe! (2013) [MP3|320 кб/с]<Gothic Rock / Industrial Rock>
 ```bash
 magnet:?xt=urn:btih:5319C73C3891B345303E98992A3140CEDB4258E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4813D4347E9296317AF67375BF9F3D9E7EE7634F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ Cyber DMX - Carbon (2013) [MP3|320 кб/с]<Psy-Prog>
 ```bash
 magnet:?xt=urn:btih:5BAA6EB140E94C641F7B7B37838FA9D09E79AB23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ VA - Популярные треки осени 2013 (2013) [MP3|256 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:5C837E39E376FBA1E47C2E7CBDF9C950D1D179AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +720,7 @@ VA - Fun Radio: Party Fun Summer 2013 (2CD) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:FA5E9ED3DC0D9F022A62B77BB0D999CDF5DD5118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +746,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3505BCF37284A21F0A45F53E330D98EAEE2BE23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +780,7 @@ VA - Armada At Ibiza - The Closing Party 2013 (2013) [MP3|320 кб/с]<Uplifting
 ```bash
 magnet:?xt=urn:btih:F839EAEA6EFCF65A129B90754757D487BC6E0CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

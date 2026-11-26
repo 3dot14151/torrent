@@ -19,8 +19,7 @@ Secret Trails: Frozen Heart Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:AAE956C979E83F76E1F71F9B652ACED2CCA11D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Bureau: XCOM Declassified (2013) [Ru/En] (0.1.0.15143 Upd1/3dlc) Repack z10y
 ```bash
 magnet:?xt=urn:btih:CE85712F6A28D22357368C3732F529B26D1ADEA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ The Scourge Project: Episodes 1 and 2 / The Scourge Project: Проект БИЧ
 ```bash
 magnet:?xt=urn:btih:17998256506C8790E6AEAB78C40885BE14166E6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ The Bureau: XCOM Declassified (2013) [Ru/Multi] (0.1.0.2177831/dlc) SteamRip Let
 ```bash
 magnet:?xt=urn:btih:5601E0FC87B7FC8BC7B13F1A2A6306EB9CA82BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

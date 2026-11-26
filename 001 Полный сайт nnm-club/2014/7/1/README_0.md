@@ -27,8 +27,7 @@ Keir Fraser & James Braddell - Late Night Chill (2014) [MP3|320 кб/с]<Lounge,
 ```bash
 magnet:?xt=urn:btih:EE49DBC1BE882B2BA78373053BF4D54DD46AB39E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:5CB9A24069626F26ECAECFE092DEC2E8CCC9D0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Liam Bailey - Definitely Now (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:D07C8C9EE7D94AF3B49F471F345C281784498249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3176B76458BC3AC2CEFF7BF667F88FCEDDA8C443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ FreeFileSync 6.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:23CF6FB0450937D2051EFEC7E7A3AADD4CA1D2E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ VA - French Connections Vol. 1 (2014) [MP3|320 кб/с]<Electronic, Ambient, Lou
 ```bash
 magnet:?xt=urn:btih:16E9F716C3CE1E524EA5A62820FF69552466335D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Solar Fields - Pulse (2014) [FLAC|Lossless|WEB-DL]<Trance, Psybreaks>
 ```bash
 magnet:?xt=urn:btih:CAE5338BCA1A030026F4FA83CD75DF4D30E3E6EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AE9E846AEDD2F558416FA772C4CC590C90AAF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Protoculture - Music Is More Than Mathematics (Extended Versions) (2014) [MP3|32
 ```bash
 magnet:?xt=urn:btih:FB8463347B663E2A111AFC65634831256A2F5C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C731F0610854A19ADE88E358AD0896A84E29489E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF75AD865C1CC4B366031608CACD66AE1F54FE99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ Mayhem - Esoteric Warfare (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:2988F4275DF91C4D1524976780A9CB4DCCA39454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ Down - Down IV - Part Two (2014) EP [FLAC|Lossless]<Southern Metal>
 ```bash
 magnet:?xt=urn:btih:EC0A94F408838B3326EA42A40AF7437307AF494F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ InfoCity – ежемесячный журнал о компьютерной т�
 ```bash
 magnet:?xt=urn:btih:9F1A7B900418F44E5729F04E0200A19C40800BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +437,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55172D93466C47E1ED841756B33A3B5C86FCAA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +466,7 @@ Clicks and Errors - A Falling Sky (2014) [FLAC|Lossless|WEB-DL]<IDM, Glitch>
 ```bash
 magnet:?xt=urn:btih:044758E25332AE80487800187919B86460D504D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:30970C6A05A50E836215DEB04F63E1FD73DF741D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ Process Lasso Pro - позволяет вручную или автоматич�
 ```bash
 magnet:?xt=urn:btih:A1B94B995F3D9283E98ECA90F66CACAD1861A356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ Missa brevis (Краткая месса), до мажор, КV 115  24:44
 ```bash
 magnet:?xt=urn:btih:8E937FE7B97E9E410BE860DB5F12B8CEA4F7EF73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +584,7 @@ VA - Antique Progressive (Mixed by Sensorica) (2009) [FLAC|Lossless|WEB-DL]<Prog
 ```bash
 magnet:?xt=urn:btih:57010B23354BE65A791DA4318142561D331F6053
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3374EDA8705AA8743AC919A0216BD52F9DD33016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ Tag&Rename - это редактор музыкальных файлов, кот
 ```bash
 magnet:?xt=urn:btih:D0196F088AD41FDFB32897DF075E83A498313B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15B59F6B85B205BAD7C6E39FB4EBBA7CB28BBE92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +697,7 @@ For All Those Sleeping - 3 Альбома (2010-2014) [FLAC|Lossless]<Post-Hardc
 ```bash
 magnet:?xt=urn:btih:665AC48B2FF9AEE688D4AD0ED12891CA75F230A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +722,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93CEB18F903C5EBC511EA27D9E36C8C86DBF2AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ Aquascape - Sunrise In Fog (2014) [FLAC|Lossless|WEB-DL]<Psychill, Downtempo, Ps
 ```bash
 magnet:?xt=urn:btih:7D74CEA53A0411BFECC7671D5744A2A0A8812851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6421.30108/dlc) R
 ```bash
 magnet:?xt=urn:btih:1FE1B779DC16E1F5EB654B86A3D527ACFED43D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Vanishing of Ethan Carter это мистическая приключенч
 ```bash
 magnet:?xt=urn:btih:49E581FCDC908D7C058CE9072336EF7F83AA4DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

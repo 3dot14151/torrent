@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:13E623634764FDC0BE0B1837001D8BBD7B2D3FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.004r) License GOG
 ```bash
 magnet:?xt=urn:btih:BB77CBF6EFA1E4B0C8E24BB357D6894CD8B1F898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 ```bash
 magnet:?xt=urn:btih:5C198D2E02CDCADE02E0C8D1F2685D9114A4DFAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fox Holes
 ```bash
 magnet:?xt=urn:btih:9A19E6AB2982B8542FF3935AE161E416A0513450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Welcome to ParadiZe - это увлекательная изометрическ
 ```bash
 magnet:?xt=urn:btih:AB38E86AE3D1FA7D0A764FB4297CCBC93438717D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Necroking - это пошаговая тактическая ролевая ад
 ```bash
 magnet:?xt=urn:btih:7007572382C3D5FA120D22DBD57AE1D9E0EE4B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ House Flipper – увлекательный и интересный в своё
 ```bash
 magnet:?xt=urn:btih:0F4D560DE285441751D508E1960E7ED313DB3B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Necro Story (2024) [Ru/Multi] (6043) Repack FitGirl [Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:07B545321E47CD7F8F909A6598505EC513286B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

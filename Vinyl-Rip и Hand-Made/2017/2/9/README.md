@@ -22,8 +22,7 @@ VA - RETROспектива, часть IX: Эстрадные оркестры I
 ```bash
 magnet:?xt=urn:btih:949F976A69CEE853170542992D59907ACF4F0F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

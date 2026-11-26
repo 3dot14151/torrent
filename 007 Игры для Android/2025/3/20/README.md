@@ -20,8 +20,7 @@ Jewels Match Dragon - это захватывающая и увлекатель�
 ```bash
 magnet:?xt=urn:btih:E073D79B122D2C2111846415A5ADB982A24E2A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Rail Rush v1.9.24 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8D488D9BE4FD825F8936D895D01BDB3DEDF9E760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

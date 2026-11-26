@@ -22,8 +22,7 @@ Dream Theater - Live At Madison Square Garden (2010) (2023) Special Edition [FLA
 ```bash
 magnet:?xt=urn:btih:6BF7F9905574965F08D3A6C660B554C7A3AD3C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

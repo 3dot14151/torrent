@@ -19,8 +19,7 @@ SFT - это журнал о покупках для всего мира эле�
 ```bash
 magnet:?xt=urn:btih:FEFD79E4B405356A44D0E6704A15186F6DBA86A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

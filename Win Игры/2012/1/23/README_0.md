@@ -19,8 +19,7 @@ Earth Defense Force: Insect Armageddon [Ru] (RePack) 2011 | R.G. Shift
 ```bash
 magnet:?xt=urn:btih:9FBF303CFE2332BAE526A8D4021ACCEAB27342AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

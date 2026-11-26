@@ -24,8 +24,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:977A2C03B13D44D7A844A4D01B25761AAFF52998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Maxthon MxNitro Browser был разработан с нуля, чтобы по
 ```bash
 magnet:?xt=urn:btih:F9A70635572D1B9E13AA9F613C63F9FDF3420F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Pestilential Shadows - Ephemeral (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:C440FCF823895B7D8E053ECA51505460DF696A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Besatt - Nine Sins (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:4041803366D108ADCEA959096A465BA2774DFD3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Yearning - Merging Into Landscapes (2007) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:63DFAB978DBA764F4BC845CD338E2955AA5F77F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ VA - TOP 10 Slowmore (2013) [MP3|320 кб/с] <Chill Out, Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:846A6B2ED427FFB5CA3C853DC1C9939EA70C7B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +218,7 @@ Witherscape - The New Tomorrow (2014) EP [FLAC|Lossless]<Atmospheric/Progressive
 ```bash
 magnet:?xt=urn:btih:763CB70611A6DF7B3D4CCB8F20FA0B1A625A18AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Zyklon - The Storm Manifesto (2010) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:24DA8930B4AEDA7CAA54C0A3D4984F514DAF2B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Yearning - Plaintive Scenes (1998) [FLAC|Lossless]<Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +343,7 @@ Neu Gestalt - Inside The Rain Chamber (2014) [FLAC|Lossless|WEB-DL] <IDM, Downte
 ```bash
 magnet:?xt=urn:btih:FB914608E354564EE804003033D9D3D025EFE81A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ CD 1: Untrodden Corridors Of Hades
 ```bash
 magnet:?xt=urn:btih:1AE3DA6487D30044B10F621D552A8E4455BD468E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +410,7 @@ Karma Sutra - Prana (2001) [MP3|~190 кб/с (V2)]<World, Native, Ethnic, Vocal>
 ```bash
 magnet:?xt=urn:btih:4A927D7500AFBCB85B78B45DDA598140EA81CF3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +444,7 @@ Cadaveria - Silence (2014) [FLAC|Lossless]<Black Metal/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:892B2590FAEC1D25A1A2BBBC119A6024AE4929B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +478,7 @@ VA - The Best Of Tangled Audio 2014 (Mixed by Luigi Palagano) (2014) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:1CA722DC998ADC9769B348CBF2AA510AB5D6BC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +511,7 @@ Piss On Authority and SLUG - Echoes Of The Past Reverberate Into Our Future  (20
 ```bash
 magnet:?xt=urn:btih:78B52CAE430E35B9A9684FA80C75C40C1243F62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +545,7 @@ Texas Hippie Coalition - Ride On (2014) [MP3|320 кб/с]<Southern / Red Dirt Me
 ```bash
 magnet:?xt=urn:btih:00A0E9C9ACBC2CAC86767725F6DE8B2FA8A7700D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +579,7 @@ VA - Decade of Viper (10 Years of Viper Recordings) (2014) [MP3|320 кб/с]<Dru
 ```bash
 magnet:?xt=urn:btih:54330AEEC47675CE802079B3A13251B9BAC526EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +608,7 @@ Texas Hippie Coalition - Ride On (2014) [WavPack|Lossless]<Southern/Post-Thrash 
 ```bash
 magnet:?xt=urn:btih:71B6196CB93238D978992D684CE6C1A138DBBC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +641,7 @@ VA - Meditation Breeze (Compiled by Solarsoul) (2014) [MP3|320 кб/с]<Chillout
 ```bash
 magnet:?xt=urn:btih:618C812AF17F43CD980C275AAB4F945229E4B168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +675,7 @@ Epolets - Dogma (2014) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:800658B50C35E7513B7F6F17A134BADF3A0538F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +708,7 @@ VA - Total Trance 2014.2 (The Best in Uplifting Vocal and Instrumental Trance) (
 ```bash
 magnet:?xt=urn:btih:278524AC9F4C90C7E46D92199BDB9118792FC732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +736,7 @@ Arranged ByЖанр: Electronic, Rock/Pop RockПродолжительность
 ```bash
 magnet:?xt=urn:btih:41F31CC7A71F8C8161593DCBBB1F82F49F2E533F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +761,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8037C271357D801F301458B0A694DDE9388ABCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -817,8 +793,7 @@ Jeff Order - Sea of Tranquility (1989) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:1AFF39559316FA821384C4693149783D7F8DFB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -843,8 +818,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59B3F6D6BAE6F2CCB7CFA1A1628C20814E1F5933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Yellow Hand - Yellow Hand (1969) Remastered 2008 [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:2D1730129834078D500258D1FBC11895E47EF9C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Comity - 6 Альбомов (2000-2011) [MP3|320 кб/с]<Chaotic Hardcore, Post
 ```bash
 magnet:?xt=urn:btih:AE7DCCEDD16CEC40C3605F94B1A1DA1A135AB128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28AD41D43C37C3C9ED4AA104E5C8443994DEF77D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ VA - Pan Global Electro Lounge Vol. 2 (2014) [MP3|320 кб/с]<Electronic, Downt
 ```bash
 magnet:?xt=urn:btih:0A79C73D957024E548967770C6AC0D25B865E47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ VA - Beach Beat Essentials (2014) [MP3|320 кб/с] <Chill Out>
 ```bash
 magnet:?xt=urn:btih:69D093FBD2FB4D6CDF5D346DB767B806297AE3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD11750FFAFCD1ECDE7F08DE8042FD749F8B5777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ VA - Ibiza Garden Chill Out Lounge Grooves (2014) [MP3|320 кб/с]<Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:9F2B0042EE2704BC57ECEF34D6D6F11BE2CAC1CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Disclosed Silence - Perpetual Sadness (2014) [MP3|320 кб/с]<Melodic/Doom/Deat
 ```bash
 magnet:?xt=urn:btih:0051856DA0DEB28833F5194D005D9186135C0C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ Kaunis Kuolematon - Kylma Kaunis Maailma (2014) [MP3|320 кб/с]<Doom Metal, Go
 ```bash
 magnet:?xt=urn:btih:693BA0942089AA4E26CE3BBC4911E8EC74EC2AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ VA - Chilled House Classics, Vol. 1 (The Best Chill House Tracks from the Cooles
 ```bash
 magnet:?xt=urn:btih:A1AA32473FC8F300B45D0F7A9364B3C14E358B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +363,7 @@ VA - Lovely Mood Lounge Vol. 15 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:BD6A2403E064918BBD42424016FE0DE2EE768C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +392,7 @@ Sequel Of Sunday - Arrivals (2014) EP [MP3|320 кб/с]<Metalcore / Post-Hardcor
 ```bash
 magnet:?xt=urn:btih:6BE1DF41ECBF1CE2E764E407B199A39A668560E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +426,7 @@ Blue Jay Slim & The Tone Blasters - Leaving The Cold Behind (2014) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:0514AA7FA321F71508FAEBE9EBC51EE5C5B25FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A8093773CFD1363D8F06039D38D1DBE68C77549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ My Universe - Breath of Silence (2009) [MP3|320 кб/с]<Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:BFB8BFF23F730BC18BA2E83E16A75B47960199C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ Andy T - Nick Nixon Band - Livin' It Up (2014) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:4FF636395DAED7D356BBF472ACC3CF0F2F02D8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F85242F00FE2A91D5773CD8D43D575EE0610C0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ Amber Lynn Nicol - Seven (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5E4FD36B60701118D63AC0D0B4183188EC79CA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40DF8659385927674F2F447600A30A34617B1227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23FE251AB540C38D101BD0EFF9D16EABD2F5873B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ Kaminanda - Liminal Spaces (2014) [FLAC|Lossless|WEB-DL]<Psydub, Downtempo>
 ```bash
 magnet:?xt=urn:btih:434E18BD253EF91EF70CF5020AEF7685E362C4B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ Ian - Nuevo Orden (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E873A360DDF19AEB4618F7DF21328F532A2D9255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +721,7 @@ VA - Elliptical Sun Sampler 007 (2014) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:CBD06AB48A47021A55F4CFD7ACEEE3016A272C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +746,7 @@ Advanced Photographer - чрезвычайно нужный журнал для 
 ```bash
 magnet:?xt=urn:btih:5723F19F9FC369A8D0E2EC795E796E4D897A0849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -796,8 +771,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87E82E4A3C0689CE33A3E51DF5E7CAB9F1B2DB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

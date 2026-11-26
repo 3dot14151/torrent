@@ -21,8 +21,7 @@ Cubot — захватывающая головоломка готова уст�
 ```bash
 magnet:?xt=urn:btih:E56E013B4ABE4A279C3FD6864F30C1311D0DDEB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:D7106878E2D7E06799E57178959A679AEEBC9A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Active @ Partition Manager - бесплатное приложение, кото
 ```bash
 magnet:?xt=urn:btih:8F813FC72657108BFA38F6FC2E6F66BB9EFEF4C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B6BE589750D79F8FA7F3E4F7471B1FEA58321DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Iron Maiden - Fear of the Dark (1992) Japanese Edition [FLAC|Lossless]<Heavy Met
 ```bash
 magnet:?xt=urn:btih:594D3ACB5374A0D99748354919E40ABE15FC67FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ VA - Power Metal Ballads 20 (2015) [MP3|220-224 кб/с]<Ballads, Heavy, Sympho,
 ```bash
 magnet:?xt=urn:btih:CA7A2DB6F5D2924E671C51231B3C928222B6E870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6BE7B4AFFFC6D7D52DC8D2B7B1DD151B727F079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ CD1 - Undisputed:
 ```bash
 magnet:?xt=urn:btih:A6E74C4BB8250D03EA9C32F47009A5ED48D2E706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Comedy Woman  (2015.01.16) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:B8EE427AC1F76DEE6A22C405D9549A45B1E9A2C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Comedy Woman  (2015.01.16) SATRip
 ```bash
 magnet:?xt=urn:btih:D1D25172F8BD4F3EF24BD16B399A426DD210495C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:1D9DDD55FE00658D09DB85FEE907FF0061985FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Wallpapers - Дорогуши и богини. 100 обоев с машинка�
 ```bash
 magnet:?xt=urn:btih:67596C9346AF58A644B0EFB90EBC1978EE1ACBEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D53015D950545DA8FE62612C1EC204096ACB00BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Debian GNU/Linux 7.8.0 Live [amd64] 4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:D071FE95874B3B1C453975A5169022ED53231F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Tails выполнен в виде Live-системы, позволяющей �
 ```bash
 magnet:?xt=urn:btih:CB9F363890265D6E06C7E88E84003692702388DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7640DA4753F29841D3FC954F4803CFE841BDFD37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B717CC33EC720991CC5B4FD5A696A69230DDB0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Gilisoft USB Stick Encryption 5.5.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CFA24982BE317D6F3163B1849030FACFDAE27B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B10AC8169C67BB39229C10303E21E917D1DF67F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6919BA7DA0393D6B873A6C9231D6F9B5AA6DDEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D43D07617B97546C7885E75AF9CF0C1178CB806E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0650998E1A4390BB1983AF6EB7A13C7685B01F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ GiliSoft File Lock Pro 8.8.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:88E9A16D072FA45BE0F7CFA8D6706F6B646065EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ In Magazine - проект для создания портфолио  в жур
 ```bash
 magnet:?xt=urn:btih:E51C4BA8063F511DFE60F1F16747D28E34940A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0937CFED9095BECBDBC8B7831E2C557AC34D4DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ Beginning Arduino Programming -  позволяет быстро и интуит
 ```bash
 magnet:?xt=urn:btih:F0FCEEC6E9713667693C4F00F631CCB2E7349CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ The Newspaper - проект для создания в газете слайд 
 ```bash
 magnet:?xt=urn:btih:114A4EDE5ADF93BAB051790DB6A10B511AC0ACC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Big & Rich - Comin' To Your City (2005) [FLAC|Lossless|image + .cue] <Rock, Coun
 ```bash
 magnet:?xt=urn:btih:3B7F0195351D02E9C3CF1E950CA08826EC7E31A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bedsore - Dreaming The Strife For Love (2024) [FLAC|Lossless|image + .cue] <Deat
 ```bash
 magnet:?xt=urn:btih:F3C7AB152E5BB499FE6B1E7A47470395D514BC3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D9F7924C70CFFFEBD4D05CEA88CB220E062A315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

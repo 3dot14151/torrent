@@ -19,8 +19,7 @@ Cover Fire 1.17.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:AB0D4F5BB1535DFA0D6CA4757DA711FEA2A66916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Paradoxx - Plan Of Attak - The Complete Worxx (1985) Compilation, Limited Editio
 ```bash
 magnet:?xt=urn:btih:5F51224638DD0571F7B7A2ECAFE546E2AA9906CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Atomic Love Reactor - Creation of a Masterpeace (2021) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:CB201576E445F65F33ED6C9E4A5DCC299F629920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Atomic Love Reactor - The Arrival (2016) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:22B7052B2D6889B8EA3EB0C001955E239A3075B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Dennis DeYoung (ex-Styx) - 26 East: vol.2 (2021) Japanese Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:6183A2ABFA5C9892EB07247380188EB5E391CCB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Margenta — проект, состоящий из альбомов, напис�
 ```bash
 magnet:?xt=urn:btih:1D0B9378D72679D394AC41CFEC73B36068417BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Nirvana - Nevermind (1991) Limited Edition, 30th Anniversary, 2021, Remastered, 
 ```bash
 magnet:?xt=urn:btih:A98830CC0CB63775C7E1B6AA0C397D4C7D77A606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

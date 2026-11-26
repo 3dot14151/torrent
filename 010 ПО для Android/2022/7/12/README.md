@@ -19,8 +19,7 @@ Lite RSS - это простая, быстрая и легкая програм�
 ```bash
 magnet:?xt=urn:btih:80198979ECAE2A8FBEE17BDE22E0ED14E50610AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AppSales: Скидки и распродажи приложений - ещё о�
 ```bash
 magnet:?xt=urn:btih:C9FB8E5F2E567C3DB5B403929ED288757A82A63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Meditopia – это приложение для медитации, котор�
 ```bash
 magnet:?xt=urn:btih:50F86AE10B97612D8E0DF4D6727F1E5E972C91F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Screen Stream Mirroring - многофункциональное приложе�
 ```bash
 magnet:?xt=urn:btih:9346074683C77B498D73C12D4D6FDA89AAF3E6E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ PhotoLayers v4.0.0 [En/Ru] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:F720A8449020112105783D7F5642826FE44836DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ MLUSB Mounter - это разработанный в Японии файловы
 ```bash
 magnet:?xt=urn:btih:52E5A4E1E5F6310ABC380DF42BA9722EDB791C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ AndroPods  v1.5.19 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BDD11F9F8C350D91AB9A792E55A0C8FD04F10C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tibetan Quest: Beyond The World's End (2015) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:00B940EBBB2064F4E8FBF1DF1556E6F64D65BBE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales 4: The Stone Queen / Страшные сказки. Каменная 
 ```bash
 magnet:?xt=urn:btih:E8D8D326EE8A3F570E7F243C5059A033BF028884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grim Tales: The Bride / Мрачные истории. Невеста (2011) [Ru
 ```bash
 magnet:?xt=urn:btih:92B8EE3D09D966E945D988470F029341FB02E4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grim Tales 2: The Legacy / Мрачные истории. Наследие (2012
 ```bash
 magnet:?xt=urn:btih:4991BE309AE0EDAC7AAB14B605F1BC09EA5CFE0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Danse Macabre 4: Thin Ice / Танец смерти 4: Тонкий лед (2015
 ```bash
 magnet:?xt=urn:btih:27BA43A864F04BADDB9AEE382780A5B9DCFB15E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grim Tales 7: Color of Fright / Мрачные истории. Цвет стра
 ```bash
 magnet:?xt=urn:btih:77A32D3B17E0394642F27148EE15EF207F00C2A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Grim Tales 6: The Vengeance / Мрачные истории. Возмездие 
 ```bash
 magnet:?xt=urn:btih:37693130B0E818AA94CE4E4AFF8E876D5DF14663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Grim Tales 3: The Wishes / Мрачные истории. Желания (2012) 
 ```bash
 magnet:?xt=urn:btih:6C6FDF3D0AEF83F764CDE82EF45AD439A7633BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Delicious 11. Emily's Home Sweet Home (2015) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:90F3D3CBABB63D0FE4FF555B6B9190CE89936276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Grim Tales 5: Bloody Mary / Страшные сказки. Кровавая Мэ
 ```bash
 magnet:?xt=urn:btih:9707476601B2AA23FDD66DF034AF1196C41BC55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

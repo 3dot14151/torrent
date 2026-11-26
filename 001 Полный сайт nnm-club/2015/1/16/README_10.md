@@ -25,8 +25,7 @@ Not A Cost - S/T (2014) [MP3|320 кб/с]<Blackened Crust, Anarcho Punk, Experim
 ```bash
 magnet:?xt=urn:btih:927004227B7A8A61AAFABB79ED836AAE6741FD65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Fanchon - S/T (2014) EP [MP3|320 кб/с]<Blackened Crust, Death Metal, Experime
 ```bash
 magnet:?xt=urn:btih:0A7B6ED5DD6D843ED2DCB2BA188A192D5DC74DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - Keep Calm and Listen to Trance Volume 28 (2015) [MP3|320 кб/с]<Trance, U
 ```bash
 magnet:?xt=urn:btih:ED2FFFCA435F57C0086E575BBE01AD2955AEA166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ VA - Compilado Blackened Crust (2010) [MP3|320 кб/с]<Black Metal, Blackened C
 ```bash
 magnet:?xt=urn:btih:FAF577FC72B8A815CDE1BAE55A19B1166ECF605B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Albums, EPs:
 ```bash
 magnet:?xt=urn:btih:CC51413D742F6477F71B40B825F612FDD132849B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:1F1FC7EF8E1116C34656C1E7A59D0E74A63C6854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Enabl.ed - Paranoid Nostalgia (2012) [FLAC|Lossless|WEB-DL]<IDM>
 ```bash
 magnet:?xt=urn:btih:6FAFD8974E6FFE01B66263F7C730FCF01EE74FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ The Art Farmer Quintet Featuring Jimmy Heath - From Vienna With Art (2003) [FLAC
 ```bash
 magnet:?xt=urn:btih:022B7B0E379B46DD370FF3CAB939B79AF01263DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +274,7 @@ Angelus Apatrida - Hidden Evolution (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:DF5A434E1045D674A6BCD7A6B1FA845403040440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ DJ Nike Twist - TranceWave 106 @ GTI Radio (15.01.2015) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:E588047A7BBAD29C7F96717DBF741BE4CE2E401D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ EPs:
 ```bash
 magnet:?xt=urn:btih:887048C7FE0CA8B2412F571CCC34D7F88BBA7DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ Ricardo Silveira - Amazon Secrets (1990) [WavPack|Lossless]<Jazz, Jazz Fusion, C
 ```bash
 magnet:?xt=urn:btih:5925FFDE36601B1ECE41557644F555325FC8006A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ Brad Absher & Swamp Royale - Lucky Dog (2015) [MP3|320 кб/с]<Blues, Soul>
 ```bash
 magnet:?xt=urn:btih:9C42BE86426AF8199E354DAECFA30D4C0AA2C7CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +436,7 @@ Enabl.ed - #DatGlitch (2014) [FLAC|Lossless|WEB-DL]<IDM>
 ```bash
 magnet:?xt=urn:btih:A2374E3B5F99C59F301DED308B1459C7A5A8AEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D28D42B8DE9CE95DDAAB7C91C58AC465C56C3B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +495,7 @@ Midimode - Spaceability Remixed (2015) [FLAC|Lossless|WEB-DL]<IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:3B17E16EE18EAB48DAD2EC9DF1802C8D6E9D4F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +527,7 @@ Vinyl Theatre - Electrogram (2014) [MP3|320 кб/с]<Alternative, Indie Rock, El
 ```bash
 magnet:?xt=urn:btih:E269877A0D015748C8DBC348229E046DE6CA934B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +561,7 @@ Creed Fisher and The Redneck Nation Band - Ain't Scared To Bleed (2014) [MP3|320
 ```bash
 magnet:?xt=urn:btih:36CBA0A6A20C1344300907E43419E83571F8F1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +592,7 @@ Jerett Samples - Just Gotta Mean It (2015) [MP3|320 кб/с]<Funky Blues>
 ```bash
 magnet:?xt=urn:btih:E2BDC2A6C871568716356216C5DEA6053EEA3443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +626,7 @@ Shadowbane - Facing The Fallout (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:23E65B5DCB08BF99B5A9361B6E21909BE31639B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:105DA9B8BB4B08DDC8362BAFEB95948083E01147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64E28DA10901F7CF7CF4907CBA4CF2F283F67211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +712,7 @@ Stephane Grappelli with Phil Woods and Louis Bellson - Love Song (2001) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:ABB5FD3850587212A107DBB077B3A0E396336C85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +737,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D2C8AED34B764728F6A56B420ED23548E4C7F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +762,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F643AC53B9EE745D8327A15C2E9021EC405D7A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -821,8 +796,7 @@ Blowsight - Life & Death (2012) [MP3|320 кб/с]<Alternative Rock, Nu Metal, Po
 ```bash
 magnet:?xt=urn:btih:77C8236C22E7B9D0F07FDD69E58EBE192186741C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

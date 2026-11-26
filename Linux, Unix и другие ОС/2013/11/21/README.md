@@ -21,8 +21,7 @@ Univention Corporate Server 3.2 [i386, amd64, UEFI-amd64] 3xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:F80AFD6ED9A152B7517700E68044135E1A30A6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

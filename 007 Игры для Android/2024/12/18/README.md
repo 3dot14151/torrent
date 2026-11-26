@@ -21,8 +21,7 @@ Children of Morta — сюжетная action RPG с roguelite-подходом 
 ```bash
 magnet:?xt=urn:btih:8466CE4F2E077017F45D299DA3097E717A7C3D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Thimbleweed Park 1.0.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:82CFC35D0286929177651D1B623B1FB71323F1B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Scythe: Digital Edition 2.1.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:248C97D3747EDAB6B9C019503FEAA16C349F5A6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Art of Rally 1.0.7_b200 [Ru]
 ```bash
 magnet:?xt=urn:btih:5889F1A0E73CF0122EC70D87895A7695494C0FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ The Longing v1.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:3514579B91B9105500414D09465B3DB1E5F75506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ RainCity 1.0.20 [En]
 ```bash
 magnet:?xt=urn:btih:E15E8F78D46C254CFB0597288A376826E91BF221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Midnight Girl - это казуальная 2D-приключенческая и
 ```bash
 magnet:?xt=urn:btih:DC24B32C966EBD9FECDF1E8FA10F75C029A1FB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Bounty Of One – это динамичный казуальный roguelite в�
 ```bash
 magnet:?xt=urn:btih:8BEDCB2FD2F0D5DA24334387ACEA7D5D82A35D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Linea: Уютные головоломки приглашает вас в уми
 ```bash
 magnet:?xt=urn:btih:7D74228F3CA9BBC8EB500E01D8975556583CDAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

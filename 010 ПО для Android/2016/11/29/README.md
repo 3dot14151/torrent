@@ -19,8 +19,7 @@ Ultimate Guitar Tabs & Chords - мобильная версия крупнейш
 ```bash
 magnet:?xt=urn:btih:1CA04746E224051E1F6B009AC86953CE676D4D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AndDocPro - PDF & DJVU Reader 1.0.7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ACF9FCCCFE3A5A18B45AE03EC3D38BDE06608899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ EBookDroid - PDF & DJVU Reader 2.4.0.4 [Ru] - Читалка файлов раз
 ```bash
 magnet:?xt=urn:btih:4728112E15C2A8C5A9C16A130F8DB582DC4ACAA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

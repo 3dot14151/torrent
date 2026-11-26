@@ -19,8 +19,7 @@ Sofia in Exchange for Lies (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D602A22548C4050F26AE6F67E35DD0A8FB36D5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.23.2/dlc) Repack seleZen [Reloaded E
 ```bash
 magnet:?xt=urn:btih:2ABD72862F8E8437577BADC5E94547283E3649BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

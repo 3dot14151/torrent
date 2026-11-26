@@ -19,8 +19,7 @@ Warhammer 40,000: Chaos Gate (1998) [En] (1.2hf3) License GOG
 ```bash
 magnet:?xt=urn:btih:66DA4327C2E06DCE431EC86164C5A932FEF8493F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:5BC7F1592FA46A071F0523C6A78DC4E377C1D6D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

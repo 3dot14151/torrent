@@ -28,8 +28,7 @@ B5. Танцы На Крыше [5:06]Жанр: RockФормат: Vinyl, LP, Albu
 ```bash
 magnet:?xt=urn:btih:13DEBAA3FC305271D231F85D8B4814BE79141B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B5. Старый Рок-н-ролл [3:09]Жанр: RockФормат: Vinyl, LP,
 ```bash
 magnet:?xt=urn:btih:AC11400D3E8A94BBD2B9C78F8EC11AD100DAEFB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Artifact Seeker - это 3D-игра в жанре Roguelike Survivor. Игра 
 ```bash
 magnet:?xt=urn:btih:E11FD1B2E8C82187CE38CC82D21E2DA04798CE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World of Goo 2 (2024) [Ru/Multi] (13205W) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:91C70A133CDCAB676E04985991647B22A76B0E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:608F5663B2A1C685BF5D5A72055EE9596898A9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gunsmith Simulator, как понятно из названия, являетс�
 ```bash
 magnet:?xt=urn:btih:DA88929708977E48913B9502E788AA543739E87A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Megaquarium (2018) [Ru/Multi] (4.2.5g/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3496A9ECEE838CA4956641F45A103D74C953EAB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Panzer Corps 2 - лучшая стратегическая игра о Втор�
 ```bash
 magnet:?xt=urn:btih:68C9189EF9FC1D63BF6A6877EC2A008C75087ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:9B4FC9B1C394D680EE3F08CF846184C357D875D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F1873AF9470B1E35F38C281F24FB5865EAABC518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack seleZen [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:2547194C44DC9A51118855B93F44D296FF21DAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Galacticare (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Full Coverage Editi
 ```bash
 magnet:?xt=urn:btih:DFE37D724B602F6B8B05F1F379CF105EDDD67726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (1.1.1/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:5A426AA436B7E11BDDBBEBB4E5923B402397CB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Psychoscopy - это кооперативная хоррор-игра для 5 �
 ```bash
 magnet:?xt=urn:btih:A42224B6D0F7EA9F44433FC28B834DCD5A82E987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Near-Mage (2025) [Ru/Multi] (1.0.0b/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:64DB7CC17AC729274068EBC5D3AB741F8C81C821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Flashing Lights: Police, Firefighting, Emergency Services Simulator – это �
 ```bash
 magnet:?xt=urn:btih:1FF2E9020D1D8F64E000E957971E7E1FB4F21DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (Build 29056319) Scene T
 ```bash
 magnet:?xt=urn:btih:177B70A23FAED87B78DD3D0747DA59E436E97DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

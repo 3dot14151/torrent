@@ -22,8 +22,7 @@ Abated Mass of Flesh - Коллекция: 2-CD (2020) [MP3|320 Kbps] <Brutal De
 ```bash
 magnet:?xt=urn:btih:653D111307D1B55E9BBAD4400767669DEF79D1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bet On Black - Коллекция:1-CD, 1-ЕР (2020) [MP3|320 Kbps] <Post-Hardc
 ```bash
 magnet:?xt=urn:btih:ABF4F38F34C782362C9CCC3F71E698C45B13748D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ ESP Project - The Rising (2019) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:0C89E95DC70689C8C55EE2D4D681615E81E9D44F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ ESP Project - Phenomena (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:01A9FCACB7DA1D560FB15033AD31594B83BBDAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Violet Janine - Queen Of Rock (2020) [MP3|320 Kbps] <Melodic Hard Rock, Female V
 ```bash
 magnet:?xt=urn:btih:DF5344610C878E4273ABB9B5156EE9D612609959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

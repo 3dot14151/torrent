@@ -26,8 +26,7 @@ Cowers - Pity Park (2001) [FLAC|Lossless]<Heavy/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:AEA68698DD6F89F039B1923EAE3B0A21CA035535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Malsain - The Disease (2007) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:E2E9B18B757F5DB78CECD6D7558F8F782CCA9F31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ MyGrain - Planetary Breathing (2013) [MP3|320 кб/с]<Melodic Death Metal, Mode
 ```bash
 magnet:?xt=urn:btih:318D66254D9BC0A280DB4612B425DD76FBEAEB7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Victim Path - Surrounded by Pain (2012) [MP3|320 кб/с]<DSBM / Depressive Dark
 ```bash
 magnet:?xt=urn:btih:2DCED3AFE9A8D517C6498EC02EFE4363342C830E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Dark Age - Minus Exitus (2008) Japanese Edition [APE|Lossless]<Melodic Death, Mo
 ```bash
 magnet:?xt=urn:btih:ADD6396EB162FED433444C47A92E0352A07B0373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A169338459085C2E10AEB5F5222829B64694383A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Dag Finn - The Wonderful World Of D. Finn (1991) [FLAC|Lossless]<Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:E28B64FCD14D540376453CE8A30F34249B58C278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Roy Orbison - Dream Baby (3CD) (2013) [MP3|320 кб/с]<Rockabilly, Rock’n’R
 ```bash
 magnet:?xt=urn:btih:93A821AC1D8BA1C92CC0338E7C674285FF019ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Robin Beck - Human Instinct (1992) [FLAC|Lossless]<Rock, Melodic rock>
 ```bash
 magnet:?xt=urn:btih:3356A81DDA2E6B65475B1408D685FDE2EBC3B2CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ Kings of Leon - Mechanical Bull (2013) Deluxe Edition [MP3|320 кб/с]<Indie Ro
 ```bash
 magnet:?xt=urn:btih:25BD52C5581E67E17F3F0EBF4B9D3A9EBB5A8A4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

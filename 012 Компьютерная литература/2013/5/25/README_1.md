@@ -19,8 +19,7 @@ K.Watson   | Beginning Visual C# 2012 Programming [2013] [ENG] [PDF]
 ```bash
 magnet:?xt=urn:btih:BBF5E724692D224CF725F7E071CBF098D2171D8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

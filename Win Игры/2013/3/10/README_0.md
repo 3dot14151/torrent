@@ -19,8 +19,7 @@ Azada 4: Elementa Collector's Edition / Азада 4: Элементали Ко�
 ```bash
 magnet:?xt=urn:btih:C8841100BCAA5C2EB93AA23526FF35A629AE0EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Heroes Over Europe [Ru/En] (RePack/1.02) 2010 l Adil
 ```bash
 magnet:?xt=urn:btih:BD7F35D346BAA283F0EF6AB4214F3D8FFE73E0BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Impire – стратегия, в которой вы выступаете пр�
 ```bash
 magnet:?xt=urn:btih:164B065E3743ED6762B44D81E139FE54BBD1F710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

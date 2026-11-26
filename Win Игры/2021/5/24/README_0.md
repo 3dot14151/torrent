@@ -19,8 +19,7 @@ Nox Archaist - восьмибитное приключение, создано �
 ```bash
 magnet:?xt=urn:btih:EA436C3CBB0E0D36BC92A7927DA9B3B2AADDB8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

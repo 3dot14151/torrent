@@ -19,8 +19,7 @@ Bluebeards Castle 2: Son of the Heartless (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:A0B19B04386EDDCCF7A02C4AE77CF70887B49301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Adventures of Shuggy - платформер-головоломка.
 ```bash
 magnet:?xt=urn:btih:04A3247CA7C1525C898C85EFF636EBAC03C15E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Enigmatis: The Mists of Ravenwood / Энигматис. Туман Рэйвен�
 ```bash
 magnet:?xt=urn:btih:36C7537DD9D698ACBCB4951390F70E506611E42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Inner World (2013) [Ru/De] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6C24BA85666E9411FB8C765DA0927571522E6D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Aqua Kitty: Milk Mine Defender (2014) [En] (1.02) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A8B2899615DC3E3FF47E4B7B2FDD9EB5E2C05819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Dead State — компьютерная ролевая игра повеству
 ```bash
 magnet:?xt=urn:btih:7A75867AE6C96DD3557CF61605FE33C6FA3067B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ BlazBlue: Calamity Trigger — плоский файтинг с аниме-ко�
 ```bash
 magnet:?xt=urn:btih:5C9344A17D78E38A75761843C7ADCB1439E2703B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

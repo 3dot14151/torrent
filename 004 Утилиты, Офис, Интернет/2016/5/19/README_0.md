@@ -19,8 +19,7 @@ PDF Converter Elite – это мощная программа конверти�
 ```bash
 magnet:?xt=urn:btih:D2AC19790FE15DD04F765E86FA330E99B390033A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

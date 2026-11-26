@@ -19,8 +19,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:69538811A78DB1645DC565CF37610E24F7CD43AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

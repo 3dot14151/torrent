@@ -19,8 +19,7 @@ ASoft .NET Version Detector - это простой инструмент, кот
 ```bash
 magnet:?xt=urn:btih:80C0BF053B63160FC46C48AC121069A2498FBA46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Firemin — представляет собой небольшую утилит�
 ```bash
 magnet:?xt=urn:btih:7623EA179C7D2CC9BAB31159051FB21EF768363A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

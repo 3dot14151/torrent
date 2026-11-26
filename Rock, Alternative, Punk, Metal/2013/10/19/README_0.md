@@ -28,8 +28,7 @@ Proxillian - But Sorrow Remains (2013) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:37CC0A4F542344DAA583B419BD067877664281E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Blackrain - It Begins (2013) [MP3|320 кб/с]<Glam Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7C83D76A67117DC834468CCA7C2CCC2A55B33AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Ihsahn - Das Seelenbrechen (2013) [MP3|320 кб/с]<Extreme Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:6808E6F0AF974653D2DA979E6C154C76FE32EF43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Hiata - Vessel Receptor (2013) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:939AF6D61CC371FFE39BD69912F66AB87AE9947A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ When Nothing Remains - Thy Dark Serenity (2013) [FLAC|Lossless]<Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:EC3EDB1DE6266CFB0A5B1EFEEA26CA366D446DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Kataklysm - Waiting For The End To Come (2013) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:1A474A99A76C750388CFFDE5725BF0189445961D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Paradise Lost - Tragic Illusion 25 (compilation) (2013) [MP3|320 кб/с]<Death 
 ```bash
 magnet:?xt=urn:btih:D7622ECB3902491CD340B448E98331A8806CC543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ The Answer - New Horizon (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5DEEE7C556740174B30588E80A74B00420E372D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Motorhead - Aftershock (2013) [FLAC|Lossless|WEB-DL]<Metal>
 ```bash
 magnet:?xt=urn:btih:F0A214FFBD8A66936196016DACD71BAE1E146FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

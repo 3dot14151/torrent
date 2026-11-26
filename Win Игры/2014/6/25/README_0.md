@@ -20,8 +20,7 @@ Handball Challenge - спортивный симулятор гандбола. �
 ```bash
 magnet:?xt=urn:btih:E41AD177E5855A9ACDC073B5544BE5A664F5E4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ State of Decay (2013) [Ru/Multi] (14.6.23.5340/2dlc) SteamRip R.G. Игрома�
 ```bash
 magnet:?xt=urn:btih:D455E30CBC4EE405BB19030972027C31852E6527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Anomaly Defenders - это очередная часть серии Anomaly, в 
 ```bash
 magnet:?xt=urn:btih:BC4841A01B8A09CB86576ADD80262EAC9EBD3A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ SAW: The Video Game (2009) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:CEB297B7995A587D305AE595D71FF40AAE7F3554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Coma: Mortuary - вступительная часть трилогии о со�
 ```bash
 magnet:?xt=urn:btih:8F04D39D0C8CB5A4557C42996403A3DB54985B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ GRID 2 (2013) [Ru] (1.0.85.8679/10dlc) Repack R.G. Cyber-Gamers
 ```bash
 magnet:?xt=urn:btih:C06108C4B866FFDD5710EBDE0E392A3A744F1A3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Transformers: Rise of the Dark Spark / Трансформеры: Битва за
 ```bash
 magnet:?xt=urn:btih:716208DE2CD9FDCBDEC01F868BB7D004E03208A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Plague Inc: Evolved - сверхпопулярная игрушка, хорош�
 ```bash
 magnet:?xt=urn:btih:A8CCCD32436364AE284343422B3F142B5CE44A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

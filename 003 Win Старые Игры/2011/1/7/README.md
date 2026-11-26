@@ -19,8 +19,7 @@ The Da Vinci Code / Код Да Винчи [Ru] (L) 2006
 ```bash
 magnet:?xt=urn:btih:A51C5983C5E2371194B25BB74BB79FF97D627896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

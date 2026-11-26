@@ -22,8 +22,7 @@ VA - Митьки никого не хотят победить! (2023) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:13D06EA9455AFC7A849AFA72EB83E67A38478592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Angel Da Rock - Теряя целый мир (2024) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:62922C94A84F996783A27C9D71F0344D431F9BFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

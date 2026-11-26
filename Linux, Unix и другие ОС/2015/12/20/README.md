@@ -19,8 +19,7 @@ Whonix - дистрибутив Linux на основе Debian, ранее из�
 ```bash
 magnet:?xt=urn:btih:47F17FB2B5A1C1EE9F011F13D8325C140A798B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

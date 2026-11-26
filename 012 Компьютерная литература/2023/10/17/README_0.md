@@ -22,8 +22,7 @@ Josh Goldberg | Learning TypeScript (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:29D23088D8AE588DA4EF1B52533894573522DA49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Vaskaran Sarcar | Introducing Functional Programming Using C# (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:FEE88DD53DE290E50ABDE390B8C1EEE03CD63E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

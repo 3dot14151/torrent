@@ -19,8 +19,7 @@ Hidden Object Secrets: Family Revenge (2023) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:3427B204CA86177358F9C8132C9FD61A20A0CDE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:972CA8C35BDF74FC9E1AC4BBBC4CCE7A3B3B5872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

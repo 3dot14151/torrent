@@ -19,8 +19,7 @@ PCStitch - профессиональная версия программы дл
 ```bash
 magnet:?xt=urn:btih:59AE2C37E3EF8383625FB8D87B465B9A36D9B411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MOBILedit! - уникальная модульная программа, кот�
 ```bash
 magnet:?xt=urn:btih:F2189918A078AEFE0FF5B9B53E3D23E87127D7D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WinDjView — лёгкая, но функциональная программа
 ```bash
 magnet:?xt=urn:btih:876393517FC0EC6ECCED09BDA9D859C655639872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

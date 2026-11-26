@@ -19,8 +19,7 @@ LibriVox Аудио книга Сторонник предлагает неог�
 ```bash
 magnet:?xt=urn:btih:591D1C56BA4A17D2A504509EE394B274F8ABDD51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

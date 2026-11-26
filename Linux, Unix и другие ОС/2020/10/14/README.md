@@ -19,8 +19,7 @@ antiX - легковесный LiveCD-дистрибутив Linux, создан
 ```bash
 magnet:?xt=urn:btih:09051CD747A7207D190EC624A046EEB40AF4FF39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

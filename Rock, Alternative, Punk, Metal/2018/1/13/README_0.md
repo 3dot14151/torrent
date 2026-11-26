@@ -22,8 +22,7 @@ Iron Fire - Among The Dead (2016) [FLAC|Lossless|image + .cue] <Power Metal, Hea
 ```bash
 magnet:?xt=urn:btih:0FBB120122EEE71E9A95AD4E06F0345D333E797B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Evans Blue - Letters from the Dead (2016) Not On Label, US [MP3|320 Kbps] <Alter
 ```bash
 magnet:?xt=urn:btih:26E696603AD82F4BB5A61F2308EB0A9252578C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Awesome 80's Volumes One, Two & Three (2004) 3CD, Compilation [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:C5CE8D3CE1B2CD813D5D7AF8579FC1D569DEAC8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pink Floyd - Wish Yоu Were Неre (1975) Reissue, Remastered, 2017, Japanese Ed
 ```bash
 magnet:?xt=urn:btih:09CEE0DB07353A377295107F53C77FFF41714FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

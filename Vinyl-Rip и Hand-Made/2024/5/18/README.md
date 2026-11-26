@@ -22,8 +22,7 @@ A4 Persephone(   Читать дальше...   )Жанр: Ethereal, Post-PunkП
 ```bash
 magnet:?xt=urn:btih:F88E39BD6C7A5C708763044BE006C15D8662A670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Si On Chantait(   Читать дальше...   )Жанр: Pop, Sound-alike�
 ```bash
 magnet:?xt=urn:btih:C668C239C5237EF2C9AC043A292F1035680A2DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kobra and the Lotus (KATL) — канадская хэви-метал групп
 ```bash
 magnet:?xt=urn:btih:F27B09F64047BFF22507B494009DECF1D777AD80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

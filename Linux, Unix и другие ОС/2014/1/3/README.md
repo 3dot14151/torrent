@@ -19,8 +19,7 @@ CAELinux - это дистрибутив Linux с открытым исходн�
 ```bash
 magnet:?xt=urn:btih:546C6CBCD2E47760B2874E3F60AAA78D863AF179
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

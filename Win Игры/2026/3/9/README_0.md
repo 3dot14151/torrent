@@ -19,8 +19,7 @@ Legacy of Kain Defiance Remastered (2026) [Ru/Multi] (2.0/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A1C39308765CB44D915CC6F35CC3A03C1E955F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mirage 7 - это мрачная сказка, приключение от тр�
 ```bash
 magnet:?xt=urn:btih:3FC994FD5A3C7AF7AF6AF4BD0A6B70E89D58CC19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Craftlings (2026) [Ru/Multi] (1.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BD22C8169B2044484817B1E0B4FF3D71C2B35929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tiny Robots: Portal Escape - это захватывающая 3D-игра-го�
 ```bash
 magnet:?xt=urn:btih:40171CD573E660BE2420C9742E4B3D44BC357C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Streetdog BMX – спортивный экшен с огромными карт
 ```bash
 magnet:?xt=urn:btih:993715ED7010D7B0BA6D7C071B8ADA61FA6FD69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Big Hops - 3D‑платформер, приключенческий экшен 
 ```bash
 magnet:?xt=urn:btih:2291B3823256C4CB3958C393294C04B609BB5748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Login - это приключенческая игра мистерия × хо�
 ```bash
 magnet:?xt=urn:btih:0F4B08D5C40C8D7E26D77FD1E818D2E43BC5C4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ WW2 Rebuilder - симулятор от первого лица, дающий о
 ```bash
 magnet:?xt=urn:btih:FDB5F6CF93C874E9C964958A0959AC47A0D30766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:9B94B126A7B186FBCFAF8E616E43AB814A98E0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Choice of Life: Samosbor (2025) [Ru/Multi] (Build 21269692) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7D678CC00A2E4A80926DD6E4771C5455F9438776
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Pioner - это MMO-шутер от первого лица с открытым 
 ```bash
 magnet:?xt=urn:btih:2E7ABEB8E7E6CB2C5116B8F01F0B0CF262A2590B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Clothing Store Simulator (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B0F9148613EAAFC975D9C9C6AD8EAC7020D5D258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Boat Together (2025) [Ru/Multi] (1.2.2) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:4A41A5EBE2729448084855623529F43EF8C0C263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Atomic Owl (2025) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:9641ED3DFE4F111F36BF2438B6E9E4C874617E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Exotica 2: Pet Shop Simulator (2026) [Ru/Multi] (1.0.9) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0E1B200FC9ED23CEA8D2054B52E559ADAAFAF551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Avowed (2025) [Ru/Multi] (2.0.0.0/dlc) Repack HardwareMining [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:73AA0BD51DABFAF2C4BB4346958D101ECE9307D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Disciples: Domination (2026) [Ru/Multi] (1.5.0.3413/dlc) Repack Decepticon [Delu
 ```bash
 magnet:?xt=urn:btih:D1E7542C719BD3859B149BE107BCBE2D6172A134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Resident Evil 4 Remake (2023) [Ru/Multi] (Build 22154679/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:8753D73BA8F14670165607EA79CD38D6FB7B3308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

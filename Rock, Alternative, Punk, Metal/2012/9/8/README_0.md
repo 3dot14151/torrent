@@ -28,8 +28,7 @@ Cosmos - Mind Games (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:C5C16D2FB0EE1F18DCE995443821A0B40E02F5B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Liv Kristine - Libertine (2012) [MP3|320 кб/с]<Pop Rock, Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:7CB29F5D9CE94A0452BA9A2E5EBD1D058C843D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Katatonia - Dead End Kings (2012) Limited Edition [MP3|320 кб/с]<Doom, Depres
 ```bash
 magnet:?xt=urn:btih:886DA4369E401B8899E6443E8E7DE3D3154EAE1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Roxy Music - The Complete Studio Recordings 1972-1982 (2012) 10CD Box Set [FLAC|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Billy Talent - 5albums + 4EPs + 10singles (1994-2012) [MP3|320kbps] <Alternative
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

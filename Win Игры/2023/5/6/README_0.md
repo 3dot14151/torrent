@@ -19,8 +19,7 @@ Before I Forget - детективная история, рассказываю�
 ```bash
 magnet:?xt=urn:btih:0DA4DFA39163AA291234950E32ED15EDA2A54FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

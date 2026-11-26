@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:CEBFC41C03E4A1820AB0DA97DDC1D8A3392D47E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fastway - Fastway + All Fired Up! (1991) Remastered, 2000, guitar Fast Eddie Cla
 ```bash
 magnet:?xt=urn:btih:15FD2982F6FA5198413BFDAB5B4A2C0615B27958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

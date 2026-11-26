@@ -19,8 +19,7 @@ Ravenous Devils (2022) [Ru/Multi] (1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F7BA0D93DA776448D97EE8E516793D4881740675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

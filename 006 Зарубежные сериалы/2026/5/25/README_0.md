@@ -19,8 +19,7 @@ NCIS: Los Angeles – драма о сложной работе – наблюд
 ```bash
 magnet:?xt=urn:btih:B418879EFC1D2D2184DD9870A0B718063F69AB78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ TestMaker / Создатель запоминания v10.5.1 Mod by PieMods [Ru
 ```bash
 magnet:?xt=urn:btih:CA1519D83B8C34FAFF8936A15EA054D940059CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DD91C27BB1D15D3CD7EA53D21B164309F153643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Motivation - Каждый день v4.79.2 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:97D22D022A3930BD7360B7D4AB8A1CA38B32A5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

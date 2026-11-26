@@ -19,8 +19,7 @@ REPUNK - одна из таких игр, которая предлагает з
 ```bash
 magnet:?xt=urn:btih:65E4B6DFB60F92593A0CE2EB7BCDDC038FC068EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 ```bash
 magnet:?xt=urn:btih:EF6AB86AFA86DCE8BE48FB37D5CED98E152E552E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Reverse Collapse: Code Name Bakery - тактическая RPG, события 
 ```bash
 magnet:?xt=urn:btih:62168075F11EAF25DAB8E76630921B4C3313F3E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

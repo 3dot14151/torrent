@@ -19,8 +19,7 @@ Marten Deinum, и др. | Spring 6 Recipes: A Problem-Solution Approach to Sprin
 ```bash
 magnet:?xt=urn:btih:9EE4C63524B9BAD144E307373EBEA1637513077D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Federico Kereki | Mastering JavaScript Functional Programming, 3rd Edition (2023
 ```bash
 magnet:?xt=urn:btih:1D60C7615AF2E2BE4B9020B609FE4A897AB40D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:16E89A55FC201EEB7E2B2E4F010CF84981E15F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:15C01A611C7C278D591590862FD7F61F140FD031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

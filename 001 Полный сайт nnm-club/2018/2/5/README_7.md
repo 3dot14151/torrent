@@ -22,8 +22,7 @@ Aloner Station - Overcreate World (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:CBA32C875B61F044215FD35D15EACF4FDDED8F4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - afterlights (2017) [MP3|320 Kbps] <Trance,House>
 ```bash
 magnet:?xt=urn:btih:06F4E11D8B034246BC8A32E1F28CC6340FA82C93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Chilling Sounds, Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:AD035827067766165F5F71065ABA7452EC4F809E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - United Colours Of Trance Vol.10 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:61821A1B325855524EFC295A8E78179DF3693F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [MP3|320
 ```bash
 magnet:?xt=urn:btih:E6D035FC7092744EA435C279F9E39D37A1720BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C6E6730951969DB9E61C72F8EC592D824A10419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ The Modern Jazz Quartet - Concert In Japan, Vol.1 (1966) 2014, Warner [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:6F006D607F6A4645D5E62CFEFAFACF72F145F540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Laura Branigan (Лора Брэниган) - Memories (1978) 7", Single, Not On 
 ```bash
 magnet:?xt=urn:btih:B05E6CE5E6C625689B94DB956724E6B0991EBEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Blindstone - Датское Трио , сформированно в 2002 (Thist
 ```bash
 magnet:?xt=urn:btih:547F41845EB3D4CE5C0B6041C815551E7FF4C6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ Blindstone - Датское Трио , сформированно в 2002 (Thist
 ```bash
 magnet:?xt=urn:btih:6221A16647A409B18A3027FA1A9EE98825C1B101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Blindstone - Датское Трио , сформированно в 2002 (Thist
 ```bash
 magnet:?xt=urn:btih:FEB00B3C27EF64FDE93D8EF4538842A55C17B335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:644B707FB446907C7A48C3BDB7CEA5687016D5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ VA - Best Of Progressive House Vol.01 (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:CC449E5DDCC6938C907EFF5B7DA8C57C23B8E7C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3340B9F3A4CCF65CC0AAD8C11FCFE5599A4328C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBE9120191210754121FAC59FE66BB6726043ABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ PDF Expert - это один из лучших инструментов для �
 ```bash
 magnet:?xt=urn:btih:F059D2BC09C3E5EC4B97388CD49506DFFE229886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E443B33B2C7603C58DF42667EF209208A0513CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Ought - Room Inside the World (2018) [FLAC|Lossless|tracks + .cue] <Post-Punk, R
 ```bash
 magnet:?xt=urn:btih:23F762933181B25BF9B67A6BFA728ABDB613A677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EF3BE176595237EEDB25704D7643DF4D0F91032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7C73D249461A5F991EB7AB88770F2E43E5DC8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ Peter Karp & Mick Taylor - The Turning Point (2004) BackBender Records [MP3|320 
 ```bash
 magnet:?xt=urn:btih:F53E8E8B78B852DC4A25E825F6BCC7922CF30A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A093AB190FC9BCD814A8B32112E8CD15A7BAA365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ Headphone Science (Forbid, HdSc) - Discography 15 Releases (2003-2017) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:7BB109725B8955CAFFA8FE78642B22A910213877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82A5308C762F1A7B251FD01748F9AE642F2ACDE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F09C31C420A07D5A7BA7704A61A3ECEF775F7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ Laura Branigan (Лора Брэниган) - Gloria 2004 (2004) EP [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:40FBCADB8478EC567D5C084B0818EE1B53C9025E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

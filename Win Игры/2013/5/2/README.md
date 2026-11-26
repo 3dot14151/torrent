@@ -19,8 +19,7 @@ Shiver 3: Moonlit Grove Collector's Edition (2013) [En] RePack
 ```bash
 magnet:?xt=urn:btih:CCA7337BB86EF767927AA670E5DD4BFB73779D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Painkiller Hell & Damnation (2012) [Ru/En] (Repack/1.0/8 DLC) 2012 | R.G. Origam
 ```bash
 magnet:?xt=urn:btih:7B260A5E5E35BBB2BEF6DF342FED9732F9243963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Star Trek (2013) [Ru/En] RePack R.G. Games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

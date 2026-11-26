@@ -19,8 +19,7 @@ Victoria (2003) [En] (2.0.0.1/dlc) License GOG [Complete]
 ```bash
 magnet:?xt=urn:btih:0FC62B34C64B366361151F740CF2E0B2EAEC41F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

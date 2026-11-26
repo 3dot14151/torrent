@@ -19,8 +19,7 @@ Mixtape - это музыкальная приключенческая игра 
 ```bash
 magnet:?xt=urn:btih:F6452287A015BE51641A604AAEAAA906D618B1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Repack Other s [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:4D832966836D7F10FF0DC95836F43CDD918184EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Call of the Elder Gods (2026) [Ru/Multi] (build 23095004) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:56B640036BD385A040BF34A879EB146587E722C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ HELLBREAK - это хардкорный шутер от первого лица 
 ```bash
 magnet:?xt=urn:btih:401090D2E977FA6F6C49C0E0B78ADDEDFDE63F62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MotoGP 26 (2026) [Multi] (1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:73ECD5E86BC5EA4E216FF5862F422BD0FE6C693D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mafia: The Old Country (2025) [Ru/Multi] (1151882/dlc) Repack Let'sРlay [Deluxe
 ```bash
 magnet:?xt=urn:btih:007FCA0A0B347B71FD05B15C6C3FC4F300EA9EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mafia: The Old Country (2025) [Ru/Multi] (1151882/dlc) Scene voices38 [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:29096FA83842B04FFE3469762026307AC7074B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Mafia: The Old Country (2025) [Ru/Multi] (Build 20951841/dlc) Repack FitGirl [De
 ```bash
 magnet:?xt=urn:btih:72D8096F192D44565F0896209AC1BC588243A559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Mafia: The Old Country (2025) [Ru/Multi] (Build 20951841/dlc) Repack seleZen [De
 ```bash
 magnet:?xt=urn:btih:957768284BD5043D644A166E06515ECEAEC14B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Aztecs The Last Sun (2025) [Ru/Multi] (1.0.0/dlc) Repack Let'sРlay [Digital Sup
 ```bash
 magnet:?xt=urn:btih:2B2AC9DD52942E9A63C1C7F779327B6A80433F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Black Myth: Wukong - ролевой боевик по мотивам китай�
 ```bash
 magnet:?xt=urn:btih:BA4858676694E5E06BE43594258A65AB8D1A4891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Ground Zero (2026) [Ru/Multi] (Build 22973139) Repack Other s
 ```bash
 magnet:?xt=urn:btih:91B515BBFD594422BFC11FB460A861ED838A44CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Metro 2033 / Метро 2033 (2010) [Ru/Multi] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:39DFE32A1269D2A339EA419A256F1C7D14206A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Subnautica 2 (2026) [Ru/Multi] (0.10.0.113109) Repack SE7EN [Early Access]
 ```bash
 magnet:?xt=urn:btih:319AE708DEFAD86CE8892B8EEBCCB581F29952C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:07F548D2973A0580E9DB8F671E3FEF4C778ACCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Outbound (2026) [Ru/Multi] (1.0.5.810/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:0282C1E140061F3A8FC7A9FC428402167C9B8F0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Vultures - Scavengers of Death (2026) [Ru/Multi] (1.0.1/dlc) Repack Let'sРlay [
 ```bash
 magnet:?xt=urn:btih:DA69375D216864013BDCF634F2628BBAD3B166C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

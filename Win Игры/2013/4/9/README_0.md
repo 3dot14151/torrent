@@ -19,8 +19,7 @@ Theatre of The Absurd Collector's Editon / Театр абсурда. Колле
 ```bash
 magnet:?xt=urn:btih:EF1A1A9B4A57BA8CC60D8F3936B49DDC7335464D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Epic Battle Fantasy III (3) [En] (L) 2010
 ```bash
 magnet:?xt=urn:btih:5567FB91F44EF1D03B54FC062DF0D4A97A43E5FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Epic Battle Fantasy IV (4) [En] (L/1.0.4) 2013
 ```bash
 magnet:?xt=urn:btih:E64A38CD3AA600925295690E8E497BC703D9038E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ DreadOut [En/Id] (Demo/1.0.107) 2013
 ```bash
 magnet:?xt=urn:btih:8187908614E6414FBD87E077ED83F83399031EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

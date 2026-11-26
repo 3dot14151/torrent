@@ -19,8 +19,7 @@ Cursed Cases: Murder At The Maybard Estate / Проклятые дела: Уби
 ```bash
 magnet:?xt=urn:btih:6D6E1FB08AF47606AD5FD12DD9600AB8D16B374D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Super Cloudbuilt (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:2CA9FE510C9A055FB3A19100B8FD7DECBE989564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

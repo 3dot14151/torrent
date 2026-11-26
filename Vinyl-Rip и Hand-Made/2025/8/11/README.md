@@ -22,8 +22,7 @@ Leah - (Leah McHenry) Лиа МакГенри, известная под псе�
 ```bash
 magnet:?xt=urn:btih:FB48463A61754806ED3BA12E4EA291E05A389F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B2 - Like A Perpetual Funeral(   Читать дальше...   )Жанр: Doom,
 ```bash
 magnet:?xt=urn:btih:7F593CED2C587AC2E79F1DA820378594F985D6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tra
 ```bash
 magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

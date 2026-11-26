@@ -19,8 +19,7 @@ SoftPerfect WiFi Guard - необходимый инструмент для вс
 ```bash
 magnet:?xt=urn:btih:B50AEE03FBBF48EB06F79B15551379D8D76B13C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

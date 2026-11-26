@@ -19,8 +19,7 @@ PDF Combine - надежный инструмент и незаменимая п
 ```bash
 magnet:?xt=urn:btih:AED29A182DD63C2A640C4B967858F5C24C5BF34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Screenshot Captor - мощная бесплатная программа для 
 ```bash
 magnet:?xt=urn:btih:184903C69882E1614166BB4DB902D08C3108EF29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

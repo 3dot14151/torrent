@@ -27,8 +27,7 @@ Gary Burton Quintet - Dreams So Real: Music of Carla Bley (1976) [FLAC 2.0 24/96
 ```bash
 magnet:?xt=urn:btih:C70F9CE2B0B3DCEBA8876BBE3100B5A5D0425109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Elvis Presley - Our Memories Of Elvis (1979) [FLAC 2.0 24/96|traks(Vinil-Rip)]<R
 ```bash
 magnet:?xt=urn:btih:8AA570B4A405ABB69A5FE4F54E2857DEE7564F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

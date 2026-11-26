@@ -26,8 +26,7 @@ VA - Легенды Музыки Кантри (2000) [FLAC 2.0|MC-Rip]<Rock, Fol
 ```bash
 magnet:?xt=urn:btih:DC93D2B2D5B31957BEF83DC222E7B3AD997754AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark City 3: Vienna / Мрачный Город 3: Вена (2019) [Ru] (1.0) Un
 ```bash
 magnet:?xt=urn:btih:B54FC321DBF84423B457799C9C789A38B99F2A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fictorum (2017) [En] (2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:21B3A60FC76CDD6A3FD69982FF57D3F343152E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

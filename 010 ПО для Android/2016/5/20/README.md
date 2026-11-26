@@ -19,8 +19,7 @@ OttPlayer v2.0.9 [Ru/Multi] - бесплатный плеер для просм�
 ```bash
 magnet:?xt=urn:btih:171E8030381AB73EDC922E5A00674A5E53897061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Maya Shavin | Frontend Development Projects with Vue.js 3 (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:DF49A446DDA802F13EFD56DC9D8ABDF99DFFAFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

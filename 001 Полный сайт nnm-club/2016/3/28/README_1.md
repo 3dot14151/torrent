@@ -21,8 +21,7 @@ VA - Black Hole Recordings presents: Best Of Vocal Trance Vol 1 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:A3000ABAE006F4EDE75D1EC7534D06692D3864FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2411D8858A1D181EF86BD86C764FD363A2E29FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Tatiana Sergeeva - Russian Harpsichord Music of the XIX century. (1997) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:89568C70D7B25A25D5CCBABFC64047DEC1000D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39B0E0BEB5D735A2B7802A125CAA505A04834EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB98CC34B1916487BCAD1D6A8CC985A75590F319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ WANT/ed - Fringe (2016) [MP3|320 кб/с] <Synth Pop, Coldwave>
 ```bash
 magnet:?xt=urn:btih:D75EC50F23D4E008031E771D1B64D8F2BB288141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Yahel - Dawn Rises (2016) [MP3|320 кб/с] <Psychedelic, Progressive Psy-Trance
 ```bash
 magnet:?xt=urn:btih:6ED6DB5376EBBAE67DCB8D83871A0ADFC5A830B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AE389025C35C5A9A8F24E899E4D49BE17F58037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Troga - Translate. Forget. Recall. Repeat 1.7.8 [Multi]
 ```bash
 magnet:?xt=urn:btih:A34713968D449AF5E290E5AAB4BEBD3817B1E9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ Ton Koopman, Musica Antiqua Amsterdam - Haydn: Complete Harpsichord Concertos (1
 ```bash
 magnet:?xt=urn:btih:43AB370F7B676719C03A0ED65CBB97F42186F315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE3DB03514296F53ECC9BDA8CEE69DA1C9306D7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ Exif Editor - это программа, которая позволяет чи�
 ```bash
 magnet:?xt=urn:btih:A1B5A44D2272C42BA26023D1B18CCBD75D376A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Zuzana Ruzickova; - Harpsichord music from England, Spain and Portugal (2012) 2C
 ```bash
 magnet:?xt=urn:btih:B89033A90870DD6DD08950D46F234421365168DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F99FA82B092B30C963F36A543E75D2C5D4D3625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ AdwCleaner - программа, которая ищет и удаляет ре�
 ```bash
 magnet:?xt=urn:btih:C923442BC5F1C2FF8DC746DED6DEA66E33008337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BB5A7B528ABFDAF688A3DB78DA31F17665A0D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Francesco Cera - Trabaci: Music for Organ and Harpsichord (2014) 2CD [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:1F56C57511DF84C1612465605996BC2EEC2ABAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DC2C63BBDDE15A868624643789910B391D9F569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ Gino Soccio - 4 Albums, 1 Compilations (1979-1984) [MP3|320 кб/с] <Electronic
 ```bash
 magnet:?xt=urn:btih:7DAD71CD24641937B09847B2D363A767FCE3BA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ VA - The All Time Greatest Rock Songs Vol.1 (1998) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:D5F0F863508E0B70F348D1904D31F7BF3548AE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ iWatermark - отличный инструмент для каждого бло�
 ```bash
 magnet:?xt=urn:btih:202234B07B9E6F091725617E5E6CB61803771488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:103E1B5EB034083B951A06AF37D200C09F8C0C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAA33A1BD01600CE338F3112214A7F9A7E3C9928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ VA - Dubstep 100 Top Hits Bass Blast DJ Mix (2016) [MP3|320 кб/с] <Dubstep>
 ```bash
 magnet:?xt=urn:btih:53DFD301148E36C4F428475ACCBF5B60A936C739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ Reg Organizer® - многофункциональная программа дл
 ```bash
 magnet:?xt=urn:btih:C0CF27ABB8376AF6B945F0C8ABDBE9A4E0A170DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ Tipard Total Media Converter - простая в использовании пр
 ```bash
 magnet:?xt=urn:btih:74B50D1680DD78733E431CBEE8A68F6FAFB9C0D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Borderlands (2019) [Ru/En] (1.5.0/dlc) Repack xatab [Game of the Year Enhanced]
 ```bash
 magnet:?xt=urn:btih:07BCFC7245878865467F5C2F7BCF5E6C5A5682EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Ascent - экшн-RPG в духе киберпанка с режимами �
 ```bash
 magnet:?xt=urn:btih:73374A86543EA43065F48B4D2475C46B3F33BB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.42909/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8C78D5F214F07B3ADEEEB2F93B312848E2D3BA76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:124F29C10EF2B611A725C1951686E7E3E69B6F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Edge of Sanity - психологический хоррор на выживан
 ```bash
 magnet:?xt=urn:btih:F0996ED62E993C6B77987D88B60CBDAF7B94ABD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Abnormal1999:The Compass and the Sand - это загадочная голово
 ```bash
 magnet:?xt=urn:btih:03EA3732CCE2A4619266FF8E36B2161B3FC8E657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:C36AA41C18171D67EAA68AA79CB0799A580FA063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.42909/dlc) Repack FitGirl [Digital Deluxe Bun
 ```bash
 magnet:?xt=urn:btih:8DFC4EAF2C3E196373DE55FBEDF15799ED273220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

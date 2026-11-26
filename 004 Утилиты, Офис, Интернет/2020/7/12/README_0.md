@@ -19,8 +19,7 @@ AlfaReader - легкий и быстрый для чтения электрон
 ```bash
 magnet:?xt=urn:btih:4407727BEB98BE949E2411E3F4121A53DA7CACCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

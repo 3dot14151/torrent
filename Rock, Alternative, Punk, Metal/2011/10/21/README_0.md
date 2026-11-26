@@ -28,8 +28,7 @@ Origin - 5 альбомов (2000-2011) [APE/FLAC|Lossless]<Technical Brutal Dea
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pacifist поможет определить, каким инсталлятор�
 ```bash
 magnet:?xt=urn:btih:1DF89E1EAD37CE9F8078BD27E3611BE3E3CDC428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Compact Jazz - Best of the Jazz Vocalists (1992) [FLAC|Lossless]<Jazz Vocal
 ```bash
 magnet:?xt=urn:btih:7BC933B74F7A658F6609868D17DA4D318A3173AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCCCC4393FFC7B758604C94164E28CDBF76772D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Decembre Noir - A Discouraged Believer (2014) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:46CD99F5B8E5AD15302F8B420C4ECE0D6AD7CFED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD5D87F0F0E4771EB984670849A318BB7DA306DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ Wellenrausch - The Pages Of Time (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:2E207A85FF0A90BFD6FA71C9456C111F9F05F66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8476CB20D0E3CD2A0F8E65824D712BD1101FFCD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Manager & Afro - Beats Conspiracy (2014) [MP3|320 кб/с]<Deep House/House Nu/D
 ```bash
 magnet:?xt=urn:btih:7B8CD38FEE8780239E030751E0B10F6F1770A47F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86D5036B1295FF310B0271A6D10C657C9BB34738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A9EE6AD868A8DDA9777F70BF1488C837D591ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Fission - обрезка, склейка и конвертация музыка�
 ```bash
 magnet:?xt=urn:btih:7E2A08DDE302ADD0D7BB812FBB9E26DC96B8BA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5510D4C44F0F3C9CC8EEA2B26570B35281D29FB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Dark Forest - The Awakening (2014) [WavPack|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:E8FFEED0342A9A0CC8C7527F45B49E22F883BA5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ Television - Marquee Moon (1977) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:AA228023D69F5A7291CD452AB64796C35ECD4B61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +452,7 @@ The Guess Who - American Woman (1970) [MP3|320 кб/с]<Classic Rock, Blues Rock
 ```bash
 magnet:?xt=urn:btih:B1CD6B1906CA8B79E156BAB832A5AC8C1FCC21A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7EAFA995894092816982ABFB233A9640BB8DE40A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +509,7 @@ Bigasoft Audio Converter - простая в использовании прог
 ```bash
 magnet:?xt=urn:btih:62364B46C1F5CA69DE1F90D11E00EBC903143FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D12844A1E72EDD461D41E6268FFEB497C774D2DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:606000B2B15305326FCA63AB3553FFD573812108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ The Bat! защитит вашу информацию различными ме�
 ```bash
 magnet:?xt=urn:btih:696A2D742B7757D1C6B5AB3EACC2BB262AF5A380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ Solar Fields - RED (2014) [FLAC|Lossless|WEB-DL]<Ambient, Psybient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:CE3E71278ECCE09DFE49503387572E6836F3950F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +652,7 @@ VA - Зарубежные Новинки Vol.164 от AGR (2014) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:260A5CE5BB365BC2CAF55019FE9BB19BF6CD6E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +677,7 @@ Process Lasso Pro - позволяет вручную или автоматич�
 ```bash
 magnet:?xt=urn:btih:2C69883AE4395B99A0C43C8586D2705085C88BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +711,7 @@ VA - Best Of Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:48BEE3A033C09D36C19655874DDE3CEE6D324FED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2C322986539993311A4086ED3A3A90CF8ACF4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

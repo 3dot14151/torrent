@@ -22,8 +22,7 @@ Various - The Best Of '70s Rock (2009) 4 x CD, Compilation [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:F203A76E7161D41C9712D2E3CE8BA8166D831DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

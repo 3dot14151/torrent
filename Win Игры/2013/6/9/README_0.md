@@ -19,8 +19,7 @@ Dark Dimensions 3: City of Ash Collector's Edition / Темные Измерен
 ```bash
 magnet:?xt=urn:btih:B3A129D26C950DE74FF58F08D55F6A0900840058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

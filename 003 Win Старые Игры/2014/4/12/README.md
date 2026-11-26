@@ -20,8 +20,7 @@ Total Overdose (2005) [Ru/En] (Rus/Eng) [Lossless RePack] от R.G. Origami
 ```bash
 magnet:?xt=urn:btih:ED1DC64FD5C93B309C64F6F8B0B927EE53595291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

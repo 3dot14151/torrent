@@ -22,8 +22,7 @@ A4 Move That Wigwam(   Читать дальше...   )Жанр: Prog Rock, Psyc
 ```bash
 magnet:?xt=urn:btih:E47247469E0A25306EB49CF100F5E6AFA75D7969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

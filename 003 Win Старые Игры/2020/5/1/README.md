@@ -19,8 +19,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 ```bash
 magnet:?xt=urn:btih:F2C06CFD0A0F2ECB52ABAECA75D70FF9E085D46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Warlords III: Darklords Rising (1998) [En] (1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:59F9CE9EE962DBDE1BEA35E14D663E9B439A09E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

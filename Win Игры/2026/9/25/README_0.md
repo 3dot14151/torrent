@@ -19,8 +19,7 @@ Cities XXL (2015) [Ru/Multi] (1.5.0.1) Scene PROPHET
 ```bash
 magnet:?xt=urn:btih:1C274AF7000E5A8C8AD55A1F15E3663D45EC3C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SiN: Reloaded от Nightdive Studios - это полностью перераб�
 ```bash
 magnet:?xt=urn:btih:3F031989CB378AC8C278F79E855B366194200D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ CONTROL Resonant (2026) [Ru/Multi] (0.563.737.9/dlc) Repack FitGirl [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:55C096016160095F38DBF3F0C30A13EB901ED225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ CONTROL Resonant (2026) [Ru/Multi] (0.563.737.9/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B0097D78849676504D70CC0B397355892924C174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Graveyard Keeper 2 (2026) [Ru/Multi] (1.004.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2A49AC2983B113DC7AF2F98FA15379B34CF7370D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

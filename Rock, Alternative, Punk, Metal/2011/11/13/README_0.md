@@ -26,8 +26,7 @@ Sonata Arctica - Live In Finland (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:0BE87F58F5497B0373E6923C501425009A4E5007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B5F6CF22FD2F1CE1D17DDBBDFDC4663AB6EF01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Gotthard — швейцарская рок-группа, основанная С
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ VA - Heavy Metal Box (Box set 4CD) (2007) Limited Edition [FLAC|Lossless]<Heavy 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Elvis Presley - The Complete Elvis Presley Masters (30 CD Box Set) (First Run) (
 ```bash
 magnet:?xt=urn:btih:E9D126FCC5A34F7131E9678F5E8DBCB4D4D561AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Rammstein - Mein Land (2011) Single [FLAC|Lossless]<Industrial Metal / Neue Deut
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

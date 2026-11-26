@@ -21,8 +21,7 @@ Slackel KDE-4.10.5 Live [x86, x86-64] (2xDVD)
 ```bash
 magnet:?xt=urn:btih:43C6EA4A3381248625EADFFBA8121C9B130FB0AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Slackel Openbox 6.0 включает в себя текущую ветвь Slack
 ```bash
 magnet:?xt=urn:btih:BB3B19E3DA135DBEECB5960744F73375CF88576D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Jondo Live-CD / DVD предлагает безопасные, предвари�
 ```bash
 magnet:?xt=urn:btih:0B52AD052098AFBF1EF85D4EBFA54BD0C4255935
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Tails 0.23 RC1 закрывает очередные выявленные уяз
 ```bash
 magnet:?xt=urn:btih:4CDB516953B06DDED0A535F859CD7D2D685CE9C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

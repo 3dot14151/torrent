@@ -21,8 +21,7 @@ BLAP.RU | SEO монстр (Сборник мануалов) [2011-2013] [PDF]
 ```bash
 magnet:?xt=urn:btih:D911686C5EA48B9AB050C3F5700B5842879D0E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E54807970A331B6F2A8A319D405268AAAD799F73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

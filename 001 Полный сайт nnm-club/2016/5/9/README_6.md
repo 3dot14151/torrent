@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C1D9FB7CBAAA6B196D3B0D8C27891058CBE7D265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97FF3D86682D532177A56B21A38972DF65170B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66DFEF805940A183912A78ACE0E8CE6D214BB84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pathologic Classic HD / Mор Утопия HD (2015) [Ru/En] (1.03) Repack R.G. 
 ```bash
 magnet:?xt=urn:btih:650CC6E514F87D9085595C51C66D5753B6148EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ JPEGView - бесплатная и свободная программа для 
 ```bash
 magnet:?xt=urn:btih:29F03D76293CFB552908F20B1A9B30A615D5F72D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ MiyaGi & Эндшпиль - HAJIME Part.1 (2016) [MP3|256-320 кб/с] <Rap, Hip
 ```bash
 magnet:?xt=urn:btih:6DD1D58B83BED1CD7BC0444A50D33661F84C1113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ VK Coffee - это функциональная реверс-модификац�
 ```bash
 magnet:?xt=urn:btih:52FDCD250569E9290275D98C9788D377613F998B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Gilisoft RAMDisk 6.6.0 DC 01.04.16 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D848E536DB94DB5D48CC92BC36531454F2AA32A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Kerish Doctor 2016 — комплексное решение для автома
 ```bash
 magnet:?xt=urn:btih:AEF319DD7110AFE826F576A505F05E6346F42049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ ABBYY FineReader 12 Corporate – программа для распознава
 ```bash
 magnet:?xt=urn:btih:D04DFA78DF5D8018CA1B1378AE7A26CEEE6307DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ ABBYY FineReader 12 Professional – программа для распозна�
 ```bash
 magnet:?xt=urn:btih:D4922131D16DBC8AA74B209BE33079563A51C1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC18853224C255764275708185BA7D16AD8084CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ ABBYY Comparator – универсальное решение для сравн
 ```bash
 magnet:?xt=urn:btih:A6558A4FDDC0CC28B9368D2FBC70B7734B9206FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ ABBYY PDF Transformer+ - программа, объединяющая полез
 ```bash
 magnet:?xt=urn:btih:53C01C5A5510B14C5223C7154C3077CA72BFDD28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ WebForMySelf | Joomla-Профессионал: создание расшире�
 ```bash
 magnet:?xt=urn:btih:0785D3AEC616E546D7C80CA0ACA8C115C6AEB1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ Kingo ROOT - Удобная программа, которая позволит 
 ```bash
 magnet:?xt=urn:btih:B6334E75489D01C19A42F06C60DA0118B8F26FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ P·O·L·L·E·N, атмосферная и таинственная игра, �
 ```bash
 magnet:?xt=urn:btih:F2909D1B939B3E08795D1E23EE390D4E3140461B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ Bombshell (2016) [En] (1.2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:818014C83387E15682F2154C74945F32B75EF032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ VA - EDM Megamix (2016) [MP3|320 кб/с] <Dance, Eurodance, Club House>
 ```bash
 magnet:?xt=urn:btih:F1CD974309B0B5ED1820E3FA16E8A07FD744B6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ ABBYY PDF Transformer+ - программа, объединяющая полез
 ```bash
 magnet:?xt=urn:btih:F0ECA547BE9FDE3482391FB5C4B569F1B24A6436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ Kaspersky Reset Trial - Программа для сброса триала (д�
 ```bash
 magnet:?xt=urn:btih:BCEF6442B19887A00C23C869EC042EFA5232E3DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ Thief (2014) [Ru/En] (1.7 build 4158.21/upd8/dlc) Repack =nemos= [Master Thief E
 ```bash
 magnet:?xt=urn:btih:645D869F3C8AB8952EDE07160537EBCC9A2EB79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ Need for Speed The Run — гоночные состязания, ставка �
 ```bash
 magnet:?xt=urn:btih:756AB4D974AB07311B6A86E90AA3F60011D68B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The End Is Coming - Ультрадобро (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:53B214C65F22AAD9A84DABF73DB272B555F0901C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

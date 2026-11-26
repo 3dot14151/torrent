@@ -19,8 +19,7 @@ Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
 ```bash
 magnet:?xt=urn:btih:6437FFBC83466B028F2FDDD63E19795B5E383E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C8633217AD5E4CBB4FB8109810C417DC4349F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Bible Book explores the ideas and beliefs key to the teachings of the most w
 ```bash
 magnet:?xt=urn:btih:CA330B06249EBF53C11E5DF42092E21AAD2B148E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

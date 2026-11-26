@@ -19,8 +19,7 @@ Race The Sun (2013) [En] (1.51/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DC414BE292CA7DAA6A1941729415BAD550DD77E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MX Nitro (2017) [Ru/Multi] (5.4.4.14695) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:E06DF1EAD6B8C75E6114D07228075A1AD2CEBD91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dreamfall Chapters — это сюжетно-ориентированная эп
 ```bash
 magnet:?xt=urn:btih:731099B06D2091F78A476A3614512AC839DDFB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ MX Nitro (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:24F87EB75874EF33DC85CA19125D22B5B21F2097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Revolve — это проактивный платформер. Вы играе�
 ```bash
 magnet:?xt=urn:btih:3F22B933D05DDEE4AA85FF4627344C6C4EEFCF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Critter Crunch (P) [En/Multi5] 2012 l THETA
 ```bash
 magnet:?xt=urn:btih:A6C5F556D610071275AF1462C357C34F38659676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Surfer сочитает в себе катание на серфинге н�
 ```bash
 magnet:?xt=urn:btih:E980723CFABC819FBA3434052D29E78AE7230BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Planets under Attack – новый проект компании Targem Games �
 ```bash
 magnet:?xt=urn:btih:9219BCD9C7506A14966CFD3C85315E00C9D49B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

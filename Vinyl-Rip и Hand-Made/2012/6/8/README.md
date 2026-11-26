@@ -28,8 +28,7 @@ Nightwish - Imaginaerum (2011) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Symphonic Met
 ```bash
 magnet:?xt=urn:btih:A0F4B5F9DB2CFC9640E30C53D1B632E8FC40D16B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

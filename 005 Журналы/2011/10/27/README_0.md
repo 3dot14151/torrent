@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B2DC1D409889DA19084525D82D5FEE100AFEE43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Digital Photo - лучший российский ежемесячный жур�
 ```bash
 magnet:?xt=urn:btih:4468A8FD5AD249BFB5065AD0770E3D7066DFB275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

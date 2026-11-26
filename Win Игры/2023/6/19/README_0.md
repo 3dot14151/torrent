@@ -19,8 +19,7 @@ Night of Horror (2023) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4C3C622B1F639C84C531D3F51579CAB97161413D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ How to Say Goodbye (2022) [Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:8D3BC59149320B71C0E3F0613AA63A8A1E4C48E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs / Мост в другой м
 ```bash
 magnet:?xt=urn:btih:A99A350E849F1D4ADEAD7D1DB47484B66B11882B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:ADCAE19CB3C9748F7C52E3A569586F261A5C65AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Frozen Shelter (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4600FA163C41310180D8EB61440D876979E2665E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Academia : School Simulator (2017) [Ru/Multi] (1.0.44) License GOG
 ```bash
 magnet:?xt=urn:btih:4A1540A61382915CFC67235953993443197212B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Impaler является динамичной стрелялкой, где по�
 ```bash
 magnet:?xt=urn:btih:EB4CEF4A0145528997E1B83FCA60198CA23A119B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Park Beyond (2023) [Ru/Multi] (1.0) Scene Fairlight
 ```bash
 magnet:?xt=urn:btih:A73FCDD390B535FF2BBB12D1CFEC4109C9547DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

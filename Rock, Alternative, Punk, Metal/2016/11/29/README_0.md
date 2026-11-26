@@ -22,8 +22,7 @@ Monomad - The Art of the Broken Mind (2016) [MP3|320 Kbps] <Avant-Garde, Thrash,
 ```bash
 magnet:?xt=urn:btih:9A9366D457BC5B6CDB54DFC32EC1F791D89DBBA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EEF4ACF97FAEDF5F427509E0E9ED9AF21CB73E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Roth Brock Project - Roth Brock Project (2016) [FLAC|lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:D1D4BD26B0BDE9C22879F69263F992968DBAC68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Napalm Death - The Best of Napalm Death (2016) [MP3|320 Kbps] <Grindcore, Death 
 ```bash
 magnet:?xt=urn:btih:0DF130DF53CA76EFCF24075697D625CC11EB7D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Black Pistol Fire - Black Pistol Fire (2011) [MP3|320 Kbps] <Alternative Rock, I
 ```bash
 magnet:?xt=urn:btih:A081C251E1D5E817AEA38FD8D27467819DD23F3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0ED90B83C9FA84F511B514AE44608648318E6ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Black Pistol Fire - Don't Wake the Riot (2016) [MP3|320 Kbps] <Alternative, Blue
 ```bash
 magnet:?xt=urn:btih:6F0ED174293767C475CAAD62E26A437BC22A4A28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Rolling Stones - Blue and Lonesome (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:3C58E9FDC4457B59BB8C48F8DCC3F588C88BD93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

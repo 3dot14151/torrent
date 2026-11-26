@@ -21,8 +21,7 @@ EarMaster Pro 6.1 Build 626PW Portable by portawarex [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DFB68EA53FB444F33BE7C98709ED19E939EC8F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

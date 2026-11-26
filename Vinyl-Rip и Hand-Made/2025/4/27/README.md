@@ -22,8 +22,7 @@ Deserted Fear - Death metal группа из Германии, основана
 ```bash
 magnet:?xt=urn:btih:21C1B5449B9176EF79ED55DB61B6E5471B823333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Love Me(   Читать дальше...   )Жанр: Soul, DiscoПродол�
 ```bash
 magnet:?xt=urn:btih:17A751D134EF10216D0672E86A9CF0ABB92AE83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A3 Solitude(   Читать дальше...   )Жанр: Heavy, Power MetalПр�
 ```bash
 magnet:?xt=urn:btih:E1AFE8A4F6945AFD155594B02F3F8C310A88B5CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Game Over - итальянская треш-метал-группа, основ�
 ```bash
 magnet:?xt=urn:btih:24A6567E962642C3F866FBED60522F4FEC33894C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Orbit Culture — шведская мелодик-дэт-метал группа
 ```bash
 magnet:?xt=urn:btih:CBEA716A3F1A52AED6BA3DF8A74558AD23FBDE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

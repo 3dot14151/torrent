@@ -19,8 +19,7 @@ Voodoo Vince Remastered (2017) [Multi] (1.0.0.1) License RELOADED
 ```bash
 magnet:?xt=urn:btih:65FC3D9D430C747CFDCAB656547D81D725A3D0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 ```bash
 magnet:?xt=urn:btih:C595E3817B03851962A7D8F218EC4858CA4F3EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

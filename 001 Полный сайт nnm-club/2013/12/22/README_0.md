@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CD53D6B01C6425916F037587F80CB9EF7DBCEF88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ CD.1. Wind Of The West (2007)
 ```bash
 magnet:?xt=urn:btih:316761F5A92237A0092B62C46C15F857F241D674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:2254CD19F6C184290DC0BB1133C124A65D1756DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Monica Ramey - Make Someone Happy (2010) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:21AAB4F96F690054A7FF758E1873B5E4232A2D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61A6B8195FE0219DA8BA501FEFC95A5BFD3B7020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ VA - Super Bomb Electro 39 (2013) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:568FD0CB4E288BBBBD8E24B7BF8F0042E48EDC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Tiesto - Club Life 351 (22.12.2013) [MP3|128kbps] <Trance ,Progressive House, El
 ```bash
 magnet:?xt=urn:btih:ADB4CA451333C0D1AA3C44DE97D8E531B8560285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B30467FE09ED083BD341F64E385CFD40DC2860D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A96AEF526DB4AD0FB88153FB954F8800F8549C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ VA - Open Water Chillout Tunes 1 (2013) [MP3|320 кб/с]<Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:F6CC03DF8E4E518A89E78FD02172C59527467A56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ VA - Winter Solstice (2012) [FLAC|Lossless|WEB-DL]<Ambient, Downtempo, IDM, Psyb
 ```bash
 magnet:?xt=urn:btih:8F03E207C38699762768F6E7B178FEFD165A17FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ VA - Chilled: Winter (15 Winter Chill Out Choons) (2013) [MP3|320 кб/с]<Downt
 ```bash
 magnet:?xt=urn:btih:832A9D11DAA962E6069DB00D36DE3E0714401197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +395,7 @@ Andi Deris & Bad Bankers - Million Dollar Haircuts On Ten Cent Heads (2013) [FLA
 ```bash
 magnet:?xt=urn:btih:74B1732A31EF60815574791F8E81942437079377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7268809034F3A72629A38D6583263DE941656111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +453,7 @@ Barque Of Dante - Lasting Forever (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:0E90049C1EC2B47438AA07BE849C7AFE6B4257E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B17319970FC72EF541C41050A730DE4B039C994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60879E0A80AE4FAB160AE54281001CADA66B5C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +541,7 @@ VA - Top 100 Trance (Vol.2) (2013) [MP3|320 кб/с]<Trance,Vocal Trance, Progre
 ```bash
 magnet:?xt=urn:btih:5B507E191FC4156828FA351A867B315A354BEC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46C3CE9342190AA539DED11FCBB6ED5875D74715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +592,7 @@ Discovery: Патрик Демпси в гонке Ле-Мана. Серия 1 /
 ```bash
 magnet:?xt=urn:btih:2F3C37696C92BC5E64811C52A3EE86F12579A19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A10F9948DBB8FFEB69C3C4EBA036A67F0E82F633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +651,7 @@ VA - Fun Radio: Funlist 2014 (2013) 2CD [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:891F31F810601AAF507BE441CD797D0516DF91BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:D506ED28B16FB5028695B0CF402894B2F419C3CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +712,7 @@ VA - Chilltronica No.4 (Compiled By Blank And Jones) (2013) [MP3|~245 кб/с]<C
 ```bash
 magnet:?xt=urn:btih:6B580ACC1F378B116767E20EBB666B2707DC3CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFFF7C0AB700AA7F7653915482A16D45CD385929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ Avicii - Wake Me Up (2013) HDTVRip
 ```bash
 magnet:?xt=urn:btih:811603F290BBA19ABA805086556F4A8F9A95A42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

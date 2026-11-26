@@ -20,8 +20,7 @@ Sons Of Eternity — метал-группа из Вюрцбурга, Бавар
 ```bash
 magnet:?xt=urn:btih:68643F3AC2ECED1FC8E98DBB3E14F78FDBD691C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

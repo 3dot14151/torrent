@@ -19,8 +19,7 @@ Nocturnal: Boston Nightfall / Бостонский ноктюрн (P) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:5FF7302E864B789C5BB19C7AB2C3D356B067C3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Echoes Of The Past 4: The Revenge Of The Witch Collector's Edition / Эхо пр
 ```bash
 magnet:?xt=urn:btih:286ED793138D413163A123B91DB0149388A8DE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Captain Morgane And The Golden Turtle [Multi5/+] (RePack) 2012 l Fenixx
 ```bash
 magnet:?xt=urn:btih:28E2ABD92E9A90791DA1DFA84FE22E0A2704CB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ MX vs. ATV Reflex продолжает и развивает игровую се
 ```bash
 magnet:?xt=urn:btih:57834C86EC0E550844E72DAD1E862A401C1B0312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

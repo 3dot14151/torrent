@@ -19,8 +19,7 @@ Unsolved Case 4: Above the Law (2023) [Multi] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:FBB09CCE08949FCABFC7CB17FCA18B33B0BDC752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Diary of Lucie - это сюжетно-ориентированный экшен
 ```bash
 magnet:?xt=urn:btih:AC60188FD7FF5CC3CE11983295E07DCFB218DA38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Fall of the Dungeon Guardians - Dungeon Crawler RPG с видом от пе�
 ```bash
 magnet:?xt=urn:btih:EDB94796D57B93B708C5F5BECB3F4C5946091114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Demonologist — это кооперативная игра ужасов, в к�
 ```bash
 magnet:?xt=urn:btih:D19DACFA38F00242E66E6791202CED5D36546033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

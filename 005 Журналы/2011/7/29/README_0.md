@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://www.nnm-club.me/forum/tracker.php?pid=720248
 ```bash
 magnet:?xt=urn:btih:A040F8E24CFCA208D8DF6A0A363C521D45175296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://www.nnm-club.me/forum/tracker.php?pid=720248
 ```bash
 magnet:?xt=urn:btih:C1F3BB7A97A7CF7021FFE529AF60D9FFACD08A50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Stereo & Video первым встречает и представляет са�
 ```bash
 magnet:?xt=urn:btih:02809296F0CA2C2203363B7FF0994090329331D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://www.nnm-club.me/forum/tracker.php?pid=720248
 ```bash
 magnet:?xt=urn:btih:E1BA9017711E50AE615758244AA350ECA25B1B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

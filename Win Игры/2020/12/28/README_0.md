@@ -19,8 +19,7 @@ Inertial Drift (2020) [Ru/Multi] (1.0) License SKiDROW
 ```bash
 magnet:?xt=urn:btih:642F0DA19F4CCEB1A7281FF56C0E20101DDBDCD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kerbal Space Program (2015) [Ru] (1.11.0.03045/dlc) Repack xatab (обновля
 ```bash
 magnet:?xt=urn:btih:F18B36125C3D150487E74DE4DE5AB52E5C83B04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

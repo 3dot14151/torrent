@@ -22,8 +22,7 @@ Bethzaida - A Prelude to Nine Worlds (1997) EP [FLAC|Lossless|image + .cue] <Dea
 ```bash
 magnet:?xt=urn:btih:92C693885BBE4004E821750F8FABEE987AF4ECFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kampf - Nothing But Wrath (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:4BFEEB9EE7B5B8CD315071C9D2E95B93B419B9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Anata:
 ```bash
 magnet:?xt=urn:btih:F59EF92865FE622FF594040C8B4F0CF2B54143FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bethzaida - LXXVIII (1998) [FLAC|Lossless|image + .cue] <Deathб Black Metal>
 ```bash
 magnet:?xt=urn:btih:FC175C95F9710820D37F251B7D191000CC84ADE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Unheilig - Das 2. Gebot (2003) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 ```bash
 magnet:?xt=urn:btih:A6711810F465EFCCE7734D6F8FA3404DD6B89439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Dies Irae - Ethereal (1998) Remastered-2019 [FLAC|Lossless|image + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:FC2828B347A37EA57CA288F2AE7CA62EF16230C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Unheilig - Frohes Fest (2002) [FLAC|Lossless|image + .cue] <Industrial Gothic Me
 ```bash
 magnet:?xt=urn:btih:FE41ED0AD2A548D50702ACF0BA6CD52DC4924124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Unheilig - Phosphor (2001) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal
 ```bash
 magnet:?xt=urn:btih:BEF3C6492A3212321980DC90B84B8A0A959277D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Cosmitorium - Broken Archetypes (2023) [MP3|320 Kbps] <Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:C5631C00FBFD3C06D15E34A3D449B744360348BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Unheilig - Zelluloid (2004) [FLAC|Lossless|image + .cue] <Industrial Gothic Meta
 ```bash
 magnet:?xt=urn:btih:742DC8FE85D289F5FF2ADE6DD157BA4AD1525902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Ignescent - Fight In Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Female 
 ```bash
 magnet:?xt=urn:btih:C3BEB8069E59B2EA40686BDBA842F4FD0C66491E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Unheilig - Moderne Zeiten (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic
 ```bash
 magnet:?xt=urn:btih:968BE11B7A34D8FD911AD876689E6361C1C67B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ In This Moment - Godmode (2023) [FLAC|Lossless|image + .cue] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:60DA928EFB765673B1B43A93E185CA4E0E5D4F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Foghat - Sonic Mojo (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:AB092F576854262E2D8A7EDD453921D837EC6F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Arrogant Destruktor - Written In Blood From The Blade (2023) [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:1DC92D6B5757B83CBE7F28E63D7675A37129AAF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Jef Bek - Distant Starlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 ```bash
 magnet:?xt=urn:btih:560ACD35333D88EC22AF832A0E4FF68E18E73095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Slade - And Now the Waltz(es) (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:61D0FB3B24DB206FB9F109A906533BE2C47821C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Within Temptation - Bleed Out (2023) [FLAC|Lossless|image + .cue] <Symphonic Met
 ```bash
 magnet:?xt=urn:btih:E9411E14E2E830D951A013E3407B6F41640D6814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F1983D1A2828CA6B0336462B961ECFE3490B816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark Parables 4: The Red Riding Hood Sisters. Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:D5A42CCA9162EAADB5B9F877B954B2487C0F5C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Tony Hawk's Pro Skater HD [En/Multi5] (Lossless Repack/1.0.u.1) 2012 | R.G. Reve
 ```bash
 magnet:?xt=urn:btih:78CF9FCBAAFC47462D97C10F37334220E321EC62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ F1 2012 — это новая часть всемирно известной с�
 ```bash
 magnet:?xt=urn:btih:638CC0C3725AB5F7EB07C6C2EAB079F0B4B15D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

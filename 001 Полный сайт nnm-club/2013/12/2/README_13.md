@@ -28,8 +28,7 @@ Kerion - 2 альбома (2010 - 2012) [APE & WV|Lossless]<Symphonic Power Meta
 ```bash
 magnet:?xt=urn:btih:125F65F6CB12B58533DFDF183FF6B31B2C031C19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - Deep Beach (2013) [MP3|320 кб/с]<Downtempo, Electronic, Deep House>
 ```bash
 magnet:?xt=urn:btih:1C99523E27FC61171CE015C5AC79C87002B02E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Hypno.Tembr (2013) [MP3|320 кб/с]<Progressive, Zenonesque>
 ```bash
 magnet:?xt=urn:btih:7A6018A12C3590473D215CB74211FE15FDB3D8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Platitude - Silence Speaks (2006) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:C117E010A20334C8EB76C0D7C55F32C68579E16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Hotel Rouge Vol 1 (Deep House & Club Grooves Finest) (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:2772FE73D7F69AA43FC387E69237C0282A073F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12779492E13C28E7DD334705E11254D1DA86A2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ POLY.тех (выпуск 13) (29.11.2013) SATRip
 ```bash
 magnet:?xt=urn:btih:3A185ED9DF8F1A08DF74DC6DAF7079EB42297147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10AA246629A7CC93CB03435E00924CE6DFBDD1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ Fatal Force - Fatal Force (2006) [FLAC|Lossless]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:75C9138EEBED96CE1134C7C9DDC0FB46B350D28B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ I Break Horses - Chiaroscuro (2014) [MP3|320 кб/с]<Dream Pop, Indie, Shoegaze
 ```bash
 magnet:?xt=urn:btih:19F3C2BEDAB3745B8BE73DE9BE9351B5A5F5FACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACEC8D0432DF9F38CD7978D9D9705126C535B303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77D6C8AD6C11E24E57715F9D6F30E551CACF3F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ VA - The Tribe Enchanters (2013) [MP3|320 кб/с]<Psytrance>
 ```bash
 magnet:?xt=urn:btih:B6A919D58D63CBEC35DCE1F414E6E15A87EA10B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +453,7 @@ VA - Club Music Vol.24 (2013) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:6E89B6EDE094C8591D99186E8481EF5AFA8A8BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF26764088310A2C8C48C6FB59B26573751D9563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C4523C403397D7665B27637D47E427FA23363F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:192C62E379AFDFDC71EEF04B299CE8404A013285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ Gwydion - Veteran (2013) [MP3|320 кб/с]<Epic Metal, Folk Metal, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:17285E7ECB56D46CB3B37C243FCECEFDFBB8F147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +597,7 @@ VA - Sound Of Trance (2013) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:5DFE920329ADA512731A1A47232A64CED0241E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77D938D2CB63460D208E9B040221D9F84533E34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +654,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6B56B3E6FD24A95676EF36C5C716CD90EFE9880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ Mael Mordha - Damned When Dead (2013) [FLAC|Lossless]<Gaelic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:A69D761CA2BBD28111CE37FF158314962971CBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +720,7 @@ VA - Goa Moon Vol 4 (Compiled By Ovnimoon and Dr. Spook) (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:7E85DDBFD2EE1A767E787AC0E122B5AF0CCDF0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91A235C00B13174B88175857A82723D26865A0A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +779,7 @@ Blaze Bayley - Soundtracks Of My Life (2013) (2CD) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F28226FC2A09B60690445B9F13465BF184202FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

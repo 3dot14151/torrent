@@ -28,8 +28,7 @@ Dolphin - Юность (2007) [MP3|256 kbps]<Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:84F9533C848A2DF7F6A122F611CC9E1D11BB3784
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

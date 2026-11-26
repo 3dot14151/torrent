@@ -19,8 +19,7 @@ Sylpheed — свободный легковесный почтовый и но�
 ```bash
 magnet:?xt=urn:btih:36115CBFEA2C5F3B697D1ECF455F3716B5F9B1AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

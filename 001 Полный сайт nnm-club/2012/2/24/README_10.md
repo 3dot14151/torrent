@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:87E2B0125A1C3615447916185FD334689A272FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Auslogics Disk Defrag - Описание разработчика:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

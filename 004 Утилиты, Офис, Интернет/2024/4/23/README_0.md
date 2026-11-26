@@ -20,8 +20,7 @@ Office.Files.Images 2.46 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CF5AFEB7D0015A6A7D0972AAFA5810843D4FFC10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:59CEEDF8BF6CC2DC8FF7FAC989EF654D21195267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ VA - Vocal Dubstep - Dubstep Light#2 (2014) [MP3|320 кб/с]<Dubstep, UKG, Grim
 ```bash
 magnet:?xt=urn:btih:3565664B9BA853E1FA8ACC45D68C2980C3F71BFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - Armin Van Buuren: A State Of Trance Radio Top 20 February (2014) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:0B7A5751B7C5AD4F1ACA029AA923E8D984487D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ CD 101. Louis Armstrong -
 ```bash
 magnet:?xt=urn:btih:695A85842A36E9C47FBE96F79E047CD66FC35DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Discovery: Мумии пришельцев / Aliens mummies (2012) SATRip
 ```bash
 magnet:?xt=urn:btih:F914C0DED94F74CD75F35E93AF9F1959503C4A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Cor Bakker en het Metropole Orkest - A Time for Love (1999) [FLAC|Lossless]<Soun
 ```bash
 magnet:?xt=urn:btih:01EB0C642EB73EAC58F95BE289D053CF893E2EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4731C2060F482C0B5805969BB449049680C75DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Def Leppard - Slang (Deluxe Edition) (2014) 2CD /Scene/ [FLAC (tracks)|Lossless]
 ```bash
 magnet:?xt=urn:btih:D1E055D3C4ABB85900F15640ACEBD1A301BF0C38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:209298AA17F21F06B5BEA966442449D796197364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32CA6FB148555629877A63EB53A742FE59C1A097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ Transmit 4 позволяет синхронизировать папки с п�
 ```bash
 magnet:?xt=urn:btih:A41C566E7030BE7F3045ED95A73BCCCC20785E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +341,7 @@ DiskAid 6.5.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5837563E12C82F8E641FD557696357A028A3D411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52D509635B4C95AA92DC0AB0AA1B6B73F36A84BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08B753C5454A60C4C9D17BCC43B2A328089CF931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ VA - Dream Dance Vol. 70 (2014) [MP3|320 кб/с]<Trance , House>
 ```bash
 magnet:?xt=urn:btih:0455D87002221816846FE30F179F4A81C749D873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8EA164D1912978915F6FF6350807281D4FE84D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +490,7 @@ Anandmurti Gurumaa - 6 albums (2007-2013) [MP3|320 кб/с]<Folk, Ethnic, Mantra
 ```bash
 magnet:?xt=urn:btih:5A4DB72A95602516319B3753CCBAAE3E235CDEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +515,7 @@ XXII Зимние Олимпийские игры. Фигурное катани
 ```bash
 magnet:?xt=urn:btih:7797222AF4C09E7D65713C92FAEF96CBACA8BADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9963D44662695FDDA9A96073806A4615EC2C8808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7EADBC726A0D8A1585217B180A07106D9E0C597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A8002837A447035969C023EAA35B228A95783E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +618,7 @@ McAfee Labs Stinger - инструмент, предназначенный по�
 ```bash
 magnet:?xt=urn:btih:9B99EF2287FC94E70E5849FC94AC7D34110E1DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +652,7 @@ VA - По Волнам Нашей Памяти (2014) [MP3|256 кб/с]<Шанс
 ```bash
 magnet:?xt=urn:btih:3135690A9CF2768C35836C64F599213FC03BF4C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +686,7 @@ State of the Union - обращение президента США к Конг�
 ```bash
 magnet:?xt=urn:btih:9D642367D2A97A92CE06368C09F0DD32A95F5E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +713,7 @@ The Glitch Mob - We Can Make the World Stop - EP (2011) [FLAC|Lossless]<Glitch, 
 ```bash
 magnet:?xt=urn:btih:1292934340E678780F4499728D3FC463A119FAE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -763,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:815BEDBB9FF072FBCAC5E12AF9A33F76C10F7AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

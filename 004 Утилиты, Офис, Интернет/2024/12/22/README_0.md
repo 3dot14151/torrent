@@ -19,8 +19,7 @@ YTD Video Downloader — простая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:7D9FE1DF20155C83A0177B0485FF601D0B8DA7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Notepad3 - удобный текстовый редактор на базе Scin
 ```bash
 magnet:?xt=urn:btih:A6BCC6131D03FF121E1E859891E6A992E3BDBD85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

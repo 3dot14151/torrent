@@ -22,8 +22,7 @@ A4 Три Желанья · Three Wishes(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:0011E5CC6EB1A6F6C9E8F2F162A92F7ED6E6E1DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

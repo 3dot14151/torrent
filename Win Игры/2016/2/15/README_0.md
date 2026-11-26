@@ -19,8 +19,7 @@ The Witcher Adventure Game – цифровая версия настольно�
 ```bash
 magnet:?xt=urn:btih:253DAD1F3A0B34552E5A42245C75AAA9D67662A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Witcher Adventure Game (2014) [Ru/Multi] (1.2.3) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:04390518A1A959923E6CC2C46EEA616C2D4F097D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Zheros - это аркадный двухмерный экшен для "люб�
 ```bash
 magnet:?xt=urn:btih:9017A06E8B0FD75AC0EDE2C834C5BA636B944A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

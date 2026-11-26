@@ -22,8 +22,7 @@ Rodrigo y Gabriela - Mettavolution (2019) [FLAC|Lossless|tracks + .cue] <Rock, A
 ```bash
 magnet:?xt=urn:btih:1754E148A4523CD875F6BA67E4A989DF35136757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

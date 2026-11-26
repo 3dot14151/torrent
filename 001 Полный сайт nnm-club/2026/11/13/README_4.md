@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F621ACE11D97F6A13BFF0359EBFFE8BEDF24275A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ reaConverter Pro – инструмент для тех, кто имеет де�
 ```bash
 magnet:?xt=urn:btih:9525B7D773E76471E76F382576DFEAF3636E9B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Project Afterfall (2025) [Ru/Multi] (1.1.3b) License GOG
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Floorp Browser — веб-браузер с открытым исходным к
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FINAL FANTASY III - Поклонники игры Final Fantasy могут ра�
 ```bash
 magnet:?xt=urn:btih:D5C973DC0FC9AD77E6FB82ED2FA1AD8D5DFE9817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

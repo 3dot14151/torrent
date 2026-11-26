@@ -22,8 +22,7 @@ Martin Hiska - Coast to Coast (2021) [AAC|~349 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Notes from the Depth, Vol. 14 (2020) [AAC|~315 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:A36AE3641128A666A29A800511E63CEAA2860132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Notes from the Depth, Vol. 13 (2020) [AAC|~316 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:1B6385E2FCDFC0D964474485A0457F494B1647C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Martin Hiska - Arise (2019) [AAC|~346 Kbps] <Deep House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Notes from the Depth, Vol. 16 (2021) [AAC|~326 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:52622C7A7192B5AF1B07553D6020A278E77D387E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Martin Hiska - Abroad (2020) [AAC|~311 Kbps] <Lounge, Chill Out, Organic House>
 ```bash
 magnet:?xt=urn:btih:57F7936C26C9BEDC59A8674A6A78D326172CC77B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Chill Out Pearls, Vol. 2 (Lazy Chill Out Tunes) (2019) [AAC|~328 Kbps] <Lou
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Martin Hiska - Road to Oase (2019) [AAC|~314 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:AD32F01A9FEE78EC44A22BE21ED978569CE1C91D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Notes from the Depth, Vol. 15 (2020) [AAC|~331 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:53BA548D08EC194BF274DAAA5A4BF5FEEE38D6F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Martin Hiska - Deep Blue Sunset Sessions (2020) [AAC|~343 Kbps] <Lounge, Chill O
 ```bash
 magnet:?xt=urn:btih:FEB225C09C36C770076238EACD33604667122255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Chill Out Pearls, Vol. 3 (Lazy Chill Out Tunes) (2019) [AAC|~301 Kbps] <Lou
 ```bash
 magnet:?xt=urn:btih:E74484B63CBF54A2EE8E13527FF1C2B8905CF664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Martin Hiska - Globalearic (2021) [AAC|~341 Kbps] <Lounge, Chill Out, Organic Ho
 ```bash
 magnet:?xt=urn:btih:2415977EDE9D9FDEF608151E1DF9BF2B56A2E1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Chill Out Pearls, Vol. 4 (Lazy Chill Out Tunes) (2020) [AAC|~299 Kbps] <Lou
 ```bash
 magnet:?xt=urn:btih:305180E0ED239018181BA07C94B65542245EF0DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Maxine Sullivan With The Scott Hamilton Quintet - Uptown (1985) Concord Jazz [FL
 ```bash
 magnet:?xt=urn:btih:E25D88E26CC13241F2A2AE0DC782A1E60B99ABDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Chill Out Pearls, Vol. 1 (Lazy Chill Out Tunes) (2019) [AAC|~333 Kbps] <Lou
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Traffic - Far From Home (1994) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:7612DE36C202225774E6C47958E5ACF190AE8C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ VA - Music Is My First Love (Rare Electronic Pearls), Vol. 2 (2021) [AAC|~303 Kb
 ```bash
 magnet:?xt=urn:btih:45BF7CE7E0B014BD4B85477A54D388593FD894F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ VA - Music Is My First Love (Rare Electronic Pearls), Vol. 4 (2021) [AAC|~309 Kb
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ VA - Music Is My First Love (Rare Electronic Pearls), Vol. 3 (2021) [AAC|~303 Kb
 ```bash
 magnet:?xt=urn:btih:53743411276BADF802D27DBBB64955E55C62516B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8679117A7339185874928B9FAC8D5659F54BC3F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ Infected Rain - Ecdysis (2022) [FLAC|Lossless|tracks + .cue] <Metalcore, Alterna
 ```bash
 magnet:?xt=urn:btih:6965C780ED0D5670AE2D567F0F319AF8ED1BA17F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ VA - Music Is My First Love (Rare Electronic Pearls), Vol. 1 (2021) [AAC|~302 Kb
 ```bash
 magnet:?xt=urn:btih:91B9B21311EAC60874925EBCE1978BEE5D1DAC4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ StrokesPlus.net, преемник StrokesPlus, представляет собо
 ```bash
 magnet:?xt=urn:btih:B642777A714DBF2B93BA7AC349B1AEDBF101C6E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ Darren Heinrich Trio - New Vintage Tunes for the Hammond Organ (2009) [MP3|320 K
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ Disc - 1 - Complete Singles Collection:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ VA - Top Easy Listening Hits (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:592232322A02333447878573D330EA85EDD6D38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

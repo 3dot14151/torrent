@@ -19,8 +19,7 @@ Need for Speed Carbon – экшен гонки с открытым игровы
 ```bash
 magnet:?xt=urn:btih:599AD5DCF2C7F3030B97E272416ADBF8038B2BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cadenza 5: The Eternal Dance (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:2B3960437954FFFC6C12CCB74368B130A30B96B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Noir Chronicles: City of Crime (2018) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:6B43C6DD0F87C69D6D699EBCAD882147D68211A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Demon Hunter 4: Riddles of Light (2017) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:9D2296BCB9001283656C627AF466E00B649AEA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Quest Hunter (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:BE101A12988E866C0956D9768268DA4C53908C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Truberbrook (2019) [Ru/Multi] (1.10) License CODEX
 ```bash
 magnet:?xt=urn:btih:492F450F85FC05FD3AEC315D4C661EF0A98B5D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tavern Tycoon – это отличный симулятор создания с
 ```bash
 magnet:?xt=urn:btih:957CF8D192583A447725587DC1D2F6898BC44367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ RiME (2017) [Ru/Multi] (1.04) License CODEX
 ```bash
 magnet:?xt=urn:btih:DB0B43F4D13DB02F0CA8D2A2B5881E0DF33B4FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

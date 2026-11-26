@@ -23,8 +23,7 @@ VA - Tranceforlife (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:455842E1CB5ED067B136A4AFD93476137430B41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Edhellen - Sombra y Anhelo (2013) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:C2C747D46B54A7495FF4ECB055BECC345BD0ECF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Tesa - Ghost (2015) [MP3|320 кб/с]<Post Rock, Post Metal, Progressive Metal, 
 ```bash
 magnet:?xt=urn:btih:044335ADB8B37BD1D9E0CA03377B697DDCE72D25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ L 33 - Scream (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:A9D3F23D6FCF0D0872BDA1E126DCB0BA60842CB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Rise Above Dead - Heavy Gravity (2015) [MP3|320 кб/с]<Post Metal, Sludge, Ins
 ```bash
 magnet:?xt=urn:btih:27C62828E25A898362E4345E50B8E272EFFB2878
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Minor Rain - Totem Tube | Deformation | Resistor (2015) [MP3|320 кб/с]<Drum &
 ```bash
 magnet:?xt=urn:btih:58D2F48D41B08F705582DAA2697469152352D975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30E05FEAF85B8DF67D4306BA7B0B5C59DE6F6EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4140F3F952D04955BB33194C3C9B825405A82FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Lostly - No Direction Home (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:208D79F0378BD3403460FB3DB0FC2BBED0EA4A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC4190933259A31ADEE2371875171ECA2B78803D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7955FD3067B77ACBA15B968618E73E4755F75D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:283C9A9C92C9D4C9E45D2044F74B9444EE0122AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Cool Lounge Grooves Vol 1 (Smooth & Silky Chill Out Collection) (2015) [MP3
 ```bash
 magnet:?xt=urn:btih:7BFBEC22BF0AB1D4472B1334228EAF0F46509B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59B54E6E7E0CA41C0F2FACB5B9FE62FE70581555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Magic Kingdom - Savage Requiem (2015) [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:F0CC3CB30A6322A47D5A4E2EEF70055C0BBC12A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Karin Park - Apocalypse Pop (2015) [FLAC|Lossless]<Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:5AD451D89BB51CB3C75A94E4AE92C249C17FFA7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Richard Band - Гоблины, Реаниматор - Ghoulies, Re-Animator (198
 ```bash
 magnet:?xt=urn:btih:07E969FC70445BFFC3954341FC48AE3199E64F47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ Romantic Jazz - Feels So Good (2015) [FLAC|Lossless]<Jazz, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:7430BB77123302762816CA3322E182E54B8E4CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14F3E2E30A6FCD9A059C093C674D53048377E2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5594030D9C455E5DE695B388D5916393FEFF24A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +571,7 @@ VA - Trance Hits Top 20 - 2015-03 (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:346E2B2BCD105941D651D2912DCE42D12C51A524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1397F38EF76A95DDFA273A576B36873F1154F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A7062F162A830DEEBF81B8EE20945E594C6A6B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ Maxthon MxNitro Browser был разработан с нуля, чтобы по
 ```bash
 magnet:?xt=urn:btih:28BABBF79BC97A6BA12E6DA9B62320D607F8B337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:93F8BF9F8BE8F1DDC953CE51B4FDD10959229275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ TeamViewer устанавливает подключение к любому к�
 ```bash
 magnet:?xt=urn:btih:6011B78919558935FB9D33BDCEE4B3DA34C930D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

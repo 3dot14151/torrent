@@ -19,8 +19,7 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:440B5B6CF9173973995F70EB127EC5CF19F932EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Powerful RAM Monitor Pro v10.1.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F424D959A5E3FC19027F3EA0E2EE51E92D6F9139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

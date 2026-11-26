@@ -19,8 +19,7 @@ Resident Evil 4 (2023) [Ru/Multi] (11025382/dlc) Repack DjDI [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:BE38DF31719DC87426DEC4BD183F6C916463A636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

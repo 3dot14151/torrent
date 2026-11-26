@@ -18,8 +18,7 @@ Mortal Kombat X / Mortal Kombat XL (2015) [Ru/En] (0.305-05.126703.1/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:60619F8520C2D1DCC8877A7481B5D9803EB08D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Forza Horizon 3 (2016) [Ru/Multi] (1.0.119.1002/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:F8FA02FC282676BC94C609B6FFA0A3AA35C02164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

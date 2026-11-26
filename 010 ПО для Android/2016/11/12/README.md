@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:AC50C878A3B7A4FE656C493BF6820A88998E820E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Package Disabler Pro 6.6 [Ru]
 ```bash
 magnet:?xt=urn:btih:2D29CB93FD39FDB52A0538996684E8638AA6BA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B15CEED4CE00153258F2B6BFCAAC74FDF2F61373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

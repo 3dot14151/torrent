@@ -19,8 +19,7 @@ Boost for reddit - ещё один проект тире клиент для п�
 ```bash
 magnet:?xt=urn:btih:D104AAFA2B23769EABA8AFEE0447EB2D42706362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ uTorrent - официальное приложение на Андроид. Бл
 ```bash
 magnet:?xt=urn:btih:5995C9716ED8743D8B10ABC28D55FD70F808E297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

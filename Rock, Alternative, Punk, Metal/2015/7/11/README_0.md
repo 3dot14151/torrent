@@ -22,8 +22,7 @@ OverMaster - Madness Of War (2010) [FLAC|image + .cue]<Heavy Metal / Power Metal
 ```bash
 magnet:?xt=urn:btih:5482F0786C3BDDED6645BE69F49E632D3CCB79D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Manifest Destiny - Your World Has Died (2007) [FLAC|image + .cue]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:20D0EE84346140F261F81DEE11763B82ED1452D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Sygnet - Children of the Future (1998) Japan [FLAC|image + .cue]<Power Metal
 ```bash
 magnet:?xt=urn:btih:2438E882C13D2C1C83819D8489DBCF63F1106ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sex Machineguns - SMG (2011) [FLAC|image + .cue]<Heavy Metal / Speed Metal>
 ```bash
 magnet:?xt=urn:btih:D1DC51FC4C46F94FCAEA84CDFE46F4B3D27B8EFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nightly Gale - Lust (2013) [FLAC|image + .cue]<Experimental Doom Metal>
 ```bash
 magnet:?xt=urn:btih:63BCB71B0B3C276666EDB736E82734151439E936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tamara Williamson - Sister Mother Daughter Wife (2015) [MP3|320 кб/с]<Alterna
 ```bash
 magnet:?xt=urn:btih:F15B9D698C814401A40AF5EC5CB5C433036447AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Rachel Sermanni - Tied to the Moon (2015) [MP3|320 кб/с]<Alternative, Contemp
 ```bash
 magnet:?xt=urn:btih:58CA61B387077859A2C11DA75FA68A459A26606E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Talisman - Vaults (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D59043D45DECDA96D1F7C1CF9D7A663A27C5EE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ The Hicksville Bombers - Voodoo Doll (2015) [MP3|320 кб/с]<Rockabilly, Rock'n
 ```bash
 magnet:?xt=urn:btih:98311ED22979C2C1D508E2B3A1405586BB04928C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Rosae Crucis - Fede potere vendetta (Overlord Edition) (2010) [FLAC|image + .cue
 ```bash
 magnet:?xt=urn:btih:6FA24FF8C21462479D5E6049293FE03769C7236F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Deep Purple - Deep Purple (1969) K2HD, Limited Edition /2014, Victor/ [FLAC|imag
 ```bash
 magnet:?xt=urn:btih:4AE2780FFFB7A2848BE5C201BB8CE176FE251638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Cradle Of Filth - Hammer Of The Witches (2015) [FLAC|tracks+.cue]<Symphonic Blac
 ```bash
 magnet:?xt=urn:btih:2F83DA099956AF2DD6D15C7E88F1AC48BF3C0121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ Cinderella - The Best Of: The Millennium Collection (2000) [FLAC|image + .cue]<H
 ```bash
 magnet:?xt=urn:btih:B9F4F3341CBB455D77328B5ECA225A9B8CBE014A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

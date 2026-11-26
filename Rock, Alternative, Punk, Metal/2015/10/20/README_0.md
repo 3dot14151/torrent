@@ -22,8 +22,7 @@ So Hideous - Laurestine (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Shoega
 ```bash
 magnet:?xt=urn:btih:E5A120D4457B4E235D40BB66B7DCD07C0721B3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Leo Sayer - Restless Years (2015) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:791CE2C003C80CB38C3070817FA4ADBB99CF5CAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF9BB8F7A0939B8DFDF582F63CBD82A8AA468FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

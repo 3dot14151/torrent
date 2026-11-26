@@ -23,8 +23,7 @@ Pensionary | Шелл-хантинг, или все технические мо�
 ```bash
 magnet:?xt=urn:btih:986558E61820336178032A41055D0567F535E75D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

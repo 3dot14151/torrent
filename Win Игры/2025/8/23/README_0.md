@@ -19,8 +19,7 @@ Last Epoch – приключенческая экшен-игра с глубо�
 ```bash
 magnet:?xt=urn:btih:A38426C620E8C6E7EAF41E125E4325ADB6986B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AI Limit (2025) [Ru/Multi] (1.1.001/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:0688F52752FCD408B75D054DB0CF350831D8E299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.1.40.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E8C07EF92E1D6BEEFBFC15D9D8B2BEC339225200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Iron Harvest - это стратегия в реальном времени (RTS
 ```bash
 magnet:?xt=urn:btih:E58E340047E441F19FDD8A4F61D9F6B8226614CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ YetiParty (2025) [Ru/En] (build 19685742) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:EA02714451F80BFBFDE42934EFC026986BD90D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Damnation (2009) [Multi] (1.0) Scene RELOADED
 ```bash
 magnet:?xt=urn:btih:38CBB8A6994AAF64E813BD168F6078E020D74CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Stone Simulator - Just Be a Rock (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:80CCCD62D563613010E2420A2838522A3CDE9BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Photo Studio Simulator предлагает игроку взять на себ�
 ```bash
 magnet:?xt=urn:btih:2BB74BA49ACF26BF80A3E7476930C5CE677D1950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (build 19692871) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:99BA1AAA6CA2D50574F019F65D111C79E1CD97AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

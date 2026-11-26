@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:32EB17DBB07644D646026F4DA0B4CA51CB004EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Acoustic Pop Covers (2016) [MP3|320 кб/с] <Pop, Acoustic, Covers>
 ```bash
 magnet:?xt=urn:btih:8D2A0BEBE7A09E33A656A7D3347519D303427CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6F5B6FFF5D3ED300C394B973E60AF7EEE9A83B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Slimjet 8.0.3.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:832066599B0141D873EC58F0FB95FBB9DB489619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F103713C1019B82535EEBEBECB6758EDA0EB9522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3789E8F5615E3A509E7954261BC432270E75EFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ The Ventures - Live in Japan '65 (1995) [FLAC|Lossless|image + .cue] <Instrument
 ```bash
 magnet:?xt=urn:btih:1E92D67415A19CE300B285FF6B341510180CD57B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ VA - Moskau Sensation (2016) [MP3|320 кб/с] <Club, House, Progressive, Techno
 ```bash
 magnet:?xt=urn:btih:66219B6BD503A9F297F66C53BD2DD9F403C7E382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Leonid Kogan & Alexander Ivanov-Kramskoy - F.Gragnani, N.Paganini & M.Giuliani (
 ```bash
 magnet:?xt=urn:btih:472909E2BE49E4AED102FAF698D8A3D191B74353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Ceceree 1.2.1 [En]
 ```bash
 magnet:?xt=urn:btih:1AC96B6130294FDADFAC7172D4E3A9AB1D1C5C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFE6DC5EB4BB446AA870FA7A037EF6A02A32C106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Synthi A - Ignition of the Sun (2016) FSOL [MP3|320 kbps|tracks] <Experimental, 
 ```bash
 magnet:?xt=urn:btih:047189BDD1E90B1A4D38F87CB43E867FB786EC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C97F562AFA44685E8B241E1C49B639A8023070B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ OLIGARKH - Анатолий (2016) [MP3|320 кб/с] <Folk, Hip-Hop, Electronic,
 ```bash
 magnet:?xt=urn:btih:617ABB2594A99B43D883AC540E20299711B626E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23828C6A4AF6D30323A502B88F702E494EE5A969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ VA - Best Of Techno Minimal (2015) [MP3|320 кб/с] <Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:B4D89A889968636849F0C571C6D6C8ED86B41E9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DB65746C9163F742A2DCCBFB27071F0CEC57A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A905672354A2EB83EA6E55D5520CAD33BB1C5278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:426C13F99ACDBBD931611FCEB2BF58C1733480C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D87AF3322513F8C5A9E3B151E98ED7F8D59A097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4657707F07C496B1BA7C139EB6070E3C756539E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +596,7 @@ Keeno - Futurist (2016) [FLAC|Lossless|tracks + .cue] <Drum & Bass, Liquid funk>
 ```bash
 magnet:?xt=urn:btih:107B37F3153298E1D306DF39C8B329AAB520574D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +623,7 @@ VA - 8 Марта. Праздничный хит-парад №1 (2016) [MP3|192
 ```bash
 magnet:?xt=urn:btih:31403D7DEE0D8A41FAA240477A5C3B0E39A5D82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +651,7 @@ Wiener Philharmoniker - Herbert Von Karajan - Dvorak - Symphonie # 9; Smetana - 
 ```bash
 magnet:?xt=urn:btih:4A5A7375EA09EFFB16FE94FCE1F7200C3DC3E2EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E782AF88F56180C1D515722542EDDBA120F0A968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

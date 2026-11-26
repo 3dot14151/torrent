@@ -19,8 +19,7 @@ Opera GX - это специальная геймерская версия бр�
 ```bash
 magnet:?xt=urn:btih:B9BC8CF0BFE28B1CA1543BAEBCB9A80E02E3D82B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CastItAll Premium - развлекательного свойства прило
 ```bash
 magnet:?xt=urn:btih:630C81B22315888A608811E22C8608B07507DF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Opera Touch - новый быстрый браузер с функцией Flow,
 ```bash
 magnet:?xt=urn:btih:D5E5DF6D02C0444D8916E9E55E333E15AA47CB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Plus Messenger - это сторонний клиент для Telegram с ра�
 ```bash
 magnet:?xt=urn:btih:F1C8C5B61CD9CA6998B892E59A29A33A26CDA419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

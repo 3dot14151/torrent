@@ -19,8 +19,7 @@ Adobe Photoshop Express - ещё одно крайне нужное и поле�
 ```bash
 magnet:?xt=urn:btih:B31E324D9DE12E5530F56524F9008F17E715B27A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

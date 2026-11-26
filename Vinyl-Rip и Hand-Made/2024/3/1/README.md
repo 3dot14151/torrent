@@ -22,8 +22,7 @@ VA - Рок-панорама - 87 (1) (1987) [FLAC 24/192|Lossless|tracks] <Rock
 ```bash
 magnet:?xt=urn:btih:E12858237BB9964ACC8017741E3EEE09B53C42B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:530D5158AD88D58F909DD53534403C9BDAB68689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ AC/DC - High Voltage (1976) Released, 1981, Albert Productions [FLAC|24/192|imag
 ```bash
 magnet:?xt=urn:btih:3DCDA12DE92B4F5CACDA3A02105382AA30DC6532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ AC/DC - Let There Be Rock (1977) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:BE34ABBA70E1C841DD8D119D9370AE48E0560634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7D30C1D61B7442CE880E26751D6EBC5BEBE8AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Side One.
 ```bash
 magnet:?xt=urn:btih:A4ED4D581A5C263E8B86E37D92F8FEFEFFD39D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless
 ```bash
 magnet:?xt=urn:btih:65453187EE9F0473BB4082D16DE905E72E562239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

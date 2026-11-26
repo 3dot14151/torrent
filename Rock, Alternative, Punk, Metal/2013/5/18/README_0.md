@@ -28,8 +28,7 @@ Lothloryen - Raving Souls Society (2012) [WavPack|Lossless]<Power/Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Hanker - - Conspiracy Of Mass Extinction (2010) [WavPack|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Fall Of Empyrean - A Life Spent Dying (2010) [FLAC|Lossless]<Melodic Doom / Deat
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Never - Back To The Front (2009) Japanese Edition [FLAC|Lossless]<Melodic Death 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Elzevir - Rise From Knees (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Kylahullut  - 2 albums + 2 EPs (2004 - 2007) [MP3|192-320 кб/с]<Punk rock/Har
 ```bash
 magnet:?xt=urn:btih:5F37181C9DF7CA56F4DEB6DFBED82D33AE3B2490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ V.A. - Отборочный тур петербургского рок-фест�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Episode Six - The Complete Episode Six - The Roots of Deep Purple (1991) [MP3|32
 ```bash
 magnet:?xt=urn:btih:2D7B5B062C5CB7D196E6730D4059031F5EB99C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Rock Candy Funk Party - We Want Groove (2013) [FLAC|Lossless]<Funk, Jazz-Rock, B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Torture Killer - 4 альбома + 1 EP (2003-2013) [FLAC|Lossless]<Death Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ Opeth - 6 альбомов (1995 - 2007) Japan Edition [FLAC|Lossless]<Prog Deat
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ Geordie - House Of The Rising Sun - The Best (1995) [MP3|320 кб/с]<Classic Ro
 ```bash
 magnet:?xt=urn:btih:8C746175CDA374AFAFC692C6A901869B68EA15FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +417,7 @@ VA - Metal Ballads (Part 2) 2CD (2012) [FLAC|Lossless]<Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +445,7 @@ VA - Rock Hearts Collection (2011) 4CD, Box Set [MP3|320 кб/с]<Rock ballads>
 ```bash
 magnet:?xt=urn:btih:134CFF42AE6D92888E5A340CDBDFE1EBE7FF44A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +479,7 @@ VA - Metal Ballads (Part I) 2CD (2012) [FLAC|Lossless]<Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +513,7 @@ Distemper - Гордость, вера, любовь (2013) [MP3|320 кб/с]<Sk
 ```bash
 magnet:?xt=urn:btih:A6A9E442AD42957B9858FEB54AC3105C93E1BE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +547,7 @@ Cat Stevens - 3 альбома (1996-2000) 5CD [FLAC|Lossless]<Folk Rock, Pop Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

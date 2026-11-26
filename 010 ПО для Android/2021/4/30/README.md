@@ -19,8 +19,7 @@ ReaderPro - UNLIMIT v1.12.7.7 [Ru]
 ```bash
 magnet:?xt=urn:btih:A58A614D91517F50A91301CBB1DB4B61403C21E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Guitar Pro v1.6.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:6263FE498836014FF32815C040DE9EB96A61C6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02044D20B17F478B92D0FDABBC911D01F3A5EC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

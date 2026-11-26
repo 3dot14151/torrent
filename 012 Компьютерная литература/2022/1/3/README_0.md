@@ -19,8 +19,7 @@ WebAssembly – это быстрая компактная межплатфор�
 ```bash
 magnet:?xt=urn:btih:E2F85C282A54899974866745F954D8EE35BBEEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

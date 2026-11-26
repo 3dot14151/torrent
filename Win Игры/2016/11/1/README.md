@@ -19,8 +19,7 @@ Franchise Hockey Manager 3 (2016) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:6970128D5C83F28B931964C0C9C2CE232B861033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Starpoint Gemini 2 увлечет игроков в захватывающее �
 ```bash
 magnet:?xt=urn:btih:362B858D39DCBB6F1644CF88A5F82150C4C90235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

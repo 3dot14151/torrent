@@ -19,8 +19,7 @@ Living Legends 10: The Blue Chamber (2022) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:08C93B9EB973C559D35A8EA8A3309379F1E8626D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Detectives United 5: Deadly Debt / Лига детективов 5: Смерте
 ```bash
 magnet:?xt=urn:btih:9AA9CD273B292636FC4FA2269783D7E74C2BC279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gerda: A Flame in Winter (2022) [Ru/Multi] (1.1.14-00f6b) Repack Other s
 ```bash
 magnet:?xt=urn:btih:379797FD51302782C952E0E54A4A5F3355B5E6B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Immortal Redneck - это шутер с элементами жанра роуг
 ```bash
 magnet:?xt=urn:btih:F7AF24EB02DB244AA8742C25D8D3ED56AD3E4BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:ECD845CEB1006109EF0E344A3259B950D1015E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

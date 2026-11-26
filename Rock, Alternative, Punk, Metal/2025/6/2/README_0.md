@@ -22,8 +22,7 @@ Paul McCartney - McCartney II (1980) Japanese Edition, SHM-CD, Reissue, Remaster
 ```bash
 magnet:?xt=urn:btih:A67F5DD758A5BEC6115AE77540A248AFF52F8274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Bing Crosby (Бинг Кросби) - Play A Simple Melody (1985) [FLAC 1.0|96/2
 ```bash
 magnet:?xt=urn:btih:A7F86F31BAD4CA4FF98182D16A2AAECF9E6E33FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Le Canzoni D'Oggi (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 ```bash
 magnet:?xt=urn:btih:972872B0AA114045CC6429CD3E72B909A66CB422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing 
 ```bash
 magnet:?xt=urn:btih:6CFB31D2F76A796152E51685451FA51826BA5BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Italian Hit-Parade 2 (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rips] <Italo P
 ```bash
 magnet:?xt=urn:btih:CE2B6A4FF241262493C72047E6B61C7F9BBF6E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Raffaella Carra/Рафаэлла Карра - Поёт Рафаэлла Карр
 ```bash
 magnet:?xt=urn:btih:6722F60B27957CA21FA8379CC569E108A153B068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.c
 ```bash
 magnet:?xt=urn:btih:D36EB545F9F47FB3827664FB49B2429A3BE0DE0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 ```bash
 magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ I сторона:
 ```bash
 magnet:?xt=urn:btih:6BD36A13677BAA06E0BDA2F5F8379532C236A6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Superstars (1974) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

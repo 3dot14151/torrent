@@ -19,8 +19,7 @@ Clocker - игра-головоломка о ВРЕМЕНИ. В этой игр�
 ```bash
 magnet:?xt=urn:btih:F9A7629704A55FFB698171F14AB7AE3FDA4B3557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Clocker - игра-головоломка о ВРЕМЕНИ. В этой игр�
 ```bash
 magnet:?xt=urn:btih:1A24BBFCB79837267F14F7789FF1EF7C2D4C2BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cuphead - это игра в жанре run'n'gun, в которой игрок�
 ```bash
 magnet:?xt=urn:btih:811991E0FDD62F25BC016393E05DC1BB87F0DAA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Assassin’s Creed® – игра, определившая новые стан�
 ```bash
 magnet:?xt=urn:btih:83870ED82A8133922DB269FC36D2E3BF481454E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

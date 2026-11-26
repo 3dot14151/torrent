@@ -21,8 +21,7 @@ Parted Magic 14.06.2013 [i586, i686, x86-64]
 ```bash
 magnet:?xt=urn:btih:C5A19B1F2BA9BF1D82B7197316D2395FB9ED57E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

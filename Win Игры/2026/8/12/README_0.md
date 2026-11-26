@@ -19,8 +19,7 @@ Bellfortis - стратегическая игра от студии Rake in G
 ```bash
 magnet:?xt=urn:btih:BB1B519E41FF3677EA2E2A7DDB2685619C9736DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

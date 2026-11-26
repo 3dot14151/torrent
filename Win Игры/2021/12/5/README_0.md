@@ -19,8 +19,7 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0.6.4) License GOG
 ```bash
 magnet:?xt=urn:btih:BD7124D41866C26CBBC09B89947D7BCC5F79E411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.4.51.41549/d
 ```bash
 magnet:?xt=urn:btih:C4F5D8447F1E659A926FD744F74B424B5A161358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Happy's Humble Burger Farm (2021) [Ru/Multi] (1.16.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3F9354533CE2E09BFF3B987B367F08266D44BD7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chorus (2021) [Ru/Multi] (Build 7785124) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C041C9A8E2338E635930091440D82A0E70384BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

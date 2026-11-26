@@ -20,8 +20,7 @@ Shades of Death. Royal Blood / Тени мертвых. Королевская �
 ```bash
 magnet:?xt=urn:btih:4F951278A54FF706E098EA44955F0556E0F60C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ GooseGogs - это забавная игра, созданная 17-летним
 ```bash
 magnet:?xt=urn:btih:CA64AD8827191034E24A3751FE65CA30E1ECBC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ CrashDay Night Damage - это "продолжение" игры Crashday. И с
 ```bash
 magnet:?xt=urn:btih:6989845D11D3D52F1751B6E2F3FB4272BD3D4BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

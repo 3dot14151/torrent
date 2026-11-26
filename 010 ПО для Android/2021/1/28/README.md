@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:F3753978D219D4413C04FCD361A554C9F244129A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Selena v0.2.18 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:D6C8EA09D0A12D62D7C6B85FC2D309564D82F826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Voice Training / Голосовая тренировка ver.Autoscroll Fix (120
 ```bash
 magnet:?xt=urn:btih:DD15E02C6AFCFC96910192A013B95A0054D9BF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Solid Explorer - это приложение для управления фай�
 ```bash
 magnet:?xt=urn:btih:68B5E89A94FA809C19E9818F2FE551679C4BF230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Cut Paste Photos v9.10.3 Pro [Ru/En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:B978FAFE69D887DCA7F41C72FDBAE45C16E44336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

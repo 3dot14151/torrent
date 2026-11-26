@@ -21,8 +21,7 @@ Neverland - Illusory World (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progres
 ```bash
 magnet:?xt=urn:btih:6AEA2A53A12628D2517996126FB27599281A4ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Black Hole Trance Music 11-24 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:9F6B97B5184D0E690622502B46AE7D050C624339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ eX-Driver: Nina & Rei Danger Zone | eX-Driver Danger Zone | Экс-драйве�
 ```bash
 magnet:?xt=urn:btih:3C77F3D926FC3B959EF8C3BC37846ECF32C7FFB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C72C7AD0E929161D8F9E5C47FD39BA1D01EF2FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F4197B8C268A2FAE4DF236240094B12F6B07EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Jerry Cantrell (Alice in Chains) - 5 Albums (1998-2024) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:3E8EE82F32872A9D2D406612D664B209EA900FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ PowerDirector – Video Editor v14.6.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B16E55C53BA1BD293BFD2D9B7E8849FC20B858E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VideoShow предлагает отличные функции редактир�
 ```bash
 magnet:?xt=urn:btih:FA4EC77CCDB4FA479DB3B13C419B4295511F486C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

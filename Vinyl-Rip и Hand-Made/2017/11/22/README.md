@@ -22,8 +22,7 @@ A4 Girls 3:29(   Читать дальше...   )Жанр: Pop Rock, Indie Rock�
 ```bash
 magnet:?xt=urn:btih:16CE4C77D2E1CB5B3211C8D91D85230E892E4C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 I Won't Let You Go 3:39(   Читать дальше...   )Жанр: Electron
 ```bash
 magnet:?xt=urn:btih:AA8454DA846AEC00CE0F963DBF39BB801C883B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Sy
 ```bash
 magnet:?xt=urn:btih:0E11EB57202FECA161229462EE4BAEE05DFBD690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 People Need Love 2:45(   Читать дальше...   )Жанр: Vocal, Pop
 ```bash
 magnet:?xt=urn:btih:4BA908E30EA0636C0755049A73F492ADDF4F91EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A4 Just Friends(   Читать дальше...   )Жанр: Rhythm & Blues, Sou
 ```bash
 magnet:?xt=urn:btih:1D8CBB97A133E7372398210D86F9DE6A5DB65E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ A4. Man On The Prowl (3:29)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:831CE912F07CC99C2040D0273DC663436025ED9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

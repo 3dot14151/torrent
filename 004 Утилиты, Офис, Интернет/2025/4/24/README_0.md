@@ -19,8 +19,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:D246A12EDAC9BC7D7641FEB290B0397CDF9ED5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CoolUtils Total Excel Converter 7.1.0.91 RePack (& Portable) by elchupacabra [Mu
 ```bash
 magnet:?xt=urn:btih:1A62F0BA9633E2C1FEBFD987BFA9491B7C3298DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Total Doc Converter — профессиональное решение для �
 ```bash
 magnet:?xt=urn:btih:760A1BB66A766CF27DA94864F2B68356665184B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Orbitum - шустрый и прогрессивный браузер на ос�
 ```bash
 magnet:?xt=urn:btih:EB101F707C5AD4BC369F353DD5B862604EF26F3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

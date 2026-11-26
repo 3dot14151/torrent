@@ -19,8 +19,7 @@ Hidden Expedition 6: Smithsonian The Hope Diamond / Секретная Эксп�
 ```bash
 magnet:?xt=urn:btih:9E01014715D3790770F2E8EF96A653B587241928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mind Snares: Alice's Journey / Ловушки Разума: Путешестви
 ```bash
 magnet:?xt=urn:btih:0F99E9A35FABCCD14E7C661D103AB40304BEF68B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Batman: Летопись Аркхема: Блэкгейт - Эксклюзивн
 ```bash
 magnet:?xt=urn:btih:D0014B0D7801B64C89300ABB84F7DFB57F5B0D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Batman: Arkham Origins Blackgate (2014) [Ru/Multi] (1.0.33270) License RELOADED 
 ```bash
 magnet:?xt=urn:btih:AF17FB899CA997638C59B052DB68929DD2666963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Batman: Летопись Аркхема: Блэкгейт - Эксклюзивн
 ```bash
 magnet:?xt=urn:btih:B7EC0FE03362C69E65590D685D2F24DB2763AAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Batman: Летопись Аркхема: Блэкгейт - Эксклюзивн
 ```bash
 magnet:?xt=urn:btih:F003CC3E9410EF7531BF94B88DEC8A1410CF43B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Rise of Mankind: A New Dawn это огромное фанатское допо�
 ```bash
 magnet:?xt=urn:btih:45E889FDBDC9C725B28A0C189D51F371C8AB3B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

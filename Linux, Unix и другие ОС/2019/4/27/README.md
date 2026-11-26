@@ -21,8 +21,7 @@ Debian GNU/Linux 9.8.0 + nonfree Stretch [i386] 4xDVD
 ```bash
 magnet:?xt=urn:btih:028DAD42ED9BF4ACEC5764C38D071070F3E2D084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

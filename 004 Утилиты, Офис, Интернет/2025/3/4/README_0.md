@@ -19,8 +19,7 @@ TUF Aura Core — приложение для настройки и програ
 ```bash
 magnet:?xt=urn:btih:08C684709883E6E059DF8DC5B713ACA05A0E33C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:DAC237956C9F0509F003FBF23B3530B242A91A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ The Art Of Fiction - The Wise Fool (2015) [MP3|320 кб/с]<Alternative Rock, Ex
 ```bash
 magnet:?xt=urn:btih:405A6D31F70834B6309CE8FD944973B9618B1F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Unreal City - Il Pаеse del Trаmоnto (2015) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:742FBCBE4EB9E335D5F31A50528CD7850F48B2B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FCFAEE78BD1A0319517707B4DF6A4CBD52D44EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Felix Chenier - Shameless Robots One (2015) [FLAC|Lossless|WEB-DL] <Indie, Post 
 ```bash
 magnet:?xt=urn:btih:6161306F2BE76F3526321D921749766F7DE535BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ Red - Of Beauty and Rage (2015) [MP3|320 кб/с]<Alt. Metal, Modern Rock, Chris
 ```bash
 magnet:?xt=urn:btih:0C6E4D014620EA805AA48C41CDA259F4ACF1FE75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

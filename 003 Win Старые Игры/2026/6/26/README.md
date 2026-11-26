@@ -19,8 +19,7 @@ Juiced (2005) [Ru] (1.0) Repack R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:4C1D9A3C7356A708DF6E38BF3D8664836196B5F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:558E8CA2698804D216072D10ED9B27F958CFC561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

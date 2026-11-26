@@ -19,8 +19,7 @@ Shadow Flare (2002) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:FD1C346A347EEC60B0C11866B567FB307CFED840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

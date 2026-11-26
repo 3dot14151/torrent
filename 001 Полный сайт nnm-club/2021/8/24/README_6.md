@@ -18,8 +18,7 @@ Deliver Express - это автоматическое решение для бы
 ```bash
 magnet:?xt=urn:btih:DD80D69B8DEEC6DFC2CC86020ED511FD7788B13E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:8CFE1BA8FD93F0F70E7AEF11E3A60A9B63E9CECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ TunesKit Screen Recorder 1.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:BECFDBC0F6073143589DBDFD2012568C21EAA2FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3234897B6CC23F3CD65DB946223DEEB0BABD6428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99810D9795E8ECFFE069731489F99127E01D3D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ TunesKit AceMovi Video Editor может отличаться от множес�
 ```bash
 magnet:?xt=urn:btih:73BCA5BF7CCE2B9019F30CA5ABAF94B366B049E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ TunesKit Video Converter 2.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:0C311E8B45967DB36418F650EC55CC820D206ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ TunesKit Video Cutter 2.3.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:ADFF09219AD3AC8D6E112E19459C765564A7362E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Ryan Lambie (Editor) | Game Dev Cookbook / Кулинарная книга ра�
 ```bash
 magnet:?xt=urn:btih:D7B3753475117FF2CCAC9383C1BAB746A1AC7747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Alex Martelli и др. | Python в двух словах:/ Python in a Nutshell,
 ```bash
 magnet:?xt=urn:btih:2392AD076B3706026C52AC6B18230F22C10F6901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

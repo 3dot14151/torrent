@@ -28,8 +28,7 @@ Artemesia - Apocryphal (2003) [WavPack|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ BandcampЖанр: Progressive Gothic MetalПродолжительность: 00
 ```bash
 magnet:?xt=urn:btih:7CC183B807D01EA3E6275B26BC65115280B7E061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Maciej Malenczuk - Psychodancing (2008) [MP3|192 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:909A9970640B3440FEAC5E75BCCD23D1DA4F1B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Carcariass - Hell And Torment (2012) Compilation [MP3|~245 кб/с (V0)]<Technic
 ```bash
 magnet:?xt=urn:btih:21A16480161CDB3FD7C640F20B800F1FDFE5E59D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Tatiana's Niovi - Breath of Light (2012) [MP3|320 кб/с]<Melodic, Symphonic, P
 ```bash
 magnet:?xt=urn:btih:43B31C45CD0DBB304A43EDE27A8DD6B236A7D948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ I. A Sorcery Written in Blood Demo 1993
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:667A0431BCB4D56C5C14E0334141489ECFF97898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

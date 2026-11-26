@@ -19,8 +19,7 @@ Manfred Wieczorke (ex. Eloy, Jane, Firehorse) - Transfer (1987) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:1E075FB25DE4ACDA6AFA8EB33EC622287400A7B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Bazzookas - Ska.World (2016) [MP3|320 кб/с] <Ska, Altertative>
 ```bash
 magnet:?xt=urn:btih:5B76EB28B241475ACFDC4245812286496E92F42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:85592DF40C71A7B8EA47B1BE91E07E2ABF16467E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ The 69 Eyes - Universal Monsters (2016) [MP3|320 кб/с] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:823F2295BC1F11813D255CCBEB41D1B2D2477B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

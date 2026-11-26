@@ -19,8 +19,7 @@ Directory List & Print – менеджер каталогов, предназн
 ```bash
 magnet:?xt=urn:btih:6B403B159F1952B2F676EEB14BBC0FEBE394C86D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

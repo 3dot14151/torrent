@@ -21,8 +21,7 @@ VA - True Uplifting (Mixed by Mhammed El Alami) (2016) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:0373F1DF6112FA8DF5698E880EC724093C3422B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CAB957E0FFC21E7F7C5EE85C29AD1EBB12B550B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Lorenzo Fragola - Zero Gravity (2016) [MP3|320 кб/с] <Italian Pop>
 ```bash
 magnet:?xt=urn:btih:4F3722535D1102FF0335E21FEC6E150CA1F0351B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ VA - A State of Trance Radio Top 20 - February (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:F9ACE7BABAC2750EE5C5CB14D1BA9E5FA469FC12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D8904EFE1BCC5992A136FE165B11633137FF847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:E870CE2A8027CBCE9029F0D981181DD11F8FD2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ The Dear Hunter - Act III : Life And Death (2009) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:BE7ECBB93CF3D1558072CF6B3193B73C060AADAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ VA - Drum & Bass The World Of Remix (2016) [MP3|320 кб/с] <Drum & Bass, Remix
 ```bash
 magnet:?xt=urn:btih:F05CF268DE41314D13D47112AED0EF89564033EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDE4D636DA36A4C5008250D94DA4296CCE1EFA6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Bobina - #Uplifting (2015) [FLAC|Lossless|tracks+.cue] <Trance>
 ```bash
 magnet:?xt=urn:btih:233BD7EE3AFD8050F5F58F845EED21FE5BD3851C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B474EB241B0A3E0611B1A0AE59022F31CD871B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21E1DA0CEB6B75F4C75204C464CAE2BDD1792BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ VA - Advanced Modern Mood Music Vol 1 (2016) [FLAC|tracks] <Downtempo, Lounge, C
 ```bash
 magnet:?xt=urn:btih:FC40B273AB6C560A6F139C343F0F561BBB37B2C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ VA - Best Of Trancer 2015 (Mixed by Nick Turner) (2016) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:CBF2CF67C915CBB51960283EFEECA2A565B2D6FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4E7EEB146F1B4993909DEE11981E9ADF8F9FFE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBC8B64A07C56D91FCF6FC094D4E0EB85A8A43CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5047670B204E6B3534B683E351A9D4EF3328A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ VA - Праздничный душевный Шансон (2016) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:56686BAE3718CBF45E36156452B371BFDBE606AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ VA - Cycles 7 (Mixed By Max Graham) (2016) [FLAC|Lossless|tracks+.cue] <Progress
 ```bash
 magnet:?xt=urn:btih:D9AC5DE89099BF3176FEE4C357A221B6558FF9C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ Agrelia's Castle - Elders and Ancestors (2015) [MP3|320 кб/с] <New Age>
 ```bash
 magnet:?xt=urn:btih:8F68A97102CF5E3CD03987A8EC40BCAF96547C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C083265F4681E456FFD61804706AED939B8FA7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBAC81DCA7F348BAF97985AB051B9E7D5A601844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ Spagna - You Are My Energy (1988) [MP3|320 кб/с] <Italo-Disco, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:F349AA2EEF010B34390FAB940FCBFCAAC793B0CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F120E880A43598D314D99545959691806426F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ VA - Moments of Soul-Chill Mix (2016) [FLAC|Lossless|tracks] <Lounge, ChillOut, 
 ```bash
 magnet:?xt=urn:btih:B4743213D12119ACD1B2741CABFE872F44E971A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Areca Backup - программа для создания резервных к�
 ```bash
 magnet:?xt=urn:btih:A408F788393445F9731B30795AC310D10A7B3CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18ED9A6BF46E1E956D9B3EB1323D397E3D2BC5FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:812BA39F99D657D04DCAF64B26A30D88A6E50797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9784AC290FDA46E16F6ECBCA08BAE6100C1FE034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA5D779D9E915ABF4CACB87DFF84E4011FABE22A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Wallpapers - Animals(18.05.2014) [JPEG]
 ```bash
 magnet:?xt=urn:btih:C2C0DAED446937648D72C1A62766790D8D7222BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD13B846C1D2B52D08AFD6550AC974E701859DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Wallpapers - Landscapes(18.05.2014) [JPEG]
 ```bash
 magnet:?xt=urn:btih:DA577E6E926350CCD8D577D300705E5115CE1E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ XETRANSLATOR - бесплатный оффлайновый переводчик 
 ```bash
 magnet:?xt=urn:btih:79460E922BF05745CB51EAD6CF0B2BF010DAAA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF42ABD7EF718AD56F536B273630348970D1748D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ VA - Relax Playlist (2014) [MP3|320 кб/с]<Relax, New Age>
 ```bash
 magnet:?xt=urn:btih:36E68A26B0DF6AE01148C8D1033ECBBC83A49010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Stand Up. Выпуск №29 (2014.05.18) SATRip
 ```bash
 magnet:?xt=urn:btih:5B65962CCC1AA4B58414968F885BCC4E4B64E604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ Stand Up. Выпуск №29 (2014.05.18) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:8C674BF7F221406757B9B945462D2FE4E5549603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A0D9D354196A6BDF28BB6792F05EFE5C364A2BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32338EC8D04EC5F914A5F7EE37BB4AB980848861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Discovery: Разрушители игрушек / Adam & Jamie's Dangerous Toys
 ```bash
 magnet:?xt=urn:btih:758C02CFD75FDC44C9CB0F78C84241124AE54BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Eminem & Britney Spears - We Together (2011) [MP3|256 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:A886CA2F9F19781F4DBC34BA0C28F3954DD7467E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ VA - 100 Лучших Романтических Композиций (2014) [MP
 ```bash
 magnet:?xt=urn:btih:530A0EC05BDF5B8737D2D3D6B319EE549FEE9DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ VA - The Best Rock and Metal Ballads 2014 Episode 01 (2014) [MP3|320 кб/с]<Ac
 ```bash
 magnet:?xt=urn:btih:FB6BF4625744267DBAACA1C3F45E803A1F924193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ DiskSavvy - полезный инструмент для анализа своб
 ```bash
 magnet:?xt=urn:btih:D79D859C3335EEC7498D1FAB748A8EE24A6E0701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCEDA48A21347CE1C8485F4931D5E7E563F02913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ Mix обои для рабочего столаРазрешение файлов
 ```bash
 magnet:?xt=urn:btih:591393D03C3CF2658D1C08AFC71084B92942B96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ Wallpapers - Обои для рабочего стола - BioShock [JPEG, PNG]
 ```bash
 magnet:?xt=urn:btih:0AFC91854241B8127A477429301842420FA2510B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ Discovery: Махинаторы (Автодилеры) (сезон 3, серии
 ```bash
 magnet:?xt=urn:btih:875E0E462B815762C0D36799DB182C940FBB5CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DE5174C67786A022DB9379366D23250C9C68917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:818148F35D19F92265FF6E8ACBE74FDEB02B90E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

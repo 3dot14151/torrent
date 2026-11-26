@@ -19,8 +19,7 @@ mPro.Скорая помощь v2.2.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:45F50DEF59C778F9E4E53CB48E4CF6C898D318F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

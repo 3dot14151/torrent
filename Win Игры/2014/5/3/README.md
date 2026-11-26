@@ -19,8 +19,7 @@ Amber's Tales: The Isle of Dead Ships (2014) [En] Unofficial [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:DE68020C39B2CE17C5E3D1296F7A5522E2085DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phenomenon 3: Outcome (2014) [En] Unofficial [Collector’s Edition / Колле
 ```bash
 magnet:?xt=urn:btih:B0A82C3400564738D8D87E47799F74DFA2AA4FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ BloodRayne Betrayal (2014) [Multi] (1.0 upd1) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:3358987DB29A6EFD19C4A2DE0EDF7FDC50A455DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

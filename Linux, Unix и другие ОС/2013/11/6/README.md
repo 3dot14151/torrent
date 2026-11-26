@@ -21,8 +21,7 @@ Frugalware Linux 1.9 [i686, x86-64] 2xDVD+2xCD
 ```bash
 magnet:?xt=urn:btih:1076C1377F5A98A48373BBA2FBB9289598C214E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

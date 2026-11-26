@@ -19,8 +19,7 @@ Minit — уникальная приключенческая игра, где �
 ```bash
 magnet:?xt=urn:btih:7019735AB1B53958D184E86F916A3AEC0DA2A98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

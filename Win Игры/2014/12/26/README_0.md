@@ -23,8 +23,7 @@ Professional Farmer 2014 переносит игроков в деревню, г
 ```bash
 magnet:?xt=urn:btih:8145CD833C0C48F9D7296C4D4612EA256220E20F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Retro City Rampage DX (2014) [Multi] (1.51a) Unofficial OUTLAWS
 ```bash
 magnet:?xt=urn:btih:540C8C080D47359210E9C3D1DF3A3C9537FDF7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Into Blue Valley (2014) [En] (1.0.2) License FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:C5B8ED7D93539FFF9059E338ABBBB9420B5AB29C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Braveland Wizard (2014) [Ru/En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B20CB4C48C2D29F55434A39D660D123FA6579CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Abyss Odyssey (2014) [Multi] (1.13) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:AAF0EB98748D83407E92ACCC6350175624CE99FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

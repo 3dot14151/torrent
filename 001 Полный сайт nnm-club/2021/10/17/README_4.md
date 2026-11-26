@@ -18,8 +18,7 @@ Michael Jackson: The Experience (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO 
 ```bash
 magnet:?xt=urn:btih:68D52A976DC256F2CF93A6005A3ED8900FBB7516
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE480452F37EC4A46E2C9F85BB08472FC6EAF618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7828FC5C11EFF78E1E86CE82B0E073FB0FCB7F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ NHL 16: Legacy Edition (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE PRO] [License
 ```bash
 magnet:?xt=urn:btih:78F06DE4B6BD36814172877D5D01B4AE6CC00CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Cars 3: Driven to Win / Тачки 3: Навстречу победе (2017) [PS
 ```bash
 magnet:?xt=urn:btih:A9D6636EC9F465022369DB818DA742D59B61813B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55D9308D59E080C4EB13397C94FDEB95F72FB1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Rayman Legends (2013) [PS3] [EUR] 4.46 [Cobra ODE / E3 ODE PRO ISO] [License] [R
 ```bash
 magnet:?xt=urn:btih:BFB49C10A7BED20C8FF4EE2DE68D9B34D0F1380B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Microsoft® Windows® 11 x64 Ru 21H2 4in1 Upd 10.2021 by OVGorskiy
 ```bash
 magnet:?xt=urn:btih:A8D5751E7C58328BC88791A6B9FB07B625E3C763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C03F477953E94A685DA3F7A0A7B27172DD830999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05AEF4E635DB6EA42EC58B83677020464D1049CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ itProger | Профессия FULL STACK разработчик (2021) WEB-DL [A
 ```bash
 magnet:?xt=urn:btih:9141BEB734FDC7E8BB806EEB6880C0C15C1CED63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Parallels Desktop Business (   Читать дальше...   )Тип изда�
 ```bash
 magnet:?xt=urn:btih:5E8C38EC49E4E5AE8CE5E52FA79EFB70CA2DE4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:63CC174E9B2B03908D351D45938FBE7389F05CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B491C60DEC324FAFEB10A1776215E8894C6E70C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

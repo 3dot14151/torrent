@@ -28,8 +28,7 @@ The Last Of Our Kind - A Diamond In The Rough (2012) [MP3|320 кб/с]<post-hard
 ```bash
 magnet:?xt=urn:btih:E65C9A244D717BCBA1A8AACCC902DD3937613328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ I Am King - Onehundred (2013) [FLAC|Lossless]<Alt.Rock | Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:19ED7059561FC2C1E0A13FF4D4C7ACCBCB351B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Ragged Saints - The Sound of Breaking Free (2013) [MP3|320 кб/с]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:2D8BA5A095D412CAE69B04A4A7D8E8070D567819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Broken Hope - Omen of Disease (2013) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:B4B18A09CA2CD62BF22878305DC260AF41F4162D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Falkenbach - Asa (2013) [MP3|320 кб/с]<Viking / Black / Folk Metal>
 ```bash
 magnet:?xt=urn:btih:7B3F2372A756CC504B5D0F3AB84E53AC4DE3F844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90FD719A6CC8080AED72270F3E0C54BFBB2D11B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Jefferson Airplane - Thirty Seconds Over Winterland (1973) Remastered /2013, Cul
 ```bash
 magnet:?xt=urn:btih:F24E85A226C7C502D7CD1BA6D30F67AF4666F89F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5DE331E081DDAB3A16BD5A8CE5366B5E62343D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Bridge Linux основан на Arch Linux, и включает в себя г�
 ```bash
 magnet:?xt=urn:btih:7858B8C0260CBC7330B7C10B9C3C1EBFC9B7159C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

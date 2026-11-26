@@ -19,8 +19,7 @@ Death Road to Canada - это аркадный экшен про дорожно�
 ```bash
 magnet:?xt=urn:btih:D048738C61C602C7126B95BE343C51D2121DCA18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.6.6.0-p/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8B78180B4C0AF0D2AAF4947FC4FC57E76B5C54AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) Repack Let'sРlay [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:F1D9063A812546514557701E6608DA146DAAE0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Super Woden GP 2 - это любовное письмо в мир автоспо
 ```bash
 magnet:?xt=urn:btih:4660D1B5C02763160D1EEB18C3A02BD9FD64D472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (101.103.12349.0/dlc) Re
 ```bash
 magnet:?xt=urn:btih:04A4870DF95FB48860140CA86AE17D5F115F2436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (Build 18318222/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:72F71503EAE4A7F17D7844523DD434E0A8C02FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Breath of Fire IV (4) (2000) [Multi] (1.0 HotFix 4) License GOG
 ```bash
 magnet:?xt=urn:btih:8BD1AADB65F518BC430A3CC36EDBF42993968BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Ary and the Secret of Seasons - удостоенная наград приклю
 ```bash
 magnet:?xt=urn:btih:735F82A14BE8DAA6206A72E31487CCB354E84105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

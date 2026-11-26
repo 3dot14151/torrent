@@ -27,8 +27,7 @@ VA - Ibiza Chill House Garden 2014 [MP3|320 кб/с] <Chill, House, Downtempo, C
 ```bash
 magnet:?xt=urn:btih:F197002E991E02294DA20E951CCCE531A7A0D69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Discovery: Наука магии. Полет из пушки / The Magic of Scie
 ```bash
 magnet:?xt=urn:btih:DA39612E43150AFF30CD4C6967286B1E1D5B0B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21127C2FA04D67379ADA6FB64F2174240E988631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ The Quiets - Sound Of The Quiets (1991) [MP3|320 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:F20C2220E0E049098E499ED339F9D02A96A4664B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ The Pack A.D. - Do Not Engage (2014) [MP3|320 кб/с]<Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:63C991180873FF72EDCCEE74D82441E7C6B2B865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Agent Kritsek - Universe (2013) [FLAC|Lossless|WEB-DL]<Psy-Trance; Progressive T
 ```bash
 magnet:?xt=urn:btih:82DA32CF6E60B11BC3017F0EBEC3BDC63F8D7587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Lemonchill - Sentant (2009) [MP3|~190 кб/с (V2)]<Downtempo, Psychill, Chillgr
 ```bash
 magnet:?xt=urn:btih:B82A827C3DB5C8469745A36857C93CC0F9E23771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +244,7 @@ Sinbreed - Shadows (2014) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:2FD944AE0A27F035693FD7336F2680C25D6298F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +278,7 @@ Lunarave - Do You Know Who You Are ? (2014) [FLAC|Lossless|WEB-DL]<Psy-Trance; P
 ```bash
 magnet:?xt=urn:btih:E9D949146796F6FDE92010A47FC98530064794FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB44CEBED43D42A9074A0D9E9C447DEB53C32A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC119D598352DF0D820BF4461658F35A12EA76E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +369,7 @@ Lars Gullin - Bluesport (1992) [FLAC|Lossless]<Post-Bop, Cool Jazz>
 ```bash
 magnet:?xt=urn:btih:B4FC8275BAF8EE6790928BFF619EE536A75C3A20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +403,7 @@ VA - Almost Weekend IV (2014) [MP3|320 кб/с] <Tech House, Minimal>
 ```bash
 magnet:?xt=urn:btih:4DDD37393E12F3280C34695E9D9B54DB95001FA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7712B074DA97E111261B696F5B65424C662AD191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +462,7 @@ The Oath - The Oath (2014) [FLAC|Lossless]<Heavy/Doom Metal/Rock>
 ```bash
 magnet:?xt=urn:btih:B12AFBA7EDDFC2BFB6F8B86AC2B69295D7DEA980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AD4B4971BF0661446956B009A804488A108F07E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +521,7 @@ VA - Full On Fluoro Vol. 3 (Mixed by Activa) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:985896D93BF67EA775DF71D0DF58AAD8021EFDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B644F016C99CABC5D3503635DD1010B3AF3B8C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +580,7 @@ Lemonchill – Peace Code (2014) [MP3|320 кб/с]<Downtempo, Psychill, Chillgre
 ```bash
 magnet:?xt=urn:btih:03528991B9C54BEBFFF285E588195ADEFCE0C628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +614,7 @@ Beegie Adair - My Romance (2006) [FLAC|Lossless]<Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:5D5543FD66100BAA03359FC462E0A00C032A84CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:531C55E5B12174896500C36A4B3C831C284266AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +673,7 @@ Big Joe Turner - The Very Best Of Big Joe Turner (2009) [FLAC|Lossless]<R&B, Blu
 ```bash
 magnet:?xt=urn:btih:43298CF892404EAF9B9842B97C08DC2DC0B86136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +707,7 @@ VA - MixMag presents Hot Since 82: Knee Deep In Mixmag (2014) [MP3|~245 кб/с 
 ```bash
 magnet:?xt=urn:btih:DB687F45641DA6E3FF2D96F09D04EEE88E1162B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +735,7 @@ Heisskalt - Vom Stehen Und Fallen (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:6BF9A762386CE19F934209C75EE34A5C41438E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +768,7 @@ Lemonchill - Chillout Senses (2013) [MP3|320 кб/с]<Downtempo, Psychill, Chill
 ```bash
 magnet:?xt=urn:btih:D0327FD3BFB39D42EC466CE488477479DDCCA7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -826,8 +801,7 @@ Lemonchill - Journey Through An Electric Garden (2009) [FLAC|Lossless]<Dub, Down
 ```bash
 magnet:?xt=urn:btih:7496E6DB56352E9ED39C9DD851B6138EBCFA021E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

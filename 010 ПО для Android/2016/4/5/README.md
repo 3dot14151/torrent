@@ -20,8 +20,7 @@ ROEHSOFT DRIVE-EXPERT 1.21 [Ru]
 ```bash
 magnet:?xt=urn:btih:C9C337D1EF43F25E405927468A1EC349620DB424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

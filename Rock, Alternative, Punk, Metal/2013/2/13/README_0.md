@@ -28,8 +28,7 @@ Oblivion Sun - The High Places (2013) [MP3|320 кб/с]<Eclectic Progressive Roc
 ```bash
 magnet:?xt=urn:btih:A5A7D7874E498C7531CF52D5834E29C6487539A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Heartbreak Radio - On Air (2013) Japan Edition [MP3|320 кб/с]<Melodic Hard Ro
 ```bash
 magnet:?xt=urn:btih:168D53E87D31CB2E120D4913D0D4C602A26DDDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Plastic Tree - Ink (2012) [MP3|320 kbps] <Visual Kei / Rock / Alternative>
 ```bash
 magnet:?xt=urn:btih:198427D8C8E6F1F63BC80CC4E37CD98D843CC844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Dёргать! - Наболело (2013) [MP3|320 кб/с]<Punk-rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ The ReBeatles Project - Get Back! (2010) [FLAC|Lossless]<Rock/ Beat>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Staind - 8 Альбомов (1996-2012) Дискография [FLAC|Lossless] <
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

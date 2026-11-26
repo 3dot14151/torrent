@@ -19,8 +19,7 @@ Jazz Jackrabbit 2 [En] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:6C8A870B69F76916195CF87CDCF84BC2F2F2AB6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ BioForge [Ru\En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:CC00853F31F299CD52BAC81A73B26C2BE2CEDC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ The House of the Dead. Антология (P) [Ru/En] 1998-2005
 ```bash
 magnet:?xt=urn:btih:1E9B6EE8D6D85B59DAD349039742881D30C902FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

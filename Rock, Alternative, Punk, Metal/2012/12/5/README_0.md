@@ -23,8 +23,7 @@ Wild Turkey - 3 CD (1972 - 1973) [FLAC|Lossless]<Hard Prog>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Paul Rodgers - Vocals, acoustic and electric guitars, producer(   Читать �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

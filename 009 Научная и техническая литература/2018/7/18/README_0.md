@@ -19,8 +19,7 @@ C. А. Аррениус | Химия и современная жизнь (1925)
 ```bash
 magnet:?xt=urn:btih:F5E0A570B0C93582BF081DCABB42FCD02D5BF0A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

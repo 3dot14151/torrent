@@ -28,8 +28,7 @@ A.R.C. Soundtracks - Archive: Volume One (2014) [MP3|320 кб/с]<Post Rock, Exp
 ```bash
 magnet:?xt=urn:btih:61D43BC205748E018A82810D7CE5F258E5019424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ A Sound Of Thunder - The Lesser Key Of Solomon (2014) [MP3|320 кб/с]<Heavy Me
 ```bash
 magnet:?xt=urn:btih:269246DB17A808A871144CB543D6C7F48A994539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Irreversible - Surface (2014) [MP3|320 кб/с]<Atmospheric Sludge, Post Metal, 
 ```bash
 magnet:?xt=urn:btih:43AE7E7EA043FA7D4D2A44182490DB5D66F96757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ AWOLNATION - Megalithic Symphony (2013) /Deluxe Edition 2xCD/ [FLAC|Lossless] <I
 ```bash
 magnet:?xt=urn:btih:EC01909E6AE592ACE153C39AA0F809DADF202CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

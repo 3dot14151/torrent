@@ -22,8 +22,7 @@ Stairway to Heaven - Brain Damage Tribute to Pink Floyd (2012) [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:5D12FD492ED643E98DE511F016563A7609F4A619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Vampiric RitualsЖанр: Black MetalПродолжительность: 00:30:1
 ```bash
 magnet:?xt=urn:btih:1FA934559D43008977FB72094572787100145ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Metallica - Reload (1997) [APE|Lossless|image + .cue] <Metal>
 ```bash
 magnet:?xt=urn:btih:C9FE91CA89B1EBE50F1B652C90CC635CD84F2C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

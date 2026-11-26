@@ -19,8 +19,7 @@ Cannon Blast! (P) [En] 2007
 ```bash
 magnet:?xt=urn:btih:0B0BB57F00BF916182DBE70C5906A558991BE417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cannon Blast! / Морские приключения (P) [Ru] 2007
 ```bash
 magnet:?xt=urn:btih:B7289991559870A5263E6D1873EFDBDF8EABD7CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jewel Quest Mysteries: The Seventh Gate Collector's Edition / Тайны дре�
 ```bash
 magnet:?xt=urn:btih:F6C257C2596FE913C29DC17B9DA1F8746C4AFDD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ M.A.R.S. a ridiculous shooter (L) [Ru/En] 2011
 ```bash
 magnet:?xt=urn:btih:28ECD3ADB3B808B6FFBF5EDE7F56CD8DCA94E9AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

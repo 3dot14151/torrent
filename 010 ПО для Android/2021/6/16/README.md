@@ -19,8 +19,7 @@ Mubert — мобильное приложение, которое генери�
 ```bash
 magnet:?xt=urn:btih:1CCD3A07DDF7519B3C7A25A0CB5870EB2C482883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Last Faith рассказывает о герое, который решил
 ```bash
 magnet:?xt=urn:btih:D9B158B764E50C83783FD832F1EB7D0383ECAB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Children of Silentown – приключенческая инди-игра, с �
 ```bash
 magnet:?xt=urn:btih:1A3C3227024E23F55A4D4D5ECFFBE41775B92228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ GINSHA - это уникальный атмосферный приключенч
 ```bash
 magnet:?xt=urn:btih:6DF8109EF6960987DBDCE20FCE9528F93190E60A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Boyfriend Dungeon - динамичный рогалик с элементами 
 ```bash
 magnet:?xt=urn:btih:C2527DC84C58077466DAB852B6840631F5B2A8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Star Explorers рассчитана на любителей космоса и п
 ```bash
 magnet:?xt=urn:btih:844A1AA039CD4A94C57F76104187BB232C4E651A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mahoutsukai no Yoru / Witch on the Holy Night / Ведьма святой ноч
 ```bash
 magnet:?xt=urn:btih:14EA086FFB3EAFC4466625452EEE1F95C34A87E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ms. Holmes 5: The Milverton Plot / Мисс Холмс 5: Заговор Мил�
 ```bash
 magnet:?xt=urn:btih:515E0A98D93C9DF62E44A3852553E8900AFA6E55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

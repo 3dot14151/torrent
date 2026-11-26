@@ -19,8 +19,7 @@ Kubuntu 13.10 Saucy Salamander [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:65984FBE939404FF3E9F0BCC22D7C9D435E1D494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

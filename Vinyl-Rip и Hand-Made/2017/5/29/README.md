@@ -22,8 +22,7 @@ Written-By – Marshall Brown(   Читать дальше...   )Жанр: Twist
 ```bash
 magnet:?xt=urn:btih:60A9FA385311AE692CA9F1398CB1E47541B02E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

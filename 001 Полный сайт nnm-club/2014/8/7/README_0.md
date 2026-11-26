@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:56CE3A6341FD0229A72381A79546EBFD74449338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E3B06B734C2EA1B37B57A076186F78C30B9C4B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chase & Status - Brand New Machine (2013) (Deluxe Edition) LP [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:C0DAEBBB6A7EB6DD6DCEEF12828D3B6599CACF1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ VA - The Very Best of Groovy Jazz 'N' Chill Lounge (2014) (Relaxing Chillout Coc
 ```bash
 magnet:?xt=urn:btih:2AC1F2D94567A1B84668247ED0BFDF7B832E2595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Ashampoo WinOptimizer 11 - новая линейка пакета програм
 ```bash
 magnet:?xt=urn:btih:0E56EF0F5B2AF17069A70BA4F79B1D56C6D46FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B426A8C540A676A8E5EA2377E2DB1CE317D08CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08F0E70F213CA5EC7EC8EBC8B58435AAD1ECB2CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Bare Bones Boogie Band создана в октябре 2008 года. Учас�
 ```bash
 magnet:?xt=urn:btih:82805C034387B1756B67EDEC8C8E967B36A6F43F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ EditPlus — компактный текстовый редактор для Win
 ```bash
 magnet:?xt=urn:btih:345F4018D1D9AE345159B599CFFF6BBCBB0D198B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CB77BF59AB58B7440145BD8092A0EB9DA51113D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3DEE68F9B01BA1073009C633CA220FF43ACBB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ Chase & Status - International (2014) [H.264/1080p-LQ] WEBRip
 ```bash
 magnet:?xt=urn:btih:70ABF97F5F2396661C71392E4C9E0E84F20E1734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ The Interrupters - The Interrupters (2014) Deluxe Edition [MP3|320 кб/с]<Alte
 ```bash
 magnet:?xt=urn:btih:6088F7D8FE077589E73C00DCC0ADDA5BFCDE16A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E272A7C03DAC8C48539912EBFFA2389B26E4BD2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6250EAFE7FA57FFEE5E1F36E8740BA2822E657E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D69AD5F10E0F2A9D67A8B15F89339227B0CCD60A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE9F9330C9005CDB4E5288C2A5BEB8ABF772D1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Dmitri Shostakovich: - Violin Concerto No.1
 ```bash
 magnet:?xt=urn:btih:926F9F59FB16399A4584CEC2F83DAF75AD934668
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A3809D788E11DE37FD276BE3370C4BA2DD734E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ Advanced Batch Converter - мощный конвертер графики. Ун�
 ```bash
 magnet:?xt=urn:btih:33F68001F10068673C0431A81A88A84720BBA8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Saphir - Perfect Combination (2006) Limited Edition [APE|Lossless]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:A10645E60EB64E108BF19DAE0E9E6B4E735A5615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Icecream Image Resizer - бесплатная программа для удоб
 ```bash
 magnet:?xt=urn:btih:C2D71656288011951E01B8B62F503033F6CED37E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0F814CF516639F09AB58E109825E523DC9B9D488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ Mike Farris - Salvation In Lights (2007) [MP3|320 кб/с]<Gospel Blues>
 ```bash
 magnet:?xt=urn:btih:7C7BB5BA70F0508DDDC67B530F44D9A9FCCFB7FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ Grant Miller - The Maxi-Singles Collection (2007) [APE|Lossless]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:66B0F3FDD3294E18241CF0444A6E89DEF7CB861B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF8C79196232E00964AFE23D55BD1CE2439B154E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

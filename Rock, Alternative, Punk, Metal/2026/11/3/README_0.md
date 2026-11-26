@@ -22,8 +22,7 @@ Joe Satriani, Steve Vai - SatchVai: The Sea of Emotion Joe (2026) [FLAC 24/96|Lo
 ```bash
 magnet:?xt=urn:btih:05FE11DF4AB5EE94525F86647B15084E0652DC5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

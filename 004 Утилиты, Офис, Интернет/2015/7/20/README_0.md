@@ -20,8 +20,7 @@ AutoRun Pro Enterprise 14 - мощный визуальный инструмен
 ```bash
 magnet:?xt=urn:btih:C1FB952D349659312E85849EC1406A1068E8AEEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ XTV Suite - комплекс для вещания в сети интернет 
 ```bash
 magnet:?xt=urn:btih:234F349A31D854E5967993321A8F55FB8C430706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Acronis True Image — это интегрированный пакет прог
 ```bash
 magnet:?xt=urn:btih:EEFE559AF9235B165BC41F61BFDDEE46CE184458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

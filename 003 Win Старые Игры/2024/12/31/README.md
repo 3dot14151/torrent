@@ -19,8 +19,7 @@ Monster Jam - это гоночная игра на монстр-траках, �
 ```bash
 magnet:?xt=urn:btih:EC0A5A947316F02D87834F619BC950EBCDB734B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

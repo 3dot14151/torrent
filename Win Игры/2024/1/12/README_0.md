@@ -19,8 +19,7 @@ Pro Cycling Manager 2023 (2023) [Multi] (1.9.0.443) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:4184572A50CDEDDA05F47CA76991C5B4383E289E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon Quest Treasures - ролевое приключение, в центре 
 ```bash
 magnet:?xt=urn:btih:D67FDCF4C7B5E3E21E8A3147FA8EFB443FAF44E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shining Song Starnova повествует о попытках девушек-а
 ```bash
 magnet:?xt=urn:btih:0FC529F2E68A1D1F02BCDB4FFCDC10323E74A3FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ A Boy and His Blob Retro Collection (2023) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6D8BF48FAE19CA2D4FA9808F0D3A66DE1BB70E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

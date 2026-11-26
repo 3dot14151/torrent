@@ -22,8 +22,7 @@ Element Eighty - Mercuric (2001) 2023, Element Eighty [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:5F47495415688F99423993B042095A9DA2170A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ghosts of the Mud - Scalp Sermon (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 ```bash
 magnet:?xt=urn:btih:817F9408183BD4A07FE38545F935D990BECF78A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tommy DeCarlo - Dancing In The Moonlight (2022) [FLAC|Lossless|image + .cue] <Me
 ```bash
 magnet:?xt=urn:btih:4EEDA4EA96F209757EA4D7E8A204A6F32109F4FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Angelwarrior Ace - Devotion (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash,
 ```bash
 magnet:?xt=urn:btih:5EA60921FE35A13769ABECC3B00FD931AF0F6E0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ In Flames - (с англ. — «В пламени») Шведская гру
 ```bash
 magnet:?xt=urn:btih:1542D77AFB719333D00C1BAE15AFFEE6149BDB8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Remote Viewing - Modern Addictions (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge 
 ```bash
 magnet:?xt=urn:btih:C7C43ECF61050985B13E39266BEFBC986281C85D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Tarmat - Out Of The Blue (2022) Japanese Edition [FLAC|Lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:A3E8CC26BE9B88349412A4F7B0C5A9ACCBAF15BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Betelzeus - Shedding the Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom
 ```bash
 magnet:?xt=urn:btih:901B241E32A0E75C37316759929C830B80C6BDA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ deezer
 ```bash
 magnet:?xt=urn:btih:571376AF510D6A84EFE0C1AB9BF34E957565498B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Clouds Of Clarity - Superficial Society (2022) [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:B4E21E7174F4AAB735F5E6A78BDEE9E2A3F48D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +304,7 @@ A Story Unfolds — это проект с участием продюсера, 
 ```bash
 magnet:?xt=urn:btih:86DB88193FD2C78BF8A78482BC0F918B3BDE3A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Misery - Misery Loves Company (1991) Remastered, 2022, Eonian Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:47525FAE07EAFC71E17ED5237841DD607BEFE80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +360,7 @@ Motive Black - Auburn (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Modern Har
 ```bash
 magnet:?xt=urn:btih:96D543A8B976A2322C134C4353F192D61A74ABF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +388,7 @@ Hazer - Pessimist (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C2103F61DD03FD77EA0FE6FD78958D072FD007BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

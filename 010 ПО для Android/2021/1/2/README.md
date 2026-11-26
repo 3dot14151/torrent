@@ -19,8 +19,7 @@ Solar System Scope - представляет собой виртуальный 
 ```bash
 magnet:?xt=urn:btih:6550B0541E4F4DCD0FB4A1488B4C80E410F95C81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

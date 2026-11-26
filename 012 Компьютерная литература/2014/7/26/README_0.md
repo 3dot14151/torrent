@@ -19,8 +19,7 @@ Excel – многофункциональная программа, котор�
 ```bash
 magnet:?xt=urn:btih:C8CDE501E2FA486075B9BDB620B2DCC643F7F7A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MotoGP 13 – новый симулятор мотогонок с серьезн
 ```bash
 magnet:?xt=urn:btih:2D38D137BEFD0B3621631EF54EE405975A57A697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Crusader Kings II открывает перед игроками один из �
 ```bash
 magnet:?xt=urn:btih:B5DD8597E17B7C8F9188EDF3FE49525C3C52B9CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

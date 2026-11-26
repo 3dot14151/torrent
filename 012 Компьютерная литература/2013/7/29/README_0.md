@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:D93EAB2F4CBAF4B020378629DD5259ACD18F06C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ S. Sinchak / С. Синчак | Windows 8 Tweaks / Windows 8. Хитрости [
 ```bash
 magnet:?xt=urn:btih:1359E0F2CCCB1BF8611BC34801FEC136C5BE49A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF542F88C0EC4156945DAB03B0CB3AB6A42D7920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC03A1327F890CDC8257B4D5860B462757423565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

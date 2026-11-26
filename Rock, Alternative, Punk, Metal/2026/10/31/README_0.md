@@ -22,8 +22,7 @@ Crystal Eyes - Thunder God (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power M
 ```bash
 magnet:?xt=urn:btih:4EFA9D353DA216707610CEF3C96DEA890955B3A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD4 - Straight Between The Eyes(   Читать дальше...   )Жанр: Har
 ```bash
 magnet:?xt=urn:btih:7F002B268C12436CE419B9B1D42248DFD90014C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

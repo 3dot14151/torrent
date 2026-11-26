@@ -19,8 +19,7 @@ Midight : Submersion - это приключенченский хоррор тр
 ```bash
 magnet:?xt=urn:btih:B567F1553F41DE4F73C5DD8158B6F05349C5F95C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

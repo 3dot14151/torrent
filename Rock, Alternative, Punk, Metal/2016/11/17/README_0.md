@@ -22,8 +22,7 @@ Russell Means - The Radical (1996) [MP3|192 Kbps] <Rockin' Blues>
 ```bash
 magnet:?xt=urn:btih:0FB63C566FCC205D3D3DC4A6E468A5E5FAF602AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bad Suns - Disappear Here (2016) [FLAC|Lossless|tracks] <Alternative Rock, Indie
 ```bash
 magnet:?xt=urn:btih:7CFE04722D3790A4BE8E7AF8EA2F1503531F297D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Green Grey - WTF?! (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5F5696AECF5DA2C513344022138C1162E3C75F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

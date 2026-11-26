@@ -22,8 +22,7 @@ Rammstein - Rammstein (2019) [FLAC|192/24|Lossless|tracks|Vinyl] <Industrial Met
 ```bash
 magnet:?xt=urn:btih:7AF67764A229D91956D541E6046AE755E136003E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

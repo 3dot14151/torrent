@@ -22,8 +22,7 @@ A4 - Krank - Rented Heat(   Читать дальше...   )Жанр: Thrash, Sp
 ```bash
 magnet:?xt=urn:btih:D9002D80ECC9982273D32EE09C88DE0632ED5102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 - Fatal Violence - Violence Is Golden(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:B36F4B727F418FDC3BC9C4B9D35C444900863152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Walk Through The Bottomland(   Читать дальше...   )Жанр: Rock
 ```bash
 magnet:?xt=urn:btih:ED76F9235E230ED312C6C4DC38FDC9C8C0E3A27E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

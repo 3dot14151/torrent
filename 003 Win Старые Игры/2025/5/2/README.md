@@ -19,8 +19,7 @@ he Elder Scrolls IV: Oblivion® Game of the Year Edition является одн
 ```bash
 magnet:?xt=urn:btih:8B94FB189FD927913B5D7E70675E51604FECB890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:0B39E3F79053D3A25817804312997505A3224DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cannon Fodder - это смесь таких жанров, как стратег
 ```bash
 magnet:?xt=urn:btih:3081BEFF15C1EFF3B28A9C5235182E529A12850E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

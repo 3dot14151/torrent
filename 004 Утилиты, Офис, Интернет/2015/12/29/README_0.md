@@ -19,8 +19,7 @@ OBS - полностью бесплатная программа для виде
 ```bash
 magnet:?xt=urn:btih:06561BE3243B8629F555996D2B875A81FBD3EA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

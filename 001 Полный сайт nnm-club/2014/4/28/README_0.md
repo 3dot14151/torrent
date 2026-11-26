@@ -19,8 +19,7 @@ Rene Lavice - Where My Ladies At / I Want More (2014) [FLAC|Lossless|WEB-DL]<Dru
 ```bash
 magnet:?xt=urn:btih:CF073278AECDD3636DDBABC4DF0DBC816A21836B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8FEF6510FCEF772D14BB186A621E8941E5C677F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Hamilton - Fire / Be There (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:DF7BCC031CA1F83ED2554D4C5C0290462265E1A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Tantrum Desire - Adventures Through Space / Nightmare (2014) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:1C25DC5A44E2BB14DBF3CD5590776B8D4B85F8F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Savn - Savn (2014) [FLAC|Lossless]<Folk / Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:09DFEDD63212FCD1229839326344421F04288949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Frankee - Black Heart / Wonderland (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B07CC488E031602D76D129C8FED14B1A480A51E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Tycho - Sunrise Projector (2004) [FLAC|Lossless]<IDM, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:834E0F36F2E316BA6AD7C6A3D440FC5C28594479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ VA - Dutty Audio Presents: Blend (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:E8A65D0AFCDD082F8922BCBEBF9ECC62354AFB98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ MediaCoder является универсальным программным м
 ```bash
 magnet:?xt=urn:btih:5B6224F0913EB322B811ACF5B280E43DF8572692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1E5E9A1AF63EC740FE5693E7E04360619961106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C32D0A4953A050C8B43DBF57F236E9CE7198A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Name Mangler — переименовываем файлы пачками
 ```bash
 magnet:?xt=urn:btih:511C5FFCC46AEBA41FE1BBB96D4B4BAC1C5892EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:739711BCF728D9AA1E6B6C6C689D5EEB2C10DB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ CrossGear - 10 альбомов (2008-2011) Touhou Instrumental /Doujin/ [FLAC|L
 ```bash
 magnet:?xt=urn:btih:F8FE722FF74F133CF45999FF01DDEB688313F107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Drumsound & Bassline Smith - Drumsound & Bassline Smith Presents TECH 100 Part 2
 ```bash
 magnet:?xt=urn:btih:4D840F39AF42E4C0437CCA6FBFE84F7AB7B68A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B599C4AEFD4C0CDA4976B1057BB0772B8B3CF00E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +488,7 @@ Wallpapers - Рептилии и Лягушки [JPEG]
 ```bash
 magnet:?xt=urn:btih:4F154A66406B852004680B47D2E4B64571C08739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ WILD CAT RECORD - 3 альбома (2009-2010) [FLAC|Lossless] <Touhou, Instrume
 ```bash
 magnet:?xt=urn:btih:5E72BF27963C7186AFDDAFD4BDC47B511140C3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ E.M.I.T.R (Zentriert ins Antlitz) - Collected (2013) [FLAC|Lossless|WEB-DL]<Expe
 ```bash
 magnet:?xt=urn:btih:0B16BBC1E641A45AF575DBD9A53B69ECFE268A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9991E502E2A92C2ABD42EF735FC407CC50030F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ VA - The Official UK Top 40 Singles Chart (27-04-2014) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:EEABDA398D61E49BA57CC8D334DED5B4B06F57CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ VA - Vocal Deep Dubstep Vol.2 (2014) [MP3|320 кб/с]<Vocal Deep Dubstep>
 ```bash
 magnet:?xt=urn:btih:23F7F11DF6619009003AACA903F54240424D6B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +671,7 @@ Eddie 'Cleanhead' Vinson - Primary Cuts: Volume One (2000) [FLAC|Lossless]<Jump 
 ```bash
 magnet:?xt=urn:btih:C6491E7EF6D501786F0BFA0B4027E407CB66D531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +705,7 @@ S.P.Y - Back to Basics Chapter One (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:98E89C168BC5C2D17F71AF30A70D8059E79B105C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ Arte Refact - 6 альбомов (2011-2013) Touhou Vocal /Doujin/ [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:ABDD9C232B5CF1F2B8085CFA2D47AF491A84B364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

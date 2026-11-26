@@ -22,8 +22,7 @@ Rage - Seasons Of The Black (2017) 2CD, Limited Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:5ECDFAAC24E5303F45FCBF063327E861C07913B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

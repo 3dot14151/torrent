@@ -20,8 +20,7 @@ Vexovoid - трэш-метал группа из Италии, основана 
 ```bash
 magnet:?xt=urn:btih:58D90C878DFF334AFF0581DC5160FA7BD6670DF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dark Lightning - симфоник-метал группа из Германии 
 ```bash
 magnet:?xt=urn:btih:2E513BB817D2B95CF188871173FEB94C778BDE54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

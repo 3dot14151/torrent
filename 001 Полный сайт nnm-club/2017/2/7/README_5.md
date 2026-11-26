@@ -18,8 +18,7 @@ AliExpress ужесточает условия доставки
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ ESET NOD32 Smart Security - новая версия комплексного а�
 ```bash
 magnet:?xt=urn:btih:30AF2AFF6BAF8770356CB56DF95A85C7C187B883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ MInstAll Release By StartSoft 01-2017 [Ru]
 ```bash
 magnet:?xt=urn:btih:9B41BBC16E82F6F48F11DD1873F49BEDACCB490E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97A882B6BA86EC7D5FABA9A4AD3EF940D573E977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/dlc/u3) Rip YelloSOFT [Digital Del
 ```bash
 magnet:?xt=urn:btih:979276753E7B84816866A9F2332FED0770EBD16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ S2: Silent Storm (2004) [Ru/En] (1.2/1.1) License GOG [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:9D965EF2815A892188F57CD152B815701B2F0F5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65732E5C8143FDCCB65B7CA1847A7D446D0CF06C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ ESET NOD32 Antivirus 10.0.390.0 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:CD8612244326D814F5DD583D13083BBA65C16A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Kaspersky Anti-Virus 2018 18.0.0.405 (Technical Release) [Ru]
 ```bash
 magnet:?xt=urn:btih:18A970E09CA2640C2B596C669BBFD5B6274FA64E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +268,7 @@ DLL Suite позволяет поддерживать в актуальном с
 ```bash
 magnet:?xt=urn:btih:F37D2BAE550F0A4AF52FF15B673E9BA70AD894CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD6E9433FF7EF8323BD1D40ECB11893930B408BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +343,7 @@ Total Commander PowerUser 68 Portable by HA3APET [Ru/En]
 ```bash
 magnet:?xt=urn:btih:AF6606C7F73ABB52D2160B09F8D35F2D8252A3FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:105C23B68A3F118EDAA084B14E47A1BDAA239690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +393,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/En] (1.4.2.0.8/0.3.1/dlc) RePack/Mod elde
 ```bash
 magnet:?xt=urn:btih:483951EB7B712CF70731992A7C2C7F927847E403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

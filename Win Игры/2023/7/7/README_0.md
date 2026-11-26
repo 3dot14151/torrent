@@ -19,8 +19,7 @@ To Hell With The Ugly (2023) [Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:813A56BD35E91AF3012389630F11761FCB6487E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

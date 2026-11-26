@@ -21,8 +21,7 @@ ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463
 ```bash
 magnet:?xt=urn:btih:857A9B30DD2687CC451B50756876DE5DC48E8B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

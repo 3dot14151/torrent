@@ -19,8 +19,7 @@ Mysterious Journey II: Chameleon (также известная как Schizm II
 ```bash
 magnet:?xt=urn:btih:A18B69E27DBF3E8B678F2D97F67695FDBD2D1BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Risky Wings — это интенсивная летающая игра, в ко
 ```bash
 magnet:?xt=urn:btih:87C23C43951F1FD88324C5555FD67E8546F59DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Risky Wings — это интенсивная летающая игра, в ко
 ```bash
 magnet:?xt=urn:btih:09D227ABF318A698A245F90B62C86BA5F424D76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

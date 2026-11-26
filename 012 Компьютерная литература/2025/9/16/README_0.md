@@ -21,8 +21,7 @@ Cybercriminals are constantly updating their strategies and techniques in search
 ```bash
 magnet:?xt=urn:btih:0847DD24A114C2C9A40378931586569486EBE90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Daymare: 1994 Sandcastle - это сюжетный хоррор от треть�
 ```bash
 magnet:?xt=urn:btih:25392B818F5B0B0A215A03106E16175810574D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack We
 ```bash
 magnet:?xt=urn:btih:80CF61A1DE946055B4954DED5FD2ABAE86018AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Last Alchemist погружает в мир, где сталкиваются
 ```bash
 magnet:?xt=urn:btih:CA0C3DF4FE6E6F8007D6FD537BC050535A88BFDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dark Envoy объединяет классическую механику RPG с
 ```bash
 magnet:?xt=urn:btih:C99B22F76BA99A50C371B50F64769F41EECAA32E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Metal Gear Rising: Revengeance – сюжетное ответвление от 
 ```bash
 magnet:?xt=urn:btih:EC60834440B064362CED030F50FC7B0824E487D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Madhouse Madness: Streamer's Fate (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:07E989D2BE1B05947B7880A14CD79F6BCB2A374B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

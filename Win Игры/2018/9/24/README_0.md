@@ -19,8 +19,7 @@ Pinball FX3 — самая большая, самая известная в ми
 ```bash
 magnet:?xt=urn:btih:1B00ADBD7CA954CEA5B81B39084370396D2973E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CrackFix от CODEX, который исправляет некоторые пр
 ```bash
 magnet:?xt=urn:btih:5539ACA5823B3B653A5F6E99385A0A249C432A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Final Theory - это пошаговая стратегия, в которой �
 ```bash
 magnet:?xt=urn:btih:AFB9DA7AF79AEA60AA8358FDDF085456D76A57D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ LUMINES REMASTERED — популярная игра-головоломка, с�
 ```bash
 magnet:?xt=urn:btih:62F223E5805F761314048F194431E58B6769D730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D06A5479CBA0826D242E03EBF34315E3AD4A5C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

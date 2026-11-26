@@ -19,8 +19,7 @@ Ultimate Admiral: Dreadnoughts предлагает уникальную воз�
 ```bash
 magnet:?xt=urn:btih:9175C41C068368B43B3F0752E044EAC2F8A2EB59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 ```bash
 magnet:?xt=urn:btih:CD98A1668E85AA627279BFDA453EACB944D05D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

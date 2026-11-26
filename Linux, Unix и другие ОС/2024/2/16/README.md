@@ -19,8 +19,7 @@ Parrot Security Lorikeet amd64 [Хакинг, аудит, безопасност
 ```bash
 magnet:?xt=urn:btih:627F91267B3207268074211B77A536329D60CD7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

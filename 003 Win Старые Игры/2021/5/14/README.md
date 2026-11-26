@@ -19,8 +19,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 ```bash
 magnet:?xt=urn:btih:F3F74EDC0AD3FCA46CB06580DAB4655F1768CFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

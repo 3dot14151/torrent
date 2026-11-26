@@ -19,8 +19,7 @@ AnTuTu Benchmark 6.3.1 [Rus]
 ```bash
 magnet:?xt=urn:btih:D1EE9C856EB36B3A366AE284A5591544F1844586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

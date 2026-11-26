@@ -19,8 +19,7 @@ Chronoclasm Chronicles / Хроники Хроноклазма [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:32E6BB58DA3EBA3632D82613418971DEDA7C9CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Evil [En] (L) 2013
 ```bash
 magnet:?xt=urn:btih:6974BEBD5384DDF7C87864C6B044EA894A3F98A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Antichamber [En] (Repack/1.0) 2013 | THETA
 ```bash
 magnet:?xt=urn:btih:68800927719FB51A04D1C423A5993B30F9A72A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Sims Studio ЕА дарит игрокам The Sims 3 инструмент �
 ```bash
 magnet:?xt=urn:btih:729DFDEDE5D791964F9C7D6F5444AE8856ADA1A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Fieldrunners 2 [En] (RePack) 2013 | Scorp1oN
 ```bash
 magnet:?xt=urn:btih:9C4C79232B39C2EBA61733F8C389C244D0154FC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

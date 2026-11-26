@@ -21,8 +21,7 @@ Fedora 25 [i386] 11xDVD
 ```bash
 magnet:?xt=urn:btih:38CD168AEECEB1FEF1E2A717D1F70734DB383FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

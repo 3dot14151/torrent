@@ -22,8 +22,7 @@ Infidels (with Molly Johnson) - Infidels (1991) [MP3|320 Kbps] <Hard Rock, Funk 
 ```bash
 magnet:?xt=urn:btih:FBE51863E0BC53F60FBF634243A4E5B80922633E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

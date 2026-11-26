@@ -28,8 +28,7 @@ Sade - Lovers Rock (2000) [FLAC 2.0 24/44.1|tracks (MD-Rip)]<Funk / Soul>
 ```bash
 magnet:?xt=urn:btih:F7DBA654A3BCE8F2DC141D935C7795A10AD4B6F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

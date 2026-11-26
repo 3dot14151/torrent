@@ -19,8 +19,7 @@ Law & Order: Legacies. Episode 1 to 7 (2012) [Ru/En] Repack Audioslave
 ```bash
 magnet:?xt=urn:btih:971290CAB6DC3675DB9AE8D7EF868A770ABAAC41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stick It To The Man! - это логический платформер в му�
 ```bash
 magnet:?xt=urn:btih:AD5747A414B2E9D2C0675D0A0A61F5D5B66D0288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Stick It To The Man! - это логический платформер в му�
 ```bash
 magnet:?xt=urn:btih:4F2E07AC6BD7DC1EB0BE719E49409C6B6A00DB09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Stronghold Kingdoms Castle Designer (2013) [En] (1.10) Tool
 ```bash
 magnet:?xt=urn:btih:15F31DFB750DBD7DD09754918CA54D43417EBE28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Nascar '14 (2014) [En] (1.0.0.1) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:9D14E025654F30923FEEBA65354B2E242F9FB542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Law & Order: Legacies (2012) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:64C4190082063F02E6024FBFF735BBA2275BCD3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Helevorn - Compassion Forlorn (2014) [MP3|320 кб/с]<Doom/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:B8CE3DF9CAAC207083C8B463D780ACE5B8A55E6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Deep Purple Tribute - это дань уважения и второй конц�
 ```bash
 magnet:?xt=urn:btih:88EF7C942CBB53CE419E4F014590DB44ABCB5197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Celldweller - End of an Empire (Chapter 01: Time) (2014) [FLAC|Lossless]<Industr
 ```bash
 magnet:?xt=urn:btih:415837BCCA9376A73EF8206676DD365C2AE96729
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

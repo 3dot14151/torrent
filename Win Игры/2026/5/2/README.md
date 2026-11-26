@@ -19,8 +19,7 @@ The Saboteur (2009) [Ru/En] (1.3.22140) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D0DF7C396914B1812C6406E9560847E37C6BC822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Coma 3: Bloodlines (2026) [Ru/Multi] (1.0.31/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A902D656FCA0128CD851FB85CD7696A4D5416B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aphelion (2026) [Ru/Multi] (1.03.1628077) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C4CA46BF6434C4466638ACBB9657DAD94FD8862B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tides of Tomorrow (2026) [Ru/Multi] (1425-44690/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5F66CF3A4DF2ADA0C5A0E87B3BCA2E589A44438C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Project Vesperi (2026) [Ru/En] (1.5.0) Repack Let'sРlay [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:0A7F86C939FC05EE3942F3E018E21A9F5C901B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack FitGirl [Super Deluxe
 ```bash
 magnet:?xt=urn:btih:F9F79BE60455C9FE7586EC08D841979A15251972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mass Effect 2 (2010) [Ru/Multi] (1.2/dlc) Repack FitGirl [Digital Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:7D2013F3E6D5BCA341332E9BA4E934E432290D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SoulQuest - это 2D-слэшер в жанре hack-and-slash, вдохнов�
 ```bash
 magnet:?xt=urn:btih:81DCB163B5FF69815B923E6C3F9F08A85C0EFB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Council - ни на что не похожая эпизодическая и
 ```bash
 magnet:?xt=urn:btih:0D3CC5F0D79AF2CA8333B10BC7215EF74EB0E7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Die in the Dungeon - это тактическая игра в жанре roguel
 ```bash
 magnet:?xt=urn:btih:5A9E5D8FE7DA39E7BF652DE2FB179818D86C3B3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Burnout Paradise – Remastered - аркадная гонка, главные о
 ```bash
 magnet:?xt=urn:btih:4C162997474323493110A109ACD2AD19C11FFF6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Mass Effect 3 (2021) [Ru/Multi] (2.0.0.48602) Repack FitGirl [Legendary Edition]
 ```bash
 magnet:?xt=urn:btih:F731A4D8A3A7E9D2193C2ABF0862811A7256A204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Mass Effect (2021) [Ru/Multi] (2.0.0.48602/dlc) Repack FitGirl [Legendary Editio
 ```bash
 magnet:?xt=urn:btih:BBFC9C9AA1447E7C45D5AA028C011B5BC6EA388F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Mass Effect 3 - третья часть саги о войне органиче�
 ```bash
 magnet:?xt=urn:btih:25A1DE7B8B5B24340A0BDE7FE3DC75503CFA7964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Mass Effect 2 (2021) [Ru/Multi] (2.0.0.48602) Repack FitGirl [Legendary Edition]
 ```bash
 magnet:?xt=urn:btih:78C70567793FA9D690B62C5B4FFD89500C46DED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Mass Effect (2021) [Ru/Multi] (2.0.0.48602/dlc) Repack dixen18 [Legendary Editio
 ```bash
 magnet:?xt=urn:btih:3A40771AD90D82520270E5D5E97B771BB11CCC5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

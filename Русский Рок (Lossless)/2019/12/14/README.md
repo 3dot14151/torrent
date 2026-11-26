@@ -22,8 +22,7 @@ Act Of God - The Place Of Worship (2005) [FLAC|Lossless|image + .cue] <Black Met
 ```bash
 magnet:?xt=urn:btih:F585B6459E2FC30E521DBF92AD3EA2E45AF34C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

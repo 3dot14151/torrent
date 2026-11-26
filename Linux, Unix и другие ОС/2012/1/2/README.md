@@ -23,8 +23,7 @@ Live DVD создан для того, чтобы просто продемон�
 ```bash
 magnet:?xt=urn:btih:5F8B02AB1615C06B13FC63D0191523A2A31D86FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

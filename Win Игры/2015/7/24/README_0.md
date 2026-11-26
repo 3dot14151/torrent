@@ -19,8 +19,7 @@ Ashley Clark 2: The Secrets of the Ancient Temple (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:CEE5502D1147AB7820501EF1DBE3BCF96F36563D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Squishy the Suicidal Pig (2014) [En] (1.0.0.6) Repack Elektra
 ```bash
 magnet:?xt=urn:btih:0D395319B79434281263072F5A4119A525425A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

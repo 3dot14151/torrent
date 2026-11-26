@@ -19,8 +19,7 @@ Redemption Cemetery 5: Bitter Frost / Кладбище Обреченных 5: �
 ```bash
 magnet:?xt=urn:btih:2FF27463FFEF095AA861CC53211CE4A27ACBB4FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Disney Classic Games Collection - это новейшая и величайша�
 ```bash
 magnet:?xt=urn:btih:3F09A70EE210C86C3ABCE03E970A84B2C32DF758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

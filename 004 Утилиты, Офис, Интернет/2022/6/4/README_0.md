@@ -19,8 +19,7 @@ Microsoft DirectX – это ряд технологий, благодаря к�
 ```bash
 magnet:?xt=urn:btih:2553DED52F8EFB52D6D86438DB065ACF81B2B67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

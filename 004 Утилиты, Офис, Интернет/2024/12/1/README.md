@@ -19,8 +19,7 @@ CMWTAT Digital Edition 2.7.2.0 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CA3F0E6725D760ECDF74D0189FDBC74A0ACF1389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

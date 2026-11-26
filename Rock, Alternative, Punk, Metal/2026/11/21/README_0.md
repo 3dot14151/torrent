@@ -22,8 +22,7 @@ Dire Straits - Communiqué (1979) Japanese Edition, SHM-CD, Reissue, Remastered,
 ```bash
 magnet:?xt=urn:btih:2781119CE0F677DAC79A4C4C35ABF64A4ECC16BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Green Carnation - A Dark Poem Part III: The Messiah Complex (2026) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:4FDA29D7EF64CBD303E52D15A5DFAA001B7E92C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dire Straits - Making Movies (1980) Japanese Edition, SHM-CD, Reissue, 2026, Ver
 ```bash
 magnet:?xt=urn:btih:AE7ECC758A52B76B04A1EEFF7AF95CBF19784F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

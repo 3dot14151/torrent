@@ -18,8 +18,7 @@ VA - 20 Fucking Years Of Planet E: We Ain't Dead Yet (2011) [MP3|320 kbps]<Tech 
 ```bash
 magnet:?xt=urn:btih:5B1E34FEFA6F0EB803444DC498709B27538EFFD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE1D6F0F98C5CDE6B1035E534C9B29075386C473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Disktective 6.0 [Eng]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Process Hacker - мощная и достаточно функциональна
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ VA - Absolutные Хиты На Europa Plus №3 50/50 (2011) [MP3|256 kbps]<Da
 ```bash
 magnet:?xt=urn:btih:7E3EE85F554C7A2148D04F8FA5E125B6B94A39CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ BBC: Борьба за выживание (Испытания Жизни). Др�
 ```bash
 magnet:?xt=urn:btih:7814B16E831F916C8FF2B4D27CBC756076BF7578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Dubstep & Drum&Bass Feb 2011 (2011) [MP3|320 kbps]<Dubstep, Drum&Bass>
 ```bash
 magnet:?xt=urn:btih:D541407281EDDDE91EAEE4316F87047F793B668C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ FHM (For Him Magazine) – самый известный журнал для м�
 ```bash
 magnet:?xt=urn:btih:C09E6C29EA9D2289B2B6894AB9CC118721BC0359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Computer Bild - крупнейший европейский журнал о ко
 ```bash
 magnet:?xt=urn:btih:9F2CED326CD09BE1B802F9D070C955DEA76494CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:726EA5C505FB8E5629F603121AED585B9DC37C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ VA - Клубная Москва 8 (2011) [MP3|256 kbps]<Dance/Club>
 ```bash
 magnet:?xt=urn:btih:57BB59C7F625EB5B4CCEC5305A1DCC428B30A017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:566A9B6772CD0125E0E3CA628D10F6DF736E03C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ VA - Свежий клубный хит (2011) [MP3|256 kbps]<Pop/Club>
 ```bash
 magnet:?xt=urn:btih:7B95DB5B9776A84FC5218E14EE53F47DD2FDEBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ VA - Хиты Без Тормозов Radio Record №6 50/50  (2011) [MP3|256 k
 ```bash
 magnet:?xt=urn:btih:DB53BA9B13680EBB584E19F0B15FC128FBDAA93E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Mighty Sam McClain - Sweet Dreams (2001) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02445E7A6A24A3C30693D5F7B158A2AE22065C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61834E5F0C07B71BE3E8514BC3B35CD6DB1BF9B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:150887BE6AB609A14A1AAADEBD54C6E300886A51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Akhra: The Treasures (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:41E9157824161D94925B1613B6CB015639A751AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5F7C43052C28BCEC045F130B54E982FC6A93C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ Dave Meniketti - On The Blue Side (1998) [APE|Lossless]<Blues, Blues-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ Dabruck And Klein - 2:48 AM (2011) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:8314319312855B9EA1908AB4F93B245D8622C1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ Carlos Santana - Back At Bethel (Live Woodstock Center For The Arts Bethel July 
 ```bash
 magnet:?xt=urn:btih:2E41813DB0574C0464A10FF9968D718D65B66223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ BBC: Борьба за выживание (Испытания Жизни). Сх�
 ```bash
 magnet:?xt=urn:btih:64DD5404F05B04B863330A5A74EA2AC5243093C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69FE3F5C6FFFF9E263B7105134729457DB8B859A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3C78B69B7388310D299CC018B41CCC5605F101E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

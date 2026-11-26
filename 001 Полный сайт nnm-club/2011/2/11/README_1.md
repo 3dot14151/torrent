@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ M.ILL.ION - Sane And Insanity (2011) [MP3|320 kbps]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0D0D12E527E980970FC5427845E086C7A10D787D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - This Is Smooth Jazz (3 CD Box Set) (2001) [MP3|320 kbps]<Jazz, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:32F18045DAB333471C3F10A18E3E912590D418DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Linda McCartney - Wide Prairie (1998) [MP3|320 kbps]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:83A302974D96519FC4352F84AEDF825A0FB7D8AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Exclusive Русское Радио 50/50 (2011) [MP3|256 kbps]<Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:31C25EA1A22D1777FAF4E4EA56C0DBA558AAE73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ Armin van Buuren - A State Of Trance Episode 495 (10.02.2011) [MP3|320 kbps]<Tra
 ```bash
 magnet:?xt=urn:btih:9630087AD103D060A6672D3D13A87141CF9CC0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Pushking - The World As We Love It (2011) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:130B8523DB47BE136ECABBDE95EAE86901714BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ VA - Love Is So Nice (a Valentine's Day Compilation) - 2011 [MP3|320 kbps]<Soulf
 ```bash
 magnet:?xt=urn:btih:FC3D5E5197C85B9E36E23EEC49A6B7E4F430194B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Только Хиты vol.1 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:41CC8B271EDB599A7811F2ABAF4E8F3E2170A148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E517E3A34554EAD02F79E1B59BE3A66E2EEFF939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFBC0AF1B0C98B17D363A37EB31299F4624F4395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ HdO Adventure: A Girl in the City (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:8E6340D725F54CC91A517F0FF6B9FB9168FEEC8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ NG: Атака насекомых (Насекомые атакуют). Агре�
 ```bash
 magnet:?xt=urn:btih:ADB6AA300D27849FE2FBED838E55707C782F559F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8BB3D494E7AEFF3E84768D519A9D8E80774E561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E75F561CCDB5AEC9ED6178B86B1B3CBF0F2795B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Alghazanth - Vinum Intus (2011) [FLAC|Lossless]<Symphonic Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ Muse (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:A4CD762DD4FEAA9D999178078B094E6DCFE09411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:460EE76E2C2BAC9A2AA05840EC3A02D02C83E957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ BBC: Тайны Тихого океана. "Переселенцы" / South Paci
 ```bash
 magnet:?xt=urn:btih:981D3286183B57FAC794E4959AB42F6A5FD3A515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Aztec Tribe: New Land / Племя Ацтеков: Новая Земля (P) [En
 ```bash
 magnet:?xt=urn:btih:7D9E6849FC6CC60091D9F101253B8742BECE1605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ Dj Mixon & Dj Sveta - Mixadance № 327 (11.02.2011) [MP3|320 kbps]<Progressive 
 ```bash
 magnet:?xt=urn:btih:8D2955AA1CCE5BBBBC13A138AB2D780CEF66C98B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44ACFE637F164CE9E81508417F6DFDA312484A3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ NG: Атака насекомых (Насекомые атакуют). Кров�
 ```bash
 magnet:?xt=urn:btih:69F97982737A44B920F37535670D39AC8FF9F5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:694AA4B3484F66084E8B15A7AE1A0A8530F92AB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ADDCBC799FB5A5AD0169FCFC74704FF668BD8072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

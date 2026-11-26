@@ -22,8 +22,7 @@ Spirit Nation - Spirit Nation (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Elect
 ```bash
 magnet:?xt=urn:btih:1CFF7A380E435B36C5D54008BC8E2BFAEFB79097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

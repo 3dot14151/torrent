@@ -22,8 +22,7 @@ Brett Benowitz - Burn to Glow (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:2A694B171FB6D954BE6D2A2313B0F04C17555200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Samael - Hegemony (2017) [MP3|320 Kbps] <Industrial Metal, Black Metal>
 ```bash
 magnet:?xt=urn:btih:D47601E7F044C9CE42E2F7000D1333BD31858FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Robert Plant - Carry Fire (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:23D686E2F7A4AF8BB1238D30CEA43B1CCDD4893A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

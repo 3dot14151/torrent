@@ -22,8 +22,7 @@ Der Weg einer Freiheit - Der Weg einer Freiheit (2009) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:300BF2C16E020E2C08A741B5A43EC68015243695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Duncan MacKay - Score (1977) 2016,  Fresh Music, Belle Antique [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:AF70BA059BC1866523CCF49DB677E828272191B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ John Mellencamp Featuring Carlene Carter - Sad Clowns & Hillbillies (2017) [FLAC
 ```bash
 magnet:?xt=urn:btih:F491141970E9DFC956A3BF28CE060B34559D9EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cait Brennan - Third (2017) [MP3|320 Kbps] <Indie Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:CE62AC5D5564172CA0A06843F560347B83753A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hatfield And The North - 6 albums (1973-2006) 6 CD, Discography [WavPack|Lossles
 ```bash
 magnet:?xt=urn:btih:1BF6E4158EDB787FB18D64373235BCC0E37B0588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Noumena - Myrrys (2017) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:5542686D31481483C2158C342E51972B63273EFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ CD3 - Demos (1988)Жанр: RockПродолжительность: 02:01:53
 ```bash
 magnet:?xt=urn:btih:A3F2E4D9025BA17162A4CB0ACE64C7936E0B3DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

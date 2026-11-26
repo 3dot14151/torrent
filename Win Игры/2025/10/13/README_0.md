@@ -19,8 +19,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:5B0869FB9B6A59F304CCCEEDA5BB8B576F48A36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:99BCF336F6F29D5563DC2D1BF8D3C9F7AC2E91C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

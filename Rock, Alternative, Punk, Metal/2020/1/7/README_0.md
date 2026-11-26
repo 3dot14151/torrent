@@ -21,8 +21,7 @@ CD3 - GalaxiesПроизводство: The Daydream Library Series – DLS 004C
 ```bash
 magnet:?xt=urn:btih:BC21E963ABEBC1603A12DAB650AC173BEE176DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Diablo Swing Orchestra - The Butcher's Ballroom (2006) Reissue, 2008, MALS [FLAC
 ```bash
 magnet:?xt=urn:btih:B8EF9D0F41AB20139032450A849D5E70CBAB970C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2F757408EA32D527DD602801668F1B71BC54C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

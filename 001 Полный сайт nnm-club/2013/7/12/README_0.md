@@ -27,8 +27,7 @@ Diunna Greenleaf - Trying To Hold On (2011) [FLAC|Lossless]<Blues: Texas Style>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4DC0621DD28B2BDAF2104ACA6DCAF672B2518AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Lovely Mood Lounge Vol 14: Finest In Lounge & Chill (2013) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:BF9AB94F535250D658563EB8B6F09E02B0F6CB9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - USA Top 40 Singles Chart (13-07-2013) [MP3|~245 кб/с (V0)]<Pop, Dance, C
 ```bash
 magnet:?xt=urn:btih:64E6E54A46ACFC4B516E949B8FF81EDC1EA7DB06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Mflex - Megamix   by SpaceCsoky (2013) [MP3|192 кб/с]<Synthpop, Nu ItaloDisco
 ```bash
 magnet:?xt=urn:btih:B2E4B64A62CD334C39E623D2CEFEED6B52137067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ Wise Registry Cleaner - бесплатная утилита для безопа�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ E-Thrust - первый проект гибридного пассажирско
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +287,7 @@ Wychazel - Temptation (2013) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:9EA53217AFEED35753A011BCEB34F81163B3F811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ VA - Italo Disco Classics Megamix (Happy Vibes Records) (2006) [MP3|192 кб/с]
 ```bash
 magnet:?xt=urn:btih:10927378ACE13AD7A909A92A7CCFEB02679D9688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Paul Sills - Meridian (2013) [MP3|320 кб/с]<New Age, Instrumental>
 ```bash
 magnet:?xt=urn:btih:F58739BE93175BC427BAC224B99CA3AB1E53F910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ VA - Убойный Блатной Хит (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +423,7 @@ Voodoo Highway - Showdown (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ Beegie Adair - Vintage Jazz - Instrumental Jazz for Entertaining (2012) [MP3|320
 ```bash
 magnet:?xt=urn:btih:A7F6DC1525992D47127300E868D7A89B6C7DE178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:352CC4D86E1FB06AC1CD8246824B9C32C2827E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B492B803BCE150E57136F55ED5502E3B961A7595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +539,7 @@ Ra Djan - Anima Fuga (2013) [FLAC|Lossless|WEB]<Downtempo, Psybreaks, Tribal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +573,7 @@ VA - Mellomania Step 21 (mixed by Pedro del Mar) (2011) [FLAC|Lossless]<Trance, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +598,7 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ VA - A Long Hot Summer: Mixed & Selected by DJ Meme (2013) [MP3|320 кб/с]<Hou
 ```bash
 magnet:?xt=urn:btih:01F37CCFA84B42BB01B28390CBF36BEDE3C1F6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +700,7 @@ Kerry Ellis - Anthems (2010) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +728,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -786,8 +762,7 @@ VA - Musica Del Sol (Luxury Lounge & Chillout Music) (2013) [MP3|320 кб/с]<Lo
 ```bash
 magnet:?xt=urn:btih:6A68FC2C5EFF09FFE144E8760214BE5949A24E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -812,8 +787,7 @@ Anime-PatchworkРазрешение файлов: 1500x1000-4092x2893Форма�
 ```bash
 magnet:?xt=urn:btih:CC89248548FA5FC3FBBE3CB0B7B5173D39BA1864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

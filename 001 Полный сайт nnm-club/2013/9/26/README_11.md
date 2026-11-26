@@ -27,8 +27,7 @@ Ereb Altor - Fire Meets Ice (2013) [WavPack|Lossless]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:360D023CE1123827D0AC3AC54E43C394263D2710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E37B03A55BE7FD85387849BFCE55B690F137DAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Hypnos - The Revenge Ride (2001) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:9A564F3D0E38275542C62FA8A4E7C81E7F30516C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Tiarra - Post Scriptum (2008) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:BB5EEFB596B2BC9C86D42FD2F063A0A874A90006
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87B933FFB4DEE3E5FDE1E6AFCA9B1135FAC71EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Unearthed Records: Evolution Six (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7A9FB24A142114BCA3A21F34F0988AEC72AA6F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ VA - Metagalaxy 19 (2013) [MP3|160-320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:E20C6A028116D17EA5B9482D71CFA6770AEB8154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Magnolia - Tank Sjalv (2013) [MP3|320 кб/с]<Stoner Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B9FD97DB8A91D9D3A52A3778DC44FAF50C9DB1ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57A43FA8BD3F2D4E8F8AF293A6E91C7CC376E82B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5183A8221E6B65F031F1746C809F8FCE123079F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ Phelios - Gates Of Atlantis (2013) [MP3|320 кб/с]<Dark Ambient, Tribal>
 ```bash
 magnet:?xt=urn:btih:8D52E71FEB02FB06C62A8E0DCCC690F479561612
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ VA - Global Progressive Trance Sessions Vol.4 (2013) [MP3|320 кб/с]<Trance, U
 ```bash
 magnet:?xt=urn:btih:ABD1CEBB591BF4C3D9430253FCF504D6078C1984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +410,7 @@ Wisdom - Marching For Liberty (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:536A158078A83D4BC87490CEB39FCEA2C08EAAD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0F85B7B9D96A24178D7A5CA99B9D874BA1BFB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +469,7 @@ Secrets - 2 Альбома (2012-2013) [FLAC|Lossless]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:61327D1280AEDCA8E1E55666A1CA9E032EE3C07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +503,7 @@ Witchfynde - Give 'Em Hell (1980) [FLAC|Lossless]<Heavy Metal / NWOBHM>
 ```bash
 magnet:?xt=urn:btih:EB284D803598E6890BC2D5B3047B1222AE77D165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF5A24230A2680E9DFF45ECCB9EB0DCAF91EDE13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +562,7 @@ VA - Ibiza Casa Records Club Selection (2013) [MP3|320 кб/с]<House, Tech Hous
 ```bash
 magnet:?xt=urn:btih:2EF302C9ACCAA3E726212809543DB6555DAA0649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +596,7 @@ VA - Croatia: The Opening 2013 - Lounge Edition (2013) [MP3|320 кб/с]<Lounge,
 ```bash
 magnet:?xt=urn:btih:DC4E95DA85507DFEFB6C88E9E0BFF86A83ED4616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +624,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:711971436273600E8BE4820E43A76FACAB376374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FB4C3E176786C114EBC7C5099EC2A6D3F8807EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +683,7 @@ Newman - Siren (2013) [FLAC|Lossless]<Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:9F869E7679CFE1C422D6A9773EF4B34527208B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +717,7 @@ VA - Хитмикс осенний по-русски (2013) [MP3|256 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:44E6AC89ADD7781615530C4342226424988DEB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +751,7 @@ VA - Зажигательный танцпол. Танцуй до упаду (20
 ```bash
 magnet:?xt=urn:btih:854977E843F570144F82E1A00EC0D47C5EF0781F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -802,8 +778,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC34A2BC51AE51F5774B8F2B45E7FFD0087E3B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -828,8 +803,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:362D602FC9B56F64368C6C0A2D871A5E4BFB5D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

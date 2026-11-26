@@ -22,8 +22,7 @@ IObit Smart RAM - утилита, отслеживающая и оптимизи
 ```bash
 magnet:?xt=urn:btih:56A7EBCF6CDBDCDFF383310A6BF1010576B7F459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

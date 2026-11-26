@@ -24,8 +24,7 @@ Detective Case and Clown Bot in: Murder in the Hotel Lisbon (2014) [Multi] (1.03
 ```bash
 magnet:?xt=urn:btih:A97DA024CCE711587674EB5D2F6C74A23BEB6D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Under the Garden (2010) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:6B0BF8CEB9E5E3C453BB72982828A1D672048FB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8A6545209F62E4942DBB3D00C5E75273F0835CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ Blackbay Asylum — это невероятный гибрид пазла, ад�
 ```bash
 magnet:?xt=urn:btih:08A5C41291DB0B0A165245E99DA3CCB145863BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Desktop Dungeons работает во многом по принципам кл
 ```bash
 magnet:?xt=urn:btih:313C9C38FBE7CC2A86D7510C69A61C7F37199A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Let there be life - настоящая дикая природа. Выращив
 ```bash
 magnet:?xt=urn:btih:3E90155B62A8801103D0DCA6451B15FAD66B481A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

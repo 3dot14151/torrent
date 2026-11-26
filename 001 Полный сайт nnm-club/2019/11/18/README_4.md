@@ -18,8 +18,7 @@ Red Giant Trapcode Suite - это мощный набор из 11 плагино
 ```bash
 magnet:?xt=urn:btih:BCEAD2AC2AFE58FA5FB18DD624D6300630AE6F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C708FD241FB88B781B9BD1F691DD9A9AB307B824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

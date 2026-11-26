@@ -19,8 +19,7 @@ Banished – городской симулятор, в котором вы уп�
 ```bash
 magnet:?xt=urn:btih:5196273F172F74B43C38F653353F1742F9424CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ JANITOR BLEEDS - это вдохновлённая ретро хоррор иг�
 ```bash
 magnet:?xt=urn:btih:1614FA91E2DF3DC6B1F68555B44E5D5619ECB0A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ BananaDefenderBlocker - программный продукт от BananaBrain, 
 ```bash
 magnet:?xt=urn:btih:2FD9F5508C6656A15CB572840FDD8D7A050B8328
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

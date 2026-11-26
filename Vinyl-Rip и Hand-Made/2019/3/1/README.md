@@ -22,8 +22,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:C0E79D3311E59FAD11CF60139C7AFBC47A8FB45D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A3 Sabbath Bloody Sabbath(   Читать дальше...   )Жанр: Hard Rock
 ```bash
 magnet:?xt=urn:btih:8D5E764950E7576496CAF0FD5B7579643155E618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark Heritage: Guardians of Hope / Мрачное наследие: Стражи
 ```bash
 magnet:?xt=urn:btih:7E4D9B71CCDB1437C01F5492C814A4E6BFA5B50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crime Secrets: Crimson Lily / Преступные тайны: Алая Лили
 ```bash
 magnet:?xt=urn:btih:B769D0FDAFEB0955E6925C7D18E75ED52C1100C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vampire Legends: The True Story of Kisilova / Легенды о вампирах
 ```bash
 magnet:?xt=urn:btih:B9D8E73B761329D5A03BBFD7501E60B47DA7BD82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ That Dragon, Cancer – интерактивный пересказ реальн
 ```bash
 magnet:?xt=urn:btih:DE0AA3B3640ED1A9A6BB9861B9AAEAD6D23EF639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Whiplash - Crash Valley (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:192F68CF2196885AAC5E051E0C516739E989B10D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Her Majesty's SPIFFING — забавная приключенческая point
 ```bash
 magnet:?xt=urn:btih:883CC1374C2CCEBEE1C942D9429F9D0E8F460849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sacred Almanac: Traces of Greed / Священный Альманах: След�
 ```bash
 magnet:?xt=urn:btih:3EDD0F8A76A4D43C6F5E7101AD2005FFA66869CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ EARTH'S DAWN (2016) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C364A2F84C00A2E75197A02ED0D52BCD4F4B5A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

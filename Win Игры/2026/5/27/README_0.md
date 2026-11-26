@@ -19,8 +19,7 @@ Winter Survivor Protocol - это динамичный roguelite шутер с �
 ```bash
 magnet:?xt=urn:btih:1AB629524D33ED9A25530B6CE30D5CDE76D85888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stonemachia - мрачный приключенческий экшен с эле
 ```bash
 magnet:?xt=urn:btih:74249E6C443E1624DC505C00F5A62BA65F56670D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ JUMP KING QUEST - это сиквел культового хардкорног�
 ```bash
 magnet:?xt=urn:btih:3683337014919DF2755E30A6FAEB5290086B69BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Life Below - это свежий взгляд на жанр градострои
 ```bash
 magnet:?xt=urn:btih:29638FB1958CF206DFE380D042EB070F28B4AAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Town To City (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1042A7955D6A3667B3C047EF2D3654A6641DA916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Yerba Buena (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:64A0DA61DD59AC909D58C585DEB7C1962ED3413F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Realm of Ink - это роуглайк с элементами экшена и �
 ```bash
 magnet:?xt=urn:btih:67064BEA7D6218F554B882FD70461C8B67210EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ GWENT: Rogue Mage / ГВИНТ: Маг-Отступник (2022) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:4F1F5382922679BE2427E626C1A835EE2345DFEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Luna Abyss (2026) [Ru/Multi] (Build 1295) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:D69418B9877F12E3C79152A8EB38E6581507F43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ LEGO Batman: Legacy of the Dark Knight / LEGO Бэтмен: Наследие Т�
 ```bash
 magnet:?xt=urn:btih:9C8D947F19796F937DF3729DCA413FEB159CC4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Darwin's Paradox! (2026) [Ru/Multi] (1.0.2.25172/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C9E5A637DFC94117C94BA1DDD94DF5B8C5BD9F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ ServiceIT: You can do IT (2024) [Ru/Multi] (1.2.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BCE61B3C29E812A9ACE8444CB76BBB9981C1B34C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Town To City (2025) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2B9DC1FC4416FA384035067B5E32132C4EFE5E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Corsairs - Battle of the Caribbean - это приключенческая и с
 ```bash
 magnet:?xt=urn:btih:A93FA6506DCE36C239297C7152B292894D95A8E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chrome / Хром [Ru/En] (P) 2003
 ```bash
 magnet:?xt=urn:btih:7C3D9D2ECFBB4396B7265226CC02A4F43E36CFD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

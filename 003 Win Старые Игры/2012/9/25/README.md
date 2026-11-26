@@ -20,8 +20,7 @@ Jane's F-18 Combat Simulator [En] (RePack/1.0/TSH 3.0) 1999 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

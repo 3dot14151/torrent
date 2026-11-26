@@ -28,8 +28,7 @@ Ecliptica - Journey Saturnine (2012) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:1F7AAC60451536561EE4CE1AF690CAA0AB03926F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Jack Starr's Burning Starr - Land Of The Dead (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:42C3D0341CBD9C2293EC06841F6EF2E32F8E8A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Emerald Mind - Tales Of Soveena (2009) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:ADE66EC6D05218345B5BC7F32892626DB25624F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Pain - Nothing Remains The Same (2002) [MP3|320 kbps]<industrial metal\cyber met
 ```bash
 magnet:?xt=urn:btih:6495C451FF5366D1253287107EF480AF4E5F3103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Deep Purple - Who Do We Think We Are (1973/2005 Audio Fidelity 24KT+GOLD HDCD) [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

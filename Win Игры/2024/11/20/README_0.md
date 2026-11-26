@@ -19,8 +19,7 @@ EcoGnomix - это ролевая стратегия и градостроите
 ```bash
 magnet:?xt=urn:btih:56091168638D7323A0A49F2DD036CF859475949D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Santa Monica Studio в сотрудничестве с Jetpack Interactive пр�
 ```bash
 magnet:?xt=urn:btih:72075DC2FB1AFF23647C755F6B3D7029BF77B3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9E15C5F261395F499BC80AFAA7A9392673240C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beloved Rapture представляет собой авторскую jRPG, с�
 ```bash
 magnet:?xt=urn:btih:B1496764F88C7311D70E4F1B270728D6C4E20D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.1.0.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:368F84C98E1101BEFBFBF746C441975D21A25C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8E34FBD5FD14A4845851641B8B867EEA9A85711F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Farlanders - градостроительный симулятор, позвол
 ```bash
 magnet:?xt=urn:btih:893581A6120013904A6905808FD720834C171196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sker Ritual – фантастический боевик, который мож
 ```bash
 magnet:?xt=urn:btih:553C2BF68FE6E44F0B2B567C56C307C49947B471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ VIDEOVERSE - это приключенческая игра с элемента�
 ```bash
 magnet:?xt=urn:btih:22C9EA0D01F56FE17E0721004AE2A272C5A3C33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Ultimate Admiral: Dreadnoughts предлагает уникальную воз�
 ```bash
 magnet:?xt=urn:btih:C13FAB45B3B0937117165AAF9493BC1BE2256C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

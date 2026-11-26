@@ -22,8 +22,7 @@ para bellvm - Почти оружие (2018) [MP3|320 Kbps] <Gothic Rock, Indie 
 ```bash
 magnet:?xt=urn:btih:2162045E2E9A23450BABD0B4BAF36EAF87F0C548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9C02806A10E5BC82AEA775A820DFC10E42958EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Alternative Nation (1985-1994) [FLAC|Lossless|image + .cue] <Alternative>
 ```bash
 magnet:?xt=urn:btih:A22D45C3D4B204725557DECC36D3EF001C1B8597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Billy Joel - River Of Dreams (1993) [APE|Lossless] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:4F704686D923032ECEB80255364164F1749BC4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

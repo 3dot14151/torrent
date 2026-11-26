@@ -19,8 +19,7 @@ Descent: Freespace (1998) [En] (1.06/dlc) License GOG [Battle Pack]
 ```bash
 magnet:?xt=urn:btih:606191035768FFDCE67E2D0D5D1C71DC92EC0F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Prehistorik 2 - компьютерная игра компании Titus Interac
 ```bash
 magnet:?xt=urn:btih:80BD401D5E05E12F201EE9BF1484B9D39F05B077
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Prehistorik - компьютерная игра компании Titus Interacti
 ```bash
 magnet:?xt=urn:btih:12B914EAF0BA74BCF5858034B08CDD1253F6E26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

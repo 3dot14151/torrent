@@ -19,8 +19,7 @@ Steven J. Zaloga | Early US Armor: Tanks 1916–40 (2017) [PDF] [New Vanguard #2
 ```bash
 magnet:?xt=urn:btih:BFB566DC4A1DC66726E59EF61AA88E7BB4848938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69994DB8934A3E84BCD7E6ADBF6299976D6E3EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ DK | Complete Atlas of the World, 3rd Edition: The Definitive View of the Earth 
 ```bash
 magnet:?xt=urn:btih:AC1A24B9DE75DE68CA2C3E189C2F77E6C94F353F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Zombie Rollerz: Pinball Heroes - это сумасшедшая смесь кла
 ```bash
 magnet:?xt=urn:btih:DB120A4F24948EA09DAED78158F5B935D21BEE37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maze Of Realities: Flower Of Discord / Лабиринт Реальностей: 
 ```bash
 magnet:?xt=urn:btih:3F53396627A6A7AC1C7E51DD8E7FDA8EE11CB2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

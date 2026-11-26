@@ -22,8 +22,7 @@ Veladelyra - Золото погибших кораблей (2020) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:B2E2F948E74D4F8248B83B70857DF8C5477B6FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Devon Murray - Dedicated, Resistant, Minute. (2020) [MP3|320 Kbps] <Progressive 
 ```bash
 magnet:?xt=urn:btih:05C958740C62D332ED4FB914EC3FC1E7503F3D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Laaz Rockit (Lääz Rockit) - No Stranger To Danger (1985) Reissue, Remastered, 
 ```bash
 magnet:?xt=urn:btih:5869B62B70DA2A034061EDB7D6BE2B1F93286251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Manticora - To Live to Kill to Live (2020) [MP3|320 Kbps] <Progressive Power Met
 ```bash
 magnet:?xt=urn:btih:5031B9ABD6C481E7C062AFBE4174D5632F8FA039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Luna's Call - 2 Albums (2016-2020) [MP3|320 Kbps] <Progressive Metal, Death Meta
 ```bash
 magnet:?xt=urn:btih:F36FAB371B8A823CD7CAFC4ABF7CFD49139F0FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Motorpsycho - The All Is One (2020) [MP3|320 Kbps] <Psychedelic Rock, Alternativ
 ```bash
 magnet:?xt=urn:btih:0A746F59777ED5F54FA9CD1F1CB455AFF1F8D3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Point North - Brand New Vision (2020) [FLAC|Lossless|tracks] <Alternative, Rock>
 ```bash
 magnet:?xt=urn:btih:184CB5AB81377A9B48016B4832FBD39CFF3A7089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Laaz Rockit (Lääz Rockit) - Know Your Enemy (1987) Reissue, Remastered, 2009, 
 ```bash
 magnet:?xt=urn:btih:A3521F624FAFB4473B67ED9A2454775C9C34A541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Otto Dix - Автократор (2020) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, 
 ```bash
 magnet:?xt=urn:btih:7D8EE7ABF57933CA9C4006869ADF31B8D37BF3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Evanescence - Fallen (2003) [APE|Lossless|tracks] <Alternative, Nu Metal>
 ```bash
 magnet:?xt=urn:btih:C2085A32A1D517131E9F73677FCF3CEBB4FB7EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:DE457D8DC87E1699CFEFBFBDAE35B000E4037690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ TattooIN - Звёзды и руны (2025) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:70AC9032B54007FB706E9115A5075B3253C0B8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C3BC645B8502C1F339A4035A4BF001DEA8B70C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ LASCALA - Play-Off (2025) [MP3|320 Kbps] <Alternative>
 ```bash
 magnet:?xt=urn:btih:10C67DA370AB868AD50B76B1402314B924FD75E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ UFO - The Misdemeanor Tour - Live At The Oxford Apollo (1985) Reissue, 2025, HNE
 ```bash
 magnet:?xt=urn:btih:D40626E134C89E927ED0D8F829235CDC4659C9A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Hot Rod Frankie - God, Gasoline & Me (2013) [FLAC|Lossless|WEB-DL|tracks] <Rock,
 ```bash
 magnet:?xt=urn:btih:3F68D09805150F2BFE571E0D5DA4A34CD81C1C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

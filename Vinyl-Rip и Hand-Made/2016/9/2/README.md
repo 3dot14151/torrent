@@ -22,8 +22,7 @@ A3. В наших глазах(   Читать дальше...   )Жанр: Rock
 ```bash
 magnet:?xt=urn:btih:47B7650CFAA018C694EB8D91386250A82C52352F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

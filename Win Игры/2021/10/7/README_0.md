@@ -19,8 +19,7 @@ Halloween Stories 5: The Neglected Dead (2021) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:84441AE4D15DFA0EF4132AB485C0B6D9B04592C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
 ```bash
 magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

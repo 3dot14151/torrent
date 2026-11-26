@@ -21,8 +21,7 @@ Jojo's Fashion Show / Модный показ (P) [Ru] 2007
 ```bash
 magnet:?xt=urn:btih:DEF9056BEECB8C29E24FE020DDD0B4AEF20AD846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Shattered Horizon - это первая инновационная игра от
 ```bash
 magnet:?xt=urn:btih:A5F907320304A8DE88F6B0D04DE4F74F9D28FCF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

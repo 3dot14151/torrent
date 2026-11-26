@@ -19,8 +19,7 @@ Goblins Антология [Ru/En] (RePack) 1991-1993 | Kiriil Games
 ```bash
 magnet:?xt=urn:btih:73AFC6AE58F80F2336CB23F40B54FA4114CD470C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ King's Quest Коллекция [Ru] (RePack) 1985-1992 | Kirill Гамес
 ```bash
 magnet:?xt=urn:btih:A150CB261170502F0BBC645CD762E9DA9C239C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

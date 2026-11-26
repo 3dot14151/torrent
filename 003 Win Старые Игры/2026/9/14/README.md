@@ -19,8 +19,7 @@ Enemy Engaged (1998-1999) [En] (1.1e/1.11) License GOG [Антология]
 ```bash
 magnet:?xt=urn:btih:C2AF38279B76C250B360F7ED7434955942E8D488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Coolmuster PDF Converter Pro — программа поможет пользо�
 ```bash
 magnet:?xt=urn:btih:491B160AA515D1CA830579DB57077311B21DAA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Coolmuster PDF Creator Pro 2.1.20 RePack by вовава [Ru]
 ```bash
 magnet:?xt=urn:btih:5A231211511BD73EF229D4DCF849B41DCE9D2942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Coolmuster Word to PDF Converter — это отличный инструмен�
 ```bash
 magnet:?xt=urn:btih:6FB5ADC7245248D5975CB88EDAC7A5B6EE3A3460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

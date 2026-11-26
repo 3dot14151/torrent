@@ -19,8 +19,7 @@ Hot Keyboard Pro 6.2.106 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E74895AF39D6D607708F6FADA32F741AE33BFA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

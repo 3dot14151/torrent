@@ -22,8 +22,7 @@ The Brothers Candoli Sextet - 2 For The Money (1959) Remaster, 2002, Universal[F
 ```bash
 magnet:?xt=urn:btih:4D3860B1EBAC1F1E9DC64CB1135008F0B93B90E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Joseph Jarman & Anthony Braxton - Together Alone (1971) 1994, Delmark[APE|Lossle
 ```bash
 magnet:?xt=urn:btih:633ECC016B853B31D95EA007CAA887231A8DF2E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Finding Around Happiness (Energy Tech Trance) 012 (2016) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:93BC3FC25B0F7C9CD946BC2E5376DE703192146F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lee Morgan - The Rajah (1966) Remaster, 2014, Universal[FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:4966CBFB55B71271FCBCE6FA816C7D022EA5988D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bobby Previte & Bump - Counterclockwise (2003) Palmetto Records[FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:67333F5C6885365DAAFED3999265FED90B36736C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Trance Elegance On This Year 005 (2016) [MP3|320 Kbps] <Trance, Melodic, Up
 ```bash
 magnet:?xt=urn:btih:11D898577BC38E1255383D5FF49D80E02F3A1CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Tony Darren - Sun Song (1998) [APE|Lossless|image + .cue] <Contemporary Jazz, Gu
 ```bash
 magnet:?xt=urn:btih:0EC43E748C7318A1BCC77089C3ADFBB28D718464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Permute: Универсальный конвертер видео, аудио и
 ```bash
 magnet:?xt=urn:btih:DB33BA464490D8E9BA179ED9E20C7FDD2C88A9E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F01620B4C5FDEC8015EA6DB25938BD6D2072025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ John Jenkins, Cliff Jordan and - Bobby Timmons (1957) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:CA3E1B35731B97D7E273A337564B2DFCAC39D447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50E8BE0171E11AD780FB8EEB7659BE7317DCBA1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D215500A428D9B3042AD86D0E73A90450B537CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ VA - Suanda Music Year Mix 2016 (Mixed by Roman Messer) (2016) [MP3|320 Kbps] <T
 ```bash
 magnet:?xt=urn:btih:C9AF68B07CF5161C5EDF35A5F6630E239A481F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97C04A6AFDC722E88A067C19F05983FDA55C955D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ VA - Top 50 Uplifting Trance 2016  [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:D1E6EF8E16BB9A11347E5B3C35990F8336FD8229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD5C060B9D96785A195D4AADEC0ADFD5AD5E6EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ VA - Trance Traveling 84 (Top 20) (Mixed by VNP) (2016) [MP3|320 Kbps] <Trance, 
 ```bash
 magnet:?xt=urn:btih:A35BCAD89CA86281B6421DFA941B5A2B012491C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ ChronoSync представляет собой приложение для Mac, 
 ```bash
 magnet:?xt=urn:btih:A0A241989156178FDA770FCB19ADB3DD6213844B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ Take 6 - We Wish You a Merry Christmas (1999) [FLAC|Lossless|tracks + .cue] <Sou
 ```bash
 magnet:?xt=urn:btih:B491ACC4EDDD937C50EB1DABB31F4DA195107296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:6A16DA5AAA4DD627E4929628A00B9DBB565C6BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75E390ECB1F9D1899A1E83CC2FEEC2B42E60EB20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7196156F245EA057F8B8879418ECF304CFEDFC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ VA - Deep Dark and Sexy Vol.1: Finest Deep and Elektro House (2016) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:6B6F9927924E7A7AFABC101C8464B99970346201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ VA - 100 Trance Melody Native (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal, Em
 ```bash
 magnet:?xt=urn:btih:F1B4D9A15E850BB9FA4A0B4C3D23E7C0C8E6766A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8D9AF4E0064BDD298015F3F938E808187F689AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

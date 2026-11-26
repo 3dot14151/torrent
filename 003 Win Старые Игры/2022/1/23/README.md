@@ -19,8 +19,7 @@ The Settlers 2: 10th Anniversary (2006) [Multi] (11757) License GOG
 ```bash
 magnet:?xt=urn:btih:BA912D16E845F2D9012765F974E9ED59F865AFD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

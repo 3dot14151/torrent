@@ -20,8 +20,7 @@ BattleBlock Theater (2014) [Multi] (1.0) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:F1D4C5E825D655B43322C34AD892400CCFEB798A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wings of War / Крылья Первой мировой (2004) [Ru] (1.2) Repack
 ```bash
 magnet:?xt=urn:btih:F2672BA99E047835CF889787DB360A208053B479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Witcher: Enhanced Edition (2007) [Ru/En] (1.5/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:BEDA45B7279196C92F264E1434FAF70BBABB6DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

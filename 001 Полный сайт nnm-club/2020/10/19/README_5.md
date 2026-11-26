@@ -22,8 +22,7 @@ Step Child - The Prayer (1995) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3F2BED291C839513B896FA85A1E89045EF443781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ray Barretto & New World Spirit - Trancedance (2000) 2001, Circular Moves [FLAC|
 ```bash
 magnet:?xt=urn:btih:4A6F1DF1A0B47BFB0050E0F36A3C887E1E6629C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Swinsian — простой аудио плеер с функцией управ
 ```bash
 magnet:?xt=urn:btih:549EED36E400CF2AC6596FE11A4C2A722B52E044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Duke Ellington - Love Songs (1948 - 1962) 2001, Sony Music [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:0C2CC603D3DD327DC90ACE700BE49A68B06FAAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ WonderPen - простой в использовании текстовый ре
 ```bash
 magnet:?xt=urn:btih:AEB84171F7FB4B33001A432C5284AFAB5D95D7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Carnivore - Retaliation (1987) Reissue, Remastered, 2018, Listenable [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:AAABA314C3678FA13AD563D7FBA1466BC0BFC60D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Spirit Adrift - Еnlightеnеd In Еtеrnitу (2020) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:86F320043CE16143D7A78BBE25CD8A16D71ED295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Theo - Figurеhеаds (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:5FEF835C85FE895255CB5EB2A7F9A3B441643D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Herbie Hancock - Riot: The Newly Discovered Takes from Blue Note Sixties Session
 ```bash
 magnet:?xt=urn:btih:58A8B4EB70CC39E576125519F73ECF52A9FE203F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD7619DE218CFAF569EF1EA4F6D6AC1FAEDE4D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Reeder 4 v4.2.8 [En]
 ```bash
 magnet:?xt=urn:btih:84F2CB49F168121B92EE7A9696D2D5AED4D3EF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Nova поддерживает отдельные задачи сборки, за
 ```bash
 magnet:?xt=urn:btih:ED298B61039E4E77254723292B7515E816120ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ Geekbench 5 предлагает обновленный интерфейс и р
 ```bash
 magnet:?xt=urn:btih:F517AE7AA462A50BE0D1DA0960ABD7B7DBD27B14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Allen Farnham - The Common Thread (1986 - 1994) 1995, Concord Jazz [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:9794DF968AEB35974D7F8AE953C53618795B3289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7A19AD4D87D414BBD9F7ECF69D651FE81D7A941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A01F82B4CDB988FCCA1CC934F3A48A7F5C49569D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C7FAD6C4861805810BAD3831FEBFF9E3C4A8DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Scuta Scalamanta - Synthwave (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, El
 ```bash
 magnet:?xt=urn:btih:61DFD23D0F717CE7DEA8341304755735B1782D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Lazarus - Down N' Dirty (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Roc
 ```bash
 magnet:?xt=urn:btih:04A4F32C17779556BB324C016B4990E3A6F70642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15D68B234E2F32011AA49C28EAE6BCBB5074C13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:75E3E1EBD2C13CF3139D90B58498E8442D142457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ Stonehand - Дорожный Альбом (2020) [MP3|320 Kbps] <Heavy Metal, Ha
 ```bash
 magnet:?xt=urn:btih:70B8EC67AFEC685B9913254BDF75682F5542F7A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5C85FADA19C31ADB6116798B4DC257977C04088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43126EBFE421AC21F59809835DF2EE45634F7197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ MotoGP. Этап 10. Гран-При Испании. Гонка. (18.10.2020) WE
 ```bash
 magnet:?xt=urn:btih:B9756901CA3B18B69031E93CA75E02F14EE7A1D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2564CEF830C744650A682ADBFAFD06BB23000E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

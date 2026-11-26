@@ -27,8 +27,7 @@ Sunrise Auranaut - Way Of The King (2013) [FLAC|Lossless]<Progressive Rock, Inst
 ```bash
 magnet:?xt=urn:btih:0F1DCA52418DF1830E4A13BFCF1A9914F1E36388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0B45DCF4F9A238A73E27F68A10BD160C9C4D057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86F2AADC0E9F48B16F2B3D04A375749DE4ACAC48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

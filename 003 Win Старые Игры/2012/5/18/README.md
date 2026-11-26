@@ -19,8 +19,7 @@ Arthur's Knights / Легенды о рыцарстве Дилогия [Ru] (L) 
 ```bash
 magnet:?xt=urn:btih:B26E7C723868C826B134B87381819D84929D4677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Medieval Conquest (L) [En] 2004
 ```bash
 magnet:?xt=urn:btih:A9FD20F77B017A696478901B855685337AC35970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Su-27 Flancer [En] (RePack) 1995 | Pet9948
 ```bash
 magnet:?xt=urn:btih:46AB94F47BD477D04806CE2A26023DAE4EB5B874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Smurfs - это классический приставочный платфор
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Demon Blue [En] (RePack) 1992 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

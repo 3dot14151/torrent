@@ -19,8 +19,7 @@ Haunted Legends 14: The Call of Despair (2019) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:7750846ACB489E64D1D76C72194DAE128F6E9905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Detectives United 2: The Darkest Shrine / Лига детективов 2: Те�
 ```bash
 magnet:?xt=urn:btih:0631918E2C0D16A41D8E209399FE5F881BFCB53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bubsy: Paws on Fire! (2019) [Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:347B7838582A5B383C908CEB41ED204BF0A90AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [RuMulti] (1.0.3/dlc
 ```bash
 magnet:?xt=urn:btih:4B73560CC8242A6ADF38D3512808836F0BD03C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6.0/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:244AFC95A916D11DE374194778531FD68A0DB4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

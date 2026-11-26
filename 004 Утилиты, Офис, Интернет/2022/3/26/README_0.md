@@ -21,8 +21,7 @@ Windows Defender Tuner 1.4 [Ru] (обновляемая авторская ра�
 ```bash
 magnet:?xt=urn:btih:23C2B89CA3D10436C3A06237A40526A2AE7E7688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

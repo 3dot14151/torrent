@@ -22,8 +22,7 @@ Green Day - Saviors (2024) edition de luxe, 2025, Reprise [MP3|320 Kbps] <Altern
 ```bash
 magnet:?xt=urn:btih:8DA73C3F2C2AE42B6F87863893E4F0CFBA971443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ EP/Warning/Rage Suite
 ```bash
 magnet:?xt=urn:btih:77D5CA73AF3ABA862B8033A62DB2A4B6C154A115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

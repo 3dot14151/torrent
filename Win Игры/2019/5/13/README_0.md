@@ -19,8 +19,7 @@ Inked - это платформер со множеством головолом
 ```bash
 magnet:?xt=urn:btih:0CCC64CE75ADA35701C129D21910E96491B7AC29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Puyo Puyo Champions (2019) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:20F8D6F7BDCC91705C7838A06F8F916428D813F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Thea 2: The Shattering (2019) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:87830C6C9633A2835AC3E48F53A5FD8833AB0C66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

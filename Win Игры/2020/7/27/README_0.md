@@ -19,8 +19,7 @@ CARRION — хоррор, в котором вам предстоит оказа
 ```bash
 magnet:?xt=urn:btih:17F123D682A2AE00AD35C173177148873D683FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

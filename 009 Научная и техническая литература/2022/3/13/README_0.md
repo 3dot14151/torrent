@@ -21,8 +21,7 @@ Tony Bancroft | Directing for Animation  / Режиссура в анимаци�
 ```bash
 magnet:?xt=urn:btih:E2B21CC1F2DB57E9FC084352EA9253EA22EE9EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA7C1A0C93AB329AD4580063FFD525C703E70E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystery Case Files 19: Moths to a Flame / За семью печатями 19: �
 ```bash
 magnet:?xt=urn:btih:7E0BC55FA7371DE96C97611E42920534C8E62C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ X4: Foundations - это космический симулятор, продол
 ```bash
 magnet:?xt=urn:btih:6003A7F578E77FEC223DFF2534FD85749C09866E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ice Age Scrat's Nutty Adventure (2019) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8E2D50833B36E32DA190398FE29CD6343C2EFFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

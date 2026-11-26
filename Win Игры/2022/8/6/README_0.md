@@ -19,8 +19,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) License EMPRESS [Ultimat
 ```bash
 magnet:?xt=urn:btih:FBED019FB489C50CDB08A006895D07A46339B3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vanaris Tactics рассказывает историю группы людей,
 ```bash
 magnet:?xt=urn:btih:4BFE84B791708903C4F5CA1D874C4AC409777C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:5928CB3481F5FF0DF750DE4E70B42DD38B453155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Last Call BBS переносит геймеров во времена эпохи
 ```bash
 magnet:?xt=urn:btih:BFA3B2D16FEB569A3747538EF1FEFF80A4543936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

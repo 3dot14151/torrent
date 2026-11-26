@@ -20,8 +20,7 @@ eWeather HDF - это точный прогноз погоды от двух м�
 ```bash
 magnet:?xt=urn:btih:97E311BFBAAE185E003699730E45972E114EF2B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Tap To Translate Screen v1.41 [En]
 ```bash
 magnet:?xt=urn:btih:B38A8CCD5C0AC35A2ACFCE14CA3164335E35FD57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Wheel Size v2.10.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A08C58FC5D9957109BF644A689DB375AECBDE3A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Bluetooth Printer, USB, Receipt v4.3 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8C00C0A8B051154A38425F71526C26E0CD50029E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Jillian Michaels | Fitness App v4.4.2 [En]
 ```bash
 magnet:?xt=urn:btih:6B4A8DA5D63F9596C77DCA3804C878E02EB699C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ MyFuelLog2 v1.8.12 [Ru]
 ```bash
 magnet:?xt=urn:btih:BD8C4EEDFDD89C1DACC32025AE6FB1AEB3861CBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

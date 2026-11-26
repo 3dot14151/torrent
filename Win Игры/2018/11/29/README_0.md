@@ -19,8 +19,7 @@ Project Hospital (2018) [Ru/Multi] (1.0.14611) Repack Other s
 ```bash
 magnet:?xt=urn:btih:478329593BE3AFF638FB8A34A89BF06CF81DD8D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ West of Loathing - это сумасшедший сон ковбоя-безум�
 ```bash
 magnet:?xt=urn:btih:187F8021FD7FEE409A7B6B5EAA99C39FB9B163E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PRO FISHING SIMULATOR — симулятор рыбалки, который по
 ```bash
 magnet:?xt=urn:btih:37262A122B6CA432D7EDB4B7F0EBC1FEB6C87539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Need for Speed: Most Wanted – безумные гонки по огромно�
 ```bash
 magnet:?xt=urn:btih:173283ABC46A9D9BB306B197281DB796DD9DD9C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

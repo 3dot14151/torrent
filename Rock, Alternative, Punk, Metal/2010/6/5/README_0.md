@@ -28,8 +28,7 @@ SAM GOPAL - Escalator (1969) [MP3|320 kbps]<Old Psychedelic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ London Symphonic Orchestra - Classic Rock (1987-1991) 3 CD[APE|Lossless]<Rock, C
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

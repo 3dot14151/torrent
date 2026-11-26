@@ -22,8 +22,7 @@ Raised by Humans - Soft Spoken Hand Grenade (2026) [FLAC 24/44.1|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:3493309F7BB577D6CAD421C5472FC91B095C8A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ratboys - Singin’ to an Empty Chair (2026) [FLAC 24/96|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:773E5F4C164E645704E9570CD33FAA99A7DB27C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Red Beans & Pepper Sauce - Supernova (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:BC30098309A246C67C6FABB9C001A6E9A3473CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Silver Isle - Out Past The Breakers (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:5EB1BBF23AC69457B68BA68AC1FE6C389F099203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Four Baggers - Strange Alchemy (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 ```bash
 magnet:?xt=urn:btih:34FF9D6F7CBB9BB8F8E772B3C2FC4FABA93F56EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F87AC32D33B6437CE0EDD563A54F8594C3DBB85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Blind Revolution - Far From The Sun (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 ```bash
 magnet:?xt=urn:btih:083CE294DCF55738CD3AB4CA10145D5C8FCF6FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Tomorrow We Die Alive (стилизовано как Tomorrow We Die ∆live) - 
 ```bash
 magnet:?xt=urn:btih:55536D61F8148BD8E7CF4212C4EB4E4DAADE83A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Angus McSix - Angus McSix and the All-Seeing Astral Eye (2026) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:70F3100BFB9896A141B4963985B86119DBF1EC87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Gotthard - More Stereo Crush (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E4BAB83ADDB2FB34D6BBEC75FFC15D8CC2135EEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Rockin' 70s (2004) 3 x CD, Compilation [FLAC|Lossless|image + .cue] <Blues 
 ```bash
 magnet:?xt=urn:btih:E7F6E6F0C05D5D860E93B4253BC50C8D159FB0DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Rock (93 Original Hits) (2009) 6 x CD, Compilation [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:BC949E7420372957FBE2081278F6F89140A81D04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ ADEPT — шведская пост-хардкор/металкор группа
 ```bash
 magnet:?xt=urn:btih:BFA91A15BD816EBCCE29F94DAFD112B269DFE417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

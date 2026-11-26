@@ -19,8 +19,7 @@ Hear Clear / Услышать на расстоянии v1.1.9.1 Mod by 0x7d [Ru
 ```bash
 magnet:?xt=urn:btih:616CD09CF7DB48238CDF72E7564A55939FFFBDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

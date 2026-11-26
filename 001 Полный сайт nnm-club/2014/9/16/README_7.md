@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:34164DA11C918CFE0F87EF613702DC7EFC7AFE0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Memorias Del Subsuelo - Nada Que Celebrar (2014) [MP3|320 кб/с]<Screamo>
 ```bash
 magnet:?xt=urn:btih:A6E6AD922B3BB4F9617A76E272D9A1A38B1F360A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Undercurrent - Expectations (2014) [MP3|256 кб/с]<Screamo, Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:8BBA991115A6CEC6F1426FB419A1C8D5567688FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ VA - Night Show Dance 2 (2014) [MP3|320 кб/с]<House, Tech House, Deep House, 
 ```bash
 magnet:?xt=urn:btih:B1FD778F444EB680FED592351557D4771F10ADB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Phillip Fox Band - Heartland (2014) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:AE40AD346F063189D07A3A03FAF009FB54E04026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Lasercode - Incarnation (2014) [MP3|320 кб/с]<Dubstep|Glitch-Hop>
 ```bash
 magnet:?xt=urn:btih:977FB6E773F6D83B09378F418C0D12A35EA17E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Various Artists - Fokuz Recordings #BeatportDecade Drum & Bass (2014) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:ACBCD4468F392EF884790BA7C994C545EC29BD35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Various Artists - Viper Recordings #BeatportDecade Drum & Bass (2014) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:0314FFF71B202238960E3005888CBBA037B49E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Deadline - Fire Inside (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0C4DEBCD82BD8FB430C1D439E7E83B199A89D33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Plank - Hivemind (2014) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:FE5466C3E0A9E0FCC8B7BA6BBFE838B0F162D19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEB7FC94428966D655C1F018D48E5933243858E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ Lunchbox - Лицом К Лицу (2014) [MP3|320 кб/с]<Alternative Rock,>
 ```bash
 magnet:?xt=urn:btih:E602DFF6806296F1A11237F2450DCC2B733BC70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D7F144B51E3EF4F5D08AB4ED52B6D47DFDC80DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +459,7 @@ Rod Mobasher - Guitarra Con Amor (2001) [MP3|320 кб/с]<Instrumental, New Flam
 ```bash
 magnet:?xt=urn:btih:EEE407A9369C9E9F6C93C8BBD6F630E89996332D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01DCB7A348F6D89D70A80CE88042C71548FA0681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +518,7 @@ VA - Trance Central 005 (2014) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:95D703F0829C1F3018E88B6D628AF5F5E2EFDABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +547,7 @@ String Theory - At The Edge Of Universe (2014) [MP3|320 кб/с]<Melodic Death M
 ```bash
 magnet:?xt=urn:btih:CA96381168BA735498243BD7A8D519EE49A059C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +573,7 @@ Brave Coast - 2012 Singles (2013) [MP3|320 кб/с]<Melodic Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:918F9FCFD86EDF9CBA74BA7AB49778FB0F47B944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ Various Artists - New Blood, Vol. 14 (2014) [MP3|320 кб/с]< Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:7CCAD8AD5604E34E9950C692E73D46AE77CBD296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +641,7 @@ VA - Premium Lounge Sound (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:11B670026E01BE2D9892E9ADDC2F5485871AC417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +700,7 @@ Jeff 'Tain' Watts - Bar Talk (2002) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:B21511B9B88C62D75383964D28A950929EBBDB14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +732,7 @@ War of Ages (ранее Point Zero) — христианская металко�
 ```bash
 magnet:?xt=urn:btih:D125B6A6AA77A1E88D36882873B74C8D766A3365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +757,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:419B9DBF0C5000D08EF7AE9C489CBEDB78D3FEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +784,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05672243226296A83868D0D27803A2EAC6C7A174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Celeste (2018) [Ru/Multi] (1.1.3.0) Repack alivedeath
 ```bash
 magnet:?xt=urn:btih:5914942E939A5F829C248445620BCE097CAF84E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.73.3.9771) Rep
 ```bash
 magnet:?xt=urn:btih:FD21DD8B7FEA2D4C6097B4B88CA0670071F66E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.73.3.9771) Lic
 ```bash
 magnet:?xt=urn:btih:A7E61EF7D8F649A647B9E1BC7BE41D3CB4EB5760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Crossing Souls (2018) [Ru/Multi] (1.2.4) License GOG
 ```bash
 magnet:?xt=urn:btih:68B650A6734E7359BC1513178F4308CAC5784A57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

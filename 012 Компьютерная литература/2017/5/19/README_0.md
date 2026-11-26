@@ -19,8 +19,7 @@ Solr (произносится как «солнечная») - это поис�
 ```bash
 magnet:?xt=urn:btih:E0883646B38FA5873DA89521092478B086B3BA08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Scala - это язык программирования общего назна
 ```bash
 magnet:?xt=urn:btih:EA3550C9C45CE1516D35F6206CA631EE716C4D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Apache Tomcat, часто называемый Tomcat, является веб-�
 ```bash
 magnet:?xt=urn:btih:1F430DD6D709E3B4F46EA1DA318CF158245ED6B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

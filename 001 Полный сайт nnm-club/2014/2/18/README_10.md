@@ -28,8 +28,7 @@ Rising Anger - Mindfinder (2014) [MP3|320 кб/с]< Hardcore/Metalcore>
 ```bash
 magnet:?xt=urn:btih:2E53A5ADEA0920AD511FFBC716D519D99FAF7F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Pleasant Trance: January (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:07A6EE914E094D2259EE1917B1E24366E6388086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Javelin - Fragments Of The Inner Shadow (2013) [MP3|320 кб/с]<Progressive Pow
 ```bash
 magnet:?xt=urn:btih:CF5A9293D1B08FE23EBE3322BE7CC98947C64D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Mikrokristal - Hidden Way Between Some Rains (2013) [MP3|320 кб/с]<Chill Out,
 ```bash
 magnet:?xt=urn:btih:2818ED7EE8466C36908803D69F3190E1D66CE105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0292F6A2BEDC9C64D01D759D6D7C1059A8409569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Kitties Go Deep (2013) [MP3|320 кб/с]<Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:1000B4E808AF7A2F294C7B1C157942A7BF4911F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:183F8020D63944D040F45F100022BF1698CB90B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ VA - Noesis (2013) [MP3|320 кб/с]<Dub Techno, Deep Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:2D0415E22FE8BA372B9B1B9FC39E72C0A87B54BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B05B0F590F90D37556D902AD2B20A52EBFA92577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ VA - Meeeow! 2013 (2013) [MP3|320 кб/с]<Deep House, Tech House, Techno>
 ```bash
 magnet:?xt=urn:btih:024C955D9D00D8D9534D2EEFA4873DAE38B9782B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ XXII Зимние Олимпийские игры. Бобслей. Двойки.
 ```bash
 magnet:?xt=urn:btih:8DC48C11C1884E3656C6AB11AED21472735E1E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2806EE9DD740F301A273635F739B03E7947AB25C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69F0176C4FF0FFD4C122FC525DA301DDF82B4430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ Woland - Hyperion (2014) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:C2764901BED03434460B30120E3167FBE9578AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D876FD836648405A8FAFE3C58E46EB05BD6CC01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BC52B92DD35EDD8B930AE5C3B582CD76C08ADFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +519,7 @@ Pandemonium - Whispers (2008) [FLAC|Lossless]<Melodic Death, Progressive Death>
 ```bash
 magnet:?xt=urn:btih:0B9EA7177E55E661E709D0190DF5B628243EABF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +544,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75077831B85B54B88B4BF622D57F9F58336DC780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +578,7 @@ VA - White Lounge (Compiled by Henri Kohn) (2014) [MP3|320 кб/с]<Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:FAC6FB13EC6A83E6414FDC3BF2AE3DEE1712B10D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ Emarebil Nocturna - Sex, Drugs & Violence (2014) [MP3|320 кб/с]<Black/Gothic/
 ```bash
 magnet:?xt=urn:btih:0A7EC4FCAFC2A01412880138FCD5CF1A51DBB42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ VA - Decandencia Chillout 2014 [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:3756331B5D13D2E5B76A0E0384062D6754D6B80D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ Mr. Moods - A Pleasant Place (2014) [MP3|320 кб/с]<Downtempo, Chill Out, Elec
 ```bash
 magnet:?xt=urn:btih:C8AF9A1179A5685786275D2E79487282A5A44A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33FDC927080B4B1D90E59B9403D3059368A35154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BCEF30FF2EC522B4A7A7D22CCD703666F35A285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -789,8 +764,7 @@ VA - Green House Tunes 2 (2013) [FLAC|Lossless]<Progressive house>
 ```bash
 magnet:?xt=urn:btih:EA01570F2CBC3FC1E6295BEB464BB1D2BBDD1D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

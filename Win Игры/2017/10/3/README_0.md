@@ -19,8 +19,7 @@ Hob (2017) [Ru/Multi] (1.12.2.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:94DF528567BD14E304659F9CC9FAF7B8E0957EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hitman: Sniper Challenge (2012) [Ru/Multi] (1.0.364.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:293247EB956892FA4510059DD5610746F641ADAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

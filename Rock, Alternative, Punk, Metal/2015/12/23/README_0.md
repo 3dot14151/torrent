@@ -22,8 +22,7 @@ Lothloryen - Principles Of A Past Tomorrow (2015) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:91BE839380D4CFFB54428900E4F6EB7B3ADFFEB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Warpig - Warpig (1970) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:03E12B7C367705832AEE4906A2C649ECEC0A8EEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Gates of Ishtar - At Dusk and Forever (1998) Japanese Ed. [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:35D11CBFB2A09A012B7390F5C0690ED65F149CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Radio Sun - Heaven Or Heartbreak (2015) [MP3|320 кб/с] <Melodic Rock, AOR
 ```bash
 magnet:?xt=urn:btih:BCF4F9F1378BFE9C68930EF0899FC37B2BDC9A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Chris Norman - Full Circle (1999) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop 
 ```bash
 magnet:?xt=urn:btih:657E1553D035D5B8898328C6D836F39227364D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Fetenhits - The Ballads (1997) 2 CD, Compilation [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:8172276D98478F1884F39EE8F052182165BA6073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Chris Rea - King Of The Beach (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:54034C1C8A326640D0724D2879ACB28BDC863867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Chris Rea - The Road To Hell (1989) [FLAC|Lossless|tracks + .cue] <Blues Rock, C
 ```bash
 magnet:?xt=urn:btih:B22CC2DC4F749D8C91F526AAB97C4932BC8947A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Chris Rea - The Road To Hell Part 2 (1999) [FLAC|Lossless|tracks + .cue] <Pop Ro
 ```bash
 magnet:?xt=urn:btih:9E143827EA0CC3D3F9B6A98564F960295C0CBE88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Chris Rea - Dancing With Strangers (1987) [FLAC|Lossless|tracks + .cue] <Rock & 
 ```bash
 magnet:?xt=urn:btih:DE3DC96344B8B41CAD72C889337028A50ACCA898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Chris Rea - The Best Of Chris Rea (1994) [FLAC|Lossless|tracks + .cue] <Soft Roc
 ```bash
 magnet:?xt=urn:btih:C392DFB5688FDF52B4D6945BAE88F290ADB06518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

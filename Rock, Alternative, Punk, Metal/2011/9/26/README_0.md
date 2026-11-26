@@ -34,8 +34,7 @@ Andre Hilgers – ударные1. Man & Machine (5:27)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -69,8 +68,7 @@ Evenstorm - The Return Of The Storm (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3B8F2084D1E73278914EF8561009D3206F950FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21752EE170BF9458D6F3947270BA5B49D16A4D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +136,7 @@ U2 - World Ballad Collection (1999) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:C49F9DDF9BAF1E33315B3F8B7F97C6690F8BE968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +170,7 @@ Zodiac Mindwarp & The Love Reaction - 8 Albums + 2 Live + 1 Compilation (1986-20
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

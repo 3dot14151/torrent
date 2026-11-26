@@ -19,8 +19,7 @@ Salt - это приключенческая survival-песочница про 
 ```bash
 magnet:?xt=urn:btih:CF540DE96EB98D572D5C18DCA83A5F75B50FE953
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

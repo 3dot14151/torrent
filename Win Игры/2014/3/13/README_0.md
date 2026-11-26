@@ -19,8 +19,7 @@ Dark Dimensions: Somber Song (2014) [En] Unofficial [Collector’s Edition / К�
 ```bash
 magnet:?xt=urn:btih:25C0E03B024E257FD0DA7057804D054F7EEEA9F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tornado: The Secret of the Magic Cave / Tornado. Загадка волшебно
 ```bash
 magnet:?xt=urn:btih:AA837AD6C3E2763540B1CFDF802E16686CADDF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Hamlet or the Last Game without MMORPG Features, Shaders and Product Placement (
 ```bash
 magnet:?xt=urn:btih:93AECF093F75F0AF29ACC14EA2E0DC09018D5D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Dark Fall: Lost Souls / Обитель тьмы: Сумерки (2010) [Ru/En] (
 ```bash
 magnet:?xt=urn:btih:7839856BEA81AF1146E8DAD9067C55D6F659DB0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

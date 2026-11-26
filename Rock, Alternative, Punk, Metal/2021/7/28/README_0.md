@@ -22,8 +22,7 @@ Blacksword - Alive Again (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:042D422E226C1D47D266F6296C1855CE3474AE1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Mixgrape - Berried Alive (2021) [MP3|320 Kbps] <Progressive Metal, Math Meta
 ```bash
 magnet:?xt=urn:btih:80B6E4D5DFEB01859632CAFC92F826FA57CCB717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Digimortal - Гравитация (2021) [MP3|320 Kbps] <Industrial Metal, Moder
 ```bash
 magnet:?xt=urn:btih:C739C63239E6865B352A7DAA9D26A9454BEECC03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1114EBBE11F820895D6E40D30A1930EAC9F80EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hate Eternal - Phoenix Amongst The Ashes (2011) [FLAC|Lossless|image + .cue] <De
 ```bash
 magnet:?xt=urn:btih:5B7283862A035481308B6C0E2ADAFD425CA6CF63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2BEA29D90869E4F06118FC6334AA788949E345E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Slipknot - Официальная Дискография (1996-2019) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:4952EA50EB492676A4F307E2E638019CCDB67CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

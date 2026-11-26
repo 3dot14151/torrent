@@ -22,8 +22,7 @@ Unleashed - Where No Life Dwells / And the Laughter Has Died... (1991) [FLAC|ima
 ```bash
 magnet:?xt=urn:btih:AC64B7687BA8130619DBA5FFFA7DB7AE0B916A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Reece (ex.Accept) - Universal Language (2009) [FLAC|image+.cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:632960661E6079E0C575F85BFCD710A907DE3110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D456C0ED4993AB8B446BA20ABE2F312E36F51D7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dio - Sacred Heart (1985) Japanese Edition [FLAC|image + .cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:69A55C8B5712A66512F49A2165503761BB0F845C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fish (ex.-Marillion) - Sunsets On Empire (1997) [FLAC|image + .cue]<Prog Rock>
 ```bash
 magnet:?xt=urn:btih:C9BED35FC185E6A0C692F4ACA05EAF2532242621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Butterfly Temple - Вечность (2015) [MP3|320 кб/с]<Folk Metal, Pagan M
 ```bash
 magnet:?xt=urn:btih:C9F7F8620BAEF2DACA42602DADB6D2C0501404D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Pink Floyd - 1965 - Their First Recordings (2015) [FLAC|tracks + .cue]<Psychedel
 ```bash
 magnet:?xt=urn:btih:6D78CDB2FE07199A8BCD097FD2C819FE48B3F34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ AC/DC - Highway To Hell (1979) Japanese Edition, 1989, Atlantic [FLAC|image + .c
 ```bash
 magnet:?xt=urn:btih:AD955ECD48E4B527F9491C1C0054586898940EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) [MP3|32
 ```bash
 magnet:?xt=urn:btih:A87397580EA45EF73A14487E05660E99D27CF350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

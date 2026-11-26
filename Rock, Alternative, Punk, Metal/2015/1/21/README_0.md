@@ -26,8 +26,7 @@ Oktor - Another Dimension Of Pain (2014) [MP3|320 кб/с]<Funeral Doom/Death Me
 ```bash
 magnet:?xt=urn:btih:3215E9A975FEF4CF22CC62EABA6DA0B13C41C0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Biotoxic Warfare - Lobotomized (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:78FFC70FD170843B52725FF6CB429FBA39E62217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Vanguard X Mortem - Neptune Fragrance (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:FC63E9B3B1CC674C1C3B405641733CCBFCCB5B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Rain - Stronger (2006) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EF3C36D65823AA6C23BD23819D8AB4D586CBAC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Jorn Lande & Trond Holter - Dracula: Swing Of Death (2015) Japanese Edition [MP3
 ```bash
 magnet:?xt=urn:btih:6C038870820D9C57AC5D89E24DC33F4E432C5B08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Electric Light Orchestra - Secret Messages (1983)  Unofficial Release /1998, CD-
 ```bash
 magnet:?xt=urn:btih:0A69D0386B3E20A8C2D1556AA28960601AEF26A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Blind Guardian - Beyond The Red Mirror (2015) Deluxe Edition [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:D1A305E00F12578F16594C2179164E78E39A8534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDD12E467D3FE63BB5DFED306984420D6836C687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Chronicles of Shakespeare: A Midsummer Nights Dream (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:111DCD6025285F3F0EF91DEB0A6F9C4D85D8D114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Titanics: Keys to the Past (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B0BE21CADE1C7B7554EDC02AF29DD4DF81E8E577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Farm Mystery: The Horror of Orchardville (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:99F06408071D0C08519081CC3644A19188981845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Race for the White House  [En] (L) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:2AD813994736F2D87807C766344D2CB0F714DC24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

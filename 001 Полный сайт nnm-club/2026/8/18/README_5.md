@@ -19,8 +19,7 @@ OCCT 17.0.16 Portable [En]
 ```bash
 magnet:?xt=urn:btih:1BC8D7710B4CF8EDA0E1EE3D26EB670350CC08D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

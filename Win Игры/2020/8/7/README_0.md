@@ -19,8 +19,7 @@ PC Building Simulator - Esports Expansion (2020) [Ru/Multi] (1.8.5) License PLAZ
 ```bash
 magnet:?xt=urn:btih:1951ACFFB2D5A36F2DB102FE62CF327E1EB49CC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spintires (2014) [Ru/Multi] (1.6.1/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:FAD2B9806CD761AA04B37FEF4D1448057ABD0237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

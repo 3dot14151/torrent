@@ -24,8 +24,7 @@ Accept - Kaizoku-Ban (1985) /EP/ [FLAC 2.0 192/24 |VinylRip] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9DD4FA9D046D942D84119C258B8621167DDF96EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

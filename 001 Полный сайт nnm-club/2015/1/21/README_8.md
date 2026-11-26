@@ -21,8 +21,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:D09FCE6C4B8862D9B565205369F52DCD82245E03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23A20054BD2920524BC4D0909DD559B483C62482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Oktor - Another Dimension Of Pain (2014) [MP3|320 кб/с]<Funeral Doom/Death Me
 ```bash
 magnet:?xt=urn:btih:3215E9A975FEF4CF22CC62EABA6DA0B13C41C0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Biotoxic Warfare - Lobotomized (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:78FFC70FD170843B52725FF6CB429FBA39E62217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ John Lewis - Evolution II (2014) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:8D048E4FF24C2D756767FF760857C298B489AC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07A9DC80758C515437138AC6B2B8CFACD511DE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ Gordon Staples and The String Thing - Strung Out (2009) [FLAC|Lossless]<Jazz,  F
 ```bash
 magnet:?xt=urn:btih:B6EA7C259BBB8BC013EEC4260E8B9EB447C6D026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Vanguard X Mortem - Neptune Fragrance (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:FC63E9B3B1CC674C1C3B405641733CCBFCCB5B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80163E3B0C8B7FA96D61F2482F6A9AA29529E02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ Ella Fitzgerald - Get Happy! (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:F1A82023FB01071A143B3A01F649403329568117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ adamned.age - Garden Of Secrets + Remixes (2015) [FLAC|Lossless|WEB-DL]<IDM, Amb
 ```bash
 magnet:?xt=urn:btih:97F19E8F521AD74284A3A93B027653D1AD1789C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B85C5B74B68E4EDFC358E9ABA2C15F8EDD36372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16CFA912244D6961E078D3934CD0CB1D609BC55F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ Alpturer - Zero Point (2013) [FLAC|Lossless|WEB-DL]<Industrial, Breakbeat, Exper
 ```bash
 magnet:?xt=urn:btih:C5BC16FC8B8916CC852274FBC4CB859B9A4EF40D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ VA - Calendar Chillout (Chillout for Everyday) (2015) [MP3|320 кб/с]<Downtemp
 ```bash
 magnet:?xt=urn:btih:111EF54BFC836E465039177A27148ADA38ADCF0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD6785EE536378C5221E903B3A05F59D150BC8BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ Rain - Stronger (2006) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EF3C36D65823AA6C23BD23819D8AB4D586CBAC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F6C204B702FEC49A2CB8F069384CBDDEF577CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7757D972BBD3A9C2A8196EEF26E0F523F2ACADE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FB6A50795788185EAECABFB1CB40A82EC888CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5CAB28E61101820711F2C0A5F4822802BCA6121
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ VA - Summer (Compiled By DJ Zen) (2014) [FLAC|Lossless|WEB-DL]<Psybient, Downtem
 ```bash
 magnet:?xt=urn:btih:80AB398E9832411F50E73AEEE96A0835F12ABDE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7C7D25F5CF221A6216E4E72BCB0FA9C3E6C1D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6B1F54420081D6B81682AA01DE58641A47E3615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +719,7 @@ Di-Rect - Daydreams in a Blackout (2014) [MP3|320 кб/с]<Alternative/ Indie/ P
 ```bash
 magnet:?xt=urn:btih:85F9C4F40016890289011D494E31D2FF849481CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ VA - Kamasutra Sensual Chillout (2015) [MP3|320 кб/с]<Chillout, Lounge, World
 ```bash
 magnet:?xt=urn:btih:7C0E82BC79AF123E36E838A49BE18A74A577DAFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

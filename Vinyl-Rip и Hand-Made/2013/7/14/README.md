@@ -27,8 +27,7 @@ VA - Эстрадный Концерт (1958) [FLAC 1.0 24/48 |image (Vinyl-Rip)
 ```bash
 magnet:?xt=urn:btih:0E25B1FEF014C8D63E14BF761F89386C7D35FE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

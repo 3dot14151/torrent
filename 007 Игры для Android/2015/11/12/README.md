@@ -22,8 +22,7 @@ Defense zone 2 HD 1.5.1 [Ru/Multi] + mod
 ```bash
 magnet:?xt=urn:btih:A5855128E513FE8914BF5FCFC5C3936F55438FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

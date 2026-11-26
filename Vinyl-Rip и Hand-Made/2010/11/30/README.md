@@ -21,8 +21,7 @@ Supertramp (1979), Roger Hodgson (1983) [Audio-DVD LPCM 96/24 from VinylRip] <Po
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

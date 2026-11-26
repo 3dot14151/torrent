@@ -18,8 +18,7 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:FA1FDC40EA20B40A2DCA2B55E3A9D92EC7683753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Kaspersky Free – это ограниченная бесплатная верс
 ```bash
 magnet:?xt=urn:btih:2492A548956BE06B26489B9670BA917A1297F8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Electric light Orchestra   Golden Collection 2000
 ```bash
 magnet:?xt=urn:btih:CBD9C2364E5DEB2C0FA6FDC6BA5652A8CC6865CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ The Doors (discography) (1966—1971) [FLAC]
 ```bash
 magnet:?xt=urn:btih:5B19343BE535667A85EF0592E328613EE05B4296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:728B7B3E401ECC3E829579B5BE0E7D4D2E228994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ kobezzza.lab, Дмитрий Холстинин | Продвинутый Debug �
 ```bash
 magnet:?xt=urn:btih:AA7E77D6385F2E5A156463C3329631F7AEE6A0B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE8BE435E0758CC959EB1D18E27E2CBE2CD15E72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ AI Agents in Action, Second Edition is a substantial revision and update of the 
 ```bash
 magnet:?xt=urn:btih:1F84EB847C80CF15D6200CFE091A286C14CC255D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ kobezzza.lab, Андрей Кобец | Введение в System Design для
 ```bash
 magnet:?xt=urn:btih:102D506F2873380AB0CC60A3A7C1228FB419C8E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Industry expert (   Читать дальше...   )Жанр: Computer Cryptogr
 ```bash
 magnet:?xt=urn:btih:178CE7B001A35FEF9E950AC0E7EA7FFAB9189A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ Blending software engineering theory with actionable implementation guidance ( 
 ```bash
 magnet:?xt=urn:btih:2ECD05258F08C10FF2FB3AF0441482FA61BA5AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Automating API Delivery shows you how to strike the perfect balance between spee
 ```bash
 magnet:?xt=urn:btih:EDBB13A69B75CF90CAEE76B53E2D28ADC5CB0EEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ into a powerful engine for building real-world, production-ready systems?
 ```bash
 magnet:?xt=urn:btih:D740E7492AA848E45A0BF99B30CFE8E8E00337D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Professionals in nearly every industry use Excel to create powerful tools that c
 ```bash
 magnet:?xt=urn:btih:D6AF308AC0443E6B9ED290618F7185A6054E0646
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AFE6FDD99AA4214D218C4D3B4653E1F331DD070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ In Bayesian Optimization in Action you will learn how to:
 ```bash
 magnet:?xt=urn:btih:529BB150BD02FEFA3CBDBA63F5322AFD5C6DB931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +437,7 @@ Applied Cryptography in .NET (   Читать дальше...   )Жанр: Micr
 ```bash
 magnet:?xt=urn:btih:C300EEC2546E0EFEB31915C8AFE88D2844492956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:AE3BB79A79D59F540B73DAD777664F4329B067BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ DNSCrypt-Proxy — это мощная, легкая и полностью бе�
 ```bash
 magnet:?xt=urn:btih:EF6AE0D10579E12C5B9F11CCE902D1F16B1017BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ Discovery: Разрушители мифов / MythBusters (2003-2018) SATRip [H
 ```bash
 magnet:?xt=urn:btih:DB720EAA56F964071905CF99C2C8EDE0F6B1CF9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ In the rapidly evolving world of data and analytics, professionals face the chal
 ```bash
 magnet:?xt=urn:btih:727CCAA47C06C2D31C5DD7E006705D935FDC4FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +563,7 @@ Purpleschool, Антон Ларичев | Продвинутый Claude Code (20
 ```bash
 magnet:?xt=urn:btih:15D3D8DE66F928CBF2DE7EA858A2102456CA8A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +588,7 @@ kobezzza.lab, Дмитрий Холстинин | Сборка во Frontend. П
 ```bash
 magnet:?xt=urn:btih:8CD3FFBB42433EE540785DE7B4089811297C6238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37C5EFD89A283F6DC8E3103D43628F76F2736163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +639,7 @@ Classroom-tested by generations of students, this new edition of the popular int
 ```bash
 magnet:?xt=urn:btih:0BBE9C2ACFD92C9CDEA1E91B252D7A8004BAE8B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +664,7 @@ EaseUS Key Finder — утилита для Windows, предназначен�
 ```bash
 magnet:?xt=urn:btih:872EB20E85DC2ECE57C0F2D578BF96FFA3B64922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

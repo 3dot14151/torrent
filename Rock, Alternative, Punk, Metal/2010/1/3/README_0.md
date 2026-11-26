@@ -26,8 +26,7 @@ Acoustic, Ambient, Psychedelic Folk, Post-Rock, Avantgarde, ExperimentalПрод
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ The Dresden Dolls - Discography (6 albums) (2003-2008) [MP3|320 kbps]<Punk-Rock,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Mudvayne - Дискогрaфия [1997-2009] Mp3@320kbps <Alternative Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

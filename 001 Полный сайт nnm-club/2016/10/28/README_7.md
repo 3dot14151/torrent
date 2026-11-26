@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EE458A30C2EAEF8A3CD7430E513301B41535ED1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Eric Alexander - Second Impression (2016) HighNote Records[FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:117724B083FA6881BE853E29A6263678B2134BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Harvie Swartz - In A Different Light (1990) [WavPack|Lossless|image + .cue] <Jaz
 ```bash
 magnet:?xt=urn:btih:947A902FA94D8131376BCB9FABE8D7984ABDF2B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Mike LeDonne & The Groover Quartet - That Feelin' (2016) Savant Records[FLAC|Los
 ```bash
 magnet:?xt=urn:btih:2AA534AA46F8E55FE7319C6F42AF3DF8DA61A266
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Осенняя клубничка №10 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:0B4412D4A7588C45B49646A65B9C9FA82935FE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Paris Combo - Living-room (1999) [FLAC|Lossless|tracks + .cue] <Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Chillout Deluxe: The Best Chill and Lounge Tunes (2016) [MP3|320 Kbps] <Dow
 ```bash
 magnet:?xt=urn:btih:63B664B709145715E6406171A3A308A073CEECE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Dean Martin - Singles (1949-1962) 2001, EMI[FLAC|Lossless|tracks + .cue] <Vocal 
 ```bash
 magnet:?xt=urn:btih:7559C3911464D306147B272F33FA714590539A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - Trance Hits Top 20 2016-10 (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:28F537C52FD8C80500415898909AE70510956FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ VA - Party Hits (2016) [MP3|320 Kbps] <Dance, Club, House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ VA - Осенняя Бомба Года Русский выпуск (2016) [MP3|
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ VA - Осенняя позитивная 100-ка. Сборник 6 (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:7F78FEACD03DD0095D5697D1FC2D9368CB56899F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Templates for Pages - красивые и полезные шаблоны для
 ```bash
 magnet:?xt=urn:btih:7467E8C6A08B74CB790CF8BEA0C672CB981D723C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ Nat King Cole - Top Pops (1963) 2007, Collectors' Choice Music[FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:0EB85475BC70354A498A553DF911516CB3A5B764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ VA - Популярный драйвовый хитовичок. Выпуск 8 
 ```bash
 magnet:?xt=urn:btih:37090EBF160D1174C2D8DB3ABB4386288F0970A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ LSB - Content LP (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B73167D7C380E09F522BE5D2526ACC74D8084547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ VA - Promo Only Dance Radio October (2016) [320] <Tropical, Indietronica, Club, 
 ```bash
 magnet:?xt=urn:btih:15DAEFFD2CF03AE7156B93F23063874D65B6BBB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ VA - Department Of Classics - Trance (2016) [MP3|320 Kbps] <Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ Deep House
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, 
 ```bash
 magnet:?xt=urn:btih:E3EF515D0A713ED603FF5090E7ECF1A48784E687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ French Cookin' - If You Wanna (2016) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:9BA08D5672D7ED7EF5055EB9C0FF75A228E5C91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ Paradise - Do Or Die (1992) [APE|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AEC13296412046C46D0D8B59397FB0ADF9550E7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D422391E9ABA25DFC0A6A44DEDAB1D15217F78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

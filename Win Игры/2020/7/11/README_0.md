@@ -19,8 +19,7 @@ Endless Legend (2014) [Ru/Multi] (1.8.2/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D92F082EF7B2D2D86FE9A927D0398F02B64D9FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

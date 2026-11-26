@@ -22,8 +22,7 @@ Disc One:
 ```bash
 magnet:?xt=urn:btih:9391EA341E61CD68D34D26603629DB63DDFDE680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Giants & Monsters - семнадцатый студийный альбом не�
 ```bash
 magnet:?xt=urn:btih:E01F9896126C3FE3AB4CA51190678738167423EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ John Fogerty - Legacy: the Creedence Clearwater Revival years (2025) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:B4F85F75B654E26D5E5AE0E3494C693CA075A153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Offspring - Running & Cycling with The Offspring (2025) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:3E41FBBE6EC07C7C8CB5586D011A5147B809B83C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Queen - Acoustic (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:EB1050CCDF90F8B7E74D32D040B61DB9E85D75D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

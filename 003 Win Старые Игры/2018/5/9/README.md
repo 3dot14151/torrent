@@ -19,8 +19,7 @@ Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6377911158DF95D8DF144445AD838AF791292111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

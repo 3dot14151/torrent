@@ -20,8 +20,7 @@ BatteryMon - Простая программа которая мониторит
 ```bash
 magnet:?xt=urn:btih:D912DC3FCC27EF2AB82179E9D15E1F14333BE318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

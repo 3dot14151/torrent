@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:777DBE4C56581BE46A42200236B0B124E7B58B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Green Day - Demolicious (2014) [MP3|320 кб/с]<Alternative Rock, Punk Rock, Po
 ```bash
 magnet:?xt=urn:btih:8ADB40808A4E77E04A74B9EDDF0D6E808FC3BCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Halloween Stories 5: The Neglected Dead / Хеллоуинские истори�
 ```bash
 magnet:?xt=urn:btih:58ACDE336E8D1E0ECF40AF915935FD9099A80A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

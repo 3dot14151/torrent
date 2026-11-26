@@ -20,8 +20,7 @@ Speed Thief / Угнать за 40 секунд [Ru] (RePack) 2001 | RG Games/Pi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Spells Of Gold / Заклятие [Ru] (L) 2002
 ```bash
 magnet:?xt=urn:btih:7CA79CD005FAA2DCE254F7BCB64D0A1E9181961F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Slam 420 - Bloated Exploded OG Gluttony (2020) [FLAC|Lossless|image + .cue] <Sla
 ```bash
 magnet:?xt=urn:btih:95E87B8BE13BF3A05C842633DB4BE8D419B1B9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Muna - Live at The Greek Theatre in Los Angeles (2024) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:943AE12846AD3BE7BD2647D05333E5FA227E987E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nebula & Black Rainbows - In Search Of The Cosmic Tale: Crossing The Galactic Po
 ```bash
 magnet:?xt=urn:btih:FEEBDE74B1846874A4C648D75F3344CD1984602A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Through Fire - Devil's Got You Dreamin' (2023) [MP3|320 Kbps] <Alternative Metal
 ```bash
 magnet:?xt=urn:btih:6982A3989D7AFA7B4D5409A778A8CBE5FA61D347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

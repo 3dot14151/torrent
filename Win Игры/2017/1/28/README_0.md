@@ -19,8 +19,7 @@ The Fall - исследовательский экшен-платформер с
 ```bash
 magnet:?xt=urn:btih:23FDD1A2CF3C1B3781998137238408B9DFDCF32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

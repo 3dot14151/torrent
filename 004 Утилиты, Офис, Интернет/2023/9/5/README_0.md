@@ -20,8 +20,7 @@ Calcpad — бесплатное программное обеспечение �
 ```bash
 magnet:?xt=urn:btih:74FA72904514A56E0AA51817F40700150FD62079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

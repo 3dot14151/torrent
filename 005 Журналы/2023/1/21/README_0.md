@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D1CCAB644C1624226D02F02ACD19BB19C9D96001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Australian Woodsmith — журнал по столярному делу пре�
 ```bash
 magnet:?xt=urn:btih:E32F7276820A8D87A8E90A20C05B414E538F8472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Australian Woodsmith — журнал по столярному делу пре�
 ```bash
 magnet:?xt=urn:btih:5A915ECDC94A76FB73F3D08A2C798D10DB641E33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

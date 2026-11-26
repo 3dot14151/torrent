@@ -19,8 +19,7 @@ Between the Worlds III: The Heart of the World / Между Мирами 3: Се
 ```bash
 magnet:?xt=urn:btih:BC8984AF0F570C0E49669608D9C0F04CCCFD5C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Left in the Dark: No One on Board / Кромешная тьма: И никого
 ```bash
 magnet:?xt=urn:btih:C113D8D6C58CD2752F2B93D634B38C046BFDEAAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Riddles Of Fate: Wild Hunt Collector's Edition / Всадники Судьбы: 
 ```bash
 magnet:?xt=urn:btih:FC82E70E45157EE4164F4F986B2220489660389C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ The Dark Eye: Chains of Satinav (2012) [En/Ru] (1.1.26) SteamRip R.G. Игром
 ```bash
 magnet:?xt=urn:btih:320237B9C0B01244200B77880B70EC1302213DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Zack Zero – динамичный платформер с 3D графикой, 
 ```bash
 magnet:?xt=urn:btih:01EED42B9F9987AFA3277A64F541FA43E9075C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

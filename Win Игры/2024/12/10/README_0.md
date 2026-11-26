@@ -19,8 +19,7 @@ Karate Survivor (2024) [Ru/Multi] (1.2.0.277/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6F184697088CCB611EACFFE8ECA3228F3ABCADC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack Let'sРlay [Final Cut]
 ```bash
 magnet:?xt=urn:btih:F2E4E2C6D250E4FB7CFB42CB191009B6F852FFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aurora Hills: Chapter 1 / Аврора-Хиллз: Глава 1 (2024) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:0CC937CBE9356D90D4BD2972F2B66C87CA60C4F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ World War Z: Aftermath - кроссплатформенный зомби-шут�
 ```bash
 magnet:?xt=urn:btih:B7EFB1A1726BD38F71AEE50DBDA7B5DAF12280A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bridge to Another World 12: The Christmas Curse / Мост в другой ми�
 ```bash
 magnet:?xt=urn:btih:AFE8671F653CC74B674A59F0DFF515FCD90CB929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Grim Tales 25: Light in the Darkness / Страшные сказки 25: Све�
 ```bash
 magnet:?xt=urn:btih:A86B456B577ABB921056DCF05A49196C694BF20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Shredder 13 + DeepShredder 13 (2016) [Multi] (13) License
 ```bash
 magnet:?xt=urn:btih:B63DE4C1DBE18743167948F4EAF6120AFE4B2EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Maze of Realities 5: Synergy of Worlds / Лабиринт Реальностей
 ```bash
 magnet:?xt=urn:btih:41C007218A204F2B251ABCFD044BD95CF2481558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Detectives United 7: Mission Possible / Лига детективов 7: Мис�
 ```bash
 magnet:?xt=urn:btih:D56686547595B1DD3FC61A9C66672556390BB817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

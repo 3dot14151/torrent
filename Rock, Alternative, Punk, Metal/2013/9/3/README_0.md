@@ -26,8 +26,7 @@ Buried Dreams - Perceptions (2000) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:29A38C7201F7A1B763FE32575A3F3A246F1F95C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Linear Sphere - Manvantara (2012) [FLAC|Lossless]<Technical Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:50B4D9EAD6DFE3D96FA60922A50C2439D53EA1CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Horslips - 4 albums (1975-1980) [MP3|320 кб/с]<Celtic rock, Progressive rock>
 ```bash
 magnet:?xt=urn:btih:620E7FCCE60BA302B0CE6BA7E79536A68153A987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Ashes Of Ares - Ashes Of Ares (ex Iced Earth, ex Nevermore) - (2013) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:B190A7F695E9D66F828A27BB371CAFD26D799EB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Sinner - Touch of Sin 2 (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:13C0AD4CE39127247EEF470C1C905801E9BB7F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Saliva - In It To Win It (2013) [MP3|320 кб/с]<Alt.Metal / Hard Rock>
 ```bash
 magnet:?xt=urn:btih:78293D9907B5E542E46A5B61E35CDDE8034599AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Machinae Supremacy - 7 альбомов + 4 компиляции + 2 саунд�
 ```bash
 magnet:?xt=urn:btih:867AC90C83CE55F389457802802704750739ECE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ Arven - Black Is the Colour (2013) Limited Edition [FLAC|Lossless]<Symphonic Met
 ```bash
 magnet:?xt=urn:btih:B57FF2947C5FAF61FFABF535C24080D6E2B53A55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ VA - Pure... Rock Ballads (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:2F8A7CFF796DA4530EBCF18FC2E2F6F0856AF915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42F9474BB7B8904356246EF67B4EC0CEA7CD5592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Arctic Monkeys - AM (2013) [FLAC|Lossless]<Indie Rock, British Rock>
 ```bash
 magnet:?xt=urn:btih:D44BE89F59651ED5C029CE9A6C9914F6F3E3338F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

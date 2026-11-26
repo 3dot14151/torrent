@@ -19,8 +19,7 @@ Brutal Legend (2013) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:2C8AD12B1C9E3CC849BB35E6FD0B70867597D58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Distortions (Искажения) – сюжетная музыкальная п�
 ```bash
 magnet:?xt=urn:btih:B36A5366C72E716DD1E3600265B5CD009922F694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

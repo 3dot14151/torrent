@@ -23,8 +23,7 @@ Aweminus - G-Bus (2014) EP [MP3|320 кб/с]<Dubstep, Drum'n'Bass, JumpUp, Drums
 ```bash
 magnet:?xt=urn:btih:BCEDFC9894A6555735709B8B1EB97207F072DDB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alpha Noize & Bass System - Infected (2014) EP [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:7BC0213669034F4B69CBCBEBB05788FFCE7E2DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Subscape - I Would Have Loved You (2014) EP [MP3|320 кб/с]<Dubstep, FutureBas
 ```bash
 magnet:?xt=urn:btih:433C5DED1DF1270DCECF5F28FF66CA2BE393DB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - Chillhouse Anthology (2014) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:8EA4A62372932050A3DEE9F05BC9DE30AD4C987E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Q-Dance Hardstyle Top 40 August (2014) [MP3|320 кб/с]<Hardstyle>
 ```bash
 magnet:?xt=urn:btih:843315991F70359929E88A059ABFDCD88146EF05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Astronaut & EYES - Destination Pinball (2014) EP [MP3|320 кб/с]<ElectroHouse,
 ```bash
 magnet:?xt=urn:btih:D01EE271E69FD76E45363B5DEF0EAF36FD6E3175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:817A5DDD1E73C3097C35BE6898D76FE797AD46E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ VA - Lounge Cafe Classics (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:F66A3D5F8EA184B66925647ADDE592222A534696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ Robirds - робот, который выглядит и летает в точ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ Audeka - Mythical Creatures (2014) EP [MP3|320 кб/с]<Breaks, ElectroHouse, Du
 ```bash
 magnet:?xt=urn:btih:B233EBCD31A5D94C39A493E3F8E9CA934DDFE073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ Billy Ray Cyrus - The Definitive Collection (2014) 2CD [MP3|~186-263 кб/с]<Co
 ```bash
 magnet:?xt=urn:btih:673A5B9836FA298B2E2F1E3D4398C730E6F910CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B49D8186DCED64B6F0ECB95ACFF674186864E335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ Johannes Schmoelling - A Thousand Times (2009) [MP3|320 кб/с]<New age, Electr
 ```bash
 magnet:?xt=urn:btih:2B859445251FDE179D4856CD1B2A22F2C5C96462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ Simplify — это самый удобный способ управлять м
 ```bash
 magnet:?xt=urn:btih:73A799A860CDCFC10A285B2CC369933D09FB7B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57A16CFF6C16C1FDDE3CB04BCDF121B662550DA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ VA - Paul Oakenfold DJ Box: September (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8E331091E8F52417CC4031615C09659BB02AA4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ John Williams - Парк Юрского периода / Jurassic Par (Original 
 ```bash
 magnet:?xt=urn:btih:64A1A4C5B7A8594F711E2343D4330495A2F254EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11B0CB921D6CA66532B7616F7E97F582F5D480E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EDABF26054E8588F1407B2025508ACC845AF8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EBEDCEBDBC863D2AE496C16DDAE61A541DC4B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5903433A02D441345FA244BC888357645E0489C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35AA57C04CF5ED089999515576BBB63D45333430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE8B64ED3A77BB4E28EE6E1FED74386425CE0E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB9092F49BBE670AC8426E351DD5753880C92735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ Stephane Grappelli - Vintage 1981 (1981) / Reissued 1992 /[FLAC|Lossless]<Jazz, 
 ```bash
 magnet:?xt=urn:btih:DBC4BC473E09EFCAAF75720A135EE6003C72960E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ Discovery: Повелители разума / The mind control freaks (2014) HD
 ```bash
 magnet:?xt=urn:btih:8ED0DE35E0AAFCAB2E177A6C87C6ECFFED9658D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:41663F91EBBE6C15639401FADA3D4F7A42E7F7E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Cocktail Hour (Smooth Jazz & Lounge Music) (2015) [MP3|320 кб/с]<Jazz, L
 ```bash
 magnet:?xt=urn:btih:B0D71938E64757FADE0BD510879AC0C730632FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Icecream Image Resizer 1.25 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0411978E9B52D9CC47BD7866EA5B90B3FF7586A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97AF6046A198A59A1CF6AAB157FC88E7063646D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4879ADA1A8CF981892EE289031A5B9ACD27CAF4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ MediaInfo позволяет получать техническую инфор�
 ```bash
 magnet:?xt=urn:btih:10C30A5154CFB783301AE8579B5BB36ACA0E79FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED575B3BBE770A3576E9A2DCB78901666AD7BFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
 ```bash
 magnet:?xt=urn:btih:5A0AA07A1CDC9045978182BC9CF98CEA1FB3DB28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ VA - String Illusion (2015) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:85B402750BD3D90366B8EA688EDC5CCCCD82E948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Privacy Eraser Free 4.3.0 Build 1560 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F6A33AFEFBE7426F2416A7F730A1AC337B187808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9725B32C28594FF4DFA60A395930BE91C1CE43D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8890969C6D3D147F231D893BC5280E4A50C67736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Icecream Slideshow Maker 1.31 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6B29EEF93BDF82466554D2EBFDF239BAFFEBA432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59206E78B0549E33C28EBB1F10B3C907A3324D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1046DEB2915C6F2F8CA86F71A60E7A6752AB7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ Symphony No.10 In E Minor, Op.93
 ```bash
 magnet:?xt=urn:btih:A4B6C575B65ED6EA85F9BF983F2DB73135991100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Mozilla Firefox 40.0.3 (Яндекс-версия) [Ru]
 ```bash
 magnet:?xt=urn:btih:C492657F734F2C984E49CA527E79A82526A0EFE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E381F84639315585ECBDEBE7F86997C08D49EEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Icecream PDF Split and Merge PRO 2.24 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A1515FEECD4E0CDA5B80E56212436F0C745FE3D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ A4	Le Premier Bonheur Du Jour(   Читать дальше...   )Жанр: Chans
 ```bash
 magnet:?xt=urn:btih:163C29272355029070F6791E9154ADFBDFC27D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/576p]
 ```bash
 magnet:?xt=urn:btih:87BAEDE5B050E4326C3D435A2B6387C59B9C7C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Icecream Screen Recorder 2.25 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A5AAF9F15F557AFB2ED26C7269547690EF90F653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +589,7 @@ Mindex - Collection (2010-2015) [FLAC|Lossless|WEB-DL]<Psy-Trance, Glitch, Dubst
 ```bash
 magnet:?xt=urn:btih:322549514D437A5EE45E1897478D93D0894F7866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ Chopin - Nocturnes (Nelson Freire) (1998) [FLAC| image +.cue]<Classical, Romanti
 ```bash
 magnet:?xt=urn:btih:9FA53CC26C84C80ED4EC9A1F12B4111481C866CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +643,7 @@ QuarkXPress  флагманская издательская система от
 ```bash
 magnet:?xt=urn:btih:6FF29E8B3C37836AB4253D082ADBC9AD996A2BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ TextExpander – боец невидимого фронта …. Функция 
 ```bash
 magnet:?xt=urn:btih:F529D1224F7DC54CA9599E6088CE08D15A0B63E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

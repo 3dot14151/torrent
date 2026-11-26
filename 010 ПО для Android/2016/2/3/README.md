@@ -20,8 +20,7 @@ PRO PDF Reader 4.5.2 [Ru] - Читалка книг и документов фо
 ```bash
 magnet:?xt=urn:btih:B6A601A60478AB2E7B4209BFF293918DB3DBA321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

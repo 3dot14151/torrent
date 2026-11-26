@@ -28,8 +28,7 @@ Born to Reggae(   Читать дальше...   )Жанр: Disco, PopПродо
 ```bash
 magnet:?xt=urn:btih:9681E9251DC6B01903CBAFFECDB67ED924CB5811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

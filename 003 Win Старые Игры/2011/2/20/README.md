@@ -19,8 +19,7 @@ Jets’n’Guns - один из лучших представителей арк
 ```bash
 magnet:?xt=urn:btih:AE61AD8F30A32A42543F6345085D207CA5CF4B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

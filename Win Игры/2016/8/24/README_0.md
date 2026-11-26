@@ -19,8 +19,7 @@ Guns n Zombies (2014) [Ru/Multi] (2.0/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:883212366BE0F622D55D17511A565B5E6E22362C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Guns n Zombies (2014) [Ru/Multi] (2.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:945977A202C59796D322DF0929B0B8A2714504D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Conclusion - это адвенчура с элементами детектив�
 ```bash
 magnet:?xt=urn:btih:BB9ACE434562BFC5E9C92DC62C1163A31C87FD43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Conclusion - это адвенчура с элементами детектив�
 ```bash
 magnet:?xt=urn:btih:DEBBD6DEE13C14D02CE14FEF8999FADBC8DEE3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (1.0.0.13825) Repack R.G. Ме�
 ```bash
 magnet:?xt=urn:btih:414E4C264FE233E886D94DC0E61CD3A5A9FE31DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

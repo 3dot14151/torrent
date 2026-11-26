@@ -19,8 +19,7 @@ Hydro Coach - пейте воду 2.9.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:1B351C7782D88EB46F3406D1B45A6A8823BB7E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Microsoft Office Mobile 15.0.4220.2300 [Ru]
 ```bash
 magnet:?xt=urn:btih:27F0C020E0EAFAD98A8135C6AC6D41A1BC72FE5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

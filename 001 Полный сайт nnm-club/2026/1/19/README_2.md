@@ -18,8 +18,7 @@ Fate/Strange Fake | Судьба: Странная подделка [2026, TV, 2
 ```bash
 magnet:?xt=urn:btih:477ED752CF8F3AA13855BCB344ADB5FB827A32F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Hikuidori: Ushuu Boro Tobi-gumi | Oedo Fire Slayer: The Legend of Phoenix | Ог
 ```bash
 magnet:?xt=urn:btih:9684463E603A4865C1EB8FEACEAFA3467C809DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28FB8D723233297608523FEE36E16DC6AF852C1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Jigokuraku Dai Ni Ki | Hell's Paradise Season 2 | Адский рай [ТВ-2] [
 ```bash
 magnet:?xt=urn:btih:EB908A36A7AB2C8E1572FBA32FDC5A0C192F97C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62C2658C84B38ED6A3570C8254BF953C894705D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Vigilante: Boku no Hero Academia Illegals 2 | Моя геройская акад
 ```bash
 magnet:?xt=urn:btih:A1B2AF49A9F024B6A426042CEB359A14F87EA497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Kirei ni Shite Moraemasu ka. / Wash It All Away / Можете постират�
 ```bash
 magnet:?xt=urn:btih:2F5C7881E8A2A020B7DD8D040A3D05BB72C04B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Osananajimi to wa Lovecome ni Naranai / You Can't Be In a Rom-Com with Your Chil
 ```bash
 magnet:?xt=urn:btih:8ADB585AAB4A71BF20FCB026DC584A93C6FB4426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Golden Kamuy Saishuushou | Golden Kamuy Final Season | Золотое божес
 ```bash
 magnet:?xt=urn:btih:2390A32E5B34E750B77B0BB307EA8942D6F15BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B0CDAB888AE736E25C8AC40BD2B592878966D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara o Eru / Noble Reincarnat
 ```bash
 magnet:?xt=urn:btih:FAA9F66C6AF525815DEC4C8395D62A534F666249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ The Daily Life of a Part-Time Torturer | Goumon Baito-kun no Nichijou | Повс
 ```bash
 magnet:?xt=urn:btih:9FAB8D1CD76DA71705A7BEE43F55149827C88BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

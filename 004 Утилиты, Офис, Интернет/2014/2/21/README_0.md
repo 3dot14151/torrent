@@ -19,8 +19,7 @@ FolderIco - предлагает пользователю изменить вн�
 ```bash
 magnet:?xt=urn:btih:3D7870C429FBD90A1300069B972521C793E06D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Anito: Defend A Land Enraged – изометрическая RPG, перено�
 ```bash
 magnet:?xt=urn:btih:C7606713413A596AAB40B050A85474C610EC153E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

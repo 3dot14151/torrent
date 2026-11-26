@@ -19,8 +19,7 @@ Fitness Online - фитнес приложение, с помощью котор
 ```bash
 magnet:?xt=urn:btih:9F6881C43D4583C2BF1166E262B4E2198E33E01B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Adguard Pro 4.10.35 Mod by FreeApkexe [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FD9BA10903447E7254DFC31C0685D09EC1342632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

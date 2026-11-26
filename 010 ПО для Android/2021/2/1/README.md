@@ -19,8 +19,7 @@ Fake GPS Joystick & Routes Go v1.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:46E3521785368D61F0C5E19EEAC97929A179D9E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ WEATHER NOW v0.3.40 Premium [Ru] - прогноз погоды, метео-ра�
 ```bash
 magnet:?xt=urn:btih:EC63931746780D7533FEB5F39D5922F1D16710A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Drops Learning Languages v35.47 [Ru/Multi] - Изучение иностранн
 ```bash
 magnet:?xt=urn:btih:18C5C3B861BD433CFDFB9934FAE0B2437CB1DB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

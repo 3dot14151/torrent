@@ -22,8 +22,7 @@ Demons of Guillotine - 4 Albums (2004-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:22E78D81FE43DCF2488E2A8DA391A872EA795A99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Morpheus - Духи Чумы (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Bla
 ```bash
 magnet:?xt=urn:btih:BA398527868F4648612B3A891424F99F80D3D381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The PlayStations - X (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcor
 ```bash
 magnet:?xt=urn:btih:34E6813A5960BAABC0A5E4C48ACD253D1647F213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

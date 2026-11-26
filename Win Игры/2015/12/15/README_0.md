@@ -19,8 +19,7 @@ Darkest Dungeon – хардкорная ролевая игра, действи
 ```bash
 magnet:?xt=urn:btih:E53635BE96AAACE43BB31B59E9433B76C8AB31B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ G-Force / Миссия Дарвина (2009) [Ru] (1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:D2E6C8A259F2A09C2ACA87E84E7705A20691DE84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

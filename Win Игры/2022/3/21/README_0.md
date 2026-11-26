@@ -19,8 +19,7 @@ Haven (2020) [Ru/Multi] (1.1.302/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7BA3E8B154E30889DA7645ADB641165E74C34742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Havok - V (2020) [FLAC|Lossless|tracks + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:BBA4762944818A4090DEFF503788B54A63E90EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ loney dear - Dear John (2009) [FLAC|Lossless|image + .cue] <Indie Rock, Alternat
 ```bash
 magnet:?xt=urn:btih:52EDD4876ADA1E73A7BC68F2244E58DED1032D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Redlight King - Moonshine (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8AFE954C79EF6C59DC48553D8621AC46E31D143D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tarot — финская группа, играющая хеви-метал. Н�
 ```bash
 magnet:?xt=urn:btih:8F24F1BDFA37C2E9C9BA9868BC9E9EC18EBF9F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

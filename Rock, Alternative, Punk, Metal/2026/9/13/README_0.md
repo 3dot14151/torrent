@@ -22,8 +22,7 @@ Bülent Ceylan - B.L.N.T (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:295C8E62E60C72E0B97177860E6AC2DCDE114934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Godslave - Godslave (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:73588B7FB1FFB4BB12F2B4F63916B4641F482730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Locus Noir - Shadow Sun (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Rock,
 ```bash
 magnet:?xt=urn:btih:B3ABC9D5A8881BD89ACFB48FAFA31F8449C3A0DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

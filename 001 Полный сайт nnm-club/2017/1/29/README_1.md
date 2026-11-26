@@ -21,8 +21,7 @@ Morver - Staying in the Abyss (2017) [MP3|320 Kbps] <Progressive, Melodic Death 
 ```bash
 magnet:?xt=urn:btih:3E481861D2C5A5E744B29DEE67AF81B96FBB7DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Dalek - Asphalt For Eden (2016) [FLAC|Lossless|tracks + .cue] <Hip Hop, Electron
 ```bash
 magnet:?xt=urn:btih:01A887EEA9F1C01B19729E1AA3CA07450D453391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78E5A4D68DBE4B78E5D096073EDD1A4653038966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - 100 пудовые зимние хиты на Europa Plus. Версия 6 (
 ```bash
 magnet:?xt=urn:btih:C79BA18218AFCE6A4ECA972296A970771ECDC9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D8DDFB01CC25AD6E0BA87D4959437168B4FD514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ We Blame The Empire - These Waves Won't Take Me (2017) [MP3|320 Kbps] <Metalcore
 ```bash
 magnet:?xt=urn:btih:D6E4EF06D92CE4978D6FF9955EEF120CAA4222D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Apple оформила патент на электронный парогене
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Hawkwind - The Machine Stops (2016) [FLAC|Lossless|image + .cue] <Space Rock, Ps
 ```bash
 magnet:?xt=urn:btih:52F055BCE20CF562322BB012336E69F9EA317295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Something Else: A Tribute To The Kinks (2017) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:7B0EB04FF4647A83E1BFF796A62751CAA29719EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Greywind - Afterthoughts (2017) [MP3|320 Kbps] <Alternative Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:2547B5E5AF2CC85E526CD3C29864BB9B8445C9DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB3ED6C9F1836A98DFE0F541A10700215492AB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Need - Hegaiamas: A Song For Freedom (2017) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:EC1E910BCE6E51BEC7CE47A6CA4B4C35D11C3EFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Tweetbot - клиент Twitter для Mac. Этот полнофункцион�
 ```bash
 magnet:?xt=urn:btih:0E30FDEC78DE2610D649A7B3B8EDCEAF6B463148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFA28490E0C63CA13DBDCF0E8B1F49AEC9ADA9C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11B325EBF554ECBF9A96008C468B8EA5EC9CE8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Aversion Crown - Xenocide (2017) [MP3|320 Kbps] <Technical, Brutal Deathcore>
 ```bash
 magnet:?xt=urn:btih:CD0A97B0A7FD1F8FF6869BB0E839B7A28379DA1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Evenline - In Tenebris (2017) [MP3|320 Kbps] <Alternative Metal, Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:8529D4853F4ED39ACB1729B33F722D7FB9A10DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8C243C9A24FE78AFE3AA5122A21E3EE9FE46D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ VA - Chilltrap Vol.8 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Chilltrap>
 ```bash
 magnet:?xt=urn:btih:FBC2A01F52C83F1A2008C45C2C310A7120718E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Astarte - Doomed Dark Years (1998) Reissued, 2002 [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:24724F696103E4410BD64B3DB1E1EE89754199D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ Estelle - Shine (2008) [MP3|320 Kbps] <R&B, Hip-Hop, Pop Rap>
 ```bash
 magnet:?xt=urn:btih:CC5B89588DBB878A43CE3E745A800D7764260D08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ VA - International Sports Collective 4 (2017) [MP3|320 Kbps] <Eurodance, Vocal, 
 ```bash
 magnet:?xt=urn:btih:5B7B9F02FEBE36F5221F360FE02E0597DAD6C2DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ VueScan — программа для работы со сканерами HP, M
 ```bash
 magnet:?xt=urn:btih:40FC54BE96AA99DC53BA90A6594DA8EFA877DDA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ Mors Principium Est - Embers Of A Dying World (2017) [MP3|320 Kbps] <Melodic Dea
 ```bash
 magnet:?xt=urn:btih:8E38A81C2D34F745F4724F9E6F58099C32243EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A115DAA1AF3113FF140C783DE6F9579041C0859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ The Joey Gilmore Band - Respect The Blues (2016) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:CFE84A19F97A12C350B5295CC75B0A250A38007F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

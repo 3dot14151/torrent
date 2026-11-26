@@ -22,8 +22,7 @@ A4 Gwiazda Na Kiju(   Читать дальше...   )Жанр: Pop Rock, FunkП
 ```bash
 magnet:?xt=urn:btih:777FB3100117D2AA13CAE8293BCA015E18E8E9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

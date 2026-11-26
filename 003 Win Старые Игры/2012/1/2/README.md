@@ -19,8 +19,7 @@ Time Warrior: The Armageddon Device [Ru] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:DE1F95187733DF671E97E5B894EDF78F33C33F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

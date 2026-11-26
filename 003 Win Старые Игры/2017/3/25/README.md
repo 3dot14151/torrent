@@ -19,8 +19,7 @@ Delta Force 2 - компьютерная игра, тактический шут
 ```bash
 magnet:?xt=urn:btih:81C14AF82D7BB7DECED0668A92B0889CFD2D8FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 ```bash
 magnet:?xt=urn:btih:141E73BB03D2EB67BB1C44B262043ACE0ED11451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Delta Force: Task Force Dagger / Отряд Дельта: Операция "Ки
 ```bash
 magnet:?xt=urn:btih:DEE6C02CA4FD4AE93C1D8C5217ABF48C4BF8D032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Delta Force: Xtreme / Delta Force: Первая кровь (2005) [En] (1.6.9.3)
 ```bash
 magnet:?xt=urn:btih:73487A5545D256FDC84989DBCFBF09955C88451A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 ```bash
 magnet:?xt=urn:btih:118274A45D3E3C392245B274EFAE6901312C9CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

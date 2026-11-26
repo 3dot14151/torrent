@@ -22,8 +22,7 @@ Simon Love - It Seemed Like A Good Idea At The Time (2015) [FLAC|tracks+.cue]<Po
 ```bash
 magnet:?xt=urn:btih:2161326432A6480C7757CE24303D887E8D55D2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Full Trunk - Time For Us To Move (2015) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:3E764D914D16B90C59781354FA6BCB095067DE25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Metal Allegiance - Metal Allegiance (2015) [FLAC|Lossless|WEB-DL]<Thrash / Heavy
 ```bash
 magnet:?xt=urn:btih:C3E84E9A492643B0905E169E2E17EF81C362AB2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Dead Weather - Dodge & Burn (2015) [MP3|320 кб/с]<Alternative Rock, Garag
 ```bash
 magnet:?xt=urn:btih:4F24FA516EB1ACE285455E43455D53DC59463CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Martina Edoff - Unity (2015) [MP3|320 кб/с]<Melodic Hard Rock / Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:270260B4029E41C0D992167B4FA9C650605BEA65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21D05B9428DF69D2DC547C56AB2AFAD4A2AF481D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Shinedown - Threat To Survival (2015) [FLAC|tracks+.cue]<Alternative Metal, Hard
 ```bash
 magnet:?xt=urn:btih:BC3DD8453D270BBC61886C8945C798BE573926D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Tracktor Bowling - Бесконечность (2015) [FLAC|Lossless|WEB-DL]<Alte
 ```bash
 magnet:?xt=urn:btih:BC7F56DA3B3843317DD5924345DC4D124D507037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Shinedown - Threat To Survival (2015) [MP3|320 кб/с]<Alternative Metal, Hard 
 ```bash
 magnet:?xt=urn:btih:E4A5865BEFB7143CF9EAA5BE18EDBFB2D7AB33D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Tesseract - 5 альбомов, 2 Ep и 7 прочих релизов (2003-2015
 ```bash
 magnet:?xt=urn:btih:86BD87B70B8DCBC5DA678D3A79DA8F8D309BFBB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Pink Floyd - Greatest Songs (1995) Bootleg [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:1EC2E63551B1A58229E1F0F9F8EB26AF749CA920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Tracktor Bowling - Бесконечность (2015) [MP3|320 кб/с]<Alternati
 ```bash
 magnet:?xt=urn:btih:5ACC7512DE0F41243382E0FCB56EAFFEEB2D4BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

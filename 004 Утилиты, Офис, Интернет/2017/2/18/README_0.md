@@ -19,8 +19,7 @@ Hetman Data Recovery Pack - это пакет из 8 программ для в�
 ```bash
 magnet:?xt=urn:btih:6C4C359D372B60B7433B12D3B6A3A9A7A755B38B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

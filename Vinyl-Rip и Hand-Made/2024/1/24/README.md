@@ -22,8 +22,7 @@ Gotsu Totsu Kotsu - Studio Albums (6 releases) (2009-2023) hand made [restored, 
 ```bash
 magnet:?xt=urn:btih:D117CA506D858DA1C45EEDE60ADCC2D61E77E36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Ground Zero Brooklyn(   Читать дальше...   )Жанр: Speed, Thra
 ```bash
 magnet:?xt=urn:btih:E4CA29A734E49334A40D6BE2319A9AB39A3F5CA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A04. Armageddon {04:13}(   Читать дальше...   )Жанр: Speed, Thra
 ```bash
 magnet:?xt=urn:btih:CA458C00D10AD82E5DC37E425FAC9FB0A0C4648B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

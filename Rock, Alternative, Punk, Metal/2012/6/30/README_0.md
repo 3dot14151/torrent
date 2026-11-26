@@ -24,8 +24,7 @@ Fat Janitor - Lurk (EP) (2012) [MP3|320 кб/с]<Shoegaze Mathcore / Noise Rock>
 ```bash
 magnet:?xt=urn:btih:CB2EEBB7340969C52448189FB10BA9E26306B1A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ The Agonist - Prisoners (2012) [FLAC|Lossless]<Melodic Death Metal, Metalcore, F
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Tequilajazzz \ Евгений Федоров \ Optimystica (Optimystica Orchestr
 ```bash
 magnet:?xt=urn:btih:3E4BEC576BE80B27C776204130A3EBAE51DB6EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7A58A3F105A971801B380BE82BA0B46D2C857C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Workshop Simulator (2022) [Ru/Multi] (1.3.13977) License GOG
 ```bash
 magnet:?xt=urn:btih:ECE7E7D29C0279F101A8E590FC37997BD2D6395B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

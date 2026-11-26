@@ -19,8 +19,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.31.7 Gold
 ```bash
 magnet:?xt=urn:btih:C37DD3FD46E5E79C743C008554EC52145D1A058F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Colorize Images - это сервис, основанный на автомат�
 ```bash
 magnet:?xt=urn:btih:0275E42AC31D23606D31BF0AED28511C0EE9A131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AirBrush: ИИ Фоторедактор v7.4.600 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3B1FE211699B2E57F6AC07BEDFD61178099F31C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

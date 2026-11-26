@@ -20,8 +20,7 @@ Star Wars: Empire at War | Гражданская война охватила Г
 ```bash
 magnet:?xt=urn:btih:22971AA7CC4664E9ADF25C61618DA0BF7F305FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Partisan / Партизан [Ru/De] (Repack) 2008 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D0773453F1326C747EFC4AFD1FE410C4CE7B1FB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Runaway Антология [Ru] (RePack) 2002-2009 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:30F3C1F9BE03957C1E08861B7A3FC874FA308D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Fraps состоит из трёх модулей Benchmarking Software, Screen 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Recovery DVD for HP Pavilion dv7-3110er/Windows 7 Home Premium x64 [Русски
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13CDD5F425E60845B0FE675DBD0486BAD053F0D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Microsoft Windows 7 Максимальная SP1 x86/x64 WPI - DVD 16.08.2011 6.
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Electro House Summer Part.1-17 {2011} [MP3|320 kbps]<Electro House | Electr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Spider-Man 3: The Game / Человек-Паук 3 [Ru] (RePack) 2007 | MOP030B
 ```bash
 magnet:?xt=urn:btih:47326BDFD64B9D15809A9AFB9A6441A91CB67DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Autodesk® Inventor® – семейство продуктов для пром�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Dawn of Discovery / Anno 1404 (2009-2010) [Ru] (1.03.3850/dlc 2.01.5010) Repack 
 ```bash
 magnet:?xt=urn:btih:0323944D4423244ECCCEC8400326ADFDAB339F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:825AD04FD71650EC17E47BB54C4FEF4D1B7C1739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ Gekijouban Trigun: Badlands Rumble / Trigun the Movie / Триган: Переп
 ```bash
 magnet:?xt=urn:btih:6EA816548A3C285DB89B0247D5B5B8E2BB28C236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Artisteer - программа, при помощи которой, можно �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ From Dust - это последний оригинальный игровой к
 ```bash
 magnet:?xt=urn:btih:C5E2DA328549B5A65A70C21C07CF66AEA76ED4B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ Shadow the Hedgehog [Ru/En] (Р) 2011 | Zdanov (xanloz)
 ```bash
 magnet:?xt=urn:btih:5899C55EE01F2DAA8E13BE22AD42BC9C773DD726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

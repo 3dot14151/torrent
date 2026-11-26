@@ -19,8 +19,7 @@ Recover Keys - это приложение для Windows, созданное д
 ```bash
 magnet:?xt=urn:btih:D50A8E90CD0B695A41FCA8ABC00C635250D39EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

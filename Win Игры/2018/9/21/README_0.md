@@ -19,8 +19,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack xatab [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:5B92DCF75A90DA065E92C28DDF29DA3A928532FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

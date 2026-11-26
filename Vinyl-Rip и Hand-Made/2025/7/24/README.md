@@ -22,8 +22,7 @@ B2 - Crazy TrainЖанр: Heavy Metal, Hard RockПродолжительност
 ```bash
 magnet:?xt=urn:btih:BBEE261A8FD5E9582F196EB53920B48627D4E821
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

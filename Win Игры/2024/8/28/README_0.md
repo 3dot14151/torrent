@@ -19,8 +19,7 @@ Chromosome Evil 2 переносит в леденящий душу мир, гд
 ```bash
 magnet:?xt=urn:btih:45C2B2499FE187D1A440A245C7D615DD37C4EC73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paris in 2000 Years - это градостроительная игра, пос
 ```bash
 magnet:?xt=urn:btih:FE6656091236B9F4794368BED369797B4594C105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9573D73D671BFA0B439A7BEC9EC5CCB19903B42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Debtors' Club (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4C7FEEA9703A3CA837DBC24BCA0FF43B05906C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Northgard (2018) [Ru/Multi] (3.5.15.39065/dlc) Repack Other s [The Viking Age Ed
 ```bash
 magnet:?xt=urn:btih:62EC03B817E3824E6C900BEE1B374DE203034A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

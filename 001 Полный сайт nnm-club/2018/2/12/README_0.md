@@ -21,8 +21,7 @@ Dalot & Sound Awakener - Little Things (2018) Fluid Audio [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:12EF31C325DB52A4C1485F3BC4A0648D2021BAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB416C7FA09146D0FD627D51B4E4547C5D1B69B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77D05D4160A3B0525C71CC458B576225DFDD0F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - Vocal Trance 2k18 Vol.2 (2018) [MP3|320 Kbps] <Trance, Hard Trance>
 ```bash
 magnet:?xt=urn:btih:400C5972588F90DFB84B2693942F1DE358CA3100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E668521EA792B16EC6257216534B0D418D9EEDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Egoprisme - Among Noise (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Darkwave>
 ```bash
 magnet:?xt=urn:btih:81D6694DB30CF22B2196D775A078CA25A2579FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ VA - Chilling Sounds, Vol. 4 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:A80AAED814704A5ECFD5BCB91F09D95986A7AC29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64F63B9EA79DC493D4559E28D10A92A53B64F8C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F04520C7DB2A8462EE4BF505361A377CCB5B1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ De Lux - More Disco Songs About Love (2018) [MP3|320 Kbps] <Dance-pop, Italo-Dis
 ```bash
 magnet:?xt=urn:btih:D803D1DC770471F2F89DA00A2A26220F615A0329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ VA - Best Of Deep House Vol.01 (2018) [MP3|320 Kbps] <House, Deep House, Progres
 ```bash
 magnet:?xt=urn:btih:4BDB4268AA723F72B1ACBD225DE6BCADDE049407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:945BA71409C967075FFA1F311F1311E8699270DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ The Glass Family - 2 Albums (1978,1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul
 ```bash
 magnet:?xt=urn:btih:F407FD611D442A0C40A214494320F1AF8E6EF4B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1990) A
 ```bash
 magnet:?xt=urn:btih:2C7E814E02231D6FFDBC58A05C9FC513BA8B3E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ Ison - 2 EP (2015 - 2018) [MP3|320 Kbps] <Space Ambient, Drone Doom, Post-Rock>
 ```bash
 magnet:?xt=urn:btih:E7F196184A9CDA95BB7848A34FA98BA7E2DB4752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:CCC07BC815D5BF8F555842C64C385E0BA9CFBD0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:362875E10D4CF0EAFFF34FEDC286843541FC6A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ VA - Danish Electro Vol.01 (2018) [MP3|320 Kbps] <Synth-pop, Synthwave>
 ```bash
 magnet:?xt=urn:btih:A50BB1944B406D41F806443FBE9494D0177A343C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ Touken Ranbu: Hanamaru | Дикая пляска мечей: Ханамару [2
 ```bash
 magnet:?xt=urn:btih:A8BFA87B89F03E18DE7FBB1452AFCCC50D82609E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7E639D1F1ABC1BE9CFC647055A9FF4E429680AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:597F549041A63DE2753727D880B83B21B7D019CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Spaceinvader - Escape (2018) [MP3|320 Kbps] <Synthwave, Darksynth, Retrowave>
 ```bash
 magnet:?xt=urn:btih:366E2E8D43BD02A61EAF5450257D8EE86C7E0DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E91BAF52456CE7925C97C959D2791D8D812DC47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B63AFE6AB48654EC40F852A184BD68EA4FF8064A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:825758410BBAE6A4814549826F570C7DC991AC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1B1E46ACE96EF19D648827A5F24F467995BE321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

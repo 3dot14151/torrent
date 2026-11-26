@@ -19,8 +19,7 @@ ProShot v8.25.0.1 Paid [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0232CCEEE96AFA22C411DA3A65FA0AB11B1F2363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:998AE7BF9914CF56746C57B1F5457DEA5AFFE41B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ HeadUp Display (HUD) – это возможность использовать 
 ```bash
 magnet:?xt=urn:btih:229B386681889537AD1BF964E3D65BF5FA2972D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

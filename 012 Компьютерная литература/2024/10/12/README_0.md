@@ -19,8 +19,7 @@ Stepik, Александр Чумилин | Основы этичного хак
 ```bash
 magnet:?xt=urn:btih:63A1961E6DFFF281F1866925948F136D450A61F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A98D01006E16F7621A97CEE230AD32C89C97AFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

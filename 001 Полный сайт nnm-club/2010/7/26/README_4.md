@@ -26,8 +26,7 @@ File Name: en_windows_7_enterprise_x86_dvd_x15-70745.iso(   Читать дал�
 ```bash
 magnet:?xt=urn:btih:6898A974D7A7746AD8889E2A2EC2CF626CF3CC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

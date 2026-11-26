@@ -19,8 +19,7 @@ Background Eraser (InShot Inc.) v2.111.28 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BB28A57BD75AF135BDBEB20041804CD9425A933B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Code Blue: The Interactive ER Game / Скорая помощь 1 (2000) [Ru] (1.
 ```bash
 magnet:?xt=urn:btih:E1D73F71AACF311230367E9065E4E468E63FC12B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Knight Rider: The Game / Рыцарь дорог (2003) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:D3D94D35BC958A679DCCFB7930A2205BFC6968BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

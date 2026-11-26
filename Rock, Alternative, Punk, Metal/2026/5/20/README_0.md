@@ -22,8 +22,7 @@ Pulp - Freaks (1987) Reissue, 1993, Fire Records [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:497DCA4530795F3A56561D5A358632702B05C37B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The President - 2 Albums (1983-1985) Remaster 2024 [FLAC|Lossless|tracks + .cue,
 ```bash
 magnet:?xt=urn:btih:764981134D7B1C79191DE9C309C1994D7C2DFE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD4 - Original Drums(   Читать дальше...   )Жанр: RockПродо
 ```bash
 magnet:?xt=urn:btih:A90AE02B5569D8E42E76DE267D1CB84277BCA3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Great North Shelter - это самый странный Национальны�
 ```bash
 magnet:?xt=urn:btih:88A6D976A927510E910A93646D06D179F887F402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Parasocial - это не просто хоррор-игра, а симулято
 ```bash
 magnet:?xt=urn:btih:A76EE0813BD3BA95D7C086606CB841834D588F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mega Man X DiVE переосмыслила мир серии Mega Man X, и те
 ```bash
 magnet:?xt=urn:btih:641189A7E34DD763714EE94F43153B2D2A68185F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Great North Shelter 2 — приключение от первого лица, �
 ```bash
 magnet:?xt=urn:btih:8A743144728CFE87B16E842230C15CC56483D2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 ```bash
 magnet:?xt=urn:btih:8256B51C502069F6C1BC3769C85CE7F315A67B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Under the Waves (В глубинах океана) – это повествов
 ```bash
 magnet:?xt=urn:btih:DC35B8CC0E033B58D432B729072AE4C9768875B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

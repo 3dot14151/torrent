@@ -20,8 +20,7 @@ Packt Publishing | Книги по Blender [31 книга] (2008-2018) [PDF, EPU
 ```bash
 magnet:?xt=urn:btih:83059898176BEF4D78654397B14C8241A7AE0CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6D82D2213BF7AE9C5963A4F12E9FFC239C9A940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Long Way - это аркадный симулятор вождения, кото
 ```bash
 magnet:?xt=urn:btih:D434B0F53F491C72A79EFE1792BE3133BFB0855B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Braid (2024) [Multi] (20240603) Scene Tenoke [Anniversary Edition]
 ```bash
 magnet:?xt=urn:btih:6B3EA70CBBDDAD0793033E2274051CFEF149BE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Baladins погружает вас в причудливое приключен�
 ```bash
 magnet:?xt=urn:btih:1EBD4F3B0AA29A7A7646B188A3BDB6CC8DA51BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SKALD: Against the Black Priory может понравиться любител
 ```bash
 magnet:?xt=urn:btih:CD04FFEB7D9D15A4B01D09D1EDB649C2C1FA69E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ENDLOOP (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D2989C0652175579CC9B4B62B3954CFC9C293974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ NUKITASHI 2 возвращает игроков на место Дзюнносу
 ```bash
 magnet:?xt=urn:btih:AD21885E2FB7CA5A1319856DA7F7D0343C840790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Paranormal Files 11: Sacrifice to Shadows / Паранормальные явл�
 ```bash
 magnet:?xt=urn:btih:A8304F0743A8B63FB642127AA96E0FC5723C0346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Three Goblin Wobblin – гоблинам не разрешают посещат
 ```bash
 magnet:?xt=urn:btih:157CEB5AADF32A80EF2D671F539B136D985A4F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

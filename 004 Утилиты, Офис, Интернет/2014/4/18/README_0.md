@@ -19,8 +19,7 @@ Windows Essentials — комплект интегрированных веб-п
 ```bash
 magnet:?xt=urn:btih:FDC5355B15DC3A77F7167C9931879F3CE23BB426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

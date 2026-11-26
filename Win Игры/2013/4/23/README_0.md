@@ -19,8 +19,7 @@ Sacred Citadel [Ru/En/Multi9] (Steam-Rip/1.0.0/DLC) 2013 | R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:A62F6E4EDF7FA203522E89F1A3C0742AF584A971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Kairo - атмосферная 3D-бродилка с головоломками
 ```bash
 magnet:?xt=urn:btih:EC9C11192D2D031096C878C6572898A393BE320E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

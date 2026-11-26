@@ -21,8 +21,7 @@ Alien Shooter: Начало вторжения- Бесконечная темн�
 ```bash
 magnet:?xt=urn:btih:94CEC880B9251AA8850D1B26A2612D2EDE705BB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

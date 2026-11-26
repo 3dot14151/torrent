@@ -19,8 +19,7 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.50.3.7s/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:665473121583DDE63EDAD9ECDBC57497EC3CA1A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Clash II (2) (2022) [Multi] (497) License GOG
 ```bash
 magnet:?xt=urn:btih:4E7A4B5E7D4E26A94CCABD9090C356338C5F62B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wolfenstein: Youngblood – новое приключение с режимом 
 ```bash
 magnet:?xt=urn:btih:8141B628C75CF3F20ACD89877886D0AA1DC80986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Frostpunk – игра от создателей This War of Mine. Это игр
 ```bash
 magnet:?xt=urn:btih:6F2073A82B5A6D33E3F83FE5961A44677B1D5414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.17.37984884) Scene Razor 1911 
 ```bash
 magnet:?xt=urn:btih:2FB4C9112FFA4EF07E478E3F8505E395C2120358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:24FF2B3390D02F8E5A4304DC666339B8BC3C30AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

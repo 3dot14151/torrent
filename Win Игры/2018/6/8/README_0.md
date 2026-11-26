@@ -19,8 +19,7 @@ Detective Gallo – юмористическая нуар point&click адвен
 ```bash
 magnet:?xt=urn:btih:601CD6D7E803B876D980ABFB2306EBE9D6266BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) License CODEX
 ```bash
 magnet:?xt=urn:btih:5F920B08CF39552D91DCC561E6F7323C6EFD6FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:35C164327F18DA6D5EAEED712EE926CF6A04618D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ABZU - это красочное приключение в подводном м
 ```bash
 magnet:?xt=urn:btih:F0139FE028282E35ABD2BD7CDDC4F9987D04C25C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Finding Paradise — игра, рассказывающая историю о д
 ```bash
 magnet:?xt=urn:btih:9A90AE6B87292FB08FEF0904F99CE745B866098B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

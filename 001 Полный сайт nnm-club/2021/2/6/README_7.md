@@ -18,8 +18,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (Build 44725) License CO
 ```bash
 magnet:?xt=urn:btih:A4A7494DD62B8799F830D0C50FCFD45CCD0C5A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F350C36166FB51C19CC0DA80D03121F3CFB88E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47B7272778672CCA4F39CD4E7CE9A75F8F4F1313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ HTML Academy | HTML и CSS. Адаптивная вёрстка и автома�
 ```bash
 magnet:?xt=urn:btih:840194A5F7592F9781899478C71855AA92EF2F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC6C407792F3ACFB21DF5A2832F70470399B3571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ XVII век. Времена чумы и безжалостной охоты на
 ```bash
 magnet:?xt=urn:btih:98981788427EB85D66575EE665A931333DBBD10F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Nioh 2 – продолжение слэшера Nioh, в котором пре�
 ```bash
 magnet:?xt=urn:btih:7A595F0AA790226F72A151B768B3EE8061A7CA6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Dato поддерживает все языковые стандарты и яз
 ```bash
 magnet:?xt=urn:btih:25C062E6D268CA35019960F7B2C910BDAB9AB587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Plist Converter - самый быстрый и простой способ ко�
 ```bash
 magnet:?xt=urn:btih:50EB24E2651B612DC7FCE0AA31EE2A27AC705315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Duplicate Manager Pro обнаруживает, управляет и удаля
 ```bash
 magnet:?xt=urn:btih:87DA8BA970B597B7E575135B7DB0427EE4F7C6A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Cathode Ray Tube - Anabasis (2021) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM>
 ```bash
 magnet:?xt=urn:btih:0D8BF76ACDBEA1B4701542E4BCDBE689C6F40F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A05A9D9BDFC5202B5DC269B98EDFB1721A7CC042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ VA - Fokuz Recap 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:3E684737537B8DBE11B434B7B141762C7DFAF40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ Newt - Phaseshifting (1998) Quantum Loop [FLAC|Lossless|tracks+.cue] <IDM, Drum 
 ```bash
 magnet:?xt=urn:btih:27578CAC3E34450565944598CD85CC077ED631C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F8399A0DD9E1CFD68444BCEAA33A032C8B77ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Newt - 37 °C (1999) Flatline Records [FLAC|Lossless|tracks+.cue] <IDM, Drum n B
 ```bash
 magnet:?xt=urn:btih:316A961315319A67500AF7AC95CD46687B8C958D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ VA - Fokuz Recordings - 2017 Recap (2017) [FLAC|Lossless|WEB-DL|tracks] <Jungle>
 ```bash
 magnet:?xt=urn:btih:3067CA2C10D5A1552949D468D850B8AD252851B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ ON1 HDR создает безупречные, естественные фото
 ```bash
 magnet:?xt=urn:btih:B4036AD30874C0671041138B42DA549248008E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:558F1994CD307CABDB4E59B5E81DC7049DF69E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83EFC333D91CF1F9DD02036A2E9B8185761D9245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +543,7 @@ Quelle Chris & Chris Keys - Innocent Country 2 (2020) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:5C29661090E299154B594AF04DDC14EEC5D528DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Snowblind - Breaking Out (2021) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C359CB378711B73E0D425ED628778CDE98A0CA1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ VA - Markus Schulz & Dan Thompson - Global DJ Broadcast (2021) [MP3|320 Kbps] <T
 ```bash
 magnet:?xt=urn:btih:759D698D61C24166552F5FDE024D12CEA349C643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00D593DEE6FF7B76CE54590E1AACEF478F8B765B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:4E2111CF03A4135B3E8E1604C17ECA5BAAA0A613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ ON1 Effects 2021.1 v15.1.0.10035 CR2 [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:9ECA375E5D99C2DE670AD781FA75E93D8B3ACE75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

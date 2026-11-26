@@ -19,8 +19,7 @@ The Old House (2020) [Ru/En] (1.0) Steam-Rip CHRONOS
 ```bash
 magnet:?xt=urn:btih:A588B132CFB6F4B5BE71D4269221D0B4F8A85251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

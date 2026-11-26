@@ -20,8 +20,7 @@ NokoPrint v5.24.2 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1AB842F7337ADD691142B386BD63B8E164504608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DB25B8403F584DC3B539E80B20170C6F489DBFDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

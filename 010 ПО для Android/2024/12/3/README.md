@@ -19,8 +19,7 @@ HiPER Calc Pro v10.5.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:739E400565908B3E2653B227E62199B50AFCBB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Electrical Calculations Pro / Электрические расчеты v10.2.1 
 ```bash
 magnet:?xt=urn:btih:8C5013BFB88D22A62871489DADCF9E5FC208CB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

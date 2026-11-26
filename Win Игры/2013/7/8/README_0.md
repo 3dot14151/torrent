@@ -20,8 +20,7 @@ Mars: War Logs (2013) [Ru/Multi] (1.722) Steam-Rip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:CC0F4F43B976E3DC32B1CE571A0063723D85AEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Rogue Legacy - Это игра, в которой каждый сможет ст
 ```bash
 magnet:?xt=urn:btih:2C385BD7AB2AD207CFB8DBC9107ADF80D265CA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

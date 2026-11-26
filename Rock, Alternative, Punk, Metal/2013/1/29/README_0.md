@@ -28,8 +28,7 @@ Ancient Ceremony - 2CD (1997 - 2002) [WavPack|Lossless]<Symphonic Black/Gothic M
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Enthrallment - People from the Lands of Vit (2012) [MP3|320 кб/с]<Brutal Deat
 ```bash
 magnet:?xt=urn:btih:6BF52435AC68FC4C69680DCF5712E0F8C7DCBE21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Dreamshade - The Gift Of Life (2013) [MP3|320 кб/с]<Melodic Death Metal/Metal
 ```bash
 magnet:?xt=urn:btih:5588318F4DCAADA9AB3EF25561586E671EA47368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ SYN:DROM - Iconoclasm (2013) [MP3|320 кб/с]<Technical Death>
 ```bash
 magnet:?xt=urn:btih:F3407FFEFF547D1F083A879DBC0E0F92402283F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ ANFEL - 5 альбомов (2009 - 2013) Discography [MP3|320 кб/с]<Gothic Do
 ```bash
 magnet:?xt=urn:btih:A5CE31AE11C8938E3676786CA044BAAAF4AEE457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Dreamshade - 3 Альбома (2008-2013) Дискография [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Otep - 7 Альбомов (2002-2013) Дискография [FLAC|Lossless]<Alt
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Disney Afternoon Collection (2017) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:2E5A8EFC2A4E9A7F733AD6BB47B035DDED523321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Saints Row IV (2013) [Ru/Multi] (1.0.6.1/dlc) License GOG [Game of the Century E
 ```bash
 magnet:?xt=urn:btih:AF1DAAC4E1B3786322FC3365B7E1C867DE8C83E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Flame in the Flood (2016) [Ru/Multi] (24.04.2017) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:DAA7175D4B02E137F1A9F37291E99E6D82EBFE49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Counter Strike 1.6 от Сахара (1999-2015) [Ru/En] (1.1.2.6/pv48/b4554) Re
 ```bash
 magnet:?xt=urn:btih:3CD632B7AC09F3B7F9760684887DB54FF8392AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

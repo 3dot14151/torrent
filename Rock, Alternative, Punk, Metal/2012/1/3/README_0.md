@@ -28,8 +28,7 @@ Misstrip - Sibylline (2006) [APE|Lossless]<Alternative Rock, Trip Hop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Metallica - 30th Anniversary Show's in The Fillmore - 2й, 3й, 4й юбилей
 ```bash
 magnet:?xt=urn:btih:F1048A6581067BD41968439BC10C705BA1F7F571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Toto - The Seventh One (1988) [FLAC|Lossless]<Pop Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

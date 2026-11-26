@@ -28,8 +28,7 @@ Ildverden - Де Хмари Плачуть... (2014) [MP3|320 кб/с]<Black Met
 ```bash
 magnet:?xt=urn:btih:013BAEB12578F8FDF3C1F3C0B3606B835419D9D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:FFD68F13659F5E2D7DE1ADB71E86D6EF06D153FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Chicken Shack - Imagination Lady (1972) [MP3|320 кб/с]<Hard Blues Rock>
 ```bash
 magnet:?xt=urn:btih:D8EB521128CA1DC3D95B1FCB02F6B16D31AC13D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ The Black Circles - Hold On (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9C928569CC0F3AC3AFAFC32549A53BEA50C23594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Dreamferno - Equilibrium (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:0C6D68A31A884F2A6E0790267395528C1CC206F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:18F7B27C09C3AE91F550FD17F4B65B811E0CFA57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Tucky Buzzard - Warm Slash (1971) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5F870F1F2FE1CDD89629D9704DD3D6B4FFE59F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ The Runaways - The Runaways (1976) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:097D1E146DB88318B68D45FD2274FAC27F30EBF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Celtica Pipes Rock - Legends and Visions (2014) [MP3|320 кб/с]<Celtic Rock>
 ```bash
 magnet:?xt=urn:btih:326E7CF9C82BEF0910071ECF7F3BB42E483179F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Roy Orbison - Mystery Girl (2014) 25th Anniversary Deluxe Edition [APE|Lossless]
 ```bash
 magnet:?xt=urn:btih:824193C629E5957B1105429898D891EC018B40A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +362,7 @@ Tanzwut - Eselsmesse (2014) [MP3|320 кб/с]<Medieval Folk>
 ```bash
 magnet:?xt=urn:btih:B5E19C0C0FBC5F6638DB90D3234243CD625BA46A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +396,7 @@ Cinderella - Best Ballads (1996) [WavPack|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A001D28EC96047C8115D7718F96765A950DE77B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +430,7 @@ Uriah Heep - Outsider (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C7BC292538564D09F3176F664A54BB139CEBF8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +464,7 @@ Creedence Clearwater Revival - Greatest Hits (2014) [FLAC|Lossless]<Classic Rock
 ```bash
 magnet:?xt=urn:btih:9FD1D361FAD91C7FAA17D316E30BB37C0FA9FC80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC53905476B3CE84D973293A02DDAE92DAE6534F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +531,7 @@ Jack White - Lazaretto (2014) [FLAC|Lossless]<Blues Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:6FB0B3FF25557754B0FBCC036B323401DA36260F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

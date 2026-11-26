@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B55AAE17D9247202A6A6A45A7853C5654010068C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resize Me! v2.01.2 [Ru/Multi] - изменение размера изображ
 ```bash
 magnet:?xt=urn:btih:9B2124C4744DFB67265B49CA4E7CFBB450FEF210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

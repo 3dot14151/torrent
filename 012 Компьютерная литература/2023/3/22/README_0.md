@@ -19,8 +19,7 @@ CPython, самая популярная реализация Python, абстр
 ```bash
 magnet:?xt=urn:btih:F871CF6C147E0B7522379DFB4BC51E2EF2FE21F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Dissenter - Contamination (2003) [FLAC|image +.cue]<Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:7C460DCFBC52CD96A2E244C24DB3F269DE078AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elnordia - Insight (2007) [FLAC|image +.cue]<Symphonic Doom Metal / Death Metal>
 ```bash
 magnet:?xt=urn:btih:6EBC9DD16C50D272061EAF8BCD837142AB7FD9A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Epidemic - The Truth Of What Will Be (1989) [APE|image +.cue]<Death Metal / Thra
 ```bash
 magnet:?xt=urn:btih:0E0B5B0F0B423064DBC32B3785A01B7B1471A39E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Atrophia Red Sun - Twisted Logic (2003) [FLAC|image +.cue]<Technical Melodic Dea
 ```bash
 magnet:?xt=urn:btih:4F122CB83DE3BEBD17ECCF0FD215051A93AF1720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

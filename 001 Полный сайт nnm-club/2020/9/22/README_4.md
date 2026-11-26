@@ -21,8 +21,7 @@ VA - Волшебные голоса природы: Малыш на лугу (2
 ```bash
 magnet:?xt=urn:btih:D1836B9CA10530D7284F26660AFB0F09A5AEBEAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:4A9F0A19916FEA24EEA45AF7E4529C048997E07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Волшебные голоса природы: Малыш и птички 
 ```bash
 magnet:?xt=urn:btih:1C6688C33079B8B6DC73DDEB0C420A7D171878A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D6ED8621C80A193438A497A2D148CD9EA00622E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B7D1338C1B51B8DB28BA3A795C9BAB9968B04B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Uchuu Senkan Yamato Fukkatsu-hen | Space Battleship Yamato: Resurrection | Ко�
 ```bash
 magnet:?xt=urn:btih:14494E7C45A550F053BE44A7A510FAD3445B29A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Alan Wake's American Nightmare (2012) [Ru] (1.0.3.17.1781) Repack Other s
 ```bash
 magnet:?xt=urn:btih:32747F031A27A951FF298E3CC6CFB9FA0B86913F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ MInstAll v.21.09.2020 By Andreyonohov & Leha342 (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:81FED2287A3479C7843E6A82BEF4689A9B45102A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9772E0232D12CF0F6BB58C1C92895E1DD952B5B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Windows 7 SP1 with Update [7601.24560] AIO 44in2 (x86-x64) by adguard (v20.09.10
 ```bash
 magnet:?xt=urn:btih:B79AC60A2E5F304F69C3B63296E6E957AAB6D834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Davinci Resolve — самый современный набор инструм�
 ```bash
 magnet:?xt=urn:btih:91A4F1497C83A85EEB77EB542E259059CB22E758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Saint Seiya Omega | Рыцари Зодиака (ТВ-2) [2012, TV, 97 эп.] We
 ```bash
 magnet:?xt=urn:btih:94F7733CAB3271FF3C28E778AD9D1D59007DC759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Gumroad, Pierrick Picaut | Искусство эффективного ригг�
 ```bash
 magnet:?xt=urn:btih:0B364F2CCB6CF02CDAAA808C3DA643552B92A6CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ MX Player — видео-плеер для Android-смартфонов и пл�
 ```bash
 magnet:?xt=urn:btih:DF7373C017F86113EB8BB0FECAAE85ABFCDE8FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Fantasy General II - Invasion General Edition (2019) [Multi] (01.02.11096/dlc) L
 ```bash
 magnet:?xt=urn:btih:9DBD37AA323C65BC9229DD41B74DA1432AE366DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.23850) Repack xatab [Remastered Co
 ```bash
 magnet:?xt=urn:btih:86C4E19E3FECEAF2A2CAD968FA2FF230DEE0924D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

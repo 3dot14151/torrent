@@ -21,8 +21,7 @@ Royal Nature - Arcane (2016) [MP3|320 Kbps] <Alternative Rock, Electronic Indie 
 ```bash
 magnet:?xt=urn:btih:2FEEE4534144B7DCF520D24847868BAE8AF49314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5892C635B3D78AACF4276C028FAC65EBC5CBC7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ren - первый китайский электрический суперка�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Night Ranger  - Don't Let Up (2017) Japanese Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:0733449DDF634019BE7E4EBE47FA4D05EB5F0CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Pan de Peace! / Хлеб мира! [2016, TV, 13] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:D41263A9AFEB8B8470160362BAE0A3A293559CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC7FB8908A07FD3A6109E04C722F21E89AD2A948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ VA - Empire Records - Club Hit 12 (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:CD3934B45699DD90CC909589E2D763F876941212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - Только хиты. Русский сборник от Хит fm вып�
 ```bash
 magnet:?xt=urn:btih:B48B886CA5842583151311B4A1877982CA3FB7FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Moon River: 20 All-Time Favourite Love Songs (1998) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:D1B735EFF307DB54AE1A0DB04F418454B1D87D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Level 42 - Level Best (1989) [FLAC|Lossless|image + .cue] <Synthpop, Funk>
 ```bash
 magnet:?xt=urn:btih:5BCE6ACBC337810325CA060F12DD4822B1E9D0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Focused (был Typed) - это новое и необыкновенное пр�
 ```bash
 magnet:?xt=urn:btih:9E04446B2BB9329B25C311B2ADBBF70E35E0CD4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Kono Bijutsubu ni wa Mondai ga Aru! / This Art Club Has a Problem! / У этог
 ```bash
 magnet:?xt=urn:btih:7B16C9157865AA72A88B211F2AF441360FAF5087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B7EAE077CF74707A7C34F3E82535A4EDD88EF04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Stand Up (2017.03.26) HDTV [H.264/1080i-LQ] (сезон 6, выпуск 6)
 ```bash
 magnet:?xt=urn:btih:D4E68878B02CB4888E43C04F2BC085AD220069D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:151D7E5DC33F1C5F649CA2BB4C85FFF4FE7D5339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ VA - Bass Killer 11 (2017) [MP3|320 Kbps] <Dubstep, Trap, Drum and Bass, Electro
 ```bash
 magnet:?xt=urn:btih:0607DA8054D1B9809204046BB965DCF259E7A461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ GjeldRune - Правду За Порог (2017) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:477E8F46109FF29C2664AD666395C94FDCBFB038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ The Orwells - Terrible Human Beings (2017) Japanese Edition [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:205AE72C6ED5E5515E626A8B40498977B68AD9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:C1BA50CB1B076E9CAEE1555D7E92F7443E8697E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ VA - Hits Super - Hot Good Pop (2017) [MP3|320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:D02278A915460109394E326DEE8F509BB8069D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Screenshot Captor - мощная бесплатная программа для 
 ```bash
 magnet:?xt=urn:btih:121134833CC4AB62A196920C71C49A52FAA0BB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ Caro Emerald - Emerald Island (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Neo-swing
 ```bash
 magnet:?xt=urn:btih:03A90B60AF0A72CC23D536D5EB88E20C886D239E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0480E437A2ECCD0FA38B93D24E2E1EF7D98CFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F20719F1FCA73007C2A0B8718DFA20A2799A5153
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ WiFi Explorer позволяет быстро идентифицировать �
 ```bash
 magnet:?xt=urn:btih:C0221C7A44FAFF0BA1F1E4FD51C7475BE1C7B924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ Nerima Daikon Brothers / Братья Нэрима Дайкон [2006, TV, 12 ep
 ```bash
 magnet:?xt=urn:btih:D9E860AA9CC091E969B780324B7389B144943B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

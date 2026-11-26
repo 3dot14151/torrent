@@ -19,8 +19,7 @@ Merchant Prince II - пошаговая стратегия, предоставл
 ```bash
 magnet:?xt=urn:btih:9D90671D43FD81A7FAEE8952127A222B44B79F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

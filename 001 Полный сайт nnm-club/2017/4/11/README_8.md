@@ -20,8 +20,7 @@ Paul Bley - Live In Haarlem (1966) 1999, DA Music [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:302E913289D6E97CC9FB4E88E30DE3AF1FB12D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Valery Ponomarev - The Messenger (2001) Reservoir [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:CCCBAE7BD5472BA685E7EAFC7B307BA2903A5316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Johnnie Pate Trio - Complete Recordings 1955-1956 (2013) Fresh Sound Records [FL
 ```bash
 magnet:?xt=urn:btih:024DE7037FCEA870505600BF0DEE0176F8BF85C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7005F08F497D97D5F63479A0533C8591A231DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Lou Donaldson - The Righteous Reed! The Best Of Poppa Lou (1967 - 1973) 1994, EM
 ```bash
 magnet:?xt=urn:btih:3AF826B68E985E0C0113B31CD4B026E81EB48993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Taliandorogd - Neverplace (2002) [APE|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:9ABAF866A9883AC6687B0E00CAECFFC2D3480190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE64BB05BA28521F0BDFF372D2CF4E9EB2B80FBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ VA - Lounge Sensations Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:BB403258BC4DD24C84D0894CD9BD5F79B82A49D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ VA - Lounge Expression. Chillout Selection (2017) [MP3|320 Kbps] <Downtempo, Chi
 ```bash
 magnet:?xt=urn:btih:0B8CA35134DBA3BE64130ABA154D534CA9B0C760
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ VA - Just Slow Music: 10 Exclusive Selected Electronic Tracks (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:C93853DA05C9D34DAA1ECF352343FB31C918AF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0195BE7946E5F7D39915F60C3755BD98487AE82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Takeri - Imagination Vol. 7 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F868F966AACB8A94E5C1F7EA222C3023FC42DA4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ QuickPhotos for Google - это приложение для Mac, в которо
 ```bash
 magnet:?xt=urn:btih:773CFAE75E6B795901A98374FD54EE5BD5D86A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ VA - Lone Scapes: Chillout and Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:B61D183DEB1544385F43487E9F2DE753EE856EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ VA - When The Sun Goes Down Vol.6 (Deep House Essentials) (2017) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:A8CDC344706388AA0A39936F0E55AC2BB9952939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ Chet Baker Quartet - Jazz At Ann Arbor (1954) 2002, Toshiba [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:6DFE0DC210FD69115CC58DFEEA293BE799CED41B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ Eric Alexander Trio - Just One Of Those Things (2016) Venus Records [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:0AD52188211685F2D3CF63F8859F352E0A1CBACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ VA - Summer Dream Chill Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:729CD9CD6F2B699CA229868180D60901035A4282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80D19D783C7B2FD1F52C439B48E2970A472FEBBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ VA - Ibiza Night Tales: The Best of Mediterranean Chillout Music (2017) [MP3|320
 ```bash
 magnet:?xt=urn:btih:D420B8CC9ED108A5C230D72F3CCE092859A81DEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ VA - Essential Guide: Progressive Trance Vol.12 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F97D357D49786C92919E394E29F6EF58A9E83A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ VA - Color Emotion Vocal In House (2017) [MP3|212-320 Kbps] <Vocal House, Electr
 ```bash
 magnet:?xt=urn:btih:2B4BC663D8CDC92451E5B2223D4828BC6886B80E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ NetWorker отображает сетевую информацию в строк
 ```bash
 magnet:?xt=urn:btih:2C1ECB8F98CC66A2D04CBFB0827D93B90424F61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ Craven Idol - The Shackles Of Mammon (2017) [MP3|320 Kbps] <Blackened Thrash Met
 ```bash
 magnet:?xt=urn:btih:D5D121ED1D124E22793B515E6321D4CD3AE14624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +686,7 @@ Camera Soul - 3 Album (2013 - 2017) [FLAC|Lossless|image + .cue] <Jazz-Pop, Funk
 ```bash
 magnet:?xt=urn:btih:D12E8CCC68453A62ED78B02DEED82EAE1B50CCD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +712,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 7 - Texas. Гонка (2017) WEB
 ```bash
 magnet:?xt=urn:btih:2327B4DA0E45E7B7C9D02B2D47E628C02A0708B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

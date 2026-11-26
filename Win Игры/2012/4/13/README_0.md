@@ -19,8 +19,7 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:106D68B60E1B5F30B918BB3AE4AC6A9136F011D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Avernum: Escape from the Pit - первая часть новой трилоги
 ```bash
 magnet:?xt=urn:btih:93A08585E9282BB8AE4D03ACB6C263D542952C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Officers / Офицеры Специальное издание [Ru] (RePack/1.1
 ```bash
 magnet:?xt=urn:btih:C035919888B51CB986E38FDFE17A025B9B99DEB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cooking Academy 3: Recipe for Success (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:DBF509B8C5DB5ACE9178F15596803FB517732F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Big Kahuna Reef 3 (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:BDE42ACA39F001794C6516ABF94E5DBBA44E277A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bedtime Stories: The Lost Dreams / Сказки на ночь. Утраченн�
 ```bash
 magnet:?xt=urn:btih:AE221FF429C6B9E771D0611815E169F235626F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Book of Desires / Книга желаний (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:903EF5A0FD8F443A88E727AD264FC8AC75F8DDFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Secrets of the Titanic - 1912 - 2012 (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:AAA0A7983A649548C2BCE59FB2C53DF3CAB80406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

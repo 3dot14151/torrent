@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B66B0AB6BD6D58A99815D8BB6BE43FB9A98CFF17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Udemy | Познавая вёрстку HTML, CSS и кое что ещё (2018)
 ```bash
 magnet:?xt=urn:btih:60EA859983149E2C7AB1713423D5FCA12A7B5974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Rammstein Presents (Special 2002)(   Читать дальше...   )Жанр: I
 ```bash
 magnet:?xt=urn:btih:3BAE0C34B852754FB63A5B5FC3B9EA7B34C224EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Discovery. Тонущие города / Sinking Cities (2018) HDTVRip [H.264/72
 ```bash
 magnet:?xt=urn:btih:561351C446D03744A53D6434A816102839E16575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Google реализовала поддержку DNS-over-TLS в своем DNS-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Windows 10 x64 USB Project Release by StartSoft 04-2019 Lite [En]
 ```bash
 magnet:?xt=urn:btih:3BF3D89019A2B830C3AFD586BB8D49609808D9FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9611DBA4A51A762EBF3DBE0C71C62C9D092E7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79ABCDBE17D816652F4D071B061EEEA934DE2A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Udemy | Основы работы с Git и GitHub (2018) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:950D7CC465CD5485A77D2D8EFF589532D74BC010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B54DF7F4FDA52B70377AF43B282B260C16433324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ HTML Academy | Профессиональный JavaScript, уровень 2 (20
 ```bash
 magnet:?xt=urn:btih:A72B1614100922EF8D9D7AFBD36E56A88F3C7509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

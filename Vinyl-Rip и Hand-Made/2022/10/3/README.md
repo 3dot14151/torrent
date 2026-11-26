@@ -22,8 +22,7 @@ A4	Louise(   Читать дальше...   )Жанр: Pop Rock, Classic RockП�
 ```bash
 magnet:?xt=urn:btih:EDE1ED0C9C05634CFAF60E03361524E05D29FEE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

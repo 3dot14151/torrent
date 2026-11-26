@@ -22,8 +22,7 @@ Siena Root - A Dream of Lasting Peace (2017) KSL Edition [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:8CAF7321F743B4F61F749469FCE973F300F3200E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kiss - Kissworld: The Best of Kiss (2017) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4C4853FA6973DFCB0335050AAA139DB3F1833A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Miss May I - 6 альбомов (2009-2017) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:AF70ED3BB4EE46968F2F38A785538E2BA6AD1257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Roger Waters - Is This The Life We Really Want? (2017) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:70176AD3ED748D7021F3FF555030BBB1E8BD314A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

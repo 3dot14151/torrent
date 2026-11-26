@@ -19,8 +19,7 @@ Fender Tune - это приложение для точного тюнера с 
 ```bash
 magnet:?xt=urn:btih:4416390A5846D5CC74C2B1263EB4D4E4A97CF49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MobiDic Chords – это иллюстрированный словарь акк
 ```bash
 magnet:?xt=urn:btih:75E579C531EEBAF96B3506E4C13D238027F55A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4A73A8710E1CA5C757D563FB935F908D044A0EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

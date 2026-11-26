@@ -20,8 +20,7 @@ Pathologic Classic HD — это окончательное издание ор�
 ```bash
 magnet:?xt=urn:btih:AFBC970C7DEAAC09E0C919B03D012589CCE39D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Kathy Rain (2016) [En/Multi] (1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7966902CE037DF5D8B5C873A2DE4164548601059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

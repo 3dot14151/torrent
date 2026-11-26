@@ -19,8 +19,7 @@ Rite of Passage 7: Sword and the Fury / Обряд посвящения 7: Ме�
 ```bash
 magnet:?xt=urn:btih:44DF0E8B52D9C6988F226F935F35387B93DF1802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yomawari: Midnight Shadows (2017) [En/Jp] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:0014347F4D68FF23980B631594421A6CF85CE6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alan Wake's American Nightmare (2012) [Ru/En] (1.03.17.1893) Repack xatab
 ```bash
 magnet:?xt=urn:btih:CB890AA14BF63057400678EDBA45AB991F0F2133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Numantia (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:4726088108F34FDA556F51C2D190AF4CFDB702AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

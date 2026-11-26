@@ -19,8 +19,7 @@ Pinstripe — это заряженное эмоциями приключени�
 ```bash
 magnet:?xt=urn:btih:67FB60E461722B0344176FE98F729D5DD35C82F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Titan Quest - Anniversary Edition, мифический набор, из кот�
 ```bash
 magnet:?xt=urn:btih:BD68D96A1AA950A5CF23AF132A631AE3D756DB52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vive le Roi / Vive le Roi 2 (2017-2018) [Ru/Multi] (1.0.10/1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9C5915B0881EEC7BF3453BF8AD660874877F9BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cold Waters (2017) [En] (1.15c) License PLAZA
 ```bash
 magnet:?xt=urn:btih:DAA1E9DA53BADFAA3B37D5EB5A94E1FDFEA8CE1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

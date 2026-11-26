@@ -19,8 +19,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:06FEFE959C99D51BDC4708C6BF00265E18D6C84B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Numpad Launcher Pro назначает действия на клавиши ци
 ```bash
 magnet:?xt=urn:btih:1BEDF2B44DBE7E409BA8F05B9D43E29BC1F798BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:30E09FFF985E28B56E48846393B21F544A671E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Slimjet — это переработанный проект Chromium с отк�
 ```bash
 magnet:?xt=urn:btih:E723D2CE1844B053EB0C0F6FA6FAB8FB5CC40EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Crafting Apps - WordCraft 0.5.0 + Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:562699BF46865EA0CD66047844D520B3F723C1DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Crafting Apps - GridCraft 0.5.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:23B5A8C7D86C3F9A84E1ED6D890F48389A513CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Samsung SSD Magician - многофункциональная программа
 ```bash
 magnet:?xt=urn:btih:451B99271EC253AD4E8E4A91B35CE246F0CB35A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Crafting Apps - DeckCraft 0.5.0 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:2EB450478E7E8DCA8E2496C135B52557B6EFED1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Wise Auto Shutdown позволяет Вам отключать компьюте
 ```bash
 magnet:?xt=urn:btih:51DC50C9384D260B57A84587BA88786F7DFA25F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Wise Program Uninstaller 3.2.9.275 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6D3D27DE00F34DD804077A965246DFE93ED4D547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:A29DD1889299235519339F1206A8914CE8899D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ ONLYOFFICE — это офисный пакет для работы с текс�
 ```bash
 magnet:?xt=urn:btih:C089E7ABAA08EB3FA948C2EAD0D4663C7B57CDCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:9929477C2ACB25778D4A19A46E8DD788A32AAFFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ AnyDesk 9.8.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:127601FCE03B3F168302AF794553F028A5A1A6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ ParkControl разработан компанией Bitsum и предназна
 ```bash
 magnet:?xt=urn:btih:2F016675F2C901E255FF935AAA66412CC04963D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:52287491935B3E152892E0DF1B5B35C22F4942EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:56470EA1FA83846F54337BA4A733C26AE7EEA939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ MediaHuman YouTube Downloader 3.9.24 (1210) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DD0C89B3500F994525A096C1C9560D667B7F9DA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +474,7 @@ Vivaldi — это современный веб-браузер, созданн�
 ```bash
 magnet:?xt=urn:btih:557F1C089E1C2B76562AA8F55729641DCB0D2764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +499,7 @@ Chromium-Gost 152.0.7977.149 сборка autosettings.win [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4D883CD9F19EDDA1473293C9DF3A20038947D798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +524,7 @@ PDFgear — это бесплатный многофункциональный �
 ```bash
 magnet:?xt=urn:btih:8B909470AC54FF6AFE92BF517863B0FA534371EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:B1501C6677CA95DFCF708A7A3044FC7D19E581B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

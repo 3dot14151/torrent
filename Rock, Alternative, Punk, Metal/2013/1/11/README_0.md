@@ -23,8 +23,7 @@ Cockpit - Mission To Rock [EP] (2008) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:0F82FF72CA92738B7A3A6FFD990BA3AD9605BD4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Afgrund - The Age Of Dumb (2012) [MP3|320 кб/с]<Crust Grindcore / Deathgrind>
 ```bash
 magnet:?xt=urn:btih:E38AA56CD3ABD1171FDF224AD25CA309BA8521F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EDA5415E83AAB9A18883C37337F336115F38BA5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Cara Neir & Flesh Born - Split (2014) [MP3|320 кб/с]<Screamo, Neocrust, Emovi
 ```bash
 magnet:?xt=urn:btih:3BF872107B6EE167711721DF4B8B7F8536B5EC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ M U H D - Dilogia (2014) [FLAC|Lossless|WEB-DL]<Ambient, Drone, Showgaze>
 ```bash
 magnet:?xt=urn:btih:C512E885E67D0AB07D7A7193A99F9242E014A4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Burning Black - Remission Of Sin (2014) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:62CC7D39E4BE842C62D58420C0083A1B23386802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ DJ Nike Twist - TranceWave 101 @ GTI Radio (06.11.2014) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:53743ECF8FCAE0AF1C7D97BCCEE58810674B3F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ VA - Lord Of The Mics VI (2014) [MP3|320 кб/с]<Hip-Hop, Dirty Dubstep, Trap, 
 ```bash
 magnet:?xt=urn:btih:4CFAB4EA423868C7F62A9D07B054687C165DF645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ VA - Poolside Chill Jazz (2014) [MP3|320 кб/с]<Downtempo, Chill Out, Jazzy>
 ```bash
 magnet:?xt=urn:btih:F30ED7ECD23C37738121F7B94D07523E4BEEA50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ Randy Katana - Katana Classics Edition 2 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5A5609250A392CB5211FF1D9D254730698CE1DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ VA - Ibiza Trance Essentials Vol. 6 (Mixed by Pedro Del Mar) (2014) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:B3FDDB0B15FB7A1DF95C14185828097716FBB074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ VA - Vocal Trance Volume 78 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:AB39C0A0EBF765672FAB25FE1463D4AAB7490C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88A639EEB0C9F147EF0F5BF935138294AC8875E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A44AD4BBA50C2A804DAFCD143E46C50D447934C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ Jon Hopkins - Asleep Versions (2014) [FLAC|Lossless|WEB-DL]<Ambient, Modern Clas
 ```bash
 magnet:?xt=urn:btih:978829D935FD6C76670A351289E3D02B9298FE28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61E80F90250C92F40105E27E7809529744BE9C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE75671615633A505C435C445B9CCB779AB5B11B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ Francesco Cafiso Quartet - Seven Steps To Heaven (2006) [FLAC|Lossless]<Jazz, Po
 ```bash
 magnet:?xt=urn:btih:577016C4BE1FE02B1DEF9D949B90B94BBA6C1D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4C92A1BE892072D73F41166632D5219128B530F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ Structural Fault - Intro/Version (2011) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Ind
 ```bash
 magnet:?xt=urn:btih:9B3DA1CABF358E4430C9126FD31C64FA046C71F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ VA - Trance Tattoe #50 (2014) [MP3|320 кб/с]<Vocal Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:F36920DE6BBD1387263E29298E8CD9A49628B02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:284E815602115686FF6B899E7A1DA9D47E00DB94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B5688098C7C2547B2C0BFE41E74245C804B9A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +662,7 @@ Media Маг – это площадка, где публикуются самы
 ```bash
 magnet:?xt=urn:btih:AA4E7EB8813EE2499343F0E553AB7450E2E4A386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ VA - Drum and Bass Pro V.31 (2014) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:6EC2F364FD47B46EBC9EE7BDB620EBF61CD3C174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ VA - Music For Everyone - Chillstep & Dubstep Vol.2 (2014) [MP3|320 кб/с]<Chi
 ```bash
 magnet:?xt=urn:btih:BDF86C8EBCB90528D501B9316B5C52518D85DED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

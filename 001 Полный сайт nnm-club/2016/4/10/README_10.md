@@ -18,8 +18,7 @@ PixelPhone PRO 3.9.9.3 [Ru/Multi] - Управление звонками и к�
 ```bash
 magnet:?xt=urn:btih:72DB4A4804C2A9743ACB4CE7ED45023B2FBECADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

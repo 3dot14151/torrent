@@ -19,8 +19,7 @@ Gravilon (2015) [En] (1.8) Repack WetGrapesStudio
 ```bash
 magnet:?xt=urn:btih:32043B211C9B2710D50E4E94FADDB41DF99A2573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assault Suit Leynos (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:16657242BE6475DF6C3A0C04D8CC48DED465D38D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bear With Me – это эпизодическая приключенческа�
 ```bash
 magnet:?xt=urn:btih:F8FB3CFEEE406704FB98C3F1301A04655BBF98C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Assault Suit Leynos (2016) [En/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DB1279159CED232C9E294DBA55B3CCD7D0811C3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ SCP-087 — это игра ужасов, в которой вы не знает
 ```bash
 magnet:?xt=urn:btih:0D8BFB934F56AF658E09B5C6E516C74585728C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

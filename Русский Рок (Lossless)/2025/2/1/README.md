@@ -22,8 +22,7 @@ Protester - Непокорённым (2025) [FLAC|Lossless|WEB-DL|tracks] <punk,
 ```bash
 magnet:?xt=urn:btih:E4977E3B08144032F8082CB491442F23E75DE7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Parallels - Эдем (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 ```bash
 magnet:?xt=urn:btih:001069565FA9F464EBD778DB562E5232E54A589E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

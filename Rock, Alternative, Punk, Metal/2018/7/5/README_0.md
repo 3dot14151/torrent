@@ -22,8 +22,7 @@ The Grandmothers - A Mother Of An Anthology (1993) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:0BAFF17D3E6C41B4070F64D8D03DB5474EA19690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kellermensch - Goliath (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, P
 ```bash
 magnet:?xt=urn:btih:63A21F668EC4A5FDDBA751E73FA2C3AA503BCD98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blue Stahli - The Devil (Remixes) (2018) [MP3|320 Kbps] <Industrial Rock>
 ```bash
 magnet:?xt=urn:btih:ECB19C50D197530CEB04728FC556C3E3A18990E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

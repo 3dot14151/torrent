@@ -19,8 +19,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:E7DFA29EA8B7A0B087E23C3B54173B33F484C575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Citadelum (2024) [Ru/Multi] (build 16078282) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:69B753ACA1F46EF974498C8FED0674D8A4FEBFD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8D8C72BCBF2EFEBFC2B7267D576B8459C49887FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Call of Duty: Black Ops II (2) (2012) [Ru/En] (1.0.0.1 Update 3/dlc) Repack Othe
 ```bash
 magnet:?xt=urn:btih:96A8E052C09F7A4BE5C14F675498A593B046020F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
 ```bash
 magnet:?xt=urn:btih:67645B6CD0148EA657AB46DB081534370CCB3697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E6A6D8E89C5E3D1D29F257F7E154CA206511D9D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 ```bash
 magnet:?xt=urn:btih:E6AF46F17806D4B3F03888A25F59E3A79058E96A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:8CEF14C3D22C308A66F017FDB4F70931BE2F0B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0EC0B0D56AFC1ABADF726DD06AB844B21D5A9276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 ```bash
 magnet:?xt=urn:btih:E962C21495D3985C63857E7F52682068BBD617F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2267B949DCE4F826FD8C487190BEFFBF0DE00BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:05EDFDD128819DCC0FD6D484567786A50ED1B9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

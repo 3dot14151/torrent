@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B68F90055E4DB5234441947505EFD5D4F0E240EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ E. coli, или кишечная палочка, — микроорганизм,
 ```bash
 magnet:?xt=urn:btih:5B01A2F7A6FF332F113AF1779E6CEC7FC85739B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

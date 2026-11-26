@@ -26,8 +26,7 @@ B4. Все остальное дым (2:59)Жанр: РокПродолжите�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ B5. Кино - Хочу перемен :: 05:14Жанр: Pop-Rock, Blues Rock, N
 ```bash
 magnet:?xt=urn:btih:93C4B02126E354A4F774989F8E698B7C5F812F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

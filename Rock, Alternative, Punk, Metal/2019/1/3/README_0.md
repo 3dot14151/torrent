@@ -22,8 +22,7 @@ Coldplay - Live in Buenos Aires (2018) Live album [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:B7D1CFEE597581E365A018C5746925106CA00FB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

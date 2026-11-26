@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:1D5A43439D0E534D1DAF5E64CF10ACEB57A1BEB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C08A3E9A480FF456E2BD076C5AE9CECE16CAB943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73782BD245E99E8E2B341F40C1C1645FAEDE3B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ BBC Television Centre, Nine Network AustraliaЖанр: ДрамаРежиссе�
 ```bash
 magnet:?xt=urn:btih:7E29AC60D34EACE4FED79C07D0C7678E27F01B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

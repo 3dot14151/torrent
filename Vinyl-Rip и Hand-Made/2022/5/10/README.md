@@ -22,8 +22,7 @@ Opeth — метал-группа из Швеции. Для ранней муз�
 ```bash
 magnet:?xt=urn:btih:77849C14990A67012EB6383067160B9F49AA1ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mastodon — американская метал-группа из Атлант�
 ```bash
 magnet:?xt=urn:btih:B9FC2D182522D1529345B5F1C021AED4ACFDCCC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sting (настоящее имя — Го́рдон Мэ́ттью То́мас 
 ```bash
 magnet:?xt=urn:btih:52C49FF41CA21DD68F1C1009453571DDA407F144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

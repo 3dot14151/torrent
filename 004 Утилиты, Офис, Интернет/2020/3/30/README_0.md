@@ -20,8 +20,7 @@ IObit Software Updater позволяет выполнить обновлени�
 ```bash
 magnet:?xt=urn:btih:9F15DC1F562EFA2F3F7235862840BA1221C47F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

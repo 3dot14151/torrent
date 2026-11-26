@@ -22,8 +22,7 @@ A4. Good Night(   Читать дальше...   )Жанр: РокПродолж
 ```bash
 magnet:?xt=urn:btih:29184FB8A2EF14AB26579DF28D4EC828E0C3B32F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

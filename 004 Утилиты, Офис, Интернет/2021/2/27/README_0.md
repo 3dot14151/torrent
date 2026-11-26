@@ -19,8 +19,7 @@ Transcend RecoveRx 4.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3B1F83A2380AE812AD830F848186CE79F6AD8ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

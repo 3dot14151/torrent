@@ -19,8 +19,7 @@ Resident Evil (1996) [Ru/En] (1.1.3) Repack/Mod KaSix [ReEnhanced Edition]
 ```bash
 magnet:?xt=urn:btih:1981D9484B09429449F44E6C31D8D7DC70498AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

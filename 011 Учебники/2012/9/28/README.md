@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:204664555A6B4EA3B500CFF943DC1FF1DBF5205B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ ISBN: 978-5-211-02073-1
 ```bash
 magnet:?xt=urn:btih:5EC435B783FEDC219AEC82E7B8F3ECD1AD80468B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

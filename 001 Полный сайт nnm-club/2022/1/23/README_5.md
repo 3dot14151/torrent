@@ -20,8 +20,7 @@ AdminPE 4.4++ (RC) (09.08.2020) [Ru]
 ```bash
 magnet:?xt=urn:btih:374668FB199ADCEDD2216F33C7F01CEA5D40E3B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9D39301B37DBEB772C32B3E42ED1FFD66551974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Garmin: Дороги России Топо 6.38 [Ru]
 ```bash
 magnet:?xt=urn:btih:9DC8B24182589583D645ACC07850235C51FFF33D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ABEEC2DC8BC63031B9FE8587E6E762005E872C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ BackupLoupe — это альтернативный графический ин�
 ```bash
 magnet:?xt=urn:btih:CDFDCC89608F360622DA27C12C55C982FFE90EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Ammonite 1.22.2 U2B [En]
 ```bash
 magnet:?xt=urn:btih:BD4AF9287B7868DF516EBBEC7E6FADD233DE18E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

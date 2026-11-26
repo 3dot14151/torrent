@@ -19,8 +19,7 @@ Woodo - это милая головоломка, где игрокам нужн
 ```bash
 magnet:?xt=urn:btih:E758A1C6A952CBA88ADBBFA7F11E945225A820AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Woodo - это милая головоломка, где игрокам нужн
 ```bash
 magnet:?xt=urn:btih:CC26FDA19BB45541C0701D8CA8508CD97E4BE7F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dead Effect 2 - новая игра во франшизе Dead Effect. Этот 
 ```bash
 magnet:?xt=urn:btih:48180B089B01D900FA38805B45D6B640F35BA65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Forza Motorsport 6: Apex - это гоночная игра от студии Tu
 ```bash
 magnet:?xt=urn:btih:B7439956F27F6B1034AFA419E8F089FE58FCB6D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Nivalis Nights (2026) [Ru/Multi] (Build 25603526) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:71AD2BB1D60CFE147415BD6E27741CB6973C0A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Nivalis Nights (2026) [Ru/Multi] (Build 25603526) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F881B69E8192809CCFDDDA32C32B718D67AAE477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hidden Fair: Halloween Time (2026) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:3335BE5164988DB7621C7320E457777564A88B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

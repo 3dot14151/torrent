@@ -20,8 +20,7 @@ Dayz  - это модификация на одноимённую игру Arma 
 ```bash
 magnet:?xt=urn:btih:5CFE9DE07361C1A66EADE70EDED04C9C1D23ECCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Windows 7 SP1 IE11+ RUS-ENG x86-x64 18in1 Activated v2 (AIO)
 ```bash
 magnet:?xt=urn:btih:6231716C503DDAACAB8AC4905A44D8A35451270A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

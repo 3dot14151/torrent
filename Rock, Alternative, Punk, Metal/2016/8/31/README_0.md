@@ -22,8 +22,7 @@ My Regime - Dogmas (2016) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:17B83EB12A8C11BF59638925CD0020BB344CE71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Bai Bang - Are You Ready (2009) [MP3|320 Kbps] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0A3DD9D4FDF6B3298C2FCE98099ABC8899A3E8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Beyond the Fade - Welcome to the Pain (2016) [MP3|320 Kbps] <Alternative Rock, P
 ```bash
 magnet:?xt=urn:btih:99F989B62480417663F09CA75DB8E70583F644C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Jimi Hendrix Experience - Live At Winterland (1987) [WavPack|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:839741881C68E128E5C86D23E0E1419F723390E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Wonderworld - 2 альбома: Wonderworld, II (2014,2016) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:896D57C5524645FDD82BB666734C48A17E19DE01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Blackfoot - Southern Native (2016) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:1A1E31234940450FAD9C336E529094D1D8961868
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sick Puppies - Fury (2016) Best Buy Edition [FLAC|Lossless|tracks] <Alternative 
 ```bash
 magnet:?xt=urn:btih:C4233240DD13A4A6DA5480687B1A286C25A1FB25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ I See Stars - Treehouse (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronicore>
 ```bash
 magnet:?xt=urn:btih:A287D607866B2E8377720B6D6F7E4D81CD28DA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Billy Joel - The Hits (2010) Compilation, Remastered [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:339D78E80382BA2CA09139321BF7CF9269377D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

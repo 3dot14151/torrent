@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3A987642110851A95063BDBE506037E5FF600F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WhatWeather - это программа, что предлагает польз�
 ```bash
 magnet:?xt=urn:btih:C5D44580A0E60C5A6CAB05963D3108AB3A3A5A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Windfinder - вариация известного и популярного с�
 ```bash
 magnet:?xt=urn:btih:EC8F58275FF432EBD05F08702401F0BD4F3E6360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Weawow - это максимально подробный прогноз пог�
 ```bash
 magnet:?xt=urn:btih:0EF6EE0EE058A181100FF241926B828A674E5850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Weatherzone - очень известное и популярное погодн
 ```bash
 magnet:?xt=urn:btih:A224711D742D189B6B4BFCEAE3318628986CD40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Clime - это точная и удобная в использовании ме
 ```bash
 magnet:?xt=urn:btih:665389E6AAE77754D934467EDC07992AE3AA88AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Weather Live - красивый, стильный, удобный и функц�
 ```bash
 magnet:?xt=urn:btih:31B7F566A08E58C4229F4DC28CCEC668EB580964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Weawow - это максимально подробный прогноз пог�
 ```bash
 magnet:?xt=urn:btih:8C16495FCB4A06D1CF0A3717BC0D2A8DBD58E6F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Windfinder - вариация известного и популярного с�
 ```bash
 magnet:?xt=urn:btih:16FE15133E68BD1CD94F96EF38EBE1EEF68FF36A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Breezy Weather - это приложение с открытым исходны�
 ```bash
 magnet:?xt=urn:btih:115C3AF133EA948B845083C93786688B27ADA698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Weather Underground - очень популярный за счёт своих �
 ```bash
 magnet:?xt=urn:btih:7695309B1C8A215F43EA8C9F4B71B2CB3C450B62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

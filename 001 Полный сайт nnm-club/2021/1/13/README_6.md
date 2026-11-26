@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6F60198AB8378080D2BCF5DBBA2E8F4FF3BDB2BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Windows 7 SP1 with Update [7601.24564] AIO 44in2 (x86-x64) by adguard (v21.01.13
 ```bash
 magnet:?xt=urn:btih:6C5ED29FBEBC1A016AD419C5E54738D518A453DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E79F42AD961F1EBFE34E4F046651F9E6D134A8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Adobe Dreamweaver 2021 - новая версия приложения, пред�
 ```bash
 magnet:?xt=urn:btih:9489B1BDF9D4C0C77DC9CF5C1EC2E83F2DA0D561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Windows 10 Enterprise 2019 LTSC with Update [17763.1697] AIO 4in2 (x86-x64) by a
 ```bash
 magnet:?xt=urn:btih:4987AEC5C7AC4F9239FE03579B3490B1E60399C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ The Black Keys - Discography (2002 - 2010) [MP3|320 kbps]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:D3D5DFD7ACD1A34BEECA53F6C4C3A534FFBDF87D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Windows 8.1 with Update [9600.19920] AIO 36in2 (x86-x64) by adguard (v21.01.13) 
 ```bash
 magnet:?xt=urn:btih:209E0887F139FF74D7DD033C3FCB9A5005C3200B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:556657BCF22E6B70EDDF63E007F8D62DF984604F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBD2778101B0AE1E1365165736FFC11F734D8982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ AIDA64 - данная программа является многофункци
 ```bash
 magnet:?xt=urn:btih:83DE2135B58564D16F6A864ABCBA118C376137B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:1474BBDE6FDACD421E465635F59E9E6882505DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA0E6BF8EB31539447119D594ABF21005C0B13F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BED460D0EE9A095D204F4046C06123A55C94F7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EB78144781609A0A8433FC37AC82866C0E32FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ SketchUP Pro - является профессиональной версией 
 ```bash
 magnet:?xt=urn:btih:F9D80E37631344688687F6DFC5DD660777E6EE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Green Hell (2019) [Ru/Multi] (2.0.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:AB36C9FE0CA2FB62F8717082E07FB24936FB4C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ ExpanDrive 7 v7.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:2D2852DF0033F13309F69C0F212520B891EDC7E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ Cascadea 2.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:E5D6F1FA040FA9E922D1124BF9CB22BE3815C0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

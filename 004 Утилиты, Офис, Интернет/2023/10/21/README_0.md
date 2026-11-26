@@ -20,8 +20,7 @@ StrokesPlus.net, преемник StrokesPlus, представляет собо
 ```bash
 magnet:?xt=urn:btih:B7F89D64EC899EEA7946EAE9E482839397B39B63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

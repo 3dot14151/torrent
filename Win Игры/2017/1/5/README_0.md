@@ -19,8 +19,7 @@ Wings of Prey - это военно-исторический авиационн�
 ```bash
 magnet:?xt=urn:btih:CC7DADA693CD6FAF8F5E8F10785A840A76E5B124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

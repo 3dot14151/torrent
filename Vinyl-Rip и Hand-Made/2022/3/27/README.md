@@ -22,8 +22,7 @@ A3 Lawdy Mama(   Читать дальше...   )Жанр: Blues Rock, Hard Rock
 ```bash
 magnet:?xt=urn:btih:918E67E33F56D3AA27E0BBB966BFD9F4CA9BA7BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Casino Boogie(   Читать дальше...   )Жанр: Blues Rock, Rock &
 ```bash
 magnet:?xt=urn:btih:92D764B8614852AE8D4CF9E037F0249B66EE2618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Hold On To Your Hat(   Читать дальше...   )Жанр: Classic Rock
 ```bash
 magnet:?xt=urn:btih:D680485C374BF47113F110DBA13F16E43D63A5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Little T & A(   Читать дальше...   )Жанр: Classic RockПро�
 ```bash
 magnet:?xt=urn:btih:B16E4AD61C6AD3EEEFF5F7BF3E6204BD4DD851EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

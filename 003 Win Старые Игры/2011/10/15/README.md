@@ -19,8 +19,7 @@ Terminal Velocity [En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:CC0E0E5C3A7B8D66D0F9822F9F0AC6D0F5438CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tone Rebellion [Ru] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:6DDDEA6AD11C6CAE13ECCE65B37F4FC8775DFC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shadowman / Тень [Ru] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:579E87B32DED3C3ED6CAED92F544EA633974A5F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F455805EF0D847EA936A178C34C952027F43800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

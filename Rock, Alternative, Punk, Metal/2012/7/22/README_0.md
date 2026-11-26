@@ -28,8 +28,7 @@ Feist - Metals (2011) [MP3|320 кб/с]<Indie, Alternative>
 ```bash
 magnet:?xt=urn:btih:28110CA8996A56C5E2A519652847E85E37982174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Opera Diabolicus - 1614 (2012) [FLAC|Lossless]<Dark Metal, Gothic Metal, Metal O
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Pierce The Veil - Collide With the Sky (2012) [MP3|320 кб/с]<Post-Hardcore / 
 ```bash
 magnet:?xt=urn:btih:058354118F5E8C1A507BD46DD02314353DD364E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

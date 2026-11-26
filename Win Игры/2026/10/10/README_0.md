@@ -19,8 +19,7 @@ Project Cobalt - это экшен‑RPG с элементами выживан�
 ```bash
 magnet:?xt=urn:btih:FE3BF634D48E69C7D842CB50748CB5FF3949D3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Neon Abyss 2 (2025) [Ru/Multi] (2026.10.8/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:D202A7092B986525B0732B53A134DAFE3B0E32E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gear.Club Unlimited 3 (2026) [Ru/Multi] (Build 25623357/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4F1AD7681E25FBA3CA34E2D518B4189421E11A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Silver Pines - метроидвания в жанре хоррор-выжива�
 ```bash
 magnet:?xt=urn:btih:9A402CA921DE74AC1D823132775CCC23998D6484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Superhero Simulator - это экшен‑симулятор с элемента
 ```bash
 magnet:?xt=urn:btih:6ABE8F0C7359CC7BC1362E595A65E31254A9E276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Octopath Traveler - это японская ролевая игра в духе 
 ```bash
 magnet:?xt=urn:btih:CE00C836D555BD52DD6562A87F0B41ADF4B0DE49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Silver Pines - метроидвания в жанре хоррор-выжива�
 ```bash
 magnet:?xt=urn:btih:F29801D08573F0771FC73A52D41FD7DD91F87287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Octopath Traveler II (2) (2023) [Multi] (10) License GOG
 ```bash
 magnet:?xt=urn:btih:B5AED897193F90EED4C2C9F7E236E28FAB44FC92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Silent Hill: Townfall - это психологический хоррор о�
 ```bash
 magnet:?xt=urn:btih:DF225B675845D363346C347162E09D3E280A2F6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ God of War – новый взгляд на популярную серию, г�
 ```bash
 magnet:?xt=urn:btih:FDFDBA4498DA3280836B70EAA3B685E0440AFC3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ When The Past Was Around - приключенческая игра о любви
 ```bash
 magnet:?xt=urn:btih:66F5E1B258F3AF7F4FBCB792E61FBCB6CDBDF294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Big Adventure: Trip to Europe 5 / Большое приключение: Пое�
 ```bash
 magnet:?xt=urn:btih:B1918305642D97B9F32287F23673EF715B2E653C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:33C63ACFEB295C174A698E8C84A7CE61983586A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Atelier Marie Remake: The Alchemist of Salburg - это увлекательна
 ```bash
 magnet:?xt=urn:btih:47054E04A80B9FB445D5FBBD285C7BE87322A624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Man of Medan – это первая игра в антологии кинема
 ```bash
 magnet:?xt=urn:btih:439021874FB1A9F627FA02112DF07363BE0EBF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Total War: Shogun 2 является продолжением первой ча�
 ```bash
 magnet:?xt=urn:btih:13F52623C5FA204EC38688CBF34B5DFDD2F898A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Nova Lands (2023) [Ru/Multi] (1.0.23) License GOG
 ```bash
 magnet:?xt=urn:btih:E914D9F0A02519F08C944AC6F6198E9C0A1BF966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Kena: Bridge of Spirits – сказочное приключение в оча�
 ```bash
 magnet:?xt=urn:btih:C36B75DA4326B54D2355D3BD579EB654E17513E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Total War: Rome II (2) (2014) [Ru/En] (2.4.0.11535779/dlc) Repack dixen18 [Emper
 ```bash
 magnet:?xt=urn:btih:C60B9C3422C76856E5C908A43575741622510DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

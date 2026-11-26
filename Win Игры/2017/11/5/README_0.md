@@ -19,8 +19,7 @@ Enchanted Kingdom 2: A Stranger's Venom / Зачарованное Короле�
 ```bash
 magnet:?xt=urn:btih:1143B16149F4BC78E7EC2451BD2B0D449F684D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Living Legends 6: Uninvited Guests / Живые легенды 6: Незваны
 ```bash
 magnet:?xt=urn:btih:4C8020DF675359C138E87646C1C42B6C480607BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lost Lands 5: Ice Spell / Затерянные земли 5: Ледяное за
 ```bash
 magnet:?xt=urn:btih:54627CF73A4767C4CB37D01D9E2AE071A93D1815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A03549A019A54188AAEAFB9D23EDCA8005AC20D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

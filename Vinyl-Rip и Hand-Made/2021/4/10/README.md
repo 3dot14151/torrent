@@ -22,8 +22,7 @@ A2 Adagio /  Allegro(   Читать дальше...   )Жанр: Classical, Bar
 ```bash
 magnet:?xt=urn:btih:4708F9F7766C376C67139FD645986D2FFE5259A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A3 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПро
 ```bash
 magnet:?xt=urn:btih:5236157746BB91CE3AFF3CE651C42D4B7DFA30AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

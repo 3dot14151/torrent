@@ -22,8 +22,7 @@ Pretty Maids - Maid in Japan: Future World Live 30 Anniversary (2020) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:23632D0A83F074A16AE95C33DA2F0F1128E941E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ KUZMIN Absolute Band - Я - твой рокенрол (2020) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:C0A01ED30121630FD77FFF47A12FB9A7246FB108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

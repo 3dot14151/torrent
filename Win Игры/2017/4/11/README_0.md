@@ -19,8 +19,7 @@ Blackwood Crossing - это сюжетная приключенческая иг
 ```bash
 magnet:?xt=urn:btih:83C4DEC45141E304C213206C1ED2E52EACB4BD8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

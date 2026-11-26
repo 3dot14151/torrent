@@ -27,8 +27,7 @@ Laurent Wolf - Harmony (2010) [MP3|175-231kbps]<House>
 ```bash
 magnet:?xt=urn:btih:A518CA2EFC61B167D545D27935BF1E157092B3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - На волнах FM. Осенний выпуск. Русский (2010) [M
 ```bash
 magnet:?xt=urn:btih:4446DE34E407842EA25EE2E5589BF456F9C2022D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Global Sessions Fall - Mixed By Johan Gielen (2010) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:1E881BF43AA8FEC6F4B0050A3F43303E2B60A2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Хит на все 100% Volume 5 (2010) [MP3|320 kbps]<Trance, House, Club,
 ```bash
 magnet:?xt=urn:btih:544107B1F2570A70CF1DEBF4743278E6989DB5F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Deep Imagination - Awareness (2010) [MP3|~191 kbps] <Ambient>
 ```bash
 magnet:?xt=urn:btih:15D40C061945A0C6AE1625F635BE40BEB746C670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A1911F2F30A067EA0AAE3E2B99935A57D7DD970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ VA - 100 Best MTV Ballads 50/50 (2004) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:D685270CCC81F44CFCDB306B57DD557ECE0960D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CBCD07623B1DC3A40D9886353EF4BD9653A53DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Любимые Хиты От Европы Плюс (2010) [MP3|256 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:295534E0587B9CCBF3B77131F65249AA8931AE06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ VA - The Rough Guide to Jazz and Blues Legends: Billie Holiday (2CD) (2010) [MP3
 ```bash
 magnet:?xt=urn:btih:4D8BFC46A66DCFD399B2D2F66B5C87B30011035E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ VA - Лучшие новинки уходящего года (2010) [MP3|256 kbp
 ```bash
 magnet:?xt=urn:btih:FAABFACEA82FB5A2535C39D2976AB66FD99690B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Soul & The City (2009), 3CD [MP3|~192 kbps]<Soul>
 ```bash
 magnet:?xt=urn:btih:3019EA9742E10A934398521E9FCDC5AC5FEB8AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2B91DF4944333116D47096221C38AC734E48015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ VA - Cafe Lounge Cigarette Madrid Aroma (2008) [MP3|128-192 kbps]<Nu Jazz>
 ```bash
 magnet:?xt=urn:btih:32EC8D2FE6A2E186C0F7E97FD3F1D1E682A85D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ VA - Cafe Lounge Maccha Latte (2006) [MP3|320 kbps]<Lounge / Chillout / Lo-Fi>
 ```bash
 magnet:?xt=urn:btih:16B0CCCBE30D208F4A64A9BC70DAF900B167675A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4A6B9A4254D62873E79A4E7D5C3A7DCBC41D54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Luigi Rubino - A Theme For The Moon (2009) [FLAC|Lossless]<Neo-Classical, Contem
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ Zentimo xStorage Manager - мощный менеджер для внешнего
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ iPhoto '09 трансформирует способы, которыми орг�
 ```bash
 magnet:?xt=urn:btih:A71EB4E9AE4E869C991721571B8961E2167155B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39ED063E07F08CDC8AC2F5EC331CCD3CA34A71C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ Yesterday Live - это наш шутливый ответ америкнско�
 ```bash
 magnet:?xt=urn:btih:0B2C2977016AF699E0D59B1A405D239D4EA30BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ La Bouche - Sweet Dreams (1995) [MP3|192 kbps]<Eurodance>
 ```bash
 magnet:?xt=urn:btih:8A1EFA27AA9BF6016B90CD5A9AC9DA65DFD651A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ OST (Unofficial) - The Expendables (2010) [MP3|192-320 kbps]<Soundtrack / Rock>
 ```bash
 magnet:?xt=urn:btih:8ECA378F404B12D4820985D747BFDD413B77A4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +701,7 @@ Blues and Rhythm and Blues (1999) [MP3|128 kbps]<blues, blues-rock, jump-blues>
 ```bash
 magnet:?xt=urn:btih:C9DDAFA83FDEDE6D6D7B51251D21A327C0C7834C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +726,7 @@ ConvertXtoDVD - программа, предназначенная для пре
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

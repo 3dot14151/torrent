@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5CAD83C67F605101BAFF1BBBCC589C309AD47F74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:00BD0A54C52C394EE28222F58559A347CBEAF127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ VA - Gold Instrumental Collection Vol. 1-7 (2014-2015) [MP3|320 кб/с]<Instrum
 ```bash
 magnet:?xt=urn:btih:8AEFE33AF24CBD5D2630A68FE9F6832D72DD1F4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9371AFC90085031FC193C0705AE08D9A1A5FF1CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B80E3778C0CB39824EDB05E03396545B7A344AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ CleanMyMac (   Читать дальше...   )Тип издания: OS X Soft
 ```bash
 magnet:?xt=urn:btih:A49C3B2D80712C45FE2C356193C596953E8D80F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9AC8518A7826EB8538723ECF41FC6980202E1CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Hoozuki no Reitetsu / Хладнокровный Ходзуки [2014, TV, 13] H
 ```bash
 magnet:?xt=urn:btih:D25FD4DD39F5FB14BE411C0FC2F1FA3990590F56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Divinity II: Developer’s Cut (2012) [Ru/En] (1.4.700.38) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:3AC2B127440514D067BBD2361F8F0BB9FC661E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ MAGIX Video Pro X7 – это программа для работы с виде
 ```bash
 magnet:?xt=urn:btih:C69D8EBBF2E7089C1D2D5C91C8F536892B6D3658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A60F7492CA79A9D86C3E7D443966FBED0853308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ SamDrivers 15.4 - Сборник драйверов для Windows [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CFF95E4F722F5D0C583FDB0D7BBDCDE2B8BFB09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93E54A622855635C02643B760139C1CC8BB63435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Garmin: Дороги России Топо 6.20 (FID 3332) [Ru]
 ```bash
 magnet:?xt=urn:btih:BC8B8FD6E20A4FD0F3D9E3EB3DFBE240FD8F608B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Claymore / Клеймор [2007, TV, 26 ep] BDRip 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:4B40E5C8E47087395ADE3D7B766300AF786E1083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +410,7 @@ Windroy – один из эмуляторов, который может пох
 ```bash
 magnet:?xt=urn:btih:B7F99CA7EE4A0C16FC9004B45D177711C74E10AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Fable: the Lost Chapters перенесет вас в удивительный �
 ```bash
 magnet:?xt=urn:btih:292C6129956D43B4B2CFABCB505865B214D6F7AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Sacred / Князь тьмы (2005) [Ru/Multi] (2.28) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:4B925BBAC8508760A9A675D67EE1C46FCAB7D990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ VA - Dream Dance (Дискотека Казанова) vol.1 (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:D7C24F8166A3BDB25C082A3645C93A5778840088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86042F25F1A1435FC1320F3460DA686642CF85EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ Fable III - продолжение яркой и динамичной игры, 
 ```bash
 magnet:?xt=urn:btih:0765095A45F5223CC5A25A03B4B7AAF3CB1A13EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ Sacred 2 (2010) [Ru/En] (2.65.2/2dlc) Repack R.G. Механики [Gold Edition
 ```bash
 magnet:?xt=urn:btih:ACEE2B4A65D61626A90A2FC09E61ED55A72CD6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B15B4E34721C66624C6835CC39C96CDC4CB6481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ Nuance Vocalizer Expressive Premium-High TTS Milena, Katya, Yuri Rus 1.0.2.3p [R
 ```bash
 magnet:?xt=urn:btih:01D817C4B6BC27F72B909A98EC4A7C65A2AE70EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ Combi-сборка (RePack) двух версий программы Driver Geni
 ```bash
 magnet:?xt=urn:btih:C54B846E3C7A4C59975B57E7CBE21A32E1F11B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

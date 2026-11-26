@@ -19,8 +19,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:249E94BA38E2AB085E18E22AFA6B4DEB91011D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Opera One 126.0.5750.37 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:22BD858716DA6EE18AABE48515DEA8570B3D7D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

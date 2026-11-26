@@ -19,8 +19,7 @@ The MagPi — это журнал о различных поделках и эк
 ```bash
 magnet:?xt=urn:btih:142C0359E59F74DB09B3432389518E35FF6CA0EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maxim является абсолютно уникальным журналом 
 ```bash
 magnet:?xt=urn:btih:5E10389312AB6343B582B44663B3DCF8733603A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

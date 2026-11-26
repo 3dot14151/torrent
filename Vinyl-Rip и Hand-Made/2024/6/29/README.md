@@ -22,8 +22,7 @@ Rhapsody или Rhapsody of Fire — итальянская метал-груп�
 ```bash
 magnet:?xt=urn:btih:3C2C65835422E1FA7AFAA26ED403B9992AAA2D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 The Long Run(   Читать дальше...   )Жанр: RockПродолж�
 ```bash
 magnet:?xt=urn:btih:FFDFCB3500B775B96DEBCA2DC7834BA606444094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Gish (2004) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:DA3B45B39BC5C5FCE1951A91EA61DF81C0D76F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

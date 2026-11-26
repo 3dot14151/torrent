@@ -23,8 +23,7 @@ Arcana — шведская группа, созданная в 1994 году П
 ```bash
 magnet:?xt=urn:btih:3F266C0245DD4BDBDD788F68303F9828FC19BCAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ A4 Bobby Jones & New Life - Amazing Grace(   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:631B51482C395D4E3EA54C67960B5FB85C840B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

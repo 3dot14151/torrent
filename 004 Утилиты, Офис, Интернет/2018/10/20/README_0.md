@@ -19,8 +19,7 @@ IconsExtract 1.47 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8CCC7C1D25ABAA873CB2D37F91F03664A88DF707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ummy Video Downloader - отличный инструмент для скачи�
 ```bash
 magnet:?xt=urn:btih:D18783C2046E9C6E9B07A7905E23F108D0E6D39F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

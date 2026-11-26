@@ -19,8 +19,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.0 Mod by baalajimaestro  [
 ```bash
 magnet:?xt=urn:btih:69DB33752A5353000BE913F066B96700B46DB13D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Polarr v6.11.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A8BB10216ABC024637C498DBD290B735A93D7361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

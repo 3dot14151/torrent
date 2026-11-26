@@ -19,8 +19,7 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:9D41E0488FC38B35DE57AA7D5BBF980D46FAD4F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

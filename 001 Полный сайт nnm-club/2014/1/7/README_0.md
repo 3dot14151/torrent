@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FFFB94FD020D58A461FFFD5751C7DC7968251C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Vip Lounge Collection (2014) [MP3|320 кб/с]<Lounge, Chillout, World>
 ```bash
 magnet:?xt=urn:btih:A75E8B2828B00004A1D571535996085134C979AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AE100B9D8D08815F057C38695B0D39A8055678B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ VA - The End Of The Year 2013 [FLAC|Lossless|WEB-DL]<Progressive House, Melodic 
 ```bash
 magnet:?xt=urn:btih:93CEBA8604DBFE83BE556194F192C02A39015259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3A207935D27FA53CDA9DEE90F8A0F172519BEC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B54982F7054DEB7205F06C2038B89847FC950D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ James Christian - Lay It All On Me (2013) Japanese Edition [FLAC|Lossless]<Hard 
 ```bash
 magnet:?xt=urn:btih:54D374463BCE2E1311B247C7304D757EAD6D7240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Steve Roach - Spiral Meditations (2013) [FLAC|Lossless|WEB-DL]<Ambient>
 ```bash
 magnet:?xt=urn:btih:7C8959F6092D9CB670D277C57755E2B3664B9AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ Clarence McDonald - piano, Ndugu Chancler - drums, Lee Ritenour - guitar, Marcus
 ```bash
 magnet:?xt=urn:btih:BC2734440F9696A013E24EF6F3D3E26C3757E979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DDFE3EB41398BDE44FCEED51AE6EBA370940D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +311,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44651751D097F5859DA4C399C0E33E42178B2FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +345,7 @@ Bryce Janey - Burning Flame (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:26B27586F734817471DFB600E161BE4D588C0F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ Roxette - Traveling the World Live (2013) [FLAC|Lossless|WEB-DL]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:A7E4910425E24D265D6F8F908685A402F64ECB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +404,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:62CB536AE70C01CCE92AEC4B3236CAA5C15292BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ Tangerine Dream - Antique Dreams (2000) [APE|Lossless]<Electronic, Berlin School
 ```bash
 magnet:?xt=urn:btih:C2D0BE05A251CC895755C5D27B78C2C2C1618185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +472,7 @@ David Bowie - Pin Ups (1973) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Glam, Classic Ro
 ```bash
 magnet:?xt=urn:btih:9AA93FA1FDB300AF2BBE836EDB94E59AD17F477B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C63477F65BEF4C186E1722867D2BFC17F5FCF96A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +531,7 @@ VA - Мелодии Рождества (Коллекция рождествен�
 ```bash
 magnet:?xt=urn:btih:C41558230073C1648B55BFF451B66BFE39195BC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ Kevin Kern - Beyond the Sundial (1997) [FLAC|Lossless|image + .cue] <New Age, Pi
 ```bash
 magnet:?xt=urn:btih:D23DFC6186F7E1EDE63AD54ECF5DF28DA41BA336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ Yes - Close To The Edge (1972) Definitive Edition /2013, Panegyric/ [FLAC|image 
 ```bash
 magnet:?xt=urn:btih:1976F2D09C2957E224D2E9FCD9B7CB20A52776AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ Qualcomm Ultra Sound NotePad - технология переноса инфор�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ VA - Blues Legends 4CD Box Set (1993) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:EF7C032953CB52FEBF55A30F8E86ECECB8107998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ VA - Hot Dance Best Of 2013 (2013) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:23E46FE9A9DD91697CC5019098983C3F3B4F7CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -737,8 +714,7 @@ Electric Light Orchestra - Eldorado (1974) Mastered by Steve Hoffman /1993, Audi
 ```bash
 magnet:?xt=urn:btih:07A710E08FAE5BCD2457CBF38A472DCD901E602A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ Ah Nee Mah (Diane & David Arkenstone) - Ancient Visions (2005) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:FC1BCBFF4F6333C98BF2DB75BAAA61229131F7B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +768,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:989E48FFF0583471256CA3DB1C9A05124525DFAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

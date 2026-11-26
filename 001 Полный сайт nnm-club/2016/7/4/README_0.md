@@ -21,8 +21,7 @@ VA - Зарубежная Дискотека ХХ Века - 57 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:0E3C25C6377BB9DAD42E6BC7FA06CFBD9F3512A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Emotional Day And Trance Beyond (2016) [MP3|320 Kbps] <Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:E81C3EA9D558EBB1D1C8DA49D4029840A296D1D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Русская Дискотека ХХ Века - 24 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:DD9FB7A1733AB92934076F728F537B9EED1EE8F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:830C621C183E3954C7385766DB1FA552821D6EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Русская Дискотека ХХ Века - 22 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:A62053363924157E615D01E68611610E73394471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Зарубежная Дискотека ХХ Века - 54 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:C90365BC780DC751B239A13D1973388E2226D90C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Sleepy Hollow 2 Remasters Deep House (2016) [MP3|320 Kbps] <House, Minimal 
 ```bash
 magnet:?xt=urn:btih:46390A78D835776F10434043EBBC2196C87FD4EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ AOR - L.A Darkness (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock,
 ```bash
 magnet:?xt=urn:btih:55371CBB84D1023AC4E2ABA457720985AF02E99A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ VA - Русская Дискотека ХХ Века - 23 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:B9D17F3C2E41047123FF32DA877663F8F5EC6E5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02AA129883DBC95A5A8255B5C145BDB6FB476051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ Catherine Duc - Voyager (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:18A91698AC1D8518029B58D861F98B82B25C04AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ George Winston - Ballads And Blues 1972 - Piano Solos (1973) LP [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:31842AA7F095449ECDD222B34183D7B1460FC186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ James Taylor - October Road (2002) 2 CD, Limited Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:82937B146DD6D4DF4C669B7B8E5CE4EF067060D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ VA - Psyorama Vol.1 (2016) [MP3|320 Kbps] <Goa Trance, Psychedelic, Full On>
 ```bash
 magnet:?xt=urn:btih:C29159AA683CF465E469E1B6780718606ABAF07B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0291F34C8840CBCC2C6F365AEC98C39A79B816D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Paul Sills - Night Spa (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:F834A88065C4083719463A607C451BF6CCE69EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D9B320D262148C1A61B51D1DD4229C8917BE84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ VA - Русская Дискотека ХХ Века - 21 (2010) [MP3|256-320 Kb
 ```bash
 magnet:?xt=urn:btih:8DA66F76E8D25E3E757B8044335DCAD881F4A061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ VA - Trance Collection Vol.47 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 ```bash
 magnet:?xt=urn:btih:DDA34A8304C67A49747DEC41157F6A26A6FD7504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E4F7ED493612DA50BB79F9E5C930D48CD6C23FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ VA - Record Super Charts # 443 (2016) [MP3|320 Kbps] <House, Electro House, Prog
 ```bash
 magnet:?xt=urn:btih:38785F1ECD3DAA15048EA8819BAD960822B6F891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +598,7 @@ Doogie White & La Paz - Shut Up and Rawk (2016) [FLAC|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:4B88A859360F70532527C1677DAB7D9CE4CC4BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ VA - Chill House Ibiza 2016 (Finest Chill House Music) (2016) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:0EAC1B243523D838AD99D0BDC703A88F8513B6CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ Ant Download Manager - быстрый и простой загрузчик лю�
 ```bash
 magnet:?xt=urn:btih:1BB83E200D67F8601F4B27D1F55D07010CF9614B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ VA - Русская Дискотека ХХ Века - 25 (Именной) (2010
 ```bash
 magnet:?xt=urn:btih:B3BFF36176C1DB7B337C2987D1DF8DCB5ED4171F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:793AC73DE5378AF11A6732F0938BD9C06D918513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

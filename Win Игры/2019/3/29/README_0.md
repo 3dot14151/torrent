@@ -19,8 +19,7 @@ Grim Tales 16: The Nomad (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:44BC1FDCCFAE95CD20EB70E0EE66517E3BB748DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Counter-Strike 1.6 (2000) [Ru/En] (1.1.2.7/pv48/b8189) Repack/Mod stalin-volki
 ```bash
 magnet:?xt=urn:btih:8ED8C7A32219700B8F5C2BBCC9BA4DC68DF1F90C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

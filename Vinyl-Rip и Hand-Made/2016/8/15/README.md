@@ -22,8 +22,7 @@ Manfred Mann's Earth Band - Chance (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:A99E1AEBCB21360BF049A3E2384BB45C9261A1B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

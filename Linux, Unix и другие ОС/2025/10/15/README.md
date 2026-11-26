@@ -20,8 +20,7 @@ Linux Mint Debian Edition 7 (LMDE ) получил название "Gigi", ос
 ```bash
 magnet:?xt=urn:btih:864ACB15B81C720A3ABAA93224E21534A524A4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ File Destined — это психологический триллер-игра,
 ```bash
 magnet:?xt=urn:btih:0F2DD8AE5928A41FF352F294422243D4D5BB0BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33a) License GOG
 ```bash
 magnet:?xt=urn:btih:B2A352CC92290C0DFBECB487125B0FD25C56E03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

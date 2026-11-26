@@ -21,8 +21,7 @@ Depeche Mode - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:308A411B9B2D26CB44AB81AFD67661797A203B87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC44062A3B7141158FE808848CC352EC6F05EC1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Microsoft .NET Framework 4.5.1 Full Plus by gora [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:725E6DE3E830F4F029BAD4FAEF1ED18795E1FB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Deus Ex: Human Revolution Director's Cut [XBOX360] [Region Free] [En] [LT+1.9] [
 ```bash
 magnet:?xt=urn:btih:F16E1A7E71C313E0D28470CBCDD85652876A4613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E7596E677D353A471DD153A56C1157E408D4A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ AutoCAD MEP – это AutoCAD для проектирования отопит�
 ```bash
 magnet:?xt=urn:btih:E1703347B7015403F7554D641B2A12975A98AB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Acronis True Image - надежное решение для полноценно
 ```bash
 magnet:?xt=urn:btih:1F415E29EC2817E7E112E8D5AD7390B9CDDFF5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B973B4AB8D87BA4506103E88F299D7C57CAA53CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Ubuntu  — Операционная система, основанная на D
 ```bash
 magnet:?xt=urn:btih:69E68720BD2790427FA47DD739517F1CE4F67D7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Habib CEX 4.50 v.1.03 + multiMAN 04.50.01 FULL [PS3] [Ru/Multi] (2013)
 ```bash
 magnet:?xt=urn:btih:35CD58ED1BBF64A3D939590C79BA6391CE43C5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB9EF63899653EA6770903DC9A6731E66394EBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30716354EF11E108720E88655F741C92BB175FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Wolfenstein (2009) [Ru/Multi] (1.21) License SmS
 ```bash
 magnet:?xt=urn:btih:B51DFCC79BE364C92738AB85698E670FF8CBFD88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC4FCFA142C7C9ADD8F034D54CD87719DF8ECE19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ Dark Matter — это 2.5D survival horror проект. Действие бу�
 ```bash
 magnet:?xt=urn:btih:DCB6D4A8123CCE5735082336652BCB84FC94B7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +409,7 @@ Alien Rage: Unlimited (2013) [Ru/En] (1.0.9084.0 upd6) Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F8BD58CF237989840BB0F0F96F4E7A8CE07A41EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ Dance Central 3 [XBOX360] [KINECT] [DLC] [RUSSOUND] [Freeboot] (2012)
 ```bash
 magnet:?xt=urn:btih:44650EDD5B915F59ABE21814BC55A48E58CF98A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +461,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:CABDDC04D98450C7E44390147BD127FFCB83AB4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ Goodbye Deponia (2013) [Ru/Multi] (1.1.4.3284) SteamRip R.G. Игроманы [P
 ```bash
 magnet:?xt=urn:btih:FAC738925C665B0124A36A43AD51297FCFE7CBB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EB551B5334512A82BB0B8A28DCB7C763208E8F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +544,7 @@ Norton 360 - комплексное решение "все-в-одном". Эф�
 ```bash
 magnet:?xt=urn:btih:9623F65D77FF6A34AF84ED017AA76ACF3C24EF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFBAE91FDCE4B988A71DEA1E80802493A5CF796E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ Legends of Aethereus – фэнтезийная экшен MMORPG, предла�
 ```bash
 magnet:?xt=urn:btih:914FB9722A095DC891B2999B6C4DC9EB3FF6F5EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ Microsoft .NET Framework — программная платформа, выпу
 ```bash
 magnet:?xt=urn:btih:78A29FE95ADFD868ED5C05609AB5ED9E48CC251E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:780166015CEF50FC9F76AD288F5B4556F7B86B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Kai Nacke «D Web Development»(   Читать дальше...   )Жанр: П�
 ```bash
 magnet:?xt=urn:btih:BF16FE4329C16864B02215646B7D38B4B9759311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

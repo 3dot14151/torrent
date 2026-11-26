@@ -22,8 +22,7 @@ Daniel Gauthier - The Wish (2008) [FLAC|Lossless|image + .cue]<Neo-Progressive R
 ```bash
 magnet:?xt=urn:btih:A0431802795D036558BFDA204B7AA5A9E3439647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Santana - Abraxas (1970) MFSL UDCD 775, 2008 [FLAC|Lossless|image + .cue]<Classi
 ```bash
 magnet:?xt=urn:btih:48877FE2E34B665F9B2F0363BE5933B30C56B410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Judas Priest - Battle Cry (2016) Live, Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:1E400BB6C8F9F4C54B97D4614920EF90A74086F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Mark Knopfler - 46 Albums (1983-2016) 21 Studio, 16 Singles, 9 Soundtracks [FLAC
 ```bash
 magnet:?xt=urn:btih:C13398BB094A7728C54C5D753A81F429ABC2E5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

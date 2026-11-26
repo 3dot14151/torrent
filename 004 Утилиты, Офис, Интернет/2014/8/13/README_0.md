@@ -19,8 +19,7 @@ Raise Data Recovery for FAT | NTFS - две программы предназн�
 ```bash
 magnet:?xt=urn:btih:8D3172D68D897B9F48CFBB14BD7DDE816661F263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

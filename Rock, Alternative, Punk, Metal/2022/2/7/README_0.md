@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:F339A0CE1FC2D22F008C4B04D5F5E5F2467D6479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Ferrymen - One More River To Cross (2022) Japanese Edition [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:1824840CBEB891F41F957B7917591B6DC4130B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Symphony X — американская прогрессивная метал-г
 ```bash
 magnet:?xt=urn:btih:D4E4132218F10A146F7821044262E90FD8A74A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

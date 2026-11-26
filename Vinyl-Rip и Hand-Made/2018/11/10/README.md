@@ -22,8 +22,7 @@ VA - Сергей Рахманинов - Золотая коллекция (1999
 ```bash
 magnet:?xt=urn:btih:5DECAD830D1DCFB61844782748EB1F18428C8684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

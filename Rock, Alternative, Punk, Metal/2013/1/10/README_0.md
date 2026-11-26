@@ -27,8 +27,7 @@ Takara - Perception Of Reality (2002) [MP3|320 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:75AC82F53B7B36C969B9A243D157CDFF1BDC0631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Alex  Band - After The Storm (EP) (2012) [MP3|224 kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:CD124F16CC1F92EA3B8EF83C9D52F1E7048E28B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Prime Circle - Evidence (2012) [MP3|320 кб/с]<Alt.Rock | Modern Rock>
 ```bash
 magnet:?xt=urn:btih:FEB1C2AAE612AC7FED1EDE68F19148809549EF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Black Veil Brides - Wretched and Divine: The Story of the Wild Ones (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:67BD9A041C70F19CA79F98FF6B545619C00ECEED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ by Paul CarrackЖанр: Rock, Progressive RockПродолжительност�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ SIG:AR:TYR - Sailing The Seas Of Fate (2005) [WavPack|Lossless|image + .cue] <Ep
 ```bash
 magnet:?xt=urn:btih:9186D4B116EF3769DE06F192848600388ACFEA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cephalic Carnage - Misled by Certainty (2010) [FLAC|Lossless|image + .cue] <Tech
 ```bash
 magnet:?xt=urn:btih:9F373A5A3683F460F4ACFDBACB51989F0E31DCE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Crest - Vain City Chronicles (2005) [WavPack|Lossless|image + .cue] <Gothic 
 ```bash
 magnet:?xt=urn:btih:8287649BF8BEC69C234B5F3C173FC5C01A039071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ SIG:AR:TYR - Godsaga (2010) [FLAC|Lossless|image + .cue] <Epic Viking Metal>
 ```bash
 magnet:?xt=urn:btih:7772AE1C5637DBDDB1A4B64AC7525460733976E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ SIG:AR:TYR - Beyond The North Winds (2008) [APE|Lossless|image + .cue] <Epic Vik
 ```bash
 magnet:?xt=urn:btih:33E1A647190293E16291FE89DEBAEBF06CE06DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Crest - Letters From Fire (2002) [FLAC|Lossless|image + .cue] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:407C38D9FD6917C2FFCB7268381D9F939AF2A0E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Blaze Bayley - Endure And Survive (Infinite Entanglement Part II) (2017) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:EB2C36321888E6B4DD3CEC103BA17E9B83D3085C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ SIG:AR:TYR - The Stranger (2003) [FLAC|Lossless|WEB-DL|tracks] <Epic Viking Meta
 ```bash
 magnet:?xt=urn:btih:DDADB2457F33631C8FAB27E6D94E7500959F5C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ George Lynch - Shadow Train (2015) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:C6243EBEC77C629A7C18EA608D456642E701EE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Ruxt - Behind The Masquerade (2016) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EADC6D5F1ED9D8FEFB8A5DB734F809404148877C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Devilment - II - The Mephisto Waltzes (2016) [FLAC|Lossless|image + .cue] <Extre
 ```bash
 magnet:?xt=urn:btih:2E04A013E9061B2EA23C7AA9D8E5F76EB33F171B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ The Stone Foxes - Twelve Spells (2015) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:7F6272156EB0D18A9D0F7C9E3A910D7179FC3111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F15749E89EEDA068B43B7DE9FDD5265D22155327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Dead By April - Worlds Collide (2017) [MP3|320 Kbps] <Melodic Modern Metal>
 ```bash
 magnet:?xt=urn:btih:7ECD4FB9F2FDF63DBBB4D283910293E051EE9472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE605C7B10D51E02D0D12E28EEC0AF1E6B64F79E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Smokie - Greatest Hits vol.1 & vol.2 (2017) New Extended Version [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:201B0425684EDD87372DB8BAEB93C1AD41814A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ Smokie - Greatest Hits vol.1 & vol.2 (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:87EE95F26431BE5FDE56EF8189D4AD49449A32B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Motley Crue, Vince Neil, Sixx:A.M., Tommy Lee - 44 albums and 11 singles (1981-2
 ```bash
 magnet:?xt=urn:btih:3B4498BD60828AF18AA8AD718CB2516F4551351B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Dead by April - 3 альбома (2009-2014) Дискография [FLAC|image+
 ```bash
 magnet:?xt=urn:btih:47F7F7C4BB4AB14CD6D071DC1DF8AB92BBEF691B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

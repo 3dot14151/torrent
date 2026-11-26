@@ -19,8 +19,7 @@ Hermes 4: Tricks of Thanatos / Гермес 4: Проделки Танатоса
 ```bash
 magnet:?xt=urn:btih:D4F5DC22560D6C124A86A48A4C8620187C2FCBC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Demon's Residence (2021) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:66D7CD5C60A774E538BCB923A2F2CE13475F6F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

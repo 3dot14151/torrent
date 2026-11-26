@@ -19,8 +19,7 @@ DRAG представляет новый вид физики транспорт�
 ```bash
 magnet:?xt=urn:btih:75ADE58EC48516AF1F750176DB6BC2CACEC39CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paradise Killer (2020) [En] (1.0.8.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D532897829D113E18A1B5B429960D9235851106B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

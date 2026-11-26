@@ -18,8 +18,7 @@ Riccardo Campa - The Italian Way (2011) [MP3|320 kbps]<Italo Disco, Electronic>
 ```bash
 magnet:?xt=urn:btih:839A4975B2A4C83AF4406CD6F8000FB64C66EDFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Inner Place - Substratum (2011) [MP3|320 kbps]<Ambient, Electronic>
 ```bash
 magnet:?xt=urn:btih:1926A875245DC78E243696DDB8598B9DCC50CB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBFFA667144FB875869742E4E05D4905E38E4041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Сезон Попсы На Море (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E436F3EB2C354096E46A38D3380E0D25C93FC4AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Дискотека То, что надо ! (2011) [MP3|256 kbps]<Pop, Dance
 ```bash
 magnet:?xt=urn:btih:079B3CDD5E1F1C0AD9DC61AF0A49929138C74739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - Диско Августа (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:AB2D5E7F850719B6D9BCE94900986A75EFB0A9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ VA - Все шоколадно: Танцы до упаду (2011) [MP3|256 kbps]
 ```bash
 magnet:?xt=urn:btih:7CFA63D640BA9A143AC46C8E5F050070F2FBA69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1437E920ABE458F63F3E1D341EB5DC3C205E788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ Media Player Classic HomeCinema (x86/x64) - удобный во всех пла�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ VA - XXXL Полный нокаут! 5 50/50 (2011) [MP3|256-320 kbps]<Club>
 ```bash
 magnet:?xt=urn:btih:3E3A209E014372282D808A21998A11693A26C236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ VA - Dance Mega Sound Pack Vol.9 (2011) [MP3|192-320 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:C60A13249C32732A320A9798E0FEB93C864BEAAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2BD835575B6F26E8F3756C711650DB1ADB7EF822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5A38B2B1D6401472EAF6DE5DCEDD1416EAD6C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05F5CAD9769E26F357A4AD6B2C0CE37C93693833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +440,7 @@ VA - Mantras in Motion (2008) [MP3|320 kbps]<Ethnic, Electronical, New Age>
 ```bash
 magnet:?xt=urn:btih:2D729B6E556621984C0964554B57AC1D30EC7AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +466,7 @@ Nickbee, Mr.Frenkie, Malk - Under Water and Velvet Skin (27.06.2011) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:0E07BC8BE65720C5980C28C98B0A1EABCF6DE09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +500,7 @@ Bay B Kane - Jungle Love (2011) [MP3|320 kbps]<Drum And Bass/Jungle>
 ```bash
 magnet:?xt=urn:btih:F746BDD483790D31DF60CEB75A495DA78CAD9DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +525,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +550,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:220145C4140E897F8052DCD8ECB64A78411C798E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2AEE6DA02B5AD1080167476090F4B757840CA76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:602A8AA72246F7D9F28384822D5D99E4DE95993E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ VA - Русская ДискотЭка Арлекина Часть 4 (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:AE4F69B7AFD8B9C1B3E010B1CE92F1426338CC99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ VA - Золотой граммофон (2011) [MP3|128 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:A65CC7C00CF7920B582B28D7BE7D40108E65A1E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +701,7 @@ Ada - Meine Zarten Pfoten (2011) [FLAC|Lossless]<Synth-pop, Minimal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +734,7 @@ Borealis - Fall From Grace (2011) [FLAC|Lossless]<Power Metal/Melodic Death Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +766,7 @@ Hour1
 ```bash
 magnet:?xt=urn:btih:736E5E9B2F87E98D581DAD0208A37FD8F783E6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

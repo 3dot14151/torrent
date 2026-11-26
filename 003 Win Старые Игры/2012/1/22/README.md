@@ -21,8 +21,7 @@ Callahan's Crosstime Saloon [En] (RePack) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:AECF9DCCA5D83BF5F2E7BAD040C12F47A9A9218A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Missing on Lost Island / Ztraceny Ostrov [Ru] (RePack) 2002 | Pilotus, Polykov
 ```bash
 magnet:?xt=urn:btih:279F9E23EF5B76496A42B5D44706E5E05C3BAEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Slave Zero [Ru/En] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:01024B84AF8DD15A9800597886E346D2E4C72093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Rayman [En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:35CB63A148AAD50E5751B4E3777AFA206CE8644B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Nightmare Creature [En/Ru] (Rip) 1997 | Pilotus
 ```bash
 magnet:?xt=urn:btih:CCE3B187E4A00A4F28F480F06BDC6DE07C01AE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Startopia - игра от создателей Dungeon Keeper, воплотив�
 ```bash
 magnet:?xt=urn:btih:6BFB0EE80CD2480CDBF97C84B88C72DECC2CBBA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A6FC502469231A959D1A701BC82623EFF00C6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

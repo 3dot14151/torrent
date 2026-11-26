@@ -19,8 +19,7 @@ KDE neon 5.7.5 (15092016) [x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:D5C921E69A923856CF3764B45C69A2E7791C401E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

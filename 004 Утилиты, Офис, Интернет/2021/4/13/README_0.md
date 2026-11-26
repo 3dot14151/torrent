@@ -21,8 +21,7 @@ Insofta 3D Text Commander 6.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EFF433EFD848655AE19363226BE3CABD94EA54E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

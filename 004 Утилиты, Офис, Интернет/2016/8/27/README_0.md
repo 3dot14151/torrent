@@ -20,8 +20,7 @@ Advanced Woman Calendar 6.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A8A53A1509F1F30AFFA99A2F12CE52572738CCFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

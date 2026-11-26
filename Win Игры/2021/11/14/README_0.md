@@ -19,8 +19,7 @@ Epic Chef (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:3CD48FDBC33810CC9475ACEBC548EAD86D55E7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Quiet Apocalypse - сюжетное приключение, действие
 ```bash
 magnet:?xt=urn:btih:F54954FFEAA4B1A49FC3D134604E85066FF98E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beyond Enemy Lines (2021) [En] (2.1.0) License SKIDROW [Remastered Edition]
 ```bash
 magnet:?xt=urn:btih:E83F5114B83E6A1478D0C44E98C90192C97E9556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ E.Y.E: Divine Cybermancy (2021) [En] (1.01) License GOG [Single-Player Edition]
 ```bash
 magnet:?xt=urn:btih:4B22B46971DF4908050A4753B20A18E3A100587C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Binding of Isaac: Rebirth (2014) [Ru/Multi] (1.75/dlc) License PLAZA [Comple
 ```bash
 magnet:?xt=urn:btih:6F248DB5179DBCA653A364F9523F18DAE4017D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

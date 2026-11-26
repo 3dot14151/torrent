@@ -19,8 +19,7 @@ EBOLA 3 - переносит вас в великую классику ужас�
 ```bash
 magnet:?xt=urn:btih:11342F23062DE5BE29B665A82507D4C587900EA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stellaris (2016) [Ru/Multi] (3.5.1/dlc) License FAiRLIGHT [Digital Anniversary E
 ```bash
 magnet:?xt=urn:btih:759973AFFF3BA83A4546E1F7C0E80E42E446AAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

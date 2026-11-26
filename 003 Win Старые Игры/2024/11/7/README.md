@@ -19,8 +19,7 @@ Fifth Element (1998) [Ru/Multi] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:FC63CD6596D82BFE838CCAD2103837A71472A241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:1C0F01B885198B000935705FF1F1F6F68F0F7C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Descent 2 - экшен от первого лица с элементами си
 ```bash
 magnet:?xt=urn:btih:7DAF14CD3E53F1CE91CAAD23B7AFC1F3CC9E59A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Trespasser: Jurassic Park (1998) [Ru/En] (1.1) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:F19FE2E602CB3429CB436DE61EB15941A1E42732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ World War Zero: Iron Storm (2005) [Ru/En] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:A759A4EBFE190BF0108AE8D0198A22C48850923F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Turok 2: Seeds of Evil - это компьютерный шутер от пер�
 ```bash
 magnet:?xt=urn:btih:ADA5CC2F9F42291674F2F6292F6F6967F0563A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Oni – напряженный боевик в стиле аниме. Агент
 ```bash
 magnet:?xt=urn:btih:9F1F1E025A3A34D2E62C10E31203A49337F530F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:AECEFB7C97720878E1BC7C72ABD5290B44FA3565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Exhumed (1996) [En] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:ED464DA6D76EE249A40875F2906D86E9D0D18928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Hogs of War (2000) [Ru/En] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:E70B3CD22CB59260631B22CD7C57CBEE98E60B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:0B5CC85B89C7D6B0961C19BEB995A57B7B954A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Hordak - Padre (2016) digipak [FLAC|Lossless|image + .cue] <Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:BE25003D18C29DFD9E52839A2805419C7900B969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Tatir - Cave Of Ephyras... To The Infernal Fields (2012) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:2692894A08AE449862B2CF45F1E154ADBD6576B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Mimicking Birds - Layers of Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Acou
 ```bash
 magnet:?xt=urn:btih:E0BA047164931231145071068670F8463C028364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Stranger - The Bell (1985) Hot Blood Records [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:73ADBA9164E7DDD2C6B197A31B3916D6D7468455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Dio - Master Of The Moon (2005) Japanese Edition [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:2E199CBD0B88AF63D00AC60D01021801F41BB96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ CD 1: Unsung Prophets & Dead Messiahs
 ```bash
 magnet:?xt=urn:btih:3AEF40A22E1793E2B9745DD1A93A98A9F1147607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

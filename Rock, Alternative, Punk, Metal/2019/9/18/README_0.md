@@ -22,8 +22,7 @@ Liam Gallagher - Why Me? Why Not. (2019) Deluxe Edition [MP3|320 Kbps] <Indie Ro
 ```bash
 magnet:?xt=urn:btih:7960EA0839452A9DCC1577ED02BD9C6590119F6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

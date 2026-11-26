@@ -19,8 +19,7 @@ Left Alone — это захватывающий Survival horror с пугающ
 ```bash
 magnet:?xt=urn:btih:C39EDAC4620E8B863FF86549DC13E1FADD348D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Scrap Garden – очаровательный 3D платформер, расс�
 ```bash
 magnet:?xt=urn:btih:F64764FCF0BA29E96343F227B3B1E993334A48E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

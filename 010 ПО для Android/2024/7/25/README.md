@@ -19,8 +19,7 @@ Memento Database - это мощный и в то же время легкий �
 ```bash
 magnet:?xt=urn:btih:2ABA71CA2522DACBA9B5789230A58B7C1D676A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

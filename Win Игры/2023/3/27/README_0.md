@@ -19,8 +19,7 @@ Not For Broadcast (2022) [Ru/Multi] (2023.03.24a/dlc) Repack Chovka [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:529AAADA66745C9D23F4D77E422455ED821C04E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

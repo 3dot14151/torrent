@@ -22,8 +22,7 @@ Nausae - The Hue, A Veil (2014) [MP3|320 кб/с]<Screamo, Emotive Hardcore>
 ```bash
 magnet:?xt=urn:btih:07EB37BAB3C648BC1F5837F26810D06997A61130
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Neutral Spirits - Neutral Spirits (1972) [MP3|320 кб/с]<Psychedelic, Acid Roc
 ```bash
 magnet:?xt=urn:btih:9ADF4376564523E8507F569CBEBB65172861C97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Dragster - Dead punk (2014) [MP3|320 кб/с]<Garage Punk, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:493E10CA82E6438C54B7BCE966104598D4701598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Les Deux Minutes De La Haine - Somnolences (2014) [MP3|320 кб/с]<Screamo, Pos
 ```bash
 magnet:?xt=urn:btih:5A35421B156B5472498E22D0B9140869C52FBCCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Corr Mhona - Dair (2014) [MP3|~245 кб/с (V0)]<Black Metal, Doom Metal, Melodi
 ```bash
 magnet:?xt=urn:btih:2A275010B398DFAFF5EE4102F9462E58802171AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ DivahaR - Divarise (2014) [MP3|320 кб/с]<Melodic Sympho Black Metal>
 ```bash
 magnet:?xt=urn:btih:40472C9F19DFE2A00705823B1701C84F6D169FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49EB22D30670DF3BFB0B3F1A9B360E2FF9458261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE85B3C901FDB20C80A35FE007D498CB0D301D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ VA - Misfits - Earth A.D. The CVLT Nation Sessions (2014) [MP3|320 кб/с]<Hard
 ```bash
 magnet:?xt=urn:btih:7477AA9127EB5CC011B8A6235912834562F893EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ Raising Sand — студийный альбом Роберта Планта и 
 ```bash
 magnet:?xt=urn:btih:B24747455408AEB78FFD5BF429E41B1585A54534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

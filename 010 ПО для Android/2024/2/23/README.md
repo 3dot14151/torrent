@@ -19,8 +19,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:FBFBAC6C82D6BBFBDFD4F15599C45007605B0A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Universal TV Remote / Универсальный ТВ пульт v2.6.3 Mod by d
 ```bash
 magnet:?xt=urn:btih:1AC9B33992527BFD65B9EEAC1BB94022A8D5C55F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ ToonMe v0.7.0 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:57F66F55AF834687D31F8FCAB2E8A958CB9C7D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:E5F27A828D4D84B31A3B2317EE5EE8D6F4FDA6B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

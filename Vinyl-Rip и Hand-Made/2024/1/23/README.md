@@ -22,8 +22,7 @@ Rhino Bucket — американская хард-рок-группа из Ва
 ```bash
 magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

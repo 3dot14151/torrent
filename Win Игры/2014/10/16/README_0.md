@@ -20,8 +20,7 @@ F1 Race Stars (2012) [Ru/Multi] (1.1.0.0/13dlc) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:D7C6CD03D9A9698B7220876A5F542F1759D5944B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Flockers – это современный взгляд на жанр голов
 ```bash
 magnet:?xt=urn:btih:B35B510FC9FF802A48FE8E8B098906C24B3E0764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Legend of Grimrock — ролевая игра на исследование п�
 ```bash
 magnet:?xt=urn:btih:311737B4E69BB038D67A4149D81169FCD81343C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

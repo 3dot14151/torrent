@@ -22,8 +22,7 @@ JavaScript - самый популярный язык написания кли�
 ```bash
 magnet:?xt=urn:btih:5874A83F946B252ED5D1D3E75D2939FF1CEDCBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

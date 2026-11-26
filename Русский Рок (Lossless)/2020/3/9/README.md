@@ -22,8 +22,7 @@ Asmund - До неба поминальный рог (2020) EP [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:B69AE05D8FF099E85824ABE7EA78D4C9AC940D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A71B275CEFE5CBF7E791753707E64B8FCB48E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

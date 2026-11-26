@@ -19,8 +19,7 @@ TaskPaper - простое приложение для создания и ве�
 ```bash
 magnet:?xt=urn:btih:9720FBE40829AB1B361EAD6298A3DDAB5A9150BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Soulver предназначен для «быстрой математики» 
 ```bash
 magnet:?xt=urn:btih:F36AA96B24687CAE3EC79C3AF0EB52A20C82A31E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Privatus - это простое приложение для удаления н
 ```bash
 magnet:?xt=urn:btih:97A6C58E85B7CD0E522842828F94F046B10C858C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 ```bash
 magnet:?xt=urn:btih:EC37316715280C6466C9708B2B9CCC1B7A90390E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ VA - Deep Blue Sea, Vol. 1: Deep Ambient Moods (2013) [AAC|~319 Kbps] <Lounge, C
 ```bash
 magnet:?xt=urn:btih:BD4A8962AEA0548ECDC2DBEA201323328AA7DF0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - Swing Sisters, Volume One (2021) [AAC|~318 Kbps] <Electro Swing, Nu Jazz, S
 ```bash
 magnet:?xt=urn:btih:943425734F51EB110719B3BE3ECAF3B6E32BE0F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - A Day to Relax: Chillout Your Mind (2021) [AAC|~331 Kbps] <Lounge, Chill Ou
 ```bash
 magnet:?xt=urn:btih:72670051A1DD79C4D478ECB70F959414B013CDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Charlie Barnet - 1940 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 ```bash
 magnet:?xt=urn:btih:FF625380E4A345DB0A649A79668E10D6FA792789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Global Chill Out Masters, Vol. 4 (2021) [AAC|~321 Kbps] <Lounge, Chill Out,
 ```bash
 magnet:?xt=urn:btih:EC67B216ED0A8A6391D1F9DFAA02A0522E0C1DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Deep Blue Sea, Vol. 4: Deep Chill Mood (2020) [AAC|~317 Kbps] <Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:C8860EBABA2E5E6EF0BE0EB8766736C8C2F96CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Deep Blue Sea, Vol. 3: Deep Chill Mood (2019) [AAC|~331 Kbps] <Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:3EFD14FD221469E30FD3994E7D7D50826A2911AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ```bash
 magnet:?xt=urn:btih:21A44678C476A4FBB98BB529EAA3966C15BCFABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Deep Blue Sea, Vol. 2: Deep Chill Mood (2018) [AAC|~329 Kbps] <Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:FD09DBDCEBF88950367D3652213459FAE833F5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:900D404AA23E84AC7F0FE8DA9BC385DD98F794BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ VA - Deep Blue Sea, Vol. 5: Deep Chill Mood (2021) [AAC|~321 Kbps] <Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:DA942E019B2513F56001CBE70C3039283A48E9C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ The Ray Brown Trio featuring Gene Harris - Soular Energy (1984) 2013, Analogue P
 ```bash
 magnet:?xt=urn:btih:2779EC0531361DC276ECAEA0EE457294BEEDF12D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ XCap 1.2.3 [En]
 ```bash
 magnet:?xt=urn:btih:4764F1996FCD35D781F5D6BEBD85291D1A261619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ SiteSucker Pro - это расширенная версия SiteSucker, кото
 ```bash
 magnet:?xt=urn:btih:657B8ABECF1CCAC9938D16D3DAE5BAF41C55354E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +504,7 @@ VA - Psychotic Episodes (Selected by Psycatrick) (2021) [AAC|~324 Kbps] <Psy-Tra
 ```bash
 magnet:?xt=urn:btih:2E5C2720A8FCD7633DC4A8E5469478E81EC02CA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ VA - The Death Therapy (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
 ```bash
 magnet:?xt=urn:btih:EB4CCF09EF842E8F0211BF00AC7BEEC66F51744C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ VA - A Day to Relax: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ```bash
 magnet:?xt=urn:btih:85D137D73F210FF5DDEDF10A3410C69BFBA4DA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ Prism представляет новые способы организации,
 ```bash
 magnet:?xt=urn:btih:DEAE9F8909F782539F26634CA510E3AB530E6ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ VA - Space Holidays Vol. 13 (2021) 4CD [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 ```bash
 magnet:?xt=urn:btih:CEF591A4850B2DB3F88153543F7CE02A4E1C8BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A5966E6972C9207B9B1E8CF3B17C26F43258563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ VA - Space Holidays Vol. 13 (2021) 4CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 ```bash
 magnet:?xt=urn:btih:5FDBC441CD7715BE95E811AE6768BCD3CC545FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68C2FD2A116A4ACA931EA23F1E8E8D65F8F49CE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

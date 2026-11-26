@@ -18,8 +18,7 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 ```bash
 magnet:?xt=urn:btih:3EDF261FE85A5CB7138C04E446183750AF05765A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ HUMANKIND™ — главный труд Amplitude Studios, историческ
 ```bash
 magnet:?xt=urn:btih:735B57C2392A4410DE2423CC1228A96C90392E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

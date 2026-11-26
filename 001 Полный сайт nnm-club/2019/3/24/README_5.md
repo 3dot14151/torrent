@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:FD2A20B96A5F8FA8E339F749C472A019B4B070AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5EAA02B64B2E1DFF8CDA01924C8ED99352F51F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9D0E983E90E5389B141C3145A3A287A8AE31D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Total War: Medieval II / Total War: Medieval 2 (2018) [Ru/Multi] (1.52) SteamRip
 ```bash
 magnet:?xt=urn:btih:CA4C4F602A384C9A8D262D8CC74F4A98CB093DEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ The Witcher 3 Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:F86AA19D0EA72B4D39E5A52BE1EE237A2C42DC4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA72A8066EBADF08DB3C320C259FB7A5F05D2633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Ni no Kuni II: Revenant Kingdom (2018) [Ru/Multi] (4.00/dlc) Repack xatab [The P
 ```bash
 magnet:?xt=urn:btih:908F411E4364F5A29432B07BAE11046DB4DBE5C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

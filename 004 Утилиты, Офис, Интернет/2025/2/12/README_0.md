@@ -21,8 +21,7 @@ Macrium Reflect – профессиональный инструмент рез
 ```bash
 magnet:?xt=urn:btih:DCFD3766CD8F9E5BC0F94DFDA01CC7D9036C383E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

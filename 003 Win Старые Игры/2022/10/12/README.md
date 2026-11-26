@@ -19,8 +19,7 @@ Styrateg / Западная граница (2006) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:DB12AE2131432E108EC332661E0BC06834005905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

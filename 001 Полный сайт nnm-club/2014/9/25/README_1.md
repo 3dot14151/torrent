@@ -27,8 +27,7 @@ Ramin Djawadi - Битва Титанов / Clash Of The Titans (Original Motion
 ```bash
 magnet:?xt=urn:btih:8F9202F945FABD5A13DD997A45060D175424E546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Henry Jackman - Кот в сапогах / Puss In Boots (Complete Motion Pictur
 ```bash
 magnet:?xt=urn:btih:FC61928DC96D1A799F35F31616888D1958737A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:294CFA7AF80D9501AEF18623F04E7834A456B722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Joanne Shaw Taylor - The Dirty Truth (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:6272D839F064AC758BB2DDA858FB6162BB2673F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Henry Jackman & Matthew Margeson and VA - Kick-Ass 2 (Original Score + Original 
 ```bash
 magnet:?xt=urn:btih:181B055EEDE059109FE690E667AB92B472865ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEB214A7F5701F0C4D1917689A5C7F27973F7ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ FastStone Image Viewer - вьювер, редактор и конвертор г
 ```bash
 magnet:?xt=urn:btih:A8BFC9E82BBF1F39390ED774AA66B5BB46C43822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Tim McGraw - 4 альбома (2012-2014) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:A1554E68CD36C778A713CFBB4C398FD0C8AE9242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DAB6437539FC7406CB2F8611BD2A16EC994C78F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E43C428888AC33097EC9E369E29DB83C21375743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ Various artists - Kick-Ass (The Score) (2010) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:EB9AC64612BF32D6AFD14489D9B79A7F8122783A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ VA - Lounge Lotion (Calming Relaxing Serenity Beach Luxury Chillout) (2014) [MP3
 ```bash
 magnet:?xt=urn:btih:5EEDB6768C3128E42182B35F2D113114B9A49629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F11D5359800CB97FB8CA6BE65388C608E416F7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +417,7 @@ Alison Krauss & Union Station - Paper Airplane (2011) Exclusive Deluxe Edition [
 ```bash
 magnet:?xt=urn:btih:D1073612526A11D1F9C957CABC2972BA768FE3D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +451,7 @@ Incognito - Amplified Soul (2014) [FLAC|Lossless]<Acid Jazz, Funk>
 ```bash
 magnet:?xt=urn:btih:A625A0ACD2C4CED92A039C969FB7A9C321A9A9E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44ADB1E5C79AA6E0E403F462F8C561E55051EA1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +510,7 @@ VA - Вставляй И Слушай (2014) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F683A8B1A7BF5E55AAFE2433E1077ED9C0D3AA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +544,7 @@ VA - Get Lost VII (Mixed By Craig Richards) - 2014 [FLAC|Lossless|WEB-DL]<Tech H
 ```bash
 magnet:?xt=urn:btih:2A6A4D63DBB4444E908CC0D1804CFD7A116A2CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +577,7 @@ Henry Jackman & VA - Люди Икс Первый класс / X-Men: First Clas
 ```bash
 magnet:?xt=urn:btih:F4D4B2BB075A8E2300848A9C4FA787F3F494751C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C945C95D836662195A05735238D30A99E72F55F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +635,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5059055E9E19A8373AF912E6627A5AFB2C2B6231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +669,7 @@ VA - Осенний Танцевальный Disco Drive (2014) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:1294E3510407E9ECE6680287071222A471423A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +696,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:B330352A189B5EE19593547BF182348F8BF4CDAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +721,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F7B30CD6C7DA76DAAEAE1B2B13F720738183B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +746,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FF7475F048FFC5D20018635FCA9A75B7EA4ABA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -803,8 +778,7 @@ Woodscream - Octastorium (2014) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:62F731FE2CFC5D45AF53D76CC8638D2AF47D3BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

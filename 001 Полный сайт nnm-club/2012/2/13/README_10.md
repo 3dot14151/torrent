@@ -20,8 +20,7 @@ Alan Baghumian объявил о выпуске второго обновлен�
 ```bash
 magnet:?xt=urn:btih:E07361C9E433E45E9F426E612D94557EC70A05F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

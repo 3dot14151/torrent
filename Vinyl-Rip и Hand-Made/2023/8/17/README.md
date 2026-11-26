@@ -22,8 +22,7 @@ A3 Never In A Million Years(   Читать дальше...   )Жанр: Pop Roc
 ```bash
 magnet:?xt=urn:btih:1A42E6A5A78A9883EA18C93959CF9F44C9B54D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 One Step Closer(   Читать дальше...   )Жанр: Pop Rock, Prog R
 ```bash
 magnet:?xt=urn:btih:A4BA8AC14B7F5B6963C6A316363423C56132203D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 The Diary Of Horace Wimp(   Читать дальше...   )Жанр: Pop Roc
 ```bash
 magnet:?xt=urn:btih:F22BDD8CC9582039405F5DEF751DCDEABED0FE55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard 
 ```bash
 magnet:?xt=urn:btih:4DEB28FEA7D153A67F73376AABE59CEDBDA1D44E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A4 Ticket To The Moon(   Читать дальше...   )Жанр: Synth-pop, Sy
 ```bash
 magnet:?xt=urn:btih:F787043A0FC2CB2B0C08B19421C4317098EA5DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

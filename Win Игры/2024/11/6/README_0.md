@@ -19,8 +19,7 @@ Technotopia (2024) [Ru/Multi] (1.0.7.1) License GOG
 ```bash
 magnet:?xt=urn:btih:3EEE1D5ACF71538B0A2A3472B802A3CAC76C2056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F8C4D357CDB6EF82BC3F1AECA28AF089B4340AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Massacre At The Mirage (2024) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:529EB74BAA9D9626C793C88C8669532291E1AEFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

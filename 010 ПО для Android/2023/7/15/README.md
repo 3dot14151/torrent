@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:CC4B69924E3F672EA075A5752C9588AE3D6985F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.53
 ```bash
 magnet:?xt=urn:btih:56A8B600848B5887E1E1F1029324030AE9518E34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Picsart Photo & Video Editor v22.7.4 Mod by KirillCXV [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2ED3C5343A9C952BE1D0BCB15E9D4752E2886775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F8FAF13DC9DBDDD8607022797470EC544D370A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A088AAE5E90A6FA8AB0B16E36ABEF4D91301CF39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

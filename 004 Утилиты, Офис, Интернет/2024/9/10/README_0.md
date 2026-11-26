@@ -19,8 +19,7 @@ Stardock Start11 – новая версия приложения для нас�
 ```bash
 magnet:?xt=urn:btih:57C5BE550107E64BB38B7EC6B747BE61CBF7041E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WifiInfoView - небольшая бесплатная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:4BABBCF94A8FE1A9A3FCE25A9300D9F7E648AE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

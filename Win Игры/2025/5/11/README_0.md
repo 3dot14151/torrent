@@ -19,8 +19,7 @@ Unavowed (2018) [En] (2.5) License GOG
 ```bash
 magnet:?xt=urn:btih:AE3EDF3490471F8A1F18F571E2F98867671253DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе (2011) [Multi] (
 ```bash
 magnet:?xt=urn:btih:4CAE8CC6E2D6D6F39DBB168BC0C79ACBC92D64FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Doom 3: BFG Edition - это переиздание Doom 3. Жанр и смыс
 ```bash
 magnet:?xt=urn:btih:E611C7D5DE36C4DAA3177B276D3E8B0546CEA116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5A33A6C683200B6A5FE323EA20BD8BB12DE1661D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hotel Owner Simulator (2025) [Ru/Multi] (1.0.5.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D4D87102E37AFDCAAA7C9B3E7102A797FC386017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C271550D6AC189B74B42D94AFF1BD930C3A7C89D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:19A7D6B59C6335FE22DF5ADFDF9FCBC3CDDAB1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Oil Refinery - The Simulation (2025) [Ru/Multi] (1.1.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:35ED2DF2F9BDDB3799A5FEB511CA49B0BE03BB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6AFA8BCE0DC81612422B9BA14662F326D0E6BA54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Laundry & Supermarket Simulator / Laundry Simulator: PowerWash It! (2025) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:0B69D766A44B5E7FD0E8EB258B63564F721F84DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Hunter’s Journey: Tears of the Lake (2025) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:3EE3E4B49A1D904B555BA762A83A3FBE3681A61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Liquor Store Simulator - это игра в жанре симулятор про
 ```bash
 magnet:?xt=urn:btih:0E3D468A9760A160EA89BFDE3A0F7877C24EC744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

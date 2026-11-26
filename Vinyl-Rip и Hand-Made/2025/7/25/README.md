@@ -22,8 +22,7 @@ Ozzy Osbourne - 10 студийных альбомов (1980-2020) [DSD 128|trac
 ```bash
 magnet:?xt=urn:btih:AF50FA6C30CF66CF2F70C21F5E864D30F7B51211
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

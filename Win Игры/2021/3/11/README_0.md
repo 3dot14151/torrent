@@ -19,8 +19,7 @@ Adventures of Megara 3: Demeter's Cat-astrophe / Приключения Мега
 ```bash
 magnet:?xt=urn:btih:6D0621C4F96EDB89EE69E26A45FC4FD8BEA695D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DYSMANTLE (2020) [En] (0.6.9.11) Repack Other s
 ```bash
 magnet:?xt=urn:btih:77429DE39E4E73795E883AFFB2DFA8056143CB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Renegades – это межпространственная стратег�
 ```bash
 magnet:?xt=urn:btih:DD7C03F99C2C51485E57B3AAF7A4E3C4127D07F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Clepsydra - More Grains Of Sand (1994) [FLAC|Lossless|image + .cue]<Progressive 
 ```bash
 magnet:?xt=urn:btih:7C969999878DBAF8D42136C30ACA7CC387F13080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Znaki - Пазлы (2017) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:BBB11A002A3C0F73DDE0D2A654EA9FC0564DA855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

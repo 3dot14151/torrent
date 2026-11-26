@@ -19,8 +19,7 @@ Serial KeyGen 1.1 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2E25AA1471977BBA42AE541485D4841A0DC549FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

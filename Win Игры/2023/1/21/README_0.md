@@ -19,8 +19,7 @@ Stronghold: Warlords – продолжение серии стратегий в
 ```bash
 magnet:?xt=urn:btih:FD619F7A31784F6D058EB75545DA7C8F2F5B4E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

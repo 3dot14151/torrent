@@ -19,8 +19,7 @@ TorrServe — приложение для скачивания торренто�
 ```bash
 magnet:?xt=urn:btih:5CB8479A9DC095D3D97B03C0153249E43923822F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

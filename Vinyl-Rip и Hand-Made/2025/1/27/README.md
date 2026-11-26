@@ -22,8 +22,7 @@ Einherjer — викинг-метал-группа из Хаугесунна, Н
 ```bash
 magnet:?xt=urn:btih:B27A6D0169E0315C86052A29A7BE725007642604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

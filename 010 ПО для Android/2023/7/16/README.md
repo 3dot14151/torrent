@@ -19,8 +19,7 @@ GPS АнтиРадар v37.0  [Ru]
 ```bash
 magnet:?xt=urn:btih:C4CF45E744D24A0F0406455EBE4BBA17253EF56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PictureThis - Plant Identification v3.58 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1A2D27CA69D5C6825ECB13EEA15ADFB447499C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ HeadUp Display (HUD) – это возможность использовать 
 ```bash
 magnet:?xt=urn:btih:D170A650F5593A4838B3C57A660A8A90A6DB8C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

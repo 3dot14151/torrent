@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8ACA80F44C575B207B2AACD79FC1D1C58681B2EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ December People - 4 альбома (2001-2015) [FLAC|Lossless|image + .cue] <Cla
 ```bash
 magnet:?xt=urn:btih:178DB08DB9DA3BE130173F4B40F0D743A590B574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Imonolith - State of Being (2020) [MP3|320 kbps] <Nu-Metal, Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:20F059A4D57CB66C151BDBFC70F9D01F8EBFAC62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Hush - Hush featuring Robert Berry (1998) [FLAC|Lossless|image + .cue] <Classic 
 ```bash
 magnet:?xt=urn:btih:1F1D07A87878F90C17B79528CB66EB908C569D0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The No Ones - The Great Lost No Ones Album (2020) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:D94B768293619ABBCC74B89C4FA0014957A1B294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Crematory - Unbroken (2020) [FLAC|Lossless|image + .cue] <Gothic Metal, Industri
 ```bash
 magnet:?xt=urn:btih:558FEDE6F622622DA69B2181662B4F3BEFDCD495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36DB2B81CFD7F47FE219E45D6CB80FFFA8703E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:476408782BE9F66EDEDDD1C24193A9B94893704A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Bonfire - Fistful of Fire (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:53C9A63E487CC9BA21B3F96C00198E4125385EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

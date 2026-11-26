@@ -22,8 +22,7 @@ Nightmare - Cosmovision (2001) Reissue, 2013, AFM Records [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:2FD32C3443479F1AA7B3F81B4809DEEBD15CEF5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cenobite - Dark Dimension (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:E2FFE3AA271593A43112447058743F49B7D2B8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Into the Fray - Into the Fray (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal
 ```bash
 magnet:?xt=urn:btih:C744680729B87A25316A8FA675895C9344092452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Clutch - Songs of Much Gravity... 1993-2001 (2021) [MP3|320 Kbps] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:DC4E9AF38F7F86C602216F643842284310AF03D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Born Of Osiris - Angel or Alien (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 ```bash
 magnet:?xt=urn:btih:850B8F0010F82B10D215F06C7E00A8DE8D311892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ At The Gates - The Nightmare Of Being (2021) [FLAC|Lossless|WEB-DL|tracks] <Melo
 ```bash
 magnet:?xt=urn:btih:2B87BC6FB16181A1B12B98EB22E1275D73D60657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ Nile (в переводе с англ. — «Нил») — американ�
 ```bash
 magnet:?xt=urn:btih:36450074057DA911CD6E9B8F7E895F0AD12796B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ Kenny Mcgee - Heartless Daze Two (2021) [FLAC|Lossless|image + .cue] <Hard Rock,
 ```bash
 magnet:?xt=urn:btih:1F39DA29E8DA04F7E2F1D048A5266AB34F835C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ Shooting Star - 2 Albums (1982 - 1983) Remastered, 2007, Renaissance Records [FL
 ```bash
 magnet:?xt=urn:btih:E8F31D87D45D8C88652AE67581FC6643371B5888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +276,7 @@ Lynyrd Skynyrd - Nothing Comes Easy 1991-2012 (2021) [MP3|320 Kbps] <Southern, B
 ```bash
 magnet:?xt=urn:btih:0D6447E96E8F0448D69EBAF4EA88D74EAA02DF21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

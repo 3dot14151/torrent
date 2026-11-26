@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:22062668CCDE831B897B078AFD5E24FCCFCE5184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ ASP.NET 4 представляет собой новую версию револ
 ```bash
 magnet:?xt=urn:btih:6D5EA19EE25FF5DF46E831B863FE3E262F61A638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

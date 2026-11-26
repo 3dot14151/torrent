@@ -19,8 +19,7 @@ LEGO 2K Drive предлагает получить уникальный опы�
 ```bash
 magnet:?xt=urn:btih:FFAC80DC91E2950458B4D679807CB5B195544D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (252136/dlc) Repack Decepticon [Col
 ```bash
 magnet:?xt=urn:btih:AF9C385AB2DC99D4401F63A680CD0F558E21A85F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wo Long: Fallen Dynasty – это ролевой экшен от третьег
 ```bash
 magnet:?xt=urn:btih:B002BBB81B9ECC47DC74BF9EA8F35288A9A41049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:AB3CDEA353630CDBC8FCA347CCF0E3C648B71984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

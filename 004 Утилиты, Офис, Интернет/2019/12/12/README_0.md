@@ -19,8 +19,7 @@ Vkontakte Online 6.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:9DE01F3CCC4A8D5295B2EC06923C4C24FA0E4D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

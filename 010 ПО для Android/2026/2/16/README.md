@@ -19,8 +19,7 @@ Shelter - ПО с открытым исходным кодом, позволяю
 ```bash
 magnet:?xt=urn:btih:14A260D078AE37D891102B33CCC77B04520D8812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

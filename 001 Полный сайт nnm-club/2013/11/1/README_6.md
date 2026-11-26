@@ -18,8 +18,7 @@ Legends of Aethereus – фэнтезийная экшен MMORPG, предла�
 ```bash
 magnet:?xt=urn:btih:9FC6A3E8FED82AA5F3217AC3AE05931B93BA4B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blood Knights может похвастаться своей динамично�
 ```bash
 magnet:?xt=urn:btih:82079E4470C3C4D6AF29B0E3B138B3F072ABF394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ CD1 (01:18:24)
 ```bash
 magnet:?xt=urn:btih:FBFA2035E00159F83BBA37F69F64BEDBB6C9C904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7A7DBAFA9DF1C55623471EDA19C444871547D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21F428CC0AC7D6FEC9B2C89DEC814C094B0C79B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DD1C73ACDCDDAE4AECCBA8B5E7A83C2E8DBF35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7A2FDCA475D0D2884D43AED88A187AB42EC109B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Sniper Elite Nazi Zombie Army 2 - сиквел спин-оффа в серии S
 ```bash
 magnet:?xt=urn:btih:CD4AF0503A8CA6A27A1E01A7F4FE6E52134C4848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Assassin's Creed IV: Black Flag [PS3] [EUR] [Ru/En] [4.46] [Cobra ODE / E3 ODE P
 ```bash
 magnet:?xt=urn:btih:E9DB32407F2E13DE30731E3B7F3643B8A29BAF2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Pink Floyd - Live at... (1965-1994) Bootlegs, 108 albums [FLAC|Lossless]<Rock / 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ DriverPack Solution 13 R395 + Драйвер-Паки 13.10.5 + DVD [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:979154EB967796D626DC79B461C100D21C673D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ WRC 4: FIA World Rally Championship (2013) [En] (1.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:4E62C66F72D10DCE65336E73D6A0FEF55B5AA9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Crysis 3 продолжает знаменитую серию шутеров о�
 ```bash
 magnet:?xt=urn:btih:3715F2D33E5F5C160148A2E5ABB3F04AB2A80AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:320CA21EBAAB48135F9DDD6DFF74927DA9FF420B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ Sound Forge™ Pro 11 обеспечивает эффективную и над�
 ```bash
 magnet:?xt=urn:btih:63AB1EFFCD3DCE29A0FE039CC5A64354EBB684D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ God of War: Ascension – новая игра в знаменитой серии
 ```bash
 magnet:?xt=urn:btih:5A961B7D150352225E60D6A70AA725EFDB7DE02D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ Dream Aquarium Screensaver - эта программа создает эффек
 ```bash
 magnet:?xt=urn:btih:246E6A3D38BECDD9E705C2E024948DAE81286F80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ Recovery HDD/USB-flash for Samsung ATIV Smart PC 500T1C-H01 / Windows 8 x86 [Ru]
 ```bash
 magnet:?xt=urn:btih:44404FEEA454D2B3828202EC939F3249B2D97AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ God of War III [PS3] [EUR] [RUSSOUND] [4.30] [Cobra ODE / E3 ODE PRO ISO] (2010)
 ```bash
 magnet:?xt=urn:btih:20589869DAD2CB4B18A334B842CBA7143991829B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ Windows Sidebar for XP 6.0.6003.20103 [RUS] by 5.09.2010
 ```bash
 magnet:?xt=urn:btih:6B537B3BC57509CF5712865EA362316617829301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ Microsoft Windows 8.1 Rollup 1 RUS-ENG x86 -16in1- (AIO)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +621,7 @@ Chip XP 2013.10 CD
 ```bash
 magnet:?xt=urn:btih:B57C7606FF395560378C08E53315753711007663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

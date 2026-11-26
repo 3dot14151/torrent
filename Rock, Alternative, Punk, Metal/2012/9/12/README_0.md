@@ -23,8 +23,7 @@ Dead City Riot - Dead City Riot (2012) [MP3|320 кб/с]<Ska Сore>
 ```bash
 magnet:?xt=urn:btih:EC3AD4775F7656C5D2EFE2A91F6FE1A2D6E489C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Steve Thorne - Crimes and Reasons (2012) [APE|Lossless]<Progressive Rock/Crossov
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Dave Matthews Band - Away from the World (2012) Deluxe Edition [MP3|~245 кб/с
 ```bash
 magnet:?xt=urn:btih:73D33D619560F556CB675A19F3BBF98794A0D9A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ David Byrne & St. Vincent - Love This Giant (2012) [MP3|320 кб/с]<Alternative
 ```bash
 magnet:?xt=urn:btih:D568E56C433BB3C985DCDF3585BE89D3E7C13694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Marillion - Sounds That Can't Be Made (2012) [MP3|~245 кб/с (V0)]<Progressive
 ```bash
 magnet:?xt=urn:btih:C366528070C9AE3673C6C1AC644F24054A64B67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Korn - The Path Of Totality Tour: Live At The Hollywood Palladium (2012) [MP3|32
 ```bash
 magnet:?xt=urn:btih:C171A8F2DFA19AFE9FC07BD3B5E66EFBDF82927A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +216,7 @@ Helltrain - 3 альбома (2004-2012) Дискография [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ The Killers - Battle Born (Deluxe Edition) (2012) [MP3|320 кб/с]<Alternative 
 ```bash
 magnet:?xt=urn:btih:E699FF2A68C1D64350581E70CB3513BB21B9B7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81094708AE7158071F5D3EF2FCD2BBC37F25C097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

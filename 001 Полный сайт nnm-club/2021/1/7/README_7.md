@@ -18,8 +18,7 @@ FotoJet Photo Editor позволяет каждому в кратчайшие �
 ```bash
 magnet:?xt=urn:btih:10D2D3B155B9A697FB69E588B8DDC5BB6DABBCC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Mic Drop позволяет пользователям отключать и в�
 ```bash
 magnet:?xt=urn:btih:E58AD84A1D9CF6D579825AE67D6418B1DD367804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Filmage Converter (   Читать дальше...   )Тип издания: ma
 ```bash
 magnet:?xt=urn:btih:73F0BE39477E14C735F11F50FA3C0CEC08271433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:872E4F871A15F3B6765020D612F5644C0537C9DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ DirEqual - это инструмент сравнения папок, котор
 ```bash
 magnet:?xt=urn:btih:24238AA2B64541EAF57E785D018C3C51269CFE71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Textastic является мощным, быстрым текстовым ре�
 ```bash
 magnet:?xt=urn:btih:A2B1B3846314D8000A2CD6C5079A9CF794527642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ DiskCatalogMaker  - Простая утилита для управления и
 ```bash
 magnet:?xt=urn:btih:59AE7629CFE249F89714ADC2FAB914E3BF97574A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Screens 4 v4.8.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:17B102C19AE5967257E5CF0989F7B478A1E2D078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ ColorWell обеспечивает мгновенный доступ к стан
 ```bash
 magnet:?xt=urn:btih:B57F25A9E2E4A9D4745BE482938E85D21B64DD9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Photo Effects Pro предлагает большое количество тв�
 ```bash
 magnet:?xt=urn:btih:29820648867F6425679301E8D82814655D5445A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Gard Nilssen's Supersonic Orchestra - If You Listen Carefully the Music Is Yours
 ```bash
 magnet:?xt=urn:btih:CB476E328CA452C147482D53301FF1BA9552390C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Movist является простым в использовании и мощн
 ```bash
 magnet:?xt=urn:btih:7B3E1226E481539F1624C1C8E58C6AFA8BCF02A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ xPlan4 Desktop 4.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:CA1E7E20D5432F1D4244FAA7AECE67D3FE0E3927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ For Giants - There, There (2021) [MP3|320 Kbps] <Progressive Metal, Djent, Instr
 ```bash
 magnet:?xt=urn:btih:C7A165D8AAB33DC46F61A6B57E63297C7FCA44AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37C13277A40D156259E125114D0D9158E9849536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +406,7 @@ xLine  – приложение, позволяющая визуализиров
 ```bash
 magnet:?xt=urn:btih:88312CB93F55F632A3A5878AE8EB2DB323DE61EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +434,7 @@ Glass Kites - Glass Kites II (2021) [MP3|320 Kbps] <Progressive Rock, Crossover 
 ```bash
 magnet:?xt=urn:btih:D626D39C7EDDF7BF2C98350D987E15DFB31606AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ Catherine Wheel - Happy Days (1995) [FLAC|Lossless|tracks + .cue] <Alternative R
 ```bash
 magnet:?xt=urn:btih:E8067072FA8CBDDE295F98FA7B3ADF1A72BA05AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Aztlan - Legion Mexica (2021) [MP3|320 Kbps] <Melodic Death Metal, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:08A3B7DDD3809807A3BE7DE950875E8FD69630AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ Sithu Aye - Senpai III (2021) [MP3|320 Kbps] <Progressive Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:D42915AAB3208FE44E872A85A6D816653DA87CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

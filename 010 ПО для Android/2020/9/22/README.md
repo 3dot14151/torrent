@@ -19,8 +19,7 @@ ReGYM - это уникальный подход к ведению дневни�
 ```bash
 magnet:?xt=urn:btih:F6124A346ADCE3D1F4531B1A6B0A385B19F304E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

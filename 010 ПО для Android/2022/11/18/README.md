@@ -20,8 +20,7 @@ Shopping List SoftList v2.6.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C8D58F722C3D391CC8BFE5594B5D9726AA775085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3569A1CC71D8845142AC66E7081BDA30E265162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Anna's Quest (2015) [Ru/Multi] (1.1.0214) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C877DE45641462B4FB5120F9E8AC63C0DBC351D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd17) Repack SpaceX
 ```bash
 magnet:?xt=urn:btih:171D26BD9501F00F415784D8ABBEA8795331526E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Starpoint Gemini 2 (2014) [Ru] (1.9200/dlc) Repack SEYTER
 ```bash
 magnet:?xt=urn:btih:D93B0E30691DADCFE2A825F3B27F87A099BFE791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

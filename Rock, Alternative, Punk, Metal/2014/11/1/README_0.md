@@ -28,8 +28,7 @@ Factory Of Art - Grasp!!! (1996) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:E134DD5D8412F6CA78A0DF549695F47F69207DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Face-X - Relations (2006) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:990A89EB4F84F493B3ADEBF1D71B260C8A9F9FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Farmakon - Robin (2007) [FLAC|Lossless]<Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:F9505CF2B558E7ABC072E573BBCB9590B6BBA4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Colossvs - Unholy (2014) [MP3|320 кб/с]<Blackened Hardcore>
 ```bash
 magnet:?xt=urn:btih:C6994C132CC4498E28ED90BBD74CA1D862483D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Bril - Airless Alarm (2005) [MP3|192 кб/с]<Alternative/ Indie Rock>
 ```bash
 magnet:?xt=urn:btih:6557B2C4C92E2EABD065BF35D2FAE020ED1C2C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Mastercastle - Enfer (De La Bibliotheque Nationale) Limited Edition (2014) [MP3|
 ```bash
 magnet:?xt=urn:btih:DBD1A28B113E8B78CBB1EF108D251D20C777B5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Toxicola - На грани нервного срыва (2009) EP [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:187127E9D9E9E8A6670DAAA8799555BDAE06AEC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A104006D49ED384A5F141BBE8A2ED82846555A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ Smokie - Celebration (1994) [FLAC|Lossless]<Pop-Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:738DF512445C5D7251B1205B61A2D94D0E07C380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +314,7 @@ Phil Collins - Best Ballads (1996) [APE|Lossless]<Soft Rock>
 ```bash
 magnet:?xt=urn:btih:ADA81DFC90A002C615E7726AFCD809BADDC5D192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:D53537D30E90893BDBF3CB1F6D3989FFF456502D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +382,7 @@ Live - 12 альбомов + Ed Kowalczyk - 3 альбома (1989 - 2014) Ди�
 ```bash
 magnet:?xt=urn:btih:D1B3023AD1BE67A6F4EEEA502A75AB0700FD4C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFF0BFE2F558BC519E69B7D100261A8B3CB9E705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

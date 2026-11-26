@@ -22,8 +22,7 @@ VA - Константин Ступин. Трибьют, Часть 1 (2024) [FLA
 ```bash
 magnet:?xt=urn:btih:5D9752149737D91B8D5374A5F2843C324A13B110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

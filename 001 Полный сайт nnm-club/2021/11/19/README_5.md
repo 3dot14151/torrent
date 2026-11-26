@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:64D7EB36B90A1A78003F9451B5BE146C824EABBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149C4DFE7ECAF81E403800F678326F7A2C0D1A61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F398D17D570F5E61D91BCAC13013EC9665274AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Europa Universalis 4 - стратегия, разрабатываемая сту
 ```bash
 magnet:?xt=urn:btih:76EB9765044B9BFAFBDF7FC2B45B2C3E64434BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SeasonHit содержит огромную базу сериалов SD кач�
 ```bash
 magnet:?xt=urn:btih:4F872661F6BCAA0698163B0F846A2D3C99438C6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

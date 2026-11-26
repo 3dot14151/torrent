@@ -19,8 +19,7 @@ Grim Tales 17: Guest From The Future / Страшные сказки 17: Гос�
 ```bash
 magnet:?xt=urn:btih:E2F2BD93F77B8C66919BA5ADE718F09F87E07DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RAD — это трехмерный боевик с элементами rogueli
 ```bash
 magnet:?xt=urn:btih:37580E6C4AAC36F9A0AD86B4383727117911EFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

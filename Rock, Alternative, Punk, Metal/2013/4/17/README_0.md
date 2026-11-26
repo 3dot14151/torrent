@@ -27,8 +27,7 @@ Andrew Wyatt - Descender (2013) [MP3|320 кб/с]<Alternative/Indie Rock>
 ```bash
 magnet:?xt=urn:btih:7E81712D5AF457C372864783F18C26A9E0F848D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Troubled Horse - Step Inside (2012) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Various Artists - Guitarristas, Vol. 2 (2002) [MP3|320 кб/с]<Alternative and 
 ```bash
 magnet:?xt=urn:btih:04107B32F3957FF646E86A133D32DC7CEF2598EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Linkin Park Park - Studio Collection (2000-2012) 2013, iTunes Version [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:DC42AF699314319204004829BF5814D1B00A2D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Fall Out Boy - Save Rock And Roll (2013) /Scene/ [FLAC (tracks)|Lossless]<Pop-Pu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

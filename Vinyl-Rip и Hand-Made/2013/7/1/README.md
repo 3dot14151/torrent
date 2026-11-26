@@ -26,8 +26,7 @@ B4. Equinoxe Part 8Жанр: Experimental Electronic, AmbientПродолжит�
 ```bash
 magnet:?xt=urn:btih:71C9A88DC88A94E363CD7218E2B3750CE7D4466E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

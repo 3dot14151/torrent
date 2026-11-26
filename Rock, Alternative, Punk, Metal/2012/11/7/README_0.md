@@ -24,8 +24,7 @@ Larry And His Flask  - Hobo's Lament(EP)(2012) [MP3|320 kbps] <Folk Rock, Altern
 ```bash
 magnet:?xt=urn:btih:E7C4D0CA87C929694AEC8247E01C65C27806CC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Fogalord - A Legend to Believe In (2012) [MP3|320 кб/с]<Epic Symphonic Power 
 ```bash
 magnet:?xt=urn:btih:A444AF057D136E74FC3A182C7BB25D4858DC338A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ VA - Who Are You: An All Star Tribute To The Who (2012) [MP3|320 кб/с]<Hard R
 ```bash
 magnet:?xt=urn:btih:C57C7A0D5E38B212FD86EB76E6424E6E045BF710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ LEAH - Of Earth & Angels (2012) [MP3|320 кб/с]<Symphonic Metal, Celtic Folk, 
 ```bash
 magnet:?xt=urn:btih:9356B3EBEAE3D2017E05B8FC8C8EFFF52B37B24E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Aimersoft DVD Creator — это создание видео DVD, CD. Подде
 ```bash
 magnet:?xt=urn:btih:07DC1FB0B08E12E0B2698CCBA07AA3BE4A0D7BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2F56A8DBCFE8462F3AD7E198757BEEBEB76C2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2A9F318A308BBFCCF30B3EBFEEA1E9860630AC64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Cinderella, vol. 3 (50 Lovely Lounge Cookies) (2019) [AAC|~329 Kbps] <Loung
 ```bash
 magnet:?xt=urn:btih:EDC3E07C2AA4201391D1489F5807279F4B77DBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Network Kit X 8.0.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:FA1BA499A500B1F26881CCF9F831A188967AFE18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3E07848A53F0823D40E748DD856B2AC04356621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Cinderella, vol. 2 (50 Lovely Lounge Cookies) (2019) [AAC|~313 Kbps] <Loung
 ```bash
 magnet:?xt=urn:btih:3E7DA9EB7FB95EF50DAD74E8F29D9839046B649B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:776D147008790DEBB8C113091F8380313188EA91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ Dygitals - God Save The King (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EF0FAF79A757FD761F0E90E07101F378F9E32270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ VA - Modern Blues (2020) [AAC|~313 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:9571C670ADF7D2F98B908D0327C173ED4A12ED33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Viktor (UA) - My Guitar (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative 
 ```bash
 magnet:?xt=urn:btih:3779D9610487AF554F96A1DDB6095EBD3679216A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ Big Big Train - Empire (2020) Live [MP3|320 Kbps] <Progressive Rock, Crossover P
 ```bash
 magnet:?xt=urn:btih:238F237AB4BC2EF1D982FD0C727F7B69FE10BA94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Blues Masters (2020) [AAC|~310 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:EB15BD81F6F81D560D86B7FB573B656F582429B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ Lordi - Killection: A Fictional Compilation Album (2020) [WavPack|Lossless|image
 ```bash
 magnet:?xt=urn:btih:BBA0C8592AFA4875521B3D57145286CD6DD5C5FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1B6E7C6944FFA60A9B097AB1A4E0FC2C1CA564D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ VA - Cinderella, vol. 4 (50 Lovely Lounge Cookies) (2019) [AAC|~324 Kbps] <Loung
 ```bash
 magnet:?xt=urn:btih:ABF51BCD8F108E438EF264BE9CB9BC03B1895D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Iron Savior - Skycrest (2020) Japanese Edition [MP3|320 Kbps] <Heavy Metal, Powe
 ```bash
 magnet:?xt=urn:btih:4588B03773B8D1D4FA0078BAB20BCB43504174DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6FB4D47A956C86C6417EEB4A7B3FEC04FEA1750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E539B2CBA340E77223B5E3221024FA8682477C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Zoc terminal - является довольно известным telnet/SSH/S
 ```bash
 magnet:?xt=urn:btih:70FCE6C4A13D158A34FF81263FD1F67502355B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:A98F944CD3E134685C0DA734D797AB89EF707926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84B990F231D5FBACA054DA5C6E7EA678F91DAB22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ VA - Cinderella, vol. 1 (50 Lovely Lounge Cookies) (2019) [AAC|~326 Kbps] <Loung
 ```bash
 magnet:?xt=urn:btih:19BB1CA60D26A252A6B28ABDEA3CA22F667A3E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50A4B9FEFAF7465EFAAF9C2C75BAC7F962E5F086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E6FF89676FC8CB15FC995E59847370376E2E6D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ VA - Blues Masters (2020) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:B6A9195781F097376BCBA4056D10B286CF2BC06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

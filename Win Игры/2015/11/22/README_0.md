@@ -19,8 +19,7 @@ Invisible, Inc. - Contingency Plan (2015) [En] (1.0/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:A73008769278EAB802589060DE553958551A307A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Memoria – расскажет нам историю принцессы Сати
 ```bash
 magnet:?xt=urn:btih:97D918C94B33B84434AE9E70036A5F39941C06A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dofus - популярная онлайн игра, которая отлича�
 ```bash
 magnet:?xt=urn:btih:D69BEFBF667556FEF299A08D45EB4CAD99844144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

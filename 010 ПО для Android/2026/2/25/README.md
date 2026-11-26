@@ -21,8 +21,7 @@ Signal — это простой и безопасный мессенджер д
 ```bash
 magnet:?xt=urn:btih:D6049AE1D6B0EAC73381BA29DE866A72EA3B8785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

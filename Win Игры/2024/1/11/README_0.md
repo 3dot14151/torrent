@@ -19,8 +19,7 @@ Arma Reforger - экшн, делающий огромный упор на реа
 ```bash
 magnet:?xt=urn:btih:670B0E48ECCE6BACD24CF4401B887C020341C5FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bootlegger's Mafia Racing Story переносит в 1920-е годы, во в�
 ```bash
 magnet:?xt=urn:btih:85378993442FC73237428DFD81C3CCC3AE7BC9AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vagrus - The Riven Realms – ролевая игра с элементами с
 ```bash
 magnet:?xt=urn:btih:6DCAA5892C06DE16D1E5A69CA69B8CC7F6D874FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.4/dlc) Repack Other s [Collectors Edition]
 ```bash
 magnet:?xt=urn:btih:D8E348050C19857A9768D8DB47EAA711D1556B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Aquarium (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:92D913B314EDB15E0E8B7C34A32A36B992DD8B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

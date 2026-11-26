@@ -19,8 +19,7 @@ jetAudio проигрывает практически все цифровые �
 ```bash
 magnet:?xt=urn:btih:D9B4E5747CC00CB6CC9787007650389DD6C17FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

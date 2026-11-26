@@ -19,8 +19,7 @@ Growbot - это двухмерное приключение о девочке-�
 ```bash
 magnet:?xt=urn:btih:30780AE924C2A806E0F90F0C2A60431400C67374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Conway: Disappearance at Dahlia View - захватывающий триллер
 ```bash
 magnet:?xt=urn:btih:B00113CB89A0A6A070C0D20B0E926353E98D7F45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FATAL FRAME / PROJECT ZERO: Maiden of Black Water (2021) [Multi] (1.0.0.1.761591
 ```bash
 magnet:?xt=urn:btih:AA9A98986E2E9D78839DA462CDD4A5217485B57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Happy Game (2021) [Ru/Multi] (1.0.3) License GOG [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:13DB10A77B55A9C661158FDEFB51C855FDEAEBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Danger Scavenger – это напряженный роуглайк в стил�
 ```bash
 magnet:?xt=urn:btih:A2F3DF7386C4CCFFF617A04B424F557B9D19EAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

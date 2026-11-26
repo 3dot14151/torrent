@@ -19,8 +19,7 @@ Spirit City: Lofi Sessions - это не совсем обычная адвен�
 ```bash
 magnet:?xt=urn:btih:F9A864D6C58A07AC2E083250F95324672D3D3DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ System Breakdown - это не просто twin-stick шутер. Чтобы в
 ```bash
 magnet:?xt=urn:btih:18330E3227B75421CEFA252DAF603166335B223F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhounds - это пошаговая тактика и стратегия, вд
 ```bash
 magnet:?xt=urn:btih:756CA125B006FAA8E595722DE1DFA3E44C6B5E0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

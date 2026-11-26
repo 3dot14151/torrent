@@ -19,8 +19,7 @@ Christmas Stories 6: A Little Prince /Рождественские истори�
 ```bash
 magnet:?xt=urn:btih:1DF7E2ED5C76F715629780F0DA1B7236C3355D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ King of Dragon Pass (2015) [En] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:0EA24346401A473FE7A5DD3061297B727314D1F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Formata (2017) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:50DA8AA54FABEE12E1C784B7AE6A087A301BB5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nex Machina (2017) [Ru/Multi] (1.06 0073) License GOG
 ```bash
 magnet:?xt=urn:btih:AB3232A814A2A6AA8C9C9D72DB845723A33DDC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Disneyland Adventures (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:89114B5EE00411D74103D133FA2F284B3DE07417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (1.0.0.51) License SKIDROW [Pocket
 ```bash
 magnet:?xt=urn:btih:E3091228213EFB3F3A302A7A330DA658E2239252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BLACKHOLE («Черная дыра») – суровый сюжетный пла
 ```bash
 magnet:?xt=urn:btih:631A9FF6F695E12404BB575A0D84ECD41FDE1689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

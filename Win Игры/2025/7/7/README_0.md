@@ -19,8 +19,7 @@ Sea of ​​Stars стремится модернизировать класс�
 ```bash
 magnet:?xt=urn:btih:1C02E77BA02AAECF501731F821982354C273D0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Void War - это тактический рогалик, вдохновлённ�
 ```bash
 magnet:?xt=urn:btih:241F4188B8B587FA7670CA5B37637479C874AD69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grimstar – это стратегия в реальном времени с с�
 ```bash
 magnet:?xt=urn:btih:62251A5F32DC8A8C9F19264BFA61CB1162C086E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Eternal Strands - это дебютный фэнтезийный приключ�
 ```bash
 magnet:?xt=urn:btih:6BA2C261D364645F27F4CEA1F5BE06372C39D768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Still Wakes the Deep - возвращение к жанру ужаса от пе
 ```bash
 magnet:?xt=urn:btih:31E7BF327DBFD1C5577933835DF6F8DC26CDDF06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Railway Empire 2 (2023) [Ru/Multi] (64144 114/dlc) License GOG [Digital Deluxe E
 ```bash
 magnet:?xt=urn:btih:F25D5BA8C1879BB0218FBB9EDBACF212FE0BC25A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hidden Legacy: Dark Heirloom / Скрытое наследие: Темная р�
 ```bash
 magnet:?xt=urn:btih:0AE4B2AB80D831ADF51E63209308C8DEB223EA36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:57BC07A461A38AEF9A0414C7F6830106ED1A009A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7EE5BE721AEE70417BEAD7CF23B7251F6D7BCEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Unity зачастую представляют как набор компоне
 ```bash
 magnet:?xt=urn:btih:6C3510DDDBDD8E0DF8A2E2F7850CCC4A0A487630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

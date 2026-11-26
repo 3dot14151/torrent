@@ -19,8 +19,7 @@ No, I'm not a Human (2025) [Ru/Multi] (1.3.19) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D5241873534A7FA768B25BD0B9991EA2196F5D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F6EC7E096B26EBD51B08154CC87367B5264C5235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3D08FC0FBD25C797226053054E5CE7B3BE302D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Everybody's Gone to the Rapture / Хроники последних дней (20
 ```bash
 magnet:?xt=urn:btih:B21D86323D3CC91E674CEB2BEE36C5BF58DAC6F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ CorelDRAW Graphics Suite X8 18.1.0.661 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5C912B470F80FFD8DB37FD1826ABB625F6797011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

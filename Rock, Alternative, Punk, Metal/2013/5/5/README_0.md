@@ -28,8 +28,7 @@ Flotsam And Jetsam - Ugly Noise (2012) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:A3483080E25463789430FD4ABA9D5BC9B0619EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Bonus 1:
 ```bash
 magnet:?xt=urn:btih:43881394CF127D77E54A1BDDFB7398006E5E1E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Ghost (Sweden) - Opus Eponymous (2010) [MP3|320 кб/с]<Heavy metal, doom metal
 ```bash
 magnet:?xt=urn:btih:E077AD500E069DDD97B79B8D40C30B85E740128D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ The All-American Rejects - 5 Альбомов 5 Синглов (2000-2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:88FBBF9DE1950FA8018D13A416B970B00A3AD898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

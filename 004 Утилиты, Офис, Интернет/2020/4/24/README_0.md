@@ -20,8 +20,7 @@ GanttProject – свободно распространяемое програ�
 ```bash
 magnet:?xt=urn:btih:38A42A9B6F6BD79AF6F042ECA8A7CC4B43E6F85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dark Tales 18: Edgar Allan Poe's. The Devil in the Belfry (2020) [En] (1.0) Unof
 ```bash
 magnet:?xt=urn:btih:7DFDA386800750FD689D6B1901E83D176F8A0EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SCRUTINIZED (2020) [En] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:39282E45CD24793AA174BA80A04D70A7204077AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Necrobarista (2020) [Ru/Multi] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:7D92D6BA90C97D983DA2E53471C81BCD7A7FD517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Skully (2020) [Ru/Multi] (1.0.161.6416) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:4AEDCF5E65706055C4776E169F84F8C34DE48D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hellpoint - Action RPG в жутком фантастическом сеттин
 ```bash
 magnet:?xt=urn:btih:1743EEF74A831A8C6B8B06F63C5C1A99E162FB4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Relicta — основанная на законах физики головол
 ```bash
 magnet:?xt=urn:btih:94E6206E36B0CC341122FC2FECBE112472C6CDB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

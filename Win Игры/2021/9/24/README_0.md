@@ -19,8 +19,7 @@ Orphan (2018) [Ru/Multi] (1.0.2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:B0BE77FFD227709B72A723A172108B0301D52B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

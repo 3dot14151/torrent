@@ -18,8 +18,7 @@ VA - Fractalism (2010) [MP3|~265 kbps] <Psytrance>
 ```bash
 magnet:?xt=urn:btih:076E5E7185B1E8E5EC870A930BCDF17D54561A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Не дай себе замерзнуть с Europa Plus 50/50 (2010) [MP3|
 ```bash
 magnet:?xt=urn:btih:967018ECD151C42F95964C5B70072068470EEBC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Nighthawks - As The Sun Set (2004) [MP3|320 kbps]<Jazz, Lounge, Nu-Jazz, Electro
 ```bash
 magnet:?xt=urn:btih:A0B7E8E58D8783E83AC86025253C9EDC152C51CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - Ministry Of Sound: Clubbers Guide Electro 2010 (2010) [MP3|320 kbps]<Electr
 ```bash
 magnet:?xt=urn:btih:EB42512EF73C695F35B7DCCE125A509ABBF9553F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Marvin, Teddy and Luther - A Smooth Urban Jazz Love Letter (2004) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:241F8D591A6C5D21B8471F30752FBA5A38E5C77E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ VA - Маэстро шансона (2010) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:8B7D7C601D5227D07877CCA52019E7B4B563AF92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Pasadena Roof Orchestra – Isn't It Romantic (1976) [MP3|320 kbps]<Jazz/Swing/B
 ```bash
 magnet:?xt=urn:btih:D7F3E0204F463EAB8B4F18F5836863B45BD1FAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ ATTENTION DEFICIT - THE IDIOT KING (2001) [MP3|320 kbps]<Fusion/ Progressive Roc
 ```bash
 magnet:?xt=urn:btih:8BA8DAC0A65054CB2314CF4654396B27DC315B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ Astral Jazz - Dreams of Flying (1995) [MP3|320 kbps]<Ambient/New Age/Soft Jazz/R
 ```bash
 magnet:?xt=urn:btih:57B3FD77F1C497537CB7F05E13435AE2FB6FCB13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ VA - Хиты песни года Зимний (2010) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:1B6DF73F9E24F7B18C9E734AB343015CB6762461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ Real Comedy / Комеди Клаб / Comedy Club / Выпуск №13 (19.11.20
 ```bash
 magnet:?xt=urn:btih:C9C802BCB96A54C91E46BD1831D7D8BBD692B278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ VA - Звездный парад хитов Зима 50/50 (2010) [MP3|256 kbps]
 ```bash
 magnet:?xt=urn:btih:ECE0CEFB3FB04A219B3BE9886455A1F566EA91E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ VA - Лучшие Хиты MTV 5 (2010) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:009FBDEB0B95F80DBCACD5D5DB6497A4BFD1E5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ VA - Lightness (2010) [MP3|192 kbps]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:1F16B513C404ADE4E1739B48E273D1F510EA4D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D6B4950B2B62CA8CBA21F02AC83E5F00FC9F56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ Discovery : Спасение Чилийских шахтеров / Chilean miner
 ```bash
 magnet:?xt=urn:btih:4625646A41173CE2F7E5C586A5C53F44F16D9657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ UPgrade – еженедельный журнал о компьютерах и �
 ```bash
 magnet:?xt=urn:btih:E46FD0B8E5E19EE374A6B1868307DF748B7821AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ CD2: 01:16:28
 ```bash
 magnet:?xt=urn:btih:30A2E4131892E0ED0B01C62F0584236A2AE32CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B4B56EAB038FE95FD2D59A7BC6A2358A5D98960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +598,7 @@ VA - Клубная дискотека Record Vol.9 (2010) [MP3|256 kbps]<Clab, 
 ```bash
 magnet:?xt=urn:btih:DE122703DF180633CEA9A400B759A66BE0BA590A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +632,7 @@ Drawbacks - Blacklight (2008) [MP3|320 kbps]<Breakbeat>
 ```bash
 magnet:?xt=urn:btih:0B768FF1975F0738472E2B7E853EB431EC4C95E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +657,7 @@ Ferry Corsten - Right Of Way (Deluxe Edition) (2010) (22.11.2010) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:E99438DEFA6BE50EBC60B060FDB678FF1ECF4398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +708,7 @@ Audiokonstrukte - City Echoes (2010) [MP3|320 kbps] <Leftfield, IDM, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:6F4D167C93D19293D1332930AC6338C988665E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28424AC1E1A8088201F27D1D00C8303A5FCD2396
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Ravencult - Morbid Blood (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:ACAD19A62DBAFBBBC60D2DCA3BCA7F6EFBA99B52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Kyrie Eleison - ...In The Arms Of Decadence (2007) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:A2E13951D789665820115A9D8D3BC59FFE430950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Aosoth - III - Violence & Variations (2011) [FLAC|Lossless|image + .cue] <Black 
 ```bash
 magnet:?xt=urn:btih:5827C4862463DB9FFC1E95D97BA34AB97FA3B786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E198D4969ADA31CB68A098689C52C8AB5837A60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Infernal War - Axiom (2015) [FLAC|Lossless|image + .cue] <Black Metal. Death Met
 ```bash
 magnet:?xt=urn:btih:2D85D6577ECE3C28CFA7163CA618BAB58AD8E853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Night Slashers X – Ремейк кровавой игрушки в жанре 
 ```bash
 magnet:?xt=urn:btih:9C08B8CE1771426F7A4E191F79BF90665DB323F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

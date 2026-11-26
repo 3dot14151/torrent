@@ -19,8 +19,7 @@ Farm 2 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:F9ADD279DE705131A0A96C17A14FD7EEC743D073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jewelry Secret: Mystery Stones / Ювелирная Тайна: Загадочн
 ```bash
 magnet:?xt=urn:btih:473ECA0A6A5953F662B70D59E344582475EE7DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Golden Trails 2: The Lost Legacy Collector's Edition / Золотые Истор
 ```bash
 magnet:?xt=urn:btih:F10A87B3A6CF4660573BFA9E276A103798598E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sky Aces 1 / Герои Неба: Небо Вердена [Ru] (P) 2008 | mike19
 ```bash
 magnet:?xt=urn:btih:F49AB9AA2337794277214A1282D1106ED3B7E15F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Crop Busters / Моя усадьба (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:F656B82D47617E34CAED2CC2E93E77E6B0E26BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Mystery Trackers 2: Raincliff Collector's Edition / Охотники за тай
 ```bash
 magnet:?xt=urn:btih:C87A571EBF7726306EED3C24D587B20F9997365F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Bionic Commando [Multi9/+] (Lossless Repack) 2009 | R.G. Catalyst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ED32A3E4A284A1AE8F6996D54112E4DE1E74C2F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FBReader Premium v3.8.18 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:684F0C67C8B85C5BEE8C5807035726B3571A0251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.1.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A3C915FA054CECA8B08FEB5E2F52A464E08C61A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AI Photo Editor - AIFoto v1.15.3 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2848724FE5A0442425AEC7F6EBF06490CB2BCD96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2F142FEACF153952CB9EC7BE0CAC9C3DF36C274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:112EB4E4EE3050C37243DC7EDD29CEF42CFF99D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:F64420042C0A9EE5BAC9E37C33EF9AE13FD17E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:DDE768A0E9D9AFEF8A0D4E025363C4C6381B0AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Gallery - Photo Gallery, Album (XGallery) v1.9.9 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D1F6564363D87FB83B0025901907469EAEB00C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Folder Player Pro - это ориентированный на каталоги 
 ```bash
 magnet:?xt=urn:btih:A42CE0A9DE3D360589E7036CE4CEC85159B5E7F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95D8E385AFB676B33DDE92AC3A0C0352FF58B875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

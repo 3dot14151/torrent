@@ -23,8 +23,7 @@ Ordoxe - May Death Be My Shepherd (2015) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:A596CC7B1FB2D8A5BFFCEC71C4F599FF7E446190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Atlantean Kodex - The Golden Bough (2010) [FLAC|Lossless]<Epic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D827DA79A2BB19F039A44BAC1AC49CA1159E2F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ All These Fallen Trees - This Is Where We Are (2015) EP  [MP3|320 кб/с]<Post 
 ```bash
 magnet:?xt=urn:btih:1A0FB5A2CC2862526B6670DEBCDC511C8287D493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Tygers Of Pan Tang - The Wreck-Age (1985) [FLAC|Lossless]<NWOBHM>
 ```bash
 magnet:?xt=urn:btih:99861016A065A3DCC4C1E48932B24A793A5E30E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Katatonia - Sanctitude (2015) Live [FLAC|Lossless]<Doom Metal, Depressive Rock>
 ```bash
 magnet:?xt=urn:btih:E7936627F18443ACC18C177EA7914E2C1AAE2B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Motley Crue - Dr. Feelgood (1989) Japan [FLAC|Lossless]<Hair/Glam Metal>
 ```bash
 magnet:?xt=urn:btih:E71015031ACDB8E5AB541189BFA7DBB7C1732025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Deep Purple - Long Beach 1971 Live (2015) [MP3|320 кб/с]<Rock, Classic Rock, 
 ```bash
 magnet:?xt=urn:btih:285E3E79CED40208B3E6D3152A8B40487CD79FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Hollywood Undead - Day Of The Dead (2015) Best Buy Edition [FLAC|Lossless]<Alter
 ```bash
 magnet:?xt=urn:btih:0CA214651D1691B2327AF02214A301F36CBB8BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Diaboli - Wiking Division (2015) [FLAC|image+.cue]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:8E54D086D1601BA8BB30CC4336D5E8722B864147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Major Parkinson - Twilight Cinema (2014) [FLAC|Lossless]<Progressive Rock, Art R
 ```bash
 magnet:?xt=urn:btih:F23525B3311ED839FFEE00EB399B6F477BA92753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ TesseracT - Polaris (2015) [FLAC|tracks+.cue]<Progressive Math Metal>
 ```bash
 magnet:?xt=urn:btih:7E00DF56EC993FE554EB2E5B8BAD9C4C40E5EFE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Zdob si Zdub - 20 de Veri (2015) [MP3|320 кб/с]<Folk Rock>
 ```bash
 magnet:?xt=urn:btih:8F797AF9671EE557E631E8130A97CEEE935C33B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

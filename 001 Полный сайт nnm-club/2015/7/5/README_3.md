@@ -18,8 +18,7 @@ Discovery: Разрушители легенд. Посадка в самолёт
 ```bash
 magnet:?xt=urn:btih:B7BD394A0E5E2FE63961DCE6126C6CD2CD1D7741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Союз летних хитов от Европа Плюс. Часть 4 (
 ```bash
 magnet:?xt=urn:btih:DADF25A8E75B108B03AE38C27F12091C54224BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF9952B0F1DDFE8EC0B3291402382A6BC9AC260D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F94B17E83D141C58BE057655A8C951D522D2A8F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:885A3D002B9795AFD33CEA1A7775302D201D7775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Animal Planet. Большие и страшные / Biggest and Baddest (2014) H
 ```bash
 magnet:?xt=urn:btih:AA869747A78CC07E927C2A1C8EAAF1D125A81578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ WinX HD Video Converter Deluxe - профессиональное приложе
 ```bash
 magnet:?xt=urn:btih:71B37175E970091611AD809288E05A806E7CEF0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Grim Tales 4: The Stone Queen / Страшные сказки. Каменная 
 ```bash
 magnet:?xt=urn:btih:E8D8D326EE8A3F570E7F243C5059A033BF028884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Mail.Ru Облако 15.05.0110 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:32BD2A23ECF86131AA4AACF8B459BC4D8F8EFE16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CDFDC4727EC4B0B80E427630CEDB7ACEE7967D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FE7F6A268E3089C33F2875FACAD54E4E9199BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Grim Tales: The Bride / Мрачные истории. Невеста (2011) [Ru
 ```bash
 magnet:?xt=urn:btih:92B8EE3D09D966E945D988470F029341FB02E4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Grim Tales 2: The Legacy / Мрачные истории. Наследие (2012
 ```bash
 magnet:?xt=urn:btih:4991BE309AE0EDAC7AAB14B605F1BC09EA5CFE0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +349,7 @@ Dance Battle - проект в стиле танца с неоновым эфф�
 ```bash
 magnet:?xt=urn:btih:B583ED0E8A81040A4A483F5E8C0919A4109E7152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Overkill - широко известный и популярный тир от �
 ```bash
 magnet:?xt=urn:btih:12B605C363E16C0EE7C28F4C1B7E11B0873CF196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:333140572C65A5450B3FD902E079329A65CFBF64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +426,7 @@ Danse Macabre 4: Thin Ice / Танец смерти 4: Тонкий лед (2015
 ```bash
 magnet:?xt=urn:btih:27BA43A864F04BADDB9AEE382780A5B9DCFB15E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38DE60902E68D8CB04319DFB7F7DD07F9635C4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ Discovery Channel приглашает вас забраться повыше - 
 ```bash
 magnet:?xt=urn:btih:5F450C70967E9C23FD7617CC097EC167F99FCBF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ Grim Tales 7: Color of Fright / Мрачные истории. Цвет стра
 ```bash
 magnet:?xt=urn:btih:77A32D3B17E0394642F27148EE15EF207F00C2A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ Animal Planet. Большие и страшные / Biggest and Baddest (2014) H
 ```bash
 magnet:?xt=urn:btih:1523EB8991A835B61C7AAA462E4D48F9697F407E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C9D531BE7B7B5BBBA9DE0A6E60DAB4D5AA211FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +602,7 @@ TwistedBrush Pro Studio - программа для художников. Она
 ```bash
 magnet:?xt=urn:btih:D97BDF0B0A158F304AD00D3281F49FA4ADD95F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +627,7 @@ Grim Tales 6: The Vengeance / Мрачные истории. Возмездие 
 ```bash
 magnet:?xt=urn:btih:37693130B0E818AA94CE4E4AFF8E876D5DF14663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DED3CD95558DF26FD320B3BB16056306472C26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

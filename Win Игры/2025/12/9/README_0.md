@@ -19,8 +19,7 @@ Mount & Blade II: Bannerlord представляет собой долгожд�
 ```bash
 magnet:?xt=urn:btih:83192B165F27D8BCFC468987838A75A0C64D39D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yakuza 0 Director's Cut - полное издание отмеченного к�
 ```bash
 magnet:?xt=urn:btih:F6A200B24CBA5DBB9B6C8EEB521F069D606DFCCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ No, I'm not a Voenkom (2025) [Ru/En] (build 20799770) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:C408A8D65705B5DF14BD78F723C82D5E5FBEDBA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Yakuza 0 Director's Cut - полное издание отмеченного к�
 ```bash
 magnet:?xt=urn:btih:AE86B7ED13C0F6B110B71BD0341CC03434531BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (build 20948151/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:4D7E638B09890B52ACF7B980CF090D341EF4C073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:4756F7D7FA0B3300081CFB17D4717DB7ABAB69C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mara (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:64D429EC35ED64A4B8E6EB536C8D946E15994280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.4b/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FF9B1A16F6A1AF8A7B3A255355486C889508524F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Summer Trip Cruise - это сложная аркада, где вам пред�
 ```bash
 magnet:?xt=urn:btih:628421328D169AEA5B510BC59FDB4D89166991A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

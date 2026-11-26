@@ -27,8 +27,7 @@ Skogen - I Doden (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:E038A350DA1C3A66CA34D5523DD964617219CFD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Stormheit - Pohjanmaa (2014) [FLAC|Lossless]<Folk/Black Metal>
 ```bash
 magnet:?xt=urn:btih:50DD30AB703865F869BBEC2016DA3C434061C41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Deke Dickerson and the Trashmen - Bringing Back the Trash! (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:9045E4E8DB111F662BABCD96286F44D0B58E5183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Black Eyed Sons (CD1)
 ```bash
 magnet:?xt=urn:btih:D7C4A8B55C507C1D12F3B704E8EF404316100D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Skull & Bones - The Cursed Island (2014) [MP3|320 кб/с]<Pirate Power Metal>
 ```bash
 magnet:?xt=urn:btih:832098BD2191E04E7F5A645721985DC047BF8B7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:819CDEC85DFA1195A5E6BE92D725479433B85A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Snake Eye - Ritual Instinct (2006) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D8DB4BA6E1885BF1583B4B615110ACE76C0CFAE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

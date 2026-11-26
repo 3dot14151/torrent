@@ -19,8 +19,7 @@ Copy Text On Screen v5.0.7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F2C8D47412569B982E5B4536FB3029588B10B4D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CF8052AEA41F02CF189FD9336BFB7E4F83427FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Poster Maker & Flyer Maker v3.6 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2FBB04109118379666ED6E8CA8B972106D55C752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:576520986639C10B49141C1F42258F446D316132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Rutube v28.4.4 Mod by Alex.Strannik [Ru]
 ```bash
 magnet:?xt=urn:btih:7E3811D5E2E1ACCB74B9443CFDEDE01095AE45BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

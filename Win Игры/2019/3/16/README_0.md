@@ -19,8 +19,7 @@ Wanderlust 2: The City of Mists (2019) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:F02FDD6FC83A344F4FB8D96DB2BE72141E31F0FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Steel Rats (2018) [Ru/Multi] (1.0/upd2/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:1DE2A7061730597670CF0660105E1918163E35BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DESOLATE – это хоррор выживание от первого лица
 ```bash
 magnet:?xt=urn:btih:24505590670A87934F8AF109FC12958C03880F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

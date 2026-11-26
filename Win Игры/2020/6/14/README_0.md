@@ -19,8 +19,7 @@ Pro Cycling Manager 2020 (2020) [Multi] (1.0.0.2) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:B6D5F9F213AF7D507D40B10B10CB825DD140C3A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SKYHILL: Black Mist (2020) [Ru/Multi] (1.0.002) License CODEX
 ```bash
 magnet:?xt=urn:btih:B939FE6236EBBCCB2CB7E88BCC8DC55F05AEED7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

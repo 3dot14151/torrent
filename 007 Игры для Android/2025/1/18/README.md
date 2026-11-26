@@ -19,8 +19,7 @@ Pro Pool 2025 v1.60 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:797202F5CF1F7B825441FDFAF1061E9D17971431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

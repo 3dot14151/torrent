@@ -18,8 +18,7 @@ DiRT 4 игроков ожидает новый революционный ре�
 ```bash
 magnet:?xt=urn:btih:59085C6090F75FF238A323BABA5F809F39ACE046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFD790030574E8AD38988B7EE728416EE95DD6B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

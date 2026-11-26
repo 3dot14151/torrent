@@ -22,8 +22,7 @@ Loudness - Tokuma Years (2012) Japanese Edition [WavPack|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:685AF11923A54C1DA56CDC695FDDE543DDFC5863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Loudness - Masters Of Loudness (1996) Japanese Edition 2CD Compilation [WavPack|
 ```bash
 magnet:?xt=urn:btih:90698FD8BB77317E00945ED50E33253D16B1F967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Loudness - King Of Pain (2010) Japanese Edition [WavPack|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:A3BE3F9036603477B4B26E027D3A8F85C449503F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ W.H.I.T.E (White) - Бий першим! (2007) [FLAC|lossless|image + .cue] <Al
 ```bash
 magnet:?xt=urn:btih:90A76DC6435B22DAFDE4FB8683FB6B0F2D10F816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

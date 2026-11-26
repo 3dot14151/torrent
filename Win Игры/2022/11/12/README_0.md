@@ -19,8 +19,7 @@ Cемья девушки по имени Шэннон переживает тя�
 ```bash
 magnet:?xt=urn:btih:CF7013469C309EE3C205B7C3D6D6C56C766BC910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

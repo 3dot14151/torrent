@@ -19,8 +19,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Repack Other s [Alex Murphy 
 ```bash
 magnet:?xt=urn:btih:BE59C3CD95A655EC8A39E8A1757A5524045623F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Police Simulator: Patrol Officers - симулятор полицейского,
 ```bash
 magnet:?xt=urn:btih:DD13CCA995801610BFDB48B69D773E2DE4CC76B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Devil is in the Details, это хоррор-игра от первого л
 ```bash
 magnet:?xt=urn:btih:AD85C66DC303E9F7F443B4A8E10A1DAEDDEA2B04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Portal with RTX (2022) [Ru/Multi] (Build 14355597) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C661DE9D4C44270A61A3CFB21954AE1CB2583164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Glitchpunk - отдушина для всех любителей динамич�
 ```bash
 magnet:?xt=urn:btih:8129DBA183FD3A75AD1CD3EF12F4053973491D7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cobalt Core - это инновационная научно-фантастич�
 ```bash
 magnet:?xt=urn:btih:85AADE39A1F939DED8156BE74AAE02A3DC80A514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Waveform (2012) [Multi] (1.0/dlc) Scene PROPHET
 ```bash
 magnet:?xt=urn:btih:9B1E899FF12AD82B4F329B0B1F304F7604E70C70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4A7ACA71C1A8ECFF498DB5FF91F36BD4D8A41F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

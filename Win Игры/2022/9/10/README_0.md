@@ -19,8 +19,7 @@ The Zachtronics Solitaire Collection (2022) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D40C620296DFB860D44C4CF9F28BE2EB6B5B625F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ F1 2012 (Update 1) [Ru/En] 2012 | Fairlight
 ```bash
 magnet:?xt=urn:btih:D95360B2449DED6DD12A01D167ECD88E6C9222F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Where Angels Cry / Там, где плачут ангелы [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:73C74AC67312C4FB55AC734A17AE489F04E52C6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

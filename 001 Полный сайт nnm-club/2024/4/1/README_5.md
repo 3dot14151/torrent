@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F2688F2303DC29C64F3FE73D173E6BE846A533E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Serial Box & SerialSeeker 04-2024 [En]
 ```bash
 magnet:?xt=urn:btih:E5FCEE90AA7A685E1EAE8725569121DD86E26EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ DataSpell — IDE для Data Science. DataSpell создан специальн
 ```bash
 magnet:?xt=urn:btih:A8F671409B5D380B1BE9389C18A08DA738BF4BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9074A868DC39D05FA83BCF6B7A6DC91C4843B178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:487DB6B79CFF95E36DEBB6AA89C4DB3046E2EAD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Great Pretender | Великий притворщик [2020, Web, 23 из 23] WE
 ```bash
 magnet:?xt=urn:btih:9C41CA3B013E6E5DD20FE9E5A9E291F4D786B6F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6944A57E7627CD87A68022D49B07AB5EF7F2C88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Incredible Bee Archiver 4 for Mac v.4.2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FA4CC76462EF0AF35930F2E236758DCDC523D56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Stardew Valley (2016) [Ru/Multi] (1.6.3) Repack Other s [AD]
 ```bash
 magnet:?xt=urn:btih:B15A7288313609DEF723F0CDF403DC614E0D9094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:B060BDA8D4A0FBF9AA6F61B316F09A09437E11B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ HD Video Converter Factory Pro - удобный конвертер всех на
 ```bash
 magnet:?xt=urn:btih:CC8741B5984750DB9BE0DA7F0619B19825EB9D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

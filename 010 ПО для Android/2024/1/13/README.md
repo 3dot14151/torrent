@@ -19,8 +19,7 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:DE7DA300DD00055E5767466F0125FAB6BFDAF174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:830226C0DB078D0CAC940FB26C7503465141E508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ToonMe v0.6.103 Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9526D14DF6FFE9609B7EDA3459A18DE66A133438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Reface v4.2.0 Mod by Mixroot [Multi]
 ```bash
 magnet:?xt=urn:btih:BC5674BC1BBCF999ECA88BE1F42EBADEEC3B7804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

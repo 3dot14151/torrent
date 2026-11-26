@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:28F90F9E29DD33421F21CECDD0B5F8644E9AEAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B66502B3754764D0315CA0A5044D364C28D6903E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ JavaScript - основной инструмент веб-разработчик
 ```bash
 magnet:?xt=urn:btih:CC7C4E5300959AF992FAE6B61A4B36217BBCC860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

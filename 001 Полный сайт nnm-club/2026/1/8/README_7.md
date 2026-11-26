@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1CEB79B32C30C14CBC064E7423C16E73AE0F3936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Blood: Refreshed Supply (2025) [Multi] (2.0.3116) License GOG
 ```bash
 magnet:?xt=urn:btih:E8289C0241D9F569EE4B338E3134D3591D5BD394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

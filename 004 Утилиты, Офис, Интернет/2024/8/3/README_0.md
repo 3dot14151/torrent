@@ -19,8 +19,7 @@ CareUEyes 2.4.0.0 Pro Portable by FC Portables [Multi]
 ```bash
 magnet:?xt=urn:btih:5FFB578F6B10F47175B4923432981B13492BE571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

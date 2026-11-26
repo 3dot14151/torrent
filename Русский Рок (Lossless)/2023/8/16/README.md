@@ -25,8 +25,7 @@ Moroz Records представляет…
 ```bash
 magnet:?xt=urn:btih:2A806F67E20788B4C4ED8FA28EF1007FE3925B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

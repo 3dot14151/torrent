@@ -19,8 +19,7 @@ Criminal Archives: City on Fire (2021) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:E6921DB32CCF5EA1830E77C794E30A461C5E5D86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

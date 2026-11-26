@@ -19,8 +19,7 @@ Plague Inc: Evolved - сверхпопулярная игрушка, хорош�
 ```bash
 magnet:?xt=urn:btih:BBB81E8360D7E9ABD468F32D79015F588940B671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Post Human W.A.R – пошаговая тактическая и психоло
 ```bash
 magnet:?xt=urn:btih:E3D6A559DA673334DBE7DC74A853EAB599874003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deluded Mind (2018) [Ru/Multi] (1.8.6) License CODEX
 ```bash
 magnet:?xt=urn:btih:2B19E93C8CD83F70C21EE9DC9ACC5828882E585E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

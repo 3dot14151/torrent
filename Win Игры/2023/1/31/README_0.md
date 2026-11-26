@@ -19,8 +19,7 @@ WHALIEN - это короткое приключение, сосредоточе
 ```bash
 magnet:?xt=urn:btih:822038326D6730A1B9D65E86F5EDB72DE9523F9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:26FFA101374C539520649859F6265D84171794F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

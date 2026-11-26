@@ -19,8 +19,7 @@ Heavy Rain: Move Edition [PS3] [+MOVE] [EUR] [En/Ru] [4.46] [Cobra ODE / E3 ODE 
 ```bash
 magnet:?xt=urn:btih:CBBCF4272767F31EB5E40C4C70C0C857E4341C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F3C9F7DFD9A3F4EE1D38D6ACC4503C312D0B09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Free DWG Viewer - бесплатный просмотрщик CAD-файлов �
 ```bash
 magnet:?xt=urn:btih:385456A479DBBC86DEE2D6ADCFFCDE38DAB17998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Train Simulator 2014 является следующей частью серии
 ```bash
 magnet:?xt=urn:btih:11D5CDE81BA71A367846BDACB0509EDBD276F263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:351203523534F535C47C861BF95D7F5C9A97A850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:165D556F4E3A15E47B8BD7BEBA9C8B744AF10C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Europa Universalis IV/4 (2013) [Multi] (1.3/7dlc) SteamRip _PALADIN_
 ```bash
 magnet:?xt=urn:btih:E3B491D98E9050E9671FCC038C3AC51E98867321
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Diablo III [PS3] [EUR] [RUSSOUND] [4.30] [Cobra ODE / E3 ODE PRO ISO] (2013)
 ```bash
 magnet:?xt=urn:btih:F66E776304ADAD2C3DF427344E75F4525ABC746B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ FIFA 14 by EA SPORTS™
 ```bash
 magnet:?xt=urn:btih:DBF38CA513BB284714BB759621814871AD8C392A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Bulletstorm (2011) [Ru/En] (1.0.7147.0/2dlc) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:58221FADE7C6282C3A71811726B12401ED9BFC18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Windows Desktop Gadgets 2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D70806E9EFD264E66D57E54A44DE6AB14F29CD35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ KMSmicro 5.0.0 - локальный KMS сервер для активации W
 ```bash
 magnet:?xt=urn:btih:9D46368B2E01EB3E6105EA8AC653637B12279124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Batman: Arkham City / Batman: Аркхем Сити (2011) [Ru/En] (1.1/dlc) ReP
 ```bash
 magnet:?xt=urn:btih:81312FD44B3C5EB78D331C88438A36E497A2E503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

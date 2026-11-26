@@ -22,8 +22,7 @@ Acid Drinkers - Vile Vicious Vision (1993) [APE|Lossless|image + .cue] <Thrash M
 ```bash
 magnet:?xt=urn:btih:B33ED4397597C8289F565C2D05BE1579475ED536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Baskerville - Opus Aeternum (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:62418F53F9B820513F558323B0CFF429999650D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Art Boys Collection - Stoned Wall (1972) Reissue, 2001,  Garden Of Delights [MP3
 ```bash
 magnet:?xt=urn:btih:DAB60AEDAF2B559A52D947139A9CE0DF6F9246CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nocturnal Rites - Phoenix (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:233C201DA32AA4F63099C5560F66472E0C692364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Power Of Zeus - The Godspel According To Zeus (1970) Reissue, 1995, Buy Or Die R
 ```bash
 magnet:?xt=urn:btih:0E6F5DD8A9E1B7A76D472D933D9F543C39F9F0F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Iced Earth - Incorruptible (2017) Japan [FLAC|Lossless|image + .cue] <Power Meta
 ```bash
 magnet:?xt=urn:btih:A6D68D8B9988F3955C6E255733056A3F06BA2B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Eloy - The Vision, The Sword & The Pyre (Part I) (2017) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:A69A520ECAF9B73388D3F27435F9517A37DC63BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Suzi Quatro - Legend: The Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ha
 ```bash
 magnet:?xt=urn:btih:3AFC4D277F262DFAE9723150625D095904D0608A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Def Leppard - Best Of (2004) Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:C5D6761DE064FC96BBD4EE396A7BF980C1E53D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Deep Purple - Fireball (1971) Anniversary Edition, Remastered, 1996, EMI [FLAC|L
 ```bash
 magnet:?xt=urn:btih:36F277116671F2493816841F35D1092C7BA91010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Gun - Favourite Pleasures (2017) Deluxe Edition [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:547BB55722C66F659226A7A9A33F5420B8552883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Suzi Quatro - Legend: The Best Of (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B26A1E3F80CF31435ED82274B98A055ACDBEBC04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Deep Purple - In Rock (1970) Anniversary Edition, Remastered, 1995, EMI [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:F0E89C99940C67AB45B463B37061F89CF1A1A7E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Kaleo - A/B (2016) special russian edition, 2017 [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:01C4E35A2693435B44D6174A2B4F4218B54EE19F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

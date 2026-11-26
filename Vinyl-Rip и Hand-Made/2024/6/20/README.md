@@ -22,8 +22,7 @@ A4	Jeepster(   Читать дальше...   )Жанр: Pop/Pop-RockПродо�
 ```bash
 magnet:?xt=urn:btih:B4E52343C307AF1F76EAF557F0D0A7B729BA2A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

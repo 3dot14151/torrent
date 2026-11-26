@@ -28,8 +28,7 @@ Oberg - Blues as Blues Can Get (2009) [MP3|320 kbps]<blues-rock\ hard rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Avrigus - Beauty and Pain (EP) (2010) [MP3|320 kbps]<Orchestral Doom Metal, Ambi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

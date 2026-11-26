@@ -22,8 +22,7 @@ Coney Hatch - Coney Hatch (1982) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:39EEC27358B659AC50FB44625C3AB2719E427C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Saxon - Battering Ram (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6847B4D4630F4F1885FB39CD4E32E30FCF00A93D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D88A9F874EAD0692486BF0887679EF36360A5923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Within Temptation - Интервью с Шарон ден Адель на рад
 ```bash
 magnet:?xt=urn:btih:15E587A6032E7FEDB6F196598F81EF1696A9C198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

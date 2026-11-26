@@ -20,8 +20,7 @@ Sea of Lies 5: Beneath the Surface / Море лжи 5: Тайны глубин 
 ```bash
 magnet:?xt=urn:btih:8294EAB89608FEF0B144CAD9CCA15B7AE28F727B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Queen's Quest 2: Stories of Forgotten Past / Королевский квест 2
 ```bash
 magnet:?xt=urn:btih:9FC1949753F48CAAD10AD2028E0934EA871401B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Deltaplan Simulator (2017) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:4B4BFD85FDE35BE7BEC80C00785D8473FA71B6BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Ms. Holmes 2: Five Orange Pips (2020) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:BC770576DA78CA31B9C4383C4D821E8B574A0E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Observation - это научно-фантастический триллер, �
 ```bash
 magnet:?xt=urn:btih:A167B0B92793B6F172A5231EEC988021294630A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MX vs ATV: All Out — настоящее головокружительное �
 ```bash
 magnet:?xt=urn:btih:EDEC253B66EE02E5C44090CA8B9C606493C2B7F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alien Shooter 2 - Reloaded - это полномасштабное продол�
 ```bash
 magnet:?xt=urn:btih:7F066DD96B57B4EA4ED4C6DC51A7805CD049C7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Avenging Angel (2018) [En] (1.0.5) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:AFFA196CD4535123FBC2A41AB1DB9E97C1EAFBFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Death's Gambit — это хардкорный 2D-платформер с эле
 ```bash
 magnet:?xt=urn:btih:5737F047755437ACB60FC8124FA32B2AFD129A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Persistence (2020) [Ru/Multi] (1.0HF) License CODEX
 ```bash
 magnet:?xt=urn:btih:36C724D1C94A2D944FACD22167B2BB6868F88FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Fury Unleashed создан в сочетании вдохновения от с
 ```bash
 magnet:?xt=urn:btih:1B3617E3B8933BE6D4FC1CDDE2BB903FB321160D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Persistence (2020) [Ru/Multi] (1.0/HotFix) Repack Other s
 ```bash
 magnet:?xt=urn:btih:84F478269C3543E9126A107A9BE1E4278205EC52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Moving Mountains - Foreword (2008) EP [FLAC|Lossless|tracks + .cue] <Rock, Post 
 ```bash
 magnet:?xt=urn:btih:9D326558F39CFC41A20A0716CBB4EAC1502F4DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ La Dispute - Somewhere At The Bottom Of The River Between Vega And Altair (2009)
 ```bash
 magnet:?xt=urn:btih:29C24023BA5E9CA58474F665AB2B59842FD7F58F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Magic Band - Back To The Front (2003) [FLAC|Lossless|tracks + .cue] <Alterna
 ```bash
 magnet:?xt=urn:btih:111A1AB8E59459AFD0B720F68438A04C1E8C14D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Blues Traveler - Hurry Up & Hang Around (2018) [FLAC|Lossless|WEB-DL|tracks] <Ro
 ```bash
 magnet:?xt=urn:btih:D2DBF85ECCBD0B1AB50620BAB64F201DA5A76088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6841AE8555343B3089E28D227E5708586B091009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rave The Reqviem - FVNERAL [sic] (2018) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:1F51F368D86DA2675C9C3995760DDDA88A3941C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Bad Company - An Introduction To Bad Company (2018) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:4ED9994AB6DA7FC4C2A179AE344671EB07D9A7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Bonfire - Legends (2018) 2CD [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8FF8011AC1A92C6D467A3BD4E91070CBA099FD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Soulfly - Ritual (2018) [MP3|320 Kbps] <Groove Metal>
 ```bash
 magnet:?xt=urn:btih:1FB8D57D8E428455C8CDDDB475F6FB517F4E7FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Amaranthe - Helix (2018) [MP3|320 Kbps] <Modern Metal>
 ```bash
 magnet:?xt=urn:btih:F3D998B57243CD91DD28309CEF19029974BFC3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

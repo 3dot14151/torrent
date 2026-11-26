@@ -22,8 +22,7 @@ Brandon Flowers - Flamingo (2010) [MP3|320 кб/с]<Indie-Rock, Alternative Rock
 ```bash
 magnet:?xt=urn:btih:0F7DE1AA803DC0CE9B8C07F94ED5F566A88FA3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Queen - A Day At The Races (1976) Digital Master Series /1993, Parlophone/ [FLAC
 ```bash
 magnet:?xt=urn:btih:53E0F223F718EA2F88D62E3D9EED5503C3452EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Kiss - MTV Unplugged (1996) [FLAC|Lossless]<Rock, Hard Rock, Acoustic>
 ```bash
 magnet:?xt=urn:btih:582C5DC7595A4634F43C74B41C1D5D303C9231D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Led Zeppelin - The Soundtrack From The Film The Song Remains The Same (1976) Rei
 ```bash
 magnet:?xt=urn:btih:2BD79B108663CEE5D2F527485063F73D5D60F313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Mark Knopfler - Tracker (2015) [FLAC|Lossless]<Rock, Blues Rock, Folk Rock>
 ```bash
 magnet:?xt=urn:btih:AB202BD18B34A9436DD5E8C6ABFC93ACF7F6A043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

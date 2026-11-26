@@ -19,8 +19,7 @@ Hirilun (2022) [Ru/Multi] (1.0c) License GOG
 ```bash
 magnet:?xt=urn:btih:A14CD5734E784C8172B266A05E27A02986E1553E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aztech Forgotten Gods - это динамичное приключение в а
 ```bash
 magnet:?xt=urn:btih:D712514DBA6C96D894E0EA1432692D08D8496A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

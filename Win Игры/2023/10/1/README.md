@@ -19,8 +19,7 @@ Tails Noir Preludes (2023) [En] (11891862/dlc) Scene Tenoke [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4363A7E36BFB58E833586F7B2FB9050CCB870DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Backbone – это постнуарная детективная RPG, где в
 ```bash
 magnet:?xt=urn:btih:CE9D0FC9B368826F112A5C1450BE0569A778DFEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AMID EVIL выполнена в духе прародителей жанра FPS
 ```bash
 magnet:?xt=urn:btih:4F759E776541926C5868F61449F63E668294F6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ No Sun To Worship (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BFA2D2AD339B10F90990F3E5A018C2DF761D91CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Torn Away — интерактивная история, собранная из
 ```bash
 magnet:?xt=urn:btih:B5B0352DA63C7C55B42FCD5B69F0D0616CC85349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Wardenclyffe - Temple of Solomon (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom
 ```bash
 magnet:?xt=urn:btih:F9C81EF8E3E778791EB82069E5EF77684F4F08D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Hammer Fight - Profound And Profane (2016) [APE|Lossless|image + .cue] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:3115F304EBE6F802D62F8FEF6CD4F44ECB92B55C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Paraxism - .xism Excursion (1996) EP [WavPack|Lossless|image + .cue] <Progressiv
 ```bash
 magnet:?xt=urn:btih:37348D4004E81343E5912821FD527D805DA808DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Parthian - Desolation of a Ceaseless Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:4C7E5A22BCFB0CB94F8495F75B218F08C5BF12FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Wolf Counsel - 5 Albums (2015-2022) [MP3|320 Kbps] <Doom Metal, Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:AA15FE87A97915183C68CF7AFFC197BDCC02817B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Mystic Circle - Drachenblut (1998) [FLAC|Lossless|image + .cue] <Symphonic Black
 ```bash
 magnet:?xt=urn:btih:3D2B07AB183545077E677D6CA37A3DA5AC41F207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Sedimentum - Suppuration Morphogénésiaque (2022) [MP3|284-296 kbps VBR] <Death
 ```bash
 magnet:?xt=urn:btih:F73D80917E4A6DD96B32FBCED5ECE9964A84B899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Nightmare - Aeternam (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal, Fe
 ```bash
 magnet:?xt=urn:btih:567E050CEC7FC7688A1AF21D0E8132435A9BA1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Chris Spedding (17.06.1944) - один из самых разносторонн�
 ```bash
 magnet:?xt=urn:btih:B1C5D0979DC7634B16A8E3C9173268F776DF3CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Watain - The Agony & Ecstasy Of Watain (2022) [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:A1FCBD2780ED779834725C71EF6582C097B211D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Out of This World - новая потрясающая группа, образо
 ```bash
 magnet:?xt=urn:btih:AFFC4F7D424CD9854E026A5B20647A091D3C450F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ The Goo Goo Dolls - Chaos In Bloom (2022) [MP3|320 Kbps] <Alternative Rock, Pop-
 ```bash
 magnet:?xt=urn:btih:D3A373165D357CDD6D37BDCA40B9CFF5574E16F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ AC/DC - High Voltage (1976) Reissue, Remastered, 2003, Epic [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:5D1B1E8AB674EE8FB755F7FE1101B94FA7909B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ AC/DC - Highway To Hell (1979) Remastered, Reissue, 2003, Epic [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:4ED6A07AF46EF1F6D6342933CC44DE05B01DD375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6DA65AA77D795B4B740427ADBEF8DDE8D61AFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:3F43944A8A8EEFF336B86F5F1AC73550234996E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ The Traveling Wilburys — супергруппа, участниками кот
 ```bash
 magnet:?xt=urn:btih:39BA293C3D5EC1A92F55D7F474203523DAACE3EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

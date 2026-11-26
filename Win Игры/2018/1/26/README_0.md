@@ -19,8 +19,7 @@ Spirits of Mystery 10: The Last Fire Queen / Тайны Духов 10: Посл�
 ```bash
 magnet:?xt=urn:btih:060B40515F9F77182C23FEB640BDB39AE5E34D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Noir Chronicles: City of Crime / Мрачные Хроники: Город Гр�
 ```bash
 magnet:?xt=urn:btih:D679B3C49E8DD61105C252E29FBDC88EFD631A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DreadOut: Keepers of The Dark (2016) [En/Ch] (1.0.7) License PROPHET
 ```bash
 magnet:?xt=urn:btih:3007448C5B603F5F97AF72F72DDD3060041972D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DreadOut - на удивление весьма страшная хоррор-а
 ```bash
 magnet:?xt=urn:btih:C9C46368C2F54E6273D7096D8B7DD9CF970FF664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Total War Anthology (2009-2013) [Ru/En] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2EE9ABBAB3C4FB2A8377D5D81CC622FD72F6D119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

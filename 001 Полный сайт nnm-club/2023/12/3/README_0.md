@@ -21,8 +21,7 @@ Kings Crown - Closer To The Truth (2023) [FLAC|Lossless|image + .cue] <Melodic H
 ```bash
 magnet:?xt=urn:btih:64C9EDF5AAA82638661DBD910492ED8079B1B26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF8BA006534A2487E711452964EBAD5BBE3BCA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ A4 Where Do You Go?(   Читать дальше...   )Жанр: Pop RockПро�
 ```bash
 magnet:?xt=urn:btih:2EE706B5823E98F878BF8B6C1534663476060308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FC32D5DA61CD34AE19D596E9E9A5166BAE4FBB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Disc One:
 ```bash
 magnet:?xt=urn:btih:354A75BAF7DA892CE8B6E92EAE9AF7E3C384499F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:1917434D0AEAC5972C0BDB28657DC24F908719AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Orphaned Land - A Heaven You May Create (2021) Live @ Heichal HaTarbut, Tel Aviv
 ```bash
 magnet:?xt=urn:btih:F6D927F3F1D708DACA5075AA4BE60D1254745861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ VA - Best Of FSOE 2023 [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:DAAF05932C9D0382C08BC51A3455CC77077316E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Suffocation - Hymns From The Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Bru
 ```bash
 magnet:?xt=urn:btih:514F6FAB10A2F06E95BEB81CDB17D62A7A89374B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Widespread Panic - Boone 1999 (Live) (2023) [MP3|320 Kbps] <Southern Rock, Blues
 ```bash
 magnet:?xt=urn:btih:F3EDBCBA8B1A46E3F1FC12F25BDD7E6FBDB3BB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5AF8F1B911085DDFCFB6833D3044C6049A41615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ PictureThis - Plant Identification v3.71 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7BC68C491EDFAFCF9EAB007BE2D5EE84CB169BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:BF043B3E51C6887DB0DE801D70AADA2A3C030AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ CD-1 Original album + Bonus track & Remix:
 ```bash
 magnet:?xt=urn:btih:A48876A570AA67BC146F1A35EE45CB77D1FC2FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 ```bash
 magnet:?xt=urn:btih:90AF225FB7AD14FDC60854FF376C24D8CF0DBD4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:C14ED50EF78D7DF73D42CBE87061239099F52451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D34DA8A711BE15B6DC37961E7F5CF4D759E1AB58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ Listen Audiobook Player v5.2.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F10D9B9DDD0DCBD07384CBD9202A13AADC44426D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC851D94987758353D085E953DEB7EFBE339AE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 ```bash
 magnet:?xt=urn:btih:F1EE2B16E6975707472767A1022971D61D319F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +545,7 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 ```bash
 magnet:?xt=urn:btih:B45595B101718DA5398A889D0776A509438278A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +573,7 @@ Soft Cell - Non-Stop Erotic Cabaret (1981) Remaster, Deluxe Edition, 2023, UMC [
 ```bash
 magnet:?xt=urn:btih:6C4E9A111BEC6BF94D95EC286844620A45437C54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:113CB9EABE7729E1F3E8E41E021BF0006D6FCD37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 ```bash
 magnet:?xt=urn:btih:FBAB5AFD281EFF8B766908D35AE8F997513C8596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CF1CC4B1E654F85BC9F7DA62E3D7C16F3DEAA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:628CFC348F6B539E6C038FB69BA3C4A30A73FC89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

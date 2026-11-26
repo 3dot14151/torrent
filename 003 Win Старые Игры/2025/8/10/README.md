@@ -19,8 +19,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 ```bash
 magnet:?xt=urn:btih:079327D0E923949246A18D3DE6232706FF358D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

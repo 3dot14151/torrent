@@ -22,8 +22,7 @@ Rammstein - Ich Tu Dir Weh (2010) Single [FLAC|Lossless]<Industrial Metal / Neue
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

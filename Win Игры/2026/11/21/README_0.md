@@ -19,8 +19,7 @@ Red Dead Redemption II - это приключенческий экшен в о�
 ```bash
 magnet:?xt=urn:btih:A2EF91D0F6FFE9CE9452413D958C8EC18E31A96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Void Reaver - это захватывающий научно-фантастич�
 ```bash
 magnet:?xt=urn:btih:58FDCD3733C85372DACA25EBDB5E642BB51C0ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Toto’s Journey - уютное приключенческое инди-игра
 ```bash
 magnet:?xt=urn:btih:30EA8D3391F80BCF0DDB4F90BAD0FC1F5E7DC4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hozy (2026) [Ru/Multi] (Build 22569174) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0D300AEE7200D581132CBC8912C00ED067D71CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Inner Sense - Life Sentence (2015) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:C816151F1EEEC90F1D2BE9894CAA156627375B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CF893F7BE733EF330DBF753A4310C9244145ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Brutto - 2 Альбома, 5 Синглов (2014-2015) [MP3|320 кб/с]<Punk R
 ```bash
 magnet:?xt=urn:btih:E03DD3CB0D2D761962D680167073496EB4D71E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

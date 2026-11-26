@@ -19,8 +19,7 @@ Ingate | Как попасть в топ: практика эффективно�
 ```bash
 magnet:?xt=urn:btih:5BD1813B83B0506533DA3333950DC41EC58C3DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

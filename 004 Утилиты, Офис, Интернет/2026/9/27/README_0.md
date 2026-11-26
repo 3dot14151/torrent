@@ -19,8 +19,7 @@ PeaZip — бесплатный архиватор и графическая о�
 ```bash
 magnet:?xt=urn:btih:1C5909A1F0932B4CB01ADB895CD68037AA906C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ShareX - программа для снятия снимков и видеоза
 ```bash
 magnet:?xt=urn:btih:78B0A7F21377A3E1A738614A9AF35C60033B1D65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:F47003C5FB7A5166327440C94B60E2519A32E25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Black NotePad — это текстовый редактор, разработа
 ```bash
 magnet:?xt=urn:btih:F12580CC7CC7CEBBDE60FB55E8DA1D9551043F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ HopToDesk - это бесплатный инструмент для удален
 ```bash
 magnet:?xt=urn:btih:70D5A4013487BACBFDB1A69CCE27F2AD9693C591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ XtraTools — это универсальный инструмент для оп
 ```bash
 magnet:?xt=urn:btih:BCEED5849CB6A27DA8F5D6F7C688149B962F3D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Vivaldi — это многофункциональный интернет-бр�
 ```bash
 magnet:?xt=urn:btih:0462D24793E5C31AA1013574960E87BA0EA35CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Hasleo Backup Suite — это программное обеспечение д�
 ```bash
 magnet:?xt=urn:btih:D09128B0336B0AC0192E6F4B475F4D53F0922291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

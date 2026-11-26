@@ -19,8 +19,7 @@ Echoes of Sorrow 2 (2013) [En] Unofficial Dizzery
 ```bash
 magnet:?xt=urn:btih:C79616A17FFC74C13B7D1FD57AA21E7B6398C4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91449D07CACA7E9DF3942BFDC6141EA78EEC48EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Rayman Legends (2013) [Ru/En] (1.1.100477) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:C2BFDD823C711B2D030B4B44B04C936CF377789D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

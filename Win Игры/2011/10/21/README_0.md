@@ -19,8 +19,7 @@ Campfire Legends: The Last Act Premium Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:E574DFCA8831EF9A03127A9AA90D1880534C285F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Island: Castaway 2 (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:946412660529F0E85FB2EF460B0495AA02B2FB9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jewel Quest 6: The Sapphire Dragon. Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:C813133EBCAE88E01BE449DFE2A4B0411F227A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Drawn 3: Trail of Shadows Collectors Edition / Drawn: В погоне за те�
 ```bash
 magnet:?xt=urn:btih:F6FC9AEE046DEE7AFD003B748CD1130146441BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dragon Keeper / Как воспитать дракона (P) [Ru] 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Nancy Drew: Alibi in Ashes / Нэнси Дрю: Тлеющее алиби [En] (
 ```bash
 magnet:?xt=urn:btih:7D710F4654F0755F4EF44D40622BC55CDA507B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Shantae and the Seven Sirens (2020) [Ru/Multi] (701355) License GOG (обнов�
 ```bash
 magnet:?xt=urn:btih:8C1D022A95FBD21C6EE59793B6650218329DA31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E7D8B1F742C7F668C0331A27F346A0809A2F8706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

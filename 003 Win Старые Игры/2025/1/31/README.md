@@ -19,8 +19,7 @@ Star Trek: Bridge Commander – это космический симулятор
 ```bash
 magnet:?xt=urn:btih:C97CB31ABA4AD775E52AE30E65D34A48BCA9E832
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

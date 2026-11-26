@@ -20,8 +20,7 @@ ZAMB! Biomutant Extermination (2014) [Ru/Multi] (1.0) Repack xGhost
 ```bash
 magnet:?xt=urn:btih:D7E6E7852F799771B80F6BFBBBC66C5711365C7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Omen - Hammer Damage (2016) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:C240CB005256FAD4AC13D93D72160CC9D8827CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Digital Muse: Techno Mix July (2016) [MP3|320 Kbps] <Techno Trance, Minimal
 ```bash
 magnet:?xt=urn:btih:2A083EF213D94D7C5DFCCFE821B89E1AC5938F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ FontDoctor — мощный инструмент для организации, 
 ```bash
 magnet:?xt=urn:btih:D979311069AECB69699AA640283B691EFB6C1C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9C3E64B896B7F4179D6CB98ACEE4DDB87B51144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Jeff Liberman - Songwriter / Musician (2016) [FLAC|Lossless|tracks] <Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:4C007AA8D34710A3D959AAFAC14C262A00B49651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ VA - Зарубежная Дискотека ХХ Века - 30 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:2698A5DCFC928EB40CA63F60712BCE5EDBFC626B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38CFB11532BC0B99DD4C845933BC8A233C9F272D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ VA - Зарубежная Дискотека ХХ Века - 29 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:B5EE0EA324BAFD88E90C6D9FA272201514858C7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Tony Bennett - I Wanna Be Around (1963) 2011, Sony Music [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:734C8CFB82C8274144FB0C6D1B9526A7BFEDB785
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ VA - Зарубежная Дискотека ХХ Века - 28 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:756E562822C1344F8331623A0B7F71FA769C15CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - Sweet Harmony EDM Extended Mix (2016) [MP3|266-320 Kbps] <Dance, House, Ele
 ```bash
 magnet:?xt=urn:btih:28C12BFEFD14069F24A93928DF3C03744ABA7B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ VA - Зарубежная Дискотека ХХ Века - 33 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:F0BAE8A4C5406B6D8A8DF32471EE5E6E367BDC19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - Summer Dance  World Hits (2016) [MP3|320 Kbps] <House, Trance, Dance>
 ```bash
 magnet:?xt=urn:btih:E2A67004E790D4087784CE2CF7C682DEA5B7521F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4666483FC322513BF2B88A8D1746A9D8747B3F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:FE877550C7E57B932F957970E4C6EE2158A381EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ VA - Зарубежная Дискотека ХХ Века - 32 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:78AF2787F3DAB095A3ACB9BEF6C991AFD851808C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ VA - Зарубежная Дискотека ХХ Века - 31 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:7A2D7F33CF440CCE40993742A0DB70CFAA39A9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ Olaf Stuut - Run + Run (Remix Files) (2016) [FLAC|Lossless|WEB-DL|tracks] <Exper
 ```bash
 magnet:?xt=urn:btih:C3FB43A0F1D039B8F4E0D87BED4BDD48E4708AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ VA - Зарубежная Дискотека ХХ Века - 34 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:8DA3C76C037872AD2F02F2EC68F4E49980C6B143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B23833290777F656E836AEBBEBE8D6784305CC10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ VA - Русская Дискотека ХХ Века - 8 (2010) [MP3|320 Kbps]<D
 ```bash
 magnet:?xt=urn:btih:D58D44AA789824950714FEE31AFD05AFFA5E5F8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ VA - Total Aerobic Workout (110-130 BPM) (2016) [MP3|192-320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:964DDA7FFF36C7B65848050D2FA1C8567FE4346A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ VA - Русская Дискотека ХХ Века - 4 (2010) [MP3|320 Kbps]<D
 ```bash
 magnet:?xt=urn:btih:BF403ED862E954D7E356B090AEBDAC6A39227325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D7429E2FA81EA429A2D80A32CD473FED3E24D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ VA - Русская Дискотека ХХ Века - 7 (2010) [MP3|320 Kbps]<D
 ```bash
 magnet:?xt=urn:btih:D571B425B4086BF81C2693429C11B75003FEA0B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ VA - Magic Island - Music For Balearic People Vol. 7 (Mixed by Roger Shah) (2016
 ```bash
 magnet:?xt=urn:btih:D7219655A7359D4908B931ED37983888412FA7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

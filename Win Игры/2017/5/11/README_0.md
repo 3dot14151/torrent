@@ -19,8 +19,7 @@ Mystery Trackers 11: Train to Hellswich / Охотники за тайнами 1
 ```bash
 magnet:?xt=urn:btih:C51D9287443F49706A3F1E4AECC723AEBAF16688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon Kingdom War (2017) [En] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:CCBC9ED5037D39A2FB1E95DC23C96595000D204A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

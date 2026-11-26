@@ -18,8 +18,7 @@ VideoSolo DVD Copy - это быстрое и простое в использо
 ```bash
 magnet:?xt=urn:btih:B69135081E5BB23562D8C50974C0A8DDDFA43C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

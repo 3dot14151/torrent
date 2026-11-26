@@ -28,8 +28,7 @@ Empire - 2 альбома (2006 - 2007) [APE|Lossless]<Hard'n'Heavy>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Bwicked - Chill Da Funk Out (2005) [FLAC|Lossless]<Ambient, Downtempo>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - The Moskow Vibes. Progressiv transe (2010) [MP3|320 кб/с]<progressive>
 ```bash
 magnet:?xt=urn:btih:650B18B7E963112DD68D67806364E96332A57B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ That 1 Guy - The Moon is Disgusting (2007) [FLAC|Lossless]<Rhythm & Sound, Exper
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Bebo Baldan - Soniasikri - A Day Of Music (1991) [FLAC|Lossless]<Ambient>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ DJ Nike Twist - TranceWave 063 @ GTI Radio (06.06.2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:4682A2CD5ABB288E9CE67159F3B6DD140F804681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ VA - Electro House Pro V.40 (2013) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:179F0957A702E258967674D392E303B0FCD7BA43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8ECBF7A792526388908FA02417F77906E93009DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAB62455A94E79DB842F51E317D761A6464289EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ Chaos Divine - Avalon (2008) [FLAC|Lossless]<Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ VA - Хороший вечер с Радио Шансон Vol. 2 (2013) [MP3|128
 ```bash
 magnet:?xt=urn:btih:75D984600474FE1E37CAE62A5010C10D5343DBEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ Mail.RU Agent - бесплатная программа для быстрого 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ VA - Deep Ibized: The Deep Side Of Ibiza (2013) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:5B56E0757A4059C407165A4ED29BE8760DBC2C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B1D2E276C68C31FC0B13D98DCB8066A1B2C1B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +494,7 @@ Toxic Taste - Toxification (2008) [FLAC|Lossless]<Heavy Metal / Rock'n'Roll>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +528,7 @@ VA - DubStep Pro V.31 (2013) [MP3|320 кб/с]<DubStep>
 ```bash
 magnet:?xt=urn:btih:F0D4801ED67B4028CB073DF83C6BDA67109F8C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +562,7 @@ VA - Creative Music Box 13 (2013) [MP3|320 кб/с]<Dub Step, Drumstep>
 ```bash
 magnet:?xt=urn:btih:B0871EB944673BA055D749F01F6E296F0073F6F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +596,7 @@ VA - Spring Turns Into Summer (Mixed by DJ NEO-F1) (2013) [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:4B20D18BADFEF7B3884D6E65FC0E4650FC679659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +623,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +657,7 @@ VA - We Love Ibiza (2013) [MP3|192 кб/с]<House, Club>
 ```bash
 magnet:?xt=urn:btih:2004ED9F526D79F202DA8E5E5275BDDBDDF85EC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +691,7 @@ VA - Creative Music Box 12 (2013) [MP3|320 кб/с]<Dub Step, Drumstep>
 ```bash
 magnet:?xt=urn:btih:9CD33D9AD72F5FB8BA7B9BC2275E10FD8C06018B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -746,8 +724,7 @@ Chilled C'Quence - Dream Triggers (2008) [FLAC|Lossless]<Ambient, Downtempo>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +753,7 @@ Eguana - Passing The Line (2012) [MP3|320 кб/с]<Downtempo, Trip-Hop>
 ```bash
 magnet:?xt=urn:btih:0779B43E28BCCF59C51587392461B2B11F938FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -811,8 +787,7 @@ VA - Ministry Of Sound - The Sound Of Dubstep Darker 3 (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:0412434578ED5B0E8316848FEB6E5C1D33ED8E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -837,8 +812,7 @@ Ambulance LTD - Sugar Pill (2010) BDRemux [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:CE470557FB675D6FC4DFD1035E98056C6939FED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

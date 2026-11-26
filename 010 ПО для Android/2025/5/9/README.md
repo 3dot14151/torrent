@@ -19,8 +19,7 @@ WeNote: заметки блокнот планер v6.32 Mod by Balatan [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:F4A594A1435D5CBAB5EAE74454981B411EAD3991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ BattleBlock Theater - платформер от разработчиков ор�
 ```bash
 magnet:?xt=urn:btih:95793A74568A1409761B6BFBA0304931CB064AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:492B48A7A85B1E798445471678771B6DAF33DB32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Magic: The Gathering - Duels of the Planeswalkers 2014 – новая часть
 ```bash
 magnet:?xt=urn:btih:E469C2983E30F6A069F19351CA6C553B540C7F25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A8A27285D6ECB1FAA5BD5950CDF1265698CB530E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Triada | Большая энциклопедия секса [2008] [MDF]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52A72F89467CC5896FDAF0462B8CAEF05ACDCD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4630855C56039541A3FB2DA905BBEAB6A0B58626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:55FA569FAB83AE7D65C00329C610743B5A84CEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Microsoft Office Word 2007. Продвинутый курс - в данном у
 ```bash
 magnet:?xt=urn:btih:7F062A90242D600CE62AC3CFE368869160055FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Trapcode Suite 12 состоит из 10 плагинов для After Effects, 
 ```bash
 magnet:?xt=urn:btih:3D939FA2741877416B0F5E02FCAC501CA83488F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Transistor — научно-фантастическая игра в жанре 
 ```bash
 magnet:?xt=urn:btih:C93364BC4242BA78218598B62500BD85C3C9CB54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Operation Flashpoint: Red River (2011) [Ru/En] (1.2.0.0) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:CFB7892C90A1C57B92F1E8EC1A200540857E4364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0A781E02DEDC9A1D72692B34EE26C3271C3D0BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 ```bash
 magnet:?xt=urn:btih:694ABCF2BA9A18CF7FF975E6CF05FD50F80E5B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Painkiller: Hell & Damnation (2012) [Ru/Multi] (build 20140415_3933/11dlc) Repac
 ```bash
 magnet:?xt=urn:btih:CA7C2896D8C719CA5A0C54BF4F5B1CF5B9B7D203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ WPI by DDGroup & vladios13 [v.08.06] [RU] (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:1939B859E3B5C0DA1C1CB86C1CD7614042A2C464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.0.6) SteamRip Let'sРlay [Ult
 ```bash
 magnet:?xt=urn:btih:A07785E77E582AF77DECF825F427313DE434AFF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ R100 / R100 (2013) HDRip
 ```bash
 magnet:?xt=urn:btih:80C841FA1CB37AE38BD34398E84719D449D52B64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ Legends of Aethereus (2013) [Ru/Multi] (1.61.803.3999 upd6) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EF7E52EC80DDED92A41CBD4581690450E844930B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Golden Gift Campaign
 ```bash
 magnet:?xt=urn:btih:AE5E1953CE459BCC756357EC9F4B77EFB8788F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:FD9DF27F60A58CE691F198D4EE0BDC67BE009B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ NG: Космос: Пространство и время / Cosmos: A SpaceTime O
 ```bash
 magnet:?xt=urn:btih:30583EF08B4950B1F384F6D07FA58C6CBE39A76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

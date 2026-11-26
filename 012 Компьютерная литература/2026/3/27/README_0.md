@@ -18,8 +18,7 @@ Computer Architecture: A Quantitative Approach, has been considered essential re
 ```bash
 magnet:?xt=urn:btih:04FF9EB9F93348FEF3C62222EA3A1A1D6614F60F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stack Overflow | HTML5 для профессионалов. Руководств
 ```bash
 magnet:?xt=urn:btih:ED825B53375EC3A5A2F24DBAE09F4559A8B29B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Java is one of the most widely used programming languages in the world. It is a 
 ```bash
 magnet:?xt=urn:btih:516A56F00F035988B357025CD6AFC1911E8728C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Programming Language Pragmatics is the most comprehensive programming language t
 ```bash
 magnet:?xt=urn:btih:6F6621355D220C8786B499349C817E3E546E49D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ This second edition provides (   Читать дальше...   )Жанр: C Pr
 ```bash
 magnet:?xt=urn:btih:539554072C9EB1F09B8AF1788016BD49B69F53AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FB836D4EB9C80105CC26C67A0BB30C286F298A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Deliver code reviews that consistently build up your team and improve your appli
 ```bash
 magnet:?xt=urn:btih:3546C0375A5000D9A1606C4FF580AE985A625B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

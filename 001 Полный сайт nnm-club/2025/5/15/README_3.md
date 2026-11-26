@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DFADA0BE740EC736F1305150C23E31B73ECBED31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let's
 ```bash
 magnet:?xt=urn:btih:A26334E1BB250CFAD29037F9C566B7010F580AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2586823D673973B2173DBEF7B550FD9317637C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:842D213FE6FA1CF7C70045710F1BCE3F3475C42E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VA - Black Hole Trance Music 05-25 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:8BCB3C122D7E0417A0FB38749874A676FFB5C533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:863FD01CE96B1A4C4B1A98A711AE72F9A854BCF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF94783BD8BC1418DDD3A342D3D9214E88FBB64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Yankee-kun to Megane-chan | Хулиган и Очкарик (2006) [23 тома
 ```bash
 magnet:?xt=urn:btih:22CEF8B596CC24A5B99AC4DD32A7E5FB565460E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Sora no Otoshimono | Утраченное небесами (2007) [20 томов
 ```bash
 magnet:?xt=urn:btih:023B79FB36A36176024926F56AB0CFA019770548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Waltari - Nations' Neurosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 ```bash
 magnet:?xt=urn:btih:B95C9313425327BC9D1FC82433BF744AA996C434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ VA - Black Hole House Music 05-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:38D94D3B38EE6480B17168FF108DE7FCF3F8C372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ Dr. Stone | Доктор Стоун (2017) [27 томов, 233 главы + Сп
 ```bash
 magnet:?xt=urn:btih:D528DB4F0C970A46E051BF20893F747BD3A1D60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Soul Eater | Пожиратель душ (2003) [25 томов, 117 глав] [�
 ```bash
 magnet:?xt=urn:btih:52992158482B1AC1C15634A41DF288B52A66AAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65C8DAC3672B800B53E215E206F68832A9F03388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1E48BA9E80B6F59B3564B80C711113BC4D3F52B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C9E16E407C7FD8E5B93B5097ACBE08F11DD208A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +464,7 @@ Giuseppe Ottaviani - Eight (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:305900087D34CE7321B7BD4D259AA987D441DA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +489,7 @@ Vagabond | Бродяга (1998) [38 томов, 327 глав + Экстра + �
 ```bash
 magnet:?xt=urn:btih:E3F8A2249CD63CB5152E778CB75CB8453F0B2C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F705950D90F2EFAC17BA47CDCEA132AD8FCC5C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ Rosario to Vampire: Season II | Розарио + Вампир II (2007) [14 то
 ```bash
 magnet:?xt=urn:btih:F808ABA0FC1492341018F4C936ECCF05CDBFCDC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17655A9750E7E91D01BD3E5CC6AFD02A3975D09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +590,7 @@ Platinum End | Платиновый предел (2015) [14 томов, 28 гл�
 ```bash
 magnet:?xt=urn:btih:B39B17C1EAE8AD593A6A04FA49F9E7EE0C0CC0A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA4C6FC96C2EC9269C067E18BC5515E750E375F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +640,7 @@ Yakusoku no Neverland | Обещанный Неверленд (2016) [20 том�
 ```bash
 magnet:?xt=urn:btih:5D61C37E6F110826E1BEF8A7A40E7848D185C31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABD17028373E57160F16B74989CFB88611298F0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

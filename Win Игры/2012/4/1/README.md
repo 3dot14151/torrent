@@ -19,8 +19,7 @@ Harveys neue Augen / Новые глаза Харви [Ru] (Р) 2011
 ```bash
 magnet:?xt=urn:btih:C06FB9B21412FB2E9F04E35F7FFC14154C5C803C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ All Zombies Must Die! забросит четырех героев – Игро�
 ```bash
 magnet:?xt=urn:btih:F09D6711D118510F5D69A2A79D9E58647E31AED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

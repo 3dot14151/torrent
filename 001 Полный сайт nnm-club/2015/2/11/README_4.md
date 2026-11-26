@@ -22,8 +22,7 @@ Minecraft: PlayStation 3 Edition (2013) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:5ADD7096E8DFA4E7A55E20BC3C923BD07F1E3DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Iowa - Export (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:BB55F9F8A2E470C8B5B0D2585C43C9EE568CEEFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ iAwake Technologies | Аудио Акупунктура (2013) [WAV/PCM]
 ```bash
 magnet:?xt=urn:btih:F0DBBB2DB9C11C4C001F6EA429EB8B9A0DDF37CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FACC71E905315F2C4A8FC3DF34028A17FB829B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ ABBYY Lingvo X6 Professional 16.2.2.64 Full RePack by FanIT [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:99240E333363EB0C05B861087FCCD258D3B87277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ BioShock Infinite: Complete Edition (2015) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE 
 ```bash
 magnet:?xt=urn:btih:0BEAA0A7E7866A62D90550DABDD02B8B8E52AE5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Awards Pack II - торжественное оформления фильма.Ф
 ```bash
 magnet:?xt=urn:btih:E724DEF8F1992FF2270CE6F44921DE9BC24899E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA6E42C859A8A5F544E07B5D45A6809545F8275B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Paragon Hard Disk Manager - многофункциональное и удобн
 ```bash
 magnet:?xt=urn:btih:8AE8AF30D5B50521FB31EA3EC4C8EAF81522B738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Life is Strange – эпизодическое приключение, собы�
 ```bash
 magnet:?xt=urn:btih:0FB8BFCBD03362B50C3619B09357A02F3EAF89A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Zionn.Game.Room | Unity 3d для начинающих / Unity3d Beginner Editor
 ```bash
 magnet:?xt=urn:btih:E5FA3E357F9F724FCAB193FE3EC86DE10AA34FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ ABBYY Lingvo x6 Professional 16.2.2.64 RePack by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:46A6A766191897CD80905B642E0DB77D5ECF464D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Kali включает одну из самых полных подборок и�
 ```bash
 magnet:?xt=urn:btih:C267B98D467B70FF189FCFECA413ADB11721DDF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CB3910C931DC1304D93C77A55FCBD3BC49673F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ Password Recovery Bundle – пакет программ, позволяющая
 ```bash
 magnet:?xt=urn:btih:6AF9684C64F794B043C07137F699321FA2CDF23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Paragon Hard Disk Manager - многофункциональное и удобн
 ```bash
 magnet:?xt=urn:btih:D923D7485D111272EF2939F7CCFFBDBE22963C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Killzone HD [PS3] [EUR] [ENG] [4.30] [Cobra ODE / E3 ODE PRO ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:8BAD2E389FA071B737EA055A820FBBA321E2C990
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Sacred 3 — beat' em up, действие которого разворачив
 ```bash
 magnet:?xt=urn:btih:7D4B794828E1A7B6128FEC9E5C8AF9512722768E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82E236AA62687BBC6AED889059DA8D0DA7C7CF46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:355055605082F45DD1643942459072AFFF6D635E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ Boot USB Sergei Strelec 2015 v.8.0 (x86/x64/Native x86) [En]
 ```bash
 magnet:?xt=urn:btih:60604BA7969215D5380E6AFE55A326F7732E6BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +567,7 @@ FINAL FANTASY XIII/13 (2014) [Multi] (1.0.0) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:40F8D57C9464529A38392D74A92A6F124EA13F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ The Cat Lady / Кошатница (2012) [Ru/Multi] (1.5) RePack Let'sPlay
 ```bash
 magnet:?xt=urn:btih:488F6F3AEEBA84C66A94E05F824199CD7D1D49C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FACF9C085618EB98A73A524C246F7C3704B5115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F01E80D04C1E6BE3AC6A1E8ECF2989C839E255F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8869A42F3C26D4863A47F77338729D0D85D7369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

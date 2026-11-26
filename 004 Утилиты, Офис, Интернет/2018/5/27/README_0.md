@@ -20,8 +20,7 @@ FileFusion анализирует файлы, которые находятся 
 ```bash
 magnet:?xt=urn:btih:ECE477320A896DFA586645BE0DE472094DDBC7BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

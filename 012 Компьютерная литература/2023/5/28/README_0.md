@@ -20,8 +20,7 @@ Junghyun Seok, он же Стоунхаус, написал это очень п
 ```bash
 magnet:?xt=urn:btih:FB54E28FB81B73C500224967C3165C633894F6BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

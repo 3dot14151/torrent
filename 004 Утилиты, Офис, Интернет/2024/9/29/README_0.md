@@ -19,8 +19,7 @@ Vit Registry Fix Pro - мощная программа для очистки р�
 ```bash
 magnet:?xt=urn:btih:522DD6D528029945C2413A8641509269B436C9D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

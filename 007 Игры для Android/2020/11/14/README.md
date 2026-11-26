@@ -19,8 +19,7 @@ Jetpack Joyride v1.34.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:F6BAB8E91E384E4868A7228E467EF41A5EB29086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sky Force 2014 v1.41 [Ru]
 ```bash
 magnet:?xt=urn:btih:3876A99DE3182CE0D4D2ACCEE7949ECA28453AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

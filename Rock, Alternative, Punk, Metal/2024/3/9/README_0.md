@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7D19D55175F2598E12E8B7C87BBBBA3244B1AA45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CE82C83894508C59D03A45FBF5A832D550561F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Neverlove - Next Level (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, E
 ```bash
 magnet:?xt=urn:btih:08C9166349EEEB8D63B58C5C0963CBFCFE1E03E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Algebra - Polymorph & Procreation (2012) Reissue, 2013, Stormspell Records [FLAC
 ```bash
 magnet:?xt=urn:btih:42A392190C61C1FC7FBFCAD6BF49CFA25AF82632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Vlad in Tears - Relapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Gr
 ```bash
 magnet:?xt=urn:btih:CD3981D244487F247600A0C7663E367E855D9289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Firewind - Stand United (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 ```bash
 magnet:?xt=urn:btih:941C3C9AA6DE2BF54F305C3807BE4143EB7E85A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ ADDicted! - День (2024) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:86A80C51724A0F94B2C6E9BD478B481E649B2A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Myrath - Karma (2024) [FLAC|Lossless|image + .cue] <Power Metal, Progressive Met
 ```bash
 magnet:?xt=urn:btih:52586FD70C6F55658AA90CC4E5F9BCCE55956709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Madder Mortem - Desiderata (2006) [FLAC|Lossless|image + .cue] <Atmospheric Doom
 ```bash
 magnet:?xt=urn:btih:92F25BE34D67338C38334A61DC23AEF9685E26C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Madder Mortem - All Flesh Is Grass (2001) [APE|Lossless|image + .cue] <Atmospher
 ```bash
 magnet:?xt=urn:btih:4D3562C81294D39B23229521C1A82C87F7A83425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Madder Mortem - Deadlands (2002) Reissue, 2009, Peaceville [APE|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:7B0D954532F6166C73E9FB5178BD151B3CC2CEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Madder Mortem - Marrow (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Me
 ```bash
 magnet:?xt=urn:btih:7EA3DA7A573FC24C079686F48D997CBB918F19EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Elegy - Forbidden Fruit (2000) Remaster, 2024, Elegý [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:90F1F27FBC24DE45207F8143352BFD16A61BED5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Madder Mortem - Eight Ways (2009) [FLAC|Lossless|image + .cue] <Atmospheric Doom
 ```bash
 magnet:?xt=urn:btih:0E4151D12AB3A26AD4287DA4F9BBB484327DB793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Ecclesia - Ecclesia Militans (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, Heavy M
 ```bash
 magnet:?xt=urn:btih:3C706E004A502BEEA34F974CED6ECCB19C7AA303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Madder Mortem - Red in Tooth and Claw (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmo
 ```bash
 magnet:?xt=urn:btih:C8CADBA404604BC157C6C2FA1D713DD429862C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

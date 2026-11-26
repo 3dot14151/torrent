@@ -19,8 +19,7 @@ Hardspace: Shipbreaker (2020) [Ru/Multi] (1.3.0.1263554) License GOG
 ```bash
 magnet:?xt=urn:btih:58C915096DFE99D6F8BBBC3C012B4B2F25B589F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sintopia (2026) [Ru/Multi] (1.0.2.519/dlc) Repack Let'sРlay [Chairman Edition]
 ```bash
 magnet:?xt=urn:btih:70D3DD00C48DAFC5AA3AB3CF7B7165C7A01EC725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Moo Lander – это 2D экшен приключенческая ролева�
 ```bash
 magnet:?xt=urn:btih:E3ABC1F954BAEE9C5D6C86BD1E1B5E3442A9C9F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cthulhu: The Cosmic Abyss (2026) [Ru/Multi] (pr1.8326.29819/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FBE0998C3073FF47D26770EDE5AE40FE950503F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ REPLACED (2026) [Ru/Multi] (1.0.1080) License GOG
 ```bash
 magnet:?xt=urn:btih:92461A8D00C4FD41A39F246C11B89A429E503E7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Spark in the Dark - атмосферный Dungeon Crawler в средневек
 ```bash
 magnet:?xt=urn:btih:FBB654B7E1E0B72486EE1D91A96EFD2FDEA26577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cralon (2026) [Ru/Multi] (Build 22814580) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:60B477DB5A328A8E6F7777952C9227D016E33201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

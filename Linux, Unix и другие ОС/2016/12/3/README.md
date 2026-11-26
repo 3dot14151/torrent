@@ -19,8 +19,7 @@ Mageia 5.1 Cauldron [i586] 3xDVD
 ```bash
 magnet:?xt=urn:btih:A03707FDD6FB5D2927941EF1391FE2B320F1F371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mageia 5.1 Cauldron [x86-64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:1F6BF2D82F887BE95C5A9149C82E4D3E8BFD3553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

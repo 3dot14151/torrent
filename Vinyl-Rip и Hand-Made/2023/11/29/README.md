@@ -22,8 +22,7 @@ Sorcerer — шведская эпическая дум-группа из Сто
 ```bash
 magnet:?xt=urn:btih:BDC3ED87E069E8D7549EFC266D31E2662FEEC012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Where You Are(   Читать дальше...   )Жанр: Hard RockПрод�
 ```bash
 magnet:?xt=urn:btih:D21262AB5F1F6425EE985BA8DEFF9D540381C3BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Deep Purple - The House Of Blue Light (Дом голубого света) (1987
 ```bash
 magnet:?xt=urn:btih:09F36FFF8B65C0DB540D2481BD2AEE6CF8BFF4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

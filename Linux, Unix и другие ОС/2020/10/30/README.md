@@ -22,8 +22,7 @@ Ubuntu EducationPack 16.04 (2020.10) [i386 + amd64] (2хDVD)
 ```bash
 magnet:?xt=urn:btih:10CF47B3E394DEBB5AE85AAD64E1A9FF0FCA40F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

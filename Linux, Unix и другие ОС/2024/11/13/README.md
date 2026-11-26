@@ -19,8 +19,7 @@ MiniOS - это легкий и быстрый дистрибутив Linux, п�
 ```bash
 magnet:?xt=urn:btih:052A4DAF0A8E49039BFE21876B540B9B066BA8EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

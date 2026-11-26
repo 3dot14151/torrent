@@ -20,8 +20,7 @@ Isoland - в этой игре вы будете помогать главном
 ```bash
 magnet:?xt=urn:btih:04D50ACDB0AFBB7095F4EC106EDF71A94B74BE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

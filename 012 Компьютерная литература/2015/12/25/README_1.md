@@ -19,8 +19,7 @@ Adobe Systems Incorporated | Руководство пользователя Ado
 ```bash
 magnet:?xt=urn:btih:68B629ED70D819E20D850B0B05135E094E59AF06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

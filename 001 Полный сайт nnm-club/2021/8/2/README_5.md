@@ -20,8 +20,7 @@ Submerge - это самый простой способ добавления с
 ```bash
 magnet:?xt=urn:btih:7A0391ACBA8206F74C77BAB949F6F22C0A1FAD87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Stats - это приложение с открытым исходным код�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ iSubtitle - приложение позволяет создавать проф�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Chris Rosander - King of Hearts (2020) [FLAC|Lossless|image + .cue] <Westcoast, 
 ```bash
 magnet:?xt=urn:btih:4759CDA7BFF4C88374EFBD8E500F9403E12BD8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Eon Timer 2.8.14 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:973D53FD08950487148D71037314570011E782F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Chrono Plus - удобный менеджер задач и инструмент
 ```bash
 magnet:?xt=urn:btih:CEC1A07D0FC5435DE6FDAF25EC25AE12151D4FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Thronehammer - Incantation Rites (2021) [MP3|320 Kbps] <Doom, Sludge>
 ```bash
 magnet:?xt=urn:btih:7DC0F371E2E1A64653129C76799FE98308C201C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ Contexts - это радикально быстрое и простое пере
 ```bash
 magnet:?xt=urn:btih:D48DDE7059C422D9C71C8C2CA8501D631704C529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Nth Ascension - Stranger Than Fiction (2019) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:EEEB41239D94983BB79F8C90941CF128708F1457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Serial Box & SerialSeeker 2021-08 [En]
 ```bash
 magnet:?xt=urn:btih:571F6F998E1E11E15BB63679698B09D0FAF8F6A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Alfred 4 Powerpack 4.5 [En]
 ```bash
 magnet:?xt=urn:btih:2A0A16A852BB4B17D69FC8F2B4C35AE68090213D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ Absynth - мощный синтезатор от компании Native Instrum
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Universe - Mission Rock (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C3E366BC859E4ABBC284DD75CEF1F55FC7363137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Geezer Butler - Manipulations of the Mind: The Complete Collection (2021) [FLAC|
 ```bash
 magnet:?xt=urn:btih:C92E93EAE59ADA133D70BBE992527D21AF07D9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ VA - Hard Dance Clubbing: Hardstyle Megaset (2021) [MP3|320 Kbps] <Hard Dance, H
 ```bash
 magnet:?xt=urn:btih:CAF64E4C0FDB8ADCB570A5F11F27B73CD2011387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ PullTube 1.6.20 [Multi/Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ VA - Tech Athletics Mix (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
 ```bash
 magnet:?xt=urn:btih:CC3BA6F41B077AB1C421FB0D0C45F161F022EC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:319B3CEEA63430F73F5D5D395481348EFC5AE534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ VA - Hardstyle Fitness Collection (2021) [MP3|320 Kbps] <Hardstyle, hard dance, 
 ```bash
 magnet:?xt=urn:btih:542A0FE96493B393476C0B323C99F1DF556BA627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +550,7 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ RAW Power 3.3.4 [En]
 ```bash
 magnet:?xt=urn:btih:00A268BA12DE9F165CF9B14F6237C75C0151B460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ VA - Techno Night: Future Electro Session (2021) [MP3|320 Kbps] <Techno, Electro
 ```bash
 magnet:?xt=urn:btih:FD98382EE9B4D6C432098883A69F6331A558A441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF027F33CA59C6E588026C8813AD672436FC9027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ Balabolka 2.15.0.794 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D343C66850E66275136317BB300A5E854514902C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

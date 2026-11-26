@@ -22,8 +22,7 @@ Smart Driver – удобный радар камер и ДПС, а так же 
 ```bash
 magnet:?xt=urn:btih:76DDFCFA9F1D2A708538415DA1C50B5E5F0B415B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Duolingo: изучай языки 6.7.1 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F6C697B83303370C02CD2D746152FCDACEADF9A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

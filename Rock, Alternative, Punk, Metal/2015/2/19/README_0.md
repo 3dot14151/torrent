@@ -19,8 +19,7 @@ Eye Of Solitude - Dear Insanity (2014) EP [MP3|320 кб/с]<Funeral Doom/Death M
 ```bash
 magnet:?xt=urn:btih:7B6B607521DF73EF8F64B395F82210AD6DB09134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Lapis Lazuli - The Downfall Of Humanity (2015) [MP3|320 кб/с]<Symphonic Melod
 ```bash
 magnet:?xt=urn:btih:C348B614A4DDADE32EE67B763B13A7E9127EB6EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Father John Misty - I Love You, Honeybear (2015) [MP3|320 кб/с]<Indie Rock, F
 ```bash
 magnet:?xt=urn:btih:737FC3E69CA3540CC757B1A52367A574E55D8E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Oomph! - Unrein (1998) [FLAC|Lossless]<Industrial Metal / Industrial Rock / NDH>
 ```bash
 magnet:?xt=urn:btih:ADD8D8045CCFC5FF60A8EA74C42F92A2BC4C3787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Sylvan - Home (2015) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:BF4012D7FC5569E1E0F2D3BD3A0CCFEF60FB2195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Rakoth - Ars Compilata (2014) [MP3|~270 кб/с]<Folk Metal, Doom Metal, Epic Me
 ```bash
 magnet:?xt=urn:btih:BD742AF8D5533EA8473BF2E536C2A0756F6F5000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Sylvan - Home (2015) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:4CF44B19455A4112C60C075C3F51EF2D061F04A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ Fabrizio De Andre - Canzoni (1974) Remastered /2002, Ricordi/ [WavPack|Lossless]
 ```bash
 magnet:?xt=urn:btih:2065D297094ED55A5E612CEB6C65E5DA05AAA9CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Jack Savoretti - Written In Scars (2015) [MP3|320 кб/с]<Rock, Acoustic Folk R
 ```bash
 magnet:?xt=urn:btih:5A69773DC9D4F79ED845DBF7D2CDE53D947DCD9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8B45E8DC7AB79DAD6E543164D77E2E7A0EDD15F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ Elle King - Love Stuff (2015) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:B6B5F53AD0D7E47538D5DE0C059CEBF778DBD2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ Ensiferum - One Man Army  (2015) [MP3|320 кб/с]<Viking/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:2CE22D4D12E0729A9C59EB2FF655BA32D24F62AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9C33F525CD380F1CFF480E3152D32EA4A1478BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ VA - Pure... Rock (2012) [FLАC|Lоssless]<Rock>
 ```bash
 magnet:?xt=urn:btih:9D295888240346D22E6AEBF7FBB7B4B216DF5829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +423,7 @@ Original Album:
 ```bash
 magnet:?xt=urn:btih:29E665F9C824ECF6B9710511A33FCB554987CF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +452,7 @@ Smokie - Greatest Hits (2008) [FLAC|Lossless]<Soft Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:C00485403B48C94D0DA5B8FC1ADFAB79EBF06C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +480,7 @@ Scorpions - Return to Forever (2015) Limited Deluxe Edition [MP3|320 кб/с]<Ha
 ```bash
 magnet:?xt=urn:btih:EC99E9F06B472D30D82400354BAEAB0478FE711D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +508,7 @@ Imagine Dragons - Smoke + Mirrors (2015) Deluxe Edition [FLAC|Lossless]<Indie Ro
 ```bash
 magnet:?xt=urn:btih:703BF51C7AA1338DA137DA3E29FBCDD72F015BEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

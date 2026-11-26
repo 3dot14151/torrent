@@ -19,8 +19,7 @@ Enigma Virtual Box - бесплатная система виртуализац�
 ```bash
 magnet:?xt=urn:btih:23317768E2E394969A1A0B490F9EE46538C3086F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:42464B7EE44E9462C37A4697DFE02BC859E11D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Kubuntu 14.04.4 LTS [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:C9A52AC68590C8A323D5ED8CDDD7FC785B755AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:EA56FA40CD474C95DF81C12AD08EDF52650476C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Xubuntu — дистрибутив Linux, основанный на проект
 ```bash
 magnet:?xt=urn:btih:306049D0D4935D2D82662C0E5960C84357A48C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

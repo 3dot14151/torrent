@@ -19,8 +19,7 @@ Silent Hill: Alchemilla — это самостоятельная модифик
 ```bash
 magnet:?xt=urn:btih:95C9DDA28E44355B9B45FE465B93C1730747B13F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ONINAKI (2019) [Multi] (1.0.0/dlc) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:E7B505851FD1BC86F0123B365B528C482109FC55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

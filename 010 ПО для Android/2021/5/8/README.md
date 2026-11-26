@@ -19,8 +19,7 @@ MediSafe Meds & Pill Reminder Premium   v9.09.10574 [Ru/Multi] - Напомин�
 ```bash
 magnet:?xt=urn:btih:45AEFF90A23B0BC9658999AA9A1C8B1EB079DD41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pocket Sense v1.0.16 Pro [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F2AB285FBF1C0EA620008E4470C185FE61EAB55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

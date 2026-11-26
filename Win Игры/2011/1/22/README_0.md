@@ -19,8 +19,7 @@ Death at Fairing Point: A Dana Knightstone Novel Collector's Edition (P) [En] 20
 ```bash
 magnet:?xt=urn:btih:BBC041D3816F9DC430145763AEFF676F741C18F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mahjong Epic представлен 100 уникальными и забавны
 ```bash
 magnet:?xt=urn:btih:B633853ED383CBAD1F28B17D41A0CDE4931E9385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hotel: Collector's Edition / Отель. Коллекционное издани
 ```bash
 magnet:?xt=urn:btih:2F6643BCEAEE95A1DE5E4A25926EAF8398942230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Crossworlds: The Flying City / Перекрестки миров. Летающи
 ```bash
 magnet:?xt=urn:btih:6F6A3163F622B6A4388F329FB6BF62BB6DFA4B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Awakening. Moonfell Wood / Пробуждение. Лунный Лес (P) [Ru] 
 ```bash
 magnet:?xt=urn:btih:4140EBFA7F2C6DBA3C5DF30A2A0375204C1B28D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

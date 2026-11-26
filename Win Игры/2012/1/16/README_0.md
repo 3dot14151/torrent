@@ -19,8 +19,7 @@ Urban Legends: The Maze / Городские легенды. Лабиринт (P
 ```bash
 magnet:?xt=urn:btih:D2D6B5D0AEAE2F63A0F9823DEBD3ECD098C94697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

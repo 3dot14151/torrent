@@ -28,8 +28,7 @@ VA - Антология советского киношлягера - Любим
 ```bash
 magnet:?xt=urn:btih:E0651F0222BDD8BE2D0533F9E313CB7F059F9A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

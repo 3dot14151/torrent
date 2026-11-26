@@ -28,8 +28,7 @@ Lanfear - This Harmonic Consonance (2012) [FLAC|Lossless]<Progressive Metal/Powe
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Mike Oldfield - Two Sides: The Very Best Of Mike Oldfield (2012) [APE|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Twisted Lands: Insomniac Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:7BC37C5DB03DED10B6968C2F8ADA8EF6C46B361C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magic Farm 2: Fairy Lands (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:0703F91048B09FAEC60FE143E4F5CECC7BEEF8C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Roads of Rome 3 / Дороги Рима 3 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:0F9D061A79DC3E8490BA06565B8F9B2B07AD5E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

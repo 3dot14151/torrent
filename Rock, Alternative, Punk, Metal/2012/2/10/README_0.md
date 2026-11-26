@@ -27,8 +27,7 @@ Overdream - Navigator (2006) [MP3|192 kbps]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:5F8A3A5D5AC6422EF2D8F2D8967863194E9BC72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Electric Light Orchestra - The Classic Albums Collection (1971 - 1986) 11CD Box 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:12CA5D95D8008B0F5C8AB72F58982BB949610EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Carlos Santana - Multi Dimensional Warrior (2008) [FLAC|Lossless]<Rock, Bluers R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Katharina Nuttall -3 альбома (2007-2011) [MP3|320 kbps]<Indie Electronic 
 ```bash
 magnet:?xt=urn:btih:196A7BDA4B7AE3B00A6D6E298FB750233B13875B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ The Cranberries - Tomorrow [Single] (2012) [MP3|256 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:6794E25CDB6D623AAF902BE5D74E13E383C32D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ Bleeding Through - The Great Fire (2012) [FLAC|Lossless]<Symphonic Metalcore / H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

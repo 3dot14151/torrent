@@ -21,8 +21,7 @@ Calculate Linux 13.19 [i686] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:36A47DD1B0C5FF661A890C1D1BC6369A66AC322A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Calculate Linux 13.19 [x86-64] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:7F758D35FFF1F1D2148549BE5BD36618991201B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

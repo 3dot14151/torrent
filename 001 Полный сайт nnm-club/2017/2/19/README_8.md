@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9391CAE1DF98A9EB01D13B88F46B6A29CEFA03EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Microsoft Visual Studio — линейка продуктов компании M
 ```bash
 magnet:?xt=urn:btih:25B8DE6A1A107EA1FD331F58797C3B15C3C8DC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ ACDSee Pro - профессиональная программа для рабо
 ```bash
 magnet:?xt=urn:btih:1445805FD601C16B09F542105CA9BA7311E5E306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Music Folder Player Full 2.3.2 [Ru/Multi] - Проигрывание музык�
 ```bash
 magnet:?xt=urn:btih:53E85BE55630AEAE001FABB95C3881C0FE941947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VA - Дискотека 2017 Dance Club Vol. 161 от NNNB (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:F8AA6413A44CCC135554976BBB605AB89E364555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96AB33DB7BE140FBCCCE0FAB3DEFE3561FD6440C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ File Cabinet Pro  - менеджер документов из строки ме
 ```bash
 magnet:?xt=urn:btih:499C53BAD5C0D35B0D12774416397E0AD1116CC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Joe Williams - A Man Ain't Supposed To Cry (1958) 1998, Roulette [APE|Lossless|i
 ```bash
 magnet:?xt=urn:btih:62BAC6A7EF5836245C01CC403217788EDABD9714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Julio Barreto Cuban Quartet - Iyabo (2002) Pimienta Records [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:DB9E9FE73C4370AE1A5FED17BD3C48711CCFDB85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Naughty Professor - Out On A Limb (2015) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 ```bash
 magnet:?xt=urn:btih:06D4365CF4D2E6CFECC811E3D5FAF5C115AC6096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Tom Scott - Them Changes (1990) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:4C86858386142625F457DC068BBB8A38D594B663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Superdog - SuPerDoG (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemp
 ```bash
 magnet:?xt=urn:btih:53E3564F1501B3639980099F5C3CBE124912DA7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - Emotions (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:CC17D1F72272E51A5788A8F9FEDAFEB4BCB6CA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ VA - Electronic Wunderland Vol.1 20 Chill out Master Pieces (2017) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:5646F3D3594858D4549ECAEAECDCA0A7BE3E3544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ VA - I Love Lounge Beach (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:1829E77AE24F8CC8CE165115AA5649D87DE6D5C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ AutoPrompt  - это  интуитивный интерфейс для спис�
 ```bash
 magnet:?xt=urn:btih:F12248CC898BB56ECAAB32533298D69F823F6352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Naughty Professor - In the Flesh (2016)[FLAC|Lossless|WEB-DL|tracks] <Contempora
 ```bash
 magnet:?xt=urn:btih:6CC36AB4DFE7A114AB3C6ED5208EF7F2E4BEBF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Tom Scott - Flashpoint (1988) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:A67DFDB1DE769A2BA0F0B180A5D7F7B1027E6CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ VA - Uplifting Only Orchestral Trance Year Mix 2016 (Mixed by Ori Uplift) (20.02
 ```bash
 magnet:?xt=urn:btih:B9124F2ED066C18D72058782B4024A485CB6ACD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ Imperial State Electric - Pop War (2012) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:47B57ACEA24FEDA8B9E9E6D2440FE1C1ACFABECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ Ernie And The Automatics - Low Expectations (2009) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:153238ACBD2155BFEAB519A9DD9174749C844E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

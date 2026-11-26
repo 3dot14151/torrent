@@ -19,8 +19,7 @@ The Sims Legacy Collection (2025) [Ru/En] (1.0.0.139/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:B01D9E0216CB2729EB3A06F79BC8DF1264D08685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SpaceBourne II (2) (2023) [Multi] (5.2.4) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:867092ED0D5FE10CC4F5965106BBEE935C32A60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ StarCrawlers Chimera (2021) [En] (1.3.1) License GOG
 ```bash
 magnet:?xt=urn:btih:CD10E4DFA511E47C47421107083EBC922FCAF2E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rogue Waters - это тактическая пошаговая игра в ду
 ```bash
 magnet:?xt=urn:btih:ED6037F0C7034C6D8A6B08BBD2D57315E5AB131A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Contraband Police - симулятор пограничника от перво�
 ```bash
 magnet:?xt=urn:btih:970EADE8D8C87302749CD4646B2E9D241D884BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 ```bash
 magnet:?xt=urn:btih:F31093C42E7CB398CEF2CED579E96C72DC96492F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FF9ECE7BBD02B4ABC7658B9DC1D185DC63FB2743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Witcher / Ведьмак (2007) [Ru/Multi] (1.5) Repack Wanterlude [Enhanced
 ```bash
 magnet:?xt=urn:btih:C37B257FDF79C4B24637D616C55522E5AB3AAA6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Bаttlеfіеld 4 – это определяющий для жанра, пол�
 ```bash
 magnet:?xt=urn:btih:E463833E645C25D4C1C91ECB9E7161C6AD6E2DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Bears In Space - это динамичный шутер от первого ли
 ```bash
 magnet:?xt=urn:btih:A2E7557A4BCF57DDF55CFEB64A43D9362511624A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (Build 17793684) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B948B5B1ED681644040277F5A366A981FD94068C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack FitGirl [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:94AEE4DB6BFFECF3408B8DD1E56AB005EBC93DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Ale and Tale Tavern - это кооперативный фэнтезийный �
 ```bash
 magnet:?xt=urn:btih:6F38D53DE843DD136FC863D3531562304A9528D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ The LEGO NINJAGO Movie Video Game (2017) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:420F8DDBE8309F0B3D63AD011873B28D792E7C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Scene Investigators (2023) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F95341449C3CD4660A99E32C22679B27FF83E538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Starground отбрасывает все правила. Это игра с ви
 ```bash
 magnet:?xt=urn:btih:4BD74B61CC32650B61EAB0CDBA34D47173410E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Wonder Ball (2024) [Ru/Multi] (1.03) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9288F7D0BECC0DA396DD908DAF41CE38CA939905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

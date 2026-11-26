@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:17848D37D30C40CB0FBC8D836111E007C8DE7F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kaspersky Reset Trial - Программа для сброса триала (д�
 ```bash
 magnet:?xt=urn:btih:925F14EB7E2D0E757497083E535B7095BD13AB30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ XCOM 2 – это продолжение полюбившейся игрокам
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ITVDN | Видео курс Python Starter (2016) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:6FCECFE2B72675FDE1C59211E9200A0EF9F099FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC1333E2C87E48C5A305DEFDFDB4295F23D3AAA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ XCOM 2 (2016) [Ru/Multi] (1.0/dlc) License [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:9CFA4787B97C4C2B60869C11825E426CD5574C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Adobe Photoshop CC 2015 - новая, следующая за CC версия п
 ```bash
 magnet:?xt=urn:btih:48B139F053338CC648876F3013096751AB10CB35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Darkest Dungeon – хардкорная ролевая игра, действи
 ```bash
 magnet:?xt=urn:btih:DC3EDEBE936F662EBE272D5E0063E95293F61020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

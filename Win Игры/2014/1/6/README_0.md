@@ -21,8 +21,7 @@ The King of Fighters XIII — тринадцатая по счету игра в
 ```bash
 magnet:?xt=urn:btih:613BB1CE05E117BF20E60C38AA6F079AC5A8B1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Renegade Ops, игра авторов Just Cause, разом напоминае�
 ```bash
 magnet:?xt=urn:btih:739AB349840E7431E362615B8122900628D01654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ BioShock 2 Десять лет — изрядный период даже для
 ```bash
 magnet:?xt=urn:btih:EFFA18610DC0CCB21C7D9046EE744ED219BB2835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ray Brown - Ultimate Ray Brown Selected by Christian McBride (1999) Verve Record
 ```bash
 magnet:?xt=urn:btih:5089168AEBDBE6499A5FE9A2E37619763551D831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:90FA44F40511FAC1607EC5335C93FC1F5B6DFB32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3F2712B92BC963173576BC300EE19CC611BCAB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fever Feel - Fever Feel (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie, Pop>
 ```bash
 magnet:?xt=urn:btih:81E910B1C71D47255D82497AAF85EFA15C8F1FAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ray Brown - Something For Lester (1977) 1989, Original Jazz Classics [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:F49372CEDC20189EE668E27D0FA9AE6DFEAC748B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Janet Seidel - Little Jazz Bird (1990, 1992) 1994, La Brava Music [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:8C1BFF2AA6FA8357DDC730F9355F70D562F35B8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ninna Milner - Songs For Sentient Beings (2016) WiMi [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:FE3A1B1D292710DC623B3C5D3037A326FB09F600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - House Arena Vol.6 (2019) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:E87D64B3D9C161E57F1977BE5DEF995D0111C2C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Janet Seidel - The Art of Lounge 3 (2005) Musictronic Lounge [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:7C2D53273D3E2E77C749ED0386F0C8E15755E508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Lucy - Dyscamupia (2019) Stroboscopic Artefacts [FLAC|Lossless|WEB-DL|tracks] <T
 ```bash
 magnet:?xt=urn:btih:903C32BB50B9B6E8A94CF8519615F6EF75C2012F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ VA - German Top 50 Party Schlager Charts 18.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:1665B035296BBDEB02CAA3CE7A5B924D55F986F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Hollowheart - Hollowheart (2016) [FLAC|Lossless|WEB-DL|tracks] <Love, Gothic Roc
 ```bash
 magnet:?xt=urn:btih:62FE67F94039AD1C12F4F02926480CD45DA17F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:B76B3E07B218E66AC6FD0BD67BBE6C5F79FBEF6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Bona Fide - The Soul Movers (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul>
 ```bash
 magnet:?xt=urn:btih:0778CE02BA1611F0F5F55E563CCF1410505F9BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ The Fall - Bend Sinister | The Domesday Pay-Off Triad Plus! (2019) RM. [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:14FDF635675A3F98F4BC26BE4C8B805B95671930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:1860032621BD2149B9F1F5F4DDE1D9729F59B89A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Darkwater - Human (2019) [FLAC|Lossless|tracks + .cue] <Rock, Progressive Metal,
 ```bash
 magnet:?xt=urn:btih:2F56567C3A0C10E0D890E5B0EE28C0721058B46C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ Curtis Salgado & Alan Hager - Rough Cut (2018) [FLAC|Lossless|tracks + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:BBEFD0364DC11914C821D6CBD0D3EFF37ED0B2FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +525,7 @@ VA - New Music Releases Week 10 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative
 ```bash
 magnet:?xt=urn:btih:9878D5747AD0852F05AE09F1D7DF570544D0BEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +553,7 @@ Valverde Brothers - After Midnight (1978) LP [MP3|320 Kbps] <Electronic, Disco, 
 ```bash
 magnet:?xt=urn:btih:57BAB83B1F6EC00A7D727F475237E2396556DD35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ VA - Schlager Total - Die Hits aus den Discotheken 2019 DJ Dance Mixe (2019) [MP
 ```bash
 magnet:?xt=urn:btih:C4FF211D33A0E3ADC7E599011103D2A854E8ED08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ AnyTrans for Android - предназначен для быстрой и удо�
 ```bash
 magnet:?xt=urn:btih:007B00EB3B8043221F08C7C4DD9D13C3FB807C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A89797ACF9EE684E10910ADE1D22BE82EC364674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ Le Butcherettes - bi/MENTAL (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternat
 ```bash
 magnet:?xt=urn:btih:0BCFBC3490B4BAECDC1D467587FFCA6E89E0FD4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ VA - Latin Fit 2019-Latin Hits For Aerobic Exercises and Fitness Activities (201
 ```bash
 magnet:?xt=urn:btih:1BEDF086105CE94AEA4B7BC14EF481BE11C65C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCCEA44D23036558E181C79D0EDD3F07492CCFE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

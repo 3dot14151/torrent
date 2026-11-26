@@ -19,8 +19,7 @@ Compare It! сделает ваши задачи по сравнению фай�
 ```bash
 magnet:?xt=urn:btih:0C9476F5BC41298B28577E820B02C76823D66B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LS · Табель и графики от 30.04.2014 [Ru]
 ```bash
 magnet:?xt=urn:btih:AFC643A8CCB82433F53D4F0D48BCC4AD826DB342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

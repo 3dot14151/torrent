@@ -21,8 +21,7 @@ John Scofield - Still Warm (1986) Gramavision[FLAC|Lossless|tracks + .cue] <Post
 ```bash
 magnet:?xt=urn:btih:B3277E3FF2F3D588343AC1C5F250083A60457EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Joe Gorfinkle & Friends - Take A Chance (2012) [MP3|320 Kbps] <Modern Electric B
 ```bash
 magnet:?xt=urn:btih:753879F2F8151FFB20474751B30A1FA5B6D10BB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Photo Size Optimizer (Ранее известный как IMAGEmini) - изме
 ```bash
 magnet:?xt=urn:btih:028EC3444D706D89670D742C9A92ADD2910156F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D4A92C7E42A9B62B8B9B6EE819AC81DAF3B9E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8DE88575EBC45D75A69A7E598AFEFBF4042839A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ VA - Armada Captivating - Smooth Sensation (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:8E080E60B24A34D9FD9EC1BE34E85EF479111F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Grobut Neerg - Схрон (2012) [FLAC|Lossless|image + .cue] <Folk Metal, Death
 ```bash
 magnet:?xt=urn:btih:A6FD734E82609660E3F1A00A3C6D3F41BB85A6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38803F94C333E2D9290772E680FB85D482E52002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ VA - Hit Summer Tunes - Positive Roots (2016) [MP3|276-320 Kbps] <House, Electro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ VA - Lets Lounge Together (2016) [MP3|320 Kbps] <Jazz, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:F0C00C7FBBF0B6D268A1E0C0654024CF523C8B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BAC696C13AA699BC177F86C15CB024B536811D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ Anile - Allergens (2016) EP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ Mother Black Cat - Thousand Faces (2016) [MP3|320 Kbps] <Alternative Metal, Fema
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Bootleggers - Heart Of Dixie (2012) [MP3|320 Kbps] <Blues, Country, Southern Roc
 ```bash
 magnet:?xt=urn:btih:C4E62A4319A043C64F6FD89E2C29AFDB64488495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ NG:Королева тигров / Tiger Queen (2010) HDTVRip[H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:1BFD58648161BCCCB8508B9A1551A0B80EC19833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0C83E4918C8EAA15A69F964171EE4C84B294A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ The Don Harrison Band - The Don Harrison Band (1976) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:D8BBE68A2B9F69B64B39CB1640B4408570C170B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ Jeremy Spencer - Bend In The Road (2012) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:6FCEA4C822B5EC8E37502C5875EE6300D7E254E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA887B7FA6ABD83CD6D798F4914AE7C2F398E787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ De Staat - O (2016) [FLAC|Lossless|tracks] <Alternative Rock, Electronic Rock, E
 ```bash
 magnet:?xt=urn:btih:654D514C2209750A420F9AE7FDEF0643717D8B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:A8A68100D9C46BC05C342083D3103009060F1DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7C1B6553ACC390A43CA0B1CDBE133B0CECD392C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D9ACAD4B9D96B3F2B3B74D5769EFCAD2F9A933C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ VIII век. Александер Макдональд, сын гордых го
 ```bash
 magnet:?xt=urn:btih:E0D7272ECB6F56EEBCD76B6AA9A98FB072155FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ VA - Smooth Jazz With Sex (2014) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:8842F79E3F69867E3A1627039FF096DDF3627B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

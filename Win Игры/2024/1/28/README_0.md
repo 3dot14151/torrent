@@ -19,8 +19,7 @@ Gloomhaven – тактическая пошаговая РПГ с элемен�
 ```bash
 magnet:?xt=urn:btih:CCE7BFB9B61586AF0B8804EAEEF260CA253EBD77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Night at the Watermill – внезапно посреди ночи вы пр�
 ```bash
 magnet:?xt=urn:btih:0D57648FF89086C97909DACC6CBD2274713A9734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2ECD7C969C270022D063C771DE6D54F0C8DB87B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 ```bash
 magnet:?xt=urn:btih:52E70ACB81B57D09511B2BE83BFADA0C0F0A1FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
 ```bash
 magnet:?xt=urn:btih:441EED8154CB032C0F75EFBECEACB50B5F4B3D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Lil' Guardsman - это восхитительная и увлекательна
 ```bash
 magnet:?xt=urn:btih:E483C0B7FCCE07FF6BBF974696E5DDB46BAAD871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Noxia Somnia (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BF8598FF84D7BFF4E0EE884EA1446D78EE54220C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Cub (2024) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:ECB426D7BAECB80DAB028CFD77B081E3C01C2ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

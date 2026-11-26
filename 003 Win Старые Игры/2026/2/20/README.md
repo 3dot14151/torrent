@@ -19,8 +19,7 @@ Serious Sam 2 (2005) [Ru] (2.0.7.0) License
 ```bash
 magnet:?xt=urn:btih:0FA485816AD0B8341D121FC013B2AE191CDF0FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Juiced (2005) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:D932C813FCEBF45E7DD3812069A6DF280A08D958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

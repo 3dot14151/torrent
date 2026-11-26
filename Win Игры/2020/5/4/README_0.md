@@ -19,8 +19,7 @@ The Walking Evil переносит вас в великую классику у
 ```bash
 magnet:?xt=urn:btih:616CD452FE323629FA6E63E343007AC59682ABDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Children of Zodiarcs - это сюжетное-ориентированная т
 ```bash
 magnet:?xt=urn:btih:726B975A9D64827EE1DAA6DC042441633CF11B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Immortal Planet (2017) [En] (16620/upd3) License GOG
 ```bash
 magnet:?xt=urn:btih:64E3205B09435B4C3521A055E0BB9B05ADDDF7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

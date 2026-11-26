@@ -21,8 +21,7 @@ Vermocracy - австрийская дэт-метал группа из Вены
 ```bash
 magnet:?xt=urn:btih:90E100A0D51077CC7157072AFDD978B7AF26C98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

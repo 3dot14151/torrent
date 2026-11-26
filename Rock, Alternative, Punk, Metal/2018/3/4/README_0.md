@@ -22,8 +22,7 @@ Abigor - Hollenzwang (Chronicles of Perdition) (2018) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:FC73C073D76EF1DE0E34F602BE54F066768541F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Exodus - Bonded By Thrash (2017) 2CD Bootleg [FLAC|Lossless|image + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:98A14F9AF48EA4F60AD98425D7B6BE730C08DB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Andrew W.K. - You're Not Alone (2018) [FLAC|Lossless|tracks] <Hard Rock, Arena R
 ```bash
 magnet:?xt=urn:btih:23088CE1A868B71634F12EF7D1171EA734C028AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ CCS (Collective Consciousness Society) - Discography: 4 albums, 5 CD (1970-2013)
 ```bash
 magnet:?xt=urn:btih:A2181D6B32D75FD4BEE1B07A9791E4D690C9DC3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Arcade была супергруппой glam metal, созданной в 1992 
 ```bash
 magnet:?xt=urn:btih:6DFCF0705B3031867266C956FF95F80E0E3D2D4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Greta Van Fleet - From The Fires (2017) mini-album [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:9BFA3CF0566E5565FD04DA1B1FBF4B285BBF9F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

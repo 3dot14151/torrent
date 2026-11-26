@@ -27,8 +27,7 @@ VA - 25 House Essentials 2013, Vol.2 (2013) [MP3|320 кб/с]<Progressive House,
 ```bash
 magnet:?xt=urn:btih:7A2A328A47543E2B1C02E03D851F602E6FC348EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ n/aЖанр: house / club house / vocal house / progressiveПродолжите�
 ```bash
 magnet:?xt=urn:btih:AAD939E214A99FA554B0F5E20E210E0D900AC351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:841C80D4A0D6F85666AB578FBC15BAB9CA995156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1EF000A87CAC2AF73E321C2D909BA52AFB08140
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ New World - One (Part 2) (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:018FECB601264F734851E9DC26DD4EDDD95DDB6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ VA - Discover Centenary (Mixed And Compiled by Activa) (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:C85DB9613E116AA81F12FC8614A5FE0B8A3006AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Bandarlog - Memoirs Of The Moment (2013) [FLAC|Lossless|WEB-DL|24Bit]<Downtempo,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ VA - Top 50 Dubstep Sounds Of Underground (Red Edition) (2013) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:B21A85329E0FA14A0ECB1D2C873E817D034808D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ Vataff Project - Maeoma (2012) [FLAC|Lossless]<Ambient, Tribal, Downtempo, Psych
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Colette Carr - Skitszo Collection (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:BFF6C03426F18A6CE6A2B3BEDECEA158347CFC27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ Markus Schulz - Global DJ Broadcast - World Tour Toronto, Canada (2013) [MP3|320
 ```bash
 magnet:?xt=urn:btih:AE0368BAFDBFB997175C7F4FDD359A211B1346B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ Steve Millington - Zen Garden (2006) [MP3|320 кб/с]<New age, Meditative, Rela
 ```bash
 magnet:?xt=urn:btih:4DD21187FF6BDA84D8C102A87502F7ACB9FBABE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ VA - 40 Summer Trance Hits 2013 (2013) [MP3|320 кб/с]<Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:5EF9637DAFE9E4363B17A31F9B10DBF744903D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ XP8 - Adrenochrome (2013) [MP3|320 кб/с]<EBM, Industrial, Electro>
 ```bash
 magnet:?xt=urn:btih:D9D9B279D9BA71E3DCD561662565C85917AD0137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +489,7 @@ Ace Hood - Trials & tribulations (2013) [MP3|320 кб/с]<Rap, Hip hop>
 ```bash
 magnet:?xt=urn:btih:749730A72A7B2570ABA0FAFE21CC651C9E8EC06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EBE5BFF687280D4707AA6EBBA2B7BA6CAB73D214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +548,7 @@ Bad Company - Live At Wembley (2011) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +573,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB5579F555CA7BD86F420C52C2C11EF130ACA55E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ VA - Best Chillstep Collection (January 2013) (2013) [MP3|320 кб/с]<Chillstep
 ```bash
 magnet:?xt=urn:btih:599EE1450AD46CA560B9E46B360A007006BA30F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +632,7 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A8165295A9A6C346BF0CF337EE23EA3E9E6DA00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ VA - Cafe Del Mar: Volumen Diecinueve (2013) [MP3|~245 кб/с (V0)]<Downtempo, 
 ```bash
 magnet:?xt=urn:btih:8F1354DE5FCACDC751B8DE10C2D6FB1FD04C154E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +720,7 @@ Astrix - Remixed (2013) [MP3|320 кб/с]<Progressive Psytrance, Full On>
 ```bash
 magnet:?xt=urn:btih:DF82C340ABF58A8DEAD4BA27E9D5D439026F8733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +745,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82C660DE3207172D692B6E13A1639694ACFAE843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +779,7 @@ Gloryful - The Warrior's Code (2013) [FLAC|Lossless]<Heavy/Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

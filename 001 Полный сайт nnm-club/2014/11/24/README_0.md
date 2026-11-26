@@ -23,8 +23,7 @@ Deadwood - Picturing A Sense Of Loss (2014) [MP3|320 кб/с]<Post Black Metal, 
 ```bash
 magnet:?xt=urn:btih:CD65375E9B84CBD37B452B93EE3666D325643692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Discovery: Сверхчеловеческая наука / Super Human Science (
 ```bash
 magnet:?xt=urn:btih:B3E20227B68E64D9F9F6D937EF83FC246AC5BBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F166434CC9B5829E5ED0FA5EA4E0D792A9CFC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Side B
 ```bash
 magnet:?xt=urn:btih:3C1E40893F4622AE14B952E97D84BB359DB5D0F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ Ital - The World of Spirit Plants (19.06.2009) [FLAC|Lossless]<Electronic, Psy-T
 ```bash
 magnet:?xt=urn:btih:6AAFE438D8958DB129A3DECE663FF15E343717E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Keith Thompson - Catch the Fire (2014) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:B5C0615424769E22260840BF3655D8C5BFC4601C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAD35CE69087E7F4DC251F593D584E377FEDE1ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A9C3BAF56F261AADDEA0EAEEE9EBA175E650EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +282,7 @@ Wallpapers - Ferrari Full HD [JPEG]
 ```bash
 magnet:?xt=urn:btih:5F16FB5222E26EC040EA4DEDCB235C85717DFC36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +316,7 @@ VA - Classic Rock presents: Voodoo Lounge (2014) [MP3|320 кб/с]<Rock, Hard Ro
 ```bash
 magnet:?xt=urn:btih:FE32C786625AFBBB87DAC7DBC07A83450DD6DB63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ VA - Christmas Blues (2005) 2CD[MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:3BD065D3F48C8122094AB6D5B8149D2BC70073D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:095E98E9970090B43E46E644B924883CFF98F463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ Peter Roe - Time Traveller (2014) [MP3|128 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:B125CEBD3CA200C5B21D03999AC10289B6FAD1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ VA - The Official UK Top 40 Singles Chart (23-11-2014) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:7E30E6C3B9A2B9BB00387FAF91D0FD9F34B4403E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ Epic North Music - Rising Storm (2013) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:619C6ED9F9B71268B93E20A40502282D320882FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ Epic North Music - Origin of Iron (2013) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:743F2AA81C7BD55C400A4692930288AA0290CBE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4828A390E95BD6B9D599D481DB67D572CD1F963
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +564,7 @@ VA - Музыкальный блог Доктора Ужасного / Dr. Horri
 ```bash
 magnet:?xt=urn:btih:F15CD0F378C23E8CC8B56D00DDA673DFF454F528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 ```bash
 magnet:?xt=urn:btih:1B48A275EECC3AE7F11BC506F9FB4A1C7065E783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ Aseesoft Video Converter Ultimate – мощная программа для к�
 ```bash
 magnet:?xt=urn:btih:3400C6BD3C3CBB3DB38000BDFA83B6DC28D9E462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6763EBE4AF6A14D1BE62967A3F1DB821DA43F26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ Ryan McGarvey - Forward in Reverse (2007) [MP3|320 кб/с]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:FB1B14439DD1E33C671409032CF6B0B1DD0E45FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ Decimation - Reign of Ungodly Creation (2014) [MP3|320 кб/с]<Technical Brutal
 ```bash
 magnet:?xt=urn:btih:92B51BEBBBF41C8C2046F5258D8051F260611EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ VA - Much Dance 2015 (2014) [MP3|320 кб/с]<Pop, Electronic, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:CBEA40E5AFF9A1DAD53E4B77CD9B55E41C1DB025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ Wallpapers - Chevrolet Full HD [JPEG]
 ```bash
 magnet:?xt=urn:btih:D2FB1E85084152878BCA8A7CCAA3763BCAF91970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

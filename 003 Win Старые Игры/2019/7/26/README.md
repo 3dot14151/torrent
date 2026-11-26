@@ -19,8 +19,7 @@ Terminal Velocity (1995) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:69647512D73A870D8271A8787FF64C4DAD4AAA1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

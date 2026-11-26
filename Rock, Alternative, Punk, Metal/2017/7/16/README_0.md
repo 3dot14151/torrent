@@ -22,8 +22,7 @@ Edguy - Monuments (2017) 2CD [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:6736FC77CC2E99B5D52AF45B0E9F075999B614F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Roger Waters - Is This The Life We Really Want? (2017) Japan 1st press [WavPack|
 ```bash
 magnet:?xt=urn:btih:F2315F1EFCEF46166785BCF9CBB1D0B18E77C2C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Eagles - Their Greatest Hits Volumes 1 & 2 (2017) (2CD) [MP3|320 Kbps] <Rock, Bl
 ```bash
 magnet:?xt=urn:btih:2E062CC04CF1828644C4A49020BCF738E7E179D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

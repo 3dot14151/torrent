@@ -25,8 +25,7 @@ VA - Мелодии экрана, 6 серия (1961) [FLAC 1.0|96/24|tracks|Vin
 ```bash
 magnet:?xt=urn:btih:AB5AD1D070CCD149F1F40C9547AC5231C3580B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ A4. Foolin' Around (3:30)(   Читать дальше...   )Производс�
 ```bash
 magnet:?xt=urn:btih:D9B451868567EF8C47C915D57443E5C0D140A860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

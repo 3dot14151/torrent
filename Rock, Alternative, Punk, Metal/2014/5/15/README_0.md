@@ -28,8 +28,7 @@ My Heart To Fear - Algorithm (2013) [MP3|320 кб/с]<Melodic Metalcore, Post-Ha
 ```bash
 magnet:?xt=urn:btih:43E1D5886CA90E7EE3850CEE15953E63016B53B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ From The Cradle To The Rave - Tales From The Raveyard (2012) Vol 1,2 [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:F3ACB68ACAC47B21848DCA4BF486EBE761AE8B5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Mirzadeh - Desired Mythic Pride (2014) [MP3|320 кб/с]<Dark/Melodic/Sympho/Bla
 ```bash
 magnet:?xt=urn:btih:98F1CBA576BB4406945B8EB3F8DB1B676A44EFC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Gerard Manset (также известный как Manset; родился 21 а
 ```bash
 magnet:?xt=urn:btih:DB7E9C49C155BDC41F41D59D41A8D41F257F7315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +150,7 @@ Mad Caddies - Dirty Rice (2014) [MP3|320 кб/с]<Ska, Punk>
 ```bash
 magnet:?xt=urn:btih:02DACB136EBACCF62547AC309422372F10531142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B07C58A7FB9D441CCC7D08416405B6B7CFAD30E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:975E1117E02E0BF8CA68AB309A1CE2C38231E07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Personal collection, original rip & scan work: antonyart
 ```bash
 magnet:?xt=urn:btih:83AF6E1D0A98798413B93DE891DECBD3B1572194
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:7057D1AA75C50AC451FFACB87B46F7A4BC06BD5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +310,7 @@ Creedence Clearwater Revival - The Legends Collection (1993) [FLAC|Lossless]<Roc
 ```bash
 magnet:?xt=urn:btih:4A32B6CDD81F20F78AEE2EF244FC2231460696C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +339,7 @@ VA - Hollywood Rocks! (4 CD Box Set) (2005) [MP3|320 кб/с]<Classic Rock, Hard
 ```bash
 magnet:?xt=urn:btih:27F00C10DCBF34617674D685C6E1826B4AA5B9F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +373,7 @@ Anna Oxa - Storie: I Miei Pi Grandi Successi (1997) [FLAC|Lossless]<Soft Rock, P
 ```bash
 magnet:?xt=urn:btih:B1CBB1B1C87CACD0BF5CC1E00CFC526C8E76C6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +407,7 @@ Sting - Best Ballads (1996) Unofficial Compilation [APE|Lossless]<Soft Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

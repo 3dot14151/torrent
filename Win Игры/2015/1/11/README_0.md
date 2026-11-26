@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:401743E9967CEC39278306CD7D44D895894CC470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Cognition An Erica Reed Thriller - это "эпизодический крими
 ```bash
 magnet:?xt=urn:btih:B5632E5C2758E38C17DD2B4810D518323541E8EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

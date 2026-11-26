@@ -19,8 +19,7 @@ Daniel Kusswurm | Modern X86 Assembly Language Programming, 3rd Edition (2023) [
 ```bash
 magnet:?xt=urn:btih:97567A957ED33DD5BC847DEF7ED6C399B2148747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Marco Secchi | Multiplayer Game Development with Unreal Engine 5 (2023) [PDF][EN
 ```bash
 magnet:?xt=urn:btih:9122A4A2778D1FFD565EDF30B8002000747FC9D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

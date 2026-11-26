@@ -19,8 +19,7 @@ Tiger Eye 2: The Sacrifice (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:02ED635AAEE8D3993158559FF3B05CCFD35DA349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Police Force предоставляет вам возможность испыт
 ```bash
 magnet:?xt=urn:btih:A708CC603235647943C594E8E8D84EB997F4C1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition / Тайны ду�
 ```bash
 magnet:?xt=urn:btih:9A08EAEE4B58F42175DF6B7D0D145B2F110E3732
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Exorcist II / Экзорцист 2 (L) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:B28C66052292AB176FFB3BD8531BB46E352032E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Folio - Каждый, кто использовал официальное пр�
 ```bash
 magnet:?xt=urn:btih:576404459800F2CFCB846AB754D6D7F46CABC9F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GnaCAD – отличное приложение для работы с черт
 ```bash
 magnet:?xt=urn:btih:FF9D310B1D415F54F99BCDFCD34197BE0FB6E0D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AE4F013D82ED9A8ADB6CF00EF6A1BC327DB3C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

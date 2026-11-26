@@ -19,8 +19,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) License GOG
 ```bash
 magnet:?xt=urn:btih:65AEB697031CDA379444A6F086474A837B71F99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:063BE8B69946F42D47A384B4E341223139445485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.1) Scene Rune
 ```bash
 magnet:?xt=urn:btih:98B31D626C45068ACF65D39493573198D1A2B75D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:577326A6E99C5BD6B39926B63C20478AC3759277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Risk of Rain Returns - это культовый roguelike-экшен, кото�
 ```bash
 magnet:?xt=urn:btih:E2D014FEDB4F86D3DC91BD05753C45EF1C638AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.17/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:84BDCBDA48894061C175B2B756B0B768E197E7AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

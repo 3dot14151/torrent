@@ -28,8 +28,7 @@ John Lees - A Major Fancy (1977) /1999, Eagle Records/ [FLAC|Lossless]<Rock/Psyc
 ```bash
 magnet:?xt=urn:btih:33550DA9A0B0C5035BE807A3412CAEA9A9D5C46F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Suicidal Angels - Divide and Conquer (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7C896DA83EB23591C7A8DAAAAED89B1AB44B6630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ DeГенераторс ( DGR ) - Будь ты не Laden (2003) + Bonus (1996 -
 ```bash
 magnet:?xt=urn:btih:FA4969DD7D2DF5705001342AF354624514B040A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Bonus Tracks
 ```bash
 magnet:?xt=urn:btih:A0B7BF09216D38D71250CE22BDFA576F4AA9C6B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Mogwai - Rave Tapes (2014) [FLAC|Lossless]<Post-Rock>
 ```bash
 magnet:?xt=urn:btih:AB81F2EDA12641BD0B14FED9E84879EF35F435AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ Breakdown of Sanity - 3 альбома + single (2009-2013) Дискографи
 ```bash
 magnet:?xt=urn:btih:C81A32D0D56C7F36030320F683328F218F265F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ Axel Rudi Pell - Into the Storm (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:84F6421AB344FEB3C075D320694CF268FBF4CFFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Ozzy Osbourne - Dreamer (2014) Compilation [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6FD33018EC24CF56B0CAD9F7BFA0DD236FD14B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

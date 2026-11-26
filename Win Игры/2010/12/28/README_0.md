@@ -19,8 +19,7 @@ Secret Missions: Mata Hari and the Kaiser's Submarines / Секретные ми
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Commander (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:14BA85CE9E9DA276A5038A64F5DCA653B67B5C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tasty Planet: Back for Seconds (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:76C9BE834934E436873016DDE557DC5C863D1A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

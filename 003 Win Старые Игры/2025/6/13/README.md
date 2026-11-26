@@ -19,8 +19,7 @@ I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License А
 ```bash
 magnet:?xt=urn:btih:BF2DBEA1736BD3AA631CF6CB010642AEE04BE44D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

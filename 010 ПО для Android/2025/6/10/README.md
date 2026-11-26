@@ -19,8 +19,7 @@ AmneziaWG 1.1.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:F9C070C7D7C24FDF320E6CA6C6554D3ADF830D55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

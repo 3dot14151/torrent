@@ -19,8 +19,7 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:167F7788BE8C1462DC7459C1C81516DF1B7F7C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ izi.TRAVEL v7.2.2.514 Mody Ale.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:66F41BA9F8C1A4A2A54F7FA5F12348A35709B4F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ V Recorder – качественный и простой экранный ре�
 ```bash
 magnet:?xt=urn:btih:2FCB9ED09F619FEEFB4C349C13AB5F5866270682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ FBReader Premium v3.5.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:99A23B3A862E4123B6C5E16FE2EBBB7A4F117201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

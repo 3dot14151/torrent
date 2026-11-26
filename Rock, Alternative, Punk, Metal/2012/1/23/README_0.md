@@ -28,8 +28,7 @@ We are the Fallen - Альбом и 2 сингла (2010) [MP3|192-320 kbps]<Got
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Dark Lunacy - Weaver Of Forgotten (2010) [MP3|128-192 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:46B331DB6315E2C6B4C27B3A3A69A3EFA4EAA504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Eternal Oath - Re-Released Hatred (2006) [MP3|320 kbps]<Symphonic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0B9839A7F5244FC92B70B007F18CFE4FD1D8CC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ A Perfect Circle - Дискография (2000-2010) [MP3|192-320 kbps]<Alterna
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ The Rumjacks - 3 Albums (2009-2010) [MP3|320 kbps]<Celtic Folk, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:C85D463247DDD6C24FA110254EA990B9281F5225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

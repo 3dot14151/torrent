@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:CBD9A1DD500AD21BD2FBA86BC6D96FA2D3EE33A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB0521B62E37E421694A6A50AE7B1B47C0D10B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BA4DB54679C32D4B0948B1BB7BF2D016EAC101F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ FotoMagico – популярный пакет для создания слай�
 ```bash
 magnet:?xt=urn:btih:B9AEA8B5129BD12CE5D988F54980F03D64A8FD18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Tegan and Sara - Love You to Death (2016) [FLAC|Lossless|tracks] <Indie Pop, Syn
 ```bash
 magnet:?xt=urn:btih:E7C789627A89855B0279E6817FCFC67281DB28D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEEFCF2044CD9E0F55306E8E6E908B4403025E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E6A348A14C356B7F9A92A09B6FBAFF5E8509D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ VA - На ночной волне радио Шансон 5 (2016) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:20CDB11FE8B48FF69571EBD48C0399B3B7187BB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84471C6820111E6A570AEFE13EE2D96B41193457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ VA - Килобитный взрыв хитов - 6 (2016) [MP3|256 кб/с] <Po
 ```bash
 magnet:?xt=urn:btih:6C5337627C0F73AD0C6D4130C872754A81788D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D428E81C51776A8A4718F1BBB2667A336531D623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ VA - Летний Музыкайф (2016) [MP3|256 кб/с] <Pop, Dance, Rap
 ```bash
 magnet:?xt=urn:btih:874B5EE6972D8FA2BB94ADF85CE62713D33DEEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Blocs избавляет от необходимости написания ко
 ```bash
 magnet:?xt=urn:btih:C6AFE7F49DAACD33CB89F4EE2C7508F707DC3594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Cubimorph - интерактивное модульное устройство, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Telegraph - Beyond Good & Evil (2016) [MP3|320 кб/с] <Electronic>
 ```bash
 magnet:?xt=urn:btih:F7494B4CF13812F7B55D3B9513B19DE2505695CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ VA - American Pop Rock Classics (2016) [MP3|320 кб/с] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:9E8160E1B147F2080A1F7874904F1575E77FC5D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Suzi Lane - Ooh, La, La (1979) [MP3|320 кб/с] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:30F686EEC643542ED6EE4936EF55D60427C878BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ VA - Dinner Party Jazz: A Delicious Collection of Instrumental Jazz for Entertai
 ```bash
 magnet:?xt=urn:btih:47BAC002052DC1B3432F194243FCDC38873865C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Viol
 ```bash
 magnet:?xt=urn:btih:B1A80EA0E3365F003C69CAB6C98F94F5B5E79E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:925A914369D1C697702F45DAFADDA067229A29E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Brymir - Slayer of Gods (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Sy
 ```bash
 magnet:?xt=urn:btih:F81DE67082BED6EFE24EA15D80A528C16521E91E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ L 33 - Karate (2016) LP [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:7DDA7C8255233420B220A439216EC36748841208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ VA - Дискотека бездна удовольствий 6 (2016) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:0BDD4727EE3B28FF5B8C4B5CBE32881675AE24A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +640,7 @@ Holy Fuck - Congrats (2016) [FLAC|Lossless|tracks] <Electronic, Experimental>
 ```bash
 magnet:?xt=urn:btih:BFA7BBACC537210C108C59C850C72C362A32A4E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10A141681EF0DFF7D703E5E1F4292EF062AE1F2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:828FB19C2D2A2EEE99532CC65D064479026D8915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Oxenfree – это триллер о сверхъестественных си�
 ```bash
 magnet:?xt=urn:btih:D0D98CD380EEA7DFCE2EDF4E2479B191CBDB18CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:D16A72B0617859DE1919867789774AA25EE9900C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

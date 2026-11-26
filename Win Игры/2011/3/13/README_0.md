@@ -26,8 +26,7 @@
 ```bash
 magnet:?xt=urn:btih:D2AC880896DE83A97FB5E380B7A943B7B7AC8112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ NHL 09 (P) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:0F0DCCFB3E6D8B4533EFEBCD12EF6FE31303AB17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

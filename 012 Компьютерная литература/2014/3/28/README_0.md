@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:166BC4D8505337EC7F3EC0954B8C31B7C2E97336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Node.js является серверной технологией, котора
 ```bash
 magnet:?xt=urn:btih:40D6BE992DC1D164C77D7D4ECDBA1CA695635F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

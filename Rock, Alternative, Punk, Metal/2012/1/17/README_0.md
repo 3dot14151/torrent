@@ -28,8 +28,7 @@ Knowing Is Not Knowledge - Turn, Turn, Stop (2011) [MP3|320 kbps]<Post-Hardcore,
 ```bash
 magnet:?xt=urn:btih:186FEF9BA1768241D705AA10851660D06FF5E7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Viral Millennium - Vomitosis (2011) [MP3|128-320 kbps]<Gothic Metal, Industrial 
 ```bash
 magnet:?xt=urn:btih:1BB1263FD54318276E6530DAA08F08A38CF4EF64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Lamb Of God - 8 Albums (1998 - 2012) [MP3|320 kbps]<Groove Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Stardock Start11 – новая версия приложения для нас�
 ```bash
 magnet:?xt=urn:btih:7B25339E1D5623462687741B47C5805175125FAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smart Driver Manager - это быстрый, простой и безопасн
 ```bash
 magnet:?xt=urn:btih:93A7C3DA206AEB4E8194019F3C2C936EE3A0E6CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MeinPlatz предлагает простой и быстрый способ с�
 ```bash
 magnet:?xt=urn:btih:1E24D3AF8B6135AC02EF54D99AA8A20C2F251385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

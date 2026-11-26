@@ -19,8 +19,7 @@ Demons Age (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:331DC1DE3EB4A29B63C04032ADBF4EF5F8B49C4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DRIFT21 (2021) [Ru/Multi] (6845677) License CODEX
 ```bash
 magnet:?xt=urn:btih:5EC38417AC96A22A4042D481B45E5AAB2E518E97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Thief является четвёртой игрой в легендарной �
 ```bash
 magnet:?xt=urn:btih:3313D64498BE093360DB045D42CDCB045CAD1F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

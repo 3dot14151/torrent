@@ -19,8 +19,7 @@ Streamer Life Simulator 2 (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F1F0E37B7BCE6B7F85E5344516A33A4F876A4B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sancticide приглашает в мир, опустошенный библей
 ```bash
 magnet:?xt=urn:btih:90D1300EFE193133A7C82D1A3B890D4592A37CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Seclusa (2026) [Ru/Multi] (1.0.4i) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:348805388500382FACCBB96917DB32E9157A162A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sancticide - это экшен-игра TTP с элементами rogue-lite, 
 ```bash
 magnet:?xt=urn:btih:53E9039D15F34851DFCF7CC7EFCA578CBDF95C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Scott Piligrim возвращается в новом приключении! Т
 ```bash
 magnet:?xt=urn:btih:1D2E3716C461EA99CC9179A77C5448FF8DF344FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Umigari - это рыболовная игра от первого лица с �
 ```bash
 magnet:?xt=urn:btih:47892BD2B9A1AAE12A2A96056039F756A3A2AEFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ DOOM: The Dark Ages - это не типичный шутер с беготне�
 ```bash
 magnet:?xt=urn:btih:C02F31E81B219EDDCBD771246B48EAD95E8759E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

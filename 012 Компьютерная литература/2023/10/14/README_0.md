@@ -19,8 +19,7 @@ David Canton Nadales | Build Your Own Metaverse with Unity (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:51B57A50912948FB28AAFC7875BF1AB26B4C6F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Avi Tsadok | The Ultimate iOS Interview Playbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A0EB47AE0684CF62A24FEF9F3536D5E2BCCCC00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dylan Hildenbrand | SvelteKit Up and Running (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A98524096AA161235935C2A676FB0792F8C24C26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Alfonso Antolinez Garcia | Hands-on Guide to Apache Spark 3 (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:01B97A7756160F7B0123D18466516CC3D6DDA33E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Irina Dominte | Web API Development for the Absolute Beginner (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:24B91AADA30759CBB18CF8BA2EDEBC50E203A4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Morten Barklund, Azat Mardan | React Quickly, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:EDD29D08188E43CA0A60C8008C87A1678DF47EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ David Matuszek | Quick Java (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:E5F4267BDA27BAE53845373902A22512CA1DEE85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Doug Farrell | The Well-Grounded Python Developer (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:4FB7E58D59E8DAA0911943C5F9C3C26FC086B891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Alex Libby | Practical Next.js for E-Commerce (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:5928EDE9436DF57148237A211D371B39A4A9FEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25BCB30FC4973E985376865E76D5CB24215A2AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Python — популярный язык программирования выс
 ```bash
 magnet:?xt=urn:btih:55D2E8D4607D0A6CF18A07407B2EE74ACA7D766B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E76E01F9D98585E4352B5E332556EC918CD4D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

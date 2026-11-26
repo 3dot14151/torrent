@@ -22,8 +22,7 @@ Tabernakel - Scheintaufe (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Met
 ```bash
 magnet:?xt=urn:btih:D18263E6B6EB1F296DDF5F4A6123CC3F633EA4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ King Zebra - Between The Shadows (2024) Deluxe Edition, 2026, Frontiers Music Sr
 ```bash
 magnet:?xt=urn:btih:930A2730707F23290B587B5BE112C8FF1AA568A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chiron - The Best Of (2015) [MP3|320 Kbps] <Alternative, Avant-Garde, Darkwave, 
 ```bash
 magnet:?xt=urn:btih:4FCB0B2028E834E43FF5BE46012B43B1DB3C3AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ CD2 - Bleed (2004)Жанр: Alternative-Rock, Coldwave, Goth-Rock, New-Wave, Pos
 ```bash
 magnet:?xt=urn:btih:B1B492144EA3E475C0853128B24A856541E31391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

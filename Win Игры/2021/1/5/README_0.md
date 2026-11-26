@@ -19,8 +19,7 @@ Pumpkin Jack — это дикая, но симпатичная 3D-игра, в 
 ```bash
 magnet:?xt=urn:btih:A32432323E73633C18E2ED36B27CACED77A430EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Papers, Please (2013) [Ru/Multi] (1.2.72) License GOG
 ```bash
 magnet:?xt=urn:btih:E797EF809E65E768B66E54E955AAA8A50EA41B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.5.113/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:56A537460F1AC36C4EE68F9E35032254719F629F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

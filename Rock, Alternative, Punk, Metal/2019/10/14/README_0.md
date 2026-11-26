@@ -22,8 +22,7 @@ The Rolling Stones - Honk (Deluxe Edition) (2019) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:65DAA1285C0AF14981BEB94F84ABB03E07786F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

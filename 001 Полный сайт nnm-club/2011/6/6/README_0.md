@@ -18,8 +18,7 @@ VA - YouKnow & Jimmy Savard Pres. Rambo Rocks (2011) [MP3|320 kbps]<Tech House>
 ```bash
 magnet:?xt=urn:btih:D1DF494C88306A930EB35FC54805F79E15FD38ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B68449A97EA3F31267FC9F0A9AD00C1E0AF3F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A46283E582FD4C09037870EC7F3E91BDE78AA48A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Global DJ Broadcast Top 15: June 2011 (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:A7DF12F887F09FE9352250A047D296EDA4443AA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98494E2BDDCECD051EF726F17A60D8A657B356F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Tropical Highlight - Regressive Life (EP) - 2011 /PND 0084/ [MP3|320 kbps]<Progr
 ```bash
 magnet:?xt=urn:btih:11D7B59A520FA190E5B3C9640FADDB062D8ACF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ VA - Вибрация Танцпола-4. Летний Trance (2011) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:250FAEBDA64263B5341C6FC5741ABB3D4C8ADDCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ VA - Новинки Года 3 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E67843AB4D00514895090BE57AFB1B035F9F561F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ VA - Soul of Ibiza Volume 8 (05.06.2011)
 ```bash
 magnet:?xt=urn:btih:3401DF37B6A92AEE7A512700F77786203FAFF0F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ VA - Top Of The Clubs (2011) [MP3|320 kbps]<Dance, Trance, House, Club>
 ```bash
 magnet:?xt=urn:btih:C39B5293E0DFB9CFE849485127B802729BB77F1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ VA - XXXL Жаркое лето (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:FB4BCCAD2DA6BAE36A0AF0C16B7C88295815ED4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Ocote Soul Sounds - Taurus (2011) [MP3|~192kbps]<Funk, Latin,Soul, Afrobeat>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B89A5C973F7672BF9AD1163FBF10246E85994DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Sepultura - Kairos (2011) [MP3|192-320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B48041449BDD7CF535A288F1966B83DE91567BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6882024A3DF97F2BD29E980D893500DB476BBED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ NG: Гигантские челюсти Амазонии / Amazonia's Giant Jaws
 ```bash
 magnet:?xt=urn:btih:D1CE2F838B19AFDC512F1F17B1B1B5DDFDB7DC8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93D3453331C0F9D42E505FA777912670D8F7F3A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ Sisulizer - данная программа предназначена для л
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ NHL 10/11, SC: Финал, матч №2: Boston Bruins vs Vancouver Canucks (04
 ```bash
 magnet:?xt=urn:btih:739666AFD4FBEFA611F51A2F6CC4BE2621C2146D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64ABC6CD79693480D8C8E1389E74D2DD9FE3E44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37AA73B95DE221D1246BA6042CC4D43685255718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ VA - Electro House Spring - All Collection (2011) [MP3|320 kbps]<Electro House /
 ```bash
 magnet:?xt=urn:btih:C04D0511C745AFDEF591A7786F6C0360AB6C7CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Maltes - Neuroscience (2011) [MP3|320 kbps]<Drum&Bass, Neurofunk, Neurotech, Dar
 ```bash
 magnet:?xt=urn:btih:E1CB17B42E050D3743EDF1C0F2D2325FFEA90122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ Secret Diaries: Florence Ashford / Секретные Дневники: Флор
 ```bash
 magnet:?xt=urn:btih:A22B87798662BFC1A7F7D0213D47B4C40061148A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

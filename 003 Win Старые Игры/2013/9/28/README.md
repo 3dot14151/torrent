@@ -20,8 +20,7 @@ Colt's Wild West Shootout (1999) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:246F2C321E30E1D79B5A8DFF55425A172F010AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Imperialism II: Age of Exploration (1999) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:A80A1B4FC50EDB74A51D303668CF985455D5429A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

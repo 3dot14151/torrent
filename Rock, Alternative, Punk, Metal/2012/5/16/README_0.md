@@ -28,8 +28,7 @@ John 5 - God Told Me To (2012) [MP3|320 кб/с]<Alternative Metal / Instrumenta
 ```bash
 magnet:?xt=urn:btih:E841DC9ACA7BECB400CCB6C1A94CE1EF58185D92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

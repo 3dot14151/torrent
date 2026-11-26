@@ -19,8 +19,7 @@ Mi Fit 2.2.9 [Ru] - Фитнес трекер и не только
 ```bash
 magnet:?xt=urn:btih:F945DBFA76BE050CED9BB624BC0A125BFC4DC14D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

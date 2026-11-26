@@ -22,8 +22,7 @@ A4 Nessun Dorma(   Читать дальше...   )Жанр: Classical, OperaП�
 ```bash
 magnet:?xt=urn:btih:293F2FF3BA36F246BFDCA9242A86B9E2C6EFBB59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A3CD45CDC8B031BDB5717FC111FFE9541FA3CA8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7235BECB9E94A11CF21B7A5A9DC9DF9CE7D6952A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Constructor Paravis Flash ver:Beta 01.2019 [UEFI | x86/x64 | RU/EN]
 ```bash
 magnet:?xt=urn:btih:B091D18C3921A55D9A810D7BB97870B37AF64C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41DAB9245EAC57391A31D35F05DFD0A5178C21CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ RTM Build 17134.1.rs4_release.180410-1804 + Cumulative Update KB4480966 = OS Bui
 ```bash
 magnet:?xt=urn:btih:C35060B3FB7EC03485DA73858FED76DF511FFE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5D80741AF88E68F4344B6BC05C89F6CA40CEBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ UVLayout - это самостоятельное приложение для с�
 ```bash
 magnet:?xt=urn:btih:6D4D043BBA04A43E8865253D1B902D55C8E82B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Gigabyte AORUS AD27QD — первый тактический игровой м�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ SOULCALIBUR VI / SOULCALIBUR 6 (2018) [Ru/En] (01.10.01/dlc) Repack xatab [Delux
 ```bash
 magnet:?xt=urn:btih:B39918FFB857EEACD74AD3F29F5A7D38F32E47E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 01.2019 1DVD v
 ```bash
 magnet:?xt=urn:btih:9DD42DF0F9649470BC625AAE2B69D158F662E301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

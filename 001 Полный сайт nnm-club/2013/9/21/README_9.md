@@ -18,8 +18,7 @@ Windows 7 Ultimate SP1 Plus PE x86 x64 StartSoft 32 [RU]
 ```bash
 magnet:?xt=urn:btih:5B46F7A5E40F4E7A474064763A390995B9F39789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ State of Decay (2013) [Multi] (1.0) Repack 3DM
 ```bash
 magnet:?xt=urn:btih:3D1AA79F4C7699C3838F7CDEFEB58F41ADE6C9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Mathcad 15.0 включает 25 функциональных обновлени
 ```bash
 magnet:?xt=urn:btih:DD208033728420B32093D39043A5A98B69EFCAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

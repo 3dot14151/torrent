@@ -19,8 +19,7 @@ Whispered Legends: Tales of Middleport / Шепот легенд: Истории
 ```bash
 magnet:?xt=urn:btih:07732B2799A2ED5AF0D1EE0FD0CDC0185631153D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paranormal Files 5: Trials of Worth / Паранормальные явлени�
 ```bash
 magnet:?xt=urn:btih:390B8DCE8699CEA2A5C71A13C0D24229DF9CA9EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Panzer Corps 2 — лучшая стратегическая игра о Вто�
 ```bash
 magnet:?xt=urn:btih:98ADE6D4EF3F175130CDF414B6E955B276364E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Net Speakerphone Pro 4.10 RC1 build 140319 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CE43F287706C65267AAC2551C288E0D222D0CD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

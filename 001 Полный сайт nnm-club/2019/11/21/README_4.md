@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1A6F8BFECE1CF3CAFBCB5F3E2D75AF4BC95BD678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16692FFC08031967165041CBBA1BD6F373CC2AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/En] (101.101.32708.0.911/dlc) R
 ```bash
 magnet:?xt=urn:btih:B1D4F10C4F65A0C0370E1E7F219976FEBA546E20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Re-Volt [Ru] (L) 1999
 ```bash
 magnet:?xt=urn:btih:A46CE19155C1C5AEF00153ECB1D5B44CFF8F98D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89623ECC64D519816CA5DBB64E3424FA78EA24A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Microsoft Windows 10.0.18362.476 Version 1903 (November 2019 Update) - Ориг�
 ```bash
 magnet:?xt=urn:btih:3B3459FD2423CF6FEC485E5590E0BE2CD0D01569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56DC5A84BFF37749D1A5D3AEDDAE6999D214EAD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ VideoHive - Videolancer's Transitions - Original Seamless Transitions Pack (v.6)
 ```bash
 magnet:?xt=urn:btih:B95FB4E82FBD1E2C32F5AB7C25AF7319DCE775C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1BC079BEB4BA91AEECEC56A49C329CEFB85FE56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

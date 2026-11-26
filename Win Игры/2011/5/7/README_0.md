@@ -20,8 +20,7 @@ Bloodline of the Fallen: Anna's Sacrifice / Жертва Анны (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:9C5C592CAFD1B63FF836E5D7D4E62E4370E8306C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Elsword предоставляет игрокам шанс стать звезд
 ```bash
 magnet:?xt=urn:btih:108B926DB14E748B878DC897D92C5C6B105BC06E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Fortix 2 (L/cracked) [Multi6-] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:F0D503B82C5572053B208F8C0951F7E98632B7D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ KRAZ / КРАЗ [Ru] (RePack) 2010 | R.G.Spieler
 ```bash
 magnet:?xt=urn:btih:40A4D98546EF61F158589BC71B81EF0FD78F6318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

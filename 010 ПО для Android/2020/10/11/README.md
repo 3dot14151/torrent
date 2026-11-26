@@ -19,8 +19,7 @@ Quick Video Recorder - это приложение для камеры, кото
 ```bash
 magnet:?xt=urn:btih:D177BEB10EEF4EC9AD2D74B24681E7FB8998202B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

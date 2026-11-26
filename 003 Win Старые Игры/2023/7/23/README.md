@@ -19,8 +19,7 @@ Arsenal of Democracy: A Hearts of Iron Game - стратегия, предста
 ```bash
 magnet:?xt=urn:btih:B0EC24BC666E453229FC5716DBA30A75DE87624D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

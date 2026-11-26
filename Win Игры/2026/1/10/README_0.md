@@ -19,8 +19,7 @@ Legend of Kay Anniversary (2015) [Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:95AF87C8F2D80ACE6235341B9A640CB8146E7926
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AFD3134401F658AB183FD50C680A575E4DCA9779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Not an Aim Trainer не укладывается в рамки одного жа
 ```bash
 magnet:?xt=urn:btih:6496D62F0A690EE4E0B53B85C9EF4734D9E4E66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dragon Ruins представляет игрокам возможность по
 ```bash
 magnet:?xt=urn:btih:ADF713B9DBFCDEB773D8AE8ECBE8CA6288860714
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Island Notes (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E182FFF696CC78320EF5ED2A922EFBA1DA98C403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ BLOODKILL: Goreblast Overkill погружает в скоростные бои 
 ```bash
 magnet:?xt=urn:btih:559068B1174CCE075DF9BB333546A95F8A63860B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ R-Type Final 2 (2021) [Multi] (2.0.4/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:89739E39D5CED0D6B4DA18B43BAB41AA10D8FD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Salt and Sanctuary - это двухмерный Action/RPG, амбициозн�
 ```bash
 magnet:?xt=urn:btih:235B2AFE20019AD4F60AF6775A2C2089D813280E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Salt and Sacrifice – это продолжение серии хардкорн
 ```bash
 magnet:?xt=urn:btih:BD2F7071C67193B85EFDCC5FA789D54730EE14DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Snow Ash - это карточная торгово-приключенческа
 ```bash
 magnet:?xt=urn:btih:8E2A6D82279F5DF74BC2FBC5011FAA90D9521519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:67F43AD67442DAA8CC63B904D8BEABB20C7FA036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Dreamed Away - мрачная приключенческая RPG с упором
 ```bash
 magnet:?xt=urn:btih:C05394B0E9E65FF0B5CFB241E1AE931604304CA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Alan Wake Remastered - в этом отмеченном наградами ки�
 ```bash
 magnet:?xt=urn:btih:F8613C1ED7FBA2FDDDB1186D04CFC8A4C759241A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:0E4B990EB66CEB293977F199365C3C8075E2D1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Ancient Farm (2026) [Ru/Multi] (1.0.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5542A9162110E27F42DF9E37C2517E139BBCB13B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Ancient Farm (2026) [Ru/Multi] (1.0.6) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5B3BA40C58FC5DD4BF2F4250863B66041508A5DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ ServiceIT: You can do IT (2024) [Ru/Multi] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:3809D10AECA3E054B01FCC334DEABA64F5A8A5DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Gotham Knights (2022) [Ru/Multi] (6.0.21.0/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:1C8A566D09504CDCC47DD2D4F09B22F098542DCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ DuneCrawl - это игра в жанре экшен-приключение с �
 ```bash
 magnet:?xt=urn:btih:BE076AEC0C43A319A8ADE71B5B94FAE029456F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +494,7 @@ SHINOBI: Art of Vengeance (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Port Swit
 ```bash
 magnet:?xt=urn:btih:67167FDB3683932C9F280E6A0E0E618FCBEF25B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +519,7 @@ Siege Survival: Gloria Victis (2021) [Ru/Multi] (08102025) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AAC00F89DA4B4E55ABA3EFA3408BBD66B2B67D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +544,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.25.0.2775/dlc) Repack Let'sРlay [U
 ```bash
 magnet:?xt=urn:btih:03259C3304B9C5F95024AF383324873D6D3DD2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +569,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2026) [
 ```bash
 magnet:?xt=urn:btih:DA6A5877FFA394F24E5D6206ADDECEB1EDE1C052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

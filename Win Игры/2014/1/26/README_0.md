@@ -20,8 +20,7 @@ Super Puzzle Platformer Deluxe (2013) [En] (1.1) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:CDE79C1A9A486011D91E1C14F4E49B3DFEBA523F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Secret Files: Sam Peters (2013) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D2935E7D9AC1EF39F3ED83FF38172ED3B42A17D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Thunder Wolves (2013) [Ru/Multi] (1.0 Upd1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3BB5C183EECE2CA6C2CD76A61CCEA10AFAD42FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Assassin’s Creed: Liberation HD (2014) [Ru/En] (1.0) Repack WestMore
 ```bash
 magnet:?xt=urn:btih:B4D2BA0B15C370CF764F5027CB4CADAD889C4619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:A62FA884DB2A15DEA85D12B9C3D58C3BD5D05BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

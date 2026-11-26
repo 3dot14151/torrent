@@ -28,8 +28,7 @@ Queen - A Night At The Opera (2013/1975) [LPCM 2.0 96/24, DTS 96/24 5.1|Audio-DV
 ```bash
 magnet:?xt=urn:btih:5989561CCD70F65CC5FF3186F1EA7B6A51ECEE57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

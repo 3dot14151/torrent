@@ -19,8 +19,7 @@ Huseyin Babal | gRPC Microservices in Go (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A307F8546003AD7BB4D515BBBE07444F8BDAFD1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

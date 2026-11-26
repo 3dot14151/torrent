@@ -19,8 +19,7 @@ Solstice Chronicles: MIA это шутер с видом сверху, в кот
 ```bash
 magnet:?xt=urn:btih:BDBA7F756B5E2EBF7E629583E413F17B2D46082C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

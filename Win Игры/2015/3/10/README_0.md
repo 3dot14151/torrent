@@ -19,8 +19,7 @@ Professional Lumberjack 2015 (2015) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:BA2EB9D55EC8DCFC5F8C17647022383DA711C888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Endless Space — космическая пошаговая стратегия, 
 ```bash
 magnet:?xt=urn:btih:395FDD16D33EA8100329C449B434E0BC2A2442E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dead Space: Trilogy (2008-2013) [Ru/En] (1.0.0.222/1.0/1.0.1) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:BAAA22ADF8228175A75FB918A6406F24E8F46398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Slipstream - это гоночная игра, вдохновленная обр
 ```bash
 magnet:?xt=urn:btih:D34B7ED593646047DA7CE046C77C769417C46FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ METAL DOGS (2023) [Multi] (1.5.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3B0ACDB49F036FB039E0BFC7CAAC22649DBAC67C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Roadwarden (2022) [En] (1.2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C5AE533D07C8AB31526FE41A058C067A42437689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5697DEE6F5B8D88B57C9A52758EBA0B3455665D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bioshock Dilogy / Дилогия Bioshock (2007-2010) [Ru/En] (1.1/1.1/dlc) Repa
 ```bash
 magnet:?xt=urn:btih:6153C9FBC4EA7FBB21C2052E839EAED6716FF614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BEC76AB1D919BD214AA6232DC3EAB43F55103270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Assassin's Creed - игра нового поколения, разработа�
 ```bash
 magnet:?xt=urn:btih:7D18580ADA34EFBA86FA4D5B87847A010DCD45CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Granny Remake - это игра-ужастик, в которой вам пре�
 ```bash
 magnet:?xt=urn:btih:1826E251ABE1E0EC4FA1E102A42FB377EC21D384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Motel Manager Simulator предлагает игрокам встать на м
 ```bash
 magnet:?xt=urn:btih:D1EAD8EE83B9F41ECB2F1613CCF8DA8E8DCC0DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

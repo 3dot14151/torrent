@@ -21,8 +21,7 @@ Live At The BBC(   Читать дальше...   )Жанр: Pop Rock, Blues Roc
 ```bash
 magnet:?xt=urn:btih:D680664EBA6BFE686B55AA2EA49903DD8D3CF425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

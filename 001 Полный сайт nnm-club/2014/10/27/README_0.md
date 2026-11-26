@@ -24,8 +24,7 @@ The Lester Young & Teddy Wilson Quartet - Pres And Teddy (2000) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:1927CCA435975126366E140E3CD76BD53159FDFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DE4FFE260215B37190A043075E71F5FC6C0D3BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ VA - Drum & Bass, DubStep, Trap #7 (2014) [MP3|320 кб/с]<Drum & Bass, DubStep
 ```bash
 magnet:?xt=urn:btih:610113AA07791E37BD34F641A00409A866F8CB59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Media Маг – это площадка, где публикуются самы
 ```bash
 magnet:?xt=urn:btih:62010CCC613DEF17C12C41B619444AD6381514E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ VA - Drum & Bass, DubStep, Trap #8 (2014) [MP3|320 кб/с]<Drum & Bass, DubStep
 ```bash
 magnet:?xt=urn:btih:8C119313DB897E82475EF0E1B7C6366F047D7C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Killbot - Sound Surgery (2012) EP [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:3DD705CECD9F6860B79AE99465C18A5369731D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:BDF88788EA7B07F2A8965F7B5DFF7A7E473BEB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Deformity - When Tomorrow Comes (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1972D87DCA8E42DEACF5C430803C14016DC62F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ VA - Hardstyle Top 100 Best of 2014 (24.10.2014) [MP3|320 кб/с]<Techno, Hards
 ```bash
 magnet:?xt=urn:btih:811AD2BD15DC3818833E6F4E4A718DABD0741CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ VA - Trancefamily Presents The Beauty Of Vocal Trance (2014) [MP3|320 кб/с]<T
 ```bash
 magnet:?xt=urn:btih:D7822FFFA5CA01AC68CF3A2121F06AC3615BF793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ Indecent Noise - Live @ #NOI5E New York City, USA, (2014-10-11) [MP3|192 кб/с
 ```bash
 magnet:?xt=urn:btih:CB55014B7130E112CE9ED2A5D9679B6B25E729DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BAE2B6592F1CE7EE17D9E640B80A23703E15BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ Marta | 150 рецептов для мультиварок MARTA MT-1938, MT-193
 ```bash
 magnet:?xt=urn:btih:1610EA0B14F1B7F0577C9F068605CE61D8CDFB86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ VA - Solarstone Presents - Pure Trance 3 (Mixed By Solarstone & Bryan Kearney) (
 ```bash
 magnet:?xt=urn:btih:B01449D9D57C1EB79730A9484E206D2D374D91D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D249724065814FD36C003E0A1C8A76336F39C3B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ VA - Vocal Trance Collection Vol.126 (2014) [MP3|320 кб/с]<Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:AD3FADCF1B80AE7478D3301A1536FC58C2E5A4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +513,7 @@ Heartsrevolution - Ride or Die Remixes (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:68A0A0578FD8D6EB22B422EE679ED15082F30330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +538,7 @@ PicPick - бесплатное приложение, объединяющее в
 ```bash
 magnet:?xt=urn:btih:10BB9892D8D494F11633713EF2F873BE1B7DABD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:925124EE32EA28984BC5D1C655C031540761E936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B158359D8C32036AC67C790E8776F6CACE903FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +626,7 @@ VA - Spinnin’ @ Dfm Dance (2014) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:6575256A4C10DECF07B70DB1E187315570528C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +652,7 @@ VA - Русские Новинки Vol.155 (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:2BD45BE2DF79675D3B6A5CFE2EB70A5B04A27240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:9E55A06909AA85A70C0ADEF8A1FEF35E62ABD0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +711,7 @@ Marta | 120 рецептов для мультиварок MARTA MT-1982, MT-198
 ```bash
 magnet:?xt=urn:btih:57B65F0794CCB125C4E2DC222D96BB6BC2273261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -769,8 +745,7 @@ Christian Loffler - A Forest (2012) [FLAC|Lossless|WEB-DL] <Tech House, Techno, 
 ```bash
 magnet:?xt=urn:btih:8B29EA7DFA197E0B27C9D57E1F69AA47F34F19E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +779,7 @@ Everything In Slow Motion - Phoenix (2013) [FLAC|Lossless]<Post-Metal / Post-Har
 ```bash
 magnet:?xt=urn:btih:F94CB0C91D2C3F09F959CD063BAA08800E4C37BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

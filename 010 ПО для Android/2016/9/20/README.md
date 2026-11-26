@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:E969B761E3AFD59562993AE40D6DE90993D03C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spy Video Recorder Camera / Шпионская видео камера v3.0.0 Pr
 ```bash
 magnet:?xt=urn:btih:C2D720815F75DAD647ED7138E9B1484A07D55986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

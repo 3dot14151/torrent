@@ -19,8 +19,7 @@ SystemRescue — это набор инструментов для восста�
 ```bash
 magnet:?xt=urn:btih:5876369CBEE6B42782862DBD290779C914D5AC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

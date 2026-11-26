@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B592A2C37D897F45EC2310D910C578C7D98FC24B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2A02FCA183E14B175CAC6D368A774982DF657E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DDA9A7918A56EED5AB894F509D16B83C32A1AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0885032B791630D3A39C12CF912630AFE040D9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B99B226F33E87E3EAF41F25DEF5839B9B656AC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E22DD57E3691F0F4967A78F7EBA896E4AC950B35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9F72ED8D50F60006C16BCFB3D62A959E9B7D8C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Shinja Zero no Megami-sama to Hajimeru Isekai Kouryaku / Full Clearing Another W
 ```bash
 magnet:?xt=urn:btih:B126D01C994DF95F95061962FE9318B11D4930E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Matchbox. Фильм / Matchbox the Movie (2026) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:FBF55C193A662FAB41171B780091C52CD0FEC1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Kanata Kara | From Far Away | Издалека [2026, TV, 1 из 12 эп.] WEBRi
 ```bash
 magnet:?xt=urn:btih:3480C879FD7CA75EE0F9FE116A6D3B8780D7E45A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Ao Ashi Season 2 | Аоаси [ТВ-2] [2026, TV, 1 из 12 эп.] WEBRip 720p r
 ```bash
 magnet:?xt=urn:btih:85AF0C5886B4F9C5811B9958755BD30157A78596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Magical Explorer | Магический исследователь: Переро
 ```bash
 magnet:?xt=urn:btih:FE02EC6A4265AC1BBA4C2C0FB420D44DA738E64B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Hotel Inhumans 2 | Отель для нелюдей [ТВ-2] [2026, TV, 1 из 1
 ```bash
 magnet:?xt=urn:btih:DE014002B6E78463C9B99FC24A9436780C68BF56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Kashita Maryoku wa Revo Barai de Kyousei Choushuu | Одолженная мно�
 ```bash
 magnet:?xt=urn:btih:529AED3525A9259F6BE3887086198AA0B25DC216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Yowaki Max Reijou na no ni, Ratsuwan Konyakusha-sama no Kake ni Notte Shimatta /
 ```bash
 magnet:?xt=urn:btih:2AF76A37D99752A394F3829AB560131EA3D296ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Mezametara Saikyou Soubi to Uchuusen Mochi Datta no de, Ikkodate Mezashite Youhe
 ```bash
 magnet:?xt=urn:btih:99A3A871003D6180D9AE8D552326C55A4091E092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Tensei Shitara Ken Deshita 2 | Reincarnated as a Sword 2 | О моём пере�
 ```bash
 magnet:?xt=urn:btih:32BDFD955F0BF7ABECD84307ABBEEC89E0D10775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BAE2398DF95C853C6329816FC828F79DD947C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A941D641FAD24608B51E85F54E520673FF3918B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:782CD8187AFF663EBAD7B978703A5FDCE851F8C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F23D9F8BCBCE81C86C0ED872E804E3DF8A62CFDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

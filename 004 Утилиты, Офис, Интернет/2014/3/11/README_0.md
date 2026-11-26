@@ -19,8 +19,7 @@ Toolwiz Care - набор полезных инструментов для об�
 ```bash
 magnet:?xt=urn:btih:8FABFB67920AEBD5A9E98C89E73FEC90785B8695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

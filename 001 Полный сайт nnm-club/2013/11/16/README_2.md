@@ -19,8 +19,7 @@ Vectoraster  - Программа для создания векторных у�
 ```bash
 magnet:?xt=urn:btih:B7B798603C7E9B367DC9C5684B8978EADB30BDB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - The Best Chillout Of Plexus Music - 1 (2013) [MP3|320 кб/с]<Downtempo, C
 ```bash
 magnet:?xt=urn:btih:45181D3AD63EA3923CCC1F6C79DDDDEC969C8F8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Sarah Vaughan - Sarah Vaughan Sings George Gershwin 2CD (1998) [FLAC|Lossless]<V
 ```bash
 magnet:?xt=urn:btih:C8D7A0564ED5DC847E5C5200AAC3AA55671C8F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78A6F9ECC8EAE455320CB923617CED3C3D2C7E1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Nightscape - Symphony Of The Night (2005) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:DE6A0AED7E43938B25F440415D5BE4921D96B5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A94034F1FBCDFCE10019B4835F8ABD37DBED188D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FCE8B556450A1E67EBAE66C700F859E1D63D301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:803409DF061A147DB1A0433123E1F32F750A8FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC6AEF46C73B0CB901EDAA7FFB63505C166F22FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +289,7 @@ Harem Scarem - Mood Swings II (2013) Japanese Edition [MP3|320 кб/с]<Melodic 
 ```bash
 magnet:?xt=urn:btih:44023A4C332E93F532B7CBC0871F17DBC23C1DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7FAAFCF2FCD84661329FBD5D3CB80F080F7DF7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43F46AF587E29A50698823850FDAD136212895B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:670EA4CECF2AB2EE80E9A1A44D20F0765D94616A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26B74F122E864CB976E8A7E2413BF2F4F8D048AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ Monster Magnet - Last Patrol (2013) Limited Edition [FLAC|Lossless]<Stoner Rock/
 ```bash
 magnet:?xt=urn:btih:CE4DA8F24FF01AF882BDB431901A800A125307EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +467,7 @@ VA - 538 Hitzone: Best of 2013 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:056C06D41C1A25BB11C408AF5959DE33CF204D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ Asheni - Butterfly Survival Kit (2008) [FLAC|Lossless]<Trip-Hop, Downtempo, Loun
 ```bash
 magnet:?xt=urn:btih:7DE86F35A054DA6BC727BAFBA730F62EB332A317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ Insomnium - Ephemeral (2013) EP [MP3|320 кб/с]<Melodic Death Metal / Acoustic
 ```bash
 magnet:?xt=urn:btih:A0A4F464B83E27BACB27B63C384993AD826D18E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ Shelley Harland - Red Leaf (2009) [FLAC|Lossless]<Trip-Hop, Pop>
 ```bash
 magnet:?xt=urn:btih:49E0CD47542724105D8ACD0799CDA925F931B3EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26DDFCED34C64D1D0D4475888F1E4DDCCDECC616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +615,7 @@ Jimi Hendrix - Merry Christmas And A Happy New Year (1999) [MP3|320 кб/с]<Blu
 ```bash
 magnet:?xt=urn:btih:D0EFCBD6DECC5F971F0BE9FA3A7DC682E3D0DF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +640,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CEF5EDEF3322DE4A47C9644D1B547DABA72CEC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ Grimville: The Gift of Darkness (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:C166782D24FC17D5E29746530B9BA4CEFBD0A04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D5D22FEB49498ABC33D85224170A992D7DEBCBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C1AFB91CD01582E3053CA96F3411A8999FBEB3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +740,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BD823AD202FFD6BE6FAF269119E5D6741E6214A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

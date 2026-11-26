@@ -19,8 +19,7 @@ Shadow Wolf Mysteries 3: Cursed Wedding Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:13CBA54FCA3D874C41A6E12DA7AFA1EEB7C8CE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:5C7F3FC8BEE28C32B4201190332756ACEF51D0AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Euro Truck Simulator 2 дарит вам опыт управления самы�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

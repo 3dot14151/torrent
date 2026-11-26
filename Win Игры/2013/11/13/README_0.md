@@ -19,8 +19,7 @@ Grim Facade 3: Cost of Jealousy Collector's Edition / За гранью жест
 ```bash
 magnet:?xt=urn:btih:1E80A9E3CD9CB200CFB2D2C6F30E20911948575A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Rain Blood Chronicles: Mirage можно назвать "Уся" (武俠), чт�
 ```bash
 magnet:?xt=urn:btih:E72C7DF1BCE84184BA06E50E15354AB5E5236BED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ F1 2013 предлагает вниманию поклонников вирту�
 ```bash
 magnet:?xt=urn:btih:43F382AE2AE014F1D34FE30694B8A887E884092A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Game of Thrones / Игра престолов (2013) [En/Ru] (1.5.0.0/3dlc) Repa
 ```bash
 magnet:?xt=urn:btih:19FDD5AE76D29EAC779104708DFD6B63D22275B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

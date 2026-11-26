@@ -19,8 +19,7 @@ Mystery Case Files 21: The Harbinger / За семью печатями 21: Пр
 ```bash
 magnet:?xt=urn:btih:05EB6394F3B4215D980FD5071A8AEA513D1553CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

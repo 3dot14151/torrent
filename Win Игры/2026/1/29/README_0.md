@@ -19,8 +19,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Let'sРlay [Digital Deluxe]
 ```bash
 magnet:?xt=urn:btih:0CBA7266FBB4AC5418C5F8606C1E0692D65397CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Let'sРlay [Collectors
 ```bash
 magnet:?xt=urn:btih:1ED7030495E37A71457BF80688E3E34E3CF9C361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Anniversary Edition]
 ```bash
 magnet:?xt=urn:btih:657BECD80C3CB5C4CD89D7ADA2F85876CEBD0003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Antiques Hunt: Tales of Cobblestone Streets / Охота за антиквари
 ```bash
 magnet:?xt=urn:btih:245561889529016DCDF8E656BD8F930C0257C3EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (5738-A) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:8EC3CB7FD7AA23606073B649ADCD06BDC8CBE385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E374294D7C8C399B384EADF9CD6AB81FC31ABD92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

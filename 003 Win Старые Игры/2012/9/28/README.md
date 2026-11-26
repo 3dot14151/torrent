@@ -20,8 +20,7 @@ The Guardian of Darkness [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:5AF7F431B3F5F036B60F5B1459299A26FB5B0D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Star Trek: Elite Force 2 [Ru] (RePack/1.1) 2003 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Chaos Legion / Рыцари Хаоса [En/Ru] (RePack/1.1.0) 2003 | R.G. Cataly
 ```bash
 magnet:?xt=urn:btih:44C7FB2B2C7E0DC73D314E0D39DD55085AF07DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

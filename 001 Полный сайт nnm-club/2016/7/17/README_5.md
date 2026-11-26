@@ -18,8 +18,7 @@ MAGIX Audio & Music Lab 2017 Premium - полнофункциональный п
 ```bash
 magnet:?xt=urn:btih:438C68745A4B4BCAC6EFE56E65824C6F77EC86A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE82867B274B69875C53C22597ACDD33C4D355FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Audio Transcoder 2.9.0.1331 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AC71366FEC52E47F7E84F3A4ED0F3142E05D7D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Song of the Deep – экшен приключение в metroidvania-стил�
 ```bash
 magnet:?xt=urn:btih:210898595F6C3E7DCD23CE780FDFEA4821B65D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9B5A960490F361D0BA0371B09426524A918E35D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Ridge – это приключенческая хоррор-игра, разр�
 ```bash
 magnet:?xt=urn:btih:1B8F555D62F131B525D04360F693AD3265F4EC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42AAF79DC72876A5AA119F98895313FB94710209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Stellar Phoenix Video Repair  – Самый мощный инструмент �
 ```bash
 magnet:?xt=urn:btih:4B6CEBA8520A2B88A5A8FA900374B63F15D50E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Ridge – это приключенческая хоррор-игра, разр�
 ```bash
 magnet:?xt=urn:btih:9F0BC82879D876F463AAF216A52E9AE638EEAE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C691401BD968ADCD25D53D75459317F3C1D34D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ PhraseBox PRO - многоязычный разговорник для Android. 
 ```bash
 magnet:?xt=urn:btih:B340281E7ACF9DF24D4EBF17121D47C7728647CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C1AC6153E3E8526446FA36813AC647AF89EB94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ OXENFREE - это по словам разработчиков «сверхъе�
 ```bash
 magnet:?xt=urn:btih:C81672E07AC8C5519147077CFD7DC497CC6063E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Kurogane no Linebarrels / Linebarrels of Iron / Стальные Лайнбар�
 ```bash
 magnet:?xt=urn:btih:5BCF11E75E23856A4E6C062D7614F74E6E17B13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F653A88C39CD5072085B191B5E3320C1CB461761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Planar Conquest – 4X пошаговая стратегия, вдохновле
 ```bash
 magnet:?xt=urn:btih:9F20335D3C513C16DAD721ED8458E1C2B3000465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +424,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:083399507E0CD1A3B5067DB92A10C990EBCC67CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74B804E59898C571BA5BE63A9FE05CF457C51513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Elcomsoft Cloud Explorer – удобный инструмент для скач
 ```bash
 magnet:?xt=urn:btih:ADA4366CD5301593BC10132380A5BB7D0CABDBFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

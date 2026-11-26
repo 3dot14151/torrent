@@ -19,8 +19,7 @@ CHM Editor — это инструмент который позволяет с�
 ```bash
 magnet:?xt=urn:btih:397665EC44AB04B75530FE6749E961FF6A96BC04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Universal Extractor 1.6.1.2013 Portable by PortableWares [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9ECC3AC727368E859DBD426E4D673BFFE73AD183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

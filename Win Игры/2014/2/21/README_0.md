@@ -20,8 +20,7 @@ Salvation Prophecy — это космическое приключение по
 ```bash
 magnet:?xt=urn:btih:531563754F92B72EEE8AF612247D52350EFA8BCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Raven: Legacy of a Master Thief (2013) [Ru/Multi] (1.1) Repack R.G. Меха
 ```bash
 magnet:?xt=urn:btih:BF7B20CB80C63C37964E6BAE72A5E4FF89FBFA26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ WRC: FIA World Rally Championship Pentalogy / Пенталогия WRC: FIA Worl
 ```bash
 magnet:?xt=urn:btih:6BF9E003462C5CF210F996B6DB1A63AF19083129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ WRC Powerslide (2014) [Ru/Multi] (1.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:B908B1B0CCD1FB43D0E1AE5B6004EC51B563C34C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

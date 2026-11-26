@@ -19,8 +19,7 @@ Windforge представляет собой двумерный РПГ-плат
 ```bash
 magnet:?xt=urn:btih:B465C380A6AC3669A100CE569F53DAD693BBAB96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

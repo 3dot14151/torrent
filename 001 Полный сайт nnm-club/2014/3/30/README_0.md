@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6E7BE20192903C8ED1AAE17EC6FE1A024E6EAD97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Lagaylia Frazier & Jan Lundgren Trio - Until It's Time (2012) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:97D426A1B8BF65E519AF1635D95187EC233CA443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Ben Webster - King Of The Tenors (1993) [FLAC|Lossless]<Mainstream Jazz, Swing>
 ```bash
 magnet:?xt=urn:btih:751F620C56E8EE530F7BA2F82A4A9C9271CE344B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Sinbreed - Shadows (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:EF286C9F8A8FEC3EDAEE55F92621BA26FC01B3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F980FF6682A7833E0880BDEEA055AEB766BE32CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - World of Chillout (2014) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:5D6938827C75109FEDB19CBCE1E3E679F00B5645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Crystal Tears - Hellmade (2014) [MP3|320 кб/с]<Speed Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:CD9F5D6B3DDA0DB5C1F3AA5292FE491D1F0C8AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +247,7 @@ The Ben Webster Quintet - Soulville (1999) [FLAC|Lossless]<Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:A2F236DA227CE560178E73672E4E790942C275CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ VA - Simply Anti Stress /4CD/ (2010) [MP3|320 кб/с]<New age, Chillout, Nature
 ```bash
 magnet:?xt=urn:btih:9EB028DD8B8A66468827FB80C70A8B0C02766079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +308,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6453FCDEDAF866113AB9441B9D9657A9A0E37223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +342,7 @@ VA - Lounge Beats Smooth and Soft Collection Vol.1 (2014) [MP3|320 кб/с]<Down
 ```bash
 magnet:?xt=urn:btih:1F637473E367EA21C5273ECED6C8C63A7F25F02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +376,7 @@ VA - Le Meilleur du Jazz - Ballades (2014) [MP3|320 кб/с]<Jazz, Ballades>
 ```bash
 magnet:?xt=urn:btih:891ABB9E164229C5F7807008D336BF3B48F2DDC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A3439B190D24EF43DCC8B9D70E8352B390286B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8A0D9D5B02BF4C68D51B29BD36CC3DFEE3AAFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67D77DBB753D70D8597E76E299D2E6B654317632
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +489,7 @@ Indiogenes - Feeling Vol.2 (2007) [MP3|320 кб/с]<Folk, Native american, New a
 ```bash
 magnet:?xt=urn:btih:05EC77C073288EC52B7B873F10EE481E901FC0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90EF98BC9B44F2DA1BE399FD5251DF12A7483226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +548,7 @@ Girlschool - Believe (2004) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7634CD7B6E31055B98D6156F120195D1FFE07E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89B00DB3497A33DDA75E6EB3A9A4856E8E858E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C07995E62511248FA3F032A2F4247E6D2D6896F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +636,7 @@ VA - Just Chillin' (Chillout and Lounge Music for Staying Zen and Laidback) (201
 ```bash
 magnet:?xt=urn:btih:19ABFB04DB8831A7B832037F0BDCEB8C6ECB8408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +661,7 @@ Stand Up. Выпуск №22 (2014.03.30) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:901D577776FC6DC8F563CE9CF8626B0372E2B58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A82EEA568CE53D27D320C24A2FB0ECBD58E56F65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +711,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A29026F8FEA2FD6640D52F752C6C3E0AEF166CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -760,8 +736,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4AC4E873408F3E769D2EA888276D56752CC1800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -795,8 +770,7 @@ VA - Goa Culture Vol. 13 (Compiled By Egorythmia & DJ Bim) (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:6552A69118C29B2593A047A78F95CA8AC5732A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

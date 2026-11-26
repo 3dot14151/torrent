@@ -22,8 +22,7 @@ Miasmal - Tides Of Omniscience (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:A55A8B368FE8C7FD6D8CA6138D140F0DAFC5B8B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bastian - Rock Of Daedalus (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:281FF72278B59B75B4A86B69C0219A8D320D3CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Takis Barbagalas - Phosphorus Herperus (2015) [FLAC|Lossless|image + .cue]<Progr
 ```bash
 magnet:?xt=urn:btih:A0BC6E29C34F474D2DB265210799B4562782A98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Bootleg Rascal - Asleep In The Machine (2016) [FLAC|Lossless|tracks] <Alternativ
 ```bash
 magnet:?xt=urn:btih:B4C2268D1ACA1424EF7CD549744F7951A1D44116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Papa Serpiente - Rock Evolution (2016) [MP3|320 кб/с] <Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:04AC00FD10A47E43819A00D93AF77066A2D6883B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Matches - For All & None (2016) [MP3|320 кб/с] <Alternative Rock, Experimenta
 ```bash
 magnet:?xt=urn:btih:FC8EB2A6774CAB9A1B28413DE401FD29E2146D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Thunderstone - Apocalypse Again (2016) [FLAC|Lossless|image + .cue] <Power Metal
 ```bash
 magnet:?xt=urn:btih:69800AA822DD6F0107045A866B2EA7E52C89D61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Final Chapter - Legions Of The Sun (2016) [MP3|320 кб/с] <Symphonic Power Met
 ```bash
 magnet:?xt=urn:btih:B0D7C64F6D1EFEC375BD342904733ACF8DBF3138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Phil Collins - Dance Into The Light (1996) 2CD Deluxe Edition, 2016, Atlantic [F
 ```bash
 magnet:?xt=urn:btih:8AFE4FF7ABE916CBCA503DB5F203EC3327B7957E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Grimner - Frost Mot Eld (2016) [MP3|320 кб/с] <Folk Metal, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:F3BFF75F6B480F7E2118422CC23EAFF547F01C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Phil Collins - Hello, I Must Be Going! (1982) 2CD Deluxe Edition, 2016, Atlantic
 ```bash
 magnet:?xt=urn:btih:945D972D2F734ACD6E4325D6BDEC49BEA7440DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Electric Light Orchestra - Secret Messages (1983) [FLAC|Lossless]<Classic Rock, 
 ```bash
 magnet:?xt=urn:btih:18E71ED204C507271F487F0BB91CE05A5C7487D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6FE9CA3E1BA2C46A8BCD8B5C4AFBC0785845065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

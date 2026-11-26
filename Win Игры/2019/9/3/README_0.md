@@ -19,8 +19,7 @@ Uncharted Tides: Port Royal / Неизведанные воды: Королев�
 ```bash
 magnet:?xt=urn:btih:DA2A53F3DCFB4E32CD21D71277B78A7EE694EAD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

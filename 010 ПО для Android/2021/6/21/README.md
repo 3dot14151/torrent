@@ -19,8 +19,7 @@ MagicPlan захватывает размеры помещения с камер
 ```bash
 magnet:?xt=urn:btih:98AACDDE90B5CDF4F135EFD49C2F2C877E13F35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Openfiler — это операционная система, которая п�
 ```bash
 magnet:?xt=urn:btih:A9331A63FE74A3170ED9C0E5485DEC0E275CC6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

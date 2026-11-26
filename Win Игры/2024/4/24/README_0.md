@@ -19,8 +19,7 @@ Lakeburg Legacies - это крайне необычный симулятор у
 ```bash
 magnet:?xt=urn:btih:B9E4580670C065508EBF6D48096328BDAB90B02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bloody Spell – это экшен слешер, который имеет ря�
 ```bash
 magnet:?xt=urn:btih:D8591B4DF6FF8BC51A01D679538D06BC92B4C90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Buccaneers! (2022) [Ru/Multi] (1.1.01) License GOG [VR]
 ```bash
 magnet:?xt=urn:btih:53662CD3FEEC096DB09ED6FBF91C2058274717A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Eiyuden Chronicle: Hundred Heroes – это увлекательный фент
 ```bash
 magnet:?xt=urn:btih:74FD877770B74D87514C05F5D05FC23DEA4472F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) S
 ```bash
 magnet:?xt=urn:btih:FE6A2195408FAB4A14936ECA7EA8365274BAAA18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ ColorBlend FX: Desaturation – сплатианцы будут смешиват
 ```bash
 magnet:?xt=urn:btih:BA9F6249813007B39141E66E58C29448A08C815B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Scott Whiskers in: the Search for Mr. Fumbleclaw - забавная приклю
 ```bash
 magnet:?xt=urn:btih:73CA1850746821225CB9D2A157F3A3E6A6299D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tamarak Trail - это увлекательное приключение, кот
 ```bash
 magnet:?xt=urn:btih:DD3B12E2E886F396C4186B34314F758339184BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ ReMix погружает вас в мир музыкального хаоса, �
 ```bash
 magnet:?xt=urn:btih:9E5A8E64A5C79F1E1803A1A8EE88A7F001002C1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

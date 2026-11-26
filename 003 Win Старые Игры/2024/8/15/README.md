@@ -19,8 +19,7 @@ Unreal 2: The Awakening (2003) [Ru/En] (build 2001) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E46258E4C2666BF54CB4DFBC78CDD82EB3F27886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

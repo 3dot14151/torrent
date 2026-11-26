@@ -19,8 +19,7 @@ The Flying Dutchman: In The Ghost Prison / Летающий голландец: 
 ```bash
 magnet:?xt=urn:btih:1ED9B6B55CA55C6D44895A1820DB5D67E33808CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vampire Saga 2: Welcome To Hell Lock (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:EED8FBF129F92DE8C01D5715DF61AC7C25287EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Die 3 Musketiere Constance Mission / Три мушкетера. Тайные м�
 ```bash
 magnet:?xt=urn:btih:F835AB2ED34489744C86E19E51D4029D0BF2EDA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Bit.Trip Runner - следующая часть из серии Bit.Trip.
 ```bash
 magnet:?xt=urn:btih:A48FA96B42496F89B8C1278AB3FE8E7535C25FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Super Meat Boy - это крутой, как яйцо, платформер, г�
 ```bash
 magnet:?xt=urn:btih:2EC864CFA8F8628C9F6F595D4B37561631962FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Section 8®: Prejudice™ - шутер от первого лица с дина�
 ```bash
 magnet:?xt=urn:btih:C75D8A133D12A78F2E207FDC0172953DDB7EAD20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2C90895FE982D56C4DDF97EDD87F5066745B455
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

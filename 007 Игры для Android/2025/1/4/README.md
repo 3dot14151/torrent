@@ -21,8 +21,7 @@ Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
 ```bash
 magnet:?xt=urn:btih:E357CE3A11F8A488903981A7F0A1F0E179C97CD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

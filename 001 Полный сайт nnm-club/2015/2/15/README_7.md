@@ -23,8 +23,7 @@ Nick Gorphai & Friends - Contemporary Thai Percussions (2007) [FLAC|Lossless]<Fu
 ```bash
 magnet:?xt=urn:btih:B9CC3FDF66CB1E4DEE1B983ACA179D509DCA846E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Dark Desire - Unveil the Beauty (2014) [MP3|320 кб/с]<Symphonic / Progressive
 ```bash
 magnet:?xt=urn:btih:21A6C6194783CA53F0E34B87FF227A623D6A3B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Exence - Hystrionic (2009) [FLAC|Lossless]<Progressive Thrash/Death Metal>
 ```bash
 magnet:?xt=urn:btih:F557EBBC0A051408E3B013365BDEF08CA931FC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Deadeye Dick - The Vault (2015) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:49C074AFED6FF7CA2E39B4F650FD8DA399F4BB2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4433F3A84EBDC5BF8E1D654E6BC416A6DA27D831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Saving Abel - Blood Stained Revolution (2014) [MP3|320 кб/с]<Alternative/ Mod
 ```bash
 magnet:?xt=urn:btih:0DEF7ED521EE1DC56B376FE4CD8F12FEC6A51DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +194,7 @@ Night Terrors of 1927 - Everything's Coming Up Roses (2015) [FLAC|Lossless]<Indi
 ```bash
 magnet:?xt=urn:btih:34A6F2476A6EF923F8B211BF264F29D42F646D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4288E43DCAC3B133794BDDC0D9939BF37C3AE677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ Anthony Rother - Verbalizer (2014) [FLAC|Lossless]<Techno, Electro>
 ```bash
 magnet:?xt=urn:btih:684A3A3D237E5B61F51ACADBB80E9B8455311603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A16EFF2114BF9812C6B01523A308545F2ECC589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5347E42A08219D9B91B7DDE0D31068DC6946371D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC90EC46B545F2B4B3B844018FE737D540D2A8FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:562CFDD40DB6E07FDF7FC8A6E1974AFF0F3915C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ Andhim - Spayce (2015) [MP3|320 кб/с]<Electronic, Tech House>
 ```bash
 magnet:?xt=urn:btih:472EA4D93805D3DC2EE7D681375C7C45D682FF55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A1F83D85D7E1B32C3E1E223263F4E2A97BAB9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ VA - Snow Jazzing (Swing and Smooth Jazz Music for Delightful Winter Days) (2015
 ```bash
 magnet:?xt=urn:btih:959FB8AD5C506669599E425C38E3A2D3AF4AA0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D4A0A0B6A202BA107EDC05E5EF3CD46F2D44C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06FE5A99B540A566A99D07223C8EF882D81A9432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ Fool's Errand - Beyond the Pale (2015) [MP3|320 кб/с]<Progressive/ Melodic Ha
 ```bash
 magnet:?xt=urn:btih:C111B5449AF8D53DB5B018F8A0C721A2BAC173DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22D909B375AD26AC2CA2D1AC9C86D4B1D5AD4637
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AA6EE5E0F74FA6CF03FC3F58C70F80D984B26C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ Weather Girls - Muscles, Men & More (2007) [FLAC|Lossless]<Electronic, Euro Hous
 ```bash
 magnet:?xt=urn:btih:04972918CB4E11E2B658EB21570C356E5542B681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ Koan - Non_Fiction (2015) [MP3|320 кб/с] <Downtempo, Psychill, Ambient>
 ```bash
 magnet:?xt=urn:btih:A387D09A5FD81B5C7EF0952FB611A8ADF9D93A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE6490A41AA9ECA73C9AE2BB1C188293FC0200D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E248807F6272D0E50C6D498058E3A02A414A5AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

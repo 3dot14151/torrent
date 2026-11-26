@@ -18,8 +18,7 @@ Tim Schaufert - Haunted (2018)  [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Chill
 ```bash
 magnet:?xt=urn:btih:4EDC866BF89A87ACB31AE1F9E346CCC2684BDDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The 5th Galaxy Orchestra - Searching for Atlantis (2019) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:3FFF0A69E30D595A870561ABA8487DF64E285C03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ED2F23447B7CBDBA2880E05E043F9673F79C644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ The Dead Daisies - Holy Ground (2021) [FLAC 2.0|24/96|tracks + .cue|WEB-DL] <Har
 ```bash
 magnet:?xt=urn:btih:C47E9B2843F878AF89ADE2F8E575B34501268BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ```bash
 magnet:?xt=urn:btih:C4A51731EA885E7B3EA0C10625EDB375E115D8A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ VA - Organic Sound (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F8648295BE9E054828136F6B64DFE2EB017CA44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Tim Schaufert & Shwin - Sublime - (2017)  [FLAC 2.0|24/44.1|tracks|WEB-DL] <Ambi
 ```bash
 magnet:?xt=urn:btih:B73E03916E6E0982A8E048265142FFEBDDC40568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Wig Wam - Never Say Die (2021) [FLAC 2.0|44.1/24|tracks + .cue|WEB-DL] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:4CDF838C2B3BD9BA3D627D63AE06AFDF6D6E59BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Therion - Leviathan (2021) Japan [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:D9EB71F65A24CBC719CD394D21A57017961481E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ CD - 1 -  The Many Faces Of Def Leppard:
 ```bash
 magnet:?xt=urn:btih:4E15C6B3A7665AED6EDE25297A98C2C3A5437A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5ECC8A52069C711E375A089E5D0EA09274E8A8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C98FE8F63479CE00AD5227BBF6E3FD99948A293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ VA - Песни нашего времени 4 (2005) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:74D219731311961EEC6CA08516E601A5A769320B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ Onyx - 100 MAD (2019) [FLAC 2.0|24/48|tracks|WEB-DL] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:7935191B882E7FDC33A76957F6E9D4228029D3FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ VA - Шоферской 12 (2002) [FLAC|Lossless|tracks + .cue]<Шансон>
 ```bash
 magnet:?xt=urn:btih:6B9C0C9B19B6343301CF58603B461186F88E8CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ VA - Pure Retrowave, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 ```bash
 magnet:?xt=urn:btih:17BD8A41BADAA1B19631440E81AEC4A0D1F4C3E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AD8B28BCAC5BBBDF306A0EFB8250F97D9330E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ VA - Romantic Piano - the Rose (1999) [FLAC|Lossless|image + .cue] <Instrumental
 ```bash
 magnet:?xt=urn:btih:93D14894BC8594F370B0522AB54E71897F0CDA2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ VA - Goa Trance 2021: Top 100 Hits DJ Mix (2021) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7B4327A410F811C87FB2A89A665989B5244363B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ Phantom Elite - Titanium (2021) [FLAC 2.0|24/44.1|tracks + .cue|WEB-DL] <Symphon
 ```bash
 magnet:?xt=urn:btih:B43865F9A6DA52350DAF8F8F04783991D0B24838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0C6321DD36466E6CE77AD4C0DED1A7B54D0898C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFF367E333F370B79B7700803E9C9850598AAADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Tim Schaufert, Subsets, CASHFORGOLD - Cycles (2018) [FLAC 2.0|24/44.1|tracks|WEB
 ```bash
 magnet:?xt=urn:btih:27CAEA754D4BCC0754A76A343DA88A554388BA24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ VA - National Pop Dance Music (Vol. 11) (2021) [MP3|320 Kbps] <Pop, Folk, Dance>
 ```bash
 magnet:?xt=urn:btih:1FE1A7079B34D81950FF97C5C9A5FFD68D1D9F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Tim Schaufert - Temporary (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambi
 ```bash
 magnet:?xt=urn:btih:267889052FE686C712E681F57C7CCB541FEB25CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C54B6665C9AFE1BB3F8382DDD5996802BB8ED54F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

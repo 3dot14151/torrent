@@ -19,8 +19,7 @@ Gentoo Linux (произносится дже́нту
 ```bash
 magnet:?xt=urn:btih:1424E846034A9020573444D1E8B64C4866DBBE3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

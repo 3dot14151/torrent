@@ -22,8 +22,7 @@ Tómarúm - Beyond Obsidian Euphoria (2025) [FLAC|Lossless|image + .cue] <Black 
 ```bash
 magnet:?xt=urn:btih:F7458B588F214FE3ED34AD54AC7AFA1426029639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disembodiment - Spiral Crypts (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:36B4CDF6FFDB883F78EDACFA0CEDE89D1238F8ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ James Gang, американское хард-рок группа. Хотя за
 ```bash
 magnet:?xt=urn:btih:468370666AC2C3B24C90FB84844AF47D856855D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Paul McCartney - Chaos And Creation In The Backyard (2005) SHM-CD, Japanese Edit
 ```bash
 magnet:?xt=urn:btih:E40EB262EE32B18354D781115B21FA52C5AD2771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

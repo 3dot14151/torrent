@@ -19,8 +19,7 @@ Auto blur: Авторазмытие v2.6.7 Mod by Dymonyxx [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1687D31FC634362FDF924A01B6D1E987499B19C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80359A003C25D76638D1CC6CAA0792E8E7F92740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:A0CB0F462AC9D4594FFCB5489BB77FEDF823C8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AirBrush: ИИ Фоторедактор v6.3.3 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:84CBC299C098AEE87C1D2A1058E0A1674A82FB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Picsart AI Photo Editor, Video v24.6.4 Final Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3CF3C8866A480EC20B2B0FC64F36BB894C9A0D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

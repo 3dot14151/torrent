@@ -19,8 +19,7 @@ tinyCam Monitor PRO v15.3.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5335BB833F1DFEE9F7838D2D8AA41D6357D3200A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ BubbleUPnP v3.6.6.1 Pro [Ru] - for DLNA / Chromecast / Smart TV
 ```bash
 magnet:?xt=urn:btih:55A5E2EBD5D90CA6D3786562394A488F8270FE97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

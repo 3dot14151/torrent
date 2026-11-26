@@ -19,8 +19,7 @@ Fever Frenzy (P) [En] 2007
 ```bash
 magnet:?xt=urn:btih:40B8E32FABD33B5BBDA9FAE804F75F80D396E227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blacked out / Жуть (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:219EF794B58D70DF45F87791D853C7AED197D5B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Parables: Curse of Briar Rose / Темные предания. Прокля
 ```bash
 magnet:?xt=urn:btih:3AAA8AD0F53BCA8822CB67881F25EC18253F9515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Azada 3: In Libro / Azada. Скрытые миры (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:47E3CC31313763322F7C43D84080EF3391CF1CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Blacked Out / Жуть (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:EB8EF2AE6CCCA4610F7B05F7651486461BDAAB38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Haunted Hotel 4: Charles Dexter Ward Collector's Edition / Проклятый о
 ```bash
 magnet:?xt=urn:btih:31474F526AAF17A9226DE6FA259BED978C46D084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A148CB8B4DD3EAED7F73EC68DCDC1F8948C9C270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ FIFA Manager 12 продолжает популярную серию симул�
 ```bash
 magnet:?xt=urn:btih:26DA1E94F4AE6538939FFC5FB1A8C5276D9225B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Diablo III/3 [Ru] (L) 2012
 ```bash
 magnet:?xt=urn:btih:36A79A8D2648A2D39CE3CA0E9AD19E259E228AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

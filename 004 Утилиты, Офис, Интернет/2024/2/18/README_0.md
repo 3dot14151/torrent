@@ -21,8 +21,7 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by FC Portables [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ACFF7B71C7C1C961C70D48728475C2164FC25BC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

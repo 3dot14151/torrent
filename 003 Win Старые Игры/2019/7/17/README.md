@@ -19,8 +19,7 @@ Theme Hospital (1997) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8B8F2D9A8B1B437C3B80A9D35A3E10274C04B34D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

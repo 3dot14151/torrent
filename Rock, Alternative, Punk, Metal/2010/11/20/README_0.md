@@ -28,8 +28,7 @@ Sodom - In War And Pieces [Deluxe Edition] (2010) [MP3|320 kbps]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:96C69BFEDBE86CE02E3D98D852F1230EF8D8CF59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0D63B4CEAD13F5F3A5EB24A86BBD6F56A73578F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Press Release: Singles Box 4
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ My Chemical Romance - Дискография (2002 - 2010) [MP3|320 kbps]<Altern
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

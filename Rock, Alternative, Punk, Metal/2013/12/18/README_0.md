@@ -28,8 +28,7 @@ Now Or Never - Now Or Never (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0DD482800209939ACD63A9160D7AFBF2C7AFA0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ After The Burial - Wolves Within (2013) [MP3|320 кб/с]<Progressive Metalcore 
 ```bash
 magnet:?xt=urn:btih:E40E62EE1AE7DE24F482D62640C39FD1A90111A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Blue Stahli - B-Sides and Other Things I Forgot (2013) [MP3|320 кб/с]<Alterna
 ```bash
 magnet:?xt=urn:btih:72AB9DA9458BC32739D7CFFB068132C95D1A658B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Five Finger Death Punch - The Wrong Side Of Heaven And The Righteous Side Of Hel
 ```bash
 magnet:?xt=urn:btih:57D91CC303CF21C598ED1BF235A95F114CE9FFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - Pink Floyd: Greatest Hits Covered (Tribute Album) 2CD (2010) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:3F8C643B53B5023C410F0B1AD92104CBA86E6D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

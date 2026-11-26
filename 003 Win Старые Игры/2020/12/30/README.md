@@ -19,8 +19,7 @@ RollerCoaster Tycoon (1999) [Multi] (1.20.015/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:CBC3225FE030F179890EECD778B68E90277CF618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

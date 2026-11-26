@@ -19,8 +19,7 @@ Mechanism - адвенчура про маленького робота в ст�
 ```bash
 magnet:?xt=urn:btih:E32E5EB02EEE1AB6F92EF52E99E699F388CA6434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tyler: Model 005 —боевик-платформер в стиле 1950 год�
 ```bash
 magnet:?xt=urn:btih:23BF429956D0FE538F4E73B7634A8E61F6337A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7) Repack xatab
 ```bash
 magnet:?xt=urn:btih:1F4BF549E5F640CAF922A6486D72E0F05A22B2F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Overlord: Fellowship of Evil (2015) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:1DC6FB90F0F577A712D306A21B1C2228E11DC31E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

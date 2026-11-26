@@ -19,8 +19,7 @@ Photoshop is a stunning program that puts the power of a professional photograph
 ```bash
 magnet:?xt=urn:btih:54ACE16BC477CAF147A7356023F114F3D7101402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

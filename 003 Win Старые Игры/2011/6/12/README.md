@@ -19,8 +19,7 @@ Battlefield 2 / ActaFull [Ru/En] (RePack/Mod) 2005 | Johnny
 ```bash
 magnet:?xt=urn:btih:561449D07048AE4993BC52A710E05867DA4A0EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

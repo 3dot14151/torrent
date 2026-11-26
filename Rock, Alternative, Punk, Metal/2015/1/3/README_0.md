@@ -28,8 +28,7 @@ Eltharia - Innocent (2014) [MP3|320 кб/с]<Power Metal/Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:03525E18C77F3D3B62611B3DC0609D569568AC00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Offence - R.A.W. (2014) [MP3|320 кб/с]<Old School Death Metal>
 ```bash
 magnet:?xt=urn:btih:385D61B4C1CAE75016944F1F59354C8F8A894ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Facility - The First Four (2015) [MP3|320 кб/с]<Screamo, Hardcore>
 ```bash
 magnet:?xt=urn:btih:BAFD9E0C17B144F25ABE54944813928FC1C63712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Social Enemies - Social Enemies (2014) [MP3|320 кб/с]<Punk Rock, Female Vocal
 ```bash
 magnet:?xt=urn:btih:2E555CEE287F2C6F28E38F276398F93906818CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Confession - Life and Death (2014) [MP3|320 кб/с]<Metalcore/Hardcore>
 ```bash
 magnet:?xt=urn:btih:252A92215EE2787E86FCC360FA471D8EE935186C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Steel Attack - Carpe DiEnd (2008) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9CE28F73D11DFAB6ECAA67EE356283DAC2239867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Wings In Motion - Cyclicity (2014) [MP3|320 кб/с]<Progressive/Melodic Death M
 ```bash
 magnet:?xt=urn:btih:993BA82446019FFAE554AA9318F8D171E4023350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Witheria - Devastating Return (2014) [MP3|320 кб/с]<Melodic Death/Thrash Meta
 ```bash
 magnet:?xt=urn:btih:67CC8712FFF3B6C46A49502D09EFDE0C09CE8913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +285,7 @@ My Fallen Breath - Боли net (2014) EP [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:F6555E7CA1905576327A86FF089E151283C3890D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +319,7 @@ Hate Inc. - Art Of Suffering (2011) [MP3|192 кб/с]<Industrial/Industrial Meta
 ```bash
 magnet:?xt=urn:btih:A91813D1FD3C48689A03691096F265541C113F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +349,7 @@ The Project Hate MCMXCIX - There Is No Earth I Will Leave Unscorched (2014) [MP3
 ```bash
 magnet:?xt=urn:btih:F9E582797C0CE39DF7D5989816DAE64C8DF54547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +383,7 @@ Decoy - Call Of The Wild (2007) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EB7445183AEA617DECC47465867B37C25882E5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +415,7 @@ Wizardmask - Песнь воина (2014) [MP3|320 кб/с]<Symphonic Gothic / P
 ```bash
 magnet:?xt=urn:btih:3DDC8CE7D8629F41274192EF0B9F23CD2784039D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +449,7 @@ Hades - Resisting Success (1987) [FLAC|Lossless]<Power Metal / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:96F79C13E09643403FC75BF06177CDA5F91CB58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +475,7 @@ Luna - There Is No Tomorrow Gone Beyond Sorrow Under A Sheltering Mask (2015) EP
 ```bash
 magnet:?xt=urn:btih:EB96F835D50D217464344A6015305A1B9B10F974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +507,7 @@ Cult To Follow - Cult To Follow (2010) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:69481E0D9E8656B0345A15E9B4F1861791A2CA56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62F4BF36AD5A6EB6007743E6D5917B4B0EA15FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +575,7 @@ The Sweet And Slade - Rock Concert 1973 (1990) [MP3|160 кб/с]<Glam Rock>
 ```bash
 magnet:?xt=urn:btih:34EBC8B9B1C305363631EC466838E4343C503840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +603,7 @@ KISS - New Best Ballads (2000) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:59BACA341AED1E4B9C0CFCC5703FCB6ECE7BFF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

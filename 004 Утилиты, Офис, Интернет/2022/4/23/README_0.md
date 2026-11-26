@@ -19,8 +19,7 @@ WeBuilder – редактор веб-страниц с подсветкой с�
 ```bash
 magnet:?xt=urn:btih:FE4038359CC6356D9BE774F0A29D252982F62DD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

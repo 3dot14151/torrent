@@ -20,8 +20,7 @@ Wondershare PDF Converter Pro включает в себя все особенн
 ```bash
 magnet:?xt=urn:btih:80568D3ADA907BD72197B333D415CF8FEC3D337A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ IDM UltraEdit Professional Text and HEX Editor 22.10.0.10 [En]
 ```bash
 magnet:?xt=urn:btih:9F042C6A2D3655FDE54D46D142C2B4BC7BB53FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

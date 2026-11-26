@@ -19,8 +19,7 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:F7E271CA28455421DAF3BDF709E75E0F8FBA636B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 17026604 Patch 5/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:C3CE1E65014F2823A9E521425BFDCF0C6A758058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nunholy - это остросюжетная ролевая игра, в кото
 ```bash
 magnet:?xt=urn:btih:7C971525F7A5FE2A5A80B18AEB59B35F2F3791A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (build 17035252/dlc) Repack FitGirl [Di
 ```bash
 magnet:?xt=urn:btih:3F4CD2ABA6E90C359D18C65DC57692A6CEF3F065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Might and Magic: Heroes VI / Might & Magic: Heroes VI / Герои меча и �
 ```bash
 magnet:?xt=urn:btih:BA755C8618BAEAEEBCECB855ACA903F5B964A5B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Astral Throne (2025) [En] (1.0.0) Repack FitGirl [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:5329D6DA057286BDBE64277520DB3037AC032A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Imperiums: Greek Wars (2020) [Ru/Multi] (1.422/dlc) Repack Let'sРlay [Complete]
 ```bash
 magnet:?xt=urn:btih:CC8DA59AC264853EF91CC614FBCF183FC89290F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ My Time at Sandrock-Действие My Time at Sandrock, как и My Time at P
 ```bash
 magnet:?xt=urn:btih:B40CBE53A06CBB0E18BE68D66B41D734718EFAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Secrets of Salem: Shadow of the Witch / Секреты Салема: Тень в
 ```bash
 magnet:?xt=urn:btih:034DDE9D694E09F65529F4E02EF56B9FD0F0BDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Jack Holmes: Master of Puppets - хоррор на выживание от пе�
 ```bash
 magnet:?xt=urn:btih:D71EBC2C66A65FB3CFAA3D2191E87C4277643936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Terra Memoria - ролевая игра с фантастическим миро
 ```bash
 magnet:?xt=urn:btih:39E229E0150EB7BEB604BFF9C357B636563F8C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Overcooked возвращается с новой порцией безумно�
 ```bash
 magnet:?xt=urn:btih:A32ADEB7F6E1519579FE674229DFFA0FFD066594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

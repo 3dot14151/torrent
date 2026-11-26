@@ -22,8 +22,7 @@ A4 Michael Hansen - Solang Die Liebe Bleibt(   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:30E667406AF65D2342DB6A3470205476ED154F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Le Concerto De La Mer(   Читать дальше...   )Жанр: Pop, Easy 
 ```bash
 magnet:?xt=urn:btih:2683ABF20574B4E61266642B80A626E0F88017E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4. Carved Inside(   Читать дальше...   )Жанр: Thrash Metal, Nu 
 ```bash
 magnet:?xt=urn:btih:2E556FBE75FCDB812ADC7FEA45478886B6ECD8D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Defaced - метал-группа из Хельсингборга, Швец�
 ```bash
 magnet:?xt=urn:btih:9D66C0C3F4ADE8DFA452D837D734F196AED980B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

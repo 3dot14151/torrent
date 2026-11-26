@@ -21,8 +21,7 @@ Scanner позволяет быстро удалить (   Читать дал�
 ```bash
 magnet:?xt=urn:btih:C8B2BF6C36C72B4DBBE953072AAECF7F937459C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:D95ADF2B10ECAC385E8E649C1BAC7BF7DDDC5F46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Windows Presentation Foundation (WPF) — рекомендуемая техно�
 ```bash
 magnet:?xt=urn:btih:5F79718E994F195E122ED3FDE4F15A4070F7C393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74CC6B4B2EA6B9BE05DBBF18410EFD7AC0A47665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

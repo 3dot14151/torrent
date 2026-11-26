@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B2C1C8AD46D5DCE0AECFD93AE3512E4E5AB80DA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA598A8E1AD1A9F5510CC8F14EFB10B6F5D7DE3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE630295D79F2B0D178678C8152ED8338C95245D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Acronis True Image 2015 for Mac
 ```bash
 magnet:?xt=urn:btih:D5DAF72F8810A52D9E28A2152CFF883F746DF264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3813A027D84EA4CB1DC73CFC7F7BC64D04629243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Puzzle Show - After Effects CS5 - CC проект. Разрешение прое
 ```bash
 magnet:?xt=urn:btih:184908EAB013576932B226F21B770F8F41A812EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Debian GNU/Linux 8.0 Jessie [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:A302F711A4A72E454FD336C47BD3AC72C17D3DEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA8ABEFCE9985E2670F77CC14D7EAECE7DF90B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Resident Evil Revelations 2 / Biohazard Revelations 2 (2015) [Ru/En] (4.0/dlc) R
 ```bash
 magnet:?xt=urn:btih:EF01EFE563844F3C1E826457C42A1E633D59D7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Twonky Media Server - это приложение, которое позволи
 ```bash
 magnet:?xt=urn:btih:A77F505662457BBF60BD66048E4A8C8B4930247C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ Etherium (2015) [Ru/En] (1.0.9167) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:8379EE926C6AEDEB312A8871D49116592475C17B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +299,7 @@ Dungeon of the Endless - это смесь из жанров Rogue-Like и Dunge
 ```bash
 magnet:?xt=urn:btih:B9349B2ABB2DFA039A85208112180C04DD26E0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Windows 8.1 Assistant 6.3.9600.17557 [Ru]
 ```bash
 magnet:?xt=urn:btih:6AE1FE2B21E43C9C1190E4826292CE38E72C608F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3387C0B9A06AD3CAE970804E36D4A71381014A94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ PentestIT | Безопасность сетевой инфраструктуры
 ```bash
 magnet:?xt=urn:btih:C3F42BDC49EB51857206B622C3F571A6CBF52919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Oddworld: Abe's Oddysee - New 'n' Tasty (2015) [PS3] [EUR] 3.40 [Cobra ODE / E3 
 ```bash
 magnet:?xt=urn:btih:2BB9777CD803F55F10DE5F3950AC723045FD3368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41BC776056AD133B35FF85D3A1E7EFCF6206FF78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F61EEADF87F01D152054F87917B888E7FE08845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +479,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73A87309DFA8C55FCA890A863B05B790D09CE53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2B7EA640C406256AFEA98D77F7DC75D74975388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ Sakasama no Patema / Patema Inverted / Патэма наоборот [2013, Movi
 ```bash
 magnet:?xt=urn:btih:9A46048D130153FC6D714AD662A865A90E7527D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ Sakasama no Patema / Patema Inverted / Патэма наоборот [2013, Movi
 ```bash
 magnet:?xt=urn:btih:3C2A1FEE1E557C5653F7AFDD9D626CA6062FA2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ Witchblade / Клинок Ведьм [2006, TV, 24] BDrip 1080p HEVC raw+rus
 ```bash
 magnet:?xt=urn:btih:E791477D2437FA114EF7F86194F41DAB0A011D18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:F0710BFF21AAC6AE103CAAC9CB953A3051331546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ MInstAll v.25.04.2015 By Andreyonohov & Leha342 [Ru] (Авторская раз�
 ```bash
 magnet:?xt=urn:btih:1D55BA8D4EE838E7D22B0F8E6B312F967BAEF138
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +656,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04E328DF851A165B113E1F78ED5FA87CFB84A7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

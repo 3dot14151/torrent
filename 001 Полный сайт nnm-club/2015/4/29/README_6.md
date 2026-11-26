@@ -18,8 +18,7 @@ WWE 2K15 (2015) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:166F4FCA3037322B1E7C8DD0FE8B46ACCB308D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ State of Decay: Year-One (2015) [Ru/Multi] (1.0) Repack R.G. Games [Survival Edi
 ```bash
 magnet:?xt=urn:btih:E464831E82D472A7C5A7560146EFC9057EFB9B73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF4837AA103AC59C2BD421747B144DE1D305AC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (Upd1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:D98BE435574FBAC992D1723E32F9EBC89F90067D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Windows 7 SP1 IE11+ RUS-ENG x86-x64 18in1 Activated v3 (AIO)
 ```bash
 magnet:?xt=urn:btih:101C655D8853B10079B4E932D594660EA1BA2F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

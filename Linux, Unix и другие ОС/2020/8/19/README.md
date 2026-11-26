@@ -19,8 +19,7 @@ Parrot OS 4.10 (Security + Home) [Хакинг, аудит, безопаснос
 ```bash
 magnet:?xt=urn:btih:EFFC8A44E67E6B6EF939CC1E074F2095A60EF5E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

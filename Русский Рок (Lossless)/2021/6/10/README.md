@@ -22,8 +22,7 @@ Monomakh, Krasnaya Ploschad - Split (1989) [FLAC|Lossless|tracks + .cue] <Russia
 ```bash
 magnet:?xt=urn:btih:2D881C143004E9243C559B4FE82249E8F5A3E97A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

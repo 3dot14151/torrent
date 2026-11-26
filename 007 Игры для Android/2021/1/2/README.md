@@ -19,8 +19,7 @@ Stickman Dragon Fight - Super Stick Warriors - экшн-файтинг с эле
 ```bash
 magnet:?xt=urn:btih:98A671D4BB88187688C4FBADE7ECA57773BD82C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

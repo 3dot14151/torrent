@@ -19,8 +19,7 @@ Google Earth Pro 7.3.6.10441 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6C14A4FF25754CA7BE1A4D81D764A43ADBF0E5AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MemTest86 - бесплатная программа, позволяющая пр
 ```bash
 magnet:?xt=urn:btih:4983B9D47E5379A6F85ADD360127A816DF8A245E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MassTube Ultra — очень простая в использовании пр�
 ```bash
 magnet:?xt=urn:btih:2A479FD160513AFF2E76405F8D144D0F13E1C2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ InnoExtractor - это мощное приложение, которое пом�
 ```bash
 magnet:?xt=urn:btih:BBD6D81FD101B13932BE465B71EF6D8361CEB0F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

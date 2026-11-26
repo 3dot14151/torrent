@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7445F30DE4EB4F918550E069C7E7AD141564BF96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:532AD562A76B01545CC02CD657E05CC1ABCE4ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nat Adderley Sextet - Work Song: Live at Sweet Basil (1990) 1993, Sweet Basil Re
 ```bash
 magnet:?xt=urn:btih:4935EAA28AEB01777E35D72625BD5EE11C5F1550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ignasi Terraza & Bert van den Brink - Tete a Tete (2016) Swit Records [FLAC|Loss
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ignasi Terraza Trio - In a Sentimental Groove (2005) 2016, Swit Records [FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Festival Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:510FC592A4F29EF0B8D02BC2518FE3ACAA78DF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Bireli Lagrene - Foreign Affairs (1988) [FLAC|Lossless|tracks + .cue] <Contempor
 ```bash
 magnet:?xt=urn:btih:CF4AF1A42956E76A03C8B5AA8A1E70B8BD9AF4FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Empire Records – Tropical Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:C62548528A6AA6001655438A498CB52A183E908A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Count Basie - Live at the Sands: Before Frank (1966) 2013, Mobile Fidelity Sound
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Deep Lovely Love on Hold to You (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Empire Records - Disco Trance 2 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ John Lamb - Conversations: North of the Border (2010) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:FA8B092000BF0538661884544C1DA96D8879C882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ VA - Armada Deep Top 10: July (2017) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:1EE0966042FCDDDFA41B2944507718A5527E9F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - The Body You Need For Summer 2017: Workout Edition [MP3|320 Kbps] <Progress
 ```bash
 magnet:?xt=urn:btih:32248BFBCD2C7008EE2DFCFC43B088CB8CE6E7E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ The David Hazeltine Trio - The Jobim Songbook in New York (2007) Chesky Records 
 ```bash
 magnet:?xt=urn:btih:0C45A2B8C6703E84EC5EB72F4F9816560AF5A663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ Gerry Mulligan meets Scott Hamilton - Soft Lights & Sweet Music (1986) 2006, Mob
 ```bash
 magnet:?xt=urn:btih:DB9505A0D15C7F3B6948633DD3DCBE5CDB2B5E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ VA - Global DJ Broadcast - Top 20 July (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2DB184D4FB9A65E974B102BBA7C505D831DFC58B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ Supercharge - Body Rhythm (1979) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:29E28E0E7E5D070DDE19E39105CDDA0F5C1316A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ VA - Unique Lounge Musique Vol.1 (Selected by Simon Le Grec) (2017) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:BD3AF95CF881CF39DBE4E1AA5F6D58E3DD03FC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ Sniff 'n' the Tears - Love/Action + Ride Blue Divide (1981/1982) Japanese Editio
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ VA - Black Hole Trance Music 07-17 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7F4DE75FE90CFC394EDA12B30B03BC901C295CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +663,7 @@ Bob Corritore - Taboo (2014) [FLAC|Lossless|tracks + .cue] <Blues, Harp, Instrum
 ```bash
 magnet:?xt=urn:btih:B0ECCD7EE339135E800E9550BFEC271AC7B358D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ VA - Bodybuilding: Hard Work Will Finally Pay Off (2017) [MP3|320 Kbps] <Progres
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ VA - Day Of Radiance: Space Ambient (2017) [MP3|320 Kbps] <Electronic, Synthspac
 ```bash
 magnet:?xt=urn:btih:68BF4963AB7D8B10B2C51AE6A3B63ECC96A9B098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

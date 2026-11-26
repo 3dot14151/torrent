@@ -19,8 +19,7 @@ Randomer - программа, с помощью которой Вы может�
 ```bash
 magnet:?xt=urn:btih:1433A231E130482DD26A4118EA5E6041774108C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Halo: Campaign Evolved - это полноценный ремейк культо
 ```bash
 magnet:?xt=urn:btih:3135EBD98A880448642B01CD43FDE660D74B9A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Halo: Campaign Evolved - это полноценный ремейк культо
 ```bash
 magnet:?xt=urn:btih:95611CC2C37FFD4D3F87AC767025357CFB10A48B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Call of Duty: Black Ops III (3) (2015) [Ru/En] (100.0.0.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:AF3EBE179AB107817C8B38C3B246044D660A53E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Call of Duty®: Ghosts – новая часть в серии Call of Duty. Н�
 ```bash
 magnet:?xt=urn:btih:569BE7E53EF177558A3F278C14906FA95B4AD857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:90DB3F7BD7E0627CC36C48E5A469CD0E9A85F996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BC869201DABFC5A35274C3D602D4168C2EBBD83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

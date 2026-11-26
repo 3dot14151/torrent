@@ -22,8 +22,7 @@ A4 It's A Plain Shame(   Читать дальше...   )Жанр: Rock & Roll, 
 ```bash
 magnet:?xt=urn:btih:1A392C26F32F76170AE5A2889CED2F8F19E0F3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ The Royal Concept - Royal EP (2013) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:F851F300297FA2B03C796DBE8A0732BBE9B300E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ The Sounds - Weekend (2013) [MP3|320 кб/с]<Indie Rock , New Wave>
 ```bash
 magnet:?xt=urn:btih:51559D4D1FBA09DF75BC2EFEA2972FF2DBECC427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ The Moody Blues - Go Now - 1965 (1994) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:A664CAAC935C941330D4D451D9EEF73C2E5B8EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Jeff Beck - Best of Beck (1995) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:299FA296F2D6C23D82145BA61974186F201DFFEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

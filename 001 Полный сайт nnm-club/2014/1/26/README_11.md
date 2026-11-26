@@ -24,8 +24,7 @@ Kaspersky Small Office Security для персонального компьют
 ```bash
 magnet:?xt=urn:btih:23336EA5503A40E32EFBFA6DCD4F2C523D1F5C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Thunder Wolves (2013) [Ru/Multi] (1.0 Upd1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:3BB5C183EECE2CA6C2CD76A61CCEA10AFAD42FD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Assassin’s Creed: Liberation HD (2014) [Ru/En] (1.0) Repack WestMore
 ```bash
 magnet:?xt=urn:btih:B4D2BA0B15C370CF764F5027CB4CADAD889C4619
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5FD8BB4ADA3D031A69107A453FD004647D5B64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Kerberos Productions, известная по серии космических 
 ```bash
 magnet:?xt=urn:btih:6A2062A1AFED7CFDD24F2D6B9054EEFAAE151EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:885997C1C084D05858065B90B1C3BE209E62F50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:068EF9A18C0928B558FD888C96FD8C6C0ABB180A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9C4E378122868592A2C151ED19FD86444807A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Dark Souls Prepare to Die Edition [PS3] [EUR] [Ru] [4.30] [Cobra ODE / E3 ODE PR
 ```bash
 magnet:?xt=urn:btih:B4DB21C1989C9475EF93D9884797D3990C7FAF5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE006D05EBAF558C74B2C55A6496B57BA338F1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Dishonored — это насыщенный экшен от первого лиц
 ```bash
 magnet:?xt=urn:btih:027452418371D516EAF369D1C0BCAE44F547F7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D3D4A7CA65EA93D782A61E2492AA947F7D344E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Pandora: First Contact - научно-фантастическая пошаго�
 ```bash
 magnet:?xt=urn:btih:CFD29B1A58944B7161965CA12AA8709660A5FD85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:A62FA884DB2A15DEA85D12B9C3D58C3BD5D05BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ GRID принадлежит к той категории проектов, ко�
 ```bash
 magnet:?xt=urn:btih:AF77EA7B1A8A2E7660D9D2BC6DF3D66052E3F8C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:523605E6AF4A763AD48163D5D27339705148AB1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:805B5D36498638C3D1B4384A31365B81A18FD8B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ Tomb Raider (2013 ) [Ru/Multi] (1.01.748.0/3dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:3BEFF43F4F56ADD7C3620F5335AFA99FEAF7AF50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Win8.1 PE x86/x64 EFI by Xemom1 Update 25.01.2014 [Ru]
 ```bash
 magnet:?xt=urn:btih:4736BF9EDE19AEFA6E0F13073D336CB2E9E1C36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ SPB Shell 3D Интуитивная трехмерная модель для г�
 ```bash
 magnet:?xt=urn:btih:8166640571C21278BA96C4E2EE0569294B033DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ S.T.A.L.K.E.R. Зов Припяти - Пространственная аном
 ```bash
 magnet:?xt=urn:btih:812AC36EB8583B22208AFB6A0A0E4CE3F599A5E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Gauntlet — это классическая игра в жанре «рогал
 ```bash
 magnet:?xt=urn:btih:BCB7EA8861782CF0A32418967A768C435011795B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 08.2015 by OVGorskiy® 1DVD
 ```bash
 magnet:?xt=urn:btih:D93341BB80860D739982EC0B8C17DC190B150E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

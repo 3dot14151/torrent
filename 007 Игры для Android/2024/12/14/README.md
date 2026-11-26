@@ -20,8 +20,7 @@ Duck Detective: Secret Salami v1.0.36 [En]
 ```bash
 magnet:?xt=urn:btih:127E1EA4F8D697EA2244BE5C73D17669662A5D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Case of the Golden Idol 1.4 [En]
 ```bash
 magnet:?xt=urn:btih:2BC6BDADAFB506C7EEC0B1AFB759B0F322A7CCDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Tick Tock: A Tale for Two — жутковатая кооперативная з
 ```bash
 magnet:?xt=urn:btih:82C768682E92B1584ED2976CBBB8E6B0E6C952E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Civilization легендарного дизайнера Сида Мейера �
 ```bash
 magnet:?xt=urn:btih:3F41EC9981760196AEAB732DF1C8EBC3B4B1D0D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Dune: Imperium Digital 2.1.5 [En]
 ```bash
 magnet:?xt=urn:btih:5E6FB274E7614C9887E2718C1329E24F8E2942A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ Balatro — это захватывающая и увлекательная иг
 ```bash
 magnet:?xt=urn:btih:6C380B01AD9672328021703448FB1032503F3F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

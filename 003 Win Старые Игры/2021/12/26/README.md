@@ -19,8 +19,7 @@ Thief™ Gold (1999) [En] (1.26ND) License GOG
 ```bash
 magnet:?xt=urn:btih:561A324397E3C849E4A285FB1E0032240A343D1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

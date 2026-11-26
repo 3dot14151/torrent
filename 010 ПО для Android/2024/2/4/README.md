@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:1FE6610755D6E05DAAB212BD14579B3AB99182F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Rock Identifier - Stone ID v2.3.36 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:17798905BA13235343887E9ED95F63A946B271A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Simply Piano - это одно из лучших приложений для о�
 ```bash
 magnet:?xt=urn:btih:624312BC00112ECCA9987F1CEB3358EADBAB912E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

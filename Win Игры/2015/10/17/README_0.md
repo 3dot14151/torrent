@@ -19,8 +19,7 @@ Keep Talking and Nobody Explodes (2015) [En] (1.0.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:874B337238E2DA9E33DDD2BD607791B85D6CF20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip =nemos= [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:40235301A90982D23A19030EC4091A73783EE51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

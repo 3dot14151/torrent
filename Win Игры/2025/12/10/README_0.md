@@ -19,8 +19,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.10.0.12/dlc) Repack FitGirl [Ultimate
 ```bash
 magnet:?xt=urn:btih:B4FD80203825A3FC1BC19928E04A3F4934FDEEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Drova - Forsaken Kin - это пиксельное экшен-RPG, вдохно�
 ```bash
 magnet:?xt=urn:btih:CBE11CA0766814CDDF4E06D2AA8FCF1345FC2A58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hatred (2015) [Ru/Multi] (24112025_135232_rev.20802) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EBC21B7817C28E26F57A99D46D4F6B80B1078216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Brotherhood (2025) [Ru/Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:0D793919CD2810EBC7BB66E3308709C55B0F05FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Christmas Fables 4: Nutcracker's Tale (2025) [Multi] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:E63839252097EDFFA2461E268B1687206EFDD692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mistyvale / Туманная Долина (2025) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:D5B88FA881A9F90D2C8E5E25242F438A1DB358DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Age of Empires IV (2021) [Ru/En] (15.2.7445.0/dlc) Repack Let'sРlay [Anniversar
 ```bash
 magnet:?xt=urn:btih:88DC26AA1C9371E4DF99540C2B0A100078DDDC1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Drop Duchy - это легендарная геометрическая голо
 ```bash
 magnet:?xt=urn:btih:85A68F54EBABA7441345821C7BED0AACF522A5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

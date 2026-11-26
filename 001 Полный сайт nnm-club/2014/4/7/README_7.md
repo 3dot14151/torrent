@@ -22,8 +22,7 @@ Adobe InDesign CC представляет собой универсальное
 ```bash
 magnet:?xt=urn:btih:87555887C8F309990348C9208E290BF3686B3A2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23C6DCE06C11B7187483B3DB8D031F6B45ED4912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C01CDFE494985E5A95CB8E130AF706CA6240757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Command & Conquer: Red Alert 3 [PS3] [EUR] [En/Ru] [2.60] [Cobra ODE / E3 ODE PR
 ```bash
 magnet:?xt=urn:btih:0B7D9F2B2E9B84C65B823F2F36325F8F3CF422AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ You Are Empty / Опустошённый (2006) [Ru/En] (1.3.3) Repack R.G. Orig
 ```bash
 magnet:?xt=urn:btih:65B51D0A249D9D5FE63A6B11327EE6A531B4721F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ The Witcher 2: Enhanced Edition \ Ведьмак 2: Убийцы королей 
 ```bash
 magnet:?xt=urn:btih:5B3FD21638112B43AD9D3B463830C6B122E52304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Disciples III: Reincarnation (2012) [Ru/En] (1.0.3) License PROPHET
 ```bash
 magnet:?xt=urn:btih:BD2A0BD68CFE9DDBA702CAE3F5F376417B4F3F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Strider – сайд-скроллинговый платформер, дейст
 ```bash
 magnet:?xt=urn:btih:523E42122DCB3473D353B447CDED4B695D1DF91E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ MATLAB – это высокоуровневый язык технических
 ```bash
 magnet:?xt=urn:btih:7308451931E78B94F04277C43E10598E3451032A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Might & Magic® X Legacy - это приключение для одного и�
 ```bash
 magnet:?xt=urn:btih:AF19EC34925BCD5BB3A0B1E7935C29B4BEFBCA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ Daily Mirror
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ BioShock Infinite (2013) [Ru/En] (1.1.25.5165/8dlc) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:927B86CF94701A9227D9EE5B56180B0F7B80ADDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5AB66C9D54D23A07CF261E18F748F32EC109E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

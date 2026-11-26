@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2F4A72CEE2CD4B26FAEA3E008CEB9F292DECE1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wall World сочетает в себе несколько жанров. В эт
 ```bash
 magnet:?xt=urn:btih:198D14922F4961A9F30708EB24D56E4A491B8C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Pink Floyd Solo Projects: Roger Waters, David Gilmour, Richard Wright, Nick Maso
 ```bash
 magnet:?xt=urn:btih:8749A3356DA3EB8E5A3722C919D9D53FD521CE62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:872FEA5B2751CCBF7B1EE416C59EB9A85C64465F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Forza Motorsport (2023) [Ru/Multi] (1.488.4138.0/dlc) Repack DjDI [Premium Editi
 ```bash
 magnet:?xt=urn:btih:752E1CAE1B4ACC0E645C6CEFEFB1140B958BC91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB50523FB4417F2B84B1DA55B22C19CD3B709F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81612C16E4A7A8025A9D685077856FF8DE4D6EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95D4E282653B3281867FA329F3D3A0066494024F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Stickman: рисовать мультики, создать мультик. Ка
 ```bash
 magnet:?xt=urn:btih:B662856160AD157FEA42AFE96CB7216D9030876A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C627E0622E8F82C568A6A5FA2CBAB181889D792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

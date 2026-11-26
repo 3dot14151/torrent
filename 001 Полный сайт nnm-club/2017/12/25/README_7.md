@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7C015E81E0CA536CF863CBEF3C0D31C47A491EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Claudio Roditi - Slow Fire (1989) Milestone Records [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:ECC3F89C3BBF53BCE7B585B56929629FF3AA7E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3140F4920A492B70A8561C5FC18A533380B59DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3086A7FF3E8603BB7B07C0C981ADFA1B5DE4EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Titiyo - Extended (1997) [MP3|320 Kbps] <Pop, Soul, R&B>
 ```bash
 magnet:?xt=urn:btih:B56F2588F8134E1443D76919023B69192D2873DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Nick Warren - The Soundgarden - Volume One (2014) Hope Recordings [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:CAEA7ACC43FE4D04EAF0E8C553CFDD2758ECC7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Stell Recordings: Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House,H
 ```bash
 magnet:?xt=urn:btih:8824C6B7661F2155B9DC97F8AB3FF3C2AE6778DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Titiyo - Hidden (2008) [MP3|320 Kbps] <Pop, Soul, R&B>
 ```bash
 magnet:?xt=urn:btih:904B48E854C8E90664CAA76986AECFC4FCA21AB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Inner Harmony Vol.1 (Find The Inner Peace With These Super Calm Electronic 
 ```bash
 magnet:?xt=urn:btih:98299E03E7CCA628BFB95BA23FF88B37561A8249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B6FBAF9D6EC42C41E0A2CACAD1A85A64EC019B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Titiyo - This Is... (1993) [MP3|256 Kbps] <Pop, Soul, R&B>
 ```bash
 magnet:?xt=urn:btih:E6DFB35CBDAD89B3CEC6A5FB3922BCE033CDB1C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50A529DC84AC8B7AFDA9FCA43D91DF1BA114EAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB559E54452338D1B320613BDC5758C8181F514F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ Skye | Ross - Skye | Ross (2016) [FLAC|Lossless|tracks + .cue] <Trip Hop, Downte
 ```bash
 magnet:?xt=urn:btih:4554EEED4D264A5A2CD659BB189BD2B046596FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +411,7 @@ Forma Tadre - Discography 4 Releases (1997-2017) Off Beat [FLAC|Lossless|tracks+
 ```bash
 magnet:?xt=urn:btih:A29759F01AF6499CF13819528A5BADD76EDEC8B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ VA - Alpine Grooves Easy Beats 1 (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:369902F9899D98C588B54E91C65C57715684E813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C5D59F9540FA55C4109C4FBA4A5B56206867E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4C1648C37AE5696127105CEBF8F244C3C95ED12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Titiyo - Come Along (2001) [MP3|320 Kbps] <Pop, Soul, R&B>
 ```bash
 magnet:?xt=urn:btih:F1432CADE764041A28A9C6512DC5E3E986164A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ VA - Light Music Bass Best (2017) [MP3|192-320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1344C35DE0915E8324BDF2352063D3DDD818A9F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17E7E1F3CFD055BC7D22A456393DC1154D612012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ Lee Gamble - Mnestic Pressure (2017) Hyperdub [FLAC|Lossless|WEB-DL|tracks] <Abs
 ```bash
 magnet:?xt=urn:btih:6EAA1AE6BD13A22F18C32AC14B4D2114ABC7F824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ VA - Silk Music Pres. Shingo Nakamura 02 (2017) [MP3|320 Kbps] <House, Progressi
 ```bash
 magnet:?xt=urn:btih:B3C450335D985B08D07AFA022872CA35AE613E18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ Titiyo - Titiyo (1990) [MP3|320 Kbps] <Pop, Soul, R&B>
 ```bash
 magnet:?xt=urn:btih:B2738E4ADD325E8FB4DD67A3D15835FFDC128AAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ VA - Italo Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:35FE5F6F777503D47F0A3CE03D706C7BC1FC072B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ Lali Puna - Two Windows (2017) [FLAC|Lossless|tracks + .cue] <Electropop, Downte
 ```bash
 magnet:?xt=urn:btih:94F8656768249B971BCC47E2D4E837C08E58C411
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

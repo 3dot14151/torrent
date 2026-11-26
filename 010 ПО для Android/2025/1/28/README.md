@@ -19,8 +19,7 @@ GPS АнтиРадар v48.0 Mod by 0x7d [Ru]
 ```bash
 magnet:?xt=urn:btih:48F2A3641868B111E0342F3180024C3242BF01ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ HeadUp Display (HUD) – это возможность использовать 
 ```bash
 magnet:?xt=urn:btih:EE73237B4ED1D4F91AD4417F527B899DE5B5E212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VideoShow - AI Видео Редактор v10.2.5.2 Mod by AppZombie [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2609DACD8E6798B35DDCAC2773486F5CC641D9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Amaranthine Voyage: The Tree of Life. Collectors Edition / Вечное Стра
 ```bash
 magnet:?xt=urn:btih:A524446D6F701560E167D878DFF30D63F88E108B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unmechanical — приключенческая игра, сочетающая �
 ```bash
 magnet:?xt=urn:btih:E086E4DDF208C036A20E02FA38DF1A2CB9D5B617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Phineas and Ferb: New Inventions / Финес и Ферб. Новые изобр
 ```bash
 magnet:?xt=urn:btih:654F0F8D7B8892369D2CADA2718A0D410988008F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Dungeonland – аркадный экшен, в котором группе иг
 ```bash
 magnet:?xt=urn:btih:8DF93C4E352B92D1B42ED889D4D1270651E17EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ openSUSE — это стабильный, легкий в использован
 ```bash
 magnet:?xt=urn:btih:3BE6652A22A181B7AE7FDCF2F7C9E4631D332FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

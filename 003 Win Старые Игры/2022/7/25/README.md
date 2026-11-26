@@ -19,8 +19,7 @@ Sinking Island (2007) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:9CB113710CC96CD461FF87575FFC4742146ABED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

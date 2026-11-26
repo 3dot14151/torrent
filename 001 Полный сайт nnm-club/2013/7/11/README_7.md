@@ -28,8 +28,7 @@ VA - Universal Trance Volume Six (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:1CF23E36D565DA23E8C8DBD1C9605BB1EB02C19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79C164FE949154B4CF3CC862DDFE35ADD274DF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Ferry Corsten - Corsten's Countdown 315 (2013-07-10) (2013) [MP3|256 кб/с]<Tr
 ```bash
 magnet:?xt=urn:btih:054DE049AB3D277A7377EC12292C4B3541C8D512
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Ori Uplift - Uplifting Only 022 (2013-07-10) (2013) [MP3|256 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:C3B5E41E343CA98977AC9719DEE9FA08B7E511BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:201186BB0EB3F49E9EBD8C54652BB39FA16466E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ For Today - Prevailer (EP) (2013) [MP3|320 кб/с]<Christian Metalcore>
 ```bash
 magnet:?xt=urn:btih:BA1CE04DC8D34F1EB6A529FD24FA21F393C33E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Moving Oos - 3 albums (2007 - 2010)  [MP3|320 кб/с]<Rock,Blues Rock>
 ```bash
 magnet:?xt=urn:btih:CC76E2151F9F86934D65484742CF56B2A0DF0FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ CD 1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +304,7 @@ Steve Anderson - SAME Radio Show 239 (Artist Showcase Andrew Benson) (2013-07-10
 ```bash
 magnet:?xt=urn:btih:C1EB2080386CACF0553DB2D59481D96A6445C0F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +336,7 @@ DeeperNET - One (2013) [MP3|320 кб/с]<Psy-Trance,Progressive Trance.>
 ```bash
 magnet:?xt=urn:btih:26384A46597A5BA1C04EDE8340AD66041AC482BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:343569DBC1253E9A1317CDC7DA13239A8D27A277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94B81F2BF381F96D920F3916EC71FD00E059420F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +420,7 @@ VA - Вспоминай меня (2013) [MP3|256 кб/с]<Pop, Шансон>
 ```bash
 magnet:?xt=urn:btih:6CD91B54E20565892AA9D17E425F3D8E9B5DB444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ Suncatcher - Midnight City (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7E13A2B54E9FB7CB083E7EC5942DF8B4C14E4347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C75D965CD2596FB7A23CE5EC50A28BBDA57B47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50206521E630166E811E06CB87C47DCFC8363BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +529,7 @@ Red Rose - 2 альбома (2011 - 2013)  Discography [MP3|320 кб/с]<Melodic
 ```bash
 magnet:?xt=urn:btih:1D90004344811D6C8860DE7ED097261F4C520A42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +563,7 @@ VA - Trance 100 - 2013, Vol. 2 [4 CD] (2013) [MP3|320 кб/с]<Trance, Progressi
 ```bash
 magnet:?xt=urn:btih:7D2027E9A2BD6D28753A6F5952887ABF74F3A16E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E4A858106EF2D33097C22A55D7BCC3EE6AF88D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A996D7B07CD6353E0D7A4AC4BEC803CB84C9AEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9D791169633E21D6CF99F2192CE35A1BBCE4762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ Red Rose - On The Cusp Of Change (2013) [FLAC|Lossless]<Melodic Progressive Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ Renato Russo - Duetos (2010) [FLAC|Lossless]<Pop, Rock, Folk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ EfficientPIM - полнофункциональный персональный �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

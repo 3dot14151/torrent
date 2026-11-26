@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:9387FD9B82A1734B7E0E055B11D3FBB97384023F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ RawBT служба печати v5.52.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:94608E0BD2F44B2454B34E7CBE883798B809AD9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ iHeart: #1 for Radio, Podcasts v10.12.0 [En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:E3133F589AD791B04EF9DB435ED47B58F0C65293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Onkyo HF Player v2.9.1 [Ru] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:1D821204715F5269AC0F84D5FB54FAF8B4191C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

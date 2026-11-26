@@ -20,8 +20,7 @@ Wolfram Mathematica 15.0 [amd64] (sh)
 ```bash
 magnet:?xt=urn:btih:61B48DD8E2D8EE059C25EFC07440A7D825B27451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

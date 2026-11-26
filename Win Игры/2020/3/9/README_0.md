@@ -19,8 +19,7 @@ Murder by Numbers (2020) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D54DE0F1F8906B57604C0296971195D598B7203A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

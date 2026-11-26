@@ -19,8 +19,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:8A40E256A51791130AC90C99448A35D4EFEDEACB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mock Locations позволяет подделать данные о распо�
 ```bash
 magnet:?xt=urn:btih:7A7AA790DBE5EEF25429342385F5712AEB290901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Listonic / Список покупок v8.10.1 Mod by NURIK kz [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B0125F672DB001A112DBFF8C1E0D455149D739B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:0B9E56C5D37CE3EEE3443A4C0A62E0DD7B330834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

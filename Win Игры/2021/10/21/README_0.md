@@ -19,8 +19,7 @@ Jars (2021) [Ru/Multi] (1.0.1018) License GOG
 ```bash
 magnet:?xt=urn:btih:E2B623A3CBE7A404E4D653F4EACE82E62083A48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Into the Pit (2021) [Multi] (368) License GOG
 ```bash
 magnet:?xt=urn:btih:0BCB404ACCEC33DC7BB325643EC8AE31A63FC61E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Monster Train (2020) [Ru/Multi] (12921/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:697EED3EC504947F48C81EC6B84BCA557D31ED82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ NieR Replicant ver.1.22474487139... (2021) [Multi] (7396468) License CODEX
 ```bash
 magnet:?xt=urn:btih:16F58A0DB0DEA001BB772EB66D92A91413C6CDE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dice Legacy (2021) [Ru/Multi] (1.2.5) License GOG
 ```bash
 magnet:?xt=urn:btih:DD8A6A19946D56C9DFE2124C288CC87714054093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.95) License GOG
 ```bash
 magnet:?xt=urn:btih:0D1B0EEDE5F6CBBCCB10597D758B5EBAEA1A2B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

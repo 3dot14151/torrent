@@ -21,8 +21,7 @@ Lillian Axe - 2024 - The Box, Vol. 2: The Quickening (6CD)Жанр: Hard Rock, H
 ```bash
 magnet:?xt=urn:btih:3927CBED41F8C29209D92793980FDCF2BAAF64ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Moby Grape - Moby Grape'69 (1969) Reissue, Remastered, 2007, Sundazed Music [FLA
 ```bash
 magnet:?xt=urn:btih:4488208C77047A0AB8ECAABB8A9351081607C070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ All For The King - Darkest Before Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 ```bash
 magnet:?xt=urn:btih:0082D9A0BEB573EBD527E9D2ED375778B1280DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Neal Morse - The Restoration - Joseph: Pt. Two (2024) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:A500F6C0BE3523B6FF1206870646F3EAF43E534C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Tad Morose - Sender of Thoughts (1995) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:853D1D991EA48A154B5218A17EEC08357818EF41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Corsair - The Golden Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 ```bash
 magnet:?xt=urn:btih:8DE9700FF07EA71452129298A3BE988B5779213A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Tad Morose - Leaving the Past Behind (1993) [FLAC|Lossless|image + .cue] <Progre
 ```bash
 magnet:?xt=urn:btih:48A7079DA19D1BF1CB1BB8BE9AE0BEA6EB90D106
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

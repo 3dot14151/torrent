@@ -19,8 +19,7 @@ Paul van Oorschot | Computer Security & The Internet / Компьютерная 
 ```bash
 magnet:?xt=urn:btih:AA76724142CC8DB60FEC7E334331808F53ABB792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

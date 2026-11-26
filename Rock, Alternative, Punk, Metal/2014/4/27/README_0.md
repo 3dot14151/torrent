@@ -26,8 +26,7 @@ Mekong Delta - In a Mirror Darkly (2014) [FLAC|Lossless]<Progressive Thrash Meta
 ```bash
 magnet:?xt=urn:btih:E5CC0DB5CFE7909BD837C287E7E017EE654815DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Holy Moses - Redefined Mayhem (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8DA267E408AA08196F3EEEF3DC2DD2CF1964094C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Spring - Spring (1971) Reissue /1994, Repertoire Records/ [FLAC|Lossless]<Rock, 
 ```bash
 magnet:?xt=urn:btih:84F896CD4C60610873882B5D2BC4D35226BFC03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Anti-Mortem - New Southern (2014) [FLAC|Lossless]<Southern Metal>
 ```bash
 magnet:?xt=urn:btih:9E04BD87F650895F36F6652A5DFCC73D063CEEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

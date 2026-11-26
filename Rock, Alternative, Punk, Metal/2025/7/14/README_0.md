@@ -22,8 +22,7 @@ In The Woods... - Otra (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Gothic
 ```bash
 magnet:?xt=urn:btih:6AA92722799E6E91D787F60194D15B6B94672E68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Majesty - Oceans of Black (2025) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:F9203E6527D55A569202A9893778CF8999A1CE92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Relligary - Hearts and Minds (2025) [MP3|320 Kbps] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:165067DA25949259743FAFDD3E4B85AAFF9BE974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Maniae - Vestiges (2023) (EP) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:B6726B0E9B89FF428E8C78057D2081A500482C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Night Must Fall - Dissonance of Thought (2007) (EP), Released, 2008, Descending 
 ```bash
 magnet:?xt=urn:btih:CC75CAD23FC860BD24498C0F9B8643E5E8701828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ CD One - Live From The Genting Arena, Birmingham, 2017:
 ```bash
 magnet:?xt=urn:btih:C7B005C31CE030397B95E820DCE18DD4B8BB9807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Metallica - Master Of Puppets (1986) Expanded Edition, Reissue, Remaster, 2017, 
 ```bash
 magnet:?xt=urn:btih:71CEA1C8545AE200B79D96169431ABF1563E0A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Helix - No Rest For The Wicked (1983) Reissue, Remastered, 2005, RockCandy Recor
 ```bash
 magnet:?xt=urn:btih:D6E40477FA45B3770C0DA0B18AFDB689F8B4F6E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Sodom - The Arsonist (2025) Limited Edition, Japanese Edition [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:62BCAA1FB04490EEA16269F18E09429D26658248
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:488A137DE74D3345C42AA8BBF9516BD3DE456B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

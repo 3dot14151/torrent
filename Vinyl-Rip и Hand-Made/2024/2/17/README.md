@@ -22,8 +22,7 @@ Mystic Prophecy — немецкая пауэр-метал группа из М�
 ```bash
 magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Unheilig - Phosphor (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, I
 ```bash
 magnet:?xt=urn:btih:9F173CF113DF006299B249C8FA710A050ABA4816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declippe
 ```bash
 magnet:?xt=urn:btih:52C4710E801238F3A9E8C3F166DD9A9DA4083C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PCLinuxOS 2014.12 KDE FullMonty [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:BF7A493ADCDD8F0BC71693355CE6C72FD1C2EB15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

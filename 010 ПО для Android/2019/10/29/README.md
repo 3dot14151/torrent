@@ -19,8 +19,7 @@ Remote Bot for Telegram - это мощный инструмент для уда
 ```bash
 magnet:?xt=urn:btih:7D7683DFEA7B40B45843485B6E4B4FD0A5C50DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Photo Measures - лучший и самый простой способ сохр
 ```bash
 magnet:?xt=urn:btih:05F1250C756526FFC18DDAC51393C6AA50815650
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Skeleton Crew – новый захватывающий платформер, г
 ```bash
 magnet:?xt=urn:btih:4517E65980779B542C8807B9BDDB2E490941F10E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru] (1.2.12) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B1F2D708AD1DA02954FE0548E5F7AD4CCC2737FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

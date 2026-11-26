@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E44B154391FAE8845C46F4DB81EF8E501376649E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Dishonored (2013) [Ru/En] (1.4/dlc) Repack R.G. Механики [Game of the Ye
 ```bash
 magnet:?xt=urn:btih:B3EC48AA0357ADF9348752C1EA4CDE5A831EF561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Air Missions: HIND – это симулятор воздушных боевых
 ```bash
 magnet:?xt=urn:btih:6C1FDF5911C5F52A6AF2C538BF342DD2C1117DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC0AAD8AA646CB92C7DB433AACF31FB370368162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BFEEC6E70FACAC230D81C78443709F4286CAEF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76DD721D1B1AF321E60DE972DFE8541FF140EC59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Warhammer 40.000: Dawn of War III (2017) [Ru/En] (4.0.0.16278) Repack R.G. Ме�
 ```bash
 magnet:?xt=urn:btih:5882FEAF48921ED836FDDAE32BA64CDAD9991F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

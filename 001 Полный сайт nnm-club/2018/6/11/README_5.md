@@ -22,8 +22,7 @@ Lowfish - Hypersensitivity (2018) Suction Records [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:B6B620C39B03060E751F0110CD9DFBCDB73356E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
 ```bash
 magnet:?xt=urn:btih:F28621A61B534525D7914220B5AE65F45A721B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Russian Trance 2018  [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive 
 ```bash
 magnet:?xt=urn:btih:C6626EFA20606F9011D920DD843D468DB5509F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Italo Disco: The Lost Legends Vol. 19 (2018) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:34B48F96DD9B076E12F41E5CAF6DB6842C3B9390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Roland Grapow - Solo Projects (Japanese Edition): 2 Albums, 1 Single, 3 CD (1997
 ```bash
 magnet:?xt=urn:btih:557338A09AADBA49108684A74210A800626C8261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ ANDY SVGE - Gravity (2016) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:FA34FD408526B98F522DDB0AAAB85672702B5FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ VA - Italo Disco: The Lost Legends Vol. 17 (2018) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:73F838F9B09D48919E640BD5C0138A565E4DCD53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Italo Disco: The Lost Legends Vol. 16 (2018) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:A0CE1DD01FCB7DFBD2C145BBDA75008B49D5926F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Italo Dance Summer Hits (2012) [MP3|320 Kbps] <Italo-Disco, Dance>
 ```bash
 magnet:?xt=urn:btih:390273957452DCF7023854475C954C2628E857DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ VA - Italo Disco: The Lost Legends Vol. 18 (2018) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:43F1ACEDA62C8541C9515A37F3508A0FD00050CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ Trillium - Tectonic (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Melod
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Theme Of The Streets (2018) [MP3|320 Kbps] <Chillout, Lounge, LO-Fi>
 ```bash
 magnet:?xt=urn:btih:EFEF183F9B8EBF56CD8ED3EE5405EE3E83D360A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:F3C643FF45742CBE135AAD0ECAE15C2A49C6D218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ VA - Synthwave Cafe: NightDrive (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Dr
 ```bash
 magnet:?xt=urn:btih:E4BBE91821805A87D3BEDBF5F828448FFA108D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C2B6EFABCB09ED379E3581AAF0840A7B683444E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D6DB6B7DBF3216F5CF69FE3D52339C1AA99F45D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B66C74206B757D8219F97B6165AF3FAC81D927F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCE2F14263BBC06BA88B241F0A7FBC651FEB1DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ VA - Italo & Dance: Summer Sale (2018) [MP3|320 Kbps] <Italo-Disco, SpaceSynth>
 ```bash
 magnet:?xt=urn:btih:80B70BFCB257E4B0CC079064E9EAAA4A4A21D978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09E284E8387A847951C9BB5742A4876D6CC1EB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ VA - Italo Disco: The Lost Legends Vol. 20 (2018) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ Trisha Yearwood (Триша Йервуд) - She's In Love With The Boy (1991) MC
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ Trisha Yearwood (Триша Йервуд) - Trisha Yearwood (1991) MCA Records [
 ```bash
 magnet:?xt=urn:btih:E1B4D0EC523B1C391FDEC1922839A76466DF8A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Visitors - 2 Albums (1977-1981) [FLAC|Lossless|image + .cue] <Eclectic Prog, Spa
 ```bash
 magnet:?xt=urn:btih:86D51A87B32ACECEDA950F29F43614B8D3DF2049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ Total Audio Converter - мощный конвертор всех музыкал�
 ```bash
 magnet:?xt=urn:btih:DB5561AD7FA193D19DF4DD77F4BE2A21D4171CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EAF32C4DFD1B5D0F600FA7523E691807778833D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

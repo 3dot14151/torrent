@@ -19,8 +19,7 @@ Michael McCarthy, Felicity O'Dell | English Collocations in Use. Intermediate (2
 ```bash
 magnet:?xt=urn:btih:B08503058C71AB58A84A69A07A1F72EE1E4FD126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Upper-Intermediat
 ```bash
 magnet:?xt=urn:btih:5F39951F67E5BB377349FC4F0D1056CB5D81F542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Elementary (2017)
 ```bash
 magnet:?xt=urn:btih:F2BDDCAF6FA1B1BC2BE57168721413EE9F366A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

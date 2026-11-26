@@ -22,8 +22,7 @@ Stereophonics - Keep The Village Alive (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<In
 ```bash
 magnet:?xt=urn:btih:B2756C956560371BED98D6EDD25440700B1CBC09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Abbi Walker - Feisty (2015) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:8E0C032CC535CDC95AA551605FD97105BCC6DDBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Slayer - Repentless (2015) Limited Box Set Edition 2CD [FLAC|image+.cue]<Thrash 
 ```bash
 magnet:?xt=urn:btih:92421679A1DD00A390DAFB3F1E4C30AF39D2AED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

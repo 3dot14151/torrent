@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2BEE02E7040BB6AAB08B44EEDFCCDF9912875FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54B1DCF07F35C73EDB96A1E94429EDE68E06A25F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CB51A8938A0CC71AA5E0E60479B62049F008C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ PROMT Expert 18 – корпоративное решение PROMT, созда�
 ```bash
 magnet:?xt=urn:btih:8EAD603DE00062B78EB8EC0683CD4BDE93A33BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1/upd7) 
 ```bash
 magnet:?xt=urn:btih:5E51209DD0BFF9738B8441D22DBA2DDF637CAC78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R. Зов Припяти (2009) [R
 ```bash
 magnet:?xt=urn:btih:20457BD982A55B905A781D3DADFFF993C85768EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F318B53DB6E10D353FC082EFC664F4D87BA2CA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

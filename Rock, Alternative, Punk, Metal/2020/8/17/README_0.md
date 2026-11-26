@@ -22,8 +22,7 @@ Dreamworld - это проект братьев Клауса (вокал, эле
 ```bash
 magnet:?xt=urn:btih:54078D27A1A6739DAED685B60FC2C40A71AB311E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Neil Young - Homegrown (2020) [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:4F02FD93486CDD59967AEC1489C7EE655BEBDF98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blindstone / Martin Jepsen Andersen - 11 albums (2003-2020) Discography [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:CEDD8BA3B01DFE5840343F12B8334CCFE8753166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

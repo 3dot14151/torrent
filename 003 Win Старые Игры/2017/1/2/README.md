@@ -19,8 +19,7 @@ Railroad Tycoon 2 (1998) [En] (1.55/dlc) License GOG [Platinum Edition]
 ```bash
 magnet:?xt=urn:btih:A95CD27FE212DD28BBD3BD4241FF7E66DBDA8633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.0
 ```bash
 magnet:?xt=urn:btih:C28292EC29A72BB279704F29CE37257E7748B017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

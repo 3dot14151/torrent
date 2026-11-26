@@ -28,8 +28,7 @@ Diamond Lane - World Without Heroes (2011) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:57FEBFA0B95B47746661FB94100A9B2AA11F2015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Testament - 16 альбомов (1987-2009) [MP3|320 kbps]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A857DDE8A8EB0EAFED4DB382BFC970CF2600F3A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Red Hot Chili Peppers - The Adventures of Rain Dance Maggie (2011) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:8E24D685F5DD9F705A7A9DEF7D3D597511448D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

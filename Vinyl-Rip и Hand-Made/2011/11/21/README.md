@@ -25,8 +25,7 @@ Edvard Grieg (1843-1907)
 ```bash
 magnet:?xt=urn:btih:003F428D21EF6EE8BAB736028C795DD93895EF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ LP1:
 ```bash
 magnet:?xt=urn:btih:F90BB1E44DE69B781D8D6DA855571EF0F44B121F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

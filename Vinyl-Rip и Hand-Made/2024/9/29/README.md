@@ -22,8 +22,7 @@ Serious Black - пауэр-метал группа из Германии.2015 - 
 ```bash
 magnet:?xt=urn:btih:EF8A42B3E4B7A4262DCEF53C4D3A491DDEA4AEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disturbed — американская метал-группа, образова
 ```bash
 magnet:?xt=urn:btih:65B6CB03A9DF03D9F99AB8381299B755D0156463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

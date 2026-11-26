@@ -28,8 +28,7 @@ Disintegrate - Parasites Of A Shifting Future (2012) [WavPack|Lossless]<Melodic 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ As Angels Bleed - As Angels Bleed (2013) [MP3|256 кб/с]<Gothic Metal, Symphon
 ```bash
 magnet:?xt=urn:btih:19CF6DF9B7F6940A5AE3427C4EEEB9CB62CCBB82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Oak - Not Afraid Anymore (2013) [MP3|320 кб/с]<Post-rock>
 ```bash
 magnet:?xt=urn:btih:850B7D99FB8F00143029D7C48BC43A8A0AD4ABBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Krokus - Dirty Dynamite (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:651361B6F6843C35081B1F3D8CBFD08F3F9D6F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ VA - While My Guitar Gently Weeps (2008) 2CD[FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

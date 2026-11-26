@@ -19,8 +19,7 @@ OVERPASS (2020) [Ru/Multi] (13935/dlc) License CODEX [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:0F9C543A711B24CC6852BD2E79AE2598EA5F54FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

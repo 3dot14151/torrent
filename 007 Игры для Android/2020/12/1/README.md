@@ -19,8 +19,7 @@ Leo's Fortune – интересный платформер, в котором �
 ```bash
 magnet:?xt=urn:btih:02033140BEF27AECD69FFFED11E9771E2DB8ACC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

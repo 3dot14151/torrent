@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:8AE90CAFF54473B8998C5D0F6C5D6CDD88AA5345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Uriel - Arzachel (1969) Collectors Edition |Released 2007 [FLAC|Lossless]<Canter
 ```bash
 magnet:?xt=urn:btih:B525D3890CF4DF415AF915E0C099A3F940BC8A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24EA00A6D3CED652390EB8F411AAE7F76E59723E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ M.Y. Project - Darker By Light (2013) [FLAC|Lossless|WEB-DL]<Darkpsy>
 ```bash
 magnet:?xt=urn:btih:5EAA8CF5E0B5F344EA883FEA18D6EC827B7EEA9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Alfred Heinrichs - Personal Magic (2013) [MP3|320 кб/с]<Minimal Techno>
 ```bash
 magnet:?xt=urn:btih:B02086C0F6762AAEF75939E44AA40930166FD90C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:666A64ABD347330A8FBF40031337E2687635009A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4503262924C9889A88235F93462977DB30784B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22D35104D2EF302F388A7AFD17245FDE11583DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +263,7 @@ Andrey Malinov - Ocean Of Emotion (Chillout & Ambient mix) (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:1D9326D9AC9CA8B513399B261C42B6B55F82CEA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +297,7 @@ Paskal & Urban Absolutes - Lux (2013) [FLAC|Lossless|WEB-DL]<Deep House>
 ```bash
 magnet:?xt=urn:btih:71CEA0CE5D5E75AA7AC0CD63C5FE5A6DEA9605A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ VA - Vip Lounge 2014 [MP3|320 кб/с]<Chill Out, Lounge>
 ```bash
 magnet:?xt=urn:btih:BAC124C4069B0262DA5E98BBECB6E34EC72FAB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ PDFpen Pro для Mac OS - Программа для создания и ред�
 ```bash
 magnet:?xt=urn:btih:4D375F87418BF5A328EC4A22D09BFB454AF5D92B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +391,7 @@ VA - Secrets Of Oz (2013) [FLAC|Lossless|WEB-DL]<Darkpsy, Forest>
 ```bash
 magnet:?xt=urn:btih:CA8FD4E4F919CE33469CB27752BED4A9F12C7988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +417,7 @@ Discovery: Через червоточину с Морганом Фримено�
 ```bash
 magnet:?xt=urn:btih:0C2DCD2A342E801F252B5C5F9F0A1C61922142AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE8ED885FB44B74B11B40425C3792813898F19CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ VA - Sound of Ibiza (2013) [MP3|320 кб/с]<House, Club>
 ```bash
 magnet:?xt=urn:btih:42CBAE3741CF7CE55386040AA162EB3BE0184215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36137A7A9AE1280A3E0C494E754867F5C431A0E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ TextExpander – боец невидимого фронта …. Функция 
 ```bash
 magnet:?xt=urn:btih:69A77837F3FF1DE0F522159025965B633902A7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ Petar Dundov - Sailing Off The Grid (2013) [FLAC|Lossless|WEB-DL]<Techno, Minima
 ```bash
 magnet:?xt=urn:btih:382E5687F9A68A36EDA5D73ED0EA6D806FDA78DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +592,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:37E6B07E8D117F8722431DCF9CC1F27AE2C2271E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A5BDAC1816ABA0B178FB4070E7636BFFF8CDAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ The Karaganda Project - Holograms (2013) [FLAC|Lossless|WEB-DL]<Full-On>
 ```bash
 magnet:?xt=urn:btih:BEF28C806ED58B3AF39289B4E9876B9E17D237C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D4DB3F19213B7DABF8EBD4576F197C490F58446B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F47DD9C27DCD9CCAD40DD8652C36EBC8FCA83C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -765,8 +741,7 @@ Legion Of The Damned - Ravenous Plague (2014) [FLAC|Lossless]<Thrash/Death Metal
 ```bash
 magnet:?xt=urn:btih:7A95C29D57849CCDD1B3430D11292B9DBFBE4913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -792,8 +767,7 @@ Discovery: Через червоточину с Морганом Фримено�
 ```bash
 magnet:?xt=urn:btih:F72D3409CCB7D3FC380155B8166FE707D83D09D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

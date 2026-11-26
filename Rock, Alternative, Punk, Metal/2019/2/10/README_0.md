@@ -22,8 +22,7 @@ Phlebotomized - Immense Intense Suspense / Skycontact (2014) Compilation, Reissu
 ```bash
 magnet:?xt=urn:btih:EFE9551A8565E75C27DA08F34304E5577D4F4F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Windswept - The Onlooker (2019) [MP3|320 Kbps] <Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:6CB399845DAC6E0192FEDD4A90E31465EF528AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

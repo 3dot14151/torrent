@@ -19,8 +19,7 @@ Giana Sisters: Twisted Dreams - Rise of the Owlverlord - это захватыв
 ```bash
 magnet:?xt=urn:btih:5BA164B88F9ED44BA9F6F5EA27719FCF7AFD7799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u7) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:84815534D313BD34CB2DB8D5CDF5859F14985F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gardens Inc. 3: A Bridal Pursuit Collector's Edition / Все в сад 3. Св�
 ```bash
 magnet:?xt=urn:btih:0B359C99C13D4F091C731BFDD638A1CF14EFC788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 ```bash
 magnet:?xt=urn:btih:F895B3DEAC5C0CCF26E6D7D3403ABE69FFF43085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Shantae: Half-Genie Hero – четвёртая часть серии Shantae. �
 ```bash
 magnet:?xt=urn:btih:B1DB84487AA9F8454599C92944736E244BBDE4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Endless Legend - 4X-стратегия от создателей Endless Space. 
 ```bash
 magnet:?xt=urn:btih:1328868736D5CF058838BB87CD197157F2B196E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ UFO: Alien Invasion (с англ. «НЛО: Вторжение Иноплане
 ```bash
 magnet:?xt=urn:btih:440D3F50B6747282EE10FC0255CBA0F01A0CD2F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Road Fist — игра, стиль которой определен класс�
 ```bash
 magnet:?xt=urn:btih:78B92211CE2A6232C23AC52C1916C1C63BAF99B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Stars in Shadow это пошаговая научно-фантастическ�
 ```bash
 magnet:?xt=urn:btih:B6135A205253A441FAE0D65C98670CB0D6F45E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

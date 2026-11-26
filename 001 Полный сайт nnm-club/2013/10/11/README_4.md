@@ -27,8 +27,7 @@ VA - 100 Hits - 2000s (2008) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C632423074FF7BAB2B232A8B0103789E3DD9C6E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Handy Start Menu 1.91 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7DBA7ED3A1522570BD62123363535866B0C36711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Chromium - браузер с открытым исходным кодом, ко�
 ```bash
 magnet:?xt=urn:btih:0FF6BA9E09F731E4B5B41B2BF97A9548F5C73B89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Moby - Innocents (3CD Limited Edition) (2013) [MP3|320 кб/с]<Ambient, Downtem
 ```bash
 magnet:?xt=urn:btih:3092356B08E36ECB750FE63258AD3AF36BAABB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98B8DB8B79446DB1B7C73B71C700C04BC57347F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10C8139716F7BDE3AA9232E886A18D534110D015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A34B76A1ACC8F4251CD88FAA9131E4DDC67F7BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ VKMusic 4 - бесплатная программа, позволяющая ск
 ```bash
 magnet:?xt=urn:btih:01EB7909ABA2AC628F5D77A1E91BD39568D9D795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ Mit Henry Allen, Roy Eldrige, Ben Webster, Coleman Hawkins, Lester Young, Johnny
 ```bash
 magnet:?xt=urn:btih:CEDD3CEE1CC6F2D8281C27E0F0D5FB30BADBFE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:673E872E7322F77BDDF6D28F447A41A0225410AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ VKMusic - бесплатная программа, позволяющая ска
 ```bash
 magnet:?xt=urn:btih:E02CC28E4EECD777D98203625A8BF35560E4DDAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9096E51D4B435BED038A8AC43F598408D4B2551C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Comedy Woman. Новый формат. Выпуск №115 (2013.10.11) SATRip
 ```bash
 magnet:?xt=urn:btih:E20A14EA75747D7C68369D63A9508D1DF76B133C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ mininome - Cosm EP (2013) [ALAC|Lossless|WEB-DL]<Deep & Melodic Techno>
 ```bash
 magnet:?xt=urn:btih:8B88EFF318C4CB4E1FA60D3309D624BB10EA82DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +422,7 @@ Wallpapers - HD Wallpapers Mix part.1 (2013) | FedExe [JPEG]
 ```bash
 magnet:?xt=urn:btih:BA256E64EA270C2CEE421B6CC9ADF7AB1C4D2EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70E1A3BBF005B17F215906D3F9DB1ABFF984F257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +472,7 @@ mininome - Express (Single) (2013) [ALAC|Lossless|WEB-DL]<Deep & Melodic Techno>
 ```bash
 magnet:?xt=urn:btih:B3DF92B1CF3EC2AEB749C9681D91278EFCF2A126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +498,7 @@ mininome - Sunshine Avenue (2013) [ALAC|Lossless|WEB-DL]<Deep & Melodic Techno>
 ```bash
 magnet:?xt=urn:btih:44458026325F1D8D8A8D47E2521EE19182ADE0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ mininome - Effulgence / Lost Echo (2013) [ALAC|Lossless|WEB-DL]<Deep & Melodic T
 ```bash
 magnet:?xt=urn:btih:F7289F6B3B3D6A2D26B55F653D7629DCCA55D851
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ iDeer Blu-ray Player поддерживает все популярные вид
 ```bash
 magnet:?xt=urn:btih:FDE969422D980E777B6546488346BF6920EF802E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ mininome - Cosmonaut EP (2013) [ALAC|Lossless|WEB-DL]<Deep & Melodic Techno>
 ```bash
 magnet:?xt=urn:btih:7A7655D28DE90F1EB6B3A588B2D42FB3161FE0A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:752C8FA738F80B4C4B726FB76306AFC7093B38C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ Run-Command представляет собой маленький, портат
 ```bash
 magnet:?xt=urn:btih:1D1661CE115BAEDCE174974447C8261195FF146C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ VA - BIG Vocals 2013.1-3(2013) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:50866CBB8340D14C2D9C27A94EEF2C6FC5187C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4482BC64F79D264EA7A36D57DCEDFDB8282E8F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

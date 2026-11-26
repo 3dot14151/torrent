@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1394D5A58C43EC9083BB58ADE566C85C707C1E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.7/HotFix/dlc) Re
 ```bash
 magnet:?xt=urn:btih:DC0AFDC9A7998E444CC7140F8628836493A19F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Parrot - это всемирное сообщество разработчико
 ```bash
 magnet:?xt=urn:btih:8B2FE746D0859FDD07033E2D19D236996BA9D07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ C++ широко используется для разработки прогр
 ```bash
 magnet:?xt=urn:btih:9965641198F99554A3E5CE0711A0ACA0F309FE8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

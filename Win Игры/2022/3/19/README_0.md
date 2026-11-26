@@ -19,8 +19,7 @@ Tearstone 2: Thieves of the Heart (2022) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:917E66C846FDFB2E1C9F21EE906F3CF38C6992D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

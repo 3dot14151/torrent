@@ -20,8 +20,7 @@ Sphinx - таинственное приключение, наполненное
 ```bash
 magnet:?xt=urn:btih:6B2BEB1943AD42791FA77DF685DA430BB59EC653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

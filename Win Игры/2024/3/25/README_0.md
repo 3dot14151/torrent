@@ -19,8 +19,7 @@ Bloody Ink - это психологическая хоррор-игра от п
 ```bash
 magnet:?xt=urn:btih:B9EB367C1D1EC68343A0B69D2D384FAE43DB0A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Knight Witch скрещивает метроидванию с экшеном
 ```bash
 magnet:?xt=urn:btih:B7A7F7BA6981212B71B6DB2742FC382894B38803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sands of Aura (2021) [Ru/Multi] (1.01.25) License GOG
 ```bash
 magnet:?xt=urn:btih:2BA8A4D4BB822C523B40896865A4D51CCFB35D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Book of Demons это гибрид Hack & slash и карточной игры, 
 ```bash
 magnet:?xt=urn:btih:EAA9E99984B494A58E2B2C29B22D9BA4F2073605
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
 ```bash
 magnet:?xt=urn:btih:03E71EE8EF80318784B94EAAA980523C30F0EC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

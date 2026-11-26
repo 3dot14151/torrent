@@ -19,8 +19,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack Other s [Qua
 ```bash
 magnet:?xt=urn:btih:A7CCCEB9D10DA514504BF2CDC0C365281DF75B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack Other s [Inf
 ```bash
 magnet:?xt=urn:btih:649422F3A729A585D99B00522012BAA864C80912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack FitGirl [Inf
 ```bash
 magnet:?xt=urn:btih:4B9A3B9DFC8E8EA6A19E2AAA0A15584B2CD7CEDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack seleZen [Inf
 ```bash
 magnet:?xt=urn:btih:FCB2BD64BEB30642792F249DA806A36F3EF247BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Total War: Rome II (2) (2013) [Ru/Multi] (2.5.6/dlc) License GOG [Emperor Editio
 ```bash
 magnet:?xt=urn:btih:14AA73C4E18264EB40005501731AFBB463340827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ New Yankee 17: Jelly Chaos / Янки 17: Желейный хаос (2026) [Ru] 
 ```bash
 magnet:?xt=urn:btih:684794BA64D8CCB8C256722C581BD0D7D2F6C3C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack seleZen [Qua
 ```bash
 magnet:?xt=urn:btih:91D6016BD3FE3A04900606D4B1356DB4043E5327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

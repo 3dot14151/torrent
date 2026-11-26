@@ -22,8 +22,7 @@ Pagan Rites - Survival Of The Antichrist Nation (2020) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:41BCB6200207E19B426D2BEF73DECF93EA194550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Larry Sandman - More Than Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:257D338611145F2062C2CF0B0DEC66598CD78E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Oxidize - Stand up for the Masses (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:A7486B450BC0FB7AB170141713E802AE7A1E1A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Мы вышли из Кино 2. Трибьют Кино (2022) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:03A6BDEEF313CF6DB47A052EA6F696C701869C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

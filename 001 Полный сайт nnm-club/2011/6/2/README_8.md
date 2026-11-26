@@ -18,8 +18,7 @@ Half-Life (русск. физ. период полураспада) -Windows® 9
 ```bash
 magnet:?xt=urn:btih:211BD736096C00AC30562D5815E9234BE7E19501
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Multiboot USB Flash Drive - Windows XP with SP3 & Windows 7 with Sp1 Ultimate, E
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Mega WPI Postal Edition 2011.2 (02.06.2011) DVD-R DL [x86-x64]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

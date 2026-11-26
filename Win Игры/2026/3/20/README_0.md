@@ -19,8 +19,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack Wanterlu
 ```bash
 magnet:?xt=urn:btih:6E6A31F02C0C5F9D05D1E8CA0D3630D4006E40BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Scene Rune [Dig
 ```bash
 magnet:?xt=urn:btih:4537A17FA9351E71882AE1C0B7C7B4843CA5D546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack dixen18 
 ```bash
 magnet:?xt=urn:btih:26B5038AD54B929A339C04FFD442F8BEC8CFD350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Scouring - Стратегия в реальном времени новог�
 ```bash
 magnet:?xt=urn:btih:BCADB359D8B829E496B63B615DFECA19873788DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack seleZen [Master Ass
 ```bash
 magnet:?xt=urn:btih:02781BDAF9D7EA46C8A3F9E335C5A834694C290B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack FitGirl 
 ```bash
 magnet:?xt=urn:btih:6E7D9958DB65CB24B0AFB68E1FA653FF3C20D8B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tiny Isle - это уютная и тёплая игра в жанре симу�
 ```bash
 magnet:?xt=urn:btih:FE984960BDF42F584A58A28E04767F4D55479AD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Duke Grabowski, Mighty Swashbuckler - это рисованный приключ
 ```bash
 magnet:?xt=urn:btih:45FB628DDADA4BF1A30BE8BDF4FA27E705B03500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Towerborne - это захватывающий ролевой экшен-бро�
 ```bash
 magnet:?xt=urn:btih:C3CF6281E9813C84F5FEC6D50D741757C82B2C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dragon Quest I and II HD: 2D Remake (2025) [Multi] (1.0.2.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:30EBCAA3B75FC75B41F88B8B9F23780D408736D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Desynced (2023) [Ru/Multi] (1.0.17522) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A1091878A1E53B33971D44AA110CDA03622EF93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.16.134/dlc) Repack HardwareMining [Dig
 ```bash
 magnet:?xt=urn:btih:3D4C5652ABEA2F8E3D630F60F42A5A9763D024B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ FATAL FRAME II: Crimson Butterfly REMAKE (2026) [Multi] (1.02.01/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:CAA9EE8830A1A09278C071179A06BB78D36A069B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Diablo II (2): Resurrected (2021) [Ru/En] (3.0.91735/dlc) Repack Decepticon [Inf
 ```bash
 magnet:?xt=urn:btih:D7D2BAC0E2106060E5B60D30FC16D5D42A9BADAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ The Succession of Changing Kings ставит вас во главе корол�
 ```bash
 magnet:?xt=urn:btih:3A74B1D9D0862FD252D0FE141F79DE25720BDFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.45.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:61B62C027B7F319E9B86A3BE3E889BA39D6620B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ The Succession of Changing Kings (2026) [Ru/Multi] (4.3.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9D1315BCEC5C9211E602875C951C1B81E8CC24CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

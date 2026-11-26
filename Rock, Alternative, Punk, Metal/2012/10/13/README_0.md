@@ -25,8 +25,7 @@ Lost in Kiev - Motions (2012) [MP3|320 кб/с]<Post-Rock / Post-Metal>
 ```bash
 magnet:?xt=urn:btih:AC1E28DAD9CC11BD13CC33AB39B4B8D9C05B3E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Chris Rea - Auberge (1991) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9224B9C62F37F58495E5E14AB9EB31653615F5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Netherbird - 2 Albums + 5 EPs + 1 Single (2005-2011) [MP3|320]<Symphonic Black M
 ```bash
 magnet:?xt=urn:btih:3018C15B3FE10679747466314E7919739125160B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Rapture - 3 Albums (1999-2005) [MP3|320]<Melodic Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:78B38A5721BB1FC7366DD23700FCCD218F1BB418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ Carach Angren - 3 Albums + EP + Demo (2004-2012) [MP3|256-320]<Symphonic Black M
 ```bash
 magnet:?xt=urn:btih:5704D5C32DFA6EF03C1F3CD4D409328D7362D9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Ten Years After - 2 альбома (1971-1972) 2011-2012, Audio Fidelity [WavPac
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

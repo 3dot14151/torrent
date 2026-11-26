@@ -20,8 +20,7 @@ The Swapper рассказывает о приключениях астрона�
 ```bash
 magnet:?xt=urn:btih:ED16990B4B964BA002C8BAA8D53DB64229C881EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Shank (2010) [Ru] (1.3) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:5FFEF9FAB9BEE8415E03E1F8DB4991066C99B6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The King of Fighters превратилась в популярную (особ�
 ```bash
 magnet:?xt=urn:btih:49A68F860721629676C49E69C545C98B836B85AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shadow Tactics: Blades of the Shogun, основанная на скрытнос
 ```bash
 magnet:?xt=urn:btih:1CCB6D1364075943BD50281E7CC94D793D8A548A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Panzar – бесплатная клиентская онлайн-игра в ф
 ```bash
 magnet:?xt=urn:btih:BF17D16523013800E68567E189A03DA9DDE15DBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B083865E502DECCD4FFC95B38F55C5237040BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Shadow Tactics: Blades of the Shogun, основанная на скрытнос
 ```bash
 magnet:?xt=urn:btih:4D69E1C1F72E2E6687C44D82B51213109825176F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Wreckfest (2018) [Ru/Multi] (20181221) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4B0651947550256E4F78A966DC5C5A3CDD607552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

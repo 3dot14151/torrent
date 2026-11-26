@@ -20,8 +20,7 @@ MultiCopy 2.1.0b Final + Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:27EEE07B20346FE5FBE51CCE2870D2203AE400BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

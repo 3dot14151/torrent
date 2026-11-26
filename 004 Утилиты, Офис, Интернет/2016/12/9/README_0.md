@@ -19,8 +19,7 @@ Microsoft Product Keys позволит вам получить ключи дл�
 ```bash
 magnet:?xt=urn:btih:5AD9C63955CC1698D04A9B628433ED239A8510F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Intel® Driver Update Utility позволяет пользователям пр
 ```bash
 magnet:?xt=urn:btih:4032CC00858EB076F650CB55DA8334DBD5D971B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

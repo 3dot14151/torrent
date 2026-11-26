@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4F9345ED6D1820FAFBF5DDA0405A47F50336A6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Дискотека Казанова Старые Песни По Новом
 ```bash
 magnet:?xt=urn:btih:C1B6B206A7E35A19D7873838CD24B52B679DA3D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19A83E96C9E7305514970C6A31C0B76CE3A1B567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:825FBDF30D99E5F5713737730AD127B15B8D2FAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Hitman GO: Definitive Edition - переиздание игры Hitman GO, ко�
 ```bash
 magnet:?xt=urn:btih:7CC009FDD2BC306CF8BA2B7EBC467C6849D910D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Assassin's Creed: Syndicate / Assassin's Creed: Синдикат (2015) [Ru] (1.
 ```bash
 magnet:?xt=urn:btih:1E47A9090BD64C2C97CAC6880D5C1244C004B438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Homeworld: Deserts of Kharak - стратегия в реальном време
 ```bash
 magnet:?xt=urn:btih:AD79662FDC870CC5BFE627D605D2D3F41629FBDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DF64026E9CBE77631A93572EFC5C3F00BBC367A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ God of War III (2010) [PS3] [EUR] 3.41/3.55/4.21+ [Repack / 1.03 / ALL DLC] [Ru/
 ```bash
 magnet:?xt=urn:btih:CCCDBCC40B648AB45A28E2E83A31D4CADAC4E483
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ Microsoft Windows 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy 02.2
 ```bash
 magnet:?xt=urn:btih:38D08CCAC5D957F62269059166D0EFBBDEB2F2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B367D30B272C379DDCBDC4BE0932DF92F057B8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ OS X 10.11.1 Installer USB for Win [BDU]
 ```bash
 magnet:?xt=urn:btih:F353C16CF01E29B83309B5F02BE9C124F0C579DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7F6BF8BBDB62329146AE95031F3E8EBFFC03CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ DOOM (ранее известна как Doom 4) - компьютерная иг
 ```bash
 magnet:?xt=urn:btih:FCD30A9AC2EDC99785F9B7A1CEBC2FA3E17B3E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ A Better Camera - замечательное приложение для анд�
 ```bash
 magnet:?xt=urn:btih:D962C14D5D1ED017DA0887B2E3223E7054B4A177
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

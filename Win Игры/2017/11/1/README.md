@@ -19,8 +19,7 @@ Mystery Tales 8: Dangerous Desires / Загадочные истории 8: Оп
 ```bash
 magnet:?xt=urn:btih:C6B250E685129FA8DA15B0E4167F6A71AAC66C6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cognition - это "эпизодический криминальный трил
 ```bash
 magnet:?xt=urn:btih:07D62E855BD4891509DF23831BEAF00F79AFE3FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

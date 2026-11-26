@@ -19,8 +19,7 @@ Afterparty (2020) [Ru/Multi] (1.4.26f2) License GOG
 ```bash
 magnet:?xt=urn:btih:722C25482C6B4B825472A4A57B91FD3FCA665253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

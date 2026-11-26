@@ -21,8 +21,7 @@ Colormania - это продвинутая утилита для выбора ц
 ```bash
 magnet:?xt=urn:btih:1DD5ECA1605784000582D49724D414E7DC8401E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

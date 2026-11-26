@@ -20,8 +20,7 @@ AutoPlay Menu Builder Business 8.0 build 2459 (DC 21.08.19) RePack (& Portable) 
 ```bash
 magnet:?xt=urn:btih:580A4CF4D6EA0D85531CC0DDD651F112DD0025F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Anvide Таймер выключения 2.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:3F7843D9AF5B2B8BB54A01FD64E6AAB2A6B1D4D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:5A9F97564569691966CF71C31B734D9782D9BF25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

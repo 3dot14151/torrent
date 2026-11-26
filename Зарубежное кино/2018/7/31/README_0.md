@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:BE1D35CF34D54DD82261C14B893BDFFE421738FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D4A7AC21ECC1FD0F8489A1E369A8240D79DBF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) UHD BDRemux [
 ```bash
 magnet:?xt=urn:btih:A0B97922109C231E12037B9E8E8200B8FC2A440A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

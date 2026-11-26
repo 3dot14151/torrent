@@ -19,8 +19,7 @@ Highrise City совмещает в себе элементы как строи�
 ```bash
 magnet:?xt=urn:btih:78A2B07C90028D2069F83B8C14EE60A3EDF0A4A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E3CD0E4DAAF8C9D4943C65FFEF50DA11139933F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mafia III (3) (2020) [Ru/Multi] (1.0.1/dlc) Repack dixen18 [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:28377E70CF9D8163B8CE02BAE59A77DDD8BB61F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5b/dlc) License GOG [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:6F62A8BBCB3258D3131B1B56417C01E182EFBF94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MY DESTINY GIRLS (2024) [Multi] (20240417) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:09AD4A64731D095E861D5726347B2F13274CDE0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mafia II (2) (2020) [Ru/En] (1.0u1/dlc) Repack dixen18 [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:544F106C9114DD18EB6C231C38114292BF17C1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mafia (2020) [Ru/Multi] (1.0.3/dlc) Repack dixen18 [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:DC2556A068998339CDF4CD083545F9D89C8FF3FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Coromon – ролевое инди-приключение про прируче
 ```bash
 magnet:?xt=urn:btih:684B0045CA126D1073118A2BFE9754B971D55586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Builders of Greece (2024) [Ru/Multi] (14640143) Repack Wagner [Early Access]
 ```bash
 magnet:?xt=urn:btih:7DE9121E64AD38757F471DD0C1627DCD96D9DA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Inquisitor - это сюжетная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:79CB4CAECD89876139A6B84036C48EC9C5CA3F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Left 4 Dead 2 (2009) [Ru/Multi] (2.2.3.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:B9C5CD09C307AC4E8C4C8C3252FCC091A6A2C94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Farm Manager 2021 – игровой проект, который вновь г�
 ```bash
 magnet:?xt=urn:btih:C3B344F48EC26411107C65B32C92646D7FFD19EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.0.23) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:DE79D51882BB259CD42480BE038B82FA594CC5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (0.40570.441/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:DFC85E849FFEF266A402E163137A85EFD9D57D0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Slavania - двумерная метроидвания, включающая в 
 ```bash
 magnet:?xt=urn:btih:B4F1A40310A07D66D31448A405E1F29B95F14491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:90AF71BEA709E09392ADFAB57399AD0BB102AA8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

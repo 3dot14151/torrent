@@ -19,8 +19,7 @@ IceCream Ebook Reader Pro 6.52 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2957F0135AF1F4E3D003B7616188A99126876414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resource Hacker - программа для просмотра, извлечен
 ```bash
 magnet:?xt=urn:btih:6EFA621503583080A1284851E481C80DBA357155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

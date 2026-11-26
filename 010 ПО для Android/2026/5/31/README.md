@@ -19,8 +19,7 @@ Lift 0.2.40 Mod by Enter [Ru]
 ```bash
 magnet:?xt=urn:btih:E6F020A6833F69D925693CC6FE9428FFD0281CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

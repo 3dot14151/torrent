@@ -19,8 +19,7 @@ Arch Linux - это независимо разрабатываемый x86-64 �
 ```bash
 magnet:?xt=urn:btih:A9CD8C3B9DCAD4785DB47908AD63D43694432CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

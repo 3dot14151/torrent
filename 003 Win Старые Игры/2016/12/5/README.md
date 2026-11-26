@@ -19,8 +19,7 @@ Original War (2001) [Ru/Multi] (1.10b) License GOG
 ```bash
 magnet:?xt=urn:btih:14A4F9F970FBDAA641CEB658367B9F0DA5A19B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

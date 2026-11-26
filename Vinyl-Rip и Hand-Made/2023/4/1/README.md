@@ -22,8 +22,7 @@ Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electr
 ```bash
 magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Wild Kinda Love 3:33(   Читать дальше...   )Жанр: Synth-PopП
 ```bash
 magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4  Наваждение 3:32(   Читать дальше...   )Жанр: Ambie
 ```bash
 magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Shamdo - серия медитаций и гипнотических индук�
 ```bash
 magnet:?xt=urn:btih:B3D61F77120FE13846AD26F95C0F0C5004D96271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:147E56D252893A3D32C4C42873245FC7986F9F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Firewall Security AI - No Root 2.3.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EBEDED80DA4C458DC17C35A6591701127FE1E986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Anti Spy Detector - Spyware 5.1.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DAB22C837801D4864D8F8A48A22C608B553FA90A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C59E855F75D5768934B597703E57DC216BB68CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

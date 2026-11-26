@@ -19,8 +19,7 @@ Shadow Labyrinth - это смесь классического платформ
 ```bash
 magnet:?xt=urn:btih:C7191CDFD50DA54A2C9C1EF99C8F670189E4E015
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 ```bash
 magnet:?xt=urn:btih:13C6C7AFE8509B12A302A6EECEEA9D96D6844974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:319E1B84A9029D57856C4367A7993E8C8C13FD00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765-13132) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C3CBC428F06E009717C0295EC2F24591996EFE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Intravenous 2 - это уникальное сочетание тактичес�
 ```bash
 magnet:?xt=urn:btih:DB1B953595975C465067CD894016807C21157EEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dark Envoy объединяет классическую механику RPG с
 ```bash
 magnet:?xt=urn:btih:7EC7EB4C71AD6FF90A0B35480FAC0C39BB8EF68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 ```bash
 magnet:?xt=urn:btih:DFA7A25DC178A1DF50A1A8C455E097B067F6FB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ FOUNDRY - строительный симулятор с видом от пер�
 ```bash
 magnet:?xt=urn:btih:C69EEC5FF58DA167778857C8D175FF7137899ADF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:144ABB2F6437B2F2BA22D1CC449C9074E87366D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.2.0) Repack Let'sРlay [Supporter Bun
 ```bash
 magnet:?xt=urn:btih:2F8213373EC9595836255774B4FF0EE207405B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Becastled – инди-стратегия в реальном времени, ч
 ```bash
 magnet:?xt=urn:btih:FAECF7F69348ACB84B45C9B71DD3D57E8D3CC326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:178A61B20F9FA02D9CD4C5A6E7F0B970780A66F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Vlad Circus: Curse of Asmodeus (2025) [Ru/Multi] (1.6.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5B099136617A556E1A305A29E8DF106534E0ED95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.3.0/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:B268012280AF655BACA9CC940035C194567961C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 ```bash
 magnet:?xt=urn:btih:12E67FDF89F4D86ADF4A4BA9005F0EC6C90BFBCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:125C84678784D9E843CFDAA61A9824ACF4D4CFFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EE6C6A8AF390A8900E051524C6BA4989A9874E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Grim Chronicles: Superior Sorcery / Мрачные летописи: Высше�
 ```bash
 magnet:?xt=urn:btih:1F0597532A19D23245EDBDFC219283DCD54656F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ The Drifter (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:088B7099A9F13B4BF4721A48838B33B48FDAAB48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

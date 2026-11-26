@@ -19,8 +19,7 @@ HdO Adventure: A Girl in the City (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:8E6340D725F54CC91A517F0FF6B9FB9168FEEC8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Garage Inc (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:035F763091D171844D3F992A82E5E49260FBE2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stray Souls: Dollhouse Story Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:F503712EDD32ECA3A9196FA7C2B6841258121943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Virtual Villagers: New Believers (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:569454D86B73929B894ED200DA60B28313A7A8FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Margrave Manor 2: Lost Ship / Тайны Маргрейвов. Пропавши�
 ```bash
 magnet:?xt=urn:btih:E97195CB3BC86A86764E0FBD40D11586E76D55E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Treasure Seekers: The Time Has Come / Легенды 4. Время пришло 
 ```bash
 magnet:?xt=urn:btih:8E07CF6CF5567CBF4A9894F201EC7C2D5759F1B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Shadow Wolf Mysteries: Curse of the Full Moon Collector's Edition / Тень в�
 ```bash
 magnet:?xt=urn:btih:CFE2EBECAEE54BF7024A1604D75BF85856958287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

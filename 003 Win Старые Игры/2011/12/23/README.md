@@ -19,8 +19,7 @@ Bumper Wars [Ru] (RePack) 2002 | Pilotus
 ```bash
 magnet:?xt=urn:btih:9BD5077F27EBD241EC69694A6104DF1DFECD31C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

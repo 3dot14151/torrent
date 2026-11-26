@@ -21,8 +21,7 @@ Rider (   Читать дальше...   )Язык интерфейса: Анг
 ```bash
 magnet:?xt=urn:btih:494E7EE5FF65F714C943EB8E449EB4938B52BD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

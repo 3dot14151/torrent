@@ -22,8 +22,7 @@ Inborn Suffering - Pale Grey Monochrome (2025) [FLAC|Lossless|image + .cue] <Doo
 ```bash
 magnet:?xt=urn:btih:0782D5D8DDB2ED51D5E7A19D4674A5F86983840F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

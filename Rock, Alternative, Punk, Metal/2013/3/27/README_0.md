@@ -28,8 +28,7 @@ Suicidal Tendencies - 13 (2013) [MP3|320 кб/с]<Thrash Metal/Crossover>
 ```bash
 magnet:?xt=urn:btih:67DB850B2423B3F14793ADAB418961A85B6377F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Wise Guyz - Let's Rock The Floor (2013) [MP3|320 кб/с]<Rockabilly, Rock &
 ```bash
 magnet:?xt=urn:btih:949D32A41B13163E2807EADDE0B980E300FD2978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Killswitch Engage - Disarm The Descent (2013) [MP3|192 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:FFAE6C9C4ECB46D797C9AB07A850B77FEEE451C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Raunchy - 5 альбомов (2001-2010) Дискография [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:9B46971BFE4670707D8A2CE61E9F230AED20F368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ The Hillbilly Moon Explosion - Damn Right Honey! (2013) [MP3|256 кб/с]<Rockab
 ```bash
 magnet:?xt=urn:btih:30E9DBEB1DFAD2766E06727891633061FAAA33B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Avantasia - The Mystery Of Time (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:349B330490D8F9DCF33F9148565474816B5F5BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

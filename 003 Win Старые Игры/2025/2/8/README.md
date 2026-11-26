@@ -19,8 +19,7 @@ Serious Sam 2 - продолжение легендарного шутера с 
 ```bash
 magnet:?xt=urn:btih:D21DA428E0E713B4D6407E892C6114213601B9D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

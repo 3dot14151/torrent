@@ -19,8 +19,7 @@ Airborne Kingdom (2022) [Multi] (1.10.3) License GOG
 ```bash
 magnet:?xt=urn:btih:258ECE59FCFB63586D97C56F8E370BE0E3F8BB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.1.0) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8E6959A73897F31412CDB2612E0E97DF764E9F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unsolved Case 3: The Scarlet Hyacinth / Нераскрытое дело 3: Ал�
 ```bash
 magnet:?xt=urn:btih:9D198B9AA8467C4971434B92DF93C8719C9554B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Time Loader - игра-головоломка, пропитанная носта
 ```bash
 magnet:?xt=urn:btih:20A844A26C5F2AF389AB57F7D0EE7872EB6BCCDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sky Haven Tycoon - Airport Simulator - симулятор аэропорта, в
 ```bash
 magnet:?xt=urn:btih:A2C4DA1DF2CF703D8262A1B342771D3EB35B4B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Battle Axe (2021) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:BFBD227FF293D734E48AA7665FC40FD0E083C095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Radio Commander – стратегия в режиме реального вре
 ```bash
 magnet:?xt=urn:btih:A33E3AC532DB3E7E6E8F11C407624EBFC899CD4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (7.61/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:6564F1CE8C84BC8EE687938567EAFC1C65904E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Fall of Porcupine (2023) [Multi] (1.1.12) License GOG
 ```bash
 magnet:?xt=urn:btih:935156280F2A072D214D3BDA311736CE2D64A33C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

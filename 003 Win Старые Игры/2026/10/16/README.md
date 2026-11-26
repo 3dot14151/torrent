@@ -19,8 +19,7 @@ Moonlighter 2: The Endless Vault (2025) [Ru/Multi] (1.0.42.3/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A9281751EB2AF4860F7113B4DC5B3EAAACED97C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

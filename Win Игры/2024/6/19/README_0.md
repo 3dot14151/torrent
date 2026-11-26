@@ -19,8 +19,7 @@ HORROR TALES: The Beggar бросает вас с головой в разруш
 ```bash
 magnet:?xt=urn:btih:5FE7CBD2DA8C60D61F21095324F07F33B09907DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fix it - The Handyman Simulator сделает вас мастером, кото
 ```bash
 magnet:?xt=urn:btih:52DEF0B7E825F8AB391085BCF5AEF623145E8C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DNF Duel является ответвлением корейской франш
 ```bash
 magnet:?xt=urn:btih:F89415011638395B8930B865EFBEFF65CE845DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Night is Grey наполнена мрачной атмосферой тем�
 ```bash
 magnet:?xt=urn:btih:8507DE5220A4F6B9824AFFC302B47E51060518BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

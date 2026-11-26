@@ -22,8 +22,7 @@ Jesse Winchester - Third Down, 110 To Go (1972) Remastered, 2006, Wounded Bird R
 ```bash
 magnet:?xt=urn:btih:D718A54390D6A8E25C3F7F24B51625A81AF86CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Pistol Fire - Flagrant Act of Bliss (2026) [FLAC 24/48|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:3394E61CD04291C673AEBB5C23B8EC68D76CC747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Black Stone Cherry - Celebrate (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 ```bash
 magnet:?xt=urn:btih:5DBCB449F93A18307C58D363E36D8CC3FE522DF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Close Enemies - Close Enemies (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:9EB6F17B7DBEBAB033E98D4DA1CFE886C931D2BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Looking Glass - Brandy (You're A Fine Girl) (1997) Compilation [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:D13C49B15B7B37B8B29A3BD2A4E8470855F24B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

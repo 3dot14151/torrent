@@ -28,8 +28,7 @@ Crow's Flight - The Calm Before (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:A8203798D80431B71B7D1BD57F3D70F16912A98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - A Tribute To The Creatures Of The Night (2003) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Jimmy Page and Friends (2006) [MP3|320 kbps]<Pock,Blues>
 ```bash
 magnet:?xt=urn:btih:32B8A15ABABFDEC153A742F6E127E95FDE0B10FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

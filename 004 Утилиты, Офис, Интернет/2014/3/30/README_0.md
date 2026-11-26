@@ -20,8 +20,7 @@ ScreenCapture 2.3.1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:3EDABEA6327A7E01081096F87CE393EBEBA6E749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00BC34C6C92231EEDC31D274990DC629CAF626F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

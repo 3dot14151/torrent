@@ -21,8 +21,7 @@ Clonezilla – многофункциональная загрузочная п�
 ```bash
 magnet:?xt=urn:btih:3F03F07A18258F10387EDA8CE2C4D94F76FEFB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Manjaro Linux – быстрая, дружественная операцион�
 ```bash
 magnet:?xt=urn:btih:7B1AAE23377BD89D0514A78FB7BEDEDDE15513B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Debian GNU/Linux – операционная система на базе Linux
 ```bash
 magnet:?xt=urn:btih:181A191C873AD1C0D0BC0629FA230A2C08FF7D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

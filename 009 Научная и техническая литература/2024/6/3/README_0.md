@@ -21,8 +21,7 @@ The types of games include: lateral thinking (   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:61C80478D7D798F2CB850E7FA06492F755F5B989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ The book?s ESL lessons connect (   Читать дальше...   )Жанр: у
 ```bash
 magnet:?xt=urn:btih:C3FF2ACD96DAF3806705AB0DD56054432CD05927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22C0D618ABAB0B3EA0FC282FBF93797709B2247D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ V.A. Prog Rocks! - Volume Four (2CD) (2014) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:7491457C73EC8C459F584059AEA1227F2AC6098C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Robert Plant & The Sensational Space Shifters - Lullaby and… The Ceaseless Roa
 ```bash
 magnet:?xt=urn:btih:533C59F9C8A34B357FCE75A32E8D84749168A6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Robert Plant & The Sensational Space Shifters - Lullaby аnd... The Ceaseless Ro
 ```bash
 magnet:?xt=urn:btih:6B1BD0C2FCA76EBFB8A31B7BA642B7625CAFECBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

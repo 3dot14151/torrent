@@ -28,8 +28,7 @@ Mortician - Mortician (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8D7C2E051A9FAD3599A81B487C2014FE20002014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Cosmograf - When Age Has Done It's Duty (2011) [FLAC|Lossless]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Kate Bush - 50 Words For Snow (2011) [MP3|320 kbps]<Alternative / Art Rock>
 ```bash
 magnet:?xt=urn:btih:E9B02637759033488DC7D0102F1D829852E431B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Myrath - Tales Of The Sands (North American Edition) (2011) [FLAC|Lossless]<Prog
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Kiske / Somerville - Kiske-Somerville (Japanese Edition) (2010) [FLAC|Lossless]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Evil Not Alone - Махаон (2011) [MP3|320 kbps]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:5AFE5ED00C372AD00058DC38D3694CEDA39C4D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ EX-Сектор Газа - 4 альбома (2001-2006) [MP3|320 kbps]<Punk Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ SystemRescue - восстановительный диск, основанный
 ```bash
 magnet:?xt=urn:btih:EBD94367D527F4AAF2996AFD32910C6D3C507BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

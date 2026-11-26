@@ -19,8 +19,7 @@ Holiday Island создана в стиле Сим-Сити, но вместо �
 ```bash
 magnet:?xt=urn:btih:0F3B1C9E96D1B5E514253C801BDF9522B9AF26E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reunion [En] (RePack) 1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:105B2927AB7B8C9A9E2F07E1CA735D8E7B50E1A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ JA в особых представлениях не нуждается - игр
 ```bash
 magnet:?xt=urn:btih:F68B91CAA464BBACCD77C8AEBBA43B1A19C85303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ MDK2 снова вышла на PC. На этот раз улучшения ко
 ```bash
 magnet:?xt=urn:btih:EE707378649AD6816DDB5E5012B09461AC9FF644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

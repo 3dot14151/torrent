@@ -27,8 +27,7 @@ Naglfar - Teras (2012) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Nevergreen - Karmageddon (2012) [MP3|320 кб/с]<Doom Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:E53E226B9F7A89BFD49C25D61D9B48227F796603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - The British Invasion - History Of British Rock (1991) Box Set 9 CD [FLAC|Lo
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38566BECBF6EFCD59993440D9ECC7E1DE4297479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Anathema - Weather Systems (2012) [MP3|320 kbps]<Atmospheric Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:84106F7EC7BBDB3151B34C6DAB266AC6B352398A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:D48A851BDA6DC491F240D4C0A4BBEB41431BF285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Suzi Quatro - Rock Hard (1980) [MP3|320 кб/с]<glam rock>
 ```bash
 magnet:?xt=urn:btih:0B104AFCD23CDDFD140B9658D9513F463579CCA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Leningrad Cowboys - Zombies Paradise (2006) [FLAC|Lossless]<Rock, Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Gerry Rafferty - The Collection (2007) [MP3|320 кб/с]<Classic rock>
 ```bash
 magnet:?xt=urn:btih:E9BE35BBE5FBA6A929B348017B850E5D46726201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

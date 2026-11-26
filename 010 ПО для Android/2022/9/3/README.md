@@ -19,8 +19,7 @@ Human Anatomy Atlas 2023 v2023.0.09 [En]
 ```bash
 magnet:?xt=urn:btih:DC33895AFF2265F0810238D1CD35AA1937241137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

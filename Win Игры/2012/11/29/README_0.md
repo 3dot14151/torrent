@@ -19,8 +19,7 @@ Abyss: The Wraiths of Eden / Бездна. Призраки Эдема [Ru] (P) 
 ```bash
 magnet:?xt=urn:btih:FDD27E0FE1681C365346C70C5B58E42B87346226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Shadows - Army of Evil [En] (L) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:B852788CF5F98E2B56F06CC6B842C6B66203BCF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первое Пр�
 ```bash
 magnet:?xt=urn:btih:DC491991CD5E80B45FFF10B808E3D67838B52315
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

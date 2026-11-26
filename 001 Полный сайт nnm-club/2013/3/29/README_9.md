@@ -21,8 +21,7 @@ FIFA Manager 13 [Ru/En] (RePack/1.03) 2012 l R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:3C9DBC936C0DD43D539EA39C3771385D662A20AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Element 3D - новый плагин для визуализации 3D-объе
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6868B794030827C48A2368E99D597751D94DF886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

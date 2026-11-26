@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2DA44DF0B04BFD99AC5C54693C254ABCCB3FF741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Part 1 (Discoteka):
 ```bash
 magnet:?xt=urn:btih:1EEA4ED4E747ABBEECECB39948906A2AC4FDF16A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACF2C16F6CE5278E438FC2FA1B9162C9D2F3A588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0144B966D83C5E5F250013FEA1AC47AC7C077802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Dead Space 2 (2011) [Ru/En] (1.1/upd1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CAE690DCD2A4B330196DC1D8B8FAF00BF9A0DFEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Call of Duty: Infinite Warfare (2016) [Ru] (6.3.12226785/dlc) Rip xatab [Digital
 ```bash
 magnet:?xt=urn:btih:640B759B50B3944DAEBC170936D569692A2CECEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

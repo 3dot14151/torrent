@@ -28,8 +28,7 @@ Annihilator - The Best Of Annihilator (2004) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:CE36403F1704AAB1E1FCD55B2C258322D3EE398B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Tacere - разноплановая symphonic metal группа из Финля
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

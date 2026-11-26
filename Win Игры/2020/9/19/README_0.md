@@ -19,8 +19,7 @@ Dead Age 2 - это уникальный сплав из выживания, у�
 ```bash
 magnet:?xt=urn:btih:BD64894539A11010E0FCA4159A8819D883345B97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LOST EMBER (2019) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:26FA37A339E64E75084FA62B2DB121ED51E3A608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.182.64713/dlc) Repack xatab [Bear H
 ```bash
 magnet:?xt=urn:btih:24820BA5FBBB50C332282370E14D8C88E373F9F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

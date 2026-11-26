@@ -19,8 +19,7 @@ Nexus: The Jupiter Incident - это культовая научно-фанта�
 ```bash
 magnet:?xt=urn:btih:D8DCBAD0D92115A390FA9297A46751577CEFCE9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ FlatOut 2 — это аркадный автосимулятор с акцент
 ```bash
 magnet:?xt=urn:btih:4FE321F247CBD5A54817B6DDE63D31CAF337C603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

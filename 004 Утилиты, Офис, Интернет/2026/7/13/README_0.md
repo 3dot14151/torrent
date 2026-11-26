@@ -19,8 +19,7 @@ Coolutils Total PDF Converter 6.5.0.183 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C1C1E51E46EF3FA555ECBA4F67DF4187AA05CA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

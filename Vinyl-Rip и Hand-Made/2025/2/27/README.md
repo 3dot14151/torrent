@@ -22,8 +22,7 @@ Staind — американская метал-группа из города С
 ```bash
 magnet:?xt=urn:btih:6867D2B0DA72A7759B6C1321B93F57D38B21BC0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Brainstorm — немецкая пауэр-метал-группа. Создан
 ```bash
 magnet:?xt=urn:btih:638AE89B856511491E3A4D32058B37398926C717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A Day to Remember (ADTR) — американская пост-хардкор г
 ```bash
 magnet:?xt=urn:btih:21600B84F1F1F1AAE937F53CA5930EA643736D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

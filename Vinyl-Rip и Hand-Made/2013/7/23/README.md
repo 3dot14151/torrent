@@ -28,8 +28,7 @@ Zaz - Recto verso (2013) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Chanson Francaise>
 ```bash
 magnet:?xt=urn:btih:9476165F63532C30558A90BBA0F74D4290730D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

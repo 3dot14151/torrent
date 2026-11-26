@@ -20,8 +20,7 @@ Altus поддерживает темы, несколько учётных за�
 ```bash
 magnet:?xt=urn:btih:D22C82559CD6316F6DD4DFAE9F3DBD218079E526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Xreveal работает в фоновом режиме, автоматичес�
 ```bash
 magnet:?xt=urn:btih:51B4816026A32C90487AF381FC9B44D3476D40CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

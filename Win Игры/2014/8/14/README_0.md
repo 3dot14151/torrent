@@ -19,8 +19,7 @@ Darkwood - это компьютерная игра в жанре horror, сов
 ```bash
 magnet:?xt=urn:btih:CF22F22D243AB77F923AB43D3B2EDB2A6FFBDA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Heroes of Steel: Tactics RPG (2014) [En] (2.2.11/dlc) Repack Twisted EndZ [Episo
 ```bash
 magnet:?xt=urn:btih:10AC9F0670202F5BAD2F6C48C87B4E73929E9534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Dex - это двухмерный киберпанковский экшен с �
 ```bash
 magnet:?xt=urn:btih:680E33D1D88A46E3FB79D1E1387F36E78FF95FFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

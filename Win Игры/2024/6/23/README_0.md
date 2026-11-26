@@ -19,8 +19,7 @@ Gargoyles Remastered - это искусное возрождение класс
 ```bash
 magnet:?xt=urn:btih:A72BC923AE0D45DBD68796C32AE2551500AD173E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Champion Shift – скорее берите разношерстных мифи
 ```bash
 magnet:?xt=urn:btih:1CA35FBF47140C5AB231C3B1788A78A0DDA150B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Scene
 ```bash
 magnet:?xt=urn:btih:3EF02AD7A7B23920A47CE93BAD2C7742D02471DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Crab God – это увлекательная подводная крабост
 ```bash
 magnet:?xt=urn:btih:86D29D96F5D837C7B0E8076E84A23376AB51F710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Invisible Hand (2021) [En] (1.2.3) License GOG [Deep Pockets Edition]
 ```bash
 magnet:?xt=urn:btih:A03DC771756C58CE3574CDAB73E5D80CA5BA56D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Kona II (2): Brume (2023) [Ru/Multi] (2023-11-24) License GOG
 ```bash
 magnet:?xt=urn:btih:1F3D1EEEB6B217D68B97208FBA89C2CA5EF42B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ El Dorado: The Golden City Builder – это увлекательная стр�
 ```bash
 magnet:?xt=urn:btih:95ED1F7526B9B2633A7A8F652945D61ABFFC4C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00D71142EB93E6675756167CFBAF4C3DB7EB0CE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Nowhere Near (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DC8450E22EDBD96CF4986049BCFA4EA6073E4FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Tower Song - это пошаговая ролевая игра, история �
 ```bash
 magnet:?xt=urn:btih:01CF92E249B73F4F731F3AC3159602DDA9C14002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Forest Ranger Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:283E96EE889F7CFEBA0EB8E655CC027569C9B22A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Whispered Secrets 15: Cruise of Misfortune / Нашептанные секрет
 ```bash
 magnet:?xt=urn:btih:BE2FF5C22D0237FB63CA2F7C8E1B0E63ABDDF67B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Patti Hattu! - Cosmic Revolt (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9A88ED5C022901535082737711085196F43FE3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

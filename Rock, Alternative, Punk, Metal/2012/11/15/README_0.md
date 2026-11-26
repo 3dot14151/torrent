@@ -19,8 +19,7 @@ Sienna Skies - 2 альбома и 1 Ep (2007-2012) [MP3|224-320 кб/с]<Experi
 ```bash
 magnet:?xt=urn:btih:BE5179FF4D58EBA1AD04443A47EB0CE5882AA1B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Hacktivist - Hacktivist [EP] (2012) [MP3|320 кб/с]<Math metal / Rapcore / Dje
 ```bash
 magnet:?xt=urn:btih:035A216B33066BEF3D7CC06EADA8D51699E492A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ CD1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ As I Lay Dying - Awakened (2012) [FLAC|Lossless]<Christian Metalcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Doro - Raise Your Fist (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ React - превосходно документированная библиот
 ```bash
 magnet:?xt=urn:btih:F836375CEE0B7125917AB8089996103C3E0902E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:933B85E798B4CCBF0AEE93B0DE0E2E808D2958C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Hakumei to Mikochi / Хакумэй и Микоти [2018, TV, 12 ep + OVA] WEB-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

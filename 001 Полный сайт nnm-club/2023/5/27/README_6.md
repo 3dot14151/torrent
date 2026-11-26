@@ -20,8 +20,7 @@ SequoiaView - очень полезная программа, которая в�
 ```bash
 magnet:?xt=urn:btih:8FEB77D23A39587CE8E2347E1858FE4E70A7E48D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

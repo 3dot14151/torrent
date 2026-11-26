@@ -19,8 +19,7 @@ The Muller-Powell Principle погружает в межпространстве
 ```bash
 magnet:?xt=urn:btih:94692BEF0AEED2FD9ED985B88EC1EAD86DEBF961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Graveyard Keeper 2 (2026) [Ru/Multi] (1.004.2) License GOG
 ```bash
 magnet:?xt=urn:btih:6A1A74D8FF4347FBE68C948D9505D2DDC627A986
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ragnar (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5CE631BAF9B1370F4BFE0AE838C49565FA3CADFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Forza Horizon 6 (2026) [Ru/Multi] (440.853/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:DB87466ED738AFEE2502F35DDDCA9709373580C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Creator Chronicles (2026) [Ru/Multi] (1.01) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:482D5AACF88A958E2E9654F3C3CACE3DE33C44B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tenebris: Terra Incognita – это сложная пошаговая RPG в с
 ```bash
 magnet:?xt=urn:btih:55287E3646537170B93522221538AE3819B8BE2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mindseye (2025) [Ru/Multi] (1527350/8332038/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DFFFC3CCB4C5B317A17022B25410ABB39DFB99A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Persona 3 Reload (2024) [Ru/Multi] (Build 22672075/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6AC244114191C48C14D8D982885ED926CE749D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Graveyard Keeper 2 (2026) [Ru/Multi] (1.004.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F7241DF914D006CCECE067C9B0D12B3EFB0EA0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Well Dweller (2026) [Ru/Multi] (8.12.2026) Repack Other s
 ```bash
 magnet:?xt=urn:btih:12C565ED353C3368E81ABD56851376B108D7D0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Cosmic Fear (2026) [Ru/Multi] (1.1/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8775DE981F6A14887C9E880DA164F48AFB7B23E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Cosmic Fear (2026) [Ru/Multi] (1.1/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:EEB8BA76004E41DDD697D8CAE55306657FFD0542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Realm of Ink - это роуглайк с элементами экшена и �
 ```bash
 magnet:?xt=urn:btih:DF136D47B26C3E77FA042226A2288F31AB854498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

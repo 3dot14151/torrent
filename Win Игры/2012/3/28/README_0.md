@@ -19,8 +19,7 @@ Solitaire Mystery: Stolen Power / Магия пасьянса (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:6D60C8EBCA0A7AD16E328F4A2AA4BB12ACE32D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

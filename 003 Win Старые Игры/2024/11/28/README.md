@@ -19,8 +19,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay [Ul
 ```bash
 magnet:?xt=urn:btih:2CBE780BE7A1CE452C92C7D38A12BFC0BB78E082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

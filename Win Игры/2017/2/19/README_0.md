@@ -19,8 +19,7 @@ Knights of Pen & Paper (2014) [Multi] (1.0/dlc) License GOG [+1 Deluxier Edition
 ```bash
 magnet:?xt=urn:btih:C637F930666433EDB235EACE816B17B8723FD203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Folks / Скрытые Люди (2017) [Ru/Multi] (1.02) Repack John2s
 ```bash
 magnet:?xt=urn:btih:1C982ADB27C655E892383C493D84FB4E025ACB5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

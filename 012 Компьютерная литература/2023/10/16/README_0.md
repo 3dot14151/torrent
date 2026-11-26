@@ -21,8 +21,7 @@ Ahmad Sahar, Craig Clayton | iOS 16 Programming for Beginners, 7th Edition (2022
 ```bash
 magnet:?xt=urn:btih:26A200EFE01DA4CC1A92C8C91FBDFB65558582FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Maaike van Putten, Sean Kennedy | Java Memory Management (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:5A54932283820A644645DCA2F431CD6BBB27E7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Peter Spath, Chris Schaefer, Iuliana Cosmina | Pro Spring 6 with Kotlin (2023) [
 ```bash
 magnet:?xt=urn:btih:C0C9317539282BE0F8E95DC4BF847043CF701DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Anna Skoulikari | Learning Git (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:D76A4C18C77BFA2CD06E14B615380979BFB1295C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Cursed Fables: White as Snow (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:71234DF9F1CE22F1ED79460D775EAB40B9BBB904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Letters (2022) [En] (1.0) License GOG [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:F6B532BA1C8683845A435FB83D2FA35F261F1858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Monark (2022) [Multi] (1.00/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:D719C6EB39B6FABBF7042103ABACFAFD72C386A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SIFU — это история молодого ученика кун-фу, же
 ```bash
 magnet:?xt=urn:btih:8564E7F39DB0FBA3421B296568AE1CA836CA8CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

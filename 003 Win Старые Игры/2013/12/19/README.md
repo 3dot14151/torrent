@@ -19,8 +19,7 @@ Polanie (1996) [Ru] Repack R .G. Games
 ```bash
 magnet:?xt=urn:btih:2AF994D3603D1893018112C9F25CD6D03C5284E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Descent (1995) [Ru] Repack R. G. Games [OpenGL Edition]
 ```bash
 magnet:?xt=urn:btih:5A55469FA793B05294AE8246F94FE5C7CFF928C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

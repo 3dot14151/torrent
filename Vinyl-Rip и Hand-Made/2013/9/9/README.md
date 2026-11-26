@@ -28,8 +28,7 @@ B5 Sing It Out For LoveЖанр: Synth-pop, PopПродолжительност�
 ```bash
 magnet:?xt=urn:btih:C929EAB3E2ECD6D740A1F37EA06EDCEDF76FABDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

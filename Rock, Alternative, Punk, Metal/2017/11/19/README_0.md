@@ -22,8 +22,7 @@ Unheilig - Rares Gold (2017) 2CD [FLAC|Lossless|image + .cue] <Gothic Metal, Ind
 ```bash
 magnet:?xt=urn:btih:796513EFD4053C1D325EB4D7413D62A99AEE7FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A5FD6D1F2B37B09256303A95DCF567B417FA17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD 1 - Die Hits:
 ```bash
 magnet:?xt=urn:btih:60CC0F75CC7CFEBBBD71E8F8441CC14AF3CCB43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:C613DE34D8E560FCB97DEED7D5000CF74F55DB31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

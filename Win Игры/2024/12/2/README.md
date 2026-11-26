@@ -19,8 +19,7 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 ```bash
 magnet:?xt=urn:btih:470DF43795CF30213A340E69056193B1875BF398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Automobilista 2 – вторая часть гоночного симулято�
 ```bash
 magnet:?xt=urn:btih:BFEA7C5728CB53B08CB4AA0786FA5D3CADE5E9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Skies above the Great War (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A4FCFE330575C3FAE25A8A49DB4615D6077A60ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Project Wingman - это игра-экшен, в которой вы может�
 ```bash
 magnet:?xt=urn:btih:E9565CDA7337AAE7EC455C75EF3ED1EA3929CC60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Horizon — это пошаговая космическая стратегич�
 ```bash
 magnet:?xt=urn:btih:C40606F9CE88C577F970CCB2C25F44AD5AF683A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D9F6D19E3ECA1A9CED592DC1B92A50AE07F3C603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Shredders (2022) [Ru/Multi] (Glacier Update/dlc) Repack FitGirl [540INDY Edition
 ```bash
 magnet:?xt=urn:btih:63849630A0D5807DE151D20218E35B5C246FD948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

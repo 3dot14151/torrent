@@ -22,8 +22,7 @@ White Skull — итальянская пауэр/хэви-метал групп
 ```bash
 magnet:?xt=urn:btih:1C416370A2455DA8462BA1DADD4EA3593E7C1F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

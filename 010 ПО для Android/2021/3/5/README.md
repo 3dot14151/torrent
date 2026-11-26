@@ -22,8 +22,7 @@ Piano Melody ver.Tokyo Ghoul Fix (200) [En]
 ```bash
 magnet:?xt=urn:btih:A8A8D31F647E117E2BAAB952DBA0EF7CF4CC8A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Freezer v0.6.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:11C1A0BE831241A71F0ED9E265B2FAC536D7834D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

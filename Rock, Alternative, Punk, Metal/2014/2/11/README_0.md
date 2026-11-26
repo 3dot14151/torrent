@@ -28,8 +28,7 @@ Crimson Shadows - Glory On The Battlefield (2012) [FLAC|Lossless]<Epic Death, Po
 ```bash
 magnet:?xt=urn:btih:82987086E48F1FBF442D5A32E85D57456F302FED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Monte Pittman - The Power Of Three (2014) [FLAC|Lossless]<Hard Rock / Heavy Meta
 ```bash
 magnet:?xt=urn:btih:C89B76EEEB95A142223D848E918618A40749EBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Blackthorn - Sister September (2013) Single [MP3|320 кб/с]<Gothic / Sympho Bl
 ```bash
 magnet:?xt=urn:btih:B6A18FD8A3CD8E4D60B772D9F62A033135A1D75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Pandemonium - The Autumn Enigma (2006) [APE|Lossless]<Melodic Death, Progressive
 ```bash
 magnet:?xt=urn:btih:3D108221B9A5ECB1F11E25AC54678C02BC8E862F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9637A715CC614E772A018FBCC5C7ECE218E1B0FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Ian Gillan - Magic (1982) Reissue, Remastered /2007, Air Mail Archive, Japan/ [F
 ```bash
 magnet:?xt=urn:btih:D2FC9B86F64E3C58DE7283BC97CA74DECDDA1F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Cynic - Kindly Bent to Free Us (2014) Deluxe Edition [FLAC|Lossless]<Progressive
 ```bash
 magnet:?xt=urn:btih:B63BA2393B780C92365E82EF45D84025219F86F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ Aerosmith - Aerosmith (1973) BSCD2 /2013, Sony Music/ [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:90107CDABEBD3FDC12BC2BF7B1E8A952B49487C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +285,7 @@ Crosses (проект Chino Moreno - вокалиста Deftones) - 1 альбо
 ```bash
 magnet:?xt=urn:btih:97C463B1350405CC2312D875945563C85C08830C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

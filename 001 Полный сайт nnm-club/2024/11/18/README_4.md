@@ -21,8 +21,7 @@ Hamidshax - Compilation Cd 2 (2024) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:7FDE657EF6C8259A81B3A838A28DA4319A20ACAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ kiloHearts Subscription дает вам мгновенный доступ ко �
 ```bash
 magnet:?xt=urn:btih:F277AB8B3D95626461678907B528AA009C5A1A55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F94D5042AEC57FD0E1EAB92B24139F7D66F757CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

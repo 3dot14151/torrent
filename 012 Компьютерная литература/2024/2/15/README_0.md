@@ -19,8 +19,7 @@ Michael W. Lucas | Absolute FreeBSD, 3rd Edition: The Complete Guide to FreeBSD 
 ```bash
 magnet:?xt=urn:btih:AC8E8167422743704E95487D12783F22723EA288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

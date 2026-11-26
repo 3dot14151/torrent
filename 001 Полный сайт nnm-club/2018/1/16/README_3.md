@@ -18,8 +18,7 @@ Microsoft .NET Framework 1.1 - 4.7.1 Final RePack by D!akov [En]
 ```bash
 magnet:?xt=urn:btih:635D067D1652CEFF307D10374E1980F16D929E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.07.0.1318/dlc) Repack xatab [Definitive
 ```bash
 magnet:?xt=urn:btih:0F7A8D59A0BFFA7F97AA983C47518B03709F5306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Google разрешила бесплатно звонить на абсолют�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AAB30BE4CB45B7CA39F87834562B9C8AEA449B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45DCE44C1541AAF1F0D4DF7D34D19E39CDC995D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ MAFIA Community ModPack (2017) [Ru/En] (1.0) Mod mafia-game
 ```bash
 magnet:?xt=urn:btih:405EB300B747C030C0242BCAA81C2182FAD08630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED52FA19C0034F9DCF6A295B94C68E92ED2F5944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Risen 3 (2014) [Ru/En/Ge] (3.0.30/dlc) Repack R.G. Механики [Complete Ed
 ```bash
 magnet:?xt=urn:btih:72E65FC557E1FE4F79EADADBCB8FBE524A180BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 ```bash
 magnet:?xt=urn:btih:EE75B4375D2E14574B880655B0E07655E14BA362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ VA - Зайцев.Нет: Январь (Музыкальные Новинки) (
 ```bash
 magnet:?xt=urn:btih:0C6AA6D7653A7179BAB610138ECFF10F06826D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:757A2428699045EBB170D57965AA1A25D48A88B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru] (1.2.211) Repack Other s [Collector's
 ```bash
 magnet:?xt=urn:btih:06551532C4BFA177C5F4BD512C2218BF608BC13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05.125430.1/dlc) Repack Other s [Coll
 ```bash
 magnet:?xt=urn:btih:2DCB2C4FE55D7C0547252C6C3A0C8F5DE32CD4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ John Bickerton - Mountain Retreat (1997) [MP3|192 кб/с]<New age, Relax, Natur
 ```bash
 magnet:?xt=urn:btih:4999F6762471F4E8A5279B3022C49566B9B01417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Dark Ring - Reborn From The Inferno (2013) [MP3|320 кб/с]<Black Metal, Sympho
 ```bash
 magnet:?xt=urn:btih:14D73874E44E00D919E19D7C1A1E1FA7D2CEB6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ VA - Diani Beach Lounge (2005) [MP3|192 кб/с]<Lounge, Downtempo, Ethnic>
 ```bash
 magnet:?xt=urn:btih:25D07476466277CD361883C0BC20DDA036679ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ My Silent Wake - The Last Man (2013) EP [MP3|128 кб/с]<Gothic Metal, Doom/Dea
 ```bash
 magnet:?xt=urn:btih:A3450AD075BAA2C77F30CCBBCB523A7966E95CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41B799388B751F6BED569057A98B95D15947E307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ VA - Monster Tunes: Spring Collection (22 April, 2013) [MP3|320 кб/с]<Trance,
 ```bash
 magnet:?xt=urn:btih:CC6FC8E7FC1B96CCC3E654FEE68D7AACE4F2A274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1356C4BF24337DEC9A6C7892B8A3C8795EBD8E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A4DEA198416E997D82F9F3C05F18229A319427A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E2E97C3793A6AD2411CBC41220E7F30A6F8880D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A2B74B6A2D24DA3FFDEC06150EBD7F77C99199D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7441BCF8282CB3753D4A8031536129CB5B791D74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ VA - Global Progressive Trance Sessions Vol 1 (May 06, 2013) [MP3|320 кб/с]<T
 ```bash
 magnet:?xt=urn:btih:66CC1F31E3B3209E3FAF4752FA76C10A2669B12B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +372,7 @@ Hans Mayer - Native Spirit (1995) [MP3|192 кб/с]<New age, Relax, Nature sound
 ```bash
 magnet:?xt=urn:btih:A05CCC8B99F2FC5813281797424EA2E72DE634D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D54BE81531FBE2E60DF5B5358FD3FFB23FF1ACF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEC18DD4B5672B08F3D00B8587ED294397ADD0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA3C21ABE9F18F0D37921CE52DC7C96B8A0FF7F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +472,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73629E05D3C7F9E367CD169DD93457D9300A796F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E73FFD13A0BCB4E75BE918EA1256B9E7D7149AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +529,7 @@ The Monolith Deathcult - Tetragrammaton (2013) [MP3|320 кб/с]<Atmospheric / I
 ```bash
 magnet:?xt=urn:btih:D50CB0435D41754429ED0F7D777FBA6C0A763AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +557,7 @@ FileZilla - бесплатный FTP-клиент, предназначена д
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8771A470FF0CC0DA464EF75853497139B3EFD3AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ ClaMor - Мой Крик (2013) [MP3|320 кб/с]<Heavy Metal, Eclectic Metal>
 ```bash
 magnet:?xt=urn:btih:CE757B37B3307568077ABD21A2F391EB57A5E6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD353FF842A747343B6F705DD96B51EEC8065316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +674,7 @@ The Ventriloquist Mute - Quintessence (EP)(2013) [MP3|211 - 270 kbps] <Progressi
 ```bash
 magnet:?xt=urn:btih:5BF6DE15CEDFCDF57A4BC404AA49C67139A7B3CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C147A7D4D590611A6B46F0B4AA625CD3FF44182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ Alison Moyet - The Minutes (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:A7D17C731C6A4FD73643EE61A5D87493E8F190A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

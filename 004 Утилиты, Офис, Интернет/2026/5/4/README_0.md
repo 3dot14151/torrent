@@ -20,8 +20,7 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 ```bash
 magnet:?xt=urn:btih:E7F99B730289CD913CED65E52AC07B64B74E0D1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ButterScroll улучшает ваш повседневный опыт прок�
 ```bash
 magnet:?xt=urn:btih:28B45E0488553B2258248582FE37879E41264370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Obsidian Reader позволяет читать файлы EPUB и PDF без р
 ```bash
 magnet:?xt=urn:btih:E50987AD184EE04BC6BDA6023668E08F12EAFE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:1B31517FD8DF302C5AC5F87C8C357B4BD00C0835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ AnyDesk 9.7.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7749D9E0544C85808F033E347C70B0682FD40A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

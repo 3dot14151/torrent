@@ -24,8 +24,7 @@ Quickscope Simulator (2014) [En] (1.3b) License MoistCludderduck [Just4Fun]
 ```bash
 magnet:?xt=urn:btih:3FCB8CC145F7CD4565F48ABB83D4F92009FF621A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

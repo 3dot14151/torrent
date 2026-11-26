@@ -28,8 +28,7 @@ Jacky Danny - Jacky Danny (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DDBBCDF23AAA61BC2D33C426F9EA19A4FA4C9F8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Pleasure Maker - Twisted Desire (2008) [FLAC|Lossless|WEB-DL]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D4A60746501AD653FC0E2C74894FA9FE30D69DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Alcest - Shelter (2014) [MP3|320 кб/с]<Post-Rock/Shoegaze>
 ```bash
 magnet:?xt=urn:btih:5196FFA6EC4640707B7020C0CBD9A85AFB24A16F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Dynazty - Bring The Thunder (2009) [FLAC|Lossless]<Melodic Hard Rock, Melodic He
 ```bash
 magnet:?xt=urn:btih:D0FFD21405E4C259558E391D3389F971273B684F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Mogwai - A Wrenched Virile Lore (2012) [FLAC|Lossless|WEB-DL]<Experimental, Post
 ```bash
 magnet:?xt=urn:btih:395262EF04C7055AA8BAB8717E95BE2120E43440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Rainwill - Zeroed By Progress (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:6432966A2275E7FB8D80F8F75060C91FA96F69D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Bob Katsionis - Rest In Keys (2012) [FLAC|Lossless]<Progressive/Neo-classical Me
 ```bash
 magnet:?xt=urn:btih:0D2BDE23B507FB62F1176AE857AF69BD7FC2ECB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Electric Light Orchestra - Eldorado: A Symphony By The Electric Light Orchestra 
 ```bash
 magnet:?xt=urn:btih:6EED5A0FEAE80B94A26A79B56D196CC725B31FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ Mogwai - Rave Tapes (2014) [MP3|320 кб/с]<Post-Rock>
 ```bash
 magnet:?xt=urn:btih:D482FF91AB7682FDC8626E314051337B15B6566F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +323,7 @@ Mogwai - Les Revenants (2013) [FLAC|Lossless]<Post-Rock>
 ```bash
 magnet:?xt=urn:btih:98213D46B0DBC0E4896B426B20F77D420327DC11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +357,7 @@ UFO - On Air At The BBC 1974-1985 (2013) 5CD Box Set [MP3|320 кб/с]<Hard Rock
 ```bash
 magnet:?xt=urn:btih:D6D448F71F916A4C987C26CA60A62CD5DF6C736F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +391,7 @@ Skindred - Kill The Power (2014) [MP3|320 кб/с]<Alt. Metal, Ragga-Metal>
 ```bash
 magnet:?xt=urn:btih:7F2FA3F18CD30B970C2DBBDDB0BBC46D0A125C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12AFA7534D9BF7F1FF2658E09D5D0021C94E49D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

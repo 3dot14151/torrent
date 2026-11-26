@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C776E67534092A28F00EB7E085CDCF4C6B23C5B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Telling Lies — это новая игра от Сэма Барлоу, созд
 ```bash
 magnet:?xt=urn:btih:5DEAB7DA2A729C689DAB0E0BDCA1EAE578BBA06E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

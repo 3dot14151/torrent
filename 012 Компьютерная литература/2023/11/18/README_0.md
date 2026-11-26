@@ -19,8 +19,7 @@ Julien Pivotto, Brian Brazil | Prometheus: Up and Running (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:6ADA67C3DA624757C78E518FCE7BA9D94EEAB6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bartlomiej Plotka | Efficient Go (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:2BC37C28795EFE2111660AE09A54AFF0E5C4C18B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

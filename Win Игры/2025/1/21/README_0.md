@@ -19,8 +19,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.005/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:CDE2EFFE873B1B96102259E597C01330E38F444E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tales of Graces f возвращается в красивой версии, в 
 ```bash
 magnet:?xt=urn:btih:6B99913C125B3765C1F0862D686B7208CE1F934A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:16E23AEE73EA6D92F37B06376572DEAE43D0DEE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gangs of Neo Tokyo (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D8DF06488878A138EA68E3FB4C5CA1AAECEBAACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Star Named EOS - не совсем обычная приключенческ
 ```bash
 magnet:?xt=urn:btih:31E3BAD08411AA6ECB2773CECABFF0FB75395B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Paranormal Files 12: Fatal Flaw / Паранормальные явления 12
 ```bash
 magnet:?xt=urn:btih:25D6BA001E7F54CD122A2B243FB24596D401F6A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:2711366D0928289602E0210BBDB829D062692B17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Demonheart (2017) [En] (1.41) Repack Other s [Chapter 1-4]
 ```bash
 magnet:?xt=urn:btih:6367E3AB936085468DCF31DD8F53C08B53C9B6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crest - an indirect god sim (2018) [En] (1.2/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:F19159C58FAE0E287C8680CF7DFD16EBDEEF6D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 ```bash
 magnet:?xt=urn:btih:6ED1E411C00BFB0484DC6C88CC6FD246E0452F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ostalgie: The Berlin Wall (2018) [Ru/En] (1.0.6.c) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3D553D84886B0EFF9C366D860A21EF1D47B03F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

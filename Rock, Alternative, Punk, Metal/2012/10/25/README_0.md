@@ -19,8 +19,7 @@ Leka - 2 альбома (2011-2012) [MP3|320 кб/с]<Progressive Melodic Death 
 ```bash
 magnet:?xt=urn:btih:8A6EB066C43D24AFFBCA351410050EF64643CDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ___________________________
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

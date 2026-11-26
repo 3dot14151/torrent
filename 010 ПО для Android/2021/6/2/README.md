@@ -19,8 +19,7 @@ Avast: Mobile Security & Antivirus 6.38.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:31DEA274DA4654D57FA32D8E0E435CC5B350F0A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

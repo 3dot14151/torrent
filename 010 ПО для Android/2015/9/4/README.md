@@ -19,8 +19,7 @@ Call Master v5.4.0.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:69B1E957173B535F024CFED9A482EF6545C4EDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ uTorrent Pro 3.8 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2A1C3B99D4170F70EA90072F5CD0F3661B75C014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

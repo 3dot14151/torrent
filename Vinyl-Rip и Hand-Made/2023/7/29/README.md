@@ -22,8 +22,7 @@ A4 R. Kelly And Public Announcement - She's Got That Vibe(   Читать дал
 ```bash
 magnet:?xt=urn:btih:7A45A5EB61B0B363CE7034430751BCE9E7F1167A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Andy Summers - Human Shout(   Читать дальше...   )Жанр: Sound
 ```bash
 magnet:?xt=urn:btih:657A90F3016C8779A96FD342306A597CA4BD4795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Michael Bolton - How Am I Supposed To Live Without You(   Читать дал
 ```bash
 magnet:?xt=urn:btih:1E9F590C921E9D61B07375F29E70216C75049BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

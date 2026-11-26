@@ -20,8 +20,7 @@ F-Act - Detuned World (2018) Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 ```bash
 magnet:?xt=urn:btih:5D17BE3CC1FD64F379491E4BAD16D10EF02EFF57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:746A1C8E31BED81C706012395001B8EF80E1B41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Stephane Wrembel - Dreamer Of Dreams (2014) Water Is Life Records [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:707A26D07A14CECE8905CCFE28F5B836F01E7ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Twitterrific - Простой в использовании, Истинная п
 ```bash
 magnet:?xt=urn:btih:8FDC8B0B9218EA45B74153075E8A036069CDA993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Stephane Wrembel - The Django Experiment I (2017) Water Is Life Records [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:EBCA7E6DAF356CD325C76F01E6F1DECC1FBAC1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Deliver Express - это автоматическое решение для бы
 ```bash
 magnet:?xt=urn:btih:F9D559F0271B0902BDCCB88679572335114C8388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EED04673042A89A66D02D38FE5AF121D85FCF07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ iShowU Studio предоставляет эффективные инструме
 ```bash
 magnet:?xt=urn:btih:2B1C93FA7F740616EF9CA18A1F4703786204FCFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - There Is Soul In My House - Purple Music All Stars Vol.17 (2018) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:8058825873754650E49FD596BDBDD50B0F898E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Ori Uplift - Uplifting Only 300 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:DEB4DAEFB0FBCD2BCF9A45EE36C0B4349925FC85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Ambient Kandi (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:845B36E26926D9776B2DB91511A999CF5A5E359F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ VoodooPad 5 v5.2.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:BE6F05117B65B33AB7472128B17DAAEFE59C46D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ Melodium - Flumen (2018) Audio Dregs Recordings [FLAC|Lossless|WEB-DL|tracks] <I
 ```bash
 magnet:?xt=urn:btih:AD8E0CB443A227C43D9C97705E1E810DDA1CAC95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Orion PDF Author - новый и простой способ создания и
 ```bash
 magnet:?xt=urn:btih:A87B1BD27BADB78A9155B58E28CAF775C75495D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:086A55464B1D6221F98CF3FEE54FD3A1E41C5D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +426,7 @@ VA - 1​+​1​=​X (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:0E87DDAE03CDE15878C53E1B74BEC7888E6C8142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3EE46C07B280AED8FF622C5991284F2811A4217D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +479,7 @@ Eelke Kleijn - Maschine (2018) DAYS like NIGHTS [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:955E0ACEF4F07BAC6F7973C2219DE66D4DED48A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ Pia Mora - ... Perchè no?... (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz>
 ```bash
 magnet:?xt=urn:btih:90B08D938AC93360EB60C51CF4270BE193C5E4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B35119E415A48CD0360DDCEEE6C4185ADE38644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ Vivaldi 2.1.1337.47 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C713E70C3DCA850E6BC6FA1591050CFD2CE38B46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ PhotoMill X (aka Reformator) помогает Вам преобразовать 
 ```bash
 magnet:?xt=urn:btih:5501E237D10FE212BABDB652FBBB8993F825FC95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ VA - Disco Heaven (2018) [MP3|320 Kbps] <Disco, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:31401E6E10B4B83CEF4F2445E3E93024CB9573DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B00494F84ECAF669A80164CA9B348BF505C33E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +667,7 @@ AudioFinder — программа для управления вашей фон
 ```bash
 magnet:?xt=urn:btih:C3EA410E85234950981FDBCD3C3477E412FCA29F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B6BC7B8A37F789A62B939C80819353429E579A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

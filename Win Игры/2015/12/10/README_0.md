@@ -19,8 +19,7 @@ The Last Dream (2015) [Ru/En] License Specialbit Studio [Developer's Edition]
 ```bash
 magnet:?xt=urn:btih:E99C370EB8B14268BBDDA63FA2ED2CCC645CDA37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Ritual on Weylyn Island (2015) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:D4DD408DD5085D5830D2E5D255E2B2481498618A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ STASIS – это приключенческая игра «укажи и щел
 ```bash
 magnet:?xt=urn:btih:197353F3B6FE8E4FF2DAB95EDCCF1C1BAD897FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

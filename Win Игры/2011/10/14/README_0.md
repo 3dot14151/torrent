@@ -20,8 +20,7 @@ Reincarnations 3: Back to Reality Collectors Edition / Перевоплощен�
 ```bash
 magnet:?xt=urn:btih:CA8CBDD3A9F486CF8EBCB9A323C2664DB497DE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D26682E8A76410B44782C7C002169442D068E749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Silent Hill: Nightmare Edition [Ru/En] (RePack) 1999-2008 | R.G. Механик�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

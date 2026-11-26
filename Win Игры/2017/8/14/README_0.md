@@ -19,8 +19,7 @@ Chimeras 2: The Signs of Prophecy / Химеры 2: Знаки пророчес�
 ```bash
 magnet:?xt=urn:btih:D915E5073BB1EB4DE08EF6104BE3E802E4E2EB0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Tales 8: Edgar Allan Poe's The Tell-tale Heart / Темные истори�
 ```bash
 magnet:?xt=urn:btih:B98BDD08A59205728B6C1220E90EF0E488EC8C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Amaranthine Voyage 5: The Orb of Purity / Вечное путешествие 5:
 ```bash
 magnet:?xt=urn:btih:D468B4F87F1788E7943B4826C23249B3CD3966A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Invasion 2: Doomed / Вторжение 2: Обреченные (2016) [Ru] (1.0
 ```bash
 magnet:?xt=urn:btih:CBD14BA9C663009C1E7095351BC3D9B0B28F9F97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

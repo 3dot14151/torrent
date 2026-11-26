@@ -19,8 +19,7 @@ CrossMe Color Premium - это интересная и увлекательна�
 ```bash
 magnet:?xt=urn:btih:17B25182FC75F4050A2E41DDF523E96CDC2D0C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XCOM: Enemy Within - дополненная версия лучшей страт
 ```bash
 magnet:?xt=urn:btih:8823B6F06129692475B9F444CF68759556FCC91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

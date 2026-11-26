@@ -19,8 +19,7 @@ Greed. The Mad Scientist / Жадность. Безумный учёный (2013
 ```bash
 magnet:?xt=urn:btih:D065480A5CB1B1685E1A89AFE8058996B49B78AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Happy Game (2021) [Ru/Multi] (1.0rls) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:5D6BDC466358AD9E65486182A4E8D472D1FBA5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

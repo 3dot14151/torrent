@@ -22,8 +22,7 @@ L.A. Guns - Golden Bullets (2003) [FLAC|Lossless|image + .cue] <Glam, Hard'n'Hea
 ```bash
 magnet:?xt=urn:btih:902396A7D86E194DDF66F14E1D2F95DD34AB8D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ozzy Osbourne - Diary Of A Madman (1981) X-Cellent only for sale in CIS, 1995 [F
 ```bash
 magnet:?xt=urn:btih:8B2DAA30D474AF0AE6FB1803DA91B21678F62DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ozzy Osbourne - No Rest For The Wicked (1988) X-Cellent only for sale in CIS, 19
 ```bash
 magnet:?xt=urn:btih:6E1E13D5E0F98C3E5CB579ADDADF901F07A7DCAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ozzy Osbourne - No More Tears (1991) X-Cellent only for sale in CIS [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:871B7A3DB1E29761A066A9E53265E944EE720A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ozzy Osbourne - Ozzmosis (1995) X-Cellent only for sale in CIS [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:CEB21E64FF95AB49FCE381D073312CCF02E4197D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B4862F9925352BBB71B88FC7DE3AE7EB25A9D60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Gorillaz - Song Machine Episode 2 (2020) Single [MP3|320 Kbps] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:F6BE6AE49D9288BDFBB053822B626D746B5008A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Five Finger Death Punch - F8 (2020) Deluxe Edition [MP3|320 кб/с] <Groove Met
 ```bash
 magnet:?xt=urn:btih:7688BEFD717D9314B514F5D12D7A96FC4F09D337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

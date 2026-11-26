@@ -19,8 +19,7 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 magnet:?xt=urn:btih:B57E1901D16F94A585B4D3F9017CF03BA308E5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SoftPerfect Cache Relocator - портативная программа, с по
 ```bash
 magnet:?xt=urn:btih:54F12CE22189561BA09DB01193CDC9F07377D4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ StressMyPC - крошечная утилита, которая выполняе�
 ```bash
 magnet:?xt=urn:btih:59DC6FE71F7C8D8D4EAA84A2BCF1225957F33707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Uranium Backup изначально создавался авторами, ка�
 ```bash
 magnet:?xt=urn:btih:6CF0C3B1D5408D8A98CE8EAA03052735A9E98900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Wise Memory Optimizer - утилита для освобождения опер�
 ```bash
 magnet:?xt=urn:btih:86C97A805E4A940BD5D8146E52EEB6D462AE9F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

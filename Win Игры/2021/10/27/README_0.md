@@ -19,8 +19,7 @@ The Smurfs - Mission Vileaf (2021) [Ru/Multi] (0.17.8) License GOG
 ```bash
 magnet:?xt=urn:btih:D3A340F81C3935081E78D9B5A23A80EDA47E618F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

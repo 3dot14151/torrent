@@ -19,8 +19,7 @@ Formula Legends отправляет вас в увлекательное пут
 ```bash
 magnet:?xt=urn:btih:A85047F7786A7EC2A325B16C0A8E6061F412A6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.3.101.1763.0303/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:7DBCC66CAA41501227B1AE2E5E1DF835C8B16DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Onimusha 2 (2025) [Ru/Multi] (1.0.0.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8D2F9157E43B0F8501A90BE2DAA58C7242EE5805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.17.0.1/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:64D71A78718F07E80B5048A22F6CE8C5C652482D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Iron Harvest - это стратегия в реальном времени (RTS
 ```bash
 magnet:?xt=urn:btih:305708CE3DC964AC9019E24AF18AD6A354046E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Outlaws + Handful of Missions: Remaster (2025) [Multi] (1.1.1748) License GOG
 ```bash
 magnet:?xt=urn:btih:7928C2D49E0FB6A0B3BEA3C7ED3A0ED4FAAC762B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2) Repack Other s [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F5BD2314E1D76CC75D8EF5F8DF429DDB9D237ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Reentry - это симулятор космических полётов, ос�
 ```bash
 magnet:?xt=urn:btih:D53F3AC492B13D3C4AD4AC011E2D68F8F0EEDDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Reentry - это симулятор космических полётов, ос�
 ```bash
 magnet:?xt=urn:btih:E870C43FBE33DD7222C94AAA9D8F93D9B500BC99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Prince of Persia / Принц Персии (2008) [Ru] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:0A6272E40C17FB9795F384C8C4B794E8B44AB2C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

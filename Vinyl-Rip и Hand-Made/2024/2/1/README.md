@@ -21,8 +21,7 @@ Avenged Sevenfold — американская метал-группа из Ха
 ```bash
 magnet:?xt=urn:btih:3F436D16D58B42632B7C4B0722617C550EE1214D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ G Side 1986
 ```bash
 magnet:?xt=urn:btih:4DFC6BE21DC587F20D4ADFCBF2D23F4A309C9BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Guns N' Roses - Appetite for Destruction (1987) [FLAC|24/192|image + .cue|Vinyl-
 ```bash
 magnet:?xt=urn:btih:4C442A97E71BEA7AB3B36B5D28953CB0CA5445DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Riftbreaker™ – это игра на выживание и построй
 ```bash
 magnet:?xt=urn:btih:5C1C74086FDE36B5D23270525EA3AA4CA2379E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

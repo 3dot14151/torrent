@@ -19,8 +19,7 @@ Vampire Secrets: Eternal Love [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:10AC35F7DF53085A74FA82E2A86AF8EFDBF4CB1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Norman's Night In (2019) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:88F9F3E0E5A69B6768459F80B6D743EC49A51466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

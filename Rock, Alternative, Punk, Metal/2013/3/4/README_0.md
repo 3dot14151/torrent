@@ -26,8 +26,7 @@ Synesthesia - Synners & Saints (2013) [MP3|320 кб/с]<Power Metal, Progressive
 ```bash
 magnet:?xt=urn:btih:3E2C76FD97D632E0CA542BEC96A54FF310D68D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Ghost Riders - Five (2013) [MP3|320 кб/с]<Southern Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D0B9D35897F0C236C979DF1B101A5EE632C06559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Stryper - Seven The Best Of Stryper (2003) [WavPack|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Umbra Et Imago - Mea Culpa (2000) [APE|Lossless]<Gothic Metal / Synthgothic>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Rhino Bucket (style AC/DC) - Pain (1994) [WavPack|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Blind Guardian - A Traveler's Guide To Space And Time (2013) Box Set [FLAC|Lossl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Blind Guardian - A Traveler's Guide To Space And Time (2013) [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:CB17A823D0D879F125D8E9A47A82A63F609FB559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Kingdom Come — американская рок-группа, создана а
 ```bash
 magnet:?xt=urn:btih:C62D9557B186912E535E2281FFDBF1C38F2C21A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

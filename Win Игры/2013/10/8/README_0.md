@@ -21,8 +21,7 @@ TAKEDOWN — это шутер для тех, кто думает. Игрок, �
 ```bash
 magnet:?xt=urn:btih:9203B25696D3778ACA2D075567213D516451E3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

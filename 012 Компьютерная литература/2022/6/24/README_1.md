@@ -19,8 +19,7 @@ Go быстро набирает популярность в качестве я
 ```bash
 magnet:?xt=urn:btih:1A75B1B3D2C6DDC846CCFD79CE861672C93A525D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

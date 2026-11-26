@@ -19,8 +19,7 @@ Apeaksoft Screen Recorder - это профессиональный инстру
 ```bash
 magnet:?xt=urn:btih:EB0BA13623FD9C436956F86436418880C5DFDBB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

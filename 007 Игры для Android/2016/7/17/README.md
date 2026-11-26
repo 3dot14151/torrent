@@ -19,8 +19,7 @@ Major GUN - шутер-тир от первого лица в котором н�
 ```bash
 magnet:?xt=urn:btih:9269EFA4DB79BE83B6707BD4B6ECFD032DFA7E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call Of ModernWar:Warfare Duty – Великолепный экшн на наш
 ```bash
 magnet:?xt=urn:btih:9DE5F18A9E145F27C5A755C90536BDE079797CFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Swamp Attack - защитите свое жилище-хижину от напа
 ```bash
 magnet:?xt=urn:btih:8BA64A3BF2B5B5FFBC2D93E6A0C0B97B1F565FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ My Backup Pro 4.4.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:510F0FA501AFFD296FACBE4E0C6232E240EBD191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

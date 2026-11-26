@@ -20,8 +20,7 @@ NetBalancer — это удобное приложение, предназнач
 ```bash
 magnet:?xt=urn:btih:0E47811B4A566C392E593F3FE4485A1A9E11B97D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ O&O DeskInfo – вся самая необходимая информация �
 ```bash
 magnet:?xt=urn:btih:1451A6FF05F0113AA52E9E9314B0C9E31121B02D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

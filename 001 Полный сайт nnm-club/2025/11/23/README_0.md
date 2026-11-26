@@ -20,8 +20,7 @@ Purpleschool, Антон Ларичев | JavaScript с нуля - основы 
 ```bash
 magnet:?xt=urn:btih:7513E0E247F4655722E01376390A8631A7796B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AB655FD3A0A669C876D77716F1988CA7536848B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:170A72606FA368ABD0A240815567B1326992A296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE9F3A2BA83C990EBD7F0AAAE28E523474A86937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Nikandr Surkov | Создание вирусных приложений для T
 ```bash
 magnet:?xt=urn:btih:C3D5EA7AA6BCFA5165516C6DC0EBAE6BB18DB664
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20876369) Repack Necros
 ```bash
 magnet:?xt=urn:btih:18F109A0A020C4A8004FB6783CD719ABEACC1DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3CFA2C71C3C10F09C64226C7D1905DDF9ED91F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Nec
 ```bash
 magnet:?xt=urn:btih:D6E36B442DF7DBA2BE11715D223607C037D79212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Star Wars Jedi: Survivor / Звёздные войны Джедаи: Выжив�
 ```bash
 magnet:?xt=urn:btih:7A7E1DE5AAA6FA1AA160EFC5815A4FB8E5CA542E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84012854792B08D2C6C25DF3A98D7E56C4D47DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ OlliOlli World – это новый лихой экшен-платформер 
 ```bash
 magnet:?xt=urn:btih:D22A75A7E6D466286131B7B6793ABF356C2F61CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Fit
 ```bash
 magnet:?xt=urn:btih:EC5A8BCCFEB61D80AC7027CE9E19A86B7C457230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Oth
 ```bash
 magnet:?xt=urn:btih:51FB124684ECF1FACCE1080377E4BF4A0D12406C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Dec
 ```bash
 magnet:?xt=urn:btih:55600A84A461BE02C16A1EBC19C06DD5138FBD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Demeo x Dungeons and Dragons Battlemarked предлагает погрузит�
 ```bash
 magnet:?xt=urn:btih:F219BBC17AEB42E5452E7D28F5C6FFF69DE7635F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Bill Blue - The Other Side Of Paradise (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:CC1962E74E7184C45A24F0941D71ACFF91A00DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ Blues For Comfort - Blekingesalen - Scenkanalen - Musik i Blekinge (2025) [FLAC|
 ```bash
 magnet:?xt=urn:btih:E7F8486D84013FECC5C60FC98A9D762460018642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ Chasing Stars - Southbound (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:0FE377CBF6837F35F5254EFA0AF39A67F6CB5DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +516,7 @@ Cotton Pickers - Pickin' Out Strong (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 ```bash
 magnet:?xt=urn:btih:B61864B96CFFC968EBD5A1551BB706BF1A358B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +541,7 @@ Kingdoms Reborn – увлекательный градостроительны�
 ```bash
 magnet:?xt=urn:btih:2804851A833E14155A41F50C6FFE18A7AE076F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +569,7 @@ Jackdawg - Jackdawg (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:40EED1FEF77F8A827B9A4E560305914834A63640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34845530817BBAC32B2C4D0A8953AAD3B89A059F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +619,7 @@ Words Fusion Logo Reveal представляет собой динамичны�
 ```bash
 magnet:?xt=urn:btih:3BD71F76ADE2083BD2CF67901C99E5F760181C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F86574F841A952007CDB75A66FA27CFDB2B93574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F06D0C9436099BE1460E10057A66953FB280F3F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

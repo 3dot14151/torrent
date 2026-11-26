@@ -23,8 +23,7 @@ Demolition Train - Unleash the Hordes (2015) Japanese Edition [FLAC|Lossless]<He
 ```bash
 magnet:?xt=urn:btih:FFE62EEAB629B724A098B38451225635FBA1AEAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Cain's Offering - Stormcrow (2015) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:4947E5F6EA9C65AA63DF6D5377FC083E4A7CB478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:E1D93095E723C7988AE7BEEFC72BD9F4FD4956C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Bad Company - 2 Albums (1974-1975) 4 CD Deluxe Edition, Reissue, Remastered /201
 ```bash
 magnet:?xt=urn:btih:80516428665D7444D48AB0A5B8B0B854CD98A170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Gary Moore - Music Collection (2001) [FLAC|Lossless]<Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7A765EBCB44F80CF4E21CC0CEA4D460572A68239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Korpiklaani - Noita (2015) [FLAC|Lossless]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:523813D6CA0FC692C760EEBDB517D04349A2D49A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ B4. Il Mutuo :: 06:54Жанр: Pop, Pop Rock, Cumbia, TangoФормат: Vinyl, 
 ```bash
 magnet:?xt=urn:btih:5CE6CAAB36D3937636AA53F9C84A892812BFF104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ B4. Back To The Rivers Of Belief :: 10:35Жанр: Medieval, Abstract, AmbientФ
 ```bash
 magnet:?xt=urn:btih:075A4A4DC75BC665F538603547996F1476D6603F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Slaughter 1.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AC74E8CAE74459B8511AF45DB49ABDFB4387332C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Slaughter 2: Prison Assault 1.42 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:29631FBA52D39EF7903D9C549B97753D8FF16C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

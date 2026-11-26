@@ -19,8 +19,7 @@ Haunted Legends: The Curse of Vox Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:C5B32BD830569B6D8C50F9BFD7B6EF841D2AF829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magrunner: Dark Pulse (2013) [Ru/Multi] License FLT
 ```bash
 magnet:?xt=urn:btih:E26161D96F2523111584FBDAF1BCA9A4257289CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Worms Revolution (2012) [Ru/Multi] (0140 / 4 DLC) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:7C280680F47CB0D75E41A6FA1A5146EDD69AF032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sub Command — хардкорный симулятор подводной ло�
 ```bash
 magnet:?xt=urn:btih:E30575EEFDFC629D81EC8743CC78C2BB58DAC19A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

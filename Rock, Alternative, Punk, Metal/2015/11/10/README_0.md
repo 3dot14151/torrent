@@ -22,8 +22,7 @@ Graveyard - Innocence & Decadence (2015) Limited Edition [MP3|320 кб/с]<Rock,
 ```bash
 magnet:?xt=urn:btih:A2D4DAFBF077AE0A6D1B16213F413A7EE288FB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Arx Atrata  - Oblivion (2013) [FLAC|image+.cue]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:A6FE0A622A00477C8831DE5BA122175FE5BD4514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BBFFE0FFF624EBB417B1DFBFB2F34DBAADA9E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Celldweller - End of an Empire (2015) Collector's Edition 5-CD Box Set [MP3|320 
 ```bash
 magnet:?xt=urn:btih:F69565354248ECABED4CB3970A5D8EC7035300F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

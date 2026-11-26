@@ -27,8 +27,7 @@ Proven Decadence - Equilibrium Meltdown (EP) (2012) [MP3|320 кб/с]<Progressiv
 ```bash
 magnet:?xt=urn:btih:6859B6341283640973EDCA3B531661BEE3C0B379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Circle II Circle - Seasons Will Fall (2013) [MP3|320 кб/с]<Progressive Power 
 ```bash
 magnet:?xt=urn:btih:799C7570BD155BB84F792FC518EAA3F4AA2D04CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ California X - California X (2013) [MP3|320 кб/с]<Sludge Noise Rock>
 ```bash
 magnet:?xt=urn:btih:2AF0F4A1D10C51497AC5D480673240591EA84068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Jorn - Symphonic (2013) [MP3|320 кб/с]<Symphonic, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0AA7321220742F5E39F7002B5E83044E89D6A945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Helloween - Straight Out Of Hell (Limited Edition) (2013) [FLAC|Lossless]<Power 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C20C644DD57AA8D50446906BF6A09E844AAD8CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

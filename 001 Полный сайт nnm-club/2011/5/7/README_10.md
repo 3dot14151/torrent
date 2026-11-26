@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Counter-Strike v.1.6 [p.48] (v.1.1-final) (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:0F11533C5CCB9D714BBE3145074BE0445A16235E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - 333 Лучшие Детские Песни (2004) 12CD [MP3|320 кб/с]<Д
 ```bash
 magnet:?xt=urn:btih:D1A4B95539E7EC9AF5A63D1C9F8818CEB735AB8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

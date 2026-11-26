@@ -18,8 +18,7 @@ KMSpico - полностью автоматический активатор Win
 ```bash
 magnet:?xt=urn:btih:2C79D613AACD5344400344685C601D33783F87E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05820C70358BA652013B220039E6FFED7A6544A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C2840093325CF6C7D54CEFBA72FBB2DEEC6CFD77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PictureThis - Plant Identification v3.79 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7A237C06B727FFD4183C514CD3ED7C2F327EFA8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PlayerPro Music Player - аудиоплеер, что предоставляет
 ```bash
 magnet:?xt=urn:btih:A2A50AF91CBE52974305E30EE6CB46B47D0710BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

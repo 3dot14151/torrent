@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B3E24F2004A640101D45CE3544D7098A6EF43272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Barry Harris Trio - Chasin' The Bird (1962) 1996, Original Jazz Classics [FLAC|L
 ```bash
 magnet:?xt=urn:btih:20398EE864D30A5D7CA331D38AC642E122F2E50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AABFC60263358923AF611976D70321D9696852C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2304A38CE9FD5D1B9E09EDE663F7C8B1768875FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Voight Kampff - More Human than Human (2012) [FLAC|Lossless|image + .cue] <Techn
 ```bash
 magnet:?xt=urn:btih:A1330F846E0473699AC83621C8482204E398E494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Barry Harris Trio - Preminado (1960, 1961) 1990, Original Jazz Classics [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:52FC7E1889ED2F3D3D4ECDEC503DED591EED5893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Barry Harris - At The Jazz Workshop (1960) 2006, Riverside [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:08867DE1CC186167DECA0B7F11BD60E7F73B5275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ A Better Finder Attributes позволить изменить дату созд
 ```bash
 magnet:?xt=urn:btih:786F68249EAEC4C3D38DAE23B9D4AC24CAA2EBCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ Voight Kampff - Substance rêve (2018) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 ```bash
 magnet:?xt=urn:btih:DE88ABFF9EAD1488D2AFBB28289E7780A780E1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Donald Byrd Sextet With Yusef Lateef & Barry Harris - Complete Recordings (1955)
 ```bash
 magnet:?xt=urn:btih:C8453562763BE536CAD4E9D9B5EA3A7F65E00D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88FD329104B818EB38EF47698F0494F90785C8AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:9C7704DC7F85094FFBA610CC3CA3931299F9B1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Saints Row 4/IV (2013) [Multi] (1.0.0.1/4 DLC) RePack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:3450912A42C4A53EB755387B0E7601715E2A4DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4E7C53B63CED9E35A65279E13D6108F57075945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Cборка основана на оригинальном образе Windows 
 ```bash
 magnet:?xt=urn:btih:9A575C890F43FB63A1B9AC48E6F4287FE77B8FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:588725DE96BBD6858BF222C3851E02B784CC64C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

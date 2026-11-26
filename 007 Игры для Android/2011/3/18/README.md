@@ -19,8 +19,7 @@ Turbo Grannies: Вялотекущая и скучная жизнь в доме 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

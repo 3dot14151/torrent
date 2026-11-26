@@ -19,8 +19,7 @@ Allods Online / Аллоды Онлайн (2009) [Ru] (20.07.22) License
 ```bash
 magnet:?xt=urn:btih:62FDC3709F6901AA417204D990C1C3DF249BF9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warcraft III: Reforged - это потрясающая переработанн�
 ```bash
 magnet:?xt=urn:btih:31A5E218E1802352E1CA3C4335E95BBBB67D1438
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

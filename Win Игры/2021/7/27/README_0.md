@@ -19,8 +19,7 @@ Orcs Must Die! 3 выводит свирепые побоища с орками 
 ```bash
 magnet:?xt=urn:btih:7F27C3850EF780062D4B211B514019D844A26738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

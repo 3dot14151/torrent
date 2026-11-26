@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7E201AA0E2649BC50D8703D2FC859A9109C4506F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total Launcher для Android – необычный лаунчер, позво�
 ```bash
 magnet:?xt=urn:btih:6CF9E96F65CBA96C79009AB5E14D377BE80D521A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Next Launcher 3D - очень функциональная и стильная �
 ```bash
 magnet:?xt=urn:btih:733FD1309DF8C22F0C55B85912E1853486EDE11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

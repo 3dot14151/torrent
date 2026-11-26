@@ -21,8 +21,7 @@ Joao Paulo - Until The End EP (2013) [MP3|320 кб/с]<Tech-House, House>
 ```bash
 magnet:?xt=urn:btih:4D6DD8300103F61E928E8B9C6F50ED953B258A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Attacker - Giants Of Canaan (2013) [WavPack|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F15E15F193C379D6FABB3BFBC2D15AD3CD1EAE79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Voltax - Fugitive State Of Mind (2010) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Steve Middleton - 2 альбома (1995-1999) [MP3|320 кб/с]<New age, Guitar
 ```bash
 magnet:?xt=urn:btih:BB89BAF506ECF9B520EEEC4F781E844020ED8865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ VA - Aesthesia (2010) [MP3|320 кб/с]<Downtempo, Dub Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:237FBDC8D1A3C40D5046B5176F990AE499E57C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Mastercastle - On Fire (2013) [WavPack|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Spiral Dub - Perception (2011) [MP3|320 кб/с]<Dub House>
 ```bash
 magnet:?xt=urn:btih:621D0DFD44135F3FD672BDE90DE80615D47A2363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +270,7 @@ Mr. Bizz - Space 2999 (2009) [MP3|320 кб/с]<Dub Techno>
 ```bash
 magnet:?xt=urn:btih:AF2B10202923815110311B78B5047FF4BCF9D075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ Sublime Porte - Red Apple Remixes (2011) [MP3|320 кб/с]<Dub Techno>
 ```bash
 magnet:?xt=urn:btih:41B535CF7C7DCAF3CD0E5908FFCBB4CFB0C7A4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +331,7 @@ B Mus - Nothing As It Seems (2012) [MP3|320 кб/с]<Dub Techno>
 ```bash
 magnet:?xt=urn:btih:F6826DD716375601167C6BE957328E55B4DE7788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE050DBB8D331D6591A9DC8B1F47870E206105D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:445A2111B36CE3CEA6A940B74FA9E731550A0969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FAB38987F205984BF4AB40377B70F41D51DA9938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:413FE73E72C6FC9D2C39A8BE46F21FEE47EC9B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +457,7 @@ AnyDVD - утилита для дешифрования CSS и снятия ре
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +488,7 @@ Randoman - Eon (2010) [MP3|320 кб/с]<Dub Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:FDE8E83BDC706E2BC19FB68F448E6C3628D4CDEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ Strehm - Highest Step (2013) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:DB39AE99179F3687E20E080A2B2E7B10194BE783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D7D6F8D3DE465B10188A02E2425075405A86FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ Pascal Vert - X (2013) [MP3|320 кб/с]<Ambient, Deep House, Minimal>
 ```bash
 magnet:?xt=urn:btih:1ACE359103F5B2F26B85BB906AC17BEB47D32027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ VA - The Factory Of Golden Chicks (2013) [MP3|320 кб/с]<Tech-House, Techno>
 ```bash
 magnet:?xt=urn:btih:0FDA465A965D472B422A8F79344798931DA0CBF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A510718E140FEA3A35E7028392B8FD0C5614E54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2188E18352FCBF7F16A230D5B510758CF62A3FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ VA - Let's Get Deeper Vol.1 (A Collection Of Unique Deep House Tunes) (2012) [MP
 ```bash
 magnet:?xt=urn:btih:8A65C528BC9C0927670D360502B114EADF4A5899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ Thunderbird - бесплатная программа для работы с э�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +752,7 @@ Dragonsfire - Speed Demon (2013) EP [FLAC|Lossless]<Melodic Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

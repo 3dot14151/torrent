@@ -19,8 +19,7 @@ Magic Photo Recovery 4.7 Commercial Edition Portable by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B38AEB828720DC09BE3C9CCD11C42E1E7F5E3491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Magic Partition Recovery от East Imperial Soft предназначен для
 ```bash
 magnet:?xt=urn:btih:B33B5300800F2B2EBA975A408D82783C950A7FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Diatera - В разных мирах (2016) [MP3|320 Kbps] <Melodic Metal, Gothi
 ```bash
 magnet:?xt=urn:btih:A9AB167D648D038F5A31DFE8272469D37EF728DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA8BB43F4D3B6AC7DB95933905E31559111B7DC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

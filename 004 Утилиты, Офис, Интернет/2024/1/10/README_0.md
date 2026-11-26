@@ -19,8 +19,7 @@ TeraCopy – утилита улучшает процесс копировани
 ```bash
 magnet:?xt=urn:btih:C4D1A5462FF274DF84BEA5AB51E4EFDC629BF51B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ oCam - неплохая бесплатная программа для запи�
 ```bash
 magnet:?xt=urn:btih:124F8E56C408B8AAEF668F8ED5F76F2371FF5972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

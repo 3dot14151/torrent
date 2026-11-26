@@ -19,8 +19,7 @@ MAMIYA: A Shared Illusion of the World's End (2021) [Multi] (7.1.2/dlc) Scene Te
 ```bash
 magnet:?xt=urn:btih:1377DA2E8E2CF94BD3576887B2758C53AA4F4F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Closing Shift (2022) [Multi] (1.10) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A87068EEE56E49D7F4CD929437A6D3A8C9520332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Slender: The Arrival возвращается с долгожданным обн
 ```bash
 magnet:?xt=urn:btih:6A6C65CC5A8E523E444E4E3DD790C2C3BDAF8AA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Monstrum (2015) [En] (1.5.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0C90F9333F06DF98F9085AB43829E04B541D4891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Repack DjDI [Lionheart Edition
 ```bash
 magnet:?xt=urn:btih:DCB7B2952FB4613EA6D762D298A388D1468D2ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Last Train Home - это интригующий тайтл, погружающи
 ```bash
 magnet:?xt=urn:btih:F56379256540957695F01BBE57848AEB22BDD52C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Scene FAiRLIGHT [Lionheart Edi
 ```bash
 magnet:?xt=urn:btih:DBEAC4F441F81A1829A95482B4A006423846D738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

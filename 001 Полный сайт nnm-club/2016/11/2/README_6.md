@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:4BA675FD579716F8CE2DB40E9D585A164F26FA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Privacy Eraser Free 4.18.0 Build 2175 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3F7972CCBE04ACC400CAD1C7970D0145EEC3172D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ ParAAvis Flash ver:FireBird 10.2016 [UEFI | x86/x64 | RU/EN]
 ```bash
 magnet:?xt=urn:btih:BEA9120805B66B0197D225A0F1E9CD8273D1C518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Mass Effect (2012) [PS3] [EUR] 4.25 [Cobra ODE / E3 ODE PRO ISO] [Repack] [Ru]
 ```bash
 magnet:?xt=urn:btih:A4EBE1021A4E757CAA01EE7DFAD4397DBF9FFE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96AB289B5B994EF0D4156508E87521A09B6BAB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Eisenwald: Blood of November, новое приключение в мире Lege
 ```bash
 magnet:?xt=urn:btih:75F6036946790A6B9DB65A69FF9EACC0737B36E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ VA - Дискотека 2016 Dance Club Vol. 157 от NNNB (2016) [MP3|320 Kbps]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ iTunes, помимо проигрывания композиций, предос
 ```bash
 magnet:?xt=urn:btih:D4AD3022E7664F1CC7764ED14B46187E0D0AD6AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.8.13949/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B5FA6E50ABB4F0AEBBD7D6B176889E8C2BED7BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3203856FB8599EE92B096D4F7A9F387860DBA36F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ EaseUS Partition Master — удобная программа для разби�
 ```bash
 magnet:?xt=urn:btih:4D2D72217F0B7B69169E52E98958E85E4AE55D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ Mortal Kombat X – файтинг нового поколения и следу
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

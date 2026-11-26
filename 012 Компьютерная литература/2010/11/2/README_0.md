@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C74ABF8794728E2E10ADE3B01BAC4DE7F94B4405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ XNA Game Studio позволяет любителям и независимым 
 ```bash
 magnet:?xt=urn:btih:C4A57F150C71F12B48822A636748EA9BCE84959E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

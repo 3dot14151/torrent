@@ -19,8 +19,7 @@ SplitCam - бесплатная программа способная сущес
 ```bash
 magnet:?xt=urn:btih:679D682C788BF109B917A6B376237AB0F88B6142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

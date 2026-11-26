@@ -21,8 +21,7 @@ Ave - Control (2014) [MP3|320 кб/с]<Black Metal, Сrust Punk, Sludge>
 ```bash
 magnet:?xt=urn:btih:7B910B646A1FED88E9C85E9CD50F6D24828CFAB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ The Dowling Poole - Bleak Strategies (2014) [MP3|320 кб/с]<Indie Rock, Psyche
 ```bash
 magnet:?xt=urn:btih:8AC24605861691707B0F907773E933BCA011954C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Luna - Ashes to Ashes (2014) [MP3|320 кб/с]<Symphonic Funeral Doom/Death Meta
 ```bash
 magnet:?xt=urn:btih:06C131F2416A5F7F27CE8FA0C3C38FDBBC516D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Rock-H / Рокаш - Білий динь (2014) [MP3|320 кб/с]<Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:4307604ED848789B409698F7FE5E928B4ADE1E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ John 5 - Careful With That Axe (2014) [MP3|320 кб/с]<Progressive Metal, Instr
 ```bash
 magnet:?xt=urn:btih:7234708EDEE2D1602557B536A31182C008773A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ DragonForce - Maximum Overload (2014) Special Edition [MP3|320 кб/с]<Power Me
 ```bash
 magnet:?xt=urn:btih:97688121DB7DB39C8672536BE3E756B87B949695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

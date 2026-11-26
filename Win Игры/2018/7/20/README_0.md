@@ -19,8 +19,7 @@ Figment — игра в жанре приключенческий боевик, 
 ```bash
 magnet:?xt=urn:btih:E89984DA1481A8C5BD88CA695E1AA3B9A6D744E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mary Skelter: Nightmares (2018) [En/Jp] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D74092F993DF80BE53A63A9BD5C03CCB4F5049C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:DA680CE309E62F9BC36457CEB3E6CE4FC9DB4A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Terraform — настоящая звезда в мире DevOps. Эта тех�
 ```bash
 magnet:?xt=urn:btih:AF949826F7A187E50045D61EDCE3792B3991E228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

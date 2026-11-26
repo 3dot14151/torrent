@@ -19,8 +19,7 @@ Demon Hunter 5: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:0DFB0A342804AFDFF35EF9029F8A2ECFA5F34335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Hotel 17: Beyond the Page (2018) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:11D82C0C2282797F69786A2BD0C8CD041099BCA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vermillion Watch 5: London Howling (2018) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:5D44AA0E424D199BCBB1A1DE80C9D7037240AB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Legacy 3: The Tree of Might / Наследие 3: Дерево Силы (201
 ```bash
 magnet:?xt=urn:btih:C4E405AC815E80ADE1FB4555DD13AF010BF9052E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Haunted Manor 5: Halloween's Uninvited Guest / Призрачная усадьб
 ```bash
 magnet:?xt=urn:btih:C606F52D5B98C2574AE18F8DA0B09FA454975FD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Stary (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:32B43D86271F01403257DDCC6BF8F8C7C3C6D048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ BioShock 2 идеально сочетает взрывную динамику �
 ```bash
 magnet:?xt=urn:btih:CDF5039B898AF0268A9275F4D6B8D5FAC4BF5BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

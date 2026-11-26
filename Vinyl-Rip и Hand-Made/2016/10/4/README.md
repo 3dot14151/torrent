@@ -22,8 +22,7 @@ A4 Weird Of Hermiston(   Читать дальше...   )Жанр: Art Rock, Pro
 ```bash
 magnet:?xt=urn:btih:031AC6E8CA59882F1C8ED132CF6C5FF5BACC5B91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Hits Of BBC And Alaska Records 1 & 2 (1977) [FLAC 2.0|96/24|image+.cue|Viny
 ```bash
 magnet:?xt=urn:btih:9B78BC52F3E8C73FC99C4F6238D2A72A9E6DCA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Car-Man (Кар-Мэн) - Кармания (Carmania) (1992) [FLAC 2.0|96/24|ima
 ```bash
 magnet:?xt=urn:btih:EE146ED843CC42F0767552426FD7ACAE57B11BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ A4. Tonight (3:40)(   Читать дальше...   )Производство: 
 ```bash
 magnet:?xt=urn:btih:E200C30D544F3F807D2EDBB1474285307C00418B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

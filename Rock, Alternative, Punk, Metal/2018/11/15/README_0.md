@@ -22,8 +22,7 @@ The Smashing Pumpkins - Shiny and Oh So Bright Vol. 1 / LP: No Past. No Future. 
 ```bash
 magnet:?xt=urn:btih:5F676A75F067C498DC024000F41EB79A235ACDB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Smashing Pumpkins - Shiny and Oh So Bright Vol. 1 / LP: No Past. No Future. 
 ```bash
 magnet:?xt=urn:btih:7BF0FD1B596B65EFB55455DD02149CE812CB90C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Rolling Stones - Voodoo Lounge Uncut (2018) Live [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:AC91D4D7BC78A1E2E4958B3080B5F9B4CDA832D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ P.O.D. - Circles (2018) [MP3|320 Kbps] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:DAED0145B90D579E0D99A6ABE4C83DD73ADC9041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6BD88A2511BA409855ED49D67EA3792AFA99D23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Mark Knopfler - Down the Road Wherever (2018) Deluxe Edition [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:9B9A231F60C09EF57A2F34763A5DC72A49D4456C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

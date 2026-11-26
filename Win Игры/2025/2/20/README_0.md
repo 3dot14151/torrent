@@ -19,8 +19,7 @@ Headquarters: World War 2, увлекательная пошаговая стр�
 ```bash
 magnet:?xt=urn:btih:5797494F1C69A63F63E29E2CB890ABAFD362A6CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Spirit of the Samurai - двухмерная игра в жанре sous-lik
 ```bash
 magnet:?xt=urn:btih:957D7329A227C9E550F10529110D0515CAF93E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Microtopia (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1CFB1106088ED40F2634C2A270E7E5FA01D74C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Repack DjDI [Soundtrac
 ```bash
 magnet:?xt=urn:btih:CFB810B49542A09776A75538C556358AC48226FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 ```bash
 magnet:?xt=urn:btih:3E6CA95221A64505D18D5A7DB828FF011C9D4B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Amnesia Rebirth (2020) [Ru/Multi] (1.40) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DB3CA1CE21CABEB9253EEF047F9FD207D7F05866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Soulbind: Tales Of The Underworld - экшн-платформер, которы�
 ```bash
 magnet:?xt=urn:btih:37AF03555550D12C5B6CDCF12A8F507AC09C96D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Amnesia: The Bunker — хоррор от 1-го лица, действие ко
 ```bash
 magnet:?xt=urn:btih:863D8032B28B0094062E2E194714D2EF668567FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 ```bash
 magnet:?xt=urn:btih:B9569028EAE9CD97C16FFB1CE67E176BDE31FAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Gym Nights (2024) [Ru/En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:87D4C222C1055A76CD72BAB505A2F354FBC86D82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BF32DA679921CE7925A8746078A700FDACBB10CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

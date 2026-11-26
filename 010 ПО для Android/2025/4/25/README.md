@@ -19,8 +19,7 @@ NekoBox for Android 1.3.9 [Ru] (Обновляемая)
 ```bash
 magnet:?xt=urn:btih:F54FF15FAF53C6709BD9AD92F2DC0C0082508EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

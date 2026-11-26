@@ -19,8 +19,7 @@ Rusty Lake Paradise (2018) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E10529E9ECEC3D6BE684CC7B700D7969A6A6335A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rusty Lake Hotel (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:34F7F6D14E3A21204B2C7EE4AD249A5A97409C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cube Escape Collection (2020) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1A4B210D8D2A62DF86530C50FE6008E22249A11F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rusty Lake: Roots (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E5F14CBBDB80A310539AE66C976B884B2CE48AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Roguelite-игра с карточными элементами, в которо
 ```bash
 magnet:?xt=urn:btih:3B505904C14404CB987CD0CDA0735FC31A828AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

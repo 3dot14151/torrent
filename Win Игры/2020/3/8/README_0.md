@@ -19,8 +19,7 @@ Thief Simulator (2018) [Ru/Multi] (1.4) Repack xatab
 ```bash
 magnet:?xt=urn:btih:2C94304A3F124D57EADB14D125A460C1B875AEDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Soulcalibur VI / Soulcalibur 6 (2018) [Ru/En] (02.05.00/dlc) Repack xatab [Delux
 ```bash
 magnet:?xt=urn:btih:2CBFE4256310ABCA9786E9055E003A82B596BDE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/En] (1.3.7/dlc) Repack xatab [Omnissiah 
 ```bash
 magnet:?xt=urn:btih:5E32D003195C2E42B8E039E85FD8E35A72EF8410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nioh (2017) [Ru/En] (1.21.06/dlc) Repack xatab [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:2F5A99FDCA874FA507F354105FEB6065917FD42E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

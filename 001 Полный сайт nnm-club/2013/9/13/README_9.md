@@ -18,8 +18,7 @@ The King of Fighters XIII - очередная игра серии KOF, сюже
 ```bash
 magnet:?xt=urn:btih:0C48C32EFBB54E69A9C98724CF9300A0E9380393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Spectaculator 8.0 [Английский] (2013) [ZX Spectrum]
 ```bash
 magnet:?xt=urn:btih:FD4387529ADB8049BF6EC64D434B44722DA3A2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ AntiWinBlock - программный комплекс, предназначен
 ```bash
 magnet:?xt=urn:btih:9BCA9550E0B0D9C7E31D2D17A659D18A9D9FB5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Real World Racing - сумасшедшие аркадные гонки с нео
 ```bash
 magnet:?xt=urn:btih:67E82E3E049CBD2543BCE8808EE878B46B864C65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A46074BD9C3E96B211CEF5074A289949B1B70838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Driver Booster 1.0 — эффективный и простой инструме
 ```bash
 magnet:?xt=urn:btih:89C858C3B6CF811910C701D4E2DEBB9F37EDC1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF68DC74D47F2FBC86EF5C2DA1BBFC621DD5470E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:05DED43728522E1DC32800E5C0ED6D8905582A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E21CB8786266B95143338997F4A251EB3B43B46B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Iron Soul - это экшен от третьего лица с роботами
 ```bash
 magnet:?xt=urn:btih:F10F93A5C3CE2B1420649C9B69EFAF420F098452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Microsoft Toolkit – многофункциональный KMS-активат�
 ```bash
 magnet:?xt=urn:btih:D8AEB3D1EA8B19EB253F22EC0595E663C032FC6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51C97D942B20BCD9682F3D27F850CDFABA8553BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CB370F4388FE877C26622E83E4DC2B2E0DDC259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28897F82091010EBB6E70EF7C76811A033E448B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F89D098B62FA9F9206A1EC02845BBB1D07C6244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ ARMA 3 впитала в себя все самое лучшее из преды
 ```bash
 magnet:?xt=urn:btih:2956F55834DBFC9D5407B9D967D5B95156BCD04B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ ARMA 3 впитала в себя все самое лучшее из преды
 ```bash
 magnet:?xt=urn:btih:CBAF5DFC836DB92D0572A60DEE50B287B783B795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:465D96ADD2DE646A1830F5CB195EDDC731493407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ LabView 2013 13.0 (x86) [En]
 ```bash
 magnet:?xt=urn:btih:DFD723C2B79EFED8791C7A758006DAD20BCB0ED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +509,7 @@ Grand Theft Auto V / GTA V [XBOX360] [Ru/En] [Region Free] [LT+2.0] [XGD3/16202]
 ```bash
 magnet:?xt=urn:btih:1CFD370420F0B496EF2E293459EDB7DCF2E07BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +534,7 @@ Mountain Lion включает в себя более 200 новых функц�
 ```bash
 magnet:?xt=urn:btih:969026CC130D95419C14E27DB6540A78592BA977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +560,7 @@ KMSonline - автоматический KMS-активатор для опер�
 ```bash
 magnet:?xt=urn:btih:9F1159E5D38B01A3C36A760D6BFBB6EF82708DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ Grand Theft Auto V / GTA V [XBOX360] [Ru/En] [Region Free] [LT+3.0] [XGD3/16202]
 ```bash
 magnet:?xt=urn:btih:514228D89DDD67F59B0642AC0C78B61392C13395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ Grand Theft Auto V / GTA V [XBOX360] [Ru/En] [Freeboot] [GOD] [16202] (2013)
 ```bash
 magnet:?xt=urn:btih:A5F8ABA04A006A07125486B0D20855086374D395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

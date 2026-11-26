@@ -21,8 +21,7 @@ Magic Photo Recovery 4.9 RePack (& Portable) by ZVSRus [Ru/En]
 ```bash
 magnet:?xt=urn:btih:282F8CBF8BE4492831BA0BAC629F23CE5E06D2D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

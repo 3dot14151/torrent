@@ -19,8 +19,7 @@ Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
 ```bash
 magnet:?xt=urn:btih:617012D0E3EB033318C52191474FF1385C6687E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Police Quest: SWAT 2 является своеобразным продолже�
 ```bash
 magnet:?xt=urn:btih:0412CA1FD9B6F924A4D99529E6F8CD0FC7A3C7D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Wars Episode I: Jedi Power Battles (2000) [En] (1.0.4/4.1) Repack West4it
 ```bash
 magnet:?xt=urn:btih:F8ECA5E8B3B3A98713357787FEC4178F73EE5A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 ```bash
 magnet:?xt=urn:btih:E970DA93C0BA8D8D23A95D06DE1D4A35F628AA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

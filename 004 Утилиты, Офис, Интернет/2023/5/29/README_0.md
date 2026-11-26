@@ -19,8 +19,7 @@ Kleptomania — уникальная в своем роде программа .
 ```bash
 magnet:?xt=urn:btih:90912DDCCEBB65A6CE9D2B6D7630121E26DC308C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

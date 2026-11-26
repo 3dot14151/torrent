@@ -22,8 +22,7 @@ Jimmie Lunceford - 1940 - 1941 (1992) Classics [FLAC|Lossless|tracks + .cue] <Sw
 ```bash
 magnet:?xt=urn:btih:867F6CD465C8E98F271CCA5E556F7B7C749BC984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Restate Gods Vol.1 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:ADF4B6E6E4FAF1A0CB8EE0F684C3F99BE5399545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kenny Barron Quintet - Concentric Circles (2018) Blue Note [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:9B14ACE7367FDD5E3B4C8A7334A5D3F3B7C8B36E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Nothing But... True Progressive Vol.06 (2018) [MP3|320 Kbps] <House,Progres
 ```bash
 magnet:?xt=urn:btih:36C6DE1E74C4CFEA597A35A020369CDB757D4573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Best Trance Summer (2018) [MP3|320 Kbps] <Trance>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Poolside Tech House Sundays, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech Hous
 ```bash
 magnet:?xt=urn:btih:580CA89F6B75F5EC6752571CF64C88C279D590EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - The Fitness Series, Vol. 3 (2018) [MP3|320 Kbps] <Hard House>
 ```bash
 magnet:?xt=urn:btih:9D0B7151B6400222EAAF7A250141192475DBF522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Grandmothers - A Mother Of An Anthology (1993) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:0BAFF17D3E6C41B4070F64D8D03DB5474EA19690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Chillout Summer Essentials (2018) [MP3|320 Kbps] <Chillout,Lounge>
 ```bash
 magnet:?xt=urn:btih:D70B131D79265606F4A3151DA2ED93BAA31F0119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11D68004779C1D67BD6A2A85CFCEC9FB4AC51145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3E9CE0B6A9EF1F7D0E93E376335D2E3504C037EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Thunderbird — это бесплатная почтовая программа,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:045C0F4E3CACEBF7BA5568D6EDCA8CE57E3E2F27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ VA - Lounge Theme (25 Sofa Grooves), Vol. 2 (2018) [MP3|320 Kbps] <Balearic, Dow
 ```bash
 magnet:?xt=urn:btih:27C246D30D22EB74B9FEBC8C7ADD790B356152C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Planet Earth - Planet Earth (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
 ```bash
 magnet:?xt=urn:btih:04EC91631D2ADB91E383887230E2D8B5A5028A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Cats In Space - Too Many Gods (2015) Unofficial, Harmony Factory [MP3|320 Kbps] 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ Hipnosis - Hipnosis (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Spacesynt
 ```bash
 magnet:?xt=urn:btih:7723757965EEAAA8DB22A0125DD8EDD26F4C9D66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ Kellermensch - Goliath (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, P
 ```bash
 magnet:?xt=urn:btih:63A21F668EC4A5FDDBA751E73FA2C3AA503BCD98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ MBAND - Грубый возраст (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:FEC217256394191E7606B38BE382AEF449EFEB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ Vanello - Essential (Italo & Space) (2015) [MP3|320 Kbps] <Synth-pop, Italo-Disc
 ```bash
 magnet:?xt=urn:btih:3B4A4AB60699F4FCDD9B1EDF11B8B0AF3C57E2A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C9B10B2FD096B07EF3CD333F9DFE8BD11107C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ VA - Burnout Revenge (2006) Unofficial [MP3|256 Kbps] <OST>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

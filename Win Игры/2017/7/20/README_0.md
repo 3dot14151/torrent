@@ -19,8 +19,7 @@ Whispered Secrets 5: Everburning Candle / Нашептанные секреты 
 ```bash
 magnet:?xt=urn:btih:00C6B012F34D62381CDF67F7371060D70D23EFC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dawn of Hope: Skyline Adventure / Рассвет надежды: Приключ�
 ```bash
 magnet:?xt=urn:btih:BDEB7EE624D4CA8466532B391F3F4618565B6131
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shadowplay: Darkness Incarnate / Игра теней: Восставшая Те�
 ```bash
 magnet:?xt=urn:btih:B5AC9E7C59CAF651664477579BF22C3570A5676B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RollerCoaster Tycoon World™ - это современное воплощени
 ```bash
 magnet:?xt=urn:btih:850C0C8EFEACEE01CBE848652840C5D52D428B9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ultimate General: Civil War - тактическая военная игра. В
 ```bash
 magnet:?xt=urn:btih:22CE4E8756BC259597A2DEB719CB7BC5F80A2361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ CHILDREN OF ZODIARCS: Дети Зодиака - это ориентирован�
 ```bash
 magnet:?xt=urn:btih:E0715F7EE58E78EECED762A18358037BB2128D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ God's Trigger (2019) [Ru/Multi] (1.2.58760) License GOG
 ```bash
 magnet:?xt=urn:btih:B7069B15B8E98461C2370451FEFE32334B5B37E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Little Hope – вторая игра в антологии The Dark Pictures. �
 ```bash
 magnet:?xt=urn:btih:028A40B4236C929747CEF111B907CA0B9512FAC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Earthlock - приключенческая ролевая инди-игра с �
 ```bash
 magnet:?xt=urn:btih:470B103CCCB9A3AF6DD5C0B4D1EA6C12B6FAD999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

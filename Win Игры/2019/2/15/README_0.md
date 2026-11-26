@@ -19,8 +19,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM Legacy (2016-2017) [Ru/En] Rip R.G. Reven
 ```bash
 magnet:?xt=urn:btih:42D526C09C588F127C21DADD5B4459167B55202F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

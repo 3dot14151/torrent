@@ -19,8 +19,7 @@ Dark City 6: Paris / Мрачный город 6: Париж (2021) [Ru] (1.0) U
 ```bash
 magnet:?xt=urn:btih:59D3C83B0F9CBCCB5FF929D8B93EA62583672F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Infernium - брутальная игра, в которой вам предст
 ```bash
 magnet:?xt=urn:btih:4BD68CE396365466C0B64ED99AFCB8E5C5327473
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ziggurat возвращается и теперь он ещё лучше! Исп
 ```bash
 magnet:?xt=urn:btih:7BC90BF869C5210BD3DAF1C206B60BB577224DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Perfect World — Мир, полный древних и могуществен�
 ```bash
 magnet:?xt=urn:btih:9C3B2536101A7456B365AA854488D48BB1ED903F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

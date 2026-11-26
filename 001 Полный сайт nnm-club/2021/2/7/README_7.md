@@ -20,8 +20,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:8838246E286054C60F6F8DE8C21C8B50983C1379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Screenium 3 v3.2.16 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FC9D92883EF21133F23178755C5675C60BBCBC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:567D3A19EEDD6F3749A67AEEBEFAFC2B8430D5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66CE3E6D6F25EC65694E7BB1DE3E34D72069AFF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Adam Sherman - Triangle Sky (2021) [MP3|320 Kbps] <Classic Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:43C769FD4409D6AADEC4617F9366744563BFD280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Tribulation - Where The Gloom Becomes Sound (2021) Japanese Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:EBA03AB461C91D6FCFD57494FA341E0480CA73C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Gacha Bakradze - Obscure Languages (2021) Lapsus Records [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:35FE4AB5B35DFAD4E569A9EC3380A78C112335C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

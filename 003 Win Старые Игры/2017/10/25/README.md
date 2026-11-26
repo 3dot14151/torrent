@@ -19,8 +19,7 @@ XXV век. Планетная система Пандемия. Фантасти
 ```bash
 magnet:?xt=urn:btih:2CE54EB0CADE696444611110B700E3384F5A815D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Imperial Glory (2005) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:9425A8814BB6C271CD22924EF30B6832CC459EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

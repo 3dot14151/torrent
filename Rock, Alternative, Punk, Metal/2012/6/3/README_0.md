@@ -27,8 +27,7 @@ Arctic Monkeys — британская рок-группа, сформиров�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Fear Factory - The Industrialist (Limited Edition) (2012) [FLAC|Lossless]<Indust
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ George Harrison - The Gold Collection (3CD) (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:0B026283E4845A6095CB7008454A5ACC56EB09D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Richard Marx - Inside My Head (Compilation 2CD) (2012) [MP3|256 кб/с]<Melodic
 ```bash
 magnet:?xt=urn:btih:8A2F7C602F298E84851AA2B456BD8A301350ECD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ The Night Flight Orchestr - Internal Affairs (2012) [MP3|320 кб/с]<Classic Ro
 ```bash
 magnet:?xt=urn:btih:61AA9CDBC02492A5617A4CA7105F2D57C0AC5BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ John Lennon - The Gold Collection [3CD] (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:2C23DE44B3E28A720939550BF8E70A52D1348781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Dol Ammad - Cosmic Gods : Episode I - Hyperspeed (2012) [MP3|320 кб/с]<Sympho
 ```bash
 magnet:?xt=urn:btih:E2FBB446541D832D0CCA8C7EF0B6519B67A4BCE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

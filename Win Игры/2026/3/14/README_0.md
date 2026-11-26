@@ -19,8 +19,7 @@ Galactic Vault - это динамичный роуглайк шутер от п
 ```bash
 magnet:?xt=urn:btih:BD79EFEC8EBFAE9FB61A9DFBC68FA385EA4F05AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DOOM: The Dark Ages от студии id Software - это зрелищное с
 ```bash
 magnet:?xt=urn:btih:15E726AB6F50FFB0E502BA0E8E417E3014897192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DOOM: The Dark Ages - это зрелищное сказание о легенд
 ```bash
 magnet:?xt=urn:btih:67F784805636215940FDEDDA8AE5F5B56C486676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DOOM: The Dark Ages - это не типичный шутер с беготне�
 ```bash
 magnet:?xt=urn:btih:03E33EC2288FF349BBFCB5FE2D973FE87E84E292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Timberborn (2021) [Ru/Multi] (1.0.12.5) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7DE78D2A2F3AD779FBEDDF5E43A63DB079144E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tomb Raider: Underworld (2008) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:CD087AE1E96802D9FD3B80BA82760DF00D856FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Solateria - экшен-метроидвания с красивой ручной
 ```bash
 magnet:?xt=urn:btih:6113F3977E14865444E0ADCFE9EEF2CE7AD1FC30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tomb Raider: Anniversary (2007) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:0AC127F35E3CE96F634A634F1ACAD0306CBEAE2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3161E65D9602356A7992FA202DCD4B586713D5BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ WebForMySelf, Даниил Волосатов | Веб-дизайн UX/UI. По�
 ```bash
 magnet:?xt=urn:btih:EFD0C34F9A77785652BECCCCFB07AC5AE79CE923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C7E7DF550B12FBD626363B5A8673197E44605A7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Windows 10 v2004 19041.508, включающая в себя 4 русских и
 ```bash
 magnet:?xt=urn:btih:C42542CC4823EF288C88B4064069187B7EB19E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

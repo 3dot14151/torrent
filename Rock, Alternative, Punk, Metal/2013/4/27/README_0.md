@@ -28,8 +28,7 @@ David Denny - Diesel Harmonics (1991) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5069F53A3A361589C0CBDAF49704A1E6F3698EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Shining (Швеция):
 ```bash
 magnet:?xt=urn:btih:E72D690B086F64F5748E00D10B83F52A3E3A78B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Dogs 'N Bones - In Your Face (2012) [FLAC|Lossless]<Hard Rock, Glam Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Biosystem55 - By My Side (EP) (2013) [MP3|320 кб/с]<Alt.Metal / Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:C89B2F5A31D511EF010BA186C36A9CD46CDA8578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ CellarDoor - Поколение Убийц (2013) [MP3|320 кб/с]<Alt.Metal / 
 ```bash
 magnet:?xt=urn:btih:73CF83166511C6055BE19C96F1DD70A78685170A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Heaven and Earth - Dig (2013) [MP3|192 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DAAC9711EBD16DF0022484D33B68C7CC3448030F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Heaven and Earth - Dig (2013) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ Electric Light Orchestra - Live (2013) [MP3|320 кб/с]<Symphonic Rock>
 ```bash
 magnet:?xt=urn:btih:4F518DE3E4A26F0B976FBB4654A4411BCA2CC63E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ Kingdom Come - Outlier (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3DED6DF50E77A7141125B83C00354A9B2101CCB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

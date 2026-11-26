@@ -19,8 +19,7 @@ Mystery Trackers 5: Silent Hollow Collector's Edition / Охотники за т
 ```bash
 magnet:?xt=urn:btih:F361E85858A375ABB72779223177E393A6D99C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ RHEM. В этой игре Вы не увидите прекрасных пей�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Batman: Arkham Asylum Play As The Joker DLC (2009) [Ru/En] DLC Floobagop [PC Mac
 ```bash
 magnet:?xt=urn:btih:496F5634423ED596F3CC7CC298C2C2E14D9BE9C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

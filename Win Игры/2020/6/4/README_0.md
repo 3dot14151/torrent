@@ -19,8 +19,7 @@ Chimeras 11: Cherished Serpent (2020) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:DE43BD2840B9EFBD173CAC1C1A63035B04065EEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

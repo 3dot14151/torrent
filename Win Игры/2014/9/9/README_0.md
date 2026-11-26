@@ -23,8 +23,7 @@ McDROID - динамичный гибрид шутера от третьего �
 ```bash
 magnet:?xt=urn:btih:05F7A1B0E6C4FDAF4DDBA318ED1ADE4DF1B85D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

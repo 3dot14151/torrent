@@ -19,8 +19,7 @@ Modern Talking (1985 - 1998) + C.C.Catch (1986 - 1989)[MLP 2.0 44,1/16 |DVD-Audi
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

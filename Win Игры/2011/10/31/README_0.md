@@ -19,8 +19,7 @@ Secrets of the Past: Mothers Diary / Тайны прошлого: В поиск�
 ```bash
 magnet:?xt=urn:btih:D534D963F3DE553CFB264D9A152151C19018096E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Hydrophobia Prophecy [Ru/En] (L) 2011 l R.G. Origins
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

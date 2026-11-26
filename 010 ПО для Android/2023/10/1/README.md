@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:055FF64A271026614C32313E2B40AD96E71B0EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Seven / 7 Минут Упражнение v9.19.04 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BE3042F4376A035271BD5779A84F4F9EE9E22A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Next: тренировки дома v0.0.91 Mod by Timozhai [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:363D4B4A93DF0C4AB5CE3D20DD2500B8BA0AD659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

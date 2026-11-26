@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:7CB947905DC404839B72E9E256667B59FDB38BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:695B75C1738A59CB0126471BC2A93773DEDF5872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Want to write code that pushes the boundaries of speed, space savings, and scala
 ```bash
 magnet:?xt=urn:btih:B50B21A16BBD9437A2C5E71C6D6B5697066FC367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ If you thought data structures and algorithms were all just theory, you're missi
 ```bash
 magnet:?xt=urn:btih:E384C8155E59287312ACF00A8591017744464181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Companies are now moving generative AI projects out of the lab and into producti
 ```bash
 magnet:?xt=urn:btih:C15891BBCCF9FAAB0F82FC417BADA917BF12F607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Move sprites and detect collisions(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:CEDF5B58D934B17CB224A66773266523F9608B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Most organizations fail with big data projects and the failure is almost always 
 ```bash
 magnet:?xt=urn:btih:DD29194F4464C7066465CF80B5B6FE5982A80938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ You can ask an AI to explain how vtables work in x86. It will give you something
 ```bash
 magnet:?xt=urn:btih:DED5815319FF5AC66DB8EBBFF853EB308B338FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Randall Hyde's The Art of Assembly Language has been the go-to book for learning
 ```bash
 magnet:?xt=urn:btih:0313CE56B06628C110547797B05BC539E856BDBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ This book guides through the entire modern machine learning lifecycle. You’ll 
 ```bash
 magnet:?xt=urn:btih:5319718F8997FD0501210FED637CD9144444DCBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ With the rise of autonomous agents, the question is no longer "How do we build a
 ```bash
 magnet:?xt=urn:btih:05E2D8244C307260F79236C1F4C751B306A1475B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:089C2299B047351ABE04B471FCB68D9F7F4EA2FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35E484A59409D8A9749CF37803B58F2AD6980390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

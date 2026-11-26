@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:F90BB990892023227DACAF521FBE92DA22D99681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Kotlin - один из самых новых языков в экосистем�
 ```bash
 magnet:?xt=urn:btih:279BDDC28ACCE198303E9596D6231F706EA3D2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

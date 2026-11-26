@@ -19,8 +19,7 @@ Empire Earth 3 (2007) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:56436AB164FE7B580B20384653E625A59A95E629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

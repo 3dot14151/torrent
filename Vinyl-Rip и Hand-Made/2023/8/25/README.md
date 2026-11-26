@@ -22,8 +22,7 @@ B1 Племена(   Читать дальше...   )Жанр: Hard Rock, Heavy 
 ```bash
 magnet:?xt=urn:btih:EA3AE30BC92F8C225A78AD535510DB0078DB00FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

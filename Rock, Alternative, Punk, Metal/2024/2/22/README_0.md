@@ -22,8 +22,7 @@ Temperance - 9 Releases (2014-2023) [MP3|320 Kbps] <Modern Power Metal>
 ```bash
 magnet:?xt=urn:btih:DED5F10D3E54F09C664C1E5BCEA9AA436847A016
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Smash Into Pieces - 44 Releases (2009-2024) [MP3|320 Kbps] <Alternative rock>
 ```bash
 magnet:?xt=urn:btih:330EE62FB2DF1CA5453FBE0C3E386417FF84D756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Don Powell’s Occasional Flames - Just My Cup Of Tea (2021) [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:AEF5B65C9632D4DE5C9911AF942912E5B1236CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Blaze Bayley - Circle Of Stone (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:3AAB279C6ADAE80813D54807D19E39A4D0BA43BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ My Darkest Time - My Darkest Time (2024) [MP3|320 Kbps] <Gothic, Doom, Death Met
 ```bash
 magnet:?xt=urn:btih:285083CFE744C75C46E085A3EF2617D983CBA333
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|image + .cue] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:AF4A76F1DB547498BD3BB05704DB06EC7688AB80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Secret Rule - 10 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:01BFB2589A0C1FE360727FB28DC835AC08F7A21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Ataraxy - The Last Mirror (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:A5707D27AB74BEF85C5E737354E80A8C0B611132
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Danny Steel - Diamond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E165C7D004345272E8DEC5A4287AE9BA374486ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Dust Bolt - Sound & Fury (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:655514BA0DEAE3A421792408E2FAC23BDE84DB74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

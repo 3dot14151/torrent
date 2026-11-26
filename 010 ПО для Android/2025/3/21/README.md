@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A37FC54006AC214516F32B5FC6D44AC2CD8F0E0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Call Filter / Фильтр Звонков v1.23.5 Mod by Balatan [Ru]
 ```bash
 magnet:?xt=urn:btih:4205F1B6E31C6316CA9A78C13E896FF4076C3374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Smart Tools® это набор инструментов состоящий из
 ```bash
 magnet:?xt=urn:btih:34A46F1062E54E2ED029F0919C16ADB087D4492B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

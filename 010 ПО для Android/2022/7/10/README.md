@@ -19,8 +19,7 @@ LockMyPix - отличный вариант для всех кто хочет б
 ```bash
 magnet:?xt=urn:btih:685E69430CC2404D5896284D0B97A1143D9B7577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gesture Control - небольшая программка, добавляюща�
 ```bash
 magnet:?xt=urn:btih:ABE0CF32E4EF2D45401F37B2F67ADBFCB4A8EA09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Volume Panel Pro - приложение, которое поможет вам п
 ```bash
 magnet:?xt=urn:btih:E6D7F4538BB5C89B2FF2E95408670598B2ACBDCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deliveries - Трекинг Посылок – это приложение дл�
 ```bash
 magnet:?xt=urn:btih:E28384C8976693414893452A44A89E74F625194E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ PixaMotion - создавайте живые фотографии, живые о
 ```bash
 magnet:?xt=urn:btih:65CB6E4FA9103CEDF8F02DCD2AE05B485BF44615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ GO Weather EX — великолепный динамический фон с к
 ```bash
 magnet:?xt=urn:btih:D2AB46F717C80441B0454B7FA27B8FDC42868B45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Audify Music Player - это одно из самых крутых прилож�
 ```bash
 magnet:?xt=urn:btih:9A472F4CF12F6DD8D86E9D9CAD8F586D2404AE8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B1778FDB9EE5AEEF209E27C2EBE26A45B67110A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

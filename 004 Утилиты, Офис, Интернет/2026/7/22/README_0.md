@@ -19,8 +19,7 @@ Tor Browser 15.0.19 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BAC37DD881BECB0049417096B9C35D2F55383D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:465CE7AF3084925C7A3FA941ADDFF344C0D10A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ qBittorrent — это BitTorrent-клиент, написанный на C++/Qt
 ```bash
 magnet:?xt=urn:btih:3342E659551AAA24A645352D8E43A87B51DAB270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ FluentCleaner — бесплатная утилита с открытым исх
 ```bash
 magnet:?xt=urn:btih:4992291F092E0884CB3E634C4E5703D4BBBF8A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ SoftMaker Office NX Universal использует форматы DOCX, XLSX и 
 ```bash
 magnet:?xt=urn:btih:64ABD61A4D78D8C77B4D9F2B6F9936B8012463A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ ApowerREC - это программа которая может записыва
 ```bash
 magnet:?xt=urn:btih:6024165ECE104DEF0D223758A04EDBF2A976C079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:AE3BB79A79D59F540B73DAD777664F4329B067BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ DNSCrypt-Proxy — это мощная, легкая и полностью бе�
 ```bash
 magnet:?xt=urn:btih:EF6AE0D10579E12C5B9F11CCE902D1F16B1017BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ EaseUS Key Finder — утилита для Windows, предназначен�
 ```bash
 magnet:?xt=urn:btih:872EB20E85DC2ECE57C0F2D578BF96FFA3B64922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 ```bash
 magnet:?xt=urn:btih:8181FE709E021EBE90E066B0C77D5DAF3A883C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ WaveEditor для Android™ — это профессиональный инс�
 ```bash
 magnet:?xt=urn:btih:3750D9023D97F9356C5B1B2542FD74DA13240A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ DIGI Clock - отличный способ персонализировать в
 ```bash
 magnet:?xt=urn:btih:066A338F78B4455D1023F739D770122B9B1A93C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ iTranslate – один из лучших переводчиков и слова
 ```bash
 magnet:?xt=urn:btih:5361784C48E954E59F5B4495E768E8B446446B5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Casse-o-player 3.2.3 Jubilee Update Mod by TryRoom + Cassette Pack (Unpacked) [R
 ```bash
 magnet:?xt=urn:btih:11FA63D23C59B24BA83010243533284988C1F697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9299FFDA02AD0A24C17A5FDB1B2F320324788544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ The Kris Norris Projekt - Icons Of The Illogical (2009) [FLAC|Lossless]<Progress
 ```bash
 magnet:?xt=urn:btih:6081DFE225E2897619DC7653A59568EFA5BF72AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Coney Hatch - Four (2013) [FLAC|Lossless]<Hard Rock, Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:83FA65C13182A0F286180F41E8DF1B25849A02C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Little River Band - Cuts Like A Diamond (2013) [FLAC|Lossless]<Melodic Rock, Sof
 ```bash
 magnet:?xt=urn:btih:4E05054EBC88C81393A69AF8780B6A6E9E4CEE2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Венгерская эстрада (1975) [MP3|256 кб/с]<Rock, Pop-Rock
 ```bash
 magnet:?xt=urn:btih:1F388DD72D79BC6935EA21FAA164A2A0EFE1C74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Paradise Lost - Tragic Illusion 25 (2013) Compilation [FLAC|Lossless]<Gothic Met
 ```bash
 magnet:?xt=urn:btih:2AB8945E639D91A6637F28F925271CBE3847B710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Yes - High Vibration (2013) 16 SACD Hybrid Box Set / Atlantic, Rhino Records, Wa
 ```bash
 magnet:?xt=urn:btih:1A18033CA59FE00634EACC43574B921955352DF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

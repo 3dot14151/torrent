@@ -28,8 +28,7 @@ Electric Pigs - Food Chain (2011) [MP3|320 кб/с]<Breakcore, Jungle, Hardcore,
 ```bash
 magnet:?xt=urn:btih:F5FD2E32B409CCF3644E1212A3373FB3E71817FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -65,8 +64,7 @@ Chicago - If You Leave Me Now (1983) /2014 Teichiku Records/ [FLAC|Lossless]<Roc
 ```bash
 magnet:?xt=urn:btih:A3C2212771C95390DE66990828723496E7C49747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:163532DB361B029904BA43559E5C04338ABB2954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

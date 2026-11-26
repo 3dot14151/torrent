@@ -19,8 +19,7 @@ Debian GNU/Linux 7.7.0 Live [amd64] 4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:87483B32123AB88EB8B8F11411089BA9E89E0B7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debian GNU/Linux 7.7.0 Live [i386] 4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:2D7982356BBBBF42CA0C9A0D05268B8E7FC39377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

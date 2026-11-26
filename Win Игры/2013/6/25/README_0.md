@@ -19,8 +19,7 @@ The Agency of Anomalies: Mystic Hospital Collector's Edition / Агентств�
 ```bash
 magnet:?xt=urn:btih:1590D71DC8E007184A3B02219DB11C24B4D04E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

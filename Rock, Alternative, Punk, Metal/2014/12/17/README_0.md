@@ -24,8 +24,7 @@ Chronovore - Truth Is The Daughter Of Time (2014) [MP3|320 кб/с]<Atmospheric 
 ```bash
 magnet:?xt=urn:btih:838B73DB14CE7AC31EEB3A5D6CF8705DE5A931A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ As Animals Eat My Insides - Devoured (2014) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:799358314EBACF09E67F80C8610F5C9572B5BD8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Soulburn - The Suffocating Darkness (2014) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:3945126A2BC39D27F02D3D5989DD5A5123851558
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Consecration - Ephemerality (2014) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:839FAA88FA065A75B3C3876A6E660244536087F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Rishloo - Living As Ghosts With Buildings As Teeth (2014) [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:21ED178BAB68C78A29ACEA76B23FD021531E15E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Winger - Demo Anthology (2007) 2CD [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0DA24AE81A75FDE6DDD9293A031F7242EABF96B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Within Temptation - Let Us Burn (Elements and Hydra Live in Concert) (2014) Live
 ```bash
 magnet:?xt=urn:btih:A64A8125E08633CE4D1B61AEEA3946CD1B67D04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Manjaro Linux 0.8.7.1 Легкий дистрибутив: Arch + E17 [i686, x86
 ```bash
 magnet:?xt=urn:btih:0C4EB30DD782C98D21780978791822FB33A6EF32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ OpenMandriva 2013.0 RC1 [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:01583E43C27A71D87747AC423B6B9DFB7FE1D3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

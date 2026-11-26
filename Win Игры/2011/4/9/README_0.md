@@ -19,8 +19,7 @@ Puzzle Hero представляет собой довольно необычн�
 ```bash
 magnet:?xt=urn:btih:699371C741583B5090CF6E46788DEB97B66B87B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost in the City: Post Scriptum (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:A9A0EEE5EB15AE6F9265E324CBBB18D9BF8F9007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jojo's Fashion Show 2: Las Cruces / Модный показ 2: Новый сез
 ```bash
 magnet:?xt=urn:btih:3126999EBC1BD5691542FD7E33E8F4834675EF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ First Class Flurry / Переполох на борту (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:ABD626C496A4610DF5ADE5E0D109FE80D85C7D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Trials 2 Second Edition - представляет собой то самое г
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:527C75859EB899007AFCF17657A9424482405466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Medieval 2: Total War квинтэссенция всего лучшего, че
 ```bash
 magnet:?xt=urn:btih:4F6EDD1F5E7043D3C565FE5372A52B4A58C37C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

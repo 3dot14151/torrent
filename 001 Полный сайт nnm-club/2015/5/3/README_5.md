@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DBAFF7203F6A0D77ADDCFE047FDECFA7019CFF23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:606682868AA2B6F663B8325F0A3B1865F0FE89B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FEDE8B9A379AF870EDFD6BF584AAAA3ABDE2186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Windows 7 SP1 IE11+ RUS-ENG x86-x64 -8in1- KMS-activation v3 (AIO)
 ```bash
 magnet:?xt=urn:btih:D878B511C4ED8BE22F8FAD1CC7345B2BD883A889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

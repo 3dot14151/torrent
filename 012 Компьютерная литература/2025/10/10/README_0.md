@@ -21,8 +21,7 @@ Elasticsearch – мощный инструмент для работы с бо�
 ```bash
 magnet:?xt=urn:btih:A4590777DA1523849F689EB0CCD3B5832CF2899D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

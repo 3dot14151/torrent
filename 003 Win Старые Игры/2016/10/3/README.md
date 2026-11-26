@@ -19,8 +19,7 @@ Lords of the Realms 3 посвящена истории средневековь
 ```bash
 magnet:?xt=urn:btih:937C58B6BB2279A06C9DCC42B9E0F7FFF6C1C4C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

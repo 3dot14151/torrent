@@ -22,8 +22,7 @@ Demon Hunter — американская группа, из Сиэтла, шт�
 ```bash
 magnet:?xt=urn:btih:F2B992995FA9CD1D101D6AA02D61366C2512F2D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Caliban - металкор-группа из Германии, образова�
 ```bash
 magnet:?xt=urn:btih:44898F5A8576B2844B0872DE6E0C84E71638F224
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Sen Jag Fann Dej (We Made Love)(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:DFB8B3BCF52FAB37BC9F26F76880FCF5D21E3C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Taetre - метал-руппа из Гётеборга, Швеция, образ
 ```bash
 magnet:?xt=urn:btih:CC54EACDF18F00A3E974E980B3645C56A5A69288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

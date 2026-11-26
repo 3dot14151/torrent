@@ -19,8 +19,7 @@ GreenNet VPN - это бесплатный и неограниченный пр�
 ```bash
 magnet:?xt=urn:btih:DB4D12A0B98AFEEE360B79D399337B4BD6939775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unique VPN - это бесплатный защищенный прокси-се�
 ```bash
 magnet:?xt=urn:btih:7525C88949C600517539279DF1FCE63855058343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Xtra Power VPN - это сверхбыстрый и безопасный VPN-п�
 ```bash
 magnet:?xt=urn:btih:25475798F85AF11D383B801C5D36A5607782AC5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Erudite - это приложение для изучения английско
 ```bash
 magnet:?xt=urn:btih:80F061E0344A2481C0380027A0944B4B7C514E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Universal Copy v6.3.3 Мод by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FFE689AC0726013A54087E13E577468B29839A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:296813510C7BB940E1BEB3B4FBE12336240613A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

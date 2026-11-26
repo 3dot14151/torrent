@@ -22,8 +22,7 @@ VA - The Best Rock From Russia (Moroz Records Promo) (1994) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:05F8EA3B432FA4DCA9F1AC2706F6CFF9C45AB5E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82D896A4EEAF0EF5B6DAF9D39985F92E172C21DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

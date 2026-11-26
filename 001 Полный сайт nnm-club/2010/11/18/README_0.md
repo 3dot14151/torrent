@@ -27,8 +27,7 @@ Disc 1/2
 ```bash
 magnet:?xt=urn:btih:AEA0AFAD6027FB2FBDDA8A54C26F859037E87D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ VA - Royal Flush Vol.3 (2010) [MP3|192-320 kbps]<Progressive>
 ```bash
 magnet:?xt=urn:btih:67C07250CFE5AA1D705A47E4292AF25FAE99D045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ DVDFab Platinum is all you need to backup DVDs. DVDFab Platinum 3 is brand new, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Pee Wee Ellis - African Tribute to James Brown (2010) [MP3|320 kbps]<Jazz/Funk>
 ```bash
 magnet:?xt=urn:btih:C6A4CD35089FC64D8AED1564969F64CC6F563042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Lisa Ono - Asia (2010) [MP3|320 kbps]<Soft Jazz/Bossa nova>
 ```bash
 magnet:?xt=urn:btih:730CDC032D7A0EF8E3CA130C6E692B502269BC1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ VA - XXXL Русский  №11 (2010) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:0C9723060D9FC1A47DC46CCBBD1BF95EA61BB8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ VA - Клубные новинки осени-16 (2010) [MP3|320 kbps]<Club, Dan
 ```bash
 magnet:?xt=urn:btih:5566D6CAC9CD1AE488EE1EB1297426359556FE9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ McCoy Tyners - Guitars (2008) [FLAC|Lossless]<jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ Herbie Hancock - Takin' Off - 1962 (RVG Edition - 2007) [APE|Lossless]<Jazz, Har
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ Ella Fitzgerald - Pure Ella (1994) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:C053CAD45BAE8DC6ED3388309AD9514B08934F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ Al Green - I Can't Stop (2003) [MP3|256 kbps]<Jazz>
 ```bash
 magnet:?xt=urn:btih:1F81FBDFC2F5ED1EE6A4A3A964D6C9BB18ABCABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ Falco Graph - очень полезный инструмент для школь
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ VA - Ground-Breaking Blues: Blue Horizon Sampler (2009) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B984C43EE10DDE34BAA19F1AD3D2C533A62D6DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ Dee Dee Bridgewater - Keeping Tradition (1993) [MP3|256 kbps]<Jazz>
 ```bash
 magnet:?xt=urn:btih:0305DAFB35114549F782F677838FE58ABBA0EF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,8 +474,7 @@ NG: Великие миграции : Зов природы / Great Migrations :
 ```bash
 magnet:?xt=urn:btih:2A5A71BF4EB38C96218A6E20A0A0B164642066E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +508,7 @@ Lisa Ekdahl - Heaven, Earth And Beyond (2002) [APE|Lossless]<Jazz,Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +533,7 @@ Eguana - Mantra (2010) [MP3|320 kbps]<Ambient, Psy Chill, New Age>
 ```bash
 magnet:?xt=urn:btih:BA946FA16F393651FDE94362E4CF0676CDBB06DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ FotoMorph v.12.4.4 - это последняя, вышедшая 12 ноября
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ Loaris Trojan Remover - это программа, с помощью котор�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DDAFC919E3E5B13F6C65D2DB198BF2F5C40E695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ Will Bernard - Blue Plate Special (2008) [APE|Lossless]<Jazz-Funk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +669,7 @@ VA - Фестиваль Клубной Музыки 2 (2010) [MP3|128 kbps]<Pop 
 ```bash
 magnet:?xt=urn:btih:54A8A38BBC2B966992AE75F0F30B8408C8830633
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +696,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0824C391480A5940CDD5819478D5FACAB3452FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +721,7 @@ VA - Весёлый танцевальный музон (2010) [MP3|256 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:35EB0EEFCCED4F3C3CFB5A77C76AEA38D12FF21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -780,8 +755,7 @@ Paul Oscher - Bet On The Blues (Limited Edition) (2010) [FLAC|Lossless]<Blues>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

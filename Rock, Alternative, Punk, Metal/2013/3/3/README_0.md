@@ -28,8 +28,7 @@ Robert Rodrigo - Wrath (2012) [MP3|320 кб/с]<Instrumental Rock>
 ```bash
 magnet:?xt=urn:btih:A7E8B3AC701E7B5E90BB591A6D42F93DB8497A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Neaera - Ours Is The Storm (2013) Limited Edition [MP3|320 кб/с]<Melodic Deat
 ```bash
 magnet:?xt=urn:btih:FA1099F84249CFD084C373A25BA7026541558D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Oligoria - Рисунки Снов (2013) [MP3|320 кб/с]<Аlternative, Synth 
 ```bash
 magnet:?xt=urn:btih:EAF0D4029892CD0DF4A78544FFA581B5CCE7A324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Ocean Colour Scene - Painting (2013) [MP3|320 кб/с]<Rock, Britpop>
 ```bash
 magnet:?xt=urn:btih:97C62EDFFB3F7EF74E34C67C9FC1CC06F4067359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Shexna - Shexna (2013) [MP3|320 кб/с]<Doom Metal, Folk Metal, Industrial>
 ```bash
 magnet:?xt=urn:btih:2EC150D3D00B6339B390E4DCE352E31FE8554721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Shadow King (voice Lou Gramm, ex-Foreigner) - Shadow King (1991) [WavPack|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ CD1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Bonuses:(   Читать дальше...   )Жанр: Pop-Rock, Brit-PopПрод
 ```bash
 magnet:?xt=urn:btih:155B335C9CC37D7D6338BE515C22F063DFB574A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Stereophonics - Graffiti On The Train (2013) [MP3|320 кб/с]<Alt.Rock, Britpop
 ```bash
 magnet:?xt=urn:btih:117CFE070AE09C4047C1D73F097AF00DA11A1621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ Buckcherry - 6 Альбомов (1999-2013) Дискография [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +367,7 @@ CD 1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

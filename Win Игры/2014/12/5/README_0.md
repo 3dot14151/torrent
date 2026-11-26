@@ -19,8 +19,7 @@ Christmas Stories 3: Hans Christian Andersen's Tin Soldier (2014) [En] Unofficia
 ```bash
 magnet:?xt=urn:btih:0AB47D2E9B5424CEF0FE204C1409E6A3CEB9F4E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Weird Park 3: The Final Show / Таинственный парк 3. Послед
 ```bash
 magnet:?xt=urn:btih:AC036E0D0ABB10718598742CF52881EFDBF2F9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Betrayer - это экшен-приключение с видом от перв�
 ```bash
 magnet:?xt=urn:btih:6B12FF8642403A721AF2611C1170EAD6D0B94BD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Diehard Dungeon – классический «рогалик» с генери�
 ```bash
 magnet:?xt=urn:btih:3547388A07D28B4D38DCD1EA84D8CEC61BA0C3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Afterfall: Reconquest - это проект в постапокалиптиче�
 ```bash
 magnet:?xt=urn:btih:FCF3A1AEBDA16279F5703580D8D5C52495E6E596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

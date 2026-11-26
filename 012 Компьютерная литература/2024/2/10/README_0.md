@@ -20,8 +20,7 @@ The Little Schemer – не просто введение в функциона�
 ```bash
 magnet:?xt=urn:btih:B01D22D357B8C7A9BE9E62EFDE6EEF9175D1C8BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ August Lilleaas | Pro Kotlin Web Apps from Scratch (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:6579BD7AE089F0B1B72FF28B27C1D6CA645E5468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Nanik Tolaram | Software Development with Go (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:514D18A4E815FBB761CCFBB27926929EFAC17C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

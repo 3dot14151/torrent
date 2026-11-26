@@ -19,8 +19,7 @@ QontrolPanel — это расширенная аудиопанель для Win
 ```bash
 magnet:?xt=urn:btih:0512DC21213DBCEB8D10E1FC22E08C28CFC07408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Zettlr 4.9.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6C5AF31C02F720E4315A2C7566FADF7D9039CCA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Text Editor Pro 37.4.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7024E4DB24AB15BF207BC132ECB1F1C86AACC3A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ EaseUS PDF Editor Pro — многофункциональная програм�
 ```bash
 magnet:?xt=urn:btih:6C1A72E5E14A2111CE22F2DA0F8DE7AADCBE0ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

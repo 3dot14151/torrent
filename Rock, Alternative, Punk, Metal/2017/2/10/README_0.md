@@ -22,8 +22,7 @@ Nth Ascension - In Fine Initium (2016) [FLAC|Lossless|image + .cue] <Neo Progres
 ```bash
 magnet:?xt=urn:btih:C9034100FF145FDE8EC342CFA58271F985DADE91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Eyesberg - Masquerade (2016) [FLAC|Lossless|image + .cue] <Neo Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:6AF24CA7422E5C6C331B2CF4281CA9BD9D950FD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sleepytime Gorilla Museum - In Glorious Times (2007) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:C481829BC6618E0811D40F3F206C7CE76F3E3285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Apofenia - Peste (2016) Demo [FLAC|Lossless|image + .cue] <Death, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E855D0E737026EED82DCF0950E08AF4D32B2B7FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Poor Genetic Material - Absence (2016) [FLAC|Lossless|image + .cue] <Crossover P
 ```bash
 magnet:?xt=urn:btih:A9D41407556053A6CDE20A96821E2C3621363D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Cat Stevens - Morning Has Broken (2001) [FLAC|Lossless|image + .cue] <Rock, Folk
 ```bash
 magnet:?xt=urn:btih:A01C7A31F828573F700E5164C8229D64412E77A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Horisont - About Time (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Ro
 ```bash
 magnet:?xt=urn:btih:FDEAEC688D31BF19633E4CC06C915D06F5E38ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Ballbreaker - 3 альбома (2000-2009) [MP3|128-320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B95E89A5B1E159E913C54390F1F7E8BD2AF82B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ R.E.M. - Reckoning (The I.R.S. Years) (1984) Reissue, 1992 [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:70581604C8D2DA9DB882279B3C357D67A373C60F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Aeternam - Ruins Of Empires (2017) [MP3|320 Kbps] <Melodic Death Metal, Symphoni
 ```bash
 magnet:?xt=urn:btih:F842C4E8DF3E9010F63103A0011AD4682F578353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Tomy Iommi - Iommi (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6D821FCB9EF107E27E7FA2FE855FA76200CD031C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Cranial - Dark Towers / Bright Lights (2017) [MP3|320 кб/с]<Atmospheric Sludg
 ```bash
 magnet:?xt=urn:btih:23286F462C02C68A40DB86CE51E9DA0A3A7F0388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Overkill - The Grinding Wheel (2017) Scene [FLAC|Lossless|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:BEB3FB3690DA8CCBDFFE5F64772859F6D37D8AA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

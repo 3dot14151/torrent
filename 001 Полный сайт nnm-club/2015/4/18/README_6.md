@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:124ECAA084F24D9E9E594F7DD316F404BB0172E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F87805790EAC290E9F22DFC529406EA7145D7F01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Windows 7 SP1 RUS-ENG x86-x64 -18in1- Activated v4 (AIO)
 ```bash
 magnet:?xt=urn:btih:FA3789E91D578A6A876A008CD5C12256939DAA95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

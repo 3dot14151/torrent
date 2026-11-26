@@ -19,8 +19,7 @@ Drox Operative 2 – игровой проект, исполненный в ро
 ```bash
 magnet:?xt=urn:btih:5A029C9921B7FB430BC7862072518529468A3736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

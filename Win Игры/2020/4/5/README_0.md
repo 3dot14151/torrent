@@ -19,8 +19,7 @@ Pode — это приключенческая игра с элементами 
 ```bash
 magnet:?xt=urn:btih:07FF578B0539007832FA9EB1A29466F54BB7F887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

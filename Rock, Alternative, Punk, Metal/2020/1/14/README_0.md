@@ -22,8 +22,7 @@ Twenty One Pilots - TOPxMM (The Mutemath Sessions) EP (2016) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:FDABA3A5218EE7597128403A5D5B60594031B09C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

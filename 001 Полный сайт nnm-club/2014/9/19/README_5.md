@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:38C8AE3FF197160F3C744558A84539E587E1F7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ ITVDN | HTML & CSS (2014) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:E246680B4FB51C2BB72EFE9244F5352C7D87E280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC2F1D3ED792738D725C27A3244F69C22DFCB91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F347A87A05E28F486BCEAA3365FB7B2850741706
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D3C895AB005E3891DCB2BFC44F778AE8FA302E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ SQL - это язык структурированных запросов, пр�
 ```bash
 magnet:?xt=urn:btih:EECDC810F1922B27CB1DEC72FB4918B87A36B663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ NVIDIA GeForce Desktop 344.11 WHQL + For Notebooks [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4976AD05B681194C8A4A6669196F1FFDC8D81C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Acronis Universal Restore обеспечивает гибкое аварийно
 ```bash
 magnet:?xt=urn:btih:420CCA1C2D729368EB115572480F3BB1F698DC30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EFAFC6762071DF760CA29C37056E52F483D7F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A05EA1483D6D157ED912F33FD70B31FC7516D5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE0EB1D39E972958802AC9298C90D7A3D03A10C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Garmin: City Navigator Russia NT Navicom 2015.30 (сентябрь 2014) <Ru>
 ```bash
 magnet:?xt=urn:btih:F57D5B1CB6104C40CA2EA0D0BA65D60178838DE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FD807B6265FDF29E27431C7B23229D030B9B114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Sniper Elite III/3 (2014) [Ru/Multi] (1.10/11dlc) SteamRip R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:B39ED558FE8DAD63A322EBD93A27BC79EF761208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ OS X Mavericks содержит более 200 новых функций, вкл
 ```bash
 magnet:?xt=urn:btih:4C887E73CD37228D8DC0746315501EDC289ACC51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

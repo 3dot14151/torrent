@@ -19,8 +19,7 @@ GRAVEN (2021) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2AD65E73927FF22EC43AC9BA4AA9CAEEC8A15263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (16.0.2.0/dlc) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:586C47B24FEAF8466980CFBBA0716D9FA024DBD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Apex Heroines - это научно-фантастический ролевой 
 ```bash
 magnet:?xt=urn:btih:32901196F725C41782E1A2AC90B4810757BAAB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

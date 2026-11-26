@@ -19,8 +19,7 @@ Print To Word — печать из любого Windows приложения в
 ```bash
 magnet:?xt=urn:btih:4DDB98A14F8CC1ED4025610F95E4B3B00B88BEE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

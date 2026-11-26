@@ -21,8 +21,7 @@ Photo Collage Editor v2.16 Ad-Free [En] - Фото коллаж редактор
 ```bash
 magnet:?xt=urn:btih:585FB173AFE53B570ADB4C74059A83FD9AD0C9B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

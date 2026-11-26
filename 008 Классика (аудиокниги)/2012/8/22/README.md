@@ -28,8 +28,7 @@ Vita Nuova
 ```bash
 magnet:?xt=urn:btih:9EEE8AB6B6DDB304911A7651BE6251D9758ACDEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

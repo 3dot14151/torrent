@@ -19,8 +19,7 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:8ACA6943E2C110824F2CB67F08D29A896376BACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:E88795B032475675862FFA0F8267EDD1EC314CD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ SupRemo 4.11.4.2831 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:984E398DE460AAC37A64DED24002081CAB1C2D8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ ChrisPC Win Experience Index - бесплатная утилита, с помо�
 ```bash
 magnet:?xt=urn:btih:69871DEA44953EEA735005401AAF213ABC8E8E42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

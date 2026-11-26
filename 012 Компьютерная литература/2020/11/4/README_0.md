@@ -19,8 +19,7 @@ Asterisk - это платформа конвергентной телефони
 ```bash
 magnet:?xt=urn:btih:C158A0D133E9D758A1AE7EAA02F5786AE4A67A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

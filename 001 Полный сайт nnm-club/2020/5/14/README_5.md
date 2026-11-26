@@ -20,8 +20,7 @@ Sunabouzu | Desert Punk | Пустынная крыса [2004, TV, 24 эп.] DVD
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ My Friend Pedro - это жестокая смесь дружбы, фантаз�
 ```bash
 magnet:?xt=urn:btih:A2B79B6819D7DD34B1386A016C0106436D83E548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Microsoft Windows 10.0.19041.208 Version 2004 - Оригинальные обр�
 ```bash
 magnet:?xt=urn:btih:0F49E6840F7C774E26C0102B60AA79FDC98E83A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

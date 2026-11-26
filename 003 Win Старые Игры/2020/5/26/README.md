@@ -19,8 +19,7 @@ Warhammer 40000: Dawn of War – Dark Crusade (2006) [Ru/En] (1.2) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9F5A1A54ECA5344ACC5F910C315EC282094CEE64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

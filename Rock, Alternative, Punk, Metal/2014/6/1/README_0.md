@@ -27,8 +27,7 @@ Canker - Exquisites Tenderness (1997) [FLAC|Lossless]<Thrash Metal / Death Metal
 ```bash
 magnet:?xt=urn:btih:924340C1E9140303147995684656AD098E2E0EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Bajo Presion - Elkarrekin (2014) [MP3|320 кб/с]<Melodic Hardcore, Punk>
 ```bash
 magnet:?xt=urn:btih:A055ECF2F5F1E0D33B96AB4488DDC819BF2D22D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Noctem - Exilium (2014) [FLAC|Lossless]<Black / Death / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:94932178C888C465D2310CE333D034C78099F9B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ King Hobo - King Hobo (2008) [FLAC|Lossless]<Stoner rock, blues rock>
 ```bash
 magnet:?xt=urn:btih:D23FF26AC7342463CFE1C31F271568C389259008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AF2372610DCB8EAF1B904F1100BFDF2FD850BCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Structures  - 3 Альбома (2010-2014) [FLAC|Lossless]<Progressive Metalcore
 ```bash
 magnet:?xt=urn:btih:68549D809C15CE732F5FBD255D6C69A847FB651C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Breach The Void - The Monochromatic Era (2010) [FLAC|Lossless]<Modern Metal | In
 ```bash
 magnet:?xt=urn:btih:BC7749BDAAE31FBB38C69246E0F6D65F4549C644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Endast - 3 Альбома (2006-2014) [MP3|320 кб/с]<Melodic Death Metal, Met
 ```bash
 magnet:?xt=urn:btih:0EDE5C2B3DB4DC9661C665EF355383E4DDC85A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Hollow - Mordrake (2014) [MP3|320 кб/с]<Melodic/Sympho/Black/Metal>
 ```bash
 magnet:?xt=urn:btih:CB1D4227EA80F9B2ACD84839368E38F4761B1533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ WAMI - Kill the King (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:83A782B141A103452D113EE4EB53A6101843F560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +367,7 @@ Powerman 5000 - Builders Of The Future (2014) Deluxe Edition [FLAC|Lossless]<Ind
 ```bash
 magnet:?xt=urn:btih:B005612AEF1E4C0236B4D82F27A7220065C79F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B518442719CAAAFDBCDC7F7C72166BE68A930C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +435,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:5F01BA49C6EB29FEC5827CFDBCD7F41708317B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4762357591FEC4C8A48A61F0F528FADCE2BAEA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

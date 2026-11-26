@@ -19,8 +19,7 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:4F7A59AA41F871CD5452349DA9AEEE32EE1AEDFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ r3dfox — это форк веб-браузера с открытым исхо�
 ```bash
 magnet:?xt=urn:btih:109C4B655E625AB8D340566E6775FFC63EF7B8C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ DiskSorter — это решение для классификации файл�
 ```bash
 magnet:?xt=urn:btih:6FBE60862057626CE4E13DEB0AECA4AD635A92AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ KLS Backup 2025 — это мощная программа для резервн
 ```bash
 magnet:?xt=urn:btih:D77E84F303B0A732D31F7F7E48D43423CE316ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Pale Moon - веб-браузер, созданный на базе популя
 ```bash
 magnet:?xt=urn:btih:14A9808C9820BD06B5CF5C34BDCF064A90A85544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:DD262BF37F5295A829D2E90499E426A7920ABD0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:3696E5854DED06703843B7862367F437B99B094D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:7EE141AECE1DF005984BF319AFF509361F8D7392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E07B153E183DD32C49F917780DDFE15260D0BA6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Typora — это лёгкий и удобный редактор для соз�
 ```bash
 magnet:?xt=urn:btih:E78135420EEE4F60DE378DBAA35755FE279C12B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ TreeSize Professional 9.6.1.2156 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:96862B30F210DBC941CCDA0BAF9B99A4249D2D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r27 Portable by Ratiborus [Multi/
 ```bash
 magnet:?xt=urn:btih:388C4E25271A680E6886C453DD0F88308E479E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Office Installer - программа предназначена для online �
 ```bash
 magnet:?xt=urn:btih:4146E0391090631FA88E9B1A34F618D7F612680A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ RAM Saver Pro - инструмент для профессионального �
 ```bash
 magnet:?xt=urn:btih:ED00104B14F98563BB3CCFF4A49233F5A0399FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ iTubeGo YouTube Downloader 10.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DC69F0C4D0F2932EA5D83991BB8EE9843ED40187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:70886001F68EE060D07A3DA7ADFCEB3A0300DE11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Halloween Stories 6: Mark on the Bone (2022) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:8E06E832A43BD609C3C5ED13A539A34AE25B923C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:7F5D2AB68968F22B1163C015B0AF00189D365981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

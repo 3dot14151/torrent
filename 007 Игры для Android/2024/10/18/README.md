@@ -22,8 +22,7 @@ Botanicula 1.0.274 [En]
 ```bash
 magnet:?xt=urn:btih:30A30E1232A8F553F7EAE3B7D8371AB2DF63CB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

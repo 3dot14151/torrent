@@ -19,8 +19,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.1.0246) License PROPHET
 ```bash
 magnet:?xt=urn:btih:6FB65F40007F3CFE5A4EB492662F3373E27DDCDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dreamfall Chapters (2016) [ui/sub/res] (5.0) Unofficial Well-DING! Team & ZoG Fo
 ```bash
 magnet:?xt=urn:btih:1614FFEB7A29070D282CD45B43482126511CE72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ABC Murders — это приключенческая игра с расслед
 ```bash
 magnet:?xt=urn:btih:F5A84249B107F0DB2A317E1F8A87956B74FAF7B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan – новая часть п�
 ```bash
 magnet:?xt=urn:btih:299675690B92E9283D50B2B3D3C9E9F90C9D60E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

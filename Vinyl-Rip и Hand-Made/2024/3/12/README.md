@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8B7D25F78F67B5744FF1B35E8441ABFB0A9706BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Игра в четыре руки. Песни Аркадия Укупник
 ```bash
 magnet:?xt=urn:btih:C57324459DB32E1B7E0B60D2FAE394596B7F6D6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 19
 ```bash
 magnet:?xt=urn:btih:0DABBDA1C30A4E68942C9FF76B67A1242FFC5F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Вот какая любовь. Песни Романа Майорова (1
 ```bash
 magnet:?xt=urn:btih:A65C69B8CF1B593D0C3288F40138AF7AC02CBA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Rock Aid Armenia - 4.05
 ```bash
 magnet:?xt=urn:btih:5EAF8C756B44B0BEA471600D6EE542F604D8A940
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ A4 Milano Mosh(   Читать дальше...   )Жанр: Hardcore, Speed Meta
 ```bash
 magnet:?xt=urn:btih:D2F1C0DC43523F75025E56E39A7FF97DE4443737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ A4. Milano Mosh(   Читать дальше...   )Жанр: Thrash, HardcoreП�
 ```bash
 magnet:?xt=urn:btih:00F5387B593C58308B580708704B1BCF20331AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ A4 Accumulation Of Generalization(   Читать дальше...   )Жанр: D
 ```bash
 magnet:?xt=urn:btih:2523D09A782DCF7C877C9AFF55E5B43EF46400EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Amaranthe — шведско-датская метал-группа, основ�
 ```bash
 magnet:?xt=urn:btih:C187AFE3A42EE0DF0642798F4B67B4D45187BF44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Toto Cutugno - Тото Кутуньо (1985) [FLAC 24/96|Lossless|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:E026C8B93E41F2DD454D0DDC1584FC59C8A71824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Pressed By – Ленинградский Завод Грампластинок(
 ```bash
 magnet:?xt=urn:btih:126B3A68B60E3F18C3C0765E9D2D8A07736271F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B9C0376F5D25C7D3478792AEC8F4716AB4E6C99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ The Shocking Blue - Golden Hits (1991) [FLAC 24/192|Lossless|tracks] <Classic Ro
 ```bash
 magnet:?xt=urn:btih:67C3F7DE59797203D595855C2402E1F08BB0979A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ The Beatles - Magical Mystery Tour, Yellow Submarine (Волшебное таи�
 ```bash
 magnet:?xt=urn:btih:96C5536862A076106547220FC45BFBE996D92805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - А любовь жива (1980) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 ```bash
 magnet:?xt=urn:btih:2EBC25FE439715ECCCBDF461F3A7B6D610E0486A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

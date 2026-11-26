@@ -19,8 +19,7 @@ Max Payne 2 - продолжение игры Max Payne, одного из лу�
 ```bash
 magnet:?xt=urn:btih:172A3ED3FE452C30542112AC6A35D34245CB1D47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:7C72F3C5584AB1C75F2B3522DF609D8FC308C0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ POSIX-совместимая операционная система реаль�
 ```bash
 magnet:?xt=urn:btih:7B9F102C45182B30C68CF3526BA09C10B40105FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ POSIX-совместимая операционная система реаль�
 ```bash
 magnet:?xt=urn:btih:3BCD7F32FC07F5FF5086785E49E75A55DBFDDC61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

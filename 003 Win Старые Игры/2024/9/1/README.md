@@ -19,8 +19,7 @@ Far Cry: Far Cry Irina Go 2 (2022) [Ru/En] (1.0) Repack/Mod Bert-Masters-Studio
 ```bash
 magnet:?xt=urn:btih:8D96998DA8E71BBE9BDB700AFBEC47F5432DB5BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nancy Drew: The White Wolf of Icicle Creek - приключенческая иг
 ```bash
 magnet:?xt=urn:btih:A14E4DE99D7F4D0C8CC169E03D5DE5D05F20F4AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Nancy Drew: Last Train to Blue Moon Canyon - детективная игра п�
 ```bash
 magnet:?xt=urn:btih:1610B7704BDEF3910C0AFDA1D7ACD26CD6A78C31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Action SuperCross – это динамичные мотогоночные за�
 ```bash
 magnet:?xt=urn:btih:FABD215AD9D476FD498FDE4B39097A7D840078BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

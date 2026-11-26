@@ -19,8 +19,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:49C2978FE9C34D2E329649ACB295EA854D6B55FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Redundant (2025) [Ru/Multi] (build 16931999) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:ABEA12E3CB8242504239189ADAE83E86CE9BEA92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:BEDE4964A1CDB7209403177C4A528D808E27D6F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bloodstained: Ritual of the Night - это игровой опыт ориент�
 ```bash
 magnet:?xt=urn:btih:FDB5E0CA3EB70259EAB7AEE97DCA8170F8753E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:0C8B55C61489B3824719F4B8677584E222692451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Book of Demons это гибрид Hack & slash и карточной игры, 
 ```bash
 magnet:?xt=urn:btih:771B3D14B64F8B6819F2E61DBF29703513E7A55E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Carnival Of Souls (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:794D74826AAF770E1755682116BA513DD5D8CFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Momodora: Moonlit Farewell - новая игра из серии Momodora. От�
 ```bash
 magnet:?xt=urn:btih:106F550C50ED7638601B559157D79075ED4AC96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

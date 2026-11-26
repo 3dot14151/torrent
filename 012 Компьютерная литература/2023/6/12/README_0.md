@@ -19,8 +19,7 @@ Dr. Nilesh Bhaskarrao Bahadure | Python for Everyone: Learn and polish your codi
 ```bash
 magnet:?xt=urn:btih:2CD78FAD090862F95405B447485A7D8B7BB9025E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

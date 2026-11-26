@@ -19,8 +19,7 @@ Psychotoxic: Gateway to Hell / Психотоксик: Врата Ада (L) [Ru
 ```bash
 magnet:?xt=urn:btih:788E8EF51E2188BEF6E33A3222BC6F11E8F30300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

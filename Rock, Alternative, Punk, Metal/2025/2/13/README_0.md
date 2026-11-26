@@ -22,8 +22,7 @@ Prehistoria - Cryptic Halo (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Me
 ```bash
 magnet:?xt=urn:btih:D050AAEB67C72FE6F8595C86C61BD0A8AE78C949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Phear - Save Our Souls (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal
 ```bash
 magnet:?xt=urn:btih:1873E9412E5A9250B252013C6F9499582D52FD71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Harakiri For The Sky - Scorched Earth (2025) [FLAC|Lossless|image + .cue] <Post-
 ```bash
 magnet:?xt=urn:btih:2B8E98E2F1E2E2407D99542BE1D32B9E8295F8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Great Old Ones - Kadath (2025) [FLAC|Lossless|image + .cue] <Atmospheric Bla
 ```bash
 magnet:?xt=urn:btih:39BBE3CDDD34FC7696C4454BFEBDB80E349704EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Soltur - Ride as One (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:37E3E8A9AD7E976EF47BFED578648410EE2937C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

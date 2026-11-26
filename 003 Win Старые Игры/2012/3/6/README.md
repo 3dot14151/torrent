@@ -19,8 +19,7 @@ Medieval Conquest / Герои и чудовища (P) [Ru] 2004
 ```bash
 magnet:?xt=urn:btih:35232BEF2B11A21542D1C3974B51159B3AC5B90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

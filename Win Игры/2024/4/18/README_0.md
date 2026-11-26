@@ -19,8 +19,7 @@ Jupiter Hell (2021) [En] (1.8h) License GOG
 ```bash
 magnet:?xt=urn:btih:178376877A3498A582A21A70A8117AF81BD1AF2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Die Again – инди-экшен, использующий несколько �
 ```bash
 magnet:?xt=urn:btih:01C9B506C8FAE40B36751FE585BD5851BB6DD44C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Yet Another Fantasy Title (YAFT) - это изометрический роле�
 ```bash
 magnet:?xt=urn:btih:AE5FBD4AAAD7FD088EDEA4751616E293DAB99CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ One Last Dinner ставит вас на место знаменитого де�
 ```bash
 magnet:?xt=urn:btih:FA732726906CC865C4A540575F9E78414BEA7EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Repack FitGirl [Dual Edition]
 ```bash
 magnet:?xt=urn:btih:A535CDEBBD2822E9C90F1DD785A406684BE57BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Seed of the Dead: Sweet Home переносит геймеров в сеттин
 ```bash
 magnet:?xt=urn:btih:75022139D56C23C477A820EFFA68BAF6AD8535D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Purpose 1951 переносит вас в мир отставного врача
 ```bash
 magnet:?xt=urn:btih:13E36B05C9245E25A06167C7A62B31BEAE5AD338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

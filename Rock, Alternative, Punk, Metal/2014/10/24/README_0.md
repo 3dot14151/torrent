@@ -28,8 +28,7 @@ Lonewolf - Cult Of Steel (2014) [MP3|320 кб/с]<Speed Metal, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:41FCD37B65A7E83442B6086F7DB81A1320247382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Crucified Barbara - In The Red (2014) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B94E25D52279674613DE933DED6B131B2CCF5E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:4A3EE00CE888BA84F1A45967BC2FFC7E8D25E966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Jerry Lee Lewis - The Gallery Of American Rock'N'Roll vol 6. 28 Great Song (2001
 ```bash
 magnet:?xt=urn:btih:D068CB0B673DA2F1F825ADF2AC40DDB189369EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Lagwagon - 10 Альбомов (1992-2014) [MP3|320 кб/с]<Punk Rock, Skate Pu
 ```bash
 magnet:?xt=urn:btih:DE12A4F4B300494853626A5B4235719F868DF265
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ The Butterfield Blues Band - East-West (1966/2014) [FLAC|Lossless]<Rock, Blues R
 ```bash
 magnet:?xt=urn:btih:656DEEB3C80E0E16025D4B67FADE91A454FCE9FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ The Platters - Unchained Melodies (1998) [FLAC|Lossless]<Rock'n'Roll, Rockabilly
 ```bash
 magnet:?xt=urn:btih:047E9AECADBA1062C561519BAC203EBC10531D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Genesis - R-Kive  (2014) 3CD [MP3|320 кб/с]<Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:AD4F51E2C619F856623C5B8332EC34CB858C01E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ Status Quo - Aquostic: Stripped Bare (2014) Deluxe Version [MP3|320 кб/с]<Cla
 ```bash
 magnet:?xt=urn:btih:B9A94893674CD0D06C53298B858F72982BF08E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ Megaherz - Zombieland (2014) Limited Edition Mediabook [MP3|320 кб/с]<NDH, In
 ```bash
 magnet:?xt=urn:btih:00200E72A5CC0C0F40FF3C7DAF73AAE933CD6B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

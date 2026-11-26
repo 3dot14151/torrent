@@ -22,8 +22,7 @@ Artaius - Torn Banners (2015) [MP3|320 кб/с]<Progressive Folk Metal>
 ```bash
 magnet:?xt=urn:btih:178FE0107D01D4C3E065A8EF6F659F696529C191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Masha Qrella - Luck (2002) [OGG|403 - 465 кб/с]<Alternative/Indie Rock, Indie
 ```bash
 magnet:?xt=urn:btih:AEE5BDDB80332B76DB75E76A6CD0370BC0626A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cain's Offering - Gather the Faithful (2009) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:04F33EB0AE8E19CADDABBA4588FCC32437B60E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F22CF1A9B1D53279D89288AF213460C505620D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC9CC83E532DF4F0095C3D541C9D6BAAB4F8C644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D12AA2D2D504AA7BACE2D6F8FD914D04215517C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

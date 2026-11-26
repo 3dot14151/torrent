@@ -18,8 +18,7 @@ Freemake Video Converter - бесплатная программа для быс
 ```bash
 magnet:?xt=urn:btih:5F80657CBBD605A43488ED5B8963AC2266540559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Авто Дискотека Без Тормозов! 50/50 (2013) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:CCCF8F36E06D265B1C75E04DEC964E9CADDD2AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Dwell - журнал, представляющий готовые проекты
 ```bash
 magnet:?xt=urn:btih:3FC678E6419833B0A9647B6DAA960F96EA4E2061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA9377121EDB5D3B447405E99055A04B9C5602A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Dance of Death (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:9DB5C96305AF696D200AF00EAAF71EC6EA3EA8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:025913816F6105248B11D936C002BF60050D4261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ VA - World of Goa Vol 1 (2013) [MP3|320 кб/с]<Psy/Goa Trance>
 ```bash
 magnet:?xt=urn:btih:A24762132D4DF7B50E7A97CA410AA92AA14C23EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ VA - Pure...Country (2010) [MP3|320 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:96B712FF0A1C8C4F064039D68C63DF7CF61453A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +259,7 @@ VA - Chillout in Ibiza Sunset Sensations (2013) [MP3|320 кб/с]<Downtempo, Chi
 ```bash
 magnet:?xt=urn:btih:7E65BEF659BF33A4C8CDE6E60C890F1D285B875D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ Franco Morone - 8 альбомов (1990-2010) [MP3|256-320 кб/с]<Instrumenta
 ```bash
 magnet:?xt=urn:btih:2E764AE07FBF582BEB9CAC3C3F1D1549B778E1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D47B62861630F36EA132C6D2F5D8A16946600A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ Unmixed:
 ```bash
 magnet:?xt=urn:btih:25AC70261C8AFED3601CF4128819879FDE2C317D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E55072BFDEDF3EFD1B2A61C0E80B34396891986C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ VA - Chicago Blues Ballads (2013) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:1EC8FBE8BDF92558DA1D68BB7DD287E2F7C6C5DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:768933D19EA6E8DC4B8BF258EAE1E00424ADD572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ VA - Радио Record Superchart Top-33 (01.09.2013) [MP3|112-320 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:8D0C81475F56A47967E18EE16613C8430DE1C202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +496,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:06F405E3ECC37F3BE4B39E5886590B8B4CE09900
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +521,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25F6B207BE30723EA4B728A6E758D2D37D824C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ VA - JES - Unleash The Beat 2 (2013) [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:8B165C53E73EFD32C6B1EED4222A0198100D3080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A69776C78363336DEDD6B5BFC27E32A656D61D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:628208D98D18CAB9AD908FD816F758C09F2173E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC0B261E98401BA79F48308EF5AC6702DC86A497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ Van Halen - Balance (1995) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D15E686687B68826E10F3823D9E2808862A279BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +704,7 @@ Willie Nelson - Wynton Marsalis - Two Men With The Blues (2008) [WavPack|Lossles
 ```bash
 magnet:?xt=urn:btih:A9CF3CD7419842C34658E3F4DBE0447872CD4038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +738,7 @@ VA - Future Jazz Cafe Vol.2 (2013) [MP3|320 кб/с]<Downtempo, Future Jazz, Lou
 ```bash
 magnet:?xt=urn:btih:B8E739FBC762E2CC86C99845CE042C4CC057B252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -797,8 +772,7 @@ Mariah Carey - The Essential Mariah Carey (2012) [MP3|320 кб/с]<Pop, R&B>
 ```bash
 magnet:?xt=urn:btih:9082644F87247BD64EE0541416AF7225572FCA16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

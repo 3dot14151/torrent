@@ -19,8 +19,7 @@ False Hero (2026) [Ru/Multi] (26.9.14) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8A87D50CDFFA65899D413E3F27C48AE3DFA135DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Land of Glarefall - это игра о выживании в опасном ми
 ```bash
 magnet:?xt=urn:btih:EA79E8178E492766D6F789B0A32A3CBF34E03291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gears of War: E-Day переносит игроков к событиям Дня
 ```bash
 magnet:?xt=urn:btih:2BFBF9B0EDD1595099711F9AE50E122DCC5539D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gears of War: E‑Day - это приквел культовой серии, �
 ```bash
 magnet:?xt=urn:btih:0A6C044CEDB71A422BC88615B28FEA92E520F6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Gears of War: E‑Day - это приквел культовой серии, �
 ```bash
 magnet:?xt=urn:btih:05ADA45DB37EF9D8E8A2CB89B3BC5F07F1766E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Way of the Hunter 2 (2026) [Ru/Multi] (1.0a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:6E69A0DDD0A60B1C55CC3BBAD669BA73A7255EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

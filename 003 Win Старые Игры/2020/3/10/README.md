@@ -19,8 +19,7 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (Beta, 1.00-1.
 ```bash
 magnet:?xt=urn:btih:07D884E7FF6A6B0E67DA29F9DBECA1EFF8970EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) U
 ```bash
 magnet:?xt=urn:btih:35F93C0966FAFCB03B2C8B220BCBE0C0CBDB8BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) U
 ```bash
 magnet:?xt=urn:btih:DF1F4359B6DE4297328ED14A1CBE2D1298F2B8B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

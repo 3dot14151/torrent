@@ -19,8 +19,7 @@ Unsolved Case: Fatal Clue / Нераскрытое дело: Роковая ул
 ```bash
 magnet:?xt=urn:btih:56C5FF23BFF8C50BA9F6F5D2CD4C12E37DD98658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

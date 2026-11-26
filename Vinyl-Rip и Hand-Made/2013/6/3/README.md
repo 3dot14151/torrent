@@ -28,8 +28,7 @@ B3 Faces t 3:51(   Читать дальше...   )Жанр: New Wave, RockПр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ La Bionda - Collection (4 LP) (1978-1980) [FLAC 2.0 24/192|image(Vinyl-Rip)]<Ele
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Radiorama - итальянская группа, основана в 1984 год
 ```bash
 magnet:?xt=urn:btih:22197AA25BE8545C4DDFD7E910F1981A81BD0442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

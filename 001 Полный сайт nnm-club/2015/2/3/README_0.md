@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1865A77C7330D019CA0F49C7744F0A2429C070CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ VA - Die Karneval And Fasching Hits 2015 (2015) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:9584061AA62F0A3B7CB0C5ACB9A187E579687AE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Marcus D - Simply Complex (2014) [FLAC|Lossless] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:10C8120924672A8C2FE23826B1932004BB8AB3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:541449D4FD98318FD5E9888EC957969FDF3B9DA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Jonny Faith - Sundial (2015) [FLAC|Lossless|WEB-DL] <Broken Beat, Nu Jazz, Downt
 ```bash
 magnet:?xt=urn:btih:4C78B32825FBA64963FD3C300A0A7E8FE2311EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Trifonic - Ninth Wave (2012) Digital Plus [FLAC|Lossless|WEB-DL] <IDM, Glitch, D
 ```bash
 magnet:?xt=urn:btih:8D558EAA00B51E935E7BAA0A5370E5910B787EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1053E634398E4347BDE946DD22A91EB33761DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A33CF2A02A5580E5CB2437233AE3BA87B57984C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09E485A3D6E141A5014711D2087E4C5E80ED546B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ InfoCity – ежемесячный журнал о компьютерной т�
 ```bash
 magnet:?xt=urn:btih:DC212D51CB8B7FD4E9C7799E4F332D56E32A620D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Demis Roussos - Forever In Your Heart (2000) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:0C09FDDBC6E4B0783A403172920EF8586DDBE0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6907D3B93E1140E5899201422D683FA07B4DF5DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3D867A21C45C852DA3CFC9842C3BBB45EBD0ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA2575C429E9A26E0E82B3945009127E74EB92CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Shiver: The Lily's Requiem (2015) [En] (1.0) Repack Twisted EndZ [Collectors Edi
 ```bash
 magnet:?xt=urn:btih:92D46F3C667E79D863428C1745B6B1A8A212711F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:EE4D503B1FB676C39A40C40C01D04E0C15DBE932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AB0F2809FCEE879C06CF17706A9FBA69FC84322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Monophona - Black On Black (2015) [FLAC|Lossless|WEB-DL] <Indietronic, Trip Hop,
 ```bash
 magnet:?xt=urn:btih:48E516D55A3815DCFC4840B49B782CE6E16C1435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CDBE3C026FE08080B216CAE7D16C2DFAD6EA22D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ Chris De Burgh - Flying Colours (1988) [FLAC|Lossless]<Soft Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:77854E63AAB0C0C18D3F22082BC3EABD91159009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ Leah - Kings & Queens (2015) [MP3|320 кб/с]<Symphonic/Celtic Metal>
 ```bash
 magnet:?xt=urn:btih:4D6B451B5692E2450295A86BF13BD0A71EC695AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ John Tejada - Signs Under Test (2015) [FLAC|Lossless|WEB-DL] <Tech House, Minima
 ```bash
 magnet:?xt=urn:btih:5B09F6FFAF59DD2E6B47C8EFB94833162A50FB05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ Demis Roussos - Star Gold - Die grossen Erfolge (1981) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:6E87647F311A1AD0E3E924291F8BFC8C52CB7CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Indiana - No Romeo (2015) Deluxe Edition [FLAC|Lossless]<Indie Pop>
 ```bash
 magnet:?xt=urn:btih:65DED1C307D0A05A58FD06F65FEAD6FCB1A71A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E09801D7ED9FF1BD8B036465A2EE8694784C20F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -719,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BAF0E6EF04562FF60EA283215B597EF648AA402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

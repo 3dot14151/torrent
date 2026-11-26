@@ -19,8 +19,7 @@ A Step-by-Step Guide to Mastering 2300 Characters is a complete guide to masteri
 ```bash
 magnet:?xt=urn:btih:966F8A8F12270C65B46E2D9C6A025081819171D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

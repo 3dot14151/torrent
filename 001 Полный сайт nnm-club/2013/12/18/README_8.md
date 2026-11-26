@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B921CB17A0227B8A82CE35DE568AA6A419B49122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ LittleBigPlanet: GOTY Edition / Little Big Planet: GOTY Edition [PS3] [EUR] [Ru/
 ```bash
 magnet:?xt=urn:btih:6F40B0A1DD94B1D79E8C31BBE20AAE677A2B9D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Hour 1:
 ```bash
 magnet:?xt=urn:btih:A4D69D0239906360522DDF5A45249207AA3B0C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:955FE8886C2AD96320C514806A4C872D58995A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ OnOne Software выпустил новый Perfect Photo Suite 8 для Adobe Ph
 ```bash
 magnet:?xt=urn:btih:C750D6B020699806788113D2A521CC2B2CFFB256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Assassin's Creed IV: Black Flag + DLC [XBOX360] [RUSSOUND] [Freeboot] (2013) | R
 ```bash
 magnet:?xt=urn:btih:524F594D6B01CBFA1B444DDA55C6ED8DB938E660
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Disciples III: Перерождение / Disciples III: Reincarnation (2012) [R
 ```bash
 magnet:?xt=urn:btih:CF5F659CD3E69DE329E1637AF5BA735E667D94F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:120A5A94099F5DA64B809D80606FD61175636ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ WPI x86-x64 by OVGorskiy® 12.2013 1DVD (декабрь 2013 г.) [Ru]
 ```bash
 magnet:?xt=urn:btih:35C249661BE8398144C9C4D6812CAC7C81243136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

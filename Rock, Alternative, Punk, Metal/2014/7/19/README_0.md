@@ -28,8 +28,7 @@ Avenguard - Eternal Battle (2014) [MP3|320 кб/с]<Instrumental / Heavy / Power
 ```bash
 magnet:?xt=urn:btih:020240EA25A0E620332F604134386738E0020A74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Charlie Daniels Band - Hits Of The South (2013) [MP3|320 кб/с]<Southern R
 ```bash
 magnet:?xt=urn:btih:6B238BCCD5CD4B13DC930DB09618BE3467EF668E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Dagger - The Dagger (2014) [MP3|320 кб/с]<Heavy Metal / Hard Rock>
 ```bash
 magnet:?xt=urn:btih:64A8999DDE450E9F572D30A234593AEFAA23691C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ John Illsley - Testing The Water (2014) [MP3|320 кб/с]<Rock, Blues Rock, Folk
 ```bash
 magnet:?xt=urn:btih:2EE40333699DF78F7B1D7DB951657091C321503E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Blues Pills - Blues Pills (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4825C255EF5C6744B1C411C0BE4720FB6C0ECD6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Tesla - Simplicity (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:398B65FD3DF3333DDC763E1D5CC8A7EC0CEE35C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ AC-DC - For Those About To Rock (1981) Remaster /1994, Atlantic Recording/ [FLAC
 ```bash
 magnet:?xt=urn:btih:B1919C77A7400BE145F7CE8752B46B65482463F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Anti Flag - 9 Альбомов (1996-2014) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:B3698FAF117DDDE9D792FBDCBBB60EE73B8262C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ AC-DC - Back In Black (1980) Remaster /1994, Atlantic Recording/ [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:27D27068515F62844C2224950F2190787990545C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ Maleficium Arungquilta - 3 Альбома (2010 - 2013) Дискография [
 ```bash
 magnet:?xt=urn:btih:5D6C7A2183A592D745AD4923596FD808753F850E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +365,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:E8BD96D13125C53C602C1F10F3669E9D1E42E0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E628DEA383AFF3E21855220F2C1669B33C73BC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

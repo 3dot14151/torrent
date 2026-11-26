@@ -19,8 +19,7 @@ File Explorer (Plus Add-On) — очередной файловый менедж
 ```bash
 magnet:?xt=urn:btih:4FC526BBDB6B0D33DE6BDC8597A8E09980744807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AC57DDAF7B6695B74D67AEBA225D6DDCC304469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

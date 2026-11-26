@@ -22,8 +22,7 @@ Auslogics Registry Cleaner - программа, созданная для по�
 ```bash
 magnet:?xt=urn:btih:E6C8C646594D398FE86E4726D193ADCFC6B90218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

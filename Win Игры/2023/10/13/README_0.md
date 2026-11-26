@@ -19,8 +19,7 @@ Gloomy Tales 2: One-Way Ticket (2023) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:8D91D58115A0F4213BAD942BE28E08E59444550D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paleo Pines (2023) [Ru/Multi] (1.1.26) Scene Rune
 ```bash
 magnet:?xt=urn:btih:18EB708DBC60A42C7932E4808EB0D6A09A333DBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Storyteller – это необычная головоломка, в котор�
 ```bash
 magnet:?xt=urn:btih:4862752B0D217EDD6DDABAD83227614249439BA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Torn Away (2023) [Ru/Multi] (12315550) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EB7F789992A95BC712EA84BAA12D39CD977B41C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Autobahn Police Simulator 3 позволяет вам играть за офиц
 ```bash
 magnet:?xt=urn:btih:BEDBFACB79626649BAA7B5D096A2F6173E642DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Blade of Immortality (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4A0D7BA723FAB178FD81C6949CEF1A4844B8F4B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (01.08.0000/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2F4DEC8A7447E653004FA618D14179D6DD849D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

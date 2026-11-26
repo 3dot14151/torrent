@@ -19,8 +19,7 @@ Reanimation Inc. Скорая Помощь - surgeon simulator , играй в �
 ```bash
 magnet:?xt=urn:btih:220AF9A95EB0FAF431D8A5A27F47AF8025ABC2D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Opera - это один из самых быстрых, безопасных и 
 ```bash
 magnet:?xt=urn:btih:9DE16FA0697CE20CA510288CB47083D422D689DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

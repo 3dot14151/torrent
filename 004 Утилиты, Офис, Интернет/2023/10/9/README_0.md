@@ -19,8 +19,7 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:F1630703938D0FAF330D88FF61496181A6262EDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Monitorian - маленькая и полезное приложение, поз
 ```bash
 magnet:?xt=urn:btih:77C2264A7BB8DBFF13EC7DFAF5AF6CAB4DAB00D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ MyPhoneExplorer — абсолютно бесплатный продукт, пр
 ```bash
 magnet:?xt=urn:btih:449EB81707FD39C503F9D0541CC9469C89CF0E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

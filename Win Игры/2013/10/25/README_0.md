@@ -19,8 +19,7 @@ Empress of the Deep 3: Legacy of the Phoenix Collector's Edition / Повели�
 ```bash
 magnet:?xt=urn:btih:4BF13768D50FA13191F4FCD0E43114D5587D80A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ethan: Meteor Hunter – логический платформер про мыш
 ```bash
 magnet:?xt=urn:btih:8BC72E19AB166A69E56029BCB578A08B515E6587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:7B4BBE0F3D0640D922611F8372C95723CE0B3E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:C0B38E9BE55A578C8C9225CA4C98E911DDAEE655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

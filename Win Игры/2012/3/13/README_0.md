@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2700A57E2B47CA0781B7D6848C7D518DC589D937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jurassic Park: The Game – эпизодическая игра, созданн�
 ```bash
 magnet:?xt=urn:btih:A0CE0B067ED1D81B92959CF67710110E28D263DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BF174E9CB01894627055C3FD0BA6DE6DEBA3E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Blade Kitten (Р) [Ru] 2010
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Brink of Consciousness: Dorian Gray Syndrome. Collectors Edition / Край со
 ```bash
 magnet:?xt=urn:btih:9D4251259E3D170C2365EC18685880B9B8389BA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Gardenscapes 2: Mansion Makeover Collector's Edition (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:D2356FB77BA5731BD1CC2944869AA83FD92D1F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Mermaid Adventures / Приключения Русалочки. Волшебна
 ```bash
 magnet:?xt=urn:btih:CE38B37174B14B56EAFAE966E806E22C16E02D10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

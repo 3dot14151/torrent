@@ -19,8 +19,7 @@ Runtu XFCE 18.04.3 [x64] 1xCD
 ```bash
 magnet:?xt=urn:btih:D70F0964809C292F2D7951DD5AB7CA767DA0AE15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

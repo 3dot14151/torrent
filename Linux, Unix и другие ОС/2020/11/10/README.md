@@ -19,8 +19,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 6.10 1xDVD
 ```bash
 magnet:?xt=urn:btih:025CEF17BC712B0758EE4B92681E038BE978522D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Red Hat Enterprise Linux 7.9
 ```bash
 magnet:?xt=urn:btih:4518A735EEEA3B187639CB04A56D30ED581A5D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Red Hat Enterprise Linux 8.3
 ```bash
 magnet:?xt=urn:btih:9F4C3119F398E6617F57588B5357E7BB4CD026B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

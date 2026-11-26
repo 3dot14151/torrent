@@ -19,8 +19,7 @@ File & Image Uploader - удобная и просто незаменимая п
 ```bash
 magnet:?xt=urn:btih:292A180A877CEA8F3817CA0810257EFB6D5FCD1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Files Inspector – программа от разработчика Reg Organiz
 ```bash
 magnet:?xt=urn:btih:7BB72B1A57B5E64E72F1D9B763F1287F201EF479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

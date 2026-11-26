@@ -19,8 +19,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.2.0/dlc) Repack Decepticon [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:2986393E091399EF339C3B2F5EDA56477A4A07D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

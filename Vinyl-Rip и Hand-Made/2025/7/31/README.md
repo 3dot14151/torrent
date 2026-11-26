@@ -22,8 +22,7 @@ Chilly - западногерманская диско-группа, получ�
 ```bash
 magnet:?xt=urn:btih:EE2CE49C8A6B9A610D19041CA169C0EC62E0F40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Boney M. (Бони Эм.) — диско-группа, созданная в 197
 ```bash
 magnet:?xt=urn:btih:80E497E45FC1067CF3A187122EB9B623ED2B2C0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

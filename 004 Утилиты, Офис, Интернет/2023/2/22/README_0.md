@@ -19,8 +19,7 @@ CLCL - утилита кеширования буфера обмена. Прог
 ```bash
 magnet:?xt=urn:btih:48E6A231E184C9205BE26EC11945011148633444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hetman Partition Recovery - программа восстанавливает д
 ```bash
 magnet:?xt=urn:btih:76F681B53B23E1158F7F9A25130360AFBEFEE849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

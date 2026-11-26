@@ -19,8 +19,7 @@ Plants vs. Zombies™ 2 - игра-хит, которая является пр�
 ```bash
 magnet:?xt=urn:btih:DFC0F12642F22594FC60755BCA764C7A6B4DC8B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

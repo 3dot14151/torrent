@@ -19,8 +19,7 @@ Thomas Valentine | Database-Driven Web Development, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:147946F1A48C3F2E73C0A957006E7B4FBF52A1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Steven F. Lott | Python Real-World Projects (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:39B2677B4F54FDC0AE4AF846E18709844695AF4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01E244AA3E7BA4F6738C06017AA0E675B432621F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

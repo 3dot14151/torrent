@@ -23,8 +23,7 @@ VA - Vendace Winter (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4B3B816319E3022322760D8A5252E84313E889D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ VA - Introducing Icon Of Desire (2011) [FLAC|Lossless|WEB-DL]<Detroit Techno, El
 ```bash
 magnet:?xt=urn:btih:EBCB6A0A7ED599EDCAB8CE8B81B8A314CA9502E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ VA - The Lost Satellites (2014) [FLAC|Lossless|WEB-DL]<Detroit Techno, IDM, Ambi
 ```bash
 magnet:?xt=urn:btih:C9AF5AC2A6F2B20A82A943BA785E126F3CADF409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ VA - Trance Scenery Vol. 01 (2015) [MP3|320 кб/с]<Trance, Vocal Trance, Progr
 ```bash
 magnet:?xt=urn:btih:24F192C36AEA9AD2CC0CDF71E56751E0DF191DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ Subversion - Animi (2015) [MP3|320 кб/с]<Technical, Progressive Metal, Djent>
 ```bash
 magnet:?xt=urn:btih:0D14014260CA59661498465ECD843FBC4F024FC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01E9D06FB518DCFDF688C0B9A87EF2131F39B47D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CADA05428B257E53C0102A4FBED4449E9F187CFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Black Yaya - Black Yaya (2015) [MP3|320 кб/с]<Indie Pop, Singer-Songwriter>
 ```bash
 magnet:?xt=urn:btih:FB0706D06EDE0BDEB85F675E936D04C0B983325B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:703A3F31AA561C5CF108A47EE758395793D2D230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - Hyperthermia (2015) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Industrial, Glitch
 ```bash
 magnet:?xt=urn:btih:95BD1EAAE086F0DFB0194963A2EAD54CCE1887F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFE4483983CDB54977B4F4F7EDDB7B82173FD701
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Pupil - Zilch (2015) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:2B0AAD2FCA37C9930CB52BFB96F66CCB219DE7C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Third Day - Lead Us Back: Songs of Worship (2015) Deluxe Edition [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:26501DB0F406F085810EA751559A2DF5D261E15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ DJ Nike Twist - TranceWave 109 @ GTI Radio (05.03.2015) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:1575F9980BC46EC0582420DAC37545B57263762B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Karyn Crisis' Gospel Of The Witches - Salem's Wounds (2015) Limited Edition [MP3
 ```bash
 magnet:?xt=urn:btih:71B57368F9B0F921A8830415795F479FEDEE2FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +439,7 @@ Todd Griffin - Mountain Man (2015) [FLAC|Lossless]<Classic Rock, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:4F2FC8F581F0B21FA05D3C9306EEDB10F31DDE33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B65FDB5AA5C439B1A144318C3EDA4D2AADA1505C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Noon - The Best Of Noon (2007) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:2FDECC794C89986EB4AA80E338AC0E4B7A471B12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CE0863D56019E6F8E93F514BFD36DB9A0C55026
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ Small Town Terrors 3: Galdor's Bluff (2015) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:8DD13BA66E2005D40ED9A9C24903F17E25A63B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +597,7 @@ Korablove - King Of The Empty Dance Floor (2014) [FLAC|Lossless|WEB-DL]<Deep Hou
 ```bash
 magnet:?xt=urn:btih:642125987374BB06ED2AF3B28111EC3B9A368598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ The Virgin Marys - The Virgin Marys (2015) [MP3|320 кб/с]<Pop, Indie, Rock, J
 ```bash
 magnet:?xt=urn:btih:BA62353E6FA5EDA969A7230BCD49E171CF05619E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ The Supernaturals - 360 (2015) [MP3|320 кб/с]<Rock/ Indie/ Britpop/ Power Pop
 ```bash
 magnet:?xt=urn:btih:113399F7D3CBEEC03EC18D02F78D8928EDF9333F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +684,7 @@ Kate Pierson - Guitars & Microphones (2015) [MP3|320 кб/с]<New Wave / Pop Roc
 ```bash
 magnet:?xt=urn:btih:B2884B8E7885B5EB2563A67DE5F7A558DCCEAD9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7EA77EBA29AD485032BDF6FC7D3337EC77D181D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

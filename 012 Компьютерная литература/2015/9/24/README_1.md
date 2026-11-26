@@ -19,8 +19,7 @@ Yii — это высокопроизводительный фреймворк, 
 ```bash
 magnet:?xt=urn:btih:D689EE35E269074280CE001D8C23AFE5A8890D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C727BFEC0C1E80CAC7F6B59603B751062E99716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

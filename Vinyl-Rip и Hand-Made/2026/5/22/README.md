@@ -22,8 +22,7 @@ Shadows Fall — американская метал-группа из Спри�
 ```bash
 magnet:?xt=urn:btih:C61FB7CA675DFC3F668FFE7EBC7F8F809FDB069C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

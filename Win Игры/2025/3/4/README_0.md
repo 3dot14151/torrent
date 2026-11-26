@@ -19,8 +19,7 @@ Age of Defense (2019) [Ru/Multi] (1.19) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:488768E3A804AF894DF0C91C90D38BE42C71F50F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Subverse (2024) [Ru/En] (1.0.2/dlc) Repack Let'sРlay [18+]
 ```bash
 magnet:?xt=urn:btih:838D356BA9605549306E486E09C4BD1770312D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Rangers in the South — это pixelart action roguelike rpg, действ�
 ```bash
 magnet:?xt=urn:btih:F02B7136742F461BF8EFDD22F4A1FBA567BE6BA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Eiyuden Chronicle: Hundred Heroes – это увлекательный фент
 ```bash
 magnet:?xt=urn:btih:462C318156C41627A98A18A529907F4857672C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Old World - это историческая стратегия, в которо�
 ```bash
 magnet:?xt=urn:btih:48DB76FCF63549EC788590F2FB5FE9F0683311FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Shift’n Slay – пошаговый тактический рогалик на
 ```bash
 magnet:?xt=urn:btih:B14B874C7F188BADAE6C0D4F703DFB83D5961F18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ RRogue Samurai - это интенсивная roguelite игра в жанре 
 ```bash
 magnet:?xt=urn:btih:9A6A177EE0A2AF240E0B97E32C2213A35E6E54FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FE50D10F9F2E101B45F8F4F572AC467C37D6B06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

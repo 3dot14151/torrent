@@ -20,8 +20,7 @@ Wreckfest предлагает множество вариантов улучш�
 ```bash
 magnet:?xt=urn:btih:7A22EE36A68CA78308AD5F95E8D9A13276DECDBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

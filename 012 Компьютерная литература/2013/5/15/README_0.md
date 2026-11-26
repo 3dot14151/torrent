@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:950CF4E188AAAF92B6D21A02C6A97F865F9B5305
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HTC | Расширенное руководство пользователя And
 ```bash
 magnet:?xt=urn:btih:74CD147FD07E62088438EA1F2378C5A9B336D33F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

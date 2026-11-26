@@ -19,8 +19,7 @@ Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 ```bash
 magnet:?xt=urn:btih:E89314A189B2732BE160791E215D7289EB68A7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

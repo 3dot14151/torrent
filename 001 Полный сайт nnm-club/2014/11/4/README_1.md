@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6B0CAF88D5AD9FDFD386109AB29993D5EC01CFFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Public Enemy - Apocalypse 91... The Enemy Strikes Black (1991) [FLAC|Lossless] <
 ```bash
 magnet:?xt=urn:btih:31EAD66D61B8698E430848A4881F4D65683BF82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FE74BE6F99FE140E070C9EE6EEAA065D3545E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE675EB89CBE44A40284CD4FF88DEB7AFC607A89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Tim Shiel - Duet (2013) [MP3|320 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:36BCDEEC4A3017FF7A8858B6987FC8E7BF2B84EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:569AB7A86402E780BDB2D0CF341B905F3EA2410E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ Sean Lennon - Friendly Fire (2006) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:34B42567848420A2E48FDDBDFC59111273109160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5F9330653855F67358DA2AF8CD6B21F792D7A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +261,7 @@ Michael DeMaria - Ocean (2008) [MP3|320 кб/с]<Ambient, Meditative>
 ```bash
 magnet:?xt=urn:btih:0B34121742EA6F0C7B2F59878D3BADA04766D096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +295,7 @@ Lisa Ekdahl - Look To Your Own Heart (2014) [MP3|320 кб/с]<Modern Jazz, Vinta
 ```bash
 magnet:?xt=urn:btih:123F8DD5D8668E2FC7765257D6154F3236A6FC67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ Jorge Rico - Forever Love (2001) [MP3|320 кб/с]<Instrumental, Easy Listening,
 ```bash
 magnet:?xt=urn:btih:97DD0356915FC93DAB6D53C02849ABFE00ACBA6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20C22163AAAF5E34159B7A9FA6574CDCC9950AC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4593B7B45C35C0529519A536964FD3EC3B6CF4D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +413,7 @@ America - History (America's Greatest Hits) (1975) [FLAC|Lossless]<Classic Rock 
 ```bash
 magnet:?xt=urn:btih:A135183D34D10104A96357982EA6AD5B52D9F3F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +438,7 @@ Snow Daze v1.06 - Придайте своим снимкам снежное на
 ```bash
 magnet:?xt=urn:btih:13D6D198BF76E9F1930BEBB1FB7C818EB928D577
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96CC04D79167906262B12BABB6402143A3D604A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ Lyriel - Skin And Bones (2014) [FLAC|Lossless]<Symphonic/Folk/Gothic>
 ```bash
 magnet:?xt=urn:btih:BB7F0E113EB0C487BD1BA2FF6D8D9560D1E464A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +523,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B2DD22917E27CE30A2A03CF917964D6DEAA7CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ Bruce Willis - The Universal Masters Collection (2001) [APE|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:9BF0F7B965DEC92E2305AD96DE91B6DEDA4E3C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +582,7 @@ NG: Вторжение на Землю / Invasion Earth (2014) IPTVRip (Сери
 ```bash
 magnet:?xt=urn:btih:E1BF7F145DCF72693896792EF5DE7B89C283C5EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AFD1DB6B3A35DC77C21A1DB5E6A3CF6F8ED53614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AE7EC67D6A4BE2AAA0DDFE7ECB8F42242D15D88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ Inger Marie Gundersen - The Best of Inger Marie Gundersen (2014) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:B1D750B6D7780862D6F901359840A3E02163D1B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58367BB5A539540C11F205752CA30A866798920E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD6698A02C46541D847CB74A625252322FE69C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +749,7 @@ Clark - Clark (2014) [FLAC|Lossless|WEB-DL]<Techno, IDM>
 ```bash
 magnet:?xt=urn:btih:B8E7D5BCD0418F8D29811FE6EE97C3D3F884476B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

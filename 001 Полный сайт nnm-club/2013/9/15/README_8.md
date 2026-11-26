@@ -25,8 +25,7 @@ Barad Dur - Vergeltung (2013) [FLAC|Lossless]<NS Black Metal>
 ```bash
 magnet:?xt=urn:btih:7A080EFA021454ADCFED7F7D2EE81B827BBFBD52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Yidhra - Hexed (2013) [MP3|320 кб/с]<Stoner/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:A847A0112B92ECDBADA8D5FFAE4CDD9B372F7F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Andrew Lu - Club Universe Radioshow 080 (12.09.2013) [MP3|320 кб/с]<Trance, U
 ```bash
 magnet:?xt=urn:btih:20AD1256630EE1EEA78A595231EC9E6C88D80E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ VA - Trance Trends 5 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5F63C939AEF4A006EFAA540DC29D2FAFF65FF860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Clandestine Blaze - Harmony Of Struggle (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:A35EB77AB79572A9ED0050E3FEE707B664FAFCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Moonkult - Profane Nightmare of Seers (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:8EC6CA7EF607C1F3BF97A6D03D24A53434928F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +225,7 @@ Andy Duguid - On The Edge (2013) [MP3|~245 кб/с (V1)]<Trance>
 ```bash
 magnet:?xt=urn:btih:2E3B6AAA567C04A743EAD230DCB8552E493B8EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00C30BF210C9A86E1C919F3375965C93139AE6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ E.F.G. - Sound 006 with E.F.G. (Proton Radio) (2013) [MP3|192 кб/с]<Progressi
 ```bash
 magnet:?xt=urn:btih:2A543A2127235A8E57087B6CDE9E4938BDAB8210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Stephan Crump & Rosetta Trio - Thwirl (2013) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:D9A537D813D6895E3BB4CE3181D789F47F7A85B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +339,7 @@ Christicide - Upheaval Of The Soul (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:8050D9E78A328ECFF8B35879334E448F2B837BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +372,7 @@ Crionics - 3 Альбома (1998 - 2010) Дискография [MP3|192 - 320 
 ```bash
 magnet:?xt=urn:btih:6EEDB261612119C5D446D336A8DD6EEFE9CCA5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DA2EB8533D55148A0B73E0516967F59796E3D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +433,7 @@ Sargeist - The Rebirth Of A Cursed Existence (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:17C5BECBDF8F95232E439AD24D933CA7457325E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B5B7E0A9DEBB00AC11F10FC14E295BBC2363AAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +493,7 @@ VA - Whisper of Consciousness Volume 43 (2013) [MP3|320 кб/с]<Vocal Trance, U
 ```bash
 magnet:?xt=urn:btih:590EDA33A94FCC35B0B052DB42ADD87E808B7C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +518,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D3E93FA0D0833E0A1BF5FA1441FCFE0D5FBC52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDB3FDC1BC9E742DC59A7B3E889B00B1FC1F6ED6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +577,7 @@ Romanthica - Eterno (2013) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4D6B48A63C7B79CC10D7104445040559306098FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56E89DB4D046FCC478D055C1C036592E54DA6854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +636,7 @@ Hernan Cattaneo - Resident 115 (2013) (Delta FM) [MP3|~245 кб/с (V0)]<Progres
 ```bash
 magnet:?xt=urn:btih:536091CA84530B4212F4EF2753EE98273992C9E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +661,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88D3587B3500ABFFB02EBB42D084D8C231D57AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +695,7 @@ VA - Vocal Trance Collection Vol. 101 (2013) [MP3|320 кб/с]<Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:AD885F98B31805F8B772712C9C0383554805448F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE9FD459FF003F7D1029620F4C800E3C06BB787B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +761,7 @@ Mischa Daniels - Let's Connect Tonight (2013) [FLAC|Lossless|WEB-DL]<Progressive
 ```bash
 magnet:?xt=urn:btih:A48044CEC2B2164B4F1D36A343862CC4A914EC2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -811,8 +786,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6918B9931C493068BCD1C3EBB7C7B799D4D783F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

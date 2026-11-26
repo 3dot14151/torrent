@@ -19,8 +19,7 @@ Christmas Wonderland 4 (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:B8A07C3683155C9E99384AA0A9A44B4ED0A3B3A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fall of the New Age Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:0E051C01A87CC7EE854E926BF7789C43043BAB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Midnight Macabre: Mystery of the Elephant (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:3BAB6203DCED5D4DA201FE2A40BB3E821530EEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dream Hills: Captured Magic / Холмы Грёз: Пленённая Магия
 ```bash
 magnet:?xt=urn:btih:E84E6FF9844C28263C4AA0A02809433C34D74C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Alex Hunter: Lord of the Mind Platinum Edition / Алекс Хантер. Пов
 ```bash
 magnet:?xt=urn:btih:115150AACF6D397DB78440CD8899B9E2C394422F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E35DDD959944E9757F19FEBF95AECA76F6149FAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Legendary (2008) [Ru/En] (1.0) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:301831A82DBBCA8C24ABBE62AE8C6B8249745DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

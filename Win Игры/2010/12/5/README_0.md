@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Theatre of War 3: Korea / Искусство войны: Корея [Ru] (L) 201
 ```bash
 magnet:?xt=urn:btih:E73F8E3EA34C3A9C23FBE7A44A6D0302F0F56CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Trucker 2: Reboot / Перевозчик 2: Перезагрузка Колле�
 ```bash
 magnet:?xt=urn:btih:73B67ED34C59828B14F202D5529C7D3670EF402A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:66CA90CEB0EFD0A411BFFB6FFD2CC144B40EAAE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

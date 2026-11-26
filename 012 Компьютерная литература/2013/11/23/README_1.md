@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:BC3B187B2036F2D49DDF33387BD40B63BADD8E67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Maya 6.0 - наиболее мощная и удобная программа т
 ```bash
 magnet:?xt=urn:btih:CAA2FA4EE3BD6682B296C04C9E722F9FB1F5AA0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69E150785FD98661D59028130D50CB39B17AF8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

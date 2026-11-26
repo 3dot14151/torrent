@@ -19,8 +19,7 @@ Thymesia - это жестокий и динамичный ролевой экш
 ```bash
 magnet:?xt=urn:btih:E5B561C1E599F8DA0E99A624A3A47C7C121EDD13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cursed Fables 3: A Voice to Die For (2023) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:FBC51A24C1C15196C9163E1C10A01E727FCBABE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.27/dlc) Scene SKiDROW
 ```bash
 magnet:?xt=urn:btih:E3C81D7F401B1EC03D3478FF21FDB3A8B06982FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
 ```bash
 magnet:?xt=urn:btih:035ACB762F4E1429FB33A5A559DA530E31DB66E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Stay Out of the House предлагает пережить настоящий �
 ```bash
 magnet:?xt=urn:btih:D356C10AAE0800C1C9D2ADC7F1405D1C55A933AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Total War: Attila (2015) [Ru/En] (1.6.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:5D01571A18DE2548A562FDE96F871D3A0F2C7792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Good Charlotte - Generation Rx (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock, P
 ```bash
 magnet:?xt=urn:btih:C6713493783FF08F914B8BACCF2FB51A78A9BE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The 69 Eyes - West End (2019) [MP3|320 Kbps] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:5DC97DF6A45B128716EF70A2B164B6D536749983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cold - The Things We Can't Stop (2019) [MP3|320 Kbps] <Alternative Rock, Post-Gr
 ```bash
 magnet:?xt=urn:btih:6AD71EEA4BF2A3C2531E014A42B88CCC7C25FBD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Lindemann - Steh auf (2019) Single [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:3D22ED40C20470D509C5AAEF9BEADACE3A5EFD99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

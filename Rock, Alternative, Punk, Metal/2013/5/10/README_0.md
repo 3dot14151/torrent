@@ -24,8 +24,7 @@ My Silent Wake - The Last Man (2013) EP [MP3|128 кб/с]<Gothic Metal, Doom/Dea
 ```bash
 magnet:?xt=urn:btih:A3450AD075BAA2C77F30CCBBCB523A7966E95CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ ClaMor - Мой Крик (2013) [MP3|320 кб/с]<Heavy Metal, Eclectic Metal>
 ```bash
 magnet:?xt=urn:btih:CE757B37B3307568077ABD21A2F391EB57A5E6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ The Ventriloquist Mute - Quintessence (EP)(2013) [MP3|211 - 270 kbps] <Progressi
 ```bash
 magnet:?xt=urn:btih:5BF6DE15CEDFCDF57A4BC404AA49C67139A7B3CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Trixie - Lift You Up (2005) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Devour the Day - Time & Pressure (2013) [MP3|320 kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:8A8A50491FFC3CB1BFCE1D1ACB60CEA4235E58CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Immolation - Kingdom Of Conspiracy (2013) [MP3|320 кб/с]<Brutal Death>
 ```bash
 magnet:?xt=urn:btih:C0E6FA9EC63C84280892841BD6CD2D6FD0C530A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Nazareth - Hard 'N' Heavy (2013) [MP3|~245 кб/с (V0)]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:09E0F60D5CCF621F77F0120700A88C64ADD9A560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ XIII век. Русь раздроблена и вот-вот падет на к
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sid Meier's Civilization V / Sid Meier's Civilization 5 (2014) [Ru/En] (1.0.3.27
 ```bash
 magnet:?xt=urn:btih:35B922300223F535044CCD6CE95256BA09A14879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Navitel / Навител Навигатор v9.8.19 RePack для карт ре�
 ```bash
 magnet:?xt=urn:btih:8FF6141878AFFAEE72C0D3ADAD567D3C4A9E1FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ R-Studio Network 9.2 Build 191126 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5980246C72F7FAF3E2471D05692B76B42D6F7423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ USB Oblivion 1.17.0.0 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:9941EF2CFA2AA61C72C08632B04FB5975AC4BDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

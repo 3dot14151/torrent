@@ -22,8 +22,7 @@ Three Days Grace - Alienation (2025) [MP3|320 Kbps] <Alternative Rock, Post-Grun
 ```bash
 magnet:?xt=urn:btih:90700602B6CDE05A446E6323DD02E6F1134ABF93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Myrath - Reflections: Best Of (2025) [MP3|320 Kbps] <Oriental Progressive Metal,
 ```bash
 magnet:?xt=urn:btih:74EC6B06A4CBC1B543F29CF430427DAECEDC8F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 ```bash
 magnet:?xt=urn:btih:20E102AB3D88578D0F81A7A42FADF7871B7A4050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Burning Witches - Inquisition (2025) [FLAC|Lossless|WEB-DL|tracks] <HeavyMetal, 
 ```bash
 magnet:?xt=urn:btih:908F0ACDC5B5D892DF91FF6A8EBC21079F1D8A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tómarúm - Ash In Realms Of Stone Icons (2022) [FLAC|Lossless|image + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:C91BCC316BA691D1E90583A903DC1F6D2D0485A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

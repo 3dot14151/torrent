@@ -21,8 +21,7 @@ Desperado (Dee Snider) - Ace (2006) [MP3|320 Kbps] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:EB19A625325A3C1AD1BFEFD889B86162D44E830A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

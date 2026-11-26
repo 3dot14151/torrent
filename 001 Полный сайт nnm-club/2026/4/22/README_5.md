@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DC7C397454A9C084A7F787B9FDA6A3425B2AA0BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Microsoft готовит крупное обновление меню «Пуск
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ichijouma Mankitsu Gurashi! | Жизнь в манга-кафе на одном 
 ```bash
 magnet:?xt=urn:btih:EF365462A8B354BF95DD394258907CDCE4451C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DarkSwitch - это вертикальный градостроительный 
 ```bash
 magnet:?xt=urn:btih:40D6E858D77C8E756EC93BFA2814F1A8DD3E21BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8493BA27254D5CC4E853127944F993E6155812DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:913C0BA3152384D059FB0D484F580DDD8E590AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dawn Break (2026) [Ru/Multi] (Build 22861684) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:66DCDA7D41AB2C1395B776E97B2290D4728D7768
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ ChainStaff – жесткий платформенный экшен с необ�
 ```bash
 magnet:?xt=urn:btih:0895796DD57139FA8B9163E2995D8558508724D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Bylina (2026) [Ru/Multi] (Build 22857118/dlc) Repack Let'sРlay [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:1105E2A38190DC3B114B8DC02C2B322FB2D44A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0862799E77E9AD56E2C1F40CAB66C5FA198D219E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Lucky Tower Ultimate - это абсурдная игра, которая оча
 ```bash
 magnet:?xt=urn:btih:457F20E96A33075AC9012BEFCF487292CDC05708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Ember Guardian (2026) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [Supporter]
 ```bash
 magnet:?xt=urn:btih:4D3ED811411F00D87BBB4085A573FC5C9D613139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:682F9EB14918359F33CE139EADC3F61552DB8672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

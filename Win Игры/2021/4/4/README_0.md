@@ -19,8 +19,7 @@ Raji: An Ancient Epic — это action-adventure, которая отправи
 ```bash
 magnet:?xt=urn:btih:87A4CEA75A32C41D9A13B6DE2D614EE5C71378EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B8B03FB03DEE401998E6816CCBEF593B678D8FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ They Are Billions (2019) [Ru/Multi] (1.1.4.10) License GOG
 ```bash
 magnet:?xt=urn:btih:4A0FD2AA6CBD3901864B29930FA9C19EED8EFB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Uncertain: Light At The End — игра в приключенческом �
 ```bash
 magnet:?xt=urn:btih:591E12FDD465D996DC9C580AFF414E15DCB16192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Made - Редактор и коллаж - ещё один впечатляющи
 ```bash
 magnet:?xt=urn:btih:8DB42D38341EA0D34BDAA54DD8C5ED4D46FD9D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MediBang Paint - одно из самых удобный и популярных
 ```bash
 magnet:?xt=urn:btih:3DE1D5CC48F71023038F294F218F210B9747DE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DiskDigger - приложение для восстановления удалё
 ```bash
 magnet:?xt=urn:btih:560F40D3F45B1A7CDA8F189530E6C7C464ED7749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ EasyWay - проект представляющий собой интеракт�
 ```bash
 magnet:?xt=urn:btih:EBF0B5414116496D74E199F28DDFACDF7320E58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBA735701C3A875036D610CCBF5903F6259604C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Talker ACR - это приложение для записи разговоро�
 ```bash
 magnet:?xt=urn:btih:1D1E6B91762E263F279CCC3668EE17478FECB8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

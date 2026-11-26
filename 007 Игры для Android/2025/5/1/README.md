@@ -21,8 +21,7 @@ ML5 также работает с устройствами с клавиату�
 ```bash
 magnet:?xt=urn:btih:BEC20246BB1A5195063591FE581790FFE9D4D06F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Crashlands 2 v100.1.407 [Ru]
 ```bash
 magnet:?xt=urn:btih:7FF8E90394196F1548194EB616A1CA02C186579F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ocean Match / Рыбки: Три в ряд v3.1.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E28F9D2A5443BD1AD8AE70F86F522F4A078ED1E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

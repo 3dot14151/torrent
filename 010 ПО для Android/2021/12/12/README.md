@@ -22,8 +22,7 @@ Sticker Maker v0.0.3-20 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5874B6EA118F1CB180273BBF58DA022D8F5376C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ CloudBeats - облачный музыкальный проигрыватель.
 ```bash
 magnet:?xt=urn:btih:DF92B35C6587E8192A19D8855494F6EDDC76907F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Cookpad - это международная платформа для обмен
 ```bash
 magnet:?xt=urn:btih:D08799FFB6B4CC12666C503B181B2895295BEFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

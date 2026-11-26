@@ -19,8 +19,7 @@ The Many Pieces of Mr. Coo - это сюрреалистическое граф�
 ```bash
 magnet:?xt=urn:btih:F9BEC53DA7EDF39E4E9CE4CCE353F6293D923AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

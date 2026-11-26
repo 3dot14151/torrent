@@ -19,8 +19,7 @@ Smart AudioBook Player Pro v11.6.6 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8CD95AF663DF00E53EFA6A77E8FE9632622ABBDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:486113888E9578A3F3BAC5A336ADE4CE16911FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ TV+: Бесплатное Онлайн Телевидение
 ```bash
 magnet:?xt=urn:btih:8660C4580C1AECD0EF05B28739021AC974330B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ ColorNote — ColorNote это простой блокнот. Он предос�
 ```bash
 magnet:?xt=urn:btih:30A305D13B020AEC605510D56571DEBB148713AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:928B3FACD904CE40DEF4C23E2AC23F95A6BDDB0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:CDAE43A5D060A2246B303921DE0FBC6878827856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:D6C50CDD5F498A1E88DFE8BEA1D5BD491B6DA64F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ MIUI Hidden Settings Activity v1.6.15 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EE8973B9D56D3618ACBC705776D69E68EA3A62B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Zona v3.0.44 Mod by vadj [Ru]
 ```bash
 magnet:?xt=urn:btih:3A9BDB98C1515FB7838210D1A262C4ECACE550B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ nPerf - Тест скорости 4G 5G WiFi v2.15.29 Mod by NURIK kz [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BC2C3EC973251FDA70247866A832088985A6D7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

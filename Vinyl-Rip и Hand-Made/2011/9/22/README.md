@@ -23,8 +23,7 @@ Belle Epoque - Bamalama (1978) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Disco>
 ```bash
 magnet:?xt=urn:btih:BDD17E6CBE0AC9B78A40526D05894E48E8483451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

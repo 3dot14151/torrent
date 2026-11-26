@@ -19,8 +19,7 @@ Monkey Island 2 Special Edition: LeChuck's Revenge - продолжение ус
 ```bash
 magnet:?xt=urn:btih:51B5A854D496F6C884FFD324C86CBDDA5B156917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

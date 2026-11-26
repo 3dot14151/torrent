@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:1500C93DCB77A981DB0BBDA9355DE1C8124D4C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Peter Bauer / Питер Бауэр| Adobe Photoshop CC for Dummies / Adobe Phot
 ```bash
 magnet:?xt=urn:btih:A8669BFDFA89A9CD9723926EF41A00AF20B171AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

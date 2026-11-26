@@ -18,8 +18,7 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 ```bash
 magnet:?xt=urn:btih:9D2A3846813F18F7CA4A00F73BEB0B6977016BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Microsoft Office Word на протяжении многих лет являет
 ```bash
 magnet:?xt=urn:btih:4C27A67DE4EDC33E59B66D9CF2DD52F10368605D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 ```bash
 magnet:?xt=urn:btih:BCAE96B4C4FA1DFAC9CF89D73F1E786F9CA99B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ AIDA64 - данная программа является многофункци
 ```bash
 magnet:?xt=urn:btih:4F49D0F05F18E2552EBCE8C7656AD3A96CCBE7C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:308BA0054F70A2694ABB6E9EAD564D0217B8523B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Spec Ops: The Line (2012) [Ru/Multi] (1.0.6890.0/upd2/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:07B883FABCE537A9E0529D19300DAECB1CA49DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Skirt no Naka wa Kedamono Deshita. | Зверь под юбкой [2017, TV, 12]
 ```bash
 magnet:?xt=urn:btih:A3147BA9F8A2218A254E67A6ABE632099DFCB5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Houseki no Kuni / Land of the Lustrous / Сказания о самоцвета�
 ```bash
 magnet:?xt=urn:btih:78DCD13435CBBD9403B20154E38C578B8FD84738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ TV-1 (AniDub), (Anilibria), (Animedia), (SovetRomantica) - внешними фа
 ```bash
 magnet:?xt=urn:btih:85FF80A2F7D6BE64239C2EA54A865D8C0E8C5891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Imouto sae Ireba Ii / A Sister's All You Need / Сестра - всё, что т
 ```bash
 magnet:?xt=urn:btih:8C243D9B3C213485AFD5C279EA7CBE2FB2ED38F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1BE9D36AC15CA79A00FF8D9E6F7DF56152477DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5901A2E93F2FEB0F399D0C8122729A6DCC0F8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ Code:Realize Sousei no Himegimi / Код: Осознание [2017, TV, 12 ep] W
 ```bash
 magnet:?xt=urn:btih:D2B4F25AF1BE7C642E336D61726E755A6BC67418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56581A36F6ACFAEF6FD4D50B7F5B4C1E641C54EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C414A12EC962A7EF9AE521D60D16998AA742C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C0B166C252BCD75A9A3E4776B8CD51DE76B091F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

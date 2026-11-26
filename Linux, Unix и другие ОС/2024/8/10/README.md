@@ -22,8 +22,7 @@ Zapret v.60 for Linux [x86, x86_64] (elf)
 ```bash
 magnet:?xt=urn:btih:C8EF70EA103933DEA7216BCB1B52BC94A82FEFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

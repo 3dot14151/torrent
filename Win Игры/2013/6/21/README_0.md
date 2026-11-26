@@ -19,8 +19,7 @@ Haunted Legends: The Curse of Vox Collector's Edition / Призрачные Л�
 ```bash
 magnet:?xt=urn:btih:3CE3794B5F9249D9627514ECC34F009AF4A0AF94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Splatter: Just Harder Times - новый красивый зомби-шутер 
 ```bash
 magnet:?xt=urn:btih:27A8487331DC4C6BF0D6D2B9B80FFDE4D3FAC160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

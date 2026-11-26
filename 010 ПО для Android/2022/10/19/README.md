@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D388862757EFE3187AC8BA248742803506A338B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VPN Proxy Master - супер безопасный и неограниченны
 ```bash
 magnet:?xt=urn:btih:33B7D420BE2DB98F87DAE561FA0141099251C4A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ArtRage: Draw, Paint, Create v1.4.5 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:18761B64FEAFE691AAF08FFE0F5F4B23789FA098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

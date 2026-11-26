@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8464B0BD2EDF6E1034C12E8180CB22A6540016C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Alter Bridge - Alter Bridge (2026) [FLAC|Lossless|image + .cue] <Alternative Met
 ```bash
 magnet:?xt=urn:btih:639D619F3E797C2973549D408C558A8243374CCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ My Silent Wake - группа из Северного Сомерсета, Вел
 ```bash
 magnet:?xt=urn:btih:ABF6D4F5C3B0363AE2BAAC6A8813793B441936A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Xandria — немецкая группа, исполняющая музыку �
 ```bash
 magnet:?xt=urn:btih:29EB4C05C222406CFAE0E94EA0598B0516FBFC6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ International Snooker 2012 (2013) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:A92DDC4A8C67BECFD4DD93CB3D6FAAA8B066183D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nation Red / Зомбилэнд (2009) [Ru/En] (1.00.1000) Lossless Repack R.G. 
 ```bash
 magnet:?xt=urn:btih:764938C80CE2D743A4A40CCF442252A81F2F9A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wave of Darkness - сиквел к Legends of Dawn и вторая часть т
 ```bash
 magnet:?xt=urn:btih:D81F15CAB2FBFD28D843E858E23F5D9E30542A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blue Estate дарит уникальное погружение в мир ма�
 ```bash
 magnet:?xt=urn:btih:4D1C8DD7AE477EF0F0FE94E46DA6AFD7E54BDE47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5D6E6696DBE616B283AE8E7232293102997ED8BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07877EA068E3C9F7CA880201B3388847AFEAB309
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ MDScan автоматически (   Читать дальше...   )Тип и
 ```bash
 magnet:?xt=urn:btih:62B7648F9E0E8717091691EA63D27A50235AB128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D6BB19161DB8053ECF2512C249E3AA5D10EF497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ AIDA64 Premium 1.71 [Ru]
 ```bash
 magnet:?xt=urn:btih:5E6BF186C2BA0F4C31A568F4B3CC52D8B29E554A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Tensei Shitara Slime Datta Ken | О моём Перерождении в Сли�
 ```bash
 magnet:?xt=urn:btih:593336C9EB64B54BE06DE6DA055A97ADB900A466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0151/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:708A8F719558E32C1CA9AD1D728932842A8969FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCC5033B35D34339B936337FFAE17E521BF2BE1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:10556F7E137B4DE37E622BD4B09CE8E578C9BE3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52D139C5C0AEB4A1E29A351F47613A1531EFF8BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ SD Maid Pro 4.15.8 Lite Mod [Ru]
 ```bash
 magnet:?xt=urn:btih:CAAF0B65AA347616D77E8A662F7907D9FBAABA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

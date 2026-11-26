@@ -19,8 +19,7 @@ LIVE A LIVE (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:C676DC5C4C10993C31A1D949C9581EA869E48C8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vosphia - это однопользовательская ролевая игр�
 ```bash
 magnet:?xt=urn:btih:E10F7AF8DD106ADD4E4E2BCD919C7ECD8C6AA876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Land of the Vikings является градостроительным симо
 ```bash
 magnet:?xt=urn:btih:701AFEE4529261AF7312A450EFDEA0E637548235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

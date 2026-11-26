@@ -23,8 +23,7 @@ A5. Reaction To Action (4:00)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:BE4DD262619734E48EF143DE9F317A629A609846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

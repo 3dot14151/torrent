@@ -19,8 +19,7 @@ Alexander (2004) [Ru] (1.60) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:301924C8EE433488F71405BE1238DFB8D7B306CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

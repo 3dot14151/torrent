@@ -22,8 +22,7 @@ The Amorettes - White Hot Heat (2016) [MP3|320 Kbps] <Hard Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:7B60DA78EEDCB443EE581DA5FD12C185C5DB37C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Palaye Royale - Boom Boom Room (Side A) (2016) [MP3|320 Kbps] <Glam Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:3DCBEA8A357F662003CA0D653DF00B73E618C288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Dead Daisies - The Dead Daisies (2013) [FLAC|Lossless|tracks + .cue] <Hard R
 ```bash
 magnet:?xt=urn:btih:08DEF41BE823B3EF37BD7AD573F0709A7E58A390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92D3A5040112E7809119E55B2B86DF9BE6CC2AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ DISC 1:
 ```bash
 magnet:?xt=urn:btih:F6489B1B44145761A36FD73986AC9A622B3091C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Blink-182 - California (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:C4A91A2CA69B3AF602BF43819194DF931B57D929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Survive in Space — это космический шутер с упором н
 ```bash
 magnet:?xt=urn:btih:304DFE4CE151E8B3F6C470070986BBB93A6D2509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Survive in Space — это космический шутер с упором н
 ```bash
 magnet:?xt=urn:btih:06AD9D327D617DC4A95BC88118C9E3CF384A0A00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Koihime Enbu - аркадный файтинг с видом сбоку в яп�
 ```bash
 magnet:?xt=urn:btih:45BB6C7D26353415C89074CB1B2232FE392C30C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

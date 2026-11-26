@@ -22,8 +22,7 @@ The Flaming Lips - King's Mouth (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 ```bash
 magnet:?xt=urn:btih:6B9F2D9FFF22E992DAFB3B262096D845856D0221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Scott Stapp - The Space Between the Shadows (2019) Napalm Records [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:1068621FD3214FB49BC6093FA705BF333CBFB262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sabaton - The Great War (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy
 ```bash
 magnet:?xt=urn:btih:B07B0E47A20C33748691169A279A05431B031920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

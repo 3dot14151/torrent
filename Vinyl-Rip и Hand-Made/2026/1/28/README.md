@@ -22,8 +22,7 @@ Avatar — шведская метал-группа, образованная в
 ```bash
 magnet:?xt=urn:btih:FC7FF94010E2853698E089E12690D9F97DEF78E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B She's So Beautiful
 ```bash
 magnet:?xt=urn:btih:CA037D554CEFF014C5E7EF99CAD68EBC8E1FD30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

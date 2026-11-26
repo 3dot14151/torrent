@@ -19,8 +19,7 @@ One Piece. Большой куш / One Piece (2026) WEB-DL [H.265/2160p] [4K, SD
 ```bash
 magnet:?xt=urn:btih:98EBCA048D9DE2F15581352E774BE19EC2F4B288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24B6C5F6E2E3348A237CC80C577F5162D282EFF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

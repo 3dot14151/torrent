@@ -19,8 +19,7 @@ Gloomy Tales 2: One-Way Ticket / Мрачные истории 2: Билет в 
 ```bash
 magnet:?xt=urn:btih:BDBE331BE3D00ECA07B45589FA3AC9B822F9BF11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.1.28r39001f) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A06B21A22304534D30742148B6792C285AB188AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Under the Waves – это повествовательная приключен
 ```bash
 magnet:?xt=urn:btih:2CE204A751DA055C23D3F04E6EDA5FEB406F95F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

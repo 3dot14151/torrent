@@ -19,8 +19,7 @@ Udemy, Creative Online School | Practical Web Development: 22 Courses in 1  (202
 ```bash
 magnet:?xt=urn:btih:A8FDBBA4319D888D5D46E35F1441381A81E454E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OCCT 8.0.0 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5417FACAF40BBD5AB63ED786BC2BE1653B3FC2B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ E36, E38, E39, E46, E52, E53, E60, E65, E70, E83, E85, E89, K1X, K24, KH2, R50, 
 ```bash
 magnet:?xt=urn:btih:DA5E5A9F84A25DA0F8E8CBB4D041089B683D1D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Gotenland — проект Третьего Рейха колонизации К
 ```bash
 magnet:?xt=urn:btih:439F6001F9E0E1D60A4C0EF80ACED8BFADE3701F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Romantic Piano Music Masters - Спокойное фортепиано: Инст
 ```bash
 magnet:?xt=urn:btih:DAC142A5A72D415E89DC576727346FE65C417003
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9CCD87E6D3A6AD3184E238E6C08C70E81A3E052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Hajime no Ippo: The Fighting - New Challenger | Первый шаг [ТВ-2] [20
 ```bash
 magnet:?xt=urn:btih:D76618653FC8F824F58E4AA1AC2E0BF88EF25666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Radio Silence 3.0 [En]
 ```bash
 magnet:?xt=urn:btih:7E689EBB2FE7E80003D85CE6A2C8AE352721908E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ PSPad — текстовый редактор с расширенными фун
 ```bash
 magnet:?xt=urn:btih:57A491EEC580F5A40C3187FFBB11E458257F37EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ The Spirit of Wonder | Spirit of Wonder | Дух чудес OVA-1+2 [1992 и 200
 ```bash
 magnet:?xt=urn:btih:133E494BBE61DC520A23F019ED8140A9A6A9EE46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0F8DFA367B28B293F164B89C5C8C2B78E4F78E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ VA - Музыка на 8 марта (2021) [MP3|320 Kbps] <Pop, Rock, Other>
 ```bash
 magnet:?xt=urn:btih:39901526957448B4E4750B28DDA0904181421F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Sea Mouse - Tropical Fish (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Blues Roc
 ```bash
 magnet:?xt=urn:btih:D3A7A8206EF8587AEA41DD0804B0BC36CDD997C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Complete Internet Repair 6.2.1.5208 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E7B68C7FE592E41F89F4C942F87AEF0B9256945D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ Udemy, YouAccel Training | HTML & CSS - Certification Course for Beginners  (201
 ```bash
 magnet:?xt=urn:btih:83B7BB0F7CCAC7849C763E04A48AF59994F56BCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A3DF56BA733699D497BBE0D3526C0D34CB03341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Stand Up - это взгляд на наши жизненные повседне
 ```bash
 magnet:?xt=urn:btih:F5FDE90780DDEF8EA22AF80D7B75BFC8F15640C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61A36BB762FEF6D4618194C6FC1A13112A8A27CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58F94B0FEE0B65CC65A086AA107AD953E65ED4DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +518,7 @@ Camille Kleinman | Camille Bathing Robe Workshop (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:FC13FFB57CF59C807113C57F895BAAB096F61801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ Georgia Van Etten - Deep Black Water (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ```bash
 magnet:?xt=urn:btih:DD3F29CC755DCFB1CA603E9A2839264535CDD098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ VA - Love Songs 80s 90s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
 ```bash
 magnet:?xt=urn:btih:46F4C020A057997A88158FC90C599E56B6415425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A97FB14C91C91019572C6DBD86C52D5B97BC5F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ El Proscripto | Александр Фадеев (2021) [FB2]
 ```bash
 magnet:?xt=urn:btih:046A25BB1B614263C256BC7025FE280ED35B4707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ Mojo Mafia - Looking for Redemption (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues;
 ```bash
 magnet:?xt=urn:btih:89F920C8D85C8EA3CE4A66955B36F8A4FAC93983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +681,7 @@ Udemy, Maher Haddad | Daily Bandwidth Quota on LTE using MikroTik  (2021) PCRec 
 ```bash
 magnet:?xt=urn:btih:CBA088D38F1AE1BA7260716897F2607F549C3F6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

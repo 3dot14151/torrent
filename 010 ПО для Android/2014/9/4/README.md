@@ -19,8 +19,7 @@ BIG Launcher v2.5.5 - Launcher для пожилых людей и людей с
 ```bash
 magnet:?xt=urn:btih:DBD4899ED3A3029FFECFD2B15CF9EC6603151DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

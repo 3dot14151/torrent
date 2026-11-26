@@ -20,8 +20,7 @@ The Babylon Project [En] (L/3.4/3.6.9) 2008
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

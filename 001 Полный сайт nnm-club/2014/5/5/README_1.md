@@ -27,8 +27,7 @@ Delta Generators - Get On The Horse (2014) [MP3|320 кб/с]<Electric Blues, Blu
 ```bash
 magnet:?xt=urn:btih:F3E815C1D0578FC9C15F00CF7B157DA4F5E041AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Fado Original (2004) [APE|Lossless]<Fado, Folk, World>
 ```bash
 magnet:?xt=urn:btih:EE94EA38EBCC9961CEEB2F4A320EB778BD02D8E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Invention Awards 2014: криогенный двигатель для грузо
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Omsphere - Ka'g Bak'tun (2013) [FLAC|Lossless|WEB-DL]<Psy-Trance; Progressive Tr
 ```bash
 magnet:?xt=urn:btih:33B082ABD9083C7AA3D6B394DD680988685CDCEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:871771003BC14F4865327E880805F966B1AD41E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ Bell & Arc - 1971
 ```bash
 magnet:?xt=urn:btih:FDA1200FD08134200D2EC3C923C13E4E75B76203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ PicPick - бесплатное приложение, объединяющее в
 ```bash
 magnet:?xt=urn:btih:229722793E4DE1EF2A305B0D9E1C5220EF42FC91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84D577F2B77F828847FABACEBD97344CFE5BE819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC7F488E124CC735DD6ADDECEEBA9E7B98B6BB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E91224E378874CF9D56CF172AA6C1944429D04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ Pins является простым и красивым менеджером з
 ```bash
 magnet:?xt=urn:btih:36FFA7F378C588CA7088A60D6BC75E873A1A9BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ Ashampoo WinOptimizer 11.00.30 RePack by FanIT [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0C7E947596951B5A033A18D0834010A05128A009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:394A4C48476294C35980404349F490A7D75CBD1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +394,7 @@ Desert Dwellers - Union: Whitebear Remixes (2014) [FLAC|Lossless|WEB-DL]<Psychil
 ```bash
 magnet:?xt=urn:btih:ABF537714AB983CAF000F6B4B20DA2BD8E89C3AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77BE841F4AB1C2053BEE856F8624A5BB6393A742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30B90FDD14064B0A27011723897AFBB41EE9D5A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:128F5CE74E8E02E8A10CA7C65154B6C724E448F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:CAA70880CB51E4EBC6E1630D5C3B534FBB68D34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +530,7 @@ Peter Cincotti - East Of Angel Town (2007) [APE|Lossless]<Vocal-Jazz>
 ```bash
 magnet:?xt=urn:btih:57C733EE6FC5E51EFD57CA64EA1C25E83C4DB917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ Desert Dwellers - Nomadic Ecstatic: The Wandering Remixes Vol. 1 (2014) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:90DEED89653BFE072C850F19D7933723775F6004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +593,7 @@ Miss May I - Rise Of The Lion [Deluxe Edition] (2014) [FLAC|Lossless]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:B4068F5DD1C9FAADBE97B2CADD961AAE71664AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +627,7 @@ VA - 55 Best Of Chillout Ambient Lounge (2014) [MP3|320 кб/с]<Ambient, Lounge
 ```bash
 magnet:?xt=urn:btih:31F9AB556155743B4C695247CB4373E0EFCD9AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +661,7 @@ Disk Diet 5.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ED117258886D2A0E50C5787D1D3EC349F746FAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +686,7 @@ Tiesto - Adagio for Strings (Blasterjaxx Remix) (2013) [MP3|320 кб/с]<Electro
 ```bash
 magnet:?xt=urn:btih:E9AFDEDEE1B72068AE069AC016872295700B1273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ New York Jazz Lounge - Cool Jazz Masterpieces Vol 2 (2014) [MP3|320 кб/с]<Jaz
 ```bash
 magnet:?xt=urn:btih:D639D6092515D41E93D4268CF49367A47BA93F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +745,7 @@ Wise Auto Shutdown - простая программа, с помощью кот
 ```bash
 magnet:?xt=urn:btih:B3EA398C6E90C6AA1BAB400E37649793C059D344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

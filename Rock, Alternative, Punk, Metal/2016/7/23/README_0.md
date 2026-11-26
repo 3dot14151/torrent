@@ -22,8 +22,7 @@ Far Beyond - Songs Of Hope And Sorrow (2009) EP [FLAC|Lossless|tracks] <Black Me
 ```bash
 magnet:?xt=urn:btih:BE5CAB2F34913EF216EC6F5750B957221AAE27B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Side 1
 ```bash
 magnet:?xt=urn:btih:51FBA3F5B4C4B7D8261AD38DDE981B03576EC066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Def Leppard - Songs From The Sparkle Lounge (2008) CD+DVD5, Deluxe Edition [FLAC
 ```bash
 magnet:?xt=urn:btih:D06B81A854BA70DC4768087A8D93B444A3913E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

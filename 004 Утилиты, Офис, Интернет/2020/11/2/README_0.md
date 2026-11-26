@@ -19,8 +19,7 @@ RecoveryRobot Pro 1.3.3 (акция comss) [Multi]
 ```bash
 magnet:?xt=urn:btih:B9D0DDB16BB83A1ABC9973D620B22EE589D2D1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Windows Word - бесплатный и удобный в эксплуатаци�
 ```bash
 magnet:?xt=urn:btih:6BD38040959D6857AFA098FD6106252B8F315143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Windows Excel – это программа для работы со всеми 
 ```bash
 magnet:?xt=urn:btih:5B227BB450EBAE6DF51DD1A3480D98EC5A442630
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

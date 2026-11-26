@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:131E57DEB6BFD53FA25EF7E98E80DBA69AA7F691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA67CAD24F8BF6A9A5180BA9776B61270034E506
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Packt Publishing | Книги по Blender на русском языке [+ Sup
 ```bash
 magnet:?xt=urn:btih:71BB0CD6D9706A8C94846C1A727F4A9755CF2765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

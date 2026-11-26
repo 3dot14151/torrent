@@ -19,8 +19,7 @@ Windows Privacy Dashboard (WPD) 1.4.1765 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DA1E4B67399BE8F12ECECC3EE5FCEB7CAE21CB77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

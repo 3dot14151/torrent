@@ -19,8 +19,7 @@ iFunBox позволит вам получить максимум от ваше�
 ```bash
 magnet:?xt=urn:btih:4334BA7FE2DCD174C08568F86BBEBC64579B581D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

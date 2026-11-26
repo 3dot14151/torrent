@@ -19,8 +19,7 @@ Evil Dead: Regeneration (2005) [Ru/En] (1.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:B7C6EA121D12E46B0625129D87356534C09753D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

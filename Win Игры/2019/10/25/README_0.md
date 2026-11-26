@@ -19,8 +19,7 @@ Halloween Chronicles 2: Evil Behind a Mask (2019) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:C0DD5D0C87B56A290ABE220D6140E9BD957362AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Malzbie's Pinball Collection от Malzbie Games представляет пин�
 ```bash
 magnet:?xt=urn:btih:583DDC5CE6A0A115921C08270A35303985EC5ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ultimate Fishing Simulator — это симулятор, охватывающи
 ```bash
 magnet:?xt=urn:btih:FB95134F9F9E6A7227028C6CBCF091F81B9BEB1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Close Combat: The Bloody First - это новая игра в популярн�
 ```bash
 magnet:?xt=urn:btih:7D9AA5A288240A7E9F1BCCDBA593512B8DEDAC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B38E4AA21EDB55A5D8897FD8E212BE0616CB8E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

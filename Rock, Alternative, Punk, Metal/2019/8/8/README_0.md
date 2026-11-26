@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:14E7126C35BFAD29E2A53393DF8624FE8A9E81DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Queen - A Day At The Races (1976) Japanese Edition, 2018 [FLAC|lossless|image + 
 ```bash
 magnet:?xt=urn:btih:97CA8B3657D1D72A5113955C5CCC06D152093ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Queen - News Of The World (1977) Japanese Edition, 2018 [FLAC|lossless|image + .
 ```bash
 magnet:?xt=urn:btih:0438B5F5D4FB240B73788D4779BC3004A33B6466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Queen - The Game (1980) Japanese Edition, 2018 [FLAC|lossless|image + .cue] <Roc
 ```bash
 magnet:?xt=urn:btih:7386B123C5B73B0BFDFDFD0AEFF0B0B7641089A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Queen - A Night At The Opera (1975) Japanese Edition, 2018 [FLAC|lossless|image 
 ```bash
 magnet:?xt=urn:btih:DC4EC0A9071ACCB00991197440C3378CB1FAE515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Uriah Heep - Sweet Freedom (Live) (2019) [MP3|320 Kbps] <Hard Rock, Classic Rock
 ```bash
 magnet:?xt=urn:btih:5F5B7E2C6C9AB86D566D1CA7AF14C4C77115D3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

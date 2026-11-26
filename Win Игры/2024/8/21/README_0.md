@@ -19,8 +19,7 @@ UFO Taxi ставит игроков в необычное положение. �
 ```bash
 magnet:?xt=urn:btih:8182A83743D12C386CBFBC69889EEE91BA5DDAC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PARANOID (2023) [Ru/Multi] (10138) License GOG
 ```bash
 magnet:?xt=urn:btih:16E246F347BD2838C5355FF1A99457355BAA5FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ In Woods - это игра-выживание в стиле Roguelike, дейс�
 ```bash
 magnet:?xt=urn:btih:524357095DA00EB416B5F1D7D01E3528EB534859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

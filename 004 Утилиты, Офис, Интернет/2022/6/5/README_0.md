@@ -19,8 +19,7 @@ ColorBug 3.1.0.0 + Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:4C9BD9F38EE7A242FEA92DD50DB19CED4F4E310C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

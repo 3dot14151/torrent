@@ -22,8 +22,7 @@ The Gathering — рок-группа из Нидерландов, основа�
 ```bash
 magnet:?xt=urn:btih:9F9F569124D39D09264B26A2B1D7FCFF8B55A781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

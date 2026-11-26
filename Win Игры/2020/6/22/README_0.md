@@ -19,8 +19,7 @@ AVICII Invector (2019) [Ru/Multi] (1.4.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2871ADAE391CFC57A1D1257264C74A8FBC32B06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

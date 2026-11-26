@@ -20,8 +20,7 @@ Test Drive - это не просто гонки, а игра с сюжетом.
 ```bash
 magnet:?xt=urn:btih:E20F0A09D3E1331DC40768A8D264E14668887AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Gene Troopers / Gene Troopers: Совершенные Убийцы [Ru/En] (RePa
 ```bash
 magnet:?xt=urn:btih:A6154E4430695A878E74B6225971C6E75B908D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

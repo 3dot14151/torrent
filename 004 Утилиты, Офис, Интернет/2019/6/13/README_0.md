@@ -20,8 +20,7 @@ Vpings — бесплатная программа, которая украси�
 ```bash
 magnet:?xt=urn:btih:8D88CDEDC0D833C7D321282A013D649C2682DFC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

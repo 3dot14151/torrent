@@ -19,8 +19,7 @@ Blue Fire (2021) [Ru/Multi] (6.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:2419A7A6743593099A04BF4203A1A7E5EB881A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
 ```bash
 magnet:?xt=urn:btih:1A0AE279CECDE138F261C1B99BA310D49D5BC348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.0.27327/dlc) Repack De
 ```bash
 magnet:?xt=urn:btih:D32F883B206C0D85AA153112594DC132DC5C1DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

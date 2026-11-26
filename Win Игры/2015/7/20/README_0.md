@@ -19,8 +19,7 @@ Star Hammer: The Vanguard Prophecy [Pacth] (2015) (1.0.2) Official RezMar
 ```bash
 magnet:?xt=urn:btih:423F7397242EE2370B4237FDBC21692B18599E24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Badland Bandits – новый шутер в фантастическом мир
 ```bash
 magnet:?xt=urn:btih:BBA962A97AA5D4393D41467EE4A77214E04F787A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

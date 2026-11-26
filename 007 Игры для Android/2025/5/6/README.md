@@ -20,8 +20,7 @@ Way of the Hunter Wild America v1.0.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:27A6CC9F051A91B5F5D50EB86A3612C32592AADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

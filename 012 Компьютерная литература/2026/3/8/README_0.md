@@ -19,8 +19,7 @@ Handbook of Intelligent Automation Systems Using Computer Vision and Artificial 
 ```bash
 magnet:?xt=urn:btih:6AAE3F73EC6FFD6AC31304276EB56C2802E35B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

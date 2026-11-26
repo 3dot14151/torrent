@@ -19,8 +19,7 @@ Secrets of Worlds 2: Mystery Agency / Тайны миров 2: Детектив�
 ```bash
 magnet:?xt=urn:btih:4DF165D23D832101A3F78376F054026EF2478509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Miasma Chronicles (2023) [Ru/Multi] (11294956) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:75389AB34E04718D33DA849ECF22B0AA1A023323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

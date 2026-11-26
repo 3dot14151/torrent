@@ -22,8 +22,7 @@ Minushuman - Bloodthrone (2011) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:B9D910E50595379BF3835A91EE0B4117D689EA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Accuser - The Forlorn Divide (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6F5C799DDFAA1F1AB02F9FA8A9F5FBF61EE78781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sunburst - Fragments Of Creation (2016) [MP3|320 кб/с] <Progressive Metal, Po
 ```bash
 magnet:?xt=urn:btih:D1AA3184E83FB33345E245A2794D65E0BF9B9CE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Van Canto - Voices of Fire (2016) [MP3|320 кб/с] <Power A Cappella>
 ```bash
 magnet:?xt=urn:btih:59C39DDDEE6D8A569249E2247CA5B73A131D777E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Guns N’ Roses - Live Era '87 - '93 (1999) Japan [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:2848A21FD56B45D0873DBE407CE6064F4A7D508F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:169545E09923C8700673A41BB29ACBCAB01CE8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - History of Rock (2016) [MP3|320 кб/с] <Rock, Mashup>
 ```bash
 magnet:?xt=urn:btih:961EA22123F766D38BE196ADE3CDC41972D4FBF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Killswitch Engage - Incarnate (2016) Deluxe Edition [MP3|320 кб/с] <Melodic M
 ```bash
 magnet:?xt=urn:btih:A314DD606C5233ED980D45F730BCA894FF8EB9CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA4DA0A8C4771A9182B9320DBB7502EE5AF0CEA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

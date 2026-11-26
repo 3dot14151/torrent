@@ -20,8 +20,7 @@ It is aimed at any professional who needs to report and perform data analysis ef
 ```bash
 magnet:?xt=urn:btih:7733E79D07D2AA881FAB4459B7846F1C02DD2615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

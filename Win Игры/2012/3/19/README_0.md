@@ -19,8 +19,7 @@ Arvoch Alliance [En] (Р/1.2.08) 2011 | THETA
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tokyo Xtreme Racer Drift 2 [En] (RePack / Emulator) 2007 (2012) | MarkusEVO
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FA968D8F65B0267DA2120FF16971494B6580677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:044A333BC987EDF377B6D179286B0492FC4EEF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ And Then There Were None / И не осталось никого... (L) [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:7C9C0CE83B39D6CE0C683A213FDC9C303767422A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Dream Mysteries: Case of the Red Fox / Тайны грёз: История ры�
 ```bash
 magnet:?xt=urn:btih:C594B75AEB0C68D3796ECE1A6777CB4B9E6464DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Cubis Gold 2 (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:B39FDC3089A60D0FDE5E0E94A96AF981F36E4D79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Mystery Chronicles: Murder Among Friends / Загадочное происшес
 ```bash
 magnet:?xt=urn:btih:436B6D78429737F6B0BC485F9AE81B65940DF420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ Turbo Gems - красиво оформленная игра, в современ
 ```bash
 magnet:?xt=urn:btih:B93F342329CC155C0C025B1EAB228AC3DCABBCEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Time Chronicles: The Missing Mona Lisa (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:C433A30D3B5E4ACF634D21C241CAE3316A721959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

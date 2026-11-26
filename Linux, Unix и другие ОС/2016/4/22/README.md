@@ -19,8 +19,7 @@ KaOS Linux 2016.04 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:9F5766E1A0CDCF62F58EB66E6051D53DA44C3B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:BC3FED76AE4087D1C5584F0463180E8110A26F8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Aspid - Musa (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8BAC94469D5203C87C0C04AEDE6997E0A28C3582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Envenomed - Evil Unseen (2014) [FLAC|Lossless|image + .cue] <Melodic Thrash Meta
 ```bash
 magnet:?xt=urn:btih:B99D3954FA1798352080F8E3FEC2BF9F90256AAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Nada Surf - Never Not Together (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 ```bash
 magnet:?xt=urn:btih:8AF4682CB5E4D39BB6C4775B8A7B09DD8C5ADA05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dirtwire - Electric Rivеr (2019) [MP3|320 Kbps] <Indie, Electronica, Experiment
 ```bash
 magnet:?xt=urn:btih:C1812F589BBC5FA3DC7143769CC0E208C879272E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Queen - Greatest Hits In Japan (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8D725027581C0E8C5B5DA30DE21EC65CD907A85D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Queen - Greatest Hits In Japan (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:EDC2C8AA242BF8FFF0EF20B10DE0EE2D2ED6C5AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ The Beatles & VA - Mashups & Remixes (Bootleg) (2014) [FLAC|Lossless|WEB-DL]<Cla
 ```bash
 magnet:?xt=urn:btih:7D3E833EC071FC49D27336541A4E71735D6A5A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

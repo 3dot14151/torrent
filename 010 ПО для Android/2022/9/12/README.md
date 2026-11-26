@@ -19,8 +19,7 @@ Periodic Table / Таблица Менделеева HD 7.7.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:38E2D73F50B4FC29B5F10B47568E379BA8DD61E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

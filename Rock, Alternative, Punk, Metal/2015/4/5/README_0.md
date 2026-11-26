@@ -23,8 +23,7 @@ Warrior Soul - Last Decade Dead Century (1990) [MP3|320 кб/с] <Metal, Rock>
 ```bash
 magnet:?xt=urn:btih:C59753ED86B94A667782A01878ACBC95477A7E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Ayahuasca Dark Trip - Mind Journey (2011) EP [MP3|320 кб/с]<Drone Doom, Stone
 ```bash
 magnet:?xt=urn:btih:18FB515487E60B6742AF075D818532E4CE146301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Asia - Live Москва 09-X1-90 (1991) [WavPack|Lossless]<Progressive Rock, Cl
 ```bash
 magnet:?xt=urn:btih:2573AB723848B1AB150D64A66AD05CD16FBBEDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Hotel Books - Run Wild, Young Beauty (2015) [MP3|320 кб/с]<Post-Hardcore / Sp
 ```bash
 magnet:?xt=urn:btih:D126DB89661984A373DB575ADFD81128B9E95FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Impellitteri - Venom (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:576DDAA9977E98C45D4E28B72E8ABA960CFE659B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3E54FEA57FFC96EDB00B72EE16BD43BC8EFFE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

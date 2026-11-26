@@ -22,8 +22,7 @@ National Head Band - Albert 1 (1971) Remastered, 2008, Esoteric [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:7D0647C941887A062E8ED389BD1570B8187C9FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Katalepsy - Gravenous Hour (2016) [MP3|320 кб/с] <Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:082B66EA5302F1883056AE377D4DC97C83AE21A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Acacia Avenue - Early Warning (2016) [MP3|320 кб/с] <Hard Rock, Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:FA01B86C2D3458F8658B33C8BBDBF78043C843BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ David Duchovny - Hell Or Highwater (2015) [FLAC|tracks|WEB-DL]<Folk Rock, Indie 
 ```bash
 magnet:?xt=urn:btih:0DFCC0DD954B7977CF1E387170E542B389507F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:A419EA7E81FCB61324D3FFFC51EE67D172B9710E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

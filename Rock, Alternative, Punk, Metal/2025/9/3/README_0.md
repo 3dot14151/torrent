@@ -22,8 +22,7 @@ Queen - Riffs (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:C0774F261A0A183AC3DC524EF2303E1AA2C5D1E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Every Day I Have The Blues(   Читать дальше...   )Жанр: Blues
 ```bash
 magnet:?xt=urn:btih:E6C83FEE1D77283C4544C18EAB51B708F7153E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Raffaella Carra - Collections (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop
 ```bash
 magnet:?xt=urn:btih:5BC388BFC1759A326CB1C356478C811ED36EA035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

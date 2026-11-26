@@ -19,8 +19,7 @@ TreeSize Professional 9.8.1.2302 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D776F3BF18A02B2696E3BCE3CE678D03256E2D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Coolutils Total PDF Converter 6.5.0.168 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5B35F1F95C858ACAA006BE90D5069A3145BF7ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ UPDF — это современный PDF-редактор с поддержк�
 ```bash
 magnet:?xt=urn:btih:0FC28BBE4566FE6F9CDD712D8869602ED0ADA405
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C7369BD29FCA7EB0F40E1DD28B1D1B57FA71C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Camtasia Studio - мультимедийная программа для зап�
 ```bash
 magnet:?xt=urn:btih:8779BF87D9271C8FCB493C9ABB1FFF3890B2D2E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Ceno — первый браузер, разработанный для инте
 ```bash
 magnet:?xt=urn:btih:C2B3227BC8E6B2B910E1D4FB40A65D8588566EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:04F7703903A49647CC1D55A78826DAF767AEFAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Zapret Service Manager — это мощный инструмент для об�
 ```bash
 magnet:?xt=urn:btih:B9AC56897F09CDB4E7F0A22295486EE6AB6D47F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

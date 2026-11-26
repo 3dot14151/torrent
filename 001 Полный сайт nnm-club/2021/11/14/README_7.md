@@ -21,8 +21,7 @@ Clipboard Manager 2.3.0 [En]
 ```bash
 magnet:?xt=urn:btih:25F7C2206A04652494A10EC2FBF93A32A3F6698B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Black Out позволяет быстро скрыть деликатные ча
 ```bash
 magnet:?xt=urn:btih:CBED92432F463A6E03272AC2345ACB06560AA77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ BookmarkTiles имитирует ранее известные TopSites функ
 ```bash
 magnet:?xt=urn:btih:CBB18000CBF1CE45CB25E37D05F0842D1EC37355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 ```bash
 magnet:?xt=urn:btih:E4353633C464E94274236D50950B4650A0BBCD1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ ToothFairy поможет вам перейти от одного выбранн
 ```bash
 magnet:?xt=urn:btih:3EF342230C4FDA4F7D4B18C069B01323BF534DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Data Guardian 7 v7.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:A98496664812B2EE7FA03F942DB6935E7F2FB330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Color Wheel 6.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:5D265178F7855342FFD7F100943D8B0959C0DE87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:8F8F9993173EBC4007000134CA21599566047CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:94C9F2DCB29D907E08E89E5CEC4C51E521E3A505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:469BEAD1C308AD666552D9DF41A0396B84FACB3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ GoodTask — это элегантная и мощная «напоминалк�
 ```bash
 magnet:?xt=urn:btih:1EB8F979DC0C4C810E4A798656D1A7E3A32DEE66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:A8AB1A12BCDD291FD00795584F18D4007A7E54C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:5AABD8B707905C2DD9C690D75C5A8FB792A83E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Music Tag Editor - редактор музыкальных тегов помож
 ```bash
 magnet:?xt=urn:btih:FD4AAD74743F40B67CFE34E5AE6F55493ACFE34E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ IconShop - Making Icons Easily 1.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:C6AE2B67F4D475AE84D251EF4C49A3CC9660E802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ InstantGrid - это быстрый и мощный инструмент для 
 ```bash
 magnet:?xt=urn:btih:0A16B0E83F042553E0E7C8B766EBE3DB697AFB52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +431,7 @@ Pacifist – приложение, которое открывает пакет�
 ```bash
 magnet:?xt=urn:btih:D428DE03BC0A2268851CD592F2E2B639D6DE8E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +456,7 @@ Dynaper позволяет легко создавать собственные 
 ```bash
 magnet:?xt=urn:btih:607DCEB929E2F6001FEF93D6E882C068F8F48DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ Profanity Filter 1.2 [En]
 ```bash
 magnet:?xt=urn:btih:628B9A9A1395BDD333A26E2BFE4B38B1E04D5F13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +508,7 @@ Prism представляет новые способы организации,
 ```bash
 magnet:?xt=urn:btih:C91A02FABBC41B208C9EA0537C65FE2E252CDFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:741BA70E2F38C8B706BDE7D9BF7DB516A02D5EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +561,7 @@ Cascadea 2.1.3 [En]
 ```bash
 magnet:?xt=urn:btih:4C3646F1E079FDCF4684E07DFE09FEE5DA7EA42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +587,7 @@ Submerge - это самый простой способ добавления с
 ```bash
 magnet:?xt=urn:btih:0CC2A4E8B9784EBD76655B3F415392FE52507BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +614,7 @@ myTracks — замечательное приложение, которое б�
 ```bash
 magnet:?xt=urn:btih:E8532460948BFFAB6002ECBBDD94EEEFB79ECDEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ Disbeliever - Archetype (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Doom
 ```bash
 magnet:?xt=urn:btih:EC4E2686E998A2D5634D2EBF9F7D3EA6008CEDC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +667,7 @@ PhotoReflector 1.0.6 [En]
 ```bash
 magnet:?xt=urn:btih:26EAC6B2FD4E734D9880D29CBF8730D59CB53A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

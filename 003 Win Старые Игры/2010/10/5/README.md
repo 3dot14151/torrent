@@ -19,8 +19,7 @@ Ground Control 2: Operation Exodus / Ground Control 2: Операция "Исх�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Acacia Strain - Gravebloom (2017) [MP3|320 Kbps] <Metalcore, Deathcore, Hard
 ```bash
 magnet:?xt=urn:btih:68B08876B4359619F7D0D5240A2CFB76CB02E212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Innerspace - The Village (2012) [FLAC|Lossless|image + .cue]<Progressive rock>
 ```bash
 magnet:?xt=urn:btih:984119136E3E8C53D951A14C562EED99AAFC1B5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Corrs - White Light (2015) [FLAC|Lossless|image + .cue] <Pop-Rock, Folk-Rock
 ```bash
 magnet:?xt=urn:btih:1284EADC7CD2AC2E438762244E6CC74F09B7F213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deep Purple - In Concert '72 (1972) 2012 Mix, Reissued in 2014 [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:FE073642C86B4E6A71B1CFE26764FCF3D52BA930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Led Zeppelin - Ottawa Sunshine (1998) [MP3|320 Kbps] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4E3867A60BD2F153BC40FAD3D75B9099604177A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Black Sabbath - The Dio Years (2007) Compilation, Remastered [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:E765C550940F0D6CE78739931B0138241273FAB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

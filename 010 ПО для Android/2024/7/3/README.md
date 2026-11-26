@@ -19,8 +19,7 @@ Psiphon Pro дает вам беспрецедентный доступ к ва�
 ```bash
 magnet:?xt=urn:btih:A4FF305BB09C11550FF70B27EE15B22E6A85D647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

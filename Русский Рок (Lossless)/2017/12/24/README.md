@@ -22,8 +22,7 @@ The Matrixx - Здравствуй (2017) [FLAC|Lossless|tracks + .cue] <Neo-Pos
 ```bash
 magnet:?xt=urn:btih:015E881A6D238A811E75B6BBCA31BCC95BFE7709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:CFDDDC890A86B9186384E6E5570F0E41E4A04C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83E1F47606B0FFB0FC5496B4C8095B2A1EBEBD3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ B.M. Askerov | Electron Transport Phenomena in Semiconductors (1994) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:2B2551F02EAAB3C63A322C7F02EDEA25F1140456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA121511BB7D5FA7B20D1A3024F06CF92A22FDD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ F.A. Kröger / Ф. Крёгер | Chemistry of Imperfect Crystals / Химия �
 ```bash
 magnet:?xt=urn:btih:657E37D4625D77A1BDF7DBC67EB83B1343B0E7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

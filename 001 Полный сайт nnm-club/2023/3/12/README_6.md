@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:071A994921E3C57F99F0EDC33C824090FE83CB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Fumetsu no Anata e Season 2 | To Your Eternity Season 2 | Для тебя, Бе�
 ```bash
 magnet:?xt=urn:btih:CA8C5A0CBAE5D8A9BE7AD5B08411D3B75B3BE4D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Maxwell Flitton | Rust Web Programming - Second Edition (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:2672B05312F32B7C959D99A0D0048B2031644D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ uTorrent Pro 3.6.0 Build 46738 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:9AAC0820217A7B5984D2BBB634B7E4FC1469CF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE412573470BD63D83A0A02CF70B63400987F974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0644F167D5B011CD1375B19FCFD24F6B6B95A840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

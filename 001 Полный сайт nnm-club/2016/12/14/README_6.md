@@ -21,8 +21,7 @@ Feeder - это полнофункциональное приложение дл
 ```bash
 magnet:?xt=urn:btih:B7D419FCF893661A4665090B87D01C824863D752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ PaintCode является отличным приложением для соз
 ```bash
 magnet:?xt=urn:btih:C3276923AFA014BD12CC017436EE82BE7C2C4471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - Savoy Jazz Sampler, Vol. 1 (1946-1959) 1992, Savoy[FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:EDB8BFC50E26EB4C64FB20F93C5293692483F0BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Midnight Lounge Vol.18: Deep Essential (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:E315FFDF2A2EB9AC5166FCB617FA6C3CC00B708A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Paradise Resort: Lounge Collection (2016) [MP3|320 Kbps] <Chillout, Lounge,
 ```bash
 magnet:?xt=urn:btih:88E292314CB566A10562836AC25705EE1D87785C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Short Menu - маленькая утилитка для создания кор�
 ```bash
 magnet:?xt=urn:btih:AB3E17265555E22B0C950573C17128130F72942E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ VA - Luxury Chillout Vol.3 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:2FE70B8D3E7ED5D92532ECB80CA4221F066FCE70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ The Charles Mingus Octet & The Jimmy Knepper Quintet - Debuts Rarities Vol. 1 (1
 ```bash
 magnet:?xt=urn:btih:33F0DB079D2C61B400AE616564164057F3A76B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ BBEdit - популярный текстовый и HTML редактор. Эт�
 ```bash
 magnet:?xt=urn:btih:1CD54F4A8D57C44688EA94AC350C4C361C2F2420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74E544D73466F42125D39D2F9BE3CEF8861155DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - Happy Winter Chillout Hits (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 ```bash
 magnet:?xt=urn:btih:9980AC80090970373CF1352CBAC1642B8DD11F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ VA - Urban Lounge Room Vol.3 (The Best In Lounge Downtempo Grooves And Chill Out
 ```bash
 magnet:?xt=urn:btih:732F4E8AC313EBBD109B9FD4302727293B514363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - Luxury Lounge Nights Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:CCCFC6FC177F719DF450DB6E62690C9C21644080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EB09A9FD3E2DA8E971F707FCFCB174354E5D307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C87506CF50242017DA47AF34793425AA37DF5ED4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ VA - Latin Amigos Con Privilegios (2016) [MP3|320 Kbps] <Dembow, Cumbia, Reggaet
 ```bash
 magnet:?xt=urn:btih:8CB500D2A484B42DC7E6469D0DF1B9C1619204CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ VA - Dutch House Bomb! (2016) [MP3|320 Kbps] <Progressive, Tech, Deep House>
 ```bash
 magnet:?xt=urn:btih:5EE9ED595B95BBC2C39A2DF77FEC7AF9CB40472B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A96166B76A8DAA6AA5390383161426B671CF7477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ AnyTrans - файловый менеджер, который отвечает з
 ```bash
 magnet:?xt=urn:btih:BEE2CD9049D6D212CE100581E659C67216081167
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ VA - Beatport Trance Pack (Best Of December) (14.12.) (2016) [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:A5AED4666934ED1FECC87CAA0860D3525FF8FA85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +563,7 @@ Aracner - Nación Tierra (2016) [MP3|320 Kbps] <Progressive, Thrash Metal, Melod
 ```bash
 magnet:?xt=urn:btih:881B32A1339835807AEFD28999DBF9582F30688A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +591,7 @@ VA - Xmas Chillout Hot Traxx (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:F9098A5443DA3EB99E811C69625D5C482A337E78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ VA - LUXEmusic: Dance Super Chart Vol.98 (2016) [MP3|256~320 Kbps] <House, Mash 
 ```bash
 magnet:?xt=urn:btih:46F77A8E6BA2B51E393CE8539226B02A7C889C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +647,7 @@ DLR - Dreamland (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F6E9D9BEE9C9C2FE72E4DB8BA4135BF470BF5913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEC82CBBC47740CB9288776FFD13204F0DF69541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5885580AFF9C4668B5F3C7965482613E3E7B80E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

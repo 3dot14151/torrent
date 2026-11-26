@@ -23,8 +23,7 @@ Armies of Exigo: Хроники великой войны [Ru/En] (RePack/1.4) 2
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Wetlands [Ru] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:F5FD9B4262BA156B5237BBD8E7257B925536EAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

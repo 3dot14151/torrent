@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:2DFF04FDD5EEC68AC5F37483CA66CE55B1186BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Big Bad Voodoo Daddy - Live (2004) [FLAC|Lossless]<Swing Revival>
 ```bash
 magnet:?xt=urn:btih:F2FB1F43FCC9586FD278623A2DB2593766C14849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Costanzo - 2 albums (1999, 2002) [MP3|320 кб/с]<New age, Relax, Nature sounds
 ```bash
 magnet:?xt=urn:btih:764B130D4094407E7CADEB1F4AB823FED6132723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ VA - The Official UK Top 40 Singles Chart (20-10-2013) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:57C26021EFFC5F2209CC09FB2ED14192C76DA0C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ VA - Best of Space Options (2013) [MP3|320 кб/с]<Downtempo>
 ```bash
 magnet:?xt=urn:btih:D7068D3FFD646C55E6322C52ADE26280181F9A84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE62DDA64242BA2573C66CBABAD2824BC023F43A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ VA - Дискотека 2013 Dance Club Vol. 114 (2013) [MP3|320 кб/с]<Club, 
 ```bash
 magnet:?xt=urn:btih:3C645F57FBA8B0BBCA9CD8D2E27D422C8AA29C5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ The Rosenberg Trio - 2 альбома (2003 & 2007) [FLAC|Lossless]<Jazz, Gypsy>
 ```bash
 magnet:?xt=urn:btih:851562CFA3843D8420959E81D00F6D580CE9D08B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +266,7 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 ```bash
 magnet:?xt=urn:btih:59A38D31B99A050A4403C29F7E2B7D730C6E5E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A45E1401D9DB6BE44CDD0E86586ED27D6A6DB50A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +325,7 @@ Huron - The Other Side Of Reality (2013) [FLAC|Lossless|WEB-DL]<IDM, Glitch, Amb
 ```bash
 magnet:?xt=urn:btih:FBC7295783E3FF4F3F8FDFBBBE5DFBE9602DF4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ VA - Goa Vol. 48 (Compiled by DJ Bim) (2013) [MP3|~245 кб/с (V0)]<Progressive
 ```bash
 magnet:?xt=urn:btih:AD514B5AC883B2CB34A820DDC94C39352FB28DDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +389,7 @@ Don Cherry, Nana Vasconcelos & Collin Walcott - The Codona Trilogy (2008) 3CD Bo
 ```bash
 magnet:?xt=urn:btih:F23C8C599888011A062C422C441252F7A6BF1AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +422,7 @@ Genius loci (рус. Гений места - добрый гений, дух-п�
 ```bash
 magnet:?xt=urn:btih:89D9E4700C2ACC616AA1E01DA98220C362CB7093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +457,7 @@ John Hammond - 4 Albums (1992-2007) [APE/ FLAC|Lossless]<Blues, Country Blues,>
 ```bash
 magnet:?xt=urn:btih:C03C04526259864658005368C0F722D549A756E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5B0A71A89340F7B4C646340052E21D8DA78DE2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:816349168ACAFDC2F2BD517704CEA525E08031C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +541,7 @@ VA - Sexy Trance #57 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:CAFCF65279D760789828B4FE04631A3FDB21A13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +566,7 @@ Men’s Health – главный мужской журнал во всем ми
 ```bash
 magnet:?xt=urn:btih:D1ACF92E4D99CE08C2F891E23AB37C977FF7DA81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C98CE20D92FD4ABD19D7A7D20181BEFB13AAFA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +619,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8625E05EC966F8C8F56946FCFBC728A29A893AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ VA - Now That’s What I Call Movies (2013) 3CD (PreRelease) [MP3|~245 кб/с (
 ```bash
 magnet:?xt=urn:btih:2395C6E3C08594134FF693981260DC43200011A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +687,7 @@ Graveworm - 9 Albums, 2 EP (1997 - 2011) [MP3|192 - 320 кб/с]<Black Gothic>
 ```bash
 magnet:?xt=urn:btih:AD9F8BFD090495914261C890EE9903800582B0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +712,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1789EE9D71010E6BF8823D55C0069690852E0C29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +746,7 @@ Fleshgod Apocalypse - 3 Albums, 1 EP, 1 Split (2008 - 2013) [MP3|320 кб/с]<Te
 ```bash
 magnet:?xt=urn:btih:26849031A1715B47500191529185302C2CE36DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -805,8 +780,7 @@ VA - Music For Cocktails: Ibiza Jazz Lounge (2010) [FLAC|Lossless]<Electronic, J
 ```bash
 magnet:?xt=urn:btih:4DFFEEC0BEDFAEDBDBF6E2819686F03A6405627A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

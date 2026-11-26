@@ -19,8 +19,7 @@ Sun Haven – увлекательный проект, разработанны�
 ```bash
 magnet:?xt=urn:btih:75B6A34CA6CB5895D5140610CE7E95FFE57E26A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Until Then – после судьбоносной встречи жизнь М�
 ```bash
 magnet:?xt=urn:btih:32E060C558C1FEC535695765EC32D04C847FCDCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PRIM (2024) [Ru/Multi] (1.3.27) License GOG
 ```bash
 magnet:?xt=urn:btih:86C9D6D1DFC44A438FC622BF7BF001E08256F76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blood West – это максимально захватывающий экшн
 ```bash
 magnet:?xt=urn:btih:78123609B54DA32922C41672F10B099D78907B81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Entropy Survivors - «роглайк» со стрельбой, где вы уп
 ```bash
 magnet:?xt=urn:btih:77CC67299D38B5B39B45C6A541854A43662E4DA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tobacco Shop Simulator дает побывать в роли владельца 
 ```bash
 magnet:?xt=urn:btih:8F4551C9B9FCEBECA30414532A794D61754074EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Dishonored - стэлс-экшен с видом от первого лица в
 ```bash
 magnet:?xt=urn:btih:D392D0E76AD10CE15FE7E14F92C50AB8BCF709F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Operator - это не типичная стрелялка или прикл
 ```bash
 magnet:?xt=urn:btih:687E239F622DBA1FFC8A8D14B69A098149C7BAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

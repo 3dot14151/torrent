@@ -21,8 +21,7 @@ Citizen Vicious - канадская метал-группа из г. Лонгё
 ```bash
 magnet:?xt=urn:btih:22C3817970ACB6B91E28AEE4736512060D685D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Astral Doors — шведская хеви-метал-группа, основа
 ```bash
 magnet:?xt=urn:btih:722C79342F8CBDFF4720B923B4FEE2E896A76563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

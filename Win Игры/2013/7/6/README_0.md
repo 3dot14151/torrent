@@ -24,8 +24,7 @@ Carpe noctem! Насладись тьмой!
 ```bash
 magnet:?xt=urn:btih:65682466EDCBA229BA6CA90ACDEB4A02195EA457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

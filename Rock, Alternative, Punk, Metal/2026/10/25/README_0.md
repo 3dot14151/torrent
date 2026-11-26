@@ -22,8 +22,7 @@ CD1 - Doomed Forever:
 ```bash
 magnet:?xt=urn:btih:F7ACEDE4B3F9B2ACF97BE690132D894B924755A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

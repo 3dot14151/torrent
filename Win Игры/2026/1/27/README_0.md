@@ -19,8 +19,7 @@ Sigi - A Fart for Melusina (2017) [Multi] (3.41) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:389D6753BDE01C7B2B8FB766237654E9A84A6F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LORT - кооперативный роулайт-экшен, главная це
 ```bash
 magnet:?xt=urn:btih:A6894A99963D8F502BD2A3797C364840DB58ED79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

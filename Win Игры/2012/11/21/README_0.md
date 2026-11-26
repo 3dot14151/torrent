@@ -21,8 +21,7 @@ Family Guy: Back to the Multiverse [En] (L) 2012 l SKiDROW
 ```bash
 magnet:?xt=urn:btih:65FE2DB9BF4F8495853FAC7DF761E3CF8AC6FD57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Crack Assassin's Creed 3
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Sonic Adventure 2 впервые появилась на Dreamcast в 2001 го�
 ```bash
 magnet:?xt=urn:btih:215761816A2498AEF8E31BB9AB26F07B307F1571
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Scribblenauts Unlimited продолжает оригинальную серию
 ```bash
 magnet:?xt=urn:btih:EB97C676A7C83C9A84F9A503C5C72A78C1390213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Assassin's Creed 3 (Patch/Crack/1.01) 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:5FFEE5AAD8D8D72373B7A7D78BDFE2FA3EAD4BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

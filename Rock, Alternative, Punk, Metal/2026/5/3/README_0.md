@@ -21,8 +21,7 @@ Rainbow - мощнейший проект Ritchie Blackmore, созданный 
 ```bash
 magnet:?xt=urn:btih:9C3804D951F0943B53888ABF0E4D1916458E3960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

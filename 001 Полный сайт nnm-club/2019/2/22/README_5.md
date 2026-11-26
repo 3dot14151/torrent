@@ -22,8 +22,7 @@ Mankunku Quartet - Yakhal' Inkomo (1968) 2017, Jazzman [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:5CC259C5ADF8A419D904071C9FE594304FFE4FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Underground Lovers - Infinite Finite (1999) Single [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:46EE9FA5D6D88689BA8375041702CE3531B3D492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Underground Lovers - Losin' It (1994) Single [FLAC|Lossless|tracks + .cue] <Left
 ```bash
 magnet:?xt=urn:btih:C6A93CA542A8D83D8B278B76D6017CF6D781A046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87CE25CBB4D4144FAB22979AB7C99FF49D1780FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ John Pizzarelli Trio - For Centennial Reasons: 100 Year Salute to Nat King Cole 
 ```bash
 magnet:?xt=urn:btih:5BC6869FE57F6F30175BDCA86B2546AE67DB755C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B7E9C7377A68E00587867DC5E93D9B25597FB90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Simon Scott - Soundings (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Experimen
 ```bash
 magnet:?xt=urn:btih:F7ED7F65DE10BB3F70AB18E64078A6DCA4A03218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - Melodic House Sessions, Vol.12 (2019) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:61DA5D0FCA00EBA46C8D59F50DE971C2A68F40ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Dan Hicks and The Hot Licks - Crazy for Christmas (2010) [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:C361052D2C65713638E29D1718670E03A378C67D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ Kinza Browser - японский браузер на базе Chromium с доп
 ```bash
 magnet:?xt=urn:btih:B5CFCB9770A50FA36CD42B59CAB8AD39204D4FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ VA - Ibiza Overload '19 (2019) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:F055AFFB0410623F05434E6ECE592AE5FC379B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F45BA4CFD307C8F8FC918EA2DFF80DA9952C5CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ JPEG SILKYPIX Photography 9E 9.2.7.1 [En]
 ```bash
 magnet:?xt=urn:btih:7BA2917E97BD10AB6D6B698B75F81DF6E7D460B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0E785287B86538674380339F7147D28E28C8560
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:643895186531881CFFB55F0A2218272A6B58FA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +420,7 @@ Vivaldi 2.3.1440.48 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:86DD28FE381FE9E2571952AD803E8CEBF1435676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:824006E58A5542CF4B0D8C9B6D66369FD9ED051C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Vangelis Katsoulis - Pictures From Inside (2011) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:D38A62B3275F388C836310821D93D966C1BAF5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ VA - Chill House: Something For Your Mind Your Body & Your Soul (2019) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:8C4CFB176635B266A06572698A4504AB926C1499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Folder scanner - визуально анализирует диск / папку
 ```bash
 magnet:?xt=urn:btih:EB871EE806619E325FD22BC58E53737053360F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13EE4228734ED02DE6C5CBA1D549AE25CCB93C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ Gary Clark Jr. - This Land (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock, Mod
 ```bash
 magnet:?xt=urn:btih:DAFB2694CB5BE2A59C72328915A55B33FAD14B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A3FB0CF77FC5DC06B6BA03EAD8A0010557290E89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ VA - Anjunadeep 10 (Mixed by Jody Wisternoff & James Grant) (2019) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:036B64C80552055A95C31FA0CDCA12E8FA81BA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBB9E6FAA8093D34F4F78457FE768B2660F936D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ N/AЖанр: Drum & Bass, Dubstep, DrumstepПродолжительность: 2
 ```bash
 magnet:?xt=urn:btih:7585C3AFDC785A2329FC16FB0FE5795AC44CE1C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

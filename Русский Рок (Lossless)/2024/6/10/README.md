@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:777ED8D0954DAA969316ABCC44029FE2EB350D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Carpenthus - Midgard (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Symphonic Metal
 ```bash
 magnet:?xt=urn:btih:73A75396C31ABCED5B5C4DD21B1B260F6187AAE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Bobby Fuller Four - Les Genies Du Rock - I Fought The Law (1994) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:277AF2C3F8C49AEB11C270365EFC495C8AB4658E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Donovan -  Les Genies du Rock - Catch The Wind (1995) [MP3|320 кб/с]<Folk Roc
 ```bash
 magnet:?xt=urn:btih:90E8B275AF246A7802699A578CC764F45B9518C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Julie C Myers - Rock On - Fearless Journey (2015) [MP3|320 кб/с]<Blues Rock, 
 ```bash
 magnet:?xt=urn:btih:50D2187B1AA305F12C603ACA0E0B22B1C6AA61F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bill Haley - Les Genies du Rock - Rock Around The Clock (1993) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:4E6CDCEC0E6E9D914F45928749C6572A1084F2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Elvis Presley, Jerry Lee Lewis Et Carl Perkins - Les Genies Du Rock - The Millio
 ```bash
 magnet:?xt=urn:btih:A13A12B42A8362F64D1032311F961375FDB08F16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Joe Satriani - Shockwave Supernova (2015) [MP3|320 кб/с]<Instrumental Rock, P
 ```bash
 magnet:?xt=urn:btih:24B48F12A510FDC97F0B8086A5F4157004AED365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Shore - приключенческий хоррор от первого ли
 ```bash
 magnet:?xt=urn:btih:542727FA9D1B7C8AA27F29F4190829879364EFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Boomerang X (2021) [Ru/Multi] (1.11) License GOG
 ```bash
 magnet:?xt=urn:btih:5FE007A2DD8FD2B9EF9F822D53B12BAF59537F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:11A3510AE58D2D8A96A07E6D5DCB8E1852136F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

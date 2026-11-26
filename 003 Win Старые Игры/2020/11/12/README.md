@@ -19,8 +19,7 @@ Magic Chronicle (2003) [En] (1.1) License
 ```bash
 magnet:?xt=urn:btih:BAD988D5BDF9F8EB151D0C145A5C965A977CAED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

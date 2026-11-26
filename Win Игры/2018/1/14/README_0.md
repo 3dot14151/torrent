@@ -19,8 +19,7 @@ Danse Macabre 9: A Lovers Pledge / Танец смерти 9: Клятва вл�
 ```bash
 magnet:?xt=urn:btih:6DCAA563E9C6440E8A99D646845CE962D36A9464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ UNO (2016) [Ru/Multi] (1.0/upd1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1D6042222C7BE69A68C9954C4B1D46C3467F7566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Wolf Among Us станет приквелом к комиксу Fables (ко
 ```bash
 magnet:?xt=urn:btih:369CC2CC98A6195C2DD7AD1A10C0785EB263B85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Life Is Strange Dilogy (2015-2017) [Ru/Multi] (1.0.0.397609/1.2.0.7.1712051016) 
 ```bash
 magnet:?xt=urn:btih:69933AAA5BD840993C9BDDFF7904E6B81E33115B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

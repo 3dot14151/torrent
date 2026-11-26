@@ -20,8 +20,7 @@ Family Vacation: California / Семейные каникулы. Калифор�
 ```bash
 magnet:?xt=urn:btih:89C472334448CF3805AB7E11B5DB8F087F6D4F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Family Vacation: California / Семейные каникулы. Калифор�
 ```bash
 magnet:?xt=urn:btih:DCF169520967F280D86E35D06AA16731BF8DE245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Dungeons Game Of The Year Edition / Dungeons. Хранитель подземе�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Wildlife Park 2: Dino World [Ge] (L) 2012
 ```bash
 magnet:?xt=urn:btih:EB8F898A9F973156EA3B12AB06E5EE993A7B8346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition / Тайны др�
 ```bash
 magnet:?xt=urn:btih:0F8B63260B93D76921DFA1FD612B5F48F000FABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Vampire Saga 3: Break Out / Сага о вампире 3. Начало (L) [Ru] 
 ```bash
 magnet:?xt=urn:btih:84C1A7B990011683E96647E3CB6DE58EB3D4707E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Flux Family Secrets: The Ripple Effect / Секреты семьи Флакс. �
 ```bash
 magnet:?xt=urn:btih:BB95D07500AF8B14DEF7DEC07A8F8437F1B0B1E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Vampire Saga: Break Out / Сага о вампире. Начало (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:26D70DC73CA4F8FACD1F8373C784C75B24BC8BC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 ```bash
 magnet:?xt=urn:btih:10D005C56EC5DB0E9C9779695FCEEF0EDBE3A59F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ Shiver 2: Poltergeist Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:3BC6075E783EF395D8B0E4471AA3225D344F6477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ Isla Dorada - Episode 1: The Sands of Ephranis / Исла Дорада. Эпиз
 ```bash
 magnet:?xt=urn:btih:3966FB57ECF9FD90E7FBF0F7DEA25C20F628F499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Das Geheimnis des Korsaren (L) [Ge] 2012
 ```bash
 magnet:?xt=urn:btih:82B9346A2196437830665FB79FD2CE2FDBF5A6F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

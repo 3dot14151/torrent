@@ -22,8 +22,7 @@ Nuclear Revenge - Dawn of the Primitive Age (2021) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:D7E8D0D5900D88997BE766F745F516B6EFDE887D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Balrog - Gorgon (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:20C9408251284C792D43DD8A7F9DF0610BE2EF97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Master - Vindictive Miscreant (2018) Reissue, 2021, Awakening Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:1EEB5A1CC542ACA287C7CEA7419469DFDF60E23B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ghost (Ghost B.C.) - Impera (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal
 ```bash
 magnet:?xt=urn:btih:DA58E5608574CCD4EFCD3E0DB9BA3A8A0A748A23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ghost - Impera (2022) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DC2196F72E34155FE4917025A416C0D2CD386EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bryan Adams - So Happy It Hurts (2022) [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:D5EDC4231D12336703823C5526EAA3871365D060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sabaton - The War to End All Wars (2022) 2CD, Limited Edition, Earbook [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:3D504C4B6F1B1983C5CF50B20C9754A672CFAF5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ Clandestine Blaze - Harmony Of Struggle (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:A35EB77AB79572A9ED0050E3FEE707B664FAFCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Christicide - Upheaval Of The Soul (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:8050D9E78A328ECFF8B35879334E448F2B837BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Crionics - 3 Альбома (1998 - 2010) Дискография [MP3|192 - 320 
 ```bash
 magnet:?xt=urn:btih:6EEDB261612119C5D446D336A8DD6EEFE9CCA5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Sargeist - The Rebirth Of A Cursed Existence (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:17C5BECBDF8F95232E439AD24D933CA7457325E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ Romanthica - Eterno (2013) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4D6B48A63C7B79CC10D7104445040559306098FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE9FD459FF003F7D1029620F4C800E3C06BB787B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8490162CEF77BF6C938322DD763729D382C86401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ N.K.V.D. - Власть (2011) [MP3|~245 кб/с (V0)]<Industrial Black Metal>
 ```bash
 magnet:?xt=urn:btih:16F5DC9EBFA5F68501980659D5B97C195225C27F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Isotope - 3 Albums (1974-1975) Remasters /2011, Esoteric Recordings/ [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:8AC9817924D803CDE30B21D8667B321A77D8E75D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ Billy Idol - Idolize Yourself: The Very Best Of (2008) [APE|Lossless]<Rock & Rol
 ```bash
 magnet:?xt=urn:btih:1D8DC7A648EF84F2582E377468BF5C7CE53501BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +358,7 @@ Blues Traveler - 12 albums (1990-2008) [MP3|320 kbps]<Hard Rock, Blues-rock>
 ```bash
 magnet:?xt=urn:btih:33A4D22CDE5D30746B3928DFD25946472EA9C561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1ECD266E41DDDB176B130A95B566B3CA17AA6BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

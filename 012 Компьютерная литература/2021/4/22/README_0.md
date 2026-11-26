@@ -19,8 +19,7 @@ Eric Sarrion | Vue.js Advanced Concepts (2021) [EPUB, PDF, AZW3] [EN]
 ```bash
 magnet:?xt=urn:btih:B519948329282F64F91AEB0474EC6A48F796F5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Fullstack React with TypeScript - это практическое руковод
 ```bash
 magnet:?xt=urn:btih:C589D282CB23F32DAD3BBB51C9B556A35542D913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:716D22391949EB701B75C1FB175999468012DBE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

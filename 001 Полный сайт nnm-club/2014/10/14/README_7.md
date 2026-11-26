@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:A0B8C7D5A706652BF6EEA7C67F5F663ADC9F01F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Protestant - In Thy Name (2014) [MP3|320 кб/с]<Blackened Crust, Hardcore>
 ```bash
 magnet:?xt=urn:btih:E7A2E15C83AA215248369E35492E4BC7391F1469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ F.Side - Level 3 (2014) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:9886CE14E3A48128DA72275D37E90DDB004DFF2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17BA9571053FB650E30FD8F4C2536D4AD597A8F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F515F0C19E05BB30E71847BED558F0F9FD9682F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B31F3CC580CE52E00E386B5DBFE70C70BC69EEA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ VA - Sense of Vocal Trance Volume 33 (2014) [MP3|320 кб/с]<Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:A1A3389D5BEAF7ADDE43928B0468144EB54FCA32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ Christian Maria Haug - Carpe Diem (2014) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:1CB115EFACCD5ED2201C1FB48A553DCAA677EF30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ VA - Unique Phaze Awake Quality (2014) [MP3|254-320 кб/с]<Club, House, Electr
 ```bash
 magnet:?xt=urn:btih:918C99A17E56CF9004BB08D84046B4A2E013589E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE10A39F02C2BFC00FB58C7BAB625D58982553D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +347,7 @@ Ray Scott - Ray Scott (2014) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:0F456436F03AAD6E667DA730A1D5BED6CED13B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:828C2EE6392A42D9720DB792FE274BC001B8FE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ Pulp Victim - Trance Classics: The Best Of (2014) Remastering [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:E8A960E9C81FCC23D9E605F7C72E66A133DD12C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +448,7 @@ Zespol instrumentalno-wokalny - Gdzie sie podzialy tamte prywatki Vol. 2 (2005) 
 ```bash
 magnet:?xt=urn:btih:0561FACADF33992965C0B94CC32FAE4E41D73687
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +482,7 @@ VA - Electro House Pro V.71 (2014) [MP3|320 кб/с]<Electro House Pro>
 ```bash
 magnet:?xt=urn:btih:877B4468C0B34C9B6FD7B3DD0F2B0BCC859843FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +515,7 @@ General - Piros bicikli (1979) [MP3|320 кб/с]<Rock, Funk-Rock, Pop-Rock, Jazz
 ```bash
 magnet:?xt=urn:btih:53E2CBA00C1A681C16D3CB5661154C1725CB4B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +540,7 @@ Inter Arma - The Cavern (2014) EP [MP3|320 кб/с]<Post Metal, Sludge Metal, Bl
 ```bash
 magnet:?xt=urn:btih:F369B499C744DA80AAF66FCB8350AB5ECCF91FDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +574,7 @@ Hungaria - Hotel Menthol (1981) [MP3|320 кб/с]<Pop-Rock, East Rock, Rock & Ro
 ```bash
 magnet:?xt=urn:btih:7D89DD1B6EA9ED4332C476EC5E02F3D63534EE03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B1F6A0DFD808F4CE33AA8F206238E8B154B2F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ Hungaria - Finale? (1983) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:79EF7753CDF07C7438CB1CA87ABE45C88892CF2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D77C1E706916ADDA106AAFB4597CC225A3C7A803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D333EEF042512B85C813A5457D36FDFDF091738F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1B9B4C6CDD715C756EFA421E042D3B96224354C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ VA - Future Garage Vol.20 (2014) (2014) [MP3|253-320 кб/с]<Future Garage>
 ```bash
 magnet:?xt=urn:btih:4F6F9C39DE28AE9CEE3A59A12E8E030F252DF174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ Weep No More / Love You Till I Die / Boss Guitar
 ```bash
 magnet:?xt=urn:btih:78377F0F93B52367CE76428A11E5213CE3539551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

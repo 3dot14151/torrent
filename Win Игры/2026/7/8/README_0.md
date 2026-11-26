@@ -19,8 +19,7 @@ Artifact Seekers: Season 4 / Искатели артефактов: Сезон 4
 ```bash
 magnet:?xt=urn:btih:8795A681F4E17363F0DDB907E69D83549C70D421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DEAD OR ALIVE 6 Last Round (2026) [Ru/Multi] (1.00a/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:31F0DBE3DB7D331489AC23F74A871E2839DC0BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crushed In Time (2026) [Ru/Multi] (1.0.5796) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:C090E9CE8DC10AA8AD293A6569ECA087D68251CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Stranded Deep - это выживание на необитаемом остро
 ```bash
 magnet:?xt=urn:btih:6CAB9C5F6327D359BE339EBB4FB8B3F4434F82CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mafia: The Old Country (2025) [Ru/Multi] (Build 20951841/dlc) Repack HardwareMin
 ```bash
 magnet:?xt=urn:btih:11B5CED352A7552FE704063D77868A70C842C69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ X-men Origins: Wolverine / Люди Икс: Начало. Росомаха (2009
 ```bash
 magnet:?xt=urn:btih:A328301913100953BBEC6CF9C387A0133BCE19B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Escape from Naraka - платформер с видом от первого ли
 ```bash
 magnet:?xt=urn:btih:B7A8936597891329E09D6A55EA38748D2B06015B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ YAR: Forgotten Throne / ЯР: Забытый Чертог (2024) [Ru/Multi] (1.1
 ```bash
 magnet:?xt=urn:btih:E3438AB1E8440CF9C4198C343FE56FCF11673A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Alien Market Simulator (2025) [Ru/Multi] (1.00) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:85969E187572660745538273F992061AD51FDA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Summer’s Heartbeat (2026) [Ru/Multi] (1.05/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A42BD4A181C4544B52F01F792E0177CFF105906C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ STARDUST: Wish of Witch - это однопользовательская пош
 ```bash
 magnet:?xt=urn:btih:AABE5FFE1310B1A018308B3BB37364CCE78B2014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Nested Lands - это многопользовательская ролевая 
 ```bash
 magnet:?xt=urn:btih:B02011360AF9051F1393E6E1F156107237A6BA26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

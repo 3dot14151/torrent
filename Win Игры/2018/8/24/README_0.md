@@ -19,8 +19,7 @@ The King’s Bird (2018) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8CBE2D0CCE5F4D4487C4D897A816BBB181D4BD32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

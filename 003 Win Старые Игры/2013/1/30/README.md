@@ -20,8 +20,7 @@ Toribash - это файтинг, в котором на красивый сме
 ```bash
 magnet:?xt=urn:btih:12966ECCCC5296D3C9C61B17CE64316BAA13E5C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Chicago 1930 [Ru] (RePack/1.1) 2004 | R.G. ILITA
 ```bash
 magnet:?xt=urn:btih:9C174EDF25F048DD8C733ACBDE4A6614586FF2BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

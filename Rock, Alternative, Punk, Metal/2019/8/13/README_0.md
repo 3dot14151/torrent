@@ -22,8 +22,7 @@ Louise Connell - Squall Echo Rale (2019) [FLAC|Lossless|tracks + .cue] <Indie Ro
 ```bash
 magnet:?xt=urn:btih:3AD3D495CB1584653F760F62776C35F4B6CE3611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mermaidens - Look Me In The Eye (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock
 ```bash
 magnet:?xt=urn:btih:8ECEFE41ED37F7E8249023407B919CA6F346D0F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ihlo - Union (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:AE2AA791B747F79AC6D59908B4CC5850369DC769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Chumbawamba - Tubthumper (1997) [FLAC|Lossless|tracks + .cue] <Folk Rock, Pop Ro
 ```bash
 magnet:?xt=urn:btih:BA4A38296765764092D813B145BF277D230A399F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Legend - From the Fjords (1979) 40th Anniversary Edition (2019) Reissue, Remaste
 ```bash
 magnet:?xt=urn:btih:5AB3E8D698F085B6373E95E47B38165186FEA097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Shiver 4: The Lily's Requiem / Дрожь 4. Цветок забвения (2015
 ```bash
 magnet:?xt=urn:btih:D961D291A8E97B7C88B429F381346EB76F835D78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Demon Hunter: Chronicles from Beyond The Untold Story / Охотник на Де
 ```bash
 magnet:?xt=urn:btih:206684D403FADB8BD7534A332F0C367692B80550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shiver: Vanishing Hitchhiker / Дрожь: Призрачный попутчик
 ```bash
 magnet:?xt=urn:btih:57C2588D8D298E40DE57299FFF1A670D7E5C052F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ori and the Blind Forest (2015) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:8B425774847B9694FF3B21961A949B95C0CF53DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Drizzlepath - казуальная исследовательская броди
 ```bash
 magnet:?xt=urn:btih:E4616E2093E0D65704F1072362B4F987DC38BBA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Sid Meier's Starships (2015) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:DB1C7070176A44D5F4E65AC3C02F678DEF84E8F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

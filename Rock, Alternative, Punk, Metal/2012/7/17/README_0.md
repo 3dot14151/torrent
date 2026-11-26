@@ -28,8 +28,7 @@ Ewigheim - Bereue Nichts (2012) [MP3|320 кб/с]<Gothic Metal, Dark Metal>
 ```bash
 magnet:?xt=urn:btih:8D25E9418AD1B5210B7B4052867A1530F03E98D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ The Embodied - The Embodied (2011) [FLAC|Lossless]<Modern Melodic Death/Power Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Tank - War Nation (Extended Version) (2012) [FLAC|Lossless]<Heavy Metal, NWOBHM>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ The Beach Boys (Brian Wilson) - 57 альбомов (70CD) (1961-2012) [MP3|160-
 ```bash
 magnet:?xt=urn:btih:8C1B4A7DC5F63BE0FFA7ADE38F211042EFF462CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Neil Young And Crazy Horse - Americana (2012) [FLAC|Lossless]<Rock /Country / We
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

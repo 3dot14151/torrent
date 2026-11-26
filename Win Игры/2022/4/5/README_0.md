@@ -19,8 +19,7 @@ The Swindle – это игра в стиле стимпанк, в которо�
 ```bash
 magnet:?xt=urn:btih:FAE9BE56EA1517DD714C29536145FA88CBFA20D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

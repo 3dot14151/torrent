@@ -28,8 +28,7 @@ Patrick Sweany - That Old Southern Drag (2011) [MP3|128-320 kbps]<Rock, Blues-ro
 ```bash
 magnet:?xt=urn:btih:654F21ADF6041B83D24AEB056FF8272142C4608F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Pur:Pur - Papercuts EP (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:3751561E4DC04A2ABE4841583860CD5C856004C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Amaranthe - Amaranthe (Japanese Edition) (2011) [FLAC|Lossless]<Power Metal, Mel
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

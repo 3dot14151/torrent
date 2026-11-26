@@ -19,8 +19,7 @@ XXIII век. В таинственных и малоизведанных глу
 ```bash
 magnet:?xt=urn:btih:B51563F1FD255149CDC8105D6020872522EFEBC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

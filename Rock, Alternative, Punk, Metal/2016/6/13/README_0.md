@@ -22,8 +22,7 @@ Raw Ensemble - Suffer Well (2016) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:CC0909D044BC473A0C144B9368BFC5EECB99AAF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elton John - Elton John (2001) Unofficial Release [APE|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:74AB6B322914F8CC8CD6F1F6F61161129F83FD92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Phil Lynott - Yellow Pearl - A Collection (2010) [APE|Lossless|image + .cue] <Ro
 ```bash
 magnet:?xt=urn:btih:BB4658E006CD68EFDE81D869A3522142B0FC6A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - The Battle of Metal, Vol. 3 (2016) [MP3|320 кб/с] <Metal, Rock>
 ```bash
 magnet:?xt=urn:btih:579D7D1236EBD3F130AC8B584C6D708FA761CEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Shakin' Stevens (Shaky) - Rock'n'Roll Greatest (1992) [APE|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:F33E15FA4FE21B281224BA22A3550BA3ED78F70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Lissie - My Wild West (2016) [FLAC|Lossless|tracks] <Rock , Folk Rock, World>
 ```bash
 magnet:?xt=urn:btih:57D3A6135230D8927EB5887B46A3428C5CD3CD34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA6AED8A7A9D8AF88EFB77AF89363EE80874D3B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

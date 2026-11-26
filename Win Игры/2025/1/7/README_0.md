@@ -19,8 +19,7 @@ Project Tower - это шутер от третьего лица, который
 ```bash
 magnet:?xt=urn:btih:A410239AAEA44C768144740FCA36BA063BFCB930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Slipways (2021) [Multi] (1.3-1143) License GOG
 ```bash
 magnet:?xt=urn:btih:B0602135474CDC5C93109E87158006AFD03AEC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Joyville 2 - это хоррор-головоломка от первого ли
 ```bash
 magnet:?xt=urn:btih:9516A6FBBD3EE39027B700DBF43612D3D4D1B9E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Living With Sister: Monochrome Fantasy (2024) [En] (20241219/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:02322C18E3C83C3E855FC3025F728FC18B5F654A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ G.O.P.O.T.A 2 / Г.О.П.О.Т.А 2 (2024) [Ru/En] (1.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:C747864E995B719E623D8442F34D7BE9B21FE182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Conscript (2024) [Ru/Multi] (107/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4B0E010C3600810413CA15CE3EC825E92EF03674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Never Alone / Kisima Ingitchuna (2014) [Ru/Multi] (build 16726002) Repack dixen1
 ```bash
 magnet:?xt=urn:btih:4D6443F0B0434493BB9A81B089B96D3C455E5CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Priest Simulator - экшен от первого лица, где вы возь
 ```bash
 magnet:?xt=urn:btih:90D6CC1EFFB2B4F902FC09C3EF666A91074371AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack FitGirl 
 ```bash
 magnet:?xt=urn:btih:A9154E52E835B89043CD5FDFAAD3008D1987A44C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Project Tower - это шутер от третьего лица, который
 ```bash
 magnet:?xt=urn:btih:F71142CAF1CBDBBA3FB351CFDFA8E8AD18AE5DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:48CF2287B51AA7576FAB17D37EF407D060470E86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:9C956EADF704C00700F982CA12D988DBF52B0944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Milo and the Magpies (2021) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8BC234BF9679CA33FEE45FFC0A6C06226684AAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Supraland - игра-головоломка от первого лица в жа
 ```bash
 magnet:?xt=urn:btih:6A74DD5507966F87668E6841AF980457881B0757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

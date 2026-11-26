@@ -19,8 +19,7 @@ Kubuntu 14.10 Utopic Unicorn Alpha I [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:01BC3492077048C4055AAF5597753ADFBA25CDE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ```bash
 magnet:?xt=urn:btih:3685A753A54CEA007A2A1EE01031391804CB54F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

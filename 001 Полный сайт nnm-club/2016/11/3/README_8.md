@@ -18,8 +18,7 @@ FlashLight HD LED Pro 1.93.14 [Ru] - LED фонарик
 ```bash
 magnet:?xt=urn:btih:BDB15F38AABB6253F689E0A833F1C3D29A927DF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

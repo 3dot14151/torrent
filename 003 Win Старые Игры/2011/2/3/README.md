@@ -21,8 +21,7 @@ Dragon Hunters \ Охотники на Драконов (L) [Ru] 2007
 ```bash
 magnet:?xt=urn:btih:71525CA30689812EF331AF1E1B4178702F717E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

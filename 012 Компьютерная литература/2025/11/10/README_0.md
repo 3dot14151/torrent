@@ -20,8 +20,7 @@ If you’ve been programming for a while, you may have found yourself wondering 
 ```bash
 magnet:?xt=urn:btih:02C170292E449A5732D39F481662DDCFC9448D6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Book of R is a comprehensive, beginner-friendly guide to R, the world’s mo
 ```bash
 magnet:?xt=urn:btih:6D8E3E129B07C58F0C9159988C83041679511E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

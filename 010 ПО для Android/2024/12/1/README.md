@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:FF5B29E0994429D83C88D29F432E28CFE866294A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.8 Gold
 ```bash
 magnet:?xt=urn:btih:A9A6C99FBF04D3AF92BE632C9F96F8611C4268FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ tinyCam Monitor PRO - удобное приложение для работы с
 ```bash
 magnet:?xt=urn:btih:19C43A5511635963C278EB11C6C4DAEE196FEEC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:8CCAB6DA0CA0DD05BCBAA3CED67A7E5BAE8E21CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Words – это лучшее приложение для изучения сл�
 ```bash
 magnet:?xt=urn:btih:4C892D93DB0AE09F612041A84DB34B5D8484FAC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Words – это лучшее приложение для изучения сл�
 ```bash
 magnet:?xt=urn:btih:85DFC6410BFA22AB872D1FD82F10C1680C3F30DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Listonic / Список покупок v8.16.1 Mod by NURIK kz [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D3AE9775A78C77798B02A76B6691A464F44AA79D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Alight Motion v5.0.271.1002592 Premium Mod by MustHave [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4A6CB573E3063C0B708A4282C2655608E5238548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

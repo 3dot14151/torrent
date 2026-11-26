@@ -19,8 +19,7 @@ save2pc Ultimate - программа для загрузки и конверт�
 ```bash
 magnet:?xt=urn:btih:8652364BDB45699190BFF93DFB664296D3C094CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Context Menu Tuner 1.0.0.1 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:95C2D1754C2AD2C5896DBA6999708B2B1CE9FB0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Fallout: New Vegas Ultimate Edition + 6 DLC [Ru/En] (Repack/1.4.0.525) 2012 | R.
 ```bash
 magnet:?xt=urn:btih:56C3CB0C37971D7C95E5B5386560A544EE9B6495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Windows Server 2012 (кодовое имя «Windows Server 8») - версия 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

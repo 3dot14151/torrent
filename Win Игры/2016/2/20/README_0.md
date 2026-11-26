@@ -19,8 +19,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.06/dlc) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:BA239836BA1BE16CB764EEACF489B30466ED64EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

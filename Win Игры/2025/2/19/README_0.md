@@ -19,8 +19,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [Ru] (1.2.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F617D7ABDF4D447AFBE94DAC8D63BF314FF3C973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Galactic Simulator - это игра-кликер, основанная на п�
 ```bash
 magnet:?xt=urn:btih:DA54D0D83D9C3318D2EC1F2CCC2613D562C0C59A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:AF1ADB64280A4F949BC56656E31E2D5C3501FDDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Scene FAiRLiGHT
 ```bash
 magnet:?xt=urn:btih:AF0B17DAB1145858B197CD6F46293F5029B5B808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.152s/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:938C1104DBDFF51DBB05D7C7C0AFEBDE95B02CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (build 17370633) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:28DBBEE1CDC28CE65A67CCCE6723ECEEBBC7A595
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

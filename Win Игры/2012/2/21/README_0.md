@@ -19,8 +19,7 @@ Galactic Assault: Prisoner of Power / Обитаемый остров: Посл�
 ```bash
 magnet:?xt=urn:btih:66762AB20A3C5E6054333E7DBBDA01E229634BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Space Дилогия [Multi5/+] (RePack/u1) 2008-2011 | R.G. Shift
 ```bash
 magnet:?xt=urn:btih:D56D2DC834CFCDFB05709693F1DF56B5C313FA7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

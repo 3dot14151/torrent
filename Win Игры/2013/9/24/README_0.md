@@ -19,8 +19,7 @@ Dark Cases: The Blood Ruby Collector's Edition / Мрачные Истории: 
 ```bash
 magnet:?xt=urn:btih:EA3E30B99FAA4E52FDF4706F159F263494556CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Raven — Legacy of a Master Thief — это увлекательное к�
 ```bash
 magnet:?xt=urn:btih:6C4D3F7320135F1D4F674FD929921D33788479C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

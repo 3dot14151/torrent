@@ -22,8 +22,7 @@ A4 Roxy Music– - Virginia Plain(   Читать дальше...   )Жанр: P
 ```bash
 magnet:?xt=urn:btih:D61527BFC57E760905C31509384B215484223971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Danny Field's Corp. - I Can't Tell The Bottom From The Topa(   Читать �
 ```bash
 magnet:?xt=urn:btih:BC382EC4BAA9CAAB71E519D9524506861127FA39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Broken Fate - швейцарская метал-группа из Цюриха, 
 ```bash
 magnet:?xt=urn:btih:80A6B6526201B19774B6DFD568231E390DF2CEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

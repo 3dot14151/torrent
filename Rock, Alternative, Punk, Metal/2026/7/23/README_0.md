@@ -22,8 +22,7 @@ The Hu - HUN (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:B1417F2AE97E5DE815849CEAE9D2E3AEDDDA74C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Strokes - Reality Awaits (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 ```bash
 magnet:?xt=urn:btih:5325C3A0B41C2826D9084D2DB975566968C798FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Zan / Cody - Beautiful N Damned (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Me
 ```bash
 magnet:?xt=urn:btih:8B16F3872198FBC3E7105282E2477BC68E4A70C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Meshuggah - Catch Thirtythree: 20th Anniversary Edition (2005) Remastered, 2026,
 ```bash
 magnet:?xt=urn:btih:0C01DA8E36CCF439FB6E9E48F12520C3A4EEB3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Meshuggah - Destroy Erase Improve: 30th Anniversary Edition (1995) Remastered, 2
 ```bash
 magnet:?xt=urn:btih:B1BB0E54660A71749449A8DE6AD35E1F6AC656DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ White Willow - Terminal Twilight (2011) [MP3|320 kbps]<Symphonic Progressive Roc
 ```bash
 magnet:?xt=urn:btih:AD4A5D91D4E7306AD9CAEAEDEB6E89258D53B32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Ted Nugent - Original Album Classics (1975-1980) 5CD Box Set /2008, SonyMusic/ [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

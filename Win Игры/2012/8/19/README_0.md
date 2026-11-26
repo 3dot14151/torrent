@@ -21,8 +21,7 @@ Virtua Tennis 3 — ваш пропуск на корт, где собирают
 ```bash
 magnet:?xt=urn:btih:D2EF3A775C520B9A53BD2289F9F4D9A58B4913EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

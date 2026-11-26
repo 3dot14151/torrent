@@ -23,8 +23,7 @@ Furia - Nocel (2014) [MP3|320 кб/с]<Post Black Metal, Experimental Black Meta
 ```bash
 magnet:?xt=urn:btih:E455DCBC1D9E673DCB0310561FAAE151775201BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Dimitriy Pavlovskiy's PowerSquad - Shrine Of The Wanderer (2015) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:F31391205C98ADBD141028BBCCEA5295CD2BF347
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Dakotafish - Many Moons (2011) [MP3|320 кб/с]<Аlternative/ Blues/ Funk/ Indi
 ```bash
 magnet:?xt=urn:btih:2F64774A06A06CF508BA6A6B6CE8D2577371EDC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Melechesh - Enki (2015) [FLAC|Lossless]<Black, Death, Middle Eastern Folk Metal>
 ```bash
 magnet:?xt=urn:btih:8569E4DC3E29A9F9785BC9FBEFCD665EFF3228E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Jorn Lande & Trond Holter - Dracula: Swing Of Death (2015) Japanese Edition [FLA
 ```bash
 magnet:?xt=urn:btih:CF8486079DC6C874CBC30640B633815DA80EAA9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

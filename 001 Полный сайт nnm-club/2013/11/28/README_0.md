@@ -27,8 +27,7 @@ VA - Зарубежные Новинки Vol.138 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:2BB6BAAE23913F9392250607D1F55A9F34A1EDAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - The X Factor (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:26AC171462765CA50720D32C57FF7A7D4F554A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Three Thirteen - Overdrive Alive (2013) [MP3|320 кб/с]<Hard Rock, Heavy Metal
 ```bash
 magnet:?xt=urn:btih:66D4018B15C884471B94C214FCE54BCE712C988F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC0C2C9F7CC397228B5B86B95D207CCD2C847502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Alquimia De Alberto Rionda - Alquimia (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:41D468B3856654AF0FAFE855FCFCF94032E93E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6422A1519005B174C60365723163F6C3D374BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65AC988AE08E051578C48FB3A5E2DAB100D8B2FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +229,7 @@ DVDFab – программа для копирования DVD и Blu-Ray ди�
 ```bash
 magnet:?xt=urn:btih:AD33403412C949A71255404E9212B3BB20EF36DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4A41347B1A0727301FE4A98EEE603408E91C6689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +288,7 @@ VA - Зарубежные Новинки Vol.140 (2013) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:A08381DE0146D0CACBE9DFAF9476F91FB7A1BAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +322,7 @@ tyDi - Hotel Rooms (2013) [MP3|320 кб/с]<Chillout , Ambient>
 ```bash
 magnet:?xt=urn:btih:C630CBBBEDD6E170AB46834472C4D5DF188EA9CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ Necrophobic - Womb of Lilithu (2013) [FLAC|Lossless]<Death Metal/Black Metal>
 ```bash
 magnet:?xt=urn:btih:4B47AEFB3BF349379ED7DD34781E0791B42ABA41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +390,7 @@ Split Heaven - The Devil's Bandit (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D11A2BBFF3B47993835F1F52BFF774E011244D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ VA - Together Ibiza 2013 (2013)2CD [FLAC|Lossless]<House>
 ```bash
 magnet:?xt=urn:btih:B59686A40E17BB3EB96E44233E895ECE439E1672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF7A612BA543B03E6E961838709A067AD5D4E6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25F03A831DE98CE7BC053E3D2C08808F82EA0033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ VA - The Best Chillout Of Plexus Music - 2 (2013) [MP3|320 кб/с]<Balearic, Do
 ```bash
 magnet:?xt=urn:btih:9ED5A0C00EEE3396FBE77B994DA6EACDB1E10406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D00B42E1BB0D2F7D60700A4AAA0D5E482935E7BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC3ECE0BF062E6CE14CC34B2E8FB45752A9722BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ Lounge District - Erotic Mode - Red Lounge Vol 1 (2013) [MP3|320 кб/с]<Lounge
 ```bash
 magnet:?xt=urn:btih:A3C627C1369656F4382D30524C40A8193760E640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFC3EF6132F8C32359982DDA795C3CE56C4BDD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3235B4536D423BD33FF0BB1E5291E7C41F53CCE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +670,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86DE20D0FA05BFB0CF504AC067719A7194F367A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D99674A41E4239A7CAC38927A7C0F35F6D5060AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9638D778ECDCAB2C4558314BA90240E4C50AE9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ VA - 8O'S Re - Edit ITALO DANCE Album (Compiled by Mcity 2O13) (2013) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:5E3F64186EB3AD93A518539BE6612DE3C386BB25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ GeckoLinux — дистрибутив Linux на базе openSUSE. Дистри
 ```bash
 magnet:?xt=urn:btih:2475E25A974EB15AA7CA1ECC4C58265A217BA6DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

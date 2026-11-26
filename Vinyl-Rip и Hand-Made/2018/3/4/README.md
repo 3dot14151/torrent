@@ -22,8 +22,7 @@ Pink Floyd - The Dark Side Of The Moon (1973) Repress, 1974, Harvest [FLAC 2.0|1
 ```bash
 magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

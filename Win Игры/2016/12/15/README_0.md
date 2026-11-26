@@ -19,8 +19,7 @@ Demon Hunter 2: New Chapter / Охотник на демонов 2: Новая �
 ```bash
 magnet:?xt=urn:btih:867B82FD2BBD072D5C0B2FD127DACBEA14B2EDE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0) Repack Seraph1 [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:1F4FC14EE69E9799F181A7E12548ED843A8AA23C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lost Lands 4: The Wanderer / Затерянные земли 4: Скиталец
 ```bash
 magnet:?xt=urn:btih:924D4801CF643864AC8C7FCAFBAC44B38CE3AA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Watchmen: The End is Nigh / Хранители (2009) [Ru/En] (1.0) Repack Serap
 ```bash
 magnet:?xt=urn:btih:7A931AC870B429B20A8D2F2366466F42D6FEA2F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Super Dungeon Tactics – тактическая пошаговая страте
 ```bash
 magnet:?xt=urn:btih:433B0BD5944409C6314F890A4C8597C0539AC827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Dwarves (2016) [Ru/Multi] (1.1.2) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:0A8BFE863FFF0BE5D378DB41616AA14F5A20335D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

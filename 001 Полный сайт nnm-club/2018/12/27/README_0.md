@@ -21,8 +21,7 @@ SZMC - Dark Energy (The Album) (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth,
 ```bash
 magnet:?xt=urn:btih:DA7032F92746780A7832C3F0191C1B9E7FAD4060
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Movie Explorer сканирует все ваши внутренние, внеш
 ```bash
 magnet:?xt=urn:btih:7EF3C7AD4A0B3BF7C2E8B6FC6FFBA9786AC5406A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA07FF7BE497AA07811588317DB4DB3E6FCD6958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ SimpleImage - Хороший просмотрщик изображений дл�
 ```bash
 magnet:?xt=urn:btih:4B230A7A8220B26FA8AFB25EA46988289669D2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Billboard Hot 100 Singles Chart 29.12.2018 (2018) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:BACA4420DCC5777C32371DDB1BE17E8507039A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Thunderbird — это бесплатная почтовая программа,
 ```bash
 magnet:?xt=urn:btih:26BEE27574C0B5FE11F88B0F8C21803397573BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ VA - Bass Killer 16 (2018) [MP3|320 Kbps] <Dubstep, Trap, Electro House>
 ```bash
 magnet:?xt=urn:btih:47443621386C696E3D8C27172C9F113DE94D0D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Music 2018 Live Christmas Sweet (2018) [MP3|320 Kbps] <Christmas, Dancehall
 ```bash
 magnet:?xt=urn:btih:79CB2929309DC60EE72982A35E1CA0AACC67CAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +234,7 @@ ToothFairy поможет вам перейти от одного выбранн
 ```bash
 magnet:?xt=urn:btih:EE599745FAB39D770136FCBF0CFDBA224E2B08EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Qbserve дает мгновенные ответы на вопросы о том
 ```bash
 magnet:?xt=urn:btih:B4B2F7A104F7100371CDAE2828B008EF875D2BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Gear Player позволяет вам управлять вашей музыко
 ```bash
 magnet:?xt=urn:btih:F8B32337AF5E2BD02571644942337530C33E9289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ Thunderbird — это бесплатная почтовая программа,
 ```bash
 magnet:?xt=urn:btih:73DA94232DE1B2610183E3D1741A8A408BC7C7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36412759C5EA54B82C6901B86288944A48489BE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50F39858B0A9B3A6424A21140E93A665F05C397F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ VA - Lyrical Soul Ballads (2018) [MP3|320 Kbps] <Funk, Soul, Ballads>
 ```bash
 magnet:?xt=urn:btih:33877EAB039B1208B63ED9B39A9EE3AF9A9749E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ VA - Happy Dance Hit (2018) [MP3|320 Kbps] <Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:44568B17B0B21C5B072C0ADD1A6F4EA77592349C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ SZMC - Alien Invasion (The Album) (2012) [FLAC|Lossless|WEB-DL|tracks] <Spacesyn
 ```bash
 magnet:?xt=urn:btih:82DC6469557906AA550E1B2E325A9ABEB1EF1C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:870C69BB76F6DE724B71DB3ECE3104F99905F6FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ VA - Snowflakes IX (2018) Raumklang Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indu
 ```bash
 magnet:?xt=urn:btih:2039372E2D8D4F4A711BAE1F63F71F3785E242BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ Demon Hunter 5: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:0DFB0A342804AFDFF35EF9029F8A2ECFA5F34335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49469BC1D64F83B832ED4FEA3CAF2BEA890F75C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Haunted Hotel 17: Beyond the Page (2018) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:11D82C0C2282797F69786A2BD0C8CD041099BCA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ VA - Platipus - Archive 13 (Mixed by Luke Brancaccio) (2018) [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:D91765094A197E9B9108F28AC80F6102D49D0F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:4DE2575190DBCA4E61697BF7DB540C96B2F4F284
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ A4 Jacqueline Schwab (Piano) - Battle Cry Of Freedom(   Читать дальш�
 ```bash
 magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:058739DBFC240D184FE570B3F9A98E2B54CB9670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

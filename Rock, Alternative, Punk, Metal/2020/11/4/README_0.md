@@ -22,8 +22,7 @@ Esabuc - Taciturn (2020) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:82ABFD97CCAC8B0FA3CC1822F0759459F2B60E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Jamie Lenman - King of Clubs (2020) [FLAC|Lossless|tracks + .cue] <Post-Hardcore
 ```bash
 magnet:?xt=urn:btih:E8919DB04075ECBB0A1B65274B8CCB58187BBB65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Platinum Overdose - Back For The Thrill (2020) [FLAC|Lossless|image + .cue] <Gla
 ```bash
 magnet:?xt=urn:btih:6D94FAC0948D061B128A5658FE010881F0A0686B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Spice - SPICE (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Goth Rock>
 ```bash
 magnet:?xt=urn:btih:FD8E94740951689115F7A3EBEBFF086586CBBC9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Puscifer (Maynard James Keenan of Tool & A Perfect Circle) - What Is... Puscifer
 ```bash
 magnet:?xt=urn:btih:149E3324D3DD886708898AF91DA543212829CBF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Pearl Jam - MTV Unplugged (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:C27BB1A9D8415110457D62A5C9462526EB3C91C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Bon Jovi & Queen - FM Broadcast (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B7536AD39A45EB092E6E61DF65D279F3B4DA94BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

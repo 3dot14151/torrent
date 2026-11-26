@@ -22,8 +22,7 @@ Hollywood Undead — американская рок-группа из Лос-А
 ```bash
 magnet:?xt=urn:btih:7F364EDC6C81AB98F58314991D16178074C8D413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

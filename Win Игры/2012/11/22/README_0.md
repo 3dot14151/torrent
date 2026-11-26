@@ -19,8 +19,7 @@ Family Guy: Back to the Multiverse [En/Multi4] (Repack/1.0) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:FE7F15B1C35437BE7423E8B8FECDEE18800267C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightmares from the Deep: The Cursed Heart Collector's Edition / Кошмары 
 ```bash
 magnet:?xt=urn:btih:DB0E276B561FAE3DEABD7A655CA36C5C01A758C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Assassins Creed 3 (NoDVD/1.01) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:B791E8239140E13D9A6AA1BDDE26772FFBE2BF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

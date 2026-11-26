@@ -19,8 +19,7 @@ Chronicle Keepers: The Dreaming Garden (2015) [En] License RELOADED [Collector's
 ```bash
 magnet:?xt=urn:btih:3EC8C9B8168D913E532691524C7581AF781221A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sacred Almanac: Traces of Greed (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:143E5AEFD83E1CB8A12A5C110E71B8D9E6664A06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vector Thrust - полный действия стремительный сим�
 ```bash
 magnet:?xt=urn:btih:3EA69C9DED11C47FBB4958CD4F7885631D923945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ tTorrent Pro - популярный торрент-клиент для ваше�
 ```bash
 magnet:?xt=urn:btih:5DA9EBFEFDA449EF1E3A281AA03801F1E46ACF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SwiftKey Keyboard — это интеллектуальное приложени
 ```bash
 magnet:?xt=urn:btih:A1E686B379F5C4483D0700E33E5036342FDB48FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ KMPlayer не требует отдельного кодировщика. Все
 ```bash
 magnet:?xt=urn:btih:861252A268139E5486BCB51C35E2E8D2B7BB7B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

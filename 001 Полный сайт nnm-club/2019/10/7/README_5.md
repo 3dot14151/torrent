@@ -22,8 +22,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:1A54029B17FF4B74D4A281709A62FA77F53BEF26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Torche - Admission (2019) [FLAC|Lossless|tracks + .cue] <Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:5F24EBBB67612460E348AA9ED09177BAAC5AB195
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Exhumed - Horror (2019) [FLAC|Lossless|tracks + .cue] <Death Metal, Grindcore>
 ```bash
 magnet:?xt=urn:btih:6DE7A508DACAB25713DD04A28EFD879D5C6D617A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Michiko - No Place Like Home (2010) Lemongrassmusic [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:4394F7F559946D070891272AC3BF97DCEA9CE0B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Portico Quartet - Memory Streams (2019) [MP3|320 Kbps] <Ambient, Crossover Jazz>
 ```bash
 magnet:?xt=urn:btih:97751ABB4562A6715651A6ECC48D7A3E52DC53C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Surf Curse - Heaven Surrounds You (2019) Scene [FLAC|Lossless|tracks] <Indie Roc
 ```bash
 magnet:?xt=urn:btih:1BBA354F23D5D7CB7047FC41187CE38BD5846F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Nad Sylvan - The Regal Bastard (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock, 
 ```bash
 magnet:?xt=urn:btih:7B4CADFB1E3CE247F861F69DA0EA78573F0208C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ F. McDonald, C. Rae, B. De Souza - Wings (1976) LP [MP3|320 Kbps] <Funk, Instrum
 ```bash
 magnet:?xt=urn:btih:00F1651772EEE721CE95230AF0A6D2A8D6D3CF74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9B32D3005C214306FCD5D2432365C7753E138FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD9280BAE26DBB572460B74521F55BF7A57107F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Magic Pie - Fragments of the 5th Element (2019) [FLAC|Lossless|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:AF7AD06766BCCC6B15129DBDAFBC75C1E73D2D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Sphinx - Judas (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:B0175D7098B79490A21B61846189959994BA850F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ Automat - Automat (1978) Les Disques Mube Inc., 2014, Remastered [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:C7FF9A9860156531985E59EE0988DAA9B865D218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0400C58A2FE30759EA1F51A6846FCD943DA4C95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C3FD4411645BEC648522C764382A82C70123D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Jeffrey Sutorius (Dash Berlin) @ Mainstage, Ultra Music Festival Europe, Croatia
 ```bash
 magnet:?xt=urn:btih:8D2AA4E59566ECDFC3717C14E482900282BFB958
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Laser Cowboys - Radioactivity (2018) Limited Edition, Remastered [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:8845EB7322C942F3CBAFC7E65264C2F65BF0C2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ appledream - Неделя моды (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap>
 ```bash
 magnet:?xt=urn:btih:9E643C840F0707375F8B06A5BC144771DA67729F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A1BFCFFF0A88BD98340203D3866CD3A793D4858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ Shy FX - Raggamuffin SoundTape (2019) [MP3|320 Kbps] <Drum'n'bass, Reggae, Jungl
 ```bash
 magnet:?xt=urn:btih:EACDE624C1900F65871311D61CAFF122E00AAE13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ Portico Quartet - Memory Streams (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 ```bash
 magnet:?xt=urn:btih:C83E6763667FA29663D1B118B36DD70263B7F916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ VA - Anjunabeats Volume 14 (Mixed By Above & Beyond) (2019) [FLAC|Lossless|WEB|t
 ```bash
 magnet:?xt=urn:btih:134923CA2F841C18325730EF85F7623D885CDB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +619,7 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:993A8755F7AA757164F0D8829156D5D3CE03E31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92028B3805FA74B63A7FDD61F0198268D7AE4657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71FA973FD0CAB7544EDA36282576B0AC2F42F769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ VA - Качай и слушай Vol 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:63E470EF8F066B402ADA582005747CCDF9217B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

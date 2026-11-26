@@ -18,8 +18,7 @@ Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B38C963A663F2F8D405E696580C427335292D0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

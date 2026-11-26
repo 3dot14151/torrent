@@ -22,8 +22,7 @@ Limuria - Limuria (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:183F1EA19294726A5671401130EEEC1F14597447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Massive Fire - The Anunnaki (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DCAE4BC993F5B8362ED0512BA7095A4999CBD395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ GloryHammer - Tales From The Kingdom Of Fife (2013) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:1F2E6BD2732E2B5C9F5CAC0637EC7850977EA5B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Cover (Front Cover) – Gyula Havancsak(   Читать дальше...   )01. R
 ```bash
 magnet:?xt=urn:btih:BF9E9C72500480FBABA1C26FF31F59450F4C547C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Arranged By (Orchestral Arrangements By) – Jack Driessen, Mayan(   Читат�
 ```bash
 magnet:?xt=urn:btih:A33DEAEAF963CAC6CD09F9E0D131A5E78E1B3E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

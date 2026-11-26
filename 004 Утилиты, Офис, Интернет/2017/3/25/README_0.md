@@ -19,8 +19,7 @@ Check Flash 1.17.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D16910EC5A536A5338093F7E3311B0098E9D62E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

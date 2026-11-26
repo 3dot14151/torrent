@@ -19,8 +19,7 @@ Pocket Radio Player – программа для воспроизведения
 ```bash
 magnet:?xt=urn:btih:4FD71C277D9523434151B41A4A900EC1CF3937EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aleo Flash Intro and Banner Maker - программа для любителей
 ```bash
 magnet:?xt=urn:btih:276E0C60FAD6FEC5A22ED483BD52362885241CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chornobyl Liquidators - симулятор ликвидатора Чернобы
 ```bash
 magnet:?xt=urn:btih:DC1B06398248CB12611D2AB2578E61C73CFCD3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ludus Mortis переносит вас в мрачную фэнтезийную 
 ```bash
 magnet:?xt=urn:btih:12B5B21E9F9A4E2608FF4C9CCDF6C8CEF61D033C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Repac
 ```bash
 magnet:?xt=urn:btih:EAAEFE61C9D34F9E4725A85A86344CDD4F98835C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ GASPING.2 - это однопользовательская игра на выж
 ```bash
 magnet:?xt=urn:btih:72B42B9596D6182E7E52AA3E90BE5D9055D1A014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.27c) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F37F2C75A1DF2638DB63C08BD5EC799E30B68E45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Astrox Imperium - космический симулятор с элемента�
 ```bash
 magnet:?xt=urn:btih:A8DF4134143137345D6876B3B6324FC6C1BAA42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ SPY×ANYA: Operation Memories ставит вас на место очарова
 ```bash
 magnet:?xt=urn:btih:17C3E524C43651BF51594935D1A16BAC7286F3B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Train Life: A Railway Simulator – это симулятор поезда и ж
 ```bash
 magnet:?xt=urn:btih:222EB1DDA97ECDA80CE223FBCFE0C00001660A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:964DD65637BC9B26739A90E312B77D28C353E73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ New Yankee 13: Mary's Dark Side / Янки 13: Темная сторона Мэ�
 ```bash
 magnet:?xt=urn:btih:75ABA1DCF8EB3C6323563B4187027E3BF362D282
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

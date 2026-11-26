@@ -19,8 +19,7 @@ Adblock Plus - бесплатное расширение для браузеро
 ```bash
 magnet:?xt=urn:btih:07189D7F1BBA00C2ABCE4EDCF1447422CD3FCAD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

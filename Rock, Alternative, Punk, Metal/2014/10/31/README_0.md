@@ -28,8 +28,7 @@ Facebreaker - Bloodred Hell (2004) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:67E57DDD4AE9E96B7AD423D5FD10584EFB43E5D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Faith Or Fear - Titanium (2012) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:87792FF3A5B6E0850AAF949B34415C2D51C86146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Faanefjell - Trollmarsj (2010) [FLAC|Lossless]<Pagan Metal / Symphonic Black Met
 ```bash
 magnet:?xt=urn:btih:D9D6317BD30501ED89E9985609F08E7CE0FBEEB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Mashmakhan
 ```bash
 magnet:?xt=urn:btih:D5CFFF6EF647ED6A842B3E3F6F154FE730F33176
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Osiris - 3 Album (1984-2007) /Musea, France/ [FLAC, APE|Lossless]<Rock, Prog Roc
 ```bash
 magnet:?xt=urn:btih:19004A134CC85B7C0ED00F3458588465F2DBF50D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Pelican - Uppteknir (1974) Reissue /1997, Tonafloo-Undraland/ [FLAC|Lossless]<Ro
 ```bash
 magnet:?xt=urn:btih:DC0D664F11E690F4131750A8D79DC9DBAE8BF56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Voices of Destiny - Crisis Cult (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:CFF213C037619E225CE38A77755A623E9904E7F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Faal - Abhorrence - Salvation (2008) [FLAC|Lossless]<Funeral Death/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:9FB5CC42D938F5F8F7628C874476B0FB63CEEC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ Lordi - Scare Force One (2014) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0184A070B94020E9471B0F0ECD8E00734D3B23AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

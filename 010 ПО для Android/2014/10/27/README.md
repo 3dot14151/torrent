@@ -20,8 +20,7 @@ GSam Battery Monitor Pro 3.18 - Мониторинг энергопотребл�
 ```bash
 magnet:?xt=urn:btih:5C4782E3CC8DBCD3DEE0E5E2873B60A0D043CFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

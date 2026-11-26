@@ -19,8 +19,7 @@ Pet Rush 2: Around the World (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:3F708824497787643CF084DF17AA8C036230C268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Lucid Nightmare – это красивая игра, в которой расс
 ```bash
 magnet:?xt=urn:btih:53B73B8210AC87097D9B0B7DF3D94BB2405536C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F116664A3C27E16020D70698763237D6B7D4D6E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Tale of a Hero / Герой [Ru] (RePack) 2008 | MOP030B
 ```bash
 magnet:?xt=urn:btih:0F58732805ACF90AA40B6129F214BF95C72D5DC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Voxatron - уникальный аркадный шутер с воксельн�
 ```bash
 magnet:?xt=urn:btih:D018CCC669338125A626F07D4A7FE58BD994ACD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

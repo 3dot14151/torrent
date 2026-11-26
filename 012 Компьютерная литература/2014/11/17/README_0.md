@@ -19,8 +19,7 @@ Adobe Systems Incorporated | Визуальный дизайн: основы г�
 ```bash
 magnet:?xt=urn:btih:443CC2766BF401ADFB8EE341F4A9EB3E1DD7DE05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

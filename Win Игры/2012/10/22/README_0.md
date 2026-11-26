@@ -19,8 +19,7 @@ Crash Time 5.Undercover [Ru/En] (Repack) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:5BDCE5AA55BB39A8BD12A68D54D84D746BCC3E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ E.Y.E. Divine Cybermancy [Ru] (Repack/1.37) 2011 | Fenixx
 ```bash
 magnet:?xt=urn:btih:15B632B9F4ABCC2173787844A54EE5BB981DDAE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Angry Birds Rio на Андроид – на сей раз, наши разоз�
 ```bash
 magnet:?xt=urn:btih:F8EA4E59993BFB0A658420D7A6530704B04B73E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Angry Birds Space на Андроид – вроде бы злые птички 
 ```bash
 magnet:?xt=urn:btih:D440618A90B8D68EF1AABFFC236D9B6F61125C12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Angry Birds Seasons на Андроид – Это сборка самых ра�
 ```bash
 magnet:?xt=urn:btih:F155D73B21B716C369F13BB4F63C0FE4413F9B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Angry Birds Star Wars – вот и появилась на свет новая 
 ```bash
 magnet:?xt=urn:btih:B23CF37E11982B9C898CEE02F6EF53B591A42073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Angry Birds Star Wars II – продолжение отличной игры о
 ```bash
 magnet:?xt=urn:btih:16044292F421640CD81DA41893AED80D4003D3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Angry Birds Stella - Продолжение увлекательной сери�
 ```bash
 magnet:?xt=urn:btih:3AD86741E6CA59D08609865AF99F74694A78A26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Angry Birds на Андроид – ваша задача помочь птиц�
 ```bash
 magnet:?xt=urn:btih:F57E2399D2B3B83DC00B52D28F67ACF660094D6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

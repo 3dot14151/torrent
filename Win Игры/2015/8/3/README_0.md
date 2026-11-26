@@ -19,8 +19,7 @@ Football Manager 2015 SS Kits Graphic Megapack (2014) [Multi] (3.0) Mod
 ```bash
 magnet:?xt=urn:btih:E487B6457F5DC51D32A44B521DFC591C0DE16967
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Football Manager 2015 Cut-Out Facepack Graphic Megapack (2014) [Multi] (6.3) Mod
 ```bash
 magnet:?xt=urn:btih:7ADF2A8CE7BDFBEE8E5A5F34015BCCCA17C84342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Football Manager 2015 Metallic Logos Graphic Megapack (2014) [Multi] (5.3) Mod
 ```bash
 magnet:?xt=urn:btih:1DD0F4E60EA45B598E83A6248177312AC7EF7BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Settlers Online является представителем классич
 ```bash
 magnet:?xt=urn:btih:9A2771CFE0D1155FAC4929F0D29A748D9B5A6F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

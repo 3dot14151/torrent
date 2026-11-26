@@ -19,8 +19,7 @@ Lost Horizon / Затерянный горизонт (2010) [Ru/En] (08.12.2015)
 ```bash
 magnet:?xt=urn:btih:F03CC527B638F038072F0662807894BE4934908A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Horizon 2 продолжит историю, начатую в предыд
 ```bash
 magnet:?xt=urn:btih:0CFDE3710806E9F7DCD4DCE89752234A6CA9F83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

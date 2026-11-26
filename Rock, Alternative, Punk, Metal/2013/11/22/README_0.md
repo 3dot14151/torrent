@@ -28,8 +28,7 @@ Lunarsea - Route Code Selector (2008) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C2D18F67A790C6E6BCA9B8E620C6EBED814AE7DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Ozzy Osbourne - Blizzard Of Ozz (1980) BSCD2, /2013, Sony Music/ [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:50B715E7FED01C3A74F7E24EAE53EA8C152EE5E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Ozzy Osbourne - Blizzard Of Ozz (1980) BSCD2 /2013, Sony Music/ [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:C334D224347DB60B245A3C45774E2BDAA94F3C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

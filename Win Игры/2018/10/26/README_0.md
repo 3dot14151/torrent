@@ -19,8 +19,7 @@ TheNightfall (2018) [Ru/Multi] (1.5) License PLAZA [Halloween Edition]
 ```bash
 magnet:?xt=urn:btih:F0F75E736C0AECE3E0910935B333CDC97BA73F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assault Squad 2: Men of War Origins, современное переиздани
 ```bash
 magnet:?xt=urn:btih:3AF41EEBC264ED6F4901C474471F28FC1547F5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

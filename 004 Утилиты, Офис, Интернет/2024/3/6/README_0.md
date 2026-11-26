@@ -19,8 +19,7 @@ ReffPassGen - программа предназначенная для гене�
 ```bash
 magnet:?xt=urn:btih:6AA1749A38BEAE29093DA4B6CC3AFFDD82A1F8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Hasleo Backup Suite — это бесплатное программное об�
 ```bash
 magnet:?xt=urn:btih:F5CEE8B3789DA08011BB08437EB1BDFEABAD47CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

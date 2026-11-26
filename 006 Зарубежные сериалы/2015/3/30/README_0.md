@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5F7F1E0336158D4CB5C47B33A054727E4A327E0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Halo: Сумерки / Halo: Nightfall (2014) BDRemux [H.264/1080p] [R5 + Alexfi
 ```bash
 magnet:?xt=urn:btih:AED599C29C79A182FEC143453E5051615ECCE794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79934CD235E5D48128659FB318ACC01069637186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8550D60807E4B8BE9DB77BC35607FD754550D164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

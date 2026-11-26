@@ -19,8 +19,7 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack seleZen [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:184F9B70831CA271B9D1EC511BD2989EE96BA4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Lumen - Любовь и Красота (2026) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:01CF0411F756573F559C955682ECC7057EB74243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lumen - Любовь и Красота (2026) [FLAC|Lossless|WEB-DL|tracks] <Roc
 ```bash
 magnet:?xt=urn:btih:A90CD02EE8A37962D3AAD1113AB2714F1C1A87FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ringo Starr - Long Long Road (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Country
 ```bash
 magnet:?xt=urn:btih:8ED7F7802E5191A0AABCDE9186CCA7B7CD703323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Yes - From A Page (2019) Reissue, Remastered, 2026, Mercury Studios [FLAC 24/96|
 ```bash
 magnet:?xt=urn:btih:88FC8E0BA98D0C7956D2CADD02010FA446FA453A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

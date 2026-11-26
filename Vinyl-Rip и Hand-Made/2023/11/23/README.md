@@ -22,8 +22,7 @@ C1. Moonlapse Vertigo (8:59)(   Читать дальше...   )Жанр: Progre
 ```bash
 magnet:?xt=urn:btih:AED8610D4BC63645E0CE188C2522045293D0B553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Soulfly — американская грув-метал группа, обра�
 ```bash
 magnet:?xt=urn:btih:2515F30CBE67551D119DD35535893E666E979D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

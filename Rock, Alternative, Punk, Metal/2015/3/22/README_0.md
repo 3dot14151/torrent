@@ -23,8 +23,7 @@ Atlantic Bridge - Atlantic Bridge (1970) Reissue, Digipak /2005, Breathless/ [FL
 ```bash
 magnet:?xt=urn:btih:5FCB17CF4D54C88EC64E1F32AAE76EF2A34B876A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Tiger - Tiger (1976) [MP3|320 кб/с]<Hard Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:64A5455EF1C41AE24DF00EE5208D0DAEEAD0056C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Cruenta Lacrymis - Sweetness And Blasphemy (2015) [FLAC|Lossless]<Symphonic Blac
 ```bash
 magnet:?xt=urn:btih:BA7E89E77BD9B68D3E46947F8449E45CF459BCEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Red Card
 ```bash
 magnet:?xt=urn:btih:664C6A122328890020F5C170436703E6DAB43B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Stratovarius - Elysium (2011) Limited Edition / 2СD [FLAC|Lossless]<Prog Rock, 
 ```bash
 magnet:?xt=urn:btih:D747DA613D8A659B4ACBF68381B69EEBFF6425E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Queen - The Game (1998) Remastered [WavPack|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:417F37B9BD4073313A637A102D076B88093C2466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ VA - Kerrang! Does Green Days American Idiot (2014) [MP3|320 кб/с]<Metal, Har
 ```bash
 magnet:?xt=urn:btih:9355EC1B9F68DCB0B0A457A226D2581A8B07DD68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Laura Marling - Short Movie (2015) [FLAC|Lossless]<Indie Folk>
 ```bash
 magnet:?xt=urn:btih:F2BBA31E7D90470492B9CC66668FF5537E0DBF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +253,7 @@ Korn - The Paradigm Shift (2013) Japan Deluxe Edition [FLAC|Lossless]<Alternativ
 ```bash
 magnet:?xt=urn:btih:B68EEAF8D515E002BEAF9FAA76A959DC1F5125C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ Deep Purple - Live In Long Beach 1971 (2015) The Official Deep Purple (Overseas)
 ```bash
 magnet:?xt=urn:btih:552A6673D740B0DD722C05E4F99AB8B2D2A81CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +310,7 @@ Enej - Paparanoja (2015) Special Edition [FLAC|Lossless]<Alternative Rock, Folk 
 ```bash
 magnet:?xt=urn:btih:24C6FE0D77AD643D83F30BC59DACB94E11BC1ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +339,7 @@ Korn - The Paradigm Shift (World Tour Edition) (2014) 2CD Japan Edition [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:9DA8697F5AA8ECE76F3EC751D1875DFE569C71F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +368,7 @@ VA - Kerrang! Presents Metallica The Black Album Covered (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:622AFBA2633616F1963B533B6E7AD5828978EDB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +397,7 @@ VA - Kerrang! Presents Nirvana Nevermind Forever (2011) [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:A263AF70A646BABAB50E8B41F67ECBE5E12EB90C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +426,7 @@ VA - Kerrang! Presents Remastered Metallica's Master Of Puppets Revisited (2006)
 ```bash
 magnet:?xt=urn:btih:CF22D015E648688E904B60984B3B09AFA98455A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

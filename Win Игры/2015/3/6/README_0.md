@@ -19,8 +19,7 @@ Super Toy Cars (2014) [En] (1.0.5a) Repack TE
 ```bash
 magnet:?xt=urn:btih:605841027D838E23DA79FB1F6F4570CDFFAC80DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ White Night (2015) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5B0E4DDF4EDF763A3CA70FE110E55ABABB455D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

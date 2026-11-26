@@ -18,8 +18,7 @@ Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.02) License CODEX
 ```bash
 magnet:?xt=urn:btih:50851A27482096C3618EC1ED5DBED3059CF9297F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ CorelDRAW Graphics Suite 2019 — новейшее и самое передов�
 ```bash
 magnet:?xt=urn:btih:47B0EB7910A035EA7BADBDF11AA4F96E1032DC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD71E563B6A288F55F454C9103E4960D90EC9F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (release in March 
 ```bash
 magnet:?xt=urn:btih:E91CB1CAABC7A5095127656E6E73C7487CD7B2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00C4F671190792E2D676B9C4004BDF7ECE10915E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

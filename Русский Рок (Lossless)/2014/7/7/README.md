@@ -28,8 +28,7 @@ Karfagen - Magician's Theater (2014) [FLAC|Lossless]<Symphonic Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:E2D21222F5966B97D01598BF05E70BBADEC42DD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:F9C03D731EF888736613A257E1CD41ABA7E07029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73C3073A263731FB93FB48AFD27D56DB75BBAFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

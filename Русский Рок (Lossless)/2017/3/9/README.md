@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:DD0E9A461425999D86F73F478D41E4206EC90184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Иллюминатор. Песни на стихи Ильи Кормиль�
 ```bash
 magnet:?xt=urn:btih:358FEE5F3D77C6C15D0061F19D42AF344ACF3E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

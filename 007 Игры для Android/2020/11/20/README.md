@@ -19,8 +19,7 @@ Glory of Generals 3 v1.0.0 [En] - Стратегическая игра о Вт�
 ```bash
 magnet:?xt=urn:btih:7FDB9A844773E35093905B5325864F299F6C1977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

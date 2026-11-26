@@ -22,8 +22,7 @@ Ought - Sun Coming Down (2015) [MP3|320 кб/с]<Alternative, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:3CF055D8144C13D25240FC96B8F7465CEC2C6584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nachtgeschrei - Staub Und Schatten (2015) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:3D768C47CBCB339FDE80590EE024340106BC237C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Markscheider Kunst - Vynil (2012) [MP3|320 кб/с]<Ska, Afro-cuban jazz>
 ```bash
 magnet:?xt=urn:btih:F6C0337559094D64480F034B4E1A090A81AAA62A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Heart rock - Rock Fur's Herz vol.8 (1996) 2CD[FLAC|tracks + .cue]<Rock, Sou
 ```bash
 magnet:?xt=urn:btih:126C9C4DF2FBC5C65FA6FA5ECF3EED014A91D9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Miss May I - Deathless (2015) [FLAC|tracks|WEB-DL]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:1372311C81CF122A4DDA600606EBCF1D8857E5CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Pussycat - Blue Lights (1981) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:DFD00B4E3451E7B707AE6C11C5E51559980D5E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

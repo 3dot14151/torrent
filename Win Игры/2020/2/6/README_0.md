@@ -19,8 +19,7 @@ Witches' Legacy 9: The City That Isn't There / Наследие ведьм 9: Г
 ```bash
 magnet:?xt=urn:btih:25559BB444E1CDAA00E68EB6C1B5D67E2413AACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Indivisible — это RPG-платформер с невероятной соз
 ```bash
 magnet:?xt=urn:btih:59C14E4375C28EA0F87D30D786167B1B4C48AA46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kentucky Route Zero — одна из тех игр, которые при вн�
 ```bash
 magnet:?xt=urn:btih:C9E134BC563FF3C17B4BF950955A3AAF2C96150A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

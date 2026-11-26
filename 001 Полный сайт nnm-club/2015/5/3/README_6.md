@@ -23,8 +23,7 @@ Kill Vargas - Agitator (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:AB389A97677B48A870B68D418CAD754E1017A05A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Shorty Rogers - Clickin' With Clax (2013) [FLAC|Lossless]<Jazz, West Coast Jazz,
 ```bash
 magnet:?xt=urn:btih:98AA4544F062BC09DD15AC17AB966FDB54A735FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Coleman Hawkins - The Hawk Relaxes (1999) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:CA0D6C0ECD34083287901BF96558FB4BF876C7C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Peste Noire - La Chaise-Dyable (2015) [MP3|320 кб/с]<Avantgarde Black Metal>
 ```bash
 magnet:?xt=urn:btih:3BFC6021B6C26D47E8803269ED8B1960D782A40C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70FEEAA5252598AE084A778F0833B173E4130A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D71C2E179C44E9AD676BF65FD76B6A745DC46258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43727212594446296F8BD6F1937485A56D4E8EEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Monolithian - The finest day i ever lived, was when tomorrow never came (2015) [
 ```bash
 magnet:?xt=urn:btih:6213C65D6A2F6A29B7FD58FACE169359EA83453B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Tau Cross - Tau Cross (2015) [MP3|320 кб/с]<Crust Punk, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6E9B8033112584AE26858487F3354BC6B6709B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ Lonnie Smith - Turning Point (2015) [FLAC|Lossless]<Jazz, Jazz Fusion, Soul Jazz
 ```bash
 magnet:?xt=urn:btih:1F2AC4F340FC6BA4AD1A502ABAFEA6C1D9AA105A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ iDrive предоставляет 5 ГБ бесплатно. Gо сравнен�
 ```bash
 magnet:?xt=urn:btih:3552DDB395F4667B1ACEA73A6BF5F5CF21656A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ Dark Funeral - Nail Them to the Cross (2015) EP [FLAC|Lossless|WEB-DL]<Black Met
 ```bash
 magnet:?xt=urn:btih:519C3A62C21970F3442DAEE010F5CC18AFA9A0BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4E62901F0D21966A7132D67D06A9C80C03D3B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FB7D1AC211EC65E0AB3A6E2AE27379705B3B5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ Airstream - Kingdom Of Isolation (2015) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F5F8A7804809580A56FDFE25F577B3BBB0029573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ Free Spirit - Pale Sister Of Light (2009) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:01ECCD98C1C81DB790B7744B3E1C84D6A503F518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Arcturus - Arcturian (2015) [MP3|320 кб/с]<Avantgarde Progressive Black Metal
 ```bash
 magnet:?xt=urn:btih:7D0B5529337069550BDB418E85DEA98433AE8D68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ Tribulation - The Children of the Night (2015) [MP3|320 кб/с]<Heavy Metal/Pro
 ```bash
 magnet:?xt=urn:btih:CF35C4579FDCCC4F4CAAFA3BF613024176B2DE1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B975B1382D87FFEA69534E9BAF11560D7A688270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC85B4774D6927E0E2D5F7BD71B0C93B93B98B85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ Lonelady - Hinterland (2015) Japan Edition [MP3|320 кб/с]<Alternative, Indie 
 ```bash
 magnet:?xt=urn:btih:7C3BCB807262E51335685E775F86D786BD9F80AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8069E4A19FB481F68321C7CE25B754997206EDFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ The Vickings - Instrumental (1996) [MP3|320 кб/с]<60’s Guitar Instrumental,
 ```bash
 magnet:?xt=urn:btih:BFBF7CEC8E727033C6866E869B8EE8589D563DAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ INFINITY - 2 альбома (2010) Touhou Instrumental /Doujin/ [FLAC|Lossless] 
 ```bash
 magnet:?xt=urn:btih:E7A0910D2045717A6AE50DD26AFB2316183492C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03942729F7E54E1C885573F4B0BABC2BA52F6F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ Six Feet Under - Crypt Of The Devil (2015) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:BEF141FE6E2F60210B6B2E0C490C407C5D9612E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Gordon Gano - Hitting The Ground (2002) (Violent Femmes frontman) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:CA896C41AD83DE32FA1F841488BA5487BAA58C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Xilphide - Secretos del Viento (2013) [FLAC|Lossless|image + .cue] <Symphonic Me
 ```bash
 magnet:?xt=urn:btih:79B5C2D2DC37806ADD8D735D49FC37D54501C02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ CD2 - Phanerozoic I: Palaeozoic (Instrumental)Жанр: Progressive, Atmospheric
 ```bash
 magnet:?xt=urn:btih:0531A2843F498DA1770AB1D79AF4C640C89257E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ The Courteeners - St. Jude Re:Wired (2018) [FLAC|Lossless|tracks + .cue] <Indie 
 ```bash
 magnet:?xt=urn:btih:41F6F9B5CFFF09DEFA9D0BA0C45275ED7BE971B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Missy Higgins - The Special Ones (2018) Anthology [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:F96E5F65FC2CEBC5B3C80373FB702E67F853B520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Sheryl Crow - Everyday Is A Winding Road: The Collection (2013) [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:F34EC2AB4D73E882EC361ACD55F914F6DC391CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Sophie Lloyd - Delusions (2017) EP [MP3|320 Kbps] <Heavy Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:5B5FC2B1787D194B08FF6C25DDC2AE7EAF16E651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Venom - Storm the Gates (2018) [MP3|320 Kbps] <Thrash Metal, Black Metal>
 ```bash
 magnet:?xt=urn:btih:80035D7E518B310BF9FC540012AD4280661502D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48E72B82C064593BE470C978157C4525C5491B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

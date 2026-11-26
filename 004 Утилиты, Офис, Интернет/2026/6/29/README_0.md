@@ -19,8 +19,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:CA110B85CBA40DB2583661DF4F496885B3A3567B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:E94AE18971E3DE8051EB0F787D429315FEE3E4DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ FocusWriter 1.9.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:634606A135093BA2BAF83CC191871864FAAFDF4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tor Browser 15.0.17 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:98C728C31817E55596DAEE7A6BDD0B1214928331
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A897A7B2602FE8FAEFFB08391BB69AE3C33154E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:38D16C254435D927D398A69DE16BDF72BD9270E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Twinkle Tray позволяет легко управлять уровнями �
 ```bash
 magnet:?xt=urn:btih:CCD9D9A096CC4E39312E05097DD91DB0565D39BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Red Button – это мощная утилита для оптимизации 
 ```bash
 magnet:?xt=urn:btih:E0F27CA3FD6DE46F0433FF6A1A27E19B23D793DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

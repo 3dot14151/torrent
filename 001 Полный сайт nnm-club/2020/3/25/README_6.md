@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:BA89DBC45787764924474116198AB4BAC15B9296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D47DCE59F0F350AD5F5D32AD3748F1F6A1D88F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Frontline Zed (2019) [Ru/Multi] (1.30) Repack Other s
 ```bash
 magnet:?xt=urn:btih:605E7AF9DAEA82ABBBF66BD231895DBA2D6C859D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ HTML Academy | Профессиональный онлайн‑курс HTML и 
 ```bash
 magnet:?xt=urn:btih:92E68D0A613DE117C04B9C30EC789A461A1C78ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

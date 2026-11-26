@@ -19,8 +19,7 @@ Dominus [En] (RePack) 1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:1C70A417FFD66F6B74F24D41E1A6F9CC954D8EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Emperor: Battle for Dune сочетает в себе трехмерную гр�
 ```bash
 magnet:?xt=urn:btih:7B983E797B1390B5D26186B14A2CE95E973B8F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

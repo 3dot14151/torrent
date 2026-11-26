@@ -22,8 +22,7 @@ Korn - The Nothing (2019) [MP3|320 Kbps] <Alternative Metal, Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:3B7B7C5920E4073E6E16AA1C6B8A77C840D5C9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

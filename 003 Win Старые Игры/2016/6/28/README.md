@@ -19,8 +19,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума (2005) [Ru/E
 ```bash
 magnet:?xt=urn:btih:CE26ECB1AA1EDDEFB21669801E17AA6D7CFE85BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

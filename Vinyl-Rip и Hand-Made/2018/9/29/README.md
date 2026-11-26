@@ -22,8 +22,7 @@ Pink Floyd - Wish You Were Here (1975) [FLAC 2.0|192/24|tracks|MB-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:2F712AA407395474641C275A3A9F3AE812E8DFC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

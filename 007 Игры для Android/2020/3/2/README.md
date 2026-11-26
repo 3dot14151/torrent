@@ -19,8 +19,7 @@ NUMBER 5 : Offline Modern Gun Sci-Fi FPS Game – научно-фантасти�
 ```bash
 magnet:?xt=urn:btih:756BD33AE2528C185E0B761B147E2C071EE98B7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

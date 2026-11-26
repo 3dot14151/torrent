@@ -19,8 +19,7 @@ Tomb Raider III – присоединяйтесь к Ларе Крофт в е�
 ```bash
 magnet:?xt=urn:btih:5D63971AA57622AE6C3B33608AB6E1745A2D1C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Google Chrome предназначен для быстрого, удобного
 ```bash
 magnet:?xt=urn:btih:80B63ED453DB2D12FD3595F7F4A623855957FA7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F07A16AC4FB1B2FB33C9A324238FFFF4CB0A9DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Mind Snares: Alice's Journey (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:52D878397F2664493714766DCBE1098479C51EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Google Chrome предназначен для быстрого, удобного
 ```bash
 magnet:?xt=urn:btih:586712E548E3F72506E10EA7E65AC1F472A5D616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Windows Hotfix Downloader - небольшая бесплатная утилит
 ```bash
 magnet:?xt=urn:btih:1071FDE76813D1D84E1D13BF3FEABED2B9FC2370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73D5C8F868F407B333D4E6F31BC44A6A99D70241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F507FCBA4427AD4F83FFB45BCFB06FEA0F23484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ECE07EA9CF73086068E88CF3F4BB830FAD28BB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ StylePix работает с основными форматами файлов:
 ```bash
 magnet:?xt=urn:btih:3282AF7DDC4A9E3313FE43D74C921A50E41CFC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ EMF - Schubert Dip (1991) [FLAC|Lossless]<Punk>
 ```bash
 magnet:?xt=urn:btih:E85A46CE0D38194D618CDD6EABF6173771C5DC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94CB7EAFEA48B49553DF7A44E93F2930C6480C35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:495D7493BA34CC9E7B43A5387479F44FD2876CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC17D0CAE38B532F702C0D4DB3281FE414A46F5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ VA - Best Of Hits Right Club (2014) [MP3|214-320 кб/с]<House, Club, Dance, Pr
 ```bash
 magnet:?xt=urn:btih:2B083FEFC6B4702A3A5C5944219C18DAE85A8644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Enaid (Diane & David Arkenstone) - Avalon. A Celtic Legend (2002) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:63DCC8A1C296C71C18CF1F71E1181E0CBD89A23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Frans Brüggen, recorder(   Читать дальше...   )Жанр: baroqueП�
 ```bash
 magnet:?xt=urn:btih:37DE00AD9F4F8C9344D57CE38C716E3F17B5728E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Rozen Maiden: Traumend | Rozen Maiden: Dreaming | Rozen Maiden: Ouverture | Де
 ```bash
 magnet:?xt=urn:btih:8D4D53AE38270319592D98AB0F2F001B2C0AA613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Google Chrome Enterprise 33.0.1750.149 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:29FC49541C57B562D8D3997AB8720486923AFD3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D902D1FC68ECCB7910FB49DA1040A03DA9226EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AECB4281BD682160E89ED7D1CC9A36E2FD6D7657
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +565,7 @@ Violin concerto in D Opus 61
 ```bash
 magnet:?xt=urn:btih:531CFD993781A51C77D99667F00DD874A45F3B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ Space Legends: At the Edge of the Universe (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:BFF829DD809A3B90F32C5C16689E182E95F572EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ Segue - The Here And Now (2014) [FLAC|Lossless|WEB-DL]<Ambient, Dub Techno, Mini
 ```bash
 magnet:?xt=urn:btih:C44DB5AA57CAF70304A4CB6427FA5F597ADDDA7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C4DFDA6DA56E2C29B9EABF621B5277B1A061DCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:6F29C73BCFDEB0FD41ACD0841BFA5D3885C1562C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

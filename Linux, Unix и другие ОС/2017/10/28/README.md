@@ -20,8 +20,7 @@ Aget скачивает HTTP-ссылки способом, подобным wge
 ```bash
 magnet:?xt=urn:btih:4E811C0CD6915E6A0DA9C11D910766C568AE7C5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

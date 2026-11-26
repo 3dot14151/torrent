@@ -28,8 +28,7 @@ Matt Powell - Easy Love (2014) [MP3|320 кб/с]<Country Rock, Americana>
 ```bash
 magnet:?xt=urn:btih:E2C1F4B1033DF4CDF73F4DA451431FBA171E13BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Secret Band - Self-Titled (2014) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:BB1C7E31A29EAE035BA509DAF460020E26D55D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Eosphorus - Winds Of Apep (2014) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:933AE3BCB0C8CCA76D6B70F5CC6F5407172836A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Red Samara Automobile Club - Навсегда (EP) (2014) [MP3|320 кб/с]<Indi
 ```bash
 magnet:?xt=urn:btih:51E433F22C7DEA4EBB21C2F4D9C7DE0DFDEC43EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Dark Horses - Hail Lucid State (2014) [MP3|256 кб/с]<Indie Rock, Female Vocal
 ```bash
 magnet:?xt=urn:btih:C8BC6878BB0A7449ACA989235DAB5C4C9CAC8B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Mary Fahl - From the Dark Side of the Moon (2011) [MP3|320 кб/с]<Progressive 
 ```bash
 magnet:?xt=urn:btih:0179D37E3AA7C6BCCEFBA278AC2C88EB51C09CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Jeff LaBar - One For The Road (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:15E6C217F1C12849DA91E556D2CF0FCDC0FACCE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

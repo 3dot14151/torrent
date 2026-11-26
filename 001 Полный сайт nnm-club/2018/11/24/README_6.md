@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:24A98ED75F7EF1B23AEBC89547701B2517F9D8A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC784770A6C28F22EB218739F5BDFC4E97D3D442
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:77C1B6DEBD7C278FDFFDA7C3DBDE1172D8F849C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:CC9A923B55372C491E1D421D8BE2794DD0DFF569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23D9A27313F9CB1D78AC9681D4426FD8CEA8ECAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F22D2F79547F25A1E80569417AA9C55D1C6A1FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Coursera | Машинное обучение и анализ данных (2018)
 ```bash
 magnet:?xt=urn:btih:CE99EE24988C1F27A08AC5DA601B749C5C653C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B39B1FCE1D7119134599B531EB5EA9F00327FFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A138A648431D2A66163BFFB77701CD5391AC184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ KissXsis TV | KissXsis 2010 | Поцелуй сестер [2010, TV, 12 эп] HD
 ```bash
 magnet:?xt=urn:btih:40D9B37CD05DD9B1C4C7BFFC924B70BDF5BC5169
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25 эп. + 9 
 ```bash
 magnet:?xt=urn:btih:55D9253227DEB0C4EBA8B39ECA861C9AA248563E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ Call of Juarez: Bound in Blood / Call of Juarez: Узы крови [Ru] (L) 2009
 ```bash
 magnet:?xt=urn:btih:F976D5720AEBBAC3207BE9035340FB849EF48D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ WebForMySelf | WordPress-Мастер. Разработка тем для WordPr
 ```bash
 magnet:?xt=urn:btih:23D818F3C5C09DA89BD9896DF0420DF8BBE5675E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4173989D0494C1CC20D018366CCFD0B0852B248E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Aki Sora / Аки и Сора [2009-2010, 3 эпизода OVA] DVDrip Raw
 ```bash
 magnet:?xt=urn:btih:F73B893B667E34BC5522AFEE24E1C0CE717BEF91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570) License CPY
 ```bash
 magnet:?xt=urn:btih:16438DF50D35918888B2A22B310218D05DF79325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Mafia III / Мафия 3 (2016) [Ru/Multi] (1.09/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:80662C1B119050B35004EB0A37F2464EC11A75C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

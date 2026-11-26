@@ -22,8 +22,7 @@ Foscor - Groans to the Guilty (2009) Digipack [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:F1E8861223E6372EDAF66D3825FC36D9618EDC52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dion - Kickin' Child: The Lost Album 1965 (2017) [FLAC|Lossless|image + .cue] <F
 ```bash
 magnet:?xt=urn:btih:4F51987B04CADE5A2DB5BE82212A6424556AC8AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Muse - Muscle Museum (1999) Remastered 2016 [FLAC|Lossless|WEB-DL|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:9F59ED8DB9425CBFE0FF9593F3A7C183DB3F5B49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rhapsody of Fire - Legendary Years (2017) [MP3|320 Kbps] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:A78F93891CF1B6FFF8BBC06C6507418158DD21DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Journey to the Moon / Voyage: Inspired by Jules Verne / Жюль Верн: Пу�
 ```bash
 magnet:?xt=urn:btih:456BB7A64588D189D89BE780E31A46105D36ECA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Elder Scrolls IV (4): Oblivion (2007) [Ru] (1.2.416/dlc) License [Gold Editi
 ```bash
 magnet:?xt=urn:btih:C19F3C69794B4033DB4E0F4EB6EF32516A716A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Doom 3 (2004) [Ru/En] (1.3.1/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:085AA023AABEB894E45622F9533BA2784DDB2D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jazz Jackrabbit 2: The Secret Files (1998) [Multi] (1.24hf) License GOG
 ```bash
 magnet:?xt=urn:btih:2075889F6271ABE920E3B4A45B571F0E0B817D94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

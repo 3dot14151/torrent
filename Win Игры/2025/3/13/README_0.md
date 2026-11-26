@@ -19,8 +19,7 @@ Combat Mission: Black Sea (2021) [Multi] (2.18.01/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:14F37C98412EF2B59F3EB6A713B1E0EED59685F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:E23A419A3C2DCF9A6A9926386C44967F50CC3D36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:B7C8D86802563ABB72E384671C40B42C41DE296F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:9029C9E27A818EB5D3095F6F3FEE287CFED4F3E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Love, Money, Rock'n'Roll / Любовь, Деньги, Рок-н-Ролл (2022)
 ```bash
 magnet:?xt=urn:btih:60A158FD9CC91D37364D491B7507D120DC8569B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sail Forth (2022) [Multi] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:4CCBCD9634659DA353D4E70B46EB10AEC0574B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Reflections of Life 13: Sleep's Embrace / Отражения жизни 13: Об
 ```bash
 magnet:?xt=urn:btih:0BBE44BC6E3D82DDC0A7D2B3EAB55B7E0FA2950F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Mirrors of Deception: The Silver Peaks Secret / Зеркала Обмана: С�
 ```bash
 magnet:?xt=urn:btih:00DCCD17D7C56EC87E815F0729403EAF9218916F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Panzer Corps 2 - Field Marshal Edition - ультимативное люксов
 ```bash
 magnet:?xt=urn:btih:ECB123E257A49E29F7D736412D2E0837B43A46B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack dixen18 [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:579495B1EF24DDCDBC3BFB57CCACECAFE71EC34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

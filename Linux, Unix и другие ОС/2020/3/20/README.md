@@ -20,8 +20,7 @@ Ubuntu*Pack Unity 18.04 (февраль 2020) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:AD4833B9849A50F3B84C4C90AA3BDAE96D7D3944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Ubuntu*Pack Cinnamon 18.04 (февраль 2020) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:AB76D58E0292DC8BA2BCFE2C550D214E57EA9978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

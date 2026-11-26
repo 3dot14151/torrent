@@ -19,8 +19,7 @@ Shaban (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:10B87C8BF7A206E33264E8E7B7CB9F9B97110FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hotel - Collector`s Edition / Отель - Коллекционное издан
 ```bash
 magnet:?xt=urn:btih:D9557BC531B9386508305729DEF517AE38647EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Snow Globe: Farm World (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:09C4550D6F4F98641C26061CDE5F8E65E3688318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E23855D99377C944BA0E3FCD703FB08CD699629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mad Riders - это захватывающие аркадные гонки по 
 ```bash
 magnet:?xt=urn:btih:7D619B7F23A9CB5C5AD9040B879C0C3C42DAB77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Tiny & Big: Grandpa's Leftovers - это оригинальная аркада �
 ```bash
 magnet:?xt=urn:btih:82074C1216BD153097A44EC5B024CFB3F72BE550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ RIDGE RACER Unbounded вливает свежую струю в проверен
 ```bash
 magnet:?xt=urn:btih:C89AEFBF945C97C3AB04AC8FB96CEFC0C995317B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

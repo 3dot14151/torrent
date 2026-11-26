@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:AF26809FD5189B8E06D253E95B2250D0CE94A446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Solid Converter PDF - одна из замечательных программ 
 ```bash
 magnet:?xt=urn:btih:03076D019DD32326A3F609FB29462335A8A129FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BA56D6C160309D8A2B262097402EA12703A4C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ VA - New Age Style - Enigmatic 20 (2015) [MP3|320 кб/с]<New Age, Enigmatic, A
 ```bash
 magnet:?xt=urn:btih:AFED1D0266D5E3AEEFB45621A66576F72B05EA8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19ECD89AAE0EDA50AD79CB97FE7D6F24B2534F0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3A85CF74BAC16D160DEB3D37861D95BAF045D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Realtek High Definition Audio Drivers - драйверы для звуковых
 ```bash
 magnet:?xt=urn:btih:5D162EF40317BD6DAEFCE3584ECDDFA02D2B988A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Pale Moon 25.3.0 + Portable [Ru/En] (сборка для iAtom и Windows XP)
 ```bash
 magnet:?xt=urn:btih:61128D7A3FDD664AF92F0107F1788AC8FBB0C29E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0407A71233CB47C3AAD8E49D808D509AB7E7A0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C8E9BA59B4A0132999D85A189F8D0C575C5B5FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Solid Scan to Word - преобразует бумажные документы 
 ```bash
 magnet:?xt=urn:btih:D25274D056B3666666815CC9691756A499D2F5E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ Solid PDF Tools предлагает надежное преобразовани
 ```bash
 magnet:?xt=urn:btih:D35916666334E05C6B0B73F44DF08891F6DC60E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F78F7237DDAC906261A98D32179F9B7CF2DD4E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Rollback Rx - программа предназначена для создан�
 ```bash
 magnet:?xt=urn:btih:E9A12022289695B49C68BEE07C64A03E27E087B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Cities: Skylines (2015) [Ru/En] (1.0.5/dlc) Repack R.G. Revenants [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:76B00F7DBE5F2AB3A0F67EFA0C54DBB3CE4A5413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A7680EB1955F8B182111DA61F1A175C277A085E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ Wise Folder Hider - удобная утилита для скрытия конф
 ```bash
 magnet:?xt=urn:btih:F1DDAA0BD551C055AF0A6994AAA95DF9F2E1FDD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF9C80AB3788E7225093218629C45801FEE78301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +486,7 @@ Arabesque - Complete Box (2015) 10CD /Japan/ [FLAC|Lossless]<Disco>
 ```bash
 magnet:?xt=urn:btih:2157732E29BD25FB285FEF1694B3588CA8405CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +511,7 @@ Opera 28.0.1750.48 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D0176BBB16343F6872F76DC7C654F8335A264393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC99AD70FB927CE902778AC4EFDBF31837818297
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ Awolnation - Run (2015) [FLAC|Lossless] <Alternative Rock, Indie, Electronic>
 ```bash
 magnet:?xt=urn:btih:75CD9FB93F0F0006E8DF196924B1963FFE9485E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ NuMeditationMusic - Buddhist Meditation Music Relax Mind and Body (2015) /WEB-DL
 ```bash
 magnet:?xt=urn:btih:057A6B5ACB12EC022517F4190BCBB188286A0F84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12255AEF61415CBC0C855016ED0005035EFB7126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C98A8BA6E0D9CA1A53D5B5C5FCA85E46EFEAB1B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ InfiniteSkills | Professional Guide to Wireless Network Hacking and Penetration 
 ```bash
 magnet:?xt=urn:btih:C5FB07703EC0C7A2163D31F53E4EC851CA2D2A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fort Boyard: The Quest / Fort Boyard: Изгнание [Ru] (L) 2000
 ```bash
 magnet:?xt=urn:btih:53FDA515FCFE42A7B268C8C3924F874C8059131B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kingpin: Life of Crime / Братан [Ru] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:7031719B65E6AB4F0CFBFADB04DC55AE5DF9FC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

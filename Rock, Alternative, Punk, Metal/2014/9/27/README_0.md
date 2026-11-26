@@ -25,8 +25,7 @@ Eternal Passion - The Sleeping River (1995) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:50B7BB5959C40C26E951BF49E856067FAC67F18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1632A40C10E198062BADAC5199EED876E1B1DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Goatmoon - Voitto Tai Valhalla (2014) [MP3|~245 кб/с (V0)]<Black Metal, Folk 
 ```bash
 magnet:?xt=urn:btih:50EEAFDEB6E71C78D21B029D39CC5EE44C6BF377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Trigger Hippy - Trigger Hippy (2014) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B371D08BEB40B8479215D092F6F19B3FC146E44A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Feuerschwanz - Auf's Leben (2014) [MP3|320 кб/с]<Folk Metal, Medieval>
 ```bash
 magnet:?xt=urn:btih:998D22BD5E1411AB85EAB0C682E2942693ED5095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Lyria - Catharsis (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:8BD22A2DB23D5672C293E27B06CDB46B03942192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Mr.Big - The Stories We Could Tell (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F0087804E4383A6E2433347C38494DEC6F974316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +259,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:C89040FF8837DFAA3822B105B95058B7CB656A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ Obey the Brave - 2 Albums: Young Blood, Salvation (2012-2014) Collection [FLAC|L
 ```bash
 magnet:?xt=urn:btih:B6C4BBB9B2D1002A73FFFAF92D0E2795524E33A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A125CECE246736C51B06374730CF40D5ADA8642A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

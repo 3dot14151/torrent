@@ -19,8 +19,7 @@ WhatsApp, это БЕСПЛАТНОЕ приложение для обмена �
 ```bash
 magnet:?xt=urn:btih:BF3C77A1E353E6BC79AB0D9410B62550B0D4AC69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rosetta Stone: Изучение языков 9.2.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5B05801C468A9707B60BD71B70E8F26B4A554D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

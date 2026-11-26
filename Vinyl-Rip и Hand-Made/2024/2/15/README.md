@@ -22,8 +22,7 @@ Pain of Salvation - The Perfect Element- Part I (2000) Anniversary Mix, 2020, In
 ```bash
 magnet:?xt=urn:btih:3E5C9B1EEB6E55F938FF680B0EAB2DEB3B5C6C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pain of Salvation - Remedy Lane (2002) Reissue, 2014, Inside Out Music [FLAC|24/
 ```bash
 magnet:?xt=urn:btih:6FEFC1AEB7FE0CD0F2968C7AD06384A0D8C0702A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

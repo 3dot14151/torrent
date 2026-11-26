@@ -24,8 +24,7 @@ Psychonauts [Ru/En] (RePack) 2005 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:64839A27D00F21206AB2BFFA8032BCFD2BBE0330
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

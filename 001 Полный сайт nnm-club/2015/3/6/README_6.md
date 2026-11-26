@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:462C93F3FB3DD49059A068152EE698EF9C67FDDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Nomo - New Tones (2006) [FLAC|Lossless]<Funk, Afro-Beat, Experimental>
 ```bash
 magnet:?xt=urn:btih:00CE507BA5C7BE7D297AFB6F5D53769FA8DCA9B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A2F6D163C0AFA5BFAA5235A8F6EA10FDD65D9E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0BB709001EC92476108AFF497741011E6E131B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Norma Winstone - Somewhere Called Home (1987) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:04125F30FFE3D5FB4C2F6A85F10D1512EB5ED2E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ The Lemming Ways - The Lemming Ways (2015) [MP3|320 кб/с]<Alternative, Indie 
 ```bash
 magnet:?xt=urn:btih:B0C52852740604A780F34331625E5F579AE83C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Koeter - Caribbean Nights (2015) [MP3|320 кб/с]<Punk, New Wave, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:A5BE2A4B9D10868E7ECAA745619C8ADAA87ED324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Darkness By Oath - Seeds Of Desolation (2014) [FLAC|Lossless]<Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:3E4D6A5F46CB70FC4B7FF61FA1D65588C8A56A2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Norman Brown - Sending My Love (2010) [FLAC|Lossless]<Crossover Jazz, Smooth Jaz
 ```bash
 magnet:?xt=urn:btih:B8E742ED67E8D29A58BFFC810727A0DAEDAE7F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ All About Kane - Seasons (2015) [MP3|320 кб/с]<Alternative/ Indie Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:C964E0459F441D54F3C56F9CE5BFCD4ADC49B385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFC583CA1265C5B359973E1E1B9ED1BC197BB09E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:523604720F9B3FCDEBBF12BAE3BF5A5F73F877E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Black Moon Secret - Another World (2014) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:9C1949D6529D1E75F505A417E28B5657200B65A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ The Underachievers - Cellar Door: Terminus Ut Exordium (2014) [FLAC|Lossless] <H
 ```bash
 magnet:?xt=urn:btih:B372336E882EEDD8C0ED0714082883907AED995D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24E78C6D555B0E37E9A7BA6AC2718A906009CF13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E9B010E522A1655FE053866595764DFE098A4AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ Company Of Wolves - Company Of Wolves (1990) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FAA6508F4294428808A5E14838B8E08B5D1DA421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ GYAS — Koiro Gensou (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Elect
 ```bash
 magnet:?xt=urn:btih:58E8A4FBD821BFCF99C62EA9F1DF144A21AB94BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Rittz - Next To Nothing (2014) [FLAC|Lossless] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:42D07D1270F9C02C6514922D596B8E2D3FE3F7E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +543,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F0224765D931A3B53194BAC9F51729288AFCC6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D010F06DD6BD3AE51E8221618944EA388E05F17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ GYRO MiX - 3 альбома (2008-2009) Touhou Instrumental /Doujin/ [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:BBB1C0FDC175945EF309B15EB2409F59E5323342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ ALSTROeMERIA - 3 альбома (2011-2014) /Doujin/ [FLAC|Lossless] <J-Pop, Ele
 ```bash
 magnet:?xt=urn:btih:ABEE79F685773B25EA021AB332C88E9C29F8B162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +700,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B4885D3ABFEFE09FCBE766D33F2B00894FBFA1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MD5 Checksum Tool - небольшая утилита для рассчета MD
 ```bash
 magnet:?xt=urn:btih:402AD1CA65750CE4409594FE29731F6438C1F9B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B6EE66652A669AABABC962D074DE61F44B323CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

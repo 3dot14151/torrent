@@ -18,8 +18,7 @@ Among the Sleep (2014) (1.3.2/dlc) [Ru/Multi] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:5E154D6B19C8AAE1C6334BACBA15B7FAF62EEB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ PSN minis - яркие, увлекательные, простые в освое
 ```bash
 magnet:?xt=urn:btih:98A698EC8B2B1DD1C6B53E9032F65A49BB350B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Madan no Ou to Vanadis / Lord Marksman and Vanadis / Повелитель Стр
 ```bash
 magnet:?xt=urn:btih:14C4A6CD4E8DBD4250E58C2BA03659FE61FD625C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40C9CFF47DC6F590DE8C73E334BE83094AF15DE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83452F263E2A7C2C5030E9D91814824822470EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

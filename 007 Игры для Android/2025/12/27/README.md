@@ -19,8 +19,7 @@ Bendy and the Dark Revival® («Бенди и темное возрождени�
 ```bash
 magnet:?xt=urn:btih:47AEAECDD47AAE0DFF19A61B02CBDC6460D1A4A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dead Space - по-настоящему жуткая штука. Она не те
 ```bash
 magnet:?xt=urn:btih:B617CA63A9E3B33183DB59797D3FCE1A9E40022F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

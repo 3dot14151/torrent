@@ -22,8 +22,7 @@ Suicide Queen - Crowned In Blood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <I
 ```bash
 magnet:?xt=urn:btih:BBA4F58E6542A1A71F2009ABDEA7DF0BFE68532F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Feanor - Hellhammer (2025) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:62865CCA91B33718C03741E2226732078167477E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Back Jack - Certainly In Neverland (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:637FB132FBCB7FC0C187243C99001C8271771AA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

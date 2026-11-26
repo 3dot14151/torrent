@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:5A5783941E637475A1607FC994DC53396383D0CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCD247C752F576DC002953D6D892B280BA8E5C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A4ADDD82EF1B7F11F5C67C297EC630708295621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ VA - Top 100 Dance Hits (2016) [MP3|320 кб/с] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:BA691D03828B5480F2CACB1A824603C3FA8597DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Douglas Blue Feather - Cosmic Visions (2016) [MP3|320 кб/с] <New Age, Native 
 ```bash
 magnet:?xt=urn:btih:DAC4FF74D853E8972B0DCEF06234FA10B1D82805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E70F1E56C032BFBF9B10773D66DF3E3B0E7E9246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Recordings Pro 7.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ABDB8492632DADD82DE7CF21D07DA7388BBAFEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Christie - Christie (1970) Reissue 1996 [APE|Lossless|image + .cue] <Rock, Pop R
 ```bash
 magnet:?xt=urn:btih:6D79EC2435E5C069BDF7E072D43690C30E0E2825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EC129F32C87E115263A02EE76FFCC44A5FECF15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +260,7 @@ CD1 - Kind Of Blue:
 ```bash
 magnet:?xt=urn:btih:14AEBF6D46C44EDAD07DFB7EDFDB05A123EAF679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Demis Roussos - Mon Île (Ile) (1997) Unofficial Release [APE|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:CA14CF475DA749F1927E830AD39CB745AA198ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAFB8B3745AAE7F75CC7FCA8FADB74031616F6D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7BADA491E2D3AE91088DD2BE88080450A1D16CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:070ECD22F29DB61B1EDBAC902D82E2E7DB0AA8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ John Fluker - 11:11 (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
 ```bash
 magnet:?xt=urn:btih:8C9906B8B007DF3B26D9020DBCFE0B411B060C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA7E2EA10B77443A00BADFC617416BE069918434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ VA - Running Hits (Workout, Fitness, Jogging, Spinning, Gym & Cardio) (2016) [MP
 ```bash
 magnet:?xt=urn:btih:45DDCF9966B7D927A8434D8F82658F1342C2BCB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D16E0B86477326F7DFFAC04A7D19BE308554C9D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ VA - Acoustic Guitar: Ultimate Chill out Lounge (2016) [MP3|320 кб/с] <Downte
 ```bash
 magnet:?xt=urn:btih:98A7AF3161690E7A987126C047DD4469981DE4A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ Registry Life - это универсальная утилита для испр
 ```bash
 magnet:?xt=urn:btih:7D1BB1B38B2DB0E3A0B76DFDEF004D1A7A65243B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ VA - Billboard Hot 100 Singles Chart 07.05.2016 (2016) [MP3|128-320 кб/с] <Po
 ```bash
 magnet:?xt=urn:btih:441E299180101AE4A70CD18587D79104811C54C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Demis Roussos - Forever & Ever (the Best Of) (2013) [APE|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:A9446A1566CE2AF073884513C8301C9F1A138202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ VA - Record Super Chart № 434 (30.04.2016) (2016) [MP3|320 кб/с] <House, El
 ```bash
 magnet:?xt=urn:btih:4C472B6377A84AEC8ED77C0854A60115A3CF41D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E55F49EF280CC3870C0E4D98342FE956A7EB1380
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ Roland Romanelli (ex. Space) - Meditations Et Reves (Meditations and Dreams) (19
 ```bash
 magnet:?xt=urn:btih:7B5067B5AB794EE198CFF130D2CD4B221D495F5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ Fight Nights - это лучшие российский бойцы, велико
 ```bash
 magnet:?xt=urn:btih:849C8D76DFFB26DADC75BADBC8B26C0FB08D5FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

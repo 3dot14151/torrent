@@ -19,8 +19,7 @@ Victoria II: A House Divided является дополнением к исто
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sonic the Hedgehog 4: Episode 1 {v1.0r13} (P) [En] 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:2F52213865DF79B03D70B69D2550FF898A31D5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54B947F8AF53CADAB8054CD2EFA594B8FFC389F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Sonic CD (P) [Multi5/-] 2012
 ```bash
 magnet:?xt=urn:btih:AD0B82FBFDDBF031B4B8613EDD9F0AE0CD5008B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Atlantic Journey: The Lost Brother / Атлантическое путешест
 ```bash
 magnet:?xt=urn:btih:8CA791224A5D6FD0A0ED1A76BE60506AAE710974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Running Sheep: Tiny Worlds (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:E227B0C258E095486F6E9DC490F2EF59D5785E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Leveron Space (2016) [En/Chi] (1.0.1.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:D8FFDF6FF4C640347C1247960A128D8BD1CE1D6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Killing Floor это Co-op Survival Horror FPS, действие которог�
 ```bash
 magnet:?xt=urn:btih:382D46CBEE982D7C7DE548A7AF059A5B5858A7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Leveron Space - это приключенческий космический с�
 ```bash
 magnet:?xt=urn:btih:241A13AE05E845F4A670D07A82B11FEFD4B28640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

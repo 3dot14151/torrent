@@ -19,8 +19,7 @@ Bike Rush - это шутер от первого лица на байке. Вы
 ```bash
 magnet:?xt=urn:btih:31DFCF5FD657B85204CC7B542910D00280B90F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ InnerSpace – посвященная полетам и исследованию
 ```bash
 magnet:?xt=urn:btih:42CBD95F632D9CD77083A7B2D25EBB620BB693FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Get Even - это шутер от первого лица, от создател
 ```bash
 magnet:?xt=urn:btih:5426AB9030A1A7FF6E35AEB682301B22D5721C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

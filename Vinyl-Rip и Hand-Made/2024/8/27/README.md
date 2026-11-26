@@ -22,8 +22,7 @@ Virgo (Matos-Paeth) - 2001 - Virgo(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:63EA7575DE25778EFF3E2697726E580448A5D058
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

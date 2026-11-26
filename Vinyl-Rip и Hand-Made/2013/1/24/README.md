@@ -26,8 +26,7 @@ B4. Актриса Весна 5:46Жанр: RockПродолжительност
 ```bash
 magnet:?xt=urn:btih:2EAF502A58B10900F96ACBAC8C0CE6A03C7720AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

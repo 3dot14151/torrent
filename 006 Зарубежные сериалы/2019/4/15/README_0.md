@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:51C47C3B2F2EE496956571AB18274E9E9ADBB4B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shameless, основанный на одноименном британском
 ```bash
 magnet:?xt=urn:btih:CDE247A216E58D83F12EFA46179658CAFB868B68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

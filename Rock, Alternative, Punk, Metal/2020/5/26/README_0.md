@@ -22,8 +22,7 @@ War - Ex Tenebris Nasceris Ut Deleas (2004) [FLAC|Lossless|image + .cue] <Black 
 ```bash
 magnet:?xt=urn:btih:7ECDEA1C0EE23021BBBE4E72C590F1719FF7F518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Glass Hammer - Dreaming City (2020) [FLAC|Lossless|tracks + .cue] <Progressive R
 ```bash
 magnet:?xt=urn:btih:820FC32F101C7F9F3252CF1B991F47C5FDC178D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

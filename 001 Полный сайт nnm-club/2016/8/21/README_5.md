@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:10212D70F045F7DC38A7BF931D540A159A29CF68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ FieldsKit обеспечивает умный деинтерлейсинг и б
 ```bash
 magnet:?xt=urn:btih:784909DD028D415FFF449E73B964A734A9252B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Windows Firewall Control - небольшое приложение, которо
 ```bash
 magnet:?xt=urn:btih:08D3D4D262FC6ECA7712693F41113E39F4DA2326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Essential Anatomy 5 - самое успешное приложение-спра�
 ```bash
 magnet:?xt=urn:btih:417256C80ADB80432E0F1C4A7D1C8B42D4D6A377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Preston Sterling (2016) [Ru/Multi] (1.1) License HI2U [Episode 1]
 ```bash
 magnet:?xt=urn:btih:1A5F463EE76708AA21142CBEAFC5EE83BB793035
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0304829E29B368F33A1441736AB54C73AEC9CD43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Forts Life | Мастер Классы по трейдингу (2014-2016) PCRec
 ```bash
 magnet:?xt=urn:btih:CB4C334466EAE99B7DA1FF5CA926386403A831C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Pilot Brothers 3 / Братья Пилоты 3: Обратная сторона 
 ```bash
 magnet:?xt=urn:btih:B9153754E810F9710653FFB1E106B81175B461CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C49D78BA37FAE98BC1E7F4AED84B4A9E8E102A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ Rage of the Battlemage - динамичная hack'n'slash RPG, где вы ок
 ```bash
 magnet:?xt=urn:btih:1D16F459B112B9713D3D6DABB9FCFEEDFA624E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Riptide GP: Renegade (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:57B0727AAE598A1EFABB6209C679B1A3B5157374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D64C504BD1398F4DB33955CA149ABA75B850A4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:181188582275AFDBECC2631CDAD212E85C19D197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC2E19EA7634B383E5DC21706FD25BB2688E51A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCA61895D36BBBABE22C214E5BBDD9035FB48718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2730DA7A9A780803DDFB09752D577E9D0BA63434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Shadow Defender – программа, аналогичная программ�
 ```bash
 magnet:?xt=urn:btih:EDF97ACDAB84603F31F6C07C1703662C9A5C5C19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Day of Infamy — шутер от первого лица, действие ко
 ```bash
 magnet:?xt=urn:btih:D020F9B4D77D6545413C315EBF3E25892B61BCCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ Hamster PDF Reader — это простая, но в тоже время мощ
 ```bash
 magnet:?xt=urn:btih:B77A885DE2ADF2DC5CC9E2A0CEBAF5B3C2564457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +504,7 @@ Fast Pro for Facebook 3.6.2 [Ru/Multi] - Приложение для Facebook
 ```bash
 magnet:?xt=urn:btih:0C839A312E723EA76548C0D34064EAC844B67635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC565F94344CFD38627A2AAC124ADEFF16B1A874
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA43CD052C00F350198764B67C31BB7A092D041B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ Warhammer 40,000: Space Marine (2012) [Ru/Multi] (1.0.165.0/dlc) License PROPHET
 ```bash
 magnet:?xt=urn:btih:720E4274C3CC52A370F947E18309BBA0B0BDB950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ Stellaris (2016) [Ru/Multi] (1.2.5.24012/dlc) Repack от Let'sPlay [Galaxy Edit
 ```bash
 magnet:?xt=urn:btih:A521809C185E46289DEDF2F67966664F2314E5B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.668.1/dlc) Repack YelloSOFT [Digital
 ```bash
 magnet:?xt=urn:btih:95FE6AD69280693E293BC3C9C9E5103DD26CE41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ VA - Танцевальный Ритм 7 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:874AE8640267F8D85E2A3D865FE1C6C5B701BECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

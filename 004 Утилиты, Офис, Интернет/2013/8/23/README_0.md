@@ -19,8 +19,7 @@ Xilisoft PowerPoint to Video Converter Business - конвертер MS PowerPoi
 ```bash
 magnet:?xt=urn:btih:EB386916F70CCD5E53D2F1F0866DA48FC6AC0772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

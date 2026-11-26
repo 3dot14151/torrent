@@ -19,8 +19,7 @@ Vampires: Bloodlord Rising (2026) [Ru/Multi] (1.0.1.19431/dlc) License GOG [Earl
 ```bash
 magnet:?xt=urn:btih:849DF37A44B9BB2F01C65C51BF41802034F84FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ I Hate This Place [Multi] (1.0.0.15852) License GOG
 ```bash
 magnet:?xt=urn:btih:04A68B2CBF44AF1A9C3060FDCF7F2BB34BB7B2B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cairn (2026) [Ru/Multi] (1.0.299/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:595DF638D8C20DB383FC92095E2A6F35D4BB83D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F689C952B969FC126EBF149C2C7DE778E0D18F01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:BE5D373CD4ECC09FD778D3489EC4996EF6D1AF34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:79F4DD40263199B56FD38B55DAAC72C99D793397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Five Nights In Saransk / Пять ночей в Саранске (2025) [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:BBFDF467C7089B62C442FD032324C48FB1AAAEB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ TRAIL OUT (2022) [Ru/Multi] (1.1/dlc) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:AC29E32E205FC75EB97F2016762573D92E606148
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Disco Elysium - это новаторская смесь из сваренног
 ```bash
 magnet:?xt=urn:btih:9D2EE7382CD647ABB876AD401F4E6BD075654F10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack dixen18 [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:D213231EB8B93A50D2E669D912E2B1FF03A316F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Chinese Frontiers (2025) [Ru/Multi] (2.1.1401) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A6CEEFCA01879820C339713F2571385C7DE46235
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7A6646DFB8EDECCA18BA130AC61207B16BC1E064
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

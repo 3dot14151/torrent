@@ -28,8 +28,7 @@ Fair to Midland - Arrows and Anchors (2011) [WavPack|Lossless]<Progressive Rock/
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Santana - The Woodstock Experience (Limited Edition) (2009) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:2F9D4670F5FCE7FFB3E752B20123CCABD4B515F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ UnMetal (2021) [Ru/Multi] (1.0.11/dlc) License GOG [UnDeluxe Edition]
 ```bash
 magnet:?xt=urn:btih:201B68F2FFE11B4E03BC15EFC8318D31C4C45F51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack Other s [Colle
 ```bash
 magnet:?xt=urn:btih:1B96AD1250BC126F98AA96CCD003A618ED448682
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

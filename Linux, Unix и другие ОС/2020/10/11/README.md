@@ -19,8 +19,7 @@ elementary OS — дистрибутив операционной системы
 ```bash
 magnet:?xt=urn:btih:6336C11F532BC49B52640A31705868CC72D1516B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

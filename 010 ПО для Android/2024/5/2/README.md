@@ -19,8 +19,7 @@ Malwarebytes Mobile Security – это антивирусное приложе�
 ```bash
 magnet:?xt=urn:btih:F191F29940D89B8F543905535A09BF6254F1C89B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Malwarebytes Mobile Security – это антивирусное приложе�
 ```bash
 magnet:?xt=urn:btih:56D3AD582B0DA6D18D8BB48AFA1A853F3323C062
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Paranormal Pursuit: The Gifted One / Грани возможного. Избра
 ```bash
 magnet:?xt=urn:btih:F7E767724322FBF0FFEC69F359C85ED153494491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ F1 2014 (2014) [En] (1.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:C3D93CD88154F9751DE5F46404270B1655F12542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Deponia: The Complete Journey (2014) [Ru/Multi] (3.1.4.0127) Repack R.G. Catalys
 ```bash
 magnet:?xt=urn:btih:F3F34BE917D4F5DB4545162809092C17D4E067C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

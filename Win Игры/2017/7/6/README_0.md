@@ -19,8 +19,7 @@ PuppetShow 9: Her Cruel Collection / Шоу марионеток 9: Ее ужа�
 ```bash
 magnet:?xt=urn:btih:C1D558566E4FEB850C5AE79AA82EE80A23F35C64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/En] (1.07.00/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:5019F289804AA3B6C2F973CC347E2D035A59F1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 ```bash
 magnet:?xt=urn:btih:20E2185C17F9FC7EC0DACA7AF205C8FA106DFB14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

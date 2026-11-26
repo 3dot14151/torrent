@@ -27,8 +27,7 @@ Fable Anniversary сделала большой технологический �
 ```bash
 magnet:?xt=urn:btih:C1A5FC409BA20CBFFA145762D539FB1A46E42C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Jagged Alliance: Flashback - перезапуск легендарной так�
 ```bash
 magnet:?xt=urn:btih:F8C8E2D027AA0CC7CEBBDF21836819E43AD24AC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

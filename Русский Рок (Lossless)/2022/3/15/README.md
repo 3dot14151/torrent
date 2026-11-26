@@ -22,8 +22,7 @@ Ork Bastards - Warmongers Of The Gloomy Lands (2019) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:9A0B85E6F284403A356DD637A77704920AB32902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

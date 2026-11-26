@@ -19,8 +19,7 @@ Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26
 ```bash
 magnet:?xt=urn:btih:36591EBCEF0BC70E03FEC6173DD01AE81F78A74C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

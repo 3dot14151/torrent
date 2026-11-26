@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3D0EC7DB16C49590B784146B4D5CC1F9DBBB57AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - The Best Of Made Up Records Vol. 1 (1989) [OGG Vorbis|480 Kbps] <Electronic
 ```bash
 magnet:?xt=urn:btih:4123C2CC3A2E8F1794DCB222182C83441B531B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - Watercolor Jazz Inspiration (2024) [MP3|320 Kbps] <Jazz, Instrumental, Impr
 ```bash
 magnet:?xt=urn:btih:C775A6946ECAED5657CA6BB273AAA968DFDC684F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Anfitrite - Clitemnestra (2025) [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:767A4C82B5B43EAA57D171C5E5FA889488DD2730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Armada Music - Trance Legacy III (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:A4199EA1A2EB3B8D4D335582E91DC96D57C51D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Top 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressiv
 ```bash
 magnet:?xt=urn:btih:FDC537B6D2747D94FE26F2C99921795047E15DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67690B7484D85127926B42762698AA08DCB0039A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ David Rose - The Night Is Ours - David Rose - The Night Is Ours (2025) [FLAC 24/
 ```bash
 magnet:?xt=urn:btih:BB1E401E2FD43153C0DD9733474FC38AEB36C6B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

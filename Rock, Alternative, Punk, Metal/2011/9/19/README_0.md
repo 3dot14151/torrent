@@ -28,8 +28,7 @@ Abinchova - Versteckte Pfade (2011) [FLAC|Lossless]<Folk Metal/Melodic Death Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Remorse - Crush Your Pride (2011) [MP3|320 kbps]<Thrash Metal/Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:D5EB65F457AC5155BA0C767A4B0EA05840D0C17C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Black ‘N Blue - Collected (2005) 4CD Box Set [APE|Lossless]<Hard Rock, Glam Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Adrana - The Ancient Realms (2011) [FLAC|Lossless]<Symphonic Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Dave Weiner - On Revolute (2010) [MP3|320 kbps]<Instrumental rock>
 ```bash
 magnet:?xt=urn:btih:E6D740988016B3390C28A430E387FF83D422F56D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +200,7 @@ Saturnus - 4 albums (1996-2006) [FLAC|Lossless] <Melodic Death/Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +234,7 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:6E49BA4A67E221A0EC60E88C8B7CA5E1E264054D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +268,7 @@ The Beatles - 1 (Remastered) (2011) [MP3|~220 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:30578462E8320EE9AC26F315C5299ABDE1AFAB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +302,7 @@ Robert Miles - Th1rt3en (2011) [MP3|320 kbps]<Instrumental rock>
 ```bash
 magnet:?xt=urn:btih:545459437CDA2BD831939E0ED307352488071D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F92D2AF7FFB1E1C7DEA48705FF91F77E201927E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6D477CE0BCB28D109356C6D8A6A391ED3A8FD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

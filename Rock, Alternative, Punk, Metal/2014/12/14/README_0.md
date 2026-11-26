@@ -24,8 +24,7 @@ Arachnigod - Forest Of Stars (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:B0417295E479A9F6B2B41CC129B66A9F3E26F50F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Dargolf Metzgore - The Path To Madness (2014) [MP3|320 кб/с]<Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:D9626536F127DD0BD5779D831458D3BD2D290783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ In The Hands Of Destruction - When Humanity Ends (2014) [MP3|320 кб/с]<Deathc
 ```bash
 magnet:?xt=urn:btih:8141F88C1D7EB6D7BBCD3AC07B5A73D4450D59AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Chief Warrant Officer - Hotspur (2011) [MP3|320 кб/с]<Alternative/ Indie/ Pop
 ```bash
 magnet:?xt=urn:btih:88F048E7F9E93779421C12608516B62938F774B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Rich Robinson - The Ceaseless Sight (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:E4FD9232FE93BBF09C2C3A26483FD16E260BBFE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Gov’t Mule - Dark Side of the Mule (2014) Deluxe Edition (3CD)  [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:19C5C2BA792083088A193EF541CF63BE4B0F1E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:15B2F37355385129AA3FC49C772DE8756B8EF9CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

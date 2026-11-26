@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B3717478ED8308B9E17D7F6E7F469A8A08F235CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CDEA7577371AF9ABEDFF3ABC9F254CA396F36A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Travelling Music Selection: Love Road (Your Music On the Road) (2014) [MP3|
 ```bash
 magnet:?xt=urn:btih:5559B505ADB9071E4302FA00652FFA694F718134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:663EA2A78D5414E9DAF4CCDFAB2809284E7D97CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E9C1D65A3B64869A31E013363D36231FB5DCAD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Gotthard - Dial Hard (1994) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:74F05052C7F20034001BE661C21D3457051DEB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ FreeFileSync 6.3 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:34891D269C6C011FC82C24185FA72275E5BA0CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ J Dilla - Dillanthology, Vol. 1: Dilla's Productions for Various Artists (2009) 
 ```bash
 magnet:?xt=urn:btih:78936F1C749BE1F162A86837A431B3E0D542A90C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:145CC340FB84E551457EFCB3B199A3E08B1D3DF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ Nathalie Manser - Golden Age (2010) [MP3|320 кб/с]<Neoclassical, Cello>
 ```bash
 magnet:?xt=urn:btih:F50089BA665CB5541747BE3E57AC6F5CFC9829C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ I, Napoleon - I, Napoleon (1991) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:90589267924C989307458E921E955342A430C76B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8C9DE2F4EACB5E2CB37273B22F18A4D0BEEBB89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +410,7 @@ Kat Edmonson - Way Down Low (2012) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:87F45FB0A9D57FD1EDF01E37B1A311FE9ACC8C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5351A46802016F0B086FEB633D9B46D0EFFB5BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2523487301E195A6D2062FC254EA05ED4AFFFDC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +495,7 @@ Enaid & Einalem - Celtic Nights (1996) [FLAC|Lossless]<New age, Celtic, Nature s
 ```bash
 magnet:?xt=urn:btih:3668C7085332DE2BD6767D0610B68DB9683C9363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DCCAE8DD941CE1DE6981222AC12B147EBE25937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ Poison - Flesh & Blood (1990) Japan [APE|Lossless]<Hard Rock / Glam>
 ```bash
 magnet:?xt=urn:btih:4B85449B76831E752FF4596A021F4FD4D1CF597F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +588,7 @@ Kellerkind - Music Is A Miracle (2013) [FLAC|Lossless]<Tech House, Deep House>
 ```bash
 magnet:?xt=urn:btih:9CA4ED0DB102AAAEE61F5322039443C9C506E596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ VA - Acoustic Atmosphere 2 (2013) [MP3|320 кб/с]<ChillOut, Instrumental>
 ```bash
 magnet:?xt=urn:btih:3EBED1463AE3165DAB602B49B22562387819E03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +655,7 @@ Aurio Corra - 4 albums (1998-2007) [MP3|192-320 кб/с]<Meditative, New age, Ma
 ```bash
 magnet:?xt=urn:btih:36C3CC325C9DD62BA7763F38B48D29C0EBF59542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +681,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B373BF4D7394DACA3E2B1F0893861CEDB94FC17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +706,7 @@ J Dilla - Dillanthology, Vol. 2: Dilla's Remixes for Various Artists (2009) [FLA
 ```bash
 magnet:?xt=urn:btih:D472D74C8AD912D3024670B8CB7F273A37D1D302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +731,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57186653DE69C9D19EB488E335EC1C0FD2638327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -781,8 +756,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACCF9DEF11C7B62F7AE1837BA423295CFC17C860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

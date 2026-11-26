@@ -23,8 +23,7 @@ Spider-Man: Friend or Foe [Ru] (P) 2007
 ```bash
 magnet:?xt=urn:btih:AB54E1ADDE7094010FEF616BD1538B6F281EC9BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

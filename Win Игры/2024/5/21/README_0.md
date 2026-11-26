@@ -19,8 +19,7 @@ Kingdom Rush: Frontiers, новая глава в серии милых и не�
 ```bash
 magnet:?xt=urn:btih:16C1C715A009F9EB05C73C78F33C40FA66018073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AMANATSU ~Perfect Edition~ (2024) [Multi] (1.0.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0A4A40326F4DD5A8978DD94CE0391DCD24F4C6C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Scene Investigators (2023) [Ru/Multi] (20250503/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C5AA342F69690B6D9600B0F2ACB37C7CDA4C2A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kingdom Rush (2014) [Ru/Multi] (5.6.12) License GOG
 ```bash
 magnet:?xt=urn:btih:0B5C9AFCF13E89FC5D985ECF3C42DD97AF79878D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

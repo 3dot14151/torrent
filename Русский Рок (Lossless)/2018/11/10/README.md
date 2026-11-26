@@ -22,8 +22,7 @@ Svartby - Swamp, My Neighbour (2015) [FLAC|Lossless|image + .cue] <Folk Black Me
 ```bash
 magnet:?xt=urn:btih:98CDDEE542C5AB811738632EA49B3721FD8BB673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0870028049AD41914E2B0E199B50AFE698C1F4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

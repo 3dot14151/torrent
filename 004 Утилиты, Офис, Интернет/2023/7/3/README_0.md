@@ -19,8 +19,7 @@ Revo Uninstaller Pro 5.1.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3CC293A328B2ED6CB57990CB7CF030C6FABA2BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dr. Folder 2.9.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3E6E665C207A9B88FF7E04E9225A359583E28E62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

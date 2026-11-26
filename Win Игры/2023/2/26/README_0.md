@@ -19,8 +19,7 @@ Tennis Manager 2022 (2022) [Multi] (2.3.4) License GOG
 ```bash
 magnet:?xt=urn:btih:460EE01985C61B460B2714A962ECFA2F1AEE2524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vampires Dawn 3 - The Crimson Realm погружает пользователя 
 ```bash
 magnet:?xt=urn:btih:1B3F35C1C481A425581257F2664C1518E7501C9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RUINER (2017) [Ru/Multi] (1.6c) License GOG
 ```bash
 magnet:?xt=urn:btih:FEA6196FA8B938471A609E6D1BC4C5C2D61996BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Momodora: Reverie Under The Moonlight – это метроидвания с д�
 ```bash
 magnet:?xt=urn:btih:583493F97CA6C012FBDC548DA08202D42DDC4A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

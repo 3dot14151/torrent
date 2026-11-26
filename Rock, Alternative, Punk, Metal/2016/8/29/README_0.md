@@ -22,8 +22,7 @@ Lоst Sосiеtу - Теrrоr Нungrу (2014) Limitеd Еditiоn [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:E0EC1F1F92D5A09A35D1DE834FCE1498598C406D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Defaillance - Contemplation Misanthropique De L'Humanite... (2008) [APE|Lossless
 ```bash
 magnet:?xt=urn:btih:3932F62915B2115C960A9A082EA6BFF05BE8BAAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Dеlаin - Мооnbаthеrs (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal
 ```bash
 magnet:?xt=urn:btih:1B609CD4A7599C94F0A28E18CA6799F9AEA097C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Flaw - Divided We Fall (2016) [FLAC|Lossless|tracks + .cue] <Alt.Metal, Nu Metal
 ```bash
 magnet:?xt=urn:btih:6C8A29719259DF513693E302392B4C4B4E76A2FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ CD1: Debauchery - Monster Voice
 ```bash
 magnet:?xt=urn:btih:5E07FF169011ED31DC141EF9D8146B5077CDBF8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Kiss - Kiss Rocks Vegas (2016) Live [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:90C58E6CF1099681101A3814D05948D219680316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

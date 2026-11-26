@@ -22,8 +22,7 @@ Preludio Ancestral - Oblivion (2018) Japan [FLAC|Lossless|image + .cue] <Symphon
 ```bash
 magnet:?xt=urn:btih:EE62E047E43AAE539CBAF81118545490CD9010A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lizzy Borden - My Midnight Things (2018) Japan [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:1155C27BFD1E6119766E7D8BE0E95E7178A1274F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C2FCC3E14E1507835B6D1236FF7D553E400F620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

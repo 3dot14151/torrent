@@ -22,8 +22,7 @@ Arch Enemy (от англ. arch-enemy — заклятый враг) — шве�
 ```bash
 magnet:?xt=urn:btih:C21199E5141DDE66AE81B10185873A6AABFE05A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

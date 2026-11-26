@@ -22,8 +22,7 @@ Dalriada - Aldas (2015) [MP3|320 кб/с]<Folk Metal, Epic Folk Metal>
 ```bash
 magnet:?xt=urn:btih:BC48996E074B0A7EA048B22E1BC16F9ACCD5C783
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fear Factory - Genexus (2015) Japanese Edition [MP3|320 кб/с]<Industrial Meta
 ```bash
 magnet:?xt=urn:btih:02580165D29CA91A9979A789055B78584A4AE890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Crossroads 3: What Was Lost (2023) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:94B2EA7AD0EBF9DFEAEA797266E684109317F53E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spriters: Hopes Blooming Dawn - это игра в стиле RPG, в котор
 ```bash
 magnet:?xt=urn:btih:74B5823AD387E782623FFC35E4136D05A08DA147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Yakuza Kiwami (2019) [Multi] (1.011a) License GOG
 ```bash
 magnet:?xt=urn:btih:6EF2E3293F3F243044B37626CC47BB8DB1EDF31D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Yakuza 0 (2018) [Multi] (1.015a) License GOG
 ```bash
 magnet:?xt=urn:btih:0364E8FE016BFCD10B87DFA190C8CE956AEE641F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

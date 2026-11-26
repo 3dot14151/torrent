@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:04C53141B7D3680525896093959B24B7B3759531
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Roxy Music - Love Is The Drug (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:C12D9D0283B7535BEB31BE51A792F27E63D4F0CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Die Krupps - Will nicht - Muss! / On Collision Course (2025) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:A3E8898876E5E69A210F055FDF4CFDD480B864D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

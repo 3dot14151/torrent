@@ -19,8 +19,7 @@ Spark in the Dark - атмосферный Dungeon Crawler в средневек
 ```bash
 magnet:?xt=urn:btih:5D4B055BDEC211C2D1B17B034B1C058FF76DA794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MXGP 26 - официальный симулятор чемпионата мир
 ```bash
 magnet:?xt=urn:btih:A819F9041DD9FE0A847E2ECB420AD48013C53B5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cyber Cleaner Simulator (2026) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:807F9585978D30612291D7AED01DD15A5A023E0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Darwinia: 10000th Anniversary Edition - это юбилейный ремаст
 ```bash
 magnet:?xt=urn:btih:8A89EA0A37137EEC6E16C9270CD6C9F35F018C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Low-Budget Repairs - это комедийный симулятор ремон
 ```bash
 magnet:?xt=urn:btih:E7BD321AE17B734C4A7E15458202E6BA7C802203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dinotica (2025) [Ru/Multi] (1.11.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BB142414C193293D099FD34F5A268AA18CE6CB1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Superhero Simulator - это экшен‑симулятор с элемента
 ```bash
 magnet:?xt=urn:btih:8EBFA774EBEEF36E937FAF7271C887003E1DF21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Hydro Thunder Hurricane (2012) [Ru/Multi] (1.2.0.0/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5A5850480B68C0A92813C0D5E91E3075C26BEA6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

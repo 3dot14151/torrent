@@ -19,8 +19,7 @@ Backbone – это нарративное приключение о лично�
 ```bash
 magnet:?xt=urn:btih:856B1C507BE0D97C20E3B9CF40156B33FEC3BCA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Story of Henry Bishop (2019) [Ru/Multi] (2.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:24DFED3632C4EEFF59FB7255B8EBA38AE67F74F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

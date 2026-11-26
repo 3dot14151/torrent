@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:0B8B76A79EBA9B630B2DBAC70D5911ED5CF6B287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Good architecture is more than just good code—it's clear communication. The C4
 ```bash
 magnet:?xt=urn:btih:1FD992BB15F88D76D9503217E16FC39ADEC4BF34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Nothing affects the (   Читать дальше...   )Жанр: Компью�
 ```bash
 magnet:?xt=urn:btih:9D457EA7AA0894E076F4F3EB6CA67F27A357F19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ You'll see how to manage authentication, standard UI components, database storag
 ```bash
 magnet:?xt=urn:btih:E9DA913448F7E372357742654D52430EA9F51BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ A programming language is a tool. By understanding (   Читать дальш�
 ```bash
 magnet:?xt=urn:btih:BD55A76FDD0B55651659A81E4CDBFF8610A2E833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Key Features
 ```bash
 magnet:?xt=urn:btih:A6935FE11FCD9D278BE1D842207F057A72B15E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ The Large Language Model Recipes book is a comprehensive, practical guide design
 ```bash
 magnet:?xt=urn:btih:E390218F959DB906B43780FB492A8259E21C58FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

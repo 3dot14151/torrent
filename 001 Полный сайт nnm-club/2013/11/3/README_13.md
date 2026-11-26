@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:38E50A0193948004E799AD2ED730C911C0487981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6EFF608C702AC2881976A546D88BCB3E0D9C75E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Garth Arum - The Dawn Of A New Creation (2013) [MP3|320 кб/с]<Symphonic Metal
 ```bash
 magnet:?xt=urn:btih:10E399DA883541398CD590ABA4BD2644DD62DABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Firewolfe - Firewolfe (2011) Japan [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1834E809A5060CB3E4629648579A6584773BEEFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Kaledon - 5 альбомов (2002 - 2008) [WavPack|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9BC4E322D257ABC8B7B7CC3A268ED5FC79573C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ VA - Zirkus Zirkus Vol 2: Elektronische Tanzmusik (2013) [MP3|320 кб/с]<Deep 
 ```bash
 magnet:?xt=urn:btih:A83521E4C362388CB51DEE8BAD20466945E3BAF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Sparklands - Tomocyclus (2013) [FLAC|Lossless]<Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:221AA3166943D596B68A90649E2B7759B4B97E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E6F1068B7D71CDAD9285B40F110E183FBB2F2AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93313ECF5D7B6CABE37ABB438CDE3AEBA2457909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ VA - Dj Compressor Energy Mix 13-11 (2013) [MP3|320 кб/с]<House, Trance, Tech
 ```bash
 magnet:?xt=urn:btih:2C7B0D858D511A8ACC05890BECC96EEA4E74C3E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6A67F495FD9E9555DBA39BA15C1AAA6C9337272
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +394,7 @@ VA - Треки то что надо! Заряжайся по полной (2013
 ```bash
 magnet:?xt=urn:btih:82C2B916DA0A21E6B44FC603016B13DB0705A6D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ Koan - Red Path EP (2013) [FLAC|Lossless|WEB-DL]<PsyChill, Ambient>
 ```bash
 magnet:?xt=urn:btih:DC66B33A2909EE100C9F6E5CA7220573C0F7A27E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ VA - Teen Hits (2013) 2CD [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:308069C0360ACCA7352028D8F7A0172CDE084839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEFB449644C46B900DDAD913011E34D3498A5EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ Voodoo Hill - Wild Seed Of Mother Earth (2004) [FLAC|Lossless]<Progressive Metal
 ```bash
 magnet:?xt=urn:btih:800CD062F7B4D783921996B36083382DDA5D3EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +548,7 @@ VA - Shining Sleep Vol 2 (2013) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:9941911CB8F4DC519A6B87247B071E6219B8AC06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +582,7 @@ VA - Sound Home Galaxy (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:4834CBC582B99616A65F7AD0DB49D39043B47765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25FD0862B641615F655C08C16B22F87D68A55FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +641,7 @@ Lion's Share - 4 альбома (1994 - 2009) [FLAC|APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:7D7BB074691CD0648E42D44D178DF4DB6C5A2FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF4D5FDF16636947A05AA4F30B52EEB3BFB34129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +693,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:B13CFC33EA9FCB5D5DFE5F399EDD109F22730698
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +718,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F90A57636129B0C1F9563B3A3760DDACECF344E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -767,8 +743,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEAC4B9341C2EC0980EDA2274FED30412D862EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -793,8 +768,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:580F8D1D9D323BD57DBE73D6895BC43A78404341
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Retro Film Transitions — это простой в использовании �
 ```bash
 magnet:?xt=urn:btih:20346118603BDE94E70A7CC9EEC0736D712F380D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C800C35A9C8C39958AA20168FC96673659F274D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Film Frame Light Transitions DR — это набор стильных пере�
 ```bash
 magnet:?xt=urn:btih:8E682678789707F8A933F684CB47C0E324189842
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BCDBFA284732415864109BA726B20AD87C587DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ubuntu*Pack 22.04 (июнь 2026) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:A878F82559CDEB93A11A1E3AB00520BCD5B49ED1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Ubuntu*Pack 22.04 Budgie (июнь 2026) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:56343D68D74B2FC1EAEE3AB6F7BED17B9B4C23B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Ubuntu*Pack 22.04 Cinnamon (июнь 2026) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:F40AA065D9679073B289499861FBAA948F03699A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Ubuntu*Pack 22.04 DDE (июнь 2026) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:EE2D987D29F08CF4F12A7EDB77BCB382CF81DD3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Ubuntu*Pack 22.04 GNOME (июнь 2026) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:E70926C2DBCDF98132CE431A06A3B4B6BC701268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Ubuntu ServerPack - полный комплект серверного ПО, к�
 ```bash
 magnet:?xt=urn:btih:AA4779F427669004FECC7EE47B9C693A7D97D8F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (июнь 2026) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:93B553B1EBD1AF44C1AEECD5A279AA1ACC99FC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +301,7 @@ Ubuntu*Pack 22.04 LikeWin (июнь 2026) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:4DFC591B2A72626FA4EE147212B0D4E7817D85BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (июнь 2026) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:767A5D156A9039C47B62CEF0E604AA7C8DEA5509
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Ubuntu*Pack 22.04 MATE (июнь 2026) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:B67FDFF5827D10E92EAADEDD8AC6B4818F145CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ Ubuntu*Pack 22.04 Unity (июнь 2026) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:49DC7D7EDE8FA6BB7D1CCAFBBB2C00364D2B5A72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (июнь 2026) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:F07BAB586D5104B84393931F3D3A6FE8484E7FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ Tabletop Tavern (2026) [Ru/Multi] (0.6.11.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:80D4C3374C218C18D13FA4843543B055B9EC8B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5F7ED5325A2B5036C216A2F40D22B3D7162FE4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC626F6FEDB44CE4DBA2C17670D311ED6A73B407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:757949270D015B3EC66C38B77691AFDD8E10BD55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCA7B9674EDB2D88AA7213320D9BC7464D1141DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12DFEEA13EAB98D2A46CF822CA355A3C14532671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:B287BF71BA1CEFAEAA29E92C59A983F0EB7428E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:96D42D7D150C8954922A9013647DA8A7A45EC6F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +630,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6259693987BFE654F66EB7FCE94F1C74DCA28008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +655,7 @@ TutorPlace, Сергей Иванов | Шея без боли (2026) WEB-DL [RU
 ```bash
 magnet:?xt=urn:btih:F39C46DBCDAC2AF97B869BEE1E980A062AC53533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

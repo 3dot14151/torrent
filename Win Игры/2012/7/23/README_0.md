@@ -19,8 +19,7 @@ Wonder World (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:2A675FFBD5B8CF9467F07B90478C7D75BCA4DB98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alternativa / Альтернатива: Нечего терять [Ru/En] (RePac
 ```bash
 magnet:?xt=urn:btih:2127E59B18CCC503FAFCB8EC7FC1CEF82EB937AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ F.E.A.R. 3 / F.3.A.R [Ru/En/Multi9\+] (Lossless Repack/16.0.20.1060) 2011 | RG G
 ```bash
 magnet:?xt=urn:btih:4AC6ADC83CCEFCF6B90E84E883738BDD618F63C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

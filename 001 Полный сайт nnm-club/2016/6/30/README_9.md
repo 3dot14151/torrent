@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9E35C9B8BB1117D745EE5CB2EE62DDAEE93315F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Adobe Photoshop CC 2015.5 - это комплексное решение для 
 ```bash
 magnet:?xt=urn:btih:62C23B6F3E59EE022794A576862DBB5D76C17A95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

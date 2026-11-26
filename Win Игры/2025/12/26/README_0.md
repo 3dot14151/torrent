@@ -19,8 +19,7 @@ The Ogre King (2025) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3DB9032EF34ED3CD90D0AA41F862BD5ABD86A1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Death Howl (2025) [Ru/Multi] (1.0.0.1) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:B6BD389975AF10BC01F3C9EC3135365AF3999BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Project Hunt - приближенный к реализму симулятор �
 ```bash
 magnet:?xt=urn:btih:8A55C2DE22445ABCF593E9CBAF1ADEBDB2E8D6AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SANABI – это пиксельный экшн с ретро стилистик
 ```bash
 magnet:?xt=urn:btih:C9D34019200E5DB2A21E7C1BFFFBC8E5C82AC56C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Flotsam (2019) [Ru/Multi] (1.0.0/1.0.0f5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9A4C0E32B3B2A4EB790B76EF7DC8C15E2EE939BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Voidtrain (2023) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:B24DAEDE2A0BECBFBE68106CEF82DA6B40D0F73C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ MARVEL Cosmic Invasion - это динамичный 2D-битемап в сти
 ```bash
 magnet:?xt=urn:btih:A4C7B78FF7BB6A9F1DD4034B48D619FB32EFF69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Montgomery Fox 2 and the Case of the Missing Ballerinas / Монтгомери �
 ```bash
 magnet:?xt=urn:btih:79CE07A3DB657103CB4FDB3D2F382D7686C2CF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

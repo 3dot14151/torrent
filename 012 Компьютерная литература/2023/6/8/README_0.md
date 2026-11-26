@@ -19,8 +19,7 @@ Umesh R. Hodeghatta и др. | Practical Business Analytics Using R and Python (
 ```bash
 magnet:?xt=urn:btih:480B1799A8BD71FFE8392F7773038AF9726AA1A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Solomon Eseme | Architecting Vue.js 3 Enterprise-Ready Web Applications (2023) [
 ```bash
 magnet:?xt=urn:btih:D03D36DE6C986CD60D8797A011ED1A02F74A1588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A44C6928A549172721083A87E6E1EC8EB2C20666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

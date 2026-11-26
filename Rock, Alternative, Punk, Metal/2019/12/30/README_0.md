@@ -22,8 +22,7 @@ Grand Magus - Sword Songs (2016) Japan [WavPack|Lossless|image + .cue] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:0EAD917E7C5739616794D6480A419E7D19B1ABA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ In Tormentata Quiete - Avant-Garde, Symphonic Black Metal группа из Ital
 ```bash
 magnet:?xt=urn:btih:0801CAAB6110203D8CA10467B5CF7637E3CE669C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bonnie Tyler - The RCA Years (2019) Compilation, 4CD,  Reissue, Remastered [FLAC
 ```bash
 magnet:?xt=urn:btih:AC3AAD5DD6D5EBBD6E91B38AC3DEB00976235AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9DA01D9D1A8243B87607677484D888ED8361C86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

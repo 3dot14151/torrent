@@ -19,8 +19,7 @@ DOOM: The Dark Ages - это не типичный шутер с беготне�
 ```bash
 magnet:?xt=urn:btih:B0F1C6395CBB9486412EFE7A19546BE60B2F9B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Caribbean Legend: Age of Pirates (2026) [Ru/Multi] (1.0.1/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6E4841AE6AA5756F29E1D6E16531299EB566CB38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

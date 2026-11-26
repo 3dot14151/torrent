@@ -19,8 +19,7 @@ Chekpoint — компания, занимающаяся разработкой 
 ```bash
 magnet:?xt=urn:btih:BDFB2302C522BAC302A1EFB89A3D49CF0AFA1A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

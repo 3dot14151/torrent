@@ -19,8 +19,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.22.0.4460/dlc) Repack Other s [Foun
 ```bash
 magnet:?xt=urn:btih:599FA8F3CD11ED870D435BE03688C88A5ECAAC56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

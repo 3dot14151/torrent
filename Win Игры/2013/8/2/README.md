@@ -19,8 +19,7 @@ Night Mysteries: The Amphora Prisoner (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:17B2F026341A3A7668E906D22158D04C67D65A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales 5: Bloody Mary Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:37942D51FB10DA9F43FBF6BE7D1B1D22BCB7C689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shadow Shelter / Обитель теней (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:1827A93548B68E25C71B7D0E54FB4DE735B8A448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Lost Chronicles of Zerzura заставляет игрока вжиться 
 ```bash
 magnet:?xt=urn:btih:1D402F76FB238C9C4D931D58AB996412947464CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Narco Terror (2013) [Ru/Multi] Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:E50DC4DD9F026910A6FA57F6AE9A53ADEA4F4C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Cloudberry Kingdom - это королевство, где хорошие гер
 ```bash
 magnet:?xt=urn:btih:7D83D8C065316E90AADA4666EF983699A0F17AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Strike Suit Zero предоставляет игрокам ослепитель�
 ```bash
 magnet:?xt=urn:btih:F28AB8647C6B05096C277FE9F78B46606DC8F497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

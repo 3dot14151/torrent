@@ -19,8 +19,7 @@ Blackbuntu Community Edition - GNU/Linux дистрибутив, являющи�
 ```bash
 magnet:?xt=urn:btih:4B4E4EB5A7F816F5D984C7D756C761907242C836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

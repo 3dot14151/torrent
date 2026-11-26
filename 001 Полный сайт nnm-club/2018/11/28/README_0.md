@@ -21,8 +21,7 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:EE3CA6DD37E77F391D1910448F9C006399884654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Big Mean Folder Machine - интересное приложение, предн�
 ```bash
 magnet:?xt=urn:btih:45F5EC1100BA395C9D3B173372384E8F0E198426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ VA - Modern View In Trance Music (2018) [MP3|320 Kbps] <Trance, Electro, Progres
 ```bash
 magnet:?xt=urn:btih:0DF45FCD011122F172496E77ACDC35EDAA7B5556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:465064F0E58DB7D1A3030D6114BA0AC8FF59A043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Elmedia Video Player - это бесплатный медиаплеер для M
 ```bash
 magnet:?xt=urn:btih:296FF5666F1D11AE22EA62A6AB603E31AAB0652F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7DC48CE830F408836E08A049F0D3FDF10B7D5672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Macrium Reflect Free обладает интуитивно понятным по
 ```bash
 magnet:?xt=urn:btih:1CEAAAF31E7DA6FE4FD3F3EFDF572879048606F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C04BD1B3CA20A75916350CBC07EDF4B4AD788E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ VA - THIS is the 60's (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2BE09C0408E17D85BBE90604B82D6EC2D48C8E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ NGW: Потоп / The Flood (2018) HDTV [H.264/1080i-LQ] (серии 1-2)
 ```bash
 magnet:?xt=urn:btih:5B7ECEBEBDB52F2F17315700B3B91A8D4D2B94D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +285,7 @@ VA - Best Weekend: Pop Dance Mix (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:8A01DBEF18931CF0B7D5FC83CBD7A3E15E11312C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +313,7 @@ VA - Blues Metropolia (2018) [MP3|320 Kbps] <Blues, Jazz>
 ```bash
 magnet:?xt=urn:btih:1506F599337F089845078B51A9CFEED14412071C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Opera 57.0.3098.76 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:459E62A7D6486B74AC229FBFB8F6758164316A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Jacque Fresco - инженер, дизайнер, футуролог. Автор
 ```bash
 magnet:?xt=urn:btih:5CABB7EC065D84CD8AD3178ED30BCCE63FB16A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +389,7 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 ```bash
 magnet:?xt=urn:btih:6A9230C2F767AEFF4E33A0B553761A06EDA4D46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ Mystery Case Files 18: The Countess (2018) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:39B0F4AE984F556F83A37E364EE8FC436FEFE63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:034E3588A22F66042774EE5A1897D0B7475D65F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ Sade - Rare Adventure (2003) Unofficial Release [FLAC|Lossless|tracks + .cue] <S
 ```bash
 magnet:?xt=urn:btih:93FFB57C25B64A09936A894FBE710702EEE009E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +492,7 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) DVB
 ```bash
 magnet:?xt=urn:btih:6C2C14D5B0BEB86F182A80A2D8E386DEA0F9BAA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67EE65B0F8C75BDC15CF5621D73009F22DDB4638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +570,7 @@ Alcatrazz - Live In Japan 1984 (2018) DVD5 [custom]
 ```bash
 magnet:?xt=urn:btih:320ED10B6BAA930DEEF3186497825ED5F0765673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ Macrium Reflect обладает интуитивно понятным поль�
 ```bash
 magnet:?xt=urn:btih:076C30FA4C0646A39E12A8D6FEC4E6A499A685DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82F8FA19D6EF640CD1864263B60ECD581CC39087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71E72DDAAE39A147A153651F5440D89BB11A8856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E65DB259929EB4F21A8EAD1C3E676960AC6827F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

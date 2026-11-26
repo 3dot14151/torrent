@@ -19,8 +19,7 @@ Hidden Expedition 14: The Pearl of Discord / Секретная экспедиц
 ```bash
 magnet:?xt=urn:btih:325B10EC93EF94350A4FB75181327EC0D9C95B9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ UAYEB – приключенческая головоломка на выжив�
 ```bash
 magnet:?xt=urn:btih:57AF74B9BDB71C2EF14853476989F58559554F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Darksiders (2016) [Ru/Multi] (1.0.2679) Repack R.G. Механики [Warmastere
 ```bash
 magnet:?xt=urn:btih:07E3162023E387D94278B494A763E6EDFEC74508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

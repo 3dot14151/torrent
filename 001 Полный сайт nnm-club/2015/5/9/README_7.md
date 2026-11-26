@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:29EC89599D417D885C29A8327640409D6D58E8FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ VA - Future Sound Progressive House (2015) [MP3|320 кб/с]<Progressive House, 
 ```bash
 magnet:?xt=urn:btih:B4D0D8A08970B7DCF6D546DABBC3CB0F76198DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93AADB8581505736094748F3D8FD7068435C27BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6481FE8216306727D361416EADF984AACABAE7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1DE04EBDDDA3365F4EAE047E02F12C390EC98C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Legiac (Funckarma) - Mings Feaner (2007) [FLAC|Lossless|CD]<IDM, Experimental, A
 ```bash
 magnet:?xt=urn:btih:8245CB6D4C5B4CD7FC2909CCB685373D4148A997
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - The Essential Chillout & Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:E2B66A1090293512A7362DB66916B07F8123495E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Worthersee Lounge Music Deluxe (2015) [MP3|320 кб/с]<Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:45CADBE5BBCA05FE6644508CE7110104B12E5988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ VA - Beachlife Miami: Chillout Lounge Tunes Deluxe (2015) [MP3|320 кб/с]<Down
 ```bash
 magnet:?xt=urn:btih:0E4F32466B0DC4D508515A4C9E2893D422276F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Shlohmo - Emerge From Smoke / Ode 2 Tha Whip (2015) [FLAC|Lossless|Vinyl]<Experi
 ```bash
 magnet:?xt=urn:btih:F46190655A8EF115E631ECCD3E3EDBDD965B944A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Best Of Bikini Sounds 5th Anniversary - Chillout & Lounge Edition (2015) [M
 ```bash
 magnet:?xt=urn:btih:6A83276E2B87100E7FE37FA377E3A84E34143762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B79B9835DD5BD10BEAD9D6DA361EFD33E80B7C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Original Legends of the Blues - Still Carrying The Flame (2015) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:AC2E99CC5835816F263907A05C9E40D32D8BF84D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ VA - Best Sound Of Chill & Lounge 2015: 33 Chillout Downbeat Songs With Ibiza Ma
 ```bash
 magnet:?xt=urn:btih:90B7E0167D10B53269AC777ED5A53D91F4CF40E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ RecFrag - Burning Rime (2015) [FLAC|Lossless|WEB-DL]<IDM, Industrial, Ambient>
 ```bash
 magnet:?xt=urn:btih:68B90449AF9A0C76D4586C3D089B82A5F7385AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +435,7 @@ Junkware Removal Tool 6.6.9 [En]
 ```bash
 magnet:?xt=urn:btih:A00E117B66F52FE31AF5F6E84DFF869E0A7FEB20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ Synth-Etik - Function (2015) [MP3|~278 кб/с (V0)]<Rhythmic Noise, Industrial>
 ```bash
 magnet:?xt=urn:btih:76C8D4333DD45A26B6EB966889F901E41BC7F82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ Cubix Challenge – игра головоломка для всей семьи, 
 ```bash
 magnet:?xt=urn:btih:058108B467B4CD934B35A64CD46A8F7E68A952DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,8 +517,7 @@ Carbon Copy Cloner – хорошая утилита для резервного
 ```bash
 magnet:?xt=urn:btih:8FD9B2FA1D915F314384821B91F672CF34E7FF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ VA - Fractal Dance System (2015) [MP3|320 кб/с]<Dance, Club, Electro>
 ```bash
 magnet:?xt=urn:btih:58033A6E672387DB60789389EE97E5A139A10AD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +575,7 @@ VA - Sound Surrender Escape 100 [Mark Knight, Matisse & Sadko, Robbie Rivera, Bo
 ```bash
 magnet:?xt=urn:btih:A10357EA9EB94C7F1B5290B4D23622F17A54407A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ MNP Helper 1.0.0.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:40F07932F18357546AE5A85A57366C68BB1827BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D1634BA9A957614A819BCCD3DBB87135646DA63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F58C699480315283ECA6C5DA7163477715CF5ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0947F6C5ED5C22BD9AEAE0F7A0CA6BBB39E3DCA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ JonDo 0.9.79 [анонимный доступ в сети] [x86] DVD
 ```bash
 magnet:?xt=urn:btih:D6876920247E2206B9D82A6356D5BA2BC37DB95D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:3753B4315A1E798D1CC1A2A3EF5BC82746FA9481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Empire of Sin — новая стратегическая игра от Romero G
 ```bash
 magnet:?xt=urn:btih:9BE1D26112D1554D877228BC8776F6B5670656D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

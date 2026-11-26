@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:1499266CF78CFA0E594AA24E886C47AEEB41C4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD1 - Свирепый пёс (2019):
 ```bash
 magnet:?xt=urn:btih:7187585C85C98158294AC3D3856F1002A2D404C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Orso - Primi Piatti (2016) [MP3|320 Kbps] <post-metal, instrumental, experimenta
 ```bash
 magnet:?xt=urn:btih:DD8F4B7375AF918CF75F5AE66A10D5F27BEDDAB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:858725FEC22B816791191CCB3EF94DB5D36008EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Electric Princesses - No Models (2017) [MP3|320 Kbps] <Indie Rock, Post-Punk>
 ```bash
 magnet:?xt=urn:btih:24606D1F8738D69A169303BCB5069AF9033725D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

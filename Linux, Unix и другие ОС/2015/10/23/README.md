@@ -21,8 +21,7 @@ Lubuntu — это современная операционная систем�
 ```bash
 magnet:?xt=urn:btih:FB0DF3D4F496E173B41D46DAA7B253F50E42B323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Xubuntu 15.10 Wily Werewolf (Легкий дистрибутив) [i386, amd64] 
 ```bash
 magnet:?xt=urn:btih:090AE72E124DA221F8F2F4EC60B249EDFBBEE9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

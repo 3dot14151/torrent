@@ -21,8 +21,7 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 magnet:?xt=urn:btih:2D2D181B5F58C0231F3A75A84F583BC23469B45D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Fenêtre позволяет визуализировать видео, изоб�
 ```bash
 magnet:?xt=urn:btih:1AE0A3F50607AE6C4E2BEBC7240F276D50C8BD3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Talla 2XLC - Fascinated (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:BA3A67DD6966C4D78F521DCB67CE9881CBA33CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ DropDMG 3.5.8 [Multi]
 ```bash
 magnet:?xt=urn:btih:7D0B2198DB28B5E7E477747D336284E33FF52AE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Studies - это приложение, чтобы помочь вам освои
 ```bash
 magnet:?xt=urn:btih:B635054DFD0BE8AD0B2FF1AEF43A0D8EAFFEFAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Tri-BACKUP Pro 9 v9.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:799DAA3B87DCDC85F2FE9F51361CD6E39A09993F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Ian Wellman - Bioaccumulation (2019) Room40 [FLAC|Lossless|WEB-DL|tracks] <Ambie
 ```bash
 magnet:?xt=urn:btih:B404A8733FAD050B54EA4DBB1F2807C19FCC054E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ iRingg позволит вам создавать персонализирова
 ```bash
 magnet:?xt=urn:btih:6EC5C8CD3F7DC4F267031232E47C49E4C2C9DC54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ OmniGraffle Pro - отличный инструмент для создания 
 ```bash
 magnet:?xt=urn:btih:1C71C1BB3C50CD5DDCC66C6BC353C7CF4B045326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ iClip позволяет быстро заносить и хранить неб�
 ```bash
 magnet:?xt=urn:btih:ACBC2852187B60255335DECFBFED156A12567374
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Amelie Lens @ Resonance Stage, Medusa Sunbeach Festival, Spain 2019-08-09
 ```bash
 magnet:?xt=urn:btih:A515BFC7607671A45580596B274CE17CA920C2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Mate Translate обладает невероятно полной базой д�
 ```bash
 magnet:?xt=urn:btih:8B934121AF31D68A9FB83020A0F85BBBCA91142F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ Blue Hawaii - Open Reduction Internal Fixation (2019) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:9C54598AB9EB3712A644398815B99CAAB928385C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Cornerstone - Arrival (2000) [WavPack|Lossless|image + .cue] <Hard Rock, Heavy M
 ```bash
 magnet:?xt=urn:btih:E33A02654B48CF26EF70ABDAC20D8F3143A99432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Renamer - это приложение для пакетного переимен
 ```bash
 magnet:?xt=urn:btih:61A559F7991F76A4054844EE5038CEFB92CFB80B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ VA - Talla 2XlC - Fascinated (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:31DE256D0BB85D73E72A2868CE9E0173FF112A67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Pryda - Pryda 15 Vol III (2019) [FLAC|Lossless|WEB|tracks] <House, Progressive H
 ```bash
 magnet:?xt=urn:btih:5B5B87BC4B09FE351F1CAFE27896227D7ED756CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ Power Manager умеет работать с несколькими (   Чит�
 ```bash
 magnet:?xt=urn:btih:35BD05F9F276609CD84C28569F7DF722D6AA9C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ Tinlicker - This Is Not Our Universe (2019) [FLAC|Lossless|WEB|tracks] <Progress
 ```bash
 magnet:?xt=urn:btih:8A048C6E78562A207D7EDCE01986B0CD4675FDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Cloud One - 2 Albums (1976, 1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:6CCF229EDC6115643C05D8C068B6B27694143B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ Audirvana - мощный аудиофильский плеер с широчай
 ```bash
 magnet:?xt=urn:btih:2C90DA376A05E1209558A966BEA74EA86FA4630E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E1BC299D9A8F4A02E00987F65B42D3F99E690C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +615,7 @@ Carbon Copy Cloner - утилита для клонирования дисков
 ```bash
 magnet:?xt=urn:btih:074E22E7F973593D87ADB95BA3F033CA2A0BA400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +643,7 @@ Wale - Wow... That's Crazy (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:674C9460A8461706BE03A447CA486A53587CC68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:3D69F2A48FB648C868BDEE56A4CC8EC29BE50954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +696,7 @@ iVI способна конвертировать и импортировать 
 ```bash
 magnet:?xt=urn:btih:0F027A4DAA7B1C15F8F2C82370CDA213D223B925
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Faith No More — американская рок-группа из Сан-Фр�
 ```bash
 magnet:?xt=urn:btih:B68402504DA0E2A4CF3880C7D87C6A2254F97EDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

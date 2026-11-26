@@ -26,8 +26,7 @@ New Scientist RU" пишет: о событиях в мире науки;
 ```bash
 magnet:?xt=urn:btih:BCC496AF9DFB6E40D6C1624843149A41E724D58D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

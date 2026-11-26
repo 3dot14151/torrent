@@ -19,8 +19,7 @@ Les Miserables: Cosette's Fate [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:ECFC523B8FFF79E9701CD94F7A577978C6202356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Ninja Blade [Ru/En] (L) 2009
 ```bash
 magnet:?xt=urn:btih:213464BDF812DA7CBBF4F45622BE2FE64178C6BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Assassin's Creed 3 (Patch/1.02) 2013
 ```bash
 magnet:?xt=urn:btih:CEAE3B575015C4A9D82B1B4E5E1910BA44AC5D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Assassin's Creed 3 (Patch/Crack/1.02) 2013 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:C75334BBFEA85A5BD7BE2382CAD2AF45B3E30381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Assassin's Creed 3 (Patch/Crack/1.02) 2013 | RELOADED
 ```bash
 magnet:?xt=urn:btih:5F1A42A99C920AB681F05C1B2AD4E8C962A9309F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ TRON: Evolution: The Video Game [Ru/En] (RePack) 2010 | R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:7E7D28FE0395D9ED4244F6C42FB5F2D1EC15C94E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

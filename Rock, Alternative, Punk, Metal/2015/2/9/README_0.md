@@ -23,8 +23,7 @@ Finntroll - Natten Med De Levande Finntroll  (2014) Live At Melkweg, Amsterdam [
 ```bash
 magnet:?xt=urn:btih:2553431589B2324F6464C58FEBD34E1EEAC3736E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The Sidekicks - Awkward Breeds (2012) [MP3|320 кб/с]<Alternative Rock/ Indie/
 ```bash
 magnet:?xt=urn:btih:93C04DDC3E25B19363F99358EEF603372D94B301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Vise Versa - Living a Lie (2015) [MP3|320 кб/с]<Alternative/ Industrial Metal
 ```bash
 magnet:?xt=urn:btih:57A71B20B8BFE872E1BE0291BA3796171BD4C950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Richie Kotzen - Cannibals (2015) Japan [FLAC|Lossless]<Classic Rock / Blues Rock
 ```bash
 magnet:?xt=urn:btih:9B281D163A99AE544F9C3E00E8F2EF34FD963EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

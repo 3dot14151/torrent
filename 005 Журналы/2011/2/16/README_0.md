@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:593C69E16804B8C7A199EC6FF3717E6971824FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Penthouse - американский эротический развлекате
 ```bash
 magnet:?xt=urn:btih:642B11ED763FB5E0609CCAA678F6CBFCBF7928D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

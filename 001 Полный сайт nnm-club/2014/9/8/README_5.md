@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A06C1A02423A7AFA2E0BE911188236C2A9309168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:898FA80AFCF1B5651B65EC3C6807DA14D48CD554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB9BEE1DD7C5704C702517B9738CA32A9151F8DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F36771D140F0255BC2A2B21ACD8A5C7EF0B8B56F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84E795E9EDBE9900B0EFE0C987C71CEFCCBA85D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ DivX Plus — это совершенно новый пакет кодеков (
 ```bash
 magnet:?xt=urn:btih:F93ACC7FC8B1F39750EE1AC734021AEEBB924432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:159284E21999C84D9B2200D382B8EB515BF748EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7130002B5802CBC8FFD8BAF043B45FE0B80D4AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ Outpost Security Suite Pro - мощный, проверенный времене
 ```bash
 magnet:?xt=urn:btih:CAD7BEDF45A6DB0FD932294E3BF55228F1077AD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:648633D18A98DE5C12DE2C5D8474A6F7BA91CC07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:688CA5C1E125B6096E3D77B1999740A8D73B8B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ ABBYY FineReader 12 Corporate – программа для распознава
 ```bash
 magnet:?xt=urn:btih:85661803334110EA3E67D3D8804871CE0144C5D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ ABBYY FineReader 12 Corporate – программа для распознава
 ```bash
 magnet:?xt=urn:btih:B6DA5A36DD80A3EA927BDFB59AF7EAAB78FD5B13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +384,7 @@ Age Of Mythology (2014) [Ru/En] (1.9.2975) RePack Audioslave [Extended Edition]
 ```bash
 magnet:?xt=urn:btih:CFA1F1F77FD02EB8799E58DEAD664B0E0BBB68B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ And One - Full CD Discography (1990-2014) 39 Releases / 48CD [FLAC|Lossless]<EBM
 ```bash
 magnet:?xt=urn:btih:D4C6954D510E08295D19C0C04A12C143B7A012A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06EF03428B2BF47A9D43B586EADCE3D4F39E3F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ CaesarIA (2012) [Ru/Multi] (build 1852) License [Caesar III Open source remake]
 ```bash
 magnet:?xt=urn:btih:A0D49D51E20DC9D06074E31A6FC2448B45D71607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ ABBYY FineReader 12 Corporate – программа для распознава
 ```bash
 magnet:?xt=urn:btih:751614F60DDC9C615C363FC80E317C521DAD9815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +525,7 @@ To finish first, first you have to finish!
 ```bash
 magnet:?xt=urn:btih:F79BE2AC13AB93AD1F91762BA3F9C7D62A4196FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Addictive Drums был разработан для обеспечения упр
 ```bash
 magnet:?xt=urn:btih:90712FBA9E44DAD0FEDB802AFFF3581916696A91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +578,7 @@ CINEMA 4D R16 является идеальным инструментом дл�
 ```bash
 magnet:?xt=urn:btih:BB06715C6B52F2D29C14D2C53B81D5858BFFC798
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +603,7 @@ Parallels Desktop for Mac 10.0.2 (27712) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D89AEE5805C77E546B1FAD23A122D177B2D2A7BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +631,7 @@ Gothic 3 (2006) (1.75.14/ModsPack) Repack Drakyla666
 ```bash
 magnet:?xt=urn:btih:00F05B302FBA3C907F716FFCA6CB7BDEA0F5805F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +656,7 @@ CINEMA 4D R16 - новое поколение приложения, ведуще
 ```bash
 magnet:?xt=urn:btih:CCF0346DC1761E1C6830C02B28112E3BBDBB0A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ Age Of Empires 2 - HD Edition - переиздание стратегии 1999 �
 ```bash
 magnet:?xt=urn:btih:2E267F078529A5D99598CB3874C47E13399DADF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

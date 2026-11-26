@@ -20,8 +20,7 @@ Alien Breed 3: Descent – завершающая часть серии Alien Br
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

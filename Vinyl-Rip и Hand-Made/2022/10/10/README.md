@@ -22,8 +22,7 @@ A4 Лифт • The Elevator(   Читать дальше...   )Жанр: Reggae
 ```bash
 magnet:?xt=urn:btih:E52464339673B026A4B99DFF1ECC882203DD2AC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ AC/DC  — австралийская рок-группа, сформирова�
 ```bash
 magnet:?xt=urn:btih:7B244C7F29869C1B9F72CAA8D9CD2C49EEF44573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

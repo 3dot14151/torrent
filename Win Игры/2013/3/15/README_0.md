@@ -19,8 +19,7 @@ European Mystery: Scent of Desire Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:F7931CE5B0B399E4B096EE255663854D07D85457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

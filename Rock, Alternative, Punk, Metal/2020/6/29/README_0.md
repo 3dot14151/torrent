@@ -22,8 +22,7 @@ Pessimist - Holdout (2020) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:B7F91250CF9D411042F11C7C34D1D366EE0F43C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

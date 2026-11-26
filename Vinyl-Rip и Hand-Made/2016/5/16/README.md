@@ -22,8 +22,7 @@ A4	From The Beginning(   Читать дальше...   )Жанр: Folk Rock, Ac
 ```bash
 magnet:?xt=urn:btih:4BE2B58A0091EC59AE800ED616BBD1FF06EB039D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 Голубая Распсодия (Rhapsody In Blue)(   Читать даль
 ```bash
 magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

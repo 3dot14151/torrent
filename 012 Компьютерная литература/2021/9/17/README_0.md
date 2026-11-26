@@ -20,8 +20,7 @@ JavaScript. Дополнительные уроки для начинающих"
 ```bash
 magnet:?xt=urn:btih:35269553E02031CE83DA22E8CFA3878041C43C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

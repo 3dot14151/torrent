@@ -22,8 +22,7 @@ Edguy - Дискография (1994-2008) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:9A3A5DF0D271CB2DDF07A30549729F245B20E2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ The Book of the Beast - это первое полное собрание луч
 ```bash
 magnet:?xt=urn:btih:D9C332DE11B377081CF1AD08D8643471FF5A6E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Reverso для Windows - Приложение для операционных с
 ```bash
 magnet:?xt=urn:btih:40CA09EC65AC152EF6119484E6C2F2DF72B86591
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

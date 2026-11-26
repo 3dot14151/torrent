@@ -21,8 +21,7 @@ Krasimir Tsonev | 50 Tips on JavaScript: 50 of the most interesting features, co
 ```bash
 magnet:?xt=urn:btih:37348BE5EDE5107DA9525EC6C6B088EB7A004C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

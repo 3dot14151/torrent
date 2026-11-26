@@ -28,8 +28,7 @@ Ruinside - The Hunt (2012) [MP3|320 кб/с]<Thrash metal, Speed metal>
 ```bash
 magnet:?xt=urn:btih:B2575904BDDAC68F0860E18DBD469D1B27921A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Brendon Small - Brendon Small’s Galaktikon (2012) [web] [FLAC|Lossless]<Space 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Lynyrd Skynyrd - Sounds of South / MCA Years 1973-1988 (2007) Box set [FLAC|Loss
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Lumen — российская рок-группа, играющая в жанр
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

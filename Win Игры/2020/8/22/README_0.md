@@ -19,8 +19,7 @@ Mystery Case Files 20: Black Crown / За семью печатями 20: Чёр
 ```bash
 magnet:?xt=urn:btih:EEF7CB4711EDB2378C83A4696E0851E45B9FFCEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Expedition 19: The Price of Paradise / Секретная экспеди�
 ```bash
 magnet:?xt=urn:btih:9943163494AB59B3400720B288852DA4D7742AAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

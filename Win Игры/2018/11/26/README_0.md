@@ -19,8 +19,7 @@ Secrets of Great Queens 2: Regicide / Тайны великих королев 2
 ```bash
 magnet:?xt=urn:btih:06BD857B9BDEAA5079EEA51A5AEC3BBD8B1D70F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chasm (2018) [En] (1.043) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3CB2DC075E81ADD9F36E6AE9C82DD763F9F0BEB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pro Evolution Soccer 2019 продолжает серию симуляторов
 ```bash
 magnet:?xt=urn:btih:6086A6FCF8DC8B00F1985F242C2593BEF4E4AA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

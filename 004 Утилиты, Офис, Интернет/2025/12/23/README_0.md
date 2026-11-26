@@ -19,8 +19,7 @@ MAX Desktop 25.21.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:71EDBF08B5CEB4C4EB1DDDED08C9AA6F35858D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

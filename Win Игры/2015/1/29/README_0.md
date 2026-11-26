@@ -19,8 +19,7 @@ Sea of Lies: Burning Coast (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:EA89B394D0D7EAAE0EE6298F9CAE99C7B41B26B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Taken Souls: Blood Ritual (2015) [En] Unofficial [Collector's Edition / Колл
 ```bash
 magnet:?xt=urn:btih:1EEF71E8C8FF5B9C48DDDB25869FFA3391F1B259
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Frankenstein: Master of Death (2015) [Ru/Multi] Unofficial
 ```bash
 magnet:?xt=urn:btih:E9C4B8F0D9727B5CED1CDB0F68663AB8DE59C16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Haunted Legends 5: The Stone Guest / Легенды о призраках 5: К�
 ```bash
 magnet:?xt=urn:btih:D5B7780FE598E9F8815B62163A3F277088554DD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Lost Lands 2: The Four Horsemen / Потерянные земли: Четыре 
 ```bash
 magnet:?xt=urn:btih:C90DA2B64A09B093AA406DA1E5177DAACD4FF540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Air Guardians (2015) [En] (1.3) License HI2U
 ```bash
 magnet:?xt=urn:btih:136E74C0543E3BE7609A65278876E34A41B3AD49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

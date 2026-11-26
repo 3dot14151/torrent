@@ -19,8 +19,7 @@ BubbleGame v1.1 [En]
 ```bash
 magnet:?xt=urn:btih:E0D61D6198927F6502D6C7AE4D6C21F46F16E01F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Hurula - Klass (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Punk>
 ```bash
 magnet:?xt=urn:btih:DC728BA922052FC80792593173B0E5EE1C07B406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dying Fetus - Wrong One To Fuck With (2017) [WavPack|Lossless|image + .cue] <Bru
 ```bash
 magnet:?xt=urn:btih:D4A0829B6DD580DE10E173BA55B9AC7F0478A465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83E5BBAC9940F86863F928E4F17DD2825BAC3CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Ian Gillan - Contractual Obligation #2 Live in Warsaw (2019) [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:D6C5822B07F1B52080079934F096CF30F00D51BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ Thy Art Is Murder - 5 Альбомов, 2 EP, 1 Сингл (2008-2019) [FLAC|tra
 ```bash
 magnet:?xt=urn:btih:2DB1DB9A8631BA502F5A7BDE11308CBBFB658984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

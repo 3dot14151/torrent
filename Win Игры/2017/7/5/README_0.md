@@ -19,8 +19,7 @@ Labyrinths of the World 6: The Devil's Tower / Лабиринты Мира 6: Б
 ```bash
 magnet:?xt=urn:btih:CE9FFF5697C370D6402268E9B64BA17DA8166722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sudeki – это мир, разделенный на свет, тень и ть
 ```bash
 magnet:?xt=urn:btih:B2D5CAC3462D338D4B1E764A61D7CD61D377D067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Unravel пленяет домашним теплом и уютом. Каждый
 ```bash
 magnet:?xt=urn:btih:89EE2EF470F547B32DCF6F4C6676BF42130AB13B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Westboro (2017) [Ru/Multi] (1.00) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:8028518B7399A7F258B69CE847C1AEA34EDFCEA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Remember Me (2013) [Ru/Multi] (1.0.2056.0/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:4BAE61503F591156AAC5073947D8707D0D3B362B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

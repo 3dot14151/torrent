@@ -19,8 +19,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.812.8) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:CA539A4BDCC800BCCAD6BF0DAE7690A8FBA20FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Long Dark – это хардкорный симулятор выживан�
 ```bash
 magnet:?xt=urn:btih:82804797C32E0F91E6F23EB47B172BD4677B0DBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Phantom (2025) [En] (1.013) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6BC7D1B0423B43B01024EA9A48AE06039173C079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (build 17746622/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1D44C56A23042687B7F76AF912A7263743611A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dread Tomb - многопользовательская кооперативна
 ```bash
 magnet:?xt=urn:btih:EE00F204E56E9DA5D8E370ADE70B1BE3ADA783DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Avium (2023) [Ru/Multi] (build 17784960 Patch 29) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:826EACD73BF2C6117A0BA008A8E643A28DFA8901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cataclismo вводит игроков в роль лидера, ответст�
 ```bash
 magnet:?xt=urn:btih:CBA671FE753B5BCD7224C939CEDB8715242ED66F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Storykeepers: Hidden Mystery (2025) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:30BA93A92606549E1CE5935CBC7CCDD7997E2D29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Aquatic Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AD5A1D4632ACCD35A1F5405A3C76163A6EF58993
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

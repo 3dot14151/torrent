@@ -19,8 +19,7 @@ Strelok / Стрелок v5.0.0 Plus и v6.0.4 Pro [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E702CC513496A2130F25EA8F8E5B63F3D7C69C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

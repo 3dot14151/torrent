@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F6E578D7684D1353CA0C139CF079B065A58D3A3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 ```bash
 magnet:?xt=urn:btih:141378520F75BB3E46C284416AC333B32D906D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8911F1558DF1ECEBDE499340DA372EDDC8556E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ IQ - Resistance (Digipak) (2019) [FLAC|Lossless|image + .cue] <Neo-progressive R
 ```bash
 magnet:?xt=urn:btih:A3BA494A18638DCDE241DDB90A479FE35D8CADF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DC1727855654AD57CF3525D0EDB885B9EBC3B37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E6B8FFBB87943557DB428AD194667A6338C879C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Merge – это обязательная программа для разраб
 ```bash
 magnet:?xt=urn:btih:EBAA72DE13A449EDAD6E56A1E938F4E6F85EA23B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Robert Nickson - Tellurian (2019) [FLAC|Lossless|tracks + .cue] <Trance>
 ```bash
 magnet:?xt=urn:btih:3FD69412F59E94DFD24D732C5B6AF056F300CE98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Rick Astley - The Best Of Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:6F64F09C71529C8B5F14F6F8E8B6CE6085397F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Ocenaudio является простым в использовании, быс�
 ```bash
 magnet:?xt=urn:btih:A6586BEFC7AEBCDBB614A4F771F40BE05391B36B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Van Morrison - Three Chords And The Truth (2019) [MP3|320 Kbps] <Blues, Blues Ro
 ```bash
 magnet:?xt=urn:btih:EB2358949B3A4D7532D6F771B24B74C84A2860E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F54D1C12DBD0FAA282D56EC2628195234FD605D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACF09FDC32DE6F3ABB7B2456DA44F937B99C5030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ New London Chorale - Songs from the Heart (2008) [FLAC|Lossless|image + .cue] <C
 ```bash
 magnet:?xt=urn:btih:2BFFCBFD5AF5C590A6A84EA290842E2CA15EC97E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ ST - ПОЭТ ДУЭТ (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:702BAD3761D1E8252B6977203DC00436466085D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DCCDDA76F931970299E4463F251D84EE2C78B73F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +443,7 @@ New London Chorale - It's For You (1999) [FLAC|Lossless|image + .cue] <Сrossove
 ```bash
 magnet:?xt=urn:btih:AB1E1278C6CADE9545C56ADE21001FDC3E84A72C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BBB32C6B209717B595B32451A2690D833D57710
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C1D4AC1C6D4724AE4DEC6E05E5125B94326BA9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 ```bash
 magnet:?xt=urn:btih:B6C8EC7D9C140D4483C14E15E96B2695754CC690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-пау
 ```bash
 magnet:?xt=urn:btih:681BAF529FFA30F50068A78E5B21BCAF815CF482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ VA - Drizzly Music presents: Magic Island Of Lounge Series (Life Is A Journey) -
 ```bash
 magnet:?xt=urn:btih:AFE854AF911E88963F32138B4C9238C8D44A59C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ Frederator Studios | Артбук по мультсериалу Храбрейш
 ```bash
 magnet:?xt=urn:btih:655CCD8EE5999BA9FB73C4FF30F2D0B832D24EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +630,7 @@ Blank & Jones - The Singles (The Hitmix by Oliver Momm) (2019) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:5B256F50B974BDB422FE7059B11300C9255667BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8A1DB83D93466421A69472885720C0E5A089E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CCFED9C15583CF95AF3BF489800B33FC6575F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

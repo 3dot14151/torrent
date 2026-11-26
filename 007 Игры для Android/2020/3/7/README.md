@@ -19,8 +19,7 @@ SEN: Seven Eight Nine -  интересная многоуровневая иг�
 ```bash
 magnet:?xt=urn:btih:B8C8BB11EEB6803F287D40D553D89BED450BE689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

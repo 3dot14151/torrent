@@ -19,8 +19,7 @@ PARANOIA PLACE — это совместная онлайн-игра (с оди�
 ```bash
 magnet:?xt=urn:btih:8E8C74777224EA3617A370CF1F14EF5C0D4FB114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

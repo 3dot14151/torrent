@@ -28,8 +28,7 @@ Paul McCartney - The Gold Collection [3CD] (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:49CC70376C4A8AF449E534984E58ABE7C2ECD527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Supertramp - 10 Albums (1970-1987) SHM-CD / 2008, A&M, Universal / Universal [FL
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Kreator - Phantom Antichrist (2012) [FLAC|Lossless]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Vanessa Peters & Ice Cream On Mondays - 3 альбома [FLAC|Lossless]<Rock, F
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Foreigner - Alive & Rockin (2012) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:F3F9516CB3FD8D5248EF4DEFD29D1F0D616CB92C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Pat Travers - Blues Magnet (1994) [FLAC|Lossless]<Blues Rock, Hard Rock, Heavy M
 ```bash
 http://www.allmusic.com/album/blues-magnet-mw0000666609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ The Morningside - 3 albums (2007-2011) [FLAC|Lossless] <Atmospheric Doom / Death
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Officium Triste - 6 albums (1997-2009) [FLAC|Lossless] <Doom / Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +286,7 @@ The Fall Of Every Season - From Below (2007) [FLAC|Lossless] <Death Metal, Doom 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +318,7 @@ Forest Stream - 2 albums (2003-2009) [APE/FLAC|Lossless] <Death / Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Another War / Другая Война (2002) [Ru] (2.48) Unofficial
 ```bash
 magnet:?xt=urn:btih:04F53B11F743DB7BA191FAF093662C8D89CA9110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

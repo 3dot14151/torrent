@@ -19,8 +19,7 @@ Kelly Green: Garden Queen / Королева фермы (P) [Ru] 2009
 ```bash
 magnet:?xt=urn:btih:05E3EA5D724379D3EF79C8F6F37DDF58FED4C4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Broken Sword 2: The Smoking Mirror Remastered / Broken Sword 2: Дымящеес
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Broken Sword Remastered Edition / Broken Sword Расширенное издан
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Cars 2: The Video Game / Тачки 2 [Ru] (Lossless RePack) 2011 | HitRepack.Ne
 ```bash
 magnet:?xt=urn:btih:8DBD3D75F2C63EA9EE478B78AE455B017715EF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

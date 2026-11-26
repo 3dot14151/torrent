@@ -19,8 +19,7 @@ Gas Guzzlers Extreme – это динамичный, яростный, агре
 ```bash
 magnet:?xt=urn:btih:EBBBC8C4F4B9EBE9C67B5B1B71834956899190B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fragmented - это спин-офф The Repopulation, онлайн-шутер с
 ```bash
 magnet:?xt=urn:btih:667EDD24657DBF90BABC43DD76EBF8643A5CC6CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Share (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:25E79835488127F11998F8C90808F57B6B288D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Cheat Engine – это довольно простая программа, ко
 ```bash
 magnet:?xt=urn:btih:D643CFDC4263C81B8BE27078705B9F693080D22A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

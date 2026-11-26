@@ -20,8 +20,7 @@ NIUBI Partition Editor 7.4.1 Technician Edition программа для про
 ```bash
 magnet:?xt=urn:btih:F6AC1BA26F093498D92C7769BA71A2B7110B6111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

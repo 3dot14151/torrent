@@ -20,8 +20,7 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:364445E3B4012B47C31DD69E974C57076F7A83BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SoftMaker Office Professional 2024 Rev. S1230.1206 Portable (х64) by 7997 [Mult
 ```bash
 magnet:?xt=urn:btih:A077A134AE61E46944EBCB45016B68EB687846A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Flip PDF Plus Corporate - профессиональная версия наше
 ```bash
 magnet:?xt=urn:btih:944762F4988A5E62D844818E218270D5307BC54B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:01A1203A8CED547EC02F15B5CA7E8818DDC291A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ RegCool 3.0.0.3 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:74B534FF7280371905F7A577E30332E67FC8F262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

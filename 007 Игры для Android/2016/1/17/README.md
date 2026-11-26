@@ -20,8 +20,7 @@ The Room Three 1.0.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:877EEBD1009EABE5AF65955653C66293FA65FB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Clock Plus 2.0 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4E65635EE3DC06AF4532B9CFF633DED45CB96E5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ The Temperance Movement - британская(вернее Шотланская
 ```bash
 magnet:?xt=urn:btih:10AE784B2D53FFFC7ED7007477AF38DA7137C8B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:748046B6AE13FE007660F4CCEE1605CAD3D62E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3D24BC0648AA2A95317B28EAF6B39B88C4AB886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Steamhammer / Armageddon - Discography: 5 albums, 7 CD (1969-2010) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:2DD2DBA673963A181D9417B839F10B9CE07DE909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hunted Within: The Metro (2026) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:062975ABE004A2B0D4C2A9A29A60998B750AB8A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Road to Vostok - хардкорный реалистичный шутер с э�
 ```bash
 magnet:?xt=urn:btih:8B6181D904B21FD1C49ACA9738144E141004E75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Heroes of Science and Fiction (ранее известная как Silence of t
 ```bash
 magnet:?xt=urn:btih:569DB1E07CB06AD9A575F124D8903DEF9D8ECC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Look Outside - это ролевая игра в жанре Survival Horror, д�
 ```bash
 magnet:?xt=urn:btih:EA1A2EAF97045DE77E795B32F88F8510A9F009E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Men of War: Condemned Heroes / Штрафбат (2012) [Ru/Multi] (1.0) License 
 ```bash
 magnet:?xt=urn:btih:5F281816C712616F6A7E4610FB25D7EBFEEC68A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ CAPTURED 2 (2026) [Ru/Multi] (2.1.0.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:640998E830E8AE073463203891B1C4CAC84B700D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sudden Strike 5 - это тактическая игра в реальном в�
 ```bash
 magnet:?xt=urn:btih:1FE69FC34F3C27F266E3928DD241963B01924ED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Causal Loop - нарративная головоломка с научно-фа
 ```bash
 magnet:?xt=urn:btih:D6E50F299910DECAB77AAEB72B1DC55C95CC1DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Kristala (2024) [Multi] (1.0.3/dlc) Repack Let'sРlay [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:DF2811ACBACF5524C08E5FE05741F3C4840E44F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

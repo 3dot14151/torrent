@@ -19,8 +19,7 @@ Soldier of Fortune: Payback - пришло время снова вспомни�
 ```bash
 magnet:?xt=urn:btih:FE52BD2E14981474C908BF037A3B32DCD8C655EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

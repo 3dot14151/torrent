@@ -28,8 +28,7 @@ Neev - Those Things We Tomorrowed (2014) [MP3|320 кб/с]<Screamo>
 ```bash
 magnet:?xt=urn:btih:4C5A46C492DA69AC65E53AB3A845D72FD8D43545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Frumpy - Frumpy 2 (1993) [MP3|320 кб/с]<Progressive Rock, Classic Rock>
 ```bash
 magnet:?xt=urn:btih:A9850E54C5F008DC491B91C839810A5100F617C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Switchtense - Confrontation Of Souls (2009) [FLAC|Lossless]<Thrash/Groove Metal>
 ```bash
 magnet:?xt=urn:btih:EC5FA3558C744148533E69E5DFBC12CDAC65EED5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Spartan Warrior - Spartan Warrior (1984) [FLAC|Lossless]<NWOBHM>
 ```bash
 magnet:?xt=urn:btih:EE16E661748137F1CB72B8BA097AB526096E9123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Souldrainer - Architect (2014) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:B4E5A2199F4CF36FAFE40746861A342E150170D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ VA - Pure... hard rock (2011) Box Set, 4 CD [FLAC|Lossless]<Hard Rock, Heavy Met
 ```bash
 magnet:?xt=urn:btih:52F8D4EDE8E99D81AC71F0C12202CA31A3142756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ The Beatles - With The Beatles (Limited Collector's Edition) (1963) Unofficial R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ The Killers - Day & Age (2008) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ The Beatles - Beatles For Sale (Limited Collector's Edition) (1964) Unofficial R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ Disc 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +356,7 @@ Bruce Springsteen - Working On A Dream (2009) [FLAC|lossless]<Singer/Songwriter>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ Elton John - Goodbye Yellow Brick Road (1973) /MFSL/ [FLAC|Lossless]<Pop Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ Disc 3 - Limited Bonus DiscЖанр: Psychedelic rockПродолжительн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

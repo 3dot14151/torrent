@@ -19,8 +19,7 @@ FontMassive – бесплатный, функциональный менедж�
 ```bash
 magnet:?xt=urn:btih:672C357E82EADED6601EAD549743E895C1B785A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

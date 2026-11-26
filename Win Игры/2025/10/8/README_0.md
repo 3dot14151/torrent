@@ -19,8 +19,7 @@ Don't Starve Together - это кооперативная игра на выжи
 ```bash
 magnet:?xt=urn:btih:653B47F21122B2FB4F44E509B281242E9A579258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EBB165BD1F909F91D966EF245BB26E87CE014BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Metel - Horror Escape (2020) [Ru/En] (1.01) Repack Necros [Early Access]
 ```bash
 magnet:?xt=urn:btih:C00CF5E879BAC5C4E066CAD2F98BC2DB4BF306E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Your Uninstaller обеспечивает решение задач по деи�
 ```bash
 magnet:?xt=urn:btih:502D545F2A48BB1CAFFE88FE1AF446413C1BC884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

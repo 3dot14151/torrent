@@ -19,8 +19,7 @@ Gold Rush: The Game – это симулятор золотодобытчика
 ```bash
 magnet:?xt=urn:btih:B1EC7E6BDE3C347702D7CD5BC84A626BDBF94F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Garfield, знаменитый кот-любитель лазаньи, верн�
 ```bash
 magnet:?xt=urn:btih:89CF799F4C1B22545668A9CF745ABAA110F1EF8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 ```bash
 magnet:?xt=urn:btih:20C27E485CF8110B8B57E71BC8B7B2FBEA1845BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

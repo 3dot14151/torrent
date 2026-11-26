@@ -19,8 +19,7 @@ Obscure [Ru] (RePack) 2005 | MOP030B
 ```bash
 magnet:?xt=urn:btih:AA1BF356EE5F1615764F081C8B48E050EAB4AB58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

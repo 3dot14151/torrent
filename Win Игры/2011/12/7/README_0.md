@@ -19,8 +19,7 @@ Brick Journey (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:653CCCD1672950E03CDB68BF13F283F401E5A3E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Be a King: Golden Empire - фэнтезийный симулятор от сту
 ```bash
 magnet:?xt=urn:btih:303C9835AAB4999467940E8AE6442E00736895DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tearstone / Камень слез (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:6DF3717555292642CE2DAFEB38B5608AEC08A49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ House of 1000 Doors: Family Secrets Collectors Edition / Дом 1000 двере�
 ```bash
 magnet:?xt=urn:btih:339D51DA92AA70F8D1103838D0653E457D209DCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Frachtschiff Simulator (L) [Ge] 2011
 ```bash
 magnet:?xt=urn:btih:58185C33B01DE0626C1F8736E90EA053C28A38DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Winter Sports 2012: Feel The Spirit (L) [En] 2011 | FAIRLIGHT
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

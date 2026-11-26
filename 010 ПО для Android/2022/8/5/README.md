@@ -19,8 +19,7 @@ Omnia Music Player / Музыкальный плеер Omnia 1.5.0 Mod by Balata
 ```bash
 magnet:?xt=urn:btih:8FA4321194E14E9F112A2036A3261536B97495E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

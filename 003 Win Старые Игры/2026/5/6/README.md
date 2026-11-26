@@ -19,8 +19,7 @@ Desperados 2: Cooper's Revenge (2006) [En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:B1B4E9267B9A4FE6ECBDDC0F37F5AB21E42432F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Desperados 2: Cooper's Revenge (2006) [Ru] (1.1) License
 ```bash
 magnet:?xt=urn:btih:6E73EB41B1C51EE25A63C3112B17C225513C7C83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mob Enforcer - это шутер от первого лица (FPS), разра�
 ```bash
 magnet:?xt=urn:btih:D7306119DDDB22BAA6F61D79CD6884CA6E337E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 ```bash
 magnet:?xt=urn:btih:3BF1BB4C668E20DEAF75FEE81E4C7DBBDFE5DD5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 ```bash
 magnet:?xt=urn:btih:BA9249DEDD15ACC7F38AAF539CA3FFC25694D3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Vanexa - The Last In Black (2021) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:46F3C2DD3BE1BC1B8822CC0AEB3805C2309A12BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Orbital Soul System - Eternal Voyage (2021) [MP3|320 Kbps] <Progressive, Gothic,
 ```bash
 magnet:?xt=urn:btih:3D5BFE288DF453FD05C4B1DEDFB12216D9FABBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Vanilla Fudge - 16 Albums, 1 Box-set, 26CD (1967-2020) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:547913FED815FC676582FC5D32B9E16ABC42B228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Hawksley Workman - сценический псевдоним Райана Кор
 ```bash
 magnet:?xt=urn:btih:8319158B5AAEBB36E0AEFAF7BD9A33D35650E00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Night Ranger - ATBPO (And The Band Played On) (2021) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:B3CF678D59967B42A8A8ECE5787E3EEBA70709A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Scorpions - Best Of Scorpions (1984) [FLAC|Lossless] <Hard-Rock>
 ```bash
 magnet:?xt=urn:btih:BBE5FB5B433AE4FD3D10FADA4B8541DD80A2B810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

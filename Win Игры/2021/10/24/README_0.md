@@ -19,8 +19,7 @@ Ultimate General: Gettysburg – это тактический симулято�
 ```bash
 magnet:?xt=urn:btih:1D862320BBEF3A99135390EC54B011811745BB6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Little Golf Journey - спокойное приключение для люб�
 ```bash
 magnet:?xt=urn:btih:3E68CB7A0AE2FC307E3085CB5D1AE27215601D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sphere это научно-фантастическая игра со строи
 ```bash
 magnet:?xt=urn:btih:541636B550B436F8FE1C142D336C7F82200917EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2509) License GOG
 ```bash
 magnet:?xt=urn:btih:7D25513E1326B75E3B265BCACE74D53500BFEAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Starmancer (2021) [En] (0.1.49) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:8D137728A37624CE9B133680951ACCC88BA2ABBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7 (A)) License GOG [Deluxe]
 ```bash
 magnet:?xt=urn:btih:A5AF6BD4BDB9E5EB7C312ED2D0A4DF92F09E5304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

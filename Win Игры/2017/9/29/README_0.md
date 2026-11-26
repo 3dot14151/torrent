@@ -19,8 +19,7 @@ Alicia Quatermain: Secret of the Lost Treasures / Алисия Квотерме�
 ```bash
 magnet:?xt=urn:btih:42268880762C49EA6CAB839CF377414AA01FCDD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

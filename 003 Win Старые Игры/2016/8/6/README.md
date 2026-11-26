@@ -19,8 +19,7 @@ The Lion King, красочный платформер, посвященный �
 ```bash
 magnet:?xt=urn:btih:9E1FD9851F7225AE1C0A98DD8E4128A09F52C84A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

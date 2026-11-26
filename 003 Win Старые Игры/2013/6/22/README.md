@@ -20,8 +20,7 @@ The Cassandra Galleries (1997) [Ru] Repack Kirill Games
 ```bash
 magnet:?xt=urn:btih:CF90CD69D253FBC5E0736C7EF3B335E56092F9E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Atria II The Resurrestion (2001) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:3100080E22BDF7754E6784CA0B19784CD33CF661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

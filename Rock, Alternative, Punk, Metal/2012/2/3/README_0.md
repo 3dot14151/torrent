@@ -23,8 +23,7 @@ Caliban - 10 Albums (1999 - 2012) [MP3|256 - 320 kbps]<MetalCore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ The Fray - Scars Stories (2012) [MP3|320 kbps]<Alt Rock> Сделай свой �
 ```bash
 magnet:?xt=urn:btih:B1CBB7A1D494D52002FA4A29DEA30D0A500AB7A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Deep Purple - Purpendicular (1996)/2006/ [WavPack|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Richie Kotzen - 24 Hours (2011) [FLAC|Lossless]<Hard Rock / Blues Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Flying Colors - Flying Colors (2012) [MP3|320 kbps]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:DFDE8DC543F552A4A36B3E2C52DD95CBF816E1FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

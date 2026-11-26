@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Adobe Photoshop — лучшее в мире ПО для графическог�
 ```bash
 magnet:?xt=urn:btih:AD40E04CE786F7582439897A9E6EF7FE9B2766B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9EDA3C999F6AA91F73B3BBCF758EE822B9DBF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Microsoft запретила использовать локальную уче�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ MAGIX Vegas Pro - профессиональная программа для м�
 ```bash
 magnet:?xt=urn:btih:8965730D9B32B7E200D0BF8DAE392BDAD3FC7966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ OVA, сюжет которой рассказывает о битве проти
 ```bash
 magnet:?xt=urn:btih:03A76FAC130106A9DDAE8FA408DF5957CF36A920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и Та
 ```bash
 magnet:?xt=urn:btih:EA2258998D7AE0F28B5436A4EB01E923E1EA3346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Stranger Mukoh Hadan | Sword of the Stranger | Меч чужака [2007, Movie]
 ```bash
 magnet:?xt=urn:btih:65C89B600EEB89D494E421601FC709B49A96F61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ Girls und Panzer | Girls & Panzer | Девушки и Танки [2012, TV, 12 e
 ```bash
 magnet:?xt=urn:btih:0FECE42911A6BF2CDF02C898A0E0B08314ABED1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ ELDERBORN – это фантазийный слэшер от первого л�
 ```bash
 magnet:?xt=urn:btih:3B53862C5195845BA259359677950C718758E824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

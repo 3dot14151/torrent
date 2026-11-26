@@ -19,8 +19,7 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 ```bash
 magnet:?xt=urn:btih:8729F48EBC860C4EE20554ADD5EDB9FED43E215F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Prey (2017) [Ru/Multi] (12742273/dlc) License GOG [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:5CA1BDDAE99ABE5F12B5A3B0E72247C21F65AD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Abnormal1999:Sector 49 / Аномалия1999:Зона 49 (2024) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:24B7E748286221F8D40627EE4D60FECC0C8ED505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Secrets of Magonia (2024) [En] (1.03) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4940F5DE812686D74C353C2CF9876496B8D0F93A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Barrhell – в этой быстроразвивающейся и сложно�
 ```bash
 magnet:?xt=urn:btih:CA5FF466146299FA5991A77CAED58515A669D1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hannah’s Day (2024) [Ru/En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4DACD34E1FE9C20895017B62CB5FCE3AB42314BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ogu and the Secret Forest - это двухмерная приключенчес
 ```bash
 magnet:?xt=urn:btih:E3E92E7B60B33B8350004B69653DF109176CA20E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Space Prison бросает вас в холодную реальность га
 ```bash
 magnet:?xt=urn:btih:9BFFD9FBE2FB8DEFBF4971D5A0354D2DE60B5607
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tales from the Borderlands (2014) [Ru/En] (1.0.1) Repack FitGirl [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:5AEC15AC2057B8118B5A3E588CB76374F09F6277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Spirit Island - стратегия, выполненная в стиле нас�
 ```bash
 magnet:?xt=urn:btih:0319D2D4AF27F08696939E3B8F6BA94F1CD3F554
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Cursed Fables 5: A Gilded Rose (2024) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:1ADA5DA3002552594B28F1F8AE435742F6A14EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

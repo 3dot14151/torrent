@@ -19,8 +19,7 @@ Breath of Fire IV (4) (2003) [En] (1.0) License DEViANCE
 ```bash
 magnet:?xt=urn:btih:01F1FE16B33C50328255E457F3306CCABB3118A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:0F0016A517C648A40AB7D25EFD61CBCB90307A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Hyubris - два альбома (2005 - 2009) [FLAC|Lossless]<Folk metal, Gothic
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Riot - Immortal Soul (2011) [MP3|320 kbps]<Heavy Metal/Power Metal>
 ```bash
 magnet:?xt=urn:btih:FD1689CAC212E434794178BA0219156985D89C3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Astral Doors - Jerusalem (2011) [MP3|320 kbps]<Heavy Metal/Power Metal>
 ```bash
 magnet:?xt=urn:btih:770CA49FC72AF34E4C98BE94E235A86AE6AE26C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Leningrad Cowboys - Buena Vodka Social Club (2011) Limited Edition [FLAC|Lossles
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ CD1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

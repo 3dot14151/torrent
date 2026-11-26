@@ -18,8 +18,7 @@ Wise Disk Cleaner 11.2.6.846 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C9147EDE9002CAE9CE4EE0DAD1B5374E7770E76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Extreme Picture Finder - средство для автоматического 
 ```bash
 magnet:?xt=urn:btih:E8BE0F1D6705E169BE255EE029BE0AD9C73776A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:55569C30298B1A56F3821AB99FF53329D328D847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65943600F463D361D132F31AA627D7BF351B6CF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7361E1A6B3F8068A6D729760FE240FD345AF08C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE6F00D0BA244ABA2F70A169A436A34B737F086C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ O&O SafeErase - полностью исключает возможность в�
 ```bash
 magnet:?xt=urn:btih:6DC594F7BC6DD5B140EE1FA2E6BFCD237AE36870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CBEF7180AC9DB2A288F4EB3B6C870EC780D36E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Device Info — простое, но мощное приложение для An
 ```bash
 magnet:?xt=urn:btih:5EED5CC41CDD170D49EE51A13B652269A59CA155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:6FB7ECA433E29E23368186D369F727CAB99FD02D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:A8168BAA6A559BCF53D1DF897F12EBDEA63106CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:CE25F6ACADEAAA4C8D48622E7A5BCD9D30D5DAC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Purvpn 9.3 [En/Farsi]
 ```bash
 magnet:?xt=urn:btih:BB3CBBF94887066434BB09406F4B13A27693427E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37E4099D01C23AA0F98F8F27D8AAC7C3CC41340C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1ADF0126DFF603EF35D7B48AB27EC3AB2BDFD579
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ Bad Cheese - это психологический хоррор, вдохнов�
 ```bash
 magnet:?xt=urn:btih:4492B15645556DE7E019380BB8045A1BFE87F761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EC9A310BDA30ECA3ECB16AA53455B2914615E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a003] (2012-2025) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:9CE523942A6A0BD56852F257D6CE5441AA5AED08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E5F039CD2623CDE1C3340F324ADCA12E2F6ABCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ Yoshimitsu (Tekken 8)Формат: STL
 ```bash
 magnet:?xt=urn:btih:A59113DE3378280E4017B4FFA16246688145F144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC9FBEE56A171B2115C5FBBDBC73C3700DB34050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ Affinity Publisher - программное обеспечение нового 
 ```bash
 magnet:?xt=urn:btih:F5726C7181343E105FE00374F6560F1E684204F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BF9092E8C3D8A720A4823DB53E240E04B96E711
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:A6DA05E142B9BF445A62D144DC57738A195C1EF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ Jigsawscapes® - Пазлы v4.2.1 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F1C0C0E21434536F83BC325CDC50C8B42558AE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +657,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [#] (2012-2025) [MP3|320 Kbps] <Da
 ```bash
 magnet:?xt=urn:btih:366974941C536BAC86C733A7AB855C1AC39D8968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

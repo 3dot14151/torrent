@@ -21,8 +21,7 @@ Mechina - Andromeda (2016) Single [FLAC|tracks|WEB-DL]<Industrial, Symphonic Dea
 ```bash
 magnet:?xt=urn:btih:3244731935D1D1E96985C4EBA402B6B0129F848B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Lords Of Black - II (2016) Japanese Edition [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:A3467336BF709E99934846B2D9555EBEE91EB723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35A34395399E74166B75DFCC4A818736E03E67D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

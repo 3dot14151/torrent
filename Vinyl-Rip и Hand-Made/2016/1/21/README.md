@@ -22,8 +22,7 @@ A4. I Don't Wanna Go Home (4:51)(   Читать дальше...   )Произв
 ```bash
 magnet:?xt=urn:btih:1883993E489AEE3F250B83A177995D57B6A4DB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

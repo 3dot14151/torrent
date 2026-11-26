@@ -28,8 +28,7 @@ Tierra Santa - Mi Nombre Sera Leyenda (2013) [MP3|320 кб/с]<Heavy Metal, Powe
 ```bash
 magnet:?xt=urn:btih:48EC8537808FA374D9638D71B082852A133DCDDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ BAdbAN - 700 BEERS (EP) (2013) [MP3|320 кб/с]<punk-hardcore>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Ammen - Que asi sea (2011) [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:EE721C47B5F512277F75D53635BEEB31826C1788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Saxon - Sacrifice (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3620DFD294A4A7EC4AC162317CB4B3EF3BAD7578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ Eels - Wonderful, Glorious (2013) Deluxe Edition [MP3|320 кб/с]<Alternative R
 ```bash
 magnet:?xt=urn:btih:0FD298FA18761A372559D7AC39CD68FDF6ABCCC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +217,7 @@ Stratovarius - Unbreakable (2013) EP [FLAC|Lossless]<Melodic Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Tanzwut - 6 albums + 1 live (1999 - 2011) [MP3|256-320 кб/с]<Folk/Industrial 
 ```bash
 magnet:?xt=urn:btih:FEB613C2F072ECC592F61525CF91CD685B6E87EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2385E679D68DD80D46583A19FA6A007CC2EA014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Turok / Турок (2008) [Ru] (1.0) Rip xatab
 ```bash
 magnet:?xt=urn:btih:22AB8DE224FD63BD944639BAA4E3F9B0DF8F6CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

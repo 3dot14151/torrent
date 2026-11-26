@@ -19,8 +19,7 @@ This book emphasizes the key phonics skills that children need to know as they l
 ```bash
 magnet:?xt=urn:btih:D15EE039AA6C17168F40B07EC9AF91024401233D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Games for Grammar Practice - это учебник для учителей, со
 ```bash
 magnet:?xt=urn:btih:EDC615F78CD796D6AB537A5D14D2212D4AAA2F83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Regine Boutegege «La griffe» («Торговая марка дома Дело�
 ```bash
 magnet:?xt=urn:btih:C5367CA61ED3C82A68EB210DAC47D96B8BB64F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Derek Strange | Start Reading [6 книг] (1988) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:9FFBEF051B370435CC51815D45F3ECDCB72BA790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Do you want to improve your English grammar? This book guides you to the most im
 ```bash
 magnet:?xt=urn:btih:060548A8280E7FBF9FB92088A074E5FA5F0FF81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AE6E4C286E14E12D759E7FE3D89A8890D313C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:218829DA1B87BD99401A80C995BD00C80B611BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:099582BA2BCF48528B9ED02B8F5AC599DAB6B8CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D70DFFCBEED38C6AA13CF87CC95468A157FFF126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

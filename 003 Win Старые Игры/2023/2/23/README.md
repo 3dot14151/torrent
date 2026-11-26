@@ -19,8 +19,7 @@ Victoria 2 – масштабная компьютерная игра в жан�
 ```bash
 magnet:?xt=urn:btih:9DD4390CABAFF1E25727B824F3BED26D4369C0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

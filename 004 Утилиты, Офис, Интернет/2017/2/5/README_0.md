@@ -19,8 +19,7 @@ Disk Pulse Ultimate - это программа для наблюдением з
 ```bash
 magnet:?xt=urn:btih:236409787F12954F101AB0C0DB6BF36EA7E1EC9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

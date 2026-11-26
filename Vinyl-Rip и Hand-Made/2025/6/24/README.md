@@ -22,8 +22,7 @@ B1 Ayatollah Of Rock ‘N’ Rolla(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:9B089E19E407AC3C4D84B16E0B1D285AAEFE379D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Veil Of Conspiracy - итальянская метал-группа из Рим�
 ```bash
 magnet:?xt=urn:btih:62B1D04C4450CF5E167EDCF642FEFDF4D38795B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EF88EF00B39667AE01FD73368402D1B3FAA0154
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

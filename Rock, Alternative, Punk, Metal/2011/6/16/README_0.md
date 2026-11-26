@@ -28,8 +28,7 @@ Rhapsody Of Fire - From Chaos To Eternity (2011) [MP3|320 kbps]<Symphonic Power 
 ```bash
 magnet:?xt=urn:btih:0C5F95059A3169FE32A580777DA419340AA29923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

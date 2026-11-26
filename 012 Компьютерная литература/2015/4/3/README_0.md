@@ -19,8 +19,7 @@ Seo-Study | Базовый курс поисковой оптимизации (2
 ```bash
 magnet:?xt=urn:btih:396C9ABB6CE2832B36146EC5A2410B9AB6A8A824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

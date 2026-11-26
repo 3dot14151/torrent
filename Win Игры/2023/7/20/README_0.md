@@ -19,8 +19,7 @@ The Rule of Land: Pioneers - двухмерный выживастик, в ко�
 ```bash
 magnet:?xt=urn:btih:DA9FA5194C6FCDFBD6A191FF2EAAC1ADF52B23AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9146B71F351638037961119F75B8605C311A4536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

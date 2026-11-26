@@ -22,8 +22,7 @@ Uldis Zarins | Книги по анатомии лица и головы для 
 ```bash
 magnet:?xt=urn:btih:1DE8166F56E4A91743CC6FFCF7B7A85ED72152C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

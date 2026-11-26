@@ -19,8 +19,7 @@ Prison Architect - симулятор тюремного магната, с по
 ```bash
 magnet:?xt=urn:btih:A4115553AE05FFD2C4D6E0D4AC348F6F545756EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

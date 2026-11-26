@@ -19,8 +19,7 @@ Beyond: Light Advent (2015) [En] Unofficial [Collector's Edition / Коллек�
 ```bash
 magnet:?xt=urn:btih:1F05696E6F1FD11DA88B65C6E84A9EA94D8319A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Subliminal Realms: The Masterpiece / Подсознательные миры: Ш
 ```bash
 magnet:?xt=urn:btih:85194517D6C83CB3027E66377789309995E86943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

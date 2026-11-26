@@ -19,8 +19,7 @@ Jean-Louis FANCHON | Guide des SCIENCES ET TECHNOLOGIES INDUSTRIELLES (2026) [PD
 ```bash
 magnet:?xt=urn:btih:DD3EF07073E9F3DF7C443EA1CA17D28E3FEEBA76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Barnyard / Рога и копыта (2006) [Ru] (1.1) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:E80885317CE9C093893EE7B139CD842B9174BB4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

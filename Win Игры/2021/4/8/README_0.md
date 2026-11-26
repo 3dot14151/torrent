@@ -19,8 +19,7 @@ Loop Hero (2021) [Ru/Multi] (1.0.12) Repack Other s
 ```bash
 magnet:?xt=urn:btih:69E6B0F9C7FA5F5F7F95CAFD10A4EE725CC092CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (2.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D0DEEF50B67FB3F52A22C993B353EC1F89208F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

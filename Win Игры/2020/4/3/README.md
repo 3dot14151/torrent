@@ -19,8 +19,7 @@ Reflections of Life 9: Utopia (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:B03701E758D9541B3B4DC1753AA3A67872222503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dwarrows (2020) [En] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:D5B44A5ECC04BC53220E78FB4D6F7B5CBDE62C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ King of Fighters XIV - новая игра в знаменитой серии ф
 ```bash
 magnet:?xt=urn:btih:997BB0D7C897718BE2D0F4EAEEF43377638ECF12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ X4: Foundations - это космический симулятор, продол
 ```bash
 magnet:?xt=urn:btih:85C861FDC47A20144D768FC07345F07F3C96D5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Tales of Berseria (2017) [Ru/Multi] (1.48.00#193/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:4B8D84A81B852AFF43537CC0E168FE05E2C6465A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Operencia: The Stolen Sun включает в себя всё то, что вы 
 ```bash
 magnet:?xt=urn:btih:3B34985D4E9562357E228E495D37EC3671039765
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Coma 2: Vicious Sisters — атмосферная сюжетная игра
 ```bash
 magnet:?xt=urn:btih:C5DEA30323241CF9391337A72B357BF969044500
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

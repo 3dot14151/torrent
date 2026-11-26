@@ -19,8 +19,7 @@ Below the Stone - это захватывающая инди-игра, кото�
 ```bash
 magnet:?xt=urn:btih:293CDB18102C24B8B9D946671EE2A285A02BEBE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shadow of the Night (2023) [En] (2.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:488BCA6BD1424D30AEDAE7A5BF8F91DF1014F335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

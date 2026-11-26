@@ -19,8 +19,7 @@ Puzzle Agent (2010) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:FDF935197F5EE9857902B655CB089E13126AE2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 ```bash
 magnet:?xt=urn:btih:7B0BC01B0A546B7B75D2DB4813B676177F7D3B1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

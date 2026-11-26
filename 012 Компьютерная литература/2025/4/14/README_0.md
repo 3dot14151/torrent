@@ -19,8 +19,7 @@ Cuantum Technologies | Алгоритмы и структуры данных н�
 ```bash
 magnet:?xt=urn:btih:3B1D9175DF48FFD4064813A5B59B631B4D34B880
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

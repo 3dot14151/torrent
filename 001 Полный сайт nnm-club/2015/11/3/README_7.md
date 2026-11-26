@@ -22,8 +22,7 @@ Andrew Hill - Compulsion (1965) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde 
 ```bash
 magnet:?xt=urn:btih:B64780D1E07F3310320851F17664C808132EA29C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D4BE3C92A30C9AC7D663711F34120E9755866FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Erroll Garner - Long Ago And Far Away (1950-1951) /1987, Columbia/[FLAC|tracks+.
 ```bash
 magnet:?xt=urn:btih:F36C35DD2FD6495EAA6CF5D0747A31DD9A563020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ VA - Spaceman's Paradise (1996) [MP3|160 кб/с]<Electronic, Hard Trance, Euro 
 ```bash
 magnet:?xt=urn:btih:6C1C5EE523DD0665262B138429A3DEFFB60AB38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Green Sky Reflection (2015) [MP3|320 кб/с]<Minimal House, Techno House>
 ```bash
 magnet:?xt=urn:btih:B2C06EEB78F860CCEF49E48A0C007622C5A8BE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ VA - Lazy Sundays (2015) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:9BAC5887D13A79F02185037E85C17CD66C13429F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Shadow Of Sadness - SOS (2015) [MP3|320 кб/с]<MDM>
 ```bash
 magnet:?xt=urn:btih:9F754F33A7E2E6F4512F718595C61EBBBDADBBAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Icecream Image Resizer 1.30 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6C60D36B4F8985DEACFFF36A1816340B95830879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Trudy Lynn - Everything Comes With A Price (2015) [MP3|320 кб/с]<Texas Blues>
 ```bash
 magnet:?xt=urn:btih:A3D878677007DEED412A79F5952E97AAA0DFBFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Fear Itself - Fear Itself (1968) / 2006, World In Sound / [MP3|320 кб/с]<Psyc
 ```bash
 magnet:?xt=urn:btih:F34AEC2EC9F3D05B63DA7ABF846730F474091322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6ADA8814E8CCD93CE4B77A3C0E0864FB54146CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Stoneface & Terminal - 10 Years (2015) [MP3|320 кб/с]<Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:DA891C33385AE70F77DC745D4B1612CD46A068CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB03D21780BB682DF9AC2242342BF37A395439ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +378,7 @@ Sniff 'n' The Tears - No Damage Done (1992) [FLAC|image+.cue]<Pop Rock & Soft Ro
 ```bash
 magnet:?xt=urn:btih:4B665A28B91D5C41A7541B5D43003CB030E774F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +406,7 @@ The Warren Vache Quintet - remembers Benny Carter (2015) /Arbors Records/[FLAC|t
 ```bash
 magnet:?xt=urn:btih:95E5E659A97483A8594AD9EC83FB9DEA385C32F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ Marc Lavoine - L Heure d ete (2005) [FLAC|image+.cue]<Pop,Chanson>
 ```bash
 magnet:?xt=urn:btih:265045FAD3ACDFD46DA7A102AD7AB6A7ECA80A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Josh Ward - Holding Me Together (2015) [MP3|320 кб/с]<Country, Country Rock>
 ```bash
 magnet:?xt=urn:btih:B48B607138F171B7D011F479FF5A2E64EDB60CCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ VA - Lazy Sundays Vol. 2 (2015) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:A030E4D0394A2DA5730226A7500F09E5FDAA0B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DC26E2DD9B712356F9D9BE6580492F56D904F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ Icecream Slideshow Maker 1.36 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5FEC251A345E200027FD213E1CF22C98B94F9C48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ Dubtrak - Be In The Flow (2015) [OGG| 444-531 кб/с]<Electronic, Ambient, Down
 ```bash
 magnet:?xt=urn:btih:890A2B9026B05ED1605DCADA33F6659444688F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +596,7 @@ Chie Ayado - Best (2006) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:6D048DCA7EDA4B161D8370C26ACFA2159AE5232B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ VA - Neuroporn (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B3E70B07C672135ABFA2171E1C65C8D4C0E812E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:914FDBFA1581B57CE8EDD332DADF58DA4D95F717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ VA - Driving Hits - Autumn Edition (2015) [MP3|320 кб/с]<Deep House, House, P
 ```bash
 magnet:?xt=urn:btih:1EA8400488F8AF16A4DC9418DA7927C7A291C5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:84179B080730F849B462492227BBAA375F93E6CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

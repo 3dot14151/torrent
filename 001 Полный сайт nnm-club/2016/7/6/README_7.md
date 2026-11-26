@@ -22,8 +22,7 @@ Twilight - The Edge (1992) Reissue, 1999 [FLAC|Lossless|tracks] <Heavy Metal, Po
 ```bash
 magnet:?xt=urn:btih:C44CB7E57CA8AB52FBDE7A3FF70CE1E72ADD0D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Denner - Shermann - Masters Of Evil (2016) [FLAC|Lossless|image + .cue] <Heavy M
 ```bash
 magnet:?xt=urn:btih:0E3DE48356E41F2263B4CA56091D91C8EB1C7CEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Brother Jack McDuff - Live! (1963) 1994, Prestige [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:A2F422B46D53360C17D639675E82EBF628A40767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FD3FCA8D822FA591D9F99E5A9F8DA325F5F0D67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Amazing Vocal Sound — Summer (2016) [MP3|320 Kbps] <Progressive House, Ho
 ```bash
 magnet:?xt=urn:btih:DF0A24DC473579C9F11A51E860C1B93440625EB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2E4BD5DD94A4333CCA9780AD3034E415A8B01593
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Beyond Twilight - For The Love Of Art And The Making (2006) [APE|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:42A47D50892794E1AD91B528D8021B2DA6058B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - Зарубежная Дискотека ХХ Века - 64 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:43B6AAA733C47552D4907920BD12B30B103F0BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - Зарубежная Дискотека ХХ Века - 66 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:1C929E1DE7CD09A6D9CDB2BC2D9C02332EEEAE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ Emil Viklicky Trio - Kafka On The Shore: Tribute To Haruki Murakami (2011) Japan
 ```bash
 magnet:?xt=urn:btih:B43D7C834D9F927518E663CB28B0D8AE801BA833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ VA - Зарубежная Дискотека ХХ Века - 65 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:2ECB0B87A909F7320AE29307604DA31F3BFEC7ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ VA - Зарубежная Дискотека ХХ Века - 62 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:32800E9246D74225B8B01FFC51F1546111BA6A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ VA - Зарубежная Дискотека ХХ Века - 63 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:80884B0885042FD44F31B9A6DF58930925887719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ CD1 - The Cooker:
 ```bash
 magnet:?xt=urn:btih:A56F9CD0B9F641251A66FE81959E7ED07EDE1F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ VA - 1995 Grammy Nominees (1995) Series Grammy Nominees [APE|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:954AAB94CE9228B054299EBF8B4C6D8AC1D1F495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ VA - Best of Lounge, Ambient and Chill Out, Vol. 3 (2013) [MP3|320 Kbps] <Balear
 ```bash
 magnet:?xt=urn:btih:99EDFEF0FD8BE56732ECC12FB8C310844A7D0ABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ VA - Sexy Chillout Cafe (2016) [MP3|320 Kbps] <Lounge>
 ```bash
 magnet:?xt=urn:btih:C16230835669CD62F1FE2624410FC7F0AEC7C19E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ VA - Outline Deep House (2016) [MP3|320 Kbps] <Club, Deep House, Electro House>
 ```bash
 magnet:?xt=urn:btih:0A4302D05F45E6FD7BD6FDF28EB7756F8F564503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ VA - Зарубежная Дискотека ХХ Века - 67 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:C34B06630E52BEA727121214001067DDE09B4D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ Stonerider - Hologram (2016) [MP3|320 Kbps] <Classic Rock, Psychedelic Rock, Tim
 ```bash
 magnet:?xt=urn:btih:F769438B73CDD6876394FA139A77F839A8E09CAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ CERN начинает испытания технологии, которая и
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,8 +629,7 @@ VA - Cascades Of Life (2016) [MP3|320 Kbps] <Downtempo, Goa, Twilight>
 ```bash
 magnet:?xt=urn:btih:9419CD70FF187BF279C71729204FF87CF2432356
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ VA - Electrodance Latino (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1F480981038710B6C8290E6040A1773FE5F21E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80DA6805D37C2FB6F1A0B404B2C05C13631C4D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +710,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2DA41F128D7BB75B3CDF8D75C991A2873F2354F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

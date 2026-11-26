@@ -19,8 +19,7 @@ Phantasmat 13: Remains of Buried Memories (2019) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:C8889DA38B4D0174AAAD4CC8CFD58FC3463D33A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

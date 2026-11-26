@@ -19,8 +19,7 @@ Hamster Free ZIP Archiver - является очень мощным инстр�
 ```bash
 magnet:?xt=urn:btih:E1D40A0BE8B96F36547E5BC6348B4089AEEAA7B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

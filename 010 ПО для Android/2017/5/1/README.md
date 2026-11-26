@@ -19,8 +19,7 @@ AutoBoy v3.5.1 AdFree [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F14E504E03168C7E1F4DE896E059BF93F0ACC234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MScopes или MScopesPro позволяет пользователям прос
 ```bash
 magnet:?xt=urn:btih:AA6DF97A9F395B4E4AE661517D38CF06955B3D64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

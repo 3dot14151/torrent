@@ -21,8 +21,7 @@ OpenMediaVault представляет собой новое поколение
 ```bash
 magnet:?xt=urn:btih:D3CF3A11EC73702ABE9B81631DFA3C2148727431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ TrueNAS Community 25.10.1 - Goldeye [amd64] 1xCD
 ```bash
 magnet:?xt=urn:btih:86E5A23F9FA44D4981D0B9B79D6D265A7B16AF48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

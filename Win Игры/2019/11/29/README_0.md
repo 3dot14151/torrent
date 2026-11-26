@@ -19,8 +19,7 @@ Enchanted Kingdom 6: Arcadian Backwoods / Зачарованное Короле�
 ```bash
 magnet:?xt=urn:btih:72A69657C81B8F006C86F7F5D979864AE98CE533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

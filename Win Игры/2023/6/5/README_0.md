@@ -19,8 +19,7 @@ Morrok (2023) [Ru/Multi] (Build 11369620) Repack Other s
 ```bash
 magnet:?xt=urn:btih:321525062EBF52EE307A91225DEBA6CD80178367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

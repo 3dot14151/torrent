@@ -19,8 +19,7 @@ Hero of the Kingdom III (2018) [Ru/Multi] (1.00) Repack Other s
 ```bash
 magnet:?xt=urn:btih:67CE9D81EBCD24FED9B12C139D61861832D48382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

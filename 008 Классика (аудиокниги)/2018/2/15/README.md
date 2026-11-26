@@ -19,8 +19,7 @@ Cмешная история о том, как молодая красивая �
 ```bash
 magnet:?xt=urn:btih:382E49516833713876B261E8D6DA9023F288531F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

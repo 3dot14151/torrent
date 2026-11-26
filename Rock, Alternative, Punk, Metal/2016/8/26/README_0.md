@@ -22,8 +22,7 @@ Chariot - Chariot (1971) Reissue, 2007, Radioactive [MP3|320 Kbps] <Rock, Blues 
 ```bash
 magnet:?xt=urn:btih:180E79C6E52A285826FE36BECC5548A1A725391D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Winterstorm - Cube Of Infinity (2016) [FLAC|Lossless|image + .cue] <Power, Folk 
 ```bash
 magnet:?xt=urn:btih:CA4C0D140B788E4356C65E58F501119B36EE01C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Second Life - Second Life (1971) Reissue, 1997, Second Battle [MP3|320 Kbps] <Pr
 ```bash
 magnet:?xt=urn:btih:D44F3273DC08223CD53ED8EC7DACE8C317071F5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sodom - Decision Day (2016)  Japanese Edition [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:EFE9AD8EC4E97CB4936752CC2C686B23FA3BFA67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Sodom - Decision Day (2016) Japanese Limited Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:C0457099CD096033CB318A229C11D76E25ED7DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Delain - Moonbathers (2016) 2CD Limited Edition [MP3|320 Kbps] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:829035C9D7FB96513C125300F72C8DB75AD09BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Bad Omens - Bad Omens (2016) [MP3|320 Kbps] <Post-Hardcore, Metalcore, Rock>
 ```bash
 magnet:?xt=urn:btih:76E837AA89B69E02C1D8E96EB8BFC7557C9E4B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Twisted Sister - The Best Of The Atlantic Years (2016) Rhino Atlantic [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:E2837A86C1F45E2A468188723B4E2CE402F183F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Blue Stahli - Premonitions (2016) [MP3|320 Kbps] <Industrial Rock>
 ```bash
 magnet:?xt=urn:btih:71090B37D1D8BD7D7AADE2D9496359959BDFB592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49B5D385E6C6A4CA8DD1A660A5E7A1A06307CD6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

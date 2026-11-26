@@ -19,8 +19,7 @@ Curse at Twilight: Thief of Souls / Проклятие в сумерках. По
 ```bash
 magnet:?xt=urn:btih:618E846E02720CD0D0D7CC29EE90CE3BA2A8B628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alder's Blood — это мрачная и темная тактическая �
 ```bash
 magnet:?xt=urn:btih:9E5D8A5B44987B8EA17D0E9651A51A340C6AE4DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Subterrain (2015) [Ru/Multi] (1183) License GOG
 ```bash
 magnet:?xt=urn:btih:3B75099CC0F927234D4A28C45817589FDC3F5719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

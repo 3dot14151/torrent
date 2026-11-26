@@ -20,8 +20,7 @@ Gex (1996) [En] (1.1) License
 ```bash
 magnet:?xt=urn:btih:FC42083363C7C60165E0DF7DA56967AFE9DFB534
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Futurama — видеоигра по мотивам мультсериала «�
 ```bash
 magnet:?xt=urn:btih:30EE59FA516ADD5393881B7EE250434B7C250CA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

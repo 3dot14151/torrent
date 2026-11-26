@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:AB6FCCA34E96D129828D6244F62EB3A05AE6A240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Realm Racer - аркадный гоночный проект, главная ц�
 ```bash
 magnet:?xt=urn:btih:5C7A707846E299C3F568552B6CC8F349A8AAD6CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Quarantine Zone: The Last Check - симулятор сотрудника кар
 ```bash
 magnet:?xt=urn:btih:B10571685E15D1F28C1766FEA962E4BD9833D74F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Abyssus (2025) [Ru/Multi] (1.2.55683/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:1E7B3A447D7721661EDAF6E2ED307903158F730C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ WW2 Rebuilder - симулятор от первого лица. В игре WWI
 ```bash
 magnet:?xt=urn:btih:BE756AA0C0E5A95E3F719E989F9CF2C61861E734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

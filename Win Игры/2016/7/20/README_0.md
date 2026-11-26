@@ -19,8 +19,7 @@ The Assembly (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:0D2F5BE5B1DEEA8D228CC74A3A8426D177DC1DDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mugen Souls (2015) [Ru] (1.03/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:81576D840CF4722E3C634129BDF80AB15A9078E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Assembly (2016) [Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D6B2F06C24F4B020FCA0C2BDD41935D58F4FE55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ I Am Setsuna расскажет трогательную и печальную �
 ```bash
 magnet:?xt=urn:btih:7EB933831524A1D21311CC4F6ED0D64BB13E5B42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Aliens: Colonial Marines (2013) [Ru/En] (1.0.210.751923/upd1.4.0/dlc) Repack nem
 ```bash
 magnet:?xt=urn:btih:30DA84B441B81E0DF04BC0B804C06307CB45369B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Iotunn - Kinship (2024) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Progr
 ```bash
 magnet:?xt=urn:btih:E92FD610390AD63086CBDC9C439347FE9C2693D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

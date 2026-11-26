@@ -19,8 +19,7 @@ LEGO Indiana Jones: The Original Adventures – аркадная приключ�
 ```bash
 magnet:?xt=urn:btih:AF26CAD63D2E4F108F3224623A3B05AD7DE0C376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ House Flipper (2018) [Ru/Multi] (1.12/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:54D691F9AD1CC8C6B639B6CDEDA259F2DCE59656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

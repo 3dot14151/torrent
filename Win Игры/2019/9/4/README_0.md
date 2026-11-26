@@ -19,8 +19,7 @@ Battle Royale Tycoon — конструируйте и стройте арены
 ```bash
 magnet:?xt=urn:btih:2F1C3A89110A92F3E22D8BEA85FB6136D956300F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

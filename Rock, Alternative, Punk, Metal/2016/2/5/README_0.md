@@ -22,8 +22,7 @@ Textures - Phenotype (2016) [MP3|320 кб/с] <Progressive Math Metal>
 ```bash
 magnet:?xt=urn:btih:1E6971BE23A10CB129FD5B0510BEA7A12E10FE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stone Broken - All In Time (2016) [MP3|320 кб/с] <Alternative Rock, Post Grun
 ```bash
 magnet:?xt=urn:btih:2908A64DFACD9DC4F50559DF97DCDD7B2C307644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Phil Collins – Take A Look At Me Now... (2016) The Complete Albums Box, 4CD, R
 ```bash
 magnet:?xt=urn:btih:CD1F5FAB4A5AB1A39F690D7A411B819C85602467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Black Sabbath - Paranoid (1970) 2CD Deluxe Remastered Edition, 2016, Warner Bros
 ```bash
 magnet:?xt=urn:btih:CB1CEBD4B53EDF24F8493C2CAEC3511F91E35893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Megadeth - Dystopia (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash
 ```bash
 magnet:?xt=urn:btih:9E26C50FD6B47204CF47512BD3D9A4E356E9C5D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

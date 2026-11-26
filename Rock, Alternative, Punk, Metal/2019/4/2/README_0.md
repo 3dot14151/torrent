@@ -22,8 +22,7 @@ Shattered Skies - Muted Neon (2018) [FLAC|Lossless|image + .cue] <Progressive Me
 ```bash
 magnet:?xt=urn:btih:86587C50A805D1C465FE2F6B38961121C40A4137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Prospekt - The Illuminated Sky (2017) [FLAC|Lossless|image + .cue] <Progressive 
 ```bash
 magnet:?xt=urn:btih:7D7CD30215CFD7422CA70ABDCD07138B49228A35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ David Gray - Gold In A Brass Age (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alt
 ```bash
 magnet:?xt=urn:btih:D7C9462CED3A4D546406D0671BB455CB238A4307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Caligula's Horse - The Tide, The Thief & River’s End (2013) [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:8CD3045AF81896EBB08A871AF4D5587F15EAAE41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Vola - Applause of a Distant Crowd (2018) [FLAC|Lossless|image + .cue] <Symphoni
 ```bash
 magnet:?xt=urn:btih:CE99520FD66685FF3B9A1B3C4EF4988C1D2B3F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Athanasia - The Order of the Silver Compass (2019) [MP3|320 kbps] <Heavy Metal, 
 ```bash
 magnet:?xt=urn:btih:EEAAB2D434F14B713B665CCCA239D0B88EA8BE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Flotsam and Jetsam - The End of Chaos (2019) Japan [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:26A8D3C3F7D94ED054EE62C0F086F14D456DB4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Kane Roberts - The New Normal (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard R
 ```bash
 magnet:?xt=urn:btih:69CE9C0454CE593728B228F6E2365F2D517CC5BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Forever Still - Breathe In Colours (2019) [MP3|320 kbps] <Alternative Metal, Got
 ```bash
 magnet:?xt=urn:btih:64693C473484AB603AAAC80785ABF02D02221998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Good Tiger - A Head Full Of Moonlight (2016) [FLAC|Lossless|image + .cue] <Progr
 ```bash
 magnet:?xt=urn:btih:987149C05AFB7D5F346CD3AEFBE1154522BC0F48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ OSI - группа была создана в 2002 году Джимом Мат�
 ```bash
 magnet:?xt=urn:btih:B12FB2FE0E018663A387F130D20D397488B42A05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Dizzel - Dizzel (2019) [MP3|320 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:13B551D62D881678B5A7074B34712E91B4361653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Schramm - Nuklear Fetisch (2018) [MP3|320 Kbps] <Hard rock, Metal, Industrial>
 ```bash
 magnet:?xt=urn:btih:CB5A70B4852CCE2F82B8B1DB3C401CC2D0A6F0CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Pink Floyd - Animals (1977) Reissue, 1986 [FLAC|Lossless|image + .cue] <Rock, Pr
 ```bash
 magnet:?xt=urn:btih:BED7294888E7B1C92C1B28FBD80D885E7E071816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:4F7CA7CCC68DE26A90AF235F8D7F3AE8F4E384FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ iTop VPN — это универсальная VPN для Windows/ПК, отве
 ```bash
 magnet:?xt=urn:btih:09E960F541518E8789E0F8475B95D96D78EE7F7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Transparent Screen Lock™ PRO позволяет ИТ-специалистам 
 ```bash
 magnet:?xt=urn:btih:16CF4EBF6883A7B98FCF8C0B5C216BCA95EABCB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Iperius Backup Full 8.8.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A337FD7CBAAE6B30B850E2CDDC45D5D80CD98F11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ QontrolPanel — это расширенная аудиопанель для Win
 ```bash
 magnet:?xt=urn:btih:539EB8E02D838E0EFD95E4A8839243605A2C5A69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Hasleo Data Recovery - программа для восстановления у
 ```bash
 magnet:?xt=urn:btih:48D7CE044E5A4B99B3DBA9D345CF91F50F2A11A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ r3dfox — это форк веб-браузера с открытым исхо�
 ```bash
 magnet:?xt=urn:btih:7D2330CA7F0200AD0317D67C295D12983425FC2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Revo Registry Cleaner Pro - это мощное и эффективное про
 ```bash
 magnet:?xt=urn:btih:69315176BEA324380E6E3CD6E9F63FDBF7BFE82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ Revo Uninstaller Pro 5.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BE137F2A0F82015F27C439B92ADD624A675FD295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Personal Backup 6.4.10.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:593158DECD092FC84FC98916ECC954D2BB9C990B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Trayslate — это приложение для перевода, отобра�
 ```bash
 magnet:?xt=urn:btih:C2E9FDEB8DE4E5C9BB3017933710FF4C0F7E98F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ UniGetUI — это интуитивно понятный графический
 ```bash
 magnet:?xt=urn:btih:962AEEE11F54A0CF211A91A053578456118A914E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ NetTraffic - небольшая полезная утилита для мони�
 ```bash
 magnet:?xt=urn:btih:1649FA9BDDD3C6CC0E55BDF9CFF5AE4D95619DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

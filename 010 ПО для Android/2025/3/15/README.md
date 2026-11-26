@@ -21,8 +21,7 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:EDBA4AE5DB1C34E9FB6CFA5946A1A43F3573D292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Lighting calculations / Расчеты освещения v6.1.0 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:88415A277853B23E7A9192F7EC8EF0ED5D489A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ TrackChecker Mobile v2.28.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:448DF21798362D4B17EBF622E10D96565B8F446B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Picture Bird позволяет легко распознать птиц вок�
 ```bash
 magnet:?xt=urn:btih:8C636EBC5C9B29C7DA4027AC6F1C31C313FC0143
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.0 Mod by 
 ```bash
 magnet:?xt=urn:btih:BD9A143ADDFBE5DBA2329904861D29D451E2FF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:1F3A5036C434C54124431414A23B0BF86EE3E2A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Dual Space — Multiple Accounts & App Cloner — невероятно поле�
 ```bash
 magnet:?xt=urn:btih:4251B89F1BB151638FF685DE700D7F5DCCE786CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Electrical Calculations Pro / Электрические расчеты v10.3.0 
 ```bash
 magnet:?xt=urn:btih:D82D3089B1790ACB5C5F28CE1F01F57153577DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:829384B4617A3370CCE08F5B39D3075452D71526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Textra SMS v4.80 Pro Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4A5ACC10F35FCA70CB396A77F6C1B2D6E0609C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

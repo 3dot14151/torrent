@@ -28,8 +28,7 @@ Moving Oos - 3 albums (2007 - 2010)  [MP3|320 кб/с]<Rock,Blues Rock>
 ```bash
 magnet:?xt=urn:btih:CC76E2151F9F86934D65484742CF56B2A0DF0FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Red Rose - 2 альбома (2011 - 2013)  Discography [MP3|320 кб/с]<Melodic
 ```bash
 magnet:?xt=urn:btih:1D90004344811D6C8860DE7ED097261F4C520A42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Red Rose - On The Cusp Of Change (2013) [FLAC|Lossless]<Melodic Progressive Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Demian - Rock Star Farm 1974 Reissue /2013/ [FLAC|Lossless]<Hard Experimental Pr
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Tarja Turunen - Victim Of Ritual (2013) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:8FE31AB8EDB5E10140C8707958B43416A427F3DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

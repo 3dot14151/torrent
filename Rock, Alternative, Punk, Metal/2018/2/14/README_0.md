@@ -22,8 +22,7 @@ Hudson-Ford - Nickelodeon (1973) Reissue, 2015, Big Pink [MP3|320 Kbps] <Soft Ro
 ```bash
 magnet:?xt=urn:btih:E7EC4E4B682329DC9C374597229570B9EC415638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Krüger - Врага бей в рога (2018) [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:7485CEE9C21D3DC4DE79A8949EEDF2BB5B14A69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ McQueen Street - McQueen Street (1991) 1992, SBK Records [MP3|320 Kbps] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:3CDB6E106AF01883E746891E3494BF17673403FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ No-One's Project - Warning (2016) [MP3|320 Kbps] <Rock, Modern Rock>
 ```bash
 magnet:?xt=urn:btih:73FA21E16B9F6F7A225977908DBB61BEF4B0D398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B8B562BFB6550772FCECA77FB9CFEE8BC7F93E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

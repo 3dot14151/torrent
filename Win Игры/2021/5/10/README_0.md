@@ -19,8 +19,7 @@ Whispered Secrets 12: Ripple of the Heart / Нашептанные секрет�
 ```bash
 magnet:?xt=urn:btih:455481DB4D12380F2B5A6E004D440666E266065B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Neurodeck (2021) [Ru/Multi] (1.2.4) License GOG
 ```bash
 magnet:?xt=urn:btih:CBCB266068FDB42857CF91D7873EA55CC2DBD811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Photo Tools - приложение для Android с простым интерф
 ```bash
 magnet:?xt=urn:btih:E5DD142952FFD69A2134E1EB5EA06FB95921E409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

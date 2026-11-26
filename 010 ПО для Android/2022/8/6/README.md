@@ -19,8 +19,7 @@ Darker (Screen Filter) - отличный инструмент для получ
 ```bash
 magnet:?xt=urn:btih:BF448824584FEF41E197D65E44054C0E9954474B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mantis Gamepad Pro - приложение-инструмент, что позв�
 ```bash
 magnet:?xt=urn:btih:37FFF4728F0000918E097B0259A48116CF951F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ WinZip – Zip UnZip Tool - отличный вариант для всех кт
 ```bash
 magnet:?xt=urn:btih:B2F0DB8DEEF658E2D3ADBEE7B5D9EC68A0DDECAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Aurora Store является альтернативой Google Play Store, с �
 ```bash
 magnet:?xt=urn:btih:5CB68E6DC6B4D6E8D27F607794650CD62263619D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7442BC2811A7A24E0BD27010B98D2C08E7F226A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ ElectroCalc v3.2 Pro [Ru]
 ```bash
 magnet:?xt=urn:btih:0B13698CE2B23890F2B0B5C4BDB85FC007ECA763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

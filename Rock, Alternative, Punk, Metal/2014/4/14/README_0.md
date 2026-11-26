@@ -28,8 +28,7 @@ Bjarm - Imminence (2014) [FLAC|Lossless]<Symphonic Black / Death Metal>
 ```bash
 magnet:?xt=urn:btih:CD06665C03C28108B80B73456EF4E2E9549C70F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Skogen - I Doden (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:935C9CBDC762407AA9B8234DAED0C5F4F4B86DF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Little Feat - американская рок-группа, образовавш
 ```bash
 magnet:?xt=urn:btih:A9DA6D68C54C3BBDD354A640368F9AAA88B2F3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D8C091E481BE818DB466B6FA8A2565F535E0E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Trollfest - 6 альбомов (2005-2014) [FLAC|Lossless]<Folk/Troll/Humppa/Bla
 ```bash
 magnet:?xt=urn:btih:85AAFF0C819BBDE4CDDAB2959B60A5A45DFB451B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ CD1:01. Good Morning Little Schoolgirl  (2:46)
 ```bash
 magnet:?xt=urn:btih:36C1DF5582463D31859A92266BED6E118219FF08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

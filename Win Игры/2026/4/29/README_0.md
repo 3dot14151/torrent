@@ -19,8 +19,7 @@ The Spell Brigade - это онлайн-кооперативный survivors-lik
 ```bash
 magnet:?xt=urn:btih:A93E16BF04258FF9A1971B3112C8701E75947E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aphelion (2026) [Ru/Multi] (1.3.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:73A54C6E18FAE63B7C68F43B574AA62EC2F67AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Black Myth: Wukong - ролевой боевик по мотивам китай�
 ```bash
 magnet:?xt=urn:btih:1B6EF06A6ECEF2E27C03662C7CAB59B3221F3F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Strings of Fate XI: Magic Dream / Струны судьбы XI: Волшебны
 ```bash
 magnet:?xt=urn:btih:1CE4D053BD81621B5DF8F7A43E5CB8FE957388D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Aphelion (2026) [Ru/Multi] (1.03.1628077) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C0423C8A0ED868969ADA9ACB9C1A3D0DD69DF307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Farmer's Dynasty 2 (2026) [Ru/Multi] (0.46.06a) Repack Other s [Complete Edition
 ```bash
 magnet:?xt=urn:btih:7202DC72950C6DD2BB5C21C76F3F2067A6FAF460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.6.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D9CF446F930AC6D765989B2FD3999A67B75BD310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

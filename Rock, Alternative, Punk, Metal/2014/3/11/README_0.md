@@ -27,8 +27,7 @@ Angel Heart - Give Me Five (1994) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:33A62086687A6982FDF3A63BEE8A5A068171180D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Annodomini - Sixtrinity Secret (2008) [FLAC|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:11C6B624433334CB9623B4765AE6800B739420DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Magni Animi Viri - Heroes Temporis (2006) [MP3|320 кб/с]<Epic Symphonic Opera
 ```bash
 magnet:?xt=urn:btih:BBBBDFC36C980D66C2DCAFDAE3A96F504A2E7A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ James LaBrie's - MullMuzzler 2 (2000) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:36A9712D9E005680C76927A797A38CCCD4605C4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Firkin - Finger in the Pie (2014) [MP3|320 кб/с]<Folk-Rock, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:E7A09AD3D9796D244C1220BF1D2AF455520A069A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +191,7 @@ Jutta Weinhold - 5 Albums (1978-2010) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:312725F5F0178D0F9CCA8717F1BB5CB5AC75CA84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

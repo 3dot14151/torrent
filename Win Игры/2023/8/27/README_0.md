@@ -19,8 +19,7 @@ Tunguska: The Visitation — это трёхмерный шутер с видо�
 ```bash
 magnet:?xt=urn:btih:6FCD512EFFB254FD6FA83272BE19601B6CC00A38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Last Labyrinth (2019) [Ru/Multi] (1.0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C819792C193CF5A4DA4113414397B4E662B7A37D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blasphemous 2 (2023) [Ru/Multi] (1.0.5-cs43681) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AA1465B511C0018AF5F20A2A47001DD906D7C589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

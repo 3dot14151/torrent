@@ -19,8 +19,7 @@ Eipix Entertainment с гордостью представляет новое п
 ```bash
 magnet:?xt=urn:btih:C2439612931D21EC99C7C7684EE74EA035460C71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sharpe Investigations: Death on the Seine (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:46679B3F64E84B310833CDBAD4A148165F61C3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Whispered Secrets: The Story of Tideville / Нашептанные секрет�
 ```bash
 magnet:?xt=urn:btih:ABF6B86AF2074AC62957AFA97B137D6E81B9B7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Elder Scrolls 4/IV: Oblivion Англофикатор (2007) [En] [dub] (1.0
 ```bash
 magnet:?xt=urn:btih:62CD94A59C798C79C1F9F1111F0AE06FD008123E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/En] (1.2/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:81FF2A3225AEA31C27AAABD737ED1CE280283FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

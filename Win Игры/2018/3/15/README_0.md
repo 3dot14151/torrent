@@ -19,8 +19,7 @@ The Council of Hanwell - продолжение хоррора Welcome to Hanwel
 ```bash
 magnet:?xt=urn:btih:2EF53CD8E6E5218EF3AF801D05C8EEE1D8C96555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ride 2 – гоночный симулятор, предлагающий про�
 ```bash
 magnet:?xt=urn:btih:E7AD7752678B4A5359CF93FD7E29E79C772EF066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Alarum - Circle’s End (2020) [MP3|320 Kbps] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:A7E42697426352237F859333DD3C9B747A401AA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trapt - Shadow Work (2020) [MP3|320 Kbps] <Alt.Rock, Modern Rock>
 ```bash
 magnet:?xt=urn:btih:BBE80784BF3D348B7279DAD4006A9DEBACD645F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kenziner - Phoenix (2020) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:0206EFEED7B94B525B14E3CF7BCDB83C91B73FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Michael Angelo Batio - More Machine Than Man (2020) [MP3|320 Kbps] <Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:141990F6FEE0FE5228E9BA7D652099FF40FB6A3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bury Tomorrow - Cannibal (2020) [MP3|320 Kbps] <Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:949168A1337AA486B384EDC671D706E58A1DAB28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Demon Hunter 2: New Chapter (2015) [En] Unofficial [Premium Edition / Преми
 ```bash
 magnet:?xt=urn:btih:5EDC2C9C1ED8A0BE9A8BDB4EE7150B33E6ACC35B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Trackers 8: Nightsville Horror (2015) [En] Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:B344979954A6AEE098F5010E5F2FDAB673B76659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

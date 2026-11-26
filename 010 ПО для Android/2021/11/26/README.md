@@ -19,8 +19,7 @@ Anatomy Learning - 3D анатомический атлас включает в 
 ```bash
 magnet:?xt=urn:btih:D790F21E292D81C6A0C2A420B70F8F93845FBDD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

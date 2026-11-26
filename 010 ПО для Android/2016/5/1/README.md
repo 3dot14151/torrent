@@ -19,8 +19,7 @@ PingTools это набор полезных сетевых утилит. Инт
 ```bash
 magnet:?xt=urn:btih:C6B0C4A7692201A8C1C2172B08D565F832A743E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

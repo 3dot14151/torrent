@@ -21,8 +21,7 @@ Risen 2: Dark Waters [Ru/En] (RePack/1.1.0.0/3 DLC) 2012 | R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:9B347F49CA5C3C1E18319BD6892CE1521D1660DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

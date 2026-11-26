@@ -19,8 +19,7 @@ The Emerald Maiden: Symphony of Dreams Collector's Edition (2013) [En] Unofficia
 ```bash
 magnet:?xt=urn:btih:79DF71DFB2FE72A7A05B2C100F8F00C449896E7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Redemption Cemetery 5: Bitter Frost. Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:8C30839BDC96A11ED9191AD915C48C325C9BC724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hidden Memories of a Bright Summer (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:19E51756C90E1BED6CEA3B2C6D0237659EAE4C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grimville: The Gift of Darkness / Гримвилль. Дар тьмы (2013) [Ru
 ```bash
 magnet:?xt=urn:btih:EC64476665935CDD89BCBA10FEADB792EAB85606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mystery Case Files 10: Fates Carnival Collector's Edition / За семью пе
 ```bash
 magnet:?xt=urn:btih:CA2575330A912C4D8D8754FAB181CC1CF97AFA19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Spirits of Mystery 4: The Silver Arrow. Collectors Edition / Дух тайны 4
 ```bash
 magnet:?xt=urn:btih:531ECB550BD9BCAF3A0E496C74B0E43CB9701896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cabela’s Outdoor Adventures (2009) [Ru] (1.0.0) Repack R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:9F90BAFB8631FD52C6C99CA5958EC8FCB3586A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Spintires Mod (2013) (1.0) Mod
 ```bash
 magnet:?xt=urn:btih:AD137DBBA65E37FE4D89D53C3E3F936532FF1DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

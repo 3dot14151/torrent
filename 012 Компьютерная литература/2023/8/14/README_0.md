@@ -20,8 +20,7 @@ Python — один из наиболее широко используемых 
 ```bash
 magnet:?xt=urn:btih:9DD106C466750DD06B3BBD48560FAC4E4678D58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Company of Heroes (2006) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:9046736EE59AA7F218454902333AAE2C307B4EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

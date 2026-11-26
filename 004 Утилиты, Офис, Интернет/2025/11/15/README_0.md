@@ -22,8 +22,7 @@ Vivaldi — это многофункциональный интернет-бр�
 ```bash
 magnet:?xt=urn:btih:3EC393072EBE61442FB1D65480D3D8E747B5A6BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:A9153BD04EA4F0F520637F3B8520CA87E000598D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ R-Wipe & Clean - программа для невосстановимого уд
 ```bash
 magnet:?xt=urn:btih:E78E51C40AD6757D0B7B0FE5F96D4D9E60DBF616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:7887585728C38B3620BA6B7CE9ED8D95D3B56F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3353C7D4FBAFD19876F39552B87F65159DC1E5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:555F9A66E927B5E0EDC21C989B4EFC5944EF5BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

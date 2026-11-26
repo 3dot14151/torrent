@@ -19,8 +19,7 @@ Schematic является простой и удобной в обращени�
 ```bash
 magnet:?xt=urn:btih:BDF0BA4F7F9D98B63001D5897E0A3F9999794640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AirPlay/DLNA Receiver PRO v2.6.9 [En] - мощный приёмник медиа
 ```bash
 magnet:?xt=urn:btih:CC2FA42187A2E43322C69FB690A6243BE4A4BC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ idsTrack позволит Вам всегда быть в курсе где Ва
 ```bash
 magnet:?xt=urn:btih:728612164F4AFF553DEB8D0C9A9D1D6418FD5188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

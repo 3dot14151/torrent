@@ -19,8 +19,7 @@ Hetman Excel Recovery - восстановит файлы электронных
 ```bash
 magnet:?xt=urn:btih:6E6F18B6ABACCEB290B941BB002B04DBDAF0AEF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8416691159F1F9B37239055B21754B784D20F98C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hetman Uneraser - восстанавливает файлы, удаленные 
 ```bash
 magnet:?xt=urn:btih:DD8584A91AF76D4E651EC574D8CF96A7AEC303CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hetman FAT Recovery - эффективно восстанавливает слу
 ```bash
 magnet:?xt=urn:btih:9818911B03D891D651C3B3443DE8F4DEEAED257A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FlashFXP - FTP клиент, поддерживающий любые типы с
 ```bash
 magnet:?xt=urn:btih:0060A688FA861ED1911EB8809194464D47D41D72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

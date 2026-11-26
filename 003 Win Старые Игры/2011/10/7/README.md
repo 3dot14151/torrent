@@ -19,8 +19,7 @@ Magic & Mayhem: The Art of Magic сделан в традициях первой
 ```bash
 magnet:?xt=urn:btih:6A02C6D918CC13643BFB04E2A7AE69EBFD614434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

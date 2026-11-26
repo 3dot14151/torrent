@@ -22,8 +22,7 @@ Killing Gandhi - Aspirations of Failure (2018) [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:FF6111E7FD3F32DE719094EC591DE22F750D8B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Diskreet - Engage the Mechanicality (2010) [FLAC|Lossless|image + .cue] <Technic
 ```bash
 magnet:?xt=urn:btih:EFEBA3514C175F5C74F843650A57E15D6BE8BB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kalmah - Palo (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:88FCF59A73266E200D7DD7F79E8073FA5D02ADC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Magna Carta Guitar Greats Volume 1 (2007) Licensed From – Magna Carta [FL
 ```bash
 magnet:?xt=urn:btih:3B594433ABFF8B947982C293947D36F81177764B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Marduk - Viktoria (2018) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:DBC249EE374A2CFB863401791A277423931CD93B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68E24E587330D226D306436E90FFDC2274CFF443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

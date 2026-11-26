@@ -19,8 +19,7 @@ Strava: бег, велоезда, хайкинг v359.19 Mod by ReVanced Team [R
 ```bash
 magnet:?xt=urn:btih:14AF7295CDFBDD8B2D515966C242A8743258946C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Busuu - популярный и востребованный проект для
 ```bash
 magnet:?xt=urn:btih:2396262A5DB4B52C73DD64B912959950C0C9406C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Abstruct - это официальное приложение для обоев,
 ```bash
 magnet:?xt=urn:btih:0AA0C8932B047B3535A671956955AB4B6BBA1209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PowerDirector – Video Editor v14.0.0 b2405101 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:16EE3FEE85FBDDF44C8A1FDAB8DC553FF78FC67F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ QuickEdit Text Editor Pro - полноценный и многофункцион
 ```bash
 magnet:?xt=urn:btih:2D57C26735EF6B137AAD9130A9875F8A3B32FAC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ PhotoRoom v4.9.6 b1399 Mod by RBMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:75D53AE3CA1221C97D50604393CF3CCCE52E21BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ QuickEdit Text Editor Pro - полноценный и многофункцион
 ```bash
 magnet:?xt=urn:btih:83DF1C4FE2BE41F73C04F14525F24CD35439CAF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ QuickEdit Text Editor Pro - полноценный и многофункцион
 ```bash
 magnet:?xt=urn:btih:5AB20C08DD28E95456F5B350CB8E4A40A00BB0AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:393B1AF7A20B5BD8CAAE1D4B727A0F52F65A7D2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ PicWish — фоторедактор с искусственным (   Чита
 ```bash
 magnet:?xt=urn:btih:85A67107808940F3A1E07D25996D1D9DC4635316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ WiFi Analyzer v5.4 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C7BBAC417D0399ACC0E5A82DFE334F9A8A8DE6C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2112FE582EBDA1819ECD5DB07C703AD333F3139
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Memrise - шикарный образовательный проект пред�
 ```bash
 magnet:?xt=urn:btih:6849209E12C22BDA32605A6DABEE700B209322D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ CamScanner - Мощное приложение для сканирования. 
 ```bash
 magnet:?xt=urn:btih:F80703E45AD106DD875EC9CCF55533029A08ED07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ Onvier - IP Camera Monitor (Ранее. Onvifer) 19.11 Mod by Alex.Strannik [Ru/
 ```bash
 magnet:?xt=urn:btih:16EABE6F76619BFAADF3A1D75E1F14A6E039765D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ CalenGoo - это замечательный вариант календаря �
 ```bash
 magnet:?xt=urn:btih:6FB86411872AC8D5D7564866C75E7A1058CBE2A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ AccuWeather - невероятно популярный погодный про�
 ```bash
 magnet:?xt=urn:btih:8CE924BC09E3D469379715324F7B741DE762DDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ Abstruct - это официальное приложение для обоев,
 ```bash
 magnet:?xt=urn:btih:D8FB37A8BE1C19B197BC917AAEA7143BBACC81DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +473,7 @@ FX Player Pro - универсальный медиаплеер который �
 ```bash
 magnet:?xt=urn:btih:120F4817A801F3DFD0A661266DE0F3DE44DFABBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

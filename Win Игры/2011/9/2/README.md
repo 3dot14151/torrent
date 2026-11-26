@@ -19,8 +19,7 @@ Crash Time 2 [Multi3/+] (P/1.3.3) 2008
 ```bash
 magnet:?xt=urn:btih:D01FF3AEE7EF38E885A0EF415E53BD92E9B38C36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

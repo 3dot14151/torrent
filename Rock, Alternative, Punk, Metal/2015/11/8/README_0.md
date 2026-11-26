@@ -22,8 +22,7 @@ Unleashed - Hell's Unleashed (2002) [FLAC|Lossless]<Death Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:110C6A2519F31BD308F79A2D7B41EECF94499126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Collapse 7 - In Deep Silence (2004) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:3F0A2D9096FDC176EF79CCBB33A3D9723C791735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Unleashed - Warrior (1997) [FLAC|image +.cue]<Death Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:28FB6219BB6F7B0E39D2CB9DEF31F4B9FEBF5049
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sexy - Shout For Sexy! (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0032A15793E3176C268F01BFFD5FE602B4F2A590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Eric Johanson (New Orleans) - фронтмэн прогрессив проект
 ```bash
 magnet:?xt=urn:btih:7B78A680C6746A6AD5A0285D6AB9F5B158D177AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Billy Gibbons And The BFGs - Perfectamundo (2015) [FLAC|tracks|WEB-DL]<Blues Roc
 ```bash
 magnet:?xt=urn:btih:C5B7EAB142006187BFCAEBBFF263A8EB4A0A9306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Inkpot
 ```bash
 magnet:?xt=urn:btih:453C1DB7E9D604924BE30AB0346BDD81AA91C562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ VA - 10 Лет Питерскому Рок-Клубу (2001) [MP3|320 кб/с]<R
 ```bash
 magnet:?xt=urn:btih:BAF471CB450F61F048224BE92A43BF3BEB3A1C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5285B34424FB51A48C756FBC7B338CC61E6C26C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

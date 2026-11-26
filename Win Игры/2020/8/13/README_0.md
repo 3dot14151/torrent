@@ -19,8 +19,7 @@ Paranormal Files 4: Hook Man's Legend / Паранормальные явлен�
 ```bash
 magnet:?xt=urn:btih:BBC7E78263A381CF0CE09F3E809F01C0082FA75E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Metamorphosis (2020) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:DB97EE9F61C280A4A3BC94760470B3131997E9EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

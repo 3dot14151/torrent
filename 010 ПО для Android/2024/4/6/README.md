@@ -19,8 +19,7 @@ IPTV Pro v7.1.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D1A0A934E83EF21027E085E936C370C29A3E48D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F60E3600CA948BE49130FA027B768E48ED3DB7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Talkao Translate - голосовой переводчик. Talkao Translate —
 ```bash
 magnet:?xt=urn:btih:4346953BDF81E3642417BE90C303D122F3342CB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ eWeather HDF - это точный прогноз погоды от двух м�
 ```bash
 magnet:?xt=urn:btih:12F03519D586107B075B9C41EF40DE23A56C32B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ GPS Локер создан для того чтоб не терять фикс�
 ```bash
 magnet:?xt=urn:btih:9728CEF1647F2B63F94EA3F613798450838A4504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

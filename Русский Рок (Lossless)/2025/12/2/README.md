@@ -22,8 +22,7 @@ The Hatters - Зеркало (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Punk>
 ```bash
 magnet:?xt=urn:btih:04581642F615EF642E719AC10FAF40216F933366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

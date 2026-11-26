@@ -23,8 +23,7 @@ Thin Lizzy — ирландская рок-группа, созданная в �
 ```bash
 magnet:?xt=urn:btih:CE2525A8D071F64183B57DAEF2B0D680E693E128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Musify — лучший конвертер YouTube Music, который мож�
 ```bash
 magnet:?xt=urn:btih:D6575CA6F89740BC00B88E2B82E96F3858797005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Jean Paul Rena - A thief known for stealing hearts (Silver edition remaster 2024
 ```bash
 magnet:?xt=urn:btih:6D3BE70D8E8327CCBEBA8EF68B5A94B99EB0CB84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Sexual Perverts - 2 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 ```bash
 magnet:?xt=urn:btih:B180B0FDBB6DF549D09ACF5DB6017A86CD209893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Banev! - Синдром разбитого сердца (2024) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:405BF10D8C58185638DFAA5DFA5CCEFCF542D7AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

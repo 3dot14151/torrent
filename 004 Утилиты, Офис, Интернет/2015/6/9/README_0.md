@@ -19,8 +19,7 @@ Registrar Registry Manager - мощнейшее и более безопасно
 ```bash
 magnet:?xt=urn:btih:47AC662B27105DCE2FD5A034D876D95AB7380B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

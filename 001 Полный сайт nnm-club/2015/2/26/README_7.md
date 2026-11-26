@@ -23,8 +23,7 @@ Osoluna - S/T (2015) [MP3|320 кб/с]<Post Hardcore, Screamo, Post Rock>
 ```bash
 magnet:?xt=urn:btih:B3FAFCEFE99AA55CD98C975A4CD9374F03A29BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Arovane - Aarlenpeers EP (2015) [FLAC|Lossless|WEB-DL]<IDM, Glitch, Experimental
 ```bash
 magnet:?xt=urn:btih:28FA9673DD9810E60C017780DFE1A8FA41BE1348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Masada - Ten (1998) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
 ```bash
 magnet:?xt=urn:btih:72AB9E8C34A4E55D3F2A6B519E5F155CB05E5E3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Julian “Cannonball” Adderley - Cannonball Enroute (2013) [FLAC|Lossless]<Jaz
 ```bash
 magnet:?xt=urn:btih:A8DC94BBC313731A8C91278493418DFAB209A49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ VA - Living The Blues :  1953-1954 Blues Classics (1997) [MP3|320 кб/с]<Blues
 ```bash
 magnet:?xt=urn:btih:9E807E1217838F0360A9BBF1EE34311E8EABA4F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Coral Cross - 001 (2014) Single [MP3|128, 320 кб/с]<Black Metal, Coldwave, Po
 ```bash
 magnet:?xt=urn:btih:CB439B9641E349F32CCA152ACE45610B7153966A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ VA - Living the Blues: 1965-1969 Blues Classics (1997) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:9AD482FA0E6B58A945DC2946FCF1B673C0002B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +220,7 @@ VA - Living the Blues :  1960-1964 Blues Classics (1996) [MP3|320 кб/с]<Blues
 ```bash
 magnet:?xt=urn:btih:A172387B862C0312DF7F5C288F7958BD8531C350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ VA - Living The Blues :  1955-1956 Blues Classics (1996) [MP3|320 кб/с]<Blues
 ```bash
 magnet:?xt=urn:btih:7E858721CE74AFE70E51237238F60DC360F58A42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +278,7 @@ VA - Living The Blues : 1957-1959 Blues Classics (1996) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:2F5F62A675C598FBCE01C7B522553FAF69EF08EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +307,7 @@ VA - Living The Blues :  1950-1952 Blues Classics (1997) [MP3|320 кб/с]<Blues
 ```bash
 magnet:?xt=urn:btih:268A38CACA07288A411D490B7B197D3FEB15D867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +336,7 @@ VA - Living The Blues :  1945-1949 Blues Classics (1997) [MP3|320 кб/с]<Blues
 ```bash
 magnet:?xt=urn:btih:DBF340D45D0CF8C362C84E194FE10B02BCB7DFD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -403,8 +390,7 @@ Vakula - A Voyage To Arcturus (2015) 2CD [MP3|320 кб/с] <Deep House, Downtemp
 ```bash
 magnet:?xt=urn:btih:DFEACB6FA32105312C2AD876844F8A10C551DB40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ VA - Living The Blues : Guitar Classics (1998) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:641E9F5E9CA32D9A24EE923571C2E9A6E2376BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +448,7 @@ VA - Living the Blues : Ladies Sing the Blues (2000) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:C19DE2833786033A0596B00FBE3B29A29460CFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +476,7 @@ Crisopa - A Lucid Dream Kit (2015) [n5MD] [FLAC|Lossless|WEB-DL]<IDM, Downtempo,
 ```bash
 magnet:?xt=urn:btih:997254EDAFA5268A9811D3C2854696FC8AF4DF03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +505,7 @@ John Zorn - Locus Solus (1997) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Impr
 ```bash
 magnet:?xt=urn:btih:DF5784F5444E916D66730E4AF13E3ADD4DB910D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ Blackberry Smoke - Holding All The Roses (2015) [FLAC|Lossless]<Southern Rock>
 ```bash
 magnet:?xt=urn:btih:C699CCA575E3BE07717D71E82B3F32339CF42807
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA63D0DE881B7B64DB45FD30B105E91A1745D3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +588,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:089D06DBAB119AF9B4B3C5BBA72AB29FCE0E908F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +613,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2940183E9B2B001ABB337FDB92AEA6A2AEF6869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5B7444BD2E33A8068ABE22128760DB6B0147B83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +667,7 @@ Like A Storm - Awaken The Fire (2015) [MP3|320 кб/с] <Alt. Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:AF7EB81F1D6A47D5F7AE61F8B8C84E307E88B3C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +692,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FD6B1083876B2C08B2A0CF4FF24FB800BA570EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +717,7 @@ Nightfall Mysteries 4: Haunted by the Past (2015) [En] Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:0F9A4FCC2CF0A8B88C538935249BA1AB619CFF75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

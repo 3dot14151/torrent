@@ -21,8 +21,7 @@ openSUSE 13.2 RC1 [i586, i686, x86-64] 6xDVD
 ```bash
 magnet:?xt=urn:btih:C45A866954E470ABFC35F185A1DE3EF1FFFDF692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

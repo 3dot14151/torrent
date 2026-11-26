@@ -21,8 +21,7 @@ The Open Mind - The Open Mind (1969) Reissue, 2006, Second Battle [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:46217F78BFAB8F90C2329C90BE4A68AAE7E12DB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Robin George and Dangerous Music - Painful Kiss (2016) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:1FA4516ACC9C4D7610B4DCA80E864409F424EC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA Out Of Left Field - Where Soul Meets Country (2016) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:3B2D03EA04400AF84FE462CD6EB2C6DB5986C26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Жаркие Танцы 5 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3F80FFB6AC220B814A0BE6353B6B6C463DA47DDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08E97E434EBC709F32A1DD8F3C1E29B9F36CB8E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ Studebaker John And The Hawks - Eternity's Descent (2016) [MP3|320 Kbps] <Blues 
 ```bash
 magnet:?xt=urn:btih:795D4A3BC398B41DA80842D4FE92E3564FE8A114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Bill Evans - Rise Above (2016) [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz &
 ```bash
 magnet:?xt=urn:btih:CDC18AA64E57E8013C15C25BA57FDF8BB2C6FCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B572132ECB4ADD6679097F91811F67B78F3538D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Russian Circles - Guidance (2016) [FLAC|Lossless|tracks + .cue] <Post-Rock, Post
 ```bash
 magnet:?xt=urn:btih:2AB967831F2645C5BFCB3662C3FD02FB65D05D24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2D8E13A03D05B48ED1F308876DA4081AF157B4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ VA - Deep House Collection Vol.85 (2016) [MP3|320 Kbps] <Deep House, Club House,
 ```bash
 magnet:?xt=urn:btih:9BBA474DA05C38A763C79AECA75B7B894BEE9C7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ Coinverter это мощный, но простой конвертер курс�
 ```bash
 magnet:?xt=urn:btih:B1D9FC16E94389797C0B37661C30E5542C99EEB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E26CCA7D2F5771866ED699912AEF0B96C6E0EB69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Thomas Lemmer - Pure (2016) [MP3|320 Kbps] <Ambient, Electronic>
 ```bash
 magnet:?xt=urn:btih:F5021C5648F5B1ACBC16869C95E9906902488BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ VA - John Digweed Live In Montreal (2016) 6CD [FLAC|Lossless|image + .cue] <Prog
 ```bash
 magnet:?xt=urn:btih:A5130D31DB33D287F128ED6F7601C5C51F5F07AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Larry Carlton - Alone/But Never Alone (1986) [FLAC|Lossless|image + .cue] <Jazz,
 ```bash
 magnet:?xt=urn:btih:877F3FE75416E9B577A91DFAA7FFD287C7D95867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABD31564D7BA92906117342512D8B7620FDEBC8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ VA - Euphoric Essential Space Uplifting (2016) [MP3|320 Kbps] <Trance, Melodic, 
 ```bash
 magnet:?xt=urn:btih:9E788CD20B5DE8EDA137968F6AA3011982E91123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB6EBA2366AE5FD6341D0924F3991DB1A40F56FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ Beyond Compare - мощная и одна из лучших программ д�
 ```bash
 magnet:?xt=urn:btih:264608D7976D2178DE90FD80B6B6DDDAFA86F007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ Rachel Laven - Love & Luccheses (2016) [FLAC|Lossless|tracks] <Country>
 ```bash
 magnet:?xt=urn:btih:365EF09242FCC3DCA2EB80629C2051F13C437F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ Snoopy - Snoopy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Reggae, Pop>
 ```bash
 magnet:?xt=urn:btih:BAE595CF1C068EF653FFE3C16CEC111838CF4E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B31DD87FC719C5A406CC385EEE0F0F6DD11C515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ VA - Bass Booster - Не По-Детски Давят Децибелы (2016) [M
 ```bash
 magnet:?xt=urn:btih:E76234A260432DB05ABC2F274B5F1128D5CB8969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +678,7 @@ Emmylou Harris - Wrecking Ball (2014) 2 CD, Reissue, Deluxe Edition, Nonesuch Re
 ```bash
 magnet:?xt=urn:btih:7EDCD2BDE76BB7A95CF541C3AE363F74D41F3DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22F7E8C68F491239EE6265A19127E1C03B8A9970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
 ```bash
 magnet:?xt=urn:btih:99DE5FBFDF7DE1540A22C647258056701C5908F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

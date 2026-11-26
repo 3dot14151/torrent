@@ -19,8 +19,7 @@ Hypersensitive Bob — это аркадный платформер, главн�
 ```bash
 magnet:?xt=urn:btih:0463415FFCF76AAA1CAEA0FABBB2B3CFFBD71C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:EE1FAD7D9B07E8921F8F3040D58FE92419694C3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Legends 8: The Iron Mask / Ожившие легенды 8: Железн
 ```bash
 magnet:?xt=urn:btih:864D470F209DD2347C460A6C24758B1EB1465981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cursed (2016) [Ru/Multi] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:A95152ACF9BE4AD4D3DFBE9BA453D6FC640AE55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SOMA - это научно-фантастический ужастик от ст
 ```bash
 magnet:?xt=urn:btih:D73DED8EFE2B25E322B207DA041718BF64F451F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ A New Beginning - Final Cut (2011) [Ru/Multi] (2.0.3.0395) License GOG
 ```bash
 magnet:?xt=urn:btih:4DD44611A9FD1094727B4C04796D40784F737904
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Men of War: Red Tide — это великолепная смесь страте
 ```bash
 magnet:?xt=urn:btih:9B0E8D5D507D88DE97ECEA791F37F52E577706C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

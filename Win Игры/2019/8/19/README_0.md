@@ -19,8 +19,7 @@ Haunted Legends 15: The Scars of Lamia / Легенды о призраках 15
 ```bash
 magnet:?xt=urn:btih:E0CA4AC4A6D0E36BF928AE2BC66104B056EA87AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Since Always - Consequences (2015) [MP3|320 кб/с]<Alternative, Post Rock, Dre
 ```bash
 magnet:?xt=urn:btih:D7A50F3B5703AFAEAE55290B128991D3C8EB5F14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Vril - Predispositional (2015) [MP3|320 кб/с]<Screamo, Emotional Hardcore>
 ```bash
 magnet:?xt=urn:btih:D7D522C2E866F923A2FE7266E38B0E74286AC965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Torpedo Holiday - Kurago (2015) [MP3|320 кб/с]<Screamo, Hardcore>
 ```bash
 magnet:?xt=urn:btih:C606FED8E263F877A1AC1A91AAD8E7F110BCEB93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Milan Polak - Scarred To Perfection (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:92B0FA8D32BDC8D1411C13DB75526B92B83B2C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Happyness - Weird Little Birthday (2015) Deluxe Edition [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:E65EA48EA3F6D9FE25614250861E457AAD02CA92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Nuork - Nuork (2015) [MP3|320 кб/с] EP <Post Metal, Atmospheric Metal, Instru
 ```bash
 magnet:?xt=urn:btih:DD73D5A357B34707AA32BC5C1E450AA1373238E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Blackwelder - Survival Of The Fittest (2015) [MP3|320 кб/с]<Heavy Metal, Powe
 ```bash
 magnet:?xt=urn:btih:05A0A4ECB2C83332F1811254B572B42EDEE00782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Mons Lvnae - Lotvs (2015) [MP3|320 кб/с]<Gothic/Folk/Doom Metal(Female vocal)
 ```bash
 magnet:?xt=urn:btih:CC5685E6E160E61C0ECE73D3EFFD3FEE883AEABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Violet Cold - Desperate Dreams (2015) [MP3|320 кб/с]<Atmospheric Depressive P
 ```bash
 magnet:?xt=urn:btih:08831D33318DA0F474C61CD567BD2CF7D6F851E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ Snarg - Snarg (2015) [MP3|320 кб/с]<Nintendocore, Chiptune, 8bit, Hardcore>
 ```bash
 magnet:?xt=urn:btih:804B580DC4816FFDC25E65419B7C3B9BB71AEF9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +313,7 @@ Defence Mechanism - Invasion Of The Robot Brains From Planet Zero (2010) [MP3|32
 ```bash
 magnet:?xt=urn:btih:C51151F6F4B71D55EBA06D37FF9163537EDE73A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ Forgotten Tomb - Hurt Yourself and the Ones You Love (2015) 2CD [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:B0B8FF57BFB0BBBF0F8921ED8ABC2BF20079A5DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ Slayer - When the Stillness Comes (2015) Single [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E5B09EFA137370C3C16C23E450A339859E24D694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +396,7 @@ The Jon Spencer Blues Explosion - Freedom Tower: No Wave Dance Party 2015 (2015)
 ```bash
 magnet:?xt=urn:btih:23F3F85078FA946C42A7DCB0D75DFD9A655A1439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +425,7 @@ Grizzly Knows No Remorse - Fat Glasses And The Leather Mustache (2015) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:660704DF1B96DEDA86E2F60C48BC4C81ECFDEFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +454,7 @@ The Eagles - Smash Hits From The Eagles Plus (1989) [MP3|320 кб/с]<60’s gui
 ```bash
 magnet:?xt=urn:btih:E25BC4D6E77B45701D9F0E1FA62C9039AB9BEDE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F82EDDA6F4944CFF582F1045DA767630B9DD4919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +511,7 @@ VA - Essential Rockabilly. The Mercury Story (2012) 2CD [MP3|320 кб/с]<Rockab
 ```bash
 magnet:?xt=urn:btih:0314C89BA2603F5E67C9457CB4374372C93BB76F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +540,7 @@ Pink Floyd - BBC Archives 1974 (Dark Side Live) (2007) [MP3|320 кб/с]<Progres
 ```bash
 magnet:?xt=urn:btih:82D121135CA5BBAB1B7DA9687EFE7518C0090B0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A7E06F0863B7D3B777F18C9640F1612018B703D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +594,7 @@ Days Of Jupiter - Only Ashes Remain (2015) [MP3|320 кб/с]<Modern Hard Rock>
 ```bash
 magnet:?xt=urn:btih:93E3F7D2C558299B175C0904822F5911EBB4D33A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +623,7 @@ Leonard Cohen - Opus Collection (2015) Limited Edition /2CD[MP3|320 кб/с]<Fol
 ```bash
 magnet:?xt=urn:btih:A6B953C407F06B7BF3D54280E60BBD0EA78DD7F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +651,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00F2CA629E192CB07E0EE61800669217E0ED952E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

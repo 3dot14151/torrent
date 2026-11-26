@@ -19,8 +19,7 @@ Posing App v2.0 Unlocked - позы для фотографий (10.06.2013) <En
 ```bash
 magnet:?xt=urn:btih:F701E447B6E42C7D958B18A2E1BB62AD7856B703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

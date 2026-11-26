@@ -19,8 +19,7 @@ True Crime: Streets of L. A. [Ru] (L) 2004
 ```bash
 magnet:?xt=urn:btih:80B5D11222E9AD2CC28428286C4FD867C4B57D99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Richard Burns Rally [Ru] (Lossless RePack/1.2) 2004 | R.G. Catalyst Old Games
 ```bash
 magnet:?xt=urn:btih:3862A62B72161D74E7A50FC2617DD24B11CE0B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ True Crime: New York City [Ru] (L) 2006
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Star Wars: Jedi Knight 2: Communication Force + Lady Jedi [Ru] (L) 2003-2004
 ```bash
 magnet:?xt=urn:btih:0D19E96B56C916C7E8BC0D24BD5F7BDD258EC834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

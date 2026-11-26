@@ -19,8 +19,7 @@ Isla de la Muerte - это напряжённая игра на выживани
 ```bash
 magnet:?xt=urn:btih:870B7B711C9B8254CD3EC895D0FD39CE1C7BD88A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 811.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:56FFC9067858B0B34C0A3A1B06F74A620866EF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warcraft I + II: Remastered (2024) [Ru/Multi] (1.0.0.2198/1.0.1.2242) Repack Dec
 ```bash
 magnet:?xt=urn:btih:6FA6CCB043CD5F2F9CF67920B88E3E4CB841893A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Memory Lost - захватывающий шутер от третьего лиц
 ```bash
 magnet:?xt=urn:btih:C44BF35616DB97995FE535533CCD85C3BE6436C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Devilated - брутальный и жестокий шутер от перво�
 ```bash
 magnet:?xt=urn:btih:A050732D6094D4D2E41A30ED9441261BE6C6FA84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Split Fiction (2025) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9885A626F7AF605FB0F3B48B0DB40E0BE7A0113D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Visions of Mana (2024) [Multi] (1.0.3.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5625E8BD9E179DC3848A998EF78D38E59BCB12AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Nightfall Comes (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4D757A0051EA89EE60BA1284AC024417952796BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Romance Club - Stories I Play (2023) [Ru/Multi] (1.0.39200) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0ADB1A63367C655D1AD09336683502125E9B6229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ SHAPIK: The Moon Quest - трогательный и атмосферный кв
 ```bash
 magnet:?xt=urn:btih:ED7D569C906242E31DE07FBAE784B91AD0C19DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

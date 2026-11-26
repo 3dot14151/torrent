@@ -22,8 +22,7 @@ Dreamscape - прогрессив-метал группа из Мюнхена (�
 ```bash
 magnet:?xt=urn:btih:09E3CCE75A97E5B4952BB65ED267843CBCAFFE73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

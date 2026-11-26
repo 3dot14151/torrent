@@ -22,8 +22,7 @@ Thousand Foot Krutch - The Millennium Collection: The Best of (2015) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:0C4675F74C24357898744F6D11DC40E30EF4821F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Thousand Foot Krutch - The Millennium Collection: The Best of (2015) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:7D68B3338F82A8648D8687244A0B2EE609B8ABC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

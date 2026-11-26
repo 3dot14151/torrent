@@ -19,8 +19,7 @@ Haksun Li, PhD | Numerical Methods Using Kotlin (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:CDD96108A304511FE169FDC6E5AB52B66F375E9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE65F4A2BF330A9BABCAC746680F732C46877532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F10044853D1FD805CB20D6BB2B2A5024289D524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Alex Martelli и др. | Python in a Nutshell: A Desktop Quick Reference, 4th Ed
 ```bash
 magnet:?xt=urn:btih:F1B5A000341D21B44C72DE7E4E6F77619180CD6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Sandeep Rawat | CI/CD Pipeline with Docker and Jenkins (2023) [PDF, EPUB] [EN]
 ```bash
 magnet:?xt=urn:btih:4A85724F9D24ED2B9D43CC38E32A4A3CC79C58D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Total Chaos (2025) [Ru/Multi] (1.0.03) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:01BF2ECE3B03FDFE0B188A875BBFF6FBA41C2757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20876369) Repack Necros
 ```bash
 magnet:?xt=urn:btih:18F109A0A020C4A8004FB6783CD719ABEACC1DAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Nec
 ```bash
 magnet:?xt=urn:btih:D6E36B442DF7DBA2BE11715D223607C037D79212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ OlliOlli World – это новый лихой экшен-платформер 
 ```bash
 magnet:?xt=urn:btih:D22A75A7E6D466286131B7B6793ABF356C2F61CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Fit
 ```bash
 magnet:?xt=urn:btih:EC5A8BCCFEB61D80AC7027CE9E19A86B7C457230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Oth
 ```bash
 magnet:?xt=urn:btih:51FB124684ECF1FACCE1080377E4BF4A0D12406C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Dec
 ```bash
 magnet:?xt=urn:btih:55600A84A461BE02C16A1EBC19C06DD5138FBD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Demeo x Dungeons and Dragons Battlemarked предлагает погрузит�
 ```bash
 magnet:?xt=urn:btih:F219BBC17AEB42E5452E7D28F5C6FFF69DE7635F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Kingdoms Reborn – увлекательный градостроительны�
 ```bash
 magnet:?xt=urn:btih:2804851A833E14155A41F50C6FFE18A7AE076F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Critter Cove (2024) [Ru/Multi] (0.6 build 269) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:00E4E5D6DF4FFAD047C84CE00F38E6FCF21B35E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Killbug (2023) [En] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:8B577F470F55B21695F7E23D3B7B37990CFF6377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Battlefield 6 (2025) [En] (1.0.387.51411.SP) Scene Rune
 ```bash
 magnet:?xt=urn:btih:57A39E5334E14EAF446B4A02AFC8F7F18ECE5943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Battlefield 6 (2025) [Multi] (1.1.2.0 Build 20800939/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9DB2324DE87D6F2D445FFFB071758B37556D99BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Syberia - Remastered (2025) [Ru/Multi] (20251104) License GOG
 ```bash
 magnet:?xt=urn:btih:1904A1DD23563F0F3BF2A0F9BCE09ED14398A2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Goblin Dungeon (2025) [Ru/Multi] (Build 20909598/dlc) Repack Let'sРlay [Eternal
 ```bash
 magnet:?xt=urn:btih:586C043651C6630D6F3D6FE5FC7C13C247C18B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Pioneer [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:61A178A7F3B0540705EE10B9F26CE45DE062D2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Bathory: The Bloody Countess / Батори: Кровавая графиня (20
 ```bash
 magnet:?xt=urn:btih:FFBDEB059911A277DCF576BC025A3B0388F7EF76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightmares from the Deep The Cursed Heart (2012) [Ru/Multi] (Build_7278.286428) 
 ```bash
 magnet:?xt=urn:btih:C78293DCD9B48435E692D93961A12073CFE35F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Blade Kitten – аркадный экшен-платформер, основа�
 ```bash
 magnet:?xt=urn:btih:0C8B8E2674E567FC4318C2B99E09E546DD02E43C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

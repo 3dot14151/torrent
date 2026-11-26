@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:7A9E5EED52E66CDE1D70866E3F8D6B7B8264AB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kruger - Аномалия (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:55B59770D0D6F024F5423C21E654E74D773C9EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 1 - A Tower of Clocks:
 ```bash
 magnet:?xt=urn:btih:1FB723FCC674A5D981C9D62C1FE2DB95DAEC24F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Cannibal Corpse - Violence Unimagined (2021) [FLAC|Lossless|image + .cue] <Death
 ```bash
 magnet:?xt=urn:btih:52EFC5DAB4EED9EC0F0DD2B2A1617A859DD0CD4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ This Winter Machine - The Man Who Never Was (2016) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:693404ED5819467AF74D0881B4AF638235B6A93F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Luka State - Fall In Fall Out (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:3125CED2838E6F1C2A307E7C07B00E52CF44DF81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Xiu Xiu - Oh-No (2021) [MP3|320 Kbps] <Experimental, Indie, Electronic>
 ```bash
 magnet:?xt=urn:btih:80687C6C917154B9ED9CCFC50EF48C03F95C5F22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Serpentine - А Тоuсh Оf Неаvеn (2010) Japanese Edition [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:C803EFB2D72ED8BFF350A18CEFFFA669C72BE1FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Serpentine - Living аnd Dуing In Нigh Dеfinitiоn (2011) Japanese Edition [F
 ```bash
 magnet:?xt=urn:btih:11F6366E4F875177D773D20E0F0D5CA4028269CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

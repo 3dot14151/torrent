@@ -19,8 +19,7 @@ WinUtilities - набор утилит WinUtilities Professional для наст
 ```bash
 magnet:?xt=urn:btih:2BCBD895EBD8215255DFA6193254E7653B7A88C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ TANGLEWOOD – хардкорный платформер-головоломка,
 ```bash
 magnet:?xt=urn:btih:1C619B632791C310B88506A87D2E98F964C07FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

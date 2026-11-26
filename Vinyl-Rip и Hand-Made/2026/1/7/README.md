@@ -22,8 +22,7 @@ Entwine - финская рок-группа из Лахти, основанна
 ```bash
 magnet:?xt=urn:btih:5BEF360E09BBD9913A8B8D5D7E86A3C5BA741D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Volbeat - Beyond Hell/Above Heaven (2010) [FLAC|Lossless]<Heavy / Groove Metal /
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ CD 4 - Static AgeЖанр: Horror PunkПродолжительность: 00:30:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ God Is An Astronaut - Дискография (2002 - 2010) [MP3|320 kbps]<Post-R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

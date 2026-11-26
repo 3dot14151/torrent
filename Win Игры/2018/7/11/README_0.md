@@ -19,8 +19,7 @@ Saga of the Nine Worlds 3: The Hunt / Сага о Девяти Мирах 3: О�
 ```bash
 magnet:?xt=urn:btih:99B0F5C88A73F6543DF90CA35529713313F6D497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE433E5A5286EECEEAFA4ECFD8C0019B3779DF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Alter Cosmos - приключенческая игра в стиле комик�
 ```bash
 magnet:?xt=urn:btih:4ADBBF2642C8AAD78176388179D15FEE116768C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

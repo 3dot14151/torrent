@@ -23,8 +23,7 @@ VA - Colores: Ocultos (2009) [MP3|320 кб/с]<Minimal, Techno>
 ```bash
 magnet:?xt=urn:btih:FCDF0C02328DE6FBC41A5967885B1BE920A8C980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Qk - 415 (2009) [MP3|320 кб/с]<Deep House, Chill House>
 ```bash
 magnet:?xt=urn:btih:5B2DE16F24A3A5934BF4DB2B4C14C6E4421A6596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -84,8 +82,7 @@ VA - Colores: Fluidos (2008) [MP3|320 кб/с]<Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:9061F9CC7556BA14E2F4E9F59574B84B852C8980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ VA - Colores: Sobre Expuestos (2010) [MP3|320 кб/с]<Deep House, House>
 ```bash
 magnet:?xt=urn:btih:6637D98FC3E6F5D2C03B55A01D68D9720A388133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ Jupiter Society - From Endangered To Extinct (2013) [FLAC|Lossless]<Progressive 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ DJ Gard - Spotlight (2012) [MP3|320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:D321E514D33B4FDD75B29211395407EC5A2F86AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ White Wizzard - The Devils Cut (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ VA - Emotions Dreamers (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5C060B05641679F24F2DCE69E231D2F74DC00392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ Bret Michaels - Jammin' With Friends (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:061B47DBA9A6DA7878825C3E921B55795708EC36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ Isolate & Spigl - Mode EP (2013) [MP3|320 кб/с]<Dark, Industrial, Techno, Ele
 ```bash
 magnet:?xt=urn:btih:3AE1F80714A93E27F2DC8E559BF6C1133F96D3FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +340,7 @@ Luca De Maas - Spotlight (2012) [MP3|320 кб/с]<Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:DF314D8C2FF2DF74C627998A2F1690119210842C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +374,7 @@ VA - House of Beauty Vol 1 (2013) [MP3|256 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:F7819E5204685A58B515BE36F69C5E4D54B8D3F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED1CAAD1EC2DC14BECBF653666A89051DA72238D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92E9456C89601425CE2A51AFC148A36B41B4968D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ John Hiatt - Collected (2012) Box Set, 3CD [MP3|320 кб/с]<Rock, Folk-rock, Co
 ```bash
 magnet:?xt=urn:btih:65DFB63D26304234098C1B836239C10F04972E83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +487,7 @@ Progenie Terrestre Pura - U.M.A. (2013) [FLAC|Lossless]<Black Metal, Ambient, ID
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +546,7 @@ Skyline - Fairytapes (2013) [MP3|320 кб/с]<Drum & Bass, Dubstep, Pop>
 ```bash
 magnet:?xt=urn:btih:B8F66CB254A9686E25528778588D246472542D17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +580,7 @@ Dj Parafich - Pumping Romantica vol.2 (2013) [MP3|192 кб/с]<Pumping House, Ha
 ```bash
 magnet:?xt=urn:btih:1115E44859AA69858447870A5DD076A659003C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ACA2714201120040FB45A73B5DC27F369385D0FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +630,7 @@ Freemake Video Converter - бесплатная программа для быс
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +664,7 @@ VA - Русские Новинки Vol.109 from AGR (2013) [MP3|128-320 кб/с]
 ```bash
 magnet:?xt=urn:btih:834ED9179D15924BF9DF1D08B8FA111D71ECE7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +698,7 @@ VA - Paul van Dyk - VONYC Sessions Selection 2013-06 (2013) [MP3|320 кб/с]<Up
 ```bash
 magnet:?xt=urn:btih:907AB1617B9E624A9D7F47BAE431650CAE1F37AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +732,7 @@ VA - Enhanced Chill - Volume One (2013) [MP3|320 кб/с]<Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:866491626A281553308AA244F4E5AC27503AEC78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +766,7 @@ Amazonas Bolivia - Melodie per Flauto di Pan, Vol. 1-2 (1998-2001) [MP3|128-320 
 ```bash
 magnet:?xt=urn:btih:9D34CCAD62497C97024B3A70F5118F729D7F6AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -825,8 +800,7 @@ Emilie Marsh - La Rime Orpheline (2013) [FLAC|Lossless]<French Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

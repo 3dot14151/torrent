@@ -22,8 +22,7 @@ The Who - The Who By Numbers (1975) Super Deluxe Edition, Remaster, Reissue, 202
 ```bash
 magnet:?xt=urn:btih:03E61C531218957CA2A7E4298D7DEC57821274FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Currents — американская металкор-группа из Нью�
 ```bash
 magnet:?xt=urn:btih:37461DF1DEA298A08909342817E88A63C59DED1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

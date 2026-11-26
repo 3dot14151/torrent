@@ -19,8 +19,7 @@ Substance Designer является мощным нодовым инструме
 ```bash
 magnet:?xt=urn:btih:90454774D25DBF9630F412A020D8E3980506B43A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

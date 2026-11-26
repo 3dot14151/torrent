@@ -19,8 +19,7 @@ Brink of Consciousness 2: The Lonely Hearts Murders Collector's Edition / Гра
 ```bash
 magnet:?xt=urn:btih:E17294692DBD267C22B1AEBD71B4542AF4E780BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Assassin's Creed 3: Трейнер (+5) | LinGon
 ```bash
 magnet:?xt=urn:btih:FF512DB2E9F9C15E65B1BD04241DAF9548B23B87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Curse Of The Werewolves Collector's Edition / Проклятие оборо�
 ```bash
 magnet:?xt=urn:btih:755C2855342EA11300DEEEC9E81500BC17F61B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Assassin's Creed 3: Трейнер (Trainer/+6) | FLiNG
 ```bash
 magnet:?xt=urn:btih:E31587D43A1831C2ABB6A8EBC568AF5D1E790043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

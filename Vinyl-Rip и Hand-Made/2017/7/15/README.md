@@ -22,8 +22,7 @@ A4 Яак Йоала - Подберу Музыку(   Читать дальше.
 ```bash
 magnet:?xt=urn:btih:EC0D1A40407AA866ADF95FB8C0E354A6F8A8D043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

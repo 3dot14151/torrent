@@ -22,8 +22,7 @@ Mighty D. - The Last Rise (2004) [FLAC|Lossless|image + .cue] <Atmospheric Death
 ```bash
 magnet:?xt=urn:btih:E9DFB66271BDE31609B2CC7BB0BAA2F4E9301279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Messticator - Forthcoming Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Death
 ```bash
 magnet:?xt=urn:btih:95508346CC80C16DE4458B6198E7F15753326897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mighty D. - In the Sad Valley of Tears (2000) Reissue, 2018, Self-released [FLAC
 ```bash
 magnet:?xt=urn:btih:0F9C9719FD4A820048F8AF7829350C5C23FAFCC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Monasterium - 4 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Meta
 ```bash
 magnet:?xt=urn:btih:84F47503641C04B9886BFE679354A944237BDCD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Kalmah - Seventh Swamphony (2013) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:10A5C90335F43E17F3E807DC50FDA48E5D415191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Humaniac - 3 Albums (2014-2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Progressiv
 ```bash
 magnet:?xt=urn:btih:E58EF44A00E4C2C573E584EBD68C207028F0E5E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Stratovarius - Destiny (1998) [OGG Vorbis|485 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:9BFE7A879B6FBB9504A27717A973C5FB390CA4B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Before I Die (RU) - 5 Albums (2017-2022) [Mp3|320 Kbps] <Metalcore, Doom Metal, 
 ```bash
 magnet:?xt=urn:btih:BA619CCFF76F7F749AB7C632746AD6743B22526C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ The Sinners - Идеальный пациент (2022) [Mp3|320 Kbps] <Simphonic
 ```bash
 magnet:?xt=urn:btih:A33640F83432EFA279B868C1BE7A539D0E07781A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Bloodbath - Survival Of The Sickest (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Death
 ```bash
 magnet:?xt=urn:btih:94580E6AA922BB5837B12B3A7F79C7939B99EE26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Fallujah - Empyrean (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Technical Deathcore, 
 ```bash
 magnet:?xt=urn:btih:47F1B01B4C64E47A33C26B54385FA7658AF25D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Miami - Sexy, Wet & Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
 ```bash
 magnet:?xt=urn:btih:FCF9B8C78D437D976F59F607CFE53F985E6DCA90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Smash Into Pieces - Disconnect (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 ```bash
 magnet:?xt=urn:btih:D01AC7CDCAF23C827C21E20B350AC38C4F681537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Slade - The Hucknall Miners' Welfare Club (2022) Live [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:330B5BA5463804C61CEF263FD295377307670114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Taboo - Taboo (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3E64AF95C49E26D4A622FC245F0C781B98DB9F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Slade - Alive! At Reading (2022) Live [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:FCCAFDD63EE1999D02CA4685B96D975E8CB33A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Allen/Olzon - Army Of Dreamers (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Melodic Me
 ```bash
 magnet:?xt=urn:btih:EDA2D0713D4DFBF8A1FEF1E7863A521624C5072B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Taboo - Taboo (2022) [Mp3|320 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0547D627634D5FE0A0BB4E16F7BEFB40E3AA7553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Slade - The New Victoria (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:52B2989A3EA01419616EFDA100F5EF904A9BEDEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Haunted Train 2: Frozen In Time (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:B59950DC1C81A1B4E71D772FB4A4F08BF72AC74D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted Hotel 8: Eternity / Проклятый отель 8: Вечность (2
 ```bash
 magnet:?xt=urn:btih:6CC4C5536156846C0DA16BD9B25762D549C0AE51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wolfenstein: The New Order (2014) [Ru/Multi] (1.0.0.2) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:4473F4BAFD3E8A55DA2340B658320A1AF64873FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

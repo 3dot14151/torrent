@@ -19,8 +19,7 @@ Tennis Manager 2021 (2021) [Multi] (1.6.2129) License GOG
 ```bash
 magnet:?xt=urn:btih:AA41F474DA1048637D6EA712FD48DBAD67206364
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Treasures of the Aegean (2021) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:9A075503F31CEB4C680D5372FDBAD9DE2179B68F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99646500B4FC231F9A3DDA109F855B42F25E543C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Slice of Sea – это неторопливая приключенческая 
 ```bash
 magnet:?xt=urn:btih:884C777EB80E0D6A1DB87D8E5EA6B78ABB30C82C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Punk Wars (2021) [Ru/Multi] (1.0.6) License CODEX
 ```bash
 magnet:?xt=urn:btih:8338C0F29622E921490B40DB6CBFCA80F4503AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Door Kickers: Action Squad - сумасшедший олдскульный 2D-э
 ```bash
 magnet:?xt=urn:btih:F64F9E4CAF15ECF83F482B779CFE1D33D9F539B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Yaga (2021) [Ru/Multi] (1.3.23/dlc) License GOG [Armful Edition]
 ```bash
 magnet:?xt=urn:btih:EA2D3AF283F3048FCB12C9079C200FAB78164E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Even the Ocean - интеллектуальный платформер-боев�
 ```bash
 magnet:?xt=urn:btih:A2A8113E3FC10827D2AF46BC395452B8BB4AC93E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

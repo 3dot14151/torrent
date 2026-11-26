@@ -21,8 +21,7 @@ Deadlock - немецкая метал-группа из Шварценфель�
 ```bash
 magnet:?xt=urn:btih:C12AACE037EC6CE33DBA11740FE921C0BD82FF30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ B2 Sheep(   Читать дальше...   )Жанр: Psychedelic Rock, Prog Roc
 ```bash
 magnet:?xt=urn:btih:304FB3254AA568F969537BC00D26F18CEA4B254B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

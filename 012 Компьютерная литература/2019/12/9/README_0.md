@@ -19,8 +19,7 @@ Paul Richard | Введение в AutoCAD 2020 / Introduction to AutoCAD 2020: 
 ```bash
 magnet:?xt=urn:btih:2CEDD5B0D8B4D9D95DF35483A939D2A5A597E671
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

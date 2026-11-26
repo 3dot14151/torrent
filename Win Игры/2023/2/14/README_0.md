@@ -19,8 +19,7 @@ Feist - динамичная компьютерная игра в жанре п�
 ```bash
 magnet:?xt=urn:btih:245F9CB694AEA579948E3D4869F19D12FD544939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

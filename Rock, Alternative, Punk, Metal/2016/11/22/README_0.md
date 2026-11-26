@@ -22,8 +22,7 @@ Loudness - Columbia Years (2012) Japanese Edition [WavPack|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:C1308A9FE989558AEA280EE0709C77C919B48F32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Loudness - Warner Years (2012) Japanese Edition [WavPack|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:DDB633B0371B2C8E1997D11EF30FA4A2698DA128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ SYU - You Play Hard (2016) [FLAC|Lossless|image + .cue] <Instrumental Power Meta
 ```bash
 magnet:?xt=urn:btih:A58D68E20C2E25C7DEB844411DFB30A20BD7E6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Striker - Striker (1978) Reissue, 2014, Hard Rock Diamonds [MP3|320 Kbps] <Melod
 ```bash
 magnet:?xt=urn:btih:683C572FF67FEAE5FD1CD73D6BA77022D961AE35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Andrea Schroeder - Void (2016) [MP3|320 Kbps] <Indie Rock, Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:01A7194BFB27923FD47A3667BAF114154386EB90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8B9DAED1C498003B2C72E2A7816DA6D3A8DE4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Original Album - 1996 (2016 Remastered)
 ```bash
 magnet:?xt=urn:btih:2F06E3D4FBDA0506F735CC3CD331782F1082CCBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ In Flames - Battles (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Modern
 ```bash
 magnet:?xt=urn:btih:99720EF4E5B108E55CD5E1C348C6D5CC1DCB2F7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Thiary - Learn To Swim (2011) EP [MP3|320 Kbps] <Melodic Death Metal, MDM>
 ```bash
 magnet:?xt=urn:btih:4A772CB43026FB6C4141E94C7387AB762F7EC490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

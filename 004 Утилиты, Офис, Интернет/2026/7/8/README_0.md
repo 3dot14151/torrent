@@ -20,8 +20,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:7E364B5D77F085E0A1AC9B1181BDBFD4F88AD58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Blue Iris представляет собой профессиональное �
 ```bash
 magnet:?xt=urn:btih:594F9B9BA5DA9F096929401BC7C872CBC28C8611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Balabolka 2.15.0.917 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7B3E318251AB123469E6F7467BDD568D1678E505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ OCCT 17.0.5 Portable [En]
 ```bash
 magnet:?xt=urn:btih:983394738E0493F2CDB98490628A9AF68C761AD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:06CDFEA3813ADCA9C86BA5D861B7BCCF02F91BDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ cFosSpeed - высокопроизводительный сетевой драй
 ```bash
 magnet:?xt=urn:btih:D565FBFE9850F279645BBDC08D7A09DCC9DF56C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ XML Blueprint 22.20260704 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3BCC3F00DA9137142ED1FECB9E485770D75F7AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:01600B84BC71045690DED8F2B065F842D23466CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ HWiNFO – информационный инструмент, который с�
 ```bash
 magnet:?xt=urn:btih:15696E68D35A4CEEF80AB75EC1959F92EDAAF10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ WireGuard – современный и не требовательный к р�
 ```bash
 magnet:?xt=urn:btih:08F6F734E2011C9AB30BBCE20137EB867AED95C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Caramba Switcher Lab - это новый, понятный автоматиче�
 ```bash
 magnet:?xt=urn:btih:DDA662193DA310D41526CF198F3510D0CB87E497
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ AmneziaWG 2.0.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:6B6334E85F6C382AEC9FDABE3A303A941E3AD13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +322,7 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ```bash
 magnet:?xt=urn:btih:9DE6FA1BC331F91F269211EB3E350EC6595C5251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, Country
 ```bash
 magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 The Blue Danube(   Читать дальше...   )Жанр: Classical, Orche
 ```bash
 magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

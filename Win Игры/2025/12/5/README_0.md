@@ -19,8 +19,7 @@ Of Ash and Steel - ролевая игра от третьего лица с о�
 ```bash
 magnet:?xt=urn:btih:55F0D9D00F5D75A1BE07EBDAB8CC5B53BED34FDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mount & Blade II: Bannerlord представляет собой долгожд�
 ```bash
 magnet:?xt=urn:btih:A4FA6CF7E2A9A9028FA5A814447AEC2D62DD7A39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cricket 26 - The Official Game of the Ashes - детализированный �
 ```bash
 magnet:?xt=urn:btih:FED249363805E75246F271EB60A23DC5D34B46F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack Let'sРlay [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:7AAC538AB59B6729F124E65E0DBEA969B1FF2C0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hi-Fi Rush (2023) [Ru/Multi] (Build 20567064/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:8CA426F78FE8435275747FE372EE96257D96B43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Inazuma Eleven: Victory Road открывает возможность собр�
 ```bash
 magnet:?xt=urn:btih:8955C65F1A461728884D2F3A187D9B68BB10B8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Last Case of John Morley погружает игроков в роль де�
 ```bash
 magnet:?xt=urn:btih:72D97F24920BB2869D9E4F6E4ADF94C6B907A295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ FIFA 21 - футбольный симулятор, использующий но
 ```bash
 magnet:?xt=urn:btih:439963F10F9C6D0DBA78C9B9D02DD626500E82FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ FIFA 21 - футбольный симулятор, использующий но
 ```bash
 magnet:?xt=urn:btih:56744A3E754ADD29DDB4F120FDB532E3D7349D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.4.0/dlc) Repack HardwareMining [Deluxe 
 ```bash
 magnet:?xt=urn:btih:DFE307D2D080344EB9371E66564BCB539EE19921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Outshine (2022) [Ru/Multi] (0.24.3) License GOG
 ```bash
 magnet:?xt=urn:btih:CE60A166B6E2555E993F3ECE07202FC6AD958A1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Tormentor отправит вас в путешествие по извраще�
 ```bash
 magnet:?xt=urn:btih:532E4A288D207F14CFA9A52ADEB35B203957A794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Dustwind: Resistance - это тактическая одиночная игра
 ```bash
 magnet:?xt=urn:btih:95317DE8A196D9E41FC119B217696AFF4F6CC94B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ S.T.A.L.K.E.R. G.A.M.M.A. (2025) [Ru/En] (9.4.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1BD424373F26FAF9B64EBF1431B9391E6A0E0665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

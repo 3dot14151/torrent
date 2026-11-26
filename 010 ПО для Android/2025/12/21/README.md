@@ -22,8 +22,7 @@ TapScanner — сканер документов, это простой скан
 ```bash
 magnet:?xt=urn:btih:E0C84786AEE734255BD28A686D85CE67B22AA6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Hear Clear / Услышать на расстоянии v1.2.0.2 Mod by Garant68
 ```bash
 magnet:?xt=urn:btih:E9485FA96EF7DB7FF02DD3B4CC54E5D23FEC9564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Mary’s recipes: рецепты, меню v7.0.0 Mod by Alex.Strannik [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:DDF7A2AFC4A77CC8E487A037930185E1EED09741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ One Read / Все Документы Читатель - Офис v1.2.7 Mod by T
 ```bash
 magnet:?xt=urn:btih:78D135C53616007F7D721274627C21D4B01C4CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:061E4C7BC7D18DB633C409D4F354BD4B590A21ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Beast of Reincarnation (2026) [Ru/Multi] (1.0.6.0/dlc) Repack Other s [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:9E640D2A993A61EF3EC40709BB13F658C663D189
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Desynced (2023) [Ru/Multi] (1.0.17871) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:4C407DF11D4622594CF6346E2B2B3DB0A0EFFEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Frostrain 2 (2026) [Ru/Multi] (1.0.0-build-5/dlc) Repack FitGirl [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:1E39DA95353AA7077C341BE1F7E59654524A4513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Outbound (2026) [Ru/Multi] (1.1.4-916/dlc) Repack Other s [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:8DA6E5C46F241E54B1A03EBFBF6B73A90F488469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cyber Farmer - это абсурдный симулятор фермы в по
 ```bash
 magnet:?xt=urn:btih:5369F391DF273444BD757344A60A6AB2122E3CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Korea. IL-2 Series / Корея. Серия Ил-2 (2026) [Ru/Multi] (1.000/dlc)
 ```bash
 magnet:?xt=urn:btih:1921BE8801B2A62A8E8046CB5DFD29E8D37C1298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Framed Collection - это новая подборка получивших вы
 ```bash
 magnet:?xt=urn:btih:0528967ACFD83F1657CC075BAD832CD5836BC017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Crimson Desert - экшен‑RPG в открытом мире от студи
 ```bash
 magnet:?xt=urn:btih:3B5A48DFE09B321E5BB93A9A2A6211D7F2751413
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Crimson Desert - экшен‑RPG в открытом мире от студи
 ```bash
 magnet:?xt=urn:btih:968DCE8FBB08BD964003A4354FC8263DFCE2B4BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Korea. IL-2 Series / Корея. Серия Ил-2 (2026) [Ru/Multi] (1.002/dlc)
 ```bash
 magnet:?xt=urn:btih:B022773F152268FC8D0C1A1270B393A9983D1004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Iron Saga VS (2025) [Multi] (1.5.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1DB8BF46E0C42E56B9A346B8F4E7F6DEE6B18D95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

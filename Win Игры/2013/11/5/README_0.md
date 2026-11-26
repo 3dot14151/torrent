@@ -21,8 +21,7 @@ Journey of a Roach (2013) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:2F9EEDB2F47879EF884BA82474E6DEC5C9EB5508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Assassin's Creed IV: Black Flag [PS3] [EUR] [En] [FULL] [4.46] (2013)
 ```bash
 magnet:?xt=urn:btih:4086AF782E89DFE89869318C4515248D671C58A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D37E2EFA86EDEED0409D9A15CCDE10B1DFBE4F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Minecraft — игра жанра «песочница», которая поз�
 ```bash
 magnet:?xt=urn:btih:53961AABD2EE0B71A9B76608A1D7B51BF3112EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFBA11945F58AF42513332AB4796AE51145369FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:233C600FF57085B0A846D06A0C06FD6B364F356E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ SurCode for Dolby Digital® 5.1 Encoder for Adobe Creative Cloud 1.0.1.55 RePack
 ```bash
 magnet:?xt=urn:btih:553E24AE73CFE0369565CFB61F2B271590118548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ How to Survive (2013) [En] (1.0.0.0) SteamRip R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:3C1D03E2FF8BC36B51237D9EB0E8D795E55C7F75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Microsoft .NET Framework 1.1 - 4.5.1 Final (с интегрированным 3.
 ```bash
 magnet:?xt=urn:btih:7F1647E7520E058BBDF90F5CE96EA1CBD19FF2B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D36B73BD9E1B157304A56D939F7AEBFC5751F117
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAD8FA7DAC31D8E8A8F76CDB83E79F438BCC8CFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

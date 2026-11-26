@@ -22,8 +22,7 @@ Alice in Chains — американская рок-группа из Сиэтл
 ```bash
 magnet:?xt=urn:btih:D4321F77154E854F08DB88D4B5D9FAFA56DCF662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lake of Tears (с англ. — «Озеро слёз») — шведска�
 ```bash
 magnet:?xt=urn:btih:48B2686D3E950699D7DFEE40C0A0AF91CE42D1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Chronicles of Magic: Divided Kingdoms / Магические Хроники: Р�
 ```bash
 magnet:?xt=urn:btih:8FDED447909741C597C739B927D1FD7B77447C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enoch: Underground (2018) [Ru/En] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:FB01E2AB7FF9F30727E03DB571A312DF69077203
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

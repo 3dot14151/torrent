@@ -19,8 +19,7 @@ Final Exam – кровавый платформер, наполненный е�
 ```bash
 magnet:?xt=urn:btih:905DAFA10D6A9AFA6800C4E41B4399BA873BEAD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

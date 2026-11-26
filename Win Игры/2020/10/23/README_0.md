@@ -19,8 +19,7 @@ Whispered Secrets 11: Morbid Obsession (2020) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:FCB60DFC33EEC65A49E948B878B71521271AFBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ScourgeBringer от создателей NeuroVoider – это динамичн
 ```bash
 magnet:?xt=urn:btih:B130565624A5C0C9614EA30268A0F7CF0731CC38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

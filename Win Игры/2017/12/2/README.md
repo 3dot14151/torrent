@@ -19,8 +19,7 @@ Edna & Harvey: Harvey's New Eyes (2012) [Ru/Multi] (3.0.0442) License GOG
 ```bash
 magnet:?xt=urn:btih:CAE4AECCB2E6DE5159E59FEF33BC4111802F3CAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PayDay 2 - продолжение игры PayDay: The Heist, рассказыв
 ```bash
 magnet:?xt=urn:btih:384E90EABDB3A00FBFA8DB90D3536D2A6F7377F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Black Mirror (2017) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7AD47907BEDBF2A0D51A1B0FAE823B367B334E94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

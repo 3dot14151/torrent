@@ -19,8 +19,7 @@ Dead Reckoning 5: Snowbird's Creek / Точный расчет 5: Залив С�
 ```bash
 magnet:?xt=urn:btih:D438884C9AD51407F68B20D1B0A8D486663275FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Reckoning 6: Death Between the Lines / Точный расчет 6: Сме�
 ```bash
 magnet:?xt=urn:btih:FE6EAF09B18BDAA7FB393FDAC7D087B2E0CEE69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vermillion Watch 2: Fleshbound / Алый дозор 2: Бремя плоти (2
 ```bash
 magnet:?xt=urn:btih:08807DAC77D4A726464AFE8D132314A0E584076F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RiME (2017) [Ru/Multi] (1.04) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:C64B40138B73BB323A49A19D039E858729E032A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Children of Zodiarcs - это сюжетное-ориентированная т
 ```bash
 magnet:?xt=urn:btih:9184CA670723951073F91DBE4ACA5FECBB7F2ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

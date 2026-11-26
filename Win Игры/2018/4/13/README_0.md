@@ -19,8 +19,7 @@ Solas and the White Winter (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1FB3F9172CD9441D7DC384DF8D702BCD065AA599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B3A9D5A13C07A7ACD9889C401766AA91E26D1F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Amberskull (2018) [Ru/Multi] (1.1.2) License PLAZA
 ```bash
 magnet:?xt=urn:btih:059B2F819E4DCC33D0BCD8D23E37DF17DD7A31B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Riverhill Trials (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B1831C442A9F8C8A427E67ACB0C9BB8A46FB78EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SINISTRY SILINIUM - это психологический хоррор с эле
 ```bash
 magnet:?xt=urn:btih:049C16BF66D0DB2CFAA6925AD6F026E8638BC063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

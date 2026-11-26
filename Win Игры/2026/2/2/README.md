@@ -19,8 +19,7 @@ Worldwide Rush позволяет вам испытать управление �
 ```bash
 magnet:?xt=urn:btih:DCA3C83048A4A0469B0D8E16624DCCBF90F2F03C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Foundation: Новая эра в средневековых строительн
 ```bash
 magnet:?xt=urn:btih:78879BD10849CCD3C718905026414C6249CE7B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Agatha Christie - Death on the Nile (2025) [Multi] (1.3.0_20251017-215031) Licen
 ```bash
 magnet:?xt=urn:btih:1BC036B3C94A9DEBE443D059FF84702D04FBD84F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Anno 1800 – возглавьте промышленную революцию! 
 ```bash
 magnet:?xt=urn:btih:3232E0C68261045A207E8106CD7BC2433B2544E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ DeadCore Redux (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8CFAE09EE2FF9E1C86465E0AC6BCCAE0E54CC0F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Styx: Shards of Darkness – это сиквел игры Styx: Master of Shadow
 ```bash
 magnet:?xt=urn:btih:710DD998C45E400E56250442F70CEBC30DAB4CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Animal Shelter 2 (2025) [Ru/Multi] (1.1.0/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:AA2D4389919EE19F060C161D2BE21EAF74A8566D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Anno 1800 – возглавьте промышленную революцию! 
 ```bash
 magnet:?xt=urn:btih:204FB80DF9C17637E5CABC2A4D29DB9EAA21C0AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Hidden Portals 2: Chronicles of the Sunbound / Скрытые порталы 2: 
 ```bash
 magnet:?xt=urn:btih:0E2AA01623CB6E1DC80E7613C1F9A9AB62BCA430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Bye Sweet Carole - это уникальная хоррор-игра, сочет
 ```bash
 magnet:?xt=urn:btih:08F8C7561DA52FAC938E1B9B2B55E26744C18461
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

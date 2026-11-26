@@ -19,8 +19,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20220103.476/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0B2131D0F5BB001F6E03A5F4166AFF735C137CFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XCOM: Отряд «Химера» открывает новую главу в и
 ```bash
 magnet:?xt=urn:btih:50082F13232DC7D966979A34DFDFF1E260E747DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

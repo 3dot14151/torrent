@@ -19,8 +19,7 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 ```bash
 magnet:?xt=urn:btih:6AB447A5AFC8B004FDA90D8A0F77B9CE883F8DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

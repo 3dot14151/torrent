@@ -22,8 +22,7 @@ Vicious Rumors - метал-группа из США (Санта-Роза, Ка�
 ```bash
 magnet:?xt=urn:btih:913192E0AFA562CF7F783EC968C28A2F266DDC0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

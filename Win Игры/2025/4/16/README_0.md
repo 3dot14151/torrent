@@ -19,8 +19,7 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 ```bash
 magnet:?xt=urn:btih:0E828028610CDFFF50B8E54644D1B1E91F730924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (Build 18097949) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:6D965BB282BF5D9DBA278503B782626750BDFD55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Barotrauma - сайд-скроллер, позволяющий играть по
 ```bash
 magnet:?xt=urn:btih:DE6BFD459AA7608F0907976B5294927D39BA23D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:37FF43F49E5C5E8B76E0FABB82C334394AD51523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (Build 18097949) Repack FitGirl 
 ```bash
 magnet:?xt=urn:btih:DF939AB2433BB0BF23CA980933E70A0BEFF47DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

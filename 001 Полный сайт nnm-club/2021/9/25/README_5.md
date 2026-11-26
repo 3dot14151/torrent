@@ -18,8 +18,7 @@ Kena: Bridge of Spirits – сказочное приключение в оча�
 ```bash
 magnet:?xt=urn:btih:DB4FA1EE8835CF2072311CEBDFBDAAFE40076DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Windows 7 SP1 (x86/x64) 52in1 +/- Office 2019 by SmokieBlahBlah 2021.09.19 [Ru/E
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ AllWinUSB Constructor by SmokieBlahBlah 2021.09.20 [Ru/En]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

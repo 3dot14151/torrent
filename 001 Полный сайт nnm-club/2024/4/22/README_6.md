@@ -18,8 +18,7 @@ BananaVisualLibraries - программный продукт от BananaBrain, 
 ```bash
 magnet:?xt=urn:btih:1D226BFB74A6DD630AC85B6FE5278FCCE6226E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Music News vol.368 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:74FFA16AB26B487F8B96A0C40EAB6EB161B7B852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

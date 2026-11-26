@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:25633983FF37DD93109758E3CB75AAF538419BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rais Ais Gu | Нейросети. Всё что нужно новичку для
 ```bash
 magnet:?xt=urn:btih:DDAB93A3FAE695273FD243117E8814870D07F758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

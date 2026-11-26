@@ -19,8 +19,7 @@ On The Verge II представляет вам историю конфликт�
 ```bash
 magnet:?xt=urn:btih:E8A4DFF76DC6B13BC0F42E9B91442B0C5BC619D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

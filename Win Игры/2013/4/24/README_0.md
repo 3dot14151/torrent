@@ -21,8 +21,7 @@ Kairo - атмосферная 3D-бродилка с головоломками
 ```bash
 magnet:?xt=urn:btih:529EBFD5C45CFC4A0722EE8235B1B03EC371F3C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Helldorado (2009) [Multi] (2.00) License GOG
 ```bash
 magnet:?xt=urn:btih:57DEABBCDFDFE1D3816437CE0E4F42B8A35B8DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yuletide Legends 2: Frozen Hearts / Святочные истории 2: Хол�
 ```bash
 magnet:?xt=urn:btih:7A663110EE133D117B0EEED5F6AC520F6B689007
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NecroVisioN + NecroVisioN: Lost Company (2009-2010) [Ru/En] (1.2/1.1) Repack R.G
 ```bash
 magnet:?xt=urn:btih:0D997BAF0C633DB43AB4C9C1923863A2117513A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 ```bash
 magnet:?xt=urn:btih:F304493D964088622032223DFD057161C01D38DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 ```bash
 magnet:?xt=urn:btih:9D2A3846813F18F7CA4A00F73BEB0B6977016BAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ FoneLab Data Retriever - это безопасный и удобный инст�
 ```bash
 magnet:?xt=urn:btih:7167C435B39D011E529C3884FB1D715AFC8D3887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

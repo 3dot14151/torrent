@@ -22,8 +22,7 @@ AC/DC - Fly On The Wall (1985) Reissue, Remastered, 2003, [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:0193CFBE56400BB38A43F69FBF3A1CAADF1CAC13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ FEX - Skyscraper (2025) [APE|Lossless|image + .cue] <Rock, Blues Rock, New Wave>
 ```bash
 magnet:?xt=urn:btih:AACBD6D16E4E00AA692E1D04AB00D5E9E4A56017
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ John Robert Cocker начав свой путь как неудачливый п
 ```bash
 magnet:?xt=urn:btih:470C1E86DBA65CF6442A4F646C54B630E0C96598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

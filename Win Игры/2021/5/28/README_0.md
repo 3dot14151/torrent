@@ -19,8 +19,7 @@ Narita Boy (2021) [Ru/Multi] (1.0.1.61) License GOG
 ```bash
 magnet:?xt=urn:btih:58CA58DA2145E5E6CB6E23CBC0E87A9E967730D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jump King - хардкорный платформер, где Вам в роли
 ```bash
 magnet:?xt=urn:btih:99D3DB0F20442EA337ADAB671EDFFD02D29E9F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Samson - криминальный экшен, пропитанный эстет�
 ```bash
 magnet:?xt=urn:btih:5901F32973E346D20D55F0D6245E5C8C61E6949D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eastern Era (2026) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5A2D89BFA7D45EC210098402014E7D96D403174B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Legendary Tales 5: Price of Power / Легендарные предания 5: �
 ```bash
 magnet:?xt=urn:btih:F13F9E0346212BDF3DB080BF8B1BAF44226F4B8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Spark in the Dark - атмосферный Dungeon Crawler в средневек
 ```bash
 magnet:?xt=urn:btih:C5ADFC05804400A2996EE1FFA452C3AD6CE0E96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Oddworld: Soulstorm - это взрывной приключенческий э�
 ```bash
 magnet:?xt=urn:btih:05F68D828EA138674C27CDC430386695D7AC70EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Old World - это историческая стратегия, в которо�
 ```bash
 magnet:?xt=urn:btih:FFF438598354462D67CEB61E5273985A840C8ACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Oddworld: Munch's Oddysee (2016) [En] (2.0.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:11A88F9AC181461A15223DBAFC509CF05A854631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Crime Shadows: Stolen Spotlight / Криминальные тени: Украд�
 ```bash
 magnet:?xt=urn:btih:1FAEE3F4EDC537B60AC0F459000BAE80C158DB45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

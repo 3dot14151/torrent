@@ -19,8 +19,7 @@ Defense zone 2 HD - вы решили развлечься или сразить
 ```bash
 magnet:?xt=urn:btih:1310DC239C863AB725831D7697BDD04B776857A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Restless(   Читать дальше...   )Жанр: Speed, Thrash MetalПр
 ```bash
 magnet:?xt=urn:btih:961B776B4A590EBFCAA0FCE6F0AD12CD6C7AA0BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Believer - Sanity Obscure (1990) Released 1991, R/C Records [FLAC|24/192|image +
 ```bash
 magnet:?xt=urn:btih:C4698C29E334DD4E360F1CC314FF5D8395B6BECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

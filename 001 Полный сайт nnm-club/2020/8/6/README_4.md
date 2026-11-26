@@ -18,8 +18,7 @@ Subnautica - это ролевая игра от создателей Natural Se
 ```bash
 magnet:?xt=urn:btih:E7F31F8196A3D2E5E5E13A69BD4DD666D34285CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ AdAway 4.3.6 и 5.0.6 Beta [Ru] - Блокировщик рекламы
 ```bash
 magnet:?xt=urn:btih:54AB0B15657CAAE05993578920B510C05FEB899C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8BDF9854C04EA72F3B8BA9131A5F28E04AFFE0F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lucky Patcher 8.8.9 [Rus/Multi] - Патчер к большинству про�
 ```bash
 magnet:?xt=urn:btih:0E7C84FB92DB314CC74608A20A4C105FA3D47D9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

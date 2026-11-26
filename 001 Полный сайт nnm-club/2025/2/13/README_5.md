@@ -18,8 +18,7 @@ Clone Drone in the Danger Zone – увлекательная аркада, в �
 ```bash
 magnet:?xt=urn:btih:07AF15588EFD62EDD5461FC901AFB19E8DA72B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

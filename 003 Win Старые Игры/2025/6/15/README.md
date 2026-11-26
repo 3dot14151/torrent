@@ -19,8 +19,7 @@ Warhammer 40000: Rites of War сильно отличается от други�
 ```bash
 magnet:?xt=urn:btih:9EEDC1659ED9263EBC8E1BE15381D2E4146A3252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

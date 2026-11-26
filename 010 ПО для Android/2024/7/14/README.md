@@ -19,8 +19,7 @@ Reface: Face Swap AI Generator v4.16.0 Mod by Mixroot [Multi]
 ```bash
 magnet:?xt=urn:btih:97C31048A97DA3D1B714F627DB869B03C5DD1A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bazaart: Photo Editor & Graphic Design v2.6.3 Mod by NURIK kz [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:002ABE52344374F727D1AE210B6EFF4E9FC54FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BlackCam – черно-белая камера для Android. BlackCam пом�
 ```bash
 magnet:?xt=urn:btih:066BD46D838BA4DC5649E5F72E632A9B0FF91636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:C6CBB7948136EB7865EC3BCE9066EF99211DB20A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ FolderSync обеспечивает простую синхронизацию ф
 ```bash
 magnet:?xt=urn:btih:7A961A34A43C1817D784C1C2FBAC6FD59CD602D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

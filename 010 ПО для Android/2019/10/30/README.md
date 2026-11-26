@@ -19,8 +19,7 @@ WiFi Warden — приложение для сбора данных о сети 
 ```bash
 magnet:?xt=urn:btih:664FD45F7E01EE25DE4535DB1F3D0A130B237454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

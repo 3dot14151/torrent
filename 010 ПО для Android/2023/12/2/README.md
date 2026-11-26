@@ -19,8 +19,7 @@ Polarr v6.8.13 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FD33523BBBF6D3AEB87F3CA00AAEE0F03037F66D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:8B8040A393E618696FAC87353579C3CD3BCDC4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

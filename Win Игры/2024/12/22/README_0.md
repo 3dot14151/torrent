@@ -19,8 +19,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack dixen18 [VR]
 ```bash
 magnet:?xt=urn:btih:E8AAF9FCB898120227D0DC96FBD77589F3E2284E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 ```bash
 magnet:?xt=urn:btih:58A8E5A1EB59304EFE3C09B1AA6A171440118E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sifu - это новая игра Sloclap, независимой студии, 
 ```bash
 magnet:?xt=urn:btih:2448CDB70BC08020770DA10366562F897C9369E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ WARNO (2024) [Ru/Multi] (141373/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0D8068E4FC549B17C0E58925DCB700E67FBB133D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ VOIN (2024) [Ru/Multi] (0.1.0) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:9643372B8F333CA48B68CBCF28CF2EE60A2AFB3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ruined Nurse - это приключенческая адвенчура, соч�
 ```bash
 magnet:?xt=urn:btih:7E37E783C498B6E856F6354D63F0454AA385408F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E3748EF9CA7B64F67393A85AC88F99F390974972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Atelier Ryza 3: Alchemist of the End & the Secret Key (2023) [Multi] (1.7.0.0/dl
 ```bash
 magnet:?xt=urn:btih:236F4AC50CD51B549E126C6771F75CF44BC2A0E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Oxygen Not Included (2019) [Ru/Multi] (647408/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E20854EC6C61CFBD94C3B956675B11B770107626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Neptunia Game Maker R:Evolution переносит игроков в альте�
 ```bash
 magnet:?xt=urn:btih:C713BC218180531BF87E700FB359B03FBA8E30BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C8C22CD4645D1AFF24B64AB274530E13065897D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Fritz Powerbook 2025 содержит 25 миллионов дебютных п�
 ```bash
 magnet:?xt=urn:btih:8D8B0A36D809F2D736CD72BCFEE534D31472147B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

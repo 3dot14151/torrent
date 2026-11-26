@@ -19,8 +19,7 @@ Jewelleria / Ювелирмания (P) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:2B722E8F1B76FD28BC2E30561D4ABA8C235550EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Saving Private Sheep (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:4F56F422302126B0BB497390BEFEC666E804D8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Encyclopedia of Patience. Vol.3 / Энциклопедия пасьянсов. �
 ```bash
 magnet:?xt=urn:btih:4F415381A168D294E523FAF0503FAF4741DD39B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Encyclopedia of Patience. Vol.4 / Энциклопедия пасьянсов. �
 ```bash
 magnet:?xt=urn:btih:FD17714F71827AB0A1F133A0235FE238849FDE2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Encyclopedia of Patience. Vol.2 / Энциклопедия пасьянсов. �
 ```bash
 magnet:?xt=urn:btih:C874796DC96A0CFDEA77153079D24AEA5B1245D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Encyclopedia of Patience. Vol.1 / Энциклопедия пасьянсов. �
 ```bash
 magnet:?xt=urn:btih:1441D29BBB28F0BD8BB32821C3F0897908BA363A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Хри
 ```bash
 magnet:?xt=urn:btih:B78AC4AD8380CDF662BC646B3C722BAF9A22AB7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

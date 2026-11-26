@@ -19,8 +19,7 @@ Quasimorph, захватывающая мрачная пошаговая рол�
 ```bash
 magnet:?xt=urn:btih:BED85784B7ACCA7EF6A99706F477F33CC4A95A42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vampire: The Masquerade – Swansong погружает в мрачную все
 ```bash
 magnet:?xt=urn:btih:03B35D079E85F7D7E723E0983270BC6BDF40F6B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vampire: The Masquerade – Swansong погружает в мрачную все
 ```bash
 magnet:?xt=urn:btih:803740576B95E87099561E77AF79572A112A278C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

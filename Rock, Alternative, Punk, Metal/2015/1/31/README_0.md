@@ -28,8 +28,7 @@ Hate - Crusade:Zero (2015) Limited Edition [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:F683CCB8E7E0A7953AEDF65AA8660D62A9DA489E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Keep Of Kalessin - Epistemology (2015) Limited Edition [MP3|320 кб/с]<Melodic
 ```bash
 magnet:?xt=urn:btih:FA9EB25E6640D0A856BC94DC57B94B88D984EDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Hate - Crusade:Zero (2015) Limited Edition [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:CC4C72ED2109662FAC3456D2CCAFB32F3C140F8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ S.O.T.O - Inside The Vertigo (2015) [FLAC|Lossless]<Power/Progressive Metal/Hard
 ```bash
 magnet:?xt=urn:btih:0C4D6DCE32A164ED5FB10D2E6C823E64C749E628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Miellnir - Incineration Astern (2014) [MP3|320 кб/с]<Viking Metal>
 ```bash
 magnet:?xt=urn:btih:00C4EC9ABBDC0BC9A7D173FD3EFE043A2C98221C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Ryan Bingham - Tomorrowland (2012) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:2518BAADF58F526B13FBADD75F745E40B60B9D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Thulcandra - Ascension Lost (2015) Limited Edition [FLAC|Lossless]<Melodic Black
 ```bash
 magnet:?xt=urn:btih:A8F4653F3886AD139D56334D86AB6ABABF45C97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ Angelus Apatrida - Hidden Evolution (2015) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:3A3FA591C7B92E472E59B0DA45A2732DCC0B5B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Pixies - Come On Pilgrim (1987) EP /2003, 4AD/ [FLAC|Image+cue]<Alternative/Indi
 ```bash
 magnet:?xt=urn:btih:7C686269E4E708306042B338DB7DF7D3DFBECADE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +332,7 @@ Level 10 - Chapter One (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:F79C9062E79035B58EA05B01CC4EE744C76BE3CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +366,7 @@ Napalm Death - Apex Predator - Easy Meat (2015) Special Edition [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:C5FABA89608D471D68AC3DDD9CFA7FF03FA6A2A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +400,7 @@ Diablo Blvd - Follow The Deadlights (2015) Limited Edition [FLAC|Lossless]<South
 ```bash
 magnet:?xt=urn:btih:4A6115160D320794CD0B5C3BB6B3505155DE7F79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +434,7 @@ Enter Shikari - The Mindsweep (2015) [FLAC|Lossless]<Post-Hardcore / Electronic>
 ```bash
 magnet:?xt=urn:btih:85D75B6E565AD7C78204DDDDF07A34D7A8FEF245
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +468,7 @@ Jorn Lande & Trond Holter - Dracula: Swing of Death (2015) [FLAC|Lossless]<Heavy
 ```bash
 magnet:?xt=urn:btih:BF0333F1995450BEB9C0CE08AC495A7A15259AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +496,7 @@ Papa Roach - F.E.A.R. (2015) [FLAC|Lossless]<Alternative Rock, Modern Rock, Elec
 ```bash
 magnet:?xt=urn:btih:A7E4052BA9C6E3ECAAAC629E0B07F84FBD70EE70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

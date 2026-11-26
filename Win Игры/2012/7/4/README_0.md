@@ -23,8 +23,7 @@ Vessel [Multi5\+] (RePack/1.13) 2012 l R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:C1853390788C4BE651B0AEAAF80E6B720DE0D6DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Xonotic — свободная компьютерная игра в жанре �
 ```bash
 magnet:?xt=urn:btih:40D11F9C0DA9896ED832A22AC058A54287A4F039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Dead Island сочетает в себе экшен с видом от перв�
 ```bash
 magnet:?xt=urn:btih:6A7474FB27C162CEA330187CF33E851BE32511E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ FlatOut 3: Chaos & Destruction [Ru/En/Multi7] (L/1.04) 2011 l R.G. Origins
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Quadrant Episode 1-3 (2015-2016) [En] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:AB3D5850C46FE00A9D4A5540B8A2F42476085C09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fleeting Ages (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:D85BDF362EF7A0A53553D58FE1050A14143D0346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Sylvio – приключенческий инди-хоррор от перво�
 ```bash
 magnet:?xt=urn:btih:5100FF75BED502E87C5557035AD68EA3B684CE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Shadow Complex Remastered - это переиздание игры Shadow Comple
 ```bash
 magnet:?xt=urn:btih:199D0FC846A1CC8977A9A0C5F6DDA84C11342589
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

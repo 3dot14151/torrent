@@ -25,8 +25,7 @@ Chris Smith | Programming F# 3.0, 2nd Edition [2012 October] [PDF]
 ```bash
 magnet:?xt=urn:btih:1FFA1986921F11CEB7FC60EE38A31B2B643055CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDF3E12CCE63ECB90BF2168C4D17BC44EB77E38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pure (2008) [Ru] (1.0.0.1) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F84028B77F7EB93D438007E50F31AC0618C81421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Forest (2018) [Ru/Multi] (1.08) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F47C716F0FBAA71B0A9C6D5CBB864F7D56AD2BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ State of Decay (2015) [Ru/Multi] (1.0/dlc) Repack xatab [Year One Survival Editi
 ```bash
 magnet:?xt=urn:btih:9263EE3E5BBA676EDB9B04B895777F8685DD6BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

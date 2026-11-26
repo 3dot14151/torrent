@@ -18,8 +18,7 @@ Winnie's Hole (2026) [Ru/Multi] (0.7.79) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:BCBAC617A89475511EAD935CC6BE181270F1AF31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

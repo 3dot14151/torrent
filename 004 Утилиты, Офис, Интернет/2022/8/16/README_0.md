@@ -19,8 +19,7 @@ StudioTools 26.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A829EDC48AA7AD09AE76EE97421266A17702E0D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

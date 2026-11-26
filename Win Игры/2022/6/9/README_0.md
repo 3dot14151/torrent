@@ -19,8 +19,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0.4/dlc) License GOG [The Collection]
 ```bash
 magnet:?xt=urn:btih:389C14718088447FA13572E9550EF8EA1F3083A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ GPX Viewer PRO v1.40.4 [Ru] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:FF2E4C1727BE40D55173A553BDF956A17799A1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

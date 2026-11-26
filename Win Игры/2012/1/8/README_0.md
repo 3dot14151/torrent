@@ -19,8 +19,7 @@ Ancient Quest of Saqqarah {1.19} (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:BF12E9149D1BCBFE65A5F8953E30AEFC73C77549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales 2: The Legacy Collector's Edition / Страшные сказки: П
 ```bash
 magnet:?xt=urn:btih:AA844E29DC663994ACEB27DEC0AA291FFC0F78B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ The Chronicles of Riddick: Assault on Dark Athena — компьютерная �
 ```bash
 magnet:?xt=urn:btih:44C3DF3237A98576BA58AC21F0E826019887BDEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Spider-Man: Web of Shadows [Ru] (RePack/1.1) 2008 | R.G. UniGamers
 ```bash
 magnet:?xt=urn:btih:8B459E809AB2F4173C1AABCE4C3DE3BD33B2277F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

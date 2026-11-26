@@ -21,8 +21,7 @@ Confrontation (2012) [Ru] (1.0.0.19003) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:1EDF00E44F364B32CA67CCDE05BF5F46B84C2970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

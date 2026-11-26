@@ -19,8 +19,7 @@ Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0/upd4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2E144722AD5B13287AB9745B9D9CBFE095FB3EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

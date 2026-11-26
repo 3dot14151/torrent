@@ -22,8 +22,7 @@ Masterplan - Metalmorphosis (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 ```bash
 magnet:?xt=urn:btih:71E3C26BB0087E43ED00E3E41035885951A94206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

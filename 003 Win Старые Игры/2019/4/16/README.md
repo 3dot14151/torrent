@@ -19,8 +19,7 @@ Massive Assault (2003) [En/Fr] (1.2.204) License GOG
 ```bash
 magnet:?xt=urn:btih:853D61060B4C4F0AD57471DF4B140504FF85D370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Massive Assault: Phantom Renaissance / Massive Assault: Расцвет Лиги 
 ```bash
 magnet:?xt=urn:btih:23168FED878019504FF5313C3C4CC8FBAD7AE627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Perimeter / Периметр (2004) [Ru/En] (1.03.19064) License GOG
 ```bash
 magnet:?xt=urn:btih:5664BC4CD59096179C4463C89BCC8EF6A082FB39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

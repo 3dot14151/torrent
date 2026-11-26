@@ -19,8 +19,7 @@ Dreams from the Past [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:1F6036CAF6F19C32BAF6A09CB9EB3DC58EFE26B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Judge Dee: The City God Case [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:BC9C34EEAEA54EF2E04ABB0CF3F2833D9B0896B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dark Fall Трилогия [Ru/En] (Repack) 2002-2009 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:0054E563C5284DD01889A89920A66F9798431215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Deep Voyage 3 (2021) [AAC|~321 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:419082BC99FAC2EA66896594A09AD53E0D454EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Deep Voyage 1 (2019) [AAC|~326 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:334D61AAF68E802F3B009ACB6015E47DA27CCDBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Bar Lounge Costes, Vol. 3 (2020) [AAC|~321 Kbps] <Lounge, Chill Out, Smooth
 ```bash
 magnet:?xt=urn:btih:102EFA2C59EF1E89ACE5F48D5AB855729DF468DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Bar Lounge Costes, Vol. 2 (2019) [AAC|~299 Kbps] <Lounge, Chill Out, Smooth
 ```bash
 magnet:?xt=urn:btih:8A3527BC91E2FB9074CA878E00F4078FF84418E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Bar Lounge Costes, Vol. 4 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Smooth
 ```bash
 magnet:?xt=urn:btih:1B06FFC4A1254754F05A0D1E27EF750DF5FA150F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Delicious Chill: Urban Chillout Music (2022) [AAC|~315 Kbps] <Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:8D0472F27B1A48934428F1FBFE7AC3C369879D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 2 (2018) [AAC|~323 Kbp
 ```bash
 magnet:?xt=urn:btih:53DBBFE47CFC39EB8C66F25199621D8284FEA93D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Sunset Emotions 3 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:04C7499597A0F3B531DB00CECE2467B7582178AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Sunset Emotions 2 (2020) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:E1BEDA0875E0B98C9D70B6FB1ACA6EE837B6EC5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Sun Travellers, Vol. 4 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:6F5B396F40FDD0792E032B15B9716D2CC9513B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Sunset Emotions 4 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:CF10BBA0EDB3C783E8C9755018F4B0075D778B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Clipboard Manager 2.3.4 [En]
 ```bash
 magnet:?xt=urn:btih:B6DC3414D1660200D0521D01D1B9A93340021FBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ VA - DNBB Recap 2021 (2021) [AAC|~319 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:CBAEB764332FAC53F385039188B70FD16E734B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:A1924FC4FC8E1729B9C7985F2C059B679C60C56B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ Yate был разработан для людей, которые серьез�
 ```bash
 magnet:?xt=urn:btih:81DB254654DA56D14C879CE75F30667126EA2507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +437,7 @@ VA - Liquid Flow Recap 2021 (2021) [AAC|~315 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:54376D2F199BF25C682FAA1D8D615173CEAFAB29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +462,7 @@ Boxy SVG 3  v3.74.1 [En]
 ```bash
 magnet:?xt=urn:btih:D529BA88E7529773774F6069E094481CCFB15703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +490,7 @@ VA - Sun Travellers, Vol. 1 (2019) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:5BE8BECAB16324CCA74418AE2DE89FF2681D70A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ VA - Sun Travellers, Vol. 3 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:7C30A75AF220854AD10B78414BCB06C16E1783A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ VA - The Essential Downtempo, Vol. 2: Chillout Your Mind (2022) [AAC|~335 Kbps] 
 ```bash
 magnet:?xt=urn:btih:B7A0738089E78F1E0CF12471D2A3059C5805B691
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ VA - Bar Lounge Costes, Vol. 1 (2019) [AAC|~320 Kbps] <Lounge, Chill Out, Smooth
 ```bash
 magnet:?xt=urn:btih:75AFB1A7F977733F238AF4A41662E337744B42A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ VA - Jazzy Weekend, Vol. 2 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Jazzy>
 ```bash
 magnet:?xt=urn:btih:3A4A2C77B65DA1550E3C3D85AF1023ED9175DDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ Cauldron - New Gods (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CF963FD2F14BE595F90DB14C7F9B08CCFD8A14F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +658,7 @@ VA - Sunset Emotions 5 (2021) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:ED42E49914A2B93785F126EF895E2552308A52DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +683,7 @@ CheckBook Pro - это не просто базовый инструмент р�
 ```bash
 magnet:?xt=urn:btih:211F9C8E9D25477106B7651732BF79524FFA39F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -734,8 +709,7 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 ```bash
 magnet:?xt=urn:btih:F317608DF673729997237F70170E5D10A1323144
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

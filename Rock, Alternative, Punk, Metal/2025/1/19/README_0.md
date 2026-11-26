@@ -22,8 +22,7 @@ Steve Booker - Dreamworld (серия "Другие восьмидесятые")
 ```bash
 magnet:?xt=urn:btih:A8F4430669D134440DF34AABEF7E9785810FBDF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pain - Nothing Remains The Same (2002) Remastered, 2025, Nuclear Blast [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:8C95D4B71B4948D6B3176FFCB15E192EC28E0322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pain - Dancing With The Dead (2004) Remastered, 2025, Nuclear Blast [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:EF18D29424B30173700EB05A10642F19F0E0CFB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ One Day Remains - Amongst Beasts & Animals (2025) [FLAC|Lossless|tracks] <Hard R
 ```bash
 magnet:?xt=urn:btih:95D5484A693CFE04D7A72A08E8A31BF819550A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ ZOO Galactica:
 ```bash
 magnet:?xt=urn:btih:FA2FF35F44C2FD9F4D088B07A71B8D50B350D5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Actionfredag - Lys Fremtid I Mø​rke (2024) [FLAC|Lossless|tracks + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:461EA66DD8954043227349A940D9E03F6ABCF3A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +192,7 @@ The Black Dahlia Murder - Servitude (2024) [FLAC|Lossless|image + .cue] <Melodic
 ```bash
 magnet:?xt=urn:btih:4A89955BECA00F2D8841B912B124EBCD0E60684B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ Def Leppard - One Night Only: Live At The Leadmill (2024) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:33CD57F629D33427DFE223C42C5151964561B829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

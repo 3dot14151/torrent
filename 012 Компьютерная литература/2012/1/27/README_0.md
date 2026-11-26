@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:060BD542DB49A6E6D08C5150CBDE7B12B76888B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ ComputerBild - Компьютер. Инструкции по применени�
 ```bash
 magnet:?xt=urn:btih:F34EB26E4FB2DDB2EB0C806E3A252CB13B577ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

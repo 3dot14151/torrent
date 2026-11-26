@@ -21,8 +21,7 @@ Unreal Commander - бесплатный файловый менеджер вып
 ```bash
 magnet:?xt=urn:btih:68EA176CB5F185B517B06C903E0342EC4702BFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

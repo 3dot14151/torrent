@@ -19,8 +19,7 @@ Online Radio Box - это бесплатное приложение, с помо
 ```bash
 magnet:?xt=urn:btih:C757A3174A2F91543BEAA3E12591DC8C1F1B88EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AD55758292D432197404E25296E3A79C837121D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

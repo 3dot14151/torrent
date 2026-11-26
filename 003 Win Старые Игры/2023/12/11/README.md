@@ -19,8 +19,7 @@ Need for Speed Carbon – экшен гонки с открытым игровы
 ```bash
 magnet:?xt=urn:btih:B27411D8F197E65944B181F1E6544BDD5795A36D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Need for Speed Most Wanted – легендарная часть NFS, в кот�
 ```bash
 magnet:?xt=urn:btih:15B0C82FB21CBE5C56E2647BF572D63335DF37B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

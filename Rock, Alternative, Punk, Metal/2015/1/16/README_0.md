@@ -28,8 +28,7 @@ Angelus Apatrida - Hidden Evolution (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:DF5A434E1045D674A6BCD7A6B1FA845403040440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ EPs:
 ```bash
 magnet:?xt=urn:btih:887048C7FE0CA8B2412F571CCC34D7F88BBA7DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Vinyl Theatre - Electrogram (2014) [MP3|320 кб/с]<Alternative, Indie Rock, El
 ```bash
 magnet:?xt=urn:btih:E269877A0D015748C8DBC348229E046DE6CA934B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Creed Fisher and The Redneck Nation Band - Ain't Scared To Bleed (2014) [MP3|320
 ```bash
 magnet:?xt=urn:btih:36CBA0A6A20C1344300907E43419E83571F8F1D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Shadowbane - Facing The Fallout (2015) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:23E65B5DCB08BF99B5A9361B6E21909BE31639B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Blowsight - Life & Death (2012) [MP3|320 кб/с]<Alternative Rock, Nu Metal, Po
 ```bash
 magnet:?xt=urn:btih:77C8236C22E7B9D0F07FDD69E58EBE192186741C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Blowsight - Destination Terrorville (2009) [MP3|320 кб/с]<Alternative Rock, N
 ```bash
 magnet:?xt=urn:btih:09CDA8C13E4E186073E9F6236052817A7B5B0505
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Jenny Lewis - The Voyager (2014) [MP3|320 кб/с]<Indie Rock, Alternative Count
 ```bash
 magnet:?xt=urn:btih:F4C81F5C5998366022B8AE3B235EECF27717B23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ Serious Black - As Daylight Breaks (2015) [MP3|320 кб/с]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:9F52EDCC41946BD207552F5027C0332B445D33AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +325,7 @@ Ice Blue - Back To The Light (2015) [MP3|320 кб/с]<Melodic Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:7CC26176D2470149B2DD5505BA3A3F41033F4FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +359,7 @@ Blowsight - Dystopia Lane (2010) [MP3|320 кб/с]<Alternative Rock, Nu Metal, P
 ```bash
 magnet:?xt=urn:btih:F7C83F4BDEB786E313E534141513894B61084902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +393,7 @@ Iron Maiden - Fear of the Dark (1992) Japanese Edition [FLAC|Lossless]<Heavy Met
 ```bash
 magnet:?xt=urn:btih:594D3ACB5374A0D99748354919E40ABE15FC67FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +422,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51BF6345F2DF033D89D1D0EE0F0B85E3A35AF4F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +456,7 @@ Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:C70AFF54A4D93F5E2F723C157ACFB2431E487597
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

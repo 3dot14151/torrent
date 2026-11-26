@@ -20,8 +20,7 @@ Delta VPN: vpn сервис с отличным выбором серверов 
 ```bash
 magnet:?xt=urn:btih:BD6E2786D9025A69896543FAEE1188F93F980707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|ima
 ```bash
 magnet:?xt=urn:btih:F3C1A7E8EB5C90D93CB840A8050A257FA092949B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Arjen Anthony Lucassen - Lost in the New Real (2012) [FLAC|24/96|tracks|Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:F08B0416DE78605A75E676BE1AAD55DEE51B6E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .c
 ```bash
 magnet:?xt=urn:btih:DC295937AE4BA55A8BC75DBF7D1CE65845E5E42C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

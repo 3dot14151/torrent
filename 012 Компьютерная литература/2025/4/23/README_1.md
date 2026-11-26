@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:473EB23F839FD36B7E151F25EE212F55DF15AACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Implement real-world applications of LLMs (   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:E5955F4F72D443514972BFB8651B54E1AA0830D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Beyond the modules, Mastering Python prepares readers for broader opportunities.
 ```bash
 magnet:?xt=urn:btih:01061A4C6F339E78548037FCBE292BF620936628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

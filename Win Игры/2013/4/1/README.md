@@ -19,8 +19,7 @@ Lost Tales: Forgotten Souls / Рассказы о забытых душах [Ru]
 ```bash
 magnet:?xt=urn:btih:791B1DD5F1C6AD827F5D4AD1CE940EAF8262431C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

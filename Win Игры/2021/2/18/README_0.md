@@ -19,8 +19,7 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FD1A82B490C1A6755FEE4A90ED4F4A49E1AB27C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

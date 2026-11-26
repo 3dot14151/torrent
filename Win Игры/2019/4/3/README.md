@@ -19,8 +19,7 @@ House of Evil — survival horror с видом от первого лица, в
 ```bash
 magnet:?xt=urn:btih:F3E95CE9F9C7C206EBD33693550DB70FB698EDB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reassembly (2015) [Ru/Multi] (2019.03.28/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:D335A4BFD6F18521BDC345AB67F27ABD9A8BFB5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ House of Evil 2 — survival horror с видом от первого лица, 
 ```bash
 magnet:?xt=urn:btih:AEB9CF9718F0630AA30C0A369DBCDBA4BD0F0EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ GoNNER (2016) [Ru/Multi] (1.0.16111501) License GOG [BluEBERRY EDiTiON]
 ```bash
 magnet:?xt=urn:btih:1820EF9ADD6E68E5CFFA3A4FABC6B1B980F81835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

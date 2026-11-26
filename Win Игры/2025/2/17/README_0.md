@@ -19,8 +19,7 @@ Secrets of Magonia (2024) [Ru/Multi] (1.10с) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B845ED4C9874C6F0E08D9F6606595F010946EE41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 ```bash
 magnet:?xt=urn:btih:95A8EB07EA2AAD3724ABD5F83C7EA8D9159D6F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beyond Blue - это однопользовательская игра в сти
 ```bash
 magnet:?xt=urn:btih:45B470AEAA16A9C4C795228BA61DF748BEB49458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Secrets of Salem: Shadow of the Witch (2025) [Multi] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:5F76A8109AB705B90D6149A02B374802B734683B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

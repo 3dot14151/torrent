@@ -22,8 +22,7 @@ A2(a) Kiss Me Honey, Honey, Kiss Me(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Heavenly — пауэр-метал-группа из Франции, основ�
 ```bash
 magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Heathen — группа из США, играющая в стиле спид/т
 ```bash
 magnet:?xt=urn:btih:D3F67AB7F0FAA9CAD2F25CBEEE20A8E1EA2D17AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Myrath (араб. ميراث‎, наследие) — ориентал-мета
 ```bash
 magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

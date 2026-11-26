@@ -19,8 +19,7 @@ Black Future ’88 — это 2D-шутер c элементами roguelike и 
 ```bash
 magnet:?xt=urn:btih:49D23573DA0A3CBCD904D1D57CA9CFE5D70C7B22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Song of Horror (2019) [Multi] (1.31.0.0/upd3/dlc) License CODEX [Episode 1-4]
 ```bash
 magnet:?xt=urn:btih:42FD186025492A3BE63BDB6DF423785611A54DE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Another Dawn (2020) [Ru/Multi] (1.02) License CODEX
 ```bash
 magnet:?xt=urn:btih:C2882F6930807AD59E92D157871584B5677CEDCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

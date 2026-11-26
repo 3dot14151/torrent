@@ -21,8 +21,7 @@ VA - 70s Disco Classics Reloaded (2016) [MP3|320 кб/с] <Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:C79442B267C430F292B902EF1E6E41B6C836FC72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Marty Balin - Balin (1981) [MP3|320 кб/с] <Soft Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:EAF729DF27E8D8740736A2F2497F564925D471F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Зарубежная Дискотека ХХ Века - 14 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:5A87151884702F7FA692D346955FC54A7D701BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ VA - Ibiza In The House (2016) [MP3|192-320 кб/с] <Trap & Bass, Urban, Electr
 ```bash
 magnet:?xt=urn:btih:0DC15084B9A45DA997DE71A11E5C54923ADC970F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ VA - Relaxing Instrumental Jazz Ensemble, Chilled Bossa (2016) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:7808310132E9E4E41982431321BEFE44832D1772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Зарубежная Дискотека ХХ Века - 17 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:C639B7BBF34DB041621F534AE865F2E29412C9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04923835FFEF6E6B46D848AD1ACA0E38C421FAB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Зарубежная Дискотека ХХ Века - 13 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:CB97E537D81B51656A0113775AD48D33303E0927
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:67F52BC82E1574148EB98E81274976B7693358FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ CopyLess 1.8.9 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:473FBB8F780336D8EB335DFB07F29BCC66BAEB8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2A2DED572F67700E99F9808EFB3C72E0FC9F73D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDABA3D9045BF18F2EFD3D8D766ADBA9F1E31D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ VA - Зарубежная Дискотека ХХ Века - 19 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:CAC005868F0697C088D467E2FE05D846E8D9F73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ VA - Студия хитов радио Шансон (2016) [MP3|256 кб/с] <C
 ```bash
 magnet:?xt=urn:btih:2A403DFB1D002296AF0316B27AC6CC0AD60D87D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ VA - Танцевальный Рай: Sport & Fitness Vol 3 (2016) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:CAA3FED4614D32E6F5BE51565A96935B702561EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Kristian Leontiou - Some Day Soon (2004) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:9279F6EBAD8777847DC8AD1B913249BD4C632510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +456,7 @@ VA - Зарубежная Дискотека ХХ Века - 12 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:3300E10D7AA4BB08F9FB38B81BC0EBE964894D2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ VA - Зарубежная Дискотека ХХ Века - 15 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:0F32F17F670D8E05D7C48E46AF257BA310F99570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1518BCC60D623661837D7BFCC8B4B2F0A170B81C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:855F5B2A7F62675D01EAEE09D9A16E6AA5402BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:508C4978A3FFD5B72A2B9C2C02E871476052D4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F077F06A9637A40576FA6223B24CF93BCBFD75FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Instant: The Polaroid Instant Photos 3.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:23F7B28B464E03A5C46EF94BF3F6881514A4D7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ VA - Зарубежная Дискотека ХХ Века - 18 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:261B1542955404CA8D5229C3E121915C8D19CEF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7413DF853F695F1128F203CB1C2FFFA9295AF397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Tantra - The Collection (2013) 2CD [MP3|320 кб/с] <Electronic, Disco, Euro-Di
 ```bash
 magnet:?xt=urn:btih:70ADB6D75278AE3704092C79F701AA629BE35FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

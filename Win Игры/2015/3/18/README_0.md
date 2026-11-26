@@ -19,8 +19,7 @@ The Travels of Marco Polo (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:2FCC678149126318C7E9AA095D3A23788CB5451C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Danse Macabre 3: Deadly Deception / Танец смерти 3: Роковой о
 ```bash
 magnet:?xt=urn:btih:12D83BEC4AE0A218F9ABBAE4E8666C07E41D68F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sea of Lies 3: Burning Coast / Море лжи 3: Пылающий берег (2
 ```bash
 magnet:?xt=urn:btih:02304F7578DE29D166319972CB16666F2388D4D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Oceanhorn Monster of Uncharted Seas (2015) [Ru/Multi] (1.0) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:207E64B2D1806C3768B8E2AEF22EE631357B7C80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Ridge Racer Unbounded (2012) [Ru/Multi] (1.13/4dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:7C302D442F821C4A9F614409671E85AA9CFA362C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Tales from the Borderlands – эпизодическое приключение
 ```bash
 magnet:?xt=urn:btih:BE2508B6532F3004DF3706D33DB8DFE784C7C1A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Woolfe - The Red Hood Diaries (2015) [Multi] (1.0) Repack FANiSO [Volume 1 of 2]
 ```bash
 magnet:?xt=urn:btih:0D36AB05CD9C3B1B1F6878C5DB09172EF2781609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Child of Light (2014) [Ru/En] (1.0.31711/7dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:BA4DBB79AEFA1E33FBE2B5654514B93F81A144A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

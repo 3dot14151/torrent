@@ -19,8 +19,7 @@ Hetman Recovery Software 2024 Portable by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F3211CE5EEC99A8E79D2D6D4402A04940807F9FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SoftMaker Office Professional 2024 rev. S1222.1129 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6B18875641F977AACD6FD908A501CFE53E7AB696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ASCOMP KeyCtrl - это приложение для управления гор�
 ```bash
 magnet:?xt=urn:btih:D0C5160DB8FC20A8C05014D9024D3CBFF97B97F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

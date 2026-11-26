@@ -19,8 +19,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0/upd9) License PROPHET
 ```bash
 magnet:?xt=urn:btih:610BD655A7E7374B5BF6A021701760EBA1D47EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

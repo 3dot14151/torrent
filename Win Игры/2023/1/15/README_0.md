@@ -19,8 +19,7 @@ Demons Roots (2023) [Multi] (1.01/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B49CA9A509F2812587F4C595E9FE9E4CC3E0E841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Save Room - Organization Puzzle – игра-головоломка с 40+ по�
 ```bash
 magnet:?xt=urn:btih:43266B17ACFCB655ED56D473E85EEF69B54CDAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shing! - трехмерный экшен-рогалик, построенный 
 ```bash
 magnet:?xt=urn:btih:EA3ABDFB3DA2DFA4292BEFFD2D87E62FB2DED34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Edge Of Galaxy – стратегия с непрямым управлением
 ```bash
 magnet:?xt=urn:btih:DF0A08B991B5AF4DAAACB753A0E3F77D7545AAA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Criminal Expert (2023) [Multi] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:E4630128B4B87243714D9D0C98DFA1085C1563C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ There Is No Light (2022) [Ru/Multi] (1.1.7.1 ) License GOG
 ```bash
 magnet:?xt=urn:btih:4FD1F3ADE834159EEA7010333A8010D53073FADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

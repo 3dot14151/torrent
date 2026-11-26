@@ -19,8 +19,7 @@ Dais Dark - Poweramp v3 Skin 1.3.7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:74E2A3AF8797160400E1376B5BDDAB1E068C5E4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E5CC03DA15CF2D42C1526250F35C2E343B6D03A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

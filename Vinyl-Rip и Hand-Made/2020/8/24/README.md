@@ -22,8 +22,7 @@ A3.b Blues(   Читать дальше...   )Жанр: Hard RockПродолж�
 ```bash
 magnet:?xt=urn:btih:96584AF4318C25805A10726CAE2BB607AF72A563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

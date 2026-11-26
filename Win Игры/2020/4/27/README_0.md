@@ -19,8 +19,7 @@ Mana Spark (2018) [Ru/Multi] (1.1.08) License GOG
 ```bash
 magnet:?xt=urn:btih:A4AA5E59CA05F83F6E31AE3622B461212C1E913A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (5.9/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:EC69668F7FCAECE8B846621576DCDBF5DE9D49C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

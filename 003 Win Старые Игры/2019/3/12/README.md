@@ -19,8 +19,7 @@ Sniper Elite: Berlin 1945 (2005) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3FEA5844957DD8CE980FB09E449DAD6AEA11F8DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:E72491E780AC0F73FA192BA35302886F9D6C253E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Burzum - Thulêan Mysteries (Thulean Mysteries) (2020) Byelobog Productions [FLA
 ```bash
 magnet:?xt=urn:btih:9463CC270691341EA6A53F3382112FEC6659891F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

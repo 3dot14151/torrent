@@ -25,8 +25,7 @@ Athelstan - The Ride (2013) [FLAC|Lossless]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:B907B204830FAE485C2BFA49F2A01E098A6B4C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Phlebotomized - Skycontact (1997) [APE|Lossless]<Avant-garde Metal, Death Metal>
 ```bash
 magnet:?xt=urn:btih:00FBD3449F9E3E2E86EC41C8ED8F3E82CF059E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Illusion Suite - The Iron Cemetery (2013) [FLAC|Lossless]<Progressive Power Meta
 ```bash
 magnet:?xt=urn:btih:3C4B6C3692AC129129FCB9BEAD5BCC498A90380D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Badfinger - The Best (1995) [APE|Lossless]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:D8103A56AA285CF87405E08B6254123888925B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ ReVamp - Wild Card (2013) [MP3|320 кб/с]<Symphonic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:7A804CD37D54221E9EA4B8C0E5C2DA0F00224334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Crosby, Stills & Nash (1977) - CSN (2013) [FLAC|Lossless]<Soft-Rock,Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:45A065DE7A47B8C9436AA323A7C9FDD045665746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ R.E.M. - New Adventures In Hi-Fi (1996) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:C86A9F9EF127753E5457BFEA2BB36F52E79C9DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Bijelo Dugme - Balade (1997) [FLAC|Lossless]<Rock, Melodic rock>
 ```bash
 magnet:?xt=urn:btih:D1C491D148E1BD9D1012C1534456D61EFBFA59CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +289,7 @@ The Mamas And The Papas - Greatest Hits (1998) [FLAC|Lossless]<Rock, Folk>
 ```bash
 magnet:?xt=urn:btih:3F3392D108805F6822C19BE02F7202620D99C508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE7BEBDDE23B177F54ED7B09928F1BAD96F4A50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +356,7 @@ Janis Joplin - The very best of (1995) [MP3|320 кб/с]<blues/rock>
 ```bash
 magnet:?xt=urn:btih:FB465CDBD6CAED04FF9137D2A55EB949ACAD6B2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +390,7 @@ VA - Melodic Rock 15 Years Later, Vol. 9 (2012) 2CD /2012, MelodicRock Records/ 
 ```bash
 magnet:?xt=urn:btih:B4D76F0AF6778A3742633B0A7422ED04BA70039C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +424,7 @@ R.E.M. - The Best Of R.E.M. In Time (1988-2003) 2003, Warner Bros [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:112F5100CDDECFE62D4F582B5C3AAEE49434975E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

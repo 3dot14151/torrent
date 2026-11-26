@@ -19,8 +19,7 @@ Stray Souls 2: Stolen Memories Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:16F7C20C6D95FA59FEE09BFBC0C1E90FB18D725F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Last Days (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:993936194F00E2368C0F45FD9ED67B64BDF354BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Off the Record: Linden Shades Collector's Edition / Не для печати: Т
 ```bash
 magnet:?xt=urn:btih:DF207C3BAB88D2EB69D529280C1EF57395B65D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Build-a-Lot 8: Mysteries (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:9CC53A6B1378E794AE7D074629CA86BB3862AA65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dark Mysteries: The Soul Keeper / Темные тайны. Хранитель д
 ```bash
 magnet:?xt=urn:btih:8B56E45AB45FFA723C35764E1EC7426022C9ECC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Rush for Gold: Alaska / Золотая лихорадка: Аляска (2013) [
 ```bash
 magnet:?xt=urn:btih:3EC17A70F4C3C23058E8982B9BDC6E3ED518E096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

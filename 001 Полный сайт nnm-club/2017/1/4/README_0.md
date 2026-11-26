@@ -21,8 +21,7 @@ VA - If House Like To Party (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:519E81750EF90AC136D84617AED045024A4A1C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Global Chillout Ambient: New Year Pack 2017 (2016) [MP3|320 Kbps] <Downtemp
 ```bash
 magnet:?xt=urn:btih:2061C9472F7A125FD4F56418323C99F2BAF5AA76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ VA - Bikini Lounge: The Best Chillout 2017  [MP3|320 Kbps] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:96A1E6405E5A054062A7D0CD2188A6AF98428F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ OmniFocus 2: когда время — важнейший ресурс
 ```bash
 magnet:?xt=urn:btih:F7DDDF0FDFA2A2BF1CB7C2EA7B2A7C05FF8B3300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Late Night Acoustic Sessions (2016) [MP3|320 Kbps] <Downtempo, Chillout, In
 ```bash
 magnet:?xt=urn:btih:63324CD36801345FF14EAF55D3E781C378569D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ PDFpen Pro - Программа для создания и редактиров�
 ```bash
 magnet:?xt=urn:btih:3A9327F89A156059EBFAA1188C07DE285E2E7D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Spring Blossom: 20 Smooth & Relaxing Jazz Lounge Tunes (2016) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:F939AD5D48A23CF9BE053AD81157111C4CF3C959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37701EB2E96C9D05894FB292B032E7C690E875F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Acoustic Songs: 14 Classic Songs Reimagined Acoustically (2016) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:50BB2C48231AA26AF407B7C975A574669F5B4355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ VA - Блатной шансон на любимой волне. Часть № 
 ```bash
 magnet:?xt=urn:btih:ACA7E68642E512EEF1BA5C8D9EC506C36230A7E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Romantic Lounge Music Winter Session (2016) [MP3|320 Kbps] <Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:AB10761D91A8EE786BE7A631A74A89D89E5C6C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:E01F819F9C15F5D497EF8989F5AC20320F6213C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ VA - Русский зимний музобоз (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:04622693EDDD9943B6D0B487F97745674E952EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ CalendarPro for Google успешно оптимизированный Google Ca
 ```bash
 magnet:?xt=urn:btih:FBD6ABF7CD7AD985C41C6EEB3C9E60D8B5C7BF4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ VA - Гуляночка от радио Шансон Выпуск № 10 (2016) 
 ```bash
 magnet:?xt=urn:btih:BF31F7A082CBB4415A2107F8CC37C3D666EF5F30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ Lyrice: Renè FortranЖанр: Italo-Disco, Synth-popФормат: EP, Maxi-Sing
 ```bash
 magnet:?xt=urn:btih:334D7DD34AAA65724BA610C3711ADF455EF75B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Review Command представляет собой инструмент для �
 ```bash
 magnet:?xt=urn:btih:9CA9C2E55B60A9AF9C890CD28F1B241E0C753ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75A250FEF65B8C3EFF5E99BE8D5918D1055058FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ Tony MacAlpine - Concrete Gardens (2015) [FLAC|Lossless|image + .cue] <Instrumen
 ```bash
 magnet:?xt=urn:btih:E8A236C196196F4BD5E616DB3A155E4634E8B81F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ The Blues Mystery - Diesel Rock (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:D9FF431DC52F8B1350C2F1938DB2E6437382487D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ VA - Psychedelic Underground Vol. 1 (Compiled By GalactrixX) (2016) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:2C00229CB7E67594D872B4D2888FD767AE9809F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +623,7 @@ VA - A Groovy Kind of Sax (1995) авторская раздача [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:B680F361CD0DA6D81682DFA948E319C2F895740E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +651,7 @@ NeoFinder для Mac OS - Программа для катологизации �
 ```bash
 magnet:?xt=urn:btih:3E312A9C42F8BBA8DAFA0B42AE9ECB7B49C0C63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ The Rome Pro(G)ject - 2 Albums (2012, 2016) 2CD [FLAC|Lossless|image + .cue] <Ne
 ```bash
 magnet:?xt=urn:btih:2E810F0DD842B780C152AA3618772F33B09B6399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56B3675D42686B890F7B3EA38F816C6DC438A1A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

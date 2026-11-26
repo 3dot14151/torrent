@@ -19,8 +19,7 @@ DIYode - новый Австралийский журнал электроник
 ```bash
 magnet:?xt=urn:btih:C536D302F0BAB50A562D3DD91FB373B7171D8952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

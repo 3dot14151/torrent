@@ -19,8 +19,7 @@ Codename: Iceman (1990) [En] (1.033) License GOG
 ```bash
 magnet:?xt=urn:btih:E1C18A880570B557BD90E11EB5199AB9B829ABAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

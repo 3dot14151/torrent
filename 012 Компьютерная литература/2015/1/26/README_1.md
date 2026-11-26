@@ -20,8 +20,7 @@ David Weller и др. | Beginning .NET Game Programming in VB .NET [+Code] (2004
 ```bash
 magnet:?xt=urn:btih:C26DCDE3B4B7D80B2C721DFC82246CEC9BE65196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:994777099692BBF8AAEA0325639C1DBA42C9E1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

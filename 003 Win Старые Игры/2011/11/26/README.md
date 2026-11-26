@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:9A4EAA05493EEEB28E88F1DB25F422C929444F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The X-Files Game [Ru] (RePack) 1998 | Pilotus
 ```bash
 magnet:?xt=urn:btih:584BA5536EFC47ACB6D5D6E3AA2E9E64E84B4799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DarkStone / Камень Тьмы [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:6B93E7EBFB4F09206E4ABAE9244DC19434F59E26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

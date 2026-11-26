@@ -19,8 +19,7 @@ Koa and the Five Pirates of Mara (2023) [Multi] (1.2.1s) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:37D4CC1449A29073D838541227326E010AD3FF77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.11.0.0/dlc) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:FC503B92DE036E2B04581D6A5938C7E98649BBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Class of '09 (2021) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:FC67D39779D86C935FE336970201BCE0E499A648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tennis Manager 2023 - это проработанный спортивный с�
 ```bash
 magnet:?xt=urn:btih:B1006BB2571DB68FC81F38AE61973675C30654D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Volcano Princess (2023) [Multi] (2.01.05) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9DD946DC8742E009C09B1017D53D89CF58A539A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ms. Holmes 4: The Case of the Dancing Men / Мисс Холмс 4: Дело о �
 ```bash
 magnet:?xt=urn:btih:B92DE7F5BA949BB568B683D3D242A3C5B977DEDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mega City Police (2023) [Ru/Multi] (1.01) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:527C70F13021CE3CD1A2860DBB3A3C19CE3BEE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Lunacy: Saint Rhodes - хоррор на выживание от первого 
 ```bash
 magnet:?xt=urn:btih:969FEBAB5504C968BA881D0C69993616B33E8E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Demonic Supremacy - это оригинальный шутер от первог
 ```bash
 magnet:?xt=urn:btih:0F67CE5E5F2AE46E20362C05AAA6FA811ABD0051
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

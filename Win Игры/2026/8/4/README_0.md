@@ -19,8 +19,7 @@ Beast of Reincarnation (2026) [Multi] (1.0.6.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:5CFF0B15C3FA70B8E1359C826AB547073DCD1EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crimson Desert (2026) [Ru/Multi] (1.14.00/dlc) Scene voices38
 ```bash
 magnet:?xt=urn:btih:F9933A17ED052A7BB5CAC4A7983F6592D5069D59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HIARCS Opening Book (2023) [En] (15j) License
 ```bash
 magnet:?xt=urn:btih:96343534EF75429D8234614EDF67551606641342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Timelie v1.0.2 Mod by LITEAPKS [Ru]
 ```bash
 magnet:?xt=urn:btih:D8DF4CA7C2EE7418FBB718C48371C8B80D01C3C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cuphead — это по-настоящему «классический» пла
 ```bash
 magnet:?xt=urn:btih:0C78E18C5A989AE132AE5A98439B34B921950D02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Follow the meaning v1.1.39 [En]
 ```bash
 magnet:?xt=urn:btih:36AE81FBFEB327F5C5203DF9642CA4F373E6C025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

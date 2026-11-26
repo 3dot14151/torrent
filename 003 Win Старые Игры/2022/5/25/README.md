@@ -19,8 +19,7 @@ Tom Clancy's Splinter Cell (2003) [Multi] (2.0.0.12/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:71A27F11EA19BCCE33D6CA21383DEE3EE3656844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

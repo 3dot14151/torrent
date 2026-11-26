@@ -27,8 +27,7 @@ VA - Rio Chillout Lounge (2014) [MP3|320 кб/с]<Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:C0F32D693558DD08EA111B2FDDF198B10FF586B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:554E5BDD962946066B6E34D7CD183DA1D205FAA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B81E399788E5B2C62932D4B7497255B0520DCE2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Yellow Hand - Yellow Hand (1969) Remaster /2008, Fallout/ [FLAC|Lossless]<Classi
 ```bash
 magnet:?xt=urn:btih:69924E3C914DA9628199050CA5662C3FB044BABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ Hoth System - Punctuation EP (2014) [MP3|320 кб/с]<Dark, Industrial, Techno>
 ```bash
 magnet:?xt=urn:btih:75C7A0F2DE320997F789A3F3D05C946356FFDC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Popular Photography - ведущий американский журнал о ф
 ```bash
 magnet:?xt=urn:btih:E37178D191A1F51A5F608E8E6F232E747470A93C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ Deru - 1979 (2014) [FLAC|Lossless|WEB-DL]<Ambient, Modern Classical, Experimenta
 ```bash
 magnet:?xt=urn:btih:D6F490EE705C19CD6DAF64718F59DFDBECA749D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ DVDFab – многофункциональное приложение для к
 ```bash
 magnet:?xt=urn:btih:461896D4BA71841A3EFA61096E4118EA270C66DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +260,7 @@ VA - Elliptical Sun Sampler 008 (2014) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:A8D60F766D1C66F941D124F6D585EC38B0EEDBC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Sonic Scope - Maya Dance (2014) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:8762C4349AA9CCE8513FB93C82EBDC7DDA4E9ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ VA - Recontact: Mixed By Kaito - (2013) [FLAC|Lossless|WEB-DL]<Tech House, House
 ```bash
 magnet:?xt=urn:btih:BF0F29900922094A23D3E446E91A32873F5D13C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C7C8A398C8024BBC38A065D745A3F0174175957
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +378,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B85CA35C7581575F91E3B32C20551217A736353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ Architect - Mine Remixes Pt2 (2014) [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Ambie
 ```bash
 magnet:?xt=urn:btih:10A5BA8468812844747585AF4D0D579EF7CC5D98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +463,7 @@ GusGus - Crossfade Remixe (2014) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:1E365743E5BFF03174E61FB717ABA867052ED38F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +497,7 @@ Yagya - Sleepygirls (2014) [FLAC|Lossless|WEB-DL]<Dub Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:D663EFC8D98BBA172096CF20FB199649414F5D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:327B1E82FD2082302718411C20DA8A13B103E22D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +556,7 @@ VA - Mind Gap (2013) [MP3|320 кб/с]<Psy Dub,  Progressive Psytrance, Downtemp
 ```bash
 magnet:?xt=urn:btih:C423E777C3AA85B253592F66A8B8A0125DA4F238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +590,7 @@ VA - Vargo Lounge - Summer Celebration, Vol. 2 (2014) (Brazil Edition)[MP3|320 �
 ```bash
 magnet:?xt=urn:btih:BAF9620693771FFB43EB6A52DCC82436D22C4D44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,8 +624,7 @@ Tab Benoit - Legacy: The Best of Tab Benoit (2012) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:FCA754F6AF99A54123CF85EC05E4F5D682B072FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E6AFB8033F884CFC489B560494B353EBBFF5FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +708,7 @@ VA - Organic wave (2013) [MP3|320 кб/с]<Psy Dub, Progressive Psytrance, Downt
 ```bash
 magnet:?xt=urn:btih:70B487FCCE72DEECE5A952574BB5C862B5A4618F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52A7EB4D75C42BCD95F0EDB12D1714EDEA015858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

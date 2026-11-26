@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B450EF5D9AC5C53D927D4C6D9E3625AEF124732A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ This practical introduction to data structures and algorithms can help every pro
 ```bash
 magnet:?xt=urn:btih:986DFD356BD1747E842C0B30213B3D4681D700E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

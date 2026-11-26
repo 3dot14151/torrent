@@ -20,8 +20,7 @@ SolidWorks | Оформление чертежей по ЕСКД [2005] [DJVU]
 ```bash
 magnet:?xt=urn:btih:AC2DA2B6FDC5D93B843C5BB7E971978EE0D57BD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SolidWorks 2010: Основные элементы SolidWorks [2009] [DJVU]
 ```bash
 magnet:?xt=urn:btih:44AC455A0208D878A060E74F9734EC6F29CF5886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8201D5045E19419E5DB788EDB5DFB3533BDC1C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

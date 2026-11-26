@@ -19,8 +19,7 @@ Ever Forward (2020) [Ru/Multi] (0.1.5/dlc) License GOG [Special Launch Edition]
 ```bash
 magnet:?xt=urn:btih:49BF27D63CA40A6196383E57A2EA22892662384C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Streamer Life Simulator (2020) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:1D1787F7BDF65EFA29BE48F1C3A0300B704AAEF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

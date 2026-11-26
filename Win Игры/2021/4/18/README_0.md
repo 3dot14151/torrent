@@ -19,8 +19,7 @@ Relicta — основанная на законах физики головол
 ```bash
 magnet:?xt=urn:btih:C8D1BE61BD2A3D32D8CC37E0961C4E54F6C9B58D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

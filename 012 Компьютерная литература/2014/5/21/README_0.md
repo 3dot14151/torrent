@@ -19,8 +19,7 @@ Ingate | Семантическое ядро: 6 адовых ошибок (2014)
 ```bash
 magnet:?xt=urn:btih:4327705BA00662FD469511C9582C827E9D1EEC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D2BBCE91756307952F5A8F7E2DAB924334D71CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

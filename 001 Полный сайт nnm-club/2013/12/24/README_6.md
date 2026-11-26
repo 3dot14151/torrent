@@ -18,8 +18,7 @@ mTitle Blockbuster Pack это коллекция из  30 профессион�
 ```bash
 magnet:?xt=urn:btih:7436EF36BB71BBFBE52EB5D4D7545334E1DB09AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl "Альтернатива" (2013) [Ru] (1.2)
 ```bash
 magnet:?xt=urn:btih:125767DE0AE461E58696145A8F6A4B5FA960CD07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:F03D90FB2AD0A03BFC6F32124364B00CB2FDAABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ Enslaved: Odyssey to the West (2013) [Ru/En] (1.1/4dlc) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:6568BE37F7C15DCA3C9018A9E58BFBA80D1A6293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2384B44A9928D51AEC32B0281D58046C854A07E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CA76532709614FFF5C3C48D73A3434C696E47EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4DEEF8D7A77B917C523C72C3CD738B8F94A32FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Sports Island Freedom переносит спортивные игры на но
 ```bash
 magnet:?xt=urn:btih:70C3F905DA761EB33A79E4E8A8750183AF1684CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Ф.О.Т.О.Г.Р.А.Ф (2013) [Ru] (1.0) 
 ```bash
 magnet:?xt=urn:btih:22B3D01BAAEC913F7D512DB388C81E60EC24CB07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ Hataraku Maou-sama! / The Devil is a Part-Timer! / Повелитель Тьмы
 ```bash
 magnet:?xt=urn:btih:881C9C3273D7C9ABCA48CD6865126B4F089DAD61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F485877992F41E18EDB2D497DD65BCB3EC56D181
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,8 +309,7 @@ InDesign — это профессиональная издательская п
 ```bash
 magnet:?xt=urn:btih:201C169BAEF4BFC07F0C208DAC3DBFA286D4D800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,8 +334,7 @@ VA - Romantic Collection (Все выпуски - 31 альбом)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ Adobe Premiere Pro - это мощный, настраиваемый редак�
 ```bash
 magnet:?xt=urn:btih:CCDDE68931DFCDFCFD410B7BC51EA59FF43B204C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +385,7 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:A8EEF568E678140FEDDDE6F09404CF2092DC8D87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B7213505EB2F2D59F365231B820568D2C8940796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ Windows 8.1 Pro x86 Optim-Full (incl. updated appx) [Ru]
 ```bash
 magnet:?xt=urn:btih:3606BF009F7962CDE4448BE0357119D30EA8BDDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0FE7E9F987E7A232F47FA6807E77150F53783E00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

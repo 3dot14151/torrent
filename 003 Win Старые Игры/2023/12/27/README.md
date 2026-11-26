@@ -19,8 +19,7 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
 ```bash
 magnet:?xt=urn:btih:42BE4B99876C60E71AF3A9BF608BC173F4E10FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/Multi] (2.5b) Repack ale
 ```bash
 magnet:?xt=urn:btih:A096C13D9D578364906980A24EB2230D9396B819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

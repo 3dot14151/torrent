@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:4668FF2BF7477ACA439B84CACA923D705ACC0ECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Psychologies – уникальный «специалист по жизни», 
 ```bash
 magnet:?xt=urn:btih:C83F24C09DF9B7EB82C7D2D6A2B3978810BD146E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

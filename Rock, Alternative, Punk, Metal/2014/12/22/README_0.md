@@ -24,8 +24,7 @@ Tsima - Shatter (2014) [MP3|192 кб/с]<Post Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:42C3E01A2F60E8089BCB622B8BF46046DEADF88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Headband - A Song For Tooley (1973) Reissue/2006, Walhalla [MP3|320 кб/с]<Roc
 ```bash
 magnet:?xt=urn:btih:34DDAD74FB1945D2A74A801FBB7A80F0A31989EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45213339F792E42DAC284BBF84B7F224A23F3D70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Galathea - Аллерген (2014) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:EBB2314FE339F4FF0430496B08831A47F73DB4ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Lucifers Frend - Lucifers Frend (1970) /1990, Repertoire Records/ [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:CB5D113214EBB43BCFBF7361B069BC67DE82E83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:A03669998168D20342EC89449E1A2EDF0AFFAE88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ Roxy Music - Siren (1975) remastered /1999, Virgin Rec./ [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:AF8D3A7B3591E3B934FD02C35C35DF966085EE9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Celldweller - End of an Empire (Chapter 02: Love) (2014) [FLAC|Lossless]<Industr
 ```bash
 magnet:?xt=urn:btih:543E2EBE19505940B0765589CC2ACE5506076D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

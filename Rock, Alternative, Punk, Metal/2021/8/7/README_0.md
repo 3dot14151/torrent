@@ -22,8 +22,7 @@ Dark Psychosis - Obsessed by Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Black
 ```bash
 magnet:?xt=urn:btih:02DA8B89ABF41B33CE63FAB4CEBB1D996B4A9351
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Feuerschwanz - Die letzte Schlacht (2021) [MP3|320 Kbps] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:7719C972FA3F40AA9ADC7BDF4A7BD292989958A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

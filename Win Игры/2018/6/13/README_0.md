@@ -19,8 +19,7 @@ Wanderlust: What Lies Beneath / Жажда странствий: Что утаи
 ```bash
 magnet:?xt=urn:btih:AC45A143C887A4807FD751894C41D2469BDE555C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Golem (2018) [Ru/Multi] (1.0.1.6) License GOG
 ```bash
 magnet:?xt=urn:btih:65B5B786D021271F80750C7E185881C9AEBF8071
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Prey - Mooncrash (2018) [Ru] (1.0.1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D15C5FB0261F39FF7490C2AB996B7AD67EC28DEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

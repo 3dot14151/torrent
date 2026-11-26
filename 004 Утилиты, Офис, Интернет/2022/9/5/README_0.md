@@ -19,8 +19,7 @@ Wu10Man - бесплатная программа для отключения и
 ```bash
 magnet:?xt=urn:btih:523D305DF28F9F944DB5EE52F3027EF17E549DEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

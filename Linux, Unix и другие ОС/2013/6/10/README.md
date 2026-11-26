@@ -25,8 +25,7 @@ AV Linux 6.0.1 – минорный релиз, содержит исправл�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Souls of Diotima - Arcade (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressiv
 ```bash
 magnet:?xt=urn:btih:B02649D71B4620CBEBDB183C885DEF868A18DF90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Michael Bormann's Jaded Hard - South West (2026) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:737B73D924D9CF2E7EB63CBD68EE7D9F5D8C7B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

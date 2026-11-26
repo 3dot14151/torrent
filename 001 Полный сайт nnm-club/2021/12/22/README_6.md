@@ -22,8 +22,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 2 (2021) [AAC|~335 Kbps] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:436B2DCDA23A287632D7782A9C15C885DB4AC376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:EADE86037529DF270DEACA00B416671F5888FA0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:49591F1E1E3687111E2AB698C0794AE3D44C2A2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - CLUBWRK - Best of 2021 (2021) [AAC|~332 Kbps] <House, Trance>
 ```bash
 magnet:?xt=urn:btih:C48D050202E2F3389A848520B09724557D845BFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 3 (2021) [AAC|~330 Kbps] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:287E4B7D77F5AAF42D7B93E46C0E45375309EA60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Lo-Fi to Chill: Chillout Your Mind (2021) [AAC|~306 Kbps] <Lounge, Chill Ou
 ```bash
 magnet:?xt=urn:btih:BE32BE816CB51000058F9D4B902BB56FDA6DBF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Erroll Garner - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 ```bash
 magnet:?xt=urn:btih:DA211313E282AEEFB77274C682993A1DA3B739D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Calm Down: Urban Chillout Music (2021) [AAC|~340 Kbps] <Lounge, Chill Out, 
 ```bash
 magnet:?xt=urn:btih:09592F20AE44D523FC3A7F8D3B67FEDA422C53E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Space Cafe, Vol. III (Finest Chillout & Lounge Tracks) (2018) [AAC|~310 Kbp
 ```bash
 magnet:?xt=urn:btih:62A3B121F43CEED8A55C5F676340509E8E8077D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Lionel Hampton & His Orchestra Featuring Sylvia Bennett - Sentimental Journey (1
 ```bash
 magnet:?xt=urn:btih:D162962E8E89056E3548EA06F6F980E1F7353332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - RAM Drum & Bass Annual 2022 (2021) [AAC|~325 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:593F804FA0DCB3A324596BDA441CBB721C4053F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Space Cafe, Vol. II (Finest Chillout & Lounge Tracks) (2017) [AAC|~309 Kbps
 ```bash
 magnet:?xt=urn:btih:EA440E0DE36A9E1CA58D5EB1829836846FC33A18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ The Bourbon Street Players - A Jazzy Christmas in New Orleans (1993) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:EF2D72146472C717C4BE2C434F6DC7FB1728E108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Note Studio 2.2 [En]
 ```bash
 magnet:?xt=urn:btih:E60940C99F6BF7E894C2E53D0D64F5329895DFB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CD292D6C64C59DF5C71DB97AB78F4993E9CC725D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ VA - Space Cafe, Vol. I (Finest Chillout & Lounge Tracks) (2016) [AAC|~307 Kbps]
 ```bash
 magnet:?xt=urn:btih:C03A6C920F16811356FEC6399B826D4FF628489E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +463,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 6 (2021) [AAC|~336 Kbps] <Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:75E040BB6B37373C0C2E979C2AD9619E36AC5955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,8 +518,7 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:1E41E91F7745DB217E4CD1C09DDE07AF82A970C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +546,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 5 (2021) [AAC|~351 Kbps] <Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:8C22864803C1C63E90CD22C27E666F9ED410E16D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ Lara Fabian - Lockdown Sessions (2021) [AAC|~314 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6FF635C1EED764C473E7A14F9816672498427C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +599,7 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:EBA1867DEEC31BAB879F1CF83E774C7AB0753EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE7C3C39FEA30A7B9B5152BC1E9C61152315351D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDACA13A8C127B0440F5033AF99492377C9520B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A5D3BA6B80F25C7F8E792F78D326191A82A6226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ Daylight - 30 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Dance-pop>
 ```bash
 magnet:?xt=urn:btih:E127F381123FB641622E5E18CBF1E1B5BB37FE49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

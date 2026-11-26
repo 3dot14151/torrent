@@ -19,8 +19,7 @@ Emergency Room 3 / Скорая помощь 2 (2001) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:4192D2BFDCDFB63AC3603EAABE3328359A55A37B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

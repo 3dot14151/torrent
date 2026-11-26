@@ -22,8 +22,7 @@ A4. You Make Me Love You (5:10)(   Читать дальше...   )Произв�
 ```bash
 magnet:?xt=urn:btih:A40E82248AF276620639AF249BD1BBEFAF7F3002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

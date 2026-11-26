@@ -19,8 +19,7 @@ Warhammer 40.000: Dawn of War (2004) [Ru] (1.51/dlc) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:E811A1EBE14E7B3527518403D2C9ECDD3AA6A1BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

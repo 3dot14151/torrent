@@ -18,8 +18,7 @@ Ajin 2 (2016) / Полулюди [ТВ-2] [2016, TV, 13 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:040A1095141852EF1442C4DEC85D85BA36B732B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Aero Glass for Windows 10 RS 1.5.1 RePack by PainteR [En]
 ```bash
 magnet:?xt=urn:btih:690523ABCDC3A782E2EC27366E1612AEDD3B61BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.10.8756) Repack R.G. Механ�
 ```bash
 magnet:?xt=urn:btih:913A1CF1FA32733305D53124EEE8A93160D50450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AD7E510D01D16B66D9EF4E3D91D67080259659C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Zhen hun jie / Rakshasa Street / Улица призраков [2016, TV, 9 из
 ```bash
 magnet:?xt=urn:btih:AD68B96A7C779B5BB427CDE0416B940F11BABDDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ S.T.A.L.K.E.R. Anthology  (2007-2009) [Ru/Multi] Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:208EF362D1F820FC745C413241D520EED752693B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6D5577BD31B343541BE35A8F705CD78D248B726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ BootHDD 2017 (EFI) [Ru]
 ```bash
 magnet:?xt=urn:btih:B3783CE068C7607727178339ADBB9047836FA750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

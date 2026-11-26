@@ -19,8 +19,7 @@ XIX век. 1871 год. Господин Ламберт — директор б
 ```bash
 magnet:?xt=urn:btih:5ED7090F6855AD7A8FABCE6497204F14E03815CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A0479209360C104E4406D592D4329C5DC753C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

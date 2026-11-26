@@ -19,8 +19,7 @@ Flat Eye своим сюжетом затрагивает достаточно �
 ```bash
 magnet:?xt=urn:btih:30F7EA7C334F354CD685F37E6F4EF0D6A3B72279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Spirit and the Mouse (2022) [Multi] (1.2c) License GOG
 ```bash
 magnet:?xt=urn:btih:8E413CDDED22B6B89A32EAD2646C82BBC296C741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ziggurat возвращается и теперь он ещё лучше! Исп
 ```bash
 magnet:?xt=urn:btih:A98C70458F8EF53AC5D7512A0EEAAD0B07132A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Antivine - это приключенческая головоломка с тр�
 ```bash
 magnet:?xt=urn:btih:0EC07CDCF50ADF93D566BD096A44040A148C9712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

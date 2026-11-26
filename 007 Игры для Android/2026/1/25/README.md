@@ -19,8 +19,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.6 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6D5B7F2445D133DF2978605FEE7912B4ED7C8E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

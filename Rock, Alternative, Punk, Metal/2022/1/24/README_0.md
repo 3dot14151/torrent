@@ -22,8 +22,7 @@ CD - 1 - 2018 Automata I EP:
 ```bash
 magnet:?xt=urn:btih:A50B592E1DE4E16DFD60A2B0722949C6D33D9B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ecliptic Sunset - Sinister Temperance (2015) [FLAC|Lossless|image + .cue] <Black
 ```bash
 magnet:?xt=urn:btih:65A0E95AD24F9029D1F55839C34AA0BEA5090AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Feedback Force - Break the Automation (2022) [FLAC|Lossless|WEB-DL|tracks] <Indu
 ```bash
 magnet:?xt=urn:btih:484A676DCAB8BF27FD41B3B6A86BE7A9FE25A1EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Between The Buried And Me - Colors II (2021) [FLAC|Lossless|tracks + .cue] <Prog
 ```bash
 magnet:?xt=urn:btih:EB795E9A2481916DAD2F039C67C938AE0B553CEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2B27726141215A2083F2DC910E4F06C04A51B4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

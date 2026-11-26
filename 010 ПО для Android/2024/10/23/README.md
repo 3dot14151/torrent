@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5C397F6A6B0BCC77D3116A935F32FAF45BB85276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ventusky: Прогноз погоды v38.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F573DAA65DA4D99FBE83683038F93E5DF3F387D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

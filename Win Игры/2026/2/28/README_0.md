@@ -19,8 +19,7 @@ The Perfect Pencil - это сюрреалистичный экшен-платф
 ```bash
 magnet:?xt=urn:btih:6266110277E5EAF039CFF0BCA22E6983210C3338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Final Fantasy IV (4) (2014) [Ru/En] (1.0) License GOG [3D Remake]
 ```bash
 magnet:?xt=urn:btih:68749F52DEC1BD0B87E2D4C43D0631BF13E76BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Final Fantasy IX (9) (2016) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:160F6CB210D286EEFF6D30997CEB76312DB894DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Final Fantasy VIII (8) - Remastered (2019) [Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:27FEC9EF84BC637F6D43A7242001E9391CBA0089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sector Unknown - это захватывающая изометрическая 
 ```bash
 magnet:?xt=urn:btih:061323AB4C735CF00AE20901741F802E31479AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 ```bash
 magnet:?xt=urn:btih:41F2DA0A884ABD3CE6FF20152B02D0526C705261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Final Fantasy III (3) (2014) [Multi] (1.0) License GOG [3D Remake]
 ```bash
 magnet:?xt=urn:btih:453A9510BA4A7E39A67001FE5FC4EE429EE6B23A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Hitman: Blood Money (2006) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:E4E542B23871C4E5C0CD161A7EDFE1504CB71202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Grim Tales 27: The Cursed Bloodline / Страшные сказки 27: Родо
 ```bash
 magnet:?xt=urn:btih:9EBEAB7BB85C3768585A0B3193EC42D139D83549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Ashes of Ambition (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:71CA326C553D0FB3518F11F535487E3D255F5A92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Ashes of Ambition (2026) [Ru/Multi] (1.0.0) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:6AF74CB3B4082F0456E1900C458C55F156650452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Anno 1800 – возглавьте промышленную революцию! 
 ```bash
 magnet:?xt=urn:btih:8A5DE51D64A6106EA66C559577A9855FEB33204D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

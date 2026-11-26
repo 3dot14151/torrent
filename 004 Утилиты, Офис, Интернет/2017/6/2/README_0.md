@@ -19,8 +19,7 @@ Ping Tester – это приложение, которое пингует IP и
 ```bash
 magnet:?xt=urn:btih:8C9449C3384C3B64499537B7FD962AF730656D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Jointstereo - Refract The Fears (2012) [FLAC|Lossless]<Death Doom Metal / Atmosp
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

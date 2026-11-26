@@ -19,8 +19,7 @@ The Free Dictionary PRO обеспечит мощь самого полного 
 ```bash
 magnet:?xt=urn:btih:3E27EC0DFE5D9ECEC9E50752D96D483526CCD705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Daff Moon Phase (Фазы Луны) v3.49 Mod by shv7net [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E777D59595C2067ABCBC55039841DA8F9C827699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:27BA36CB7830999BA1182C43AD0C4BB3113CE91C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ PowerDirector – Video Editor v15.8.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:74C9167BBC73DC0A1C34F5F18658C571B08B8DC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

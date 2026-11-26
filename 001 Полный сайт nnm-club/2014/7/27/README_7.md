@@ -25,8 +25,7 @@ Purgamentum - Aschewelt (2014) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:2D65E17CE96E4D4AD04E06780E8C63D50E320797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Aegrotum - Pilgrim To Total Negation (2014) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:C0DF84DCC0BD641AD94255E766447ABD1B621AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Biondini, Godard, Niggli - What Is There What Is Not (2011) [FLAC|Lossless]<Cont
 ```bash
 magnet:?xt=urn:btih:6D04860E02D2AB829AA33C7FB91E9EF086C8F495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ VA - Floating Trance - Wood Heaven (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F82AC47FE53F4F1A38C2B951DD83B32C19F09B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Luca Lo Bianco - Ear Catcher (2008) [FLAC|Lossless|WEB-DL]<Contemporary Jazz, Fu
 ```bash
 magnet:?xt=urn:btih:7F795813FB0F10834D10F5B2F2175DD87CF0B960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F9D66CFF377FE5D14D1E797B6EB6FD72C4FF771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ VA - Deep House (2014) [MP3|320 кб/с]<House, Deep House>
 ```bash
 magnet:?xt=urn:btih:92D948F2ADD51DDC736765DA77E38768CFC1601B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B027356C251195EB34EB7FA2BA89612603D7F104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ VA - Holi Festival of Colours 2014 (2014) [MP3|320 кб/с]<Dance, Club House>
 ```bash
 magnet:?xt=urn:btih:8D88353C064CFBC335A57D478CD48B699D6E5CB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8065D4A120D3AA546AC9D4F9E361EFAF035D3A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ Lucy Dixon & Le Professeur Inlassable - One Too (2011) [FLAC|Lossless|WEB-DL]<Vo
 ```bash
 magnet:?xt=urn:btih:498F1D97F9A75F8B8457AB16436FB7C48954FCB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ Dave Romans - Boo! (2014) [MP3|320 кб/с]<Deep House, Nu Disco, Indie Dance, D
 ```bash
 magnet:?xt=urn:btih:578B778445E1216B9843945C7BF97FA20FF377EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E686C1403EB931DE0240E34702F6A87934B95641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ VA - Enhanced Music: Enhanced Ibiza (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:309593466FFDBF7429004459AD8C12DBD00CF952
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94A1DE4CC08D7EA0FAC1AC8EA088ADC72D85798A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +486,7 @@ Luis Frank Y Su Tradicional Habana - Viva Cuba (1999) [FLAC|Lossless]<Ethno Jazz
 ```bash
 magnet:?xt=urn:btih:3D10D1BC0426731BFB856A00A77E3FAF16D424DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FC0715EA93AAF14D3413B82ACD4310CCBE9C520
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ Lou Rawls - Live! (2005) [FLAC|Lossless]<Vocal Jazz, Soul>
 ```bash
 magnet:?xt=urn:btih:CEC64E0F5771A37477814B3FC4F0682702B7C083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +570,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA53CAFC07D227B37DD6D8650B31D7B597C1089C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +604,7 @@ Ludovic Beier - Chilltimes (2006) [FLAC|Lossless]<Gypsy Jazz, Accordion>
 ```bash
 magnet:?xt=urn:btih:51188F3D06B5F17FF29B83FB46F81E3C97E7F02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +638,7 @@ Lady Lu - Com todo Carinho! (2012) [MP3|320 кб/с]<Latin Pop>
 ```bash
 magnet:?xt=urn:btih:C10458E2FC1D9B1CAED56F122494C3FFB147489A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +663,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2552A1B11B5C79D9D0464D22EEDD2F4B553713DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AC8BF61E2B70F1D1FDAF9838EAE44A74090CB2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1868A97494415E6BB1865E795BB94E815217331A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +738,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B95ED84E8B247D174EA063E26B084ADEA55B655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -797,8 +772,7 @@ VA - House Music Pause Vol 20 (2014) [MP3|320 кб/с]<House, Deep House, Progre
 ```bash
 magnet:?xt=urn:btih:68FEB9210F52FC719FF9F6D94A978413B3508AA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

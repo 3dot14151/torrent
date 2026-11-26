@@ -21,8 +21,7 @@ Swapper for ROOT 2.0.6 [En]
 ```bash
 magnet:?xt=urn:btih:8C0D19BFD20572779BEB2F862EA09A19A8A2B040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ ElectroBuddy Pro- AdFree версия Electrobuddy приложение, кот�
 ```bash
 magnet:?xt=urn:btih:4B09A2B45BB50A30333E288836B6F4D68CFE3CCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Life-License Full версия Aнтивирус Aндроид AndroHelm Mobile 
 ```bash
 magnet:?xt=urn:btih:4062277E34A29DAC0CA946CB3E650304E577E1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

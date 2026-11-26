@@ -19,8 +19,7 @@ Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F8C65A805CD8098A28190586AD4ACF0329144788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bloodstained: Ritual of the Night – это смесь готического �
 ```bash
 magnet:?xt=urn:btih:8ED7326198D49BB3BE40EBEBB9117F28E45B21C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.0.0.38f) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:687FD92BECB8CAE59D006573487B4BC144EFFCD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ INDIKA - игра от третьего лица с историей о стра
 ```bash
 magnet:?xt=urn:btih:BF94492FB334957718CFE1983D9E52438440339F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.22-CL363716/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:7AE8B47003EBA3670EB8058E7ECAF754CAE07D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Great Rebellion - экшен с олдскульной пиксельной 
 ```bash
 magnet:?xt=urn:btih:79AEBD50279F7BE75330CBBF927731652C061E8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) License GOG [Deluxe 
 ```bash
 magnet:?xt=urn:btih:32CBCB1264A4393C9BCB320A95C37D9B262AAED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 ```bash
 magnet:?xt=urn:btih:83155819E69A08ED897019285CA76A3E7C36F226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Super Dark Deception (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:46F08193551096E3576E501B2B31495C81367C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 ```bash
 magnet:?xt=urn:btih:A4F8E6C571FC703BA352B114ED95672A74FB8670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Cities: Skylines предлагает по-новому взглянуть на 
 ```bash
 magnet:?xt=urn:btih:C29196DF67D2D9A1C793AE321173EDBDA08142F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

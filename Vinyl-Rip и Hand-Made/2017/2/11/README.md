@@ -22,8 +22,7 @@ VA - RETROспектива, часть X: Эстрадные оркестры X 
 ```bash
 magnet:?xt=urn:btih:5B1A445C7801A8952923B459350A71355AF1E7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. You Won't Be There (3:42)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:16501523C3C41FA298C507A141E98D842DA0FCFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hollowbody бросает вас с головой в мрачный мир те
 ```bash
 magnet:?xt=urn:btih:2A387651F894B48B708FE50A43FE3D0B56EE996B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Darkest Dungeon II - путешествие обречённых в жанре R
 ```bash
 magnet:?xt=urn:btih:B0FCF17E30C80A4C38262E1AB3844F2750090215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dark Moon – стратегическая игра о выживании, гд�
 ```bash
 magnet:?xt=urn:btih:42892582BA40D6B2D0F25CC86EC0789D4D6CBA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Beneath - это шутер на выживание от первого лиц
 ```bash
 magnet:?xt=urn:btih:8446DFA157A9528361C5EB8178357A4FFC229532
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:96333B80F966B2903A742A2D54BAC85D0BA669BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cities: Skylines II - это живая экономическая систем�
 ```bash
 magnet:?xt=urn:btih:F9215CF23515BF87CCD514C83A4F7418AD0F18C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 ```bash
 magnet:?xt=urn:btih:5A316DA037EE9870984E7009AE8A607776725629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6C09EC74DF0DE34FD8C6F47DFD9EB8048AE48E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Don't Starve Together - это кооперативная игра на выжи
 ```bash
 magnet:?xt=urn:btih:817B5946F883DF83C42458136EC42FF9626CE350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.3) Repack Necros
 ```bash
 magnet:?xt=urn:btih:47DE12F4A5F9F6E09318A72BECE92ED9AEB8338E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Escape Simulator 2 - это продолжение самого продавае
 ```bash
 magnet:?xt=urn:btih:8285C6EED219AFD3FABBBC8432DEF51232B96A62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Factorio – игра, в которой вы строите и обслужив
 ```bash
 magnet:?xt=urn:btih:F55155C69514144A73234692068E079D4A583C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Mortal Kombat: Legacy Kollection позволит игрокам узнать и
 ```bash
 magnet:?xt=urn:btih:9323FDE004B5573331A1B026B6C8BA6ED667DFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

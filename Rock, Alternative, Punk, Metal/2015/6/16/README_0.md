@@ -22,8 +22,7 @@ Hemlock - Bleed the Dream (2004) [FLAC|image+.cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:98A4AFE32B1C43BE861CC1AC0B77F866B4C4E0D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Meads Of Asphodel - Sonderkommando (2013) [FLAC|image+.cue]<Avant-Garde Blac
 ```bash
 magnet:?xt=urn:btih:B685FB71238E83214EC99F137C74D8F5FD4F7AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Within Silence - Gallery Of Life (2015) [FLAC|image+.cue]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:904C55D49A360E454D56F88C33286FBD3CC0F40D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Drowning The Light - From The Abyss (2015) [MP3|320 кб/с]<Raw Black Metal, Bl
 ```bash
 magnet:?xt=urn:btih:2B624A0DD7958070F3FCD074F673A3DF57326549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ FFS (Franz Ferdinand and Sparks) - FFS (2015) [FLAC|tracks|WEB]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:568B27221BED1D1EDED19ABF4E358E6B81B078EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Bill Ward (Black Sabbath) - Accountable Beasts (2015) [FLAC|image+.cue]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:47B21DFA15F3B95588275A85FF7F66B5BB6AC36F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Rolling Stones - Sticky Fingers (1971) Remastered /2015, Polydor/ 3CD Super 
 ```bash
 magnet:?xt=urn:btih:71A4C383040C15FBD82712694D3804F323EE434D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Breaking Benjamin - Dark Before Dawn (2015) [MP3|320 кб/с]<Post-Grunge, Alt. 
 ```bash
 magnet:?xt=urn:btih:D152B3303C7F999FC0AB02D00C95AF84689645DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Neighbours from Hell Dilogy (2003-2004) [Ru/En] (1.0/1.01) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:AB96FC3689B9BA85EAE08E237C9360EE29CD96DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

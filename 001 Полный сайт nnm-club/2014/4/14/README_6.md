@@ -18,8 +18,7 @@ Naruto Shippuden: Ultimate Ninja Storm 3 — это новые приключе�
 ```bash
 magnet:?xt=urn:btih:2561EB221D5A395F0F12E8D35E00BA13240E0B54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ LumaPix FotoFusion 5.4 Build 100286 Extreme Edition [Multi]
 ```bash
 magnet:?xt=urn:btih:D22125D711EA8E3379D74CD2F734BC3BA4FEFBF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Game of Thrones / Игра престолов (2013) [En/Ru] (1.5.0.0/3dlc) Repa
 ```bash
 magnet:?xt=urn:btih:DF2909246EFD6D2AF9A44C5E9D660FC5280A3155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A630F8A6C5692478E117993C74B90A47075355B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FAEA764C1483712A2DE0ED976F33AF501A5A9B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ Halo: Spartan Assault это вертикальный шутер, события
 ```bash
 magnet:?xt=urn:btih:BA608ADB93753DE349EAAF8BCD834FABBF6D1F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Ruby Weiss Blake Yan (RWBY) / Red White Black Yellow (RWBY) / Красная, Б
 ```bash
 magnet:?xt=urn:btih:92E2002F9C6CE258CFD7DA40198E74DC9A72F4DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Microsoft Windows 8.1 Enterprise with Update x86-x64 Ru by OVGorskiy 04.2014 2DV
 ```bash
 magnet:?xt=urn:btih:4D5A5E081215862C8F71405B72C45664D36D8999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

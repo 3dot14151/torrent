@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:ECB991196EFF0EC4C4B10998EDDC02DE3EE4EB74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Call of Duty: Ghosts – новая часть в серии Call of Duty. На�
 ```bash
 magnet:?xt=urn:btih:97A2CFFD67346C5DD0C3F4C440CB480BAC6E676A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:0F1D97C64158A54FC8D89ED87425ADB3EB874CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ RAGE  (2011) [Ru/En] (1.0/dlc) Repack R.G. Games [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:989EB18770CA67E4F3BBDA80D7FFB2C9726793FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso.
 ```bash
 magnet:?xt=urn:btih:5DDE1B8C05EFD8160735FDD4422A56D65E20E1A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

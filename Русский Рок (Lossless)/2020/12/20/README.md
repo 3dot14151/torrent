@@ -22,8 +22,7 @@ VA - Трибьют Сектор Газа (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:E75D7CC9361995E81328FBC85CE3E0D6855A02FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

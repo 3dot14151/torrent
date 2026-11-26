@@ -22,8 +22,7 @@ Bossk - Audio Noir (2016) [FLAC|Lossless|tracks] <Post-Rock, Post-Metal, Sludge>
 ```bash
 magnet:?xt=urn:btih:AD498A2E779785663C2AA0E58E75C59D999E91FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Skyline - Good Days (2016) [MP3|320 кб/с] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:3C7AF937C8F2783BF42D47325134A579A041F49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Primal Scream - Chaosmosis (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternati
 ```bash
 magnet:?xt=urn:btih:62AA6406C0108C041D160490ABB14A645671D076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28C372EA4A7B9B71769E82F5F55E2D66698932CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Echoes - Barefoot To The Moon: An Acoustic Tribute To Pink Floyd (2015) Unoffici
 ```bash
 magnet:?xt=urn:btih:0C0619954E608FF2A6FA3AF77F44BB061857BB5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

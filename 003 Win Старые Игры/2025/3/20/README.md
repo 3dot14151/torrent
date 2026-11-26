@@ -19,8 +19,7 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 ```bash
 magnet:?xt=urn:btih:326E7B53303E8C9B7970CFBD69BF3A4E7916CA0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

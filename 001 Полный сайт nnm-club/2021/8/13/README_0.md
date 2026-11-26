@@ -18,8 +18,7 @@ Polaris - это плагин эхо/реверберации, вдохновл�
 ```bash
 magnet:?xt=urn:btih:1D131C29675C9D0339E9ABC270BFA078A06B36E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Burn - Ice Age (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Har
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Dopefist - Nice Dreams (2019) Gated [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM,
 ```bash
 magnet:?xt=urn:btih:8BF4C70841539EF491C13F9A40ABF304A3844BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Lotus Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balear
 ```bash
 magnet:?xt=urn:btih:2A905B4800A84C0B281FC2921D9ABB72E698396B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Mick Paul - Parallel Lives (2021) [FLAC|Lossless|image + .cue] <Progressive Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Aeon Cub - Vacant King (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Glit
 ```bash
 magnet:?xt=urn:btih:2255D408F08BC7F4828D0326C67FF6BFCA79C70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ VA - City Marathon: Music For Running (2021) [MP3|320 Kbps] <Hard Dance, Hardsty
 ```bash
 magnet:?xt=urn:btih:1A45BCAA09B58FD134D457F432AC407741645125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC|Lossless|WEB-DL|tracks] <Tri
 ```bash
 magnet:?xt=urn:btih:5754E7D514FC1B057A09556FF1C4361E5C4F020A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +267,7 @@ VA - EDM Crazy Night Music Party (2021) [MP3|320 Kbps] <EDM, Pop Dance, Dance Ho
 ```bash
 magnet:?xt=urn:btih:113F68D05B43EA09B174E585857BF55B94EC2C04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] BD
 ```bash
 magnet:?xt=urn:btih:04EDAC7A31EE11EFB0DBBEE54FBB2C80A14A31EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ A4 Forgiveness(   Читать дальше...   )Жанр: Pop RockПродол
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ VA - Extreme Cardio Dance Songs for Fitness & Workout (2021) [MP3|320 Kbps] <Hou
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:D8E5D633132036E33E87A035C14D961D7E348FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:7D8F99841E67947FDE90A215679FFBA69B48D241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ VA - Music News vol.122 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:5D8C50078A1CCAA8C83A2D811C275CDA366A2A22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ uJAM - Virtual Drummer BRUTE 2.1.1 VSTi, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:5D4073D38B8CBAE8F7C161EE7BF2DCB35D73A8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ AlterPDF Pro - программа может стать лёгким прогр�
 ```bash
 magnet:?xt=urn:btih:BB828DCF21ABEBBDFE8FED3998EB351EB1A5D9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Side FX, Marc Tucker | Houdini 15 Masterclass Material Stylesheets (2016) PCRec 
 ```bash
 magnet:?xt=urn:btih:39A085BE9AD4F5DEAB1B962306AD8D23ED51E79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ VA - Beatport Tech House: Sound Pack #330 (2021) [MP3|320 Kbps] <Tech House, Ele
 ```bash
 magnet:?xt=urn:btih:9FEA3DCB607F3801E6C93EFD8E5771781B3B4193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ BBC. Тигры: Охота на браконьеров / Tigers: Hunting the Tr
 ```bash
 magnet:?xt=urn:btih:D0B136C8512C9777107E1D239F4C3F42EAC4F8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Side FX, Jeff Wagner | Houdini 15 Masterclass Loops (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:2C35FC025F21FBFC02F06506CFF7C66B4AB07703
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:9701BCBDB7DA02E5BE067F04529C488250AF4BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ GPU Caps Viewer - информационная утилита, позволяю�
 ```bash
 magnet:?xt=urn:btih:7724B4B39FA56599515D1953D19E1F7685005E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

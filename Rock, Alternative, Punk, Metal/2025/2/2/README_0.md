@@ -22,8 +22,7 @@ The Gates of Slumber - The Gates of Slumber (2024) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:26E7A8D2B7D0AD69BA14CBE2010A8E9310869335
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Simple Minds - Once Upon A Time (1985) Super Deluxe, Remaster, 2015,  UMC [MP3|3
 ```bash
 magnet:?xt=urn:btih:BC846D902C093416DE74053F2D0E3A4149B54AE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Night Flight Orchestra - Give Us The Moon (2025) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:70A99E49EFE8CE11CD6F228ACE4EDD6F28BB9B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ My Silent Wake - Lost In Memories, Lost In Grief (2024) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:0154A43EF8A57CBEC6B1A5B42A2449C6F3AF32F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Make Them Suffer (в переводе с англ. «Заставь их стр�
 ```bash
 magnet:?xt=urn:btih:1AA461F00C4FBA867EAEB39B2A061217C5347231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

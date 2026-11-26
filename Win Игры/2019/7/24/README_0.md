@@ -19,8 +19,7 @@ The Man with the Ivory Cane (2019) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:995BF1C2A838213611526433BD1C6658CEC52D71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

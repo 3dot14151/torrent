@@ -19,8 +19,7 @@ Real Myst (2000) [En] (1.11) License GOG
 ```bash
 magnet:?xt=urn:btih:A3BCC41404E744AD0E2BF000B1526750A89CF854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

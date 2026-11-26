@@ -19,8 +19,7 @@ Sin Spire - это эротическая игра ужасов, действи�
 ```bash
 magnet:?xt=urn:btih:5FA2DC94003A983AE6A57F954FEFD35B1AEC7D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hytale – сочетание ролевой игры и песочницы, г�
 ```bash
 magnet:?xt=urn:btih:AAACDE12A94E880942BDA5E91F291DB0BF0C7D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hytale – сочетание ролевой игры и песочницы, г�
 ```bash
 magnet:?xt=urn:btih:A4908CD8879FA900C5072B33BD42FC99000AB1FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

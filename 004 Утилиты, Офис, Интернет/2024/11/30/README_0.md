@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:ED9687217AB8C3E761E2B3D73E9ABD7120F12F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Office Tab Enterprise новая версия небольшой, но очен�
 ```bash
 magnet:?xt=urn:btih:E8DA489907E1873189A52B86C4AA165781EDFDE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PC Fresh - это мощный, уникальный инструмент для
 ```bash
 magnet:?xt=urn:btih:5F332319A569D01CED8F49C3DC574DD8741BDEBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

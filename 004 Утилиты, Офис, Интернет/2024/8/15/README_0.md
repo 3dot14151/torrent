@@ -19,8 +19,7 @@ nthLink — мощный и бесплатный VPN (Shadowsocks) способ�
 ```bash
 magnet:?xt=urn:btih:E251C339EAABC19E19186D78DC2F0C956D8D4B86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:6D2E40A28512C633347E845055BA55C7E4D64654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

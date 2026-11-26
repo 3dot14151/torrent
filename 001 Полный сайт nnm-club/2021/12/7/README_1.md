@@ -21,8 +21,7 @@ VA - 50 Chart Hits of 2021.2: The Workout Motivation Album (2021) [AAC|~331 Kbps
 ```bash
 magnet:?xt=urn:btih:D6DB85CD2A88C607CF6273D24A9C8FC3F9EB732B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ White Noise включает в себя 50 треков окружающей с
 ```bash
 magnet:?xt=urn:btih:BD3BB88C9F7165F2E60B4A06F27506B725E943B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ VA - No Ballads: Hard Rock (2021) [AAC|~335 Kbps] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BAE106F089B790E0D342747A6CE27013705B1789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Tool - Ænima (AEnima) (1996) [AAC|~311 Kbps] <Hard Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:A35E5F515233569B8C2F4A665D42ACFE8600A995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - A Tribe Called Kotori 7 (2021) [AAC|~330 Kbps] <Progressive House, Deep Hou
 ```bash
 magnet:?xt=urn:btih:AF030F98BA4FE37E7AFBF4B08D74F4634F38C9C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Picture Instruments Mask Integrator 2.0.10 fix [En]
 ```bash
 magnet:?xt=urn:btih:0BD8E8F30298DC9B6A6C0C26680F8B13A76E9C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - Best of Chill Jazz 4 (2020) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz
 ```bash
 magnet:?xt=urn:btih:4974F3590F69AFC9431B3603FC2F0606B6A64AF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Psychedelic Goa Trance 2022 (2021) [AAC|~330 Kbps] <Psy Trance, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:7F2B1FEF3BE4C8D95B80493C46EF2F75EA5E1EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +242,7 @@ Forces United - Hits From Metal Musicals (2021) [FLAC|Lossless|image + .cue] <He
 ```bash
 magnet:?xt=urn:btih:796DB5517A7424BB1480BD8FF0AB8F2576C9B2CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ Manico 2.10.1 [En]
 ```bash
 magnet:?xt=urn:btih:923695F89B6AB900A29AECF04E4973A2B5378649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ VA - 50 Chart Hits of 2021.3: The Workout Motivation Album (2021) [AAC|~331 Kbps
 ```bash
 magnet:?xt=urn:btih:90C7933E4F85D3142B9325EDE7A96C5951E495BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ VA - 50 Chart Hits of 2021.1: The Workout Motivation Album (2021) [AAC|~333 Kbps
 ```bash
 magnet:?xt=urn:btih:C6E942B0459C28DFB88BD798DE1167C41F67934D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Keyboard Maestro - мультифункциональная утилита, ко
 ```bash
 magnet:?xt=urn:btih:081A14513B64EA5BCCFE9AE0CC5C54FD855B8338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ VA - 40 Top Workout Mixes 2021: Motivation Training Music (2021) [AAC|~321 Kbps]
 ```bash
 magnet:?xt=urn:btih:43C3CE594B4A06649B6E59B25C979D6E0206F18E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ TechSmith Snagit облегчает захват изображений с эк�
 ```bash
 magnet:?xt=urn:btih:7DEC4EAF360538F12BF762C02EEA1E65ADCCC409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1769CEC5BDF5CC288E7BF1EBBBFCBBF6EF3F15B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Sagath - Изгой (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:74A6043F5972E7AF63E226374E1E4CF6EF5CDC3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ MacX DVD Ripper Pro 6 был создан специально для польз
 ```bash
 magnet:?xt=urn:btih:ECB3E00D155C619E88663EE777059CB8900A24FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F3A57C193EAABD96FD33B8D0A58C21136A13F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D853648E9507944D626C5B20C8E7E45B8BE4BD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ QLab - Мощный инструмент для создания и провед
 ```bash
 magnet:?xt=urn:btih:2C0C98797343908B439D9E6587690A3394C36EC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ Forces United - 2 Studio Albums (2020-2021) 3xCD [FLAC|Lossless|image + .cue] <H
 ```bash
 magnet:?xt=urn:btih:1C80B011C589A041687472721BB626881342B72F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Tool - Lateralus (2001) [AAC|~302 Kbps] <Hard Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:6F781E49C035E7916FF292571D2B718241C0C672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D18F808056AA67971AEC350EFEC71877FEEBBDDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ NoiseAsh Rule Tec All Collection 1.8.2 VST3, AAX [En]
 ```bash
 magnet:?xt=urn:btih:ECFA6C1AA9038CE67D62D373444C58483AA93030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CABC3FEB56F85FDE4944C2062ADEA8EAF9032A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

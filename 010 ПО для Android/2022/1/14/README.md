@@ -19,8 +19,7 @@ VirusTotal Mobile дает возможность проверить все ус
 ```bash
 magnet:?xt=urn:btih:3F43CB7786AF18D72E64BF21F557FFF453B06BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF1E53DF5AA96F79E1DF41578710310F8E80343C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ SKRWT Pro v1.5.1 [Ru/Multi]  (обновляемая)
 ```bash
 magnet:?xt=urn:btih:217BCBD5B8996C6C137A0B38C649DB60055EC0C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 ```bash
 magnet:?xt=urn:btih:B5423306D10A35CFBC7B5F34D404AD1F95777586
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ FamilyGo — это GPS локатор, который позволит найт
 ```bash
 magnet:?xt=urn:btih:59AE462492A6F2E3703869282F6B105496F0912F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

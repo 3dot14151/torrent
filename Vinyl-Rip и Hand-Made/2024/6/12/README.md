@@ -20,8 +20,7 @@ Tales Of Dark... - сербская дум/дэт-метал группа из �
 ```bash
 magnet:?xt=urn:btih:1F5AF8EC310A4A4A0D210E3E5BF3B79F0A24BF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Nox Aurea - шведская готик-дум-метал группа, дейс
 ```bash
 magnet:?xt=urn:btih:242C95DDC1CAC0766A459A3FD67AB2EC8E54662A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Mortician - австрийская хэви-метал группа из Сат�
 ```bash
 magnet:?xt=urn:btih:A30FF7E4D978422842777F0D8494B9A369EA02B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Xaon — швейцарская метал-группа, образованна�
 ```bash
 magnet:?xt=urn:btih:394D61CC015C19CB232D84A4F13B65C5D0B08831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ When Nothing Remains - шведская дум/дэт-метал группа, �
 ```bash
 magnet:?xt=urn:btih:88278C64D1AB5C7A3E29DF0125E67A0C6DC749A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Bon Jovi — американская рок-группа из Нью-Джерс
 ```bash
 magnet:?xt=urn:btih:F3A801F54B7F65AE6063232A073EE2C9295F3481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

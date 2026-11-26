@@ -19,8 +19,7 @@ Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV (2005) [Ru/En] (1.01/1.0) 
 ```bash
 magnet:?xt=urn:btih:01054CC65C2A4F989FA180912D8D17D8F1E75451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

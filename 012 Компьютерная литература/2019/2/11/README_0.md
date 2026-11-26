@@ -20,8 +20,7 @@ React.js - одна из самых популярных библиотек Java
 ```bash
 magnet:?xt=urn:btih:F92E6D89F9EB5C4910912874FA4FD4226EA30043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

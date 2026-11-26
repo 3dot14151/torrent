@@ -19,8 +19,7 @@ Fallout Resurrection (2016) [Ru] (1.5.116) Repack/Mod Pyran
 ```bash
 magnet:?xt=urn:btih:97ECEB5CEA6112D63AEC75F7DC76CFA9233BA587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Shuttle+ Music Player – это простое, удобное и минима�
 ```bash
 magnet:?xt=urn:btih:0617E20086FBF9C29296ACA1FCE1CA634A4FF994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Marine Traffic отображает в реальном времени пози�
 ```bash
 magnet:?xt=urn:btih:09518A1FB92875054FC1962C6A386F6DDB0D9EDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ KReader - это простое в использовании и легко на
 ```bash
 magnet:?xt=urn:btih:4289E4D42BBFB7A5C9B9C995ECD281B00C7FBD5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ BlackPlayer Music Player / BlackPlayer EX 20.61 Mod by Balatan, CMAPTOC [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:FB8E71034E56C1B47036BE4B569F6E43169430FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11C332463D695E31117D15BE28BAC7843151BDF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ VPN с высоким уровнем шифрования, бесплатный 
 ```bash
 magnet:?xt=urn:btih:B16A60D5972AC63D599616D9ECC8AAEFF5BFC737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

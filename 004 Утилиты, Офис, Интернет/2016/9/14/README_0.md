@@ -19,8 +19,7 @@ Ontrack EasyRecovery Enterprise | Professional 11.5.0.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E3A8E165C629EE2249023CC500751768B8BB236C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

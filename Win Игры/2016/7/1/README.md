@@ -19,8 +19,7 @@ Darkness and Flame. Born of Fire (2016) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:F353922B56505021866441D210AC659729498561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spirits of Mystery 6: Family Lies / Тайны духов 6: Семейная л
 ```bash
 magnet:?xt=urn:btih:4C5E7FE636A3AE139BC6A5111F1619AD7ADF943B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

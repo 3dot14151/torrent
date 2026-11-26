@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D43C4A6D885E6F7E5D3D8F8939620B1E7BB912C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ignasi Terraza Trio - Live at the Living Room, Bangkok (2011) Swit Records [FLAC
 ```bash
 magnet:?xt=urn:btih:ACA0437F66A99D6F27D4A988985A8EE41567C43E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cor Vivaldi & Ignasi Terraza Trio - El 25 de Desembre Swing, Swing, Swing! (2012
 ```bash
 magnet:?xt=urn:btih:5FBCE2BB942425BBE4E3B1588848C1BD67451D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ignasi Terraza Trio - Imaginant Miro (2014) Swit Records [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:93F5D28CCD5A53EE3060D257B8BAAC1DC375125F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Frank Tate, Harry Allen, Dave McKenna - Live in Belfast (2001) Nagel-Heyer [FLAC
 ```bash
 magnet:?xt=urn:btih:79E04025AC7ED96A540D7E3C04EDB7AE75B21978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Ignasi Terraza Trio - Let Me Tell You Something (1999) 2006, Swit Records [FLAC|
 ```bash
 magnet:?xt=urn:btih:991136198C2516884223F2DBFAC3AE50B0A91B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ignasi Terraza Trio - Jazz a les Fosques I (1999) 2006, Swit Records [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:528D506D2736AEA991875CAC7077025708A7AFF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Susana Sheiman & Ignasi Terraza Trio - Swing Appeal (2011) Swit Records [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:D0599BC5588194726DCF98FA25DB54C34E90BB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:82C4EA76AEA7707F9EC1CD59F93B83A3192F5401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ The Pharaohs - Awakening (1971) 1996, Scarab Records, Luv 'N Haight, Ubiquity Re
 ```bash
 magnet:?xt=urn:btih:0C7C3CFB8EF04C5E3BCC343F5771FF72C6E69F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Roland Kirk - I Talk With The Spirits (1964) 1998, Verve [WavPack|Lossless|image
 ```bash
 magnet:?xt=urn:btih:2DAEC1E108238EE0DD91E4BAA8D7B913D5AF7E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Toni Sola & Ignasi Terraza Trio - Night Sounds (2000) 2007, Swit Records [FLAC|L
 ```bash
 magnet:?xt=urn:btih:147DB13DB1AE52745D53AA82908A7A9DAE2DADDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Ibiza Landscape Vol. 10 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D378555DE80A8FBBF63E7D0B7B24691FE05701D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Monster Energy NASCAR Cup Series 2017 является 69-м сезоном пр
 ```bash
 magnet:?xt=urn:btih:24D61D8367B7B28567B4029843EDB029E10425FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:80BF6EC85293DAEAD6960790EED67C871D52CAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:97C044F8CAD83847298DEA2701EEE6090C4A883E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97373FECF73EF3969097058D33F090D7FAEFA151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ VA - Sportsorica Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:795211BA55173B003083B5B774A943184E875122
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ VA - Inspirations Uplifting Trance Hymns (2017) [MP3|256-320 Kbps] <Uplifting, V
 ```bash
 magnet:?xt=urn:btih:69592796C4C8B43B314A2BF1A5A43209ACAC34CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ Paolo Di Sabatino - Solo (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:A5A15B0DF35CB420988DC4BBC031673828A6B1D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ VA - World Chill-Lounge Charts Vol 5 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0BAC72ECC1ABA84C94683D2EB57F12A78D78035C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +634,7 @@ VA - Soulhaus The Superfine Collection Of Soulful House (2017) [MP3|320 Kbps] <H
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:09975CC1EBF8785410F166ACBFA1A154B8E6F61D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ Klabautermann - Innsia Ut (2017) [MP3|320 Kbps] <Norway Rock>
 ```bash
 magnet:?xt=urn:btih:A94AAB6608C5AD164A8C05E0686B72D049A40EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5BAFE9D822D98C4FBFA558EAFABAC3BFD116CF1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

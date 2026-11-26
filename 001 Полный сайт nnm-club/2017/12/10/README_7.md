@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C51565E216A7A4306636EAA4502F0746650803F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - Зима танцевальная 2017-18 [MP3|320 Kbps] <Pop, Dance, House
 ```bash
 magnet:?xt=urn:btih:C69E7285EFFE78261E0E354F2196ECCE07E5E960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Adobe Photoshop CC 2018 - это комплексное решение для п
 ```bash
 magnet:?xt=urn:btih:32F0E8886F8CA768598410291EE8B32EED16E13F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Gyakusatsu Kikan | Орган геноцида | Genocidal Organ [2017, Movie + 
 ```bash
 magnet:?xt=urn:btih:7CB230C161EFFBD16B0264D4600334141EB76187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD88AC290EB23D9E315695FC9A8474A183E777CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DDFAF4799D0A732523F6A06D2C4B500EF81A6FCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD39C9C66912283FC4E40A31C2D17DB8A6D2E159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ The Legend of Zelda: Breath of the Wild (2017) [WiiU] [EUR] 5.5.1 [WUP Installer
 ```bash
 magnet:?xt=urn:btih:E5C73EF3B9A01255AF32D8EB53A059BC7B1498FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

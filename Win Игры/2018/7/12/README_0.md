@@ -19,8 +19,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (4514) Rip Other s
 ```bash
 magnet:?xt=urn:btih:550188AD1852F5850536D20396B681A0243F68ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Saboteur (2009) [Ru/Multi] (1.3.22140/hotfix/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0A9725EF1EF3063370F2FD1D650F844C6D3EF39D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Firewatch (2016) [Ru/Multi] (1.09) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:7F95D3AE31BCF19AFBF32FBE71E3223C587AB654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

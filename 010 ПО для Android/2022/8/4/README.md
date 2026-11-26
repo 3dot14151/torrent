@@ -19,8 +19,7 @@ Lesser AudioSwitch - это практическое приложение, ко�
 ```bash
 magnet:?xt=urn:btih:C90F36B3DBBDEF59B9401BDFF2084120FC925423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:985FA921102DAFCBC7496CF3558833BDDF8B12D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Lesser AudioSwitch - это практическое приложение, ко�
 ```bash
 magnet:?xt=urn:btih:2F8DB1DF979BECD9601EC072CE1A1B47B99B031F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Prof Reminder 3.3.5 (Premium) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:731B8FD0CC75AA0725F3CFD302CD2DF51ADD6BF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

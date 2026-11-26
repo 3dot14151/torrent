@@ -22,8 +22,7 @@ Wolf Rahm - Фольклорище (2014) [FLAC|Lossless|image + .cue] <Folk Met
 ```bash
 magnet:?xt=urn:btih:6470407E1F0C9D42A53F4240EED9DDA65E4CA36D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

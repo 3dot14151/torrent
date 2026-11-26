@@ -19,8 +19,7 @@ Stefan Baumgartner | TypeScript Cookbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:BA596FA006C184DDC6904545868E51150DB6E3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sufyan bin Uzayr | CSS Frameworks: The Ultimate Guide (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:7A4018E30E50912CAACC96A32638D7DFED3EEF45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33D72F946225B4CE13060F4BB12CF13C90D8E7EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

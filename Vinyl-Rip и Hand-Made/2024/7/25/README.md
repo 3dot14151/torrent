@@ -22,8 +22,7 @@ Imagine Dragons — американская поп-рок-группа, обр�
 ```bash
 magnet:?xt=urn:btih:41718B91F055A9695DD40813888981042C8145E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

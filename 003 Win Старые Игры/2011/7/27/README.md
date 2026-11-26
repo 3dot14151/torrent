@@ -19,8 +19,7 @@ Road to India / Дорога в Индию [Ru] (L) 2001
 ```bash
 magnet:?xt=urn:btih:EC03D76CE5ADD6F908941A41A79A9255A3ACB19C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Legacy of Kain: Blood Omen 2 / Наследие Каина: Blood Omen 2 [Ru] (R
 ```bash
 magnet:?xt=urn:btih:494B8D8E3EB14E19ADA0F0B11B768E1C5A3A7D6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

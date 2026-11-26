@@ -19,8 +19,7 @@ Summer SuperSports (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:2B42D3FCB2692CBA7EE26A206488DF9EB9E1C09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fairy Island / Сказочный остров (P) [Ru] 2009
 ```bash
 magnet:?xt=urn:btih:5B90AA9C3CCFB5668B1E8FF050636F555658F696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Farm Tribe 2 / Фермеры 2 (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:95002F9448C28BF219BAEC493537CC8B1403B4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Blades of Time / Клинки Времени [Ru/En] (RePack/u5) 2012 | R.G. Shi
 ```bash
 magnet:?xt=urn:btih:2960E2E03A3D01259E7ACD17E8B7F5C5A10A0E3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Hydrophobia - экшен от третьего лица, повествующи�
 ```bash
 magnet:?xt=urn:btih:6193EEFEAAAB44612C5EB04C3207282B4743E9B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Ра
 ```bash
 magnet:?xt=urn:btih:A7AF0A2758BDE8AA6DB6021DD2E7DB50781AAA42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

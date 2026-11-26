@@ -19,8 +19,7 @@ PowerSlave (1996) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7E179E003E0FAB7050A9B8E82D44C30C08ED2252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

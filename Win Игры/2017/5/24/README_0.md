@@ -19,8 +19,7 @@ StarCrawlers — это сплав из классического Dungeon Crawl
 ```bash
 magnet:?xt=urn:btih:5211E2C79D22CC9DA2AF86E11B69ED0F014AF627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Late Shift - это криминальный FMV-триллер, ставки в
 ```bash
 magnet:?xt=urn:btih:730AF62046B8F21B3BA9B2924CFDE8481C72F8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Impact Winter (2017) [Ru/Multi] (1.0.2) Repack VseTop
 ```bash
 magnet:?xt=urn:btih:77CE56F7042B930A53575AB0B55B6A79246F5645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Oxygen Not Included – это новый проект от нашумевшей
 ```bash
 magnet:?xt=urn:btih:86F73AB82F7E9301C8EB176A9AFE6D366DFED350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Steel Division: Normandy 44 — это тактическая стратегия
 ```bash
 magnet:?xt=urn:btih:4B5E919CF8CD36ECC697CC43E6E27B0CE4E567C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Hellshot - Sickening Society (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:CC6D01989100CB3FDB37E5BA99AB9A711FB1ED39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Before Eden - The Legacy of Gaia (2005) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:0E21D006753B48539015B1D1E1A41B0EBB3C444A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Accuser - Double Talk (1991) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:9489CB36F6EEE9C3CBC56F71904E1C1BEB30B856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Edenshade - The Lesson Betrayed (2006) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:B125A1A4F3BB32FB55B81AF62E81B08F86CC238C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Astro Zombies - Frogs Legs (2015) [MP3|320 кб/с]<Psychobilly>
 ```bash
 magnet:?xt=urn:btih:28013D370D13A43ACAFDF38972F049586D501DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Alanis Morissette - Havoc and Bright Lights (2012) [MP3|320 кб/с]<Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:652A36A878B72132F33DEEE8F65944BFE1AC4A20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

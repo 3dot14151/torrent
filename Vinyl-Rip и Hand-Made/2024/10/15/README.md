@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0480D3E1AC726DEC83377099979E6C7997A12DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Nocturna - симфо-метал группа из Италии с женски�
 ```bash
 magnet:?xt=urn:btih:DE87BD46A3D347C12CD20DECBB08D3420B03F091
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

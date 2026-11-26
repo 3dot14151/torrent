@@ -19,8 +19,7 @@ WarCraft II (2) (1995) [Ru] (2.02b/dlc) Repack EXROW [Battle.net Edition]
 ```bash
 magnet:?xt=urn:btih:B1D551184FCD941B996A3D06DCFF5444CBE2A1F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Zhaba - Brave New Trip (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner 
 ```bash
 magnet:?xt=urn:btih:D3D501F38671882B0EA8FADDE1A0F97777DB67FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

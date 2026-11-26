@@ -21,8 +21,7 @@ Calculate Linux 13.11 [x86-64] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:5E86A04F07A1212F03C6F83E36965F3ACEE4CC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

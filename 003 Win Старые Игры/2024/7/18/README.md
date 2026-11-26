@@ -19,8 +19,7 @@ Manhunt (2004) [Ru] (1.1) Repack R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:110A93E9FA91B119CDF9A7AC42AF126586E97BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

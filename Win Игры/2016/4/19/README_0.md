@@ -19,8 +19,7 @@ Outpost 13 - point-and-click экшен-приключение с элемент
 ```bash
 magnet:?xt=urn:btih:F03D8EC593EDD14EFD3B4C0E47939521A5BD1A46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Survivor Squad: Gauntlets (2015) [En] (1.03) Repack ARMENIAC
 ```bash
 magnet:?xt=urn:btih:85B88A43F13BF6539AA28AFED1E8B94C792CB2D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ LostWinds 2: Winter of the Melodias является продолжением п
 ```bash
 magnet:?xt=urn:btih:4DAD7C21FD418AC80B69FCC68CA9085EB6D49F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Goetia - это приключенческая игра, действие кот
 ```bash
 magnet:?xt=urn:btih:CA309CB07C55A4404E2B036961794A93424F225E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

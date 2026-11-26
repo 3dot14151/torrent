@@ -19,8 +19,7 @@ The Dark Prophecy (2022) [Ru/En] (1.0.11) License GOG
 ```bash
 magnet:?xt=urn:btih:F669A56CF2DE5D2DC7C23B42634BADFACFADF4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Addy Osmani | Learning JavaScript Design Patterns (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:B8E3D4FB964C86C36618BB8B575E2F63631F0818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Asjad Athick | Getting Started with Elastic Stack 8.0 (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:55DE1C00D7FC77B59F5A463B818F9555B58FB4F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

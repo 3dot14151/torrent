@@ -20,8 +20,7 @@ Real Racing 3 — образец графических возможностей
 ```bash
 magnet:?xt=urn:btih:7B4F0B184D5FF1D3262D309DD2AD7B5F0D75C745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

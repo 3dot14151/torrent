@@ -21,8 +21,7 @@ Ocean Avenue 84 - Collection (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 ```bash
 magnet:?xt=urn:btih:E046A50405128F2CF1C3E934AC599CEE802B646F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Meet Me at Kuiper’s (2022) [MP3|320 Kbps] <Synthwave, Darkwave>
 ```bash
 magnet:?xt=urn:btih:006139FE25358B9A01A3CE75B20F931C29CC5B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Lilly Palmer - Bigger Than Techno (Extended Mix) (2026) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:CDE9F78B9E931B2710D5C8F85D0910E28EF6D705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9A86C8160753A8E51BA45CD01A8B1D723D9FF4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2F6C4C6A17862E1657F48071E896EF513D67EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ VA - Friends of A State Of Trance, Vol. 6 (Black Hole Recordings) (2026) [MP3|32
 ```bash
 magnet:?xt=urn:btih:C55ABFAC69643C629B43E1B55B4699DFBDA8EF92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Lady Gaga - Compilation (2008-2026) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:33CBE653ABB9CEEB337B32A4DE7DC2A216BDE307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ AI - Russian Poets Covers Compilation Part 28 (2026) [MP3|320 Kbps] <Cover, Othe
 ```bash
 magnet:?xt=urn:btih:47B03AF001AC645FA30BAD8E943A4E3E4E169FA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Swedish Death Metal (2009) 3 CD [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:DF9CDCDD0BDAB39F094C2864C195C5FE81B76892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1237CD005A42590E87F657FA3CD4B0B3DF7AC65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ VA - Euro Hits 2017 vol.-2 [MP3|320 Kbps] <Pop, Dance, Electronic>
 ```bash
 magnet:?xt=urn:btih:BC6A63120E7FFBAE84137C7FB84A1C9D00E2C7E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50CD7425D1BA69D8C32E729BAAB9C3826E7D460B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ Ocean Avenue 84 - Summer 83 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 ```bash
 magnet:?xt=urn:btih:8D440F8B7D27C5B08A9B48453DB6A11F4DBDC3D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +381,7 @@ Queen - Greatest Hits I (The Platinum Collection) (1981) Compilation /2000, Parl
 ```bash
 magnet:?xt=urn:btih:D7C565BBCA3A4F635E046B1490F61550CE918E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ Savage Garden — австралийский поп-рок дуэт, польз�
 ```bash
 magnet:?xt=urn:btih:2457F8BF966D4C33494CBF15CD5FC90A2EFE63EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8A4F2BDCEB66237A117A4E5F377B450349C28DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B64D5E77DDAAB9C2121D10760FBC0AD6D645384A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7F601BDE3F631EDBF4D56E97B1AC69C04FC85E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Boeing создает самолет, который поворачивает «
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +533,7 @@ Blades of Fire (2025) [Ru/Multi] (2.0.0.10) License GOG
 ```bash
 magnet:?xt=urn:btih:FA33CD33EDFEDC28F9D00E5CF22601239546DAF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB2E134C210C8447AE8E039253F86C6A87258585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:081D01876AB8DA2BD159937DBAEE80664306BF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08F4BBF4365ED5130C9F5C369D69A6EA65680C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ Flip Board Countdown — это современный и лаконичный �
 ```bash
 magnet:?xt=urn:btih:F1F64668BA8A724E33D557E38F592CB6C5379F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBA3683A8C2E8D13ECD3F4F9BC41ED0DFCD45FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

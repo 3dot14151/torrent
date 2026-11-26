@@ -19,8 +19,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Decepticon [Master 
 ```bash
 magnet:?xt=urn:btih:E15A5D44961D22022A6702759670D146915FBF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16.12/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:47ECE7B5C6CC3D75BFA78920CECE63E41C189F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ VED - это сюжетное RPG, сочетающее вручную нари�
 ```bash
 magnet:?xt=urn:btih:FB30AB8A5A2EC18D48C080FE9427F024EBE326EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Oregon Trail™ от Gameloft - такого The Oregon Trail™ вы еще
 ```bash
 magnet:?xt=urn:btih:60905001B947F561DBD6F6B24898348B405629D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fritz – одна из наиболее известных шахматных �
 ```bash
 magnet:?xt=urn:btih:8EC7D4A8309189B28D4C9F39F41A73824A392025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Chess King - это идеальный инструмент для любого 
 ```bash
 magnet:?xt=urn:btih:A8761A5353925480B554657303CCBB988EA62928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ ChessBase Mega Database 2025 - это ведущая шахматная база
 ```bash
 magnet:?xt=urn:btih:55D186D55F12D430C60BDCDAA8AD6BB2BE3F56E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.11.17.1029) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DBFF48AB42E4AB02E4804BCEB8E9A8F8618A65C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

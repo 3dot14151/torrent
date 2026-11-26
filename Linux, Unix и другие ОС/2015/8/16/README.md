@@ -21,8 +21,7 @@ KaOS Linux 2015.08 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:BCCB0753AE73E3DB1B5E4886371C0D42C18AFAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 10.08.2015) [i386] 3xDVD
 ```bash
 magnet:?xt=urn:btih:69CF27BBB7B755538484196DA8ACF5D813DEA17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 10.08.2015) [x86-64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:A88DD3EC6DF6CE0F40BD049488AD00602A7C9F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

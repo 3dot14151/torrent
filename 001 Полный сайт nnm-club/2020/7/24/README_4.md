@@ -18,8 +18,7 @@ Total Commander – пожалуй, самый популярный файлов
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Windows 10 Enterprise LTSC 2019 x64 v.1809.17763.1369 July 2020 by Generation2 [
 ```bash
 magnet:?xt=urn:btih:541DDBEB8D69D7FF8681675AD38F35276F1BCCA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D12A5A6D7313B3FB80E6AA2572C473C9FF48BA54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

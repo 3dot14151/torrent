@@ -19,8 +19,7 @@ Royal Romances: Battle of the Woods / Королевские романы: Би�
 ```bash
 magnet:?xt=urn:btih:03CA66D4D655FC5FDB02CAE9C8BE05E22D783C8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Entropy Centre - умопомрачительное приключение �
 ```bash
 magnet:?xt=urn:btih:529015615C470CEA6B6471F0595AB2C5299D813F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4C99AF2D8B7EAFE20AAB9A4F6C434EE8198BB2D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Police Simulator: Patrol Officers - симулятор полицейского,
 ```bash
 magnet:?xt=urn:btih:5D3F15C96B126EF2C78801074EC7CF9CD8144FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

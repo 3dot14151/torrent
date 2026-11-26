@@ -28,8 +28,7 @@ VA - Trancern 2013.4: 3LIME Official Compilation (2013) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:B75A85DF4E7CD8AAC68282E537BA9936115A28E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAE0784301CFBE19C27CEFB213210F955D4F4AD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ VA - Trance Remixes - Volume Four (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8D6A42221C58AB148E63F17CB23B1E8DD9AE3032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Robinn - Multiphonia (2013) [MP3|320 кб/с]<Tech House, Deep House, Electronic
 ```bash
 magnet:?xt=urn:btih:5AD80029E63AA08EE6267406044DBA2B4190F31F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Nikko.Z - Dopamine Episode 006 (Proton Radio) (2013) [MP3|192 кб/с]<Progressi
 ```bash
 magnet:?xt=urn:btih:B2ACBB7DD34FC300F4C1B99AF41F3B7228C6150C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ VA - New Song Dance Edit (2013) [MP3|256-320 кб/с]<Euro, Vocal, Handsup>
 ```bash
 magnet:?xt=urn:btih:F4CE368D4DD376A81C367A14F0A6C06CEDFBCFB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ VA - A State Of Vocal Trance Volume 20 (2013) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:FAAE7310505FCC13CEEC3A509C96F48686C99CEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Legba's Mojo - Legba's Mojo (2013) [FLAC|Lossless]<Blues-Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D79A60E46B4390E3D490CAA21BE6C3448CCF4988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +287,7 @@ Dimension – All I Need EP (2013) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B1D3B4F4499AB638F515552949DA31DF53333EF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:061967ECFAC9E2A1FAEB234D72AFD0FA372CDC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFA79DB23BA185D7E6914F61648EAEFC1727EEFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3337C532311143D4B126ED947520F878FD8714C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC3E91F0E355E0750B990C40C075E13E92A2B2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF3CDD0C79978C3E699653F1FB15897E894505EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ NirLauncher Package - это пакет из 173 небольших утилит
 ```bash
 magnet:?xt=urn:btih:FBE69BC5A166F3A20F99088745F3DD21DD09BCBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ VA - Hits Cocktail - 18 (2013) [MP3|320 кб/с]<Pop, Dance, Сlub>
 ```bash
 magnet:?xt=urn:btih:0AD2D43C54932F127CCD1965AEDD90EE557B99CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,8 +507,7 @@ Twilight - Space of Time (2013) [MP3|~224-261 кб/с]<Psy / Psytrance / Full On
 ```bash
 magnet:?xt=urn:btih:A96FFFF182A36B34A799AEDB82EF4AD998DBD3B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FCA7E9D55CE1D294873F2111D4C912CF68FCE82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ VA - Ministry Of Sound - The Sound Of Dubstep Darker 2 (2012) [MP3|320 Kbps] <Du
 ```bash
 magnet:?xt=urn:btih:8EBBE3FAAADD469A11002F4C2486FA982E4AD7B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0BBE17909777BDBE962301A4804CD2277EAC79F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +610,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBC1370904874CC5664945EA064864D0808AA443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +644,7 @@ Jack Johnson - From Here to Now to You (2013) [MP3|320 кб/с]<Alternative, Roc
 ```bash
 magnet:?xt=urn:btih:B0DAD815CF1E64B3BDF5999EB146EFD578B1F600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ Thin Lizzy - Vagabonds Of The Western World (1973) 1990, Deram [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:B87404EA8CAE976DC336B8A546BD578503D26A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:775FC591E5715E92D8C9A742F4C64B1B026AEC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D1CF55794B5CDD28EF15F363EA6259F61E3CDD86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1AFC774E321506E797D87D391332445CAC33CA31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

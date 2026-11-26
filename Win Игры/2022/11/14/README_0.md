@@ -19,8 +19,7 @@ Zniw Adventure - поинт-н-клик приключение, нарисова
 ```bash
 magnet:?xt=urn:btih:9096293214163FB1052A46CF4FDDD4615B7978DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Murder House – сюжетный сурвайвл-хоррор, в которо
 ```bash
 magnet:?xt=urn:btih:72050145D856B6AF481866EAF9E1689F776A1736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aragami 2 (2021) [Ru/Multi] (1.0.30195.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4D3C67565DE773356AF2AB2AD391050111E14662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

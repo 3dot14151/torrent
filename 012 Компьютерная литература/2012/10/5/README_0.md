@@ -19,8 +19,7 @@ Scott Valentine | The Hidden Power of Blend Modes in Adobe Photoshop [2012] [PDF
 ```bash
 magnet:?xt=urn:btih:F8E4D5846EBBBB2C2B0B6EFE712AD942AD565764
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B42C2F3073224E0CC8F7248ADF3FDFBCE8D05D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Scott Kelby | The Adobe Photoshop CS6 Book for Digital Photographers [2012] [PDF
 ```bash
 magnet:?xt=urn:btih:FC573929F8332C3DEA6EA4682B35C88D14E1A02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6C2487B548688ED18D5D2B851BDABB5EB1B4E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

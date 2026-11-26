@@ -22,8 +22,7 @@ Samson - Head On (1980) Japanese Edition, Reissue, 1992, Jimco Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:413A94FADADA75D86A5804B73B27EB2B2C3C48B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bonfire (Костёр, изначально Cacumen) — германская р
 ```bash
 magnet:?xt=urn:btih:2F50FB6D792F35D885727C0E1CBB9C962522A2B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ W.A.S.P. - Bonus Tracks And B Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ```bash
 magnet:?xt=urn:btih:D300963FEF5783180B04E89AA175A2C9722379B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

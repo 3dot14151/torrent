@@ -19,8 +19,7 @@ Wanderlust: Transsiberian - это приключенческая игра, в �
 ```bash
 magnet:?xt=urn:btih:7C2A8F53F4072BE3667580A7450DCABB4615408C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alder's Blood — это мрачная и темная тактическая �
 ```bash
 magnet:?xt=urn:btih:5DE84284112E34DCC0740B3350F701DD1117039F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.05.75935) Repack xatab
 ```bash
 magnet:?xt=urn:btih:AB8690595708670DF051D79487E0FFE9591438A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mask of Mists (2020) [Ru/Multi] (1.0.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9A46AB9483AC6EB70A4B3DBF84F98CF68BEF8F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

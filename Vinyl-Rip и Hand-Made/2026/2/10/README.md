@@ -22,8 +22,7 @@ Vola — рок-группа из Дании, основанная в Копен
 ```bash
 magnet:?xt=urn:btih:8ECF4B3A272247EEAC7B64F8307F2E64C80C47B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Are You Sincere?(   Читать дальше...   )Жанр: Jazz, Pop, Easy
 ```bash
 magnet:?xt=urn:btih:2AD26A8E0BA563BAC5EB5E535C4A0068B0C83FE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

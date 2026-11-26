@@ -19,8 +19,7 @@ ZUSI 3 - Aerosoft Edition (2019) [En/De] (3.3.0.1) License
 ```bash
 magnet:?xt=urn:btih:AACA67BA7BBA608CB270A18FC2CF94A15866A2DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

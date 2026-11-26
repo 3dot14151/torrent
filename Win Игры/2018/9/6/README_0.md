@@ -19,8 +19,7 @@ Overhead (2018) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EE341B94D3B23B592C7BB350F88179BEF6B9C8EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Inner Friend (2018) [Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:6C489CDD12A91834019A622385AB30F1983640FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ocean Nomad: Survival on Raft (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8FB2332454E11134E62AF7B1252F70C6E21585DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sword Legacy Omen (2018) [Ru/Multi] (1.1.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:4645531B66D0A3C47790A2F704D025C5E94F62F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

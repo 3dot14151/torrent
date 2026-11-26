@@ -28,8 +28,7 @@ Freeman Sounds & Friends - Heavy Trip (2005) [MP3|320 кб/с]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:61D6D5053F0F26D2CB60BFD2C24931D848E6D702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

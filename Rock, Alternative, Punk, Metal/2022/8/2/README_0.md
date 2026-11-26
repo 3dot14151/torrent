@@ -22,8 +22,7 @@ Turbo - Tozsamosc (2004) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash M
 ```bash
 magnet:?xt=urn:btih:AF5358DB5C86541093B3966644F086F41E27892B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD - 1 - Fool's Game (1989):
 ```bash
 magnet:?xt=urn:btih:795A780DA199B7D82976307D97A6AB1BD03C3386
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Mysterines - Reeling (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:A5FE884451D2A91758C1584C3AFB06D21AA2C642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Mutharoad - Midnight Stalker (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, He
 ```bash
 magnet:?xt=urn:btih:7F61B879BE501C0F5BB0D02F11C7522FEEB48082
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Ragged Saints - The Sound Of Breaking Free (2013) Reissue, 2021, Lions Pride
 ```bash
 magnet:?xt=urn:btih:50F5ED13DC204C678EA459CA4A66D802D92C7C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sex Pistols - The Original Recordings (2022) [FLAC|Lossless|tracks + .cue] <Punk
 ```bash
 magnet:?xt=urn:btih:BF7F892AB9CFFC43E63B359A1071E9EC2A91D274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

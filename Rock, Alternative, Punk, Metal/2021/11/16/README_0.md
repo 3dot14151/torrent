@@ -22,8 +22,7 @@ The C Sides Project (C Sides) - 6CD (2011-2021) [MP3|320 Kbps] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:29BA59B824985D88F12A7787E17EB8F38FA1ED83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vandenberg - The Complete ATCO Recordings (1982-2004) 4xCD, Box Set, Compilation
 ```bash
 magnet:?xt=urn:btih:B16470111DDCB83359F017E01AD1D7F67E2B7A4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Clouds - Despartire (2021) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Doom, Melo
 ```bash
 magnet:?xt=urn:btih:9B0FAD16A0803EE7C8CC8872A1EB00F833129BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52F4555CA613E330960EAA34F960B3817F8DFD94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Architects (UK) - For Those That Wish To Exist (2021) [FLAC 2.0|48/24|tracks|WEB
 ```bash
 magnet:?xt=urn:btih:C5F2514D78A2CA538CC396EB4099CADEF41179E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rod Stewart - The Tears Of Hercules (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C018ECFA7F3A68D8ACB08173010BC7A5D69D23FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Rod Stewart - The Tears Of Hercules (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Pop, 
 ```bash
 magnet:?xt=urn:btih:88C94B84AD6E74B026D66C380F5E76D38D9BBFF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Savage Circus - Dreamland Manor (2005) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:099499D4CB033A548994DA093596179976CCBF70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Iron Maiden - Maiden Japan (2021) EP, Remaster [FLAC 2.0|96/24|tracks|WEB-DL] <H
 ```bash
 magnet:?xt=urn:btih:0399DDB4D96ADCA3EE63FAFC00FEB05562737BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Paragon - Revenge (2005) [FLAC|Lossless|.iso.wv]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:41BB091A429895838332DD58CF7A79068FDADC86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Stitched Up Heart - 4 Альбома (2010-2020) [MP3|320 Kbps] <Alternative Met
 ```bash
 magnet:?xt=urn:btih:146B2B78601F6CA22447B34515D7038064F2A1ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

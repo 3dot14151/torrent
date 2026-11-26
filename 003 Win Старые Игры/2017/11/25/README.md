@@ -19,8 +19,7 @@ Descent 3 (2000) [En] (1.4/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:CB6742DD09570E9DCC5E60CCA3397E31F716F3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jade Empire (2005) [Ru/En] (1.00) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:CA093B177B23C70A3D659A4DCF523DB406DD63FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

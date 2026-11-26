@@ -21,8 +21,7 @@ Empires: Dawn of the Modern World (2003) [Ru] (1.0.5163) Repack
 ```bash
 magnet:?xt=urn:btih:ACB1929D137A6E02B7F477D2DF6A88AC140EFCE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

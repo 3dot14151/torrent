@@ -22,8 +22,7 @@ Soreption - Deterioration Of Minds (2010) [FLAC|Lossless|image + .cue] <Technica
 ```bash
 magnet:?xt=urn:btih:1DA6C0DB39285CFC1A93877F9DE59141D088B9FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Metаllica - The $5.98 E.P. - Gаrаge Dауs Re-Revisited (1987) 2018, Remaster
 ```bash
 magnet:?xt=urn:btih:5EFF079A4E86A793AFAFF9FB9D662417936AF989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Punk & New Wave - CD01
 ```bash
 magnet:?xt=urn:btih:F4908EA4D78476EF21E4BC03021258EEC747E76B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

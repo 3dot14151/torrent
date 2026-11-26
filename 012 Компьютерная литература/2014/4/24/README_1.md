@@ -19,8 +19,7 @@ Ingate | 4 способа привлечь посетителей на сайт 
 ```bash
 magnet:?xt=urn:btih:1E2F6C385DC5663D4BB91079463B95A795772C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

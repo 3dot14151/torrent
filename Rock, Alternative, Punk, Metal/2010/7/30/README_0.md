@@ -28,8 +28,7 @@ Anders Osborne - American patchwork (2010) [MP3|256 kbps]<Electric Blues, Blues-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

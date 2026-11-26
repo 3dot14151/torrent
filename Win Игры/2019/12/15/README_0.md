@@ -19,8 +19,7 @@ Ashen – это кооперативный экшн-RPG c открытым ми
 ```bash
 magnet:?xt=urn:btih:46797F44210A6E39E3EFF7980DE56A5BE9856892
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Beast Inside (2019) [Ru/Multi] (1.03) Repack xatab
 ```bash
 magnet:?xt=urn:btih:8B69BB2A1F2347C3306D61B25CA6807C234DA31A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

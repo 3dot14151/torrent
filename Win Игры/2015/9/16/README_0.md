@@ -19,8 +19,7 @@ Absolute Drift – гоночная инди аркада, в которой в�
 ```bash
 magnet:?xt=urn:btih:855D4584978136523D302E4F283F6522DCF5F8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Way of the Samurai 4 (2015) [En] (1.06/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EB6387F186153D0B516CD8E8B9DA834F722D6A53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Volume (2015) [Ru/Multi] (1.1.04) Repack Let'sРlay [Triptych Edition]
 ```bash
 magnet:?xt=urn:btih:B7B7DF8475443FB5C9F27A6672FB773278E92789
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

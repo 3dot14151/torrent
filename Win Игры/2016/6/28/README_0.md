@@ -19,8 +19,7 @@ Spirit Of Revenge 4: Florry's Well (2016) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:AFF22D15CF09E041164C685CD3806F0307158C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Goliath (2016) [Ru/En] (1.04/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:08BC97AA7DCD7C55B9E991F496FB01DA3B8DD5EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

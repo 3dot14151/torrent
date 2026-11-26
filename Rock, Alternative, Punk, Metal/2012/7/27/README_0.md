@@ -28,8 +28,7 @@ One State - Без Компромиссов (2011) [MP3|320 кб/с]<Hardcore / 
 ```bash
 magnet:?xt=urn:btih:ACC57DBE185D36241F65E3A90ADF94FB8F982F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Tankard - A Girl Called Cerveza (2012) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C17DE97D5E48D00287089873FAD182088E7C5CF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Aaron Lewis - Town Line (2011) (Сольный альбом вокалиста S
 ```bash
 magnet:?xt=urn:btih:777591B4E6EBED1A1E6254987F8D9A455AD1B1E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Testament - Dark Roots Of Earth (2012) Deluxe Edition [FLAC|Lossless]<Thrash Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC8EF6530988731436EB63A8B3A680895D79A3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

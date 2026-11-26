@@ -23,8 +23,7 @@ Hidria Spacefolk - Astronautica (2012) [MP3|~240 kbps] <Psychedelic Rock,Progres
 ```bash
 magnet:?xt=urn:btih:ACA972A0B5C826F5521C418EC9C6FB558CD1C489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Lunar Path - Memento Mori (2012) [FLAC|Lossless]<Gothic Metal, Female Vocal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Theatres Des Vampires - Cult Of Lahmia (2012) EP [MP3|320 кб/с]<Symphonic, Va
 ```bash
 magnet:?xt=urn:btih:BEE6F92A00DD2E614F26DD75A8C4DA46024E9F12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:83BC5BA5A53DF32CF4DA9A7DBA7D9E24B1294174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Tommy Vitaly - Hanging Rock (2012) [FLAC|Lossless]<Neoclassical / Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +183,7 @@ Green Day - ¡Uno! (2012) [MP3|320 кб/с]<Pop-Punk>
 ```bash
 magnet:?xt=urn:btih:E890593CBF174219D326E7893D02A369B6497BF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

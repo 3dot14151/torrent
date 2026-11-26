@@ -28,8 +28,7 @@ Aerosmith - Mansfield, Massachessets,  27-08-1993 (Bootleg) (2007) [MP3|256 kbps
 ```bash
 magnet:?xt=urn:btih:C87791A256AD283D7012B88DF0994BEA5593CEE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MotoScan обеспечивает профессиональную диагно�
 ```bash
 magnet:?xt=urn:btih:E51B5B6DF2507784A0F6A9DC72997CAA23882673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AlfaOBD v2.2.5.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B171EF5D7701E6E9F30F455F6BFF4687D6B75FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

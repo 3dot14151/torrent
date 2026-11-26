@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E1B3489FBD01F9487151C284BD155696003BBBAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) Repack Other s [Gol
 ```bash
 magnet:?xt=urn:btih:228BE2EAD27CD4FFAABF30C43C946AE9A89FED4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ ELEX — тщательно проработанная динамическая 
 ```bash
 magnet:?xt=urn:btih:6D29743B78CE839A3D96E5F0BA16B2A140F26AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

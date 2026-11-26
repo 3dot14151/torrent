@@ -19,8 +19,7 @@ Mystery Trackers 6: Raincliff’s Phantoms Game (2014) [En] Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:E665E92606707FF7CD11FD4C607EB1703EFE3155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Folk Tale (2013) [En] (beta 0.2.2.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CCD8249BDB135F47247E4FD1A84A026B792745D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Line of Defense Tactics (2014) [En] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BE2F443ECE94006396EB129502B321B56B6F9862
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

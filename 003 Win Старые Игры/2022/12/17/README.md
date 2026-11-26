@@ -19,8 +19,7 @@ Pool of Radiance: Ruins of Myth Drannor - современная реинкар�
 ```bash
 magnet:?xt=urn:btih:415C23DA4CE236E04E3E1EAE96B9D42E18E2222B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

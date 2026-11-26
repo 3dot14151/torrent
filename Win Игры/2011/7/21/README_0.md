@@ -19,8 +19,7 @@ Empress of the Deep 2: Song of the Blue Whale / Морская повелите�
 ```bash
 magnet:?xt=urn:btih:19D9B3DC7BDD4EBF55444767D124007F06D90D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Missing A Search and Rescue Mystery Collector's Edition / Пропавшие
 ```bash
 magnet:?xt=urn:btih:F1C5891FFE184EA0B5B371D708974D5D288CB3D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ rFactor / WR Lada Cup ВАЗ 2101 [En] (P/Mod) 2010
 ```bash
 magnet:?xt=urn:btih:AE73912D5CD2304547A1CA34EC47D6B7212BC51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Zuma's Revenge! является продолжение популярной к�
 ```bash
 magnet:?xt=urn:btih:3E64CE14D7E3DF3A1B7747AC715949331DF4EC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

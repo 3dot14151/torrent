@@ -19,8 +19,7 @@ Tunguska: The Visitation (2021) [En] (1.0) License Fairlight
 ```bash
 magnet:?xt=urn:btih:62D58391A92AC642312CD20CF69C0121BB405DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

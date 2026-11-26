@@ -19,8 +19,7 @@ FlatOut: Ultimate Carnage поднимает разрушительные гон
 ```bash
 magnet:?xt=urn:btih:1E5B3725BCBA69476378304557DF50C959838063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Need for Speed: Underground (2003) [Multi] (1.4.0) Scene Spirity
 ```bash
 magnet:?xt=urn:btih:9B52AC7F1459CAFB275786B5E1DD002E3249A42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Juiced 2: Hot Import Nights (2007) [Multi] (1.0) License DETONATiON
 ```bash
 magnet:?xt=urn:btih:282BB8C7FC95B6166BE682057A9CAE0AED2BC684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Driftwood (2023) [Ru/Multi] (1.0.6-h1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A1731528F7E9BA83D5A20D5F57D74ED39FC840FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Outbreak Island (2025) [Ru/Multi] (Update 9/dlc) Repack Let'sРlay [Supporter Ed
 ```bash
 magnet:?xt=urn:btih:00758C68D7AB90F7843CFEBA0702B2280D940F01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ City Tales – симулятор строительства средневек�
 ```bash
 magnet:?xt=urn:btih:1482CF8EB7299CF913998125675E705A31689E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Close to the Sun (2019) [Ru/Multi] (108) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4FE84AD267163A9F06B56E9D796AE2E9F5DFFBD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Boom — это многофункциональный музыкальный п
 ```bash
 magnet:?xt=urn:btih:4BDFFBC85A97629808B9B2F30ADDAD225C82DCF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

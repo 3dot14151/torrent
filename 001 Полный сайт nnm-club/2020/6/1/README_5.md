@@ -20,8 +20,7 @@ PatterNodes - хорошо продуманный и настраиваемый 
 ```bash
 magnet:?xt=urn:btih:77452CDDF96C4B810ED4A157EF4180BF64F59AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:067B9F89FD3841017D09E117D591006F5C163010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ PhotoMill X (aka Reformator) помогает Вам преобразовать 
 ```bash
 magnet:?xt=urn:btih:D451FBB646CB94081A17E2CEA6BA59B3C2C5F40E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A54A8C929A7D627802D887192C7FCCD1680BDA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Tony Bennett - Here's To The Ladies (1995) Columbia [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:72ED9ACC00AFDF56F13593C96281009C66925E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ SizeMyPics может помочь вам в преобразовании бол
 ```bash
 magnet:?xt=urn:btih:4668F7E55472EB5D1E4EA62DE249F631A5803BC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:189ADA7258B2A17420C2557CAA0D857BC3BFD1CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ St. Concrete - Listen Past Me (2019) Modern Cathedrals [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:6F475CA595DFE1F0772BA876AB31428ACE333FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Exos - Indigo (2020) Figure [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, A
 ```bash
 magnet:?xt=urn:btih:B8F6451062C28B5F78B741AE2BF2657323E859A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ Ferrein - Valentine (2016) Echotourist [FLAC|Lossless|WEB-DL|tracks] <Dub Techno
 ```bash
 magnet:?xt=urn:btih:BAAC08827470B1E5163E7462C24A2613A67B75DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E8F3CC0A409BF68D38FE330273D95DA9BAE770A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ Aura Minimum - Mysterious Segments (2020) Modern Nature [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:90DA3C7B9A94E0B654D806C96B7398835D22F937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FB323241CF566D84DE4575CE78C3E6EDF0D4DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +372,7 @@ Resoe - Discography 15 Releases (2007-2020) Baum Records, Echocord [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:E518EEAA61E906ACAB2EA696349EF089478385EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ VideoDuke 1.9 (build 271) [En]
 ```bash
 magnet:?xt=urn:btih:359A955F4E2DB26DB723B477AA1379A50C145561
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Folders Factory — сделай уникальными свои папочки 
 ```bash
 magnet:?xt=urn:btih:D6D35117965B77B5A126D29A1FA8AE68D1BF0829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE5BDCE9CA9197E40E4D86CB3F647BE5A1B633E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +478,7 @@ Risu no Matoi | Белка и пожарное знамя [1991, OVA, 1 эп.] W
 ```bash
 magnet:?xt=urn:btih:52521A63BC58021981780305325D5EA69CEE8046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B353173D73918833C71130D806DD69BA7117C3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56E9E410FD7FE65B0596C2DBD7C6C9B17CF136C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Serial Box 06.2020 + SerialSeeker 2.0 (build 44) + iSerial Reader 2.0.23 (build 
 ```bash
 magnet:?xt=urn:btih:FD8A8CD7BCF4C2082B16DB8FAB97CD0AE613389C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ VA - EDM (2020) [MP3|320 Kbps] <House, Dance & Electronic>
 ```bash
 magnet:?xt=urn:btih:A4153AD1139D5D6538B95CB15191B9AD178396DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:0A8B4D291CB92F02CBB985EE6FFFB1B25320C226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:A3DA5FEA3CC4148853484B65D598244D2D0E6D27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:410461BA686F04CD8B2FFD84B9A30BBD7A6DDB45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ Krzysztof Kowal & Grzegorz Michalak - 112 Operator Soundtrack (2020) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:79E26D91C6F1EB970C5A491AF023DAA343FECDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

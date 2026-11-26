@@ -19,8 +19,7 @@ ReGen - Password Generator - это программа для генерации
 ```bash
 magnet:?xt=urn:btih:56ACFEC2BE76DCB538EDA4B20BECACFA7ABDD70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

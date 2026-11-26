@@ -18,8 +18,7 @@ HTML и CSS — основные языки разметки и стилей, с
 ```bash
 magnet:?xt=urn:btih:DDF58F72F6E7C78C8129E96AE54C8F53948A0795
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Enemy Front — это новый шутер от первого лица от �
 ```bash
 magnet:?xt=urn:btih:4A46F6C3647EAD31A3C86F33718F918DCFC3FCC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Adobe  Photoshop CC 2014 входит в состав Creative Cloud. Поэто
 ```bash
 magnet:?xt=urn:btih:9A5D0ACC9D2613CE42A7746CC1630C7F374FD1AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D152212C346B30A3A30FE1A9ADF6BD279769F573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Adobe Illustrator CC 2014 входит в состав Creative Cloud. Поэт�
 ```bash
 magnet:?xt=urn:btih:2F9E1B200DE0A89A20FE852F37112888371E859A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E0354FD31CCBD00A074D518CB738EB0EFFE96D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

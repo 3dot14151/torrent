@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:D849F6C17D2537A6BC58CEB11B5213B039E5A41F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Photo Sherlock v1.123 Mod by Mixroot  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:21A2CBAA2CBEB635E6025C9AA7782AA49F9AD95F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PowerDirector – Video Editor v14.6.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8AAC0BE1790BED145D8B1094768CF5EEAE22DC56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

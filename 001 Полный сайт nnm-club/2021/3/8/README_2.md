@@ -18,8 +18,7 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:BA5662E8FC9A48457ADE63653D72AF0A6AD92F1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Udemy, Maher Haddad | BGP on MikroTik with LABS - From Entry to Intermediate lev
 ```bash
 magnet:?xt=urn:btih:4CE24E23DD40C98836C0716F8607A0699FD99AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5CE860A88D0F4AD5C8A3EB074A8967F459A647C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cultist Simulator – известная карточная игра на анд
 ```bash
 magnet:?xt=urn:btih:CD15FA13F8FEA06870B946DE3FF9E3D668C15A29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Little Big - Sex Machine (2021) WEBRip [VP9/2160p-LQ]
 ```bash
 magnet:?xt=urn:btih:6092845C4BF6E31F41BF689B37664CE611A490CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D60EDBAF69D0FE9810EE644DAE3DBBDAAB31808D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Any Video Converter Ultimate - многофункциональная и про�
 ```bash
 magnet:?xt=urn:btih:2F52FF8919907FE1ACFCF0662453A22A16FF3B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F0DE8355DA749114EA58DF0A454FA373055051D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AABA88EAEA16B9A2D2DA745325CBBA5979274EC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Udemy, William McGuffey Academy |  [2021] Tableau 2020: A-Z Hands-on Tableau For
 ```bash
 magnet:?xt=urn:btih:E1D74BF212A4697E3907AE90116CA13E15BC9BBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Udemy, David Bombal | Python Network Programming for Network Engineers (Python 3
 ```bash
 magnet:?xt=urn:btih:B0911CD5F14521805EF4E0D423BF9B1AB4B1F469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ Udemy, Paul Chin | Reverse Engineering: Create Your Own GUI CrackMe using C++  (
 ```bash
 magnet:?xt=urn:btih:E5E9B4CBA555CBC0173515B69F70A6347BA0C546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +323,7 @@ Cell to Singularity - Evolution Never Ends - игра события котор�
 ```bash
 magnet:?xt=urn:btih:2944C2B925A57EEDAB94DBAD4B20E9C7072000A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +348,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4393212423F2F8A56055727A0B70AAB86518E7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE1CD3AB2AD5732DB59C548B126FFCFE8843A61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +399,7 @@ Spotify 1.1.54.592 Portable by JolyAnderson [En/Ru] (авторская разд
 ```bash
 magnet:?xt=urn:btih:BE76086C8969F9AB82915848A31A4F49F78B974D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ Udemy, SS Code Academy |  Python 2021: Complete Python Bootcamp: Zero-Hero Progr
 ```bash
 magnet:?xt=urn:btih:5534B734E17CD25714312E1D56E12373F03D5BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:167B43F11FCBD3CF1C506401D3B9E02A8244623B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A290C30B6360D2EEAC624E79C7E21FCDEDE17802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:678A894DE1F57693B8D009C9588E4E7EAE6B77AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3B0A5BFE1285FC54E2CACB652FF37D82EFB60C2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EC80FC8D570E82D911DB78E6A9AEFE7C918E14B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ Monster Musume no Oisha-san | Monster Girl Doctor | Доктор для деву
 ```bash
 magnet:?xt=urn:btih:6C915432C6C07C468F300B01DB758E1127F23F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +603,7 @@ Udemy, Lernen Hub Academy | C++ Programming Step By Step From Beginner To Ultima
 ```bash
 magnet:?xt=urn:btih:80241713BA81A8473EDC486F212AB9CE9D98CC20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ Bobby ni Kubittake / Bobby's Girl / Девушка Бобби [1985, MV] DVDrip 
 ```bash
 magnet:?xt=urn:btih:9FBDE366D3F3CF14B66A46A7476EE053EEDD849F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +654,7 @@ Sky Girls / Небесные девочки OVA [2006] DVDrip 480p raw
 ```bash
 magnet:?xt=urn:btih:22543D12947763F4130AFC8FC8ECA28F582F8C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

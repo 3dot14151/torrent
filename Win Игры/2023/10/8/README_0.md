@@ -19,8 +19,7 @@ Bilkins' Folly - увлекательная игра, которая отпра�
 ```bash
 magnet:?xt=urn:btih:4B966CD760E6CA5FFAB4579506E4D2D457B9E127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cats Hidden in Paris отправляет игроков в восхитител
 ```bash
 magnet:?xt=urn:btih:74CC68A262A15A738F83F92BCC79DAA4763B501C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bilkins' Folly - увлекательная игра, которая отпра�
 ```bash
 magnet:?xt=urn:btih:69C27A20F2764A48F2EF442BB38E0CFCF0884363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hidden Through Time 2: Myths & Magic (2023) [Ru/Multi] (1.0.30a) License GOG
 ```bash
 magnet:?xt=urn:btih:365B832802C02EF3B61C605A546BAE2D2DB2D5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate 
 ```bash
 magnet:?xt=urn:btih:9D267BF2AAD6A9DA457953645577BAFF8B6E6FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (0.5.9) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0AC682EA939740C002EDB6FF2E123F786FEBFAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Iron Dungeon сочетает в себе твин-стик шутер и 2d-п�
 ```bash
 magnet:?xt=urn:btih:E82BF9B97E5C6FE23E512DE423C087E93D7134D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (1.0/dlc) Scene Rune [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:1484E5ADED3841F94213F0653E69650D97FDC421
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ COCOON (2023) [Ru/Multi] (1.0) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:6BFC1CA042A907C381C642FEADEC145830C4F8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:0CB8D02AD4F3F57D1E51B4E852AB0923255C9B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Tenants - симулятор домовладельца, в котором �
 ```bash
 magnet:?xt=urn:btih:A9A8B622348F3A98A01E473E54A4A5F44B083300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Wall World сочетает в себе несколько жанров. В эт
 ```bash
 magnet:?xt=urn:btih:198D14922F4961A9F30708EB24D56E4A491B8C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

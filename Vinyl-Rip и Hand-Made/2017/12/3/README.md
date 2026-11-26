@@ -22,8 +22,7 @@ VA - На теплоходе музыка играет. Песни В. Добр�
 ```bash
 magnet:?xt=urn:btih:324FB79EF7A443BA48C008F1CACFD22DC62CDA93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Синий Туман. Песни В. Добрынина (1989) [FLAC 2.0|9
 ```bash
 magnet:?xt=urn:btih:F13CDAE0C49A94E23FCA50DCF35F3567E5EFC8D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

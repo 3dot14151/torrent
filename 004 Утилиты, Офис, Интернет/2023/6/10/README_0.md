@@ -19,8 +19,7 @@ Windows Update Blocker – бесплатная портативная утил�
 ```bash
 magnet:?xt=urn:btih:1EE1BCC33CCB8DEB3075D7C36AF616ED305D5C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

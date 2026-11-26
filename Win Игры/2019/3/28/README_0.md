@@ -19,8 +19,7 @@ We. The Revolution – это уникальная игра с необычно�
 ```bash
 magnet:?xt=urn:btih:9E80D29C24BBE712E1B70EC41BD4BE8C7603FFCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Legend of Heroes: Trails in the Sky (2014) [En] (2019.03.24) License GOG
 ```bash
 magnet:?xt=urn:btih:5F910D38F433657616E35B0B32F330F308611363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

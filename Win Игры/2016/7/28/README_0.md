@@ -19,8 +19,7 @@ Tom vs. The Armies of Hell – приключенческий инди-экше�
 ```bash
 magnet:?xt=urn:btih:0CF89AB2D031E2FA75E0AF1E0F01B71DD0BB74CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tom vs. The Armies of Hell – приключенческий инди-экше�
 ```bash
 magnet:?xt=urn:btih:C499A74CA48FC0CC3379E3AA22F4945B4362663D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cлучалось ли вам сталкиваться со своим худш�
 ```bash
 magnet:?xt=urn:btih:F2F73A97DCE7B8187878B6C06E95F89CBAD0ADA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Steam Squad - тактический варгейм, где альтернати
 ```bash
 magnet:?xt=urn:btih:29F08A6530C7F6D0FB2176867A69DB12693FDCA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Steam Squad - тактический варгейм, где альтернати
 ```bash
 magnet:?xt=urn:btih:14A42DA355E47E761CFA41CDD6382D382F328569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cлучалось ли вам сталкиваться со своим худш�
 ```bash
 magnet:?xt=urn:btih:C0FFE120EC54D326DA2DCD3326BEA69B7E80072C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

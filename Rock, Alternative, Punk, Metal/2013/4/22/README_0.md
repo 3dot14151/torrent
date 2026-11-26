@@ -26,8 +26,7 @@ Von Branden - Flammenreich (2012) [MP3|320 kbps] <Black Metal / Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:E97D0649051263171CA35F5E51C14149044E774F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Jaida Dreyer - I Am Jaida Dreyer (2013) [MP3|320 кб/с]<Pop Rock/Country>
 ```bash
 magnet:?xt=urn:btih:28774C65AEF467E5BDFBB84DD9724D3D9F1F8460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ The Storyteller - Dark Legacy (2013) [FLAC|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +133,7 @@ Discogs
 ```bash
 magnet:?xt=urn:btih:4F458ED54742AE2BD6EEAD0FDE57ABF0FAF0E549
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +167,7 @@ Uriah Heep - Super 20 (Compilation) (1989) [MP3|320 кб/с]<Classic Rock, Hard 
 ```bash
 magnet:?xt=urn:btih:F4F2889115A909490CAF5FB092FDBF87B7EA3999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +199,7 @@ Geordie - Hope You Like It / Don't Be Fooled By The Name (1973 / 1974) [FLAC|Los
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +233,7 @@ Rob Zombie - Venomous Rat Regeneration Vendor (2013) [MP3|320 кб/с]<Industria
 ```bash
 magnet:?xt=urn:btih:B44F49F177155F3806F897604C84AC340DC0D100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +267,7 @@ Nico Vega - Nico Vega (2009) [FLAC|Lossless]<Alternative, Indie>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +301,7 @@ Lou Reed - Original Album Series (2013) / 5CD Box Set / Warner Bros UK / [FLAC|L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +335,7 @@ Within Temptation - The Q-Music Sessions (2013) Cover albums [MP3|320 кб/с]<S
 ```bash
 magnet:?xt=urn:btih:FCA400101927EA9C6BC9096AD1666B0337D279CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

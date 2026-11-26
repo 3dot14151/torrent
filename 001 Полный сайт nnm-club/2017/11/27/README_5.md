@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:ABFE9526DB6D7CB9F3FEAC8813F82537F8D2E55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEF1E23897B2A1530C6EB6822B3CFBE713463444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Singularity (2010) [Ru] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9592353571AAB4F447A51015DFD543E0F4663460
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Car Mechanic Simulator 2018 - AllPatch (2017) [Ru/Multi] (1.0.2 - 1.5.0) Patch
 ```bash
 magnet:?xt=urn:btih:9BE51D8D34AF7F4385B4CF403DE876C875BA662B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Licrest - Nothing (2015) [MP3|320 кб/с]<Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:76CD853800792BF8635ED9257AEEF65ED284D6A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Anthelion - Obsidian Plume (2015) Japanese Edition [FLAC|image+.cue]<Symphonic B
 ```bash
 magnet:?xt=urn:btih:FA63EC4E6026D95D82509AFD5B28ABB552CB73C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kirastas - Iru Hanum (2015) [MP3|320 кб/с]<Alternative, Art Rock>
 ```bash
 magnet:?xt=urn:btih:F4D2A3129818E7C49D24D86066222CB6B083C9CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Midian - Bring Me the Darkness (2015) Japanese Edition [FLAC|image+.cue]<Melodic
 ```bash
 magnet:?xt=urn:btih:24ABE7F82EBFE5D4F577AD2E5548FF108022DE48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Debauchery - F*ck Humanity (2015) [FLAC|image+.cue]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:B487146B78314BD86D527D2C59C3532A8F61769F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ George Lynch - Shadow Train (2015) [MP3|320 кб/с]<Hard Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:B439C2CA342B5485AB34A1B19212E48FD1107741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Lamb of God - VII: Sturm und Drang (2015) Deluxe Edition [MP3|320 кб/с]<Groov
 ```bash
 magnet:?xt=urn:btih:D056FD743BD55C9F0213DA9511A4505AF358F01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Guns N' Roses - Greatest Hits (2004) [FLAC|tracks + .cue]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A0C175729D8D7D313D119A73826013E8317BEF03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

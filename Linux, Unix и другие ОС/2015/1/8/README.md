@@ -21,8 +21,7 @@ Calculate Linux 14.12.1 [x86-64] 3xCD, 3xDVD
 ```bash
 magnet:?xt=urn:btih:56C002402FDDAB2B4462236AE7F15C75CB7956B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ ArchBang Linux 2015.01.01 (Легкий дистрибутив) [i686, x86-64] 2
 ```bash
 magnet:?xt=urn:btih:C348CF3B67981971400BEB662C7ABC4F77B0F420
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Linux Mint — дистрибутив операционной системы Li
 ```bash
 magnet:?xt=urn:btih:F3752EF428A4EFC327D11BE2F36988FDD87090AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

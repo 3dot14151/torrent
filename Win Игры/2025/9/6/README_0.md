@@ -19,8 +19,7 @@ Galaxy Trucker (2019) [Ru/Multi] (3.6.908/dlc) License GOG [Extended Edition]
 ```bash
 magnet:?xt=urn:btih:218E1D11A05A9DF903519D93B6FC7F3F3B961BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wolfenstein: Youngblood – новое приключение с режимом 
 ```bash
 magnet:?xt=urn:btih:E5CF0E94AC4B56EE621F50B2F6FC7D13B397B5D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Travellers Rest (2020) [Ru/Multi] (0.7.2.2) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:64EAB9575D76FC59BB02D72179AEE1F8536D3728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Universe Sandbox - основанный на реальной физике си�
 ```bash
 magnet:?xt=urn:btih:B90BB2306ACB61329100FDB76FC93218CF1CFD6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Through the Ages (2018) [Ru/Multi] (2.19.1120/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:6DE472CDD72BFD6B8EBB81E9BE5F7D4048D1E20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:90CC32B466D1A5CC932B32A86FF8970C0358FFAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Lies of P (2023) [Ru/Multi] (1.11.0.0/dlc) Repack Wanterlude [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:78A1FD6BCD991B53C54D9B53CFBBE9AB31A36292
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Dungeons & (and) Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:9D84997BDF043305DF8F6B49724371B5EF7E4E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ KELDER (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D2F9E5AD3DBE3E715C6B18939BE73725F392CCD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Human: Fall Flat – приключенческая головоломка с п
 ```bash
 magnet:?xt=urn:btih:8D2216E92E0A7E3D9966D5EC4796C3E462527382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7214A458E7FBF6DBDCEA9A07721F8D1556E708B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:112AACFF3DD9F327CB94D2A42C66897F420D3C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:FA9E233A35B69527807F30918A201C9A099CBCC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E86403A4AB76B7C7B9449B99EA1648E1D4360406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Artifact Seekers: Season 2 / Искатели артефактов: Сезон 2
 ```bash
 magnet:?xt=urn:btih:73919EF4ACBC6AEAD042A80C80036C759B14898A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Big Adventure: Trip to Europe 11 / Большое приключение: Пое
 ```bash
 magnet:?xt=urn:btih:4DCFA452AF9913A71EB5CE6CA4680E4994118301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

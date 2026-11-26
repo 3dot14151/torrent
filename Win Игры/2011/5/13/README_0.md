@@ -19,8 +19,7 @@ Dark Dimensions: City of Fog - Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:33E9CAE501D5E9ADA1CC5EC8CDF67E6EFB20C839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Princess Isabella 2: Return of the Curse - Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:C0E18E87E8CAFAFDAA7CF4D16CE9739EEFD520EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Clockwork Man: The Hidden World / Заводной Человек: Скры�
 ```bash
 magnet:?xt=urn:btih:B777D20E100CB2124D7C497BBB71CE92D55848A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Little Things / Маленькие штучки (P) [En] 2009
 ```bash
 magnet:?xt=urn:btih:8F09AB4A77DD886DADD8FCCEC18B3EAE0300B48E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

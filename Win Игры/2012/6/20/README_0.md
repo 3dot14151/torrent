@@ -19,8 +19,7 @@ Dark Parables: The Exiled Prince / Темные предания. Зачаров
 ```bash
 magnet:?xt=urn:btih:19C66CCF63E5D10FA9A3E03F512DC9F7180CE4A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

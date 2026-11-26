@@ -19,8 +19,7 @@ Train Valley (2015) [Ru/Multi] (1.1/dlc) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:5FD52957D1F6ED386B1E42F7D75F901C4D6DB529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MXGP2 - The Official Motocross Videogame — это развитие преды�
 ```bash
 magnet:?xt=urn:btih:D80B0AF8CD35A160ECD11360D666C65672AF45FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AABB62BC552B45D4838BD31635A1A6750F29913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Silver Bullet: Prometheus (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:104ED535E2DBB69D862AB59419EA72547D701CBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Beff Jezos Simulator предлагает геймерам почувствов�
 ```bash
 magnet:?xt=urn:btih:A55B754AC257840E48D8E56A02CC072820D609FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ M.O.O.D.S. (2024) [Ru/Multi] (1.0.03.0025) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D7C05CD63A08A2C477C06A1826BDCE8CF337B257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

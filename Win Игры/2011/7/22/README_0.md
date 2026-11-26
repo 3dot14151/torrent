@@ -19,8 +19,7 @@ Big City Adventure: Sydney, Australia (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:68618D9E425E61EFBEE61E6514A329A5468C5F1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Solitaire Kingdom Supreme (P) [En] 2011 | Fyrrion
 ```bash
 magnet:?xt=urn:btih:8D29B7E2504610511A593D65626D642BFD61A0F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RPG с собственной боевой системой, в которой �
 ```bash
 magnet:?xt=urn:btih:878A1865565308D768DFAE79A79F41CDB310DE01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sacra Terra: Angelic Night Collectors Edition / Сакра Терра. Ночь 
 ```bash
 magnet:?xt=urn:btih:D5623FA4F38F953F99596175D2CDEFAF7317FF61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

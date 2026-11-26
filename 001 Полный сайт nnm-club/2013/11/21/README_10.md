@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:7DE9C03E1BF0C13D62EDB5D935D305E20F24FCF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C598CBFEDD7A2960EE5EFA26E187986BDD0DEB3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ BioShock Infinite + DLC [XBOX360] [Ru] [Freeboot] (2013) | R.G.DualShock
 ```bash
 magnet:?xt=urn:btih:E51093BDD7C494BF0A762118E3DD26EAD450B3E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Suzumiya Haruhi no Shoushitsu / The Vanishment of Haruhi Suzumiya / Исчезн
 ```bash
 magnet:?xt=urn:btih:85B07E3088E23B44FE25BF85B0AD32C2C9C17C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ DreamDisk 2013.12 Love Edition [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2B94B5C007993E2D514630A542CFB8A6F5380C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6BC0FE8863CFD99BA5B189C986972F56C7F19CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:56C78303EC6BEDBFA60DB40BFEB43FBCAAD6E011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Outlast (2013) [Ru/Multi] (1.0.11795.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:44CC6C1C4ED062819AED358D5A85CA5F35CFE587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D759C8E6768862CC88B2E25B16D22B432D0B858
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ The Melancholy of Haruhi Suzumiya / Меланхолия Харухи Судзу
 ```bash
 magnet:?xt=urn:btih:6F066D2505EBF4FA39850680758F3ACB3A244D3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA980B3AA7E01B4971E4BE00F5CB1D5B4825B585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ Avid Pro Tools HD 10 - Программное обеспечение, котор
 ```bash
 magnet:?xt=urn:btih:4FEA97E1DE42C366C1F61E5F36603C5A2AB0CEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D51802B8B0C25548478D4F0BF54256910545490
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Need For Speed: Rivals (2013) [Ru/Multi] (1.1.0.0/dlc) OriginRip R.G. Pirates Ga
 ```bash
 magnet:?xt=urn:btih:9C9AD4E84B0B278463721F7311D1766BC5A52623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ The Sims 3 Антология (2009-2013) [Native port] [Ru]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

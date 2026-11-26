@@ -22,8 +22,7 @@ A3	Буревестник · Sturmvogel
 ```bash
 magnet:?xt=urn:btih:CA2D5BE717D6373C7BB06333885474E005AA24AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

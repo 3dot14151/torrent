@@ -19,8 +19,7 @@ Detectives United: Origins / Союз детективов: Начало (2018) 
 ```bash
 magnet:?xt=urn:btih:7258199F948562A4524A6B169BFBAB9BCEAA7FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Just Shapes & Beats (2018) [Ru/Multi] (1.3.19) Unofficial
 ```bash
 magnet:?xt=urn:btih:84D2B04DD5B29CB298B8A522F7BDCD0A115785C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Blind Prophet - это приключенческий point'n'click квес
 ```bash
 magnet:?xt=urn:btih:C5EEB5419E6CB0ED2EA36D2695A5A05EA279DBD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

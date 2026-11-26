@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:29B9BD1B80545164A09AF9429D73E2E77778BF01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Ant Download Manager - быстрый и простой загрузчик лю�
 ```bash
 magnet:?xt=urn:btih:D9A398762013973AE2A65E8F6CCB544D6EDF3A23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ NGW: Выживание в Серенгети / Surviving the Serengeti (2015) H
 ```bash
 magnet:?xt=urn:btih:B8340A15562CBC5B0747ADC2D1D441B73383A360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Tipard Mac Video Enhancer - видеоредактор для пост обра�
 ```bash
 magnet:?xt=urn:btih:603FE051257E9F940AD9AE981E74994092B06828
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Ashampoo Photo Commander 16.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5008CBD62376E60A7011100C396A04C83B98AD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ VA - Душевный шансон в хорошей компании (2) (2018)
 ```bash
 magnet:?xt=urn:btih:712A0EB7917CE79AC4D1F150B1ACCC3AAE375CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Plu-Ton - Wings of Liberty (2018) OLD SQL Recordings [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:691D2873BA8FF884E0D596D4B04A6DC768BC4CDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DAF5E75E033979938952D48DDF193B4A67E4B061
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5773C5644DE7E4CE62553F1071B8271E8A922CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ VA - Душевный шансон в хорошей компании (2018) [MP
 ```bash
 magnet:?xt=urn:btih:4E49ECE4D26AF1D7012B383693B6ECF2FF839F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ VA - Sacred Killer: Metal Compilation (2018) [MP3|320 Kbps] <Black, Death, Bruta
 ```bash
 magnet:?xt=urn:btih:D01B50D06A6D02687549194D34BC7280F7B246FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ NGW: Африканская суперзмея / Africa's super snake (2017) HDT
 ```bash
 magnet:?xt=urn:btih:5E07370D10CF0A11B307653C61AA44C128FA8171
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:504FDBB6F079BE4728EAC87FE3108B51B0827EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +357,7 @@ NGW: Переменчивые животные. Подростковые кош�
 ```bash
 magnet:?xt=urn:btih:C241C83008D6AA6CE78110E43073DA0301A17175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E4FEDF72090B91F7B8A01C6836E916B9844213E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:100695B71D3D23D63F323E3A0C973EC327FAF766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +435,7 @@ A Compilation Of Twelve Inch Singles (Сборник двенадцатидюй�
 ```bash
 magnet:?xt=urn:btih:37FF6FA137FD6A9CDCC8D33FC4AB29D408A73AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +460,7 @@ NGW: Дикая природа Дальнего Востока / Wild Far East (
 ```bash
 magnet:?xt=urn:btih:816D9F408B166C757D52B5F857695D650AC7BB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB9A2ABB4CED59205B8A1F054EFDD1B1ACA5BE92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ VA - Salsa Fiesta 2018 [MP3|256-320 Kbps] <Salsa, Bachata, Kizomba, Other>
 ```bash
 magnet:?xt=urn:btih:5EFF8390FBDB78AF095553B7C757291351765EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +539,7 @@ Social Media Lab - Templates for Pages от компании Jumsoft предл�
 ```bash
 magnet:?xt=urn:btih:65610008346BE05599028C4E2CF5DDD77AAA347C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,8 +564,7 @@ Card Data Recovery - программа от 7thShare Studio позволит в
 ```bash
 magnet:?xt=urn:btih:936BC488B0E442736D2F2E285524E1EFC77D01C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +592,7 @@ VA - 50 Big Bachata Romantica Hits (2018) [MP3|256-320 Kbps] <Bachata, Reggaeton
 ```bash
 magnet:?xt=urn:btih:551A9D88C614B2AA51DA464DC7FA31D1246010C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ AnyMP4 PDF Converter Ultimate - программа, которая быстро 
 ```bash
 magnet:?xt=urn:btih:EB430AA7A5AF8B14AB26B0DEEFAA3607D7E52CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +642,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D88F651FA182DAE79DB143D4BCCB332D0358A885
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +670,7 @@ VA - Essential Vocal Jazz Femino (2018) [MP3|320 Kbps] <Jazz, Blues, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:1D00B5921E71FD44CB1716A8EE194DD9C1AE9CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Galacticare - это ваш шанс спасти галактику, заним
 ```bash
 magnet:?xt=urn:btih:9A5C5528C572EA4FB270B3077ACF6E3C7303BA58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 17844576) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9C06DC8C0EC5B56B7D5EFD29D7C3B32DC492436F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ REYNATIS - это ролевая адвенчура в жанре городск
 ```bash
 magnet:?xt=urn:btih:F4789D167147186353D41456F47984C0038D332D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Haste: Broken Worlds - игра от третьего лица, в которо�
 ```bash
 magnet:?xt=urn:btih:002FFE2E442A6C93379E03E4B469BEB6708B7BE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Virballs (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB805172D04C0020C6518E0A08987325DD789DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Train Yard Builder приглашает игроков в миниатюрный
 ```bash
 magnet:?xt=urn:btih:996823E47C7E52716B0A0202D917985407584AF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Whispered Secrets 16: In the Cards / Нашептанные секреты 16: �
 ```bash
 magnet:?xt=urn:btih:4639A7FA37885207B0A133B661DFB041C16F60B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

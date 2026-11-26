@@ -28,8 +28,7 @@ Eldritch - Tasting the Tear (2014) [MP3|320 кб/с]<Progressive/Power Metal>
 ```bash
 magnet:?xt=urn:btih:B585F7D82011C2D0BD9360E7941737B32C8AD02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Macbeth - Neo-Gothic Propaganda (2014) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:A40DF851BE04C1DA5677288919E59A1EB78FD406
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ David Crosby - Croz (2014) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:56DB90679BE17B9E9924F8E17042F44F2767C912
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Suzi Quatro - Suzi...And Other Four Letter Words (1979) Remaster /2014, 7T's Rec
 ```bash
 magnet:?xt=urn:btih:CDB7CA3D81AE51221B8D89C39589C2B5FA89990D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Suzi Quatro - Live And Kickin' (1977) Remaster /2014, 7T's Records/ [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:C6EFE07F1BAA5B643AC2855E80C10327F80EB9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Suzi Quatro - If You Knew Suzi (1978) Remaster /2014, 7T's Records/ [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:8C429DD0E44692C52F37B67E3B50ADC8EAFA17E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

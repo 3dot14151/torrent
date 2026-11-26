@@ -22,8 +22,7 @@ HELENGARD - Firebird (2017) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Met
 ```bash
 magnet:?xt=urn:btih:6B6045866E92AB2F8E34D565272401B2B1535D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ HELENGARD - Helengard (2010) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Me
 ```bash
 magnet:?xt=urn:btih:E9D2DBE52FB99F36670AAFDA130946A7BF1AC578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

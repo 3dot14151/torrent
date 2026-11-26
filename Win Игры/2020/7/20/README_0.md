@@ -19,8 +19,7 @@ Dark Romance 12: Ashville / Роман тьмы 12: Эшвилль (2020) [Ru] (
 ```bash
 magnet:?xt=urn:btih:EAB2A0A3B86B29CF81DC04430EBBF753D8E8B654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paws & Soul — это приключенческая игра о перерож
 ```bash
 magnet:?xt=urn:btih:4A59C2802345E3E73641487D919FEB8164B2DE02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Outer Wilds - приключения в открытом мире, попытк�
 ```bash
 magnet:?xt=urn:btih:3D4AB3C611BB0FB823B316E3CCF546ACC36687E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

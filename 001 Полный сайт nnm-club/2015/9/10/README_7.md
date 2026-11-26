@@ -22,8 +22,7 @@ The Australian Jazz Quartet - The Australian Jazz Quartet (1955) /2014, Solid Re
 ```bash
 magnet:?xt=urn:btih:4424DBA9AB752D59806C7A695652E0A1C205DC8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jimmy Heath - The Quota (1961) /1995, OJC/[FLAC|tracks+.cue]<Hard Bop>
 ```bash
 magnet:?xt=urn:btih:D703B202D4529E2F33AFD627DE448E58F7D19ECC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bill Evans & Eddie Gomez - Intuition (1974) /2012, Universal/[FLAC|tracks+.cue]<
 ```bash
 magnet:?xt=urn:btih:6FDDC35BF1CF6372B764ADC2A31B81376DDE3A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Chicago Blues Masters, Vol. 3 (1997) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:99AFF70A8176098D6D2ABA96DFC62AB6BDEA56D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Progressive Fresh House (2015) [MP3|320 кб/с]<Progressive, Club House>
 ```bash
 magnet:?xt=urn:btih:B6960223356D24890BE157A5B59009326CCCF1DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:005BA6BB7CC9F5D8B04A1D86D5045D03642F2BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16FD9B9D677BB71884504C8B7250655E2FD7E859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - The Chillout Players - Music For Chillout (2015) [MP3|320 кб/с]<Downtemp
 ```bash
 magnet:?xt=urn:btih:A0A73FD401B4026DA6AF0307348DB86C0A58FB29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ DJ Nike Twist - TranceWave 123 @ GTI Radio (03.09.2015) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:7A89C384677839F9F8DCBFBC8BB2FEAE4CF25DC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - Looking For The Summer (2015) [MP3|320 кб/с]<Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:71D8449A456E9E97FDA123C3588204FE9A87AA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +295,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52ABAC8BFC53C503DD98FDD10AD8FB696E4FE5BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:276EDE85FB422BFF7F7278DF222324E2E59C36F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ Doomtree - All Hands (2015) [FLAC|tracks + .cue] <Hip Hop>
 ```bash
 magnet:?xt=urn:btih:DC133AED19F810EB74D808C028420E2755400FEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EDEC049C0FF95E2CD99BDD983386A3936A15163A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:161B03629A8B93E11E7A293F68E4E0AF5EE645C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE1CC781C01294A1AC59FE18E298BFA1B9049174
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3916A5F88DC058BF24EE28829694BA010BD02B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ Sleeper Agent - Celabrasion (2011) [OGG| 456-521 кб/с]<Alternative Rock, Indi
 ```bash
 magnet:?xt=urn:btih:1849CF2EC2265B50B6721FA7EDBDCE82743410F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5881C39BA37EAB2173301ADE6F5331C70D29B41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46F02553485A3AD8E3A3E1FE4E70CB3888410E44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:707AD050A1ECCD7C2087B418025D07A98F4FD71D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +610,7 @@ Sleeper Agent - About Last Night (2014) [OGG| 458-516 кб/с]<Alternative, Indi
 ```bash
 magnet:?xt=urn:btih:FDDB0C1823822CD7F63B0048FBF82FFFBB62302D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ Registry Backup 3.2.1 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:5CF4A795CF57B7CD12411B2B9BCBCF0AD75BBF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +660,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11282F52B4409128CDD0218F5E1408B62F5D115B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ Janice Hagan - Let's Misbehave! (2004) [MP3|320 кб/с]<Jazz, Cabaret>
 ```bash
 magnet:?xt=urn:btih:28A55A7AD876D43F89857983417C032F7C7F11ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

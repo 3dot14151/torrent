@@ -19,8 +19,7 @@ Screen Capture — это популярное и простое в исполь
 ```bash
 magnet:?xt=urn:btih:04B8A503B30E9145EEBF6637875CF9DF43283A76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Price of Immortality - уже седьмая часть увлекатель
 ```bash
 magnet:?xt=urn:btih:E98D160E9DA69B27B74AA0B0C2A94DD228FF8C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) SteamRip R.G. Origins [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:CEDFACF62605DFD868BEA0383E43F290398DDFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Ace Combat: Assault Horizon (2013) (Ru/Multi) (1.0.143.72) Repack R.G. Catalyst 
 ```bash
 magnet:?xt=urn:btih:62B7A426D8F063F732B165CBD2308EAC36F797C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Disclosed Silence - Perpetual Sadness (2014) [MP3|320 кб/с]<Melodic/Doom/Deat
 ```bash
 magnet:?xt=urn:btih:0051856DA0DEB28833F5194D005D9186135C0C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Kaunis Kuolematon - Kylma Kaunis Maailma (2014) [MP3|320 кб/с]<Doom Metal, Go
 ```bash
 magnet:?xt=urn:btih:693BA0942089AA4E26CE3BBC4911E8EC74EC2AF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Sequel Of Sunday - Arrivals (2014) EP [MP3|320 кб/с]<Metalcore / Post-Hardcor
 ```bash
 magnet:?xt=urn:btih:6BE1DF41ECBF1CE2E764E407B199A39A668560E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ My Universe - Breath of Silence (2009) [MP3|320 кб/с]<Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:BFB8BFF23F730BC18BA2E83E16A75B47960199C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ Amber Lynn Nicol - Seven (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:5E4FD36B60701118D63AC0D0B4183188EC79CA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ Ian - Nuevo Orden (2012) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E873A360DDF19AEB4618F7DF21328F532A2D9255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ Yellow Hand - Yellow Hand (1969) Remaster /2008, Fallout/ [FLAC|Lossless]<Classi
 ```bash
 magnet:?xt=urn:btih:69924E3C914DA9628199050CA5662C3FB044BABC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ Tankard - R.I.B. (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D0EACABB81EBF05C70843934ECEE8A8EA1A24417
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Cannabis Corpse - 4 альбома (2006-2014) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:185E0645AD1FFCAB8F7A1DFAC8E382EAC7F0CB9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ VA - The Sound of Guitar Rock-Best Of (Volume 2) (2013) [FLAC|Lossless]<Hard Roc
 ```bash
 magnet:?xt=urn:btih:2DBFBDE0CCD51571671CFEF4CFCECC6361A798F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +351,7 @@ The Doors - Weird Scenes Inside The Gold Mine (1972) (2014) 2CD/ Reissues/ [MP3|
 ```bash
 magnet:?xt=urn:btih:F799826BA6E80E9C907019AD538F0E47D2674761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +382,7 @@ CD1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +417,7 @@ Grateful Dead - The Golden Road (1965-1973) 12CD Box-Set, HDCD /2001, Rhino Reco
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

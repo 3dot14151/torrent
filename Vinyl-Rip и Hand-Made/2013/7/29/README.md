@@ -26,8 +26,7 @@ B4. Suite Madame Blue [6:36]Жанр: Progressive RockПродолжительн
 ```bash
 magnet:?xt=urn:btih:6A6D0C6C77DB1A6723558B4068DECE40FAD25B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ B4. The Grand Finale [2:00]Жанр: Progressive RockПродолжительн�
 ```bash
 magnet:?xt=urn:btih:6505D116A4A638D3660539C646711A4BE8BA433A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C72128B3BD9CBE0989130F6D940446C3C1935766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

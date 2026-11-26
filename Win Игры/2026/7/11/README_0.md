@@ -19,8 +19,7 @@ LEGO Harry Potter Collection (2024) [Ru] (build 15890240) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F662232304EE3BEF9773A8BC9A205F687227E0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Yunyun Syndrome!? Rhythm Psychosis (2026) [Ru/Multi] (1.0/dlc) Repack FitGirl [C
 ```bash
 magnet:?xt=urn:btih:DB4DFFE2C54979EF0F3C01E26FF940E0C73930FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Whisker Wanderlust: Unwritten Chapter (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:093361379B33C54786793CA025714174CBAD36F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (3.630.1.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EEF9B13B794F9E58AE6F4F56A16580C38E0282D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ TSIOQUE - это приключенческая игра Point & Click с руч
 ```bash
 magnet:?xt=urn:btih:B7CD8684AE139907A4422695E65BF308BED6B80E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Atomic Heart переносит в альтернативную версию С�
 ```bash
 magnet:?xt=urn:btih:38D4934869C12C1E8881B61B153FFE53665C79B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (1.005/dlc) Repack HardwareMining [D
 ```bash
 magnet:?xt=urn:btih:018F90CCF8CFC1E4EDAB95E5F0B8039C3C3528FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ LEGO Star Wars: The Skywalker Saga / LEGO Звездные Войны: Скай�
 ```bash
 magnet:?xt=urn:btih:4246C4DA84AAD876687320780F57BB0F4434197C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

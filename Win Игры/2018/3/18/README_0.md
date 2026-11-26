@@ -19,8 +19,7 @@ Motorbike Garage Mechanic Simulator (2018) [Multi] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:97D130AB523C0E88FA4562150F953B449DFF206A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bound by Flame (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:8F3C4B2F35F47777BC283F60987D90463F406661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

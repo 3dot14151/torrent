@@ -21,8 +21,7 @@ ChessBase База шахматных партий (2015) [Ru/En] (2015_2) Unoff
 ```bash
 magnet:?xt=urn:btih:60521C2DD8B7EC7903DDAD4ED4E3D3EB7A622688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

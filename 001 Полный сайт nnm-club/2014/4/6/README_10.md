@@ -28,8 +28,7 @@ Bearfoot - Doors And Windows (2009) [MP3|256 кб/с]<Country>
 ```bash
 magnet:?xt=urn:btih:52CC82E0E1AA56A32642E7F2647D176604AB9B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Danny Fervent - Discover My Dreams (2014) [MP3|320 кб/с]<Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:11FF911E17EC2E57CB5620EAC2BDC8B6E0535E8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Boreal Network - Boreal Network (2013) [FLAC|Lossless|WEB-DL]<IDM, Downtempo>
 ```bash
 magnet:?xt=urn:btih:2ADF411E292206069F788D3DC19C7536F9DA364C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Dj Os - Electro House Is Alive (2013) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:C54F4108C1E038B787BDE7AAF2DB1F8B91A1BA12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Endlich - Was Einst War (2011) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:F7F794CBAD72346A19C2651AF19134C2B5E29253
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Dead Horse - Peaceful Death And Pretty Flowers (1991) [FLAC|Lossless]<Thrash Met
 ```bash
 magnet:?xt=urn:btih:271D13B66C87F2320CA1E153E59A2A20FE0D33F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ VA - Q-Dance Hardstyle Top 40 March (2014) [MP3|320 кб/с]<Hardstyle>
 ```bash
 magnet:?xt=urn:btih:00BFE7867C0F66F5A1B6E0EC0224298B09E73C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Olivier Girardot - OG01 (2009) [MP3|~192 кб/с]<Electro , Drum’n’Bass>
 ```bash
 magnet:?xt=urn:btih:72A2C6A076D6FEE7BC1514F40F987BBFAF71AE6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ VA - Dallaz Project: Vendace Records 100 (2014) [MP3|320 кб/с]<Trance, Uplift
 ```bash
 magnet:?xt=urn:btih:13C5F9915D57FF734358B9EC4A24E9C0598FFF7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +333,7 @@ Crystal Tears - Hellmade (2014) [FLAC|Lossless]<Speed/Power Metal>
 ```bash
 magnet:?xt=urn:btih:7AE4903B27A2CD426BD91A86C2A4F2BA850CF52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ Hank Hobson ft MyOwnCreation - Medical Post (Single) (2012) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:6A0E93AD16FFFC604C4182E57F4E0D2CB9C3427B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +394,7 @@ Teebs - E s t a r a (2014) [FLAC|Lossless]<Instrumental, Experimental, Abstract>
 ```bash
 magnet:?xt=urn:btih:213EE33E26E1A172FA86DF784DF073E8C05912D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A65B0E1AB94D56783DCA2E59AAE73BEBD959CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +453,7 @@ Caedes - Blood, War, Perversion (2005) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:B0A2320DD1873CAB93DB27E5080F7986677E63CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +487,7 @@ VA - Ambient Sounds (2014) [MP3|320 кб/с]<Ambient, Downtempo, Chill Out>
 ```bash
 magnet:?xt=urn:btih:9D56C1388374D1724DE3FF2A6C91842638C167AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +518,7 @@ Barbarian - Faith Extinguisher (2014) [FLAC|Lossless]<Speed/Thrash/Black Metal>
 ```bash
 magnet:?xt=urn:btih:2EC20B7F9AD658320984E08C7A74D1752F1DB307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +552,7 @@ Kusillajta - Horizontes (2004) [MP3|~177-229 кб/с]<Folk, Instrumental, Native
 ```bash
 magnet:?xt=urn:btih:6BEA1ADB57170CB090F932293777574EBA935E9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78D0E94885AB8BF287D2A707D3109A4BF60BD423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +610,7 @@ Om At Last - Dance Medicine (2012) [MP3|320 кб/с]<World, Tribal dance>
 ```bash
 magnet:?xt=urn:btih:C810BA30BC407269B56FCE6C400164F50E0ABC0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3D5FCC2563E35BB4573047DB1EA5B01446E4494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B1D0A6F7A1E8A136DBD4DAA3FD1CCD261C252653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59C585E21599B3C8E8773260ED171FB6AAF4913E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6429EB6ECA319B796054B3872E559B02AE67718
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +750,7 @@ VA - House Music Pause Vol 11 (2014) [MP3|320 кб/с]<House, Progressive House,
 ```bash
 magnet:?xt=urn:btih:820BA47E3AB12DF2CFF943FD55F9EA11FC51E6E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -808,8 +784,7 @@ Crossfire - Aggression Treaty (2005) [FLAC|Lossless]<Thrash/Power Metal>
 ```bash
 magnet:?xt=urn:btih:CA41369148740C5EC7C6C22B77C5710E722EA4F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -834,8 +809,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F007286959945304D926F435B9B3740E78328FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

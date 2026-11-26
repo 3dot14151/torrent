@@ -19,8 +19,7 @@ Legendary Tales 2: Cataclysm (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:9AA62ED1EC0882D386622FD708C9A0EDE83B736C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rainswept (2019) [En] (1.1.5a/1.1.4a) License GOG
 ```bash
 magnet:?xt=urn:btih:6A7070968866DD299649528053AD9E851AC31359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

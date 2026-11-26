@@ -19,8 +19,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 ```bash
 magnet:?xt=urn:btih:17675A70AFD6069E2009300EB91D7A0B2D84CF56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

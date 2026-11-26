@@ -19,8 +19,7 @@ I - Ninja / Я - Ниндзя [Ru/Multi6] (L) 2005
 ```bash
 magnet:?xt=urn:btih:B626D3087B09C4C77C095C5322386C6F1EA70B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

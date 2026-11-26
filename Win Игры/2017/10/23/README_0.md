@@ -19,8 +19,7 @@ European Mystery 3: Flowers of Death / Придворные тайны 3: Цве
 ```bash
 magnet:?xt=urn:btih:114C561C33398A33690A634FBA7FA989E17FBEC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chimeras 6: Blinding Love / Химеры 6: Слепящая любовь (2017)
 ```bash
 magnet:?xt=urn:btih:7672C8AB02AB4D139297B02543CCC25B75DACE35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Maze 3: Nightmare Realm / Лабиринт 3: Царство кошмара (201
 ```bash
 magnet:?xt=urn:btih:5EB86E91E5E9D5440CD9D4C2E546614502B7A794
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Neptune: Arena FPS (2017) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:DB4D2DCAD8FF7C06A5BA26CB86EBB87A6D8E1690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fernbus Coach Simulator - первый симулятор, позволяющи�
 ```bash
 magnet:?xt=urn:btih:64D243180822FDF044E6FA108CECEE1E9E27BFD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ War Front: Turning Point / War Front: Другая мировая (2007) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:297C41775BD7FA26BBD00544A8BC4F09FC227217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Fernbus Coach Simulator — первый симулятор, позволяющ�
 ```bash
 magnet:?xt=urn:btih:F6CBB47A0F9E9D58A34C09E7154A7839D1677D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Real Farm (2017) [Ru/Multi] (1.0.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:8E007C58CFDDCAC07A65098FF7BB0198BA93ECEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Welcome to Hanwell - хоррор с открытым миром. В нем це
 ```bash
 magnet:?xt=urn:btih:88C2A3A31A9DE3213209CC401DE3E3F34E41CF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

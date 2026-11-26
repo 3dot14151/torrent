@@ -22,8 +22,7 @@ The Must Die - Праздники прошли... (2023) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:46D417C96B58FA9E915597CA35319D22EE5A720D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

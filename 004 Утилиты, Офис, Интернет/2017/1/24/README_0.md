@@ -20,8 +20,7 @@ Phoenix Photo Recovery Software полезна (   Читать дальше...
 ```bash
 magnet:?xt=urn:btih:B2B181700533A96BF2290EF1917A2B6F414FE77C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

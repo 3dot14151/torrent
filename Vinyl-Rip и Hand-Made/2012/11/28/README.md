@@ -28,8 +28,7 @@ Chris Rea - Road to hell (1989) [FLAC 2.0 96/24 |tracks(VinylRip)]<Rock>
 ```bash
 magnet:?xt=urn:btih:347B0C39054828C5477118EB37132CD600B5FCD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

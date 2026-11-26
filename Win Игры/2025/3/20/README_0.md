@@ -19,8 +19,7 @@ Blood Bowl (2012) [Ru/Multi] (3-2-0-0) License GOG [Chaos Edition]
 ```bash
 magnet:?xt=urn:btih:F6F92FDEE6AC54ACEF6C43A44462968E6C40E992
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cities: Skylines II - это живая экономическая систем�
 ```bash
 magnet:?xt=urn:btih:F4950784431747AAEEA907C8F8E51FDC1D69B5DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cities: Skylines II - это живая экономическая систем�
 ```bash
 magnet:?xt=urn:btih:80DCE7120401738126826D212E848430182EF737
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Death Stream (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D6A32ABB3BBFEFEA7F01B8092938AE3A7CB71B6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Grand Fantasy Heroes (2025) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:417DEFF4A3E8CA9D315654BE761907F2F6A9B915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Mortal Darkness (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:053D281BB4C10CC71147834FE8FC7A33F4942641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Invincible представляет собой приключенческу�
 ```bash
 magnet:?xt=urn:btih:DF49F47F9849BE6E69D6BA91EB477245405403ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Reignbreaker - динамичный roguelike, действие которого
 ```bash
 magnet:?xt=urn:btih:41CD40C31056752F6CFE9C39CBDA47BE9B8FB79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Invincible представляет собой приключенческу�
 ```bash
 magnet:?xt=urn:btih:9E2A43006F421E90608CD31133CC8B9D7C89EBDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

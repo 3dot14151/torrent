@@ -19,8 +19,7 @@ Escape from Hata / Побег из Хаты (2024) [Ru/Multi] (1.0) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:20DB09FBBAC00590BD28B20DB2A156D5310B09F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wizard with a Gun - это кооперативная онлайн-игра в �
 ```bash
 magnet:?xt=urn:btih:32C47067E765493A020D88E24E50BC49C5F3EECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Legendary Tales возвращаются с новой историей-прик
 ```bash
 magnet:?xt=urn:btih:749698840AB106D41A342BF852E17AF965F580EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fallen Seeds отправляет игроков на Ультар, планет
 ```bash
 magnet:?xt=urn:btih:74F2FE942FED1A436C4D7E3FDF8A6EFE445DF502
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kamaeru: A Frog Refuge – в этом по-настоящему расслаб�
 ```bash
 magnet:?xt=urn:btih:DA4635DCC4CABE70BD7C858B81C3CBC248101A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Simpler Times (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AD8547CA094AB078A8183EDF3B3A4752D3FF0F8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Potty Knight Saga бросает вас с головой в сложное пр
 ```bash
 magnet:?xt=urn:btih:8BE57072E4BB75F1E84909956045DC8CD8C1FB4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2DC1E3C5B0C9BFA280293E825D6A8EAB1F2010AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Lost Lands 9: Stories of the First Brotherhood / Затерянные земли
 ```bash
 magnet:?xt=urn:btih:015ECC6A29CBCDFF7A0DDB1D7B19240B12ADAF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Scene SKIDROW [Delux
 ```bash
 magnet:?xt=urn:btih:0B7529C04CDF43B6B9E607EB2FBA7C7A6ACA21CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Star Stuff – сыграйте роль инженера Михи, которы
 ```bash
 magnet:?xt=urn:btih:EC23AE57D29E12999F7FFBD548308676B992F2D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Bloodstained: Ritual of the Night – это смесь готического �
 ```bash
 magnet:?xt=urn:btih:3CC2A520855F3F2276EC176D3CE94E9CB5E0E493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Wander Hero - это увлекательный карточный рогали�
 ```bash
 magnet:?xt=urn:btih:62CF15A919F10B118A867B7C1607BD4F798594B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Repack FitGirl [Delu
 ```bash
 magnet:?xt=urn:btih:F4092C3ECFFA6B8F60171ED1E159360F947DA92A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

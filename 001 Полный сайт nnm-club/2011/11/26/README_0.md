@@ -27,8 +27,7 @@ Cathedral - Anniversary (2011) Live [APE|Lossless]<Stoner,Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Музыкальное наслаждение (2011) [MP3|320 kbps]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:5D5CA449787F153B64FB3999F7C1AD75953C6447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Лучшие Поп Хиты Года (2011) [MP3|256 kbps]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:44E2391EDAA41A120E71D5C517AA82E7329185C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Хит сезона: Золотая коллекция 11 50/50 (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:2DE8D88700BBC8434FE7B0EAE34D4995DB531679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A117CB46E0EDC983CBAAB84E32BD5C33124D215C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ VA - Хрустальный Замок (2011) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:E9B344B1FA9B4063B4ECBE2A2E5132F1302D43CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Above & Beyond - Trance Around The World 399.5 (pre-anniversary special) (25-11-
 ```bash
 magnet:?xt=urn:btih:49F3AFA457F589B5FF88A5CA07091DB3620FF431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ VA - Бомба Года 200 Хитов (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E85F54A56E8B7B65FCAF8C20F876829EE911C361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ VA - А Для Заводочки Выпьем Водочки (2011) [MP3|256 kb
 ```bash
 magnet:?xt=urn:btih:7BD6D6415CF04DFFF666DBD5E50662F2275FB7DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDBA904FC6B1EB92243EB191DF7FDE8F794D05C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ VA - Rock Oracle CD #4 .2011 (Приложение к журналу) (2011) [MP
 ```bash
 magnet:?xt=urn:btih:6E3011526BE3FC5F2D84085E5491A06D17E5CA66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +400,7 @@ VA - Клубное Настроение (2011) [MP3|320 kbps]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:FE559B81041E70410BEF2DCE81B74F4DB580C0ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +429,7 @@ Desktop Wallpapers (25.11.2011)
 ```bash
 magnet:?xt=urn:btih:BB1BE37EFD3B35E918DE2D9B5E594F875F17BE26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +463,7 @@ VA - Soul Diamonds Vol 2 (2011) [MP3|320 kbps]<House, Soulful House, Deep House>
 ```bash
 magnet:?xt=urn:btih:CD3A1239F3E1308E032FFCC94C4B54951D119B15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +522,7 @@ VA - Лучшая Блатная Лирика (2011) [MP3|256 kbps]<Шансон
 ```bash
 magnet:?xt=urn:btih:E33FA53C2595E9820F439B1DF5BB9876FF118A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2A58B3B3BDB74EED5DD2CF1BF8B50C15021F838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +581,7 @@ VA - Золотые Хиты Для Влюблённых (2011) [MP3|256 kbps]<P
 ```bash
 magnet:?xt=urn:btih:9D1478202FDD041428ADD166F7D15BF709473B71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +641,7 @@ VA - A State Of Trance: Radio Top 20 - November 2011 (2011) [MP3|320 kbps]<Tranc
 ```bash
 magnet:?xt=urn:btih:74B3ABC2B106541637EBCE34E39A9A16A2DB45D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +700,7 @@ VA - Модные Хиты MTV (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:F3F3FC0B1C8FBDBC2B7B9C65BD3544A4D381DF73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +726,7 @@ NGamer  - это британский журнал, в основном охва
 ```bash
 magnet:?xt=urn:btih:C614F212C5E894CD533B6AE4A90855FADB114199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +751,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD9AE05D1607E57B7D734F52DB2AE63CFB333CAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Insania - шведская метал-группа из Ярфеллы, осно
 ```bash
 magnet:?xt=urn:btih:2AF6314E9FBF56CA51565DADA0AD66551004F5FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

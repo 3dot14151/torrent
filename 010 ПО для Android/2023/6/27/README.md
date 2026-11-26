@@ -19,8 +19,7 @@ Kinoplay позволяет бесплатно смотреть любимое �
 ```bash
 magnet:?xt=urn:btih:4763AD780FDD7C04157DD3EEB52FB282BCCAECC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

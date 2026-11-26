@@ -19,8 +19,7 @@ PowerDirector – Video Editor v14.2.0 b2407050 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:013BD5F9A4488CC27893879422635DF17933E7DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD563FE9459951F81BF57776271BD26013281774
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PictureThis - Plant Identification v4.1 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EB3277BDE53D96335590D49815F82BCBC387C8AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:1DBC5453C428E2D23B2598CCFB01F93B7FA0360E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

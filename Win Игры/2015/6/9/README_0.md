@@ -19,8 +19,7 @@ Zeno Clash 2 (2013) [Ru/En] (1.04) SteamRip Let'sРlay [Special Edition]
 ```bash
 magnet:?xt=urn:btih:780F4B7892732DF71DCFDDA3A454A11436CEBC27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pinball FX 2 — это пинбол с трёхмерной графикой, �
 ```bash
 magnet:?xt=urn:btih:B0A9802C239704C8933992391525F2E534189151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Killer is Dead (2014) [Ru/Multi] (1.0) SteamRip Let'sРlay [Nightmare Edition]
 ```bash
 magnet:?xt=urn:btih:622C33A1CF9D4B82AFDE39E848A8FE80EBC8BB76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

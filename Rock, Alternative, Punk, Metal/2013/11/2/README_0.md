@@ -28,8 +28,7 @@ Ethereal Sin - Millendium (2013) [MP3|320 кб/с]<Symphonic Metal, Melodic Blac
 ```bash
 magnet:?xt=urn:btih:CFE93A44720D140EDA92D6D66E346EFC092AC3C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Tempestt - Bring 'em On (2008) [FLAC|Lossless]<Heavy/Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:00CC25294B20D4683DBE0F831FEAC1DECC847A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Poemisia - La Danza Degli Spiriti (2013) [MP3|320 кб/с]<Symphonic Metal, Goth
 ```bash
 magnet:?xt=urn:btih:DBAF2BB8A2CF97740D58BC0166C9D3E7EFE2CABF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A98FA2B7B849092D7296D8D5ECAF4FC2B9203CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Steve Hackett - Genesis Revisited: Live At Hammersmith (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:82A742C864525B94F313EF98DDE3FB265BF4020E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Jesse Damon - Temptation In The Garden Of Eve (2013) [FLAC|Lossless]<Melodic Har
 ```bash
 magnet:?xt=urn:btih:572677424280247879C454D10585AC0354C0F5EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Code Of Silence - Dark Skies Over Babylon (2013) Japan [FLAC|Lossless]<Heavy Met
 ```bash
 magnet:?xt=urn:btih:3A0C4F74AE1AB3908FA143AF809FF752A1EBD9E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Lower Than Atlantis - 3 альбома + 1 EP (2008-2012) Дискография
 ```bash
 magnet:?xt=urn:btih:217855B7DA4D928DD29ADD57F4AA3804A614A326
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Place Vendome - Thunder In The Distance (2013) Japanese Edition [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:9FF7800C040F7E6C4E7CC168639198E1BE35EB01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ Jon Bon Jovi - Blaze Of Glory (1990) SHM-CD Japan /2013, Universal Music/ [FLAC|
 ```bash
 magnet:?xt=urn:btih:7561C86196AAED8A0951A514AF6F6B09084647A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +369,7 @@ Rush - The Studio Albums 1989-2007 (2013) 7 CD Box Set / Rhino Entertainment, Wa
 ```bash
 magnet:?xt=urn:btih:162519D2D1B4F777C02E2AE98C64DE7BE9B4CB96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4814443483D9595C303949D3EF306F2F084EB56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

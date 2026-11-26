@@ -20,8 +20,7 @@ Deer Avenger [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:90A17B5A74B94AC78CE88D191BD717E42C1481FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Star Justice / Звездный судья [Ru] (RePack) 1998 | Kirill games
 ```bash
 magnet:?xt=urn:btih:ED04F44DB75E2D8FA63530F4D994441E957AF2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Golden Gate [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:79F9DC086DF3304DBDFCE9E990D2E25E585A6368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Nightmare Ned [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:29467126C70AE175A9B2C412577B23B50520D843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Versailles 2: Testament of the King [Ru] (L) 2001
 ```bash
 magnet:?xt=urn:btih:626463CF6145C0C4E655895B0B218F07440531BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Midtown Madness [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:B292EE31CD76895B68AE649906FF69B2C6614046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Shark! Hunting The Great White [Ru] (RePack) 2001 | RG games
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Incoming Forces [Ru] (P) 2002
 ```bash
 magnet:?xt=urn:btih:2BD31F47D8C39FDA4338E8AA6C99AF20EC3095B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Braveheart [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:B54FA9449D7A39DE705BD368D2AA7C647DEF6B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ Empire of the Ants [Ru] (P) 2000
 ```bash
 magnet:?xt=urn:btih:7E5138BFC98910CC8994FD90AC0A4B95A4A4BD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Worms 2 [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:CA2A2B6954A3B8F0855A4C645EACF5E62193AF99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Star Wars: Jedi Knight: Mysteries of the Sith [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:4A96E73560A8C3A950EABA5C3B85078C1AADEA02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Heavy Metal: F.A.K.K.2 [En/Ru] (RePack/1.2) 2000 | RG Games
 ```bash
 magnet:?xt=urn:btih:19E957F259076E3B4842F6BE5C6A597DAA717F01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +356,7 @@ Age of Empires / Эпоха Империй [Ru] (P) 1997
 ```bash
 magnet:?xt=urn:btih:FF7BE39D6717E44079E683DAD284D61EC7D89998
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

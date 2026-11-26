@@ -20,8 +20,7 @@ Rebuke — современное семейство шрифтов с засе�
 ```bash
 magnet:?xt=urn:btih:F29B9417CB36BC9BF61B27BCC367D765DEAF7DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC64D4D9975A74F4E6442EA5E527781786A4C867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

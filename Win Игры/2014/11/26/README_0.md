@@ -20,8 +20,7 @@ Pro Evolution Soccer 2015 (2014) [Ru/En] (1.0.1) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:FAC0E8548855C5FDA055FB8CEDC6922948EDF6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Contrast (2013) [Ru/Multi] (11736) SteamRip Let'sРlay [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:343506DA663FA7D467FF7A1075CC1E31B268DEE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Fable Anniversary сделала большой технологический �
 ```bash
 magnet:?xt=urn:btih:A442FF87BB6F6009F8897B8CEDF6C1C3EB3538DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ OpenMediaVault в первую очередь предназначен для и
 ```bash
 magnet:?xt=urn:btih:2879076159C34F979C311E656CACF26DBCC95EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

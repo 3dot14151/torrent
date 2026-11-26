@@ -19,8 +19,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:AA6B6718847094746EBF47C23482838BCA726354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon's Dogma 2 - однопользовательская сюжетная act
 ```bash
 magnet:?xt=urn:btih:3CBBA79B1B89CD088CB2B807D36EAC23132B9902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gear.Club Unlimited 3 (2026) [Ru/Multi] (Build 25623357/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6AAD32189F1318F9CCC445F0E8FBEB2D29E4146C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Atomfall - постапокалиптический ролевой экшен о
 ```bash
 magnet:?xt=urn:btih:D404D31845F06FFFFE6004CF2072C67CE0A16CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Atomfall - постапокалиптический ролевой экшен о
 ```bash
 magnet:?xt=urn:btih:12ED99A6927998743DC6F7DB70D2C0ADFAEACE84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Clive Barker's Hellraiser: Revival (2026) [Ru/Multi] (1.0.1.227219/dlc) Scene Ru
 ```bash
 magnet:?xt=urn:btih:AF4DF0A2AF6DCD758537FF1B18CA15C56D6598CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Remember Me (2013) [Ru/En] (1.0.2056.1/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:CEBC0457E068875588E48C2EE769706D4A618466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SPRAWL zero - это динамичный шутер от первого лиц�
 ```bash
 magnet:?xt=urn:btih:21479D6D4F0F7870FFF876B917EBC0FF76941B0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Silver Pines - метроидвания в жанре хоррор-выжива�
 ```bash
 magnet:?xt=urn:btih:B25431C00ACB413A796D89D697D1E860279F09BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ BRAVELY DEFAULT, легендарная первая часть серии BRAVE
 ```bash
 magnet:?xt=urn:btih:FEDBF11CE654D79359EE6F09EF4B1F826B40AE22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Order of the Sinking Star от Джонатана Блоу, создателя B
 ```bash
 magnet:?xt=urn:btih:9E4B40291C2FBF2922D466EE9ABFBB0CA1FEC5F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Clive Barker’s Hellraiser: Revival - это хоррор от первого �
 ```bash
 magnet:?xt=urn:btih:0C9623A46DC1B9A1882E7EC6D0979A8B3FBEA681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Criminal Archives 5: Symphony of Death (2026) [Multi] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:21132BB3E1EC4E47BBB5A491BD44A54D7612A241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Atomfall - постапокалиптический ролевой экшен о
 ```bash
 magnet:?xt=urn:btih:BEF444B2E65CD2FF48498A5302D50BD33300BC75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ The Crust (2024) [Ru/Multi] (1.0.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2B30A81BCFBE8C8570CAD96E60CD805B4EE434D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ The Immortal John Triptych - это полное собрание игр от а
 ```bash
 magnet:?xt=urn:btih:64B76A1510A47275299E212A339BC077B85B6F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ REHAUNTED - это психологический детективный хор�
 ```bash
 magnet:?xt=urn:btih:6A775F1663BED620D3998180C65376F3A6D282F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Risk of Rain 2 отправляет игроков на опасную неиз�
 ```bash
 magnet:?xt=urn:btih:702FD6315D1F5F2B34C8632D0C4BBF8ED20B04FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +469,7 @@ ICBM: Escalation - масштабная стратегия в реальном �
 ```bash
 magnet:?xt=urn:btih:A9FB939C18227FFF0B580580B48EF510A680B63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

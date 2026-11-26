@@ -19,8 +19,7 @@ Immortal Love 9: True Treasure (2022) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:554A38A32BD4843F8F451C76A1F786E15C8CE56C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ War Mongrels — это изометрическая тактическая иг
 ```bash
 magnet:?xt=urn:btih:4C7B72D1FB4B459A1C14F160CD3C0704CC053587
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9B8B71AB00282AC00F1672C0E03FE0F5F71B9FC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VA - The Rebels Party Playlist (2016) [MP3|201-320 Kbps] <Electro, Bassline, Fun
 ```bash
 magnet:?xt=urn:btih:58711BCEA92F4AE0A4487A48450D0D735C857306
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Business Templates представляет собой прекрасный ко
 ```bash
 magnet:?xt=urn:btih:A1A5EEFF1758BE7745A0519178E0583695D5DECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Smoothly Winter Lounge 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:1271F604F096C0CD72CE10038683D3248F0D021E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:884087D1116F6217208E89293EEA8FE2DC1F8BDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ CD1 - Letter To Evan:
 ```bash
 magnet:?xt=urn:btih:9C52E18C2C7944755EAC542654C8D7B83C26DC53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Corporate Templates - Business Stationery 3.1.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F6387F422FD382026FA561A25006E176A26979F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Dave Kowaleski - New Horizons (2016) [MP3|320 Kbps] <Crossover Jazz, Piano Jazz>
 ```bash
 magnet:?xt=urn:btih:F355005121B2ED06A5C2E0DD47B76AE1ACDEEA2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81B88CC2050146EA4E19D5EA025A086F1105D44B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Mac App Blocker - с помощью этой программы пользова
 ```bash
 magnet:?xt=urn:btih:43891D8FE401A136F5AF01603F85CDB5EF998582
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Laurence Jones - What's It Gonna Be (2015) [FLAC|Lossless|image + .cue] <Blues R
 ```bash
 magnet:?xt=urn:btih:333AF0EF365467A6F0680CC710E6A845900CEC92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Elements for iWork — это премиум набор изображений �
 ```bash
 magnet:?xt=urn:btih:3E091A4ECF0CC1B5049B5D536344DD7B91E0D707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ Folx Pro 5.1.13642 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B10B789E56BAD4BD9935B62339112ACA1EF3924C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1F58D3ADCC9967038C91E695755878741C55676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DA6341D9489FD75F192DAF2B135259B1B293BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ Dr. Mary Anderson - Meditations for the Journey Within (2016) [MP3|320 Kbps] <Ne
 ```bash
 magnet:?xt=urn:btih:F70A4539F951CBF451C87A1C14D3E2FEDEFD7D4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DC9F8341DDE7BC55D9DF678E13EDAD80FBDF82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFEF203E3F9780DEC18085C027E279534D9D49EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F249AF094EE580A0923DE3006836BB5098B76775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ VA - Armada Music: Best Of (2016) [MP3|320 Kbps] <House, Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:0D3B9038C4113575474604791231A1261200C825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Big Piph (bigpiph) - I Am Not Them: The Legacy Project (2016) [FLAC|Lossless|Web
 ```bash
 magnet:?xt=urn:btih:DEE9148DC869FB7E133190EF9F9479AEBD7E61C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:69C8F457418F8FF7E6B793275463170E8AF21C15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D928ABBE6977548886A9C7F79435BDC1409BC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12FB6DAD4AE61A55C2A2918643C753A19A802573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +655,7 @@ Gary Eisenbraun - Darkest Before The Dawn (2013) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:31C934688FD6F7ADDEC71BADD19A84A2D01A490F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -708,8 +683,7 @@ VA - Christmas Shooting Stars: The Finest Chillout and Lounge Music (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:80F06827F2FA6D96605597A69225109127A5FFC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

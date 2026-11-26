@@ -19,8 +19,7 @@ DigiSender TV Launcher 2.6.3 RU [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F774F3ACC3520BA04EEF1F5857CC16DCD84F87B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

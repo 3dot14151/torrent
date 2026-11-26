@@ -19,8 +19,7 @@ Virtual CloneDrive - бесплатная утилита от Elaborate Bytes AG
 ```bash
 magnet:?xt=urn:btih:2E93280C2D2B88349D9DFD0C0A2DCA4EF287C28D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CloneDVD создан для того, что бы делать качестве
 ```bash
 magnet:?xt=urn:btih:2ED9324163064CB2B088D63891BD267DC1311AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

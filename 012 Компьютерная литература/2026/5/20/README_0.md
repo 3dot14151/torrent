@@ -20,8 +20,7 @@ Python — идеальный выбор для манипулирования �
 ```bash
 magnet:?xt=urn:btih:BAB739A6C857E036405E865C22BE44B60DFB167A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E49D12B894AE863C2CF85624A0598AB0D6030496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Muppet Monster Adventure (2000) [Ru] (1.0.0.1) Repack Ma2012ks
 ```bash
 magnet:?xt=urn:btih:4897948992F5B504E80D084C69046AB1A1D8EB49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

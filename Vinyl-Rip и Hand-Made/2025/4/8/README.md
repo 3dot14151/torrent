@@ -22,8 +22,7 @@ A4 Through My Words(   Читать дальше...   )Жанр: Progressive Met
 ```bash
 magnet:?xt=urn:btih:4C74B60F260D1526D8A489986E9C9D5FFA70DCA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B2. To Become His Doorway (09:21)Жанр: Black MetalПродолжительн
 ```bash
 magnet:?xt=urn:btih:88DFAAF0107925A935B648E889FBF2946B2E1467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Daylight Dies — метал-группа из Северной Каролины
 ```bash
 magnet:?xt=urn:btih:48ADE40EF46ED9C820660A3636C36B9832B7D96A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Nightwish - The Crow, the Owl and the Dove (2012) (Single) [FLAC|24/192|image + 
 ```bash
 magnet:?xt=urn:btih:B42C39634DEBE05012EDDE53406DD5E490D8ADF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ SIDE A:
 ```bash
 magnet:?xt=urn:btih:F771D4E12B44871361A56B3B2C0A9AB46ABA41E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

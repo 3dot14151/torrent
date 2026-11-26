@@ -22,8 +22,7 @@ The Waymaker - The Waymaker (2020) [FLAC|Lossless|image + .cue] <Melodic Power M
 ```bash
 magnet:?xt=urn:btih:4BDBD505B43B5796B5291409000E35642FC44CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Disc 01:
 ```bash
 magnet:?xt=urn:btih:76B2EB9543959C1CFC1B1937DE080FAF57C79362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tesla - Homage (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DDC0B639D0589FFC78E922EB9123A07337107843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

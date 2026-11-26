@@ -29,8 +29,7 @@ Sade - всемирно известный британский коллекти
 ```bash
 magnet:?xt=urn:btih:EF189C10B833C4ABA5CA40AC4A5AA4F4085E5559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

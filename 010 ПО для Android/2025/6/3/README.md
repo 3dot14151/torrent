@@ -22,8 +22,7 @@ Offline Translator - это автономный переводчик
 ```bash
 magnet:?xt=urn:btih:9A30FE0C8995822E19A9662CE44EC2EDBC453214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FD4DDECFE6370AD6959F6DBFBF978FD9348E2DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Smart AudioBook Player Pro v11.4.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CA41EEE587E0C8DE459DBEFBF73FB4CF853B54D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:CBE8345D00C1FA25792D30ABC20A8C53833CA8DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

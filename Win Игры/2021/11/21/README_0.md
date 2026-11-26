@@ -19,8 +19,7 @@ City Legends: The Curse of the Crimson Shadow / Городские легенд�
 ```bash
 magnet:?xt=urn:btih:5530FF955AFF29F92BC7E526E44B1976B5A41234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Guild of Dungeoneering Ultimate Edition - это полностью перест
 ```bash
 magnet:?xt=urn:btih:0681E5AC7C54168ADDB08459B5A5783BCFA50825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grow: Song of the Evertree (2021) [Ru/Multi] (1.0.0) License FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:515046AE8474A481B46093E5BBD8AA07D6EDA75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cloudpunk (2020) [Ru/Multi] (6861751/dlc) Repack SpaceX
 ```bash
 magnet:?xt=urn:btih:C530FD310C7427C7174BF95DBF68D2EE456C891B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ NASCAR 21: Ignition - официальная лицензированная иг
 ```bash
 magnet:?xt=urn:btih:57832A5D42829B4C1EF580C6BFF02580B84B77B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ SimCasino - симулятор создания и управления собс
 ```bash
 magnet:?xt=urn:btih:A4251D03ECD65C86F5629F685E1CC1BC97489346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Motorcycle Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.12) License CODEX
 ```bash
 magnet:?xt=urn:btih:19EE9358D0162FFEBC7712BEB306895431687E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Ruined King: A League of Legends Story (2021) [Ru/Multi] (57824) License FAIRLIG
 ```bash
 magnet:?xt=urn:btih:D8CA4059E46AC2750047C42C5CBDF2FC7D2D4B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Exodus Borealis (2021) [Multi] (5.2) License PLAZA
 ```bash
 magnet:?xt=urn:btih:DB4275CAC66C1D9B70C35DF75D04247EA522E5BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Mark of the Ninja: Remastered (2018) [Ru/Multi] (1.0rc1) License GOG
 ```bash
 magnet:?xt=urn:btih:A510E3360CB69CF6F3C0A687F4639597F1180D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Dungeon No Dungeon (2021) [Multi] (2.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:F9265A8C8247799C3F063F14295B98D9C06CBF10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Nerf Legends (2021) [Multi] (0.1) License FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:072A8DA4B47E0ACA560D8B5BA7390A2FBA353800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Marsupilami: Hoobadventure (2021) [Ru/Multi] (1.0rd) License CODEX
 ```bash
 magnet:?xt=urn:btih:3CB0A62CDF86655336B4B8BA80F9FC2987776D9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Hextech Mayhem: A League of Legends Story (2021) [Ru/Multi] (1.21.11.19/dlc) Lic
 ```bash
 magnet:?xt=urn:btih:1EF8F32EFABE86C8F417CFCA1C83AEADAE5A4E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

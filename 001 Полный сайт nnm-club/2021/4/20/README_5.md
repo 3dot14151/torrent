@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:983997484DF3FCBD0D9945E1F916E6DCEB03380A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ KRT CLUB - программа для сброса триала (для мног�
 ```bash
 magnet:?xt=urn:btih:5F7413772349F58A5C8D6966637929D1FFB2DE85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E4C68D8A5A9223F67968FE1AEC663BDDC8ECADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

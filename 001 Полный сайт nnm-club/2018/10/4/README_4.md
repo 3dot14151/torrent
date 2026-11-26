@@ -18,8 +18,7 @@ Windows Server 2019 - это операционная система, котор
 ```bash
 magnet:?xt=urn:btih:188D441BCF6FAC56F9FDC5BD53330E6BA38FF399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Overlord III / Повелитель [ТВ-3] [2018, TV, 13 ep] WEB-DL 720p Raw+R
 ```bash
 magnet:?xt=urn:btih:1EF89228A6FBB3FEBE8A93CE3C4AA3A412F1CB33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70E33C2D70D9EB9BF47778E0C228C9B1C7501390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD883EC4F33BCEFB7E7250380C996828F1619E5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Windows Server 2019 - это операционная система, котор
 ```bash
 magnet:?xt=urn:btih:423EA2650899BB730D065E8431529CEFC26BD3EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Windows 10 включает “универсальную” архитекту�
 ```bash
 magnet:?xt=urn:btih:369E0306EF42BA0A1463E914C8819C3E575EBE8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:E15F931EBCEB6579FD971613461AD11351801E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ American Truck Simulator (2016) [Ru/En] (1.32.4.1s/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:30CD53DC9976B12118C117A2FD98F9AEA71830FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

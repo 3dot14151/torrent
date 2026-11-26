@@ -19,8 +19,7 @@ The Elder Scrolls V: Skyrim Anniversary Edition — это улучшенное 
 ```bash
 magnet:?xt=urn:btih:FB148CB90CB8688E035EDB6461FCD666A0F1A172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.8.1151.18467/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8C961026553FCBCC0A79B02B75C77FF2AF7A1F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ COCOON (2023) [Ru/Multi] (13127050) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:D1977132C6ABFBE6D7DB1A6FDCEC4CBDB8375672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Floating Life 2 воплощает инновационный дух инди-р
 ```bash
 magnet:?xt=urn:btih:1151D90396F7DC0B822E04BF7BD09DA5EB77D31B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Long Gone Days – ролевая игра о современном мире и
 ```bash
 magnet:?xt=urn:btih:10284043BF945C282180C2F269BB1302DCDA464F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ NewWeather - это информер с перекидными часами и �
 ```bash
 magnet:?xt=urn:btih:13B0E8116CC94BC177E0605F720EBC2D45A05FEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

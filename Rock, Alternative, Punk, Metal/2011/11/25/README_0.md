@@ -28,8 +28,7 @@ Ex.T.R.A. - Сткло и сталь (2010) [MP3|320 kbps]<Ska, Alco ska>
 ```bash
 magnet:?xt=urn:btih:1AEFF3F4277CEAC5327655C26316FA7195592B50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Th’is Rock&Roll. Rock Around The Clock (2011) [MP3|320 kbps]<Rock&Roll>
 ```bash
 magnet:?xt=urn:btih:89D081BF2FCE47E97E36B3B359DCBFB8710EB07C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ The Beatles - Whitology (1997) [MP3|320 kbps]<Rock, pop>
 ```bash
 magnet:?xt=urn:btih:DCB03F79C8BC308513C542F410D4BFCDCFF5E0B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

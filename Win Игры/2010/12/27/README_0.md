@@ -19,8 +19,7 @@ Iron Man — игра, созданная на основе одноименно
 ```bash
 magnet:?xt=urn:btih:7E2724B223C2F5B40432D9160EF82F1B07B57247
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

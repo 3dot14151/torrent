@@ -22,8 +22,7 @@ Booze Control - The Lizard Rider (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:07E627F962807901DA8B6B21EBEDDC1B1277893F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Detlev Schmidtchen (ex. Eloy) - Vanthasia (2013) [FLAC|Lossless|image + .cue]<Pr
 ```bash
 magnet:?xt=urn:btih:F67E740235F712934E7A87A1A955602A20DC7FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0579460B3956B5E42CA21492DA484FC7AAE246B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Rage - My Way (2016) Single [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:C17E6621DE8821AE5B54C5721587EDB34801D9AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Otep - Generation Doom (2016) Deluxe Edition [MP3|320 кб/с] <Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:639432B40CB133B16D271E5392EDBEEAFDB71A8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Santana - Santana IV (2016) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:BC023660E709B017D1D6424911C6E8B58374FC46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Santana - Santana IV (2016) [MP3|320 кб/с] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:5EED788C5875A96E349CFA74EECE49F9F8C7A136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Crematory - Monument (2016) [FLAC|Lossless|image + .cue] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:ECD5D39D937DB4B60F7476A5367E903A40788F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

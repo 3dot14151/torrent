@@ -21,8 +21,7 @@ Turbo Dismount (2014) [En] (1.8) Repack ALiAS
 ```bash
 magnet:?xt=urn:btih:72975D3CEEF5DE4C4A8EAB1F1EEAAE533B569008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

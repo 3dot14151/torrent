@@ -22,8 +22,7 @@ Glenn Tipton - Baptizm Of Fire (1997) Japan [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:004183969811EA59EF9DFD48DBCBC2D6A41A5988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Unloved - Heartbreak (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop
 ```bash
 magnet:?xt=urn:btih:CD642CBF97AA88D3D34B65C21951B5665B29901B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ PIG - Candy (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Industrial, 
 ```bash
 magnet:?xt=urn:btih:B59925E48BEE87E2453FAA2011F496D5D9ACF544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Savoy Brown - City Night (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:344B613614CD1419E6D855F7B3C040243E556F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mick Jagger - Wandering Spirit (1993) Reissue, 2019, Polydor Records [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:1FE61DCE75AFB191BD4C1F67A746941A49E6B478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

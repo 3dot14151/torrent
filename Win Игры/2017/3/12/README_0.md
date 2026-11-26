@@ -19,8 +19,7 @@ Sorcerer King - Rivals (2016) [En] (2.1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:3F2CA5FF237771B340A104E2E6D241168F5FF665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deponia: The Complete Journey (2014) [Ru/En] (3.3.0155) Repack R.G. Механи
 ```bash
 magnet:?xt=urn:btih:0FDF587A138769F375EDEEBB174B08CB20080F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

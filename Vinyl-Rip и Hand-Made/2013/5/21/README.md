@@ -28,8 +28,7 @@ I1 Abominations(   Читать дальше...   )Жанр: Death MetalПрод
 ```bash
 magnet:?xt=urn:btih:C4336905E52C59E41C8551B7A5DD7218F76CBBD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Dschinghis Khan - Dschinghis Khan (1979) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop
 ```bash
 magnet:?xt=urn:btih:2EFCBA38D8FA1C16B653B159F9CAA26943815A96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

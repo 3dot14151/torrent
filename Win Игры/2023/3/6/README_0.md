@@ -19,8 +19,7 @@ Kerbal Space Program 2 — продолжение полюбившегося п�
 ```bash
 magnet:?xt=urn:btih:C36A550579A2D5EFC34AECECC459AB193A719C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

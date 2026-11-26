@@ -19,8 +19,7 @@ Measure Map Pro - приложение для более удобного и к�
 ```bash
 magnet:?xt=urn:btih:B32A540D9963FEF5E778A48953D3B910477198A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Agro Measure Map Pro - приложение для более удобного �
 ```bash
 magnet:?xt=urn:btih:2E859ACE8C26FCDA9321649440A93A534B3532CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wallpaper Changer Premium 4.9.3 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:79C9FCCA246DCEDB1A8793E77C36DFB9D7B60F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ AudioRelay: стриминг аудио - приложение, что спос�
 ```bash
 magnet:?xt=urn:btih:5A3E46EDD2DF407C0AD9B727E4A2412DF53CEB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ KinoHome 1.7.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:62CB9AD7AE60B2D96FEB0B418ED40CDFA6E7AB53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ tTorrent - удобный, функциональный и из-за прочи�
 ```bash
 magnet:?xt=urn:btih:30C8D8FD62B72B9B3A5286F514268BFF3C8875D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

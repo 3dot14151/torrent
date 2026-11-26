@@ -22,8 +22,7 @@ Smart Driver – удобный радар камер и ДПС, а так же 
 ```bash
 magnet:?xt=urn:btih:99F79A54D32BBA0684F6A1EF8B78A03628F091D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ exFAT/NTFS for USB by Paragon 3.6.0.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:18D855847B4998A69629E213DD54D37C8F843663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

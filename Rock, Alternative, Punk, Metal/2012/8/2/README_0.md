@@ -28,8 +28,7 @@ Ozzy Osbourne (Джон Майкл Осборн) — британский вок
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ The Cranberries - Дискография [78 релизов] (1991-2012) [MP3|32
 ```bash
 magnet:?xt=urn:btih:2A2A13957B683B41B63A0D1ACFCB1E825898CA30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

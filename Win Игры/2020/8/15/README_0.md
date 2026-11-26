@@ -19,8 +19,7 @@ Biker Garage: Mechanic Simulator (2019) [Ru/Multi] (20200813/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D407F4CAC51094AC75C5E3C90195F4662CC9F523
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

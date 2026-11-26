@@ -19,8 +19,7 @@ Fairy Tale Mysteries: The Puppet Thief Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:A8B6A3E7C9F846783F8AA7413CC37FDD30D54603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Agency of Anomalies 3: The Last Performance. Collector's Edition / Аген�
 ```bash
 magnet:?xt=urn:btih:6218847BFC7FAF83A2A74396EE1226BBDE3D4845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Build-a-lot 3: Passport to Europe / Город мечты. Командиров�
 ```bash
 magnet:?xt=urn:btih:C64CF6B71320DEB7967CE311BF4DE31D8836B8C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ The Dark Eye. Chains Of Satinav [Ru/En] (Repack/1.1) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:01147959D29CF6D14627ABC4EBEB36C37C366824
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

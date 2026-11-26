@@ -19,8 +19,7 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 ```bash
 magnet:?xt=urn:btih:1C1EE8A343B3172B9D3E7F45C1FF7E88992A001A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

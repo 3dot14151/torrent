@@ -22,8 +22,7 @@ VA - RETROспектива, часть I: Эстрадные оркестры (1
 ```bash
 magnet:?xt=urn:btih:36A37D576E29EFA08FFE94A48F31A609899DA25E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

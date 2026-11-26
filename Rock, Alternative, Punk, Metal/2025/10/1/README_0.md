@@ -22,8 +22,7 @@ Robert Plant - Higher Rock (A Robert Plant Compilation) (2025) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:E69B15CF6E56EDD1C6853A4D68D4E0839B65BADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Robert Plant With Suzi Dian - Saving Grace (2025) Japanese Edition [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:02E696B9AA0F1FDBA229957150789B4D6BBBB4B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

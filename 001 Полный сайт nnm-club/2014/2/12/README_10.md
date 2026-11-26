@@ -28,8 +28,7 @@ VA - Enhanced Progressive: The Collection Series Volume Eight (2014) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:8BFC40CECAA89728C8084031B734CCA400628C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Festival House - Session 5 (2014) [MP3|320 кб/с]<House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:FCBF96CB5F78CD9DB4EBD75575FFA5D34EF60353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ We All Die (Laughing) - Thoughtscanning (2014) [MP3|320 кб/с]<Progressive/Ava
 ```bash
 magnet:?xt=urn:btih:35A7AFF8CC6A85A0A5D7775AE04C675DF8E60A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Checkmate - Immanence (2013) [MP3|320 кб/с]<Groove Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:B745497D0EE5817CC93F4A3BB65E0277D728415A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ HyperSnap - это инструмент для захвата изображен
 ```bash
 magnet:?xt=urn:btih:D39A21DCE1804C451413B7E03C6C2D25555C91CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +181,7 @@ VA - Venice Carnival Lounge (2014) [MP3|320 кб/с]<Lounge, Chill Out, Deep Hou
 ```bash
 magnet:?xt=urn:btih:029BAA5D9DA13459696FA478EB1FA005F689892B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4779B91E0CAE7A5339D3644E5AEFAE7022AF5DFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +231,7 @@ HyperSnap - это инструмент для захвата изображен
 ```bash
 magnet:?xt=urn:btih:8FD9D19EBD66ACFD111FF564E480D3769480448D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Sargant Fury - Little Fish (1993) [APE|Lossless]<Hard 'n' Heavy>
 ```bash
 magnet:?xt=urn:btih:63234EBBF42998B9C5E4C877F6F7BE466C43E86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FDFD3CF7FF23801AB289FF69CC5B8CA57379EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +324,7 @@ VA - Black Hole Recordings: Best of 2013 (2013) [MP3|320 кб/с]<Trance, Progre
 ```bash
 magnet:?xt=urn:btih:2EE889CE71A9D4C6AC37C0D48BD353C0EDC66E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +358,7 @@ VA - The Compilation (Six Years Of Suma Records) (2014) [MP3|320 кб/с]<House 
 ```bash
 magnet:?xt=urn:btih:DBAA6BE2E09228CD3A2EDEFC9A9D5A7E4898E543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2ED457D5FC14DA6499D85BEFA95C7F685E965E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF7B1B58B9B6C0133A9B3A36E383E2002BD512EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9890B4DAD69551DCEA16C2C4A4D7CC9DD397AB08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:40078380382BB01323DA3EE51DCA032BBF67CA70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5082B07235D63C38C844E076634098B4B79FF40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +517,7 @@ Woods of Desolation - As the Stars (2014) [MP3|320 кб/с]<Atmospheric Black Me
 ```bash
 magnet:?xt=urn:btih:D58EBD5B2EE79B964D1513F46362AF920078D6D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9612C42D28098A8A211BFFCD530A093778271E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +574,7 @@ Lyfthrasyr - The Engineered Flesh (2013) Limited Edition [FLAC|Lossless]<Industr
 ```bash
 magnet:?xt=urn:btih:970EDBE7F7A06456FFE23E055F9CDD429F2C08C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,8 +600,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A88C03941E782B3A9FEDA40EAA28E8A3C623756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +634,7 @@ VA - K-Themes (2013) [FLAC|Lossless]<Tech House, Deep House, Techno>
 ```bash
 magnet:?xt=urn:btih:9C6D3DD6938277B27C1B6360FE7AF2C6AD58714E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +668,7 @@ VA - Amine Edge & DANCE present CUFF Vol. 1 (2014) [MP3|320 кб/с]<House, Tech
 ```bash
 magnet:?xt=urn:btih:E42789D6E57997E117D92DEEE95583F7B574AC7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -725,8 +702,7 @@ Guardian - Miracle Mile (1992) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E538B91A6F74A74702011A22446A6E7AB0BB25FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +727,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -777,8 +752,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31E68BDF3EE737107E3B6656EFD480FBA6A3EE7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

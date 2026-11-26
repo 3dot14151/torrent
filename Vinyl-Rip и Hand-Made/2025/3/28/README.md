@@ -22,8 +22,7 @@ A4. Until It Sleeps(   Читать дальше...   )Жанр: Thrash MetalП�
 ```bash
 magnet:?xt=urn:btih:4A3901D96D44B5F27A793A0853381638E7C3E6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nightwish - Century Child (2002) Released, 2007, Universal Music Group Internati
 ```bash
 magnet:?xt=urn:btih:E9376DFCB91C68CB9699D6C9108965E3EF48F444
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B1 - Stridsljod / Blackabilly(   Читать дальше...   )Жанр: Post-
 ```bash
 magnet:?xt=urn:btih:8DFBA7B32CA4FBFFD904673A99A77E8B834C8392
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

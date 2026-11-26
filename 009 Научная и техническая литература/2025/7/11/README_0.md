@@ -21,8 +21,7 @@ Olive Yong | Kawaii Kitties - Learn How to Draw 75 Cats in All Their Glory (Volu
 ```bash
 magnet:?xt=urn:btih:F6B645DE9DF9D5B4E3F9E4127AD4E3E6695B3810
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ James Manning | How to Draw Koalas Step by Step (2020) [EPUB] [EN]
 ```bash
 magnet:?xt=urn:btih:6A5C33612461278EE2330EF70396F6E4BDF49FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:13CB3FE37D3A112200D7E6899D4B67428AAEAE0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Locus Map предназначена для пеших прогулок, кат�
 ```bash
 magnet:?xt=urn:btih:951F0F9E6CA92DC521EF882AB648F65332DF4AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

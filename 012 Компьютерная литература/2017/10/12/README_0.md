@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:CFF2FC77011F145922A76B72D75B54F1C8B0BF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2291FAB6DE29F4CB69C43281A0FAAA1818728054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Martin Brinkmann/ Мартин Бринкманн | The Complete Windows 10 Priv
 ```bash
 magnet:?xt=urn:btih:BC49A8A0DDF25A7769A0516E0462FB52625DA39D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

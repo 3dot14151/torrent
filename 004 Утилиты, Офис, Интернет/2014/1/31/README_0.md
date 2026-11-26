@@ -19,8 +19,7 @@ STDU Converter – программа для преобразования фай
 ```bash
 magnet:?xt=urn:btih:77D4309D3BDD80CF87866794482BDBD21F6DC1CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ LastPass Password Manager позволяет безопасно обменива
 ```bash
 magnet:?xt=urn:btih:10C2701A28B45451B8F0E44BDCAC3A60C09B6847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

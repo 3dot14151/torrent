@@ -19,8 +19,7 @@ SunsetScreen - бесплатное приложение для Windows, кот�
 ```bash
 magnet:?xt=urn:btih:91AB792BE874C1C9461240D67F2B75FBA90927A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

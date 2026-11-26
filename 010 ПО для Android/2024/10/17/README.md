@@ -19,8 +19,7 @@ IPTV Pro v8.2.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:59C73BB2E4457167D5C0025383A9F3D769CF41E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ActionDirector- это единственный 📹 видеоредактор,
 ```bash
 magnet:?xt=urn:btih:1609B5792B80E2F791533CEDD5F8A9E89AB6BB5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.5 Mod by Bala
 ```bash
 magnet:?xt=urn:btih:9327DEF1219AD9EA8AF69A5456A0DB31E104F733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

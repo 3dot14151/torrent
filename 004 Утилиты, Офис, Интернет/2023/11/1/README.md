@@ -20,8 +20,7 @@ SiSoftware Sandra Lite - бесплатная версия многофункц�
 ```bash
 magnet:?xt=urn:btih:4319C62B0924660E9A374B45D30BEAF632E5D68D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ YTD Video Downloader — простая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:BD671CF1665A1002E9229EC1241A158BE4603759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

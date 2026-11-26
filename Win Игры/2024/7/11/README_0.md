@@ -19,8 +19,7 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:8E2C2A955FDDED911D190ECE4267315D7AC09849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Flashback 2 отправляет геймеров в умопомрачител�
 ```bash
 magnet:?xt=urn:btih:659AC585107B3641E3A3BF6C73EA5FC9686FE206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Whispering Lane: Horror (2024) [Ru/Multi] (1.0) Repack FitGirl [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:4CD7448D0DA4CE155F64A70AF7F96BF7DAFB6A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ With My Past - это повествовательная игра-головол
 ```bash
 magnet:?xt=urn:btih:054A5E06CC1254EA0F10FA15B62ECE41F3979D43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SAMURAI WARRIORS 4 DX - слэшер, предлагающий не только
 ```bash
 magnet:?xt=urn:btih:FEA2DD766B8B14636EF310F63F7535BB6CCCB2B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Demeo (2021) [Multi] (1.36.256496) Scene Tenoke [VR]
 ```bash
 magnet:?xt=urn:btih:E1545647F354763286B29F5337947A73F649AAA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tunguska: The Visitation / Тунгуска: Посещение (2021) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:81F5721C95C57CD212E45F7CEBFD9A8A220655ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Baten Kaitos: Eternal Wings and the Lost Ocean и Baten Kaitos Origins тепе�
 ```bash
 magnet:?xt=urn:btih:9A3503276E088A5F85D2AED0A46576D2C91FDF16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

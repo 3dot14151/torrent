@@ -21,8 +21,7 @@ The Howling Void - The Glow of a Distant Fire (2025) [MP3|320 Kbps] <Symphonic, 
 ```bash
 magnet:?xt=urn:btih:C26395AA9C394E51708C8A9766DD755F76A83E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

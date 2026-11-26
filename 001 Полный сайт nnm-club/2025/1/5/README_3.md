@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:3FC150383B974A333CA913C289117CC40BCEB3E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:742B72FADD0135AA18BB43F8546ECED8B46845FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 ```bash
 magnet:?xt=urn:btih:6E788D7BC53AFC8B43C52A490CEBA33DB0FB0304
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF4203C3444A3E5126459523091A152D897EC7CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13636DBCF7D9B76FEB1652BEBA21C9EBB880554E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
 ```bash
 magnet:?xt=urn:btih:C8C58AF76E20C5FF641C8855864596A7CE1F7BE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9119D0EF0E5310DD5405CF791EDE73F4D1C5D166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ The House of Da Vinci (2017) [Ru/Multi] (Build 5703690) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:639AD88E5BCA31E16900B1B21649FDC0A6000FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (Build 10591427) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:28950A3CEF5F867CDA0C931C9DC2334159958231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A09C3132EFC71B43F4B371423523FDA4B91EDB9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ Pink Floyd - Live At The Hippodrome (Bristol, UK, 13 December 1974) (2024) Live 
 ```bash
 magnet:?xt=urn:btih:7231767DA4C22D7823342E8916E4CA286050C4A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ Pink Floyd - Live At Empire Pool (Wembley, London, UK, 15 November 1974) (2024) 
 ```bash
 magnet:?xt=urn:btih:4334D22AA4832768421EAE483140D5B934F4D6F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ Megafauna - I Owe This Land a Body (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Am
 ```bash
 magnet:?xt=urn:btih:135AF2569AC0ACFA4982DF9514CBB908C51D86BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D66674CECC2F3DCBA1279DC14EA4C31288B9FEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +390,7 @@ Pink Floyd - Live At The Hippodrome (Bristol, UK, 14 December 1974) (2024) Live 
 ```bash
 magnet:?xt=urn:btih:ABC447C9B269FD1DDAA220AF47D0D608050C02BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AAE27FC164BEE4B1BE23D7E91DDE4EB9DE6DFCC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F085B21CE675CBB8180AD326A50BA71B6DF9E242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ VA - Morning Chill Lounge Vibes (Relaxing Background Music) (2025) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:0FE57F4D8F335C185F79509B44810C9EE6AE82D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C466DC054F9132D242861430E38EB9EA4EB2FEF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ Pink Floyd - Live at Trentham Gardens (Stoke-On-Trent, UK, 19 Nov 1974) (2024) L
 ```bash
 magnet:?xt=urn:btih:FE671097BE01DD17475FF5ACB9DDEA6CEE48E8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ VA - The Best Of Italo Disco Vol. 13 (1989) [OGG Vorbis|480 Kbps] <Electronic, I
 ```bash
 magnet:?xt=urn:btih:B15F93E0965E8CE0053C7F2153115982F21B35D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ VA - Songs To Make You Sweat (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 ```bash
 magnet:?xt=urn:btih:08A6C1CD0503A0F4A66F8213FC5F5561AF472943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ Pink Floyd - Eclipsed By The Moon - Studio Outtakes 1972 (2022) EP (Live)[FLAC 2
 ```bash
 magnet:?xt=urn:btih:2ACA7C1F6A7DC84648FA829EF34F14ED1C6E1B9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA0A5C35C8AB3FFE9507184A4EF8F845AB62CDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +664,7 @@ Pink Floyd - Live At Usher Hall (Edinburgh, UK, 4 November 1974) (2024) Live [FL
 ```bash
 magnet:?xt=urn:btih:71E2CB56E232EC17BCEF5EA14533351ED19FFF6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +692,7 @@ Pink Floyd - Live At Théâtre de Plein Air (Colmar, France, 22 June 1974) (2024
 ```bash
 magnet:?xt=urn:btih:AC3761133FAAD8EA06DDC7595EF94E315A7BDB1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

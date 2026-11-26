@@ -19,8 +19,7 @@ Ember (2016) [En] (1.046) License GOG
 ```bash
 magnet:?xt=urn:btih:367305A2C7B36D8B96562CAEF7FD208925DD7B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Life is Strange: Before the Storm (2017) [Ru] (1.3.0.2/dlc) Repack xatab [Episod
 ```bash
 magnet:?xt=urn:btih:2D9A32B79B91C570486402348F747F85B10C69A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Beast Quest (2018) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5AE83F4906C7B678DE400EE186874EE129E12D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mantis Burn Racing (2016) [Ru/Multi] (20180222/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:736E0423964F70ADA05D30998DA037561C46C17B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII  (2015) [Ru/
 ```bash
 magnet:?xt=urn:btih:CA79DB2B92DA29451BA4A13A8648C6FAE2632B88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Medal of Honor Warfighter (2012) [Ru] (1.0.0.3/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:6AD167175CA4B93F96B7DDD1F57BFE6C6089BA3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

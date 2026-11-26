@@ -22,8 +22,7 @@ Sellsword - …With Might And Vengeance (2026) [FLAC|Lossless|WEB-DL|tracks] <He
 ```bash
 magnet:?xt=urn:btih:57AA93E7B0B375647D5D79F82864E0EFC1E4421F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chiron - The Best Of (2015) [FLAC|Lossless|image + .cue] <Alternative, Avant-Gar
 ```bash
 magnet:?xt=urn:btih:86E94A633D560072D88788FE4039BC3F03C63DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chiron - The Sun Goes Down (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Av
 ```bash
 magnet:?xt=urn:btih:60170A5D59888EE433ABF8231589D18E3FFC0DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Chiron - A Dark Beauty (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Avant-
 ```bash
 magnet:?xt=urn:btih:F6075B509ABBD4F954CA5D8C64294BB053D937E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nazareth - No Mean City (1979) Japanese Edition, SHM-CD, Reissue, Remastered, 20
 ```bash
 magnet:?xt=urn:btih:7916BFC083601C4BDA45913EA43A6FC98817CDF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rezn - Cycles in the Infinite Dream (2026) [FLAC|Lossless|WEB-DL|tracks] <Psyche
 ```bash
 magnet:?xt=urn:btih:4169890AF5640269E06127A1DDD9CCEF2987E982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Rezn - Cycles in the Infinite Dream (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:0D81105DD0AE7DD143D09AFCC9BD650BB8666814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Ulcerate - Cutting The Throat Of God (2024) [FLAC|Lossless|image + .cue] <Death 
 ```bash
 magnet:?xt=urn:btih:B0B40709FBB7B4652BCBAD616A06B71A39D86981
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ UFO — британская рок-группа, образованная в 19
 ```bash
 magnet:?xt=urn:btih:8B00B45EF4288C1DE475A8A215C7647A804CD2BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

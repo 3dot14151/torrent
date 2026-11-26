@@ -22,8 +22,7 @@ HomeWiki это:
 ```bash
 magnet:?xt=urn:btih:24B9DCD2C1A299804770ADB5D8D59C3F8A6F1495
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

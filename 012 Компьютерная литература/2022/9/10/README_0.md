@@ -20,8 +20,7 @@ Sylvain Kerkour | Black Hat Rust (2022) [PDF, EPUB, MOBI] [EN]
 ```bash
 magnet:?xt=urn:btih:27E85CC7A4198F1417A544A65E2BAD5B0A7D7D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

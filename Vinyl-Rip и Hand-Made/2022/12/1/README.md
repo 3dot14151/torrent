@@ -24,8 +24,7 @@ Pretty Maids — датская рок-группа, основанная в 198
 ```bash
 magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

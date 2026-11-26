@@ -23,8 +23,7 @@ Drudkh - Борозна Обірвалася (A Furrow Cut Short) (2015) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:0BB1047288736B44D5E22C49B430F348ED4CF15D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Aerosmith - The Essential: Aerosmith (2011) [ААС|256 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DCCD28C18372C906A08D0B96A70A733E7F61A1EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

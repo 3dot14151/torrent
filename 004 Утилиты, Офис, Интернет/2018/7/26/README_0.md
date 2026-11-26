@@ -19,8 +19,7 @@ CoolUtils Total Excel Converter 5.1.0.262 RePack (& Portable) by TryRooM [Multi/
 ```bash
 magnet:?xt=urn:btih:FED872C3599F5C1765E5EE87B2A6083F172CA468
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

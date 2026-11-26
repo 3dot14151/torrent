@@ -18,8 +18,7 @@ PowerDirector – Video Editor v12.7.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:98D1E78CE59B47FD0CCCA2554B54B816AFFBEE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Asia - Live at the Teatro Colegiales, Buenos Aires, Argentina, 2011 (2023) [FLAC
 ```bash
 magnet:?xt=urn:btih:0E5B3A5C200C6DF7CACB533941425CC386DC8DAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Warfect - трэш-метал группа из Швеции, основана �
 ```bash
 magnet:?xt=urn:btih:F6BDEB746B07B4DC2407D69EC860BB817000BE5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Morgan Giosa - Feelin' Fine Today (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:2B78681B297675E52C07670174873E8938591C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Symphony of Unity - Live @ Atmosphere Stage, Tomorrowland, Belgium (2023-07-29) 
 ```bash
 magnet:?xt=urn:btih:1822EC4997EC58B910FC45694CF2222F7C66EE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED885CDA70FAC5468E7B4F79AA3B08BD87AFCFBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +185,7 @@ VA - Hit News Vol. 10 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 ```bash
 magnet:?xt=urn:btih:2F1E2307261FE56DB0F3BC20655D17FBB08F113E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ Nightwolf - The Cult of the Wolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:7FBABA5DA171378DC60465AF927EA9C2CF0D5F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC 24/48|Lossles
 ```bash
 magnet:?xt=urn:btih:938F9EF1BCB35DA2C9EC017E4D8033972169A022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E0A0A729155465D1EF69AF335C668D6D6B020FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ Disc 3: Live In Hollywood, California, Hollywood Palladium – March 23, 1973(  
 ```bash
 magnet:?xt=urn:btih:6869F66A162C8EDD313A446972FDFB6C2D4D2C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ MotoGP. Этап 19. Гран-при Катара. Спринт (18.11.2023) WEB
 ```bash
 magnet:?xt=urn:btih:DAEDE9B020CBDD26CDC341ED1FA6D1A3ECE4DBDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45B415B0B25931B4657FBB42DAC6D63D43988640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8FA541B44965DEAA069DC6373614625A7CCBE9D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F999753EA8F167BD8B77F155CDAD06E70DE3E7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +428,7 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:5373A752147A1A88293C1AA3E308547211350936
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +454,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ABD600197B120EDAB12AF47EEAC5EC3419F658A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +482,7 @@ Oomph! - Richter und Henker (2023) [FLAC|Lossless|image + .cue] <Industrial Meta
 ```bash
 magnet:?xt=urn:btih:C261FE5F572AC9CCBF871B88EECCA919EC013C8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +507,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A4EF649263C2A677BB23EA3844335CB1A22B2AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +532,7 @@ Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Cent
 ```bash
 magnet:?xt=urn:btih:9F3E3197B575CF63604EE84E58329E6FD2871570
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:173B15F56B70186F2ACF7B4E8C86BFA98AB3F4B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +586,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C248B87326B8C85530BF7633701E312C35053526
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ This Dying Hour - Longest Memory From The Shortest Life (2007) Delux Edition, 20
 ```bash
 magnet:?xt=urn:btih:6B7B5D08BE81A2505095CC7B2A657EEA85306676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +642,7 @@ Disc 3: Live In Hollywood, California, Hollywood Palladium – March 23, 1973(  
 ```bash
 magnet:?xt=urn:btih:37DA0362A3B5681C83FAD4A3F3D36987086EC3AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Classix Nouveaux - Battle Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ne
 ```bash
 magnet:?xt=urn:btih:E08B32308F203FB7DF5367F29F1481AE38C7A6B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +698,7 @@ VA - Amsterdam Music Festival, Johan Cruijff ArenA, ADE (2023-10-21) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:047A47758A64AAE104C218E3C44AF4534244A86E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

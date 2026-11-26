@@ -19,8 +19,7 @@ Elena - атмосферная игра от первого лица, в кот�
 ```bash
 magnet:?xt=urn:btih:56A566C6D45385FD04E1388DED8E2755B582C4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

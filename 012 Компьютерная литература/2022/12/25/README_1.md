@@ -19,8 +19,7 @@ Python - отличный язык программирования; однак�
 ```bash
 magnet:?xt=urn:btih:554E8E05F02F401B5E1F8C5B7995321525A954BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

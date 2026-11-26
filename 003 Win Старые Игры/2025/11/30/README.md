@@ -19,8 +19,7 @@ UnReal World - это уникальное сочетание ролевой и�
 ```bash
 magnet:?xt=urn:btih:D6605B33322C92BB790140844D707887DF777BE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Geneforge 5: Overthrow - это ролевая приключенческая и
 ```bash
 magnet:?xt=urn:btih:6530BDD756C071EE16E1932297A08B850E73534A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Geneforge 4: Rebellion - это приключенческая ролевая и
 ```bash
 magnet:?xt=urn:btih:7BDE4411F9B78E7A221F5408DE59966E93F78CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ You Are Empty (2006) [Ru] (1.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F2DEF7880A1158413FCACD50504FA46DF6D8C3A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Geneforge 3 - это приключенческая ролевая инди-иг
 ```bash
 magnet:?xt=urn:btih:3CE162F175B9E1BD1DE3DD8CBF40D6A1AB7C4F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

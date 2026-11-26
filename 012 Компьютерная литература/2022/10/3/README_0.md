@@ -19,8 +19,7 @@ Raphael Amiard, Gustavo A. Hoffmann | Введение в язык програ�
 ```bash
 magnet:?xt=urn:btih:27D420B08107FE3650870564B4FAC306A6BFE078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ SEO-оптимизация текста для поисковых систем: 
 ```bash
 magnet:?xt=urn:btih:0A396E06CD5A50A9982BA212BD71F0FBDF2CEF88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

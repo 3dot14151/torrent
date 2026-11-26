@@ -20,8 +20,7 @@ Adventure Time: Explore the Dungeon Because I Don’t Know! — игра, осн
 ```bash
 magnet:?xt=urn:btih:2D414AB81E9F6733E12340434F2F3F59A385E0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

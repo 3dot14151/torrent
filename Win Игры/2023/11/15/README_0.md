@@ -19,8 +19,7 @@ The Far Kingdoms: Awakening Quest (2023) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:843DC31AEF3FF77077B409B7E87592B345FD7F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MX vs ATV Legends показывает, какими могут быть инт�
 ```bash
 magnet:?xt=urn:btih:E3DE4E90BF0510F0520FD04E9BE18C520A553C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Awakener: Forgotten Oath - это очень гибкая игра в жан
 ```bash
 magnet:?xt=urn:btih:B59B65C42B725BE4CBB48CA093865A27EC47E7FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Ian's Eyes - это приключенческий хоррор, в которо
 ```bash
 magnet:?xt=urn:btih:B8133BCA6A4EE85E77296641B4202AE251646843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ian's Eyes - это приключенческий хоррор, в которо
 ```bash
 magnet:?xt=urn:btih:294BE4BC47D35C03790F99DDFB0385F34C296ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Joana's Life - игра в приключенческом жанре от сту
 ```bash
 magnet:?xt=urn:btih:EE8F8F776A3F6B3DE23CAA8004B5CC9724E8B3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ One Piece Burning Blood (2016) [Ru/Multi] (1.06) License CODEX
 ```bash
 magnet:?xt=urn:btih:B4789CE9B1074C0A0923A86F66B3A8780D10FEC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

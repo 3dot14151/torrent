@@ -19,8 +19,7 @@ Darwinia - это оригинальная стратегия в реальн�
 ```bash
 magnet:?xt=urn:btih:676CD79104E24336BA849B4CEEDD1233DF11AEEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hard Truck 2: King of the Road / Дальнобойщики 2 (2000) [Ru] (6.6) 
 ```bash
 magnet:?xt=urn:btih:C4ECD79622EE16A07F2EB2F88B104ACDE40FFA23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

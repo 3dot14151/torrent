@@ -28,8 +28,7 @@ Rebellion - Arminius: Furor Teutonicus (2012) [MP3|320 кб/с]<Heavy Metal, Pow
 ```bash
 magnet:?xt=urn:btih:514744F7C78D717B3B5BE26E65BB4720B625144A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ FullForce - Next Level (2012) [MP3|320 кб/с]<Melodic Heavy Metal, Power Metal
 ```bash
 magnet:?xt=urn:btih:01AAA161763C5617C7A56CDAA56179A4FE5D5845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Kamelot - Silverthorn (2012) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:19D11FBF05D8B64F8102720D6C6CE2D6196E73E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Black Country Communion - Afterglow (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:48683D066297770747D84A94172F59CD25D50080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Deep Purple - Machine Head (1972) 4 Remastered CD Box Set /2012, EMI Records/ [W
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sonic Jump Fever 1.5.3 -  Джампер от SEGA  [Ru]
 ```bash
 magnet:?xt=urn:btih:633D3D2E53205FB56A747E6194EAEA4EFABCE88D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

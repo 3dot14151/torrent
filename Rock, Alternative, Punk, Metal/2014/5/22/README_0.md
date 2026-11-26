@@ -27,8 +27,7 @@ Ludicrous - Altar Boy Discocult (2014) [MP3|320 кб/с]<Melodic Death/Industria
 ```bash
 magnet:?xt=urn:btih:A50B68F373386765B3CBE82BE85F30D1D0821C3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Challenger - Challenger (2013) [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:3D2B2632DBE48B933D10F130D45E509CDBF95A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Kenziner - The Last Horizon (2014) [MP3|320 кб/с]<Power / Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:A13F3F1A9864FD4131DF690B8D8613ED01B621ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Black Robot - Woman (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:704D1EAE36C21FE2AC48F4BA5BA5E0AA31ED3E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Sweet Pain - Sweet Pain (1970) Remastered /2008, Retro Disc International/ [APE|
 ```bash
 magnet:?xt=urn:btih:8535C5ECE54DACF8784EA99D62515CAA43267312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Second Hand - 3 Альбома (1968-1971) Reissue, Remastered /1991-2010, UFO R
 ```bash
 magnet:?xt=urn:btih:7E443A019E31C3B6B655BF347F4BB542167F8489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Trivium - Vengeance Falls (2013) Special Edition [MP3|320 кб/с]<Metalcore, Th
 ```bash
 magnet:?xt=urn:btih:6196A45F7DF470C465E6C13ECC5FDCB61F0D81A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

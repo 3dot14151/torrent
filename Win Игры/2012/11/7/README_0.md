@@ -19,8 +19,7 @@ Mystery of the Ancients 2: Curse of the Black Water Collector's Edition / Тай
 ```bash
 magnet:?xt=urn:btih:0673331A8AAB21500474FBB7B19A741145B64137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Of Orcs and Men [Ru/En] (RePack/1.0) 2012 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:AEDC73765C8A226FF6747955630DC2765A120FF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ FM13 предоставляет вам шанс стать тренером со
 ```bash
 magnet:?xt=urn:btih:1D6F4678A0E658660F07D01A99807C16B8B70CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Crysis Wreckage - самостоятельный мод для Crysis, не тр
 ```bash
 magnet:?xt=urn:btih:2E0D9B8A9CEBA02BE521AF9C54E71024965F2B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Farming Simulator 2013 (Русификатор) [Ru] 2012|1C
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

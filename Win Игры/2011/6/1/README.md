@@ -19,8 +19,7 @@ DreamWoods 2 / Загадки Хитролесья (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:D1347374CA57D789040C5EFCF143F2A8FCB8FFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Columbus: Ghost of the Mystery Stone / Колумб: Призрак Таинст
 ```bash
 magnet:?xt=urn:btih:8879198EA748256D2F33883B6D29A51FD7C5F712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Little Witch Magic Potion / Маленькая колдунья и волшеб�
 ```bash
 magnet:?xt=urn:btih:A483CD53B80C5F81DD316BB5A524636E882BE995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Platypus / Платипус: Пластилиновая угроза (P) [En] 20
 ```bash
 magnet:?xt=urn:btih:1C2B32C3246FB42ACC0432E501D07B3BB14B3699
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

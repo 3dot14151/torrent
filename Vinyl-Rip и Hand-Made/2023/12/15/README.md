@@ -22,8 +22,7 @@ A4 Cigaro(   Читать дальше...   )Жанр: Alternative Metal, Nu Met
 ```bash
 magnet:?xt=urn:btih:49C12326CA3DB194DC515C45E014467BC981000A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Silent Force - немецкая группа Heavy Metal/Power Metal, образ
 ```bash
 magnet:?xt=urn:btih:484BF8716C7638A6204B931744B24745E4C67367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stam1na («Стойкость») — метал-группа из Леми, Юж
 ```bash
 magnet:?xt=urn:btih:4A2917C99B5A9A66F6BC38D910C9524F6672560B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ B1 - Star Of Sirrah(   Читать дальше...   )Жанр: Progressive Met
 ```bash
 magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

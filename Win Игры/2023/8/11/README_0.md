@@ -19,8 +19,7 @@ The Pale Beyond – это визуальная новелла с элемент
 ```bash
 magnet:?xt=urn:btih:F1F1935C5FD6D4BCCBDED0B4F615C915DE40C7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mato Anomalies - это пошаговая RPG, которая отправля�
 ```bash
 magnet:?xt=urn:btih:E10ED14303041E543DF4C8E6ACCDCD2A8193EC68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

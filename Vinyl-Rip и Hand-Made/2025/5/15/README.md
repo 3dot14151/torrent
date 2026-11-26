@@ -20,8 +20,7 @@ B. Ea (19:37)Жанр: Death MetalПродолжительность: 00:40:32
 ```bash
 magnet:?xt=urn:btih:569861649132B22C712BA97C771CBDFE30872D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Novembre — итальянская метал-группа, образован�
 ```bash
 magnet:?xt=urn:btih:70DAD989B45B7FDA08C4C8623FB5255A31B3681A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

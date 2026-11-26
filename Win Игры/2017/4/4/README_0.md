@@ -19,8 +19,7 @@ Vermillion Watch: Moorgate Accord / Вермильоновый дозор: Му�
 ```bash
 magnet:?xt=urn:btih:D667B9185C4330A4732249FA663BB7168F901F05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Living Legends 5: Beasts of Bremen / Живые легенды 5: Бременс
 ```bash
 magnet:?xt=urn:btih:09C045CE73B8DFD5E897CD8C05DF4DC4558E6E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Unseen Fears: Body Thief / Невидимые страхи: Свежеват
 ```bash
 magnet:?xt=urn:btih:FF0FF3A5DE7D1F29F772B6E67ABCB5444414E18D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Banner Saga Collection (2014-2016) [Ru/Multi] (2.36.15/2.39.02) SteamRip Let
 ```bash
 magnet:?xt=urn:btih:2C7D03C5B90528E023304C4D0DBDE9084B06BDC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MahJong Suite - это высококачественная коллекция �
 ```bash
 magnet:?xt=urn:btih:A97E5067C47EAB332B410087B49A4BF4EBD730B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Memoranda (2017) [En] (1.1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:2FA6DC61202A2BF6311EDDF92652EF1D70E268DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

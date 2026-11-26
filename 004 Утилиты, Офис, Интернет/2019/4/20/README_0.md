@@ -19,8 +19,7 @@ FileRestorePlus — программа для восстановления уд�
 ```bash
 magnet:?xt=urn:btih:D8841359760C932BD0C6C7BAE0D775947E1CF46D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Webcam Surveyor 3.7.3 Build 1091 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1C28F6CB7ECB287797738BEA6E43DB060DC1C977
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

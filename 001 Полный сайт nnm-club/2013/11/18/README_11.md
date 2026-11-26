@@ -23,8 +23,7 @@ POLY.тех (выпуск 5) (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:F3B85F9E4C1FBCE53B12BBB9F98ADD286053F7FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ POLY.тех (выпуск 6) (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:9F823A850FEFD8264A8B6FD7112CA6C68E5B31AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C8E92CE53C95D3A00633D46B5C75EA34B6CEC2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Bernard Reeb - Aima Dust (2008) [MP3|320 кб/с]<New age, Meditative>
 ```bash
 magnet:?xt=urn:btih:981F738936509ED613AF78C45EB2BB1A624BF2D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +147,7 @@ The Mallett Brothers Band - Land (2013) [MP3|320 кб/с]<Rock, Americana>
 ```bash
 magnet:?xt=urn:btih:D924A0042452B6239F99244BF5DD0425E3408AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE9F49E33582E5C6EE3CE5D98CB8B9CC8DAF5029
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ VA - Cotton Club (1990) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:CBEDB7C3AC648ADB0DC9CFD862D400821E690CC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Delirium X Tremens - Belo Dunum, Echoes From The Past (2011) [FLAC|Lossless]<Dol
 ```bash
 magnet:?xt=urn:btih:DBC17F02CB67596367323DBBFAE46F2C01B44DB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +292,7 @@ B бpoшюpе, oбpaщеннoй к шиpoкoмy кpyry читaтелей, paсс
 ```bash
 magnet:?xt=urn:btih:11221F400894A226BACE575ADB0DFEB95C5BC2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ VA - Jazz Club (1996) [APE|Lossless]<Early Jazz, Swing, Vocal>
 ```bash
 magnet:?xt=urn:btih:C6629AFE1183BD780FADFD4B0182BEC62DE2FBDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1124604E0D72C6435ED738A8593596FE058A518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +385,7 @@ Kells - Anachromie (2012) [FLAC|Lossless|WEB-DL]<Alt.Metal | Modern Metal | Goth
 ```bash
 magnet:?xt=urn:btih:A2549E0A222274C540116EE86C178D04B43AFE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +419,7 @@ VA - 2013's Best Trance Tunes (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:43DF7008FAABAFC99D2003B69797298A3DAB9E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +449,7 @@ Sliver:
 ```bash
 magnet:?xt=urn:btih:55F0C50FB9CD5CA1560B988F0A0A0BCC142102E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +483,7 @@ Dhamika - Digital Human (2013) [MP3|320 кб/с]<Ambient, Psychill, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0FC38701B84A318DE2F5665B5E2E8A7C5A6B5ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +517,7 @@ DJ Цветкоff - Танцпол @ Record Club # 244 (16-11-2013) (2013) [MP3|
 ```bash
 magnet:?xt=urn:btih:03544C0169ADDB42FD8FC636E3822155FCD71FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +551,7 @@ Tear Out The Heart - Violence (2013) [FLAC|Lossless]<Metalcore | Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:DF20A1145217940572726863947BE8EE0181DEC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +578,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A4D5B50E2EF5AFD573002E86CD3183863539390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1044D88B66FBBFD7D2DAB4321CAC356B12A371A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +642,7 @@ Kids Party Up! - On The Edge Of... (2013) [MP3|320 кб/с]<post-hardcore/electr
 ```bash
 magnet:?xt=urn:btih:99930BAAE07BB66E914005E39B27BF30A6DCA397
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +667,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A138C99762D0CC91B0BC9D6F06EBB529BA1E602D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +694,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:50ECC088925B1FB76DFFBE8F816D55C13D8CC0B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -743,8 +720,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC1CEA9A471C4081782D11502D3F24761970F9EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C23143AFEBB7F80192A49AFD596CEAAADACEE198
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -807,8 +782,7 @@ Kylesa - Ultraviolet (2013) [FLAC|Lossless]<Psychedelic Sludge/Stoner/Post-Hardc
 ```bash
 magnet:?xt=urn:btih:52E7814C9B334DF1B2166D070DD2760F3BF3B1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Esquire – это высочайшее качество текстов, бле�
 ```bash
 magnet:?xt=urn:btih:72122D4FA19FAE46D5AEA4B6E45C1F623A515A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

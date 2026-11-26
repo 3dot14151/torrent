@@ -27,8 +27,7 @@ Reefer Decree - Out Of Bounds (2012) [MP3|~250 кб/с (V0)]<Psychedelic / Progr
 ```bash
 magnet:?xt=urn:btih:1618D860D8F99B4918FCBD335781BA03873CDF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D042B9B22FB233E1550B39FDFA31746C616FBE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ LEGO Marvel's Avengers / LEGO Marvel Мстители (2016) [Ru/Multi] (1.0.0.2
 ```bash
 magnet:?xt=urn:btih:E3BA7267944B693A35CDF55DFB4F2ED0EE962954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

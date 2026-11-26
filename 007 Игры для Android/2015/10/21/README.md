@@ -19,8 +19,7 @@ Terraria - это знаменитая игра из жанра "песочни�
 ```bash
 magnet:?xt=urn:btih:A70226F0A9478E1BDFE5110EC4B8A04252AAF677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

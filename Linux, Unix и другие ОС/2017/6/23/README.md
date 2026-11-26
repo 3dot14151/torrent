@@ -19,8 +19,7 @@ OpenMandriva Lx 3.02 PLASMA [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:F33DD7A28DE71CB0866772883FDBC7C6B2242E90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

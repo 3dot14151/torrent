@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:3D9CB54CCFC0B0D557EC421B7C4EEC31834EB8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8825D182781E210A9AD0F339985E830404E53D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Swift известен как язык разработки приложений
 ```bash
 magnet:?xt=urn:btih:44D0DE2AD284F54069099AEE2E1EFB2F74E2F0EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

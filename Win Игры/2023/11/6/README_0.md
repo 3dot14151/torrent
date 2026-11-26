@@ -19,8 +19,7 @@ Enypnion Redreamed представляет собой удивительное 
 ```bash
 magnet:?xt=urn:btih:7D8D0AE71D6B40D9A47BAD41A3942FC2C82D3057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Little Goody Two Shoes - увлекательное приключение в ж
 ```bash
 magnet:?xt=urn:btih:F1AD5C794B31C1DEF6D14799FCFB4F7206B9CCB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Everyone Must Die: A Western Standoff - захватывающая игра-го
 ```bash
 magnet:?xt=urn:btih:167933BE0B1B88021ACB0675B947488B2900BA27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune
 ```bash
 magnet:?xt=urn:btih:82490826DDD17BCD5176CF40E319DD03179202F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:755EC97D09D62E6D3978C750E058E1E5A6F2F91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ One eleven — это мрачный детектив о двенадцати о
 ```bash
 magnet:?xt=urn:btih:87770F086BFA4E48084FC872E526CEE5E6FD9FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Fading Afternoon (2023) [Ru/Multi] (20231009) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B6B52C579A23DB565FD583A0A3611DFCA8DF4758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Parking Tycoon: Business Simulator - стратегия, погружающая 
 ```bash
 magnet:?xt=urn:btih:836540FCE4123DF51CC1568AD77D25D72C570801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ HighFleet (2021) [Ru/En] (1.163d) License GOG
 ```bash
 magnet:?xt=urn:btih:CDED8906676B0DA53E777883AD08C6DA9367091A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Moviehouse позволяет игрокам стать владельцами �
 ```bash
 magnet:?xt=urn:btih:179C44CF502C24A3A4134233A6CEAE869E25D82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Tiny Thor предлагает 16-битную графику и геймпле�
 ```bash
 magnet:?xt=urn:btih:CE75C793CAAA31E3AC31A9DC3870A20D2375ED49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

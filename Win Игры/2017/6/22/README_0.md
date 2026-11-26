@@ -19,8 +19,7 @@ Surface 11: Strings of Fate / Внешние пределы 11: Линии су�
 ```bash
 magnet:?xt=urn:btih:0F8EF04394760505C09A259746AC844D2EAFF1D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reservoir Dogs: Bloody Days - это аркадный top-down шутер по �
 ```bash
 magnet:?xt=urn:btih:B05381692B9F7C802080E007943FD2D639C5FC60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Get Even - это шутер от первого лица, от создател
 ```bash
 magnet:?xt=urn:btih:E6761080F4F30B8D86620FBF5479ECCF8F617528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

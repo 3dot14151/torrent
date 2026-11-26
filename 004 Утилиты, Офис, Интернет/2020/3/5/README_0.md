@@ -19,8 +19,7 @@ CoolUtils PDF Splitter - программа, с помощью которой м
 ```bash
 magnet:?xt=urn:btih:1C6FC831630BBD25446E70BB094AB08BBABD3B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

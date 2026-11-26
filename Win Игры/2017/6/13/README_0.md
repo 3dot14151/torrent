@@ -19,8 +19,7 @@ Danse Macabre 6: Ominous Obsession / Танец смерти 6: Наважден
 ```bash
 magnet:?xt=urn:btih:7CA40F07BE73BCB51734D6CF4EB9DB26A3700A48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shrouded Tales 3: The Shadow Menace / Таинственные сказки 3: �
 ```bash
 magnet:?xt=urn:btih:1E9B2536BBBAF26B2A5AE8339A4D13D618795199
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ League of Light 5: Edge of Justice / Лига Света 5: Пик правос�
 ```bash
 magnet:?xt=urn:btih:A1DEF63A56D0573FD3F614E34329505AB00D3D20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ ABZÛ — это красочное приключение в подводном
 ```bash
 magnet:?xt=urn:btih:A8726139F97B99B2108209424C419B11A37B7759
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ World of One (2017) [Ru/Multi] (1.1.3 B4) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:3B1B5B578EE5B86F2DA71D76485EE0321862EBC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Party Hard (2015) [Ru/Multi] (1.4.030.r/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:BCCB7C74A75C517EB92F64549824C1BBE95DDB3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Epistory - Typing Chronicles (2015) [Ru/Multi] (1.3.5) License GOG
 ```bash
 magnet:?xt=urn:btih:A4DD93836A146E9DDA956DF67C912E6C54B4F742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

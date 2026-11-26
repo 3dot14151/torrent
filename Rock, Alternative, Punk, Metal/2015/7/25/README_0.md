@@ -22,8 +22,7 @@ Radio Birds - Contemporary American Slang (2015) [MP3|320 кб/с]<Southern Rock
 ```bash
 magnet:?xt=urn:btih:F17DB5B9F35C657F4130CD50B325E55331FEDCFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Roger Waters - Amused To Death (1992) Remastered /2015/ [MP3|320 кб/с]<Progre
 ```bash
 magnet:?xt=urn:btih:ABF4D0C5E113BC3A6981C1A72ADD32700B8D5576
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Roger Waters - Amused To Death (1992) /Remastered 2015/ [FLAC|tracks+.cue]<Progr
 ```bash
 magnet:?xt=urn:btih:87002C32A3568AC3F63950133A670129B2DC8220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

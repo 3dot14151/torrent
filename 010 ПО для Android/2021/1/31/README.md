@@ -19,8 +19,7 @@ Point Blur) – простое в использовании приложени�
 ```bash
 magnet:?xt=urn:btih:755EB28BB84734E9611A37ECAE7B9DFD9626D1AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B1F20C7B4612B7D32A81F89CDB8CCA03234888E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ LibriVox AudioBooks v2.7.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B87F50D397C234A847F36D7FA0578CBEB8634886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ PortraitAI - Аватар эпохи Ренессанса v1.3.11 [En]
 ```bash
 magnet:?xt=urn:btih:F2E83A00EC1B77A671E59AB0569CC76B4AB9F3CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

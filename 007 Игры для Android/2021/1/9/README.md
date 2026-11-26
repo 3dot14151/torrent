@@ -19,8 +19,7 @@ Levelhead - вы несете ответственность за подгото
 ```bash
 magnet:?xt=urn:btih:F5A253D0DB0A993D837D85C3420A6B3ED6D7E7A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vengeance RPG – одиночная ролевая игра на андроид
 ```bash
 magnet:?xt=urn:btih:F45250CA518CB6B5301851D4E13018280F374BB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

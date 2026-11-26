@@ -27,8 +27,7 @@ Hardwell - On Air 133 (2013) [MP3|320 кб/с]<Tech House/Progressive/Electro>
 ```bash
 magnet:?xt=urn:btih:6227955DE2DB44C611C8426BF3F051FE5A0BD08F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:19A0D02843B808CD5E0E9A6618318529475A99EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CDCA9B70FB6C3A359F344D6EBDDCD6E33B26F653
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Eguana - Eguanica (2013) [MP3|320 кб/с]<Ambient, Chillout, Downtempo, Psychil
 ```bash
 magnet:?xt=urn:btih:26F586D7C6193A82B69AEEF57B3A77A55EC81F92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
 ```bash
 magnet:?xt=urn:btih:FA0B189738625619CEA2B2BED8140927CB903B35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24C7A74F85167743BFCFBC9C310B887F53392088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Rolling Wheels – единственный на сегодняшний день
 ```bash
 magnet:?xt=urn:btih:49F28BC51D17C444796BF9578375F919BE0BE923
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7168F9040B7E6CFF29D937D1792C7809275209F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Armin Van Buuren - A State of Trance 631 (2013-09-19) [MP3|320 кб/с]<Trance, 
 ```bash
 magnet:?xt=urn:btih:E6BE65A955A08B1DE9BB8D21D4E512BC46701AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ Chicago - The Heart Of Chicago (1997) [FLAC|Lossless]<Jazz Rock, Fasion>
 ```bash
 magnet:?xt=urn:btih:F907A671C1E68B6AE34C14C18602CB3647B0F086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:FE4744B63B76D7F2BF9E1BDA5DC5642636A86C77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ Yuka & Chronoship - Dino Rocket Oxygen (2013) [FLAC|Lossless]<Neo-Prog, Progress
 ```bash
 magnet:?xt=urn:btih:A846ACC8FA5C2CBC472BD5BF991DDD4F6F9581E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +370,7 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:843541F9B5652B4A324650F012CE355AD0E21C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +395,7 @@ Comedy Баттл. Без границ. Выпуск №18  / Комеди Кл�
 ```bash
 magnet:?xt=urn:btih:5B00FFF4765E09CD2FC760BE41FAD80216638B11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +420,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06F43079273FBB6515B4EBA1460D4F195CC60991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +449,7 @@ John Digweed - Live from Cafe Mambo Ibiza (2013) [MP3|320 кб/с]<House, Progre
 ```bash
 magnet:?xt=urn:btih:D8599809322A8CFBA8ED3E3A55DCA39DC5265924
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20D9A60967870C06E7B85A5763554B1195B5D6FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +503,7 @@ A.I.(d) - 3 Albums (2010 - 2012) [MP3|319 - 320 кб/с]<Progressive Metal/Exper
 ```bash
 magnet:?xt=urn:btih:9280FECC0EBC049789F353DD0994FB0D1A4C24FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +528,7 @@ Process Lasso Pro - позволяет вручную или автоматич�
 ```bash
 magnet:?xt=urn:btih:873A6261FCE5D4396DCA3A0972389CCE5792445E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +562,7 @@ VA - TranceMix USA 2 (Mixed By Blank & Jones) (2001) [FLAC|Lossless]<Trance, Tec
 ```bash
 magnet:?xt=urn:btih:BBF539E45339C32B15C27314B902983E670A9656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +591,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C9FFBE42C4A14CA69950673992777B5E85657625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EFD61B0DD7D03A8864FD41070758118D40A2DCCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ XS-1 - будущий гиперзвуковой самолет, способн�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +675,7 @@ Manic Street Preachers - Rewind The Film (2013) [MP3|320 кб/с]<Alternative, R
 ```bash
 magnet:?xt=urn:btih:2C35EC01AD41DB2C1EBF0027C792A665E61DA888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +700,7 @@ Wallpapers - Обои для рабочего стола - разное 2 (19.09
 ```bash
 magnet:?xt=urn:btih:AB080AF9BCAA33D70AA2E0409549C323B24EA357
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -751,8 +726,7 @@ John Holt - 40 Greatest Hits (2008) 2CD [MP3|192 кб/с]<Reggae>
 ```bash
 magnet:?xt=urn:btih:48B112DC8F928543A753D2C79D063F8E98C94382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

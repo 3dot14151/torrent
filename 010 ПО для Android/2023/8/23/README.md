@@ -19,8 +19,7 @@ One Shield Plus — это надежный и безопасный VPN-серв
 ```bash
 magnet:?xt=urn:btih:20CA0C2CCAEF4EAFAED40769D18802A7455F831D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Moon Reader - проект-читалка которая весьма извес
 ```bash
 magnet:?xt=urn:btih:A105D9AB45A7348C1B8D5607B0E74EEB35087C8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35E3649FE3B370C31962B3EE020D6AE38F584B87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ QR & Barcode Scanner Pro - очередное приложение для счи
 ```bash
 magnet:?xt=urn:btih:D801E9EC402693107E1572FE33D2117E2E80C41C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cleaner for WhatsApp — это мощный инструмент для очи�
 ```bash
 magnet:?xt=urn:btih:D3B379B27D6413AF2184B915EB352879360C611F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.02.00/dlc) Licens
 ```bash
 magnet:?xt=urn:btih:63EEBFA90E4540BF2DAB522F722BBF5F9128499D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gray Dawn (2018) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:03EAD1775A77C436FC3FE6C27707D6D933C8E3E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sunset Overdrive (2018) [Ru/En] (1.0/u2) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:58FD08F22817FF13CA928AA7947338FBAB547BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shiness The Lightning Kingdom (2017) [Ru/En] (1.02) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:2051FFC854F65EFBE11C588C9180FF450F3EE98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Resident Evil 0 HD Remaster / Biohazard Zero (2016) [Ru/En] (1.0/dlc) Repack xat
 ```bash
 magnet:?xt=urn:btih:5493AFE913AA594B2384ADF012F3A5014AA58CD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

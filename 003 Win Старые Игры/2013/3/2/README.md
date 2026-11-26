@@ -19,8 +19,7 @@ Aliens Versus Predator Classic 2000 включает в себя три один
 ```bash
 magnet:?xt=urn:btih:4C8A6C5C62E63B5E5E2469177A8271412EF53100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Aliens Versus Predator Classic 2000 включает в себя три один
 ```bash
 magnet:?xt=urn:btih:635ED9B5D192848B5E1FF9241939DBC9434B6C22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ VA - Privilege Ibiza (Mixed By Cosmic Gate & Hardwell) (2009) [ALAC|Tracks]<Tran
 ```bash
 magnet:?xt=urn:btih:E95C3010E3ACD10A8399F2F7632A68EEFE76F78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Run-Command представляет собой небольшую портат�
 ```bash
 magnet:?xt=urn:btih:61E94DF9F13508E975EE5D0560307FB741D98CFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Swedish House Mafia - Greyhound - Extended Video Remix HD 720pЖанр: Progress
 ```bash
 magnet:?xt=urn:btih:A55CE22175A6929448B29270F99B1ECC9E7541AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5CBB862C7F437D567C22A59C11D8B2C8582106CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Room Arranger - программа для разработки дизайна п
 ```bash
 magnet:?xt=urn:btih:975665A8D039493043BF6357D62CAA0ED02A5836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFE9966E36DB8A2F4722975B975751269A090394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Dirty Vegas - Days Go By (2003) HDTVRip 720p
 ```bash
 magnet:?xt=urn:btih:4BFFED4D76685702FB42142578BBC33A6E602C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E91743FD8A7B1D91BE1EC5F411103DC3F585B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Pictures from various artists (20.08.13)Разрешение файлов: 308х
 ```bash
 magnet:?xt=urn:btih:B7DA83DC515FDA39C9D7FCEA57DC9452847226F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +266,7 @@ The Blue Effect (Modry Efekt / M. Efekt) - 1969-1989 (9CD boxset / remastered) (
 ```bash
 magnet:?xt=urn:btih:604B52398581B0B819D5E6FD8B93510306EA50B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Wallpapers - Best Mixed Wallpapers Pack (20.08.13) [JPEG]
 ```bash
 magnet:?xt=urn:btih:B5CB84FEE9E96DE1BAC116D505E8872700E448F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Ubiquitous Player - универсальный медиакомбайн, вкл�
 ```bash
 magnet:?xt=urn:btih:2FAD31C8308CF1556B81AC9B9DF616306B0731C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D47250C8B43F3891FDADC02F45417B6711D6F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04BD7BC67168BEADD975A9F54C01782FA5D7872A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Light Alloy – мультимедийный плеер для ОС Windows. П�
 ```bash
 magnet:?xt=urn:btih:C4C17BE6CFCC73E139551188E82C85092D242849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ VA - Создай движение. Заводная летняя попса (20
 ```bash
 magnet:?xt=urn:btih:1910B3DE47E6325F5359B2E5B62B9A7545EA3D3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAAA37A988E528463889E8BD09F3C2C3E7A38D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ VA - A Tribute To ABBA (2001) 2003 Irond [FLAC|Lossless]<Metal>
 ```bash
 magnet:?xt=urn:btih:F8312FF457C05ACEF689E3C7BDB30F8C0E89CEFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:281876092BA062DBDD80CAC46959594F1EA569DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCDB235167FF68510326317EAB6653B36400D596
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D0276B8E64ABF79C3B5A841D53D9988F2F56915
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +614,7 @@ Eric Clapton - Gold Blues & Ballads 1968-1998 (1998) [APE|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:8C9E63DC87A3DC34EF7F12B74020B626336C37A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +639,7 @@ Kaspersky TDSSKiller - это утилита для обнаружения и у
 ```bash
 magnet:?xt=urn:btih:6A5A88F93671EDCE2210658F0B783DD1E5A73AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ Flash Player Pro -продвинутый плеер, со множеством �
 ```bash
 magnet:?xt=urn:btih:FF7F0182FF41FA85CE621AFC40155B5501E5FB4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ mocha Projects: Real-world Solutions with Imagineer Systems mocha - Повысь
 ```bash
 magnet:?xt=urn:btih:7BD4819CAE204843B263E2BE931FBE0201F59C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2CFB17D400DAB1570B8A3DDE20D4CAF305CF766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

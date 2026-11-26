@@ -21,8 +21,7 @@ Feed Me - Psychedelic Journey (2014) EP [MP3|320 кб/с]<ElectroHouse>
 ```bash
 magnet:?xt=urn:btih:B700ACE48C99A6D24B4EA11A58C9C1051CA56559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Multi Commander - бесплатный, удобный, мощный, функц
 ```bash
 magnet:?xt=urn:btih:C331BB2668DB785FAB32D1273D3017D1B9A8B96A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Carolina - In Love With You (The Hit Collection) (1996) [MP3|320 кб/с]<Pop, D
 ```bash
 magnet:?xt=urn:btih:A3CD2F135BCE98D3178B454DD64F63D4E81CB96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ DrawOutX  - Программа для создания многостранич�
 ```bash
 magnet:?xt=urn:btih:46DECCC8C0C4843E0B657D29FF9D8B33C60DDA72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Birdeatsbaby - The Bullet Within (2014) [MP3|320 кб/с]<Alternative, Indie>
 ```bash
 magnet:?xt=urn:btih:E67F0C5B1F1955F5E1433E1444F8623FDD6DE8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ Askira - Currents (2013) EP [MP3|320 кб/с]<Melodic Metalcore>
 ```bash
 magnet:?xt=urn:btih:18D1B730F17C0D936113BDE6712E8B2A8D56083F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ VA - Berlin - Monday Morning Hours #1 (2014) [MP3|320 кб/с]<Minimal,Tech Hous
 ```bash
 magnet:?xt=urn:btih:C3701F472DED9C9420EE114A231E89F6849CBBC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1F68F3A158DDE9679522569A6DBAAEC7E5D0105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -276,8 +268,7 @@ Alexandre Desplat - Операция «Арго» / Argo (2012) [AAC|WEB-DL|256 
 ```bash
 magnet:?xt=urn:btih:E16D976AC12C60E889961100A051B73980EA9A4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +302,7 @@ Blackhawk - Brothers Of The Southland (Special Edition) (2014) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:42D74E208A7D0E3C9BD5C716AF9ED77FBE702ED0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DA8CDA90E1B20179588E31087898FB8A9F0C0E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8281E9771AD3D8C237D41330BC0914EFAE1D7CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +377,7 @@ Garmin: Taiwan Topo 2014.10 NT (28 марта 2014) <Ch>
 ```bash
 magnet:?xt=urn:btih:E7FE60CD66E3AC23D9464D5C6A0ACDECED9186A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +411,7 @@ Stephen Bennett - River (2001) [MP3|320 кб/с]<Instrumental, Acoustic guitar>
 ```bash
 magnet:?xt=urn:btih:9C5B18F39BF1A62BD0360A13FDE935ED3728FC00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A635E29B2D96E9DA01627294CF57C3999937038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +470,7 @@ Seasick Steve - Walkin' Man: The Best of Seasick Steve (2011) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:E0B02B983C114AE1431A17322C95372081BB46BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +499,7 @@ Fox Stevenson - Throwdown (2014) EP [MP3|320 кб/с]<Breaks, Trap, Drumstep, Dr
 ```bash
 magnet:?xt=urn:btih:16C27F95CC0E7042AED88847127DFEB732BFEC95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +524,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65404C58DE07E6F79A68B67DC23D0FEB0354A29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +558,7 @@ Islander - Violence & Destruction (2014) [FLAC|Lossless]<Alt.Metal | Progressive
 ```bash
 magnet:?xt=urn:btih:77FBEC27CE0D844CCFEAEEA84575AC3A95BF0DC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +583,7 @@ System Explorer - диспетчер задач для Windows. Функцион
 ```bash
 magnet:?xt=urn:btih:5FBFDE5951913732B66FFE0330D2E520F2DAD1AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ Blondy - Dulce si amar (2004) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:B8B70FD94881AEF4A5ACDEBA5BF4E93496FDDD8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +651,7 @@ David Wingo - Мад / Mud (2013) [AAC|WEB-DL|256 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:C7D31E2460B09C8EA39D350CE1C3F0FA4A63DF1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ Sharpe Investigations: Death on the Seine (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:46679B3F64E84B310833CDBAD4A148165F61C3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99172258C4085C1AB09813A0A973C5F5DAD7862A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +726,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ Christopher Young - Пастырь / Priest (2011) [AAC|WEB-DL|256 кб/с]<Scor
 ```bash
 magnet:?xt=urn:btih:809BF16966B8E1CB4FD085F2BCCD5D803A3C2DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

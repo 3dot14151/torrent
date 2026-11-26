@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:784BE6C9702317CD62711242861EFE3E2CACAE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stickman: рисовать мультики, создать мультик. Ка
 ```bash
 magnet:?xt=urn:btih:84E7636589CD8CCE9C28A3D088608D1733A951A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ PdfX - это новое приложение, которое позволяет
 ```bash
 magnet:?xt=urn:btih:63F15BFEB7F22D8CBABA3C0C2D1B05A433EC15DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PdfX - это новое приложение, которое позволяет
 ```bash
 magnet:?xt=urn:btih:5B09C69897F7B7744843CA6288D15ECEDC4ECDB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:BABD7B5E795429AC345D4D63C6066E1EAA0CF75D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cx Проводник - это мощное приложение с интуит
 ```bash
 magnet:?xt=urn:btih:D07AB65B28CD3E9786F9A87E579B0C2B6BE248A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Filmic Pro - функциональное приложения для веден
 ```bash
 magnet:?xt=urn:btih:ED803EA7BECD1FED9371CEB1E2A381489AB0199F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Rutube v29.1.3 Mod by vadj [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6323D82265101C72A1E07F5779C07D088632FCA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12437FA10913D5477FE1CA9DD2660979E734B080
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14B9B01DBE326CBF1CB9EB87DF66CB006AA830F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

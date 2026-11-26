@@ -22,8 +22,7 @@ Rival Sons — американская блюз-рок-группа из Лон
 ```bash
 magnet:?xt=urn:btih:08B2C03D66B08AC7471D628BDD3EB9CE8853A29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Tony Allen - My Own Peculiar Way(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:51C7AD077D030FDB0A110D824B28F733C4F2FACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:ADBF21C8E64AABD42A4EB24979FA12F5C233A65B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Microsoft Test Manager позволяет управлять тестовыми 
 ```bash
 magnet:?xt=urn:btih:67B908BA88692C4263E6AF9F4134A84AC8497DA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

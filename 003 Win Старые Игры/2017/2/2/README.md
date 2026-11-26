@@ -19,8 +19,7 @@ Death to Spies / Смерть шпионам (2007) [Ru/En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3113C899E70D4432926A3ADFF5A593BAD4A9E575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 ```bash
 magnet:?xt=urn:btih:6BE43847DC74525A8021294C6CEF9E163980B13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

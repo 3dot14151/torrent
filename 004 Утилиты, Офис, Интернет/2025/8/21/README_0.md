@@ -19,8 +19,7 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:D862B7E0405BB021E58FAC5F3655A105F2FCCA08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Foxit PDF Editor Pro (ранее носил название Foxit PhantomPDF Bu
 ```bash
 magnet:?xt=urn:btih:DF05348868AEDD2AE1EC274F0AFC5E5A2A978D12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ditto Clipboard Manager 3.25.76 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3B3AEE3601AABEBFF5B823D49D8D90B17EF3D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ ShareX - программа для снятия снимков и видеоза
 ```bash
 magnet:?xt=urn:btih:CABFD85964F38297B7119EE24136C6BE599A388E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

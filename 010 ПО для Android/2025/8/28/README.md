@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:34E773D5CC7566C0E544622B3E7E5DF805F1D45F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cat Scanner / Сканер породы кошек v22.2.15-G Mod by PieMods [Ru
 ```bash
 magnet:?xt=urn:btih:2AA2F09C5C031E2C05C282EE40E83EB2987ED511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dog Scanner: Породы собак v22.2.15-G Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B9DCF2227E76D5E786B3A199389F212F71A79F73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

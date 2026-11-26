@@ -19,8 +19,7 @@ Princess Of Tavern / Принцесса таверн (2016) [Ru] (1.0.3) Unoffic
 ```bash
 magnet:?xt=urn:btih:72EE1E769858266C5AF3FFD53A3077156EB0C7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Guest – мрачное приключение, полное страшны
 ```bash
 magnet:?xt=urn:btih:5B44F4696FFD6B43296F961336643AC2FFF6976C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Legends 9: Faulty Creatures / Легенды о призраках 9: Н
 ```bash
 magnet:?xt=urn:btih:47C1BB4774EB33123A1B25EE5909717C6F4525AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Contract with the Devil / Контракт с Дьяволом (2015) [Ru] (1.0)
 ```bash
 magnet:?xt=urn:btih:B7FBE94A53C7E30DF0FB2FA8831A919129B75AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dreamfall Chapters (2016) [ui/sub/res] (5.2) Unofficial Well-DING! Team & ZoG Fo
 ```bash
 magnet:?xt=urn:btih:1050CD2D286BD6FEB50645EC336F39DA63C45482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Cabela's Big Game Hunter Pro Hunts – очередная часть в сери
 ```bash
 magnet:?xt=urn:btih:3E969E15BE04B4402D005C94447A73C8EFE093C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
 ```bash
 magnet:?xt=urn:btih:FC3CCC3A7C5C672D3D67EF66571ABD1905465D5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Exoplanet: First Contact — это Action RPG от третьего лица в
 ```bash
 magnet:?xt=urn:btih:3BD7041EA60F01AFC8D5D8E4E8F174A6910BFF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Forest — это необычный survival horror с открытым м�
 ```bash
 magnet:?xt=urn:btih:561BEDB93B8D76DD44CF8CB5715AD08448D5E7CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Inside - это новая приключенческая хоррор игра 
 ```bash
 magnet:?xt=urn:btih:F46B4569DB0FE6F53553FFF9767170EE09C47E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

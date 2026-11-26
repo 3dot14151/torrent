@@ -19,8 +19,7 @@ Frontline Zed (2019) [Ru/Multi] (1.00) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3D4B97ED5D3D0DA491009181FD9939CF374B2B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Wild Eight (2019) [Ru/Multi] (1.0.12) Repack Other s
 ```bash
 magnet:?xt=urn:btih:683CADFFEC8747C15172BB5447CB96FFED7BECA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

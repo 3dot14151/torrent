@@ -27,8 +27,7 @@ October Falls - The Plague Of A Coming Age (2013) [MP3|320 кб/с]<Dak Metal / 
 ```bash
 magnet:?xt=urn:btih:0EB177F322612A585F9839A8D01DB1649ADF8CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Lost Area - From The Ashes (2013) [MP3|320 кб/с]<Gothic Rock, Synth Gothic>
 ```bash
 magnet:?xt=urn:btih:0139A5E58D1358D487AC7DD3DA28DA38C5ED9F3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Gemini Syndrome - Lux (2013) [FLAC|Lossless]<Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:E8015B5585E6E7F2EC0DB5EC7B2404CF7E996606
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ ColdSpell - Infinite Stargaze (2009) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C02E7679BA06A9DC5DD8E8D680557CDA52996065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ New side project forЖанр: Alternative MetalПродолжительност�
 ```bash
 magnet:?xt=urn:btih:AD20E0445441CBEF3810D54224A72449853765C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ ColdSpell - Frozen Paradise (2013) [MP3|320 кб/с]<Melodic Hard Rock, Heavy Me
 ```bash
 magnet:?xt=urn:btih:CBE65B3A6AAD8C72BA368D38DB15AE27529A5522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ ZZ Top - El Loco (1981) SHM-CD /2013, Warner Music/ [FLAC|Lossless]<Blues Rock, 
 ```bash
 magnet:?xt=urn:btih:294FF0C572C666C664B7E5BCD4B310AD4D8B74EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ ZZ Top - Tres Hombres (1973) SHM-CD /2013, Warner Music/ [FLAC|Lossless]<Blues R
 ```bash
 magnet:?xt=urn:btih:A9B139E20E3AF6FDBA7558C5F68361EF8846AC03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ ZZ Top - Deguello (1979) SHM-CD /2013, Warner Music/ [FLAC|Lossless]<Blues Rock,
 ```bash
 magnet:?xt=urn:btih:02EAC03B675FFB3E78FB10D9288916179206CEDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Alter Bridge - Fortress (2013) [MP3|320 кб/с]<Post Grunge / Alt. Metal>
 ```bash
 magnet:?xt=urn:btih:BF058EE87E34758B6DAEB5D39878619EA93FE2BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

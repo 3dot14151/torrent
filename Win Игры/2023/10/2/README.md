@@ -19,8 +19,7 @@ ZED – это история стареющего художника, поте�
 ```bash
 magnet:?xt=urn:btih:B2C56D0B623DD3C9EB69927ADD47762A8C7AA78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

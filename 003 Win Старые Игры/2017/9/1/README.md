@@ -19,8 +19,7 @@ Wizards and Warriors (2000) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:825D4D3FAA4A3BDE5F86FC6BDF06C7FDFCB14255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

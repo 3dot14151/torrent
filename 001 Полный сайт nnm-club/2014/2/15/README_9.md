@@ -28,8 +28,7 @@ Svarttjern - Ultimatum Necrophilia (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:4E2921153B5CECF7F4A7D189FBFCF70DF5AFA87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Glenmore - Materialized (1993) Japan [APE|Lossless]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:FE2768B25409DB7CBB88BCC22074FAC75A5F29A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Essential Guide: Trance Vol.04 (2014) [MP3|320 кб/с]<Trance, Uplifting T
 ```bash
 magnet:?xt=urn:btih:24F65A442699DED55A04C2C2E18191F1213BAC8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Claudio Filippini Trio - Facing North (2013) [FLAC|Lossless]<Bop, Modern, Contem
 ```bash
 magnet:?xt=urn:btih:216EA36192F8A3A8FB2D7F8BFE8AA48DF6798D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - Lounge Chillout Cafe (2014) [MP3|320 кб/с]<Lounge, Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:7449F72092227F873DB4E5C53F3E9837BE36161C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ HyperSnap - это инструмент для захвата изображен
 ```bash
 magnet:?xt=urn:btih:CA5C7D7C56DEA2297DC73182872B38E0925F9472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Erroll Garner - Columbia Jazz (2003) [FLAC|Lossless]<Bop, Swing>
 ```bash
 magnet:?xt=urn:btih:E9F32CA6536C1D34C3A6182DA58E2490986345E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ Stam1na - SLK (2014) [FLAC|Lossless]<Progressive/Thrash/Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:44E7A02ABAAFD536091B8A84014F377AFB089F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B17EEC9F20FBD978A12F363C05D31A3FC74E2C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ James Byrd's Atlantis Rising - Atlantis Rising (1991) Japan [APE|Lossless]<Hard 
 ```bash
 magnet:?xt=urn:btih:BB9A24BDA38EE2A7A180A25AE8963BFA1DBEC663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ Anita Wardell - Noted (2006) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:3208407EB8F37C37DC577DD69DCEABDA495EAB36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +378,7 @@ Thy Serpent - 4 Альбома (1996 - 2000) [MP3|320 кб/с]<Dark / Melodic Bl
 ```bash
 magnet:?xt=urn:btih:58A6428719901D1D8B8174D1F7D03CA5F284C146
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +403,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BCFE945B65C85F1975C9D9CA5E70E4A54D39BA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +437,7 @@ Funky Sister - Russian: Funk Grooves (2014) [MP3|320 кб/с]<Electronic, Lounge
 ```bash
 magnet:?xt=urn:btih:F08624361F6568702EA12662B8888A005326A425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +462,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:368ADDF09900A0C4B31F095188B6731401EBB81A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +487,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4946B08AFBF0BB4D4A53B9C448667528D8195E7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E73AC9DB42BB68F14C59E71A8E8F2AAD178414EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +546,7 @@ BulletBoys - Freakshow (1991) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AFE6EFFA6F60F7E11CF6F9D149141C6C44E6D93C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CD7A0D2318F10373AAD91F28E45DF18AE677CAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +596,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DF069E757E05239856855B08D05BCD8DA6D511C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +622,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91CA3E1DEB879453BD099FD8E7D19775BB87AB44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E089C6C1480EF5DA4F5AA238EB036DD5082D537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ Daniel Lesden - Chronicles Of The Universe (2014) [MP3|320 кб/с]<Progressive 
 ```bash
 magnet:?xt=urn:btih:B99CF382F9CAE1006661D6F3D9FB89CEAF11393C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97A7F0EFAF351CE3299AAFB8EE1D0BCE098B3598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +729,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25A564B2704E8AACACC4D0E74C836CBFC7FE1456
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +754,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CBCDA3704F51A812D9F49CE5C2249894464CB7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

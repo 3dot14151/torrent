@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:172D5BE3DF47A4733BAF6C07DE4437828CA949EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VoIP (Voice over Internet Protocol) или IP-телефония - это тех
 ```bash
 magnet:?xt=urn:btih:8C3BD64179ECCCB41ED01B23C05A910ED90B60C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Tokyo Blade - Hoist the Colours High (2026) [FLAC|Lossless|WEB-DL|tracks] <NWOBH
 ```bash
 magnet:?xt=urn:btih:192DFA09405A7C425689D8100BD26455781B11F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tokyo Blade - Hoist The Colours High (2026) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0B06997A70B11E2A0ECEFA61853508D4785AA9DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Disc 1 - Remaster:
 ```bash
 magnet:?xt=urn:btih:85DCB363E10CEF5D8F57A4B1467A9AB3031DD50B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Led Zeppelin - Led Zeppelin (1969) Reissue, Remastered, 1994, Atlantic [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:3DDDB0DBFBF158002054C45BDC04E97CB6C6D23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ironflame - Worlds to Conquer (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:ADE020948B8D69664170B58EB064E8E1022DEF8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

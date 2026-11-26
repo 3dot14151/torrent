@@ -21,8 +21,7 @@ Fontographer - домашняя студия для создания шрифт�
 ```bash
 magnet:?xt=urn:btih:20ADA746C3390BFC594E7C494F45B103AA127D80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Photography Week - Еженедельник. Самый продаваемый �
 ```bash
 magnet:?xt=urn:btih:2B40C0334D5C4EDB294735E5756DE94978DC0457
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C09B286C7E0030E3F1B76A1A917767E9BBACACC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

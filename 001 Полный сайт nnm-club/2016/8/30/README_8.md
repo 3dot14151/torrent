@@ -18,8 +18,7 @@ Fallout Shelter дает возможность каждому желающем�
 ```bash
 magnet:?xt=urn:btih:4909FF71CAF0B74BF1882EA4FEFEB7FE3A972745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

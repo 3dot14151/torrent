@@ -21,8 +21,7 @@ Plants vs. Zombies 8.1.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D6D002B3BFDF47EE0879590DDCE5C94BBCDCAE93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

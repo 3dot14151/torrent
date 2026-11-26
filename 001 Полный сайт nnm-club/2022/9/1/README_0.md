@@ -19,8 +19,7 @@ Cisdem Duplicate Finder - поиск дубликатов и их удалени
 ```bash
 magnet:?xt=urn:btih:15997E445A5FC42D66D2892987D7C2C353AC0FBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ MWeb поддерживает расширенный синтаксис Github: 
 ```bash
 magnet:?xt=urn:btih:6C369769A02F608643DD65A4996B17E1204ADBD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F225B3332B501B5329FBC2EFCD8A6765C39EAE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Concerto Moon - Tears Of Messiah (2017) Japanese Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:890CF6F059E8AC535F584EDAAE98401C9B079A5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Aeternam - Heir of the Rising Sun (2022) [MP3|320 Kbps] <Symphonic Melodic Death
 ```bash
 magnet:?xt=urn:btih:4253BAEBA14ABC1F3FDC5683165A1DE64CE99010
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Machine Head - ØF KINGDØM AND CRØWN & Bonus Tracks (2022) [FLAC 2.0|48/24|WEB
 ```bash
 magnet:?xt=urn:btih:B9B7C3125FC26D9098C17F51DDD2181A17AA4155
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ Jettison - размонтирование внешних дисков перед
 ```bash
 magnet:?xt=urn:btih:887AEA8B743E4710ED3773DE8D8EA5617E67B626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Teen Suicide - honeybee table at the butterfly feast (2022) [FLAC 2.0|48/24|WEB-
 ```bash
 magnet:?xt=urn:btih:F5A5B36E06763CC7093FC9106AA00FB26327ECF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Vivaldi 5.4.2753.45 + Автономная версия (standalone) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EC399C418416B2E8E65DDA7CDF9C578E69A6C8E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Nightwish - Oceanborn (1998) Remaster, 2015, Spinefarm Records [OGG Vorbis|485 K
 ```bash
 magnet:?xt=urn:btih:72F5CAC289D269312830A67D4BA1F71D027544C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Theine 3.4.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8E8CB37231E07382334A0E28B8EB1C8B6768D366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ Ghost Wish - Dimension (2022) [MP3|320 Kbps] <Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:E9C7D783A33AFD3D9F5EF48930E38031380A7432
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ VA - Future Nu Disco Classics Vol. 10 (2022) CD, Compilation [MP3|320 Kbps] <Nu 
 ```bash
 magnet:?xt=urn:btih:9AFE1CE86B7FE41CCF87753319A1099D4EC050A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +365,7 @@ Opera 90.0.4480.80 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:EA868A418FB1F1DBD91919E23F51E06F5E10F555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ Mad Max - Wings Of Time (2022) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F23294E2910B9AB2E42F554E5C912C1786725A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,8 +421,7 @@ Eyeless In Gaza - Skeletal Framework (2022) 5CD, The Cherry Red Recordings 1981-
 ```bash
 magnet:?xt=urn:btih:B55D63C6C6E1820448D33C4A9AD0556E52943293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Baby Sleep Sound Machine 1.1.104 [Ru]
 ```bash
 magnet:?xt=urn:btih:7F2A0640CB75ACACF0D7BD4AB018D06E98D569B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F869B6B74BD7FB38FC7B42971D820FCCF29C25E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +496,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A60FCD3FB83828A812772F9355E34913D0100B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,8 +524,7 @@ Bryce Janey - Blue Moon Rising (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:78E8A5BF887F7C9F8D1B34388305DEB44E1183A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +551,7 @@ Bootstrap Studio обладает (   Читать дальше...   )Тип и
 ```bash
 magnet:?xt=urn:btih:51C3851CA91AC9103BD1AEEEEAD8F47D9E627A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ VA - Vip Clubbing Dance House (2022) [MP3|320 Kbps] <House, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:BB73F6EF22221E28AA8B5516A54833CCFAB6764F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34A261A986B9A3A5CBED673D51A53B02B1C532B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ V.A. - Chilled Jazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Voc
 ```bash
 magnet:?xt=urn:btih:433CCEB361EC0826AA33C7727FA989FBBEDE364A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ Bootstrap Studio - мощная программа для создания кр�
 ```bash
 magnet:?xt=urn:btih:B6E94DDECB602D65CEE6CF1BF8ED1E8EFAE2AF43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ AudKit Spotify Music Converter for Mac 2.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:2E8624F279C9B0933E6934569C64406DDC0B845F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

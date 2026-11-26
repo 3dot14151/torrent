@@ -18,8 +18,7 @@ VA - Новое Движение Песни (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:B40651EAA3EF86659190E0D8D30CB194809DE002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Tracks:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E443AF3BADF2AFE7E94F086C70200D3DE6DA3ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A25C63C956BE7AB6460C6EE328771092EE89788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ ID#: YSE2CD250
 ```bash
 magnet:?xt=urn:btih:0AF925DDF9D467A58EA1441F0EB6552F45E46688
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Blind Stare - Symphony of Delusions (2005) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:2ACC26E0EA81BA0D7B5FA3DB857B38B5B6D272A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EC8FCDF03D11D43A0976FA99A1E7616F60A4D37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BA8810FC1B68E117967BDC60C128A3092F8FF9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ EASY Burning 2.03a [Multi]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Counterstrike - Violent Neon Robots (2011) [MP3|320 kbps]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:F031486CE81E911834BABAA224B27D4629A35AD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ Tiesto - Tiesto's Club Life 213 (01.05.2011) [MP3|192 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:92E5AD0F323050A2FB2CE8CFB0B826FA8B46246D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - Private Lounge: The Place To Be (30.04.2011) [MP3|320 kbps]<Lounge, Downtem
 ```bash
 magnet:?xt=urn:btih:68A96AA0ACEED91ECCEFC12D142B67B0439B6D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Toolroom Records - Selector Series 4 (Mixed by Rene Amesz) (2011) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:BA00B83FF9591615D20CB1BA3591183BFEF21860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ VA - Ostfunk Spring Compilation (2011) [MP3|320 kbps]<Tech House, Minimal Techno
 ```bash
 magnet:?xt=urn:btih:3EE842F8B5C5B761AEC6D49921F2CD294B248129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ VA - Реальна только музыка (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:E5E46E6961939B596C00466EB6D9D13C0F70F3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BFE6BBF16390A4F8FB04F8C2C8CD8820BB646F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ The Secret of Hildegards / Тайна Семьи Хилдегард (P) [En] 201
 ```bash
 magnet:?xt=urn:btih:C42EA6CFBDA0F45652C96FD05C0F267D7BC2E26A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ VA - XXXL Хитовый сезон 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:0E5CCDD9F8B95B058BDA509F7BAF5C1F20C2288F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ VA - Лучшая клубная сотня-14 (2011) [MP3|192-320 kbps]<Dance, 
 ```bash
 magnet:?xt=urn:btih:77CB74240C32A461275250DA930B6798758F7BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A593C803757A23C44D655DFB6A4E14CBC4E0D290
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +618,7 @@ BT - These Humble Machines (Unmixed) (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:3FFE0D21A02006E36215B9B67E76FF9BD700A43D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ VA - 1000% Dream dance vol.3 (2003) [MP3|320 kbps]<House>
 ```bash
 magnet:?xt=urn:btih:9BE3CEFA1D031C1F7E1D1748163D2D044EFB0CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB659252241766D0488542CAE6C8A0773782F956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ VA - Chill Out Sensual Seduction (2011) [MP3|256 kbps]<Lounge, Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:89506776077CF03FB887E16F1F7DACE47D5F1B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

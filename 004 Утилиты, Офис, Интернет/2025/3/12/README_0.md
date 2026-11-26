@@ -20,8 +20,7 @@ CoolUtils Total PDF Printer - будет полезен для печати не
 ```bash
 magnet:?xt=urn:btih:F9087FFC0D4216A109949EC322768945EC7340A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ WizFile простая в использовании программа для �
 ```bash
 magnet:?xt=urn:btih:27B6BC219A1A0799A7A49B7E281FE7ADA5282E04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

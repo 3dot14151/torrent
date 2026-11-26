@@ -26,8 +26,7 @@ Lenny Kravitz - Black And White America (2011) [MP3|320 kbps]<Rock, Funk Rock>
 ```bash
 magnet:?xt=urn:btih:AE810D318BBA0C9F455AC8E9DC46FF081FF5F7EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ U.D.O. - Leatherhead (EP) (2011) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ CD 101. John Zacherley - Happy Halloween 	  (02:26)
 ```bash
 magnet:?xt=urn:btih:7BD0808DC3B66481E3636D2E0230E5A778034857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Tokio - 3 Альбома (2004-2009) [MP3|320 kbps]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

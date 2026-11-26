@@ -20,8 +20,7 @@ Neal Ford | Art of Java Web Development (2003) [PDF, FB2, DJVU, TXT, EPUB] [En]
 ```bash
 magnet:?xt=urn:btih:8D7EFB53EEAF1CD2F5814AF3244619689B8595CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:611B7E8A7883532C1820023F242E44B671568FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

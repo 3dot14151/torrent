@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:80495A8C8162EDA4BC41FBF54479249ED9836C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ AutoCAD 2017 – это больше, чем проектирование. Пр�
 ```bash
 magnet:?xt=urn:btih:DB8395B3A5764B14727AACD2A8CFA0B7BF94474C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFC1485E3C3139497E1429590C322ADB07043B07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

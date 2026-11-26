@@ -27,8 +27,7 @@
 ```bash
 magnet:?xt=urn:btih:841CF44611E02D41EB59C46605B7B53C81FCB801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Nodutgang:Sjalvmord - All Colours Of Rainbow (2014) [MP3|320 кб/с]<Depressive
 ```bash
 magnet:?xt=urn:btih:1E49FE7FB49746AECB52FB5D1973BA87FE489EDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ The Godz - The Godz (2010) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C1989E64AC55C629B6492FADC115FCBC6AE16829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Phil Manzanera - Guitarissimo (1986) [MP3|320 кб/с]<Art Rock, Prog Rock, Expe
 ```bash
 magnet:?xt=urn:btih:69F269266AAF8203F07229164C5A42FC782BC6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Primordial - Where Greater Men Have Fallen (2014) [FLAC|Lossless]<Celtic Folk/Bl
 ```bash
 magnet:?xt=urn:btih:D53EA2242DEE3EB3F7D7A4CA66FA74253B93E11D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4F9B76744C5DCCE259C736E5C0355DDEF1B21E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Yumi - Epicureans (2014) [MP3|320 кб/с]<Screamo, Emoviolence, Hardcore>
 ```bash
 magnet:?xt=urn:btih:57FBD129FECB49CEE8730ED352BD5A5EDD8A2DE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +254,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7889C223A2649CB72DFA47F0129C6D52B7318882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Queen - A Kind of Magic (Alternative Extended Version) (2014) 2CD [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:B5F0611297D76E89C92397BED534B8902CED821B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

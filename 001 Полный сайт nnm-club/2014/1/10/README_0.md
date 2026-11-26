@@ -25,8 +25,7 @@
 ```bash
 magnet:?xt=urn:btih:D429661BD3C8D3DB989BC7ED11E0F8915CFC7280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Northcape - Exploration And Ascent (2013) [FLAC|Lossless]<Ambient, IDM, Downtemp
 ```bash
 magnet:?xt=urn:btih:D00040B95B00AB3C5352E329FAFFFFFF4D636ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ VA - Max Graham Presents Cycles Vol. 4 (2013)2CD [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:694B2DDD700A07AB31736D8CA08961EE4879F25D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F295060DA5BEDCB40F921E85CE7CE4F58FCB7430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Pulsar & Thaihanu - Uplifting Minds (2013) [MP3|320 кб/с]<Psychedelic / Progr
 ```bash
 magnet:?xt=urn:btih:C558FE403A360766FC48ECDCA09B10C8D20D494C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52B055BBD4AA644BB86656F17EF358E1B3611973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +210,7 @@ Northcape - Exploration And Ascent Remixed (2013) [FLAC|Lossless|WEB-DL]<Leftfie
 ```bash
 magnet:?xt=urn:btih:368575CF99D0D1187201C236860C44339993A107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +237,7 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:3347376F2E7CA697284BF41903725AD6842DD7EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +271,7 @@ VA - NYE 2014: Winter Warm Up Part 2 (2013) [MP3|320 кб/с]<Dance, Pop, Club>
 ```bash
 magnet:?xt=urn:btih:FE84DC59081FC09CD65F8C81E4B75004744C62FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +305,7 @@ Maerzfeld - Fremdkorper  (2014) [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:7EC3EE41BFE88F67E463880C857BF4EAF0A09345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13AD081C18B0BA92FF033CB1811850B92393D344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ VA - Lounge At The Seashore 3 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:7AB138B829101B14D3EC6A5A7E1839F2102183A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ VA - Energy 2013 (2013) [MP3|320 кб/с]<Industrial, Electronic>
 ```bash
 magnet:?xt=urn:btih:258B377A7A25FFD317238CCB820E54189B7978E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:4B96FEDD55664D80CCB91E80344640DF5F9BB8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +486,7 @@ VA - Best-of-ka Зимний Хит сезона (2014) [MP3|192-320 кб/с]<П
 ```bash
 magnet:?xt=urn:btih:B6F19BBE890F619ECAD86264C64A9FB27C9A8C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ Electric Light Orchestra - Discovery (1979) Limited Edition /1993, Epic, Jet Rec
 ```bash
 magnet:?xt=urn:btih:79591ABC828EC6EDF741ED2FF6CFD609813EBBAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +539,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:73052F376005DB15359C0C595C16423D91D22AA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,8 +573,7 @@ Armin van Buuren - A State of Trance 647 (2014-01-09)  [MP3|320 кб/с (image+.
 ```bash
 magnet:?xt=urn:btih:C5ABF48B9754E0507FC0FB81710641E2F5655166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +607,7 @@ Apples From Mars - Apple Number One (2013) [MP3|256 кб/с]<New Age, Chillout, 
 ```bash
 magnet:?xt=urn:btih:7E2B12B96DC95ED9066C21C53534649D2E211F01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +633,7 @@ Soulver предназначен для «быстрой математики» 
 ```bash
 magnet:?xt=urn:btih:D7D2C194BDBAFF08D5BBDE4A55AA93863404097A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AF3E2FBB2030FFCF4462D01686B11D1CE6D73DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +691,7 @@ Electric Light Orchestra - Discovery (1979) Reissue /1986, Jet Records/ [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:87905B59F3936F1B8C9C43CDB399F8D7F69B8F07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F5250A5766D7A6F883BA5ED7715BC68CEB7E0D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +742,7 @@ Discovery: Через червоточину с Морганом Фримено�
 ```bash
 magnet:?xt=urn:btih:64C612D65EE458D2613A582FD7037C70C27E5895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -794,8 +769,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1415096101FA7C1F7F21482CF5DCF91E2AFF3ED7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

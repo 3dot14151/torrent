@@ -19,8 +19,7 @@ Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E85654724AF11350360203DE203B5CB6229F44CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

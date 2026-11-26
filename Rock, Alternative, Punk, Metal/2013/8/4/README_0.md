@@ -28,8 +28,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:4E51A47AA4B456FA40FB3D5F5E9E8A53B4B3C0D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Newsted - Heavy Metal Music (2013) Limited Edition [FLAC|Lossless]<Heavy / Thras
 ```bash
 magnet:?xt=urn:btih:872D3D2837EF28866BB1AAAB965BF45357D92076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Lingua Mortis Orchestra feat. Rage - Lmo (2013) [FLAC|Lossless]<Symphonic Power 
 ```bash
 magnet:?xt=urn:btih:244315348A7446D509A275AEF7E1FEBD9F85FC20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20D38313D4BC0444E2F0D17162B691E64CB2806D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

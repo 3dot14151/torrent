@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:E40EA34150E1F7EE2F045D435299C702A56B894D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Bobina Presents Russia Goes Clubbing Radio Top 10 May (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:10496BA4542AF1392624F1254EB482027FBBD88B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Waves (Balancing Chillout Tunes) (2014) [MP3|320 кб/с] <Chillout, Downte
 ```bash
 magnet:?xt=urn:btih:13561A4DAB63AEDFA9CBCEA0C8E9F73F505EAFF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7235B47BC76602CE1453C8A23836DFFE285DD1C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ VA - Nightflight Dubai: 22 Premium Downbeat & Lounge Trax (2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:96C8F315E2DAD04824ECDA1C259B04FB09BB6030
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E336EC05565F9DA9A3A8854C51452438DDAC32D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0CDEDB15E218177FF99BA99ADB3EAD48AF79CF27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6158A37D56B5D58BC2BCCC8A252BA806B1D81C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Mud Rock (1974)
 ```bash
 magnet:?xt=urn:btih:70B7D2A6E0B6C726FAEC09FFB3DA1AC0A42F6327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA17B2CA84949404177B66B1C8416B31E58522D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:712D1F23ACDE6256B8591C9C0AC6611A1E201E07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Image Tuner -  простая в использовании утилита дл�
 ```bash
 magnet:?xt=urn:btih:15D973EBCC39CBF3ADF389C8B8B48F2FA49845E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:580D076D930A846ACC4BFE0D585587CEEEC7040E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +383,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC35ABBCF811FE95601C8370731C419E8D81ACEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:384209F42C3AEB60BA9623B048A10A3423B7E491
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +434,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2203266E31D417DDCB662F19D930935DF69B4046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FF65D18B9FCDED2E13431E0503554FB4AA75EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Jesse Royal - In Comes The Small Axe (2013) [MP3|320 кб/с]<Reggae>
 ```bash
 magnet:?xt=urn:btih:7BBE55529B17ACA086C304677ECE0193C5632EA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ VA - Insight (Compiled by Alex Vilator) (2014) [FLAC|Lossless|WEB-DL]<IDM, Downt
 ```bash
 magnet:?xt=urn:btih:524FD26BE695E4CE7D4A21787C923A5893E7CF9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AAC3CAAC6DF6D87DEE34CF488FF4E9C8873E317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE6F7116473849A3113FAFAA2C2B7745645DDB4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ VA - Music For Everyone - Deep House & Nu Disco Vol.1 (2014) [MP3|320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:941EE221FFE38458E46EE285BBB8EF5DFEF95E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ Comedy Баттл. Суперсезон. Выпуск №10  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:8440F6110B90C7EBDEC0C29C3963C623DD92D35C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ Equilibrium - Erdentempel (2014) [MP3|320 кб/с]<Epic Metal, Folk Metal, Vikin
 ```bash
 magnet:?xt=urn:btih:627E2591FE7B5E91B81DA5B9C37C16486FF7AF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DCF21A3B1DE1CFA2516C4D3E6C44D5B8CA66790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +724,7 @@ Garlic Kings - 2 Альбома (2011-2014) [MP3|320 кб/с]<Punk Rock, Folk>
 ```bash
 magnet:?xt=urn:btih:77A7F87D2C4E8C55BE4BA37B742B0EFC3B8B9B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Overlord 2 (2009) [Ru] (1.0) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:D0238067D10F13C6391936A1AA7EB785882400F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

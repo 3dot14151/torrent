@@ -19,8 +19,7 @@ Demon Hunter: Chronicles From Beyond Untold Story (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E79459714BBB7A7A8B6E000A2693D6BAA2810E01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Sherlock Holmes Collection (2002-2012) [Ru/En] (1.0) SteamRip R.G. Игро�
 ```bash
 magnet:?xt=urn:btih:0268F4C082E2DF8FE3FFC950E5D4DF892168333E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Carrier Command: Gaea Mission (2013) [Ru/Multi] (1.6.0011) SteamRip R.G. Игр�
 ```bash
 magnet:?xt=urn:btih:F191EE54F943E45ADC669981F24EA06096CBCF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Wargame: AirLand Battle (2013) [Ru/Multi] (14.01.07.2100001589 update42/dlc) Rep
 ```bash
 magnet:?xt=urn:btih:BAD06DE51AB1692F553F05A8D116606DE838B107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ PayDay 2 – кооперативный шутер на четырех игро�
 ```bash
 magnet:?xt=urn:btih:DD878B60E421FCC533CEE7BDCBE2759DE1B2EB1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

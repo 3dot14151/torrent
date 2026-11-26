@@ -19,8 +19,7 @@ DBeaver является бесплатной программой, с откр�
 ```bash
 magnet:?xt=urn:btih:2F6ABF1747BCDD92564AF5F0770C15A421FDFC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

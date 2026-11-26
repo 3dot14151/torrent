@@ -22,8 +22,7 @@ Krüger - Врага бей в рога (2018) [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:7485CEE9C21D3DC4DE79A8949EEDF2BB5B14A69E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

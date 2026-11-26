@@ -22,8 +22,7 @@ Bill Fisher - Mass Hypnosis And The Dark Triad (2020) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:913265C0A51CF6924D3112074A777486A7734FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Angelus Apatrida - Angelus Apatrida (2021) [FLAC|Lossless|image + .cue] <Thrash 
 ```bash
 magnet:?xt=urn:btih:C459DB35423981DC6E7F320FAE0A49F101D73689
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Dead Daisies - Holy Ground (2021) [FLAC 2.0|24/96|tracks + .cue|WEB-DL] <Har
 ```bash
 magnet:?xt=urn:btih:C47E9B2843F878AF89ADE2F8E575B34501268BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Wig Wam - Never Say Die (2021) [FLAC 2.0|44.1/24|tracks + .cue|WEB-DL] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:4CDF838C2B3BD9BA3D627D63AE06AFDF6D6E59BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Therion - Leviathan (2021) Japan [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:D9EB71F65A24CBC719CD394D21A57017961481E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ CD - 1 -  The Many Faces Of Def Leppard:
 ```bash
 magnet:?xt=urn:btih:4E15C6B3A7665AED6EDE25297A98C2C3A5437A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Phantom Elite - Titanium (2021) [FLAC 2.0|24/44.1|tracks + .cue|WEB-DL] <Symphon
 ```bash
 magnet:?xt=urn:btih:B43865F9A6DA52350DAF8F8F04783991D0B24838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ CD - 1 - London To Vegas - Hysteria At The O2:
 ```bash
 magnet:?xt=urn:btih:21315EB461F3BF2763988120C8C9DA8EB20E834F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Accept - Too Mean To Die (2021) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B7E7D014B691DF9540948BEE1E74803D0F48765B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Mickey Magnum - Ride With The Devil (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, 
 ```bash
 magnet:?xt=urn:btih:7110A0F89922F0275139BC52D39763968B93CA21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Damn Devils - The Damn Devils (2021) [MP3|320 Kbps] <Modern Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D967C22902C78D921E9034EBF25F415138441096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Spooky Tooth — британская рок-группа, образованн�
 ```bash
 magnet:?xt=urn:btih:EE14EA7966D3C0EC4CEE5E446744476D2F2ADA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Adam Sherman - Triangle Sky (2021) [MP3|320 Kbps] <Classic Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:43C769FD4409D6AADEC4617F9366744563BFD280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Tribulation - Where The Gloom Becomes Sound (2021) Japanese Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:EBA03AB461C91D6FCFD57494FA341E0480CA73C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

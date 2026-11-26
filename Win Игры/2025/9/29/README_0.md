@@ -18,8 +18,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0.7.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6BEEDADE65D494A82B922B8740F61957A6D664A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ The Lightkeeper - психологический хоррор, действие 
 ```bash
 magnet:?xt=urn:btih:447D747E9118AEBEBCDB026FC138E34D5D435A2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.4.0/dlc) License GOG [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:08FAB06B7C85141105CFC0BAA66534520C55A82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1DBDB2DFE65B7B6E119247511CF32763896F0400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Missing Hearts: Crimson Cruise / Пропавшие Сердца: Багровы
 ```bash
 magnet:?xt=urn:btih:D73C4356FFA6DEDFAB102C32AABE1D6BA4E9F5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) License GOG
 ```bash
 magnet:?xt=urn:btih:3A868B2EFC8CDBDA41D4AEC29269CD404C96CF10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Deep Rock Galactic: Survivor - это одиночный сурвайвор-ла
 ```bash
 magnet:?xt=urn:btih:0EE262BE08872C6F48AEF0AB1692C6EBD249BE97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ Deep Rock Galactic: Survivor - это одиночный сурвайвор-ла
 ```bash
 magnet:?xt=urn:btih:01E37148891F970C7DE1595153566DD0F04183C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +218,7 @@ Mirage: Ignis Fatuus - изометрическая головоломка с э
 ```bash
 magnet:?xt=urn:btih:9BCF4F06B5D44E0CE989EF6C8D75B425093207E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +243,7 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3A1D3C6B2EDB694318DEEC4ECE11F45F4091D293
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

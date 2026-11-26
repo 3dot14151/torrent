@@ -19,8 +19,7 @@ Ektomorf - Heretic (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Groove Metal, T
 ```bash
 magnet:?xt=urn:btih:DF9DBC221E6E7453D17A0B3F8B3220212AF79C7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Human Fortress - Stronghold (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Epic P
 ```bash
 magnet:?xt=urn:btih:0BCEC27C801A837999FD910A01CDEFF1A0D94236
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) 50th Anniversary
 ```bash
 magnet:?xt=urn:btih:508CE64078D09A2B47603A02B104599575E691FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Miles Kane - Sunlight In The Shadows (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:A66AD5062AB35F7BE50CCA9875F3F75FECEFF093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Adept - Blood Covenant (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, 
 ```bash
 magnet:?xt=urn:btih:2FE18C62CD211005A94AA68C3246FD4A80D78E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Dayseeker - Creature In The Black Night (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:03852BEA8DAEEC3EA538FCD66B48491BB498A41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3DFEBD3786C194635A59444B3C542F49D23CAB56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Erdling - Mana (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Neue Deut
 ```bash
 magnet:?xt=urn:btih:CCE3FB00D58540F10704B21DE8337E136C66B3C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Soulfly - Chama (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F6B44983C448051FCB3FD2D36A35D1E0AB55DDB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

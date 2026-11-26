@@ -19,8 +19,7 @@ Hauma - это визуальный роман в стиле нуар с дед�
 ```bash
 magnet:?xt=urn:btih:EACADD59162534E0BD6507FC38A7C446CDF6CB97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Steel Rain - уникальная инди-игра, которая в равн�
 ```bash
 magnet:?xt=urn:btih:735C87CC5ABDB9B970B2D365118B8BBA48F0CDE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:031C03E68C982F5733D00AD3CEBD4B2C4F769342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cataclismo вводит игроков в роль лидера, ответст�
 ```bash
 magnet:?xt=urn:btih:7D4723DFFA27F834FD4DC81BACD9399492290B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9129) License GOG
 ```bash
 magnet:?xt=urn:btih:210D6340F253199EBCFFF963208D628971A47476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Transport Fever 2 – классический симулятор транспо
 ```bash
 magnet:?xt=urn:btih:F039D84C029D02D9A633EFE630A94B249E489A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Sin Slayers возвращается на Steam спустя некоторое 
 ```bash
 magnet:?xt=urn:btih:36F10546C87F27B755F6C65A978E1AE9E6F4B887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ TRAIL OUT (2022) [Ru/Multi] (3.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D29B72F21A69A3FB12B5DCE56190E85065AE2E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Deck of Souls (2024) [Multi] (1.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:B0FCE6834F16194B2E08AC041CFD3E9B2C0861B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Stray Blade (2023) [Ru/Multi] (1.8/dlc) Repack Let'sРlay [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:0AA10E0E57C7712F68D596F8A9947526C46FB6CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.28.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9AB74394C9C67D08D1A04F36C5A9947B626A7A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.11/dlc) Repack Let'sРlay [C
 ```bash
 magnet:?xt=urn:btih:512FE30E5B0BDBABD5F9A987710315EF80B543E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Caribbean Legend - пиратская РПГ с открытым миром по
 ```bash
 magnet:?xt=urn:btih:C0FB7F430DC518E093A06562A03A752B780B4C2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Machinika Museum (2021) [Ru/Multi] (1.24050201) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FA9C310774AF6A82602E9316E3FC548EAAEC789D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Recycling Center Simulator - это бизнес-симулятор с видо�
 ```bash
 magnet:?xt=urn:btih:042FAE14F3CD724B84E6C1FF274274B4221995C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

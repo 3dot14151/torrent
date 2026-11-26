@@ -20,8 +20,7 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:D93C877E2559422F6DBCAD7A49F6390417AA8503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Revo Uninstaller Pro 5.3.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DE79543948C8AB92FAD4C76F0E79EAEA00B10418
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Jean-Michel Jarre - Equinoxe (1978/2011) [WavPack 2.0|32/384|image + .cue|Vinyl-
 ```bash
 magnet:?xt=urn:btih:9F3D940C1100E465E7EA26199BF87072CE37A1C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

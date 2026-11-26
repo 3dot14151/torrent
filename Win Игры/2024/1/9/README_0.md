@@ -19,8 +19,7 @@ Everspace 2 (2021) [Ru/Multi] (1.1.36529) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FB359ABC3EB41CC426C22CA45C1CB999C3225B3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Maze of Realities 3: Ride in the Sky / Лабиринт реальностей 3
 ```bash
 magnet:?xt=urn:btih:267F4E6E8B245D4B3C64FF4724898083B5B4EE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Twistingo 4: Hummingbird Haven (2023) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:495DD105ABC65AEF6BDDCED3D53AA032C9A1823E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

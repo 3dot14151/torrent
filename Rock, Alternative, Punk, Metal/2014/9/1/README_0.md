@@ -27,8 +27,7 @@ Power of Omens - Rooms Of Anguish (2003) [WavPack|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:7563EFB4A97A1DCCBB64DE808A18ED3FE5386DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Bryan Vickers Band - Draw The Line (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:62C7814A48F450ADB1EA3C84DD6C43930C7F3448
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ The Debauchery Blood God - Blood Is My Trademark (2014) 2CD Digipack Ltd. Editio
 ```bash
 magnet:?xt=urn:btih:7623AD01943CF4985E83A2099AC476880DC45C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Solstafir - Otta (2014) [MP3|320 кб/с]<Post-Metal, Progressive Metal, Post-Ro
 ```bash
 magnet:?xt=urn:btih:DD48E06DB256D7ADB60D99D3B46A71628F46BE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ This Patch Of Sky - 4 альбома (2011-2014) [MP3|320 кб/с]<Post Rock, In
 ```bash
 magnet:?xt=urn:btih:5CCEF26D89863E998AE7977CE16EBEA26D04A519
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Machinae Supremacy - Phantom Shadow (2014) [MP3|320 кб/с]<Power Metal, SID-Me
 ```bash
 magnet:?xt=urn:btih:9FA8A0D15951F1F4162C75C3199FBA19505AC603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Culpa Innata / Презумпция виновности [Ru] (RePack) 2007 | RG
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Obscure 2 / Obscure: The Aftermath [Ru] (RePack) 2007 l R.G. Repacker's
 ```bash
 magnet:?xt=urn:btih:39E7F67538B724858017B9CA117376B3DCC4AA04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ The Immortal [En] (RePack) 1991 | Pilotus
 ```bash
 magnet:?xt=urn:btih:62A56C78A7E470E18885046CF336A72F3303D823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Ishar Антология [En] (RePack) 1992-1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:430F2757850ED8987EAFFB181154C5F19EE94426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA50A38AD1B8C8798CBEEAE3813B95DA8E3E5E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

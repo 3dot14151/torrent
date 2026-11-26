@@ -19,8 +19,7 @@ Enchanted Stories: Mystic Woods (2025) [Multi] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:CB381FE43B27238558616ED18105E38E7729B412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p.27.1/dlc) Repack Le
 ```bash
 magnet:?xt=urn:btih:BD94B95916FFFD6878683FABF97FDFCBD7341DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shadowgate 2 (II) (2025) [Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:4D09EF799F3537E2C779433C2D0C3BE28F0A12E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Worldless - это загадочный и сюрреалистичный дву
 ```bash
 magnet:?xt=urn:btih:255991C54752E4084B5ACD0E61B10417FBF177F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Colt Canyon (2020) [Ru/Multi] (1.3.1.3-8) License GOG
 ```bash
 magnet:?xt=urn:btih:DE105CB2C2C1979A8E109F6567AC3DFCBC34DD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Wartales - ролевое приключение в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:4E4BB2E354BD1428FB3915DB09CAD0EC3B2079AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Liar's Bar (2024) [Ru/Multi] (0.93) Repack Pioneer [Early Access Online Only]
 ```bash
 magnet:?xt=urn:btih:98A8FAABFE1D4B50DD42BB01E2E4DC5AC7CD1E16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Blade Abyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5D7903147FABB6F6495FEBC0A4D553CD55C91786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack DjDI [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:A68D985BAB90A66C4BCA9687756EA3BCC222F2B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (0311/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3E9719CDD9AFAE7FCB7A6B0869747A6303C7B817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:5FF85535FE66183CE601028E2AB185729B72EE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Asylum (2025) [Ru/Multi] (Build 17711849) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8C50C6692D89C3BAA552485BE0F7E638A1846204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

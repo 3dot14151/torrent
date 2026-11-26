@@ -19,8 +19,7 @@ Star Wars Outlaws (2024) [Ru/Multi] (1.7/dlc) Repack FitGirl [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:0322D7BE75BE289B76CDCDBCF3E297BA0FBB83FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [Ru/Multi] (1.15/dlc) Scene voices38
 ```bash
 magnet:?xt=urn:btih:89D37A4DC72953078FAF4180C99761C917977F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Prince of Persia: The Lost Crown - это динамичный приключе�
 ```bash
 magnet:?xt=urn:btih:62FABE4A2412C1040F09AC6661745CFE1AB8D5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mortal Kombat 1 (2023) [Ru/Multi] (Build 17941244/dlc) Scene voices38
 ```bash
 magnet:?xt=urn:btih:509AAC4922D91C2903891D59B4973DFC7F31A066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Blood of Dawnwalker (2026) [Multi] (1.0.2) License GOG [Patches]
 ```bash
 magnet:?xt=urn:btih:76DA2D8312F450107F93C4D4EA56C2C7D66BF3E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Blood of Dawnwalker (2026) [Multi] (1.0.2/dlc) License GOG [Eclipse Edition]
 ```bash
 magnet:?xt=urn:btih:917FE258ACED94AF921D4272074B00FB040F9DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The Blood of Dawnwalker (2026) [Ru] (03.09.2026) Unofficial [Русификат�
 ```bash
 magnet:?xt=urn:btih:8BFBF737EB622317BC4012EC0E9ED3D8112A4D34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

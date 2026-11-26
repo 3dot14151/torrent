@@ -19,8 +19,7 @@ Eragon [Ru] (L) 2006
 ```bash
 magnet:?xt=urn:btih:2B649E48A7D2DD8ED6BBAE4FB41766A74014F46A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

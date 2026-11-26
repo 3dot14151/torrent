@@ -19,8 +19,7 @@ Manjaro Linux - быстрая, дружественная операционн�
 ```bash
 magnet:?xt=urn:btih:EC9EBB4C70DC6260AA9FA05CE79A64E9E6ABFB9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

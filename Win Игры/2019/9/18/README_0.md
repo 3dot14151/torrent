@@ -19,8 +19,7 @@ Heaven's Vault (2019) [En] (1.11) License GOG
 ```bash
 magnet:?xt=urn:btih:2E73D0EEEEEECA2A00B47F059D2BB1A7037C1645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Devil's Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:0981EF42B9152FBCF38DC0D24C0ECFEBE4EE0D58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

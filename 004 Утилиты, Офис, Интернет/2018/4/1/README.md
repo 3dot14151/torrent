@@ -19,8 +19,7 @@ Debut Video Capture - программа для захвата видео с э�
 ```bash
 magnet:?xt=urn:btih:F23E0F797E6AA4AFBCCC98543EADB15946329A77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

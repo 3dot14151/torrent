@@ -18,8 +18,7 @@ AntVentor - это первая короткая глава из серии иг
 ```bash
 magnet:?xt=urn:btih:F47F09179C7483B845F00DA23A5EE68B6E9E5658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:022F53AA9CAAF50FD1FAFB353962E74379DF74C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Chaos;Child | Хаос; Дитя [2017, TV, 12 ep + 1 sp + 2 OVA] BDRip 1080p 10
 ```bash
 magnet:?xt=urn:btih:735E953F4CEA7FC2A5BF60BD3C5D4866A9586C4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Chaos;Head | Хаос; Вершина [2008, TV, 13 ep] BDRip 1080p 10-bit raw+r
 ```bash
 magnet:?xt=urn:btih:4242177E6E98451E59A83E3B95DD761D88A6449B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Gekijouban Steins;Gate: Fuka Ryouiki no Deja vu | Врата Штейна: Зо�
 ```bash
 magnet:?xt=urn:btih:4B6CF9419BB16AB9CCEF09156954977FEFEB2391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Steins;Gate 0 | Врата Штейна 0 [2018, TV, 23 ep+1 sp] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:6F01CF067BA96551DD26B5289CFF8C0AC04C53CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1612F78ACA8A3CCC2A1C401AFFDDCD559346BCF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF2E4202990A577B4FF01B903CAC827EAD8D14C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ MInstAll v.25.02.2020 By Andreyonohov & Leha342 [Ru]
 ```bash
 magnet:?xt=urn:btih:A1F13FCAEF598D655AC94703B9D4107C4DC32F36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:829B8FF6107604964EFBF4653D5E9B9071C1D59B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

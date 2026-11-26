@@ -28,8 +28,7 @@ The Big Pink - Future This (2012) [MP3|320 кб/с]<Folk, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:74C5B3A5BE94A458DC4A1B16DB12BDB348D365C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54633FFD1DB035EA9933CA6B847014DCAE5A941A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D842D2A14AAEE92FAABA8402D824C14D03AB31CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Bon Jovi - Greatest Hits: The Ultimate Collection (2010) [MP3|320kbps] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:F1BDFFFFBAAF6DE21F6FD593EEE01F5D9AD4F7D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Snow Patrol - Fallen Empires (2011) [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:0C9D173A350F45DC3BA2220EB195B5AC7E573AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ The Allman Brothers Band - At Fillmore East (1971) 2SHM-CD Deluxe Edition /2009,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

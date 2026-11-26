@@ -21,8 +21,7 @@ Richie Sambora (Ричи Самбора) - Ballad Of Youth (1991) Single, Mercur
 ```bash
 magnet:?xt=urn:btih:245B8F72A4B6650C6ED9F0B66A7464F44A71930A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Angel - Sinful (1979) Reissue, 1992, Casablanca [MP3|320 Kbps] <Rock, Hard Rock,
 ```bash
 magnet:?xt=urn:btih:46E299D6E9FE695E0D51B2CB42CD2E8E204A6585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEEFA1F947C5AFAB1E095BF99E90E364010B0528
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ RSO (Richie Sambora & Orianthi) - Radio Free America (2018) [MP3|320 Kbps] <Rock
 ```bash
 magnet:?xt=urn:btih:83009B25D58FBFAC02101AA928371AED0A5B85A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Arctic Monkeys - Tranquility Base Hotel & Casino (2018) [MP3|320 Kbps] CD <Alter
 ```bash
 magnet:?xt=urn:btih:CCB983DE51F612A5FF37F0034B0E96D69270FFC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Coastal Kitchen Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D1BCE0BAD760A379EBC09800416A56CC983E0076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BrokenLore: UNFOLLOW – это сюрреалистический хоррор 
 ```bash
 magnet:?xt=urn:btih:B765D7461D9CD958FD934EB7CE3821A89D59D786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Burkina Faso: Radical Insurgency отправляет оперативника �
 ```bash
 magnet:?xt=urn:btih:718FCBE7FA9AF6EFCED36E6617AAA44F460F06F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kamikaze Strike: FPV Drone испытывает ваши навыки пилот
 ```bash
 magnet:?xt=urn:btih:8919BBAE9E4BDB6FBFD07BE833A46A878C84E47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ BrokenLore: UNFOLLOW – это сюрреалистический хоррор 
 ```bash
 magnet:?xt=urn:btih:B363B4EC6671DBB28C4451BDE50308D28FBD3643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

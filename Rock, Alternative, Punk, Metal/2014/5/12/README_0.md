@@ -28,8 +28,7 @@ Beyond The Shore - GhostWatcher (2013) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:B773A31B3F34840077186C33E45C799F52F17788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Issues - Issues (2014) [MP3|320 кб/с]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:0035EDF9EB9A40929A36EA0A1A046EB242221D00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ The Healing - Transcendence (EP) (2011) [MP3|320 кб/с]<Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:E09BA2423CEC58DE73E09F60025FEC8CAD1E33FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ lynch. - Gallows (2014) [MP3|320 кб/с]<JRock, Metal>
 ```bash
 magnet:?xt=urn:btih:75AFB1B7167506F12422335DC4ECE337790D6725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Beyond All Recognition - Drop = Dead (2012) [MP3|320 кб/с]<Metalcore, Dubstep
 ```bash
 magnet:?xt=urn:btih:05AE4DA90F9439B9D5B376069D93F99F2BC78308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Battleroar - Blood Of Legends (2014) [FLAC|Lossless]<Epic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7686F1BE84F5A667A7E704BB5BC01F64D7BF7578
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Savage Messiah - The Fateful Dark (2014) [FLAC|Lossless]<Thrash/Heavy/Power>
 ```bash
 magnet:?xt=urn:btih:5049F952D826688EF01D76EC923DC4E745FBC746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Tasters - Reckless Till the End (2011) [MP3|192 кб/с]<Metalcore, Electronic>
 ```bash
 magnet:?xt=urn:btih:3FB24B58415DB69647743FFA2FAF0047E8AE09F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Emmure - Eternal Enemies (2014) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:28FD4B358EAA04AEB646CCCF9BADF4B3152E932D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Architects - Lost Forever / Lost Together (2014) [MP3|320 кб/с]<Post-Hardcore
 ```bash
 magnet:?xt=urn:btih:BFD75F41FF04BC904CBE2180DE162D40A1B0ABBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +363,7 @@ Lords Of Black - Lords Of Black (2014) [MP3|320 кб/с]<Heavy / Power Metal>
 ```bash
 magnet:?xt=urn:btih:BB72AC34234ADB1AF0C3EED33AE430B5F92BA71C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +397,7 @@ Adaline - Modern Romantics (2011) [FLAC|Lossless]<Pop Rock, Indie Rock, Electron
 ```bash
 magnet:?xt=urn:btih:D704BBB26C9AA80B1C503FF71C0EC3DD4A0D0775
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +431,7 @@ Tori Amos - Unrepentant Geraldines (2014) [FLAC|Lossless|WEB-DL]<Alternative, Ba
 ```bash
 magnet:?xt=urn:btih:CFE7D83D69EF2702FC57B94F4D204D03A775D852
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA3EA297AE786EF95EE7012D0B0955DEA0C79E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

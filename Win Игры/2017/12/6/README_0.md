@@ -19,8 +19,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4B72EF00D81F2BAC08A1B938D9F063AEC25165BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

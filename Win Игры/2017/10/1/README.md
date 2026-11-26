@@ -19,8 +19,7 @@ Awakening 7: The Golden Age / Пробуждение 7: Золотой век (2
 ```bash
 magnet:?xt=urn:btih:B2FEDF623B958E08097FE4C9A1D88711868C053A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

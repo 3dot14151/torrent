@@ -19,8 +19,7 @@ Tipard Android Data Recovery - это профессиональная прог�
 ```bash
 magnet:?xt=urn:btih:0FF302DAD7378C4BE3BA4CE1307E784B88E786BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Ridge Racer Unbounded (2012) [Ru/Multi] (1.13/4dlc) License PROPHET
 ```bash
 magnet:?xt=urn:btih:C8866A3C5D753F5D5C674E2FF43037788080BDC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

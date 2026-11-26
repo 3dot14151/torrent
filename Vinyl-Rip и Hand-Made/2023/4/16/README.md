@@ -22,8 +22,7 @@ Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 ```bash
 magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Desert Inn 3:30(   Читать дальше...   )Жанр: ElectronicПро
 ```bash
 magnet:?xt=urn:btih:145DCD8D2CBA70C79D0C6A55D926360B6B106E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

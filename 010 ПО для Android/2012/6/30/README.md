@@ -26,8 +26,7 @@ Akimbo Audiobook Player v1.6.1 (30.06.2014) <Ru>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

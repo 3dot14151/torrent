@@ -19,8 +19,7 @@ Mystery Case Files 16: The Revenants Hunt / За семью печатями: Р
 ```bash
 magnet:?xt=urn:btih:BC151D3FFAED3B2DB445C98022D48AF85699C173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Surface 12. Project Dawn / Внешние пределы 12: Проект "За�
 ```bash
 magnet:?xt=urn:btih:80F4DBF564C72D853AB97DA8E6D0718A5D13029B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Frosty Nights — красивая рождественская игра-стр�
 ```bash
 magnet:?xt=urn:btih:70D9CE760B9DE756D45EF7A292343A4828E85005
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Frosty Nights — красивая рождественская игра-стр�
 ```bash
 magnet:?xt=urn:btih:CDC61A92A34B2C9514415ECB3F7E8E8EDD0E662C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ What Remains of Edith Finch – сборник странных рассказо
 ```bash
 magnet:?xt=urn:btih:81504725E02CCAFCF04F5218BCF6CDEF9730C49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

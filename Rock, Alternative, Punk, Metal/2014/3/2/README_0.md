@@ -28,8 +28,7 @@ The Blonz - Blonz (1990) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F4373FE851D038843C8C2D822A6A4558D14E15E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Helix - Back For Another Taste (1990) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2846A449BB97100518AA2D986C2DE70270203DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Frontline - The State of Rock (1994) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A4C52333F1115D66DC810DB79D772F1782F53094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Gotthard - Open (1998) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E9EEB491A762F34B0F22DB065E806E782F7EC6F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Gotthard - Dial Hard (1994) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:74F05052C7F20034001BE661C21D3457051DEB0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ I, Napoleon - I, Napoleon (1991) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:90589267924C989307458E921E955342A430C76B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Bad English - Backlash (1991) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C2D6F8CDD217B3633EE6FA485C10C78ABD69C7C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ The Rolling Stones - 12 X 5 (1964) Reissue /2002, CD-Maximum/ [FLAC|Lossless]<Cl
 ```bash
 magnet:?xt=urn:btih:E920DA20DECAF0B1CD1BF88D20308BBD577F59A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Mike Oldfield - Man On The Rocks (2014) [MP3|320 кб/с]<Rock, Progressive, Art
 ```bash
 magnet:?xt=urn:btih:E7B0AF004AB80C9AD700922A3D0E9273F6BE9F08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ Mike Oldfield - Man On The Rocks (2014) [FLAC|Lossless]<Rock, Progressive, Art-R
 ```bash
 magnet:?xt=urn:btih:63E40A789F2870BC6F856A58D1D78EBA55E48894
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

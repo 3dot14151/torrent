@@ -24,8 +24,7 @@ Furious Flame - Unleashed Silence (2014) [MP3|320 кб/с]<Black Metal, Instrume
 ```bash
 magnet:?xt=urn:btih:AD301CAF9CABEEF2E1D4BF9AD8DA6EB8DBD3617A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Life Extinction - Lo unico seguro en la vida es la muerte (2006) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:F6437608EEF2A23B0A00277723CD99EBC1785E15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Roy Orbison - Sweet For Finland-The Very Best (2000) [APE|Lossless]<Rock n Roll>
 ```bash
 magnet:?xt=urn:btih:B2A0BC0D8AE5129999FDD7D0294A99F1B1D1CDCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Rockets - Kaos (2014) [MP3|320 кб/с]<Space Rock, Pop Rock, Space Disco, Elect
 ```bash
 magnet:?xt=urn:btih:424A2950A2B43D2121A3451A952740165A7F3F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

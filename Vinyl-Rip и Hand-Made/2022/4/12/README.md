@@ -22,8 +22,7 @@ Written-By – Bágya András, Mészáros Ágnes(   Читать дальше...
 ```bash
 magnet:?xt=urn:btih:22B3A869E7A2CCEE6E02273FDB462F13F279209D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Billie Piper - Walk Of Life (2000) [FLAC 2.0|16/44,1 (MC-Rip)]<Pop>
 ```bash
 magnet:?xt=urn:btih:98F4979DD7AC0E8640EF81EFA2426AD453D6384E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 With A Little Help From My Friends(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:327AFC84F0C0AB803B2725BD6428FE0DD31A25DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Composed By – Wolfgang Amadeus Mozart(   Читать дальше...   )Жа�
 ```bash
 magnet:?xt=urn:btih:B8A7A8086A166BD609CDE5BD12D513614110267C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Jennifer Paige - Positively Somewhere (2001) [FLAC 2.0 (image+.cue)|16/44,1 (MC-
 ```bash
 magnet:?xt=urn:btih:246D8D1872131F105E7C4E1EE00B08834621E8A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

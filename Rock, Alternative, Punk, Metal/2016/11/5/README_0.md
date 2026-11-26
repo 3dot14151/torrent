@@ -22,8 +22,7 @@ Woslom - Time To Rise (2010) 2014 Reissue [FLAC|Lossless|image + .cue] <Thrash M
 ```bash
 magnet:?xt=urn:btih:38A76FA95BDFACD7F975930E68F1B581C0E2DAF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The London Quireboys - This Is Rock'N'Roll (2002) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:50F46267DCEF0ADCF0E8CBCF05ABDEA0E247D3CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Quireboys - Bitter Sweet & Twisted & Live (1993) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:C4D8056EDF1CCDED89AB9639C78E9699028718F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Quireboys - A Bit Of What You Fancy & Bitter Sweet And Twisted (1997) [FLAC|
 ```bash
 magnet:?xt=urn:btih:DED64C87CCD58965C2467AE18F165D289981AA40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Motley Crue - Carnival Of Sins (2006) 2CD, Live [MP3|320 кб/с]<Glam Metal, Ha
 ```bash
 magnet:?xt=urn:btih:FD31B1B6028B9E91168792CA3F7F60D7FCC5F9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ RavenEye - Nova (2016) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:56F8A2F916B02A5D6FA04AD717D6FB4B0CDF556B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Antimatter - Welcome to the Machine / Too Late (2016) [MP3|320 Kbps] <Psychedeli
 ```bash
 magnet:?xt=urn:btih:E026C782EADB2BF2574DF9E3869D3B55D5AF2C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ In Flames - Sounds From The Heart Of Gothenburg (2016) Live [MP3|320 Kbps] <Deat
 ```bash
 magnet:?xt=urn:btih:22BA2BBF3705BFB922C361A06B589C7FA8CEE162
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Motley Crue - The End: Live in Los Angeles (2016) Live [MP3|320 кб/с]<Glam Me
 ```bash
 magnet:?xt=urn:btih:517CB2DC6EF8BC93C3BFECDC6E4C6C53B4F27B5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Sir Rod Stewart - And Some Of His Early Faces (2016) 2CD [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1AF9A9AF4607AA9816425703BD42F3EE0BB9F599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Attila - Chaos (2016) [MP3|320 Kbps] <Deathcore, Rapcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:3102CF9D2FC95597F52902AA7B709F85F8336548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Billy Idol - Whiplash Smile (1986) [FLAC|Lossless|image + .cue] <Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:08774C7B6D87AC5A408768CF5F314AEB572E7275
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ T.REX - Get It On: The Collection (2011) [APE|Lossless|image + .cue]<Glam Rock>
 ```bash
 magnet:?xt=urn:btih:1C64F81C50562390E9874A55E050F2B059B44C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Bad Frankenhausen - Eins (2016) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DD42EA5650961F5BCB45D38450C6CEB892175D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Desolate Dreams - Inevitability (2016) [MP3|320 Kbps] <Instrumental Progressive 
 ```bash
 magnet:?xt=urn:btih:0DC2D74150364362BE80352D197C1E684E831C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

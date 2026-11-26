@@ -22,8 +22,7 @@ Royal Thunder — американская рок-группа из Атлант
 ```bash
 magnet:?xt=urn:btih:F64DCFE912F31F8D9722A5BC60D2CEBE7B2CE434
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

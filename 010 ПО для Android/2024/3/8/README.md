@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:454CF4CB10C763E458A4E972FAD1C21FF90EEE89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ ToonMe v0.7.1 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B1626454378356D6523520ACF12B89B36BF11CBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:33D78C2D299C661E87693B4685B919F5898CBC34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:BAB7565F372E7EAE2821E8B30255592BD24F70E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Strava: бег, велоезда, хайкинг v350.7 Mod by ReVanced Team [Ru
 ```bash
 magnet:?xt=urn:btih:5EA1DB55BEA14602E985D36740724820E0697ED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.08 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E4800459601D1F56EA5693486E3DBAE3E1BB4F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Lighting calculations / Расчеты освещения v6.0.0 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:BB5C2492321FDEF13F9E9B6FA689EF573D28A994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

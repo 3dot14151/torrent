@@ -19,8 +19,7 @@ Mystic Palace Slots HD (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:4BB9D39D67A0DA76AF41DAD990D12C56E370501E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Echoes of the Past: The Castle of Shadows / Эхо Прошлого. Замок 
 ```bash
 magnet:?xt=urn:btih:BF87CEFD136A258E383B94847E53C0B424C715CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Battle [En] (L) 2011
 ```bash
 magnet:?xt=urn:btih:0B76AE4E61A2280B43FBADADFF6497B12C9540E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Pang Town - маленький городок на окраине Централ
 ```bash
 magnet:?xt=urn:btih:C23E31E10EEFCFF779CFEEAC00BEA60629FBC263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Steinbruch-Simulator 2012 (L) [Ge] 2011
 ```bash
 magnet:?xt=urn:btih:CD914BD9E7A45BF386B01046A952D3A8635F5471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Lara Croft and the Guardian of Light [Multi5\-] (Lossless RePack) 2010 | R.G. Ca
 ```bash
 magnet:?xt=urn:btih:1A7DE685C48A68A86B77F6F9713FD6C79180406B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

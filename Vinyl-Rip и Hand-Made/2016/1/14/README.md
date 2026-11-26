@@ -22,8 +22,7 @@ A4	Дождь(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock
 ```bash
 magnet:?xt=urn:btih:05DBF7039DE6573EEC563F9086F6E36F72D8AEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

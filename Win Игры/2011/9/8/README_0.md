@@ -19,8 +19,7 @@ Midnight Mysteries: Devil on the Mississippi Collector's Edition / Загадк�
 ```bash
 magnet:?xt=urn:btih:8EFB3D28D1D285379DC1E84EB9671FE31F8BAA13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rachel's Retreat / Курорт Рэйчел (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:3F9EC82F4C043AD0ED11A5845418A3B3110B40D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Update 1 для игры Dead Island
 ```bash
 magnet:?xt=urn:btih:AD1880530BBDE43FCA34A0AE7EA4120C15B78A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Voodoo Whisperer: Curse of a Legend Collector's Edition / Говорящая с 
 ```bash
 magnet:?xt=urn:btih:ACECB0A4C6110D89F191CC4AF977C2244005E54B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BAE023E1297B3183A5C8798396662A1F0AE75443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Unsolved Mystery Club: Ancient Astronauts Collector's Edition / Клуб Нер�
 ```bash
 magnet:?xt=urn:btih:223DB8CA71894640BABFD86E157501B15B3D0361
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Rescue Frenzy / Спасти всех! (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:99EE49A415506DB4C1FBB4A9B3AC0F7D978DBCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Spectromancer: Truth and Beauty / Спектромансер: Сила Прав�
 ```bash
 magnet:?xt=urn:btih:88208C7F1AC9EF5CE1CCE7CE239EEFD6FFC2F590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

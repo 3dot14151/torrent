@@ -19,8 +19,7 @@ London Racer: Destruction Madness / London Racer: Тотальное разру�
 ```bash
 magnet:?xt=urn:btih:363E7AD3501B0D22D9E2CB9D766D3525E488D102
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Guitartab является просмотрщиком / проигрывател
 ```bash
 magnet:?xt=urn:btih:156210B8FEED9D3C97521AEC12D722BDB13B2349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

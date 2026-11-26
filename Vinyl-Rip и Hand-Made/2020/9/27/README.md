@@ -22,8 +22,7 @@ A4 Stay With Me(   Читать дальше...   )Жанр: Blues Rock, Ballad�
 ```bash
 magnet:?xt=urn:btih:393696120A072AC574012AEE0372B80B8E3A6414
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B1 Lena(   Читать дальше...   )Жанр: Prog Rock, Space RockПро
 ```bash
 magnet:?xt=urn:btih:73A434B27EE213E93933408911C18ED97D696D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

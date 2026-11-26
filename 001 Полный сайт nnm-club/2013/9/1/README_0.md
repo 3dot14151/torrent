@@ -18,8 +18,7 @@ Handyman - универсальный журнал для домашних ум�
 ```bash
 magnet:?xt=urn:btih:7F61EFDE555767F574BDA142AE72A1D809D8370A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Robbie Hill & The Blue 62's - Price To Pay (2013) [FLAC|Lossless]<Blues-Rock, Mo
 ```bash
 magnet:?xt=urn:btih:6FEE1F0AD1C5CCBFDC08BB0B5B1CB8BDF4607F7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A73B78CCB80DC9687358C8DA2304B742942F977B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ Darling Parade - Battle Scars & Broken Hearts (2013) [MP3|320 кб/с]<Alternati
 ```bash
 magnet:?xt=urn:btih:39B51786E5C05C2712E4B2523161C7DAC1910087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Black Diamonds - Perfect Sin (2013) [MP3|320 кб/с]<Glam / Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2D314A25796918F096FB353B1A90578CE0598416
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F0165E3A1D4930EE7412FE0A638A344875A89D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +208,7 @@ Foxboro Hot Tubs - Stop Drop and Roll!!! (2008) [MP3|320 кб/с]<Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:3D844363C72734AE4FF93E4303DDDC49D05D0B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ VA - Acid Jazz Lounge (2011) [MP3|320 кб/с]<Funky, Club House, Lounge>
 ```bash
 magnet:?xt=urn:btih:93EBD64B7C6C830DF6A176F678EEB8945ADD794E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +276,7 @@ The Original Sinners - Love or the Money (1992) [APE|Lossless]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:69F702CED3AA7BB9C8C2D40B4FC73845F307E8B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1E89CCD755F63196C5BDFC4606B6065B73E1E06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3500FE7EC2A2B35C519F4E7687327AA4767F4312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ Dixie Peach - Blues With Friends (2013) [MP3|320 кб/с]<Electric Blues, Blues-
 ```bash
 magnet:?xt=urn:btih:7DE21CD9F402E2658DCB394C08910C70A43B8FE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F3859AA4DE6D214B365EF96CB59354D1D7F4940B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +407,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41C5335E812740DF00963AF411673CBEA48D9BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +441,7 @@ VA - Любимые летние хиты. Зарубежный выпуск (20
 ```bash
 magnet:?xt=urn:btih:0F9ED747903BE4BC7DCBEFC7C8FAEB56F447F12E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ VA - Осенняя позитивная сотка (2013) [MP3|192-320 кб/с]
 ```bash
 magnet:?xt=urn:btih:B6B60DBDAC5BCCEB0F39B48EF64E859DF90C1742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +509,7 @@ VA - Звездная тусовочка. Отдыхаем с лучшими х�
 ```bash
 magnet:?xt=urn:btih:2AE3BD7690C65B5C02207920BA8178C45CDE173F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +543,7 @@ Wheels Of Fire - Up For Anything (2012) [FLAC|Lossless]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F53A8C7C9AD2799D4719E7565CCE737B3DA4CE83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,8 +593,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30DEE396E8C79BE6D03F782341AB7A6B4BDC5FF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E498DEA1C5C0E1B6C1504E42A7BC86886C19F8F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +651,7 @@ Matthew Curry & The Fury - If I Don't Got You (2011) [FLAC|Lossless]<Blues, Blue
 ```bash
 magnet:?xt=urn:btih:0B0480A99BC944B1411F22CB8C772AF9736EF6A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +676,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D208677240973E6E246E6A5304217F1F54593DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +701,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF60BFDEECAFF870B39584EFBA94491D8C3A4C1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ John Di Martino Romantic Jazz Trio - Lisztomania ~ Liszt Jazz (2011) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:470E8E24835A9EBF280E5293EDD5D20665C807BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +760,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DABC3BD3970B64997E74A7E45723C4A8567AFEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

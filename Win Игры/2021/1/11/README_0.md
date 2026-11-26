@@ -19,8 +19,7 @@ Twin Mind: Murderous Jealousy (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:F75A4EB20B9784485409BD91BA1504092BF46213
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

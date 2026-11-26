@@ -19,8 +19,7 @@ Fritz 19 SE (2023) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:06B0BFA258C9D49942463C357D2289ADE01DC350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 ```bash
 magnet:?xt=urn:btih:81E1415BF8A11CA066F423AE56AF485F972968B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pronty – двухмерная экшен-адвенчура, в которой
 ```bash
 magnet:?xt=urn:btih:35C43A20BCD0B23E12707CC6121D987F0E5F546C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

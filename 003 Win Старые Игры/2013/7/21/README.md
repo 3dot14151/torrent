@@ -21,8 +21,7 @@ BloodRayne - компьютерная игра в жанре action от тре�
 ```bash
 magnet:?xt=urn:btih:2C9B68023A5B669642FE3514877F062F66B703D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

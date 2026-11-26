@@ -19,8 +19,7 @@ MemoQ Переводчик Про - это приложение для рабо�
 ```bash
 magnet:?xt=urn:btih:DD71F4B2FEAA51E7F6F3ED5380B2C8622C3C6A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

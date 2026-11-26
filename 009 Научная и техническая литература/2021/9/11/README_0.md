@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:1E3EE9AB7A8FE540C430E156FC02A0AAC86F4739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Baм представлена серия книг «Россия забытая 
 ```bash
 magnet:?xt=urn:btih:CB7AC984E0EDDAD42745F0C43839B4EFE34A8DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

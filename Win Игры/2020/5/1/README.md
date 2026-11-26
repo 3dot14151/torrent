@@ -19,8 +19,7 @@ Family Mysteries 2: Echoes of Tomorrow / Семейные тайны 2: Эхо �
 ```bash
 magnet:?xt=urn:btih:A27007BC4C2449EE80218E6D8F0851FC9711DCC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kingdom Two Crowns является новым этапом развития э�
 ```bash
 magnet:?xt=urn:btih:2A59CA52D2E3AAEDD17EA201E293E5D13CD6F22F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Follia Dear Father – это стелс-хоррор игра на выжива
 ```bash
 magnet:?xt=urn:btih:87B9C11C8D3BD4C7AB606E81F1696C9E67697D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

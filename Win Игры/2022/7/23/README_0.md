@@ -19,8 +19,7 @@ Endling - Extinction is Forever (2022) [Ru/Multi] (0.16.25) License GOG
 ```bash
 magnet:?xt=urn:btih:FEBB400B585BCF2729CFBE4FA41177965380E046
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spiritfarer - это уютная игра о смерти. Вам предст�
 ```bash
 magnet:?xt=urn:btih:202AD73E1D738C7972A979AAC04A19C6E86485DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

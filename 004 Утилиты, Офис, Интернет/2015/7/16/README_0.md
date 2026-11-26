@@ -19,8 +19,7 @@ BatWithParameters - бесплатное приложение для управ�
 ```bash
 magnet:?xt=urn:btih:024224CE8850FDA0EF1870C4C83F683E8CA57C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

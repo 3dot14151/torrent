@@ -22,8 +22,7 @@ Thisquietarmy - Hex Mountains (2013) [MP3|320 кб/с]<Post Rock, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:7A417F32A67183B503F8CC7F46374156579B3F42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Army Navy - The Wilderness Inside (2014) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:FEA2CE3191249BD9B2949209C8750E89AD45F73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Syndrome - The Lonely Mountain (2014) [MP3|320 кб/с]<Post Rock, Dark Ambient>
 ```bash
 magnet:?xt=urn:btih:A909CB96B14B6839362143426C78BE4B7BF7308E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ CD 1: Delusion
 ```bash
 magnet:?xt=urn:btih:42A86CA4389235DD3F89938F89B0AA40B8F4F20A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Candy Harlots - Five Wicked Ways (1992) [MP3|320 кб/с]<Melodic Hard Rock, Sle
 ```bash
 magnet:?xt=urn:btih:0C40841A27560AAABD91A4D046C3805D0598ADE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Puss n Boots - No Fools, No Fun (2014) [FLAC|Lossless]<Southern Rock, Adult Alte
 ```bash
 magnet:?xt=urn:btih:604C3D5FDB865DEA7AE11A8A8B8D1583DE75B60E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:CC1354290DB85C6604007A26653DA7E560536DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +252,7 @@ Uriah Heep - Classic Album Selection (2013) 5CD Box Set, Sanctuary Records [MP3|
 ```bash
 magnet:?xt=urn:btih:6F1F1333E0EC1D5A8C044273959B2465A1FA9034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

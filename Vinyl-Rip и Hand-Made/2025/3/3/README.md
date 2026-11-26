@@ -21,8 +21,7 @@ Thrashfire - турецкая метал-группа, основанная в �
 ```bash
 magnet:?xt=urn:btih:60E025A726FE4BED589DE7273F818F6C3BE46AC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ A4 Body And Soul(   Читать дальше...   )Жанр: Folk, BluegrassП�
 ```bash
 magnet:?xt=urn:btih:33208A9C25F7FE841C24338C008F6BD33C983291
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

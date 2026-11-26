@@ -19,8 +19,7 @@ Any.do Premium 4.19.0.6 [Ru/Multi] - Список дел, заметок
 ```bash
 magnet:?xt=urn:btih:02E3F31B7E175B684ED2ADD23A18CF6976702459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

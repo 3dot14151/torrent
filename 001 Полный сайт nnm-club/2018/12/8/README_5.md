@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1AD4FD2CDE90129934799405C57670E3A204F14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DB27492EDE5FB3E22D0AB07368A1813A69C6E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Hello Neighbor - это интерактивный ужастик, в котор
 ```bash
 magnet:?xt=urn:btih:F6F42D8B8D6E6EF9F97FA6D42AD5971F96F9251B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ The Council — ни на что не похожая эпизодическая 
 ```bash
 magnet:?xt=urn:btih:D6BB6BE604A3879444D0744DA16BE7AED4A39A88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3E92ACBAAE728DE1ACBA2FCAC37C7FC9E94E4BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Jagged Alliance возвращается! Превосходное сочета�
 ```bash
 magnet:?xt=urn:btih:3D2CD0EE4816BCD741A151FAF88575188E6A80BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ Just Cause 4 (2018) [Ru/En] (1.0/dlc)  Repack xatab [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:23F0E7E13FAF3FBA8F1AD71EC63AC5A35C737F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

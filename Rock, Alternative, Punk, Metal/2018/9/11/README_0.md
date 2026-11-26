@@ -22,8 +22,7 @@ Better Than Ezra - Friction, Baby (1996) [FLAC|Lossless|tracks + .cue] <Alternat
 ```bash
 magnet:?xt=urn:btih:968EB881028FC8142FEAF9B27CCF726006B248DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Andrew W.K. - Close Calls With Brick Walls (2006) South Korea, Bonus Tracks [FLA
 ```bash
 magnet:?xt=urn:btih:D099002876845A0B5C5DDB7CEBA7618EEC57B4DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Beyond The Black - Heart Of The Hurricane (2018) Japanese Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:F7BF50849C40F4F9A88895E3FBC78D66C2E1B974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Korpiklaani - Kulkija (2018) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:C3C6B043C5C5067878232B4104D2AE53695E01F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

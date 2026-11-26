@@ -19,8 +19,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.1) License RELOADED
 ```bash
 magnet:?xt=urn:btih:97D1B1743E0A3165A393EAAB8E90D7B86D3F32AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

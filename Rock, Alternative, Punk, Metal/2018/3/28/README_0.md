@@ -22,8 +22,7 @@ Natron - Necrospective (2002) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:C9D5B0026DCCCC5C2824CD726FDC0B293B8784F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Rick Parfitt (Status Quo) - Over And Out (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:D33BCCE6C6BF85BE09F389D4BA164F052F474A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

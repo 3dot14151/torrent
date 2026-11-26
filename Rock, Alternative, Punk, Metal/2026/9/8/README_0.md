@@ -22,8 +22,7 @@ Kamelot - Dark Asylum (2026) [FLAC|Lossless|image + .cue] <Symphonic Metal, Powe
 ```bash
 magnet:?xt=urn:btih:133708BB01C07C206440834835E582DF04C211C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Cranberries - Live At The London Astoria II, 1994 (2026) [FLAC 24/48|Lossles
 ```bash
 magnet:?xt=urn:btih:4D851C5071FA53C60853502B3F48D325BFAECACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Grimner - Stormvingar (2026) [FLAC|Lossless|WEB-DL|tracks] <Folk, Viking Metal>
 ```bash
 magnet:?xt=urn:btih:2C398678772AD5C85F4BC4E0F5E1D7694F50C6F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

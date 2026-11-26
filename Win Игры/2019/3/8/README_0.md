@@ -19,8 +19,7 @@ Matanga (2019) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2ACCC780950CB5FDCDBEEE00B00BF3D9D9E5DE04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

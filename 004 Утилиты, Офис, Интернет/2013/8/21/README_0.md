@@ -19,8 +19,7 @@ Recipes 1.0 - Простая в использовании бесплатная 
 ```bash
 magnet:?xt=urn:btih:6C63A8F256BA44FBEEAFCD4309ACA378A2B574BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

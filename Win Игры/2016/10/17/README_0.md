@@ -19,8 +19,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [Ru/En] (1.0) Repack D
 ```bash
 magnet:?xt=urn:btih:D934920880422795322C36B3F6EA78EE88A43471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ AI ChatBot AI Friend Generator v3.0.8.1 Mod by 0x7d [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8AA07C3374E9A19E3D3D0A8BA54C7D30CC4ECAC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51992AA3E4FB380DFF97E7287523D7745BA19C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 ```bash
 magnet:?xt=urn:btih:4BA9B8013DE886F6F57C30DD731109B5FB33BBEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ PictureThis - Plant Identification v4.4.1 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BC42E9D547632B598F600B334F018DB008F23E00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:1E0E2E9A6D74A785B692FF59703E2E50B1078431
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ PhotoRoom v5.3.5 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B6DA2B0FBE898CEBC0A459C5E1D6424918F423D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Rock Identifier - Stone ID v2.3.40 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0DE1E815CC2C12F3BFF89896DCD41DDF54F3C5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +200,7 @@ Picturize it v1.2.0 Mod by srajawwal09 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3755E462F317AB0315555BAE39ADAA2AB6908599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

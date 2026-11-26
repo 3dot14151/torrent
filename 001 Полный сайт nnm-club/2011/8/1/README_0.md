@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:337D62000939DAC5D05269A2F6997D40D80FEBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D802AA665E016DB15C6616379D5C79E7A8697363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Frank Mantooth - Dangerous Precedent (1993) [FLAC|Lossless]<Big Band>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -145,8 +141,7 @@ VA - Dance Summer Beach (01.08.2011) [MP3|320 kbps]<House, Trance>
 ```bash
 magnet:?xt=urn:btih:1237822F567E37CEBF3AA0E36854458F98593817
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +175,7 @@ Fleshgod Apocalypse - Agony (2011) [MP3|320 kbps]<Symphonic Technical Death Meta
 ```bash
 magnet:?xt=urn:btih:7019D7FD88DD6445BBA0965048B813F8221DE32D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ VA - The Official UK Top 40 Singles Chart (31.07.2011) [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:9CC4647999AD6432672643D516D315F63A81B339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ VA - Твоя любимая дискотека №7 (2011) [MP3|128 kbps]<Pop, 
 ```bash
 magnet:?xt=urn:btih:8E91B1053AECC9021CFD3B6F211C3679C7729934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +277,7 @@ VA - Отдыхаем с отличной музыкой (2011) [MP3|256 kbps]<P
 ```bash
 magnet:?xt=urn:btih:28CB0923E075FBF0FEBD9BD1BDE317C3ED733934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ Ahmad Reza Ahmadi, Mohammad Nouri, Fariborz Lachini - Dar Shab Sard Zemestani (I
 ```bash
 magnet:?xt=urn:btih:384AAFC3325C5CA27768625DD8422F6C4EE5F0C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +337,7 @@ VA - АвтоЛеди (2011) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:59398AFAFAC684A6BC18813AFF8A5B88E8F5F1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +371,7 @@ VA - Лучшие Хиты Муз-ТВ Часть 6 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:549C3D3C8952B246498883FD1E768AA97419A052
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ One More Victim - Dominion (2011) [MP3|320 kbps]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:74CAD9D84775D7DCD1D56B6301F7AA2142E89847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +464,7 @@ VA - Горячие Новинки От Радио Энергия 50/50 Спец
 ```bash
 magnet:?xt=urn:btih:586D3678E076E2F79899C80810D2978C15A6546F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +489,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D9822D465A6023AF8174AD8DE0C3FED8AAE655D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A763E8B16FB18545978D86AFE9959D167811C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +539,7 @@ VA - Selected Gems (2011) [MP3|320 kbps]<Tech House, Techno>
 ```bash
 magnet:?xt=urn:btih:56EECD80ADC9E34EC1A80CCDB243DCF12F9EFD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +564,7 @@ Download Master - отличная программа для скачивани�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +589,7 @@ VA - 100 Lights Away From Home: The Collaborations Compilation (2011) [MP3|320 k
 ```bash
 magnet:?xt=urn:btih:7403D9DD6C31E6343A59CF16C3A469C205E167F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ HD Suisse - Швейцария [часть 31] / HD Suisse: Swiss View (2007) HD
 ```bash
 magnet:?xt=urn:btih:4B2F58867C891334FBA3E692CD32C7A788B6DC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +648,7 @@ VA - Old Dance Remix Vol.32 (2011) [MP3|320 kbps]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:E293668230CB3F865BCBD20DCAB2F95DBF3FDF55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +698,7 @@ Pete Tong - The Essential selection (29-07-2011) [MP3|192-320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:025237C08AFC5AA753D0BFD5B8D395DF02EA5237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +723,7 @@ SmartsysSoft Greeting Card Designer легкая в использовании �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +748,7 @@ Freemake Video Converter - бесплатный видео конвертер, �
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

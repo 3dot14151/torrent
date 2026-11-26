@@ -19,8 +19,7 @@ Resurrection, New Mexico Collectors Edition / Воскрешение. Нью-М�
 ```bash
 magnet:?xt=urn:btih:CF39271D5D4104645BFF5E365E6B2B5B9182296A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jane's Advanced Strike Fighters [En] (L) 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

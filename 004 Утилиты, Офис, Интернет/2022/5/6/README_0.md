@@ -19,8 +19,7 @@ Registry Reviver использует самые передовые технол
 ```bash
 magnet:?xt=urn:btih:BF50C6C39802AA3B556CFFF0A488C3C10BBC7C72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Winstep Xtreme – это мощная, многофункциональная �
 ```bash
 magnet:?xt=urn:btih:B29C6F4BF17B926A137ACCD39481C21AAFE12EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Winstep Nexus Ultimate – это расширенная версия беспл
 ```bash
 magnet:?xt=urn:btih:04F388392665C8EF9AF34A881C6E85005D63EE71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

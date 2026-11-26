@@ -22,8 +22,7 @@ VA - Dance All Night Vol. 1 (2018) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:F6A9419BB1D692474AD09ECA38D3D4E738BFF654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Koenraad Ecker - A Biology Of Shadows (2018) In Aulis [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:33F55FDAE5D3006A3B81C9197D35B7D4223809C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Hed Kandi: Fit & Fabulous (2010) [FLAC|Lossless|tracks] <House, Electro Hou
 ```bash
 magnet:?xt=urn:btih:EE748568D916D5728E7C03D0538BA18237BA1A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Psychometry: 100 Psy Goa Trance (2018) [MP3|320 Kbps] <Psy, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:8DA28B6392351D40E01676C02298A34D256A14DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Rooftop Lounge The Sounds of Chillout (2018) [MP3|320 Kbps] <Balearic, Down
 ```bash
 magnet:?xt=urn:btih:4F0AD8C9EC4D9327E4E40597FDD365AFBEA7449B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA-Artistic Dance Zone 14 (2018) [MP3|320 Kbps] <House, Tech House, Deep House, 
 ```bash
 magnet:?xt=urn:btih:43CF48B50EA4B52A2A99F4C7E0A0C8FA639C85DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Bitter:Sweet - Drama (2008) [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
 ```bash
 magnet:?xt=urn:btih:D1AF407BECB44DEB5F67793453C1FED70A6C5481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4DD75D6196F5796589799226A27064D35FB7E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - We Are Trance February (2018) [MP3|320 Kbps] <Uplifting, Progressive Trance
 ```bash
 magnet:?xt=urn:btih:034CB98CA86B54D200544776E4F8B4226E8D0EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +270,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DDC1B5707AFA634AE613434ECBE39DDA480D403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ VA - Yoga Love - The Full Moon Sessions 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:43DACBB21C71435799AB69AE5DCDA848288AED39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +326,7 @@ Amanda Ginsburg - Jag har funderat pa en sak (2018) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:552814170AD452FC25A6BBEE37B7A773EA9D65A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +354,7 @@ VA - Winter Deep House (2018) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:9D29F35AE37201735FF339649FB03D75B24836FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ VA - Vocal Endless Story (2018) [MP3|320 Kbps] <Energy, Blissful, Uplifting>
 ```bash
 magnet:?xt=urn:btih:B7D440E783B59C3F11E9818248B75880C6A4F652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ Frantic Amber - Burning Insight (2015) Reissued, 2017 [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:93273802989F67CAA6E95F916EE694C97D364151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Ball Park Music - Good Mood (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Al
 ```bash
 magnet:?xt=urn:btih:F0FF1D303812463549C6117A98990C291FE938C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:58B57B5A34CCC76279F6E13B4FEEE6D6EA105E08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ Smolik - Smolik3 (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Nu-Jazz, Chill
 ```bash
 magnet:?xt=urn:btih:F3BD9858ED6B31B85875105937A2F3CD84113FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +522,7 @@ The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7A7ADB84445B9A84D10A955ADB35E2332E2C0464
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +550,7 @@ Flunk - Morning Star (2004) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:1DB52D5E84007984AD67EF40BB0C91F7FA7CFE66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +578,7 @@ Camp Cope - How to Socialise & Make Friends (2018) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:7F65CF405A55D52B7834489AEDE86F7B6F407CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +603,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7467BE84CA48390D3734AD076CDEC65F2A1DC1DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +631,7 @@ Molecule (Molécule) Collection 4 Releases (2016-2018) Because Music [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:FDC7493AD6D5BA65930F85381E36AF5D720EC9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +659,7 @@ Angra - OMNI (ØMNI) (2018) [FLAC|Lossless|image + .cue] <Progressive Power Meta
 ```bash
 magnet:?xt=urn:btih:6BEE7049534303D7D367C0A79EC50913E6C99B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +687,7 @@ CD:1
 ```bash
 magnet:?xt=urn:btih:D1D2F3714AE39444CB864A859E6817948675859B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AE4FEFE6433F8CC0A688AC9A40147261B742BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

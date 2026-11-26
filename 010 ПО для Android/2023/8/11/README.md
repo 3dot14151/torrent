@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F755DA0B4EE8DD664CD0A0C05B2A857813E388E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB7FC7EAA6B1E8A7F4A601ECC35D8D0D099D35C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Listen Audiobook Player v5.0.15 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:89AD48AFE0D53B4B32B28AA08FED30D597E84F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

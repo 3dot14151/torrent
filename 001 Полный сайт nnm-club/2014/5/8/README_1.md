@@ -20,8 +20,7 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:403CBB61EB347A5054F8E384D1FCE531B0305B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,8 +54,7 @@ Nigel Good - Nothing Out Here (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass, Trance,
 ```bash
 magnet:?xt=urn:btih:8475F96DE7C58B5ED6FB6447228AC8D6A5F1481F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Sonata in D minor RV 12
 ```bash
 magnet:?xt=urn:btih:3D8E459E2BD29FB9F23BB53E43B20496DCB63E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99F73557BBB6840950EE40361DC62E235501F78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:C54652D2041EE7AB65730861DE158B37BD25A20D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ VA - What do we know about Rock (2014) [MP3|192-320 кб/с]<Classic Rock, Hard 
 ```bash
 magnet:?xt=urn:btih:BEF858FD974D05E2F594E68191C917A7419C359E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ Wallpapers - Mixed HD Wallpapers Pack (07.05.2014) [JPEG]
 ```bash
 magnet:?xt=urn:btih:2D8D9D800F1507342407095C47358E1635B0ED16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +248,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:6F7259D81D2D1AD68CF913CCF3C73ED0C083DA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ NG. Наука будущего Стивена Хокинга: Люди на з�
 ```bash
 magnet:?xt=urn:btih:F6A6734550985C8B607963718CFBAC8E56EA5D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ PC Magazine является одним из известнейших и авт�
 ```bash
 magnet:?xt=urn:btih:4FEC5AD922CC7BC1957D7FE36D9D5AE18C61E0E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Muslimgauze - A Putrid Oasis (2014) [FLAC|Lossless]<Tribal, Experimental>
 ```bash
 magnet:?xt=urn:btih:722313EC4776B78C3D679C378D3BC15F4C9BED43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7C122CD47AA49C9233DD172E60BB20824B638A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ DelaDap - This Is DelaDap (2014) [FLAC|Lossless]<Ethnopop, World, Electronic, Ur
 ```bash
 magnet:?xt=urn:btih:17E6DB1376B7E9512B36778CEB6F55D1FF803471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -433,8 +419,7 @@ Sarah McLachlan - Shine On (2014) Deluxe Edition [FLAC|Lossless]<Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:4ECB73159BFE2992F0D271C073C26DCB0627AD4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +444,7 @@ Linkin Park - Until It's Gone (Single) (2014) [FLAC|Lossless|WEB-DL]<Alternative
 ```bash
 magnet:?xt=urn:btih:4D4A13866B0F0021AB400F109A4A07747ECF86B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -485,8 +469,7 @@ Wallpapers - Nature (07.05.2014) [JPEG]
 ```bash
 magnet:?xt=urn:btih:A4A3754B221E282CC2093E443AFF2E574DFAA4DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +494,7 @@ NG. Наука будущего Стивена Хокинга: Виртуаль�
 ```bash
 magnet:?xt=urn:btih:C68A2FC4843840C9A33CC165634EBF05146B17B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +519,7 @@ BBC: Не ходите туда. Африка / BBC: Don`t go there. Afrika  (20
 ```bash
 magnet:?xt=urn:btih:FE85D2F1ACA34817A8A799FC09E71AB2699ABE87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +544,7 @@ Wallpapers - День Победы [JPEG]
 ```bash
 magnet:?xt=urn:btih:AAF3050D64877AD4AC56E4C60449BCF65224A6BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +569,7 @@ Lost Souls 2: Timeless Fables (2014) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:AEAC0E5BE54A6EF0378C20BD6977D8ED78E73E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +594,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B14663FEF8972812756AE9436D3EF62AA4CD84A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +628,7 @@ L’Autunno (The Autumn)	10:15(   Читать дальше...   )Жанр: Baro
 ```bash
 magnet:?xt=urn:btih:CDE1210154E0FF26174D116CC58934391110008D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ uTorrent 3.4.1 build 31139 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F8B533CC43740053C66C730387D1DF518773E435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:FBA1A8A53CDF0709AC654C5A68F1C486BD0BC758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +705,7 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:E5F0F1E4160F0C2ADAF3500883FACF57818A614B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

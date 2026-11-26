@@ -20,8 +20,7 @@ Resident Evil 6 [En] (Trainer/+6) 2013 | MaxTre
 ```bash
 magnet:?xt=urn:btih:8692A79F3258EB6EBA8DCA44D917B264E0C564EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Walking Dead: Survival Instinct рассказывает историю Дэ
 ```bash
 magnet:?xt=urn:btih:FB22BE829F21935B284A9512C4A0271E8190799D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

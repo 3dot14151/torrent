@@ -28,8 +28,7 @@ Excelsis - 6 альбомов (1997-2013) [WavPack|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:D3DBAAAB5FDB66D2492083D14BDEE2949975E5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Smiercieslau - Cjomny Pryliu Razburennja / Ciemrazou (2013) [MP3|256 кб/с]<Bl
 ```bash
 magnet:?xt=urn:btih:5F4D47B767D378B081FB820A2CF40CCC2CC9609B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Sonata Arctica - Stones Grow Her Name (2012) Tour Edition [FLAC|Lossless]<Power 
 ```bash
 magnet:?xt=urn:btih:B241AD96DDA7F22BFDFC4D76760DC88FFCADE4E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

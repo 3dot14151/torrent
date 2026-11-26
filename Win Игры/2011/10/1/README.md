@@ -19,8 +19,7 @@ In Search of the Lost Temple (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:B7B6FA134E9E9514E8EF4E0FE78BE6A7B4E5E1F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Love Story: The Beach Cottage (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:C72D743C88F21E0686AC824551F7DD88B67C1217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fairway - Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:C1AB93DEC1370F826423C427522BD3EE85BECC75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mystery of the Ancients: Lockwood Manor Collectors Edition / Байки Стар
 ```bash
 magnet:?xt=urn:btih:ACD471417938EBE4FB343EACFBF9816B1935D65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Gun Runners' Arsenal DLC будет включать: оптимизирован
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ SeaBounty: Dead Man's Chest / Пиратская Монополия. Сунду�
 ```bash
 magnet:?xt=urn:btih:22EAAB7217A6BED7BA6892C733F0315A50D6CF57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:07D0FC78ED13756E10D50CE944AC9F2A93C9E26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

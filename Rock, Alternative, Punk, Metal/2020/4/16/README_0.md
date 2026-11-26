@@ -22,8 +22,7 @@ Leeched - You Took the Sun When You Left (2018) [FLAC|Lossless|tracks] <Sludge M
 ```bash
 magnet:?xt=urn:btih:7D9BCD245D0511DB1221BC9325793597A1C3B363
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wartooth - Programmed Dichotomy (2020) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4BD14A1BEC0A49961AEDD9274CE8D6EC236DDA06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ God's Speed - 3 Albums (2012-2020) [MP3|320 Kbps] <Psychedelic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:90D362812958BE0A433587BB1E4559B466D18B2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44B5444CAAFCA191D0C8139B837FA015638C8690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Enter Shikari - Nothing is True & Everything is Possible (2020) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:6910723D3D368B759139F705D9881C2297236B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7375B4FD102FE2A1D1E43C4E5156079AC60F5F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Order of Ennead - Order of Ennead (2008) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:DFD823250D0361854614685A171DE88608CBBF22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Attention Deficit - Attention Deficit (1998) [WavPack|Lossless|image + .cue] <Pr
 ```bash
 magnet:?xt=urn:btih:9521D12B7B1099E19170A026FFF99206AB2F5320
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Shadow Gallery - Tyranny (1998) [WavPack|Lossless|image + .cue] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:4A5BD21D6D5E3E67659F3D5047377869C33BA4B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Best Of Pop Rock Hits 2020 [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:F25583507267D2B1AF1CFE95CE831C186D8E0895
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ Therion - Cover Songs 1993-2007 (2020) [MP3|320 Kbps] <Symphonic-Operatic Metal>
 ```bash
 magnet:?xt=urn:btih:7039745FCEB7B87AAE026D7D848DD9F19D1ADD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60B0DC5ADD5B8951B5D777612698C0CD7FD496A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ Gorillaz - Song Machine Episode 3 (2020) Single [MP3|320 Kbps] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:B92810E7464E57D430410F16DAB9AD73FB12169F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Nightwish - HUMAN. :II: NATURE. (2020) 3 CD, Limited Earbook Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:6D13257A7E14C9633E5A32AF51ACBC9CA71BAF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

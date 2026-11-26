@@ -19,8 +19,7 @@ Blue Reflection: Second Light (2021) [Multi] (1.02/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:552CF8FA3C08F00AF4286A06C7EB500E1022EF3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

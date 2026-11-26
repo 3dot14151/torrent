@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0564FC0ED2E961310D4C1F7F156CDC795C37A1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF4E24CC7A1DBE0B51F250F7D5FC8EAF943DD563
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D339320EEA604ED5B12E0D54BDEE1A9D53790C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC5E625FDF89EE82026117A07E25F21E78A427B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ VA - Ibiza Progressive Beach: The Ultimate Beach Album (2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:514EF6DD04379B8984913D0A8488B70C5C304B4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Ambient Beach (2014) [MP3|320 кб/с]<Ambient, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:34E4614C07406838D3126652E0CD0C18B9576EDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ VA - Trance Winter Project (2013-2014) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:E53A3C6C62C573C4177A7CE53B6645419E58C903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ VA - Ambient Exaltation (2014) [MP3|320 кб/с]<Ambient, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:E2B76C77A46D14C1576BD745BCD5739B796D2C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +291,7 @@ VA - The Best Of Balearic Trance Vol Two (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7B0A1EF48F4D338684ACB20FC7D7FB687DA7C0AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ The Modern Jazz Quartet - The Sheriff (1964) /2004 Atlantic/ [FLAC|Lossless]<Coo
 ```bash
 magnet:?xt=urn:btih:B9BD35DC0678F8A1D377A6B671AF56B597ABDDFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ Phaeleh - The Cold In You (The Remixes) (2012) [FLAC|Lossless|WEB-DL]<Dubstep, T
 ```bash
 magnet:?xt=urn:btih:B724BEE411766630AA139FD58FFC6D5D9B03E71A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +377,7 @@ Manu Shrine - It Was LP (2013) [FLAC|Lossless|WEB-DL]<UK Garage, Dubstep, Downte
 ```bash
 magnet:?xt=urn:btih:7D358FD4ABA2A798A0C18B73B3541B3646AF06A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4BEEFAAD1EB6655CAD9C2B4E8BEDA3259ACA2A3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:247ABF247BA2AB94361FB58CAC4C2F501ACE2D2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +463,7 @@ Manu Shrine - Inmate EP (2013) [FLAC|Lossless|WEB-DL]<UK Garage, Dubstep, Ambien
 ```bash
 magnet:?xt=urn:btih:0DBCA150B98D3FF5B4E16892A5E14F1597265319
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +497,7 @@ VA - Mооnbeam Presents Space Оdyssеy: Mars (2014) [MP3|320 кб/с]<Trance ,
 ```bash
 magnet:?xt=urn:btih:4B3060142982AAB8DBD6A78443B0A0AACA8EFD8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FA91352D9F7BCD47B9BA180A91063E13016EB97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2040E2CC2A17E9EC3D269F2C2D9E63E8BB13AD7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +572,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13BC31D763A87E72F646B82C9186F2166EADD9D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ Steve Khan - Public Access (1990) /GRP/ [FLAC|Lossless]<Fusion, Jazz-Rock>
 ```bash
 magnet:?xt=urn:btih:B363CE10F4EEABA2B4332DAF9B6EE229A2968A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +640,7 @@ VA - Cocktail Classics Vol 1 (2014) [MP3|320 кб/с]<Easy Listening, Lounge, Ja
 ```bash
 magnet:?xt=urn:btih:E18DC82C055748F18116543EC295FA00D905DF65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5577E21A3FDA6A1529F5EA7CF8AEBC0E575A10BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -721,8 +699,7 @@ Massacre - Back from Beyond (2014) Limited Edition [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:1517B9259E214CE5FF079FA3FD8EE7ED7065F766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D150D913593ED6FF3AED335A7D6AF74B5EB17042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32B2C50D9A514B7C30D16A22A41CE345FCF6BC45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -799,8 +774,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD4547F2F208621C1C0A26FD36B9313BF078FAFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

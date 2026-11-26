@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B1BB7E5A65EEDFB0EBF003257DB92AE39BCF4621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Angular и Spring Boot - две из самых популярных техно�
 ```bash
 magnet:?xt=urn:btih:8A4E9356522067E143200135DA7FCE1AD78C4603
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Bootable Flash Drive USB by StartSoft Happy New Year! 01-2021 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:EFE778DC11F47C4B18C55DE46D776BE08C408E61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.08/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:620B729BE8806A057F646C00796FA6A062A0C26F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Subnautica: Below Zero - самостоятельное дополнение Sub
 ```bash
 magnet:?xt=urn:btih:1318B9FB1DE2A98ABBC5CA56FC3E7DD9C95170E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:429E29416A49D0C7711858D3A09FD7CC6592385B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

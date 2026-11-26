@@ -22,8 +22,7 @@ Circus Maximus - The 1st Chapter (2005) Japan Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:06A7E69274E7F1FFDFDD8505D7D12654C479FA9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Human Egg - Human Egg (1978) LP [MP3|320 Kbps] <Electronic, Space Rock, Psychede
 ```bash
 magnet:?xt=urn:btih:0F9E50380594E552CC4D316BE5B1617E5D44A951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Escape Club - Cloud 10 (2005) [MP3|320 Kbps] <Alternative Pop Rock, Ambient 
 ```bash
 magnet:?xt=urn:btih:D46A7743E1EADA077156A729FC82514401632F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Doors - Waiting For The Sun (1968) 2CD + LP Box Set, Remastered, Elektra, 20
 ```bash
 magnet:?xt=urn:btih:14275D1C5FEF47D2E8A80518F79072860A32F72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Clutch - 16 albums, 19 CD (1993-2018) [FLAC|Lossless|image + .cue | tracks + .cu
 ```bash
 magnet:?xt=urn:btih:9F7BB3C11E9A44C2DF0D311598CED1E0E15432E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Def Leppard - The Story So Far: The Best Of Def Leppard (2018) Deluxe Edition [F
 ```bash
 magnet:?xt=urn:btih:0F9E8F51ECBE8E83962787F35FA059FF899EFCD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Turning Season Within - (2008)(   Читать дальше...   )Жанр: Doom
 ```bash
 magnet:?xt=urn:btih:EA8A2DB73DA76C753D6F2F567BDB7D9EB02D9910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

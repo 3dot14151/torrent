@@ -22,8 +22,7 @@ Paramaecium - австралийская группа собравшаяся в 
 ```bash
 magnet:?xt=urn:btih:8F1F8622F5FD954D508AC339049B4AABF7A6EE75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Desert Colossus - Eyes and Tongues (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner 
 ```bash
 magnet:?xt=urn:btih:2283C2471AC396E1233B179607954DBBED906AEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Troggs - From Nowhere (1966) 1989, DJM Records [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:33013E24F3D8B46D301F622EE2D30E658B11D7F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:831B2FE3BD0FC25CE3EE4A311274ED9126D70486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Lacrimosa - 27 albums (1991-2010) [FLAC/APE|Lossless] <Gothic / Symphonic Metal,
 ```bash
 magnet:?xt=urn:btih:CA4AF002915ACB4D2140B0711261A40371B04263
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

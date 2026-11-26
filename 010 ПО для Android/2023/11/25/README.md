@@ -19,8 +19,7 @@ PixelLab - отличный фоторедактор, в котором все �
 ```bash
 magnet:?xt=urn:btih:15010CFB307F61373378704A15FB1A4930CA711D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Flud - это оптимальный torrent-клиент для Andoid-устр
 ```bash
 magnet:?xt=urn:btih:63D0E6881D8077862F9442891B00C4EBFFB1C6B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

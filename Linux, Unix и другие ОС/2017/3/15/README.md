@@ -19,8 +19,7 @@ OSGeo-Live 10.0 (Дистрибутив для географов, картог�
 ```bash
 magnet:?xt=urn:btih:E2870B80F8330DEB4A5E41F1204EA563DC94B0FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

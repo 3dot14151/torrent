@@ -19,8 +19,7 @@ Gigabyte technology | Собери компьютер за 30 минут (2010) 
 ```bash
 magnet:?xt=urn:btih:0F5D5A2582636EC541297EF5067A39E2A60CC598
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

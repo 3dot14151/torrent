@@ -18,8 +18,7 @@ GRID 2 (2013) [Ru/Multi] (1.0.85.8679/10dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:8932EF6A44E54E94C2F1956007054C6D6BBB663E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ SketchUp Pro 2015 15.3.330 (x32) | 15.3.331 (x64) RePack by D!akov [En]
 ```bash
 magnet:?xt=urn:btih:144D28C47CEBB721B8C205F233D064103B053B3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1111CAF566F731760BA4562AAA96962AB991E67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

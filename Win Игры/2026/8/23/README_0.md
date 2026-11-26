@@ -19,8 +19,7 @@ Grow Home (2015) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:145C70FB7DB27E19C2AB59A83B4159EFF442700E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tukoni: Forest Keepers - это уютная приключенческая го
 ```bash
 magnet:?xt=urn:btih:1ABC64D4F380EE5CDF9B829F4743E4373E22AF14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Above the Snow - это уникальная сюжетно-ориентиров
 ```bash
 magnet:?xt=urn:btih:0539109BC5E3B05E85EF1FDDDF89A42C1AD17036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grow Up — это приключенческий платформер от Ubis
 ```bash
 magnet:?xt=urn:btih:1538B566A451FE99D1F3B859B9A7000AE7A36960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

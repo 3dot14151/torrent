@@ -19,8 +19,7 @@ Dreams from the Past / Сны из прошлого [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:B5D472D9A6606E002D6BF8FA0885A4EB1A093FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ War Tanks 3D / Война Танков 3D: Вне Времени [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:3F711D28CEEA14788C71A80E5C0558B8326A7801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Dear Esther / Дорогая Эстер [Ru/En] (RePack) 2012 l kuha
 ```bash
 magnet:?xt=urn:btih:C7DA960CA203B73E49B988C0D2ED86F62BC47AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (RePa
 ```bash
 magnet:?xt=urn:btih:75B33822A42ECD209EF10C5F15C80DAAAFF76903
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

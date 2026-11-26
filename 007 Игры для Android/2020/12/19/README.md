@@ -19,8 +19,7 @@ Among Us - кооперативный фантастический экшн, р�
 ```bash
 magnet:?xt=urn:btih:36991BDF8F079CCDBED2C0948251FD0FBC44BBD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

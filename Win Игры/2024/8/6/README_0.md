@@ -19,8 +19,7 @@ Citizen Sleeper – это яркое по внешнему виду и мрач
 ```bash
 magnet:?xt=urn:btih:483C85779B27414904BD25197D9FE953FAD5E6D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ USC: Counterforce (2023) [Multi] (1.00.0a) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A202665C4A7C01CADF65024EBB29161229313C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:80E28A85B04BA712C65B72AC5B66820AB829D75F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blockbuster Inc. погружает вас в самое сердце Голли
 ```bash
 magnet:?xt=urn:btih:6912FD557CCCB7BECC352D1AAF976831165C8BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Setteeh родом из ледяного сердца Якутии. Адвенч
 ```bash
 magnet:?xt=urn:btih:53FA6A2C1936BAEFF200C44BC44508FB4B2200A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ House Flipper 2 (2023) [Ru/Multi] (20240719/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:ACCF0A685E7112761C2C2EB18D1A5A123259B69F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Apartment No 129 (2024) [Ru/Multi] (Build 15267401) Repack Other s
 ```bash
 magnet:?xt=urn:btih:896CFED4C1D1780B5AA7235BB5B235D2850C54D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Thalassa: Edge of the Abyss погружает игроков в напряже�
 ```bash
 magnet:?xt=urn:btih:8CCA9034F8785D00EE6AD380EC67C3376BF24F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Get To The Top (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E4659C83CB3C72BBD5934E563D66A775E4883806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3CD78909A67A6E106EC849F36A256EEADCE1D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ RTL Winter Sports 2008: The Ultimate Challenge / Зимний спорт 2008 (2
 ```bash
 magnet:?xt=urn:btih:5814503806ECAE01771A7E05A1BAE69690328CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

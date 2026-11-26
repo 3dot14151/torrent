@@ -19,8 +19,7 @@ Yre Den - Soilstretch (2020) OK SPIRIT [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstr
 ```bash
 magnet:?xt=urn:btih:2E7945A7C17AEE6981F2B6168CDF9E1DE0E869CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Dead Original - Bought & Sold (2021) [FLAC|Lossless|WEB-DL|tracks] <Grunge>
 ```bash
 magnet:?xt=urn:btih:471519D60443111C88CF6F5A5B171E70A763D734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ ATTICK DEMONS - португальская Heavy Metal группа, котор�
 ```bash
 magnet:?xt=urn:btih:7E51B01127FBBF9347C1C30783A8C7F1337E6BAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ BetterZip 5 v5.0.3 CR2 [Multi]
 ```bash
 magnet:?xt=urn:btih:12760E346364363F792C647650858B7DD9EEC8C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED4706FF278E9C52F977668656D8A0C9498E1FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBC00E122DED0686583F60362B91DAC500875FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6FD844BF4DA3603F015555F9AFD2E729E391F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Beatport Progressive Trance: Sound Pack #249 (2021) [MP3|320 Kbps] <Trance,
 ```bash
 magnet:?xt=urn:btih:48A89BE7740AAD4DF8C4DA0399BC56908B54856E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E970546B2002CA7F347BFC93CA0E94501DCC835F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ VA - Global Underground Afterhours (2002) Global Underground [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:9C67975319065F9542FC3338D3D44BAE80BF5DB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7CF7E8E70A0AE6E116B44B2DD3F22669011079AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ VA - Beatport Club Techno: Sound Pack #248 (2021) [MP3|320 Kbps] <Techno, Tech H
 ```bash
 magnet:?xt=urn:btih:799DD7ADA2523F970CF90CB5EB52655CD1E84013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A73C5B422487B2576681C4DABE0D562A0B23E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ VA - Ambient Oceania (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation, New 
 ```bash
 magnet:?xt=urn:btih:8AD87B449A086169C118CCFF39FBC69E42D875F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ Hardline - Double Eclipse (1992) Japan [FLAC|Lossless|image + .cue] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:0FC170A5415B44029E90A400EFCE681BF63BFC96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ IT - Live At ProgDreams VIII (2021) [MP3|320 Kbps] <Neo Prog>
 ```bash
 magnet:?xt=urn:btih:AAEE1799F0795894942B1A4E27379E46D4B6C31E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ VA - Esperandote: New Latin Music (2021) [MP3|320 Kbps] <Latin, Pop, Reggaeton>
 ```bash
 magnet:?xt=urn:btih:342A7D8773FCE64233EC7470CE0BC9B6858745A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0D3012B62BF016661F8298909D453C6145EE4C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +512,7 @@ Hyades - The Wolves Are Getting Hungry (2015) [FLAC|Lossless|image + .cue] <Thra
 ```bash
 magnet:?xt=urn:btih:DF24558663EDCC8CE0C945F83B4D914B89F8008A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,8 +540,7 @@ Poborsk - Plus Minus (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Experi
 ```bash
 magnet:?xt=urn:btih:02BCE7DBAB01F00AA2D42543ED23594B065330FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ Larry Lampkin - Funky Blues Man (2020) [FLAC|Lossless|image + .cue] <Electric Bl
 ```bash
 magnet:?xt=urn:btih:AE8467A39883E490DD9C68AF38C26CBAD3D5A83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DEE1715CABCC5970D23B6DDD498A0D0B4290E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ Hides 5.4.7 [En]
 ```bash
 magnet:?xt=urn:btih:822BFFF15774566511F51A7E3065772BEA2B5536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:88D9A7E57AE3ABDD9EA2D9CE47D12904C1E2E618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ Stacks - это новый способ для создания страниц �
 ```bash
 magnet:?xt=urn:btih:0B234C5DD8A504F7B19B9BA27F4A4FBDACE47A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ Shen - Outlines (2006) Native State Records [FLAC|Lossless|tracks+.cue] <Dub, ID
 ```bash
 magnet:?xt=urn:btih:9675DBF88C2959C23AFB682BA713E5416F7C34C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

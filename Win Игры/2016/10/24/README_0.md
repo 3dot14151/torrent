@@ -20,8 +20,7 @@ Demolish & Build Company 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F0599A82F8F6B4F6CB28A848F853A92659F1F076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Sky Break (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E508017A0363DF92BAF779715661FECAA8F8C97C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Spellforce 2: Demons Of The Past (2014) [Ru/En] (2.68.5408) License GOG
 ```bash
 magnet:?xt=urn:btih:07C6B07F3E1F10DD096AE4E842503821C84FED69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

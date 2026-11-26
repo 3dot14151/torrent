@@ -19,8 +19,7 @@ Paper Cut Mansion - хоррор в жанре roguelite, действие ко�
 ```bash
 magnet:?xt=urn:btih:0EFFE97E19B67AB6878FAA4495E0C707C3FACB8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hell Pie - непристойная 3D-игра, которая выведет �
 ```bash
 magnet:?xt=urn:btih:0E8C0F0D350AD910F15F84D6AEC878260EE68098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

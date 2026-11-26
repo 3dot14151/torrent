@@ -22,8 +22,7 @@ Falter - Further from Nowhere (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:51CBE3A8B75C7D07002FB2E20A0458E5F728CBDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nova Rise - Nova Rise (2015) [MP3|320 кб/с]<Alternative>
 ```bash
 magnet:?xt=urn:btih:C51B17D799CC4988106242C34878A42D105FB289
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Celldweller - End Of An Empire (Chapter 04: Death) (2015) [MP3|320 кб/с]<Indu
 ```bash
 magnet:?xt=urn:btih:D0180B9CE7399CE28F70A7240BD08D85E877DC11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Marilyn Manson - The Remix Collection (2014) 2CD [MP3|320 кб/с]<Alternative R
 ```bash
 magnet:?xt=urn:btih:746B080EB676C11F40551ED18B8AEE59F3E7988B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Powerwolf - Blessed and Possessed (2015) Deluxe Edition [MP3|320 кб/с]<Power 
 ```bash
 magnet:?xt=urn:btih:A9FF4F6E9614004839E9EAEB677A03E22AB9FE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

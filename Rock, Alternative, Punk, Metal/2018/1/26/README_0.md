@@ -22,8 +22,7 @@ In Vain - Currents (2018) [MP3|320 Kbps] <Melodic Black Metal, Progressive Death
 ```bash
 magnet:?xt=urn:btih:A29908F199792F1CFADE49BBD07E2F766D56701F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sniff'n'the Tears - Random Elements (2017) [FLAC|Lossless|image + .cue]<Pop-Rock
 ```bash
 magnet:?xt=urn:btih:95046DA68A4EE5308458A48B9C5E96E9464B617A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08F8DFD0B9A14A9E68D658E30EB5F2063DD0FDD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Igor & The Red Elvises - She Works For KGB (2017) [MP3|320 Kbps] <Rockabilly, Ro
 ```bash
 magnet:?xt=urn:btih:65E18011E55B4CA5E1490D89ECE1F6644750C376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AB4EA68C2072B626DAFC10A731EB30000E179E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Extreme - Extreme II : Pornograffitti (A Funked Up Fairytale) (1990) Remastered,
 ```bash
 magnet:?xt=urn:btih:F7A23D89F64594C757DC32E7641E971C723036D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

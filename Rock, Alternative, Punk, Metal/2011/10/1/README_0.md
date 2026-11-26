@@ -28,8 +28,7 @@ Fractured Insanity - Mass Awakeless (2010) [FLAC|Lossless]<Brutal / Technical De
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - The Old Grey Whistle Test: 40th Aniversery Album [3 CD] (2011) [FLAC|Lossle
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:8FEFB56BA3E2D16657914A95DA2B9D37A5B6269F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:ADD2560C1518134B6D7FCA83F353BA2AD3121C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:A90F7B982229C705B034BF4EA19F884C2F3A2A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ibis Paint X - известное благодаря своим качества
 ```bash
 magnet:?xt=urn:btih:1A0EAFCAAA1AD020E718427158F3114F7FBAEB04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ D Notes - крайне симпатичный блокнот, что, как и 
 ```bash
 magnet:?xt=urn:btih:C82FC2882C156FC503F911718BEEC089275CA96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Via - весьма популярный и востребованный Брау
 ```bash
 magnet:?xt=urn:btih:8A0755156FB390D5D6604B02F62CC8550695DA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Via - весьма популярный и востребованный Брау
 ```bash
 magnet:?xt=urn:btih:DCBCB96D4668265E6A079D8F97293417F2C6FBA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Via - весьма популярный и востребованный Брау
 ```bash
 magnet:?xt=urn:btih:4A8732984480F0588522DEDD55A6BEDFA03AA5F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ ibis Paint X - известное благодаря своим качества
 ```bash
 magnet:?xt=urn:btih:69C81500265D3F651E6E589A3E68875B39649040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Veeam® Endpoint Backup™ FREE — простое решение для рез�
 ```bash
 magnet:?xt=urn:btih:17BBF27C6F05F57A0C568D1C0C38B53848FFB4C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

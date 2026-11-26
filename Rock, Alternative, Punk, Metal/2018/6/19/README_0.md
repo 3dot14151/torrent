@@ -22,8 +22,7 @@ Letters From The Fire - Letters From The Fire (2018) [MP3|320 Kbps] <Alternative
 ```bash
 magnet:?xt=urn:btih:9B14B66AC9CC9649A8BC4EFDD2801A5DD157AA8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

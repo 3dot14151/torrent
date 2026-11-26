@@ -19,8 +19,7 @@ RIDE 3 (2018) [Multi] (1.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:A13516009FC1B89798334066CF83B9B3441C3CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

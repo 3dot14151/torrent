@@ -19,8 +19,7 @@ Midnight Calling: Anabel (2015) [En] Unofficial [Collector's Edition / Колл�
 ```bash
 magnet:?xt=urn:btih:F9626ED95B3A3DBD9E1339CEB2CDF458514D9BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paranormal State: Poison Spring (2013) [En/Multi] (1.0) License PROPHET [Collect
 ```bash
 magnet:?xt=urn:btih:EA184B35DEB196C5E044D42004547C5281CB6EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Real Boxing дарит тебе самый восхитительный, бес�
 ```bash
 magnet:?xt=urn:btih:3E27526D1DC9A2A4BB3A0AE0F18954DC3E341B1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

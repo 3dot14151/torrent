@@ -19,8 +19,7 @@ Weawow - это максимально подробный прогноз пог�
 ```bash
 magnet:?xt=urn:btih:1CC25A562235838AD9BF0898B65463C9107B2DBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ EPIK - весьма и весьма функциональный фоторед�
 ```bash
 magnet:?xt=urn:btih:3725D6EBCF987F17253E2052CD4B111DB1C41BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ AccuWeather - невероятно популярный погодный про�
 ```bash
 magnet:?xt=urn:btih:C63E90538721551BFBC57286514ED1121714EC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ventusky - погодное приложение для тех кто хочет
 ```bash
 magnet:?xt=urn:btih:21021A5046A5BED685390F01AE8EEB7B6300B4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ AccuWeather - невероятно популярный погодный про�
 ```bash
 magnet:?xt=urn:btih:353C03F42C24D83BDD06665B2DC82051131E7F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Today Weather - это погодное приложение, что предо�
 ```bash
 magnet:?xt=urn:btih:DE33BD6BE7CDE11558E57F7F5551FB81C1E33E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8437983B077B4C60400693DFAE87ED554A6CCD8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:B9322A1D04543FF8F4F3A9A21912DEEEB57C00C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Square Home - красивый, стильный и функциональный
 ```bash
 magnet:?xt=urn:btih:2B20E46D611BDE49E14A29A1BE9027871BCE8C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64609EA5A59E5891ADA97C80F6F65A7603485666
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:111435733E749D37E01FDC88EB799A0BB3F33FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Weather & Radar - приятное в использовании и полезн
 ```bash
 magnet:?xt=urn:btih:2578BC948FB08B11D2F29286287B0254157D2385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Weather & Radar - приятное в использовании и полезн
 ```bash
 magnet:?xt=urn:btih:C8A60B95D1D4E0BE4C739D211E28C3EC613F8FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

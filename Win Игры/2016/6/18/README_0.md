@@ -19,8 +19,7 @@ Spirit of Revenge 3: Gem Fury (2015) [En] (1.0) Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:C470719A41815FBBEFD0DED253CD246CA95826B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Daily Magic с гордостью представляет новую игру �
 ```bash
 magnet:?xt=urn:btih:CF608B3546284A02A3462D7861D38DCC8446F707
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spirit of Revenge 3: Gem Fury / Месть духа 3: Самоцвет ярос
 ```bash
 magnet:?xt=urn:btih:29F796FDDA8AAE6D1B8F8924869F5455FE450D8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deathtrap является смесью жанров tower defence и экшен
 ```bash
 magnet:?xt=urn:btih:4D918BDFBD00347B6EA44641E002FFFD717F351A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Rebel Galaxy – это удалое приключение в открытом 
 ```bash
 magnet:?xt=urn:btih:D6BA28A832FDCBBD61FA68236523EF1DE921773D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ War Truck Simulator (2016) [Ru/Multi] (1.20) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CCBEA08160B5FD9288BDCAA52BA230C219822365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Joe Dever's: Lone Wolf HD Remastered (2014) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5C76793A032DF9B4E2F1183A3AAB4533C1696BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

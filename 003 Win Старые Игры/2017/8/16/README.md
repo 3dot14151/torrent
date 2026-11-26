@@ -19,8 +19,7 @@ Peter Jackson's King Kong (2005) [Ru/Multi] (1.0.0.1) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:B3359E55DB46CB4277DDFFDF05281DE5DEA1CA51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

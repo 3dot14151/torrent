@@ -18,8 +18,7 @@ Arctic Awakening - приключенческая игра от первого �
 ```bash
 magnet:?xt=urn:btih:9BE508FCC83DF0DFE7A20211563E47DD303E8E73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack seleZen [Rei
 ```bash
 magnet:?xt=urn:btih:027355053198F865013CAF139D6B16B06AD8DDA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Arctic Awakening - приключенческая игра от первого �
 ```bash
 magnet:?xt=urn:btih:3CCFACF11C2EF774B10C1146DE05AC2BD538C6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Other s [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:DA707B903BEDCC2DCF2D793AF88D36A59AD3F21F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

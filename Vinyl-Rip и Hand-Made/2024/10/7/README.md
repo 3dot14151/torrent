@@ -22,8 +22,7 @@ Judas Priest — британская хэви-метал-группа, кото
 ```bash
 magnet:?xt=urn:btih:7F55956A2292477FEDF48CE1C6B37BF4ACB58AF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A2  Валентина Легкоступова - Капля В Море(   Чи
 ```bash
 magnet:?xt=urn:btih:76863F6018B4B30CCD5C9186C5077AFF96E7BDB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

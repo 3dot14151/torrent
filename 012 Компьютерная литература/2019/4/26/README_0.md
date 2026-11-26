@@ -19,8 +19,7 @@ GraphQL – это язык запросов, альтернативный REST 
 ```bash
 magnet:?xt=urn:btih:1554895E51E932908AB59EC3BF57AD4698FCD3AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

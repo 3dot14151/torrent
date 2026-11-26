@@ -19,8 +19,7 @@ Sonya Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:812AC8DA3E91B3BC1958EAE9369765201A8B8DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

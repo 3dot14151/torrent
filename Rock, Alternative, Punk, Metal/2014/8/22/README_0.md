@@ -27,8 +27,7 @@ Ancient Creation - Evolution Bound (2007) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:1D00F49429A1312FABB2068E5828922C5C780CE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Karnya - Coverin' Thoughts (2013) [FLAC|Lossless]<Progressive / Power Metal>
 ```bash
 magnet:?xt=urn:btih:1B983993C9F05FF8A303069A051F5DCC19BFE9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ PRE - 3 Альбома (2007-2011) [MP3|320 кб/с]<Noise Rock, Hardcore, Femal
 ```bash
 magnet:?xt=urn:btih:F0A668ED640513BF84FB7B410E59F04DC78C80E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Jake Tavill - Indigo Child (2014) [MP3|320 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:34CD18570C7F394CF1A7E926666F9FFB13696FAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Woland - Hyperion (2014) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:2CC4275E9885E5FB6E0DF5D86D4181407C133D39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Carisma - 1825 (1996) [FLAC|Lossless]<Melodic Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:974BDA36C8288BB9BDF3E03A58BA164C2FD4519D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Ear Danger - Warrior Soul (2014) [WavPack|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1B3FEA187524063E45A9718AF6551B1A162A92F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Lizzy Borden - Best Of Lizzy Borden (1994) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3D775A841A2D8E38FEE2B1E7101948FC334B8803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ HellCircles - Prelude To Decline (2014) [WavPack|Lossless]<Progressive Power / H
 ```bash
 magnet:?xt=urn:btih:8B51C6089420021B7B5BC5DA540212472C957F1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +331,7 @@ Billy Joel - Songs In The Attic (1981) / MFSL Hybrid SACD Remastered 2013 [FLAC|
 ```bash
 magnet:?xt=urn:btih:7A2C810051F52F799E6B0430098F5534DE9F0BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +363,7 @@ Opeth - Pale Communion (2014) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:C64F64947EB9E9C8A0A3D80AC92547BD809A5D3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

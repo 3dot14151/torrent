@@ -22,8 +22,7 @@ Hate - Auric Gates of Veles (2019) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:EA6201F5557DDECFAEC58126D8FFA89A970AA028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ David Byron - 5 albums, 6CD (1975-2008) [FLAC|Lossless|image + .cue] <Hard Rock,
 ```bash
 magnet:?xt=urn:btih:D978BC69CA8CA58AFABE69FC4614B1BC2E80372C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:D76774667557DE4CCE6EE7E92D47126A5B35AF25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

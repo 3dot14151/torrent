@@ -21,8 +21,7 @@ Rescatux новый rescue GNU/Linux CD/USB основанный на Debian, с
 ```bash
 magnet:?xt=urn:btih:27A241083E73130BCC3FF250D2C824BFF6CFD8F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

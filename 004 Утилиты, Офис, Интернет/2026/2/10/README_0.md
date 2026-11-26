@@ -21,8 +21,7 @@ InCopy позволяет авторам напрямую набирать те�
 ```bash
 magnet:?xt=urn:btih:3E60F561A4C5EBD1B49D21716226478A0B115667
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:91EC48E9B183E0C4E7D5E6CFD39FEEBFE6229DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ MediaHuman YouTube Downloader 3.9.18 (0902) (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:35AF64DC7277B9823AF26D48A47BB6DF5172FE6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Defender Remover Portable 13.0 [En]
 ```bash
 magnet:?xt=urn:btih:937289D594651B5CDCB026EF92E7859ADBB764B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ HiBit Uninstaller - идеальное решение для удаления п
 ```bash
 magnet:?xt=urn:btih:5653B8154DB1482DEEA777DDF166903F2385428C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ MITorrent Client — быстрый, удобный и компактный то
 ```bash
 magnet:?xt=urn:btih:0B87E41A154A98F4F42DC507C8935003A9321CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

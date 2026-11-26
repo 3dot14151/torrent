@@ -20,8 +20,7 @@ Frogger 2: Swampy's Revenge [Ru/En] (P) 2000
 ```bash
 magnet:?xt=urn:btih:8958E62DFA73832F00665D8C7ED047383F39F025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

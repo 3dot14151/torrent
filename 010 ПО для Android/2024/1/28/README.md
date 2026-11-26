@@ -19,8 +19,7 @@ DtcFix -  универсальное приложение для диагнос�
 ```bash
 magnet:?xt=urn:btih:470F6082F6E0B7A150529406505521638204E200
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ My TTS: Text-to-Speech v1.2.2 Mod by Alex.Strannik [En/Ru]
 ```bash
 magnet:?xt=urn:btih:A7B63101B7BFD917C5CDD869063821ECA1CBAE03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ AirReceiver — это универсальный потоковый (   Чит
 ```bash
 magnet:?xt=urn:btih:FE7E25CD969A51B6E85F45EC5C8BAC77A3583638
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:2AAB8D45B112CB8E782DF9F79F498EF33A96E82A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

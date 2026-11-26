@@ -19,8 +19,7 @@ Mystery P.I. - The Curious Case of Counterfeit Cove (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:B9F5F2CCE07B47BAD45E5FC08A54E12B31FD111B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Explodemon! (L) [Multi4/-] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:1E2C0C7261E1580801CB96BAC477AAD0120E98BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Climb to the Top of the Castle (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:C09B23FACCBCB0A02AF8068DEE5DF758C4F30078
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54F415F51B3E9F11538592CD7C1051BBF1D3B5C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

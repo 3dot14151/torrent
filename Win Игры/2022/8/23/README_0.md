@@ -19,8 +19,7 @@ Mafia II: Definitive Edition (2020) [Ru/Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8B361747D047E819288A17ECB3D5FBB46449AB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

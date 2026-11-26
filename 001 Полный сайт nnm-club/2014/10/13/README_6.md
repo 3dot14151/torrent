@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:84A4683A8D539976BFF094391AA40688D2202145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFB6D282AA86ACB2D7E11274C1DACC870976C9B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ The Evil Within / Psychobreak [PS3] [EUR] [Ru/En] [3.55] [Cobra ODE / E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:5EB5F31CEFAB35C17D7313BF2F43C1AAF90DAC04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:337CE8A8A34C6D91B8FA01458FE495EA7B3F356D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32E666DE3A077966064E29E8C0E725E686107004
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/Multi] (1.0/dlc) SteamRip R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:F45BA193CE88C96A07268B077F335CED9D4606EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Saints Row 4/IV (2013) [Ru/Multi] (1.0.6.1/dlc) License PROPHET [Game of the Cen
 ```bash
 magnet:?xt=urn:btih:A8414D20E49914BC65E15BFA64F0DD16042DC7DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FEC3B684D88C798B277992391A833579A5A3107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Directory Opus — альтернативный файловый менедже�
 ```bash
 magnet:?xt=urn:btih:35948C083A698709E6073E2D273492A66E553B33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +256,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CC1CB629483737620339B40337FD5ED25975FE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +281,7 @@ WiNToBootic — это универсальный инструмент кото�
 ```bash
 magnet:?xt=urn:btih:D79885EE3CF2B8E73D2CDF9D926E16F0F1BBE7AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2B0647C55A62D66B2DF3961627327B0088E058B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +331,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:24E02DD85C8523D3ED7A42DEB5D29DDC79B747D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ UFC Undisputed 3 [PS3] [EUR] [En] [4.01] [Cobra ODE / E3 ODE PRO ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:E74690914D13E12EDB9BC796ABCFBEFE9226C73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +383,7 @@ Profileschool | Калибровка монитора от А до Я (2014) PCR
 ```bash
 magnet:?xt=urn:btih:751EDAD7D7DA1E84D85367A3FEB01F32D43D464B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,8 +408,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06088849BB07178D4D435A27A8AE85A101052019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,8 +433,7 @@ AutoCAD Civil 3D – это решение для проектирования �
 ```bash
 magnet:?xt=urn:btih:123AC13BA95C26FEB56FED22F14BB57C0BEB4BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +458,7 @@ Nobunaga the Fool / Чудак Нобунага [2014, TV, 24 ep] WEBRip 720p Ra
 ```bash
 magnet:?xt=urn:btih:21C6CAA2A44ED0B541333AB0AD96D5E1D18870D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +483,7 @@ Ryse: Son of Rome (2014) [Ru/En] (1.0 upd2/dlc) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:310A0504DBBF4180783BF720213305753568E045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

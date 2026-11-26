@@ -19,8 +19,7 @@ Adobe Press | Adobe Photoshop CS6 Classroom in a Book [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:2DE1346D97863AE117DBD4B8DD83D9DC172C0F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Martin Evening | Adobe Lightroom 4. Руководство фотографа [2
 ```bash
 magnet:?xt=urn:btih:BF35C5F4C59B3554902C81551F8242CABB78FB19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E84C4259D4F39F47475268F43055DC467F58653A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

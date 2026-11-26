@@ -22,8 +22,7 @@ Three Colours Dark - The Science Of Goodbye (2020) [MP3|320 Kbps] <Progressive R
 ```bash
 magnet:?xt=urn:btih:0634E7570707CB44A480D179A0C7F5F3066D703D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Triumvir - Triumvir (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
 ```bash
 magnet:?xt=urn:btih:490260860DEB7F23DEAC568B19102CE670EB83F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Stranded by Choice - Lost by Design (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2583AEAC3E28A676FF5C0F23956D15F22E6404B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Grumpynators - Still Alive (2020) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:79FDF30AEFB8EF608D88D9ED0F786D7AAEA8DAC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD - 1 :
 ```bash
 magnet:?xt=urn:btih:D573E791E1BB06C4939C09D1FC98706E3A48CD8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

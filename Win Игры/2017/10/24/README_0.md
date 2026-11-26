@@ -19,8 +19,7 @@ Ominous Objects 3: Trail of Time / Зловещие вещи 3: Тропами �
 ```bash
 magnet:?xt=urn:btih:8DC6499BF5C29E1602AE8F69AC88E075B8EB2A9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debris - это атмосферная сингл игра, в тематике 
 ```bash
 magnet:?xt=urn:btih:10F34CD01E76CBAE6C491EA1EE1E95D43C502A11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.0.0.129/dlc) Repack xatab [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:23BCDD4D859019E028AE5EB669040232235FAF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Spelunker Party! (2017) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:03CE2D47994D767032049FE7A043DC0D08151E19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Welcome to Hanwell - хоррор с открытым миром. В нем це
 ```bash
 magnet:?xt=urn:btih:F010F3DDF7A04ADAEA6684ADB1E1F609754DD00E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Inmates (2017) [Ru/Multi] (1.0.2) License HI2U
 ```bash
 magnet:?xt=urn:btih:65C607A514D81EFF47E62680E93D5018713C1EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

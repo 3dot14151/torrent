@@ -22,8 +22,7 @@ Kogai - Hagakure (2007) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:D10AF134B1269D2D8A38031ECB84BB15047B3244
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Iron Angel - Emerald Eyes (2020) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy, Th
 ```bash
 magnet:?xt=urn:btih:829D05A4F1DEFBB4FE42201A8C67879660253FF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Feather - ROOM (2020) [FLAC|Lossless|tracks + .cue] <Alternative>
 ```bash
 magnet:?xt=urn:btih:D1E3192490F227A44DCD2F9D7BBB1F3D4A0F0BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tygers Of Pan Tang - Ambush (2012) Remastered Edition, 2020, Mighty Music [FLAC|
 ```bash
 magnet:?xt=urn:btih:AD2EC5220FE986FE90FFA821B790A1FAB1B397F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Yusuf / Cat Stevens - Tea for the Tillerman² (2020) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:8192669AE7DE3C87E12DFD8F8F558DBB2466CE74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Ghostkid - 3 Singles (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pos
 ```bash
 magnet:?xt=urn:btih:71348282CA28B151388AA568BD8951BF154DAFC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ CD2 - 00:55:55
 ```bash
 magnet:?xt=urn:btih:570BAE72CEED600FA74A85A90C962E8CC4C14E35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Leo Moracchioli - 31 Albums (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:80E276522185566F266235E4D07A489006E0EDCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Rock Now (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:55AF7EACF50544591AD1062305789B1B28EF1343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

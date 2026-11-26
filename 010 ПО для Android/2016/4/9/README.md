@@ -22,8 +22,7 @@ Sobotta Anatomy Atlas 2.9.0 [En/Ge] - анатомический атлас че
 ```bash
 magnet:?xt=urn:btih:17A5F8A08E0580C1C56AF27751607440F8935B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

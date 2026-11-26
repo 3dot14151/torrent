@@ -28,8 +28,7 @@ Battlelore - Doombound (2011) [MP3|192-320 kbps]<Epic Metal>
 ```bash
 magnet:?xt=urn:btih:BA40C8B6C51B80AED73127847D35357D5AD641D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ James LaBrie - Prime Cuts (2008) [FLAC|Lossless]<Progressive Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

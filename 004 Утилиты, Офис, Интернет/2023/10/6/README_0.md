@@ -20,8 +20,7 @@ MyNotes Keeper многоцелевая (   Читать дальше...   )Я�
 ```bash
 magnet:?xt=urn:btih:858A4ECF1594FBF883BE72AA06EB89DB873F052F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Print Conductor автоматизирует массовую печать фа�
 ```bash
 magnet:?xt=urn:btih:752F99816A6C6EEBB146E6AAC06A009673C1B684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

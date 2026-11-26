@@ -19,8 +19,7 @@ Stephen DeStefano | Animating SwiftUI Applications (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:B6D5CA99800EEB22B48A346FE6BAEA6F822D7779
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03DABDF7F2528BD7BD260074EB3A24B93DB0CAFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

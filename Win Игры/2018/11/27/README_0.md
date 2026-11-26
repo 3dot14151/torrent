@@ -19,8 +19,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.0.6/dlc) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:CEE829379EB2A396A3F2CFD505754FFE056549B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost: Via Domus / Lost. Остаться в живых (2008) [Ru/En] (1.0) Lice
 ```bash
 magnet:?xt=urn:btih:F5BE060FACD395F7D0268C02471A9ABADB95FB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Warlock: Master of the Arcane - новая стратегическая игра
 ```bash
 magnet:?xt=urn:btih:61925F511A2F2433FC483A9019B460AC24715458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

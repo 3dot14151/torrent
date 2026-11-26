@@ -19,8 +19,7 @@ Sherlock Holmes: The Case of the Silver Earring / Шерлок Холмс. За�
 ```bash
 magnet:?xt=urn:btih:06054824574DFE95AFEC8B274861789A815B3897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

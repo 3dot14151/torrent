@@ -25,8 +25,7 @@ H.E.A.T — шведская рок-группа из Upplands Väsby, игра�
 ```bash
 magnet:?xt=urn:btih:F128002155276B9287FF5E8F65BF4C7B7E90718B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Sacred Steel - немецкая пауэр-метал группа из Людв
 ```bash
 magnet:?xt=urn:btih:090936DC08D192DA7FD5E892279DC877E983A5D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

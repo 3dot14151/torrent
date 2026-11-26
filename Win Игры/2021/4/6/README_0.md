@@ -19,8 +19,7 @@ Mystery Tales 14: Master of Puppets / Загадочные истории 14: М
 ```bash
 magnet:?xt=urn:btih:369CC9BDB26D61D5888EF3EE2268CA76B2CE62E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ENCODYA (2021) [Ru/Multi] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EB575C3A8DA3CA9B20632C758EE8EE10EC3575B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0.03202023) Repack Oth
 ```bash
 magnet:?xt=urn:btih:1B3E34260BDAF868F6C5E0DA13355EE54363F1AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

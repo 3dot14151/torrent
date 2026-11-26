@@ -19,8 +19,7 @@ InShot - впечатляющее своими возможностями и у�
 ```bash
 magnet:?xt=urn:btih:B8ECEF4B909F0A5124FA782F2DD42ED1E7FA0552
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ VPN Inf - быстрый, безопасный и безлимитный VPN
 ```bash
 magnet:?xt=urn:btih:5EA9B0345E17483D19977CF31BEF4312618337B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Square Home - красивый, стильный и функциональный
 ```bash
 magnet:?xt=urn:btih:2409C7D752832472B5539A8251ED550F5E35F8F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

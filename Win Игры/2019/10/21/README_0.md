@@ -19,8 +19,7 @@ The Andersen Accounts 3: A Voice of Reason / Досье Андерсена 3: Г
 ```bash
 magnet:?xt=urn:btih:44B041EC7E226836B946422F95C5F67D68DB2F87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paranormal Files 4: Hook Man's Legend / Паранормальные явлен�
 ```bash
 magnet:?xt=urn:btih:0F8455540B934D78041D595A54AFAF106E22BE95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ice Age Scrats Nutty Adventure (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:863EA38827EEA4C3F0E99E4862C7F7CA15DAB51A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deliver Us The Moon — это научно-фантастический три�
 ```bash
 magnet:?xt=urn:btih:85B510F51CAB12E45B17836B99521748BEB49238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

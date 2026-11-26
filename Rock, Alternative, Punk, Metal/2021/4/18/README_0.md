@@ -22,8 +22,7 @@ CD - 1 - Buddy’s Song:
 ```bash
 magnet:?xt=urn:btih:54C81233B17E5C4C5D44ABDA8CDE6B9F4AD41872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Echoes Of Eternity - As Shadows Burn (2009) [FLAC|Lossless|image + .cue] <Progre
 ```bash
 magnet:?xt=urn:btih:1F4084957A37D090A34F67278A1FBD24A97F275E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Intelligent Music Project (III, IV, V, VI) - 4 Studio Albums (2015-2021) 4xCD [F
 ```bash
 magnet:?xt=urn:btih:DA7943424A014E566AAFDCAC7B9E4671ACDD525F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Evanescence ‎ - The Bitter Truth (2021) 2 CD, Deluxe Edition, Limited Edition 
 ```bash
 magnet:?xt=urn:btih:578620BD3A587EC711264FA42059AD5494BCB12A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ VA - Виктор Цой Воспоминания Литва/ Viktor Tsoy Tribut
 ```bash
 magnet:?xt=urn:btih:080AAA9B7CD38DA3DB5D4B83A8D69B909409DAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ Narnia - Aslan Is Not A Tame Lion (1974) Reissue, 2017, Hiatus [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:0328ED82757A031A5BA3CCE347F7B4A32DBA0368
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Iain Ashley Hersey - Nomad (2013) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C301DB0C82D015A15F002BA6EA15F42C23329C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Peter Hermansson - Second Glance (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:59693CD34C3DE133AA9CC42CB8F761E5DF0E1FD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Resident Evil 3 – полностью обновленный ремейк хо�
 ```bash
 magnet:?xt=urn:btih:945781889B5FBA859D6D57765E1A1E04C29DFA9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Baby Steps (2025) [Ru/Multi] (HotFix 2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:714DCE0C1839B44A0276F2F5670B5317F44DE3D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Total War: THREE KINGDOMS - эта игра из популярнейшей ст
 ```bash
 magnet:?xt=urn:btih:113EC2D076954D421B9015BF544F2FC91A290187
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bye Sweet Carole - это уникальная хоррор-игра, сочет
 ```bash
 magnet:?xt=urn:btih:D5C1A3485ACABE70AFCE0319118E99D97547F8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5FB7DC79C23E3DEFD9CBF3509CC3C63AB1901F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:77315C49E222354C34F3FF7EA072DC019B065301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Project Hunt - приближенный к реализму симулятор �
 ```bash
 magnet:?xt=urn:btih:4872FD855F0E9907C8262BFEF9F765BEC5C28942
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.10.13.12.03/dlc) Repack Oth
 ```bash
 magnet:?xt=urn:btih:FD25022680770E294211DFB5F22A91B1F337EF00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

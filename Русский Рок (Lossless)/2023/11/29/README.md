@@ -22,8 +22,7 @@ Verdath - Полярная ночь навсегда (2023) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:954922C35F3EAB21BC86AB5666EAA35B208690A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Meija - Grim (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, progressive meta
 ```bash
 magnet:?xt=urn:btih:B21C2806B3F4C70AE7ADA5443E7AD9F3A8D0D300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B99F2AA069290FF710CB750EB2BD56A84CADB311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

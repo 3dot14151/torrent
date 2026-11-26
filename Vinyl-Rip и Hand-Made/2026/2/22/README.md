@@ -22,8 +22,7 @@ B1 Suite In D Major(   Читать дальше...   )Жанр: Classical, Baro
 ```bash
 magnet:?xt=urn:btih:7D2A9B1B0E2162B8C826E3AD03B733157CB27741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

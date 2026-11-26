@@ -19,8 +19,7 @@ Star Trek: Resurgence - интерактивная новелла, событи�
 ```bash
 magnet:?xt=urn:btih:AFEE4D098E120D5EAC70C04998A38039C1846D5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

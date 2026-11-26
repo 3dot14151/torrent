@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:2CDB38F669C7EB198D56C5DB7BE4D3A3D93CA565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Pink Floyd - A Collection Of Great Dance Songs (1981) [MP3|320 kbps]<Progressive
 ```bash
 magnet:?xt=urn:btih:ABAA39628D9E0FD2906C3B4E370DD4404CDD3FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D38C01E07ADF7AFF586D5B098B3C6F3CA8D8B893
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Muse - Absolution (2003) [FLAC|Lossless]<Alternative Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

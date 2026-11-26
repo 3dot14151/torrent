@@ -26,8 +26,7 @@ Leider - Seven (2012) 2CD [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Asia - Anthology (1997) remastered /2012, Sony Music Japan/ [FLAC|Lossless]<Prog
 ```bash
 magnet:?xt=urn:btih:0B85D71E4429CCBE935DF997347B4E173F43C642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ The Rolling Stones - The Rolling Stones Hyde Park Live (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:6033A52F7CAC797E7081584211F055433B67E4EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ The Rolling Stones - Exile on Main St. (1972) Super Deluxe Edition, Japan SHM-CD
 ```bash
 magnet:?xt=urn:btih:E3DE9D82ED15572F958AD5882E9B37430977FBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Deep Purple - Greatest Hits (2008) Steel Box Collection [APE|Lossless]<Hard Rock
 ```bash
 magnet:?xt=urn:btih:A5B178A5C650068585C13E7AA9E40F7914B19B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

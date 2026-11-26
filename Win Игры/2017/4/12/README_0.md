@@ -19,8 +19,7 @@ The Sexy Brutale - это трехмерная приключенческая и
 ```bash
 magnet:?xt=urn:btih:AD41E16E2A98148C51C8C057A79BCCEC1A9FC4FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Game Dev Tycoon - качественный симулятор разработч
 ```bash
 magnet:?xt=urn:btih:975CDF374C54E32796634D054F2CAF3A6C48ECF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

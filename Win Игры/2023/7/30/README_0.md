@@ -19,8 +19,7 @@ Cursed Fables 3: A Voice to Die For / Проклятые предания 3: Г�
 ```bash
 magnet:?xt=urn:btih:A814233A5DFF04DC07738A8D895E79ABA4A4A7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Frozen Garden - хоррор от третьего лица, вдохнов�
 ```bash
 magnet:?xt=urn:btih:DC4530F3DE7AD6C72DF82C5DDE254A54F875C5CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hollow Knight 1.0 (Unofficial port) Mod by Dan Cooper [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:76575621C5FA527A94D3014415FC6A7F0B2CBFD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

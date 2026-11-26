@@ -19,8 +19,7 @@ Resilio Sync - это бесплатное приложение для синх�
 ```bash
 magnet:?xt=urn:btih:3341E4DBA087CB9F0ECA36BA3F56E7DA93AECD55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

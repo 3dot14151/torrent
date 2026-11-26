@@ -22,8 +22,7 @@ K.P.M. (ex.Eloy) - Run For Cover (1997) [FLAC|image+.cue]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:06A4ED3FAA3B2464875DEAAA8F94A5C749DD9FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Metamorphosis - Nobody Cares (2003) [FLAC|image+.cue]<Neo-Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:D334E5F862B696ABE5CBD103AF59D3FFE7E7C5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bangles - Greatest Hits (1990) [FLAC|tracks+.cue]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:4DAF2E03292EC5C01FD80683CFA6A44577E4FA07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Placebo - Black Market Music: B-Sides (2015) [MP3|320 кб/с]<Alt. Rock>
 ```bash
 magnet:?xt=urn:btih:6CD7FAA024245D8DE247E59A343B26F94794A08A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -139,8 +135,7 @@ CD2 - 01:12:04Треклист CD1:
 ```bash
 magnet:?xt=urn:btih:97663EF583779EE69DA6E03099CC2D49A1866599
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +163,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E4E246CF78332872ADEB9A429C460FB87396BF04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ Joe Cocker - The Life of a Man (The Ultimate Hits 1968-2013) (2015) 2CD [MP3|320
 ```bash
 magnet:?xt=urn:btih:E0F2F1333002C56EB0B928E40308ED1932FC5296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

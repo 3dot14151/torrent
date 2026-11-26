@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C52417ABBADD0E7577A0BAF77668F7E8605BFF38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:064D8683B41F87A4F831BAE9F606C5C91F72D229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Televizo  (ранее OTTplay) IPTV v1.9.3.21 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:285A78F9CB79027157FF2B3B3B6D89D9E5E21325
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VA - ICONYC Five Years, Pt. 1 (2021) [AAC|~331 Kbps] <Progressive House, Melodic
 ```bash
 magnet:?xt=urn:btih:D8463C0A5EAB9A2A5B56497AFA96C457EE427FF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ VA - ICONYC Five Years, Pt. 2 (2022) [AAC|~332 Kbps] <Progressive House, Melodic
 ```bash
 magnet:?xt=urn:btih:A1D2A908B94C69AF44495B8F7ED936899E21DF95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ VA - Discovery Series 002 (2019) [AAC|~335 Kbps] <Melodic House & Techno>
 ```bash
 magnet:?xt=urn:btih:1A95286E318E18026FDD022C3DC9CAB9DE623A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ VA - Discovery Series 001 (2019) [AAC|~335 Kbps] <Melodic House & Techno, Deep H
 ```bash
 magnet:?xt=urn:btih:120CA5006F3AC76066DB2B4E7969E923DEDF99FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Discovery Series 003 (2021) [AAC|~342 Kbps] <Melodic House & Techno, Organi
 ```bash
 magnet:?xt=urn:btih:084FB1FC34C61072FE1E16FF9EC4474B488D25FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ VA - Discovery Series 004 (2022) [AAC|~331 Kbps] <Progressive House, Melodic Hou
 ```bash
 magnet:?xt=urn:btih:F6637F3468547A9F19D54B511A7C19BB935F90BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Dizzy Gillespie Quintet - Treffpunkt Jazz (1961) 2020, Jazzhaus [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:E0B303A8832823334B957AE63DCE63AEDEBB3267
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Chilhouette - Questions (2015) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:07EA07480CA7FD2C18A1ECF1410853840C37F52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ VA - My Chillout Playlist (2022) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:5FAC1936462811CA619D82BE9AC910DE128BF636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ VA - Winter Lounge, Vol. 2 (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:93F9A46BD4503B6F26A32B2BA32D2AFDD25413C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ Chilhouette - Sights from Within (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Down
 ```bash
 magnet:?xt=urn:btih:B117F6056482312A6600470FD68468A8B7037A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Crunkz - Never Stop Ep. 4 (2022-01-29) [MP3|320 Kbps] <Tech House, Future House,
 ```bash
 magnet:?xt=urn:btih:931E78DC597C16B18B0EDB8918EB95BD0C541CD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ VA - Chill Out Lovers, Vol. 1 (2022) [AAC|~317 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:E72B8FCDE4617E354A14BA5467B271D32210FBBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ VA - Balearic Sunset (The Buddha Ambient Edition), Vol. 2 (2022) [AAC|~275 Kbps]
 ```bash
 magnet:?xt=urn:btih:1A03D49959F9D5B171D59714ED6D23B35151FEE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ VA - Winter Lounge, Vol. 1 (2020) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0791523FDE63B9A5BF50335EC5F27E5C97970A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

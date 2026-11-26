@@ -22,8 +22,7 @@ Moonspell — португальская метал-группа, основан
 ```bash
 magnet:?xt=urn:btih:AD4FD653BE858657F16EAF3CEBBB7C16D282A735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5768FFFB9DE22D4CA26F74B2BC23B6FE0046FA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ B2 3. Finale. Alla breve(   Читать дальше...   )Жанр: Classical,
 ```bash
 magnet:?xt=urn:btih:C5F76111173180AF70D7042F6EC9C570DDDD5996
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Montego Bay(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:142276DB4C98E42D32D55206876FF2255603C103
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

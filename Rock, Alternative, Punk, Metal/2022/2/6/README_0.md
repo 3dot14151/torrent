@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:42D032939D1FDB8A3437287F2A45013A06A8EFB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Epic Metal (2022) [MP3|320 Kbps] <Metal, Rock>
 ```bash
 magnet:?xt=urn:btih:543227C737A447E3F322644D88116C71BC1D8E71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Jolly Joker - Loud & Proud (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam
 ```bash
 magnet:?xt=urn:btih:FEF7CDB41EB73F02E28D4997CA32D4A790336511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

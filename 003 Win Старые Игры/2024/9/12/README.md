@@ -19,8 +19,7 @@ Xenonauts: XNT - Into Darkness (2017) [En] (6.0) Repack/Mod AndyFox
 ```bash
 magnet:?xt=urn:btih:9545B9688130F12ED98578A208157D74BC74E622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

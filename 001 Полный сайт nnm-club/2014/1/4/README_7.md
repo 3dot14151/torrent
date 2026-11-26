@@ -18,8 +18,7 @@ Batman: Arkham Asylum GoTY Edition [PS3] [EUR] [RUSSOUND] [4.30] [3k3y ODE ISO] 
 ```bash
 magnet:?xt=urn:btih:BB87113D882812E250E915436B9CB9ABC65BCAD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36BC8C7ABC9CF078C7937D0ED5A2AE679770CE3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ ProShow Producer 6 – новая версия приложения для со�
 ```bash
 magnet:?xt=urn:btih:3CF8EEFDB993A01318726E2EAA3BFE066E404FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:805DB2DFA83332C6F0528D4E6A918A2854B1E6A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Multi Flash Kit 4.1.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:C31991D3AE90D3ED05882CF94D279E1E55846BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A59B21A26A3C2D77F6801F3B1B9E5FAD52A9AE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FA355AAF590AE058B42E68402997DA834580B55F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ CorelCAD™ 2014 предлагает стандартные для отрасл
 ```bash
 magnet:?xt=urn:btih:0860FEA2882575A7F0F518DFF6C8C00F09AAB538
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E576E71F848E7F0FBD6AE196895D4E134A881F23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Wedding Pack - After Effects CS4 - CS6 проект. Легко настроит
 ```bash
 magnet:?xt=urn:btih:7208C6515823DDAA1A360D01572CE31C4D5A19F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Qt — кросс-платформенный инструментарий раз
 ```bash
 magnet:?xt=urn:btih:70006D71A4E999E25382908C26183D64B203FA87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ Kagaku na Yatsura / Всё ради науки (2010) [5 главы] [Манга
 ```bash
 magnet:?xt=urn:btih:3433065B7AC03804DA4FC5C8D1D4896D9ED22C2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA2BB84677D86AFE1CD2AA11CED59E1BEF231D21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F40E7D9ED01B1A27C059197520480FDD20D9F283
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ Platinum Hide IP - программа, предназначенная для с�
 ```bash
 magnet:?xt=urn:btih:2E18D76527901B50B32B374306644E53C13BE816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:790ECE75381F9AA639D8B70386DA6A3A9EF9157E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +432,7 @@ Minecraft - игра жанра "песочница" с видом от перв
 ```bash
 magnet:?xt=urn:btih:67BDA0EC613AA504E940870F5A0A4DE6C682078D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:65AF1B5F7D62CEE0E456653661CB3314E661123F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +482,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19A723C3462E973C0CA53A4D7CA6F6D34AF8FB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +507,7 @@ Sword Art Online: Extra Edition / Мастера Меча Онлайн: Cпеш�
 ```bash
 magnet:?xt=urn:btih:BD6F8FEEAFE1D59BB74072838E0DAE71AC11D643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +532,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A1FB55F1AF0C667EBC7C8DF38A07D9FFC57017A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +559,7 @@ Magi: The Labyrinth of Magic / Маги: Волшебный лабиринт (Т
 ```bash
 magnet:?xt=urn:btih:CC57FE0CDD347C138522DAC33B1832EC0E0DB0FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6BF859EEA5C1021DA8F5ED99BD9CE02AB8066D50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +612,7 @@ God of War - HD Collection Volume I [PS3] [EUR] [Ru/En] [3.15] [Cobra ODE / E3 O
 ```bash
 magnet:?xt=urn:btih:7C12EF91362E37159BAFEA6D0942CDB7FA2DA8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +644,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ Nozoki Ana / A Peephole / Дыра (2009) [1-117 гл.] [Манга] [Русск
 ```bash
 magnet:?xt=urn:btih:92DD5141BD28D6625ADBEB5DE13E5E7F29F66F73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

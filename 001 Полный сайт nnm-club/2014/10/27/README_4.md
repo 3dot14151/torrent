@@ -18,8 +18,7 @@ Advanced SystemCare - программный пакет, содержащий м
 ```bash
 magnet:?xt=urn:btih:3EBD922CA20971F2B8779A1801EA0565C96788B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Riddles of Fate 3: Memento Mori / Всадники судьбы 3: Помни о
 ```bash
 magnet:?xt=urn:btih:AE6366BB93F35D7D69623CEEE56B4046150D1790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Axialis IconWorkshop Professional 6.80 RePack by X-NET [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F1261813B5B202FD6C227D380503D8D8D55F0513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B49BE9D7943F2DD05A72BB167DD1CA1FED0FA2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ VA - Nothing But... Pure Trance Volume 2 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:BAAF892F5AEA59E7A93A73A09146298397723752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Rap-Sound VoL. 3 (2014) [MP3|320 кб/с]<Rap, Alternative Rap, Gungsta Rap
 ```bash
 magnet:?xt=urn:btih:C6EAB2EA420E46E8F803C9C258FABA78BFE2F6AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C8E971A4325653A433E06841F7F4EE13CB882BD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VideoHive - 10 Film Credits - 770597 [AEP]
 ```bash
 magnet:?xt=urn:btih:C93F19593EF9BDC182BBCD62187553C92DB3D9CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7943B811798CACC39D1D205D0EA298D1393A7A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ GSam Battery Monitor Pro 3.18 - Мониторинг энергопотребл�
 ```bash
 magnet:?xt=urn:btih:5C4782E3CC8DBCD3DEE0E5E2873B60A0D043CFDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ Wallpapers - Sexy Girl Full HD 4 [JPEG]
 ```bash
 magnet:?xt=urn:btih:DC9F56EC4AE2B33EF20EF91A518B70BF37A5A4D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:9F811882620655CEAE89C6B2039119A3403D09FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +346,7 @@ How to Survive – зомби-экшен на выживание, действи
 ```bash
 magnet:?xt=urn:btih:1A5FEFEBCC580BADEDBD2FF9EA46118980310A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ IObit Malware Fighter Pro 2.5.0.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E3F3B4A71740FC8A1B2EC14335E023888D81CB66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Sky Fighter [PS3] [PSN] [EUR] [En] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2010)
 ```bash
 magnet:?xt=urn:btih:FC4DA9428AC92E15A920F8A403019FB50B240084
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E6DE13C2D1A20B72CDF9D26C23AE63C6220AC19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B72AC39430F0DFF6FED29DAC185553A7FD544D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Pro Evolution Soccer 2014 впервые в истории знаменитой 
 ```bash
 magnet:?xt=urn:btih:3594F9D1DBEF88999B6DC48292715D3098651DA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +500,7 @@ Another World - 20th Anniversary Edition [PS3] [PSN] [EUR] [En] [3.55] [Cobra OD
 ```bash
 magnet:?xt=urn:btih:B26123B4A51BB76355EDBC1B71C2DBB4A4AA8B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95581CA4161704B30418C6A84DF39E6262E95B26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CCE47638DF0A86AB9EB6BDB7B859F7DED13FFA3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ Rammstein - Dem Regen (Bootleg) (2014) [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:F4040390C3BE5A2950A76991F7FC2CDFD222381B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D6F765DD9BC74051F682C4B5D9366C737356815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ KMSAuto Net - автоматический KMS-активатор для опе�
 ```bash
 magnet:?xt=urn:btih:95E721A1F24C6C4650E96C84CA2081EBDD1491E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ Splatterhouse – это ремейк знаменитой одноименно�
 ```bash
 magnet:?xt=urn:btih:1CB4873872B43FF6F04BDC874F5A1BAFFE314B53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0674234E16E18BA56688B6974D5B9D44701C9F57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

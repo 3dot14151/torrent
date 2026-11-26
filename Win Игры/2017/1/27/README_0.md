@@ -19,8 +19,7 @@ Perfect Universe - Play with Gravity - это набор из девяти ми�
 ```bash
 magnet:?xt=urn:btih:C45DCB5C34C828A4A9923D8687640B98BE305F98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Valley — приключенческий экшен с видом от перв
 ```bash
 magnet:?xt=urn:btih:DB6CAE45D38DEAFB458ECB48E757E11EDF48D800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Double Cubes (2017) [Ru/Multi] (1.0) Repack MaggotFreddy
 ```bash
 magnet:?xt=urn:btih:468D12B7B3483D107EFB2C01CE8521A7D4243677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Card City Nights - увлекательная карточная игра, в к
 ```bash
 magnet:?xt=urn:btih:95DB375C010BEA230A818AA4D0B28142DDC793E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Neon Chrome - это жесткий двухджойстиковый шутер 
 ```bash
 magnet:?xt=urn:btih:75DF2D50F07120CFF3E1E857F3E6BE7539C25CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:D74688686D7C955F9459B8B01D70726F05923407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Rocketbirds 2 Evolution (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:2B7AA0FCB25CCC1E2CD492763446D638DEC8FD0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

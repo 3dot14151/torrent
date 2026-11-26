@@ -19,8 +19,7 @@ Death's Door (2021) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2C0A9149AFCFFE20FA5DD16E3EAA9BABC9A8D1F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Coastline Flight Simulator (2021) [Ru/Multi] (1.0) Unofficial PLAZA
 ```bash
 magnet:?xt=urn:btih:89556BC7749FF109F36C08AF0C9C48A393E098E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

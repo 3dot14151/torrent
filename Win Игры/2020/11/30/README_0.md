@@ -19,8 +19,7 @@ Paranormal Files 6: The Trap of Truth / Паранормальные явлен�
 ```bash
 magnet:?xt=urn:btih:C6500C6F5AE0473A2351E014D84FAAE9E02D2771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystery Case Files 22: Crossfade / За семью печатями 22: Изло
 ```bash
 magnet:?xt=urn:btih:AD4AD89DBC0CBCF7181518D4376210DFE6538FC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mesmer (2020) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:24A5C553CFF9D424AB1CAA51E612DC0C05F2F394
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

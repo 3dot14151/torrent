@@ -19,8 +19,7 @@ Duskless: The Clockwork Army / Бессумеречный город: Механ
 ```bash
 magnet:?xt=urn:btih:08A16790BCB688328C219A6A759EF1DA5F3341F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:E0B537EC939809312DBDED78CFB50B519ED59A33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

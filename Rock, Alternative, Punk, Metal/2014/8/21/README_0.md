@@ -26,8 +26,7 @@ Arctic Sleep - Passage Of Gaia (2014) [MP3|320 кб/с]<Doom Metal, Post-Metal>
 ```bash
 magnet:?xt=urn:btih:D34DA0D2B5FF604049173C4431DC08DE76D44B70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Semisonic - Feeling Strangely Fine (1998) [MP3|320 кб/с]<Alternative Rock, In
 ```bash
 magnet:?xt=urn:btih:498DDF110546108426437187D560DAC86E289F72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98B6B7299ECAD287BE53763E9CBB054BDE10721E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ VA - Lyapis Crew Трубьют, Vol. 2 (2014) [MP3|320 кб/с]<Alternative Roc
 ```bash
 magnet:?xt=urn:btih:6BE183220C68CB9CC593706C136881E6104F9112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

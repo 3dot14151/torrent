@@ -18,8 +18,7 @@ Trepang2 (2023) [Ru/Multi] (72.00/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:71B51F24DAC66962714BBDA748D11C7373254E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD9
 ```bash
 magnet:?xt=urn:btih:5B4FAE9E91B9102F370B8F678903E733FA16D545
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 ```bash
 magnet:?xt=urn:btih:1AAAD09F2E35FF67AD64FF2B2FE145728A6885BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AECDE71E7B6B03838BA02E11F2B381AF7F12F2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Ritchie Blackmore's Rainbow - Black Masquerade (1995) DVD9
 ```bash
 magnet:?xt=urn:btih:3FFEE0281B653F23C3D1895667B389148D94CBF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 ```bash
 magnet:?xt=urn:btih:B640D8BC6E08D5398212D87CD51A9EAEFCF3B0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC69EDBB6ABB0190D0603509E57DEA3420872734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ The Doors - 30 Years Commemorative Edition  (2001) DVD9
 ```bash
 magnet:?xt=urn:btih:589FB1AB2367A9CDAFBE5E3C267DD99C8AC10124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Corona Renderer - это популярный рендер-движок для 3
 ```bash
 magnet:?xt=urn:btih:7AF21CBAE69A3C77C667269421F613602572C3A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E2AC006BE37C68CAFA815EB0D000690A007CFCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +330,7 @@ Passpartout 2: The Lost Artist позволяет игроку взять под
 ```bash
 magnet:?xt=urn:btih:B83AE3775B8674C7CF1FA2C6654D7EEC665A0937
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85E0FB2801E3C46BEF3A8C56758E3AAFA07FE4D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2728AE5B930048E8357E594D5896FAD62D72ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,8 +405,7 @@ Next / Следующий (3 сезона) (2001-2003) DVDRip
 ```bash
 magnet:?xt=urn:btih:C8B9EE4C7D53B7A11FAC2F5555F4BE5C50449C62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +430,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:68E01E00CCEEEAE2CA6E713883C106C450A4E41E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +455,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0056349C119CA3CA80549ACF6D1370AA74384DE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +480,7 @@ POSTAL 4: No Regerts (2022) [En] (1.4.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3D67DACE3D2DE55FA8D88FF7FB2607CD84B51965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +505,7 @@ Mount & Blade II: Bannerlord представляет собой долгожд�
 ```bash
 magnet:?xt=urn:btih:50C0259F395B2A0AAF745138ECA2FC24C53C5C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +530,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) WEBRi
 ```bash
 magnet:?xt=urn:btih:B160EB142B74618236BCA7A4DBF266C03FDF957B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49E0B71A812E72AF2FE07AAED9177A7275C829CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +580,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:FE592C76D0ED34467340D54449A1DD16EFF1DC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +605,7 @@ The Lullaby of Life (2024) [Ru/Multi] (1.0.7.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5D2EA5140DBE5EE3B03EF6B3D4AF5E211C151DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +633,7 @@ VA - Summer Dance Hits 2024 [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:68574231570009B382CD6CE7C4D6BBA5535176B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +658,7 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 ```bash
 magnet:?xt=urn:btih:7A31F8CB002EBD0CB976D6238E07D52DA3DF7E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

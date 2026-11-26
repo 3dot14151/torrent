@@ -19,8 +19,7 @@ Fear for Sale 2: Sunnyvale Story Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:582A82276977385B3D9F23F85ED5E482738DE83E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Puppet Show: Souls of the Innocent / Кукловоды. Похищенные д
 ```bash
 magnet:?xt=urn:btih:F104794B6A593C01A86E46EDC090460417DB9271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mountain Crime: Requital / Игры со смертью. Возмездие (P) 
 ```bash
 magnet:?xt=urn:btih:2A464BD4C431F04749255464796956944CA2BC64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rhodan: Myth of the Illochim / Перри Родан: Цена бессмерт�
 ```bash
 magnet:?xt=urn:btih:08D24F3A8ACC88646934F780A4184A0064552C3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Hoyle Casino Games 2012 (L) [En] 2011 | TiNYiSO
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

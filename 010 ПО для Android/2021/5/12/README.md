@@ -19,8 +19,7 @@ Retrica Pro 7.4.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8AC530CE5BE64709A3AB07257C45281E1790CB56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

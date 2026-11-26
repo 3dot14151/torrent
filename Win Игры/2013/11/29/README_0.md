@@ -19,8 +19,7 @@ Crystals of Time (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:057D80A201145A33DFAA3C6B8017F26C8280576F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dance of Death / Пляска смерти (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:DBE74A487397ED24DFC4FD726B00D453452F4761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Antique Shop: Book of Souls / Магазин древностей. Книга д
 ```bash
 magnet:?xt=urn:btih:4DD42C54F23E91AC416DFF884B12AD5A9FC877BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

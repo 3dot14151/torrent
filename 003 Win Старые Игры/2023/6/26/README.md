@@ -19,8 +19,7 @@ Warhammer 40,000: Dawn of War – Soulstorm – третий по счету а�
 ```bash
 magnet:?xt=urn:btih:52BD46115E34F7903C94228810A220A117BD4270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

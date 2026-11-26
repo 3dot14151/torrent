@@ -21,8 +21,7 @@ BrowsingHistoryView (Portable) — небольшая программа, кот
 ```bash
 magnet:?xt=urn:btih:AF63B8E4A463CD0CE9D81E59BBBBD11EDC581EB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Wise Data Recovery - утилита, которая позволяет быст�
 ```bash
 magnet:?xt=urn:btih:47A113FE8F96F2DF18DEA0CF3DDDA7F564F146B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

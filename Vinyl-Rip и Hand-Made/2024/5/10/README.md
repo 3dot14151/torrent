@@ -22,8 +22,7 @@ Foo Fighters — американская рок-группа, основанн�
 ```bash
 magnet:?xt=urn:btih:FBD777DE3720436C7D4B0B11215EC9AF4E67A75B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

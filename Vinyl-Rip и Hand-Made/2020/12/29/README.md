@@ -22,8 +22,7 @@ Written-By – Michael Reincke(   Читать дальше...   )Жанр: Pop 
 ```bash
 magnet:?xt=urn:btih:EF67F2776AE8044D64831086BCA1C0D993A2DC05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

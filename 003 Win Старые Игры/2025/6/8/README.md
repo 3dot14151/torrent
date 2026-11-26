@@ -19,8 +19,7 @@ RollerCoaster Tycoon 3 (2006) [Ru/Multi] (1.0) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:F4C2AD6EDBA5585ED775A7160411A0B664ED3465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Far Cry 2 — Вы наемник, заброшенный в раздираем�
 ```bash
 magnet:?xt=urn:btih:9A0B0F72396C727D98DD2616D1609AFCFCB7A3FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

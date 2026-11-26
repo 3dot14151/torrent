@@ -22,8 +22,7 @@ It Bites - The Big Lad In The Windmill (1986) [FLAC|Lossless|image + .cue] <Prog
 ```bash
 magnet:?xt=urn:btih:072B8FC36C86932A25F578FA90892289DBC21E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Capital Gold Legends (2001) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Roc
 ```bash
 magnet:?xt=urn:btih:D672EE968B5F86E6EAA1E68377B30E2BDCAE134D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Rammstein - Paris (2017) Live [FLAC|Lossless|image + .cue] <Industrial>
 ```bash
 magnet:?xt=urn:btih:F6099B80125FCD89AF10DFF5EDCA2F3C5C543C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

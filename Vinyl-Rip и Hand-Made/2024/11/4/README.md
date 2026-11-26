@@ -22,8 +22,7 @@ Vision Divine — итальянская пауэр-метал-группа, о�
 ```bash
 magnet:?xt=urn:btih:0C2A7313DF0C0AD47EB459EECD38503B0A76631F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nonexist — шведская мелодик-дэт/трэш-метал груп
 ```bash
 magnet:?xt=urn:btih:EDC85D1A1E11A4EE9A9CDD983F2279786F8BC1D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

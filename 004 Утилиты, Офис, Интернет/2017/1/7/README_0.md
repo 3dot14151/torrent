@@ -19,8 +19,7 @@ Actual Window Minimizer дополняет стандартный оконный
 ```bash
 magnet:?xt=urn:btih:C89348878644214F15C333B525C4E5F2E1A2CA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

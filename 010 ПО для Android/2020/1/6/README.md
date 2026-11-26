@@ -20,8 +20,7 @@ Add Watermark Pro v3.0 (build 3004) - Водяные знаки в изобра�
 ```bash
 magnet:?xt=urn:btih:69C2273AEBC41E5DF7B49FAA7F729D0C68DCA5B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

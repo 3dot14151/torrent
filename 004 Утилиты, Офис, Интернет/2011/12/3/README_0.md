@@ -20,8 +20,7 @@ Volume Activation Management Tool (VAMT) 2.0 (RePack by Free_Soft v 1.0.1.2) [Р
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

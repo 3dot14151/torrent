@@ -19,8 +19,7 @@ Hello Venice (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:CE239C4492C49FC580F19833F0C364F5DCB8416C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jane's Advanced Strike Fighters [Ru] (P) 2011
 ```bash
 magnet:?xt=urn:btih:C52AD08C5E5F23A93493C58C79B0BA51CD1DF109
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ All My Gods / Круто быть богом (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:6E4C4DD04E0A0BA972729BB45CC1F068835A65C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Command & Conquer 3: Kane's Dilogy / Command & Conquer 3: Дилогия Кей�
 ```bash
 magnet:?xt=urn:btih:D20B82840257D0AAFAC07F6B3C6C76B3D3D72AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

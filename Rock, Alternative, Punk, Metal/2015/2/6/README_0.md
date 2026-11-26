@@ -23,8 +23,7 @@
 ```bash
 magnet:?xt=urn:btih:4AFDF386CA7E2A1254F93A994E3A35AFBD114070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Tony Carey - I Won it Be Home Tonight (1987) [FLAC|Lossless]<Classic Rock , Prog
 ```bash
 magnet:?xt=urn:btih:A35A6789359B961598F0DD7520D159F1E4F14221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ David Lee Roth - Greatest Hits (2013) The Deluxe Edition [FLAC|Lossless]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:13053F813CA8B2D0E9D4164CC0D394811CCC6DE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ U.D.O. - Decadent [Japanese Edition] (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:CDE51DB7C426EA725DF79EA549887C7EBD5EE86F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

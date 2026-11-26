@@ -19,8 +19,7 @@ Queen - Greatest Hits (2007) [MP3|320 Кб/с]<Рок>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ UFO - Too Hot To Handle. The Very Best Of UFO (2012) 2CD [FLAC|Lossless]<Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Charlie Winston - Hobo (2009) [MP3|320 kbps]<Indie(Folk) Rock>
 ```bash
 magnet:?xt=urn:btih:9685DB5923565F74ACD5B4DDDB2DE06547989F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Scorpions - The Platinum Collection (2005) 3CD [MP3|320 кб/с]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Jethro Tull - Discography (1968 – 2010) (73 альбома + 1 сингл) [MP
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

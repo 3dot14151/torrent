@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F25D363BDB5F8F5B58BF53F4B7C0BACA4C977DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93CEFEC7B24611C9B1EEE2A929395A068362F208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ KML - язык разметки географических данных для
 ```bash
 magnet:?xt=urn:btih:651DC81B5A3E118AEFDA183B7C1D1C2B6FD5C045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

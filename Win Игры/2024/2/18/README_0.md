@@ -19,8 +19,7 @@ Try to Survive Today / Попробуй выжить сегодня (2023) [Ru] 
 ```bash
 magnet:?xt=urn:btih:29AF84021325FEBADE22F70D328B1C6067ADECB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hearts of Iron III позволит вам сыграть в стратегию 
 ```bash
 magnet:?xt=urn:btih:DF0973350B6802221C2EB19114E70AF3C72C8C08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B66903FCEA751379E13D656802D7B026B2E0564D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:5E4BC40E6EC1E65B5EFB93C0A3AC000FF60F3708
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Siberian Village (2024) [Ru/Multi] (0.97) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:23A5B6EC1995F9AAE6C7877B617467CD6E0D564F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ True Fear: Forsaken Souls Part 2 – продолжение атмосферно
 ```bash
 magnet:?xt=urn:btih:B79638AA7534A9986B98AA8E0CF8C2C9EBA8A4B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ True Fear: Forsaken Souls Part 1 – первая часть трилогии «
 ```bash
 magnet:?xt=urn:btih:E89903DA1E34655098F0191C198BB605A58DFD16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Touhou Danmaku Kagura Phantasia Lost - это ритм-игра, построе�
 ```bash
 magnet:?xt=urn:btih:EBE3BA793507DB32648E26C5F144A381887D12D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:3D63E190E53754C09BCA6200475228DA4EFFF811
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

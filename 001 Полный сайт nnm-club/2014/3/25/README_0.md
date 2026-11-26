@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F214A9F6E21E3B3EA610E528DF047B1DA0BAAAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ VA - Ferry Corsten pres. Full On Ibiza (2013) [MP3|320 кб/с]<Trance , Progres
 ```bash
 magnet:?xt=urn:btih:33589AA4C1B1E0151368531939FF6E90E1AE942F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ VA - Dance Hits Vol.1 (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:21AF5D581C8FE2049506B5B548D04BCF98DD3B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ VA - JOOF Editions (Mixed by John '00' Fleming) (2014) [MP3|320 кб/с]<Trance 
 ```bash
 magnet:?xt=urn:btih:5B933E119F6D3406E6F8A62549121C668800EA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ VA - Top Relaxing Wellness Chillout & Spa Music (2014) [MP3|320 кб/с]<Easy Li
 ```bash
 magnet:?xt=urn:btih:6A35AD91312DD7F557FD064679433BA7613A3939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ VA - Milchbar Seaside Season 6 (Compiled by Blank & Jones) (2014) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:FA7F25497EAB99933CA7FE6F9F425283F4545310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D4877C06455346E15463D22158622B25FB3EB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +242,7 @@ Opera Magna - Del Amor Y Otros Demonios: Acto I (2014) EP [MP3|320 кб/с]<Powe
 ```bash
 magnet:?xt=urn:btih:F9C83F33B172738962805D8C4496962ACE42109D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ Format Factory - многофункциональный конвертер ра�
 ```bash
 magnet:?xt=urn:btih:D27277114E09C79E3CA1741D833D2F185B8ADBE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +296,7 @@ HueShifter отлично справляется со своей задачей.
 ```bash
 magnet:?xt=urn:btih:7CB5F58DF31A487386DFF34679769DE319200E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +330,7 @@ Chris Botti - To Love Again (2005) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:E9349DD77AA4CE4E21072419D3B6ACA200F4D27E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +355,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0AA5C7AEB51B4D6F64185B8BB6B074125EEC0A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +381,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:353ABCE23070810C0C5B0B6D08FEFE9C0418F5D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ Basarabian Hills - 2 Albums (2013-2014) [MP3|320 кб/с]<Atmospheric Black Meta
 ```bash
 magnet:?xt=urn:btih:AD253E82D06ABDC886A3D280D022BE03FE435636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,8 +436,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06914E0DD7142863EC157870E7A8071D2A68288C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +469,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:38ADB00301557F4C171E40C5834E9B662F6C28F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB46590FF6E65F98A15389291BFD00DEA19537C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +528,7 @@ Conquering Dystopia - Conquering Dystopia (2014) [MP3|320 кб/с]<Progressive M
 ```bash
 magnet:?xt=urn:btih:0E96E58C7E837B1CC8943B58E1732B5DA77B23F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:13154D0BDF7378BD5659E2B01EDD4540F17A4097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F52E41F7059C105AFC5564148057DB4F9D31DF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81AD797BC6246CD4601CA0646532CDB239D0D410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +646,7 @@ VA - A Psych Tribute to the Doors (2014) [MP3|320 кб/с]<Psychedelic Rock, Ind
 ```bash
 magnet:?xt=urn:btih:512002D67EE8B75089308E6369183223ACD92445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:28555CDA41B141D0C723890A2B8E4B99C2F9FF9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:862E8461EBB1539E6BEC8FA2236A70043D7DAFA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -748,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0D84B3F2B05911BE870B28F5713D6023FCDEF54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -775,8 +750,7 @@ Garmin: City Navigator Southern Africa NT 2015.10 (03.2014) <En>
 ```bash
 magnet:?xt=urn:btih:D46C234964493D839A8FB4263DE307AA9011CA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ AirScreen является самым передовым беспроводны�
 ```bash
 magnet:?xt=urn:btih:9CABC3427EAB9CC5472FB4B6FB25CF2F7A9CEB60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gismeteo - погодное приложение тире клиент для р
 ```bash
 magnet:?xt=urn:btih:71D8B18CEB592DAC43627AEF2FFBD0A885A7096C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ HD Camera Pro - Отличная камера с множеством настр
 ```bash
 magnet:?xt=urn:btih:5A1CCFC8F4E30B9631A76631ECB1E53883FE729A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

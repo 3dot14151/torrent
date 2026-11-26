@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:75A7192BCD94965A2F2E3A930CD4AA13F59AD8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B078152672B675A537FADFFF3F40C0AF8389FA36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D111FA3C44197B7064B74EEE6FDA1C1B962E9FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Röyksopp (Royksopp) - Discography 78 Releases (1999-2020) Wall Of Sound, Virgin
 ```bash
 magnet:?xt=urn:btih:C798255F585FA28A4C07ADC576AC8CD9ECC9D10D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

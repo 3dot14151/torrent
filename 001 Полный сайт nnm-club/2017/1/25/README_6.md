@@ -18,8 +18,7 @@ Image Uploader - бесплатная программа для Windows c отк
 ```bash
 magnet:?xt=urn:btih:7205BAA75D04451AAC1C6407A17F658EB9E025B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7246B5F584C4F71BD07ADC4A2A9F70FF9C0FC525
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Last Look – приключенческий инди-хоррор, в ко�
 ```bash
 magnet:?xt=urn:btih:24227B750F7116569D3660CCD05F4F6443C28626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ macOS Sierra (версия 10.12) — операционная система д
 ```bash
 magnet:?xt=urn:btih:928A8E8636C1B84FA1BACF7AF1ED2D2229943A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Malwarebytes Anti-Malware - новая версия программы от со
 ```bash
 magnet:?xt=urn:btih:86B86D7DB6043267BA2BDA488B3720F2A7BDF604
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Element 3D Flag Pack - поможет вам сделать разнообраз
 ```bash
 magnet:?xt=urn:btih:4453CE3C417349505348369E10614AF318A9BDE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C9636136DE45FDAF762445F10191AB8B6F34E85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B77D446A9C8E5B936A44277D9E85577B73C97D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ iGO Primo NextGen 9.18.27.682862  arimi @ Vamibg skin mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B4A1208B8A9EB9698B919D3ECABE2D36C56BAA3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:410AEB74E2E2FD166756665BFCBFC69AF7DB06F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1B7F6F66B05FE2DF1F5E4BF0E61143117B147F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ King's Quest является переосмысленным вариантом 
 ```bash
 magnet:?xt=urn:btih:3E4F0BDC468317A679E78AD0503F7111FCCCE5EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ HEPH — космическая приключенческая хоррор-иг
 ```bash
 magnet:?xt=urn:btih:815427CAB42BA07958AA6D1E86C26FFFB93169EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ Vector 36 — это sci-fi аркадный гоночный симулятор
 ```bash
 magnet:?xt=urn:btih:63D54D68E90169740E64562631E1A741DFF5B5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 ```bash
 magnet:?xt=urn:btih:EE81988FC02E71EBE9FB405A7AB26BABECBD4BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/upd7) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A2E13F2105913D4C729FF7C1A976FF3E7591EF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:D788EFA569FFF8B52FB6E22A0ACC76303E6430CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +450,7 @@ Medal Of Honor: Airborne (2007) [Ru] (1.3) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C891AD5EFA5B76602BC3CFD75FF2C78906202601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ VA - Танцевальная зима. Снежная 100-ка. Версия �
 ```bash
 magnet:?xt=urn:btih:4ECDEAD8C172F71862EC83FBB703D3DDC1792E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,8 +506,7 @@ VA - Foreign and Russian Remix 1 (January) (2017) [MP3|320 Kbps] <Club, Dance, H
 ```bash
 magnet:?xt=urn:btih:B02A211B7D6091E60BBC474BAD44A0A17320FE7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +531,7 @@ WPI x86-x64 by OVGorskiy® 01.2017 1DVD [Ru]
 ```bash
 magnet:?xt=urn:btih:CCE56377311B9E7DEFCFD4655817131C6C21EAB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Gwil Owen - The Road To The Sky (2022) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:34FDD9C564CBBAAF48051CC3CB4C91B49460D49D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jones Street - Out Of The Gutter (2022) Compilation [MP3|320 Kbps] <Hard Glam Ro
 ```bash
 magnet:?xt=urn:btih:51A1C69195860881B317CFD14C5F610BA44879B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Unearth - III: In the Eyes of Fire (2006) [FLAC|Lossless|image + .cue] <Metalcor
 ```bash
 magnet:?xt=urn:btih:D95D3FD82E63CDB01D843F231D8BE895C5E42095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Elephant Riders - Impure (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom
 ```bash
 magnet:?xt=urn:btih:29A3D3E72C98192298B50B254AC1CE7B23C85DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Raging Fury - Grotesque Masked Krusher (2019) [FLAC|Lossless|image + .cue] <Thra
 ```bash
 magnet:?xt=urn:btih:B55BF572145EE6B64E6AF37F758BB951141769D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Nula - So Zemlje (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Post-Metal>
 ```bash
 magnet:?xt=urn:btih:3DE1C2A1CC5E95A437F513099E956F193605F2B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Paddy And The Rats - Riot City Outlaws (2007) [APE|Lossless|image + .cue] <Folk 
 ```bash
 magnet:?xt=urn:btih:C1DC5402D53AA2994A44D5AE5E530A44614AF8CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Don Dokken - Solitary (2008) (Reissued-2020) [WavPack|Lossless|image + .cue] <Ha
 ```bash
 magnet:?xt=urn:btih:B83ADBF7868FCA97D503D9D23D9D36503BBAEEFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Stardown - Empathy (2021) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:9DFB711507EAF2CBDD56C12CA74FEE5C810F26BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Extreme Attack - ...in the Name of Thrash Metal (2013) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:99C641543AD57B65F862EA74DE922C1DABCAC873
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Sinister - Deformation Of The Holy Realm (2020) [FLAC|Lossless|image + .cue] <De
 ```bash
 magnet:?xt=urn:btih:938C1915DC9FFE3152E6E37108F8122EF091FAA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Inverted Virtue - Railroad To Hell (2021) [FLAC|Lossless|image + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:6F236AF13A096338E682610EDB1C286AC6C545BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Nibelheim - Drawing The Lines... (2007) [FLAC|Lossless|image + .cue] <Melodic De
 ```bash
 magnet:?xt=urn:btih:5791351DD737AB227519D23F35CCC7623B9D5E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Goodbye, Kings - The Cliché Of Falling Leaves (2022) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:24131782A0715E4D6634F8CA309867F8C4354150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8AA517DD7B20AC08E33136E2DFCD670704D4BBE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A82601C7EF5B898A06ACA6AB5D205BF791D42079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Sonic Taboo - Kind of Venom (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Psych, 
 ```bash
 magnet:?xt=urn:btih:E43CE1040D6FFADA048701D8D6DC8A4BA4153720
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

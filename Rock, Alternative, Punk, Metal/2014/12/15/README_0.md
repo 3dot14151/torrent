@@ -25,8 +25,7 @@ Pestilential Shadows - Ephemeral (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:C440FCF823895B7D8E053ECA51505460DF696A90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Yearning - Merging Into Landscapes (2007) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:63DFAB978DBA764F4BC845CD338E2955AA5F77F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Witherscape - The New Tomorrow (2014) EP [FLAC|Lossless]<Atmospheric/Progressive
 ```bash
 magnet:?xt=urn:btih:763CB70611A6DF7B3D4CCB8F20FA0B1A625A18AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Zyklon - The Storm Manifesto (2010) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:24DA8930B4AEDA7CAA54C0A3D4984F514DAF2B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ CD 1: Untrodden Corridors Of Hades
 ```bash
 magnet:?xt=urn:btih:1AE3DA6487D30044B10F621D552A8E4455BD468E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Cadaveria - Silence (2014) [FLAC|Lossless]<Black Metal/Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:892B2590FAEC1D25A1A2BBBC119A6024AE4929B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Piss On Authority and SLUG - Echoes Of The Past Reverberate Into Our Future  (20
 ```bash
 magnet:?xt=urn:btih:78B52CAE430E35B9A9684FA80C75C40C1243F62B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Texas Hippie Coalition - Ride On (2014) [MP3|320 кб/с]<Southern / Red Dirt Me
 ```bash
 magnet:?xt=urn:btih:00A0E9C9ACBC2CAC86767725F6DE8B2FA8A7700D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ Texas Hippie Coalition - Ride On (2014) [WavPack|Lossless]<Southern/Post-Thrash 
 ```bash
 magnet:?xt=urn:btih:71B6196CB93238D978992D684CE6C1A138DBBC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ Epolets - Dogma (2014) [MP3|320 кб/с] <Rock>
 ```bash
 magnet:?xt=urn:btih:800658B50C35E7513B7F6F17A134BADF3A0538F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +352,7 @@ Arranged ByЖанр: Electronic, Rock/Pop RockПродолжительность
 ```bash
 magnet:?xt=urn:btih:41F31CC7A71F8C8161593DCBBB1F82F49F2E533F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +386,7 @@ Nightingale - Retribution (2014) Special Edition [FLAC|Lossless]<Melodic Progres
 ```bash
 magnet:?xt=urn:btih:140A3E55515103388C437920FED80C9943C003FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +420,7 @@ Raskasta Joulua - Ragnarok Juletide (2014) [MP3|320 кб/с]<Hard Rock / Heavy M
 ```bash
 magnet:?xt=urn:btih:35F621D7A06422DEDD8CF9EDE63DAA3D537664AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +453,7 @@ Jonne (Korpiklaani) - Jonne (2014) [FLAC|Lossless]<Acoustic Folk Rock>
 ```bash
 magnet:?xt=urn:btih:A2B1B62BC06DDEC8832A4083D23AFFC6CE3E18CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +481,7 @@ Save - 5 Альбомов + 1 EP (2004-2014) [MP3|320 кб/с]<Modern Groove / N
 ```bash
 magnet:?xt=urn:btih:7CB9287376F4465B022E5A7F31577E6AB16FCF10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:425905BF3907D191BB70BB85EFF90EA40FF50037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +549,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C39B4C79B86AA4F6BB679D1EE1DABB03CE9C4206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82FB70D9DA06C8F3BBF3FB4EDC9D69F7C69B4AA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A3CD7B05A5C6E0A3C6957D25F1E21F980148271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +651,7 @@ Killer Be Killed - Killer Be Killed (2014) [MP3|320 кб/с]<Groove / Thrash Met
 ```bash
 magnet:?xt=urn:btih:2669CBD984B7CD1598DAA7D4E8C8723672CCEA62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +685,7 @@ Queen - A Kind of Magic (2014) 2CD Alternative Extended Version [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:EA26EA233383815F5177A5D84CC14537EAD5D4AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +719,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:95514EEEE38E4058A17CE6B5340D95F799EA9BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -770,8 +748,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1942CF167F27A5E0A9EE77E7D901C9322957AEFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

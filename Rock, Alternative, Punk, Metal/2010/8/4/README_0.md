@@ -19,8 +19,7 @@ Carlos Santana - Gold Greatest Hits (3CD Set) (2008) [FLAC|Lossless]<Rock, Jazz 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

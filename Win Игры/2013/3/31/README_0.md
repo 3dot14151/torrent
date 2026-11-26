@@ -19,8 +19,7 @@ Vampire Legends: The True Story of Kisilova Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:58E82CF83208F8D575116C8E04E5940DED1AF6A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PuppetShow 5: Destiny Undone Collector's Edition / Шоу Марионеток 5
 ```bash
 magnet:?xt=urn:btih:27F21AD61795D5252E0562E31AE488D37B8AA1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

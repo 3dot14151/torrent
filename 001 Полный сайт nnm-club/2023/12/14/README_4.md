@@ -21,8 +21,7 @@ Stam1na - X (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Thrash, Heavy Met
 ```bash
 magnet:?xt=urn:btih:A7BA724ACA07CC9BED0DBA5A77813FAF0A6D0369
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ MUSICAL FREEDOM - Musical Freedom Radio The Best Of 2023 (2023-12-13) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:AAB4A19C3739E5B518BC45F2DFC3D76251BB4D69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Anubis Gate - датская пауэр/прог-метал группа, обр
 ```bash
 magnet:?xt=urn:btih:87D186EB2DC9A10893E8AE7E60C77204867E4890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ A4 Hypnotize(   Читать дальше...   )Жанр: Alternative Metal, Nu 
 ```bash
 magnet:?xt=urn:btih:1AEE197496430259FD16FE6ACF11D960F15C7B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52A82A367CFA45BC3179122137255DF2559AD804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61A1BD8437A8E06522882717E4B8E568F02037E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:933B122BECE74A81F21861A312900DC000B065E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - The Best Of Gert 2023 [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:350CEDE794867ABF1B3FE968F49F268215AD9877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 ```bash
 magnet:?xt=urn:btih:8B2295323DC0A9F7AEB498886A73828EE8AF14EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:3DF2428EF439086ADDF3C949BEA8BBD2BBF50564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:7FF0712874D5921EA3F21790F962743D695DE88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

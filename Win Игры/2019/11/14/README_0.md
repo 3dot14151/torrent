@@ -19,8 +19,7 @@ Royal Detective 6: The Last Charm (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:03410202EB9C0DD369C816C44A2F6A03AE5A172F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Labyrinths of the World 10: Fool's Gold / Лабиринты Мира 10: Зол
 ```bash
 magnet:?xt=urn:btih:B874F2E6560CF6A6E9BA14407B27480AA95E08D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rise of Industry (2019) [Ru/Multi] (2.1.0.1211a/dlc) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:AE3B3120F6589A61977C9F0734FC4C04029AA9B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RUNE II (2019) [Ru/Multi] (0.0.9L) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C0E587D9509E1BE72B5C49865E03EB7842EB3FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ SUNLESS SKIES — это готическая ролевая игра с эле�
 ```bash
 magnet:?xt=urn:btih:14D251969054FEFFA7044AA57BA12EC4AE5E4A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Superliminal (2019) [Ru/Multi] (1.0.2019.11.12.1) Repack Butter_
 ```bash
 magnet:?xt=urn:btih:01DDBE851F7C2CB3B565C2AA1953FE224D9317CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

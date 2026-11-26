@@ -19,8 +19,7 @@ TikTok - это глобальное видеосообщество. Здесь 
 ```bash
 magnet:?xt=urn:btih:DCE9C8E9820BCB4D3DDD27A1ABDE040B094B0BF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A1FD1BF4A556B4DDF10A3047F9E972ADF74F360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

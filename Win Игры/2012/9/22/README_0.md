@@ -19,8 +19,7 @@ Secrets of Power: Alexander the Great. Collectors Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:8B56206AEE18AA1F1F5507BA0A1C5F25EFAEFF43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ DogFighter - аркадный симулятор от Dark Water Studios. Игр
 ```bash
 magnet:?xt=urn:btih:9A1CBA013AF0671F6581E51DA1526A1811A2C0F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Brave: The Video Game / Храбрая сердцем [Ru/En] (RePack/1.0.0.3) 2
 ```bash
 magnet:?xt=urn:btih:28C2120C48986BEA1C8C8E9F9FDC93F059623302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A21E13BD326964D4A0C361195641169C31BD86C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Iron Brigade + DLC [Ru/En] (RePack/1.0) 2012 | Audioslave
 ```bash
 magnet:?xt=urn:btih:E22EF20FF72C12681363D0F57C0310717BB32AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

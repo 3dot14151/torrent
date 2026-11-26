@@ -22,8 +22,7 @@ B Ольга Зарубина и Александр Серов - Круиз
 ```bash
 magnet:?xt=urn:btih:0A85C44C9C7F51624EA6847ABD1F1DCAFD059628
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Таволга(   Читать дальше...   )Жанр: ШансонПр
 ```bash
 magnet:?xt=urn:btih:F5B1FE29CED20381AFFEF8D247E299C071FB8D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

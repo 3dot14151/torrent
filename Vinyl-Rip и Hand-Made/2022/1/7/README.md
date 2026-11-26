@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:9A7395FFA3B85F4B35EF0A61B6A5B9978631B551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mireille Mathieu - Sentimentalement Votre (1977) [FLAC 2.0|192/24|image +.cue|Vi
 ```bash
 magnet:?xt=urn:btih:8C42F267380B8FC28765CCAB02736717348C0426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

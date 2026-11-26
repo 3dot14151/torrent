@@ -20,8 +20,7 @@ OTUS, Владимир Кунаев | DevOps 1С. Автоматизация п�
 ```bash
 magnet:?xt=urn:btih:A859DF913F71B80896A81FB3E2A902859A23B8F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21F28103C3ECA3B014848C8BBFAD214C26F3F5D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C4A7A25DB6F3BE5ADFA773F19293CBB2CBDC9E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ TT Isle Of Man: Ride on the Edge 3 (2023) [Ru/Multi] (20231109/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:B764C32D55E377231D4C9CFB967B5CC180F02B09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFB17B4B635EB1E29407E87B8F8E455FC4D8E76C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Executive Assault 2 (2023) [En] (1.0.4.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CB217D70A14B192CD770588E24CB4D606ED301E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Birchpunk: Русская кибердеревня и другие (2020-2021) W
 ```bash
 magnet:?xt=urn:btih:483C71FB72FFE028BE8366F5327C3B0E65CA73CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Saints Row (2022) [Ru/Multi] (1.6.1.4735700/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2935FB277EEF57FB0809239C120F6150F1318B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A46F83F10089DC1EE3249DD0D0A275FA03A3BB48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ The Invincible — игра от первого лица по мотивам к�
 ```bash
 magnet:?xt=urn:btih:3BC8B616A80EF8D989D1BEEE147C454EE80D9CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6157821D2DF1AD5F0B0A4C647DCAA93203E7E83B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A62F8FFF1D822B7E935D9BC0CDF245BB1794E141
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B451EA710AE75297E84D5CAF66603E434DE92522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BACF592DAA77D535BBBB106DF5A6EDD37AFA93A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 11.2023 by OVGorskiy
 ```bash
 magnet:?xt=urn:btih:19E41CD9A1BDC66A0691A7880B6F8829B4930E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +398,7 @@ Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титано
 ```bash
 magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6897184FB20789E3ED84A7C08ACB90D865E3C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +448,7 @@ uTorrent - это бесплатный клиент для сетей BitTorrent
 ```bash
 magnet:?xt=urn:btih:67B0E0E47B7AACCB6D39F40EEADE46DA991D6742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

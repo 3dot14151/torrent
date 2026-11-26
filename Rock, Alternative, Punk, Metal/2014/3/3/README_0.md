@@ -24,8 +24,7 @@ Triumph, Genus - Vsehorovnost je porazkou prevysujicich (2013) [FLAC|Lossless]<B
 ```bash
 magnet:?xt=urn:btih:DC5DE3D14255D45E17BD4DCA178A300535A0C1E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ House Of Lords - Precious Metal (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:495B37776D34A426A1DBCA20A001F4863D611AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Northsong - 1 альбом, 1 сингл, 1 ЕР, 1 Сплит (2011-2014) Ди�
 ```bash
 magnet:?xt=urn:btih:94D62F4317957525A2EC994F7BF317BD74F1B3F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Daughtry - Baptized (2013) Deluxe Edition [FLAC|Lossless]<Alternative Rock, Pop-
 ```bash
 magnet:?xt=urn:btih:93D20FF0F6BB1CF3F4AA1032A2B0F56A70B20B57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Pianoбой - Не Прекращай Мечтать (2013) [MP3|320 кб/с]<Ro
 ```bash
 magnet:?xt=urn:btih:CEA043633E7CDAAF869FF3419C2766FAC3793943
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

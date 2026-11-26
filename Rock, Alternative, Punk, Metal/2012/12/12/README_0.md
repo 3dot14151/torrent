@@ -28,8 +28,7 @@ Silverchair - 5 Альбомов (1995 - 2007) дискография, студ�
 ```bash
 magnet:?xt=urn:btih:464D583ADEC2084CE263BB785B963D8F78411AB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Unheilig - Lichter der Stadt (2012) Winter Edition [MP3|320 кб/с]<Gothic Rock
 ```bash
 magnet:?xt=urn:btih:39106D95D85471CD159E298712032E2F8E805B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Rammstein - Mein Herz Brennt (2012) [MP3|320 кб/с]<Industrial>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ Beatles meets Queen - Beatles meets Queen (2012) [MP3|192 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:FBF3C3CC0ABF9E157015A2A6BCBEF14323481262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

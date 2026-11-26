@@ -19,8 +19,7 @@ Little Nightmares – это мрачная сказка, которая зас�
 ```bash
 magnet:?xt=urn:btih:2BA6851CC527CACA606E6AA217D5A9078807B384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deadly Premonition (2013) [Ru/Multi] (1.01b) Repack R.G. Catalyst [Director's Cu
 ```bash
 magnet:?xt=urn:btih:FC0D75F7523BCC0B56C8BE35B279BE64A6D808B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spec Ops: The Line - необычный кинематографический �
 ```bash
 magnet:?xt=urn:btih:60BBC539EBACCA41436924204FD3189508A02271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sleeping Dogs — это экшен с открытым игровым миро�
 ```bash
 magnet:?xt=urn:btih:87B131656D4300B353E379B960ED4D8D121D6B0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Little Nightmares – это мрачная сказка, которая зас�
 ```bash
 magnet:?xt=urn:btih:4F28428058B770E629A0B255B2602E603CF6FC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

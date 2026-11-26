@@ -28,8 +28,7 @@ Darren DeMarco - Wishes, Dreams And Lies (2014) [MP3|320 кб/с]<Rock, Blues Ro
 ```bash
 magnet:?xt=urn:btih:CDAAA7CE73ABE1D0DAFE049DC3AFC5B6423797E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ The Old Firm Casuals - This Means War (2014) [MP3|320 кб/с]<Punk Rock, Street
 ```bash
 magnet:?xt=urn:btih:D8484B5FDAE55971BF08CE8E2352A8F97E108419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Pax - Pax (1970) [MP3|320 кб/с]<Hard Rock, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:A837BDF265A942810C663632B704C03787F5544B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ The Interrupters - The Interrupters (2014) Deluxe Edition [MP3|320 кб/с]<Alte
 ```bash
 magnet:?xt=urn:btih:6088F7D8FE077589E73C00DCC0ADDA5BFCDE16A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Wovenwar - Wovenwar (2014) (2014) [FLAC|Lossless]<Alt. Metal | Melodic Metalcore
 ```bash
 magnet:?xt=urn:btih:47852E833870CD3B08DD1185D3C3D534BD3F48E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ Godsmack - 1000hp (2014) Best Buy Edition [FLAC|Lossless]<Alternative Metal / Ha
 ```bash
 magnet:?xt=urn:btih:38E662517FC5B949489ABBAF9759F22497E0B9F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

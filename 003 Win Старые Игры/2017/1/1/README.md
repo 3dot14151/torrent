@@ -19,8 +19,7 @@ Crusaders of Might and Magic / Крестоносцы меча и магии (19
 ```bash
 magnet:?xt=urn:btih:30ABC286BB7E816990E035CEBBC9914549BC4FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

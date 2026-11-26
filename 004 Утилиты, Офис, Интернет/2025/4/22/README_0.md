@@ -19,8 +19,7 @@ Files Inspector Pro 4.30 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C5F69CE0551DDCBFCBEB5F347AA7389CDC88D972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Multi Commander - мощный многооконный менеджер фай�
 ```bash
 magnet:?xt=urn:btih:23A463637CDF4AD579F5401043C335385A90BEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

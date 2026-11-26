@@ -18,8 +18,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan – динамичный beat
 ```bash
 magnet:?xt=urn:btih:EB34EE635A8DBF1C1703D71D4C8E9C69CFC3B63B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Code Geass: Boukoku no Akito / Code Geass: Akito the Exiled / Изгнанник
 ```bash
 magnet:?xt=urn:btih:169DB20C0BBBEC9727CD3CAE03179F040AD3D9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5AD02CA65032F6560E3C5E97CC9B7B8F50C25DC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Minecraft: Story Mode предлагает отправиться в попул�
 ```bash
 magnet:?xt=urn:btih:E537C0BA88CA468CAFDE7C0B89B29853BE64FA77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5F73E0E9A09D1927CF3533064663A173CAD3E55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ PES 2016 / Pro Evolution Soccer 2016 (2015) [Ru/En] (1.05.00/dlc) Repack Mizantr
 ```bash
 magnet:?xt=urn:btih:7EA0F642BB074D554007419FED4C4D52CB71EE36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1167A32E968B735F8024129D24260430ABFD3BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F53A3C181466575E6F0990734AA8EDC6BF0FD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Ansatsu Kyoushitsu: Second Season / Assassination Classroom: Second Season / К�
 ```bash
 magnet:?xt=urn:btih:09C0199A560AD20F50F5B8C18C8FEDDBF4747890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

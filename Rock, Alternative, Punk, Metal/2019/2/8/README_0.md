@@ -22,8 +22,7 @@ Jessica Pratt - Quiet Signs (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
 ```bash
 magnet:?xt=urn:btih:FCB366881D4B4BC4D71ADB4C780B0158EB464401
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nina Nesbitt - The Sun Will Come Up, The Seasons Will Change (2019) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:337504E3FC40DDF7ECF7C692B2DB6003B3964D9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mercury Rev - Bobbie Gentry's the Delta Sweete Revisited (2019) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:BA6D3A925212ADB4CB154986A262B66C78FA5F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C7A2453928E729C3262AE1F184770AF3F674A83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

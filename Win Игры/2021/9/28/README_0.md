@@ -19,8 +19,7 @@ Hoa (2021) [Ru/Multi] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:7A47EA2977187F577CB210787901FCACCE64C090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

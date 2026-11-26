@@ -20,8 +20,7 @@ Life Is Strange Anthology [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CA9B96760E44E355BF7BB9EF608870C036627850
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

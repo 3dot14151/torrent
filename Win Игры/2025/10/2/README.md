@@ -19,8 +19,7 @@ Stronghold (2023) [Ru/Multi] (1.34/dlc) Repack Let'sРlay [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:C2E6D346D47A09939734C196D1569B7E742F28CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Troop (2023) [Ru/Multi] (20250930 build 20182560/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E3732C95E8B3918512B22AB031C6B655CCD11987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6931813/dlc) License GOG [Patches
 ```bash
 magnet:?xt=urn:btih:2E0E04FB50BB2FC87871218594C535A41A721827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack seleZen [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:5A5FD06351B94841B711B85229C43F747A54BE68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (Build 20147338/dlc) Re
 ```bash
 magnet:?xt=urn:btih:8247026EF6408A04D3A461D54F7E9C19209FF73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

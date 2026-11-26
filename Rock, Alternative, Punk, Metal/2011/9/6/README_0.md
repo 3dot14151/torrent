@@ -28,8 +28,7 @@ Killing Machine - 2 Albums (2000-2005) [MP3|320 kbps]<Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Neonfly - Outshine The Sun (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:1ED51743A2E6CDD0B2EA84CD34EF65910D88A859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Aina - Days Of Rising Doom (2003) [MP3|320 kbps]<Power Metal/Metal Opera>
 ```bash
 magnet:?xt=urn:btih:7279F2CCC65054F3F26F62C179F8E08B36F0F643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Vivian Campbell - Two Sides Of If (2005) [MP3|320 kbps]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:82753946821A7300A4D31E23E8D26C593847A13B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Riverdogs - 4 Albums (1988-1993) [MP3|320 kbps]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ VA - Iron Maiden Tribute: The Soldier Has Returned (2011) [MP3|320 kbps]<Heavy M
 ```bash
 magnet:?xt=urn:btih:D1B7B12DC2015EE9C5CAA31CA362AB6EE4E520B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Uriah Heep - You Can't Keep A Good Band Down (2001/1970-1986) 7 Albums Box Set [
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

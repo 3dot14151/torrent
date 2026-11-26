@@ -19,8 +19,7 @@ Redemption Cemetery 15: The Stolen Time / Кладбище искупления 
 ```bash
 magnet:?xt=urn:btih:B09A2E4A29C0D7C713F72C57A0389C82C235C11A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kerbal Space Program - многожанровая игра, где вы созд
 ```bash
 magnet:?xt=urn:btih:E5E1AF36435DA767F601E853E1E0BC3A249AF070
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ City Car Driving – реалистичный симулятор вождени�
 ```bash
 magnet:?xt=urn:btih:8C1859351B94E92405E78C1AD8B58666AC78AB92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

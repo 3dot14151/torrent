@@ -20,8 +20,7 @@ Daughter of Serpents [En] (RePack) 1992
 ```bash
 magnet:?xt=urn:btih:38A677A603AE9B80FB340FBC5FE2EE67C4CEC6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Detroit [En] (RePack) 1993 | RG games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

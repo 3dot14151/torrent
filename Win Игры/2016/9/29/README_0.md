@@ -19,8 +19,7 @@ Edge of Twilight (2016) [Ru/Multi] (1.0) License CODEX [Episode 1]
 ```bash
 magnet:?xt=urn:btih:40265534E77AABFBA95D0AEFAC6139ED91296B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Herolike – ролевая игра с экшен боями, в которой
 ```bash
 magnet:?xt=urn:btih:9401D6E4C6DABFD982BD574E843820C7F8A04950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Room Two - продолжение замечательной игры The Ro
 ```bash
 magnet:?xt=urn:btih:29AD3A5BCBC72D9148292F786CC39E7A708FAAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

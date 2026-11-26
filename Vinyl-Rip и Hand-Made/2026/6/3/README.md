@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:24F2FA89E35B99BCB13F9341935E65606773A3C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A3 Charlie Rich - Behind Closed Doors(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:EF5C2286797E607FD7067B01C0CDC5646A03D011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

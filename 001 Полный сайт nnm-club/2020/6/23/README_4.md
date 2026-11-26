@@ -18,8 +18,7 @@ Mafia III: Definitive Edition включает основную игру, все
 ```bash
 magnet:?xt=urn:btih:354492EBD079785C33DE717B09947D50FB6B140B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

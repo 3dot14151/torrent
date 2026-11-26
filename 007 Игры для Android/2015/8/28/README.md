@@ -19,8 +19,7 @@ This War of Mine – осада города продолжается уже д�
 ```bash
 magnet:?xt=urn:btih:17035AEEC63B688B25036697B82191554BBA2860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - I Can't Complain But Sometimes I Do EP (2021) Regelbau [FLAC 2.0|44.1/24|tr
 ```bash
 magnet:?xt=urn:btih:E59D09A006049E5D5774A47C49853CC0D07A7951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

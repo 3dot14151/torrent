@@ -19,8 +19,7 @@ RUTUBE — официальное приложение одноименной о
 ```bash
 magnet:?xt=urn:btih:128663686EAA74CF66DA053DCE8FAF914F1B7A25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A0EF4BE8E5F91ACBAD6B9284FE1A425DDAF9B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RUTUBE — официальное приложение одноименной о
 ```bash
 magnet:?xt=urn:btih:73B215DAFEB122F0D3598B599840F32EEDA86238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

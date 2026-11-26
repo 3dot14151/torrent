@@ -22,8 +22,7 @@ Ghost Brigade - метал-группа из Ювяскюля, Финлянди�
 ```bash
 magnet:?xt=urn:btih:632E934776AC7C54D18B00736CE482D66E4EC978
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 The Way Of The Samurai(   Читать дальше...   )Жанр: Heavy Met
 ```bash
 magnet:?xt=urn:btih:832D0DE88865E1AF3087BC25EADA79B86759BB03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4. Through Rivers of the Eternal Blackness (05:45)(   Читать дальше
 ```bash
 magnet:?xt=urn:btih:E874CBFBFE98CEC1D763DD6E19606CC20AEFB379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Circle Of Chaos - метал-группа из Стокгольма, Швеци�
 ```bash
 magnet:?xt=urn:btih:68FA22AFDCBA7604BBF09A7274585E5B3178449F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

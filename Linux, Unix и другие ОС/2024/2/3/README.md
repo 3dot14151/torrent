@@ -22,8 +22,7 @@ Runtu Lite 22.04 [x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:5AFE432E8A8D2E9C63DAF87E1FA678419B32CA1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

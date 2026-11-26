@@ -19,8 +19,7 @@ Matthew MacDonald | Excel 2013: The Missing Manual [апрель 2013] [PDF] [En
 ```bash
 magnet:?xt=urn:btih:9D045A16F099351C7F82208292A00A4D8B375DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Matthew MacDonald | Access 2013: The Missing Manual [апрель 2013] [PDF] [E
 ```bash
 magnet:?xt=urn:btih:BB8BB9E7A010AA0E0F4C9DFAFB95915C00DEE5B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Bonnie Biafore | Microsoft Project 2013: The Missing Manual [апрель 2013] 
 ```bash
 magnet:?xt=urn:btih:72E6D9A0105FC4493AB2BBFBCCC76A05D1B825FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

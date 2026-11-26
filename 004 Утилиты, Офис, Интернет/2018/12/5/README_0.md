@@ -19,8 +19,7 @@ BurnAware Professional — компактная и простая в испол�
 ```bash
 magnet:?xt=urn:btih:FD90A25A8C782A16658D8C375CFFBA5141ABF376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Submarine Titans / Морские Титаны: Зов Глубин (2000) [En] 
 ```bash
 magnet:?xt=urn:btih:854A65829FAB9D92A7BA7BE906045F855BC48376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

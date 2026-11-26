@@ -22,8 +22,7 @@ Worshipper - Shadow Hymns (2016) [FLAC|Lossless|tracks] <Classic Heavy Metal, Cl
 ```bash
 magnet:?xt=urn:btih:DD7F23E3DFE79E469D529D0DBD7518FF05D1DBA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Thunder And Steel Down Under - A Tribute To Riot (2015) [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:225BDE7DB35A57563633FC5D5A628B8ED45DEA10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Metal Clone X - Metal Clone X (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4BD76F11DBAC7E286CC690C0FC49056C23E218F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Dillinger Escape Plan - Dissociation (2016) [FLAC|Lossless|tracks + .cue] <J
 ```bash
 magnet:?xt=urn:btih:673CA60CAD5C2DD4503C60D90D7962ABEAD29644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Emerson, Lake & Powell - Emerson, Lake & Powell (1986) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:F0DB155EC3E43359F82EA4ED7FCCADF9C9FEF46F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Tony Carey - Stanislaus County Kid (2010) [FLAC|Lossless|image + .cue]<Classic R
 ```bash
 magnet:?xt=urn:btih:DB4B426FD8AF42A2F19AD14AAA78CCAC65ADA255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Панк-о-мания (2000) [FLAC|lossless|image + .cue] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:DE5F9AD76FF03A0C4E5DDF557F40997C6A3B66C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The 13th Floor Elevators - Easter Everywhere (1967), Reissue 1993  [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:107A735893F406D41912D2676B5B81D455ADEA0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

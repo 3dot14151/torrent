@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7E7135E445F101772ECE70A0F2B9B135394E381C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Alien Hallway - это оригинальная экшн-стратегия от
 ```bash
 magnet:?xt=urn:btih:6121A33E0256F76E6EF5ADE15CA4398E7B50934E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Redemption Cemetery 2: Children's Plight Collector's Edition / Кладбище 
 ```bash
 magnet:?xt=urn:btih:C5E57343981E7FF421E93B3703ADF4AA8D176674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

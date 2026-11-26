@@ -25,8 +25,7 @@ Beirah - Cuatro Vientos (2015) [MP3|320 кб/с]<Progressive Rock, Instrumental>
 ```bash
 magnet:?xt=urn:btih:50180FD5B200BC156A474A882459EE02D5807EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Their Dogs Were Astronauts - Earthkeeper (2015) [MP3|320 кб/с]<Progressive Me
 ```bash
 magnet:?xt=urn:btih:B183A2A1AB9AB16740147627130D049ECA10DDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Revenge - Harder Than Steel (2014) [MP3|320 кб/с]<Speed / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A48C1D8F1F20B2238868ABD61AD17ABA38E2F323
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Exgenesis - Aphotic Veil (2015) EP [MP3|320 кб/с]<Melodic Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:6133BA0AE3246ED0613A764F96CADD54293E5BBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Chris Norman - Million Miles (2005) [FLAC|Lossless]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:AB427461899768B4140014799CBDB95C713B3C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Napalm Death - Apex Predator - Easy Meat (2015) [MP3|320 кб/с]<Death Metal / 
 ```bash
 magnet:?xt=urn:btih:627838BB8FE39219A45953775AC9DC6342C259D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ Levi Dexter - Roots Man (2014) [MP3|320 кб/с]<Rockabilly>
 ```bash
 magnet:?xt=urn:btih:C77215B57E137EDDF16E644BFD33E04B08B9EA57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B839A8F4F43DFD770C30346E1437CD7EBCD22749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +281,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4C7D7366EC0887ED9C8E8712EC4B298D25A35BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

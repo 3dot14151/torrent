@@ -22,8 +22,7 @@ Lost In Thought - Opus Arise (2011) [FLAC|image +.cue]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:99920B1794DAAF867F1A5984D101C5EDD8F1592E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Clepsydra - 3654 Days (2014) 4CD Boxset, Remaster [FLAC|image+.cue]<Neo-Progress
 ```bash
 magnet:?xt=urn:btih:1A82D10C6C95336C8FE36F945823A5C88AC5FCAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Operation: Mindcrime - The Key (2015) [FLAC|image+.cue]<Progressive Metal/Hard R
 ```bash
 magnet:?xt=urn:btih:E4E3EA62D404AF874624B0E994201321B1EA7968
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ All Time Low - Future Hearts (2015) Deluxe Edition [FLAC|tracks + .cue]<Pop-Punk
 ```bash
 magnet:?xt=urn:btih:887BBB7DC23882108B2F563992F5308035B23A6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:092C04EEC0C849B301E6A428056D6781ECB7BFDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEDB90469709E02FA80707C71FF6BA11B527A9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Lindemann - Fish On (2015) Single [MP3|320 кб/с]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:B7532B012DAA3677AE1EA58904893D1E20350274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:149DF65D42AC777BAD2DE526EF23B5686A2A0D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

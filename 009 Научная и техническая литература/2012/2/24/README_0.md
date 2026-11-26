@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:9570C5902DA3E2E20D9389770012E7D42DDF1D01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C09143913744D9559A59529E5043893B073C5D2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Ian Baxter | Путь в бездну: войска СС 1943-45гг. , фрон
 ```bash
 magnet:?xt=urn:btih:B552AFB7077DB15E3BDF3BB2179002FA580CCC77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

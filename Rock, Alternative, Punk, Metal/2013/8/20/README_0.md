@@ -27,8 +27,7 @@ Magma Rise - The Man In The Maze (2013) [MP3|320 кб/с]<Stoner/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:516F97CCEC4FA7737F891B6C26A1ECA69D81C08A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EF1DD664E3C5E6019EC74A70840E860B2CC1762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Trouble - The Distortion Field (2013) [MP3|320 кб/с]<Stoner/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:F362611D70B53968F926C68CC8443A8879FCC962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Born Of Osiris - Tomorrow We Die Alive (2013) [MP3|320 кб/с]<Technical Deathc
 ```bash
 magnet:?xt=urn:btih:8A657690E91CDB362C8DF8C9F6ECE6615F83F8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Break My Fucking Sky - final breath (2013) [MP3|320 кб/с]<Atmospheric Post Ro
 ```bash
 magnet:?xt=urn:btih:E2746D6C940607B3D6FB04A4CFA82FFF84F117A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Born of Osiris - Tomorrow We Die Alive (2013) [FLAC|Lossless]<Progressive Metalc
 ```bash
 magnet:?xt=urn:btih:85E5DDC029B3DFEA74615EEFDC797A07D5C95423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Bryan Ferry - Boys And Girls (1985) /W.German Target CD [FLAC|Lossless]<Rock, Po
 ```bash
 magnet:?xt=urn:btih:01DC4F0029D550306CE224E0ED34ECA4B3802C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Franz Ferdinand - Right Thoughts, Right Words, Right Action (2013) [MP3|320kbps]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:643396B8B8BE34B1B503842A6494B36D79A88696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2589AAF8DF5E14D0CDF827577B0709AF6EC5F6C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

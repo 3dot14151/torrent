@@ -21,8 +21,7 @@ Who ya gonna call?
 ```bash
 magnet:?xt=urn:btih:097A4A344842F7657574A22762FF55D2A1D27399
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Castlevania: Lords of Shadow - Mirror of Fate HD (2014) [Ru/En] (1.0.684579) Rep
 ```bash
 magnet:?xt=urn:btih:3D1456C5F9C641F23B22386C24C231A944A0907B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

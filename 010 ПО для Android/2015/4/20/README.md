@@ -19,8 +19,7 @@ Beautiful Widgets - набор виджетов, поможет вам быть
 ```bash
 magnet:?xt=urn:btih:B0034FCE9B0F562323462BD4B0DBFD659CF53CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

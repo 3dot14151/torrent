@@ -19,8 +19,7 @@ Mystical Riddles 2: Behind Doll Eyes (2022) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:C23B017CA0CF8383580A12AA98B75583E80CBC30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MADiSON - это психологический хоррор от первого
 ```bash
 magnet:?xt=urn:btih:99B347B3A74114A3495A2865B0517D8CDBF50627
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dragon Forge (2022) [En] (1.0.8224) License FLT
 ```bash
 magnet:?xt=urn:btih:51E6FA5D9393B1560C53469B27719122BE605196
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

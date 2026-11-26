@@ -18,8 +18,7 @@ This War of Mine (2014) [Ru/Multi] (1.3.2/dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:32EF71ED694D358FA7F3D0928D7EE49796B46ACE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC7205219AC8978ED511DE66F6B955809D097359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:82AA2790F0B766B8CA13F79F453569E563A7BEA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5D465DDF21D55AD0239BEB80555E1981B84F173
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Re-Loader Activator - ещё один автоматический актива�
 ```bash
 magnet:?xt=urn:btih:1512458D1083F447D667034735261EF534B01E65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ VirtualBox - специальная программа для создания �
 ```bash
 magnet:?xt=urn:btih:7870847E10AD593FBD90DB9468C9DF0661F08741
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:507C80AFFFB270C6F4A598BEDADC0B415AAA75A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Beyond Eyes (2015) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:FBA37FEB75813E30A3757DDB7A5499A615A429C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Debian Linux 8.2 Jessie [amd64] 3xDVD + 1xCD
 ```bash
 magnet:?xt=urn:btih:54E6CD221BFC8EFEB186BE32BA04656166BE2040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48679E808E7AA437457B1CCC3343D5DCD0C1978C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Red Goddess: Inner World – приключенческий платформер
 ```bash
 magnet:?xt=urn:btih:12EFBF7CA06C411DFAB77F8DE678548383A00D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:89AF65FE7E697015D768144A60EBCEAE70EC9F85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Brave: The Video Game / Храбрая сердцем (2012) [Xbox360] [RegionFr
 ```bash
 magnet:?xt=urn:btih:88CDB1B1EC4A325A2A1524928ED4ECEF90343C49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ Daydreamer (2015) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:1A40E20EE5A4ECD0024BF48B8AAF98E3B8E8AA1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +373,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:926ED3D68E4CC6140303917D5D32E9946A92E973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +400,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0EDAF93C540179535F7B8DB9EBD16F1D02277377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +425,7 @@ PortableAppZ PC v.07.09.15 by Stranger47 [Ru]
 ```bash
 magnet:?xt=urn:btih:F6C4995B1343383B574DC6E059B4015D23F7D897
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +451,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:705DC36CBE7239213F798435A7079F7A31409A9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +476,7 @@ Spider-Man: Edge of Time – экшен про Человека Паука, де
 ```bash
 magnet:?xt=urn:btih:BCB8AEDEB63D4E66EE1051079F7E6DC0CCAC0863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CA879877B31CB208A8EE4EA16FC7D57588E38A16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +526,7 @@ WinToFlash – это приложение, позволяющее полнос�
 ```bash
 magnet:?xt=urn:btih:559E84AA684AA1C1C7191488B8E40C0702619C34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +551,7 @@ Exile's End (2015) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:D2CDB65354E8AEEDFA5771555AEC42B23F1C124E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +576,7 @@ Onikira - Demon Killer (2015) [En] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:0BDCBACF5C9EF0350D96DE7632D8CFF87A1A4FE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +601,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:91B23EEBE4AB0074CED462F98F8BD4F22AB48188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +626,7 @@ Promt 11 Dictionaries Collection RePack by MKN (08.09.2015) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:35DCB14A93718190B905EDC61DD22C56A583C02D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +651,7 @@ NewBlue Titler Pro 4 - мощный и эффективный инструмен
 ```bash
 magnet:?xt=urn:btih:F8FF9F5577D7E7E4440D120ADBA9AD798497F027
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

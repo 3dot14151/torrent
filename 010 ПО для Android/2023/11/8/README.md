@@ -21,8 +21,7 @@ Image toolbox — это приложение, основанное на сов�
 ```bash
 magnet:?xt=urn:btih:3608A306FADA643AB50248C5912FBBC43A540AB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:32349FB0B9796B84FA27182B5A0FCBC4C55865A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ AI Image Enlarger 3.0.4 Mod by TryRoom [En]
 ```bash
 magnet:?xt=urn:btih:A45FC579727A99A5E963D98D9BCD4A487A6CFF4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ David & David - Boomtown (1986) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:8712326ED16CED9411CD0E450FE55B6CDB004BC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tygers Of Pan Tang - Electrifyed (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hea
 ```bash
 magnet:?xt=urn:btih:1C247694A241A09C83E403C8F00D9109950AE73C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Endless Highway: The Music of The Band (2007) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:DC52468CABAC4A339E0821DA4C7D59C181E2CAD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8885BEEBA4F8A49BDA580B76F141C43C9352D14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CoreLeoni - Generection (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:266D0D5774665436D8649F3BA3814F7D2162301E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Sinead O'Connor - Universal Mother (1994) CD, Album, EMI Mfg [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:14C272865380FC4931F70A5B6A522D69B620E478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Sabaton - The Last Stand (10th Anniversary Edition) (2016) Remaster, 2026, Nucle
 ```bash
 magnet:?xt=urn:btih:802E9694DB26F3BD43994AA755429F98D29D3CC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

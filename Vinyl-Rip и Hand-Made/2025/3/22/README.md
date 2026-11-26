@@ -22,8 +22,7 @@ A4 Slow, Love, Slow(   Читать дальше...   )Жанр: Symphonic Power
 ```bash
 magnet:?xt=urn:btih:B4802CA441A8E1FAF968A5D7C585B7E8E28E4867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vortex - Drink Bat Blood (2010) Released, 2012, Metalizer Records [FLAC|24/192|i
 ```bash
 magnet:?xt=urn:btih:47C447AD831A515C6C1523B726790DF1B472CDD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Nephylim - голландская рок-группа, основанная в 2
 ```bash
 magnet:?xt=urn:btih:EB520C36488636975B3852FCD9C2E97FC9EADEFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Hidden Intent - метал-группа из Австралии, сформир�
 ```bash
 magnet:?xt=urn:btih:24FC6E73F9B7DE56C75FD259488E2CD349468D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ A2. Solitude (Candlemass Cover) (06:27)Жанр: Epic Doom MetalПродолжи
 ```bash
 magnet:?xt=urn:btih:4ADA5D9761A6F576F8F4F4ED01D46333FC8D679F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ B. Confessing My Desolation (06:52)Жанр: Epic Doom MetalПродолжите
 ```bash
 magnet:?xt=urn:btih:AF9FF58432445197438227242571790583F28E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Fallujah - Empyrean (2022) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Tec
 ```bash
 magnet:?xt=urn:btih:31D9B697B65D111F24127BB2283EAA5801F778A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

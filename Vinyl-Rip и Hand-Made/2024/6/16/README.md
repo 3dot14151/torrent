@@ -22,8 +22,7 @@ Torture Squad — бразильская дэт/трэш-метал группа
 ```bash
 magnet:?xt=urn:btih:8B71312888D786CF75616463A890529BC01D0324
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

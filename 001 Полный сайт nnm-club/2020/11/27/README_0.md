@@ -21,8 +21,7 @@ Koan - Munchausen Trilemma (Side B) (2020) [AAC|~320 Kbps] <Ambient, Chillout, D
 ```bash
 magnet:?xt=urn:btih:6B3CC0DD69D61D93347B8D5EE812F40B1A915DA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ PhotosRevive автоматически раскрашивает ваши ста
 ```bash
 magnet:?xt=urn:btih:1CFBF639FDFBD5A4FBE02204068DA44C37DDBDE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01178E831A7A3608831CB52481B96CB68227E403
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ New File Menu - это просто самый крутой способ соз�
 ```bash
 magnet:?xt=urn:btih:853B15FE8F228B5904678A36441331CDDFD4E5A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Wise Menu - это небольшое расширение Finder, которо�
 ```bash
 magnet:?xt=urn:btih:5238CCF3901CB2F78F173A268736A67847A48DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ Tala A.M. - Arabica (1978) Reissue LP, African Roadtrip, 2015 [MP3|320 Kbps] <Di
 ```bash
 magnet:?xt=urn:btih:91045AB66E9E6F862968817FB6F34B8EBB846436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Tech House Electro Music Fest (2020) [MP3|320 Kbps] <EDM, Techno, Tech Hous
 ```bash
 magnet:?xt=urn:btih:40203EEB3E130AC0E90261570FEE77B3111B2A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ iMusic для Mac - многофункциональный музыкальны�
 ```bash
 magnet:?xt=urn:btih:8E6EED9D154DC8AD2E73B92DFC867D4ED497FEC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ Particulars отображает системную информацию о ва
 ```bash
 magnet:?xt=urn:btih:D6C66104B87488D17E5D04FB68956F59023FC872
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ Leslie O'Hara - Gipsy Boy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco
 ```bash
 magnet:?xt=urn:btih:E286FBC866DB9AF7B3FFE4FD41A70193374D5920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:650B7A816C5724CA0A2BED957BA8DEBF1258EC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A5D04A4602A24D82FD2D7A78A234FDFF5D856A68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Magic Hider 1.4.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:96B1802928BED0DE8A54A2AA5215EB5AC985B28E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D1C3E6FEC831D66AB5EA95C468E9909F4E8C302
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ VA - Deep Sleep Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:3CB6F49DCA385D34462F959AE9F813DB809A7CB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ L.A. Guns - Renegades (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:7987BCC6A0B145D2C49F4E741174287ABC770182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:ABF0A2E2CAC785F0006CB8D363585B9B76D8F901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +471,7 @@ CodeRunner - отличный редактор для программиста �
 ```bash
 magnet:?xt=urn:btih:C03DA6234432ECF88D290BADEF11FDA81E2785C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ VA - Swinging Classics (2006) [FLAC|Lossless|tracks + .cue] <Jazz, Classical>
 ```bash
 magnet:?xt=urn:btih:F94AA56C41B3D15D91C393FF335E34D75E994307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ Mono Inc. - The Book Of Fire (2020) [WavPack|Lossless|image + .cue] <Gothic Rock
 ```bash
 magnet:?xt=urn:btih:9928F99CA420657C7FC9B6AE3F9229B8398B4F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3967F7F2DFC4D2E6A6EC183CA4DC8E2C7A1AC7D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +582,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:85D39D59012ED6AABFB8FCF0F59F3A1DA88D2888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ Mac FoneLab for Android восстановление данных мобильн
 ```bash
 magnet:?xt=urn:btih:A051B0D0B9E7E86E4BD5827507E82552839ABA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +634,7 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:8C9F44D071AC12C5011992F32535C27D3365C869
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +659,7 @@ iDatabase - это самый простой способ организоват
 ```bash
 magnet:?xt=urn:btih:0E9719FBF641651EE926832E6819E6C642E18AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ STED.D - МЫ ДАВНО В АДУ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:BA6FCC8C3951C2FF89DB37FF4E9F50F6879B61E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

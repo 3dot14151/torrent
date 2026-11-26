@@ -28,8 +28,7 @@ Pat Travers - Live At The Bamboo Room (2013) [FLAC|Lossless]<Blues-Rock, Hard Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Johannes Luley - Tales From Sheepfather's Grove (2013) [FLAC|Lossless]<Crossover
 ```bash
 magnet:?xt=urn:btih:A0735D37E71A58313610E3BE569570F247EC7F37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Ray Wilson - Chasing Rainbows (2013) [FLAC|Lossless]<Prog Related, Art Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99A53B6B77782F85764822EC5559849B5EC605EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

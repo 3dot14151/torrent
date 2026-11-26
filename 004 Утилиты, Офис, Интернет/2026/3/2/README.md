@@ -19,8 +19,7 @@ MediaHuman YouTube Downloader 3.9.18 (2802) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:540B493099A1DDD5A4B19C1BD1E8D32E404CA6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ OCCT 16.0.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:4BBE0752343BE4529FB25FF82EAEC74E8AE876B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:4DC473713AB750A2FAEA1C28DA5861C2BDD11E6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ InnoExtractor - это приложение, которое поможет ва�
 ```bash
 magnet:?xt=urn:btih:B18D1F0B62E893D8D8B4D5C0228B21F3301D795E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ System software for Windows 3.6.9 by CUTA [Ru]
 ```bash
 magnet:?xt=urn:btih:44E10D294652F196BF9BAAA27F4D7EC52D18D74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:26C451908B9652C0759062C21126CF237E897C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Quick CPU — это приложение, разработанное для т�
 ```bash
 magnet:?xt=urn:btih:845D92FFC36C5DF5BF8C89AC05FF15D422F4FACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:B4690E1959D81002581F9105F84EF677D077C59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:AADFD63DD0F7C4A792E1A9FFAC98F46D43D2BB61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ MediaHuman YouTube Downloader 3.9.18 (2802) RePack (& Portable) by Dodakaedr [Mu
 ```bash
 magnet:?xt=urn:btih:0A7DBEA31766ECFF6936669EBDB8E4E355C5332F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ MAX Desktop 26.6.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:7DC68942294BB942FD733EE3138B8E91E2A792F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Psalm2 - атмосферный психологический хоррор от
 ```bash
 magnet:?xt=urn:btih:C754FD0E6BCDD0CF9E744B85A23F16B38E359EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Goblin Company - кооперативный экшен‑симулятор с �
 ```bash
 magnet:?xt=urn:btih:F8DAE8F7FC719AB7885EA2129676C378F18C54DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Samson - криминальный экшен, пропитанный эстет�
 ```bash
 magnet:?xt=urn:btih:4E6D2FD659CB70F807BA6557B16BBA2A3246A77A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Maseylia: Echoes of the Past (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AAE9343B427EF01A2C6DDDAE3F4CD04E0FC838DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

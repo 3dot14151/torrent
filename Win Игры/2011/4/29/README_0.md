@@ -19,8 +19,7 @@ Spirits of Mystery: Amber Maiden Collector's Edition / Тайны духов. Я
 ```bash
 magnet:?xt=urn:btih:F77B454E4E99A976412E7390AF92A6856F831E95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ The Next Big Thing / Новый хит [Ru] (RePack) 2011 | R.G. Repacker`s
 ```bash
 magnet:?xt=urn:btih:D20D115286FD302A0435E76780A5ED18B902EC3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Alien Swarm — это игра и набор для разработки мод
 ```bash
 magnet:?xt=urn:btih:F70A0592BF29B2D11E9788CC63A485066CE8A3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Armed Assault 2 / ArmA 2: Reinforcements / ArmA 2: Второй фронт [Ru] 
 ```bash
 magnet:?xt=urn:btih:D25795E89C4ED2B9BBE91FDC1E911FE65BDAE592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

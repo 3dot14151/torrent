@@ -19,8 +19,7 @@ Pale Moon 25.7.0 + Portable [Ru/En] (сборка для iAtom и Windows XP)
 ```bash
 magnet:?xt=urn:btih:0DB75B68257DAF9B061B271BFFD21A90B1305301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

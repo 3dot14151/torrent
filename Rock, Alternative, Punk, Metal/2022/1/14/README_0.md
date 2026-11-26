@@ -22,8 +22,7 @@ Burn The Priest - Legion: XX (2018) [FLAC|Lossless|image + .cue] <Groove Metal, 
 ```bash
 magnet:?xt=urn:btih:593E2C4D2A4333221994CF0C213FF227CB70CE92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Tony Martin - Thorns (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7CE2158813F5AA0F4630A835F25D6C58D9953B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CD - 1 - "Орден Сатаны" (Demo • 1988):
 ```bash
 magnet:?xt=urn:btih:278A641B0B20A2ABB0E563306362B0E439C3840F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD - 1 - Каннибал:
 ```bash
 magnet:?xt=urn:btih:8D575761A407A07B3ACF57EFA56E5D7B4154996C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Enterprise Earth - 4 альбома + 2 EP + 2 сингла (2014-2022) [MP3|320
 ```bash
 magnet:?xt=urn:btih:980754B166D4FA2A7593440BF1E95AC49B0B9349
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

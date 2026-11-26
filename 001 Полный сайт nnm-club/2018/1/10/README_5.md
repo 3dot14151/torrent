@@ -18,8 +18,7 @@ Darksiders (2016) [Ru/Multi] (1.0.2679) Repack =nemos= [Warmastered Edition]
 ```bash
 magnet:?xt=urn:btih:285283475581C4E9DCA75D945BBD3DC34EDF37AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Hearthlands (2017) [Ru/Multi] (1.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:08C3D86F8C3ED74BC2BBF5F342CC75D72B18D946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:954F0469EC29605ED34258FB85E43D22059DA3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ HTML Academy — стандарт в обучении фронтендеров. 
 ```bash
 magnet:?xt=urn:btih:D3DA8FCED37B5A8405FA044CDE9FCADD3FFED158
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Mafia II / Мафия 2 (2011) [Ru] (1.0.0.1/dlc) Repack Other s [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:63546B202FF51BBFB56C15C156987C7216DE3258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E5A07A13488C7D5F9286310957DA9F12DB2346E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7C5CD6FB91264633B2D8C2EE15F14048F8AFC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

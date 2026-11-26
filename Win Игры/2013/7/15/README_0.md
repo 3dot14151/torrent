@@ -19,8 +19,7 @@ Love Story 3: The Way Home / История любви 3: Путь Домой (2
 ```bash
 magnet:?xt=urn:btih:7DBF2CB10A2C1110141F80BC53596A68319C8F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Toki Tori 2 — сиквел удостоенной многими наград�
 ```bash
 magnet:?xt=urn:btih:90EB97D9C9F75F7857B0517FA183276D55AD3CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Carpe noctem! Насладись тьмой!
 ```bash
 magnet:?xt=urn:btih:7AF867330A15C1D71999943030BAEBFFAD94C0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Real Warfare 2: Northern Crusades / Тевтонский орден (2011) [Ru/E
 ```bash
 magnet:?xt=urn:btih:C719009B819E1ACAADEF35222F827166D6BD837B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

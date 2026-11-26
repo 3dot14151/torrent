@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:0224E64B5E80F13849CA9BFDBE1E8EBDE046AA59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stephane Grappelli - 1935 - 1943 (1998) Giants Of Jazz [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:DD3739DCD47411DDED81AC1A720787AA005AEE41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:78FE1E9FAB51B769DC49C36A8407F316FE5C4DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EB644CC9D38FF0A733C3154125DC889B3897579C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Tim Hecker - Konoyo (2018) Kranky [FLAC|Lossless|tracks+.cue] <Ambient, Drone, E
 ```bash
 magnet:?xt=urn:btih:19F1EA8A1020B88A080D13C3DE97453E8964C8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ SnippetsLab 1.8.1 [En]
 ```bash
 magnet:?xt=urn:btih:E600A35D9DE4F76BB5328894E3940FF2EA32DD3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:794FA3DE2DA2D29678D5D597CBC5E3BE7E03F9F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Suanda Music Radio Top 20: (October / November) (2018) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:F0BB870FE38F99ED2AE59072CBCAB815CDC7DEB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7FB6085E55FE4A309DFE048DC502B1AD69E4F5E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:429133577FAC2840B3FB12ECC406578D4B86B987
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:385EF022DD7DFC96AF840196DA4562326D248A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:427E35100065374D7F7372ACB3349B40CB751BD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ SuperDuper! - Утилита для клонирования жесткого д
 ```bash
 magnet:?xt=urn:btih:A8F20B6FC7A2368433895EC293BE471461F31191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E1552CECEA7D6D5FB116A1FE2F5C4228EE854B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ VA - United Colors of Trance Vol.12 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B1609469AF3F36DD497EDE503D3E73156344E5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +425,7 @@ Abney Park - AEther Shanties (2009) [FLAC|Lossless|tracks + .cue] <Industrial, F
 ```bash
 magnet:?xt=urn:btih:DF5672355C2DEB022642F38C6CC26EE57DAF5CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ Seven Thorns - Symphony Of Shadows (2018) Japanese Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:8FE8EB963112D2ADD9CF5DD8720A1F9A224C2672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,8 +481,7 @@ News Explorer - инновационное приложение для чтен�
 ```bash
 magnet:?xt=urn:btih:BA9D3DC2682263DEFB3476AAFA753AD3BD332201
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Devonthink Pro Office — программное обеспечение для �
 ```bash
 magnet:?xt=urn:btih:7605995BA2A52203A8F9130A68D96C48B9EF27AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,8 +531,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE72DF3E5E75F9F8E86A0BF2B86077D0B263D9B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +559,7 @@ Abney Park - Nonfiction (2016) [FLAC|Lossless|tracks + .cue] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:B84F6A36CB8D02E9CFD32240DB5C793773A989A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBF4A2D0DBDD99219A97ACF26A22804AD56F511B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,8 +614,7 @@ liquivid предлагает множество привлекательных 
 ```bash
 magnet:?xt=urn:btih:F686AAB1969E9D8957DA89D48009ABAFD482882B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,8 +641,7 @@ iCalamus предлагает простой подход к АКДС и явл�
 ```bash
 magnet:?xt=urn:btih:FB2C2F7E766AB1ABCD864934F7CF2E8B54C74791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ VA - Health & Beauty 50: Essential Tracks For Relaxation (2018) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:059415A5793271CF6E0B4958DF0C7B30954A2C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ Aeon Timeline: программный инструмент для создани
 ```bash
 magnet:?xt=urn:btih:3A6C10AF4AFDB2CB85F028CEB8B89200A3DC19D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

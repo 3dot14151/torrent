@@ -19,8 +19,7 @@ Kingdom Rush Vengeance v1.9.10 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8650A1143B0C4E0A9D682F64C235E29B11A03499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

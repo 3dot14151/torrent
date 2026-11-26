@@ -21,8 +21,7 @@ Chaos Divine - Africa (2012) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:D2D6F3B41A4854A64C0F1B2B89B86E72C395A823
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Inner Visions - Control The Past (2004) [APE|Lossless|image + .cue] <Power Metal
 ```bash
 magnet:?xt=urn:btih:A512524359F35D463681C769F2E181BE073F038C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Echoes of Eternity - The Forgotten Goddess (2007) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:89525F48C504D555DC40603B5EA83AB7121E9BBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ Domine - Dragonlord (Tales Of The Noble Steel) (1999) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:B0403DB433BA9A10CDFCD8786DA7B044F906AFB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Enslaved - Vikingligr Veldi & Hordanes Land (2004) 2CD [WavPack|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:7BEA1CF599B88FA7EEE6E1E9832A76B1C2B28C88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ Domine - Stormbringer Ruler - The Legend Of The Power Supreme (2001) Japan [FLAC
 ```bash
 magnet:?xt=urn:btih:C69C8608BFFA425E2C16F17C7242AE3CCA15369E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Domine - Ancient Spirit Rising (2007) Japan [FLAC|Lossless|image + .cue] <Power 
 ```bash
 magnet:?xt=urn:btih:1EF97D4CC441F14AEAE9EF9AE492F0CA68FED5D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Liv Sin (ex-Sister Sin) - Burning Sermons (2019) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0611698601B2C11A826D39DE5C97352D337B09B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0AF232EE539126650E2981826D9DC023ABB35A6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fallout 1, 2 [Mod] (2015) [Ru/Multi] (Mods) Unofficial [FanKit]
 ```bash
 magnet:?xt=urn:btih:CAD4E812DC30B565A293F704A8D9A7F4EBA3BD51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

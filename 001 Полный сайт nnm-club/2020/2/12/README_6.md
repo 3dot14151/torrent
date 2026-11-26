@@ -20,8 +20,7 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:1C240567B132E4F653FFD2E74304E1663834E849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Librarian Pro 5 v5.1 [En]
 ```bash
 magnet:?xt=urn:btih:94ED7D570A99E3D4176DC1877897FE8BA43E76AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ EagleFiler позволяет создавать, (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:0762136548D4407C7DED2821E4C7C2A7876E5492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Screenium 3 v3.2.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6C52AABC7AA632482477569EEE3B5A6DE6326FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Klokki - это отслеживание времени на основе пра
 ```bash
 magnet:?xt=urn:btih:3FDC98F4D7A60D1EEF9A2AD29BAF819DDA431105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Kassad - London Orbital (2020) [FLAC|Lossless|Web-DL|tracks] <Post Black Metal, 
 ```bash
 magnet:?xt=urn:btih:E98B9C9A7943C4B04D540EFBFF0FFB934798FE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:DF27251DB988C8297157F060BC8F572EB41F04BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ VA - Uplifto-1: - Первая (2007) [MP3|320 Kbps] <House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:013185456265A11E59B2D616F26228AD73EA6A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:57CC30B785B4E4D3C7C981313465EC3AF9CCE2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ Arborist - Home Burial (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alterna
 ```bash
 magnet:?xt=urn:btih:DE6BAECC863F2318B56156A8C45EAE638E10888F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +288,7 @@ Notability – мощное средство для ведение замето�
 ```bash
 magnet:?xt=urn:btih:B67FEAAEE90778ED3CAD23F1E2C7DFDE6CC6DF71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +316,7 @@ Kassad - Faces Turn Away (2017) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black
 ```bash
 magnet:?xt=urn:btih:BC019C4DFFA278540B6A017C4D32BED9266AB17A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3A2E2C58FD9E5E1E316BE696A5C5C716482BBE6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Alarm Clock Pro представляет собой многофункциона
 ```bash
 magnet:?xt=urn:btih:FB2C9055B34DC478986A252BD0311AFB174B4D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ ReadKit — приложение для отложенного (Offline) чте�
 ```bash
 magnet:?xt=urn:btih:36B7DEF737DA6BF4E5F68BD232506B90BF22AD26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ BOA feat. Mathieu Deranlot - Merci Pierre (2020) FireScope [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:7DBA1E34609CB3B4453190ED98932A9C4A561EBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3BB6BD3589A70BDC513B568782631A1BA4B0A48A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Hydro Featuring Lorna - Hydro (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 ```bash
 magnet:?xt=urn:btih:5CA2D86AE18402BCA7AAB4B2F54726DF3502F06C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21ED29FE775B73D2F32320BD81B69B402EBE359A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +526,7 @@ Vivaldi 2.11.1811.33 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9C4D6273AF24EA1C05D2BB9F330982E132D5077A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ A-Sun Amissa - For Burdened and Bright Light (2019) [FLAC|Lossless|Web-DL|tracks
 ```bash
 magnet:?xt=urn:btih:7D9705352428804F5695C619B2C319A4F6864CC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A20D23C8E045BBE07888BA367056150A57265DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D42503BA721FB08BB18EA064B3A178988FDCCF16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,8 +633,7 @@ TechSmith Snagit облегчает захват изображений с эк�
 ```bash
 magnet:?xt=urn:btih:86992607D45D8366CED005C1B48E068254C3A7BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ VA - Valentine's Day Mix (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:4AD783440275C72B0F23E310DDACF54A37F0E693
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -714,8 +689,7 @@ VA - The Perfect Valentine's Day (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:708B1B87E831C6F02E222BF0172C2DD4C81AD3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

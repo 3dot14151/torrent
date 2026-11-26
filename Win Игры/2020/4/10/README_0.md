@@ -19,8 +19,7 @@ Nevertales 9: Hearthbridge Cabinet (2020) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:1956B1DD506E188F9778196BB9D5EF96137753EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Reflections of Life 9: Utopia / Отражения жизни 9: Утопия (2
 ```bash
 magnet:?xt=urn:btih:499EFE6BBD196CB2CC09254405815E72B7798FED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ In Other Waters (2020) [En] (1.0.2) License GOG (обновляемая)
 ```bash
 magnet:?xt=urn:btih:59E95A60E5828E09D97BC0D163E50A9ECF79C205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ DOOM® VFR переносит динамичные бои в виртуальн�
 ```bash
 magnet:?xt=urn:btih:D8F8513DA01AF688348232AA644268AB8F8DAA0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ ANNIE:Last Hope - это Voxel HD шутер от начала и до конц�
 ```bash
 magnet:?xt=urn:btih:53F94B442E2665A7FFD081BCBB0ACAAF00B9C370
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

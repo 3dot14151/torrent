@@ -28,8 +28,7 @@ ZZ Top - I Wanna Drive You Home (Best Rock Hits Collection) (2010) [MP3|320 kbps
 ```bash
 magnet:?xt=urn:btih:C968B16C7AA845C0AA4786A0C96F1D9FA6E0CAFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:5AC91B81A07AE83388DD8690A8D89A0D60B149A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

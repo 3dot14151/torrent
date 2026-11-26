@@ -22,8 +22,7 @@ Boneyard Dog - Bluesbound Train (2016) [FLAC|Lossless|image + .cue] <Rock, Blues
 ```bash
 magnet:?xt=urn:btih:13392597D7B751DDF7958C1E45F42973941929BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cirrus Bay - Places Unseen (2016) [FLAC|Lossless|image + .cue] <Symphonic Prog, 
 ```bash
 magnet:?xt=urn:btih:7492C523D8A9F61881EFA5058530592A381BF044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bridgeville - Aftershock (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:81A9F4B540E0786B02CF64CE75AB6DED9981087F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Ocean Grove - The Rhapsody Tapes (2017) [MP3|320 Kbps] <Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:BF53E666AAB884EC13DD96F7C5314D51832EC42A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Night Ranger - High Road (2014) Japanese Deluxe Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:02CFC5D15D03BBC35F668F555F56D5B5D90818E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Night Ranger - 35 Years And A Night In Chicago (2016) Live [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:71E783BC195A9EF6BFDD234EFC3BCF3FC1AA54EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +191,7 @@ September Mourning - проект, созданный Эмили Лазар в 2
 ```bash
 magnet:?xt=urn:btih:9279CEC927679AC53FCD68DFE5AB06F534E7EE8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ DaemoNight - Трибьют к 50-летию Юрия Клинских (Сект
 ```bash
 magnet:?xt=urn:btih:6980E96C04144D3379208C97565BC039497B0CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

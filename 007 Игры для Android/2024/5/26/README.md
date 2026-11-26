@@ -19,8 +19,7 @@ Wood Block Puzzle – классическая игра-головоломка �
 ```bash
 magnet:?xt=urn:btih:B1D925938D304C92AD82B8BF0FC1716E39125517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

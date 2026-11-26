@@ -21,8 +21,7 @@ SPAN — норвежская рок-группа, образованная в 2
 ```bash
 magnet:?xt=urn:btih:56AD5AE651BFC5D0ACB821AB4293C61D6AE00683
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ A4 - Crush The Tyrants(   Читать дальше...   )Жанр: Thrash Metal
 ```bash
 magnet:?xt=urn:btih:7A8A925B03EC6C3823AA02235C891C97B281DC8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

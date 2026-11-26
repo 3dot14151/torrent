@@ -19,8 +19,7 @@ Anarchy: Wolf's Law / Анархия: Волчьи законы (2023) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:0B203C045C171E9A33876BF4FE0EE43F49230A73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) Repack Let'sРla
 ```bash
 magnet:?xt=urn:btih:9BB10653A0146915FF6551C8915933E76ED6337D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hannah - это трехмерный платформер с головолом�
 ```bash
 magnet:?xt=urn:btih:303990F667E0E38CE372858E58E725CDF207F725
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:00A724317EC57E4B677822AA7B98A8566B927485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Christmas Stories 13: Clara and the Guiding Star (2024) [En] (1.0) Unofficial [C
 ```bash
 magnet:?xt=urn:btih:D659374A59E1D5F795B09A166328B242B4979622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

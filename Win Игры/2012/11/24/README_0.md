@@ -20,8 +20,7 @@ Pid – платформер, где вы выступаете в роли ма�
 ```bash
 magnet:?xt=urn:btih:0E46F63D21EA4E87FCF4255206EA87FFD171099E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Tony Hawk's Pro Skater HD [Ru/En/Multi5] (Lossless Repack/1.0.8788.0) 2012 | R.G
 ```bash
 magnet:?xt=urn:btih:D59A72E5FBBE1C1355269D9B1F5D895768A15B25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Swords & Soldiers — это сайд-скроллер-стратегия, в к
 ```bash
 magnet:?xt=urn:btih:D72D19E62278BA91DEBDCD5C7DF78083F9CE3FC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Haunted [En] (L/1.0) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:AEF0E006D9071766F1ACF9D055CB7CCD8407DFC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

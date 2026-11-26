@@ -22,8 +22,7 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:CBF38E3A6658F844D24103ADAD7F80986A12E930
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ CD1 - CD14
 ```bash
 magnet:?xt=urn:btih:4F0E0935701A310A483DDDC94CA6F59DEDCC99F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Grace and Fire - Elysium (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, 
 ```bash
 magnet:?xt=urn:btih:AA63D7FA60A5583735DC408BDE8AA2B0DB05B452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

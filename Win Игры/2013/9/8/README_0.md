@@ -22,8 +22,7 @@ Proteus (2013) [En] (1.1.2) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:69B8462EED0637275DD792E2A6DADACEF0CE883F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Angvik (2013) [En] (1.2) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:F333BEC2870339E22F7A1A693EB65BFD747BDD6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Dance of Death / Танец Смерти (2013) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:0292BCE32545826B88E6F22D0EDB079287BA686C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Sea of Lies: Mutiny of the Heart. Collector's Edition / Море Лжи: Бун�
 ```bash
 magnet:?xt=urn:btih:B04B4DECCB9A24761E243A167AE56485D653CA1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Toki Tori 2+ – сиквел удостоенной многими наград
 ```bash
 magnet:?xt=urn:btih:D79F13CF4BC03CEFDD65AECCFF9262B3532C2A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Memoria (2013) [Ru/Multi] (1.1.4.0336) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:862AEA80AD998B13FD295A39CE304E96D81B41D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Disney Planes (2013) [Ru] (1.0) Repack Табличка
 ```bash
 magnet:?xt=urn:btih:57E5040E68616D3A7D01E03BE52B5D83A1C5BF0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

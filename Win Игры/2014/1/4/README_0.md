@@ -19,8 +19,7 @@ Mythic Wonders: The Philosopher's Stone (2014) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:DABDF65BF423AB655B5259656EBF7973B2F633C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Palm Heroes 2 - олдскульная пошаговая стратегия с 
 ```bash
 magnet:?xt=urn:btih:976AE62DE43B5E04A25775A4322F635C80386220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Gunpoint (2013) [En] (Upd3/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:673F929ADDC43CCEB0B49B0973508668CCD070CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

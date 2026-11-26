@@ -19,8 +19,7 @@ Mountain Bicycle Rider Simulator (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EE5D4E4363BBC7D572B29FC3204C4D94CA63336C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lempo – это психологический хоррор, вдохновле
 ```bash
 magnet:?xt=urn:btih:C32CB1AB6037CBF125E71F85537D433500978A9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Terminal 81 (2023) [Ru/Multi] (1.2.7) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:542E7652388D43C16C4892AED9A29DFFA5D8E9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Revenge of ILCOIN (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A67B904AA64D79AC5C8B85D003B299E6BC3D1AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Isonzo (2022) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:824D0CD61C8C906B168A51CA1F77F377ED05E04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ DOOM Eternal от id Software – прямое продолжение хита D
 ```bash
 magnet:?xt=urn:btih:33090F084D6EEB33740938C9FEE5A663C98FDDD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

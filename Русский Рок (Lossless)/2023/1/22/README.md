@@ -22,8 +22,7 @@ Dark Princess - Phoenix (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Fema
 ```bash
 magnet:?xt=urn:btih:86AFCB4F3B991252401CFDC7F0F5C396439B0846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:010DBDD663CAA1D8589DDE6C8ADB1C59B2C1EC63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

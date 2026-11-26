@@ -23,8 +23,7 @@ Mudvayne — американская ню-метал-группа из Пеор
 ```bash
 magnet:?xt=urn:btih:15988A681858B2419594CD33AE9736AE52DFC8F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

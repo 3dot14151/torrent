@@ -19,8 +19,7 @@ Time Relics: Gears of Light [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:997EE2697774B599A2BF6B0A02DDC007DED042B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Axel and Pixel [En/Multi3] (RePack) 2010 | Kirill Games
 ```bash
 magnet:?xt=urn:btih:F9414EF01F3446A08DABCEC4EAA5D92C6268733B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Journey: Heart of Gaia / Путешествие: Сердце Геи [Ru] (P) 20
 ```bash
 magnet:?xt=urn:btih:36AD13DA9A2F1F624EB267A9E6DEB73A196264A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Deadlight [Ru/En] (Repack/1.0.9249.u.1) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:4DA68E6877793D468E190E10BC6C607FC3F844D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

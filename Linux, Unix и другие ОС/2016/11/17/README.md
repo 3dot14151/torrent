@@ -19,8 +19,7 @@ Adobe Dreamweaver CS6 - новая версия программы для соз
 ```bash
 magnet:?xt=urn:btih:3A08AB68C3C6532B14ECA9DCCCECDBE473694B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

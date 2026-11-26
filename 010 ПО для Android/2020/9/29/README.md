@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:FDFA824D2C6D6C7B8000556F18660EDA5A48AF20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ C помощью данного приложения Вы можете легк�
 ```bash
 magnet:?xt=urn:btih:0AC16201935DB7AF0C35C0EBD71C4F1D57F979E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

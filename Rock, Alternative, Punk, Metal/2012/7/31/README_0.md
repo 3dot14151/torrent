@@ -20,8 +20,7 @@ Gorephilia - Embodiment Of Death (2012) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:B05CA46EA60210268E64C77D77D8493DD05B3CF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Frozen Splash - Твой призрачный мир (2012) [MP3|320 кб/с]<He
 ```bash
 magnet:?xt=urn:btih:3AC8291D1513F9609B7513CAC4D82607E1CFA3C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Syqem - Reflections of Elephants (2012) [MP3|192 кб/с]<Progressive, Alternati
 ```bash
 magnet:?xt=urn:btih:9C0F6B3AA46885F14ABFA2ACF439DDD4B829D60F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

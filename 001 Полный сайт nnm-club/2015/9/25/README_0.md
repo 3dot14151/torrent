@@ -21,8 +21,7 @@ Architect • Sonic Area • Hologram_ - We Are The Alchemists (2015) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:1607F98FF85818278BEAC3FDCA14E71C739803CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Aerobic Nonstop Mix (2015) [MP3|256 кб/с]<Pop, Trance, Dance>
 ```bash
 magnet:?xt=urn:btih:0F1D015882C08E261C45274D156E3D077F6C8770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Mozilla Firefox 41.0 (Яндекс-версия) [Ru]
 ```bash
 magnet:?xt=urn:btih:BBC9F3B441656E840437E16BD6E66305E5334EF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Wise Program Uninstaller 1.75.94 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:842B90010292B1DD2AB5D1625602D641B2D05CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +124,7 @@ Vivaldi 1.0.283.8 Technical Preview [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1BE588029E05C01C241D714380F386F3D579BDFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6AC522B1EBD4FA91F4E2610CE492A0343563DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EECA7B598B341D04A02EFB820FFA73CC5330865C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ Lauren Anderson - Truly Me (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:3FB827D679986198C6DE318305E343E0FA4158DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +255,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:08BBDFD208622E25B4C8B0E9A2CA7CD949D54994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:321144BA0739C531846D2AB46096226D2AEE8E96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +305,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EAB9B527EF5BEC4ADF4CA2B16E29E57DBA30928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +333,7 @@ Bonnie Raitt - The Best Of Bonnie Raitt (2003) [FLAC|tracks+.cue]<Contemporary B
 ```bash
 magnet:?xt=urn:btih:CCCBF31FEF442EF45A4A5C1762C412460617E4D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +358,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6AC5035E877E38C4630D43CAE630DE7EC13A388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ Symphony No. 38 in D major ("Prague"), K. 504
 ```bash
 magnet:?xt=urn:btih:F63C7AD93217D4070CE1BD1BD0C92F026904D4BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3853B9B69B4A82BC29AAA56A0FD3360802963426
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ Wise Registry Cleaner 8.72.559 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:903FABC42DE70E68BC1D6C654E29F1AB0E558DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +462,7 @@ LAV Filters сделаны на основе мультимедийной биб
 ```bash
 magnet:?xt=urn:btih:8E410B143ED9AED09170489DFBCF9B6242E50DBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +488,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0466D420D71A42BB1D9CD07ED99D5294BD6258F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +513,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E366E75B5255189E4301AEAB767107C73AEF9342
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +538,7 @@ Icecream Ebook Reader 1.71 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:538AAE6203A8A4BB14DDF793AF5640699E9D83DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +566,7 @@ Kanye West - Late Orchestration (Live At Abbey Road) (2006) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:0F3CEC841BBFAC7F0153ABDE679D51E75EF492AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E117581C16D4618FE555988A6A10B70FE9FC8EE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +616,7 @@ The Archive Browser - приложение позволяющее как про�
 ```bash
 magnet:?xt=urn:btih:34993D556C0087B681E35D200E7738351CA9FFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +669,7 @@ VA - Mega Dance Best Of 2015 Top 100 (2015) [MP3|320 кб/с]<Dance, House>
 ```bash
 magnet:?xt=urn:btih:F5F16A77D336A639ADA26ABE4DC45AC2D379F5AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

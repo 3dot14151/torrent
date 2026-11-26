@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:51FAB423C48F0093D1F6821B9190BC50EBB6B537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Data structures deal with how the data is organised and held in the memory, when
 ```bash
 magnet:?xt=urn:btih:F1207B243C3EE150A13BBCFFCE5811EBEDC09137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

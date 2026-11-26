@@ -22,8 +22,7 @@ A Taste Of Freedom - Carved In Our Dreams (2016) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:B028176CD8EC0E12EA9072AA02247AEB20B4E2B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jorn - Heavy Rock Radio (2016) [MP3|320 кб/с] <Hard & Heavy>
 ```bash
 magnet:?xt=urn:btih:78DFA8652B51ADE76CC560CCA91F49CAD76580F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Smokie - The Other Side Of The Road (1979) Reissue, 2016, Sony Music [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:3B35C22281D126C0D74BE3A52850E750BDA34674
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ CD I:
 ```bash
 magnet:?xt=urn:btih:B322E0678E646C3710E8DA656322F7280B22C5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Demian - Demian (1970) [MP3|320 кб/с] <Hard Rock, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:76A814B94FAC83E977238A52ADC9661FC0006871
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

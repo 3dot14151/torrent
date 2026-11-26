@@ -25,8 +25,7 @@ Umbrio (Umbrío) - Tiempos De Oscuridad (2013) EP [MP3|192 кб/с]<Atmospheric 
 ```bash
 magnet:?xt=urn:btih:5A198D637BBC3F54B19E4935D59B3685ABE8A04A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Thalarion - 2 альбома (2000 - 2002) [FLAC|Lossless]<Melodic Death Metal /
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Celtibeerian - Tirikantam (2011) [MP3|256 кб/с]<Celtic Folk Metal>
 ```bash
 magnet:?xt=urn:btih:B29244E3BA539A40412ECC734F9C168E5AF2CD36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Miss Caffeina - De Polvo Y Flores (2013) [MP3|320 кб/с]<Pop Rock, Rock & Roll
 ```bash
 magnet:?xt=urn:btih:4E0127EE8863E5FBD6362898A48241707B2DF147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Donnie Miller - One Of The Boys (1989) [APE|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Aborted - Strychnine 213 (2008) [APE|Lossless]<Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Bangor Flying Circus - Bangor Flying Circus (1969) [FLAC|Lossless]<ART-Rock, Jaz
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ Nightrage - Vengeance Descending (2010) 2CD [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Five Pointe O - Untitled (2002) [MP3|320 кб/с]<Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:A68B09426024B54F08669885AACAE70B8DBCEB8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Maragold - Maragold (2013) [MP3|320 кб/с]<Rock, Pop Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:1370B3128F1355B946570BD672C67BC0D178C5BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ Inter Arma - Sky Burial (2013) [FLAC|Lossless]<Sludge Metal/Black Metal/Doom>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ VA - Gothic Spirits: Vampire Lady (2010) [FLAC|Lossless]<Gothic, Symphonic Rock/
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ CD 1:
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +457,7 @@ Barclay James Harvest - Glasnost (1987) 2013 Remastered & Expanded 2 CD Edition 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,8 +491,7 @@ AqME - Дискография (1999-2012) [MP3|128-320 kbps]<Alternative, French
 ```bash
 magnet:?xt=urn:btih:9ECB0633E21AB99577F96885C338B859908220A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +525,7 @@ Bon Jovi - New Jersey (1988) Japan [FLAC|Lossless]<Hard Rock / Hair Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +559,7 @@ Summoning - Old Morning Dawn (Limited Deluxe Edition) (2013) [FLAC|Lossless]< At
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +593,7 @@ Within Temptation - 3 альбома (1997 - 2007) Japan [WavPack|Lossless]<Goth
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +627,7 @@ The Pogues - 5 альбомов (1984 - 1990) Original Album Series, Box set  /2
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +661,7 @@ Megadeth - Super Collider (Limited Edition) (2013) [MP3|320 кб/с]<Thrash Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +695,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +729,7 @@ George Harrison - 17 альбомов (1968-2009) [FLAC|Lossless]<Classic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -785,8 +763,7 @@ Pink Floyd - The Wall  (Experience Edition) (3CD) (2012) [MP3|320 кб/с]<Progr
 ```bash
 magnet:?xt=urn:btih:D80CA62F44035E89EC46B0295877BFAF0D0FBDA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -820,8 +797,7 @@ Megadeth - Super Collider (Limited Edition) (2013) [FLAC|Lossless]<Thrash Metal,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

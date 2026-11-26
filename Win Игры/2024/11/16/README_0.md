@@ -19,8 +19,7 @@ Gori: Cuddly Carnage - динамичный экшен с элементами �
 ```bash
 magnet:?xt=urn:btih:265CB5E2FDEE2A406F587D8B12652860E5BCD12B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Witch of Fern Island - это красочный симулятор жизн
 ```bash
 magnet:?xt=urn:btih:67CA663E4A059EF33BE310DB666BFA8BE8735FA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:5A59C3D7359EC685FB560C67CE6EED5172CADB52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A8619B5ADF61A583B56C7970841212AEB68E27AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:4384435BE7245CC07C9B957EC8D220ABD9762F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.0.4) Repack FitG
 ```bash
 magnet:?xt=urn:btih:465B5083653BF8FE26892ED3A41296A323C7DD30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:342C63D444A3EA10FF4CAABD58AC61885F88A296
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Aquarist - иммерсивный симулятор, позволяющий п�
 ```bash
 magnet:?xt=urn:btih:D607BF576C7C61624A758FAFA57E3909FAB7D508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ You Are Grounded (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:88349F02A16D226611E27685D68AE7B281D64B66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Beyond The Darkness - это мрачная история, которая ок�
 ```bash
 magnet:?xt=urn:btih:515782352BD11B471638C39036CFE92B176CC8F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Beyond The Darkness - это мрачная история, которая ок�
 ```bash
 magnet:?xt=urn:btih:8D4085F7C3DB4BF2AA6E6B2A0BB8601E306450E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:C2AAEC2B703087C6845B1B508A44FD236CB77AF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

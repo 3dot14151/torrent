@@ -22,8 +22,7 @@ Eleventh Hour - Memory Of A Lifetime Journey (2016) [MP3|320 кб/с] <Progressi
 ```bash
 magnet:?xt=urn:btih:EFAC809E05C5AE48BE020C6E61574012AFD9BFC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Artificum Nex - Epitaph of Life (2014) [MP3|320 кб/с] <Black Metal, Melodic B
 ```bash
 magnet:?xt=urn:btih:D93928A4BE0558BA71DB4FCF354981D5EE439271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Odyssea - Storm (2015) [MP3|320 кб/с] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:DE9EF39761227F768488C51B1EA49494758DF8FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sybrid - Hetalony (2016) [MP3|320 кб/с] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:8220922AC191FA0E9BA098FA486F0CB0BC105232
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Bryan Ferry - Boys And Girls (1985) SACD, Remastered, 2005 Virgin [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:1EC85DBD0136399235207220B3FABED846AD8CE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Eric Clapton - 461 Ocean Boulevard (1974) SACD, Remastered, 2004 Polydor [FLAC|L
 ```bash
 magnet:?xt=urn:btih:582DFB93F4B1FB8CE87C3A79EE7019FC8481CFE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Moody Blues - On The Threshold Of A Dream (1969) SACD, Remastered, 2006 Dera
 ```bash
 magnet:?xt=urn:btih:1A36EA36E5C6711B6173525ABEE7394AC35400B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Elton John - Honky Chateau (1972) SACD, Remastered, 2004 Island Records [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:4DD584D73804FC4FE508B48BC291E103B93E5F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Simple Minds - The Best Of Simple Minds (2001) 2 SACD, Compilation [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:479D9663E42680ADA254CF99893EC38DBE6FEEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ David Bowie - 6 альбомов (1995-2013) Blu-spec CD2 Collection /2013, Sony
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

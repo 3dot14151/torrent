@@ -22,8 +22,7 @@ A2 Pigalle; Tulips From Amsterdam; One Two Drink Up; At Last, At Last(   Чит�
 ```bash
 magnet:?xt=urn:btih:112EFA19BD9CCDE38AEFD1C81AC6090B61C77F04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Piel Canela(   Читать дальше...   )Жанр: Pop, Easy Listening�
 ```bash
 magnet:?xt=urn:btih:6F1A6A6CBBB93638BCE07F09C627F588EA69E7CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Memoriam - британская дэт-метал группа из Бирмин
 ```bash
 magnet:?xt=urn:btih:03B02044490AFA86614B16BDBD7FC5C60FA03A82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ Quick PDF Scanner + OCR Pro - Удобный сканер прямо в ваше
 ```bash
 magnet:?xt=urn:btih:10AF343B7A024F66949C06DA84324AC5BD00970B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Lightricks Motionleap (Enlight Pixaloop) (Mod By AlexaLiza) v1.3.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:570538093DE717536ABD2E30B2B089F27E546CE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Puffin Browser Pro – быстрый браузер нового поколен
 ```bash
 magnet:?xt=urn:btih:361B83007CC656C14DDD879DAC1280E06650D2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

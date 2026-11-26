@@ -25,8 +25,7 @@ Chaos Software Ltd. | V-Ray 2.0 for 3ds Max [2010] [PDF]
 ```bash
 magnet:?xt=urn:btih:27C1AC6F7C0C00406EFB0D38DF25B60B5C0C8D3F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CUDA - вычислительная архитектура, разработан
 ```bash
 magnet:?xt=urn:btih:4CDF0FF44ECC98644BD9CB13B177BF27CC6892DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7BA1768AE24F4C1803489EBC74D858F9379D567
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

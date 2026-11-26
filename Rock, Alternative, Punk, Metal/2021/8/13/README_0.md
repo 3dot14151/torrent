@@ -22,8 +22,7 @@ Hordak - The Last European Wolves (2006) Reissue, 2014, GS Productions [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:8FB7E034E29BBE89DB00B90E21F9F3897EFA36E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Destruction - Live Attack (2021) 2xCD [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:205A6EA79BEF1937DB32F246E264BDEAE7DD83C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sepultura - Sepulquarta (2021) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:1BDDDB2F02CF58BC184F2CD91FBBF79DD4C762A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Zodiac - блюз-рок-группа из Мюнстера, Германия о
 ```bash
 magnet:?xt=urn:btih:04A619A48E731C973D9E4820FC5E2D0ADE4E8493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

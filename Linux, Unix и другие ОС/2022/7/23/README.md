@@ -20,8 +20,7 @@ Kubuntu 22.04 LTS (Jammy Jellyfish) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:3ECED065042115825725E081C81084DA29FA7802
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

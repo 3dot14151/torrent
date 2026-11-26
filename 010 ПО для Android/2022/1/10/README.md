@@ -19,8 +19,7 @@ Cross Stitch Paradise v1.3.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7508DE01674295654778C6536B518F39C42577A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Tomorrow.io: Прогноз погоды v2.10.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:58BD00DE72524D05F4A8DFCC5F9C7F78E36F84A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ AccuWeather - прогноз погоды v7.17.1-2 [Ru]
 ```bash
 magnet:?xt=urn:btih:C91AF382CE365E1D1D0BF8445965652AF735742B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Weather Underground v6.11.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:4B48CF229C6E380820D799485F3729C50D78D2FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ YoWindow - это абсолютно новая погодная програм�
 ```bash
 magnet:?xt=urn:btih:5DEC88FF7983248BED1881B455BF58DFA0F777B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

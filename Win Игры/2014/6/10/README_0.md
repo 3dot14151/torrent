@@ -19,8 +19,7 @@ Super Motherload (2014) [Multi] (1.3.6.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D227FFF0ACA40C90BA64827B1958D70F5256D307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ A4 Unknown Artist - Проверка Фазировки Громкоговори
 ```bash
 magnet:?xt=urn:btih:A9AEBBB675182BD613560CC91DA1226EA4FA1A9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

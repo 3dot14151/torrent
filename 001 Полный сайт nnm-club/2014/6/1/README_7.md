@@ -27,8 +27,7 @@ Canker - Exquisites Tenderness (1997) [FLAC|Lossless]<Thrash Metal / Death Metal
 ```bash
 magnet:?xt=urn:btih:924340C1E9140303147995684656AD098E2E0EB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Club Sessions - Chilled House (2012) [MP3|320 кб/с]<Chill House, Deep Ho
 ```bash
 magnet:?xt=urn:btih:EEFC29ED3116B586545C028B2AAFD5B5947999D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Excellent Mood of Day (by Alex3107) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:496DD89BC4E00420074DDE1C73A5611318BF3B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Bajo Presion - Elkarrekin (2014) [MP3|320 кб/с]<Melodic Hardcore, Punk>
 ```bash
 magnet:?xt=urn:btih:A055ECF2F5F1E0D33B96AB4488DDC819BF2D22D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ VA - Floating Lounge (Chill House and Lounge Deluxe) (2013) [MP3|320 кб/с]<Ch
 ```bash
 magnet:?xt=urn:btih:2918EC27BF1F6AFDCF76084A48D491BFB718B21C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +219,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE08EC381916B8E329ECB9178102A87A1BBB6182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +253,7 @@ VA - Massive Trance & Progressive The Spring Sessions (2014) [MP3|320 кб/с]<T
 ```bash
 magnet:?xt=urn:btih:7B550FB7C2EE3C5962B891C125A5F678520DD6D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92BE5BBBE6021EEE36811809E292663C096F741E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ Noctem - Exilium (2014) [FLAC|Lossless]<Black / Death / Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:94932178C888C465D2310CE333D034C78099F9B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +350,7 @@ VA - ST. Tropez Sunset Lounge Affair Vol 1 (2014) [MP3|320 кб/с]<Downtempo, L
 ```bash
 magnet:?xt=urn:btih:3E65153BF0F326C41444C51617EBCA1643B7887B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +384,7 @@ King Hobo - King Hobo (2008) [FLAC|Lossless]<Stoner rock, blues rock>
 ```bash
 magnet:?xt=urn:btih:D23FF26AC7342463CFE1C31F271568C389259008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF57A2C8A68CE06D738077430A99213A957F387E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +443,7 @@ C.) Voor
 ```bash
 magnet:?xt=urn:btih:F2144E9087341FD8C18DC35795147202430E4FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +477,7 @@ Chris Thomas King - Rise (2006) [WavPack|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:150320D800F2F72F9ADC48A877FFE5ACC178522E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AC37C3FB487E876110A845A041663E0F4281BD46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +536,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AF2372610DCB8EAF1B904F1100BFDF2FD850BCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A46E55B91EDEAB907234C58E5E3346FC20DA2E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +595,7 @@ Ho-Chi-Minh - It Has Begun (2009) [FLAC|Lossless]<Nu-Metal | Electronic>
 ```bash
 magnet:?xt=urn:btih:BBD25DCD980A77886FD951D6EB990ED889ECF608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +622,7 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:C9E59248BCF176D71D599EA549A0C9CF9A2F5FA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +647,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B1C5E26C058F103998BDA53356293D04FA521C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,8 +681,7 @@ Cadillac Blues Band - Lost Friend (1998) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:F9DC4D2B7593D5636B95685F26349F0B72DC5419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -735,8 +713,7 @@ Kauan - Pirut (2013) [FLAC|Lossless]<Doom Metal, Folk Metal, Post-Metal>
 ```bash
 magnet:?xt=urn:btih:AAEF5D403931A1028D2FF5EF5226B611584CD209
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:12ACF40CF8E70A1C1199FBBC2852D60F90B479BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -797,8 +773,7 @@ VA - Midnight Express (2014) [MP3|320 кб/с] <Deep House>
 ```bash
 magnet:?xt=urn:btih:CB980D53A731539157555C98CCC13E28482AE88E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -823,8 +798,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F8115BFE018123C6398033EB8D7C3B529E78B69D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

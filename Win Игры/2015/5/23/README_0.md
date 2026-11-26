@@ -19,8 +19,7 @@ Mythic Wonders 2: The Child Of Prophecy (2015) [En] Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:709E98E224AD82AAD32121739FC0BAD503A21EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

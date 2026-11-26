@@ -19,8 +19,7 @@ Detectives United 3: Timeless Voyage / Лига детективов 3: Вечн
 ```bash
 magnet:?xt=urn:btih:3AE33A898DE5DAE7C42157938DC13F28EAA97002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bright Memory — это сверхскоростной микс из жанро
 ```bash
 magnet:?xt=urn:btih:A80796CDF2C6DF4033EACF543DCE557A30D174EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

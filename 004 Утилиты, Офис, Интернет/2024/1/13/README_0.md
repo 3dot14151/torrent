@@ -19,8 +19,7 @@ OnionFruit Connect 2023.1223 [En]
 ```bash
 magnet:?xt=urn:btih:60B981C125D59B71F3DEAD78D957E8407795F834
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

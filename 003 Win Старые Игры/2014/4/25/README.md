@@ -19,8 +19,7 @@ Starship Troopers Антология - это собрание всех игр �
 ```bash
 magnet:?xt=urn:btih:92E04D3514C67E9824ACB9FB99A4088F1C919758
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Jack Teagarden - Jazz Great (2014) [FLAC|Lossless]<Jazz, Dixieland, New Orleans 
 ```bash
 magnet:?xt=urn:btih:A63A42556FD9122C37D38FC8CCEA6CC99C20A322
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Teodross Avery - My Generation (1996) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:05C797D9E677AE0092454D710B7692776DB9C242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ North America Jazz Alliance - The Montreal Sessions (2013) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:BBC410377FFE75DDB6236C6B13038793B0B0A274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Stan Getz - Soul Eyes (1999) [FLAC|Lossless]<Jazz, Cool, Mainstream Jazz>
 ```bash
 magnet:?xt=urn:btih:8285ABA467A5CC90D41C56D870130477CEEC842D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Dizzy Gillespie - Gillespiana (2011) [FLAC|Lossless]<Jazz, Bop, Big Band>
 ```bash
 magnet:?xt=urn:btih:14461D48E35668A0D1265FF806AB76F10DCA0B65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Norris Turney - Big Sweet N' Blue (1995) [FLAC|Lossless]<Bop>
 ```bash
 magnet:?xt=urn:btih:9F966467E1CB4A906B1F48830102196EDF2AEF42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ Nostalgia 77 Octet - Borderlands (2006) [FLAC|Lossless|WEB-DL]<Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:19C0FBE6CB1FFB024820166BA374B17E66A5D7E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +222,7 @@ Nostalgia 77 - Sessions (2009) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:9D819A80C3C6BFAC21ECCBDC3E166157118B894C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ Anne Qullier 6tet - Daybreak (2015) [FLAC|Lossless|WEB-DL]<Contemporary Jazz, Fu
 ```bash
 magnet:?xt=urn:btih:4116BBCA3EBD82BE8F24B2BA0167965B8C85BECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ VA - Hot And Smooth Lounge Vol 1 (2015) [MP3|320 кб/с]<Lounge, Chill Out, Eas
 ```bash
 magnet:?xt=urn:btih:7AA773933B871D95A79173D5741AB6B3375B8D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +309,7 @@ Nostalgia 77 & The Monster - The Taxidermist (2012) [FLAC|Lossless]<Contemporary
 ```bash
 magnet:?xt=urn:btih:B2E77129E08F63AC8926097F34FDD3C6515EB8AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +338,7 @@ As Follows - The Narrative Of Arthur Gordon Pym (2015) [MP3|320 кб/с]<Progres
 ```bash
 magnet:?xt=urn:btih:8411747BDFF22E3B1796AF3258B9E5C227D0546E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ Joey Gilmore - Brandon's Blues (2015) [MP3|320 кб/с]<Chicago Blues>
 ```bash
 magnet:?xt=urn:btih:A0946D1B4A2BEC63FB99666F33B27485951244E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ Nostalgia 77 - The Sleepwalking Society (2011) [FLAC|Lossless]<Contemporary Jazz
 ```bash
 magnet:?xt=urn:btih:219B4289D2E5F9680006E6ACB38659C75FB2D041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9FEAE21535169A6FD98172F554EABFDDED150864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +446,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:027A113867B9862423DEFA94C79493C33E09B470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A6969FF0ABA16E5D221A101415C50F430E4CC962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ Analog Trio - Synthi Mental Moog (2015) [FLAC|Lossless|WEB-DL]<Fusion>
 ```bash
 magnet:?xt=urn:btih:9BA7B4B0461FBA904D57810EE14786C529B792C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +533,7 @@ The War on Peace - Everyone Safe, Everyone Sound (2015) [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:8E91854CD0426952860512606AF16ABD315C3A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +562,7 @@ Sonic Prophecy - Apocalyptic Promenade (2015) [MP3|320 кб/с]<Heavy / Power Me
 ```bash
 magnet:?xt=urn:btih:20282CF22E33982467C531F1E75A1FAFD2A77E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +587,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF7EDC772EE62FEB8B39FB0D1D15FE8B362B9669
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ Billy Cobham - Powerplay (1998) [FLAC|Lossless]<Jazz, Jazz Fusion, Jazz-Rock>
 ```bash
 magnet:?xt=urn:btih:2FA314AA50C15A6BFA3B29C4A4076B41E1123514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6FC3EFB4B9C8B8CB1C3481F1F1A498834FE7B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +670,7 @@ Nancy Danino - Testify (2015) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:F3670091389054DC4F02A4F8F01CD0EDFA8CE865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +699,7 @@ Michael Van Merwyk & Bluesoul - New Shoes (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:8513593A3E12811263EC38AA00A74F2C8366ED83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -753,8 +728,7 @@ Twin Arrows - Hell and Back (2015) [MP3|320 кб/с]<Alternative/ Heavy Psychede
 ```bash
 magnet:?xt=urn:btih:FC3FC9ED603D39285F8B9DD6D96216267882338C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

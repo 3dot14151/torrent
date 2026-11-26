@@ -22,8 +22,7 @@ The Casualties (1992-2018) [MP3|128-320 кб/с] <Rock, Punk, Punk Rock>
 ```bash
 magnet:?xt=urn:btih:B7D5318C8569D598656E9FDACAE6ED6ED54AE415
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

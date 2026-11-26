@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:5DCB79AE41F017127DE96DC09F5645C2BC751220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6DCF52AA6D8526BF8C9C02324E9EE027CD180178
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:52F494C8BFAF7F057724B41F3D377FD6FCDE27BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DEFA7D4355AFDE9BE0E24E3E7BEE8C923CB972CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ File Cabinet Pro  - менеджер документов из строки ме
 ```bash
 magnet:?xt=urn:btih:82303F5C6D509CC43D6D6F2764D22659CD82F510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ VA - Immense Stadium World Electrix (2017) [MP3|256-320 Kbps] <Dance, Club, Hous
 ```bash
 magnet:?xt=urn:btih:81B5D237D8FFEB10B51F770784F972078FC7B52E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ VA - Progressive Hits Vol 1 (2017) [MP3|320 Kbps] <Progressive House,House>
 ```bash
 magnet:?xt=urn:btih:59185F261AC47E5D701ED8DB48709E6E46EC3D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - Chill out Collection to Lift Your Soul Vol.5 (2017) [MP3|320 Kbps] <Chillou
 ```bash
 magnet:?xt=urn:btih:DD07C0DD89DA34F1E83878EF3CD2DF26F1646FCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Музыкальный презент на Europa Plus. Версия № 4 
 ```bash
 magnet:?xt=urn:btih:1206C97932BD6882A6D0C7A4161EA6EE7634E1E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ VA - Future House Reality Funk (2017) [MP3|320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:99DFA405494E1DF25C2BD086DFD02156BBCE52D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ VA - На волне позитива. Версия № 5 (2017) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:2F8E3BB9C7C082EECC28A44E0E01FB0FD63B61C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ Suicidal Tendencies - Lights... Camera... Revolution (1990) Japan [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:C01C28455288A6773A8B83EE1356FE9B1965D105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ VA - Отдыхаем душой на Шансоне выпуск № 6 (2017) [
 ```bash
 magnet:?xt=urn:btih:5DAACDC4FDA425E5A954EE49A49F23DDEC20FA6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,8 +385,7 @@ Coen Wolters Band - As The Crow Flies (2006) [FLAC|Lossless|tracks + .cue] <Blue
 ```bash
 magnet:?xt=urn:btih:97BA8F6E51DB2B2998E0696781F336F9E4D1412D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +413,7 @@ Thembi - Morning Melody (2009) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:AF4EB382FD06CF48CC7A27828EEC549F03CEF69B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ VA - Deliberate Mistakes (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep 
 ```bash
 magnet:?xt=urn:btih:5AF170798A195D085AA1B5ED67838B50AFEA57D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ BMinor - Refurbished Echomachine (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 ```bash
 magnet:?xt=urn:btih:89D5B55B89CC638D9EA4F64AABCC647C7AE931C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ VA - Embedded Audio EA presents: Best Of 2016 (Mixed by Steve Dekay) (2017) [FLA
 ```bash
 magnet:?xt=urn:btih:4C13F640E629398EB9828AEE1B1D930406F1C6E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ VA - Infinite Progression Vol. 3 (Compeled By Psyflame) (2017) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:578BB1738D21A3DBEAAEC8FDFFF2B801A7A9505D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ VA - Весенняя танцевальная вечеринка выпуск �
 ```bash
 magnet:?xt=urn:btih:E649DDCE27CD70CCA582A3125D148C91D86D7F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DD46D2DFE00D5D42CA3152E4D75D6DF629474D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ VA - Deliberate Mistakes 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 ```bash
 magnet:?xt=urn:btih:EA0C5E1DA335686A18E7ADFDD7ACD83C838A20FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,8 +632,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:291972EAAE74B468CA02CAED0CD1ADFD2B930B98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,8 +657,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA8D691580FF80FDC6126E63F2F18F717AE672F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ VA - Best Chillout Vol.27 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:04A947412C1F457621D728A99926A1464CC7A318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +711,7 @@ Vandera - Red Ink / Heart's Rhythm (2017) EP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:AD911D3DE61050D6B7D208553071847A4C2C86D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

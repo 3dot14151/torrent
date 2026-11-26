@@ -19,8 +19,7 @@ ASPack - усовершенствованная программа для сжа
 ```bash
 magnet:?xt=urn:btih:6E26EA09E3014347DC046C64BF20A776631BDAA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

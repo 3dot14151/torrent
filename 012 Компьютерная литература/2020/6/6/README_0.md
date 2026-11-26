@@ -19,8 +19,7 @@ Adam Freeman | Pro ASP.NET Core 3. Разработка облачных веб-
 ```bash
 magnet:?xt=urn:btih:5BA4DD24AADC113D473B683A8721616288A8B4E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

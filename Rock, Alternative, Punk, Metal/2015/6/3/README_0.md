@@ -22,8 +22,7 @@ Rest Among Ruins - Fugue (2015) [FLAC|tracks + .cue]<Metalcore | Progressive Met
 ```bash
 magnet:?xt=urn:btih:5278788FB57909F9DA4626E0C23803A3DC2E640E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Todd Rundgren - Global (2015) [FLAC|image+.cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:1514F151F149BDA3E5DF3701606689BB7B3E1FA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pete Townshend - Psychoderelict (1993) Remastered /2006, Imperial Records/ [FLAC
 ```bash
 magnet:?xt=urn:btih:4926279AB4E7504DC97B81166E116D91FA815700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ From First To Last - Dead Trees (2015) [FLAC|tracks + .cue]<Post-Hardcore | Alt.
 ```bash
 magnet:?xt=urn:btih:7C0BA6A4E178115DDD8E4E432BED7E51DC4AAEF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A1E6A8025247D8061D622B99055317051EA103F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Indigo Girls - One Lost Day (2015) [MP3|320 кб/с]<Folk Rock>
 ```bash
 magnet:?xt=urn:btih:834305CE677EF531EA3A68251D6DA07204EF7BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76A24E02BA5300422DDFAE573A2C0DC97648FE0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +219,7 @@ Circuit Des Yeux – девушка из Чикаго Хэйли Фо, обла�
 ```bash
 magnet:?xt=urn:btih:34CF03077B89A411ABD42E7C263248DFC78684F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +247,7 @@ Bay City All Stars - Rock & Roll Diner (1996) Remastered /2001, Menus And Music 
 ```bash
 magnet:?xt=urn:btih:5FDF0C164FBCCB1F60A293645239A21D517ACA55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +275,7 @@ Luciferian Light Orchestra - Luciferian Light Orchestra (2015) [FLAC|image+.cue]
 ```bash
 magnet:?xt=urn:btih:088F592FDC7ED74BF6F56BF6C383D082A7AE61D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ Recorded At Chess Studio Chicago, USA, 2120 South Michigan Avenue, 10/11 June 19
 ```bash
 magnet:?xt=urn:btih:B7359DA86668755BCAC584E950CCF0F21154A107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ The Dead Daisies - Revolucion (2015) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B4ABFCF5B777BBF12FED4024DD34C7A18ABC935B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ Paradise Lost - The Plague Within (2015) Limited Mediabook [FLAC|image+.cue]<Got
 ```bash
 magnet:?xt=urn:btih:9A4795FF21000DC7DD4C46ECA53C7855EEFF53EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ Bryan Ferry - Albums Collection (1973-1985) 6 CD Remastered /2015, Universal Mus
 ```bash
 magnet:?xt=urn:btih:68873DCBB593EFA27F3955E24A7DAB481E46DAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ BrainStorm - 7 Steps Of Fresh Air (2015) [MP3|320 кб/с]<Brit-pop, pop-rock>
 ```bash
 magnet:?xt=urn:btih:2DBFF61DAA93B8A815C121C35C474C4E12E3BFEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

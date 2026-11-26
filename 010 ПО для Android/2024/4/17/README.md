@@ -19,8 +19,7 @@ AIDA64 2.01 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:616FE6166C8C6FEDE0E628C4113946AB91427A1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

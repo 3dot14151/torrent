@@ -20,8 +20,7 @@ Ubuntu*Pack 20.04 GNOME LikeWin (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:F6047C666B97DEEE637536D96A05628B9C9A8FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

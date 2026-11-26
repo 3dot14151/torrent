@@ -19,8 +19,7 @@ Mayan Puzzle (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:D6C225FCC8EEA7B4836D795E1764C5C9F6EC1E5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Snowcat Simulator (P) [Multi4/-] 2010
 ```bash
 magnet:?xt=urn:btih:F4EF12D9C23E0BC0D0D774A9105D2510FA1772D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

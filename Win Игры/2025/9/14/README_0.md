@@ -19,8 +19,7 @@ Shardlight (2016) [En] (3.4) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:10D9531D2C55AB6848EA20532AD18013D0162583
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.0.4) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2B791ABC3ED7F9E9CBDB11B3D3D54370A33B4412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ SWAT Commander (2025) [Ru/Multi] (0.7.7.4) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:E455072B6E3FC95020059285C5598B7459923F38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Galactic Civilizations IV (2023) [Ru/Multi] (3.01/dlc) Repack Let'sРlay [Supern
 ```bash
 magnet:?xt=urn:btih:D0200363AD4C2EF8E69E388506E46BBD5E0C2A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 ```bash
 magnet:?xt=urn:btih:8DA5F2FA62E66EFFBD28E59F8A37D3E0550D8994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ready or Not (2023) [Ru/Multi] (94572/dlc) Repack Let'sРlay [LSPD Bundle]
 ```bash
 magnet:?xt=urn:btih:640C8CBC3AA50829A2BAF78B6C2665B3E8E1A724
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Atari 50: The Anniversary Celebration приглашает игроков в и�
 ```bash
 magnet:?xt=urn:btih:B23230238D1669F1FC7DE708CF3BE87F1AA44C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8B5120041613D2892EFFA1DBF9CA3C1CB020C276
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28561) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0CE03BB8464A0B5E7F1630DD662A544DF3D8F3B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Gloomy Eyes (2025) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D27EEBC25D0902107C8C563216E8B8C77AE909CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ X-Morph Defense (2017) [Ru/Multi] (SVN_29109.TC_129.DATA_12/dlc) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:7E8CBF5B73424122AD889E78D339D717A502C7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Metro Simulator 2 - уникальная игра, в которой предс�
 ```bash
 magnet:?xt=urn:btih:C75C9B0AE8D012236E53531F8BC1B54C477812F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Dream Engines: Nomad Cities - это градостроительный симу
 ```bash
 magnet:?xt=urn:btih:C39C3FD32D98CA77661CDA28D2ACFC02D61028DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Infestation: Origins (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2588504CCB905EEC053BBD2AC5043A6ECE1E8F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Antioma (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6C285028D71334CB27A89C5FE8711CC17693457F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ The Procession to Calvary – приключение, выполненное в 
 ```bash
 magnet:?xt=urn:btih:82258896EEBC691A781BD6BB4421FD20F7EB784E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +419,7 @@ Captain of Industry (2022) [Ru/Multi] (0.7.9) Repack seleZen [Early Access]
 ```bash
 magnet:?xt=urn:btih:F9FC8B361773ECE43EB35051DC5A90C5EC75FEBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +444,7 @@ Metro Simulator (2019) [Ru/Multi] (5.1c) License GOG
 ```bash
 magnet:?xt=urn:btih:9268648F3D3A4388025D82FD6FA458718A481E88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

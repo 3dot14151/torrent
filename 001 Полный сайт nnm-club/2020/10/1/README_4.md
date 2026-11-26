@@ -18,8 +18,7 @@ Resident Evil 3 – полностью обновленный ремейк хо�
 ```bash
 magnet:?xt=urn:btih:B8D1389D5FC823F1E21F411C76FE22FE9FEC3594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9A07AE20B0DD9C5DED17B00BB158480207411932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

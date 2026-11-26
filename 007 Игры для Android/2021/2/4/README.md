@@ -19,8 +19,7 @@ Battle of Warships: Морской бой - Отличная игра для л�
 ```bash
 magnet:?xt=urn:btih:D3B7AD5B2C3C134B96E6325FE7D24F23ABF26CCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

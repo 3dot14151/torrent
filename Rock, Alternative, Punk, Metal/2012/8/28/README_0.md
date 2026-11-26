@@ -28,8 +28,7 @@ Mass Hysteria - L'Armée Des Ombres (2012) [MP3|~245 кб/с (V0)]<Alt. Metal / 
 ```bash
 magnet:?xt=urn:btih:2600A77E4FE0CF2DB3C92262E4DF8ED09596F0E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Charlie Shred - Charlie Shred (2012) [FLAC|Lossless]<Power Metal/Heavy Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ September Mourning - Melancholia (2012) [MP3|320 кб/с]<Melodic Modern Metal, 
 ```bash
 magnet:?xt=urn:btih:2A2956E71A5F57B993BB4A022BF23C6D2C6E4EC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Parkket - Научиться летать (2012) [MP3|320 kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:F46D1F7DED9E55AD2D94916FF23AFAA2760713E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Creedence Clearwater Revival - The Best Of C.C.R. (Japanese Edition) (1985) [MP3
 ```bash
 magnet:?xt=urn:btih:22566A8844DFA8C2FC9F972425D698E2122078E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ the Bloodhound Gang - 22 релиза (1994-2010) [MP3|192-320 кб/с]<Rock/Alt
 ```bash
 magnet:?xt=urn:btih:5501C0BF4F6A9AA3D9B07FEB1535474CACDD8EF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

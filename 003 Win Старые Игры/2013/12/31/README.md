@@ -22,8 +22,7 @@ Eternal Darkness: Sanity's Requiem (2002) [Ru/En] (1.0.0.1) Repack Ma2012ks
 ```bash
 magnet:?xt=urn:btih:2EE99633845238C1F8A456970EF030EB6D084435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

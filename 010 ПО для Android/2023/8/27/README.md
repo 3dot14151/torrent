@@ -21,8 +21,7 @@ GPS Локер создан для того чтоб не терять фикс�
 ```bash
 magnet:?xt=urn:btih:93A917C2D0CB082B44295ED52A09AA90466A4231
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Smart AudioBook Player Pro v10.0.6 Mod by Balatan, Kirlif', Alex.Strannik [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:A717A605E04F798870C40867ADAC287501D3128A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

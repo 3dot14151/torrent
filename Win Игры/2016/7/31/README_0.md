@@ -19,8 +19,7 @@ Fly and Destroy — Ваша задача как можно дольше выд�
 ```bash
 magnet:?xt=urn:btih:BAD763E80B2061716E316C35BCD505CEC9084B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blood Bowl 2 - это фэнтезийная видеоигра, созданн�
 ```bash
 magnet:?xt=urn:btih:5C86556C44B5013DE7675412CF3799E21EFE30CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fly and Destroy — Ваша задача как можно дольше выд�
 ```bash
 magnet:?xt=urn:btih:48C6ADE54DAF84F6B93A8ACBD105987DAD03FA11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Battlezone 98 Redux (2016) [Ru/Multi] (2.1.192/dlc) Repack Other s [Odyssey Edit
 ```bash
 magnet:?xt=urn:btih:CAB268AF78D48E4BEDD7E0DE87AF81890D52B3DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Dreambreak — приключение в альтернативном будущ
 ```bash
 magnet:?xt=urn:btih:4EA293B6BB7A272D3C7A16DDB1DB5B04E928C847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

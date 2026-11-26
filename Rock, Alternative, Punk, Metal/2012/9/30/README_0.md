@@ -25,8 +25,7 @@ Ereb Altor - Gastrike (2012) [WavPack|Lossless]<Viking Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Malice - License To Kill (1987) [MP3|320 кб/с]<Hard-n-Heavy, Melodic Heavy Me
 ```bash
 magnet:?xt=urn:btih:CA13E1C45160AA584EB26AE2FA4F9DB494986C42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Eisbrecher - Die Holle Muss Warten (Miststuck Edition) (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:B376B145E8C2EAF40E1784791EC90EF679EB36DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Black Sabbath feat. Heaven & Hell - 21 Альбом (23 CD) Japanese Edition (19
 ```bash
 magnet:?xt=urn:btih:9E2BE7396DC96936F9C677D7073BE71C81251C21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

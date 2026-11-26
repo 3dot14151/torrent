@@ -19,8 +19,7 @@ VA - Legend Rock Ballads vol.1 - vol.3 (1996) Compilation, Unofficial Release [F
 ```bash
 magnet:?xt=urn:btih:54501A797742A1E8A27B91017DF64843A38CD094
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Kaspersky Internet Security 2014 - комплексный Антивирус К�
 ```bash
 magnet:?xt=urn:btih:054A3440CC8D93A07EB8B08D98017D2B5D966EC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:208A0E9D9DC95D9C2996AAD558CB737E7060A908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

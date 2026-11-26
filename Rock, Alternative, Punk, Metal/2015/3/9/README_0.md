@@ -23,8 +23,7 @@ As Follows - The Narrative Of Arthur Gordon Pym (2015) [MP3|320 кб/с]<Progres
 ```bash
 magnet:?xt=urn:btih:8411747BDFF22E3B1796AF3258B9E5C227D0546E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:027A113867B9862423DEFA94C79493C33E09B470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ The War on Peace - Everyone Safe, Everyone Sound (2015) [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:8E91854CD0426952860512606AF16ABD315C3A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Sonic Prophecy - Apocalyptic Promenade (2015) [MP3|320 кб/с]<Heavy / Power Me
 ```bash
 magnet:?xt=urn:btih:20282CF22E33982467C531F1E75A1FAFD2A77E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ Twin Arrows - Hell and Back (2015) [MP3|320 кб/с]<Alternative/ Heavy Psychede
 ```bash
 magnet:?xt=urn:btih:FC3FC9ED603D39285F8B9DD6D96216267882338C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Sodium - Haven (2015) EP [MP3|320 кб/с]<Hardcore Punk, Crust>
 ```bash
 magnet:?xt=urn:btih:55C45A06B65A282E9BFF151395267E0D0CF5506A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ The Wytches - Annabel Dream Reader (2014) [MP3|320 кб/с]<Alternative/ Indie/ 
 ```bash
 magnet:?xt=urn:btih:3124E88CA09CAEFADF247AC87C004586A6A0E1A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ Soul Scroll - История Ушедших Дней (2015) [MP3|320 кб/с]<He
 ```bash
 magnet:?xt=urn:btih:8941FCFFAE48188E66AE044851566531EE8544D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Like A Storm - Awaken The Fire (2015) [FLAC|Lossless|WEB-DL]<Alt. Rock | Modern 
 ```bash
 magnet:?xt=urn:btih:5031CEA0C193539BEE1428BC0DFF7E4B1C28E9B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +283,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:570F20FF944ADBAE26B1A631340AB8A456AFB400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +312,7 @@ All That Remains – The Order Of Things (2015) [FLAC|Lossless|WEB-DL]<Melodic M
 ```bash
 magnet:?xt=urn:btih:509583BA3345FB91AF7258F429A6A5D710E20465
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

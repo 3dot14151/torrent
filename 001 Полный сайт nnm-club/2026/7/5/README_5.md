@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:CEDFC87AE4804B07EC812C39A8BF6237F9F4A8A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB1D1D8A13FB88575B522D8737BCB47068D63B8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Armin van Buuren - Live @ A State Of Trance, Vietnam (2026-06-13) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:84B2E80EC37B2ADEAB59531B86AF85D7B15983A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Mindseye (2025) [Ru/Multi] (7608873_cl1511717/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0A90C1B67DE1E1F716147ACD4442F658D4078CA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

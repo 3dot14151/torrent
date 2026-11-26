@@ -22,8 +22,7 @@ Our Girl - Stranger Today (2018) Limited Edition 2CD [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:0B9B346349960B41F1E94223C393CC9C89F9328B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Perfect Son - Cast (2019) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:E4AD4082880DA21246DBC1FFA5059733D0DC7186
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Last Dinosaurs - Yumeno Garden (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop, 
 ```bash
 magnet:?xt=urn:btih:C7A4807A5BD72FAF406242E25D44A43F16FD8A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Project NT - Веселые песни о Жизни и Смерти (2019) WEB-
 ```bash
 magnet:?xt=urn:btih:1E96F36019B52945ED86D7495225C9F52D889673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Animals - The House Of The Rising Sun: Best Of The Animals (2019) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:D7C09AE4E227B722DEAA3D22AABA2F0C5389B5B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Soft Rock Ballads (2006) 3CD [FLAC|Lossless|tracks + .cue] <Soft Rock>
 ```bash
 magnet:?xt=urn:btih:64DBD5E0E3112BAA7DC45246FC42CCCB6C34AF95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Avantasia - Moonglow (2019) [MP3|320 Kbps] <Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:7A9E665967A31D7A7E08F8DBAF3A13B805DB946A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Avril Lavigne - Head Above Water (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:1FE77932954DBCB3224EA4D783F046FBE186A334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - The Best Rock Ballads In The World...Ever! (1995) 2CD [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:DF5CFC5133AC0BC3F259059614F0F44509C79B69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Avril Lavigne - Head Above Water (2019) [MP3|320 Kbps] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:1F1646C785638FEC8663B9E1E7C95333C62DA0A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

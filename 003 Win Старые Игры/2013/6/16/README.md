@@ -22,8 +22,7 @@ John Romero's Daikatana (2000) [En] (1.2+) Repack ATTACUE
 ```bash
 magnet:?xt=urn:btih:1A8FEB96A5B0A3AD2A3EF4232E84F3A53859DAA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

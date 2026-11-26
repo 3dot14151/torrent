@@ -19,8 +19,7 @@ Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5A083327A50D3EE4A124E83D9D8977C57965DFFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 ```bash
 magnet:?xt=urn:btih:56D4F4028695B815049417656D828B2E52477F1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fury Unleashed создан в сочетании вдохновения от с
 ```bash
 magnet:?xt=urn:btih:8D7BEF560326D9D8440245BBB55A481A8679AF5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

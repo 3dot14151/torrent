@@ -19,8 +19,7 @@ DSLR Camera Pro 2.8.5 - Фотокамера (11.12.14) <Ru>
 ```bash
 magnet:?xt=urn:btih:DA2A85C61E401E536BD62898FC0FB3E91E1DA8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

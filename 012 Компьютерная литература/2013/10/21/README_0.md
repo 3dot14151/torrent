@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7F2F69FCA526AA0BEC716EE82AABA64646C9CA69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ASP.NET MVC 4 в Действии - является практическим р
 ```bash
 magnet:?xt=urn:btih:A3DECF24F8C26AD8898D624E9EEA8030B6F6CA0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

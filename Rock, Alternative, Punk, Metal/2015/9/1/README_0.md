@@ -22,8 +22,7 @@ Andro Coulton - Dragonhead (2006) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D8CDBD848819809C99EF7B4D05916E23DBED8C47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Carousel - 2113 (2015) [OGG| 438-478 кб/с]<70's Hard Rock>
 ```bash
 magnet:?xt=urn:btih:280CBC9C5C2C7BE2241D8405791147A549DDAF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Rubens - Hoops (2015) [OGG| 477-516 кб/с]<Alternative, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:460A34FAD2F517ABD3E1CB49C1F4D7531690B913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Pentagram - Curious Volume (2015) [OGG| 486-535 кб/с]<Doom Metal, Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:6B9080E768E8A4EFB143D0946951DAF74470F55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Praying Mantis - Legacy (2015) [OGG| 489-523 кб/с]<Melodic Heavy Metal, Hard 
 ```bash
 magnet:?xt=urn:btih:DB80E2EB4EA072104621372B2259C3B6E46CC61C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Fear Factory - Genexus (2015) [FLAC|image+.cue]<Industrial Groove Metal>
 ```bash
 magnet:?xt=urn:btih:BADAA3900922589CB676D3D0729E5B9E3F1F70A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3847C37E16EB0DAA4171C31584E97284DA61ADBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

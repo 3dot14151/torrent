@@ -19,8 +19,7 @@ PROMT для MS Office – инструмент для быстрого пере
 ```bash
 magnet:?xt=urn:btih:DFFE5FA4109D2A6FF8BB2F08BB9CB319B1DC00A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ J.E.T. - Fede Speranza Carità (1972) 2CD [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:6C376D618B35126F49DE0193A589E32CFEEE3B93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Muckrakers - 2-Albums/1-EP/2-Singles (2013-2019) [MP3|320 Kbps] <Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:73131EFD449B4B9E80BBED1D5139F86BE16590DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Arcturus - Sideshow Symphonies (2005) [FLAC|Lossless]<Avantgarde Black Metal>
 ```bash
 magnet:?xt=urn:btih:67F45D813DAF264098E44520CC8FE80541BF2366
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Nightingale (Швеция) - музыкальный коллектив комп�
 ```bash
 magnet:?xt=urn:btih:D25D1115D35D8CE27BCE5FD8D80A3A774F296C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Arcane Grail - Mysteries Of The Ancient Charnel (2006) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:7497148A1A85E7F7FDE982D2797FD7CABB752E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Angtoria - God Has A Plan For Us All (12-track version) (2006) [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:5E504765BB10FD774D97C4B3FA09F64D153DA26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

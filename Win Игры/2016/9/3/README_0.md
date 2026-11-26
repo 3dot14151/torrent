@@ -19,8 +19,7 @@ De-Void (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:D53F0197D94C7EDFD4407EC432865B722B924008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ De-Void — это приключенческая игра с видом от п
 ```bash
 magnet:?xt=urn:btih:F1F4803EA030A71E3B61A7B2DC901EF076C13AFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Redout - это гоночная аркада, вдохновленная так
 ```bash
 magnet:?xt=urn:btih:0CDED7B3CF3394FCC26BDBF0E01F76D3FFCD98F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

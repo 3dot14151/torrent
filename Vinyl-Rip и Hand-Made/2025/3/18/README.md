@@ -22,8 +22,7 @@ A4. Jack Action(   Читать дальше...   )Жанр: Heavy Metal, Glam M
 ```bash
 magnet:?xt=urn:btih:D4A0EB40604C3E07C0FA8F1A0415D4C507E54DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1EDCA1DB2644008EE8623231B92D47B644020FAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Bleeding - рок-группа из Великобритании (Лондо
 ```bash
 magnet:?xt=urn:btih:5F0AB573A9D22E875D2884DF5AD4A43741A36E1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Lacrimosa — группа из Швейцарии, лидеры которой 
 ```bash
 magnet:?xt=urn:btih:14C3FA59AF44B0522EA9AD986A4169BAA68781EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ VA - Музыкальный калейдоскоп (10   выпусков) (1964
 ```bash
 magnet:?xt=urn:btih:337E6F32A687A8A9C81AB20906F70B9D05AD816A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

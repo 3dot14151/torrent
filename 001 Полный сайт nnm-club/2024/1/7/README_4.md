@@ -21,8 +21,7 @@ Two Are One - A Question Of Time (1995) Reissue, 2018, Minotauro [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:AE688D8A2A6AEA39C9A3556DB3001B117C2882B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23B4873F7556011C5555128C3EC4AD3EBD7E8388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

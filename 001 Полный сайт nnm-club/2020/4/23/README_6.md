@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:EEFAC363CA577E884CE106471552B3116580354B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 23.04.20 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CEAE1C7B7ADED9250671ED86934A6970FA579359
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Microsoft Windows 10.0.18363.778 Version 1909 (April 2020 Update) - Оригин
 ```bash
 magnet:?xt=urn:btih:36153DAA4C752B786792224B74AC3CF031D8B3F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Broken Lines — это тактическая ролевая игра с раз
 ```bash
 magnet:?xt=urn:btih:9FBEAF404224C11AF4C76DC195D3DF92CF6ACF38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Any.do Premium 4.19.0.6 [Ru/Multi] - Список дел, заметок
 ```bash
 magnet:?xt=urn:btih:02E3F31B7E175B684ED2ADD23A18CF6976702459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

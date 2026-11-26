@@ -19,8 +19,7 @@ Operencia: The Stolen Sun – это красивая фэнтезийная RPG
 ```bash
 magnet:?xt=urn:btih:7F890165892D230333258A9A9554BA9C17B9ED84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

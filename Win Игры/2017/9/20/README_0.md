@@ -19,8 +19,7 @@ Jesse и его команда одолели Wither Storm, спасли мир 
 ```bash
 magnet:?xt=urn:btih:51FE75753CE751D4A2F07DC989FFBBCEC6B52D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ECHO (2017) [En/Ge/Fr] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:99A699DDC75EC33D28309C2AF5AB1257CA74CB18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 ```bash
 magnet:?xt=urn:btih:53E6AD5D2DFF79DA570973BC3E462E35AC144DF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Darkwood - это игра о выживании, исследовании и с
 ```bash
 magnet:?xt=urn:btih:6B17E964479BC3647B4F0EF6F5D4237CDB7D1B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Need for Speed: The Run (2011) [Ru] (1.1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3B703D0DBDCCDBFD94ABD14F4A6D2EFDC9220DFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

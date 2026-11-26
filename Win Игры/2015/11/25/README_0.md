@@ -19,8 +19,7 @@ Mushroom 11 - экспериментальная постапокалиптич�
 ```bash
 magnet:?xt=urn:btih:B604EBF6467AC1B58FF31720CF5769A11C2FDD08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

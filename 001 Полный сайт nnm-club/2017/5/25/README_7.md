@@ -19,8 +19,7 @@ TextSoap  для Mac OS - Поможет подчистить текстовые
 ```bash
 magnet:?xt=urn:btih:97545F137D13DCD564C4CD95166D95A326D4DBFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The Walter Norris Trio - Lush Life (1991) Concord Jazz [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:29D52B963D225E21BD8CDFD572E863C221AB0E74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Independent Art - Uplifting Trance Collection By Independent Art Vol.11 (2017) [
 ```bash
 magnet:?xt=urn:btih:A57CC21E370FD347C0EEE57D79192BDED8900518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ TextLab - текстовый инструмент преобразования, 
 ```bash
 magnet:?xt=urn:btih:35065EBBDAF93414EA4E04426B24D1D71681D0BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Howard Alden - I Remember Django (2010) Arbors Records [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:44D842D3B65C106F16A553DF0194683E19CE6EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Joseph Bonner - Triangle (1975) 2009, Whynot [FLAC|Lossless|tracks + .cue] <Post
 ```bash
 magnet:?xt=urn:btih:78181E632A8A15B254D4FF4CFEA394227EB0F9CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ Foscor - Groans to the Guilty (2009) Digipack [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:F1E8861223E6372EDAF66D3825FC36D9618EDC52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ Kenny Garrett - Sketches Of MD: Live At The Iridium (2008) Mack Avenue Records [
 ```bash
 magnet:?xt=urn:btih:2E71D3006AFDB00F3160ABBFE13008364BD279D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Solaroid - Awa’s Dream (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:1C0C4239D8FFCA3BF8D0CA39A6C1382F46DE0543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:79D6867695EF2A4DCDDDC7D150FE7F507F176B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EAC1F7DD2F7C7EDFFA2B5D0A54E6DBA3882F2A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ VA - Stefano Maschio - Deep Lovely Precious Love (2017) [MP3|320 Kbps] <Deep Hou
 ```bash
 magnet:?xt=urn:btih:C0867B48362564E7042CEF99B48B96D645137548
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +348,7 @@ VA - Santorini Beach and Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:91A29059FD802B68264358DCA7CC963C3BE4CB22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +376,7 @@ Keosz - Seclusion (2015) EP [MP3|320 Kbps] <Ambient, Atmospheric Bass, Drone>
 ```bash
 magnet:?xt=urn:btih:6A094B440CFB199FC9386CC6A4D46D55244E93DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ VA - Evening Acoustic Playlist: 14 Relaxing and Chilled Acoustic Tracks (2017) [
 ```bash
 magnet:?xt=urn:btih:FF1F558B9DA854FB3B1097EDBA9A38FF40558533
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ VA - Chill Out Paradise Vol.1 Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chi
 ```bash
 magnet:?xt=urn:btih:0E3EC217F5E740913565FA30137F3A8D9A9E0BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74CAD7967591E0A5726A96A2EC181537E10EE1B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Stock + Pro является самым популярным инвестици�
 ```bash
 magnet:?xt=urn:btih:84CE29903EE8F174E4D0ED6139F56FDC5D2680B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Rising Galaxy - Re-Animation (2017) [MP3|320 Kbps] <Ambient, Psychill, Downtempo
 ```bash
 magnet:?xt=urn:btih:2DA0732D7FBE486A54421C98680DA56C83319761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ PriceWatcher - это программное обеспечение, котор�
 ```bash
 magnet:?xt=urn:btih:1D511012508AF7C256C45B37F0B1FB29A9302DD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +568,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7D08A9943189840DB93F828BFF8AF59CD39E3E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ App Pier представляет собой клавиатурный пуско
 ```bash
 magnet:?xt=urn:btih:72697DC9E90861C16F78BC3364D2B8117C9E37FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C60C17D1FF6664F258C354166852458E7CB9067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ Kris Berry - Berry Street (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, RnB>
 ```bash
 magnet:?xt=urn:btih:660D7053F26338E58A1A54A5E0E5E780920AE8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:760140AD8BCCD9758C2117978FDA7534EDFD21CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06098FEA888DEFA2F1BCABC700CD2E8B4E091104
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

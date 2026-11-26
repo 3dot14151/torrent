@@ -22,8 +22,7 @@ The Breeders - All Nerve (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:B187ABDC4F3CAA163733FB46540D3803D67A879A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Stereophonics - Decade in the Sun: The Best of Stereophonics (2008) 2CD, Deluxe 
 ```bash
 magnet:?xt=urn:btih:A3AAC67C21EE8671C95867D079545430D4959375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Cliff Richard - Just... Fabulous Rock'n'Roll (2016) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:8AA818DA2E29B024331A611C7857BACD202B1217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ ZZ Top - Rocking The Castle (1985) 2CD Live [MP3|320 Kbps] <Blues Rock, Hard Roc
 ```bash
 magnet:?xt=urn:btih:299330D29691CCA2D1EA24B6DA342D0F8A43C735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

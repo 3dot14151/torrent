@@ -19,8 +19,7 @@ Legend of Kay Anniversary (2015) [En/Multi] (Build cs:6416) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9F70B3D91E0683612DD766DBF29984DAB6D145A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Kyn – ролевая игра, действия которой развора�
 ```bash
 magnet:?xt=urn:btih:F54CD2B66C4501210420015FB3DA10CF192E2522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.0.1.3005) Repack R.G. Ме�
 ```bash
 magnet:?xt=urn:btih:A51F84049A63B41EA6A5D4E3E11C02DFFC4F0DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

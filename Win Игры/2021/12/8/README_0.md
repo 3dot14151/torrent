@@ -19,8 +19,7 @@ Asterix & Obelix: Slap them All! (2021) [Multi] (1.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:32035E29BB0134B27F121B45A5458A777FA60C73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

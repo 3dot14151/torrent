@@ -19,8 +19,7 @@ ScanPapyrus 17.00.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C95076C3E5C3169002202BF485EC4A0228557014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

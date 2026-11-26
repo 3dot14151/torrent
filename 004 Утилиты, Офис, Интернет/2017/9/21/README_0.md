@@ -19,8 +19,7 @@ CoolUtils Total HTML Converter - программа для преобразов�
 ```bash
 magnet:?xt=urn:btih:69FA383F283227F126FBFAA25BC2A60030DF1AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

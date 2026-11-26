@@ -28,8 +28,7 @@ Nightmarе - The Aftеrmath (2014) [FLAC|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:B21F57DA7EA82DE09D84FBE8EF8827A581C4C4C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Much The Same - 3 альбома (2001-2006) [MP3|~256 кб/с]<Skate Punk, Melo
 ```bash
 magnet:?xt=urn:btih:341A2F1645402915A1EBB898A10106EE60EDCBEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Mentors - Up The Dose (1986) [FLAC|Lossless]<Thrash Metal/Punk>
 ```bash
 magnet:?xt=urn:btih:DADD8673E34C2B5787071E54F365ACB06E182156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Mike Golden & Friends - Utopia (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:80EF0B52DE0BC49EF920780BC98EA0FED463CBD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:3933FF14AF68A0E958B1A3348E14772A3E289D26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Stone Machine - Rock Ain't Dead (2014) [FLAC|Lossless]<Hard Rock, Heavy Blues-Ro
 ```bash
 magnet:?xt=urn:btih:C161C78B773AA2245DF762A020385BD64C8E3AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Paul McCartney - Live at Estadio Engenhao, Brazil (2011) Bootleg [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:DAA8302B743C45B03CB7CDC12A30FE7D18D073B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Timo Tolkki's Avalon - Angels Of The Apocalypse (2014) [FLAC|Lossless]<Symphonic
 ```bash
 magnet:?xt=urn:btih:14AE5A5AF9925EED9BD0E093F802E9B8C29DC70F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Focus - Golden Oldies (2014) [FLAC|Lossless]<Progressive rock, Jazz fusion>
 ```bash
 magnet:?xt=urn:btih:775627A901B99747E3B42AA928A880DFA27CC0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +332,7 @@ California Breed - California Breed (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4F8FCA3A2EFE0306504C8538162AAA6C6B3D114B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

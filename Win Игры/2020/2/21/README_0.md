@@ -19,8 +19,7 @@ Space Robinson: Hardcore Roguelike Action (2019) [Ru/Multi] (2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:F6A64311341A16653EB5C8EDC359D3F61031D3A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Perception – это сюжетный приключенческий хорро
 ```bash
 magnet:?xt=urn:btih:C8ADD220DE38BCEA3C42870C06E73F511704CF1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Deathtrap является смесью жанров tower defence и экшен
 ```bash
 magnet:?xt=urn:btih:83945F7B4A940AEF60108F4D071E7CE8BB68A3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.03B) Repack xatab
 ```bash
 magnet:?xt=urn:btih:DE09E17A1DF79EE64439D993BE2D37604675D10D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

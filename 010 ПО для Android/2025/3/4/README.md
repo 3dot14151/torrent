@@ -22,8 +22,7 @@ Human Anatomy Atlas 2025 v2025.00.012 [En]
 ```bash
 magnet:?xt=urn:btih:5AFD6FFED0C8E819CF5A1697533BFA0038F167B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

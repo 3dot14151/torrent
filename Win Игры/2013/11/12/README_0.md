@@ -20,8 +20,7 @@ The Secret of Monkey Island обрела вторую жизнь благода�
 ```bash
 magnet:?xt=urn:btih:B4CE60235C950EBCA1424AE65720689D49B39023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Myths of the World 2: Stolen Spring Collector's Edition / Мифы народо�
 ```bash
 magnet:?xt=urn:btih:CB0488367ABDC494236BCC1EF57FB9B33C526055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Anomaly: Korea (2013) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:8E19D5A6ACAF792AF789222FF466A3C4C3EC7F70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ PixelJunk Shooter - это двухмерный скроллер про крох
 ```bash
 magnet:?xt=urn:btih:393FA43BF6E10F9EA3094EF5AE0F31BD68A49640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Football Manager 2014 (2013) [Ru/En] (14.1.3) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:0CF2647C87890FED8C31E3723DAB98A471F4F2EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Flashback HD-переиздание классической приключен�
 ```bash
 magnet:?xt=urn:btih:338D8FC477C827E7E6295653F617F007E8784D77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Football Manager 2014 (2013) [Ru/En] (14.1.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A8194B92EC7E967C9034217BF99F1EA0FF046254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

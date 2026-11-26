@@ -19,8 +19,7 @@ Star Wars: Dark Forces Remaster был воплощен в жизнь коман
 ```bash
 magnet:?xt=urn:btih:6781E23EF04C56905C7297280D3E991B803FEBC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Witch of Fern Island - это красочный симулятор жизн
 ```bash
 magnet:?xt=urn:btih:17AA35BF3CBE799941497D2DCF3B4FC05451B53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ruff Ghanor предлагает игрокам стать на место од�
 ```bash
 magnet:?xt=urn:btih:2903448C8302B79F03D0F9F58E93156244CE009F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bus World – симулятор водителя, что развозит па�
 ```bash
 magnet:?xt=urn:btih:DBFD35B06375B2AEC36DE6B52D00C3B98BC857B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (20231130) Scene Tenok
 ```bash
 magnet:?xt=urn:btih:6EE70EB001242D907E72476F4AFAF1D6D207F22C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

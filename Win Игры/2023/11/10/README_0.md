@@ -19,8 +19,7 @@ Frozen Cortex – пошаговая тактическая игра с проц
 ```bash
 magnet:?xt=urn:btih:EB2E1EFAB5E63D4532167C03FF459A8C9A5536CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Molten Horn (2023) [En] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E94E97DAED14F642744080AEEA68C133F4F2F1EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ GUNHEAD (2023) [Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:112B5F0D6E7EC68C886A9542D5CCEF02E389D288
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ```bash
 magnet:?xt=urn:btih:ACF8A8E056192111D6054F1F55162DC0F4C507AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

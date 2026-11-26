@@ -20,8 +20,7 @@ Photo Editor 6 Movavi v6.4.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FB465A543AD0A5DA083AE54040B30BEAFCDAA972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:9089F8F94BF34C5375B0C5960DA3597945A715E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ VA - Beatport Electro House: Sound Pack #72 (2020) [MP3|320 Kbps] <Progressive H
 ```bash
 magnet:?xt=urn:btih:F12320F8966727E383576F43742A1D3E69E1344D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ VA - Beatport Tech House: Electro Sound Pack #71 (2020) [MP3|320 Kbps] <Tech Hou
 ```bash
 magnet:?xt=urn:btih:A7FBA4572C3343CA4FBF094D742A4356FF2FFB96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Rhinoceros 6 v6.25.20114 [Multi]
 ```bash
 magnet:?xt=urn:btih:AB792479B1EE1C0DF366DB56075FCD87D7FC957D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9DB6CA03ADAAE14B2D4BB1B5428F3E51741E920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC3C9731F81A45BA0E0754F9EFE8BB0ED8E2A79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ VA - Extreme Sports Music Vol 2 (2020) [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:D03A7EFBD0F684FA3082641EBD74D0EC3C45B524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +232,7 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:A3FC059D8250F145C4C226476D63D548C502E083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,8 +257,7 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 ```bash
 magnet:?xt=urn:btih:1B37EF8A27B7299A6992C52958EA072EA75C866F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +282,7 @@ Nuclear Warhead Cooked in Wine | Рай Монстров [Том 3] (2020) [MP3]
 ```bash
 magnet:?xt=urn:btih:41AACCB6BA3F9C2EDCB1422DFDA542A095373025
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:41C3771DBB5031198B838D0C2BB72D0226F5A87C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B05CE46A22C82A60BFD352369D72A5F49AB13151
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +360,7 @@ The Last Days - When The Tomorrow Is A Grey Day (2010) [FLAC|Lossless]<Shoegaze,
 ```bash
 magnet:?xt=urn:btih:ACEA0CCF10FF6D3A13B417F622FC3253CFD33F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ VA - Dancehall Fresh Sounds (2020) [MP3|320 Kbps] <Dancehall, Reggaeton, Latin H
 ```bash
 magnet:?xt=urn:btih:EC6AC4BBA22F69283B1ADF88D8FDE8D8038A263B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +416,7 @@ VA - Extreme Sports Music Vol 3 (2020) [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:7C9BF7B4AB0D5313AF96503BD074F6B8AA3115CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:349A7E58158FDB0B56C477EE6FBD654772241E72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ VA - Acoustic Rock vol.7 (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:132A713463356208E5D49A1A4B8E7006AB3FF613
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ Macsome iTunes Music Converter позволяет преобразовывать
 ```bash
 magnet:?xt=urn:btih:99AD93255817A1A35DEDF231B0E7D8A20DE77678
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +520,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1FBBE650EBF1333D35453CAD728F16E884EC04D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,8 +546,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EA36F704FA87C735AFF15598FF52C58BB976493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,8 +571,7 @@ Christophe Chaboute | Скамейка в парке / Park Bench (2017) [CBR] [
 ```bash
 magnet:?xt=urn:btih:9E2F30935542668ABF3CC545928B2EF91314DC76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D1BA9B48FB1FA45FA608474D000C7544D502C79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +625,7 @@ ActivePresenter — программа для создания презента�
 ```bash
 magnet:?xt=urn:btih:CB1827BF9F96242434E4D8444FFF6A1B904017C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +653,7 @@ VA - Extreme Sports Music Vol 1 (2020) [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:F26D484FF73648651D515C40366C302DA942EE00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B6FDBE408DC74D4D3278C8A961129426F6171513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

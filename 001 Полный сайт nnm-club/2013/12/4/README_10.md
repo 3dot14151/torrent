@@ -19,8 +19,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Trancern 2013.19: 3LIME Official Compilation (2013) [MP3|320 кб/с]<Tranc
 ```bash
 magnet:?xt=urn:btih:6A950CE349399774A761AB86CF70BCF4E682E97B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ VA - The Best Of Lounge (2013) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B14530799895926F55E1D8B320F03E9A210F71D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ VA - Ahora 014 (El Disco Que Lo Tiene Todo)[3CD] (2013) [MP3|320 кб/с]<House,
 ```bash
 magnet:?xt=urn:btih:6E1F442CC55B01F5E11248FD2249D0DDBE4450AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Marley Carroll - Sings (2013) [MP3|320 кб/с]<Electronic, Indie- Pop>
 ```bash
 magnet:?xt=urn:btih:9B9B871682F9E38D4A5E0ABED847F1F8ECD6EEF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ Planet Love Records - Best Of 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:5C3CCF529C67C3BECE4ADE1A8652FC77BF2471C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ VA - White Christmas Lounge Vol 3 (2013) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:660681EC90B9565B1F2B36A22BDB0F3C989F5C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +250,7 @@ Thomas Eichenbrenner - Insel der Sehnsucht (2013) [MP3|320 кб/с]<New age, Ins
 ```bash
 magnet:?xt=urn:btih:DB2178736EF0DA64E5D1ED99CC30F1FE9E0F4FFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Thalarion - Hellium (2004) [WavPack|Lossless|.iso.wv]<Melodic Death Doom Metal>
 ```bash
 magnet:?xt=urn:btih:6F26F23F95558D12BDCA379823FE1F398007A8B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1C1CF8E14E924C1A58D723CF36641786A5062573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:459B23146A448ADBFBFC6A2E24C9C32A0D92DEF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +364,7 @@ Largo - Entspannungsmusik (2011) [MP3|320 кб/с]<New age, Chillout, Instrument
 ```bash
 magnet:?xt=urn:btih:551283F9866FF62F4F8ECD1FF68250660BE7E71B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0D99D8BFB221CD941D11AC939DF63338D0A8CF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,8 +424,7 @@ Bucovina - Sub Stele (2013) [MP3|320 кб/с]<Folk Metal, Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:533298589FCBB4BA5CD0CFC892E355193340FD3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ VA - Future Sound Of Egypt: Best Of 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F5CEC9B11A1DBC8223BF7AE3A7220F2604499AB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +492,7 @@ VA - Bermuda 2013 Presents City Sound Berlin (2013) [MP3|320 кб/с]<House, Dee
 ```bash
 magnet:?xt=urn:btih:76191FB632F325C687068342255F0433A391B69C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +526,7 @@ Mark Selby - Blue Highway (2013) [FLAC|Lossless]<Blues, Blues/Rock>
 ```bash
 magnet:?xt=urn:btih:DD6A4784CDAD2893B2C6ADB7C72756444B23DE7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +551,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0DA09CC73BD90D8F416B55FFE6F2248E752DA6BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +581,7 @@ Largo - Entspannungsmusik (2011) [FLAC|Lossless]<New age, Chillout, Instrumental
 ```bash
 magnet:?xt=urn:btih:C1582133478C325FB66169FBB9CE5D4C092C374E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0F07B9C0466100386338E5EE21BA49C4AF77496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +640,7 @@ Skyhighatrist - Incahoots (2013) [FLAC|Lossless|WEB-DL]<Dark Psychedelic Trance>
 ```bash
 magnet:?xt=urn:btih:CD3C479EF4A51A9A082435FE2A45EF9F7892C031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +666,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ECC51F0581B058CB8B984134A26F8A6714E4487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +700,7 @@ Karen Marie Garrett - It's About The Rose (2007) [MP3|320 кб/с]<Contemporary 
 ```bash
 magnet:?xt=urn:btih:1B1CDF480E1B615658AEFE9E03486EC89EDF2044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +734,7 @@ VA - Most Wanted Lounge (2013) [MP3|320 кб/с]<Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:52121D4EE03747F87B50F8DE015F51CDD9912032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -791,8 +767,7 @@ VA - 2013 Dosmiltrance (2013) [MP3|320 кб/с]<Psytrance, Full On>
 ```bash
 magnet:?xt=urn:btih:87E1B1EC20E8C3843A8C7DCB3BC9F2BCE304A94A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -825,8 +800,7 @@ Frost Raven - Far Away From Home (2012) [FLAC|Lossless|WEB-DL]<Psy-Trance, Progr
 ```bash
 magnet:?xt=urn:btih:7AE48F81EC31DAB6B7A877C132BE877976FB399A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

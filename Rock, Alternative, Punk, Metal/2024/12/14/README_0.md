@@ -22,8 +22,7 @@ Nazareth - Loud'N'Proud (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 20
 ```bash
 magnet:?xt=urn:btih:1D39F0AC7063CAD784E92023FB4C04E7B704F57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Beer Bear - За Незримой Чертой (2012) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:06AA6A698EBEDA0E1873B675EF5D16FCF54A44F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blue Oyster Cult - 50th Anniversary - Third Night - Live (2024) Deluxe Edition, 
 ```bash
 magnet:?xt=urn:btih:0C293AFB147CC15129150F423146B377EF0F56C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Cure - Songs Of A Lost World and Songs Of A Live World: Troxy London MMXXIV 
 ```bash
 magnet:?xt=urn:btih:CD06174B90982BDE116F092FA68DA9B7D1A6B09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Hawkwind - Live At The Royal Albert Hall (2024) [MP3|320 Kbps] <Psychedelic, Spa
 ```bash
 magnet:?xt=urn:btih:1CC23F1F1736F99F807F6A32FBA1FCB88A29FB56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

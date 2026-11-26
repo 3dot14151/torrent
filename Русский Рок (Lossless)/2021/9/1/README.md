@@ -22,8 +22,7 @@ VA - Песни простого человека. Трибьют группе �
 ```bash
 magnet:?xt=urn:btih:BCBA40967D0433A4244822E02C79923773C9CA2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

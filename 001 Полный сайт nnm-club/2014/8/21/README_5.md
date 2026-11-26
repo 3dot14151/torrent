@@ -19,8 +19,7 @@ Boris RED 5 - мощное приложение для создания 3D-фо�
 ```bash
 magnet:?xt=urn:btih:98C601C3EF5662A02EB53CDDDCA4A1D0D6A70AE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ABBYY Scan Station применяют как для потокового ска�
 ```bash
 magnet:?xt=urn:btih:0BCEC6AF34D17C7F3CD5F4C6B106B5787D35D375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Death to Spies 3 / Смерть Шпионам 2 (2014) [En] (1.02a) Demo
 ```bash
 magnet:?xt=urn:btih:8A2F48845B0EDADC849907908D72CD73B2B25642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ The Golf Club бросит серьезный вызов вашей техник
 ```bash
 magnet:?xt=urn:btih:440F35B5D6DCAB46A6885818F8FD9AF430585EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99A53B6A20B702CA7400923BC1D59F0E060A84CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Twisted Metal / Скрежет металла [PS3] [EUR] [Ru] [4.01] [Cobra ODE
 ```bash
 magnet:?xt=urn:btih:7F4BFB3549DFC18B42E9A2AC7A9B0C494B89C38F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ Survarium – это онлайновый многопользовательск
 ```bash
 magnet:?xt=urn:btih:4BD93F3FA52638639031688F314C2ECDE34F4F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:622D06A43FF1A6E78A8EC0B83BA843A06F5391D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +238,7 @@ Diablo III: Ultimate Evil Edition — это напряженная и азар�
 ```bash
 magnet:?xt=urn:btih:C11071511A2387B3288CEA644D3C141477181556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:873939AF1D5CD463C15ECC57796244D2DD07ADE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F9B51F6DFD899490966AADC9F7774FB26136FC07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Serious Sam 3: BFE — это великолепное возвращение в
 ```bash
 magnet:?xt=urn:btih:4F1DB0FFE6C1701CD56624AB87E0408EDAC4E6CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEE710BE0C1B9F399E0D3E1C6A0F9016A8187B41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Diablo III: Ultimate Evil Edition — это напряженная и азар�
 ```bash
 magnet:?xt=urn:btih:AF9AB26EFCCA5B53851C5498EF33218BB9212451
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3D5EB1A83AA39317B62F7A463BCB8AA690B7E80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

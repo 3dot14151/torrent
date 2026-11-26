@@ -19,8 +19,7 @@ Tom Clancy's Splinter Cell: Double Agent (2006) [Ru/En] (1.02a) Repack Samael
 ```bash
 magnet:?xt=urn:btih:392F5A75A6FEFE6F38EDD37DB7DE8668EB845CBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

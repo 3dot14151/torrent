@@ -19,8 +19,7 @@ Haunted Manor 4: The Last Reunion / Призрачное поместье 4: П�
 ```bash
 magnet:?xt=urn:btih:69E2AD0EFC9F5AAC71D63792BCF077B073C6E422
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

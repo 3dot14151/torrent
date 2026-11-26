@@ -19,8 +19,7 @@ Dark Ritual / Темный Ритуал (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:AF6371F8B89A43AEFA1C42F7298FFABF3FB62B60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

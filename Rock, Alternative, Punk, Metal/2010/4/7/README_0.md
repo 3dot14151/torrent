@@ -26,8 +26,7 @@ Maybeshewill - 2006-2009 [MP3|320 kbps] <Post-Rock, Math Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Mephisto Walz - Discography (8 albums) (1986-2004) [MP3|192-320 kbps] <Gothic Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Rosetta Stone - Discography (12 albums) (1991-2000) [MP3|192-320 kbps] <Gothic R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

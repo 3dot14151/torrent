@@ -19,8 +19,7 @@ Connection of Worlds 2: Star Riddle (2023) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:8C3DE47700CDEAB3E1A1287699042C02168C1C6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ One More Island (2022) [Multi] (1.8.1) License GOG
 ```bash
 magnet:?xt=urn:btih:8A35158FC4D6B813BFAE32E635B0FD825BFA640C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MAD WAY (2023) [Multi] (1.1.6) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:27E294E8E3CD131D7FC34B09DD0CD047112114AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Ash of Gods: The Way (2023) [Ru/Multi] (1.10.4)  License GOG
 ```bash
 magnet:?xt=urn:btih:2AD71A23D07DBD1BA6CD30C62E97D6A3DE300AF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

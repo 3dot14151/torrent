@@ -19,8 +19,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.10.0/dlc) License GOG [Omnis
 ```bash
 magnet:?xt=urn:btih:FADFDB92BA92EF207BD3868AC909FDABDFC3C388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

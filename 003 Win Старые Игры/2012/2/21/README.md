@@ -19,8 +19,7 @@ The Inhabited Island: The Earthling / Обитаемый остров: Земл�
 ```bash
 magnet:?xt=urn:btih:F590338A50E86862FA85EE76CCE080841B0E85F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Clive Barker`s Undying [Ru] (RePack) 2001 | Pilotus
 ```bash
 magnet:?xt=urn:btih:D4C71A653C0FD751FA022FE14C2512EB9F0B8860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

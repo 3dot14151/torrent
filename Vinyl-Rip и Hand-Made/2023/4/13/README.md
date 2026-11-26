@@ -22,8 +22,7 @@ Seal - Seal (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Soul>
 ```bash
 magnet:?xt=urn:btih:9C231EDD558512BE59B71FFF597E39A607F7C2ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Love Of My Life(   Читать дальше...   )Жанр: PopПродол�
 ```bash
 magnet:?xt=urn:btih:E487750EE461A5148EE9249CD0161C6EF2210F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Berlin - Pleasure Victim (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-
 ```bash
 magnet:?xt=urn:btih:51C635D82B613769A21F231D3548F9A3639A4984
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

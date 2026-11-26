@@ -22,8 +22,7 @@ Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

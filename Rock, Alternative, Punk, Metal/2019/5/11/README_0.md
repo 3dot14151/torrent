@@ -22,8 +22,7 @@ Orion The Hunter - Orion The Hunter (1984) [FLAC|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:E5F20AFF90FBC28D730C2F10106DC9C5E5D06790
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ David Coverdale & Whitesnake - Best Ballads (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:95F46F24DFC41F81A3C96DADAC4F4409B1F64747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

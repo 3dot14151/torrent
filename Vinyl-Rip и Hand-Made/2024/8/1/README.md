@@ -22,8 +22,7 @@ Twilight Force — шведская симфо-пауэр-метал групп�
 ```bash
 magnet:?xt=urn:btih:AD589F083EA91A4EDC8B7244B1533D2143A25F54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

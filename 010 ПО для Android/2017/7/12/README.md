@@ -20,8 +20,7 @@ Car Launcher Pro 1.5.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:052C3AD659FFFF26B662B5856D6FA09257744123
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

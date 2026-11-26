@@ -19,8 +19,7 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:0861F04AA10DC576A6FFDA94C0DB65FD622AE12F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.31/dlc) Repack Let'sРlay [Fleet Command Editio
 ```bash
 magnet:?xt=urn:btih:7D8F2E916D9564B74C08946338903427525D2C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Panelka - расслабляющая игра-симулятор наполне�
 ```bash
 magnet:?xt=urn:btih:6CB5F6C96368E2374B23A54176503360F432D96D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ iRacing представляет официальную игру World of Outlaw
 ```bash
 magnet:?xt=urn:btih:0736B8C4A632FECE6E7AB472B1F71AE7FC0A42FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Panelka - расслабляющая игра-симулятор наполне�
 ```bash
 magnet:?xt=urn:btih:90D65F8466F8D74BCDC9EC84C83F4BEFDDB11F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Fantasy General II (2019) [Ru/Multi] (01.02.12913/dlc) Repack Let'sРlay [Comple
 ```bash
 magnet:?xt=urn:btih:78AF4702CB96DC14D71337A16E95C935B9867FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ KAMiBAKO - Mythology of Cube - (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:46D5F512952163DD13AF99F996A1436CF1C5CB50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ DeathOmen - это психологическая игра ужасов, кот�
 ```bash
 magnet:?xt=urn:btih:0701CF7BDFC18A3FF03006C6869C2C24F79F3F62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Runa & The Chaikurú Legacy (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8DA5CE83489AB8FC20103E13C85DCC74FA8B9F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Heroine's Quest: The Herald of Ragnarok – классическое ролев�
 ```bash
 magnet:?xt=urn:btih:CE270410BA53A7385A5459989F902CEBACA283AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

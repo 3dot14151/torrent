@@ -19,8 +19,7 @@ Nevertales 2: Shattered Image (2014) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:E744AAD0F7FB08DB2E8B9690A708A090CD48ECF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Hack ’n’ Slash – приключенческая пазл-игра о ха�
 ```bash
 magnet:?xt=urn:btih:42F587465F1F8B8D05FC37042623910A1C8FEF57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ PC-версия нового проекта всемирно известной 
 ```bash
 magnet:?xt=urn:btih:EC6E6AF4787A6B7F1875DBE70079B12B6CD62AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

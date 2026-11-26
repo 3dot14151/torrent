@@ -20,8 +20,7 @@ BatteryWidget показывает точный уровень заряда ба
 ```bash
 magnet:?xt=urn:btih:5D831A983E8C3EA2FAD1D771B524A0982E18B0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

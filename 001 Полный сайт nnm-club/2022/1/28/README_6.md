@@ -22,8 +22,7 @@ VA - Lounge Tales, Vol. 4 (2015) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0C2B9DAB627F4A21BF97818C24E2058FD8076E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Lounge Tales, Vol. 3 (2015) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:DF53E8238694A2E7405DEC313C37EBEB0D9CFA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Lounge Tales, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:6DBDE537A88FA417A8E3DB8EAD0C3E76D88DFC0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Mediterraneo 2 (2018) [AAC|~328 Kbps] <Chill Out, Downtempo, Organic House>
 ```bash
 magnet:?xt=urn:btih:AB9DA9F94F166B06DA39940FD26C31489517FFCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Cappuccino Lounge, Vol. 2 (Relaxed Coffee Tunes) (2017) [AAC|~334 Kbps] <Lo
 ```bash
 magnet:?xt=urn:btih:5CE0E22A8040C521FC5376E6EFCAC48DEBD57DA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Lounge Tales, Vol. 2 (2014) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:BC5A1C21C4E737873B32F99576509979743F5AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Cappuccino Lounge, Vol. 3 (Relaxed Coffee Tunes) (2017) [AAC|~343 Kbps] <Lo
 ```bash
 magnet:?xt=urn:btih:219FCC15FEEB78452209AC6F7BC89901CA5948DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Cappuccino Lounge, Vol. 1 (Relaxed Coffee Tunes) (2015) [AAC|~325 Kbps] <Lo
 ```bash
 magnet:?xt=urn:btih:901627D8E91E1B93CBB38DDA741AEFF84804F26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ World Clock Deluxe - это надежное и простое в использ
 ```bash
 magnet:?xt=urn:btih:72E4982E5B4C28ED2AFBEF18A7D85A243E7F5332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Joe 'Fingers' Carr - Honky Tonk Hits (1997) Good Music [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:09D11567703DA414C1DA807D849565FE67EAF314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:52C05D436DEFAFD30B3E9757EC1D9917982CCA5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ VA - Mediterraneo 3 (2020) [AAC|~332 Kbps] <Chill Out, Downtempo, Organic House>
 ```bash
 magnet:?xt=urn:btih:8681B209FBCD1085E4A23BA80E390806C065C9B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +353,7 @@ VA - Electro Swing Dance Session (2018) [AAC|~324 Kbps] <Electro Swing, Nu Jazz,
 ```bash
 magnet:?xt=urn:btih:18118489221E1D6046E12FEDF5B1E51A38972690
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ Mirror for Panasonic позволяет отображать экран ваше
 ```bash
 magnet:?xt=urn:btih:54C026EDE02BCAF24A2C84DCAEF08D43D54162CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ ArchCommander 2.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:8BFA2C6F7F189172AD51D9A3BF5B050C1720BF18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0443FC014220226BD61D61C5B7CDFC3E4D7B9339
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,8 +460,7 @@ VA - Cafe Deluxe Chillout - Nu Jazz / Lounge, Vol. 8 (2022) [AAC|~297 Kbps] <Eas
 ```bash
 magnet:?xt=urn:btih:8210F5B8474FD4B118B9D70DD04A74EAB891887E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:FD1FB5F503E86FF66862E42314F17BF68298332D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Insania - V (Praeparatus Supervivet) (2021) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:6DCF255E05E9A7ACD10979FC75C697C9B8EEDDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,8 +538,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49EFF8CFA9FCF64214AEEC13DE184A1FA2F6E766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ Dianthus - Realms (2022) [MP3|320 kbps] <Alternative, Progressive Metal, Female 
 ```bash
 magnet:?xt=urn:btih:6A00C7ECAEBDFAE76291D194B553E4F0B5BA4658
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ EverWeb даже создает мобильные сайты, которые о
 ```bash
 magnet:?xt=urn:btih:F64013588D39BD3BDC5E73A5A92C707199136524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:905CC1BD17F076FC4A6911FE99AC242AF15A5847
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ VA - Best of Cafe De Anatolia 3 (2020) [AAC|~317 Kbps] <Chill Out, Downtempo, Or
 ```bash
 magnet:?xt=urn:btih:5466EE284D2FB3807B2D9D1550591D6337169FE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,8 +675,7 @@ PYRAMAZE - ведущая Progressive/Power Metal группа из Дании, 
 ```bash
 magnet:?xt=urn:btih:C45B02FD9019D5323A22F2050EF387139A3C7964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +703,7 @@ VA - Vintage Remix Cafe (2022) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo, Po
 ```bash
 magnet:?xt=urn:btih:6F11220FECC9F937C9C0A510AA713131C0E57879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

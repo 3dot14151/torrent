@@ -19,8 +19,7 @@ ArcaOS 5.0 [i386] 1xCD
 ```bash
 magnet:?xt=urn:btih:9DFF036DCCAF241DC49346852ABBAD14F725ABC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

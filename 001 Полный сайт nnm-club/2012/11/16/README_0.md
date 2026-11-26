@@ -27,8 +27,7 @@ VA - Музыкальное путешествие Европы плюс 50/50 (
 ```bash
 magnet:?xt=urn:btih:357477EC6D3A94496C86216FA166520F87772580
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A314A3BEC1B1C63E0D3D9438EF98AF5306E62F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ VA - Хит атака. Версия 50/50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:185FE85D7D79FA1A3F13E4A0437F8F5B79205D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ HQ Wallpapers Perfect Women (15.11.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:9470E46E0D8783145DDEE8CDA4FE34663F8F9547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -144,8 +140,7 @@ Wallpapers Sexy Girls (16.11.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:BE1F9D03E05C3BF063C427288DC497E066E1E736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ Best HD Wallpapers Pack (13.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:2284548B8050DFA3C4B30D8B93652AACC7B219CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E1C1E952926235F5BA4F197A2F8C0A5B01CE26B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ VA - Pathaan's Playlist - Ibiza (2011) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:2DCC94A19152B2676B2F0BA9B220FAA5FC506C0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ Best HD Wallpapers Pack (14.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:282D6C15F2476F36DBD557E9B6BD64732E66A829
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Computer Desktop Wallpapers Collection (14.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:DDC6C26083C5A8BC4F87A5F7B0A332FA9DC3821C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +308,7 @@ VA - Осенняя Авто Дискотека 50/50 (2012) [MP3|256 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:7AD6572D9A39A16DD6F647FE681DB1C45B63B230
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +333,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E521B5614664FCA1DC8E9FDB3B16A655AD6CE859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ VA - House Sensation: A Collection Of 40 Great House Traxx (2012) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:547C1CAE57086F046F6DE5782348A1F9D4C59A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ Best HD Wallpapers Pack (15.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:C341712C9991C869BFF3ECEFFFACA3EAE2841E6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20F142759BB85A16E4039F71C9A071303F02E376
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +450,7 @@ Landmine Marathon - Sovereign Descent (2010) [FLAC|Lossless]<Death Metal, Thrash
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:466AD6BF5B1A935B86E2D2C8C4BAB52EFAAF8CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C31C8B95EC86D99B81D56C3AF98CC9F5A9A84D1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +538,7 @@ Savant - ISM (2012) [MP3|320 кб/с]<Dubstep, Drum & Bass, Electro House>
 ```bash
 magnet:?xt=urn:btih:5B42BADA20BC8422948388F88672434326B89896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +563,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:996957D4CB52D2D8097D95234A7633B2D2FDD4E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +591,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75701E21EAB0F62289432BC65F5B2C5C7ECCCB55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +616,7 @@ N/AЖанр: HouseПродолжительность: 00:59:11
 ```bash
 magnet:?xt=urn:btih:AC7C0DE3187E2D9285EC5480B6FEBFA7A245BE5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D4249ECBF6E3D8597A63A2B8C5916C781B110CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +668,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F665F748EB7EAB3FD85CE94FB7F6E0894EF8F0D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +693,7 @@ Computer Desktop Wallpapers Collection (13.11.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D3EEF47A03BE168D1F7E6DEB1D02512AFEC01280
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -761,8 +736,7 @@ VA - TOP 100 Club Hits #5 (2012) [MP3|320 кб/с]<Club, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:60586D0F60F628D0E23A4FB4B5CC84FC5315A2AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

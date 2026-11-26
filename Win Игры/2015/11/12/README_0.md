@@ -19,8 +19,7 @@ Secret Case: Paranormal Investigation (2015) [En/Multi] Unofficial
 ```bash
 magnet:?xt=urn:btih:621DE0A9A9262FF3BA742DC2F5FD8304A3AE6830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Elixir 2: The League of Immortality (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:77596EE97777E25815B6BA91114AFFB24C7DE2CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Spear of Destiny: The Final Journey (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:8B0317E0553994E35B5C1E5A6EE227C8D01111A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ European Mystery 3: Flowers of Death (2015) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:A7FF76FEC8C66A4A7C2DF99521D3764D30313BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Haunted Hotel 10: The X (2015) [En] Unofficial [Collector's Edition / Колле
 ```bash
 magnet:?xt=urn:btih:A69BC32E1877AF27E3B1DAFD725E23E816355C9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Haunted Legends 7: The Secret of Life (2015) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:38D9696C1BB7CCFCE006015F9A60757C912B2A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Fear for Sale 7: City of the Past (2015) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:38D05F0E022BC565BA68FF15B3E1656208943FC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Mystery Case Files 12: Key To Ravenhearst (2015) [En] Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:61B7FBF3BBC8CEABBFB8C0E8641018B08892FAD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Lost Lands 3:The Golden Curse (2015) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:43D78719F16487AAD573DCB3482CFF3C1FF66542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Sacred Almanac: Traces of Greed / Священный Альманах: След�
 ```bash
 magnet:?xt=urn:btih:F5FBC88C5C695C698D13156453D9402BBAEDEE9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Redemption Cemetery 7: Clock of Fate / Кладбище искупления 7: 
 ```bash
 magnet:?xt=urn:btih:D3F2A38145B9DD2CE6E9842E4FB6DB53335D2F89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ The Mystery of a Lost Planet / Тайна затерянной планеты (2
 ```bash
 magnet:?xt=urn:btih:F681C4E97BA13DCB8B9879ECB3F8931742C1E3DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Wild Case / Дикий случай (2021) [Ru/Multi] (1.0.5) Unofficial
 ```bash
 magnet:?xt=urn:btih:3F0E4E2E8A1D4A722409505175B738936101B3F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BIOMUTANT® — это игра сочетающая в себе постапо�
 ```bash
 magnet:?xt=urn:btih:991314E1406A584D87705AA6586784CF0B9C00E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

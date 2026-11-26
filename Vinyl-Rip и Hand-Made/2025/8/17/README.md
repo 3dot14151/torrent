@@ -22,8 +22,7 @@ Bruce Dickinson (Iron Maiden) - Studio Albums (8 releases) (1990-2025) hand made
 ```bash
 magnet:?xt=urn:btih:3762E1D75422B46A3FCAB7E527138362B8E7A89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chevelle (Шевелл) — американская рок-группа, сфо
 ```bash
 magnet:?xt=urn:btih:CEA32F5FD685E70468BC3E1F9FE3DBF76B658920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

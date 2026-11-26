@@ -19,8 +19,7 @@ ActionDirector- это единственный 📹 видеоредактор,
 ```bash
 magnet:?xt=urn:btih:A2656F7E81665E8FE3707A77F20517789690C835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GPS Emulator v2.85 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2582400EA72ABFA166B2B5BE847339529DCC2D2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Protectstar™ DNS Changer для Android
 ```bash
 magnet:?xt=urn:btih:3231142EBA615CA6911858D15F507B0078A669FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ The Room 1.05 [Ru]
 ```bash
 magnet:?xt=urn:btih:1C21C3C4AEF102D567FE6D18229B1D028FCB1B7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E84FF813D92909EABD2FD1E4A3DC652824D8C76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

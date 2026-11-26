@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:FCDCA2F6F8B41428E9A9730498503763D6F11475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zeno Clash: Ultimate Edition [Ru] (RePack) 2009 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:68596B34CF1F901F7DDC171497AD8D28A4200E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fable 3 + FreeDLC [En/Ru] (Lossless RePack) 2011 | R.G. Catalyst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

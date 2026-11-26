@@ -19,8 +19,7 @@ Reanimation Inc. Скорая Помощь - surgeon simulator , играй в �
 ```bash
 magnet:?xt=urn:btih:526965CEAE7E6F323A2A0FE54DEB92F4C01C2665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AirBrush: ИИ Фоторедактор v6.6.4 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:823E4516B42C0FDE8522BA135C18B896AED7C4D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

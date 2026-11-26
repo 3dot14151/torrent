@@ -22,8 +22,7 @@ Lennie Niehaus - Volume 5: The Sextet (1956) Remaster, 2006, Victor[FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:333781BD6D4EB5EF38FB8A781AD2F883D80BC9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Peter Delano - Peter Delano (1993) Verve[FLAC|Lossless|image + .cue] <Post-Bop, 
 ```bash
 magnet:?xt=urn:btih:F9E1C095268DD3D00384CE18FA9027669AD6472A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Rein De Graaff Trio with Conte Candoli & Bob Cooper - Thinking Of You (1993)
 ```bash
 magnet:?xt=urn:btih:E8D9E7D09858A2EDED2830B644329FB6F096E625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Terence Blanchard - The Malcolm X Jazz Suite (1993) Columbia[FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:2D79B72723D3798FE6DC9E6A10B0F4070236BD79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Franco Cerri and His European Jazz Stars (1959) Remaster, 2009, DIW Records[FLAC
 ```bash
 magnet:?xt=urn:btih:9E145FE4C7B457D836C9296E439D8FF3E49FE332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Ferry Corsten - Corsten’s Countdown - December (2016) [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:A555270BDF12F21C4B05D7C08BFF90EF5CEB8CE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Cj Stereogun & Margo Fly - The Mirror (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:939508200D4237C0CB0A31898EED1CE6CD0CCA45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FF6B20DF31ECCFAF9EF9F2CE6105B6E785399190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Neon Plasma EDM Party (2016) [MP3|320 Kbps] <Electro, Progressive House>
 ```bash
 magnet:?xt=urn:btih:E51060758DD3D5970C47B63617D98D5977567298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AEFFA201C00AA606EE90C44C0DEBC2D50E671792
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - MuviSpace. Christmas Edition (2016) [MP3|320 Kbps] <Spacesynth>
 ```bash
 magnet:?xt=urn:btih:59AA02A0AA653E4167AE53A4953657934CAE2EA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ VA - Winterbreath Vol.3 (Chilled Lounge Tunes For The Winter Season) (2016) [MP3
 ```bash
 magnet:?xt=urn:btih:84534B4F2A7B8654254348015D0BB0BC23AB0F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:104C9BFAA414BDEDF83A5AC466EBEDC6E22221E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ VA - Sensual Lounge Stage Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:0820B5ED03AB7969C7783E12777ADC73512E2DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ VA - Cosy Winter Lounge, Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:B3F66AA1B18BAA113C580D85B795B9EC98A820FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ Hollower - Forking Paths (2016) EP [MP3|320 Kbps] <Progressive, Technical Metalc
 ```bash
 magnet:?xt=urn:btih:A0160836242662C09229940F0607C86FBB31C719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,8 +461,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F2E1AEBB02CF89BFE10C64DD0262AA28AAA2B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,8 +489,7 @@ VA - Trance Collection by Yeiskomp Records Vol.1 (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:820919DE88A431B97860C369F16CEBFDF52D94F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F7DE4470717678E541CDFCE9FA2CA28E3E29861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ VA - Winter Chillout 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:0751A5CEF59D28732E69471F2EF8614A63C903E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,8 +570,7 @@ VA - End of 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:13870F4A73667B3C946818A69AD94DF52A6F26DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:037F941777575F37E1E6FEB8F8B73BE18063BAA5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5D7977A06B40D761349758342BD082157BE7B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +649,7 @@ Captain Ivory - No Vacancy (2016) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:307DA7B89087552B1DEB8E301FB79DAB589D8546
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -698,8 +674,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC47F3A45401C4D358C416C424C579DE11B06312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CEC9033ECDB7AB01413B01D48A634011CF139573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Fail Emotions - Speed of Light (2013) Japanese Edition [MP3|320 кб/с]<Post-Ha
 ```bash
 magnet:?xt=urn:btih:D2A275DEAB358492D982E235C41EAF60B3069956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Vapor Hiemis - Пламя Зимы (2014) [MP3|320 кб/с]<Black Industrial Met
 ```bash
 magnet:?xt=urn:btih:E59D427BEA0AC7AD3D9A1E3B4BC6EF552ADE7238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ As I Lay Dying - Awakened (2012) Deluxe Edition [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:00F95608CDE6C41F3F668113C125F0FD5A1A3E25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Well Hung Heart - Young Enough To Know It All (2013) [MP3|320 кб/с]<Alternati
 ```bash
 magnet:?xt=urn:btih:31F290297C63F9212FA076B19F5F97C941B274FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Car Tycoon - стратегия экономики, 1950-х гг. Америки
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Timon & Pumbaa's Jungle Games (L) [En] 1995
 ```bash
 magnet:?xt=urn:btih:27ACCA6D4CD997E533FCDF1CC89C847D988B4C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Seymour Goes to Hollywood [En] (RePack) 1992 | Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

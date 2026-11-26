@@ -26,8 +26,7 @@ Neil H - Secrets of Faeries (2003) [FLAC|Lossless]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:0350A60C9352C6DC56BFB62638E0330CA5B67B30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE14BF6CC8D20FEAF1B460BDEDDC92EF67B8BE4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Distant Dream - A New Beginning (2005) [MP3|320 кб/с]<Progressive rock>
 ```bash
 magnet:?xt=urn:btih:4DD28F8E36848CF1862BB3F06E9BE2EFE99E4F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Beegie Adair - Jazz Piano Christmas (1999) [FLAC|Lossless]<Jazz, Christmas>
 ```bash
 magnet:?xt=urn:btih:60C7B5E0DDC29E35AC1C10DC8F8019A48B18D713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B446C59725140F87B231988FEF5DD88ED3A2544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Still Life - Still Life (1971) Released 2001 [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:17B8CF1B4A86F415CD2FD5CDFA569E92661F00A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +202,7 @@ Billie Holiday - Holiday for Lovers (2002) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:19F6FB16C490A07E29C2E9DA46E8D74B0A46761E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Henrik Freischlader - Night Train To Budapest (2013) [FLAC|Lossless]<Blues Rock,
 ```bash
 magnet:?xt=urn:btih:82D3E3F2164CBCAB5362032B2C2D13879071682A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0B23E60138E788379FE28CDC73F475BCC723A7B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +303,7 @@ Carmen McRae - Carmen McRae for Lovers (2006) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:B7B03957540D30A4DD9C1C0D1115D511DA89771F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F24F70AA2AA9F2C6D200CB1F8985AF2224FC60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +354,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0538F861DADA919088FC293846D094065A6FCA22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ b). Mirage (Gary Lee Yoder, Gary Grelecki)(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:404F7E597BA4E4C77B20DF3E4798A4399C6244AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +414,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F4152B23289FA43129725A5CCC9E3627F1C0C1CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -460,8 +446,7 @@ Bratkilla - The Killer Gene (2013) [MP3|320 кб/с]<Drum and Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:5640C553015AE27108BB857B3C99F4A6CE250FCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +471,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2DA28680082323317A3542F951AB32B001EDF3B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ Crystal Viper - Possession (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:96EFDEDDB50C47F4819141224CF687A152C4707C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,8 +534,7 @@ Guy Davis feat. Fabrizio Poggi – Juba Dance (2013) [MP3|320 кб/с]<Acoustic 
 ```bash
 magnet:?xt=urn:btih:E15B52B961D46AE4D360C4BD09F0ED6922669B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +568,7 @@ Cabernet Deneuve - Кабачки (2001) [MP3|320 кб/с]<Ska>
 ```bash
 magnet:?xt=urn:btih:46D88F66F9AD52118E9D192AB6B92387FDE466AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +602,7 @@ VA - Deep Lounge Deluxe Vol 2 (Lovely Deep-House Vibes) (2013) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:B8971028E0F27D5875E57EDB7A027AA12FDE448C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +628,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37B913EE4A10C4961A6F34F77B48FDFD82A8B45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F35C3A63EB2CFFDD8726FB8837EEBC650931735
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +684,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF5988E743FA81F6E18661855F76BB10875855F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +718,7 @@ Side2:
 ```bash
 magnet:?xt=urn:btih:D29B378658FCDC7C54DEE468D8BB0BD7C278A6E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -776,8 +752,7 @@ Irish Coffee - Irish Coffee (1971) Released 1992 [FLAC|Lossless]<Progressive Roc
 ```bash
 magnet:?xt=urn:btih:F03AFBD8E09AD016957F933ACE724F2314809381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -804,8 +779,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3CE70FD4B5D5FE5BC22E5830C5B208B148FB096
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

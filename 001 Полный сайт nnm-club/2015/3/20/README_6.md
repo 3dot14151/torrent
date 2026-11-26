@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:66DD60BDE77D8472ABA16F539E7EF4FC66F328EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Far Cry 3 (2012) [Ru/Multi] (1.05/dlc) SteamRip R.G. Origins [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:D4F87696C22F5415D01CD1F4B28312813EF7873B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Planet Explorers (2014) [En/Ch] (alpha 0.871) Repack GAVsi [Steam Early Acces]
 ```bash
 magnet:?xt=urn:btih:168E72F056CB8C2C078AC65BA67370EDBC510E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

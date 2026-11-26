@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:413C2C2B51C26B99130A67F864BB12706D6C09D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Arminstel - Trance Evolution vol.73 (04.06.2012) (04.06.2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:B74AC6FCB8CE46A2F99E14D58E5F04A4B5FB2D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D8F509CAD652E33CFBF266ED33DB32C41DF48F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C38309DF7350CFB85C1F0A982641969314B793F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ VA - 40 House Anthems, Vol. 2 (2012) [MP3|320 кб/с]<Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:D4ED21D34604E01AA562CFD9DB32FE51496A71D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

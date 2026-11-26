@@ -19,8 +19,7 @@ AngularJS (обычно называемый «Угловой») - это инф
 ```bash
 magnet:?xt=urn:btih:17C8248B09BE731686AC85238308EE4218E40086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Node.js - это захватывающая программная платфо�
 ```bash
 magnet:?xt=urn:btih:EF749A3429E0AAE5D4AAECE5EDA43C04D41F8CED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Fabio Cimo | CSS Programming Cookbook (2015) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:A205242E7F57D558C039AF8D62D17EF829B9905C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Fabio Cimo | How to become a Web Developer (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:420132894813D4E45F52D786B6F978C4B9321FA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Bootstrap - это бесплатная и открытая коллекция �
 ```bash
 magnet:?xt=urn:btih:240A1FEE2A903C1297C10261FE879D004E017565
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Docker является ведущей в мире платформой для �
 ```bash
 magnet:?xt=urn:btih:ADED70D6929929011ABA0AB4294DA924722F3E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

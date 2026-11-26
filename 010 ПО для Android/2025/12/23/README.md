@@ -19,8 +19,7 @@ ProShot v8.32.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:09FADBCC6EE010BE7FC597B75AB6220BCF766E8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cozy Magnifier & Microscope Plus v7.0.1 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FED5303E2B64D8BE3C1DBBCC1EC05406D91C10EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49ADFD91DB7FE168FFBF518F8AFC57AD4D6AEF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F366AB02BB786D1374B963D944E073D4E06CD887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Lighting calculations / Расчеты освещения v6.1.11 Mod by Balatan
 ```bash
 magnet:?xt=urn:btih:5650B472DAF5F1E64582FEFEBBBB5D5C54185CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Smart AudioBook Player Pro v11.6.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F6689C7009CF2874C4C3BD487AD6A738FB3733F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

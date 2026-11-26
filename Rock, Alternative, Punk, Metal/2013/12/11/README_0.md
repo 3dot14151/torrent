@@ -28,8 +28,7 @@ De Van - Current End Of Days (2013) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:38B947DAAA36344F8E50BCA17703FBF149F5F60C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Meridian - Metallurgy (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EEEB6AC815F6EBB4407EAA6700AD4552DEA1BC1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Armory - Empyrean Realms (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:AB3A3A166B21A341ECFC2E046AA64895E0279192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Kenny - The Best Of Kenny (1994) [MP3|320 кб/с]<Classic Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:3CAA7BFCEE6A9AA765424AE136FAA1E1CD8AD4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Gabriels - Prophecy (2013) [MP3|320 кб/с]<Rock Opera, Heavy Metal, Progressiv
 ```bash
 magnet:?xt=urn:btih:24509EEAEAAB68623FBDBBB0F8015E085B47C21E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Stars In Stereo - Stars in Stereo (2013) [FLAC|Lossless]<Alternative Rock | Fema
 ```bash
 magnet:?xt=urn:btih:E2F9CCBE1C9CD29173A27F7F9263788DEFBC4738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Eyes Wide Open - Aftermath (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:77F26A4AD45DA1A27BE33A8019424CB6CEDBD7AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3CF487818A5DF18E95A3E3D180AB0D7DF53B38E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Global Lounge Masters, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Do
 ```bash
 magnet:?xt=urn:btih:941D365FFDB5FB2762F8053703F283AEB8A754F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ UctoX - это мощное приложение для выставления �
 ```bash
 magnet:?xt=urn:btih:F3E9DB67368FF6CCEBED0F1349EFA98C22B9DED9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:E78BDF36B5EC70D6B2208F0225D5D59F0EB2BA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49080224923CF1C99FF41B769DC579A1E24539BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Varitda Bhirombhakdi - Mood 2: Jazz in the City (2021) [AAC|~320 Kbps] <Jazz, Vo
 ```bash
 magnet:?xt=urn:btih:834DC6D025A91C79ECE77690C93460052FD30D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63EBD9AB7175531A41FB1B5E2590CDF7E9979A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ SolarFlow - Collection of the Best Tracks From: Solarflow, Pt. 2 (2020) [AAC|~32
 ```bash
 magnet:?xt=urn:btih:7BEDD50E0C240A90B384CB71B064F3803659B778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ VA - Winter Relaxation, Vol. 2 (2020) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:8820CA9F82CCE4ED14263E7F4DF3D3B5F74BD40B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Winter Relaxation, Vol. 3 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:39C8D827874A3BDB28D300243B04148C4FCC98AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Space Chillout (2021) [AAC|~305 Kbps] <Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:1B29A3C12B82E6ED0E6693F30390BECEF501A6A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Varitda Bhirombhakdi - Mood (2020) [AAC|~331 Kbps] <Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:F2AC8DC955171A561EDE8DC1EA59E3677543F41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +320,7 @@ H.1, Hevi - Indigo Night (2021) [AAC|~310 Kbps] <Lounge, Chill Hop, Ambient>
 ```bash
 magnet:?xt=urn:btih:A9DB19198877D0DE975DAD3997C4118219100749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4F31142064932E33397FAD32FAFEDBDD8E56B0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ SolarFlow - Specter (2020) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigm
 ```bash
 magnet:?xt=urn:btih:8023F0ADCAF144A7CC2DA45E073D6D3D278D4493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,8 +401,7 @@ VA - Fireplace Chill - Winter Edition (2021) [AAC|~319 Kbps] <Lounge, Chill Out,
 ```bash
 magnet:?xt=urn:btih:7AAE3F446FA0B7C7CCB22F432CDB15DB271328AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +429,7 @@ Erroll Garner - 1951-1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 ```bash
 magnet:?xt=urn:btih:F7D9A9BD378222C841CAC6E215E604A0C6DA365B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ VA - Best Vocal Chill Out (Remixes for 2021) (2021) [AAC|~339 Kbps] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:66BB1CE4D98316B1AA08846278B82B761E8F5BFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ VisualDiffer сравнивает бок-о-бок папки и файлы с �
 ```bash
 magnet:?xt=urn:btih:DDDE63D8CFB4F4E9C0CE3097EDC118E1F321393C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +508,7 @@ Filmage Editor 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:71C59503C82575364DB8E8A7685F9C5B0311622D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +536,7 @@ SolarFlow - Collection of the Best Tracks From: Solarflow (2020) [AAC|~326 Kbps]
 ```bash
 magnet:?xt=urn:btih:EB21BBFDDC1334BE8A32855F831061D2B86FE37F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +561,7 @@ TunesKit AceMovi Video Editor может отличаться от множес�
 ```bash
 magnet:?xt=urn:btih:6DD0233E283045B59894CEF9657448BD519E05F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +589,7 @@ VA - Winter Relaxation, Vol. 1 (2019) [AAC|~329 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:3C6EE5AE934F5FD1FA2C9F45CE5223CB7EF2164F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +617,7 @@ SolarFlow - Imagine (2020) [AAC|~323 Kbps] <Electronic, Lounge, Chill Out, Enigm
 ```bash
 magnet:?xt=urn:btih:024F7364B1671AC87BCD3FFEAF79488D206FBE66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +645,7 @@ VA - Winter Relaxation, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:A03C6C2ACCCADBA0567F2916F6D1B78089C997BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +670,7 @@ Task Office 6.9 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AACBC0D27B04A9D45257D089F00FFE0D0EAEACB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ Walletry - это простое приложение, которое помож
 ```bash
 magnet:?xt=urn:btih:362555C7D269547D1FFFB3B182CAFE9967F583A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

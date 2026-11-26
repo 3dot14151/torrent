@@ -19,8 +19,7 @@ Fabio Cimo | The Best Web Programming Languages to Learn (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:13341AD4F8958E08C28BA04D79AE3067B37E6C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Raman Jhajj | Apache Hadoop Cookbook (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:08E4E943A20B14C614B4988479BF49FB2DF4C64C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fabio Cimo | Web Developer Interview Questions (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:A117437A74EC5785D92685EFDA756AB925CC9E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ JQuery - это кроссплатформенная JavaScript-библиоте
 ```bash
 magnet:?xt=urn:btih:1F451D473056F1653EBA9EB06D224A14BF34A7D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Andriy Redko | Advanced Java (2015) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:01C1C1129FF9201014A585D4050366F8EB9070AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ HTML5 - это основной язык разметки технологий �
 ```bash
 magnet:?xt=urn:btih:7F573AD5E325C1653AD095268E192BCD2FBB5CC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F147C3FE138B4646C2C7A50C35D8FC0A860A8BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Chryssa Aliferi | Android Programming Cookbook (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:6A150BFBB5D61E53513C5E0AB895473C2E9358A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ Francesco Azzola | Android UI Design (2014) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:A3EA183CC4359F6CAB1EF80524BCB4E4FCE4F5A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ WordPress - это бесплатная система управления ко
 ```bash
 magnet:?xt=urn:btih:CA74052151EA0DD9991E6EB53FD9B8B676519A1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ Web Code Geeks | PHP Programming Cookbook (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:027B66DCCB83817BE159727729AB7B4D9A4D9419
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Fabio Cimo | JavaScript Interview Questions (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:0FEBE60BEC5AFE3F6CFD4B941958E84B3C1B9A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ Python - широко используемый высокоуровневый, �
 ```bash
 magnet:?xt=urn:btih:FA0BBD8B07254012A28989F4DBEB149512624EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B34211EEC28277FCC2833A7E713C4E52A019E35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,8 +371,7 @@ Maven - инструмент автоматизации сборки, испол
 ```bash
 magnet:?xt=urn:btih:2A8E138CA1C91083F493FC2C9694E41C940C85CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

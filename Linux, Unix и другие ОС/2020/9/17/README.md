@@ -22,8 +22,7 @@ KDE neon User Edition 5.19 LTS(20.04) (сентябрь 2020) [64-bit] 1xDVD
 ```bash
 magnet:?xt=urn:btih:B8A9741E836F388F5DD624FBAE57A6EA6A998E12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

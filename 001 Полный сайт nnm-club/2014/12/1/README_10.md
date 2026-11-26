@@ -28,8 +28,7 @@ VA - Клубные Новинки Vol.553 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:810C24C8DA201EE41E16CE74A87C6F8158160B95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Zotz - Hermetic (2001) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5B7166382D6D9F9FBF8BCA6CE3E6B71A2A57AA2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ NICK R. - 7VET (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:39DE7D7CEDC06C553469FA340C06CEE8281F4AE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ VA - Клубные Новинки Vol.552 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:1EB962F037CB1F0566042A5CA451E90AFBADC3D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ VA - Progressive House V.36 (2014) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:F40AB1FEF4215AFB46D7987F75425CE877CD5D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -197,8 +192,7 @@ VA - Dutch House, House #20 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:D435EFAC7A2DCAE8F81B8167B8C8471C993DDEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +226,7 @@ The SOI - Still Here (2004) [MP3|192 кб/с]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:CFD1C6D4CFE07FD0D1132456C49BF442B06E9318
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Astralion - Astralion (2014) [FLAC|Lossless]<Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:4FFFC44F95C0390099EBD4A3ADEC2EED1A5C7886
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Triosphere - The Heart of the Matter (2014) [FLAC|Lossless]<Power/Progressive Me
 ```bash
 magnet:?xt=urn:btih:409D344FB055953297125709BE5B76DF404D8F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ Henrik Bach Petersen - Daydreaming (2005) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:80A2274C70915104D0D7B791724CBDD3068D52B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ VA - Клубные Новинки Vol.557 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:899F1D9E0544B4735A04C4E97E9E102F200570BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ Unseelie - Urban Fantasy (2014) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:4A678940A18E498D0D6374E7E9CC55FD92B6052C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +427,7 @@ VA - Клубные Новинки Vol.543 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:B5BD65454E6E11722FE11714CAE4D9E312495ABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +459,7 @@ Joey DeFrancesco - Wonderful! Wonderful! (2012) [FLAC|Lossless]<Jazz, Post-Bop, 
 ```bash
 magnet:?xt=urn:btih:F5C8EC464208478C202896D178AA5043A4D4CF24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +493,7 @@ VA - Клубные Новинки Vol.556 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:2A08E1E8FC4640C18D25EF04F060863D87D14B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +526,7 @@ VA - Клубные Новинки Vol.544 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:A60640403DA809BD12D0B82D3073D1070CAD7C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +559,7 @@ VA - Клубные Новинки Vol.541 (2014) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:0147EE1F3748F6428D140934EB3FDB7028BB1294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +593,7 @@ Bloodbound - Stormborn (2014) [FLAC|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:7AF64BD3AE6DB721C5DCE1877F94683331A992C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +627,7 @@ Sub Pub Music - Involution (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:AF95E85759EC267D804E174B2F2CB4597DEBF6C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:423F93808BA7F3818562860BBE092028C73199F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -706,8 +686,7 @@ Fired Earth Music - Retribution (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:01407BBDE0216852B0AEDED39B97C419366DD246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -740,8 +719,7 @@ VA - Dutch House, House #21 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:26D67C45D04CF9F6228428989DDB724EDD03A301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +752,7 @@ Mystic Crock - Nomad (2014) [MP3|320 кб/с]<New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:7643661742F31DB226BF4CFB5E8CB661D0154E0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -809,8 +786,7 @@ Erik Scott - Spirits (2014) [MP3|320 кб/с]<New age, Guitar>
 ```bash
 magnet:?xt=urn:btih:721C6143674DADABF09CB8A67AD4B762DF946E47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -843,8 +819,7 @@ VA - Dutch House, House #22 (2014) [MP3|320 кб/с]<Dutch House, House>
 ```bash
 magnet:?xt=urn:btih:F09745D1439B5C960F8CCAE4D81A01BC3430DE68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -877,8 +852,7 @@ Garden Wall - 8 альбомов (1993-2011) Дискография [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:DE741EC325C7E169F0D82943F889A6AFEE9DDC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

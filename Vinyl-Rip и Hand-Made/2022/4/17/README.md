@@ -22,8 +22,7 @@ Abdul Hafis - Flute Music (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Arabian, 
 ```bash
 magnet:?xt=urn:btih:CB7427027A7CF52C9C988FD34456C283D0878ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:864A40CB67B61C44A369D71699BE3CE1AFA27DF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ A4 И. Саруханов - Barbe(   Читать дальше...   )Жанр: P
 ```bash
 magnet:?xt=urn:btih:E02200B0E797239E4C67177E3DBA9B2A5D48BA3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,8 +104,7 @@ A4 I'll Drown In My Own Tears(   Читать дальше...   )Жанр: Fusio
 ```bash
 magnet:?xt=urn:btih:870CCC4AEC2CFDDB9256C0A841EED98487B4E19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ VA - Место Встречи Дискотека. Выпуск 4 (1988) [FLAC 2
 ```bash
 magnet:?xt=urn:btih:0021F9F5C6A6B45209431AF991C6FCC9C5603033
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ VA - Для Вас, Женщины! (1975 - 1989) Серия 13LP [FLAC 2.0|96/2
 ```bash
 magnet:?xt=urn:btih:9DFE70E25FBE7BAFBFED3C7DC454C1C7948648FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

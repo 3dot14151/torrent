@@ -28,8 +28,7 @@ Masi - Eternal Struggle (2001) [FLAC|Lossless]<Heavy/Shred Metal>
 ```bash
 magnet:?xt=urn:btih:B1A69EFE2699E1D5648926289807AC7AAC6116AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Kuolemanlaakso - Tulijoutsen (2014) [FLAC|Lossless]<Death Doom Metal>
 ```bash
 magnet:?xt=urn:btih:85A6C23DA4D3AA0ACF0CC5211051FD9DAA72D91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Los Nombres - Los Nombres (2011) [FLAC|Lossless]<Rock, R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:48535AD25819110F6CAF1CA1E5FFAB0FBFE52B51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Crosswind - Vicious Dominion (2014) [MP3|320 кб/с]<Power / Speed Metal>
 ```bash
 magnet:?xt=urn:btih:A255A444905EBF1917C3F92DC4A7815080FFCA13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Hollywood Monsters - Big Trouble (2014) [MP3|320 кб/с]<Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D4DF532CACF97FEB70938127F6B061BF06C74E1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Voyager - V (2014) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:4588161B67E835A30CE055536599BB45C75F8BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +229,7 @@ Hardbone - Bone Hard (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5C32DEBCE654F45993288B74856A9B98CF42AAE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +263,7 @@ Mastodon - Once More 'Round the Sun (2014) [FLAC|Lossless]<Progressive Metal/Sto
 ```bash
 magnet:?xt=urn:btih:49E70CA60F388F8517FA84D11B60CD333940A5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +297,7 @@ Winter of Sin - Violence Reigns Supreme (2014) [FLAC|Lossless]<Melodic Black Met
 ```bash
 magnet:?xt=urn:btih:9CBA49EE4662FB97F3476D88C14A5022730CB7C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Acacia Avenue - Cold (2014) [MP3|320 кб/с]<Melodic Hard Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:5882C5B12C89DB57CB1F5A79E31569FEAFB931B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ Anathema - Distant Satellites (2014) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:89532B664492EDBABDA3966F5A2D08FD0DD53212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +389,7 @@ Bon Scott & Brian Johnson - The Roots Of AC/DC: The 60's & 70's Collection (2014
 ```bash
 magnet:?xt=urn:btih:8DC93BE4731585F4318C7447657A9B2D5FF90B29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,8 +423,7 @@ Seether - Isolate and Medicate (2014) Deluxe Edition [FLAC|Lossless|WEB-DL]<Alt.
 ```bash
 magnet:?xt=urn:btih:DFD78E10A284982BA4683092355BB623A2D129CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

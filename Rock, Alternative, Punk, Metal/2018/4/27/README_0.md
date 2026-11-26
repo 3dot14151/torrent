@@ -22,8 +22,7 @@ God Is an Astronaut - Epitaph (2018) Napalm Records [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:8B79444581DCA00DE1019A62A1757914A027CA0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD3 | Fight - Mutations (1994)(   Читать дальше...   )Жанр: Heav
 ```bash
 magnet:?xt=urn:btih:0B8BD5C48B94457A23D1E64C8737FAAD69799635
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

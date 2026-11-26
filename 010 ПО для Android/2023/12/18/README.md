@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:77A95E995362E002ED1A1691E621472A2A434EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE636762054723743B811E7DB6D1670DD4934487
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RS Проводник - запросто поможет вам в управле
 ```bash
 magnet:?xt=urn:btih:3EA61AF98C5F48EF044F9CA27EB627A8454211A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

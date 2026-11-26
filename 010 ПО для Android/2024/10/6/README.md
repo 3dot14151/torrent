@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:98C0D6BB94051AE7782B36407F6F4F32CFF8588C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ PDF Extra PDF Editor & Scanner v10.16.26608 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D2215C95F25A49578BCC32E7646321AC3CFC8E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ TapScanner — сканер документов, это простой скан
 ```bash
 magnet:?xt=urn:btih:4FA8D05209156B63A0A73DE1483441074FFBF8EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

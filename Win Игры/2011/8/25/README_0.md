@@ -19,8 +19,7 @@ Hidden World / Тайный мир (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:48C72F6EAC1D57027C777C9B992FD3BF80EDC557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ EARTH 2160 - продолжение легендарной стратегиче�
 ```bash
 magnet:?xt=urn:btih:ACD2D0BF7C56EA05D2C262A51B9B0264DAE11F61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

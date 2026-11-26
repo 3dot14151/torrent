@@ -20,8 +20,7 @@ XDownloader — это мощный инструмент, который поз�
 ```bash
 magnet:?xt=urn:btih:52964AC955A436A2BFA9C86E9547CB4928271762
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:06172A27F67A309039E2988460A47C2938C665C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

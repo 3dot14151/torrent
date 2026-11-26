@@ -19,8 +19,7 @@ StarCraft - легендарная стратегия в реальном вре
 ```bash
 magnet:?xt=urn:btih:9B9D617053BD671BD9981C79427405ED48797CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dune 2000 - стратегия в реальном времени с видом 
 ```bash
 magnet:?xt=urn:btih:4236E5D1AC6EE80C9A7F8F0A7E7E339B0C75E21D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.100) Repack Necros [20th An
 ```bash
 magnet:?xt=urn:btih:846F8A275A986E3C660D160C828A2949C8DA0AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

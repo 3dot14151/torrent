@@ -19,8 +19,7 @@ Onechanbara Z2: Chaos (2016) [En/Jp] (1.07/dlc) Repack АRMENIAC
 ```bash
 magnet:?xt=urn:btih:B089126FA3143FCF07D501938E3F6259F185C3EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Anima: Gate of Memories (2014) [Ru/Multi] (1.0) Repack Valdeni
 ```bash
 magnet:?xt=urn:btih:3D08B0CB156EBEBC760B6B774CE65C8ACA8A7A14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Xuan-Yuan Sword EX: The Gate of Firmament (2016) [En/Multi] (1.0) Repack АRMENI
 ```bash
 magnet:?xt=urn:btih:4FB46FE3858C7F8D79FCEFBE1ECE26C683C59EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

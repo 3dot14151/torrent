@@ -19,8 +19,7 @@ SuperBird является браузером с особым акцентом �
 ```bash
 magnet:?xt=urn:btih:C0021A3D00E414400CA503FBF7A451B4F203D8D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DiskGenius - мощный инструмент для управления ра�
 ```bash
 magnet:?xt=urn:btih:ED7A604AC90AC037F7F2D6913C92F12DB9760334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

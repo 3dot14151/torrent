@@ -19,8 +19,7 @@ Dead God Land: Survival Games v0.0.0263 [Ru]
 ```bash
 magnet:?xt=urn:btih:EADC4CD35CC279AA1C7F94B7DE60672F33BB037D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fallout Shelter дарит вам возможность управлять вы
 ```bash
 magnet:?xt=urn:btih:D624FF0A2E7CD5D3D2A9F73B9FEAA605A897E86A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Chronicle of Innsmouth: Mountains of Madness - это графическое п�
 ```bash
 magnet:?xt=urn:btih:7B8145385E181223512B57F05306CADEF51DD781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Exploding Kittens® 2 v0.0.19 [En]
 ```bash
 magnet:?xt=urn:btih:4162756F075882E5160A9E9FA5DD91001573CAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

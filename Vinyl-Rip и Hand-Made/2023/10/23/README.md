@@ -22,8 +22,7 @@ Brand New — американская рок-группа из Лонг-Айл�
 ```bash
 magnet:?xt=urn:btih:19B955D54330CB36816555C860878394127CE80F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A2 Вольному — Воля... • Life Never Waits
 ```bash
 magnet:?xt=urn:btih:719BAB39F16E7BDF1F772CB3C05818C9E3E5BB87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Старинные вальсы (1983) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <F
 ```bash
 magnet:?xt=urn:btih:C240B8BDB80E89D342FB1C3A1C4F73B7104DCF9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F8FD220B73130F0574CC2BD6F4AE5083DEE0A4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Sy Oliver/Сай Оливер - Только Для Танцоров (1990) Пе
 ```bash
 magnet:?xt=urn:btih:E54A5A8CB9938DBFD862DCBF68C914F74853E951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ A4 Путана(   Читать дальше...   )Жанр: PopПродолжи
 ```bash
 magnet:?xt=urn:btih:E58CD0C02A4F4A8AECE95C3A27EBE9158D999559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ A4 Химена · Jimena(   Читать дальше...   )Жанр: Easy List
 ```bash
 magnet:?xt=urn:btih:0498125CF5859DAA37F01F967D1187657E18F26C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FDF8CAFA6CD121221CCDD1C4DF82D6354C657EF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

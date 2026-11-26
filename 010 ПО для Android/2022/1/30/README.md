@@ -20,8 +20,7 @@ KitchenTimer v4.5.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:39ECB7190BF988FE1043D015350BB922400CA8DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

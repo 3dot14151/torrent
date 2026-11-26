@@ -22,8 +22,7 @@ The Hounds Of Hasselvander - Another Dose Of Life (2021) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:2AFB73BC516F4D95227AAF7FA03ECFB366D45A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD 1 - Ekbom:
 ```bash
 magnet:?xt=urn:btih:D14869E4768E763CCFBDF8A6B200D8DAB6296F52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Within Temptation - Worlds Collide Tour (Live in Amsterdam) (2024) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:79DBF9227D283384E563C9417962068C1FF25951
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Rifflord - 39 Serpent Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, St
 ```bash
 magnet:?xt=urn:btih:6200C1C8D1301074A88EB5847C40852477E9505E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ R.E.M. - Live from the Pyramid Stage, Glastonbury Festival, June 25, 1999 (2024)
 ```bash
 magnet:?xt=urn:btih:E600BE3F5A753E173C2D577620C2CE766804B41F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A121551B8811A873CA1C7A12A6362B3672EEE03B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

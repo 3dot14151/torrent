@@ -22,8 +22,7 @@ B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Sy
 ```bash
 magnet:?xt=urn:btih:3A6368B651AB53F531204BA100055EBE19AAC61E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4. Фотофиниш (4:34)(   Читать дальше...   )Жанр: Elect
 ```bash
 magnet:?xt=urn:btih:FAAE095706F44266BEC0CA327A1FCD13E959B6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Baccara - Baccara (1977)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
 ```bash
 magnet:?xt=urn:btih:5CCFF4D651623339252A73CA4D8A37716199A78F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

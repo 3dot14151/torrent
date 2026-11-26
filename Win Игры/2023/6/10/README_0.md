@@ -19,8 +19,7 @@ Beautiful Desolation - это двухмерная изометрическая 
 ```bash
 magnet:?xt=urn:btih:C1B7B784AA1AE296A3A2AC5F43F11080A4A7CFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ A Plague Tale: Innocence – это невероятный средневеко�
 ```bash
 magnet:?xt=urn:btih:794F5F6A64B006F1C174D9189B7F945C17DC8891
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Captain (2021) [Multi] (1.1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:736CD9AA9AB64FA599DAD9EBF3FEB33FDE89D30F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Strange Investigations 3: Secrets Can Be Deadly (2023) [En] (1.0) Unofficial [Co
 ```bash
 magnet:?xt=urn:btih:6CEC1D36DD65A228D72FFF00C3DDBFB6C602EF6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Voodoo Detective (2022) [En] (0.0.31) License GOG
 ```bash
 magnet:?xt=urn:btih:A3A2DCF9D659D819031C2FD27C96971B26C9BFE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Basements n' Basilisks: Storms of Sorcery - это смесь из класси�
 ```bash
 magnet:?xt=urn:btih:E0387740D8339C869403DD84B2199C74B93240DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Harmony: The Fall of Reverie - это увлекательная приключ�
 ```bash
 magnet:?xt=urn:btih:3B5C97484DEB674729628A813237699815A3A4FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Amnesia: The Bunker - хоррор от первого лица от созда�
 ```bash
 magnet:?xt=urn:btih:ECE2B18C44759378E350A1B2843B9BCFD1EDFA3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

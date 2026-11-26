@@ -24,8 +24,7 @@ Kudsi Erguner - Ottomania (1999) [FLAC|Lossless]<World Fusion, Ethnic Jazz>
 ```bash
 magnet:?xt=urn:btih:3EC37986FBFE71E1203E38533E40172E44E7B06E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:22EAB9DE0578CBD484DADD7467109389666C7FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Composed By, Arranged By – Albert BegerЖанр: Free JazzПродолжите
 ```bash
 magnet:?xt=urn:btih:102E72A4726BC2ED43220F6D0FC2768894825D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1A7479D0965F9EDDB977507F0B1BAA37DF12624
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -170,8 +165,7 @@ VA - Ambient Rails (2014) [MP3|320 кб/с]<Ambient, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:B6363BCD8466745C71617C19A27C2B028E8B7CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +199,7 @@ Biological Madness - Biological Madness (Jazz in Israel, #11) (1990) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:CED80747D75362A3673AF4968A7612F31A9C4F4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,8 +233,7 @@ VA - Finding Beautiful Sunshine (Compilation) (2014) [MP3|320 кб/с]<Trance, U
 ```bash
 magnet:?xt=urn:btih:8AB41E3601235C12E0BC3E0153FDCC2FABCB2190
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ Arnon Palty - Pocket Size Pocket (1995) [FLAC|Lossless]<Fusion, Smooth, Contempo
 ```bash
 magnet:?xt=urn:btih:9D36FAC3759AEC962B0244A8B763EC37330BAA0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +301,7 @@ Amir Ben Alon - Azalaf (1997) [FLAC|Lossless]<Ethno-jazz, fusion>
 ```bash
 magnet:?xt=urn:btih:6929C21F15DFA2492E4049342BF8E5BDA1BF68DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,8 +335,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6353F161B1CF585629E44186A5D1C663249E8DAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +369,7 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:A86D88846047E4CF1A5C8BEFF7F3B10E3B775DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ Amir Ben Alon - Hebrews (2008) [FLAC|Lossless]<Ethno-jazz, guitar-jazz>
 ```bash
 magnet:?xt=urn:btih:1B88CCBA0FBFFCB3BB952B50FC4FDFCB639C81BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ Lincoln Center Jazz Orchestra with Wynton Marsalis - Cast Of Cats (2003) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:4AB016EFDAB04F0AE7D399F28B518EE3E34C63BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +469,7 @@ VA - Sax And The City (2014) [MP3|320 кб/с]<Jazz, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:CB6EB81D98135FA5561F08E1AF3CC5592A087D51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +503,7 @@ Stephen Kummer - Jazz for Lovers (2006) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:31CC58C1157C3359A0FDFE2D4C598B809DB20F90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +537,7 @@ Ron Tanski - Never Pet A Burning Dog (2014) [MP3|320 кб/с]<Blues, Piano Blues
 ```bash
 magnet:?xt=urn:btih:ECA8CFAD3BECF50A3443FB2FD387F3AE3D729BEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,8 +571,7 @@ Kristin Korb with The Ray Brown Trio - Introducing Kristin Korb (1996) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:8FBC13DB1226EEF0BBB282E8A424B295766E2BEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +605,7 @@ Ease Of Disgust - Black Flame (2014) [MP3|320 кб/с]<Metalcore / Deathcore>
 ```bash
 magnet:?xt=urn:btih:09CF4B3BDFED718EDEA42930E3687BD6C56266D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +638,7 @@ Black Anvil - Time Insults The Mind (2008) [FLAC|Lossless]<Blackened Thrash Meta
 ```bash
 magnet:?xt=urn:btih:18C340F1948FCD684EC38E42484B93FB9AD2470D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +664,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D50392CC120F5BD9AD998343DEC1CC341FB2063D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +689,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3137263A765B05F4D19295CBCA4C6D6D2F820645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -736,8 +714,7 @@ Discovery: Совершенно секретно. Разведка морско�
 ```bash
 magnet:?xt=urn:btih:977DCA1558714BD77316340025E7A7FE10982D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +739,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF459D39EC926BB6FD8A7C9F3583F5998C5EC739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +764,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCDB39B3B28436C486882818C6D3A2CCE1556673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -823,8 +798,7 @@ Be Ignacio - India Urbana (2014) [MP3|320 кб/с]<Pop, World, Brazilian, Latin>
 ```bash
 magnet:?xt=urn:btih:97E2AC444F362113F40938855129BD0200979662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

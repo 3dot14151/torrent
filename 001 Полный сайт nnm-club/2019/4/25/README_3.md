@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:194C8309C5B732B95828CCA5057F3552BFFCA15A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ South Park: The Fractured but Whole, сиквел знаменитой игры 
 ```bash
 magnet:?xt=urn:btih:FB645AB5CF3D808E920DA2CAAB6463C88F8C9090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17F931B190C5C94FF78311F227A3D9E7017950FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ MInstAll v.22.04.2019 By Andreyonohov & Leha342 [Ru]
 ```bash
 magnet:?xt=urn:btih:1CDB784454D387228DA4B7C9EA07345BCC9EB26E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

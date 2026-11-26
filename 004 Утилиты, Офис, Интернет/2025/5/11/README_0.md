@@ -22,8 +22,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r26 Portable by Ratiborus [Multi/
 ```bash
 magnet:?xt=urn:btih:E4566A894C3440F5E70DB41EEB9FC2390FC04CD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:E9EE1690862F53AC08C009A35BFDAFA1F8D23433
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 ```bash
 magnet:?xt=urn:btih:0206954C27425199A263A586F3CE4E62DC20B96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

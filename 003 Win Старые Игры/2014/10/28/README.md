@@ -20,8 +20,7 @@ Call of Juarez / Call of Juarez: Сокровища Ацтеков (2006) [Ru/En
 ```bash
 magnet:?xt=urn:btih:E180FFBA09250FC30599FA8C3842EEA5D1539709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

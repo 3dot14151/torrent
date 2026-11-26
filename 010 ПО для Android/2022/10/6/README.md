@@ -22,8 +22,7 @@ Moovit - универсальное приложение для всех ваш�
 ```bash
 magnet:?xt=urn:btih:9037B5E22B4D0AA70DF7A96AF8E7F3FE8D139112
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

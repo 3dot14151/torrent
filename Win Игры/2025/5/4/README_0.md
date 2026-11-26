@@ -19,8 +19,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (30.04.2025/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E451880E249EC34C8627E146E2589E7E6B28C909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DON'T WATCH - это психологический хоррор от перво
 ```bash
 magnet:?xt=urn:btih:E5EDF521909EA6EC9B8EC26671226CFA4591A377
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Age of Wonders: Planetfall – это новая стратегическая и
 ```bash
 magnet:?xt=urn:btih:402D649388D3A50315A275A14E757D588313600D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Stellar outpost commander передает игроку контроль над 
 ```bash
 magnet:?xt=urn:btih:3F509202327F816EC8BA0AB7B1000B32D447CC16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.26) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6EEDBB49A0F1786E0CCFA2AA07C87CEB6DE93C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Inspector Schmidt - The Ebbing помещает пользователя в ро
 ```bash
 magnet:?xt=urn:btih:E32BAFF23C757C9982911871D0FBDD8FD4154535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

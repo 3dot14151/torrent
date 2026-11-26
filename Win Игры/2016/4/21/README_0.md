@@ -19,8 +19,7 @@ MELTY BLOOD: Actress Again Current Code - последнее поколение 
 ```bash
 magnet:?xt=urn:btih:95DB3ADE2A6D51A162F8E678AA743CB073C759B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pang Adventures (2016) [Ru/Multi] (1.0) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:A19B49FD6449B3EB90C464E98AA66056951DCBF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rambo The Video Game: Baker Team – шутер от первого лица, с
 ```bash
 magnet:?xt=urn:btih:F0593A3D266F5274EED2C6427A54DDED185F84AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Gnomoria - песочница, в которой мы управляем гру�
 ```bash
 magnet:?xt=urn:btih:B47C21E6E958C83F4DA3690B76A8E0F8BADB301D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Nomad Fleet (2016) [En/Es] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:23629957A4521086007AB6B7A7E82B49DC328CDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Desert Car - Новый гоночный симулятор позволяющи
 ```bash
 magnet:?xt=urn:btih:52C7F07B6301A56CD9895675C4412FED086978C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

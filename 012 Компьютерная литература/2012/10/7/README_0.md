@@ -28,8 +28,7 @@ Git позволит вам управлять вашим исходным ко�
 ```bash
 magnet:?xt=urn:btih:6C4AF6CF223D95C3C7B014CE73B0F16DF93B441C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:98F0382FE94A6937A26C1CFC68AEFF950D5C152E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ ASP.NET MVC 4 framework(   Читать дальше...   )Формат: PDF
 ```bash
 magnet:?xt=urn:btih:222FD2D122CE736D33BE8EF812264D9DA7008A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

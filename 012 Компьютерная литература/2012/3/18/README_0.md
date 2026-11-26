@@ -21,8 +21,7 @@ HTML5 и CSS3 - будущее веб-разработки, но не обяза
 ```bash
 magnet:?xt=urn:btih:16467D53D52807854F277D67BA21F68EFFA1D4C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

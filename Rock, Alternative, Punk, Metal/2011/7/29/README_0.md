@@ -28,8 +28,7 @@ Bonus tracks:(   Читать дальше...)2011Жанр: Heavy MetalПрод�
 ```bash
 magnet:?xt=urn:btih:F73A6CB20FB07E1CEFE9BBC63605B46064042887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Holy Pain - Rebellion (2011) [MP3|320 kbps]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:4E21941F648AFBD6C03D4613C5DF44DD59E3B39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ The Itch - Spreading like wildfire (2011) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:93D8AD757B7463DE534A95129ABC60029C68AF3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Ava Inferi - 3 альбома (2006-2011) [APE|Lossless]<Female Fronted Doom Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Elvis Presley - 2 альбома (5 CD) (2000, 2011) [FLAC|Lossless]<Rock, Rock-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

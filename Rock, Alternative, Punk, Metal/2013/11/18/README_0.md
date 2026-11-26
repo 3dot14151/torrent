@@ -28,8 +28,7 @@ The Mallett Brothers Band - Land (2013) [MP3|320 кб/с]<Rock, Americana>
 ```bash
 magnet:?xt=urn:btih:D924A0042452B6239F99244BF5DD0425E3408AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Kells - Anachromie (2012) [FLAC|Lossless|WEB-DL]<Alt.Metal | Modern Metal | Goth
 ```bash
 magnet:?xt=urn:btih:A2549E0A222274C540116EE86C178D04B43AFE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Kylesa - Ultraviolet (2013) [FLAC|Lossless]<Psychedelic Sludge/Stoner/Post-Hardc
 ```bash
 magnet:?xt=urn:btih:52E7814C9B334DF1B2166D070DD2760F3BF3B1D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4D8549DD3748F259E0F8D89A47D834176C81D559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ The Letter Black - 2 Альбома (2010-2013) [FLAC|Lossless]<Alt. Metal | Alt
 ```bash
 magnet:?xt=urn:btih:73152EAEE87B101BF874538D2E0B8771DFBBEABD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:17A6503FA824D88F6D3A694CAFAEF43331F13277
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Symfomania - Empire (2009) [FLAC|Lossless]<Symphonic Rock>
 ```bash
 magnet:?xt=urn:btih:D629999D2B11965096F8E0663C6F7A92E4CDB298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +293,7 @@ Joe Cocker - Hit Collection (2000) [FLAC|Lossless|image + .cue]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:E11B94D2A7B5D3BB6FE009936B9048D09F4519C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

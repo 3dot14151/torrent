@@ -19,8 +19,7 @@ Inner Voices - сюрреалистическая приключенческая
 ```bash
 magnet:?xt=urn:btih:31EB493C19F92B4E0B7D72FC76B732CF77708A17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Door Kickers – это инновационная стратегия в реа�
 ```bash
 magnet:?xt=urn:btih:1A201840EDCCE33CC0E96926E57FE1C0DBD7BC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Everything - это интерактив, наполненный всевозм�
 ```bash
 magnet:?xt=urn:btih:4C4F4AB2CD4ED52F1514E03DB11E2213235251CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Outlast 2 – это продолжение Outlast, популярной игр
 ```bash
 magnet:?xt=urn:btih:5F14587BAA2C15ADCE4696A061B62236A0981A9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

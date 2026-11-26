@@ -28,8 +28,7 @@ Onheil - Storm Is Coming (2014) [FLAC|Lossless]<Blackened Heavy/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:1A2D4A60319A166FE0E37F4A51D54C782523C559
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Divider - All Barren (2014) [MP3|320 кб/с]<Chaotic Hardcore, Post Metal, Slud
 ```bash
 magnet:?xt=urn:btih:D5E00F54DD047532E32C5B5FF2D15B7D19DC65BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Vestige Of Virtue - Sophia (2014) [MP3|320 кб/с]<Doom Metal, Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:7A9D57896C3C9FBB0E14C5DC9FE2F498CED2AA64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ White Empress - Rise Of The Empress (2014) Special Edition [FLAC|Lossless]<Symph
 ```bash
 magnet:?xt=urn:btih:4F39B4827981CAD4CCAC57EABA5DD2F6078F0DCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Andromeda - Originals (1969/2005) [MP3|320 кб/с]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:3B6CD502BAB7C297BEEB6206B7BB446598C48449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +195,7 @@ Xerath - III (2014) [FLAC|Lossless]<Orchestral/Progressive/Groove Metal>
 ```bash
 magnet:?xt=urn:btih:E90B9F87DC33E587EBE1BD552496B92A4B042677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Electric Wizard - Time To Die (2014) [FLAC|Lossless]<Stoner/Doom Metal>
 ```bash
 magnet:?xt=urn:btih:AD0889637C6DD8EEFC2D4EFD8F5A0F1C506EAE3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,8 +262,7 @@ Shaman's Harvest - Smokin' Hearts & Broken Guns (2014) [MP3|320 кб/с]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:513DB7F54A743D346FB2EFC777EE51B607FF766D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +296,7 @@ Weezer - Everything Will Be Alright In the End (2014) [FLAC|Lossless]<Rock, Alte
 ```bash
 magnet:?xt=urn:btih:52C006C7BF57EBFF1EC2B6F53E1AD7C014E30791
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:043D2979AC2D405CE1E9E36116C98B9B2DFA39F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +364,7 @@ Yellowcard - Lift A Sail (2014) [MP3|320 кб/с]<Pop Punk / Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:B6C7D5B075C92E0D789510B339627E3F376B2DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +398,7 @@ Roger Waters - Star Profile (2001) Bootleg[MP3|320 кб/с]<Progressive & Art-Ro
 ```bash
 magnet:?xt=urn:btih:D25A7858705142D9E30C8D2245D9E6481BA1AB79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:786FB427F5C0E71DC06856F59C19F96D7700C19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,8 +466,7 @@ CD.1
 ```bash
 magnet:?xt=urn:btih:ED37CDD88D9EB6DCE6B003E99FBCC82930ECD825
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +494,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE0442FE96DB1719D7CD734A2AD45C29FA790931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +522,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA0261A80EE7C41306095A47FAB3CB59FF9510C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

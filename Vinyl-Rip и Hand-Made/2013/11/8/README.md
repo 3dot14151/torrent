@@ -28,8 +28,7 @@ B5. Lucky GuyЖанр: Synth-pop, PopПродолжительность: 00:43:1
 ```bash
 magnet:?xt=urn:btih:69790E17B6D6434F058EA0F0ADA1DB09844CA73B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ B5. Диск-жокей [5:01](   Читать дальше...   )Жанр: Psyc
 ```bash
 magnet:?xt=urn:btih:86BFFDBC2EC57148224AC8A7C3CF6E278940020B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

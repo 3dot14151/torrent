@@ -19,8 +19,7 @@ Bonfire Stories: The Faceless Gravedigger (2017) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:2E1BFD0E1FFC242AC69E2D9E02B6AC3BB28ADBFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Victor Vran - это изометрический ролевой экшен с �
 ```bash
 magnet:?xt=urn:btih:12A8C7FA7854F212D3444BE8F92344B6A4B72312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Kingdom Rush Origins – это третья игра в завоевавшей 
 ```bash
 magnet:?xt=urn:btih:8552A4BE87D4CFBE2AAA32BB655666AA188295AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jagged Alliance возвращается! Превосходное сочета�
 ```bash
 magnet:?xt=urn:btih:7EEBF4038E94611A0D887F7B7FBCCEA71A34022A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

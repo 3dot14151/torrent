@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:748337B9593E9DCE54AE911E9C9FF4798559E6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Forest Of Souls - Contes Et Légendes D'efeandayl (1997) [MP3|256 kbps]<Doom/Bla
 ```bash
 magnet:?xt=urn:btih:FCDC9D40D20FF1C6B7DDCF76EB268B429AF4971F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ingrimm - Ihr sollt brennen (2007) [MP3|~224 kbps]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:515919CEC9B32C6B58A904F836E27A1F8F406252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Abigor - Time Is The Sulphur In The Veins Of The Saint... (2010) [MP3|192 kbps]<
 ```bash
 magnet:?xt=urn:btih:612C48AF84758DCC810977905316556AA6F12C74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tvangeste - Damnation of Regiomontum (2000) [MP3|192 kbps]<Symphonic Orchestral 
 ```bash
 magnet:?xt=urn:btih:D3B0D1C7B3FA631346F84638814D8F02A03419A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Coldplay - Everyday Life (2019) Scene [FLAC|Lossless|tracks] <Indie Rock, Britpo
 ```bash
 magnet:?xt=urn:btih:799CD7E11C8637F5AFD6E74B872518701B3AC04B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Folkearth - Drakkars In The Mist (2007) [MP3|~224 kbps]<Epic Folk/Viking Metal>
 ```bash
 magnet:?xt=urn:btih:484DCC568563235791911A66588BC9B0B603F91E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

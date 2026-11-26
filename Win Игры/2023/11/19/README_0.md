@@ -19,8 +19,7 @@ The Far Kingdoms: Awakening Quest / Дальние королевства: Пр�
 ```bash
 magnet:?xt=urn:btih:30386E38EB3682480BA5EDCDBD147DAF95937617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DREDGE (2023) [Ru/Multi] (1.4.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1B5A3B7A9B93C0A659E10C401E99F6800E2DA755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Flashback 2 отправляет геймеров в умопомрачител�
 ```bash
 magnet:?xt=urn:btih:716A37578CE115C43026C93A0E1E04A40A2824F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hydrofoil Generation перенесет вас в мир парусного сп
 ```bash
 magnet:?xt=urn:btih:792EAB3CFD608157FC799AEC3A612F8EE06C25BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Stray Blade – это мрачное фентези, в котором игро
 ```bash
 magnet:?xt=urn:btih:461F92F9FFEFF1D089F89596FFA14B06EDC14285
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

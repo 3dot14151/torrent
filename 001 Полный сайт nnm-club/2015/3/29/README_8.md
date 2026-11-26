@@ -19,8 +19,7 @@ Windows PE XP + Native, Windows PE 7 x32|x64 + Native, Windows PE 8 x32|x64 + Na
 ```bash
 magnet:?xt=urn:btih:6A28071A760C3390B1F60A34F1EAB0A544144C3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:6BF666126DC83168C88F17C9716A03693348D9BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

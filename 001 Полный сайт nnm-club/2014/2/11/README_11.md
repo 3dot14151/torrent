@@ -28,8 +28,7 @@ Graal - Tales Untold (2007) [MP3|320 кб/с]<Progressive Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A75388DC2148E9CCFE02A41DB998CBD4106C9EB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ VA - Enhanced Music: January 2014 [MP3|320 кб/с]<Trance, Progressive House>
 ```bash
 magnet:?xt=urn:btih:1A4C702BF5605EC5FD62BB6D4449EB5F6914F647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ VA - Evening Tranсе 7 (Compiled by Alex3107) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:A6B95096AB2868B20E9B11A6EC4D65ECE0F01C61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Jeff Steinberg - Big Band Romance (2003) [FLAC|Lossless]<Jazz, Big Band>
 ```bash
 magnet:?xt=urn:btih:745CD926CC61D1632683FF607281109FA15DA42F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ VA - We Are the Team (2014) [MP3|320 кб/с]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:F75CDC55D04FD343F5B5805D7C40B62D37DE958A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Eric Paslay - Eric Paslay (2014) [MP3|320 кб/с]<Country rock>
 ```bash
 magnet:?xt=urn:btih:9C57ECDF5E0A2402762AC5553128DDF05FAC482E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +232,7 @@ Crimson Shadows - Glory On The Battlefield (2012) [FLAC|Lossless]<Epic Death, Po
 ```bash
 magnet:?xt=urn:btih:82987086E48F1FBF442D5A32E85D57456F302FED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +266,7 @@ VA - Amsterdam Trance Event 2013-2014 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8E0193C041D6DA0D8889596750036071D60DA5B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Dj Parafich - The Real Pump [Pumping Romantica vol.4] (2014) [MP3|320 кб/с]<S
 ```bash
 magnet:?xt=urn:btih:A907597BAC2FB63E2787FD794C265130229E23F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ Monte Pittman - The Power Of Three (2014) [FLAC|Lossless]<Hard Rock / Heavy Meta
 ```bash
 magnet:?xt=urn:btih:C89B76EEEB95A142223D848E918618A40749EBB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +359,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2AE0F03FE9E51D233C3C15919E6A8332FC33E939
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +393,7 @@ Wild Horses - The First Album (1980) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B3E741082EC537EC65B34D30F59643D0AB471EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +427,7 @@ VA - Mixmag Pres: Tensnake Night Drive (2014) [MP3|~245 кб/с (V0)]<House>
 ```bash
 magnet:?xt=urn:btih:833330DB8AC3C0B559923BB4539CA67C50899223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +456,7 @@ Arlen Roth - Toolin' Around (1993) [MP3|320 кб/с]<Blues, Country, Rock'n'roll
 ```bash
 magnet:?xt=urn:btih:A5A4A27C061BDB16A11101D030DB9BBF4A4FAD81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +488,7 @@ Whispered - Shogunate Macabre (2014) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:0207B7FC0D5A880531371C02C37D40BF8C309F81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +522,7 @@ VA - Mixmag Pres: Hot Natured Alternate States (2014) [MP3|~245 кб/с (V0)]<Ho
 ```bash
 magnet:?xt=urn:btih:6002A2F5E002BAB40C344243A4D9044C598231CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5DA9FA954593F985939FB8F3465EFDF97E8F0E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +581,7 @@ Lover Under Cover - Into The Night (2014)Japanese Edition [MP3|320 кб/с]<Melo
 ```bash
 magnet:?xt=urn:btih:5090A0FB2E4FC4B6EEDB40B2B618AC7AD19DD166
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB6782DC0229348310FDA10D2AE490D0CEBF6CF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +631,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C776030EE69D4510931D5EDDDE28528086E1BF2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +665,7 @@ VA - EDM and Progressive Anthems, Vol. 2 (2014) [MP3|320 кб/с]<House, Electro
 ```bash
 magnet:?xt=urn:btih:ED1EE6A69D4E777B8A22EF765A189FAFDD234188
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +690,7 @@ Blackthorn - Sister September (2013) Single [MP3|320 кб/с]<Gothic / Sympho Bl
 ```bash
 magnet:?xt=urn:btih:B6A18FD8A3CD8E4D60B772D9F62A033135A1D75A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +717,7 @@ Sean Mathews - Absolution (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:822243D4C05920C12442766D5CEA9C32826FF6FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +751,7 @@ VA - Kamasutra Sensual Chillout, Vol. 2 (2014) [MP3|320 кб/с]<Lounge, Chill O
 ```bash
 magnet:?xt=urn:btih:A3EA44A909D5EE5D108CFA439ED5E9FE07FD4551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -800,8 +776,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1BCF1BD2243D19C7E14C0EFF07374EABE6B42D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -829,8 +804,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F892C464DFC68F4DA8DE61F06D649FA3530490F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

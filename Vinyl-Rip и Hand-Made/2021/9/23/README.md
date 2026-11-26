@@ -22,8 +22,7 @@ VA - Музыка РУ 5 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|M
 ```bash
 magnet:?xt=urn:btih:D11B1B383658D143701BEA72C5C68C3CE018A6ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE410BB158A70D41ED3BEE10B877975FBC145B21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4 Highway Of Love(   Читать дальше...   )Жанр: Electronic, Synt
 ```bash
 magnet:?xt=urn:btih:1522C03026CBD0E7A02F5FDDDEA04217271C136C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:D2164BE1D2527B0E031CC974F3F52A392329077D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

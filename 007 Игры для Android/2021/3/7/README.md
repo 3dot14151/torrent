@@ -19,8 +19,7 @@ Jetpack Joyride – ваш герой смельчак по имени Барр�
 ```bash
 magnet:?xt=urn:btih:B467FD7B3B92CAAD7C5410247D90B481A1C5E301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Slay The Spire - игра с элементами традиционной ко�
 ```bash
 magnet:?xt=urn:btih:25827B593407AE75F4036A1D6E3F6237CAB55941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

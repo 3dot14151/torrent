@@ -19,8 +19,7 @@ As Dusk Falls - это оригинальная интерактивная др�
 ```bash
 magnet:?xt=urn:btih:52FD6600DD7EC189F444207144A9349A2D4A1FAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Jusant - увлекательная видеоигра, которая приг�
 ```bash
 magnet:?xt=urn:btih:F01F44C018E4E9548F7BE60CA56CBE4CE7E08594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Real Estate Simulator ставит вас на место начинающего
 ```bash
 magnet:?xt=urn:btih:AB8ED00A3929D94CDA7710202B2DB1A9050A9F02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Reverse Collapse: Code Name Bakery - тактическая RPG, события 
 ```bash
 magnet:?xt=urn:btih:B2E7C68C1D8066F8FDBC36B65886DF52334C3A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Alpha Protocol - приключенческая экшен/РПГ с видом 
 ```bash
 magnet:?xt=urn:btih:AD9EB8F4662FA22D74DC760F945859A972C2FB7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Vampires' Melody 2 - история о двух вампирах, Рейлане
 ```bash
 magnet:?xt=urn:btih:18626E8AB5591D5C558AE0F44A9EB30F4419ED9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ WW2 Rebuilder - симулятор от первого лица, дающий о
 ```bash
 magnet:?xt=urn:btih:B024F6B18D4F2A4B25937981C8C4552B1EFC0168
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Cats Hidden in Georgia - не только поиск кошачьих друз�
 ```bash
 magnet:?xt=urn:btih:9A590550137681AA479149D8756A97E404725814
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Phantom Tides (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:35E604D5C09D7DA9D55BBABAC901534A6149CB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Tchia сама по себе воспринимается как легкая п
 ```bash
 magnet:?xt=urn:btih:DC56CA515BE5AAC4F54C92C161F88E917500BA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

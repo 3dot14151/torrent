@@ -20,8 +20,7 @@ Sid Meier's Civilization Revolution создавалась с чистого л�
 ```bash
 magnet:?xt=urn:btih:B3F308C677C13FA4C6F47D94B30C85DDBB894763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7A5D989DF00D8F4CEB1F4831F3B6866EED9366B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Garmin: City Navigator Russia NT 2016.10 HERE [Ru/En]
 ```bash
 magnet:?xt=urn:btih:08B9C971EA2C5BA4BC39E86679AD2029ACECA449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ The Evil Within – стопроцентный триллер. Неудивит�
 ```bash
 magnet:?xt=urn:btih:55D792CD6E98B53230C493962A1E157C7895227A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE6B715CAE109138C1CA61F4920833D2E5FD4A23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ Lynda.com | Основы программирования - рефакторин
 ```bash
 magnet:?xt=urn:btih:8F3F69EF0ED57945B74E40AC93A73853EE5AE7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Dyscourse - это приключенческий триллер, события
 ```bash
 magnet:?xt=urn:btih:2829E13B95950165504F8C6233E56A632B1D535A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ DG2: Defense Grid 2 — это игра в жанре tower defence и по со
 ```bash
 magnet:?xt=urn:btih:20472D31039E268A5010BB223E1BEDD3978D2358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +251,7 @@ RaidCall - бесплатная программа для голосового �
 ```bash
 magnet:?xt=urn:btih:E1DA400007488C4DFA21E7F8D34FA384EB7D7694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +276,7 @@ CFW Rebug 4.70.1 Cobra 7.10 (2015) [PS3] [EUR] 4.70 [Unofficial] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2CA2F829AB39C804FA7B19C390E5C12781723948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Tormentum - Dark Sorrow (2015) [Ru/Multi] (1.0) Unofficial FANiSO
 ```bash
 magnet:?xt=urn:btih:AAFF26DA8D3B325E7EBA94C1749C38E0797058C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +327,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0E31BC3B65B7F6D46617178B673BC7B8ABC08B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,8 +352,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC8C9D0791A140D1502BEC5DD635EE996D59ADE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,8 +377,7 @@ Cinema HD 4 Программа, которая позволит вам улуч�
 ```bash
 magnet:?xt=urn:btih:52249095FF0085422D57DCFC79A9D772AA39AD6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Microsoft Office 16 Technical Preview 16.0.3823.1010 [Multi/Ru] (онлайн-у
 ```bash
 magnet:?xt=urn:btih:48C2274C7C1AA3A9B18C9348E4B3A3692803B556
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96CF8F4C29286D5F3C2A192A91303281C905581A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +452,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2FBDEA8C689FEE11711C322FB7C41730F97F6CDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +477,7 @@ RMS Удаленный доступ — это продукт для управ�
 ```bash
 magnet:?xt=urn:btih:5F9828669FB4BFA70EAD5852D2EC4B942C2C6157
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +502,7 @@ Wanted: Weapons of Fate / Особо опасен: Орудие судьбы (20
 ```bash
 magnet:?xt=urn:btih:7F3A83A815EC4B630E74480DAA9785DA252466BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7ACC230A964636062CB56300E816C04CCE8639E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +552,7 @@ Joe’s Diner (2015) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:3332E8A77EA1E3D2FCC2D41A9C5C704A98A1714B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +577,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6B87A9C79DBECCA36AC606EBA08DE426049560CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0CAE11F76D2EB926B85EA8C238DA66B3E8256FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,8 +629,7 @@ Advent Rising предлагает вам насладиться идеальн�
 ```bash
 magnet:?xt=urn:btih:C020E0BB37701BAAB5CB215270FFC32DD5A2FA0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +657,7 @@ BattleLore: Command - это фэнтезийная стратегия, осно
 ```bash
 magnet:?xt=urn:btih:3D24C18F88434C8815275B52F1867B2351C8A358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

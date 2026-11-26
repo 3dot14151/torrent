@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:F0D03701692EAC299787911C55C5DDBD08996354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0A8965F72E68A91351C8A952F7D8F760E30F7B3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ CD2: (Gola)(   Читать дальше...   )2011Жанр: Viking Metal / Blac
 ```bash
 magnet:?xt=urn:btih:C792374749375E9DFDBE5E205605F7DEDC738EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ Royal Hunt - Show Me How to Live (2011) [FLAC|Lossless]<Progressive Neoclassical
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Agnes Obel - Philharmonics (2010) [FLAC|Lossless]<Piano, Woman Vocal, Indie Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ VA - HIM. Сайд проекты, трибьюты, каверы (1997 - 2011) 
 ```bash
 magnet:?xt=urn:btih:E1B4F2652881319C5EF1B6E85006DC57BD9A1F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

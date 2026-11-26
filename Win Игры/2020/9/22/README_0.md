@@ -19,8 +19,7 @@ Mystery Trackers 18: Fatal Lesson / Охотники за тайнами 18: Р�
 ```bash
 magnet:?xt=urn:btih:E82BF8A2BBECA3EAE88605878E62EAAD4AA1352D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alan Wake's American Nightmare (2012) [Ru] (1.0.3.17.1781) Repack Other s
 ```bash
 magnet:?xt=urn:btih:32747F031A27A951FF298E3CC6CFB9FA0B86913F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.23850) Repack xatab [Remastered Co
 ```bash
 magnet:?xt=urn:btih:86C4E19E3FECEAF2A2CAD968FA2FF230DEE0924D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

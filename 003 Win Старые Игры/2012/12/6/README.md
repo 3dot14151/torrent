@@ -20,8 +20,7 @@ The Moment Of Silence / Момент истины [En] (L) 2005
 ```bash
 magnet:?xt=urn:btih:00BCFC0C7FA53EA0F3CC5CD5011A599149D52A8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

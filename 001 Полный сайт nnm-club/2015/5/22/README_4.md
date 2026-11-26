@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:6318403BA6E47F7355C3A8CC6E8FF291831A4B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Keny Arkana - Discography (2005 - 2012) [MP3|320 кб/с]<French Rap>
 ```bash
 magnet:?xt=urn:btih:CB982F6FCF04585C9CE0ECA3B1D8F498651A272A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ K. Matsuda, R. Lea / К. Матсуда, Р. Леа | Руководство п�
 ```bash
 magnet:?xt=urn:btih:D370CDD1605D06009E940E4345CC2BD9F29D6838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ M. Knutson / М. Кнутсон | Книга рецептов Java EE 6 для �
 ```bash
 magnet:?xt=urn:btih:4F6F63806C2D7B7B3343E6FF7CB42A26ED867DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Paul Butcher / Пауль Бутчер | Семь моделей паралле�
 ```bash
 magnet:?xt=urn:btih:34F82A3F4C85E78EFF3DC4E54E92E4E5E3FF6161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2EF967DB7501E5DD4CE8BC722C5BD9FE94C512F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ Paulo Ragonha / Пауло Рагонна | Jasmine JavaScript тестиров�
 ```bash
 magnet:?xt=urn:btih:23573F1BDE9F209AFBB4BB8D5F07F21288E7C87D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -217,8 +210,7 @@ Serge Gabet / Серж Габет | Google Apps Script для новичков (
 ```bash
 magnet:?xt=urn:btih:68D5056E397C3F3806F25F837D27DA60196E109B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ P.R. Nicolas / П.Р. Николас | Scala для машинного обуч�
 ```bash
 magnet:?xt=urn:btih:7331E30E0D7134E513DECB4CB7F6767E621C598E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +262,7 @@ Microsoft Visual Basic (VB) является наиболее популярны
 ```bash
 magnet:?xt=urn:btih:C6B5E546C3AC25BA29790B1C504F0436997FA06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Tomas Varaneckas / Томас Варанецкас | Автоматизация 
 ```bash
 magnet:?xt=urn:btih:D72B9652453F51FC650C7BC7CB18B0DC9E24183A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,8 +312,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E9C7CE830AE884AE11DECFC8A395BC598420DE4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0D6438DD9DD41201B684B981D56EB9069ACE0AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ Dia no Ace / Ace of the Diamond / Путь Аса [2013, TV, 75 из 75] HDTV 72
 ```bash
 magnet:?xt=urn:btih:A373BBD4B7559BC9514EB5D503F83C25354ECFAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:74A918415F7B903C8C6749EEBFEACE9D17F59524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +413,7 @@ B. Sheldon / В. Шелдон и др. | Профессиональное про
 ```bash
 magnet:?xt=urn:btih:5FE5F21B1F1A7FCD5861F25E1689ED70D87F999E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37795BF68CC03A51D18629CAE727C674C4A204EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6021DD09A96B0DA8BE34EEE6A23FE7FFB8991258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D096484897E87479C118BCAC80C0117C1AEF2E2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:36435ED532FC8AA0C4654190032A7FCDB887D948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ T. Gaddis / Т. Гаддис и др.| Начинаем действовать �
 ```bash
 magnet:?xt=urn:btih:5D84AA3A057FC283A15EF4050F98CA5DBD81E1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ Acme CAD Converter — новая версия популярной и дост�
 ```bash
 magnet:?xt=urn:btih:E060CE0A539816B22CBC3E5CF20E17EA17D07B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +593,7 @@ Sanjay Madhav / Санджай Мадхав | Алгоритмы програм�
 ```bash
 magnet:?xt=urn:btih:082FA6BE188B074AADFA0D9645C6EAEC3036F45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +618,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED80A1B3A248E0BF3EE9F987EACA1F4AA22653E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +646,7 @@ Kyle D'Aoust / Колье Дуст | Скриптовая разработка �
 ```bash
 magnet:?xt=urn:btih:90993478BA03663476221E040685EFCB23FE7D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ Serge Lidin / Серж Лидин | .Net IL Assembler (2014) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:EFC2DDCF634F880F4CEACECB8671A9F69A4A0B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D7EFB4820AD1672ECAF696249457E764DA2F45DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sona - Lymphatic Abyss (2015) EP [MP3|320 кб/с]<Atmospheric Post Black Metal,
 ```bash
 magnet:?xt=urn:btih:BE83AF571A4A59C4F30E9A283C69079C68AFB57F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ The Sonics - This Is the Sonics (2015) [MP3|320 кб/с]<Classic Rock, Garage Ro
 ```bash
 magnet:?xt=urn:btih:3D8646B3EEA1A61C029D1C5FD9C26CCFC531629D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ The Zombies - Breathe Out, Breathe In (2011) [MP3|320 кб/с]<Classic Rock, Pop
 ```bash
 magnet:?xt=urn:btih:1B9321196714466165BA31B47A13717B0453B350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Apocalyptica - Shadowmaker (2015) EP [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:9EED5513DFACA0EA3619623539FA8C60C906E8F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Animal ДжаZ - Хранитель весны (2015) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:6B88844A539AA2A72E1A2EED3888C02BF656D065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

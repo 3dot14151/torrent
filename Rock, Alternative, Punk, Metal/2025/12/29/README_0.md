@@ -22,8 +22,7 @@ Linkin Park - Reanimation (2002) U.S., 9 48326-2, 2011+ [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:0BB51174410C1016C9D7FD389CC677A11F1206CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

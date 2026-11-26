@@ -22,8 +22,7 @@ VA - Асса (1996) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
 ```bash
 magnet:?xt=urn:btih:84114092D7C1A1ACE5229B77E1A14DBEAB858E4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

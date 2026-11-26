@@ -19,8 +19,7 @@ Air Xonix 3D / Воздушный ксоникс (L) [Ru] 2005
 ```bash
 magnet:?xt=urn:btih:B6584072D817BC7431FD15C897E6C5078C78685E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Arms Trade Tycoon: Tanks – это полноценная симуляция ж
 ```bash
 magnet:?xt=urn:btih:54A30027C0C057A2B10643DE2A70FE4F1B70B600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 17120566) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B28C27B11AA04E35AB3F400C7F73700873045073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) License GOG [Soundtrack Bundl
 ```bash
 magnet:?xt=urn:btih:B3F98798C17C6C32704E5A22CB7FE29843C86471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Haydee III (3) (2025) [Ru/Multi] (1.0.21.1529/dlc) Repack Other s [18+]
 ```bash
 magnet:?xt=urn:btih:4E2F81C877B9A9C4EBE6DB13EC7029C68893C125
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Artisan TD бросает вас на ринг стратегий, но с из�
 ```bash
 magnet:?xt=urn:btih:AB0CB889D79F47D5B558AB2B7A0C3A4158AFC75D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145-gentle-wolf/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:05619C12BAED0C39022A8357FE2EA24E4DA4E45B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.6) License GOG
 ```bash
 magnet:?xt=urn:btih:128E4BBD48D96DBF00D05FFFBE49018A275681AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Echoes of Yi : Samsara - это мрачная игра в жанре боевы
 ```bash
 magnet:?xt=urn:btih:0A010C7432D30D1C2A9439B9629DE925E3E46072
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3BB5B266FAFA24EE8EFD1362CA5EC838F3C33FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.11025947/dlc) Repack Wanterlude [Deluxe E
 ```bash
 magnet:?xt=urn:btih:75977D75F6A4D36AB6DC8951CF5D74BAB0441F55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:9B38AFAA9D35BB7823B8A7256979116307A21EA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 ```bash
 magnet:?xt=urn:btih:864E0E39FE2C34EA4DB61ED250CEEE7B7D74BA4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:ED394577781F225BEAD14E28F75257C71F1B14C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Synergy – это градостроительный симулятор в су
 ```bash
 magnet:?xt=urn:btih:815FE0D992BAD3FF5B44507061B19D8FD7C7CF7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B00AA6A181676CC2403D037F45622CAA8309A843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

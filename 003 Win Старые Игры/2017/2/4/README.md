@@ -19,8 +19,7 @@ Freddy Pharkas: Frontier Pharmacist (1993) [En] (1.000) License GOG
 ```bash
 magnet:?xt=urn:btih:5258B91E582EAF47EAA47DBB2866C305D296BC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

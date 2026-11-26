@@ -19,8 +19,7 @@ Christmas Stories 10: Yulemen / Рождественские истории 10: 
 ```bash
 magnet:?xt=urn:btih:7BD03BCB3676BE617E8597077E76AB13AAC8705D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ World's End Club (2021) [Ru/Multi] (0.0.0+hotfix) License CODEX
 ```bash
 magnet:?xt=urn:btih:B9058ED09292240E82FB1A453AAAF4E27F09C38A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Highrise Mogul - игра про магнатов о строительстве 
 ```bash
 magnet:?xt=urn:btih:9F3126D92E02AD4244305C68A8EF5620D0963AFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Solar Ash (2021) [Ru/Multi] (1.03.44179) License CODEX
 ```bash
 magnet:?xt=urn:btih:2550935EF11CAAC1B8ACC8F20D97FE7F75147AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Nickelodeon All-Star Brawl (2021) [Multi] (1.0.5) License CODEX
 ```bash
 magnet:?xt=urn:btih:06E30A3C736A2E32B8100815481B3024558932CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ MXGP 2021 - The Official Motocross Videogame (2021) [Multi] (1.0b7737829) Licens
 ```bash
 magnet:?xt=urn:btih:0932C57F653BFA8367A0911A640FCB55DF5E2A86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Ship Graveyard Simulator (2021) [Ru/Multi] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CE990B6402019DEB867DEBDB3E0FFFE187134079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.8.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:D8DFB2310A08D552C81C3C459645407E1FDAF31E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Shelter Manager (2021) [Ru/Multi] (0.5.5_prod2) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:10CD3F0DC1443C9A18E390494B4232DF14F83E9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ The Dark Pictures Anthology — это серия напряжённых кин�
 ```bash
 magnet:?xt=urn:btih:6FABB5FBF8DE73573E793E4B3C69177628532E10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Mystical Riddles: Snowy Peak Hotel (2021) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:07805F3C798DC4B95A6C25AE013F3D4A75CA333E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Lightbringer - это причудливый 3D-платформер с эп
 ```bash
 magnet:?xt=urn:btih:584FF50D103399CD7DED5C91240A51C9F5CECDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Greed 2: Forbidden Experiments / Жадность 2: Запрещённые эк
 ```bash
 magnet:?xt=urn:btih:FE85F296D9EDC643E62ADDA6881A2CDF9D468960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ My Singing Monsters Playground (2021) [Ru/Multi] (2020.3.20.4310246) License TiN
 ```bash
 magnet:?xt=urn:btih:A6EECBB28085C86658F390D93AAACB1B7566C04C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Blightbound (2021) [Ru/Multi] (1.1-128893/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:130CDD7EB9EE2B5EB7B1D813F06F6FB676751B6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Orcs Must Die! 3 (2021) [Ru/Multi] (1.1.0.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:602CCAF7C59BB8B89F009D05C567094D4610BEB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 ```bash
 magnet:?xt=urn:btih:3C964855215711A010D98625B6A46FFCA9360F58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Motherland (2021) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3038119162742E9B5DC1CC37A758655FF9F9910F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Tiny Tina's Assault on Dragon Keep: A Wonderlands One-shot Adventure (2021) [Mul
 ```bash
 magnet:?xt=urn:btih:52C049DAB01CF79B96A1582A82BD7D96099EBE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

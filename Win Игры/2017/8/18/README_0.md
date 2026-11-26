@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:0AB13446251E9412DF76C62097552827AB7737C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Champions of Anteria – тактическая стратегия, расска
 ```bash
 magnet:?xt=urn:btih:C7DAF8E7DCF487426EBB79709C15D1B56E697620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sword Coast Legends (2015) [Ru/En] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3B35070295F24B574B41F4430F2EEBC313930CCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Deadpool / Дэдпул (2013) [Ru] (1.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:ACC3C0A47344A67192AE569AA3B158FBA16E2ADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Starpoint Gemini 2 увлечет игроков в захватывающее �
 ```bash
 magnet:?xt=urn:btih:72307D1A00482EBC681497208C71E6C75025FC28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

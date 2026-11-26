@@ -22,8 +22,7 @@ VA - XX. Трибьют группе Артерия (2024) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:27070749C8D02F7D3FD320E7454A0F92D6495D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sorrow - Death Of Sorrow (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:35DB1801148A96311B9BA825429B537135531D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

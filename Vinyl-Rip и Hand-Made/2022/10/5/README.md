@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:6BFA8DADB63DACB79693DF52E62629A3E4E7F62F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Over And Over • Отново И Отново • И Снова, И Снов
 ```bash
 magnet:?xt=urn:btih:01A8DF1CAAECB5E3B0C1FD216FC1FB6ED46AE3A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

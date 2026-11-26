@@ -19,8 +19,7 @@ The Christmas Spirit 5: Golden Ticket / Дух Рождества 5: Золот�
 ```bash
 magnet:?xt=urn:btih:54BA42021A2F9B84C3E5817EACA42C9D87BD1D09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grim Tales 21: Echo of the Past / Страшные сказки 21: Эхо пр�
 ```bash
 magnet:?xt=urn:btih:82C31E4F1B1EE3753BA7A6B450E5AE6D47988655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

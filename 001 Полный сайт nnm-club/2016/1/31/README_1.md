@@ -20,8 +20,7 @@ Papers — персональный каталогизатор научных с
 ```bash
 magnet:?xt=urn:btih:AF48A5BB4CC4C2CB9DEBD61ACDB62C5B1CFB2EE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ VA - Rhythm of Life (1991) [FLAC|Lossless|tracks + .cue] <Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:01F3274055EE478AEE6AD1D0F9A0CC16286C545F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2C92A6F6741238E31F1C2B9127067828A4461A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Northern Lite - Mixed Forest (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Roc
 ```bash
 magnet:?xt=urn:btih:0BEAF5AB23A015D37362FA122183FB8B7655267A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Northern Lite - Letters & Signs (Part Two) (2010) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:37C58A1804E760CC2094E7B69CC824594F5A2542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ VA - Happy Valentines 20 Unforgettable Love Songs (2016) [MP3|320 кб/с] <Nu J
 ```bash
 magnet:?xt=urn:btih:68CA0FD3D4585AB423A865DB620724E093537393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Northern Lite - Unisex (2006) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Elec
 ```bash
 magnet:?xt=urn:btih:F71A7599AB29876782E9BCFF7AE464DA860FCD88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E17629660B039D845EC85E9EEC200A735965E000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ Tenishia - Frozen Roads Vol. 3 (Deluxe Edition) (2015) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:66511866FE29909B90E7969D9FF30207CC7ED91B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7B56EC6BEAD10A2F903B6F262F3DD31E5F2CDAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:62070434D8B92DA863EDF78FA09FE0DA56CB9D85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16668F1E827F24094739ADB8AA4B44B10AB3EBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AA751AFC4288D3DFA8E9E3956A3E3EE6806F086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ VA - In Trance We Trust Trance Classics (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:8F0DA7B5C1692594FE883D31656020B7D5AFB515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +395,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1104E52AC38DB86822DBE4490128A5D8D9316E6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Eleanor Friedberger - New View (2016) [FLAC|Lossless|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:898587C55CA8B62433CCC3416703EA0B1CEBC9B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F68C1BA07C1BD93F6FEA1C5F341F68FC12FB6FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Mystic Braves - Days of Yesteryear (2015) [FLAC|Lossless|WEB-DL|tracks] <60's Ps
 ```bash
 magnet:?xt=urn:btih:F3BDDC18CFF0142553A36EDF7CF50D408FCE4C33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4CC2AB7D249BEE21B126BB1F41E29F98D0C628D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ VA - Trance Traveling 73 (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:D48913438916C4B51CB385C368C7E8E1A440B012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +554,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:637802580FAEA347E5D9E4C0DBE145D73B27263F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:48321F22999B3CC6357DE1559F4791EE69A154F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25826609B7EE97FD80262B19F0B2E74320027CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:29EF12ECFDD3A6F17328BDFC68EAC8BDAEC4A5E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +654,7 @@ PhotoVault 5.2.9 [Ru] - Спрячь картинки под пароль
 ```bash
 magnet:?xt=urn:btih:2D08F80D0CBD49DDB3F4D1FBF5D886C74082FB71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -707,8 +682,7 @@ Gestimer красивое приложение для вашего (   Чита
 ```bash
 magnet:?xt=urn:btih:BAE02BB50499DE0014C27A75431FC6FA88A1A8E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

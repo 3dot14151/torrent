@@ -22,8 +22,7 @@ Ska-P - Live In Woodstock Festival (2016) [FLAC|Lossless|tracks + .cue] <Ska, Sk
 ```bash
 magnet:?xt=urn:btih:7820DCA04EF34C6E70434360E902E7F1AEA7F47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Mors Principium Est - Liberate The Unborn Inhumanity (2022) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:448D1390E7EC43C799D92F42693A5E40B7EDC85D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ First Signal - Closer To The Edge (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 ```bash
 magnet:?xt=urn:btih:43BF42EA29B7D810538A3750D1546325CB22E6C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Black Swan - Generation Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7CDDF94128C69B8B88CA04C743A7502C48DAB882
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Flower Kings - By Royal Decree (2022) 2xCD [FLAC|Lossless|image + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:29AB9D19C825900B6999ADE3AD877AA97D0F059B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Joe Satriani - Surfing with the Alien (1987) Deluxe Edition, 2020, Epic - Legacy
 ```bash
 magnet:?xt=urn:btih:D305E1D91FCE0BF3BDC66872360C295B402E320F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Papa Roach - Ego Trip (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Me
 ```bash
 magnet:?xt=urn:btih:81912E215FEF7575A9DA3A216C96800294DEE562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Joe Satriani - The Elephants of Mars (2022) [FLAC|Lossless|WEB-DL|tracks] <Instr
 ```bash
 magnet:?xt=urn:btih:0A606E1649A86D752A70216DF4E1B029DD239C84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Red Hot Chili Peppers - Unlimited Love (2022) Japanese Edition [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:DCB7D03A62216211712E60DF779DE90BCF2C5AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CD5B3A47417680513DE476ED7444B66C362408A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

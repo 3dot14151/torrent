@@ -19,8 +19,7 @@ This Mortal Coil - It'll End In Tears (1984) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]
 ```bash
 magnet:?xt=urn:btih:F6AA6D921F9BA64051DF912A12BAD6695F30985B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ A4. Twentieth Century Fox (2:32)(   Читать дальше...   )Произв
 ```bash
 magnet:?xt=urn:btih:4EE4C3463260518783618A23B2960ECA6298FDE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

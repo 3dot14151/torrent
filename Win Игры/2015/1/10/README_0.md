@@ -19,8 +19,7 @@ Phantasmat 3: The Endless Night (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:5F1B230FDEB95B1A56CBFE2480C266CF293DBBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Shopkeeper – интерактивная point-and-click адвенчура
 ```bash
 magnet:?xt=urn:btih:F37FDD328BDD84EA80A1CAA56486AD064C9588B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Puddle (2012) [Ru/Multi] (0.2.1.47) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:65557E122945791B7E400E5BBDB8461A1F0492CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ The Bridge - это двухмерная логическая игра, в хо�
 ```bash
 magnet:?xt=urn:btih:671D923695F757355F0DC1F06A75BD210416F6EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Skilltree Saga – казуальная инди-РПГ с элементами 
 ```bash
 magnet:?xt=urn:btih:8FC58DE76C07565E546C93C3C0020A051A62CDC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ Mechs & Mercs: Black Talons (2015) [Ru] (1.0.11.24) Repack xGhost
 ```bash
 magnet:?xt=urn:btih:5E0FC58D6939FB8F2AB7BF190D6FA3EC92209D89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ Mechs & Mercs: Black Talons (2015) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:F61B89CD8D06B5B4094791A5C5E2FD49167CD6C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

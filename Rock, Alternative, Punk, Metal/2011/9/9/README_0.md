@@ -24,8 +24,7 @@ Empire - 3 Albums (1973-1979) [MP3|320 kbps]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Thrice Mice - Thrice Mice (1970) [MP3|256 kbps]<Kraut-Prog/Kraut Rock>
 ```bash
 magnet:?xt=urn:btih:9DC0C3825EC001993FBA6EF3587BC2E3E2B74C00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Chromium - Chromium (2011) [FLAC|Lossless]<Melodic Metalcore/Nu Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Orpheus - Bleed The Way (2011) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Baron - Love Valley (2002) [MP3|192 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1FB36EAF384BE0B9B906B71B11A0E559B977CE0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ Empire - 4 Albums (2001-2007) [MP3|320 kbps]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +228,7 @@ Living Loud - Living Loud (2004) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:68F294AF336E9DEDBE521DE640BC6CCC875F3D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +260,7 @@ Colosseum II - 3 Albums (1976-1977) [MP3|320 kbps]<Jazz-Rock/Progressive Rock/Fu
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ Jane Bogaert - 5th Dimension (2010) [MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:06C0149A02A9BE53AD48E5ADBA441F5031F23CBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +328,7 @@ One Morning Left - The Bree-Teenz (2011) [MP3|320 kbps]<Post-Hardcore>
 ```bash
 magnet:?xt=urn:btih:AB9F2085C40715460439D4CA7DF5D29FAE6555D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +361,7 @@ ACT III
 ```bash
 magnet:?xt=urn:btih:166968E6486B4525C4E70CABB7FBFB7C19AF6D46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +395,7 @@ David Coverdale - The Early Years: Whitesnake & Northwinds (2CD) (1976-77, Reiss
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,8 +429,7 @@ The Offspring - Тне Best Of (1999) [MP3|320 kbps]<Punk-rock>
 ```bash
 magnet:?xt=urn:btih:C56D2671E1539C8C4F98D6829CE674A420239C94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

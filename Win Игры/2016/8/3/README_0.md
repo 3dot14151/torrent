@@ -19,8 +19,7 @@ Oddworld: Munch's Oddysee - это третья игра серии, дейст�
 ```bash
 magnet:?xt=urn:btih:3BCB1DE1DFE46E4A8A0165BC255E326CB78E486A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Layers of Fear: Inheritance (2016) [Ru/Multi] (1.1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:3647B774FD743B5026E8ACF3C8CA5BA2E48A8B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battlevoid: Harbinger, суровый гибрид стратегии и rogueli
 ```bash
 magnet:?xt=urn:btih:68265256981A526AE3B2911CD2642F4467E37F53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

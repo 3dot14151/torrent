@@ -19,8 +19,7 @@ Funtasia погружает игрока в автомобильные поез�
 ```bash
 magnet:?xt=urn:btih:D9E1E5D7FB2099C9312C3EF91D57AC4295D8C8D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.1.5.208/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:9651C20461CBF12453CFEB975702C25DC65A5E82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ B1. Numb(   Читать дальше...   )Жанр: Progressive Power MetalП�
 ```bash
 magnet:?xt=urn:btih:27BE03017CA1294C04BF4CA13EA7798BADCDA914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ David Coverdale - Snakebite (1978) [WavPack|24/192|image + .cue|Vinyl-Rip] <Blue
 ```bash
 magnet:?xt=urn:btih:94A0E81DF4E721EBDA49C8CD14E39E2B1CAB9954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ David Coverdale - Whitesnake (1977) Japan Edition [FLAC|24/192|image + .cue|Viny
 ```bash
 magnet:?xt=urn:btih:ED0DB99FE15017F7B8CD88B777045DA6B307DFBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ ABBA - Voyage (2021) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, Euro
 ```bash
 magnet:?xt=urn:btih:9ADC408404D6B33744A367B7CA34F4C56E9C1BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ ABBA - Gold (Greatest Hits) 40th Anniversary Edition [3 CD] (1992/2014) hand mad
 ```bash
 magnet:?xt=urn:btih:35A540D5D0BA4B8AAEBEA5521BAF83520A045F99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

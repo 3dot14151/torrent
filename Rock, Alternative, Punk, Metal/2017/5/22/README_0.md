@@ -22,8 +22,7 @@ HeadCat - Walk The Walk... Talk The Talk (2011) [MP3|320 Kbps] <Rock & Roll, Roc
 ```bash
 magnet:?xt=urn:btih:A833CBA99B348A5212FCB1D895BEAEDD819FF3FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kobra And The Lotus - Prevail I (2017) Japan [FLAC|Lossless|image + .cue] <Heavy
 ```bash
 magnet:?xt=urn:btih:3BF0F3A474DDEAF41CB691623E5E01975BA129B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Papa Roach - Crooked Teeth (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:A4DB2BB41FA6EB3A2E5A944A371851E794F3EF1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Scorpions - GOLD-The Ultimate Collection (1996) [FLAC|Lossless|image + .cue] <Ro
 ```bash
 magnet:?xt=urn:btih:D5F4F64F55043EEFDA94F31C8695FB37B8777DEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

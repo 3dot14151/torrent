@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:C83997713BD2B79D80A331ED922744CF2B1F1B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Joshua Picolet | Hash Crack Password Cracking Manual v3 - Russian (2023) [PDF]
 ```bash
 magnet:?xt=urn:btih:EA7548F29CD56B5FD41FB2F7F29F5B8B16AF688D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:487944D1950EFCF098CC11530B29F5A07A6E274D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

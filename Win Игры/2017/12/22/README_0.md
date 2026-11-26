@@ -19,8 +19,7 @@ Hand of Fate 2 — это «ползание по подземельям» в с
 ```bash
 magnet:?xt=urn:btih:B0E01B25B01596043E8FA1C93013C3278B9A3101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

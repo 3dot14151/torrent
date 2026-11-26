@@ -19,8 +19,7 @@ Lumii - Фоторедактор, Фильтры v1.621.148 Mod by maxi123444 [R
 ```bash
 magnet:?xt=urn:btih:1BBAE8619C4582C1A49BFE4781FC3829E45C5A71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LightX - это мобильный редактор фото, в котором 
 ```bash
 magnet:?xt=urn:btih:49F924F93A8E451B32B8E246E608E2496F11E262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ToonMe v0.6.106 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F72F2B701E96CD0CC9519268954836116394BDAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Strava: бег, велоезда, хайкинг v345.7 Mod by ReVanced Team [Ru
 ```bash
 magnet:?xt=urn:btih:19B8878B596234C610C32119350921AC13CCC06D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:9AB6EC6AEE00BC2D2D8B238560566383D085952C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.5 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3D11AAA2036FE2CC70C5D51884CAB3266EC6600E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

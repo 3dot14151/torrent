@@ -19,8 +19,7 @@ Thea 2: The Shattering – продолжение истории из перво
 ```bash
 magnet:?xt=urn:btih:77208DCDC6F8676590FFE6FF0B2D7A47676FF67E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Greedventory - это захватывающий ролевой экшен, ко
 ```bash
 magnet:?xt=urn:btih:DE59D914C648457A989E1BEA3F71C73CB98D1E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ La Mar - La Mar (2012) [MP3|320 кб/с]<Progressive Post-Rock>
 ```bash
 magnet:?xt=urn:btih:5371DA8F98AACF2557FE7F275A4F15E5981335D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:634ECEE461B7B05AD29FD1D6202AF2475BB8D485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Grave Digger - Home At Last (EP) (2012) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4205B801EEFE2F36CA6A0AC7D14384C251FD1966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Hartmann - Balance (2012) [FLAC|Lossless]<Hard Rock, Melodic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ The Beatles - Tomorrow Never Knows (2012) (Compilation)[MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:A7450AE5413C8FDC53921BF3A45FDDABED8A1844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ You Must Murder - 2 альбома (2009-2011) [MP3|192-320 кб/с]<Hardcore/Be
 ```bash
 magnet:?xt=urn:btih:DBB95C348F6DF0850094DF4DF3F25B9B8AB0596C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

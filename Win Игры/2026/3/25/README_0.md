@@ -19,8 +19,7 @@ Across the Obelisk - это кооперативный рогалик с кар�
 ```bash
 magnet:?xt=urn:btih:4960C1F6FCD09CB7DF1AF14C478C8BDC8B3469C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Solasta: Crown of the Magister (2020) [Ru/Multi] (1.5.97/dlc) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:93DCDEA7709AE4B4D34D954C99688BA7672672B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ENDLESS™ Legend 2 – это фэнтезийная стратегия, где
 ```bash
 magnet:?xt=urn:btih:940D7C4BECE09204166E8B4D214C5947E87940ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

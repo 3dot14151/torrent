@@ -22,8 +22,7 @@ Arcane Grail - Arya Marga (Ninefold Path to the Innocence) (2009) [FLAC|image+cu
 ```bash
 magnet:?xt=urn:btih:564705FE98B83A77987F1B3965E39F01E7B5948F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

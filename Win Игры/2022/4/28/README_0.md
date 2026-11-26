@@ -19,8 +19,7 @@ The Serpent Rogue — это приключенческий экшен, в ко�
 ```bash
 magnet:?xt=urn:btih:684860C6ADFC3036837623AF7E448436BE8DD50E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

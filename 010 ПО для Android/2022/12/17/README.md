@@ -19,8 +19,7 @@ Picsart Photo & Video Editor v21.3.2 Mod by CXVUSER [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1631E6E38327B75A369684BCDCED65C5754650AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

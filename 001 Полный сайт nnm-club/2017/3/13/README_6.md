@@ -18,8 +18,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:5FD4685EA4A25957B576079297A1B447C66746CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1C39A1C16800FDDB586277DFABD44BBA3EFC5C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4CA38C3F9F66438295D759CAA1626857DB706849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ VA - ZYX Italo Disco New Generation. Vol. 1-10 (2012-2017) [MP3|320 Kbps]<Italo-
 ```bash
 magnet:?xt=urn:btih:5D31E5CEED7CE3C55AF3A0E84C81F164D5019DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Real Estate Magazine / Broadcast ID - новый шаблон для рекла�
 ```bash
 magnet:?xt=urn:btih:AC1927CD2A44A96F94BBC58C451ECC008A9021D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6361E08D624CE386B1E3AEB4BF92E608AA3F5098
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Lamer boot V4 MINI-Сборка на основе Win8PE_x86x64(EFI)_compact(201
 ```bash
 magnet:?xt=urn:btih:CA0C40388F93122FCFA81E4BA4DA22871AEA2530
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Save Our Souls - Episode 1 (2017) [En] (1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:C76721B160A7FFE6E461EBB43B06BF76AE88DB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ KMSAuto Lite - KMS-активатор для операционных систе
 ```bash
 magnet:?xt=urn:btih:851B0402A9838AF3721C58E308DD3D8A4A6F56B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Kaneda - Eternal Spirit 001-... / Eternal Light 001-050 / Promo & Guest Mixes (2
 ```bash
 magnet:?xt=urn:btih:7058801E99293A633E1C443AC9B3C2B2BF1E07D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:97B75429D74FAB13EB1832EA0BE1B8566693A33F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +304,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B20BD9D0DAE54E52BFCF6E4AFFB6C2CB906A318C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +329,7 @@ NG: Хранители сокровищ Египта / Egypt's Treasure Guardian
 ```bash
 magnet:?xt=urn:btih:DA4EEB783D9A068F3AA50AF28EB2CF117B88676E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +354,7 @@ Mortal Kombat XL – файтинг нового поколения и след�
 ```bash
 magnet:?xt=urn:btih:C6B6DBD966BE08B4A9E7A12B60ADD77D5557C761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +379,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:35BB774BFC04E94DFFAC1867C6869EA37AD63343
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +404,7 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:F9A751B2651544BC06EF610FF9BEF0C9B19976B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

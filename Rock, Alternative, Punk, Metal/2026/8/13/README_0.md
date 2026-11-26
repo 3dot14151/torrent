@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:8855AFB85A961C4180EA79F27704DC14CF61C0D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Marilyn Manson - One Assassination Under God - Chapter 2 (2026) [FLAC 24/96|Loss
 ```bash
 magnet:?xt=urn:btih:DE61ABE54C8E6829EF6AD32D2653CCF59739D723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Serpientes de Asfalto - II (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E52711DA89DDA6F839B2EE3A4C427D59C2485D8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Malvada - Malvada (Deluxe Edition) (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:C7ABE2562AB00FA700E572BEFEE27AC119C632B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Bad Beats - Shiver and Shake (14 Canadian Cold Cuts) (2026) [FLAC 24/48|Loss
 ```bash
 magnet:?xt=urn:btih:AAE3A2772A7435DD7D044C2EE88A594EEBB6A46C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Sensational Country Blues Wonders! - Music Sounds Better When You're Stoned 
 ```bash
 magnet:?xt=urn:btih:B5DE22D62174B35258AE0F5C40FD67186C1F5853
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ House Of Lords - Big Money (2011) [FLAC|Lossless|tracks + .cue] <AOR, Melodic Ha
 ```bash
 magnet:?xt=urn:btih:D49068B052EE0F737F3F0D960E4DBAB9DC69C7D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ The Vampire Lestat - The Failures (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 ```bash
 magnet:?xt=urn:btih:5A6CA3EBD66A0B2077480B4EFF59839240FE7DEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

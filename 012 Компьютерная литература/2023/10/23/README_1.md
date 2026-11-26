@@ -19,8 +19,7 @@ Chi Wang, Donald Szeto | Designing Deep Learning Systems (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:550C313147A54305819B3A3FAA8309CC5A023F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ b]Формат:Перевод: В.С. ЯценковИздательство: �
 ```bash
 magnet:?xt=urn:btih:1CBE791DBC252318287A90F5EBD61DC337FDC6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

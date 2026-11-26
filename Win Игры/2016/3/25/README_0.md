@@ -19,8 +19,7 @@ Alternativa / Альтернатива: Нечего терять (2011) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:1C00609196C5BC6950F41F0828D2B647882CDB00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forestry 2017 - The Simulation (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:09731B2A78AEF110196E8797C0C741C2013EED88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

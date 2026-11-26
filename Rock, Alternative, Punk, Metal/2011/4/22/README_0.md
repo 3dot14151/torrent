@@ -25,8 +25,7 @@
 ```bash
 magnet:?xt=urn:btih:9B1579AB69B2B0CEB7563B2C2A195909EB16A038
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Duff McKagan's Loaded - The Taking (2011) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Linkin Park - Live In East Troy, USA (Bootleg) (2008) [MP3|320 kbps]<Alternative
 ```bash
 magnet:?xt=urn:btih:95F987CDC9F22EB0B0CC53ACF7BB2E795180D8D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Between The Buried And Me - Дискография (2002 - 2011) [MP3|320 kbps]<
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

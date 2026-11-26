@@ -22,8 +22,7 @@ Joe Satriani - Дискография (26 releases) (1984 - 2022) hand made [res
 ```bash
 magnet:?xt=urn:btih:9398D67AC129A855AA4B648B1BA340AF247D609B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Deadly Rooms of Death: Journey to Rooted Hold / DRoD: Лабиринты Сме�
 ```bash
 magnet:?xt=urn:btih:6ACF33AA277A5FCD4CC7C6DCC8388C2E19FBCBC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Kings Girls - 2 альбома (2013-2014) [MP3|~245 кб/с]<Screamo, Emoviolen
 ```bash
 magnet:?xt=urn:btih:D37D45B1025EF0143E7FFB0092B1E425E49CDE3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Substax - God, Love & The Amen (2014) [MP3|320 кб/с]<Drum'n'Bass, Liquid>
 ```bash
 magnet:?xt=urn:btih:F241BE124E8A3424A67E3DA422475EDE98F9E3CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Labisch - Passion (2014) [MP3|320 кб/с]<Midtempo>
 ```bash
 magnet:?xt=urn:btih:1B0C48A48E513307D9004C6CCD0A62C3E0892535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ VA - Ignite Digital Plasma Search (2014) [MP3|320 кб/с]<Trance, Progressive T
 ```bash
 magnet:?xt=urn:btih:8CF85D595E4E92687C996176CAE491845B603FFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -146,8 +142,7 @@ Darkness By Oath - Seeds Of Desolation (2014) [MP3|320 кб/с]<Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:A3E111600FAF63AFF696D60C3955A05B5330E223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +173,7 @@ Call The Mothership - Of Cold Fusion And Light Mass (2014) [MP3|320 кб/с]<Pro
 ```bash
 magnet:?xt=urn:btih:54C6050E2028A8C5CDF341E0D41A43E6B4B3D227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +200,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1164CC177AAC46313CE2F1F4E7540ED949DED13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F142C11CCFAB59BCFF2C91B62791449F4DC54DB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +250,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A0E91BB98D3DE2BDE3F38BFFC2C6A45041211622
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ The Screaming Jets - Hits And Pieces (1999) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E879CF087DCA544CEBAF0343ACB00E8F68D6EC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -327,8 +317,7 @@ Leading Light - Protect The Sinner (2014) [MP3|320 кб/с]<Metalcore / Atmosphe
 ```bash
 magnet:?xt=urn:btih:5B754B1CBB4E2641848D41C6BA9AE431A7638054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +351,7 @@ Downchild Blues Band - Good Times Guaranteed (1994) [MP3|320 кб/с]<Modern Ele
 ```bash
 magnet:?xt=urn:btih:03B29761936153C44BD52A6C6E0B25DF7693A806
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +384,7 @@ VA - Chillout Flowers (50 Cool Grooves) (2014) [MP3|320 кб/с]<Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:12B27F53FF5D61A24E9EDDF19DAFAA56F402A17B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +409,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B2F7D192861AAF1D65876BABEE8AAFDA4325EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +443,7 @@ Eddie Condon - Classic Jazz Archive (2004) [FLAC|Lossless]<Jazz, Early Jazz, Dix
 ```bash
 magnet:?xt=urn:btih:378F5031EDA8CF437C53F4E9F37BF55763DFD4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F91727303A134161C67BC91E3902FACA4624CE28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,8 +502,7 @@ Nefastis - De Diebus Fastis, Nefastis, Infaustis (2014) [MP3|320 кб/с]<Melodi
 ```bash
 magnet:?xt=urn:btih:58AE8590C0F0BC7B2A79628971DA044848FBECCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA4D4336C3E706D1C9FB1FB405C7A22826B94648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +552,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8F0CE7AA9300638D6F3F63D0AF92ACFE01799067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +586,7 @@ Dickie Peterson - Child of the Darkness (1997) [MP3|320 кб/с]<Hard Psych Rock
 ```bash
 magnet:?xt=urn:btih:C33EAD36F2B4C448156C1163DE94F0D0E1B1F26A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,8 +614,7 @@ Iced Earth - Box of the Wicked (2010) 5CD Box [FLAC|Lossless]<Power/Thrash Metal
 ```bash
 magnet:?xt=urn:btih:CC7BDBEE41BBFFAFCD8E6FE59C1A928557CD3A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61CA97038012755F0218253F5A74677ACA152DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -695,8 +673,7 @@ Jeff Steinberg - Velvet Martini (2009) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:AC57C3A7D5D98C1D30275B7EA7F245FEB93A8883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -730,8 +707,7 @@ Edgar Allan Poe - Legado de una Tragedia (2008) [MP3|320 кб/с]<Heavy Metal/Ha
 ```bash
 magnet:?xt=urn:btih:2784FFE101A7B3169BB45F2959BDB0F33C973D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -757,8 +733,7 @@ Rockwell - INeedU / 1_2_3_4 (2014) [MP3|320 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:50B56237594F5D5A55FD394A65726A4A5C371A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -783,8 +758,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:26F2F48F6E3A78D90F2857CDE4AC595136413CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

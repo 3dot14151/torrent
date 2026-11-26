@@ -18,8 +18,7 @@ Microsoft® Windows® 11 Professional VL x64 23H2 RU by OVGorskiy 11.2023
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

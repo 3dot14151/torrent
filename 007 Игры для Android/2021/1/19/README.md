@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:C74156B2D3B7FD5119934E5D9E67360C347FB1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Days: Survival Horror - симулятор выживания от трет
 ```bash
 magnet:?xt=urn:btih:1303793CA754A836C90204734098A52F22FC9182
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Angry Birds Journey - команда отважных птичек вновь о
 ```bash
 magnet:?xt=urn:btih:6412A7F2DCDDAD322160574C1E6AC453AD5249AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

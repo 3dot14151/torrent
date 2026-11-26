@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:6C7D7E16A98703146E7612BB16212DCFB91AC753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cliff Jackson - 1930-1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Early J
 ```bash
 magnet:?xt=urn:btih:9F074C97848099FC5209C9BDB2E6135D32B852A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Trust (2012) Time Released Sound [FLAC|Lossless|tracks+.cue] <Ambient, Expe
 ```bash
 magnet:?xt=urn:btih:75DD9EF0288B9DD9531D0E8F72FECBAC467AE068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Embedded Audio EA presents: Best Of 2017 (Mixed by Sebastian Montano) (2018
 ```bash
 magnet:?xt=urn:btih:B19C48D010C5BBD86841E56C1820B11560243DED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nacht Plank - Nemmit Con (2018) TXT Recordings [FLAC|Lossless|WEB-DL|tracks] <Am
 ```bash
 magnet:?xt=urn:btih:5DAE5173951A9C2800FC4C60A100F11E52B3309C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Atragun - Younity (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B6ED602BEEF930771F90DE25C45D0B0D6448F5CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Silk Music Pres. Trance Treasures 09 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:352DBC1A9C7D62285041E0E703792C87AD28E9A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Mysterious Station The Best Of 2017 (Mixed by Dr Riddle) (2018) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:CEBB5080CDB0C5F339CF9D600295FF461C547EB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Porches - The House (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Rock
 ```bash
 magnet:?xt=urn:btih:1D346294664D6CBF25E0AAC94EF801D04AE5FA71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Coleman Hawkins & Pee Wee Russell - Jam Session In Swingville (1961) 1994, Unive
 ```bash
 magnet:?xt=urn:btih:AB1C5AAE84A2B374256A0CF8DC4FCAA8CA2FBC9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2CDD89AEC831A7F0C19F18F86788605D8506BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Macho - 2 Albums (1978, 1980) Reissue CD, Italy & C, 2013 [MP3|320 Kbps] <Electr
 ```bash
 magnet:?xt=urn:btih:B49E5D5DFCE505C6BB1B407181D7BD324C8D6C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0FFD544BB468DDC5CB8A365AC1118AF97216CF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Jean Paul Rena - A Thief Known For Stealing Hearts (2017) [MP3|320 Kbps] <Blues 
 ```bash
 magnet:?xt=urn:btih:E04C23BED1B35572EC979CF996AB9FE2103846F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,8 +410,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2930BEC984BD8E1C3C87F37D5A8C7A498880C2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +438,7 @@ Kele Okereke - Fatherland (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Elec
 ```bash
 magnet:?xt=urn:btih:602F86A63F3D7A1E300C84B0006044712B02992D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +465,7 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:A343114A8EFC6E62DE63DB28258EBF7AEE737C91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +493,7 @@ James Vincent McMorrow - True Care (2017) [FLAC|Lossless|tracks + .cue] <Indie R
 ```bash
 magnet:?xt=urn:btih:E41D6507E0AB95E63E826D288BB84670B4448890
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ VA - Markus Schulz - Global DJ Broadcast:World Tour - Los Angeles (2018) [MP3|32
 ```bash
 magnet:?xt=urn:btih:D5CA1896F2966E343DA577CA4C27186BFA257928
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +549,7 @@ Terry Lee Nichols & Rebekah Eden - We Have Only Come to Dream (2018) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:2398322E9AC0ADF03889D79E185D9EE196D9A8DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ HyperSnap — инструмент для захвата изображения,
 ```bash
 magnet:?xt=urn:btih:03424823BB12167FE69871CE0A2DC16AB56BE5F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ Fizzarum - Discography 5 Releases (2000-2017) [FLAC|Lossless|tracks+.cue, tracks
 ```bash
 magnet:?xt=urn:btih:01828BF27B30804BADDC44CAEF40A4E617020CC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +630,7 @@ VA - Workout Motivation Vol.1 (Most Motivating Tech House & Techno Tunes For Spo
 ```bash
 magnet:?xt=urn:btih:FE033F87A24729787A0E2FA94157CDFC67DC4CC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,8 +655,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2902B7E5CDE451AD24A5BBAB4BBB995D30398CE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +680,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:796A2E5FCCC02126ACD9392D863B9C1454679DAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ VA - Italo Disco: The Lost Legends Vol.11 (2017) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:E8B7EA8E1D2A45786869E780294D1F5DE06F07A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

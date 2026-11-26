@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2060014F911263B4EC5C3342EDB8560A8A2A9679
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Picture Bird позволяет легко распознать птиц вок�
 ```bash
 magnet:?xt=urn:btih:44D3DEAF8A2523482F129ECD68A378CAF760B092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AAFC0CC4C65FDFD9378D9CF931A86A49FE6346E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Picture Fish - Fish Identifier v2.4.15 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0F9C0002F282F23C3ABBB41990BA5C36D8ED2681
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pride & Prejudice: Hidden Anthologies (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:EACABF663D3083256BAE46972EF2E376A430C833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mystic Diary 3: Missing Pages (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:6CF8B5F6C614B7E6060B3575589BC5912B93C447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tom Clancy's Ghost Recon: Future Soldier (NoDVD/v1.0 + FIX) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:F6EDB13C73AFA2108C5ACF4AC1FC210E8A888AF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

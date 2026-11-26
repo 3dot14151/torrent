@@ -23,8 +23,7 @@ Issa - Crossfire (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D7A322400402B18E9F1E52D18FFB55A152D2CF09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Jimmy Page - Blues & Ballads (2000) Bootleg [MP3|320 кб/с]<Rock, Classic Rock
 ```bash
 magnet:?xt=urn:btih:85B077F1A39E25F093D0EAEE18DBBE7586989354
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Bumblefoot - Little Brother Is Watching (2015) [MP3|320 кб/с]<Modern Hard Roc
 ```bash
 magnet:?xt=urn:btih:01FD65017468B745839014588D23B023E87F42C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

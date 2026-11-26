@@ -19,8 +19,7 @@ Concordia (2021) [Multi] (1.3.6/dlc) License GOG [Digital Edition]
 ```bash
 magnet:?xt=urn:btih:C4C7BFFF343A4681775FA30A2CD5B377421E3C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pacific Drive - это атмосферное автомобильное при�
 ```bash
 magnet:?xt=urn:btih:0E3C23BEEAFA37B6973DB8F883A3BFF9FEC69D90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cypress Ridge - 28 сентября 1999 г. Вернитесь к началу 
 ```bash
 magnet:?xt=urn:btih:3289CFC6647CA006A86ECF260DA9A9CC3CEC67B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Half-Life 2 официально исполнилось 20 лет, и по сл�
 ```bash
 magnet:?xt=urn:btih:0CF3E406C6380E596CB8C02D0E44C301FE5F89E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Half-Life 2 официально исполнилось 20 лет, и по сл�
 ```bash
 magnet:?xt=urn:btih:C35115AF82BEF109EC0C3B636C3EDF31F0F20C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.5.9) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:97FCA364F7ED091A8C7A343B7C80C85AF130E3F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ KAKU: Ancient Seal предлагает стать на место Каку, г�
 ```bash
 magnet:?xt=urn:btih:9F19E15BD00D6F438B62A18C5FBFDCDAE3AAED50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Town of Light повествует о девушке по имени Рен�
 ```bash
 magnet:?xt=urn:btih:A31F6D56CE6C4765514878760E7BE0B58F5CD4C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Shredders (2022) [Ru/Multi] (Glacier/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0F0812D429B2786110CACAA626043C1DFAF22DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

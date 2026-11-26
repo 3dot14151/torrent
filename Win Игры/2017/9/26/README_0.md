@@ -19,8 +19,7 @@ Dark Realm: Guardian of Flames / Темный мир 4: Хранитель пл�
 ```bash
 magnet:?xt=urn:btih:A8B27DA2EEC7AB8E390CB959819C828CD4808F3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Raiders of the Broken Planet (2017) [Ru/Multi] (1.0.0.1/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:AE33710CFA8F962F5200BC37DC374042C457D909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

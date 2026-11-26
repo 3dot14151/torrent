@@ -19,8 +19,7 @@ Secrets of Great Queens 2: Regicide (2018) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:5C615B2E1182671437A4D85AF44CBFD743A938C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fear For Sale 12: Tiny Terrors (2018) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:92CD84BEED92D4EA613D781F8AF056CDC20BB740
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Queen's Quest 5: Symphony of Death (2019) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:B03B45F1822956BEC929E22AF74878A7999EFE58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Secret City 2: The Sunken Kingdom (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:C8C2C347C7336202F7D928960CD5D964A0020F5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Ms. Holmes: The Monster of the Baskervilles (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:CEE87DF91B5C4FE2F972F2B0A72F85AB1B392EF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

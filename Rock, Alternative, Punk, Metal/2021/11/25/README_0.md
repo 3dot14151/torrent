@@ -22,8 +22,7 @@ Leverage - Above The Beyond (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Po
 ```bash
 magnet:?xt=urn:btih:442E1F7FC9D07121988512E462FB5A2BCED313B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB93003D28BB0ECEBAF16B0F8818B9D6E993425B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Hypocrisy - Worship (2021) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:492191384CB7D64E9C002ADA9CBE5015A9A7879B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bonnie Tyler - 3 Original Classics Box Set (1992) [FLAC|Lossless|image + .cue]<P
 ```bash
 magnet:?xt=urn:btih:653437640F8886E3E0D4AEEE97B47E32CFD1BACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ DEEP PURPLE выпустят альбом каверов под название
 ```bash
 magnet:?xt=urn:btih:91A4CE870C88CFC70864188DEF26A6DC28578F2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F13B3CDEED7B25189BAFE91BA2152FB6CB16484B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Shocking Blue - Castle Master Collection (1990) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:3EDEDA86E20BD233339C40E54752DC9CFA2DB021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|WEB-DL|tracks] <Sym
 ```bash
 magnet:?xt=urn:btih:8EE72311464D912FA7D9AD0C5AC5B1599A1E371C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Rhapsody of Fire - Glory for Salvation (2021) [MP3|320 Kbps] <Symphonic Power Me
 ```bash
 magnet:?xt=urn:btih:197ABDD2DD07AAA0BAF6338B1B2AE6F9B14B97B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Carnivored - Revival (2012) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:472B5EFCE038141BA1841ABE88059A8CC657DFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ The Fallen Prophets - No End In Sight (2021) Japanese Edition [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:0C2D8DBA194D87EC1DF6E10195446D47BC2FCD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Withering Worlds - The Long Goodbye (2021) [FLAC|Lossless|image + .cue] <Atmosph
 ```bash
 magnet:?xt=urn:btih:5F52E2A01C5A644476344F49A3E27204B11A631F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Black Label Society - Doom Crew Inc. (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:593F4F9AA874B2B9A75C485ED31BDFC101CC0A43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Scheitan - Berzerk 2000 (1998) [APE|Lossless|image + .cue] <Black Metal, Death '
 ```bash
 magnet:?xt=urn:btih:316FAA8217A40C4DA4912D090717E2FD5CB31A15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ Sidus Mortuorum - Endless Funeral (2010) [FLAC|Lossless|image + .cue] <Death Met
 ```bash
 magnet:?xt=urn:btih:524375A816D7525CC8E36EECB33660D813773EA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ Stillborn - Los Asesinos del Sur (2011) [FLAC|Lossless|image + .cue] <Blackened 
 ```bash
 magnet:?xt=urn:btih:47A2C49324529382FE0A7FC399046A641DF932CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Strigampire - Where Torments Drown (2009) [FLAC|Lossless|image + .cue] <Black Me
 ```bash
 magnet:?xt=urn:btih:EA2B9BC0A1D6A7A6B3CD064745968D1346AB1427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +498,7 @@ Sea of Disorder - Sea of Disorder (2012) [FLAC|Lossless|image + .cue] <Post Meta
 ```bash
 magnet:?xt=urn:btih:FE25680B41780991F78F6D900505329978E31E0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +526,7 @@ Seasons of the Wolf - Seasons of the Wolf (1996) [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:3E45CFBF12A0EF8FA74CED657A96085A5778949B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Skyliner - Outsiders (2014) [FLAC|Lossless|image + .cue] <Power Metal, Progressi
 ```bash
 magnet:?xt=urn:btih:A1B8E903E716076C39B2BFC6F98076D84886E79C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +582,7 @@ Spearhead - Decrowning The Irenarch (2007) [FLAC|Lossless|image + .cue] <Death M
 ```bash
 magnet:?xt=urn:btih:F5F207F00C4640B765D9B7838EAAEC8B37B109C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +610,7 @@ Stigma - When Midnight Strikes (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:90DE4DECE7D2532E274AAC99DB7EEAC08140F508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +638,7 @@ Stormlord - At the Gates of Utopia (2001) [FLAC|Lossless|image + .cue] <Extreme 
 ```bash
 magnet:?xt=urn:btih:1265B427B12F057CBE0C881D9DB3499BF7DC60AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +666,7 @@ Imminence - 4 альбома + 1 EP (2013-2021) [MP3|320 Kbps] <Post-Hardcore, M
 ```bash
 magnet:?xt=urn:btih:5489798723D7BD8C95F7F31836FE53A5BCF6E5D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

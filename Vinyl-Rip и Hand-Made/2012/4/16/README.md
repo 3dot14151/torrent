@@ -19,8 +19,7 @@ Red Hot Chili Peppers – Californication (1999) [FLAC 2.0 24/192 | image (Vinyl
 ```bash
 magnet:?xt=urn:btih:CB63894A9936B5F9F40346F536EFE6F522B6EC9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

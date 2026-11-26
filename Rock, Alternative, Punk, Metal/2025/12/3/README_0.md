@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:82209D014250C78EBD3E9A39ABE90A986C26F58A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ CD1-3 Strange Déjà Vu 5:08(   Читать дальше...   )Жанр: Progre
 ```bash
 magnet:?xt=urn:btih:EE44622E3238EB2B93AE592D24F283D283EF6C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Stryper - The Greatest Gift Of All (2025) [FLAC|Lossless|image + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:3113FD62FA52344A0E937AEC8EF103AA239BCD54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

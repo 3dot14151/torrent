@@ -26,8 +26,7 @@ Todtgelichter - Fluch / Sog in den Wahnsinn (2003) [FLAC|Lossless]<Raw Black Met
 ```bash
 magnet:?xt=urn:btih:A91BF0F8E89613EFAD33CF69FD8D85878A0F2E6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:B288CCDEEE16378A976A494A729C5F4587962876
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Unmercenaries - Fallen In Disbelief (2014) [MP3|320 кб/с]<Funeral Doom/Death 
 ```bash
 magnet:?xt=urn:btih:77C41C0DC1D050A260BA599974302CD55493B23D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Satan's Host - Pre-Dating God Part 1&2 (2015) [MP3|320 кб/с]<Heavy Metal/Powe
 ```bash
 magnet:?xt=urn:btih:60387F951BB8A696A3EC24558B2EB56947866A40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Ex Deo - Caligvla (2012) [APE|Lossless]<Symphonic Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C1813938D5F83F2A5DB6E4FAEB21214C59CBA3F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Sylosis - Dormant Heart (2015) [MP3|320 кб/с]<Melodic Death Metal, Thrash Met
 ```bash
 magnet:?xt=urn:btih:4098D2558BAA0F9DE87BBE2191CCF3D14FE47CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ Final Faith - Chaos Injected (2014) [FLAC|Lossless|WEB-DL]<Melodic Death Metal |
 ```bash
 magnet:?xt=urn:btih:976CBBF48F3F10DD215877734FF31F4378D49971
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +249,7 @@ Ex Deo - Romulus (2009) [APE|Lossless]<Symphonic Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:43865E6FD6F388CF74B7540CAB4FB767A4188EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,8 +283,7 @@ Crimson Shadows - Kings Among Men (2014) [FLAC|Lossless]<Melodic Power Death Met
 ```bash
 magnet:?xt=urn:btih:F33B747C2DDDBC3B500E028E45D45FFAFB1AEDC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +317,7 @@ Palisades - Mind Games (2015) [FLAC|Lossless|WEB-DL]<Post-Hardcore | Electronic>
 ```bash
 magnet:?xt=urn:btih:C89C06BAF727AFE58E699B175028B261CD4B6995
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,8 +348,7 @@ Crosby, Stills & Nash - CSN (1991) 4CD Set /USA 1991; Atlantic, Warner Music 7 8
 ```bash
 magnet:?xt=urn:btih:47D019474368A7DB47510FDB64CBABC4B2A6056D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +382,7 @@ Nightwish - Century Child (2002) Japan [FLAC|Lossless]<Symphonic Metal / Power M
 ```bash
 magnet:?xt=urn:btih:390F7115FD6C8B8D997488DD7EF9737BAD7151C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +416,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E78CBF55B327004E7AB26427B7958EF94DF7F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

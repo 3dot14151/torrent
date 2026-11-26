@@ -19,8 +19,7 @@ Ghost Whisperer 2. Forgotten Toys (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:241F86C2E987AE1EF7CCE98D0B15404C944D4704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tricks and Treats (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:9B4BCD6E55F89667FB570E017C434623EA86DF72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:841370CD22C784EE8F0E39668189AC9AED02E93C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ James Bond 007 Трилогия [Ru] (RePack) 2002-2010 | R.G. Element Arts
 ```bash
 magnet:?xt=urn:btih:992DD78D1032DFF3F7809D5CB1D7175798048C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

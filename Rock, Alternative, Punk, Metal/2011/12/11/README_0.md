@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:F1508787B199C554619910BC348BE36F081A461E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Ghosts Of August - Ghosts Of August (2011) [MP3|320 kbps]<Alternative rock, Hard
 ```bash
 magnet:?xt=urn:btih:DAFA8653E603AA704ADFD9CF6A069321719B7C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Cage - Supremacy Of Steel (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:58C1E47F77D8DC3F28AE2B931A72668DE7C20787
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Falconer — шведская метал-команда, образованна�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +148,7 @@ Frankie Miller - Standing On The Edge (1982) [MP3|320 kbps]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:3FB31D77092AEE28A34DB18F4EE3CAAB4F7B266A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +182,7 @@ Slash - Made In Stoke 24-7-11 (2011) (Live) [FLAC|Lossless]<Hard Rock, Heavy Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +207,7 @@ Sunrise Avenue - 2 альбома (2006, 2011) [FLAC|Lossless]<Pop-Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

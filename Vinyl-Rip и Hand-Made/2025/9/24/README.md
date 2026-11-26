@@ -22,8 +22,7 @@ Thy Art Is Murder — австралийская дэткор-группа, об
 ```bash
 magnet:?xt=urn:btih:45F5F06D790367AB841644D345F4DD1A1B7749CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ VEXED - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [
 ```bash
 magnet:?xt=urn:btih:22A2D3996426ABC4D92EA0611F1709126469CD9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

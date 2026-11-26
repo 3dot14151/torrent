@@ -19,8 +19,7 @@ Secret of Harrow Manor (2018) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:398CAC42B9C396A887FE973C27654A5A1A3E59DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deadly Tropics - действие происходит на прекрасном
 ```bash
 magnet:?xt=urn:btih:4BE670E3628D35456F23447106F4D52C383F318C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

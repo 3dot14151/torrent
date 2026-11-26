@@ -19,8 +19,7 @@ Secret Investigations 3: Revelation / Загадочные расследова�
 ```bash
 magnet:?xt=urn:btih:9CE30E4F856A627845F691E8087EA7953C0EB954
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forsaken Remastered (2018) [Multi] (1.4.1) License GOG
 ```bash
 magnet:?xt=urn:btih:A84F517FF4DF21E440D7B2DABFD7C43380A45662
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

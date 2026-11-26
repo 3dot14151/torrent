@@ -22,8 +22,7 @@ Fumed - Fumed (2017) [MP3|320 Kbps] <Hard Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:EB6F90A72B99390F07790A3DA679005C12AF3E4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Love Affair - The Everlasting Love Affair (1968) Reissue, 2005, Dogtoire [MP
 ```bash
 magnet:?xt=urn:btih:72D5F3F7002AB7EA5C45C76928767D7F57584C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Enter Shikari - The Spark (2017) [MP3|320 Kbps] <Post-Hardcore, Electronic>
 ```bash
 magnet:?xt=urn:btih:FC34472F16C7E6CD4FA4F3128B05333ADFDEF888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Edge of Sanity (рус. «Грань Здравомыслия») — шведс�
 ```bash
 magnet:?xt=urn:btih:C5657568458F1334A5F8054BCF956D3ABB0C8812
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

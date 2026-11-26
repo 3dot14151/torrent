@@ -19,8 +19,7 @@ Reflecting Fate (2017) [En] (1.0) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:C70625388EC69381B0D5274BFB61B5D8A0BD39E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dreamfall Chapters - это сюжетно-ориентированная эпи
 ```bash
 magnet:?xt=urn:btih:D0BD216B2130494CA7E0E7B38DFE2AC720A51AD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Man O' War: Corsair - Warhammer Naval Battles (2017) [Multi] (1.1.4/dlc) License
 ```bash
 magnet:?xt=urn:btih:0CBE806DE3D318CD83BE7C5559F226492999A41A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

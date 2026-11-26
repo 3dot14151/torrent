@@ -28,8 +28,7 @@ Blues Traveler - 9 Albums (1990-2008) [FLAC|Lossless]<Pop Rock, Blues Rock, Alte
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Acrostichon - Engraved In Black / Sentenced (1993 / 1995) [FLAC|Lossless]<Death 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:71DC0C5172A3E6FE1C131890F3F5C8D39CFA9AE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Barren Earth - The Devils Resolve (2012) [FLAC|Lossless]<Progressive Melodic Dea
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Godgory - Resurrection (1999) [MP3|320 кб/с]<Doom Death>
 ```bash
 magnet:?xt=urn:btih:855750DC3BD7EC20D860101C3403D68D3353DC59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Disharmonic Orchestra - Дискография - 5 альбомов (1989-2002) 
 ```bash
 magnet:?xt=urn:btih:179D9DB452E70AA9D1ADF4575D9E69B86D752590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ The Who - Quadrophenia (1973) Super Deluxe Edition 4 SHM-CD / 2011, Polydor Reco
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EC645A494E78A1B803AC314CC03519BC54BD5524
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

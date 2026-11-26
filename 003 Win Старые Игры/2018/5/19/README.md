@@ -19,8 +19,7 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 ```bash
 magnet:?xt=urn:btih:6D2FA6349C36C81911C67071014AC9083258B99D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

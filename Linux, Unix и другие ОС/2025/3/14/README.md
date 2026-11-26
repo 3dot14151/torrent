@@ -19,8 +19,7 @@ ALT Linux 8 СП C9F2 [i586, amd64] 6xDVD
 ```bash
 magnet:?xt=urn:btih:4F6554E54551C61672788988DAB39528B534966C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ALT Linux 8 СП C10F1 [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:3A098BA4B4B02F080C9881D106C461B19808396A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ ALT Linux 8 СП C9F1 [i686, amd64] 6xDVD
 ```bash
 magnet:?xt=urn:btih:62356DD536E9D9FE217E6F52CBD40D16F3373E6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

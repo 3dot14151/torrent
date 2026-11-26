@@ -19,8 +19,7 @@ Dance of Death (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:9DB5C96305AF696D200AF00EAAF71EC6EA3EA8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Haunted House Mysteries (2013) [Ru/Multi] Unofficial
 ```bash
 magnet:?xt=urn:btih:673E9A905D0231EC0E4013BE6B87D0A4C70DDBBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Fire & Forget The Final Assault - отличный ремейк одноимен
 ```bash
 magnet:?xt=urn:btih:48AEA8FA407E8F6DA8DC1F07BE9AA5902F512298
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Castle of Illusion Starring Mickey Mouse HD является переиздан�
 ```bash
 magnet:?xt=urn:btih:9F61D2604E226A202A0E15D63CCCDACB479BC279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

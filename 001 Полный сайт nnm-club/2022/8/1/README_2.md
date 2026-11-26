@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F1B623F5DF9DCAEAF6D91FACA7FC0D12B9D4B114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Diablo® II: Resurrected™ — обновленная версия экшн-RPG
 ```bash
 magnet:?xt=urn:btih:40837F07CC381A07F6717DC5917145CC6C6F9DA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ World of Tanks - это массовая многопользовательск�
 ```bash
 magnet:?xt=urn:btih:FA3A2B087549B25C50A1033671C7BEEBE919EC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:822C9CBF36C2C34FAA185C32BA561E63D25502D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ eM Client - отличный почтовый клиент с возможнос
 ```bash
 magnet:?xt=urn:btih:5113A8E32B468A68CC811F4702638E8FD13BAD6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ VA - I Love The 90's - The Party (2019) 4CD, Compilation, Mixed [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:A3EB7ABECF931454C26496975B8715873588BB29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ VA - Новички в попсе Vol 14 (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D872DCA64FCDD91D863E932ECB7D2A8210CC8A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5494A112D8391AA07FD4BEC9911A7B8A455723AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B230E3BEF36F9E3D60C718D8A98A2649B989721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FBB294519852CC664F8D89B094FCFB3AA63ED7F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +271,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3CDB19F66CC7710B99B1D77E75A7240A522CB55B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +296,7 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:6030776DD861A42F6D8E6BF8F59D3F8E9B9A0B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:595416D139CD8C7F953A9D3DA6D2EB155A626057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +346,7 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:BB9A3AF1878A3BE4A292388DEF5B2F153019C14C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +372,7 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 ```bash
 magnet:?xt=urn:btih:D9B361524DF1110ACA2D7A07379EFB9F67864EB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +397,7 @@ NeoFinder Business 8.1.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:4C5C82AE420743D45B4F8D1EB9B5EB6DB90B0697
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +422,7 @@ VA - I Love The 90's 10 Years Anniversary Edition (2017) 5CD, Compilation [FLAC|
 ```bash
 magnet:?xt=urn:btih:A5BFBE6BAB3D8B74E8E91133088EE2D973CAECD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +447,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CE41203FD9E34D0B954B24EF2979CBAACA6866A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +472,7 @@ CG Sphere | Frostmourne Sword Full Process + Files (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:232377100FBA8049D0FB614E98D672CC60F4A16C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +497,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:715785C22D24EE47C8E7B4CC08F9AED7D65475FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +522,7 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:DE56BEDDC9EBE170B7178A70DAD9574207CB9ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +549,7 @@ DefenderUI значительно повышает удобство исполь
 ```bash
 magnet:?xt=urn:btih:792390E3AEC1A7729E4C4B3DCA44D092902B2818
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +574,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49A551B9A58A25AF06C203182ECD5114C43D5087
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +600,7 @@ AIMP 5.03 Build 2397 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ED185049E848FE97CBFC5B85BB0AB376585FCFD5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +625,7 @@ PARANECRO (2022) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:BC7B0C4CF04E4E1D14752D87F1BA46AD038E91D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +650,7 @@ Martha Is Dead - это мрачный психологический трилл
 ```bash
 magnet:?xt=urn:btih:53AEBAB81E15B465EAC0E1A6AA67E63291301193
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

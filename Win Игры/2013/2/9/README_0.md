@@ -20,8 +20,7 @@ Cognition - это "эпизодический криминальный трил
 ```bash
 magnet:?xt=urn:btih:7A5650C5B422B8974CFF66F91909BC17C0B2C906
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Deadlight [Ru/En/Multi6] (Repack/1.0.9249.u.1) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:2EE10931CDE8EDB635E8C54C1D60E5E2FF6DCD48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Sanctum — это шутер от первого лица с элементам
 ```bash
 magnet:?xt=urn:btih:DE16B44FCFBDFCCC525907FAE3FF5F43FB135F8E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

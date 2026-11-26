@@ -20,8 +20,7 @@ Galg - Afzicht (2014) [MP3|320 кб/с]<Depressive Black Metal, Noise>
 ```bash
 magnet:?xt=urn:btih:C80AEAE7D5A06A48AD7B5671890693850FDF43FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Silent Wood - Me And My Shadow (2014) EP [MP3|320 кб/с]<Post Black Metal>
 ```bash
 magnet:?xt=urn:btih:5705462850DE3023808633574C48D74DE912B96E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Votnut - Votnut (2012) EP [MP3|320 кб/с]<Blackened Hardcore, Black Metal, Dea
 ```bash
 magnet:?xt=urn:btih:7B9E4D1C8B3A9053D80397DB782AA6F1BDE6F51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Human Slaughter - Beaten To Death (2014) [MP3|320 кб/с]<Blackened Hardcore, C
 ```bash
 magnet:?xt=urn:btih:75730D8A5BCC770B626C5B41205FCBF39A0918AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ Gary Brooker - Echoes In The Night (1985) [MP3|320 кб/с]<Art-Rock>
 ```bash
 magnet:?xt=urn:btih:E375298653B47D9BF0C80784EA07B4205FE8EC04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +177,7 @@ Ernie Watts - Classic Moods (1998) [FLAC|Lossless]<Jazz, Post-Bop>
 ```bash
 magnet:?xt=urn:btih:43B9686F15483096A6712A58E573ADCB0E45AFB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ Set And Setting - A Vivid Memory (2014) [MP3|320 кб/с]<Post Rock, Post Metal,
 ```bash
 magnet:?xt=urn:btih:C8E46346B9B8ADF5970D1560E8C845F42CC60075
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +234,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7539529AE1D6BF25322A1931CA263CEAC965E191
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +262,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8A227C2FE54F76BD69F6E3F07385D3892D3897FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +294,7 @@ Kerretta - Pirohia (2014) [MP3|320 кб/с]<Post Rock, Post Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:21C17F70458B3D93371D75B6A3ADF7A779D6038F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +321,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CBA74486A511BC560E0BB51BC8C0BB0F23EA96C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +353,7 @@ Joey Baron - Down Home (1997) [FLAC|Lossless]<Avant-Garde Jazz>
 ```bash
 magnet:?xt=urn:btih:762A49E6062080C32B956B605859F47013863C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ VA - Stussy x Soulection (2014) [MP3|320 кб/с]<FutureBass, BassHouse, Trap>
 ```bash
 magnet:?xt=urn:btih:CDACA54CE6F229D9BE0D252404A8377251A091C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,8 +439,7 @@ Darkspace - Dark Space III I (2014) [MP3|320 кб/с]<Atmospheric Black Metal, A
 ```bash
 magnet:?xt=urn:btih:9F663F5132C3216B3AF3320410C55421BE4DA840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,8 +473,7 @@ S.P.Y - Back To Basics Chapter Two (2014) [MP3|320 кб/с]< Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:3EA079D4140BB1506484DF0A4E99CE036622456B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,8 +498,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AEB610770979BF4746F2783E50EF2E521ED8E3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +532,7 @@ Phil Collins - Hello, I Must Be Going! (1982) [MP3|320 кб/с]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:41C900881961BDCDE888CF9119C0639F66AC3B0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +557,7 @@ ACHIRES - необычайно шустрый и ловкий робот, исп
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,8 +591,7 @@ Jack Jezzro - Wine Country Sunset (2010) [FLAC|Lossless]<Jazz, Guitar>
 ```bash
 magnet:?xt=urn:btih:726FAAE29EBE91D918C2F66A2576644B81BC13AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,8 +617,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:190C5B1CAFC3576F1BDA4D51EFCC13ECAC4B8994
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,8 +651,7 @@ Blue Sky Black Death & Jean Grae - The Evil Jeanius (2008) [FLAC|Lossless]<Hip-H
 ```bash
 magnet:?xt=urn:btih:0244DB6F7F870C0B93F4D9A317DF1B7EBD04B57F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C11485B9C9712E786C8C8FCCF2D1B62C2F4FD5A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +704,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -759,8 +735,7 @@ Marillion - Fugazi (1998) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:16012AD3DF7FC30084FD04E16017CBEEA9048164
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -794,8 +769,7 @@ The Haunted - Exit Wounds (2014) Japanise Edition [FLAC|Lossless]<Melodic Death/
 ```bash
 magnet:?xt=urn:btih:933C25307DBF297FA85395044F89D09CE3CF5FBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

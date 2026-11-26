@@ -26,8 +26,7 @@ Zen - Gaze Into The Light (1997) [WavPack|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:CC9410E22FE7CEA523B8650D519B7678DD200AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Angel Of Nature - Golden Age (2014) [MP3|320 кб/с]<Atmospheric Black Metal, D
 ```bash
 magnet:?xt=urn:btih:CD37AE1590D7CF37AF7F89A0EF80AA9737F1CEF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -94,8 +92,7 @@ Chronosphere - Embracing Oblivion (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:035ABAAE0EDBB71202580B340E304D619A199905
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +126,7 @@ Zeke - 'Til The Livin' End (2004) [APE|Lossless]<Hardcore (Motorhead)>
 ```bash
 magnet:?xt=urn:btih:8F4F9FD29C4DABB998C6A154BFBBD9443F2E5609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Nothing Looks Perfect - Ничто Не Идеально (EP) (2014) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:90BEC3ABB69B7B8D9532D7F737F4562F59211F68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Delian - Огнём твоих грехов (2014) [MP3|320 кб/с]<Melodic Met
 ```bash
 magnet:?xt=urn:btih:53F25CA86B93E09776F18BB9080F9E8388245922
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Anathema - Eternity (1996) [FLAC|Lossless]<Post Doom Metal>
 ```bash
 magnet:?xt=urn:btih:35F7117F6478DBAAE20400A6B19EC4E5EE7420ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Motorhead - Aftershock Digipak Tour Edition + Bonus Live CD (2013 - 2014) [WavPa
 ```bash
 magnet:?xt=urn:btih:D1E2D3C7428F92015F9AF83A5CD440AA40E8BE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +288,7 @@ Anathema - The Silent Enigma (1995) [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:1D13EAA56E18A8FFB61871CF78BBC76AE56C0FAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +322,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5E8C288945B461DA01A31CBB44F290F1779D447D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +356,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CE498639499D3E97544C0719E0E1DF947889093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

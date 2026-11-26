@@ -22,8 +22,7 @@ Black Veil Brides - Vindicate (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard R
 ```bash
 magnet:?xt=urn:btih:52438ECC5A6F7BB2614DFAB45E602136FEC1974F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

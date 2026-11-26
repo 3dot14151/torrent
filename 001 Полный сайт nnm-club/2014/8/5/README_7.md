@@ -27,8 +27,7 @@ Michael Pellera - Piano Standard (2008) [FLAC|Lossless|WEB-DL]<Post-Bop>
 ```bash
 magnet:?xt=urn:btih:92BEEB5200D5EC9C1FF28A6C2CAB8FE9D076C134
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ VA - Dub-Now! Weekly Dubstep 120 (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:AF0AE1EB814A4DD2D94F52E5FE7C73D5F96B0360
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ VA - Dub-Now! Weekly Dubstep 119 (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:27E554D06B8E56CE9582E845AA472B4CCB777712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +151,7 @@ Unsilence - A Fire On The Sea (2014) [MP3|320 кб/с]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:169D46FBA94B5E4314A54A7AE9EB7AA02E0D8700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Marathonmann - …Und Wir Vergessen Was Vor Uns Liegt (2014) [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:C5D1531C9E0AEA20F52395C0DAE4B9B904C10089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +213,7 @@ Bear Grillz & Friends - Vol. 1 (2014) EP [MP3|320 кб/с]<ElectroHouse, DutchHo
 ```bash
 magnet:?xt=urn:btih:EF7373D1FBF87167CDF46D4E7AE89B99321D8B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ TABG - Lips On EP (2014) [MP3|320 кб/с]<Trap, FutureBass>
 ```bash
 magnet:?xt=urn:btih:3FAE2D7793256556E4BB70DF5A5FAC0F1EE5E547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ VA - Dub-Now! Weekly Dubstep 129 (2014) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:D0489EC7336F3186B27808882C975F7BDE75A7D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ Ash Riser - One More Drink (2014) [MP3|320 кб/с]<Trap>
 ```bash
 magnet:?xt=urn:btih:A2E1E7FC737D92D015D7D35AE058DEFEC70FD7B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:27E3E46EAF1587A25C8ECAA15E38C1BE4C5C9D3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,8 +356,7 @@ Glories - Put The Beast Out Of Mind (2014) [MP3|320 кб/с]<Post Rock, Instrume
 ```bash
 magnet:?xt=urn:btih:5EF081B74AE28E9A9C65C2A720F706F69F22C217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +388,7 @@ Curtis Lundy - Just Be Yourself (1985) /Reissued 1997/ [FLAC|Lossless]<Soul Jazz
 ```bash
 magnet:?xt=urn:btih:333BD9621CC61E6D7853BC954E5B822A255F5D83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +416,7 @@ Dabs - Constant (2014) EP [MP3|320 кб/с]<Drum'n'Bass, Neurofunk, Liquid, Tech
 ```bash
 magnet:?xt=urn:btih:150C703030C6B5EB8CFEE7A4DA5776D2AB5B5E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ VA - Ibiza Essential Tunes (2014) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:1415F984F3A7D2BC06DC117B496748B0F643FEE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,8 +484,7 @@ Darby DeVon - Highlands (1999) [MP3|320 кб/с]<New age, Celtic>
 ```bash
 magnet:?xt=urn:btih:0FE839CFA703E99A513ABF9DA5083FD71FB489A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,8 +512,7 @@ VA - Lounge At The Seashore 16 (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:3119872296F8BFAF922714F48FB71B866DB0DC9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +537,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F6FD836052B2F11A0877CF5C497E907308E3746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,8 +571,7 @@ Molly Cheshire - Treat Her Right (2003) [FLAC|Lossless|WEB-DL]<Vocal Jazz, Rock>
 ```bash
 magnet:?xt=urn:btih:2FF60E278EF95CDB6F80089EE62A8B209504B72A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +605,7 @@ Various Artists  - 15 Years Of Fokuz: Present (2014) [MP3|320 кб/с]<Drum & Ba
 ```bash
 magnet:?xt=urn:btih:1D8C82E65BE7F910C02ACE4048063ECEB5FA5A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ Novembers Doom - Bled White (2014) [MP3|320 кб/с]<Doom Metal, Progressive Met
 ```bash
 magnet:?xt=urn:btih:AB8567295B84D986D33657456CDFB19BA3E5A00B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +668,7 @@ DLR - Your Mind (2014) EP [MP3|320 кб/с]<Drum'n'Bass, TechStep, Neurofunk>
 ```bash
 magnet:?xt=urn:btih:836B63CC68CF2781B761AB1F03FD6F3BF8DF8A7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +702,7 @@ Clan - Witchcraft (2014) [MP3|320 кб/с]<Heavy Blues Rock, Stoner>
 ```bash
 magnet:?xt=urn:btih:CEB0364F9EA35A4620EFAFEC0EDFF8E9A454CD4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -750,8 +727,7 @@ Figure - Cowabunga VIP (2014) [MP3|320 кб/с]<Drum'n'Bass / Drumstep>
 ```bash
 magnet:?xt=urn:btih:62355C0E279CAC5FCB7D91E74701E7B119922BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -784,8 +760,7 @@ VA - Клубные Новинки Vol.476 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:19EFA51CE85F07E603A3D9113943A9B451A531A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -813,8 +788,7 @@ Fuel for Pages - это удивительное дополнение для п�
 ```bash
 magnet:?xt=urn:btih:A6440A09490DF7D3273D4B9846CCED5D1478D4F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

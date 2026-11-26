@@ -19,8 +19,7 @@ Crazy Steam Bros 2 - довольно олдскульная в плане ге�
 ```bash
 magnet:?xt=urn:btih:E517BD01793474F78C30A6A6A4F28A399A8660F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ In Verbis Virtus [Patch] (2015) (1.0.2310) Official CODEX
 ```bash
 magnet:?xt=urn:btih:D6310F5558CAB408A86E8253119B2BCCFB9FDEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Dustoff Heli Rescue (2015) [Ru/Multi] (1.0upd) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:79B95C7D15F496C2ACB7904D6CDFC8FC2634BADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Belladonna — это готическая адвенчура, полная ть
 ```bash
 magnet:?xt=urn:btih:71CB772FA7F80E5F7DE925457E2ED0267E06F4C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Morningstar: Descent to Deadrock — это приключенческая иг�
 ```bash
 magnet:?xt=urn:btih:566DAF4942D3885CB131B8214A1F210F576EB88F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:33699DE0F51159C70C01D625A639418BC7922F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ SpellForce 2 Demons Of The Past (2014) [Ru/En] (2.68.5408) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EDAB1EA9F026D9B0DA96DAFAEC7756D5D96703FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

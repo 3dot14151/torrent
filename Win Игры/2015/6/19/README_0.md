@@ -20,8 +20,7 @@ Sylvio – приключенческий инди-хоррор от перво�
 ```bash
 magnet:?xt=urn:btih:05A8B378BFF7E6BB2C719E134C3489F3F652684F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Red Hat Enterprise Linux 8.2
 ```bash
 magnet:?xt=urn:btih:5758AA2F74FE5E759D512505BDCBC7DB3C1E1888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

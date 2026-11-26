@@ -22,8 +22,7 @@ Steel Rath - Prayers of War (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 ```bash
 magnet:?xt=urn:btih:6F59671BEA5FEEA697D30565C4174CD7B11ED3AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blaze - Silicon Messiah (2000) Japanese Edition [FLAC|Lossless|image + .cue] <He
 ```bash
 magnet:?xt=urn:btih:BE3F7DC84A9EE78C3DF6E54AEF24191B1D560D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ecocide - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Meta
 ```bash
 magnet:?xt=urn:btih:B59DC0A1A4D3C85760C891C5F53A8A726F377507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Deaf Dealer - Keeper Of the Flame (1986) Reissue, 2023, Cult Metal Classics [FLA
 ```bash
 magnet:?xt=urn:btih:5A493D6A14C50A19B464D543E13B01794028FBCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Enigmatic Entrance - Becoming Daylight (2021) [FLAC|Lossless|WEB-DL|tracks] <Sym
 ```bash
 magnet:?xt=urn:btih:65DB3063C226D5D0B06FC4E51E9CE716E2E59ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AE7D58D1422D159186C0519992583844445F336
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

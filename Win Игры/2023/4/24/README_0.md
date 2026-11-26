@@ -19,8 +19,7 @@ Archvale (2021) [Ru/Multi] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:FF05C7D51BC3C41FDE5485A30BA2B24901C0440B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

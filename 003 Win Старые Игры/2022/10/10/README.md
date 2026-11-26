@@ -19,8 +19,7 @@ Supreme Ruler 2020. Курс доллара обвалился за одну н�
 ```bash
 magnet:?xt=urn:btih:8F00163D2A5161B763538758FBB434CFF9550093
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

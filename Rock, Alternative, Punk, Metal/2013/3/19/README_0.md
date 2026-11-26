@@ -28,8 +28,7 @@ Visions Of Atlantis - Ethera (2013) Limited Edition [MP3|320 кб/с]<Power Meta
 ```bash
 magnet:?xt=urn:btih:2EAA6996161593E1FD827D475D5F6C77F82E06DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Serenity - War of Ages (2013) [MP3|320 кб/с]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:8CC0C14EE3C3A4E3F7E68B258C6586CEBEDEC9D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Serenity - War Of Ages (2013) Limited Edition [FLAC|Lossless]<Progressive Power 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ Popa Sapka - Amerika Evropa (2010) [MP3|320 кб/с]<gypsy punk/balkan/romanian>
 ```bash
 magnet:?xt=urn:btih:B50E2DE81283C2A747881D1BCFDDB8C601CB490D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:45813FB0577939306F82CAC7213BD7C6778B462F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

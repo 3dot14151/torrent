@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:3A684D8E931325E3E5C9F0AA8B88572DC08FD8A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Luxor - Над Землей (2013) [MP3|320 кб/с]<Rap/Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:4D93762ED37CA9B2641454776A235CA61E7190D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Find Me - Wings Of Love (2013) Japanese Edition [FLAC|Lossless]<Melodic Hard Roc
 ```bash
 magnet:?xt=urn:btih:FB5A9FC9029282F5C02F0CC2A13242A240EDC90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:46FCD4DA62B37A98046F4CE76274AFC079A2D57D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +145,7 @@ Derdian - Limbo (2013) Japan Edition [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:F5ACD82B6E4BC4C7966E0A5F9E9BD961315B364D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8989C89EC5B4FB4577EB221B8451122E1D4F0069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:114B791BB45D1A8E3BCA70B5CB589AE5EA14F68A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +230,7 @@ Watain - The Wild Hunt (2013) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:5090A81432DE62EE81187117E166A3C68CB916A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ VA - German TOP 100 Single Charts (19.08.2013) [MP3|96-320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:01314C1497A326210D0A2CBA400736ECCB8BBD03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:978A9CB041D3F84FB691DDE082AF79D395569C90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:34BE69EA333DEE0CD616154A335874D2A4F09308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Wallpapers - Мир животных 3 [JPEG]
 ```bash
 magnet:?xt=urn:btih:BF59F8FEA608C9D8ECBB907A195E9677A632D5A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +374,7 @@ One Ok Rock - Jinsei x Boku= (2013) [MP3|320 кб/с]<Alternative Rock, J-Rock>
 ```bash
 magnet:?xt=urn:btih:4BCF15644577038DA5263CC1BE5327DC31814866
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ Dead Letter Circus - 3 Альбома + 2 EP (2007-2013) [FLAC|Lossless]<Alt.Roc
 ```bash
 magnet:?xt=urn:btih:2CC1012F1733488A0FC9411C8BB6B16C46716BA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +433,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F99F4789758CD6B8F2BBF1A8BD4DD691D38591F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:16FC21F91B6CC799F02EE610626C79DA3571E804
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +493,7 @@ VA - Лучшая 200-ка. Пой, гуляй, моя душа (2013) [MP3|128 
 ```bash
 magnet:?xt=urn:btih:1007194F66AD3F81F73462B753A502B2521062CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,8 +527,7 @@ VA - Радио Шансон. Летняя бомба года №19 (2013) [MP3
 ```bash
 magnet:?xt=urn:btih:12C0F076230853AEC229F724D08ECC3E9F99CE1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +554,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:AFA92AA4298F81B4587930A645D6F951B20CC914
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,8 +579,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,8 +604,7 @@ iSpy - программа для наблюдения, мониторинга, �
 ```bash
 magnet:?xt=urn:btih:EC2F1352A967B6026CBA14FF7CB22F8FD35011A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +638,7 @@ VA - Blue Note Jazz Inspiration: Best Of Bar Jazz (2011) [FLAC|Lossless]<Jazz Vo
 ```bash
 magnet:?xt=urn:btih:AF49B5C0F935C1C4E929F64F9253DBED35FF6C57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +665,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:B5F73A4F969B44F205AFFC1C60613784C66390FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +690,7 @@ Multi Commander - бесплатный, удобный, мощный, функц
 ```bash
 magnet:?xt=urn:btih:FE40EED93E183F16CB3AC0C2CC28702B6C86AFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6680E267AEFEC5A473CED80B809DF3DC48D92FC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -766,8 +741,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5EDA9C926336ABAF37DC6355314741CC880E0FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

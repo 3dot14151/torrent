@@ -19,8 +19,7 @@ Door Kickers: Action Squad - это сумасшедший скролл-шуте
 ```bash
 magnet:?xt=urn:btih:131DA65A634FE210CA8205DBDCA1FB7C2762AE20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

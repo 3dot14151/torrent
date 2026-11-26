@@ -19,8 +19,7 @@ Coffee Rush 3 / Кофейный переполох 3 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:20BBD2402BD35AC0DFB40F4A6A261077760E9C2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

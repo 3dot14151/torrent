@@ -19,8 +19,7 @@ Vampire: The Masquerade: Redemption [En/Ru] (RePack) 2000 | Pilotus
 ```bash
 magnet:?xt=urn:btih:8686913CC5C4DFB756AA8E3D0E8D17AD536E0966
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Age of Empires / Эпоха Империй {v.1.0b} (P) [Ru] 1997
 ```bash
 magnet:?xt=urn:btih:E5BA72CB9AFDAF89DBADF68FC82FFBB493677AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Охота 74 (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:CF2319718FD6CDCB7AB84AB269209877B272EE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dagoba - 7 Альбомов (2003-2017) [MP3|320 кб/с]<Groove Metal, Industri
 ```bash
 magnet:?xt=urn:btih:5B41646BE766209D5B80EA84FE99F6C2DA8EB425
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Korpiklaani - Live At Masters Of Rock (2017) [MP3|320 Kbps] <Folk Metal>
 ```bash
 magnet:?xt=urn:btih:C4D7FA485C2746780C6A33402559AAA92EF62023
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF79C3C88232233B63FCCD8D3390EC69E0FDAD44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F07FAC9A773EF2756306629050E5855214BD5692
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ ACT 2(   Читать дальше...   )Жанр: Symphonic Gothic MetalПро�
 ```bash
 magnet:?xt=urn:btih:63E8DADA6A4ECE22CE4730F4110E7A0B109A143C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

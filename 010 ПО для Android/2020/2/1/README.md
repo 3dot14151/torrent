@@ -20,8 +20,7 @@ TurboScan Paid 1.5.7 [Ru]
 ```bash
 magnet:?xt=urn:btih:4C794FEE469DED9B8920E3DD5ED3E94AE89B5479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Compass Pro 1.49 (Paid) [Ru]
 ```bash
 magnet:?xt=urn:btih:A47804DF1C08C7462507A9AC2CB5E25CB071181E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C59F76A540B6A8FCD201F1B71ADFAE2156F3DABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Jolly Goods - Slowlife (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:4F802D9BE2D8826B1B1E8B85E5AF5F7E6240582A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Homesick - The Big Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 ```bash
 magnet:?xt=urn:btih:6B9A388046B7B0645472A09B34E21F033B7E1E51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Охота 91 (2019) [MP3|320 Kbps] <Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:60EFAD98AB0E2D608A371A534180A8BE240ADEC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jorn - Heavy Rock Radio II - Executing the Classics (2020) Deluxe Edition [MP3|3
 ```bash
 magnet:?xt=urn:btih:072FD79E9A80A40B15241C1E0CC7BD1F5A505310
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Mammoth Mammoth (стилизовано как MAMMOTH MAMMOTH) австрали
 ```bash
 magnet:?xt=urn:btih:C226C08709ABE6F36075140D186DA0AD67E8FB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Temperance - Viridian (2020) [MP3|320 Kbps] <Melodic Modern Metal>
 ```bash
 magnet:?xt=urn:btih:C2432F86DDC09B78633F72C51D5D2966D3F1C5F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Drive-By Truckers - The Unraveling (2020) [FLAC|Lossless|WEB-DL|tracks] <Souther
 ```bash
 magnet:?xt=urn:btih:9E638D5802181F3633C87A9EEA5915A68832E6C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Prog Rocks! Volume Three (2014) Box Set, 2CD [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:8F360267C9B97522EF3F078E286B3E4AC441A863
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Breaking Benjamin - Aurora (2020) [MP3|320 Kbps] <Post-Grunge, Alt. Metal>
 ```bash
 magnet:?xt=urn:btih:C003730DE485422A45E843F8FBB8B7E4C6EC23C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Mono Inc. - The Book of Fire (2020) [MP3|320 Kbps] <Gothic Rock>
 ```bash
 magnet:?xt=urn:btih:1E057F498BF02227808B53C10FFD0B1D466CCD65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Pyogenesis - A Silent Soul Screams Loud (2020) [MP3|320 Kbps] <Gothic Metal, Alt
 ```bash
 magnet:?xt=urn:btih:A3C5AFD996E10B2024DD042803C67AF6D122FA54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ W.E.T. - 2 Альбома (2009/2013) Japan Edition [FLAC|lossless] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:D5FD8A7F38BAA6148BA2161342ADF68471754ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Therion (от греч. θηρίον — «зверь») — шведская с
 ```bash
 magnet:?xt=urn:btih:5CB8F7CE6E7FEB1A222D7D3E8C52501EAFF73424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

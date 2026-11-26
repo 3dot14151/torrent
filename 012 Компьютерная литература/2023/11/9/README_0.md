@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:67D85B0A295D712E2AA1638A01F7E5B2DCAAA3B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brian Lipp | Modern Data Architectures with Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F546496F36B4EAE1AC288DE5AFC4A1178A406636
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

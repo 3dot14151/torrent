@@ -19,8 +19,7 @@ FlatOut 2 - это аркадный автосимулятор с акценто
 ```bash
 magnet:?xt=urn:btih:64D2E98DF7BAF569CBEA7AED9612598A541C239D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tails of Iron (2021) [Ru/Multi] (1.37768) License CODEX
 ```bash
 magnet:?xt=urn:btih:74C49E3EA2D54B8CE721B345A970C933F1C06A10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Lost Souls 2: Timeless Fables (2014) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:AEAC0E5BE54A6EF0378C20BD6977D8ED78E73E11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Souls 2: Timeless Fables (2014) [Ru] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:B2EB437E4DD088C286F9FB54D4981931F5B6C670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Painkiller Hell & Damnation — это восхитительный римейк
 ```bash
 magnet:?xt=urn:btih:B7DFC175CAB2A948D1D95AB92BBB3C43957B509E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Sir, You Are Being Hunted (2014) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D0F8FDD03CA7C98508E4BF2E3A7EADAE4E6B2860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) Repack z10yded
 ```bash
 magnet:?xt=urn:btih:8BA502CD0323FE803F334550DDFA57A945033041
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

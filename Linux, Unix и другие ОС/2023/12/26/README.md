@@ -19,8 +19,7 @@ BricsCAD Ultimate V24.1.07-1 [x86_x64] (rpm, deb, tar.gz)
 ```bash
 magnet:?xt=urn:btih:CC379C16FD1A52A86E873FF2D4650C48C229FDCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

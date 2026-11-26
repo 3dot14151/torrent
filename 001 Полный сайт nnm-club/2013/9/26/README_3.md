@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:DA5486A792949B391F0EB7A27727A7D1BDC033B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Classic ROCK предлагает читателям глубокие анали
 ```bash
 magnet:?xt=urn:btih:A9B0D44298E0DFA38AB9C53CF2BAF3D0452805FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Mail.RU Agent - бесплатная программа для быстрого 
 ```bash
 magnet:?xt=urn:btih:761C13E72445DAC3D3B3255813ED4D267ED3F8EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:DD5781C80F33F6CEB04A87D0B5E16A3EA8EF5D06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:855769F09FA81C17DB1522B6FBFD40E85F7DA38E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Into The Haze (2013) [Ru/En] Unofficial
 ```bash
 magnet:?xt=urn:btih:141F1DE2FBDCF318453AF59D556404BA09471BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ IT Expert - журнал для профессионалов в области I
 ```bash
 magnet:?xt=urn:btih:F0537A87D269042D31E1FC3DA9B2F967DF3F582E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E3E38B40A41F77D7EE5CE467EFEBC41E072AC445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ History Channel. 7 знаков Апокалипсиса / 7 Signs of the Apocal
 ```bash
 magnet:?xt=urn:btih:4CA6BC351B94C02E26D970F769162714AFC61C92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ Ontrack EasyRecovery Enterprise 11.0.2.0 Portable by PortableAppZ [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:82FCF257522A4C069D7F7880855B870959BB4F67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Power Data Recovery - отличное средство для восстано�
 ```bash
 magnet:?xt=urn:btih:AFEE4EDBCE1C3C1232CC5F84C2BCEFCD2A2DD496
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Ginga Tetsudou 999: Kimi wa Haha no You ni Aiseru ka!! / Galaxy Express 999 / Г
 ```bash
 magnet:?xt=urn:btih:224D407354C3C4DDAE026B4FA52338BFFC288412
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ CCleaner - бесплатная программа для оптимизации
 ```bash
 magnet:?xt=urn:btih:91207D46EC6FB1167FD4126D9E310D7BBB9A3E31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,8 +359,7 @@ Giuseppe Verdi - La Forza del Destino (James Levine  & London Symphony Orchestra
 ```bash
 magnet:?xt=urn:btih:F9526C7C33FC3499AFCFE3ECE4EBEB45382780DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -407,8 +393,7 @@ AB/CD - The Rock'n'Roll Devil: We Salute The Originals AC/DC (1992) Japan [APE|L
 ```bash
 magnet:?xt=urn:btih:405E1854FC87A2483DFF27A06FEFBE020D7F914D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Moby - Innocents (2013) [FLAC|Lossless]<Ambient, Downtempo, Experimental>
 ```bash
 magnet:?xt=urn:btih:591AD69E5415F5E540711DDED05AE1DC5C16206B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +453,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:96A65513D6D531379B1416C5A2E25FB15CD7D068
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,8 +487,7 @@ Guns N' Roses - Roses N'Guns (2013) Geffen Records / compilation [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:B0A576564A092DA949A410073A8C657BD03824A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,8 +521,7 @@ Santana -The Essential Ballads (2013) [MP3|320 кб/с]<Latin Rock>
 ```bash
 magnet:?xt=urn:btih:AD5768E257FB83ADEAFD77C80B25E2DA739124FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,8 +555,7 @@ B5.  Queen Of Hearts (Remix)  :: 04:14Жанр: Synth-pop, EurodanceФормат
 ```bash
 magnet:?xt=urn:btih:1B2F744B98DD788789CB7E2ADEBEA497D0710362
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:718EECE94B6E5D7B0BEBDEF08C781B4FE78E91D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +640,7 @@ Eyes Set To Kill - 5 Альбомов (2008-2013) [FLAC|Lossless]<Post-Hardcore 
 ```bash
 magnet:?xt=urn:btih:73B25B48E5CC4F3A3CC1720DBCDF694CDDA4B6E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7552604E4381CDAF6ACDF3CDE98EDC08121C347D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +691,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D750A28F333043C9B44B2845609EAF9E38B9711B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -741,8 +716,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6F71DC668164FE9CFD77A5DBDD4433AE9A19D96B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

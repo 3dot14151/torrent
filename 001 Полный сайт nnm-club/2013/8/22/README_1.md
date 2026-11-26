@@ -18,8 +18,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ love solfege'- 25 альбомов (2002-2013) [FLAC|Lossless] <J-pop / classica
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso.Язык интерфейс�
 ```bash
 magnet:?xt=urn:btih:CD98D6039AD3022E135487CE7AFD4F95BCFE7B44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

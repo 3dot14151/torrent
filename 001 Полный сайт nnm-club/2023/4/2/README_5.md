@@ -19,8 +19,7 @@ iZotope RX 10 Audio Editor Advanced AU, VST3, AAX, STANDALONE 10.4.0 [En]
 ```bash
 magnet:?xt=urn:btih:83FFC5427A9B92AEBA94658BAF09206CCD4AAAA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:678BED271F31F0CF0CBB9B415821D7FF70DAAFB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Opus Magnum — новая игра-головоломка с бесконечн
 ```bash
 magnet:?xt=urn:btih:D61AA05747143A14F9AFD80D6C1367AF17BD3F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Nokemono-tachi no Yoru | The Tale of Outcasts | Сказание об отвер
 ```bash
 magnet:?xt=urn:btih:362ECF7B8F564FD9791979FB1DC7B515DC4D7D57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E40362181C7A8CD1EEA63C37FA814E3DF9AF4B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C7B1A94D9C811757FDC1325D47F68C485E6645A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA8BFD8541C4EF21BAEE60C1BF3B3AC0AD314A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

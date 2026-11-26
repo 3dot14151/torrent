@@ -19,8 +19,7 @@ NXPowerLite Desktop 6.2.12 Portable by poni-koni [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:510A98F3C7CAE4F31A9187DE30254C6F6EBC5EDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

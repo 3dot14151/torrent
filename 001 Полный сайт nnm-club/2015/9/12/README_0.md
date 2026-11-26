@@ -20,8 +20,7 @@ Liset - 2 альбома (2009-2010) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Pop>
 ```bash
 magnet:?xt=urn:btih:E229B6542A67DFF3AA7B8E1A2A780581DA195E81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81DCE3280A47A73DBAF96326740A61F9876C5C07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1988DBAE2A7A7D08B2316710FFA7D61D47C129D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14845E54471ECA39CE4FA23E4BF383611B85AF0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Light ? Staff - 4 альбома (2005-2009) Touhou Vocal, Instrumental /Doujin/
 ```bash
 magnet:?xt=urn:btih:D74E6AACDCFDD39817979ED992D4A7D384A1B870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ krossway - aquaim (2011) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic>
 ```bash
 magnet:?xt=urn:btih:DD0535107C91C80A0AE781B075632C5F64A23590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Lobgesang - Haru, Gensoukyou nite piano o kakinarashite mireba (2011) Touhou Ins
 ```bash
 magnet:?xt=urn:btih:E3B2999341FF807596199FA087609C0B0A474E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB6E3A8DE8B15E5BADC429F91362B614E1B62DB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0E4532A8013EBD30EBDFBE706A8383AB1C324E57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DA16A4D9B4B804FE50D09CFFDA24A56DAD07167C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9BAF9FB5CBFB8691CB9B6390EA237BAE09E1277C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D11F89B006532AC6B73A6A48D4C2E5B7F443C51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:63994D12ECFB88A21593C395DAC8D5BF11FF9CFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -381,8 +368,7 @@ rythmique - 10 альбомов (2009-2011) Touhou Vocal /Doujin/ [FLAC|tracks] 
 ```bash
 magnet:?xt=urn:btih:1E9477D99F1BEE1130CCF1CB92D396A3A1C0951E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +396,7 @@ Control - In Harm's Way (2015) [FLAC|Lossless|WEB-DL]<Industrial, Power Electron
 ```bash
 magnet:?xt=urn:btih:BD06C51C4580E24BE5B7C9B9AAEA5A88B0217FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,8 +424,7 @@ Liverne - 3 альбома (2006) Touhou Instrumental /Doujin/ [FLAC|tracks] <El
 ```bash
 magnet:?xt=urn:btih:E59C232A19A9CDF83930AB4FCC26607CC22889D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,8 +449,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3F78CFA74F4FA1C789DC7BFC85792B5D80162C17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ VA - Laidback Jazz (Chill Lounge Vibes) (2015) [MP3|320 кб/с]<Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:63EB2F3F9B24BA35BDACCDC6BDA4C2F6E8AC1E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01B4340EE82F622E6354821A8EA6D3F6A35E25A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,8 +530,7 @@ KSNT - 4 альбома (2010-2012) Touhou Instrumental /Doujin/ [FLAC|tracks] <
 ```bash
 magnet:?xt=urn:btih:54F4F756F6448AA492F5929383CC8F7FB6CF1A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +558,7 @@ little white snow - 7 альбомов (2009-2012) Touhou Vocal /Doujin/ [FLAC|t
 ```bash
 magnet:?xt=urn:btih:76626DAFB6A94792D7786791E242560BD01C4F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A186B783A682764BE11782019750A60D3801BF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDF0054E4F98787876B843933D07A735CEC46C11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +635,7 @@ logical emotion - 2 альбома (2011-2012) Touhou Instrumental /Doujin/ [FLA
 ```bash
 magnet:?xt=urn:btih:DF6663710EAE7A887C77F19A290010B0A55A4991
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +663,7 @@ The Future Sound Of London - Archived 8 (2015) [FLAC|Lossless|WEB-DL]<Downtempo,
 ```bash
 magnet:?xt=urn:btih:481E5D5284EE3FF1E752888FE34B04879000407D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +688,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:64A2FA57741FAD7D6D1B0E4C47547B5D5E72372D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

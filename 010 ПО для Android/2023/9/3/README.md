@@ -20,8 +20,7 @@ FFmpeg — набор библиотек с открытым исходным к
 ```bash
 magnet:?xt=urn:btih:2923FAD64112A29F586F2620DFEC2E53CFA12FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6C95F9EBE29ABEA5FAE1C2012A184CB4EF0D547D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Flibusta Downloader v4.5.1 Test [Ru]
 ```bash
 magnet:?xt=urn:btih:62E054D3183613EB94209E8E0ADF8B41B6977206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ All Language Translate App 1.65 Mod by ModdingUnited [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:59E5BBF9EBEEBC301E96B781C7793FBDE3DEBC90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:509035081B5CE1BD1220CEA6C56BAFD662443E8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

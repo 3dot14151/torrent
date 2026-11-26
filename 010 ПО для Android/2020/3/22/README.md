@@ -19,8 +19,7 @@ Deezer — популярный сервис потоковой передачи
 ```bash
 magnet:?xt=urn:btih:B5CC7AFFC169AC99F68A620FE865AA9B49F2BDA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

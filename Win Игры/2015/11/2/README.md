@@ -19,8 +19,7 @@ Sea Of Lies 4: Tide Of Treachery / Море лжи 4: Поток предате�
 ```bash
 magnet:?xt=urn:btih:81BDB52D131573444605D66BDAC706028AFF3234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DreadOut - на удивление весьма страшная хоррор-а
 ```bash
 magnet:?xt=urn:btih:4B5219C0376630CF013EDC3D393241C30F6A57A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

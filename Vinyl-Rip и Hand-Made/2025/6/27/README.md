@@ -22,8 +22,7 @@ Sodom — немецкая трэш-метал-группа из Гельзен�
 ```bash
 magnet:?xt=urn:btih:F2CCC08F48EB63226F419B6061A47285E48372F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

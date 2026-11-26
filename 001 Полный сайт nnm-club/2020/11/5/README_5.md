@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:149FFCF1DC6D6E428CCCFDB7B7E74906A461E0DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Kaspersky Internet Security - комплексный Антивирус Касп
 ```bash
 magnet:?xt=urn:btih:9D775B27101C9512C9D3309999E8D5746D352EBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ PositronX — это футуристичный роуглайт-шутер со
 ```bash
 magnet:?xt=urn:btih:9D6527E2F2602069934508D30F0D085C0BD28901
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Udemy, Denis Astahov | Kubernetes с Нуля для DevOps Инженеров (
 ```bash
 magnet:?xt=urn:btih:A731A2BD3ACAFB071A641748E43809497B00793F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ MInstAll v.05.11.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:AF00877F8E7F33E2EDCD17166FCC817611B1CCC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Eizouken ni wa Te o Dasuna! | Руки прочь от киноклуба! [2020
 ```bash
 magnet:?xt=urn:btih:1D3CC430E9D848E52630B90D1DCBBBB666CD710F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F0C3ECC0F2AAE4568CB08C1DCA18A3E8CAE8EBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:622292184C5804D850B5797ADB2160C4F4D14777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +225,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:296B8A3F09E98D64D1328DA4C919D56061088A80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +250,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.7.4/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C592A986135CC4F2714D9ECC79FB9F4B579D54D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ One Piece / Ван-Пис [1999, TV, 741-948] HDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:083740C7628870F42DB9AA32997B10286807DCF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

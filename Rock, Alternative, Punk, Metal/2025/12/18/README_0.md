@@ -22,8 +22,7 @@ Lord Of The Lost - Blood & Glitter (2022) Deluxe Version, 2023, Napalm Records H
 ```bash
 magnet:?xt=urn:btih:740E35E6065951EFCCCC7F863B606D4D15951FFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

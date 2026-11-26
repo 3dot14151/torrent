@@ -19,8 +19,7 @@ Fatal Evidence: Cursed Island / Роковое доказательство. П�
 ```bash
 magnet:?xt=urn:btih:C05254E281140013979FCF43CC39FCE53004D808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

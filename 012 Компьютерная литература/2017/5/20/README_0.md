@@ -20,8 +20,7 @@ Gradle - это инструмент для построения и автома
 ```bash
 magnet:?xt=urn:btih:9D8A3D4725370DF3BAFA5D4FFA53F5EB65BA47D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Java code geeks | GWT Programming Cookbook (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:2D7B3F6E7376DC6F0A6EE28668332FCFED54DF6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Bootstrap - самый популярный проект с открытым и�
 ```bash
 magnet:?xt=urn:btih:E3B6553850D1A95FB94E316F6FF94EE7EB8259BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:58899F4A338E50D6D9CC1C4D1BE3CD31C6D178B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

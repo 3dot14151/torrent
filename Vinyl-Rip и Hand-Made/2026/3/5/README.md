@@ -22,8 +22,7 @@ A4 Edelweiss (1967)(   Читать дальше...   )Жанр: PopПродол
 ```bash
 magnet:?xt=urn:btih:3DB32CE1BDCBB6E18423CC9FC7F8C28857166E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

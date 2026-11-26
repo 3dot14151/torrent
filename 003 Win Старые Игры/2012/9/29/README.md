@@ -20,8 +20,7 @@ European Air War [En] (RePack/1.28e) 1998 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Red Shark / Красная акула [Ru] (L) 2002 | RG games/Pilotus
 ```bash
 magnet:?xt=urn:btih:FE1F4ED0810051512AC357BE8A31DE842EEBA6DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Flanker 2.5 Combat Flight Simulator / Су-27 Фланкер 2.5 [Ru] (L) 2002
 ```bash
 magnet:?xt=urn:btih:C0A354381E864343D29114161EA59E2B34E41661
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ The Case of the Silver Earring / Шерлок Холмс: Загадка сер�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

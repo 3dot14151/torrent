@@ -22,8 +22,7 @@ Laurent Cugny & Orchestre National De Jazz - Yesternow (1994) Verve[FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:33FF2098927A96D3A587B3C4C965654824E0C0F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cashew 1.7 [En]
 ```bash
 magnet:?xt=urn:btih:43E259FD8EF2030CF7652C4A977F587E099CC226
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mashu - Elephants In Your Head? (1996) [WavPack|Lossless|image + .cue] <Сanterb
 ```bash
 magnet:?xt=urn:btih:8D31A2AB0EA692969DB62DC428AE2B40977F575E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Beatport Trance Pack 02.08. (2016) [MP3|320 Kbps] <Trance, Progressive, Ene
 ```bash
 magnet:?xt=urn:btih:C16D8D273B0B882F455A5BDCB05580E95C09BA0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Holy Blood - Волны Танцуют (2004) [FLAC|Lossless|image + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:F2E1E0A0D096693E188B6FC9FE5D1B6FE36B3390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Transparent World Melodies (2016) [MP3|320 Kbps] <Trance, Progressive, Ener
 ```bash
 magnet:?xt=urn:btih:01AB9DE14E1CC3F29757E0C916477B06A39CEC2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:610B4324229B7350794BA36D9208C2AD2773F152
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ Canned Heat - Friends In The Can (2003) [FLAC|Lossless|tracks + .cue] <Blues Roc
 ```bash
 magnet:?xt=urn:btih:D361E9DB30BE2A956B4E34502AB25519B8D8448F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ Mass Deception - Revelations (2016) [MP3|320 Kbps] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:F79BE2611512FE38FB9285CB8344A2116743A58E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Scott Weiland and the Wildabouts - Blaster (2015) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:D9C94260E673B47CB7805FC2E9671E8EC987B8EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:81AE674D81FBE2FBE31E48EB10294D968A49DCB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3AD8008CB123F38A591BE59E4E91A33F1342B7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +351,7 @@ Canned Heat - Friends In The Can (2003) [MP3|320 Kbps] <Blues Rock, Boogie>
 ```bash
 magnet:?xt=urn:btih:4097261B7EA5A5717D42206698869A124BE8E55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +379,7 @@ VA - Русская тусовка №5 (2016) [MP3|256 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:7670EAEAA485555D9EE6D697C22B129C45B8F466
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +404,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6E9FD80C86E1443DB0969675B7F8057FB748B0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ Joe Stump - Revenge of the Shredlord (2012) [FLAC|Lossless|image + .cue] <Neocla
 ```bash
 magnet:?xt=urn:btih:8F75D13766FC97ACA7263E0030A947CD1905AF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:214A957EA511A9050ACBF0CF8C346D868B4992D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +485,7 @@ Charlie Byrd Trio - I've Got The World On A String (1994) Remaster, 2015, Solid 
 ```bash
 magnet:?xt=urn:btih:4A6D07865CFB4C49968E77509DA5A0664E1FCD90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,8 +513,7 @@ Yummy FTP - “вкусный клиент” для ФТП
 ```bash
 magnet:?xt=urn:btih:72CCFCE3C9EAA4BB0432A36BEE90AF8FFCCEA28B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +541,7 @@ XXVIII летние Олимпийские игры проводились в с
 ```bash
 magnet:?xt=urn:btih:53B304CB73214506A4703A98E97D3A008122E471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +566,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:1A2AC8949978AE782423D64670A3A346DC221D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DC28B026A498A02DE5B54C76D3FCE5A79F487B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ VA - TOP. Летние хиты на Русском радио 6 (2016) [MP3|256
 ```bash
 magnet:?xt=urn:btih:F02B24A2C8D6E0FBB4D5DEC669AF7868FAE35F19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,8 +646,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED8C59BE3861F82438A579CEDD235B6317211C20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F97EE784D3F2A5EB7A281501F50F1C99CEF89A7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -722,8 +697,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:931BB87FAC0A57ED864CC76B0D9DF85D37C06D97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

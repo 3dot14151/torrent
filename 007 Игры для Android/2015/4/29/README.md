@@ -19,8 +19,7 @@ Chip and Dale 1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:202E054068896BDE3F7FD83B36FAA9ABD304DC11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Darkwing Duck 1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:DC0631E5D18C88959DE5A2F7C1F13CD53684D07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ Super Mario Bros: - Что можно сказать об игре Марио? �
 ```bash
 magnet:?xt=urn:btih:D549D43E2992AE32B964256D6B7B21B69940136F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ FINAL FANTASY [Ru/Multi] Сборник 8
 ```bash
 magnet:?xt=urn:btih:451A86C7EBCF75DD2D0009F0A2F01E5B73E9EAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

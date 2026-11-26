@@ -19,8 +19,7 @@ Whispered Secrets 6: Song of Sorrow / Нашептанные секреты 6: �
 ```bash
 magnet:?xt=urn:btih:1911912B77093CA586A522EF4F0011E2BE336841
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hidden Expedition 10: The Fountain of Youth / Секретная экспеди�
 ```bash
 magnet:?xt=urn:btih:F7F9476CEE2C4795FC38118358EB089D151D3BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Rogue Wizards - красивая пошаговая игра в стиле rogue
 ```bash
 magnet:?xt=urn:btih:3BD02AB8C64866A2C3C43391CC902DD33278792A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blade & Bones (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:90F7C273B4E4D642801F7BD7597BE580E89ABAE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Radiation Island — приключенческая игра, где вам пр
 ```bash
 magnet:?xt=urn:btih:BE0E1DEEF0B5471EC763CDAB343E4E1250B194FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sid Meier's Civilization IV (2009) [Multi] (1.74) License GOG [The Complete Edit
 ```bash
 magnet:?xt=urn:btih:B7AC979B46F6BFDD0FE748BCA8F55C4EE6D2AD1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

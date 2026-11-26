@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:830006F76DA716DFC5640C7A9059317D3D57119D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ice Cream Crazу (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:01B3A70D42CD96C9CC19B33A94D3F074F2642956
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Scene FAiRLiGHT
 ```bash
 magnet:?xt=urn:btih:4DBE70AF21164689EE54D726E365A5BF6C00A820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:625DE654909C105BE810B5CEB33A7C53DA038B5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Primeval (2020) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:159B355E37B21C9016EF3C9C992FF327270448D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 ```bash
 magnet:?xt=urn:btih:3221A48CD806F313801672F0890DD55AF823CB9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Pine: A Story of Loss (2024) [Ru/Multi] (1.4.12853) Repack FitGirl [Collector's 
 ```bash
 magnet:?xt=urn:btih:FA4D5BD47F1D82813AB76209715E6159535A8EE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Teslagrad Remastered (2023) [Ru/Multi] (Build 11359912) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:23DD894CF8CBBB7B3AC5789A78409326ABA59685
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Matsuro Palette / Палитра Смерти (2020) [Ru/Multi] (1.0.0) License 
 ```bash
 magnet:?xt=urn:btih:9116DDFBD83AE07FF8FEC7480012797127BE7D49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

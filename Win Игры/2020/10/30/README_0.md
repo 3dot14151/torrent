@@ -19,8 +19,7 @@ Alwa's Legacy - современная игра в стиле ретро, пол
 ```bash
 magnet:?xt=urn:btih:DF3490BFB1632179203B0BF4798676FF1237ED10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

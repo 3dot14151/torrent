@@ -22,8 +22,7 @@ Fireleaf - Behind The Mask (2016) [MP3|320 кб/с] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:99EDF37DA730151717F0F147363F4AAF06EB3303
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Karybdis - Samsara (2016) [MP3|320 кб/с] <MDM>
 ```bash
 magnet:?xt=urn:btih:E38A0333EADD57C4359A369A1B7C84A35CC55610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Omnium Gatherum - Grey Heavens (2016) [MP3|320 кб/с] <MDM>
 ```bash
 magnet:?xt=urn:btih:3253E0356951D02637047BC5A006ECB89F2F484A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Children Collide - Theory Of Everything (2010) [FLAC|Lossless|WEB-DL|tracks] <Al
 ```bash
 magnet:?xt=urn:btih:56FC75A06C15C3711C8F7C315FDB0B0C687DB009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Beyond The Black - Lost in Forever (2016) [FLAC|Lossless|image + .cue] <Symphoni
 ```bash
 magnet:?xt=urn:btih:406BBFEA71F060B0C037445D65F6597F0B2D7E49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Cure - Mixed Up (1990) [FLAC|Lossless|image + .cue] <Alternative Rock, New W
 ```bash
 magnet:?xt=urn:btih:4DB0849D0D418AC5B3AFD660790725E1104CDA1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ F.P.G. - Сквозь ненависть (2015) [FLAC|Lossless|image + .cue] <Pu
 ```bash
 magnet:?xt=urn:btih:8FF8BB1EDFCE4AA131EBA34D81FF772498ED8D41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ DDT - Время (1985) 1997, DDT Records [FLAC|Lossless|tracks + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:166474AB469C4DF6EB44DA60AC72CE96D4ED9913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Mastodon - White Walker (2016) [MP3|320 кб/с] <Heavy Metal, Progressive Metal
 ```bash
 magnet:?xt=urn:btih:B7F16B2A6EBDC7F141268AAE719A90824A23C7B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA66A9AA98EA580C8BFB8FF64DAA92932764CA8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00D1D38E8567F60864C3B203357E3ED70958303A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

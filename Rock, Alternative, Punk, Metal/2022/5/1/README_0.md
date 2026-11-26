@@ -22,8 +22,7 @@ LionSoul - A Pledge to Darkness (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Power M
 ```bash
 magnet:?xt=urn:btih:9E0E1095E903D42C428B1F0050786DFFCC45AAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ This Raging Silence - Broken Oceans (2022) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ```bash
 magnet:?xt=urn:btih:12985B41287BE202228734A4ACF354C87DAAFD4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Charlie Collins - Undone (2022) [FLAC 2.0|192/24|WEB-DL|tracks] <Indie Rock, Alt
 ```bash
 magnet:?xt=urn:btih:6C7030DD4E6C1D18CCB6917039F7BF0353E0BD17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Abated Mass of Flesh - The Existence of Human Suffering (2022) [FLAC 2.0|48/24|W
 ```bash
 magnet:?xt=urn:btih:EEBEED623EB8BFB9DE7BBD561EA685A5F8803237
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Spirit - Of Clarity and Galactic Structures (2022) [FLAC 2.0|44.1/24|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:AAA149E83ACBBA92357572B587E5533943CFEC55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Unitopia - More Than A Dream – The Dream Complete (3CD) (2017) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:666F89EF2D0CE21FCCCD94347766AF3B4A37CA4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Ted Nugent - Detroit Muscle (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hea
 ```bash
 magnet:?xt=urn:btih:68FEABEEE9F9089515453911EA6495C868B891CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A641D8087E73F4C0AC5F428DDB54D56114067E06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

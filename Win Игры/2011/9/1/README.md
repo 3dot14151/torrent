@@ -19,8 +19,7 @@ Mystery Murders: Jack the Ripper (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:AEBBC0AFC18C3A39CAF20613D62E52198D0D8EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crime Solitaire (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:1F974B4DEA032644C46AB180B6C5F42992696715
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enigmatis: The Ghosts of Maple Creek Collector's Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:0F95CA65C39E15157591E4AF2A46D41F02BC09E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Puzzle Agent 2 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:1606B830CA8386B7E861A13133F0A795773F0479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ My Kingdom for the Princess III (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:7DB91AF3F83ED13D5C1F02B860D9564F51F6241C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Haunted Domains / Веселая нечисть (P) [Ru] 2010
 ```bash
 magnet:?xt=urn:btih:517491F94DABE8DDBBBE664662A379EE2759DB5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Europa Universalis III Chronicles / Европа 3 Золотое издание
 ```bash
 magnet:?xt=urn:btih:CEA17D5D1F08E845835655483B1D3B4218ABF94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

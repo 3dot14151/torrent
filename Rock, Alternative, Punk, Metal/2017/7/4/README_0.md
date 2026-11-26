@@ -22,8 +22,7 @@ Terrifier - Weapons of Thrash Destruction (2017) Japan [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:3131660B5284A7A0646B9B3654F695E8C1FB53AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Roger Clyne And The Peacemakers - Native Heart (2017) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:977C85738F599CDC40368D6B292B93DDB1C95EF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Overland (2019) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:01CDA18AF16901BDABCD16282F2137E69D1C036F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

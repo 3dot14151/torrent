@@ -26,8 +26,7 @@ Hacride - Deviant Current Signal (2005) [APE|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:4BE935DFB3A84600F89C2B6E9D1306871C668BD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ People Are Mechanisms - VII (2014) EP [MP3|320 кб/с]<Depressive Black Metal>
 ```bash
 magnet:?xt=urn:btih:21C70ADB45E221DD9C10316CA156C3BEA589BC9A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Hacride - Back To Where You've Never Been (2013) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:0BC80DA1DB9E969485F892CB808997F75F9C372F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Zeelion - Zeelion (1998) Japan [FLAC|Lossless]<Heavy Metal / Power Metal>
 ```bash
 magnet:?xt=urn:btih:940FF57C7CCCCD9D0EE6116227320953C2E8D830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ Isole - The Calm Hunter (2014) [MP3|320 кб/с]<Epic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:889C704D1571B8279F22C6E3018491A1FA6CF5E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -191,8 +186,7 @@ Gayngs - Relayted (2010) [MP3|320 кб/с]<Alternative/ Experimental/ Indie/ Sof
 ```bash
 magnet:?xt=urn:btih:E7F05E03D3A2C4DC52744DA92C0D31DDA2451EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -226,8 +220,7 @@ Black Moon Secret - Another World (2014) [MP3|320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:7A63D42AAC9F634A394C7F4791645CA25F6D0393
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +251,7 @@ Haken - Aquarius (2010) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:E2E2A6FF14CDE9A6F0732E646C556C2B85F1CC5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +279,7 @@ Crocodile T.X. - За горизонт (2014) Unofficial EP [MP3|320 кб/с]<Ro
 ```bash
 magnet:?xt=urn:btih:BE9560C2E1BAECE7213C45EE7E5A53572BF2CA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ Apolo-13 - Другая Луна (2014) EP [MP3|320 кб/с]<Alternative Rock | 
 ```bash
 magnet:?xt=urn:btih:FBCDBBB5016E78B81F1A9318A0D5FD8C25561AB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +341,7 @@ Queen Dementia - The Aftermath (2014) [MP3|320 кб/с]<Melodic Heavy Metal / Al
 ```bash
 magnet:?xt=urn:btih:D433E6B557B80FABC4E72F44A4CFDFC7BB9F3C5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +375,7 @@ Haken - The Mountain (2013) [FLAC|Lossless]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:32A0720BC41C65F503A5E84239B932CC22BBAB85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +409,7 @@ Martin Barre - Order Of Play (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:61C2B736FC1E24E7B77E8743B7ABD2546679975C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +443,7 @@ Puhdys - Heilige Nächte (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:6C52099B25541C0E95683D2298003D15E706B889
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +477,7 @@ Sargeist - Feeding the Crawling Shadows (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:06D2AD84D00D7C0F7844B89605D67ACD6A383744
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:359F6E79FBB137623A3F58716263172C8C74D1C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Rayman Raving Rabbids 2 / Rayman: Бешеные кролики 2 [Ru] (RePack) 
 ```bash
 magnet:?xt=urn:btih:E2A78ACB891547E6C166B6EE6D38324DE52929E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

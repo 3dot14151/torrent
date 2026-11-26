@@ -19,8 +19,7 @@ Joy Walls стремится предоставить вам уникальны�
 ```bash
 magnet:?xt=urn:btih:482A88C9783167930F03E8369DA762FF12697484
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VPN.lat — это бесплатный VPN-сервис для Android с се�
 ```bash
 magnet:?xt=urn:btih:8D1C07574DDA611DF97212B70E7EDAE9DBD0FB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

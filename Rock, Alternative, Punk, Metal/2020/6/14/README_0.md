@@ -22,8 +22,7 @@ CD - 1 : 01. A Crack in the Ice (07:25)
 ```bash
 magnet:?xt=urn:btih:A44B27D3C054AA8A27E7C224032478FB5B754F28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Built to Spill - Built to Spill Plays The Songs of Daniel Johnston (2020) [MP3|3
 ```bash
 magnet:?xt=urn:btih:A5BA5D89E7E2BAA45A03585E779543A30A9A7A0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Other - Haunted (2020) [MP3|320 Kbps] <Punk Rock, Horror Punk>
 ```bash
 magnet:?xt=urn:btih:2A1745741666FD3DA869EA697AEA03BE4BC8D452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

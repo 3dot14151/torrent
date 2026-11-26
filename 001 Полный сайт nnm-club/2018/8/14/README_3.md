@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:157630D0E954A669B19F1D6C71AA9004C2BAE620
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C58BDDFB3D5790A82E213C92404E59D6D12EB896
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ MAXON CINEMA 4D R19 - простая в использовании профес�
 ```bash
 magnet:?xt=urn:btih:A0AC7EA4EA270CD9FEF8BEE97CFF1F2334354220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70427A86D26B32D2E10E5F9B10C86ABE120290B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ VA - Deep House Collection Vol.182 (2018) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ VoluMax - 3D Photo Animator V5 Pro - проект для невероятной 
 ```bash
 magnet:?xt=urn:btih:BD6003F92F8C1137AD82068C8E2D6E650774E4A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ TransRoad: USA (2017) [Ru/Multi] (1.2.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7261A7ED76314A7A92B5C281520762051E6B86FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Steel Division: Normandy 44 — это тактическая стратегия
 ```bash
 magnet:?xt=urn:btih:F346D6CC08E27BE3445C2CE0BC0F8D9B773D3F35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF79BF7E47E379E83703A5C0708EF8502BE29770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

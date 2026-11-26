@@ -19,8 +19,7 @@ Grim Tales 11: Crimson Hollow / Страшные сказки 11: Багрова
 ```bash
 magnet:?xt=urn:btih:AA7A8C7D4A25F0C06BA185D5ABDAE513DB2EAAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Rain World (2017) [Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:D66471E5B2B71331FE0FF28C7CD1435DB7DE0672
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Metal War Online - это клиентская сессионная MMO-игра
 ```bash
 magnet:?xt=urn:btih:C203B1BE83541AFBF0364676F5E4CC224A0E34FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Narcosis (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E129E0608355C7017955CCEDDE1004F4F2B95746
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

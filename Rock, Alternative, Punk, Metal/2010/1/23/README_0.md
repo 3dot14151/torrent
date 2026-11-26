@@ -20,8 +20,7 @@ Electric Six - Дискография (2003 - 2009)[MP3|192-320kbps] <Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

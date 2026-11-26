@@ -28,8 +28,7 @@ Cnoc An Tursa - The Giants of Auld (2013) [FLAC|Lossless]<Folk/Black Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ William Adamson - Under An East Coast Moon (2013) [MP3|320 кб/с]<Alternative,
 ```bash
 magnet:?xt=urn:btih:85E2996F3B577F207C6DF55659759EBD0AD9313F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Casketgarden была образована в 1998 году тремя музы�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ Schlafes Bruder - Heute War Gott Nicht Hier (2013) [FLAC|Lossless]< Symphonic Go
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ Marillion - Early Stages: The Highlights (2013) [MP3|320 кб/с]<Progressive Ro
 ```bash
 magnet:?xt=urn:btih:7C40FB39EC6AD918918C3F8A6B2D3A6E0FC02DE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

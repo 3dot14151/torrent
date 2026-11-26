@@ -19,8 +19,7 @@ The Silent Age (2015) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B30CD64E7E4E83836F7713815796A6A9790DAB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.1.26.58380) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9D29C313FD60B03E79BED31DF088CA825911DBF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

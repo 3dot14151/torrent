@@ -20,8 +20,7 @@ BatchOutput PDF упрощает вашу жизнь, автоматически
 ```bash
 magnet:?xt=urn:btih:C2322FA630245346883BAF7FFF22239CE303411B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ ToothFairy поможет вам перейти от одного выбранн
 ```bash
 magnet:?xt=urn:btih:04279B8572959F85CC5A26922B4E3920A750E388
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Ph
 ```bash
 magnet:?xt=urn:btih:5D2B1A1B210C0CA4AB5AEF4A6C87BFC7CF60E1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ Sun Ra - Jazz in Silhouette & Sound Sun Pleasure!! (1959) 2011, Phoenix Records 
 ```bash
 magnet:?xt=urn:btih:2EB37125DE7BE2C8F9EC94D98BF9FD75C4ADA2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Mellel предлагает специальные инструменты для
 ```bash
 magnet:?xt=urn:btih:86C17F479F44B013059B3367AE1EB973C3254865
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Serial современный эмулятор терминала, которы�
 ```bash
 magnet:?xt=urn:btih:1F126AEB6E436F1C36B2E7ADD7CBBA84AE65A2E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ TinkerTool System - утилита для управления скрытыми 
 ```bash
 magnet:?xt=urn:btih:23942A7EAACEA78D678C47FEA0FBA99B267F9183
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D6DCDC1D542CD51569B8B44BA6BEFD3E8905F48A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ Hype - приложение, которое открывает для польз
 ```bash
 magnet:?xt=urn:btih:E4FC1BDF3C09E04E1786B182BDC6AD87389D8881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,8 +258,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0B8684BA4A18E4A88934BBCCD383097FB178503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +284,7 @@ Airmail – это почтовый клиент для операционной
 ```bash
 magnet:?xt=urn:btih:0D23EDBE83BA7ADB5381809A1BF952AFEA17BDA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,8 +310,7 @@ Pastebot - менеджер истории буфера обмена.
 ```bash
 magnet:?xt=urn:btih:665AB8C83D679F2339D22037712C793F1BFB4439
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -350,8 +338,7 @@ Mirror for Sony TV 3.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:3D371D4DFED561D3C17D3B03E418A039D2686214
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Pro Microphone: Audio Recorder 1.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:E2B8021E9F2C2A544885E766F96BF7149BA1556E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +391,7 @@ Bad Touch - Kiss The Sky (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1014E8DFA99EE1771C24804A9613B53B6040DBF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ VA - Abora Progressive: Best Of 2019-2020 (Mixed by Tycoos) (2021) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:4C60C23163688C770D85204BD73140D51C25FEA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,8 +446,7 @@ Mountain Duck позволяет монтировать любой удален�
 ```bash
 magnet:?xt=urn:btih:06E14FA4C5320286ED80525A894E5237EA131778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ Silent Temple - Marvelers Of Creation (2020) [MP3|320 Kbps] <Progressive Rock, C
 ```bash
 magnet:?xt=urn:btih:ED364FB7408390D9B0C939C097F880AE10DC6BCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +499,7 @@ Camtasia for Mac — эффективное приложение для созд
 ```bash
 magnet:?xt=urn:btih:B02AABB0CD3ABD59C25BDE797FA5E814390474F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ Showaddywaddy - Under The Moon Of Love (1993) [FLAC|Lossless|image + .cue] <Rock
 ```bash
 magnet:?xt=urn:btih:F27BCA98E3225DF316F5F357F5218F58C1A279BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +552,7 @@ Himote House | Himote House: A Share House of Super Psychic Girls | Дом Хи�
 ```bash
 magnet:?xt=urn:btih:E7651CD765161665042D67D0BC4E24B2F895E615
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,8 +580,7 @@ VA - Dennis Sheperd - Find The Sunrise (2021) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:03E69EC5B355DAD10AB3917B1EAC9F77CF29CA3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +608,7 @@ Soman - Re:Up (2008) [FLAC|Lossless|image + .cue] <Rhythmic Noise, Industrial, T
 ```bash
 magnet:?xt=urn:btih:3881F985F17CF5D47093023DE909B59FADE80D4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +636,7 @@ Showaddywaddy - Greatest-Hits-Medley (1991?) [FLAC|Lossless|image + .cue] <Rock 
 ```bash
 magnet:?xt=urn:btih:514BBCA47DA8AA0D9B325A49C435894B9675CA65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ BatchOutput Office Suite 2 [En]
 ```bash
 magnet:?xt=urn:btih:1D83568DBBAE02BB3587697C5CDDAF6847098910
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C5E695FB9FEC993970E133047B2DB020C5AB11BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

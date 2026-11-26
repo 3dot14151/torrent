@@ -19,8 +19,7 @@ Square Enix и Tri-Ace представляют последнюю часть с
 ```bash
 magnet:?xt=urn:btih:EDC7C6E4172B79E04A25BF657E75365AC9367F40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mokoko X (2023) [Ru/Multi] (1.03/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:AACBAE8D8C7C4EAA562AB3CB089DB9C26384D970
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

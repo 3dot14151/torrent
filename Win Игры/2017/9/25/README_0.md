@@ -19,8 +19,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/En] (1.0/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:3361A960129D7615CD9E54EEDD7AA1120C0C5FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ WRC 7 FIA World Rally Championship (2017) [Ru/Multi] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5F310297E74F7C0FDABE4A16331F0A1AB2B57CF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

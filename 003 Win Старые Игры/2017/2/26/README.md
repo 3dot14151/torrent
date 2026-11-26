@@ -19,8 +19,7 @@ Imperium Galactica 2: Alliances (2000) [Multi] (1.83) License GOG
 ```bash
 magnet:?xt=urn:btih:E1568098544E09409B9D978B1B18ED9D2C5E899E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Zwei: The Arges Adventure (2018) [En/Jp] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:7E9613ED2ECAB58FF48BDF7380B2A39308241074
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:8752702971FDA1047316A96A2CAED0749E65FE15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battle Chasers: Nightwar — это ролевая игра в духе лучш
 ```bash
 magnet:?xt=urn:btih:14C5DC3EF0A976AD0874DCF4BCFA3D13349696F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Thief (2014) [Ru/Multi] (1.7.4158.21/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:C64C3173FA772DD0F36308E15F82E82070F61440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ The Land of Pain (2017) [Multi] (1.03) License CODEX
 ```bash
 magnet:?xt=urn:btih:0AB75CAFA59ED7D5FA53A8926BA6A1F3E1337BEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

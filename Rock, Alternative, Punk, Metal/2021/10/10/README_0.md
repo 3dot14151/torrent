@@ -21,8 +21,7 @@ Marillion + Fish - 17 Albums, 18 CD (1983 - 2003) [FLAC|Lossless|image + .cue]<P
 ```bash
 magnet:?xt=urn:btih:F787984C96C178A9D6CE678AC9F87ED1051D0C46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

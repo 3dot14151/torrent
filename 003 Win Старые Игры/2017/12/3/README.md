@@ -19,8 +19,7 @@ Sensible Soccer 2006 (2006) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:02C85232B2B4CF7086718CEA81B03D593DD4E1C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dream Pinball 3D / 3D Пинбол. Во власти азарта (2006) [En] (
 ```bash
 magnet:?xt=urn:btih:89CF89729076D6F4AAF2B86201EAA5CBF0381404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Oddworld: Abe's Exoddus (1998) [En] (2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:17A856B5B87EC4A909E97F99835B42511C3D445D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Pinakin Ashok Chaubal | Mastering MEAN Stack (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:1FEE12FCD1B524EF5042BB0C38C6004A9AF792B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vishwanathan Narayanan | SQL and NoSQL Interview Questions (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:B571E02D1C58CAFD4181345E25B90CEE0C2E63FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dr. Harsh Bhasin | Data Structures with Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:1941FDF97A8527785B0E33BEAF93A42448E89382
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Bernhard Steppan | Getting Started With Java Using Eclipse (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:AD1CCFFE91D6868EC70B28D1DB6EA900E7850EF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Shalabh Aggarwal | Flask Framework Cookbook, 3rd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:149C145973E01FA9E28CF43225C844B0C11A7FAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Hairizuan Bin Noorazman | Golang for Jobseekers (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A64A0B1833BAFAB3A25CBCE96D8E18FEE3255572
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Greg L. Turnquist | Learning Spring Boot 3.0, 3rd Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:789F9948E0C0B5CBAA63B80B0E942465E5BA8A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dungeon Rats - это пошаговый партийный данжен кра�
 ```bash
 magnet:?xt=urn:btih:821015126DABB369372F9C4C4970C06135C5045F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.0) Repack Dok2
 ```bash
 magnet:?xt=urn:btih:37F1560425A86A0939EF4614A3DD0472ACE60677
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Call of Duty: Modern Warfare Remastered & Call of Duty: Infinite Warfare (2016) 
 ```bash
 magnet:?xt=urn:btih:EAA8EC5674C3F50673030FDBFA28EE0FD7068BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Virginia — триллер от первого лица про маленьки
 ```bash
 magnet:?xt=urn:btih:0CE0966F1632D81E4F7BA5312A66286BE72BB14E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

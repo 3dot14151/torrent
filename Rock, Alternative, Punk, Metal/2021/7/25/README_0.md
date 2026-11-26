@@ -22,8 +22,7 @@ Funeral Tears» - это сольный проект, созданный в де
 ```bash
 magnet:?xt=urn:btih:5C804C542B30CDC0D0D8962C3682E949032067B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Dear Mr Time - Grandfather: The Dear Mr Time Anthology (2021) Expanded Edition [
 ```bash
 magnet:?xt=urn:btih:6788D75498D0EEF220A2D75245508153EEE67831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mudhoney - 2 Albums (2021) [MP3|320 Kbps] <Alternative Rock, Grunge, Garage Rock
 ```bash
 magnet:?xt=urn:btih:04F66669D57C1E66BFE89FBF8A6F0B43894E8D13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Stone Temple Pilots - Tiny Music... Songs From The Vatican Gift Shop (1996) Supe
 ```bash
 magnet:?xt=urn:btih:7B2D130D6D807DAFF1D28F03EA89987AFAF1397E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Rolling Stones - Playing With Fire (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C5A5DA246669C29B87F1731E295E83BD201BA19B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

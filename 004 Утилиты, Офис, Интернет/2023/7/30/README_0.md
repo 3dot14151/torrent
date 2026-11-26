@@ -19,8 +19,7 @@ Echosync 7.0.1.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5C8CEAA655E868010185535C4A2584B264D997B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

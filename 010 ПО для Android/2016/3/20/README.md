@@ -20,8 +20,7 @@ Scan - QR and Barcode Reader v2.3 [En/Ru] - Сканирование QR и сч�
 ```bash
 magnet:?xt=urn:btih:08F6BDF1AC3B4ABE01374B162D81802F58E57819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

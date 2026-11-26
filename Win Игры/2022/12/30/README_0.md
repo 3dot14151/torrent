@@ -19,8 +19,7 @@ Immortals Fenyx Rising - ролевая игра в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:80FB877352C5E8142366485D2A02754E808E4722
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Creaks (2020) [Ru/Multi] (1.0.0.5311171hf) Repack xatab
 ```bash
 magnet:?xt=urn:btih:BE674882B1CEBF34C7BA3316187BEC8B91198827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Creaks (2020) [Ru/Multi] (1.0) License GOG [Collector's Edition] (обновля
 ```bash
 magnet:?xt=urn:btih:0A63BF6D4ADEF36A3D47D05C00AF0682C31D5B2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ One Piece: Pirate Warriors 4 (2020) [Ru/Multi] (1.0.1.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:83B94B9F30A8F7012D0C4E03CA5BEC179A12E212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:D54700E64AD45AD32F0294F324FC8EC7D4010B3D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Gordon L. Rottman | Victory 1945: Western Allied Troops in Northwest Europe (201
 ```bash
 magnet:?xt=urn:btih:2738500916B8489480AB7BB4E8F9A25272388040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

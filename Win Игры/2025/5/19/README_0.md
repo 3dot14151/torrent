@@ -19,8 +19,7 @@ Beholder: Conductor передает управление старшим про�
 ```bash
 magnet:?xt=urn:btih:7A500A58E203DA87CDE0233CD744A9FD52836938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ LEGO Bricktales (2022) [Ru/Multi] (2.0 r21673) License GOG
 ```bash
 magnet:?xt=urn:btih:14FD92D0353F1B061630F4C6B739AE035654AB5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Space Engineers - это фантастическая песочница, где
 ```bash
 magnet:?xt=urn:btih:CD3264523E3088246CDC20742816DA7B163A761B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Toy Shop Simulator (2025) [Ru/Multi] (1.0.0b6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EFE54AFFEE2D174D4E565DE037F290F0C39420F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Train Valley 2 - это железнодорожная экономическа�
 ```bash
 magnet:?xt=urn:btih:12F3A3A37331549F008739F1E5EEA411688CCEF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Ember Knights - динамичный роуглайт для 1–4 игроко�
 ```bash
 magnet:?xt=urn:btih:3672648CA2626332FC879BB16DCC4ACCFE379985
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

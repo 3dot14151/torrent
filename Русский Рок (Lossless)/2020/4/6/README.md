@@ -20,8 +20,7 @@ Arcane Grail - Mysteries Of The Ancient Charnel (2006) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:7497148A1A85E7F7FDE982D2797FD7CABB752E46
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

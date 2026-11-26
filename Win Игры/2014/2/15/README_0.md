@@ -19,8 +19,7 @@ European Mystery 2: The Face of Envy (2014) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:4F3B9CCA4A35E14F5D4F62E148A8FF8CD58B188A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D30539012E9BC3F2CBB7573AEAA4D245BECFC367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

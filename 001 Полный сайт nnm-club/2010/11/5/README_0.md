@@ -18,8 +18,7 @@ VA - Двадцатка шансона. Super 20 (Второй Выпуск) (20
 ```bash
 magnet:?xt=urn:btih:CEA487640DECBC832D12B5A2C2F95F32712F786B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ VA - Psycho Choise (2010) [MP3|320 kbps]<Dark Psy Trance>
 ```bash
 magnet:?xt=urn:btih:E4A947001203C71790C81EAF2E82AF2108652839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BFA0BA167A659169CB8D4D571BA394FDDB82F541
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Katharine McPhee - Christmas Is the Time to Say I Love You (2010) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:061A7CCF8CB979A9A969E07FAFCB0B7B7470858B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ PRAYERS OVA / Молящие OVA [2005, OVA, 2] DVDRip 480p rus
 ```bash
 magnet:?xt=urn:btih:98C2937747B59E5C09F1903912A6F76CDF85E1F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +178,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:11A43B80DB1DEC76ADE76FAA54D928D6243FF944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ VA - Compact Disc Club - The Millennium Pop Collection (4CD) (2004) [MP3|320 kbp
 ```bash
 magnet:?xt=urn:btih:C46A091052B8AD1B0FACCB1D8E2AABC467CCFBD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,8 +230,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C1ABD52F5520B909F0D8514B1F4DA7691BB26A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DD107F76DE8BD28895DE6E07A629BE3E2675D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ VA - Осенний Хит Radio Record (2010) [MP3|128 kbps]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:10E06869811D92DE6F6D7FFA294BD1FB969BA2C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ VA - Лучшая 100ка. Любимый осенний хит №1 (2010) [MP3
 ```bash
 magnet:?xt=urn:btih:7641436AEF9F57A3AFB89CAE2EFAB13B73EE34C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +339,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F7869131BEF232F1AC0E2FE70605CF465DDF9A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ Dime (NoNamerz) - Матч Пойнт (2010) [MP3|320 kbps]<Rap>
 ```bash
 magnet:?xt=urn:btih:A4178D538F69059C546FC7CFAC11E379521929BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +407,7 @@ VA - 100 Лучших Нот от ParadiSe - Vol. 07 (2010)  [MP3|320 kbps]<Danc
 ```bash
 magnet:?xt=urn:btih:AB120CC2038EA8B41426FB2246CE2720F232B92F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +432,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4143681EB71BD70683E0134C3E480406BD6BAC17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +491,7 @@ Barlowgirl - 5 альбомов (2004-2009) [MP3|161-320 kbps]<Christian rock, A
 ```bash
 magnet:?xt=urn:btih:755A6AE382817B3A0228F68D63EB06704CA84E2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:866FC0D70666C5B40FCC3608DFEE7EF3A5936FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:345E948CC29A9B7AA574023D7E60F8DB7142934B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,8 +576,7 @@ Deborah Harry (Blondie) - KooKoo (1999) {Reissue, Remastered} [FLAC|Lossless]<Ne
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,8 +601,7 @@ VA - Need For Speed - Жажда Скорости Осень (2010) [MP3|256 kbp
 ```bash
 magnet:?xt=urn:btih:6EA6748142DEE0F68569D86323E4922EC729A535
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +626,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ Herbie Hancock - The Imagine Project (2010) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +694,7 @@ Stratosphere - Fire Flight (2010) [APE|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +719,7 @@ Led Zeppelin - Frankfurt Special (2004)[bootleg][MP3|320 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:63FBB54D0A214355E7775AE516FC9D7E5E511972
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

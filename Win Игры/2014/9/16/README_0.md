@@ -21,8 +21,7 @@ NARUTO SHIPPUDEN Ultimate Ninja STORM Revolution (2014) [Ru/Multi] (1.0.0.0) Ste
 ```bash
 magnet:?xt=urn:btih:166984AE419BE27D5C918F2C6451F155B7C2EDB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

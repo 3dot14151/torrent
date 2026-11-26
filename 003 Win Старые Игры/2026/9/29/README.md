@@ -19,8 +19,7 @@ UberSoldier II / Восточный фронт: Крах Анненербе (200
 ```bash
 magnet:?xt=urn:btih:9F9458CD5181C72D4FA606964C8A1D9E350209CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:9A424A91EC98259CF0E5BA5B6ED4632D249B390D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ S.K.I.L.L. - Special Force 2 (2013) [Ru/Multi] (1.0.50730.0) License
 ```bash
 magnet:?xt=urn:btih:F6592EFA642E268593A95093B4E07F3DEE72465C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Juiced [Ru] (Repack) 2005 | VITEK
 ```bash
 magnet:?xt=urn:btih:F59A2D1BC071973B482CF644FCB7CC7051B157CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

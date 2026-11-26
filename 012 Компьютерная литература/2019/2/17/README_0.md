@@ -19,8 +19,7 @@ Julia - это хорошо структурированный язык прог
 ```bash
 magnet:?xt=urn:btih:5FCC3247966DB0380204C1BA9DF7523065A3C573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hidden Expedition 8: Smithsonian Castle / Секретная экспедици�
 ```bash
 magnet:?xt=urn:btih:58839533C2FA0173BE43D992F64122B323DA3A02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Capsized - динамичный 2D-платформер. После того к�
 ```bash
 magnet:?xt=urn:btih:53C07AD2A2F5DA8C7C4BC31E42CB3462A84A5459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Castle of Illusion Starring Mickey Mouse (2013) [Ru/En] (1.0 Upd1) Repack R.G. �
 ```bash
 magnet:?xt=urn:btih:196EDF843F7EDC3621DD8CE30D75A794C4AE517E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ E.Y.E.: Divine Cybermancy (2011) [Ru/Multi] (1.37) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:82B5F9EB51AA8436340338B76F57B34632D11F34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

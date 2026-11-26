@@ -19,8 +19,7 @@ Broforce (2015) [Multi] (3148/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:D964D4D0A9F62105950231B8FC6EEE14A903F4B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Spiral - это сюжетная игра от третьего лица, в к�
 ```bash
 magnet:?xt=urn:btih:5C5A1143DA11F4EA3254A964AADCA2D9212BC58C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Perennial Order - это 2D-игра в жанре растительного у
 ```bash
 magnet:?xt=urn:btih:F757FE7802E05BE0D03FD5D3C9C890E7CF74BC01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8713C20AD3A7E67A6DEB27160B86940BBF2E3B2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:2D8107C4950E9A3DC5BE92E2C6652CDB7D387AD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Combat Mission: Battle for Normandy достоверно воссоздает о
 ```bash
 magnet:?xt=urn:btih:602B63FBCED20C2962BD67F83FCAF57997C6D6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Just A To the Moon Series Beach Episode - это казуальная прикл
 ```bash
 magnet:?xt=urn:btih:BECB59201B3DEA48C4328AAAA3DBBC27E6B1755B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EC7E7FA6C14EB3BC66DE61951AD1A0902DCFF7EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Gas Station Simulator - это все о ремонте, развитии и э�
 ```bash
 magnet:?xt=urn:btih:9B5CC48BF80E0101468DB64C823797268871D2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

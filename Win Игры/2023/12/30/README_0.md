@@ -19,8 +19,7 @@ Merchant of the Six Kingdoms - это игра, которая позволяе�
 ```bash
 magnet:?xt=urn:btih:0F35E2C3E82224EF6CE86F02C0136BBE546D9D8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeons of Sundaria – ролевая кооперативная видеои�
 ```bash
 magnet:?xt=urn:btih:C7A19DD140061B0CA2D109FA307FC1E0ECB21A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

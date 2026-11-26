@@ -19,8 +19,7 @@ Nine Sols — это насыщенная сюжетом двухмерная и
 ```bash
 magnet:?xt=urn:btih:A972A0C361E4F1EA8C3D8AA98B6263A6B9CB385C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shift’n Slay – пошаговый тактический рогалик на
 ```bash
 magnet:?xt=urn:btih:C91AA77AB72D184C971CB40AC23A76FA8E67AE53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hell Division – игра от 3-го лица, представляющая с
 ```bash
 magnet:?xt=urn:btih:C81264485FFB18A4C49490BC0AF80C7E3129A35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ THE KING OF FIGHTERS XIII GLOBAL MATCH (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:457DB15FDD7F85EE20A80143CEEB055FC80A656E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bonesaw - это пошаговый психологический хоррор 
 ```bash
 magnet:?xt=urn:btih:E6AFC441153AE14B4346ADC37A4DFF3D4856B56A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F140A3C5ACDFD192DFD8781C92DE4243BB0B2FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1655.fb15f73) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:965FE2200AB73AF2A15084035A5AFCD205D796E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.7/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B527412ED9E5F97655737B9F21A847EC1DA96A3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Sons of The Forest - многопользовательский хоррор о�
 ```bash
 magnet:?xt=urn:btih:9293F0819EBF8F1C787588254587E2415BC76999
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ House of Caravan - атмосферный инди-хоррор с голово�
 ```bash
 magnet:?xt=urn:btih:8AC9C9BE1BA758811343D3CE807142DF3CA2CA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

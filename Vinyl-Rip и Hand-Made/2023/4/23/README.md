@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:C0653A447D54DA5F2EAF13F3755A7B882BCCC859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pet Shop Boys - Fundamental (2006) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synt
 ```bash
 magnet:?xt=urn:btih:6A5187987BAECCFCCFD2433ACC6B1CA0F83A8CC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A3 Nummern 3:00
 ```bash
 magnet:?xt=urn:btih:185DAB655B3FD287507241D596DE1DB6D312785A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофи
 ```bash
 magnet:?xt=urn:btih:96368F347797398978C270F1DF0D328A7FA1B988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

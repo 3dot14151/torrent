@@ -18,8 +18,7 @@ PowerPhotos - позволяет разбить ваши изображения 
 ```bash
 magnet:?xt=urn:btih:76AB52059696A75BF22B4DDD97F57FE5E22A55C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:E644C1B13051B32FA99A2235F00A3749AF26F365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Pink Floyd - Relics (1996 Remastered Version) (1996) [AAC|~340 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:4FEDEA2ECFF25958D8A5D78E6696BA14E764A840
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6AA4D07E3BB440B32F4D4245C0C64D0DE3BD07CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Blocs - простой способ создания красивых сайто
 ```bash
 magnet:?xt=urn:btih:0740C05E9189DEC8087DB1DDB11466F86BA6DD0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Kfir Ochaion - V (2019) [AAC|~333 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:6E37D1028E01BE3047693FCADEBFF8743730FBDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Kfir Ochaion - IX (2020) [AAC|~343 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:EA26CABDE1351CDBF439CC07B7BEC2E8D9E208A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ Kfir Ochaion - II (2017) [AAC|~325 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:0958C9043C1FA935F7391CD79472DAD875548B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +235,7 @@ Kfir Ochaion - IV (2018) [AAC|~294 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:26A3DFBFDCFB2B434831DCD4093377BD42252D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +263,7 @@ Kfir Ochaion - VI (2020) [AAC|~328 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:7A86A07F7F4F4D542627F634A88B493FB0F0829E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -301,8 +291,7 @@ Kfir Ochaion - III (2017) [AAC|~323 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:3FB2B2AA7BA848DD89AB67EBC9181CF03AC21540
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C3DC3E9DDA7BFBFFE947AA50C61A13AA621AA2B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Timeline 3D 5.3.1 [En]
 ```bash
 magnet:?xt=urn:btih:49E40A276EC794E50CC655C1C268F242E9D08969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -380,8 +367,7 @@ Notability 4.4.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A9F41447B2EBF5855C81A551F28AE735B7A55945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B92CAC25A2D0EDE82A567DC184AE7FCD2A51AB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ Reeder 5 v5.0.9 [En]
 ```bash
 magnet:?xt=urn:btih:1414E6713D6E5F68D50A80AD0C916155ECB066D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,8 +445,7 @@ Laura Taylor - Dancin' In My Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk/Sou
 ```bash
 magnet:?xt=urn:btih:41155E5F7B03F08CD9997FF9393A35C1A8F4025A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ Golden Earring - Moontan (1973) Deluxe Edition, Reissue, Remastered, 2021, Red B
 ```bash
 magnet:?xt=urn:btih:D3E3992A0E55732C57963CC63360177DD2710020
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ Kfir Ochaion - VII (2020) [AAC|~340 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:B5884B6CDF69460AB2D0C0F1DD678A64A4FAAA3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Pink Floyd - The Piper at the Gates of Dawn (2016) [AAC|~370 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:4FC69326A9534962CDAA832EFA5A62EAFC174C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,8 +557,7 @@ G.B. And The Tracks - Dance To The Music (1978) LP [MP3|320 Kbps] <Electronic, D
 ```bash
 magnet:?xt=urn:btih:507F233D139C07CA7D73DF21D22AE58DE70C39DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +585,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:634319E717E338A500E610B24B24E14FEF1CBCCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +613,7 @@ Kfir Ochaion - X (2021) [AAC|~343 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:3B4999783BF5DB22AA868F0692F503B0745E4D6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,8 +638,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0731C37D1A379FF7934BE5D51D981138F51BEC22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,8 +666,7 @@ Kfir Ochaion - I (2016) [AAC|~302 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:6A515F465480626679E288AF2C37B4B07E987440
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +691,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:D961701BFA7E1256BED5A34517A848E081834B1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

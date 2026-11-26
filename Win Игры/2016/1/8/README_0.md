@@ -19,8 +19,7 @@ Hidden Expedition 10: The Fountain of Youth (2015) [En] Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:2C19654C3741E2515A21F41BA78F8E5A2D33A831
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deponia: The Complete Journey (2014) [Ru/Multi] (3.3.0155) License PROPHET
 ```bash
 magnet:?xt=urn:btih:3E7B4486E8DD96AB86607646F1541987354A51AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

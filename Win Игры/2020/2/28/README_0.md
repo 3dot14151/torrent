@@ -19,8 +19,7 @@ Lost Lands 7: Redemption (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:229A1A98E2507BFE29CCE2A8E2703D6CA2A45A55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Northgard (2018) [Ru/Multi] (2.1.4.16370/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D7436858DA7F5F733C36D3BA82D431F41697EAF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Cat and Ghostly Road - это атмосферный point-and-click квест,
 ```bash
 magnet:?xt=urn:btih:5F85216E3EB82CAC2731C0490FC2E10C3075F594
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lonely Mountains Downhill (2019) [Ru/Multi] (1.0.4) Repack Butter_
 ```bash
 magnet:?xt=urn:btih:F9E1E79BAC609964662331CA8685D6824DA9EEDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ CORRUPTION 2029 – это новая тактическая стратегия 
 ```bash
 magnet:?xt=urn:btih:A8B19EB10F530991D624B50946985F5F9241FE77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

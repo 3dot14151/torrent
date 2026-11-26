@@ -19,8 +19,7 @@ A Perfect Day - это сюжетная игра-головоломка с вр�
 ```bash
 magnet:?xt=urn:btih:DDD738BD35C188E2DD64B4DFDA2216D333AA0600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Forest Quartet — повествовательная 3D-головолом�
 ```bash
 magnet:?xt=urn:btih:A48BD3E2E258D1E96AEBDEFAAC027D40267D5515
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

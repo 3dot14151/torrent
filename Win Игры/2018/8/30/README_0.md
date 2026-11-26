@@ -19,8 +19,7 @@ PLANET ALPHA — это прекрасный инопланетный мир, п
 ```bash
 magnet:?xt=urn:btih:1F703D43E210D4281C3AFE394C7AA3887B49FB6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ At the Gates — шведская мелодик-дэт-метал-группа,
 ```bash
 magnet:?xt=urn:btih:0F95D624568EF20257BD4F6B1226F564DA8B37FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

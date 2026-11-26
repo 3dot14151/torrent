@@ -28,8 +28,7 @@ Attacker - Giants Of Canaan (2013) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:4346F334171662617FAA2DF99963221CD8044BC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Apati - 2 albums (2009-2010) [MP3|320 кб/с]<depressive black metal>
 ```bash
 magnet:?xt=urn:btih:C2CF5DED893F1C0E63D24703E4B35971A48ABDEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Blezqi Zatsaz - The Tide Turns (2000) [MP3|320 кб/с]<Symphonic Progressive Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Marky Ramone's Blitzkrieg - DoSol (2010) Live [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:1F0337F11C45BE3881F37A335FD843C91C35190A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Cryptodira - Recursions (EP) (2013) [MP3|320 кб/с]<Progressive Death>
 ```bash
 magnet:?xt=urn:btih:E7CFAAF98A5F909B6CF6CDE8F6FA97274A3048F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FD7513D3DF1D3AE235CA5E63119C024DF12FDB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ Axel Rudi Pell - Before I Die (Single)  (2012) [MP3|320 кб/с]<Melodic Heavy M
 ```bash
 magnet:?xt=urn:btih:D35C3AAAC9087B2639116304378D93D171E0933E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ Viikate - 9 albums (2000-2012) [MP3|320 кб/с]<Folk Melodic Metal>
 ```bash
 magnet:?xt=urn:btih:E19FB7CBEFF38929EBCFC5BC87A524F90F2BADA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,8 +290,7 @@ The Browning - Burn This World (2011) [MP3|224-320 кб/с]<deathcore/metalcore/
 ```bash
 magnet:?xt=urn:btih:93FF633CBCC353B8367B031A28ADD28548D5C2F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +324,7 @@ Bullet For My Valentine - Scream Aim Fire (Digipak Edit.) (2008) [FLAC|Lossless]
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

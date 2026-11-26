@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:33379B36DFD86BEF0C206972B4A45EB937CA87B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE4180E06AD6B90C15A29D4C4FED08F52E441AEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1FEBC380A4021402CC2AAA918B73442332616B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -108,8 +105,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9D278884E5A5C469FAECB22B30576EDE4D39E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Yusef Lateef - The Sounds of Yusef (1957) 1996, Original Jazz Classics [WavPack|
 ```bash
 magnet:?xt=urn:btih:732FF8ED8E6350D4EFFA390958C079D382957D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Rodney Green Quartet - Live At Smalls (2013) SmallsLive [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:3D7CAA1CA19F7A78EEBD9E7EC4A718DD50C9C454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Guerra Total - Mas Alla De La Tumba (2011) [FLAC|Lossless|image + .cue] <Black M
 ```bash
 magnet:?xt=urn:btih:1D1FC9EAF12A55800388733821DB972266718CC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ VA - The Best Of Silent Shore Records 2017 (2018) [MP3|320 Kbps] <Trance, Progre
 ```bash
 magnet:?xt=urn:btih:CFD9F2BBCB166EC4FB5C2CEAAB098388D1A7DE80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ VA - Dark Sessions 043 (Mixed by Chris Hampshire) (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:32FCD6D19520DB29DD4ED4F25F6F3685F4092FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Drumcell - Collection 7 Releases (2012-2016) CLR, Droid Recordings [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:D6CEE8F97B4B7EC30002BC1338B5E60A71A1D89C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ VA - Spring Tube Vocal Themes, Vol.12 (2017) [FLAC|Lossless|WEB-DL|tracks] <Prog
 ```bash
 magnet:?xt=urn:btih:D2326A8F5C42939F418276EB2C0529C37956D042
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ Ryo Nakamura - The Best Of (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:366E3C65A07EA9AA3FA77F1A430A8EC0508920B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ VA - Best Of Trancer 2017 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance, 
 ```bash
 magnet:?xt=urn:btih:79530C1A4FA8462BC3A5CC439C624232104A7CB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Luke Terry - Supersonic (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:82B07ECBF45CCB940836925D6492FDF2AD148E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ VA - The Best Of Levitated Music 2017 (2018) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:198C6BABE9C8C97F22E3E3A93EE179BE2EA922C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ The Big Chris Barber Band - The First Eleven (2002) Timeless Records [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:80EDA350CEBDECF573633C08A8D8E7363E5C1FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ Once and Future Band - Once and Future Band (2017) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:194F6CDB798C42984C69C4F47FE7290C66A42295
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ Aurora B.Polaris - Nostalgia (2017) [MP3|320 Kbps] <Chillstep, Downtempo>
 ```bash
 magnet:?xt=urn:btih:D706A0E910C07CD5BBB0AEE7FEE7FA8A762ED9E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ VA - Above All Records - The Best Of 2017 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:1DA42E94E850438014B098F750A3287DCA72133D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ Briana Marela - Call It Love (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Fo
 ```bash
 magnet:?xt=urn:btih:0B95FD091151175A5FE89A400C8EB0AD58689054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ XIX Иваново-Вознесенская губпартконференция
 ```bash
 magnet:?xt=urn:btih:F8C50A1130D2244E9D8B57C965B8A356E9644149
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +605,7 @@ VA - Inner Balance: Chillout Your Soul 5 (2018) [MP3|320 Kbps] <Downtempo, Chill
 ```bash
 magnet:?xt=urn:btih:B33001A87822BBB50FED17EEF3C2504BFA3450E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +633,7 @@ VA - Lounge Cocktails Vol.3 (Delicious Grooves For Cafe Bar And Hotel Suites) (2
 ```bash
 magnet:?xt=urn:btih:CCFE4502F3C4C1095A8E988F0C8FEFA366315A31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,8 +661,7 @@ VA - Miroslav Vrlik - Best Of 2017 (2018) [MP3|320 Kbps] <Trance, Progressive Tr
 ```bash
 magnet:?xt=urn:btih:1626A8BE21678BCEEF83810F2A9C7314502FC771
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -713,8 +689,7 @@ Prefab Sprout - Jordan: The Comeback (1990) [FLAC|Lossless|tracks + .cue] <Pop R
 ```bash
 magnet:?xt=urn:btih:83718061825BADE8F3CE26F6AA1EAA59BCD982CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -742,8 +717,7 @@ VA - Magic Of Trance (Mixed by Dr.Gri) (2018) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:32D77DDC99FD6CB1A025D48CE37598E10A50EECF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

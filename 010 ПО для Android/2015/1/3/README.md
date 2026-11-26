@@ -19,8 +19,7 @@ Cоздание высокого качества записи с экрана �
 ```bash
 magnet:?xt=urn:btih:5648C62E030107872709BF24C2E81912DA4F2C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

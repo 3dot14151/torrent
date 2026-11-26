@@ -19,8 +19,7 @@ Golden Eagle [En] (RePack) 1991 | RG Games/pilotus
 ```bash
 magnet:?xt=urn:btih:BB3B0F3D32B2D84C4152447C719D754F19876EAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Neverending Story 2 [En] (RePack) 1991 | RG games/Pilotus
 ```bash
 magnet:?xt=urn:btih:1B71F2CAB682471C201AE4DA316B41147664CE84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Neverwinter Nights [En] (RePack) 1991 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sid Meier's Civilization [Ru] (RePack) 1991 | RG Games/Pilotus
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

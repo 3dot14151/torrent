@@ -19,8 +19,7 @@ Subwar 2050 (1993) [Multi] (1.2/dlc) License GOG [Complete]
 ```bash
 magnet:?xt=urn:btih:28FDE231E6FCA99D3A130C63A513591DF4047FBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

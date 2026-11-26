@@ -19,8 +19,7 @@ Secret Files: Tunguska (2009) [En] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:A11848A15CE221BA58BD9A87A63C0E4C47A7DEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

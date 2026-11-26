@@ -19,8 +19,7 @@ Mario Bros. — двухмерный платформер+аркада порт�
 ```bash
 magnet:?xt=urn:btih:50F8FC7284E3E8CEE9310AFD446E85671E8D8C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

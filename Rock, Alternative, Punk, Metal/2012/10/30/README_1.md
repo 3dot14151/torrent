@@ -28,8 +28,7 @@ Whyzdom - 2 Альбома (2009-2012) [MP3|320 кб/с]<Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:6556962DB74A27A5722637610739C06E8D1BE03D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ So Hideous, My Love... - To Clasp A Fallen Wish With Broken Fingers (2011) [MP3|
 ```bash
 magnet:?xt=urn:btih:54AA62B69D0DBCF71C8F36B8E276E5705535EF1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -86,8 +84,7 @@ Mercenary - Recollections - The Century Media Years (Compilation) (2012) [FLAC|L
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -121,8 +118,7 @@ Total - Резус-Фактор (2012) [MP3|~245 кб/с (V0)]<Alternative Rock 
 ```bash
 magnet:?xt=urn:btih:33166BEB6897A8EBE5DEBE7052639B1F28F2DFA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +152,7 @@ CD1
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ Giles, Giles and Fripp - The Cheerful Insanity Of Giles, Giles and Fripp (1968) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +203,7 @@ Deep Purple - 8 Live Albums  (1972-1997) Collection [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

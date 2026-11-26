@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:2BA87B3AC82D1FD780DF70E3184D8087A8E0BE56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Elaine Marmel | Word 2010. Самоучитель [2010] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:22832C9670209F69251DDCF05A1EC8A583351DBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Faithe Wempen | Access 2007. Самоучитель [2007] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:A69C0686DDE3DD8FDDE50D224115AD357E2CDE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E50C198F2992C8BB0EB7DB6DA256CF1416E9EAEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FCC531FCB416980BEDB9CD82CFD436BD2200CA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

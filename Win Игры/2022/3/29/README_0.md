@@ -19,8 +19,7 @@ A Musical Story - это ритмическая игра в стиле 70-х. И
 ```bash
 magnet:?xt=urn:btih:976A1479EE950EDFAA5904E2DCEC2BF3248EB47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

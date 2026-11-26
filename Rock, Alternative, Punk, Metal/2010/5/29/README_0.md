@@ -28,8 +28,7 @@ Sweet - The Very Best Of Sweet (2005) Compilation [FLAC|Lossless]<Glam rock, Har
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Crysis (2007) [Ru/En] (1.1.1.6156) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5C03FB9EFF9E57CE635D2414B01EEF9E136A832A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

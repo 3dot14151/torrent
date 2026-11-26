@@ -19,8 +19,7 @@ Stuart Butler, Tom Oliver | Game Development Patterns with Unreal Engine 5 (2023
 ```bash
 magnet:?xt=urn:btih:249FF069CE629A392456C022C1F9C1A8F2161DC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B3FBABAE6F13665F8D7D5192CE710D7B736DB378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gema Socorro Rodríguez | Thriving in Android Development Using Kotlin (2024)  [
 ```bash
 magnet:?xt=urn:btih:321EFA040C326C85396D58530AF1688CFE782C96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Carl Fredrik Samson | Asynchronous Programming in Rust (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:2AA2ADFA667E8AA3C1325DB789B1D3B617798DEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Neil Smyth | C# 13 Programming Essentials (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:0C8578EEE99ABFD8487D92487AC55A2C80F710E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dennis Vroegop | Systems Programming with C# and .NET (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:B91F62D88FEC7E27A44FCFFE8822BFBA5ECAFE07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Alex Rios | System Programming Essentials with Go (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:E94F3B0A7CD7BDEFC4A557A38E6D6DE82BCFF63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Adam Freeman | Mastering Node.js Web Development (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:D732B1EC76FC07A6167AEAA548B8AB72ECFAC7EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Nick Parlow | PowerShell 7 Workshop (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:63821D6109044805E1FD8F5ADF58B181B0746D31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Marc Gregoire | Professional C++ (6th Edition) (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:F4BA8B6398A9B1F74216CB4BFCDBF502419E8127
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Jakub Narębski | Mastering Git, 2nd Edition (2024) [EPUB] [EN]
 ```bash
 magnet:?xt=urn:btih:561B1A31508A10C98148C6653883E15F48B8FFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

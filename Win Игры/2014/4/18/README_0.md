@@ -19,8 +19,7 @@ Dark Strokes 2: The Legends of the Snow Kingdom / Сердце тьмы. Лег�
 ```bash
 magnet:?xt=urn:btih:2D86A194AB7C32104E094AE362DD7747360A119D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Expeditions: Conquistador (2013) [Ru/En] (1.6.5) RePack Audioslave
 ```bash
 magnet:?xt=urn:btih:F2240A9392A6C8C8C1620DF9241D1C7B106F7FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

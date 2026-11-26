@@ -22,8 +22,7 @@ A3 Abandoned(   Читать дальше...   )Жанр: Folk Rock, Country Roc
 ```bash
 magnet:?xt=urn:btih:8B480B570961275EA1EFA46DD7CCD1469CC2A55D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Nightwish — одна из первых и самых влиятельных г
 ```bash
 magnet:?xt=urn:btih:E2B454931F661457F8BBD54FDDD5D26682C69FCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Seether — рок-группа, сформированная в ЮАР в ма�
 ```bash
 magnet:?xt=urn:btih:341B94AE611A5905A9CAC413348732898BA2E083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

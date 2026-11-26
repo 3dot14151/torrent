@@ -20,8 +20,7 @@ Bubble Shooter Viking Pop v8.3.1.38920 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3A7213EC5EB20EBE490DEDF0514D4E59ECC526B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

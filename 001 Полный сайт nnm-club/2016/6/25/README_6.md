@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:FF062DFFC8B33910F4E7E0240C5881CD999719F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC8AC0E03BBA1E5FB1915E0A2640839B7677C4C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ NAVITEL® выпускает глобальное обновление карт 
 ```bash
 magnet:?xt=urn:btih:A0D2CBA35B46BAA875FB7D3B54BE16CF040C1E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Microsoft Windows 10 Professional x86-x64 1511 RU by OVGorskiy 06.2016 2xDVD [Ru
 ```bash
 magnet:?xt=urn:btih:4736E7E9629AEA0E4B0C53D451ACF04848872EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

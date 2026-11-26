@@ -19,8 +19,7 @@ The Treasures of Hotei (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:495A953F2FB4F968B4E1ACCBA3A96BAA2D585A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fear for Sale: Mystery of McInroy Manor Collector's Edition  / Страх на �
 ```bash
 magnet:?xt=urn:btih:EBB3C077EB1524495928AAB66D719B6CD6C945D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Paris Mahjong - прекрасный маджонг, в котором Вам, �
 ```bash
 magnet:?xt=urn:btih:35E8F5D7CAA82C1E6C2412D2E757A8C92FACE7C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

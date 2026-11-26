@@ -19,8 +19,7 @@ Awakening 4: The Skyward Castle Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:9D798A56A11584FC7D3A97717E6613A9BAF7DAB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lost Inca Prophecy 2: The Hollow Island [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:C20F0180F9F8E1FEAE6725A59E743CABBDDF1A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Monument Builders: Eiffel Tower / Monument Builders. Эйфелева башня
 ```bash
 magnet:?xt=urn:btih:B5C91C551D588FABB9A3FC6DC9DEA0EE0877859B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Transformers: Fall of Cybertron (NoDVD/1.0) 2012 | SKiDROW
 ```bash
 magnet:?xt=urn:btih:2BA1C1375DD07245FB9CF09E77260E9EE8ABD9F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Jagged Alliance: Back in Action & Crossfire [Ru/En] (RePack) 2012 | Audioslave
 ```bash
 magnet:?xt=urn:btih:7FE59B0296DF3ABA2B8CE9966AE49AF943E9F5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

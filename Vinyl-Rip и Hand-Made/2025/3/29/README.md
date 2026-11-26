@@ -22,8 +22,7 @@ Sebastian Bach - Kicking & Screaming (2011) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:997305471A5AE30EF150B4697C7C8AF8E76C561F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Nightwish - Century Child (2002) Released, 2015, Spinefarm Records [FLAC|24/192|
 ```bash
 magnet:?xt=urn:btih:CD31883508A9DBDE2F31EA8BA8AD110031E65DFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A3 - Almighty Horde(   Читать дальше...   )Жанр: Death Metal, Bl
 ```bash
 magnet:?xt=urn:btih:9FC02E8C804E3F74393D12EE84A6F8DC83C17676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ B1 Varden Brenne(   Читать дальше...   )Жанр: Viking MetalПро
 ```bash
 magnet:?xt=urn:btih:1557D36C92FEECA09F0B6638061C48ECBD64A0EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

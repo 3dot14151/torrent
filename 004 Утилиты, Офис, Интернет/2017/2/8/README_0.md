@@ -19,8 +19,7 @@ Astroburn Pro 4.0.0.0233 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:41E16296007520521799C4E5FC2F267DF4EF8B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

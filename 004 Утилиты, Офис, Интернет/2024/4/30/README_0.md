@@ -19,8 +19,7 @@ Registry Finder - простая в использовании утилита д
 ```bash
 magnet:?xt=urn:btih:95E78BEA0D81C8E032D6F450120549E5D346C9BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ AOMEI Partition Assistant Standard Edition бесплатный многофун
 ```bash
 magnet:?xt=urn:btih:71E0731E9C1BB42BE830F52D1D8899C8D592E547
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ No Gravity 1.10.10 [Multi]
 ```bash
 magnet:?xt=urn:btih:A478BA6578C1E45AABF17EE56E42760509318C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

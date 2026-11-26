@@ -19,8 +19,7 @@ Syncovery - программа из серии высоконадежного, �
 ```bash
 magnet:?xt=urn:btih:364448F957C804AA5E433E68D9615B175B27C569
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

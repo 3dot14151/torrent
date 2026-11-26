@@ -19,8 +19,7 @@ Living Legends 8: The Crystal Tear (2020) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:BA972E94A602ECCA4D2BB10E61C17E9CEDB5161F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mutazione (2019) [Ru/Multi] (1.7.5805) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A92E04671356898363FD067353CE75F07F2197C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:6A5287361B022C2E8AF19935B34E44852E510B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

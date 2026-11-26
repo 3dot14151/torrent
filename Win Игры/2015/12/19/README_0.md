@@ -19,8 +19,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) Repack R.G. Механики [Deluxe E
 ```bash
 magnet:?xt=urn:btih:741E650BF58CBC6F5C406E53C5B616DE49B08702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.5) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:5305EC673F221242968B5F7BF652D049329B9ABB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Europa Universalis 4 - стратегия, разрабатываемая сту
 ```bash
 magnet:?xt=urn:btih:BCDD4F2350A122B7761E8D61063F3B7253BECAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Dispatcher (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:BA401A69AAA6C0DBC95A613283913116ACCC75A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

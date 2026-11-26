@@ -21,8 +21,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Моя звез
 ```bash
 magnet:?xt=urn:btih:36FDEC732ABC75DB6A64698D9421F23A7382BEC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1A7D82D1B1C40D3F04795D2BC379A13707F905E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Billy's Band - В шляпе (2023) [WavPack|Lossless|image + .cue] <Rock, Jazz,
 ```bash
 magnet:?xt=urn:btih:24595D1AEC3B3DAE7BA5FD49853FAB499ACBAE67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

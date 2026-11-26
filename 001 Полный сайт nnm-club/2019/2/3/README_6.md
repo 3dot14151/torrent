@@ -22,8 +22,7 @@ McKinney's Cotton Pickers - 1929 - 1930 (1992) Classics [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:EB565140C3989206231B8395E97646A53880DC51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Blue Mitchell - Vital Blue (1971) 2017, Solid Records [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:0C57D70BF17A41F9CF4139CFE48E662DF22FAFD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ CИTROPY - CИTROPY (2018) Sun Sea Sky Productions [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:675E27D93EE99449597FB3CE0C9965AC0F89333B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fortunato & Montresor - Imagine (Original & Reissue) (1997 / 2003) Elektrolux, B
 ```bash
 magnet:?xt=urn:btih:16BC443775FFBD0ECB1A0B570127AA91425895F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - German Top 50 Official Dance Charts 01.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:384762A18BFCB3910BF3AD6E9C2DF0AABC730D4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Methods Of Mayhem - A Public Disservice Announcement (2010) Special Edition [FLA
 ```bash
 magnet:?xt=urn:btih:6274441CCAB59FE12FC74B6566F7D5F1EF206BE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:341B1EE1B03A3717833C1FD249869470A0DA2E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -223,8 +216,7 @@ Ant Law - Life I Know (2018) [FLAC|Lossless|tracks+.cue] <Contemporary Jazz, Fus
 ```bash
 magnet:?xt=urn:btih:3839CE322AFD9E918F58B9AA365A456863579B35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ Paperless - поможет создать базу данных эллектро
 ```bash
 magnet:?xt=urn:btih:C342DAE09588B7600D01834C8E55FC12ED6EEC9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - The Awakening (2019) [MP3|320 Kbps] <Psychedelic, Avangard Electronic>
 ```bash
 magnet:?xt=urn:btih:A0A4BB89DF4EA0632FE3194584D9BE6E437BB142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -304,8 +294,7 @@ NetWorker - небольшая и очень простая утилита, ко
 ```bash
 magnet:?xt=urn:btih:1491CBB7EF5A6847F647332AC5FB32DA026B2A0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ VA - Total Trance Selections, Vol. 15 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2AB38E1A0EF47E9550F2D0052E32D1402E9AF71A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,8 +347,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6FAF3067B4F6F871E48DF5AC6B53555258DBAA7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,8 +374,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6622F94C5FB8F645CB88DA350B1077A496C0785B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,8 +402,7 @@ Rising Galaxy - Nomadic Universality (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybi
 ```bash
 magnet:?xt=urn:btih:3C8EC1D1447FA31F6F5687BC7B35628ABA34CED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ Ancient Bards - Origine (The Black Crystal Sword Saga Part 2) (2019) Japanese Ed
 ```bash
 magnet:?xt=urn:btih:0B1D0271DEE195CB6EE5EA475B19B8856AD5E0E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ VA - Ethneomystica Vol. 7 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psydu
 ```bash
 magnet:?xt=urn:btih:3D6D126EC5B60A4B609E6143C2DC844CF705F100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,8 +483,7 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:EDEEF7A9DCF8BD5A6459A7583598246967EF072B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,8 +511,7 @@ Phil Von - Discography 4 Releases (2001-2019) Ant-Zen [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:44919D853CCE37ECED965775FB430E2EA04D0EBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,8 +539,7 @@ VA - Jam Electronic House (2019) [MP3|320 Kbps] <House, Dance, Club, Electro>
 ```bash
 magnet:?xt=urn:btih:4BC5BAB92B4FBF6874D8BC8519DB6416B052D721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Waterfox 56.2.7.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A5C87A0025FE24281B08F3BB31D3C4A6843FFD5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,8 +592,7 @@ VA - Sweet Vocal Lounge (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:272A65CE3F505D9788293B344569E484BD40C18C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +620,7 @@ VA - Best Chill Out & Ambient Music For Sleep (2019) [MP3|320 Kbps] <Chill-Out, 
 ```bash
 magnet:?xt=urn:btih:3382B65E20A7F41D3AF1826C28EBBCE8E8749A07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +648,7 @@ Jann Beaudry - Legere (2019) [MP3|320 Kbps] <Ethnic>
 ```bash
 magnet:?xt=urn:btih:9D6DBAFC3DCB581B65034651DFB2356C6868AE8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +673,7 @@ Beyond the Invisible 2: Darkness Came (2017) [En] (1.0) Unofficial [Platinum Edi
 ```bash
 magnet:?xt=urn:btih:CFE118740176B2D42F25FD92694E4902FA9057F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +701,7 @@ VA - Record Super Chart 572 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:1A3E4230A19EA4EB8D33E8D67A6EC4103C88217D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

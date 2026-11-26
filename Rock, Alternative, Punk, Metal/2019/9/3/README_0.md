@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:254E877235CAB3F54F397131DBEE33DF0146F271
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Pink Floyd The Wall Rebuilt - Mojo Magazine 30th (Tribute) (2009) 2CD [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:1A94C3E68DB8C7640C622049EC0AB52C26C08C06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

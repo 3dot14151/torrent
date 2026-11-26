@@ -19,8 +19,7 @@ BloodLust Shadowhunter - это ролевой dungeon crawler, в которо�
 ```bash
 magnet:?xt=urn:btih:144959B78446618C88E7160FB4DBA305C5B59854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TransOcean 2: Rivals – это захватывающее продолжени�
 ```bash
 magnet:?xt=urn:btih:85554C71EFB0B086C4BCE8E62C24E40B4C6FB6AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

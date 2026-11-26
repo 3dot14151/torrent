@@ -23,8 +23,7 @@ Twisted Sister — американская глэм-метал-группа и�
 ```bash
 magnet:?xt=urn:btih:4FB7C0E85787712182A6D13CF60A8EE7B11EAAA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

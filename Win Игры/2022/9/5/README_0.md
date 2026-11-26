@@ -19,8 +19,7 @@ Magic City Detective 2: Secret Desire / Волшебный город 2: Тай�
 ```bash
 magnet:?xt=urn:btih:A3EDEE24C38BDE7CE396DF8EA288063E5753EC9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

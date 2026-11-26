@@ -19,8 +19,7 @@ WiFi Analyzer Pro v3.2.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E76987200CC7E51148A095B3816F88ACCC74312D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Speed camera radar / Радар детектор v3.1.29 [Ru/Multi] (обнов�
 ```bash
 magnet:?xt=urn:btih:084B465C8597FEDFADA13382DCF6EA1BC9364C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

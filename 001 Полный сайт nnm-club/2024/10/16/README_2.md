@@ -21,8 +21,7 @@ VA - AI song, AI music (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
 ```bash
 magnet:?xt=urn:btih:8AC25AE01115F573D67A26F67B04D5DBA0E547C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43FE28D70F49924D4585B96819799658CF4F5544
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C80BE356B853439C2034527263953024B42671FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A978FD4C1202937B84AC7E0E1A245BD0CB7D5485
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ Sorrow - Death Of Sorrow (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:35DB1801148A96311B9BA825429B537135531D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +153,7 @@ VA - Luxurious, Relaxed & Sophisticated Atmosphere Soothing Tunes to Chill (2024
 ```bash
 magnet:?xt=urn:btih:BD05AC40AC168E3FC6EBB629A209A253B9A025DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -187,8 +181,7 @@ VA - Harmonic and Melodic Laid-Back Ambiance Lounge Tunes (2024) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:48E02737E3C64713EE3DE821228B998031190648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -216,8 +209,7 @@ VA - Anjunabeats presents Progressive House 01 (DJ Mix) (2024) [MP3|320 Kbps] <H
 ```bash
 magnet:?xt=urn:btih:DBE6292A3FE81EA65A813949B8B6827689F0607C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +237,7 @@ VA - FSOE ADE Compilation (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:DC40B19E76FFECBEDB70A7B92A23DC1BAE831175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +265,7 @@ VA - Travel and Leisure Vacations at Exotic Locations Smooth Jazz Playlist (2024
 ```bash
 magnet:?xt=urn:btih:51F428EF90EF7D047D909B861D209959B7A7353F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +293,7 @@ VA - Melodic and Harmonic Laid-Back Ambiance Smooth Intrumentals (2024) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:1CA2B81E3FB253C69F7ED322250214E80B62A458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,8 +321,7 @@ VA - Vacation Travel and Leisure at Exotic Locations Lounge Sweet Tunes (2024) [
 ```bash
 magnet:?xt=urn:btih:C5C244FD32BB7D64B5327F4311F594AB84918D35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,8 +349,7 @@ VA - Relaxed & Luxurious Sophisticated Atmosphere Smooth Chilly Instrumentals (2
 ```bash
 magnet:?xt=urn:btih:4C658CBC898C4F80634363C9C9BCEDB197918481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +377,7 @@ VA - Soft and Soothing Jazzy Playlist to Unwind and Relax (2024) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:53A4FE5A01835C0155B356BA4516D42F3DE57C93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +405,7 @@ Hot Chip - Coming On Strongerer (2004) 20th Anniversary Deluxe Edition, 2024, Mo
 ```bash
 magnet:?xt=urn:btih:A69C77A334BCEDC3B9255BF1EFA7312783F8E7C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,8 +430,7 @@ PhotoRoom v5.4.7 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F455F2D1B920626A18E1B8DA4ACFB39C2545BB68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,8 +458,7 @@ VA - Ultimate Chillout Ambient Lounge III (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:3F9FEB110125614643BB90E4333B4BB843AE9BF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,8 +486,7 @@ Fever Ray - Live at Troxy (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Synth
 ```bash
 magnet:?xt=urn:btih:F2B45424C79F7DCD98D4E37AC5EF87DC5DA830D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,8 +514,7 @@ Anastasia Calmus - Revelations (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:0A63A31AF6D69E0B30950A4BD0F018D796BD685B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,8 +542,7 @@ VA - Classy Charming Luxury Light Jazz Chilly Instrumentals (2024) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:D57C2B916450DFD9377D207AFCE27EBC788958CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +567,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FFD074674BA7AC89B4954EF96A9E457B0EDDE35E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -616,8 +595,7 @@ VA - Charming Classy Luxury Lounge Chilly Relaxing Tunes (2024) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:3BAE0CB519520A235F44995D059B6625842078CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

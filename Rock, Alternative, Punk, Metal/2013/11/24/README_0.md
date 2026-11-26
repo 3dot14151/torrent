@@ -27,8 +27,7 @@ Woe Of Tyrants - Behold The Lion (2007) [FLAC|Lossless]<Melodic Death, Thrash Me
 ```bash
 magnet:?xt=urn:btih:1A7B74FD19B65F1C7122F367D12520A2D0AEE767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Hell - Curse And Chapter (2013) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9175270BED9B0FF3709AEFF17B1A9375D8EF18F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Paul Carrack - Rain Or Shine (2013) [FLAC|Lossless]<Soft Rock, Pop, Soul>
 ```bash
 magnet:?xt=urn:btih:52A15F6F919C55A4A686AA55AD76109EA03A1A08
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Bonus Tracks:(   Читать дальше...   )Жанр: Heavy MetalПродо
 ```bash
 magnet:?xt=urn:btih:FDC0BF23C1ECAD446174A06F5C4295EE71171911
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Haspyd - Рідна Земля (2013) EP [MP3|320 кб/с]<Folk Metal, Pagan Met
 ```bash
 magnet:?xt=urn:btih:25F9BEC4D92FED30FF743969633F20488C9FCF87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +194,7 @@ AWOLNATION - Megalithic Symphony Deluxe - 2CD (2013) [MP3|320 кб/с]<Electroni
 ```bash
 magnet:?xt=urn:btih:03F0237F24E839B0E354F18468B57CAC80D39B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

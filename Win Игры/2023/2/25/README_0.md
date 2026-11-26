@@ -19,8 +19,7 @@ Samsara Room относится к тем играм, где геймеру пр
 ```bash
 magnet:?xt=urn:btih:6893E1126FAF20A8DFB088589A393B3EA389795C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Arcade Paradise (2022) [Ru/Multi] (1016/dlc) License GOG [Digital Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:AC1265B7DE5DADF8DC892A56FF20C5102F06DD29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Redemption Reapers - приключенческое фэнтези, в кото�
 ```bash
 magnet:?xt=urn:btih:B322FAA3A4F840BA6A38DD95CB2D06906C661E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sudocats (2022) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:278B6C7A5FAF70511A9FDC20F21BA32F5EF781CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hidden Folks – это игра в жанре "поиск предметов". 
 ```bash
 magnet:?xt=urn:btih:031B0C0963A8A884015536B024A0AA2F8D2479B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

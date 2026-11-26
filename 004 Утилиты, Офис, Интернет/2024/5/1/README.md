@@ -20,8 +20,7 @@ Fiction Book Editor это мощная программа для редакти
 ```bash
 magnet:?xt=urn:btih:021E51D053CF7255B27411BA2B0543BBA89457A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ CrystalMark - это простая в обращении и мощная по �
 ```bash
 magnet:?xt=urn:btih:AAF5375A42CD00F14A419681954B274B3FF16D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

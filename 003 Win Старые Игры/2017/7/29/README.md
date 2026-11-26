@@ -19,8 +19,7 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 ```bash
 magnet:?xt=urn:btih:89660EB35E81C7F37B2479F53C4AE44C89F96C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Battle Chess реализует идею живых шахмат в средне
 ```bash
 magnet:?xt=urn:btih:DC621BB62092290145D5D88B5934619BF42BDA4C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

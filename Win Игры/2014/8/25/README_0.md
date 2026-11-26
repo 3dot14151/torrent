@@ -19,8 +19,7 @@ Awakening 6: The Redleaf Forest / Пробуждение: Краснолиств
 ```bash
 magnet:?xt=urn:btih:EB2C1F16FB254FA3135049410BEF9DAECA37492E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nightmares from the Deep: The Siren’s Call / Кошмары из глубин.
 ```bash
 magnet:?xt=urn:btih:178D6DBB85EC1AE7DB4332C1DBC647EFADE5B507
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Haunted (2012) [Ru/En] (1.0) Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A00D98EE6A0A363A63ABB2E616E68658988A2217
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

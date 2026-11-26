@@ -19,8 +19,7 @@ Full Scientific Calculator v1.76 Pro [En] - мощный многофункци�
 ```bash
 magnet:?xt=urn:btih:661558A2DC1434F785DF6A0E9A0D3D98DABD0D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B5DBFE5061755E0133F6F0BDFB3F737071B97B27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

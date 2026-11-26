@@ -19,8 +19,7 @@ Ashampoo UnInstaller 15 — это мощная программа для уда
 ```bash
 magnet:?xt=urn:btih:059F35C77380B061566A8258D06C48C00FBDA0EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Simple Sticky Notes — простая в понимании программа 
 ```bash
 magnet:?xt=urn:btih:501F989AB85C40F3D1050AC933DB450AF726878A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

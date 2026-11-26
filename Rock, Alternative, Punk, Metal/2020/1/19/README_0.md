@@ -22,8 +22,7 @@ Despised Icon - The Healing Process (2005) [APE|Lossless|image + .cue] <Death Me
 ```bash
 magnet:?xt=urn:btih:818C6E59AB4377044D0376A9D51BC587A7579585
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Abnormal Thought Patterns - Abnormal Thought Patterns (2011) [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:53DFF36A271CAB9A3D4399D7557980F399989CF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Abnormal Thought Patterns - Manipulation Under Anesthesia (2013) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F0A2881F04A7B66C7C4ECB027B35068BCD695E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Flotsam And Jetsam - The Cold (2010) Korean Ed. [FLAC|Lossless|image + .cue] <Th
 ```bash
 magnet:?xt=urn:btih:6404E0353812DCD49D78BDD432F0F2217985A695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Dusk Dwell - Through the Bright Halls (2018) [FLAC|Lossless|image + .cue] <Melod
 ```bash
 magnet:?xt=urn:btih:5A0219D94167F513D71C28EF77D3442DB1612CE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Apocalyptica & Sabaton - Angels Calling (2020) Single [MP3|320 Kbps] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:33BD2665D6EB363A5E00D189494847395BCEED01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ECED83BA08EB01655CF9B23ACBDDDBF17305808A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

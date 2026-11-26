@@ -19,8 +19,7 @@ Beholder (2016) [Ru/Multi] (1.5.0.10020/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:6030C117F1AC3AA245DF17F9A637B139ABE73944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RUINER - суровый и жестокий экшн, действие кото�
 ```bash
 magnet:?xt=urn:btih:DF0A2F3259889EB9351811EF966B7BCA5C434CDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

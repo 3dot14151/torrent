@@ -21,8 +21,7 @@ Frankenstein: Through the Eyes of the Monster [Ru] (RePack) 1995 | RG Games (Pil
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Dominion: Storm Over Gift 3 (P) [Ru] 1998
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

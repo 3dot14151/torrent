@@ -19,8 +19,7 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) License EMPRESS [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:31F66D2B9F7C3F88AF520F54AB5FB52514F05F49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Total War Saga: TROY – стратегия в реальном времени, 
 ```bash
 magnet:?xt=urn:btih:92A3DF53562B911A7B643C3F7D79C53FE9F25F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

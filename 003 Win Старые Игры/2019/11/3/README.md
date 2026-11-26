@@ -19,8 +19,7 @@ Albion (1995) [Multi] (1.38) License GOG
 ```bash
 magnet:?xt=urn:btih:D554E5C55BBA8A718BADADDB1C377B88657BFA27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

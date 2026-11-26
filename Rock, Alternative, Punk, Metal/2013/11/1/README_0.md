@@ -28,8 +28,7 @@ Haunted Garage - Possession Park (1991) [FLAC|Lossless]<Thrash Metal/Crossover>
 ```bash
 magnet:?xt=urn:btih:EADD45B5A17B7DC91E1D0A6E379D4D3F25D3D4C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ WirgHata - Cold Dismay (2013) [MP3|320 кб/с]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:7608C5872F77393FA698461CA58B759906AB3B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Tina Turner - 15 Greatest Hits (2010) [FLAC|Lossless]<Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:6AE375FFC1D626F68DC9643368790DEA0801B00E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Bachman -Turner Overdrive - 5 Albums Mini LP SHM-CD Collection (1973 - 1975) 201
 ```bash
 magnet:?xt=urn:btih:33A7FEEE0A257D9A8D286DB17B3F19E6669D0D32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +161,7 @@ Pink Floyd - Live at... (1965-1994) Bootlegs, 108 albums [FLAC|Lossless]<Rock / 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

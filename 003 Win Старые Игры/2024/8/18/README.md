@@ -19,8 +19,7 @@ Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой 
 ```bash
 magnet:?xt=urn:btih:B35F3118A9111DFDB0F6B1CA9977D64B316E3A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

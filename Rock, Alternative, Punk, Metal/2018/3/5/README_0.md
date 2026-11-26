@@ -22,8 +22,7 @@ The Temperance Movement - британская (вернее Шотланска�
 ```bash
 magnet:?xt=urn:btih:46B5C594CD095722717AE166C143F9541DAFEC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Temperance Movement - британская (вернее Шотланска�
 ```bash
 magnet:?xt=urn:btih:7F03E7D32A1FF7CD7DB5E57CAF2EAF43D9B2DE74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Superorganism - Superorganism (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:86B0F54055DECB503B5BB528AF933197EE74C898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Temperance Movement - британская (вернее Шотланска�
 ```bash
 magnet:?xt=urn:btih:8BB0D448BFEA47A62827526807C3E0BB78C8BED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Brazzaville - Dream-Sea (2018) [MP3|320 Kbps] <Indie Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:503A7C798C2A27A8F8A5AD8948AD38A4B77093BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3014FEDE3CE608FB39F6EDE5E94F1E608E16211B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

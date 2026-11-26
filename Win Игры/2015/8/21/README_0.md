@@ -19,8 +19,7 @@ Monstrum - жуткий хоррор-экшен, где вам предстои�
 ```bash
 magnet:?xt=urn:btih:C8DCF591EAB436E19C8568B7775B1B6308C466F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

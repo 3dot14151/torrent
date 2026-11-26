@@ -19,8 +19,7 @@ XML Tools Plugin - плагин для популярного редактора
 ```bash
 magnet:?xt=urn:btih:E58F82F6A06B17DC548FF4F930029EE87534B43A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Sleep Monitor помогает отслеживать и записывать д
 ```bash
 magnet:?xt=urn:btih:D1C980DC227ACF4E9C93B0E596F10AE6CD736C05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

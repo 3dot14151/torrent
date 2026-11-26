@@ -19,8 +19,7 @@ Army Men 3: Toys in Space (1999) [En/Multi] (1.0.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8D4B831D6CB29D9FBFB0E64C70367C9FF57F0044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

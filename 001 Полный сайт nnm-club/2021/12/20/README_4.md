@@ -18,8 +18,7 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:DD74B2006300DDA2083C94F630E875410D90C5EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Office 2013-2021 C2R Install + Lite 7.3.8 b17.12.21 Portable by Ratiborus [Multi
 ```bash
 magnet:?xt=urn:btih:AAF251128C25A3C88653193D1734F4D5FBC423E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Mieruko-chan | Девочка, которая видит это | Видящая
 ```bash
 magnet:?xt=urn:btih:A62ACA54416508BB36A14CB6C779C4C0DF8075B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C72F375BFADD884D9ADE0E6EF5CFCF7F63BAA74F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0/upd9/dlc) Repack Other s [Collection Edi
 ```bash
 magnet:?xt=urn:btih:A8C6F9BA66497F95A7D76F53257FBB104DED68DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:0AB42085160B53DC8F44E41D14F3131FDBB6E617
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

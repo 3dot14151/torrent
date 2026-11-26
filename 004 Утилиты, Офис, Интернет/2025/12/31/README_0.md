@@ -20,8 +20,7 @@ Social Video Downloader обладает понятным и (   Читать �
 ```bash
 magnet:?xt=urn:btih:DAE8B31D22503615CDDC2DE49DD80CD66764B5CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Social Video Downloader обладает понятным и (   Читать �
 ```bash
 magnet:?xt=urn:btih:289DE8D7CE7FA433AC89F566C60C8DABBCEA08BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ SoftMaker Office Professional 2024 Rev. S1230.1206 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FEADE73CF5A71C85AE8483EA770DE3903B1D71FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:4C304CBC051DCBA8FD7D96184697F4B047E67FA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:B116B159BFE445C82176E77148D2EF40D3BD8860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:9FC2BDFCD6901648FD3B70AB9FF18CD980286BF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ iTubeGo YouTube Downloader 10.11.1 RePack (& Portable) by elchupacabra [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:EB79979C38A52403C7505F66EA7A7A61C386E716
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

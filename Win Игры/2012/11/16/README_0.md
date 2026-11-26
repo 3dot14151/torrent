@@ -19,8 +19,7 @@ Zodiac Prophecies: The Serpent Bearer [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:CD6EAC66D07552C2FE033CCD147348E2C8F7AB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Forbidden Secrets: Alien Town Collector’s Edition / Запретные тай�
 ```bash
 magnet:?xt=urn:btih:F122F1AC07EC39272BB554898F4F3E02C3271BF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tower of Elements [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:BD708B55FF8D7A2544F651A6A1A9E84AD83959E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

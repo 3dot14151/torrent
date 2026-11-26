@@ -22,8 +22,7 @@ Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upc
 ```bash
 magnet:?xt=urn:btih:42CBEF722B966FB86EDD8764BA3E04922802AD39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

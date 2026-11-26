@@ -21,8 +21,7 @@ Rapture - группа, сформированная в 1997 году в Хел�
 ```bash
 magnet:?xt=urn:btih:A33AC90CE2D3C5759B32AE4B79066FAB043136A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

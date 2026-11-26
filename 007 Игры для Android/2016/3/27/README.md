@@ -19,8 +19,7 @@ American & British Academy. ABA English [Ru/En]
 ```bash
 magnet:?xt=urn:btih:48D0BE6092E60410B89AE796C94396723FB920E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

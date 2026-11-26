@@ -19,8 +19,7 @@ Mix-DL — легкий и стильный загрузчик музыки с Y
 ```bash
 magnet:?xt=urn:btih:D6BFA07846D0350A0980DD5C344403014730FAD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ RAR - это консольное приложение, позволяющее �
 ```bash
 magnet:?xt=urn:btih:C62CBD859B2228043AD7446F05E92948FDDE169B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

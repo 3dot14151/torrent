@@ -21,8 +21,7 @@ Debian 9 Xfce Custom v2 2018.02.19 [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:C22B42C48908475FEA568AC43B392C50B4C8D317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/M
 ```bash
 magnet:?xt=urn:btih:9AF837BB701EDEC9E93389C97A1207CE4437347B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Lost Orbit – космическая аркада от независимых �
 ```bash
 magnet:?xt=urn:btih:1D8139EF1754A859BD1325362BD822F82854C067
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Virtual Pool 4 - очередная часть известного симуля
 ```bash
 magnet:?xt=urn:btih:519568A03C1ADB9EA55F3D1D14F8448EB392AC15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Grim Facade 3: The Cost of Jealousy Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:6FF0A1B21104C8302E5210E93CCAF8E80149EC15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Strangestone [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:6615E2D23399E30F6FB5970226173D54E8E7C676
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Keepers 2: The Order's Last Secret Collector's Edition / Хранители:
 ```bash
 magnet:?xt=urn:btih:AB77737DC0716A999405A7F2FFB83A3BD042953C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Time Mysteries 3: The Final Enigma Collector's Edition / Тайны времен
 ```bash
 magnet:?xt=urn:btih:0084BEF106D83F5F70249F8A3C24E4339E196F86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ MotoGP™20 (2020) [Multi] (1.0/dlc) Repaсk R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A8192006835E8294C249318EB044A0EAC3E17B0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack xatab [Episodes 1-4]
 ```bash
 magnet:?xt=urn:btih:A88680DD5C114C68805A6E574ACB1969C864ABB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Reign of Fury - мелодик-трэш-метал группа из Велик�
 ```bash
 magnet:?xt=urn:btih:8934EE90D1F6E22BD222517F5E5D8FF3AE53A89B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

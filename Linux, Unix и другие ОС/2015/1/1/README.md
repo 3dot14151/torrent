@@ -21,8 +21,7 @@ PCLinuxOS 2014.12 KDE [x32, x64] 2xCD, 2xDVD
 ```bash
 magnet:?xt=urn:btih:488DD736269C1E923486C4D1704CD49C4E12C4A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

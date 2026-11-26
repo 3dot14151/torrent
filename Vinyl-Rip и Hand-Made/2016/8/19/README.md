@@ -22,8 +22,7 @@ A4 Джамбалая(   Читать дальше...   )Жанр: Pop, FolkПр
 ```bash
 magnet:?xt=urn:btih:58C066592730F242B641B27E1AC2BE9C1287FB1E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

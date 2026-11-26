@@ -19,8 +19,7 @@ Art of Murder: Deadly Secrets / Смерть как искусство. Прес
 ```bash
 magnet:?xt=urn:btih:71A249961461AC01C1AB32C865D45CED68C0CB6C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Art of Murder: The Secret Files / Смерть как искусство: Пох
 ```bash
 magnet:?xt=urn:btih:68507D700E314ADF1114641169D97CC7C56AF38F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

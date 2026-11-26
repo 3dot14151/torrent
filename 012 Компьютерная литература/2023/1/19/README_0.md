@@ -20,8 +20,7 @@ Selenium - это швейцарский нож в руках программи
 ```bash
 magnet:?xt=urn:btih:4AC84A20AC7910C60B794ABDA97B259018BB99B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

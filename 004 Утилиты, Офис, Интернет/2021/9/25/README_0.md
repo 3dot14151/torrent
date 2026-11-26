@@ -19,8 +19,7 @@ NuttyBoot предназначен для запуска из флешки/SD д
 ```bash
 magnet:?xt=urn:btih:0E3353D4EC10090E8B17CFDA9E3A9414750EC781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

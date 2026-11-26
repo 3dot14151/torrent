@@ -19,8 +19,7 @@ Westmark Manor (2020) [Ru/Multi] (1.0/upd10) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5645A5ED90CA0B50B4664FB5750A80CF1B0D3D76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

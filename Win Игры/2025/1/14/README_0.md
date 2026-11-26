@@ -19,8 +19,7 @@ Future Fragments - это современный платформер тольк
 ```bash
 magnet:?xt=urn:btih:BC47A5C040C6510EFEC4C944E722D5B57B8C9CA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ JUMP! The Floor Is... (2025) [Ru/Multi] (build 16957809) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:8B447165721B8594FA9202F97C2BF87D4EEE092C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack Let'sРlay [Terra Edition]
 ```bash
 magnet:?xt=urn:btih:C680A152997D93819CF561AE6041EDA0CB14D1CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wonder Boy: Asha in Monster World (2021) [Ru/Multi] (Build 8291740) Repack Let's
 ```bash
 magnet:?xt=urn:btih:2024C00943D87D883EA87EFCDB7A2473420FB81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ While We Wait Here - это игра о работе на кухне, позво
 ```bash
 magnet:?xt=urn:btih:7156A63CB7797A79351F70D0AE50A54B43F567F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5050D3254EAA50BAE7A56C95743E28C83A3F2947
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D41AE8A4A135AB02DD9391D323B0316063E72208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

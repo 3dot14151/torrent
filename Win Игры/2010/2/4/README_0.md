@@ -19,8 +19,7 @@ F.E.A.R. 2: Reborn / F.E.A.R. 2: Возрождённый [Ru] (RePack) 2010 | U
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

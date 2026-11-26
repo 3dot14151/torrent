@@ -19,8 +19,7 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:EDB6485832842E5A18A5E5FA770000D9ECD24ABA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VIMAGE - AI Photo Animation v5.1.11 Mod by PieMods [En]
 ```bash
 magnet:?xt=urn:btih:62A7B98F106929505083287BC09D5EBC8DB9DF42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ aCalendar+ Calendar & Tasks v2.9.5 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C4EA3184861470AE72A4CAC6BB168548C130277E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mindroid является АВС (устройство аудио-визуаль
 ```bash
 magnet:?xt=urn:btih:DFAD4509EB4BC2ED51375159F10C320ABC9FD2E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Strava: бег, велоезда, хайкинг v428.10 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:7143A5661E918938A87B6B6AC52F25888E8587F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:E10F12DE2EF1ABC74FC6AD1973BB3D56022EF1AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ WeNote: заметки блокнот планер v6.39 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:8DB5E1FAAC21EF91B5239AE429E22555D5C03A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

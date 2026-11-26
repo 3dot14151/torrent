@@ -19,8 +19,7 @@ Project Remedium - это приключенческий экшен, в кото
 ```bash
 magnet:?xt=urn:btih:245EA647AAD7D2A3F71935B3F3C9BEB85ACABDFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

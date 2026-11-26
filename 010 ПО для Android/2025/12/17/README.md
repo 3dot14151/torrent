@@ -19,8 +19,7 @@ HiPER Calc Pro v11.2.9 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0143CF786F64AAED7FD38656ACB899CAD1D4F482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23FA73F78E8BDEFF6F62E2E23C6AFEE5EFB5B796
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Smart AudioBook Player Pro v11.6.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EE8BAE7DF7892DB76BE5BE8DFB56C3EC9F0029FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ PianoMeter – Piano Tuner v4.1.1 Mod by Alex.Strannik [Ru/En]
 ```bash
 magnet:?xt=urn:btih:402BA4D7A1A9922F7FC9FF7C84211E1B7D885314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ One Read / Все Документы Читатель - Офис v1.2.7 Mod by v
 ```bash
 magnet:?xt=urn:btih:3DF2785F1C60072FAB6F0A63B1AB392FACC6A6D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:8BFC86CD50CD9CBC5D760E623F07C1264BD6589D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

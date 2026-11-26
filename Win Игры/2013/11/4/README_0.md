@@ -19,8 +19,7 @@ Travel Adventures: World Wonders - новый поиск от Domini Games с р
 ```bash
 magnet:?xt=urn:btih:7869A5A8C5F11E58846FD5A3669003B4C008099A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Revived Legends: Road Of The Kings Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:BCC85A6D16F47A025136CC0761D1392A13EC2133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Greed: The Mad Scientist (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:E78A3F0D93FBDF8780113167B37684E96E08D242
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,8 +101,7 @@ Warside предлагает широкие возможности для ком
 ```bash
 magnet:?xt=urn:btih:29180E2CFA358A6190CF6DD649DF6D41CF3A8F50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ The Harvest (2013) [Multi] (1.0) Unofficial ALiAS
 ```bash
 magnet:?xt=urn:btih:A39A608B7A3ED54FBD2392807BD9E2BF3A69F00D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ State of Decay (2013) [Ru/En] (Beta upd8) Repack Heather
 ```bash
 magnet:?xt=urn:btih:76857E52938FFAFB5A825734FEF2B5FF5138A160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

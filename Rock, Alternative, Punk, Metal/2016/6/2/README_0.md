@@ -22,8 +22,7 @@ Eternity's End - The Fire Within (2016) Japanese EdItion [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:63A78E1DCB5E60B739356D613B6EE91C281A9867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Withem - The Unforgiving Road (2016) Japanese EdItion [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:C524C515D6E7CF02B2D3B0E7FCF73BFB01BDCCCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Iron Savior - Titancraft (2016) Japanese EdItion [FLAC|Lossless|image + .cue] <S
 ```bash
 magnet:?xt=urn:btih:A1726C954D0ADC862E937A9BB4C5606F2E89A46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Derdian - Revolution Era (2016) [MP3|320 кб/с] <Melodic Power Metal>
 ```bash
 magnet:?xt=urn:btih:C093EF5D0D8D680F970C52F6C635B9B6E67B4220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Hillbilly Moon Explosion - My Love for Evermore (2015) [MP3|320 кб/с] <Ro
 ```bash
 magnet:?xt=urn:btih:9C0B9378C91DABB5E78A49BBC00274999080B820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Animal ДжаZ - AZXV: Акустика (2016) [MP3|320 кб/с] <Rock, Alternat
 ```bash
 magnet:?xt=urn:btih:AEB6C0E878CDF95C03C860FB697E3260BD6DFF16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Tarja - The Brightest Void (2016) [MP3|320 кб/с] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:1E2966C4C6131E861D7EFE9D0C6ED709D79377B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8935E606DF489824D57EF615D0FE3159EBF7FB5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:338FF7DAC4694F139A2798743E612C4AFB525B48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

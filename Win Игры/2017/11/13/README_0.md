@@ -19,8 +19,7 @@ Space Pirates And Zombies 2 (2017) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:89603D37FE9F59DE03A936E2CAB4639CFD0C20AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Assassin’s Creed: Brotherhood (2011) [Ru] (1.03/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9279EAE7FA8D2ABF536C6BBF40690886556E0BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dead Reckoning 8: Lethal Knowledge / Точный расчет 8: Смертел
 ```bash
 magnet:?xt=urn:btih:EEC862CB97B88BD51BA09354D79CBC337ECCF663
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sherlock Holmes: The Awakened / Шерлок Холмс и секрет Ктул
 ```bash
 magnet:?xt=urn:btih:886430CACF8906F811C8BCA5E6F6506CC159671C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tom Clancy's Splinter Cell: Conviction (2010) [Ru/En] (1.04/dlc) Repack Seraph1
 ```bash
 magnet:?xt=urn:btih:365D9B9AD65053D4852342B7DEC9B6F6AF316012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Red Comrades 3: Return of Alaska. Reloaded / Петька и Василий Ив
 ```bash
 magnet:?xt=urn:btih:FF8030D92AF2AF908F35B277D2FFE48633B5F77D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Rise of the Tomb Raider расскажет о первой экспедиции 
 ```bash
 magnet:?xt=urn:btih:B6C1C28D1F04B2237AE64910453E5F88925CF621
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Theatre of The Absurd Collector's Editon (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:95D8439C1E747CA1DC91CC1B6A8D3CA1FC8A01FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Shiver: Poltergeist. Collector's Edition / Дрожь. Полтергейст. �
 ```bash
 magnet:?xt=urn:btih:3CC2D67B89627D8FB397E41F06415932131AF372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Small Town Terrors: Livingston / Террор в городке Ливингст
 ```bash
 magnet:?xt=urn:btih:725AC5190B362CCAFCF10610A948613243B3F8E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Secrets of the Seas: Flying Dutchman Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:CF2AF62ABD8BBA02ABE86700842C79D4B100F49C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

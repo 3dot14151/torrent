@@ -19,8 +19,7 @@ Raging Titan - это игра, в которой вы должны защити
 ```bash
 magnet:?xt=urn:btih:2E0B95141EA6A827680C4F3CE02DF03ADE04CCAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0.0.1) Repack R.G. Revenants [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:89F41CDF6DE293409A3AC3DF274CC77E96353877
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.07.141/dlc) Repack YelloSOFT [Digital Deluxe E
 ```bash
 magnet:?xt=urn:btih:45719A4BB4536998D1D04A32F3941A8B43C7698B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

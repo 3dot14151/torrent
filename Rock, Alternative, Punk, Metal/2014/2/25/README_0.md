@@ -25,8 +25,7 @@ Stilla - Ensamhetens Andar (2014) [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:449A555CC9375ACF97F58EBA9C93D17CF3521ECA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -60,8 +59,7 @@ Hatriot - Dawn of the New Centurion (2014) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:DD7A7CAAC1424AC1B331F3BAB200B3173B02E51C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -95,8 +93,7 @@ Thunder - Thunder (1980) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:646280D6751FAF74A50A305171C6F3041C611CBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +127,7 @@ Hatriot - Dawn of the New Centurion (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:D0EAD61DC952B82C2F78A46EE0DA20C88B169A98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +155,7 @@ Jesca Hoop - Undress (2014) [MP3|320 кб/с]<Alternative, Indie Rock, Indie Fol
 ```bash
 magnet:?xt=urn:btih:BC461E4861DFF4724E9CFD095E00AE12523B7F2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC06FABC24980061CE253D27690F36DD407C0BD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ VA - Rock'n'Roll Love Songs. Unchained Melody (1997) /Pegasus/ [FLAC|Lossless]<R
 ```bash
 magnet:?xt=urn:btih:E886B70BFBFE56A11C6565B0411DB6EEF5999618
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +257,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC2AF986021214AEE5E1ABB805C77D0363FB916A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

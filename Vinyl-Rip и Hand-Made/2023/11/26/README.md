@@ -22,8 +22,7 @@ B1. Slither (04:03)(   Читать дальше...   )Жанр: Progressive Dea
 ```bash
 magnet:?xt=urn:btih:E49269CE9A95AB7D03D11EEDCA85332FAB051E75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ B2. Atonement (06:30)(   Читать дальше...   )Жанр: Progressive D
 ```bash
 magnet:?xt=urn:btih:E89F8A35A60B642F0F62640D7A456FE28BE0A101
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Kenneth H. Rosen | Discrete mathematics and its applications 7th ed. (+Full Solu
 ```bash
 magnet:?xt=urn:btih:EEE3BB65F0011D6406E808B59D71E894364BDF0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

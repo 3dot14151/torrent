@@ -21,8 +21,7 @@ Soft4Boost Document Converter - программа для просмотра и 
 ```bash
 magnet:?xt=urn:btih:E955A79C36C95E5664B8A590BADA6768017868C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

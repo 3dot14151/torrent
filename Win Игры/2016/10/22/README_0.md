@@ -19,8 +19,7 @@ Robot Squad Simulator 2017 - это аркадный экшен с элемен�
 ```bash
 magnet:?xt=urn:btih:B8B8346DEC7A76B19D24102C13EA3622EADAF1EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

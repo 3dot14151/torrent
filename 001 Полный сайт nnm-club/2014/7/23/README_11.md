@@ -21,8 +21,7 @@ SB81 - Blueprints (2014) EP [MP3|320 кб/с]<Drum'n'Bass, TechStep>
 ```bash
 magnet:?xt=urn:btih:8547B97CC82588BC5F7D6F66EE43464D384B00AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Dark Whisper - From Now On (2011) [APE|Lossless]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:4D50D35BA6996A960F7835D64C7202D6A29DACD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ A Better Finder Rename умеет извлекать EXIF-данные о вре
 ```bash
 magnet:?xt=urn:btih:85FB9C550D5F4448AE605B9B73B3559259781A01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ Together для Mac OS - Программа для хранения и орга�
 ```bash
 magnet:?xt=urn:btih:A86213C529D200D6155EB0A5B9827C961DC111C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ Capture The Crown - Rebearth (Single) (2013) [MP3|234 кб/с]<Post-Hardcore, El
 ```bash
 magnet:?xt=urn:btih:9DAFCEAE51049FC9658FC9C87928BCCC166567AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -165,8 +160,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:C830DFCEFAB7ED94018EFB2728A44A38036AE592
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Dubloadz - Jugular (2014) EP [MP3|320 кб/с]<Dubstep, Riddim>
 ```bash
 magnet:?xt=urn:btih:26E0C110D07445DFDD1768088FD32327A2F625B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ Edge Of Thorns - Insomnia (2014) [WavPack|Lossless]<Melodic Power/Speed Metal>
 ```bash
 magnet:?xt=urn:btih:8AD581D5AFFD35DFE0F00C3899DCBAF606FE0CEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ VA - Клубные Новинки Vol.458 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:2CDC8657189BE3A7903532841DBEED60E484FE34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,8 +286,7 @@ CodeKit помогает вам создавать веб-сайты быстр�
 ```bash
 magnet:?xt=urn:btih:C247E3B842CC926CB9FA8082AFADE85377BCA7B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ Hush - Luchtledig (2014) EP [MP3|320 кб/с]<FutureBass>
 ```bash
 magnet:?xt=urn:btih:4CB291869E70B8BCF3FF91240585564CC88E11E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ Swick - USB Club Trax (2014) EP [MP3|320 кб/с]<Trap, JerseyClub>
 ```bash
 magnet:?xt=urn:btih:6969495061476D5D952FFF1FB98A18BDCA43C1A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +367,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EEFBF57406F96EA36219ED5F7B461D8802E497D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +392,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51BA6FDE19336D6A31AEC909C0968EF68A0F6AF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B524E65C5FBF6185CFD119DA531EFE6998862372
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5DBBF9FD971650286FB619C1F8E89F74EDCD6AA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ Gent & Jawns - Faded (2014) EP [MP3|320 кб/с]<Trap, DutchHouse>
 ```bash
 magnet:?xt=urn:btih:9B24314D1FE5D3A83183C6B8E3283EB5CCA60ECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +504,7 @@ Gin Blossoms - 8 альбомов (1989-2010) [MP3|192-320 кб/с]<Alternative 
 ```bash
 magnet:?xt=urn:btih:0C12BCCF65D3EFB48576FD27A530B895EF616BF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +538,7 @@ VA - Клубные Новинки Vol.456 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:B85A0985F8ADB0A337D47331712522E5EA818BC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,8 +568,7 @@ Valentino Khan - In Khan We Trust (2014) EP[MP3|320 кб/с]<ElectroHouse, Carni
 ```bash
 magnet:?xt=urn:btih:B876078425E2A8952D790339217842EBC4428A1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +597,7 @@ Gaetano Pellino (feat. Soul Sarah) - On The Other Hand (2014) 2CD [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:E76E959F7573AF0A9E550B7E4264C83559E56E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +622,7 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:DB4A2B60FEC5E79A3BA126DC1933E0A45448D8D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +654,7 @@ VA - Клубные Новинки Vol.459 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:FBEE223E50A3AA0B97638CA6C81AFFB22A58AA2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +686,7 @@ VA - Клубные Новинки Vol.460 от AGR (2014) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:6ED9E272C6249E23F35F9287DB0559D40392940F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -744,8 +720,7 @@ Evil Conspiracy - Prime Evil (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:DCFF5AF4B3C91F4F3FA2C01B17FBE857F5D376BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +754,7 @@ Derdian - Human Reset (2014) [MP3|320 кб/с]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:611C969D653FA925E916C333CF394DC7EFCC844E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

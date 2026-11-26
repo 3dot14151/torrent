@@ -22,8 +22,7 @@ Ram-Zet - Sapien (2026) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Metal>
 ```bash
 magnet:?xt=urn:btih:55B78E28BB4B071194AF6B010D0D8E7F58A743F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Teaze - Rev Your Engines (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0927A4EF7EA10AAD166CC74C0965F37CD617B5FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mammon's Throne - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Ston
 ```bash
 magnet:?xt=urn:btih:EBD1FE1199D832F359A2D9B76818D3C1BD9F8B05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Periphery - A Pale White Dot (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progres
 ```bash
 magnet:?xt=urn:btih:A8E35CC4EE44E4D8F316BD2D0CA1F2AE941430C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Embrace of Souls - The Battle Of The Dead (2026) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:CED4E9A2D1C4BA24EDA65AC8224C2B89D4D71830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Hellevate - Killicon Valley (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy 
 ```bash
 magnet:?xt=urn:btih:071150A88B6741A963EDC34FA27755556A95FA3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

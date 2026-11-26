@@ -19,8 +19,7 @@ CapCut - Video Editor — бесплатный универсальный инс
 ```bash
 magnet:?xt=urn:btih:F197E23C713F9144E380762952FC88649DC758F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9682A03191C4B08EBCE827408D3884691FA4D147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ PicWish — фоторедактор с искусственным (   Чита
 ```bash
 magnet:?xt=urn:btih:ED3CB009382F385CBE0B28644243EC28780DE90E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ ColorNote — ColorNote это простой блокнот. Он предос�
 ```bash
 magnet:?xt=urn:btih:622AA51A3F3FA142975FC02B9886933A8E4BC056
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

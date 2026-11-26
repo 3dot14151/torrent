@@ -22,8 +22,7 @@ The B-52's - Cosmic Thing (1989) CD, Album, Club Edition, Columbia House [FLAC|L
 ```bash
 magnet:?xt=urn:btih:735CB2DF2E724D82C10CD4168CF9532AB2120BDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Paul McCartney - Снова В СССР (1988) Japanese Edition, SHM-CD, Reissue
 ```bash
 magnet:?xt=urn:btih:266156D1D027B419351F427F1EF9D7EB86C98DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chicago - Greatest Hits 1982-1989 (1989) CD, Compilation, Club Edition [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:F8EAF0A3B6AB89461AFC44C79532D890DD67AF00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

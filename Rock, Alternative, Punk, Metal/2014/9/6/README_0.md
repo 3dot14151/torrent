@@ -21,8 +21,7 @@ Capa - The Droves (2014) EP [MP3|320 кб/с]<Atmospheric Black Metal>
 ```bash
 magnet:?xt=urn:btih:7618C90A1D36867625DCA348C881C18AFCBEFE29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Panzer - Salvese Quien Pueda (1983) [APE|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:24D35A6C9B60EB89A8E878BF67EBC2BCD38B1F59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ Daughters Of The Sun - Ride To Die (2014) [MP3|320 кб/с]<Psychedelic Rock, Ne
 ```bash
 magnet:?xt=urn:btih:09349E5AC514CEB0B43954D1EF04DB66627648B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -119,8 +116,7 @@ Reverend Bizarre - Death Is Glory... Now (2009) 2CD [FLAC|Lossless]<Doom Metal>
 ```bash
 magnet:?xt=urn:btih:763C89E550F19D1BCE8AE1825065E96D4B60B64E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Agrypnie - Aetas Cineris (2013) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:9408B2CC64CB4FB6CA10A0E69DB19E3FA391777A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +174,7 @@ Russian Circles - Enter (2006) [FLAC|Lossless]<Instrumental Post Rock / Metal>
 ```bash
 magnet:?xt=urn:btih:8DBE8EE9247E13C39F7701E72F2B369D017EF71A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +204,7 @@ Russian Circles - Empros (2011) [FLAC|Lossless]<Instrumental Post Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:C164DBAE7E8B3C013C7B50A336CD59E0C5A0F64A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -245,8 +238,7 @@ Age Of Artemis - The Waking Hour (2014) Japan [FLAC|Lossless]<Progressive / Powe
 ```bash
 magnet:?xt=urn:btih:31F13B5923EAD9D16B10A529F79832B0D458C656
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B16CBB1BF0924FD0B4F0D9D0815DA1944FC3C643
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,8 +306,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9D348C015E7D3F9713BA671CE321D7A473CA23FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

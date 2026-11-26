@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:7A5026AB2639B1B08CAD4BB1FA0AB891B87698F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Iommi - From The Dark (2026) Deluxe Edition [FLAC|Lossless|image + .cue] <Heavy 
 ```bash
 magnet:?xt=urn:btih:D6B0CBCBA15038FA241CD63A43DBAAB11660A9FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

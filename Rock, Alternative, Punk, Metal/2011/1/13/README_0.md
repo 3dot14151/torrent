@@ -28,8 +28,7 @@ Jake E. Lee - Runnin' With The Devil (2008) [FLAC|Lossless]<Hard Rock/Hard`n`Hea
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Grateful Dead - Beyond Description (1973-1989) (12HDCD Box Set Rhino Records) (2
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

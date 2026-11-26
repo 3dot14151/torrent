@@ -19,8 +19,7 @@ Red Button – это мощная утилита для оптимизации 
 ```bash
 magnet:?xt=urn:btih:03AF48370A1B98374F3082E9E8DA0B3E86C08E87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Attribute Changer - простенькая утилита для удобног�
 ```bash
 magnet:?xt=urn:btih:B28B35CAB558F9CC72459EB8EAA7BBBAE9B9FE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

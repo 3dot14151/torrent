@@ -22,8 +22,7 @@ Ocean Of Sin - Lie Goes To Hell (2014) EP [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:C75BDF5B0CB59C61AC5296AF16F0403B6EC556D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Alien Ant Farm - Always And Forever (2015) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:EBD76166D843F8B0931ED44E3A5355414B00E7D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ Sting - Bring On The Night (1986) 2CD [FLAC|Lossless]<Jazz, Rock>
 ```bash
 magnet:?xt=urn:btih:8AD591FF8C53B961942BEA4EC06CBF30943FD680
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ VII. The Fallen And The Chosen One(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:7F142CF4EAF176D06ADE6ECAC0679331B6C61BC4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ II. The Awakening(   Читать дальше...   )Жанр: Power MetalПро
 ```bash
 magnet:?xt=urn:btih:6E9E647C028EF568E7438DB5A789A355E48FB6FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

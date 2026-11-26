@@ -24,8 +24,7 @@ Styx: Master of Shadows — это игра в лазутчика с элеме�
 ```bash
 magnet:?xt=urn:btih:6821715283291C3B445C9595EB39BA40D694AD0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Wrack – аркадный олдскульный инди-шутер от пе�
 ```bash
 magnet:?xt=urn:btih:192F31492AFA97296D94C54AC3B176CEEC801D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

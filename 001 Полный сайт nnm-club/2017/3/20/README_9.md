@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:8A73B5BAF5DEC3F5FBF2AD33BCD9DF85FF315DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DF32AF80371F85390B1D6458A87DF7BCD8ED33C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FCF6C30C84929C42E66B97C70F3E1B15B612B15F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBBAC1B9CA59D0D10B455F931FC3C7249ECD25B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ Von Freeman - The Improvisor (2002) Premonition Records [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:BB49163973BC9622AF09906DA0728E2ADF3F4D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +158,7 @@ VA - Trance Heroes (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:F178309743A024EAB5BCEF39521C4D55BFFF5752
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +186,7 @@ VA - Miami Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:75F53D23651085EF566AD980027E3DE879D77DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +214,7 @@ VA - Transorica Vol.22 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:37B427B317BC3DE6CEE105612234D10A1094AFBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -249,8 +241,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C0DB4C82A4367F5F5406262B84F0DDF7B193F713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -278,8 +269,7 @@ VA - Trancemission Miami (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:E965D8044776CFBDE45D96AD5D2D60180819F01C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +297,7 @@ VA - Total Trance Selections Vol.03 (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:9F6C66B4EE5103A2492D19681D271A63A4C55FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +325,7 @@ VA - Elliptical Sun Music 01 (Mixed And Compiled by Adrian Alexander) (2017) [MP
 ```bash
 magnet:?xt=urn:btih:30D18E93AFBAD04AACF466DFFA5354CAE4A715ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +352,7 @@ Deckset поставляется с девятью удивительно выг
 ```bash
 magnet:?xt=urn:btih:ACE7B5D83387EEA49D27C83E9F6A3BDE181AE9B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,8 +380,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DFEFFC9480AB238C90C007ACA9E5FCD155C4D17D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +408,7 @@ VA - Meteor Trance Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:A99E6B1AA296BEAAEE8E95A085BF2800BBBE53C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,8 +436,7 @@ VA - Inner Balance Chillout Your Soul 1 (2017) [MP3|320 Kbps] <Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:93380DF44D1C8E56828B0C8518B7F49D6CCC82A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +464,7 @@ VA - Beatport Trance Pack (20.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:80A92A693374C644AA09C71B02AB59FEDF34BB22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,8 +492,7 @@ Randy Volin & The Hard Ones - Detroit Thang (2014) [FLAC|Lossless|WEB-DL|tracks 
 ```bash
 magnet:?xt=urn:btih:3353688D4140E6C2B09BFD0A7B52467E2B3EF76E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ VA - Pool House 2017 (Cool Deep House For The Poolside) (2017) [MP3|320 Kbps] <H
 ```bash
 magnet:?xt=urn:btih:09DD643ADBCCC1F250AFFCCAE8EF2F4516B4A6FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +548,7 @@ Ben Poole - Everything I want (2010) EP [FLAC|Lossless|tracks + .cue] <Blues Roc
 ```bash
 magnet:?xt=urn:btih:3B042D3FA75BA0B5A2C44EDF2398B6B9913A67D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,8 +574,7 @@ Notebooks  является единственной записной книжк
 ```bash
 magnet:?xt=urn:btih:822E9DACB97AD098DC65E5019713EDECA4436A1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +600,7 @@ Subwave & The Dual Personality - Full Control VIP / Falling (2016) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:FEC8ECBC4DA41CAF3349B1BC9ECB0B99EE60D01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +625,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:438DAAB135AC4B1DE27CDA3F7365DF9F7FB3735B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +653,7 @@ VA - The IDM Sounds: March Version (2017) [MP3|320 Kbps] <Club, Dance, Electro H
 ```bash
 magnet:?xt=urn:btih:FFA460238980C4C9CDEAE13459F203C273ED9013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +681,7 @@ Jennifer Holliday - The Song Is You (2013) [FLAC|Lossless|tracks + .cue] <Soul, 
 ```bash
 magnet:?xt=urn:btih:AF2E139A5590D11B3995C9C408C23BF5411A500F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -732,8 +707,7 @@ Insideinfo - Glimpse (2017) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:63C3EF6497E6F274004DE6A23F5247EB2F1CBD1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Pep Gaya - Driving by Night (2007) [MP3|320 кб/с]<Deep Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:B4B0E7880993DC59BE2CEBE96AE1DE15844D4258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ VA - Timewarp (2008) [MP3|320 кб/с]<Minimal, Techno, Electronic>
 ```bash
 magnet:?xt=urn:btih:7883AF79B22497A02971589A672819ACCD677D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ VA - Клубные Новинки Vol.211 from AGR (2012) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:59C9927E899B9EB134658C8D04D6F07013DC1B67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ VA - Fireworks Vol.8: Part B (2012) [MP3|320 кб/с]<Techno>
 ```bash
 magnet:?xt=urn:btih:A03C889642B6884E29A52B5E3FA71D07396FA3C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -184,8 +179,7 @@ VA - Shunt EP (2012) [MP3|320 кб/с]<Dark, Industrial, Techno, Electronic>
 ```bash
 magnet:?xt=urn:btih:F3EF5E6C33D81F538194519C226FA47768C7120A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +209,7 @@ VA - One Year Ago EP (2012) [MP3|320 кб/с]<Dark, Industrial, Techno, Electron
 ```bash
 magnet:?xt=urn:btih:D4B4FA894B594D7889F32DADA96C97075C51AE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -250,8 +243,7 @@ VA - Panoramic (2007) [MP3|320 кб/с]<Minimal, Techno, Electronic>
 ```bash
 magnet:?xt=urn:btih:7FCEBB8ECA225CBAC9D08D04AF6CF6859AF69050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +273,7 @@ VA - Ajana EP (2011) [MP3|320 кб/с]<Dark, Industrial, Melodic Techno>
 ```bash
 magnet:?xt=urn:btih:D367C8DCC72F6BDE1091EBCC56B8A559EF89D555
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ VA - Клубные Новинки Vol.212 from AGR (2012) [MP3|320 кб/с]<Clu
 ```bash
 magnet:?xt=urn:btih:1EF25CB8098EFE32873BF8B3D17E4210E1DDCC5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +341,7 @@ VA - Multiplicity (2008) [MP3|320 кб/с]<Minimal, Techno, Electronic>
 ```bash
 magnet:?xt=urn:btih:A82D32EC5B31EF96EF7E2A46A88B44D38D170076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ Sexy Girls Wallpapers (26.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:03FEFD82BDC88B9DB3538F8BB9D7B6D85A66F105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ VA - Axon EP (2012) [MP3|320 кб/с]<Dark, Industrial, Melodic Techno>
 ```bash
 magnet:?xt=urn:btih:766AF27C4E64ACAF1EE210D222DB1C9796ABB70B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +421,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7AE24AA5B367B32624392D9665EA5563566EB917
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +455,7 @@ VA - Housepital's Secret Club Weapons Vol.2 (2012) [MP3|320 кб/с]<Progressive
 ```bash
 magnet:?xt=urn:btih:191B3D62355720F64EE417276CDB04CC73982F9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,8 +480,7 @@ Sexy Girls Pack Wallpapers (26.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:3E5AF434CF385C27E56029480E0AB0B7107844EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BC76CEE0DE6A496993C7640A48EA96C5D39016CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ Sexy Girls Pack Wallpapers (27.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:C793CC0F06813DBF6F9BF17F12DB3BA875B03C55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +555,7 @@ Nature Wallpapers (26.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:A676FCA78DF3ACCF7F5157EEEEE4FD1FAFC3C185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +580,7 @@ Sexy Girls Wallpapers (27.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:83709CACD3F1529B06AE95059C347DCB92233517
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,8 +605,7 @@ Nature Wallpapers (27.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:0A6E257E97BAEA7CBDE5CE44C34D40E94232740C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +639,7 @@ VA - Убойная Дискотека 2 from AGR (2012) [MP3|256 кб/с]<Pop, 
 ```bash
 magnet:?xt=urn:btih:79DCAFE4879213E1F28B398889A356C7E0CF9772
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +664,7 @@ Best HD Wallpapers Pack (26.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6998712B3CCAE54FF0D1684F58E92B8689AD975C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +689,7 @@ Best HD Wallpapers Pack (27.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:A79285B4AE45B2C871EA0148815F985B8D0DD274
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +714,7 @@ HQ Wallpapers for a desktop (26.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:09020B95492984719794DEC26FB19B5DF598C553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +739,7 @@ Lynx Wallpapers (26.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6D2111B42FACC5A201F57FE705C1D4788D825CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

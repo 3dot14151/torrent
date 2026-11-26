@@ -22,8 +22,7 @@ Hamer - Бивни (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Meta
 ```bash
 magnet:?xt=urn:btih:77559D4FC567901A49EC4CE76B22B1703FCE2A0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

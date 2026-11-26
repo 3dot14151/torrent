@@ -19,8 +19,7 @@ VIP MP3 Player (ZK.FM Player) v4.1 (96) Mod [Ru]
 ```bash
 magnet:?xt=urn:btih:95D599F59FAF0B2D9AD77908BAE853F225C76557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

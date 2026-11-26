@@ -19,8 +19,7 @@ Artifact Seekers: Season 3 / Искатели артефактов: Сезон 3
 ```bash
 magnet:?xt=urn:btih:5404690BA284A72F846D5796DCE1D07B5A96491E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Songs of Silence (2024) [Ru/Multi] (1.9.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:08F57CF2E948DB30AFB0D8DF5E0B5DE09BDBE838
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Conan Exiles Enhanced - это игра на выживание в открыт�
 ```bash
 magnet:?xt=urn:btih:235CC4D8532E3F49CD9BB6B9DA1A0C35C8A43522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Saratoga - En Estado Puro (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Me
 ```bash
 magnet:?xt=urn:btih:C074F3D695E57A0D689AFEFAB227EAEE599ABEF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Lantlôs - Nowhere In Between Forever (2026) [FLAC|Lossless|WEB-DL|tracks] <Post
 ```bash
 magnet:?xt=urn:btih:539ACC8EFD1F627AB52CB9815EBA1E93878760C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Flotsam And Jetsam - Blood In The Water (2021) [FLAC|Lossless|image + .cue] <Thr
 ```bash
 magnet:?xt=urn:btih:FFEDF0C99585FD71AA6CEF3F7ECC806F66D90AC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Between Me and The Night — из тех игр, что донельзя дуа�
 ```bash
 magnet:?xt=urn:btih:B8465A2F14E0F3161B2F3500F2CCA9D802934F63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Junk Jack – приключенческая 2D песочница в духе T
 ```bash
 magnet:?xt=urn:btih:6D4DC3FAAC6F25649759E78A74C00C23A8E5C9FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Killing Floor это Co-op Survival Horror FPS, действие которог�
 ```bash
 magnet:?xt=urn:btih:CB668F322DB4E65E599537AA1A99F840113517A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ King Lucas (2016) [En/Es] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FF1F0FE006868A2F2D875A42326D681A019ACA54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ CRAZY CHICKEN Strikes Back (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:430C6C84147E048BEF4B51CCD9BCE390D370ED2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

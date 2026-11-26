@@ -19,8 +19,7 @@ Hallowed Legends 3: Ship of Bones Collector's Edition [En] (P) 2013
 ```bash
 magnet:?xt=urn:btih:7C30346FAB3B118C472D9A7AC56957E27CFAE06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Sacra Terra 2: Kiss of Death Collector's Edition / Сакра Терра 2. По
 ```bash
 magnet:?xt=urn:btih:0668476132025BC1B46A0C441399D11DC9E17754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Meridian: Age of Invention / Меридиан. Эпоха изобретений
 ```bash
 magnet:?xt=urn:btih:38A3D0C3EB72DC685ACF55D3169531D50817F337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Barn Yarn Collector's Edition / История амбара. Коллекцио�
 ```bash
 magnet:?xt=urn:btih:77CD923A5F689E61C3797FCC8C3A4550FA0FBAF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

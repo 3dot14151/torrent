@@ -20,8 +20,7 @@ Face Swap - AI Photo Editor v1.4.1 Mod by MixRoot [Multi]
 ```bash
 magnet:?xt=urn:btih:7C8BE85B12068F7309921B721B3B4B84DAE06861
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

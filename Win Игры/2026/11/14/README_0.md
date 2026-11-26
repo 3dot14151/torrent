@@ -19,8 +19,7 @@ Caromble! - это абсолютный арканоид. 3D-приключен�
 ```bash
 magnet:?xt=urn:btih:B6DB7F0D61F785C8D0BA445DF5EFE4BFE167409C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Fall of an Empire - масштабная историческая grand strategy
 ```bash
 magnet:?xt=urn:btih:1316A81EC8008B7CF4CA8ABB3FA412CF4FD239DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Star Wars: Galactic Racer - это динамичный гоночный экш�
 ```bash
 magnet:?xt=urn:btih:40F82BFE98990F605BAAB631F21CAEA8C5483B55
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Terrible Lizards - это хоррор‑платформер от первог�
 ```bash
 magnet:?xt=urn:btih:A657A68F0F0BC007FC9B139EEE0C7EE08453CDDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Motorcycle Ride: Infinity - это медитативный симулятор �
 ```bash
 magnet:?xt=urn:btih:DFF7407314EC82FC1FF5E15F9345F459F213B7AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Underkeep - это фэнтезийная RPG в духе классически
 ```bash
 magnet:?xt=urn:btih:E436A56F3135D965CD25E8F6295DFFFD89F77DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Phenomenon. City of Cyan / Феномен. Лазурный город (2012) [R
 ```bash
 magnet:?xt=urn:btih:7A2D18CA85DB03E40B53C074C163E0001F5B2C23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bonfire Stories 3: Manifest Horror (2020) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:F9E189C2294941209C429521013569C554C29307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Immortal Love 7: Stone Beauty / Бессмертная любовь 7: Каме�
 ```bash
 magnet:?xt=urn:btih:83F986B25235A2840B65653413A914129910DDB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Florence – это трогательная история примерно н�
 ```bash
 magnet:?xt=urn:btih:A520C312EE62A09A612441E8D480F2DCCF86D694
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

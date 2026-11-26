@@ -23,8 +23,7 @@ OneRepublic - Native (2013) Japan Edition [FLAC|Lossless]<Pop-Rock, Alternative 
 ```bash
 magnet:?xt=urn:btih:3D3E84678505523079A63DA3EEB5CB531E40EC05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Mark Knopfler - Tracker (2015) Limitierte Deluxe Edition [FLAC|Lossless|Scene]<R
 ```bash
 magnet:?xt=urn:btih:B17D6E879BCD88227E47AB7A8173CA403C098F0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ VA - An All Star Tribute To Pink Floyd: The Everlasting Songs (2015) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:8471FFCD76650595DC8A422E3F6A581635925472
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

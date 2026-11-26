@@ -25,8 +25,7 @@ Apocynthion - Sidereus Nuncius (2013) [MP3|320 кб/с]<Post Black Metal, Post R
 ```bash
 magnet:?xt=urn:btih:EA040BD326F0703AC514FDFEDEB87470CBBF8240
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Deafheaven - Roads To Judas (2011) [MP3|320 кб/с]<Atmospheric Black Metal, Ex
 ```bash
 magnet:?xt=urn:btih:2DCEE61FE3195508F0667C629EC7258CDC8CB767
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Cerna - Restoring Life (2013) [MP3|320 кб/с]<Post Black Metal, Post Rock, Ins
 ```bash
 magnet:?xt=urn:btih:0AF531F4ED570E8B8DB8A917AFAC9CC85B33C427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ Mindless - Planet Of Pestilence (2014) [MP3|320 кб/с]<Powerviolence, Hardcore
 ```bash
 magnet:?xt=urn:btih:FB070F1F318F2F5D348C41E0FE4DE2B2697EE4E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +178,7 @@ VA - Woman Loves Hear (by Alex3107) (2014) [MP3|320 кб/с]<Electronic, Lounge,
 ```bash
 magnet:?xt=urn:btih:B48533D97B9E759832F6814056C908B003DABA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ Downday - After All These Years (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:C8D8103C4968DC08391D642387F55B8F63C435E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ The Black Dahlia Murder - Fool 'Em All! (2014) (Live)  [MP3|320 кб/с]<Deathco
 ```bash
 magnet:?xt=urn:btih:BE90C6AFC179CD4ACCE2484FF747E84BBAEC4588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F1615B4CE03CC22005EB10D35A9E60FC98BFCA80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +309,7 @@ Bjorn Berge - Illustrated Man (2002) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:46E87A9117BBDC7D611FF26EDB353274ED1882BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ Ashampoo Music Studio как глоток свежего воздуха для �
 ```bash
 magnet:?xt=urn:btih:0E16F4C5B3C9DD170A63873F93F56BB68CFDC83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,8 +368,7 @@ Bjorn Berge - Stringmachine (2001) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:B20F880A6502045DD6E70852C239653811D22E2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,8 +402,7 @@ Max Deluxe - Music Makes Happy (Happy Edition) (2014) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:78B5087D5497C7B48D9F085F8005BC6A0D9C2920
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,8 +434,7 @@ Kestrel - Kestrel (1975) [MP3|320 кб/с]<Art Rock>
 ```bash
 magnet:?xt=urn:btih:661A5A8145AF11E583702ED4865B64D643C8A391
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +459,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:351E04D8D9B7ABDEF6E425AB197EB2AED48A5BA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,8 +487,7 @@ Deluge Grander - The Form Of The Good (2009) [FLAC|Lossless|image + .cue]<Sympho
 ```bash
 magnet:?xt=urn:btih:5520325730E8879A59DCB83962E2D589FD7960BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,8 +521,7 @@ Miss Laurie Ann & The SaddleTones - Ease My Mind (2014) [MP3|320 кб/с]<Blues,
 ```bash
 magnet:?xt=urn:btih:76E0B6A22135D0074AC93C5913E2772EB4F61721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +555,7 @@ Uzi Ramirez - Cheese In My Pocket (2014) [MP3|320 кб/с]<Indie Folk-rock>
 ```bash
 magnet:?xt=urn:btih:DCA5052F7DA5DE706B6596071BBCCD8A5C1F9F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +589,7 @@ VA - Deep House Moscow #3 (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:E97C935D07042EB7F9196EA8B9B8EFAD7B7BA1E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -642,8 +623,7 @@ Bjorn Berge - St. Slide (2004) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:29B8814A5276B85186930EF6850231EEB2FF2E93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,8 +657,7 @@ Bjorn Berge - Fretwork (2009) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:7B21EE91A8A54727B0E6F1600471F899096C2AE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +691,7 @@ VA - Just Deep House Vol.1 (2014) [MP3|320 кб/с] <Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:3E28B9FCFD1DDFA788B711D8984F5E7512382E23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +725,7 @@ VA - Dr. Boogie Presents: Bompa Boogie (2001) [MP3|320 кб/с]<Rockin' Blues, B
 ```bash
 magnet:?xt=urn:btih:02004C8F431D5907EDBD8163EAE5DB0093D55DC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -779,8 +756,7 @@ nedonebo - 00:52 (2014) EP [MP3|320 кб/с]<Emo Rap, Experimental, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:807E1B09F5D6CAE4B2152F8E1691D50CA0D231F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -814,8 +790,7 @@ Bjorn Berge - We're Gonna Groove (2006) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:4645EB477004996B8DE3AA300C747F93284CE69C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -844,8 +819,7 @@ The Mason Rack Band - Limits Of Grip (2011) [MP3|320 кб/с]<Heavy Blues>
 ```bash
 magnet:?xt=urn:btih:5F50DD4DE99A00E9BBD311246AF95BFEA3024D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sanity: Aiken's Artifact - игра жанра экшен от компании 
 ```bash
 magnet:?xt=urn:btih:CBA9B195050111343E9F90F0C69F7A60D717C83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Stonekeep представляет собой dungeon crawl (поджанр RPG,
 ```bash
 magnet:?xt=urn:btih:5B5049FE35C1735D17B63C87A245D50EDBDC086D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Anvil of Dawn [Ru/En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:016A3A183AA8F82AA1F3DE1E81AB652701B2EED8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RIM - Battle Planets / Периферия [Ru] (L) 2002
 ```bash
 magnet:?xt=urn:btih:2E7D27D7142AC5B321383431257926D4A1CFC41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

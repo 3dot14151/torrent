@@ -19,8 +19,7 @@ Stranglehold — высокотехнологичный компьютерный
 ```bash
 magnet:?xt=urn:btih:A7ECD3C1A9E27B439DC36CC080A47B0B80B2F337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Elastomania двухмерный симулятор гонок на мотоци
 ```bash
 magnet:?xt=urn:btih:EC97F8F9869689A78188DAAE5531AB83606072BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Tales of Sorrow. Strawsbrough Town / Печальная история горо�
 ```bash
 magnet:?xt=urn:btih:F3E4AD6367C841694F99455D18AC2057EB666527
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CountryBalls Heroes - это игра, в которой тебе предсто
 ```bash
 magnet:?xt=urn:btih:7826D70EB949D68E3DF1C830452EAB59AB928A21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Solasta: Crown of the Magister (2021) [Ru/Multi] (1.2.9/dlc) License CODEX [Comp
 ```bash
 magnet:?xt=urn:btih:F79760322FD24F07F9BAAE8632B863AEFD73EC66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Solitaire Mystery: Four Seasons / Магия Пасьянса: Времена Г
 ```bash
 magnet:?xt=urn:btih:81FDCAD9D33D7F2D27B06D306A38151D30959C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ The Medium (2021) [Ru/Multi] (1.2b7162431/dlc) License CODEX [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:07883FA1C72AA58DF5D84DB99D19BD033134DDEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (1.1.8/dlc) License GOG [Complete
 ```bash
 magnet:?xt=urn:btih:D96D0272F6A23D49C10E3DD63FF7FE8A255E4C37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Graveyard Keeper - самый недостоверный симулятор ср
 ```bash
 magnet:?xt=urn:btih:2F51A7220B3EC2D37C226FE429FFBCB302A61D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

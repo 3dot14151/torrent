@@ -26,8 +26,7 @@ Blueneck - 4 альбома (2006-2012) [МР3|128-320 кб/с]<Post-rock/ambien
 ```bash
 magnet:?xt=urn:btih:54698210C7C03152EB7C0373A2C9596DB61E4034
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Brookroyal - Cycles of Life and Sound (2013) [MP3|192 кб/с]<Alt.Metal / Moder
 ```bash
 magnet:?xt=urn:btih:D3C079928BECC58182FA6D04ADB5414D9E001D33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Plumb - Need You Now (2013) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:4FBD16130DD5179CCDDF91D04AF2C5E2D8D2BBBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Angelfish - Angelfish (1994) [APE|Lossless]<Alternative Rock/Dream Pop>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +162,7 @@ Sodom - Epitome Of Torture (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +196,7 @@ OneRepublic - Native (Deluxe Edition) (2013) [FLAC|Lossless]<Pop Rock, Soft Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +230,7 @@ Deep Purple - Now What?! (Limited Edition) (2013)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Deep Purple - Now What?! (2013) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6558614F7C1B4C9C9298D652D619810C79553287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

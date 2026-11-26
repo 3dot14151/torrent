@@ -21,8 +21,7 @@ MX Linux - это операционная система, основанная 
 ```bash
 magnet:?xt=urn:btih:84C354416817D3C5B2362D5025783DE0CF948234
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

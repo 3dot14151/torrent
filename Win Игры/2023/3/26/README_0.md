@@ -19,8 +19,7 @@ Outcast - Second Contact (2017) [Multi] (Patch 2 Hotfix) License GOG
 ```bash
 magnet:?xt=urn:btih:6223AF28CEB6183A23C80FEA01C27EBC70933031
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Crown of Wu (2023) [Ru/Multi] (1.00) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:61A4DBC862055BBF5517E3657B9F8020B96537A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Monster Energy Supercross - The Official Videogame 6 (2023) [Multi] (1.0) Licens
 ```bash
 magnet:?xt=urn:btih:40B7CE6AB73DCABC91CE960FE275D6821DD02B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Drone Swarm (2020) [Ru/Multi] (7377621) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:EA38951B3B9DB4355E15DDA8BE08EF1292B39202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Have a Nice Death - это экшен в жанре roguelike. Его главн
 ```bash
 magnet:?xt=urn:btih:DCB1B070D44299504617AE2F2A636F0AAF366B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

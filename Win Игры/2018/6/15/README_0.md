@@ -19,8 +19,7 @@ FRAMED Collection (2018) [Multi] (1.0.16#456) License PLAZA
 ```bash
 magnet:?xt=urn:btih:BACDF9D90DD448BD3C3DF821CBEC4FB02A207675
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Nine Parchments - это полная магического ералаша иг
 ```bash
 magnet:?xt=urn:btih:E2EB3EB4F70B23B25F522383904D95523F94B268
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

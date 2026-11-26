@@ -22,8 +22,7 @@ Cornerstone - 5 альбомов Collection 6 CD (2000-2007) [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:46E8501AB2D0ADC1AA5F969CA3FEF622CFD9EEF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Cornerstone - 5 альбомов Collection 6 CD (2000-2007) [MP3|320 Kbps] <Mel
 ```bash
 magnet:?xt=urn:btih:C73A9521CEEF981973ADDAFA6DD2812DCA0C3C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Winger - американская рок-группа, в творчестве �
 ```bash
 magnet:?xt=urn:btih:29B9506F792B68C238C1F8B7CD0274FF7A6C1F77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

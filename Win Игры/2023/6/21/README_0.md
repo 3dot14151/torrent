@@ -19,8 +19,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:7265DF008529B4235FDFE54F555F2A00AFC7F4DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Entropy Centre - умопомрачительное приключение �
 ```bash
 magnet:?xt=urn:btih:6686F0F6219BEA7E8B1A29762DF3A33F8A63F3D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Out There: Oceans of Time (2022) [Ru/Multi] (1.2.1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:4505ECBEDAA4B01BB49FDCE21B79A386C71A11C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Royal Romances 3: The Power of Chosen One / Королевские романы 
 ```bash
 magnet:?xt=urn:btih:27C759C3DCEC4F2EC3AFF01FD572364A02DCFAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ MY LITTLE PONY: A Maretime Bay Adventure (2022) [Multi] (1.0.1_003) Scene Fairli
 ```bash
 magnet:?xt=urn:btih:B46C55F1E3AAE43EF546EB183D0F74ECDFA8737F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hand of Doom (2023) [En] (1.0.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:015EB2B6AE8C0C4E1B5B01CE9B473947C3D009B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 ```bash
 magnet:?xt=urn:btih:F4C0D0278BC1B630B714CD39685EA12D9F246229
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:AD2D4A5126D3014A3E5A67CAADA62AF4A5E5E3E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Case of the Golden Idol - это детективная приключенч
 ```bash
 magnet:?xt=urn:btih:05DA63A587E4C1C38262592C0420556D2D17D36B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:EBF85D6703154E195C82DDB904CAB83D04580085
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

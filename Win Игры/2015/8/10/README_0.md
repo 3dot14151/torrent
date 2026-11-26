@@ -19,8 +19,7 @@ Shift 2: Unleashed (2011) [Ru/En] (1.02) Repack R.G. Механики [Limited E
 ```bash
 magnet:?xt=urn:btih:BCCBCB4A7A245A69760E89756C9CBD83D9A9045A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

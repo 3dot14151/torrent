@@ -21,8 +21,7 @@ Kubuntu 16.04.3 LTS Xenial Xerus [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:7B87ECA873A711EF449CA52A69A01E4FC232AFA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

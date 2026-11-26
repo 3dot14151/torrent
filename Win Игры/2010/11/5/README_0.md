@@ -19,8 +19,7 @@ Golden Sub / Подводная лодка (P) [Ru] 2009
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ WarBirds: Red Baron [En] (RePack) 2010 | RG Packers
 ```bash
 magnet:?xt=urn:btih:CBB4C553DDA9E67F871DF30855E074FC2C7DAB34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

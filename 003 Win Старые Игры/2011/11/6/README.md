@@ -19,8 +19,7 @@ Kiss: Psycho Circus: The Nightmare Child [Ru] (RePack) 2000 | Pilotus
 ```bash
 magnet:?xt=urn:btih:99D5F31725E3675DB91FA091559C238EFA96D47A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

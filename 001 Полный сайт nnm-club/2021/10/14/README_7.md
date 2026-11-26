@@ -21,8 +21,7 @@ VA - What About Lounge, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 ```bash
 magnet:?xt=urn:btih:4DEE900CF591E6B0B92EBF7B5A54F945D95F25DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ VA - Amazing Places (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:BF9A61BA8C250F9FB071CC631B4035813F412F15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Röyksopp - The Understanding (2005) [AAC|~332 Kbps] <Electronic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:DFEBA6E8DCBC936920A884289FD4D6822961B332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

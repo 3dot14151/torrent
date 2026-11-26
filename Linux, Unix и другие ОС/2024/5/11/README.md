@@ -22,8 +22,7 @@ Ubuntu EducationPack 20.04 (май 2024) [amd64][Multi]
 ```bash
 magnet:?xt=urn:btih:F96368F7E2BF278CFD6FB5D2F3671CCFE20FA69D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

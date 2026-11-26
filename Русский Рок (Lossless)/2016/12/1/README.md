@@ -22,8 +22,7 @@ Tracktor Bowling - 20:16 (2016) [FLAC|Lossless|tracks + .cue] <Alternative Metal
 ```bash
 magnet:?xt=urn:btih:9D30AC802E9A491F33D3DDBDF46248E18B784F33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

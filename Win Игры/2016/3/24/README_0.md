@@ -21,8 +21,7 @@ Professional Farmer 2017 (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:AA8161F251D76509805D45EA995A3453F3D3A70A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Way of the Samurai 3 (2016) [En/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:AA5E973C5960A94C877E4DF145865BA394EBE879
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

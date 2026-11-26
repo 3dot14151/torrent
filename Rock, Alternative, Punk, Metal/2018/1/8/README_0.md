@@ -22,8 +22,7 @@ Otherwise - Sleeping Lions (2017) [FLAC|Lossless|tracks] <Alternative Rock, Alte
 ```bash
 magnet:?xt=urn:btih:8F7E6979DCBA17B6A7C7BD8470124990949D3820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Coloured Balls - Ball Power (1973) Reissue, 2006, Aztec Music [MP3|320 Kbps] <Ha
 ```bash
 magnet:?xt=urn:btih:BEDA7762D14125EE22F6215D1F4DBEFCE292B9C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crowded House - Temple of Low Men (1988) [FLAC|Lossless|tracks + .cue] <Pop-Rock
 ```bash
 magnet:?xt=urn:btih:21B3A176177C94550A0BC5293FF00AA0AB83911A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Bahroma - Дом (2017) [MP3|320 Kbps] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:D38D0BA51C9E4AB42824DB10A85AC480292D4D4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ The Pretty Reckless - Light Me Up (2011) Japanese Edition [MP3|320 Kbps] <Altern
 ```bash
 magnet:?xt=urn:btih:B261C019CA2B1DBA27408245B0B582DEA1663C78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Pretty Reckless - Going To Hell (2014) Limited Edition, Vinyl LP [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:CD21BEB1066C851741A075C3DFD60B880D617097
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

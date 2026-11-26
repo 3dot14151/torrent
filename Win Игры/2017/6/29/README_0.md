@@ -19,8 +19,7 @@ Darkness and Flame: Born of Fire / Тьма и пламя: Рожденный о
 ```bash
 magnet:?xt=urn:btih:4BC83E86320C45A93A300C316C3A2319FDDE0BBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ No70 Eye of Basir (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9DC685D1308652FAED550153C478F1371E8B488F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ No70: Eye of Basir (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5854E31E6EB99D652DF0306F5AC602A1E6955C1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Star Wars: Empire at War - Forces of Corruption (L) [Ru] 2006
 ```bash
 magnet:?xt=urn:btih:A0E3A1EE72F0E9180FBF9319D7506EC3E1C3D8E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

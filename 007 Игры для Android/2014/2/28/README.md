@@ -20,8 +20,7 @@ Machinarium 2.0.04 [En]
 ```bash
 magnet:?xt=urn:btih:B2D732FBBF59F129FEF31978A3835500EFEFBC20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

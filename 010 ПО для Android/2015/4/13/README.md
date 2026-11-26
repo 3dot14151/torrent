@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:39C30B78AA83BF583CD3965DD4D07C455F497486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Hola Free VPN 1.7.453 [Rus] - Интернет без цензуры
 ```bash
 magnet:?xt=urn:btih:D474B6A00F350A60999784735B293931F744FC94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

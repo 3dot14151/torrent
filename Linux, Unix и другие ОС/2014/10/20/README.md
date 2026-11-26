@@ -21,8 +21,7 @@ Scientific Linux 7.0 Live (Gnome, KDE) [x86-64] 2xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:332D9304AB10C0C6F23F01D5F2E3E82F33A84493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

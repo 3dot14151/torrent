@@ -19,8 +19,7 @@ Tormentum: Dark Sorrow (2015) [Ru/Multi] (1.4.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5A68BDB44966DC3F76529AE15380D132809201BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Synchronicity: Tomorrow Comes Today (2015) [Ru/Multi] (1.0.10) License GOG
 ```bash
 magnet:?xt=urn:btih:3932D21132C38341F03F130B0410E8F35ED8C19E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Filament — это спокойная головоломка с увлекат�
 ```bash
 magnet:?xt=urn:btih:B3850841385235250C772B9A886CB07C4E461610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ STRAFE® - самый динамичный, кровопролитный и уб
 ```bash
 magnet:?xt=urn:btih:7E26C56CEAF1672F8A63A70662E5AA8E33E4CF30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

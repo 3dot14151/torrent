@@ -19,8 +19,7 @@ BootRacer – программа от разработчиков UnHackMe, по�
 ```bash
 magnet:?xt=urn:btih:03E8322B674870F6CD84FA61196495AEF78E2032
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

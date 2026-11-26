@@ -19,8 +19,7 @@ True Fear: Forsaken Souls Part 2 / Реальный ужас: Души прок�
 ```bash
 magnet:?xt=urn:btih:3BE2EEE94B4B6E904AF4F2D6EA7D10388A236435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Other Half – темная фэнтезийная экшен РПГ, в к�
 ```bash
 magnet:?xt=urn:btih:09777FD7B1D9A69C831E29FEFB2BBB05003C3542
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Battle Chasers: Nightwar - это красочная ролевая игра с 
 ```bash
 magnet:?xt=urn:btih:DFC04B9384C2346DF0961C07CA6396B9FE78E723
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

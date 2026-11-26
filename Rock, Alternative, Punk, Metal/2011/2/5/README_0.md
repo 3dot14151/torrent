@@ -26,8 +26,7 @@ Odes Of Ecstasy - Дискография (1998-2000) [MP3|320 kbps]<Symphonic De
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Schandmaul - Traumtänzer (2011) [MP3|320 kbps]<Folk Rock/Folk Metal>
 ```bash
 magnet:?xt=urn:btih:F07349B9C2FB2C82A025E19BA69B11DDBAB182C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Korpiklaani - Ukon Wacka (2011) [FLAC|Lossless]<Folk Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +153,7 @@ Chris Norman - The Complete Story Of Chris Norman 5CD-Box (2008) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:99579C1058E3836CBBD45679B08F2B6C91109B9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -192,8 +187,7 @@ Korpiklaani - Ukon Wacka (2011) [MP3|320 kbps]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:20A3B6F6467D95762C52D1649D9B6481227E93BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +212,7 @@ The Beatles - Коллекция концертных записей (1962-1994)
 ```bash
 magnet:?xt=urn:btih:A1FFB3493F1837B08628B592BDD2AA914D156A24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +246,7 @@ Rolling Stones - Greatest Hits 4 CD (2008) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +275,7 @@ Sirenia - Дискография (2002-2011) [FLAC|Lossless]<Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB50E990835E4E2CFB5B06A2BB43B212D6B60C27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +328,7 @@ Helloween - Keeper Of The Seven Keys (Parts I & II)(US 1-st press) (1987, 1988) 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:2F5A052EE9DDDEB408CC1E145561FEC8B57B2243
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B1948723527487A73F861F7871204EE8A7EBD0C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Asterigos Curse of the Stars (2022) [Ru/Multi] (01.09.0000/dlc) Repack Let'sРla
 ```bash
 magnet:?xt=urn:btih:EDE98BCA9A86891E6A8DFB6BEFD6C8F5DB93DE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:AB50C4BA525C3C8B9A6F7E2B4DE4E094635F6BAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.00/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:49D3C5F2C781E7B67E4E1BEAA4A251D68975B641
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ ReSetna (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FFD000817A10DFE1DCC8206DC636BB9E2DBEBE89
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Halloween Stories 4: Defying Death (2020) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:E4C39660897FD6D606B3BD7E5340FAC79FE23FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Swag and Sorcery (2019) [Ru/Multi] (1.52) License GOG
 ```bash
 magnet:?xt=urn:btih:3A7357B19AE4BD9E0BE3918F08F8A17EB0349E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

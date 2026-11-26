@@ -19,8 +19,7 @@ Paragon Disk Copy 15 программное решение для миграци
 ```bash
 magnet:?xt=urn:btih:B09C0330B181448DB22C9700BAC6C6A7AF404826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

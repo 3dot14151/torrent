@@ -22,8 +22,7 @@ VA - Downtempo Lounge & Chillwave, Vol. 4 (2021) [AAC|~314 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:765C5129D2A8C3D237A12BFBDBDD8FDC1FC039D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Downtempo Lounge & Chillwave, Vol. 2 (2021) [AAC|~322 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:3FAF216F52AB81EE1B80549BC410ED0DF8296E59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Chillaxing Time, Vol. 01 (2013) [AAC|~314 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:0A0277A92791BA83B30ACB4CF962168721F88B72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ VA - Downtempo Lounge & Chillwave, Vol. 1 (2020) [AAC|~332 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:B6E0CC4C7EFCCBB22CC28FFFC31932AC0A1FA197
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Chillaxing Time, Vol. 05 (2020) [AAC|~302 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:A3029362C573E9540E9823B81DEB54E0005A909D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ VA - Chillaxing Time, Vol. 04 (2020) [AAC|~317 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:D2F15C36866505659DF4CAA9D3F18506B0C09E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ VA - Chillaxing Time, Vol. 03 (2020) [AAC|~325 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:D8960C8BA24C3B19658CBAAFB70FD8F58310E375
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Downtempo Lounge & Chillwave, Vol. 3 (2021) [AAC|~333 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:4726DE3E37290B25A5BA753B600B1A0C8AA37AF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ VA - Chillaxing Time, Vol. 02 (2019) [AAC|~328 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:F0BA3A33C194EE9A38E715B976C5267C1F50739A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Easy Like Sunday Morning (Beautiful Lounge Session), Vol. 3 (2019) [AAC|~34
 ```bash
 magnet:?xt=urn:btih:13B95CCA198C9CB9174828F58E66CD65DFAB2C8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ VA - Easy Like Sunday Morning (Beautiful Lounge Session), Vol. 2 (2019) [AAC|~33
 ```bash
 magnet:?xt=urn:btih:5BF14AFE3C6B45862FBDAC25ECCDA223AE808A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ VA - Lounge Weekend - Chillout Beats for Relaxation (2021) [AAC|~322 Kbps] <Loun
 ```bash
 magnet:?xt=urn:btih:5F6855E6D6F6F83255B103A2D10483304FFDB120
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Chillaxing Time, Vol. 06 (2020) [AAC|~319 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:8FBA7D8C1A5270624BFE8E67FE3BD42DE7E815F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Bhakta - Open Transmission (2002) [AAC|~327 Kbps] <Tribal, Downtempo, Trance>
 ```bash
 magnet:?xt=urn:btih:257F1A2620F412DE35B2BC1F983B8380C14D0921
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -428,8 +414,7 @@ VA - Easy Like Sunday Morning (Beautiful Lounge Session), Vol. 4 (2019) [AAC|~31
 ```bash
 magnet:?xt=urn:btih:17CC6B81A2EC4369ACE059FDB7328AE16BE55E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +442,7 @@ VA - Chillaxing Time, Vol. 08 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:71D8D851C7F5DF865E95F30D35A744B78CCB6A20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +467,7 @@ CheckBook Pro - это не просто базовый инструмент р�
 ```bash
 magnet:?xt=urn:btih:4E63CE2CA400FDA921DC2A242DF6B9227238AA9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ VA - Easy Like Sunday Morning (Beautiful Lounge Session), Vol. 1 (2019) [AAC|~32
 ```bash
 magnet:?xt=urn:btih:046CE148BE58893AB754AC8FCD484B372BAEB721
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +523,7 @@ MUUI - No Man Is an Island (2022) [AAC|~335 Kbps] <Deep House, Progressive House
 ```bash
 magnet:?xt=urn:btih:0D73DD3349BC63E67122C067A7A8A48598E6B86D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,8 +551,7 @@ VA - Chillaxing Time, Vol. 10 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:44AC2E13F134ADBA53E585EF29B23436355C2108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ VA - Chillaxing Time, Vol. 07 (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:3E74DE3B870A39012E9C0023C85A2F60047304F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +607,7 @@ VA - Chillaxing Time, Vol. 09 (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtem
 ```bash
 magnet:?xt=urn:btih:4C44B0E8C392E2501E13EB37B245E21A6D5FFBCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,8 +635,7 @@ The Man Behind C. - Chillout Sessions, Vol. 2 (Sounds Del Mar) (2009) [AAC|~351 
 ```bash
 magnet:?xt=urn:btih:1068AE228E69CCD178AC11B3F02FACBCF2B92F69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,8 +660,7 @@ EdgeView 3 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:AF71CB82333136FEDE685B200F9D76623562FC81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -709,8 +685,7 @@ Airtool 2 v2.3.5 [En]
 ```bash
 magnet:?xt=urn:btih:438A363E30BCE80076984BFF567E347C51BE1C5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +713,7 @@ The Man Behind C. - Chillout Sessions (Sounds Del Mar) (2008) [AAC|~357 Kbps] <L
 ```bash
 magnet:?xt=urn:btih:124AD01B6C248D6B3A9AACDC6117FF4CF626416C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Word Surf - это новая креативная игра по поиску с
 ```bash
 magnet:?xt=urn:btih:F7C77CFB9FC0BE5AEE25745EA0618730B8CF31D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

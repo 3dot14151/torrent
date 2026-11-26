@@ -21,8 +21,7 @@ Defender of the Crown перенесет вас в эпоху благородн
 ```bash
 magnet:?xt=urn:btih:3AC659DAC33080BE797DFA1119892F2D4BA4DFC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Max Payne Дилогия [En/Ru] (RePack) 2001-2003 | R.G. ReCoding
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

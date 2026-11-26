@@ -19,8 +19,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:7BD64BD3EB2810AAF37B64D46E0C7A885244F78C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:B7843BBA68E711A8D01E5742C0F1261994CBC1F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ InnoExtractor - это приложение, которое поможет ва�
 ```bash
 magnet:?xt=urn:btih:16D5392C16993B9D766439210C9F0996723C9C68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:5E77F3DC7F7188439ECDD911C00719409C456205
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Snoq вычисляет ваш ключ шифрования на основе �
 ```bash
 magnet:?xt=urn:btih:F3467ABE2F5AC82D23E10AB4796FAD8602549CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ JOPDF 2.4.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2509E39F351EA2699D94AF178EF5F69EB987AAEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ KillerPDF — это бесплатный редактор PDF-файлов с �
 ```bash
 magnet:?xt=urn:btih:335DA5721189BF9355EB5DB6AED7AA31246F416F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ WinScript — это лёгкий и простой в использовани�
 ```bash
 magnet:?xt=urn:btih:88396ABD415432AAD25778E92CE2B6A4A6D24FF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Endstate сохраняет приложения и настройки, кото
 ```bash
 magnet:?xt=urn:btih:B309CCEE53F6BEF022ACBAA9838E25E033935238
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ ExplorerFocus — это замена Проводнику Windows для тех
 ```bash
 magnet:?xt=urn:btih:9B48C7CCB56416A0E79500DAD4578C1655D04DCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:FB1F2AE489CFBDCEF1FD0B9FC11DDD22E6A32F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +297,7 @@ SoftMaker Office Professional 2024 rev. S1238.1005 RePack (& Portable) by KpoJIu
 ```bash
 magnet:?xt=urn:btih:C76E0601820CAC944FB2508D25DFDBFDD00E54FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ YTSage — современная программа с удобным граф�
 ```bash
 magnet:?xt=urn:btih:F5D83DFC819F950A51DE620E4DF34D9C3A603F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ TweakHub создан для работы на USB-накопителе. Рас�
 ```bash
 magnet:?xt=urn:btih:BCD622A66BD4FF1BE49BA30A9BC3B405AD8E8E84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ Fan Control – свободно распространяемый продукт
 ```bash
 magnet:?xt=urn:btih:C7F27ED3BF5A2D706F7E48B914B83AA679443379
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

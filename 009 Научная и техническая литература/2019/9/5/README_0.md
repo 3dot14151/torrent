@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:44F993A5BDCFB67F4E9E5E99F536278E5FF1A13A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ines Balcik, Klaus Röhe | PONS Die große Grammatik Deutsch / PONS Больша
 ```bash
 magnet:?xt=urn:btih:62BA32DBF3350B32D326C40F5A6A609654E699CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6D115FC907A6BF8FFE0DBE5C64AAC6DB8ADFDD77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

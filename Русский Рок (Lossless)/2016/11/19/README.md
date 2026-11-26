@@ -22,8 +22,7 @@ VA - SOSтрадание. Благотворительный музыкальн�
 ```bash
 magnet:?xt=urn:btih:C1082CDF89D5C26F0D3433FAACBF8CBB8533764B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

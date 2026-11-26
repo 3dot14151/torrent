@@ -19,8 +19,7 @@ Reflections of Life: Tree of Dreams (2014) [En] Unoffcial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:1CD643D76CB082300AC6C40E011EBB77E6EAEA9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Echoes of Sorrow 2 / Эхо печали 2 (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:C9D306DB39A5C1B1979144E36C527F951BC3B220
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sins of a Solar Empire: Rebellion – первое самостоятельно�
 ```bash
 magnet:?xt=urn:btih:08EF35B1B2E7E7937291F38663222B0D254E4E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

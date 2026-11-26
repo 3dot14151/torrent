@@ -22,8 +22,7 @@ Mors Principium Est - ...And Death Said Live (2012) Japanese Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:5B96EC161E59AF339611587228BBE0156AF6DA8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Velocity - Impact (1997) [APE|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:1B0652F92161B5687A36BA78D79213356C3F7973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Quercia - Non e vero che non ho piu l'eta (2016) [MP3|320 Kbps] <Alternative, Pu
 ```bash
 magnet:?xt=urn:btih:45A5B6ED055479E27E7AA63A092BA5363A3EF9E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Solution .45 - For Aeons Past (2010) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:A7BADC57BCB5CBDD6AC423E61B329F53FC6F2846
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Space Debris - Behind the Gate (2017) [FLAC|Lossless|tracks + .cue] <Progressive
 ```bash
 magnet:?xt=urn:btih:75077A9CACE9F2C6D2E655A002132B0122CAC857
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Canned Heat - The Best Of (1997) [FLAC|Lossless|image + .cue] <Rock, Psychedelic
 ```bash
 magnet:?xt=urn:btih:1E2D0CC5471C13BC51323E7FE30A11DC90D45BFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Stephen Pearcy - Smash (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B5C9FB3028DDDBAF524E55AD5585C5B47290560A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Symphonity - Voice From The Silence (2008) Japanese Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:F43B1425035A7BEAA7D8E4A51D026B4475528332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Cliff Richard - From A Distance - The Event (1990) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:136CA7D9B97F1BE76FCA2E3946F6A298E81384E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Place Vendome - Close to the Sun (2017) Japanese Edition [MP3|320 Kbps] <Melodic
 ```bash
 magnet:?xt=urn:btih:5B051B367572A4EFAB078C538FB64ADDA7CB3FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

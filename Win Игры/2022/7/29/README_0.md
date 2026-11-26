@@ -19,8 +19,7 @@ Maze of Realities 2: Reflection of Light (2022) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:5E3007D1FD4EB8A7F254B8AF535926957F686E99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

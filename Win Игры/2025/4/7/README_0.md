@@ -19,8 +19,7 @@ Vagrus - The Riven Realms – ролевая игра с элементами с
 ```bash
 magnet:?xt=urn:btih:F06E03DB1008DFEEDA1EB54BB4BBFC352890E60A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Commander Quest (2025) [Ru/Multi] (1.0.25.704) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CCEFE2D5530D57C72761AC31BC9DEC06C534D2F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Flight Catastrophe дает вам уникальную возможность �
 ```bash
 magnet:?xt=urn:btih:5F2F541A8548EB94C498C15A6A672852045B5001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Trials of Innocence - это инди-игра в жанре судебного 
 ```bash
 magnet:?xt=urn:btih:52F9C30F1619B0B6BE278CC4CC013728EE0AA8D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sledders (2023) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E5D4B9F6B96B12EB94E093671B089D254F530F9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Opera Proxy для Android 3.0.12 [Ru]
 ```bash
 magnet:?xt=urn:btih:9C12FAF108CED7F48E2696CDD4C85EA6A1346881
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

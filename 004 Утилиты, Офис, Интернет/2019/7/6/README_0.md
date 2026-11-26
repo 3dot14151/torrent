@@ -19,8 +19,7 @@ TimeZX-B 1.0 Portable 1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:AE925A3CAB88C6A70895CE60FF767D49CE704B00
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

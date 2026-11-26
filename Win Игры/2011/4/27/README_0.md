@@ -19,8 +19,7 @@ Mystery Novel / Журналистские истории. Смерть у во�
 ```bash
 magnet:?xt=urn:btih:E83F520A0132AACDC979430161C6185339F0D74E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vesuvia (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:74B6C9B4360AF30D83036BCA391F9F2ACD907A37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Haunted Manor: Lord of Mirrors Collectors Edition / Призрак помест�
 ```bash
 magnet:?xt=urn:btih:2B74E36C86EF4111F8D9483CCCC0AFBB3E43D02F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Fool / Дурак (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:8D23A096435F5204893B5D989772066194196E58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Dark Tales 2 Edgar Allan Poes The Black Cat / Темные истории 2: Э�
 ```bash
 magnet:?xt=urn:btih:002F4F02FC3BB4B64A07820DF74325A91FAC7239
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dracula 3: The Path of the Dragon / Dracula 3: Адвокат дьявола Ч�
 ```bash
 magnet:?xt=urn:btih:E9C5C69E044DBA97522A7CE76BDFDD8A46F9DD26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ PACK корректно работает с v60 и v34 (Ставьте на чи
 ```bash
 magnet:?xt=urn:btih:A674DEDF2ABFE3E3CF18E8C9FED37CF8E88D5DD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

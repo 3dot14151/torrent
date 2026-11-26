@@ -23,8 +23,7 @@ Truman - Ikebana (2015) EP [MP3|320 кб/с]<Screamo, Emoviolence>
 ```bash
 magnet:?xt=urn:btih:5F0F364C84A558712B689982307C3E3C9F9B5CFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Euphorics - Midnight Mist (2014) [MP3|320 кб/с]<Drum'N'Bass>
 ```bash
 magnet:?xt=urn:btih:775E41E1F26AE216651A9BD56DFE6A95CFAD4A79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4AB3A247FB002B414580DE167CD03B765E05F786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ Amanda Jenssen - Sanger fran on (2015) [MP3|320 кб/с]<Alternative Pop, Neo So
 ```bash
 magnet:?xt=urn:btih:EA114907417A2E0E73CC799299D7E8C7B141CCFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:04B2AB919D986B838FB6C0010A647ED5E465E855
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9373F64F2E9D7FCB201D6CAEF5ABB1ECA36D8AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,8 +182,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03AF5C87F6279C2140E8163C7A3155106C8CDEFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,8 +207,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EF93961910D729BD1BD07FB7E1C29D7670B024A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Stan Getz & Luiz Bonfa - Jazz Samba Encore! (1999) [FLAC|Lossless]<Jazz, Bossa N
 ```bash
 magnet:?xt=urn:btih:7D80EEB642612819C14037A22B3E6D2A87B8A4A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6323F2F739849C9CBC8D1E72C1F55C2400B15CEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +290,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:A045CF329449586E91FCF735D809D495A1E420BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -330,8 +319,7 @@ VA - Intrigue 12 the Anniversary Collection (2015) [MP3|320 кб/с]<Drum & Bass
 ```bash
 magnet:?xt=urn:btih:B4C66B6EDB5BC5D6AA745D3486C7899EF1065919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -356,8 +344,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61A8C21E4CF72CD61453436313BDE9336F74C170
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB8B70D0A89947592D902858570D603B9D6033AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ Clayfacer - Passage (2015) [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Chillstep, Gli
 ```bash
 magnet:?xt=urn:btih:E486BF0D09EE10D19AFF9CAA82798CB79A13C8C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B56533DB1A7CE689A3DB069A8305BA18B659983A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,8 +452,7 @@ VA - Vocal Trance Collection Vol. 133 (2015) [MP3|320 кб/с]<Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:C7312BC3DA33FEE65E3131AD334BB93C216BD918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,8 +477,7 @@ SQL Dynamite 1.7.3.0 [En]
 ```bash
 magnet:?xt=urn:btih:40EE2AA9C530335B06AB12DA0AA1DFA156190649
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ Germind - Antimatter, Vol. 3 (2015) [FLAC|Lossless|WEB-DL]<Psybient, Ambient, Do
 ```bash
 magnet:?xt=urn:btih:6D7CAE14AFC5F62E17A85CC74D235F20E1FB7486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,8 +535,7 @@ VA - High Voltage! A Brief History Of Rock (2006) Kerrang! [MP3|320 кб/с]<Alt
 ```bash
 magnet:?xt=urn:btih:40977703BA625783B6727B23C0874505100A5250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,8 +564,7 @@ Amely Suncroll - Immersion (2015) [FLAC|Lossless|WEB-DL]<PsyChill, Ambient, Down
 ```bash
 magnet:?xt=urn:btih:8E92AE315E78A307B480814BD1FA42ACBD4BF5E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +593,7 @@ VA - 25 Years Of Perfecto Records (Mixed by Paul Oakenfold) (2015) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:8862F0AD131A050CF2B86F2865BBDF7B05E8C8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,8 +621,7 @@ Beegie Adair - The Good Life - A Jazz Tribute To Tony Bennett (2014) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:9A86E21A720AF556CD1612D2552F78496DEED0B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +650,7 @@ The Amorettes - Game On (2015) [MP3|320 кб/с]<Hard Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:F8D28F07D0ADCD712025FD15BC3116D713C6C61B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +679,7 @@ Alpha Wave Movement - Earthen (2015) [FLAC|Lossless|WEB-DL]<Ambient>
 ```bash
 magnet:?xt=urn:btih:1E5C67FDC9CAA4B0860E8DF4CD76972E17508D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -733,8 +708,7 @@ Majesty - Generation Steel (2015) Limited Edition [FLAC|Lossless]<Heavy Metal, P
 ```bash
 magnet:?xt=urn:btih:43A3460B5AB10526B28368F6F537F3BD36DBA9AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

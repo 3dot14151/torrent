@@ -24,8 +24,7 @@ Bann - Aeschatologia (2009) [MP3|320 кб/с]<Ambient / Atmospheric Black / Neo-
 ```bash
 magnet:?xt=urn:btih:977660C02A32C7033721B8034212F75965AC21F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Kuolemanlaakso - Tulijoutsen (2014) [MP3|320 кб/с]<Dark/Doom/Death Metal>
 ```bash
 magnet:?xt=urn:btih:04CA290CBFF7654FA02F47C6A266C33FE477DBFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ Bad English - Bad English (1989) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:957353434E800B4DE419F01484C3F49D08E85AD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ Iron Savior - Rise Of The Hero (2014) Japanese Edition [FLAC|Lossless]<Power Met
 ```bash
 magnet:?xt=urn:btih:82874D7F75A4DFDFABD0CDFA82C49CE15C800B5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +157,7 @@ Bear Hands - Distraction (2014) [FLAC|Lossless]<Alternative, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:9101CCDBB6839FB90FB55530208D8D7846C3B3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +185,7 @@ Axxis - Kingdom of the Night II (2014) 2 CD [MP3|320 кб/с]<Melodic Heavy / Po
 ```bash
 magnet:?xt=urn:btih:88D2B137C5499B38F022B7CAF0DFA5FE37EA9AC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

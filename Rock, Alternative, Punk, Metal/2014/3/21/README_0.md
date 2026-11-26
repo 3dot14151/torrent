@@ -28,8 +28,7 @@ Shaka Ponk - The White Pixel Ape (Smoking Isolate to Keep in Shape) (2014) [FLAC
 ```bash
 magnet:?xt=urn:btih:42A4FE8B0838095041ED908F3EF143F7720DFD98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ KYPCK (Курск) - Имена На Стене (2014) [MP3|320 кб/с]<Doom Me
 ```bash
 magnet:?xt=urn:btih:3A74BB6810AD8BBBCF0EF531D48FD9A553153945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

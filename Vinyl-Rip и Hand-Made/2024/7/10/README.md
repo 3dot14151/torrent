@@ -22,8 +22,7 @@ A3 Fields Of Gold(   Читать дальше...   )Жанр: Soft Rock, Pop Ro
 ```bash
 magnet:?xt=urn:btih:2DFC1969522EA9D7873EAFFDF3B52E02FE58BAA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

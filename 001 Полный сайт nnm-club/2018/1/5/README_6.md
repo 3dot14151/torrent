@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:64157DAB7DB5DB4D923DC7058F01E3CB4E107D40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Marcus Roberts Trio - In Honor Of Duke (1999) Columbia [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:97171544A3D3A8C28DFD4C839B7D57711B008DB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8DF5FE87A91061241CE9429E5B216613F0FC043F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B1387F17E4A497771F13052DECAC7680EAE559F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - Ihu Records: Best Of (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:044D04AA4E8036629FA6F363FED3E17C3DEE8623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ John Frigo And His Quintet - I Love John Frigo, He Swings (1957) 2004, Universal
 ```bash
 magnet:?xt=urn:btih:5916B988D1C8F868F4E376B852427DB34919BAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE878DA198E3C9C54E7CC15C1BF709F58AFC0FF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Big Top Winter (2018) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:1F95465581AE2FF36A90AEEE33C961ECD61AF7E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -252,8 +244,7 @@ Alpha Delta Division - Outer Rim (2017) Sloboda [FLAC|Lossless|tracks|Vinyl] <Te
 ```bash
 magnet:?xt=urn:btih:F42A3400B7B946EC37701C26B5EC32B9A344CFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,8 +272,7 @@ Antonio Mendez - Highland Drive (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitc
 ```bash
 magnet:?xt=urn:btih:515B86DEB90BDF6B5082C642EA4AD43818B5B307
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,8 +300,7 @@ Frank Wess & Harry Edison Orchestra - Dear Mr. Basie (1989) Concrod Jazz [FLAC|L
 ```bash
 magnet:?xt=urn:btih:0C6844A14FAFDDE4E18223D65BAE0A4D7E2620F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,8 +328,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:92328B514B466069B0D974FC00D9474B708F3EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +356,7 @@ VA - Suanda Winter Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:D8D990F71CD7F9EC35B46044AD9B4F49AEAA253E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,8 +384,7 @@ Christos Fourkis - Personal Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 ```bash
 magnet:?xt=urn:btih:BDD4364C73717DF40595A6978FDBA705107D7F3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +412,7 @@ VA - Markus Schulz - Global DJ Broadcast - Classics Showcase 2018 (2017) [MP3|32
 ```bash
 magnet:?xt=urn:btih:31DFF9A7A7EE58692AEB79F04F973287AFF64E41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +440,7 @@ Peggy Lee - Sings Leiber & Stoller (1952 - 1969) 2002, Hip-O Select [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:34E3CD19C9595A9C90417AF1A0E19E386EB11136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ Ghostpoet - Dark Days + Canapes (2017) [FLAC|Lossless|tracks + .cue] <Alternativ
 ```bash
 magnet:?xt=urn:btih:F5F66A75EE52ACEE6E4B09D87717EB8D26D70780
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +496,7 @@ VA - Abora Recordings: Best Of 2017 (Mixed by Ori Uplift) (2018) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:14C5E9A97E991DA0011B26115250E5A7DB9F8665
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +524,7 @@ The Black Dog - Forgemasters - Shards Ov Light (2018) Dust Science [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:AAAA68E3D4CD07A8270238CD02B725686DD7732C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ VA - Aly & Fila - Future Sound of Egypt 529 (2018) [MP3|320 Kbps] <Trance,Uplift
 ```bash
 magnet:?xt=urn:btih:064ABDA5AD3F90A34DCEDE21711EB9AE945149AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +580,7 @@ Merzbow - Kaoscitron (2017) スローダウンRECORDS [FLAC|Lossless|tracks+.cue
 ```bash
 magnet:?xt=urn:btih:8913A31A610380FA1F29F995C036DAD5EC9ECC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,8 +608,7 @@ Shining - X - Varg Utan Flock (2018) [MP3|320 Kbps] <Progressive Black Metal, De
 ```bash
 magnet:?xt=urn:btih:CFE7626209A53D66CC1359C2648BE03E1FCC779B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +636,7 @@ The Octopus Project - Memory Mirror (2017) [FLAC|Lossless|tracks + .cue] <Electr
 ```bash
 magnet:?xt=urn:btih:21AF1585838E934CA6995B9516F5A33491881941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,8 +664,7 @@ VA - Markus Schulz - Global DJ Broadcast - New Year’s Rehab (2018) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:3F2B96226014A37275D85D41543CE73016664ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -716,8 +692,7 @@ VA - Dance On Fire (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 ```bash
 magnet:?xt=urn:btih:D5F3EC1AD765FF15880F75400354964F6A702D6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -745,8 +720,7 @@ Doc Holliday - Doc Holliday Rides Again... (1981) Remastered, 2005, Rock Candy [
 ```bash
 magnet:?xt=urn:btih:414C92C032B753B9CB7E606CE105AB1D2E75BDDF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

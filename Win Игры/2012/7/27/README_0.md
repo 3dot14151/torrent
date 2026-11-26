@@ -19,8 +19,7 @@ Surface 2: The Noise She Couldn't Make Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:39345702DB8569A2A2717E98758805A44B25D611
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Inversion (Crack) [En] 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:A1DEE9F41424084C23581D1BEDC6FC131E841EFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ SEGA Rally заставит вас по-новому взглянуть на г�
 ```bash
 magnet:?xt=urn:btih:FAC50569F54466A8C0DCCA85CB3DF03459D69270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FB172670138A9712B513AEDA5A34D3392FA525EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

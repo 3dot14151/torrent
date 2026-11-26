@@ -22,8 +22,7 @@ B1. Yours Is An Empty Hope(   Читать дальше...   )Жанр: Symphoni
 ```bash
 magnet:?xt=urn:btih:04FAF093F6150CCE86D55D0F1BB354A025FD6C63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

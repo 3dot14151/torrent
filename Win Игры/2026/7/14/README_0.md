@@ -19,8 +19,7 @@ Arma Reforger - экшн, делающий огромный упор на реа
 ```bash
 magnet:?xt=urn:btih:E44FEF773758E36B36CEE4DC2B182E08AB4AD6F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

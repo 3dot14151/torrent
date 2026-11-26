@@ -28,8 +28,7 @@ Darkness By Oath - Near Death Experience (2012) [FLAC|Lossless]<Melodic Death Me
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -66,8 +65,7 @@ Mahavishnu Orchestra - Original Album Classics (2007) [MP3|320 кб/с]<Progress
 ```bash
 magnet:?xt=urn:btih:46C90D6B6603363B3511E4209202606AADCEA631
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +99,7 @@ Eluveitie - The Early Years (2012) Compilation [MP3|320 кб/с]< Folk, Melodic 
 ```bash
 magnet:?xt=urn:btih:CA72798AFDCD1C9B050BB435F37954BAE17DF14E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,8 +125,7 @@ The First International Sex Opera Band - Anita (1969) [MP3|320 кб/с]<Space Ro
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -163,8 +159,7 @@ Judas Priest (1974 — 2005)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

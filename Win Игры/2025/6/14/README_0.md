@@ -19,8 +19,7 @@ Castle Crashers - двумерный платформер от студии Behe
 ```bash
 magnet:?xt=urn:btih:190CE860BB8A48E3B86BB9B169C1F3EEAF543479
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BlazBlue Entropy Effect - двухмерная приключенческая и
 ```bash
 magnet:?xt=urn:btih:C59A309DEEADB5CE981CCB296D7583C6A89EFEAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Roboquest - это динамичный рогалик от первого ли�
 ```bash
 magnet:?xt=urn:btih:99F8800A34386678C4BDAD7033FA2C615B96DA19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:EE1303DA3D306B76EF9ABB24AA3D50A512313961
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mindseye (2025) [Multi] (4598223/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1EAC0C2897E732787738978643D96016C4249B9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Scene Rune [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7A19CFB4ACEE50D13FE252160C44B9AAEC9513EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Last Guest (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DC95FB57869D8609D853AD134195517F77AD7634
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Loco Motive (2024) [Multi] (1.0.5a) License GOG
 ```bash
 magnet:?xt=urn:btih:C1B1C72BA0B23CDD59050B059AC7D4B5A5741FA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Northgard (2018) [Ru/Multi] (3.7.26.42112/dlc) Repack FitGirl [The Viking Age Ed
 ```bash
 magnet:?xt=urn:btih:483A58C8E77F98B3BAAF70DF55B570DBCFFBFBFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Mortal Kombat: Komplete Edition — полное издание аркадног
 ```bash
 magnet:?xt=urn:btih:979044012C994E3F8639D1986BCDC24C78452C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:7D4680E09C30004F257339848EB3F932CDC37867
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Oxygen Not Included (2019) [Ru/Multi] (U56-674504-SCR/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5922B2D5F781E75CA2AE3C875A886DFCE91AC462
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Geometry Dash - аркадная 2D-игра, нацеленная на хард
 ```bash
 magnet:?xt=urn:btih:77EFDFDACD2A9F8A568D6DF18DFE1FA37B58C371
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

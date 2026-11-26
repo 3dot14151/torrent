@@ -22,8 +22,7 @@ A4 Парафраза(   Читать дальше...   )Жанр: Jazz, Easy Li
 ```bash
 magnet:?xt=urn:btih:EB3EB617B322DEC6AFD9997B13D1BC7727A82D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

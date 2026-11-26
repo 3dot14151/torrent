@@ -26,8 +26,7 @@ Aegrotum - Pilgrim To Total Negation (2014) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:C0DF84DCC0BD641AD94255E766447ABD1B621AFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Savage Messiah - The Fateful Dark (2014) Japanese Edition [FLAC|Lossless]<Power 
 ```bash
 magnet:?xt=urn:btih:27A00CEC999F89E7866C406BDE17C3FD283549A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1CDA152AD6266C7D8CCC6B05A876EAB1124DB61A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

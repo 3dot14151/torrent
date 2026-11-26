@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Cranberries - 5 альбомов (1993-1999, 2012) [FLAC 2.0 24/192 |image +
 ```bash
 magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ MaximЖанр: Breakbeat, Big Beat, DubstepПродолжительность: 0
 ```bash
 magnet:?xt=urn:btih:F99E88650870CE602217B3F436EF4FB6FB9DFCA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

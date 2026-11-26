@@ -22,8 +22,7 @@ The ID - The Masque (2016) [FLAC|Lossless|tracks] <Neo-prog>
 ```bash
 magnet:?xt=urn:btih:F942A667727BC4BFC8BF55C48BDE87293F68FCE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Regent - Illusions (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Ro
 ```bash
 magnet:?xt=urn:btih:0D584F574317E9CAF180939A62411D61E8F33EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Blind Ego - Liquid (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Ro
 ```bash
 magnet:?xt=urn:btih:CAFD6A5E9C9A2551115938974D7AEC1FE2CFB34A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:30302DFE4A708D34A2FB31CEDE736035241ECF16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ David Bowie - No Plan (2017) EP [MP3|320 Kbps] <Art Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:46581492ACC497B293A3321AF55D371295C83129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Black Star Riders - The Killer Instinct (2015) Deluxe Edition, 2CD [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:C31064ED36719CD2432492C35E2C24D8BEC247D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E8D51BB1B0D0F59144E66C73AE8D96040374D2C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

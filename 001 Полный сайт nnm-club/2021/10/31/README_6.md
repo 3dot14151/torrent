@@ -22,8 +22,7 @@ Chrizz Morisson - Magic Worlds: Summer Remix Edition (2018) [AAC|~325 Kbps] <Dan
 ```bash
 magnet:?xt=urn:btih:376433F7505D7521C681B07B5A2AB7B9114F892A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Toxic Lounge Tunes, Vol. 5 (2013) [AAC|~331 Kbps] <Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:F173C8919E8EFF7F3F8D758039549F0999583ED3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Chrizz Morisson - Magic Worlds (2021) [AAC|~326 Kbps] <Dance, House>
 ```bash
 magnet:?xt=urn:btih:F99C10E3E4DFC5C6B5B729300C57A0C641AB7A45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Chrizz Morisson - Universe (2021) [AAC|~330 Kbps] <Dance, House>
 ```bash
 magnet:?xt=urn:btih:4A8380402504CB26E9EA68A536F3A08FB8CEEE7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ Metadatics предоставляет возможности поиска мет
 ```bash
 magnet:?xt=urn:btih:0A952B0218B5BAF57CC25FA0502346E48669A312
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +157,7 @@ SyncTime - самое простое решение для синхрониза�
 ```bash
 magnet:?xt=urn:btih:6F279B48122358D527A179BA9A260EB0E8171BAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:5757FD2FFC400BC0621F7BE544B1F7332F39BF7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ Coherence X позволит превратить фактически любо�
 ```bash
 magnet:?xt=urn:btih:0CEF5CBC497AF3339C312B307F9C8E3084381A19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ Painters of Ether - Painters of Ether (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 ```bash
 magnet:?xt=urn:btih:F323D7A2E3B2E77A44E23DA35048BB67D1290FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ VA - Toxic Lounge Tunes, Vol. 4 (2013) [AAC|~326 Kbps] <Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:1137F7D590D9D1DA43EB2D622E792287B62E0D45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +292,7 @@ Skyclad - Vintage Whine (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E3505CD872104653DE306BD3B6717F21F42CE137
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -329,8 +318,7 @@ Duplicate Detective 2 - это наше новое интеллектуальн�
 ```bash
 magnet:?xt=urn:btih:88174DBFCA3AB71808601430009BA084575CBE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +343,7 @@ UltraCompare — это текстовый редактор, оптимизир�
 ```bash
 magnet:?xt=urn:btih:28F5DD31728C21C9042E47192C3D8C6A32493142
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,8 +371,7 @@ VA - Toxic Lounge Tunes, Vol. 2 (2011) [AAC|~325 Kbps] <Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:12CE3D39370B1B3879B3EB2B793042A3FB6B9092
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,8 +397,7 @@ Fresh 4 v4.0.4 fix [En]
 ```bash
 magnet:?xt=urn:btih:06144D2B29FC3274A953523C76AFB5CC49E7BAD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Dropshare - приложение строки меню для Drag & Drop заг
 ```bash
 magnet:?xt=urn:btih:84AC24DEF3B62FBAC4EEFD793A242EB7149EC0EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +448,7 @@ Leap 4 v4.0.4 fix [En]
 ```bash
 magnet:?xt=urn:btih:7E5FFD70EA33092E65F9182B0910128F9157F129
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +473,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C48528EB5AF3EFE08F0855FE7289993025390108
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +501,7 @@ VA - Toxic Lounge Tunes (2009) [AAC|~313 Kbps] <Downtempo, Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:B9120C41184FA77BC994ABD683348F8618A15FBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,8 +529,7 @@ Selfaware - Entropy (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A720F374710CF2DD29262078DA4D28793823AE9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,8 +556,7 @@ Yep — это каталогизатор PDF-файлов, iWork и офисн�
 ```bash
 magnet:?xt=urn:btih:E64299E0D92674B397A0D5667EFA31A71A6AEE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ Weather Guru красивый и очень точный погодный инф
 ```bash
 magnet:?xt=urn:btih:15B9B6268295E3ECE41899C6599C487B13C56C2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C9DC83FE6F786E2C902DE6ADBA131D10DC62C503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,8 +632,7 @@ Outline для Маc идеален для студентов, преподав�
 ```bash
 magnet:?xt=urn:btih:3F165114B6D94A681E24B7F1B06E8072CE5CBFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +658,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:635C173FA12BCB787496188571DAA4AF07822A44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -711,8 +686,7 @@ Falconer - From A Dying Ember (2020) [FLAC|Lossless|image + .cue] <Power Metal, 
 ```bash
 magnet:?xt=urn:btih:E548D6ECDBD2EE2FB6DF68EAC3662210B17CE0C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

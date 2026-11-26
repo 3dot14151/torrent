@@ -22,8 +22,7 @@ Bookmark Folder 5.1.6 [Ru]
 ```bash
 magnet:?xt=urn:btih:6DC5CAAE0A352B7F7134B6F45130BD6798E8726C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Head Model Studio 1.1.11 [En]
 ```bash
 magnet:?xt=urn:btih:BABCD7BA0BC29F026313ABBC1283265714570C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5264C03FBC968563343823276E07343D87F50640
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Electronic Component Pinouts v16.80 PCBWAY [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D425E4D839036B93FCD81A2B0A0A4DF658BD359F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Ventusky: Прогноз погоды v20.1 Mod by Сіtrus, qwerty [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7DDAB936E8E82F3D62BA13BA989B0755DD8E8478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

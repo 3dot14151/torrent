@@ -22,8 +22,7 @@ Chain - Toward The Blues (1971) Reissue, 2007, Picar ‎[MP3|320 кб/с] <Rock,
 ```bash
 magnet:?xt=urn:btih:7383E3F0742CA51DCCC1A29FEC5B5B578FD21008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Fausttophel - ...Sancta Simplicitas... (2015) [MP3|320 кб/с] <Melodic Black M
 ```bash
 magnet:?xt=urn:btih:0DBF7F6D355A861D51ABDCE5ADE063CDAAA07EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Detlev Schmidtchen (ex.Eloy) - Last Planet I-III (2013) 3CD Box Set [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:810D210FDEC3080BC2B2EF19A57DE22AEC773A93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ King Crimson - Rehearsals & Blows (2016) (May-November 1983)[FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:450678CC24A4B65D63EF8E4964210C7BAC572907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

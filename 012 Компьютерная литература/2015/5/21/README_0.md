@@ -19,8 +19,7 @@ Stacia Viscardi / Стация Вискарди | Профессионально
 ```bash
 magnet:?xt=urn:btih:09EEF4EF7E71DD1716C006AF14CC987596034E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ L. Carlson, L. Richardson / Л. Карлсон, Л. Ричардсон | Кни�
 ```bash
 magnet:?xt=urn:btih:60FEF44201A49CBAB80025B3325E5C765EDE9D0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Andres Calvo / Андреас Кальвос | Beginning Android Wearables (2015
 ```bash
 magnet:?xt=urn:btih:72ACFB76B8DC2FD2ECB1C733CCC83A2A9B6F6C7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:31D90CD9F590A4191E5CFACC0557AA23A8472742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:314C6122019A9D1222B310474074DA902D3B9EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ L. Carlson, L. Richardson / Л. Карлсон, Л. Ричардсон | Кни�
 ```bash
 magnet:?xt=urn:btih:B3DCCBEC5647C850BA0B7F6D1CE8710D2600ABD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Mark Lutz / Марк Лиц | Программирование на Python, 4-о
 ```bash
 magnet:?xt=urn:btih:11CDB9C5FA7D7128302C7DC774A1EB9BDF5E85E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ Jaroslaw Krochmalski / Ярослав Крохмальски | Основы Inte
 ```bash
 magnet:?xt=urn:btih:6B9574F1AC00EBFC45F594F5F0054DC9DB316F0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BE09898D5F2CDB30F5231063C736AD8289126D3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

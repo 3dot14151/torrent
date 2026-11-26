@@ -19,8 +19,7 @@ Echoes Of The Past 4: The Revenge Of The Witch Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:3126F9A719366593E176397B315DF55A75C08AC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bastion — ролевая игра с принципиально новым в�
 ```bash
 magnet:?xt=urn:btih:6F385EDAB6F23D418D185051C20F0E7A4B9A43F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sister's Secrecy: Arcanum Bloodlines Collector's Edition / Сестры. Тай�
 ```bash
 magnet:?xt=urn:btih:1831218BC42E78456FF0D468EA1C3E90F4CA7B8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bastion — ролевая игра с принципиально новым в�
 ```bash
 magnet:?xt=urn:btih:56021F66078C281BB3A76BFC4A2BCEC493B57550
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Trine перенесет вас в фэнтезийный мир, где хра�
 ```bash
 magnet:?xt=urn:btih:E2BD67140CA4D07AC94032F70CA804BE0A7CFE99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Pressure [Ru] (RePack) 2013 | AnG
 ```bash
 magnet:?xt=urn:btih:B9669BC8F53495F683DB722194783C8E90B3FCE2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

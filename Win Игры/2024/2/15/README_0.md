@@ -19,8 +19,7 @@ Haydee 2 - экшен от третьего лица с элементами г�
 ```bash
 magnet:?xt=urn:btih:CC16BFB06AB186E4C865DA16795F750EC33460ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:14B755407B0A23FFEAB00AF33392CF6DE393820A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

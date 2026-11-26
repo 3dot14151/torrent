@@ -19,8 +19,7 @@ Crystal Ball - 2020 (2CD) (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
 ```bash
 magnet:?xt=urn:btih:878605A5334356D136AF7249D6A2991DA6983651
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6741A4590B9AB9C6416F927E1387C2427FD3C23E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Mark Lanegan - Somebody's Knocking (2019) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 ```bash
 magnet:?xt=urn:btih:7141FE1D789083B92B2408B4F616BA43ACD3D022
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Jinjer - Macro (2019) [MP3|320 kbps] <Metalcore, Groove Metal>
 ```bash
 magnet:?xt=urn:btih:E43F56A6FC9C5E3254234EBC470559FC8E6613E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ Stereophonics - Kind (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock
 ```bash
 magnet:?xt=urn:btih:B7C627DCD69E1228640BD5D0EACED26322FFBDF8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ J:МОРС - 20 лет. Полёт норм! (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5388F7DC9D741A57A66F5DDEFAB4660A63DC487E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +187,7 @@ Bad Wolves - N.A.T.I.O.N. (2019) [MP3|320 kbps] <Modern Metal, Groove Metal>
 ```bash
 magnet:?xt=urn:btih:DDF6BD2FDB14F858973780288A17EA6FFF5156A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -222,8 +215,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7A53EADC53ACE8CD43547A906DB6DC0F832A764F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -251,8 +243,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9C6C865D948F89ECD5E023EFF88146590D62F950
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +271,7 @@ Nirvana - Seattle Grunge Years (2019) Compilation [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:E7AB54B0830E2AFE151DB2A6A47229E35EA1DCED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - Shine On You Crazy Diamond A Tribute To Pink Floyd's Greatest Hits (2018) [
 ```bash
 magnet:?xt=urn:btih:EFBE94238182D782289F7E1B2FC168B00E2FC083
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

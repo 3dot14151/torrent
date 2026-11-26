@@ -19,8 +19,7 @@ The Keeper of Antiques 3: The Last Will / Антиквар 3: Завещание
 ```bash
 magnet:?xt=urn:btih:7BE8666B30D073B2BDDB9FE056E250C141BD9159
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Vigil: The Longest Night — это 2D-платформер с боев�
 ```bash
 magnet:?xt=urn:btih:1CE778EBE8A19533A9A5896E1563717393957800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hotline Miami — это взрывной боевик, брызжущий на�
 ```bash
 magnet:?xt=urn:btih:F423F751A7CA4B33FCD6FE723BCA468277572E64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.13.010) License GOG
 ```bash
 magnet:?xt=urn:btih:DF02CE0A4641F91C16DD48176FB25DC0C15707F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2/2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:78E8124D06C617BDD5B8913040B80137868C73E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

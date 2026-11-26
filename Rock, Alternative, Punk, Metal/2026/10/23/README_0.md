@@ -22,8 +22,7 @@ The Flower Kings - HOPE (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Prog>
 ```bash
 magnet:?xt=urn:btih:B985E04AB27586E0032C5E6CF3370727B1364F24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B8C134CA93632C93C557542E408CE8910DFC5EA8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:096B05074E2596AD08CDF6BE6427AAC5EDB96ACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:590573B1D23E6D128F635143C792DE44A683DDE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ CD4 - Euphoria(   Читать дальше...   )Жанр: Hard RockПродо�
 ```bash
 magnet:?xt=urn:btih:7DA75BB370F970F438CF4C45C7DB659EB42D407F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ The Doors - Unbound and Dangerous (Live) (1970) 2026 Mix [FLAC 24/48|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:42A09BA9A11EEDEE9CADC7EF2C9F6BAB2B49C90D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Polyphia - BE NOT AFRAID (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:1F1B056598A41DF0189781FCF4795167A5AD1B74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

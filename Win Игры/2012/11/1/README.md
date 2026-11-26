@@ -19,8 +19,7 @@ The Gift / Дар [Ru] (P) 2012
 ```bash
 magnet:?xt=urn:btih:1C8DCA2C07E5219DFE254474FE6CA001B63801C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Alchemy Mysteries: Prague Legends / Алхимики. Темная Прага [R
 ```bash
 magnet:?xt=urn:btih:39F8A8B3D894AA19467A61DE9ECAD9ED16BD889B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Edna and Harvey - Harvey's New Eyes [Ru] [Repack/1.3.371) 2012 | SEYTER
 ```bash
 magnet:?xt=urn:btih:5D1A307BF78948219136939E091CB578C746A040
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Disney Princess: My Fairytale Adventure [En/Multi6] (RePack/1.0) 2012 | R.G. Rep
 ```bash
 magnet:?xt=urn:btih:68840E63A36E797B85C03A1523D919639F2E5241
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Echoes of the Past 6: Wolf Healer (2014) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:5CAAB749C7F23F25EA42154E01CC8F56A8445E13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Psycho Train (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:DA523E4EFC00BF63D3E5F609BD193933E1351423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Riddles of Fate 3: Memento Mori (2014) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:FFEC24EA4E9542DB50CB43DF69DDE89BD723B8E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ F1 2013 предлагает вниманию поклонников вирту�
 ```bash
 magnet:?xt=urn:btih:8D615B5CEF182967BB613D8F27B20FC2A9F945F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +129,7 @@ Crimes and Punishments — это детективный квест, посвя�
 ```bash
 magnet:?xt=urn:btih:1FB559A7D81906D365A3A916E3B3AED459DEB9D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

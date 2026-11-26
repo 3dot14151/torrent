@@ -22,8 +22,7 @@ Soulburn - Noa's D'ark (2020) Limited Edition [FLAC|Lossless|image + .cue] <Deat
 ```bash
 magnet:?xt=urn:btih:D210C42A45B4B5CE7667A9B313A76ADE5AB60FAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D3E0E37F96571D0B22DBFC8A02657CA12227355
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Noble Manes - Hysteria Of Being (2020) [MP3|320 Kbps] <Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:D63EF88FCF028CC6DD28BBC2D6BB482CE5E4BBC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Air of Hiroshima - Желчь (2020) [MP3|320 Kbps] <Post Rock>
 ```bash
 magnet:?xt=urn:btih:0A60CAF3FEA2D785F1CB0BD75B9392958DAFF327
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ George Lynch & Jeff Pilson - Heavy Hitters (2020) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:D11E08BA96EA1D9748FF76508EB496D2E87C2BBC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Destruction - Born To Thrash: Live In Germany (2020) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:C29B8CF308AC3EE5AAF2D2D286D41DED08814D22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Camel – одна из самых заметных групп прогресс�
 ```bash
 magnet:?xt=urn:btih:CBB97C5DB441BC98F419C1A138FF69DD2C068769
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

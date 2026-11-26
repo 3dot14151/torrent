@@ -19,8 +19,7 @@ Living Legends 2: Frozen Beauty Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:CA4AC7AA521EE8DD8C154CD465F5BB8A30079308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

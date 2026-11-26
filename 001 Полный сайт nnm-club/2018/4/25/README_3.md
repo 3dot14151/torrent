@@ -24,8 +24,7 @@ Part 1 (Discoteka)
 ```bash
 magnet:?xt=urn:btih:36212E8E078FE17CF6A7E1430B8FACF4C423A246
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/upd10/dlc) Repack Other s [Complete Editi
 ```bash
 magnet:?xt=urn:btih:DA08C8B7979B0DFC6FC1B30A23FDD92A04903EBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

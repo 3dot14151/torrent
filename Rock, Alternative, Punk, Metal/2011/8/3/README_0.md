@@ -27,8 +27,7 @@ Witheria - Vanishing Order (2011) [MP3|320 kbps]<Thrash Metal / Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:CC996C8584D8DB4129178A4B1E0159CE079FD5EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Kauan - проект, основанный Антоном Беловым (Heleng
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ V/A (Meat Loaf, Reo Speedwagon, Toto, Boston) - The Rock Box (2011) Box Set, Son
 ```bash
 magnet:?xt=urn:btih:BAB08613C9A951B24DC22EE91DE81751E323AFBD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -120,8 +117,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

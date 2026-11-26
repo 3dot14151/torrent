@@ -22,8 +22,7 @@ Scartown - Легенды Большого Города (2006) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:868C6F78753D3F61B842D609C107A6EB918B70CC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Sonic Syndicate - Only Inhuman (2007) [FLAC|Lossless|image + .cue] <Modern Melod
 ```bash
 magnet:?xt=urn:btih:150762412BAE72A88294A244467F085CBB2CBC71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pianoбой - ХІСТОРІ (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1597FC5A26954546254DCB3270167131FD34AC7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ The Ferrymen - 2 albums (2017-2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9C87937604104FAAC9A58357D335E2DF3DE4A7E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ten - 21 Альбом Collection (1996-2018) 23 CD  [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:10EB155A80282EBD8D31A6517E2B65FD50CEFE13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Rod Stewart - You're In My Heart: Rod Stewart (with The Royal Philharmonic Orche
 ```bash
 magnet:?xt=urn:btih:D6B9A51D23B937769CC0A69C5E7C48670B0C0D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:401AFBA998F5C6A710849B62F34ECFDC8FF86FE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0C4289B0B2F04A42861391F4B9DC25BF7353B06A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F12C591856C6E40A4187BE08634FFED3DCE7383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Lindemann - F&M: Frau Und Mann (2019) Deluxe Edition [FLAC 2.0|24/44|tracks|WEB-
 ```bash
 magnet:?xt=urn:btih:8916270269B2B2F60AE1FC3B6BD3BEDAD7EDA036
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

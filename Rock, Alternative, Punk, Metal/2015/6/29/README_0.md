@@ -22,8 +22,7 @@ Absolva - Beyond Live (2013) [FLAC|image + cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:DFB2329B295616A4544780E24DD9B7837F2DD7B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Airspeed - Airspeed (2012) [FLAC|image + cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C8365C0FF0ED82213F4C018E77DF334A3EFDF2F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Absolva - Anthems To The Dead (2014) [FLAC|image + cue]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:07557A914B27DD0D3CBB9E075373F5E21A78096A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ ParanoiD - Отторжение (2007) [MP3|192 кб/с]<Nu Metal ,Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:26C35B8A477F46A656B23711A0F74F73CA6A9390
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Stone The Crows - Teenage Licks (1971) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:EA8954EEA67852CC3B0004415642EB4FC054E2F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Chris Norman - Golden Hits (2011) 2CD [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:609140CD531ADDD53D531B117B3D3EFC4FF4B6E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

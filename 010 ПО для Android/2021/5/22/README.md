@@ -19,8 +19,7 @@ Picture Insect v2.2 [Ru/Multi] - Bug Identifier
 ```bash
 magnet:?xt=urn:btih:2E41C28E1BE16C407C1CE23C85A56C45098670D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Photographer's companion v1.9.0 Pro [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1CB1D977B9232333AF509A7064FB1CC49560182B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Geometryx - это приложение, позволяющее быстро и 
 ```bash
 magnet:?xt=urn:btih:D9C1D66F5983C34C998FA8222C085DF066AB707A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Hotspot Shield Free VPN v8.7.0 Elite [En]
 ```bash
 magnet:?xt=urn:btih:A72A41920F05E748DCB961FF077113D8574493B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Mobile Observatory – Astronomy – лучшая обсерватория на 
 ```bash
 magnet:?xt=urn:btih:2ED80925F67FCD5CE16DEDF6DA36E9676797F08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

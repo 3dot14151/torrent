@@ -27,8 +27,7 @@ VA - Phuture Dance & Trance Vol 3 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:1B08900CFA5B65023363B0E8859AA1BE58E6636B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ Darkinfrost - Dark Heaven (2014) [MP3|320 кб/с] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:83230C52BEA7C391C69308CCE396D30570347FD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -91,8 +89,7 @@ VA - Sense of Vocal Trance Volume 36 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:A9CFEED842AFD55F3A49F1A668651AD0A1274748
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +123,7 @@ VA - Magic Trance Vol.1 (Mixed by Beatsole) (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:01731D71C4D38D6DBADE2836C1BCA9D8CD311313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ VA - Trance: Best Of 2014 (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:B647FA9107C971FB695D8808DBC22FB007DC6FF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +189,7 @@ VA - Militant Artists (Mixed by Chris Hampshire) (2014) [MP3|320 кб/с]<Trance
 ```bash
 magnet:?xt=urn:btih:81BC2A57A94DE179B01C1A185A4E3405EA1A3EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +221,7 @@ Boot - Boot (1972) Reissue/1998, Lizard Records [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:6E7CDD745E0D44FC485111F7FACA3A801A1E13C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +255,7 @@ Veselin Tasev - Feelings (2014) [MP3|320 кб/с]<Uplifting Trance, Progressive 
 ```bash
 magnet:?xt=urn:btih:ED9658A32ACB356FADEBC3F6531C10E81E57C308
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Black Lung - Hype & Drive (2014) [FLAC|Lossless|WEB-DL]<Electro, IDM, Experiment
 ```bash
 magnet:?xt=urn:btih:497F088027E1E2E5310626963BF49008A1C2F454
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +313,7 @@ Your Own Little Space - The Only (2014) EP [MP3|320 кб/с] <Instrumental Rock>
 ```bash
 magnet:?xt=urn:btih:11186FAB8C5EC9E3F3824614A463C0FA95717C39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -355,8 +345,7 @@ VA - Sense of Vocal Trance Volume 35 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:71A5B0F7BF16703447BADB8C67AD5482CC3BE39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +378,7 @@ klyxn - 2 Releases (konf/ac & Points That Matter) (2008-2009) [FLAC|Lossless]<ID
 ```bash
 magnet:?xt=urn:btih:6DAB81E29EC55DB3A9427F6D7E5063003F2E1BA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,8 +410,7 @@ VA - Sense of Vocal Trance Volume 34 (2014) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:49C81C6644B70018ED0BB7B5921529A98A3AF489
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +442,7 @@ Bloodstained Ground - A Poem Of Misery (2014) [MP3|320 кб/с]<Black/Melodic De
 ```bash
 magnet:?xt=urn:btih:5244792EBE7424162FA4DA1F4995D98758912E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +467,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E99DC220BF088AA804B713BAC28E40DB2402892B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +492,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B2B0A0C128EAB0DAF130A6C1C71FC28175E871EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +517,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA0B19B1116D681C344B6FA88FD7C40315AF5948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +551,7 @@ Arc Angels - Arc Angels (1992) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:EA40C6E6BE6C1DD22D87ACD896B856CC24912279
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,8 +585,7 @@ VA - Creative Music Box 23 (2014) [MP3|320 кб/с]<Dubstep, Glitch Hop, Bass>
 ```bash
 magnet:?xt=urn:btih:EF95F2591CFD14AFEB0CE57915DD9B1AD424379C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +616,7 @@ Release The Long Ships - Wilderness (2014) [MP3|320 кб/с]<Post Rock, Instrume
 ```bash
 magnet:?xt=urn:btih:6591AD89126F55FDFE8BE6DBDCC2A7B04E21CBB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +645,7 @@ Fanny Adams - Fanny Adams (1971) Reissue/1998, Lizard Records/ [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:1820BFA1B6BA87AF9B77C8FFAE07675F5F6496AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,8 +670,7 @@ Discovery: Сверхчеловеческая наука / Super Human Science (
 ```bash
 magnet:?xt=urn:btih:06BC9DA4597A717001AE01744900B2B3DC256DFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -717,8 +695,7 @@ Discovery: Сверхчеловеческая наука / Super Human Science (
 ```bash
 magnet:?xt=urn:btih:21FB37D5D392B300BBB08A682A993723BC593EC8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +724,7 @@ Albums:
 ```bash
 magnet:?xt=urn:btih:D448C6CE735D2287B345C8133C317B1D51451477
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -774,8 +750,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F49D6E6A47A9412614F9C47A194ED54E5B195D8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -801,8 +776,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3D59E197C5ECA91CD424D62843EB41B9D522895F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ VA - Вечное Лето (2004) [FLAC|Lossless|tracks] <Rock, Alternative Rock
 ```bash
 magnet:?xt=urn:btih:49F529B6AD17274E7C49BCC1259AAB17204500A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

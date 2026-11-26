@@ -19,8 +19,7 @@ Curse at Twilight: Thief of Souls Collectors Edition (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:6AA3D794784C7332D758DB20AAEEB911D9017918
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Jack Keane / Джек Кейн [Ru] (Repack) 2008 | R.G. Catalyst
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Shadow Wolf Mysteries: Bane of the Family Collector's Edition / Призрачн
 ```bash
 magnet:?xt=urn:btih:3CA9517C466D59FE297EE49EDDE1DDF526E6A113
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

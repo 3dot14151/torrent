@@ -19,8 +19,7 @@ EdgeView 3 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:DF45CDDE82B7FC489D47413A2F25DDC591AEF4FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:D927744D6CB779146DA0CF3312B96F38DFB20FC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Colder Suns - Ex-Display (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:C2C6D20149CE0DF9F5422CBEAE6870B8B2D59385
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ CaptureGRID - это приложение для работы с цифровы�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ VSDX Annotator — это инструмент, предназначенный �
 ```bash
 magnet:?xt=urn:btih:824D35863192D6217C9AFD1062B0B1B22BD2EC09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Xversion - настольный клиент для системы управл�
 ```bash
 magnet:?xt=urn:btih:4572D74DCC7DA91344DDA804A370E389FAF1194E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ Greyborn - Leeches (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:0540B19D4A951E02527603E516637D61AA140529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Kvaen - The Great Below (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Pag
 ```bash
 magnet:?xt=urn:btih:E4D3AA08E869660DCD6DACB1B7B7D25A54A6AE3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,8 +233,7 @@ VA - Calm Down (Chill Out & Lounge Moods), Vol. 1 (2016) [AAC|~323 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:1A955F112CCF06140B1ADB2A2DE0E7498830857A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ The Electric Swing Circus - The Electric Swing Circus (2013) [AAC|~328 Kbps] <El
 ```bash
 magnet:?xt=urn:btih:8544395A974E909DA95A91825C96A1F6D456BC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +289,7 @@ VA - Calm Down (Chill Out & Lounge Moods), Vol. 2 (2017) [AAC|~327 Kbps] <Lounge
 ```bash
 magnet:?xt=urn:btih:51467EC91FC9856D8EEB300802320E14421CF941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +317,7 @@ Absinthium - One For The Road (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +345,7 @@ The Electric Swing Circus - It Flew By (2017) [AAC|~318 Kbps] <Electro Swing, Nu
 ```bash
 magnet:?xt=urn:btih:A9ABDD0EE6209E1ED551FF01F9FAAAB4B7A0D12B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +373,7 @@ A Blaze of Feather - Claire's Lane (2022) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 ```bash
 magnet:?xt=urn:btih:AC9D1BD6FAB932926ADB15A2C4F96FAB7FADB5C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +399,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +427,7 @@ Aldous Harding - Warm Chris (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:C7574CE222B30DBF63D5A6015BF23339E296633B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,8 +455,7 @@ VA - Lounge Music Essentials 2022 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Dow
 ```bash
 magnet:?xt=urn:btih:4EAFB0D9194340BD645EBF750EE0FF798F141FD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,8 +480,7 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,8 +506,7 @@ iDealshare VideoGo для Mac — лучший конвертер видео д�
 ```bash
 magnet:?xt=urn:btih:24CEDAFBDB8A50390A5412A636132CEFCBEB7488
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +534,7 @@ Swinsian — простой аудио плеер с функцией управ
 ```bash
 magnet:?xt=urn:btih:6008CA2EB7D99816FC0A46EF82FEF091E1759381
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ VA - Audioholic (Groovy Deep-House Tunes), Vol. 4 (2022) [AAC|~324 Kbps] <House,
 ```bash
 magnet:?xt=urn:btih:28C797E5100110BD6FA89E85D4D89C27E3CC8E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +588,7 @@ The Clock - The Best World Clock 4.6.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8F26CF50D50A425A9B3CB3E1E682D3E2688ACE11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ Miss Kittin, The Hacker - Third Album (2022) [AAC|~317 Kbps] <Techno, Electro, E
 ```bash
 magnet:?xt=urn:btih:D1B82480CCD482D6941B7DFB210D66D79FEB6408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ Jack Jezzro & Sam Levine - Dixieland Christmas (1996) Green Hills Productions [F
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,8 +672,7 @@ VA - Chill Out Lovers, Vol. 3 (2022) [AAC|~329 Kbps] <Lounge, Chill Out, Lo Fi>
 ```bash
 magnet:?xt=urn:btih:E9378FECF4E37DC601C7F98428F57A4500302D30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -724,8 +699,7 @@ MenuBar Stats - системный монитор, очистка памяти �
 ```bash
 magnet:?xt=urn:btih:6BAED40BA509D93460414EA930B6B8DA73F83DD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:C04E150AA0A74C43BAE6BB29CA76E401E1ADAC7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Top Gun - аркадный авиасимулятор по мотивам одн
 ```bash
 magnet:?xt=urn:btih:3BE63E266BD04AFBE5869AD78055DD6BD37294D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Crusaders: Thy Kingdom Come / Крестоносцы: во имя короны [
 ```bash
 magnet:?xt=urn:btih:709748CDB48065C436AF2560F08CABEE5A11A4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ The Godfather 2 призван исправить главное идеолог�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Skydrift – аркадная гоночная игра, действие кот
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

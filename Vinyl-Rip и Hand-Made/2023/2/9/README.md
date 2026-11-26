@@ -22,8 +22,7 @@ Talisman — шведская рок-группа, основанная в 1989 
 ```bash
 magnet:?xt=urn:btih:C3C7FCCA94A92725AD1E704033B4EA645B579BA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

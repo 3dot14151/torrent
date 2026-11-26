@@ -22,8 +22,7 @@ Allister - Best Of... 20 Years & Counting (2019) Japan Edition [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:A13B746FB587C3A3239BE35FD1FC1322B54FDB73
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Kasey Chambers & The Fireside Disciples - Campfire (2018) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:3BD2F50B90654B317110B0C473ACB6B24B6E3E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Headpins - 3 Albums (1982-1985) [MP3|320 Kbps] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:918E1F376AF734CC865D4FB3EC3265492BF8CCF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Chris De Burgh - This Way Up (1994) Unofficial Release [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:6C392958A5622164001F2A629AAC8060D525CAF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ VA - British Invasion Blues Rock (2018) [MP3|320 Kbps] <Rock, Blues, Pop, Folk>
 ```bash
 magnet:?xt=urn:btih:2C95D1E7A20052BE603EC5FD8087F9A54D733494
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Echoes - Live From The Dark Side A Tribute To Pink Floyd (2019) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:C1462C91266CCE7F3FCD72C87A422F6A3D07A160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

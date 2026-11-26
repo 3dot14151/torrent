@@ -19,8 +19,7 @@ F.A.C.E.S. - новая страшненькая искалка от BigFish Gam
 ```bash
 magnet:?xt=urn:btih:E673D98F11BF5C6EF63D801A77C360EA98F2C72B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ War Cubes (L) [En] 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

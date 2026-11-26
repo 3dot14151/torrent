@@ -22,8 +22,7 @@ Dee Snider — американский рок-музыкант. Наиболь�
 ```bash
 magnet:?xt=urn:btih:2F5808E14F07B33EA6095651708607AEE75A80E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

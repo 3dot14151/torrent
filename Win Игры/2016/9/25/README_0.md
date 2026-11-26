@@ -19,8 +19,7 @@ Watch This! (2016) [Ru/En] (4.10.4) License HI2U
 ```bash
 magnet:?xt=urn:btih:3230ACBEB71CA7B0C5B8D6C8A2400714EDEEC2C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gat out of Hell - это самостоятельное дополнение к 
 ```bash
 magnet:?xt=urn:btih:4A540DE3832DC58F6E8824AC06C426B9A732B52A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Invention 2 (2016) [Ru/En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:8E2493E4491EF8868D3505E343811CFE6CE52983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

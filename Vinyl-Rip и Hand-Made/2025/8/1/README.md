@@ -22,8 +22,7 @@ A3 I'm In Love(   Читать дальше...   )Жанр: Electronic, New Wave
 ```bash
 magnet:?xt=urn:btih:D2127C96833163B25D9A419C8EF12198A11B1ADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

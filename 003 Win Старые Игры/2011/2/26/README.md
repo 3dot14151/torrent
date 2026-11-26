@@ -19,8 +19,7 @@ Rally Championship 2000 [Ru] (L) 2000
 ```bash
 magnet:?xt=urn:btih:C88A3FE6C5758A5CEF268F3FBF8450575E158573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

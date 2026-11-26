@@ -22,8 +22,7 @@ Marianas Rest - метал-группа из города Котка, Финля
 ```bash
 magnet:?xt=urn:btih:D8FF6E73649C84AF8530CBDD1BF6A328FEA3694C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

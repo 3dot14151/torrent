@@ -22,8 +22,7 @@ Matthias Develtere | Дизайн и моделирование робота / D
 ```bash
 magnet:?xt=urn:btih:43A7AC08A8AFEADA03BB1B73AAA91E98686A4D0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

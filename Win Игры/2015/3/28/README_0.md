@@ -19,8 +19,7 @@ Bridge to Another World 2: The Others (2015) [En] Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:3CA3CFE1DD7E3BF08B33E4A201456CCE4AAB3329
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Tales 7: Edgar Allan Poe's The Mystery of Marie Roget / Темные Ист
 ```bash
 magnet:?xt=urn:btih:089E9F8C103F95E171B83853657DA2B54A19844D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ RIDE DLC Pack (2015) [Ru/Multi] (1.0) DLC BAT [Yamaha Historical Bikes, Yamaha 2
 ```bash
 magnet:?xt=urn:btih:C236431496C93D129C25DB261BEDF37AFC4CF1E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ White Night- приключенческий хоррор от бывших ра�
 ```bash
 magnet:?xt=urn:btih:BF38FB4F71421E26EA3513CDB970E7E7269EECF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ I Am Alive (2012) [Ru/En] (1.01) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:1510953D4E444B5F42ECCC314AA6ACF4D0022D91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Far Cry 2 (2008) [Multi] (1.03) SteamRip R.G. Origins [Fortune's Edition]
 ```bash
 magnet:?xt=urn:btih:F66F35A0670A8B3159FBA22469DFCBA176294165
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Mотоциклы самых популярных мировых произво�
 ```bash
 magnet:?xt=urn:btih:82E8753EF5EC62B1DE3F147F08CEBE9A2B8DD20C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

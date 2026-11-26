@@ -19,8 +19,7 @@ Shareman 4.5.0.12.66 [Ru]
 ```bash
 magnet:?xt=urn:btih:E73C2AC23AFB19982858A8B920F70A75052F755C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ BlackArch Linux — специализированной Live модификац
 ```bash
 magnet:?xt=urn:btih:BAA9690E031413E152B1D3C2A13E5E07A11C9FD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

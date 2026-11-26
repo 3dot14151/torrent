@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A027CEF9D161F77C1F6D4207083967066F324471
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Project StudioCS — специализированное приложение �
 ```bash
 magnet:?xt=urn:btih:DA16429D1F6310B5E2C5A6620F0A0FE33576C4BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32B7542A9CAD258B65B2FBA92D0A08495D38B709
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Visual Studio – это среда разработки программног�
 ```bash
 magnet:?xt=urn:btih:47577BA159CE16BAB43386EF9FB1370454076A4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ VA - In the Club 2016.1 (2015) [MP3|256 кб/с]<Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:E942FBDD50BE00AA22F9F7EDF5F4E4839704538B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Grim Dawn - мрачный рассвет нового века, где желе
 ```bash
 magnet:?xt=urn:btih:FF18048E6330D99188280785CFF0D81F3C12B50C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:20DC559424C62948521417DECA0820FB9C640644
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Adobe Premiere Pro CC 2015 - это мощный, настраиваемый р�
 ```bash
 magnet:?xt=urn:btih:1D95D52647EFF801AC596F27BC9747C4F4BFC85A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ GeoniCS - отечественная технологическая линия �
 ```bash
 magnet:?xt=urn:btih:23CF6A0551AC3C5BEF3B3A9072E9F5E1C955C250
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

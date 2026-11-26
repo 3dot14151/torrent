@@ -19,8 +19,7 @@ Stray Cat Crossing - хоррор адвенчура в стиле Ib и Дом 
 ```bash
 magnet:?xt=urn:btih:040A487AF3F361DE7CCF4F8D6AA6D093FE0B673B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Teslagrad (2015) [Ru/Multi] (1.4.1) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2453944F497B2AFC780DAEB537D7452A462B9712
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ A.I. Invasion - футуристический аркадный top-down шут�
 ```bash
 magnet:?xt=urn:btih:37B272935BA118ACF5D68010B26014F8BC8C7944
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lumber Island - That Special Place (2015) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B47D8852BCEE4337AAA47466F4639BCD9C86FAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

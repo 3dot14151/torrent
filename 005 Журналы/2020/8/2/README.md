@@ -19,8 +19,7 @@ After the Battle - военно-исторический журнал, кото�
 ```bash
 magnet:?xt=urn:btih:01EFDCC75D56399A60A58DBD179562ECD3FB0459
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ UPgrade – журнал о компьютерах и компьютерных �
 ```bash
 magnet:?xt=urn:btih:7B98E00F837A00824332A37478F91986CA1F537D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

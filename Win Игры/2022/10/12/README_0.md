@@ -19,8 +19,7 @@ In Sound Mind (2021) [Ru/Multi] (1.016) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:E2A645408AECC50B73BEFF22DFBB67E83ACE6FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

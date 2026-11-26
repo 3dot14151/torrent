@@ -21,8 +21,7 @@ AMD Ryzen Master - официальная утилита от AMD, с помощ
 ```bash
 magnet:?xt=urn:btih:DA2D8BA173DABFD1AEBDF53DE2FC0FE34E072C7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ FontLab 8 — это интегрированный редактор шрифт�
 ```bash
 magnet:?xt=urn:btih:AEFCF212AAE6AEFC33E1463159476F5FF62C7836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

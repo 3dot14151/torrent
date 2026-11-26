@@ -22,8 +22,7 @@ Nekrogoblikon - Welcome To Bonkers (2018) [MP3|320 Kbps] <Melodic Death Metal, E
 ```bash
 magnet:?xt=urn:btih:ACFF8A639AED4CD4644AF9B96D636B0B48CECFBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Gus G. - Fearless (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F06CD077540A206F83D0DD21B3BA1716B02F5614
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Temperance - Of Jupiter and Moons (2018) [MP3|320 Kbps] <Melodic Heavy Metal, Mo
 ```bash
 magnet:?xt=urn:btih:77A98A9C07D307353862AA6E7ACF39879C6FDC11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Blind Channel - Blood Brothers (2018) [MP3|320 Kbps] <Alternative Rock, Electron
 ```bash
 magnet:?xt=urn:btih:65664EF76BB2D2204030D3FB8628DB2F5601D907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Louna - Полюса (2018) [MP3|320 Kbps] <Alternative Rock, Female Vocal>
 ```bash
 magnet:?xt=urn:btih:D9A107118F6C43982BE2E62A419F73400EEE6705
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

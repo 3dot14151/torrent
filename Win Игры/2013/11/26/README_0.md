@@ -19,8 +19,7 @@ Mystery Case Files 10: Fates Carnival Collector's Edition (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:FA6F33A1FEEE69756B202931540480C0F98AFD96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Awakening 4: The Skyward Castle Collector's Edition / Пробуждение. Н
 ```bash
 magnet:?xt=urn:btih:64F62078B9A33B10F287ACC099973B40219839A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

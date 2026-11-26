@@ -22,8 +22,7 @@ Painted Wives - New Medusa (2021) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:2914D14A484C9AE4EEFEF32657EA2E52034061DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Osi - Free (2006) Deluxe Edition, Remastered, 2021 [MP3|320 Kbps] <Progressive R
 ```bash
 magnet:?xt=urn:btih:121FCB355BC5D35D9B6E73D5409CCEB4EE324458
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Crack The Sky - Tribes (2021) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:6E8F8569BB61847106347DF3DB5EB8C429E45FDB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Leaving Eden - Fable (2021) [MP3|320 Kbps] <Hard Rock, Male & Female Vocals>
 ```bash
 magnet:?xt=urn:btih:C9BBAE53306BC54FF660199690633CCF9D9054E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Voodoo Circle - Locked & Loaded (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:27F1E1769417E1A2FFC34A70B6FE7107670BA334
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Blue Stahli - Obsidian (2021) [MP3|320 Kbps] <Industrial Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:56845133F85247E2BC95018388AF714664320A59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

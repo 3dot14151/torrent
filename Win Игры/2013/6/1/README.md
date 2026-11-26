@@ -20,8 +20,7 @@ Q.U.B.E. (2011) [En] (1.3/1 DLC) RePack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:8F19B312F248C10AB7C4C47A48483776B7ED5C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

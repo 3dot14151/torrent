@@ -28,8 +28,7 @@ F.Side - Level 3 (2014) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:9886CE14E3A48128DA72275D37E90DDB004DFF2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Ray Scott - Ray Scott (2014) [MP3|320 кб/с]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:0F456436F03AAD6E667DA730A1D5BED6CED13B24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:828C2EE6392A42D9720DB792FE274BC001B8FE63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ General - Piros bicikli (1979) [MP3|320 кб/с]<Rock, Funk-Rock, Pop-Rock, Jazz
 ```bash
 magnet:?xt=urn:btih:53E2CBA00C1A681C16D3CB5661154C1725CB4B02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Hungaria - Hotel Menthol (1981) [MP3|320 кб/с]<Pop-Rock, East Rock, Rock & Ro
 ```bash
 magnet:?xt=urn:btih:7D89DD1B6EA9ED4332C476EC5E02F3D63534EE03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Hungaria - Finale? (1983) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:79EF7753CDF07C7438CB1CA87ABE45C88892CF2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Weep No More / Love You Till I Die / Boss Guitar
 ```bash
 magnet:?xt=urn:btih:78377F0F93B52367CE76428A11E5213CE3539551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Kovacs Kati / Locomotiv GT - Kovacs Kati (1974) [MP3|256 кб/с]<Rock, East Roc
 ```bash
 magnet:?xt=urn:btih:AA0195DD065BDE6B48590A1226D22F337DF40DE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +299,7 @@ Mono - 2 Альбома (2014) [MP3|320 кб/с]<Post Rock, Instrumental, Ambien
 ```bash
 magnet:?xt=urn:btih:34DD685D7DF5D9EE53EB5BE9571CC38488E9272C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ CD.5 Colston Hall, Bristol, Somerset, England 14.12.74Жанр: Progressive Rock
 ```bash
 magnet:?xt=urn:btih:DEE1F08A680FFD64227F905D22BE36D8E4168DF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +354,7 @@ Pink Floyd - Louder Than Words (2014) Single [MP3|256 кб/с]<Rock, Progressive
 ```bash
 magnet:?xt=urn:btih:B3DADEE1E17EAFC0461241CC43BBEA1A9333590C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +388,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A51D8F521FC664950D19DFB03222152434CE81D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +422,7 @@ Amaranthe - Massive Addictive (2014) [MP3|320 кб/с]<Modern Metal>
 ```bash
 magnet:?xt=urn:btih:8E084AEB4EF2DECEB56F1956AAF3BD128719B055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,8 +456,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B214C36A5E8DBA572A7019CA5CDE72781424FCC7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

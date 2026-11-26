@@ -19,8 +19,7 @@ Full Mojo Rampage - аркада с ролевыми элементами, в к
 ```bash
 magnet:?xt=urn:btih:8B5C508820E37BEBBF7F6D6D108505F54F44E726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:37EEF34CE77D03AC9BF9DDACD6F4BE0958190EE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Dreambreak — приключение в альтернативном будущ
 ```bash
 magnet:?xt=urn:btih:E161DFBF8827D4EDFF86CC675D4B3E89C78713E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ BYclouder Data Recovery Ultimate - восстановит потерянные �
 ```bash
 magnet:?xt=urn:btih:6831ABAACF188273C931A0115EECCED458A369E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

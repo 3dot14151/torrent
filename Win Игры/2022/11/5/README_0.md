@@ -19,8 +19,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 ```bash
 magnet:?xt=urn:btih:66F07DE408657593D2B3BE324E3E1613EB7EDC93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Lovecraft’s Untold Stories 2 – ролевой экшен с элемента
 ```bash
 magnet:?xt=urn:btih:329C3C79331B2BA90D8872D568261D0E86FC225C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Darkest Tales (2022) [Ru/Multi] (1.05.1) License GOG
 ```bash
 magnet:?xt=urn:btih:6E96C17CB03EC3FD00813F8BE143C47FC4130B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ VPN Россия: Русский IP proxy v1.84 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3245197AC46EEA9C569BC98C30EDE6E45E3C6430
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

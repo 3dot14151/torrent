@@ -19,8 +19,7 @@ Far Cry (2004) [Multi] (1.1.0.1230) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:FD5A21C007C0C286323B929280A23A55B1C41782
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

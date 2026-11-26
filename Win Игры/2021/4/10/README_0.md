@@ -19,8 +19,7 @@ Crisis in the Kremlin / Кризис в Кремле (2017) [Ru/En] (1.0/dlc) Re
 ```bash
 magnet:?xt=urn:btih:96CEE8A3CD6498AA0A3F89BF22BD9565AFE48F93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Serious Sam 4 (2020) [Ru] (1.01) Unofficial [Русификатор]
 ```bash
 magnet:?xt=urn:btih:7468B7C19A43C39AEC8A3A0954B41EC30E41FA3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Farm Frenzy Refreshed / Весёлая Ферма: Возвращение (2021)
 ```bash
 magnet:?xt=urn:btih:BA0D520440368FE7E61F30F7732912FBA4126C44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Cozy Grove (2021) [Ru/Multi] (1.5.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0C7F8A0E9728921E9053F4691A010F0E9A8E9E48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.16-20.12.11/dlc) License GOG [Slayer E
 ```bash
 magnet:?xt=urn:btih:7C1546D8E01FCC29C157C2CB32B059CF16E37476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

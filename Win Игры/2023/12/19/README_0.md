@@ -19,8 +19,7 @@ TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:544BD38F89808D9CC155F9805EE57784F8F18BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Earth 2150: Children of Selena / Земля 2150: Дети Селены [Ru] (Ri
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

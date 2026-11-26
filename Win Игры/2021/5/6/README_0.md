@@ -19,8 +19,7 @@ Whispered Secrets 12: Ripple of the Heart (2021) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:38B049BE48C64204F2054F5AD6267FFDDDF74A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Camelot: Wrath of the Green Knight (2020) [Ru/Multi] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:8F94DE5388E35C3157B985CEE1C10B20E38F96F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Camelot. Wrath of the Green Knight. / Камелот. Гнев Зелёного 
 ```bash
 magnet:?xt=urn:btih:7A426A614A7F1B50377179D994D45E21E0E56467
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ X3: Terran Conflict (2008) [Ru/Multi] (3.4/3.3/1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0026EB8EFB70A516628EF4A788A5BCB22DE9C22E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

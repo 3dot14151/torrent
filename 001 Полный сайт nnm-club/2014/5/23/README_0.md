@@ -27,8 +27,7 @@ VA - High Contrast Presents: Ibiza 2014 [MP3|CBR|320 кб/с] <House, Progressiv
 ```bash
 magnet:?xt=urn:btih:C6FD0826133F4F9574AEFCC63FD11E108456C5EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Well Hung Heart - Young Enough To Know It All (2013) [MP3|320 кб/с]<Alternati
 ```bash
 magnet:?xt=urn:btih:31F290297C63F9212FA076B19F5F97C941B274FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -88,8 +86,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E863BE2BAB80FDD02577DAB9B223241C5A34AC39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -114,8 +111,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:75B788662E46FA9AD60A46D724DE54F8ACC88562
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC8ADF82C36C1CC27C3DF4508D4D33F46FC85EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:39C286BE115F992457C76951D16558C615810150
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -194,8 +188,7 @@ Yarn - Magic Planet (2014) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:5BF3A7E4F9D0747CC9000457350A658361B10757
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +221,7 @@ Invisible Allies (Bluetech+KiloWatts) - Conversations With Bees (2014) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:3ED589495C3BB17E7D3570E9A3309B29B6DB4AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ VA - Late Night Tales Vol.3 (Deep'n'Sexy Lounge & Chill House) (2011) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:DF91495BC8A90D98886A3158FC84B9C7003752BD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3E7F2079679B5A4A00F3C288A9CE7415AFFBA0EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ Trash Talk - 2 альбома (2012-2014) [MP3|320 кб/с]<Hardcore Punk, Thras
 ```bash
 magnet:?xt=urn:btih:487F9D9C0A5510F9B7FCAC6F726B34317B21AB1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ Calibre - программа для конвертации и хранения �
 ```bash
 magnet:?xt=urn:btih:570F96EF1D0E3A87DBA776CA0A663E1916E42C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +365,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC64752E3E5B495A2FD0B2B3B17E239BE66810EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +399,7 @@ VA - Delicious Deep House Collection, Vol.1 - 2 (2014) [MP3|320 кб/с] <Chill 
 ```bash
 magnet:?xt=urn:btih:AD84DF6AD6C47E5EBF0AD22DA7776B0DC9CA7770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,8 +428,7 @@ VA - The Bluesville Years Vol.01-12 (1995-1999) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:06200BEE39953E4CD133FC6C4AA2FBF7ACF0E849
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +460,7 @@ Waveshaper - Air Empty Path (Wåveshåper - 空 Empty Path) (2014) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:C92DC2BA982370EDCB08A6806237DC72FF1738AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +485,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5AE745F92246CE64F7254461D55E1B3D717DA86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +510,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD3A2F9B7DD7ADAE497B2D9655E7B7761DB55B06
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,8 +537,7 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:710284E1B5145E9275AD33A8B1D5155785AB1E9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,8 +564,7 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:1C8480D42644233268181EA0E3999C1100B10FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,8 +589,7 @@ VA - Hyperdub 10.1 (2014) [MP3|320 кб/с]<Dubstep, Grime, Juke, Techno, UK Gar
 ```bash
 magnet:?xt=urn:btih:380318B2F112494485C0BD0F8F558752414B6E09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,8 +614,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5A72477E2B0140211527036212C8E0C6BED24FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,8 +641,7 @@ NeoOffice создан на основе офисного пакета OpenOffic
 ```bash
 magnet:?xt=urn:btih:3D8348D5AF18BBC21A461BC64CFC8CD488D2EFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +674,7 @@ Astrud Gilberto, известная, как Девушка из Ипанемы �
 ```bash
 magnet:?xt=urn:btih:D6E27A5A98F911FBF003FF213C4B8E55C5250982
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -723,8 +699,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -749,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:792AB46A33F6A3BB30CDEF1CC9A90539D24E1FCC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

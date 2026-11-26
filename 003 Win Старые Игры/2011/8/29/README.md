@@ -21,8 +21,7 @@ Tex Murphy: Under a Killing Moon [En] (RePack) 1994 | Pilotus
 ```bash
 magnet:?xt=urn:btih:19748D680E5A3DFC2C635BBFE4E4A34349EBA9DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Suffering Дилогия [Ru] (RePack) 2004-2005 | R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:28D90D8FAC5CF701BF1F7E26115080BFF074EC36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

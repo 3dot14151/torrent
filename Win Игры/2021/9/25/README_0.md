@@ -19,8 +19,7 @@ Spirit Legends 5: The Aeon Heart / Легенды о духах 5: Сердце 
 ```bash
 magnet:?xt=urn:btih:6F1FADA8F12750BF74B8D4263D8BD4B65540DBBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2166) License DOGE
 ```bash
 magnet:?xt=urn:btih:7D255A23DE3D6C8AE0A5EE5706C6EFD81F3207FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sable (2021) [En] (3.2.9) License CODEX
 ```bash
 magnet:?xt=urn:btih:61A7BEB0C9724290236F7BB8603EBB14B2CC51D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Black Mirror 3: Final Fear / Черное зеркало 3 (2011) [Ru/Multi] (1.
 ```bash
 magnet:?xt=urn:btih:14DA251AB7C86C40FDF606CDCDC90D951624F3E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hitman - Game of the Year Edition (2016) [Ru/Multi] (1.16.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:17201E007FF478828B58F7AB9264D2CEAB02763C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

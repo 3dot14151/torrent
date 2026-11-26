@@ -22,8 +22,7 @@ Warmen - финская метал-группа, основана в 2000 год
 ```bash
 magnet:?xt=urn:btih:C1EA4E8246F039BD4776E82FF769D33F13C97EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

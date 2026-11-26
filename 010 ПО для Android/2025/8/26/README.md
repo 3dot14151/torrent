@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:56A88B9EBF0B0D0838F2B5C492EDDD22F1052610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MobiPDF: Редактор и сканер PDF  v11.8.267277 Mod by Balatan [Ru/M
 ```bash
 magnet:?xt=urn:btih:EDC70850ECC73A1B1071E5293403D268EC046E6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Smart AudioBook Player Pro v11.5.2 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DC423E3DA20622731F128A38A7CE6302BE3155C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

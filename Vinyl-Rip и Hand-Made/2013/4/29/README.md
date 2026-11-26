@@ -28,8 +28,7 @@ Blind Guardian - 11 Альбомов (1988 - 2012) [FLAC 2.0 24/192|image (Vinyl
 ```bash
 magnet:?xt=urn:btih:98F17C0937C130152767867359FFDFA71978A89B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

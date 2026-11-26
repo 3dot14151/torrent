@@ -22,8 +22,7 @@ James Newton - James Newton - James Newton (1982) [MP3|320 kbps]<Jazz, Flute>
 ```bash
 magnet:?xt=urn:btih:9B894FF101F1B8DD904939731FA8D1FADFA90118
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Dianne Reeves - That Day... (1997) [MP3|320 kbps]<Jazz>
 ```bash
 magnet:?xt=urn:btih:1BD259482DF0B0BE6632624A714099C8AF117AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Real Comedy, Выпуск 13 (2010) SATRip
 ```bash
 magnet:?xt=urn:btih:1F542819395CCFD3D1CAB677B40AEFF1606FBEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D0984AEC2146C920092417DD01465CF548522079
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -135,8 +131,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D7CCB7E4C55611A42B9A3271BAA503CA7CE00DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B283C379C23B5328E888741C4DDAFF3B70ED736C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Tania Maria - No Comment (1994) [MP3|320 kbps]<JAZZ>
 ```bash
 magnet:?xt=urn:btih:CEA08C305BBBFFB38AEEFC3071DF971FB153D470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Carlos Bica - Materia Prima (2010) [MP3|320 kbps]<Jazz>
 ```bash
 magnet:?xt=urn:btih:A493F988744092243269F6164B1A1191DEE2546A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +249,7 @@ VA - Тихо Падает Снег - Новогоднее Настроение 
 ```bash
 magnet:?xt=urn:btih:867AF4EAE0B037C93156E5DE4DE068E6387C614B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Зимняя Clubничка DFm 50/50 №13 (2010) [MP3|256 kbps]<Pop/Club>
 ```bash
 magnet:?xt=urn:btih:25A424A497DAEACDA1F2BB3428BC3BEE824DF08A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +299,7 @@ VA - На ресницах твоих белый снег (2010) [MP3|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:4FC2A2FB703AEEA1101722AD4F6DB8C023E4716B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +324,7 @@ NG : Великие миграции : Рожденные для путешес�
 ```bash
 magnet:?xt=urn:btih:79DAB6A502073262F4BFED41FF9B51600E5A3702
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ VA - Самый Свежак Шансона 2010 (2010) [FLAC|Lossless]<Шанс
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,8 +391,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:968C7C2C22AF29A6EC7780FD6748B5AB24C7E5E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ VA - Sensual Affair Vol.3 (25 Smooth & Relaxed Lounge Tunes) (2010) [MP3|320 kbp
 ```bash
 magnet:?xt=urn:btih:B4E9E43D5F80B661D2FF8F4B5D2A56DE7B3B8B6E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Wondershare PDF Converter - это мощная программа, котора
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +470,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B9B8AC0C8CFD85053745C6D3956D900022856BD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +520,7 @@ Mary Halvorson Quintet - Saturn Sings (2010) [FLAC|Lossless]<Free Jazz>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +554,7 @@ Lee Ritenour - Smoke 'N' Mirrors (2006) [FLAC|Lossless]<Crossover Jazz, Smooth J
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,8 +579,7 @@ Maxthon - браузер с множеством очень полезных в�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +612,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B0CAE8D921F07AF3910FDB98A6CDEABFC6BF3743
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +637,7 @@ Herbie Hancock - Maiden Voyage - 1965 (RVG Edition - 1999) [APE|Lossless]<Jazz, 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +671,7 @@ Dorothy Dandridge - Smooth Operator (1958) /Remasterening 1990/ [APE|Lossless]<J
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +696,7 @@ Hour 1 :Жанр: TranceПродолжительность: 1:57:51
 ```bash
 magnet:?xt=urn:btih:242571868C2BC1E16A6995FBF176075DD846DAF9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -755,8 +730,7 @@ Erik Truffaz - In Between (2010) [MP3|320 kbps]<Acid Jazz, Downtempo, Post-Bop, 
 ```bash
 magnet:?xt=urn:btih:09D693506560A4D687B1479A35A80D76AA8BD34B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

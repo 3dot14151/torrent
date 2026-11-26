@@ -20,8 +20,7 @@ Gboard – Google Клавиатура 6.2.34.154174348 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:829246C34441587668B7FAFC8AD3EF27C267E898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

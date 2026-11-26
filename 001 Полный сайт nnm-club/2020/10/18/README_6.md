@@ -18,8 +18,7 @@ Call of Duty: Black Ops 2 (2012) [Ru/En] (43.1337.7/41.1337.1/41.627.1/DLC) Rip 
 ```bash
 magnet:?xt=urn:btih:0DB412EC71915D8889334AE09952D7E11F2CE92D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Total War Saga: TROY – стратегия в реальном времени, 
 ```bash
 magnet:?xt=urn:btih:2BF26E89F92453A8491984A20437D52DBD21CFE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Adobe Photoshop — лучшее в мире ПО для графическог�
 ```bash
 magnet:?xt=urn:btih:711C9F451F2E6E3420C6E4003B439B7A7CCEA797
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Adobe Photoshop — обязательный инструмент фотогра
 ```bash
 magnet:?xt=urn:btih:FBEEA74E9BFFDECA0798B79AC0D568CA085E053F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:03DDC83B367FD93AB37B8BB62CDCB9DA5D634845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4C6AB61566DFC3634069A99C662C22D4C7D8DDCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4E601D51B73C9A860BF2A8754B7D4579366E1CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -200,8 +193,7 @@ eFootball PES 2021 (2020) [Ru/En] (1.1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:B0AE6072C1CB8239CBC132C219F7CD509C34ACD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:3CEFD0F403F34ACA75C3A5F5B0EAC14441B53E52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:47603CAB5394D8EC501DFFE6BBBC05847F3FFE81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44973419D96823AFD8C879C902898451D6EDB40F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ G. Trombley / Дж. Тромбли и др. | Korean from zero! 1 / Корейс
 ```bash
 magnet:?xt=urn:btih:9B6B1D0188606BB69A2ED9294F6FF522D5F95C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

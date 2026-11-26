@@ -19,8 +19,7 @@ Grim Tales 20: Trace in Time (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:BEDCCC0947B930551916AAF1E8923558ED9C7EA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Genesis Noir – это нуарное приключение сквозь пр�
 ```bash
 magnet:?xt=urn:btih:CCDA6FCA49BB891932B049CBD933A2A51FC7EA1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Clea 2 — продолжение хоррора 2019 года. Приключе
 ```bash
 magnet:?xt=urn:btih:523956BD87BA3AC2FD451722FDDED5FCE00758B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kaze and the Wild Masks – это весёлый платформер в сти
 ```bash
 magnet:?xt=urn:btih:6F52D3B6B1CFC2174D02944D7887AFB1B40C62B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Presence (2021) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AC75F798DAC9B995AF61DF8795AB773CCD26DAE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Empires in Ruins / На развалинах империй (2021) [Ru/Multi] (1
 ```bash
 magnet:?xt=urn:btih:EEEA0BA70197CEAD2581256333432CE6649F4E66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

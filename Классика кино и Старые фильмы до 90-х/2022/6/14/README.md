@@ -20,8 +20,7 @@ P.S. По сюжету героиня вдова. (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:3AF819F27F4C7A155D13EB34D339100F157C714D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF1DD43B51C5E113348EBF6BAA7632559ED768C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

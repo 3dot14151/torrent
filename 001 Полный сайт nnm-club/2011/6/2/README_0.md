@@ -18,8 +18,7 @@ The Dragon Dance / Танец Дракона (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:772A91C7869FAA8F917B294235EA3F3F2F43B73E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Paul Kalkbrenner - Icke Wieder (2011) /PKM 002CD/ [MP3|192-320 kbps]<Tech House,
 ```bash
 magnet:?xt=urn:btih:FED574381A2F0FB947F3AAF3B8B248E3D932BDB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -79,8 +77,7 @@ Rebirth Brass Band - Rebirth of New Orleans (2011) [FLAC|Lossless]<New Orleans B
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8C8E8A1C3904B0A1FAE39B5FED33D287D8C1F6F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BF32D487E0CFFE9CA2CD11C7E270CB3FF1C5AD8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ VA - Калина Красная № 15 (2010) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:B2F9C4F2AAA5DE2F6828FFCB43A94059E8E56EB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ VA - Новинки Года (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:B37994DF0D52F24411AD221E0883372BC7ED885F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,8 +228,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F5789BBA2498FECC588032334E6E422D63F8C13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,8 +253,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:54F383C74894D4E65A42470FB1195BE74F7811D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B76A969CFD007447D6D7823EBB02C17023D6A70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Curse of the Ghost Ship (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:BABBF5F63CABBE080B636A55AC37FE8B6FC21C69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -349,8 +337,7 @@ Dead End - Stain Of Disgrace (2011) [WavPack|Lossless]<Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,8 +362,7 @@ VA - XXXL По ту сторону забора (2011) [MP3|128 kbps]<Шансо
 ```bash
 magnet:?xt=urn:btih:B4E5F3B002D0A3AABC24866C424C98AE904E3CBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,8 +387,7 @@ VA - Русская Дискотэка Арлекина - 2 (2011) [MP3|128 kbps
 ```bash
 magnet:?xt=urn:btih:F6B6B963593422CF81787F97D2349E19817CC61F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:665B2505BA520420E3D1079F96855F81C0077EF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,8 +438,7 @@ Playboy — классический мужской life style журнал!Фо
 ```bash
 magnet:?xt=urn:btih:42542C50054EA08833700E7E1E23305BAB4FBCE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -480,8 +463,7 @@ VA - Sechs (Chris Tietjen DJ mix) - 2011 /CORMIX 033DIGITAL/ [MP3|320 kbps]<Tech
 ```bash
 magnet:?xt=urn:btih:CB173F652C7E41E2352FDF22F34CC0EA96946F5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,8 +497,7 @@ VA - DJ Flash - Body (2011) [MP3|320 kbps]<Electro House>
 ```bash
 magnet:?xt=urn:btih:89C87D4522F8209E47C698A4E315CBF83135080F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,8 +522,7 @@ VA - 100 Грамм Для Храбрости (2011) [MP3|256 kbps]<Schanson>
 ```bash
 magnet:?xt=urn:btih:24D0E5892F1C0B3828430C990A4735433776E32B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4B9CB00D4DD2677B67EBF6BC8B2C8B96EBE147DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ VA - Вся Ночь Впереди 50/50 (2011) [MP3|224 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:D412627D6BC40BB8B3ADA99681ABFB27DC976CD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +604,7 @@ Tokyo Prose - Introducing Tokyo Prose (30.05.2011) [MP3|320 kbps]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:F9C55A087B1CB17CB1DF5741584456F39642AD8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ VA - Don't Stop Energy (2011) [MP3|256 kbps]<Dance/Club>
 ```bash
 magnet:?xt=urn:btih:E96B0A3DC1333D07473B0FC0E652A65A8DFA58DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,8 +661,7 @@ Euphoreon - Euphoreon (2011) [FLAC|Lossless]<Melodic Death Metal/Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +687,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B93196D6969F59C436A18F64B0C6BC7986ADD3A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

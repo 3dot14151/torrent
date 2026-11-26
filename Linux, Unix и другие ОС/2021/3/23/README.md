@@ -22,8 +22,7 @@ Mathlinux включает в себя большое количество (   
 ```bash
 magnet:?xt=urn:btih:50A83939787051C1E8827981AE3CC6C824377C2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

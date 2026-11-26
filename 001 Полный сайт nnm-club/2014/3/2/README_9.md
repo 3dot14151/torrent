@@ -28,8 +28,7 @@ VA - Pleasant Trance: February (2014) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8CBF9BAB097642D56B58D45A0442E4B5691A59F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2A7CEEF9608C3255200F8096CAEF2D1E1417A969
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Kate McGarry - If Less Is More...Nothing Is Everything (2008) [APE|Lossless]<Voc
 ```bash
 magnet:?xt=urn:btih:531EBBE8D42DDDF7076CD704CA7D8539964BB99A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -115,8 +112,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D928DFC6677B593331203FB7DF4A9C7F6B356DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Kate McGarry - Show Me (2003) [APE|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:54DFC7E4D9CCD07F87BAB7E1F946416A7176AC1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +180,7 @@ Karen Francis - Better Days (2002) [APE|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:707F90C97A5E72A22EBE81EB015665675C665C0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,8 +214,7 @@ Paul Michael Meredith - Daybreak (2000) [MP3|320 кб/с]<New age, Relax, Nature
 ```bash
 magnet:?xt=urn:btih:5ECA42D8BBD184F0D4428BB09629FEB2876D6B9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ VA - Highway Island Funky (2014) [MP3|320 кб/с]<House, Club, Progressive>
 ```bash
 magnet:?xt=urn:btih:E763B2A586E8DFD26A80DB889A67C6DD79F63FF2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ VA - Maldivian Grooves (Compiled and Mixed By Stefan Gruenwald) (2014) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:C5985639EA5CAE4A46C0380B7083D29C567AB3D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,8 +307,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CAD5F380CFF165A424858B33A2394D332899CF3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +332,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:32F3746FE6FA4F6288B04ADF76D0ACEB676E5A0D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ Enaid & Einalem - Celtic Nights (1996) [MP3|320 кб/с]<New age, Celtic, Nature
 ```bash
 magnet:?xt=urn:btih:42520CC498AC40E3A89AB32BE920A5C3DEE580E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +393,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1B1073E5EBCBB5409BEB4DFFB5ADF8D78745E92E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +427,7 @@ VA - La Catharsis /Dix-Huitieme Edition/ (2014) [MP3|320 кб/с]<Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:E30B8A74F4FEE7AF12F8B5F570000643E229BA53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +461,7 @@ VA - Ambient Desert (2014) [MP3|320 кб/с]<Ambient, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:54A421313ADE1D0722D61E321CC54CE08290E76A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +486,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:99CFA621D32484F2B28F7D423221FC697AB30A5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +511,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +545,7 @@ The Blonz - Blonz (1990) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F4373FE851D038843C8C2D822A6A4558D14E15E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +579,7 @@ Guru - Version 7.0: The Street Scriptures (2007) [FLAC|Lossless]<Hip Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:586BCFC0A45CF431F2213E211F7D90333E9D61E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +613,7 @@ VA - Ambient Realms (2014) [MP3|320 кб/с]<Ambient, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:737990BE75B0EDA755025955AD54C745D318DA61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BBF9D7FA8A1887CC84A6F37BDBDFB38A4A08CB36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,8 +673,7 @@ Kenny Burrell - The Bluesin' Around Sessions (2013) [FLAC|Lossless]<Hard Bop, Gu
 ```bash
 magnet:?xt=urn:btih:7F8A8A75440C95D1DE24AFD1DF8F7D439BD07A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +698,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:915B6C280DBB9B724711417152B8B43705FD3826
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -747,8 +724,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4265E2EC3BC2FAB95B85ACB02AA82A6C334F7695
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +749,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5F227719286CC811F301716C23DA7018F8CB7218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -808,8 +783,7 @@ Karizma - Lost and Found (2001) [FLAC|Lossless]<Jazz, Fusion>
 ```bash
 magnet:?xt=urn:btih:D464E7138C5FDC278E23525C32A2CF6D6CFA280F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

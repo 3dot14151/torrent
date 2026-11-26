@@ -19,8 +19,7 @@ Silent Evil: Kates Rescue (P) [En] 2011
 ```bash
 magnet:?xt=urn:btih:F0BB6B0E72F7AF13B9E24444525AB7D9209B860F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Fall Trilogy Chapter 3: Revelation / Трилогия падения. Гла
 ```bash
 magnet:?xt=urn:btih:81A3CF577BA9106EA6D0DE57E86B20D30963ABB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Lost Horizon [Ru] (RePack) 2010 | Ultra
 ```bash
 magnet:?xt=urn:btih:D6DC185A54BE17768F25046601C367D20C5ECD9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

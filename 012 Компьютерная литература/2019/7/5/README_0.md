@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:5C3F59AE84793535C5398B04604B0C1FBC9750E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Elastic-стек - это набор мощных современных инс�
 ```bash
 magnet:?xt=urn:btih:9C6CF1BE05104940AF17215312756C7048ECEEF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03154B944C68C2D463526FF1229D8F32FA1DB4BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

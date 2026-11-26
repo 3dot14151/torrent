@@ -19,8 +19,7 @@ Efficient Sticky Notes Pro 5.60 Build 559 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F9FED42135C0A1159468310D51027A264F82A5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

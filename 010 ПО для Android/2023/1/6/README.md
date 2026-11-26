@@ -19,8 +19,7 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:637CA6021E0160BCCDFC284B4E849F0FD1EE0493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ DNS Changer изменяет DNS-адрес вашего устройства, �
 ```bash
 magnet:?xt=urn:btih:04F30057094D0488A6F6FD47C2BFDB7260ABDF37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

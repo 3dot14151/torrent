@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:42261EC3EE6050107F3ED3266F3249DDC111969B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Wild West Story: The Beginning / Бедовая Джейн (P) [Ru] 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ World of One (L) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:B86F5F23BBCCBF8FD0435299C1EC6896EB0D01C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Hoyle Puzzle And Board Games 2012 (L) [En] 2011
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Bau-Simulator 2012 (L) [Ge/Ru] 2011 {обновлено}
 ```bash
 magnet:?xt=urn:btih:7DA943E93244DD8476743170527B5A97E7FBEAC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Dungeon Siege III — боевая RPG, в которой отлично соч�
 ```bash
 magnet:?xt=urn:btih:A07FF021516E18B0F295B85E7DF2A82ADF828CDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ XCOM 2 - WOTC Customization Pack [Ru/En] Mod firstlast2
 ```bash
 magnet:?xt=urn:btih:854746824AA73801D11D9E59523EBB05E5775059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

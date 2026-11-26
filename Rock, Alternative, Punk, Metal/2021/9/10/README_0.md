@@ -22,8 +22,7 @@ Metalium - Demons Of Insanity - Chapter Five (2005) Japanese Edition [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:D63EC2CA04FF2F489F6A83E69514D22F7E4DF08B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Metalium — пауэр-метал-группа из Гамбурга,Герма
 ```bash
 magnet:?xt=urn:btih:79F6BB314F301E12CEDEF3E5B233BBB011D2D989
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Inglorious - We Will Ride (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:23A9F693D83773300E201DF36BF18DF211AFCBC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Jinjer - Wallflowers (2021) [MP3|320 kbps] <Alternative Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:2ED3B2EE755195C5A69DF32883D9E28AACD2B301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Tribute альбом Queen от фирмы Adrenaline Records. На первом
 ```bash
 magnet:?xt=urn:btih:E16ABAF2984C56DF11F2B0EEFA63F9C88AC3A2A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Smash Into Pieces - A New Horizon (2021) [MP3|320 kbps] <Alternative Rock, Pop-R
 ```bash
 magnet:?xt=urn:btih:B29EE7C3A9855B0C9E1A74E23706AB8E898B3F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA4EB27E5D5BFF6991767E256841C2755A3819CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Red - Release The Panic (2013) Deluxe Edition [FLAC|lossless|tracks + .cue] <Alt
 ```bash
 magnet:?xt=urn:btih:2D7D52249850964936F8D573A3894311C978225D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:86D076DA8096055E25790062EF8CCEF371FECE65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - The Metallica Blacklist (2021) 4CD [MP3|320 Kbps] <Metal, Rock & etc>
 ```bash
 magnet:?xt=urn:btih:A4A8B3DF5176824DBEDC21742287BB6A6F3B41A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

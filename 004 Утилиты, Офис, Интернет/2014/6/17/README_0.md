@@ -20,8 +20,7 @@ WHDownloader Final - небольшая бесплатная утилита, к�
 ```bash
 magnet:?xt=urn:btih:8BCA3AB8BC64C15F0E293243C7395261719A5BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:A7EBD9D5DBD9F14571A4B07994D396E39E2A2215
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:59700E7C1518763C2A0CC82A8315BD0B81938C9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ VA - Дискотека 2017 Dance Club Vol. 163 от NNNB (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:65FE3834439CE59B34306F4A33D7618B331B3AEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Halo Wars (2017) [Ru/En] (1.2033.2.0) Repack xatab [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:8ECAC054523F82E3B96F598F12B3990A60BDE088
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.4.0) Repack/Mod firstlast2
 ```bash
 magnet:?xt=urn:btih:56E85994D7F75A704209E6D5E8A45BA5F521F916
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2E93F413C85BE872E13237CFB7640362CC16F608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:760733B2E2F99D18E793CE155820654F9787C0C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F6C8A2EC55CD78634482B690EF4E232B994AEEAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

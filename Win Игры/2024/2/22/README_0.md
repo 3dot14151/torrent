@@ -19,8 +19,7 @@ Combat Mission: Final Blitzkrieg погружает вас в заключите
 ```bash
 magnet:?xt=urn:btih:2456674495F3BDDE56DCD73F002C5A36DAAB4175
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Don’t Starve - это бескомпромиссная игра на выжи�
 ```bash
 magnet:?xt=urn:btih:5F81858805CA4C396F616EC98899F8348F1B01E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

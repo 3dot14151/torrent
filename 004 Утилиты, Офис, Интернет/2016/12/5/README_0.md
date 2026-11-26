@@ -19,8 +19,7 @@ YouTube Downloader - простая и легкая в использовани�
 ```bash
 magnet:?xt=urn:btih:04DCEF9F336095BC084689150EEDC490A12C454E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ jv16 PowerTools — набор утилит для оптимизации и у�
 ```bash
 magnet:?xt=urn:btih:4D29A59DBCC86D10F881D28DFF6F35C87C56F4EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ KKnD Xtreme (P) [Ru] 1997
 ```bash
 magnet:?xt=urn:btih:B15BB9706BB256E6A04A9469FADB8ADBB791DCFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

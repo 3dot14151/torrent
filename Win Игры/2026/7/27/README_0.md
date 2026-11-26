@@ -19,8 +19,7 @@ DragonSword : Awakening (2026) [Ru/Multi] (1.0.0/dlc) Repack FitGirl [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:8E668E44549ED56E2C660847650A299EADFA301D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Crimson Oath - это экшен-RPG в духе souls-like, действие к
 ```bash
 magnet:?xt=urn:btih:4B590E53213ADECAEF30D76A1DE20FDF50CB95C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Icebound Secrets 3: Endless Night / Тайны ледяного мира 3: Бе
 ```bash
 magnet:?xt=urn:btih:DA1880D7DDB76011DB1A5E110E15B9D15F444800
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ The First Berserker: Khazan - это динамичный экшен-RPG в ду
 ```bash
 magnet:?xt=urn:btih:AE8F8E73E687AB36F56B0C20A1551575BB212B23
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mystery Detective Adventure 2 / Мистическое детективное п
 ```bash
 magnet:?xt=urn:btih:6A6AF2F26A49F98CE71EB7104018110CBCCE7BF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The First Berserker: Khazan - это динамичный экшен-RPG в ду
 ```bash
 magnet:?xt=urn:btih:B1802BDFEEE004F6242D59215CE64DC250FD6566
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ The First Berserker: Khazan - это динамичный экшен-RPG в ду
 ```bash
 magnet:?xt=urn:btih:E793AED17E3718950BCD274CF465B6CA6B4EFF0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Chess Assistant - это инструмент управления для орг
 ```bash
 magnet:?xt=urn:btih:0E707A2A931E6A067092E614DF4405337119287B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -27,8 +27,7 @@ VA - Молодежный танцевальный рай 200 50/50 (2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:3F09FA955ACDA3C1FEBBC93EFACA992C2AD5E2B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Pontiak - Echo Ono (2012) [FLAC|Lossless]<Psychedelic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

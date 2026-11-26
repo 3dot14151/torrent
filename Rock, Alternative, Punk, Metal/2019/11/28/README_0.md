@@ -22,8 +22,7 @@ Nirvana - Under The Covers (2019) [FLAC|Lossless|tracks] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:95E126C57C2164F0905917C3AE18686AE3D3C2C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Marillion - With Friends From The Orchestra (2019) [FLAC|24/96|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:7B8B1F266866BDBC8A2CC6EB2777FC2205D10498
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

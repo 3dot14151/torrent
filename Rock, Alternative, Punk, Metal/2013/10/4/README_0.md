@@ -26,8 +26,7 @@ Devariem - Planet Earth: Ground Zero (2013) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6C284305A0C2CB029C02BDDA114EC0BC3671CE59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -61,8 +60,7 @@ Casablanca - 2 Альбома (2012-2013) [MP3|320 кб/с]<Hard Rock, Glam Rock
 ```bash
 magnet:?xt=urn:btih:CD0A465E274B8391EBCC2E8EDCF7DC7DE37E2DDA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +94,7 @@ Soulfly - Savages (2013) Deluxe Digipak [FLAC|Lossless]<Groove Metal>
 ```bash
 magnet:?xt=urn:btih:2FEE51F258CAE49D2C50B97362FECF6690DA5568
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +128,7 @@ Chris Rea - The Journey 1978-2009 2CD (2011) [FLAC|Lossless]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9005CFFEF7BC97710A9F608D5FA30D2CDF7B6C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Chris Norman - There And Back (2013) [FLAC|image +.cue]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:14853FA77E2C94D8A450CB3B3173D4E196206EFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

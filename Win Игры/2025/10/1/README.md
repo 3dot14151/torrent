@@ -19,8 +19,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (Build 9575745/dlc) Repack Other s [20
 ```bash
 magnet:?xt=urn:btih:5710E189ED67200A65C5C729AB3E7E9D89367B96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Mr. Prepper - строительный симулятор, где вам пре�
 ```bash
 magnet:?xt=urn:btih:B605E36BE2281C39CC9D250460FE37D258833ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11458/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:01CC1B8BB07E3907BC79402DE0DF5546ECC0F965
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [Def
 ```bash
 magnet:?xt=urn:btih:9122A6307E4F55DBC1428102B100A0B15CA51719
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ HUNTDOWN (2020) [Ru/Multi] (1.278) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6078E3AE6A6882E5247168F88EE010CBDF2BC600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

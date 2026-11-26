@@ -22,8 +22,7 @@ Daath - The Deceivers (2024) [FLAC|Lossless|image + .cue] <Industrial, Melodic D
 ```bash
 magnet:?xt=urn:btih:1AD60321AED3F99237DBF454F1AE7C07C22382CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The New Roses - Attracted To Danger (2024) [FLAC|Lossless|image + .cue] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:BEA8261B55F99ACD61671F4A3E04024D3D34FDA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

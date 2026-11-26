@@ -19,8 +19,7 @@ gBurner - мощная и простая в использовании прог�
 ```bash
 magnet:?xt=urn:btih:1DD610238B1570E34F978ACCD2F15003D39915E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

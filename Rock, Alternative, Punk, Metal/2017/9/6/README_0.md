@@ -22,8 +22,7 @@ The Bobby Fuller Four - I Fought the Law / KRLA King of the Wheels (1965) Remast
 ```bash
 magnet:?xt=urn:btih:DF3B5A1FB6716BD04D4D112C86ACB69F4C06D435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Score — An Epic Journey — альбом нидерландской сим
 ```bash
 magnet:?xt=urn:btih:5E607805348ECF9C86367E1A548B898007099766
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Steven Wilson - To the Bone (2017) [FLAC|Lossless|image + .cue] <Crossover Prog 
 ```bash
 magnet:?xt=urn:btih:18724F09629E883233D68AF866BFF96C9740F492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42997E1A9DD908BA590D268903B9ECDC05882777
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

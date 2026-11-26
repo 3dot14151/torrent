@@ -21,8 +21,7 @@ Power Trip — американская трэш-метал-группа из Д
 ```bash
 magnet:?xt=urn:btih:7D3FD0D0A40BF95866EAA684491E2190A4677C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Ancient — норвежская блэк-метал-группа из Берг�
 ```bash
 magnet:?xt=urn:btih:D8EFEA486C8A12D06E97629472130E5B6657367E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

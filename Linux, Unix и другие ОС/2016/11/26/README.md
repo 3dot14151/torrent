@@ -19,8 +19,7 @@ Adobe Dreamweaver CС - новая версия программы для соз
 ```bash
 magnet:?xt=urn:btih:E0297B438DAF37B51CD5E759C21BE93071125257
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

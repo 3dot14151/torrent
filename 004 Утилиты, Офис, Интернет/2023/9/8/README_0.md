@@ -19,8 +19,7 @@ Movavi Gecata 6.1.2 (x64) RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5493DA365188A1F39AFF932C24036FE38FBD49CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

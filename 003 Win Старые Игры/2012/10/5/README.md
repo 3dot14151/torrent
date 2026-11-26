@@ -19,8 +19,7 @@ Obscure Дилогия [Ru/En] (RePack) 2005-2007 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:33676276652BA4CAEB74C0A007146E667CF9E7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

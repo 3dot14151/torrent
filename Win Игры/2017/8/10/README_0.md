@@ -19,8 +19,7 @@ Vermillion Watch 3. Order Zero (2017) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:7616C749FBA2EABFFA7950981E3B0FBA6DAA971C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Tales 11: Edgar Allan Poe's Lenore [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:B96A064FCA1879A74E0C18E7FCCCC9188445B216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Grim Tales 13: The White Lady - тринадцатая часть известн
 ```bash
 magnet:?xt=urn:btih:4A02C2812F3E1BB2EAC76168039AAB713019F70E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Forgotten Faces (2017) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:664AEF3D49C4165A81AB91582AFE5DA5E8EF91F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ From Shadows - это приключенческий экшен-платформ
 ```bash
 magnet:?xt=urn:btih:DD21610BA28AB6E951ABF9AE0787322AE0CDAF86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

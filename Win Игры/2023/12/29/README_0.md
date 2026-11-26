@@ -19,8 +19,7 @@ The Imperial Capital Burns - Muv-Luv Alternative Total Eclipse (2016) [Multi] (1
 ```bash
 magnet:?xt=urn:btih:B2496EAE686CEBAE50B21CE3700CAD366029121A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

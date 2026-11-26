@@ -22,8 +22,7 @@ Branikald - Тингов Наслаждаясь Распрей (2013) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:56B0BBD858DF09423EE2362FCF3A28A51C5820D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Eric Sarrion | JavaScript from Frontend to Backend (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A3832D5F98CA3545837DE8A4B22E59775A8E996B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

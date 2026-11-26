@@ -22,8 +22,7 @@ Curly Curve - Curly Curve (1973) Reissue, 1998, Repertoire Records [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:D76F802A91EFB2C97EE351770E3A2E7F54FDFAF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ La Chinga - Freewheelin’ (2016) [FLAC|Lossless|tracks] <Hard Rock, Classic Roc
 ```bash
 magnet:?xt=urn:btih:26FC7F4F79C57263DDF08F5CA21B97092D98E2BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Metronomy - Summer 08 (2016) Because Music [FLAC|Lossless|tracks] <Alternative, 
 ```bash
 magnet:?xt=urn:btih:0453BA73162B32E066E74B43E6F4DC03766AEC57
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sunburst - Нет Героев (2016) [MP3|320 Kbps] <Heavy Metal, Urban Metal>
 ```bash
 magnet:?xt=urn:btih:772E3966A2F73BCE0E8D4D1D2BE5F260037274C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Nick Johnston - Atomic Mind (2014) [MP3|320 Kbps] <Instrumental Guitar Rock>
 ```bash
 magnet:?xt=urn:btih:4F1D7B52889D09CA080482BDBF870B35E9D3FF27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

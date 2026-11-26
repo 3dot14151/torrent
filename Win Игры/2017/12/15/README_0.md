@@ -19,8 +19,7 @@ Lost Grimoires 3: The Forgotten Well / Утерянные гримуары 3: З
 ```bash
 magnet:?xt=urn:btih:DE5D720E86FEF923F351F299F4B83501969A8883
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phoning Home (2017) [Ru/Multi] (1.3) License PLAZA
 ```bash
 magnet:?xt=urn:btih:75EB253F9659CAA862DF8CBC8FDCDBB0B368B407
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Drift Zone (2017) [Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:845BB33AD5B1FDC973111DC70CBC15373005256A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Tacoma (2017) [Ru/Multi] (121417) License GOG
 ```bash
 magnet:?xt=urn:btih:7CECDFCB3A61B6466B5A60C1D3C3CBB1DFB85670
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Beat Cop (2017) [Ru/Multi] (1.1.744) License GOG
 ```bash
 magnet:?xt=urn:btih:F563EAF2214A2653E8C767B717BD64FA75466FE5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

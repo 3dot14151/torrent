@@ -20,8 +20,7 @@ Root Master 2.0.81 [Ru]
 ```bash
 magnet:?xt=urn:btih:648A02750033A4892D4D6548552AD01244A7A727
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

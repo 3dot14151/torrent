@@ -22,8 +22,7 @@ A4 Daydream(   Читать дальше...   )Жанр: Pop, BalladПродол
 ```bash
 magnet:?xt=urn:btih:4A2A6BDD35F966321D66D3B0DC8487AD783665D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ CD-1 (48:51)
 ```bash
 magnet:?xt=urn:btih:32C3F8BE03473FF7EE213FBC12A9EE58910032A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

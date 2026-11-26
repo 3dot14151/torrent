@@ -19,8 +19,7 @@ Grow Up - приключенческая аркада с видом от тре�
 ```bash
 magnet:?xt=urn:btih:6BA765FC91232A67D3E38C7321A3446B9BE8569A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hordes of Hel - захватывающая игра-рогалик на выжи
 ```bash
 magnet:?xt=urn:btih:009C657C089967EA9E61491645E6F96276FA1848
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Valheim - The Bog Witch (2021) [Ru/Multi] (0.221.4) Repack Pioneer [Early Access
 ```bash
 magnet:?xt=urn:btih:60138992E8109604F05E30B53F0ADB067F62B317
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stygian: Outer Gods (2025) [Ru/Multi] (220825) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:3CA1841B8C7FE7971F5B0B0C6A0278A9394AA6A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack seleZen [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:B9F9C45C121DEBEB2E743A9526E4FA1584A2E941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ PowerSlave Exhumed – это полноценный порт классичес
 ```bash
 magnet:?xt=urn:btih:D1AA997962EFFD022CD6FD30DBE898FE9A572A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:227F16073CDC4AF03CCFCC0C8A7ECEF59A32BE24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ KELDER (2025) [Ru/Multi] (1.0) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:4E5B57F087BAA0644070B4AD123B7DDFE4D4D2A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZe
 ```bash
 magnet:?xt=urn:btih:1BFEAF8213C5D5413DB33670688972B2C9931B05
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:3960265E392AF5B998204C74DB2873E75138F340
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.10.370/dlc) Repack FitGirl [Inne
 ```bash
 magnet:?xt=urn:btih:6BC4FBCF83899E92367FEB0EFF4E11A5A60029A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Enshrouded - увлекательная игра, действие которо�
 ```bash
 magnet:?xt=urn:btih:446B2F73C26D7360DCC35325F8D51B2F0A4EB3B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E563ABD0A6ABC0710C02ADC9AE99DAF2C1E1257F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Detective Club 2: Gallery of Shadows / Детективный клуб 2: Гал
 ```bash
 magnet:?xt=urn:btih:9F3F08200DF8FB9FAFA9AE2C79AA6ACBB3091931
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

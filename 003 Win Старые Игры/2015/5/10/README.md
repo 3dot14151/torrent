@@ -22,8 +22,7 @@ Thief: Trilogy (1998-2004) [Ru/En] (1.37/1.18/1.1) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:2C672A01E53143A1B0A9D9673F2FD40469296F66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

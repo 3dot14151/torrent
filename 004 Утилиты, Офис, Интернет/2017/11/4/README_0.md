@@ -19,8 +19,7 @@ NetScat Extreme Installer - программа для создания инст�
 ```bash
 magnet:?xt=urn:btih:7ADC91B40C617E475E679BFB48840331305CEADB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

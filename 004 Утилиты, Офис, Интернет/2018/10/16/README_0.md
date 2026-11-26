@@ -19,8 +19,7 @@ BEncode Editor является небольшой утилитой для ре�
 ```bash
 magnet:?xt=urn:btih:8E4415FB7A5BE7D16DD7D41E3F90C96D9873A02A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

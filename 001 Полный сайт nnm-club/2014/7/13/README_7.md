@@ -28,8 +28,7 @@ Katy Moffatt - Angel Town (1998) [MP3|320 кб/с]<Folk>
 ```bash
 magnet:?xt=urn:btih:AD1C42306FC1814C18ACBE7304E7558AE4ACFFE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Backdawn - Through Extermination (2014) [MP3|320 кб/с]<Groove Metal, Death Me
 ```bash
 magnet:?xt=urn:btih:582CAD2C3A0B00146EB2B56303D8A60CFD2981EF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Katy Moffatt - Angel Town (1998) [FLAC|Lossless]<Folk>
 ```bash
 magnet:?xt=urn:btih:CA818C67B2C31D99CAABF53430D0B2E1EB0FAFE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ VA - Top Uplifting Trance Spring (2014) [MP3|320 кб/с]<Trance,Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:7152F64BF24DACF7524B8849308597D5F72BCE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Powersurge - Aftermath (2006) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:ABDEA2F10E51BB941EDD7C063EC0929B10D81588
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Until The Moment Comes - Inkwell (2013) [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:4DD0919244AE77847044469727FFCE970C3D709C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F902FE3CA8409042F7CFA405EE8D9AD83109E4CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +248,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BB1EFE8B611C98D7A8A06C3ED770B0558CFB76B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +282,7 @@ Alfida & TH Moy - Deep Feelings Grooves Vol 3 (2014) [MP3|320 кб/с]<Deep Hous
 ```bash
 magnet:?xt=urn:btih:BC60DB2BA73B3BD08F127F099898C925559543BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +316,7 @@ Powersurge - Eye Of The Storm (2006) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:D8BDD5114809502A3EA7F93CC2F0C7DA4CBF0608
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +341,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7B892F3AAFE45315CF54DB5FB6AC5D3252A3D2C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +366,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9832F1D3B1F4321A6157BF0D879FA11048B62115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +400,7 @@ Brenda Earle Stokes - Right About Now (2014) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:B6256F8D841D0BEF8E438E230F3669A1F4C560F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +425,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,8 +450,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DC060BC4155D5AA584F206CDC9A422E7F0490AFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,8 +475,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0840EEFD1E2474117BCB1DB21B6EC79260949B8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +505,7 @@ Mesopotamia Inc. - My Dark Great Fall (2014) EP [MP3|320 кб/с]<Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:203F51683AC3ACA67C6240D856D894DD345048A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +530,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:771C68A9241394A0DD800BA9322F321245524F9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +564,7 @@ Pennywise - 2 Альбома (2012-2014) [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:72628E12AD1C8390126436720FD6FA9E8D0F81A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,8 +598,7 @@ Big Apple Blues - Brooklyn Blues (2010) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:8956BB17E837E428B986ECA2EE6AC3F9056C28B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBF8E6AE5D97FE4FB8F66D568260CF1492A58C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,8 +661,7 @@ VA - Piano Variations (2014) [MP3|320 кб/с]<Deep House, Chill House>
 ```bash
 magnet:?xt=urn:btih:930CCADCE11FF3A78A2BC27E70B593CF1B598373
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -712,8 +690,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1D759E3179028E78F0780110493DA8FA61CB31FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -738,8 +715,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A4265EDA0B090F0761EE1B4525F98E5D2FACD6E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -773,8 +749,7 @@ Silver Mountain
 ```bash
 magnet:?xt=urn:btih:9730743D74970FE2A552C9485250FA79FE6C1CA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -808,8 +783,7 @@ Oscar Castro-Neves - Tropical Heart (1996) [FLAC|Lossless]<Latin Jazz,Bossa Nova
 ```bash
 magnet:?xt=urn:btih:CFB04B25DD4AE759FCDC3A8C9C3E901A14BA0A6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

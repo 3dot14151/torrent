@@ -19,8 +19,7 @@ Tales From The Dragon Mountain: The Strix / Истории с Драконово
 ```bash
 magnet:?xt=urn:btih:2A53E09267B2E38FDDD5923FFA31A0672D8C4AC2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cursed Memories: The Secret of Agony Creek Collector's Edition / Байки Ст
 ```bash
 magnet:?xt=urn:btih:D7290237E2CF6925229BF7345147099F42898DD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Golden Trails 2: The Lost Legacy. Collector’s Edition  / Золотые ист
 ```bash
 magnet:?xt=urn:btih:3453F9FCE260003F57FF0907A10399DEA6EDB4F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mystery Case Files 13th Skull Collector's Edition / За семью печатя
 ```bash
 magnet:?xt=urn:btih:EB6F1C3617C3EEC99477199D19B379C97C9EC87E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Railworks 3: Train Simulator 2012 Deluxe (L) [En] 2011 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:9F755DD0CF749B898CAD8B4E80FDD64F2DFA4856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

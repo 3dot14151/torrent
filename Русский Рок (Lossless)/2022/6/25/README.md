@@ -22,8 +22,7 @@ KAUAN - Pirut Live (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmospheric 
 ```bash
 magnet:?xt=urn:btih:970C54112EC9217E49FE07EC0C1C488A04015180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

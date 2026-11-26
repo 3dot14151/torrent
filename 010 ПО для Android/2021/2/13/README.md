@@ -21,8 +21,7 @@ SKETCHAR это новая ступень развития для креатор
 ```bash
 magnet:?xt=urn:btih:81BF9BF091BC2C5A6126065AF2E4F26060ADC747
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

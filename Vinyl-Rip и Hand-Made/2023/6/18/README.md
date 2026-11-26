@@ -22,8 +22,7 @@ A4 Need You Tonight 3:04(   Читать дальше...   )Жанр: RockПро
 ```bash
 magnet:?xt=urn:btih:627804D2529AD31D1B074DDBD732F69B3E7B325E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Danzig — американская метал-группа, смешивающ�
 ```bash
 magnet:?xt=urn:btih:9DECC7B09715B5ECA90511A43FA253427D4391FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

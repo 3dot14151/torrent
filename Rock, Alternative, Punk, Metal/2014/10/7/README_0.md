@@ -27,8 +27,7 @@ David Zollo and The Body Electric - For Hire (2014) [MP3|320 кб/с]<Rock, Root
 ```bash
 magnet:?xt=urn:btih:11E1071D602B14F47DF96C29A8EEFA0BCE0F8163
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Spoon - They Want My Soul (2014) [MP3|320 кб/с]<Alternative/ Indie Rock>
 ```bash
 magnet:?xt=urn:btih:3430AC43E217CD4DA966EA746CE11861A856354D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Adrian Gale - Defiance (2014) [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DF8B0C0FC1C894EEF96FF00F58BD78B03AB58FD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Bernie Marsden - Shine (2014) [WV|Lossless]<Hard Rock, Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:78B173113196D580C2A1DDCD4FEFB78E2D998E8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ The War On Drugs - Lost In The Dream (2014) [MP3|320 кб/с]<Alternative/ Indie
 ```bash
 magnet:?xt=urn:btih:86FC358D09B025715ED48C12F01D4845DE0F2301
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +197,7 @@ Joe Satriani - Stopped Momentum in Vilnius (2013) Live, Bootleg [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:2B913D37B46FE79818828F609D34A61CA516FA52
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ Grand Funk Railroad - More Of The Best (1991) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A2A09207425C7705D940FCDBF683D21CC333C733
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +265,7 @@ Ozzy Osbourne - Memoirs Of A Madman (2014) Compilation  [MP3|320 кб/с]<Heavy 
 ```bash
 magnet:?xt=urn:btih:FE43DB14C96DB936AE245E876E7F1BF7EEACD8FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -302,8 +294,7 @@ David Knopfler - 9 альбомов (1983-2006) [FLAC, APE|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:B96E0E93B8825033EAE8AE623A36C0EB3709FD77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -328,8 +319,7 @@ AC/DC - Play Ball (2014) Single [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:8624587622F44511BB5F1619A0DF440075FDE2AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

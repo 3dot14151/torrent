@@ -29,8 +29,7 @@ VA - 200 знаменитых рок хитов СССР (1979-1991) [FLAC|Lossl
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

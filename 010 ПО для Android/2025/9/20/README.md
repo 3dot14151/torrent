@@ -19,8 +19,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.16 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7F6F40796221426F80002BFAD0EAA3AD0193E5E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F2A8A9D0B6356ED2A0A80EDC4C514751C4E957F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Cartoon Photo PRO v1.21 [En]
 ```bash
 magnet:?xt=urn:btih:E1418CBE07337FD02A3FFE84A9C73B43CECF1A85
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ AirBrush: ИИ Фоторедактор v7.17.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9827DD0A58F0365FD06A320BA2D402644D1CD19D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Notification Widget v1.5.194 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F3F7B71943BF5EA19D37B2EA28DE71856B5CA218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ```bash
 magnet:?xt=urn:btih:A6658DF9F771D936AA638A2FEAB47FC3B2828655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Notification Dots v1.2.76 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AE2F5C4662E42C0DB60DB00BF9628E26168BEB12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

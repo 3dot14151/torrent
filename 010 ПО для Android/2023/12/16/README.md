@@ -19,8 +19,7 @@ Doctronics - electronics DIY v2.5 Paid [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:52AB124BA64D0033FA6D3EDDDB008F64E3CC1575
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ```bash
 magnet:?xt=urn:btih:947D17D7B0A786C3556898B7BB8EF925E601256B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Search By Image v9.0.1 Mod by vadj [En/Ru]
 ```bash
 magnet:?xt=urn:btih:5F00383AA413F3DF1E9043EA3B628B3B70C4C781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Smart Book / Параллельный перевод книг v3.3 (b1065) Mod b
 ```bash
 magnet:?xt=urn:btih:2921299B58FA7090FCC42DBB16B7B65B8C6017FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Football Live TV HD v2.0 Mod by Dymonyxx [En]
 ```bash
 magnet:?xt=urn:btih:1FCB8D3852ADC3D1270B91B91109487EFF4C2BDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:C45DB5530621F9C770E18E2936CDDD429F4C7D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Sense V2 Flip Clock & Weather v6.45.5 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:26646ABFEEB937A971DEFD9385C8106E2556FDA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ VivaVideo v9.12.6 b6.6912062 Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5D9C231FA95AC789E8FD0E33564333DFBB924014
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +220,7 @@ YouCut - один из самых удобных и оптимальных по 
 ```bash
 magnet:?xt=urn:btih:DA6359D7819D0F74C27BE059A725B0A9841AF513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +245,7 @@ Sense Flip Clock & Weather v6.41.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:677EF37B11D1860605DFB0A9A540D8FC03B6D3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +270,7 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:88620C480137447C517BD4CEA6F45E0A892DF0D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +295,7 @@ YouCut - один из самых удобных и оптимальных по 
 ```bash
 magnet:?xt=urn:btih:4959BC2C8FD4F0347EAAE81274E344F2453F6CD1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

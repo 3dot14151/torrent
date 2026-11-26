@@ -19,8 +19,7 @@ Money Pro - это единая программа для ведения бюд�
 ```bash
 magnet:?xt=urn:btih:58FC4D10E46C34AC595AAB8208102298FA5D2DC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ABBYY Business Card Reader Pro v4.21.1.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8A1D5C6A04B62570D74270B4210E818B84A6FBB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

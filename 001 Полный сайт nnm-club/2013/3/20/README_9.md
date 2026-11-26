@@ -26,8 +26,7 @@ VA - Wonderful Higher Trance (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:F912C20761888299E93A82F14731584D840EEE41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C57794953876C04A7183307C88917735E1955625
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9DF5D788567B3E64563FDDD8718B95BF4D780750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ VA - Trance Vision Volume 3 (2013) [MP3|256 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:C0A8BED149B428DFC950D4C38F83BC7E66C58352
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +144,7 @@ VA - Electro House Pro V.24 (2013) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:02F98C6EF36AB8E0CFCF64B26068E2444F1DCC44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Nigel Shaw - Seven Stones (1993) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:E6890694D7B7FCE298088310ACA7A9D4C7F0C00A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,8 +201,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D3B5110B37D8865C7217D054D7532BDF7F48300C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,8 +235,7 @@ VA - Creative Electro Box 3 (2013) [MP3|320 кб/с]<House, Electro, Electro Hou
 ```bash
 magnet:?xt=urn:btih:0FBE8136934966E7938B5D2BA9631D70FA2EB1AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -275,8 +267,7 @@ VA - Drive Time Chords (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:56606B3574D8B9D7690AF4CE5B1BF4D0C16373E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +299,7 @@ VA - Level In White Scratch (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:7ACDC16D0F8050C4E1E683594893D191F55E50F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +333,7 @@ VA - Big City Trance Volume 39 (2012) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:B2E3E246E3CC40C770928E8BA6611A7C71935493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,8 +367,7 @@ Claudia Mastrorilli - L'attesa (2013) [MP3|320 кб/с]<Instrumental, New Age>
 ```bash
 magnet:?xt=urn:btih:DFDF6404692BF4DD1540A024C1A688077051CEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +401,7 @@ Budjunky - Eidolon (2013) [MP3|320 кб/с]<Dubstep, Dub Techno>
 ```bash
 magnet:?xt=urn:btih:EAB8EE9F8856F219746722C6B927FA0B7F27FC4E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,8 +435,7 @@ Butterfly - Favorite Colors Episode 075 (16.03.2013) [MP3|320 кб/с]<Progressi
 ```bash
 magnet:?xt=urn:btih:3BAD01554AD2A56EE4A8EE73BC8A4582DD4ACCE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,8 +469,7 @@ VA - EdShar Music (17.03.13) [MP3|320 kbps]<Progressive House, Trance>
 ```bash
 magnet:?xt=urn:btih:2B402E6F2067041E3A70D41A70009389EB2BE1B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +502,7 @@ Majbritte Ulrikkeholm - Mellow Piano (2007) [MP3|320 кб/с]<New age, Piano>
 ```bash
 magnet:?xt=urn:btih:907BC152B35C7F59E213A2C5A3ED4E334BFDC463
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +536,7 @@ Mihales Sound - Kaleidoscope (mix) (2013) [MP3|320 кб/с]<Chillout, Chillstep>
 ```bash
 magnet:?xt=urn:btih:7E40F4ACDA4A451FAB911337A9FE0720A84D4932
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,8 +564,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4117ADEC64E6855CB734C18E87BD68AA2E28EADD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,8 +589,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BA50A4FD4B721A9CB10C3B9CD2EA552D56B631CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +614,7 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,8 +648,7 @@ VA - Beat Full Trance Planet Volume 6 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:21D6902876F02E05DDDB08B58332B2EB56AFCA3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +682,7 @@ Wycliffe Gordon - The Intimate Ellington / Ballads and Blues (2013) [MP3|192 к�
 ```bash
 magnet:?xt=urn:btih:4A3A99EE82DEBD8BC69832EC427908981DAB08E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -729,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76DB138B19F3702F8EF15F328F7166268D4FE60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -764,8 +741,7 @@ Chris Darrow - Under My Own Disguise 1973-74 (2000) [MP3|320 кб/с]<Country Ro
 ```bash
 magnet:?xt=urn:btih:A58C8CE6945F41EF973071EC8A030BF9110D847B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -790,8 +766,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DA79CD44C142969541D3953FFECB10EA0CF34CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -816,8 +791,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:70B7AC5105BA76E5AFEAAE57D9F8978534B8D254
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

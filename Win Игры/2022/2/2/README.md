@@ -19,8 +19,7 @@ Edge of Reality 8: Lost Secrets of the Forest / Край реальности 8:
 ```bash
 magnet:?xt=urn:btih:06B1E4E072980D12655DE6F01006DFD8DFE2C9AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

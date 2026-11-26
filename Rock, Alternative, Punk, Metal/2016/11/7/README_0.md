@@ -22,8 +22,7 @@ Pagandom - Hurt as a Shadow (2016) [MP3|320 Kbps] <Technical Thrash, Progressive
 ```bash
 magnet:?xt=urn:btih:03E2499D209D51F0FEC22B53685A6C60053F66E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Painted In Exile - The Ordeal (2016) [MP3|320 Kbps] <Progressive Death Metal, Me
 ```bash
 magnet:?xt=urn:btih:E1391DF7BAF52BF36423727D8C113363FB779469
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Pighead - Until All Flesh Decays (2016) [MP3|320 Kbps] <Brutal Death Metal>
 ```bash
 magnet:?xt=urn:btih:D3DA6C253B9F2A8BB39B79772CD86C3EA0F2A7C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Scarecrow Avenue - Medusa (2016) [MP3|320 Kbps] <Alt.Metal, Metalcore>
 ```bash
 magnet:?xt=urn:btih:1E4D9440737F2B3D9D6082B52925EA71E0044D1D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Starkill - Shadow Sleep (2016) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:BFA0F4331DA2211CB0A87F79FC3E4A29492100ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Blindead - Ascension (2016) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:16D77B84EA6DC0D94C11B35AC3608E1C9CC163A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Quireboys - Homewreckers & Heartbreakers (2008) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:76BE474B82F71957FC4AA8CC7FEF3790F2F90C0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Joe Walsh - So What (1974) remaster, 2015, Audio Fidelity [WavPack|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:6F56E1F49DBC0EBD3F3119E1FC27045FEA89C755
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Memphis May Fire - This Light I Hold (2016) [MP3|320 Kbps] <Post-Hardcore, Metal
 ```bash
 magnet:?xt=urn:btih:0DF09CF95B9C7E6277D18E30621EED028E6FB4AD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Smokie - Strangers In Paradise (1982) Reissue, 2016, Sony [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:AF3496C260443D3C8DE409E05AFBAB13475BBC3A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Smokie - Greatest Hits (1999) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:F13E98AC168B3C5B6BC73034F143DF96FE6BDD74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:463174FA57FEF2489B6F030C4BA3F4FD06542350
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

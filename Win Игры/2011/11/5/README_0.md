@@ -19,8 +19,7 @@ Guardians of Beyond: Witchville Collectors Edition / Хранители астр
 ```bash
 magnet:?xt=urn:btih:F52DD9B2A3D15CCC9E9C0AEFF3D79887C288AAAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Enchanted Cavern 2 / Древняя пещера 2 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:1436306B38BC3EB03915F18C97A18AC6E1917609
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Jane's Advanced Strike Fighters [Multi5/-] (RePack) 2011 | -Ultra-
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ The Adventures of Tintin: Secret of the Unicorn / Приключения Тин�
 ```bash
 magnet:?xt=urn:btih:64C71CA00979D826C615CCE4D7B698BAAC2ED08F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Palworld предлагает находить и использовать пр�
 ```bash
 magnet:?xt=urn:btih:BE2B0604582108C4BC8D43CF7F307C2CC9DEAF7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Palworld предлагает находить и использовать пр�
 ```bash
 magnet:?xt=urn:btih:B6CEF106C4F3DCBB78593A9FE27BC401D9350F4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pacify (2019) [Ru/Multi] (11.07.2026) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:50DE2055517B1948B2914C4FEE849976E4E0CE2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

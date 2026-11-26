@@ -19,8 +19,7 @@ Spirits of Mystery 11: The Lost Queen / Тайны духов 11: Заблудш
 ```bash
 magnet:?xt=urn:btih:7D0DD156FC15399EDC69FF25AE82B60CD74B1145
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dead in Vinland (2018) [En/Ge/Fr] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:7463CA4246CFDCC9DBD4D14688BB058DD98D38A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

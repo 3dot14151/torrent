@@ -28,8 +28,7 @@ A5. Прекрасный облик твой (3:04)
 ```bash
 magnet:?xt=urn:btih:CA12FD40010EB506368D1BD7A668952DA59840AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

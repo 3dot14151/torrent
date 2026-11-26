@@ -19,8 +19,7 @@ Bini СУПЕР АЗБУКА v2.6.9.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:29A7086C4B2FCDA7640A11FB0B2F54EC3C8F2AC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SMD компоненты v1.7.1 [En]
 ```bash
 magnet:?xt=urn:btih:1BAD60F6489426EDE42A7FCBA964502E5E0983EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

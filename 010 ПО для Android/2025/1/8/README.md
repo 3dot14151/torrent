@@ -19,8 +19,7 @@ Smart AudioBook Player Pro v11.1.9 (A8.0+) Mod by 0x7d [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6FD7116E2FFEDA2E86E1001326B5B3BB1453C2AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Filmora - программа для редактирования видеоза�
 ```bash
 magnet:?xt=urn:btih:811A9BEA3019CDDC44278B66EE84FF31FB84BA2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

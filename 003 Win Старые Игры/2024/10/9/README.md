@@ -19,8 +19,7 @@ Aliens vs Predator Антология [Ru/En] (RePack) 1999-2002 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:11CBC326733D87A603FAF99D8070C49B6AA93E98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

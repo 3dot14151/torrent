@@ -19,8 +19,7 @@ Stellar Monarch (2016) [En] (1.48/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:586BF505F4F81694D41C278642EECC92E374F2CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Raid on Taihoku использует сеттинг Второй мировой 
 ```bash
 magnet:?xt=urn:btih:091BB88CA2B78325496A0870362961162D33F919
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.3.268591) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:38E5A29EE8303E9A1F9A392F404D1162385562F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

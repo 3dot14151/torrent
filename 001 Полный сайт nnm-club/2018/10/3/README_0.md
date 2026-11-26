@@ -21,8 +21,7 @@ Metric - Art of Doubt (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:5E5BBD8123900126F84D2B780D6D2E439CF261D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14A9A92FA31028CBFEFF997E46E132FA6BB780E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Wondershare Recoverit - профессиональное приложение, �
 ```bash
 magnet:?xt=urn:btih:722AC8B3C6507FA724084ADE2C1B597FCABBEFA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Time Sink: программа для ценителей своего време�
 ```bash
 magnet:?xt=urn:btih:76BFC2C06FB94C0AAF77BB7F57CEFF998BD4EBD8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2CCFB0829B39579B1ED0EF3BC9D7897E6F1AD2F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Fading Language - Vessels of Time (2018) Insight Music [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:C97E4536F7B2025C5801C4BC35238F4E4763AB2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ Opera 56.0.3051.36 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7B971836C69AAD47957CF7C2D39483D0C2725208
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,8 +201,7 @@ Firefox Quantum - новое название для Mozilla Firefox. Свобо
 ```bash
 magnet:?xt=urn:btih:C5BD54C21EE2C1AC884CC6E6607725D601027590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +226,7 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:490AADCA97ED9DD03F378743356980B4925C80EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ VA - Dance Compilation 3 (2018) [MP3|320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:55B8AAAA97B98B4A789655C28E8B30023A48D8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +279,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB8546B479C79D7B620DD6DF2B73C720ACF95948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,8 +307,7 @@ Annabel Parker - The New Classics (1994) A Tom Parker Project [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:C4F635CE73DD48FE3B07F1C888DAED37D85412C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,8 +335,7 @@ VA - New Music Releases Week 39 of 2018 (2018) [MP3|192 - 320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:FFC2B249A0BB97023DEDFE433A61B954BB2DF252
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -376,8 +363,7 @@ Sue Foley - The Ice Queen (2018) Deluxe Edition [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:A8B16B144E0088A28B07F3724E845170ABD6A3AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -402,8 +388,7 @@ iSkysoft PDF Editor 6 Pro - программа для общего редакт�
 ```bash
 magnet:?xt=urn:btih:DB8812F4F9539ED65A608413348BFAAA1DCB8BC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +415,7 @@ Canvas Draw 2 поставляется с инструментами и мето
 ```bash
 magnet:?xt=urn:btih:F68337CF5FF18383F48C4A81157F1FC12A2D72A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,8 +441,7 @@ Comic Life - великолепное приложение, с помощью к
 ```bash
 magnet:?xt=urn:btih:0C29A37982B67440739D688D1B6AC2B7CBC112CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -486,8 +469,7 @@ QR Factory является незаменимым и универсальным
 ```bash
 magnet:?xt=urn:btih:DC01E33E75150467684C34F9B4A80C98C67136E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +494,7 @@ Jingai-san no Yome | Невеста нелюдя [2018, TV, 1 из 12] WEBRip 72
 ```bash
 magnet:?xt=urn:btih:2E5DD80F8B5C75DFC5F62D38CC93F41052F432BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -538,8 +519,7 @@ NGW: Пустынное море / The Desert Sea (2016) HDTV [H.264/1080i-LQ] (
 ```bash
 magnet:?xt=urn:btih:C52089C205C736905C0229466DCF5F8CF22B762D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,8 +547,7 @@ VA - 00s Rock Party (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:464C3AEA0518DBD123DB1015426F4F48B9295F43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,8 +572,7 @@ NGW: Зеленый ковбой из Австралии / Monster Croc Wrangler
 ```bash
 magnet:?xt=urn:btih:46D8BED5C97DF47533E5893C6DF21D4CF55195AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,8 +597,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DBCDDE29C7E02484D64B94F6838AF01DA1FC9D4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,8 +622,7 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:DC19AB34108E798800082E3FA50ACAE358368E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,8 +647,7 @@ pdfFactory Pro - удобное приложение, представляюще
 ```bash
 magnet:?xt=urn:btih:301601FFF5AF5D8D806556EEE0691AEE54174EE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,8 +672,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:02F465083B491BBC5384780FE4B71564C70F36D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

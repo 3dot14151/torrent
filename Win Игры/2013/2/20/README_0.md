@@ -20,8 +20,7 @@ Tom Clancy's H.A.W.X. 2 дает возможность поучаствоват
 ```bash
 magnet:?xt=urn:btih:9BB17F11100A7538E240A3A69230E7C7BDF3CC43
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Cities XL Platinum позволяет проектировать, строить
 ```bash
 magnet:?xt=urn:btih:4D206F65A22D08A6594EC6CB179090C3D9701F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

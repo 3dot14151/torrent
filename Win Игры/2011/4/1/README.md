@@ -19,8 +19,7 @@ The Treasures of Mystery Island: Ghost Ship  / Остров секретов. К
 ```bash
 magnet:?xt=urn:btih:14FFD8BC897ECF3D6FF34F781CA4F8C463EC32CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Painkiller Антология [Ru/En] (Lossless RePack) 2004-2011 | RG Packers
 ```bash
 magnet:?xt=urn:btih:D3C0B5BB3CFA03C6DDB3B6B77E135F08828C295F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ The Last Remnant — ролевая игра, в которой вас ждет 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

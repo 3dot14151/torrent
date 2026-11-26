@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:33CA165A23492D294A735758BDFD3EE469BFE01F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3C6E9FE3BCA88152D8EBB80C42F258639423F8A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ I век до нашей эры, Римская империя. Бывший г�
 ```bash
 magnet:?xt=urn:btih:01E5806009C3B83BB942A37914E1208048D717F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ I век до нашей эры, Римская империя. Бывший г�
 ```bash
 magnet:?xt=urn:btih:936720C8B64BE3CC45BB89C71533330CCAA33050
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

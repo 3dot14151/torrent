@@ -21,8 +21,7 @@ Hjuman - Сквозь вечность (2014) EP [MP3|320 кб/с]<Atmospheric P
 ```bash
 magnet:?xt=urn:btih:9FE495A6C7C8DF6B46F0B36F0D74C6C6BD2D1988
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Bloody Terror - Diaboli Celeritate (2014) [MP3|320 кб/с]<Melodic Black/Death 
 ```bash
 magnet:?xt=urn:btih:914A650D5E01D7FB4491F2DAAB85712FD38CC654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Essenza - Blind Gods And Revolutions (2014) [MP3|320 кб/с]<Hard Rock / Heavy 
 ```bash
 magnet:?xt=urn:btih:1E80C3B3D7D6CA6EE2FE1063A20580E904CE2400
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3ED94AEB28D0F7E45FC30700431688F3C5C876FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -147,8 +143,7 @@ Job For A Cowboy - Sun Eater (2014) [FLAC|Lossless]<Progressive Death Metal>
 ```bash
 magnet:?xt=urn:btih:9FC4E20E8931CB8E973CEDA1A0220F1AA52A8553
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +171,7 @@ iambic (iambic²) - As The Snow Fell (2008) [FLAC|Lossless]<IDM, Minimal, Ambien
 ```bash
 magnet:?xt=urn:btih:E9FBF025B749569A817D0B62833BBD626980D28C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +205,7 @@ Metasoma - Mirror of Life (2014) [MP3|320 кб/с]<Progressive / Alt.Metal>
 ```bash
 magnet:?xt=urn:btih:5A5AB9BED5E53F9BBF8A21314437C4631C57DC67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -243,8 +236,7 @@ Frowning - Funeral Impressions (2014) [MP3|320 кб/с]<Funeral Doom/Death Metal
 ```bash
 magnet:?xt=urn:btih:10D7F41F2CF38B596E9075CA3EA00A3A6F9F7FEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,8 +264,7 @@ Gene Ammons' All Stars - The Big Sound (2000) [FLAC|Lossless]<Jazz, Hard Bop>
 ```bash
 magnet:?xt=urn:btih:6371329D4743F7E91708315B3BCCC3E645E2746D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,8 +298,7 @@ VA - Snakes & Ladders LP Part 2 (2014) [MP3|320 кб/с]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:C8E5A809C83D5ED80760D6EEDFFC1CFA9289F1D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +323,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C4E4F2D86A7299E53CE8043E5EAF820858352D7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,8 +357,7 @@ Culprate - Deliverance (2014) [FLAC|Lossless|WEB-DL]<Dubstep, IDM, Experimental,
 ```bash
 magnet:?xt=urn:btih:93ECC18FA4E618D934A923C55195F0E1BCB2F933
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +387,7 @@ AutoLaser - Daffy's Adventure Trip (2014) EP [MP3|320 кб/с]<FutureBass>
 ```bash
 magnet:?xt=urn:btih:3CD90E4928C1361AE1D9D0B1D193980795B5D44C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,8 +412,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5FA52A3B9A4BC4316920B22C7E6C039F395637FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -459,8 +445,7 @@ VA - Planet Chill In The Mix: Deep Journey 2012 (Compiled By York) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:8B596353A392F54573371BAF44617A72D71CFA88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +478,7 @@ Haspyd - Буревій (2014) [MP3|320 кб/с]<Folk Metal, Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:1E33805613150FE0C60F3BE82C407A771D50C3D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +503,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +536,7 @@ Duskmourn - Legends (2014) [MP3|320 кб/с]<Melodic Death Metal, Epic Metal>
 ```bash
 magnet:?xt=urn:btih:F7CD905569749CA05BD2DED3691BBA49D4FDB4C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +561,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5D11EF056091FB87B2394F3AFE56E0DE6F752F1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,8 +595,7 @@ Lemonchill - Fondest Memories (2014) [FLAC|Lossless|WEB-DL] <Psybient, Downtempo
 ```bash
 magnet:?xt=urn:btih:7581B95B6C9678A64EE2C51B20B75D2556225813
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +620,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:692BE87F2F7E3E577A2A5CEFF9D1B90529BEC4C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,8 +645,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D981AD26D6F4E98E6A6EBB770DEED8FDFC8E5DB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +671,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14DA6A7E1D970E46CC9E8182859BBB0DCD83D5B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -728,8 +705,7 @@ Ideя Fix - Война (2014) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:2438A63687CFBEC5149F94763C93F864F64DB736
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -754,8 +730,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -788,8 +763,7 @@ VA - Goa Year 2014 Vol. 6 (2014) [MP3|~245 кб/с (V0)]<Psychedelic>
 ```bash
 magnet:?xt=urn:btih:3A423D7A56B269A57278D623C3DBBD08B65E74A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

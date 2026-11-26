@@ -28,8 +28,7 @@ Slowfrog - Quaquaversum (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:EBC9BA27F3A5B27CD1F7450C92643D62F0424F3E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ From Hell - Ascent From Hell (2014) [FLAC|Lossless]<Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5676FC3F85E90D031BA11C1FD0D9EF97FA3E4065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -90,8 +88,7 @@ Swansona - Flat Bock (2014) EP  [MP3|320 кб/с]<Post Metal, Post Rock, Instrum
 ```bash
 magnet:?xt=urn:btih:9D315A3FAAA442EE205D76A866620C914D716573
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Slaughter - Tortured Souls (2007) 4CD Boxset [APE|Lossless]<Death/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:400CEABBB02F0AA3C26E26D5F49D8583BB86BB38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Anaal Nathrakh - Desideratum (2014) [MP3|320 кб/с]<Black Metal / Death Metal>
 ```bash
 magnet:?xt=urn:btih:B170AC02C06B5763AB1026CABD3683FEC921C80C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Ritchie Dave Porter - Rocking the Blues (2014) [FLAC|Lossless]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:ED5F802023B112BCEF6F391E665661C5F0F31300
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ John Travolta - Greatest Hits (2007) [APE|Lossless]<Pop Rock/Soft Rock>
 ```bash
 magnet:?xt=urn:btih:655EAB5AF84EF5ECAA03DFADEF749AF321EC7DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Mago De Oz - Ilussia (2014) [MP3|320 кб/с]<Celtic Metal, Power Metal, Folk Me
 ```bash
 magnet:?xt=urn:btih:C1289C95BC156C7B26A7AEB77569ED7BA2B6AB11
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Audrey Horne - Pure Heavy (2014) Japanese Edition [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A72DF738A77DFA71AE237A6FD9E490A0872FEEA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ Moon Martin - The Very Best Of (1999) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:A56567B1661B1DFD4DA1DE4CF3352F5E1FA7E815
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ VA - Classic Rock Presents The Blues Volume 14 Get Your House A-Rockin' (2014) [
 ```bash
 magnet:?xt=urn:btih:26632CC79B06256E30B0CAD4F4EE35E9908921FC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +394,7 @@ Grand Funk Railroad - The Millennium Collection: 20th Century Masters (2014) [MP
 ```bash
 magnet:?xt=urn:btih:9C847224306F7024680D8B156768F12D5016AC8A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,8 +428,7 @@ Elvis Costello - The Best Of The First 10 Years (2007) [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:00A083F75157511FA2416C7550E8D6BB406F1260
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,8 +462,7 @@ Amaranthe - Massive Addictive (2014) Japanese Deluxe Edition [FLAC|Lossless]<Pow
 ```bash
 magnet:?xt=urn:btih:BB10D3641F3C52DA7F3DCF23B015D9B8C8944D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,8 +496,7 @@ Black Veil Brides - Black Veil Brides (2014) [MP3|320 кб/с]<Modern Glam Metal
 ```bash
 magnet:?xt=urn:btih:9B28931284CCCD6347E682198A277C4B1315A441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +530,7 @@ Billy Idol - Kings & Queens of the Underground (2014) [FLAC|Lossless]<Alternativ
 ```bash
 magnet:?xt=urn:btih:C5DE25AC003D790F288AB6019203F11064B8FB42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,8 +564,7 @@ Smokie - 20 Greatest Hits (1994) [FLAC|Lossless]<Pop-Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:DAC35CB4B16414626C0D20FEC27124CD48241D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -615,8 +598,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14BC5657853380FE38AC2EA6BC5AAE847D3F2009
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,8 +630,7 @@ Sting - Fields Of Gold: The Best Of Sting 1984-1994 (1994) [APE|Lossless]<Pop Ro
 ```bash
 magnet:?xt=urn:btih:E84F27ACD617163B80F22F4AE452322A728DA5B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

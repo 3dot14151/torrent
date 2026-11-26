@@ -19,8 +19,7 @@ StarVaders (2025) [Ru/Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:05BFD2D9ADBBBB6E50D83D83D9C8DA9747973909
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3 Build 19869727/dlc)
 ```bash
 magnet:?xt=urn:btih:014670F5E04A215BF045E7AF55E02B9074141DDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wingspan - стратегическая карточная игра про пт�
 ```bash
 magnet:?xt=urn:btih:6B7F2B7B9CCB5695A471D2BD648BF49D4D58CA14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:AFBB22740A340FE9AE8635F463D520F2AF467D96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Mortal Sin - хаотичная и кровавая игра в жанре rogue
 ```bash
 magnet:?xt=urn:btih:FD6A60A4CA1994984CCCB135F25BB13D01F63E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Betrayer рассказывает историю героя, оказавшег�
 ```bash
 magnet:?xt=urn:btih:26AFEEC32C7C8E75C219CD3C5E7359369CB6FDAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.0003.28253.87380/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:B162EBF46B52B33ABB8149BE44407AE5D59CDA7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack seleZen [Total Conflict E
 ```bash
 magnet:?xt=urn:btih:C7D77D4931D1E1488875E8143F8B7CA500BA3E21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

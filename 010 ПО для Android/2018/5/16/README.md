@@ -19,8 +19,7 @@ RSS Reader v1.7.0 [Ru] - чтение RSS-лент
 ```bash
 magnet:?xt=urn:btih:92F71CA305CD4FBD8A90FAB0AF150A5B7C98E3F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

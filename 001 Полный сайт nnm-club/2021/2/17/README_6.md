@@ -18,8 +18,7 @@ WebToLayers преобразует веб-сайты в документы Photo
 ```bash
 magnet:?xt=urn:btih:6EEA3B7004F9EA104DFA11ED84D956650BB5F728
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ SizeMyPics может помочь вам в преобразовании бол
 ```bash
 magnet:?xt=urn:btih:6C4A2F7C27FB675B20CD7B1F9D30F05C5C43F185
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ FontXChange  - приложение для конвертирования шри
 ```bash
 magnet:?xt=urn:btih:273FD7F259D8422158FDD8870B2050CEBBE01753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ CameraBag позволяет мгновенно применить одну из
 ```bash
 magnet:?xt=urn:btih:76E7BA5DB48AB8E6B2DC85868E7178CB42E386BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Money Pro сократит расходы и покажет полную кар�
 ```bash
 magnet:?xt=urn:btih:15B52DB05FAFCFAB0E5FD47CEAEE48AC6EC9D49B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Highway Chile - Keeper Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ```bash
 magnet:?xt=urn:btih:2E595FA37BFDE7EE6B6628DFD46916BC06854278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ DropDMG 3.6.2 CR2 [Multi]
 ```bash
 magnet:?xt=urn:btih:89241A1C464B0062999B15EA16886DEA6049664F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,8 +202,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7E274465DEBF916466874AF49C0A3D39BAA206B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ NCH DeskFX Plus 3.02 [En]
 ```bash
 magnet:?xt=urn:btih:597B9692B6B06A19D2E1B3C2E3114830D2BD1539
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ The Elder Scrolls: Blades 1.31.0.3481802 (ARM64) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:85115C6D264904DF1187E208EC0DF051F012E076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

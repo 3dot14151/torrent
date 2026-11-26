@@ -19,8 +19,7 @@ Win3xO - The Win 3.x Collection v1.0 (2015) [En] (1.0) Repack Firstrun70
 ```bash
 magnet:?xt=urn:btih:E6222718AA6CA4177354C9014AEC9761F15E328E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

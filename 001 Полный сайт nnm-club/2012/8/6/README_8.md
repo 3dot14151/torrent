@@ -19,8 +19,7 @@ Wallpapers Sexy Girls Pack (05.08.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:DB7BFB577DB0CFF2935D27C24CBE89A749BEC3BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Gilrs Wallpaper Collection (04.08.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:F229E63916717A907606148C5CF06457EE92A228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Wallpapers Sexy Girls Pack (04.08.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:1D2318FFCE96969910D1DFAF52FA43D7830FC1C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Sexy Girls Pack Wallpapers (04.08.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:8EBD24E7B02BE14D7FDF80F7EA0822201EB543D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Sexy Girls Pack Wallpapers (05.08.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:54C4ED69AB0E0C2122B1183D14CCAA495BA32856
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Wallpapers Sexy Girls Pack (06.08.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:81D4B3373B89248A1D41C290FCCCBDE1313476AE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Nature Wallpapers (05.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:4626DACAD2E6CB3D73F8628C865C3B0CD488A5EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Nature Wallpapers (04.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:659166BA6CE643FFCA0CDDECB17374C845BFB973
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Sexy Girls Pack Wallpapers (06.08.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:DE0B8DE061BC765666A1EC489266ACED1B29D07F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Best HD Wallpapers Pack (05.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:45968E3D2036BAC7F397AC0B28D35E33120DE9D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,8 +278,7 @@ The Posies - Every Kind Of Light (2005) [MP3|192 кб/с]<Alternative/Nu-metal>
 ```bash
 magnet:?xt=urn:btih:AF964CD5593A9A2C76CB71CB861262C622B5B508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,8 +303,7 @@ Nature Wallpapers (06.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:EC369DB6B72804689F6BB121EC844C17A5DD177A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +328,7 @@ Beautiful Girls Wallpapers (06.08.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:C333DF832258F017208BBBE17026D584BADAE42B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,8 +353,7 @@ Computer Desktop Wallpapers Collection (05.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:9CE11CF764D43AE059FC61942739DA8F484AB0C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,8 +378,7 @@ HESS II - новый телескоп, смотрящий на вспышки п
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Wallpapers Sexy Girls (06.08.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:E7DD5A0E10370C5EBF97D8AB08686C2ED47E802B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ UnkaiTenshi
 ```bash
 magnet:?xt=urn:btih:8FB0DD2C74AA469867CB36BC84960B4F7F8231D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Computer Desktop Wallpapers Collection (04.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:1EA2876AFB78617962D08B0FFF6AB137384B5AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,8 +478,7 @@ Best HD Wallpapers Pack (04.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E2A06DD256F4194DF74244A24E0B714B0944F20D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,8 +503,7 @@ Desktop wallpapers (05.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:9B7CF7CBDD05B38BA25B0BD0D1A452C748E873C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,8 +533,7 @@ Hexentraum - Insomnia (2011) [FLAC|Lossless]<Gothic Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,8 +558,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2D37C1AD2937D797E10B3C18AC1D193389A5BBC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,8 +583,7 @@ Computer Desktop Wallpapers Collection (06.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:5CE21AC5DFC61E0BC375859516DC8A4E358AE486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,8 +617,7 @@ VA - Star House Vocal (19.07.2012) [MP3|320 кб/с]<House Vocal, Dance, Club, E
 ```bash
 magnet:?xt=urn:btih:021B44CB9FB72555D57C3B0951F89450ECA29C18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,8 +649,7 @@ Lycanthia - Oligarchy (2012) [FLAC|Lossless]<Gothic Metal/Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -703,8 +678,7 @@ Wonderful Nature Wallpapers (77 снимков) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:378F28A93CB9AB4C8350D656012D404B89D90888
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

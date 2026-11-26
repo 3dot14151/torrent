@@ -22,8 +22,7 @@ Sadist — итальянская дэт-метал группа, образов
 ```bash
 magnet:?xt=urn:btih:3F1FC90CDE6CCD639F4E8086509105276C7A0045
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

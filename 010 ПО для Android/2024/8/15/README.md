@@ -19,8 +19,7 @@ AirBrush: ИИ Фоторедактор v7.1.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F97F3AEB2F3968E13CDE7C332561304ED1973A03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:EB241EF5B893F2149BC4B58FB7B928C0EF49CC74
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

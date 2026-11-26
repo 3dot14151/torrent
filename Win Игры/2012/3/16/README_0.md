@@ -26,8 +26,7 @@
 ```bash
 magnet:?xt=urn:btih:BE2245F1C8ED79A9F287907ACF3B9B8FBA4267F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Gas Guzzlers: Combat Carnage - симулятор краш-гонок от тр�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Depths of Betrayal Collector's Edition / Голем. Коллекционное 
 ```bash
 magnet:?xt=urn:btih:7602A9A923D4EBCC90ACF25CCF717D7E9AC68A9F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Eastville Chronicles: Fluch des Opernhauses / Хроники Эствила. У�
 ```bash
 magnet:?xt=urn:btih:743A968F8768E990B5EC18C1D033BA3EBF4B6DA1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Special Enquiry Detail: Engaged to Kill (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:D953F6394EC47AA7AD70AA1624FAA00DB463804C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Lucas Chess - лучшая из обучающих шахматных прогр
 ```bash
 magnet:?xt=urn:btih:4CA802ABD4C5E8C000E3685E1CC75D20332247F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

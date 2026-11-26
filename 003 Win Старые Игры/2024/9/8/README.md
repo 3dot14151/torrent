@@ -19,8 +19,7 @@ Spyro: Enter the Dragonfly (2002) [Ru/Multi] (1.2) Repack Ma2012ks
 ```bash
 magnet:?xt=urn:btih:5D7EBFE3DCF1D60E670DB2A230A2EDCDA4E26E79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Xenonauts: Arms Race / Ксенонавты: гонка вооружений (20
 ```bash
 magnet:?xt=urn:btih:3658423201E19C1247865E56B521A8B87D426E2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

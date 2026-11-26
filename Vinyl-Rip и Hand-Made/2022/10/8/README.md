@@ -22,8 +22,7 @@ A4 Стиви Уондър - Не Карай Кола, Когато Си Пил 
 ```bash
 magnet:?xt=urn:btih:C5FB4255553EA15F3134C1B9681F2C2950479B03
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

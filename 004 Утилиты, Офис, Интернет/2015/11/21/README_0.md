@@ -19,8 +19,7 @@ TestDisk это мощная бесплатная программа для во
 ```bash
 magnet:?xt=urn:btih:DE90F8A622AF95974E96835F9B5F15EE096E542B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Horizon: Zero Dawn (2020) [Ru/Multi] (1.0.10/dlc) Repack =nemos= [Complete Editi
 ```bash
 magnet:?xt=urn:btih:F99B2992EBFCF89E1B2DA486E1EB2E17CB0FB7DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -26,8 +26,7 @@ Tron 2.0 / Трон 2.0 [Ru/En] (RePack) 2003 | RG Games
 ```bash
 magnet:?xt=urn:btih:522E5353E2AF17C73CA98D37CD8BA2D5E33F9ACF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

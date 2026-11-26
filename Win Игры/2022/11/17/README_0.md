@@ -19,8 +19,7 @@ Twin Mind 4: Nobody's Here (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:E64B567FF2EB2A9B252361677899E7A54728E3BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other 
 ```bash
 magnet:?xt=urn:btih:554161F9D099D82E98DF00327525EB92E38AA044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:971DAF4117A22767DA2D4FB4DBF9B65D1F39723D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BD703D9898995923F10E33633AEDB4338AC4FBB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Marian McPartland - In Concert (1951, 1953) 1993, Savoy Jazz [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:9232F39D65DBDB50537E404EFCB8568B6918BC3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Metal Wolf Chaos XD (2019) [Ru/Multi] (1.02.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:E1441167B5D86E633C94C71995D03F97852F4C14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Animus - Stand Alone (2019) [Ru/Multi] (1.1.1) License PLAZA
 ```bash
 magnet:?xt=urn:btih:7BC9F86E54C312B36D4FE64F1B2B5E6C66751C98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Weaksaw - 2 Albums (2012-2016) [FLAC|Lossless|WEB-DL|tracks] <Technical Groove M
 ```bash
 magnet:?xt=urn:btih:0FAB56D2D6C258D65E60EBEB5D9EC84DDF6CE365
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Demon Angels - Time Of Confusion (2006) [APE|Lossless|image + .cue] <Melodic Har
 ```bash
 magnet:?xt=urn:btih:93EF622DA0B0C024DE957E31510C7A48458E908A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Teaze - 5 Albums (1976 - 1980) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:33AA6632445C4D3635496D78C98369ECF0F6AC88
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Disarmageddon - No Liberty (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E2315FC27623D6F68DCA3C46CFDEAF5CFF81A345
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Fanttasma - Another Sleepless Night (2013) [FLAC|Lossless|image + .cue] <Post-Bl
 ```bash
 magnet:?xt=urn:btih:F1E44697BE4389F3B878C8B6A105070E42C7B8BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Raza De Odio - La Nueva Alarma (2004) [FLAC|Lossless|image + .cue] <Thrash / Dea
 ```bash
 magnet:?xt=urn:btih:EA0F1D8F51A93FBE5606CE64E9B79548967EF734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ King Heavy - Horror Absoluto (2014) [FLAC|Lossless|image + .cue] <Doom/Heavy Met
 ```bash
 magnet:?xt=urn:btih:0D59E3461527507B8F8A0AA0E8CC4700A7AE5FCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Madstop - The Lobotomizer (2015) [FLAC|Lossless|image + .cue] <Thrash Metal/Cros
 ```bash
 magnet:?xt=urn:btih:71EF1FAB3A1A97F23C831365327F456B3FE4E5CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Abrupt Demise - The Pleasure to Kill and Grind (2020) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:BABA9DAA1BCC4353B1F8A80DB8C042BDB1E6E06B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Angmodnes - 2 Albums (2022-2024) [FLAC|Lossless|image + .cue] <Funeral Doom/Deat
 ```bash
 magnet:?xt=urn:btih:C3C9524E52B9383C9BF1C1675A17FA1B638D1B82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Crimson Day - Dark Dimension (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B62931F6C01B8FBB6D0F79B6AE95A5A9DFCDD19A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Jamie James - Steppin' Back 1999 (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Roc
 ```bash
 magnet:?xt=urn:btih:FADF5B205FE6284B1A41C5A25A5B5F5FEB43484F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Marmozets - CO.WAR.DICE (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:5BFC1CDC180734437BD71718282D811862135FB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ August Moon - Something Eldritch and Macabre (2024) [FLAC|Lossless|tracks] <Melo
 ```bash
 magnet:?xt=urn:btih:E28166D2A088B3A9FBE4EDE7208761ACF6562AED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

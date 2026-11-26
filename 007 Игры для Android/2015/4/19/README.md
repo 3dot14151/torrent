@@ -19,8 +19,7 @@ Subway Surfers - игра из жанра раннер для андроид. в
 ```bash
 magnet:?xt=urn:btih:73D67450A04772766585C13FD9767BBBCD13BF19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Vov Sticky Notes 9.6 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:80CA8A48BCAC7720C3BAA7692C39E7F7470AE35D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ WinMerge является весьма полезной для определе�
 ```bash
 magnet:?xt=urn:btih:218DAD727C173F77DC3A1FA06835E3ADD2EC01E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ PDFCreator –  бесплатная программа для конверти�
 ```bash
 magnet:?xt=urn:btih:29B887773C08E2C672B932C1ACD0F09138229D38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

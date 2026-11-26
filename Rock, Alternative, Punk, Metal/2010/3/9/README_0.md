@@ -19,8 +19,7 @@ VA -  Gothic Rock (Cleopatra Rec) (2001) [MP3|320 kb/s]<Gothic Rock / Post Punk>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Led Zeppelin - MP3 Collection (1969-1976) [MP3|192 kbps]<Hard-Rock, Heavy Metal,
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Tracktor Bowling - Tracktor Bowling (2 CD) (2010) [FLAC|Lossless]<Alternative/Fe
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -112,8 +109,7 @@ Earth - Discography (20 albums) (1990-2008) [MP3|320 kbps] <Drone Doom, Doom Met
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

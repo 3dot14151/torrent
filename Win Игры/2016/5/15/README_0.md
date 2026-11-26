@@ -19,8 +19,7 @@ Hunting Unlimited 2010 (2009) [En] License
 ```bash
 magnet:?xt=urn:btih:C09AA4E5CA711A110BA2078ED295A3C56C947A13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ The Last Dream: Developers Edition - point and click квест с казуал�
 ```bash
 magnet:?xt=urn:btih:58FD023A9620CF96C1F58EF6B17543E6AB4F6206
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.0/dlc) License PROPER - P
 ```bash
 magnet:?xt=urn:btih:E72E4412E1BD076519AF57C2F378A0618C605482
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ TASTEE: Lethal Tactics (2016) [Ru/En] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:3CCF06939FF9D26171277F453753F92C96C33395
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Desire – это поэтичный черно-белый классическ�
 ```bash
 magnet:?xt=urn:btih:DD3D5EEB090EC610B35210806DFECC07A3DB6446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Shadow Complex Remastered - это переиздание игры Shadow Comple
 ```bash
 magnet:?xt=urn:btih:6E2F1E7F056F92C955C72B1B2F87080684FC1DB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Final Fantasy рассказывает историю героя по имени
 ```bash
 magnet:?xt=urn:btih:E8C83155E834CF765BCF00F1D4652E7C9C0E1C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

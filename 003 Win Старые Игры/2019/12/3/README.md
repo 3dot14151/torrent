@@ -19,8 +19,7 @@ Waxworks (1992) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:FF2B4DE245A2D6C057BB2AE73E8502069904997E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

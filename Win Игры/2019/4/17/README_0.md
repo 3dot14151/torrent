@@ -19,8 +19,7 @@ The Occupation — это захватывающий триллер от пер�
 ```bash
 magnet:?xt=urn:btih:999CD5F4BDE1DA232481940E01A0873C76BB7F2D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B8CF23BD2235862A536109EBD9D6E619B22E2FB7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Enter the Gungeon - это подземное приключение со стр
 ```bash
 magnet:?xt=urn:btih:48ADD70872415DBB768247B7620048F4E549C48C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

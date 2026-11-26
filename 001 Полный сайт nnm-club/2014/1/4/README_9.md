@@ -22,8 +22,7 @@ The Doomed Bird of Providence - Will Ever Pray (2011) [MP3|320 кб/с]<Neofolk>
 ```bash
 magnet:?xt=urn:btih:CA2FE99D87CFDE1998CCC720677F3430538005F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ VA - Alter Ego - Best Of 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:ED5E2B1458FA7A00F104275DBDCB902A9FBCA11C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Bloody Donation - Vengeance Of The Enslaved (2013) [MP3|320 кб/с]<Death/Thras
 ```bash
 magnet:?xt=urn:btih:72F3F67125C2C973A6CFE25C1E2E04F0762ED3F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +124,7 @@ VA - SuperBomb Club Music Pack 12 (2013) [MP3|320 кб/с]<Club, Electro House, 
 ```bash
 magnet:?xt=urn:btih:4663D87DC2FBDFC5B49394149EA22E89CEBE72A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,8 +158,7 @@ VA - SuperBomb Club Music Pack 14 (2013) [MP3|320 кб/с]<Club, Electro House, 
 ```bash
 magnet:?xt=urn:btih:027B0E660D72C86ADEA400CB093DB8F040076976
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Synlakross - Melodichrome (2013) [MP3|320 кб/с]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:E1C4CB4E3F283EDBAEEA5A5716D03B7428D24DCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Iva Bittova - Iva Bittova (2013) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:0505BD6E5906D997867DB7168C623C2CCD03DB0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Segor - Warmageddon (2013) [MP3|320 кб/с]<Melodic Metal, Symphonic Black Meta
 ```bash
 magnet:?xt=urn:btih:1D068EE8FFABC4239082D5C80C835C23EA770E9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Parricide - Just Five (2011) [MP3|160 кб/с]<Brutal Death metal/Grindcore>
 ```bash
 magnet:?xt=urn:btih:1BBEE06D8355E902611BF60F8BBBCA6B45649066
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ VA - SuperBomb Club Music Pack 15 (2013) [MP3|320 кб/с]<Club, Electro House, 
 ```bash
 magnet:?xt=urn:btih:62711F99DAB2CC67952A9D603FB980E36FC151EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ VA - In Da Club Vol.78 (2014) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:5BE5AF33900160160084C3DF02F3580A2C32B441
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,8 +394,7 @@ Giovanni Guidi Trio - City of Broken Dreams (2013) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:E870087E0A0C55B637ECDBF98AE46FC7C68F69BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,8 +419,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,8 +453,7 @@ Shipp - Crow Loudly (2013) [FLAC|Lossless]<Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:91DB833AA21D7A50C0EBC566E923BB28296CEF0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +487,7 @@ VA - Edge EDM: Best Of 2013 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:957C5DC7D935A29E9CE6A66D07E546A3FA53ADB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +512,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:72EC4B4536053674F83C662BC4ECC86660080A32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,8 +546,7 @@ David Huntsinger & Friends - Sentimental Season (1995) [FLAC|Lossless]<Jazz, Chr
 ```bash
 magnet:?xt=urn:btih:EE9B33F785E91D1558D15651DA31B5907218141C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +580,7 @@ VA - Trance Eve Volume 61 (2014) [MP3|320 кб/с]<Vocal Trance, Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:0356E7B7A1ACD173CFEEA2CC0BC7A96600EE0F01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,8 +614,7 @@ Neptune - Prelude To Nothing (2013) [MP3|320 кб/с]<Modern/Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:DA6F9D982B5582F8B2BA1E25C0432F16A5386E70
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C1CB89C604D2B9E3A5C84E7596B5FF24FC014DFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,8 +672,7 @@ Neil H - Secrets of Faeries (2003) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:6ECA6B0F9C9D6B84AD4CB9C33C3FAE665F7A1AA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +706,7 @@ VA - SuperBomb Club Music Pack 16 (2013) [MP3|320 кб/с]<Club, Electro House, 
 ```bash
 magnet:?xt=urn:btih:F6E99C954592AB4832F9B6772780625AE7E88D61
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -762,8 +740,7 @@ Leslie Sampson : Vocals, Drums (Stray Dog, The Noel Redding Band, Gas)(   Чит
 ```bash
 magnet:?xt=urn:btih:FB6411B4F0AF9E378AB8F07322B87A59F985ED1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -797,8 +774,7 @@ Anna Fiori - Magna Mater (2013) [MP3|192 кб/с]<Symphonic Power / Gothic Metal
 ```bash
 magnet:?xt=urn:btih:9118896643BBA12888BE366D73F12C67CAC02EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -830,8 +806,7 @@ Kestrel - Kestrel (1975) Released 1999 [FLAC|Lossless]<Art Rock>
 ```bash
 magnet:?xt=urn:btih:B5D176367AC62F63D3ACD23700D9039D15AB9A0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -858,8 +833,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2B7E2663EAC6E5067A48F4B5D1E744834B0A70C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

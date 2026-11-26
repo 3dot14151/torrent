@@ -22,8 +22,7 @@ Felix Slovacek - Феликс Словачек (1984) [FLAC 2.0|96/24|image+.cue
 ```bash
 magnet:?xt=urn:btih:EC28C996ED3D7DC1867ABCC338DA2C793D59903C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

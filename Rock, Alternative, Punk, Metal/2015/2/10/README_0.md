@@ -23,8 +23,7 @@ Tourniquet - Onward to Freedom (2014) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:751F11C1FCDE8C86D60F37F3FDC534FD199F10FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ The Crown - Death Is Not Dead (2015) [FLAC|Lossless]<Death Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:233168A93B7E12F744071A15DF00D2B75D9B905F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Rafa Blas - 2 Альбома (2013 - 2015) [MP3|320 кб/с]<Hard Rock, Melodic 
 ```bash
 magnet:?xt=urn:btih:1DF56548C35C186FD34A213AA1F903C1316D79BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Left End - Spoiled Rotten (1974) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:0EC3297891DAD80161433883D9D3FC09A938347E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:857B7574880E10A20A1DFE89E1C5F4BA085B64B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ Beardmore - Limb (2015) [MP3|320 кб/с]<Hard Rock, Stoner Rock, Heavy Blues Ro
 ```bash
 magnet:?xt=urn:btih:21B1BBD3D5E55AA91C60EE00840DC67AAB5C89FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +197,7 @@ VA - The Many Faces Of Yes (2014) 3CD [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:8C796C34E62053012AC3D2E2B04D62FBDFB90EB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +226,7 @@ VA - The Many Faces Of Guns N' Roses (2014) 3CD [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AC84BB375C416411F2350DFAB0577D4FB3D4A5C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +255,7 @@ Brutto - Underdog (2014) [FLAC|Lossless]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:63E8760066852118D261EAFCDD62411049D07793
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,8 +284,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B898251048471D5069D0DDC65FB80B480577303D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

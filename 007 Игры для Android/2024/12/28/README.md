@@ -19,8 +19,7 @@ Young Detective: The Mutation v1.2.22 [En]
 ```bash
 magnet:?xt=urn:btih:FD7C5D6636B15A12B02BB32ED9139ADB5C8FEF7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Lucius III (2018) [Ru/Multi] (0.181213182603.a) Repack Other s
 ```bash
 magnet:?xt=urn:btih:84641A7229C6FB634D8A2CAA4B04A3D854591C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

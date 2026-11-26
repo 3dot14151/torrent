@@ -22,8 +22,7 @@ Engelbert Humperdinck - Энгельберт Хампердинк (1978) [FLAC 2
 ```bash
 magnet:?xt=urn:btih:7E7C63B12602F28985C7B516EFC7CFF457CC02F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

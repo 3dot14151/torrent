@@ -19,8 +19,7 @@ RIN: The Last Child (2024) [Ru/Multi] (221) License GOG
 ```bash
 magnet:?xt=urn:btih:3323327FC7A8F2ABE6601704066DB83948B8522C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:1D19EF549CAB8EA0054B2B0F2B2C3DED981F146A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Shards of Chaos - это визуальная новелла в жанре фэ�
 ```bash
 magnet:?xt=urn:btih:FF2A4DE6D94BE914AD614ECEA1EE155501FBB6E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Boxes: Lost Fragments бросает вас с головой в роскошн�
 ```bash
 magnet:?xt=urn:btih:27FA119B4B8018A81995D132B32BCF5FCA84CC84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

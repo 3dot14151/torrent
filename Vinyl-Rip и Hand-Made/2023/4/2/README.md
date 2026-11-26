@@ -19,8 +19,7 @@ Various - Flashdance - Original Soundtrack From The Motion Picture (1983) [FLAC 
 ```bash
 magnet:?xt=urn:btih:05919032C3DCDB93C8E83D52C977783D806CC3DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

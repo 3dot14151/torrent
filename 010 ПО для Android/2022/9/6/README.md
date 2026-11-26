@@ -19,8 +19,7 @@ eBooks.com Ebook Reader позволяет читать любимые книг�
 ```bash
 magnet:?xt=urn:btih:7B8215A0BF9C166D96FC6725704BC92C381137EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ NetGuard Pro - no-root firewall v2.302 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1A988D8DB94C6975517D9736CD6C8DE89DBD25D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

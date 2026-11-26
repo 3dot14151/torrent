@@ -19,8 +19,7 @@ Shawn Kelly | Animation Tips And Tricks (2008) [PDF] [Volume 1] [EN, RU]
 ```bash
 magnet:?xt=urn:btih:D124CE99A4093FCB3651B890A9690BE828CE11A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Shawn Kelly | Animation Tips And Tricks (2009) [PDF] [Volume 2] [EN, RU]
 ```bash
 magnet:?xt=urn:btih:9A14D066701AD2C1996D710891D4962A82E3AAC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Preston Blair | Cartoon Animation (1994) [PDF]
 ```bash
 magnet:?xt=urn:btih:D981CC4AB64DE6CC9F71AFE7655A87F71DD04FE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6922A7855ED0396B5C80A961120C7C5B04E9D039
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

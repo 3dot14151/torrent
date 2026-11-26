@@ -22,8 +22,7 @@ Critical Solution - Sleepwalker (2015) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:268634A76EAEF598A7E7EFC10CC9479F9F7A987C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Resurrection Kings - Resurrection Kings (2016) Japanese Edition [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:7C63E78D5A556EFB285D2E97B6263F250C0E78A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kroda - Навiй Схрон (2015) [MP3|320 кб/с] <Ambient, Black Metal, Dar
 ```bash
 magnet:?xt=urn:btih:5D2AEB80231B7E61FA09EA525CFF3C95C6CDE01D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Magni Animi Viri - Heroes Temporis (2006) World Edition, 2016, Association Heroe
 ```bash
 magnet:?xt=urn:btih:434563C2908C0748F74B8D86D8C13DF724CD366C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Borknagar - Winter Thrice (2016) [FLAC|Lossless|WEB-DL] <Viking, Black, Folk Met
 ```bash
 magnet:?xt=urn:btih:5CF1119CBB5C98140CD6FCF3E6280E64C8A370E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Borknagar - Winter Thrice (2016) [MP3|320 кб/с] <Viking Metal, Progressive Bl
 ```bash
 magnet:?xt=urn:btih:F14AA674D7302FBC3D455BC2F7C965058BF8BBEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Unheilig - Schwarzes Gold 2000-2014 (2015) Remastered, Vinyl-Rip [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:2803E1AD9986533C0D5BFF53AAAEF504C349F20B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Nordic Union - Nordic Union (2016) Japanese Edition [MP3|320 кб/с] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:46151CA554CDC5590CE2D3A2E76083250DA72781
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Ost+Front - Ultra (2016) [MP3|320 кб/с] <Industrial Metal, NDH>
 ```bash
 magnet:?xt=urn:btih:217CBECB8032996A3791ADE27A9642AF9265BD15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Megadeth - Dystopia (2016) Best Buy Edition [FLAC|Lossless|tracks + .cue] <Thras
 ```bash
 magnet:?xt=urn:btih:F65EB76C95B5AD504A170B774A29085490B40202
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Megadeth - Dystopia (2016) Best Buy Edition [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:777D2A6F9C2178BD944C1577A3B9A5CD653391D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

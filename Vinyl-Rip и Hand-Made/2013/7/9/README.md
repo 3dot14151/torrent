@@ -28,8 +28,7 @@
 ```bash
 magnet:?xt=urn:btih:40CA99844BB76E8A31D24BDD3E219CEA66A2DDFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Slade - Slade In Flame (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Rock/Rock
 ```bash
 magnet:?xt=urn:btih:1B910A87E95E5C39AEED52011781DDAE2022C47E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -85,8 +83,7 @@ Side 1:
 ```bash
 magnet:?xt=urn:btih:BD6EF0B0296890B6D567244B5F9334384330A557
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -118,8 +115,7 @@ B4. Back To Your Planet [4:00]Жанр: Space Rock, New WaveПродолжите
 ```bash
 magnet:?xt=urn:btih:48F0E1A63541DBB5BC3F7CECD966C391B0604843
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +149,7 @@ B4 Ye-Si-Ca 3:34(   Читать дальше...   )Жанр: Synth РopПрод
 ```bash
 magnet:?xt=urn:btih:3FF483F327B8D8D825E896122443E50435955513
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

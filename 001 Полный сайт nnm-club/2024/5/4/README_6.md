@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:C48FAC6F19BC0965965B58E603939489B5DAFB5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Blackmagic Design Fusion Studio — это мощная программная �
 ```bash
 magnet:?xt=urn:btih:E198878D911C9890AE869966FB93C5C49FBEFC4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Gaia GPS (Topo Maps) v2024.4 b7881 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:068BE1D96280EA734E8EE89CDB210AE605D98BE3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ DxO FilmPack – очередной редактор фотографий с к�
 ```bash
 magnet:?xt=urn:btih:8CB059FB6068F36B14CE7D62BD0E0F50B1B3F063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C2505A5744D8F132525DD6C138019429D8CD98F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Enigma Virtual Box - бесплатная система виртуализац�
 ```bash
 magnet:?xt=urn:btih:A3EF5843FEF98F17435B2AEC29727EBBB2384D28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Pat Warner | Универсальный ручной фрезер (The Versatile
 ```bash
 magnet:?xt=urn:btih:9E15E16E2AA52CCC984621799F32889947A7B10B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CC4111710F32DB8BB600789957D38FE2FA10BD16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

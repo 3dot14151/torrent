@@ -22,8 +22,7 @@ AngeLight - Singles (2020) [MP3|320 Kbps] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:C9BCF8C99D1E668E1A5851193B5A5865AFF17E77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Add1ction - Leave It All Behind (2020) [MP3|320 Kbps] <Alt.Metal, Rapcore>
 ```bash
 magnet:?xt=urn:btih:2A2C0CA6B266843C026C8D5B56BBAB5C0BD3AB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Make Them Suffer - 4 альбома + 1 EP + 3 сингла + 1 demo (2008-2020)
 ```bash
 magnet:?xt=urn:btih:D7DF6A4DACBEA0980B0D706E50D147BFB5A3484E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

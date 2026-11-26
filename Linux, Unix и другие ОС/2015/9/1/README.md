@@ -19,8 +19,7 @@ Manjaro Linux 0.8.13.1 (Arch + несколько рабочих столов) [
 ```bash
 magnet:?xt=urn:btih:7A302A3AE83B23120A70FE8C66FA3D6F4AD7F204
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Valensorow - The Battle Of Oak Mountain (2015) [MP3|320 кб/с]<Folk / Viking M
 ```bash
 magnet:?xt=urn:btih:D58E8F03C36826C71DD45C7879103D86676B6DE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Distruzione - Distruzione (2015) [MP3|320 кб/с]<Death Metal, Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:C92ABB15B5ED5BA7B88AEF419E0503869FD949B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Born2Rule feat. Chad Wagner - Arena Of Souls (2015) [MP3|320 кб/с]<Heavy Meta
 ```bash
 magnet:?xt=urn:btih:9BC4E7CB15682FD516A8266EEEC980E2F6466F5A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Titans Eve - Chasing The Devil (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:AFDD69860644E5AF1E8495FA5F46CAC395FD3511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:01D951086D1D1483B51FDFC5811FB2D59C60833D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Great Discord - Duende (2015) [FLAC|image+.cue]<Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:01DF0069AB19EF937CE3E0ADDA6038CB35849830
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Project NT - Имена и Тени (2015) [FLAC|image + .cue]<Experimental, Psy
 ```bash
 magnet:?xt=urn:btih:D0204B91C85A00B2298F86E5612E226FCA991449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Suzi Quatro - The Very Best Of (2015) 2CD [MP3|320 кб/с]<Glam Rock>
 ```bash
 magnet:?xt=urn:btih:33B49EC2BDD226CF605F3469E5D02E1FD8E3161B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

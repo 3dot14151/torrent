@@ -28,8 +28,7 @@ Nivlhel - Nivlhel (2014) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:7500E63C2BE3857E97C354C7B741AD1912C50C4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -62,8 +61,7 @@ Australasia - Vertebra (2013) [MP3|320 кб/с]<Post Rock, Post Metal, Instrumen
 ```bash
 magnet:?xt=urn:btih:1C27A154099917AF498035730003D62F02277A54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Gehennah - Hardrocker (1995) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:2A8071C0EE7AEB83E9753CF8E2B2B5B89E477629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Masi - Vertical Invader (1990) [APE|Lossless]<Instrumental  Metal>
 ```bash
 magnet:?xt=urn:btih:72D4034510FDEC2DDDAF15363795D9E077A0CE32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Stryper - Icon (2014) compilation [MP3|320 кб/с]<Heavy Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:D622A4B74D73F3625AC973C33984FB69C950622D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -198,8 +193,7 @@ Vy Pole - Self Titled (2014) [MP3|320 кб/с]<Post Rock, Post Metal, Instrument
 ```bash
 magnet:?xt=urn:btih:7D8C16F191AF025F844909F2AE22FC024F4D458C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,8 +227,7 @@ Shores Of Null - Quiescence (2014) [MP3|320 кб/с]<Doom Metal, Gothic Metal, M
 ```bash
 magnet:?xt=urn:btih:F455A1D1E7B58DCFFBA850C042BFEFEA9D91AC98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +261,7 @@ VA - Gothic Visions V (2014) [MP3|320 кб/с]<Gothic Metal, Gothic Rock, Darkwa
 ```bash
 magnet:?xt=urn:btih:02A61C81AF3E36FC73EA0A500C0301ABE2BB2452
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -303,8 +295,7 @@ Dilana - Beautiful Monster (2013) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:7FE03F1C0A2FC227395EB15B4250E618A1D0B82D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +329,7 @@ Betraying The Martyrs - Phantom (2014) [MP3|320 кб/с]<Symphonic Metalcore / D
 ```bash
 magnet:?xt=urn:btih:76A3F9213BAC2544BD625B13A657C4AB38581AAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +363,7 @@ Caliban - Ghost Empire (2014) Deluxe Edition [MP3|320 кб/с]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:848F039D3CBF3168C4A2AD72104A6D2255CA2D6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

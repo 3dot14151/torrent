@@ -19,8 +19,7 @@ Cities in Motion – это возможность управлять собст
 ```bash
 magnet:?xt=urn:btih:474ABCCC53EE9295C8B82ED96C8E597A3D1B6820
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

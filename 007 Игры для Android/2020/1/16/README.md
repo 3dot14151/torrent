@@ -19,8 +19,7 @@ S.T.A.L.K.E.R. – ролевой шутер на андроид, от перв�
 ```bash
 magnet:?xt=urn:btih:1889C88D1526062401B02073ECB280C46BBA56C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

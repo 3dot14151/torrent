@@ -22,8 +22,7 @@ Vns Vinicius the Guitar Ripping - A Sound Adventure (2021) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:5E97B776728ED95DAA562E5DBE7F19317CC9AA35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ The Feckers - Live to Fight Another Day (2021) [FLAC|Lossless|WEB-DL|tracks] <Ha
 ```bash
 magnet:?xt=urn:btih:B490E5DEADA2D035B0DF1188A3BC23C52FDDEC7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Bleeding Antlers - Stagmata (2021) [MP3|320 Kbps] <Psychedelic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:00E90693AAC7BA5C01DE549B7C27321CC3765069
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Dead Poet Society - -!- (2021) [MP3|320 Kbps] <Alt.Rock / Indie Rock>
 ```bash
 magnet:?xt=urn:btih:97CC65BC27D05DD1DE6DD34750E58B7AFE46967B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Chez Kane - Chez Kane (2021) [MP3|320 Kbps] <Melodic Rock>
 ```bash
 magnet:?xt=urn:btih:73D42CC0C4D82DCD64703AB78775B675D13665E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8D8952E8B351C6F34431BC09F8115B68442B95E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Celldweller - Demo Vault: Wasteland (2021) [MP3|320 Kbps] <Industrial, Alternati
 ```bash
 magnet:?xt=urn:btih:F4B33A1C783624C270DB64DBAECFF51D0BBE5626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ VA - Discover Classic Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:422E6FE3DC69286DC58CA888A40FCCFDF94BBD93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Eisbrecher - Liebe macht Monster (2021) [MP3|320 Kbps] <NDH, Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:F3F89329F5DDC9F7A9C74A4AC54376447CBDE9A9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Blackmore's Night - Nature's Light (2021) [MP3|320 Kbps] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:1079C450F6F6885D2D94A67D3C5665D78B28C48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8E09D8738F45C8C91D20EA8EE79CC0D250833602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +330,7 @@ Kings Of Leon - When You See Yourself (2021) [FLAC|Lossless|tracks + .cue] <Indi
 ```bash
 magnet:?xt=urn:btih:7CDE6AE58EE8B7AAF29E378D420FB4BE28D74EE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +358,7 @@ Evanescence - The Bitter Truth (2021) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:698A0CCCFAA94A86F4C9248864CDBEC3BAEBFACD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

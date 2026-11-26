@@ -18,8 +18,7 @@ Alice Cooper - Live from the Astroturf (2022) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A6FE9209EBD200390D564F75EE99F1A5218272FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Alice Cooper - Live from the Astroturf (2022) [FLAC 2.0|88/24|tracks|WEB-DL] <Ha
 ```bash
 magnet:?xt=urn:btih:B0CE0AAF5FDC9C1D205DF1A354F63631CB4C0E92
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Alliance - супергруппа сформирована в 1995 году в �
 ```bash
 magnet:?xt=urn:btih:F73FC3403F9E5D17D13C3B816339D3B3437122B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Birth Control - 21 albums, 26 CD (1970-2022) [FLAC|Lossless|image + .cue | track
 ```bash
 magnet:?xt=urn:btih:3CFCB7328B588468EC3CED37AF241AEC57D8BA83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

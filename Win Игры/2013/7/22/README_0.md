@@ -20,8 +20,7 @@ Old Village Simulator 1962 / Farm Machines Championships Русификатор 
 ```bash
 magnet:?xt=urn:btih:98EC4B06E4E5BD4CE5AD14AA28517A5216B45116
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Face Noir (2013) [Ru/Multi] (1.9.1.0) Repack Fenixx
 ```bash
 magnet:?xt=urn:btih:58D2650B71879F8C6FB89F2CA945E863C331E4FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,8 +75,7 @@ Old Village Simulator 1962 / Farm Machines Championships (2012) [En] (1.34) Lice
 ```bash
 magnet:?xt=urn:btih:3F49428516BB93EA1989802BBA13F3A3B158BE62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

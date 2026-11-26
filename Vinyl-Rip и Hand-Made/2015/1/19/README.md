@@ -22,8 +22,7 @@ A4. Breakfast In America (2:39)(   Читать дальше...   )Жанр: Roc
 ```bash
 magnet:?xt=urn:btih:EADE775C4C119D980E8AC7E45A697BC49B26E0B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

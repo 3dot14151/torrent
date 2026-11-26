@@ -19,8 +19,7 @@ Mazetools Soniface 2.51 [En]
 ```bash
 magnet:?xt=urn:btih:2E258315281F3439DB093A3198E7975CAC8AE648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

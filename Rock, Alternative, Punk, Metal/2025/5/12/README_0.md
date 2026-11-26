@@ -22,8 +22,7 @@ Sandy Denny - Gold Dust (The Final Concert) (1998) Japanese Edition, SHM-CD, Rei
 ```bash
 magnet:?xt=urn:btih:8933762B03F0765C7120E8D922051CA97EED9A49
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A9289C05FA8C819E372246CF4768A708AC179DF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

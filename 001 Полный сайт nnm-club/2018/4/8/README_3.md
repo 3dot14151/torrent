@@ -18,8 +18,7 @@ KeyShot представляет собой средство интеракти�
 ```bash
 magnet:?xt=urn:btih:E77327F82D9805BBC825BD91B8B85E9FC84413A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Hatsune Miku: Project Diva X — это музыкальная игра, в ко
 ```bash
 magnet:?xt=urn:btih:EB0C6A983FDEACE6E3F617D9B21E948FCB6B1E32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ ZODIAC - Reload (2017) Remix [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:99C3155BF67BD19387A904A002C243585BAB0C58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:51C6738896946C09670627EF46C5F39F6AFACD7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Investigator — игра жанра хоррор с видом от перво�
 ```bash
 magnet:?xt=urn:btih:5705EDBF471216D26FF097BB54214DD7B55990FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Connectify – приложение, превращающее любой ком�
 ```bash
 magnet:?xt=urn:btih:F1C92DCC0D4230C39D82EE69CFEC8A8DCB222D7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

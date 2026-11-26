@@ -22,8 +22,7 @@ IronFlame - Worlds To Conquer (2026) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:6D4A8408DB78C95CB2B4B0B16B0D69DB41059BCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Baroness - Gold & Grey (2019) [FLAC|Lossless|image + .cue] <Stoner Rock, Progres
 ```bash
 magnet:?xt=urn:btih:683B36DA9D96125361627A7A3FF0A6E3884F3884
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Armadilha - Além do Limite Astral (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 ```bash
 magnet:?xt=urn:btih:84CB4F304FB9FCB2071F906829B5CC271F8AE955
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Sister Hazel - Lift (2004) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock
 ```bash
 magnet:?xt=urn:btih:BA2972027EE3984EF631220936343DF8C8873E91
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Better Than Ezra - Deluxe (1995) [FLAC|Lossless|tracks + .cue] <Rock, Alternativ
 ```bash
 magnet:?xt=urn:btih:BE11A3A77E82572D2FFFC7FF54FD9EB89307F770
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ LP (Laura Pergolizzi) - Room 12 (2026) [MP3|320 Kbps] <Indie Rock, Pop Rock, Fol
 ```bash
 magnet:?xt=urn:btih:EC0332AF79822CEE644EF528EC80AAB1031CC314
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

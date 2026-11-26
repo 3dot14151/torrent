@@ -19,8 +19,7 @@ Space Prison бросает вас в холодную реальность га
 ```bash
 magnet:?xt=urn:btih:613D4C70D3EEE67FEA970E77B3DCD6866197F4CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Bzzzt - это захватывающий высокоточный платфо�
 ```bash
 magnet:?xt=urn:btih:986F5C4A16A16F5E32B4EACB5BC5DC524D8A04FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Artifact Seeker погружает вас в 3D Roguelike RPG, где Аврор
 ```bash
 magnet:?xt=urn:btih:8F60E7DB396EE13EF10A69DE07BBEFC4127BEB86
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.2.0.2) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E2D4F2CF6927F2EB207C74F48DBA5AA19D8DD0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D85E7B59BC657BB576B7E7EA9540D5857772AF84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Age of Defense (2019) [En] (1.15) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:566056BD14263B11250009CBBD1F73965F73300D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Cassette Beasts (2023) [Multi] (1.6.2/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7780AEAB5EDB58858004E5E00211DF6E9C670962
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ KitHack Model Club - это основанная на физике песочн�
 ```bash
 magnet:?xt=urn:btih:54E44F57C99D1D24D187A6C413DADE6D56ECFE53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Fishing Adventure – реалистичный спортивный симуля
 ```bash
 magnet:?xt=urn:btih:9BAF5A88C436E5B940135F0AFF2AAE3320C3B8FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Ingression бросает ветеранам платформеров неожи
 ```bash
 magnet:?xt=urn:btih:AA4DA40459D820B35F668308CFC5487AB60DCA60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

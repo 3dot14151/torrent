@@ -19,8 +19,7 @@ Dark Parables 6: Jack and the Sky Kingdom (2014) [En] Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:92A9B62E8E89849736D1F800EEF71D8E5D116436
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Strange Discoveries: Aurora Peak / Странные открытия: Пик А�
 ```bash
 magnet:?xt=urn:btih:B97BE7F332E741A15F9B0B1394776F85A99C955D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Virtual Families 2 – Our Dream House (2013) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:F4E4CE0DAA2AAD517615E3E4B8AD4BE72854C01E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Mystery of the Ancients 3: Three Guardians / Тайны седой древно�
 ```bash
 magnet:?xt=urn:btih:30F7DC1851887212B6A2CCCA96A8E25EF908F3A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Hunter's Trophy 2: America продолжает серию симуляторо�
 ```bash
 magnet:?xt=urn:btih:2D5DDAF2BA2DFE460941C228A4A0254479FA8590
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ The Darkness II/2 (2012) [Ru/Multi] (1.1/dlc) License PROPHET [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:38FC26CF701C43079025E2450C0DA5367FCE564D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +175,7 @@ Cities XL – это градостроительный симулятор но�
 ```bash
 magnet:?xt=urn:btih:7EA997260FEF8063596F09E506E6BB95250A93BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

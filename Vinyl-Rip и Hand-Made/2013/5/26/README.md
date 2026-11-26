@@ -22,8 +22,7 @@ Abba - 7 Альбомов (1975-1981) /Polar-Disco mate, Japan/ [FLAC 2.0 24/192
 ```bash
 magnet:?xt=urn:btih:3F46A3A0C00943AFC55E458B73EAFF845F873126
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Rage Of Light - Melodic Death/Trance метал-группа из Швейцар
 ```bash
 magnet:?xt=urn:btih:446E0DEBBC6D8173825DAB3B75670C59F6803B3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Midnight Mysteries 6: Ghostwriting / Тайны прошлого 6: Литера
 ```bash
 magnet:?xt=urn:btih:581C71BF51FA50E9D6A9540B1881ECC939CB7DA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeons 3 (2017) [Ru/En] (1.2) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:D6CB2C52A5B3CFA4FE232DD2F7E0DCA4F2E9BAE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

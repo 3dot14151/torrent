@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:753142A488FE2A36A96D97CEEDE12943D3E197E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Python. Самое полное руководство по разработке
 ```bash
 magnet:?xt=urn:btih:AC84E72DE4EB969FFFCF12A571C9E58AACA632CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

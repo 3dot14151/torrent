@@ -19,8 +19,7 @@ Tales of Hongyuan (2017) [En/Ch] (1.1.0/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:4065B2228D4656280E82ACC36ED8CEDEE5E78404
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Opus Magnum — новая игра-головоломка с бесконечн
 ```bash
 magnet:?xt=urn:btih:F6FFA0E53081277A9DCBC982DC04051DB6A54008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Donut County – сюжетная головоломка с реальной ф�
 ```bash
 magnet:?xt=urn:btih:1680FE1BDF3970351CAA47F85C545190FEDB6E72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

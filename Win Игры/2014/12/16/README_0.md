@@ -21,8 +21,7 @@ Club Manager 2015 (2014) [Multi] (1.39) License POSTMORTEM
 ```bash
 magnet:?xt=urn:btih:E1F1EF3EB66C312CD3F76ED4A4D1100DC11CFBE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ BlazBlue: Continuum Shift Extend (2014) [Multi] (1.0) Unofficial FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:08EFB161658761BFC57FD276E3954125D9B7FB3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Mount & Blade: Warband — воплотила в жизнь средневеко
 ```bash
 magnet:?xt=urn:btih:4D0E8AEE4B297D751C6F1B24A88C53C9823FF021
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

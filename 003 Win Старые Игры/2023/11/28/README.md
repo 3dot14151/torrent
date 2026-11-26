@@ -19,8 +19,7 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:12A10019087BA80DDC03351268063B15783963D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ STAR WARS Empire at War - Gold Pack – сборник стратегий в р�
 ```bash
 magnet:?xt=urn:btih:116EAE12C56669A6CE23099F643DD9C7D00DEE44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

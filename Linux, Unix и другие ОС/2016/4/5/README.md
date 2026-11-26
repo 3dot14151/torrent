@@ -19,8 +19,7 @@ Debian GNU/Linux 8.4.0 Jessie Live [i386] 7xDVD
 ```bash
 magnet:?xt=urn:btih:11384725AC4287BB2B67D2B64EC43945BFE79C45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Debian GNU/Linux 8.4.0 Jessie Live [amd64] 7xDVD
 ```bash
 magnet:?xt=urn:btih:77CA47E4545A49254F777858CC7C4D162915BC4A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

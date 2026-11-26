@@ -19,8 +19,7 @@ Aether - 2 Releases (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Sl
 ```bash
 magnet:?xt=urn:btih:B47B58429289071916F14819D57DE45F4418D0A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

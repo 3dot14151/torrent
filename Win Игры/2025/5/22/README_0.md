@@ -19,8 +19,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:134AEA816A8045ABB317019F93405B7D1485A1FA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Ai Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:57BCBBE9571B3398EAB53E96067990C780BCF53D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ JDM: Japanese Drift Master сочетает в себе реалистичную
 ```bash
 magnet:?xt=urn:btih:3B4A14B9DC65B17B215952A34C2D5BD72BAC3C1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Empires of the Undergrowth – это уникальная по своей ме�
 ```bash
 magnet:?xt=urn:btih:7DFB09EBC8B2FD818614EF4AA05B9CCABE22870E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Dustborn - дорожное приключение, вдохновленное �
 ```bash
 magnet:?xt=urn:btih:04FB666F12828B87753F6821CDB4C24705A0B717
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Dwarven Realms (2022) [Ru/Multi] (1.4.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:24F476EE65D26A24BF2EFD7CAB00D9FFF8FDC68C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ ENDLESS Dungeon - это уникальный тактический roguelite-�
 ```bash
 magnet:?xt=urn:btih:7A803574B9E0E37DEE7C2AFB256342D7B81CF696
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ Tactical Warfare (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:056DDA4907AC5BDEA89CCF65C85E882A3CA73D07
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,8 +221,7 @@ FANTASIAN Neo Dimension (2024) [Multi] (29100132/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A330B166416C2E304C8AC5BF6162093C38445F4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,8 +246,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:2389EA39BBEFA8B72521771FF0159ABD8BDA0C67
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

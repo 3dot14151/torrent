@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:793DF431E365B939AC2D468AAABF1152BC67A2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ED993CBBBEFDC5568BA8DCB73A3F97D1F388CA40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Playboy's Hot Housewives - специальный выпуск Playboy родо�
 ```bash
 magnet:?xt=urn:btih:7CEA8E3DD4C0F1741698429E6504F49E10585CD2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

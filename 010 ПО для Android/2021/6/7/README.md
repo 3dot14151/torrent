@@ -19,8 +19,7 @@ Launcher iOS 14 устанавливает новый стандарт для м
 ```bash
 magnet:?xt=urn:btih:83D11138E6A8EE7640856E4A8E505A1867E03278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

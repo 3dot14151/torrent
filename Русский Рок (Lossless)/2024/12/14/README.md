@@ -22,8 +22,7 @@ Beer Bear - За Незримой Чертой (2012) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:06AA6A698EBEDA0E1873B675EF5D16FCF54A44F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Captain Marryat - Captain Marryat (1974) [MP3|320 кб/с]<Rock, Psychedelic Roc
 ```bash
 magnet:?xt=urn:btih:5B65643617BE11369E64137A5E5428A5312B0EED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Chris - Days Of Summer Gone (2013) [MP3|320 кб/с]<Art Rock, Prog Rock, Sympho
 ```bash
 magnet:?xt=urn:btih:A61A7381CDC9E1E813FBE1C9D69798CBD2979B20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Black Light Burns - Cruel Melody (2008) Limited Edition [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:EBEFFEC15F5EFED138058D241A1F9E29B590C6EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Crazy Town - 3 Альбома, 5 Синглов (1999-2015) [FLAC|Lossless]<Alte
 ```bash
 magnet:?xt=urn:btih:23BDFC48C2DF94300BCD64D1C0631CE1752D2427
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25B691549B70140E6FED82591362C38E5618BBF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

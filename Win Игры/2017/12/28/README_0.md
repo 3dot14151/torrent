@@ -19,8 +19,7 @@ Grim Facade 10: The Message / За гранью жестокости 10: Пис�
 ```bash
 magnet:?xt=urn:btih:3D5F664F3EFA364F17E5DF1CABD07E7FE544E486
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Euro Truck Simulator 2 дарит вам опыт управления самы�
 ```bash
 magnet:?xt=urn:btih:57148B3799CC638D28572ECE3A1C5508794F7402
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

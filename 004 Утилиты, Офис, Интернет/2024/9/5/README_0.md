@@ -19,8 +19,7 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:D6CA96F0F2CDF432FA0194F3AF38F1DB93AAAD62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ApowerREC - это программа которая может записыва
 ```bash
 magnet:?xt=urn:btih:664B57523326DBF24EF06B1E4B5E20FC146D3514
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Final Cut 6: Fade to Black / Последний дубль 6: Затемнени
 ```bash
 magnet:?xt=urn:btih:3BE684FC9AF860D5AB9DF0633A270EC78A8BAE21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Christmas Stories 5: The Gift of the Magi / Рождественские ист�
 ```bash
 magnet:?xt=urn:btih:B716F5D2D9AA5FD522811750ADF8F6A4E0C1A08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ F1 2016, официальная видеоигра 2016 FIA FORMULA ONE WORLD CH
 ```bash
 magnet:?xt=urn:btih:DD191B3D5D3BC4D7AF4A9D2C87829158BBAAA24C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ F1 2016, официальная видеоигра 2016 FIA FORMULA ONE WORLD CH
 ```bash
 magnet:?xt=urn:btih:B47E09C7866464D732305E580E4DCA4D24FA50B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Virginia - триллер от первого лица про маленький
 ```bash
 magnet:?xt=urn:btih:E43DE0596AE274865BA511F5279DB16773AF9270
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

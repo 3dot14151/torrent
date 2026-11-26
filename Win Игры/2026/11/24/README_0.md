@@ -19,8 +19,7 @@ METAL GEAR SOLID Δ: SNAKE EATER - современный ремейк METAL GEA
 ```bash
 magnet:?xt=urn:btih:72880FA7BE1529F0FFC8A7AD9B549C55A2864E8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Phantom Blade Zero - динамичная ролевая экшен-игра в 
 ```bash
 magnet:?xt=urn:btih:26E3128312BC1EC67E9CE2D8E66AFBF25A0151F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E0138FC09DB209EA4B8C87D66A1F5552CA34A389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Bendy and the Dark Revival - это хоррор-игра на выживани�
 ```bash
 magnet:?xt=urn:btih:788FA710889F95609509D4C4806B79EE51643FEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Crimson Desert - экшен‑RPG в открытом мире от студи
 ```bash
 magnet:?xt=urn:btih:34B7F74609ECEB1B80A789CA0752419A215255BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Okko The Exiled - это динамичный экшен‑платформе�
 ```bash
 magnet:?xt=urn:btih:12666F988AB873BEE213DD754C704FC9D0FA501E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Warlords IV: Heroes of Etheria - это пошаговая стратегия 
 ```bash
 magnet:?xt=urn:btih:BA7A5998086E797BBA1F7D09A620BE45721EEF9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Tenebris Somnia - это атмосферный хоррор, в которо�
 ```bash
 magnet:?xt=urn:btih:F0B62576939DC8B8D44F5E2284C083408AC3C192
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ BrokenLore: DON’T LIE - это психологический хоррор о�
 ```bash
 magnet:?xt=urn:btih:43290602A4054C0BF43C4164349E96939EE347F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Moadra - научно‑фантастическая метроидвания,
 ```bash
 magnet:?xt=urn:btih:9EAA6BC5E96C0EF04BA937E6EA88BAB4738580CE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Phantom Blade Zero - это динамичный экшен‑RPG в эсте�
 ```bash
 magnet:?xt=urn:btih:D8D0D6582D522733BBB66FFB052322B6AF3914E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

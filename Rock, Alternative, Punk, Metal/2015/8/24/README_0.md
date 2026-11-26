@@ -22,8 +22,7 @@ From Autumn To Ashes - Holding A Wolf By The Ears (2007) [MP3|320 кб/с]<Hardc
 ```bash
 magnet:?xt=urn:btih:0412465D478720E842058CE47EB46E700AFE75FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Metal Church - The Dark (1986) [FLAC|image +cue] Japan <Heavy/Power/Thrash Metal
 ```bash
 magnet:?xt=urn:btih:A344D04B65BA0CB0F4EFB1E27DE18B625CC896A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Ashes Remain - Last Day Breathing (2007) [MP3|320 кб/с]<Alt.Rock , Modern Roc
 ```bash
 magnet:?xt=urn:btih:3896FAD4505E44304FEFEEB63CB0504A96B55753
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Roуаl Нunt - Devil's Dozen (2015) Japanese Limited Edition [FLAC|image+.cue]<
 ```bash
 magnet:?xt=urn:btih:00652AF547DFECA646D0F7BD8B9E52CBA038B3D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Senses Fail - Pull The Thorns From Your Heart (2015) [MP3|320 кб/с]<Hardcore 
 ```bash
 magnet:?xt=urn:btih:0BF160BB7E49F01D38BF368E365542F504D6D864
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Radkey - Dark Black Makeup (2015) [OGG| 444-518 кб/с]<Alternative Rock, Garag
 ```bash
 magnet:?xt=urn:btih:FFC810B7D586C01957B650415D539DBAD43ED9AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Royal Hunt - Devil's Dozen (2015) Japanese Limited Edition [MP3|320 кб/с]<Mel
 ```bash
 magnet:?xt=urn:btih:B5015D2AFEBC99464A513481FF15F3C458DF1D0F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Oomph! - XXV (2015) [FLAC|image+.cue]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:1BBA363FEAEB7C87591E67736CFD4A617DB13389
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Bon Jovi - Burning Bridges (2015) [FLAC|image+.cue]<Melodic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4595C003099ECB051196A7A3005C6950D4EB4C01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ VA - Stairways To The Songbook Of Led Zeppelin - Homage To The Legend (2015) [FL
 ```bash
 magnet:?xt=urn:btih:CF5FA00BF99124381EFCD2682CF6924D949A6FE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DABBE15CF33B37B46BA1BAE5D486CA6E38D47AAE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

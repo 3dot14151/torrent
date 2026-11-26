@@ -19,8 +19,7 @@ Windows 11 Classic Context Menu v1.2 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4DF1065E18BE08E14F9E5E7CE79E378008A37C5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ LIMBO 1.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:5A56117A3C456F49B8ABB6166C39216B3A8F1CB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

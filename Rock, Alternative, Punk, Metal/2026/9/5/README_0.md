@@ -22,8 +22,7 @@ Titanosaur - A Thousand Suns (2026) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal,
 ```bash
 magnet:?xt=urn:btih:6BC4B7AF73FEABD667FBF92C57C4C74C35914BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Loudermilk - The Red Record (2002) [FLAC|Lossless|tracks + .cue] <Rock, Hard Roc
 ```bash
 magnet:?xt=urn:btih:83916773A56D2A99E6BAD2FA2E1648F8357341F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ The Verve Pipe - Villains (1996) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:D102C6336B1C8EC97D91C44B2F033F020E7D01F7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Tales Of Perdition - The Theatre Of Existence (2026) [MP3|320 Kbps] <Symphonic H
 ```bash
 magnet:?xt=urn:btih:6ECB8E318FA363D8E58CD4FADECE2B2295CBC470
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Pyroclast - Fractured State (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:A73F9DF3D44152E986F03388C4A900F7757D36B1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

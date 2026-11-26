@@ -19,8 +19,7 @@ Bonfire Stories 3: Manifest Horror / Истории у костра 3: Вопл�
 ```bash
 magnet:?xt=urn:btih:CFADDF897ACA0412E4EF845275E6905C99303510
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark City 4: Dublin / Мрачный город 4: Дублин (2020) [Ru] (1.0
 ```bash
 magnet:?xt=urn:btih:D206C5458B9D0194E9E2166E2BAA8C257A4B8073
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6848DB5E4E14AAA26A98BBBA8D6DAB770596B3EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Wartile — это тактическая стратегия про викинг
 ```bash
 magnet:?xt=urn:btih:58921A1A6BE3BA888C3465F9E316DE262A2CDCF3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

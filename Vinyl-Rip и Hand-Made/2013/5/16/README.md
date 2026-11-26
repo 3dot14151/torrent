@@ -28,8 +28,7 @@ C2. Mjau	(5:53)(   Читать дальше...   )Жанр: Contemporary JazzП
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Side B:
 ```bash
 magnet:?xt=urn:btih:BF830D48090362DF9733C443B5DA2065988517D3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Alice Cooper - Welcome To My Nightmare (1975) [FLAC 2.0 24/96 |tracks (Vinyl-Rip
 ```bash
 magnet:?xt=urn:btih:65DA53995E74B98AA39E14DC51B0B5FA07B18EEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Bon Jovi - 6 альбомов (1984-1995) [FLAC 2.0 24/192 | image + .cue (Vinyl
 ```bash
 magnet:?xt=urn:btih:E376561AF9FC9F5C45A9C99A2F53C521A2441BB5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +160,7 @@ Giorgio (Giorgio Moroder) - From Here To Eternity / E=MC2 (1977, 1979) [FLAC 2.0
 ```bash
 magnet:?xt=urn:btih:2343E463E29CA649563792D76640951BE5C1592C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

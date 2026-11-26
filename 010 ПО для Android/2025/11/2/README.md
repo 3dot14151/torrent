@@ -19,8 +19,7 @@ Ventusky: Прогноз погоды v48.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A0A5B4F7E5A4EF46FDE10920EBB05D3BC8966A2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B174B9D9220CCD1BA05BBFAD799D4D0FFE0752C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ TV+: Бесплатное Онлайн Телевидение
 ```bash
 magnet:?xt=urn:btih:1D794D3638686A4C1A6F4163EB7FCAA4FD07CC21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ Talksy: Навык общения v0.1.8 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6E4A2F506378A128578845762A69792A18EEADF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Food.ru — это пошаговые рецепты и мобильное пр�
 ```bash
 magnet:?xt=urn:btih:4F837A18922EA73C925560AD0B8E19BC2AA7C7CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,8 +149,7 @@ Sipnetic – это бесплатный программный IP-телефо�
 ```bash
 magnet:?xt=urn:btih:70B761532FCAD7EF4F8216392186D8A8F525E808
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ Cleaner for WhatsApp — это мощный инструмент для очи�
 ```bash
 magnet:?xt=urn:btih:302844EFDD64F6B72A12ADCD735E46B3230035BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:029F9F284286BF656A4C315C4F253143CB252CA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +224,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1261C8C6F04177D020516C0974B5969592486B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,8 +249,7 @@ VRadio - Online Radio App v2.8.8 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C4A725D0CD08C370BD57E0A122B42FEF58B2CFC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,8 +274,7 @@ WeNote: заметки блокнот планер v6.50 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:F1612BF5F6A8906C5ED9EA9FEEF18FD4FB34D367
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4FE85B62D1B5C69691B59A7A4F51A007821C5D2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ AI Photo Editor Pro - Polish v1.685.235 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:319B31A1053866BAA5CB02E8F67FBF53D055C07D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

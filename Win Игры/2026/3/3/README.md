@@ -19,8 +19,7 @@ BioShock Infinite – шутер от первого лица, с множест
 ```bash
 magnet:?xt=urn:btih:840AC74BADC085934634CB8CFB60BBC33F2AA04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ BioShock 2 идеально сочетает взрывную динамику �
 ```bash
 magnet:?xt=urn:btih:5A4D8D9DFE4FAD0618201B33A3A5B721B422FB83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:535CE3240709BA213AAC51809BEED84CCA5F50E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ ABZÛ — это красочное приключение в подводном
 ```bash
 magnet:?xt=urn:btih:73FFD50CE788AA5DEDCADD6859A790DCBFC3DE27
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

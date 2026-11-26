@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:6AF7AFAF2B82C09CE28E62E860EE9A496A6105EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:D38EBD7A563937EBE123EB7D8720B52F7E95A001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,8 +73,7 @@ NAVITEL® выпустил глобальное обновление всех к
 ```bash
 magnet:?xt=urn:btih:F4153D951F56B82FC210973A5BB650379E9B1055
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:C6E632523126711465F86DB33CBD2AE15FCAF41D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,8 +126,7 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.10.11.21) [Ru]
 ```bash
 magnet:?xt=urn:btih:3E5B15B6AB324A28BCB31C5038CB89DDAD0BA223
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,8 +151,7 @@ Windows 10 IoT Enterprise LTSC 2021 основана на Windows 10 Pro вер�
 ```bash
 magnet:?xt=urn:btih:29E10FD1688E053AA6A311C31847503BA730772E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,8 +177,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:93EF4EA2ADC0DF7587461C4E076C981F9BDDFEFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,8 +203,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1DF29F7EF649FDC1EA08AC7FDB95400B4243EB5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

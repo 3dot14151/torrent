@@ -23,8 +23,7 @@ Thurisaz - The Pulse Of Mourning (2015) [MP3|320 кб/с]<Atmospheric Black Meta
 ```bash
 magnet:?xt=urn:btih:50D0677DD1F8B6C2C51DE6CEFA92A9B08ADBA74B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Wynder K. Frog - 2 Альбома (1968-1970) Reissue, Unofficial Release /2004,
 ```bash
 magnet:?xt=urn:btih:08086D4088F966940AA6357F822A354856293623
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Tristana - Virtual Crime (2015) [MP3|320 кб/с]<Melodic Modern Metal>
 ```bash
 magnet:?xt=urn:btih:4608477CF2B78D798A4BCFDE084666335DB9A3E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ The Poodles - Devil In The Details (2015) [MP3|320 кб/с]<Hard Rock, Melodic M
 ```bash
 magnet:?xt=urn:btih:CFB08CAC46661CC640C2C1E78F6990820B1DE8B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -141,8 +137,7 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F398BC9E9E147A2923C033B1D0369CE1B472449A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +166,7 @@ Temperance - Limitless (2015) [MP3|320 кб/с]<Melodic Modern Metal>
 ```bash
 magnet:?xt=urn:btih:8F4470D6B4AE177B796DDEA2ECA66B778407A5C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +195,7 @@ Billy's Band - In Rock (2015) [MP3|320 кб/с]<Rock, Blues, Alcojazz>
 ```bash
 magnet:?xt=urn:btih:20075BE67C65DC7532948387903754105524A2A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +223,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AF652A6BD8D4DBDB41F6E8E1E0D3C8660A6585BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ Three Days Grace - Human (2015) [FLAC|Lossless]<Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:02291EF6E7CCA6A774C8CEF1D19FBEDB6152C948
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,8 +280,7 @@ Linkin Park - Hybrid Theory (2002) 2CD Special Edition [FLAC|Lossless]<Alternati
 ```bash
 magnet:?xt=urn:btih:ECAA2039D0FA24E6EB0BFC0C5D7B69D6F0FC01DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -24,8 +24,7 @@ Lovesilkpalemilk - Mircea (2013) [MP3|320 кб/с]<Post Black Metal, Shoegaze>
 ```bash
 magnet:?xt=urn:btih:14EA13175433466A10A2D10EEC18F5716C911FF1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Mediocracy - Asoma (2011) [MP3|320 кб/с]<Crust, Sludge Metal, Hardcore>
 ```bash
 magnet:?xt=urn:btih:7084A07CC310F6E9107B30B228E1A095BE45B2F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Apocryphal - Ritual Entombment (2014) [MP3|320 кб/с]<Death Metal, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:027D3D93BC6C0FA4C2796E0C5A7B8F939530409B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:19B9948E362C3C29E49DCFBC68E0311F278EE750
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +146,7 @@ Valley Of Hinnom - Acquisition Of Guilt EP (2014) [MP3|320 кб/с]<Post Black M
 ```bash
 magnet:?xt=urn:btih:AB424144C0E459EB655FB854B41E582C7B186F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,8 +176,7 @@ Atrium - Journeys And Melodies (2014) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:4E30620079AC0258ADCF97D8E3DA73DBE8C21A8D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Easy Lover - s​/​t (2014) [MP3|320 кб/с]<Screamo, Melodic Hardcore, Punk>
 ```bash
 magnet:?xt=urn:btih:2B905908E94A53EB2EF34CD675D419A77366F0D8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,8 +239,7 @@ Auxford - Reflection (2014) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:56A7D351A7594D04E15F96D7DB553CAE97782511
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,8 +272,7 @@ Eskatologia & Distress - Split (2010) [MP3|320 кб/с]<Crust, D-Beat, Punk>
 ```bash
 magnet:?xt=urn:btih:E0CC85F4899A0AE6FBAD0850A701EBB581FADA68
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +300,7 @@ Zato​-​Ino - Zato​-​Ino (2014) [MP3|320 кб/с]<Screamo, Punk>
 ```bash
 magnet:?xt=urn:btih:82F4A358EBC9D4A07B9295898488C1CAD001C6DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,8 +334,7 @@ Beaulieu Porch - Beaulieu Porch (2014) [MP3|320 кб/с]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:B6D32C71960B774A35ED99E7E97E07E62370A78B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +362,7 @@ Tremulan - Without (2014) [MP3|320 кб/с]<Screamo, Post Hardcore>
 ```bash
 magnet:?xt=urn:btih:FCCC129C9A16814BB87CFC72B5B384D47B8CF344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +396,7 @@ Black Cult - Neo-Satanism (2014) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:2AA5E1A7CF75FA95761ACB812D28155C8E6CF899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +430,7 @@ VA - Magnifique Musique: Selection 01 (2014) [MP3|320 кб/с]<Downtempo, Lounge
 ```bash
 magnet:?xt=urn:btih:712840480572A59649A0E8860B0A75354D6A12D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,8 +458,7 @@ Glances - Ep 2014 (2014) [MP3|320 кб/с]<Melodic Hardcore, Emotional Hardcore,
 ```bash
 magnet:?xt=urn:btih:C275864E0FF58482102D59A435DF0202750EF4C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +492,7 @@ Alison May - Loved/Dark (2014) [MP3|320 кб/с]<Folk, Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:18B53E55EF1EF6C48FE1BA66062573B22D460CB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +526,7 @@ Ab Ovo - Le Temps Suspendu... (2004) [FLAC|Lossless]<Glitch, IDM, Ambient>
 ```bash
 magnet:?xt=urn:btih:6E23A8D7D8C73B816EE005D8E296D6BD4D06099A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,8 +555,7 @@ Tromblon - EP (2014) [MP3|320 кб/с]<Screamo, Hardcore>
 ```bash
 magnet:?xt=urn:btih:4474D4734E83DB62077EE1F2D64ECE02AD5A3822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +586,7 @@ Avoral - War Is Not Over (2014) [MP3|320 кб/с]<Epic Power Metal>
 ```bash
 magnet:?xt=urn:btih:688A5E4D36C72EA20A8B03386047EFFBA6E58D9B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,8 +620,7 @@ At The Grave - At The Grave (2014) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:69C54BEA64A6C41023C98843EA3CA9621553164E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,8 +650,7 @@ Sunwolf - Beholden To Nothing And No One 2CD (2014) [MP3|320 кб/с]<Post Rock,
 ```bash
 magnet:?xt=urn:btih:6BEFAAC2674B4C5C316D657363DACC33B2FC7BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +683,7 @@ Adult Jazz - Gist Is (2014) [MP3|320 кб/с]<Indie Pop, Rock, Experimental>
 ```bash
 magnet:?xt=urn:btih:206ED70CC1851FED1FD37D1F46192F1E2B012645
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -739,8 +717,7 @@ Sviatibor - From Yav To Nav (2014) [MP3|320 кб/с]<Atmospheric Black Metal, Am
 ```bash
 magnet:?xt=urn:btih:8E0A761A9E9323B8C7B0F74DE93246A5F1FDB536
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -772,8 +749,7 @@ Cold Body Radiation - 3 Альбома (2010-2014) [MP3|320 кб/с]<Atmospheric
 ```bash
 magnet:?xt=urn:btih:9D50CACF5766C4A4859CC88FF95902FA253C9F9E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -807,8 +783,7 @@ VA - MiniMaliZm Vol. 1 (2014) [MP3|320 кб/с]<Minimal>
 ```bash
 magnet:?xt=urn:btih:BFFB913A906C334285A3D3FBB70E683C81081F60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -842,8 +817,7 @@ Antony Bellicourt - Errata (2014) [MP3|320 кб/с]<French Pop>
 ```bash
 magnet:?xt=urn:btih:238A4991B78921E05D8C9ADCE524A045FA89B5AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

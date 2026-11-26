@@ -24,8 +24,7 @@ Vinterbris - Solace (2014) [FLAC|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:A172D1E5C097852DE0D1CA5D2F54A1A52266EACA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -59,8 +58,7 @@ Godsmack - 1000hp [Deluxe Edition] (2014) [MP3|320 кб/с]<Alt. Metal / Hard Ro
 ```bash
 magnet:?xt=urn:btih:CE21A4143DEA417FBEF4E363E1F7F630EA9E4E7A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -87,8 +85,7 @@ Emil Bulls - 10 альбомов и 11 прочих релизов (1997-2014) [
 ```bash
 magnet:?xt=urn:btih:508DBE21BACD7223DEF486034AE47EFEC1F2BB48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

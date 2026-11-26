@@ -19,8 +19,7 @@ Mysterium: Lake Bliss / Мистериум: Озеро счастья (2013) [Ru
 ```bash
 magnet:?xt=urn:btih:22BE352FD420DF7A01564559334C8CC9E0AEE0DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -23,8 +23,7 @@ Within The Fall - Where Sorrow Grows (2015) [MP3|320 кб/с]<Melodic Doom/Death
 ```bash
 magnet:?xt=urn:btih:EADF21EA82DC6DC16B7DE2B1C04294C910899DD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Kollwitz - Dissonance (2015) [MP3|320 кб/с]<Post Hardcore, Post Metal, Sludge
 ```bash
 magnet:?xt=urn:btih:18AD2FB44F098FFFAB79A091455D8D09820B4475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Diamond Rugs - 2 альбома (2012,2015) [MP3|320 кб/с]<Alternative/ Indie
 ```bash
 magnet:?xt=urn:btih:9DAE020DF70F3FE6F97B6E52D9482C15E078B0BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ Kardan - XXI век (2015) [MP3|320 кб/с]<Hardcore Punk>
 ```bash
 magnet:?xt=urn:btih:C7FCB0BF21512528A77F078A5DABAF7653517ECD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -143,8 +139,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:43D01C091295D30B1A8430CC0F49435138886D56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -173,8 +168,7 @@ The Darwin Project - Something To Save Me (2015) [MP3|320 кб/с]<Modern Heavy 
 ```bash
 magnet:?xt=urn:btih:D6B18B331DE98FDA9089980A58E2E8D28151EEA0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +198,7 @@ Wildpath - Disclosure (2015) [MP3|320 кб/с]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:972B52BE4ABD4EB40AE65B2E6D0B8A42461B3311
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,8 +227,7 @@ Karnataka - Secrets Of Angels (2015) [MP3|320 кб/с]<Symphonic Rock, Progressi
 ```bash
 magnet:?xt=urn:btih:0D61F48EC60F5CEFDA9912EC8BC546959F4827AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,8 +256,7 @@ Almah - Within The Last Eleven Lines (2015) compilation [MP3|320 кб/с]<Melodi
 ```bash
 magnet:?xt=urn:btih:46892DA21433F1096110D50B304F5956368DBB40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,8 +285,7 @@ FalStep - На Краю Земли (2015) [MP3|320 кб/с]<Nu Metal, Alternativ
 ```bash
 magnet:?xt=urn:btih:DAB71402EC9D91C1404A7312FE1E613C118C7C41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -324,8 +314,7 @@ Universe - Mission Rock (2015) [MP3|320 кб/с]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4B26811729D61FAB557D648BA7357EC11FF10044
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +342,7 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:BEB94970CFE211375CAC10A149CD515406698115
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +371,7 @@ Joe Cocker - Mtv Music History (2000) 2CD [FLAC|Lossless]<Rock,Blues>
 ```bash
 magnet:?xt=urn:btih:0F6AD7CA257F8613524E81D4F8B416F675E44180
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,8 +400,7 @@ Animal ДжаZ - Хранитель весны (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:48B9FE3143849325C7B7E785AAD743A8D5611C8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +429,7 @@ CD1
 ```bash
 magnet:?xt=urn:btih:2A879C8F4B50E231582BA2BA6DCD5B4CD8663161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

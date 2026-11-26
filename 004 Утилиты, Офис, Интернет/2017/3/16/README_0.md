@@ -19,8 +19,7 @@ PCSpeedUp проводит комплексную проверку систем�
 ```bash
 magnet:?xt=urn:btih:415FABE8413D57BF317028C9593EA9C42769172F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ TweakBit Driver Updater - простая в использовании и мощ
 ```bash
 magnet:?xt=urn:btih:1E69A2367459AE19E47EA45C8192BF1AFAEEC902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

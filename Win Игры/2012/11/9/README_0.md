@@ -19,8 +19,7 @@ Newshawk: Bags A Bootlegger [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:33CBA6C27F93D9CD7E77A13436D9DA3DB8AE78F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dana Knightstone Novel #3 : Death Upon An Austrian Sonata Collector's Edition [E
 ```bash
 magnet:?xt=urn:btih:C485CF677151256F23B6248C9279B5ACCD61BFA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Weird Park 2: Scary Tales [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:39BE57369E5DA364404495436079C0AFAFC4F4A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Journey: Heart of Gaia [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:FC19F51AFCD1E838B071D67B597F6AD3C37FA9A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (RePack/1.0u1/2 DLC) 2012 | R.G. Shift
 ```bash
 magnet:?xt=urn:btih:D7C779AC7280799C07AE040BF0EE38C2ECF62CCD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ James Bond 007: Blood Stone [Ru/En] (RePack/1.0) 2010 | R.G. Shift
 ```bash
 magnet:?xt=urn:btih:77E88AC0600DAADB3F7A3C5FBAFAD0839C97CD16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ NBA 2K13 является продолжением серии баскетбол
 ```bash
 magnet:?xt=urn:btih:D41B2175CBFCF3EC0044699FA25BA77E2CE274A1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

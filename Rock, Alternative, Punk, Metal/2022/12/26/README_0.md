@@ -22,8 +22,7 @@ Aerial - Semangat Serigala (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 ```bash
 magnet:?xt=urn:btih:A68C750C4E98DD469AD646D76E6F64ABFFC73A81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ice Chemicals - Alchemy (2022) [MP3|320 Kbps] <Progressive Metal, Death Metal, M
 ```bash
 magnet:?xt=urn:btih:A61A273D3287EC2FC4202E15CF073ECA7E09A043
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Thammuz - Sons of the Occult (2022) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:DE4BF8A20D3DAFF078B5952EF417270879F8819A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Kryuhm - Only in My Mind (2022) [MP3|320 Kbps] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:EFAD0D3EB910ADC605B4A2D52130242C8DEAA845
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Arctic Winter - CCCXXXIII (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9CF066C277DCD992FD51FB16C39CC09F83E5A503
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ FRAGILE ART - The World You Wanted (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:9D5618778D8ED7D20FDCB66D3471E3812C9E2BFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Aidan Black - About Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:AFCBD0AED2CEF2261A5393059EF575465A609B76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Various Artists - Gods Of Grind (1992) Japanese Ed. [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:78BDEB59FFDB9850E33341AA908684AB088E0BCF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Xenoform - Zombietown (2022) [MP3|320 Kbps] <Alternative Rock, Space Rock, Elect
 ```bash
 magnet:?xt=urn:btih:F53410952D2680C4C6541E6D162A3C387F36E601
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ Garrett Smith - Volume III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:BAFA955C8171A0F32E42B4383DF65B2DABE506C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +303,7 @@ If there is such a thing as Michigan punk, it's Werewolf Jones. Musically, the b
 ```bash
 magnet:?xt=urn:btih:92D0A102A859AAB40C2E723FF350BBF69F84D730
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,8 +331,7 @@ Neopera - Tuba Mirum (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:C52C6826AA7207FCD0A006CFF3719FEF209F4BC6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,8 +359,7 @@ Meshuggah - Immutable (2022) [FLAC|Lossless|image + .cue] <Death Metal, Progress
 ```bash
 magnet:?xt=urn:btih:1D396354CFF89CAEDFCB70037965776CC11A9F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +387,7 @@ Joe Cocker - Joe Cocker! (1969) Reissue, 2017, Audio Fidelity [OGG Vorbis|480 Kb
 ```bash
 magnet:?xt=urn:btih:4EBE8A7AF11E0801489AF5959810C2C1803C244A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +415,7 @@ You wanna hear a band about to explode? In June 1977, Cheap Trick was in Los Ang
 ```bash
 magnet:?xt=urn:btih:4D1BE3546E6FAFEC5E36C34342E7ECA491213156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ Overlord SR - Medieval Metal Too (2012) [FLAC|Lossless|image + .cue] <Heavy/Powe
 ```bash
 magnet:?xt=urn:btih:A0ABDC23E1A69033F2D732AE09A0E129908FCF6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +471,7 @@ Mater a Clivis Imperat - Atrox Locus (2022) [MP3|320 Kbps] <Progressive Rock, Ro
 ```bash
 magnet:?xt=urn:btih:0B401FFC23AFB3CAB934963D6FF9A3C9924CA299
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,8 +499,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:784E75C62E2FE231F8EC56DF15464F48962B6DE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

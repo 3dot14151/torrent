@@ -19,8 +19,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:5DAFE3AE5EC2310F2F3B44A2348C9F4E31A9E39C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Brutal Legend - Эдди Риггс изначально был просто р�
 ```bash
 magnet:?xt=urn:btih:43D6DA1FD5A6B11688FB284490B4589EFBDD99E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

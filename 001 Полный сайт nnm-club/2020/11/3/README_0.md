@@ -21,8 +21,7 @@ VA - DMC - Cool Grooves 56 (2019) [MP3|320 Kbps] <Electronic, Hip Hop, Funk / So
 ```bash
 magnet:?xt=urn:btih:2666A33AD6C343AC693F77F60459F54DB4F8B344
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D39CB825A9A04193E9A4F5F88793857C77789D84
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Liar - 2 Albums (1977, 1978) [MP3|320 Kbps] <Classic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AB32756160DB8BD88078CF968B86CE9DCF028F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +100,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9F46BFF5DA2809DE684D445CA6C0EC91C9940EAB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Bing Crosby & The London Symphony Orchestra - Bing at Christmas (2019) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:2A05DF00F099BD42365B200B898820C4AC0C49B5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ Nora Jean Wallace - BluesWoman (2020) [FLAC|Lossless|WEB-DL|tracks] <Chicago Blu
 ```bash
 magnet:?xt=urn:btih:3C6A06BB8E5E7A224D43EA47B4E7E21DB0012686
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E7F3C314397DDA04FF89496997F67B599B8CDEFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,8 +208,7 @@ ON1 Photo RAW 2020 включает в себя ключевые обновле�
 ```bash
 magnet:?xt=urn:btih:BA91A461DC5C8428CB3ECC72F3709215ED1A3F7D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ VA - Eurobeat Pop Dance Music (2020) [MP3|320 Kbps] <Pop, Dance, Electro Pop>
 ```bash
 magnet:?xt=urn:btih:0031F4C52B8D6246D894DE5AC1D6547B0302114B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:87FC250078171E23E7E63740117000FFB3A54BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:211EDB9ACE73CCE179F18038A1C47DB97D68E105
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,8 +311,7 @@ Axure RP - быстрое макетирование для приложений
 ```bash
 magnet:?xt=urn:btih:E495F735FF4B8EB4041DE8543F413D606234E358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C05F94A8820D2C6F677AC11794306D3712A7EE0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Vivaldi 3.4.2066.94 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8221D86DE49CDB880D4C8BB5BE4A2012D263BF8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3357ABB4B01BE0C693AF5CF4D1AC02835D59D24E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -429,8 +414,7 @@ VA - Late Night Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:61B6F8416159BB885CC5304CEE1EAD5AA98C28E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -455,8 +439,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1030F9893D46771ACBD18C8F63F242D254718435
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +467,7 @@ VA - After Office: Electropop Dance Music (2020) [MP3|320 Kbps] <Pop, Dance, Ele
 ```bash
 magnet:?xt=urn:btih:205976F2574ECA66F89D79A0931F4BDFDEE965CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,8 +493,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F65887B14236808A794A4D6B128BB21357F5BC83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,8 +521,7 @@ VA - Reggae Tropical Party (2020) [MP3|320 Kbps] <Reggae, Riddim, Reggaeton>
 ```bash
 magnet:?xt=urn:btih:AD351ADD392862595C1CD68545D23ECB27219B6D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,8 +549,7 @@ VA - не Громкие новинки недели 86 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:746CA22061FB2FD9D5B4CB4E6E27F23769B13AFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,8 +574,7 @@ Advanced Installer - приложение, с помощью которого, �
 ```bash
 magnet:?xt=urn:btih:DC4D0049DA3B928426118C3A633E250FE1E84C56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ Copa Truck — бразильская автоспортивная серия г
 ```bash
 magnet:?xt=urn:btih:5817FF803AB538AAEE64A879B827186FD6AE6827
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,8 +624,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:88AF996FDADFF20D57ACC28BDC7166A305C1A91A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ Oingo Boingo - 9 Albums (1981-1994) Collection [MP3|320 Kbps] <New Wave, Synth-p
 ```bash
 magnet:?xt=urn:btih:787FA46DB72D790E0CFA1FB741274B718DAA820F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +680,7 @@ Katy Perry - Live At Glastonbury (2017) HDTVRip [H.265/1080p]
 ```bash
 magnet:?xt=urn:btih:68E010AEA56EC79DA2285BB5A0DD3A44472739BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

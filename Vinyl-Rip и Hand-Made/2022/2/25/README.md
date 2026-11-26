@@ -22,8 +22,7 @@ A4 Jennifer(   Читать дальше...   )Жанр: Hard RockПродолж
 ```bash
 magnet:?xt=urn:btih:4EC3E4981565D49CBAD6435161EC100A7D0E8EF7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 Hear About It Later(   Читать дальше...   )Жанр: Hard RockП�
 ```bash
 magnet:?xt=urn:btih:DA78E60A5E8A89BD5959016B8EA513DA20996B77
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Annihilator — трэш-метал группа, основанная в 1984 �
 ```bash
 magnet:?xt=urn:btih:193B72E44DD9C24FEF082A7C379DDB4D32964E2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -28,8 +28,7 @@ Johnny Hawthorn - Pawn Shop Tattered Heart (2013) [MP3|320 кб/с]<Rock, Blues 
 ```bash
 magnet:?xt=urn:btih:4E1F13E134D57DAFB55677B2D8DE3369511F93E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Arcade - Arcade (1993) Japan [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0FE3C18B17D5A018281C3CE0EB0AC6398BE077DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Kandle - In Flames (2014) [MP3|320 кб/с]<Blues-Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:99F271F5C267A0479805BC7ACB3F8A7BAEEDB90B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ NOVA - 3 альбома+сингл (2001-2013) [MP3|128-320 кб/с]<Рок>
 ```bash
 magnet:?xt=urn:btih:111E864B209267A3605C862591F04B69CFE6F980
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Babylon A.D. - Babylon A.D. (1989) [APE|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:48DDC7829A87B4C36B078A2EDE155CAEE8C3070B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Oomph! - GlaubeLiebeTod (2006) [FLAC|Lossless]<Industrial>
 ```bash
 magnet:?xt=urn:btih:0F39B3D36982C18BA053BB48CFF4A333710B0626
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Iron Savior - Rise Of The Hero (2014) Japanese Edition [MP3|320 кб/с]<Power M
 ```bash
 magnet:?xt=urn:btih:1688914DF9F21197EEFC187078A89D7E76710749
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

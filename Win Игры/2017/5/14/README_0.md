@@ -19,8 +19,7 @@ The Fan - это интерактивная новелла с элементам
 ```bash
 magnet:?xt=urn:btih:F005D0850A7ECDE1F1C198628493AAB71F6FE79A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

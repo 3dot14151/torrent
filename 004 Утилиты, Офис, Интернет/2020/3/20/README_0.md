@@ -19,8 +19,7 @@ GPS Track Editor — графическое приложение для анал
 ```bash
 magnet:?xt=urn:btih:F115CD8EF503F98707940841FC2668ECF399AE14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GPS Track Editor — графическое приложение для анал
 ```bash
 magnet:?xt=urn:btih:83FB278095979F78A69E52F1C295D578F3205FDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

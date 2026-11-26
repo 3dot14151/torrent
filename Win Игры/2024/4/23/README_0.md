@@ -19,8 +19,7 @@ Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F61F3820B1E600DD60BC676CC81CBD1A37354FD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ UFO Robot Grendizer - The Feast of the Wolves предлагает взять н
 ```bash
 magnet:?xt=urn:btih:128BA769692049559F663C33E3D0CB553A8A6EC1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Laika: Aged Through Blood – вдохновлённая вестернами р
 ```bash
 magnet:?xt=urn:btih:E10A2541B686A9EFD26C16B827A302C953839E63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Aquamarine - это созерцательное, пошаговое прикл�
 ```bash
 magnet:?xt=urn:btih:A473C887F96886EEF6079037BB0EF93DC7FD4428
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Kingsgrave манит вас в пустынный мир. Приключени�
 ```bash
 magnet:?xt=urn:btih:499DB8B743609D41BE25CA8FACA80F93AC65FE09
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sweet Transit – это градостроение, где все во мног
 ```bash
 magnet:?xt=urn:btih:07440E101CE9B114DBC0136813D36E72A2E78518
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ LAKE The Legend of Snowblind - атмосферная приключенческ
 ```bash
 magnet:?xt=urn:btih:7523D350C3FF14B52EBCB985903E99A3DD672CA3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Shinkansen 0 отправляет геймеров в уникальное пр�
 ```bash
 magnet:?xt=urn:btih:B1006B08DE57CFE513C9E8D89C77766D4160B9F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ The Signal State сочетает в себе игру-головоломку и
 ```bash
 magnet:?xt=urn:btih:F474BA337C79A3CA0C92FF3CD2C7C6514AFA0124
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Rauniot - приключенческий квест, представленны�
 ```bash
 magnet:?xt=urn:btih:676A6FC8BE288D3C60D167EE6FA26474A053D383
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Divine Journey 2: The Five Books of Moses (2024) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:0CEEB5215171CFEF0CCB96F39137B353BBA0FC32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Love Too Easily - это полномасштабный интерактивны
 ```bash
 magnet:?xt=urn:btih:A17F4B19C4F8ADE5893527268AF5020E8DA31C9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

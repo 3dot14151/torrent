@@ -19,8 +19,7 @@ Antergos - современная, привлекательная и мощна�
 ```bash
 magnet:?xt=urn:btih:4B6DAAD7B3D2EB9F7611FA2C46330EF07AED12A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2018) [amd64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:3E01BDF8F9ADF02C835FB66BDE5B07F72575D4DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ubuntu*Pack 18.04 LXDE (Lubuntu) (декабрь 2018) [i386 + amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:F067E740D467DC5550E49121445E396FA5834934
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

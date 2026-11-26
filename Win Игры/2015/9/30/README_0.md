@@ -19,8 +19,7 @@ Samurai Warriors 4-II — экшен от третьего лица. Сюжет 
 ```bash
 magnet:?xt=urn:btih:EEB14577C4E13C50683111854EFE809B6D96989F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

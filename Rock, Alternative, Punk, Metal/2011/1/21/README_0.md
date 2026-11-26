@@ -28,8 +28,7 @@ Kiko Loureiro - Fullblast (2010) [APE|Lossless]<Melodic Progressive / Shred>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ Ozzy Osbourne - Singles Collection 18CD's ((1988-2003)) [WavPack|Lossless]<Heavy
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -117,8 +114,7 @@ Eyes Set To Kill - Дискография (2006-2010) [MP3|320 kbps]<Post-HardCo
 ```bash
 magnet:?xt=urn:btih:D906F2662455A6E8C5C9085AEE3C68964C9A632C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Vpn Украина это Быстрый и бесплатный VPN-серви�
 ```bash
 magnet:?xt=urn:btih:6242A1BDBF67C61525D26C10AF03EAB4BEAE1B39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

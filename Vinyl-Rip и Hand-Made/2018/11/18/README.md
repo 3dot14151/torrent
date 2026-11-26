@@ -22,8 +22,7 @@ A3a I. Allegro Moderato(   Читать дальше...   )Жанр: Classical, 
 ```bash
 magnet:?xt=urn:btih:043DB6865AC7A3DA3B7E74CC914180D2B0C857A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

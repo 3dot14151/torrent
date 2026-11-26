@@ -19,8 +19,7 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:8A8C8EB96791EA7DE6F9262BA2EBBDCF5EB34FEF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Ruined King: A League of Legends Story (2021) [Ru/Multi] (60323/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:999D6AFAC3365A595A8AF2F95C17F87C6A0A6854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

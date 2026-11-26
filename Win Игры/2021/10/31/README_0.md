@@ -19,8 +19,7 @@ Fairy Godmother Stories 5: Miraculous Dream in Taleville / Сказки Феи-�
 ```bash
 magnet:?xt=urn:btih:88BD10B65716473B5ECEF10A68DE795908D4482D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Halloween Chronicles 4: Behind the Door / Хроники Хэллоуина 4: �
 ```bash
 magnet:?xt=urn:btih:FF178473738EB6F6295D6EE03D7B6B0436D73E6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ziggurat (2014) [Ru/Multi] (2018-05-08) License GOG
 ```bash
 magnet:?xt=urn:btih:2206F7D47C03E02C6EFDBF2231D4E729B9B55D9D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Grotto - это игра с таинственной атмосферой и ф�
 ```bash
 magnet:?xt=urn:btih:DF17FEAC78E500F35FCA5A78A019DCE82D01AB98
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Defend the Rook (2021) [Ru/Multi] (1.062) License GOG
 ```bash
 magnet:?xt=urn:btih:92181F563E6312C5252C89FF0E7CEC5D913111AC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Radio Station (2021) [Multi] (1.01) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C26BE68C001D411F344C79EE7B94D523C9545225
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ I Am Fish - очаровательная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:7A03BA9E7F589D9AA3A791C18CB83CB5323EE4B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

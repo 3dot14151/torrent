@@ -19,8 +19,7 @@ Cover Fire: Offline Shooting v1.32.17 [En]
 ```bash
 magnet:?xt=urn:btih:F405D03737B3CC8BB756FB19732315895FFEC907
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ISOLAND: Pumpkin Town — это игра-головоломка, о котор�
 ```bash
 magnet:?xt=urn:btih:B10366A1503FD466AA19B4CBCD3CF59784F6475E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Ninja Turtles: Legends v1.26.5 [En]
 ```bash
 magnet:?xt=urn:btih:25C776B801DD5129E2CA0051760BF1A3ED1F0B90
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ Shogun's Curse v1.1 [En]
 ```bash
 magnet:?xt=urn:btih:B87874C5A69E8D02596A0E5D6654DF70BDF80B36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Carmen Sandiego NETFLIX v1.0.1g [En]
 ```bash
 magnet:?xt=urn:btih:349FB2976F042726CFE17FA2CD74B0B680E08C7B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

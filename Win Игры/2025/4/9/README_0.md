@@ -19,8 +19,7 @@ Imagine Earth это стратегический симулятор разви�
 ```bash
 magnet:?xt=urn:btih:D545EFA7D00DF54E3CADC253FE11E6816D20E1C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Eden Crafters (2024) [Ru/Multi] (0.60d) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:BB476244CE534F86CF43DC271B512926F11DCA35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 ```bash
 magnet:?xt=urn:btih:4EBADE11EC5988E81A8A89DCB49D49763E3CC551
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Old Market Simulator (2024) [Ru/Multi] (1.5.5) Pepack Pioneer
 ```bash
 magnet:?xt=urn:btih:D486B86A368CAF35127F30039005D2B134277D5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Funko Fusion - это экшн от третьего лица, посвящен�
 ```bash
 magnet:?xt=urn:btih:D7AE8F44893EFAE2ED6F24B084ED88834A02DB8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:F7DA4DF70EA02C3352F6D174FD4778EE0DBD5B34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Imagine Earth это стратегический симулятор разви�
 ```bash
 magnet:?xt=urn:btih:7F3281D0D3B55CA20AAB881A298840E0581B092B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

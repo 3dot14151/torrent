@@ -22,8 +22,7 @@ Therion - Vovin (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Symphonic Metal
 ```bash
 magnet:?xt=urn:btih:A88B23D3DDD9EE3C97D1BEA7B1B5CD40C5C5185D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

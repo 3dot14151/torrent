@@ -22,8 +22,7 @@ Richy Nix - Fearless (2015) [MP3|320 кб/с]<Alternative, Post Hardcore, Rap Ro
 ```bash
 magnet:?xt=urn:btih:AB7836E3361BD7271AB5FAE634C1F3223CCCFCA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Bobaflex - Anything That Moves (2015) [MP3|320 кб/с]<Alternative, Nu Metal, H
 ```bash
 magnet:?xt=urn:btih:5D13FFE10395C5A5C37B14978F476C72F611E114
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Useless ID - The Lost Broken Bones (2015) [MP3|320 кб/с]<Pop Punk Rock>
 ```bash
 magnet:?xt=urn:btih:9E60D96AB1F85EC1D1D08EE1C691AAC982E66172
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:504E3D9DDF9837E91F1EE05455835181064BE833
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

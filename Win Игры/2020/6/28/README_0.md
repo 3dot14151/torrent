@@ -19,8 +19,7 @@ Hidden Expedition 19: The Price of Paradise (2020) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:95060C638A66A02B67CC1BA3962C47019DAE811A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Westmark Manor для любителей ужасов. Это возможнос
 ```bash
 magnet:?xt=urn:btih:73C23C5F30F39C2EE878A8A72706D78FB68B6EAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

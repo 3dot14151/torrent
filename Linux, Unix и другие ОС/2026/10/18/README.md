@@ -19,8 +19,7 @@ Chromium-Gost 152.0.7977.149 by autosettings.win (deb, rpm)
 ```bash
 magnet:?xt=urn:btih:9D5C1070EDA96059078814DBE3199824D07526A8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Chromium-Gost 152.0.7977.149 by autosettings.win (deb, rpm)
 ```bash
 magnet:?xt=urn:btih:8CF49C6C9ECDA92C1933BDC93F9444C1B28CED48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

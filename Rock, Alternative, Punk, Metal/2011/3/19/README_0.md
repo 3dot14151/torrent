@@ -28,8 +28,7 @@ Satyros - Riven (2011) [MP3|320 kbps]<Black metal>
 ```bash
 magnet:?xt=urn:btih:19DD3DB161F30B20D4C6416D888D2F8A8671EE31
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Eden's Curse - Trinity (2011) [MP3|320 kbps]<Melodic Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:575F94D6E694D2BA238F56C74977A235E4B0C63A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Aerosmith - Collection (1973-2010) [MP3|320 kbps]<Hard Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +121,7 @@ Debauchery - Germany`s next Death Metal (2011) [MP3|218 kbps]<Death metal>
 ```bash
 magnet:?xt=urn:btih:5AFBB60FD2D62D1B0301FC70564AC8996A3E58C5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

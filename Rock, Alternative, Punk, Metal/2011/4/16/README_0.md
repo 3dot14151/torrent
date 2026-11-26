@@ -28,8 +28,7 @@ Sarke - Oldarhian (2011) [MP3| ~256 kbps]<Thrash metal /Black metal>
 ```bash
 magnet:?xt=urn:btih:6D6EBAF1EAAF9A349E0215B9F9E1F26E6448C9EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ Ablaze My Sorrow - Дискография (1996-2002) [MP3|320 kbps]<Melodic Dea
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -89,8 +87,7 @@ Mick Jagger - Goddess In The Doorway (2001) [FLAC|Lossless]<Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +119,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8450A5AD9B1F659E8C0FC6897FF8EF46313EA946
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

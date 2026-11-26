@@ -19,8 +19,7 @@ Post Apocalyptic Mayhem (Р) [Ru] 2011 {Update 3}
 ```bash
 magnet:?xt=urn:btih:591E2D598696D961C4B8C872FF6F9ECEE659177B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

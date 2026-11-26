@@ -21,8 +21,7 @@ Blades of Time / Клинки Времени (2012) [Ru/Multi] (1.0.5/DLC) Licen
 ```bash
 magnet:?xt=urn:btih:F49C006DC9C08C1590E897961C1BF5E9F6F7F610
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Port Royale 3: Pirates & Merchants (2012) [Multi] (1.3.2.29411/5 DLC) License PR
 ```bash
 magnet:?xt=urn:btih:54946E191D81DF34F44E5BE1206604A2744A0207
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Gothic 3: Forsaken Gods / Gothic 3: Отвергнутые Боги [Multi] Lice
 ```bash
 magnet:?xt=urn:btih:CD5044F97F0B4CE11799E8A5D34F15E4A09AD161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Legendary (2008) [Ru/En] RePack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:09AADB7ADD8E283A2AC35FB60CDF36BBDCD72C87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ The Night of the Rabbit – это еще один красивый рисова
 ```bash
 magnet:?xt=urn:btih:D78A068739481EFC1BAD2B16C3012287622B05C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,8 +154,7 @@ The Walking Dead: Survival Instinct рассказывает историю Дэ
 ```bash
 magnet:?xt=urn:btih:A9C87DDFB37C2E670960EEBF95789A18854FABFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

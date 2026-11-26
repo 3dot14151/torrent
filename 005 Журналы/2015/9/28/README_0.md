@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:86508A4DA99C1D5EFAB9E11BC83EF1978A87D5D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Playboy (Плейбой) — имя, ставшее легендой. Попул
 ```bash
 magnet:?xt=urn:btih:CDE25AF5510D7F43C8B1891E55312B20B2AFD742
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

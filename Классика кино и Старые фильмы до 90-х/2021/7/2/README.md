@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:6BD6DC173483ECDA6C0721CFD03752C4BE6B15C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ XVIII век. В прибрежный английский городок при
 ```bash
 magnet:?xt=urn:btih:836829B89D9680A014C2F395386D52A1CC7837CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA024E4DED11ABC05651EC3B7CFF65F328699C4B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

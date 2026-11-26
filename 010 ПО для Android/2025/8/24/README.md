@@ -20,8 +20,7 @@ DNS Changer для Android — это первый уровень интерне
 ```bash
 magnet:?xt=urn:btih:A8A028D3B213AB4944526F829A70656CFE98091C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Web Video Caster® позволяет смотреть на вашем ТВ ви
 ```bash
 magnet:?xt=urn:btih:4EC9DC7E1A2FD828C01CA9DF39DA967E4C719959
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ Smart AudioBook Player Pro v11.5.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5029171A9ABCC1EC377FCEFFF2085A51644544EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ PicWish — фоторедактор с искусственным (   Чита
 ```bash
 magnet:?xt=urn:btih:8C90F01860BB0BAA2972998EB11DC75222EDA8C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ Listen Audiobook Player v5.3.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3E23D4C6311490B6FD5896D5078AFC625CE23652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ Background Eraser (InShot Inc.) v2.285.87 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:139B2E73B45BF8B7200132E433D1FC6124353B19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

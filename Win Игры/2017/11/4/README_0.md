@@ -19,8 +19,7 @@ Dawn of Hope 2: Daughter of Thunder / Рассвет надежды 2: Дочь 
 ```bash
 magnet:?xt=urn:btih:FBCFC6FF870FAC25F6AFEB2440EA8AEC720FE423
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

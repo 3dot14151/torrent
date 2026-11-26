@@ -22,8 +22,7 @@ A1 В Ритме «Леткисс»
 ```bash
 magnet:?xt=urn:btih:30EBB19F725636BF292EB77C7F3EBC60A978D875
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Ihsahn - Вегард Сверре Твейтан — норвежский ко�
 ```bash
 magnet:?xt=urn:btih:8972B0F12D968E481C81A6523DDE6C68A08DE19A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,8 +76,7 @@ Bloodywood - индийская метал-группа из Нью-Дели, о
 ```bash
 magnet:?xt=urn:btih:51661B315415AA1F34CB8BA655550AFAE553FAFA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ The Hu - монгольская фолк-метал группа, образов
 ```bash
 magnet:?xt=urn:btih:6553A1F79AA5D7DA718EBF8E489A346E4646314B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

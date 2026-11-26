@@ -19,8 +19,7 @@ Project Eden [Ru] (RePack) 2001 | R.G. Recoding
 ```bash
 magnet:?xt=urn:btih:62ACF27E50661B0F9480E5EFEC1BC154C7CB0A63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Urban Chaos [Ru] (RePack) 1999 | Pilotus
 ```bash
 magnet:?xt=urn:btih:BEE91E939C012CAA9C748D25808C17A7F221778B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

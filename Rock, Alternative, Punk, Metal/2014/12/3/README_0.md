@@ -28,8 +28,7 @@ Carnivora - Judas (2004) [FLAC|Lossless]<Heavy Metal / Power Metal>
 ```bash
 magnet:?xt=urn:btih:6EE22236B23F893A7153E9841AA26A59CEAB220B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -58,8 +57,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DE1F950B890542517E0C42469DDE647AE6272A7F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -93,8 +91,7 @@ Hope - Da Best Of (2014) [MP3|192 кб/с]<Nu-Metal, Rapcore>
 ```bash
 magnet:?xt=urn:btih:D20CA077739796EB6A708CB19870A9527667C2DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +120,7 @@ Lonewolf - Cult of Steel (2014) Limited Edition [FLAC|Lossless]<Speed/Heavy Meta
 ```bash
 magnet:?xt=urn:btih:38A37DF0E5F299755415B6FADA1E371EC5D54A6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,8 +154,7 @@ Sleeping Pulse - Under The Same Sky (2014) [MP3|320 кб/с]<Alternative Rock/At
 ```bash
 magnet:?xt=urn:btih:6D908195BA1B8C73A2017C3B5627B4C6E4B9FD2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -193,8 +188,7 @@ TV on the Radio - Seeds (2014) [MP3|320 кб/с]<Alternative/ Indie/ Pop Rock/ A
 ```bash
 magnet:?xt=urn:btih:AE77B0D41E12F6E7205BBA78961B2E5F168F4227
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,8 +222,7 @@ The Brian Setzer Orchestra - Christmas Rocks! (2008) The Best Of Collection [MP3
 ```bash
 magnet:?xt=urn:btih:80E5DC02F174D7551DD62405E28284EF48F14C75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +256,7 @@ CD1 The Cry Of Love (1971)
 ```bash
 magnet:?xt=urn:btih:E77FD99ABB5403BC5A9393EC5FC124518025982D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,8 +284,7 @@ Freddie Mercury - Mr. Bad Guy (Alternative Extended Version) (2014) 2CD [MP3|320
 ```bash
 magnet:?xt=urn:btih:F9FEA7C94B33802A189F2C10B13EC11827176DFF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

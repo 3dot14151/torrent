@@ -19,8 +19,7 @@ Dreamwalker: Never Fall Asleep / На Просторах Снов: Кошмар�
 ```bash
 magnet:?xt=urn:btih:0F2426E4343AABE315D81FA3204F5929123E7642
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Labyrinths of the World 8: When Worlds Collide / Лабиринты Мира 8: 
 ```bash
 magnet:?xt=urn:btih:FA1A2985A0AF09B7311AC21FF9128B556C6630AF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ TITANIC Shipwreck Exploration - симулятор исследования об
 ```bash
 magnet:?xt=urn:btih:9E7CEFD12A9A0EC284EA7E318F6910571C9595B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ TITANIC Shipwreck Exploration - симулятор исследования об
 ```bash
 magnet:?xt=urn:btih:209C3119B49DED99CBCB2BBC358FCFF68BDB8B58
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -18,8 +18,7 @@ Air Printer может превратить ваш Mac в виртуальный
 ```bash
 magnet:?xt=urn:btih:0B106EAACEEB9A7BCDD7C38D742446A1E429222A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Asper X - Для тех, кто молчит (2023) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:08ED7D1AF15CFDCA51C07D20B3A00EB65834FCD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ Dr. J. B. Blues - Multiplicity (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blue
 ```bash
 magnet:?xt=urn:btih:EE6CBEB0D62BF4A25A41C5FAA9E74BC2E925EAB4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ Rainbow Train - Accompanied By (1978) LP [MP3|320 Kbps] <Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:D7880B704DACF44BA9C52DBCB8D127B7A1E62A97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:680082B597B18A46C36358A299A9199CC2418A87
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,8 +152,7 @@ Bazaart: Photo Editor & Graphic Design v2.2.9 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:43DCA880919A9E806CEF30C929D5B2579CB50BDC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,8 +180,7 @@ Iron Savior - Firestar (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 ```bash
 magnet:?xt=urn:btih:36351C0B4E4BE01F629C17AFFC8530489FDD27F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +205,7 @@ Loop Mash Up - Music Maker for Mac 1.2.12 [En]
 ```bash
 magnet:?xt=urn:btih:F4ADC3464EC04AAAC48A9632F319B82104C99898
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +231,7 @@ bliss for Mac 20230927 U2B Intel/ARM [En]
 ```bash
 magnet:?xt=urn:btih:B3F5C9946C4E98D3D2DE7F1B67491C9A3188924E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,8 +259,7 @@ VA - Nothing But... Trancetopia, Vol. 09 (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:BABBF2832D55529A5BE52843C7F94E6D91CBD065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -297,8 +287,7 @@ Mass Hysteria - Tenace, Pt. 2 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcor
 ```bash
 magnet:?xt=urn:btih:24C4EC3BF7B38789EDB3B896C12AD26ED706B45C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,8 +315,7 @@ VA - Good Feeling Chilly Light Relaxing Jazz Playlist (2023) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:CDC068BCE3927CCB6DF46ADA249F8F1ABCEB96C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,8 +341,7 @@ beaTunes анализирует музыкальные композиции, о�
 ```bash
 magnet:?xt=urn:btih:228729BA743FDF391DC166FF692CCB9BFE8E802F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -382,8 +369,7 @@ King Gizzard & The Lizard Wizard - The Silver Cord (2023) [FLAC 24/48|Lossless|W
 ```bash
 magnet:?xt=urn:btih:59BC2A608C06F6C03DAFB1AFE33F24930D5DC09D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -408,8 +394,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:06C69967F6BD9A9ADD0516C0332BCB9F5E6488F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -434,8 +419,7 @@ BetterTouchTool удобное приложение, которое позвол
 ```bash
 magnet:?xt=urn:btih:D28F830F63DFF48458F5E34AC24199AEA1771F95
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,8 +447,7 @@ Markus Schulz - Global DJ Broadcast Afterdark (Euphoric Techno Mix) (2023-10-26)
 ```bash
 magnet:?xt=urn:btih:88A6ED2803803C311DF6F492385EB1846C3C631C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +474,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F50232C3BD72659A689C0EE07886341160073600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,8 +502,7 @@ VA - Uplifting Only Top 15: October 2023 (Extended Mixes) (2023) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:BD288E18D26CCBB41A5D6045F6CE7DFE7C88E136
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,8 +527,7 @@ iMap Builder - незаменимое приложение, предназнач
 ```bash
 magnet:?xt=urn:btih:5DF6C1E8A485D08D529B6AAB232C3D0A28F467B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,8 +555,7 @@ VA - Amsterdam Dance Essentials 2023 Trance (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:8C524F1A6FB2E7B498D38EAEE8EA61AF49A63410
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +583,7 @@ AXMO - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (2023
 ```bash
 magnet:?xt=urn:btih:75B5731917B80D90C71E1D9B314C27EC1B5D633D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,8 +611,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FEC67F4C981D5F83E66102A065FB0CF18F1E1161
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,8 +639,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:B00E36E77929C9E7F34465B5A6099BAD9014E424
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,8 +665,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:2F349C8732673DDCCFBD186DB47BD51B68A9C2EC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -718,8 +693,7 @@ VA - Hit News Vol. 4 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 ```bash
 magnet:?xt=urn:btih:7F48385D06E3AB26E5532BE6A7A55C1CF57D36DA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

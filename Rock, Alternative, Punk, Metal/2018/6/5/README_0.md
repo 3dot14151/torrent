@@ -22,8 +22,7 @@ Polestar 1 - Flying Thru The Universe (1980) LP [MP3|320 Kbps] <Electronic, Prog
 ```bash
 magnet:?xt=urn:btih:6AEE3B71B6FE092344E6E2E805FDB40CC64D1499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

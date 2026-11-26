@@ -18,8 +18,7 @@ BBC: Земля - Мощь планеты / Earth - The Power Of The Planet (200
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cилами независимого сообщества осуществляе
 ```bash
 magnet:?xt=urn:btih:490CEB8059D80876A36830D93CCF008D82101F62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

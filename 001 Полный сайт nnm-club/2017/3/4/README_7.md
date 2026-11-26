@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:78B4DA4548A0F748C43DA853A57A3F105D3B5BAD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ Deus Ex: Mankind Divided (2016) [Ru/En] (1.16.761.0/dlc) Repack  =nemos= [Digita
 ```bash
 magnet:?xt=urn:btih:8579897E5F183FBAAF9F5C4D60DECE7205088F20
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ Just Cause 3 (2016) [Ru/Multi] (1.05/dlc) Repack =nemos= [XL Edition]
 ```bash
 magnet:?xt=urn:btih:9A1A8A9100EDBC07465F0C906422F8F33BA838D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

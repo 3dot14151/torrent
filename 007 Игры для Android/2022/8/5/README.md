@@ -19,8 +19,7 @@ Word Life v6.2.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:48E4BAF77F59CDA544244F27A11A14C282199A36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

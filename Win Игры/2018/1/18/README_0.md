@@ -19,8 +19,7 @@ lineage 2 interlude (2007) [En] (interlude) Unofficial
 ```bash
 magnet:?xt=urn:btih:A0BEBDB9E706A549FE6EC9E5850DB8DE88B32574
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Street Fighter V (2016) [Ru/Multi] (3.002/dlc) Repack =nemos= [Arcade Edition]
 ```bash
 magnet:?xt=urn:btih:B040ADD501154DAF62A5A6C3BB7A0B4B48DEB119
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@
 ```bash
 magnet:?xt=urn:btih:D82C50D0ACE77ED47A74EE7BB0FA0FFFF1A1B67B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Total - Total 2: Мой мир (2006) [FLAC|Lossless|tracks + .cue] <Alternative
 ```bash
 magnet:?xt=urn:btih:13E92550F33B842F12F89E38CF92BADB7DDF95E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Theory - The Art Of Evil (2017) [MP3|320 Kbps] <Progressive Metal, Power Metal>
 ```bash
 magnet:?xt=urn:btih:63E8A03F5CBD221F993CF8FDD5B790D46259D929
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Freddy Lindquist - Menu (1970) Reissue, 2004,  Pan Records [MP3|320 Kbps] <Hard 
 ```bash
 magnet:?xt=urn:btih:FE2BD1E99B169514FDEDF1DBF10ED106D6C3C64D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4743B1A2E2BBEABEDD0F92D88ECDE4816F516F94
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Celtic Pink Floyd - Celtic Pink Floyd (2011) [FLAC|Lossless|tracks + .cue] <Celt
 ```bash
 magnet:?xt=urn:btih:C6B0496B69AF5F9043F47ED07955E0212342BB24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Unruly Child - Can't Go Home (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodi
 ```bash
 magnet:?xt=urn:btih:7629FFE6C603CAD51D3233F760861F96AFA7C23F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

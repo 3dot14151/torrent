@@ -19,8 +19,7 @@ Tormented Souls II (2) (2025) [Ru/Multi] (1.4.0/dlc) Repack dixen18 [Digital Del
 ```bash
 magnet:?xt=urn:btih:35D118686FAD63B98F8E538D2FD4A84A8BA1FE5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GreedFall: The Dying World - приквел к оригинальной роле
 ```bash
 magnet:?xt=urn:btih:57D377D5C6A69BFCD22DAA6A8B33C27662C98A1C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Sancticide приглашает в мир, опустошенный библей
 ```bash
 magnet:?xt=urn:btih:560A1EB8D1B6856A2FA17773F73D6199486573DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ TerraScape позволяет игрокам осуществить свою м�
 ```bash
 magnet:?xt=urn:btih:BE5BEE15459E544103103119040A0FB7B5D353B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Stellarcraft - это научно-фантастическая игра в жа
 ```bash
 magnet:?xt=urn:btih:951FC3C577CB9DF4E27DF304C7C6955F382455E9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

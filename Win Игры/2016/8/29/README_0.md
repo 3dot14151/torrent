@@ -19,8 +19,7 @@ Sky to Fly: Быстрее Ветра - потрясающий раннер в �
 ```bash
 magnet:?xt=urn:btih:799D102B215819D894AC630A2A7EED7AE46030EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Zombasite – кооперативный клон Diablo, RPG в мире фен
 ```bash
 magnet:?xt=urn:btih:9A5B0C653FD3E090828EE08D449080449F1B808F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Phantaruk (2016) [Ru/Multi] (1.4.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:5A79D6F69175DC8DB20914B3C973B179B5807409
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Existentia - постапокалиптическая приключенческ
 ```bash
 magnet:?xt=urn:btih:EEACC8BB5B99144142EDAB4F7744B2774855FFBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

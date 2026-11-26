@@ -22,8 +22,7 @@ EZoo - Feeding the Beast (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6FEE6B8A69798D6E6EF3D78A042105C3725A117C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Black Orchid Empire - Semaphore (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt
 ```bash
 magnet:?xt=urn:btih:27084F00E6B3A1C4969AB7C3E89869CBA1A62D7C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Dynazty - The Dark Delight (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Har
 ```bash
 magnet:?xt=urn:btih:C9A5585852FB5C4D642362FFC6363A51C3BD41D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ FM - Synchronized (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:ABC2F71D2AA85434978085E3CBD8A1B641EE5529
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Above and Beyond - Trance Around The World 366 [Will Holland Guestmix] (01-04-20
 ```bash
 magnet:?xt=urn:btih:0AE8C84A5572E582525725563DC47EA54C96EE19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ VA - Live & Let Chill 001: Special Chillout Lounge & Downbeat Grooves (31.03.201
 ```bash
 magnet:?xt=urn:btih:BD587B65D35390EBAC6D745FEF2FA4E486FB6065
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ Shatter Silence - Opening Of The End (2010) [MP3|320 kbps]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:9A86B31A245D6ADC012A74616B49E30919B001B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -116,8 +113,7 @@ Foo Fighters - Wasting Light (2011) [MP3|128 kbps]<Alternative rock>
 ```bash
 magnet:?xt=urn:btih:F9A785B550FD7639CB185E3C0DD21FA57FF7FF35
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Class B Band - Movie T (2011) [MP3|320 kbps]<Tech House, Nu-Disco, Techno, Elect
 ```bash
 magnet:?xt=urn:btih:3A145F54F1A059761D42C95EE0A16899387603C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +172,7 @@ Roger Shah - Magic Island - Music for Balearic People Episode 151 (01-04-2011) [
 ```bash
 magnet:?xt=urn:btih:5AAB52007CA90334C0F174E5640311249541243E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,8 +206,7 @@ Sons Of Seasons - Magnisphyricon (2011) [MP3|320 kbps]<Symphonic Progressive Met
 ```bash
 magnet:?xt=urn:btih:EF31F900B9BD38943780895ACC5184D80C8A10A3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +240,7 @@ Bill Vega - Drum & Bass Design Vol.2 (23 March 2011) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:98B88A7E68045D969913F6536AED51B7213D265C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +265,7 @@ Ray Dorset - Cold Blue Excursion (1972) [MP3|320 kbps]<Blues/Skiffle>
 ```bash
 magnet:?xt=urn:btih:9DA893302B09F3749C804B6B7108A2607A7180E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -299,8 +290,7 @@ London Elektricity - Yikes! (2011) [MP3|320 kbps]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:5E8C5D04F60278BEBC1FBF7EBBC8433789D132A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ VA - Alter Ego Trance Vol.14 (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:5E47AF882C93D3FF9D65E37E22AC7C5A7749B264
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,8 +349,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:25F0104436C542213F8230AAC7A3AF23365D7AFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +374,7 @@ Notepad++ - это бесплатный редактор текстовых фа
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,8 +406,7 @@ Phil Woods Big Bang Orchestra - Embraceable You (1988) [FLAC|Lossless]<Big Band>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +432,7 @@ Rebel MC, Tenor Fly, Connie B, MC Mello, David Boomah, Congo Natty - Congo Natty
 ```bash
 magnet:?xt=urn:btih:4865E7E7DA127996F8B9BC85F0CCC23A521ECE8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,8 +466,7 @@ DJ Feel - TranceMission (31.03.2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:C59AD0F6765686CB5B13A14CB4AC38A0686CAD19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,8 +491,7 @@ Tiesto - Club Life 208 (31.03.2011) [MP3|~152 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:1E739142843AA794D3AF44374D26FA4C28D2CC6B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,8 +516,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:61DA5708A6B716C0EEFBC46D755D93024478AD34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,8 +547,7 @@ Maneesh De Moor - Signatures on Water (2011) [MP3|320 kbps]<New Age, Ambient, Pi
 ```bash
 magnet:?xt=urn:btih:49C0CD6326D989058BA78C5FFBB9AA5999CD79D7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,8 +581,7 @@ Freestylers - Raw As F**k (Remixed) (2005) [MP3|320 kbps]<Breakbeat>
 ```bash
 magnet:?xt=urn:btih:6465FA18F190D36ACB157ACC6EBC025647CF153F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,8 +606,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:60B4EC51F0309642E598B39563F88F63F841905D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +631,7 @@ NG: Анатомия крупнейших животных / Animal Autopsy (201
 ```bash
 magnet:?xt=urn:btih:9BFCA49A1D838CFE3BB30A3F6F5DDBA4D0EB56F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,8 +657,7 @@ DSI (Department of Special Investigations, Департамент Специал
 ```bash
 magnet:?xt=urn:btih:C34EA4351C7FE6EEF489C2161BA5CA450214F6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -705,8 +682,7 @@ Playboy — легендарный журнал для мужчин, основ�
 ```bash
 magnet:?xt=urn:btih:85A6B9836F45D3B965BF3C01AC9F10D09F539A65
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -731,8 +707,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:963D5CF80FBE42BCC837B56E9B08EB91C7DBD983
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -758,8 +733,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8CDED1A2C7144BA55D40B538DEB72673D46CBE66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

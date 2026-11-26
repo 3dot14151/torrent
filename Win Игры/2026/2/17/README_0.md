@@ -19,8 +19,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 11026049/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:302D98ABE31FD5E5D213F13E7F5EBEBCC54A7FC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Disney Villains Cursed Café - это визуальная новелла с э�
 ```bash
 magnet:?xt=urn:btih:8C6FBCDCBB59074B5DBED75D289AF8BC276D3902
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ NORSE: Oath of Blood - это сюжетная пошаговая тактиче
 ```bash
 magnet:?xt=urn:btih:2EED3BF87C6FB6837ECFDC65BFAD1DA693541726
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Total War: Rome II (2) (2013) [Ru/Multi] (2.5.6.3427123/dlc) Repack FitGirl [Emp
 ```bash
 magnet:?xt=urn:btih:4729253AABE2AC39FCA7551BADE74BD865810F41
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Styx: Blades of Greed (2026) [Ru/Multi] (Build 21847243/dlc) Repack Let'sРlay [
 ```bash
 magnet:?xt=urn:btih:5ABB49B3E0CC4AE33473566F7E0E1F56A847F499
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Diablo II: Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Scene Rune [Infernal Ed
 ```bash
 magnet:?xt=urn:btih:CDD6B1DA37B39E12D5BADFFF2AC41C08D6ADA738
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Decision: Red Daze - уникальная смесь Action/RPG с элемен�
 ```bash
 magnet:?xt=urn:btih:C9D5689A1621C2F16953B2ACE96C0A4FB21DC3BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Sector Unknown - это захватывающая изометрическая 
 ```bash
 magnet:?xt=urn:btih:81087023C5DAE4AFD6E9E82F47BAF99A84614221
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

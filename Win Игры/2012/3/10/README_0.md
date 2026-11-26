@@ -19,8 +19,7 @@ Entwined: Strings Of Deception (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:81DFCE998BDF7B6EC4A86712AB93647F482730EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Cubium {1.2} (Repack) [Ru] 2011 | KloneB@DGuY
 ```bash
 magnet:?xt=urn:btih:49CFA08AEF739DB58BB5491EBC0D60393C8B4734
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hell's Kitchen / Адская Кухня {1.1.13} (P) [Ru] 2008
 ```bash
 magnet:?xt=urn:btih:1AF6E67C6D7150E822CD07CF5932D79281E084F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:6151521BCFA777CA99C56DB7D9D2A47031C34D54
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Delicious Deluxe – еще одна игра на тему общепита. В
 ```bash
 magnet:?xt=urn:btih:2FD6664F8EB0DB9E5C7479B27D54192804F2017D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Marble Factory - в этой игре Вы будет размещать шар�
 ```bash
 magnet:?xt=urn:btih:A34E4E55088FD88A7B97112291E47668C090C584
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

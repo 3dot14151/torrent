@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:F4B511DD7C10C61208563D13A1E4CC790AC241DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D09C098C6EBF0130E5346B7473062A9E70A648F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C19F91F2775EF8198E785010D0709C8E3AEF5EAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +95,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5312E38DA90A97487EE94D76CE21DFD8505240DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Slim - Шлягер (2012) WEBRip
 ```bash
 magnet:?xt=urn:btih:27A239D5E543C2BDCBBD3132AC7925FB2DB31945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Underwater World Wallpapers (02.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D0AB81D343148DDBF28442697C9C7FEBBF1DE353
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,8 +170,7 @@ Shadow Wallpapers Pack #11 - #20 (04.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6F7EF1108FADDAFFA7BEA651DB4028878A96FC1A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +195,7 @@ Pleasure boat Wallpapers (04.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:1DC3585BBD4605D5EBF401675832D228D0EC49DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ VA - Causes Bad Volumes Part 10 (2012)
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Majestic castles of the world Wallpapers (05.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:8094C353C6D80EFFCB729639C8503A3763F0196B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,8 +277,7 @@ Temples Wallpapers (04.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6EAA156F4F4E8AFADD519641E9C520680871D3DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,8 +302,7 @@ Wise Registry Cleaner - утилита для безопасной очистк�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ VA - 100 Клубных Хитов from AGR (2012) [MP3|320 кб/с]<Club, Dance
 ```bash
 magnet:?xt=urn:btih:6A6A7DF50E89DECE3F4030FE0DFEAEC9EDF16859
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,8 +361,7 @@ Positive animals Wallpapers (04.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D359022E2F9E3DE6B033068B2B7C6749AC0E97A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,8 +386,7 @@ Creative Wallpapers (04.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:626D482CD39258B71D70E30669F752289EB50803
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,8 +411,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,8 +436,7 @@ Free DVD Video Converter - бесплатный DVD-видео конверте�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +465,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:255AF82ED8DD880CCFD897F69F8EEA73122680F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,8 +490,7 @@ Creative Wallpapers (05.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:342BA6B850BE5C5340190BB8ED770366B01EBE39
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,8 +515,7 @@ Fantastic Wallpapers (04.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:CD98032D4D30652C24BDC95F2B096D5E7E64EECB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,8 +540,7 @@ HQ Wallpapers for a desktop (04.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:7C080AACA9B4955D43BEFB9FAAAD5F596CA8116A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,8 +565,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A7E8B5F3655361110B20477ECCFFF0D06C3383F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,8 +599,7 @@ VA - Armageddon Riders OST (2009) [MP3|256 кб/с]<Soundtrack, Industrial, Rock
 ```bash
 magnet:?xt=urn:btih:355DD540D90A73F9A65275A39E7EE62B9493C6EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:BDFD6A1305CD7C1594FB45265993B94BB3AB3655
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,8 +652,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5724B0EEFD4A159FC2EFA623FF08434CDB551F76
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -704,8 +679,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:486F7D2A7483192633DEDFF669EF526CC21C88C6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Pyramaze — датская пауэр-метал группа, образова
 ```bash
 magnet:?xt=urn:btih:E4FD17833A6834C9759E877803F36D54D69A5A7E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

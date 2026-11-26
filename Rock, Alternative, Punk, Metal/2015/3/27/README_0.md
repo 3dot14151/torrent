@@ -23,8 +23,7 @@ Barren Earth - On Lonely Towers (2015) [MP3|320 кб/с]<Progressive Melodic Dea
 ```bash
 magnet:?xt=urn:btih:FDC2F22FD3A0429928575C798F64789DA0BBE1E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ Strife - Back to Thunder (1978) [MP3|320 кб/с]<Hard Rock, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:50C9C0E553692DF8E0CEB490CB77E0DC0077FC6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -83,8 +81,7 @@ Ringo Starr - Postcards From Paradise (2015) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:E1C1905DCEF9A52606536813923C3A166D3FD1CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -113,8 +110,7 @@ VA - The Many Faces Of Guns N' Roses (2014) 3CD [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AF0CB2DFEDDACA45F654D0016AF4FE322AF83F44
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -142,8 +138,7 @@ Santana - The Magic Of Santana (2015) [MP3|320 кб/с]<Rock, Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:87AB3769B25B1D8A87D7D1F4A4AFD01BAB33F107
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -172,8 +167,7 @@ Nightwish - Endless Forms Most Beautiful (2015) Limited Edition [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:20BC5893A8D7C3C3FE5D713A2345CC62F493E210
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,8 +196,7 @@ Three Days Grace - Human (2015) [FLAC|Lossless]<Alt.Rock | Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:8ABF69E9CD384E18F2460B57358FA2AC271A3754
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,8 +225,7 @@ Three Days Grace - Human (2015) [MP3|320 кб/с]<Alt. Metal, Post-Grunge>
 ```bash
 magnet:?xt=urn:btih:FFD12A5DFB19157FA1EACB6F4DA8783F00B32160
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -22,8 +22,7 @@ Cloudscape — пауэр/прогрессив-метал группа из Хе
 ```bash
 magnet:?xt=urn:btih:46A9957E227473824EC69A5259CDDA4BBF08F008
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D7CFFF06C59F653359D559A2D186875AAF4077F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

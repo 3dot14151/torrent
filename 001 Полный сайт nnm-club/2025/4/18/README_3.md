@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:90084B497E7883406B5D5DA9E6100F7A303C9EA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Eagles - Hotel California (1976) Japanese Edition, Reissue, 1988, Asylum Records
 ```bash
 magnet:?xt=urn:btih:F9073CE11D02C35D63740EA04DBFD3D86896D002
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:8CB0D4D05B3B44D9AA14C24617DC49D30BB39B1F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:F1239732278958BB21AB97BD27A18B5330870228
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,8 +125,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:266952F63A8B48FB4DC6A1127F31C68AD5CF2429
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,8 +150,7 @@ Grim Tales 26: Prisoners of the Past (2025) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:8140F5137861C74A3FDC29B85807D2554B688CF0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,8 +176,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0523705C713E3256AB3B3FEDF9EB6973F8F5C22F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,8 +204,7 @@ Epica - Aspiral (2025) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:90E9AFC904912182FE70C5CC3AA800905F094600
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +229,7 @@ Chasys Draw IES — бесплатная программа, представл�
 ```bash
 magnet:?xt=urn:btih:3C8EC0834F789E32E0728389C9D42A718E131908
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,8 +254,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:2719DE838948F139EB29359EB99CD0419EE814CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

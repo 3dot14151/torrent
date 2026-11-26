@@ -18,8 +18,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.0.8) License CODEX
 ```bash
 magnet:?xt=urn:btih:1D09B6EDD017155F27F7A172D81DE12705CF4E72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ WinHex 19.8 SR-8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:49145601E7A77C59926E4F53728EA38F239E0A12
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1F4AEE62BA6C4D5A4922EFEF06A243C7FB7BAEF6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ SoftwareTesting | Программирование на Python для тести
 ```bash
 magnet:?xt=urn:btih:B6F9EBCEA038CC356CC04AB430E75FB4ED918799
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:76E3A9E7EACE419D092F58AB2C9BE236453BF77D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -148,8 +143,7 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:E7449BEAB572A5B460B48008CFCD7C2A25A47028
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -174,8 +168,7 @@ BELOFF 2019.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:9E53F62063267250445064D3426655F521752D15
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +196,7 @@ VA - Новая Жажда Скорости Vol. 01 - 30 (2013-2017) [MP3|256-32
 ```bash
 magnet:?xt=urn:btih:EBA41959671713908A26746548BABA6E6E47E03D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Sabayon 15.07 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 ```bash
 magnet:?xt=urn:btih:1F45F21A8280145FEC5D8D51A46E63333E670294
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Tor Browser for Linux — Пакет для анонимного интерне�
 ```bash
 magnet:?xt=urn:btih:A5557F6592E3D290F1BA902310B1CA0733D05BD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Hazard Levels - это кооперативный survival‑horror, где вы
 ```bash
 magnet:?xt=urn:btih:804C46363294955F0D78C32453AFAAD9E489B156
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Little Corners - уютный симулятор творчества, в кот
 ```bash
 magnet:?xt=urn:btih:FD24B2F3D6C4E62C21AFF035E3827060D02658FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Trakonius - динамичный экшен-рогалик о гладиатор
 ```bash
 magnet:?xt=urn:btih:F99E250D77D8BADA707C50AC605A500078D2E65C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Forever Skies - приключенческая игра на выживание 
 ```bash
 magnet:?xt=urn:btih:1B334A7654955B3B955149BA2E9DEF0821B351C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Cheat Engine - мощная бесплатная программа с откр�
 ```bash
 magnet:?xt=urn:btih:F6CC59D3358A3B8FB1F3A5B7FB70555CAA36CF82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Novus Orbis — карточный рогалик с построением ко
 ```bash
 magnet:?xt=urn:btih:B1BDF1EDE76FB4CDC9C34D623EB5FA39461B251E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Enigma of Fear - приключенческая игра в жанре мист�
 ```bash
 magnet:?xt=urn:btih:C9DC83D16E06C2C30A17B53AC062C688AEC92C93
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Star Wars: Galactic Racer - это динамичный гоночный экш�
 ```bash
 magnet:?xt=urn:btih:DCE1018108F393E75B119C899DF3D61675A80763
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Forsaken Village (2026) [Ru/Multi] (Build 26387172) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F6A1F2A5ECC1E1AE361E6AEC5305DBF3D9A508A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Witch's Cabin Cleanup - это уютный симулятор наведени�
 ```bash
 magnet:?xt=urn:btih:EB0FD9B57CA1A8221053C2943CFBE0F3B0629CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

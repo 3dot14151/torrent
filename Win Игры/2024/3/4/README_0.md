@@ -19,8 +19,7 @@ Granblue Fantasy: Relink - приключение в просторах Небе
 ```bash
 magnet:?xt=urn:btih:C9BE6D6E48D9A42F721E1811394AAAE3C03F20E7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ SANYA / САНЁК (2024) [Ru/Multi] (3.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:69E820F81468CD6A12CD41802DE492D5FEB84476
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Run Pizza Run (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7799F70B75A87031543E1BF1B161802FE01F6FD7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

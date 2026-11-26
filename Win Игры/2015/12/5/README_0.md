@@ -19,8 +19,7 @@ Slender: The Arrival - профессиональный ремейк жутко�
 ```bash
 magnet:?xt=urn:btih:9368C0B56FBEE8917FBC5C59F85286E3CC6A9C30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

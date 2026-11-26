@@ -28,8 +28,7 @@ Venom - Hell (2008) [MP3|320 kbps]<Black/Speed/Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:7842B5284B4CB37D9F04D96CA8AE8C64C8257A60
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,8 +53,7 @@ VA - Crossroads — Eric Clapton Guitar Festival 2010 (2010) [MP3|175-232 kbps]<
 ```bash
 magnet:?xt=urn:btih:99D66EEBFCCBDA7272AB10366DC47B2928B4FB04
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,8 +79,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

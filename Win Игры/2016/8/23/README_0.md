@@ -19,8 +19,7 @@ Giana Sisters: Twisted Dreams - Rise of the Owlverlord - это захватыв
 ```bash
 magnet:?xt=urn:btih:E7068E26E3C5D1F2E9A1B52F16394D64689387F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Grow Up - продолжение душевной инди игры Grow Home о
 ```bash
 magnet:?xt=urn:btih:425CAFAEC50D957D822B8C81E5B3B8450C9685DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Mark of the Ninja (2013) [Ru/Multi] (2.1.0.6 GOG) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:148C88A1BE8896E09EB28BB5CA476B1F0DE7DD2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

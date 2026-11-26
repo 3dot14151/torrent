@@ -28,8 +28,7 @@ Dead in the Dirt - 2 Альбома (2010-2013) [MP3|320 кб/с]<Hardcore, Crus
 ```bash
 magnet:?xt=urn:btih:8530523E02DD166154628FB887CB332207F48184
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ David Gray - Mutineers (2014) [MP3|320 кб/с]<Folk Rock, Rock>
 ```bash
 magnet:?xt=urn:btih:DF190D923ED566AC9D0F4634C230FB1FD2E3650B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +95,7 @@ Rumour Cubes - 3 Альбома (2010-2014) [MP3|320 кб/с]<Post Rock, Instrum
 ```bash
 magnet:?xt=urn:btih:8F06BD27C674668F2B7399DB7A9BEF6CBC45F69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +129,7 @@ Stay Away - Белый альбом (2014) [MP3|320 кб/с]<Punk-rock>
 ```bash
 magnet:?xt=urn:btih:612594CB446FC8D7B818DFAD22BF11251F50F508
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +163,7 @@ Scar The Martyr - Scar The Martyr (2013) Deluxe Edition [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:AFB9B576EB1E2EA88D216A63AFB657DC83118D75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ The Offspring - Summer Nationals (2014) EP [MP3|320 кб/с]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:C007CB0DB5EAEA8FFDF6E033538B309ABFE17255
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -221,8 +215,7 @@ Muse — британская рок-группа, образованная в 1
 ```bash
 magnet:?xt=urn:btih:74C786F99A587D999BBBCC06AA249B4279EEB51F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

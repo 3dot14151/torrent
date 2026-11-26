@@ -21,8 +21,7 @@ Chakra 2013.09 Fritz [x86-64] (1xDVD)
 ```bash
 magnet:?xt=urn:btih:824E935A076E8014EF5FAD6EF876D8ED5122A019
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

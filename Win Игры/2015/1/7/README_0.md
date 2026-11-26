@@ -20,8 +20,7 @@ Toki Tori 2 — это приключенческая игра-головоло�
 ```bash
 magnet:?xt=urn:btih:340F836A001B835764E58008BF041594C8C3166A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

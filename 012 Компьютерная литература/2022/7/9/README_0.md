@@ -21,8 +21,7 @@ Heydon Pickering, Andy Bell | Every Layout - Relearn CSS Layout By Example (3rd 
 ```bash
 magnet:?xt=urn:btih:AC1C71DDAA39444273D60E702CD2CB5DF3C60B8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

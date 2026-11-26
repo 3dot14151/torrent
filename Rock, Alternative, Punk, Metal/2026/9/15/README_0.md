@@ -22,8 +22,7 @@ A Cosmic Trail - II: Mistral (2026) [FLAC|Lossless|image + .cue] <Prog Rock, Hea
 ```bash
 magnet:?xt=urn:btih:0CAE1FD0F7331ACAC9644B311ADBB4E64BDE055D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Trivium - What The Dead Men Say (2020) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:2A88248EB2537392C15D700E902C3DE4BF5EAD3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Kai Hansen - Born with a Hammer (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Powe
 ```bash
 magnet:?xt=urn:btih:D8C18D344B392E83CE40A8FB036A46BA9DA63337
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Warren Haynes - Dreams & Songs (Live) (2026) [FLAC 24/96|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:80971D9A04E65FADCA50BC6CB08613B92EB41700
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ New Amsterdams - Story Like a Scar (2006) [FLAC|Lossless|tracks + .cue] <Alterna
 ```bash
 magnet:?xt=urn:btih:20B266F14F340BCE2466E572EC6332C9BA47F273
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Scarface: The World is Yours - альтернативный взгляд на д
 ```bash
 magnet:?xt=urn:btih:C4765B862E04EF661CDF6A2E505F176A5CAB7C50
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

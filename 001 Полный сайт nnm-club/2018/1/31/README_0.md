@@ -21,8 +21,7 @@ VA - Best Of The Best Suanda Vol 4 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B098BD1620907F116F3CF8F489765DBF514D2945
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -50,8 +49,7 @@ Secret Pyramid - Two Shadows Collide (2017) Ba Da Bing! [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:50FFE700564E5FCDE31B780B8AE67D156C60E2EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AE32926C2526D14191E93DA45B9D2EE851DAC29D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,8 +99,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1032BECBD4130430F522F726D6F17FF584E28975
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,8 +127,7 @@ Kane Ikin - Sublunar (2012) 12k [FLAC|Lossless|tracks+.cue] <Ambient, Experiment
 ```bash
 magnet:?xt=urn:btih:9D9D8DE83EC7CBC4F4E071391826CF53E4BB3128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +155,7 @@ Terry Brooks & Strange - No Exit (1984) Reissue, 2011, Austria Record Finder [MP
 ```bash
 magnet:?xt=urn:btih:EDD5AC79B7480274504EEB5102D29CD35D3FD443
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,8 +183,7 @@ Field Music - Open Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:476710516EAACEB44ECD96490954E20209149FFE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -218,8 +211,7 @@ Moonbooter - Schwarzmond (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Tr
 ```bash
 magnet:?xt=urn:btih:68E53626DE219EFE824046BFAB4058348ADC4216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -244,8 +236,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:21B6F4781CB5B833285C89302C90228C0350C63F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -270,8 +261,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CB33C3C8220B534EA781A74FAB5022A0727F447D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -296,8 +286,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AB63A6A2CCD8FE21958272FBBF1FE368C1AEC602
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +314,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9E2619EEE46B7D654FED284619500B57C72C12B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -354,8 +342,7 @@ Shakin' Stevens And The Sunsets - Rockin' And Shakin' (1972) Fontana, 6426 040, 
 ```bash
 magnet:?xt=urn:btih:9D5D60CE960C6C27F0522F2F7CE00A09B1B41A64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +370,7 @@ Rameses B - Spacewalk (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Drum & Bas
 ```bash
 magnet:?xt=urn:btih:C334B94DA728C1E1AADB47FEAEA63B582EC038B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,8 +398,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A2336BB6514BB9F1DAAAA65BE04FCF2FB2832B6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,8 +423,7 @@ Vivaldi 1.14.1077.41 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EB6127101E549EC8B777B0A38625DA43BFB21543
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,8 +451,7 @@ Clozee - Harmony Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtem
 ```bash
 magnet:?xt=urn:btih:481AF35EB1AFDA67C04CA34E19DA9CF926375A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,8 +476,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:4D5AD2171C48A816D8A68CE0FC8FF5118D53CC5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,8 +503,7 @@ VA - Soulvent Records: 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:66D8685AD39D02999DE84DAD84B83289A11ED94C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,8 +528,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5968C87B7E6DC78859816DF1FD72CBCB0A12DBF5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,8 +553,7 @@ Vivaldi 1.14.1077.41 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:991EAFB413218CCAE364C228F3CD52F33450C7E2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,8 +581,7 @@ Svårmod Records (Svarmod Records) - Label 2 Releases (2017) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:57C21A34FD6CB9282F2CE8984B3DFA51DBCAFA5E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,8 +609,7 @@ VA - 150 Dance Extra Mixes (2018) [MP3|320 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:062FC9521CD5266EE43D5EDEAF25174A8209C1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,8 +637,7 @@ Patrick O'Hearn - So Flows the Current (2001) Paras Recordings [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:53AAD4D0D913C5AD6C0D87D025EE26240FB0E93E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,8 +662,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C40C04190A85DA188D2FD34A7F92329105977BB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -715,8 +690,7 @@ Moonbooter - Cosmosonic (2018) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Tra
 ```bash
 magnet:?xt=urn:btih:D22AC1C3943268589B0ED663543FDA9A6DDCE475
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,8 +21,7 @@ In From Classical to Quantum Coding, a team of distinguished researchers deliver
 ```bash
 magnet:?xt=urn:btih:E241CB4B098A5233A5DAA3EC0C6B2AF6E5E7D0E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ The book is organized into eleven chapters. The first chapter introduces (   Ч
 ```bash
 magnet:?xt=urn:btih:AE1460BA1825A4E5AE9D638F52BBAFFE079FE076
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ If you’re using Excel, this is the all-in-one manual you need—brimming with 
 ```bash
 magnet:?xt=urn:btih:31B4133F8C6DE68C612BA007A9745FF8A56C4BAA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Generative AI and Agentic AI together are revolutionizing the technology landsca
 ```bash
 magnet:?xt=urn:btih:C19F94F7752E5841B63EE9CFA53D7EDDA41DC08E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

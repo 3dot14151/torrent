@@ -22,8 +22,7 @@ VA - This Is Soulful House 2 (2019) [AAC|~331 Kbps] <Soulful House, Deep House, 
 ```bash
 magnet:?xt=urn:btih:7B93F5DDD21DE4C5B23A35A3183A6F2018619854
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,8 +48,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:7E4EFE043F9673666B3C9BA551C7DF64B2A3E55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -76,8 +74,7 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 ```bash
 magnet:?xt=urn:btih:859B4B069E3897B83C6803484E8EF7A481BFC44C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,8 +102,7 @@ VA - Music for Mindfulness, vol. 2 (2018) [AAC|~302 Kbps] <Downtempo, Chill Out>
 ```bash
 magnet:?xt=urn:btih:C7A5FD3A7BAABE7FBF81331F278B0E81C5A51B99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,8 +130,7 @@ VA - Music for Mindfulness, vol. 3 (2019) [AAC|~317 Kbps] <Downtempo, Chill Out>
 ```bash
 magnet:?xt=urn:btih:C3EAA17B8923E3D431C157E104E9E880E6B90A5F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,8 +156,7 @@ iBoostUp Memory Booster позволяет вам просматривать п�
 ```bash
 magnet:?xt=urn:btih:D9AB5A844A2048E42174BB646C73403FE40DD8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -190,8 +184,7 @@ VA - Music for Mindfulness, vol. 6 (2021) [AAC|~317 Kbps] <Downtempo, Chill Out>
 ```bash
 magnet:?xt=urn:btih:B8E372C6DFAEB1A6CADC803A7B8761817462D42E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -219,8 +212,7 @@ VA - Music for Mindfulness, vol. 1 (2017) [AAC|~308 Kbps] <Downtempo, Chill Out>
 ```bash
 magnet:?xt=urn:btih:87FE9B405F1BF7EA9498FC6C10E36FB3AFAB3FDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -248,8 +240,7 @@ VA - Luxury Kingsize Lounge, Vol. 4 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, D
 ```bash
 magnet:?xt=urn:btih:0A38DB453F8A3A83169D8A1ABB47065671D2F819
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -277,8 +268,7 @@ VA - This Is Soulful House 3 (2021) [AAC|~316 Kbps] <Soulful House, Deep House, 
 ```bash
 magnet:?xt=urn:btih:889FD2CDE2EE701CAB8C6C898B1E0E0D18127D48
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +296,7 @@ VA - This Is Soulful House 1 (2018) [AAC|~335 Kbps] <Soulful House, Deep House, 
 ```bash
 magnet:?xt=urn:btih:8016BA1C634751328DB49824F5085D1BDA19F212
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,8 +322,7 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:81413D1108274FEFADED0D698AE25FA3F86A970A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,8 +350,7 @@ VA - This Is Soulful House 4 (2021) [AAC|~331 Kbps] <Soulful House, Deep House, 
 ```bash
 magnet:?xt=urn:btih:5F17E00B2A6F9F178B1681EB0E12A26CC935DE97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,8 +375,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2B58FE399879EB5FAACDFF9C39361EFD5B01398
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +403,7 @@ De-Phazz - The Instrumental Versions (2021) [AAC|~367 Kbps] <Nu-Jazz, Lounge, Ch
 ```bash
 magnet:?xt=urn:btih:1B8BAFB03ECAC1670F0C566BB9094CFFD7F35447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,8 +431,7 @@ Cory Weeds - What is There to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Bop
 ```bash
 magnet:?xt=urn:btih:CEBA2E0367FEEDD9B1625620A1040D0EEB521E36
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,8 +457,7 @@ CODIJY Recoloring 4.2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EC644D1B8559F88C040DCBBF9F914543B9E6E2E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,8 +484,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CF3EBAF62FBE4A52CC0B32FEAA4ADF954030B979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,8 +509,7 @@ SiteSucker Pro - это расширенная версия SiteSucker, кото
 ```bash
 magnet:?xt=urn:btih:3F6FED5C14691245440BF7E2FE3A4E44A900A974
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,8 +537,7 @@ Kurt Elling - SuperBlue (2021) [FLAC|Lossless|tracks + .cue] <Vocal Jazz,Funk>
 ```bash
 magnet:?xt=urn:btih:EAAAE470E025A89EB0453F6DDCC85AA854FEAFD4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,8 +562,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D2605D1462D6F89FB7635DA8B2BA604692B000B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,8 +590,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0441564D9D83438B261A4DFBF77CB6EFD1DDB057
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,8 +616,7 @@ OnyX 4.1.3 for macOS Monterey 12 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0504FFCE2ACA7A74F3F7D173DD6876394AF9EC4F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,8 +644,7 @@ VA - Music for Mindfulness, vol. 4 (2020) [AAC|~323 Kbps] <Downtempo, Chill Out>
 ```bash
 magnet:?xt=urn:btih:BADE6DAD1590FFE18E91897D6E710F8C2DBAD616
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,8 +669,7 @@ N5 – Аромат вечности / N5 un parfum d'eternite (2011) DVB [FR / 
 ```bash
 magnet:?xt=urn:btih:C7242A367E343F5CCBF63396ABFFAF8C7367E8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -720,8 +695,7 @@ DetectX Swift 1.0982 [En]
 ```bash
 magnet:?xt=urn:btih:CF38D281863A304F9A07D6AE093E03F785989870
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ DeadPoly – игровой проект, разработанный в стил
 ```bash
 magnet:?xt=urn:btih:37E244E870BBA9ECAAC0AA40B59DC8707367F3E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Book Of Changes / Книга Перемен (2007) [Ru] (1.0.0) License
 ```bash
 magnet:?xt=urn:btih:21C5DB7D8716C879BD91D2EF25F70010435CD46E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

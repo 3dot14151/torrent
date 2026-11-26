@@ -22,8 +22,7 @@ Type O Negative - World Coming Down (1999) Japanese Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:9861B20CCA0C39C8A3DE26AE2938D979B64AD648
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Barrock - Oxian (1994) [FLAC|Lossless|image + .cue] <RPI>
 ```bash
 magnet:?xt=urn:btih:610BC7EAFA848D3228336289117B95386323A1CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Type O Negative - Life Is Killing Me (2003) Japanese Edition [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:C251F7BB5D20473B458A7262F6BB22F0E2A1D26D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Type O Negative - Dead Again (2007) Japanese Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:8C2B22C4377004A71114A16667E96BB1112A5059
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Type O Negative - Bloody Kisses (1993) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:A2E5D1FA3C8E07FED943D4FC7CC3E060F2CE251F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ Type O Negative - October Rust (1996) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:634B7881B110E94A1FFD96F2CC5A3C2D2BDCF1D6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ Type O Negative - Bloody Kisses (1993) Japanese Edition, Reissue, 1996, Roadrunn
 ```bash
 magnet:?xt=urn:btih:1753FF41E98FBCFEFAC16A0ADA3916FF46E1D20E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Bring Me the Horizon - Music to listen to~/.../~GO TO (2019) EP [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:0B2E6BC38BE6043D435985600829C4812EF79ADA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Mark Knopfler - More BBC Sessions (2019) Unofficial Release [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:054C02C5F8CA409E60B32D47EF82557AB2F65316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

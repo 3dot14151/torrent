@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:B08B9BCD3E61F5A840A4CEB881CEE6FA2F62F10C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F5FBF2FC3404DB0536C2C5988552792FE2C2F654
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:1F4770C990BC23C1DF721813387A703F41B3F5CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ Kami-tachi ni Hirowareta Otoko 2 | By the Grace of the Gods 2 | Избранны
 ```bash
 magnet:?xt=urn:btih:999F44BD5B39793C009C827281B89B7373FFC2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -122,8 +118,7 @@ Planner 5D Premium 4.14 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E8291C4EB04CD96D7AE0095FB9370E1D5D2CFC69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:181593D6A03BF6702904F1F6C0470E7643F944B3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Yowamushi Pedal: Limit Break | Трусливый велосипедист [ТВ
 ```bash
 magnet:?xt=urn:btih:944CFA7393EB78EAFD918AB9BECEA108769AFC25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:03134BE895E92358BD6340182329160BCC5706A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ Kyokou Suiri Season 2 / In/Spectre Season 2 / В/Спектре 2 / Ложные
 ```bash
 magnet:?xt=urn:btih:781DC583A6A9F815B70B8AC67E4416CABBA3464F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ Next.js - это масштабируемый и высокопроизводи�
 ```bash
 magnet:?xt=urn:btih:70E28714DED0DA3A3BEF26C1846C41B2857CA87B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +272,7 @@ Have a Nice Death - это экшен в жанре roguelike. Его главн
 ```bash
 magnet:?xt=urn:btih:DCB1B070D44299504617AE2F2A636F0AAF366B10
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

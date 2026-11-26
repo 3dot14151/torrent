@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:75E4FE1A60DD2D4C23769AFD4BD78CB737B7B10D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Angry Birds устраивают торжества по поводу разли
 ```bash
 magnet:?xt=urn:btih:A673DE7FAA39CAAA2C5347B793DF891FF69FF128
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

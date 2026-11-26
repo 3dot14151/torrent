@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:0B0C0358A471E2CB6E03709F64584A073FF619F1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -44,8 +43,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:977D4CFA6C96E45CE1BFEF641859EB5F9896C313
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -70,8 +68,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9CC78FE26C16DA24C6BA0A44A92D1D2F621E7F17
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -96,8 +93,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:F7ABA296DB0CCBF7FC592C20EC88B674A9733100
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +121,7 @@ r.roo - autistic dance (2015) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, House, Ambi
 ```bash
 magnet:?xt=urn:btih:ADE334BE1B0AFCF7681792873A17B6457FB794BC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,8 +146,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:CFB2E9BB6773621BC43382DDD812385C8B8E399E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,8 +174,7 @@ VA - A Chill House Affair Vol. 3 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:EC3101603210EA896863C970B10811E926067218
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +199,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:14A44E5A49323D60605BA2859057494A6BA652C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,8 +227,7 @@ VA - Astrolabe Relaxation 1 (2015) [MP3|320 кб/с]<Downtempo, ChillOut, Ambien
 ```bash
 magnet:?xt=urn:btih:E83784B6B58D05CF6C124A2DFEF698A3DDD3CAA4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,8 +252,7 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:10B591FB8A7C6D67DCE5DD55311BE27D0F8DB83A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +280,7 @@ Fink - Fresh Produce (2000) [MP3|320 кб/с]<Electronic, Downtempo, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:21A0261BCA1D3F850AB7D700DE69DA30CC671D0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,8 +308,7 @@ VA - Poolside Ibiza: Kolombo, Autograf (2015) [MP3|320 кб/с]<Electronica, Tec
 ```bash
 magnet:?xt=urn:btih:0AD7EF368747BF89C545122E7C7F61AAA0E919D5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,8 +336,7 @@ Spock's Beard - The Oblivion Particle (Digipak Edition) (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:D7C12C7B64995332AFEB356AF9CA51989CDFBEBA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +364,7 @@ Backyard Babies - Four By Four (2015) [MP3|320 кб/с]<Hard Rock, Glam Punk>
 ```bash
 magnet:?xt=urn:btih:78151EEEC2C795D67520C1C60205B84D8B0F18CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -406,8 +392,7 @@ VA - A Chill House Affair Vol. 5 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:13A3F263154849BEC5EBA9B5F8E47CE585A8DFA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +417,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:94DF9E87564E6422E2A23028AF9B93AF61DB64E6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +442,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5C8473DEE90C4D75DF9AFCED20CE7B3DA4DEB2F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,8 +470,7 @@ VA - The Dirt Lounge (Smooth Chillout & Jazz) (2015) [MP3|320 кб/с]<Lounge, C
 ```bash
 magnet:?xt=urn:btih:840F6AE3B32024D41E503377A1CFFC59F19F1788
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,8 +495,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6CB57F89CEB7481CE9870BBACB6F28807F4E3258
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,8 +523,7 @@ Mega Dead Agitator - Rising Terror (2015) [MP3|320 кб/с]<Electronic, Darkwave
 ```bash
 magnet:?xt=urn:btih:6B144647D117CB77E587529BCBB374147CF212C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,8 +548,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +576,7 @@ Zohar - Onethreeseven (2001) [FLAC|tracks +.cue]<World Music, Downtempo>
 ```bash
 magnet:?xt=urn:btih:391BBC6617D3D59E611874C9B666401174693D63
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +601,7 @@ Vivaldi 1.0.258.3 Technical Preview [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A5EBE6B1E4E32DB80F1A598F207DA1F7A540F80B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,8 +629,7 @@ VA - Chill Acoustic Pop Playlist Eighteen Smooth and Chilled Tracks [In The Mood
 ```bash
 magnet:?xt=urn:btih:DA2B123F94889C29CD81B47764624E27F265AFB0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,8 +657,7 @@ Motorhead - Bad Magic (2015) [FLAC|tracks|WEB-DL]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6235778977EDC1B113D812C2CBB45088C0292B01
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -710,8 +685,7 @@ VA - Beatport Top 100 Techno July [edited by ZIMIANDR] (2015) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:ADFDF5A7E5CD292083B12DCE859F7357FE56BA26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

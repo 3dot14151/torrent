@@ -19,8 +19,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru] (16.0.20.1060) Repack xatab
 ```bash
 magnet:?xt=urn:btih:275648409015AF01F9C36BF50BD46DFAC7D31B18
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

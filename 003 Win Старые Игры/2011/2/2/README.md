@@ -19,8 +19,7 @@ Global War on Terror: Death Strike / Death Strike: Силовое решение
 ```bash
 magnet:?xt=urn:btih:579566B7788577ABA6A4937EEE62DEB0CBDC971C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Earth 2150 и The Moon Project...
 ```bash
 magnet:?xt=urn:btih:B2AC7908534347BA6DFFE83366C25FB6D772AAA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

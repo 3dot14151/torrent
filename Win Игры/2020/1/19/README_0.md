@@ -19,8 +19,7 @@ Overland (2019) [Ru/Multi] (713) Repack Other s
 ```bash
 magnet:?xt=urn:btih:813D4D9439D7AE4079C6FB5774A159378485BE83
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

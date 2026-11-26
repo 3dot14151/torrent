@@ -19,8 +19,7 @@ CAYNE (2017) [Ru/Multi] (1.24) SteamRip Let'sPlay [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:86FB797ECC8C5D7CF9BC0FB8C18EC6E3449B68D2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ CAYNE (2017) [Ru/Multi] (1.24) Repack Other s [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:837E34CF06064AE304784AAE0424A6AAF933D2DE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

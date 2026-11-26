@@ -19,8 +19,7 @@ Realms of Arkania: Blade of Destiny (2013) [En/Ge] (1.36/dlc) License PROPHET [C
 ```bash
 magnet:?xt=urn:btih:D2A76C518CFFE5F1CBFC12E01DAF1ADA9C06FFA7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

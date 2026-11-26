@@ -19,8 +19,7 @@ Templar Battleforce — пошаговая стратегия с элемент�
 ```bash
 magnet:?xt=urn:btih:63FABC9A14ADECE332DBE6949323DAADF69FBA75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ MotoGP 18 (2018) [Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B490E3135F30E95BF9179ACFDC8E9CC59EDC9A26
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Dark Occult (2018) [Ru/Multi] (1.0.8) License PLAZA
 ```bash
 magnet:?xt=urn:btih:56B93587F711C1D764439C58E18536242BECB7A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Rise: Race The Future — это мультиплатформенный арка
 ```bash
 magnet:?xt=urn:btih:E80AFC0643B3382BE307E247262F3179E8C11A6A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Football Manager 2019 — симулятор, доведенный до сове
 ```bash
 magnet:?xt=urn:btih:9F0321D39D247CFE76CD4696E536967DBE4C3D16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

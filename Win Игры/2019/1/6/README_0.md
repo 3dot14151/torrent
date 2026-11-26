@@ -19,8 +19,7 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:49AF4441A4FBC1D1E5638CBF37643D31D6E524E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ HellGate: London (2018) [En] (20181213) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:C46FE965B05331D13C81E517F3C4CE6B27679EC0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

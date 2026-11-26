@@ -19,8 +19,7 @@ Everhood – приключенческая игра, разработанная
 ```bash
 magnet:?xt=urn:btih:512BBC832C964FA4D380ED8B4F6C96F3E3CAC1C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Granblue Fantasy Versus: Rising представляет собой захват
 ```bash
 magnet:?xt=urn:btih:71320CBE8EF620507C032E98741D3E373894915D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Season 2/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6DC16B1072BF503C2DA7828207FDC9CC40DFD0DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Scene Rune [Supernova
 ```bash
 magnet:?xt=urn:btih:163237E52CCD443409EF39CA06DC7637DF81ACA9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (67402/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:382AE887C877C5554CD4C0D7CAF65CA179CFAEE4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Eternal Cylinder (2022) [Ru/Multi] (1.0.3.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DBD6AEAA893305261A690328F174D72A6080FD2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0A3A6085ABA6441150C42591C8EA9175EAC22B78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

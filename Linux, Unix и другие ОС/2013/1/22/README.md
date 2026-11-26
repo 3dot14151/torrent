@@ -21,8 +21,7 @@ Snowlinux 4.0 Glacier (XFCE, E17 - легкий дистрибутив) [i386 + 
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

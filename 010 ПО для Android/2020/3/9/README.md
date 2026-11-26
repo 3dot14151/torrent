@@ -19,8 +19,7 @@ Pedometer - GPS Tracker v1.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:99FCF5AC1D049272F792C9FA2B38939B8AF9A3C3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ VK mp3 mod - Уникальная модификация оригинально�
 ```bash
 magnet:?xt=urn:btih:0DC79F08E6C18187A99D44DE2721A2260C4E779A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dr.Web на Android – скачать антивирус Dr.Web можно бе
 ```bash
 magnet:?xt=urn:btih:EE58EE8BD24F76F262691921E950BA7FE5F6AF3C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

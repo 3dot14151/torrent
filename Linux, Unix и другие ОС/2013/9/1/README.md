@@ -21,8 +21,7 @@ ArchBang Linux 2013.09.01 (Легкий дистрибутив) [i686, x86-64] 2
 ```bash
 magnet:?xt=urn:btih:5B6598CA8B322E30E1130A629DB5F0C5050BA358
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

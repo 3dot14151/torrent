@@ -22,8 +22,7 @@ A4. The Unforgiven II(   Читать дальше...   )Жанр: Thrash Metal�
 ```bash
 magnet:?xt=urn:btih:C138BD3B2BA1229987584BA63B42E10D0069EB9C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Macbeth - проект, родившийся в 1995 году, в Милане, 
 ```bash
 magnet:?xt=urn:btih:25051DCFDB15ADED0E3744665FC2153A3EA98249
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Side One :
 ```bash
 magnet:?xt=urn:btih:3377F5E3AADEEB80833FAF0FF89130877AAD1B28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Fear Factory - Mechanize (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Meta
 ```bash
 magnet:?xt=urn:btih:D5C8B00C61D0D2D06DFC19C06398EE8B4230F979
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

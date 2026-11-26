@@ -19,8 +19,7 @@ AO Tennis 2 — уникальная игра, сделанная любител
 ```bash
 magnet:?xt=urn:btih:9FB460ADDC6A9AAB41BF8188A6D60899E3BF3BCB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ GOD EATER 3 (2019) [Ru/Multi] (2.40) Repack xatab
 ```bash
 magnet:?xt=urn:btih:79DD8547D7F34A9FCB8E38CD9D4C71EE57B1D481
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Stronghold Kingdoms: Era Worlds (2012) [Ru] (2.0.35.3) License
 ```bash
 magnet:?xt=urn:btih:1D33F7086893F567A0463A42C91C9287E5F30B16
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

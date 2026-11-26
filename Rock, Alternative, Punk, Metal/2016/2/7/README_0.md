@@ -22,8 +22,7 @@ Tedeschi Trucks Band - Let Me Get By (2016) [MP3|320 кб/с] <Southern Rock>
 ```bash
 magnet:?xt=urn:btih:CE90976AF25D96C640FCE2FD550318CAC4A55713
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Exumer - The Raging Tides (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:860EC96EB294C0ECB2F5D794C476F81164BAC48F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Siouxsie - Mantaray (2007) [FLAC|Lossless|image + .cue] <Alternative Rock, PostP
 ```bash
 magnet:?xt=urn:btih:66D34883B3F45ACBA67C771817A27D827498B449
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:A40023BE3049B9645C53C02CFE48BF49D47A3786
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Ace Frehley - Frehley's Comet (1987) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:F06186B25CC3A382B4142D362136EC16B141AF32
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -167,8 +162,7 @@ The Stranglers - Feline (1982) [FLAC|Lossless|image + .cue] <Post Punk, New Wave
 ```bash
 magnet:?xt=urn:btih:995B8866D5CD65216596904E526F7B66F836AFCE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -196,8 +190,7 @@ The Cult - Hidden City (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5D359264E3DC126F087CF0CF15F49BCE3EC857A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Die Krupps - V-Metal Machine Music (2015) 2CD [FLAC|Lossless|image + .cue] <Indu
 ```bash
 magnet:?xt=urn:btih:B98B90FB51581FC0924EDE3157092949401A4492
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,8 +246,7 @@ Escape the Fate - 8 albums (2006-2015) [MP3|230-320 кб/с] <Post-hardcore, Har
 ```bash
 magnet:?xt=urn:btih:71E3219F7F80A446DFB99DF3600B5C3B06D247BB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +274,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:3207C1E09A051A072D5C71F189BE18C0ED5888AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Megadeth - Dystopia (2016) Japanese Edition [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:E7C52AB3A3751CC2FE6D2DEAB6B2520378382E53
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

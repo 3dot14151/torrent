@@ -20,8 +20,7 @@
 ```bash
 magnet:?xt=urn:btih:7E3B06B734C2EA1B37B57A076186F78C30B9C4B8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:20CA31B05D2D91F8EC0C2301805FC3A67F01AA5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

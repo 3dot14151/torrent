@@ -19,8 +19,7 @@ Controller Companion – это утилита, позволяющая вам н
 ```bash
 magnet:?xt=urn:btih:CE5EFA4AD5FC81B732A01DBE6F576B801AECB949
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

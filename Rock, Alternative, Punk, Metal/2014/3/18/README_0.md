@@ -28,8 +28,7 @@ Who Cares? Demo [1989]
 ```bash
 magnet:?xt=urn:btih:721200F9B20EA0E3DA8FCB5155F8ED87B5D04CD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Damned Nation - Just What the Doctor Ordered (1995) (Japanese Ed.) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:C89DB0EF6F1701BAD711C63CE3DE2A2AD4A34B38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49D5DCF7121B077AAC159266C8F5B7F2E24770F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Demon Hunter - Extremist (2014) [MP3|320 кб/с]<Melodic Metalcore/Modern Metal
 ```bash
 magnet:?xt=urn:btih:94C854E76A5D65CD78A36581628F207F98A4B9B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Therapy? - Shameless (2001) [FLAC|Lossless]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:BC32A2A7E91765E5E5661067BB3B910698EBFC80
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ Gus G. - I Am The Fire (2014) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:7321ED549730D1E9B3817E88BFC4AE0E218D5216
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,8 +231,7 @@ The Oath - The Oath (2014) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:82B7AE15D308D801AA1AB62E355972AD72E0BEEA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -271,8 +264,7 @@ Sebastian Bach - 4 Альбома + 1 Концерт (1998-2013) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:8E62CC45DDB43F38A5EC7F1A2EDF9D0C199E3DAF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,8 +298,7 @@ Demon Hunter - Extremist (Deluxe Edition) (2014) [FLAC|Lossless]<Modern Metal | 
 ```bash
 magnet:?xt=urn:btih:EFF6F6918BEC4FFAB6CB59E1B5118AF0B067665A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,8 +332,7 @@ Foster the People - Supermodel (2014) [FLAC|Lossless]<Alternative Rock, Lo-Fi, I
 ```bash
 magnet:?xt=urn:btih:C37279C002532502A1A1C2EEC28C38BAA79F461D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,8 +360,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:E50442863B6A9A32C764E779EDF3C98A122B7E0E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,8 +385,7 @@ AC/DC Полная дискография 1975-2006 29 альбомов
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

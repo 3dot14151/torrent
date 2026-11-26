@@ -26,8 +26,7 @@ Forest of Fog - Abgründe (2006) [FLAC|Lossless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:58F5F0D5CE15B29702D88D740D892E81A3CE35CA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

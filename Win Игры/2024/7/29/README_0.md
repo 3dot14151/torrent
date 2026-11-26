@@ -19,8 +19,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.3.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:86BEF0525E09F6B793B85D224F782402E5B3C69A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Monolith (2023) [Multi] (1.1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:EAD223C4EE7E9BC9759BD404BB074922C364EBF4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Pinball FX - это не пыльный аркадный автомат ваше
 ```bash
 magnet:?xt=urn:btih:16EB5DC9E824E4EBD1B84018D770E8FF3436F13C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Totally Accurate Battle Simulator - сумасшедшая тактическа�
 ```bash
 magnet:?xt=urn:btih:57D88E28C96AA8A3F6D5ECD5038A1BAE8715BCBB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Let's School - это уникальная градостроительная с
 ```bash
 magnet:?xt=urn:btih:C7BE96580A54AAB6AEF5DDCFE91270E9E4C10447
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Downward - это живописная приключенческая игра �
 ```bash
 magnet:?xt=urn:btih:A8C7C5A56EBF9B1919807CBEFC0D90D0181C882D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ THE ORIGIN: Blind Maid - хоррор-выживастик от первого �
 ```bash
 magnet:?xt=urn:btih:FE26C954738B1DD7BF14EE9EC2229E83C2F6AB47
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Mystical Riddles 5: Haunted Portraits (2024) [Multi] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:69ECCE065AAB6F5BD3DC5C81B4C72649F5E45E1B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

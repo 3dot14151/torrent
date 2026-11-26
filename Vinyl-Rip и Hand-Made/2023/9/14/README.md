@@ -22,8 +22,7 @@ A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical,
 ```bash
 magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Kane & Lynch 2: Dog Days [Ru/En] (Lossless RePack) 2010 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:4968B7BF35D712A556373669948FB21C0C8D9CDE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ My Farm Life 2  / Реальная ферма 2 (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:9753C028EA70740CEB9E583AE925F2707287CD66
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Fable Of Dwarfs / Сага о гномах (2014) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:32A361A613C19D4379C978FFAAD4C36815A6CB72
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Strike Suit Zero (2014) [Multi] (1.0) SteamRip R.G. Игроманы [Director's
 ```bash
 magnet:?xt=urn:btih:E60B7635B589DB7E7ABE4ACC64328503BF644EC3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

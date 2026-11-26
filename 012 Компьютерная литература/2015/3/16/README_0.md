@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:4CBC124F3E26B38643053B39ABD90BB3AAC33652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:5B703E3690979F5DB62EEC5953EA25BB0FBAD086
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ books.ru | Сборник книг по IT (2001-2014) [PDF]
 ```bash
 magnet:?xt=urn:btih:D88332B93CC15E2041E3E1D9B2D7F1059EEFF35A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

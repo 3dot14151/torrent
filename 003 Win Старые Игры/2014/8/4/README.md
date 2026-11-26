@@ -22,8 +22,7 @@ Alien Versus Predator Classic 2000 была обновлена до полной
 ```bash
 magnet:?xt=urn:btih:5B0CB7F4A352BC198E0B890AD8748EEDE4897521
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,8 +51,7 @@ Chrome Specforce / Хром: Спецназ (2005) [Ru/En] (1.0) Repack R.G. Cat
 ```bash
 magnet:?xt=urn:btih:49CE14E19F8F1E413532F13A38BD1CB485613836
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Striving for Light (2021) [Ru/Multi] (1.0.0.0c) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D1192733AD6D55D870A13D95ADD6EB5A1185B6A2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Unfinished Business - это новое самостоятельное прик�
 ```bash
 magnet:?xt=urn:btih:378A652CF62FF57F5B1FB3C8F478F989DC159DB2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Ratten Reich (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6D0D4B30E27D2250D62957F401326230DFE330AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.7.0.0/00.017.002/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CC1F0C9B43E6275B59D2B31E4512514A3BCC601B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fragments of Truth: An MCF Story (2025) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:9F1AC4249CAD41F8514AA51C6226B3537B5EEDED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 ```bash
 magnet:?xt=urn:btih:24E9B21513BA3E8FCBAD9AA36DDD99F8E1869659
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

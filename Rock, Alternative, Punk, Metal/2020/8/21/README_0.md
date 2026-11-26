@@ -22,8 +22,7 @@ Graham Gouldman - Modesty Forbids (2020) [FLAC|Lossless|image + .cue] <Rock, Sof
 ```bash
 magnet:?xt=urn:btih:9C321BE44FCB9AE599B683EEFE7DCD46E0EB14A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -53,8 +52,7 @@ discogsПродолжительность: 00:33:04
 ```bash
 magnet:?xt=urn:btih:14AAFADE74DAB22847B233CF1F5005535F00834E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ The All-American Rejects - Kids in the Street (2012) Japan Edition [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:7D35195CC3FC94A92DC1E3E46212EE8E48C0A59E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -111,8 +108,7 @@ KMFDM - In Dub (2020) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:8E799BA499079A9BDF3CA0729F365A9985C19B2A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -140,8 +136,7 @@ The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Al
 ```bash
 magnet:?xt=urn:btih:9942F4794721C79CB63D4DC411EC6483F2DC11EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -169,8 +164,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EA978220E2B22910672219B7293D8A222B7816F0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

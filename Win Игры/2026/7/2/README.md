@@ -19,8 +19,7 @@ Race Driver: GRID (2008) [Multi] (1.3.0.0) License
 ```bash
 magnet:?xt=urn:btih:41BCBFF9876C704152B885730F631D63264A159E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Race Driver: GRID (2008) [Ru/Multi] (1.7/dlc) License ZOOM [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:19AA571E04B26C0BF30C5B77A1A71E55FB9A1095
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Test Drive Unlimited 2 перенесет вас на два курортных 
 ```bash
 magnet:?xt=urn:btih:24FD40173EC05B444AB9E1551ECFA487F22D258E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Artificial Extinction 2 (2026) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:49C72B0F988C468F4D91C20E9EB576C052712011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Abyssus (2025) [Ru/Multi] (1.3.61832/dlc) Repack Other s [Brine Edition]
 ```bash
 magnet:?xt=urn:btih:C49F22E7F26F4F49203FE6FC9D820637EEC57673
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ DiRT 3 (2012) [Ru] (1.2.0.0) License [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:A6FCE30CDDDB87AE1141E7A69BBC19F48B8838CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Tales of Seikyu / Легенды Сейкю (2025) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A24F08C3C98F7927EDCA225395C2761A9963BAAC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

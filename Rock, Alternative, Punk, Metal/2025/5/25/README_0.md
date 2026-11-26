@@ -22,8 +22,7 @@ Jon Allen - Seven Dials (2025) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blue
 ```bash
 magnet:?xt=urn:btih:457B8303D0947C353D199CF7C224D0E11F2C964F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Agressor - The Merciless Onslaught (2004) Compilation [WavPack|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:E3E6815C52B1A459E164D9CEE226EA819D1E5FE9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

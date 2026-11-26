@@ -19,8 +19,7 @@ Kathy Rain (2016) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:73B6597CB6C6F5BBAE777DDC18F377AC4C7193FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ ABZU - это красочное приключение в подводном м
 ```bash
 magnet:?xt=urn:btih:EB5C1F171BEAC43D06B48B4BA7D485D671D77938
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

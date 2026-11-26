@@ -22,8 +22,7 @@ Perfume Genius - Set My Heart On Fire Immediately (2020) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:226B4916AD29F0D27CC7D20E895D7AE5D0457BE1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Modern Blues Band - Блюз опадающих листьев (2006) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:48FD2DC846DD8344DD1C9F66D66B0AA66D298E22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ A4. Judy(   Читать дальше...   )Жанр: Prog RockПродолжи�
 ```bash
 magnet:?xt=urn:btih:CB9BBC79CA8F8E3021CDD157BAA86B78170D12AA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Asking Alexandria - Like a House On Fire (2020) [MP3|320 Kbps] <Metalcore, Post-
 ```bash
 magnet:?xt=urn:btih:25E3A2F6ACCE6BEB580D0845070B4C255B664C97
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -138,8 +134,7 @@ Paradise Lost - Obsidian (2020) [MP3|320 Kbps] <Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:A58D66294EBD33A2FAF1F215E7C93D5CD1C1CC2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -20,8 +20,7 @@ Alien: Isolation v1.4.1RC1 [Ru]
 ```bash
 magnet:?xt=urn:btih:36B0FD14874536E46C2B52F862E7A9BEEB5C6839
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ StudyGe - География мира v2.3.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:46B262CD9661372631A51765EEBDF0E90E1E20F6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Misguided: Never Back Home - это захватывающая 3D-игра в ж
 ```bash
 magnet:?xt=urn:btih:D2875E4E94011EB2EDCE20ED63A947C29D4FF28C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Snufkin Melody of Moominvalley v0.9.2 [En]
 ```bash
 magnet:?xt=urn:btih:8DD9F86EB15C4DEE65097841F5EF8DA0E97AD0CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Dandara: Trials of Fear v1.5.21 [Ru]
 ```bash
 magnet:?xt=urn:btih:FADF6D84B10F8F01B599099C65998908BDD5C261
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ Bad North — это очаровательный, но жестокий око�
 ```bash
 magnet:?xt=urn:btih:A3DD62EFB4C97E78750D172CC0F27208C0711F64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Dana Knightstone Novel #3 : Death Upon An Austrian Sonata Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:19FC0F7E874291A4D7A2B5F5A28058BD65B3B79F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Canvas: A Brush With Death. Collector's Edition / Темный холст �
 ```bash
 magnet:?xt=urn:btih:F988F58509F142668E1742BC0C8CEB3BC0749111
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Orcs Must Die! Dilogy / Дилогия. Бей орков! [Ru/En] (RePack) 2011
 ```bash
 magnet:?xt=urn:btih:4058C982D2F02EA3375F0D8BDB0AA4EA3417F90E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

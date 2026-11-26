@@ -22,8 +22,7 @@ Digital Call Recorder имеет массу полезных возможнос�
 ```bash
 magnet:?xt=urn:btih:3542DFF6C1A8988DB1AB5173989A317A1E801090
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

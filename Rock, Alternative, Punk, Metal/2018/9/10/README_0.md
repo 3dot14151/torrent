@@ -22,8 +22,7 @@ Vanilla Ninja - Blue Tattoo (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:4E333BB4631E4BA8817BF0A349BB5A6C3780AABE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Vanilla Ninja - Blue Tattoo (2005) 2CD, Limited Edition [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:E367ED1D1D17E36309CF3F39B9E72FC2C020CA96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Red Hot Chili Peppers - Freaky Styley (1985) 2003, Reissue, Remastered [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:339E29FA7281189F5219238644BAFA9A34D8C3ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ Doro - Forever Warriors Forever United (2018) 2CD, Japanese Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:0D2B1E165329C550317736F9D7B67AE939C840FB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

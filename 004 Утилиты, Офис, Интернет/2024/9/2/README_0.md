@@ -21,8 +21,7 @@ LiteManager Free - бесплатная программа для удаленн
 ```bash
 magnet:?xt=urn:btih:4FAE546DF1008D3AD43023FCAD52AF9FDBD168F2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Oofhours Media Tool — утилита для создания установо�
 ```bash
 magnet:?xt=urn:btih:370D8DB0877042A0D678515A74AB6AD960163960
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:5AA96A9D516166025B25D5D88A1A6096E1996CB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

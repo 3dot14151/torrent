@@ -19,8 +19,7 @@ Iperius Backup Full — программа резервного копирова
 ```bash
 magnet:?xt=urn:btih:049CC96E2437EF7EFEC651C75D9151C0382BCE69
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

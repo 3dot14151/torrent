@@ -22,8 +22,7 @@ Sutratma - Sutratma (2012) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal
 ```bash
 magnet:?xt=urn:btih:C8B14979E35E7BE6305FFC5D492804A909E19FB8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Second To Sun - Gal Agnostiske Drommer (2011) [FLAC|Lossless|WEB-DL|tracks] <Pos
 ```bash
 magnet:?xt=urn:btih:156B7B480DA865FF54D85E718F1064D8DE70BC0A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Second To Sun - Blackbound (2016) [FLAC|Lossless|WEB-DL|tracks] <Post Black Meta
 ```bash
 magnet:?xt=urn:btih:13A074407EEED433259A9CC1F0352401E5244EE8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -109,8 +106,7 @@ What The Blood Revealed - EP 1 (2007) [MP3|320 Kbps] <post-rock, post-metal, ins
 ```bash
 magnet:?xt=urn:btih:118CDDA976B18572E141660A34BAFA96D18F6B6F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -137,8 +133,7 @@ What The Blood Revealed - EP 2 (2009) [MP3|320 Kbps] <post-rock, post-metal, ins
 ```bash
 magnet:?xt=urn:btih:8376C62097F9FB9C023D04CA3B9AA76736BC4C40
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Alaska - The Bronze Years (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:4B746A36254B5598E3491FC0F4D84539AF456504
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +189,7 @@ Second To Sun - The First Chapter (2015) [FLAC|Lossless|WEB-DL|tracks] <Post Bla
 ```bash
 magnet:?xt=urn:btih:58B4237DF60AFEF4840BCB94A20A54A2885D411C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -224,8 +217,7 @@ Bob Dylan - Triplicate (2017) 3CD [MP3|320 Kbps] <Folk Rock, Country Rock>
 ```bash
 magnet:?xt=urn:btih:F841A856F0FAE50DA7D139288CB09E3E772E2A2B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +245,7 @@ Tommy Shaw - 7 Deadly Zens (1998) [FLAC|Lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:990F1641BF9C6A0D322181C0D62B7CF87478C22B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,8 +273,7 @@ CD1.
 ```bash
 magnet:?xt=urn:btih:438EA203F0E2C81C7CEB6E7F4CDB741500531D2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +301,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,8 +329,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

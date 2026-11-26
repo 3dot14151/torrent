@@ -19,8 +19,7 @@ King Arthur / Король Артур (2011) [Ru/En] (1.07/1.0.0.6/dlc) License 
 ```bash
 magnet:?xt=urn:btih:39C9F01560ABC8CC6DEC208B90C0A7C8522093A4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

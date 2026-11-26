@@ -19,8 +19,7 @@ ReVanced YouTube Music - мобильное приложение, в котор�
 ```bash
 magnet:?xt=urn:btih:E668C437F6098DF9D879089903FE482A9ED399EB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

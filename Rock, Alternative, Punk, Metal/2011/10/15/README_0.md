@@ -28,8 +28,7 @@ Sonic Prophecy - A Divine Act of War (2011) [MP3|320 kbps]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1AAD80E421F0C9D8B0C89B0C7E8B17052424B941
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Iced Earth - 20 альбомов (1988-2011) [MP3|320 kbps]<Power|Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Iced Earth - Dystopia (2011) [FLAC|Lossless]<Heavy / Thrash Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ If I Was Your Vampire(   Читать дальше...   )2009Жанр: RockПр�
 ```bash
 magnet:?xt=urn:btih:619164DB96A588D5999969399200B92B8832A5C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Evanescence - Evanescence (2011) Deluxe Edition [FLAC|Lossless]<Alternative Meta
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

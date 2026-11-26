@@ -19,8 +19,7 @@ YTDLnis — это бесплатный загрузчик видео/аудио
 ```bash
 magnet:?xt=urn:btih:31837D0B64BAEC46D943DB2FD493713FABBB42F9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

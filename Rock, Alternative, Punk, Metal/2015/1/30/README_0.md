@@ -22,8 +22,7 @@ Ecocide - When Will It End (2012) [MP3|320 кб/с]<Blackened Crust, Sludge, Fem
 ```bash
 magnet:?xt=urn:btih:664C86BC8546AC4E3A8B4C42444C31650B3FA408
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Thulcandra - Ascension Lost (2015) Limited Edition [MP3|320 кб/с]<Melodic Bla
 ```bash
 magnet:?xt=urn:btih:B3A2130EFFB3C8319D097B4A72F9858756D7D4A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -92,8 +90,7 @@ Stargazery - Stars Aligned (2015) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:13F2D7CEB2F93F0DEE3C72CD21473D8553E3D6D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,8 +122,7 @@ Tank 86 - Obey (2015) [MP3|320 кб/с]<Stoner Metal, Instrumental>
 ```bash
 magnet:?xt=urn:btih:04BA1DC2723715263B6AFDC343A763768BEAC822
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -160,8 +156,7 @@ Scanner - The Judgement (2015) [FLAC|Lossless]<Heavy/Power Metal>
 ```bash
 magnet:?xt=urn:btih:4751CC6901812BA722007DAC23BB43B6DAF5FDEE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -195,8 +190,7 @@ Stormwitch - Season Of The Witch (2015) Limited Edition [FLAC|Lossless]<Heavy/Po
 ```bash
 magnet:?xt=urn:btih:00390EC66968C62A33715627D109062D9BE93647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +224,7 @@ Shadowbane - Facing the Fallout (2015) [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:CE0E11A2B690A7A2F1E6A744A4900A7CBE8AE04E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -265,8 +258,7 @@ Bob Dylan - Shadows in the Night (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:3A5C8AD05618AB72109087F175F6DA43626C5E56
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -300,8 +292,7 @@ Gamma Ray - The Best (Of) (2015) Compilation [MP3|320 кб/с]<Power / Speed Met
 ```bash
 magnet:?xt=urn:btih:90C7CE9476E8B7FB6C94197085207F65B0BAE87F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,8 +326,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A940B2FE53526C34EBF4530C8FFAFDD9846D4745
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

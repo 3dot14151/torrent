@@ -26,8 +26,7 @@ ASUS Backtracker portable 3.0.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:50EED92B659B4A0BDE1B0EB31F475B0CAAEF344C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

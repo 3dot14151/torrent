@@ -18,8 +18,7 @@
 ```bash
 magnet:?xt=urn:btih:1F0308D9B47A0BD8EF0FEAA5C36A37FE75C71704
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:6B5CE3D1DE08BBA4E78B04B1F93982A2D3DFCD37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,8 +70,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:A41F2CD5F925493C42E4BD99E23624AB2B371A8C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:49D351D1268D215CACFB092E583ADE07C128D8E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ Comedy Баттл. Суперсезон. Выпуск №15  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:2399CC5D71DB3C6377835F1094066F7B03F6B1BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ iResizer - программа предназначена для масштаби
 ```bash
 magnet:?xt=urn:btih:24DE3192D3C82F58B1F6C337C77FF2584C39EE99
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,8 +179,7 @@ Armin van Buuren - A State of Trance 671 (2014) [MP3|320 кб/с]<Trance, Progre
 ```bash
 magnet:?xt=urn:btih:E75728C69C201769F09E542D07016C291626D09B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,8 +206,7 @@ Gabriela Anders - 2 альбома (1998 & 2008) [FLAC|Lossless]<Smooth Jazz, Vo
 ```bash
 magnet:?xt=urn:btih:75CC9006C317D0A78789FE815D3D08DA1246A57E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -247,8 +239,7 @@ VA - Armada Trance 2014-001 (2014) [FLAC|Lossless|WEB-DL]<Trance , Progressive T
 ```bash
 magnet:?xt=urn:btih:605673E7542B693CDDF6E931E0C43A22764D4EBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -273,8 +264,7 @@ UPgrade – самый популярный еженедельный компь�
 ```bash
 magnet:?xt=urn:btih:7D6F4374D3344A3BD266E9ADE54D1B036F3461A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +298,7 @@ Innocence - This Is Love Live (2014) [MP3|320 кб/с]<House, Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:78F63D317E389DA2A7B3F5E987A2E94103AB7FE7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +332,7 @@ Va - Armin van Buuren - A State Of Trance Radio Top 20 - July 2014 [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:8FD211102C9C71C1F4507F18FF8A36EE1E1B76B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,8 +357,7 @@ PhotoScissors - предоставляет очень простой спосо�
 ```bash
 magnet:?xt=urn:btih:7C83880FBD47AA9C0264D924370E2516A5638647
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,8 +382,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:23262003BC37A64DF43DAE0A35FF0943406F10BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,8 +416,7 @@ VA - The Electronic Tribute To Pink Floyd vol.1 (2000) [MP3|320 кб/с]<Electro
 ```bash
 magnet:?xt=urn:btih:2CE40FE04600DD3FD96C8BDF4C84957A4A14DC22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +441,7 @@ Multi View Inpaint - программа эффективный и надежны
 ```bash
 magnet:?xt=urn:btih:0DFB767BE22B1078CCE2C3202EA83FA322CCEACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,8 +466,7 @@ PhotoStitcher - программа для автоматического объ�
 ```bash
 magnet:?xt=urn:btih:67261F25DFEA2608EB379C83A0A4DF54A7F234BE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +500,7 @@ VA - The Electronic Tribute To Pink Floyd vol.2 (2002) [MP3|320 кб/с]<Electro
 ```bash
 magnet:?xt=urn:btih:7E09CCAF90ED9921C490C72A4AC70AB5A05FF77E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +534,7 @@ VA - BRAVO Hits 86 (2014) [MP3|320 кб/с]<Top 40, Pop, Rock, Dance>
 ```bash
 magnet:?xt=urn:btih:9C6C2F32A0249D18603F19CD532D2B27BB7519A6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +559,7 @@ Beyond the Unknown: A Matter of Time (2014) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:C4B79A266BFD7F3CA0DB8D90071F419F5B1393F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,8 +584,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:EE9A9F3646A0EAD33A39ABD6531E8162BF41A60B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,8 +609,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:D5DEBB92D40E0F1BDDFE37F5FC29BC57B755CD51
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,8 +643,7 @@ Engelbert Humperdinck - Engelbert Calling - Duets with ... (2014) [APE|Lossless]
 ```bash
 magnet:?xt=urn:btih:41258F9AE22DA2732BC835663FE26990886CD4D9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +677,7 @@ Grave Digger - Return Of The Reaper (2014) 2CD, Limited Mediabook [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:FAF29D797ACFE0843B078AD52AABC9563AB36E30
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +702,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:42EDC0F76BF2B52A0917C59CF5D1A51EA53088DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +727,7 @@ Evil Pumpkin: The Lost Halloween (2014) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:3119417E77372B8F593635F3579711599CE9753E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

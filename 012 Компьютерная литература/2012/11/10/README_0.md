@@ -21,8 +21,7 @@
 ```bash
 magnet:?xt=urn:btih:80B7B89D6556C1AE3CE6E32A6CEED5FCB92DB063
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7881D714F1F51C1AD8DDE753BFAF8E17FAF29054
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ Joyce Cox, Joan Lambert | Microsoft Access 2010. Шаг за шагом + уче
 ```bash
 magnet:?xt=urn:btih:678F9289DDBA8894A70966BAA36A788D81CFD9E3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,8 +98,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FE96A1F68098670847333867E9F832173C123564
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

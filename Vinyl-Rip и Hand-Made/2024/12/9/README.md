@@ -22,8 +22,7 @@ Eldritch - итальянская пауэр-прог-метал группа и
 ```bash
 magnet:?xt=urn:btih:88204BB6E6E8EB862906DE4A2B7DD19544CB3739
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ VA - Шлягеры Уходящего Века (2000) [FLAC 2.0|48/24|image +.c
 ```bash
 magnet:?xt=urn:btih:51DF8F30C6B8827120BF08FCF07B529EFE7343B2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

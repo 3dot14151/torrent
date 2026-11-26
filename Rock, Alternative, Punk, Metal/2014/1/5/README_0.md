@@ -28,8 +28,7 @@ Burden Of Grief - Haunting Requiems (2000) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:F92A2F125348645885FFE53D9CEFFB97725BDFC5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -63,8 +62,7 @@ Amok (amo.k) - Necrospiritual Deathcore (2006) [MP3|256 кб/с]<Black/Death/Thr
 ```bash
 magnet:?xt=urn:btih:C1C949DEF9F771A5FFE67471625E73458C27F55A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,8 +96,7 @@ Nicholas Greenwood - Cold Cuts (1972) Released 2007 [FLAC|Lossless]<Progressive 
 ```bash
 magnet:?xt=urn:btih:707C55E45C0C4FA02939ED68DE321C07BB6E344D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,8 +130,7 @@ Uriel - Arzachel (1969) Collectors Edition |Released 2007 [FLAC|Lossless]<Canter
 ```bash
 magnet:?xt=urn:btih:B525D3890CF4DF415AF915E0C099A3F940BC8A34
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -168,8 +164,7 @@ Legion Of The Damned - Ravenous Plague (2014) [FLAC|Lossless]<Thrash/Death Metal
 ```bash
 magnet:?xt=urn:btih:7A95C29D57849CCDD1B3430D11292B9DBFBE4913
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,8 +198,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:683298C7CFECAC570D3878F57C7397EA7304F384
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

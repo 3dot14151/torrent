@@ -19,8 +19,7 @@ novaPDF Lite 11.8 сборка 411 [Ru]
 ```bash
 magnet:?xt=urn:btih:A5C81121E2AFE466C5726B52904DD2B0382C19E1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

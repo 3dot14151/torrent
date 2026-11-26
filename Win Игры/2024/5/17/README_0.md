@@ -19,8 +19,7 @@ Hollow Cocoon - это приключенческая хоррор игра от
 ```bash
 magnet:?xt=urn:btih:C3EBC84893EDE60D1FA48480E0F29FF12F4EC1DF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Soviet Soldier ставит вас на место солдата красной
 ```bash
 magnet:?xt=urn:btih:3205B6B6B4E75542DC5AEF886121603CE091E493
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Hollow Cocoon - это приключенческая хоррор игра от
 ```bash
 magnet:?xt=urn:btih:E31956215E9B8BAA6CA2CDDE72C315B6CAA48D81
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Astral Ascent переносит геймеров в современный фе
 ```bash
 magnet:?xt=urn:btih:1B428E0D630994113795D550FBC0822A5E115F78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ A Highland Song - это приключенческая игра, разрабо
 ```bash
 magnet:?xt=urn:btih:ACF5C11C1331C72509F7768A0EF4584D4FFD21C8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ The Cursed Tape - инди-хоррор от первого лица с эффе
 ```bash
 magnet:?xt=urn:btih:66863D9E8BF8C355DEAAD256F599CDC25801D378
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Echoes of the Plum Grove - иммерсивный симулятор с упор
 ```bash
 magnet:?xt=urn:btih:F89F1E08C9346D3AD2862C02241C08EA69447C24
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Whispered Secrets 15: Cruise of Misfortune (2024) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:04FD123B4FB95004AF36E73C8A68E9FEE02C3D42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ We Need To Go Deeper - это игра в жанрах симулятор, ин�
 ```bash
 magnet:?xt=urn:btih:65E4ECDF84FB632EB490A53FC803BC4440BF57DC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

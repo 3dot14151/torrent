@@ -19,8 +19,7 @@ Dark Dimensions 6: Shadow Pirouette / Темные измерения 6: Пир�
 ```bash
 magnet:?xt=urn:btih:C9CC66F49CA50CCFB005519DFE9ECC0633D0D639
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Paranautical Activity – это шутер с воксельной график
 ```bash
 magnet:?xt=urn:btih:F7685F0D1A4146F3B3F7A662D4839E996CFC3FFC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Descent - Silence of Mind — хоррор от первого лица с эк�
 ```bash
 magnet:?xt=urn:btih:C1A63AC78A50D3C0693194ACF760D8E0D9F86478
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ REDEEMER — это жестокая и бескомпромиссная игр�
 ```bash
 magnet:?xt=urn:btih:4C60E6A0641334EB33F1CDDFF97F4B76467524C7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

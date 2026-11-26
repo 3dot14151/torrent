@@ -22,8 +22,7 @@ Puddle of Mudd — американская рок-группа, сформир�
 ```bash
 magnet:?xt=urn:btih:6E656F305261954EE47E70024E8270AEC3DC6048
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

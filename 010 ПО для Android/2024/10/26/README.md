@@ -19,8 +19,7 @@ Real Guitar предоставляет все необходимые инстр�
 ```bash
 magnet:?xt=urn:btih:3A7A1B17F70BD9F51B1754D3DC87A5931A93F761
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:ABA578FE7AB3EEAABA453206883D6E8E38691DD9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:3C64DA036DBF1CE3D35B037FAA69D90F93D931E8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ IPTV Pro v8.2.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:07B8E746FF4B05FE6D741F7708C00A2D618F5BA2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ PowerDirector – Video Editor v14.5.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9F6D89105D8BF8D3AD43823685238CFCDFAC4EE6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:740C6D3AA8FB0D92836D559B9F17C616DFE4E835
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

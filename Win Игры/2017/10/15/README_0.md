@@ -19,8 +19,7 @@
 ```bash
 magnet:?xt=urn:btih:EE9046C688833DF2A795AFF58F7DDC6734E4E0A0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dungeons 3 (2017) [En] (1.2.1/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:8177EE43AF100AF38D1CAA78A6D14CB9FAB720F4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ The Evil Within 2 (2017) [Ru/En] (1.0/dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:D1B4E3954AE222220B8E00CEB8649A0F34411338
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

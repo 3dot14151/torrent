@@ -21,8 +21,7 @@ Nanna - Wassa EP (2012) [MP3|320 кб/с]<House, Downtempo>
 ```bash
 magnet:?xt=urn:btih:DF3DE59C819E63931DA6AF8A2860471012FA5110
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -56,8 +55,7 @@ VA - Berlin Not Berlin Vol. 1 (2012) [MP3|320 кб/с]<Tech House>
 ```bash
 magnet:?xt=urn:btih:AB4715DE61847EFCD5B983C98AE19F829187CDDD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -82,8 +80,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C2CF9F2CF942FA30C14176B30C2768DD31D2ADD6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -110,8 +107,7 @@ VA - Lebewesen EP (2012) [MP3|320 кб/с]<Dub Techno, Deep Techno>
 ```bash
 magnet:?xt=urn:btih:392A9F440C8E32F009051369A7704053591A9B59
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +132,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:9EF38B76C2D1FF252489290D2E648E54161B32A5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -164,8 +159,7 @@ Gabriel Creole & Patrick Zigon - Zeit für Klang EP (2012) [MP3|320 кб/с]<Hou
 ```bash
 magnet:?xt=urn:btih:D081BADC1C88BBBE637291776849B08CEA731A5B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ VA - Клубные Новинки from Primemusic Vol. 4 (2013) [MP3|128-320 к
 ```bash
 magnet:?xt=urn:btih:335D2D161427864B5A83CB129BFF46EC9474CBB9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +224,7 @@ Y - Horizonte de Sucesos (2013) [MP3|320 кб/с]<Post-punk, ColdWave>
 ```bash
 magnet:?xt=urn:btih:C6E8212A66617A6CC96588280E1238AD251E0B71
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,8 +252,7 @@ VA - Suara Showroom 18 (2013) [MP3|320 кб/с]<Tech-House>
 ```bash
 magnet:?xt=urn:btih:AEDEE9B1D679162D250D38977E33E64F59680F82
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,8 +281,7 @@ VA - Full Circle (2012) [MP3|320 кб/с]<Downtempo, Dub, Psy Dub>
 ```bash
 magnet:?xt=urn:btih:3277D5BE366531656B5B2ED18589AA40A5812964
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -325,8 +315,7 @@ VA - Global Techno Sessions Vol 1 (2012) [MP3|320 kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:BC0817092C503450AC0D7E49BC701EF48C8DBF3B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,8 +340,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:AA1068B11567D0C170C6E8E7CF073518E390BE2C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,8 +374,7 @@ VA - Hard and Style Vol.2 (2012) [MP3|320 kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:D774C3DCFE36EF697FB8028B22EF45A15443E537
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,8 +408,7 @@ VA - Global Techno Sessions Vol 3 (2012) [MP3|320 kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:E401B412AC534FE2CB9622ECCBEE7DA58288AD96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,8 +442,7 @@ VA - Dance Hits InLevel (2013) [MP3|320 кб/с]<Pop, Vocal, Dance>
 ```bash
 magnet:?xt=urn:btih:842B48C5DD804234193751A07F7BF553C3A43FB6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,8 +476,7 @@ VA - Techno Festival Essentials 2012 (2012) [MP3|320 kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:72034EB1A5FC6B406B925990CEF38CA74B044ECE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,8 +501,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:8203425F300986463F1B753A848DF183435A24F3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,8 +535,7 @@ VA - Psyderchill 2 (2012) [MP3|320 кб/с]<Psychill, Psydub, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0454E35C3493912F0832DC0DA8F7AE458F285805
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,8 +560,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C645099A7EC9C42E114BD846D2FDA34D87698446
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,8 +587,7 @@ Till Kruger & Patrick Zigon - Drone EP (2012) [MP3|320 кб/с]<Dub Techno, Deep
 ```bash
 magnet:?xt=urn:btih:68822A692B25F870A187AB8F4F5D258D1D06D99E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,8 +621,7 @@ VA - Full Moon (2012) [MP3|320 кб/с]<Downtempo, Psy Chill>
 ```bash
 magnet:?xt=urn:btih:D3D4B07758F79E3204846F9FFB2C94A23786AFFB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,8 +653,7 @@ Rob Vector - Future Songs Of Old (2013) [MP3|320 кб/с]<Downtempo, Psy Chill>
 ```bash
 magnet:?xt=urn:btih:7699F29B71BF3822BBA8FF3CAFC14BF42326D445
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,8 +678,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:DD836CC1F87238F6343BC97F7366E09B3DA95316
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -726,8 +703,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:646C4A71A08397C80758ED88F6F252015B83EDB3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -752,8 +728,7 @@ SMPlayer - кроссплатформенный мультимедиа прои�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -778,8 +753,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:1948D3CEDF86982DC7120739328E54699C36115E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

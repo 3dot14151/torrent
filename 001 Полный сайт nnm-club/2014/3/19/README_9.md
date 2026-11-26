@@ -21,8 +21,7 @@ Totally Accurate Toilet Simulator - атмосферный симулятор т
 ```bash
 magnet:?xt=urn:btih:E5F3A682C9265D0F6D087A5D871C9F69F9350CD0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,8 +46,7 @@ Silent Hill HD Collection [PS3] [USA] [Ru] [3.40] [Cobra ODE / E3 ODE PRO ISO] (
 ```bash
 magnet:?xt=urn:btih:A2896E9433A38A6EEA12A552787642A3B499CB33
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,8 +71,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,8 +96,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0ED290B880FF50705FEA40BEE9332CFD3F9B143D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,8 +122,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:00A8C003DDB2D3ABBF5E04EB188E9A3A5D10EACC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,8 +147,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C92D246C731257D4CD0F419426B76E6CF8B88E14
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,8 +172,7 @@ Cборник Final Fantasy X/X-2 HD Remaster на PS3 собрал самые �
 ```bash
 magnet:?xt=urn:btih:9F9EED69720C038A6AB0C5FDF8D749A2A8A92E37
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,8 +197,7 @@ Microsoft Office Professional Plus 2013 with SP1 – лучший пакет п�
 ```bash
 magnet:?xt=urn:btih:75C9C94F1F9EAD3D111557F919EE214813078D2F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,8 +222,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:0D16F578B9D89159FAF294D97C6E569EEDDEC899
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,8 +247,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:7410F6B8AFBDCC5A2A594996978D35F04588429C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,8 +273,7 @@ Rage (2011) [Ru/En] (1.3/3dlc) Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:0975EAA527E2E3C9DD57D6302F8843597DDA1348
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,8 +298,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:010B48902868AC36755839968FFA095F835DC450
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,8 +324,7 @@ Heavy Rain: Move Edition [PS3] [+MOVE] [EUR] [En/Ru] [3.41] [3k3y / Cobra ODE / 
 ```bash
 magnet:?xt=urn:btih:A8DE1401E9B2FDB349FBE6205D2FEA4AFAEB90F5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,8 +351,7 @@ Your Uninstaller обеспечивает решение задач по деи�
 ```bash
 magnet:?xt=urn:btih:C5F56E979B5757AACA685EEF8577E406FBFFC7BF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,8 +376,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:44C538063E450C5EB30BEF2CCD06FA222DF84801
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,8 +403,7 @@ Thief – новый экшен от компании Eidos. Игра являе
 ```bash
 magnet:?xt=urn:btih:3B9514B348BA840EA6A015217DBD1645E83164C1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,8 +428,7 @@ Microsoft Office Professional Plus 2013 with SP1 – лучший пакет п�
 ```bash
 magnet:?xt=urn:btih:B152A6078B3EC760BB5DD1D0C9C1CB134FA269FF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,8 +453,7 @@ Adobe CC Master Collection RUS/ENG
 ```bash
 magnet:?xt=urn:btih:B165EC39978DD5BA1BEC6E24978998118BB89DA6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

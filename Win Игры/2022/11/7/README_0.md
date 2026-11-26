@@ -19,8 +19,7 @@ Saint Kotar: The Yellow Mask - хоррор-квест, представленн
 ```bash
 magnet:?xt=urn:btih:8DE8756B2E17D96CF4956CC45A703B7715BB8C25
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Think of The Children - это веселая аркада и по совмес�
 ```bash
 magnet:?xt=urn:btih:2AD8C698DC3BE9A0E77376F0FEADD1081B8E5332
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

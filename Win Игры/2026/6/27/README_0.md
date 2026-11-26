@@ -19,8 +19,7 @@ Just Cause 4 (2018) [Ru/En] (Build 4110618/dlc) Repack R.G. Freedom [Complete Ed
 ```bash
 magnet:?xt=urn:btih:866D90718A30128B1824C39B3016E8D7B3C7A2AB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Final Strategy (2026) [Ru/Multi] (Build 23575962) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7D52E235E3AE3512F67C63BE3C181971D2637684
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Tabletop Tavern (2026) [Ru/Multi] (0.6.11.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:80D4C3374C218C18D13FA4843543B055B9EC8B79
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Fahrenheit: Indigo Prophecy Remastered (2015) [Ru/Multi] (1.0.4) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:AB6FA65B79E9F77B7B4A600B813EB19D46EACD42
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Fahrenheit: Indigo Prophecy Remastered (2015) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:C568EF7CE4491E34126062037A544F4AAFD4548C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Alan Wake's American Nightmare (2012) [Ru/Multi] (Build 7063) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:806441AA2ACE75E0D7F36B46AE665285F36B73F8
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) Repack FitGirl [Complete Edi
 ```bash
 magnet:?xt=urn:btih:166473837AB78E2FB2E942540A0DE329E675896A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Harmony Chronicles 4: Elixir Revolution / Хроники Гармонии 4:
 ```bash
 magnet:?xt=urn:btih:D77FCB1174A02F18C88E4A4DC59CF840DC363F21
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Alan Wake (2012) [Ru/Multi] (1.07.33.72514/dlc) Repack FitGirl [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:6A331A886C3A343AC4674DDD877D08AB8B4283EE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ F.E.A.R. (2005) [Ru/En] (1.08/dlc) Repack FitGirl [Platinum Collection]
 ```bash
 magnet:?xt=urn:btih:F76FA0CC18D9E10A4AA548E3A6BE2DA7DD17CD45
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Saints Row 4: Re-Elected (2022) [Ru/Multi] (Build 10105076/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ECBB80E50B17A639DAC5E9898C8DA8BE4E73E1B6
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ Saints Row 4 (2013) [Ru/Multi] (20170523_12199/dlc) Repack xatab [Game of the Ce
 ```bash
 magnet:?xt=urn:btih:731F583EB2B1F81A54094678A6766C147457B6D1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Hitman 3 (III) / Hitman: World of Assassination (2021) [Ru/Multi] (3.260.1/dlc) 
 ```bash
 magnet:?xt=urn:btih:6B57CD85A6E4708E8EC2E319F47C60317E7CA629
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

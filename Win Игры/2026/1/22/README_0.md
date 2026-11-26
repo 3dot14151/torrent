@@ -19,8 +19,7 @@ Terra Invicta (2022) [Ru/Multi] (1.0.28) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CF861282BB96E1A25701529BF3407474E8B354ED
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Head's Adventures: chibichibi (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B58A5B1FF647AC119848672A67F596BFEFED708C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Aaero2 (2024) [Ru/Multi] (1.52) Repack FitGirl [Black Razor Edition]
 ```bash
 magnet:?xt=urn:btih:B8838BA895697C7489878C15FC6F4DBE1E41B652
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 ```bash
 magnet:?xt=urn:btih:F700C02E9488E2B7BE70DF204E8BD9129A834256
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Worldwide Rush позволяет вам испытать управление �
 ```bash
 magnet:?xt=urn:btih:12374882F1754A3674826383800D710C0B4BA387
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Night Swarm - это вампирский roguelite RPG в жанре bullet hea
 ```bash
 magnet:?xt=urn:btih:523570F5585062F04F8E6FCFC69BE4207764389F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Argonauts Agency 12: Patterns of Morpheus / Агентство Аргонавт�
 ```bash
 magnet:?xt=urn:btih:C9CE205538A01FD5408DCCC73DD9AE19A01C9BD3
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ The Last Faith (2023) [Ru/Multi] (2.0.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:99F034314665B029F2AB6AABDB4300AB9BC32AEC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Thrae - это уютная приключенческая игра, в кото
 ```bash
 magnet:?xt=urn:btih:527A650F8E45B79FD99A464384A8B9F2ECC8E55E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

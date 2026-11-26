@@ -19,8 +19,7 @@ Immortals of Aveum, сочетающая в себе шутер от перво�
 ```bash
 magnet:?xt=urn:btih:0E3FD21A2DD8004FB489ECA85B608DEF388EA49F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Keep Driving (2025) [En] (1.0.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A55854612E0B7DD22B63BADC4B1720AE182E8A8B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Only Lead Can Stop Them (2024) [Ru/Multi] (1.16) License GOG
 ```bash
 magnet:?xt=urn:btih:CA82BC5286B803E14A245507C75567BD9E2FED64
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.20.0.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:6F10E603B85C87F15FEC83A55DDAB4BBFABCE1DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,8 +119,7 @@ Exogate Initiative (2023) [Multi] (1.0.0.97bd92b) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6BD9CE6812E40EBE2C5D2FF0428A1D7DA6D63F0B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,8 +144,7 @@ Sword of the Necromancer: Resurrection (2025) [Multi] (1.0.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5297F8AA90D946071E0B58551F5B6EACB68A8DEB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,8 +169,7 @@ Hero of the Kingdom III / Герой Королевства III (2018) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:05897AD768CEA83A8DA88787CABBB93AE37B00FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,8 +194,7 @@ Hero of the Kingdom: The Lost Tales 1 / Герой Королевства: Ут�
 ```bash
 magnet:?xt=urn:btih:BFEACDBF9ADF3E456CC4E6C8EE2769C4A81BAB19
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,8 +219,7 @@ Hero of the Kingdom: The Lost Tales 2 / Герой Королевства: Ут�
 ```bash
 magnet:?xt=urn:btih:B7B262343D06323282F90A74C5158A5F062D1E29
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,8 +244,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack DjDI 
 ```bash
 magnet:?xt=urn:btih:D1DAFB3C2D29D61E7973A19F3F655F95FDE825DD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,8 +269,7 @@ Techno Banter (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:892F1FF37C9A6E998AFF0EA133046CADF513516F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,8 +294,7 @@ THE MUTE HOUSE (2025) [Multi] (1.0.39) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6B7DE9CACA8F7DAFC996321C7373AF0684D4F4DB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,8 +319,7 @@ Backyard Boxing - это захватывающая игра о городско
 ```bash
 magnet:?xt=urn:btih:ACA28704F949436C11478838E7BFE270619F605C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,8 +344,7 @@ Hero of the Kingdom II / Герой Королевства II (2015) [Ru/Multi] 
 ```bash
 magnet:?xt=urn:btih:6222D00C98315B8082DAA5746C27AAEFEA79428E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,8 +369,7 @@ Grief like a stray dog / А Горюшко вслед собакою... (2025) [
 ```bash
 magnet:?xt=urn:btih:2DBB4C4B2C77952B709F0645BC515C9D06AAB94D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,8 +394,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17294620) Repack Let's
 ```bash
 magnet:?xt=urn:btih:F6D814BD2E188436130157554803C74A63BD5089
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

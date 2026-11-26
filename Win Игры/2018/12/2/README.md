@@ -19,8 +19,7 @@ Sally Face (2016) [Ru/Multi] (1.4.13/dlc) License PLAZA [Episode 1-4]
 ```bash
 magnet:?xt=urn:btih:EA1A80097AFC7A9976042C97ADA848A8DB739000
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Super Lucky’s Tale — весёлая и увлекательная платф
 ```bash
 magnet:?xt=urn:btih:60EEBFEB634F6804C7D9CE2CE6DA7A3152569887
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Domina — симулятор (с элементами стратегии), ко
 ```bash
 magnet:?xt=urn:btih:77EF5202676125B3F7D07D5E442BF1AA65F630B4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

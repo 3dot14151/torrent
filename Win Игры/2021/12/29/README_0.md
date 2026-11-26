@@ -19,8 +19,7 @@ Crossroads: On a Just Path (2021) [En] (1.0) Unofficial [Collector's Edition / Ð
 ```bash
 magnet:?xt=urn:btih:FE327B58D487BC187F6427DA72F2EFF450DA6844
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:4F6CE1262C738FC7435AA9D90DBD5266F208E50F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,8 +19,7 @@ Free Instagram Downloader - программа, с помощью которой
 ```bash
 magnet:?xt=urn:btih:B6AE488F101BE06C2FE6353C829C50B9A070D133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

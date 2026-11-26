@@ -19,8 +19,7 @@ Relics of Fate: A Penny Macey Mystery / Реликвии судьбы. Тайн�
 ```bash
 magnet:?xt=urn:btih:FB4E414123443820A651A72228FEF7A4111136B0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Dark Parables 5: The Final Cinderella / Последняя Золушка (2013)
 ```bash
 magnet:?xt=urn:btih:7C397751179F154B0DD6FB3A917F631370795001
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Dracula: Love Kills / Дракула: Любовь убивает (2011) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:E0AB0D78AADF5AC495808C501A9D0A30D52EC4D0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Blood Bowl (2012) [Ru/Multi] (3.0.2.2) License PROPHET [Chaos Edition]
 ```bash
 magnet:?xt=urn:btih:459984F84C71AFD2BC41C31AB3126358664A640E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,8 +120,7 @@ Blood Bowl — это жестокий и кровавый спорт, вдох�
 ```bash
 magnet:?xt=urn:btih:A3EF52F68DF51B5497CF8437D328F3BB9AA30756
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,8 +145,7 @@ Alien Rage Unlimited (2013) [Ru/Multi] (1.0.9084.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:58EA0943B15652FA46B95DBD64534336A48DCDBE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,8 +171,7 @@ Sleeping Dogs (2012) [Ru/En] (2.1.437044) RePack Audioslave [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:B59240B40106559C5218FB51EFFEC58D88F1DFCA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Tropico 4 также обеспечивает новый уровень соци
 ```bash
 magnet:?xt=urn:btih:8E39CDB61C26F6EA290AF3F3D7D1AAE6F3FF2860
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Life Goes On – это платформер-головоломка от нез�
 ```bash
 magnet:?xt=urn:btih:85A6F1EB80111BEC86107CAF1EFF27ECBC7F00EA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

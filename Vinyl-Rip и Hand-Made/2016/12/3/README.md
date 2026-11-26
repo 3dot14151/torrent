@@ -22,8 +22,7 @@ A4. All Dead, All Dead (3:11)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:3FFD59EC19227F7934FB8CA6D88D9D9D475277FE
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

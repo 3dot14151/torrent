@@ -19,8 +19,7 @@ William Hardy | VoIP Service Quality Measuring and Evaluating Packet-Switched Vo
 ```bash
 magnet:?xt=urn:btih:E8AEDA81F1C8EE7D48979A89CED1BE16121E95E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,8 +45,7 @@ Beginning Android Games предлагает все необходимое дл�
 ```bash
 magnet:?xt=urn:btih:EE583CFC49E923077FAD3BBCF8D966475A6DD133
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

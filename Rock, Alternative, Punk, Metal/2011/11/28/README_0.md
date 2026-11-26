@@ -22,8 +22,7 @@ V.A. - Rock Hearts Collection (2011) (4CD Box Set) [FLAC|Lossless]<Rock ballads>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -57,8 +56,7 @@ Deep Purple - Greatest Hits (2011) [MP3|256 kbps]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:707D90D51EFFDF38D1D5D8D0A3AD32A8A7D1FAB1
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

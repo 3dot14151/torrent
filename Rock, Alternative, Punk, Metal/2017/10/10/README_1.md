@@ -22,8 +22,7 @@ Air Raid - Across the Line (2017) Japan [FLAC|Lossless|image + .cue] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:DE1A6313D75F5567FAC6A45E0EB57FA89E97DCFD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ Devastation Inc. - No Way For Salvation (2016) [FLAC|Lossless|WEB-DL|image + .cu
 ```bash
 magnet:?xt=urn:btih:FC1580C842DBE87A0B8F8D100A8D643141C9350E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ Mark Knopfler - This Is Not Enough For Me (2017) Live, Bootleg [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:9B5B3B259015D6035825DB0F3C479324D6A9F8D4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

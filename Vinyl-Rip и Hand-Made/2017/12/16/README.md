@@ -22,8 +22,7 @@ A4. Nightrider (4:22)(   Читать дальше...   )Производств�
 ```bash
 magnet:?xt=urn:btih:F7CE13A300953AD0CF2FA7DE81C7CF6E5F7A4F96
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

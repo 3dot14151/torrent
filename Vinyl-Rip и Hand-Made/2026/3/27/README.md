@@ -22,8 +22,7 @@ Ram-Zet — метал-группа, образованная в Хамаре, �
 ```bash
 magnet:?xt=urn:btih:A95A21B2EECA0323C004D8EAE61EA5B43C0D10C0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,8 +50,7 @@ A4 We'll Gather Lilacs(   Читать дальше...   )Жанр: Pop, Stage &
 ```bash
 magnet:?xt=urn:btih:D25151811B6EB0FEBE45C913480E510121B286E4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

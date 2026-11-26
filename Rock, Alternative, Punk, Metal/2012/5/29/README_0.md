@@ -28,8 +28,7 @@
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -68,8 +67,7 @@ Barclay James Harvest - 6 Albums (1972-1978) Japan remastered reissues /2002, EM
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,8 +101,7 @@ Crucified Barbara - 3 альбома (2006-2012) [MP3|320 кб/с]<Hard Rock, He
 ```bash
 magnet:?xt=urn:btih:37A26F239CAEA0E98AF757954DBDA2635808480A
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -136,8 +133,7 @@ Be'lakor - Of Breath And Bone (2012) [FLAC|Lossless]<Modern Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -171,8 +167,7 @@ The Sloe - 2 Альбома (2010-2012) [MP3|320 kbps]<Alternative, Nu Metal, Ro
 ```bash
 magnet:?xt=urn:btih:D0FD15279A20FAED86213B22AAF3E42B197B2278
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,8 +201,7 @@ Andwella - World's End (1970) & People's People (1971) Remastered /2002, Progres
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -239,8 +233,7 @@ October Tide - 2 albums (1997-1999) [APE|Lossless] <Melodic Death / Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -274,8 +267,7 @@ Silent Descent - Mind Games (2012) [FLAC|Lossless]<Modern Melodic Death Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,8 +300,7 @@ Pee Wee Bluesgang - Our Blue Side (1979) - Our Blue Side /2003, Sireena Records/
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,8 +334,7 @@ Pat Travers - Lookin' Up (1986) /1996, Shrapnel Records/ [FLAC|Lossless]<Blues R
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -377,8 +367,7 @@ Tristitia - 4 albums (1995-2002) [FLAC|Lossless] <Doom Metal, Gothic Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,8 +399,7 @@ Liam - MMIX (2012) [MP3|320 кб/с]<Post-Rock / Shoegaze Post-Black>
 ```bash
 magnet:?xt=urn:btih:0D8B2B62D1145FADDDA95C49B388A5A74471D011
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +431,7 @@ Synkletos - Spiritual Alchemy (2011) [FLAC|Lossless] <Melodic Doom / Death Metal
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,8 +465,7 @@ Dimness Through Infinity - Nymph (2003) [FLAC|Lossless] <Atmospheric Doom Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -512,8 +498,7 @@ Disappears - Pre Language (2012) [MP3|320 кб/с]<Post-Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:1558AE0BE37B33A4D950978E8FF83544878F52B7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

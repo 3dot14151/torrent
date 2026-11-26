@@ -18,8 +18,7 @@ Computer Desktop Wallpapers Collection (31.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:05F7F326017E2E0CA48EF36DB57CDDB224024E4D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:6A035E3C932062F0022BD534653F37FE4A95943C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,8 +78,7 @@ VA - Vocal Trance Volume 39 (2012) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:2EA6607990600E6DDB8FE1F277ED555D85CFB346
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,8 +103,7 @@ Alexander Brown feat. Szhirley - Sidste Gang (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:0E9F67373167B332C54ADCF70E8D8DB4F7CD48FD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,8 +128,7 @@ Best HD Wallpapers Pack (31.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6130007CE2A54A9997E651C69F3B1EE1FA6925C2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -166,8 +161,7 @@ Captain Crimson - Dancing Madly Backwards (2012) [FLAC|Lossless]<Hard Blues Rock
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -199,8 +193,7 @@ Jagjit Singh - A Spiritual Journey (2CD) (2011) [MP3|320 кб/с]<Folk, Meditati
 ```bash
 magnet:?xt=urn:btih:3F78D7834C0E485DBF7A2A5FEED63156C7F2C66F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -225,8 +218,7 @@ Fabio XB & Wach vs Roman Sokolovsky - Eternal (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:98C30441099B4FBAFCD6DEF6515AFFED3F09447C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,8 +251,7 @@ The Addiction Dream - Essence (2012) [FLAC|Lossless]<Progressive Rock>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,8 +277,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:FC3F44C6C2ECE71F030758499836CE0728F0F0B9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,8 +302,7 @@ Computer Desktop Wallpapers Collection (02.09.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:9FFFF433FD2144323EC6E543BAF18785A2E61262
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,8 +327,7 @@ Best HD Wallpapers Pack (06.09.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6D15FBC92A0398F6DFABB86C8349197CC3C6C522
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,8 +361,7 @@ Scelerata - The Sniper (Japanese Ed.) (2012) [WavPack|Lossless]<Power Metal>
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,8 +386,7 @@ Foxit Reader - профессиональная программа для чте
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -432,8 +418,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -458,8 +443,7 @@ Desktop wallpapers (07.09.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:AAC74AD4728995B762E712B86D35AF9BB0CCDE22
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,8 +468,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:727D6D2046D5F37F63ACEA6C98A535D6CF8D7A75
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,8 +502,7 @@ VA - Райские Хиты. Зарубежный Выпуск (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:53832EBE63A56EFB3BBCDC9089DF6FF672EA728F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,8 +527,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C57A43837BD9C658782FA6C96B52F3647E675B5C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,8 +552,7 @@ Computer Desktop Wallpapers Collection (07.09.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D35CD9F2382F4C93D04BF8D9E9B6D9B406FD112B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,8 +577,7 @@ Computer Desktop Wallpapers Collection (06.09.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:0CAEC3E7D029F62974D40C4D8AC754701BB8B012
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,8 +602,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:367DA617211062A73B264CA5248D71E19F8DC816
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,8 +627,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:C6953CFE88D13065773C6B9550A42E6BFAA120E0
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,8 +652,7 @@ DJ Sergey Fisun - Aura (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:3F1E8F2EDFECD034CF2A444E4FE8ECA17ABFB037
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -701,8 +677,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 ```bash
 magnet:?xt=urn:btih:163954CC7B68DFD719217C5FEDF9F4170EBFB5CB
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -727,8 +702,7 @@ SMPlayer - кроссплатформенный мультимедиа прои�
 ```bash
 нет
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

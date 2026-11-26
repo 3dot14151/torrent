@@ -19,8 +19,7 @@ Cossacks: Back to War / Казаки. Снова война (2002) [Ru/En] (1.35
 ```bash
 magnet:?xt=urn:btih:64AF894D82575FC015E3061219401B4A0F787C28
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

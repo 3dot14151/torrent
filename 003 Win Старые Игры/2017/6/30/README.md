@@ -19,8 +19,7 @@ RollerCoaster Tycoon 2: Triple Thrill Pack (2002) [Ru/En] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:90439BCF00680A1D8593288826F5B9E80969503D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Impossible Creatures (2003) [Ru/En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5799D7BFB63923BDF99F33B6D3EE86E102EC01C9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

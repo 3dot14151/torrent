@@ -20,8 +20,7 @@ Gotcha! / Банзай! [Ru] (L) 2004
 ```bash
 magnet:?xt=urn:btih:2D21F96AA7CB96D200E0B82E111FC723F26CF2CF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

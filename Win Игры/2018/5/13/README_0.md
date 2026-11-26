@@ -19,8 +19,7 @@ Solstice Chronicles: MIA — это шутер с видом сверху, в к
 ```bash
 magnet:?xt=urn:btih:D23AF018E1119294EE59E482E3F713258B6246C4
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Anno 1404 (2010) [Ru] (1.03.3650/2.01.5010/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:1E4592BF7BFADC41928C2CACC046FADF271AAE5D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,8 +69,7 @@ Heat Guardian – это хардкорный боевик о мире вечн�
 ```bash
 magnet:?xt=urn:btih:2500E847C85F9A95F27041B0C0FDE1EA847CD00C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,8 +94,7 @@ Watch_Dogs / Watch Dogs (2014) [Ru/Multi] (1.06.329/dlc) Repack R.G. Catalyst [D
 ```bash
 magnet:?xt=urn:btih:C8F0D2F09D598F6D62338B7EDC7E26B25EA0ACBF
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

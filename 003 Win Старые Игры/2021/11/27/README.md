@@ -19,8 +19,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 ```bash
 magnet:?xt=urn:btih:1CE6421DF4DB454C2504F3775CE95D864699FC78
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

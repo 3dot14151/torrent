@@ -22,8 +22,7 @@ A2b Gary Owen(   Читать дальше...   )Жанр: Jazz, Folk, Easy List
 ```bash
 magnet:?xt=urn:btih:5E52DC8F6CE99C7545BED80E4A2A0B51D6572013
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

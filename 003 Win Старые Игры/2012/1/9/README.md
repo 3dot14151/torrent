@@ -19,8 +19,7 @@ Dino Island / Магнаты Юрского периода (P) [Ru] 2002
 ```bash
 magnet:?xt=urn:btih:04AB7638081D5F6CAB197C57850F83995C454287
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,8 +44,7 @@ Monster Truck Fury / Монстры бездорожья [Ru] (P) 2003
 ```bash
 magnet:?xt=urn:btih:DB61959AC4437F61B69CC953D8AB74237A380ED2
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

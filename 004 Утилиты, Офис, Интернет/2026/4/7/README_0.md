@@ -21,8 +21,7 @@ Winslopr (Windows Slop Remover), ранее известный как Winslop, �
 ```bash
 magnet:?xt=urn:btih:B56D9A466F291F9CE21A1904749B930DD9B4CF8F
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,8 +47,7 @@ Joplin - это бесплатное приложение с открытым и
 ```bash
 magnet:?xt=urn:btih:B6F20B3D84280613346E887B1043AC1A8A8ECC02
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,8 +72,7 @@ Snagit предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:0A678ED6ED25869B9275E10AB9239350DFE59ADC
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,8 +97,7 @@ Alt SwitchER - программа для автоматического испр
 ```bash
 magnet:?xt=urn:btih:647D268EDD588C6631D0E57CA51E86FD0D059F2E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,8 +123,7 @@ Folder Marker - помощник, который может маркироват
 ```bash
 magnet:?xt=urn:btih:A8C4439FA362E9FD8A005A801CC5BE821C88CD0C
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,8 +148,7 @@ HyperSnap — это самый быстрый и простой способ д
 ```bash
 magnet:?xt=urn:btih:51F9FCDC7289E0CF20A155FA1E996C3561F57E38
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,8 +173,7 @@ ParkControl разработан компанией Bitsum и предназна
 ```bash
 magnet:?xt=urn:btih:E065692265F4E0E8ECD7178C723DC653C0BCE66E
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,8 +198,7 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:A667B10BDBA6023B3154AE4789850655470DBE13
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,8 +223,7 @@ Wise Disk Cleaner 11.3.4.854 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B6D2BDD38EBEF7C230398B766299DBEEF466D6A7
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,8 +248,7 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:6DCC4411AA5878360198FC4A775750B1BAD147BA
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,8 +275,7 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 ```bash
 magnet:?xt=urn:btih:20825AC2D06F04FDEE25B1DA1B53156078C98D62
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,8 +300,7 @@ Aomei Partition Assistant – программа для работы с жёст
 ```bash
 magnet:?xt=urn:btih:9041ABA5A26DE021AD63BC342830402D0BB372E5
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,8 +325,7 @@ SRWare Iron 143.0.7250.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B25EA871D007142BA396C22FB97FDAE851F953CD
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,8 +350,7 @@ PassMark RAMMon - удобная и полезная утилита для по�
 ```bash
 magnet:?xt=urn:btih:67452FA606CD14239E630B85AE8C064C7655464D
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,8 +375,7 @@ Advanced PC Cleanup — это универсальная программа д�
 ```bash
 magnet:?xt=urn:btih:C63352D4C3F33471012161822871D343DA88BAC9
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,8 +402,7 @@ Syncovery Premium 11.14.2 build 183 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0C19AB0920ECF22DE10500A5A1CD38E956DDB26B
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,8 +427,7 @@ WireSock Secure Connect - это сложный VPN-клиент WireGuard дл�
 ```bash
 magnet:?xt=urn:btih:AE687D04A6DBB7AB5E58A24995698B2BC14B0147
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 

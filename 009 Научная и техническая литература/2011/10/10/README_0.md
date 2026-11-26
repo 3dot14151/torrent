@@ -19,8 +19,7 @@ SS (Schutzstaffeln) - охранные отряды НСДАП - не тольк
 ```bash
 magnet:?xt=urn:btih:FA684A060B11DBDE03DDFCD9A316A500FB1AF778
 ```
-
-http://mybot314.ru/main/16-spisok-vseh-resursov.html
+http://master1cbest.ru/main/16-spisok-vseh-resursov.html
 
 
 
